@@ -1,6 +1,6 @@
 **Trump and Netanyahu May Be at Odds Again Over Gaza Plan**\
 `President Trump’s announcement came at a difficult point in his relationship with the Israeli leader over their war against Iran.`\
-https://www.nytimes.com/2026/07/31/us/politics/new-gaza-plan-hailed-by-trump-again-pressures-netanyahu.html
+https://www.nytimes.com/2026/07/31/us/politics/trump-hamas-gaza-israel-netanyahu.html
 
 **Charges Dropped Against Ex-Olympian David Hearn Accused of Damaging Reflecting Pool**\
 `A former Olympian will not face trial after federal prosecutors acknowledged that the Trump administration’s claims of vandalism were false.`\
@@ -185,10 +185,6 @@ https://www.nytimes.com/es/2026/07/31/espanol/america-latina/unam-examen-admisio
 **4 cuerpos son hallados y 6 alpinistas siguen desaparecidos tras una avalancha en Pakistán**\
 `El cuerpo de Nadhira Alharthy, la primera mujer omaní en alcanzar la cima del Everest, estaba entre los cuerpos recuperados. El alpinista influente Nirmal Purja estaba desaparecido.`\
 https://www.nytimes.com/es/2026/07/31/espanol/mundo/avalancha-alpinistas-pakistan.html
-
-**Flashback: Your Weekly History Quiz, August 1, 2026**\
-`Can you sort 8 historical events?`\
-https://www.nytimes.com/interactive/2026/07/31/upshot/flashback.html
 
 **La crisis de Ceuta, en vivo: la mayoría de los migrantes que llegaron a España han vuelto a Marruecos**\
 `De las 60.000 personas que llegaron a Ceuta, unas 48.000 habían vuelto a casa al cabo de un día. Pero la afluencia repentina puso en jaque al gobierno español.`\

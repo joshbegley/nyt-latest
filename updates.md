@@ -1,3 +1,7 @@
+**Trump and Netanyahu May Be at Odds Again Over Gaza Plan**\
+`President Trump’s announcement came at a difficult point in his relationship with the Israeli leader over their war against Iran.`\
+https://www.nytimes.com/2026/07/31/us/politics/trump-hamas-gaza-israel-netanyahu.html
+
 **Charges Dropped Against Ex-Olympian David Hearn Accused of Damaging Reflecting Pool**\
 `A former Olympian will not face trial after federal prosecutors acknowledged that the Trump administration’s claims of vandalism were false.`\
 https://www.nytimes.com/2026/07/31/us/david-hearn-reflecting-pool-vandalism-charges.html

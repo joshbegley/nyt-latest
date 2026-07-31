@@ -1,3 +1,11 @@
+**Trump Backs Away From Deal to Let Ukraine Build Patriot Missiles**\
+`The president of Ukraine had warned that the country was running out of Patriot interceptors, the most reliable weapon it has to shoot down Russian ballistic missiles.`\
+https://www.nytimes.com/2026/07/31/us/politics/trump-ukraine-patriot-missiles.html
+
+**Missing Australian Hiker Found Dead on Wyoming Trail**\
+`The man had been traveling the Continental Divide Trail, which goes through five states and is described by a hiking group as one of the “most challenging landscapes in North America.”`\
+https://www.nytimes.com/2026/07/31/us/wyoming-continental-divide-trail-hiker-dead.html
+
 **Trump and Netanyahu May Be at Odds Again Over Gaza Plan**\
 `President Trump’s announcement came at a difficult point in his relationship with the Israeli leader over their war against Iran.`\
 https://www.nytimes.com/2026/07/31/us/politics/trump-hamas-gaza-israel-netanyahu.html
@@ -181,10 +189,6 @@ https://www.nytimes.com/2026/07/31/us/cyclospora-cyclosporiasis-nashville.html
 **La UNAM anula miles de exámenes de admisión por posibles trampas**\
 `La Universidad Nacional Autónoma de México está investigando el caso después de que los expertos descubrieron que hasta la mitad de las pruebas de ingreso podrían haber implicado trampas, incluido el uso de IA.`\
 https://www.nytimes.com/es/2026/07/31/espanol/america-latina/unam-examen-admision-mexico.html
-
-**4 cuerpos son hallados y 6 alpinistas siguen desaparecidos tras una avalancha en Pakistán**\
-`El cuerpo de Nadhira Alharthy, la primera mujer omaní en alcanzar la cima del Everest, estaba entre los cuerpos recuperados. El alpinista influente Nirmal Purja estaba desaparecido.`\
-https://www.nytimes.com/es/2026/07/31/espanol/mundo/avalancha-alpinistas-pakistan.html
 
 **La crisis de Ceuta, en vivo: la mayoría de los migrantes que llegaron a España han vuelto a Marruecos**\
 `De las 60.000 personas que llegaron a Ceuta, unas 48.000 habían vuelto a casa al cabo de un día. Pero la afluencia repentina puso en jaque al gobierno español.`\
