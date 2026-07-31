@@ -1,3 +1,7 @@
+**Nancy Guthrie Ransom Notes Released by Sheriff’s Department Searching for New Leads**\
+`The 84-year-old mother of Savannah Guthrie, the television news anchor, has been missing for nearly six months.`\
+https://www.nytimes.com/2026/07/31/us/savannah-nancy-guthrie-ransom-note.html
+
 **State Dept. to Release 250,000 More Trump Passports With His Portrait**\
 `An additional 250,000 commemorative passports, featuring a portrait of President Trump and intended to honor the nation’s 250th anniversary, will be available at in-person events.`\
 https://www.nytimes.com/2026/07/31/travel/trump-passports-usa-250th-anniversary.html
