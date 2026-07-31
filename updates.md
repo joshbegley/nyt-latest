@@ -1,3 +1,7 @@
+**What to Know About Ceuta**\
+`The peninsula on Morocco’s northern coast that Spain has governed for centuries has been a frequent site of mass migrant crossings and political tensions.`\
+https://www.nytimes.com/2026/07/30/world/europe/ceuta-spain-morocco-migrants.html
+
 **NYT Crossword Answers for July 31, 2026**\
 `Rafael Musa returns to open our solving weekend.`\
 https://www.nytimes.com/2026/07/30/crosswords/daily-puzzle-2026-07-31.html
