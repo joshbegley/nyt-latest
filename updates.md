@@ -1,3 +1,63 @@
+**In Another Wild Day for South Korean Stocks, Market Surges 15 Percent**\
+`After a sharp sell-off, South Korea’s stock market rallied as concerns about overspending on artificial intelligence eased, sending the country’s chip shares higher.`\
+https://www.nytimes.com/2026/07/31/business/korea-stocks-chips-kospi.html
+
+**México presenta un plan para combatir el sargazo en sus playas**\
+`Las algas pardas y malolientes conocidas han asolado las costas del país y de la región en general durante más de una década, pero el pronóstico de este año está batiendo récords.`\
+https://www.nytimes.com/es/2026/07/31/espanol/america-latina/mexico-sargazo-playas.html
+
+**China está produciendo más carne. Los aranceles y el clima extremo ayudan**\
+`A medida que el aumento de las lluvias hace posible que haya pastizales y campos de maíz en áreas que alguna vez fueron desiertos, el mayor importador de carne de res del mundo se está volviendo más autosuficiente al expandir sus rebaños nacionales.`\
+https://www.nytimes.com/es/2026/07/31/espanol/negocios/china-carne-ganado-aranceles-argentina-brasil.html
+
+**Quote of the Day: Cashing In on a Data Center by Selling Cold Beer to Builders**\
+`Quotation of the Day for Friday, July 31, 2026.`\
+https://www.nytimes.com/2026/07/31/pageoneplus/quote-of-the-day-cashing-in-on-a-data-center-by-selling-cold-beer-to-builders.html
+
+**El nuevo álbum de Sam Smith le da una oportunidad al amor**\
+`Tras alcanzar el estatus de estrella pop mundial con himnos sobre el desamor, Smith vuelve con un disco dedicado a un “amor correspondido” desde una mirada abiertamente queer.`\
+https://www.nytimes.com/es/2026/07/31/espanol/cultura/sam-smith-nuevo-album.html
+
+**A Ton of Space Junk Tumbles Unpredictably to Earth Every Week**\
+`Flaming chunks of metal crash into homes, farms and parking lots. Who’s to blame? And who pays for the damage?`\
+https://www.nytimes.com/2026/07/31/world/asia/space-debris-earth.html
+
+**Political Turmoil Will Not Derail Killer Robot Program, Former Minister Says**\
+`The recently ousted Ukrainian defense minister, Mykhailo Fedorov, an advocate for drone and robot warfare, says Ukraine’s tech-heavy strategy will persist.`\
+https://www.nytimes.com/2026/07/31/world/europe/federov-ukraine-killer-robots.html
+
+****\
+`Suspected rocket debris was recovered near Palawan, the Philippines, on Sept. 16, 2025.`\
+https://www.nytimes.com/video/embedded/world/asia/100000011060472/space-debris.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/asia/100000011060470/29visualUploader-82137.html
+
+****\
+`Space debris was found in Western Australia on Oct. 18, 2025.`\
+https://www.nytimes.com/video/embedded/world/100000011062966/space-debris3.html
+
+**After 23 Years of Missed Connections, the Third Time Was the Charm**\
+`Sara Tretter and JP Przewoznik fell in love at camp over two decades ago. Years of emails, Facebook texts and letters tied them together.`\
+https://www.nytimes.com/2026/07/31/style/jp-przewoznik-sara-tretter-wedding.html
+
+**It Was ‘Written in the Stars’ Even Before They Met**\
+`Alyannah Kassam and Malik Ladhani had no idea how much their lives overlapped when they matched on a dating app nearly four years ago.`\
+https://www.nytimes.com/2026/07/31/style/alyannah-kassam-malik-ladhani-wedding.html
+
+**A Wedding Suit and Maybe a Marriage ‘Blessed by Zendaya’**\
+`Jackson Fust and Alistair Stephenson had been drawn to each other across many dance floors. Once both were single, romance took off.`\
+https://www.nytimes.com/2026/07/31/style/jackson-fust-alistair-stephenson-wedding.html
+
+**He Impressed the TikTok Star the Old-School Way: By Listening, in Real Life**\
+`Cole Hosman was one of Sienna Gomez’s early followers. She later followed him back and, after a terrible accident, reached out to offer comfort.`\
+https://www.nytimes.com/2026/07/31/style/sienna-gomez-cole-hosman-wedding.html
+
+**The Marriage I Cherished No Longer Existed**\
+`The husband I treasured had disappeared. Why was I happy?`\
+https://www.nytimes.com/2026/07/31/style/modern-love-the-marriage-i-cherished-no-longer-existed.html
+
 **Trump Says Peace Board Has Plan for Gaza Disarmament**\
 `There was no immediate comment from Hamas or Israel, though the Board of Peace said Hamas had agreed to a “road map” to give up its weapons.`\
 https://www.nytimes.com/2026/07/30/us/politics/trump-gaza-peace-board-hamas.html

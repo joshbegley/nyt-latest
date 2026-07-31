@@ -1,3 +1,11 @@
+**10 Climbers Feared Missing After Avalanche in Pakistan**\
+`Nirmal Purja, an influential mountaineer, was part of a group struck by an avalanche on Broad Peak, an alpine organization said. A search effort was being mobilized.`\
+https://www.nytimes.com/2026/07/31/world/asia/nirmal-purja-nims-avalanche-broad-peak-pakistan.html
+
+**Una enorme cantidad de basura espacial cae a la Tierra cada semana**\
+`Pedazos de metal en llamas caen sobre casas, granjas y estacionamientos. ¿De quién es la culpa? ¿Y quién paga por los daños?`\
+https://www.nytimes.com/es/2026/07/31/espanol/mundo/espacio-tierra-basura-espacial.html
+
 **In Another Wild Day for South Korean Stocks, Market Surges 15 Percent**\
 `After a sharp sell-off, South Korea’s stock market rallied as concerns about overspending on artificial intelligence eased, sending the country’s chip shares higher.`\
 https://www.nytimes.com/2026/07/31/business/korea-stocks-chips-kospi.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/30/technology/ai-bubble-venture-capital.html
 **Execution Nation**\
 `The United States is an outlier in the West. We look at why the country clings to the death penalty.`\
 https://www.nytimes.com/2026/07/30/world/us-death-penalty-iran-saudi-world-cup.html
-
-**Apple’s Profit Is Up 27%, but Expectations for Current Quarter Disappoint**\
-`The company recently raised prices on a number of products because of component supply shortages caused by the artificial intelligence boom.`\
-https://www.nytimes.com/2026/07/30/technology/apple-earnings.html
-
-**Big Tech’s A.I. Spending Keeps Rising. So Do the Jitters.**\
-`Amazon joined a procession of tech giants that ramped up their spending on artificial intelligence, as its capital expenditures soared 69 percent. Concerns over the industry’s spending are mounting.`\
-https://www.nytimes.com/2026/07/30/technology/amazon-google-ai-data-center-spending.html
 
