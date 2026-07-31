@@ -1,3 +1,7 @@
+**Ariana Grande ‘Petal’ Album Review: The Pitfalls of Fame**\
+`The singer’s new album, “Petal,” finds her dissatisfied with fame, but offers few details on exactly why.`\
+https://www.nytimes.com/2026/07/31/arts/music/ariana-grande-petal-review.html
+
 **A Doctor Weighs In on the Health Tracking Craze**\
 `If a fitness enthusiast like Joe Rogan wants to scan his body ad nauseam to track his wellness, that’s fine, says Dr. Rachael Bedard on “The Opinions.” But using those scans to look for medical abnormalities can lead to costly, potentially harmful follow-up tests.`\
 https://www.nytimes.com/video/opinion/100000011049054/a-doctor-weighs-in-on-the-health-tracking-craze.html
@@ -70,8 +74,8 @@ https://www.nytimes.com/2026/07/31/world/americas/amazon-archaeology-geoglyphs.h
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/europe/100000011065650/31vid-fnideq-13067.html
 
-**Trump’s Announcement of Gaza Deal Raises Many Unanswered Questions**\
-`Hamas and Israel have long objected to conditions in the Board of Peace’s deal, raising concerns about their eagerness to carry out its clauses.`\
+**Trump’s Gaza Deal Raises Concerns About Israel and Hamas’s Eagerness to Fulfill It**\
+`The Israeli government has not issued an official statement. Hamas has underlined that Israel must make concessions before disarmament can proceed.`\
 https://www.nytimes.com/2026/07/31/world/middleeast/trump-gaza-hamas-deal-disarm.html
 
 **Iran War Drives Oil Profits to Highest Levels in Years**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/31/magazine/american-women-workforce.html
 **Ella Langley? Drake? Stella Lefty? A Song of the Summer Debate.**\
 `Can Drake reclaim the throne? Is it the season of Stella Lefty? Or is Ella Langley inevitable?`\
 https://www.nytimes.com/2026/07/31/arts/music/song-of-the-summer-drake-ella-langley.html
-
-**The 8 Biggest Songs of This Summer Face Off**\
-`Ella Langley? Drake? A.I.?! Jon and Joe battle through an eight-song bracket of the summer’s biggest hits to determine the Song of the Summer for 2026.`\
-https://www.nytimes.com/video/podcasts/100000011055340/the-8-biggest-songs-of-this-summer-face-off.html
 

@@ -1,3 +1,11 @@
+**Ariana Grande ‘Petal’ Album Review: The Pitfalls of Fame**\
+`The singer’s new album, “Petal,” finds her dissatisfied with fame, but offers few details on exactly why.`\
+https://www.nytimes.com/2026/07/31/arts/music/ariana-grande-petal-review.html
+
+**Trump’s Gaza Deal Raises Concerns About Israel and Hamas’s Eagerness to Fulfill It**\
+`The Israeli government has not issued an official statement. Hamas has underlined that Israel must make concessions before disarmament can proceed.`\
+https://www.nytimes.com/2026/07/31/world/middleeast/trump-gaza-hamas-deal-disarm.html
+
 **Iran Says It Targeted U.S. Military in Kuwait With Drones**\
 `The Kuwaiti military said that it had detected and destroyed multiple drones in its airspace since dawn. A U.S. Defense Department official said there had been no major impact on its military bases in the region.`\
 https://www.nytimes.com/2026/07/31/world/middleeast/iran-us-military-kuwait-drone-attack.html
