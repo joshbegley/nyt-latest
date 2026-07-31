@@ -1,3 +1,7 @@
+**Boy George Pulled From West End Show Days After Releasing Pro-Israel Reggae Song**\
+`Boy George’s manager said he was pulling the singer from a role in “Jesus Christ Superstar” in “the best interests of my artist.”`\
+https://www.nytimes.com/2026/07/31/theater/boy-george-israel.html
+
 **Summer Reading Contest, Week 9: What Got Your Attention in The Times This Week?**\
 `To participate, submit your response here by Aug. 7 at 9 a.m. Eastern. This week’s winners will be announced by Aug. 19.`\
 https://www.nytimes.com/2026/07/31/learning/summer-reading-contest-week-9-what-got-your-attention-in-the-times-this-week.html
@@ -59,7 +63,7 @@ https://www.nytimes.com/2026/07/31/world/americas/amazon-archaeology-geoglyphs.h
 https://www.nytimes.com/video/embedded/world/europe/100000011065650/31vid-fnideq-13067.html
 
 **Trump’s Announcement of Gaza Deal Raises Many Unanswered Questions**\
-`Neither Hamas nor the Israeli government has issued an official statement acknowledging the deal, raising concerns about their eagerness to implement its clauses.`\
+`Neither Hamas nor the Israeli government has issued an official statement acknowledging the deal, raising concerns about their eagerness to carry out its clauses.`\
 https://www.nytimes.com/2026/07/31/world/middleeast/trump-gaza-hamas-deal-disarm.html
 
 **Iran War Drives Oil Profits to Highest Levels in Years**\
@@ -131,10 +135,10 @@ https://www.nytimes.com/interactive/2026/07/31/briefing/news-quiz-iran-war-europ
 https://www.nytimes.com/es/2026/07/31/espanol/opinion/salud-mental-obsesion.html
 
 **Emily Wilson’s Pan of ‘The Odyssey’ Ignites a Debate Among Classicists and Commenters**\
-`Emily Wilson, whose 2017 translation of Homer’s Greek classic influenced the director Christopher Nolan, panned his screenplay for the movie version in an essay for The London Review of Books.`\
+`Wilson, whose 2017 translation of Homer’s Greek classic influenced the director Christopher Nolan, panned his screenplay for the movie version in an essay for The London Review of Books.`\
 https://www.nytimes.com/2026/07/31/arts/the-odyssey-emily-wilson-christopher-nolan.html
 
-**Soccer’s Not for Sale. Give the Boot to FIFA’s Private Equity Play.**\
+**Soccer Is Not for Sale. Give the Boot to FIFA’s Private Equity Play.**\
 `Soccer federations should stop FIFA’s boss, Gianni Infantino, from selling it out.`\
 https://www.nytimes.com/2026/07/31/opinion/fifa-uefa-boycott-deal-thrive.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/31/books/review/london-falling-patrick-radden-ke
 **German Authorities Knew of Pride Attacker’s Extremism**\
 `The assailant, a German citizen, was imprisoned after trying to join the Islamic State but freed weeks before attacking a gay Pride event in Berlin.`\
 https://www.nytimes.com/2026/07/31/world/europe/germany-pride-attack-extremism.html
-
-**Big Losses for Small Businesses in the ‘Frozen Zone’**\
-`Restaurants near the buckling building in Midtown faced spoiled food and furloughs after being forced to shut down for weeks.`\
-https://www.nytimes.com/2026/07/31/nyregion/big-losses-for-small-businesses-in-the-frozen-zone.html
 
