@@ -1,3 +1,7 @@
+**Migrants Surge Into Spanish Territory, Prompting Political Backlash**\
+`A sudden exodus of migrants from Morocco startled Spanish officials and drew heavy criticism from right-wing parties across the continent.`\
+https://www.nytimes.com/2026/07/31/world/europe/migrants-surge-into-spanish-territory-triggering-political-backlash.html
+
 **Driver Fatally Shoots Kidnapped Victim in Trunk in Chino Hills**\
 `An abduction from a home in Chino Hills led to a short police chase. The driver fired at a man in the trunk before being gunned down.`\
 https://www.nytimes.com/2026/07/31/us/kidnapping-shooting-chino-hills.html
