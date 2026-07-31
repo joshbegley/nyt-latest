@@ -1,3 +1,7 @@
+**What Caused the Surge in Ceuta?**\
+`Speculation has focused on lax Moroccan policing, attractive Spanish immigration policies and misinformation from human traffickers. In reality, experts said, it’s too early to know.`\
+https://www.nytimes.com/2026/07/31/world/europe/what-caused-the-surge-in-ceuta.html
+
 **Driver Fatally Shoots Kidnapped Victim in Trunk in Chino Hills**\
 `An abduction from a home in Southern California led to a short police chase. The driver fired at a man in the trunk before being gunned down.`\
 https://www.nytimes.com/2026/07/31/us/kidnapping-shooting-chino-hills.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/07/31/us/politics/gop-ivf-military.html
 **Ariana Grande ‘Petal’ Album Review: The Pitfalls of Fame**\
 `The singer’s new album, “Petal,” finds her dissatisfied with fame, but offers few details on exactly why.`\
 https://www.nytimes.com/2026/07/31/arts/music/ariana-grande-petal-review.html
-
-**A Doctor Weighs In on the Health Tracking Craze**\
-`If a fitness enthusiast like Joe Rogan wants to scan his body ad nauseam to track his wellness, that’s fine, says Dr. Rachael Bedard on “The Opinions.” But using those scans to look for medical abnormalities can lead to costly, potentially harmful follow-up tests.`\
-https://www.nytimes.com/video/opinion/100000011049054/a-doctor-weighs-in-on-the-health-tracking-craze.html
 
