@@ -1,3 +1,7 @@
+**Mexico’s President Unveils Plan to Fight Seaweed That Is Choking Beaches**\
+`The seaweed — a stinky, brown algae known as sargassum — has plagued Mexico and the broader region for more than a decade, but this year’s forecast is setting records.`\
+https://www.nytimes.com/2026/07/30/world/americas/mexico-sargassum-beach-cleanup.html
+
 **Anthropic dice que su IA se infiltró en 3 organizaciones**\
 `La revelación sucede después de que otra empresa del sector, OpenAI, dio a conocer que su propia tecnología hackeó una biblioteca digital.`\
 https://www.nytimes.com/es/2026/07/30/espanol/negocios/anthropic-hackeo.html
@@ -6,7 +10,7 @@ https://www.nytimes.com/es/2026/07/30/espanol/negocios/anthropic-hackeo.html
 `These brownies are infused with the flavors of Arabic coffee, which traditionally include ground cardamom and often other spices such cinnamon, saffron or rose water.`\
 https://www.nytimes.com/video/dining/100000011065120/brownies-with-coffee-and-cardamom.html
 
-**30dc-tour**\
+**Kennedy Center Halts Free Public Tours After Five Decades of Service**\
 `The decision to suspend tours indefinitely came after a volunteer tour guide was featured in a Times article detailing President Trump’s dramatic revamp of the Kennedy Center.`\
 https://www.nytimes.com/2026/07/30/us/politics/kennedy-center-tours.html
 
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/07/30/climate/cincinnati-climate-migrants-plan.html
 **U.S. Government Mislabels Map of African Countries at AIDS Conference**\
 `Nigeria, a coastal country in western Africa, was landlocked in the Sahara, among other errors. The department said it had been “hastily altered.”`\
 https://www.nytimes.com/2026/07/30/us/politics/state-department-map-africa.html
-
-**Civilians Battle Wildfire Threatening Bordeaux**\
-`Residents in Bordeaux in southwestern France are doing everything in their power to stop a wildfire that’s been burning for more than a week. The flames are too spread out for professional firefighters to be everywhere, so for now, civilian volunteers are the only thing standing between the fire and a major French city.`\
-https://www.nytimes.com/video/world/europe/100000011061309/france-wildfires-bordeaux-civilian-volunteers.html
 
