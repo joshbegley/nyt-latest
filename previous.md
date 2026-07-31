@@ -31,7 +31,7 @@ https://www.nytimes.com/2026/07/31/business/dealbook/situational-awareness-ai-he
 https://www.nytimes.com/2026/07/31/briefing/in-the-surf.html
 
 **Returning Home in Spain’s Wildfires**\
-`Amid the worst fires in Spain’s history, our Madrid bureau chief, Jason Horowitz, travels with a couple who fled a fire as they return to see if their home and gardens survived.`\
+`Amid the worst fires in Spain’s recent history, our Madrid bureau chief, Jason Horowitz, travels with a couple who fled a fire as they return to see if their home and gardens survived.`\
 https://www.nytimes.com/video/world/europe/100000011063365/returning-home-in-spains-wildfires.html
 
 ****\

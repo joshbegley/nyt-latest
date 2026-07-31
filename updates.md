@@ -1,3 +1,7 @@
+**Returning Home in Spain’s Wildfires**\
+`Amid the worst fires in Spain’s recent history, our Madrid bureau chief, Jason Horowitz, travels with a couple who fled a fire as they return to see if their home and gardens survived.`\
+https://www.nytimes.com/video/world/europe/100000011063365/returning-home-in-spains-wildfires.html
+
 **Man Accused of Spying for Iran at British Air Base in Cyprus**\
 `Rashad Sultanov, a dual British and Azerbaijani citizen, was arrested after accusations he surveilled the military installation, a hub for Mideast operations, and shared the details with the Revolutionary Guards.`\
 https://www.nytimes.com/2026/07/31/world/europe/iran-spy-uk-air-base-cyprus-sultanov.html
