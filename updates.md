@@ -1,3 +1,7 @@
+**Driver Fatally Shoots Kidnapped Victim in Trunk in Chino Hills**\
+`An abduction from a home in Chino Hills led to a short police chase. The driver fired at a man in the trunk before being gunned down.`\
+https://www.nytimes.com/2026/07/31/us/kidnapping-shooting-chino-hills.html
+
 **The Next Met Fashion Blockbuster and Gala Will Honor Controversial Designer John Galliano**\
 `As famous for his antisemitic rant in 2011 as he is for his fashion, Galliano would be one of only three living designers ever to receive the honor.`\
 https://www.nytimes.com/2026/07/31/style/met-gala-costume-institute-john-galliano.html

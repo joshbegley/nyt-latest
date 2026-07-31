@@ -43,7 +43,7 @@ https://www.nytimes.com/2026/07/31/us/trump-escalates-feud-with-senate-over-blan
 https://www.nytimes.com/2026/07/31/world/europe/migrants-surge-morocco-ceuta-spain.html
 
 **Driver Fatally Shoots Kidnapped Victim in Trunk in Chino Hills**\
-`An abduction from a home in Southern California led to a short police chase. The driver fired at a man in the trunk before being gunned down.`\
+`An abduction from a home in Chino Hills led to a short police chase. The driver fired at a man in the trunk before being gunned down.`\
 https://www.nytimes.com/2026/07/31/us/kidnapping-shooting-chino-hills.html
 
 **At Least 34 Killed in Coal Mine Blast in Pakistan**\
