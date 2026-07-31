@@ -1,3 +1,15 @@
+**Líderes de extrema derecha aprovechan la crisis en Ceuta para reforzar su postura antiinmigrante**\
+`Varios migrantes que cruzaron a Ceuta atribuyeron su llegada a los laxos protocolos fronterizos de Marruecos. Pero el sector antiinmigrante de Europa culpó a la política promigración de España.`\
+https://www.nytimes.com/es/2026/07/31/espanol/mundo/ceuta-derecha-politicos-migrantes.html
+
+**Flashback: Your Weekly History Quiz, August 1, 2026**\
+`Can you sort 8 historical events?`\
+https://www.nytimes.com/interactive/2026/07/31/upshot/flashback.html
+
+**Trump’s Gaza Deal Sparks Questions on Whether Israel, Hamas Will Comply**\
+`The new 15-point plan, released by the Board of Peace and announced by Trump, calls in part for Israel to end its attacks and Hamas to give up its weapons.`\
+https://www.nytimes.com/2026/07/31/world/middleeast/trump-gaza-hamas-deal-disarm.html
+
 **Flashback: Your Weekly History Quiz, July 1, 2026**\
 `Can you sort 8 historical events?`\
 https://www.nytimes.com/interactive/2026/07/31/upshot/flashback.html

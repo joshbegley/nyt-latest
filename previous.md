@@ -1,4 +1,8 @@
-**Flashback: Your Weekly History Quiz, July 1, 2026**\
+**Líderes de extrema derecha aprovechan la crisis en Ceuta para reforzar su postura antiinmigrante**\
+`Varios migrantes que cruzaron a Ceuta atribuyeron su llegada a los laxos protocolos fronterizos de Marruecos. Pero el sector antiinmigrante de Europa culpó a la política promigración de España.`\
+https://www.nytimes.com/es/2026/07/31/espanol/mundo/ceuta-derecha-politicos-migrantes.html
+
+**Flashback: Your Weekly History Quiz, August 1, 2026**\
 `Can you sort 8 historical events?`\
 https://www.nytimes.com/interactive/2026/07/31/upshot/flashback.html
 
@@ -150,8 +154,8 @@ https://www.nytimes.com/2026/07/31/world/americas/amazon-archaeology-geoglyphs.h
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/europe/100000011065650/31vid-fnideq-13067.html
 
-**Concerns Remain About Eagerness of Israel and Hamas to Fulfill Gaza Deal**\
-`The Israeli government has not issued an official statement. Hamas has underlined that Israel must make concessions before disarmament can proceed.`\
+**Trump’s Gaza Deal Sparks Questions on Whether Israel, Hamas Will Comply**\
+`The new 15-point plan, released by the Board of Peace and announced by Trump, calls in part for Israel to end its attacks and Hamas to give up its weapons.`\
 https://www.nytimes.com/2026/07/31/world/middleeast/trump-gaza-hamas-deal-disarm.html
 
 **Iran War Drives Oil Profits to Highest Levels in Years**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/31/world/middleeast/iran-us-military-kuwait-dron
 **Can the N.B.A. Police Itself?**\
 `Does it want to? A reality check.`\
 https://www.nytimes.com/2026/07/31/podcasts/nba-kawhi-leonard.html
-
-**How to Stop Procrastinating**\
-`Set your “future self” up for success by removing productivity obstacles.`\
-https://www.nytimes.com/2026/07/31/well/stop-procrastinating-tips.html
 
