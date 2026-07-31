@@ -1,3 +1,7 @@
+**Young Men Poured Into Ceuta Seeking Work**\
+`Several migrants said they had been motivated by social media messages claiming that the Spanish border was open, though the origin of those messages remained unclear.`\
+https://www.nytimes.com/2026/07/31/world/europe/young-men-poured-into-ceuta-seeking-work.html
+
 **Todd Blanche’s Loyalty to Trump Is Putting His Attorney General Confirmation at Risk**\
 `Todd Blanche’s approach has collided with the jury-of-two reality in the Senate that has, thus far, kept him from the prize he covets: the stability and status conferred by a Senate confirmation.`\
 https://www.nytimes.com/2026/07/31/us/politics/todd-blanche-ag-trump-immunity.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/07/31/pageoneplus/corrections-july-31-2026.html
 **Boy George Pulled From ‘Jesus Christ Superstar’ Days After Posting Pro-Israel Reggae Song**\
 `Boy George’s manager said he was pulling the singer from a role in “Jesus Christ Superstar” in “the best interests of my artist.”`\
 https://www.nytimes.com/2026/07/31/theater/boy-george-israel.html
-
-**Summer Reading Contest, Week 9: What Got Your Attention in The Times This Week?**\
-`To participate, submit your response here by Aug. 7 at 9 a.m. Eastern. This week’s winners will be announced by Aug. 19.`\
-https://www.nytimes.com/2026/07/31/learning/summer-reading-contest-week-9-what-got-your-attention-in-the-times-this-week.html
 
