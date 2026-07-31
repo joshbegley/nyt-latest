@@ -2,8 +2,8 @@
 `President Trump’s announcement came at a difficult point in his relationship with the Israeli leader over their war against Iran.`\
 https://www.nytimes.com/2026/07/31/us/politics/new-gaza-plan-hailed-by-trump-again-pressures-netanyahu.html
 
-**Charges to Be Dropped Against Ex-Olympian David Hearn Accused of Damaging Reflecting Pool**\
-`President Trump had repeatedly accused vandals of damaging the Lincoln Memorial Reflecting Pool. On Friday, prosecutors acknowledged it was “the result of flawed installation” and moved to dismiss charges against a former Olympian.`\
+**Charges Dropped Against Ex-Olympian David Hearn Accused of Damaging Reflecting Pool**\
+`A former Olympian will not face trial after federal prosecutors acknowledged that the Trump administration’s claims of vandalism were false.`\
 https://www.nytimes.com/2026/07/31/us/david-hearn-reflecting-pool-vandalism-charges.html
 
 **What Worries Democrats as the Midterms Heat Up**\

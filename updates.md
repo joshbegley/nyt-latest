@@ -1,3 +1,7 @@
+**Trump and Netanyahu May Be at Odds Again Over Gaza Plan**\
+`President Trump’s announcement came at a difficult point in his relationship with the Israeli leader over their war against Iran.`\
+https://www.nytimes.com/2026/07/31/us/politics/new-gaza-plan-hailed-by-trump-again-pressures-netanyahu.html
+
 **New Gaza Plan Hailed by Trump Again Pressures Netanyahu**\
 `President Trump’s announcement came at a difficult point in his relationship with the Israeli leader over their war against Iran.`\
 https://www.nytimes.com/2026/07/31/us/politics/new-gaza-plan-hailed-by-trump-again-pressures-netanyahu.html
