@@ -1,3 +1,11 @@
+**In Area Hit by Blaze, French Officials Failed to Enforce Wildfire Rules**\
+`Under French rules, homeowners must clear vegetation within roughly 50 yards of their houses. In the forests affected by France’s worst fire in decades, that didn’t happen.`\
+https://www.nytimes.com/2026/07/31/france-heat-firebreak-buffer-wildfire.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/europe/100000011065624/31vid-sleeping-in-ceuta-5085.html
+
 **The Fight Tearing Apart Silicon Valley**\
 `Anthropic and OpenAI are clashing with the rest of the tech industry over whether “open-source” models from China should be freely available or restricted.`\
 https://www.nytimes.com/2026/07/31/podcasts/the-daily/ai-open-source-china-silicon-valley.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/31/learning/word-of-the-day-skedaddle.html
 **A Defense of Ma in Laura Ingalls Wilder’s Little House Books**\
 `How I went from being Team Pa to recognizing Laura Ingalls Wilder’s less charismatic, quietly heroic and equally crazy creation, Caroline Ingalls.`\
 https://www.nytimes.com/2026/07/31/books/review/little-house-on-the-prairie-celebrating-ma.html
-
-**Plug-In Solar Panels Are Starting to Sprout in U.S. Backyards**\
-`Ten U.S. states have legalized systems that can be plugged into standard wall outlets. The technology typically does not require permits or electricians.`\
-https://www.nytimes.com/2026/07/31/business/energy-environment/plug-in-balcony-solar.html
-
-**To Save Japan’s Heritage Homes, People Are Shipping Them Across the World**\
-`Millions of abandoned kominkas are scattered across Japan. Now, teams of enthusiasts are dismantling and rebuilding them overseas.`\
-https://www.nytimes.com/2026/07/31/realestate/japan-heritage-homes-kominka-preservation.html
 
