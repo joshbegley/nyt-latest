@@ -50,8 +50,8 @@ https://www.nytimes.com/video/dining/100000011065107/toasted-coconut-rice-salad.
 `In standing in the way of Todd Blanche, President Trump’s choice for attorney general, a liberated Senator John Cornyn is wielding his leverage.`\
 https://www.nytimes.com/2026/07/30/us/politics/cornyn-trump-blanche.html
 
-**Trump Claims Peace Board Has Plan for Gaza Disarmament**\
-`There was no immediate comment from Hamas or Israel, and officials gave few details on the plan.`\
+**Trump Says Peace Board Has Plan for Gaza Disarmament**\
+`There was no immediate comment from Hamas or Israel, though the Board of Peace said Hamas had agreed to a “road map” to give up its weapons.`\
 https://www.nytimes.com/2026/07/30/us/politics/trump-gaza-peace-board-hamas.html
 
 **Mamdani Leaves Door Open to Paying Reparations to Black New Yorkers**\
