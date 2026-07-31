@@ -1,3 +1,7 @@
+**What Is the Board of Peace? The Trump-Backed Group, Explained.**\
+`President Trump created the international organization, aimed at resolving the long-running war in Gaza and other conflicts.`\
+https://www.nytimes.com/2026/07/30/us/politics/what-is-the-board-of-peace.html
+
 **Nimbu Pani (Limeade)**\
 `Funky, salty and exceedingly sour, nimbu pani is a cool reprieve from the sweltering summer days in Lahore and across most parts of South Asia.`\
 https://www.nytimes.com/video/dining/100000011065141/nimbu-pani-limeade.html
