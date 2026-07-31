@@ -1,3 +1,7 @@
+**What a Hedge Fund’s Implosion Says About the A.I. Trade**\
+`Situational Awareness caught the attention of Wall Street with its highly leveraged trades. It nearly collapsed amid a wave of market volatility.`\
+https://www.nytimes.com/2026/07/31/business/dealbook/situational-awareness-ai-hedge-fund.html
+
 **In the Surf**\
 `We examine the brain injuries in the Coast Guard.`\
 https://www.nytimes.com/2026/07/31/briefing/in-the-surf.html
