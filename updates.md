@@ -1,3 +1,11 @@
+**Far-right politicians seize on Ceuta**\
+`Several migrants who crossed into Ceuta attributed their arrival to lax Moroccan border protocols. But Europe’s anti-immigrant blamed Spain’s migrant-friendly policies.`\
+https://www.nytimes.com/2026/07/31/world/europe/ceuta-europe-far-right-backlash.html
+
+**Missteps Mount in Justice Dept.’s Case Against Minnesota Anti-ICE Protesters**\
+`The problems plaguing the case have not only hurt the government’s chances, lawyers say, but have also undermined the bonds of trust that prosecutors have traditionally enjoyed in court.`\
+https://www.nytimes.com/2026/07/31/us/politics/minnesota-ice-immigration-protests-justice-department-lemon-fort.html
+
 **G.O.P. Kills Bid to Expand I.V.F. Access in the Military**\
 `In a notable shift, Republican senators voted unanimously against a proposal to expand the military’s coverage of fertility treatments.`\
 https://www.nytimes.com/2026/07/31/us/politics/gop-ivf-military.html
