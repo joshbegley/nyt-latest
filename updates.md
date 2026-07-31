@@ -1,3 +1,15 @@
+**Flashback: Your Weekly History Quiz, July 1, 2026**\
+`Can you sort 8 historical events?`\
+https://www.nytimes.com/interactive/2026/07/31/upshot/flashback.html
+
+**Chaos Continues in Ceuta**\
+`People were both leaving and arriving in Ceuta on Friday, a day after tens of thousands of people entered the Spanish territory in North Africa, according to official estimates.`\
+https://www.nytimes.com/video/world/europe/100000011065605/ceuta-spain-morocco-border-migrants.html
+
+**What’s Next for Condé Nast**\
+`A chat with “Empire of the Elite” author, Michael Grynbaum, on the media conglomerate’s hazy future.`\
+https://www.nytimes.com/2026/07/31/style/conde-nast.html
+
 **Where to Eat, Sleep and Shop in Melides, Portugal**\
 `Eighty miles south of Lisbon lies Melides, which has retained its small-town charm and stunning natural beauty even as it’s grown more fashionable.`\
 https://www.nytimes.com/2026/07/31/t-magazine/melides-portugal-alentejo-coast-hotels-restaurants.html

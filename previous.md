@@ -1,3 +1,15 @@
+**Flashback: Your Weekly History Quiz, July 1, 2026**\
+`Can you sort 8 historical events?`\
+https://www.nytimes.com/interactive/2026/07/31/upshot/flashback.html
+
+**Chaos Continues in Ceuta**\
+`People were both leaving and arriving in Ceuta on Friday, a day after tens of thousands of people entered the Spanish territory in North Africa, according to official estimates.`\
+https://www.nytimes.com/video/world/europe/100000011065605/ceuta-spain-morocco-border-migrants.html
+
+**What’s Next for Condé Nast**\
+`A chat with “Empire of the Elite” author, Michael Grynbaum, on the media conglomerate’s hazy future.`\
+https://www.nytimes.com/2026/07/31/style/conde-nast.html
+
 **Where to Eat, Sleep and Shop in Melides, Portugal**\
 `Eighty miles south of Lisbon lies Melides, which has retained its small-town charm and stunning natural beauty even as it’s grown more fashionable.`\
 https://www.nytimes.com/2026/07/31/t-magazine/melides-portugal-alentejo-coast-hotels-restaurants.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/31/podcasts/nba-kawhi-leonard.html
 **How to Stop Procrastinating**\
 `Set your “future self” up for success by removing productivity obstacles.`\
 https://www.nytimes.com/2026/07/31/well/stop-procrastinating-tips.html
-
-**Chipotle emprende una expansión audaz: vender burritos en México**\
-`La cadena estadounidense de comida rápida debutó en Monterrey con el desafío de convencer a los clientes de comprar una versión extranjera de la gastronomía nacional.`\
-https://www.nytimes.com/es/2026/07/31/espanol/america-latina/chipotle-mexico-monterrey.html
-
-**Five Takeaways From the Times Investigation Into Larry Ellison’s A.I. Gamble**\
-`The billionaire’s company took on ominous loads of debt to build data centers around the world. The implications go far beyond Oracle.`\
-https://www.nytimes.com/2026/07/31/magazine/takeaways-larry-ellison-oracle-ai.html
-
-**Vote for Your Favorite $1 Million Home in Italy**\
-`Forming the heel of Italy’s “boot,” the southern Apulia region offers historic homes with architectural delicacies and wide-open spaces.`\
-https://www.nytimes.com/2026/07/31/realestate/vote-for-your-favorite-1-million-home-in-italy.html
 
