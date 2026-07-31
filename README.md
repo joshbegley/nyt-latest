@@ -1,3 +1,11 @@
+**Far-right politicians seize on Ceuta**\
+`Several migrants who crossed into Ceuta attributed their arrival to lax Moroccan border protocols. But Europe’s anti-immigrant blamed Spain’s migrant-friendly policies.`\
+https://www.nytimes.com/2026/07/31/world/europe/ceuta-europe-far-right-backlash.html
+
+**Missteps Mount in Justice Dept.’s Case Against Minnesota Anti-ICE Protesters**\
+`The problems plaguing the case have not only hurt the government’s chances, lawyers say, but have also undermined the bonds of trust that prosecutors have traditionally enjoyed in court.`\
+https://www.nytimes.com/2026/07/31/us/politics/minnesota-ice-immigration-protests-justice-department-lemon-fort.html
+
 **G.O.P. Kills Bid to Expand I.V.F. Access in the Military**\
 `In a notable shift, Republican senators voted unanimously against a proposal to expand the military’s coverage of fertility treatments.`\
 https://www.nytimes.com/2026/07/31/us/politics/gop-ivf-military.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/31/magazine/larry-ellison-ai-oracle.html
 **Critics Say Historic Sites Are Endangered by Trump-Aligned Panel’s Plan**\
 `Proponents say the changes to the federal preservation rules are necessary, but critics argue they are alarming and would help expedite the president’s redesign of Washington.`\
 https://www.nytimes.com/2026/07/31/arts/historic-sites-trump-regulation-changes.html
-
-**Will ‘Barbie’ Get a Sequel? Warner Bros. Is Scrambling to Reach a Deal.**\
-`Three years after the $1.5 billion hit, Warner Bros. is trying to reach a deal before December, when the rights for a sequel revert to Mattel.`\
-https://www.nytimes.com/2026/07/31/business/media/barbie-sequel-warner-bros-mattel.html
-
-**In Trump’s Economy, Job Gains Go to Women. That’s Not an Entirely Good Thing.**\
-`Despite the administration’s best attempts, the diminishing status of many American jobs is driving a spike in women’s employment.`\
-https://www.nytimes.com/2026/07/31/magazine/american-women-workforce.html
 
