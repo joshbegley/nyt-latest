@@ -1,3 +1,15 @@
+**Iran Says It Targeted U.S. Military in Kuwait With Drones**\
+`The Kuwaiti military said that it had detected and destroyed multiple drones in its airspace since dawn. A U.S. Defense Department official said there had been no major impact on its military bases in the region.`\
+https://www.nytimes.com/2026/07/31/world/middleeast/iran-us-military-kuwait-drone-attack.html
+
+**5 New Movies Our Critics Are Talking About This Week**\
+`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
+https://www.nytimes.com/2026/07/31/movies/new-movies-this-week-critics.html
+
+**Critics Say Historic Sites Are Endangered by Trump-Aligned Panel’s Plan**\
+`Proponents say the changes to the federal preservation rules are necessary, but critics argue they are alarming and would help expedite the president’s redesign of Washington.`\
+https://www.nytimes.com/2026/07/31/arts/historic-sites-trump-regulation-changes.html
+
 **Trump’s Announcement of Gaza Deal Raises Many Unanswered Questions**\
 `Hamas and Israel have long objected to conditions in the Board of Peace’s deal, raising concerns about their eagerness to carry out its clauses.`\
 https://www.nytimes.com/2026/07/31/world/middleeast/trump-gaza-hamas-deal-disarm.html

@@ -107,7 +107,7 @@ https://www.nytimes.com/2026/07/31/crosswords/strands-sidekick-881.html
 https://www.nytimes.com/2026/07/31/crosswords/connections-companion-1147.html
 
 **Iran Says It Targeted U.S. Military in Kuwait With Drones**\
-`The Kuwaiti military said that it had detected and destroyed multiple drones in its airspace since dawn. The U.S. military did not immediately report any attacks.`\
+`The Kuwaiti military said that it had detected and destroyed multiple drones in its airspace since dawn. A U.S. Defense Department official said there had been no major impact on its military bases in the region.`\
 https://www.nytimes.com/2026/07/31/world/middleeast/iran-us-military-kuwait-drone-attack.html
 
 **Can the N.B.A. Police Itself?**\
@@ -132,7 +132,7 @@ https://www.nytimes.com/2026/07/31/realestate/vote-for-your-favorite-1-million-h
 
 **5 New Movies Our Critics Are Talking About This Week**\
 `Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
-https://www.nytimes.com/2026/07/31/movies/5-new-movies-our-critics-are-talking-about-this-week.html
+https://www.nytimes.com/2026/07/31/movies/new-movies-this-week-critics.html
 
 **The New York Times News Quiz, July 31, 2026**\
 `Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
@@ -180,7 +180,7 @@ https://www.nytimes.com/2026/07/31/magazine/larry-ellison-ai-oracle.html
 
 **Critics Say Historic Sites Are Endangered by Trump-Aligned Panel’s Plan**\
 `Proponents say the changes to the federal preservation rules are necessary, but critics argue they are alarming and would help expedite the president’s redesign of Washington.`\
-https://www.nytimes.com/2026/07/31/arts/critics-say-historic-sites-are-endangered-by-trump-aligned-panels-plan.html
+https://www.nytimes.com/2026/07/31/arts/historic-sites-trump-regulation-changes.html
 
 **Will ‘Barbie’ Get a Sequel? Warner Bros. Is Scrambling to Reach a Deal.**\
 `Three years after the $1.5 billion hit, Warner Bros. is trying to reach a deal before December, when the rights for a sequel revert to Mattel.`\
