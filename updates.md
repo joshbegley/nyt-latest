@@ -1,3 +1,11 @@
+**Trump Backs Away From Deal to Let Ukraine Build Patriot Missiles**\
+`The president of Ukraine had warned that the country was running out of Patriot interceptors, the most reliable weapon it has to shoot down Russian ballistic missiles.`\
+https://www.nytimes.com/2026/07/31/us/politics/trump-ukraine-patriot-missiles.html
+
+**Missing Australian Hiker Found Dead on Wyoming Trail**\
+`The man had been traveling the Continental Divide Trail, which goes through five states and is described by a hiking group as one of the “most challenging landscapes in North America.”`\
+https://www.nytimes.com/2026/07/31/us/wyoming-continental-divide-trail-hiker-dead.html
+
 **Trump and Netanyahu May Be at Odds Again Over Gaza Plan**\
 `President Trump’s announcement came at a difficult point in his relationship with the Israeli leader over their war against Iran.`\
 https://www.nytimes.com/2026/07/31/us/politics/trump-hamas-gaza-israel-netanyahu.html
