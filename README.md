@@ -1,3 +1,7 @@
+**State Dept. to Release 250,000 More Trump Passports With His Portrait**\
+`An additional 250,000 commemorative passports, featuring a portrait of President Trump and intended to honor the nation’s 250th anniversary, will be made available at in-person events.`\
+https://www.nytimes.com/2026/07/31/travel/trump-passports-usa-250th-anniversary.html
+
 **John Esposito, Who Challenged Negative Views of Muslims, Dies at 86**\
 `Starting out in the 1970s as a rare American expert on political Islam, he became a prolific scholar and a prominent public intellectual.`\
 https://www.nytimes.com/2026/07/31/books/john-esposito-dead.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/31/world/europe/iran-spy-uk-air-base-cyprus-sult
 **BP Puts Its North Sea Drilling Business Up for Sale**\
 `The plans are part of the energy giant’s efforts to streamline operations, but BP has deep roots in the region.`\
 https://www.nytimes.com/2026/07/31/business/bp-north-sea.html
-
-**Inflation Worries Prompted Fed Officials to Dissent on Holding Rates Steady**\
-`Internal divisions over whether to raise interest rates intensified at Kevin Warsh’s second meeting as chairman of the Federal Reserve.`\
-https://www.nytimes.com/2026/07/31/business/economy/inflation-fed-dissent-interest-rates.html
 
