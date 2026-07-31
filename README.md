@@ -1,3 +1,11 @@
+**Where to Eat, Sleep and Shop in Melides, Portugal**\
+`Eighty miles south of Lisbon lies Melides, which has retained its small-town charm and stunning natural beauty even as it’s grown more fashionable.`\
+https://www.nytimes.com/2026/07/31/t-magazine/melides-portugal-alentejo-coast-hotels-restaurants.html
+
+**Arqueólogos descubren cientos de glifos antiguos en la Amazonía**\
+`Las estructuras geométricas de tierra, talladas en el suelo con terraplenes y zanjas, tienen en algunos casos más de 2500 años de antigüedad, dijeron los investigadores.`\
+https://www.nytimes.com/es/2026/07/31/espanol/mundo/amazonia-arqueologia-glifos.html
+
 **Who is Ahead in Florida's 22nd Congressional District?**\
 `Track the latest polls in Florida's 22nd Congressional District.`\
 https://www.nytimes.com/interactive/polls/florida-us-house-22-polls-2026.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/31/magazine/takeaways-larry-ellison-oracle-ai.ht
 **Vote for Your Favorite $1 Million Home in Italy**\
 `Forming the heel of Italy’s “boot,” the southern Apulia region offers historic homes with architectural delicacies and wide-open spaces.`\
 https://www.nytimes.com/2026/07/31/realestate/vote-for-your-favorite-1-million-home-in-italy.html
-
-**5 New Movies Our Critics Are Talking About This Week**\
-`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
-https://www.nytimes.com/2026/07/31/movies/new-movies-this-week-critics.html
-
-**The New York Times News Quiz, July 31, 2026**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://www.nytimes.com/interactive/2026/07/31/briefing/news-quiz-iran-war-europe-wildfires.html
 

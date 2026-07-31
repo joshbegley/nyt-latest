@@ -1,3 +1,19 @@
+**Who is Ahead in Florida's 22nd Congressional District?**\
+`Track the latest polls in Florida's 22nd Congressional District.`\
+https://www.nytimes.com/interactive/polls/florida-us-house-22-polls-2026.html
+
+**Who is Ahead in Florida's 8th Congressional District?**\
+`Track the latest polls in Florida's 8th Congressional District.`\
+https://www.nytimes.com/interactive/polls/florida-us-house-8-polls-2026.html
+
+**Who is Ahead in the Wyoming Governor's Race? Latest 2026 Election Polls**\
+`Track the latest polls in the Wyoming governor election.`\
+https://www.nytimes.com/interactive/polls/wyoming-governor-election-polls-2026.html
+
+**Far-right politicians seize on Ceuta**\
+`Several migrants who crossed into Ceuta attributed their arrival to lax Moroccan border protocols. But Europe’s anti-immigrant politicians blamed Spain’s migrant-friendly policies.`\
+https://www.nytimes.com/2026/07/31/world/europe/ceuta-europe-far-right-backlash.html
+
 **Companies Rush to Close Daring Deals Under Trump**\
 `Companies are seizing on what many say is perhaps the most favorable regulatory environment for businesses in years.`\
 https://www.nytimes.com/2026/07/31/business/corporate-mergers-deals-trump.html
