@@ -1,3 +1,11 @@
+**Trump Blames Minnesota, Not Iran, for Cyberattack, Despite Initial Investigation**\
+`President Trump claimed without evidence that Minnesota’s Democratic government was “behind” a cyberattack on the state’s own water systems. Investigators believe Iran is likely responsible.`\
+https://www.nytimes.com/2026/07/31/us/politics/trump-minnesota-iran-cyberattack-walz.html
+
+**La UNAM anula miles de exámenes de admisión por posibles trampas**\
+`La Universidad Nacional Autónoma de México está investigando el caso después de que los expertos descubrieron que hasta la mitad de las pruebas de ingreso podrían haber implicado trampas, incluido el uso de IA.`\
+https://www.nytimes.com/es/2026/07/31/espanol/america-latina/unam-examen-admision-mexico.html
+
 **What Caused the Surge of Migrants From Morocco Into Ceuta?**\
 `Speculation has focused on lax Moroccan policing, attractive Spanish immigration policies and misinformation from human traffickers. In reality, experts said, it’s too early to know.`\
 https://www.nytimes.com/2026/07/31/world/europe/migrants-surge-morocco-ceuta-spain.html
