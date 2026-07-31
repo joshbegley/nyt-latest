@@ -1,3 +1,7 @@
+**Trump’s Announcement of Gaza Deal Raises Many Unanswered Questions**\
+`Hamas and Israel have long objected to conditions in the Board of Peace’s deal, raising concerns about their eagerness to carry out its clauses.`\
+https://www.nytimes.com/2026/07/31/world/middleeast/trump-gaza-hamas-deal-disarm.html
+
 **A Doctor Weighs In on the Health Tracking Craze**\
 `If a fitness enthusiast like Joe Rogan wants to scan his body ad nauseam to track his wellness, that’s fine, says Dr. Rachael Bedard on “The Opinions.” But using those scans to look for medical abnormalities can lead to costly, potentially harmful follow-up tests.`\
 https://www.nytimes.com/video/opinion/100000011049054/a-doctor-weighs-in-on-the-health-tracking-craze.html
