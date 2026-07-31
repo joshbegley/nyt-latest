@@ -1,3 +1,15 @@
+**Today, In Short**\
+`Diet candy. Spider-Man. And frozen pizzas.`\
+https://www.nytimes.com/2026/07/31/briefing/today-in-short.html
+
+**“The Best Cucumber Salad I’ve Ever Made”**\
+`And more of the week’s most popular recipes.`\
+https://www.nytimes.com/2026/07/31/dining/the-best-cucumber-salad-ive-ever-made.html
+
+**‘Project Hail Mary’ and More Science Fiction Movies to Stream Now**\
+`From the Ryan Gosling hit “Project Hail Mary” to the psychosexual alien rom-com “Touch Me,” explore this month’s eclectic picks.`\
+https://www.nytimes.com/2026/07/31/movies/science-fiction-movies-streaming.html
+
 **Far-right politicians seize on Ceuta**\
 `Several migrants who crossed into Ceuta attributed their arrival to lax Moroccan border protocols. But Europe’s anti-immigrant blamed Spain’s migrant-friendly policies.`\
 https://www.nytimes.com/2026/07/31/world/europe/ceuta-europe-far-right-backlash.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/31/style/errands-should-be-the-most-boring-show-
 **How Trump Has Changed, With Maggie Haberman**\
 `The New York Times correspondent says 70 percent of the president’s mind is dedicated to White House renovations.`\
 https://www.nytimes.com/2026/07/31/opinion/ezra-klein-podcast-maggie-haberman.html
-
-**The Perfect BLT Doesn’t Need to Be Perfect**\
-`It’s the sandwich of the summer every summer, but our writer discovers this American classic is also a pleasure for all seasons.`\
-https://www.nytimes.com/2026/07/31/dining/perfect-blt.html
-
-**Larry Ellison Bet It All on the A.I. Boom. Will He Be the Face of the A.I. Bubble?**\
-`Inside the 81-year-old billionaire’s risky, debt-fueled scramble to transform his data empire into an A.I. juggernaut.`\
-https://www.nytimes.com/2026/07/31/magazine/larry-ellison-ai-oracle.html
-
-**Critics Say Historic Sites Are Endangered by Trump-Aligned Panel’s Plan**\
-`Proponents say the changes to the federal preservation rules are necessary, but critics argue they are alarming and would help expedite the president’s redesign of Washington.`\
-https://www.nytimes.com/2026/07/31/arts/historic-sites-trump-regulation-changes.html
 

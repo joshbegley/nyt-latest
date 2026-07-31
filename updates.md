@@ -1,3 +1,15 @@
+**Today, In Short**\
+`Diet candy. Spider-Man. And frozen pizzas.`\
+https://www.nytimes.com/2026/07/31/briefing/today-in-short.html
+
+**“The Best Cucumber Salad I’ve Ever Made”**\
+`And more of the week’s most popular recipes.`\
+https://www.nytimes.com/2026/07/31/dining/the-best-cucumber-salad-ive-ever-made.html
+
+**‘Project Hail Mary’ and More Science Fiction Movies to Stream Now**\
+`From the Ryan Gosling hit “Project Hail Mary” to the psychosexual alien rom-com “Touch Me,” explore this month’s eclectic picks.`\
+https://www.nytimes.com/2026/07/31/movies/science-fiction-movies-streaming.html
+
 **Far-right politicians seize on Ceuta**\
 `Several migrants who crossed into Ceuta attributed their arrival to lax Moroccan border protocols. But Europe’s anti-immigrant blamed Spain’s migrant-friendly policies.`\
 https://www.nytimes.com/2026/07/31/world/europe/ceuta-europe-far-right-backlash.html
