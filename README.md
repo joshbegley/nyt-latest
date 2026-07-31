@@ -1,3 +1,11 @@
+**Trump to Appeal Judge’s Ruling Denouncing I.R.S. Lawsuit as Exercise in Self-Dealing**\
+`It was the latest sign that the president was doubling down on his fight for aspects of a deal that brings him vast benefits, even though they have jeopardized the confirmation of his pick for attorney general.`\
+https://www.nytimes.com/2026/07/31/us/politics/trump-appeal-irs-lawsuit-ruling.html
+
+**Trump Escalates Feud With Senate Over Blanche**\
+`The president’s comments threw the confirmation of Todd Blanche, his pick to be attorney general, further into doubt.`\
+https://www.nytimes.com/2026/07/31/us/trump-escalates-feud-with-senate-over-blanche.html
+
 **What Caused the Surge in Ceuta?**\
 `Speculation has focused on lax Moroccan policing, attractive Spanish immigration policies and misinformation from human traffickers. In reality, experts said, it’s too early to know.`\
 https://www.nytimes.com/2026/07/31/world/europe/what-caused-the-surge-in-ceuta.html
@@ -175,18 +183,10 @@ https://www.nytimes.com/2026/07/31/movies/science-fiction-movies-streaming.html
 https://www.nytimes.com/2026/07/31/world/europe/ceuta-europe-far-right-backlash.html
 
 **La crisis de Ceuta, en vivo: la mayoría de los migrantes que llegaron a España han vuelto a Marruecos**\
-`De las 60.000 personas que llegaron a Ceuta, unas 37.000 volvieron en un día. Pero la repentina afluencia puso en jaque al gobierno español. Al menos 34 personas fallecieron.`\
+`De las 60.000 personas que llegaron a Ceuta, unas 48.000 habían vuelto a casa al cabo de un día. Pero la afluencia repentina puso en jaque al gobierno español.`\
 https://www.nytimes.com/live/2026/07/31/espanol/espana-ceuta-inmigrantes-crisis
 
 **Missteps Mount in Justice Dept.’s Case Against Minnesota Anti-ICE Protesters**\
 `The problems plaguing the case have not only hurt the government’s chances, lawyers say, but have also undermined the bonds of trust that prosecutors have traditionally enjoyed in court.`\
 https://www.nytimes.com/2026/07/31/us/politics/minnesota-ice-immigration-protests-justice-department-lemon-fort.html
-
-**G.O.P. Kills Bid to Expand I.V.F. Access in the Military**\
-`In a notable shift, Republican senators voted unanimously against a proposal to expand the military’s coverage of fertility treatments.`\
-https://www.nytimes.com/2026/07/31/us/politics/gop-ivf-military.html
-
-**Ariana Grande ‘Petal’ Album Review: The Pitfalls of Fame**\
-`The singer’s new album, “Petal,” finds her dissatisfied with fame, but offers few details on exactly why.`\
-https://www.nytimes.com/2026/07/31/arts/music/ariana-grande-petal-review.html
 
