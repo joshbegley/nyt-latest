@@ -1,3 +1,7 @@
+**Indian Democracy Isn’t Dead After All**\
+`This summer’s youth-led revolt punctured Modi’s aura and showed that Indian democracy may still be able to renew itself from below.`\
+https://www.nytimes.com/2026/07/31/opinion/india-protests-modi-democracy.html
+
 **10 Climbers, Including Nims Purja, Missing After Avalanche on Broad Peak in Pakistan**\
 `Nirmal Purja, an influential mountaineer, was part of a group struck by an avalanche on Broad Peak, an alpine organization said. A search effort was being mobilized.`\
 https://www.nytimes.com/2026/07/31/world/asia/nirmal-purja-nims-avalanche-broad-peak-pakistan.html

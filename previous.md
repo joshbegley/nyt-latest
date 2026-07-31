@@ -1,3 +1,7 @@
+**Indian Democracy Isn’t Dead After All**\
+`This summer’s youth-led revolt punctured Modi’s aura and showed that Indian democracy may still be able to renew itself from below.`\
+https://www.nytimes.com/2026/07/31/opinion/india-protests-modi-democracy.html
+
 **10 Climbers, Including Nims Purja, Missing After Avalanche on Broad Peak in Pakistan**\
 `Nirmal Purja, an influential mountaineer, was part of a group struck by an avalanche on Broad Peak, an alpine organization said. A search effort was being mobilized.`\
 https://www.nytimes.com/2026/07/31/world/asia/nirmal-purja-nims-avalanche-broad-peak-pakistan.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/30/us/tsa-alabama-civil-war-cannonballs.html
 **Why an A.I. Bubble Might Not Be a Bad Thing**\
 `As fears spread over a possible artificial intelligence bubble, some tech investors say: Bring it on.`\
 https://www.nytimes.com/2026/07/30/technology/ai-bubble-venture-capital.html
-
-**Execution Nation**\
-`The United States is an outlier in the West. We look at why the country clings to the death penalty.`\
-https://www.nytimes.com/2026/07/30/world/us-death-penalty-iran-saudi-world-cup.html
 
