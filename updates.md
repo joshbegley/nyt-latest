@@ -1,3 +1,11 @@
+**What to Know About Ceuta**\
+`The peninsula on Morocco’s northern coast that Spain has governed for centuries has been a frequent site of mass migrant crossings and political tensions.`\
+https://www.nytimes.com/2026/07/30/world/europe/what-to-know-about-ceuta.html
+
+**Fauci, Assailed by Republicans, Took the Fifth. Here’s What We Know.**\
+`In a three-hour Senate hearing this week, Dr. Fauci invoked his constitutional right to stay silent, leaving people confused about many of the issues raised.`\
+https://www.nytimes.com/2026/07/30/health/fauci-allegations-covid-origins.html
+
 **Big Tech’s A.I. Spending Keeps Rising. So Do the Jitters.**\
 `Amazon joined a procession of tech giants that ramped up their spending on artificial intelligence, as its capital expenditures soared 69 percent. Concerns over the industry’s spending are mounting.`\
 https://www.nytimes.com/2026/07/30/technology/amazon-google-ai-data-center-spending.html
