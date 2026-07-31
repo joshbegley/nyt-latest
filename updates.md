@@ -1,3 +1,7 @@
+**Jordan Klepper Revisits His ‘Fauci Fever’**\
+`“The Daily Show” host defended the doctor’s diary entries about his Covid-era fame: “I literally saw Fauci more than I saw my parents.”`\
+https://www.nytimes.com/2026/07/31/arts/television/jordan-klepper-anthony-fauci-covid.html
+
 **A Whale Gave Birth. A Drone Was There to Capture the Spectacle.**\
 `A wildlife photographer noticed a humpback whale displaying unusual behavior off Australia’s east coast, then something extraordinary happened.`\
 https://www.nytimes.com/2026/07/31/world/australia/humpback-whale-birth-video-drone.html
