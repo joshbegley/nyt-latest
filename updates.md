@@ -1,3 +1,7 @@
+**Man Accused of Spying for Iran at British Air Base in Cyprus**\
+`Rashad Sultanov, a dual British and Azerbaijani citizen, was arrested after accusations he surveilled the military installation, a hub for Mideast operations, and shared the details with the Revolutionary Guards.`\
+https://www.nytimes.com/2026/07/31/world/europe/iran-spy-uk-air-base-cyprus-sultanov.html
+
 **BP Puts Its North Sea Drilling Business Up for Sale**\
 `The plans are part of the energy giant’s efforts to streamline operations, but BP has deep roots in the region.`\
 https://www.nytimes.com/2026/07/31/business/bp-north-sea.html

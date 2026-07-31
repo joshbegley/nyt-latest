@@ -1,3 +1,7 @@
+**Man Accused of Spying for Iran at British Air Base in Cyprus**\
+`Rashad Sultanov, a dual British and Azerbaijani citizen, was arrested after accusations he surveilled the military installation, a hub for Mideast operations, and shared the details with the Revolutionary Guards.`\
+https://www.nytimes.com/2026/07/31/world/europe/iran-spy-uk-air-base-cyprus-sultanov.html
+
 **BP Puts Its North Sea Drilling Business Up for Sale**\
 `The plans are part of the energy giant’s efforts to streamline operations, but BP has deep roots in the region.`\
 https://www.nytimes.com/2026/07/31/business/bp-north-sea.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/31/nyregion/big-losses-for-small-businesses-in-t
 **Exploring Helsinki Through the Dreamy Architecture of Eliel Saarinen**\
 `A writer goes in search of the architect Eliel Saarinen, whose Art Nouveau-inspired designs helped shape early-1900s Finland as well as midcentury America.`\
 https://www.nytimes.com/2026/07/31/travel/helsinki-architecture-eliel-saarinen-art-nouveau.html
-
-**A Stab Wound, Then a Real Emergency**\
-`The man was stoic, but stitching up his injury made the pain even worse.`\
-https://www.nytimes.com/2026/07/31/well/wound-swelling-compartment-syndome.html
 
