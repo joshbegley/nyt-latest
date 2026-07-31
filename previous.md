@@ -1,3 +1,7 @@
+**Can the N.B.A. Police Itself?**\
+`Does it want to? A reality check.`\
+https://www.nytimes.com/2026/07/31/podcasts/nba-kawhi-leonard.html
+
 **How to Stop Procrastinating**\
 `Set your “future self” up for success by removing productivity obstacles.`\
 https://www.nytimes.com/2026/07/31/well/stop-procrastinating-tips.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/31/opinion/face-self-reflection-technology-video
 **Can Key West Still Be a Home for Writers?**\
 `Ernest Hemingway, Judy Blume and other literary luminaries have long called the island home. As housing costs increase, many locals are taking steps to preserve and perpetuate this legacy.`\
 https://www.nytimes.com/2026/07/31/realestate/key-west-florida-literature-hemingway-housing.html
-
-**At Least 34 Dead From Coal Mine Blast in Pakistan**\
-`Rescuers were searching for missing bodies from the accident in one of the country’s mining hubs, where methane gas explosions and mine collapses are frequent.`\
-https://www.nytimes.com/2026/07/31/world/asia/pakistan-coal-mine-explosion.html
 

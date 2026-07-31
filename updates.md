@@ -1,3 +1,7 @@
+**Can the N.B.A. Police Itself?**\
+`Does it want to? A reality check.`\
+https://www.nytimes.com/2026/07/31/podcasts/nba-kawhi-leonard.html
+
 **How to Stop Procrastinating**\
 `Set your “future self” up for success by removing productivity obstacles.`\
 https://www.nytimes.com/2026/07/31/well/stop-procrastinating-tips.html
