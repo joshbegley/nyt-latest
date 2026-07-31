@@ -1,3 +1,7 @@
+**What Caused the Surge of Migrants From Morocco Into Ceuta?**\
+`Speculation has focused on lax Moroccan policing, attractive Spanish immigration policies and misinformation from human traffickers. In reality, experts said, it’s too early to know.`\
+https://www.nytimes.com/2026/07/31/world/europe/migrants-surge-morocco-ceuta-spain.html
+
 **Trump to Appeal Judge’s Ruling Denouncing I.R.S. Lawsuit as Exercise in Self-Dealing**\
 `It was the latest sign that the president was doubling down on his fight for aspects of a deal that brings him vast benefits, even though they have jeopardized the confirmation of his pick for attorney general.`\
 https://www.nytimes.com/2026/07/31/us/politics/trump-appeal-irs-lawsuit-ruling.html

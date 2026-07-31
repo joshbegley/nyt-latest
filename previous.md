@@ -6,9 +6,9 @@ https://www.nytimes.com/2026/07/31/us/politics/trump-appeal-irs-lawsuit-ruling.h
 `The president’s comments threw the confirmation of Todd Blanche, his pick to be attorney general, further into doubt.`\
 https://www.nytimes.com/2026/07/31/us/trump-escalates-feud-with-senate-over-blanche.html
 
-**What Caused the Surge in Ceuta?**\
+**What Caused the Surge of Migrants From Morocco Into Ceuta?**\
 `Speculation has focused on lax Moroccan policing, attractive Spanish immigration policies and misinformation from human traffickers. In reality, experts said, it’s too early to know.`\
-https://www.nytimes.com/2026/07/31/world/europe/what-caused-the-surge-in-ceuta.html
+https://www.nytimes.com/2026/07/31/world/europe/migrants-surge-morocco-ceuta-spain.html
 
 **Driver Fatally Shoots Kidnapped Victim in Trunk in Chino Hills**\
 `An abduction from a home in Southern California led to a short police chase. The driver fired at a man in the trunk before being gunned down.`\
