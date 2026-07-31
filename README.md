@@ -1,3 +1,7 @@
+**U.S. Raises Threat of Steep Water Cuts in Lower Colorado River Basin**\
+`A federal plan would impose drastic water cuts on Arizona, California and Nevada in dry years over the next decade. A legal battle could follow.`\
+https://www.nytimes.com/2026/07/31/climate/colorado-river-basin-water-cuts.html
+
 **Today, In Short**\
 `Diet candy. Spider-Man. And frozen pizzas.`\
 https://www.nytimes.com/2026/07/31/briefing/today-in-short.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/07/31/magazine/paxton-costner-hodgman-q
 **There Are So Many Reasons to Reject Todd Blanche. Here’s Another One.**\
 `Don’t forget this key reason the Senate should reject him.`\
 https://www.nytimes.com/2026/07/31/opinion/todd-blanche-attorney-general-senate-hearing.html
-
-**We All Do Errands. Noah Blau Films Them.**\
-`Fighting a traffic ticket. Hanging a curtain. Installing an air-conditioner. With his cult-hit online series, Noah Blau has made the mundane fascinating.`\
-https://www.nytimes.com/2026/07/31/style/errands-should-be-the-most-boring-show-on-the-internet.html
 
