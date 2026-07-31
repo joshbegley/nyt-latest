@@ -1,3 +1,27 @@
+**The Fight Tearing Apart Silicon Valley**\
+`Anthropic and OpenAI are clashing with the rest of the tech industry over whether “open-source” models from China should be freely available or restricted.`\
+https://www.nytimes.com/2026/07/31/podcasts/the-daily/ai-open-source-china-silicon-valley.html
+
+**A Cyberattack on U.S. Water Systems, and the Growing Threat of Falling Space Junk**\
+`Plus, the Friday news quiz.`\
+https://www.nytimes.com/2026/07/31/podcasts/the-headlines/cyberattack-us-water-space-junk-spain-migrants-fifa.html
+
+**Today’s Wordle Hints for August 1, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Aug. 1, 2026.`\
+https://www.nytimes.com/2026/07/31/crosswords/wordle-review-1869.html
+
+**NYT Strands Hints for August 1, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Aug. 1, 2026.`\
+https://www.nytimes.com/2026/07/31/crosswords/strands-sidekick-881.html
+
+**NYT Connections Answers for August 1, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Aug. 1, 2026.`\
+https://www.nytimes.com/2026/07/31/crosswords/connections-companion-1147.html
+
+**There Are So Many Reasons to Reject Todd Blanche. Here’s Another One.**\
+`Don’t forget this key reason the Senate should reject him.`\
+https://www.nytimes.com/2026/07/31/opinion/todd-blanche-attorney-general-senate-hearing.html
+
 **Iran Says It Targeted U.S. Military in Kuwait With Drones**\
 `The Iranian army said it had targeted U.S. assets at a Kuwaiti air base. There were no immediate reports of any attacks from Kuwait or from the U.S. military.`\
 https://www.nytimes.com/2026/07/31/world/middleeast/iran-says-it-targeted-us-military-in-kuwait-with-drones.html
