@@ -110,7 +110,7 @@ https://www.nytimes.com/video/embedded/us/politics/100000011066256/31vid-trump-i
 `Christina Hart, 29, started posting reviews on social media in May. Less than two months later, a stomach illness forced her to stop.`\
 https://www.nytimes.com/2026/07/31/us/cyclospora-cyclosporiasis-nashville.html
 
-**UNAM anula miles de exámenes de admisión por posibles trampas**\
+**La UNAM anula miles de exámenes de admisión por posibles trampas**\
 `La Universidad Nacional Autónoma de México está investigando el caso después de que los expertos descubrieron que hasta la mitad de las pruebas de ingreso podrían haber implicado trampas, incluido el uso de IA.`\
 https://www.nytimes.com/es/2026/07/31/espanol/america-latina/unam-examen-admision-mexico.html
 
