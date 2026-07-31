@@ -1,3 +1,19 @@
+**Coast Guard Vows to Protect Crews From Brain Injuries Caused by Rough Seas**\
+`The head of the Coast Guard said “decisive action” would be taken so the injuries would be recognized, treated and prevented.`\
+https://www.nytimes.com/2026/07/31/us/31nat-coast-guard-brain-injury-boat-waves-surfmen.html
+
+**The Best Clothing Stores in New York**\
+`summary`\
+https://www.nytimes.com/interactive/2026/07/30/style/best-clothes-stores-nyc.html
+
+**New York Sues Kalshi in Latest Bid to Regulate Prediction Markets**\
+`The suit is the latest effort by states to crack down on an industry that critics have called predatory. At least 15 states have introduced legislation this year to regulate the markets.`\
+https://www.nytimes.com/2026/07/31/nyregion/kalshi-ny-lawsuit-gambling.html
+
+**Did 75,000 Students Cheat on a College-Entrance Exam in Mexico?**\
+`The National Autonomous University of Mexico, or UNAM, has asked all students who passed a demanding entrance exam to take a new test after experts found half of all applicants may have cheated, including with A.I.`\
+https://www.nytimes.com/2026/07/31/world/americas/unam-college-entrance-exam-mexico.html
+
 **How the Michigan Primary Is Dividing Jewish Voters**\
 `U.S. support for Israel is dividing Jewish voters — and reshaping the Democratic Party — ahead of Michigan’s primary on Aug. 4. We traveled to Detroit to meet campaigners on both sides of the issue, and find out how the war in Gaza has shaped their politics, and tested their community.`\
 https://www.nytimes.com/video/us/elections/100000011063444/michigan-primary-elections-jewish-voters.html

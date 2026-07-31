@@ -1,9 +1,13 @@
+**John Esposito, Who Challenged Negative Views of Muslims, Dies at 86**\
+`Starting out in the 1970s as a rare American expert on political Islam, he became a prolific scholar and a prominent public intellectual.`\
+https://www.nytimes.com/2026/07/31/books/john-esposito-dead.html
+
 **Coast Guard Vows to Protect Crews From Brain Injuries Caused by Rough Seas**\
 `The head of the Coast Guard said “decisive action” would be taken so the injuries would be recognized, treated and prevented.`\
 https://www.nytimes.com/2026/07/31/us/31nat-coast-guard-brain-injury-boat-waves-surfmen.html
 
 **The Best Clothing Stores in New York**\
-`summary`\
+`New York is, was and always will be a shopping town. These are the stores that keep it vibrant and alive.`\
 https://www.nytimes.com/interactive/2026/07/30/style/best-clothes-stores-nyc.html
 
 **New York Sues Kalshi in Latest Bid to Regulate Prediction Markets**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/31/business/bp-north-sea.html
 **Inflation Worries Prompted Fed Officials to Dissent on Holding Rates Steady**\
 `Internal divisions over whether to raise interest rates intensified at Kevin Warsh’s second meeting as chairman of the Federal Reserve.`\
 https://www.nytimes.com/2026/07/31/business/economy/inflation-fed-dissent-interest-rates.html
-
-**The Western United States Is Facing a Weekend of Record Heat**\
-`Unusually hot temperatures, even for the depths of summer, are expected from Arizona to Montana.`\
-https://www.nytimes.com/2026/07/31/weather/california-western-us-heat.html
 
