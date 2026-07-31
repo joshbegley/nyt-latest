@@ -71,7 +71,7 @@ https://www.nytimes.com/2026/07/31/world/americas/amazon-archaeology-geoglyphs.h
 https://www.nytimes.com/video/embedded/world/europe/100000011065650/31vid-fnideq-13067.html
 
 **Trump’s Announcement of Gaza Deal Raises Many Unanswered Questions**\
-`Neither Hamas nor the Israeli government has issued an official statement acknowledging the deal, raising concerns about their eagerness to carry out its clauses.`\
+`Hamas and Israel have long objected to conditions in the Board of Peace’s deal, raising concerns about their eagerness to carry out its clauses.`\
 https://www.nytimes.com/2026/07/31/world/middleeast/trump-gaza-hamas-deal-disarm.html
 
 **Iran War Drives Oil Profits to Highest Levels in Years**\

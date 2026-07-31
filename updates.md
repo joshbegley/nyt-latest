@@ -1,3 +1,7 @@
+**A Doctor Weighs In on the Health Tracking Craze**\
+`If a fitness enthusiast like Joe Rogan wants to scan his body ad nauseam to track his wellness, that’s fine, says Dr. Rachael Bedard on “The Opinions.” But using those scans to look for medical abnormalities can lead to costly, potentially harmful follow-up tests.`\
+https://www.nytimes.com/video/opinion/100000011049054/a-doctor-weighs-in-on-the-health-tracking-craze.html
+
 **July 31, 2026**\
 `Corrections that appeared in print on Friday, July 31, 2026.`\
 https://www.nytimes.com/2026/07/31/pageoneplus/corrections-july-31-2026.html
