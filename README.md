@@ -1,3 +1,7 @@
+**What Is the Board of Peace? The Trump-Backed Group, Explained.**\
+`President Trump created the international organization, aimed at resolving the long-running war in Gaza and other conflicts.`\
+https://www.nytimes.com/2026/07/30/us/politics/what-is-the-board-of-peace.html
+
 **Nimbu Pani (Limeade)**\
 `Funky, salty and exceedingly sour, nimbu pani is a cool reprieve from the sweltering summer days in Lahore and across most parts of South Asia.`\
 https://www.nytimes.com/video/dining/100000011065141/nimbu-pani-limeade.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/07/30/opinion/gen-z-speech-patterns-language.html
 **Our 2026-27 Student Contest Calendar**\
 `Seven opportunities for teenagers to engage, experiment, reflect and create — via writing, audio, video, visual art and more.`\
 https://www.nytimes.com/2026/07/30/learning/our-2026-27-student-contest-calendar.html
-
-**A City With a Plan**\
-`Cincinnati wants to take in people fleeing climate disasters. Plus, the latest on fires in Europe.`\
-https://www.nytimes.com/2026/07/30/climate/cincinnati-climate-migrants-plan.html
 

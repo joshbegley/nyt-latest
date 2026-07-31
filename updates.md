@@ -1,3 +1,7 @@
+**Nimbu Pani (Limeade)**\
+`Funky, salty and exceedingly sour, nimbu pani is a cool reprieve from the sweltering summer days in Lahore and across most parts of South Asia.`\
+https://www.nytimes.com/video/dining/100000011065141/nimbu-pani-limeade.html
+
 **Mexico’s President Unveils Plan to Fight Seaweed That Is Choking Beaches**\
 `The seaweed — a stinky, brown algae known as sargassum — has plagued Mexico and the broader region for more than a decade, but this year’s forecast is setting records.`\
 https://www.nytimes.com/2026/07/30/world/americas/mexico-sargassum-beach-cleanup.html
