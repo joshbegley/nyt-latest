@@ -1,3 +1,7 @@
+**Charges to Be Dropped Against Ex-Olympian David Hearn Accused of Damaging Reflecting Pool**\
+`David Hearn had been charged in connection with damages to the Lincoln Memorial Reflecting Pool. On Friday, federal prosecutors said the damage was “the result of flawed installation.”`\
+https://www.nytimes.com/2026/07/31/us/david-hearn-reflecting-pool-vandalism-charges.html
+
 **What Worries Democrats as the Midterms Heat Up**\
 `There’s a lot going right for the Democrats. Here’s what could go wrong.`\
 https://www.nytimes.com/2026/07/31/us/politics/democrats-primary-elections-midterms.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/interactive/2026/07/31/upshot/flashback.html
 **Chaos Continues in Ceuta**\
 `People were both leaving and arriving in Ceuta on Friday, a day after tens of thousands of people entered the Spanish territory in North Africa, according to official estimates.`\
 https://www.nytimes.com/video/world/europe/100000011065605/ceuta-spain-morocco-border-migrants.html
-
-**What’s Next for Condé Nast**\
-`A chat with “Empire of the Elite” author, Michael Grynbaum, on the media conglomerate’s hazy future.`\
-https://www.nytimes.com/2026/07/31/style/conde-nast.html
 
 **La crisis de Ceuta, en vivo: la mayoría de los migrantes que llegaron a España han vuelto a Marruecos**\
 `De las 60.000 personas que llegaron a Ceuta, unas 48.000 habían vuelto a casa al cabo de un día. Pero la afluencia repentina puso en jaque al gobierno español.`\
