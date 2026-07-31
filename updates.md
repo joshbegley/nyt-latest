@@ -1,3 +1,15 @@
+**Who Would Octavia Spencer Be in Another Life?**\
+`What if Octavia Spencer hadn’t become an actor? She reveals the surprising career she’d choose and the TV obsessions that planted the seed.`\
+https://www.nytimes.com/video/us/100000010953626/octavia-spencer-interview-tv-shows.html
+
+**Leopold Aschenbrenner Built a Hot A.I. Hedge Fund. Then it Melted Down.**\
+`Situational Awareness, led by a 24-year-old, exploded onto the artificial intelligence scene — and then nose-dived.`\
+https://www.nytimes.com/2026/07/31/business/situational-awareness-leopold-aschenbrenner.html
+
+**Mildred Pitts Walter, Author of Books for Black Children, Dies at 103**\
+`Teaching kindergarten in South Central Los Angeles in the 1950s and ’60s, she realized that her students were not represented in the books they read. So she wrote her own.`\
+https://www.nytimes.com/2026/07/31/books/mildred-pitts-walter-dead.html
+
 **Hunter Biden Blames Cancer for Joe Biden’s Disastrous Debate**\
 `Medical experts say it is unlikely that Mr. Biden’s debate performance was affected by the cancer that was diagnosed months later.`\
 https://www.nytimes.com/2026/07/31/us/politics/hunter-biden-joe-biden-debate-cancer.html
