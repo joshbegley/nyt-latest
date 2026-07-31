@@ -1,3 +1,11 @@
+**Young Men Poured Into Ceuta Seeking Work**\
+`Several migrants said they had been motivated by social media messages claiming that the Spanish border was open, though the origin of those messages remained unclear.`\
+https://www.nytimes.com/2026/07/31/world/europe/young-men-poured-into-ceuta-seeking-work.html
+
+**Todd Blanche’s Loyalty to Trump Is Putting His Attorney General Confirmation at Risk**\
+`Todd Blanche’s approach has collided with the jury-of-two reality in the Senate that has, thus far, kept him from the prize he covets: the stability and status conferred by a Senate confirmation.`\
+https://www.nytimes.com/2026/07/31/us/politics/todd-blanche-ag-trump-immunity.html
+
 **State Dept. to Release 250,000 More Trump Passports With His Portrait**\
 `An additional 250,000 commemorative passports, featuring a portrait of President Trump and intended to honor the nation’s 250th anniversary, will be made available at in-person events.`\
 https://www.nytimes.com/2026/07/31/travel/trump-passports-usa-250th-anniversary.html

@@ -1,3 +1,11 @@
+**Young Men Poured Into Ceuta Seeking Work**\
+`Several migrants said they had been motivated by social media messages claiming that the Spanish border was open, though the origin of those messages remained unclear.`\
+https://www.nytimes.com/2026/07/31/world/europe/young-men-poured-into-ceuta-seeking-work.html
+
+**Todd Blanche’s Loyalty to Trump Is Putting His Attorney General Confirmation at Risk**\
+`Todd Blanche’s approach has collided with the jury-of-two reality in the Senate that has, thus far, kept him from the prize he covets: the stability and status conferred by a Senate confirmation.`\
+https://www.nytimes.com/2026/07/31/us/politics/todd-blanche-ag-trump-immunity.html
+
 **State Dept. to Release 250,000 More Trump Passports With His Portrait**\
 `An additional 250,000 commemorative passports, featuring a portrait of President Trump and intended to honor the nation’s 250th anniversary, will be made available at in-person events.`\
 https://www.nytimes.com/2026/07/31/travel/trump-passports-usa-250th-anniversary.html
@@ -181,16 +189,4 @@ https://www.nytimes.com/2026/07/31/pageoneplus/corrections-july-31-2026.html
 **Boy George Pulled From ‘Jesus Christ Superstar’ Days After Posting Pro-Israel Reggae Song**\
 `Boy George’s manager said he was pulling the singer from a role in “Jesus Christ Superstar” in “the best interests of my artist.”`\
 https://www.nytimes.com/2026/07/31/theater/boy-george-israel.html
-
-**Summer Reading Contest, Week 9: What Got Your Attention in The Times This Week?**\
-`To participate, submit your response here by Aug. 7 at 9 a.m. Eastern. This week’s winners will be announced by Aug. 19.`\
-https://www.nytimes.com/2026/07/31/learning/summer-reading-contest-week-9-what-got-your-attention-in-the-times-this-week.html
-
-**Man Accused of Spying for Iran at British Air Base in Cyprus**\
-`Rashad Sultanov, a dual British and Azerbaijani citizen, was arrested after accusations he surveilled the military installation, a hub for Mideast operations, and shared the details with the Revolutionary Guards.`\
-https://www.nytimes.com/2026/07/31/world/europe/iran-spy-uk-air-base-cyprus-sultanov.html
-
-**BP Puts Its North Sea Drilling Business Up for Sale**\
-`The plans are part of the energy giant’s efforts to streamline operations, but BP has deep roots in the region.`\
-https://www.nytimes.com/2026/07/31/business/bp-north-sea.html
 
