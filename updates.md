@@ -1,3 +1,11 @@
+**Mamdani Leaves Door Open to Paying Reparations to Black New Yorkers**\
+`The mayor said in recent interviews that it was important to acknowledge the city’s role in slavery but that he could not commit to payouts before his racial equity commission completes its report.`\
+https://www.nytimes.com/2026/07/30/nyregion/mamdani-reparations-slavery.html
+
+**How We Speak Has Gotten Extravagant. Literally.**\
+`We don’t speak just to say something. We speak to be heard.`\
+https://www.nytimes.com/2026/07/30/opinion/gen-z-speech-patterns-language.html
+
 **Los padres de un niño encontrado vivo en una morgue de Arizona no enfrentarán cargos**\
 `El menor de 18 meses fue encontrado inconsciente en una piscina y fue declarado muerto. Un empleado del servicio forense descubrió más tarde que estaba respirando.`\
 https://www.nytimes.com/es/2026/07/30/espanol/estados-unidos/nino-ahogado-vivo-padres.html

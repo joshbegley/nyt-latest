@@ -1,3 +1,7 @@
+**Trump Claims Peace Board Has Plan for Gaza Disarmament**\
+`There was no immediate comment from Hamas or Israel, and officials gave few details on the plan.`\
+https://www.nytimes.com/2026/07/30/us/politics/trump-gaza-peace-board-hamas.html
+
 **Mamdani Leaves Door Open to Paying Reparations to Black New Yorkers**\
 `The mayor said in recent interviews that it was important to acknowledge the city’s role in slavery but that he could not commit to payouts before his racial equity commission completes its report.`\
 https://www.nytimes.com/2026/07/30/nyregion/mamdani-reparations-slavery.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/video/dining/100000011063708/stone-fruit-caprese.html
 **Bond Investors’ Inflation Angst Rises on Fed’s Lack of Guidance**\
 `The yield on government bonds, which underpins borrowing costs from mortgages to business loans, remained elevated over concerns about the Federal Reserve’s efforts to contain inflation.`\
 https://www.nytimes.com/2026/07/30/business/federal-reserve-warsh-bonds.html
-
-**Colin Gray, Father of Teenage Shooter in Georgia, Sentenced to 15 Years in Prison**\
-`Prosecutors argued that Colin Gray bore responsibility for the 2024 shooting because he had given his son a gun and failed to act as the teen’s mental health deteriorated.`\
-https://www.nytimes.com/2026/07/30/us/colin-gray-sentencing-apalachee-school-shooting.html
 

@@ -1,3 +1,7 @@
+**Mamdani Leaves Door Open to Paying Reparations to Black New Yorkers**\
+`The mayor said in recent interviews that it was important to acknowledge the city’s role in slavery but that he could not commit to payouts before his racial equity commission completes its report.`\
+https://www.nytimes.com/2026/07/30/nyregion/mamdani-reparations-slavery.html
+
 **Los padres de un niño encontrado vivo en una morgue de Arizona no enfrentarán cargos**\
 `El menor de 18 meses fue encontrado inconsciente en una piscina y fue declarado muerto. Un empleado del servicio forense descubrió más tarde que estaba respirando.`\
 https://www.nytimes.com/es/2026/07/30/espanol/estados-unidos/nino-ahogado-vivo-padres.html
@@ -134,7 +138,7 @@ https://www.nytimes.com/video/world/europe/100000011063135/russian-missile-lands
 `With a democratic socialist, Francesca Hong, leading in polls, former Lt. Gov. Mandela Barnes said he was ending his campaign in the closely divided state.`\
 https://www.nytimes.com/2026/07/30/us/wisconsin-democratic-primary-for-governor-narrows-as-candidate-exits.html
 
-**Our Modern Way of Speaking Comes With Extra Dressing**\
+**How We Speak Has Gotten Extravagant. Literally.**\
 `We don’t speak just to say something. We speak to be heard.`\
 https://www.nytimes.com/2026/07/30/opinion/gen-z-speech-patterns-language.html
 
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/07/30/business/federal-reserve-warsh-bonds.html
 **Colin Gray, Father of Teenage Shooter in Georgia, Sentenced to 15 Years in Prison**\
 `Prosecutors argued that Colin Gray bore responsibility for the 2024 shooting because he had given his son a gun and failed to act as the teen’s mental health deteriorated.`\
 https://www.nytimes.com/2026/07/30/us/colin-gray-sentencing-apalachee-school-shooting.html
-
-**Why Democrats Won’t Stop Forcing Votes On Trump’s Iran War Powers**\
-`Even after winning approval of a measure calling on President Trump to end the war, they continue to call votes to force Republicans to answer for it.`\
-https://www.nytimes.com/2026/07/30/us/politics/democrats-war-powers-votes.html
 
