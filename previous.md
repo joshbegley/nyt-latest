@@ -31,7 +31,7 @@ https://www.nytimes.com/2026/07/31/world/europe/young-men-poured-into-ceuta-seek
 https://www.nytimes.com/2026/07/31/us/politics/todd-blanche-ag-trump-immunity.html
 
 **State Dept. to Release 250,000 More Trump Passports With His Portrait**\
-`An additional 250,000 commemorative passports, featuring a portrait of President Trump and intended to honor the nation’s 250th anniversary, will be made available at in-person events.`\
+`An additional 250,000 commemorative passports, featuring a portrait of President Trump and intended to honor the nation’s 250th anniversary, will be available at in-person events.`\
 https://www.nytimes.com/2026/07/31/travel/trump-passports-usa-250th-anniversary.html
 
 **John Esposito, Who Challenged Negative Views of Muslims, Dies at 86**\

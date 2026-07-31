@@ -1,3 +1,7 @@
+**State Dept. to Release 250,000 More Trump Passports With His Portrait**\
+`An additional 250,000 commemorative passports, featuring a portrait of President Trump and intended to honor the nation’s 250th anniversary, will be available at in-person events.`\
+https://www.nytimes.com/2026/07/31/travel/trump-passports-usa-250th-anniversary.html
+
 **Trump Blames Minnesota, Not Iran, for Cyberattack, Despite Initial Investigation**\
 `President Trump claimed without evidence that Minnesota’s Democratic government was “behind” a cyberattack on the state’s own water systems. Investigators believe Iran is likely responsible.`\
 https://www.nytimes.com/2026/07/31/us/politics/trump-minnesota-iran-cyberattack-walz.html
