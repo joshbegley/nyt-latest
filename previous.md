@@ -104,7 +104,7 @@ https://www.nytimes.com/2026/07/31/magazine/american-women-workforce.html
 
 **Ella Langley? Drake? Stella Lefty? A Song of the Summer Debate.**\
 `Can Drake reclaim the throne? Is it the season of Stella Lefty? Or is Ella Langley inevitable?`\
-https://www.nytimes.com/2026/07/31/arts/music/what-is-the-song-of-the-summer-breaking-down-the-8-top-contenders.html
+https://www.nytimes.com/2026/07/31/arts/music/song-of-the-summer-drake-ella-langley.html
 
 **The 8 Biggest Songs of This Summer Face Off**\
 `Ella Langley? Drake? A.I.?! Jon and Joe battle through an eight-song bracket of the summer’s biggest hits to determine the Song of the Summer for 2026.`\

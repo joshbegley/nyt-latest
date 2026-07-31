@@ -1,3 +1,7 @@
+**Ella Langley? Drake? Stella Lefty? A Song of the Summer Debate.**\
+`Can Drake reclaim the throne? Is it the season of Stella Lefty? Or is Ella Langley inevitable?`\
+https://www.nytimes.com/2026/07/31/arts/music/song-of-the-summer-drake-ella-langley.html
+
 **The Fight Tearing Apart Silicon Valley**\
 `Anthropic and OpenAI are clashing with the rest of the tech industry over whether “open-source” models from China should be freely available or restricted.`\
 https://www.nytimes.com/2026/07/31/podcasts/the-daily/ai-open-source-china-silicon-valley.html
