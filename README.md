@@ -1,8 +1,12 @@
+**NYT Crossword Answers for July 31, 2026**\
+`Rafael Musa returns to open our solving weekend.`\
+https://www.nytimes.com/2026/07/30/crosswords/daily-puzzle-2026-07-31.html
+
 **What to Know About Ceuta**\
 `The peninsula on Morocco’s northern coast that Spain has governed for centuries has been a frequent site of mass migrant crossings and political tensions.`\
 https://www.nytimes.com/2026/07/30/world/europe/what-to-know-about-ceuta.html
 
-**Fauci, Assailed by Republicans, Took the Fifth. Here’s What We Know.**\
+**What We Know About Dr. Fauci Pleading the Fifth in Senate Hearing on Covid Origins**\
 `In a three-hour Senate hearing this week, Dr. Fauci invoked his constitutional right to stay silent, leaving people confused about many of the issues raised.`\
 https://www.nytimes.com/2026/07/30/health/fauci-allegations-covid-origins.html
 
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/07/30/world/africa/ebola-deaths-record.html
 **Russian Missile Lands in Polish Field During Deadly Ukraine Attack, NATO Says**\
 `NATO said that a Russian-launched missile had exploded in Poland, a member of the military alliance, during a large-scale overnight assault on neighboring Ukraine.`\
 https://www.nytimes.com/video/world/europe/100000011063135/russian-missile-lands-in-polish-field-during-deadly-ukraine-attack-nato-says.html
-
-**Former Lt. Gov. Mandela Barnes Exits Race for Wisconsin Governor**\
-`With a democratic socialist, Francesca Hong, leading in polls, former Lt. Gov. Mandela Barnes said he was ending his campaign in the closely divided state.`\
-https://www.nytimes.com/2026/07/30/us/wisconsin-democratic-primary-for-governor-narrows-as-candidate-exits.html
 
