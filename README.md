@@ -1,3 +1,7 @@
+**July 31, 2026**\
+`Corrections that appeared in print on Friday, July 31, 2026.`\
+https://www.nytimes.com/2026/07/31/pageoneplus/corrections-july-31-2026.html
+
 **Boy George Pulled From ‘Jesus Christ Superstar’ Days After Posting Pro-Israel Reggae Song**\
 `Boy George’s manager said he was pulling the singer from a role in “Jesus Christ Superstar” in “the best interests of my artist.”`\
 https://www.nytimes.com/2026/07/31/theater/boy-george-israel.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/podcasts/100000011055340/the-8-biggest-songs-of-th
 **Book Club: Read ‘London Falling,’ by Patrick Radden Keefe, With the Book Review**\
 `In August, the Book Review Book Club will read and discuss Patrick Radden Keefe’s dazzling investigation into the death of a British teenager.`\
 https://www.nytimes.com/2026/07/31/books/review/london-falling-patrick-radden-keefe-book-club.html
-
-**German Authorities Knew of Pride Attacker’s Extremism**\
-`The assailant, a German citizen, was imprisoned after trying to join the Islamic State but freed weeks before attacking a gay Pride event in Berlin.`\
-https://www.nytimes.com/2026/07/31/world/europe/germany-pride-attack-extremism.html
 

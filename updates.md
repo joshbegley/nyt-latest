@@ -1,3 +1,7 @@
+**Boy George Pulled From ‘Jesus Christ Superstar’ Days After Posting Pro-Israel Reggae Song**\
+`Boy George’s manager said he was pulling the singer from a role in “Jesus Christ Superstar” in “the best interests of my artist.”`\
+https://www.nytimes.com/2026/07/31/theater/boy-george-israel.html
+
 **Boy George Pulled From West End Show Days After Releasing Pro-Israel Reggae Song**\
 `Boy George’s manager said he was pulling the singer from a role in “Jesus Christ Superstar” in “the best interests of my artist.”`\
 https://www.nytimes.com/2026/07/31/theater/boy-george-israel.html
