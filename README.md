@@ -1,3 +1,15 @@
+**Who is Ahead in Florida's 22nd Congressional District?**\
+`Track the latest polls in Florida's 22nd Congressional District.`\
+https://www.nytimes.com/interactive/polls/florida-us-house-22-polls-2026.html
+
+**Who is Ahead in Florida's 8th Congressional District?**\
+`Track the latest polls in Florida's 8th Congressional District.`\
+https://www.nytimes.com/interactive/polls/florida-us-house-8-polls-2026.html
+
+**Who is Ahead in the Wyoming Governor's Race? Latest 2026 Election Polls**\
+`Track the latest polls in the Wyoming governor election.`\
+https://www.nytimes.com/interactive/polls/wyoming-governor-election-polls-2026.html
+
 **Companies Rush to Close Daring Deals Under Trump**\
 `Companies are seizing on what many say is perhaps the most favorable regulatory environment for businesses in years.`\
 https://www.nytimes.com/2026/07/31/business/corporate-mergers-deals-trump.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/31/movies/new-movies-this-week-critics.html
 **The New York Times News Quiz, July 31, 2026**\
 `Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
 https://www.nytimes.com/interactive/2026/07/31/briefing/news-quiz-iran-war-europe-wildfires.html
-
-**Deja de patologizar la vida cotidiana**\
-`Necesitamos apoyar el bienestar psicológico sin obsesionarnos con él.`\
-https://www.nytimes.com/es/2026/07/31/espanol/opinion/salud-mental-obsesion.html
-
-**Emily Wilson’s Pan of ‘The Odyssey’ Ignites a Debate Among Classicists and Commenters**\
-`Wilson, whose 2017 translation of Homer’s Greek classic influenced the director Christopher Nolan, panned his screenplay for the movie version in an essay for The London Review of Books.`\
-https://www.nytimes.com/2026/07/31/arts/the-odyssey-emily-wilson-christopher-nolan.html
-
-**Soccer Is Not for Sale. Give the Boot to FIFA’s Private Equity Play.**\
-`Soccer federations should stop FIFA’s boss, Gianni Infantino, from selling it out.`\
-https://www.nytimes.com/2026/07/31/opinion/fifa-uefa-boycott-deal-thrive.html
 
