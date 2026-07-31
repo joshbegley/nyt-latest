@@ -18,9 +18,9 @@ https://www.nytimes.com/2026/07/31/us/john-ali-dead.html
 `Democrats are demanding that the Kentucky Republican resign. Others who were sidelined for far longer faced no such calls, but times are changing.`\
 https://www.nytimes.com/2026/07/31/us/why-mitch-mcconnell-isnt-giving-up-his-senate-seat.html
 
-**Migrants Surge Into Spanish Territory, Triggering Political Backlash**\
+**Migrants Surge Into Spanish Territory, Prompting Political Backlash**\
 `A sudden exodus of migrants from Morocco startled Spanish officials and drew heavy criticism from right-wing parties across the continent.`\
-https://www.nytimes.com/2026/07/31/world/migrants-surge-into-spanish-territory-triggering-political-backlash.html
+https://www.nytimes.com/2026/07/31/world/europe/migrants-surge-into-spanish-territory-triggering-political-backlash.html
 
 **Nancy Guthrie Ransom Notes Released by Sheriff’s Department Searching for New Leads**\
 `The 84-year-old mother of Savannah Guthrie, the television news anchor, has been missing for nearly six months.`\
