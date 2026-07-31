@@ -1,3 +1,19 @@
+**‘Adults’ Is Getting a New First Episode**\
+`Many viewers turned away from “Adults” after an over-the-top scene in the show’s first episode, so FX made a new one.`\
+https://www.nytimes.com/2026/07/31/business/media/adults-fx-prequel-season-2.html
+
+**Gavin Newsom and His Wife Made $1.4 Million in 2024, Tax Returns Show**\
+`The taxable income of California’s governor and his wife, Jennifer Siebel Newsom, exceeded $1 million a year from 2021 to 2024.`\
+https://www.nytimes.com/2026/07/31/us/gavin-newsom-tax-returns.html
+
+**Ukraine’s Strike on Iranian Ship Shows How Two Wars Could Spiral**\
+`Iran sent military aid to Russia for its war against Ukraine. Now the question is whether that conflict and the U.S.-Israeli war against Iran are converging.`\
+https://www.nytimes.com/2026/07/31/us/politics/iran-ukraine-war.html
+
+**Which Version of ‘The Odyssey’ Will You Experience?**\
+`Readers discuss “The Odyssey” - the epic poem and the movie. Also: Retiring and volunteering; the love of (many) books.`\
+https://www.nytimes.com/2026/07/31/opinion/christopher-nolan-odyssey-homer.html
+
 **Legionnaires’ Outbreak on Upper East Side Is Over, N.Y.C. Officials Say**\
 `With no new cases reported in more than a week, New York City’s health commissioner says the threat has passed. Seven people have died from the disease this summer.`\
 https://www.nytimes.com/2026/07/31/nyregion/nyc-legionnaires-outbreak-over.html
