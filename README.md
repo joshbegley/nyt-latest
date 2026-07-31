@@ -1,3 +1,7 @@
+**A Doctor Weighs In on the Health Tracking Craze**\
+`If a fitness enthusiast like Joe Rogan wants to scan his body ad nauseam to track his wellness, that’s fine, says Dr. Rachael Bedard on “The Opinions.” But using those scans to look for medical abnormalities can lead to costly, potentially harmful follow-up tests.`\
+https://www.nytimes.com/video/opinion/100000011049054/a-doctor-weighs-in-on-the-health-tracking-craze.html
+
 **July 31, 2026**\
 `Corrections that appeared in print on Friday, July 31, 2026.`\
 https://www.nytimes.com/2026/07/31/pageoneplus/corrections-july-31-2026.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/31/arts/music/song-of-the-summer-drake-ella-lang
 **The 8 Biggest Songs of This Summer Face Off**\
 `Ella Langley? Drake? A.I.?! Jon and Joe battle through an eight-song bracket of the summer’s biggest hits to determine the Song of the Summer for 2026.`\
 https://www.nytimes.com/video/podcasts/100000011055340/the-8-biggest-songs-of-this-summer-face-off.html
-
-**Book Club: Read ‘London Falling,’ by Patrick Radden Keefe, With the Book Review**\
-`In August, the Book Review Book Club will read and discuss Patrick Radden Keefe’s dazzling investigation into the death of a British teenager.`\
-https://www.nytimes.com/2026/07/31/books/review/london-falling-patrick-radden-keefe-book-club.html
 
