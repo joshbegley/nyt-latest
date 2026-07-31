@@ -1,3 +1,7 @@
+**Spain’s Leader Rushes to Ceuta After Thousands of Migrants Burst Across Border**\
+`Prime Minister Pedro Sánchez was set to arrive in Ceuta, a Spanish territory in Africa, amid an escalating crisis for his pro-immigration government.`\
+https://www.nytimes.com/2026/07/31/world/europe/spain-ceuta-border-migrants-sanchez.html
+
 **Myanmar Pro-Democracy Activists Each Sentenced to 37 Years in Prison**\
 `A group of dissidents this week were each sentenced to 37 years in prison for a peaceful protest against an election widely derided as a sham.`\
 https://www.nytimes.com/2026/07/31/world/asia/myanmar-sentence-activists-protest.html
