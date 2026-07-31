@@ -1,3 +1,7 @@
+**Jordan Klepper Revisits His ‘Fauci Fever’**\
+`“The Daily Show” host defended the doctor’s diary entries about his Covid-era fame: “I literally saw Fauci more than I saw my parents.”`\
+https://www.nytimes.com/2026/07/31/arts/television/jordan-klepper-anthony-fauci-covid.html
+
 **A Whale Gave Birth. A Drone Was There to Capture the Spectacle.**\
 `A wildlife photographer noticed a humpback whale displaying unusual behavior off Australia’s east coast, then something extraordinary happened.`\
 https://www.nytimes.com/2026/07/31/world/australia/humpback-whale-birth-video-drone.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/30/climate/france-spain-wildfires-climate-change
 **Father of Teenage Gunman in Georgia Sentenced to 15 Years in Prison**\
 `Colin Gray was sentenced to 15 years in prison on Thursday after a jury found that he bore responsibility for a shooting carried out by his teenage son at Apalachee High School in 2024.`\
 https://www.nytimes.com/video/us/100000011064170/father-of-teenage-gunman-in-georgia-sentenced-to-15-years-in-prison.html
-
-**Dulles Airport’s Reviled ‘People Movers’ May Be Lurching Into the Sunset**\
-`A $22.5 billion redesign plan eliminates the “mobile lounges,” which were conceived as a way of making air travel more efficient. Many passengers found the opposite to be true.`\
-https://www.nytimes.com/2026/07/30/us/dulles-airport-people-movers-trump.html
 
