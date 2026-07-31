@@ -1,3 +1,15 @@
+**How the Michigan Primary Is Dividing Jewish Voters**\
+`U.S. support for Israel is dividing Jewish voters — and reshaping the Democratic Party — ahead of Michigan’s primary on Aug. 4. We traveled to Detroit to meet campaigners on both sides of the issue, and find out how the war in Gaza has shaped their politics, and tested their community.`\
+https://www.nytimes.com/video/us/elections/100000011063444/michigan-primary-elections-jewish-voters.html
+
+**Amid Talk of a Party Switch, Fetterman Vows ‘Never’**\
+`Changing one’s affiliation is rare in the Senate, but it can have big consequences. John Fetterman of Pennsylvania says he is staying put as a Democrat.`\
+https://www.nytimes.com/2026/07/31/us/amid-talk-of-a-party-switch-fetterman-vows-never.html
+
+**Readers Choose Their 25 Favorite Clothing Stores Across the U.S.**\
+`Where do you love to shop? We asked and you came through, offering hundreds of thoughtful responses. Here are 25 of your choices.`\
+https://www.nytimes.com/2026/07/31/fashion/best-clothing-stores-reader-favorites.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000011066392/31vid-trump-jan-6-riots-sot.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/31/arts/dance/review-philadanco-rennie-harris.ht
 **What a Hedge Fund’s Implosion Says About the A.I. Trade**\
 `Situational Awareness caught the attention of Wall Street with its highly leveraged trades. It nearly collapsed amid a wave of market volatility.`\
 https://www.nytimes.com/2026/07/31/business/dealbook/situational-awareness-ai-hedge-fund.html
-
-**In the Surf**\
-`We examine the brain injuries in the Coast Guard.`\
-https://www.nytimes.com/2026/07/31/briefing/in-the-surf.html
-
-**Returning Home in Spain’s Wildfires**\
-`Amid the worst fires in Spain’s recent history, our Madrid bureau chief, Jason Horowitz, travels with a couple who fled a fire as they return to see if their home and gardens survived.`\
-https://www.nytimes.com/video/world/europe/100000011063365/returning-home-in-spains-wildfires.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/world/europe/100000011065658/31vid-tarajal-rush-34704.html
 
