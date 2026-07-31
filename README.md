@@ -1,3 +1,7 @@
+**Iran Says It Targeted U.S. Military in Kuwait With Drones**\
+`The Iranian army said it had targeted U.S. assets at a Kuwaiti air base. There were no immediate reports of any attacks from Kuwait or from the U.S. military.`\
+https://www.nytimes.com/2026/07/31/world/middleeast/iran-says-it-targeted-us-military-in-kuwait-with-drones.html
+
 **Can the N.B.A. Police Itself?**\
 `Does it want to? A reality check.`\
 https://www.nytimes.com/2026/07/31/podcasts/nba-kawhi-leonard.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/31/world/americas/plane-douglas-dc3-wwii-colombi
 **In a World of Mirrors, Everything Is Strange**\
 `Staring at ourselves on screens, on video and on social media is taking us to a dark place.`\
 https://www.nytimes.com/2026/07/31/opinion/face-self-reflection-technology-video.html
-
-**Can Key West Still Be a Home for Writers?**\
-`Ernest Hemingway, Judy Blume and other literary luminaries have long called the island home. As housing costs increase, many locals are taking steps to preserve and perpetuate this legacy.`\
-https://www.nytimes.com/2026/07/31/realestate/key-west-florida-literature-hemingway-housing.html
 
