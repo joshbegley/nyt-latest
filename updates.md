@@ -1,3 +1,7 @@
+**Concerns Remain About Eagerness of Israel and Hamas to Fulfill Gaza Deal**\
+`The Israeli government has not issued an official statement. Hamas has underlined that Israel must make concessions before disarmament can proceed.`\
+https://www.nytimes.com/2026/07/31/world/middleeast/trump-gaza-hamas-deal-disarm.html
+
 **Ariana Grande ‘Petal’ Album Review: The Pitfalls of Fame**\
 `The singer’s new album, “Petal,” finds her dissatisfied with fame, but offers few details on exactly why.`\
 https://www.nytimes.com/2026/07/31/arts/music/ariana-grande-petal-review.html

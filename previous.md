@@ -74,7 +74,7 @@ https://www.nytimes.com/2026/07/31/world/americas/amazon-archaeology-geoglyphs.h
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/europe/100000011065650/31vid-fnideq-13067.html
 
-**Trump’s Gaza Deal Raises Concerns About Israel and Hamas’s Eagerness to Fulfill It**\
+**Concerns Remain About Eagerness of Israel and Hamas to Fulfill Gaza Deal**\
 `The Israeli government has not issued an official statement. Hamas has underlined that Israel must make concessions before disarmament can proceed.`\
 https://www.nytimes.com/2026/07/31/world/middleeast/trump-gaza-hamas-deal-disarm.html
 
