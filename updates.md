@@ -1,3 +1,15 @@
+**Book Club: Let’s Talk About ‘John of John’**\
+`Douglas Stuart’s latest novel follows a profoundly isolated father and son, each grappling with long-held secrets.`\
+https://www.nytimes.com/2026/07/31/books/review/podcast-john-of-john-douglas-stuart-book-club.html
+
+**New Pop Star Alert: Tiffany Day**\
+`Hyperpop singer-songwriter Tiffany Day’s “Everything I’ve Ever Wanted” is a vulnerable exploration of the anxiety that comes with finally achieving your dreams. Our critic breaks down her journey from early internet fame and why her second album, “Halo,” may be one of the year’s best pure pop moments.`\
+https://www.nytimes.com/video/podcasts/100000011066308/new-pop-star-alert-tiffany-day.html
+
+**Ceuta Evokes Europe’s 2015 Migration Crisis. But Much Has Changed Since.**\
+`The crossing of 50,000 people to Spanish territory this week has created a crisis for the Spanish government, much as the 2015 migration crisis did for Europe’s leaders. The context is different.`\
+https://www.nytimes.com/2026/07/31/world/europe/ceuta-europe-migration-2015-legal-changes.html
+
 **‘Adults’ Is Getting a New First Episode**\
 `Many viewers turned away from “Adults” after an over-the-top scene in the show’s first episode, so FX made a new one.`\
 https://www.nytimes.com/2026/07/31/business/media/adults-fx-prequel-season-2.html

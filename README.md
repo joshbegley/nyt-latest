@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011066392/31vid-trump-jan-6-riots-sot.html
+
 **Book Club: Let’s Talk About ‘John of John’**\
 `Douglas Stuart’s latest novel follows a profoundly isolated father and son, each grappling with long-held secrets.`\
 https://www.nytimes.com/2026/07/31/books/review/podcast-john-of-john-douglas-stuart-book-club.html
@@ -122,8 +126,8 @@ https://www.nytimes.com/2026/07/31/movies/science-fiction-movies-streaming.html
 `Several migrants who crossed into Ceuta attributed their arrival to lax Moroccan border protocols. But Europe’s anti-immigrant politicians blamed Spain’s migrant-friendly policies.`\
 https://www.nytimes.com/2026/07/31/world/europe/ceuta-europe-far-right-backlash.html
 
-**Crisis migratoria en Ceuta, en vivo: miles de personas han entrado a España**\
-`Se estima que hasta 60.000 personas entraron procedentes de Marruecos a la ciudad española de Ceuta, lo que ha generado una crisis para el gobierno de Pedro Sánchez. Al menos 34 personas murieron, según informaron las autoridades.`\
+**Crisis migratoria en Ceuta, en vivo: la mayoría de los migrantes que llegaron a España han regresado a Marruecos**\
+`De las 60.000 personas que llegaron a Ceuta, unas 37.000 volvieron en un día. Pero la repentina afluencia provocó una crisis en el gobierno español. Al menos 34 personas fallecieron.`\
 https://www.nytimes.com/live/2026/07/31/espanol/espana-ceuta-inmigrantes-crisis
 
 **Missteps Mount in Justice Dept.’s Case Against Minnesota Anti-ICE Protesters**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/world/europe/100000011063365/returning-home-in-spa
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/europe/100000011065658/31vid-tarajal-rush-34704.html
-
-**‘The Headlines’ News Quiz: Jul. 31, 2026**\
-`Following the news? Tracy Mumford has some questions for you.`\
-https://www.nytimes.com/2026/07/31/podcasts/the-headlines/the-headlines-news-quiz-jul-31-2026.html
 
