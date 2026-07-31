@@ -1,3 +1,7 @@
+**Trump Blames Minnesota, Not Iran, for Cyberattack, Despite Initial Investigation**\
+`President Trump claimed without evidence that Minnesota’s Democratic government was “behind” a cyberattack on the state’s own water systems. Investigators believe Iran is likely responsible.`\
+https://www.nytimes.com/2026/07/31/us/politics/trump-minnesota-iran-cyberattack-walz.html
+
 **Trump to Appeal Judge’s Ruling Denouncing I.R.S. Lawsuit as Exercise in Self-Dealing**\
 `It was the latest sign that the president was doubling down on his fight for aspects of a deal that brings him vast benefits, even though they have jeopardized the confirmation of his pick for attorney general.`\
 https://www.nytimes.com/2026/07/31/us/politics/trump-appeal-irs-lawsuit-ruling.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/07/31/world/europe/ceuta-europe-far-right-backlash.
 **La crisis de Ceuta, en vivo: la mayoría de los migrantes que llegaron a España han vuelto a Marruecos**\
 `De las 60.000 personas que llegaron a Ceuta, unas 48.000 habían vuelto a casa al cabo de un día. Pero la afluencia repentina puso en jaque al gobierno español.`\
 https://www.nytimes.com/live/2026/07/31/espanol/espana-ceuta-inmigrantes-crisis
-
-**Missteps Mount in Justice Dept.’s Case Against Minnesota Anti-ICE Protesters**\
-`The problems plaguing the case have not only hurt the government’s chances, lawyers say, but have also undermined the bonds of trust that prosecutors have traditionally enjoyed in court.`\
-https://www.nytimes.com/2026/07/31/us/politics/minnesota-ice-immigration-protests-justice-department-lemon-fort.html
 
