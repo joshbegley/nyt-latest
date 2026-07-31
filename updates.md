@@ -1,3 +1,7 @@
+**Did 75,000 Students Cheat on a College-Entrance Exam in Mexico?**\
+`The National Autonomous University of Mexico, or UNAM, is investigating after experts found that as many as half of all entrance exams could have involved cheating, including with A.I.`\
+https://www.nytimes.com/2026/07/31/world/americas/unam-college-entrance-exam-mexico.html
+
 **U.S. Raises Threat of Steep Water Cuts in Lower Colorado River Basin**\
 `A federal plan would impose drastic water cuts on Arizona, California and Nevada in dry years over the next decade. A legal battle could follow.`\
 https://www.nytimes.com/2026/07/31/climate/colorado-river-basin-water-cuts.html
