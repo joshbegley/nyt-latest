@@ -1,3 +1,19 @@
+**Waiting for a Library Book? This Man Makes Sure You Get It.**\
+`For 20 years, a retired Police Department captain has overseen the shipping of books to library branches. Tens of thousands of books are sorted each day.`\
+https://www.nytimes.com/2026/07/31/nyregion/nypl-queens-bookops-salvatore-magaddino.html
+
+**You’re Welcome at SUNY, New York Tells Students Disenrolled by Howard**\
+`The Washington, D.C., university told incoming freshmen who missed a tuition deadline that they no longer had a spot. But they now can attend a New York State school or CUNY.`\
+https://www.nytimes.com/2026/07/31/nyregion/suny-howard-students-hochul.html
+
+**Mamdani to Name Prominent Black Leader as Head of Police Review Board**\
+`Jennifer Jones Austin, a government veteran who also serves as vice chair of the Rev. Al Sharpton’s National Action Network, will lead the Civilian Complaint Review Board.`\
+https://www.nytimes.com/2026/07/31/nyregion/ccrb-mamdani-jennifer-jones-austin.html
+
+**NYT Spelling Bee Answers for July 31, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/07/31/crosswords/spelling-bee-forum.html
+
 **Jordan Klepper Revisits His ‘Fauci Fever’**\
 `“The Daily Show” host defended the doctor’s diary entries about his Covid-era fame: “I literally saw Fauci more than I saw my parents.”`\
 https://www.nytimes.com/2026/07/31/arts/television/jordan-klepper-anthony-fauci-covid.html

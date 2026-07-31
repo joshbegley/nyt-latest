@@ -1,3 +1,19 @@
+**Waiting for a Library Book? This Man Makes Sure You Get It.**\
+`For 20 years, a retired Police Department captain has overseen the shipping of books to library branches. Tens of thousands of books are sorted each day.`\
+https://www.nytimes.com/2026/07/31/nyregion/nypl-queens-bookops-salvatore-magaddino.html
+
+**You’re Welcome at SUNY, New York Tells Students Disenrolled by Howard**\
+`The Washington, D.C., university told incoming freshmen who missed a tuition deadline that they no longer had a spot. But they now can attend a New York State school or CUNY.`\
+https://www.nytimes.com/2026/07/31/nyregion/suny-howard-students-hochul.html
+
+**Mamdani to Name Prominent Black Leader as Head of Police Review Board**\
+`Jennifer Jones Austin, a government veteran who also serves as vice chair of the Rev. Al Sharpton’s National Action Network, will lead the Civilian Complaint Review Board.`\
+https://www.nytimes.com/2026/07/31/nyregion/ccrb-mamdani-jennifer-jones-austin.html
+
+**NYT Spelling Bee Answers for July 31, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/07/31/crosswords/spelling-bee-forum.html
+
 **Jordan Klepper Revisits His ‘Fauci Fever’**\
 `“The Daily Show” host defended the doctor’s diary entries about his Covid-era fame: “I literally saw Fauci more than I saw my parents.”`\
 https://www.nytimes.com/2026/07/31/arts/television/jordan-klepper-anthony-fauci-covid.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/video/opinion/100000011048690/what-succession-gets-right
 **Was Your Trip to Europe Affected by Heat or Wildfires? Tell Us About It.**\
 `Have you had to cancel, reschedule or replan a trip to France, Spain or elsewhere because of raging fires or stifling heat? If so, we want to hear from you.`\
 https://www.nytimes.com/2026/07/30/travel/europe-heat-fire-reader-callout.html
-
-**Two More Appeals Courts Rule Against Trump’s Detention Policy**\
-`The rulings deepen a split across the judiciary, making it more likely that the Supreme Court will consider the legality of detaining undocumented immigrants indefinitely.`\
-https://www.nytimes.com/2026/07/30/us/politics/appeals-courts-immigrant-detention-policy.html
-
-**What McConnell, Trump and Biden Have in Common**\
-`From the Senate to the White House, American politicians are aging past their prime. On Interesting Times, Samuel Moyn, a Yale professor, argues that we’re facing a tyranny of the elderly.`\
-https://www.nytimes.com/video/opinion/100000011048687/what-mcconnell-trump-and-biden-have-in-common.html
-
-**Earth’s Warming Primed France and Spain to Burn, Scientists Find**\
-`The likelihood of hot, dry weather that helps wildfires spread has increased sharply in Europe in recent decades, according to a new report.`\
-https://www.nytimes.com/2026/07/30/climate/france-spain-wildfires-climate-change.html
-
-**Father of Teenage Gunman in Georgia Sentenced to 15 Years in Prison**\
-`Colin Gray was sentenced to 15 years in prison on Thursday after a jury found that he bore responsibility for a shooting carried out by his teenage son at Apalachee High School in 2024.`\
-https://www.nytimes.com/video/us/100000011064170/father-of-teenage-gunman-in-georgia-sentenced-to-15-years-in-prison.html
 
