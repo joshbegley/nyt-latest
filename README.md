@@ -1,3 +1,11 @@
+**Leopold Aschenbrenner Built a Hot A.I. Hedge Fund. Then it Melted Down.**\
+`Situational Awareness, led by a 24-year-old, exploded onto the artificial intelligence scene — and then nose-dived.`\
+https://www.nytimes.com/2026/07/31/business/situational-awareness-leopold-aschenbrenner.html
+
+**Mildred Pitts Walter, Author of Books for Black Children, Dies at 103**\
+`Teaching kindergarten in South Central Los Angeles in the 1950s and ’60s, she realized that her students were not represented in the books they read. So she wrote her own.`\
+https://www.nytimes.com/2026/07/31/books/mildred-pitts-walter-dead.html
+
 **Hunter Biden Blames Cancer for Joe Biden’s Disastrous Debate**\
 `Medical experts say it is unlikely that Mr. Biden’s debate performance was affected by the cancer that was diagnosed months later.`\
 https://www.nytimes.com/2026/07/31/us/politics/hunter-biden-joe-biden-debate-cancer.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/interactive/polls/florida-us-house-22-polls-2026.html
 **Who is Ahead in Florida's 8th Congressional District?**\
 `Track the latest polls in Florida's 8th Congressional District.`\
 https://www.nytimes.com/interactive/polls/florida-us-house-8-polls-2026.html
-
-**Who is Ahead in the Wyoming Governor's Race? Latest 2026 Election Polls**\
-`Track the latest polls in the Wyoming governor election.`\
-https://www.nytimes.com/interactive/polls/wyoming-governor-election-polls-2026.html
-
-**Companies Rush to Close Daring Deals Under Trump**\
-`Companies are seizing on what many say is perhaps the most favorable regulatory environment for businesses in years.`\
-https://www.nytimes.com/2026/07/31/business/corporate-mergers-deals-trump.html
 
 **La crisis de Ceuta, en vivo: la mayoría de los migrantes que llegaron a España han vuelto a Marruecos**\
 `De las 60.000 personas que llegaron a Ceuta, unas 48.000 habían vuelto a casa al cabo de un día. Pero la afluencia repentina puso en jaque al gobierno español.`\
