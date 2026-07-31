@@ -1,3 +1,7 @@
+**La viruela de hace siglos podría no haber sido tan letal**\
+`Rastros del virus encontrados en los restos de los habitantes de Chile de hace unos 500 años muestran cómo pudo evolucionar hasta convertirse en un asesino global.`\
+https://www.nytimes.com/es/2026/07/31/espanol/ciencia-y-tecnologia/viruela-chile.html
+
 **Waiting for a Library Book? This Man Makes Sure You Get It.**\
 `For 20 years, a retired Police Department captain has overseen the shipping of books to library branches. Tens of thousands of books are sorted each day.`\
 https://www.nytimes.com/2026/07/31/nyregion/nypl-queens-bookops-salvatore-magaddino.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/30/briefing/economy-blanche-iran.html
 **What ‘Succession’ Gets Right About Our Aging Elite**\
 `It’s not just politicians — American executives are getting older too, with the average age of chief executives rising to 61 in 2023, according to an April 2026 working paper from the National Bureau of Economic Research. The Yale law professor Samuel Moyn talks about the “dark side” of this trend on “Interesting Times.”`\
 https://www.nytimes.com/video/opinion/100000011048690/what-succession-gets-right-about-our-aging-elite.html
-
-**Was Your Trip to Europe Affected by Heat or Wildfires? Tell Us About It.**\
-`Have you had to cancel, reschedule or replan a trip to France, Spain or elsewhere because of raging fires or stifling heat? If so, we want to hear from you.`\
-https://www.nytimes.com/2026/07/30/travel/europe-heat-fire-reader-callout.html
 

@@ -1,3 +1,7 @@
+**La viruela de hace siglos podría no haber sido tan letal**\
+`Rastros del virus encontrados en los restos de los habitantes de Chile de hace unos 500 años muestran cómo pudo evolucionar hasta convertirse en un asesino global.`\
+https://www.nytimes.com/es/2026/07/31/espanol/ciencia-y-tecnologia/viruela-chile.html
+
 **Waiting for a Library Book? This Man Makes Sure You Get It.**\
 `For 20 years, a retired Police Department captain has overseen the shipping of books to library branches. Tens of thousands of books are sorted each day.`\
 https://www.nytimes.com/2026/07/31/nyregion/nypl-queens-bookops-salvatore-magaddino.html
