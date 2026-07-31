@@ -1,3 +1,7 @@
+**Thousands of Migrants Cross Into Spain’s North African Territory**\
+`On Thursday, Spain mobilized its military after thousands of migrants swam and climbed into Ceuta, a six-mile-long peninsula governed by Spain on Morocco’s northern coast. Some migrants had swum miles to reach the shore.`\
+https://www.nytimes.com/video/world/africa/100000011063705/morocco-spain-migrants-swim.html
+
 **Anthropic Says Its A.I. Systems Broke Into Computers at 3 Organizations**\
 `The disclosure followed OpenAI’s report last week that its own artificial intelligence had hacked into the network of an online library.`\
 https://www.nytimes.com/2026/07/30/technology/anthropic-ai-hack.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/07/30/books/review/new-recommended-books.html
 **‘This Is Very Strange’: Ancient Smallpox May Have Been Less Deadly**\
 `Scientists have found smallpox viruses in the remains of people in Chile from around 500 years ago, revealing how the virus may have evolved into a global killer.`\
 https://www.nytimes.com/2026/07/30/science/ancient-small-pox.html
-
-**The Folk Singer Linda Perhacs Is Found and Is Safe, Authorities Confirm**\
-`Friends of the “Parallelograms” artist, who was reported missing earlier this week, said she is living in a new care facility.`\
-https://www.nytimes.com/2026/07/30/arts/music/linda-perhacs-found-folk-singer.html
 
