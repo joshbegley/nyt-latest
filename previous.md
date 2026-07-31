@@ -1,3 +1,15 @@
+**Anthropic dice que su IA se infiltró en 3 organizaciones**\
+`La revelación sucede después de que otra empresa del sector, OpenAI, dio a conocer que su propia tecnología hackeó una biblioteca digital.`\
+https://www.nytimes.com/es/2026/07/30/espanol/negocios/anthropic-hackeo.html
+
+**Brownies With Coffee and Cardamom**\
+`These brownies are infused with the flavors of Arabic coffee, which traditionally include ground cardamom and often other spices such cinnamon, saffron or rose water.`\
+https://www.nytimes.com/video/dining/100000011065120/brownies-with-coffee-and-cardamom.html
+
+**30dc-tour**\
+`The decision to suspend tours indefinitely came after a volunteer tour guide was featured in a Times article detailing President Trump’s dramatic revamp of the Kennedy Center.`\
+https://www.nytimes.com/2026/07/30/us/politics/kennedy-center-tours.html
+
 **Thousands of Migrants Cross Into Spain’s North African Territory**\
 `On Thursday, Spain mobilized its military after thousands of migrants swam and climbed into Ceuta, a six-mile-long peninsula governed by Spain on Morocco’s northern coast. Some migrants had swum miles to reach the shore.`\
 https://www.nytimes.com/video/world/africa/100000011063705/morocco-spain-migrants-swim.html
@@ -177,16 +189,4 @@ https://www.nytimes.com/2026/07/30/us/politics/state-department-map-africa.html
 **Civilians Battle Wildfire Threatening Bordeaux**\
 `Residents in Bordeaux in southwestern France are doing everything in their power to stop a wildfire that’s been burning for more than a week. The flames are too spread out for professional firefighters to be everywhere, so for now, civilian volunteers are the only thing standing between the fire and a major French city.`\
 https://www.nytimes.com/video/world/europe/100000011061309/france-wildfires-bordeaux-civilian-volunteers.html
-
-**Jeannette Etheredge, Who Hosted San Francisco at Tosca Cafe, Dies at 85**\
-`As the North Beach bar’s proprietor for 33 years, she turned it into a hub for actors, directors, writers, dancers and politicians.`\
-https://www.nytimes.com/2026/07/30/obituaries/jeanette-etheredge-dead.html
-
-**Books Our Editors Love This Week**\
-`Reading recommendations from critics and editors at The New York Times.`\
-https://www.nytimes.com/2026/07/30/books/review/new-recommended-books.html
-
-**‘This Is Very Strange’: Ancient Smallpox May Have Been Less Deadly**\
-`Scientists have found smallpox viruses in the remains of people in Chile from around 500 years ago, revealing how the virus may have evolved into a global killer.`\
-https://www.nytimes.com/2026/07/30/science/ancient-small-pox.html
 

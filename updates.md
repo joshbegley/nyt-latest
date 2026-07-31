@@ -1,3 +1,15 @@
+**Anthropic dice que su IA se infiltró en 3 organizaciones**\
+`La revelación sucede después de que otra empresa del sector, OpenAI, dio a conocer que su propia tecnología hackeó una biblioteca digital.`\
+https://www.nytimes.com/es/2026/07/30/espanol/negocios/anthropic-hackeo.html
+
+**Brownies With Coffee and Cardamom**\
+`These brownies are infused with the flavors of Arabic coffee, which traditionally include ground cardamom and often other spices such cinnamon, saffron or rose water.`\
+https://www.nytimes.com/video/dining/100000011065120/brownies-with-coffee-and-cardamom.html
+
+**30dc-tour**\
+`The decision to suspend tours indefinitely came after a volunteer tour guide was featured in a Times article detailing President Trump’s dramatic revamp of the Kennedy Center.`\
+https://www.nytimes.com/2026/07/30/us/politics/kennedy-center-tours.html
+
 **Thousands of Migrants Cross Into Spain’s North African Territory**\
 `On Thursday, Spain mobilized its military after thousands of migrants swam and climbed into Ceuta, a six-mile-long peninsula governed by Spain on Morocco’s northern coast. Some migrants had swum miles to reach the shore.`\
 https://www.nytimes.com/video/world/africa/100000011063705/morocco-spain-migrants-swim.html
