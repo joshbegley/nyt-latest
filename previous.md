@@ -1,3 +1,15 @@
+**What Caused the Surge in Ceuta?**\
+`Speculation has focused on lax Moroccan policing, attractive Spanish immigration policies and misinformation from human traffickers. In reality, experts said, it’s too early to know.`\
+https://www.nytimes.com/2026/07/31/world/europe/what-caused-the-surge-in-ceuta.html
+
+**Driver Fatally Shoots Kidnapped Victim in Trunk in Chino Hills**\
+`An abduction from a home in Southern California led to a short police chase. The driver fired at a man in the trunk before being gunned down.`\
+https://www.nytimes.com/2026/07/31/us/kidnapping-shooting-chino-hills.html
+
+**At Least 34 Killed in Coal Mine Blast in Pakistan**\
+`Rescue teams searched for missing workers at a coal mine in Pakistan on Friday, where at least 34 people were killed in a blast, according to officials.`\
+https://www.nytimes.com/video/world/asia/100000011065928/at-least-34-killed-in-coal-mine-blast-in-pakistan.html
+
 **Young Men Poured Into Ceuta Seeking Work**\
 `Several migrants said they had been motivated by social media messages claiming that the Spanish border was open, though the origin of those messages remained unclear.`\
 https://www.nytimes.com/2026/07/31/world/europe/young-men-poured-into-ceuta-seeking-work.html
@@ -177,16 +189,4 @@ https://www.nytimes.com/2026/07/31/us/politics/gop-ivf-military.html
 **Ariana Grande ‘Petal’ Album Review: The Pitfalls of Fame**\
 `The singer’s new album, “Petal,” finds her dissatisfied with fame, but offers few details on exactly why.`\
 https://www.nytimes.com/2026/07/31/arts/music/ariana-grande-petal-review.html
-
-**A Doctor Weighs In on the Health Tracking Craze**\
-`If a fitness enthusiast like Joe Rogan wants to scan his body ad nauseam to track his wellness, that’s fine, says Dr. Rachael Bedard on “The Opinions.” But using those scans to look for medical abnormalities can lead to costly, potentially harmful follow-up tests.`\
-https://www.nytimes.com/video/opinion/100000011049054/a-doctor-weighs-in-on-the-health-tracking-craze.html
-
-**July 31, 2026**\
-`Corrections that appeared in print on Friday, July 31, 2026.`\
-https://www.nytimes.com/2026/07/31/pageoneplus/corrections-july-31-2026.html
-
-**Boy George Pulled From ‘Jesus Christ Superstar’ Days After Posting Pro-Israel Reggae Song**\
-`Boy George’s manager said he was pulling the singer from a role in “Jesus Christ Superstar” in “the best interests of my artist.”`\
-https://www.nytimes.com/2026/07/31/theater/boy-george-israel.html
 
