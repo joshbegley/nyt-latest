@@ -1,3 +1,11 @@
+**In Area Hit by Blaze, French Officials Failed to Enforce Wildfire Rules**\
+`Under French rules, homeowners must clear vegetation within roughly 50 yards of their houses. In the forests affected by France’s worst fire in decades, that didn’t happen.`\
+https://www.nytimes.com/2026/07/31/france-heat-firebreak-buffer-wildfire.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/europe/100000011065624/31vid-sleeping-in-ceuta-5085.html
+
 **Ella Langley? Drake? Stella Lefty? A Song of the Summer Debate.**\
 `Can Drake reclaim the throne? Is it the season of Stella Lefty? Or is Ella Langley inevitable?`\
 https://www.nytimes.com/2026/07/31/arts/music/song-of-the-summer-drake-ella-langley.html

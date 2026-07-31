@@ -1,3 +1,11 @@
+**Trump’s Announcement of Gaza Deal Raises Many Unanswered Questions**\
+`Neither Hamas nor the Israeli government has issued an official statement acknowledging the deal, raising concerns about their eagerness to implement its clauses.`\
+https://www.nytimes.com/2026/07/31/world/middleeast/trump-gaza-hamas-deal-disarm.html
+
+**Iran War Drives Oil Profits to Highest Levels in Years**\
+`The world’s biggest oil companies are benefiting from the high commodity prices that have been a drag on the rest of the economy.`\
+https://www.nytimes.com/2026/07/31/business/energy-environment/exxon-chevron-earnings-iran-war.html
+
 **In Area Hit by Blaze, French Officials Failed to Enforce Wildfire Rules**\
 `Under French rules, homeowners must clear vegetation within roughly 50 yards of their houses. In the forests affected by France’s worst fire in decades, that didn’t happen.`\
 https://www.nytimes.com/2026/07/31/france-heat-firebreak-buffer-wildfire.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/31/arts/television/mary-beth-barone-galaxy-brain
 **22 New Books to Read in August: Rachel Cusk, Riley Sager, Claudia Rankine and More**\
 `Gripping thrillers, hockey romance, political history, an Appalachian Trail memoir and more.`\
 https://www.nytimes.com/2026/07/31/books/new-books-august.html
-
-**Word of the Day: skedaddle**\
-`This word has appeared in nine articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/07/31/learning/word-of-the-day-skedaddle.html
-
-**A Defense of Ma in Laura Ingalls Wilder’s Little House Books**\
-`How I went from being Team Pa to recognizing Laura Ingalls Wilder’s less charismatic, quietly heroic and equally crazy creation, Caroline Ingalls.`\
-https://www.nytimes.com/2026/07/31/books/review/little-house-on-the-prairie-celebrating-ma.html
 
