@@ -1,3 +1,19 @@
+**‘Adults’ Is Getting a New First Episode**\
+`Many viewers turned away from “Adults” after an over-the-top scene in the show’s first episode, so FX made a new one.`\
+https://www.nytimes.com/2026/07/31/business/media/adults-fx-prequel-season-2.html
+
+**Gavin Newsom and His Wife Made $1.4 Million in 2024, Tax Returns Show**\
+`The taxable income of California’s governor and his wife, Jennifer Siebel Newsom, exceeded $1 million a year from 2021 to 2024.`\
+https://www.nytimes.com/2026/07/31/us/gavin-newsom-tax-returns.html
+
+**Ukraine’s Strike on Iranian Ship Shows How Two Wars Could Spiral**\
+`Iran sent military aid to Russia for its war against Ukraine. Now the question is whether that conflict and the U.S.-Israeli war against Iran are converging.`\
+https://www.nytimes.com/2026/07/31/us/politics/iran-ukraine-war.html
+
+**Which Version of ‘The Odyssey’ Will You Experience?**\
+`Readers discuss “The Odyssey” - the epic poem and the movie. Also: Retiring and volunteering; the love of (many) books.`\
+https://www.nytimes.com/2026/07/31/opinion/christopher-nolan-odyssey-homer.html
+
 **Legionnaires’ Outbreak on Upper East Side Is Over, N.Y.C. Officials Say**\
 `With no new cases reported in more than a week, New York City’s health commissioner says the threat has passed. Seven people have died from the disease this summer.`\
 https://www.nytimes.com/2026/07/31/nyregion/nyc-legionnaires-outbreak-over.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/07/31/world/americas/amazon-archaeology-geoglyphs.h
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/europe/100000011065650/31vid-fnideq-13067.html
-
-**Trump’s Gaza Deal Sparks Questions on Whether Israel, Hamas Will Comply**\
-`The new 15-point plan, released by the Board of Peace and announced by Trump, calls in part for Israel to end its attacks and Hamas to give up its weapons.`\
-https://www.nytimes.com/2026/07/31/world/middleeast/trump-gaza-hamas-deal-disarm.html
-
-**Iran War Drives Oil Profits to Highest Levels in Years**\
-`The world’s biggest oil companies are benefiting from the high commodity prices that have been a drag on the rest of the economy.`\
-https://www.nytimes.com/2026/07/31/business/energy-environment/exxon-chevron-earnings-iran-war.html
-
-**In Area Hit by Blaze, French Officials Failed to Enforce Wildfire Rules**\
-`Under French rules, homeowners must clear vegetation within roughly 50 yards of their houses. In the forests affected by France’s worst fire in decades, that didn’t happen.`\
-https://www.nytimes.com/2026/07/31/france-heat-firebreak-buffer-wildfire.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/world/europe/100000011065624/31vid-sleeping-in-ceuta-5085.html
 

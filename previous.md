@@ -1,3 +1,27 @@
+**Legionnaires’ Outbreak on Upper East Side Is Over, N.Y.C. Officials Say**\
+`With no new cases reported in more than a week, New York City’s health commissioner says the threat has passed. Seven people have died from the disease this summer.`\
+https://www.nytimes.com/2026/07/31/nyregion/nyc-legionnaires-outbreak-over.html
+
+**Adam O’Neal Resigns as Washington Post Opinion Editor**\
+`Adam O’Neal inherited a mandate from the paper’s owner, Jeff Bezos, to shift toward “personal liberties and free markets.”`\
+https://www.nytimes.com/2026/07/31/business/media/washington-post-opinion-editor-resigns-after-1-year.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011066184/31vid-rubio-trump-sot-icc.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011066256/31vid-trump-iran-sot.html
+
+**A Fledgling Food Reviewer’s Battle With Cyclospora**\
+`Christina Hart, 29, started posting reviews on social media in May. Less than two months later, a stomach illness forced her to stop.`\
+https://www.nytimes.com/2026/07/31/us/cyclospora-cyclosporiasis-nashville.html
+
+**UNAM anula miles de exámenes de admisión por posibles trampas**\
+`La Universidad Nacional Autónoma de México está investigando el caso después de que los expertos descubrieron que hasta la mitad de las pruebas de ingreso podrían haber implicado trampas, incluido el uso de IA.`\
+https://www.nytimes.com/es/2026/07/31/espanol/america-latina/unam-examen-admision-mexico.html
+
 **4 cuerpos son hallados y 6 alpinistas siguen desaparecidos tras una avalancha en Pakistán**\
 `El cuerpo de Nadhira Alharthy, la primera mujer omaní en alcanzar la cima del Everest, estaba entre los cuerpos recuperados. El alpinista influente Nirmal Purja estaba desaparecido.`\
 https://www.nytimes.com/es/2026/07/31/espanol/mundo/avalancha-alpinistas-pakistan.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/07/31/france-heat-firebreak-buffer-wildfire.html
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/europe/100000011065624/31vid-sleeping-in-ceuta-5085.html
-
-**The Fight Tearing Apart Silicon Valley**\
-`Anthropic and OpenAI are clashing with the rest of the tech industry over whether “open-source” models from China should be freely available or restricted.`\
-https://www.nytimes.com/2026/07/31/podcasts/the-daily/ai-open-source-china-silicon-valley.html
-
-**A Cyberattack on U.S. Water Systems, and the Growing Threat of Falling Space Junk**\
-`Plus, the Friday news quiz.`\
-https://www.nytimes.com/2026/07/31/podcasts/the-headlines/cyberattack-us-water-space-junk-spain-migrants-fifa.html
-
-**Today’s Wordle Hints for August 1, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, Aug. 1, 2026.`\
-https://www.nytimes.com/2026/07/31/crosswords/wordle-review-1869.html
-
-**NYT Strands Hints for August 1, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, Aug. 1, 2026.`\
-https://www.nytimes.com/2026/07/31/crosswords/strands-sidekick-881.html
-
-**NYT Connections Answers for August 1, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, Aug. 1, 2026.`\
-https://www.nytimes.com/2026/07/31/crosswords/connections-companion-1147.html
-
-**Iran Says It Targeted U.S. Military in Kuwait With Drones**\
-`The Kuwaiti military said that it had detected and destroyed multiple drones in its airspace since dawn. A U.S. Defense Department official said there had been no major impact on its military bases in the region.`\
-https://www.nytimes.com/2026/07/31/world/middleeast/iran-us-military-kuwait-drone-attack.html
 
