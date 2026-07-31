@@ -118,13 +118,13 @@ https://www.nytimes.com/2026/07/31/podcasts/how-to-shop-for-homeowners-insurance
 `A ruling on a movie-night dispute.`\
 https://www.nytimes.com/interactive/2026/07/31/magazine/paxton-costner-hodgman-quiz.html
 
-**We All Do Errands. Noah Blau Films Them.**\
-`Fighting a traffic ticket. Hanging a curtain. Installing an air-conditioner. With his cult-hit online series, Noah Blau has made the mundane fascinating.`\
-https://www.nytimes.com/2026/07/31/style/errands-should-be-the-most-boring-show-on-the-internet.html
-
 **There Are So Many Reasons to Reject Todd Blanche. Here’s Another One.**\
 `Don’t forget this key reason the Senate should reject him.`\
 https://www.nytimes.com/2026/07/31/opinion/todd-blanche-attorney-general-senate-hearing.html
+
+**We All Do Errands. Noah Blau Films Them.**\
+`Fighting a traffic ticket. Hanging a curtain. Installing an air-conditioner. With his cult-hit online series, Noah Blau has made the mundane fascinating.`\
+https://www.nytimes.com/2026/07/31/style/errands-should-be-the-most-boring-show-on-the-internet.html
 
 **How Trump Has Changed, With Maggie Haberman**\
 `The New York Times correspondent says 70 percent of the president’s mind is dedicated to White House renovations.`\
