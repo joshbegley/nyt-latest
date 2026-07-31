@@ -39,7 +39,7 @@ https://www.nytimes.com/2026/07/31/dining/the-best-cucumber-salad-ive-ever-made.
 https://www.nytimes.com/2026/07/31/movies/science-fiction-movies-streaming.html
 
 **Far-right politicians seize on Ceuta**\
-`Several migrants who crossed into Ceuta attributed their arrival to lax Moroccan border protocols. But Europe’s anti-immigrant blamed Spain’s migrant-friendly policies.`\
+`Several migrants who crossed into Ceuta attributed their arrival to lax Moroccan border protocols. But Europe’s anti-immigrant politicians blamed Spain’s migrant-friendly policies.`\
 https://www.nytimes.com/2026/07/31/world/europe/ceuta-europe-far-right-backlash.html
 
 **Crisis migratoria en Ceuta, en vivo: miles de personas han entrado a España**\
