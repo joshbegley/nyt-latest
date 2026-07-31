@@ -1,3 +1,11 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011066392/31vid-trump-jan-6-riots-sot.html
+
+**Crisis migratoria en Ceuta, en vivo: la mayoría de los migrantes que llegaron a España han regresado a Marruecos**\
+`De las 60.000 personas que llegaron a Ceuta, unas 37.000 volvieron en un día. Pero la repentina afluencia provocó una crisis en el gobierno español. Al menos 34 personas fallecieron.`\
+https://www.nytimes.com/live/2026/07/31/espanol/espana-ceuta-inmigrantes-crisis
+
 **Book Club: Let’s Talk About ‘John of John’**\
 `Douglas Stuart’s latest novel follows a profoundly isolated father and son, each grappling with long-held secrets.`\
 https://www.nytimes.com/2026/07/31/books/review/podcast-john-of-john-douglas-stuart-book-club.html
