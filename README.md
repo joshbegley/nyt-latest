@@ -1,3 +1,11 @@
+**What to Know About Ceuta**\
+`The peninsula on Morocco’s northern coast that Spain has governed for centuries has been a frequent site of mass migrant crossings and political tensions.`\
+https://www.nytimes.com/2026/07/30/world/europe/what-to-know-about-ceuta.html
+
+**Fauci, Assailed by Republicans, Took the Fifth. Here’s What We Know.**\
+`In a three-hour Senate hearing this week, Dr. Fauci invoked his constitutional right to stay silent, leaving people confused about many of the issues raised.`\
+https://www.nytimes.com/2026/07/30/health/fauci-allegations-covid-origins.html
+
 **What Is the Board of Peace? The Trump-Backed Group, Explained.**\
 `President Trump created the international organization, aimed at resolving the long-running war in Gaza and other conflicts.`\
 https://www.nytimes.com/2026/07/30/us/politics/what-is-the-board-of-peace.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/video/world/europe/100000011063135/russian-missile-lands
 **Former Lt. Gov. Mandela Barnes Exits Race for Wisconsin Governor**\
 `With a democratic socialist, Francesca Hong, leading in polls, former Lt. Gov. Mandela Barnes said he was ending his campaign in the closely divided state.`\
 https://www.nytimes.com/2026/07/30/us/wisconsin-democratic-primary-for-governor-narrows-as-candidate-exits.html
-
-**How We Speak Has Gotten Extravagant. Literally.**\
-`We don’t speak just to say something. We speak to be heard.`\
-https://www.nytimes.com/2026/07/30/opinion/gen-z-speech-patterns-language.html
-
-**Our 2026-27 Student Contest Calendar**\
-`Seven opportunities for teenagers to engage, experiment, reflect and create — via writing, audio, video, visual art and more.`\
-https://www.nytimes.com/2026/07/30/learning/our-2026-27-student-contest-calendar.html
 
