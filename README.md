@@ -1,3 +1,7 @@
+**What a Hedge Fund’s Implosion Says About the A.I. Trade**\
+`Situational Awareness caught the attention of Wall Street with its highly leveraged trades. It nearly collapsed amid a wave of market volatility.`\
+https://www.nytimes.com/2026/07/31/business/dealbook/situational-awareness-ai-hedge-fund.html
+
 **In the Surf**\
 `We examine the brain injuries in the Coast Guard.`\
 https://www.nytimes.com/2026/07/31/briefing/in-the-surf.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/31/business/germany-mercedes-bmw-volkswagen.html
 **Major Guggenheim Show Traces Origin and Legacy of Pop Art**\
 `At the Guggenheim Museum, a survey of the origin and legacy of Pop Art tries to extract from the movement a conscience it never really had, our critic argues.`\
 https://www.nytimes.com/2026/07/31/arts/design/guggenheim-pop-art-review.html
-
-**Can the Gritty ‘Spider-Man: Brand New Day’ Save the Superhero Movie?**\
-`The newest entry in the franchise took a more grounded approach, a departure for a spectacle-focused genre that is teetering at the box office.`\
-https://www.nytimes.com/2026/07/31/movies/spider-man-brand-new-day-movie.html
 
