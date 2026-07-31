@@ -1,5 +1,9 @@
+**New Gaza Plan Hailed by Trump Again Pressures Netanyahu**\
+`President Trump’s announcement came at a difficult point in his relationship with the Israeli leader over their war against Iran.`\
+https://www.nytimes.com/2026/07/31/us/politics/new-gaza-plan-hailed-by-trump-again-pressures-netanyahu.html
+
 **Charges to Be Dropped Against Ex-Olympian David Hearn Accused of Damaging Reflecting Pool**\
-`President Trump had repeatedly accused vandals of damaging the Lincoln Memorial Reflecting Pool. On Friday, federal prosecutors acknowledged it was “the result of flawed installation.”`\
+`President Trump had repeatedly accused vandals of damaging the Lincoln Memorial Reflecting Pool. On Friday, prosecutors acknowledged it was “the result of flawed installation” and moved to dismiss charges against a former Olympian.`\
 https://www.nytimes.com/2026/07/31/us/david-hearn-reflecting-pool-vandalism-charges.html
 
 **What Worries Democrats as the Midterms Heat Up**\
@@ -185,10 +189,6 @@ https://www.nytimes.com/es/2026/07/31/espanol/mundo/avalancha-alpinistas-pakista
 **Flashback: Your Weekly History Quiz, August 1, 2026**\
 `Can you sort 8 historical events?`\
 https://www.nytimes.com/interactive/2026/07/31/upshot/flashback.html
-
-**Chaos Continues in Ceuta**\
-`People were both leaving and arriving in Ceuta on Friday, a day after tens of thousands of people entered the Spanish territory in North Africa, according to official estimates.`\
-https://www.nytimes.com/video/world/europe/100000011065605/ceuta-spain-morocco-border-migrants.html
 
 **La crisis de Ceuta, en vivo: la mayoría de los migrantes que llegaron a España han vuelto a Marruecos**\
 `De las 60.000 personas que llegaron a Ceuta, unas 48.000 habían vuelto a casa al cabo de un día. Pero la afluencia repentina puso en jaque al gobierno español.`\
