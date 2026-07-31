@@ -1,3 +1,7 @@
+**Nancy Guthrie Ransom Notes Released by Sheriff’s Department Searching for New Leads**\
+`The 84-year-old mother of Savannah Guthrie, the television news anchor, has been missing for nearly six months.`\
+https://www.nytimes.com/2026/07/31/us/savannah-nancy-guthrie-ransom-note.html
+
 **Trump Blames Minnesota, Not Iran, for Cyberattack, Despite Initial Investigation**\
 `President Trump claimed without evidence that Minnesota’s Democratic government was “behind” a cyberattack on the state’s own water systems. Investigators believe Iran is likely responsible.`\
 https://www.nytimes.com/2026/07/31/us/politics/trump-minnesota-iran-cyberattack-walz.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/07/31/dining/the-best-cucumber-salad-ive-ever-made.
 **‘Project Hail Mary’ and More Science Fiction Movies to Stream Now**\
 `From the Ryan Gosling hit “Project Hail Mary” to the psychosexual alien rom-com “Touch Me,” explore this month’s eclectic picks.`\
 https://www.nytimes.com/2026/07/31/movies/science-fiction-movies-streaming.html
-
-**Far-right politicians seize on Ceuta**\
-`Several migrants who crossed into Ceuta attributed their arrival to lax Moroccan border protocols. But Europe’s anti-immigrant politicians blamed Spain’s migrant-friendly policies.`\
-https://www.nytimes.com/2026/07/31/world/europe/ceuta-europe-far-right-backlash.html
 
 **La crisis de Ceuta, en vivo: la mayoría de los migrantes que llegaron a España han vuelto a Marruecos**\
 `De las 60.000 personas que llegaron a Ceuta, unas 48.000 habían vuelto a casa al cabo de un día. Pero la afluencia repentina puso en jaque al gobierno español.`\
