@@ -1,3 +1,7 @@
+**Ariana Grande ‘Petal’ Album Review: The Pitfalls of Fame**\
+`The singer’s new album, “Petal,” finds her dissatisfied with fame, but offers few details on exactly why.`\
+https://www.nytimes.com/2026/07/31/arts/music/ariana-grande-petal-review.html
+
 **A Doctor Weighs In on the Health Tracking Craze**\
 `If a fitness enthusiast like Joe Rogan wants to scan his body ad nauseam to track his wellness, that’s fine, says Dr. Rachael Bedard on “The Opinions.” But using those scans to look for medical abnormalities can lead to costly, potentially harmful follow-up tests.`\
 https://www.nytimes.com/video/opinion/100000011049054/a-doctor-weighs-in-on-the-health-tracking-craze.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/31/magazine/american-women-workforce.html
 **Ella Langley? Drake? Stella Lefty? A Song of the Summer Debate.**\
 `Can Drake reclaim the throne? Is it the season of Stella Lefty? Or is Ella Langley inevitable?`\
 https://www.nytimes.com/2026/07/31/arts/music/song-of-the-summer-drake-ella-langley.html
-
-**The 8 Biggest Songs of This Summer Face Off**\
-`Ella Langley? Drake? A.I.?! Jon and Joe battle through an eight-song bracket of the summer’s biggest hits to determine the Song of the Summer for 2026.`\
-https://www.nytimes.com/video/podcasts/100000011055340/the-8-biggest-songs-of-this-summer-face-off.html
 
