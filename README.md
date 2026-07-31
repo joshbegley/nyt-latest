@@ -1,3 +1,7 @@
+**Archaeologists Find Hundreds of Ancient Glyphs in the Amazon**\
+`The geometric earthwork structures, carved into the ground with embankments and ditches, are in some cases more than 2,500 years old, researchers said.`\
+https://www.nytimes.com/2026/07/31/world/americas/amazon-archaeology-geogylphs.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/europe/100000011065650/31vid-fnideq-13067.html
@@ -40,7 +44,7 @@ https://www.nytimes.com/2026/07/31/crosswords/connections-companion-1147.html
 
 **Iran Says It Targeted U.S. Military in Kuwait With Drones**\
 `The Iranian army said it had targeted U.S. assets at a Kuwaiti air base. There were no immediate reports of any attacks from Kuwait or from the U.S. military.`\
-https://www.nytimes.com/2026/07/31/world/middleeast/iran-says-it-targeted-us-military-in-kuwait-with-drones.html
+https://www.nytimes.com/2026/07/31/world/middleeast/iran-us-military-kuwait-drone-attack.html
 
 **Can the N.B.A. Police Itself?**\
 `Does it want to? A reality check.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/31/world/americas/chipotle-restaurant-mexico.htm
 **Flaco on Film (Along With the Community the Owl Inspired)**\
 `“Wild Inside” starts off with the director Penny Lane’s characteristic curiosity and winds up being a collective tribute to a bird and his city.`\
 https://www.nytimes.com/2026/07/31/movies/flaco-owl-wild-inside-documentary.html
-
-**Can Mary Beth Barone Revive Feminist Standup?**\
-`A decade ago, Amy Schumer became the only woman to headline Madison Square Garden. With a new Netflix special, Barone is looking to break out in a very different atmosphere.`\
-https://www.nytimes.com/2026/07/31/arts/television/mary-beth-barone-galaxy-brain-comedy.html
 

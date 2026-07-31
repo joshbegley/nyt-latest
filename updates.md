@@ -1,3 +1,15 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/europe/100000011065650/31vid-fnideq-13067.html
+
+**Trump’s Announcement of Gaza Deal Raises Many Unanswered Questions**\
+`Neither Hamas nor the Israeli government has issued an official statement acknowledging the deal, raising concerns about their eagerness to implement its clauses.`\
+https://www.nytimes.com/2026/07/31/world/middleeast/trump-gaza-hamas-deal-disarm.html
+
+**Iran War Drives Oil Profits to Highest Levels in Years**\
+`The world’s biggest oil companies are benefiting from the high commodity prices that have been a drag on the rest of the economy.`\
+https://www.nytimes.com/2026/07/31/business/energy-environment/exxon-chevron-earnings-iran-war.html
+
 **In Area Hit by Blaze, French Officials Failed to Enforce Wildfire Rules**\
 `Under French rules, homeowners must clear vegetation within roughly 50 yards of their houses. In the forests affected by France’s worst fire in decades, that didn’t happen.`\
 https://www.nytimes.com/2026/07/31/france-heat-firebreak-buffer-wildfire.html
