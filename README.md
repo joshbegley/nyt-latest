@@ -1,3 +1,7 @@
+**Who Would Octavia Spencer Be in Another Life?**\
+`What if Octavia Spencer hadn’t become an actor? She reveals the surprising career she’d choose and the TV obsessions that planted the seed.`\
+https://www.nytimes.com/video/us/100000010953626/octavia-spencer-interview-tv-shows.html
+
 **Leopold Aschenbrenner Built a Hot A.I. Hedge Fund. Then it Melted Down.**\
 `Situational Awareness, led by a 24-year-old, exploded onto the artificial intelligence scene — and then nose-dived.`\
 https://www.nytimes.com/2026/07/31/business/situational-awareness-leopold-aschenbrenner.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/es/2026/07/31/espanol/mundo/amazonia-arqueologia-glifos.
 **Who is Ahead in Florida's 22nd Congressional District?**\
 `Track the latest polls in Florida's 22nd Congressional District.`\
 https://www.nytimes.com/interactive/polls/florida-us-house-22-polls-2026.html
-
-**Who is Ahead in Florida's 8th Congressional District?**\
-`Track the latest polls in Florida's 8th Congressional District.`\
-https://www.nytimes.com/interactive/polls/florida-us-house-8-polls-2026.html
 
 **La crisis de Ceuta, en vivo: la mayoría de los migrantes que llegaron a España han vuelto a Marruecos**\
 `De las 60.000 personas que llegaron a Ceuta, unas 48.000 habían vuelto a casa al cabo de un día. Pero la afluencia repentina puso en jaque al gobierno español.`\
