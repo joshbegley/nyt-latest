@@ -1,3 +1,11 @@
+**John Esposito, Who Challenged Negative Views of Muslims, Dies at 86**\
+`Starting out in the 1970s as a rare American expert on political Islam, he became a prolific scholar and a prominent public intellectual.`\
+https://www.nytimes.com/2026/07/31/books/john-esposito-dead.html
+
+**The Best Clothing Stores in New York**\
+`New York is, was and always will be a shopping town. These are the stores that keep it vibrant and alive.`\
+https://www.nytimes.com/interactive/2026/07/30/style/best-clothes-stores-nyc.html
+
 **Coast Guard Vows to Protect Crews From Brain Injuries Caused by Rough Seas**\
 `The head of the Coast Guard said “decisive action” would be taken so the injuries would be recognized, treated and prevented.`\
 https://www.nytimes.com/2026/07/31/us/31nat-coast-guard-brain-injury-boat-waves-surfmen.html
