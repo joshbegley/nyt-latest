@@ -1,3 +1,15 @@
+**What You Need to Know About Installing Plug-In Solar Panels**\
+`You can now buy panels that plug into electrical outlets, but there are some important safety issues to consider when picking and installing a system.`\
+https://www.nytimes.com/2026/07/31/business/energy-environment/plug-in-solar-panel-guide.html
+
+**The German Auto Industry, a Pillar of the National Psyche, Is Trembling**\
+`The country’s iconic carmakers are struggling with tariffs, the growth of electric vehicles and intense competition from Chinese companies.`\
+https://www.nytimes.com/2026/07/31/business/germany-mercedes-bmw-volkswagen.html
+
+**Major Guggenheim Show Traces Origin and Legacy of Pop Art**\
+`At the Guggenheim Museum, a survey of the origin and legacy of Pop Art tries to extract from the movement a conscience it never really had, our critic argues.`\
+https://www.nytimes.com/2026/07/31/arts/design/guggenheim-pop-art-review.html
+
 **Can the Gritty ‘Spider-Man: Brand New Day’ Save the Superhero Movie?**\
 `The newest entry in the franchise took a more grounded approach, a departure for a spectacle-focused genre that is teetering at the box office.`\
 https://www.nytimes.com/2026/07/31/movies/spider-man-brand-new-day-movie.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/31/style/sienna-gomez-cole-hosman-wedding.html
 **The Marriage I Cherished No Longer Existed**\
 `The husband I treasured had disappeared. Why was I happy?`\
 https://www.nytimes.com/2026/07/31/style/modern-love-the-marriage-i-cherished-no-longer-existed.html
-
-**NYT Crossword Answers for July 31, 2026**\
-`Rafael Musa returns to open our solving weekend.`\
-https://www.nytimes.com/2026/07/30/crosswords/daily-puzzle-2026-07-31.html
-
-**What to Know About Ceuta**\
-`The peninsula on Morocco’s northern coast that Spain has governed for centuries has been a frequent site of mass migrant crossings and political tensions.`\
-https://www.nytimes.com/2026/07/30/world/europe/ceuta-spain-morocco-migrants.html
-
-**What We Know About Dr. Fauci Pleading the Fifth in Senate Hearing on Covid Origins**\
-`In a three-hour Senate hearing this week, Dr. Fauci invoked his constitutional right to stay silent, leaving people confused about many of the issues raised.`\
-https://www.nytimes.com/2026/07/30/health/fauci-allegations-covid-origins.html
 

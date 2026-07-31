@@ -1,3 +1,79 @@
+**Can the Gritty ‘Spider-Man: Brand New Day’ Save the Superhero Movie?**\
+`The newest entry in the franchise took a more grounded approach, a departure for a spectacle-focused genre that is teetering at the box office.`\
+https://www.nytimes.com/2026/07/31/movies/spider-man-brand-new-day-movie.html
+
+**Broadway Shows Closing Soon: ‘Death of a Salesman,’ ‘Ragtime’ and More**\
+`Catch these Tony Award winners and nominees before the curtain comes down on them for a final time.`\
+https://www.nytimes.com/2026/07/31/theater/broadway-shows-closing-soon-death-of-a-salesman-ragtime-and-more.html
+
+**How Trump Has Changed, With Maggie Haberman**\
+`The New York Times correspondent says 70 percent of the president’s mind is dedicated to White House renovations.`\
+https://www.nytimes.com/video/opinion/100000011044730/how-trump-has-changed-with-maggie-haberman.html
+
+**Texas and Florida Draw Up Terrorism Lists and Take Aim at a Muslim Group**\
+`The federal government designates terrorism groups. But Governors Ron DeSantis and Greg Abbott have gotten in the game, and a focus is CAIR, a nonprofit.`\
+https://www.nytimes.com/2026/07/31/us/texas-florida-terrorism-lists-cair-muslim.html
+
+**Selling Burritos Back to Mexico: Chipotle’s Bold Expansion**\
+`As the Mexican-inspired American chain makes its debut in Mexico, it faces a major hurdle: convincing Mexicans to buy an Americanized take on their own national cuisine.`\
+https://www.nytimes.com/2026/07/31/world/americas/chipotle-restaurant-mexico.html
+
+**Flaco on Film (Along With the Community the Owl Inspired)**\
+`“Wild Inside” starts off with the director Penny Lane’s characteristic curiosity and winds up being a collective tribute to a bird and his city.`\
+https://www.nytimes.com/2026/07/31/movies/flaco-owl-wild-inside-documentary.html
+
+**Can Mary Beth Barone Revive Feminist Standup?**\
+`A decade ago, Amy Schumer became the only woman to headline Madison Square Garden. With a new Netflix special, Barone is looking to break out in a very different atmosphere.`\
+https://www.nytimes.com/2026/07/31/arts/television/mary-beth-barone-galaxy-brain-comedy.html
+
+**22 New Books to Read in August: Rachel Cusk, Riley Sager, Claudia Rankine and More**\
+`Gripping thrillers, hockey romance, political history, an Appalachian Trail memoir and more.`\
+https://www.nytimes.com/2026/07/31/books/new-books-august.html
+
+**Word of the Day: skedaddle**\
+`This word has appeared in nine articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/07/31/learning/word-of-the-day-skedaddle.html
+
+**A Defense of Ma in Laura Ingalls Wilder’s Little House Books**\
+`How I went from being Team Pa to recognizing Laura Ingalls Wilder’s less charismatic, quietly heroic and equally crazy creation, Caroline Ingalls.`\
+https://www.nytimes.com/2026/07/31/books/review/little-house-on-the-prairie-celebrating-ma.html
+
+**Plug-In Solar Panels Are Starting to Sprout in U.S. Backyards**\
+`Ten U.S. states have legalized systems that can be plugged into standard wall outlets. The technology typically does not require permits or electricians.`\
+https://www.nytimes.com/2026/07/31/business/energy-environment/plug-in-balcony-solar.html
+
+**To Save Japan’s Heritage Homes, People Are Shipping Them Across the World**\
+`Millions of abandoned kominkas are scattered across Japan. Now, teams of enthusiasts are dismantling and rebuilding them overseas.`\
+https://www.nytimes.com/2026/07/31/realestate/japan-heritage-homes-kominka-preservation.html
+
+**The Best Summer Drinks for a Crowd**\
+`It’s hot, it’s muggy and the last thing anybody wants is a hassle. These easy-to-prepare drinks are cooling and delicious.`\
+https://www.nytimes.com/2026/07/31/dining/drinks/cold-summer-drinks-for-a-crowd.html
+
+**How the Pro-Trump Media Ecosystem Is Splintering Ahead of the Midterms**\
+`Once united in support of President Trump, right-wing influencers are embroiled in feuds and losing viewers, creating a problem for Republicans in the midterm elections.`\
+https://www.nytimes.com/2026/07/31/us/politics/trump-iran-economy-media-critics.html
+
+**Book Review: ‘The Savage Landscape,’ by Cal Flyn**\
+`In “The Savage Landscape,” the nature writer Cal Flyn argues that wilderness is just one more man-made invention.`\
+https://www.nytimes.com/2026/07/31/books/review/the-savage-landscape-cal-flyn.html
+
+**I Flew in the Douglas DC-3, a WWII Workhorse of Aviation, Over the Amazon**\
+`The Douglas DC-3 was mass produced during World War II. Today, one of the few still remaining transports passengers in Colombia’s jungle.`\
+https://www.nytimes.com/2026/07/31/world/americas/plane-douglas-dc3-wwii-colombia.html
+
+**In a World of Mirrors, Everything Is Strange**\
+`Staring at ourselves on screens, on video and on social media is taking us to a dark place.`\
+https://www.nytimes.com/2026/07/31/opinion/face-self-reflection-technology-video.html
+
+**Can Key West Still Be a Home for Writers?**\
+`Ernest Hemingway, Judy Blume and other literary luminaries have long called the island home. As housing costs increase, many locals are taking steps to preserve and perpetuate this legacy.`\
+https://www.nytimes.com/2026/07/31/realestate/key-west-florida-literature-hemingway-housing.html
+
+**At Least 34 Dead From Coal Mine Blast in Pakistan**\
+`Rescuers were searching for missing bodies from the accident in one of the country’s mining hubs, where methane gas explosions and mine collapses are frequent.`\
+https://www.nytimes.com/2026/07/31/world/asia/pakistan-coal-mine-explosion.html
+
 **Spain’s Leader Rushes to Ceuta After Thousands of Migrants Burst Across Border**\
 `Prime Minister Pedro Sánchez was set to arrive in Ceuta, a Spanish territory in Africa, amid an escalating crisis for his pro-immigration government.`\
 https://www.nytimes.com/2026/07/31/world/europe/spain-ceuta-border-migrants-sanchez.html
@@ -43,8 +119,8 @@ https://www.nytimes.com/video/world/australia/100000011065374/humpback-whale-bir
 https://www.nytimes.com/2026/07/31/opinion/india-protests-modi-democracy.html
 
 **10 Climbers, Including Nims Purja, Missing After Avalanche on Broad Peak in Pakistan**\
-`Nirmal Purja, an influential mountaineer, was part of a group struck by an avalanche on Broad Peak, an alpine organization said. A search effort was being mobilized.`\
-https://www.nytimes.com/2026/07/31/world/asia/nirmal-purja-nims-avalanche-broad-peak-pakistan.html
+`The group caught on one of the world’s highest peaks included the influential British-Nepali mountaineer Nirmal Purja and an American climber, an alpine organization said.`\
+https://www.nytimes.com/2026/07/31/world/asia/nirmal-purja-nims-avalanche-pakistan.html
 
 **Una enorme cantidad de basura espacial cae a la Tierra cada semana**\
 `Pedazos de metal en llamas caen sobre casas, granjas y estacionamientos. ¿De quién es la culpa? ¿Y quién paga por los daños?`\
@@ -121,80 +197,4 @@ https://www.nytimes.com/2026/07/30/world/europe/ceuta-spain-morocco-migrants.htm
 **What We Know About Dr. Fauci Pleading the Fifth in Senate Hearing on Covid Origins**\
 `In a three-hour Senate hearing this week, Dr. Fauci invoked his constitutional right to stay silent, leaving people confused about many of the issues raised.`\
 https://www.nytimes.com/2026/07/30/health/fauci-allegations-covid-origins.html
-
-**What Is the Board of Peace? The Trump-Backed Group, Explained.**\
-`President Trump created the international organization, aimed at resolving the long-running war in Gaza and other conflicts.`\
-https://www.nytimes.com/2026/07/30/us/politics/what-is-the-board-of-peace.html
-
-**Nimbu Pani (Limeade)**\
-`Funky, salty and exceedingly sour, nimbu pani is a cool reprieve from the sweltering summer days in Lahore and across most parts of South Asia.`\
-https://www.nytimes.com/video/dining/100000011065141/nimbu-pani-limeade.html
-
-**Mexico’s President Unveils Plan to Fight Seaweed That Is Choking Beaches**\
-`The seaweed — a stinky, brown algae known as sargassum — has plagued Mexico and the broader region for more than a decade, but this year’s forecast is setting records.`\
-https://www.nytimes.com/2026/07/30/world/americas/mexico-sargassum-beach-cleanup.html
-
-**Anthropic dice que su IA se infiltró en 3 organizaciones**\
-`La revelación sucede después de que otra empresa del sector, OpenAI, dio a conocer que su propia tecnología hackeó una biblioteca digital.`\
-https://www.nytimes.com/es/2026/07/30/espanol/negocios/anthropic-hackeo.html
-
-**Brownies With Coffee and Cardamom**\
-`These brownies are infused with the flavors of Arabic coffee, which traditionally include ground cardamom and often other spices such cinnamon, saffron or rose water.`\
-https://www.nytimes.com/video/dining/100000011065120/brownies-with-coffee-and-cardamom.html
-
-**Kennedy Center Halts Free Public Tours After Five Decades of Service**\
-`The decision to suspend tours indefinitely came after a volunteer tour guide was featured in a Times article detailing President Trump’s dramatic revamp of the Kennedy Center.`\
-https://www.nytimes.com/2026/07/30/us/politics/kennedy-center-tours.html
-
-**Thousands of Migrants Cross Into Spain’s North African Territory**\
-`On Thursday, Spain mobilized its military after thousands of migrants swam and climbed into Ceuta, a six-mile-long peninsula governed by Spain on Morocco’s northern coast. Some migrants had swum miles to reach the shore.`\
-https://www.nytimes.com/video/world/africa/100000011063705/morocco-spain-migrants-swim.html
-
-**Anthropic Says Its A.I. Systems Broke Into Computers at 3 Organizations**\
-`The disclosure followed OpenAI’s report last week that its own artificial intelligence had hacked into the network of an online library.`\
-https://www.nytimes.com/2026/07/30/technology/anthropic-ai-hack.html
-
-**Toasted Coconut Rice Salad**\
-`Fluffy toasted rice meets crunchy slaw in this gingery, tofu-topped salad. Jasmine rice gets toasted until fragrant and lightly golden, then it’s cooked with coconut milk to yield a supremely nutty base for the salad.`\
-https://www.nytimes.com/video/dining/100000011065107/toasted-coconut-rice-salad.html
-
-**Defying Trump, Cornyn Uses His Lame-Duck Power**\
-`In standing in the way of Todd Blanche, President Trump’s choice for attorney general, a liberated Senator John Cornyn is wielding his leverage.`\
-https://www.nytimes.com/2026/07/30/us/politics/cornyn-trump-blanche.html
-
-**Trump Says Peace Board Has Plan for Gaza Disarmament**\
-`There was no immediate comment from Hamas or Israel, though the Board of Peace said Hamas had agreed to a “road map” to give up its weapons.`\
-https://www.nytimes.com/2026/07/30/us/politics/trump-gaza-peace-board-hamas.html
-
-**Mamdani Leaves Door Open to Paying Reparations to Black New Yorkers**\
-`The mayor said in recent interviews that it was important to acknowledge the city’s role in slavery but that he could not commit to payouts before his racial equity commission completes its report.`\
-https://www.nytimes.com/2026/07/30/nyregion/mamdani-reparations-slavery.html
-
-**Los padres de un niño encontrado vivo en una morgue de Arizona no enfrentarán cargos**\
-`El menor de 18 meses fue encontrado inconsciente en una piscina y fue declarado muerto. Un empleado del servicio forense descubrió más tarde que estaba respirando.`\
-https://www.nytimes.com/es/2026/07/30/espanol/estados-unidos/nino-ahogado-vivo-padres.html
-
-**Alabama Plans Inmate’s Execution After Supreme Court Blocked Last Attempt**\
-`The state will try again to execute Jeffery Lee — this time, by lethal injection — after courts said doing so using nitrogen gas was “likely unconstitutional.”`\
-https://www.nytimes.com/2026/07/30/us/alabama-execution-supreme-court-lee.html
-
-**In Queens, a Fantastical Garden Featuring a 25-Foot-Long Teddy Bear**\
-`Ahead of their installation at MoMA PS1, the artist Precious Okoyomon discusses finding inspiration in an empty room and embracing absurdity.`\
-https://www.nytimes.com/2026/07/30/t-magazine/precious-okoyomon-moma-ps1.html
-
-**España vuelve a enfrentar presión migratoria en Ceuta por el cruce de miles de migrantes**\
-`El aumento repentino de cruces hacia Ceuta volvió a poner a prueba la relación entre España y Marruecos y la capacidad de respuesta de las autoridades europeas.`\
-https://www.nytimes.com/es/2026/07/30/espanol/mundo/espana-marruecos-ceuta-migrantes.html
-
-**Seattle’s Police Chief Resigns Under Pressure After Festival Shooting**\
-`The decision followed days of criticism over how the department handled the release of information about a shooting that killed three people.`\
-https://www.nytimes.com/2026/07/30/us/seattle-police-chief-resigns.html
-
-**Iran War Is Entangling a Growing List of Mideast Nations**\
-`As the U.S. and Iran exchange strikes, more countries are being touched — and some are joining in.`\
-https://www.nytimes.com/2026/07/30/world/middleeast/us-iran-war-expansion.html
-
-**Texas Parents Try New Tactic to Remove Ten Commandments From Schools**\
-`A lawsuit filed by three parents argues that the displays violate a state religious freedom law and asks for them to be removed before school starts in August.`\
-https://www.nytimes.com/2026/07/30/us/ten-commandments-texas-schools-lawsuit.html
 

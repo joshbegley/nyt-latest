@@ -1,3 +1,83 @@
+**Can the Gritty ‘Spider-Man: Brand New Day’ Save the Superhero Movie?**\
+`The newest entry in the franchise took a more grounded approach, a departure for a spectacle-focused genre that is teetering at the box office.`\
+https://www.nytimes.com/2026/07/31/movies/spider-man-brand-new-day-movie.html
+
+**Broadway Shows Closing Soon: ‘Death of a Salesman,’ ‘Ragtime’ and More**\
+`Catch these Tony Award winners and nominees before the curtain comes down on them for a final time.`\
+https://www.nytimes.com/2026/07/31/theater/broadway-shows-closing-soon-death-of-a-salesman-ragtime-and-more.html
+
+**How Trump Has Changed, With Maggie Haberman**\
+`The New York Times correspondent says 70 percent of the president’s mind is dedicated to White House renovations.`\
+https://www.nytimes.com/video/opinion/100000011044730/how-trump-has-changed-with-maggie-haberman.html
+
+**Texas and Florida Draw Up Terrorism Lists and Take Aim at a Muslim Group**\
+`The federal government designates terrorism groups. But Governors Ron DeSantis and Greg Abbott have gotten in the game, and a focus is CAIR, a nonprofit.`\
+https://www.nytimes.com/2026/07/31/us/texas-florida-terrorism-lists-cair-muslim.html
+
+**Selling Burritos Back to Mexico: Chipotle’s Bold Expansion**\
+`As the Mexican-inspired American chain makes its debut in Mexico, it faces a major hurdle: convincing Mexicans to buy an Americanized take on their own national cuisine.`\
+https://www.nytimes.com/2026/07/31/world/americas/chipotle-restaurant-mexico.html
+
+**Flaco on Film (Along With the Community the Owl Inspired)**\
+`“Wild Inside” starts off with the director Penny Lane’s characteristic curiosity and winds up being a collective tribute to a bird and his city.`\
+https://www.nytimes.com/2026/07/31/movies/flaco-owl-wild-inside-documentary.html
+
+**Can Mary Beth Barone Revive Feminist Standup?**\
+`A decade ago, Amy Schumer became the only woman to headline Madison Square Garden. With a new Netflix special, Barone is looking to break out in a very different atmosphere.`\
+https://www.nytimes.com/2026/07/31/arts/television/mary-beth-barone-galaxy-brain-comedy.html
+
+**22 New Books to Read in August: Rachel Cusk, Riley Sager, Claudia Rankine and More**\
+`Gripping thrillers, hockey romance, political history, an Appalachian Trail memoir and more.`\
+https://www.nytimes.com/2026/07/31/books/new-books-august.html
+
+**Word of the Day: skedaddle**\
+`This word has appeared in nine articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/07/31/learning/word-of-the-day-skedaddle.html
+
+**A Defense of Ma in Laura Ingalls Wilder’s Little House Books**\
+`How I went from being Team Pa to recognizing Laura Ingalls Wilder’s less charismatic, quietly heroic and equally crazy creation, Caroline Ingalls.`\
+https://www.nytimes.com/2026/07/31/books/review/little-house-on-the-prairie-celebrating-ma.html
+
+**Plug-In Solar Panels Are Starting to Sprout in U.S. Backyards**\
+`Ten U.S. states have legalized systems that can be plugged into standard wall outlets. The technology typically does not require permits or electricians.`\
+https://www.nytimes.com/2026/07/31/business/energy-environment/plug-in-balcony-solar.html
+
+**To Save Japan’s Heritage Homes, People Are Shipping Them Across the World**\
+`Millions of abandoned kominkas are scattered across Japan. Now, teams of enthusiasts are dismantling and rebuilding them overseas.`\
+https://www.nytimes.com/2026/07/31/realestate/japan-heritage-homes-kominka-preservation.html
+
+**The Best Summer Drinks for a Crowd**\
+`It’s hot, it’s muggy and the last thing anybody wants is a hassle. These easy-to-prepare drinks are cooling and delicious.`\
+https://www.nytimes.com/2026/07/31/dining/drinks/cold-summer-drinks-for-a-crowd.html
+
+**How the Pro-Trump Media Ecosystem Is Splintering Ahead of the Midterms**\
+`Once united in support of President Trump, right-wing influencers are embroiled in feuds and losing viewers, creating a problem for Republicans in the midterm elections.`\
+https://www.nytimes.com/2026/07/31/us/politics/trump-iran-economy-media-critics.html
+
+**Book Review: ‘The Savage Landscape,’ by Cal Flyn**\
+`In “The Savage Landscape,” the nature writer Cal Flyn argues that wilderness is just one more man-made invention.`\
+https://www.nytimes.com/2026/07/31/books/review/the-savage-landscape-cal-flyn.html
+
+**I Flew in the Douglas DC-3, a WWII Workhorse of Aviation, Over the Amazon**\
+`The Douglas DC-3 was mass produced during World War II. Today, one of the few still remaining transports passengers in Colombia’s jungle.`\
+https://www.nytimes.com/2026/07/31/world/americas/plane-douglas-dc3-wwii-colombia.html
+
+**In a World of Mirrors, Everything Is Strange**\
+`Staring at ourselves on screens, on video and on social media is taking us to a dark place.`\
+https://www.nytimes.com/2026/07/31/opinion/face-self-reflection-technology-video.html
+
+**Can Key West Still Be a Home for Writers?**\
+`Ernest Hemingway, Judy Blume and other literary luminaries have long called the island home. As housing costs increase, many locals are taking steps to preserve and perpetuate this legacy.`\
+https://www.nytimes.com/2026/07/31/realestate/key-west-florida-literature-hemingway-housing.html
+
+**At Least 34 Dead From Coal Mine Blast in Pakistan**\
+`Rescuers were searching for missing bodies from the accident in one of the country’s mining hubs, where methane gas explosions and mine collapses are frequent.`\
+https://www.nytimes.com/2026/07/31/world/asia/pakistan-coal-mine-explosion.html
+
+**10 Climbers, Including Nims Purja, Missing After Avalanche on Broad Peak in Pakistan**\
+`The group caught on one of the world’s highest peaks included the influential British-Nepali mountaineer Nirmal Purja and an American climber, an alpine organization said.`\
+https://www.nytimes.com/2026/07/31/world/asia/nirmal-purja-nims-avalanche-pakistan.html
+
 **A Ton of Space Junk Tumbles Unpredictably to Earth Every Week**\
 `Flaming chunks of metal crash into homes, farms and parking lots. Who’s to blame? And who pays for the damage?`\
 https://www.nytimes.com/2026/07/31/world/asia/space-debris-falling-crashing-earth-risk.html
