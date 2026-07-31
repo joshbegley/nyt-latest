@@ -1,3 +1,7 @@
+**State Dept. to Release 250,000 More Trump Passports With His Portrait**\
+`An additional 250,000 commemorative passports, featuring a portrait of President Trump and intended to honor the nation’s 250th anniversary, will be made available at in-person events.`\
+https://www.nytimes.com/2026/07/31/travel/trump-passports-usa-250th-anniversary.html
+
 **John Esposito, Who Challenged Negative Views of Muslims, Dies at 86**\
 `Starting out in the 1970s as a rare American expert on political Islam, he became a prolific scholar and a prominent public intellectual.`\
 https://www.nytimes.com/2026/07/31/books/john-esposito-dead.html
@@ -86,10 +90,6 @@ https://www.nytimes.com/es/2026/07/31/espanol/america-latina/unam-examen-admisio
 `El cuerpo de Nadhira Alharthy, la primera mujer omaní en alcanzar la cima del Everest, estaba entre los cuerpos recuperados. El alpinista influente Nirmal Purja estaba desaparecido.`\
 https://www.nytimes.com/es/2026/07/31/espanol/mundo/avalancha-alpinistas-pakistan.html
 
-**Líderes de extrema derecha aprovechan la crisis en Ceuta para reforzar su postura antiinmigrante**\
-`Varios migrantes que cruzaron a Ceuta atribuyeron su llegada a los laxos protocolos fronterizos de Marruecos. Pero el sector antiinmigrante de Europa culpó a la política promigración de España.`\
-https://www.nytimes.com/es/2026/07/31/espanol/mundo/ceuta-derecha-politicos-migrantes.html
-
 **Flashback: Your Weekly History Quiz, August 1, 2026**\
 `Can you sort 8 historical events?`\
 https://www.nytimes.com/interactive/2026/07/31/upshot/flashback.html
@@ -154,8 +154,8 @@ https://www.nytimes.com/2026/07/31/movies/science-fiction-movies-streaming.html
 `Several migrants who crossed into Ceuta attributed their arrival to lax Moroccan border protocols. But Europe’s anti-immigrant politicians blamed Spain’s migrant-friendly policies.`\
 https://www.nytimes.com/2026/07/31/world/europe/ceuta-europe-far-right-backlash.html
 
-**Crisis migratoria en Ceuta, en vivo: la mayoría de los migrantes que llegaron a España han regresado a Marruecos**\
-`De las 60.000 personas que llegaron a Ceuta, unas 37.000 volvieron en un día. Pero la repentina afluencia provocó una crisis en el gobierno español. Al menos 34 personas fallecieron.`\
+**La crisis de Ceuta, en vivo: la mayoría de los migrantes que llegaron a España han vuelto a Marruecos**\
+`De las 60.000 personas que llegaron a Ceuta, unas 37.000 volvieron en un día. Pero la repentina afluencia puso en jaque al gobierno español. Al menos 34 personas fallecieron.`\
 https://www.nytimes.com/live/2026/07/31/espanol/espana-ceuta-inmigrantes-crisis
 
 **Missteps Mount in Justice Dept.’s Case Against Minnesota Anti-ICE Protesters**\
@@ -193,8 +193,4 @@ https://www.nytimes.com/2026/07/31/world/europe/iran-spy-uk-air-base-cyprus-sult
 **BP Puts Its North Sea Drilling Business Up for Sale**\
 `The plans are part of the energy giant’s efforts to streamline operations, but BP has deep roots in the region.`\
 https://www.nytimes.com/2026/07/31/business/bp-north-sea.html
-
-**Inflation Worries Prompted Fed Officials to Dissent on Holding Rates Steady**\
-`Internal divisions over whether to raise interest rates intensified at Kevin Warsh’s second meeting as chairman of the Federal Reserve.`\
-https://www.nytimes.com/2026/07/31/business/economy/inflation-fed-dissent-interest-rates.html
 

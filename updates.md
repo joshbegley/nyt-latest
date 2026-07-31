@@ -1,3 +1,11 @@
+**State Dept. to Release 250,000 More Trump Passports With His Portrait**\
+`An additional 250,000 commemorative passports, featuring a portrait of President Trump and intended to honor the nation’s 250th anniversary, will be made available at in-person events.`\
+https://www.nytimes.com/2026/07/31/travel/trump-passports-usa-250th-anniversary.html
+
+**La crisis de Ceuta, en vivo: la mayoría de los migrantes que llegaron a España han vuelto a Marruecos**\
+`De las 60.000 personas que llegaron a Ceuta, unas 37.000 volvieron en un día. Pero la repentina afluencia puso en jaque al gobierno español. Al menos 34 personas fallecieron.`\
+https://www.nytimes.com/live/2026/07/31/espanol/espana-ceuta-inmigrantes-crisis
+
 **John Esposito, Who Challenged Negative Views of Muslims, Dies at 86**\
 `Starting out in the 1970s as a rare American expert on political Islam, he became a prolific scholar and a prominent public intellectual.`\
 https://www.nytimes.com/2026/07/31/books/john-esposito-dead.html
