@@ -1,3 +1,11 @@
+**Anthropic Says Its A.I. Systems Broke Into Computers at 3 Organizations**\
+`The disclosure followed OpenAI’s report last week that its own artificial intelligence had hacked into the network of an online library.`\
+https://www.nytimes.com/2026/07/30/technology/anthropic-ai-hack.html
+
+**Defying Trump, Cornyn Uses His Lame-Duck Power**\
+`In standing in the way of Todd Blanche, President Trump’s choice for attorney general, a liberated Senator John Cornyn is wielding his leverage.`\
+https://www.nytimes.com/2026/07/30/us/politics/cornyn-trump-blanche.html
+
 **Toasted Coconut Rice Salad**\
 `Fluffy toasted rice meets crunchy slaw in this gingery, tofu-topped salad. Jasmine rice gets toasted until fragrant and lightly golden, then it’s cooked with coconut milk to yield a supremely nutty base for the salad.`\
 https://www.nytimes.com/video/dining/100000011065107/toasted-coconut-rice-salad.html

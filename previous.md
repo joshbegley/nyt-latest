@@ -1,10 +1,14 @@
+**Anthropic Says Its A.I. Systems Broke Into Computers at 3 Organizations**\
+`The disclosure followed OpenAI’s report last week that its own artificial intelligence had hacked into the network of an online library.`\
+https://www.nytimes.com/2026/07/30/technology/anthropic-ai-hack.html
+
 **Toasted Coconut Rice Salad**\
 `Fluffy toasted rice meets crunchy slaw in this gingery, tofu-topped salad. Jasmine rice gets toasted until fragrant and lightly golden, then it’s cooked with coconut milk to yield a supremely nutty base for the salad.`\
 https://www.nytimes.com/video/dining/100000011065107/toasted-coconut-rice-salad.html
 
 **Defying Trump, Cornyn Uses His Lame-Duck Power**\
 `In standing in the way of Todd Blanche, President Trump’s choice for attorney general, a liberated Senator John Cornyn is wielding his leverage.`\
-https://www.nytimes.com/2026/07/30/us/politics/defying-trump-cornyn-uses-his-lame-duck-power.html
+https://www.nytimes.com/2026/07/30/us/politics/cornyn-trump-blanche.html
 
 **Trump Claims Peace Board Has Plan for Gaza Disarmament**\
 `There was no immediate comment from Hamas or Israel, and officials gave few details on the plan.`\
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/07/30/science/ancient-small-pox.html
 **The Folk Singer Linda Perhacs Is Found and Is Safe, Authorities Confirm**\
 `Friends of the “Parallelograms” artist, who was reported missing earlier this week, said she is living in a new care facility.`\
 https://www.nytimes.com/2026/07/30/arts/music/linda-perhacs-found-folk-singer.html
-
-**Saudi Arabia Aims to Deter Red Sea Attacks With New Coalition**\
-`Facing attacks by Yemen’s Houthi militia, Saudi Arabia has invited dozens of countries to assist it in protecting shipping in the Red Sea, diplomats say.`\
-https://www.nytimes.com/2026/07/30/world/middleeast/saudi-arabia-red-sea-houthis.html
 
