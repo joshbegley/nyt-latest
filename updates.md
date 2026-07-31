@@ -1,3 +1,7 @@
+**Trump Says Peace Board Has Plan for Gaza Disarmament**\
+`There was no immediate comment from Hamas or Israel, though the Board of Peace said Hamas had agreed to a “road map” to give up its weapons.`\
+https://www.nytimes.com/2026/07/30/us/politics/trump-gaza-peace-board-hamas.html
+
 **What to Know About Ceuta**\
 `The peninsula on Morocco’s northern coast that Spain has governed for centuries has been a frequent site of mass migrant crossings and political tensions.`\
 https://www.nytimes.com/2026/07/30/world/europe/ceuta-spain-morocco-migrants.html
