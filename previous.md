@@ -1,3 +1,127 @@
+**How to Stop Procrastinating**\
+`Set your “future self” up for success by removing productivity obstacles.`\
+https://www.nytimes.com/2026/07/31/well/stop-procrastinating-tips.html
+
+**Chipotle emprende una expansión audaz: vender burritos en México**\
+`La cadena estadounidense de comida rápida debutó en Monterrey con el desafío de convencer a los clientes de comprar una versión extranjera de la gastronomía nacional.`\
+https://www.nytimes.com/es/2026/07/31/espanol/america-latina/chipotle-mexico-monterrey.html
+
+**Five Takeaways From the Times Investigation Into Larry Ellison’s A.I. Gamble**\
+`The billionaire’s company took on ominous loads of debt to build data centers around the world. The implications go far beyond Oracle.`\
+https://www.nytimes.com/2026/07/31/magazine/takeaways-larry-ellison-oracle-ai.html
+
+**Vote for Your Favorite $1 Million Home in Italy**\
+`Forming the heel of Italy’s “boot,” the southern Apulia region offers historic homes with architectural delicacies and wide-open spaces.`\
+https://www.nytimes.com/2026/07/31/realestate/vote-for-your-favorite-1-million-home-in-italy.html
+
+**5 New Movies Our Critics Are Talking About This Week**\
+`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
+https://www.nytimes.com/2026/07/31/movies/5-new-movies-our-critics-are-talking-about-this-week.html
+
+**The New York Times News Quiz, July 31, 2026**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://www.nytimes.com/interactive/2026/07/31/briefing/news-quiz-iran-war-europe-wildfires.html
+
+**Deja de patologizar la vida cotidiana**\
+`Necesitamos apoyar el bienestar psicológico sin obsesionarnos con él.`\
+https://www.nytimes.com/es/2026/07/31/espanol/opinion/salud-mental-obsesion.html
+
+**Emily Wilson’s Pan of ‘The Odyssey’ Ignites a Debate Among Classicists and Commenters**\
+`Emily Wilson, whose 2017 translation of Homer’s Greek classic influenced the director Christopher Nolan, panned his screenplay for the movie version in an essay for The London Review of Books.`\
+https://www.nytimes.com/2026/07/31/arts/the-odyssey-emily-wilson-christopher-nolan.html
+
+**Soccer’s Not for Sale. Give the Boot to FIFA’s Private Equity Play.**\
+`Soccer federations should stop FIFA’s boss, Gianni Infantino, from selling it out.`\
+https://www.nytimes.com/2026/07/31/opinion/fifa-uefa-boycott-deal-thrive.html
+
+**How to Shop for Homeowner’s Insurance**\
+`We decode the jargon and explain how to get the coverage your home needs.`\
+https://www.nytimes.com/2026/07/31/podcasts/how-to-shop-for-homeowners-insurance.html
+
+**Should You Be Able to Tell Kevin Costner and Bill Paxton Apart?**\
+`A ruling on a movie-night dispute.`\
+https://www.nytimes.com/interactive/2026/07/31/magazine/paxton-costner-hodgman-quiz.html
+
+**We All Do Errands. Noah Blau Films Them.**\
+`Fighting a traffic ticket. Hanging a curtain. Installing an air-conditioner. With his cult-hit online series, Noah Blau has made the mundane fascinating.`\
+https://www.nytimes.com/2026/07/31/style/errands-should-be-the-most-boring-show-on-the-internet.html
+
+**The Todd Blanche Chaos Shows Why He Shouldn’t Be Attorney General**\
+`Don’t forget this key reason the Senate should reject him.`\
+https://www.nytimes.com/2026/07/31/opinion/todd-blanche-attorney-general-senate-hearing.html
+
+**How Trump Has Changed, With Maggie Haberman**\
+`The New York Times correspondent says 70 percent of the president’s mind is dedicated to White House renovations.`\
+https://www.nytimes.com/2026/07/31/opinion/ezra-klein-podcast-maggie-haberman.html
+
+**The Perfect BLT Doesn’t Need to Be Perfect**\
+`It’s the sandwich of the summer every summer, but our writer discovers this American classic is also a pleasure for all seasons.`\
+https://www.nytimes.com/2026/07/31/dining/perfect-blt.html
+
+**Larry Ellison Bet It All on the A.I. Boom. Will He Be the Face of the A.I. Bubble?**\
+`Inside the 81-year-old billionaire’s risky, debt-fueled scramble to transform his data empire into an A.I. juggernaut.`\
+https://www.nytimes.com/2026/07/31/magazine/larry-ellison-ai-oracle.html
+
+**Critics Say Historic Sites Are Endangered by Trump-Aligned Panel’s Plan**\
+`Proponents say the changes to the federal preservation rules are necessary, but critics argue they are alarming and would help expedite the president’s redesign of Washington.`\
+https://www.nytimes.com/2026/07/31/arts/critics-say-historic-sites-are-endangered-by-trump-aligned-panels-plan.html
+
+**Will ‘Barbie’ Get a Sequel? Warner Bros. Is Scrambling to Reach a Deal.**\
+`Three years after the $1.5 billion hit, Warner Bros. is trying to reach a deal before December, when the rights for a sequel revert to Mattel.`\
+https://www.nytimes.com/2026/07/31/business/media/barbie-sequel-warner-bros-mattel.html
+
+**In Trump’s Economy, Job Gains Go to Women. That’s Not an Entirely Good Thing.**\
+`Despite the administration’s best attempts, the diminishing status of many American jobs is driving a spike in women’s employment.`\
+https://www.nytimes.com/2026/07/31/magazine/american-women-workforce.html
+
+**Ella Langley? Drake? Stella Lefty? A Song of the Summer Debate.**\
+`Can Drake reclaim the throne? Is it the season of Stella Lefty? Or is Ella Langley inevitable?`\
+https://www.nytimes.com/2026/07/31/arts/music/what-is-the-song-of-the-summer-breaking-down-the-8-top-contenders.html
+
+**The 8 Biggest Songs of This Summer Face Off**\
+`Ella Langley? Drake? A.I.?! Jon and Joe battle through an eight-song bracket of the summer’s biggest hits to determine the Song of the Summer for 2026.`\
+https://www.nytimes.com/video/podcasts/100000011055340/the-8-biggest-songs-of-this-summer-face-off.html
+
+**Book Club: Read ‘London Falling,’ by Patrick Radden Keefe, With the Book Review**\
+`In August, the Book Review Book Club will read and discuss Patrick Radden Keefe’s dazzling investigation into the death of a British teenager.`\
+https://www.nytimes.com/2026/07/31/books/review/london-falling-patrick-radden-keefe-book-club.html
+
+**German Authorities Knew of Pride Attacker’s Extremism**\
+`The assailant, a German citizen, was imprisoned after trying to join the Islamic State but freed weeks before attacking a gay Pride event in Berlin.`\
+https://www.nytimes.com/2026/07/31/world/europe/germany-pride-attack-extremism.html
+
+**Big Losses for Small Businesses in the ‘Frozen Zone’**\
+`Restaurants near the buckling building in Midtown faced spoiled food and furloughs after being forced to shut down for weeks.`\
+https://www.nytimes.com/2026/07/31/nyregion/big-losses-for-small-businesses-in-the-frozen-zone.html
+
+**Exploring Helsinki Through the Dreamy Architecture of Eliel Saarinen**\
+`A writer goes in search of the architect Eliel Saarinen, whose Art Nouveau-inspired designs helped shape early-1900s Finland as well as midcentury America.`\
+https://www.nytimes.com/2026/07/31/travel/helsinki-architecture-eliel-saarinen-art-nouveau.html
+
+**A Stab Wound, Then a Real Emergency**\
+`The man was stoic, but stitching up his injury made the pain even worse.`\
+https://www.nytimes.com/2026/07/31/well/wound-swelling-compartment-syndome.html
+
+**Vivek Ramaswamy Wants to Be the Future. First He Has to Win.**\
+`His brand of post-Trump fusionism faces a test in Ohio.`\
+https://www.nytimes.com/2026/07/31/opinion/vivek-ramaswamy-ohio-trump.html
+
+**Europe Is Caught Between Low Gas Reserves and Rising Prices From Iran War**\
+`Across Europe, reserves of natural gas for use in the winter months are lagging, meaning continued higher prices for households and businesses.`\
+https://www.nytimes.com/2026/07/31/business/europe-natural-gas-prices.html
+
+**What You Need to Know About Installing Plug-In Solar Panels**\
+`You can now buy panels that plug into electrical outlets, but there are some important safety issues to consider when picking and installing a system.`\
+https://www.nytimes.com/2026/07/31/business/energy-environment/plug-in-solar-panel-guide.html
+
+**The German Auto Industry, a Pillar of the National Psyche, Is Trembling**\
+`The country’s iconic carmakers are struggling with tariffs, the growth of electric vehicles and intense competition from Chinese companies.`\
+https://www.nytimes.com/2026/07/31/business/germany-mercedes-bmw-volkswagen.html
+
+**Major Guggenheim Show Traces Origin and Legacy of Pop Art**\
+`At the Guggenheim Museum, a survey of the origin and legacy of Pop Art tries to extract from the movement a conscience it never really had, our critic argues.`\
+https://www.nytimes.com/2026/07/31/arts/design/guggenheim-pop-art-review.html
+
 **Can the Gritty ‘Spider-Man: Brand New Day’ Save the Superhero Movie?**\
 `The newest entry in the franchise took a more grounded approach, a departure for a spectacle-focused genre that is teetering at the box office.`\
 https://www.nytimes.com/2026/07/31/movies/spider-man-brand-new-day-movie.html
@@ -73,128 +197,4 @@ https://www.nytimes.com/2026/07/31/realestate/key-west-florida-literature-heming
 **At Least 34 Dead From Coal Mine Blast in Pakistan**\
 `Rescuers were searching for missing bodies from the accident in one of the country’s mining hubs, where methane gas explosions and mine collapses are frequent.`\
 https://www.nytimes.com/2026/07/31/world/asia/pakistan-coal-mine-explosion.html
-
-**Spain’s Leader Rushes to Ceuta After Thousands of Migrants Burst Across Border**\
-`Prime Minister Pedro Sánchez was set to arrive in Ceuta, a Spanish territory in Africa, amid an escalating crisis for his pro-immigration government.`\
-https://www.nytimes.com/2026/07/31/world/europe/spain-ceuta-border-migrants-sanchez.html
-
-**Myanmar Pro-Democracy Activists Each Sentenced to 37 Years in Prison**\
-`A group of dissidents this week were each sentenced to 37 years in prison for a peaceful protest against an election widely derided as a sham.`\
-https://www.nytimes.com/2026/07/31/world/asia/myanmar-sentence-activists-protest.html
-
-**La viruela de hace siglos podría no haber sido tan letal**\
-`Rastros del virus encontrados en los restos de los habitantes de Chile de hace unos 500 años muestran cómo pudo evolucionar hasta convertirse en un asesino global.`\
-https://www.nytimes.com/es/2026/07/31/espanol/ciencia-y-tecnologia/viruela-chile.html
-
-**Waiting for a Library Book? This Man Makes Sure You Get It.**\
-`For 20 years, a retired Police Department captain has overseen the shipping of books to library branches. Tens of thousands of books are sorted each day.`\
-https://www.nytimes.com/2026/07/31/nyregion/nypl-queens-bookops-salvatore-magaddino.html
-
-**You’re Welcome at SUNY, New York Tells Students Disenrolled by Howard**\
-`The Washington, D.C., university told incoming freshmen who missed a tuition deadline that they no longer had a spot. But they now can attend a New York State school or CUNY.`\
-https://www.nytimes.com/2026/07/31/nyregion/suny-howard-students-hochul.html
-
-**Mamdani to Name Prominent Black Leader as Head of Police Review Board**\
-`Jennifer Jones Austin, a government veteran who also serves as vice chair of the Rev. Al Sharpton’s National Action Network, will lead the Civilian Complaint Review Board.`\
-https://www.nytimes.com/2026/07/31/nyregion/ccrb-mamdani-jennifer-jones-austin.html
-
-**NYT Spelling Bee Answers for July 31, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/07/31/crosswords/spelling-bee-forum.html
-
-**Jordan Klepper Revisits His ‘Fauci Fever’**\
-`“The Daily Show” host defended the doctor’s diary entries about his Covid-era fame: “I literally saw Fauci more than I saw my parents.”`\
-https://www.nytimes.com/2026/07/31/arts/television/jordan-klepper-anthony-fauci-covid.html
-
-**A Whale Gave Birth. A Drone Was There to Capture the Spectacle.**\
-`A wildlife photographer noticed a humpback whale displaying unusual behavior off Australia’s east coast, then something extraordinary happened.`\
-https://www.nytimes.com/2026/07/31/world/australia/humpback-whale-birth-video-drone.html
-
-**Drone Footage Captures a Whale Giving Birth**\
-`Drone footage filmed on July 28 showed a humpback whale giving birth off Australia’s east coast. A newborn whale was seen surfacing from the blood-reddened water.`\
-https://www.nytimes.com/video/world/australia/100000011065374/humpback-whale-birth-australia.html
-
-**Indian Democracy Isn’t Dead After All**\
-`This summer’s youth-led revolt punctured Modi’s aura and showed that Indian democracy may still be able to renew itself from below.`\
-https://www.nytimes.com/2026/07/31/opinion/india-protests-modi-democracy.html
-
-**10 Climbers, Including Nims Purja, Missing After Avalanche on Broad Peak in Pakistan**\
-`The group caught on one of the world’s highest peaks included the influential British-Nepali mountaineer Nirmal Purja and an American climber, an alpine organization said.`\
-https://www.nytimes.com/2026/07/31/world/asia/nirmal-purja-nims-avalanche-pakistan.html
-
-**Una enorme cantidad de basura espacial cae a la Tierra cada semana**\
-`Pedazos de metal en llamas caen sobre casas, granjas y estacionamientos. ¿De quién es la culpa? ¿Y quién paga por los daños?`\
-https://www.nytimes.com/es/2026/07/31/espanol/mundo/espacio-tierra-basura-espacial.html
-
-**In Another Wild Day for South Korean Stocks, Market Surges 18 Percent**\
-`After a recent sell-off, South Korea’s stock market rallied as concerns about overspending on artificial intelligence eased, sending the country’s chip shares higher.`\
-https://www.nytimes.com/2026/07/31/business/korea-stocks-chips-kospi.html
-
-**México presenta un plan para combatir el sargazo en sus playas**\
-`Las algas pardas y malolientes conocidas han asolado las costas del país y de la región en general durante más de una década, pero el pronóstico de este año está batiendo récords.`\
-https://www.nytimes.com/es/2026/07/31/espanol/america-latina/mexico-sargazo-playas.html
-
-**China está produciendo más carne. Los aranceles y el clima extremo ayudan**\
-`A medida que el aumento de las lluvias hace posible que haya pastizales y campos de maíz en áreas que alguna vez fueron desiertos, el mayor importador de carne de res del mundo se está volviendo más autosuficiente al expandir sus rebaños nacionales.`\
-https://www.nytimes.com/es/2026/07/31/espanol/negocios/china-carne-ganado-aranceles-argentina-brasil.html
-
-**Quote of the Day: Cashing In on a Data Center by Selling Cold Beer to Builders**\
-`Quotation of the Day for Friday, July 31, 2026.`\
-https://www.nytimes.com/2026/07/31/pageoneplus/quote-of-the-day-cashing-in-on-a-data-center-by-selling-cold-beer-to-builders.html
-
-**El nuevo álbum de Sam Smith le da una oportunidad al amor**\
-`Tras alcanzar el estatus de estrella pop mundial con himnos sobre el desamor, Smith vuelve con un disco dedicado a un “amor correspondido” desde una mirada abiertamente queer.`\
-https://www.nytimes.com/es/2026/07/31/espanol/cultura/sam-smith-nuevo-album.html
-
-**A Ton of Space Junk Tumbles Unpredictably to Earth Every Week**\
-`Flaming chunks of metal crash into homes, farms and parking lots. Who’s to blame? And who pays for the damage?`\
-https://www.nytimes.com/2026/07/31/world/asia/space-debris-falling-crashing-earth-risk.html
-
-**Political Turmoil Will Not Derail Killer Robot Program, Former Minister Says**\
-`The recently ousted Ukrainian defense minister, Mykhailo Fedorov, an advocate for drone and robot warfare, says Ukraine’s tech-heavy strategy will persist.`\
-https://www.nytimes.com/2026/07/31/world/europe/federov-ukraine-killer-robots.html
-
-****\
-`Suspected rocket debris was recovered near Palawan, the Philippines, on Sept. 16, 2025.`\
-https://www.nytimes.com/video/embedded/world/asia/100000011060472/space-debris.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/world/asia/100000011060470/29visualUploader-82137.html
-
-****\
-`Space debris was found in Western Australia on Oct. 18, 2025.`\
-https://www.nytimes.com/video/embedded/world/100000011062966/space-debris3.html
-
-**After 23 Years of Missed Connections, the Third Time Was the Charm**\
-`Sara Tretter and JP Przewoznik fell in love at camp over two decades ago. Years of emails, Facebook texts and letters tied them together.`\
-https://www.nytimes.com/2026/07/31/style/jp-przewoznik-sara-tretter-wedding.html
-
-**It Was ‘Written in the Stars’ Even Before They Met**\
-`Alyannah Kassam and Malik Ladhani had no idea how much their lives overlapped when they matched on a dating app nearly four years ago.`\
-https://www.nytimes.com/2026/07/31/style/alyannah-kassam-malik-ladhani-wedding.html
-
-**A Wedding Suit and Maybe a Marriage ‘Blessed by Zendaya’**\
-`Jackson Fust and Alistair Stephenson had been drawn to each other across many dance floors. Once both were single, romance took off.`\
-https://www.nytimes.com/2026/07/31/style/jackson-fust-alistair-stephenson-wedding.html
-
-**He Impressed the TikTok Star the Old-School Way: By Listening, in Real Life**\
-`Cole Hosman was one of Sienna Gomez’s early followers. She later followed him back and, after a terrible accident, reached out to offer comfort.`\
-https://www.nytimes.com/2026/07/31/style/sienna-gomez-cole-hosman-wedding.html
-
-**The Marriage I Cherished No Longer Existed**\
-`The husband I treasured had disappeared. Why was I happy?`\
-https://www.nytimes.com/2026/07/31/style/modern-love-the-marriage-i-cherished-no-longer-existed.html
-
-**NYT Crossword Answers for July 31, 2026**\
-`Rafael Musa returns to open our solving weekend.`\
-https://www.nytimes.com/2026/07/30/crosswords/daily-puzzle-2026-07-31.html
-
-**What to Know About Ceuta**\
-`The peninsula on Morocco’s northern coast that Spain has governed for centuries has been a frequent site of mass migrant crossings and political tensions.`\
-https://www.nytimes.com/2026/07/30/world/europe/ceuta-spain-morocco-migrants.html
-
-**What We Know About Dr. Fauci Pleading the Fifth in Senate Hearing on Covid Origins**\
-`In a three-hour Senate hearing this week, Dr. Fauci invoked his constitutional right to stay silent, leaving people confused about many of the issues raised.`\
-https://www.nytimes.com/2026/07/30/health/fauci-allegations-covid-origins.html
 
