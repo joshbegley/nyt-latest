@@ -1,3 +1,11 @@
+**A Whale Gave Birth. A Drone Was There to Capture the Spectacle.**\
+`A wildlife photographer noticed a humpback whale displaying unusual behavior off Australia’s east coast, then something extraordinary happened.`\
+https://www.nytimes.com/2026/07/31/world/australia/humpback-whale-birth-video-drone.html
+
+**Drone Footage Captures a Whale Giving Birth**\
+`Drone footage filmed on July 28 showed a humpback whale giving birth off Australia’s east coast. A newborn whale was seen surfacing from the blood-reddened water.`\
+https://www.nytimes.com/video/world/australia/100000011065374/humpback-whale-birth-australia.html
+
 **Indian Democracy Isn’t Dead After All**\
 `This summer’s youth-led revolt punctured Modi’s aura and showed that Indian democracy may still be able to renew itself from below.`\
 https://www.nytimes.com/2026/07/31/opinion/india-protests-modi-democracy.html

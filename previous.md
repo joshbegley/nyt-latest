@@ -1,3 +1,11 @@
+**A Whale Gave Birth. A Drone Was There to Capture the Spectacle.**\
+`A wildlife photographer noticed a humpback whale displaying unusual behavior off Australia’s east coast, then something extraordinary happened.`\
+https://www.nytimes.com/2026/07/31/world/australia/humpback-whale-birth-video-drone.html
+
+**Drone Footage Captures a Whale Giving Birth**\
+`Drone footage filmed on July 28 showed a humpback whale giving birth off Australia’s east coast. A newborn whale was seen surfacing from the blood-reddened water.`\
+https://www.nytimes.com/video/world/australia/100000011065374/humpback-whale-birth-australia.html
+
 **Indian Democracy Isn’t Dead After All**\
 `This summer’s youth-led revolt punctured Modi’s aura and showed that Indian democracy may still be able to renew itself from below.`\
 https://www.nytimes.com/2026/07/31/opinion/india-protests-modi-democracy.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/us/100000011064170/father-of-teenage-gunman-in-geo
 **Dulles Airport’s Reviled ‘People Movers’ May Be Lurching Into the Sunset**\
 `A $22.5 billion redesign plan eliminates the “mobile lounges,” which were conceived as a way of making air travel more efficient. Many passengers found the opposite to be true.`\
 https://www.nytimes.com/2026/07/30/us/dulles-airport-people-movers-trump.html
-
-**T.S.A. Finds 5 Civil War Cannonballs in Passenger’s Luggage in Alabama**\
-`The inert relics, some as big as a grapefruit, were detected when agents X-rayed checked bags.`\
-https://www.nytimes.com/2026/07/30/us/tsa-alabama-civil-war-cannonballs.html
-
-**Why an A.I. Bubble Might Not Be a Bad Thing**\
-`As fears spread over a possible artificial intelligence bubble, some tech investors say: Bring it on.`\
-https://www.nytimes.com/2026/07/30/technology/ai-bubble-venture-capital.html
 
