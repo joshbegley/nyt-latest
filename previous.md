@@ -123,7 +123,7 @@ https://www.nytimes.com/2026/07/30/world/us-death-penalty-iran-saudi-world-cup.h
 https://www.nytimes.com/2026/07/30/technology/apple-earnings.html
 
 **Big Tech’s A.I. Spending Keeps Rising. So Do the Jitters.**\
-`Amazon joined a procession of tech giants that ramped up their spending on artificial intelligence, as its capital expenditures soared 69 percent. Concerns over the industry’s spending is mounting.`\
+`Amazon joined a procession of tech giants that ramped up their spending on artificial intelligence, as its capital expenditures soared 69 percent. Concerns over the industry’s spending are mounting.`\
 https://www.nytimes.com/2026/07/30/technology/amazon-google-ai-data-center-spending.html
 
 **Does Congress Have the Power to Stop the Iran War?**\

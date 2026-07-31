@@ -1,3 +1,7 @@
+**Big Tech’s A.I. Spending Keeps Rising. So Do the Jitters.**\
+`Amazon joined a procession of tech giants that ramped up their spending on artificial intelligence, as its capital expenditures soared 69 percent. Concerns over the industry’s spending are mounting.`\
+https://www.nytimes.com/2026/07/30/technology/amazon-google-ai-data-center-spending.html
+
 **What Is the Board of Peace? The Trump-Backed Group, Explained.**\
 `President Trump created the international organization, aimed at resolving the long-running war in Gaza and other conflicts.`\
 https://www.nytimes.com/2026/07/30/us/politics/what-is-the-board-of-peace.html
