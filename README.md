@@ -1,3 +1,7 @@
+**Summer Reading Contest, Week 9: What Got Your Attention in The Times This Week?**\
+`To participate, submit your response here by Aug. 7 at 9 a.m. Eastern. This week’s winners will be announced by Aug. 19.`\
+https://www.nytimes.com/2026/07/31/learning/summer-reading-contest-week-9-what-got-your-attention-in-the-times-this-week.html
+
 **Man Accused of Spying for Iran at British Air Base in Cyprus**\
 `Rashad Sultanov, a dual British and Azerbaijani citizen, was arrested after accusations he surveilled the military installation, a hub for Mideast operations, and shared the details with the Revolutionary Guards.`\
 https://www.nytimes.com/2026/07/31/world/europe/iran-spy-uk-air-base-cyprus-sultanov.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/31/world/europe/germany-pride-attack-extremism.h
 **Big Losses for Small Businesses in the ‘Frozen Zone’**\
 `Restaurants near the buckling building in Midtown faced spoiled food and furloughs after being forced to shut down for weeks.`\
 https://www.nytimes.com/2026/07/31/nyregion/big-losses-for-small-businesses-in-the-frozen-zone.html
-
-**Exploring Helsinki Through the Dreamy Architecture of Eliel Saarinen**\
-`A writer goes in search of the architect Eliel Saarinen, whose Art Nouveau-inspired designs helped shape early-1900s Finland as well as midcentury America.`\
-https://www.nytimes.com/2026/07/31/travel/helsinki-architecture-eliel-saarinen-art-nouveau.html
 
