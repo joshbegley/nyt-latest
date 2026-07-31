@@ -1,5 +1,9 @@
 **Myanmar Pro-Democracy Activists Each Sentenced to 37 Years in Prison**\
 `A group of dissidents this week were each sentenced to 37 years in prison for a peaceful protest against an election widely derided as a sham.`\
+https://www.nytimes.com/2026/07/31/world/asia/myanmar-sentence-activists-protest.html
+
+**Myanmar Pro-Democracy Activists Each Sentenced to 37 Years in Prison**\
+`A group of dissidents this week were each sentenced to 37 years in prison for a peaceful protest against an election widely derided as a sham.`\
 https://www.nytimes.com/2026/07/31/world/asia/myanmar-sentence-activisits-protest.html
 
 **In Another Wild Day for South Korean Stocks, Market Surges 18 Percent**\
