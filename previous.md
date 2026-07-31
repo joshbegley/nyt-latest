@@ -1,4 +1,4 @@
-**The Next Met Fashion Blockbuster and Gala Will Honor Controversial Designer John Galliano**\
+**Next Met Gala Show Will Honor John Galliano, Celebrated Designer Infamous for Antisemitic Rant**\
 `As famous for his antisemitic rant in 2011 as he is for his fashion, Galliano would be one of only three living designers ever to receive the honor.`\
 https://www.nytimes.com/2026/07/31/style/met-gala-costume-institute-john-galliano.html
 
