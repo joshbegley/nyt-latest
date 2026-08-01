@@ -1,3 +1,7 @@
+**Olga Soffer, Fashion Maven Who Studied Caveman Couture, Dies at 83**\
+`After working for a department store, she switched to archaeology and made important discoveries about prehistoric clothes and gender roles.`\
+https://www.nytimes.com/2026/08/01/science/olga-soffer-dead.html
+
 **Justice Dept. Subpoenas Times Freelancer in Effort to Identify Sources**\
 `A previously undisclosed subpoena, involving reporting on a failed SEAL Team 6 mission in North Korea, reflects the government’s expanding campaign to investigate leaks of secrets.`\
 https://www.nytimes.com/2026/08/01/us/politics/times-subpoena-reporter-trump-north-korea.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/movies/100000011022345/can-spider-man-evolve-again
 **Book Review: ‘The Unknown,’ by Riley Sager**\
 `In Riley Sager’s “The Unknown,” actresses on a research trip stumble into a paranormal mystery.`\
 https://www.nytimes.com/2026/08/01/books/review/the-unknown-riley-sager.html
-
-**What Else Do We Lose When People Give Up Booze?**\
-`Yes, there are many benefits of cutting back. But bars are closing. Jobs are going away. And a way of being together can feel harder to find.`\
-https://www.nytimes.com/2026/08/01/style/what-else-do-we-lose-when-people-give-up-booze.html
 
