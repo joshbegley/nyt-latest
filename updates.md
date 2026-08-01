@@ -1,3 +1,7 @@
+**La crítica a ‘La odisea’ de una traductora del clásico encendió un debate**\
+`Emily Wilson, cuya traducción del clásico griego influyó en el director Christopher Nolan, opinó en un ensayo para The London Review of Books que le habría “avergonzado haber escrito cualquier parte de este guion”.`\
+https://www.nytimes.com/es/2026/07/31/espanol/cultura/critica-odisea-traductora-nolan.html
+
 **‘Where Are the Kids?’: Caregivers Charged After Twin Starves to Death**\
 `A mother and grandmother in the Bronx face charges over the care of twin teenagers with autism. One of the boys weighed 59 pounds when he died. His brother, according to prosecutors, barely survived.`\
 https://www.nytimes.com/2026/07/31/nyregion/starvation-autism-bronx-murder.html
