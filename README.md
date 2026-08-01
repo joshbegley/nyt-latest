@@ -1,3 +1,7 @@
+**Shooting at In-and-Out Burger in Idaho Leaves 3 Dead and 2 Injured, Official Says**\
+`A spokesman for Twin Falls cautioned that the number of victims was “expected to be higher” and said that the shooter was “no longer a threat.”`\
+https://www.nytimes.com/2026/08/01/us/in-n-out-shooting-idaho.html
+
 **Teen Hikers Rescued 12 Hours Into Google Maps Hike**\
 `The three teenage boys estimated their hike time would be over five hours on a rugged trail in British Columbia, Canada. A helicopter crew had to retrieve them.`\
 https://www.nytimes.com/2026/08/01/world/canada/canada-hiking-rescue-google-maps.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/01/business/dealbook/italy-oldest-bank-takeover-
 **Fact-Checking Trump’s Claims About the Effect of the Iran War on Oil Prices, Munitions and More**\
 `The president misleadingly blamed the Biden administration’s weapons transfers to Ukraine for current concerns over munitions stockpiles, among other claims about the Iran war.`\
 https://www.nytimes.com/2026/08/01/us/politics/trump-iran-war-toll-oil-fact-check.html
-
-**Cuando el ‘looksmaxxing’ es un acto de duelo**\
-`Cuando eres mayor de lo que era tu madre cuando murió, cada cana y cada arruga duele profundamente.`\
-https://www.nytimes.com/es/2026/08/01/espanol/looksmaxxing.html
 

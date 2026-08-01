@@ -1,3 +1,7 @@
+**Teen Hikers Rescued 12 Hours Into Google Maps Hike**\
+`The three teenage boys estimated their hike time would be over five hours on a rugged trail in British Columbia, Canada. A helicopter crew had to retrieve them.`\
+https://www.nytimes.com/2026/08/01/world/canada/canada-hiking-rescue-google-maps.html
+
 **Mitch McConnell, Still Hospitalized, Misses Signature Kentucky Political Picnic**\
 `Senator Mitch McConnell’s ongoing hospitalization meant he missed his final chance to attend the signature western Kentucky event while in office.`\
 https://www.nytimes.com/2026/08/01/us/mitch-mcconnell-kentucky-republicans.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/01/us/politics/trump-iran-war-toll-oil-fact-chec
 **Cuando el ‘looksmaxxing’ es un acto de duelo**\
 `Cuando eres mayor de lo que era tu madre cuando murió, cada cana y cada arruga duele profundamente.`\
 https://www.nytimes.com/es/2026/08/01/espanol/looksmaxxing.html
-
-**Paul Sanasardo, Creator of Intense (and Even Brutal) Dances, Dies at 97**\
-`His dreamlike, expressionistic style influenced the vividly theatrical works of the German choreographer Pina Bausch, an early collaborator.`\
-https://www.nytimes.com/2026/08/01/arts/dance/paul-sanasardo-dead.html
 
