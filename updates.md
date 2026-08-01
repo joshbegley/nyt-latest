@@ -1,3 +1,7 @@
+**Peanut, Peanut Noodles (and Cabbage)**\
+`This new slaw from Hetty Lui McKinnon is for anyone who loves the punch of peanut sauce and the crunch of cabbage.`\
+https://www.nytimes.com/2026/08/01/dining/peanut-peanut-noodles-and-cabbage.html
+
 **Scope of Hacks on U.S. Water Supply Widens as Evidence Points to Iran**\
 `Michigan and Minnesota are among at least seven states coping with cyberattacks aimed at disrupting water systems nationwide.`\
 https://www.nytimes.com/2026/08/01/us/politics/scope-of-hacks-on-us-water-supply-widens-as-evidence-points-to-iran.html
