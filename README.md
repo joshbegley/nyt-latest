@@ -1,3 +1,7 @@
+**Evidence Indicates U.S. Dropped Bomb on Residential Area in Iran, Killing 3 Civilians**\
+`The weapon, one of the largest in the U.S.’s arsenal, struck a house in a heavily populated area, according to a Times analysis.`\
+https://www.nytimes.com/2026/07/31/world/middleeast/us-iran-bomb-mk84-qeshm-island.html
+
 **Officer Charged With Violating Privacy for Recording Colleagues’ Racism**\
 `The charges stem from recordings that Daniel Flores made over the course of 2024, when he was working in a Los Angeles police unit that recruited new officers.`\
 https://www.nytimes.com/2026/07/31/us/lapd-recording-felony.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/31/business/media/adults-fx-prequel-season-2.htm
 **Gavin Newsom and His Wife Made $1.4 Million in 2024, Tax Returns Show**\
 `The taxable income of California’s governor and his wife, Jennifer Siebel Newsom, exceeded $1 million a year from 2021 to 2024.`\
 https://www.nytimes.com/2026/07/31/us/gavin-newsom-tax-returns.html
-
-**Ukraine’s Strike on Iranian Ship Shows How Two Wars Could Spiral**\
-`Iran sent military aid to Russia for its war against Ukraine. Now the question is whether that conflict and the U.S.-Israeli war against Iran are converging.`\
-https://www.nytimes.com/2026/07/31/us/politics/iran-ukraine-war.html
 
 **Crisis en Ceuta: la mayoría de los migrantes que llegaron a España han vuelto a Marruecos**\
 `De las 60.000 personas que llegaron a Ceuta, unas 48.000 habían vuelto a casa al cabo de un día. Pero la afluencia repentina puso en jaque al gobierno español.`\
