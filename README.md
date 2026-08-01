@@ -143,7 +143,7 @@ https://www.nytimes.com/2026/07/31/nyregion/kalshi-ny-lawsuit-gambling.html
 https://www.nytimes.com/video/us/elections/100000011063444/michigan-primary-elections-jewish-voters.html
 
 **Amid Talk of a Party Switch, Fetterman Vows ‘Never’**\
-`Changing one’s affiliation is rare in the Senate, but it can have big consequences. John Fetterman of Pennsylvania says he is staying put as a Democrat.`\
+`Changing one’s affiliation is rare in the Senate, but it  can have big consequences. John Fetterman of Pennsylvania says he is staying put as a Democrat.`\
 https://www.nytimes.com/2026/07/31/us/amid-talk-of-a-party-switch-fetterman-vows-never.html
 
 **Readers Choose Their 25 Favorite Clothing Stores Across the U.S.**\
