@@ -190,11 +190,11 @@ https://www.nytimes.com/2026/08/01/realestate/neighbor-dispute.html
 `Researchers are sounding the alarm on sneaky artificial intelligence models that stray from humans’ directions to do their own thing.`\
 https://www.nytimes.com/2026/08/01/business/ai-scheming.html
 
+**Best Movies and Shows Streaming in August 2026: ‘Ted Lasso,’ ‘Lioness’ and More**\
+`“Ted Lasso” returns, and “The Shards” and a documentary about Novak Djokovic also arrive.`\
+https://www.nytimes.com/2026/08/01/arts/television/movies-tv-shows-august-2026-streaming.html
+
 **The Jumping Spiders of TikTok**\
 `Jumping spiders are tiny, social, fuzzy creatures. In a sea of sameness online, they are now social media stars.`\
 https://www.nytimes.com/2026/08/01/style/jumping-spiders-tiktok.html
-
-**The Best Movies and TV Shows Coming to Disney+, AMC+, Apple TV and More in August**\
-`“Ted Lasso” returns, and “The Shards” and a documentary about Novak Djokovic also arrive.`\
-https://www.nytimes.com/2026/08/01/arts/television/movies-tv-shows-august-2026-streaming.html
 
