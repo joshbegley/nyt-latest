@@ -1,3 +1,7 @@
+**Spain Installs Floating Barrier in Ceuta After Influx of Migrants**\
+`Most of those who surged into the territory, a Spanish exclave in Africa, have returned across the border to Morocco. At least 67 people died trying to enter, the authorities said.`\
+https://www.nytimes.com/2026/08/01/world/europe/spain-ceuta-migrants-morocco-border.html
+
 **Fui a la Amazonia para volar en un avión del siglo pasado**\
 `El Douglas DC-3 fue producido en masa durante la Segunda Guerra Mundial. Hoy, uno de los pocos que quedan transporta pasajeros en la selva de Colombia.`\
 https://www.nytimes.com/es/2026/08/01/espanol/america-latina/avion-dc3-selva-colombia.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/31/world/europe/migrants-surge-morocco-ceuta-spa
 **Driver Fatally Shoots Kidnapped Victim in Trunk in Chino Hills**\
 `An abduction from a home in Chino Hills led to a short police chase. The driver fired at a man in the trunk before being gunned down.`\
 https://www.nytimes.com/2026/07/31/us/kidnapping-shooting-chino-hills.html
-
-**At Least 34 Killed in Coal Mine Blast in Pakistan**\
-`Rescue teams searched for missing workers at a coal mine in Pakistan on Friday, where at least 34 people were killed in a blast, according to officials.`\
-https://www.nytimes.com/video/world/asia/100000011065928/at-least-34-killed-in-coal-mine-blast-in-pakistan.html
 
 **Crisis en Ceuta: la mayoría de los migrantes que llegaron a España han vuelto a Marruecos**\
 `De las 60.000 personas que llegaron a Ceuta, unas 48.000 habían vuelto a casa al cabo de un día. Pero la afluencia repentina puso en jaque al gobierno español.`\

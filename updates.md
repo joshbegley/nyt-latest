@@ -1,3 +1,7 @@
+**Spain Installs Floating Barrier in Ceuta After Influx of Migrants**\
+`Most of those who surged into the territory, a Spanish exclave in Africa, have returned across the border to Morocco. At least 67 people died trying to enter, the authorities said.`\
+https://www.nytimes.com/2026/08/01/world/europe/spain-ceuta-migrants-morocco-border.html
+
 **Fui a la Amazonia para volar en un avión del siglo pasado**\
 `El Douglas DC-3 fue producido en masa durante la Segunda Guerra Mundial. Hoy, uno de los pocos que quedan transporta pasajeros en la selva de Colombia.`\
 https://www.nytimes.com/es/2026/08/01/espanol/america-latina/avion-dc3-selva-colombia.html
