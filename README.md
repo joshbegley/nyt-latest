@@ -1,3 +1,7 @@
+**How Trump’s Second Term Looks to Trump**\
+`Does Trump think his second term is going well? The Times White House correspondent Maggie Haberman shares what she’s observed in her reporting on “The Ezra Klein Show.”`\
+https://www.nytimes.com/video/opinion/100000011044739/how-trumps-second-term-looks-to-trump.html
+
 **Nirmal Purja, Renowned Mountaineer, Is Found Dead After Pakistan Avalanche**\
 `The British-Nepali mountaineer was one of 10 climbers who were struck by an avalanche on Thursday on Broad Peak, one of the world’s highest mountains.`\
 https://www.nytimes.com/2026/08/01/world/asia/nirmal-purja-dead-pakistan-avalanche.html
@@ -6,13 +10,13 @@ https://www.nytimes.com/2026/08/01/world/asia/nirmal-purja-dead-pakistan-avalanc
 `As radio spectrum becomes more valuable, companies like SpaceX are jostling alongside governments to control more of it.`\
 https://www.nytimes.com/2026/08/01/business/dealbook/spacex-spectrum-battle.html
 
-**If This Is Medical Freedom, Why Do I Feel Trapped?**\
-`(No description)`\
-https://www.nytimes.com/2026/08/01/opinion/medical-freedom-public-health.html
-
 **The Working Class Is Fleeing Trump**\
 `Democrats have an anger problem. Republicans have a Trump problem.`\
 https://www.nytimes.com/2026/08/01/opinion/trump-maga-republican-midterm.html
+
+**If This Is Medical Freedom, Why Do I Feel Trapped?**\
+`(No description)`\
+https://www.nytimes.com/2026/08/01/opinion/medical-freedom-public-health.html
 
 **Summer Camp Has Become a Luxury. This Nonprofit Sends Kids for Free.**\
 `The Fresh Air Fund helps New York City children experience the joy and discovery of summer camp.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/world/asia/100000011067535/-ukraine-russia-attack-
 **Spain Installs Floating Barrier in Ceuta After Influx of Migrants**\
 `Most of those who came to the territory, a Spanish exclave in Africa, have returned across the border to Morocco. At least 67 people died trying to enter, the authorities said.`\
 https://www.nytimes.com/2026/08/01/world/europe/spain-ceuta-migrants-morocco-border.html
-
-**Fui a la Amazonia para volar en un avión del siglo pasado**\
-`El Douglas DC-3 fue producido en masa durante la Segunda Guerra Mundial. Hoy, uno de los pocos que quedan transporta pasajeros en la selva de Colombia.`\
-https://www.nytimes.com/es/2026/08/01/espanol/america-latina/avion-dc3-selva-colombia.html
 
