@@ -1,3 +1,7 @@
+**Going for a Spin**\
+`Ralph Sharaga and Doug Peterson want to know: What would it take to get you into this puzzle today?`\
+https://www.nytimes.com/2026/08/01/crosswords/daily-puzzle-2026-08-02.html
+
 **Improvised Bomb Kills 3 at an Upscale Moscow Restaurant**\
 `Among the victims of the explosion, which also injured 21 people, were a security guard and a woman who the authorities say had arrived with the suspicious package.`\
 https://www.nytimes.com/2026/08/01/world/europe/deadly-bombing-moscow-restaurant.html
