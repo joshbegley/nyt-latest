@@ -1,3 +1,23 @@
+**Beijing Protests After New Zealand Minister Insults Chinese-Born Lawmaker**\
+`The foreign minister, Winston Peters, who leads a populist party, has refused to back down after telling the member of Parliament to “go back to your own country.”`\
+https://www.nytimes.com/2026/08/01/world/asia/new-zealand-foreign-minister-china-protest.html
+
+**How 50,000 People Surged Into a Spanish Exclave in Africa**\
+`On Thursday, tens of thousands of Moroccans broke into Ceuta, a Spanish territory that neighbors Morocco. By Friday evening, most of them had left, hungry and disappointed.`\
+https://www.nytimes.com/2026/08/01/world/europe/spain-ceuta-migrants-morocco.html
+
+**Quote of the Day: His Parties Serve as a Cultural Oasis for Young Cubans**\
+`Quotation of the Day for Saturday, August 1, 2026.`\
+https://www.nytimes.com/2026/08/01/pageoneplus/quote-of-the-day-his-parties-serve-as-a-cultural-oasis-for-young-cubans.html
+
+**On ‘Ted Lasso,’ Hannah Waddingham Is Ruthless. Off Camera, She’s ‘Quite a Goofy Nugget.’**\
+`Hannah Waddingham is a rare British actor to beat a path from musical theater to the screen.`\
+https://www.nytimes.com/2026/08/01/arts/television/hannah-waddington-ted-lasso.html
+
+**Extreme Heat Has Transformed What Summer Means Across Generations in Europe**\
+`Rising temperatures and more frequent heat waves have changed the feel of the season for today’s children, compared with their parents and grandparents.`\
+https://www.nytimes.com/2026/08/01/world/europe/europe-summer-heat-germany-climate-change.html
+
 **Japan’s Rescuers Battle Cruel Heat After Major Earthquake**\
 `Kumamoto faces a “double disaster,” as rescuers work in 100 degree heat, and shelters with limited air-conditioning put displaced people at risk for heatstroke.`\
 https://www.nytimes.com/2026/08/01/world/asia/japan-earthquake-recovery-heat.html
