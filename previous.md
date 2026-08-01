@@ -1,3 +1,7 @@
+**Russian Missiles Kill 9 in Kyiv, Hours After Trump Backs Off Air Defense Pledge**\
+`It was the second deadly barrage to hit the Ukrainian capital in two days, as Moscow escalates its attacks in an apparent effort to exploit Ukraine’s dwindling supply of interceptors.`\
+https://www.nytimes.com/2026/08/01/world/europe/ukraine-russia-attack-missiles-patriot.html
+
 **Baby’s First R-Rated Blockbuster**\
 `“The Odyssey” is selling out in all formats at all times of day. Even at morning screenings, which are packed with newborns and parents desperate to feel “normal.”`\
 https://www.nytimes.com/2026/08/01/nyregion/baby-movie-showings-parents.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/31/world/europe/young-men-poured-into-ceuta-seek
 **Todd Blanche’s Loyalty to Trump Is Putting His Attorney General Confirmation at Risk**\
 `Todd Blanche’s approach has collided with the jury-of-two reality in the Senate that has, thus far, kept him from the prize he covets: the stability and status conferred by a Senate confirmation.`\
 https://www.nytimes.com/2026/07/31/us/politics/todd-blanche-ag-trump-immunity.html
-
-**State Dept. to Release 250,000 More Trump Passports With His Portrait**\
-`An additional 250,000 commemorative passports, featuring a portrait of President Trump and intended to honor the nation’s 250th anniversary, will be available at in-person events.`\
-https://www.nytimes.com/2026/07/31/travel/trump-passports-usa-250th-anniversary.html
 
 **Crisis en Ceuta: la mayoría de los migrantes que llegaron a España han vuelto a Marruecos**\
 `De las 60.000 personas que llegaron a Ceuta, unas 48.000 habían vuelto a casa al cabo de un día. Pero la afluencia repentina puso en jaque al gobierno español.`\

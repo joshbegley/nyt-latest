@@ -1,3 +1,7 @@
+**Russian Missiles Kill 9 in Kyiv, Hours After Trump Backs Off Air Defense Pledge**\
+`It was the second deadly barrage to hit the Ukrainian capital in two days, as Moscow escalates its attacks in an apparent effort to exploit Ukraine’s dwindling supply of interceptors.`\
+https://www.nytimes.com/2026/08/01/world/europe/ukraine-russia-attack-missiles-patriot.html
+
 **Baby’s First R-Rated Blockbuster**\
 `“The Odyssey” is selling out in all formats at all times of day. Even at morning screenings, which are packed with newborns and parents desperate to feel “normal.”`\
 https://www.nytimes.com/2026/08/01/nyregion/baby-movie-showings-parents.html
