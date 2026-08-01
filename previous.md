@@ -1,3 +1,7 @@
+**Russia Pounds Kyiv, Hours After Trump Backs Off Air Defense Pledge**\
+`Russian ballistic missiles struck Kyiv, Ukraine’s capital, on Saturday, killing at least nine people and injuring more than 30, local officials said.`\
+https://www.nytimes.com/video/world/asia/100000011067535/-ukraine-russia-attack-missiles-patriot.html
+
 **Spain Installs Floating Barrier in Ceuta After Influx of Migrants**\
 `Most of those who surged into the territory, a Spanish exclave in Africa, have returned across the border to Morocco. At least 67 people died trying to enter, the authorities said.`\
 https://www.nytimes.com/2026/08/01/world/europe/spain-ceuta-migrants-morocco-border.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/31/us/trump-escalates-feud-with-senate-over-blan
 **What Caused the Surge of Migrants From Morocco Into Ceuta?**\
 `Speculation has focused on lax Moroccan policing, attractive Spanish immigration policies and misinformation from human traffickers. In reality, experts said, it’s too early to know.`\
 https://www.nytimes.com/2026/07/31/world/europe/migrants-surge-morocco-ceuta-spain.html
-
-**Driver Fatally Shoots Kidnapped Victim in Trunk in Chino Hills**\
-`An abduction from a home in Chino Hills led to a short police chase. The driver fired at a man in the trunk before being gunned down.`\
-https://www.nytimes.com/2026/07/31/us/kidnapping-shooting-chino-hills.html
 
 **Crisis en Ceuta: la mayoría de los migrantes que llegaron a España han vuelto a Marruecos**\
 `De las 60.000 personas que llegaron a Ceuta, unas 48.000 habían vuelto a casa al cabo de un día. Pero la afluencia repentina puso en jaque al gobierno español.`\

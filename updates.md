@@ -1,3 +1,7 @@
+**Russia Pounds Kyiv, Hours After Trump Backs Off Air Defense Pledge**\
+`Russian ballistic missiles struck Kyiv, Ukraine’s capital, on Saturday, killing at least nine people and injuring more than 30, local officials said.`\
+https://www.nytimes.com/video/world/asia/100000011067535/-ukraine-russia-attack-missiles-patriot.html
+
 **Spain Installs Floating Barrier in Ceuta After Influx of Migrants**\
 `Most of those who surged into the territory, a Spanish exclave in Africa, have returned across the border to Morocco. At least 67 people died trying to enter, the authorities said.`\
 https://www.nytimes.com/2026/08/01/world/europe/spain-ceuta-migrants-morocco-border.html
