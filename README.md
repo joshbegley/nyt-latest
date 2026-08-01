@@ -1,3 +1,7 @@
+**Japan’s Rescuers Battle Cruel Heat After Major Earthquake**\
+`Kumamoto faces a “double disaster,” as rescuers work in 100 degree heat, and shelters with limited air-conditioning put displaced people at risk for heatstroke.`\
+https://www.nytimes.com/2026/08/01/world/asia/japan-earthquake-recovery-heat.html
+
 **Evidence Indicates U.S. Dropped Bomb on Residential Area in Iran, Killing 3 Civilians**\
 `The weapon, one of the largest in the U.S.’s arsenal, struck a house in a heavily populated area, according to a Times analysis.`\
 https://www.nytimes.com/2026/07/31/world/middleeast/us-iran-bomb-mk84-qeshm-island.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/31/world/europe/ceuta-europe-migration-2015-lega
 **‘Adults’ Is Getting a New First Episode**\
 `Many viewers turned away from “Adults” after an over-the-top scene in the show’s first episode, so FX made a new one.`\
 https://www.nytimes.com/2026/07/31/business/media/adults-fx-prequel-season-2.html
-
-**Gavin Newsom and His Wife Made $1.4 Million in 2024, Tax Returns Show**\
-`The taxable income of California’s governor and his wife, Jennifer Siebel Newsom, exceeded $1 million a year from 2021 to 2024.`\
-https://www.nytimes.com/2026/07/31/us/gavin-newsom-tax-returns.html
 
 **Crisis en Ceuta: la mayoría de los migrantes que llegaron a España han vuelto a Marruecos**\
 `De las 60.000 personas que llegaron a Ceuta, unas 48.000 habían vuelto a casa al cabo de un día. Pero la afluencia repentina puso en jaque al gobierno español.`\
