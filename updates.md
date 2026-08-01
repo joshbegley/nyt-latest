@@ -1,3 +1,7 @@
+**The Right Can’t Even Make a Revenge Movie Well**\
+`‘Citizen Vigilante’ is a bargain-bin movie for the ages.`\
+https://www.nytimes.com/2026/08/01/opinion/citizen-vigilante-right-revenge-movie.html
+
 **‘Spider-Man’ Heads for $875 Million Global Opening, Defying Superhero Slump**\
 `The movie, the 11th big-budget Spider-Man movie since 2002, was on pace to have one of the biggest domestic first weekends ever.`\
 https://www.nytimes.com/2026/08/01/business/media/spider-man-box-office-superhero.html
