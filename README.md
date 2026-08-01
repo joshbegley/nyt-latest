@@ -35,7 +35,7 @@ https://www.nytimes.com/2026/08/01/opinion/happiness-silent-retreat.html
 https://www.nytimes.com/video/opinion/100000011063517/what-happens-to-americas-political-parties-after-trump.html
 
 **Kuwait Says It Downed Iranian Drones as Mideast Braces for Possible Escalation**\
-`The wave of strikes came as President Trump threatened to intensify the U.S. campaign against Iran, with both sides showing little sign of backing down.`\
+`The wave of strikes came as President Trump threatened to intensify the American campaign against Iran. U.S. embassies in the region warned of the “potential for unforeseen escalation.”`\
 https://www.nytimes.com/2026/08/01/world/middleeast/iran-kuwait-drone-strikes-trump-escalation.html
 
 **Making Rounds**\
