@@ -1,3 +1,7 @@
+**The High-Stakes Battle for Invisible Real Estate in Space**\
+`As radio spectrum becomes more valuable, companies like SpaceX are jostling alongside governments to control more of it.`\
+https://www.nytimes.com/2026/08/01/business/dealbook/spacex-spectrum-battle.html
+
 **If This Is Medical Freedom, Why Do I Feel Trapped?**\
 `(No description)`\
 https://www.nytimes.com/2026/08/01/opinion/medical-freedom-public-health.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/08/01/espanol/america-latina/avion-dc3-selva-col
 **Johnny Depp empieza a hacer campaña para su regreso**\
 `Paramount apuesta a que el público volverá a acoger a la estrella una década después de las acusaciones de violencia doméstica y un juicio por difamación.`\
 https://www.nytimes.com/es/2026/08/01/espanol/cultura/johnny-depp-regreso-ebenezer-scrooge.html
-
-**Hasta las gomitas están a dieta**\
-`Los dulces ‘saludables’ inundan los supermercados y las tiendas de conveniencia, e incluso han llegado a los gimnasios y las tiendas de suplementos.`\
-https://www.nytimes.com/es/2026/08/01/espanol/golosinas-galletas-dulces-saludables-dieta.html
 
