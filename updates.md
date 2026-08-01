@@ -1,3 +1,7 @@
+**George Santos Fined Over Bets on State of the Union on Kalshi Prediction Market**\
+`A federal regulator fined the lawmaker $35,000 over allegations of insider trading by placing bets on Kalshi about whether he would attend the State of the Union address in February.`\
+https://www.nytimes.com/2026/07/31/us/politics/george-santos-fined-kalshi-bets.html
+
 **La crítica a ‘La odisea’ de una traductora del clásico encendió un debate**\
 `Emily Wilson, cuya traducción del clásico griego influyó en el director Christopher Nolan, opinó en un ensayo para The London Review of Books que le habría “avergonzado haber escrito cualquier parte de este guion”.`\
 https://www.nytimes.com/es/2026/07/31/espanol/cultura/critica-odisea-traductora-nolan.html
