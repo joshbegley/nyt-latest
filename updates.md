@@ -1,4 +1,8 @@
 **George Santos Fined Over Bets on State of the Union on Kalshi Prediction Market**\
+`A federal regulator fined the former lawmaker $35,000 over allegations of insider trading by placing bets on Kalshi about whether he would attend the State of the Union address in February.`\
+https://www.nytimes.com/2026/07/31/us/politics/george-santos-fined-kalshi-bets.html
+
+**George Santos Fined Over Bets on State of the Union on Kalshi Prediction Market**\
 `A federal regulator fined the lawmaker $35,000 over allegations of insider trading by placing bets on Kalshi about whether he would attend the State of the Union address in February.`\
 https://www.nytimes.com/2026/07/31/us/politics/george-santos-fined-kalshi-bets.html
 
