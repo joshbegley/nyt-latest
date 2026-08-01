@@ -1,3 +1,7 @@
+**Migration Surge on the Spain-Morocco Border**\
+`Our Madrid bureau chief, Jason Horowitz, visits the coastal town of Ceuta, a Spanish territory in North Africa where there has been an unprecedented influx of migrants crossing the border from Morocco.`\
+https://www.nytimes.com/video/world/europe/100000011066115/migration-surge-on-the-spain-morocco-border.html
+
 **The Monthly Bake: Heirloom Tomato and Cheddar Pie**\
 `Our first savory bake is a nod to my Southern roots, with a few delicious twists of my own.`\
 https://www.nytimes.com/2026/08/01/dining/the-monthly-bake-heirloom-tomato-and-cheddar-pie.html
