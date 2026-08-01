@@ -1,3 +1,7 @@
+**Trump’s Polling Numbers Hit a New Low. Don’t Expect Him to Change Course.**\
+`Barely a third of Americans approve of Mr. Trump’s handling of the job, putting him at historic depths for a second-term president at this stage of his tenure.`\
+https://www.nytimes.com/2026/08/01/us/politics/trump-polls-approval-rating.html
+
 **In Dropping Reflecting Pool Case, Pirro Draws Trump’s Wrath**\
 `Jeanine Pirro, the U.S. attorney in Washington, blamed shoddy construction, contradicting President Trump’s pet theory. Mr. Trump said he disagreed “100%” with her.`\
 https://www.nytimes.com/2026/08/01/us/politics/jeanine-pirro-trump-reflecting-pool.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/01/business/ai-scheming.html
 **Best Movies and Shows Streaming in August 2026: ‘Ted Lasso,’ ‘Lioness’ and More**\
 `“Ted Lasso” returns, and “The Shards” and a documentary about Novak Djokovic also arrive.`\
 https://www.nytimes.com/2026/08/01/arts/television/movies-tv-shows-august-2026-streaming.html
-
-**The Jumping Spiders of TikTok**\
-`Jumping spiders are tiny, social, fuzzy creatures. In a sea of sameness online, they are now social media stars.`\
-https://www.nytimes.com/2026/08/01/style/jumping-spiders-tiktok.html
 
