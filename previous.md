@@ -1,4 +1,4 @@
-**Nirmal Purja, Renowned Mountaineer, Is Found Dead on Pakistani Mountain**\
+**Nirmal Purja, Renowned Mountaineer, Is Found Dead After Pakistan Avalanche**\
 `The British-Nepali mountaineer was one of 10 climbers who were struck by an avalanche on Thursday on Broad Peak, one of the world’s highest mountains.`\
 https://www.nytimes.com/2026/08/01/world/asia/nirmal-purja-dead-pakistan-avalanche.html
 

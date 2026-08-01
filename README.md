@@ -6,13 +6,13 @@ https://www.nytimes.com/2026/08/01/world/asia/nirmal-purja-dead-pakistan-avalanc
 `As radio spectrum becomes more valuable, companies like SpaceX are jostling alongside governments to control more of it.`\
 https://www.nytimes.com/2026/08/01/business/dealbook/spacex-spectrum-battle.html
 
-**The Working Class Is Fleeing Trump**\
-`Democrats have an anger problem. Republicans have a Trump problem.`\
-https://www.nytimes.com/2026/08/01/opinion/trump-maga-republican-midterm.html
-
 **If This Is Medical Freedom, Why Do I Feel Trapped?**\
 `(No description)`\
 https://www.nytimes.com/2026/08/01/opinion/medical-freedom-public-health.html
+
+**The Working Class Is Fleeing Trump**\
+`Democrats have an anger problem. Republicans have a Trump problem.`\
+https://www.nytimes.com/2026/08/01/opinion/trump-maga-republican-midterm.html
 
 **Summer Camp Has Become a Luxury. This Nonprofit Sends Kids for Free.**\
 `The Fresh Air Fund helps New York City children experience the joy and discovery of summer camp.`\
@@ -22,7 +22,7 @@ https://www.nytimes.com/2026/08/01/opinion/fresh-air-fund-summer-camp-swimming.h
 `Christopher Nolan’s film is perfectly calibrated for the culture war.`\
 https://www.nytimes.com/2026/08/01/opinion/the-odyssey-culture-war.html
 
-**Surviving With $3.78 in Her Bank Account by Selling Blood Plasma**\
+**Meet the Americans Who Can’t Afford Hair Cuts or Toilet Paper**\
 `Millions of Americans struggle in sometimes unimaginable ways, and Trump’s cuts in food stamps and other benefits are now making life even more precarious.`\
 https://www.nytimes.com/2026/08/01/opinion/poverty-america-oklahoma.html
 

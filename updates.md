@@ -1,3 +1,7 @@
+**Nirmal Purja, Renowned Mountaineer, Is Found Dead After Pakistan Avalanche**\
+`The British-Nepali mountaineer was one of 10 climbers who were struck by an avalanche on Thursday on Broad Peak, one of the world’s highest mountains.`\
+https://www.nytimes.com/2026/08/01/world/asia/nirmal-purja-dead-pakistan-avalanche.html
+
 **Kuwait Says It Downed Iranian Drones as Mideast Braces for Possible Escalation**\
 `The wave of strikes came as President Trump threatened to intensify the American campaign against Iran. U.S. embassies in the region warned of the “potential for unforeseen escalation.”`\
 https://www.nytimes.com/2026/08/01/world/middleeast/iran-kuwait-drone-strikes-trump-escalation.html
