@@ -1,3 +1,7 @@
+**Mitch McConnell, Still Hospitalized, Misses Signature Kentucky Political Picnic**\
+`Senator Mitch McConnell’s ongoing hospitalization meant he missed his final chance to attend the signature western Kentucky event while in office.`\
+https://www.nytimes.com/2026/08/01/us/mitch-mcconnell-kentucky-republicans.html
+
 **Going for a Spin**\
 `Ralph Sharaga and Doug Peterson want to know: What would it take to get you into this puzzle today?`\
 https://www.nytimes.com/2026/08/01/crosswords/daily-puzzle-2026-08-02.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/08/01/espanol/looksmaxxing.html
 **Paul Sanasardo, Creator of Intense (and Even Brutal) Dances, Dies at 97**\
 `His dreamlike, expressionistic style influenced the vividly theatrical works of the German choreographer Pina Bausch, an early collaborator.`\
 https://www.nytimes.com/2026/08/01/arts/dance/paul-sanasardo-dead.html
-
-**A French Village Becomes a Ghost Town After the Wildfires**\
-`Wildfires in France have forced tens of thousands of people from their homes and left entire towns deserted along the southwest coast. We visited Claouey, an empty beach town, and found a handful of residents who chose to stay, including one man who’s made it his mission to care for all the village pets.`\
-https://www.nytimes.com/video/world/europe/100000011063710/france-wildfires-evacuation-pets.html
 
