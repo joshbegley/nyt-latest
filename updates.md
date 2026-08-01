@@ -1,3 +1,7 @@
+**The Monthly Bake: Heirloom Tomato and Cheddar Pie**\
+`Our first savory bake is a nod to my Southern roots, with a few delicious twists of my own.`\
+https://www.nytimes.com/2026/08/01/dining/the-monthly-bake-heirloom-tomato-and-cheddar-pie.html
+
 **5 tácticas para dejar de procrastinar**\
 `Ayuda a tu “yo del futuro” removiendo ahora algunos obstáculos que podrían impedir su productividad.`\
 https://www.nytimes.com/es/2026/08/01/espanol/estilos-de-vida/procrastinacion-consejos.html
