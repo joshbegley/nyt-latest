@@ -1,3 +1,7 @@
+**Evidence Indicates U.S. Dropped Bomb on Residential Area in Iran, Killing 3 Civilians**\
+`The weapon, one of the largest in the U.S.’s arsenal, struck a house in a heavily populated area, according to a Times analysis.`\
+https://www.nytimes.com/2026/07/31/world/middleeast/us-iran-bomb-mk84-qeshm-island.html
+
 **Officer Charged With Violating Privacy for Recording Colleagues’ Racism**\
 `The charges stem from recordings that Daniel Flores made over the course of 2024, when he was working in a Los Angeles police unit that recruited new officers.`\
 https://www.nytimes.com/2026/07/31/us/lapd-recording-felony.html
