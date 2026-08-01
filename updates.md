@@ -1,3 +1,7 @@
+**Making Rounds**\
+`Errands get us out of our homes and into the world, on missions providing both serendipity and satisfaction.`\
+https://www.nytimes.com/2026/08/01/briefing/making-rounds.html
+
 **My Partner Lied About His Marriage, Then Dumped Me. Should I Go Quietly?**\
 `I no longer know whether his wife ever consented to our relationship, much less encouraged it.`\
 https://www.nytimes.com/2026/08/01/magazine/partner-lied-about-his-marriage-ethics.html

@@ -1,3 +1,7 @@
+**Making Rounds**\
+`Errands get us out of our homes and into the world, on missions providing both serendipity and satisfaction.`\
+https://www.nytimes.com/2026/08/01/briefing/making-rounds.html
+
 **My Partner Lied About His Marriage, Then Dumped Me. Should I Go Quietly?**\
 `I no longer know whether his wife ever consented to our relationship, much less encouraged it.`\
 https://www.nytimes.com/2026/08/01/magazine/partner-lied-about-his-marriage-ethics.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/08/01/espanol/estados-unidos/ucrania-iran-rusia-
 **Incendios, bacterias y calor: el verano que asustó a los ricos**\
 `Olas de calor, garrapatas y un brote de ciclosporiasis muestran cómo los efectos del cambio climático alcanzan incluso a quienes parecían estar mejor protegidos.`\
 https://www.nytimes.com/es/2026/08/01/espanol/cambio-climatico-verano.html
-
-**Beijing Protests After New Zealand Minister Insults Chinese-Born Lawmaker**\
-`The foreign minister, Winston Peters, who leads a populist party, has refused to back down after telling the member of Parliament to “go back to your own country.”`\
-https://www.nytimes.com/2026/08/01/world/asia/new-zealand-foreign-minister-china-protest.html
 
