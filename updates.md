@@ -1,3 +1,11 @@
+**How Trump’s Second Term Looks to Trump**\
+`Does Trump think his second term is going well? The Times White House correspondent Maggie Haberman shares what she’s observed in her reporting on “The Ezra Klein Show.”`\
+https://www.nytimes.com/video/opinion/100000011044739/how-trumps-second-term-looks-to-trump.html
+
+**Meet the Americans Who Can’t Afford Hair Cuts or Toilet Paper**\
+`Millions of Americans struggle in sometimes unimaginable ways, and Trump’s cuts in food stamps and other benefits are now making life even more precarious.`\
+https://www.nytimes.com/2026/08/01/opinion/poverty-america-oklahoma.html
+
 **Nirmal Purja, Renowned Mountaineer, Is Found Dead After Pakistan Avalanche**\
 `The British-Nepali mountaineer was one of 10 climbers who were struck by an avalanche on Thursday on Broad Peak, one of the world’s highest mountains.`\
 https://www.nytimes.com/2026/08/01/world/asia/nirmal-purja-dead-pakistan-avalanche.html

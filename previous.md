@@ -1,3 +1,7 @@
+**How Trump’s Second Term Looks to Trump**\
+`Does Trump think his second term is going well? The Times White House correspondent Maggie Haberman shares what she’s observed in her reporting on “The Ezra Klein Show.”`\
+https://www.nytimes.com/video/opinion/100000011044739/how-trumps-second-term-looks-to-trump.html
+
 **Nirmal Purja, Renowned Mountaineer, Is Found Dead After Pakistan Avalanche**\
 `The British-Nepali mountaineer was one of 10 climbers who were struck by an avalanche on Thursday on Broad Peak, one of the world’s highest mountains.`\
 https://www.nytimes.com/2026/08/01/world/asia/nirmal-purja-dead-pakistan-avalanche.html
@@ -22,7 +26,7 @@ https://www.nytimes.com/2026/08/01/opinion/fresh-air-fund-summer-camp-swimming.h
 `Christopher Nolan’s film is perfectly calibrated for the culture war.`\
 https://www.nytimes.com/2026/08/01/opinion/the-odyssey-culture-war.html
 
-**Surviving With $3.78 in Her Bank Account by Selling Blood Plasma**\
+**Meet the Americans Who Can’t Afford Hair Cuts or Toilet Paper**\
 `Millions of Americans struggle in sometimes unimaginable ways, and Trump’s cuts in food stamps and other benefits are now making life even more precarious.`\
 https://www.nytimes.com/2026/08/01/opinion/poverty-america-oklahoma.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/world/asia/100000011067535/-ukraine-russia-attack-
 **Spain Installs Floating Barrier in Ceuta After Influx of Migrants**\
 `Most of those who came to the territory, a Spanish exclave in Africa, have returned across the border to Morocco. At least 67 people died trying to enter, the authorities said.`\
 https://www.nytimes.com/2026/08/01/world/europe/spain-ceuta-migrants-morocco-border.html
-
-**Fui a la Amazonia para volar en un avión del siglo pasado**\
-`El Douglas DC-3 fue producido en masa durante la Segunda Guerra Mundial. Hoy, uno de los pocos que quedan transporta pasajeros en la selva de Colombia.`\
-https://www.nytimes.com/es/2026/08/01/espanol/america-latina/avion-dc3-selva-colombia.html
 
