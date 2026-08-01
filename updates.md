@@ -1,3 +1,75 @@
+**Un triángulo amoroso no estaba entre mis planes**\
+`Estaba preparada para las garrapatas, los osos y las tormentas de hielo, pero no para elegir entre dos hombres.`\
+https://www.nytimes.com/es/2026/08/01/espanol/estilos-de-vida/modern-love-triangulo-amoroso.html
+
+**Corrections: Aug. 1, 2026**\
+`Corrections that appeared in print on Saturday, Aug. 1, 2026.`\
+https://www.nytimes.com/2026/08/01/pageoneplus/corrections-aug-1-2026.html
+
+**The Fight Over the World’s Oldest Bank**\
+`Founded in 1472, Banca Monte dei Paschi di Siena has survived wars, pandemics and scandals. But a hostile takeover bid has Tuscans on edge.`\
+https://www.nytimes.com/2026/08/01/business/dealbook/italy-oldest-bank-takeover-battle.html
+
+**Fact-Checking Trump’s Claims About the Effect of the Iran War on Oil Prices, Munitions and More**\
+`The president misleadingly blamed the Biden administration’s weapons transfers to Ukraine for current concerns over munitions stockpiles, among other claims about the Iran war.`\
+https://www.nytimes.com/2026/08/01/us/politics/trump-iran-war-toll-oil-fact-check.html
+
+**Cuando el ‘looksmaxxing’ es un acto de duelo**\
+`Cuando eres mayor de lo que era tu madre cuando murió, cada cana y cada arruga duele profundamente.`\
+https://www.nytimes.com/es/2026/08/01/espanol/looksmaxxing.html
+
+**Paul Sanasardo, Creator of Intense (and Even Brutal) Dances, Dies at 97**\
+`His dreamlike, expressionistic style influenced the vividly theatrical works of the German choreographer Pina Bausch, an early collaborator.`\
+https://www.nytimes.com/2026/08/01/arts/dance/paul-sanasardo-dead.html
+
+**A French Village Becomes a Ghost Town After the Wildfires**\
+`Wildfires in France have forced tens of thousands of people from their homes and left entire towns deserted along the southwest coast. We visited Claouey, an empty beach town, and found a handful of residents who chose to stay, including one man who’s made it his mission to care for all the village pets.`\
+https://www.nytimes.com/video/world/europe/100000011063710/france-wildfires-evacuation-pets.html
+
+**How Ukraine Is Making Inroads With MAGA and a Trump Ally, Laura Loomer**\
+`Ukraine and its supporters have invested years in trying to undo the skepticism of the country’s war effort harbored by President Trump’s MAGA movement and the president himself.`\
+https://www.nytimes.com/2026/08/01/us/politics/ukraine-maga-loomer-trump.html
+
+**14 Off Broadway Shows (and 1 Festival) to Elevate Your August**\
+`Bridget Everett, Patti LuPone, Alex Moffat, Ben Folds and Michael R. Jackson are all slated to perform on New York City stages this month.`\
+https://www.nytimes.com/2026/08/01/arts/14-off-broadway-shows-and-1-festival-to-elevate-your-august.html
+
+**Solve the August Bonus Puzzle**\
+`Rob Rausch, a reality television star and snake wrangler, co-constructed this month’s puzzle.`\
+https://www.nytimes.com/2026/08/01/crosswords/bonus-puzzle-rob-rausch-snakes.html
+
+**In Iran, the U.S. Appears Headed for a Strategic Defeat, Allies Fear**\
+`With none of President Trump’s aims accomplished and the Strait of Hormuz closed, U.S. allies see dysfunction and vulnerability from the war.`\
+https://www.nytimes.com/2026/08/01/world/middleeast/us-iran-war-strategy.html
+
+**Shaboozey, Ariana Grande: Songs to Know This week**\
+`Shaboozey teams with Kehlani, Ariana Grande gets meta and Lindsay Lou convenes a team of string-band all-stars.`\
+https://www.nytimes.com/2026/08/01/arts/music/shaboozey-ariana-grande-songs.html
+
+**When Neighbors Fight Over Shared Space, Who Wins?**\
+`The law requires homeowners to keep their properties in a safe, legal condition — as much for their neighbors as themselves.`\
+https://www.nytimes.com/2026/08/01/realestate/neighbor-dispute.html
+
+**Is A.I. ‘Scheming’ Against Us?**\
+`Researchers are sounding the alarm on sneaky artificial intelligence models that stray from humans’ directions to do their own thing.`\
+https://www.nytimes.com/2026/08/01/business/ai-scheming.html
+
+**The Jumping Spiders of TikTok**\
+`Jumping spiders are tiny, social, fuzzy creatures. In a sea of sameness online, they are now social media stars.`\
+https://www.nytimes.com/2026/08/01/style/jumping-spiders-tiktok.html
+
+**The Best Movies and TV Shows Coming to Disney+, AMC+, Apple TV and More in August**\
+`“Ted Lasso” returns, and “The Shards” and a documentary about Novak Djokovic also arrive.`\
+https://www.nytimes.com/2026/08/01/arts/television/movies-tv-shows-august-2026-streaming.html
+
+**Provincetown Bear Week Feels Different in the Age of GLP-1s**\
+`An annual celebration of bears — gay men on the bigger and hairier side — feels different in the age of GLP-1s.`\
+https://www.nytimes.com/2026/08/01/style/provincetown-bear-week-ozempic.html
+
+**Trump Administration Is Undoing Plans to Boost Workplace Heat Protections**\
+`The Biden administration took steps to shield workers from extreme temperatures. The Trump administration is taking a gentler approach with employers.`\
+https://www.nytimes.com/2026/08/01/climate/heat-workplace-protections-osha-trump.html
+
 **She Voted for a Justice Who Overturned Roe. Now it Haunts Her on the Trail.**\
 `Senator Susan Collins, who supports abortion rights, endorsed Brett Kavanaugh’s nomination for the Supreme Court. It has emerged as a major issue in her campaign for re-election.`\
 https://www.nytimes.com/2026/08/01/us/politics/collins-kavanaugh-vote-roe-v-wade.html
