@@ -1,3 +1,7 @@
+**In Dropping Reflecting Pool Case, Pirro Draws Trump’s Wrath**\
+`Jeanine Pirro, the U.S. attorney in Washington, blamed shoddy construction, contradicting President Trump’s pet theory. Mr. Trump said he disagreed “100%” with her.`\
+https://www.nytimes.com/2026/08/01/us/politics/jeanine-pirro-trump-reflecting-pool.html
+
 **Renowned Mountaineer Dies After Pakistan Avalanche**\
 `The British-Nepali mountaineer Nirmal Purja died after an avalanche in Pakistan, his company confirmed in a social media post.`\
 https://www.nytimes.com/video/obituaries/100000011067704/nirmal-purja-dead-pakistan-avalanche.html
@@ -186,15 +190,11 @@ https://www.nytimes.com/2026/08/01/realestate/neighbor-dispute.html
 `Researchers are sounding the alarm on sneaky artificial intelligence models that stray from humans’ directions to do their own thing.`\
 https://www.nytimes.com/2026/08/01/business/ai-scheming.html
 
-**The Jumping Spiders of TikTok**\
-`Jumping spiders are tiny, social, fuzzy creatures. In a sea of sameness online, they are now social media stars.`\
-https://www.nytimes.com/2026/08/01/style/jumping-spiders-tiktok.html
-
-**The Best Movies and TV Shows Coming to Disney+, AMC+, Apple TV and More in August**\
+**Best Movies and Shows Streaming in August 2026: ‘Ted Lasso,’ ‘Lioness’ and More**\
 `“Ted Lasso” returns, and “The Shards” and a documentary about Novak Djokovic also arrive.`\
 https://www.nytimes.com/2026/08/01/arts/television/movies-tv-shows-august-2026-streaming.html
 
-**Provincetown Bear Week Feels Different in the Age of GLP-1s**\
-`An annual celebration of bears — gay men on the bigger and hairier side — feels different in the age of GLP-1s.`\
-https://www.nytimes.com/2026/08/01/style/provincetown-bear-week-ozempic.html
+**The Jumping Spiders of TikTok**\
+`Jumping spiders are tiny, social, fuzzy creatures. In a sea of sameness online, they are now social media stars.`\
+https://www.nytimes.com/2026/08/01/style/jumping-spiders-tiktok.html
 

@@ -1,3 +1,11 @@
+**In Dropping Reflecting Pool Case, Pirro Draws Trump’s Wrath**\
+`Jeanine Pirro, the U.S. attorney in Washington, blamed shoddy construction, contradicting President Trump’s pet theory. Mr. Trump said he disagreed “100%” with her.`\
+https://www.nytimes.com/2026/08/01/us/politics/jeanine-pirro-trump-reflecting-pool.html
+
+**Best Movies and Shows Streaming in August 2026: ‘Ted Lasso,’ ‘Lioness’ and More**\
+`“Ted Lasso” returns, and “The Shards” and a documentary about Novak Djokovic also arrive.`\
+https://www.nytimes.com/2026/08/01/arts/television/movies-tv-shows-august-2026-streaming.html
+
 **Renowned Mountaineer Dies After Pakistan Avalanche**\
 `The British-Nepali mountaineer Nirmal Purja died after an avalanche in Pakistan, his company confirmed in a social media post.`\
 https://www.nytimes.com/video/obituaries/100000011067704/nirmal-purja-dead-pakistan-avalanche.html
