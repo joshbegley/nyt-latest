@@ -1,3 +1,7 @@
+**Nirmal Purja, Renowned Mountaineer, Is Found Dead on Pakistani Mountain**\
+`The British-Nepali mountaineer was one of 10 climbers who were struck by an avalanche on Thursday on Broad Peak, one of the world’s highest mountains.`\
+https://www.nytimes.com/2026/08/01/world/asia/nirmal-purja-dead-pakistan-avalanche.html
+
 **The High-Stakes Battle for Invisible Real Estate in Space**\
 `As radio spectrum becomes more valuable, companies like SpaceX are jostling alongside governments to control more of it.`\
 https://www.nytimes.com/2026/08/01/business/dealbook/spacex-spectrum-battle.html
@@ -6,7 +10,7 @@ https://www.nytimes.com/2026/08/01/business/dealbook/spacex-spectrum-battle.html
 `(No description)`\
 https://www.nytimes.com/2026/08/01/opinion/medical-freedom-public-health.html
 
-**What Happens to America’s Political Parties After Trump?**\
+**The Working Class Is Fleeing Trump**\
 `Democrats have an anger problem. Republicans have a Trump problem.`\
 https://www.nytimes.com/2026/08/01/opinion/trump-maga-republican-midterm.html
 
@@ -162,13 +166,13 @@ https://www.nytimes.com/2026/08/01/style/domestic-destination-weddings.html
 `Our movie critic Alissa Wilkinson reviews “Spider-Man: Brand New Day,” in which the titular hero must grapple with his new, unwanted powers, along with the weight of the Marvel Cinematic Universe.`\
 https://www.nytimes.com/video/movies/100000011022345/can-spider-man-evolve-again-in-brand-new-day.html
 
-**What Else Do We Lose When People Give Up Booze?**\
-`Yes, there are many benefits of cutting back. But bars are closing. Jobs are going away. And a way of being together can feel harder to find.`\
-https://www.nytimes.com/2026/08/01/style/what-else-do-we-lose-when-people-give-up-booze.html
-
 **Book Review: ‘The Unknown,’ by Riley Sager**\
 `In Riley Sager’s “The Unknown,” actresses on a research trip stumble into a paranormal mystery.`\
 https://www.nytimes.com/2026/08/01/books/review/the-unknown-riley-sager.html
+
+**What Else Do We Lose When People Give Up Booze?**\
+`Yes, there are many benefits of cutting back. But bars are closing. Jobs are going away. And a way of being together can feel harder to find.`\
+https://www.nytimes.com/2026/08/01/style/what-else-do-we-lose-when-people-give-up-booze.html
 
 **Trump’s Fixation on Arctic Ships Led to Billions in No-Bid Contracts**\
 `The president decided to buy 11 polar icebreakers after a game of golf with Finland’s president. Experts say it’s far from clear the United States needs so many.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/01/world/europe/spain-ceuta-migrants-morocco-bor
 **Fui a la Amazonia para volar en un avión del siglo pasado**\
 `El Douglas DC-3 fue producido en masa durante la Segunda Guerra Mundial. Hoy, uno de los pocos que quedan transporta pasajeros en la selva de Colombia.`\
 https://www.nytimes.com/es/2026/08/01/espanol/america-latina/avion-dc3-selva-colombia.html
-
-**Johnny Depp empieza a hacer campaña para su regreso**\
-`Paramount apuesta a que el público volverá a acoger a la estrella una década después de las acusaciones de violencia doméstica y un juicio por difamación.`\
-https://www.nytimes.com/es/2026/08/01/espanol/cultura/johnny-depp-regreso-ebenezer-scrooge.html
 
