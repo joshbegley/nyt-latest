@@ -1,3 +1,7 @@
+**Search Continues for 6 Climbers After Pakistan Avalanche**\
+`Four bodies, including that of an American climber, have been recovered since the avalanche struck on Thursday. The fate of renowned mountaineer Nirmal Purja was still unclear.`\
+https://www.nytimes.com/2026/08/01/world/asia/pakistan-avalanche-climbers-purja.html
+
 **Cómo pronosticar el clima en esta era de tormentas anómalas**\
 `Si dejamos de hablar del tiempo, nos arriesgamos a perder una oportunidad para la curiosidad colectiva y la apreciación de nuestras condiciones compartidas.`\
 https://www.nytimes.com/es/2026/08/01/espanol/pronostico-tiempo-clima-tormenta.html
