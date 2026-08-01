@@ -1,3 +1,7 @@
+**2 Children Drown in New Jersey River**\
+`The body of a girl, 10, was found in the Passaic River on Friday evening, two days after she was swept away. The body of a boy the same age was recovered earlier.`\
+https://www.nytimes.com/2026/07/31/nyregion/passaic-river-new-jersey-drownings.html
+
 **Beijing Protests After New Zealand Minister Insults Chinese-Born Lawmaker**\
 `The foreign minister, Winston Peters, who leads a populist party, has refused to back down after telling the member of Parliament to “go back to your own country.”`\
 https://www.nytimes.com/2026/08/01/world/asia/new-zealand-foreign-minister-china-protest.html
