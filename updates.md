@@ -1,3 +1,7 @@
+**5 tácticas para dejar de procrastinar**\
+`Ayuda a tu “yo del futuro” removiendo ahora algunos obstáculos que podrían impedir su productividad.`\
+https://www.nytimes.com/es/2026/08/01/espanol/estilos-de-vida/procrastinacion-consejos.html
+
 **Why ’70 Percent’ of Trump’s Mind Is on Renovations**\
 `Forget the Iran war and tariffs. Maggie Haberman explains on “The Ezra Klein Show” why Trump is so fixated on remodeling the White House and building an arch.`\
 https://www.nytimes.com/video/opinion/100000011044745/why-70-percent-of-trumps-mind-is-on-renovations.html
