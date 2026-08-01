@@ -1,3 +1,7 @@
+**The Monthly Bake: Heirloom Tomato and Cheddar Pie**\
+`Our first savory bake is a nod to my Southern roots, with a few delicious twists of my own.`\
+https://www.nytimes.com/2026/08/01/dining/the-monthly-bake-heirloom-tomato-and-cheddar-pie.html
+
 **5 tácticas para dejar de procrastinar**\
 `Ayuda a tu “yo del futuro” removiendo ahora algunos obstáculos que podrían impedir su productividad.`\
 https://www.nytimes.com/es/2026/08/01/espanol/estilos-de-vida/procrastinacion-consejos.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/01/climate/trump-arctic-ships.html
 **Carmakers Go Back to the ’80s With Turbo Engines**\
 `A hyped technology from four decades ago, turbocharging is now standard in almost half of all cars sold in the United States, largely to help meet efficiency standards.`\
 https://www.nytimes.com/2026/08/01/business/turbo-engines-cars-trucks.html
-
-**The U.S. Deported Him to Jail in Russia. Then He Escaped.**\
-`Facing a long prison sentence or a forced trip to the front line of a war he opposes, Artyom Vovchenko believed it was worth taking a risk.`\
-https://www.nytimes.com/2026/08/01/world/europe/russia-war-deserter.html
 
