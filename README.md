@@ -1,3 +1,7 @@
+**Search Continues for 6 Climbers After Pakistan Avalanche**\
+`Four bodies, including that of an American climber, have been recovered since the avalanche struck on Thursday. The fate of renowned mountaineer Nirmal Purja was still unclear.`\
+https://www.nytimes.com/2026/08/01/world/asia/pakistan-avalanche-climbers-purja.html
+
 **Cómo pronosticar el clima en esta era de tormentas anómalas**\
 `Si dejamos de hablar del tiempo, nos arriesgamos a perder una oportunidad para la curiosidad colectiva y la apreciación de nuestras condiciones compartidas.`\
 https://www.nytimes.com/es/2026/08/01/espanol/pronostico-tiempo-clima-tormenta.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/31/us/31nat-coast-guard-brain-injury-boat-waves-
 **The Best Clothing Stores in New York**\
 `New York is, was and always will be a shopping town. These are the stores that keep it vibrant and alive.`\
 https://www.nytimes.com/interactive/2026/07/30/style/best-clothes-stores-nyc.html
-
-**New York Sues Kalshi in Latest Bid to Regulate Prediction Markets**\
-`The suit is the latest effort by states to crack down on an industry that critics have called predatory. At least 15 states have introduced legislation this year to regulate the markets.`\
-https://www.nytimes.com/2026/07/31/nyregion/kalshi-ny-lawsuit-gambling.html
 
 **Crisis en Ceuta: la mayoría de los migrantes que llegaron a España han vuelto a Marruecos**\
 `De las 60.000 personas que llegaron a Ceuta, unas 48.000 habían vuelto a casa al cabo de un día. Pero la afluencia repentina puso en jaque al gobierno español.`\
