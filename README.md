@@ -1,3 +1,7 @@
+**Going for a Spin**\
+`Ralph Sharaga and Doug Peterson want to know: What would it take to get you into this puzzle today?`\
+https://www.nytimes.com/2026/08/01/crosswords/daily-puzzle-2026-08-02.html
+
 **Improvised Bomb Kills 3 at an Upscale Moscow Restaurant**\
 `Among the victims of the explosion, which also injured 21 people, were a security guard and a woman who the authorities say had arrived with the suspicious package.`\
 https://www.nytimes.com/2026/08/01/world/europe/deadly-bombing-moscow-restaurant.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/01/arts/dance/paul-sanasardo-dead.html
 **A French Village Becomes a Ghost Town After the Wildfires**\
 `Wildfires in France have forced tens of thousands of people from their homes and left entire towns deserted along the southwest coast. We visited Claouey, an empty beach town, and found a handful of residents who chose to stay, including one man who’s made it his mission to care for all the village pets.`\
 https://www.nytimes.com/video/world/europe/100000011063710/france-wildfires-evacuation-pets.html
-
-**How Ukraine Is Making Inroads With MAGA and a Trump Ally, Laura Loomer**\
-`Ukraine and its supporters have invested years in trying to undo the skepticism of the country’s war effort harbored by President Trump’s MAGA movement and the president himself.`\
-https://www.nytimes.com/2026/08/01/us/politics/ukraine-maga-loomer-trump.html
 
