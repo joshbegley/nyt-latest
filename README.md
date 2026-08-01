@@ -1,3 +1,75 @@
+**Un triángulo amoroso no estaba entre mis planes**\
+`Estaba preparada para las garrapatas, los osos y las tormentas de hielo, pero no para elegir entre dos hombres.`\
+https://www.nytimes.com/es/2026/08/01/espanol/estilos-de-vida/modern-love-triangulo-amoroso.html
+
+**Corrections: Aug. 1, 2026**\
+`Corrections that appeared in print on Saturday, Aug. 1, 2026.`\
+https://www.nytimes.com/2026/08/01/pageoneplus/corrections-aug-1-2026.html
+
+**The Fight Over the World’s Oldest Bank**\
+`Founded in 1472, Banca Monte dei Paschi di Siena has survived wars, pandemics and scandals. But a hostile takeover bid has Tuscans on edge.`\
+https://www.nytimes.com/2026/08/01/business/dealbook/italy-oldest-bank-takeover-battle.html
+
+**Fact-Checking Trump’s Claims About the Effect of the Iran War on Oil Prices, Munitions and More**\
+`The president misleadingly blamed the Biden administration’s weapons transfers to Ukraine for current concerns over munitions stockpiles, among other claims about the Iran war.`\
+https://www.nytimes.com/2026/08/01/us/politics/trump-iran-war-toll-oil-fact-check.html
+
+**Cuando el ‘looksmaxxing’ es un acto de duelo**\
+`Cuando eres mayor de lo que era tu madre cuando murió, cada cana y cada arruga duele profundamente.`\
+https://www.nytimes.com/es/2026/08/01/espanol/looksmaxxing.html
+
+**Paul Sanasardo, Creator of Intense (and Even Brutal) Dances, Dies at 97**\
+`His dreamlike, expressionistic style influenced the vividly theatrical works of the German choreographer Pina Bausch, an early collaborator.`\
+https://www.nytimes.com/2026/08/01/arts/dance/paul-sanasardo-dead.html
+
+**A French Village Becomes a Ghost Town After the Wildfires**\
+`Wildfires in France have forced tens of thousands of people from their homes and left entire towns deserted along the southwest coast. We visited Claouey, an empty beach town, and found a handful of residents who chose to stay, including one man who’s made it his mission to care for all the village pets.`\
+https://www.nytimes.com/video/world/europe/100000011063710/france-wildfires-evacuation-pets.html
+
+**How Ukraine Is Making Inroads With MAGA and a Trump Ally, Laura Loomer**\
+`Ukraine and its supporters have invested years in trying to undo the skepticism of the country’s war effort harbored by President Trump’s MAGA movement and the president himself.`\
+https://www.nytimes.com/2026/08/01/us/politics/ukraine-maga-loomer-trump.html
+
+**14 Off Broadway Shows (and 1 Festival) to Elevate Your August**\
+`Bridget Everett, Patti LuPone, Alex Moffat, Ben Folds and Michael R. Jackson are all slated to perform on New York City stages this month.`\
+https://www.nytimes.com/2026/08/01/arts/14-off-broadway-shows-and-1-festival-to-elevate-your-august.html
+
+**Solve the August Bonus Puzzle**\
+`Rob Rausch, a reality television star and snake wrangler, co-constructed this month’s puzzle.`\
+https://www.nytimes.com/2026/08/01/crosswords/bonus-puzzle-rob-rausch-snakes.html
+
+**In Iran, the U.S. Appears Headed for a Strategic Defeat, Allies Fear**\
+`With none of President Trump’s aims accomplished and the Strait of Hormuz closed, U.S. allies see dysfunction and vulnerability from the war.`\
+https://www.nytimes.com/2026/08/01/world/middleeast/us-iran-war-strategy.html
+
+**Shaboozey, Ariana Grande: Songs to Know This week**\
+`Shaboozey teams with Kehlani, Ariana Grande gets meta and Lindsay Lou convenes a team of string-band all-stars.`\
+https://www.nytimes.com/2026/08/01/arts/music/shaboozey-ariana-grande-songs.html
+
+**When Neighbors Fight Over Shared Space, Who Wins?**\
+`The law requires homeowners to keep their properties in a safe, legal condition — as much for their neighbors as themselves.`\
+https://www.nytimes.com/2026/08/01/realestate/neighbor-dispute.html
+
+**Is A.I. ‘Scheming’ Against Us?**\
+`Researchers are sounding the alarm on sneaky artificial intelligence models that stray from humans’ directions to do their own thing.`\
+https://www.nytimes.com/2026/08/01/business/ai-scheming.html
+
+**The Jumping Spiders of TikTok**\
+`Jumping spiders are tiny, social, fuzzy creatures. In a sea of sameness online, they are now social media stars.`\
+https://www.nytimes.com/2026/08/01/style/jumping-spiders-tiktok.html
+
+**The Best Movies and TV Shows Coming to Disney+, AMC+, Apple TV and More in August**\
+`“Ted Lasso” returns, and “The Shards” and a documentary about Novak Djokovic also arrive.`\
+https://www.nytimes.com/2026/08/01/arts/television/movies-tv-shows-august-2026-streaming.html
+
+**Provincetown Bear Week Feels Different in the Age of GLP-1s**\
+`An annual celebration of bears — gay men on the bigger and hairier side — feels different in the age of GLP-1s.`\
+https://www.nytimes.com/2026/08/01/style/provincetown-bear-week-ozempic.html
+
+**Trump Administration Is Undoing Plans to Boost Workplace Heat Protections**\
+`The Biden administration took steps to shield workers from extreme temperatures. The Trump administration is taking a gentler approach with employers.`\
+https://www.nytimes.com/2026/08/01/climate/heat-workplace-protections-osha-trump.html
+
 **She Voted for a Justice Who Overturned Roe. Now it Haunts Her on the Trail.**\
 `Senator Susan Collins, who supports abortion rights, endorsed Brett Kavanaugh’s nomination for the Supreme Court. It has emerged as a major issue in her campaign for re-election.`\
 https://www.nytimes.com/2026/08/01/us/politics/collins-kavanaugh-vote-roe-v-wade.html
@@ -125,76 +197,4 @@ https://www.nytimes.com/2026/08/01/world/europe/europe-summer-heat-germany-clima
 **Japan’s Rescuers Battle Cruel Heat After Major Earthquake**\
 `Kumamoto faces a “double disaster,” as rescuers work in 100 degree heat, and shelters with limited air-conditioning put displaced people at risk for heatstroke.`\
 https://www.nytimes.com/2026/08/01/world/asia/japan-earthquake-recovery-heat.html
-
-**Evidence Indicates U.S. Dropped Bomb on Residential Area in Iran, Killing 3 Civilians**\
-`The weapon, one of the largest in the U.S.’s arsenal, struck a house in a heavily populated area, according to a Times analysis.`\
-https://www.nytimes.com/2026/07/31/world/middleeast/us-iran-bomb-mk84-qeshm-island.html
-
-**Officer Charged With Violating Privacy for Recording Colleagues’ Racism**\
-`The charges stem from recordings that Daniel Flores made over the course of 2024, when he was working in a Los Angeles police unit that recruited new officers.`\
-https://www.nytimes.com/2026/07/31/us/lapd-recording-felony.html
-
-****\
-`Winston Peters, New Zealand’s foreign minister, told Lawrence Xu-Nan, a Chinese-born lawmaker with the Green Party, to “go back to your own country” during a heated debate in Parliament on Wednesday.`\
-https://www.nytimes.com/video/embedded/world/australia/100000011067427/01vid-NZ-FM-embed-91943.html
-
-**Dis/cuss?**\
-`Zachary David Levy’s tough puzzle might make solvers mutter.`\
-https://www.nytimes.com/2026/07/31/crosswords/daily-puzzle-2026-08-01.html
-
-**Caso Nancy Guthrie: primero exigían millones y luego decían que había muerto**\
-`La madre de 84 años de Savannah Guthrie, la presentadora de noticias de televisión, lleva casi seis meses desaparecida. Las autoridades dieron a conocer el viernes las notas de rescate.`\
-https://www.nytimes.com/es/2026/07/31/espanol/nancy-guthrie-nota-rescate.html
-
-**George Santos Fined Over Bets on State of the Union on Kalshi Prediction Market**\
-`A federal regulator fined the former lawmaker $35,000 over allegations of insider trading by placing bets on Kalshi about whether he would attend the State of the Union address in February.`\
-https://www.nytimes.com/2026/07/31/us/politics/george-santos-fined-kalshi-bets.html
-
-**La crítica a ‘La odisea’ de una traductora del clásico encendió un debate**\
-`Emily Wilson, cuya traducción del clásico griego influyó en el director Christopher Nolan, opinó en un ensayo para The London Review of Books que le habría “avergonzado haber escrito cualquier parte de este guion”.`\
-https://www.nytimes.com/es/2026/07/31/espanol/cultura/critica-odisea-traductora-nolan.html
-
-**‘Where Are the Kids?’: Caregivers Charged After Twin Starves to Death**\
-`A mother and grandmother in the Bronx face charges over the care of twin teenagers with autism. One of the boys weighed 59 pounds when he died. His brother, according to prosecutors, barely survived.`\
-https://www.nytimes.com/2026/07/31/nyregion/starvation-autism-bronx-murder.html
-
-**Trump Backs Away From Deal to Let Ukraine Build Patriot Missiles**\
-`The president of Ukraine had warned that the country was running out of Patriot interceptors, the most reliable weapon it has to shoot down Russian ballistic missiles.`\
-https://www.nytimes.com/2026/07/31/us/politics/trump-ukraine-patriot-missiles.html
-
-**Missing Australian Hiker Found Dead on Wyoming Trail**\
-`The man had been traveling the Continental Divide Trail, which goes through five states and is described by a hiking group as one of the “most challenging landscapes in North America.”`\
-https://www.nytimes.com/2026/07/31/us/wyoming-continental-divide-trail-hiker-dead.html
-
-**Trump and Netanyahu May Be at Odds Again Over Gaza Plan**\
-`President Trump’s announcement came at a difficult point in his relationship with the Israeli leader over their war against Iran.`\
-https://www.nytimes.com/2026/07/31/us/politics/trump-hamas-gaza-israel-netanyahu.html
-
-**Charges Dropped Against Ex-Olympian David Hearn Accused of Damaging Reflecting Pool**\
-`A former Olympian will not face trial after federal prosecutors acknowledged that the Trump administration’s claims of vandalism were false.`\
-https://www.nytimes.com/2026/07/31/us/politics/david-hearn-reflecting-pool-vandalism-charges.html
-
-**What Worries Democrats as the Midterms Heat Up**\
-`There’s a lot going right for the Democrats. Here’s what could go wrong.`\
-https://www.nytimes.com/2026/07/31/us/politics/democrats-primary-elections-midterms.html
-
-**Migrants Flood a Tiny Spanish Territory**\
-`Plus, the Trump administration plans Sun Belt water cuts. Here’s the latest at the end of Friday.`\
-https://www.nytimes.com/2026/07/31/briefing/ceuta-gaza-colorado.html
-
-**2 Children Drown in New Jersey River**\
-`The body of a girl, 10, was found in the Passaic River on Friday evening, two days after she was swept away. The body of a boy the same age was recovered earlier.`\
-https://www.nytimes.com/2026/07/31/nyregion/passaic-river-new-jersey-drownings.html
-
-**Who Would Octavia Spencer Be in Another Life?**\
-`What if Octavia Spencer hadn’t become an actor? She reveals the surprising career she’d choose and the TV obsessions that planted the seed.`\
-https://www.nytimes.com/video/us/100000010953626/octavia-spencer-interview-tv-shows.html
-
-**Leopold Aschenbrenner Built a Hot A.I. Hedge Fund. Then it Melted Down.**\
-`Situational Awareness, led by a 24-year-old, exploded onto the artificial intelligence scene — and then nose-dived.`\
-https://www.nytimes.com/2026/07/31/business/situational-awareness-leopold-aschenbrenner.html
-
-**Crisis en Ceuta: la mayoría de los migrantes que llegaron a España han vuelto a Marruecos**\
-`De las 60.000 personas que llegaron a Ceuta, unas 48.000 habían vuelto a casa al cabo de un día. Pero la afluencia repentina puso en jaque al gobierno español.`\
-https://www.nytimes.com/live/2026/07/31/espanol/espana-ceuta-inmigrantes-crisis
 

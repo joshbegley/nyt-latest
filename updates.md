@@ -1,3 +1,55 @@
+**She Voted for a Justice Who Overturned Roe. Now it Haunts Her on the Trail.**\
+`Senator Susan Collins, who supports abortion rights, endorsed Brett Kavanaugh’s nomination for the Supreme Court. It has emerged as a major issue in her campaign for re-election.`\
+https://www.nytimes.com/2026/08/01/us/politics/collins-kavanaugh-vote-roe-v-wade.html
+
+**How a Culver City In-N-Out Ignited a Drive-Through Debate**\
+`The state gave rise to fast-food culture decades ago, but some cities are spurning drive-throughs because of the environmental and aesthetic impacts.`\
+https://www.nytimes.com/2026/08/01/us/drive-throughs-california-culver-city-in-n-out.html
+
+**33 Things to Do in N.Y.C. in August**\
+`Swim at a city pool, immerse yourself in cat videos, join in a collective scream or see Harry Styles and Tiffany Haddish.`\
+https://www.nytimes.com/2026/08/01/arts/33-things-to-do-in-nyc-in-august.html
+
+**Greta Lee Has a New Appreciation for Martha Stewart**\
+`“I mean, here she is, tending her garden in such a physical and athletic way in her short shorts,” the actress said. “That’s how I do it.”`\
+https://www.nytimes.com/2026/08/01/movies/greta-lee-late-fame.html
+
+**Book Review: ‘Plant Lady,’ by Minyoung Kang**\
+`“Plant Lady,” by the Korean novelist Minyoung Kang, imagines an urban haven for women who need an escape from dangerous men.`\
+https://www.nytimes.com/2026/08/01/books/review/plant-lady-minyoung-kang.html
+
+**Leaving Property to Your Heirs Can Lead to Headache, not Robust Wealth**\
+`Real estate passed down without a clear title of ownership can prevent families from creating generational wealth.`\
+https://www.nytimes.com/2026/08/01/business/inheritance-real-estate-retirement.html
+
+**Destination Weddings Are Moving Closer to Home**\
+`Some couples are trading far-flung destinations for domestic locales that offer the feel of a getaway without the expense and logistics of international travel.`\
+https://www.nytimes.com/2026/08/01/style/domestic-destination-weddings.html
+
+**Can Spider-Man Evolve Again in ‘Brand New Day’?**\
+`Our movie critic Alissa Wilkinson reviews “Spider-Man: Brand New Day,” in which the titular hero must grapple with his new, unwanted powers, along with the weight of the Marvel Cinematic Universe.`\
+https://www.nytimes.com/video/movies/100000011022345/can-spider-man-evolve-again-in-brand-new-day.html
+
+**What Else Do We Lose When People Give Up Booze?**\
+`Yes, there are many benefits of cutting back. But bars are closing. Jobs are going away. And a way of being together can feel harder to find.`\
+https://www.nytimes.com/2026/08/01/style/what-else-do-we-lose-when-people-give-up-booze.html
+
+**Book Review: ‘The Unknown,’ by Riley Sager**\
+`In Riley Sager’s “The Unknown,” actresses on a research trip stumble into a paranormal mystery.`\
+https://www.nytimes.com/2026/08/01/books/review/the-unknown-riley-sager.html
+
+**Trump’s Fixation on Arctic Ships Led to Billions in No-Bid Contracts**\
+`The president decided to buy 11 polar icebreakers after a game of golf with Finland’s president. Experts say it’s far from clear the United States needs so many.`\
+https://www.nytimes.com/2026/08/01/climate/trump-arctic-ships.html
+
+**Carmakers Go Back to the ’80s With Turbo Engines**\
+`A hyped technology from four decades ago, turbocharging is now standard in almost half of all cars sold in the United States, largely to help meet efficiency standards.`\
+https://www.nytimes.com/2026/08/01/business/turbo-engines-cars-trucks.html
+
+**The U.S. Deported Him to Jail in Russia. Then He Escaped.**\
+`Facing a long prison sentence or a forced trip to the front line of a war he opposes, Artyom Vovchenko believed it was worth taking a risk.`\
+https://www.nytimes.com/2026/08/01/world/europe/russia-war-deserter.html
+
 **Russia Pounds Kyiv, Hours After Trump Backs Off Air Defense Pledge**\
 `Russian ballistic missiles struck Kyiv, Ukraine’s capital, on Saturday, killing at least nine people and injuring more than 30, local officials said.`\
 https://www.nytimes.com/video/world/asia/100000011067535/-ukraine-russia-attack-missiles-patriot.html
