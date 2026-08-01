@@ -1,3 +1,15 @@
+**Baby’s First R-Rated Blockbuster**\
+`“The Odyssey” is selling out in all formats at all times of day. Even at morning screenings, which are packed with newborns and parents desperate to feel “normal.”`\
+https://www.nytimes.com/2026/08/01/nyregion/baby-movie-showings-parents.html
+
+**The Bagpiper’s Endless Quest for a Place to Practice**\
+`A tour of New York’s cemeteries, toxic canals and industrial zones where a great Highland bagpipe can drone in peace.`\
+https://www.nytimes.com/2026/08/01/nyregion/bagpipes-new-york.html
+
+**NYT Spelling Bee Answers for August 1, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/08/01/crosswords/spelling-bee-forum.html
+
 **Search Continues for 6 Climbers After Pakistan Avalanche**\
 `Four bodies, including that of an American climber, have been recovered since the avalanche struck on Thursday. The fate of renowned mountaineer Nirmal Purja was still unclear.`\
 https://www.nytimes.com/2026/08/01/world/asia/pakistan-avalanche-climbers-purja.html
@@ -177,18 +189,6 @@ https://www.nytimes.com/2026/07/31/us/politics/todd-blanche-ag-trump-immunity.ht
 **State Dept. to Release 250,000 More Trump Passports With His Portrait**\
 `An additional 250,000 commemorative passports, featuring a portrait of President Trump and intended to honor the nation’s 250th anniversary, will be available at in-person events.`\
 https://www.nytimes.com/2026/07/31/travel/trump-passports-usa-250th-anniversary.html
-
-**John Esposito, Who Challenged Negative Views of Muslims, Dies at 86**\
-`Starting out in the 1970s as a rare American expert on political Islam, he became a prolific scholar and a prominent public intellectual.`\
-https://www.nytimes.com/2026/07/31/books/john-esposito-dead.html
-
-**Coast Guard Vows to Protect Crews From Brain Injuries Caused by Rough Seas**\
-`The head of the Coast Guard said “decisive action” would be taken so the injuries would be recognized, treated and prevented.`\
-https://www.nytimes.com/2026/07/31/us/31nat-coast-guard-brain-injury-boat-waves-surfmen.html
-
-**The Best Clothing Stores in New York**\
-`New York is, was and always will be a shopping town. These are the stores that keep it vibrant and alive.`\
-https://www.nytimes.com/interactive/2026/07/30/style/best-clothes-stores-nyc.html
 
 **Crisis en Ceuta: la mayoría de los migrantes que llegaron a España han vuelto a Marruecos**\
 `De las 60.000 personas que llegaron a Ceuta, unas 48.000 habían vuelto a casa al cabo de un día. Pero la afluencia repentina puso en jaque al gobierno español.`\
