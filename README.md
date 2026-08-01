@@ -1,3 +1,7 @@
+**La crítica a ‘La odisea’ de una traductora del clásico encendió un debate**\
+`Emily Wilson, cuya traducción del clásico griego influyó en el director Christopher Nolan, opinó en un ensayo para The London Review of Books que le habría “avergonzado haber escrito cualquier parte de este guion”.`\
+https://www.nytimes.com/es/2026/07/31/espanol/cultura/critica-odisea-traductora-nolan.html
+
 **‘Where Are the Kids?’: Caregivers Charged After Twin Starves to Death**\
 `A mother and grandmother in the Bronx face charges over the care of twin teenagers with autism. One of the boys weighed 59 pounds when he died. His brother, according to prosecutors, barely survived.`\
 https://www.nytimes.com/2026/07/31/nyregion/starvation-autism-bronx-murder.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/video/embedded/us/politics/100000011066184/31vid-rubio-t
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000011066256/31vid-trump-iran-sot.html
-
-**A Fledgling Food Reviewer’s Battle With Cyclospora**\
-`Christina Hart, 29, started posting reviews on social media in May. Less than two months later, a stomach illness forced her to stop.`\
-https://www.nytimes.com/2026/07/31/us/cyclospora-cyclosporiasis-nashville.html
 
 **Crisis en Ceuta: la mayoría de los migrantes que llegaron a España han vuelto a Marruecos**\
 `De las 60.000 personas que llegaron a Ceuta, unas 48.000 habían vuelto a casa al cabo de un día. Pero la afluencia repentina puso en jaque al gobierno español.`\
