@@ -78,8 +78,8 @@ https://www.nytimes.com/2026/07/31/us/politics/democrats-primary-elections-midte
 `Plus, the Trump administration plans Sun Belt water cuts. Here’s the latest at the end of Friday.`\
 https://www.nytimes.com/2026/07/31/briefing/ceuta-gaza-colorado.html
 
-**Divers Search a New Jersey River for Second of 2 Children They Fear Drowned**\
-`A girl, 10, was still missing in the Passaic River on Friday, nearly two days after she was swept away. The body of a boy the same age was recovered earlier; another girl, 11, was rescued.`\
+**2 Children Drown in New Jersey River**\
+`The body of a girl, 10, was found in the Passaic River on Friday evening, two days after she was swept away. The body of a boy the same age was recovered earlier.`\
 https://www.nytimes.com/2026/07/31/nyregion/passaic-river-new-jersey-drownings.html
 
 **Who Would Octavia Spencer Be in Another Life?**\
