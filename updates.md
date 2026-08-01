@@ -1,3 +1,7 @@
+**Japan’s Rescuers Battle Heat While Searching for Earthquake Survivors**\
+`Rescue workers looked for survivors and residents cleared debris amid sweltering heat after Japan’s magnitude-6.8 earthquake on Tuesday.`\
+https://www.nytimes.com/video/world/asia/100000011067706/japan-earthquake-rescue-heat-survivors.html
+
 **Timeline of Trump’s Lincoln Memorial Reflecting Pool Renovation Saga**\
 `President Trump vowed to restore the Reflecting Pool, a defining feature of Washington. Months later, it is empty and closed to the public.`\
 https://www.nytimes.com/2026/08/01/us/reflecting-pool-trump-timeline.html
