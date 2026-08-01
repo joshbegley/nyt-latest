@@ -1,3 +1,7 @@
+**Renowned Mountaineer Dies After Pakistan Avalanche**\
+`The British-Nepali mountaineer Nirmal Purja died after an avalanche in Pakistan, his company confirmed in a social media post.`\
+https://www.nytimes.com/video/obituaries/100000011067704/nirmal-purja-dead-pakistan-avalanche.html
+
 **EE. UU. sufre hackeos al suministro de agua en varios estados. La evidencia apunta a Irán**\
 `Aunque no hay indicios de que ningún suministro haya sido alterado o contaminado, las autoridades de al menos siete estados se mantienen en alerta máxima.`\
 https://www.nytimes.com/es/2026/08/01/espanol/estados-unidos/ciberataque-iran-agua.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/01/arts/television/movies-tv-shows-august-2026-s
 **Provincetown Bear Week Feels Different in the Age of GLP-1s**\
 `An annual celebration of bears — gay men on the bigger and hairier side — feels different in the age of GLP-1s.`\
 https://www.nytimes.com/2026/08/01/style/provincetown-bear-week-ozempic.html
-
-**Trump Administration Is Undoing Plans to Boost Workplace Heat Protections**\
-`The Biden administration took steps to shield workers from extreme temperatures. The Trump administration is taking a gentler approach with employers.`\
-https://www.nytimes.com/2026/08/01/climate/heat-workplace-protections-osha-trump.html
 
