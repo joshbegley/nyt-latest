@@ -1,3 +1,7 @@
+**The High-Stakes Battle for Invisible Real Estate in Space**\
+`As radio spectrum becomes more valuable, companies like SpaceX are jostling alongside governments to control more of it.`\
+https://www.nytimes.com/2026/08/01/business/dealbook/spacex-spectrum-battle.html
+
 **If This Is Medical Freedom, Why Do I Feel Trapped?**\
 `(No description)`\
 https://www.nytimes.com/2026/08/01/opinion/medical-freedom-public-health.html
