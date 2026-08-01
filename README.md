@@ -1,3 +1,11 @@
+**Trump Calls for $1.8 Billion Fund Over Blanche Attorney General Fight**\
+`The president vowed to push for the payout fund if Senate Republicans fail to confirm Todd Blanche as attorney general, reigniting a dispute over the settlement.`\
+https://www.nytimes.com/2026/08/01/us/politics/trump-todd-blanche-weaponization-payouts.html
+
+**Israel Says It Killed Several Hezbollah Members on Key Lebanon Hilltop**\
+`The confrontation, over a strategic ridge in southern Lebanon, challenged a fragile cease-fire between Israel and the Iran-backed militant group.`\
+https://www.nytimes.com/2026/08/01/world/middleeast/israel-hezbollah-lebanon-killing.html
+
 **Japan’s Rescuers Battle Heat While Searching for Earthquake Survivors**\
 `Rescue workers looked for survivors and residents cleared debris amid sweltering heat after Japan’s magnitude-6.8 earthquake on Tuesday.`\
 https://www.nytimes.com/video/world/asia/100000011067706/japan-earthquake-rescue-heat-survivors.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/01/crosswords/bonus-puzzle-rob-rausch-snakes.htm
 **In Iran, the U.S. Appears Headed for a Strategic Defeat, Allies Fear**\
 `With none of President Trump’s aims accomplished and the Strait of Hormuz closed, U.S. allies see dysfunction and vulnerability from the war.`\
 https://www.nytimes.com/2026/08/01/world/middleeast/us-iran-war-strategy.html
-
-**Shaboozey, Ariana Grande: Songs to Know This week**\
-`Shaboozey teams with Kehlani, Ariana Grande gets meta and Lindsay Lou convenes a team of string-band all-stars.`\
-https://www.nytimes.com/2026/08/01/arts/music/shaboozey-ariana-grande-songs.html
-
-**When Neighbors Fight Over Shared Space, Who Wins?**\
-`The law requires homeowners to keep their properties in a safe, legal condition — as much for their neighbors as themselves.`\
-https://www.nytimes.com/2026/08/01/realestate/neighbor-dispute.html
 
