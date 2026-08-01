@@ -1,10 +1,10 @@
-**What Happens to America’s Political Parties After Trump?**\
-`Democrats have an anger problem. Republicans have a Trump problem.`\
-https://www.nytimes.com/2026/08/01/opinion/trump-maga-republican-midterm.html
-
 **If This Is Medical Freedom, Why Do I Feel Trapped?**\
 `(No description)`\
 https://www.nytimes.com/2026/08/01/opinion/medical-freedom-public-health.html
+
+**What Happens to America’s Political Parties After Trump?**\
+`Democrats have an anger problem. Republicans have a Trump problem.`\
+https://www.nytimes.com/2026/08/01/opinion/trump-maga-republican-midterm.html
 
 **Summer Camp Has Become a Luxury. This Nonprofit Sends Kids for Free.**\
 `The Fresh Air Fund helps New York City children experience the joy and discovery of summer camp.`\
