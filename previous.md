@@ -1,3 +1,7 @@
+**Why ’70 Percent’ of Trump’s Mind Is on Renovations**\
+`Forget the Iran war and tariffs. Maggie Haberman explains on “The Ezra Klein Show” why Trump is so fixated on remodeling the White House and building an arch.`\
+https://www.nytimes.com/video/opinion/100000011044745/why-70-percent-of-trumps-mind-is-on-renovations.html
+
 **How Trump’s Second Term Looks to Trump**\
 `Does Trump think his second term is going well? The Times White House correspondent Maggie Haberman shares what she’s observed in her reporting on “The Ezra Klein Show.”`\
 https://www.nytimes.com/video/opinion/100000011044739/how-trumps-second-term-looks-to-trump.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/01/world/europe/russia-war-deserter.html
 **Russia Pounds Kyiv, Hours After Trump Backs Off Air Defense Pledge**\
 `Russian ballistic missiles struck Kyiv, Ukraine’s capital, on Saturday, killing at least nine people and injuring more than 30, local officials said.`\
 https://www.nytimes.com/video/world/asia/100000011067535/-ukraine-russia-attack-missiles-patriot.html
-
-**Spain Installs Floating Barrier in Ceuta After Influx of Migrants**\
-`Most of those who came to the territory, a Spanish exclave in Africa, have returned across the border to Morocco. At least 67 people died trying to enter, the authorities said.`\
-https://www.nytimes.com/2026/08/01/world/europe/spain-ceuta-migrants-morocco-border.html
 

@@ -1,3 +1,7 @@
+**Why ’70 Percent’ of Trump’s Mind Is on Renovations**\
+`Forget the Iran war and tariffs. Maggie Haberman explains on “The Ezra Klein Show” why Trump is so fixated on remodeling the White House and building an arch.`\
+https://www.nytimes.com/video/opinion/100000011044745/why-70-percent-of-trumps-mind-is-on-renovations.html
+
 **How Trump’s Second Term Looks to Trump**\
 `Does Trump think his second term is going well? The Times White House correspondent Maggie Haberman shares what she’s observed in her reporting on “The Ezra Klein Show.”`\
 https://www.nytimes.com/video/opinion/100000011044739/how-trumps-second-term-looks-to-trump.html
