@@ -1,3 +1,7 @@
+**Trump’s Polling Numbers Hit a New Low. Don’t Expect Him to Change Course.**\
+`Barely a third of Americans approve of Mr. Trump’s handling of the job, putting him at historic depths for a second-term president at this stage of his tenure.`\
+https://www.nytimes.com/2026/08/01/us/politics/trump-polls-approval-rating.html
+
 **In Dropping Reflecting Pool Case, Pirro Draws Trump’s Wrath**\
 `Jeanine Pirro, the U.S. attorney in Washington, blamed shoddy construction, contradicting President Trump’s pet theory. Mr. Trump said he disagreed “100%” with her.`\
 https://www.nytimes.com/2026/08/01/us/politics/jeanine-pirro-trump-reflecting-pool.html
