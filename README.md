@@ -1,3 +1,11 @@
+**What Happens to America’s Political Parties After Trump?**\
+`Democrats have an anger problem. Republicans have a Trump problem.`\
+https://www.nytimes.com/video/opinion/100000011063517/what-happens-to-americas-political-parties-after-trump.html
+
+**Kuwait Says It Downed Iranian Drones as Mideast Braces for Possible Escalation**\
+`The wave of strikes came as President Trump threatened to intensify the U.S. campaign against Iran, with both sides showing little sign of backing down.`\
+https://www.nytimes.com/2026/08/01/world/middleeast/iran-kuwait-drone-strikes-trump-escalation.html
+
 **Making Rounds**\
 `Errands get us out of our homes and into the world, on missions providing both serendipity and satisfaction.`\
 https://www.nytimes.com/2026/08/01/briefing/making-rounds.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/01/world/asia/pakistan-avalanche-climbers-purja.
 **Cómo pronosticar el clima en esta era de tormentas anómalas**\
 `Si dejamos de hablar del tiempo, nos arriesgamos a perder una oportunidad para la curiosidad colectiva y la apreciación de nuestras condiciones compartidas.`\
 https://www.nytimes.com/es/2026/08/01/espanol/pronostico-tiempo-clima-tormenta.html
-
-**El ataque de Ucrania a un barco iraní muestra cómo dos guerras podrían salir de control**\
-`Irán brindó ayuda militar a Rusia para su guerra contra Ucrania. ¿Estamos ante la convergencia de dos grandes conflictos?`\
-https://www.nytimes.com/es/2026/08/01/espanol/estados-unidos/ucrania-iran-rusia-israel-guerra.html
-
-**Incendios, bacterias y calor: el verano que asustó a los ricos**\
-`Olas de calor, garrapatas y un brote de ciclosporiasis muestran cómo los efectos del cambio climático alcanzan incluso a quienes parecían estar mejor protegidos.`\
-https://www.nytimes.com/es/2026/08/01/espanol/cambio-climatico-verano.html
 
