@@ -1,3 +1,27 @@
+**If This Is Medical Freedom, Why Do I Feel Trapped?**\
+`(No description)`\
+https://www.nytimes.com/2026/08/01/opinion/medical-freedom-public-health.html
+
+**What Happens to America’s Political Parties After Trump?**\
+`Democrats have an anger problem. Republicans have a Trump problem.`\
+https://www.nytimes.com/2026/08/01/opinion/trump-maga-republican-midterm.html
+
+**Summer Camp Has Become a Luxury. This Nonprofit Sends Kids for Free.**\
+`The Fresh Air Fund helps New York City children experience the joy and discovery of summer camp.`\
+https://www.nytimes.com/2026/08/01/opinion/fresh-air-fund-summer-camp-swimming.html
+
+**Why We Can’t Stop Talking About ‘The Odyssey’**\
+`Christopher Nolan’s film is perfectly calibrated for the culture war.`\
+https://www.nytimes.com/2026/08/01/opinion/the-odyssey-culture-war.html
+
+**Surviving With $3.78 in Her Bank Account by Selling Blood Plasma**\
+`Millions of Americans struggle in sometimes unimaginable ways, and Trump’s cuts in food stamps and other benefits are now making life even more precarious.`\
+https://www.nytimes.com/2026/08/01/opinion/poverty-america-oklahoma.html
+
+**To Find Happiness, I Stopped Talking. It Helped.**\
+`I had no idea what would help with my problems, but I knew what wouldn’t: talking about them. Which is why a silent retreat turned out to be exactly what I needed.`\
+https://www.nytimes.com/2026/08/01/opinion/happiness-silent-retreat.html
+
 **What Happens to America’s Political Parties After Trump?**\
 `Democrats have an anger problem. Republicans have a Trump problem.`\
 https://www.nytimes.com/video/opinion/100000011063517/what-happens-to-americas-political-parties-after-trump.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/es/2026/08/01/espanol/cultura/johnny-depp-regreso-ebenez
 **Hasta las gomitas están a dieta**\
 `Los dulces ‘saludables’ inundan los supermercados y las tiendas de conveniencia, e incluso han llegado a los gimnasios y las tiendas de suplementos.`\
 https://www.nytimes.com/es/2026/08/01/espanol/golosinas-galletas-dulces-saludables-dieta.html
-
-**Russian Missiles Kill 9 in Kyiv, Hours After Trump Backs Off Air Defense Pledge**\
-`It was the second deadly barrage to hit the Ukrainian capital in two days, as Moscow escalates its attacks in an apparent effort to exploit Ukraine’s dwindling supply of interceptors.`\
-https://www.nytimes.com/2026/08/01/world/europe/ukraine-russia-attack-missiles-patriot.html
-
-**Baby’s First R-Rated Blockbuster**\
-`“The Odyssey” is selling out in all formats at all times of day. Even at morning screenings, which are packed with newborns and parents desperate to feel “normal.”`\
-https://www.nytimes.com/2026/08/01/nyregion/baby-movie-showings-parents.html
-
-**The Bagpiper’s Endless Quest for a Place to Practice**\
-`A tour of New York’s cemeteries, toxic canals and industrial zones where a great Highland bagpipe can drone in peace.`\
-https://www.nytimes.com/2026/08/01/nyregion/bagpipes-new-york.html
-
-**NYT Spelling Bee Answers for August 1, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/08/01/crosswords/spelling-bee-forum.html
-
-**Search Continues for 7 Missing Climbers After Pakistan Avalanche**\
-`Three bodies, including that of an American climber, from a group of 10 were recovered a day after the avalanche struck on Thursday, officials said. The fate of renowned mountaineer Nirmal Purja was still unclear.`\
-https://www.nytimes.com/2026/08/01/world/asia/pakistan-avalanche-climbers-purja.html
-
-**Cómo pronosticar el clima en esta era de tormentas anómalas**\
-`Si dejamos de hablar del tiempo, nos arriesgamos a perder una oportunidad para la curiosidad colectiva y la apreciación de nuestras condiciones compartidas.`\
-https://www.nytimes.com/es/2026/08/01/espanol/pronostico-tiempo-clima-tormenta.html
 
