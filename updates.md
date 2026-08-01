@@ -1,3 +1,11 @@
+**‘Where Are the Kids?’: Caregivers Charged After Twin Starves to Death**\
+`A mother and grandmother in the Bronx face charges over the care of twin teenagers with autism. One of the boys weighed 59 pounds when he died. His brother, according to prosecutors, barely survived.`\
+https://www.nytimes.com/2026/07/31/nyregion/starvation-autism-bronx-murder.html
+
+**Crisis en Ceuta: la mayoría de los migrantes que llegaron a España han vuelto a Marruecos**\
+`De las 60.000 personas que llegaron a Ceuta, unas 48.000 habían vuelto a casa al cabo de un día. Pero la afluencia repentina puso en jaque al gobierno español.`\
+https://www.nytimes.com/live/2026/07/31/espanol/espana-ceuta-inmigrantes-crisis
+
 **Trump Backs Away From Deal to Let Ukraine Build Patriot Missiles**\
 `The president of Ukraine had warned that the country was running out of Patriot interceptors, the most reliable weapon it has to shoot down Russian ballistic missiles.`\
 https://www.nytimes.com/2026/07/31/us/politics/trump-ukraine-patriot-missiles.html
