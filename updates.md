@@ -1,3 +1,15 @@
+**Baby’s First R-Rated Blockbuster**\
+`“The Odyssey” is selling out in all formats at all times of day. Even at morning screenings, which are packed with newborns and parents desperate to feel “normal.”`\
+https://www.nytimes.com/2026/08/01/nyregion/baby-movie-showings-parents.html
+
+**The Bagpiper’s Endless Quest for a Place to Practice**\
+`A tour of New York’s cemeteries, toxic canals and industrial zones where a great Highland bagpipe can drone in peace.`\
+https://www.nytimes.com/2026/08/01/nyregion/bagpipes-new-york.html
+
+**NYT Spelling Bee Answers for August 1, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/08/01/crosswords/spelling-bee-forum.html
+
 **Search Continues for 6 Climbers After Pakistan Avalanche**\
 `Four bodies, including that of an American climber, have been recovered since the avalanche struck on Thursday. The fate of renowned mountaineer Nirmal Purja was still unclear.`\
 https://www.nytimes.com/2026/08/01/world/asia/pakistan-avalanche-climbers-purja.html
