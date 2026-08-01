@@ -1,10 +1,14 @@
+**Israel Bombards Gaza, Days After Trump Announced Deal to Advance Cease-fire**\
+`Palestinian officials said at least two people were killed. The deal announced by President Trump calls in part for Hamas to give up its weapons and Israel to stop its attacks in Gaza.`\
+https://www.nytimes.com/2026/08/01/world/middleeast/israel-gaza-strikes-trump-hamas.html
+
 **Peanut, Peanut Noodles (and Cabbage)**\
 `This new slaw from Hetty Lui McKinnon is for anyone who loves the punch of peanut sauce and the crunch of cabbage.`\
 https://www.nytimes.com/2026/08/01/dining/peanut-peanut-noodles-and-cabbage.html
 
 **Scope of Hacks on U.S. Water Supply Widens as Evidence Points to Iran**\
 `Michigan and Minnesota are among at least seven states coping with cyberattacks aimed at disrupting water systems nationwide.`\
-https://www.nytimes.com/2026/08/01/us/politics/scope-of-hacks-on-us-water-supply-widens-as-evidence-points-to-iran.html
+https://www.nytimes.com/2026/08/01/us/politics/iran-cyberattack-water-systems.html
 
 **Olga Soffer, Fashion Maven Who Studied Caveman Couture, Dies at 83**\
 `After working for a department store, she switched to archaeology and made important discoveries about prehistoric clothes and gender roles.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/01/books/review/plant-lady-minyoung-kang.html
 **Leaving Property to Your Heirs Can Lead to Headache, not Robust Wealth**\
 `Real estate passed down without a clear title of ownership can prevent families from creating generational wealth.`\
 https://www.nytimes.com/2026/08/01/business/inheritance-real-estate-retirement.html
-
-**Destination Weddings Are Moving Closer to Home**\
-`Some couples are trading far-flung destinations for domestic locales that offer the feel of a getaway without the expense and logistics of international travel.`\
-https://www.nytimes.com/2026/08/01/style/domestic-destination-weddings.html
 

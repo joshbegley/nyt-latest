@@ -1,3 +1,11 @@
+**Israel Bombards Gaza, Days After Trump Announced Deal to Advance Cease-fire**\
+`Palestinian officials said at least two people were killed. The deal announced by President Trump calls in part for Hamas to give up its weapons and Israel to stop its attacks in Gaza.`\
+https://www.nytimes.com/2026/08/01/world/middleeast/israel-gaza-strikes-trump-hamas.html
+
+**Scope of Hacks on U.S. Water Supply Widens as Evidence Points to Iran**\
+`Michigan and Minnesota are among at least seven states coping with cyberattacks aimed at disrupting water systems nationwide.`\
+https://www.nytimes.com/2026/08/01/us/politics/iran-cyberattack-water-systems.html
+
 **Peanut, Peanut Noodles (and Cabbage)**\
 `This new slaw from Hetty Lui McKinnon is for anyone who loves the punch of peanut sauce and the crunch of cabbage.`\
 https://www.nytimes.com/2026/08/01/dining/peanut-peanut-noodles-and-cabbage.html
