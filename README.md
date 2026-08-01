@@ -1,3 +1,7 @@
+**Incendios, bacterias y calor: el verano que asustó a los ricos**\
+`Olas de calor, garrapatas y un brote de ciclosporiasis muestran cómo los efectos del cambio climático alcanzan incluso a quienes parecían estar mejor protegidos.`\
+https://www.nytimes.com/es/2026/08/01/espanol/cambio-climatico-verano.html
+
 **Beijing Protests After New Zealand Minister Insults Chinese-Born Lawmaker**\
 `The foreign minister, Winston Peters, who leads a populist party, has refused to back down after telling the member of Parliament to “go back to your own country.”`\
 https://www.nytimes.com/2026/08/01/world/asia/new-zealand-foreign-minister-china-protest.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/video/us/elections/100000011063444/michigan-primary-elec
 **Amid Talk of a Party Switch, Fetterman Vows ‘Never’**\
 `Changing one’s affiliation is rare in the Senate, but it  can have big consequences. John Fetterman of Pennsylvania says he is staying put as a Democrat.`\
 https://www.nytimes.com/2026/07/31/us/amid-talk-of-a-party-switch-fetterman-vows-never.html
-
-**Readers Choose Their 25 Favorite Clothing Stores Across the U.S.**\
-`Where do you love to shop? We asked and you came through, offering hundreds of thoughtful responses. Here are 25 of your choices.`\
-https://www.nytimes.com/2026/07/31/fashion/best-clothing-stores-reader-favorites.html
 
 **Crisis en Ceuta: la mayoría de los migrantes que llegaron a España han vuelto a Marruecos**\
 `De las 60.000 personas que llegaron a Ceuta, unas 48.000 habían vuelto a casa al cabo de un día. Pero la afluencia repentina puso en jaque al gobierno español.`\
