@@ -158,8 +158,8 @@ https://www.nytimes.com/2026/08/01/nyregion/bagpipes-new-york.html
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/08/01/crosswords/spelling-bee-forum.html
 
-**Search Continues for 6 Climbers After Pakistan Avalanche**\
-`Four bodies, including that of an American climber, have been recovered since the avalanche struck on Thursday. The fate of renowned mountaineer Nirmal Purja was still unclear.`\
+**Search Continues for 7 Missing Climbers After Pakistan Avalanche**\
+`Three bodies, including that of an American climber, from a group of 10 were recovered a day after the avalanche struck on Thursday, officials said. The fate of renowned mountaineer Nirmal Purja was still unclear.`\
 https://www.nytimes.com/2026/08/01/world/asia/pakistan-avalanche-climbers-purja.html
 
 **Cómo pronosticar el clima en esta era de tormentas anómalas**\
