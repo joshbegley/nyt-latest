@@ -1,3 +1,15 @@
+**Fui a la Amazonia para volar en un avión del siglo pasado**\
+`El Douglas DC-3 fue producido en masa durante la Segunda Guerra Mundial. Hoy, uno de los pocos que quedan transporta pasajeros en la selva de Colombia.`\
+https://www.nytimes.com/es/2026/08/01/espanol/america-latina/avion-dc3-selva-colombia.html
+
+**Johnny Depp empieza a hacer campaña para su regreso**\
+`Paramount apuesta a que el público volverá a acoger a la estrella una década después de las acusaciones de violencia doméstica y un juicio por difamación.`\
+https://www.nytimes.com/es/2026/08/01/espanol/cultura/johnny-depp-regreso-ebenezer-scrooge.html
+
+**Hasta las gomitas están a dieta**\
+`Los dulces ‘saludables’ inundan los supermercados y las tiendas de conveniencia, e incluso han llegado a los gimnasios y las tiendas de suplementos.`\
+https://www.nytimes.com/es/2026/08/01/espanol/golosinas-galletas-dulces-saludables-dieta.html
+
 **Russian Missiles Kill 9 in Kyiv, Hours After Trump Backs Off Air Defense Pledge**\
 `It was the second deadly barrage to hit the Ukrainian capital in two days, as Moscow escalates its attacks in an apparent effort to exploit Ukraine’s dwindling supply of interceptors.`\
 https://www.nytimes.com/2026/08/01/world/europe/ukraine-russia-attack-missiles-patriot.html
