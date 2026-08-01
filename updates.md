@@ -1,3 +1,7 @@
+**Japan’s Rescuers Battle Cruel Heat After Major Earthquake**\
+`Kumamoto faces a “double disaster,” as rescuers work in 100 degree heat, and shelters with limited air-conditioning put displaced people at risk for heatstroke.`\
+https://www.nytimes.com/2026/08/01/world/asia/japan-earthquake-recovery-heat.html
+
 **Evidence Indicates U.S. Dropped Bomb on Residential Area in Iran, Killing 3 Civilians**\
 `The weapon, one of the largest in the U.S.’s arsenal, struck a house in a heavily populated area, according to a Times analysis.`\
 https://www.nytimes.com/2026/07/31/world/middleeast/us-iran-bomb-mk84-qeshm-island.html

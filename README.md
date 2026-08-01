@@ -1,3 +1,23 @@
+**Beijing Protests After New Zealand Minister Insults Chinese-Born Lawmaker**\
+`The foreign minister, Winston Peters, who leads a populist party, has refused to back down after telling the member of Parliament to “go back to your own country.”`\
+https://www.nytimes.com/2026/08/01/world/asia/new-zealand-foreign-minister-china-protest.html
+
+**How 50,000 People Surged Into a Spanish Exclave in Africa**\
+`On Thursday, tens of thousands of Moroccans broke into Ceuta, a Spanish territory that neighbors Morocco. By Friday evening, most of them had left, hungry and disappointed.`\
+https://www.nytimes.com/2026/08/01/world/europe/spain-ceuta-migrants-morocco.html
+
+**Quote of the Day: His Parties Serve as a Cultural Oasis for Young Cubans**\
+`Quotation of the Day for Saturday, August 1, 2026.`\
+https://www.nytimes.com/2026/08/01/pageoneplus/quote-of-the-day-his-parties-serve-as-a-cultural-oasis-for-young-cubans.html
+
+**On ‘Ted Lasso,’ Hannah Waddingham Is Ruthless. Off Camera, She’s ‘Quite a Goofy Nugget.’**\
+`Hannah Waddingham is a rare British actor to beat a path from musical theater to the screen.`\
+https://www.nytimes.com/2026/08/01/arts/television/hannah-waddington-ted-lasso.html
+
+**Extreme Heat Has Transformed What Summer Means Across Generations in Europe**\
+`Rising temperatures and more frequent heat waves have changed the feel of the season for today’s children, compared with their parents and grandparents.`\
+https://www.nytimes.com/2026/08/01/world/europe/europe-summer-heat-germany-climate-change.html
+
 **Japan’s Rescuers Battle Cruel Heat After Major Earthquake**\
 `Kumamoto faces a “double disaster,” as rescuers work in 100 degree heat, and shelters with limited air-conditioning put displaced people at risk for heatstroke.`\
 https://www.nytimes.com/2026/08/01/world/asia/japan-earthquake-recovery-heat.html
@@ -169,26 +189,6 @@ https://www.nytimes.com/2026/07/31/us/amid-talk-of-a-party-switch-fetterman-vows
 **Readers Choose Their 25 Favorite Clothing Stores Across the U.S.**\
 `Where do you love to shop? We asked and you came through, offering hundreds of thoughtful responses. Here are 25 of your choices.`\
 https://www.nytimes.com/2026/07/31/fashion/best-clothing-stores-reader-favorites.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/us/politics/100000011066392/31vid-trump-jan-6-riots-sot.html
-
-**Book Club: Let’s Talk About ‘John of John’**\
-`Douglas Stuart’s latest novel follows a profoundly isolated father and son, each grappling with long-held secrets.`\
-https://www.nytimes.com/2026/07/31/books/review/podcast-john-of-john-douglas-stuart-book-club.html
-
-**New Pop Star Alert: Tiffany Day**\
-`Hyperpop singer-songwriter Tiffany Day’s “Everything I’ve Ever Wanted” is a vulnerable exploration of the anxiety that comes with finally achieving your dreams. Our critic breaks down her journey from early internet fame and why her second album, “Halo,” may be one of the year’s best pure pop moments.`\
-https://www.nytimes.com/video/podcasts/100000011066308/new-pop-star-alert-tiffany-day.html
-
-**Ceuta Evokes Europe’s 2015 Migration Crisis. But Much Has Changed Since.**\
-`The crossing of 50,000 people to Spanish territory this week has created a crisis for the Spanish government, much as the 2015 migration crisis did for Europe’s leaders. The context is different.`\
-https://www.nytimes.com/2026/07/31/world/europe/ceuta-europe-migration-2015-legal-changes.html
-
-**‘Adults’ Is Getting a New First Episode**\
-`Many viewers turned away from “Adults” after an over-the-top scene in the show’s first episode, so FX made a new one.`\
-https://www.nytimes.com/2026/07/31/business/media/adults-fx-prequel-season-2.html
 
 **Crisis en Ceuta: la mayoría de los migrantes que llegaron a España han vuelto a Marruecos**\
 `De las 60.000 personas que llegaron a Ceuta, unas 48.000 habían vuelto a casa al cabo de un día. Pero la afluencia repentina puso en jaque al gobierno español.`\
