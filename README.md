@@ -1,3 +1,7 @@
+**Peanut, Peanut Noodles (and Cabbage)**\
+`This new slaw from Hetty Lui McKinnon is for anyone who loves the punch of peanut sauce and the crunch of cabbage.`\
+https://www.nytimes.com/2026/08/01/dining/peanut-peanut-noodles-and-cabbage.html
+
 **Scope of Hacks on U.S. Water Supply Widens as Evidence Points to Iran**\
 `Michigan and Minnesota are among at least seven states coping with cyberattacks aimed at disrupting water systems nationwide.`\
 https://www.nytimes.com/2026/08/01/us/politics/scope-of-hacks-on-us-water-supply-widens-as-evidence-points-to-iran.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/01/business/inheritance-real-estate-retirement.h
 **Destination Weddings Are Moving Closer to Home**\
 `Some couples are trading far-flung destinations for domestic locales that offer the feel of a getaway without the expense and logistics of international travel.`\
 https://www.nytimes.com/2026/08/01/style/domestic-destination-weddings.html
-
-**Can Spider-Man Evolve Again in ‘Brand New Day’?**\
-`Our movie critic Alissa Wilkinson reviews “Spider-Man: Brand New Day,” in which the titular hero must grapple with his new, unwanted powers, along with the weight of the Marvel Cinematic Universe.`\
-https://www.nytimes.com/video/movies/100000011022345/can-spider-man-evolve-again-in-brand-new-day.html
 
