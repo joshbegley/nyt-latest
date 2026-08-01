@@ -1,3 +1,7 @@
+**Vincent Pastore, Actor on ‘The Sopranos,’ Dies at 80**\
+`He played Salvatore Bonpensiero, a mobster’s foot soldier turned F.B.I. informant known to his friends as Big Pussy, on the celebrated HBO series.`\
+https://www.nytimes.com/2026/08/01/arts/television/vincent-pastore-dead.html
+
 **Trump Calls for $1.8 Billion Fund Over Blanche Attorney General Fight**\
 `The president vowed to push for the payout fund if Senate Republicans fail to confirm Todd Blanche as attorney general, reigniting a dispute over the settlement.`\
 https://www.nytimes.com/2026/08/01/us/politics/trump-todd-blanche-weaponization-payouts.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/01/arts/14-off-broadway-shows-and-1-festival-to-
 **Solve the August Bonus Puzzle**\
 `Rob Rausch, a reality television star and snake wrangler, co-constructed this month’s puzzle.`\
 https://www.nytimes.com/2026/08/01/crosswords/bonus-puzzle-rob-rausch-snakes.html
-
-**In Iran, the U.S. Appears Headed for a Strategic Defeat, Allies Fear**\
-`With none of President Trump’s aims accomplished and the Strait of Hormuz closed, U.S. allies see dysfunction and vulnerability from the war.`\
-https://www.nytimes.com/2026/08/01/world/middleeast/us-iran-war-strategy.html
 

@@ -1,3 +1,11 @@
+**Improvised Bomb Kills 3 at an Upscale Moscow Restaurant**\
+`Among the victims of the explosion, which also injured 21 people, were a security guard and a woman who the authorities say had arrived with the suspicious package.`\
+https://www.nytimes.com/2026/08/01/world/europe/deadly-bombing-moscow-restaurant.html
+
+**Spain Installs Floating Barrier in Ceuta**\
+`Spain installed a floating barrier near a seawall between Morocco and Ceuta on Saturday, after a surge of migrants crossed into the Spanish territory on Thursday. Many of the migrants were young men looking for work.`\
+https://www.nytimes.com/video/world/europe/100000011067852/spain-ceuta-migrants-floating-barrier.html
+
 **Vincent Pastore, Actor on ‘The Sopranos,’ Dies at 80**\
 `He played Salvatore Bonpensiero, a mobster’s foot soldier turned F.B.I. informant known to his friends as Big Pussy, on the celebrated HBO series.`\
 https://www.nytimes.com/2026/08/01/arts/television/vincent-pastore-dead.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/world/europe/100000011063710/france-wildfires-evac
 **How Ukraine Is Making Inroads With MAGA and a Trump Ally, Laura Loomer**\
 `Ukraine and its supporters have invested years in trying to undo the skepticism of the country’s war effort harbored by President Trump’s MAGA movement and the president himself.`\
 https://www.nytimes.com/2026/08/01/us/politics/ukraine-maga-loomer-trump.html
-
-**14 Off Broadway Shows (and 1 Festival) to Elevate Your August**\
-`Bridget Everett, Patti LuPone, Alex Moffat, Ben Folds and Michael R. Jackson are all slated to perform on New York City stages this month.`\
-https://www.nytimes.com/2026/08/01/arts/14-off-broadway-shows-and-1-festival-to-elevate-your-august.html
-
-**Solve the August Bonus Puzzle**\
-`Rob Rausch, a reality television star and snake wrangler, co-constructed this month’s puzzle.`\
-https://www.nytimes.com/2026/08/01/crosswords/bonus-puzzle-rob-rausch-snakes.html
 

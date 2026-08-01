@@ -1,3 +1,7 @@
+**Vincent Pastore, Actor on ‘The Sopranos,’ Dies at 80**\
+`He played Salvatore Bonpensiero, a mobster’s foot soldier turned F.B.I. informant known to his friends as Big Pussy, on the celebrated HBO series.`\
+https://www.nytimes.com/2026/08/01/arts/television/vincent-pastore-dead.html
+
 **Trump Calls for $1.8 Billion Fund Over Blanche Attorney General Fight**\
 `The president vowed to push for the payout fund if Senate Republicans fail to confirm Todd Blanche as attorney general, reigniting a dispute over the settlement.`\
 https://www.nytimes.com/2026/08/01/us/politics/trump-todd-blanche-weaponization-payouts.html
