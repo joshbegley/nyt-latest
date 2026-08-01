@@ -1,3 +1,7 @@
+**Justice Dept. Subpoenas Times Freelancer in Effort to Identify Sources**\
+`A previously undisclosed subpoena, involving reporting on a failed SEAL Team 6 mission in North Korea, reflects the government’s expanding campaign to investigate leaks of secrets.`\
+https://www.nytimes.com/2026/08/01/us/politics/times-subpoena-reporter-trump-north-korea.html
+
 **Migration Surge on the Spain-Morocco Border**\
 `Our Madrid bureau chief, Jason Horowitz, visits the coastal town of Ceuta, a Spanish territory in North Africa where there has been an unprecedented influx of migrants crossing the border from Morocco.`\
 https://www.nytimes.com/video/world/europe/100000011066115/migration-surge-on-the-spain-morocco-border.html
