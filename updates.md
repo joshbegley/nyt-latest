@@ -1,3 +1,7 @@
+**Search Continues for 7 Missing Climbers After Pakistan Avalanche**\
+`Three bodies, including that of an American climber, from a group of 10 were recovered a day after the avalanche struck on Thursday, officials said. The fate of renowned mountaineer Nirmal Purja was still unclear.`\
+https://www.nytimes.com/2026/08/01/world/asia/pakistan-avalanche-climbers-purja.html
+
 **Un triángulo amoroso no estaba entre mis planes**\
 `Estaba preparada para las garrapatas, los osos y las tormentas de hielo, pero no para elegir entre dos hombres.`\
 https://www.nytimes.com/es/2026/08/01/espanol/estilos-de-vida/modern-love-triangulo-amoroso.html
