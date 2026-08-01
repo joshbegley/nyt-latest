@@ -1,3 +1,7 @@
+**‘Spider-Man’ Heads for $875 Million Global Opening, Defying Superhero Slump**\
+`The movie, the 11th big-budget Spider-Man movie since 2002, was on pace to have one of the biggest domestic first weekends ever.`\
+https://www.nytimes.com/2026/08/01/business/media/spider-man-box-office-superhero.html
+
 **Iran Plotted Wider War With Help of Its Proxies**\
 `During a fleeting truce, Iranians covertly devised a plan to raise the war’s costs for President Trump if U.S. forces attacked anew.`\
 https://www.nytimes.com/2026/08/01/world/middleeast/iran-proxies-war-oil.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/01/us/drive-throughs-california-culver-city-in-n
 **33 Things to Do in N.Y.C. in August**\
 `Swim at a city pool, immerse yourself in cat videos, join in a collective scream or see Harry Styles and Tiffany Haddish.`\
 https://www.nytimes.com/2026/08/01/arts/33-things-to-do-in-nyc-in-august.html
-
-**Greta Lee Has a New Appreciation for Martha Stewart**\
-`“I mean, here she is, tending her garden in such a physical and athletic way in her short shorts,” the actress said. “That’s how I do it.”`\
-https://www.nytimes.com/2026/08/01/movies/greta-lee-late-fame.html
 

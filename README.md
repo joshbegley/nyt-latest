@@ -1,3 +1,7 @@
+**The Right Can’t Even Make a Revenge Movie Well**\
+`‘Citizen Vigilante’ is a bargain-bin movie for the ages.`\
+https://www.nytimes.com/2026/08/01/opinion/citizen-vigilante-right-revenge-movie.html
+
 **‘Spider-Man’ Heads for $875 Million Global Opening, Defying Superhero Slump**\
 `The movie, the 11th big-budget Spider-Man movie since 2002, was on pace to have one of the biggest domestic first weekends ever.`\
 https://www.nytimes.com/2026/08/01/business/media/spider-man-box-office-superhero.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/01/us/politics/collins-kavanaugh-vote-roe-v-wade
 **How a Culver City In-N-Out Ignited a Drive-Through Debate**\
 `The state gave rise to fast-food culture decades ago, but some cities are spurning drive-throughs because of the environmental and aesthetic impacts.`\
 https://www.nytimes.com/2026/08/01/us/drive-throughs-california-culver-city-in-n-out.html
-
-**33 Things to Do in N.Y.C. in August**\
-`Swim at a city pool, immerse yourself in cat videos, join in a collective scream or see Harry Styles and Tiffany Haddish.`\
-https://www.nytimes.com/2026/08/01/arts/33-things-to-do-in-nyc-in-august.html
 
