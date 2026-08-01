@@ -1,3 +1,11 @@
+**Kuwait Says It Downed Iranian Drones as Mideast Braces for Possible Escalation**\
+`The wave of strikes came as President Trump threatened to intensify the American campaign against Iran. U.S. embassies in the region warned of the “potential for unforeseen escalation.”`\
+https://www.nytimes.com/2026/08/01/world/middleeast/iran-kuwait-drone-strikes-trump-escalation.html
+
+**Spain Installs Floating Barrier in Ceuta After Influx of Migrants**\
+`Most of those who came to the territory, a Spanish exclave in Africa, have returned across the border to Morocco. At least 67 people died trying to enter, the authorities said.`\
+https://www.nytimes.com/2026/08/01/world/europe/spain-ceuta-migrants-morocco-border.html
+
 **Nirmal Purja, Renowned Mountaineer, Is Found Dead on Pakistani Mountain**\
 `The British-Nepali mountaineer was one of 10 climbers who were struck by an avalanche on Thursday on Broad Peak, one of the world’s highest mountains.`\
 https://www.nytimes.com/2026/08/01/world/asia/nirmal-purja-dead-pakistan-avalanche.html

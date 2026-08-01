@@ -6,13 +6,13 @@ https://www.nytimes.com/2026/08/01/world/asia/nirmal-purja-dead-pakistan-avalanc
 `As radio spectrum becomes more valuable, companies like SpaceX are jostling alongside governments to control more of it.`\
 https://www.nytimes.com/2026/08/01/business/dealbook/spacex-spectrum-battle.html
 
-**The Working Class Is Fleeing Trump**\
-`Democrats have an anger problem. Republicans have a Trump problem.`\
-https://www.nytimes.com/2026/08/01/opinion/trump-maga-republican-midterm.html
-
 **If This Is Medical Freedom, Why Do I Feel Trapped?**\
 `(No description)`\
 https://www.nytimes.com/2026/08/01/opinion/medical-freedom-public-health.html
+
+**The Working Class Is Fleeing Trump**\
+`Democrats have an anger problem. Republicans have a Trump problem.`\
+https://www.nytimes.com/2026/08/01/opinion/trump-maga-republican-midterm.html
 
 **Summer Camp Has Become a Luxury. This Nonprofit Sends Kids for Free.**\
 `The Fresh Air Fund helps New York City children experience the joy and discovery of summer camp.`\
@@ -35,7 +35,7 @@ https://www.nytimes.com/2026/08/01/opinion/happiness-silent-retreat.html
 https://www.nytimes.com/video/opinion/100000011063517/what-happens-to-americas-political-parties-after-trump.html
 
 **Kuwait Says It Downed Iranian Drones as Mideast Braces for Possible Escalation**\
-`The wave of strikes came as President Trump threatened to intensify the U.S. campaign against Iran, with both sides showing little sign of backing down.`\
+`The wave of strikes came as President Trump threatened to intensify the American campaign against Iran. U.S. embassies in the region warned of the “potential for unforeseen escalation.”`\
 https://www.nytimes.com/2026/08/01/world/middleeast/iran-kuwait-drone-strikes-trump-escalation.html
 
 **Making Rounds**\
@@ -191,7 +191,7 @@ https://www.nytimes.com/2026/08/01/world/europe/russia-war-deserter.html
 https://www.nytimes.com/video/world/asia/100000011067535/-ukraine-russia-attack-missiles-patriot.html
 
 **Spain Installs Floating Barrier in Ceuta After Influx of Migrants**\
-`Most of those who surged into the territory, a Spanish exclave in Africa, have returned across the border to Morocco. At least 67 people died trying to enter, the authorities said.`\
+`Most of those who came to the territory, a Spanish exclave in Africa, have returned across the border to Morocco. At least 67 people died trying to enter, the authorities said.`\
 https://www.nytimes.com/2026/08/01/world/europe/spain-ceuta-migrants-morocco-border.html
 
 **Fui a la Amazonia para volar en un avión del siglo pasado**\
