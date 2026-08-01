@@ -1,3 +1,35 @@
+**If This Is Medical Freedom, Why Do I Feel Trapped?**\
+`(No description)`\
+https://www.nytimes.com/2026/08/01/opinion/medical-freedom-public-health.html
+
+**What Happens to America’s Political Parties After Trump?**\
+`Democrats have an anger problem. Republicans have a Trump problem.`\
+https://www.nytimes.com/2026/08/01/opinion/trump-maga-republican-midterm.html
+
+**Summer Camp Has Become a Luxury. This Nonprofit Sends Kids for Free.**\
+`The Fresh Air Fund helps New York City children experience the joy and discovery of summer camp.`\
+https://www.nytimes.com/2026/08/01/opinion/fresh-air-fund-summer-camp-swimming.html
+
+**Why We Can’t Stop Talking About ‘The Odyssey’**\
+`Christopher Nolan’s film is perfectly calibrated for the culture war.`\
+https://www.nytimes.com/2026/08/01/opinion/the-odyssey-culture-war.html
+
+**Surviving With $3.78 in Her Bank Account by Selling Blood Plasma**\
+`Millions of Americans struggle in sometimes unimaginable ways, and Trump’s cuts in food stamps and other benefits are now making life even more precarious.`\
+https://www.nytimes.com/2026/08/01/opinion/poverty-america-oklahoma.html
+
+**To Find Happiness, I Stopped Talking. It Helped.**\
+`I had no idea what would help with my problems, but I knew what wouldn’t: talking about them. Which is why a silent retreat turned out to be exactly what I needed.`\
+https://www.nytimes.com/2026/08/01/opinion/happiness-silent-retreat.html
+
+**What Happens to America’s Political Parties After Trump?**\
+`Democrats have an anger problem. Republicans have a Trump problem.`\
+https://www.nytimes.com/video/opinion/100000011063517/what-happens-to-americas-political-parties-after-trump.html
+
+**Kuwait Says It Downed Iranian Drones as Mideast Braces for Possible Escalation**\
+`The wave of strikes came as President Trump threatened to intensify the U.S. campaign against Iran, with both sides showing little sign of backing down.`\
+https://www.nytimes.com/2026/08/01/world/middleeast/iran-kuwait-drone-strikes-trump-escalation.html
+
 **Making Rounds**\
 `Errands get us out of our homes and into the world, on missions providing both serendipity and satisfaction.`\
 https://www.nytimes.com/2026/08/01/briefing/making-rounds.html
