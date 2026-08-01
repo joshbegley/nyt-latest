@@ -1,3 +1,11 @@
+**Cómo pronosticar el clima en esta era de tormentas anómalas**\
+`Si dejamos de hablar del tiempo, nos arriesgamos a perder una oportunidad para la curiosidad colectiva y la apreciación de nuestras condiciones compartidas.`\
+https://www.nytimes.com/es/2026/08/01/espanol/pronostico-tiempo-clima-tormenta.html
+
+**El ataque de Ucrania a un barco iraní muestra cómo dos guerras podrían salir de control**\
+`Irán brindó ayuda militar a Rusia para su guerra contra Ucrania. ¿Estamos ante la convergencia de dos grandes conflictos?`\
+https://www.nytimes.com/es/2026/08/01/espanol/estados-unidos/ucrania-iran-rusia-israel-guerra.html
+
 **Incendios, bacterias y calor: el verano que asustó a los ricos**\
 `Olas de calor, garrapatas y un brote de ciclosporiasis muestran cómo los efectos del cambio climático alcanzan incluso a quienes parecían estar mejor protegidos.`\
 https://www.nytimes.com/es/2026/08/01/espanol/cambio-climatico-verano.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/interactive/2026/07/30/style/best-clothes-stores-nyc.htm
 **New York Sues Kalshi in Latest Bid to Regulate Prediction Markets**\
 `The suit is the latest effort by states to crack down on an industry that critics have called predatory. At least 15 states have introduced legislation this year to regulate the markets.`\
 https://www.nytimes.com/2026/07/31/nyregion/kalshi-ny-lawsuit-gambling.html
-
-**How the Michigan Primary Is Dividing Jewish Voters**\
-`U.S. support for Israel is dividing Jewish voters — and reshaping the Democratic Party — ahead of Michigan’s primary on Aug. 4. We traveled to Detroit to meet campaigners on both sides of the issue, and find out how the war in Gaza has shaped their politics, and tested their community.`\
-https://www.nytimes.com/video/us/elections/100000011063444/michigan-primary-elections-jewish-voters.html
-
-**Amid Talk of a Party Switch, Fetterman Vows ‘Never’**\
-`Changing one’s affiliation is rare in the Senate, but it  can have big consequences. John Fetterman of Pennsylvania says he is staying put as a Democrat.`\
-https://www.nytimes.com/2026/07/31/us/amid-talk-of-a-party-switch-fetterman-vows-never.html
 
 **Crisis en Ceuta: la mayoría de los migrantes que llegaron a España han vuelto a Marruecos**\
 `De las 60.000 personas que llegaron a Ceuta, unas 48.000 habían vuelto a casa al cabo de un día. Pero la afluencia repentina puso en jaque al gobierno español.`\
