@@ -1,3 +1,7 @@
+**Renowned Mountaineer Dies After Pakistan Avalanche**\
+`The British-Nepali mountaineer Nirmal Purja died after an avalanche in Pakistan, his company confirmed in a social media post.`\
+https://www.nytimes.com/video/obituaries/100000011067704/nirmal-purja-dead-pakistan-avalanche.html
+
 **‘Spider-Man: Brand New Day’ Heads for $875 Million Opening at Global Box Office**\
 `The movie, the 11th big-budget Spider-Man movie since 2002, was on pace to have one of the biggest domestic first weekends ever.`\
 https://www.nytimes.com/2026/08/01/business/media/spider-man-box-office-superhero.html
