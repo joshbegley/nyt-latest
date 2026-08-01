@@ -1,3 +1,23 @@
+**My Partner Lied About His Marriage, Then Dumped Me. Should I Go Quietly?**\
+`I no longer know whether his wife ever consented to our relationship, much less encouraged it.`\
+https://www.nytimes.com/2026/08/01/magazine/partner-lied-about-his-marriage-ethics.html
+
+**Today’s Wordle Hints for August 2, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Aug. 2, 2026.`\
+https://www.nytimes.com/2026/08/01/crosswords/wordle-review-1870.html
+
+**NYT Connections Answers for August 2, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Aug. 2, 2026.`\
+https://www.nytimes.com/2026/08/01/crosswords/connections-companion-1148.html
+
+**NYT Strands Hints for August 2, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Aug. 2, 2026.`\
+https://www.nytimes.com/2026/08/01/crosswords/strands-sidekick-882.html
+
+**A Weekend That Marks a Historical Moment for Black Canadians**\
+`Emancipation Day is a reminder that southwestern Ontario was once a mecca for enslaved people fleeing the United States.`\
+https://www.nytimes.com/2026/08/01/world/canada/emancipation-day-uncle-toms-cabin-ontario-canada.html
+
 **Search Continues for 7 Missing Climbers After Pakistan Avalanche**\
 `Three bodies, including that of an American climber, from a group of 10 were recovered a day after the avalanche struck on Thursday, officials said. The fate of renowned mountaineer Nirmal Purja was still unclear.`\
 https://www.nytimes.com/2026/08/01/world/asia/pakistan-avalanche-climbers-purja.html
