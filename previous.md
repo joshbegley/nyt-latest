@@ -1,3 +1,7 @@
+**Officer Charged With Violating Privacy for Recording Colleagues’ Racism**\
+`The charges stem from recordings that Daniel Flores made over the course of 2024, when he was working in a Los Angeles police unit that recruited new officers.`\
+https://www.nytimes.com/2026/07/31/us/lapd-recording-felony.html
+
 ****\
 `Winston Peters, New Zealand’s foreign minister, told Lawrence Xu-Nan, a Chinese-born lawmaker with the Green Party, to “go back to your own country” during a heated debate in Parliament on Wednesday.`\
 https://www.nytimes.com/video/embedded/world/australia/100000011067427/01vid-NZ-FM-embed-91943.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/31/us/gavin-newsom-tax-returns.html
 **Ukraine’s Strike on Iranian Ship Shows How Two Wars Could Spiral**\
 `Iran sent military aid to Russia for its war against Ukraine. Now the question is whether that conflict and the U.S.-Israeli war against Iran are converging.`\
 https://www.nytimes.com/2026/07/31/us/politics/iran-ukraine-war.html
-
-**Which Version of ‘The Odyssey’ Will You Experience?**\
-`Readers discuss “The Odyssey” - the epic poem and the movie. Also: Retiring and volunteering; the love of (many) books.`\
-https://www.nytimes.com/2026/07/31/opinion/christopher-nolan-odyssey-homer.html
 
 **Crisis en Ceuta: la mayoría de los migrantes que llegaron a España han vuelto a Marruecos**\
 `De las 60.000 personas que llegaron a Ceuta, unas 48.000 habían vuelto a casa al cabo de un día. Pero la afluencia repentina puso en jaque al gobierno español.`\

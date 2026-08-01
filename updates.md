@@ -1,3 +1,7 @@
+**Officer Charged With Violating Privacy for Recording Colleagues’ Racism**\
+`The charges stem from recordings that Daniel Flores made over the course of 2024, when he was working in a Los Angeles police unit that recruited new officers.`\
+https://www.nytimes.com/2026/07/31/us/lapd-recording-felony.html
+
 ****\
 `Winston Peters, New Zealand’s foreign minister, told Lawrence Xu-Nan, a Chinese-born lawmaker with the Green Party, to “go back to your own country” during a heated debate in Parliament on Wednesday.`\
 https://www.nytimes.com/video/embedded/world/australia/100000011067427/01vid-NZ-FM-embed-91943.html
