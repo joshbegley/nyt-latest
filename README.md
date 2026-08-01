@@ -24,7 +24,7 @@ https://www.nytimes.com/2026/07/31/us/politics/trump-hamas-gaza-israel-netanyahu
 
 **Charges Dropped Against Ex-Olympian David Hearn Accused of Damaging Reflecting Pool**\
 `A former Olympian will not face trial after federal prosecutors acknowledged that the Trump administration’s claims of vandalism were false.`\
-https://www.nytimes.com/2026/07/31/us/david-hearn-reflecting-pool-vandalism-charges.html
+https://www.nytimes.com/2026/07/31/us/politics/david-hearn-reflecting-pool-vandalism-charges.html
 
 **What Worries Democrats as the Midterms Heat Up**\
 `There’s a lot going right for the Democrats. Here’s what could go wrong.`\
