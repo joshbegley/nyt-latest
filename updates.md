@@ -1,3 +1,11 @@
+****\
+`Winston Peters, New Zealand’s foreign minister, told Lawrence Xu-Nan, a Chinese-born lawmaker with the Green Party, to “go back to your own country” during a heated debate in Parliament on Wednesday.`\
+https://www.nytimes.com/video/embedded/world/australia/100000011067427/01vid-NZ-FM-embed-91943.html
+
+**Dis/cuss?**\
+`Zachary David Levy’s tough puzzle might make solvers mutter.`\
+https://www.nytimes.com/2026/07/31/crosswords/daily-puzzle-2026-08-01.html
+
 **Thousands of Migrants Surge Into Ceuta from Morocco, Prompting Political Backlash**\
 `A sudden exodus of migrants from Morocco startled Spanish officials and drew heavy criticism from right-wing parties across the continent.`\
 https://www.nytimes.com/2026/07/31/world/europe/ceuta-morocco-migrants-spain.html
