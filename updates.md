@@ -1,3 +1,11 @@
+**EE. UU. sufre hackeos al suministro de agua en varios estados. La evidencia apunta a Irán**\
+`Aunque no hay indicios de que ningún suministro haya sido alterado o contaminado, las autoridades de al menos siete estados se mantienen en alerta máxima.`\
+https://www.nytimes.com/es/2026/08/01/espanol/estados-unidos/ciberataque-iran-agua.html
+
+**$4 Million Settlement in Suit Against Officer Who Took Nude Images From Women’s Phones**\
+`Julian Alcala, who was a police officer in Eastern Missouri, had illegally obtained the private images during traffic stops, the authorities said.`\
+https://www.nytimes.com/2026/08/01/us/missouri-police-nude-photos-settlement.html
+
 **The Right Can’t Even Make a Revenge Movie Well**\
 `‘Citizen Vigilante’ is a bargain-bin movie for the ages.`\
 https://www.nytimes.com/2026/08/01/opinion/citizen-vigilante-right-revenge-movie.html
