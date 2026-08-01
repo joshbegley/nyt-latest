@@ -1,3 +1,55 @@
+**She Voted for a Justice Who Overturned Roe. Now it Haunts Her on the Trail.**\
+`Senator Susan Collins, who supports abortion rights, endorsed Brett Kavanaugh’s nomination for the Supreme Court. It has emerged as a major issue in her campaign for re-election.`\
+https://www.nytimes.com/2026/08/01/us/politics/collins-kavanaugh-vote-roe-v-wade.html
+
+**How a Culver City In-N-Out Ignited a Drive-Through Debate**\
+`The state gave rise to fast-food culture decades ago, but some cities are spurning drive-throughs because of the environmental and aesthetic impacts.`\
+https://www.nytimes.com/2026/08/01/us/drive-throughs-california-culver-city-in-n-out.html
+
+**33 Things to Do in N.Y.C. in August**\
+`Swim at a city pool, immerse yourself in cat videos, join in a collective scream or see Harry Styles and Tiffany Haddish.`\
+https://www.nytimes.com/2026/08/01/arts/33-things-to-do-in-nyc-in-august.html
+
+**Greta Lee Has a New Appreciation for Martha Stewart**\
+`“I mean, here she is, tending her garden in such a physical and athletic way in her short shorts,” the actress said. “That’s how I do it.”`\
+https://www.nytimes.com/2026/08/01/movies/greta-lee-late-fame.html
+
+**Book Review: ‘Plant Lady,’ by Minyoung Kang**\
+`“Plant Lady,” by the Korean novelist Minyoung Kang, imagines an urban haven for women who need an escape from dangerous men.`\
+https://www.nytimes.com/2026/08/01/books/review/plant-lady-minyoung-kang.html
+
+**Leaving Property to Your Heirs Can Lead to Headache, not Robust Wealth**\
+`Real estate passed down without a clear title of ownership can prevent families from creating generational wealth.`\
+https://www.nytimes.com/2026/08/01/business/inheritance-real-estate-retirement.html
+
+**Destination Weddings Are Moving Closer to Home**\
+`Some couples are trading far-flung destinations for domestic locales that offer the feel of a getaway without the expense and logistics of international travel.`\
+https://www.nytimes.com/2026/08/01/style/domestic-destination-weddings.html
+
+**Can Spider-Man Evolve Again in ‘Brand New Day’?**\
+`Our movie critic Alissa Wilkinson reviews “Spider-Man: Brand New Day,” in which the titular hero must grapple with his new, unwanted powers, along with the weight of the Marvel Cinematic Universe.`\
+https://www.nytimes.com/video/movies/100000011022345/can-spider-man-evolve-again-in-brand-new-day.html
+
+**What Else Do We Lose When People Give Up Booze?**\
+`Yes, there are many benefits of cutting back. But bars are closing. Jobs are going away. And a way of being together can feel harder to find.`\
+https://www.nytimes.com/2026/08/01/style/what-else-do-we-lose-when-people-give-up-booze.html
+
+**Book Review: ‘The Unknown,’ by Riley Sager**\
+`In Riley Sager’s “The Unknown,” actresses on a research trip stumble into a paranormal mystery.`\
+https://www.nytimes.com/2026/08/01/books/review/the-unknown-riley-sager.html
+
+**Trump’s Fixation on Arctic Ships Led to Billions in No-Bid Contracts**\
+`The president decided to buy 11 polar icebreakers after a game of golf with Finland’s president. Experts say it’s far from clear the United States needs so many.`\
+https://www.nytimes.com/2026/08/01/climate/trump-arctic-ships.html
+
+**Carmakers Go Back to the ’80s With Turbo Engines**\
+`A hyped technology from four decades ago, turbocharging is now standard in almost half of all cars sold in the United States, largely to help meet efficiency standards.`\
+https://www.nytimes.com/2026/08/01/business/turbo-engines-cars-trucks.html
+
+**The U.S. Deported Him to Jail in Russia. Then He Escaped.**\
+`Facing a long prison sentence or a forced trip to the front line of a war he opposes, Artyom Vovchenko believed it was worth taking a risk.`\
+https://www.nytimes.com/2026/08/01/world/europe/russia-war-deserter.html
+
 **Russia Pounds Kyiv, Hours After Trump Backs Off Air Defense Pledge**\
 `Russian ballistic missiles struck Kyiv, Ukraine’s capital, on Saturday, killing at least nine people and injuring more than 30, local officials said.`\
 https://www.nytimes.com/video/world/asia/100000011067535/-ukraine-russia-attack-missiles-patriot.html
@@ -141,58 +193,6 @@ https://www.nytimes.com/video/us/100000010953626/octavia-spencer-interview-tv-sh
 **Leopold Aschenbrenner Built a Hot A.I. Hedge Fund. Then it Melted Down.**\
 `Situational Awareness, led by a 24-year-old, exploded onto the artificial intelligence scene — and then nose-dived.`\
 https://www.nytimes.com/2026/07/31/business/situational-awareness-leopold-aschenbrenner.html
-
-**Mildred Pitts Walter, Author of Books for Black Children, Dies at 103**\
-`Teaching kindergarten in South Central Los Angeles in the 1950s and ’60s, she realized that her students were not represented in the books they read. So she wrote her own.`\
-https://www.nytimes.com/2026/07/31/books/mildred-pitts-walter-dead.html
-
-**Hunter Biden Blames Cancer for Joe Biden’s Disastrous Debate**\
-`Medical experts say it is unlikely that Mr. Biden’s debate performance was affected by the cancer that was diagnosed months later.`\
-https://www.nytimes.com/2026/07/31/us/politics/hunter-biden-joe-biden-debate-cancer.html
-
-**Next Met Gala Show Will Honor John Galliano, Celebrated Designer Infamous for Antisemitic Rant**\
-`As famous for his antisemitic rant in 2011 as he is for his fashion, Galliano would be one of only three living designers ever to receive the honor.`\
-https://www.nytimes.com/2026/07/31/style/met-gala-costume-institute-john-galliano.html
-
-**Trump Administration Plans to Upend Head Start by Deregulating It**\
-`The White House tried but failed to block funding for preschool for poor children. Instead, it will seek to strip away standards on health, literacy — and brushing teeth.`\
-https://www.nytimes.com/2026/07/31/us/politics/head-start-deregulation.html
-
-**Warsh Considers Reducing Frequency of Fed Policy Meetings**\
-`The Federal Reserve has met at least eight times a year for decades. Reducing the number of meetings would represent the biggest change by Kevin M. Warsh since he became chairman.`\
-https://www.nytimes.com/2026/07/31/business/federal-reserve-warsh-meetings.html
-
-**John Ali, Nation of Islam Official Who Clashed With Malcolm X, Dies at 98**\
-`He was widely suspected of being an F.B.I. informant and of playing a role in the 1965 assassination of Malcolm, the charismatic Black activist.`\
-https://www.nytimes.com/2026/07/31/us/john-ali-dead.html
-
-**Why Mitch McConnell Isn’t Giving Up His Senate Seat**\
-`Democrats are demanding that the Kentucky Republican resign. Others who were sidelined for far longer faced no such calls, but times are changing.`\
-https://www.nytimes.com/2026/07/31/us/why-mitch-mcconnell-isnt-giving-up-his-senate-seat.html
-
-**Thousands of Migrants Surge Into Ceuta from Morocco, Prompting Political Backlash**\
-`A sudden exodus of migrants from Morocco startled Spanish officials and drew heavy criticism from right-wing parties across the continent.`\
-https://www.nytimes.com/2026/07/31/world/europe/ceuta-morocco-migrants-spain.html
-
-**Nancy Guthrie Ransom Notes Released by Sheriff’s Department Searching for New Leads**\
-`The 84-year-old mother of Savannah Guthrie, the television news anchor, has been missing for nearly six months.`\
-https://www.nytimes.com/2026/07/31/us/savannah-nancy-guthrie-ransom-note.html
-
-**Trump Blames Minnesota, Not Iran, for Cyberattack, Despite Initial Investigation**\
-`President Trump claimed without evidence that Minnesota’s Democratic government was “behind” a cyberattack on the state’s own water systems. Investigators believe Iran is likely responsible.`\
-https://www.nytimes.com/2026/07/31/us/politics/trump-minnesota-iran-cyberattack-walz.html
-
-**Trump to Appeal Judge’s Ruling Denouncing I.R.S. Lawsuit as Exercise in Self-Dealing**\
-`It was the latest sign that the president was doubling down on his fight for aspects of a deal that brings him vast benefits, even though they have jeopardized the confirmation of his pick for attorney general.`\
-https://www.nytimes.com/2026/07/31/us/politics/trump-appeal-irs-lawsuit-ruling.html
-
-**Trump Escalates Feud With Senate Over Blanche**\
-`The president’s comments threw the confirmation of Todd Blanche, his pick to be attorney general, further into doubt.`\
-https://www.nytimes.com/2026/07/31/us/trump-escalates-feud-with-senate-over-blanche.html
-
-**What Caused the Surge of Migrants From Morocco Into Ceuta?**\
-`Speculation has focused on lax Moroccan policing, attractive Spanish immigration policies and misinformation from human traffickers. In reality, experts said, it’s too early to know.`\
-https://www.nytimes.com/2026/07/31/world/europe/migrants-surge-morocco-ceuta-spain.html
 
 **Crisis en Ceuta: la mayoría de los migrantes que llegaron a España han vuelto a Marruecos**\
 `De las 60.000 personas que llegaron a Ceuta, unas 48.000 habían vuelto a casa al cabo de un día. Pero la afluencia repentina puso en jaque al gobierno español.`\
