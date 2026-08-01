@@ -1,3 +1,7 @@
+**Thousands of Migrants Surge Into Ceuta from Morocco, Prompting Political Backlash**\
+`A sudden exodus of migrants from Morocco startled Spanish officials and drew heavy criticism from right-wing parties across the continent.`\
+https://www.nytimes.com/2026/07/31/world/europe/ceuta-morocco-migrants-spain.html
+
 **Caso Nancy Guthrie: primero exigían millones y luego decían que había muerto**\
 `La madre de 84 años de Savannah Guthrie, la presentadora de noticias de televisión, lleva casi seis meses desaparecida. Las autoridades dieron a conocer el viernes las notas de rescate.`\
 https://www.nytimes.com/es/2026/07/31/espanol/nancy-guthrie-nota-rescate.html
