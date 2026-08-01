@@ -1,3 +1,7 @@
+**Timeline of Trump’s Lincoln Memorial Reflecting Pool Renovation Saga**\
+`President Trump vowed to restore the Reflecting Pool, a defining feature of Washington. Months later, it is empty and closed to the public.`\
+https://www.nytimes.com/2026/08/01/us/reflecting-pool-trump-timeline.html
+
 **Trump’s Polling Numbers Hit a New Low. Don’t Expect Him to Change Course.**\
 `Barely a third of Americans approve of Mr. Trump’s handling of the job, putting him at historic depths for a second-term president at this stage of his tenure.`\
 https://www.nytimes.com/2026/08/01/us/politics/trump-polls-approval-rating.html
@@ -82,13 +86,13 @@ https://www.nytimes.com/2026/08/01/world/asia/nirmal-purja-dead-pakistan-avalanc
 `As radio spectrum becomes more valuable, companies like SpaceX are jostling alongside governments to control more of it.`\
 https://www.nytimes.com/2026/08/01/business/dealbook/spacex-spectrum-battle.html
 
-**If This Is Medical Freedom, Why Do I Feel Trapped?**\
-`(No description)`\
-https://www.nytimes.com/2026/08/01/opinion/medical-freedom-public-health.html
-
 **The Working Class Is Fleeing Trump**\
 `Democrats have an anger problem. Republicans have a Trump problem.`\
 https://www.nytimes.com/2026/08/01/opinion/trump-maga-republican-midterm.html
+
+**If This Is Medical Freedom, Why Do I Feel Trapped?**\
+`(No description)`\
+https://www.nytimes.com/2026/08/01/opinion/medical-freedom-public-health.html
 
 **Summer Camp Has Become a Luxury. This Nonprofit Sends Kids for Free.**\
 `The Fresh Air Fund helps New York City children experience the joy and discovery of summer camp.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/01/realestate/neighbor-dispute.html
 **Is A.I. ‘Scheming’ Against Us?**\
 `Researchers are sounding the alarm on sneaky artificial intelligence models that stray from humans’ directions to do their own thing.`\
 https://www.nytimes.com/2026/08/01/business/ai-scheming.html
-
-**Best Movies and Shows Streaming in August 2026: ‘Ted Lasso,’ ‘Lioness’ and More**\
-`“Ted Lasso” returns, and “The Shards” and a documentary about Novak Djokovic also arrive.`\
-https://www.nytimes.com/2026/08/01/arts/television/movies-tv-shows-august-2026-streaming.html
 

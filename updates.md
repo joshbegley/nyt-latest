@@ -1,3 +1,7 @@
+**Timeline of Trump’s Lincoln Memorial Reflecting Pool Renovation Saga**\
+`President Trump vowed to restore the Reflecting Pool, a defining feature of Washington. Months later, it is empty and closed to the public.`\
+https://www.nytimes.com/2026/08/01/us/reflecting-pool-trump-timeline.html
+
 **Trump’s Polling Numbers Hit a New Low. Don’t Expect Him to Change Course.**\
 `Barely a third of Americans approve of Mr. Trump’s handling of the job, putting him at historic depths for a second-term president at this stage of his tenure.`\
 https://www.nytimes.com/2026/08/01/us/politics/trump-polls-approval-rating.html
