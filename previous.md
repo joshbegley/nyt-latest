@@ -1,3 +1,7 @@
+**Iran Plotted Wider War With Help of Its Proxies**\
+`During a fleeting truce, Iranians covertly devised a plan to raise the war’s costs for President Trump if U.S. forces attacked anew.`\
+https://www.nytimes.com/2026/08/01/world/middleeast/iran-proxies-war-oil.html
+
 **Wildfire Weather Poses ‘Particularly Dangerous Situation’ in Pacific Northwest**\
 `Forecasters in Washington and Oregon are using their strongest language this weekend to signal a worst-case wildfire threat and get people’s attention.`\
 https://www.nytimes.com/2026/08/01/weather/oregon-washington-fire.html
@@ -71,7 +75,7 @@ https://www.nytimes.com/2026/08/01/opinion/the-odyssey-culture-war.html
 https://www.nytimes.com/2026/08/01/opinion/poverty-america-oklahoma.html
 
 **To Find Happiness, I Stopped Talking. It Helped.**\
-`I had no idea what would help with my problems, but I knew what wouldn’t: talking about them. Which is why a silent retreat turned out to be exactly what I needed.`\
+`A silent retreat turned out to be exactly what I needed.`\
 https://www.nytimes.com/2026/08/01/opinion/happiness-silent-retreat.html
 
 **What Happens to America’s Political Parties After Trump?**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/01/arts/33-things-to-do-in-nyc-in-august.html
 **Greta Lee Has a New Appreciation for Martha Stewart**\
 `“I mean, here she is, tending her garden in such a physical and athletic way in her short shorts,” the actress said. “That’s how I do it.”`\
 https://www.nytimes.com/2026/08/01/movies/greta-lee-late-fame.html
-
-**Book Review: ‘Plant Lady,’ by Minyoung Kang**\
-`“Plant Lady,” by the Korean novelist Minyoung Kang, imagines an urban haven for women who need an escape from dangerous men.`\
-https://www.nytimes.com/2026/08/01/books/review/plant-lady-minyoung-kang.html
 

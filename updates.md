@@ -1,3 +1,11 @@
+**Iran Plotted Wider War With Help of Its Proxies**\
+`During a fleeting truce, Iranians covertly devised a plan to raise the war’s costs for President Trump if U.S. forces attacked anew.`\
+https://www.nytimes.com/2026/08/01/world/middleeast/iran-proxies-war-oil.html
+
+**To Find Happiness, I Stopped Talking. It Helped.**\
+`A silent retreat turned out to be exactly what I needed.`\
+https://www.nytimes.com/2026/08/01/opinion/happiness-silent-retreat.html
+
 **Wildfire Weather Poses ‘Particularly Dangerous Situation’ in Pacific Northwest**\
 `Forecasters in Washington and Oregon are using their strongest language this weekend to signal a worst-case wildfire threat and get people’s attention.`\
 https://www.nytimes.com/2026/08/01/weather/oregon-washington-fire.html
