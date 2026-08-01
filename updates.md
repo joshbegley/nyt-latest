@@ -1,3 +1,7 @@
+**‘Spider-Man: Brand New Day’ Heads for $875 Million Opening at Global Box Office**\
+`The movie, the 11th big-budget Spider-Man movie since 2002, was on pace to have one of the biggest domestic first weekends ever.`\
+https://www.nytimes.com/2026/08/01/business/media/spider-man-box-office-superhero.html
+
 **EE. UU. sufre hackeos al suministro de agua en varios estados. La evidencia apunta a Irán**\
 `Aunque no hay indicios de que ningún suministro haya sido alterado o contaminado, las autoridades de al menos siete estados se mantienen en alerta máxima.`\
 https://www.nytimes.com/es/2026/08/01/espanol/estados-unidos/ciberataque-iran-agua.html
