@@ -1,3 +1,11 @@
+**Caso Nancy Guthrie: primero exigían millones y luego decían que había muerto**\
+`La madre de 84 años de Savannah Guthrie, la presentadora de noticias de televisión, lleva casi seis meses desaparecida. Las autoridades dieron a conocer el viernes las notas de rescate.`\
+https://www.nytimes.com/es/2026/07/31/espanol/nancy-guthrie-nota-rescate.html
+
+**Amid Talk of a Party Switch, Fetterman Vows ‘Never’**\
+`Changing one’s affiliation is rare in the Senate, but it  can have big consequences. John Fetterman of Pennsylvania says he is staying put as a Democrat.`\
+https://www.nytimes.com/2026/07/31/us/amid-talk-of-a-party-switch-fetterman-vows-never.html
+
 **Charges Dropped Against Ex-Olympian David Hearn Accused of Damaging Reflecting Pool**\
 `A former Olympian will not face trial after federal prosecutors acknowledged that the Trump administration’s claims of vandalism were false.`\
 https://www.nytimes.com/2026/07/31/us/politics/david-hearn-reflecting-pool-vandalism-charges.html

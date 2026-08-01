@@ -1,3 +1,7 @@
+**Caso Nancy Guthrie: primero exigían millones y luego decían que había muerto**\
+`La madre de 84 años de Savannah Guthrie, la presentadora de noticias de televisión, lleva casi seis meses desaparecida. Las autoridades dieron a conocer el viernes las notas de rescate.`\
+https://www.nytimes.com/es/2026/07/31/espanol/nancy-guthrie-nota-rescate.html
+
 **George Santos Fined Over Bets on State of the Union on Kalshi Prediction Market**\
 `A federal regulator fined the former lawmaker $35,000 over allegations of insider trading by placing bets on Kalshi about whether he would attend the State of the Union address in February.`\
 https://www.nytimes.com/2026/07/31/us/politics/george-santos-fined-kalshi-bets.html
@@ -139,7 +143,7 @@ https://www.nytimes.com/2026/07/31/nyregion/kalshi-ny-lawsuit-gambling.html
 https://www.nytimes.com/video/us/elections/100000011063444/michigan-primary-elections-jewish-voters.html
 
 **Amid Talk of a Party Switch, Fetterman Vows ‘Never’**\
-`Changing one’s affiliation is rare in the Senate, but it can have big consequences. John Fetterman of Pennsylvania says he is staying put as a Democrat.`\
+`Changing one’s affiliation is rare in the Senate, but it  can have big consequences. John Fetterman of Pennsylvania says he is staying put as a Democrat.`\
 https://www.nytimes.com/2026/07/31/us/amid-talk-of-a-party-switch-fetterman-vows-never.html
 
 **Readers Choose Their 25 Favorite Clothing Stores Across the U.S.**\
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/31/nyregion/nyc-legionnaires-outbreak-over.html
 **Adam O’Neal Resigns as Washington Post Opinion Editor**\
 `Adam O’Neal inherited a mandate from the paper’s owner, Jeff Bezos, to shift toward “personal liberties and free markets.”`\
 https://www.nytimes.com/2026/07/31/business/media/washington-post-opinion-editor-resigns-after-1-year.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/us/politics/100000011066184/31vid-rubio-trump-sot-icc.html
 
 **Crisis en Ceuta: la mayoría de los migrantes que llegaron a España han vuelto a Marruecos**\
 `De las 60.000 personas que llegaron a Ceuta, unas 48.000 habían vuelto a casa al cabo de un día. Pero la afluencia repentina puso en jaque al gobierno español.`\
