@@ -1,3 +1,11 @@
+**Improvised Bomb Kills 3 at an Upscale Moscow Restaurant**\
+`Among the victims of the explosion, which also injured 21 people, were a security guard and a woman who the authorities say had arrived with the suspicious package.`\
+https://www.nytimes.com/2026/08/01/world/europe/deadly-bombing-moscow-restaurant.html
+
+**Spain Installs Floating Barrier in Ceuta**\
+`Spain installed a floating barrier near a seawall between Morocco and Ceuta on Saturday, after a surge of migrants crossed into the Spanish territory on Thursday. Many of the migrants were young men looking for work.`\
+https://www.nytimes.com/video/world/europe/100000011067852/spain-ceuta-migrants-floating-barrier.html
+
 **Vincent Pastore, Actor on ‘The Sopranos,’ Dies at 80**\
 `He played Salvatore Bonpensiero, a mobster’s foot soldier turned F.B.I. informant known to his friends as Big Pussy, on the celebrated HBO series.`\
 https://www.nytimes.com/2026/08/01/arts/television/vincent-pastore-dead.html
