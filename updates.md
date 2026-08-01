@@ -1,3 +1,7 @@
+**Mitch McConnell, Still Hospitalized, Misses Signature Kentucky Political Picnic**\
+`Senator Mitch McConnell’s ongoing hospitalization meant he missed his final chance to attend the signature western Kentucky event while in office.`\
+https://www.nytimes.com/2026/08/01/us/mitch-mcconnell-kentucky-republicans.html
+
 **Going for a Spin**\
 `Ralph Sharaga and Doug Peterson want to know: What would it take to get you into this puzzle today?`\
 https://www.nytimes.com/2026/08/01/crosswords/daily-puzzle-2026-08-02.html
