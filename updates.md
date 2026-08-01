@@ -1,3 +1,11 @@
+**Cómo pronosticar el clima en esta era de tormentas anómalas**\
+`Si dejamos de hablar del tiempo, nos arriesgamos a perder una oportunidad para la curiosidad colectiva y la apreciación de nuestras condiciones compartidas.`\
+https://www.nytimes.com/es/2026/08/01/espanol/pronostico-tiempo-clima-tormenta.html
+
+**El ataque de Ucrania a un barco iraní muestra cómo dos guerras podrían salir de control**\
+`Irán brindó ayuda militar a Rusia para su guerra contra Ucrania. ¿Estamos ante la convergencia de dos grandes conflictos?`\
+https://www.nytimes.com/es/2026/08/01/espanol/estados-unidos/ucrania-iran-rusia-israel-guerra.html
+
 **Incendios, bacterias y calor: el verano que asustó a los ricos**\
 `Olas de calor, garrapatas y un brote de ciclosporiasis muestran cómo los efectos del cambio climático alcanzan incluso a quienes parecían estar mejor protegidos.`\
 https://www.nytimes.com/es/2026/08/01/espanol/cambio-climatico-verano.html
