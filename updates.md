@@ -1,3 +1,7 @@
+**Wildfire Weather Poses ‘Particularly Dangerous Situation’ in Pacific Northwest**\
+`Forecasters in Washington and Oregon are using their strongest language this weekend to signal a worst-case wildfire threat and get people’s attention.`\
+https://www.nytimes.com/2026/08/01/weather/oregon-washington-fire.html
+
 **Israel Bombards Gaza, Days After Trump Announced Deal to Advance Cease-Fire**\
 `Palestinian officials said at least two people were killed. The deal announced by President Trump calls in part for Hamas to give up its weapons and Israel to stop its attacks in Gaza.`\
 https://www.nytimes.com/2026/08/01/world/middleeast/israel-gaza-strikes-trump-hamas.html
