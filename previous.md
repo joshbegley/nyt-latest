@@ -1,3 +1,7 @@
+**Scope of Hacks on U.S. Water Supply Widens as Evidence Points to Iran**\
+`Michigan and Minnesota are among at least seven states coping with cyberattacks aimed at disrupting water systems nationwide.`\
+https://www.nytimes.com/2026/08/01/us/politics/scope-of-hacks-on-us-water-supply-widens-as-evidence-points-to-iran.html
+
 **Olga Soffer, Fashion Maven Who Studied Caveman Couture, Dies at 83**\
 `After working for a department store, she switched to archaeology and made important discoveries about prehistoric clothes and gender roles.`\
 https://www.nytimes.com/2026/08/01/science/olga-soffer-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/01/style/domestic-destination-weddings.html
 **Can Spider-Man Evolve Again in ‘Brand New Day’?**\
 `Our movie critic Alissa Wilkinson reviews “Spider-Man: Brand New Day,” in which the titular hero must grapple with his new, unwanted powers, along with the weight of the Marvel Cinematic Universe.`\
 https://www.nytimes.com/video/movies/100000011022345/can-spider-man-evolve-again-in-brand-new-day.html
-
-**Book Review: ‘The Unknown,’ by Riley Sager**\
-`In Riley Sager’s “The Unknown,” actresses on a research trip stumble into a paranormal mystery.`\
-https://www.nytimes.com/2026/08/01/books/review/the-unknown-riley-sager.html
 

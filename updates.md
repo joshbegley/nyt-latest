@@ -1,3 +1,7 @@
+**Scope of Hacks on U.S. Water Supply Widens as Evidence Points to Iran**\
+`Michigan and Minnesota are among at least seven states coping with cyberattacks aimed at disrupting water systems nationwide.`\
+https://www.nytimes.com/2026/08/01/us/politics/scope-of-hacks-on-us-water-supply-widens-as-evidence-points-to-iran.html
+
 **Olga Soffer, Fashion Maven Who Studied Caveman Couture, Dies at 83**\
 `After working for a department store, she switched to archaeology and made important discoveries about prehistoric clothes and gender roles.`\
 https://www.nytimes.com/2026/08/01/science/olga-soffer-dead.html
