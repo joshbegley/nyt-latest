@@ -1,3 +1,11 @@
+**Can We Keep One Small Corner of America Technology-Free?**\
+`Can we have one small square of America that is A.I.-free?`\
+https://www.nytimes.com/2026/08/02/opinion/baseball-robot-umpires-ai.html
+
+**Trump Says He Canceled Strikes on Iran, Claiming Progress on Outlines of a Deal**\
+`President Trump has repeatedly threatened to escalate the war with Iran, only to abruptly back down. Saudi Arabia said its leader had urged Trump not to renew attacks.`\
+https://www.nytimes.com/2026/08/02/world/middleeast/trump-iran-cancels-attack-deal.html
+
 **Baseball Is Deliciously Imperfect. Robot Umpires Must Go.**\
 `Can we have one small square of America that is A.I.-free?`\
 https://www.nytimes.com/2026/08/02/opinion/baseball-robot-umpires-ai.html
