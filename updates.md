@@ -1,3 +1,11 @@
+**We Have Seafood Shack at Home**\
+`Melissa Clark’s five-star baked fish and chips satisfy that summer craving, no deep-frying necessary.`\
+https://www.nytimes.com/2026/08/02/dining/we-have-seafood-shack-at-home.html
+
+**Man Charged in Girl’s Abduction Nearly Four Years After She Was Last Seen**\
+`The police found the girl, who was 15 when she disappeared in 2022 in Milwaukee, alive in Virginia in May. A man faces more than 60 charges, including abduction, in connection with the case.`\
+https://www.nytimes.com/2026/08/02/us/missing-milwaukee-girl-found-virginia.html
+
 **Roma vive un renacimiento de la pizza**\
 `La “pizza al taglio”, el tradicional tentempié romano que se vende al peso, ahora incluye ingredientes como albóndigas al vino y cordero con comino. Estos son los mejores lugares para comerla.`\
 https://www.nytimes.com/es/2026/08/02/espanol/estilos-de-vida/pizza-roma.html
