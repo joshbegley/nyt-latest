@@ -1,3 +1,7 @@
+**Canada’s WestJet Cancels Trips Amid Strike By Flight Attendants**\
+`Labor talks resumed on Sunday between the airline and union representing 4,400 flight attendants, who want improved wages and compensation for unpaid work.`\
+https://www.nytimes.com/2026/08/02/world/canada/westjet-flight-attendants-strike-canada.html
+
 **The ‘Civil War’ Is a Lie. Let’s Call It the ‘Slaveholders’ Rebellion’ Again.**\
 `To face our own history, we must be honest about it.`\
 https://www.nytimes.com/2026/08/02/opinion/civil-war-slaveholders-rebellion-slavery.html

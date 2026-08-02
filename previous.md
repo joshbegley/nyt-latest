@@ -139,7 +139,7 @@ https://www.nytimes.com/2026/08/02/books/review/paul-yoon-etna-novel-dog.html
 https://www.nytimes.com/2026/08/02/health/trump-health-aid-state-department.html
 
 **Canada’s WestJet Cancels Trips Amid Strike By Flight Attendants**\
-`Labor talks broke down between the airline and union representing 4,400 flight attendants, who want improved wages and compensation for unpaid work.`\
+`Labor talks resumed on Sunday between the airline and union representing 4,400 flight attendants, who want improved wages and compensation for unpaid work.`\
 https://www.nytimes.com/2026/08/02/world/canada/westjet-flight-attendants-strike-canada.html
 
 **Nadie quiere verte en pantalones cortos en la oficina**\
