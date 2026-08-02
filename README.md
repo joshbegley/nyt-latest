@@ -1,3 +1,7 @@
+**We Have Seafood Shack at Home**\
+`Melissa Clark’s five-star baked fish and chips satisfy that summer craving, no deep-frying necessary.`\
+https://www.nytimes.com/2026/08/02/dining/we-have-seafood-shack-at-home.html
+
 **Man Charged in Girl’s Abduction Nearly Four Years After She Was Last Seen**\
 `The police found the girl, who was 15 when she disappeared in 2022 in Milwaukee, alive in Virginia in May. A man faces more than 60 charges, including abduction, in connection with the case.`\
 https://www.nytimes.com/2026/08/02/us/missing-milwaukee-girl-found-virginia.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/08/02/espanol/psicosis-postparto.html
 **This Is What My Father’s Assassination Taught Me About the War in Iran**\
 `After a lifetime of observing Iran’s revolutionary generation, I know that expecting meekness or diplomatic finesse from them is a dangerous illusion.`\
 https://www.nytimes.com/2026/08/02/opinion/iran-revolution-father-murder-boroujerdi-grimm.html
-
-**The ‘Civil War’ Is a Lie. Let’s Call It the ‘Slaveholders’ Rebellion’ Again.**\
-`To face our own history, we must be honest about it.`\
-https://www.nytimes.com/2026/08/02/opinion/civil-war-slaveholders-rebellion-slavery.html
 
