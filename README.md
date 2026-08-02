@@ -18,7 +18,7 @@ https://www.nytimes.com/2026/08/02/opinion/iran-war-russia-ukraine-world-war-thr
 `Whispers can fester for years before anyone faces consequences. And the tactics celebrities use to escape scandal have completely changed.`\
 https://www.nytimes.com/2026/08/02/opinion/jared-leto-hollywood-secrets-abuse-metoo.html
 
-**Baseball Is Deliciously Imperfect. Robot Umpires Must Go.**\
+**Can We Keep One Small Corner of America Technology-Free?**\
 `Can we have one small square of America that is A.I.-free?`\
 https://www.nytimes.com/2026/08/02/opinion/baseball-robot-umpires-ai.html
 
@@ -183,7 +183,7 @@ https://www.nytimes.com/2026/08/02/opinion/iran-revolution-father-murder-borouje
 https://www.nytimes.com/2026/08/02/opinion/civil-war-slaveholders-rebellion-slavery.html
 
 **Trump Says He Canceled Strikes on Iran, Claiming Progress on Outlines of a Deal**\
-`President Trump said he agreed to requests from Iran and other Middle Eastern countries to cancel planned attacks, citing what he said was progress in reaching the “perimeters of a deal” with Tehran.`\
+`President Trump has repeatedly threatened to escalate the war with Iran, only to abruptly back down. Saudi Arabia said its leader had urged Trump not to renew attacks.`\
 https://www.nytimes.com/2026/08/02/world/middleeast/trump-iran-cancels-attack-deal.html
 
 **How China Keeps Tabs on Foreigners**\
