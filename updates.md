@@ -1,3 +1,7 @@
+**Far-Right Leaders Step Up Calls for Expelling Remaining Migrants in Ceuta**\
+`Spain’s leading far-right politician arrived in the territory on Sunday, fueling political tensions there after thousands of migrants entered the exclave last week.`\
+https://www.nytimes.com/2026/08/02/world/europe/spain-ceuta-far-right.html
+
 **Can We Keep One Small Corner of America Technology-Free?**\
 `Can we have one small square of America that is A.I.-free?`\
 https://www.nytimes.com/2026/08/02/opinion/baseball-robot-umpires-ai.html
