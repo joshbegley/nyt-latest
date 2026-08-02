@@ -1,3 +1,23 @@
+**Una avioneta se estrelló en la zona de Nazca, Perú.**\
+`La aeronave había despegado de la ciudad costera de Pisco para ver los antiguos geoglifos en el desierto de Nazca, una popular atracción.`\
+https://www.nytimes.com/es/2026/08/02/espanol/america-latina/accidente-avion-nazca-peru.html
+
+**Ohio Senator Calls Former Son-in-Law Accused of Abuse Unfit for Office**\
+`Senator Bernie Moreno, Republican of Ohio, broke his silence about allegations of domestic abuse his daughter has made against Representative Max Miller.`\
+https://www.nytimes.com/2026/08/02/us/elections/max-miller-ohio-republican-moreno-election.html
+
+**What We Know About the Shooting at an In-N-Out Burger in Idaho**\
+`Gunfire brought panic to a shopping center in Twin Falls in what the authorities described as a chaotic scene. At least three people were killed.`\
+https://www.nytimes.com/2026/08/02/us/in-n-out-shooting-idaho-victims-suspect.html
+
+**We Have Seafood Shack at Home**\
+`Melissa Clark’s five-star baked fish and chips satisfy that summer craving, no deep-frying necessary.`\
+https://www.nytimes.com/2026/08/02/dining/we-have-seafood-shack-at-home.html
+
+**Man Charged in Girl’s Abduction Nearly Four Years After She Was Last Seen**\
+`The police found the girl, who was 15 when she disappeared in 2022 in Milwaukee, alive in Virginia in May. A man faces more than 60 charges, including abduction, in connection with the case.`\
+https://www.nytimes.com/2026/08/02/us/missing-milwaukee-girl-found-virginia.html
+
 **Chicago’s Mayoral Race Is Taking Shape. But What About the Incumbent?**\
 `Several prominent Democrats already are running for mayor of Chicago. Mayor Brandon Johnson has not said whether he will seek a second term next year.`\
 https://www.nytimes.com/2026/08/02/us/chicago-mayors-race.html
