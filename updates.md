@@ -1,3 +1,7 @@
+**Roma vive un renacimiento de la pizza**\
+`La “pizza al taglio”, el tradicional tentempié romano que se vende al peso, ahora incluye ingredientes como albóndigas al vino y cordero con comino. Estos son los mejores lugares para comerla.`\
+https://www.nytimes.com/es/2026/08/02/espanol/estilos-de-vida/pizza-roma.html
+
 **Why 70 Percent of Trump’s Mind Is on Renovations**\
 `Forget the Iran war and tariffs. Maggie Haberman explains on “The Ezra Klein Show” why Trump is so fixated on remodeling the White House and building an arch.`\
 https://www.nytimes.com/video/opinion/100000011044745/why-70-percent-of-trumps-mind-is-on-renovations.html
