@@ -1,3 +1,23 @@
+**Christopher Nolan Stared Into Elon Musk’s Soul**\
+`Then he turned toward Stephen Miller.`\
+https://www.nytimes.com/2026/08/02/opinion/christopher-nolan-odyssey-elon-musk.html
+
+**World War Two-and-a-Half Is Breaking Out**\
+`Whatever is happening in Iran, it isn’t working.`\
+https://www.nytimes.com/2026/08/02/opinion/iran-war-russia-ukraine-world-war-threat.html
+
+**Jared Leto and Hollywood’s Open Secrets**\
+`Whispers can fester for years before anyone faces consequences. And the tactics celebrities use to escape scandal have completely changed.`\
+https://www.nytimes.com/2026/08/02/opinion/jared-leto-hollywood-secrets-abuse-metoo.html
+
+**Baseball Is Weird, Illogical, Asymmetrical. Robot Umps Do Not Belong.**\
+`Can we have one small square of America that is A.I.-free?`\
+https://www.nytimes.com/2026/08/02/opinion/baseball-robot-umpires-ai.html
+
+**Christopher Nolan Stared Into Elon Musk’s Soul**\
+`‘The Odyssey’ is the political movie of the decade.`\
+https://www.nytimes.com/video/opinion/100000011066906/christopher-nolan-stared-into-elon-musks-soul.html
+
 **Today’s Wordle Hints for August 3, 2026**\
 `Scroll down for hints and conversation about the puzzle for Monday, Aug. 3, 2026.`\
 https://www.nytimes.com/2026/08/02/crosswords/wordle-review-1871.html
