@@ -14,8 +14,8 @@ https://www.nytimes.com/2026/08/02/briefing/family-road-trip.html
 `Millions look to Nicole LePera for advice on how to achieve contentment and maintain healthy relationships. But her own story is complicated.`\
 https://www.nytimes.com/2026/08/02/style/nicole-lepera-self-help-litigation-holistic-psychologist.html
 
-**Christopher Nolan Stared Into Elon Musk’s Soul**\
-`Then he turned toward Stephen Miller.`\
+**Christopher Nolan’s Trojan Horse**\
+`The finest trick of his “Odyssey” is smuggling the core of Judeo-Christian ethics into an ancient Greek epic.`\
 https://www.nytimes.com/2026/08/02/opinion/christopher-nolan-odyssey-elon-musk.html
 
 **World War Two-and-a-Half Is Breaking Out**\
