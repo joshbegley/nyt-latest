@@ -1,3 +1,7 @@
+**Far-Right Leaders Step Up Calls for Expelling Remaining Migrants in Ceuta**\
+`Anti-immigration campaigners were set to hold a rally in the Spanish territory to call for tougher action, after thousands of migrants entered the exclave last week.`\
+https://www.nytimes.com/2026/08/02/world/europe/spain-ceuta-far-right.html
+
 **The Surreal, Sublime Worlds of Szilveszter Makó**\
 `Belief is hard to capture. It’s interior, personal. It’s a challenge to translate the ineffable into words or photos — but the Hungarian photographer does it anyway.`\
 https://www.nytimes.com/2026/08/02/briefing/the-surreal-sublime-worlds-of-szilveszter-mako.html
@@ -134,7 +138,7 @@ https://www.nytimes.com/2026/08/02/opinion/iran-revolution-father-murder-borouje
 `To face our own history, we must be honest about it.`\
 https://www.nytimes.com/2026/08/02/opinion/civil-war-slaveholders-rebellion-slavery.html
 
-**Trump Says He Is Canceling Strikes on Iran, Pending a Rapid Deal**\
+**Trump Says He Canceled Strikes on Iran, Claiming Progress on Outlines of a Deal**\
 `President Trump said he agreed to requests from Iran and other Middle Eastern countries to cancel planned attacks, citing what he said was progress in reaching the “perimeters of a deal” with Tehran.`\
 https://www.nytimes.com/2026/08/02/world/middleeast/trump-iran-cancels-attack-deal.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/01/us/in-n-out-shooting-idaho.html
 **Teen Hikers Rescued 12 Hours Into Google Maps Hike**\
 `The three teenage boys estimated their hike time would be over five hours on a rugged trail in British Columbia, Canada. A helicopter crew had to retrieve them.`\
 https://www.nytimes.com/2026/08/01/world/canada/canada-hiking-rescue-google-maps.html
-
-**Mitch McConnell, Still Hospitalized, Misses Signature Kentucky Political Picnic**\
-`Senator Mitch McConnell’s ongoing hospitalization meant he missed his final chance to attend the signature western Kentucky event while in office.`\
-https://www.nytimes.com/2026/08/01/us/mitch-mcconnell-kentucky-republicans.html
 
