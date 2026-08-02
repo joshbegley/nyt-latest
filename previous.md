@@ -1,5 +1,17 @@
+**¿Qué es la psicosis postparto?**\
+`Esta afección poco común puede causar alucinaciones y pensamientos delirantes en las personas embarazadas o que acaban de dar a luz.`\
+https://www.nytimes.com/es/2026/08/02/espanol/psicosis-postparto.html
+
+**The ‘Civil War’ Is a Lie. Let’s Call It the ‘Slaveholders’ Rebellion’ Again.**\
+`To face our own history, we must be honest about it.`\
+https://www.nytimes.com/2026/08/02/opinion/civil-war-slaveholders-rebellion-slavery.html
+
+**What My Father’s Murder Taught Me About Iran**\
+`After a lifetime of observing Iran’s revolutionary generation, I know that expecting meekness or diplomatic finesse from them is a dangerous illusion.`\
+https://www.nytimes.com/2026/08/02/opinion/iran-revolution-father-murder-boroujerdi-grimm.html
+
 **Trump Says He Is Canceling Strikes on Iran, Pending a Rapid Deal**\
-`President Trump said he agreed to requests from Iran and other Middle Eastern countries to cancel planned attacks, citing what he said was progress in reaching “the perimeters of a deal” with Tehran.`\
+`President Trump said he agreed to requests from Iran and other Middle Eastern countries to cancel planned attacks, citing what he said was progress in reaching the “perimeters of a deal” with Tehran.`\
 https://www.nytimes.com/2026/08/02/world/middleeast/trump-iran-cancels-attack-deal.html
 
 **How China Keeps Tabs on Foreigners**\
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/08/01/opinion/trump-maga-republican-midterm.html
 **If This Is Medical Freedom, Why Do I Feel Trapped?**\
 `(No description)`\
 https://www.nytimes.com/2026/08/01/opinion/medical-freedom-public-health.html
-
-**Summer Camp Has Become a Luxury. This Nonprofit Sends Kids for Free.**\
-`The Fresh Air Fund helps New York City children experience the joy and discovery of summer camp.`\
-https://www.nytimes.com/2026/08/01/opinion/fresh-air-fund-summer-camp-swimming.html
-
-**Why We Can’t Stop Talking About ‘The Odyssey’**\
-`Christopher Nolan’s film is perfectly calibrated for the culture war.`\
-https://www.nytimes.com/2026/08/01/opinion/the-odyssey-culture-war.html
-
-**Meet the Americans Who Can’t Afford Hair Cuts or Toilet Paper**\
-`Millions of Americans struggle in sometimes unimaginable ways, and Trump’s cuts in food stamps and other benefits are now making life even more precarious.`\
-https://www.nytimes.com/2026/08/01/opinion/poverty-america-oklahoma.html
 
