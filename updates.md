@@ -1,3 +1,7 @@
+**Multiple People Killed in Shooting at In-N-Out Burger in Idaho**\
+`At least three people were killed and two others were wounded in a shooting at an In-N-Out Burger in Twin Falls, Idaho, on Saturday, the authorities said.`\
+https://www.nytimes.com/video/us/100000011068069/in-n-out-shooting-idaho.html
+
 **More Than a Dozen Wildfires Burn in Washington State, Forcing Evacuations**\
 `The Old Trails fire near Spokane had grown to about 2,500 acres by Saturday evening, propelled by strong wind gusts and high temperatures.`\
 https://www.nytimes.com/2026/08/01/us/wildfires-spokane-washington-evacuations.html
