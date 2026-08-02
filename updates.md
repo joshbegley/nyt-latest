@@ -1,3 +1,15 @@
+**Ohio Republican Denies Abuse Accusations, Deepening High-Stakes Family Feud**\
+`Representative Max Miller denied in a livestream the allegations of domestic abuse made by his ex-wife amid worries in the Republican Party that a once-safe seat may be in danger.`\
+https://www.nytimes.com/2026/08/02/us/elections/max-miller-ohio-republican-moreno-election.html
+
+**What We Know About the Shooting at an In-N-Out Burger in Idaho**\
+`Gunfire brought panic to a shopping center in Twin Falls in what the authorities described as a chaotic scene. At least three people were killed.`\
+https://www.nytimes.com/2026/08/02/us/in-n-out-shooting-idaho-victims-suspect.html
+
+**Can We Keep One Small Corner of America Technology-Free?**\
+`Baseball isn’t supposed to be perfect.`\
+https://www.nytimes.com/2026/08/02/opinion/baseball-robot-umpires-ai.html
+
 **We Have Seafood Shack at Home**\
 `Melissa Clark’s five-star baked fish and chips satisfy that summer craving, no deep-frying necessary.`\
 https://www.nytimes.com/2026/08/02/dining/we-have-seafood-shack-at-home.html

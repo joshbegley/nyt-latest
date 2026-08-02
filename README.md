@@ -1,3 +1,7 @@
+**Una avioneta se estrelló en la zona de Nazca, Perú.**\
+`La aeronave había despegado de la ciudad costera de Pisco para ver los antiguos geoglifos en el desierto de Nazca, una popular atracción.`\
+https://www.nytimes.com/es/2026/08/02/espanol/america-latina/accidente-avion-nazca-peru.html
+
 **Ohio Republican Denies Abuse Accusations, Deepening High-Stakes Family Feud**\
 `Representative Max Miller denied in a livestream the allegations of domestic abuse made by his ex-wife amid worries in the Republican Party that a once-safe seat may be in danger.`\
 https://www.nytimes.com/2026/08/02/us/elections/max-miller-ohio-republican-moreno-election.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/02/insider/250-scavenger-hunt-new-york-times.htm
 **El calor extremo ha transformado los veranos para distintas generaciones en Europa**\
 `La nueva realidad en Europa, el continente que se calienta más rápido en el mundo, es que los niños crecen con una versión de la temporada radicalmente distinta a la de sus padres o abuelos.`\
 https://www.nytimes.com/es/2026/08/02/espanol/mundo/calor-extremo-europa.html
-
-**Roma vive un renacimiento de la pizza**\
-`La “pizza al taglio”, el tradicional tentempié romano que se vende al peso, ahora incluye ingredientes como albóndigas al vino y cordero con comino. Estos son los mejores lugares para comerla.`\
-https://www.nytimes.com/es/2026/08/02/espanol/estilos-de-vida/pizza-roma.html
 
