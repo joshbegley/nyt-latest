@@ -1,3 +1,7 @@
+**Canada’s WestJet Cancels Trips Amid Strike By Flight Attendants**\
+`Labor talks broke down between the airline and union representing 4,400 flight attendants, who want improved wages and compensation for unpaid work.`\
+https://www.nytimes.com/2026/08/02/world/canada/westjet-flight-attendants-strike-canada.html
+
 **Nadie quiere verte en pantalones cortos en la oficina**\
 `Por más calor que haga, los hombres deben evitar la tentación de mostrar las piernas.`\
 https://www.nytimes.com/es/2026/08/02/espanol/opinion/calor-trabajo-oficina-shorts.html
