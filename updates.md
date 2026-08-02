@@ -1,3 +1,7 @@
+**More Than a Dozen Wildfires Burn in Washington State, Forcing Evacuations**\
+`The Old Trails fire near Spokane had grown to about 3,500 acres by Saturday evening, propelled by strong wind gusts and high temperatures.`\
+https://www.nytimes.com/2026/08/01/us/wildfires-spokane-washington-evacuations.html
+
 **¿Qué es la psicosis postparto?**\
 `Esta afección poco común puede causar alucinaciones y pensamientos delirantes en las personas embarazadas o que acaban de dar a luz.`\
 https://www.nytimes.com/es/2026/08/02/espanol/psicosis-postparto.html

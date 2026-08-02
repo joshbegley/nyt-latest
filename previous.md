@@ -51,7 +51,7 @@ https://www.nytimes.com/video/us/100000011068069/in-n-out-shooting-idaho.html
 https://www.nytimes.com/2026/08/01/us/seattle-festival-shooting.html
 
 **More Than a Dozen Wildfires Burn in Washington State, Forcing Evacuations**\
-`The Old Trails fire near Spokane had grown to about 2,500 acres by Saturday evening, propelled by strong wind gusts and high temperatures.`\
+`The Old Trails fire near Spokane had grown to about 3,500 acres by Saturday evening, propelled by strong wind gusts and high temperatures.`\
 https://www.nytimes.com/2026/08/01/us/wildfires-spokane-washington-evacuations.html
 
 **Vicki Wickham, Behind-the-Scenes Force in Pop Music, Dies at 87**\
