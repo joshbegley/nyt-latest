@@ -1,3 +1,7 @@
+**Baseball Is Deliciously Imperfect. Robot Umpires Must Go.**\
+`Can we have one small square of America that is A.I.-free?`\
+https://www.nytimes.com/2026/08/02/opinion/baseball-robot-umpires-ai.html
+
 **Keep on Truckin’**\
 `A family vacation takes an unexpected turn.`\
 https://www.nytimes.com/2026/08/02/briefing/family-road-trip.html
