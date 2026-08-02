@@ -1,3 +1,19 @@
+**We Have Seafood Shack at Home**\
+`Melissa Clark’s five-star baked fish and chips satisfy that summer craving, no deep-frying necessary.`\
+https://www.nytimes.com/2026/08/02/dining/we-have-seafood-shack-at-home.html
+
+**Man Charged in Girl’s Abduction Nearly Four Years After She Was Last Seen**\
+`The police found the girl, who was 15 when she disappeared in 2022 in Milwaukee, alive in Virginia in May. A man faces more than 60 charges, including abduction, in connection with the case.`\
+https://www.nytimes.com/2026/08/02/us/missing-milwaukee-girl-found-virginia.html
+
+**Chicago’s Mayoral Race Is Taking Shape. But What About the Incumbent?**\
+`Several prominent Democrats already are running for mayor of Chicago. Mayor Brandon Johnson has not said whether he will seek a second term next year.`\
+https://www.nytimes.com/2026/08/02/us/chicago-mayors-race.html
+
+**In Ceuta, Far-Right Leaders Call on Spain to Expel Migrants**\
+`Far-right politicians and activists are flocking to the Spanish territory on the northern coast of Africa, fueling tensions there days after thousands of migrants entered the exclave.`\
+https://www.nytimes.com/2026/08/02/world/europe/spain-ceuta-far-right.html
+
 **Trump Says He Canceled Strikes on Iran, Claiming Progress on Outlines of a Deal**\
 `President Trump has repeatedly threatened to escalate the war with Iran, only to abruptly back down. Saudi Arabia said its leader had urged Trump not to renew attacks.`\
 https://www.nytimes.com/2026/08/02/world/middleeast/trump-iran-cancels-attack-deal.html
