@@ -1,3 +1,19 @@
+**Today’s Wordle Hints for August 3, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Aug. 3, 2026.`\
+https://www.nytimes.com/2026/08/02/crosswords/wordle-review-1871.html
+
+**NYT Connections Answers for August 3, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Aug. 3, 2026.`\
+https://www.nytimes.com/2026/08/02/crosswords/connections-companion-1149.html
+
+**After Losing Her Limbs, Our Cooking Columnist Returns to the Kitchen**\
+`Yewande Komolafe on the medical crisis that changed her life, and how food helped her find a way back to herself.`\
+https://www.nytimes.com/2026/08/02/podcasts/the-daily/after-losing-her-limbs-our-cooking-columnist-returns-to-the-kitchen.html
+
+**NYT Strands Hints for August 3, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Aug. 3, 2026.`\
+https://www.nytimes.com/2026/08/02/crosswords/strands-sidekick-883.html
+
 **Far-Right Leaders Step Up Calls for Expelling Remaining Migrants in Ceuta**\
 `Anti-immigration campaigners were set to hold a rally in the Spanish territory to call for tougher action, after thousands of migrants entered the exclave last week.`\
 https://www.nytimes.com/2026/08/02/world/europe/spain-ceuta-far-right.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/08/01/us/seattle-festival-shooting.html
 **More Than a Dozen Wildfires Burn in Washington State, Forcing Evacuations**\
 `The Old Trails fire near Spokane had grown to about 3,500 acres by Saturday evening, propelled by strong wind gusts and high temperatures.`\
 https://www.nytimes.com/2026/08/01/us/wildfires-spokane-washington-evacuations.html
-
-**Vicki Wickham, Behind-the-Scenes Force in Pop Music, Dies at 87**\
-`She managed artists like Labelle and Dusty Springfield, and helped run the influential 1960s British TV showcase “Ready Steady Go!”`\
-https://www.nytimes.com/2026/08/01/arts/music/vicki-wickham-dead.html
-
-**Tourist Plane Crashes in Peru, Killing All 13 Aboard**\
-`The flight had taken off from the coastal city of Pisco to view the ancient geoglyphs in the desert, a popular tourist attraction.`\
-https://www.nytimes.com/2026/08/01/world/americas/peru-tourist-plane-crash-nazca.html
-
-**Shooting at In-and-Out Burger in Idaho Leaves at Least 3 Dead and 2 Injured, Official Says**\
-`A spokesman for Twin Falls cautioned that the number of victims was “expected to be higher.” The police said the shooter was dead.`\
-https://www.nytimes.com/2026/08/01/us/in-n-out-shooting-idaho.html
-
-**Teen Hikers Rescued 12 Hours Into Google Maps Hike**\
-`The three teenage boys estimated their hike time would be over five hours on a rugged trail in British Columbia, Canada. A helicopter crew had to retrieve them.`\
-https://www.nytimes.com/2026/08/01/world/canada/canada-hiking-rescue-google-maps.html
 
