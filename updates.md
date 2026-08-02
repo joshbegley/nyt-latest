@@ -1,3 +1,11 @@
+**Nadie quiere verte en pantalones cortos en la oficina**\
+`Por más calor que haga, los hombres deben evitar la tentación de mostrar las piernas.`\
+https://www.nytimes.com/es/2026/08/02/espanol/opinion/calor-trabajo-oficina-shorts.html
+
+**El ciclo de las rupturas: por qué el algoritmo de TikTok podría mantenerte con el corazón roto**\
+`Mientras las empresas de redes sociales enfrentan un escrutinio por sus funciones de diseño adictivas, los expertos en salud mental citan un flujo de contenido sobre rupturas como ejemplo del fracaso en la protección de los usuarios.`\
+https://www.nytimes.com/es/2026/08/02/espanol/estilos-de-vida/tiktok-algoritmo-rupturas.html
+
 **When the Fireflies Come Out to Play**\
 `For a few weeks in the summer, they emerge from underground and perform their aerial light show, hoping to find some action.`\
 https://www.nytimes.com/2026/08/02/nyregion/nyc-fireflies.html

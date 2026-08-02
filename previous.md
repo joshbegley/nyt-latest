@@ -1,3 +1,11 @@
+**Nadie quiere verte en pantalones cortos en la oficina**\
+`Por más calor que haga, los hombres deben evitar la tentación de mostrar las piernas.`\
+https://www.nytimes.com/es/2026/08/02/espanol/opinion/calor-trabajo-oficina-shorts.html
+
+**El ciclo de las rupturas: por qué el algoritmo de TikTok podría mantenerte con el corazón roto**\
+`Mientras las empresas de redes sociales enfrentan un escrutinio por sus funciones de diseño adictivas, los expertos en salud mental citan un flujo de contenido sobre rupturas como ejemplo del fracaso en la protección de los usuarios.`\
+https://www.nytimes.com/es/2026/08/02/espanol/estilos-de-vida/tiktok-algoritmo-rupturas.html
+
 **When the Fireflies Come Out to Play**\
 `For a few weeks in the summer, they emerge from underground and perform their aerial light show, hoping to find some action.`\
 https://www.nytimes.com/2026/08/02/nyregion/nyc-fireflies.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/01/science/olga-soffer-dead.html
 **Justice Dept. Subpoenas Times Freelancer in Effort to Identify Sources**\
 `A previously undisclosed subpoena, involving reporting on a failed SEAL Team 6 mission in North Korea, reflects the government’s expanding campaign to investigate leaks of secrets.`\
 https://www.nytimes.com/2026/08/01/us/politics/times-subpoena-reporter-trump-north-korea.html
-
-**Migration Surge on the Spain-Morocco Border**\
-`Our Madrid bureau chief, Jason Horowitz, visits the coastal town of Ceuta, a Spanish territory in North Africa where there has been an unprecedented influx of migrants crossing the border from Morocco.`\
-https://www.nytimes.com/video/world/europe/100000011066115/migration-surge-on-the-spain-morocco-border.html
-
-**The Monthly Bake: Heirloom Tomato and Cheddar Pie**\
-`Our first savory bake is a nod to my Southern roots, with a few delicious twists of my own.`\
-https://www.nytimes.com/2026/08/01/dining/the-monthly-bake-heirloom-tomato-and-cheddar-pie.html
 
