@@ -50,8 +50,8 @@ https://www.nytimes.com/2026/08/02/world/europe/spain-ceuta-far-right.html
 `Belief is hard to capture. It’s interior, personal. It’s a challenge to translate the ineffable into words or photos — but the Hungarian photographer does it anyway.`\
 https://www.nytimes.com/2026/08/02/briefing/the-surreal-sublime-worlds-of-szilveszter-mako.html
 
-**Can Democratic Socialists Agree on Anything? They Say That’s Not the Point.**\
-`At a national summit of the Democratic Socialists of America, nervous energy and a sprawling tableau of sometimes-competing interests were on display.`\
+**‘Comradely’ Talks and a ‘Deer Leader’ Mascot: Scenes From the D.S.A. Summit**\
+`At a national meeting of the Democratic Socialists of America, nervous energy and a sprawling tableau of sometimes-competing interests were on display.`\
 https://www.nytimes.com/2026/08/02/us/politics/democratic-socialists-america-convention.html
 
 **Corrections: Aug. 2, 2026**\
