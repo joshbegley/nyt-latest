@@ -1,3 +1,23 @@
+**Australia’s Indie Music Venues Closing as Costs Rise and Attendance Drops**\
+`When Mary’s Underground in Sydney closed, it was a familiar tune for a scene hit by high costs and low attendance. Critics worry about a shrinking space for new talent.`\
+https://www.nytimes.com/2026/08/02/world/australia/sydney-australia-marys-underground-music-venues-closing.html
+
+**Quote of the Day: Iran War Deepens Doubts on U.S. Credibility**\
+`Quotation of the Day for Sunday, August 2, 2026.`\
+https://www.nytimes.com/2026/08/02/pageoneplus/quote-of-the-day-iran-war-deepens-doubts-on-us-credibility.html
+
+**Multiple People Killed in Shooting at In-N-Out Burger in Idaho**\
+`At least three people were killed and two others were wounded in a shooting at an In-N-Out Burger in Twin Falls, Idaho, on Saturday, the authorities said.`\
+https://www.nytimes.com/video/us/100000011068069/in-n-out-shooting-idaho.html
+
+**Days After Deadly Shooting, Seattle Tightens Security on Festivities**\
+`A recent shooting that killed three people at a food festival in Seattle did not deter crowds from the city’s Seafair Weekend Festival.`\
+https://www.nytimes.com/2026/08/01/us/seattle-festival-shooting.html
+
+**More Than a Dozen Wildfires Burn in Washington State, Forcing Evacuations**\
+`The Old Trails fire near Spokane had grown to about 3,500 acres by Sunday morning, propelled by strong wind gusts and high temperatures.`\
+https://www.nytimes.com/2026/08/01/us/wildfires-spokane-washington-evacuations.html
+
 **After Most Migrants Leave Ceuta, Exhausted Holdouts Find Shelter on Beach**\
 `Most of the people who surged into Spain on Thursday have since returned to Morocco. A small minority are holed up on a seafront, tired, hungry and vowing to stay.`\
 https://www.nytimes.com/2026/08/02/world/europe/ceuta-spain-morocco-migrant-holdouts-beach.html
