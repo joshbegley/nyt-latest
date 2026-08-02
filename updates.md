@@ -1,3 +1,7 @@
+**Keep on Truckin’**\
+`A family vacation takes an unexpected turn.`\
+https://www.nytimes.com/2026/08/02/briefing/family-road-trip.html
+
 **Self-Help Influencer Nicole LePera Faces Litigation**\
 `Millions look to Nicole LePera for advice on how to achieve contentment and maintain healthy relationships. But her own story is complicated.`\
 https://www.nytimes.com/2026/08/02/style/nicole-lepera-self-help-litigation-holistic-psychologist.html

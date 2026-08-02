@@ -18,7 +18,7 @@ https://www.nytimes.com/2026/08/02/opinion/iran-war-russia-ukraine-world-war-thr
 `Whispers can fester for years before anyone faces consequences. And the tactics celebrities use to escape scandal have completely changed.`\
 https://www.nytimes.com/2026/08/02/opinion/jared-leto-hollywood-secrets-abuse-metoo.html
 
-**Baseball Is Weird, Illogical, Asymmetrical. Robot Umps Do Not Belong.**\
+**Baseball Is Deliciously Imperfect. Robot Umpires Must Go.**\
 `Can we have one small square of America that is A.I.-free?`\
 https://www.nytimes.com/2026/08/02/opinion/baseball-robot-umpires-ai.html
 
