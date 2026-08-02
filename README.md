@@ -1,3 +1,7 @@
+**How China Keeps Tabs on Foreigners**\
+`An unsecured police dashboard was a rare window into how the authorities track foreigners by collecting and aggregating vast amounts of private data.`\
+https://www.nytimes.com/2026/08/02/world/asia/china-surveillance-foreigners-database.html
+
 **After Most Migrants Leave Ceuta, Exhausted Holdouts Find Shelter on Beach**\
 `Most of the people who surged into Spain on Thursday have since returned to Morocco. A small minority are holed up on a seafront, tired, hungry and vowing to stay.`\
 https://www.nytimes.com/2026/08/02/world/europe/ceuta-spain-morocco-migrant-holdouts-beach.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/01/opinion/poverty-america-oklahoma.html
 **To Find Happiness, I Stopped Talking. It Helped.**\
 `A silent retreat turned out to be exactly what I needed.`\
 https://www.nytimes.com/2026/08/01/opinion/happiness-silent-retreat.html
-
-**What Happens to America’s Political Parties After Trump?**\
-`Democrats have an anger problem. Republicans have a Trump problem.`\
-https://www.nytimes.com/video/opinion/100000011063517/what-happens-to-americas-political-parties-after-trump.html
 
