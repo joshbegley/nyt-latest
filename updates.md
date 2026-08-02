@@ -1,3 +1,7 @@
+**Vicki Wickham, Behind-the-Scenes Force in Pop Music, Dies at 87**\
+`She managed artists like Labelle and Dusty Springfield, and helped run the influential 1960s British TV showcase “Ready Steady Go!”`\
+https://www.nytimes.com/2026/08/01/arts/music/vicki-wickham-dead.html
+
 **Tourist Plane Crashes in Peru, Killing All 13 Aboard**\
 `The flight had taken off from the coastal city of Pisco to view the ancient geoglyphs in the desert, a popular tourist attraction.`\
 https://www.nytimes.com/2026/08/01/world/americas/peru-tourist-plane-crash-nazca.html

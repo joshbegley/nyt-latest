@@ -1,3 +1,7 @@
+**Wildfires in Spokane, Wash., Force Thousands to Evacuate**\
+`The Old Trails fire had grown to about 2,500 acres by Saturday afternoon, propelled by strong wind gusts and high temperatures.`\
+https://www.nytimes.com/2026/08/01/us/wildfires-spokane-washington-evacuations.html
+
 **Vicki Wickham, Behind-the-Scenes Force in Pop Music, Dies at 87**\
 `She managed artists like Labelle and Dusty Springfield, and helped run the influential 1960s British TV showcase “Ready Steady Go!”`\
 https://www.nytimes.com/2026/08/01/arts/music/vicki-wickham-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/01/world/canada/emancipation-day-uncle-toms-cabi
 **Un triángulo amoroso no estaba entre mis planes**\
 `Estaba preparada para las garrapatas, los osos y las tormentas de hielo, pero no para elegir entre dos hombres.`\
 https://www.nytimes.com/es/2026/08/01/espanol/estilos-de-vida/modern-love-triangulo-amoroso.html
-
-**Corrections: Aug. 1, 2026**\
-`Corrections that appeared in print on Saturday, Aug. 1, 2026.`\
-https://www.nytimes.com/2026/08/01/pageoneplus/corrections-aug-1-2026.html
 

@@ -1,3 +1,7 @@
+**Vicki Wickham, Behind-the-Scenes Force in Pop Music, Dies at 87**\
+`She managed artists like Labelle and Dusty Springfield, and helped run the influential 1960s British TV showcase “Ready Steady Go!”`\
+https://www.nytimes.com/2026/08/01/arts/music/vicki-wickham-dead.html
+
 **Tourist Plane Crashes in Peru, Killing All 13 Aboard**\
 `The flight had taken off from the coastal city of Pisco to view the ancient geoglyphs in the desert, a popular tourist attraction.`\
 https://www.nytimes.com/2026/08/01/world/americas/peru-tourist-plane-crash-nazca.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/08/01/espanol/estilos-de-vida/modern-love-triang
 **Corrections: Aug. 1, 2026**\
 `Corrections that appeared in print on Saturday, Aug. 1, 2026.`\
 https://www.nytimes.com/2026/08/01/pageoneplus/corrections-aug-1-2026.html
-
-**The Fight Over the World’s Oldest Bank**\
-`Founded in 1472, Banca Monte dei Paschi di Siena has survived wars, pandemics and scandals. But a hostile takeover bid has Tuscans on edge.`\
-https://www.nytimes.com/2026/08/01/business/dealbook/italy-oldest-bank-takeover-battle.html
 
