@@ -1,3 +1,7 @@
+**Tourist Plane Crashes in Peru, Killing All 13 Aboard**\
+`The flight had taken off from the coastal city of Pisco to view the ancient geoglyphs in the desert, a popular tourist attraction.`\
+https://www.nytimes.com/2026/08/01/world/americas/peru-tourist-plane-crash-nazca.html
+
 **Shooting at In-and-Out Burger in Idaho Leaves at Least 3 Dead and 2 Injured, Official Says**\
 `A spokesman for Twin Falls cautioned that the number of victims was “expected to be higher.” The police said the shooter was dead.`\
 https://www.nytimes.com/2026/08/01/us/in-n-out-shooting-idaho.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/01/pageoneplus/corrections-aug-1-2026.html
 **The Fight Over the World’s Oldest Bank**\
 `Founded in 1472, Banca Monte dei Paschi di Siena has survived wars, pandemics and scandals. But a hostile takeover bid has Tuscans on edge.`\
 https://www.nytimes.com/2026/08/01/business/dealbook/italy-oldest-bank-takeover-battle.html
-
-**Fact-Checking Trump’s Claims About the Effect of the Iran War on Oil Prices, Munitions and More**\
-`The president misleadingly blamed the Biden administration’s weapons transfers to Ukraine for current concerns over munitions stockpiles, among other claims about the Iran war.`\
-https://www.nytimes.com/2026/08/01/us/politics/trump-iran-war-toll-oil-fact-check.html
 
