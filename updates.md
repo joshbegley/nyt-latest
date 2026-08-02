@@ -1,3 +1,19 @@
+**After Most Migrants Leave Ceuta, Exhausted Holdouts Find Shelter on Beach**\
+`Most of the people who surged into Spain on Thursday have since returned to Morocco. A small minority are holed up on a seafront, tired, hungry and vowing to stay.`\
+https://www.nytimes.com/2026/08/02/world/europe/ceuta-spain-morocco-migrant-holdouts-beach.html
+
+**Europe’s Far Right, Once Marginal, Now Sets Tone on Spain Migrant Crisis**\
+`Europe sheltered many refugees in 2015. Its hard-line reaction to a new crisis in Ceuta shows how, 11 years on, the far right has reshaped European attitudes.`\
+https://www.nytimes.com/2026/08/02/world/europe/europe-migrants-ceuta.html
+
+**A ‘Death of a Salesman,’ Edged in Darkness**\
+`Every Broadway production of “Death of a Salesman” has its distinguishing features. Willy Loman’s Chevrolet is a powerful character in the latest production.`\
+https://www.nytimes.com/2026/08/02/arts/death-of-a-salesman.html
+
+**The Allure and Peril of Riding an Alaskan Wave for Six Miles**\
+`The tidal bore that rockets up the Turnagain Arm south of Anchorage can carry a surfer for an hour; it can also kill. Now that the secret is out, how long will authorities allow surfers to catch the wave?`\
+https://www.nytimes.com/2026/08/02/us/bore-tide-surfing-alaska.html
+
 **Trump Says He Canceled Strikes on Iran, Claiming Progress on Outlines of a Deal**\
 `President Trump has repeatedly threatened to escalate the war with Iran, only to abruptly back down. Saudi Arabia said its leader had urged Trump not to renew attacks.`\
 https://www.nytimes.com/2026/08/02/world/middleeast/trump-iran-cancels-attack-deal.html
