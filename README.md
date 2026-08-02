@@ -1,3 +1,7 @@
+**Roma vive un renacimiento de la pizza**\
+`La “pizza al taglio”, el tradicional tentempié romano que se vende al peso, ahora incluye ingredientes como albóndigas al vino y cordero con comino. Estos son los mejores lugares para comerla.`\
+https://www.nytimes.com/es/2026/08/02/espanol/estilos-de-vida/pizza-roma.html
+
 **¿Qué es la psicosis postparto?**\
 `Esta afección poco común puede causar alucinaciones y pensamientos delirantes en las personas embarazadas o que acaban de dar a luz.`\
 https://www.nytimes.com/es/2026/08/02/espanol/psicosis-postparto.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/01/business/dealbook/spacex-spectrum-battle.html
 **The Working Class Is Fleeing Trump**\
 `Democrats have an anger problem. Republicans have a Trump problem.`\
 https://www.nytimes.com/2026/08/01/opinion/trump-maga-republican-midterm.html
-
-**If This Is Medical Freedom, Why Do I Feel Trapped?**\
-`(No description)`\
-https://www.nytimes.com/2026/08/01/opinion/medical-freedom-public-health.html
 
