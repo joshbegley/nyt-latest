@@ -1,3 +1,27 @@
+**After Most Migrants Leave Ceuta, Exhausted Holdouts Find Shelter on Beach**\
+`Most of the people who surged into Spain on Thursday have since returned to Morocco. A small minority are holed up on a seafront, tired, hungry and vowing to stay.`\
+https://www.nytimes.com/2026/08/02/world/europe/ceuta-spain-morocco-migrant-holdouts-beach.html
+
+**Europe’s Far Right, Once Marginal, Now Sets Tone on Spain Migrant Crisis**\
+`Europe sheltered many refugees in 2015. Its hard-line reaction to a new crisis in Ceuta shows how, 11 years on, the far right has reshaped European attitudes.`\
+https://www.nytimes.com/2026/08/02/world/europe/europe-migrants-ceuta.html
+
+**A ‘Death of a Salesman,’ Edged in Darkness**\
+`Every Broadway production of “Death of a Salesman” has its distinguishing features. Willy Loman’s Chevrolet is a powerful character in the latest production.`\
+https://www.nytimes.com/2026/08/02/arts/death-of-a-salesman.html
+
+**The Allure and Peril of Riding an Alaskan Wave for Six Miles**\
+`The tidal bore that rockets up the Turnagain Arm south of Anchorage can carry a surfer for an hour; it can also kill. Now that the secret is out, how long will authorities allow surfers to catch the wave?`\
+https://www.nytimes.com/2026/08/02/us/bore-tide-surfing-alaska.html
+
+**Australia’s Indie Music Venues Closing as Costs Rise and Attendance Drops**\
+`When Mary’s Underground in Sydney closed, it was a familiar tune for a scene hit by high costs and low attendance. Critics worry about a shrinking space for new talent.`\
+https://www.nytimes.com/2026/08/02/world/australia/sydney-australia-marys-underground-music-venues-closing.html
+
+**Quote of the Day: Iran War Deepens Doubts on U.S. Credibility**\
+`Quotation of the Day for Sunday, August 2, 2026.`\
+https://www.nytimes.com/2026/08/02/pageoneplus/quote-of-the-day-iran-war-deepens-doubts-on-us-credibility.html
+
 **Multiple People Killed in Shooting at In-N-Out Burger in Idaho**\
 `At least three people were killed and two others were wounded in a shooting at an In-N-Out Burger in Twin Falls, Idaho, on Saturday, the authorities said.`\
 https://www.nytimes.com/video/us/100000011068069/in-n-out-shooting-idaho.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/08/01/opinion/happiness-silent-retreat.html
 **What Happens to America’s Political Parties After Trump?**\
 `Democrats have an anger problem. Republicans have a Trump problem.`\
 https://www.nytimes.com/video/opinion/100000011063517/what-happens-to-americas-political-parties-after-trump.html
-
-**Kuwait Says It Downed Iranian Drones as Mideast Braces for Possible Escalation**\
-`The wave of strikes came as President Trump threatened to intensify the American campaign against Iran. U.S. embassies in the region warned of the “potential for unforeseen escalation.”`\
-https://www.nytimes.com/2026/08/01/world/middleeast/iran-kuwait-drone-strikes-trump-escalation.html
-
-**Making Rounds**\
-`Errands get us out of our homes and into the world, on missions providing both serendipity and satisfaction.`\
-https://www.nytimes.com/2026/08/01/briefing/making-rounds.html
-
-**My Partner Lied About His Marriage, Then Dumped Me. Should I Go Quietly?**\
-`I no longer know whether his wife ever consented to our relationship, much less encouraged it.`\
-https://www.nytimes.com/2026/08/01/magazine/partner-lied-about-his-marriage-ethics.html
-
-**Today’s Wordle Hints for August 2, 2026**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Aug. 2, 2026.`\
-https://www.nytimes.com/2026/08/01/crosswords/wordle-review-1870.html
-
-**NYT Connections Answers for August 2, 2026**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Aug. 2, 2026.`\
-https://www.nytimes.com/2026/08/01/crosswords/connections-companion-1148.html
-
-**NYT Strands Hints for August 2, 2026**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Aug. 2, 2026.`\
-https://www.nytimes.com/2026/08/01/crosswords/strands-sidekick-882.html
 
