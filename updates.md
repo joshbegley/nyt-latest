@@ -1,3 +1,7 @@
+**Una avioneta se estrelló en la zona de Nazca, Perú.**\
+`La aeronave había despegado de la ciudad costera de Pisco para ver los antiguos geoglifos en el desierto de Nazca, una popular atracción.`\
+https://www.nytimes.com/es/2026/08/02/espanol/america-latina/accidente-avion-nazca-peru.html
+
 **Ohio Republican Denies Abuse Accusations, Deepening High-Stakes Family Feud**\
 `Representative Max Miller denied in a livestream the allegations of domestic abuse made by his ex-wife amid worries in the Republican Party that a once-safe seat may be in danger.`\
 https://www.nytimes.com/2026/08/02/us/elections/max-miller-ohio-republican-moreno-election.html
