@@ -1,3 +1,11 @@
+**Ohio Republican Denies Abuse Accusations, Deepening High-Stakes Family Feud**\
+`Representative Max Miller denied in a livestream the allegations of domestic abuse made by his ex-wife amid worries in the Republican Party that a once-safe seat may be in danger.`\
+https://www.nytimes.com/2026/08/02/us/elections/max-miller-ohio-republican-moreno-election.html
+
+**What We Know About the Shooting at an In-N-Out Burger in Idaho**\
+`Gunfire brought panic to a shopping center in Twin Falls in what the authorities described as a chaotic scene. At least three people were killed.`\
+https://www.nytimes.com/2026/08/02/us/in-n-out-shooting-idaho-victims-suspect.html
+
 **We Have Seafood Shack at Home**\
 `Melissa Clark’s five-star baked fish and chips satisfy that summer craving, no deep-frying necessary.`\
 https://www.nytimes.com/2026/08/02/dining/we-have-seafood-shack-at-home.html
@@ -39,7 +47,7 @@ https://www.nytimes.com/2026/08/02/opinion/iran-war-russia-ukraine-world-war-thr
 https://www.nytimes.com/2026/08/02/opinion/jared-leto-hollywood-secrets-abuse-metoo.html
 
 **Can We Keep One Small Corner of America Technology-Free?**\
-`Can we have one small square of America that is A.I.-free?`\
+`Baseball isn’t supposed to be perfect.`\
 https://www.nytimes.com/2026/08/02/opinion/baseball-robot-umpires-ai.html
 
 **Christopher Nolan Stared Into Elon Musk’s Soul**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/es/2026/08/02/espanol/mundo/calor-extremo-europa.html
 **Roma vive un renacimiento de la pizza**\
 `La “pizza al taglio”, el tradicional tentempié romano que se vende al peso, ahora incluye ingredientes como albóndigas al vino y cordero con comino. Estos son los mejores lugares para comerla.`\
 https://www.nytimes.com/es/2026/08/02/espanol/estilos-de-vida/pizza-roma.html
-
-**¿Qué es la psicosis postparto?**\
-`Esta afección poco común puede causar alucinaciones y pensamientos delirantes en las personas embarazadas o que acaban de dar a luz.`\
-https://www.nytimes.com/es/2026/08/02/espanol/psicosis-postparto.html
-
-**This Is What My Father’s Assassination Taught Me About the War in Iran**\
-`After a lifetime of observing Iran’s revolutionary generation, I know that expecting meekness or diplomatic finesse from them is a dangerous illusion.`\
-https://www.nytimes.com/2026/08/02/opinion/iran-revolution-father-murder-boroujerdi-grimm.html
 
