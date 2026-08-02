@@ -1,5 +1,5 @@
-**Shooting at In-and-Out Burger in Idaho Leaves 3 Dead and 2 Injured, Official Says**\
-`A spokesman for Twin Falls cautioned that the number of victims was “expected to be higher” and said that the shooter was “no longer a threat.”`\
+**Shooting at In-and-Out Burger in Idaho Leaves at Least 3 Dead and 2 Injured, Official Says**\
+`A spokesman for Twin Falls cautioned that the number of victims was “expected to be higher.” The police said the shooter was dead.`\
 https://www.nytimes.com/2026/08/01/us/in-n-out-shooting-idaho.html
 
 **Teen Hikers Rescued 12 Hours Into Google Maps Hike**\
