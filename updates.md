@@ -1,3 +1,7 @@
+**Why 70 Percent of Trump’s Mind Is on Renovations**\
+`Forget the Iran war and tariffs. Maggie Haberman explains on “The Ezra Klein Show” why Trump is so fixated on remodeling the White House and building an arch.`\
+https://www.nytimes.com/video/opinion/100000011044745/why-70-percent-of-trumps-mind-is-on-renovations.html
+
 **This Is What My Father’s Assassination Taught Me About the War in Iran**\
 `After a lifetime of observing Iran’s revolutionary generation, I know that expecting meekness or diplomatic finesse from them is a dangerous illusion.`\
 https://www.nytimes.com/2026/08/02/opinion/iran-revolution-father-murder-boroujerdi-grimm.html
