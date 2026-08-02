@@ -1,3 +1,7 @@
+**El calor extremo ha transformado los veranos para distintas generaciones en Europa**\
+`La nueva realidad en Europa, el continente que se calienta más rápido en el mundo, es que los niños crecen con una versión de la temporada radicalmente distinta a la de sus padres o abuelos.`\
+https://www.nytimes.com/es/2026/08/02/espanol/mundo/calor-extremo-europa.html
+
 **Roma vive un renacimiento de la pizza**\
 `La “pizza al taglio”, el tradicional tentempié romano que se vende al peso, ahora incluye ingredientes como albóndigas al vino y cordero con comino. Estos son los mejores lugares para comerla.`\
 https://www.nytimes.com/es/2026/08/02/espanol/estilos-de-vida/pizza-roma.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/01/world/asia/nirmal-purja-dead-pakistan-avalanc
 **The High-Stakes Battle for Invisible Real Estate in Space**\
 `As radio spectrum becomes more valuable, companies like SpaceX are jostling alongside governments to control more of it.`\
 https://www.nytimes.com/2026/08/01/business/dealbook/spacex-spectrum-battle.html
-
-**The Working Class Is Fleeing Trump**\
-`Democrats have an anger problem. Republicans have a Trump problem.`\
-https://www.nytimes.com/2026/08/01/opinion/trump-maga-republican-midterm.html
 
