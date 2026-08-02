@@ -1,3 +1,7 @@
+**Self-Help Influencer Nicole LePera Faces Litigation**\
+`Millions look to Nicole LePera for advice on how to achieve contentment and maintain healthy relationships. But her own story is complicated.`\
+https://www.nytimes.com/2026/08/02/style/nicole-lepera-self-help-litigation-holistic-psychologist.html
+
 **Christopher Nolan Stared Into Elon Musk’s Soul**\
 `Then he turned toward Stephen Miller.`\
 https://www.nytimes.com/2026/08/02/opinion/christopher-nolan-odyssey-elon-musk.html
