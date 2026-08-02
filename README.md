@@ -1,3 +1,7 @@
+**Multiple People Killed in Shooting at In-N-Out Burger in Idaho**\
+`At least three people were killed and two others were wounded in a shooting at an In-N-Out Burger in Twin Falls, Idaho, on Saturday, the authorities said.`\
+https://www.nytimes.com/video/us/100000011068069/in-n-out-shooting-idaho.html
+
 **Days After Deadly Shooting, Seattle Tightens Security on Festivities**\
 `A recent shooting that killed three people at a food festival in Seattle did not deter crowds from the city’s Seafair Weekend Festival.`\
 https://www.nytimes.com/2026/08/01/us/seattle-festival-shooting.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/01/crosswords/connections-companion-1148.html
 **NYT Strands Hints for August 2, 2026**\
 `Scroll down for hints and conversation about the puzzle for Sunday, Aug. 2, 2026.`\
 https://www.nytimes.com/2026/08/01/crosswords/strands-sidekick-882.html
-
-**A Weekend That Marks a Historical Moment for Black Canadians**\
-`Emancipation Day is a reminder that southwestern Ontario was once a mecca for enslaved people fleeing the United States.`\
-https://www.nytimes.com/2026/08/01/world/canada/emancipation-day-uncle-toms-cabin-ontario-canada.html
 
