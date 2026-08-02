@@ -1,3 +1,27 @@
+**Today’s Wordle Hints for August 3, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Aug. 3, 2026.`\
+https://www.nytimes.com/2026/08/02/crosswords/wordle-review-1871.html
+
+**NYT Connections Answers for August 3, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Aug. 3, 2026.`\
+https://www.nytimes.com/2026/08/02/crosswords/connections-companion-1149.html
+
+**After Losing Her Limbs, Our Cooking Columnist Returns to the Kitchen**\
+`Yewande Komolafe on the medical crisis that changed her life, and how food helped her find a way back to herself.`\
+https://www.nytimes.com/2026/08/02/podcasts/the-daily/after-losing-her-limbs-our-cooking-columnist-returns-to-the-kitchen.html
+
+**NYT Strands Hints for August 3, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Aug. 3, 2026.`\
+https://www.nytimes.com/2026/08/02/crosswords/strands-sidekick-883.html
+
+**Far-Right Leaders Step Up Calls for Expelling Remaining Migrants in Ceuta**\
+`Anti-immigration campaigners were set to hold a rally in the Spanish territory to call for tougher action, after thousands of migrants entered the exclave last week.`\
+https://www.nytimes.com/2026/08/02/world/europe/spain-ceuta-far-right.html
+
+**Trump Says He Canceled Strikes on Iran, Claiming Progress on Outlines of a Deal**\
+`President Trump said he agreed to requests from Iran and other Middle Eastern countries to cancel planned attacks, citing what he said was progress in reaching the “perimeters of a deal” with Tehran.`\
+https://www.nytimes.com/2026/08/02/world/middleeast/trump-iran-cancels-attack-deal.html
+
 **The Surreal, Sublime Worlds of Szilveszter Makó**\
 `Belief is hard to capture. It’s interior, personal. It’s a challenge to translate the ineffable into words or photos — but the Hungarian photographer does it anyway.`\
 https://www.nytimes.com/2026/08/02/briefing/the-surreal-sublime-worlds-of-szilveszter-mako.html
