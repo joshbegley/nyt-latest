@@ -1,3 +1,7 @@
+**More Than a Dozen Wildfires Burn in Washington State, Forcing Evacuations**\
+`The Old Trails fire near Spokane had grown to about 2,500 acres by Saturday evening, propelled by strong wind gusts and high temperatures.`\
+https://www.nytimes.com/2026/08/01/us/wildfires-spokane-washington-evacuations.html
+
 **Days After Deadly Shooting, Seattle Tightens Security on Festivities**\
 `A recent shooting that killed three people at a food festival in Seattle did not deter crowds from the city’s Seafair Weekend Festival.`\
 https://www.nytimes.com/2026/08/01/us/seattle-festival-shooting.html
