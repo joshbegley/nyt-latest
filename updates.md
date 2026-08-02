@@ -1,3 +1,7 @@
+**Chicago’s Mayoral Race Is Taking Shape. But What About the Incumbent?**\
+`Several prominent Democrats already are running for mayor of Chicago. Mayor Brandon Johnson has not said whether he will seek a second term next year.`\
+https://www.nytimes.com/2026/08/02/us/chicago-mayors-race.html
+
 **Far-Right Leaders Step Up Calls for Expelling Remaining Migrants in Ceuta**\
 `Spain’s leading far-right politician arrived in the territory on Sunday, fueling tensions there after thousands of migrants entered the exclave last week.`\
 https://www.nytimes.com/2026/08/02/world/europe/spain-ceuta-far-right.html
