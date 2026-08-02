@@ -1,3 +1,7 @@
+**Trump Says He Is Canceling Strikes on Iran, Pending a Rapid Deal**\
+`President Trump said he agreed to requests from Iran and other Middle Eastern countries to cancel planned attacks, citing what he said was progress in reaching “the perimeters of a deal” with Tehran.`\
+https://www.nytimes.com/2026/08/02/world/middleeast/trump-iran-cancels-attack-deal.html
+
 **How China Keeps Tabs on Foreigners**\
 `An unsecured police dashboard was a rare window into how the authorities track foreigners by collecting and aggregating vast amounts of private data.`\
 https://www.nytimes.com/2026/08/02/world/asia/china-surveillance-foreigners-database.html
