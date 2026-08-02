@@ -1,3 +1,87 @@
+**The Surreal, Sublime Worlds of Szilveszter Makó**\
+`Belief is hard to capture. It’s interior, personal. It’s a challenge to translate the ineffable into words or photos — but the Hungarian photographer does it anyway.`\
+https://www.nytimes.com/2026/08/02/briefing/the-surreal-sublime-worlds-of-szilveszter-mako.html
+
+**Can Democratic Socialists Agree on Anything? They Say That’s Not the Point.**\
+`At a national summit of the Democratic Socialists of America, nervous energy and a sprawling tableau of sometimes-competing interests were on display.`\
+https://www.nytimes.com/2026/08/02/us/politics/democratic-socialists-america-convention.html
+
+**Corrections: Aug. 2, 2026**\
+`Corrections that appeared in print on Sunday, Aug. 2, 2026.`\
+https://www.nytimes.com/2026/08/02/pageoneplus/corrections-aug-2-2026.html
+
+**Nanit and Other Baby-Tracking Start-Ups Eye Collecting Even More Data**\
+`Nanit and other start-ups want to track your children through the night — and soon, for much longer than that.`\
+https://www.nytimes.com/2026/08/02/business/smart-baby-monitors-nanit-owlet.html
+
+**13-Year-Olds Have Problems at Work, Too**\
+`What to do when the boys at the pool aren’t pulling their weight.`\
+https://www.nytimes.com/2026/08/02/business/pool-problems.html
+
+**Five Big Moments in Michigan’s Democratic Senate Primary**\
+`Divisions over Israel and high-profile endorsements have shaped the closely-watched race between a progressive former public health official and a more moderate member of Congress.`\
+https://www.nytimes.com/2026/08/02/us/politics/five-big-moments-michigan-democratic-senate-primary.html
+
+**Una charla con Zohran Mamdani, alcalde de Nueva York**\
+`Lulu Garcia-Navarro se sentó a conversar con el alcalde de Nueva York.`\
+https://www.nytimes.com/es/2026/08/02/espanol/estados-unidos/zohran-mamdani-alcalde-nueva-york-entrevista.html
+
+**Trump, Paul Weiss and the Capitulation of Big Law: 5 Takeaways**\
+`The law firm Paul Weiss led the legal resistance against President Trump. Then it led a sudden retreat across the legal industry. A Times investigation examined how it caved to White House pressure.`\
+https://www.nytimes.com/2026/08/02/us/politics/trump-paul-weiss-takeaways.html
+
+**Morgan Freeman Interview: On “Lioness” and His Iconic Voice**\
+`The 89-year-old actor returns for the third season of “Lioness,” and he still can’t understand the fuss over his voice.`\
+https://www.nytimes.com/2026/08/02/arts/television/morgan-freeman-interview-lioness.html
+
+**La Guaira Is Unrecognizable After Venezuela’s Deadly Earthquakes**\
+`More than a month after the earthquakes, the coastal region of La Guaira — once Venezuela’s main gateway — is completely unrecognizable.`\
+https://www.nytimes.com/2026/08/02/world/americas/venezuela-earthquakes-la-guaira.html
+
+**Is Chess a Form of Art?**\
+`Our art critic Deborah Solomon was one of 50 players to go up against a chess grandmaster for Marcel Duchamp’s 139th birthday celebration at MoMA, exploring the game as an art form.`\
+https://www.nytimes.com/video/arts/100000011045309/is-chess-a-form-of-art.html
+
+**More Young College Graduates Are Living At Home. Is That a Bad Thing?**\
+`More young adults are living with their parents. The development suggests that they face a weak job market, but also that fewer face stigma in returning to the roost.`\
+https://www.nytimes.com/2026/08/02/business/college-graduates-living-at-home.html
+
+**Book Review: ‘The Story of Your Life,’ by Kathryn Jezer-Morton**\
+`In “The Story of Your Life,” Kathryn Jezer-Morton explores, without castigating, the wish to present a curated version of experience via social media.`\
+https://www.nytimes.com/2026/08/02/books/review/the-story-of-your-life-kathryn-jezer-morton.html
+
+**A Marijuana Giant That Won Over Trump Has Found Enemies Closer to Home**\
+`Concerns about polluted water and excessive runoff — and the pervasive smell of cannabis — in a small Florida town have made the company, Trulieve, the target of local criticism and state investigations.`\
+https://www.nytimes.com/2026/08/02/us/florida-marijuana-trulieve-trump.html
+
+**The Ultra-Rich Are Moving to Miami, and Want Their Money Managers There, Too**\
+`Tax incentives, among other benefits, have drawn the ultrawealthy to the city. And they need space for the firms that manage their money.`\
+https://www.nytimes.com/2026/08/02/business/family-offices-miami.html
+
+**How a Top Law Firm Went From Standing Up to Trump to Bending the Knee**\
+`Paul Weiss was a progressive stalwart for decades and led the legal resistance against President Trump in his first term. Then it surrendered without a fight. This is the inside story of its transformation.`\
+https://www.nytimes.com/2026/08/02/us/politics/paul-weiss-trump.html
+
+**Is It an Indian Wedding After Party? Or a Boiler Room Club Night?**\
+`Forget the hotel lounge. Indian couples are transforming ballrooms into immersive nightclubs, with international D.J.s, elaborate production and guests that party until sunrise.`\
+https://www.nytimes.com/2026/08/02/style/indian-wedding-afterparty-dance-club-boiler-room.html
+
+**Cowboys Fringants Bassist Is Named Quebec’s Chief Scientist**\
+`Jérôme Dupras is a member of one of Quebec’s most popular folk rock bands. Now, as the province’s chief scientist, he will help shape its environmental destiny.`\
+https://www.nytimes.com/2026/08/02/world/canada/jerome-dupras-quebec-chief-scientist-les-cowboys-fringants.html
+
+**Book Review: ‘Etna,’ by Paul Yoon**\
+`Paul Yoon’s deeply moving novel “Etna” explores the aftermath of war with an unconventional narrator.`\
+https://www.nytimes.com/2026/08/02/books/review/paul-yoon-etna.html
+
+**Paul Yoon’s Fierce Attachment to His Dog Inspired a New Novel**\
+`Prompted by a fierce attachment to his own pet, Paul Yoon wrote a harrowing yet hopeful novel, set during wartime, told from a canine perspective.`\
+https://www.nytimes.com/2026/08/02/books/review/paul-yoon-etna-novel-dog.html
+
+**U.S. Restores Some Vaccine and Health Aid to Unicef, Gavi and World Food Programme**\
+`The amount is still far below what the U.S. spent previously on humanitarian and health aid, but resumes the flow of money for key efforts to fight malnutrition and disease.`\
+https://www.nytimes.com/2026/08/02/health/trump-health-aid-state-department.html
+
 **Canada’s WestJet Cancels Trips Amid Strike By Flight Attendants**\
 `Labor talks broke down between the airline and union representing 4,400 flight attendants, who want improved wages and compensation for unpaid work.`\
 https://www.nytimes.com/2026/08/02/world/canada/westjet-flight-attendants-strike-canada.html
