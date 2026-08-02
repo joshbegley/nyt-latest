@@ -1,3 +1,23 @@
+**When the Fireflies Come Out to Play**\
+`For a few weeks in the summer, they emerge from underground and perform their aerial light show, hoping to find some action.`\
+https://www.nytimes.com/2026/08/02/nyregion/nyc-fireflies.html
+
+**‘I Thought: This Guy Must Be the Worst Negotiator Ever’**\
+`Bartering on the L, a beautiful baritone from behind a closed door and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://www.nytimes.com/2026/08/02/nyregion/metropolitan-diary.html
+
+**The Quirky, Luxurious and Stylish Cannabis Dispensaries of New York**\
+`In a crowded field of legal sellers, stores in New York City are leaning into looks and vibes to find their customers.`\
+https://www.nytimes.com/2026/08/02/nyregion/nyc-cannabis-weed-stores.html
+
+**NYT Spelling Bee Answers for August 2, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/08/02/crosswords/spelling-bee-forum.html
+
+**How a Reporter Turned an Article Into a Manhattan Walking Tour**\
+`An interactive search through New York City’s revolutionary history gave new meaning to the idea of shoe-leather reporting.`\
+https://www.nytimes.com/2026/08/02/insider/250-scavenger-hunt-new-york-times.html
+
 **El calor extremo ha transformado los veranos para distintas generaciones en Europa**\
 `La nueva realidad en Europa, el continente que se calienta más rápido en el mundo, es que los niños crecen con una versión de la temporada radicalmente distinta a la de sus padres o abuelos.`\
 https://www.nytimes.com/es/2026/08/02/espanol/mundo/calor-extremo-europa.html
