@@ -1,3 +1,7 @@
+**‘Comradely’ Talks and a ‘Deer Leader’ Mascot: Scenes From the D.S.A. Summit**\
+`At a national meeting of the Democratic Socialists of America, nervous energy and a sprawling tableau of sometimes-competing interests were on display.`\
+https://www.nytimes.com/2026/08/02/us/politics/democratic-socialists-america-convention.html
+
 **The ‘Civil War’ Is a Lie. Let’s Call It the ‘Slaveholders’ Rebellion’ Again.**\
 `To face our history, we must be honest about it.`\
 https://www.nytimes.com/2026/08/02/opinion/civil-war-slaveholders-rebellion-slavery.html
