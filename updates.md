@@ -1,3 +1,15 @@
+**Chicago’s Mayoral Race Is Taking Shape. But What About the Incumbent?**\
+`Several prominent Democrats already are running for mayor of Chicago. Mayor Brandon Johnson has not said whether he will seek a second term next year.`\
+https://www.nytimes.com/2026/08/02/us/chicago-mayors-race.html
+
+**Five Fast Recipes that Sing of Summer**\
+`Starting with Ali Slagle’s pork tenderloin with corn, peaches and lime.`\
+https://www.nytimes.com/2026/08/02/dining/five-fast-recipes-that-sing-of-summer.html
+
+**New Alzheimer’s Test Is Cause for Hope and Caution**\
+`Readers respond to a Science Times article, “New Potential for Diagnosing Alzheimer’s Disease.” Also: The noise that data centers make.`\
+https://www.nytimes.com/2026/08/02/opinion/alzheimers-test.html
+
 **‘Comradely’ Talks and a ‘Deer Leader’ Mascot: Scenes From the D.S.A. Summit**\
 `At a national meeting of the Democratic Socialists of America, nervous energy and a sprawling tableau of sometimes-competing interests were on display.`\
 https://www.nytimes.com/2026/08/02/us/politics/democratic-socialists-america-convention.html
