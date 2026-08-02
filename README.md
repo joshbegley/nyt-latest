@@ -1,3 +1,7 @@
+**Keep on Truckin’**\
+`A family vacation takes an unexpected turn.`\
+https://www.nytimes.com/2026/08/02/briefing/family-road-trip.html
+
 **Self-Help Influencer Nicole LePera Faces Litigation**\
 `Millions look to Nicole LePera for advice on how to achieve contentment and maintain healthy relationships. But her own story is complicated.`\
 https://www.nytimes.com/2026/08/02/style/nicole-lepera-self-help-litigation-holistic-psychologist.html
@@ -175,7 +179,7 @@ https://www.nytimes.com/es/2026/08/02/espanol/psicosis-postparto.html
 https://www.nytimes.com/2026/08/02/opinion/iran-revolution-father-murder-boroujerdi-grimm.html
 
 **The ‘Civil War’ Is a Lie. Let’s Call It the ‘Slaveholders’ Rebellion’ Again.**\
-`To face our own history, we must be honest about it.`\
+`To face our history, we must be honest about it.`\
 https://www.nytimes.com/2026/08/02/opinion/civil-war-slaveholders-rebellion-slavery.html
 
 **Trump Says He Canceled Strikes on Iran, Claiming Progress on Outlines of a Deal**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/02/world/europe/ceuta-spain-morocco-migrant-hold
 **Europe’s Far Right, Once Marginal, Now Sets Tone on Spain Migrant Crisis**\
 `Europe sheltered many refugees in 2015. Its hard-line reaction to a new crisis in Ceuta shows how, 11 years on, the far right has reshaped European attitudes.`\
 https://www.nytimes.com/2026/08/02/world/europe/europe-migrants-ceuta.html
-
-**A ‘Death of a Salesman,’ Edged in Darkness**\
-`Every Broadway production of “Death of a Salesman” has its distinguishing features. Willy Loman’s Chevrolet is a powerful character in the latest production.`\
-https://www.nytimes.com/2026/08/02/arts/death-of-a-salesman.html
 
