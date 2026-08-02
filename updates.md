@@ -1,3 +1,7 @@
+**Far-Right Leaders Step Up Calls for Expelling Remaining Migrants in Ceuta**\
+`Spain’s leading far-right politician arrived in the territory on Sunday, fueling tensions there after thousands of migrants entered the exclave last week.`\
+https://www.nytimes.com/2026/08/02/world/europe/spain-ceuta-far-right.html
+
 **Christopher Nolan’s Trojan Horse**\
 `The finest trick of his “Odyssey” is smuggling the core of Judeo-Christian ethics into an ancient Greek epic.`\
 https://www.nytimes.com/2026/08/02/opinion/christopher-nolan-odyssey-elon-musk.html

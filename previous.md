@@ -51,7 +51,7 @@ https://www.nytimes.com/2026/08/02/podcasts/the-daily/after-losing-her-limbs-our
 https://www.nytimes.com/2026/08/02/crosswords/strands-sidekick-883.html
 
 **Far-Right Leaders Step Up Calls for Expelling Remaining Migrants in Ceuta**\
-`Spain’s leading far-right politician arrived in the territory on Sunday, fueling political tensions there after thousands of migrants entered the exclave last week.`\
+`Spain’s leading far-right politician arrived in the territory on Sunday, fueling tensions there after thousands of migrants entered the exclave last week.`\
 https://www.nytimes.com/2026/08/02/world/europe/spain-ceuta-far-right.html
 
 **The Surreal, Sublime Worlds of Szilveszter Makó**\
