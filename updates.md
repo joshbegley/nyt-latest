@@ -1,3 +1,7 @@
+**Christopher Nolan’s Trojan Horse**\
+`The finest trick of his “Odyssey” is smuggling the core of Judeo-Christian ethics into an ancient Greek epic.`\
+https://www.nytimes.com/2026/08/02/opinion/christopher-nolan-odyssey-elon-musk.html
+
 **Five Fast Recipes that Sing of Summer**\
 `Starting with Ali Slagle’s pork tenderloin with corn, peaches and lime.`\
 https://www.nytimes.com/2026/08/02/dining/five-fast-recipes-that-sing-of-summer.html
