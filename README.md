@@ -1,3 +1,23 @@
+**When the Fireflies Come Out to Play**\
+`For a few weeks in the summer, they emerge from underground and perform their aerial light show, hoping to find some action.`\
+https://www.nytimes.com/2026/08/02/nyregion/nyc-fireflies.html
+
+**‘I Thought: This Guy Must Be the Worst Negotiator Ever’**\
+`Bartering on the L, a beautiful baritone from behind a closed door and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://www.nytimes.com/2026/08/02/nyregion/metropolitan-diary.html
+
+**The Quirky, Luxurious and Stylish Cannabis Dispensaries of New York**\
+`In a crowded field of legal sellers, stores in New York City are leaning into looks and vibes to find their customers.`\
+https://www.nytimes.com/2026/08/02/nyregion/nyc-cannabis-weed-stores.html
+
+**NYT Spelling Bee Answers for August 2, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/08/02/crosswords/spelling-bee-forum.html
+
+**How a Reporter Turned an Article Into a Manhattan Walking Tour**\
+`An interactive search through New York City’s revolutionary history gave new meaning to the idea of shoe-leather reporting.`\
+https://www.nytimes.com/2026/08/02/insider/250-scavenger-hunt-new-york-times.html
+
 **El calor extremo ha transformado los veranos para distintas generaciones en Europa**\
 `La nueva realidad en Europa, el continente que se calienta más rápido en el mundo, es que los niños crecen con una versión de la temporada radicalmente distinta a la de sus padres o abuelos.`\
 https://www.nytimes.com/es/2026/08/02/espanol/mundo/calor-extremo-europa.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/video/world/europe/100000011066115/migration-surge-on-th
 **The Monthly Bake: Heirloom Tomato and Cheddar Pie**\
 `Our first savory bake is a nod to my Southern roots, with a few delicious twists of my own.`\
 https://www.nytimes.com/2026/08/01/dining/the-monthly-bake-heirloom-tomato-and-cheddar-pie.html
-
-**5 tácticas para dejar de procrastinar**\
-`Ayuda a tu “yo del futuro” removiendo ahora algunos obstáculos que podrían impedir su productividad.`\
-https://www.nytimes.com/es/2026/08/01/espanol/estilos-de-vida/procrastinacion-consejos.html
-
-**Why 70 Percent of Trump’s Mind Is on Renovations**\
-`Forget the Iran war and tariffs. Maggie Haberman explains on “The Ezra Klein Show” why Trump is so fixated on remodeling the White House and building an arch.`\
-https://www.nytimes.com/video/opinion/100000011044745/why-70-percent-of-trumps-mind-is-on-renovations.html
-
-**How Trump’s Second Term Looks to Trump**\
-`Does Trump think his second term is going well? The Times White House correspondent Maggie Haberman shares what she’s observed in her reporting on “The Ezra Klein Show.”`\
-https://www.nytimes.com/video/opinion/100000011044739/how-trumps-second-term-looks-to-trump.html
-
-**Nirmal Purja, Renowned Mountaineer, Is Found Dead After Pakistan Avalanche**\
-`The British-Nepali mountaineer was one of 10 climbers who were struck by an avalanche on Thursday on Broad Peak, one of the world’s highest mountains.`\
-https://www.nytimes.com/2026/08/01/world/asia/nirmal-purja-dead-pakistan-avalanche.html
-
-**The High-Stakes Battle for Invisible Real Estate in Space**\
-`As radio spectrum becomes more valuable, companies like SpaceX are jostling alongside governments to control more of it.`\
-https://www.nytimes.com/2026/08/01/business/dealbook/spacex-spectrum-battle.html
 
