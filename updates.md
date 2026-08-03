@@ -1,3 +1,47 @@
+**Keep on Truckin’**\
+`A family vacation takes an unexpected turn.`\
+https://www.nytimes.com/2026/08/02/briefing/family-road-trip.html
+
+**Self-Help Influencer Nicole LePera Faces Litigation**\
+`Millions look to Nicole LePera for advice on how to achieve contentment and maintain healthy relationships. But her own story is complicated.`\
+https://www.nytimes.com/2026/08/02/style/nicole-lepera-self-help-litigation-holistic-psychologist.html
+
+**Christopher Nolan’s Trojan Horse**\
+`The big trick of his “Odyssey” is smuggling the core of Judeo-Christian ethics into an ancient Greek epic.`\
+https://www.nytimes.com/2026/08/02/opinion/christopher-nolan-odyssey-elon-musk.html
+
+**The War That Could Swallow the World**\
+`Whatever is happening in Iran, it isn’t working.`\
+https://www.nytimes.com/2026/08/02/opinion/iran-war-russia-ukraine-world-war-threat.html
+
+**Jared Leto and Hollywood’s Open Secrets**\
+`Whispers can fester for years before anyone faces consequences. And the tactics celebrities use to escape scandal have completely changed.`\
+https://www.nytimes.com/2026/08/02/opinion/jared-leto-hollywood-secrets-abuse-metoo.html
+
+**Can We Keep One Small Corner of America Technology-Free?**\
+`Baseball isn’t supposed to be perfect.`\
+https://www.nytimes.com/2026/08/02/opinion/baseball-robot-umpires-ai.html
+
+**Christopher Nolan Stared Into Elon Musk’s Soul**\
+`‘The Odyssey’ is the political movie of the decade.`\
+https://www.nytimes.com/video/opinion/100000011066906/christopher-nolan-stared-into-elon-musks-soul.html
+
+**Today’s Wordle Hints for August 3, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Aug. 3, 2026.`\
+https://www.nytimes.com/2026/08/02/crosswords/wordle-review-1871.html
+
+**NYT Connections Answers for August 3, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Aug. 3, 2026.`\
+https://www.nytimes.com/2026/08/02/crosswords/connections-companion-1149.html
+
+**After Losing Her Limbs, Our Cooking Columnist Returns to the Kitchen**\
+`Yewande Komolafe on the medical crisis that changed her life, and how food helped her find a way back to herself.`\
+https://www.nytimes.com/2026/08/02/podcasts/the-daily/after-losing-her-limbs-our-cooking-columnist-returns-to-the-kitchen.html
+
+**NYT Strands Hints for August 3, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Aug. 3, 2026.`\
+https://www.nytimes.com/2026/08/02/crosswords/strands-sidekick-883.html
+
 **How China Keeps Tabs on Foreigners**\
 `An unsecured police dashboard was a rare window into how the authorities track foreigners by collecting and aggregating vast amounts of private data.`\
 https://www.nytimes.com/2026/08/02/world/asia/china-surveillance-foreigners-database.html
