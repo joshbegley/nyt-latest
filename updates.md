@@ -1,3 +1,7 @@
+**Immigrant Held at Delaney Detention Center Has Died, Officials Say**\
+`The mayor of Newark identified the dead man as Edwin Lopez-Cornejo. The New Jersey center has been the focus of intense scrutiny for its treatment of detainees.`\
+https://www.nytimes.com/2026/08/03/nyregion/ice-detention-center-death-delaney-hall-nj.html
+
 **Pirro Meets With Trump at the White House After He Said She ‘Choked’ in Reflecting Pool Case**\
 `President Trump said Jeanine Pirro, the U.S. attorney for Washington, D.C., “folded like an umbrella.” For now, her job appeared to be safe, according to two people familiar with the meeting.`\
 https://www.nytimes.com/2026/08/03/us/politics/trump-pirro-reflecting-pool-vandalism.html

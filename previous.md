@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/08/03/us/politics/senate-spending-bill-shutdown-midterms.html
 
 **Immigrant Held at Delaney Detention Center Has Died, Officials Say**\
-`The mayor of Newark identified the dead man as Edwin Jovanny Lopez Cornejo. The New Jersey center has been the focus of intense scrutiny for its treatment of detainees.`\
+`The mayor of Newark identified the dead man as Edwin Lopez-Cornejo. The New Jersey center has been the focus of intense scrutiny for its treatment of detainees.`\
 https://www.nytimes.com/2026/08/03/nyregion/ice-detention-center-death-delaney-hall-nj.html
 
 **Por qué EE. UU. está ayudando a fortalecer el yen japonés**\
