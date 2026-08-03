@@ -1,6 +1,6 @@
 **Senate Moves Ahead on Bill to Avert a Shutdown**\
 `Senators in both parties are eager to avoid another spending skirmish before the midterm elections, but the measure still must pass the House.`\
-https://www.nytimes.com/2026/08/03/us/politics/senate-moves-ahead-on-bill-to-avert-a-shutdown.html
+https://www.nytimes.com/2026/08/03/us/politics/senate-spending-bill-shutdown-midterms.html
 
 **Immigrant Held at Delaney Detention Center Has Died, Officials Say**\
 `The mayor of Newark identified the dead man as Edwin Jovanny Lopez Cornejo. The New Jersey center has been the focus of intense scrutiny for its treatment of detainees.`\
@@ -155,7 +155,7 @@ https://www.nytimes.com/2026/08/03/climate/trump-bears-ears-monument-recreation.
 https://www.nytimes.com/2026/08/03/us/politics/fbi-agent-cryptocurrency.html
 
 **Two Deaths Linked to Cyclospora Outbreak in Michigan**\
-`The patients had “significant underlying health conditions” that may have contributed to their deaths, health officials said.`\
+`The patients had “significant underlying health conditions,” health officials said.`\
 https://www.nytimes.com/2026/08/03/well/eat/cyclospora-deaths-michigan.html
 
 **How Democratic Socialists Are Wrestling With Their Next Moves**\
