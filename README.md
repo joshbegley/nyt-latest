@@ -155,7 +155,7 @@ https://www.nytimes.com/2026/08/03/climate/trump-bears-ears-monument-recreation.
 https://www.nytimes.com/2026/08/03/us/politics/fbi-agent-cryptocurrency.html
 
 **Two Deaths Linked to Cyclospora Outbreak in Michigan**\
-`The patients had “significant underlying health conditions” that may have contributed to their deaths, health officials said.`\
+`The patients had “significant underlying health conditions,” health officials said.`\
 https://www.nytimes.com/2026/08/03/well/eat/cyclospora-deaths-michigan.html
 
 **How Democratic Socialists Are Wrestling With Their Next Moves**\
