@@ -1,3 +1,23 @@
+**The ‘Civil War’ Is a Lie. Let’s Call It the ‘Slaveholders’ Rebellion’ Again.**\
+`To face our history, we must be honest about it.`\
+https://www.nytimes.com/2026/08/02/opinion/civil-war-slaveholders-rebellion-slavery.html
+
+**Trump Says He Canceled Strikes on Iran, Claiming Progress on Outlines of a Deal**\
+`President Trump has repeatedly threatened to escalate the war with Iran, only to abruptly back down. Saudi Arabia said its leader had urged Mr. Trump not to renew attacks.`\
+https://www.nytimes.com/2026/08/02/world/middleeast/trump-iran-cancels-attack-deal.html
+
+**How China Keeps Tabs on Foreigners**\
+`An unsecured police dashboard was a rare window into how the authorities track foreigners by collecting and aggregating vast amounts of private data.`\
+https://www.nytimes.com/2026/08/02/world/asia/china-surveillance-foreigners-database.html
+
+**After Most Migrants Leave Ceuta, Exhausted Holdouts Find Shelter on Beach**\
+`Most of the people who surged into Spain on Thursday have since returned to Morocco. A small minority are holed up on a seafront, tired, hungry and vowing to stay.`\
+https://www.nytimes.com/2026/08/02/world/europe/ceuta-spain-morocco-migrant-holdouts-beach.html
+
+**Europe’s Far Right, Once Marginal, Now Sets Tone on Spain Migrant Crisis**\
+`Europe sheltered many refugees in 2015. Its hard-line reaction to a new crisis in Ceuta shows how, 11 years on, the far right has reshaped European attitudes.`\
+https://www.nytimes.com/2026/08/02/world/europe/europe-migrants-ceuta.html
+
 **We Have Seafood Shack at Home**\
 `Melissa Clark’s five-star baked fish and chips satisfy that summer craving, no deep-frying necessary.`\
 https://www.nytimes.com/2026/08/02/dining/we-have-seafood-shack-at-home.html
