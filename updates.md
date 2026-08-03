@@ -1,3 +1,7 @@
+**Chicago’s Mayoral Race Is Taking Shape. But What About the Incumbent?**\
+`Several prominent Democrats already are running for mayor of Chicago. Mayor Brandon Johnson has not said whether he will seek a second term next year.`\
+https://www.nytimes.com/2026/08/02/us/chicago-mayors-race.html
+
 **How China Keeps Tabs on Foreigners**\
 `An unsecured police dashboard was a rare window into how the authorities track foreigners by collecting and aggregating vast amounts of private data.`\
 https://www.nytimes.com/2026/08/02/world/asia/china-surveillance-foreigners-database.html
