@@ -1,3 +1,15 @@
+**Por qué EE. UU. está ayudando a fortalecer el yen japonés**\
+`El Tesoro de Estados Unidos se sumó a los esfuerzos de Tokio para frenar la caída del yen frente al dólar, lo que puso de relieve los riesgos que representa la turbulencia en los mercados japoneses.`\
+https://www.nytimes.com/es/2026/08/03/espanol/negocios/yen-japon.html
+
+**Hay 2 muertes vinculadas a la ciclosporiasis en Míchigan**\
+`Los pacientes tenían “afecciones de salud subyacentes significativas” que podrían haber contribuido a sus muertes, dijeron funcionarios de salud.`\
+https://www.nytimes.com/es/2026/08/03/espanol/estados-unidos/ciclosporiasis-michigan-muertos.html
+
+**In Michigan’s 7th District’s Democratic Primary, a Centrist Split Boosts Progressive Hopes**\
+`Unable to unite behind a single candidate in Michigan’s Seventh Congressional District, moderate Democrats worry that they’ve complicated their chances in a key November battleground.`\
+https://www.nytimes.com/2026/08/03/us/politics/democrats-michigan-house-primary-progressives-moderates.html
+
 **Inside the Democratic Socialists of America Summit**\
 `Our politics reporter Kellen Browning went to the Democratic Socialists of America’s national summit in Chicago to learn more about the group’s new platform.`\
 https://www.nytimes.com/video/us/politics/100000011064084/democratic-socialists-of-america.html

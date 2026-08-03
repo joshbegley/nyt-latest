@@ -1,3 +1,11 @@
+**Por qué EE. UU. está ayudando a fortalecer el yen japonés**\
+`El Tesoro de Estados Unidos se sumó a los esfuerzos de Tokio para frenar la caída del yen frente al dólar, lo que puso de relieve los riesgos que representa la turbulencia en los mercados japoneses.`\
+https://www.nytimes.com/es/2026/08/03/espanol/negocios/yen-japon.html
+
+**Hay 2 muertes vinculadas a la ciclosporiasis en Míchigan**\
+`Los pacientes tenían “afecciones de salud subyacentes significativas” que podrían haber contribuido a sus muertes, dijeron funcionarios de salud.`\
+https://www.nytimes.com/es/2026/08/03/espanol/estados-unidos/ciclosporiasis-michigan-muertos.html
+
 **Inside the Democratic Socialists of America Summit**\
 `Our politics reporter Kellen Browning went to the Democratic Socialists of America’s national summit in Chicago to learn more about the group’s new platform.`\
 https://www.nytimes.com/video/us/politics/100000011064084/democratic-socialists-of-america.html
@@ -55,7 +63,7 @@ https://www.nytimes.com/video/world/asia/100000011070105/massive-attack-band-sin
 https://www.nytimes.com/2026/08/03/world/falling-space-debris-iran-oman.html
 
 **In Michigan’s 7th District’s Democratic Primary, a Centrist Split Boosts Progressive Hopes**\
-`Unable to unite behind a single candidate in Michigan’s Seventh District, moderate Democrats worry that they’ve complicated their chances in a key November battleground.`\
+`Unable to unite behind a single candidate in Michigan’s Seventh Congressional District, moderate Democrats worry that they’ve complicated their chances in a key November battleground.`\
 https://www.nytimes.com/2026/08/03/us/politics/democrats-michigan-house-primary-progressives-moderates.html
 
 **Russian Opposition Politician Flees to France**\
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/08/03/opinion/international-world/trump-ukraine-rus
 **This Crunchy, Cabbage-Laden Rice Salad Is Always Good**\
 `It’s no surprise it’s one of our most popular recipes of the year so far.`\
 https://www.nytimes.com/2026/08/03/dining/this-crunchy-cabbage-laden-rice-salad-is-always-good.html
-
-**Here’s Why the US Is Helping Prop Up the Japanese Yen**\
-`The U.S. Treasury joined efforts in Tokyo to stem the yen’s slide against the dollar, highlighting the broader risks posed by turmoil in Japanese markets.`\
-https://www.nytimes.com/2026/08/03/business/us-japan-yen-intervention.html
-
-**What Are Your Favorite Clothing Stores in the Big Apple?**\
-`Whether it’s a boutique that sells up-and-coming designers, a vintage store specializing in shirting or a jeans emporium, we want to hear from you.`\
-https://www.nytimes.com/2026/08/03/style/shopping-newyorkcity-favorite-clothing-stores.html
 
