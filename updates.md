@@ -1,3 +1,7 @@
+**Trump Summons Pirro to the White House After Saying She ‘Choked’ in Reflecting Pool Case**\
+`President Trump said Jeanine Pirro, the U.S. attorney for Washington, D.C., “folded like an umbrella.” For now, her job appeared to be safe, according to two people familiar with the meeting.`\
+https://www.nytimes.com/2026/08/03/us/politics/trump-pirro-reflecting-pool-vandalism.html
+
 **Senate Moves Ahead on Bill to Avert a Shutdown**\
 `Senators in both parties are eager to avoid another spending skirmish before the midterm elections, but the measure still must pass the House.`\
 https://www.nytimes.com/2026/08/03/us/politics/senate-spending-bill-shutdown-midterms.html
