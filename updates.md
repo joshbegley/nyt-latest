@@ -1,3 +1,7 @@
+**Keep on Truckin’**\
+`A family vacation takes an unexpected turn.`\
+https://www.nytimes.com/2026/08/02/briefing/family-road-trip.html
+
 **The ‘Civil War’ Is a Lie. Let’s Call It the ‘Slaveholders’ Rebellion’ Again.**\
 `To face our history, we must be honest about it.`\
 https://www.nytimes.com/2026/08/02/opinion/civil-war-slaveholders-rebellion-slavery.html
