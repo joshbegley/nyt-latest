@@ -1,3 +1,43 @@
+**Self-Help Influencer Nicole LePera Faces Litigation**\
+`Millions look to Nicole LePera for advice on how to achieve contentment and maintain healthy relationships. But her own story is complicated.`\
+https://www.nytimes.com/2026/08/02/style/nicole-lepera-self-help-litigation-holistic-psychologist.html
+
+**Christopher Nolan’s Trojan Horse**\
+`The big trick of his “Odyssey” is smuggling the core of Judeo-Christian ethics into an ancient Greek epic.`\
+https://www.nytimes.com/2026/08/02/opinion/christopher-nolan-odyssey-elon-musk.html
+
+**The War That Could Swallow the World**\
+`Whatever is happening in Iran, it isn’t working.`\
+https://www.nytimes.com/2026/08/02/opinion/iran-war-russia-ukraine-world-war-threat.html
+
+**Jared Leto and Hollywood’s Open Secrets**\
+`Whispers can fester for years before anyone faces consequences. And the tactics celebrities use to escape scandal have completely changed.`\
+https://www.nytimes.com/2026/08/02/opinion/jared-leto-hollywood-secrets-abuse-metoo.html
+
+**Can We Keep One Small Corner of America Technology-Free?**\
+`Baseball isn’t supposed to be perfect.`\
+https://www.nytimes.com/2026/08/02/opinion/baseball-robot-umpires-ai.html
+
+**Christopher Nolan Stared Into Elon Musk’s Soul**\
+`‘The Odyssey’ is the political movie of the decade.`\
+https://www.nytimes.com/video/opinion/100000011066906/christopher-nolan-stared-into-elon-musks-soul.html
+
+**Today’s Wordle Hints for August 3, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Aug. 3, 2026.`\
+https://www.nytimes.com/2026/08/02/crosswords/wordle-review-1871.html
+
+**NYT Connections Answers for August 3, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Aug. 3, 2026.`\
+https://www.nytimes.com/2026/08/02/crosswords/connections-companion-1149.html
+
+**After Losing Her Limbs, Our Cooking Columnist Returns to the Kitchen**\
+`Yewande Komolafe on the medical crisis that changed her life, and how food helped her find a way back to herself.`\
+https://www.nytimes.com/2026/08/02/podcasts/the-daily/after-losing-her-limbs-our-cooking-columnist-returns-to-the-kitchen.html
+
+**NYT Strands Hints for August 3, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Aug. 3, 2026.`\
+https://www.nytimes.com/2026/08/02/crosswords/strands-sidekick-883.html
+
 **In Ceuta, Far-Right Leaders Call on Spain to Expel Migrants**\
 `Far-right politicians and activists are flocking to the Spanish territory on the northern coast of Africa, fueling tensions there days after thousands of migrants entered the exclave.`\
 https://www.nytimes.com/2026/08/02/world/europe/spain-ceuta-far-right.html
@@ -157,44 +197,4 @@ https://www.nytimes.com/2026/08/02/world/europe/europe-migrants-ceuta.html
 **A ‘Death of a Salesman,’ Edged in Darkness**\
 `Every Broadway production of “Death of a Salesman” has its distinguishing features. Willy Loman’s Chevrolet is a powerful character in the latest production.`\
 https://www.nytimes.com/2026/08/02/arts/death-of-a-salesman.html
-
-**The Allure and Peril of Riding an Alaskan Wave for Six Miles**\
-`The tidal bore that rockets up the Turnagain Arm south of Anchorage can carry a surfer for an hour; it can also kill. Now that the secret is out, how long will authorities allow surfers to catch the wave?`\
-https://www.nytimes.com/2026/08/02/us/bore-tide-surfing-alaska.html
-
-**Australia’s Indie Music Venues Closing as Costs Rise and Attendance Drops**\
-`When Mary’s Underground in Sydney closed, it was a familiar tune for a scene hit by high costs and low attendance. Critics worry about a shrinking space for new talent.`\
-https://www.nytimes.com/2026/08/02/world/australia/sydney-australia-marys-underground-music-venues-closing.html
-
-**Quote of the Day: Iran War Deepens Doubts on U.S. Credibility**\
-`Quotation of the Day for Sunday, August 2, 2026.`\
-https://www.nytimes.com/2026/08/02/pageoneplus/quote-of-the-day-iran-war-deepens-doubts-on-us-credibility.html
-
-**Multiple People Killed in Shooting at In-N-Out Burger in Idaho**\
-`At least three people were killed in a shooting at an In-N-Out Burger in Twin Falls, Idaho, on Saturday, the authorities said.`\
-https://www.nytimes.com/video/us/100000011068069/in-n-out-shooting-idaho.html
-
-**Days After Deadly Shooting, Seattle Tightens Security on Festivities**\
-`A recent shooting that killed three people at a food festival in Seattle did not deter crowds from the city’s Seafair Weekend Festival.`\
-https://www.nytimes.com/2026/08/01/us/seattle-festival-shooting.html
-
-**More Than a Dozen Wildfires Burn in Washington State, Forcing Evacuations**\
-`The Old Trails fire near Spokane had grown to about 3,500 acres by Sunday morning, propelled by strong wind gusts and high temperatures.`\
-https://www.nytimes.com/2026/08/01/us/wildfires-spokane-washington-evacuations.html
-
-**Vicki Wickham, Behind-the-Scenes Force in Pop Music, Dies at 87**\
-`She managed artists like Labelle and Dusty Springfield, and helped run the influential 1960s British TV showcase “Ready Steady Go!”`\
-https://www.nytimes.com/2026/08/01/arts/music/vicki-wickham-dead.html
-
-**Tourist Plane Crashes in Peru, Killing All 13 Aboard**\
-`The flight had taken off from the coastal city of Pisco to view the ancient geoglyphs in the desert, a popular tourist attraction.`\
-https://www.nytimes.com/2026/08/01/world/americas/peru-tourist-plane-crash-nazca.html
-
-**Shooting at In-N-Out in Idaho Leaves at Least 3 Dead and 5 Wounded**\
-`The shooting occurred at a busy shopping center in Twin Falls, as people were getting food, shopping and going to the movies on a Saturday afternoon. The police said the shooter was dead.`\
-https://www.nytimes.com/2026/08/01/us/in-n-out-shooting-idaho.html
-
-**Teen Hikers Rescued 12 Hours Into Google Maps Hike**\
-`The three teenage boys estimated their hike time would be over five hours on a rugged trail in British Columbia, Canada. A helicopter crew had to retrieve them.`\
-https://www.nytimes.com/2026/08/01/world/canada/canada-hiking-rescue-google-maps.html
 
