@@ -1,15 +1,3 @@
-**Una avioneta se estrelló en la zona de Nazca, Perú.**\
-`La aeronave había despegado de la ciudad costera de Pisco para ver los antiguos geoglifos en el desierto de Nazca, una popular atracción.`\
-https://www.nytimes.com/es/2026/08/02/espanol/america-latina/accidente-avion-nazca-peru.html
-
-**Ohio Senator Calls Former Son-in-Law Accused of Abuse Unfit for Office**\
-`Senator Bernie Moreno, Republican of Ohio, broke his silence about allegations of domestic abuse his daughter has made against Representative Max Miller.`\
-https://www.nytimes.com/2026/08/02/us/elections/max-miller-ohio-republican-moreno-election.html
-
-**What We Know About the Shooting at an In-N-Out Burger in Idaho**\
-`Gunfire brought panic to a shopping center in Twin Falls in what the authorities described as a chaotic scene. At least three people were killed.`\
-https://www.nytimes.com/2026/08/02/us/in-n-out-shooting-idaho-victims-suspect.html
-
 **We Have Seafood Shack at Home**\
 `Melissa Clark’s five-star baked fish and chips satisfy that summer craving, no deep-frying necessary.`\
 https://www.nytimes.com/2026/08/02/dining/we-have-seafood-shack-at-home.html
@@ -197,4 +185,16 @@ https://www.nytimes.com/2026/08/02/insider/250-scavenger-hunt-new-york-times.htm
 **El calor extremo ha transformado los veranos para distintas generaciones en Europa**\
 `La nueva realidad en Europa, el continente que se calienta más rápido en el mundo, es que los niños crecen con una versión de la temporada radicalmente distinta a la de sus padres o abuelos.`\
 https://www.nytimes.com/es/2026/08/02/espanol/mundo/calor-extremo-europa.html
+
+**Roma vive un renacimiento de la pizza**\
+`La “pizza al taglio”, el tradicional tentempié romano que se vende al peso, ahora incluye ingredientes como albóndigas al vino y cordero con comino. Estos son los mejores lugares para comerla.`\
+https://www.nytimes.com/es/2026/08/02/espanol/estilos-de-vida/pizza-roma.html
+
+**¿Qué es la psicosis postparto?**\
+`Esta afección poco común puede causar alucinaciones y pensamientos delirantes en las personas embarazadas o que acaban de dar a luz.`\
+https://www.nytimes.com/es/2026/08/02/espanol/psicosis-postparto.html
+
+**This Is What My Father’s Assassination Taught Me About the War in Iran**\
+`After a lifetime of observing Iran’s revolutionary generation, I know that expecting meekness or diplomatic finesse from it is a dangerous illusion.`\
+https://www.nytimes.com/2026/08/02/opinion/iran-revolution-father-murder-boroujerdi-grimm.html
 
