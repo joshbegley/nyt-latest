@@ -1,3 +1,11 @@
+**Wildfires Force 60,000 Evacuations in Spokane**\
+`Plus, two deaths are linked to cyclosporiasis. Here’s the latest at the end of Monday.`\
+https://www.nytimes.com/2026/08/03/briefing/spokane-cyclosporiasis-blanche.html
+
+**How Tom Holland and Zendaya Helped Draw Gen Z Crowds to ‘Spider-Man: Brand New Day’**\
+`The couple helped draw young audiences to “Spider-Man: Brand New Day” and “The Odyssey” on a historic Hollywood weekend.`\
+https://www.nytimes.com/2026/08/03/movies/zendaya-tom-holland-spiderman.html
+
 **Maps: Tracking the Wildfires in Europe**\
 `See maps of fire locations and smoke forecasts..`\
 https://www.nytimes.com/interactive/2026/08/03/weather/europe-wildfire-smoke-maps.html
