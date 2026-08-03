@@ -1,3 +1,7 @@
+**Immigrant Held at Delaney Detention Center Has Died, Officials Say**\
+`The mayor of Newark identified the dead man as Edwin Jovanny Lopez Cornejo. The New Jersey center has been the focus of intense scrutiny for its treatment of detainees.`\
+https://www.nytimes.com/2026/08/03/nyregion/ice-detention-center-death-delaney-hall-nj.html
+
 **Por qué EE. UU. está ayudando a fortalecer el yen japonés**\
 `El Tesoro de Estados Unidos se sumó a los esfuerzos de Tokio para frenar la caída del yen frente al dólar, lo que puso de relieve los riesgos que representa la turbulencia en los mercados japoneses.`\
 https://www.nytimes.com/es/2026/08/03/espanol/negocios/yen-japon.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/video/world/europe/100000011069330/greece-wildfires-heli
 **Trump’s Chance for Peace in Ukraine Is Real. But It Won’t Last.**\
 `There’s a narrow chance for a Russia-Ukraine peace deal before things go south.`\
 https://www.nytimes.com/2026/08/03/opinion/international-world/trump-ukraine-russia-war.html
-
-**This Crunchy, Cabbage-Laden Rice Salad Is Always Good**\
-`It’s no surprise it’s one of our most popular recipes of the year so far.`\
-https://www.nytimes.com/2026/08/03/dining/this-crunchy-cabbage-laden-rice-salad-is-always-good.html
 
