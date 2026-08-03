@@ -1,3 +1,31 @@
+**A ‘Death of a Salesman,’ Edged in Darkness**\
+`Every Broadway production of “Death of a Salesman” has its distinguishing features. Willy Loman’s Chevrolet is a powerful character in the latest production.`\
+https://www.nytimes.com/2026/08/02/arts/death-of-a-salesman.html
+
+**The Allure and Peril of Riding an Alaskan Wave for Six Miles**\
+`The tidal bore that rockets up the Turnagain Arm south of Anchorage can carry a surfer for an hour; it can also kill. Now that the secret is out, how long will authorities allow surfers to catch the wave?`\
+https://www.nytimes.com/2026/08/02/us/bore-tide-surfing-alaska.html
+
+**Australia’s Indie Music Venues Closing as Costs Rise and Attendance Drops**\
+`When Mary’s Underground in Sydney closed, it was a familiar tune for a scene hit by high costs and low attendance. Critics worry about a shrinking space for new talent.`\
+https://www.nytimes.com/2026/08/02/world/australia/sydney-australia-marys-underground-music-venues-closing.html
+
+**Quote of the Day: Iran War Deepens Doubts on U.S. Credibility**\
+`Quotation of the Day for Sunday, August 2, 2026.`\
+https://www.nytimes.com/2026/08/02/pageoneplus/quote-of-the-day-iran-war-deepens-doubts-on-us-credibility.html
+
+**Multiple People Killed in Shooting at In-N-Out Burger in Idaho**\
+`At least three people were killed in a shooting at an In-N-Out Burger in Twin Falls, Idaho, on Saturday, the authorities said.`\
+https://www.nytimes.com/video/us/100000011068069/in-n-out-shooting-idaho.html
+
+**Days After Deadly Shooting, Seattle Tightens Security on Festivities**\
+`A recent shooting that killed three people at a food festival in Seattle did not deter crowds from the city’s Seafair Weekend Festival.`\
+https://www.nytimes.com/2026/08/01/us/seattle-festival-shooting.html
+
+**More Than a Dozen Wildfires Burn in Washington State, Forcing Evacuations**\
+`The Old Trails fire near Spokane had grown to about 3,500 acres by Sunday morning, propelled by strong wind gusts and high temperatures.`\
+https://www.nytimes.com/2026/08/01/us/wildfires-spokane-washington-evacuations.html
+
 **The ‘Civil War’ Is a Lie. Let’s Call It the ‘Slaveholders’ Rebellion’ Again.**\
 `To face our history, we must be honest about it.`\
 https://www.nytimes.com/2026/08/02/opinion/civil-war-slaveholders-rebellion-slavery.html
