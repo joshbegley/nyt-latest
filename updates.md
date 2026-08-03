@@ -1,3 +1,7 @@
+**How China Keeps Tabs on Foreigners**\
+`An unsecured police dashboard was a rare window into how the authorities track foreigners by collecting and aggregating vast amounts of private data.`\
+https://www.nytimes.com/2026/08/02/world/asia/china-surveillance-foreigners-database.html
+
 **The ‘Civil War’ Is a Lie. Let’s Call It the ‘Slaveholders’ Rebellion’ Again.**\
 `To face our history, we must be honest about it.`\
 https://www.nytimes.com/2026/08/02/opinion/civil-war-slaveholders-rebellion-slavery.html
