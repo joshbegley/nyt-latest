@@ -1,3 +1,35 @@
+**Keep on Truckin’**\
+`A family vacation takes an unexpected turn.`\
+https://www.nytimes.com/2026/08/02/briefing/family-road-trip.html
+
+**Self-Help Influencer Nicole LePera Faces Litigation**\
+`Millions look to Nicole LePera for advice on how to achieve contentment and maintain healthy relationships. But her own story is complicated.`\
+https://www.nytimes.com/2026/08/02/style/nicole-lepera-self-help-litigation-holistic-psychologist.html
+
+**Christopher Nolan’s Trojan Horse**\
+`The big trick of his “Odyssey” is smuggling the core of Judeo-Christian ethics into an ancient Greek epic.`\
+https://www.nytimes.com/2026/08/02/opinion/christopher-nolan-odyssey-elon-musk.html
+
+**The War That Could Swallow the World**\
+`Whatever is happening in Iran, it isn’t working.`\
+https://www.nytimes.com/2026/08/02/opinion/iran-war-russia-ukraine-world-war-threat.html
+
+**Jared Leto and Hollywood’s Open Secrets**\
+`Whispers can fester for years before anyone faces consequences. And the tactics celebrities use to escape scandal have completely changed.`\
+https://www.nytimes.com/2026/08/02/opinion/jared-leto-hollywood-secrets-abuse-metoo.html
+
+**Can We Keep One Small Corner of America Technology-Free?**\
+`Baseball isn’t supposed to be perfect.`\
+https://www.nytimes.com/2026/08/02/opinion/baseball-robot-umpires-ai.html
+
+**Christopher Nolan Stared Into Elon Musk’s Soul**\
+`‘The Odyssey’ is the political movie of the decade.`\
+https://www.nytimes.com/video/opinion/100000011066906/christopher-nolan-stared-into-elon-musks-soul.html
+
+**Trump Says He Canceled Strikes on Iran, Claiming Progress on Outlines of a Deal**\
+`President Trump has repeatedly threatened to escalate the war with Iran, only to abruptly back down. Saudi Arabia said its leader had urged Mr. Trump not to renew attacks.`\
+https://www.nytimes.com/2026/08/02/world/middleeast/trump-iran-cancels-attack-deal.html
+
 **The Allure and Peril of Riding an Alaskan Wave for Six Miles**\
 `The tidal bore that rockets up the Turnagain Arm south of Anchorage can carry a surfer for an hour; it can also kill. Now that the secret is out, how long will authorities allow surfers to catch the wave?`\
 https://www.nytimes.com/2026/08/02/us/bore-tide-surfing-alaska.html
