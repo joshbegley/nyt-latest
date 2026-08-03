@@ -1,3 +1,11 @@
+**After Most Migrants Leave Ceuta, Exhausted Holdouts Find Shelter on Beach**\
+`Most of the people who surged into Spain on Thursday have since returned to Morocco. A small minority are holed up on a seafront, tired, hungry and vowing to stay.`\
+https://www.nytimes.com/2026/08/02/world/europe/ceuta-spain-morocco-migrant-holdouts-beach.html
+
+**Europe’s Far Right, Once Marginal, Now Sets Tone on Spain Migrant Crisis**\
+`Europe sheltered many refugees in 2015. Its hard-line reaction to a new crisis in Ceuta shows how, 11 years on, the far right has reshaped European attitudes.`\
+https://www.nytimes.com/2026/08/02/world/europe/europe-migrants-ceuta.html
+
 **Five Fast Recipes that Sing of Summer**\
 `Starting with Ali Slagle’s pork tenderloin with corn, peaches and lime.`\
 https://www.nytimes.com/2026/08/02/dining/five-fast-recipes-that-sing-of-summer.html

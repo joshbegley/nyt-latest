@@ -1,11 +1,3 @@
-**Five Fast Recipes that Sing of Summer**\
-`Starting with Ali Slagle’s pork tenderloin with corn, peaches and lime.`\
-https://www.nytimes.com/2026/08/02/dining/five-fast-recipes-that-sing-of-summer.html
-
-**New Alzheimer’s Test Is Cause for Hope and Caution**\
-`Readers respond to a Science Times article, “New Potential for Diagnosing Alzheimer’s Disease.” Also: The noise that data centers make.`\
-https://www.nytimes.com/2026/08/02/opinion/alzheimers-test.html
-
 **Keep on Truckin’**\
 `A family vacation takes an unexpected turn.`\
 https://www.nytimes.com/2026/08/02/briefing/family-road-trip.html
@@ -197,4 +189,12 @@ https://www.nytimes.com/2026/08/02/world/middleeast/trump-iran-cancels-attack-de
 **How China Keeps Tabs on Foreigners**\
 `An unsecured police dashboard was a rare window into how the authorities track foreigners by collecting and aggregating vast amounts of private data.`\
 https://www.nytimes.com/2026/08/02/world/asia/china-surveillance-foreigners-database.html
+
+**After Most Migrants Leave Ceuta, Exhausted Holdouts Find Shelter on Beach**\
+`Most of the people who surged into Spain on Thursday have since returned to Morocco. A small minority are holed up on a seafront, tired, hungry and vowing to stay.`\
+https://www.nytimes.com/2026/08/02/world/europe/ceuta-spain-morocco-migrant-holdouts-beach.html
+
+**Europe’s Far Right, Once Marginal, Now Sets Tone on Spain Migrant Crisis**\
+`Europe sheltered many refugees in 2015. Its hard-line reaction to a new crisis in Ceuta shows how, 11 years on, the far right has reshaped European attitudes.`\
+https://www.nytimes.com/2026/08/02/world/europe/europe-migrants-ceuta.html
 
