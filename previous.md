@@ -1,3 +1,7 @@
+**Senate Moves Ahead on Bill to Avert a Shutdown**\
+`Senators in both parties are eager to avoid another spending skirmish before the midterm elections, but the measure still must pass the House.`\
+https://www.nytimes.com/2026/08/03/us/politics/senate-moves-ahead-on-bill-to-avert-a-shutdown.html
+
 **Immigrant Held at Delaney Detention Center Has Died, Officials Say**\
 `The mayor of Newark identified the dead man as Edwin Jovanny Lopez Cornejo. The New Jersey center has been the focus of intense scrutiny for its treatment of detainees.`\
 https://www.nytimes.com/2026/08/03/nyregion/ice-detention-center-death-delaney-hall-nj.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/08/03/us/trump-mcmahon-colleges-letter.html
 **2 Killed After Firefighting Helicopters Crash in Greece**\
 `Two men were killed after a pair of firefighting helicopters collided while battling blazes northwest of Athens on Sunday. Greece is one of several European countries struggling to contain summer wildfires.`\
 https://www.nytimes.com/video/world/europe/100000011069330/greece-wildfires-helicopters-crash.html
-
-**Trump’s Chance for Peace in Ukraine Is Real. But It Won’t Last.**\
-`There’s a narrow chance for a Russia-Ukraine peace deal before things go south.`\
-https://www.nytimes.com/2026/08/03/opinion/international-world/trump-ukraine-russia-war.html
 

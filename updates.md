@@ -1,3 +1,7 @@
+**Senate Moves Ahead on Bill to Avert a Shutdown**\
+`Senators in both parties are eager to avoid another spending skirmish before the midterm elections, but the measure still must pass the House.`\
+https://www.nytimes.com/2026/08/03/us/politics/senate-moves-ahead-on-bill-to-avert-a-shutdown.html
+
 **Immigrant Held at Delaney Detention Center Has Died, Officials Say**\
 `The mayor of Newark identified the dead man as Edwin Jovanny Lopez Cornejo. The New Jersey center has been the focus of intense scrutiny for its treatment of detainees.`\
 https://www.nytimes.com/2026/08/03/nyregion/ice-detention-center-death-delaney-hall-nj.html
