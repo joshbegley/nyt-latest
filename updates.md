@@ -1,3 +1,23 @@
+**We Have Seafood Shack at Home**\
+`Melissa Clark’s five-star baked fish and chips satisfy that summer craving, no deep-frying necessary.`\
+https://www.nytimes.com/2026/08/02/dining/we-have-seafood-shack-at-home.html
+
+**Man Charged in Girl’s Abduction Nearly Four Years After She Was Last Seen**\
+`The police found the girl, who was 15 when she disappeared in 2022 in Milwaukee, alive in Virginia in May. A man faces more than 60 charges, including abduction, in connection with the case.`\
+https://www.nytimes.com/2026/08/02/us/missing-milwaukee-girl-found-virginia.html
+
+**Chicago’s Mayoral Race Is Taking Shape. But What About the Incumbent?**\
+`Several prominent Democrats already are running for mayor of Chicago. Mayor Brandon Johnson has not said whether he will seek a second term next year.`\
+https://www.nytimes.com/2026/08/02/us/chicago-mayors-race.html
+
+**Five Fast Recipes that Sing of Summer**\
+`Starting with Ali Slagle’s pork tenderloin with corn, peaches and lime.`\
+https://www.nytimes.com/2026/08/02/dining/five-fast-recipes-that-sing-of-summer.html
+
+**New Alzheimer’s Test Is Cause for Hope and Caution**\
+`Readers respond to a Science Times article, “New Potential for Diagnosing Alzheimer’s Disease.” Also: The noise that data centers make.`\
+https://www.nytimes.com/2026/08/02/opinion/alzheimers-test.html
+
 **Trump Says He Canceled Strikes on Iran, Claiming Progress on Outlines of a Deal**\
 `President Trump has repeatedly threatened to escalate the war with Iran, only to abruptly back down. Saudi Arabia said its leader had urged Mr. Trump not to renew attacks.`\
 https://www.nytimes.com/2026/08/02/world/middleeast/trump-iran-cancels-attack-deal.html
