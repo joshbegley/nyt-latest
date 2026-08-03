@@ -1,3 +1,7 @@
+**Por qué EE. UU. está ayudando a fortalecer el yen japonés**\
+`El Tesoro de Estados Unidos se sumó a los esfuerzos de Tokio para frenar la caída del yen frente al dólar, lo que puso de relieve los riesgos que representa la turbulencia en los mercados japoneses.`\
+https://www.nytimes.com/es/2026/08/03/espanol/negocios/yen-japon.html
+
 **Hay 2 muertes vinculadas a la ciclosporiasis en Míchigan**\
 `Los pacientes tenían “afecciones de salud subyacentes significativas” que podrían haber contribuido a sus muertes, dijeron funcionarios de salud.`\
 https://www.nytimes.com/es/2026/08/03/espanol/estados-unidos/ciclosporiasis-michigan-muertos.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/08/03/opinion/international-world/trump-ukraine-rus
 **This Crunchy, Cabbage-Laden Rice Salad Is Always Good**\
 `It’s no surprise it’s one of our most popular recipes of the year so far.`\
 https://www.nytimes.com/2026/08/03/dining/this-crunchy-cabbage-laden-rice-salad-is-always-good.html
-
-**Here’s Why the US Is Helping Prop Up the Japanese Yen**\
-`The U.S. Treasury joined efforts in Tokyo to stem the yen’s slide against the dollar, highlighting the broader risks posed by turmoil in Japanese markets.`\
-https://www.nytimes.com/2026/08/03/business/us-japan-yen-intervention.html
 
