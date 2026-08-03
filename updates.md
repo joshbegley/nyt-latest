@@ -1,3 +1,11 @@
+**The ‘Civil War’ Is a Lie. Let’s Call It the ‘Slaveholders’ Rebellion’ Again.**\
+`To face our history, we must be honest about it.`\
+https://www.nytimes.com/2026/08/02/opinion/civil-war-slaveholders-rebellion-slavery.html
+
+**Trump Says He Canceled Strikes on Iran, Claiming Progress on Outlines of a Deal**\
+`President Trump has repeatedly threatened to escalate the war with Iran, only to abruptly back down. Saudi Arabia said its leader had urged Mr. Trump not to renew attacks.`\
+https://www.nytimes.com/2026/08/02/world/middleeast/trump-iran-cancels-attack-deal.html
+
 **Roma vive un renacimiento de la pizza**\
 `La “pizza al taglio”, el tradicional tentempié romano que se vende al peso, ahora incluye ingredientes como albóndigas al vino y cordero con comino. Estos son los mejores lugares para comerla.`\
 https://www.nytimes.com/es/2026/08/02/espanol/estilos-de-vida/pizza-roma.html
