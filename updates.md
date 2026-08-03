@@ -1,3 +1,55 @@
+**After Most Migrants Leave Ceuta, Exhausted Holdouts Find Shelter on Beach**\
+`Most of the people who surged into Spain on Thursday have since returned to Morocco. A small minority are holed up on a seafront, tired, hungry and vowing to stay.`\
+https://www.nytimes.com/2026/08/02/world/europe/ceuta-spain-morocco-migrant-holdouts-beach.html
+
+**Europe’s Far Right, Once Marginal, Now Sets Tone on Spain Migrant Crisis**\
+`Europe sheltered many refugees in 2015. Its hard-line reaction to a new crisis in Ceuta shows how, 11 years on, the far right has reshaped European attitudes.`\
+https://www.nytimes.com/2026/08/02/world/europe/europe-migrants-ceuta.html
+
+**A ‘Death of a Salesman,’ Edged in Darkness**\
+`Every Broadway production of “Death of a Salesman” has its distinguishing features. Willy Loman’s Chevrolet is a powerful character in the latest production.`\
+https://www.nytimes.com/2026/08/02/arts/death-of-a-salesman.html
+
+**The Allure and Peril of Riding an Alaskan Wave for Six Miles**\
+`The tidal bore that rockets up the Turnagain Arm south of Anchorage can carry a surfer for an hour; it can also kill. Now that the secret is out, how long will authorities allow surfers to catch the wave?`\
+https://www.nytimes.com/2026/08/02/us/bore-tide-surfing-alaska.html
+
+**Australia’s Indie Music Venues Closing as Costs Rise and Attendance Drops**\
+`When Mary’s Underground in Sydney closed, it was a familiar tune for a scene hit by high costs and low attendance. Critics worry about a shrinking space for new talent.`\
+https://www.nytimes.com/2026/08/02/world/australia/sydney-australia-marys-underground-music-venues-closing.html
+
+**Quote of the Day: Iran War Deepens Doubts on U.S. Credibility**\
+`Quotation of the Day for Sunday, August 2, 2026.`\
+https://www.nytimes.com/2026/08/02/pageoneplus/quote-of-the-day-iran-war-deepens-doubts-on-us-credibility.html
+
+**Multiple People Killed in Shooting at In-N-Out Burger in Idaho**\
+`At least three people were killed in a shooting at an In-N-Out Burger in Twin Falls, Idaho, on Saturday, the authorities said.`\
+https://www.nytimes.com/video/us/100000011068069/in-n-out-shooting-idaho.html
+
+**Days After Deadly Shooting, Seattle Tightens Security on Festivities**\
+`A recent shooting that killed three people at a food festival in Seattle did not deter crowds from the city’s Seafair Weekend Festival.`\
+https://www.nytimes.com/2026/08/01/us/seattle-festival-shooting.html
+
+**More Than a Dozen Wildfires Burn in Washington State, Forcing Evacuations**\
+`The Old Trails fire near Spokane had grown to about 3,500 acres by Sunday morning, propelled by strong wind gusts and high temperatures.`\
+https://www.nytimes.com/2026/08/01/us/wildfires-spokane-washington-evacuations.html
+
+**Vicki Wickham, Behind-the-Scenes Force in Pop Music, Dies at 87**\
+`She managed artists like Labelle and Dusty Springfield, and helped run the influential 1960s British TV showcase “Ready Steady Go!”`\
+https://www.nytimes.com/2026/08/01/arts/music/vicki-wickham-dead.html
+
+**Tourist Plane Crashes in Peru, Killing All 13 Aboard**\
+`The flight had taken off from the coastal city of Pisco to view the ancient geoglyphs in the desert, a popular tourist attraction.`\
+https://www.nytimes.com/2026/08/01/world/americas/peru-tourist-plane-crash-nazca.html
+
+**Shooting at In-N-Out in Idaho Leaves at Least 3 Dead and 5 Wounded**\
+`The shooting occurred at a busy shopping center in Twin Falls, as people were getting food, shopping and going to the movies on a Saturday afternoon. The police said the shooter was dead.`\
+https://www.nytimes.com/2026/08/01/us/in-n-out-shooting-idaho.html
+
+**Teen Hikers Rescued 12 Hours Into Google Maps Hike**\
+`The three teenage boys estimated their hike time would be over five hours on a rugged trail in British Columbia, Canada. A helicopter crew had to retrieve them.`\
+https://www.nytimes.com/2026/08/01/world/canada/canada-hiking-rescue-google-maps.html
+
 **Five Fast Recipes that Sing of Summer**\
 `Starting with Ali Slagle’s pork tenderloin with corn, peaches and lime.`\
 https://www.nytimes.com/2026/08/02/dining/five-fast-recipes-that-sing-of-summer.html
