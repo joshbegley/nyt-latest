@@ -1,3 +1,15 @@
+**Roma vive un renacimiento de la pizza**\
+`La “pizza al taglio”, el tradicional tentempié romano que se vende al peso, ahora incluye ingredientes como albóndigas al vino y cordero con comino. Estos son los mejores lugares para comerla.`\
+https://www.nytimes.com/es/2026/08/02/espanol/estilos-de-vida/pizza-roma.html
+
+**¿Qué es la psicosis postparto?**\
+`Esta afección poco común puede causar alucinaciones y pensamientos delirantes en las personas embarazadas o que acaban de dar a luz.`\
+https://www.nytimes.com/es/2026/08/02/espanol/psicosis-postparto.html
+
+**This Is What My Father’s Assassination Taught Me About the War in Iran**\
+`After a lifetime of observing Iran’s revolutionary generation, I know that expecting meekness or diplomatic finesse from it is a dangerous illusion.`\
+https://www.nytimes.com/2026/08/02/opinion/iran-revolution-father-murder-boroujerdi-grimm.html
+
 **Una avioneta se estrelló en la zona de Nazca, Perú.**\
 `La aeronave había despegado de la ciudad costera de Pisco para ver los antiguos geoglifos en el desierto de Nazca, una popular atracción.`\
 https://www.nytimes.com/es/2026/08/02/espanol/america-latina/accidente-avion-nazca-peru.html
