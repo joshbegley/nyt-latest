@@ -1,7 +1,3 @@
-**Self-Help Influencer Nicole LePera Faces Litigation**\
-`Millions look to Nicole LePera for advice on how to achieve contentment and maintain healthy relationships. But her own story is complicated.`\
-https://www.nytimes.com/2026/08/02/style/nicole-lepera-self-help-litigation-holistic-psychologist.html
-
 **Christopher Nolan’s Trojan Horse**\
 `The big trick of his “Odyssey” is smuggling the core of Judeo-Christian ethics into an ancient Greek epic.`\
 https://www.nytimes.com/2026/08/02/opinion/christopher-nolan-odyssey-elon-musk.html
@@ -197,4 +193,8 @@ https://www.nytimes.com/2026/08/02/world/europe/europe-migrants-ceuta.html
 **A ‘Death of a Salesman,’ Edged in Darkness**\
 `Every Broadway production of “Death of a Salesman” has its distinguishing features. Willy Loman’s Chevrolet is a powerful character in the latest production.`\
 https://www.nytimes.com/2026/08/02/arts/death-of-a-salesman.html
+
+**The Allure and Peril of Riding an Alaskan Wave for Six Miles**\
+`The tidal bore that rockets up the Turnagain Arm south of Anchorage can carry a surfer for an hour; it can also kill. Now that the secret is out, how long will authorities allow surfers to catch the wave?`\
+https://www.nytimes.com/2026/08/02/us/bore-tide-surfing-alaska.html
 

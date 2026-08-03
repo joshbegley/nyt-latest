@@ -1,3 +1,7 @@
+**The Allure and Peril of Riding an Alaskan Wave for Six Miles**\
+`The tidal bore that rockets up the Turnagain Arm south of Anchorage can carry a surfer for an hour; it can also kill. Now that the secret is out, how long will authorities allow surfers to catch the wave?`\
+https://www.nytimes.com/2026/08/02/us/bore-tide-surfing-alaska.html
+
 **Self-Help Influencer Nicole LePera Faces Litigation**\
 `Millions look to Nicole LePera for advice on how to achieve contentment and maintain healthy relationships. But her own story is complicated.`\
 https://www.nytimes.com/2026/08/02/style/nicole-lepera-self-help-litigation-holistic-psychologist.html
