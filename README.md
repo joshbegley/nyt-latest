@@ -1,3 +1,7 @@
+**How Tom Holland and Zendaya Helped Draw Gen Z Crowds to ‘Spider-Man: Brand New Day’**\
+`The couple helped draw young audiences to “Spider-Man: Brand New Day” and “The Odyssey” on a historic Hollywood weekend.`\
+https://www.nytimes.com/2026/08/03/movies/zendaya-tom-holland-spiderman.html
+
 **Maps: Tracking the Wildfires in Europe**\
 `See maps of fire locations and smoke forecasts..`\
 https://www.nytimes.com/interactive/2026/08/03/weather/europe-wildfire-smoke-maps.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/08/03/technology/spacex-lockup-stock-market.html
 **Heavy Rain and Thunderstorms Expected Across the Northeast on Monday**\
 `Forecasters warned that intense rainfall could trigger flash flooding across the region, including in parts of New York City.`\
 https://www.nytimes.com/2026/08/03/weather/heavy-rain-and-thunderstorms-expected-across-the-northeast-on-monday.html
-
-**Ariana Grande se alejará de la vida pública al terminar su gira**\
-`Grande reducirá sus apariciones públicas después de que el Eternal Sunshine Tour concluya el próximo mes, dijo una portavoz de la cantante el domingo.`\
-https://www.nytimes.com/es/2026/08/03/espanol/ariana-grande.html
 
