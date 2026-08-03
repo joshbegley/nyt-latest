@@ -1,3 +1,19 @@
+**Five Fast Recipes that Sing of Summer**\
+`Starting with Ali Slagle’s pork tenderloin with corn, peaches and lime.`\
+https://www.nytimes.com/2026/08/02/dining/five-fast-recipes-that-sing-of-summer.html
+
+**New Alzheimer’s Test Is Cause for Hope and Caution**\
+`Readers respond to a Science Times article, “New Potential for Diagnosing Alzheimer’s Disease.” Also: The noise that data centers make.`\
+https://www.nytimes.com/2026/08/02/opinion/alzheimers-test.html
+
+**Keep on Truckin’**\
+`A family vacation takes an unexpected turn.`\
+https://www.nytimes.com/2026/08/02/briefing/family-road-trip.html
+
+**Self-Help Influencer Nicole LePera Faces Litigation**\
+`Millions look to Nicole LePera for advice on how to achieve contentment and maintain healthy relationships. But her own story is complicated.`\
+https://www.nytimes.com/2026/08/02/style/nicole-lepera-self-help-litigation-holistic-psychologist.html
+
 **After Most Migrants Leave Ceuta, Exhausted Holdouts Find Shelter on Beach**\
 `Most of the people who surged into Spain on Thursday have since returned to Morocco. A small minority are holed up on a seafront, tired, hungry and vowing to stay.`\
 https://www.nytimes.com/2026/08/02/world/europe/ceuta-spain-morocco-migrant-holdouts-beach.html
