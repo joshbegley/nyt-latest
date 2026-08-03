@@ -1,3 +1,7 @@
+**Immigrant Held at Delaney Detention Center Has Died, Officials Say**\
+`The mayor of Newark identified the dead man as Edwin Jovanny Lopez Cornejo. The New Jersey center has been the focus of intense scrutiny for its treatment of detainees.`\
+https://www.nytimes.com/2026/08/03/nyregion/ice-detention-center-death-delaney-hall-nj.html
+
 **Por qué EE. UU. está ayudando a fortalecer el yen japonés**\
 `El Tesoro de Estados Unidos se sumó a los esfuerzos de Tokio para frenar la caída del yen frente al dólar, lo que puso de relieve los riesgos que representa la turbulencia en los mercados japoneses.`\
 https://www.nytimes.com/es/2026/08/03/espanol/negocios/yen-japon.html
