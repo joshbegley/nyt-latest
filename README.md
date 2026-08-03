@@ -1,3 +1,7 @@
+**Inside the Democratic Socialists of America Summit**\
+`Our politics reporter Kellen Browning went to the Democratic Socialists of America’s national summit in Chicago to learn more about the group’s new platform.`\
+https://www.nytimes.com/video/us/politics/100000011064084/democratic-socialists-of-america.html
+
 **Wildfires Force 60,000 Evacuations in Spokane**\
 `Plus, two deaths are linked to cyclosporiasis. Here’s the latest at the end of Monday.`\
 https://www.nytimes.com/2026/08/03/briefing/spokane-cyclosporiasis-blanche.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/08/03/business/us-japan-yen-intervention.html
 **What Are Your Favorite Clothing Stores in the Big Apple?**\
 `Whether it’s a boutique that sells up-and-coming designers, a vintage store specializing in shirting or a jeans emporium, we want to hear from you.`\
 https://www.nytimes.com/2026/08/03/style/shopping-newyorkcity-favorite-clothing-stores.html
-
-**SpaceX’s Stock Lockup Is Expiring. Prepare for a Bumpy Ride.**\
-`On Thursday, employees and other insiders at Elon Musk’s rocket company will be released from their first stock “lockup” and can start selling some of their shares.`\
-https://www.nytimes.com/2026/08/03/technology/spacex-lockup-stock-market.html
 
