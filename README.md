@@ -1,3 +1,7 @@
+**Wildfires Force 60,000 Evacuations in Spokane**\
+`Plus, two deaths are linked to cyclosporiasis. Here’s the latest at the end of Monday.`\
+https://www.nytimes.com/2026/08/03/briefing/spokane-cyclosporiasis-blanche.html
+
 **How Tom Holland and Zendaya Helped Draw Gen Z Crowds to ‘Spider-Man: Brand New Day’**\
 `The couple helped draw young audiences to “Spider-Man: Brand New Day” and “The Odyssey” on a historic Hollywood weekend.`\
 https://www.nytimes.com/2026/08/03/movies/zendaya-tom-holland-spiderman.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/08/03/style/shopping-newyorkcity-favorite-clothing-
 **SpaceX’s Stock Lockup Is Expiring. Prepare for a Bumpy Ride.**\
 `On Thursday, employees and other insiders at Elon Musk’s rocket company will be released from their first stock “lockup” and can start selling some of their shares.`\
 https://www.nytimes.com/2026/08/03/technology/spacex-lockup-stock-market.html
-
-**Heavy Rain and Thunderstorms Expected Across the Northeast on Monday**\
-`Forecasters warned that intense rainfall could trigger flash flooding across the region, including in parts of New York City.`\
-https://www.nytimes.com/2026/08/03/weather/heavy-rain-and-thunderstorms-expected-across-the-northeast-on-monday.html
 
