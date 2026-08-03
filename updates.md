@@ -1,3 +1,23 @@
+**¿Qué es la psicosis postparto?**\
+`Esta afección poco común puede causar alucinaciones y pensamientos delirantes en las personas embarazadas o que acaban de dar a luz.`\
+https://www.nytimes.com/es/2026/08/02/espanol/psicosis-postparto.html
+
+**This Is What My Father’s Assassination Taught Me About the War in Iran**\
+`After a lifetime of observing Iran’s revolutionary generation, I know that expecting meekness or diplomatic finesse from it is a dangerous illusion.`\
+https://www.nytimes.com/2026/08/02/opinion/iran-revolution-father-murder-boroujerdi-grimm.html
+
+**The ‘Civil War’ Is a Lie. Let’s Call It the ‘Slaveholders’ Rebellion’ Again.**\
+`To face our history, we must be honest about it.`\
+https://www.nytimes.com/2026/08/02/opinion/civil-war-slaveholders-rebellion-slavery.html
+
+**Trump Says He Canceled Strikes on Iran, Claiming Progress on Outlines of a Deal**\
+`President Trump has repeatedly threatened to escalate the war with Iran, only to abruptly back down. Saudi Arabia said its leader had urged Mr. Trump not to renew attacks.`\
+https://www.nytimes.com/2026/08/02/world/middleeast/trump-iran-cancels-attack-deal.html
+
+**How China Keeps Tabs on Foreigners**\
+`An unsecured police dashboard was a rare window into how the authorities track foreigners by collecting and aggregating vast amounts of private data.`\
+https://www.nytimes.com/2026/08/02/world/asia/china-surveillance-foreigners-database.html
+
 **Ohio Senator Calls Former Son-in-Law Accused of Abuse Unfit for Office**\
 `Senator Bernie Moreno, Republican of Ohio, broke his silence about allegations of domestic abuse his daughter has made against Representative Max Miller.`\
 https://www.nytimes.com/2026/08/02/us/elections/max-miller-ohio-republican-moreno-election.html
