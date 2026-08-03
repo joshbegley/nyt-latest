@@ -1,3 +1,55 @@
+**In Ceuta, Far-Right Leaders Call on Spain to Expel Migrants**\
+`Far-right politicians and activists are flocking to the Spanish territory on the northern coast of Africa, fueling tensions there days after thousands of migrants entered the exclave.`\
+https://www.nytimes.com/2026/08/02/world/europe/spain-ceuta-far-right.html
+
+**The Surreal, Sublime Worlds of Szilveszter Makó**\
+`Belief is hard to capture. It’s interior, personal. It’s a challenge to translate the ineffable into words or photos — but the Hungarian photographer does it anyway.`\
+https://www.nytimes.com/2026/08/02/briefing/the-surreal-sublime-worlds-of-szilveszter-mako.html
+
+**‘Comradely’ Talks and a ‘Deer Leader’ Mascot: Scenes From the D.S.A. Summit**\
+`At a national meeting of the Democratic Socialists of America, nervous energy and a sprawling tableau of sometimes-competing interests were on display.`\
+https://www.nytimes.com/2026/08/02/us/politics/democratic-socialists-america-convention.html
+
+**Corrections: Aug. 2, 2026**\
+`Corrections that appeared in print on Sunday, Aug. 2, 2026.`\
+https://www.nytimes.com/2026/08/02/pageoneplus/corrections-aug-2-2026.html
+
+**Nanit and Other Baby-Tracking Start-Ups Eye Collecting Even More Data**\
+`Nanit and other start-ups want to track your children through the night — and soon, for much longer than that.`\
+https://www.nytimes.com/2026/08/02/business/smart-baby-monitors-nanit-owlet.html
+
+**13-Year-Olds Have Problems at Work, Too**\
+`What to do when the boys at the pool aren’t pulling their weight.`\
+https://www.nytimes.com/2026/08/02/business/pool-problems.html
+
+**Five Big Moments in Michigan’s Democratic Senate Primary**\
+`Divisions over Israel and high-profile endorsements have shaped the closely-watched race between a progressive former public health official and a more moderate member of Congress.`\
+https://www.nytimes.com/2026/08/02/us/politics/five-big-moments-michigan-democratic-senate-primary.html
+
+**Una charla con Zohran Mamdani, alcalde de Nueva York**\
+`Lulu Garcia-Navarro se sentó a conversar con el alcalde de Nueva York.`\
+https://www.nytimes.com/es/2026/08/02/espanol/estados-unidos/zohran-mamdani-alcalde-nueva-york-entrevista.html
+
+**Trump, Paul Weiss and the Capitulation of Big Law: 5 Takeaways**\
+`The law firm Paul Weiss led the legal resistance against President Trump. Then it led a sudden retreat across the legal industry. A Times investigation examined how it caved to White House pressure.`\
+https://www.nytimes.com/2026/08/02/us/politics/trump-paul-weiss-takeaways.html
+
+**Morgan Freeman Interview: On “Lioness” and His Iconic Voice**\
+`The 89-year-old actor returns for the third season of “Lioness,” and he still can’t understand the fuss over his voice.`\
+https://www.nytimes.com/2026/08/02/arts/television/morgan-freeman-interview-lioness.html
+
+**La Guaira Is Unrecognizable After Venezuela’s Deadly Earthquakes**\
+`More than a month after the earthquakes, the coastal region of La Guaira — once Venezuela’s main gateway — is completely unrecognizable.`\
+https://www.nytimes.com/2026/08/02/world/americas/venezuela-earthquakes-la-guaira.html
+
+**Is Chess a Form of Art?**\
+`Our art critic Deborah Solomon was one of 50 players to go up against a chess grandmaster for Marcel Duchamp’s 139th birthday celebration at MoMA, exploring the game as an art form.`\
+https://www.nytimes.com/video/arts/100000011045309/is-chess-a-form-of-art.html
+
+**More Young College Graduates Are Living At Home. Is That a Bad Thing?**\
+`More young adults are living with their parents. The development suggests that they face a weak job market, but also that fewer face stigma in returning to the roost.`\
+https://www.nytimes.com/2026/08/02/business/college-graduates-living-at-home.html
+
 **Mitch McConnell, Still Hospitalized, Misses Signature Kentucky Political Picnic**\
 `Senator Mitch McConnell’s ongoing hospitalization meant he missed his final chance to attend the signature western Kentucky event while in office.`\
 https://www.nytimes.com/2026/08/01/us/mitch-mcconnell-kentucky-republicans.html
