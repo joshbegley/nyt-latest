@@ -1,3 +1,7 @@
+**Inside the Democratic Socialists of America Summit**\
+`Our politics reporter Kellen Browning went to the Democratic Socialists of America’s national summit in Chicago to learn more about the group’s new platform.`\
+https://www.nytimes.com/video/us/politics/100000011064084/democratic-socialists-of-america.html
+
 **Wildfires Force 60,000 Evacuations in Spokane**\
 `Plus, two deaths are linked to cyclosporiasis. Here’s the latest at the end of Monday.`\
 https://www.nytimes.com/2026/08/03/briefing/spokane-cyclosporiasis-blanche.html
