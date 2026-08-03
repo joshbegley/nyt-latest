@@ -1,3 +1,7 @@
+**The Allure and Peril of Riding an Alaskan Wave for Six Miles**\
+`The tidal bore that rockets up the Turnagain Arm south of Anchorage can carry a surfer for an hour; it can also kill. Now that the secret is out, how long will authorities allow surfers to catch the wave?`\
+https://www.nytimes.com/2026/08/02/us/bore-tide-surfing-alaska.html
+
 **After Most Migrants Leave Ceuta, Exhausted Holdouts Find Shelter on Beach**\
 `Most of the people who surged into Spain on Thursday have since returned to Morocco. A small minority are holed up on a seafront, tired, hungry and vowing to stay.`\
 https://www.nytimes.com/2026/08/02/world/europe/ceuta-spain-morocco-migrant-holdouts-beach.html
