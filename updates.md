@@ -1,3 +1,55 @@
+**Mitch McConnell, Still Hospitalized, Misses Signature Kentucky Political Picnic**\
+`Senator Mitch McConnell’s ongoing hospitalization meant he missed his final chance to attend the signature western Kentucky event while in office.`\
+https://www.nytimes.com/2026/08/01/us/mitch-mcconnell-kentucky-republicans.html
+
+**Going for a Spin**\
+`Ralph Sharaga and Doug Peterson want to know: What would it take to get you into this puzzle today?`\
+https://www.nytimes.com/2026/08/01/crosswords/daily-puzzle-2026-08-02.html
+
+**Improvised Bomb Kills 3 at an Upscale Moscow Restaurant**\
+`Among the victims of the explosion, which also injured 21 people, were a security guard and a woman who the authorities say had arrived with the suspicious package.`\
+https://www.nytimes.com/2026/08/01/world/europe/deadly-bombing-moscow-restaurant.html
+
+**Spain Installs Floating Barrier in Ceuta**\
+`Spain installed a floating barrier near a seawall between Morocco and Ceuta on Saturday, after a surge of migrants crossed into the Spanish territory on Thursday. Many of the migrants were young men looking for work.`\
+https://www.nytimes.com/video/world/europe/100000011067852/spain-ceuta-migrants-floating-barrier.html
+
+**Vincent Pastore, Actor on ‘The Sopranos,’ Dies at 80**\
+`He played Salvatore Bonpensiero, a mobster’s foot soldier turned F.B.I. informant known to his friends as Big Pussy, on the celebrated HBO series.`\
+https://www.nytimes.com/2026/08/01/arts/television/vincent-pastore-dead.html
+
+**Trump Calls for $1.8 Billion Fund Over Blanche Attorney General Fight**\
+`The president vowed to push for the payout fund if Senate Republicans fail to confirm Todd Blanche as attorney general, reigniting a dispute over the settlement.`\
+https://www.nytimes.com/2026/08/01/us/politics/trump-todd-blanche-weaponization-payouts.html
+
+**Israel Says It Killed Several Hezbollah Members on Key Lebanon Hilltop**\
+`The confrontation, over a strategic ridge in southern Lebanon, challenged a fragile cease-fire between Israel and the Iran-backed militant group.`\
+https://www.nytimes.com/2026/08/01/world/middleeast/israel-hezbollah-lebanon-killing.html
+
+**Japan’s Rescuers Battle Heat While Searching for Earthquake Survivors**\
+`Rescue workers looked for survivors and residents cleared debris amid sweltering heat after Japan’s magnitude-6.8 earthquake on Tuesday.`\
+https://www.nytimes.com/video/world/asia/100000011067706/japan-earthquake-rescue-heat-survivors.html
+
+**Timeline of Trump’s Lincoln Memorial Reflecting Pool Renovation Saga**\
+`President Trump vowed to restore the Reflecting Pool, a defining feature of Washington. Months later, it is empty and closed to the public.`\
+https://www.nytimes.com/2026/08/01/us/reflecting-pool-trump-timeline.html
+
+**Trump’s Polling Numbers Hit a New Low. Don’t Expect Him to Change Course.**\
+`Barely a third of Americans approve of Mr. Trump’s handling of the job, putting him at historic depths for a second-term president at this stage of his tenure.`\
+https://www.nytimes.com/2026/08/01/us/politics/trump-polls-approval-rating.html
+
+**In Dropping Reflecting Pool Case, Pirro Draws Trump’s Wrath**\
+`Jeanine Pirro, the U.S. attorney in Washington, blamed shoddy construction, contradicting President Trump’s pet theory. Mr. Trump said he disagreed “100%” with her.`\
+https://www.nytimes.com/2026/08/01/us/politics/jeanine-pirro-trump-reflecting-pool.html
+
+**Renowned Mountaineer Dies After Pakistan Avalanche**\
+`The British-Nepali mountaineer Nirmal Purja died after an avalanche in Pakistan, his company confirmed in a social media post.`\
+https://www.nytimes.com/video/obituaries/100000011067704/nirmal-purja-dead-pakistan-avalanche.html
+
+**EE. UU. sufre hackeos al suministro de agua en varios estados. La evidencia apunta a Irán**\
+`Aunque no hay indicios de que ningún suministro haya sido alterado o contaminado, las autoridades de al menos siete estados se mantienen en alerta máxima.`\
+https://www.nytimes.com/es/2026/08/01/espanol/estados-unidos/ciberataque-iran-agua.html
+
 **A ‘Death of a Salesman,’ Edged in Darkness**\
 `Every Broadway production of “Death of a Salesman” has its distinguishing features. Willy Loman’s Chevrolet is a powerful character in the latest production.`\
 https://www.nytimes.com/2026/08/02/arts/death-of-a-salesman.html
