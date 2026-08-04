@@ -1,3 +1,19 @@
+**I’m Begging You: Never Write With A.I.**\
+`It’s bad for your brain and worse for democracy.`\
+https://www.nytimes.com/2026/08/04/opinion/artificial-intelligence-ai-writing.html
+
+**South Korea Wants to Raise Its Birthrate but Doesn’t Have Enough NICU Doctors**\
+`South Korea, which has one of the world’s lowest fertility rates, is in the throes of a breakdown in emergency care. It is particularly acute for at-risk newborns.`\
+https://www.nytimes.com/2026/08/04/world/asia/south-korea-birth-rate-nicu-crisis.html
+
+**Inside a Screening of ‘Tony,’ Anthony Bourdain’s Biopic, for Restaurant Workers Only**\
+`Servers, hosts, bartenders, line cooks, dishwashers and chefs were treated to a night at the movies to watch the new film “Tony.”`\
+https://www.nytimes.com/2026/08/04/style/tony-movie-anthony-bourdain-restaurant-workers.html
+
+**Appeals Court Says E.P.A. Cannot Block Billions in Climate Grants**\
+`The funds have been frozen since early in President Trump’s second term.`\
+https://www.nytimes.com/2026/08/04/climate/epa-climate-grants-appeals-court.html
+
 **When A.I. Goes Rogue**\
 `It was the stuff of science fiction — until recently.`\
 https://www.nytimes.com/2026/08/04/world/rogue-ai-agents-cybersecurity-uber.html
@@ -42,7 +58,7 @@ https://www.nytimes.com/2026/08/04/health/skin-substitutes-medicare-fraud.html
 `Veterinary students at the University of Georgia learned to care for honeybees, which are vital pollinators for U.S. agriculture. Between 2024 and 2025 more than half of the managed colonies in the U.S. have been lost.`\
 https://www.nytimes.com/video/science/100000011072407/honeybee-colony-vet-care-pollinator.html
 
-**Stocks Hit a Record as Worries About Middle East and A.I. Ease**\
+**S&P 500 Hits Record High as Stock Market Worries About Iran and AI Ease**\
 `The S&P 500 rose 1.8 percent, pushing past its previous peak at the start of June and capping a big turnaround from a recent sell off in technology stocks.`\
 https://www.nytimes.com/2026/08/04/business/stock-market-record.html
 
@@ -169,22 +185,6 @@ https://www.nytimes.com/interactive/2026/08/04/us/elections/results-missouri-pri
 **Residents Return to Spokane After Devastating Wildfires**\
 `The residents of Spokane returned to what remained of their properties after multiple wildfires tore through the country. The authorities on Monday arrested a person they suspected of starting one of the fires.`\
 https://www.nytimes.com/video/world/americas/100000011071621/spokane-wildfires-residents-return.html
-
-**Washington Ninth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Washington primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-washington-us-house-9-primary.html
-
-**Washington Eighth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Washington primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-washington-us-house-8-primary.html
-
-**Washington Seventh Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Washington primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-washington-us-house-7-primary.html
-
-**Washington Sixth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Washington primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-washington-us-house-6-primary.html
 
 **Primary Elections Live Updates: Michigan’s Senate Battle Divides Democrats**\
 `Dr. Abdul El-Sayed, a progressive, faces Representative Haley Stevens, a moderate, in the Democratic primary for Senate. Kansas, Missouri, Virginia and Washington are also voting today.`\
