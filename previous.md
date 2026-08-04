@@ -1,3 +1,7 @@
+**Basura espacial**\
+`La carrera por controlar los cielos está provocando que una cantidad récord de escombros caiga a la Tierra.`\
+https://www.nytimes.com/es/2026/08/04/espanol/mundo/basura-espacial.html
+
 **Will Michigan Rewrite the Rules of Democratic Politics?**\
 `The state’s primary on Tuesday is a critical front in the conflict between Democrats’ progressive and moderate flanks.`\
 https://www.nytimes.com/2026/08/04/podcasts/the-daily/will-michigan-rewrite-the-rules-of-democratic-politics.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/04/books/review/all-that-is-left-of-life-roberta
 **What’s the Best Way to Treat Heartburn?**\
 `Tums, Pepcid, Gaviscon — over-the-counter medications can reduce symptoms in different ways. Here’s how to find the ideal one for you.`\
 https://www.nytimes.com/2026/08/04/well/eat/heartburn-otc-treatement-options.html
-
-**‘Hoodwill’ vs. Goodwill**\
-`A conflict between street vendors calling themselves Hoodwill and a Brooklyn Goodwill appears to question the intentions behind selling donated wares.`\
-https://www.nytimes.com/2026/08/04/style/hoodwill-vs-goodwill.html
 

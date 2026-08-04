@@ -1,3 +1,7 @@
+**Trump’s Top Lawyer**\
+`We look into the issues surrounding Todd Blanche’s confirmation.`\
+https://www.nytimes.com/2026/08/04/briefing/donald-trump-todd-blanche-attorney-general.html
+
 **Basura espacial**\
 `La carrera por controlar los cielos está provocando que una cantidad récord de escombros caiga a la Tierra.`\
 https://www.nytimes.com/es/2026/08/04/espanol/mundo/basura-espacial.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/04/world/europe/eu-passport-control-chaos.html
 **Book Review: ‘All That Is Left of Life,’ by Roberta Recchia**\
 `The Italian best seller “All That Is Left of Life” is a cinematic family drama set in the summer of 1980.`\
 https://www.nytimes.com/2026/08/04/books/review/all-that-is-left-of-life-roberta-recchia.html
-
-**What’s the Best Way to Treat Heartburn?**\
-`Tums, Pepcid, Gaviscon — over-the-counter medications can reduce symptoms in different ways. Here’s how to find the ideal one for you.`\
-https://www.nytimes.com/2026/08/04/well/eat/heartburn-otc-treatement-options.html
 

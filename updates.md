@@ -1,3 +1,7 @@
+**Basura espacial**\
+`La carrera por controlar los cielos está provocando que una cantidad récord de escombros caiga a la Tierra.`\
+https://www.nytimes.com/es/2026/08/04/espanol/mundo/basura-espacial.html
+
 **Will Michigan Rewrite the Rules of Democratic Politics?**\
 `The state’s primary on Tuesday is a critical front in the conflict between Democrats’ progressive and moderate flanks.`\
 https://www.nytimes.com/2026/08/04/podcasts/the-daily/will-michigan-rewrite-the-rules-of-democratic-politics.html
