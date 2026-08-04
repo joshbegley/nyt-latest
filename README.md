@@ -1,3 +1,11 @@
+**C.D.C. Expands Cyclospora Outbreak to More States**\
+`Arkansas and Missouri are now among the states linked to the outbreak associated with iceberg lettuce.`\
+https://www.nytimes.com/2026/08/04/well/eat/cdc-cyclospora-outbreak-15-states.html
+
+**Maryland Lawmakers Back Amendment Giving Democrats 2028 Advantage**\
+`The measure, which will go before voters in November, would make it easier for Democrats to redraw congressional maps and possibly pick up one seat.`\
+https://www.nytimes.com/2026/08/04/us/maryland-democrats-pass-2028-redistricting-amendement.html
+
 **White House Readies A.I. Framework to Review Security Risks**\
 `The voluntary review process will cover closed-source artificial intelligence models, but exclude those that publish the underlying code.`\
 https://www.nytimes.com/2026/08/04/technology/white-house-ai-framework.html
@@ -169,14 +177,6 @@ https://www.nytimes.com/2026/08/04/nyregion/nyc-parking-stickers.html
 **Un académico estrella de Cambridge levanta cada vez más dudas sobre su vida y carrera**\
 `Un hombre enmascarado armado con un cuchillo. Una cabeza de cerdo en la puerta de sus padres. Treinta maratones en 35 días. Jason Arday dice haber pasado por todo eso. No todos le creen.`\
 https://www.nytimes.com/es/2026/08/04/espanol/cultura/cambridge-plagio-racismo.html
-
-**‘Disruption’ Review: John David Washington as Just Another Tech Bro**\
-`In this Off Broadway play, the actor has the swagger to portray an entrepreneur pitching an A.I. start-up to his friends. Still, the drama falls flat.`\
-https://www.nytimes.com/2026/08/04/theater/disruption-review-john-david-washington.html
-
-**The 25 Objects That Explain America**\
-`Want to understand this country? Look at our stuff.`\
-https://www.nytimes.com/interactive/2026/08/04/opinion/museum-of-america.html
 
 **Primary Elections Live Updates: Michigan’s Senate Battle Divides Democrats**\
 `Dr. Abdul El-Sayed, a progressive, faces Representative Haley Stevens, a moderate, in the Democratic primary for Senate. Kansas, Missouri, Virginia and Washington are also voting today.`\
