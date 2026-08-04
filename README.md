@@ -1,3 +1,7 @@
+**¿Cuál es la mejor manera de tratar la acidez estomacal?**\
+`Este malestar común puede ser tratado de manera efectiva con medicamentos de venta libre. Aquí te explicamos cómo encontrar el ideal para ti.`\
+https://www.nytimes.com/es/2026/08/04/espanol/acidez-estomacal-medicamentos-tratamientos.html
+
 **A Narrow Vancouver House Leans Into Minimalism**\
 `A couple learned all of their slender house’s quirks, and then renovated them away.`\
 https://www.nytimes.com/2026/08/04/realestate/a-narrow-vancouver-house-leans-into-minimalism.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/04/nyregion/ebike-electric-scooter-regulations-n
 **What to Know About Legal and Illegal E-Bikes in New York**\
 `After a series of fatal crashes, often involving illegal devices, officials in New York City are weighing new rules for electric vehicles.`\
 https://www.nytimes.com/2026/08/04/nyregion/ebike-electric-scooters-nyc-illegal-rules.html
-
-**NYT Spelling Bee Answers for August 4, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/08/04/crosswords/spelling-bee-forum.html
 
