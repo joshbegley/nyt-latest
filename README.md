@@ -1,3 +1,7 @@
+**Shannon Taylor Wins Democratic Primary for Virginia House Race**\
+`The Richmond-area district was going to be one of the country’s most competitive in November, before a court threw out a Democrat-drawn redistricting map. Ms. Taylor faces Representative Rob Wittman in November.`\
+https://www.nytimes.com/2026/08/04/us/politics/taylor-knapp-virginia-primary-election.html
+
 **11 Spots for an NYC Staycation in August**\
 `With what’s left of summer, check out these 11 spots that can transport you, without going far.`\
 https://www.nytimes.com/interactive/2026/08/04/nyregion/nyc-staycation-summer.html
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/08/04/nyregion/immigrant-death-delaney-hall.html
 **Senate Committee Advances Blanche’s Nomination for Attorney General**\
 `The Senate Judiciary Committee voted on Tuesday to advance Todd Blanche’s nomination for attorney general after he reached an agreement with two Republican holdouts late Sunday.`\
 https://www.nytimes.com/video/us/politics/100000011072139/blanche-confirmation-attorney-general.html
-
-**Mexico Declares War on Stinky Seaweed**\
-`A changing climate is helping to fuel the growth of a gigantic blob of foul-smelling seaweed that has washed up in some coastal communities. Mexico is fighting back.`\
-https://www.nytimes.com/2026/08/04/climate/mexico-declares-war-sargassum-seaweed.html
 
 **Primary Elections Live Updates: Divisive Michigan Senate Battle Enters Final Hour**\
 `Dr. Abdul El-Sayed, a progressive, is facing Representative Haley Stevens, a moderate, in the Democratic primary for Senate. Polls are closed in Virginia. Kansas, Missouri and Washington are also voting today.`\
