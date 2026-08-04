@@ -1,3 +1,15 @@
+**The 50 Best Thriller Books of the 21st Century: A Printable List**\
+`Print this version to keep track of which thrillers you’ve read and those you’d like to read.`\
+https://www.nytimes.com/interactive/2026/books/best-thrillers-21st-century-printable.html
+
+**Former Police Official Is Accused of Helping Her Son Flee a Shooting**\
+`The official, Jennifer Lackard, served as a deputy police commissioner in Mount Vernon, N.Y., before her arrest on Tuesday at her home in the Bronx.`\
+https://www.nytimes.com/2026/08/04/nyregion/mount-vernon-nyc-police-arrest.html
+
+**Can Trump Wriggle Out One Last Time?**\
+`Iran. The midterms. Can Trump wriggle out one last time?`\
+https://www.nytimes.com/2026/08/04/opinion/trump-midterms-iran.html
+
 **Gillian Flynn's ‘Gone Girl’ Is the Best Thriller of the 21st Century. Here’s How It Gets Inside Your Head.**\
 `A.O. Scott dissects the first page of Gillian Flynn’s story of murderous marital dysfunction.`\
 https://www.nytimes.com/interactive/2026/books/gone-girl-book-thriller-21st-century.html

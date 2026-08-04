@@ -1,3 +1,11 @@
+**The 50 Best Thriller Books of the 21st Century: A Printable List**\
+`Print this version to keep track of which thrillers you’ve read and those you’d like to read.`\
+https://www.nytimes.com/interactive/2026/books/best-thrillers-21st-century-printable.html
+
+**Former Police Official Is Accused of Helping Her Son Flee a Shooting**\
+`The official, Jennifer Lackard, served as a deputy police commissioner in Mount Vernon, N.Y., before her arrest on Tuesday at her home in the Bronx.`\
+https://www.nytimes.com/2026/08/04/nyregion/mount-vernon-nyc-police-arrest.html
+
 **Gillian Flynn's ‘Gone Girl’ Is the Best Thriller of the 21st Century. Here’s How It Gets Inside Your Head.**\
 `A.O. Scott dissects the first page of Gillian Flynn’s story of murderous marital dysfunction.`\
 https://www.nytimes.com/interactive/2026/books/gone-girl-book-thriller-21st-century.html
@@ -11,7 +19,7 @@ https://www.nytimes.com/interactive/2026/books/best-thrillers-21st-century-reade
 https://www.nytimes.com/video/dining/100000011073378/chile-crisp.html
 
 **Can Trump Wriggle Out One Last Time?**\
-`Between Iran and the midterms, his decade of rebounds and comebacks might be over.`\
+`Iran. The midterms. Can Trump wriggle out one last time?`\
 https://www.nytimes.com/2026/08/04/opinion/trump-midterms-iran.html
 
 **Freida McFadden, John Grisham and More Share Their Top Thrillers of the 21st Century**\
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/08/04/upshot/progressive-left-michigan-wisconsin.ht
 **When Companies Retreat on Climate Change**\
 `Readers respond to a front-page article about how big businesses are deserting climate goals. Also: President Trump’s polls, and his unreality.`\
 https://www.nytimes.com/2026/08/04/opinion/companies-climate-change.html
-
-**What Makes a Store Great**\
-`Plus: Gap fragrance returns and a nearly $5,000 Ralph Lauren jacket that’s already sold out.`\
-https://www.nytimes.com/2026/08/04/style/stores-best-shopping-nyc.html
-
-**Strait of Hormuz Deal With Iran Possible Soon, Bessent Says**\
-`Qatar said that draft language of a deal was being circulated, while Secretary of State Marco Rubio expressed optimism about the talks but added that nothing was final yet.`\
-https://www.nytimes.com/2026/08/04/world/middleeast/strait-of-hormuz-deal-progress.html
 
 **Primary Elections Live Updates: Michigan’s Senate Battle Divides Democrats**\
 `Dr. Abdul El-Sayed, a progressive, faces Representative Haley Stevens, a moderate, in the Democratic primary for Senate. Kansas, Missouri, Virginia and Washington are also voting today.`\
