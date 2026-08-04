@@ -1,3 +1,7 @@
+**After Midtown Building Buckles, Violations Are Found at Many Other Sites**\
+`New York City officials conducted inspections at 180 construction sites. None of the violations posed an immediate danger to the public, they said.`\
+https://www.nytimes.com/2026/08/04/nyregion/nyc-buildings-violations-conversions.html
+
 **The 50 Best Thriller Books of the 21st Century: A Printable List**\
 `Print this version to keep track of which thrillers you’ve read and those you’d like to read.`\
 https://www.nytimes.com/interactive/2026/books/best-thrillers-21st-century-printable.html

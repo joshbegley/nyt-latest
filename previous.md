@@ -127,7 +127,7 @@ https://www.nytimes.com/2026/08/04/climate/mexico-declares-war-sargassum-seaweed
 https://www.nytimes.com/2026/08/04/us/politics/trump-helipad-white-house-construction.html
 
 **After Midtown Building Buckles, Violations Are Found at Many Other Sites**\
-`After two steel beams buckled at a Manhattan high-rise last month, city officials conducted inspections at dozens of construction sites across the city. None of the violations posed a danger to the public, the city said.`\
+`New York City officials conducted inspections at 180 construction sites. None of the violations posed an immediate danger to the public, they said.`\
 https://www.nytimes.com/2026/08/04/nyregion/nyc-buildings-violations-conversions.html
 
 **Max Miller Shrugs Off Trump’s Warning and Pushes Ahead in Ohio**\

@@ -1,3 +1,7 @@
+**Missouri Says Voters Cannot Decide on Redrawn Congressional Districts**\
+`Opponents of the new map, which was redrawn to benefit Republicans, had gathered signatures seeking a statewide vote. The issue could now move to the courts.`\
+https://www.nytimes.com/2026/08/04/us/missouri-redistricting-referendum-result.html
+
 **The 50 Best Thriller Books of the 21st Century: A Printable List**\
 `Print this version to keep track of which thrillers you’ve read and those you’d like to read.`\
 https://www.nytimes.com/interactive/2026/books/best-thrillers-21st-century-printable.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/08/04/world/europe/runaway-car-jaguar-uk.html
 **How Well Is the Progressive Left Actually Doing?**\
 `Its wins have been largely confined to highly educated and heavily Democratic parts of urban America. But two races could change that.`\
 https://www.nytimes.com/2026/08/04/upshot/progressive-left-michigan-wisconsin.html
-
-**When Companies Retreat on Climate Change**\
-`Readers respond to a front-page article about how big businesses are deserting climate goals. Also: President Trump’s polls, and his unreality.`\
-https://www.nytimes.com/2026/08/04/opinion/companies-climate-change.html
 
 **Primary Elections Live Updates: Michigan’s Senate Battle Divides Democrats**\
 `Dr. Abdul El-Sayed, a progressive, faces Representative Haley Stevens, a moderate, in the Democratic primary for Senate. Kansas, Missouri, Virginia and Washington are also voting today.`\
