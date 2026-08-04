@@ -1,3 +1,7 @@
+**Medicaid Urges States to Increase Autism Therapy Oversight**\
+`The program’s spending on the therapy has quintupled since 2021, far outstripping the growth in diagnoses and raising concerns about overprescribing and fraud.`\
+https://www.nytimes.com/2026/08/04/health/autism-therapy-medicaid.html
+
 **Missouri Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Missouri primary elections.`\
 https://www.nytimes.com/interactive/2026/08/04/us/elections/results-missouri-primary.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/08/04/us/elections/results-michigan-us-
 **Michigan 13th Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Michigan primary election.`\
 https://www.nytimes.com/interactive/2026/08/04/us/elections/results-michigan-us-house-13-primary.html
-
-**Michigan 12th Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Michigan primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-michigan-us-house-12-primary.html
 
