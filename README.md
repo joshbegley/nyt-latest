@@ -1,3 +1,7 @@
+**Family Demands Answers About Death of Immigrant Held at Detention Center**\
+`Edwin Lopez-Cornejo’s relatives said that federal officials who oversee Delaney Hall in Newark had refused to provide his medical records.`\
+https://www.nytimes.com/2026/08/04/nyregion/immigrant-death-delaney-hall.html
+
 **Senate Committee Advances Blanche’s Nomination for Attorney General**\
 `The Senate Judiciary Committee voted on Tuesday to advance Todd Blanche’s nomination for attorney general after he reached an agreement with two Republican holdouts late Sunday.`\
 https://www.nytimes.com/video/us/politics/100000011072139/blanche-confirmation-attorney-general.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/interactive/2026/08/04/us/elections/results-virginia-us-
 **Virginia 11th Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Virginia primary election.`\
 https://www.nytimes.com/interactive/2026/08/04/us/elections/results-virginia-us-house-11-primary.html
-
-**Virginia 10th Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Virginia primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-virginia-us-house-10-primary.html
 
 **Primary Elections Live Updates: Michigan’s Senate Battle Leads a Five-State Slate**\
 `Dr. Abdul El-Sayed, a progressive, faces Representative Haley Stevens, a moderate, in the Democratic primary for Senate. Kansas, Missouri, Virginia and Washington are also voting today.`\
