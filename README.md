@@ -1,3 +1,7 @@
+**NYT Crossword Answers for August 4, 2026**\
+`Vasu Seralathan marries humor and culture.`\
+https://www.nytimes.com/2026/08/03/crosswords/daily-puzzle-2026-08-04.html
+
 **Drone Explodes on Russian Beach, Killing 7, Officials Say**\
 `It was unclear what the drone was targeting and why it crashed in the crowded resort spot, but it has been a deadly summer for civilians caught up in the Russian-Ukrainian war.`\
 https://www.nytimes.com/2026/08/03/world/europe/drone-russian-beach-explosion.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/08/03/climate/trump-bears-ears-monument-recreation.
 **F.B.I. Agent Is Accused of Stealing Cryptocurrency**\
 `The agent confessed to making unauthorized withdrawals from a criminal target overseas, according to court papers.`\
 https://www.nytimes.com/2026/08/03/us/politics/fbi-agent-cryptocurrency.html
-
-**Two Deaths Linked to Cyclospora Outbreak in Michigan**\
-`The patients had “significant underlying health conditions,” health officials said.`\
-https://www.nytimes.com/2026/08/03/well/eat/cyclospora-deaths-michigan.html
 
