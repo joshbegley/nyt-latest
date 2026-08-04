@@ -1,3 +1,7 @@
+**Man Arrested on Suspicion of Arson in Spokane Wildfire**\
+`Aaron Farinacci, 37, was arrested after a witness reported seeing him kneeling near the ignition site of a major fire in Washington State, officials said.`\
+https://www.nytimes.com/2026/08/04/us/spokane-wildfires-arson-arrest.html
+
 **Late Night Reacts to Trump’s Latest Iran Deal Comments**\
 `“I’m not saying that they’re out of ideas, but the best option they came up with was pinning the war on Dr. Fauci,” Jimmy Fallon said.`\
 https://www.nytimes.com/2026/08/04/arts/television/late-night-trump-iran-deal.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/08/03/espanol/love-bombing.html
 **I Helped Run Lululemon. The A.I. Revolution Is a Hot Mess.**\
 `The A.I. revolution is stalling because companies don’t want to admit that integrating the technology is expensive and slow and requires human effort.`\
 https://www.nytimes.com/2026/08/03/opinion/ai-hype-tech-layoffs.html
-
-**Así es como China vigila a los extranjeros**\
-`Un panel de control policial sin protecciones ofreció un inusual vistazo al modo en que las autoridades chinas rastrean a los extranjeros al recopilar y agregar grandes cantidades de datos privados.`\
-https://www.nytimes.com/es/2026/08/03/espanol/mundo/china-vigilancia-extranjeros.html
 
