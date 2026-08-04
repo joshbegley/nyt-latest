@@ -1,4 +1,4 @@
-**An Emerging Deal to Reopen the Strait of Hormuz Would Come at a Cost for Trump**\
+**An Emerging Deal Between Iran and Oman to Reopen Hormuz Would Come at a Cost for Trump**\
 `The deal would address President Trump’s most urgent political problem by allowing ships to move again. But it would give Iran strategic leverage it did not have before the war.`\
 https://www.nytimes.com/2026/08/03/us/politics/strait-of-hormuz-possible-reopening-deal.html
 
