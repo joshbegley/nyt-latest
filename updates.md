@@ -1,3 +1,27 @@
+**I’m Begging You: Never Write With A.I.**\
+`It’s bad for your brain and worse for democracy.`\
+https://www.nytimes.com/2026/08/04/opinion/artificial-intelligence-ai-writing.html
+
+**South Korea Wants to Raise Its Birthrate but Doesn’t Have Enough NICU Doctors**\
+`South Korea, which has one of the world’s lowest fertility rates, is in the throes of a breakdown in emergency care. It is particularly acute for at-risk newborns.`\
+https://www.nytimes.com/2026/08/04/world/asia/south-korea-birth-rate-nicu-crisis.html
+
+**Inside a Screening of ‘Tony,’ Anthony Bourdain’s Biopic, for Restaurant Workers Only**\
+`Servers, hosts, bartenders, line cooks, dishwashers and chefs were treated to a night at the movies to watch the new film “Tony.”`\
+https://www.nytimes.com/2026/08/04/style/tony-movie-anthony-bourdain-restaurant-workers.html
+
+**Appeals Court Says E.P.A. Cannot Block Billions in Climate Grants**\
+`The funds have been frozen since early in President Trump’s second term.`\
+https://www.nytimes.com/2026/08/04/climate/epa-climate-grants-appeals-court.html
+
+**When A.I. Goes Rogue**\
+`It was the stuff of science fiction — until recently.`\
+https://www.nytimes.com/2026/08/04/world/rogue-ai-agents-cybersecurity-uber.html
+
+**S&P 500 Hits Record High as Stock Market Worries About Iran and AI Ease**\
+`The S&P 500 rose 1.8 percent, pushing past its previous peak at the start of June and capping a big turnaround from a recent sell off in technology stocks.`\
+https://www.nytimes.com/2026/08/04/business/stock-market-record.html
+
 **Judge Sets Paramount-Warner Bros. Merger Trial for March**\
 `Paramount, which struck a $111 billion deal to acquire Warner Bros., had requested a November trial for an antitrust lawsuit brought by state attorneys general.`\
 https://www.nytimes.com/2026/08/04/business/media/paramount-warner-bros-trial-march.html
