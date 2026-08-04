@@ -1,3 +1,15 @@
+**C.D.C. Expands Cyclospora Outbreak to More States**\
+`Arkansas and Missouri are now among the states linked to the outbreak associated with iceberg lettuce.`\
+https://www.nytimes.com/2026/08/04/well/eat/cdc-cyclospora-outbreak-15-states.html
+
+**Maryland Lawmakers Back Amendment Giving Democrats 2028 Advantage**\
+`The measure, which will go before voters in November, would make it easier for Democrats to redraw congressional maps and possibly pick up one seat.`\
+https://www.nytimes.com/2026/08/04/us/maryland-democrats-pass-2028-redistricting-amendement.html
+
+**White House Readies A.I. Framework to Review Security Risks**\
+`The voluntary review process will cover closed-source artificial intelligence models, but exclude those that publish the underlying code.`\
+https://www.nytimes.com/2026/08/04/technology/white-house-ai-framework.html
+
 **It’s Primary Night in Michigan and Four Other States**\
 `Plus, an arrest in the Spokane wildfires. Here’s the latest at the end of Tuesday.`\
 https://www.nytimes.com/2026/08/04/briefing/michigan-primary-spokane.html
