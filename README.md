@@ -1,3 +1,7 @@
+**Gianni Infantino’s Secret Plot**\
+`FIFA tried (and failed) to sell the soul of soccer`\
+https://www.nytimes.com/2026/08/04/podcasts/gianni-infantino-secret-plot-fifa.html
+
 **¿Cuál es la mejor manera de tratar la acidez estomacal?**\
 `Este malestar común puede ser tratado de manera efectiva con medicamentos de venta libre. Aquí te explicamos cómo encontrar el ideal para ti.`\
 https://www.nytimes.com/es/2026/08/04/espanol/acidez-estomacal-medicamentos-tratamientos.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/08/04/espanol/estados-unidos/trump-elecciones-ap
 **After Deadly E-Bike Crashes, N.Y. Lawmakers Consider Crackdown**\
 `The City Council on Tuesday is expected to present 17 proposals to make electric bikes and scooters safer for riders and pedestrians.`\
 https://www.nytimes.com/2026/08/04/nyregion/ebike-electric-scooter-regulations-nyc.html
-
-**What to Know About Legal and Illegal E-Bikes in New York**\
-`After a series of fatal crashes, often involving illegal devices, officials in New York City are weighing new rules for electric vehicles.`\
-https://www.nytimes.com/2026/08/04/nyregion/ebike-electric-scooters-nyc-illegal-rules.html
 
