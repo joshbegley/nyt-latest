@@ -1,3 +1,7 @@
+**White House Readies A.I. Framework to Review Security Risks**\
+`The voluntary review process will cover closed-source artificial intelligence models, but exclude those that publish the underlying code.`\
+https://www.nytimes.com/2026/08/04/technology/white-house-ai-framework.html
+
 **It’s Primary Night in Michigan and Four Other States**\
 `Plus, an arrest in the Spokane wildfires. Here’s the latest at the end of Tuesday.`\
 https://www.nytimes.com/2026/08/04/briefing/michigan-primary-spokane.html
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/08/04/theater/disruption-review-john-david-washingt
 **The 25 Objects That Explain America**\
 `Want to understand this country? Look at our stuff.`\
 https://www.nytimes.com/interactive/2026/08/04/opinion/museum-of-america.html
-
-**Lessons on the Way to 100**\
-`We want to hear from people who aspire to live long lives — maybe even to 100 or beyond — about how you hope to do it and, perhaps, how you have been inspired by others who have made it there.`\
-https://www.nytimes.com/2026/08/04/well/longevity-callout.html
 
 **Primary Elections Live Updates: Michigan’s Senate Battle Divides Democrats**\
 `Dr. Abdul El-Sayed, a progressive, faces Representative Haley Stevens, a moderate, in the Democratic primary for Senate. Kansas, Missouri, Virginia and Washington are also voting today.`\
