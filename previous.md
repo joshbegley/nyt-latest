@@ -1,3 +1,27 @@
+**Para Trump, siempre es 2020**\
+`El presidente de Estados Unidos insiste en reescribir gran parte de lo que ocurrió hace seis años, incluida la pandemia y las elecciones que perdió. Muchos votantes preferirían que se enfocara en 2026.`\
+https://www.nytimes.com/es/2026/08/04/espanol/estados-unidos/trump-elecciones-aprobacion.html
+
+**After Deadly E-Bike Crashes, N.Y. Lawmakers Consider Crackdown**\
+`The City Council on Tuesday is expected to present 17 proposals to make electric bikes and scooters safer for riders and pedestrians.`\
+https://www.nytimes.com/2026/08/04/nyregion/ebike-electric-scooter-regulations-nyc.html
+
+**What to Know About Legal and Illegal E-Bikes in New York**\
+`After a series of fatal crashes, often involving illegal devices, officials in New York City are weighing new rules for electric vehicles.`\
+https://www.nytimes.com/2026/08/04/nyregion/ebike-electric-scooters-nyc-illegal-rules.html
+
+**NYT Spelling Bee Answers for August 4, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/08/04/crosswords/spelling-bee-forum.html
+
+**Ronald Lauder, a Billionaire G.O.P. Backer, Closes His Wallet**\
+`Ronald S. Lauder, a major funder of conservative political causes, has not given a single dollar this year to Republicans in his home state, and his super PAC has gone idle.`\
+https://www.nytimes.com/2026/08/04/nyregion/ronald-lauder-republicans-donor.html
+
+**Mamdani Offers 50 Ways to Aid Small Business, From Barbershops to Bingo**\
+`As a mayoral candidate, Zohran Mamdani focused on the difficulties of running a small business in New York City, coining the term “halalflation” in a viral video.`\
+https://www.nytimes.com/2026/08/04/nyregion/mamdani-small-businesses-.html
+
 **Man Arrested on Suspicion of Arson in Spokane Wildfire**\
 `Aaron Farinacci, 37, was arrested after a witness reported seeing him kneeling near the ignition site of a major fire in Washington State, officials said.`\
 https://www.nytimes.com/2026/08/04/us/spokane-wildfires-arson-arrest.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/08/03/us/politics/democrats-michigan-house-primary-
 **Russian Opposition Politician Flees to France**\
 `Boris B. Nadezhdin, 63, appeared in a video standing in front of the Eiffel Tower. He said he was “alive and free, but, unfortunately, not yet in Russia.”`\
 https://www.nytimes.com/2026/08/03/world/europe/russian-politician-exile-france.html
-
-**Para Irán, la reciente desescalada de Trump muestra quién tiene la ventaja**\
-`Los líderes de Irán creen haber encontrado el talón de Aquiles del mundo y están preparados para continuar con el conflicto.`\
-https://www.nytimes.com/es/2026/08/03/espanol/mundo/trump-iran-guerra.html
-
-**Introducing The Local: Twin Cities**\
-`Sign up to be among the first to receive our newsletter for readers in Minneapolis and St. Paul.`\
-https://www.nytimes.com/article/the-local-twin-cities-minneapolis-saint-paul.html
-
-**Chino Hills Murder-Kidnapping Tied to Business Dispute, Officials Say**\
-`The fatal shooting last week stunned the city of Chino Hills, an upper-middle-class community roughly 35 miles east of downtown Los Angeles.`\
-https://www.nytimes.com/2026/08/03/us/chino-hills-kidnapping-shooting.html
-
-**California Democrats Want to Tax Billionaires. They Can’t Agree on How.**\
-`Leaders of the state Democratic Party endorsed the ballot measure slated for November, but the party remains far from united on the issue as Democrats nationwide grapple with a growing wealth gap.`\
-https://www.nytimes.com/2026/08/03/us/california-democrats-billionaire-tax.html
-
-**¿Me están haciendo ‘love bombing’?**\
-`A veces, las muestras desmesuradas de afecto en un nuevo romance pueden ser la antesala del abuso emocional.`\
-https://www.nytimes.com/es/2026/08/03/espanol/love-bombing.html
-
-**I Helped Run Lululemon. The A.I. Revolution Is a Hot Mess.**\
-`The A.I. revolution is stalling because companies don’t want to admit that integrating the technology is expensive and slow and requires human effort.`\
-https://www.nytimes.com/2026/08/03/opinion/ai-hype-tech-layoffs.html
 

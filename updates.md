@@ -1,3 +1,27 @@
+**Para Trump, siempre es 2020**\
+`El presidente de Estados Unidos insiste en reescribir gran parte de lo que ocurrió hace seis años, incluida la pandemia y las elecciones que perdió. Muchos votantes preferirían que se enfocara en 2026.`\
+https://www.nytimes.com/es/2026/08/04/espanol/estados-unidos/trump-elecciones-aprobacion.html
+
+**After Deadly E-Bike Crashes, N.Y. Lawmakers Consider Crackdown**\
+`The City Council on Tuesday is expected to present 17 proposals to make electric bikes and scooters safer for riders and pedestrians.`\
+https://www.nytimes.com/2026/08/04/nyregion/ebike-electric-scooter-regulations-nyc.html
+
+**What to Know About Legal and Illegal E-Bikes in New York**\
+`After a series of fatal crashes, often involving illegal devices, officials in New York City are weighing new rules for electric vehicles.`\
+https://www.nytimes.com/2026/08/04/nyregion/ebike-electric-scooters-nyc-illegal-rules.html
+
+**NYT Spelling Bee Answers for August 4, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/08/04/crosswords/spelling-bee-forum.html
+
+**Ronald Lauder, a Billionaire G.O.P. Backer, Closes His Wallet**\
+`Ronald S. Lauder, a major funder of conservative political causes, has not given a single dollar this year to Republicans in his home state, and his super PAC has gone idle.`\
+https://www.nytimes.com/2026/08/04/nyregion/ronald-lauder-republicans-donor.html
+
+**Mamdani Offers 50 Ways to Aid Small Business, From Barbershops to Bingo**\
+`As a mayoral candidate, Zohran Mamdani focused on the difficulties of running a small business in New York City, coining the term “halalflation” in a viral video.`\
+https://www.nytimes.com/2026/08/04/nyregion/mamdani-small-businesses-.html
+
 **Man Arrested on Suspicion of Arson in Spokane Wildfire**\
 `Aaron Farinacci, 37, was arrested after a witness reported seeing him kneeling near the ignition site of a major fire in Washington State, officials said.`\
 https://www.nytimes.com/2026/08/04/us/spokane-wildfires-arson-arrest.html
