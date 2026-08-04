@@ -1,3 +1,7 @@
+**Trump’s Fame Built a Unique Coalition**\
+`On “The Opinions,” Jamelle Bouie argues that Trump’s decades in the public eye allowed him to attract voters in a way no other Republican can, making his coalition difficult — if not impossible — to replicate.`\
+https://www.nytimes.com/video/opinion/100000011063523/trumps-fame-built-a-unique-coalition.html
+
 **White House Whipsaws Silicon Valley (and Itself) Over A.I. Rules**\
 `The Trump administration has struggled over how to approach “open source” models, which are freely available to download and favored by Chinese companies.`\
 https://www.nytimes.com/2026/08/04/technology/ai-washington-regulation-whiplash.html
