@@ -1,3 +1,11 @@
+**The 25 Objects That Explain America**\
+`Want to understand this country? Look at our stuff.`\
+https://www.nytimes.com/interactive/2026/08/04/opinion/museum-of-america.html
+
+**Lessons on the Way to 100**\
+`We want to hear from people who aspire to live long lives — maybe even to 100 or beyond — about how you hope to do it and, perhaps, how you have been inspired by others who have made it there.`\
+https://www.nytimes.com/2026/08/04/well/longevity-callout.html
+
 **Man’s Claim That Brakes Failed on Jaguar Was Scam to Avoid Car Payments, Court Rules**\
 `Nathan Owen called the police, saying he was trapped in a runaway car. A judge determined it was a lie and sentenced him to more than four years in prison.`\
 https://www.nytimes.com/2026/08/04/world/europe/runaway-car-jaguar-uk.html
