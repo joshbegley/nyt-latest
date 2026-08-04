@@ -2,7 +2,7 @@
 `Get live results and maps from the 2026 Missouri primary elections.`\
 https://www.nytimes.com/interactive/2026/08/04/us/elections/results-missouri-primary.html
 
-**Residents Return to Spokane**\
+**Residents Return to Spokane After Devastating Wildfires**\
 `The residents of Spokane returned to what remained of their properties after multiple wildfires tore through the country. The authorities on Monday arrested a person they suspected of starting one of the fires.`\
 https://www.nytimes.com/video/world/americas/100000011071621/spokane-wildfires-residents-return.html
 
