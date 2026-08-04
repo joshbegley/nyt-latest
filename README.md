@@ -1,3 +1,7 @@
+**Shrugging Off Trump’s Warning, Max Miller Pushes Ahead in Ohio**\
+`Republicans hoped a shove from President Trump would persuade the embattled congressman to drop his re-election bid in the face of abuse allegations. It hasn’t happened.`\
+https://www.nytimes.com/2026/08/04/us/politics/max-miller-ohio-congress-trump.html
+
 **In Lawsuit, NJ Accuses Amazon of Suppressing Pay for Delivery Drivers**\
 `The state attorney general said in an antitrust lawsuit filed on Tuesday that the company was abusing its market power to keep its delivery costs low.`\
 https://www.nytimes.com/2026/08/04/technology/amazon-nj-lawsuit.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/interactive/2026/08/04/us/elections/results-missouri-us-
 **Missouri Fifth Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Missouri primary election.`\
 https://www.nytimes.com/interactive/2026/08/04/us/elections/results-missouri-us-house-5-primary.html
-
-**Missouri Fourth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Missouri primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-missouri-us-house-4-primary.html
 
 **Primary Elections Live Updates: Michigan’s Senate Battle Leads a Five-State Slate**\
 `Dr. Abdul El-Sayed, a progressive, faces Representative Haley Stevens, a moderate, in the Democratic primary for Senate. Kansas, Missouri, Virginia and Washington are also voting today.`\
