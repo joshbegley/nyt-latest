@@ -1,3 +1,7 @@
+**When A.I. Goes Rogue**\
+`It was the stuff of science fiction — until recently.`\
+https://www.nytimes.com/2026/08/04/world/rogue-ai-agents-cybersecurity-uber.html
+
 **Judge Sets Paramount-Warner Bros. Merger Trial for March**\
 `Paramount, which struck a $111 billion deal to acquire Warner Bros., had requested a November trial for an antitrust lawsuit brought by state attorneys general.`\
 https://www.nytimes.com/2026/08/04/business/media/paramount-warner-bros-trial-march.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/interactive/2026/08/04/us/elections/results-washington-u
 **Washington Sixth Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Washington primary election.`\
 https://www.nytimes.com/interactive/2026/08/04/us/elections/results-washington-us-house-6-primary.html
-
-**Washington Fifth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Washington primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-washington-us-house-5-primary.html
 
 **Primary Elections Live Updates: Michigan’s Senate Battle Divides Democrats**\
 `Dr. Abdul El-Sayed, a progressive, faces Representative Haley Stevens, a moderate, in the Democratic primary for Senate. Kansas, Missouri, Virginia and Washington are also voting today.`\

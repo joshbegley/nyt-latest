@@ -1,3 +1,7 @@
+**Judge Sets Paramount-Warner Bros. Merger Trial for March**\
+`Paramount, which struck a $111 billion deal to acquire Warner Bros., had requested a November trial for an antitrust lawsuit brought by state attorneys general.`\
+https://www.nytimes.com/2026/08/04/business/media/paramount-warner-bros-trial-march.html
+
 **Inside the Oval Office Showdown Between Trump and Jeanine Pirro**\
 `Jeanine Pirro, the U.S. attorney for the District of Columbia, told President Trump that his interior secretary, Doug Burgum, had misled him with a self-serving cover story for his own mistakes.`\
 https://www.nytimes.com/2026/08/04/us/politics/trump-jeanine-pirro-showdown.html
