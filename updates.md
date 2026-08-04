@@ -1,3 +1,11 @@
+**Most of the Migrants Have Left Ceuta. Some Hope to Stay.**\
+`Stranded and alone in a Spanish enclave on the African continent, hundreds of migrants, including unaccompanied minors, face harsh conditions and an uncertain future after a border influx disappeared as quickly as it appeared.`\
+https://www.nytimes.com/video/world/europe/100000011069354/ceuta-migrants-spain-morocco.html
+
+**Cambridge Professor’s Jason Arday’s Work Challenged Ahead of Book Launch**\
+`A knife-wielding masked man. A pig’s head outside his parents’ door. Running 30 marathons in 35 days. The Cambridge professor Jason Arday, accused of plagiarism, says he’s been through it all. Not everyone believes him.`\
+https://www.nytimes.com/2026/08/03/books/jason-arday-cambridge-plagiarism.html
+
 **‘A War Zone’: Spokane Wildfires Leave a Devastating Trail of Destruction**\
 `Despite the scale of the damage, there have been no reported fatalities in the fires that started over the weekend. Weather conditions have improved, allowing some evacuees to return.`\
 https://www.nytimes.com/2026/08/03/us/spokane-wildfires-update.html
