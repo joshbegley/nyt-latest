@@ -1,3 +1,7 @@
+**What Do Dictators Fear Most? Just Ask Nicaragua.**\
+`Nicaragua shows what happens when even dictators fear a rigged election.`\
+https://www.nytimes.com/2026/08/04/opinion/nicaragua-ortega-murillo-elections.html
+
 **Un nuevo acuerdo podría consolidar el control de Irán del estrecho de Ormuz**\
 `El acuerdo abordaría el problema político más urgente del presidente Trump al permitir que los barcos vuelvan a circular. Pero le daría a Irán una ventaja estratégica que no tenía antes de la guerra.`\
 https://www.nytimes.com/es/2026/08/04/espanol/trump-acuerdo-iran-estrecho-ormuz.html
