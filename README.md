@@ -1,3 +1,7 @@
+**Judge Pained as He Grants Dismissal of Jan. 6 Charges Against Oath Keepers**\
+`The judge, Amit P. Mehta, blasted the administration’s request for a dismissal in the case, saying it bestowed “unearned grace” on the Oath Keepers defendants “by wiping their records clean.”`\
+https://www.nytimes.com/2026/08/04/us/politics/jan-6-charges-oath-keepers-dismissed.html
+
 **The Art That Made Lena Waithe (And What’s on Her Playlist Now)**\
 `Lena Waithe reflects on the pop culture moments that sparked her imagination and continue to shape her creativity.`\
 https://www.nytimes.com/video/arts/100000010968795/lena-waithe-interview-playlist.html
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/08/04/us/politics/michigan-primary-election-el-saye
 **Songs for the Return of Lizard Season 🦎☀️**\
 `Let Victoryland, Way Dynamic, Lolitah and other artists help you embrace Peak Summer.`\
 https://www.nytimes.com/2026/08/04/arts/music/amplifier-newsletter-summer-way-machine-lolitah.html
-
-**The New York City Parking Sticker of Shame Is Back**\
-`After 14 years, the city has returned to slapping bright stickers on cars that do not move for street sweepers.`\
-https://www.nytimes.com/2026/08/04/nyregion/nyc-parking-stickers.html
 
 **Primary Elections Live Updates: Michigan’s Senate Battle Divides Democrats**\
 `Dr. Abdul El-Sayed, a progressive, faces Representative Haley Stevens, a moderate, in the Democratic primary for Senate. Kansas, Missouri, Virginia and Washington are also voting today.`\

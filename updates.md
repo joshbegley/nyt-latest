@@ -1,3 +1,7 @@
+**SpaceX’s Spending on A.I. Soars in First Results After I.P.O.**\
+`Elon Musk’s rocket company said its capital expenditures jumped nearly seven times from a year ago. Revenue also rose.`\
+https://www.nytimes.com/2026/08/04/technology/spacex-earnings-elon-musk.html
+
 **The Art That Made Lena Waithe (And What’s on Her Playlist Now)**\
 `Lena Waithe reflects on the pop culture moments that sparked her imagination and continue to shape her creativity.`\
 https://www.nytimes.com/video/arts/100000010968795/lena-waithe-interview-playlist.html
