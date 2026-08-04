@@ -1,70 +1,18 @@
-**Warsh Wanted ‘Regime Change.’ Markets Are Demanding a Reset.**\
-`After his latest appearance set off a bout of volatility, Kevin M. Warsh, the chairman of the Federal Reserve, is under pressure to clear up mixed signals about his commitment to getting inflation down.`\
-https://www.nytimes.com/2026/08/04/business/kevin-warsh-federal-reserve-markets.html
+**Residents Return to Spokane**\
+`The residents of Spokane returned to what remained of their properties after multiple wildfires tore through the country. The authorities on Monday arrested a person they suspected of starting one of the fires.`\
+https://www.nytimes.com/video/world/americas/100000011071621/spokane-wildfires-residents-return.html
 
-**More Than 150 Migrants Rescued From Burning Boat in English Channel**\
-`No deaths or injuries were reported. Many migrants try to reach Britain in small, often unseaworthy vessels.`\
-https://www.nytimes.com/2026/08/04/world/europe/english-channel-migrants-rescue.html
-
-**Todd Blanche Clears Committee Vote, Paving Way for Attorney General Confirmation**\
-`Todd Blanche’s nomination now advances to the Senate floor, where he is expected to be confirmed, even though several Republicans have not yet committed to supporting him.`\
-https://www.nytimes.com/2026/08/04/us/politics/blanche-confirmation-attorney-general-justice-department.html
-
-**Michigan Governor Primary 2026: Live Election Results, Benson vs. Swanson**\
-`Get live results and maps from the 2026 Michigan primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-michigan-governor-primary.html
-
-**Michigan U.S. Senate Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Michigan primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-michigan-us-senate-primary.html
-
-**Michigan Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Michigan primary elections.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-michigan-primary.html
-
-**Virginia Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Virginia primary elections.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-virginia-primary.html
-
-**Kansas Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Kansas primary elections.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-kansas-primary.html
-
-**Washington Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Washington primary elections.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-washington-primary.html
-
-**Primary Election Results in Kansas, Missouri, Michigan, Virginia and Washington: Aug. 4, 2026**\
-`Get live results of the key races from the Aug. 4 primaries.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-key-races-michigan-kansas-missouri-virginia-washington.html
-
-**Stressed? Overwhelmed? Have You Tried Being Jack Johnson Instead?**\
-`His frozen-in-time anthems, odes to going with the flow, are the soundtrack to a summer of “hopecore.”`\
-https://www.nytimes.com/2026/08/04/style/jack-johnson-summer-surfilmusic.html
-
-**Darwin Was Right: These Plants Are Carnivores**\
-`Scientists have proved that a species of plant covered with sticky hairs is carnivorous, confirming Darwin’s 150-year-old hunch.`\
-https://www.nytimes.com/2026/08/04/science/darwin-was-right-these-plants-are-carnivores.html
-
-**The Suicide Crisis in Wyoming**\
-`Wyoming has one of the highest suicide rates in the nation.`\
-https://www.nytimes.com/2026/08/04/opinion/suicide-wyoming-mental-health.html
-
-**Washington Supreme Court 2026: Live Election Results**\
+**Washington Ninth Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Washington primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-washington-supreme-court.html
+https://www.nytimes.com/interactive/2026/08/04/us/elections/results-washington-us-house-9-primary.html
 
 **Washington Eighth Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Washington primary election.`\
 https://www.nytimes.com/interactive/2026/08/04/us/elections/results-washington-us-house-8-primary.html
 
-**Washington Third Congressional District Primary 2026: Live Election Results**\
+**Washington Seventh Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Washington primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-washington-us-house-3-primary.html
-
-**Washington 10th Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Washington primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-washington-us-house-10-primary.html
+https://www.nytimes.com/interactive/2026/08/04/us/elections/results-washington-us-house-7-primary.html
 
 **Washington Sixth Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Washington primary election.`\
@@ -74,29 +22,33 @@ https://www.nytimes.com/interactive/2026/08/04/us/elections/results-washington-u
 `Get live results and maps from the 2026 Washington primary election.`\
 https://www.nytimes.com/interactive/2026/08/04/us/elections/results-washington-us-house-5-primary.html
 
-**Washington Ninth Congressional District Primary 2026: Live Election Results**\
+**Washington Fourth Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Washington primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-washington-us-house-9-primary.html
+https://www.nytimes.com/interactive/2026/08/04/us/elections/results-washington-us-house-4-primary.html
 
-**Virginia U.S. Senate Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Virginia primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-virginia-us-senate-primary.html
+**Washington Third Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Washington primary election.`\
+https://www.nytimes.com/interactive/2026/08/04/us/elections/results-washington-us-house-3-primary.html
+
+**Washington Second Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Washington primary election.`\
+https://www.nytimes.com/interactive/2026/08/04/us/elections/results-washington-us-house-2-primary.html
 
 **Washington First Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Washington primary election.`\
 https://www.nytimes.com/interactive/2026/08/04/us/elections/results-washington-us-house-1-primary.html
 
-**Washington Seventh Congressional District Primary 2026: Live Election Results**\
+**Washington Supreme Court 2026: Live Election Results**\
 `Get live results and maps from the 2026 Washington primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-washington-us-house-7-primary.html
+https://www.nytimes.com/interactive/2026/08/04/us/elections/results-washington-supreme-court.html
 
-**Washington Fourth Congressional District Primary 2026: Live Election Results**\
+**Washington 10th Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Washington primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-washington-us-house-4-primary.html
+https://www.nytimes.com/interactive/2026/08/04/us/elections/results-washington-us-house-10-primary.html
 
-**Washington Second Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Washington primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-washington-us-house-2-primary.html
+**Virginia U.S. Senate Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Virginia primary election.`\
+https://www.nytimes.com/interactive/2026/08/04/us/elections/results-virginia-us-senate-primary.html
 
 **Virginia Ninth Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Virginia primary election.`\
@@ -106,45 +58,41 @@ https://www.nytimes.com/interactive/2026/08/04/us/elections/results-virginia-us-
 `Get live results and maps from the 2026 Virginia primary election.`\
 https://www.nytimes.com/interactive/2026/08/04/us/elections/results-virginia-us-house-8-primary.html
 
-**Virginia Fifth Congressional District Primary 2026: Live Election Results**\
+**Virginia Seventh Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Virginia primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-virginia-us-house-5-primary.html
-
-**Virginia 11th Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Virginia primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-virginia-us-house-11-primary.html
+https://www.nytimes.com/interactive/2026/08/04/us/elections/results-virginia-us-house-7-primary.html
 
 **Virginia Sixth Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Virginia primary election.`\
 https://www.nytimes.com/interactive/2026/08/04/us/elections/results-virginia-us-house-6-primary.html
 
-**Virginia Third Congressional District Primary 2026: Live Election Results**\
+**Virginia Fifth Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Virginia primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-virginia-us-house-3-primary.html
-
-**Virginia First Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Virginia primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-virginia-us-house-1-primary.html
+https://www.nytimes.com/interactive/2026/08/04/us/elections/results-virginia-us-house-5-primary.html
 
 **Virginia Fourth Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Virginia primary election.`\
 https://www.nytimes.com/interactive/2026/08/04/us/elections/results-virginia-us-house-4-primary.html
 
-**Virginia Seventh Congressional District Primary 2026: Live Election Results**\
+**Virginia Third Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Virginia primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-virginia-us-house-7-primary.html
+https://www.nytimes.com/interactive/2026/08/04/us/elections/results-virginia-us-house-3-primary.html
 
 **Virginia Second Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Virginia primary election.`\
 https://www.nytimes.com/interactive/2026/08/04/us/elections/results-virginia-us-house-2-primary.html
 
-**Missouri Auditor Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Missouri primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-missouri-auditor-primary.html
+**Virginia First Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Virginia primary election.`\
+https://www.nytimes.com/interactive/2026/08/04/us/elections/results-virginia-us-house-1-primary.html
 
-**Missouri Sixth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Missouri primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-missouri-us-house-6-primary.html
+**Virginia 11th Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Virginia primary election.`\
+https://www.nytimes.com/interactive/2026/08/04/us/elections/results-virginia-us-house-11-primary.html
+
+**Virginia 10th Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Virginia primary election.`\
+https://www.nytimes.com/interactive/2026/08/04/us/elections/results-virginia-us-house-10-primary.html
 
 **Missouri Eighth Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Missouri primary election.`\
@@ -154,33 +102,45 @@ https://www.nytimes.com/interactive/2026/08/04/us/elections/results-missouri-us-
 `Get live results and maps from the 2026 Missouri primary election.`\
 https://www.nytimes.com/interactive/2026/08/04/us/elections/results-missouri-us-house-7-primary.html
 
-**Virginia 10th Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Virginia primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-virginia-us-house-10-primary.html
-
-**Missouri First Congressional District Primary 2026: Live Election Results**\
+**Missouri Sixth Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Missouri primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-missouri-us-house-1-primary.html
-
-**Missouri Third Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Missouri primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-missouri-us-house-3-primary.html
-
-**Missouri Fourth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Missouri primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-missouri-us-house-4-primary.html
-
-**Missouri Second Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Missouri primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-missouri-us-house-2-primary.html
+https://www.nytimes.com/interactive/2026/08/04/us/elections/results-missouri-us-house-6-primary.html
 
 **Missouri Fifth Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Missouri primary election.`\
 https://www.nytimes.com/interactive/2026/08/04/us/elections/results-missouri-us-house-5-primary.html
 
-**Michigan Eighth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Michigan primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-michigan-us-house-8-primary.html
+**Missouri Fourth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Missouri primary election.`\
+https://www.nytimes.com/interactive/2026/08/04/us/elections/results-missouri-us-house-4-primary.html
+
+**Missouri Third Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Missouri primary election.`\
+https://www.nytimes.com/interactive/2026/08/04/us/elections/results-missouri-us-house-3-primary.html
+
+**Missouri Second Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Missouri primary election.`\
+https://www.nytimes.com/interactive/2026/08/04/us/elections/results-missouri-us-house-2-primary.html
+
+**Missouri First Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Missouri primary election.`\
+https://www.nytimes.com/interactive/2026/08/04/us/elections/results-missouri-us-house-1-primary.html
+
+**Missouri Auditor Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Missouri primary election.`\
+https://www.nytimes.com/interactive/2026/08/04/us/elections/results-missouri-auditor-primary.html
+
+**Missouri Amendment 5 Election Results 2026: Eliminate Income Tax**\
+`Get live results and maps from the 2026 Missouri general election.`\
+https://www.nytimes.com/interactive/2026/08/04/us/elections/results-missouri-amendment-5-eliminate-income-tax.html
+
+**Missouri Amendment 4 Election Results 2026: Modify Amendment Approval Requirements**\
+`Get live results and maps from the 2026 Missouri general election.`\
+https://www.nytimes.com/interactive/2026/08/04/us/elections/results-missouri-amendment-4-modify-amendment-approval-requirements-and-prohibit-foreign-spending-on-measures.html
+
+**Missouri Amendment 2 Election Results 2026: County Assessor Elections**\
+`Get live results and maps from the 2026 Missouri general election.`\
+https://www.nytimes.com/interactive/2026/08/04/us/elections/results-missouri-amendment-2-county-assessor-elections.html
 
 **Missouri Amendment 1 Election Results 2026: Renew Parks and Conservation Sales Tax**\
 `Get live results and maps from the 2026 Missouri general election.`\
@@ -190,11 +150,51 @@ https://www.nytimes.com/interactive/2026/08/04/us/elections/results-missouri-ame
 `Get live results and maps from the 2026 Michigan primary election.`\
 https://www.nytimes.com/interactive/2026/08/04/us/elections/results-michigan-us-house-9-primary.html
 
-**Missouri Amendment 5 Election Results 2026: Eliminate Income Tax**\
-`Get live results and maps from the 2026 Missouri general election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-missouri-amendment-5-eliminate-income-tax.html
+**Michigan Eighth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Michigan primary election.`\
+https://www.nytimes.com/interactive/2026/08/04/us/elections/results-michigan-us-house-8-primary.html
+
+**Michigan Seventh Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Michigan primary election.`\
+https://www.nytimes.com/interactive/2026/08/04/us/elections/results-michigan-us-house-7-primary.html
+
+**Michigan Sixth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Michigan primary election.`\
+https://www.nytimes.com/interactive/2026/08/04/us/elections/results-michigan-us-house-6-primary.html
 
 **Michigan Fifth Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Michigan primary election.`\
 https://www.nytimes.com/interactive/2026/08/04/us/elections/results-michigan-us-house-5-primary.html
+
+**Michigan Fourth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Michigan primary election.`\
+https://www.nytimes.com/interactive/2026/08/04/us/elections/results-michigan-us-house-4-primary.html
+
+**Michigan Third Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Michigan primary election.`\
+https://www.nytimes.com/interactive/2026/08/04/us/elections/results-michigan-us-house-3-primary.html
+
+**Michigan Second Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Michigan primary election.`\
+https://www.nytimes.com/interactive/2026/08/04/us/elections/results-michigan-us-house-2-primary.html
+
+**Warsh Wanted ‘Regime Change.’ Markets Are Demanding a Reset.**\
+`After his latest appearance set off a bout of volatility, Kevin M. Warsh, the chairman of the Federal Reserve, is under pressure to clear up mixed signals about his commitment to getting inflation down.`\
+https://www.nytimes.com/2026/08/04/business/kevin-warsh-federal-reserve-markets.html
+
+**Michigan First Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Michigan primary election.`\
+https://www.nytimes.com/interactive/2026/08/04/us/elections/results-michigan-us-house-1-primary.html
+
+**Michigan 13th Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Michigan primary election.`\
+https://www.nytimes.com/interactive/2026/08/04/us/elections/results-michigan-us-house-13-primary.html
+
+**Michigan 12th Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Michigan primary election.`\
+https://www.nytimes.com/interactive/2026/08/04/us/elections/results-michigan-us-house-12-primary.html
+
+**Michigan 11th Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Michigan primary election.`\
+https://www.nytimes.com/interactive/2026/08/04/us/elections/results-michigan-us-house-11-primary.html
 
