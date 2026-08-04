@@ -1,3 +1,7 @@
+**Live Updates: Michigan’s Senate Battle Leads a Five-State Primary Slate**\
+`Dr. Abdul El-Sayed, a progressive, faces Representative Haley Stevens, a moderate, in the Democratic primary for Senate. Kansas, Missouri, Virginia and Washington are also voting today.`\
+https://www.nytimes.com/live/2026/08/04/us/midterms-michigan-virginia
+
 **Russia Turns Ukraine’s Gas Stations From Social Hubs Into Deadly Targets**\
 `Drone attacks have hit hundreds of gas stations in apparent retaliation for Ukraine’s attacks on Russian oil refineries.`\
 https://www.nytimes.com/2026/08/04/world/europe/ukraine-gas-stations-russia.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/08/04/espanol/negocios/italia-banco-antiguo-mont
 **En Alaska, una gran ola se ha vuelto un destino para surfistas**\
 `El macareo de Turnagain Arm se está dando a conocer entre los surfistas de olas grandes que buscan uno de los recorridos más inusuales del mundo. Pero conlleva peligros.`\
 https://www.nytimes.com/es/2026/08/04/espanol/estados-unidos/alaska-gran-ola-surfistas-peligro.html
-
-**Para Trump, siempre es 2020**\
-`El presidente de Estados Unidos insiste en reescribir gran parte de lo que ocurrió hace seis años, incluida la pandemia y las elecciones que perdió. Muchos votantes preferirían que se enfocara en 2026.`\
-https://www.nytimes.com/es/2026/08/04/espanol/estados-unidos/trump-elecciones-aprobacion.html
 
