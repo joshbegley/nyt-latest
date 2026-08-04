@@ -1,3 +1,7 @@
+**Talks With Iran to Reopen Strait of Hormuz Make Progress, Officials Say**\
+`Qatar said that draft language of a deal was being circulated, while the U.S. Treasury secretary suggested an agreement may be imminent.`\
+https://www.nytimes.com/2026/08/04/world/middleeast/strait-of-hormuz-deal-progress.html
+
 **What Makes a Store Great**\
 `Plus: Gap fragrance returns and a nearly $5,000 Ralph Lauren jacket that’s already sold out.`\
 https://www.nytimes.com/2026/08/04/style/stores-best-shopping-nyc.html

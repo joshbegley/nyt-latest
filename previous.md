@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/08/04/style/stores-best-shopping-nyc.html
 
 **Talks With Iran to Reopen Strait of Hormuz Make Progress, Officials Say**\
-`Qatar, which has mediated, said a draft deal was being circulated, while the U.S. Treasury secretary suggested an agreement may be imminent.`\
+`Qatar said that draft language of a deal was being circulated, while the U.S. Treasury secretary suggested an agreement may be imminent.`\
 https://www.nytimes.com/2026/08/04/world/middleeast/strait-of-hormuz-deal-progress.html
 
 **Kansas Governor Primary 2026: Live Election Results**\
