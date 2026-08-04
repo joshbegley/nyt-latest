@@ -1,3 +1,7 @@
+**What to Watch in Michigan’s High-Stakes Primary Elections**\
+`A high-stakes Senate contest and other races will offer fresh indicators of what Democratic voters are seeking.`\
+https://www.nytimes.com/2026/08/04/us/politics/michigan-primary-election-el-sayed-stevens.html
+
 **Songs for the Return of Lizard Season 🦎☀️**\
 `Let Victoryland, Way Dynamic, Lolitah and other artists help you embrace Peak Summer.`\
 https://www.nytimes.com/2026/08/04/arts/music/amplifier-newsletter-summer-way-machine-lolitah.html
