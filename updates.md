@@ -1,3 +1,7 @@
+**EE. UU. envió un avión con 147 deportados a Venezuela por primera vez desde los sismos**\
+`El Departamento de Seguridad Nacional de EE. UU. no quiso confirmar si la llegada del vuelo significaba la reanudación de los vuelos de deportación.`\
+https://www.nytimes.com/es/2026/08/03/espanol/america-latina/venezuela-vuelo-deportacion-estados-unidos.html
+
 **NYT Crossword Answers for August 4, 2026**\
 `Vasu Seralathan marries humor and culture.`\
 https://www.nytimes.com/2026/08/03/crosswords/daily-puzzle-2026-08-04.html
