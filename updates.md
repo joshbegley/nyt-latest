@@ -1,3 +1,11 @@
+**The Best Fire Pits, Lanterns and Torches to Conjure the Spirit of Camp in Your Own Backyard**\
+`Fire pits, lanterns and torches to transform your outdoor space and make the most of the season.`\
+https://www.nytimes.com/2026/08/04/t-magazine/best-fire-pits-lanterns-torches.html
+
+**Trump manda llamar a la fiscala de Washington D. C. a la Casa Blanca**\
+`El presidente dijo que Jeanine Pirro “se plegó como un paraguas” en el caso del estanque reflectante. Por ahora, su puesto está a salvo, según dos personas familiarizadas con la reunión.`\
+https://www.nytimes.com/es/2026/08/04/espanol/estados-unidos/pirro-trump-casa-blanca.html
+
 **Diana Vishneva’s Quiet Return in Venice Makes a Powerful Statement**\
 `Diana Vishneva’s performance at the Venice Dance Biennale raised uncomfortable questions for an event that once vowed to cut ties with Russia’s artists over the war in Ukraine.`\
 https://www.nytimes.com/2026/08/04/arts/dance/venice-dance-biennale-diana-vishneva.html
