@@ -1,3 +1,11 @@
+**Gillian Flynn's ‘Gone Girl’ Is the Best Thriller of the 21st Century. Here’s How It Gets Inside Your Head.**\
+`A.O. Scott dissects the first page of Gillian Flynn’s story of murderous marital dysfunction.`\
+https://www.nytimes.com/interactive/2026/books/gone-girl-book-thriller-21st-century.html
+
+**See How Your Favorite Thrillers of the Century Stack Up Against Other Readers**\
+`Play our game, and see what other readers think.`\
+https://www.nytimes.com/interactive/2026/books/best-thrillers-21st-century-reader-vote.html
+
 **Chile Crisp**\
 `There’s just enough oil to slick all the crispy bits of chile, onion and sesame in this version of the spicy Chinese condiment, so it delivers as much crunch as it does salty, sweet, nutty heat.`\
 https://www.nytimes.com/video/dining/100000011073378/chile-crisp.html

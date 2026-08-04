@@ -1,3 +1,11 @@
+**Gillian Flynn's ‘Gone Girl’ Is the Best Thriller of the 21st Century. Here’s How It Gets Inside Your Head.**\
+`A.O. Scott dissects the first page of Gillian Flynn’s story of murderous marital dysfunction.`\
+https://www.nytimes.com/interactive/2026/books/gone-girl-book-thriller-21st-century.html
+
+**See How Your Favorite Thrillers of the Century Stack Up Against Other Readers**\
+`Play our game, and see what other readers think.`\
+https://www.nytimes.com/interactive/2026/books/best-thrillers-21st-century-reader-vote.html
+
 **Chile Crisp**\
 `There’s just enough oil to slick all the crispy bits of chile, onion and sesame in this version of the spicy Chinese condiment, so it delivers as much crunch as it does salty, sweet, nutty heat.`\
 https://www.nytimes.com/video/dining/100000011073378/chile-crisp.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/08/04/style/stores-best-shopping-nyc.html
 **Strait of Hormuz Deal With Iran Possible Soon, Bessent Says**\
 `Qatar said that draft language of a deal was being circulated, while Secretary of State Marco Rubio expressed optimism about the talks but added that nothing was final yet.`\
 https://www.nytimes.com/2026/08/04/world/middleeast/strait-of-hormuz-deal-progress.html
-
-**Kansas Governor Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Kansas primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-kansas-governor-primary.html
-
-**What to Watch in Washington State’s Primaries as Gluesenkamp Perez Faces a Challenge**\
-`Representative Marie Gluesenkamp Perez, a moderate Democrat, is going head-to-head with candidates to her right and her left in a battleground district.`\
-https://www.nytimes.com/2026/08/04/us/politics/washington-state-primaries-what-to-watch.html
 
 **Primary Elections Live Updates: Michigan’s Senate Battle Divides Democrats**\
 `Dr. Abdul El-Sayed, a progressive, faces Representative Haley Stevens, a moderate, in the Democratic primary for Senate. Kansas, Missouri, Virginia and Washington are also voting today.`\
