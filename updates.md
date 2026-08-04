@@ -1,3 +1,7 @@
+**What to Watch in Missouri’s Primaries as Cori Bush Tries to Beat Wesley Bell**\
+`Former Representative Cori Bush, a member of the progressive “squad,” is trying to defeat Representative Wesley Bell, a moderate who ousted her two years ago.`\
+https://www.nytimes.com/2026/08/04/us/politics/missouri-primary-election-bush-bell.html
+
 **Street Style Look of the Week: Fake Rocks With Real Heft**\
 `The owner of a London leather shop makes her own jumpsuits out of lightweight fabrics. Her chunky accessories bring the heft.`\
 https://www.nytimes.com/2026/08/04/style/street-style-look-chunky-statement-jewelry.html
