@@ -1,4 +1,8 @@
-**Shrugging Off Trump’s Warning, Max Miller Pushes Ahead in Ohio**\
+**Dozens of Construction Sites Cited for Violations After Building Mishap**\
+`After two steel beams buckled at a Manhattan high-rise last month, city officials conducted inspections at dozens of construction sites across the city. None of the violations posed a danger to the public, the city said.`\
+https://www.nytimes.com/2026/08/04/nyregion/nyc-buildings-violations-conversions.html
+
+**Max Miller Shrugs Off Trump’s Warning and Pushes Ahead in Ohio**\
 `Republicans hoped a shove from President Trump would persuade the embattled congressman to drop his re-election bid in the face of abuse allegations. It hasn’t happened.`\
 https://www.nytimes.com/2026/08/04/us/politics/max-miller-ohio-congress-trump.html
 
@@ -58,7 +62,7 @@ https://www.nytimes.com/2026/08/04/opinion/companies-climate-change.html
 `Plus: Gap fragrance returns and a nearly $5,000 Ralph Lauren jacket that’s already sold out.`\
 https://www.nytimes.com/2026/08/04/style/stores-best-shopping-nyc.html
 
-**Talks With Iran to Reopen Strait of Hormuz Make Progress, Officials Say**\
+**Strait of Hormuz Deal With Iran Possible Soon, Bessent Says**\
 `Qatar said that draft language of a deal was being circulated, while Secretary of State Marco Rubio expressed optimism about the talks but added that nothing was final yet.`\
 https://www.nytimes.com/2026/08/04/world/middleeast/strait-of-hormuz-deal-progress.html
 
@@ -189,10 +193,6 @@ https://www.nytimes.com/interactive/2026/08/04/us/elections/results-missouri-us-
 **Missouri Sixth Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Missouri primary election.`\
 https://www.nytimes.com/interactive/2026/08/04/us/elections/results-missouri-us-house-6-primary.html
-
-**Missouri Fifth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Missouri primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-missouri-us-house-5-primary.html
 
 **Primary Elections Live Updates: Michigan’s Senate Battle Leads a Five-State Slate**\
 `Dr. Abdul El-Sayed, a progressive, faces Representative Haley Stevens, a moderate, in the Democratic primary for Senate. Kansas, Missouri, Virginia and Washington are also voting today.`\

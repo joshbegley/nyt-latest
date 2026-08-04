@@ -1,3 +1,15 @@
+**Dozens of Construction Sites Cited for Violations After Building Mishap**\
+`After two steel beams buckled at a Manhattan high-rise last month, city officials conducted inspections at dozens of construction sites across the city. None of the violations posed a danger to the public, the city said.`\
+https://www.nytimes.com/2026/08/04/nyregion/nyc-buildings-violations-conversions.html
+
+**Max Miller Shrugs Off Trump’s Warning and Pushes Ahead in Ohio**\
+`Republicans hoped a shove from President Trump would persuade the embattled congressman to drop his re-election bid in the face of abuse allegations. It hasn’t happened.`\
+https://www.nytimes.com/2026/08/04/us/politics/max-miller-ohio-congress-trump.html
+
+**Strait of Hormuz Deal With Iran Possible Soon, Bessent Says**\
+`Qatar said that draft language of a deal was being circulated, while Secretary of State Marco Rubio expressed optimism about the talks but added that nothing was final yet.`\
+https://www.nytimes.com/2026/08/04/world/middleeast/strait-of-hormuz-deal-progress.html
+
 **Shrugging Off Trump’s Warning, Max Miller Pushes Ahead in Ohio**\
 `Republicans hoped a shove from President Trump would persuade the embattled congressman to drop his re-election bid in the face of abuse allegations. It hasn’t happened.`\
 https://www.nytimes.com/2026/08/04/us/politics/max-miller-ohio-congress-trump.html

@@ -1,4 +1,16 @@
-**Dozens of Construction Sites Cited for Violations After Building Mishap**\
+**Senate Committee Advances Blanche’s Nomination for Attorney General**\
+`The Senate Judiciary Committee voted on Tuesday to advance Todd Blanche’s nomination for attorney general after he reached an agreement with two Republican holdouts late Sunday.`\
+https://www.nytimes.com/video/us/politics/100000011072139/blanche-confirmation-attorney-general.html
+
+**Mexico Declares War on Stinky Seaweed**\
+`A changing climate is helping to fuel the growth of a gigantic blob of foul-smelling seaweed that has washed up in some coastal communities. Mexico is fighting back.`\
+https://www.nytimes.com/2026/08/04/climate/mexico-declares-war-sargassum-seaweed.html
+
+**Parts of Trump’s New White House Helipad Disassembled, Photos Show**\
+`Last week, construction workers had begun to decorate the new South Lawn helipad with a giant presidential seal. By Tuesday, the design was gone.`\
+https://www.nytimes.com/2026/08/04/us/politics/trump-helipad-white-house-construction.html
+
+**Violations Found at Sites Involving Firms Linked to Unstable Building**\
 `After two steel beams buckled at a Manhattan high-rise last month, city officials conducted inspections at dozens of construction sites across the city. None of the violations posed a danger to the public, the city said.`\
 https://www.nytimes.com/2026/08/04/nyregion/nyc-buildings-violations-conversions.html
 
@@ -181,18 +193,6 @@ https://www.nytimes.com/interactive/2026/08/04/us/elections/results-virginia-us-
 **Virginia 10th Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Virginia primary election.`\
 https://www.nytimes.com/interactive/2026/08/04/us/elections/results-virginia-us-house-10-primary.html
-
-**Missouri Eighth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Missouri primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-missouri-us-house-8-primary.html
-
-**Missouri Seventh Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Missouri primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-missouri-us-house-7-primary.html
-
-**Missouri Sixth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Missouri primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-missouri-us-house-6-primary.html
 
 **Primary Elections Live Updates: Michigan’s Senate Battle Leads a Five-State Slate**\
 `Dr. Abdul El-Sayed, a progressive, faces Representative Haley Stevens, a moderate, in the Democratic primary for Senate. Kansas, Missouri, Virginia and Washington are also voting today.`\
