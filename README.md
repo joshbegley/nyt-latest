@@ -178,10 +178,6 @@ https://www.nytimes.com/interactive/2026/08/04/opinion/museum-of-america.html
 `We want to hear from people who aspire to live long lives — maybe even to 100 or beyond — about how you hope to do it and, perhaps, how you have been inspired by others who have made it there.`\
 https://www.nytimes.com/2026/08/04/well/longevity-callout.html
 
-**Derby Club Gives the Former Neary’s Space a Touch of Elegance**\
-`Camp 5 Acres channels Boy Scout vibes, sourdough bread from Mark Bittman and more restaurant news.`\
-https://www.nytimes.com/2026/08/04/dining/restaurant-news-nyc.html
-
 **Primary Elections Live Updates: Michigan’s Senate Battle Divides Democrats**\
 `Dr. Abdul El-Sayed, a progressive, faces Representative Haley Stevens, a moderate, in the Democratic primary for Senate. Kansas, Missouri, Virginia and Washington are also voting today.`\
 https://www.nytimes.com/live/2026/08/04/us/midterms-elections-michigan-virginia
