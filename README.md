@@ -1,3 +1,7 @@
+**What Makes a Store Great**\
+`Plus: Gap fragrance returns and a nearly $5,000 Ralph Lauren jacket that’s already sold out.`\
+https://www.nytimes.com/2026/08/04/style/stores-best-shopping-nyc.html
+
 **Talks With Iran to Reopen Strait of Hormuz Make Progress, Officials Say**\
 `Qatar, which has mediated, said a draft deal was being circulated, while the U.S. Treasury secretary suggested an agreement may be imminent.`\
 https://www.nytimes.com/2026/08/04/world/middleeast/strait-of-hormuz-deal-progress.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/08/04/us/elections/results-michigan-us-
 **Michigan Fourth Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Michigan primary election.`\
 https://www.nytimes.com/interactive/2026/08/04/us/elections/results-michigan-us-house-4-primary.html
-
-**Michigan Third Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Michigan primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-michigan-us-house-3-primary.html
 

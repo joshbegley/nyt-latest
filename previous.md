@@ -1,3 +1,7 @@
+**Talks With Iran to Reopen Strait of Hormuz Make Progress, Officials Say**\
+`Qatar, which has mediated, said a draft deal was being circulated, while the U.S. Treasury secretary suggested an agreement may be imminent.`\
+https://www.nytimes.com/2026/08/04/world/middleeast/strait-of-hormuz-deal-progress.html
+
 **Kansas Governor Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Kansas primary election.`\
 https://www.nytimes.com/interactive/2026/08/04/us/elections/results-kansas-governor-primary.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/08/04/us/elections/results-michigan-us-
 **Michigan Third Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Michigan primary election.`\
 https://www.nytimes.com/interactive/2026/08/04/us/elections/results-michigan-us-house-3-primary.html
-
-**Michigan Second Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Michigan primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-michigan-us-house-2-primary.html
 
