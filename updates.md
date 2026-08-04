@@ -1,3 +1,7 @@
+**When Companies Retreat on Climate Change**\
+`Readers respond to a front-page article about how big businesses are deserting climate goals. Also: President Trump’s polls, and his unreality.`\
+https://www.nytimes.com/2026/08/04/opinion/companies-climate-change.html
+
 **Talks With Iran to Reopen Strait of Hormuz Make Progress, Officials Say**\
 `Qatar said that draft language of a deal was being circulated, while the U.S. Treasury secretary suggested an agreement may be imminent.`\
 https://www.nytimes.com/2026/08/04/world/middleeast/strait-of-hormuz-deal-progress.html
