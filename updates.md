@@ -1,3 +1,7 @@
+**The End of Passwords**\
+`Learn how password managers and passkeys make staying safe online easier.`\
+https://www.nytimes.com/2026/08/04/podcasts/the-end-of-passwords.html
+
 **Saudi Aramco Reports 33% Profit Surge Despite War’s Disruption**\
 `Higher oil prices propelled a quarterly earnings jump for Saudi Arabia’s energy giant, which used pipelines to work around disruptions in the Strait of Hormuz.`\
 https://www.nytimes.com/2026/08/04/business/saudi-aramco-earnings-iran-war.html
