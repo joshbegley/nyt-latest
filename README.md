@@ -1,3 +1,7 @@
+**The Best Fire Pits, Lanterns and Torches to Conjure the Spirit of Camp in Your Own Backyard**\
+`Fire pits, lanterns and torches to transform your outdoor space and make the most of the season.`\
+https://www.nytimes.com/2026/08/04/t-magazine/best-fire-pits-lanterns-torches.html
+
 **Trump manda llamar a la fiscala de Washington D. C. a la Casa Blanca**\
 `El presidente dijo que Jeanine Pirro “se plegó como un paraguas” en el caso del estanque reflectante. Por ahora, su puesto está a salvo, según dos personas familiarizadas con la reunión.`\
 https://www.nytimes.com/es/2026/08/04/espanol/estados-unidos/pirro-trump-casa-blanca.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/04/realestate/roosevelt-island-renter-jenifer-ri
 **Where To Find the Best Ice Cream in New York City**\
 `Froyo comes and goes, but ice cream is forever.`\
 https://www.nytimes.com/2026/08/04/dining/best-ice-cream-nyc.html
-
-**The A.I. Revolt Is Here**\
-`Jasmine Sun, a writer covering technology, takes us into the backlash against A.I. data centers.`\
-https://www.nytimes.com/video/opinion/100000011047929/the-ai-revolt-is-here.html
 
