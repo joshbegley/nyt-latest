@@ -1,3 +1,39 @@
+**Un nuevo acuerdo podría consolidar el control de Irán del estrecho de Ormuz**\
+`El acuerdo abordaría el problema político más urgente del presidente Trump al permitir que los barcos vuelvan a circular. Pero le daría a Irán una ventaja estratégica que no tenía antes de la guerra.`\
+https://www.nytimes.com/es/2026/08/04/espanol/trump-acuerdo-iran-estrecho-ormuz.html
+
+**Bajo el calor de Francia, los carteros acuden al rescate de los adultos mayores**\
+`Para ayudar a prevenir las muertes relacionadas con el calor, el gobierno francés ha pedido a los carteros que estén pendientes de las personas mayores.`\
+https://www.nytimes.com/es/2026/08/04/espanol/mundo/calor-francia-carteros-adultos-mayores.html
+
+**New Zealand Has Ended Greyhound Racing. Now It Has to Manage the Aftermath.**\
+`As the country holds its final greyhound race, the government has committed to finding homes for dogs and supporting people whose livelihoods depended on racing.`\
+https://www.nytimes.com/2026/08/04/world/australia/new-zealand-greyhound-racing-ban.html
+
+**Andy Burnham’s First Weeks as UK Prime Minister: TikToks, Podcasts and Promises**\
+`Andy Burnham’s social media push appears to be resonating with some voters. But he faces big decisions about how to pay for his promises.`\
+https://www.nytimes.com/2026/08/04/world/europe/andy-burnham-uk-prime-minister.html
+
+**How the Mohegan Tribe Lost a Billion-Dollar Casino in South Korea**\
+`Inspire Entertainment Resort — an alternative to Macau, the world’s gambling capital — was supposed to be a “transformational” project for the Native American tribe.`\
+https://www.nytimes.com/2026/08/04/world/asia/mohegan-south-korea-casino-bain.html
+
+**Sailors Working in Strait of Hormuz Are Caught in Crossfire of Iran War**\
+`Thousands of civilian workers remain stranded on ships at risk of attack by Iran. On one vessel, sailors have been held by the Iranian navy for more than three months.`\
+https://www.nytimes.com/2026/08/04/business/iran-strait-hormuz-shipping-sailors.html
+
+**A Currency Trader at Heart, Bessent Bets on Japan’s Yen**\
+`Coordinated intervention allowed Japan to support its currency without selling off its U.S. debt holdings.`\
+https://www.nytimes.com/2026/08/04/business/economy/bessent-yen-currency-support.html
+
+**Pakistan’s Kashmir Problem**\
+`A wave of protests is posing the most significant challenge in years to Islamabad’s authority in the region.`\
+https://www.nytimes.com/2026/08/04/world/asia/pakistan-kashmir-jaac-rawalkot-protests.html
+
+**JPMorgan Again Entangled in a FIFA Fiasco**\
+`After promising to learn from its role in a failed “Super League” that fueled fan anger, the Wall Street bank is involved in FIFA’s latest meltdown.`\
+https://www.nytimes.com/2026/08/04/world/europe/fifa-jpmorgan.html
+
 **Trump, Graham Dominate Senate Race: 5 Takeaways from South Carolina Debate.**\
 `The legacy of Lindsey Graham loomed over the field to replace him in a debate Monday. All eyes were on his sister, Darline, who was endorsed by President Trump.`\
 https://www.nytimes.com/2026/08/03/us/politics/graham-south-carolina-senate-debate.html
@@ -157,36 +193,4 @@ https://www.nytimes.com/es/2026/08/03/espanol/mundo/china-vigilancia-extranjeros
 **Prosecutor in D.C. Moves to Dismiss More Reflecting Pool Cases**\
 `After revelations that a botched renovation, not vandalism, had caused the pool’s recent problems, the U.S. attorney’s office has dropped several prosecutions.`\
 https://www.nytimes.com/2026/08/03/us/reflecting-pool-charges.html
-
-**Cómo respondió Pedro Sánchez a la crisis en Ceuta**\
-`Miles de personas irrumpieron en el territorio que España controla en el norte de África y se culpó de la crisis a las políticas del presidente del gobierno, favorables a la inmigración. La realidad es más compleja.`\
-https://www.nytimes.com/es/2026/08/03/espanol/mundo/pedro-sanchez-espana-migracion-ceuta.html
-
-**Blanche’s Documents Addressing Trump I.R.S. Deal Leave Loopholes**\
-`Critics say the written assurances are a political solution to a political problem, rather than a legally binding document.`\
-https://www.nytimes.com/2026/08/03/us/politics/todd-blanche-trump-irs-fund-loopholes.html
-
-**Pasta and Pickles Salad**\
-`This recipe is your invitation to the pasta and pickle party. Dill pickles work double time here: The brine is added to the creamy dressing to bring acidity, while a generous amount of pickles are used in the salad, bringing crunch and saltiness.`\
-https://www.nytimes.com/video/dining/100000011070230/pasta-and-pickles-salad.html
-
-**Boeing’s Smallest 737 Jet Wins F.A.A. Approval**\
-`After years of delays, the Federal Aviation Administration has certified the Boeing 737 Max 7, the smallest version of the company’s best-selling plane.`\
-https://www.nytimes.com/2026/08/03/business/boeing-737-max.html
-
-**Jay Clayton Sworn In as Director of National Intelligence**\
-`Mr. Clayton’s delayed swearing-in ceremony gave Bill Pulte, a key ally of President Trump, a few more days as acting director of the office he boasted about shrinking.`\
-https://www.nytimes.com/2026/08/03/us/politics/jay-clayton-national-intelligence-director.html
-
-**For Trump, the Year Is Always 2020**\
-`President Trump insists on revisiting and rewriting much of what happened six years ago, including the coronavirus pandemic and the election he lost. Many voters would rather he focus on 2026.`\
-https://www.nytimes.com/2026/08/03/us/politics/trump-2020-covid-fauci-election.html
-
-**Migrantes marroquíes cuentan por qué cruzaron a Ceuta**\
-`Los relatos describen desesperación ante el futuro económico y explican las motivaciones al cruzar la frontera con España.`\
-https://www.nytimes.com/es/2026/08/03/espanol/mundo/ceuta-migrantes-marruecos.html
-
-**Brown’s President Will Resign after a Tenure that Included Trump Deal**\
-`The president, Christina H. Paxson, led the campus for over a decade, but in recent years faced protests, political pressure and a shooting that killed two students.`\
-https://www.nytimes.com/2026/08/03/us/brown-president-christina-paxson-resign.html
 

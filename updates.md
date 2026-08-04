@@ -1,3 +1,39 @@
+**Un nuevo acuerdo podría consolidar el control de Irán del estrecho de Ormuz**\
+`El acuerdo abordaría el problema político más urgente del presidente Trump al permitir que los barcos vuelvan a circular. Pero le daría a Irán una ventaja estratégica que no tenía antes de la guerra.`\
+https://www.nytimes.com/es/2026/08/04/espanol/trump-acuerdo-iran-estrecho-ormuz.html
+
+**Bajo el calor de Francia, los carteros acuden al rescate de los adultos mayores**\
+`Para ayudar a prevenir las muertes relacionadas con el calor, el gobierno francés ha pedido a los carteros que estén pendientes de las personas mayores.`\
+https://www.nytimes.com/es/2026/08/04/espanol/mundo/calor-francia-carteros-adultos-mayores.html
+
+**New Zealand Has Ended Greyhound Racing. Now It Has to Manage the Aftermath.**\
+`As the country holds its final greyhound race, the government has committed to finding homes for dogs and supporting people whose livelihoods depended on racing.`\
+https://www.nytimes.com/2026/08/04/world/australia/new-zealand-greyhound-racing-ban.html
+
+**Andy Burnham’s First Weeks as UK Prime Minister: TikToks, Podcasts and Promises**\
+`Andy Burnham’s social media push appears to be resonating with some voters. But he faces big decisions about how to pay for his promises.`\
+https://www.nytimes.com/2026/08/04/world/europe/andy-burnham-uk-prime-minister.html
+
+**How the Mohegan Tribe Lost a Billion-Dollar Casino in South Korea**\
+`Inspire Entertainment Resort — an alternative to Macau, the world’s gambling capital — was supposed to be a “transformational” project for the Native American tribe.`\
+https://www.nytimes.com/2026/08/04/world/asia/mohegan-south-korea-casino-bain.html
+
+**Sailors Working in Strait of Hormuz Are Caught in Crossfire of Iran War**\
+`Thousands of civilian workers remain stranded on ships at risk of attack by Iran. On one vessel, sailors have been held by the Iranian navy for more than three months.`\
+https://www.nytimes.com/2026/08/04/business/iran-strait-hormuz-shipping-sailors.html
+
+**A Currency Trader at Heart, Bessent Bets on Japan’s Yen**\
+`Coordinated intervention allowed Japan to support its currency without selling off its U.S. debt holdings.`\
+https://www.nytimes.com/2026/08/04/business/economy/bessent-yen-currency-support.html
+
+**Pakistan’s Kashmir Problem**\
+`A wave of protests is posing the most significant challenge in years to Islamabad’s authority in the region.`\
+https://www.nytimes.com/2026/08/04/world/asia/pakistan-kashmir-jaac-rawalkot-protests.html
+
+**JPMorgan Again Entangled in a FIFA Fiasco**\
+`After promising to learn from its role in a failed “Super League” that fueled fan anger, the Wall Street bank is involved in FIFA’s latest meltdown.`\
+https://www.nytimes.com/2026/08/04/world/europe/fifa-jpmorgan.html
+
 **Trump, Graham Dominate Senate Race: 5 Takeaways from South Carolina Debate.**\
 `The legacy of Lindsey Graham loomed over the field to replace him in a debate Monday. All eyes were on his sister, Darline, who was endorsed by President Trump.`\
 https://www.nytimes.com/2026/08/03/us/politics/graham-south-carolina-senate-debate.html
