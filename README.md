@@ -1,3 +1,7 @@
+**Late Night Reacts to Trump’s Latest Iran Deal Comments**\
+`“I’m not saying that they’re out of ideas, but the best option they came up with was pinning the war on Dr. Fauci,” Jimmy Fallon said.`\
+https://www.nytimes.com/2026/08/04/arts/television/late-night-trump-iran-deal.html
+
 **What Do Dictators Fear Most? Just Ask Nicaragua.**\
 `Nicaragua shows what happens when even dictators fear a rigged election.`\
 https://www.nytimes.com/2026/08/04/opinion/nicaragua-ortega-murillo-elections.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/03/opinion/ai-hype-tech-layoffs.html
 **Así es como China vigila a los extranjeros**\
 `Un panel de control policial sin protecciones ofreció un inusual vistazo al modo en que las autoridades chinas rastrean a los extranjeros al recopilar y agregar grandes cantidades de datos privados.`\
 https://www.nytimes.com/es/2026/08/03/espanol/mundo/china-vigilancia-extranjeros.html
-
-**Prosecutor in D.C. Moves to Dismiss More Reflecting Pool Cases**\
-`After revelations that a botched renovation, not vandalism, had caused the pool’s recent problems, the U.S. attorney’s office has dropped several prosecutions.`\
-https://www.nytimes.com/2026/08/03/us/reflecting-pool-charges.html
 
