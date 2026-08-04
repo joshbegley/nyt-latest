@@ -1,3 +1,15 @@
+**Inside the Oval Office Showdown Between Trump and Jeanine Pirro**\
+`Jeanine Pirro, the U.S. attorney for the District of Columbia, told President Trump that his interior secretary, Doug Burgum, had misled him with a self-serving cover story for his own mistakes.`\
+https://www.nytimes.com/2026/08/04/us/politics/trump-jeanine-pirro-showdown.html
+
+**SpaceX’s Spending on A.I. Soars, In First Results After I.P.O.**\
+`Elon Musk’s rocket company said its capital expenditures jumped nearly seven times from a year ago. Revenue also rose.`\
+https://www.nytimes.com/2026/08/04/technology/spacex-earnings-elon-musk.html
+
+**Bowen Yang to Make Broadway Debut as Mary Todd Lincoln in ‘Oh, Mary!’**\
+`The comic actor, who ended a celebrated run on “Saturday Night Live” last year, will begin a 12-week engagement in mid-September.`\
+https://www.nytimes.com/2026/08/04/theater/bowen-yang-broadway-oh-mary.html
+
 **Video: Dolphin Carries Dead Calf in What Experts Call Mourning**\
 `Footage posted by a conservancy group offers an unusual glimpse of a common behavior by dolphins that often goes unobserved.`\
 https://www.nytimes.com/2026/08/04/science/dolphin-mother-dead-calf.html
@@ -173,18 +185,6 @@ https://www.nytimes.com/interactive/2026/08/04/us/elections/results-washington-u
 **Washington Fourth Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Washington primary election.`\
 https://www.nytimes.com/interactive/2026/08/04/us/elections/results-washington-us-house-4-primary.html
-
-**Washington Third Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Washington primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-washington-us-house-3-primary.html
-
-**Washington Second Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Washington primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-washington-us-house-2-primary.html
-
-**Washington First Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Washington primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-washington-us-house-1-primary.html
 
 **Primary Elections Live Updates: Michigan’s Senate Battle Divides Democrats**\
 `Dr. Abdul El-Sayed, a progressive, faces Representative Haley Stevens, a moderate, in the Democratic primary for Senate. Kansas, Missouri, Virginia and Washington are also voting today.`\

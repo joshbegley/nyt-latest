@@ -1,3 +1,7 @@
+**Judge Sets Paramount-Warner Bros. Merger Trial for March**\
+`Paramount, which struck a $111 billion deal to acquire Warner Bros., had requested a November trial for an antitrust lawsuit brought by state attorneys general.`\
+https://www.nytimes.com/2026/08/04/business/media/paramount-warner-bros-trial-march.html
+
 **Inside the Oval Office Showdown Between Trump and Jeanine Pirro**\
 `Jeanine Pirro, the U.S. attorney for the District of Columbia, told President Trump that his interior secretary, Doug Burgum, had misled him with a self-serving cover story for his own mistakes.`\
 https://www.nytimes.com/2026/08/04/us/politics/trump-jeanine-pirro-showdown.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/interactive/2026/08/04/us/elections/results-washington-u
 **Washington Fifth Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Washington primary election.`\
 https://www.nytimes.com/interactive/2026/08/04/us/elections/results-washington-us-house-5-primary.html
-
-**Washington Fourth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Washington primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-washington-us-house-4-primary.html
 
 **Primary Elections Live Updates: Michigan’s Senate Battle Divides Democrats**\
 `Dr. Abdul El-Sayed, a progressive, faces Representative Haley Stevens, a moderate, in the Democratic primary for Senate. Kansas, Missouri, Virginia and Washington are also voting today.`\
