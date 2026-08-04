@@ -1,3 +1,15 @@
+**Stocks Open at Record High as Oil Falls on Hopes of Iran Deal**\
+`The price of Brent crude oil fell sharply`\
+https://www.nytimes.com/2026/08/04/business/stocks-sp500-oil-prices.html
+
+**A New Lethal Front in Ukraine: Its Beloved Gas Stations**\
+`Russian drone attacks have hit hundreds of gas stations in apparent retaliation for Ukraine’s attacks on oil refineries.`\
+https://www.nytimes.com/2026/08/04/world/europe/ukraine-gas-stations-russia.html
+
+**Inside the Spending of AIPAC, One of the U.S.'s Largest Super PACs**\
+`The lobbying group has more than doubled its spending on political campaigns, while rarely mentioning Israel. It has placed a large financial bet on today's Michigan Senate primary.`\
+https://www.nytimes.com/interactive/2026/08/04/us/politics/aipac-israel-funds-spending.html
+
 **These Employees Like Their A.I. Boss. Its Shop Is Kind of a Disaster.**\
 `A new study of a bot running a first-of-its-kind San Francisco store finds it is really friendly, but not very smart.`\
 https://www.nytimes.com/2026/08/04/us/ai-boss-san-francisco-andon-market.html
