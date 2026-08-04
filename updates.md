@@ -1,3 +1,7 @@
+**Late Night Reacts to Trump’s Latest Iran Deal Comments**\
+`“I’m not saying that they’re out of ideas, but the best option they came up with was pinning the war on Dr. Fauci,” Jimmy Fallon said.`\
+https://www.nytimes.com/2026/08/04/arts/television/late-night-trump-iran-deal.html
+
 **What Do Dictators Fear Most? Just Ask Nicaragua.**\
 `Nicaragua shows what happens when even dictators fear a rigged election.`\
 https://www.nytimes.com/2026/08/04/opinion/nicaragua-ortega-murillo-elections.html
