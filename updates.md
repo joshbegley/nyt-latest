@@ -1,3 +1,7 @@
+**What to Watch in Virginia’s First Primary Since Redistricting Battle**\
+`Redistricting turmoil started, then ended, the campaigns of several Democratic hopefuls and pushed others into more competitive races than they anticipated.`\
+https://www.nytimes.com/2026/08/04/us/politics/virginia-primary-first-election-redistricting.html
+
 **Trump’s Fame Built a Unique Coalition**\
 `On “The Opinions,” Jamelle Bouie argues that Trump’s decades in the public eye allowed him to attract voters in a way no other Republican can, making his coalition difficult — if not impossible — to replicate.`\
 https://www.nytimes.com/video/opinion/100000011063523/trumps-fame-built-a-unique-coalition.html
