@@ -1,3 +1,7 @@
+**Ariana Grande y el debate sobre la salud, la privacidad y la fama**\
+`La estrella pop anunció que se tomaría un descanso de la vida pública, lo que parecía destinado a acallar los debates sobre su apariencia física, los cuales se han intensificado desde 2023.`\
+https://www.nytimes.com/es/2026/08/04/espanol/cultura/ariana-grande-salud.html
+
 **Justice Dept. Charges Doctor in $95 Million Skin Substitute Fraud Scheme**\
 `Dr. Stephen Dubin, a wound care doctor in Nevada, is accused of applying unneeded, expensive wound coverings to seniors. He used the profits to buy yachts, the department said.`\
 https://www.nytimes.com/2026/08/04/health/skin-substitutes-medicare-fraud.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/interactive/2026/08/04/us/elections/results-washington-u
 **Virginia U.S. Senate Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Virginia primary election.`\
 https://www.nytimes.com/interactive/2026/08/04/us/elections/results-virginia-us-senate-primary.html
-
-**Virginia Ninth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Virginia primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-virginia-us-house-9-primary.html
 
 **Primary Elections Live Updates: Michigan’s Senate Battle Divides Democrats**\
 `Dr. Abdul El-Sayed, a progressive, faces Representative Haley Stevens, a moderate, in the Democratic primary for Senate. Kansas, Missouri, Virginia and Washington are also voting today.`\

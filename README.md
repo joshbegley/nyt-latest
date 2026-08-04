@@ -1,3 +1,15 @@
+**Video: Dolphin Carries Dead Calf in What Experts Call Mourning**\
+`Footage posted by a conservancy group offers an unusual glimpse of a common behavior by dolphins that often goes unobserved.`\
+https://www.nytimes.com/2026/08/04/science/dolphin-mother-dead-calf.html
+
+**Dolphin Carries Dead Calf Among Pod of Dolphins**\
+`A mother dolphin was spotted carrying the dead body of her two-week-old calf south of Perth, Australia.`\
+https://www.nytimes.com/video/world/australia/100000011072318/dolphin-carries-dead-calf-australia.html
+
+**La estrategia de Uber frente a las demandas por agresión sexual**\
+`En público, el gigante de los viajes de aplicación afirma que apoya a las víctimas de agresión sexual, pero sus abogados han adoptado una estrategia mucho más agresiva.`\
+https://www.nytimes.com/es/2026/08/04/espanol/negocios/uber-agresion-sexual-demandas.html
+
 **Ariana Grande y el debate sobre la salud, la privacidad y la fama**\
 `La estrella pop anunció que se tomaría un descanso de la vida pública, lo que parecía destinado a acallar los debates sobre su apariencia física, los cuales se han intensificado desde 2023.`\
 https://www.nytimes.com/es/2026/08/04/espanol/cultura/ariana-grande-salud.html
@@ -173,18 +185,6 @@ https://www.nytimes.com/interactive/2026/08/04/us/elections/results-washington-u
 **Washington First Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Washington primary election.`\
 https://www.nytimes.com/interactive/2026/08/04/us/elections/results-washington-us-house-1-primary.html
-
-**Washington Supreme Court 2026: Live Election Results**\
-`Get live results and maps from the 2026 Washington primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-washington-supreme-court.html
-
-**Washington 10th Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Washington primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-washington-us-house-10-primary.html
-
-**Virginia U.S. Senate Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Virginia primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-virginia-us-senate-primary.html
 
 **Primary Elections Live Updates: Michigan’s Senate Battle Divides Democrats**\
 `Dr. Abdul El-Sayed, a progressive, faces Representative Haley Stevens, a moderate, in the Democratic primary for Senate. Kansas, Missouri, Virginia and Washington are also voting today.`\
