@@ -1,3 +1,7 @@
+**AIPAC Spending Dominates the Michigan Democratic Senate Primary**\
+`Representative Haley Stevens has been backed by tens of millions of dollars, much of it from pro-Israel groups and hidden donors. Her rival, Dr. Abdul El-Sayed, has tried to make that support a liability.`\
+https://www.nytimes.com/2026/08/04/us/politics/michigan-democratic-senate-primary-aipac.html
+
 **When to Expect Results in Michigan, Virginia, Missouri, Washington and Kansas**\
 `Voters will cast ballots in several primaries. Unofficial results will most likely be known late Tuesday or early Wednesday.`\
 https://www.nytimes.com/2026/08/04/us/politics/results-timing-michigan-virginia-missouri-washington-kansas.html
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/08/04/technology/amazon-nj-lawsuit.html
 **An Angry Trump Struggles to Understand Iran’s Defiant Leaders**\
 `Iran’s leaders have perplexed several American presidents, perhaps none more than President Trump.`\
 https://www.nytimes.com/2026/08/04/us/politics/trump-iran.html
-
-**What to Watch in Michigan’s High-Stakes Primary Elections**\
-`A high-stakes Senate contest and other races will offer fresh indicators of what Democratic voters are seeking.`\
-https://www.nytimes.com/2026/08/04/us/politics/michigan-primary-election-el-sayed-stevens.html
 
 **Primary Elections Live Updates: Divisive Michigan Senate Battle Enters Final Hour**\
 `Dr. Abdul El-Sayed, a progressive, is facing Representative Haley Stevens, a moderate, in the Democratic primary for Senate. Polls are closed in Virginia. Kansas, Missouri and Washington are also voting today.`\
