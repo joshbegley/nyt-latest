@@ -82,7 +82,7 @@ https://www.nytimes.com/2026/08/04/business/media/paramount-warner-bros-trial-ma
 `Jeanine Pirro, the U.S. attorney for the District of Columbia, told President Trump that his interior secretary, Doug Burgum, had misled him with a self-serving cover story for his own mistakes.`\
 https://www.nytimes.com/2026/08/04/us/politics/trump-jeanine-pirro-showdown.html
 
-**SpaceX’s Spending on A.I. Soars, In First Results After I.P.O.**\
+**SpaceX’s Spending on A.I. Soars in First Results After I.P.O.**\
 `Elon Musk’s rocket company said its capital expenditures jumped nearly seven times from a year ago. Revenue also rose.`\
 https://www.nytimes.com/2026/08/04/technology/spacex-earnings-elon-musk.html
 

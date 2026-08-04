@@ -1,3 +1,7 @@
+**The Art That Made Lena Waithe (And What’s on Her Playlist Now)**\
+`Lena Waithe reflects on the pop culture moments that sparked her imagination and continue to shape her creativity.`\
+https://www.nytimes.com/video/arts/100000010968795/lena-waithe-interview-playlist.html
+
 **C.D.C. Expands Cyclospora Outbreak to More States**\
 `Arkansas and Missouri are now among the states linked to the outbreak associated with iceberg lettuce.`\
 https://www.nytimes.com/2026/08/04/well/eat/cdc-cyclospora-outbreak-15-states.html
