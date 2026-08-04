@@ -1,3 +1,7 @@
+**JPMorgan Again Entangled in a Soccer Fiasco**\
+`After promising to learn from its role in a failed “Super League” that fueled fan anger, the Wall Street bank is involved in FIFA’s latest meltdown.`\
+https://www.nytimes.com/2026/08/04/world/europe/fifa-jpmorgan.html
+
 **‘A War Zone’: Spokane Wildfires Leave a Devastating Trail of Destruction**\
 `Despite the scale of the damage, there have been no reported fatalities in the fires that started over the weekend. Late on Monday, officials arrested a man suspected of setting one of the fires.`\
 https://www.nytimes.com/2026/08/03/us/spokane-wildfires-update.html
