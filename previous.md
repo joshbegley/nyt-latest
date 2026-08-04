@@ -194,7 +194,3 @@ https://www.nytimes.com/2026/08/04/well/eat/heartburn-otc-treatement-options.htm
 `A conflict between street vendors calling themselves Hoodwill and a Brooklyn Goodwill appears to question the intentions behind selling donated wares.`\
 https://www.nytimes.com/2026/08/04/style/hoodwill-vs-goodwill.html
 
-**Uber’s Strategy for Fighting Sexual Assault Suits: ‘What Were You Wearing?’**\
-`The ride-hailing giant promised to handle legal claims “in a way that is best for the survivor.” Its lawyers are pursuing a far more aggressive strategy.`\
-https://www.nytimes.com/2026/08/04/business/uber-sexual-assault-lawsuits.html
-
