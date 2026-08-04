@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/australia/100000011071298/04visualUploader-64786.html
+
 **EE. UU. envió un avión con 147 deportados a Venezuela por primera vez desde los sismos**\
 `El Departamento de Seguridad Nacional de EE. UU. no quiso confirmar si la llegada del vuelo significaba la reanudación de los vuelos de deportación.`\
 https://www.nytimes.com/es/2026/08/03/espanol/america-latina/venezuela-vuelo-deportacion-estados-unidos.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/08/03/us/brown-president-christina-paxson-resign.ht
 **Another Trump Fiasco: The Reflecting Pool**\
 `Readers see the saga as a symbol of Trump administration failures. Also: Ominous plans for Head Start; land acknowledgments.`\
 https://www.nytimes.com/2026/08/03/opinion/trump-reflecting-pool.html
-
-**Documents Undercut Trump’s Claims About Bears Ears National Monument**\
-`President Trump said recreation in Bears Ears National Monument was virtually impossible. Documents reviewed by The New York Times show officials knew otherwise.`\
-https://www.nytimes.com/2026/08/03/climate/trump-bears-ears-monument-recreation.html
 
