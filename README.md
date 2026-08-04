@@ -1,3 +1,7 @@
+**Trump’s Fame Built a Unique Coalition**\
+`On “The Opinions,” Jamelle Bouie argues that Trump’s decades in the public eye allowed him to attract voters in a way no other Republican can, making his coalition difficult — if not impossible — to replicate.`\
+https://www.nytimes.com/video/opinion/100000011063523/trumps-fame-built-a-unique-coalition.html
+
 **Why Wall Street Is Feeling So Bullish**\
 `Booming corporate profits are driving the S&P 500 near another record, dampening concerns about the war, inflation and more.`\
 https://www.nytimes.com/2026/08/04/business/dealbook/wall-street-bullish-stocks.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/04/t-magazine/important-sculptures-modern-age.ht
 **Their Forefather Was a Grocer and Mozart’s Most Important Librettist**\
 `Generations on, Lorenzo Da Ponte’s family keeps alive the memory of this poet and libertine, who ended up in the middle of Pennsylvania after being booted from Venice and Vienna.`\
 https://www.nytimes.com/2026/08/04/arts/music/mozart-librettist-da-ponte-american-descendant.html
-
-**Book Review: ‘Don’t Be Evil,’ by Claire Stapleton**\
-`In “Don’t Be Evil,” Claire Stapleton, a former Google spin doctor, tries to make sense of her time in the industry.`\
-https://www.nytimes.com/2026/08/04/books/review/dont-be-evil-claire-stapleton.html
 
