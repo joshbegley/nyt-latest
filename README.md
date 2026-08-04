@@ -1,3 +1,7 @@
+**Trump, Graham Dominate Senate Race: 5 Takeaways from South Carolina Debate.**\
+`The legacy of Lindsey Graham loomed over the field to replace him in a debate Monday. All eyes were on his sister, Darline, who was endorsed by President Trump.`\
+https://www.nytimes.com/2026/08/03/us/politics/graham-south-carolina-senate-debate.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/australia/100000011071298/04visualUploader-64786.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/es/2026/08/03/espanol/mundo/ceuta-migrantes-marruecos.ht
 **Brown’s President Will Resign after a Tenure that Included Trump Deal**\
 `The president, Christina H. Paxson, led the campus for over a decade, but in recent years faced protests, political pressure and a shooting that killed two students.`\
 https://www.nytimes.com/2026/08/03/us/brown-president-christina-paxson-resign.html
-
-**Another Trump Fiasco: The Reflecting Pool**\
-`Readers see the saga as a symbol of Trump administration failures. Also: Ominous plans for Head Start; land acknowledgments.`\
-https://www.nytimes.com/2026/08/03/opinion/trump-reflecting-pool.html
 
