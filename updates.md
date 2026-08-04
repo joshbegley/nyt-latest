@@ -1,3 +1,11 @@
+**Derby Club Gives the Former Neary’s Space a Touch of Elegance**\
+`Camp 5 Acres channels Boy Scout vibes, sourdough bread from Mark Bittman and more restaurant news.`\
+https://www.nytimes.com/2026/08/04/dining/restaurant-news-nyc.html
+
+**Man’s Claim of Runaway Jaguar Was a Scam to Avoid Car Payments, Court Rules**\
+`Nathan Owen called the police, saying his car’s brakes had failed. A judge determined it was a lie and sentenced him to more than four years in prison.`\
+https://www.nytimes.com/2026/08/04/world/europe/runaway-car-jaguar-uk.html
+
 **How Well Is the Progressive Left Actually Doing?**\
 `Its wins have been largely confined to highly educated and heavily Democratic parts of urban America. But two races could change that.`\
 https://www.nytimes.com/2026/08/04/upshot/progressive-left-michigan-wisconsin.html
