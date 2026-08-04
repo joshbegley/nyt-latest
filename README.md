@@ -1,3 +1,7 @@
+**‘A War Zone’: Spokane Wildfires Leave a Devastating Trail of Destruction**\
+`Despite the scale of the damage, there have been no reported fatalities in the fires that started over the weekend. Weather conditions have improved, allowing some evacuees to return.`\
+https://www.nytimes.com/2026/08/03/us/spokane-wildfires-update.html
+
 **Senate Moves Ahead on Bill to Avert a Shutdown**\
 `Senators in both parties are eager to avoid another spending skirmish before the midterm elections, but the measure still must pass the House.`\
 https://www.nytimes.com/2026/08/03/us/politics/senate-spending-bill-shutdown-midterms.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/08/03/business/media/sharyn-alfonsi-scott-pelley-co
 **After Colleges Reject ‘Compact,’ Trump Officials Try a Letter**\
 `The open letter from Education Secretary Linda McMahon fell far short of the attempt at a compact last year that dangled research money in return for embracing the Trump administration’s agenda.`\
 https://www.nytimes.com/2026/08/03/us/trump-mcmahon-colleges-letter.html
-
-**2 Killed After Firefighting Helicopters Crash in Greece**\
-`Two men were killed after a pair of firefighting helicopters collided while battling blazes northwest of Athens on Sunday. Greece is one of several European countries struggling to contain summer wildfires.`\
-https://www.nytimes.com/video/world/europe/100000011069330/greece-wildfires-helicopters-crash.html
 
