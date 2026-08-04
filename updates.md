@@ -1,3 +1,11 @@
+**It’s Primary Night in Michigan and Four Other States**\
+`Plus, an arrest in the Spokane wildfires. Here’s the latest at the end of Tuesday.`\
+https://www.nytimes.com/2026/08/04/briefing/michigan-primary-spokane.html
+
+**Missouri Says Voters Cannot Decide on Redrawn Congressional Districts**\
+`Opponents of the new map, which was redrawn to benefit Republicans, had gathered signatures seeking a statewide vote. The issue could now move to the courts.`\
+https://www.nytimes.com/2026/08/04/us/missouri-redistricting-referendum-result.html
+
 **After Midtown Building Buckles, Violations Are Found at Many Other Sites**\
 `New York City officials conducted inspections at 180 construction sites. None of the violations posed an immediate danger to the public, they said.`\
 https://www.nytimes.com/2026/08/04/nyregion/nyc-buildings-violations-conversions.html

@@ -182,10 +182,6 @@ https://www.nytimes.com/2026/08/04/well/longevity-callout.html
 `Camp 5 Acres channels Boy Scout vibes, sourdough bread from Mark Bittman and more restaurant news.`\
 https://www.nytimes.com/2026/08/04/dining/restaurant-news-nyc.html
 
-**Man’s Claim That Brakes Failed on Jaguar Was Scam to Avoid Car Payments, Court Rules**\
-`Nathan Owen called the police, saying he was trapped in a runaway car. A judge determined it was a lie and sentenced him to more than four years in prison.`\
-https://www.nytimes.com/2026/08/04/world/europe/runaway-car-jaguar-uk.html
-
 **Primary Elections Live Updates: Michigan’s Senate Battle Divides Democrats**\
 `Dr. Abdul El-Sayed, a progressive, faces Representative Haley Stevens, a moderate, in the Democratic primary for Senate. Kansas, Missouri, Virginia and Washington are also voting today.`\
 https://www.nytimes.com/live/2026/08/04/us/midterms-elections-michigan-virginia
