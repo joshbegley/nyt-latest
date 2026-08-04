@@ -1,3 +1,7 @@
+**After Midtown Building Buckles, Violations Are Found at Many Other Sites**\
+`After two steel beams buckled at a Manhattan high-rise last month, city officials conducted inspections at dozens of construction sites across the city. None of the violations posed a danger to the public, the city said.`\
+https://www.nytimes.com/2026/08/04/nyregion/nyc-buildings-violations-conversions.html
+
 **New Zealand’s Final Greyhound Race**\
 `Last week, hundreds of people gathered to witness New Zealand’s final commercial greyhound race. The country banned the sport amid concerns about the dogs’ welfare.`\
 https://www.nytimes.com/video/world/australia/100000011072216/new-zealand-greyhound-racing.html

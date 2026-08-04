@@ -1,3 +1,7 @@
+**Eaton Fire Caused by Utility’s Transmission Tower, Report Says**\
+`The 2025 fire, which killed 19 people and destroyed the Altadena community in Los Angeles County, began at an inactive tower belonging to Southern California Edison, officials said.`\
+https://www.nytimes.com/2026/08/04/us/eaton-fire-cause-transmission-tower-report.html
+
 **New Zealand’s Final Greyhound Race**\
 `Last week, hundreds of people gathered to witness New Zealand’s final commercial greyhound race. The country banned the sport amid concerns about the dogs’ welfare.`\
 https://www.nytimes.com/video/world/australia/100000011072216/new-zealand-greyhound-racing.html
@@ -185,14 +189,6 @@ https://www.nytimes.com/interactive/2026/08/04/us/elections/results-virginia-us-
 **Virginia Third Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Virginia primary election.`\
 https://www.nytimes.com/interactive/2026/08/04/us/elections/results-virginia-us-house-3-primary.html
-
-**Virginia Second Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Virginia primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-virginia-us-house-2-primary.html
-
-**Virginia First Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Virginia primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-virginia-us-house-1-primary.html
 
 **Primary Elections Live Updates: Michigan’s Senate Battle Divides Democrats**\
 `Dr. Abdul El-Sayed, a progressive, faces Representative Haley Stevens, a moderate, in the Democratic primary for Senate. Kansas, Missouri, Virginia and Washington are also voting today.`\
