@@ -1,3 +1,15 @@
+**NYT Crossword Answers for August 4, 2026**\
+`Vasu Seralathan marries humor and culture.`\
+https://www.nytimes.com/2026/08/03/crosswords/daily-puzzle-2026-08-04.html
+
+**Drone Explodes on Russian Beach, Killing 7, Officials Say**\
+`It was unclear what the drone was targeting and why it crashed in the crowded resort spot, but it has been a deadly summer for civilians caught up in the Russian-Ukrainian war.`\
+https://www.nytimes.com/2026/08/03/world/europe/drone-russian-beach-explosion.html
+
+**Deadly Drone Explodes on Russian Beach**\
+`A drone crashed into a beach in Russia on Monday, leaving at least 7 people dead, officials said.`\
+https://www.nytimes.com/video/embedded/world/europe/100000011071190/deadly-drone-explodes-on-russian-beach.html
+
 **Spotlight on Fauci Said to Boost Book Sales for Kennedy and His Publisher**\
 `Health Secretary Robert F. Kennedy Jr., his son, and Senator Rand Paul have all written books criticizing Dr. Anthony S. Fauci. All were published by a company led by a close Kennedy adviser.`\
 https://www.nytimes.com/2026/08/03/us/politics/fauci-rfk-publisher.html
