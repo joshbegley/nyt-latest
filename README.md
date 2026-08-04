@@ -1,9 +1,13 @@
+**Songs for the Return of Lizard Season 🦎☀️**\
+`Let Victoryland, Way Dynamic, Lolitah and other artists help you embrace Peak Summer.`\
+https://www.nytimes.com/2026/08/04/arts/music/amplifier-newsletter-summer-way-machine-lolitah.html
+
 **The New York City Parking Sticker of Shame Is Back**\
 `After 14 years, the city has returned to slapping bright stickers on cars that do not move for street sweepers.`\
 https://www.nytimes.com/2026/08/04/nyregion/nyc-parking-stickers.html
 
 **Un académico estrella de Cambridge levanta cada vez más dudas sobre su vida y carrera**\
-`Un hombre enmascarado armado con un cuchillo. Una cabeza de cerdo en la puerta de sus padres. Correr 30 maratones en 35 días. Jason Arday, acusado de plagio, dice haber pasado por todo eso. No todos le creen.`\
+`Un hombre enmascarado armado con un cuchillo. Una cabeza de cerdo en la puerta de sus padres. Treinta maratones en 35 días. Jason Arday dice haber pasado por todo eso. No todos le creen.`\
 https://www.nytimes.com/es/2026/08/04/espanol/cultura/cambridge-plagio-racismo.html
 
 **‘Disruption’ Review: John David Washington as Just Another Tech Bro**\
@@ -39,7 +43,7 @@ https://www.nytimes.com/2026/08/04/opinion/companies-climate-change.html
 https://www.nytimes.com/2026/08/04/style/stores-best-shopping-nyc.html
 
 **Talks With Iran to Reopen Strait of Hormuz Make Progress, Officials Say**\
-`Qatar said that draft language of a deal was being circulated, while the U.S. Treasury secretary suggested an agreement may be imminent.`\
+`Qatar said that draft language of a deal was being circulated, while Secretary of State Marco Rubio expressed optimism about the talks but added that nothing was final yet.`\
 https://www.nytimes.com/2026/08/04/world/middleeast/strait-of-hormuz-deal-progress.html
 
 **Kansas Governor Primary 2026: Live Election Results**\
@@ -190,11 +194,7 @@ https://www.nytimes.com/interactive/2026/08/04/us/elections/results-missouri-us-
 `Get live results and maps from the 2026 Missouri primary election.`\
 https://www.nytimes.com/interactive/2026/08/04/us/elections/results-missouri-us-house-1-primary.html
 
-**Missouri Auditor Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Missouri primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-missouri-auditor-primary.html
-
-**Missouri Amendment 5 Election Results 2026: Eliminate Income Tax**\
-`Get live results and maps from the 2026 Missouri general election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-missouri-amendment-5-eliminate-income-tax.html
+**Primary Elections Live Updates: Michigan’s Senate Battle Leads a Five-State Slate**\
+`Dr. Abdul El-Sayed, a progressive, faces Representative Haley Stevens, a moderate, in the Democratic primary for Senate. Kansas, Missouri, Virginia and Washington are also voting today.`\
+https://www.nytimes.com/live/2026/08/04/us/midterms-elections-michigan-virginia
 

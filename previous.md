@@ -1,3 +1,7 @@
+**The New York City Parking Sticker of Shame Is Back**\
+`After 14 years, the city has returned to slapping bright stickers on cars that do not move for street sweepers.`\
+https://www.nytimes.com/2026/08/04/nyregion/nyc-parking-stickers.html
+
 **Un académico estrella de Cambridge levanta cada vez más dudas sobre su vida y carrera**\
 `Un hombre enmascarado armado con un cuchillo. Una cabeza de cerdo en la puerta de sus padres. Correr 30 maratones en 35 días. Jason Arday, acusado de plagio, dice haber pasado por todo eso. No todos le creen.`\
 https://www.nytimes.com/es/2026/08/04/espanol/cultura/cambridge-plagio-racismo.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/08/04/us/elections/results-missouri-aud
 **Missouri Amendment 5 Election Results 2026: Eliminate Income Tax**\
 `Get live results and maps from the 2026 Missouri general election.`\
 https://www.nytimes.com/interactive/2026/08/04/us/elections/results-missouri-amendment-5-eliminate-income-tax.html
-
-**Missouri Amendment 4 Election Results 2026: Modify Amendment Approval Requirements**\
-`Get live results and maps from the 2026 Missouri general election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-missouri-amendment-4-modify-amendment-approval-requirements-and-prohibit-foreign-spending-on-measures.html
 
