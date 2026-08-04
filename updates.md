@@ -1,3 +1,15 @@
+**Video: Dolphin Carries Dead Calf in What Experts Call Mourning**\
+`Footage posted by a conservancy group offers an unusual glimpse of a common behavior by dolphins that often goes unobserved.`\
+https://www.nytimes.com/2026/08/04/science/dolphin-mother-dead-calf.html
+
+**Dolphin Carries Dead Calf Among Pod of Dolphins**\
+`A mother dolphin was spotted carrying the dead body of her two-week-old calf south of Perth, Australia.`\
+https://www.nytimes.com/video/world/australia/100000011072318/dolphin-carries-dead-calf-australia.html
+
+**La estrategia de Uber frente a las demandas por agresión sexual**\
+`En público, el gigante de los viajes de aplicación afirma que apoya a las víctimas de agresión sexual, pero sus abogados han adoptado una estrategia mucho más agresiva.`\
+https://www.nytimes.com/es/2026/08/04/espanol/negocios/uber-agresion-sexual-demandas.html
+
 **Ariana Grande y el debate sobre la salud, la privacidad y la fama**\
 `La estrella pop anunció que se tomaría un descanso de la vida pública, lo que parecía destinado a acallar los debates sobre su apariencia física, los cuales se han intensificado desde 2023.`\
 https://www.nytimes.com/es/2026/08/04/espanol/cultura/ariana-grande-salud.html
