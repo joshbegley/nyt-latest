@@ -1,3 +1,7 @@
+**Fire in Manhattan Subway Injures 14 and Disrupts Commute**\
+`A maintenance train at Astor Place caught fire after 2 a.m., suspending service on part of the Lexington Avenue line, officials said. It later reopened with severe delays.`\
+https://www.nytimes.com/2026/08/04/nyregion/astor-place-train-fire-subway-mta.html
+
 **U.S. Stocks Near a Record High Amid Lull in Iran War**\
 `Markets have been lashed between disruptions in the Strait of Hormuz and anxiety about massive corporate investments in artificial intelligence.`\
 https://www.nytimes.com/2026/08/04/business/stocks-sp500-oil-prices.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/04/books/review/dont-be-evil-claire-stapleton.ht
 **Phoenix Species Project Announces Funds for Imperiled Wildlife**\
 `A new fund called the Phoenix Species Project will provide $200 million to help pull imperiled species back from the brink of extinction.`\
 https://www.nytimes.com/2026/08/04/climate/phoenix-species-project-bezos-dicaprio-rewild.html
-
-**Inside Uber’s Legal Strategy to Fight Sexual Assault Lawsuits**\
-`Our investigative reporter Emily Steel reviewed about a dozen lawsuits against Uber by riders who say they were sexually assaulted or harassed during their rides. They reveal the aggressive tactics Uber’s lawyers are taking as part of their defense strategy.`\
-https://www.nytimes.com/video/business/100000011021856/uber-sexual-assault-lawsuits.html
 

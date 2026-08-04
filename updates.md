@@ -1,3 +1,7 @@
+**U.S. Stocks Near a Record High Amid Lull in Iran War**\
+`Markets have been lashed between disruptions in the Strait of Hormuz and anxiety about massive corporate investments in artificial intelligence.`\
+https://www.nytimes.com/2026/08/04/business/stocks-sp500-oil-prices.html
+
 **McDonald’s U.S. Sales Slow as Consumers Spend More Cautiously**\
 `The fast-food giant named a new president of its U.S. operations, aiming to bring “focus and urgency” to a revamp of its outlets.`\
 https://www.nytimes.com/2026/08/04/business/mcdonalds-earnings-consumers-inflation.html
