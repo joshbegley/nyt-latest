@@ -1,3 +1,7 @@
+**An Emerging Deal Between Iran and Oman to Reopen Hormuz Would Come at a Cost for Trump**\
+`The deal would address President Trump’s most urgent political problem by allowing ships to move again. But it would give Iran strategic leverage it did not have before the war.`\
+https://www.nytimes.com/2026/08/03/us/politics/strait-of-hormuz-possible-reopening-deal.html
+
 **U.S. Sends Flight With Deportees to Venezuela for First Time Since Earthquakes**\
 `A plane with 147 Venezuelans landed on Monday in the South American country amid criticism over the deaths of deportees housed in a collapsed building during June’s quakes.`\
 https://www.nytimes.com/2026/08/03/world/americas/venezuela-us-deportation-flights-resume.html
