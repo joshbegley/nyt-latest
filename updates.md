@@ -1,3 +1,27 @@
+**Will Michigan Rewrite the Rules of Democratic Politics?**\
+`The state’s primary on Tuesday is a critical front in the conflict between Democrats’ progressive and moderate flanks.`\
+https://www.nytimes.com/2026/08/04/podcasts/the-daily/will-michigan-rewrite-the-rules-of-democratic-politics.html
+
+**NYT Connections Answers for August 5, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Aug. 5, 2026.`\
+https://www.nytimes.com/2026/08/04/crosswords/connections-companion-1151.html
+
+**NYT Strands Hints for Aug. 5, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Aug. 5, 2026.`\
+https://www.nytimes.com/2026/08/04/crosswords/strands-sidekick-885.html
+
+**Today’s Wordle Hints for August 5, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Aug. 5, 2026.`\
+https://www.nytimes.com/2026/08/04/crosswords/wordle-review-1873.html
+
+**The New Deal That Could Lock in Iran’s Control of the Strait, and the $7 Billion Trump’s Not Spending**\
+`Plus, where are you supposed to practice the bagpipes?`\
+https://www.nytimes.com/2026/08/04/podcasts/the-headlines/iran-deal-strait-of-hormuz-trump-spending.html
+
+**The A.I. Giants Weren’t Prepared for This**\
+`Jasmine Sun, a writer covering technology, takes us into the backlash against A.I. data centers.`\
+https://www.nytimes.com/2026/08/04/opinion/ezra-klein-podcast-jasmine-sun.html
+
 **Live Updates: Michigan’s Senate Battle Leads a Five-State Primary Slate**\
 `Dr. Abdul El-Sayed, a progressive, faces Representative Haley Stevens, a moderate, in the Democratic primary for Senate. Kansas, Missouri, Virginia and Washington are also voting today.`\
 https://www.nytimes.com/live/2026/08/04/us/midterms-michigan-virginia

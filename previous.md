@@ -1,3 +1,23 @@
+**Will Michigan Rewrite the Rules of Democratic Politics?**\
+`The state’s primary on Tuesday is a critical front in the conflict between Democrats’ progressive and moderate flanks.`\
+https://www.nytimes.com/2026/08/04/podcasts/the-daily/will-michigan-rewrite-the-rules-of-democratic-politics.html
+
+**NYT Connections Answers for August 5, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Aug. 5, 2026.`\
+https://www.nytimes.com/2026/08/04/crosswords/connections-companion-1151.html
+
+**NYT Strands Hints for Aug. 5, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Aug. 5, 2026.`\
+https://www.nytimes.com/2026/08/04/crosswords/strands-sidekick-885.html
+
+**Today’s Wordle Hints for August 5, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Aug. 5, 2026.`\
+https://www.nytimes.com/2026/08/04/crosswords/wordle-review-1873.html
+
+**The New Deal That Could Lock in Iran’s Control of the Strait, and the $7 Billion Trump’s Not Spending**\
+`Plus, where are you supposed to practice the bagpipes?`\
+https://www.nytimes.com/2026/08/04/podcasts/the-headlines/iran-deal-strait-of-hormuz-trump-spending.html
+
 **Live Updates: Michigan’s Senate Battle Leads a Five-State Primary Slate**\
 `Dr. Abdul El-Sayed, a progressive, faces Representative Haley Stevens, a moderate, in the Democratic primary for Senate. Kansas, Missouri, Virginia and Washington are also voting today.`\
 https://www.nytimes.com/live/2026/08/04/us/midterms-michigan-virginia
@@ -42,7 +62,7 @@ https://www.nytimes.com/2026/08/04/us/politics/iran-war-complications-trump-agen
 `The Trump administration has struggled over how to approach to “open source” models, which are freely available to download and favored by Chinese companies.`\
 https://www.nytimes.com/2026/08/04/technology/ai-washington-regulation-whiplash.html
 
-**The A.I. Revolt Is Here**\
+**The A.I. Giants Weren’t Prepared for This**\
 `Jasmine Sun, a writer covering technology, takes us into the backlash against A.I. data centers.`\
 https://www.nytimes.com/2026/08/04/opinion/ezra-klein-podcast-jasmine-sun.html
 
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/08/04/style/hoodwill-vs-goodwill.html
 **Uber’s Strategy for Fighting Sexual Assault Suits: ‘What Were You Wearing?’**\
 `The ride-hailing giant promised to handle legal claims “in a way that is best for the survivor.” Its lawyers are pursuing a far more aggressive strategy.`\
 https://www.nytimes.com/2026/08/04/business/uber-sexual-assault-lawsuits.html
-
-**The End of Passwords**\
-`Learn how password managers and passkeys make staying safe online easier.`\
-https://www.nytimes.com/2026/08/04/podcasts/the-end-of-passwords.html
-
-**Saudi Aramco Reports 33% Profit Surge Despite War’s Disruption**\
-`Higher oil prices propelled a quarterly earnings jump for Saudi Arabia’s energy giant, which used pipelines to work around disruptions in the Strait of Hormuz.`\
-https://www.nytimes.com/2026/08/04/business/saudi-aramco-earnings-iran-war.html
-
-**Trump quiere que los estadounidenses desaprendan lo que saben**\
-`Es así como decidimos quiénes somos y quiénes aspiramos a ser.`\
-https://www.nytimes.com/es/2026/08/04/espanol/opinion/trump-memoria-reescribir-historia.html
-
-**El banco más antiguo del mundo enfrenta una nueva amenaza**\
-`Banca Monte dei Paschi di Siena, fundado en 1472, ha resistido guerras, pandemias y escándalos. Ahora, una oferta pública de adquisición hostil mantiene en vilo a la Toscana.`\
-https://www.nytimes.com/es/2026/08/04/espanol/negocios/italia-banco-antiguo-monte-paschi.html
-
-**En Alaska, una gran ola se ha vuelto un destino para surfistas**\
-`El macareo de Turnagain Arm se está dando a conocer entre los surfistas de olas grandes que buscan uno de los recorridos más inusuales del mundo. Pero conlleva peligros.`\
-https://www.nytimes.com/es/2026/08/04/espanol/estados-unidos/alaska-gran-ola-surfistas-peligro.html
 
