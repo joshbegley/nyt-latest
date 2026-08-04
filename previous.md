@@ -1,3 +1,7 @@
+**Restaurant Review: Bar Chucho in NYC**\
+`Bar Chucho — from the team behind the Michelin-starred Mexican standout Corima — overachieves but stays true to its purpose. And there’s a great burger at a fair price.`\
+https://www.nytimes.com/2026/08/04/dining/restaurant-review-bar-chucho-nyc.html
+
 **Eaton Fire Caused by Utility’s Transmission Tower, Report Says**\
 `The 2025 fire, which killed 19 people and destroyed the Altadena community in Los Angeles County, began at an inactive tower belonging to Southern California Edison, officials said.`\
 https://www.nytimes.com/2026/08/04/us/eaton-fire-cause-transmission-tower-report.html
@@ -181,14 +185,6 @@ https://www.nytimes.com/interactive/2026/08/04/us/elections/results-virginia-us-
 **Virginia Fifth Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Virginia primary election.`\
 https://www.nytimes.com/interactive/2026/08/04/us/elections/results-virginia-us-house-5-primary.html
-
-**Virginia Fourth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Virginia primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-virginia-us-house-4-primary.html
-
-**Virginia Third Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Virginia primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-virginia-us-house-3-primary.html
 
 **Primary Elections Live Updates: Michigan’s Senate Battle Divides Democrats**\
 `Dr. Abdul El-Sayed, a progressive, faces Representative Haley Stevens, a moderate, in the Democratic primary for Senate. Kansas, Missouri, Virginia and Washington are also voting today.`\

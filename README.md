@@ -1,3 +1,11 @@
+**Stocks Hit a Record as Worries About Middle East and A.I. Ease**\
+`The S&P 500 rose 1.8 percent, pushing past its previous peak at the start of June and capping big turnaround from a recent sell off in technology stocks.`\
+https://www.nytimes.com/2026/08/04/business/stock-market-record.html
+
+**Uno de los países más pequeños del mundo cambia su nombre**\
+`Antes llamada Nauru, la isla del Pacífico Sur quiere que su nombre coincida mejor con la forma en que se pronuncia en el idioma que habla su pueblo.`\
+https://www.nytimes.com/es/2026/08/04/espanol/mundo/pais-mas-pequeno-naoreo-nauru.html
+
 **Restaurant Review: Bar Chucho in NYC**\
 `Bar Chucho — from the team behind the Michelin-starred Mexican standout Corima — overachieves but stays true to its purpose. And there’s a great burger at a fair price.`\
 https://www.nytimes.com/2026/08/04/dining/restaurant-review-bar-chucho-nyc.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/interactive/2026/08/04/us/elections/results-virginia-us-
 **Virginia Seventh Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Virginia primary election.`\
 https://www.nytimes.com/interactive/2026/08/04/us/elections/results-virginia-us-house-7-primary.html
-
-**Virginia Sixth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Virginia primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-virginia-us-house-6-primary.html
-
-**Virginia Fifth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Virginia primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-virginia-us-house-5-primary.html
 
 **Primary Elections Live Updates: Michigan’s Senate Battle Divides Democrats**\
 `Dr. Abdul El-Sayed, a progressive, faces Representative Haley Stevens, a moderate, in the Democratic primary for Senate. Kansas, Missouri, Virginia and Washington are also voting today.`\
