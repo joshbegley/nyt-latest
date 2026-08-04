@@ -1,3 +1,11 @@
+**Trump’s Top Lawyer**\
+`We look into the issues surrounding Todd Blanche’s confirmation.`\
+https://www.nytimes.com/2026/08/04/briefing/donald-trump-todd-blanche-attorney-general.html
+
+**Live Updates: Michigan’s Senate Battle Leads a Five-State Primary Slate**\
+`Dr. Abdul El-Sayed, a progressive, faces Representative Haley Stevens, a moderate, in the Democratic primary for Senate. Kansas, Missouri, Virginia and Washington are also voting today.`\
+https://www.nytimes.com/live/2026/08/04/us/midterms-elections-michigan-virginia
+
 **Basura espacial**\
 `La carrera por controlar los cielos está provocando que una cantidad récord de escombros caiga a la Tierra.`\
 https://www.nytimes.com/es/2026/08/04/espanol/mundo/basura-espacial.html
