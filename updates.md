@@ -1,3 +1,11 @@
+**Chile Crisp**\
+`There’s just enough oil to slick all the crispy bits of chile, onion and sesame in this version of the spicy Chinese condiment, so it delivers as much crunch as it does salty, sweet, nutty heat.`\
+https://www.nytimes.com/video/dining/100000011073378/chile-crisp.html
+
+**Can Trump Wriggle Out One Last Time?**\
+`Between Iran and the midterms, his decade of rebounds and comebacks might be over.`\
+https://www.nytimes.com/2026/08/04/opinion/trump-midterms-iran.html
+
 **Freida McFadden, John Grisham and More Share Their Top Thrillers of the 21st Century**\
 `John Grisham, Gillian Flynn, Freida McFadden and 59 others share their ballots.`\
 https://www.nytimes.com/interactive/2026/books/authors-top-thrillers-21st-century.html
