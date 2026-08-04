@@ -1,3 +1,7 @@
+**The End of Passwords**\
+`Learn how password managers and passkeys make staying safe online easier.`\
+https://www.nytimes.com/2026/08/04/podcasts/the-end-of-passwords.html
+
 **Saudi Aramco Reports 33% Profit Surge Despite War’s Disruption**\
 `Higher oil prices propelled a quarterly earnings jump for Saudi Arabia’s energy giant, which used pipelines to work around disruptions in the Strait of Hormuz.`\
 https://www.nytimes.com/2026/08/04/business/saudi-aramco-earnings-iran-war.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/opinion/100000011062430/its-time-to-see-elon-musk-
 **House Ethics Panel Finds Rep. Chuck Edwards Likely Violated Sexual Harassment Rules**\
 `The Ethics Committee called for the censure of Representative Chuck Edwards, Republican of North Carolina, who showered two female staffers with lavish gifts and affection.`\
 https://www.nytimes.com/2026/08/03/us/politics/chuck-edwards-harrassment.html
-
-**Pirro Meets With Trump at the White House After He Said She ‘Choked’ in Reflecting Pool Case**\
-`President Trump said Jeanine Pirro, the U.S. attorney for Washington, D.C., “folded like an umbrella.” For now, her job appeared to be safe, according to two people familiar with the meeting.`\
-https://www.nytimes.com/2026/08/03/us/politics/trump-pirro-reflecting-pool-vandalism.html
 
