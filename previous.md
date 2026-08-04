@@ -1,3 +1,7 @@
+**An Angry Trump Struggles to Understand Iran’s Defiant Leaders**\
+`Iran’s leaders have perplexed several American presidents, perhaps none more than President Trump.`\
+https://www.nytimes.com/2026/08/04/us/politics/trump-iran.html
+
 **What to Watch in Michigan’s High-Stakes Primary Elections**\
 `A high-stakes Senate contest and other races will offer fresh indicators of what Democratic voters are seeking.`\
 https://www.nytimes.com/2026/08/04/us/politics/michigan-primary-election-el-sayed-stevens.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/interactive/2026/08/04/us/elections/results-missouri-us-
 **Missouri Third Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Missouri primary election.`\
 https://www.nytimes.com/interactive/2026/08/04/us/elections/results-missouri-us-house-3-primary.html
-
-**Missouri Second Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Missouri primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-missouri-us-house-2-primary.html
 
 **Primary Elections Live Updates: Michigan’s Senate Battle Leads a Five-State Slate**\
 `Dr. Abdul El-Sayed, a progressive, faces Representative Haley Stevens, a moderate, in the Democratic primary for Senate. Kansas, Missouri, Virginia and Washington are also voting today.`\

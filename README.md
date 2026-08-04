@@ -1,3 +1,7 @@
+**In Lawsuit, NJ Accuses Amazon of Suppressing Pay for Delivery Drivers**\
+`The state attorney general said in an antitrust lawsuit filed on Tuesday that the company was abusing its market power to keep its delivery costs low.`\
+https://www.nytimes.com/2026/08/04/technology/amazon-nj-lawsuit.html
+
 **An Angry Trump Struggles to Understand Iran’s Defiant Leaders**\
 `Iran’s leaders have perplexed several American presidents, perhaps none more than President Trump.`\
 https://www.nytimes.com/2026/08/04/us/politics/trump-iran.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/interactive/2026/08/04/us/elections/results-missouri-us-
 **Missouri Fourth Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Missouri primary election.`\
 https://www.nytimes.com/interactive/2026/08/04/us/elections/results-missouri-us-house-4-primary.html
-
-**Missouri Third Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Missouri primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-missouri-us-house-3-primary.html
 
 **Primary Elections Live Updates: Michigan’s Senate Battle Leads a Five-State Slate**\
 `Dr. Abdul El-Sayed, a progressive, faces Representative Haley Stevens, a moderate, in the Democratic primary for Senate. Kansas, Missouri, Virginia and Washington are also voting today.`\

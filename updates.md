@@ -1,3 +1,7 @@
+**An Angry Trump Struggles to Understand Iran’s Defiant Leaders**\
+`Iran’s leaders have perplexed several American presidents, perhaps none more than President Trump.`\
+https://www.nytimes.com/2026/08/04/us/politics/trump-iran.html
+
 **What to Watch in Michigan’s High-Stakes Primary Elections**\
 `A high-stakes Senate contest and other races will offer fresh indicators of what Democratic voters are seeking.`\
 https://www.nytimes.com/2026/08/04/us/politics/michigan-primary-election-el-sayed-stevens.html
