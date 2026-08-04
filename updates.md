@@ -1,3 +1,7 @@
+**These Employees Like Their A.I. Boss. Its Shop Is Kind of a Disaster.**\
+`A new study of a bot running a first-of-its-kind San Francisco store finds it is really friendly, but not very smart.`\
+https://www.nytimes.com/2026/08/04/us/ai-boss-san-francisco-andon-market.html
+
 **What to Watch in Missouri’s Primaries as Cori Bush Tries to Beat Wesley Bell**\
 `Former Representative Cori Bush, a member of the progressive “squad,” is trying to defeat Representative Wesley Bell, a moderate who ousted her two years ago.`\
 https://www.nytimes.com/2026/08/04/us/politics/missouri-primary-election-bush-bell.html
