@@ -1,3 +1,11 @@
+**When to Expect Results in Michigan, Virginia, Missouri, Washington and Kansas**\
+`Voters will cast ballots in several primaries. Unofficial results will most likely be known late Tuesday or early Wednesday.`\
+https://www.nytimes.com/2026/08/04/us/politics/results-timing-michigan-virginia-missouri-washington-kansas.html
+
+**Judge Pained as He Grants Dismissal of Jan. 6 Charges Against Oath Keepers**\
+`The judge, Amit P. Mehta, blasted the administration’s request for a dismissal in the case, saying it bestowed “unearned grace” on the Oath Keepers defendants “by wiping their records clean.”`\
+https://www.nytimes.com/2026/08/04/us/politics/jan-6-charges-oath-keepers-dismissed.html
+
 **SpaceX’s Spending on A.I. Soars in First Results After I.P.O.**\
 `Elon Musk’s rocket company said its capital expenditures jumped nearly seven times from a year ago. Revenue also rose.`\
 https://www.nytimes.com/2026/08/04/technology/spacex-earnings-elon-musk.html
