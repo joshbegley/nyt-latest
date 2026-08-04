@@ -1,3 +1,11 @@
+**Gianni Infantino’s Secret Plot**\
+`FIFA tried (and failed) to sell the soul of soccer`\
+https://www.nytimes.com/2026/08/04/podcasts/gianni-infantino-secret-plot-fifa.html
+
+**¿Cuál es la mejor manera de tratar la acidez estomacal?**\
+`Este malestar común puede ser tratado de manera efectiva con medicamentos de venta libre. Aquí te explicamos cómo encontrar el ideal para ti.`\
+https://www.nytimes.com/es/2026/08/04/espanol/acidez-estomacal-medicamentos-tratamientos.html
+
 **A Narrow Vancouver House Leans Into Minimalism**\
 `A couple learned all of their slender house’s quirks, and then renovated them away.`\
 https://www.nytimes.com/2026/08/04/realestate/a-narrow-vancouver-house-leans-into-minimalism.html
