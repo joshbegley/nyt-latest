@@ -1,3 +1,7 @@
+**U.S. Stocks Near a Record High Amid Lull in Iran War**\
+`Markets have been lashed between disruptions in the Strait of Hormuz and anxiety about massive corporate investments in artificial intelligence.`\
+https://www.nytimes.com/2026/08/04/business/stocks-sp500-oil-prices.html
+
 **McDonald’s U.S. Sales Slow as Consumers Spend More Cautiously**\
 `The fast-food giant named a new president of its U.S. operations, aiming to bring “focus and urgency” to a revamp of its outlets.`\
 https://www.nytimes.com/2026/08/04/business/mcdonalds-earnings-consumers-inflation.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/04/climate/phoenix-species-project-bezos-dicapri
 **Inside Uber’s Legal Strategy to Fight Sexual Assault Lawsuits**\
 `Our investigative reporter Emily Steel reviewed about a dozen lawsuits against Uber by riders who say they were sexually assaulted or harassed during their rides. They reveal the aggressive tactics Uber’s lawyers are taking as part of their defense strategy.`\
 https://www.nytimes.com/video/business/100000011021856/uber-sexual-assault-lawsuits.html
-
-**Airport chaos, delays as E.U. debuts biometric border system**\
-`The biometric system for non-E.U. citizens is causing long delays and short tempers at airports. Officials say the rocky rollout will get better and will improve security.`\
-https://www.nytimes.com/2026/08/04/world/europe/eu-passport-control-chaos.html
 

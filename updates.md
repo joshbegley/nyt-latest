@@ -1,3 +1,7 @@
+**McDonald’s U.S. Sales Slow as Consumers Spend More Cautiously**\
+`The fast-food giant named a new president of its U.S. operations, aiming to bring “focus and urgency” to a revamp of its outlets.`\
+https://www.nytimes.com/2026/08/04/business/mcdonalds-earnings-consumers-inflation.html
+
 **Trump’s Top Lawyer**\
 `We look into the issues surrounding Todd Blanche’s confirmation.`\
 https://www.nytimes.com/2026/08/04/briefing/donald-trump-todd-blanche-attorney-general.html

@@ -1,3 +1,7 @@
+**McDonald’s U.S. Sales Slow as Consumers Spend More Cautiously**\
+`The fast-food giant named a new president of its U.S. operations, aiming to bring “focus and urgency” to a revamp of its outlets.`\
+https://www.nytimes.com/2026/08/04/business/mcdonalds-earnings-consumers-inflation.html
+
 **Trump’s Top Lawyer**\
 `We look into the issues surrounding Todd Blanche’s confirmation.`\
 https://www.nytimes.com/2026/08/04/briefing/donald-trump-todd-blanche-attorney-general.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/business/100000011021856/uber-sexual-assault-lawsu
 **Airport chaos, delays as E.U. debuts biometric border system**\
 `The biometric system for non-E.U. citizens is causing long delays and short tempers at airports. Officials say the rocky rollout will get better and will improve security.`\
 https://www.nytimes.com/2026/08/04/world/europe/eu-passport-control-chaos.html
-
-**Book Review: ‘All That Is Left of Life,’ by Roberta Recchia**\
-`The Italian best seller “All That Is Left of Life” is a cinematic family drama set in the summer of 1980.`\
-https://www.nytimes.com/2026/08/04/books/review/all-that-is-left-of-life-roberta-recchia.html
 
