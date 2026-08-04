@@ -1,3 +1,11 @@
+**C.D.C. Expands Cyclospora Outbreak to More States**\
+`Arkansas, Iowa, Missouri, Nebraska, New Hampshire and North Carolina are now among the states linked to the outbreak associated with iceberg lettuce.`\
+https://www.nytimes.com/2026/08/04/well/eat/cdc-cyclospora-outbreak-15-states.html
+
+**Primary Elections Live Updates: Divisive Michigan Senate Battle Enters Final Hour**\
+`Dr. Abdul El-Sayed, a progressive, is facing Representative Haley Stevens, a moderate, in the Democratic primary for Senate. Polls are closed in Virginia. Kansas, Missouri and Washington are also voting today.`\
+https://www.nytimes.com/live/2026/08/04/us/midterms-elections-michigan-virginia
+
 **SpaceX’s Spending on A.I. Soars, in First Results After I.P.O.**\
 `Elon Musk’s rocket company said its capital expenditures jumped nearly seven times from a year ago. Revenue also rose.`\
 https://www.nytimes.com/2026/08/04/technology/spacex-earnings-elon-musk.html

@@ -11,7 +11,7 @@ https://www.nytimes.com/2026/08/04/us/politics/jan-6-charges-oath-keepers-dismis
 https://www.nytimes.com/video/arts/100000010968795/lena-waithe-interview-playlist.html
 
 **C.D.C. Expands Cyclospora Outbreak to More States**\
-`Arkansas and Missouri are now among the states linked to the outbreak associated with iceberg lettuce.`\
+`Arkansas, Iowa, Missouri, Nebraska, New Hampshire and North Carolina are now among the states linked to the outbreak associated with iceberg lettuce.`\
 https://www.nytimes.com/2026/08/04/well/eat/cdc-cyclospora-outbreak-15-states.html
 
 **Maryland Lawmakers Back Amendment Giving Democrats 2028 Advantage**\
@@ -178,11 +178,7 @@ https://www.nytimes.com/2026/08/04/us/politics/trump-iran.html
 `A high-stakes Senate contest and other races will offer fresh indicators of what Democratic voters are seeking.`\
 https://www.nytimes.com/2026/08/04/us/politics/michigan-primary-election-el-sayed-stevens.html
 
-**Songs for the Return of Lizard Season 🦎☀️**\
-`Let Victoryland, Way Dynamic, Lolitah and other artists help you embrace Peak Summer.`\
-https://www.nytimes.com/2026/08/04/arts/music/amplifier-newsletter-summer-way-machine-lolitah.html
-
-**Primary Elections Live Updates: Michigan’s Senate Battle Divides Democrats**\
-`Dr. Abdul El-Sayed, a progressive, faces Representative Haley Stevens, a moderate, in the Democratic primary for Senate. Kansas, Missouri, Virginia and Washington are also voting today.`\
+**Primary Elections Live Updates: Divisive Michigan Senate Battle Enters Final Hour**\
+`Dr. Abdul El-Sayed, a progressive, is facing Representative Haley Stevens, a moderate, in the Democratic primary for Senate. Polls are closed in Virginia. Kansas, Missouri and Washington are also voting today.`\
 https://www.nytimes.com/live/2026/08/04/us/midterms-elections-michigan-virginia
 
