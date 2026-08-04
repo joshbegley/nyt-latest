@@ -1,3 +1,11 @@
+**Drone Explodes on Russian Beach, Killing 7, Officials Say**\
+`It was unclear what the drone was targeting and why it crashed in the crowded resort spot, but it has been a deadly summer for civilians caught up in the Russian-Ukrainian war.`\
+https://www.nytimes.com/2026/08/03/world/europe/drone-russian-beach-explosion.html
+
+**Deadly Drone Explodes on Russian Beach**\
+`A drone crashed into a beach in Russia on Monday, leaving at least 7 people dead, officials said.`\
+https://www.nytimes.com/video/embedded/world/europe/100000011071190/deadly-drone-explodes-on-russian-beach.html
+
 **Spotlight on Fauci Said to Boost Book Sales for Kennedy and His Publisher**\
 `Health Secretary Robert F. Kennedy Jr., his son, and Senator Rand Paul have all written books criticizing Dr. Anthony S. Fauci. All were published by a company led by a close Kennedy adviser.`\
 https://www.nytimes.com/2026/08/03/us/politics/fauci-rfk-publisher.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/08/03/us/politics/fbi-agent-cryptocurrency.html
 **Two Deaths Linked to Cyclospora Outbreak in Michigan**\
 `The patients had “significant underlying health conditions,” health officials said.`\
 https://www.nytimes.com/2026/08/03/well/eat/cyclospora-deaths-michigan.html
-
-**How Democratic Socialists Are Wrestling With Their Next Moves**\
-`After notching primary victories, D.S.A. members in Chicago debated whether socialist candidates should be free to distance themselves from goals like abolishing prisons as they chase more seats this fall.`\
-https://www.nytimes.com/2026/08/03/us/politics/democratic-socialists-midterms-democrats-republicans.html
-
-**Man Is Jailed for Concealing Mother’s Body in Freezer After Her Death**\
-`Christopher Phillips, 60, pleaded guilty to several crimes, including fraud, after the police found his mother’s body in a freezer in his home.`\
-https://www.nytimes.com/2026/08/03/world/europe/mother-dead-body-freezer-phillips-uk.html
 
