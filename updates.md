@@ -1,3 +1,7 @@
+**Live Updates: Michigan’s Senate Battle Leads a Five-State Primary Slate**\
+`Dr. Abdul El-Sayed, a progressive, faces Representative Haley Stevens, a moderate, in the Democratic primary for Senate. Kansas, Missouri, Virginia and Washington are also voting today.`\
+https://www.nytimes.com/live/2026/08/04/us/midterms-michigan-virginia
+
 **Russia Turns Ukraine’s Gas Stations From Social Hubs Into Deadly Targets**\
 `Drone attacks have hit hundreds of gas stations in apparent retaliation for Ukraine’s attacks on Russian oil refineries.`\
 https://www.nytimes.com/2026/08/04/world/europe/ukraine-gas-stations-russia.html
