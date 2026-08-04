@@ -1,4 +1,8 @@
-**Luria Wins Democratic House Primary, Setting Up a Fall Rematch With Kiggans**\
+**Julian Beaudion Quits Senate Race in South Dakota, Clearing Way for Independent**\
+`The decision by Julian Beaudion, the Democratic nominee, to leave the race was the third recent withdrawal by a Democratic Senate candidate in a red state.`\
+https://www.nytimes.com/2026/08/04/us/politics/julian-beaudion-drops-out-south-dakota.html
+
+**Luria Wins House Primary in Virginia, Setting Up a Rematch With Kiggans**\
 `Elaine Luria will face Jennifer Kiggans, the Republican incumbent who defeated her in 2022, in the highly competitive Virginia Beach-area seat. Both are Navy veterans.`\
 https://www.nytimes.com/2026/08/04/us/politics/luria-virginia-democratic-house-primary.html
 
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/08/04/climate/mexico-declares-war-sargassum-seaweed
 **Parts of Trump’s New White House Helipad Disassembled, Photos Show**\
 `Last week, construction workers had begun to decorate the new South Lawn helipad with a giant presidential seal. By Tuesday, the design was gone.`\
 https://www.nytimes.com/2026/08/04/us/politics/trump-helipad-white-house-construction.html
-
-**After Midtown Building Buckles, Violations Are Found at Many Other Sites**\
-`New York City officials conducted inspections at 180 construction sites. None of the violations posed an immediate danger to the public, they said.`\
-https://www.nytimes.com/2026/08/04/nyregion/nyc-buildings-violations-conversions.html
 
 **Primary Elections Live Updates: Divisive Michigan Senate Battle Enters Final Hour**\
 `Dr. Abdul El-Sayed, a progressive, is facing Representative Haley Stevens, a moderate, in the Democratic primary for Senate. Polls are closed in Virginia. Kansas, Missouri and Washington are also voting today.`\

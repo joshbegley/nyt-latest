@@ -1,3 +1,11 @@
+**Julian Beaudion Quits Senate Race in South Dakota, Clearing Way for Independent**\
+`The decision by Julian Beaudion, the Democratic nominee, to leave the race was the third recent withdrawal by a Democratic Senate candidate in a red state.`\
+https://www.nytimes.com/2026/08/04/us/politics/julian-beaudion-drops-out-south-dakota.html
+
+**Luria Wins House Primary in Virginia, Setting Up a Rematch With Kiggans**\
+`Elaine Luria will face Jennifer Kiggans, the Republican incumbent who defeated her in 2022, in the highly competitive Virginia Beach-area seat. Both are Navy veterans.`\
+https://www.nytimes.com/2026/08/04/us/politics/luria-virginia-democratic-house-primary.html
+
 **Luria Wins Democratic House Primary, Setting Up a Fall Rematch With Kiggans**\
 `Elaine Luria will face Jennifer Kiggans, the Republican incumbent who defeated her in 2022, in the highly competitive Virginia Beach-area seat. Both are Navy veterans.`\
 https://www.nytimes.com/2026/08/04/us/politics/luria-virginia-democratic-house-primary.html

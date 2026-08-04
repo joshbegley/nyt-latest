@@ -1,3 +1,7 @@
+**11 Spots for an NYC Staycation in August**\
+`With what’s left of summer, check out these 11 spots that can transport you, without going far.`\
+https://www.nytimes.com/interactive/2026/08/04/nyregion/nyc-staycation-summer.html
+
 **Julian Beaudion Quits Senate Race in South Dakota, Clearing Way for Independent**\
 `The decision by Julian Beaudion, the Democratic nominee, to leave the race was the third recent withdrawal by a Democratic Senate candidate in a red state.`\
 https://www.nytimes.com/2026/08/04/us/politics/julian-beaudion-drops-out-south-dakota.html
@@ -173,10 +177,6 @@ https://www.nytimes.com/video/us/politics/100000011072139/blanche-confirmation-a
 **Mexico Declares War on Stinky Seaweed**\
 `A changing climate is helping to fuel the growth of a gigantic blob of foul-smelling seaweed that has washed up in some coastal communities. Mexico is fighting back.`\
 https://www.nytimes.com/2026/08/04/climate/mexico-declares-war-sargassum-seaweed.html
-
-**Parts of Trump’s New White House Helipad Disassembled, Photos Show**\
-`Last week, construction workers had begun to decorate the new South Lawn helipad with a giant presidential seal. By Tuesday, the design was gone.`\
-https://www.nytimes.com/2026/08/04/us/politics/trump-helipad-white-house-construction.html
 
 **Primary Elections Live Updates: Divisive Michigan Senate Battle Enters Final Hour**\
 `Dr. Abdul El-Sayed, a progressive, is facing Representative Haley Stevens, a moderate, in the Democratic primary for Senate. Polls are closed in Virginia. Kansas, Missouri and Washington are also voting today.`\
