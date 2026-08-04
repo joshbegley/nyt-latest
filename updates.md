@@ -1,3 +1,7 @@
+**Russia Turns Ukraine’s Gas Stations From Social Hubs Into Deadly Targets**\
+`Drone attacks have hit hundreds of gas stations in apparent retaliation for Ukraine’s attacks on Russian oil refineries.`\
+https://www.nytimes.com/2026/08/04/world/europe/ukraine-gas-stations-russia.html
+
 **Gianni Infantino’s Secret Plot**\
 `FIFA tried (and failed) to sell the soul of soccer`\
 https://www.nytimes.com/2026/08/04/podcasts/gianni-infantino-secret-plot-fifa.html

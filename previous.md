@@ -1,3 +1,7 @@
+**Russia Turns Ukraine’s Gas Stations From Social Hubs Into Deadly Targets**\
+`Drone attacks have hit hundreds of gas stations in apparent retaliation for Ukraine’s attacks on Russian oil refineries.`\
+https://www.nytimes.com/2026/08/04/world/europe/ukraine-gas-stations-russia.html
+
 **Gianni Infantino’s Secret Plot**\
 `FIFA tried (and failed) to sell the soul of soccer`\
 https://www.nytimes.com/2026/08/04/podcasts/gianni-infantino-secret-plot-fifa.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/08/04/espanol/estados-unidos/alaska-gran-ola-sur
 **Para Trump, siempre es 2020**\
 `El presidente de Estados Unidos insiste en reescribir gran parte de lo que ocurrió hace seis años, incluida la pandemia y las elecciones que perdió. Muchos votantes preferirían que se enfocara en 2026.`\
 https://www.nytimes.com/es/2026/08/04/espanol/estados-unidos/trump-elecciones-aprobacion.html
-
-**After Deadly E-Bike Crashes, N.Y. Lawmakers Consider Crackdown**\
-`The City Council on Tuesday is expected to present 17 proposals to make electric bikes and scooters safer for riders and pedestrians.`\
-https://www.nytimes.com/2026/08/04/nyregion/ebike-electric-scooter-regulations-nyc.html
 
