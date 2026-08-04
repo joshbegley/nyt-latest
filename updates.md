@@ -1,3 +1,11 @@
+**El-Sayed Leads Stevens in Michigan Democratic Senate Primary, Polls Show**\
+`The progressive Democrat has consistently had large leads over Representative Haley Stevens, despite debates about which candidate will be more electable in November.`\
+https://www.nytimes.com/2026/08/04/us/elections/el-sayed-stevens-michigan-senate-polls.html
+
+**What Was on the Minds of Michigan Voters? Many Cited the Economy and Trump.**\
+`As they cast ballots in the Democratic Senate primary, voters said they were concerned about data centers, health care, Israel and the war with Iran.`\
+https://www.nytimes.com/2026/08/04/us/politics/michigan-democratic-primary-top-issues.html
+
 **AIPAC Spending Dominates the Michigan Democratic Senate Primary**\
 `Representative Haley Stevens has been backed by tens of millions of dollars, much of it from pro-Israel groups and hidden donors. Her rival, Dr. Abdul El-Sayed, has tried to make that support a liability.`\
 https://www.nytimes.com/2026/08/04/us/politics/michigan-democratic-senate-primary-aipac.html

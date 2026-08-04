@@ -11,7 +11,7 @@ https://www.nytimes.com/2026/08/04/us/politics/michigan-democratic-primary-top-i
 https://www.nytimes.com/2026/08/04/us/politics/michigan-democratic-senate-primary-aipac.html
 
 **When to Expect Results in Michigan, Virginia, Missouri, Washington and Kansas**\
-`Voters will cast ballots in several primaries. Unofficial results will most likely be known late Tuesday or early Wednesday.`\
+`Voters will cast ballots in several primaries. Results will most likely be known late Tuesday or early Wednesday.`\
 https://www.nytimes.com/2026/08/04/us/politics/results-timing-michigan-virginia-missouri-washington-kansas.html
 
 **Judge Pained as He Grants Dismissal of Jan. 6 Charges Against Oath Keepers**\

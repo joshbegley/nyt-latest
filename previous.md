@@ -1,3 +1,11 @@
+**El-Sayed Leads Stevens in Michigan Democratic Senate Primary, Polls Show**\
+`The progressive Democrat has consistently had large leads over Representative Haley Stevens, despite debates about which candidate will be more electable in November.`\
+https://www.nytimes.com/2026/08/04/us/elections/el-sayed-stevens-michigan-senate-polls.html
+
+**What Was on the Minds of Michigan Voters? Many Cited the Economy and Trump.**\
+`As they cast ballots in the Democratic Senate primary, voters said they were concerned about data centers, health care, Israel and the war with Iran.`\
+https://www.nytimes.com/2026/08/04/us/politics/michigan-democratic-primary-top-issues.html
+
 **AIPAC Spending Dominates the Michigan Democratic Senate Primary**\
 `Representative Haley Stevens has been backed by tens of millions of dollars, much of it from pro-Israel groups and hidden donors. Her rival, Dr. Abdul El-Sayed, has tried to make that support a liability.`\
 https://www.nytimes.com/2026/08/04/us/politics/michigan-democratic-senate-primary-aipac.html
@@ -169,14 +177,6 @@ https://www.nytimes.com/2026/08/04/nyregion/nyc-buildings-violations-conversions
 **Max Miller Shrugs Off Trump’s Warning and Pushes Ahead in Ohio**\
 `Republicans hoped a shove from President Trump would persuade the embattled congressman to drop his re-election bid in the face of abuse allegations. It hasn’t happened.`\
 https://www.nytimes.com/2026/08/04/us/politics/max-miller-ohio-congress-trump.html
-
-**In Lawsuit, NJ Accuses Amazon of Suppressing Pay for Delivery Drivers**\
-`The state attorney general said in an antitrust lawsuit filed on Tuesday that the company was abusing its market power to keep its delivery costs low.`\
-https://www.nytimes.com/2026/08/04/technology/amazon-nj-lawsuit.html
-
-**An Angry Trump Struggles to Understand Iran’s Defiant Leaders**\
-`Iran’s leaders have perplexed several American presidents, perhaps none more than President Trump.`\
-https://www.nytimes.com/2026/08/04/us/politics/trump-iran.html
 
 **Primary Elections Live Updates: Divisive Michigan Senate Battle Enters Final Hour**\
 `Dr. Abdul El-Sayed, a progressive, is facing Representative Haley Stevens, a moderate, in the Democratic primary for Senate. Polls are closed in Virginia. Kansas, Missouri and Washington are also voting today.`\
