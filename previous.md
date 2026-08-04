@@ -1,3 +1,7 @@
+**An Emerging Deal to Reopen the Strait of Hormuz Would Come at a Cost for Trump**\
+`The deal would address President Trump’s most urgent political problem by allowing ships to move again. But it would give Iran strategic leverage it did not have before the war.`\
+https://www.nytimes.com/2026/08/03/us/politics/strait-of-hormuz-possible-reopening-deal.html
+
 **U.S. Sends Flight With Deportees to Venezuela for First Time Since Quakes**\
 `A plane with 147 Venezuelans landed on Monday in the South American country amid criticism over the deaths of deportees housed in a collapsed building during June’s quakes.`\
 https://www.nytimes.com/2026/08/03/world/americas/venezuela-us-deportation-flights-resume.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/08/03/world/europe/mother-dead-body-freezer-phillip
 **Murió a manos del ICE. La IA pronto convirtió la tragedia en un corrido**\
 `La tecnología está ayudando a componer corridos en cuestión de horas, acelerando una tradición que conmemora la tragedia con el canto y relata noticias y acontecimientos desde el punto de vista de la comunidad.`\
 https://www.nytimes.com/es/2026/08/03/espanol/estados-unidos/corrido-inteligencia-artificial-lorenzo-salgado-araujo.html
-
-**ICE Killed Him. A.I. Helped Turn Him Into a Folk Ballad, Fast.**\
-`Artificial Intelligence is helping people write corridos within hours, accelerating a century-old tradition of memorializing tragedy through song.`\
-https://www.nytimes.com/2026/08/03/us/ai-corridos-song-music-texas-ice-shooting.html
 
