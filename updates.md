@@ -1,3 +1,19 @@
+**Saudi Aramco Reports 33% Profit Surge Despite War’s Disruption**\
+`Higher oil prices propelled a quarterly earnings jump for Saudi Arabia’s energy giant, which used pipelines to work around disruptions in the Strait of Hormuz.`\
+https://www.nytimes.com/2026/08/04/business/saudi-aramco-earnings-iran-war.html
+
+**Trump quiere que los estadounidenses desaprendan lo que saben**\
+`Es así como decidimos quiénes somos y quiénes aspiramos a ser.`\
+https://www.nytimes.com/es/2026/08/04/espanol/opinion/trump-memoria-reescribir-historia.html
+
+**El banco más antiguo del mundo enfrenta una nueva amenaza**\
+`Banca Monte dei Paschi di Siena, fundado en 1472, ha resistido guerras, pandemias y escándalos. Ahora, una oferta pública de adquisición hostil mantiene en vilo a la Toscana.`\
+https://www.nytimes.com/es/2026/08/04/espanol/negocios/italia-banco-antiguo-monte-paschi.html
+
+**En Alaska, una gran ola se ha vuelto un destino para surfistas**\
+`El macareo de Turnagain Arm se está dando a conocer entre los surfistas de olas grandes que buscan uno de los recorridos más inusuales del mundo. Pero conlleva peligros.`\
+https://www.nytimes.com/es/2026/08/04/espanol/estados-unidos/alaska-gran-ola-surfistas-peligro.html
+
 **Para Trump, siempre es 2020**\
 `El presidente de Estados Unidos insiste en reescribir gran parte de lo que ocurrió hace seis años, incluida la pandemia y las elecciones que perdió. Muchos votantes preferirían que se enfocara en 2026.`\
 https://www.nytimes.com/es/2026/08/04/espanol/estados-unidos/trump-elecciones-aprobacion.html
