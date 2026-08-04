@@ -1,3 +1,19 @@
+**AIPAC Spending Dominates the Michigan Democratic Senate Primary**\
+`Representative Haley Stevens has been backed by tens of millions of dollars, much of it from pro-Israel groups and hidden donors. Her rival, Dr. Abdul El-Sayed, has tried to make that support a liability.`\
+https://www.nytimes.com/2026/08/04/us/politics/michigan-democratic-senate-primary-aipac.html
+
+**SpaceX, in First Earnings After IPO, Reports Soaring AI Spending**\
+`Elon Musk’s rocket company said its capital expenditures jumped nearly seven times from a year ago. Revenue also rose.`\
+https://www.nytimes.com/2026/08/04/technology/spacex-earnings-elon-musk.html
+
+**Officials Say They’ve Found the Cause of a Fire That Devastated L.A.**\
+`The 2025 Eaton fire, which killed 19 people and destroyed the Altadena community, began at an inactive tower belonging to Southern California Edison, officials said.`\
+https://www.nytimes.com/2026/08/04/us/eaton-fire-cause-transmission-tower-report.html
+
+**Max Miller Shrugs Off Trump’s Warning and Pushes Ahead in Ohio**\
+`Republicans hoped a shove from President Trump would persuade the embattled congressman to drop his re-election bid in the face of abuse allegations. It hasn’t happened.`\
+https://www.nytimes.com/2026/08/04/us/politics/max-miller-ohio-congress-trump.html
+
 **C.D.C. Expands Cyclospora Outbreak to More States**\
 `Arkansas, Iowa, Missouri, Nebraska, New Hampshire and North Carolina are now among the states linked to the outbreak associated with iceberg lettuce.`\
 https://www.nytimes.com/2026/08/04/well/eat/cdc-cyclospora-outbreak-15-states.html

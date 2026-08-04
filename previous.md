@@ -1,3 +1,7 @@
+**AIPAC Spending Dominates the Michigan Democratic Senate Primary**\
+`Representative Haley Stevens has been backed by tens of millions of dollars, much of it from pro-Israel groups and hidden donors. Her rival, Dr. Abdul El-Sayed, has tried to make that support a liability.`\
+https://www.nytimes.com/2026/08/04/us/politics/michigan-democratic-senate-primary-aipac.html
+
 **When to Expect Results in Michigan, Virginia, Missouri, Washington and Kansas**\
 `Voters will cast ballots in several primaries. Unofficial results will most likely be known late Tuesday or early Wednesday.`\
 https://www.nytimes.com/2026/08/04/us/politics/results-timing-michigan-virginia-missouri-washington-kansas.html
@@ -90,7 +94,7 @@ https://www.nytimes.com/2026/08/04/business/media/paramount-warner-bros-trial-ma
 `Jeanine Pirro, the U.S. attorney for the District of Columbia, told President Trump that his interior secretary, Doug Burgum, had misled him with a self-serving cover story for his own mistakes.`\
 https://www.nytimes.com/2026/08/04/us/politics/trump-jeanine-pirro-showdown.html
 
-**SpaceX’s Spending on A.I. Soars, in First Results After I.P.O.**\
+**SpaceX, in First Earnings After IPO, Reports Soaring AI Spending**\
 `Elon Musk’s rocket company said its capital expenditures jumped nearly seven times from a year ago. Revenue also rose.`\
 https://www.nytimes.com/2026/08/04/technology/spacex-earnings-elon-musk.html
 
@@ -134,8 +138,8 @@ https://www.nytimes.com/es/2026/08/04/espanol/mundo/pais-mas-pequeno-naoreo-naur
 `Bar Chucho — from the team behind the Michelin-starred Mexican standout Corima — overachieves but stays true to its purpose. And there’s a great burger at a fair price.`\
 https://www.nytimes.com/2026/08/04/dining/restaurant-review-bar-chucho-nyc.html
 
-**Eaton Fire Caused by Utility’s Transmission Tower, Report Says**\
-`The 2025 fire, which killed 19 people and destroyed the Altadena community in Los Angeles County, began at an inactive tower belonging to Southern California Edison, officials said.`\
+**Officials Say They’ve Found the Cause of a Fire That Devastated L.A.**\
+`The 2025 Eaton fire, which killed 19 people and destroyed the Altadena community, began at an inactive tower belonging to Southern California Edison, officials said.`\
 https://www.nytimes.com/2026/08/04/us/eaton-fire-cause-transmission-tower-report.html
 
 **New Zealand’s Final Greyhound Race**\
@@ -163,7 +167,7 @@ https://www.nytimes.com/2026/08/04/us/politics/trump-helipad-white-house-constru
 https://www.nytimes.com/2026/08/04/nyregion/nyc-buildings-violations-conversions.html
 
 **Max Miller Shrugs Off Trump’s Warning and Pushes Ahead in Ohio**\
-`Republicans hoped a shove from President Trump would persuade the embattled congressman to drop his re-election bid in the face of abuse allegations.`\
+`Republicans hoped a shove from President Trump would persuade the embattled congressman to drop his re-election bid in the face of abuse allegations. It hasn’t happened.`\
 https://www.nytimes.com/2026/08/04/us/politics/max-miller-ohio-congress-trump.html
 
 **In Lawsuit, NJ Accuses Amazon of Suppressing Pay for Delivery Drivers**\
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/08/04/technology/amazon-nj-lawsuit.html
 **An Angry Trump Struggles to Understand Iran’s Defiant Leaders**\
 `Iran’s leaders have perplexed several American presidents, perhaps none more than President Trump.`\
 https://www.nytimes.com/2026/08/04/us/politics/trump-iran.html
-
-**What to Watch in Michigan’s High-Stakes Primary Elections**\
-`A high-stakes Senate contest and other races will offer fresh indicators of what Democratic voters are seeking.`\
-https://www.nytimes.com/2026/08/04/us/politics/michigan-primary-election-el-sayed-stevens.html
 
 **Primary Elections Live Updates: Divisive Michigan Senate Battle Enters Final Hour**\
 `Dr. Abdul El-Sayed, a progressive, is facing Representative Haley Stevens, a moderate, in the Democratic primary for Senate. Polls are closed in Virginia. Kansas, Missouri and Washington are also voting today.`\
