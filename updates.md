@@ -1,3 +1,11 @@
+**New Zealand’s Final Greyhound Race**\
+`Last week, hundreds of people gathered to witness New Zealand’s final commercial greyhound race. The country banned the sport amid concerns about the dogs’ welfare.`\
+https://www.nytimes.com/video/world/australia/100000011072216/new-zealand-greyhound-racing.html
+
+**Primary Elections Live Updates: Michigan’s Senate Battle Divides Democrats**\
+`Dr. Abdul El-Sayed, a progressive, faces Representative Haley Stevens, a moderate, in the Democratic primary for Senate. Kansas, Missouri, Virginia and Washington are also voting today.`\
+https://www.nytimes.com/live/2026/08/04/us/midterms-elections-michigan-virginia
+
 **Family Demands Answers About Death of Immigrant Held at Detention Center**\
 `Edwin Lopez-Cornejo’s relatives said that federal officials who oversee Delaney Hall in Newark had refused to provide his medical records.`\
 https://www.nytimes.com/2026/08/04/nyregion/immigrant-death-delaney-hall.html

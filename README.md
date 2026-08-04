@@ -18,7 +18,7 @@ https://www.nytimes.com/2026/08/04/climate/mexico-declares-war-sargassum-seaweed
 `Last week, construction workers had begun to decorate the new South Lawn helipad with a giant presidential seal. By Tuesday, the design was gone.`\
 https://www.nytimes.com/2026/08/04/us/politics/trump-helipad-white-house-construction.html
 
-**Violations Found at Sites Involving Firms Linked to Unstable Building**\
+**After Midtown Building Buckles, Violations Are Found at Many Other Sites**\
 `After two steel beams buckled at a Manhattan high-rise last month, city officials conducted inspections at dozens of construction sites across the city. None of the violations posed a danger to the public, the city said.`\
 https://www.nytimes.com/2026/08/04/nyregion/nyc-buildings-violations-conversions.html
 
