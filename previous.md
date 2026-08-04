@@ -1,3 +1,7 @@
+**Kansas Governor Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Kansas primary election.`\
+https://www.nytimes.com/interactive/2026/08/04/us/elections/results-kansas-governor-primary.html
+
 **What to Watch in Washington State’s Primaries as Gluesenkamp Perez Faces a Challenge**\
 `Representative Marie Gluesenkamp Perez, a moderate Democrat, is going head-to-head with candidates to her right and her left in a battleground district.`\
 https://www.nytimes.com/2026/08/04/us/politics/washington-state-primaries-what-to-watch.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/08/04/us/elections/results-michigan-us-
 **Michigan Second Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Michigan primary election.`\
 https://www.nytimes.com/interactive/2026/08/04/us/elections/results-michigan-us-house-2-primary.html
-
-**Warsh Wanted ‘Regime Change.’ Markets Are Demanding a Reset.**\
-`After his latest appearance set off a bout of volatility, Kevin M. Warsh, the chairman of the Federal Reserve, is under pressure to clear up mixed signals about his commitment to getting inflation down.`\
-https://www.nytimes.com/2026/08/04/business/kevin-warsh-federal-reserve-markets.html
 
