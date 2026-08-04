@@ -1,3 +1,7 @@
+**How Well Is the Progressive Left Actually Doing?**\
+`Its wins have been largely confined to highly educated and heavily Democratic parts of urban America. But two races could change that.`\
+https://www.nytimes.com/2026/08/04/upshot/progressive-left-michigan-wisconsin.html
+
 **When Companies Retreat on Climate Change**\
 `Readers respond to a front-page article about how big businesses are deserting climate goals. Also: President Trump’s polls, and his unreality.`\
 https://www.nytimes.com/2026/08/04/opinion/companies-climate-change.html
