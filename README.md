@@ -1,3 +1,7 @@
+**Trump manda llamar a la fiscala de Washington D. C. a la Casa Blanca**\
+`El presidente dijo que Jeanine Pirro “se plegó como un paraguas” en el caso del estanque reflectante. Por ahora, su puesto está a salvo, según dos personas familiarizadas con la reunión.`\
+https://www.nytimes.com/es/2026/08/04/espanol/estados-unidos/pirro-trump-casa-blanca.html
+
 **Diana Vishneva’s Quiet Return in Venice Makes a Powerful Statement**\
 `Diana Vishneva’s performance at the Venice Dance Biennale raised uncomfortable questions for an event that once vowed to cut ties with Russia’s artists over the war in Ukraine.`\
 https://www.nytimes.com/2026/08/04/arts/dance/venice-dance-biennale-diana-vishneva.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/04/dining/best-ice-cream-nyc.html
 **The A.I. Revolt Is Here**\
 `Jasmine Sun, a writer covering technology, takes us into the backlash against A.I. data centers.`\
 https://www.nytimes.com/video/opinion/100000011047929/the-ai-revolt-is-here.html
-
-**Pacific Palisades Shopping Center Is Preparing to Reopen**\
-`Rick Caruso, the billionaire real estate developer and former Los Angeles mayoral candidate, is reviving a property still surrounded by burned-out lots.`\
-https://www.nytimes.com/2026/08/04/business/palisades-mall-wildfires.html
 
