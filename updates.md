@@ -1,3 +1,11 @@
+**Luria Wins Democratic House Primary, Setting Up a Fall Rematch With Kiggans**\
+`Elaine Luria will face Jennifer Kiggans, the Republican incumbent who defeated her in 2022, in the highly competitive Virginia Beach-area seat. Both are Navy veterans.`\
+https://www.nytimes.com/2026/08/04/us/politics/luria-virginia-democratic-house-primary.html
+
+**When to Expect Results in Michigan, Virginia, Missouri, Washington and Kansas**\
+`Voters will cast ballots in several primaries. Results will most likely be known late Tuesday or early Wednesday.`\
+https://www.nytimes.com/2026/08/04/us/politics/results-timing-michigan-virginia-missouri-washington-kansas.html
+
 **El-Sayed Leads Stevens in Michigan Democratic Senate Primary, Polls Show**\
 `The progressive Democrat has consistently had large leads over Representative Haley Stevens, despite debates about which candidate will be more electable in November.`\
 https://www.nytimes.com/2026/08/04/us/elections/el-sayed-stevens-michigan-senate-polls.html

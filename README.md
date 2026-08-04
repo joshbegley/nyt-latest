@@ -1,4 +1,4 @@
-**Luria Wins Democratic House Primary, Setting Up a Fall Rematch With Kiggans**\
+**Luria Wins House Primary in Virginia, Setting Up a Rematch With Kiggans**\
 `Elaine Luria will face Jennifer Kiggans, the Republican incumbent who defeated her in 2022, in the highly competitive Virginia Beach-area seat. Both are Navy veterans.`\
 https://www.nytimes.com/2026/08/04/us/politics/luria-virginia-democratic-house-primary.html
 
