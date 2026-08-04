@@ -1,3 +1,7 @@
+**Primary Elections Live Updates: Michigan’s Senate Battle Leads a Five-State Slate**\
+`Dr. Abdul El-Sayed, a progressive, faces Representative Haley Stevens, a moderate, in the Democratic primary for Senate. Kansas, Missouri, Virginia and Washington are also voting today.`\
+https://www.nytimes.com/live/2026/08/04/us/midterms-elections-michigan-virginia
+
 **Stocks Open at Record High as Oil Falls on Hopes of Iran Deal**\
 `The price of Brent crude oil fell sharply`\
 https://www.nytimes.com/2026/08/04/business/stocks-sp500-oil-prices.html
