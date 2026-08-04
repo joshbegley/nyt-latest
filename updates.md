@@ -1,3 +1,7 @@
+**White House Whipsaws Silicon Valley (and Itself) Over A.I. Rules**\
+`The Trump administration has struggled over how to approach “open source” models, which are freely available to download and favored by Chinese companies.`\
+https://www.nytimes.com/2026/08/04/technology/ai-washington-regulation-whiplash.html
+
 **Why Wall Street Is Feeling So Bullish**\
 `Booming corporate profits are driving the S&P 500 near another record, dampening concerns about the war, inflation and more.`\
 https://www.nytimes.com/2026/08/04/business/dealbook/wall-street-bullish-stocks.html

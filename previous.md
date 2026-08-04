@@ -83,7 +83,7 @@ https://www.nytimes.com/2026/08/04/arts/music/ariana-grande-health-weight.html
 https://www.nytimes.com/2026/08/04/us/politics/iran-war-complications-trump-agenda.html
 
 **White House Whipsaws Silicon Valley (and Itself) Over A.I. Rules**\
-`The Trump administration has struggled over how to approach to “open source” models, which are freely available to download and favored by Chinese companies.`\
+`The Trump administration has struggled over how to approach “open source” models, which are freely available to download and favored by Chinese companies.`\
 https://www.nytimes.com/2026/08/04/technology/ai-washington-regulation-whiplash.html
 
 **The A.I. Giants Weren’t Prepared for This**\
