@@ -1,3 +1,7 @@
+**Missouri Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Missouri primary elections.`\
+https://www.nytimes.com/interactive/2026/08/04/us/elections/results-missouri-primary.html
+
 **Residents Return to Spokane**\
 `The residents of Spokane returned to what remained of their properties after multiple wildfires tore through the country. The authorities on Monday arrested a person they suspected of starting one of the fires.`\
 https://www.nytimes.com/video/world/americas/100000011071621/spokane-wildfires-residents-return.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/08/04/us/elections/results-michigan-us-
 **Michigan 12th Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Michigan primary election.`\
 https://www.nytimes.com/interactive/2026/08/04/us/elections/results-michigan-us-house-12-primary.html
-
-**Michigan 11th Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Michigan primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-michigan-us-house-11-primary.html
 
