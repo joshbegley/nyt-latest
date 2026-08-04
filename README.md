@@ -130,7 +130,7 @@ https://www.nytimes.com/2026/08/04/opinion/david-ellison-paramount-warner-deal.h
 `What should be a symbol of longstanding Canadian-U.S. ties now divides two once close allies.`\
 https://www.nytimes.com/2026/08/04/opinion/gordie-howe-bridge-america-canada.html
 
-**What’s It Like to Have an A.I. Boss?**\
+**These Employees Like Their A.I. Boss. Its Shop Is Kind of a Disaster.**\
 `A new study of a bot running a first-of-its-kind San Francisco store finds it is really friendly, but not very smart.`\
 https://www.nytimes.com/2026/08/04/us/ai-boss-san-francisco-andon-market.html
 
