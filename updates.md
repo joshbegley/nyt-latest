@@ -1,3 +1,7 @@
+**Why Wall Street Is Feeling So Bullish**\
+`Booming corporate profits are driving the S&P 500 near another record, dampening concerns about the war, inflation and more.`\
+https://www.nytimes.com/2026/08/04/business/dealbook/wall-street-bullish-stocks.html
+
 **Fire in Manhattan Subway Injures 14 and Disrupts Commute**\
 `A maintenance train at Astor Place caught fire after 2 a.m., suspending service on part of the Lexington Avenue line, officials said. It later reopened with severe delays.`\
 https://www.nytimes.com/2026/08/04/nyregion/astor-place-train-fire-subway-mta.html

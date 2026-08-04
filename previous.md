@@ -1,3 +1,7 @@
+**Why Wall Street Is Feeling So Bullish**\
+`Booming corporate profits are driving the S&P 500 near another record, dampening concerns about the war, inflation and more.`\
+https://www.nytimes.com/2026/08/04/business/dealbook/wall-street-bullish-stocks.html
+
 **Fire in Manhattan Subway Injures 14 and Disrupts Commute**\
 `A maintenance train at Astor Place caught fire after 2 a.m., suspending service on part of the Lexington Avenue line, officials said. It later reopened with severe delays.`\
 https://www.nytimes.com/2026/08/04/nyregion/astor-place-train-fire-subway-mta.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/04/arts/music/mozart-librettist-da-ponte-america
 **Book Review: ‘Don’t Be Evil,’ by Claire Stapleton**\
 `In “Don’t Be Evil,” Claire Stapleton, a former Google spin doctor, tries to make sense of her time in the industry.`\
 https://www.nytimes.com/2026/08/04/books/review/dont-be-evil-claire-stapleton.html
-
-**Phoenix Species Project Announces Funds for Imperiled Wildlife**\
-`A new fund called the Phoenix Species Project will provide $200 million to help pull imperiled species back from the brink of extinction.`\
-https://www.nytimes.com/2026/08/04/climate/phoenix-species-project-bezos-dicaprio-rewild.html
 
