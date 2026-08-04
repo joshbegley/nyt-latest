@@ -1,3 +1,7 @@
+**SpaceX’s Spending on A.I. Soars, in First Results After I.P.O.**\
+`Elon Musk’s rocket company said its capital expenditures jumped nearly seven times from a year ago. Revenue also rose.`\
+https://www.nytimes.com/2026/08/04/technology/spacex-earnings-elon-musk.html
+
 **When to Expect Results in Michigan, Virginia, Missouri, Washington and Kansas**\
 `Voters will cast ballots in several primaries. Unofficial results will most likely be known late Tuesday or early Wednesday.`\
 https://www.nytimes.com/2026/08/04/us/politics/results-timing-michigan-virginia-missouri-washington-kansas.html

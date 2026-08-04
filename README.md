@@ -11,7 +11,7 @@ https://www.nytimes.com/2026/08/04/us/politics/jan-6-charges-oath-keepers-dismis
 https://www.nytimes.com/video/arts/100000010968795/lena-waithe-interview-playlist.html
 
 **C.D.C. Expands Cyclospora Outbreak to More States**\
-`Arkansas and Missouri are now among the states linked to the outbreak associated with iceberg lettuce.`\
+`Arkansas, Iowa, Missouri, Nebraska, New Hampshire and North Carolina are now among the states linked to the outbreak associated with iceberg lettuce.`\
 https://www.nytimes.com/2026/08/04/well/eat/cdc-cyclospora-outbreak-15-states.html
 
 **Maryland Lawmakers Back Amendment Giving Democrats 2028 Advantage**\
