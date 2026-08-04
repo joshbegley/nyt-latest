@@ -1,3 +1,7 @@
+**What to Watch in Washington State’s Primaries as Gluesenkamp Perez Faces a Challenge**\
+`Representative Marie Gluesenkamp Perez, a moderate Democrat, is going head-to-head with candidates to her right and her left in a battleground district.`\
+https://www.nytimes.com/2026/08/04/us/politics/washington-state-primaries-what-to-watch.html
+
 **An Invasive Mosquito Is Spreading With Alarming Speed, Threatening Africa’s Cities**\
 `The malaria-carrying mosquito is resistant to all insecticides. Scientists are scrambling to find ways to blunt the risk.`\
 https://www.nytimes.com/2026/08/04/us/politics/mosquito-africa-anopheles-stephensi.html
