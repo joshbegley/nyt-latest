@@ -27,7 +27,7 @@ https://www.nytimes.com/2026/08/04/us/politics/trump-helipad-white-house-constru
 https://www.nytimes.com/2026/08/04/nyregion/nyc-buildings-violations-conversions.html
 
 **Max Miller Shrugs Off Trump’s Warning and Pushes Ahead in Ohio**\
-`Republicans hoped a shove from President Trump would persuade the embattled congressman to drop his re-election bid in the face of abuse allegations. It hasn’t happened.`\
+`Republicans hoped a shove from President Trump would persuade the embattled congressman to drop his re-election bid in the face of abuse allegations.`\
 https://www.nytimes.com/2026/08/04/us/politics/max-miller-ohio-congress-trump.html
 
 **In Lawsuit, NJ Accuses Amazon of Suppressing Pay for Delivery Drivers**\
