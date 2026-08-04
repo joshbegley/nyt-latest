@@ -1,3 +1,11 @@
+**Street Style Look of the Week: Fake Rocks With Real Heft**\
+`The owner of a London leather shop makes her own jumpsuits out of lightweight fabrics. Her chunky accessories bring the heft.`\
+https://www.nytimes.com/2026/08/04/style/street-style-look-chunky-statement-jewelry.html
+
+**U.S. Trade Deficit Dips in June as Imports Fall Back**\
+`Imports and exports both declined, retreating from a busy month in May, data from the Commerce Department showed.`\
+https://www.nytimes.com/2026/08/04/business/economy/us-trade-deficit-june.html
+
 **What to Watch in Virginia’s First Primary Since Redistricting Battle**\
 `Redistricting turmoil started, then ended, the campaigns of several Democratic hopefuls and pushed others into more competitive races than they anticipated.`\
 https://www.nytimes.com/2026/08/04/us/politics/virginia-primary-first-election-redistricting.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/08/04/learning/word-of-the-day-diurnal.html
 **Why Arbitration Works for Baseball but Not for Health Care**\
 `Players vs. teams. Doctors vs. insurers. How the same method for resolving pay disputes has led to wildly different results.`\
 https://www.nytimes.com/2026/08/04/upshot/arbitration-doctors-prices-baseball.html
-
-**Book Review: ‘Triage,’ by Claudia Rankine**\
-`Claudia Rankine’s latest autobiographical work, “Triage,” asks how best to effect change in the world.`\
-https://www.nytimes.com/2026/08/04/books/review/triage-claudia-rankine.html
-
-**The 25 Most Important Sculptures Since the End of World War II**\
-`Four artists and a curator debate the most important works since the end of World War II.`\
-https://www.nytimes.com/2026/08/04/t-magazine/important-sculptures-modern-age.html
 

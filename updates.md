@@ -1,3 +1,11 @@
+**Street Style Look of the Week: Fake Rocks With Real Heft**\
+`The owner of a London leather shop makes her own jumpsuits out of lightweight fabrics. Her chunky accessories bring the heft.`\
+https://www.nytimes.com/2026/08/04/style/street-style-look-chunky-statement-jewelry.html
+
+**U.S. Trade Deficit Dips in June as Imports Fall Back**\
+`Imports and exports both declined, retreating from a busy month in May, data from the Commerce Department showed.`\
+https://www.nytimes.com/2026/08/04/business/economy/us-trade-deficit-june.html
+
 **What to Watch in Virginia’s First Primary Since Redistricting Battle**\
 `Redistricting turmoil started, then ended, the campaigns of several Democratic hopefuls and pushed others into more competitive races than they anticipated.`\
 https://www.nytimes.com/2026/08/04/us/politics/virginia-primary-first-election-redistricting.html
