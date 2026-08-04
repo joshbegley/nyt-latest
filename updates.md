@@ -1,3 +1,11 @@
+**Freida McFadden, John Grisham and More Share Their Top Thrillers of the 21st Century**\
+`John Grisham, Gillian Flynn, Freida McFadden and 59 others share their ballots.`\
+https://www.nytimes.com/interactive/2026/books/authors-top-thrillers-21st-century.html
+
+**The 50 Best Thriller Books of the 21st Century**\
+`Hundreds of novelists, librarians, editors and other book lovers voted. See how their ballots stack up.`\
+https://www.nytimes.com/interactive/2026/books/best-thriller-books-21st-century.html
+
 **I’m Begging You: Never Write With A.I.**\
 `It’s bad for your brain and worse for democracy.`\
 https://www.nytimes.com/2026/08/04/opinion/artificial-intelligence-ai-writing.html

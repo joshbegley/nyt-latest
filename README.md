@@ -1,3 +1,11 @@
+**Chile Crisp**\
+`There’s just enough oil to slick all the crispy bits of chile, onion and sesame in this version of the spicy Chinese condiment, so it delivers as much crunch as it does salty, sweet, nutty heat.`\
+https://www.nytimes.com/video/dining/100000011073378/chile-crisp.html
+
+**Can Trump Wriggle Out One Last Time?**\
+`Between Iran and the midterms, his decade of rebounds and comebacks might be over.`\
+https://www.nytimes.com/2026/08/04/opinion/trump-midterms-iran.html
+
 **Freida McFadden, John Grisham and More Share Their Top Thrillers of the 21st Century**\
 `John Grisham, Gillian Flynn, Freida McFadden and 59 others share their ballots.`\
 https://www.nytimes.com/interactive/2026/books/authors-top-thrillers-21st-century.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/interactive/2026/08/04/us/elections/results-kansas-gover
 **What to Watch in Washington State’s Primaries as Gluesenkamp Perez Faces a Challenge**\
 `Representative Marie Gluesenkamp Perez, a moderate Democrat, is going head-to-head with candidates to her right and her left in a battleground district.`\
 https://www.nytimes.com/2026/08/04/us/politics/washington-state-primaries-what-to-watch.html
-
-**An Invasive Mosquito Is Spreading With Alarming Speed, Threatening Africa’s Cities**\
-`The malaria-carrying mosquito is resistant to all insecticides. Scientists are scrambling to find ways to blunt the risk.`\
-https://www.nytimes.com/2026/08/04/us/politics/mosquito-africa-anopheles-stephensi.html
-
-**Medicaid Urges States to Increase Autism Therapy Oversight**\
-`The program’s spending on the therapy has quintupled since 2021, far outstripping the growth in diagnoses and raising concerns about overprescribing and fraud.`\
-https://www.nytimes.com/2026/08/04/health/autism-therapy-medicaid.html
 
 **Primary Elections Live Updates: Michigan’s Senate Battle Divides Democrats**\
 `Dr. Abdul El-Sayed, a progressive, faces Representative Haley Stevens, a moderate, in the Democratic primary for Senate. Kansas, Missouri, Virginia and Washington are also voting today.`\

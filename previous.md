@@ -1,3 +1,11 @@
+**Freida McFadden, John Grisham and More Share Their Top Thrillers of the 21st Century**\
+`John Grisham, Gillian Flynn, Freida McFadden and 59 others share their ballots.`\
+https://www.nytimes.com/interactive/2026/books/authors-top-thrillers-21st-century.html
+
+**The 50 Best Thriller Books of the 21st Century**\
+`Hundreds of novelists, librarians, editors and other book lovers voted. See how their ballots stack up.`\
+https://www.nytimes.com/interactive/2026/books/best-thriller-books-21st-century.html
+
 **I’m Begging You: Never Write With A.I.**\
 `It’s bad for your brain and worse for democracy.`\
 https://www.nytimes.com/2026/08/04/opinion/artificial-intelligence-ai-writing.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/08/04/us/politics/mosquito-africa-anopheles-stephen
 **Medicaid Urges States to Increase Autism Therapy Oversight**\
 `The program’s spending on the therapy has quintupled since 2021, far outstripping the growth in diagnoses and raising concerns about overprescribing and fraud.`\
 https://www.nytimes.com/2026/08/04/health/autism-therapy-medicaid.html
-
-**Missouri Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Missouri primary elections.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-missouri-primary.html
-
-**Residents Return to Spokane After Devastating Wildfires**\
-`The residents of Spokane returned to what remained of their properties after multiple wildfires tore through the country. The authorities on Monday arrested a person they suspected of starting one of the fires.`\
-https://www.nytimes.com/video/world/americas/100000011071621/spokane-wildfires-residents-return.html
 
 **Primary Elections Live Updates: Michigan’s Senate Battle Divides Democrats**\
 `Dr. Abdul El-Sayed, a progressive, faces Representative Haley Stevens, a moderate, in the Democratic primary for Senate. Kansas, Missouri, Virginia and Washington are also voting today.`\
