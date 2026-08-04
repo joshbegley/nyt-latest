@@ -1,3 +1,31 @@
+**More Than 150 Migrants Rescued From Burning Boat in English Channel**\
+`No deaths or injuries were reported. Many migrants try to reach Britain in small, often unseaworthy vessels.`\
+https://www.nytimes.com/2026/08/04/world/europe/english-channel-migrants-rescue.html
+
+**Todd Blanche Clears Committee Vote, Paving Way for Attorney General Confirmation**\
+`Todd Blanche’s nomination now advances to the Senate floor, where he is expected to be confirmed, even though several Republicans have not yet committed to supporting him.`\
+https://www.nytimes.com/2026/08/04/us/politics/blanche-confirmation-attorney-general-justice-department.html
+
+**Michigan U.S. Senate Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Michigan primary election.`\
+https://www.nytimes.com/interactive/2026/08/04/us/elections/results-michigan-us-senate-primary.html
+
+**Michigan Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Michigan primary elections.`\
+https://www.nytimes.com/interactive/2026/08/04/us/elections/results-michigan-primary.html
+
+**Virginia Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Virginia primary elections.`\
+https://www.nytimes.com/interactive/2026/08/04/us/elections/results-virginia-primary.html
+
+**Kansas Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Kansas primary elections.`\
+https://www.nytimes.com/interactive/2026/08/04/us/elections/results-kansas-primary.html
+
+**Washington Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Washington primary elections.`\
+https://www.nytimes.com/interactive/2026/08/04/us/elections/results-washington-primary.html
+
 **Primary Election Results in Kansas, Missouri, Michigan, Virginia and Washington: Aug. 4, 2026**\
 `Get live results of the key races from the Aug. 4 primaries.`\
 https://www.nytimes.com/interactive/2026/08/04/us/elections/results-key-races-michigan-kansas-missouri-virginia-washington.html
@@ -169,32 +197,4 @@ https://www.nytimes.com/interactive/2026/08/04/us/elections/results-michigan-us-
 **Missouri Amendment 4 Election Results 2026: Modify Amendment Approval Requirements**\
 `Get live results and maps from the 2026 Missouri general election.`\
 https://www.nytimes.com/interactive/2026/08/04/us/elections/results-missouri-amendment-4-modify-amendment-approval-requirements-and-prohibit-foreign-spending-on-measures.html
-
-**Michigan Fourth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Michigan primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-michigan-us-house-4-primary.html
-
-**Michigan Seventh Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Michigan primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-michigan-us-house-7-primary.html
-
-**Missouri Amendment 2 Election Results 2026: County Assessor Elections**\
-`Get live results and maps from the 2026 Missouri general election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-missouri-amendment-2-county-assessor-elections.html
-
-**Kansas U.S. Senate Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Kansas primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-kansas-us-senate-primary.html
-
-**Michigan First Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Michigan primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-michigan-us-house-1-primary.html
-
-**Michigan Second Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Michigan primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-michigan-us-house-2-primary.html
-
-**Kansas Fourth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Kansas primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-kansas-us-house-4-primary.html
 
