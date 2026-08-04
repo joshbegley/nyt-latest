@@ -38,7 +38,7 @@ https://www.nytimes.com/2026/08/04/business/economy/bessent-yen-currency-support
 `A wave of protests is posing the most significant challenge in years to Islamabad’s authority in the region.`\
 https://www.nytimes.com/2026/08/04/world/asia/pakistan-kashmir-jaac-rawalkot-protests.html
 
-**JPMorgan Again Entangled in a FIFA Fiasco**\
+**JPMorgan Again Entangled in a Soccer Fiasco**\
 `After promising to learn from its role in a failed “Super League” that fueled fan anger, the Wall Street bank is involved in FIFA’s latest meltdown.`\
 https://www.nytimes.com/2026/08/04/world/europe/fifa-jpmorgan.html
 
