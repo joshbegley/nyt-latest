@@ -1,3 +1,7 @@
+**Trump, Graham Dominate Senate Race: 5 Takeaways from South Carolina Debate.**\
+`The legacy of Lindsey Graham loomed over the field to replace him in a debate Monday. All eyes were on his sister, Darline, who was endorsed by President Trump.`\
+https://www.nytimes.com/2026/08/03/us/politics/graham-south-carolina-senate-debate.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/australia/100000011071298/04visualUploader-64786.html
