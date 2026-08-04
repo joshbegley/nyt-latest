@@ -66,8 +66,8 @@ https://www.nytimes.com/2026/08/04/podcasts/the-headlines/iran-deal-strait-of-ho
 `Dr. Abdul El-Sayed, a progressive, faces Representative Haley Stevens, a moderate, in the Democratic primary for Senate. Kansas, Missouri, Virginia and Washington are also voting today.`\
 https://www.nytimes.com/live/2026/08/04/us/midterms-elections-michigan-virginia
 
-**Russia Turns Ukraine’s Gas Stations From Social Hubs Into Deadly Targets**\
-`Drone attacks have hit hundreds of gas stations in apparent retaliation for Ukraine’s attacks on Russian oil refineries.`\
+**A New Lethal Front in Ukraine: Its Beloved Gas Stations**\
+`Russian drone attacks have hit hundreds of gas stations in apparent retaliation for Ukraine’s attacks on oil refineries.`\
 https://www.nytimes.com/2026/08/04/world/europe/ukraine-gas-stations-russia.html
 
 **Gianni Infantino’s Secret Plot**\
