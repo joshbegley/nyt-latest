@@ -1,3 +1,7 @@
+**Luria Wins Democratic House Primary, Setting Up a Fall Rematch With Kiggans**\
+`Elaine Luria will face Jennifer Kiggans, the Republican incumbent who defeated her in 2022, in the highly competitive Virginia Beach-area seat. Both are Navy veterans.`\
+https://www.nytimes.com/2026/08/04/us/politics/luria-virginia-democratic-house-primary.html
+
 **El-Sayed Leads Stevens in Michigan Democratic Senate Primary, Polls Show**\
 `The progressive Democrat has consistently had large leads over Representative Haley Stevens, despite debates about which candidate will be more electable in November.`\
 https://www.nytimes.com/2026/08/04/us/elections/el-sayed-stevens-michigan-senate-polls.html
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/08/04/us/politics/trump-helipad-white-house-constru
 **After Midtown Building Buckles, Violations Are Found at Many Other Sites**\
 `New York City officials conducted inspections at 180 construction sites. None of the violations posed an immediate danger to the public, they said.`\
 https://www.nytimes.com/2026/08/04/nyregion/nyc-buildings-violations-conversions.html
-
-**Max Miller Shrugs Off Trump’s Warning and Pushes Ahead in Ohio**\
-`Republicans hoped a shove from President Trump would persuade the embattled congressman to drop his re-election bid in the face of abuse allegations. It hasn’t happened.`\
-https://www.nytimes.com/2026/08/04/us/politics/max-miller-ohio-congress-trump.html
 
 **Primary Elections Live Updates: Divisive Michigan Senate Battle Enters Final Hour**\
 `Dr. Abdul El-Sayed, a progressive, is facing Representative Haley Stevens, a moderate, in the Democratic primary for Senate. Polls are closed in Virginia. Kansas, Missouri and Washington are also voting today.`\
