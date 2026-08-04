@@ -1,3 +1,7 @@
+**U.S. Sends Flight With Deportees to Venezuela for First Time Since Quakes**\
+`A plane with 147 Venezuelans landed on Monday in the South American country amid criticism over the deaths of deportees housed in a collapsed building during June’s quakes.`\
+https://www.nytimes.com/2026/08/03/world/americas/venezuela-us-deportation-flights-resume.html
+
 **Most of the Migrants Have Left Ceuta. Some Hope to Stay.**\
 `Stranded and alone in a Spanish enclave on the African continent, hundreds of migrants, including unaccompanied minors, face harsh conditions and an uncertain future after a border influx disappeared as quickly as it appeared.`\
 https://www.nytimes.com/video/world/europe/100000011069354/ceuta-migrants-spain-morocco.html

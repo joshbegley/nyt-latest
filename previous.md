@@ -1,3 +1,7 @@
+**U.S. Sends Flight With Deportees to Venezuela for First Time Since Quakes**\
+`A plane with 147 Venezuelans landed on Monday in the South American country amid criticism over the deaths of deportees housed in a collapsed building during June’s quakes.`\
+https://www.nytimes.com/2026/08/03/world/americas/venezuela-us-deportation-flights-resume.html
+
 **Most of the Migrants Have Left Ceuta. Some Hope to Stay.**\
 `Stranded and alone in a Spanish enclave on the African continent, hundreds of migrants, including unaccompanied minors, face harsh conditions and an uncertain future after a border influx disappeared as quickly as it appeared.`\
 https://www.nytimes.com/video/world/europe/100000011069354/ceuta-migrants-spain-morocco.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/es/2026/08/03/espanol/estados-unidos/corrido-inteligenci
 **ICE Killed Him. A.I. Helped Turn Him Into a Folk Ballad, Fast.**\
 `Artificial Intelligence is helping people write corridos within hours, accelerating a century-old tradition of memorializing tragedy through song.`\
 https://www.nytimes.com/2026/08/03/us/ai-corridos-song-music-texas-ice-shooting.html
-
-**Nauru, a Small Island in South Pacific, Changes Its Name to Naoero**\
-`Formerly called Nauru, the island in the South Pacific wants its name to more closely match how it is said in the language spoken by its people.`\
-https://www.nytimes.com/2026/08/03/world/naoero-nauru-name-change.html
 
