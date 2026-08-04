@@ -1,3 +1,7 @@
+**Man Arrested on Suspicion of Arson in Spokane Wildfire**\
+`Aaron Farinacci, 37, was arrested after a witness reported seeing him kneeling near the ignition site of a major fire in Washington State, officials said.`\
+https://www.nytimes.com/2026/08/04/us/spokane-wildfires-arson-arrest.html
+
 **JPMorgan Again Entangled in a Soccer Fiasco**\
 `After promising to learn from its role in a failed “Super League” that fueled fan anger, the Wall Street bank is involved in FIFA’s latest meltdown.`\
 https://www.nytimes.com/2026/08/04/world/europe/fifa-jpmorgan.html
