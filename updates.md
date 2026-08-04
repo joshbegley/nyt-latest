@@ -1,3 +1,11 @@
+**Un académico estrella de Cambridge levanta cada vez más dudas sobre su vida y carrera**\
+`Un hombre enmascarado armado con un cuchillo. Una cabeza de cerdo en la puerta de sus padres. Correr 30 maratones en 35 días. Jason Arday, acusado de plagio, dice haber pasado por todo eso. No todos le creen.`\
+https://www.nytimes.com/es/2026/08/04/espanol/cultura/cambridge-plagio-racismo.html
+
+**‘Disruption’ Review: John David Washington as Just Another Tech Bro**\
+`In this Off Broadway play, the actor has the swagger to portray an entrepreneur pitching an A.I. start-up to his friends. Still, the drama falls flat.`\
+https://www.nytimes.com/2026/08/04/theater/disruption-review-john-david-washington.html
+
 **The 25 Objects That Explain America**\
 `Want to understand this country? Look at our stuff.`\
 https://www.nytimes.com/interactive/2026/08/04/opinion/museum-of-america.html
