@@ -26,8 +26,8 @@ https://www.nytimes.com/2026/08/04/business/dealbook/wall-street-bullish-stocks.
 `A maintenance train at Astor Place caught fire after 2 a.m., suspending service on part of the Lexington Avenue line, officials said. It later reopened with severe delays.`\
 https://www.nytimes.com/2026/08/04/nyregion/astor-place-train-fire-subway-mta.html
 
-**U.S. Stocks Near a Record High Amid Lull in Iran War**\
-`Markets have been lashed between disruptions in the Strait of Hormuz and anxiety about massive corporate investments in artificial intelligence.`\
+**Stocks Open at Record High as Oil Falls on Hopes of Iran Deal**\
+`The price of Brent crude oil fell sharply`\
 https://www.nytimes.com/2026/08/04/business/stocks-sp500-oil-prices.html
 
 **McDonald’s U.S. Sales Slow as Consumers Spend More Cautiously**\
@@ -155,7 +155,7 @@ https://www.nytimes.com/2026/08/04/travel/tsa-security-airport-wait-time.html
 https://www.nytimes.com/2026/08/04/arts/music/the-cramps-henry-rollins-ian-mackaye.html
 
 **Inside the Spending of AIPAC, One of the U.S.'s Largest Super PACs**\
-`In recent years, AIPAC has more than doubled the amount it spends in political campaigns, while rarely mentioning Israel. Its biggest test yet, the Michigan Senate primary, comes Tuesday.`\
+`The lobbying group has more than doubled its spending on political campaigns, while rarely mentioning Israel. It has placed a large financial bet on today's Michigan Senate primary.`\
 https://www.nytimes.com/interactive/2026/08/04/us/politics/aipac-israel-funds-spending.html
 
 **Miss ‘Grantchester’? Here Are More Crime-Solving Clergy**\
