@@ -62,7 +62,7 @@ https://www.nytimes.com/2026/08/04/crosswords/wordle-review-1873.html
 `Plus, where are you supposed to practice the bagpipes?`\
 https://www.nytimes.com/2026/08/04/podcasts/the-headlines/iran-deal-strait-of-hormuz-trump-spending.html
 
-**Live Updates: Michigan’s Senate Battle Leads a Five-State Primary Slate**\
+**Primary Elections Live Updates: Michigan’s Senate Battle Leads a Five-State Slate**\
 `Dr. Abdul El-Sayed, a progressive, faces Representative Haley Stevens, a moderate, in the Democratic primary for Senate. Kansas, Missouri, Virginia and Washington are also voting today.`\
 https://www.nytimes.com/live/2026/08/04/us/midterms-elections-michigan-virginia
 
