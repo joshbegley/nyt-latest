@@ -1,3 +1,7 @@
+**What to Watch in Virginia’s First Primary Since Redistricting Battle**\
+`Redistricting turmoil started, then ended, the campaigns of several Democratic hopefuls and pushed others into more competitive races than they anticipated.`\
+https://www.nytimes.com/2026/08/04/us/politics/virginia-primary-first-election-redistricting.html
+
 **Trump’s Fame Built a Unique Coalition**\
 `On “The Opinions,” Jamelle Bouie argues that Trump’s decades in the public eye allowed him to attract voters in a way no other Republican can, making his coalition difficult — if not impossible — to replicate.`\
 https://www.nytimes.com/video/opinion/100000011063523/trumps-fame-built-a-unique-coalition.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/04/books/review/triage-claudia-rankine.html
 **The 25 Most Important Sculptures Since the End of World War II**\
 `Four artists and a curator debate the most important works since the end of World War II.`\
 https://www.nytimes.com/2026/08/04/t-magazine/important-sculptures-modern-age.html
-
-**Their Forefather Was a Grocer and Mozart’s Most Important Librettist**\
-`Generations on, Lorenzo Da Ponte’s family keeps alive the memory of this poet and libertine, who ended up in the middle of Pennsylvania after being booted from Venice and Vienna.`\
-https://www.nytimes.com/2026/08/04/arts/music/mozart-librettist-da-ponte-american-descendant.html
 
