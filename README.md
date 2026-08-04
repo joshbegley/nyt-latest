@@ -1,3 +1,7 @@
+**Lessons on the Way to 100**\
+`We want to hear from people who aspire to live long lives — maybe even to 100 or beyond — about how you hope to do it and, perhaps, how you have been inspired by others who have made it there.`\
+https://www.nytimes.com/2026/08/04/well/longevity-callout.html
+
 **Derby Club Gives the Former Neary’s Space a Touch of Elegance**\
 `Camp 5 Acres channels Boy Scout vibes, sourdough bread from Mark Bittman and more restaurant news.`\
 https://www.nytimes.com/2026/08/04/dining/restaurant-news-nyc.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/08/04/us/elections/results-missouri-ame
 **Michigan Ninth Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Michigan primary election.`\
 https://www.nytimes.com/interactive/2026/08/04/us/elections/results-michigan-us-house-9-primary.html
-
-**Michigan Eighth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Michigan primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-michigan-us-house-8-primary.html
 
