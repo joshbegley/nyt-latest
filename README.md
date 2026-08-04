@@ -1,5 +1,13 @@
+**Justice Dept. Charges Doctor in $95 Million Skin Substitute Fraud Scheme**\
+`Dr. Stephen Dubin, a wound care doctor in Nevada, is accused of applying unneeded, expensive wound coverings to seniors. He used the profits to buy yachts, the department said.`\
+https://www.nytimes.com/2026/08/04/health/skin-substitutes-medicare-fraud.html
+
+**Veterinary Students Learn to Care for Honeybees as Populations Decline**\
+`Veterinary students at the University of Georgia learned to care for honeybees, which are vital pollinators for U.S. agriculture. Between 2024 and 2025 more than half of the managed colonies in the U.S. have been lost.`\
+https://www.nytimes.com/video/science/100000011072407/honeybee-colony-vet-care-pollinator.html
+
 **Stocks Hit a Record as Worries About Middle East and A.I. Ease**\
-`The S&P 500 rose 1.8 percent, pushing past its previous peak at the start of June and capping big turnaround from a recent sell off in technology stocks.`\
+`The S&P 500 rose 1.8 percent, pushing past its previous peak at the start of June and capping a big turnaround from a recent sell off in technology stocks.`\
 https://www.nytimes.com/2026/08/04/business/stock-market-record.html
 
 **Uno de los países más pequeños del mundo cambia su nombre**\
@@ -177,14 +185,6 @@ https://www.nytimes.com/interactive/2026/08/04/us/elections/results-virginia-us-
 **Virginia Ninth Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Virginia primary election.`\
 https://www.nytimes.com/interactive/2026/08/04/us/elections/results-virginia-us-house-9-primary.html
-
-**Virginia Eighth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Virginia primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-virginia-us-house-8-primary.html
-
-**Virginia Seventh Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Virginia primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-virginia-us-house-7-primary.html
 
 **Primary Elections Live Updates: Michigan’s Senate Battle Divides Democrats**\
 `Dr. Abdul El-Sayed, a progressive, faces Representative Haley Stevens, a moderate, in the Democratic primary for Senate. Kansas, Missouri, Virginia and Washington are also voting today.`\
