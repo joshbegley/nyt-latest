@@ -1,3 +1,11 @@
+**Eaton Fire Caused by Utility’s Transmission Tower, Report Says**\
+`The 2025 fire, which killed 19 people and destroyed the Altadena community in Los Angeles County, began at an inactive tower belonging to Southern California Edison, officials said.`\
+https://www.nytimes.com/2026/08/04/us/eaton-fire-cause-transmission-tower-report.html
+
+**Max Miller Shrugs Off Trump’s Warning and Pushes Ahead in Ohio**\
+`Republicans hoped a shove from President Trump would persuade the embattled congressman to drop his re-election bid in the face of abuse allegations.`\
+https://www.nytimes.com/2026/08/04/us/politics/max-miller-ohio-congress-trump.html
+
 **After Midtown Building Buckles, Violations Are Found at Many Other Sites**\
 `After two steel beams buckled at a Manhattan high-rise last month, city officials conducted inspections at dozens of construction sites across the city. None of the violations posed a danger to the public, the city said.`\
 https://www.nytimes.com/2026/08/04/nyregion/nyc-buildings-violations-conversions.html
