@@ -1,3 +1,7 @@
+**An Invasive Mosquito Is Spreading With Alarming Speed, Threatening Africa’s Cities**\
+`The malaria-carrying mosquito is resistant to all insecticides. Scientists are scrambling to find ways to blunt the risk.`\
+https://www.nytimes.com/2026/08/04/us/politics/mosquito-africa-anopheles-stephensi.html
+
 **Medicaid Urges States to Increase Autism Therapy Oversight**\
 `The program’s spending on the therapy has quintupled since 2021, far outstripping the growth in diagnoses and raising concerns about overprescribing and fraud.`\
 https://www.nytimes.com/2026/08/04/health/autism-therapy-medicaid.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/04/business/kevin-warsh-federal-reserve-markets.
 **Michigan First Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Michigan primary election.`\
 https://www.nytimes.com/interactive/2026/08/04/us/elections/results-michigan-us-house-1-primary.html
-
-**Michigan 13th Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Michigan primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-michigan-us-house-13-primary.html
 
