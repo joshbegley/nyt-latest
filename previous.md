@@ -1,3 +1,7 @@
+**Spotlight on Fauci Said to Boost Book Sales for Kennedy and His Publisher**\
+`Health Secretary Robert F. Kennedy Jr., his son, and Senator Rand Paul have all written books criticizing Dr. Anthony S. Fauci. All were published by a company led by a close Kennedy adviser.`\
+https://www.nytimes.com/2026/08/03/us/politics/fauci-rfk-publisher.html
+
 **An Emerging Deal Between Iran and Oman to Reopen Hormuz Would Come at a Cost for Trump**\
 `The deal would address President Trump’s most urgent political problem by allowing ships to move again. But it would give Iran strategic leverage it did not have before the war.`\
 https://www.nytimes.com/2026/08/03/us/politics/strait-of-hormuz-possible-reopening-deal.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/08/03/us/politics/democratic-socialists-midterms-de
 **Man Is Jailed for Concealing Mother’s Body in Freezer After Her Death**\
 `Christopher Phillips, 60, pleaded guilty to several crimes, including fraud, after the police found his mother’s body in a freezer in his home.`\
 https://www.nytimes.com/2026/08/03/world/europe/mother-dead-body-freezer-phillips-uk.html
-
-**Murió a manos del ICE. La IA pronto convirtió la tragedia en un corrido**\
-`La tecnología está ayudando a componer corridos en cuestión de horas, acelerando una tradición que conmemora la tragedia con el canto y relata noticias y acontecimientos desde el punto de vista de la comunidad.`\
-https://www.nytimes.com/es/2026/08/03/espanol/estados-unidos/corrido-inteligencia-artificial-lorenzo-salgado-araujo.html
 

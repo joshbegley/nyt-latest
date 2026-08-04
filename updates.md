@@ -1,3 +1,7 @@
+**Spotlight on Fauci Said to Boost Book Sales for Kennedy and His Publisher**\
+`Health Secretary Robert F. Kennedy Jr., his son, and Senator Rand Paul have all written books criticizing Dr. Anthony S. Fauci. All were published by a company led by a close Kennedy adviser.`\
+https://www.nytimes.com/2026/08/03/us/politics/fauci-rfk-publisher.html
+
 **An Emerging Deal Between Iran and Oman to Reopen Hormuz Would Come at a Cost for Trump**\
 `The deal would address President Trump’s most urgent political problem by allowing ships to move again. But it would give Iran strategic leverage it did not have before the war.`\
 https://www.nytimes.com/2026/08/03/us/politics/strait-of-hormuz-possible-reopening-deal.html
