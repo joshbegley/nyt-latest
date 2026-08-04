@@ -1,3 +1,7 @@
+**‘A War Zone’: Spokane Wildfires Leave a Devastating Trail of Destruction**\
+`Despite the scale of the damage, there have been no reported fatalities in the fires that started over the weekend. Late on Monday, officials arrested a man suspected of setting one of the fires.`\
+https://www.nytimes.com/2026/08/03/us/spokane-wildfires-update.html
+
 **Late Night Reacts to Trump’s Latest Iran Deal Comments**\
 `“I’m not saying that they’re out of ideas, but the best option they came up with was pinning the war on Dr. Fauci,” Jimmy Fallon said.`\
 https://www.nytimes.com/2026/08/04/arts/television/late-night-trump-iran-deal.html

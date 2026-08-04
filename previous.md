@@ -87,7 +87,7 @@ https://www.nytimes.com/video/world/europe/100000011069354/ceuta-migrants-spain-
 https://www.nytimes.com/2026/08/03/books/jason-arday-cambridge-plagiarism.html
 
 **‘A War Zone’: Spokane Wildfires Leave a Devastating Trail of Destruction**\
-`Despite the scale of the damage, there have been no reported fatalities in the fires that started over the weekend. Weather conditions have improved, allowing some evacuees to return.`\
+`Despite the scale of the damage, there have been no reported fatalities in the fires that started over the weekend. Late on Monday, officials arrested a man suspected of setting one of the fires.`\
 https://www.nytimes.com/2026/08/03/us/spokane-wildfires-update.html
 
 **Senate Moves Ahead on Bill to Avert a Shutdown**\
