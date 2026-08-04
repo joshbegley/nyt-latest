@@ -1,3 +1,7 @@
+**Fire in Manhattan Subway Injures 14 and Disrupts Commute**\
+`A maintenance train at Astor Place caught fire after 2 a.m., suspending service on part of the Lexington Avenue line, officials said. It later reopened with severe delays.`\
+https://www.nytimes.com/2026/08/04/nyregion/astor-place-train-fire-subway-mta.html
+
 **U.S. Stocks Near a Record High Amid Lull in Iran War**\
 `Markets have been lashed between disruptions in the Strait of Hormuz and anxiety about massive corporate investments in artificial intelligence.`\
 https://www.nytimes.com/2026/08/04/business/stocks-sp500-oil-prices.html
