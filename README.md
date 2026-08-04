@@ -1,3 +1,19 @@
+**Saudi Aramco Reports 33% Profit Surge Despite War’s Disruption**\
+`Higher oil prices propelled a quarterly earnings jump for Saudi Arabia’s energy giant, which used pipelines to work around disruptions in the Strait of Hormuz.`\
+https://www.nytimes.com/2026/08/04/business/saudi-aramco-earnings-iran-war.html
+
+**Trump quiere que los estadounidenses desaprendan lo que saben**\
+`Es así como decidimos quiénes somos y quiénes aspiramos a ser.`\
+https://www.nytimes.com/es/2026/08/04/espanol/opinion/trump-memoria-reescribir-historia.html
+
+**El banco más antiguo del mundo enfrenta una nueva amenaza**\
+`Banca Monte dei Paschi di Siena, fundado en 1472, ha resistido guerras, pandemias y escándalos. Ahora, una oferta pública de adquisición hostil mantiene en vilo a la Toscana.`\
+https://www.nytimes.com/es/2026/08/04/espanol/negocios/italia-banco-antiguo-monte-paschi.html
+
+**En Alaska, una gran ola se ha vuelto un destino para surfistas**\
+`El macareo de Turnagain Arm se está dando a conocer entre los surfistas de olas grandes que buscan uno de los recorridos más inusuales del mundo. Pero conlleva peligros.`\
+https://www.nytimes.com/es/2026/08/04/espanol/estados-unidos/alaska-gran-ola-surfistas-peligro.html
+
 **Para Trump, siempre es 2020**\
 `El presidente de Estados Unidos insiste en reescribir gran parte de lo que ocurrió hace seis años, incluida la pandemia y las elecciones que perdió. Muchos votantes preferirían que se enfocara en 2026.`\
 https://www.nytimes.com/es/2026/08/04/espanol/estados-unidos/trump-elecciones-aprobacion.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/08/03/us/politics/chuck-edwards-harrassment.html
 **Pirro Meets With Trump at the White House After He Said She ‘Choked’ in Reflecting Pool Case**\
 `President Trump said Jeanine Pirro, the U.S. attorney for Washington, D.C., “folded like an umbrella.” For now, her job appeared to be safe, according to two people familiar with the meeting.`\
 https://www.nytimes.com/2026/08/03/us/politics/trump-pirro-reflecting-pool-vandalism.html
-
-**Singapore Bans the Band, Massive Attack, for Displaying Palestinian Flag**\
-`Singaporean authorities detained and questioned the British band, Massive Attack, after members displayed a Palestinian flag at a concert last week.`\
-https://www.nytimes.com/video/world/asia/100000011070105/massive-attack-band-singapore-ban-palestine.html
-
-**Falling Space Junk**\
-`The race to control the skies is sending a record amount of debris crashing back to Earth.`\
-https://www.nytimes.com/2026/08/03/world/falling-space-debris-iran-oman.html
-
-**In Michigan’s 7th District’s Democratic Primary, a Centrist Split Boosts Progressive Hopes**\
-`Unable to unite behind a single candidate in Michigan’s Seventh Congressional District, moderate Democrats worry that they’ve complicated their chances in a key November battleground.`\
-https://www.nytimes.com/2026/08/03/us/politics/democrats-michigan-house-primary-progressives-moderates.html
-
-**Russian Opposition Politician Flees to France**\
-`Boris B. Nadezhdin, 63, appeared in a video standing in front of the Eiffel Tower. He said he was “alive and free, but, unfortunately, not yet in Russia.”`\
-https://www.nytimes.com/2026/08/03/world/europe/russian-politician-exile-france.html
 
