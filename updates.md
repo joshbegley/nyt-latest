@@ -1,3 +1,19 @@
+**Diana Vishneva’s Quiet Return in Venice Makes a Powerful Statement**\
+`Diana Vishneva’s performance at the Venice Dance Biennale raised uncomfortable questions for an event that once vowed to cut ties with Russia’s artists over the war in Ukraine.`\
+https://www.nytimes.com/2026/08/04/arts/dance/venice-dance-biennale-diana-vishneva.html
+
+**What to Watch in the Kansas Primaries: Can Republicans Flip a Governor’s Mansion?**\
+`Republicans see the marquee race to lead the state as perhaps their best chance this year to win a governorship held by Democrats.`\
+https://www.nytimes.com/2026/08/04/us/politics/kansas-primaries-what-to-watch.html
+
+**Stressed by Heat, 3 Lions Die at Tokyo Zoo**\
+`The female lions died within five days of each other despite zookeepers’ efforts to shelter them from Japan’s blistering summer temperatures.`\
+https://www.nytimes.com/2026/08/04/world/asia/lions-die-japan-zoo-extreme-heat.html
+
+**Inside the Spending of AIPAC, One of the U.S.'s Largest Super PACs**\
+`The lobbying group has more than doubled its spending on political campaigns, while rarely mentioning Israel. It has placed a large financial bet on today’s Michigan Senate primary.`\
+https://www.nytimes.com/interactive/2026/08/04/us/politics/aipac-israel-funds-spending.html
+
 **Primary Elections Live Updates: Michigan’s Senate Battle Leads a Five-State Slate**\
 `Dr. Abdul El-Sayed, a progressive, faces Representative Haley Stevens, a moderate, in the Democratic primary for Senate. Kansas, Missouri, Virginia and Washington are also voting today.`\
 https://www.nytimes.com/live/2026/08/04/us/midterms-elections-michigan-virginia

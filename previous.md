@@ -1,3 +1,15 @@
+**Diana Vishneva’s Quiet Return in Venice Makes a Powerful Statement**\
+`Diana Vishneva’s performance at the Venice Dance Biennale raised uncomfortable questions for an event that once vowed to cut ties with Russia’s artists over the war in Ukraine.`\
+https://www.nytimes.com/2026/08/04/arts/dance/venice-dance-biennale-diana-vishneva.html
+
+**What to Watch in the Kansas Primaries: Can Republicans Flip a Governor’s Mansion?**\
+`Republicans see the marquee race to lead the state as perhaps their best chance this year to win a governorship held by Democrats.`\
+https://www.nytimes.com/2026/08/04/us/politics/kansas-primaries-what-to-watch.html
+
+**Stressed by Heat, 3 Lions Die at Tokyo Zoo**\
+`The female lions died within five days of each other despite zookeepers’ efforts to shelter them from Japan’s blistering summer temperatures.`\
+https://www.nytimes.com/2026/08/04/world/asia/lions-die-japan-zoo-extreme-heat.html
+
 **What to Watch in Missouri’s Primaries as Cori Bush Tries to Beat Wesley Bell**\
 `Former Representative Cori Bush, a member of the progressive “squad,” is trying to defeat Representative Wesley Bell, a moderate who ousted her two years ago.`\
 https://www.nytimes.com/2026/08/04/us/politics/missouri-primary-election-bush-bell.html
@@ -155,7 +167,7 @@ https://www.nytimes.com/2026/08/04/travel/tsa-security-airport-wait-time.html
 https://www.nytimes.com/2026/08/04/arts/music/the-cramps-henry-rollins-ian-mackaye.html
 
 **Inside the Spending of AIPAC, One of the U.S.'s Largest Super PACs**\
-`The lobbying group has more than doubled its spending on political campaigns, while rarely mentioning Israel. It has placed a large financial bet on today's Michigan Senate primary.`\
+`The lobbying group has more than doubled its spending on political campaigns, while rarely mentioning Israel. It has placed a large financial bet on today’s Michigan Senate primary.`\
 https://www.nytimes.com/interactive/2026/08/04/us/politics/aipac-israel-funds-spending.html
 
 **Miss ‘Grantchester’? Here Are More Crime-Solving Clergy**\
@@ -181,16 +193,4 @@ https://www.nytimes.com/video/opinion/100000011047929/the-ai-revolt-is-here.html
 **Pacific Palisades Shopping Center Is Preparing to Reopen**\
 `Rick Caruso, the billionaire real estate developer and former Los Angeles mayoral candidate, is reviving a property still surrounded by burned-out lots.`\
 https://www.nytimes.com/2026/08/04/business/palisades-mall-wildfires.html
-
-**The Vessel at Hudson Yards Is the Stage for This Drama**\
-`Three workers at a towering Manhattan tourist attraction watch for visitors intent on self-harm in this new play by Brendan George.`\
-https://www.nytimes.com/2026/08/04/theater/the-vessel-review-suicide-intervention-squad.html
-
-**It’s a Dog, It’s a Plant, It’s by the Creators of Pokémon**\
-`The teenage warrior in Beast of Reincarnation has a loyal companion based on a Shiba Inu.`\
-https://www.nytimes.com/2026/08/04/arts/beast-of-reincarnation-koo-dog.html
-
-**Word of the Day: diurnal**\
-`This word has appeared in two articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/08/04/learning/word-of-the-day-diurnal.html
 
