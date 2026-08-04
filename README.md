@@ -1,3 +1,7 @@
+**Warsh Wanted ‘Regime Change.’ Markets Are Demanding a Reset.**\
+`After his latest appearance set off a bout of volatility, Kevin M. Warsh, the chairman of the Federal Reserve, is under pressure to clear up mixed signals about his commitment to getting inflation down.`\
+https://www.nytimes.com/2026/08/04/business/kevin-warsh-federal-reserve-markets.html
+
 **More Than 150 Migrants Rescued From Burning Boat in English Channel**\
 `No deaths or injuries were reported. Many migrants try to reach Britain in small, often unseaworthy vessels.`\
 https://www.nytimes.com/2026/08/04/world/europe/english-channel-migrants-rescue.html
@@ -5,6 +9,10 @@ https://www.nytimes.com/2026/08/04/world/europe/english-channel-migrants-rescue.
 **Todd Blanche Clears Committee Vote, Paving Way for Attorney General Confirmation**\
 `Todd Blanche’s nomination now advances to the Senate floor, where he is expected to be confirmed, even though several Republicans have not yet committed to supporting him.`\
 https://www.nytimes.com/2026/08/04/us/politics/blanche-confirmation-attorney-general-justice-department.html
+
+**Michigan Governor Primary 2026: Live Election Results, Benson vs. Swanson**\
+`Get live results and maps from the 2026 Michigan primary election.`\
+https://www.nytimes.com/interactive/2026/08/04/us/elections/results-michigan-governor-primary.html
 
 **Michigan U.S. Senate Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Michigan primary election.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/interactive/2026/08/04/us/elections/results-missouri-ame
 **Michigan Fifth Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Michigan primary election.`\
 https://www.nytimes.com/interactive/2026/08/04/us/elections/results-michigan-us-house-5-primary.html
-
-**Michigan Sixth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Michigan primary election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-michigan-us-house-6-primary.html
-
-**Missouri Amendment 4 Election Results 2026: Modify Amendment Approval Requirements**\
-`Get live results and maps from the 2026 Missouri general election.`\
-https://www.nytimes.com/interactive/2026/08/04/us/elections/results-missouri-amendment-4-modify-amendment-approval-requirements-and-prohibit-foreign-spending-on-measures.html
 
