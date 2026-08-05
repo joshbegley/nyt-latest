@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/08/05/business/media/new-york-times-earnings-q2.html
 
 **Rep. Chuck Edwards Drops Re-election Bid in North Carolina After Ethics Rebuke**\
-`Chuck Edwards made the announcement shortly after the House Ethics Committee had recommended he be censured for “persistent unprofessional and inappropriate conduct towards two young female staffers.”`\
+`Chuck Edwards made the announcement after the House Ethics Committee recommended he be censured for “persistent unprofessional and inappropriate conduct” toward two female staff members.`\
 https://www.nytimes.com/2026/08/05/us/politics/chuck-edwards-north-carolina.html
 
 **A Nail-Biter in Michigan**\
@@ -50,7 +50,7 @@ https://www.nytimes.com/2026/08/05/world/europe/hague-heat-coolcation.html
 `Finland, wary of misinformation from Moscow and beyond, has a leg up on other nations in spotting fake news. But A.I. is a whole new challenge.`\
 https://www.nytimes.com/2026/08/05/world/europe/finland-deepfakes-ai.html
 
-**Tradwives and the Manosphere Have Lost Their Viral Appeal**\
+**The Tradwife Illusion Meets the Anti-Trump Reality**\
 `Nara Smith’s illusion meets the anti-Trump reality.`\
 https://www.nytimes.com/2026/08/05/opinion/nara-smith-working-mom.html
 

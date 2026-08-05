@@ -1,3 +1,11 @@
+**Rep. Chuck Edwards Drops Re-election Bid in North Carolina After Ethics Rebuke**\
+`Chuck Edwards made the announcement after the House Ethics Committee recommended he be censured for “persistent unprofessional and inappropriate conduct” toward two female staff members.`\
+https://www.nytimes.com/2026/08/05/us/politics/chuck-edwards-north-carolina.html
+
+**The Tradwife Illusion Meets the Anti-Trump Reality**\
+`Nara Smith’s illusion meets the anti-Trump reality.`\
+https://www.nytimes.com/2026/08/05/opinion/nara-smith-working-mom.html
+
 **The New York Times’ Revenue Rises 11%**\
 `The company said it added 280,000 digital subscribers in the second quarter.`\
 https://www.nytimes.com/2026/08/05/business/media/new-york-times-earnings-q2.html
