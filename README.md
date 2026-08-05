@@ -1,3 +1,11 @@
+**Este asesor puede enseñarle a tu esposo a limpiar la casa**\
+`En las parejas heterosexuales, las mujeres suelen tener más carga mental por las labores domésticas y eso provoca discusiones. Ahora hay profesionales para equilibrar la situación.`\
+https://www.nytimes.com/es/2026/08/05/espanol/estilos-de-vida/labores-domesticas-esposo.html
+
+**Abortion Foes Backed Ballot Measures in 2 Red States. Voters Said No.**\
+`Voters in Kansas rejected a proposal to start electing Supreme Court justices, while Missourians declined to make it harder to amend the State Constitution.`\
+https://www.nytimes.com/2026/08/05/us/kansas-missouri-ballot-measures-abortion.html
+
 **Google Shakes Up A.I. Leadership**\
 `Minutes after four top researchers said they were leaving, Google said that Demis Hassabis, the Nobel-winning scientist who led the company’s A.I. lab, was stepping into a new job.`\
 https://www.nytimes.com/2026/08/05/technology/google-ai-leadership.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/08/05/world/middleeast/houthis-claim-attack-saudi-a
 **The Best Movies and TV Shows Coming to Netflix in August**\
 `The second season of “One Hundred Years of Solitude” and the documentary “A Child of My Own” are among the most promising titles.`\
 https://www.nytimes.com/2026/08/05/arts/television/netflix-new-august.html
-
-**Record-Breaking Heat Wave in South Korea Leads to Canceled Baseball Games**\
-`The country has been gripped by a record-setting heat wave that endangered both players and spectators.`\
-https://www.nytimes.com/2026/08/05/world/asia/south-korea-baseball-heat-wave.html
-
-**The New York Times’s Revenue Rises 11%**\
-`The company said it added 280,000 digital subscribers in the second quarter.`\
-https://www.nytimes.com/2026/08/05/business/media/new-york-times-earnings-q2.html
 

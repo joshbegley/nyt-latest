@@ -1,3 +1,15 @@
+**Google Shakes Up A.I. Leadership**\
+`Minutes after four top researchers said they were leaving, Google said that Demis Hassabis, the Nobel-winning scientist who led the company’s A.I. lab, was stepping into a new job.`\
+https://www.nytimes.com/2026/08/05/technology/google-ai-leadership.html
+
+**Windy Weather Could Worsen Pacific Northwest Fires**\
+`Forecasters expect winds to pick up in eastern Washington and Oregon on Friday and Saturday, but not to be as strong as last weekend’s were.`\
+https://www.nytimes.com/2026/08/05/weather/pacific-northwest-fires-could-worsen-with-more-wind.html
+
+**Los nuevos controles de pasaportes causan caos a los viajeros en Europa**\
+`El sistema biométrico para ciudadanos que no son de la UE está causando extensas demoras en los aeropuertos. Las autoridades dicen que el accidentado lanzamiento mejorará y aumentará la seguridad.`\
+https://www.nytimes.com/es/2026/08/05/espanol/mundo/control-pasaportes-largas-filas-europa.html
+
 **Iran Says It Is Nearing Final Agreement With Oman on Strait of Hormuz**\
 `The agreement on an acceptable route for ships to pass through the strait would effectively ratify Tehran’s control over the crucial waterway.`\
 https://www.nytimes.com/2026/08/05/world/middleeast/iran-oman-strait-of-hormuz.html
