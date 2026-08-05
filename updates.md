@@ -1,3 +1,11 @@
+**¿Qué funciona de verdad para el dolor de rodilla?**\
+`Aquí te explicamos cómo diferenciar entre los tipos comunes de dolor y lo que recomiendan los expertos para controlarlos.`\
+https://www.nytimes.com/es/2026/08/05/espanol/estilos-de-vida/dolor-de-rodilla-tratamientos.html
+
+**Climate Change Comes to Sesame Street**\
+`An episode this week focuses on the dangerous effects of warming, without mentioning climate change.`\
+https://www.nytimes.com/2026/08/05/climate/sesame-street-storm-climate-change.html
+
 **Trump Seeks a Boost for Hemp That Would Benefit a Top Aide’s Family**\
 `At the White House’s request, senators tucked a change sought by the hemp industry into a crucial spending bill. It would benefit the son-in-law of Susie Wiles, the president’s chief of staff.`\
 https://www.nytimes.com/2026/08/05/us/politics/trump-wiles-hemp-white-house.html

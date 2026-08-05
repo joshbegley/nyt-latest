@@ -1,3 +1,11 @@
+**¿Qué funciona de verdad para el dolor de rodilla?**\
+`Aquí te explicamos cómo diferenciar entre los tipos comunes de dolor y lo que recomiendan los expertos para controlarlos.`\
+https://www.nytimes.com/es/2026/08/05/espanol/estilos-de-vida/dolor-de-rodilla-tratamientos.html
+
+**Climate Change Comes to Sesame Street**\
+`An episode this week focuses on the dangerous effects of warming, without mentioning climate change.`\
+https://www.nytimes.com/2026/08/05/climate/sesame-street-storm-climate-change.html
+
 **Trump Seeks a Boost for Hemp That Would Benefit a Top Aide’s Family**\
 `At the White House’s request, senators tucked a change sought by the hemp industry into a crucial spending bill. It would benefit the son-in-law of Susie Wiles, the president’s chief of staff.`\
 https://www.nytimes.com/2026/08/05/us/politics/trump-wiles-hemp-white-house.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/08/05/nyregion/gen-zs-dating-doldrums.html
 **Pick Your Favorite $845,000 Home**\
 `This week’s properties include a cottage in Lake Arrowhead, Calif., a Colonial Revival in Stonington, Conn., and a two-story house in New Orleans.`\
 https://www.nytimes.com/2026/08/05/realestate/845000-dollar-homes-new-orleans-lake-arrowhead-stonington.html
-
-**In Redrawn Tennessee, Democrats Scramble to Hold On to One Seat**\
-`All nine districts are now solidly Republican after the Supreme Court weakened the Voting Rights Act. But some Democratic candidates insist they still have a chance.`\
-https://www.nytimes.com/2026/08/05/us/elections/tennessee-primary-democrats.html
-
-**Tell us Your Connections Tips, Strategies and Questions**\
-`We’re also looking to find out what questions solvers have about the game.`\
-https://www.nytimes.com/2026/08/05/crosswords/connections-questions.html
 

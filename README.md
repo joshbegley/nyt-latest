@@ -1,3 +1,7 @@
+**El-Sayed Won a High-Stakes Michigan Primary. Now Comes the Hard Part.**\
+`Abdul El-Sayed’s Senate candidacy poses a critical test of Democrats’ ascendant progressive wing: Can an insurgent candidate, with unabashedly liberal positions, win a general election in a moderate state?`\
+https://www.nytimes.com/2026/08/05/us/politics/el-sayed-michigan-senate-primary-win.html
+
 **¿Qué funciona de verdad para el dolor de rodilla?**\
 `Aquí te explicamos cómo diferenciar entre los tipos comunes de dolor y lo que recomiendan los expertos para controlarlos.`\
 https://www.nytimes.com/es/2026/08/05/espanol/estilos-de-vida/dolor-de-rodilla-tratamientos.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/05/podcasts/50-best-thrillers-century.html
 **Gen Z’s Dating Doldrums**\
 `Young people in New York City are going out on fewer dates, partly because everything is so expensive.`\
 https://www.nytimes.com/2026/08/05/nyregion/gen-zs-dating-doldrums.html
-
-**Pick Your Favorite $845,000 Home**\
-`This week’s properties include a cottage in Lake Arrowhead, Calif., a Colonial Revival in Stonington, Conn., and a two-story house in New Orleans.`\
-https://www.nytimes.com/2026/08/05/realestate/845000-dollar-homes-new-orleans-lake-arrowhead-stonington.html
 
