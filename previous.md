@@ -1,3 +1,7 @@
+**ICE Threatens Sheriffs In Chicago and Minneapolis With Prosecution Over Access to Inmates**\
+`In a new tactic, federal immigration officials recently started saying they would criminally charge the elected county sheriffs in Minneapolis and Chicago.`\
+https://www.nytimes.com/2026/08/05/us/ice-minnesota-sheriff-prosecution.html
+
 **The Quest to Extend Human Life**\
 `Why life expectancy is at the heart of the idea of progress.`\
 https://www.nytimes.com/2026/08/05/headway/life-expectancy-united-states.html
@@ -62,7 +66,7 @@ https://www.nytimes.com/2026/08/05/books/ursula-hegi-dead.html
 `Federal and state officials are racing to address an assault on the nation’s water supply that they believe is the work of Iranian hackers.`\
 https://www.nytimes.com/2026/08/05/us/politics/water-supply-warnings.html
 
-**El-Sayed Won a High-Stakes Michigan Primary. Now Comes the Hard Part.**\
+**El-Sayed’s Narrow Win Sets Up the Left’s Biggest Swing-State Test of the Fall**\
 `Abdul El-Sayed’s Senate candidacy poses a critical test of Democrats’ ascendant progressive wing: Can an insurgent candidate, with unabashedly liberal positions, win a general election in a moderate state?`\
 https://www.nytimes.com/2026/08/05/us/politics/el-sayed-michigan-senate-primary-win.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/05/business/media/disney-parks-universal.html
 **Migrant Crisis Reveals Vast Differences Between Ceuta and Its Moroccan Neighbor**\
 `Ceuta, Spain, and Fnideq, Morocco, are physically separated by only a mile, but they are intertwined by family and trade. A recent border crisis is the latest chapter in their story.`\
 https://www.nytimes.com/2026/08/05/world/europe/ceuta-spain-fnideq-morocco-migration.html
-
-**Disney+ Cracks Open the Door to TikTok Creator Videos**\
-`Disney said it would allow “thoughtfully curated” fan-created videos, using clips from its library, to appear on the streaming service.`\
-https://www.nytimes.com/2026/08/05/business/media/disney-tiktok-videos.html
 

@@ -1,3 +1,11 @@
+**ICE Threatens Sheriffs In Chicago and Minneapolis With Prosecution Over Access to Inmates**\
+`In a new tactic, federal immigration officials recently started saying they would criminally charge the elected county sheriffs in Minneapolis and Chicago.`\
+https://www.nytimes.com/2026/08/05/us/ice-minnesota-sheriff-prosecution.html
+
+**El-Sayed’s Narrow Win Sets Up the Left’s Biggest Swing-State Test of the Fall**\
+`Abdul El-Sayed’s Senate candidacy poses a critical test of Democrats’ ascendant progressive wing: Can an insurgent candidate, with unabashedly liberal positions, win a general election in a moderate state?`\
+https://www.nytimes.com/2026/08/05/us/politics/el-sayed-michigan-senate-primary-win.html
+
 **The Quest to Extend Human Life**\
 `Why life expectancy is at the heart of the idea of progress.`\
 https://www.nytimes.com/2026/08/05/headway/life-expectancy-united-states.html
