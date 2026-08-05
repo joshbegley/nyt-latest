@@ -1,3 +1,7 @@
+**Primary Elections Live Updates: Race Too Close to Call in Democratic Primary for Michigan Senate Seat**\
+`Dr. Abdul El-Sayed, a progressive, and Representative Haley Stevens, a centrist, both gave speeches with the winner still undeclared. Kansas, Missouri, Virginia and Washington also voted.`\
+https://www.nytimes.com/live/2026/08/04/us/midterms-elections-michigan-virginia
+
 **La frustración de Trump choca con el enigma del poder en Irán**\
 `A pesar de la fuerza militar, las sanciones y la urgencia política, el presidente no ha logrado traducir su enfoque en un acuerdo que cambie la relación con Teherán.`\
 https://www.nytimes.com/es/2026/08/05/espanol/estados-unidos/trump-guerra-iran.html
