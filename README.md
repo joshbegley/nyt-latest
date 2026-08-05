@@ -1,3 +1,15 @@
+**Shawarma-Spiced Grilled Chicken; Tapenade Pasta Salad; Broiled Peaches With Feta**\
+`There are roughly 7 weeks of summer left. Cook accordingly.`\
+https://www.nytimes.com/2026/08/05/dining/shawarma-spiced-grilled-chicken-tapenade-pasta-salad-broiled-peaches-with-feta.html
+
+**Could U.S. Water Systems Be a New Front in the Iran War?**\
+`Dozens of U.S. water systems have been the targets of cyberattacks in the past week. Our reporter Dustin Volz explains how Iranian hackers are suspected, and how President Trump has cast blame elsewhere.`\
+https://www.nytimes.com/video/us/100000011070404/could-us-water-systems-be-a-new-front-in-the-iran-war.html
+
+**‘That Didn’t Age Well’**\
+`Looney Tunes hasn’t aged well. Neither has “The West Wing.” And that’s OK, the Times Opinion columnist Carlos Lozada says. He argues we shouldn’t just dismiss art that doesn’t fit the moment. Instead, we should learn from it.`\
+https://www.nytimes.com/video/opinion/100000011069719/that-didnt-age-well.html
+
 **Muslim Americans Celebrate Abdul El-Sayed’s Win in Michigan Primary**\
 `Muslim voters from across the country said they felt hope and anxiety as Dr. El-Sayed moved closer to becoming the nation’s first Muslim senator.`\
 https://www.nytimes.com/2026/08/05/us/elections/muslim-reaction-el-sayed-victory.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/08/05/arts/television/the-shards-sterling-point-tee
 **Lobga Rangzen, the Tibetan Activist Who Set Himself on Fire in Manhattan**\
 `No one doubted the intensity of Lobga Rangzen’s commitment to a Tibet free of Chinese control. But they were not prepared for what he did next.`\
 https://www.nytimes.com/2026/08/05/world/asia/lobga-rangzen-united-nations-tibet-china.html
-
-**Listening to New York City**\
-`Our culture reporter Patricia Leigh Brown went on a sound walk through New York City with Jacek Smolicki, artist and sound walker.`\
-https://www.nytimes.com/video/arts/100000011044524/listening-to-new-york-city.html
-
-**How to Treat Knee Pain, According to Experts**\
-`Here’s how to differentiate between common types of pain and what experts recommend for managing them.`\
-https://www.nytimes.com/2026/08/05/well/move/knee-pain-causes-treatments.html
-
-**‘Ted Lasso’ Draws Fans to Richmond, a Bucolic London Suburb**\
-`Fans of the warmhearted Apple TV show flock to Richmond-upon-Thames, which has long been a destination for visitors and film location scouts.`\
-https://www.nytimes.com/2026/08/05/arts/television/ted-lasso-richmond-locations.html
 
