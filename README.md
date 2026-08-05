@@ -1,3 +1,11 @@
+**Takeaways From the Primary Elections in Michigan**\
+`Dr. Abdul El-Sayed narrowly prevailed over Representative Haley Stevens in the Democratic primary for Senate in Michigan, setting up a nervy race to November for the party.`\
+https://www.nytimes.com/2026/08/05/us/politics/michigan-primary-elections-takeaways.html
+
+**How China’s A.I. Is Surging Across Africa**\
+`In African tech hubs, developers are picking China’s cheap, freely available artificial intelligence models over more powerful U.S. ones.`\
+https://www.nytimes.com/2026/08/05/technology/ai-china-africa.html
+
 **Shri Thanedar Is Ousted by a Democratic Socialist in a Michigan House Primary**\
 `Representative Shri Thanedar is among a wave of Democratic incumbents in Congress whom primary voters have sent packing in a surge of anti-incumbent fervor this cycle.`\
 https://www.nytimes.com/2026/08/05/us/politics/michigan-house-primary-mckinney-thanedar.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/05/travel/uk-st-ives-cornwall-beach.html
 **It’s the Summer of Soundwalking. He Is Your Sherpa.**\
 `“We may be hearing but not listening,” Jacek Smolicki said, showing a reporter how sound travels through tree roots in Central Park and amplifying the scraping of aquatic snails.`\
 https://www.nytimes.com/2026/08/05/arts/design/soundwalk-jacek-smolicki-central-park.html
-
-**They Were Voted Out. They Refuse to Leave. Now What?**\
-`Avenal, Calif., a city in the rural Central Valley, has become an unlikely example of election denialism months after a recall election.`\
-https://www.nytimes.com/2026/08/05/us/avenal-california-recall-election-dispute.html
-
-**Development Comes for a Florida Hub of Elite Equestrian Activity**\
-`Wellington, Fla., has long been a town for equestrians, and with a spate of new development, it’s leaning in even more.`\
-https://www.nytimes.com/2026/08/05/realestate/wellington-florida-development-equestrians.html
 
