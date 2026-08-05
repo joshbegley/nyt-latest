@@ -1,3 +1,7 @@
+**Race Too Close to Call in Democratic Primary for Michigan Senate Seat**\
+`Dr. Abdul El-Sayed, a progressive, and Representative Haley Stevens, a centrist, both gave speeches with the winner still undeclared. Kansas, Missouri, Virginia and Washington also voted.`\
+https://www.nytimes.com/live/2026/08/04/us/midterms-elections-michigan-virginia
+
 **Lo que algunas ciudades pierden cuando las personas dejan el alcohol**\
 `Sí, reducir el consumo tiene muchos beneficios. Pero los bares están cerrando. Los empleos están desapareciendo. Y una forma de estar juntos puede sentirse más difícil de encontrar.`\
 https://www.nytimes.com/es/2026/08/05/espanol/consumo-alcohol-restaurantes-bares.html
