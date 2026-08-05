@@ -1,3 +1,15 @@
+**Un delfín carga a su cría muerta en lo que los expertos llaman duelo**\
+`Las imágenes publicadas por un grupo conservacionista ofrecen un vistazo inusual a un comportamiento común en los delfines que a menudo pasa desapercibido.`\
+https://www.nytimes.com/es/2026/08/05/espanol/delfin-duelo-cria-muerta-video.html
+
+**Quote of the Day: One Lawyer’s Sisyphean Battle to Help Trans Troops Fight Ban**\
+`Quotation of the Day for Wednesday, August 5, 2026.`\
+https://www.nytimes.com/2026/08/05/pageoneplus/quote-of-the-day-one-lawyers-sisyphean-battle-to-help-trans-troops-fight-ban.html
+
+**China’s Nonsmokers Try to Clear the Air, One Confrontation at a Time**\
+`Disputes between smokers and nonsmokers are becoming more visible as a younger generation increasingly refuses to suffer secondhand smoke in silence.`\
+https://www.nytimes.com/2026/08/05/world/asia/china-cigarette-smoking.html
+
 **William Lawrence Wins Primary in Battleground Michigan House District**\
 `William Lawrence defeated two moderate candidates to challenge a vulnerable Republican incumbent, but some worry his views could hurt his chances in November.`\
 https://www.nytimes.com/2026/08/04/us/politics/maasdam-lawrence-michigan-primary.html
@@ -165,18 +177,6 @@ https://www.nytimes.com/2026/08/04/opinion/trump-midterms-iran.html
 **Freida McFadden, John Grisham and More Share Their Top Thrillers of the 21st Century**\
 `John Grisham, Gillian Flynn, Freida McFadden and 59 others share their ballots.`\
 https://www.nytimes.com/interactive/2026/books/authors-top-thrillers-21st-century.html
-
-**The 50 Best Thriller Books of the 21st Century**\
-`Hundreds of novelists, librarians, editors and other book lovers voted. See how their ballots stack up.`\
-https://www.nytimes.com/interactive/2026/books/best-thriller-books-21st-century.html
-
-**I’m Begging You: Never Write With A.I.**\
-`It’s bad for your brain and worse for democracy.`\
-https://www.nytimes.com/2026/08/04/opinion/artificial-intelligence-ai-writing.html
-
-**South Korea Wants to Raise Its Birthrate but Doesn’t Have Enough NICU Doctors**\
-`South Korea, which has one of the world’s lowest fertility rates, is in the throes of a breakdown in emergency care. It is particularly acute for at-risk newborns.`\
-https://www.nytimes.com/2026/08/04/world/asia/south-korea-birth-rate-nicu-crisis.html
 
 **Primary Elections Live Updates: Close Race in Democratic Primary for Michigan Senate Seat**\
 `The primary pitted Dr. Abdul El-Sayed, a progressive, against Representative Haley Stevens, a centrist. Kansas, Missouri, Virginia and Washington are also voting today.`\
