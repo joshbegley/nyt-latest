@@ -1,3 +1,7 @@
+**Federal Judge Weakens The National Firearms Act**\
+`The National Firearms Act mandated a permitting process for short-barreled rifles and shotguns, as well as suppressors. A judge ruled that the provision was unconstitutional.`\
+https://www.nytimes.com/2026/08/05/us/politics/federal-judge-weakens-key-gun-control-law.html
+
 **Mayor Says El-Sayed’s Win Shows He Is More Than a ‘Mini-Mamdani’**\
 `Mayor Zohran Mamdani of New York said that Dr. Abdul El-Sayed’s close victory in the Michigan Senate primary put “working-class Americans back at the heart of our politics.”`\
 https://www.nytimes.com/2026/08/05/us/politics/el-sayed-mamdani-michigan-election.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/05/us/politics/el-sayed-michigan-skeptical-voter
 **Este asesor puede enseñarle a tu esposo a limpiar la casa**\
 `En las parejas heterosexuales, las mujeres suelen tener más carga mental por las labores domésticas y eso provoca discusiones. Ahora hay profesionales para equilibrar la situación.`\
 https://www.nytimes.com/es/2026/08/05/espanol/estilos-de-vida/labores-domesticas-esposo.html
-
-**Abortion Foes Backed Ballot Measures in 2 Red States. Voters Said No.**\
-`Voters in Kansas rejected a proposal to start electing Supreme Court justices, while Missourians declined to make it harder to amend the State Constitution.`\
-https://www.nytimes.com/2026/08/05/us/kansas-missouri-ballot-measures-abortion.html
 
