@@ -1,4 +1,8 @@
-**What One Witness Saw Moments Before a Fire Started**\
+**Armed Man Arrested at Trump Golf Club Near Los Angeles**\
+`The man appeared to be observing “security-planning activities” on Sunday at the club in Rancho Palos Verdes, the authorities said. The president was scheduled to speak there on Tuesday night.`\
+https://www.nytimes.com/2026/08/04/us/trump-golf-club-armed-man-arrested.html
+
+**What One Witness Saw Before a Spokane Wildfire Started**\
 `A resident of Spokane County, Wash., said he noticed a man acting suspiciously and called 911 after seeing smoke. The police later arrested a suspect tied to one of the wildfires in the area.`\
 https://www.nytimes.com/2026/08/04/us/spokane-fire-arson-suspect-witness.html
 
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/08/04/health/skin-substitutes-medicare-fraud.html
 **Veterinary Students Learn to Care for Honeybees as Populations Decline**\
 `Veterinary students at the University of Georgia learned to care for honeybees, which are vital pollinators for U.S. agriculture. Between 2024 and 2025 more than half of the managed colonies in the U.S. have been lost.`\
 https://www.nytimes.com/video/science/100000011072407/honeybee-colony-vet-care-pollinator.html
-
-**S&P 500 Hits Record High as Stock Market Worries About Iran and AI Ease**\
-`The S&P 500 rose 1.8 percent, pushing past its previous peak at the start of June and capping a big turnaround from a recent sell off in technology stocks.`\
-https://www.nytimes.com/2026/08/04/business/stock-market-record.html
 
 **Primary Elections Live Updates: Counting Begins in Michigan After Bitter Senate Battle**\
 `Polls are closed in most of the state, where Dr. Abdul El-Sayed, a progressive, is facing Representative Haley Stevens, a moderate, in the Democratic primary for Senate. Kansas, Missouri, Virginia and Washington are also voting today.`\
