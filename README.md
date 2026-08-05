@@ -1,3 +1,11 @@
+**Trump Administration Revokes Visa of Brazil’s Ambassador in the U.S.**\
+`The State Department has canceled the visa of the Brazilian ambassador in Washington, deepening a diplomatic crisis between the two countries.`\
+https://www.nytimes.com/2026/08/04/world/americas/brazil-ambassador-us-visa.html
+
+**5 Things to Know About Haley Stevens, Democratic Senate Hopeful in Michigan**\
+`Ms. Stevens, a fourth-term congresswoman, is the choice of Democratic leadership in Washington, D.C., and Michigan.`\
+https://www.nytimes.com/2026/08/04/us/politics/haley-stevens-democrat-michigan-senate.html
+
 **Counties to Watch in Michigan’s Democratic Senate Primary**\
 `Results from these eight Michigan counties may prove crucial in an uncertain race between Dr. Abdul El-Sayed and Representative Haley Stevens.`\
 https://www.nytimes.com/2026/08/04/us/elections/michigan-senate-primary-counties-to-watch.html
@@ -173,10 +181,6 @@ https://www.nytimes.com/es/2026/08/04/espanol/mundo/pais-mas-pequeno-naoreo-naur
 **Restaurant Review: Bar Chucho in NYC**\
 `Bar Chucho — from the team behind the Michelin-starred Mexican standout Corima — overachieves but stays true to its purpose. And there’s a great burger at a fair price.`\
 https://www.nytimes.com/2026/08/04/dining/restaurant-review-bar-chucho-nyc.html
-
-**Officials Say They’ve Found the Cause of a Fire That Devastated L.A.**\
-`The 2025 Eaton fire, which killed 19 people and destroyed the Altadena community, began at an inactive tower belonging to Southern California Edison, officials said.`\
-https://www.nytimes.com/2026/08/04/us/eaton-fire-cause-transmission-tower-report.html
 
 **Primary Elections Live Updates: Counting Begins in Michigan After Bitter Senate Battle**\
 `Polls are closed in most of the state, where Dr. Abdul El-Sayed, a progressive, is facing Representative Haley Stevens, a moderate, in the Democratic primary for Senate. Kansas, Missouri, Virginia and Washington are also voting today.`\
