@@ -1,3 +1,7 @@
+**C.I.A. Sets Up Secret Cuba Task Force as Trump Pressures Havana**\
+`The task force will allow the spy agency to quickly direct more financial, human and technical resources at the island, with the goal of creating fissures among the Cuban political elite.`\
+https://www.nytimes.com/2026/08/05/us/politics/cia-cuba-task-force.html
+
 **Explosive Drone Found at German Airport Used by Ukrainian Carrier**\
 `A second drone may have collided with a plane in the air over the airport, damaging the aircraft slightly, the authorities say.`\
 https://www.nytimes.com/2026/08/05/world/europe/germany-explosive-drone-airport.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/05/weather/pacific-northwest-fires-could-worsen-
 **Los nuevos controles de pasaportes causan caos a los viajeros en Europa**\
 `El sistema biométrico para ciudadanos que no son de la UE está causando extensas demoras en los aeropuertos. Las autoridades dicen que el accidentado lanzamiento mejorará y aumentará la seguridad.`\
 https://www.nytimes.com/es/2026/08/05/espanol/mundo/control-pasaportes-largas-filas-europa.html
-
-**Iran Says It Is Nearing Final Agreement With Oman on Strait of Hormuz**\
-`The agreement on an acceptable route for ships to pass through the strait would effectively ratify Tehran’s control over the crucial waterway.`\
-https://www.nytimes.com/2026/08/05/world/middleeast/iran-oman-strait-of-hormuz.html
 
