@@ -1,3 +1,11 @@
+**Chipotle Removes Jalapeños Linked to Salmonella Outbreak From Its Restaurants**\
+`The Minnesota Department of Health said it had identified 110 salmonella cases in this outbreak, and the F.D.A. is also investigating.`\
+https://www.nytimes.com/2026/08/04/us/chipotle-salmonella-outbreak-jalepenos-minnesota.html
+
+**5 Things to Know About Abdul El-Sayed, Democratic Senate Hopeful in Michigan**\
+`Dr. El-Sayed, a progressive candidate, is a vocal critic of Israel. He is known for his rhetorical abilities, which have drawn cheers and criticism.`\
+https://www.nytimes.com/2026/08/04/us/politics/abdul-el-sayed-democrat-michigan-senate.html
+
 **Shannon Taylor Wins Democratic Primary for Virginia House Race**\
 `The Richmond-area district was going to be one of the country’s most competitive in November, before a court threw out a Democrat-drawn redistricting map. Ms. Taylor faces Representative Rob Wittman in November.`\
 https://www.nytimes.com/2026/08/04/us/politics/taylor-knapp-virginia-primary-election.html
@@ -170,15 +178,7 @@ https://www.nytimes.com/2026/08/04/us/eaton-fire-cause-transmission-tower-report
 `Last week, hundreds of people gathered to witness New Zealand’s final commercial greyhound race. The country banned the sport amid concerns about the dogs’ welfare.`\
 https://www.nytimes.com/video/world/australia/100000011072216/new-zealand-greyhound-racing.html
 
-**Family Demands Answers About Death of Immigrant Held at Detention Center**\
-`Edwin Lopez-Cornejo’s relatives said that federal officials who oversee Delaney Hall in Newark had refused to provide his medical records.`\
-https://www.nytimes.com/2026/08/04/nyregion/immigrant-death-delaney-hall.html
-
-**Senate Committee Advances Blanche’s Nomination for Attorney General**\
-`The Senate Judiciary Committee voted on Tuesday to advance Todd Blanche’s nomination for attorney general after he reached an agreement with two Republican holdouts late Sunday.`\
-https://www.nytimes.com/video/us/politics/100000011072139/blanche-confirmation-attorney-general.html
-
-**Primary Elections Live Updates: Divisive Michigan Senate Battle Enters Final Hour**\
-`Dr. Abdul El-Sayed, a progressive, is facing Representative Haley Stevens, a moderate, in the Democratic primary for Senate. Polls are closed in Virginia. Kansas, Missouri and Washington are also voting today.`\
+**Primary Elections Live Updates: Counting Begins in Michigan After Bitter Senate Battle**\
+`Polls are closed in most of of the state, where Dr. Abdul El-Sayed, a progressive, is facing Representative Haley Stevens, a moderate, in the Democratic primary for Senate. Kansas, Missouri, Virginia and Washington are also voting today.`\
 https://www.nytimes.com/live/2026/08/04/us/midterms-elections-michigan-virginia
 
