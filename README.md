@@ -1,3 +1,7 @@
+**The Winners of Trump’s A.I. Safety Plan**\
+`The Trump administration’s new safety review guidelines appear to exempt Chinese artificial intelligence models. OpenAI’s and Anthropic’s aren’t.`\
+https://www.nytimes.com/2026/08/05/business/dealbook/winners-trump-ai-policy.html
+
 **Houthis Threaten to Expand Red Sea Attacks, and Claim Strike on Saudi Tanker**\
 `Saudi Arabia has not commented on the claim by the Houthis, who are backed by Iran and have vowed to close “all access routes” to Saudi oil shipments.`\
 https://www.nytimes.com/2026/08/05/world/middleeast/houthis-claim-attack-saudi-arabia-tanker.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/live/2026/08/05/us/michigan-election-results-primary
 **Lo que algunas ciudades pierden cuando las personas dejan el alcohol**\
 `Sí, reducir el consumo tiene muchos beneficios. Pero los bares están cerrando. Los empleos están desapareciendo. Y una forma de estar juntos puede sentirse más difícil de encontrar.`\
 https://www.nytimes.com/es/2026/08/05/espanol/consumo-alcohol-restaurantes-bares.html
-
-**¿Por qué Trump se enfrentó con la fiscala Jeanine Pirro?**\
-`La fiscala sostuvo que la evidencia apuntaba a una falla de construcción en el Estanque Reflectante en Washington, no a un delito, y eso provocó una reprimenda pública del presidente y dudas sobre su futuro.`\
-https://www.nytimes.com/es/2026/08/05/espanol/estados-unidos/trump-estanque-lincoln-fiscal-pirro.html
 

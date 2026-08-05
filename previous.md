@@ -1,3 +1,7 @@
+**Houthis Threaten to Expand Red Sea Attacks, and Claim Strike on Saudi Tanker**\
+`Saudi Arabia has not commented on the claim by the Houthis, who are backed by Iran and have vowed to close “all access routes” to Saudi oil shipments.`\
+https://www.nytimes.com/2026/08/05/world/middleeast/houthis-claim-attack-saudi-arabia-tanker.html
+
 **The Best Movies and TV Shows Coming to Netflix in August**\
 `The second season of “One Hundred Years of Solitude” and the documentary “A Child of My Own” are among the most promising titles.`\
 https://www.nytimes.com/2026/08/05/arts/television/netflix-new-august.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/08/05/espanol/consumo-alcohol-restaurantes-bares
 **¿Por qué Trump se enfrentó con la fiscala Jeanine Pirro?**\
 `La fiscala sostuvo que la evidencia apuntaba a una falla de construcción en el Estanque Reflectante en Washington, no a un delito, y eso provocó una reprimenda pública del presidente y dudas sobre su futuro.`\
 https://www.nytimes.com/es/2026/08/05/espanol/estados-unidos/trump-estanque-lincoln-fiscal-pirro.html
-
-**How to Approach an Interview With Mark Zuckerberg**\
-`When tech executives call a reporter, they usually have a point to make. The job is to listen, but also push and prod, Mike Isaac says.`\
-https://www.nytimes.com/2026/08/05/pageoneplus/how-to-approach-an-interview-with-mark-zuckerberg.html
 
