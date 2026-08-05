@@ -1,3 +1,19 @@
+**On ICE and a T. Rex Fossil: The Winners of Week 7 of Our Summer Reading Contest**\
+`Cristina Ramirez writes about her father and the American dream, while Griffin Gallo reacts via video to the news that a dinosaur skeleton was sold to a private buyer rather than a museum or university.`\
+https://www.nytimes.com/2026/08/05/learning/on-ice-and-a-t-rex-fossil-the-winners-of-week-7-of-our-summer-reading-contest.html
+
+**A Four-Ton SpaceX Rocket Stage Hit the Moon, but No One Saw It**\
+`Although amateur and professional astronomers pointed their telescopes at the impact site, there were no obvious signs of a collision — at least not yet.`\
+https://www.nytimes.com/2026/08/05/science/space-x-moon-crash-confirmation.html
+
+**Challenging the Tradwife Trend**\
+`Readers respond to “Help, I Might Be a Tradwife!,” an Opinion guest essay by JoAnna Novak. Also: Gen Z’s sex problem; pausing and meditating.`\
+https://www.nytimes.com/2026/08/05/opinion/tradwife-trend.html
+
+**What the Stock Market’s Record Rally Has to Do With Rescuing the Yen**\
+`The wide impact of the U.S. intervention into the Japanese currency shows the extent to which global markets’ revolve around investments in artificial intelligence.`\
+https://www.nytimes.com/2026/08/05/business/stock-market-yen-ai.html
+
 **Am I Obligated to Tell My Friends How Bad Their Botox Looks?**\
 `They’re increasingly critical of themselves, and I don’t think they realize how extreme it’s become.`\
 https://www.nytimes.com/2026/08/05/magazine/friends-botox-ethics.html
