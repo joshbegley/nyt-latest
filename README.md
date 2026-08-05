@@ -178,7 +178,7 @@ https://www.nytimes.com/2026/08/04/briefing/michigan-primary-spokane.html
 `Opponents of the new map, which was redrawn to benefit Republicans, had gathered signatures seeking a statewide vote. The issue could now move to the courts.`\
 https://www.nytimes.com/2026/08/04/us/missouri-redistricting-referendum-result.html
 
-**Primary Elections Live Updates: Race Too Close to Call in Democratic Primary for Michigan Senate Seat**\
+**Race Too Close to Call in Democratic Primary for Michigan Senate Seat**\
 `Dr. Abdul El-Sayed, a progressive, and Representative Haley Stevens, a centrist, both gave speeches with the winner still undeclared. Kansas, Missouri, Virginia and Washington also voted.`\
 https://www.nytimes.com/live/2026/08/04/us/midterms-elections-michigan-virginia
 
