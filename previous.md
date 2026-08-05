@@ -1,3 +1,7 @@
+**Progressive Democrat Wins Primary in Battleground Michigan House District**\
+`William Lawrence defeated two moderate candidates to challenge a vulnerable Republican incumbent, but some worry his views could hurt his chances in November.`\
+https://www.nytimes.com/2026/08/04/us/politics/maasdam-lawrence-michigan-primary.html
+
 **John James Wins Republican Nomination for Michigan Governor**\
 `Representative John James emerged from the primary, setting up a competitive general election race.`\
 https://www.nytimes.com/2026/08/04/us/elections/michigan-republican-governor-primary.html
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/08/04/opinion/artificial-intelligence-ai-writing.ht
 **South Korea Wants to Raise Its Birthrate but Doesn’t Have Enough NICU Doctors**\
 `South Korea, which has one of the world’s lowest fertility rates, is in the throes of a breakdown in emergency care. It is particularly acute for at-risk newborns.`\
 https://www.nytimes.com/2026/08/04/world/asia/south-korea-birth-rate-nicu-crisis.html
-
-**Inside a Screening of ‘Tony,’ Anthony Bourdain’s Biopic, for Restaurant Workers Only**\
-`Servers, hosts, bartenders, line cooks, dishwashers and chefs were treated to a night at the movies to watch the new film “Tony.”`\
-https://www.nytimes.com/2026/08/04/style/tony-movie-anthony-bourdain-restaurant-workers.html
 
 **Primary Elections Live Updates: Close Race in Democratic Primary for Michigan Senate Seat**\
 `The primary pitted Dr. Abdul El-Sayed, a progressive, against Representative Haley Stevens, a centrist. Kansas, Missouri, Virginia and Washington are also voting today.`\

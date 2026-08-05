@@ -1,3 +1,7 @@
+**Progressive Democrat Wins Primary in Battleground Michigan House District**\
+`William Lawrence defeated two moderate candidates to challenge a vulnerable Republican incumbent, but some worry his views could hurt his chances in November.`\
+https://www.nytimes.com/2026/08/04/us/politics/maasdam-lawrence-michigan-primary.html
+
 **Primary Elections Live Updates: Close Race in Democratic Primary for Michigan Senate Seat**\
 `The primary pitted Dr. Abdul El-Sayed, a progressive, against Representative Haley Stevens, a centrist. Kansas, Missouri, Virginia and Washington are also voting today.`\
 https://www.nytimes.com/live/2026/08/04/us/midterms-elections-michigan-virginia
