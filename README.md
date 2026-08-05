@@ -1,3 +1,11 @@
+**Abdul El-Sayed’s Winning New Political Uniform**\
+`Could the black T-shirt and jeans be the next big thing in Washington?`\
+https://www.nytimes.com/2026/08/05/style/abdul-el-sayed-fashion.html
+
+**El-Sayed Got a Big Win for the Left. Can It Win Like This Nationally?**\
+`It’s a victory for the new activist left, but it’s built on a coalition that may be too narrow to thrive among Democrats in other areas, particularly the South.`\
+https://www.nytimes.com/2026/08/05/upshot/democrats-michigan-progressives-left.html
+
 **Cost of Trump’s Namesake Warships Likely to Rise by 50 Percent or More**\
 `President Trump’s goal of building a “golden fleet” of 15 battleships could cost $275 billion, according to a government estimate`\
 https://www.nytimes.com/2026/08/05/us/politics/trump-namesake-warships-cost-increase.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/video/opinion/100000011069719/that-didnt-age-well.html
 **Muslim Americans Celebrate Abdul El-Sayed’s Win in Michigan Primary**\
 `Muslim voters from across the country said they felt hope and anxiety as Dr. El-Sayed moved closer to becoming the nation’s first Muslim senator.`\
 https://www.nytimes.com/2026/08/05/us/elections/muslim-reaction-el-sayed-victory.html
-
-**Will A.I. Create a ‘Permanent Underclass’?**\
-`The writer Jasmine Sun joins the Opinion columnist Ezra Klein to discuss whether A.I. will create a permanent economic underclass or if the complexity of human jobs will resist total automation.`\
-https://www.nytimes.com/video/opinion/100000011047941/will-ai-create-a-permanent-underclass.html
-
-**What Is A.I. Populism?**\
-`Is public backlash to artificial intelligence really about the technology, or is it a resistance to Silicon Valley elites forcing their vision on society? The writer Jasmine Sun joins “The Ezra Klein Show” to discuss the rise of A.I. populism.`\
-https://www.nytimes.com/video/opinion/100000011047934/what-is-ai-populism.html
 

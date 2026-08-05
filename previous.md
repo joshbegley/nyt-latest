@@ -1,3 +1,7 @@
+**Cost of Trump’s Namesake Warships Likely to Rise by 50 Percent or More**\
+`President Trump’s goal of building a “golden fleet” of 15 battleships could cost $275 billion, according to a government estimate`\
+https://www.nytimes.com/2026/08/05/us/politics/trump-namesake-warships-cost-increase.html
+
 **The Good List: 6 Things to Add Delight to Your Day**\
 `‘Kindergarten for adults,’ a video store tribute and The Thin Mint hustle.`\
 https://www.nytimes.com/2026/08/05/briefing/05-the-good-list-html-day-cookie-queens.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/opinion/100000011047941/will-ai-create-a-permanent
 **What Is A.I. Populism?**\
 `Is public backlash to artificial intelligence really about the technology, or is it a resistance to Silicon Valley elites forcing their vision on society? The writer Jasmine Sun joins “The Ezra Klein Show” to discuss the rise of A.I. populism.`\
 https://www.nytimes.com/video/opinion/100000011047934/what-is-ai-populism.html
-
-**How Malta Became a Tax Haven for Crocs and Other U.S. Companies**\
-`The Mediterranean archipelago is a hot destination for U.S. companies seeking to shield profits from income taxes.`\
-https://www.nytimes.com/2026/08/05/business/economy/crocs-malta-tax-haven.html
 

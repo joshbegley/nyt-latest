@@ -1,3 +1,7 @@
+**Cost of Trump’s Namesake Warships Likely to Rise by 50 Percent or More**\
+`President Trump’s goal of building a “golden fleet” of 15 battleships could cost $275 billion, according to a government estimate`\
+https://www.nytimes.com/2026/08/05/us/politics/trump-namesake-warships-cost-increase.html
+
 **The Good List: 6 Things to Add Delight to Your Day**\
 `‘Kindergarten for adults,’ a video store tribute and The Thin Mint hustle.`\
 https://www.nytimes.com/2026/08/05/briefing/05-the-good-list-html-day-cookie-queens.html
