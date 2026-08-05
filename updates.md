@@ -1,3 +1,11 @@
+**Trump Seeks a Boost for Hemp That Would Benefit a Top Aide’s Family**\
+`At the White House’s request, senators tucked a change sought by the hemp industry into a crucial spending bill. It would benefit the son-in-law of Susie Wiles, the president’s chief of staff.`\
+https://www.nytimes.com/2026/08/05/us/politics/trump-wiles-hemp-white-house.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011074754/05vid-el-sayed-haley-stevens-sot.html
+
 **Shawarma-Spiced Grilled Chicken; Tapenade Pasta Salad; Broiled Peaches With Feta**\
 `There are roughly 7 weeks of summer left. Cook accordingly.`\
 https://www.nytimes.com/2026/08/05/dining/shawarma-spiced-grilled-chicken-tapenade-pasta-salad-broiled-peaches-with-feta.html
