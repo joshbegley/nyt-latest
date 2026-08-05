@@ -159,7 +159,7 @@ https://www.nytimes.com/2026/08/05/world/europe/russia-ukraine-air-war.html
 https://www.nytimes.com/2026/08/05/world/europe/ukraine-war-kyiv-russia-missile-attack.html
 
 **Primary Elections Live Updates: Race Too Close to Call in Democratic Primary for Michigan Senate Seat**\
-`The race between Dr. Abdul El-Sayed, a progressive, and Representative Haley Stevens, a centrist, had not been called as of 5 a.m. Wednesday. Kansas, Missouri, Virginia and Washington also voted.`\
+`Dr. Abdul El-Sayed, a progressive, holds a narrow lead over Representative Haley Stevens, a centrist, as counting continues. Kansas, Missouri, Virginia and Washington also voted.`\
 https://www.nytimes.com/live/2026/08/05/us/michigan-election-results-primary
 
 **Lo que algunas ciudades pierden cuando las personas dejan el alcohol**\
