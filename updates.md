@@ -1,3 +1,15 @@
+**EE. UU. revoca la visa de la principal diplomática de Brasil**\
+`El Departamento de Estado ha cancelado la visa de la embajadora de Brasil en Washington, lo que profundiza una crisis diplomática entre ambos países.`\
+https://www.nytimes.com/es/2026/08/05/espanol/mundo/brasil-embajadora-eeuu-visa.html
+
+**Ursula Hegi, Who Wrote Searing Novels About Nazi-Era Germany, Dies at 80**\
+`“Stones From the River,” her best-known work and an early Oprah’s Book Club selection, was set in a fictional German town in the early 20th century.`\
+https://www.nytimes.com/2026/08/05/books/ursula-hegi-dead.html
+
+**Hacks on U.S. Water Supply Follow Years of Warnings and Neglect**\
+`Federal and state officials are racing to address an assault on the nation’s water supply that they believe is the work of Iranian hackers.`\
+https://www.nytimes.com/2026/08/05/us/politics/water-supply-warnings.html
+
 **El-Sayed Won a High-Stakes Michigan Primary. Now Comes the Hard Part.**\
 `Abdul El-Sayed’s Senate candidacy poses a critical test of Democrats’ ascendant progressive wing: Can an insurgent candidate, with unabashedly liberal positions, win a general election in a moderate state?`\
 https://www.nytimes.com/2026/08/05/us/politics/el-sayed-michigan-senate-primary-win.html
