@@ -1,3 +1,7 @@
+**The Fauci Hearing Shows How Little We’ve Learned About Covid**\
+`We can’t learn critical lessons from the pandemic if we’re obsessed with blame.`\
+https://www.nytimes.com/2026/08/05/opinion/fauci-covid-hearings.html
+
 **Senate Confirms Dr. Erica Schwartz as C.D.C. Director**\
 `Dr. Schwartz, a deputy surgeon general in the first Trump administration, has publicly supported childhood vaccines.`\
 https://www.nytimes.com/2026/08/05/health/cdc-erica-schwartz.html

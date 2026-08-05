@@ -1,3 +1,7 @@
+**The Fauci Hearing Shows How Little We’ve Learned About Covid**\
+`We can’t learn critical lessons from the pandemic if we’re obsessed with blame.`\
+https://www.nytimes.com/2026/08/05/opinion/fauci-covid-hearings.html
+
 **Senate Confirms Dr. Erica Schwartz as C.D.C. Director**\
 `Dr. Schwartz, a deputy surgeon general in the first Trump administration, has publicly supported childhood vaccines.`\
 https://www.nytimes.com/2026/08/05/health/cdc-erica-schwartz.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/05/business/economy/crocs-malta-tax-haven.html
 **Watch Live: Abdul El-Sayed Speaks at News Conference**\
 `Dr. Abdul El-Sayed defeated Representative Haley Stevens in the Democratic Michigan Senate primary.`\
 https://www.nytimes.com/video/embedded/us/politics/100000011074634/watch-live-abdul-el-sayed-speaks-at-news-conference.html
-
-**Russian Missile and Drone Attack on Kyiv Kills at Least 17**\
-`President Volodymyr Zelensky of Ukraine urged allies to provide his country with more missile interceptors after Russian missile attacks killed at least 17 people and wounded dozens more early Wednesday morning.`\
-https://www.nytimes.com/video/world/europe/100000011074344/russia-ukraine-kyiv-missiles-interceptors.html
 
