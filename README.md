@@ -1,3 +1,7 @@
+**Muslim Americans Celebrate Abdul El-Sayed’s Win in Michigan Primary**\
+`Muslim voters from across the country said they felt hope and anxiety as Dr. El-Sayed moved closer to becoming the nation’s first Muslim senator.`\
+https://www.nytimes.com/2026/08/05/us/elections/muslim-reaction-el-sayed-victory.html
+
 **Will A.I. Create a ‘Permanent Underclass’?**\
 `The writer Jasmine Sun joins the Opinion columnist Ezra Klein to discuss whether A.I. will create a permanent economic underclass or if the complexity of human jobs will resist total automation.`\
 https://www.nytimes.com/video/opinion/100000011047941/will-ai-create-a-permanent-underclass.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/05/well/move/knee-pain-causes-treatments.html
 **‘Ted Lasso’ Draws Fans to Richmond, a Bucolic London Suburb**\
 `Fans of the warmhearted Apple TV show flock to Richmond-upon-Thames, which has long been a destination for visitors and film location scouts.`\
 https://www.nytimes.com/2026/08/05/arts/television/ted-lasso-richmond-locations.html
-
-**Word of the Day: encomium**\
-`This word has appeared in 40 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/08/05/learning/word-of-the-day-encomium.html
 
