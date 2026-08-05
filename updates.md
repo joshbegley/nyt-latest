@@ -1,3 +1,11 @@
+**Iran Says It Is Nearing Final Agreement With Oman on Strait of Hormuz**\
+`The agreement on an acceptable route for ships to pass through the strait would effectively ratify Tehran’s control over the crucial waterway.`\
+https://www.nytimes.com/2026/08/05/world/middleeast/iran-oman-strait-of-hormuz.html
+
+**El-Sayed’s Michigan Senate Primary Win Sets Up the Left’s Biggest Test of the Fall**\
+`Abdul El-Sayed’s Senate candidacy poses a critical challenge for Democrats’ ascendant progressive wing: Can an insurgent candidate, with unabashedly liberal positions, win a general election in a moderate state?`\
+https://www.nytimes.com/2026/08/05/us/politics/el-sayed-michigan-senate-primary-win.html
+
 **El-Sayed’s Michigan Senate Primary Win Sets Up the Left’s Biggest Test of the Fall**\
 `Abdul El-Sayed’s Senate candidacy poses a critical challenge for  Democrats’ ascendant progressive wing: Can an insurgent candidate, with unabashedly liberal positions, win a general election in a moderate state?`\
 https://www.nytimes.com/2026/08/05/us/politics/el-sayed-michigan-senate-primary-win.html
