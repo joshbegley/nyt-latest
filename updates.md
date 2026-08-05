@@ -1,3 +1,7 @@
+**Primary Elections Live Updates: Race Too Close to Call in Democratic Primary for Michigan Senate Seat**\
+`The race between Dr. Abdul El-Sayed, a progressive, and Representative Haley Stevens, a centrist, had not been called as of 5 a.m. Wednesday. Kansas, Missouri, Virginia and Washington also voted.`\
+https://www.nytimes.com/live/2026/08/05/us/michigan-election-results-primary
+
 **How Being Cool Is Making The Hague a Vacation Hot Spot**\
 `Looking for respite from European heat waves, summer tourists are flocking to the diplomatic hub. But city leaders are wary of overcrowding.`\
 https://www.nytimes.com/2026/08/05/world/europe/hague-heat-coolcation.html
