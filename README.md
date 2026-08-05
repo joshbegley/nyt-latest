@@ -75,7 +75,7 @@ https://www.nytimes.com/interactive/polls/florida-us-house-11-polls-2026.html
 https://www.nytimes.com/2026/08/05/learning/on-ice-and-a-t-rex-fossil-the-winners-of-week-7-of-our-summer-reading-contest.html
 
 **A Four-Ton SpaceX Rocket Stage Hit the Moon, but No One Saw It**\
-`Although amateur and professional astronomers pointed their telescopes at the impact site, there were no obvious signs of a collision — at least not yet.`\
+`Amateur and professional astronomers pointed their telescopes at the impact site. Most did not detect anything.`\
 https://www.nytimes.com/2026/08/05/science/space-x-moon-crash-confirmation.html
 
 **Challenging the Tradwife Trend**\

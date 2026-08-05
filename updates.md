@@ -1,3 +1,11 @@
+**Why Congress Wants a Closer U.S.-Israel Defense Partnership**\
+`A proposal making its way through Congress would integrate the U.S. and Israeli defense and intelligence apparatuses more tightly. Some worry that it is a bad idea.`\
+https://www.nytimes.com/2026/08/05/us/politics/congress-us-israel-defense-partnership.html
+
+**Free Day Care Spots Lift a $26,000 Burden for These N.Y.C. Families**\
+`Mayor Zohran Mamdani’s plan to expand free child care to 2-year-olds began in four communities. The first 2,000 families to get a seat were thrilled.`\
+https://www.nytimes.com/2026/08/05/nyregion/mamdani-nyc-free-child-care-preschool.html
+
 **Tuskegee University Banned Bonnets and Durags. Students Mostly Wonder Why.**\
 `Students at Tuskegee University in Alabama objected to the school’s new dress code, saying it was unnecessary and misunderstood the campus culture.`\
 https://www.nytimes.com/2026/08/05/style/tuskegee-university-dress-code-durags-bonnets-hbcu.html
