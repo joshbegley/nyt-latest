@@ -1,3 +1,7 @@
+**How Words Are Chosen for NYT Games**\
+`Puzzle editors choose solutions based on curated references and human judgment. But there’s more freedom in the guesses players can make.`\
+https://www.nytimes.com/2026/08/05/insider/games-language-wordle-crossplay-spelling-bee.html
+
 **Scandal Leaves North Carolina G.O.P. With No Candidate and Little Time**\
 `Representative Chuck Edwards’s decision to drop his re-election bid amid sexual harassment charges came as a Democratic farmer, Jamie Ager, was already making inroads.`\
 https://www.nytimes.com/2026/08/05/us/politics/chuck-edwards-scandal-north-carolina.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/polls/florida-us-house-11-polls-2026.html
 **On ICE and a T. Rex Fossil: The Winners of Week 7 of Our Summer Reading Contest**\
 `Cristina Ramirez writes about her father and the American dream, while Griffin Gallo reacts via video to the news that a dinosaur skeleton was sold to a private buyer rather than a museum or university.`\
 https://www.nytimes.com/2026/08/05/learning/on-ice-and-a-t-rex-fossil-the-winners-of-week-7-of-our-summer-reading-contest.html
-
-**A Four-Ton SpaceX Rocket Stage Hit the Moon, but No One Saw It**\
-`Amateur and professional astronomers pointed their telescopes at the impact site. Most did not detect anything.`\
-https://www.nytimes.com/2026/08/05/science/space-x-moon-crash-confirmation.html
 
