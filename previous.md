@@ -1,3 +1,11 @@
+**What Is A.I. Populism?**\
+`Is public backlash to artificial intelligence really about the technology, or is it a resistance to Silicon Valley elites forcing their vision on society? The writer Jasmine Sun joins “The Ezra Klein Show” to discuss the rise of A.I. populism.`\
+https://www.nytimes.com/video/opinion/100000011047934/what-is-ai-populism.html
+
+**How Malta Became a Tax Haven for Crocs and Other U.S. Companies**\
+`The Mediterranean archipelago is a hot destination for U.S. companies seeking to shield profits from income taxes.`\
+https://www.nytimes.com/2026/08/05/business/economy/crocs-malta-tax-haven.html
+
 **Watch Live: Abdul El-Sayed Speaks at News Conference**\
 `Dr. Abdul El-Sayed defeated Representative Haley Stevens in the Democratic Michigan Senate primary.`\
 https://www.nytimes.com/video/embedded/us/politics/100000011074634/watch-live-abdul-el-sayed-speaks-at-news-conference.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/05/learning/word-of-the-day-encomium.html
 **The U.S. Relies on Family Caregivers. Millions of Them Are Kids.**\
 `The modern health care system requires the work of caregiving to fall to whoever else lives in a household — even if they’re kids.`\
 https://www.nytimes.com/2026/08/05/magazine/child-family-caregivers-aacy.html
-
-**A New Era of Preppy Fashion, Without the Cultural Baggage**\
-`The madras, the red pants, the boat shoes — an enduring aesthetic finds new fans.`\
-https://www.nytimes.com/2026/08/05/style/preppy-fashion-style-dozer-magazine.html
-
-**5 Minutes That Will Make You Love Lee Morgan**\
-`This trumpeter earned the admiration of Dizzy Gillespie and Art Blakey when he was still a teenager, and balanced virtuosity with accessibility. Hear 11 of his best tracks.`\
-https://www.nytimes.com/2026/08/05/arts/music/lee-morgan-jazz-music.html
 
