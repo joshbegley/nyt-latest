@@ -1,3 +1,23 @@
+**Two Cities With a Tangled History**\
+`Ceuta, Spain, and Fnideq, Morocco, are physically separated by only a mile, but they are intertwined by family and trade. A recent border crisis is the latest chapter in their story.`\
+https://www.nytimes.com/2026/08/05/world/europe/ceuta-spain-fnideq-morocco-migration.html
+
+**Disney+ Cracks Open the Door to TikTok Creator Videos**\
+`Disney said it would allow “thoughtfully curated” fan-created videos, using clips from its library, to appear on the streaming service.`\
+https://www.nytimes.com/2026/08/05/business/media/disney-tiktok-videos.html
+
+**Arizona’s Food Stamp Crisis Is Coming for the Rest of the U.S.**\
+`The number of people who receive nutrition assistance in Arizona has dropped significantly in a matter of months.`\
+https://www.nytimes.com/2026/08/05/podcasts/the-daily/arizona-food-stamp-snap.html
+
+**A Growing Data Center Pollution Threat, and the Last of the Jan. 6 Cases**\
+`Plus, why veterinarians are learning to handle honeybees.`\
+https://www.nytimes.com/2026/08/05/podcasts/the-headlines/data-center-pollution-threat-last-jan-6-cases-michigan-primary.html
+
+**NYT Connections Answers for August 6, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Aug. 6, 2026.`\
+https://www.nytimes.com/2026/08/05/crosswords/connections-companion-1152.html
+
 **NYT Strands Hints for Aug. 6, 2026**\
 `Scroll down for hints and conversation about the puzzle for Thursday, Aug. 6, 2026.`\
 https://www.nytimes.com/2026/08/05/crosswords/strands-sidekick-886.html

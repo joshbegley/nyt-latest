@@ -1,3 +1,23 @@
+**Two Cities With a Tangled History**\
+`Ceuta, Spain, and Fnideq, Morocco, are physically separated by only a mile, but they are intertwined by family and trade. A recent border crisis is the latest chapter in their story.`\
+https://www.nytimes.com/2026/08/05/world/europe/ceuta-spain-fnideq-morocco-migration.html
+
+**Disney+ Cracks Open the Door to TikTok Creator Videos**\
+`Disney said it would allow “thoughtfully curated” fan-created videos, using clips from its library, to appear on the streaming service.`\
+https://www.nytimes.com/2026/08/05/business/media/disney-tiktok-videos.html
+
+**Arizona’s Food Stamp Crisis Is Coming for the Rest of the U.S.**\
+`The number of people who receive nutrition assistance in Arizona has dropped significantly in a matter of months.`\
+https://www.nytimes.com/2026/08/05/podcasts/the-daily/arizona-food-stamp-snap.html
+
+**A Growing Data Center Pollution Threat, and the Last of the Jan. 6 Cases**\
+`Plus, why veterinarians are learning to handle honeybees.`\
+https://www.nytimes.com/2026/08/05/podcasts/the-headlines/data-center-pollution-threat-last-jan-6-cases-michigan-primary.html
+
+**NYT Connections Answers for August 6, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Aug. 6, 2026.`\
+https://www.nytimes.com/2026/08/05/crosswords/connections-companion-1152.html
+
 **NYT Strands Hints for Aug. 6, 2026**\
 `Scroll down for hints and conversation about the puzzle for Thursday, Aug. 6, 2026.`\
 https://www.nytimes.com/2026/08/05/crosswords/strands-sidekick-886.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/es/2026/08/05/espanol/delfin-duelo-cria-muerta-video.htm
 **Quote of the Day: One Lawyer’s Sisyphean Battle to Help Trans Troops Fight Ban**\
 `Quotation of the Day for Wednesday, August 5, 2026.`\
 https://www.nytimes.com/2026/08/05/pageoneplus/quote-of-the-day-one-lawyers-sisyphean-battle-to-help-trans-troops-fight-ban.html
-
-**China’s Nonsmokers Try to Clear the Air, One Confrontation at a Time**\
-`Disputes between smokers and nonsmokers are becoming more visible as a younger generation increasingly refuses to suffer secondhand smoke in silence.`\
-https://www.nytimes.com/2026/08/05/world/asia/china-cigarette-smoking.html
-
-**William Lawrence Wins Primary in Battleground Michigan House District**\
-`William Lawrence defeated two moderate candidates to challenge a vulnerable Republican incumbent, but some worry his views could hurt his chances in November.`\
-https://www.nytimes.com/2026/08/04/us/politics/maasdam-lawrence-michigan-primary.html
-
-**John James Wins Republican Nomination for Michigan Governor**\
-`Representative John James emerged from the primary, setting up a competitive general election race.`\
-https://www.nytimes.com/2026/08/04/us/elections/michigan-republican-governor-primary.html
-
-**Cindy Holscher Wins Kansas Democratic Primary for Governor**\
-`In a race to be governor of Kansas, State Senator Cindy Holscher defeated a fellow Democratic lawmaker who was endorsed by the current governor, Laura Kelly.`\
-https://www.nytimes.com/2026/08/04/us/elections/kansas-democratic-primary-governor.html
-
-**What Michigan Voters Are Seeking in Democratic Senate Primary**\
-`Voters outside Michigan polling stations shared their concerns about health care, employment and affordability in the Senate’s Democratic primary.`\
-https://www.nytimes.com/video/us/elections/100000011069600/michigan-senate-primary-voters-democrat.html
 
