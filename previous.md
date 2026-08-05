@@ -1,3 +1,27 @@
+**Explosive Drone Found at German Airport Used by Ukrainian Carrier**\
+`A second drone may have collided with a plane in the air over the airport, damaging the aircraft slightly, the authorities say.`\
+https://www.nytimes.com/2026/08/05/world/europe/germany-explosive-drone-airport.html
+
+**Michigan Democrats Pick El-Sayed**\
+`Also, the Senate confirms a new C.D.C. director. Here’s the latest at the end of Wednesday.`\
+https://www.nytimes.com/2026/08/05/briefing/michigan-democrats-pick-el-sayed.html
+
+**Helicopter Carrying Trump Flies Near Passenger Jet in Washington Airspace**\
+`Marine One, the helicopter that ferries the president, came within less than a mile of an Envoy Air flight on Tuesday, raising new concerns about air traffic control in the congested area.`\
+https://www.nytimes.com/2026/08/05/us/politics/trump-helicopter-jet-marine-one.html
+
+**Bunny Dolls and Disturbing Allegations: Max Miller’s Strange CNN Interview**\
+`In a 23-minute appearance with the anchor Jake Tapper, the Ohio Republican made an unusual effort to rebut a multitude of allegations that have threatened his re-election bid.`\
+https://www.nytimes.com/2026/08/05/business/media/cnn-max-miller-jake-tapper.html
+
+**Lou Koller, Ambassador of New York Hardcore, Dies at 61**\
+`He screamed as much as sang, as his heavy-metal-inflected punk band, Sick of It All, spread the sound of the New York underground to the world.`\
+https://www.nytimes.com/2026/08/05/arts/music/lou-koller-dead.html
+
+**After Michigan Loss, AIPAC Weighs a Second Effort to Defeat El-Sayed**\
+`The pro-Israel organization spent $32 million in an unsuccessful effort to defeat Abdul El-Sayed in Michigan’s Democratic Senate primary. It might try again in the general election.`\
+https://www.nytimes.com/2026/08/05/us/politics/aipac-michigan-general-election.html
+
 **How Words Are Chosen for NYT Games**\
 `Puzzle editors choose solutions based on curated references and human judgment. But there’s more freedom in the guesses players can make.`\
 https://www.nytimes.com/2026/08/05/insider/games-language-wordle-crossplay-spelling-bee.html
@@ -30,7 +54,7 @@ https://www.nytimes.com/2026/08/05/world/australia/new-zealand-bird-flu-vaccines
 `Forecasters in the region maintain a list of typhoon names drawn from national symbols, including foods, animals and local expressions. Here is how the process works.`\
 https://www.nytimes.com/2026/08/05/weather/typhoon-dolphin-names-dimsum-pacific.html
 
-**Star Scholar Jason Arday Resigns from Cambridge**\
+**Star Scholar Jason Arday Resigns From Cambridge**\
 `Jason Arday was hired by the University of Cambridge in 2023 as the youngest Black professor in its history. Doubt has since been cast on his academic qualifications and claims about his life.`\
 https://www.nytimes.com/2026/08/05/books/review/cambridge-jason-arday-investigation.html
 
@@ -173,28 +197,4 @@ https://www.nytimes.com/es/2026/08/05/espanol/mundo/control-pasaportes-largas-fi
 **Iran Says It Is Nearing Final Agreement With Oman on Strait of Hormuz**\
 `The agreement on an acceptable route for ships to pass through the strait would effectively ratify Tehran’s control over the crucial waterway.`\
 https://www.nytimes.com/2026/08/05/world/middleeast/iran-oman-strait-of-hormuz.html
-
-**ICE Threatens Sheriffs In Chicago and Minneapolis With Prosecution Over Access to Inmates**\
-`In a new tactic, federal immigration officials recently started saying they would criminally charge the elected county sheriffs in Minneapolis and Chicago.`\
-https://www.nytimes.com/2026/08/05/us/ice-minnesota-sheriff-prosecution.html
-
-**The Quest to Extend Human Life**\
-`Why life expectancy is at the heart of the idea of progress.`\
-https://www.nytimes.com/2026/08/05/headway/life-expectancy-united-states.html
-
-**New Mexico Sues Trump Administration for Unredacted Epstein Files in Zorro Ranch Investigation**\
-`The Zorro Ranch outside Santa Fe, where Epstein victims said they were abused, is at the center of an ongoing feud between the state and federal government.`\
-https://www.nytimes.com/2026/08/05/us/epstein-files-new-mexico-trump-zorro-ranch.html
-
-**¿Qué le pasó a Perez Hilton?**\
-`Las fuerzas del orden y el personal de emergencia acudieron a la casa de Hilton después de que pareciera hacerse daño en una transmisión de TikTok el martes.`\
-https://www.nytimes.com/es/2026/08/05/espanol/estados-unidos/perez-hilton-tiktok-hospital.html
-
-**Who Is Ahead in Florida's 11th Congressional District?**\
-`Track the latest polls in Florida's 11th Congressional District.`\
-https://www.nytimes.com/interactive/polls/florida-us-house-11-polls-2026.html
-
-**On ICE and a T. Rex Fossil: The Winners of Week 7 of Our Summer Reading Contest**\
-`Cristina Ramirez writes about her father and the American dream, while Griffin Gallo reacts via video to the news that a dinosaur skeleton was sold to a private buyer rather than a museum or university.`\
-https://www.nytimes.com/2026/08/05/learning/on-ice-and-a-t-rex-fossil-the-winners-of-week-7-of-our-summer-reading-contest.html
 

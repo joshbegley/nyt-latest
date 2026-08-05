@@ -1,3 +1,31 @@
+**Explosive Drone Found at German Airport Used by Ukrainian Carrier**\
+`A second drone may have collided with a plane in the air over the airport, damaging the aircraft slightly, the authorities say.`\
+https://www.nytimes.com/2026/08/05/world/europe/germany-explosive-drone-airport.html
+
+**Michigan Democrats Pick El-Sayed**\
+`Also, the Senate confirms a new C.D.C. director. Here’s the latest at the end of Wednesday.`\
+https://www.nytimes.com/2026/08/05/briefing/michigan-democrats-pick-el-sayed.html
+
+**Helicopter Carrying Trump Flies Near Passenger Jet in Washington Airspace**\
+`Marine One, the helicopter that ferries the president, came within less than a mile of an Envoy Air flight on Tuesday, raising new concerns about air traffic control in the congested area.`\
+https://www.nytimes.com/2026/08/05/us/politics/trump-helicopter-jet-marine-one.html
+
+**Bunny Dolls and Disturbing Allegations: Max Miller’s Strange CNN Interview**\
+`In a 23-minute appearance with the anchor Jake Tapper, the Ohio Republican made an unusual effort to rebut a multitude of allegations that have threatened his re-election bid.`\
+https://www.nytimes.com/2026/08/05/business/media/cnn-max-miller-jake-tapper.html
+
+**Lou Koller, Ambassador of New York Hardcore, Dies at 61**\
+`He screamed as much as sang, as his heavy-metal-inflected punk band, Sick of It All, spread the sound of the New York underground to the world.`\
+https://www.nytimes.com/2026/08/05/arts/music/lou-koller-dead.html
+
+**After Michigan Loss, AIPAC Weighs a Second Effort to Defeat El-Sayed**\
+`The pro-Israel organization spent $32 million in an unsuccessful effort to defeat Abdul El-Sayed in Michigan’s Democratic Senate primary. It might try again in the general election.`\
+https://www.nytimes.com/2026/08/05/us/politics/aipac-michigan-general-election.html
+
+**Star Scholar Jason Arday Resigns From Cambridge**\
+`Jason Arday was hired by the University of Cambridge in 2023 as the youngest Black professor in its history. Doubt has since been cast on his academic qualifications and claims about his life.`\
+https://www.nytimes.com/2026/08/05/books/review/cambridge-jason-arday-investigation.html
+
 **How Words Are Chosen for NYT Games**\
 `Puzzle editors choose solutions based on curated references and human judgment. But there’s more freedom in the guesses players can make.`\
 https://www.nytimes.com/2026/08/05/insider/games-language-wordle-crossplay-spelling-bee.html

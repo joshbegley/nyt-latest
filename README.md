@@ -56,7 +56,7 @@ https://www.nytimes.com/2026/08/05/weather/typhoon-dolphin-names-dimsum-pacific.
 
 **Star Scholar Jason Arday Resigns From Cambridge**\
 `Jason Arday was hired by the University of Cambridge in 2023 as the youngest Black professor in its history. Doubt has since been cast on his academic qualifications and claims about his life.`\
-https://www.nytimes.com/2026/08/05/books/review/cambridge-jason-arday-investigation.html
+https://www.nytimes.com/2026/08/05/books/review/cambridge-jason-arday-resignation-investigation.html
 
 **Mexican Influencer César Gastélum Shot Dead During Livestream from Sinaloa**\
 `César Gastélum was streaming video from outside a KFC in Culiacán, a city in Sinaloa state, when he was gunned down on Tuesday.`\
