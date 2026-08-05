@@ -1,3 +1,119 @@
+**Tradwives and the Manosphere Have Lost Their Viral Appeal**\
+`Nara Smith’s illusion meets the anti-Trump reality.`\
+https://www.nytimes.com/2026/08/05/opinion/nara-smith-working-mom.html
+
+**‘Ted Lasso’ Season 4 Premiere Recap: Begin Again**\
+`Ted is back in Kansas City. But how long will he stay there?`\
+https://www.nytimes.com/2026/08/05/arts/television/ted-lasso-recap-season-4-premiere.html
+
+**Where Did All My Male Friendships Go? (Encore)**\
+`One man’s quest to cure his loneliness and get his friends back.`\
+https://www.nytimes.com/2026/08/05/podcasts/where-did-all-my-male-friendships-go-encore.html
+
+**Wildfire Smoke and Airport Chaos: My Summer Vacation From Hell**\
+`Used to chronicling other people’s vacation disasters, a travel reporter faced the new normal on her own long-awaited family trip.`\
+https://www.nytimes.com/2026/08/05/travel/midwest-wildfire-smoke-tornadoes.html
+
+**Groceries Are Expensive. Here’s How 5 Shoppers Are Adjusting.**\
+`Two years ago, we collected receipts from people across the U.S. We thought now would be a great time to look at their spending again.`\
+https://www.nytimes.com/interactive/2026/08/05/dining/how-shoppers-are-adjusting-expensive-groceries.html
+
+**Corrections: Aug. 5, 2026**\
+`Corrections that appeared in print on Wednesday, Aug. 5, 2026.`\
+https://www.nytimes.com/2026/08/05/pageoneplus/corrections-aug-5-2026.html
+
+**‘Center Stage’: A Star of Shanghai’s 1930s Heyday Is (Re)Born**\
+`This 1991 film is at once a biopic devoted to the Chinese silent-film star, Ruan Lingyu, and a self-reflexive documentary starring Maggie Cheung.`\
+https://www.nytimes.com/2026/08/05/movies/center-stage-a-star-of-shanghais-1930s-heyday-is-re-born.html
+
+**Let’s Talk About the 50 Best Thrillers of the 21st Century**\
+`From “Gone Girl” to “Mystic River,” Gilbert Cruz, Tina Jordan and Sarah Lyall revisit the books that changed the genre, discuss overlooked favorites and recommend the thrillers that everyone should read next.`\
+https://www.nytimes.com/2026/08/05/podcasts/50-best-thrillers-century.html
+
+**Gen Z’s Dating Doldrums**\
+`Young people in New York City are going out on fewer dates, partly because everything is so expensive.`\
+https://www.nytimes.com/2026/08/05/nyregion/gen-zs-dating-doldrums.html
+
+**Pick Your Favorite $845,000 Home**\
+`This week’s properties include a cottage in Lake Arrowhead, Calif., a Colonial Revival in Stonington, Conn., and a two-story house in New Orleans.`\
+https://www.nytimes.com/2026/08/05/realestate/845000-dollar-homes-new-orleans-lake-arrowhead-stonington.html
+
+**In Redrawn Tennessee, Democrats Scramble to Hold On to One Seat**\
+`All nine districts are now solidly Republican after the Supreme Court weakened the Voting Rights Act. But some Democratic candidates insist they still have a chance.`\
+https://www.nytimes.com/2026/08/05/us/elections/tennessee-primary-democrats.html
+
+**Tell us Your Connections Tips, Strategies and Questions**\
+`We’re also looking to find out what questions solvers have about the game.`\
+https://www.nytimes.com/2026/08/05/crosswords/connections-questions.html
+
+**Which Wood Goes Best With My Hardwood Floors?**\
+`Mixing and matching wood tones is no easy task. Here’s how to think about it.`\
+https://www.nytimes.com/2026/08/05/realestate/which-wood-goes-best-with-my-hardwood-floors.html
+
+**“The Shards” and “Sterling Point” Offer Class Struggle as Teen Drama**\
+`“The Shards” and “Sterling Point” offer different angles on that most status-conscious of genres, the teen drama.`\
+https://www.nytimes.com/2026/08/05/arts/television/the-shards-sterling-point-teen-dramas.html
+
+**Lobga Rangzen, the Tibetan Activist Who Set Himself on Fire in Manhattan**\
+`No one doubted the intensity of Lobga Rangzen’s commitment to a Tibet free of Chinese control. But they were not prepared for what he did next.`\
+https://www.nytimes.com/2026/08/05/world/asia/lobga-rangzen-united-nations-tibet-china.html
+
+**Listening to New York City**\
+`Our culture reporter Patricia Leigh Brown went on a sound walk through New York City with Jacek Smolicki, artist and sound walker.`\
+https://www.nytimes.com/video/arts/100000011044524/listening-to-new-york-city.html
+
+**How to Treat Knee Pain, According to Experts**\
+`Here’s how to differentiate between common types of pain and what experts recommend for managing them.`\
+https://www.nytimes.com/2026/08/05/well/move/knee-pain-causes-treatments.html
+
+**A Bucolic London Suburb Feels the ‘Ted Lasso’ Effect**\
+`Fans of the warmhearted Apple TV show flock to Richmond-upon-Thames, which has long been a destination for visitors and film location scouts.`\
+https://www.nytimes.com/2026/08/05/arts/television/ted-lasso-richmond-locations.html
+
+**Word of the Day: encomium**\
+`This word has appeared in 40 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/08/05/learning/word-of-the-day-encomium.html
+
+**The U.S. Relies on Family Caregivers. Millions of Them Are Kids.**\
+`The modern health care system requires the work of caregiving to fall to whoever else lives in a household — even if they’re kids.`\
+https://www.nytimes.com/2026/08/05/magazine/child-family-caregivers-aacy.html
+
+**A New Era of Preppy Fashion, Without the Cultural Baggage**\
+`The madras, the red pants, the boat shoes — an enduring aesthetic finds new fans.`\
+https://www.nytimes.com/2026/08/05/style/preppy-fashion-style-dozer-magazine.html
+
+**5 Minutes That Will Make You Love Lee Morgan**\
+`This trumpeter earned the admiration of Dizzy Gillespie and Art Blakey when he was still a teenager, and balanced virtuosity with accessibility. Hear 11 of his best tracks.`\
+https://www.nytimes.com/2026/08/05/arts/music/lee-morgan-jazz-music.html
+
+**A Summer in the U.K. Countryside Beach Town St. Ives**\
+`A family’s vacation in the English beach town is filled with surf sessions, lunches by the sand and a landscape that still inspires painters.`\
+https://www.nytimes.com/2026/08/05/travel/uk-st-ives-cornwall-beach.html
+
+**It’s the Summer of Soundwalking. He Is Your Sherpa.**\
+`“We may be hearing but not listening,” Jacek Smolicki said, showing a reporter how sound travels through tree roots in Central Park and amplifying the scraping of aquatic snails.`\
+https://www.nytimes.com/2026/08/05/arts/design/soundwalk-jacek-smolicki-central-park.html
+
+**They Were Voted Out. They Refuse to Leave. Now What?**\
+`Avenal, Calif., a city in the rural Central Valley, has become an unlikely example of election denialism months after a recall election.`\
+https://www.nytimes.com/2026/08/05/us/avenal-california-recall-election-dispute.html
+
+**Development Comes for a Florida Hub of Elite Equestrian Activity**\
+`Wellington, Fla., has long been a town for equestrians, and with a spate of new development, it’s leaning in even more.`\
+https://www.nytimes.com/2026/08/05/realestate/wellington-florida-development-equestrians.html
+
+**Trump’s Push for More A.I. Data Centers Will Mean Major Air Pollution**\
+`(No description)`\
+https://www.nytimes.com/2026/08/05/climate/data-centers-pollution-trump-ai-energy.html
+
+**Does Your Relationship Need a ‘Mental Load’ Coach?**\
+`Zach Watson, a self-described “recovering man-child,” advises other men about how to take on their fair share of household labor.`\
+https://www.nytimes.com/2026/08/05/well/family/relationship-coach-mental-load-chores.html
+
+**Israeli Strikes May Undermine Trump’s Peace Plan for Gaza**\
+`President Trump announced a proposal aimed at achieving the disarmament of Hamas and an Israeli withdrawal. Israel ramped up attacks on the Palestinian enclave.`\
+https://www.nytimes.com/2026/08/05/world/middleeast/israel-strikes-gaza-peace-deal.html
+
 **How the Ukraine War Became a Fight for the Skies**\
 `Russia and Ukraine are producing ever larger numbers of innovative aerial weapons, hoping for a breakthrough as ground combat is largely frozen.`\
 https://www.nytimes.com/2026/08/05/world/europe/russia-ukraine-air-war.html
@@ -81,108 +197,4 @@ https://www.nytimes.com/video/world/europe/100000011073462/a-claim-of-brake-fail
 **Missouri Voters Reject Measure to Limit Their Ballot Box Powers**\
 `The state’s conservative Legislature had put the measure on the ballot that would have enacted citizen initiatives only if they won majorities in each of Missouri’s eight U.S. House districts.`\
 https://www.nytimes.com/2026/08/04/us/elections/missouri-citizen-led-constitutional-amendments.html
-
-**Kansas Voters Crush a Measure to Elect Supreme Court Judges**\
-`The rejection of a measure to begin electing justices was a victory for abortion rights groups who defended the Kansas high court’s ruling that abortion was protected in the state constitution.`\
-https://www.nytimes.com/2026/08/04/us/elections/kansas-judicial-referendum-supreme-court.html
-
-**Ty Masterson Wins Kansas Republican Primary for Governor**\
-`Ty Masterson, the president of the Kansas Senate, will aim to flip the governorship in November after eight years of Democratic control.`\
-https://www.nytimes.com/2026/08/04/us/masterson-kansas-republican-primary-governor.html
-
-**Wesley Bell Defeats Cori Bush in Missouri**\
-`Representative Wesley Bell beat Cori Bush, his predecessor, in a rematch. He will be a heavy favorite in the safely Democratic district in November.`\
-https://www.nytimes.com/2026/08/04/us/politics/bush-bell-missouri-democratic-primary.html
-
-**Pastor Adam Hamilton Wins Kansas Democratic Senate Primary**\
-`The Rev. Adam Hamilton will be a serious underdog against Roger Marshall, a Republican, but Democrats think the state could be competitive if the November environment is favorable enough to them.`\
-https://www.nytimes.com/2026/08/04/us/politics/hamilton-marshall-kansas-senate-election.html
-
-**Michigan Secretary of State Wins Democratic Nomination for Governor**\
-`Jocelyn Benson, who has clashed with Republicans in her role administering elections, is expected to face a competitive race in November.`\
-https://www.nytimes.com/2026/08/04/us/elections/michigan-democratic-primary-governor.html
-
-**Armed Man Arrested at Trump Golf Club Near Los Angeles**\
-`The man appeared to be observing “security-planning activities” at the club in Rancho Palos Verdes, the authorities said. The president spoke there on Tuesday night.`\
-https://www.nytimes.com/2026/08/04/us/trump-golf-club-armed-man-arrested.html
-
-**What One Witness Saw Before a Spokane Wildfire Started**\
-`A resident of Spokane County, Wash., said he noticed a man acting suspiciously and called 911 after seeing smoke. The police later arrested a suspect tied to one of the wildfires in the area.`\
-https://www.nytimes.com/2026/08/04/us/spokane-fire-arson-suspect-witness.html
-
-**Trump Administration Revokes Visa of Brazil’s Ambassador in the U.S.**\
-`The State Department has canceled the visa of the Brazilian ambassador in Washington, deepening a diplomatic crisis between the two countries.`\
-https://www.nytimes.com/2026/08/04/world/americas/brazil-ambassador-us-visa.html
-
-**5 Things to Know About Haley Stevens, Democratic Senate Hopeful in Michigan**\
-`Ms. Stevens, a fourth-term congresswoman, is the choice of Democratic leadership in Washington, D.C., and Michigan.`\
-https://www.nytimes.com/2026/08/04/us/politics/haley-stevens-democrat-michigan-senate.html
-
-**Counties to Watch in Michigan’s Democratic Senate Primary**\
-`Results from these eight Michigan counties may prove crucial in an uncertain race between Dr. Abdul El-Sayed and Representative Haley Stevens.`\
-https://www.nytimes.com/2026/08/04/us/elections/michigan-senate-primary-counties-to-watch.html
-
-**Chipotle Removes Jalapeños Linked to Salmonella Outbreak From Its Restaurants**\
-`The Minnesota Department of Health said it had identified 110 salmonella cases in this outbreak, and the F.D.A. is also investigating.`\
-https://www.nytimes.com/2026/08/04/us/chipotle-salmonella-outbreak-jalapenos-minnesota.html
-
-**5 Things to Know About Abdul El-Sayed, Democratic Senate Hopeful in Michigan**\
-`Dr. El-Sayed, a progressive candidate, is a vocal critic of Israel. He is known for his rhetorical abilities, which have drawn cheers and criticism.`\
-https://www.nytimes.com/2026/08/04/us/politics/abdul-el-sayed-democrat-michigan-senate.html
-
-**Shannon Taylor Wins Democratic Primary for Virginia House Race**\
-`The Richmond-area district was going to be one of the country’s most competitive in November, before a court threw out a Democrat-drawn redistricting map. Ms. Taylor faces Representative Rob Wittman in November.`\
-https://www.nytimes.com/2026/08/04/us/politics/taylor-knapp-virginia-primary-election.html
-
-**11 Spots for an NYC Staycation in August**\
-`With what’s left of summer, check out these 11 spots that can transport you, without going far.`\
-https://www.nytimes.com/interactive/2026/08/04/nyregion/nyc-staycation-summer.html
-
-**Julian Beaudion Quits Senate Race in South Dakota, Clearing Way for Independent**\
-`The decision by Julian Beaudion, the Democratic nominee, to leave the race was the third recent withdrawal by a Democratic Senate candidate in a red state.`\
-https://www.nytimes.com/2026/08/04/us/politics/julian-beaudion-drops-out-south-dakota.html
-
-**Luria Wins House Primary in Virginia, Setting Up a Rematch With Kiggans**\
-`Elaine Luria will face Jennifer Kiggans, the Republican incumbent who defeated her in 2022, in the highly competitive Virginia Beach-area seat. Both are Navy veterans.`\
-https://www.nytimes.com/2026/08/04/us/politics/luria-virginia-democratic-house-primary.html
-
-**El-Sayed Leads Stevens in Michigan Democratic Senate Primary, Polls Show**\
-`The progressive Democrat has consistently had large leads over Representative Haley Stevens, despite debates about which candidate will be more electable in November.`\
-https://www.nytimes.com/2026/08/04/us/elections/el-sayed-stevens-michigan-senate-polls.html
-
-**What Was on the Minds of Michigan Voters? Many Cited the Economy and Trump.**\
-`As they cast ballots in the Democratic Senate primary, voters said they were concerned about data centers, health care, Israel and the war with Iran.`\
-https://www.nytimes.com/2026/08/04/us/politics/michigan-democratic-primary-top-issues.html
-
-**AIPAC Spending Dominates the Michigan Democratic Senate Primary**\
-`Representative Haley Stevens has been backed by tens of millions of dollars, much of it from pro-Israel groups and hidden donors. Her rival, Dr. Abdul El-Sayed, has tried to make that support a liability.`\
-https://www.nytimes.com/2026/08/04/us/politics/michigan-democratic-senate-primary-aipac.html
-
-**When to Expect Results in Michigan, Virginia, Missouri, Washington and Kansas**\
-`Voters will cast ballots in several primaries. Results will most likely be known late Tuesday or early Wednesday.`\
-https://www.nytimes.com/2026/08/04/us/politics/results-timing-michigan-virginia-missouri-washington-kansas.html
-
-**Judge Pained as He Grants Dismissal of Jan. 6 Charges Against Oath Keepers**\
-`The judge, Amit P. Mehta, blasted the administration’s request for a dismissal in the case, saying it bestowed “unearned grace” on the Oath Keepers defendants “by wiping their records clean.”`\
-https://www.nytimes.com/2026/08/04/us/politics/jan-6-charges-oath-keepers-dismissed.html
-
-**The Art That Made Lena Waithe (And What’s on Her Playlist Now)**\
-`Lena Waithe reflects on the pop culture moments that sparked her imagination and continue to shape her creativity.`\
-https://www.nytimes.com/video/arts/100000010968795/lena-waithe-interview-playlist.html
-
-**C.D.C. Expands Cyclospora Outbreak to More States**\
-`Arkansas, Iowa, Missouri, Nebraska, New Hampshire and North Carolina are now among the states linked to the outbreak associated with iceberg lettuce.`\
-https://www.nytimes.com/2026/08/04/well/eat/cdc-cyclospora-outbreak-15-states.html
-
-**Maryland Lawmakers Back Amendment Giving Democrats 2028 Advantage**\
-`The measure, which will go before voters in November, would make it easier for Democrats to redraw congressional maps and possibly pick up one seat.`\
-https://www.nytimes.com/2026/08/04/us/maryland-democrats-pass-2028-redistricting-amendement.html
-
-**Trump White House Readies AI Framework to Review Security Risks**\
-`The voluntary review process will cover closed-source artificial intelligence models, but exclude those that publish the underlying code.`\
-https://www.nytimes.com/2026/08/04/technology/white-house-ai-framework.html
-
-**Race Too Close to Call in Democratic Primary for Michigan Senate Seat**\
-`Dr. Abdul El-Sayed, a progressive, and Representative Haley Stevens, a centrist, both gave speeches with the winner still undeclared. Kansas, Missouri, Virginia and Washington also voted.`\
-https://www.nytimes.com/live/2026/08/04/us/midterms-elections-michigan-virginia
 

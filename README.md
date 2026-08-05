@@ -1,3 +1,7 @@
+**Finland Tries to Protect Children Against Deepfakes, With Russia in Mind**\
+`Finland, wary of misinformation from Moscow and beyond, has a leg up on other nations in spotting fake news. But A.I. is a whole new challenge.`\
+https://www.nytimes.com/2026/08/05/world/europe/finland-deepfakes-ai.html
+
 **Tradwives and the Manosphere Have Lost Their Viral Appeal**\
 `Nara Smith’s illusion meets the anti-Trump reality.`\
 https://www.nytimes.com/2026/08/05/opinion/nara-smith-working-mom.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/04/us/elections/arizona-governor-running-mate.ht
 **A Claim of Brake Failure in a Jaguar Was a Scam, Court Rules**\
 `A court in England determined on Monday that a man’s claim that the brakes in his electric Jaguar had failed was a scam to avoid car payments.`\
 https://www.nytimes.com/video/world/europe/100000011073462/a-claim-of-brake-failure-in-a-jaguar-was-a-scam-court-rules.html
-
-**Missouri Voters Reject Measure to Limit Their Ballot Box Powers**\
-`The state’s conservative Legislature had put the measure on the ballot that would have enacted citizen initiatives only if they won majorities in each of Missouri’s eight U.S. House districts.`\
-https://www.nytimes.com/2026/08/04/us/elections/missouri-citizen-led-constitutional-amendments.html
 
