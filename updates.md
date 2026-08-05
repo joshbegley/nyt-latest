@@ -1,3 +1,15 @@
+**Scandal Leaves North Carolina G.O.P. With No Candidate and Little Time**\
+`Representative Chuck Edwards’s decision to drop his re-election bid amid sexual harassment charges came as a Democratic farmer, Jamie Ager, was already making inroads.`\
+https://www.nytimes.com/2026/08/05/us/politics/chuck-edwards-scandal-north-carolina.html
+
+**The Dopamine Hit of an A.D.H.D. Label**\
+`Why are so many people embracing diagnostic labels online? Mary H.K. Choi, who has written about her own A.D.H.D. and autism, argues that naming our struggles offers something powerful: the feeling that they’re finally understood — and even solved.`\
+https://www.nytimes.com/video/opinion/100000011075237/the-dopamine-hit-of-an-adhd-label.html
+
+**South Korea Hit With Record-Breaking Heat Wave**\
+`Brutal heat has gripped South Korea as the country faces a record-setting heat wave. The country’s president declared a national disaster on Tuesday, after three citizens died.`\
+https://www.nytimes.com/video/weather/100000011075203/south-korea-heat-wave-seoul.html
+
 **What It Means to Be ‘Neurospicy’**\
 `“Neurospicy” is what Tressie McMillan Cottom’s friend calls her. The Opinion columnist doesn’t dismiss the idea that she could be neurodivergent — she just isn’t looking for another label. It raises a bigger question: Do we always need a label to understand ourselves?`\
 https://www.nytimes.com/video/opinion/100000011064632/what-it-means-to-be-neurospicy.html
