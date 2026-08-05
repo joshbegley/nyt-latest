@@ -46,7 +46,7 @@ https://www.nytimes.com/2026/08/04/well/eat/cdc-cyclospora-outbreak-15-states.ht
 `The measure, which will go before voters in November, would make it easier for Democrats to redraw congressional maps and possibly pick up one seat.`\
 https://www.nytimes.com/2026/08/04/us/maryland-democrats-pass-2028-redistricting-amendement.html
 
-**Trump White House Readies AI Framework to Review Security Risks**\
+**White House Readies A.I. Framework to Review Security Risks**\
 `The voluntary review process will cover closed-source artificial intelligence models, but exclude those that publish the underlying code.`\
 https://www.nytimes.com/2026/08/04/technology/white-house-ai-framework.html
 
