@@ -1,3 +1,7 @@
+**How Being Cool Is Making The Hague a Vacation Hot Spot**\
+`Looking for respite from European heat waves, summer tourists are flocking to the diplomatic hub. But city leaders are wary of overcrowding.`\
+https://www.nytimes.com/2026/08/05/world/europe/hague-heat-coolcation.html
+
 **Finland Tries to Protect Children Against Deepfakes, With Russia in Mind**\
 `Finland, wary of misinformation from Moscow and beyond, has a leg up on other nations in spotting fake news. But A.I. is a whole new challenge.`\
 https://www.nytimes.com/2026/08/05/world/europe/finland-deepfakes-ai.html
