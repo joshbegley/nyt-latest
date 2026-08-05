@@ -1,3 +1,7 @@
+**Bessent Declares Widening Gap Between Rich and Poor ‘Dead’**\
+`Despite data to the contrary, the Treasury Secretary made the case that the K-shaped economy no longer exists.`\
+https://www.nytimes.com/2026/08/05/business/bessent-wage-gap.html
+
 **Trump dijo que el avión de Catar iría a su biblioteca. Eso podría cambiar**\
 `Un funcionario dijo que no se ha tomado una decisión definitiva sobre qué avión irá a la biblioteca presidencial de Trump, por lo que el futuro de la aeronave catarí sigue sin definirse.`\
 https://www.nytimes.com/es/2026/08/05/espanol/estados-unidos/trump-avion-qatar-biblioteca.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/05/style/tuskegee-university-dress-code-durags-b
 **8 conclusiones de las primarias en Míchigan**\
 `Un candidato progresista se impuso por un margen estrecho sobre una candidata partidaria de Israel y los candidatos socialistas democráticos tuvieron resultados diversos.`\
 https://www.nytimes.com/es/2026/08/05/espanol/estados-unidos/primarias-michigan.html
-
-**Blanche Defends Pirro but Says Trump Can Fire Her at Any Time**\
-`The head of the Justice Department praised the U.S. attorney in Washington after her tense meeting with the president.`\
-https://www.nytimes.com/2026/08/05/us/politics/todd-blanche-pirro-trump.html
 
