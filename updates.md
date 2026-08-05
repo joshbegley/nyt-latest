@@ -1,3 +1,7 @@
+**Google Names Demis Hassabis to New AI Role in a Leadership Shake-up**\
+`Minutes after four top researchers said they were leaving, Google said that Demis Hassabis, the Nobel-winning scientist who led the company’s A.I. lab, was stepping into a new job.`\
+https://www.nytimes.com/2026/08/05/technology/google-ai-leadership.html
+
 **Blanche Defends Pirro but Says Trump Can Fire Her at Any Time**\
 `The head of the Justice Department praised the U.S. attorney in Washington after her tense meeting with the president.`\
 https://www.nytimes.com/2026/08/05/us/politics/todd-blanche-pirro-trump.html

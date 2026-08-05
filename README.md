@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/08/05/us/politics/todd-blanche-pirro-trump.html
 
 **Abdul El-Sayed Thinks Progressives Have a Way to Win. I Hope He’s Right.**\
-`He’s quick, magnetic, overflowing with infectious confidence. But he also has a blind spot endemic to his movement.`\
+`Abdul El-Sayed is quick, magnetic, overflowing with infectious confidence. But he also has a blind spot endemic to his movement.`\
 https://www.nytimes.com/2026/08/05/opinion/abdul-el-sayed-michigan-democrats.html
 
 **Can Abdul El-Sayed Unify Michigan Democrats Ahead of the General Election?**\
