@@ -91,7 +91,7 @@ https://www.nytimes.com/2026/08/04/us/politics/hamilton-marshall-kansas-senate-e
 https://www.nytimes.com/2026/08/04/us/elections/michigan-democratic-primary-governor.html
 
 **Armed Man Arrested at Trump Golf Club Near Los Angeles**\
-`The man appeared to be observing “security-planning activities” on Sunday at the club in Rancho Palos Verdes, the authorities said. The president was scheduled to speak there on Tuesday night.`\
+`The man appeared to be observing “security-planning activities” at the club in Rancho Palos Verdes, the authorities said. The president spoke there on Tuesday night.`\
 https://www.nytimes.com/2026/08/04/us/trump-golf-club-armed-man-arrested.html
 
 **What One Witness Saw Before a Spokane Wildfire Started**\
