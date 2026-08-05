@@ -1,3 +1,7 @@
+**Where El-Sayed Showed Strengths, and Weaknesses, in the Michigan Primary**\
+`Dr. Abdul El-Sayed had a strong showing in college towns, while Representative Haley Stevens did well in Black urban centers.`\
+https://www.nytimes.com/2026/08/05/us/politics/michigan-primary-election-results-what-next.html
+
 **Abdul El-Sayed’s Winning New Political Uniform**\
 `Could the black T-shirt and jeans be the next big thing in Washington?`\
 https://www.nytimes.com/2026/08/05/style/abdul-el-sayed-fashion.html
@@ -34,7 +38,7 @@ https://www.nytimes.com/2026/08/05/opinion/adhd-autism-diagnosis-social-media.ht
 `In 32 of the countries included in a recent study, at least a quarter of the native butterfly species had moved to new areas.`\
 https://www.nytimes.com/2026/08/05/science/butterflies-climate-change-extreme-weather.html
 
-**Always Late? TikTok Thinks You Have A.D.H.D.**\
+**Have We Turned Personality Into Diagnosis?**\
 `We’ve reached peak self-diagnosis culture.`\
 https://www.nytimes.com/video/opinion/100000011064628/always-late-tiktok-thinks-you-have-adhd.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/us/100000011070404/could-us-water-systems-be-a-new
 **‘That Didn’t Age Well’**\
 `Looney Tunes hasn’t aged well. Neither has “The West Wing.” And that’s OK, the Times Opinion columnist Carlos Lozada says. He argues we shouldn’t just dismiss art that doesn’t fit the moment. Instead, we should learn from it.`\
 https://www.nytimes.com/video/opinion/100000011069719/that-didnt-age-well.html
-
-**Muslim Americans Celebrate Abdul El-Sayed’s Win in Michigan Primary**\
-`Muslim voters from across the country said they felt hope and anxiety as Dr. El-Sayed moved closer to becoming the nation’s first Muslim senator.`\
-https://www.nytimes.com/2026/08/05/us/elections/muslim-reaction-el-sayed-victory.html
 
