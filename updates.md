@@ -1,3 +1,7 @@
+**Senate Confirms Dr. Erica Schwartz as C.D.C. Director**\
+`Dr. Schwartz, a deputy surgeon general in the first Trump administration, has publicly supported childhood vaccines.`\
+https://www.nytimes.com/2026/08/05/health/cdc-erica-schwartz.html
+
 **U.S. Cuts Ties With Organ Donor Group After Reports of Abuses**\
 `The federal government is ending its contract with a Kentucky nonprofit that it says pressured medical workers to remove organs from patients who were getting better.`\
 https://www.nytimes.com/2026/08/05/us/organ-donations-kentucky.html

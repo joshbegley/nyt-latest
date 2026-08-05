@@ -1,3 +1,7 @@
+**Senate Confirms Dr. Erica Schwartz as C.D.C. Director**\
+`Dr. Schwartz, a deputy surgeon general in the first Trump administration, has publicly supported childhood vaccines.`\
+https://www.nytimes.com/2026/08/05/health/cdc-erica-schwartz.html
+
 **U.S. Cuts Ties With Organ Donor Group After Reports of Abuses**\
 `The federal government is ending its contract with a Kentucky nonprofit that it says pressured medical workers to remove organs from patients who were getting better.`\
 https://www.nytimes.com/2026/08/05/us/organ-donations-kentucky.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/embedded/us/politics/100000011074634/watch-live-ab
 **Russian Missile and Drone Attack on Kyiv Kills at Least 17**\
 `President Volodymyr Zelensky of Ukraine urged allies to provide his country with more missile interceptors after Russian missile attacks killed at least 17 people and wounded dozens more early Wednesday morning.`\
 https://www.nytimes.com/video/world/europe/100000011074344/russia-ukraine-kyiv-missiles-interceptors.html
-
-**Takeaways From the Primary Elections in Michigan**\
-`Dr. Abdul El-Sayed narrowly prevailed over Representative Haley Stevens in the Democratic primary for Senate in Michigan, setting up a nervy race to November for the party.`\
-https://www.nytimes.com/2026/08/05/us/politics/michigan-primary-elections-takeaways.html
 
