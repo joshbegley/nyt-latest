@@ -1,3 +1,7 @@
+**A Four-Ton SpaceX Rocket Stage Hit the Moon, but No One Saw It**\
+`Amateur and professional astronomers pointed their telescopes at the impact site. Most did not detect anything.`\
+https://www.nytimes.com/2026/08/05/science/space-x-moon-crash-confirmation.html
+
 **Why Congress Wants a Closer U.S.-Israel Defense Partnership**\
 `A proposal making its way through Congress would integrate the U.S. and Israeli defense and intelligence apparatuses more tightly. Some worry that it is a bad idea.`\
 https://www.nytimes.com/2026/08/05/us/politics/congress-us-israel-defense-partnership.html
