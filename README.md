@@ -1,3 +1,7 @@
+**EE. UU. revoca la visa de la principal diplomática de Brasil**\
+`El Departamento de Estado ha cancelado la visa de la embajadora de Brasil en Washington, lo que profundiza una crisis diplomática entre ambos países.`\
+https://www.nytimes.com/es/2026/08/05/espanol/mundo/brasil-embajadora-eeuu-visa.html
+
 **Ursula Hegi, Who Wrote Searing Novels About Nazi-Era Germany, Dies at 80**\
 `“Stones From the River,” her best-known work and an early Oprah’s Book Club selection, was set in a fictional German town in the early 20th century.`\
 https://www.nytimes.com/2026/08/05/books/ursula-hegi-dead.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/interactive/2026/08/05/dining/grocery-prices-shoppers.ht
 **Corrections: Aug. 5, 2026**\
 `Corrections that appeared in print on Wednesday, Aug. 5, 2026.`\
 https://www.nytimes.com/2026/08/05/pageoneplus/corrections-aug-5-2026.html
-
-**‘Center Stage’: A Star of Shanghai’s 1930s Heyday Is (Re)Born**\
-`This 1991 film is at once a biopic devoted to the Chinese silent-film star, Ruan Lingyu, and a self-reflexive documentary starring Maggie Cheung.`\
-https://www.nytimes.com/2026/08/05/movies/center-stage-a-star-of-shanghais-1930s-heyday-is-re-born.html
 
