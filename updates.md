@@ -1,3 +1,7 @@
+**Someone Is Poisoning Trees Near Lake Tahoe**\
+`Eleven trees have been killed over the past several years by a strong-smelling, unidentified substance. Another 16 were just attacked this year.`\
+https://www.nytimes.com/2026/08/05/us/lake-tahoe-trees-poison.html
+
 **Pineapple-Marinated Chicken Breasts**\
 `Bromelain, the group of enzymes in fresh pineapple, is excellent at breaking down the connective tissues in thick, fibrous chicken breasts. In this simple marinade, grated pineapple completely alters the texture of the breast meat, resulting in something that’s akin to luscious dark meat.`\
 https://www.nytimes.com/video/dining/100000011075605/pineapple-marinated-chicken-breasts.html

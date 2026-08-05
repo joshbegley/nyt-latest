@@ -1,3 +1,7 @@
+**Someone Is Poisoning Trees Near Lake Tahoe**\
+`Eleven trees have been killed over the past several years by a strong-smelling, unidentified substance. Another 16 were just attacked this year.`\
+https://www.nytimes.com/2026/08/05/us/lake-tahoe-trees-poison.html
+
 **Pineapple-Marinated Chicken Breasts**\
 `Bromelain, the group of enzymes in fresh pineapple, is excellent at breaking down the connective tissues in thick, fibrous chicken breasts. In this simple marinade, grated pineapple completely alters the texture of the breast meat, resulting in something that’s akin to luscious dark meat.`\
 https://www.nytimes.com/video/dining/100000011075605/pineapple-marinated-chicken-breasts.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/05/us/politics/todd-blanche-pirro-trump.html
 **Abdul El-Sayed Thinks Progressives Have a Way to Win. I Hope He’s Right.**\
 `Abdul El-Sayed is quick, magnetic, overflowing with infectious confidence. But he also has a blind spot endemic to his movement.`\
 https://www.nytimes.com/2026/08/05/opinion/abdul-el-sayed-michigan-democrats.html
-
-**Can Abdul El-Sayed Unify Michigan Democrats Ahead of the General Election?**\
-`His close margin of victory may point to challenges ahead.`\
-https://www.nytimes.com/2026/08/05/us/politics/el-sayed-michigan-skeptical-voters.html
 
