@@ -1,3 +1,11 @@
+**What It Means to Be ‘Neurospicy’**\
+`“Neurospicy” is what Tressie McMillan Cottom’s friend calls her. The Opinion columnist doesn’t dismiss the idea that she could be neurodivergent — she just isn’t looking for another label. It raises a bigger question: Do we always need a label to understand ourselves?`\
+https://www.nytimes.com/video/opinion/100000011064632/what-it-means-to-be-neurospicy.html
+
+**Covering Women in the Trump Era**\
+`Reporting on women in America requires curiosity about — and expertise in — the cultural forces facing women across the political spectrum. Vivian Yee, who covers these issues, shares how she navigates her beat.`\
+https://www.nytimes.com/video/insider/100000011056150/covering-women-in-the-trump-era.html
+
 **New Zealand is Racing to Vaccinate Its Endangered Birds Against Bird Flu**\
 `Conservation experts are trying to slow the march of the viral disease in a country that is home to rare and endangered bird species.`\
 https://www.nytimes.com/2026/08/05/world/australia/new-zealand-bird-flu-vaccines.html
