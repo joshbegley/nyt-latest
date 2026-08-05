@@ -1,3 +1,11 @@
+**New Zealand is Racing to Vaccinate Its Endangered Birds Against Bird Flu**\
+`Conservation experts are trying to slow the march of the viral disease in a country that is home to rare and endangered bird species.`\
+https://www.nytimes.com/2026/08/05/world/australia/new-zealand-bird-flu-vaccines.html
+
+**Coming Soon to the Asia Pacific: A Storm Named Dim-sum**\
+`Forecasters in the region maintain a list of typhoon names drawn from national symbols, including foods, animals and local expressions. Here is how the process works.`\
+https://www.nytimes.com/2026/08/05/weather/typhoon-dolphin-names-dimsum-pacific.html
+
 **Star Scholar Jason Arday Resigns from Cambridge**\
 `Jason Arday was hired by the University of Cambridge in 2023 as the youngest Black professor in its history. Doubt has since been cast on his academic qualifications and claims about his life.`\
 https://www.nytimes.com/2026/08/05/books/review/cambridge-jason-arday-investigation.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/05/technology/google-researchers-ai-startup.html
 **‘One Night Only’ Review: A 12-Hour Sexual Reprieve**\
 `This dystopian rom-com follows Allie (Monica Barbaro) and Owen (Callum Turner), on their parallel hunts for passion.`\
 https://www.nytimes.com/2026/08/05/movies/one-night-only-review.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/us/politics/100000011074808/05vid-el-sayed-join-movement-sot.html
-
-**Perez Hilton Is Hospitalized After Appearing to Harm Himself on Livestream**\
-`Law enforcement and emergency workers responded to Mr. Hilton’s house after he appeared to hurt himself on a TikTok stream Tuesday.`\
-https://www.nytimes.com/2026/08/05/us/perez-hilton-live-stream-tiktok-self-harm.html
 

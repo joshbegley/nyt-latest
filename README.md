@@ -1,3 +1,7 @@
+**Covering Women in the Trump Era**\
+`Reporting on women in America requires curiosity about — and expertise in — the cultural forces facing women across the political spectrum. Vivian Yee, who covers these issues, shares how she navigates her beat.`\
+https://www.nytimes.com/video/insider/100000011056150/covering-women-in-the-trump-era.html
+
 **New Zealand is Racing to Vaccinate Its Endangered Birds Against Bird Flu**\
 `Conservation experts are trying to slow the march of the viral disease in a country that is home to rare and endangered bird species.`\
 https://www.nytimes.com/2026/08/05/world/australia/new-zealand-bird-flu-vaccines.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/05/magazine/friends-botox-ethics.html
 **Four Top Google A.I. Researchers Form New Start-Up**\
 `Jeff Dean, who for years was one of Google’s most important executives, is leading the new artificial intelligence company with the backing of Google.`\
 https://www.nytimes.com/2026/08/05/technology/google-researchers-ai-startup.html
-
-**‘One Night Only’ Review: A 12-Hour Sexual Reprieve**\
-`This dystopian rom-com follows Allie (Monica Barbaro) and Owen (Callum Turner), on their parallel hunts for passion.`\
-https://www.nytimes.com/2026/08/05/movies/one-night-only-review.html
 
