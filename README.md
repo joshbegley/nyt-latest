@@ -1,3 +1,11 @@
+**Why Polling Overestimated Abdul El-Sayed’s Advantage in Michigan**\
+`Surveys greatly overestimated how Dr. Abdul El-Sayed would fare in the state’s Democratic Senate primary, revealing some typical polling challenges.`\
+https://www.nytimes.com/2026/08/05/us/politics/michigan-primary-election-polling.html
+
+**Death Renews Scrutiny of Delaney Hall. Here’s What to Know.**\
+`The death of a Salvadoran immigrant at the federal detention center in Newark has raised questions about the conditions there.`\
+https://www.nytimes.com/2026/08/05/nyregion/delaney-hall-ice-what-we-know.html
+
 **Abdul El-Sayed Wins Michigan’s Democratic Senate Primary**\
 `Dr. El-Sayed, a former public health official, narrowly defeated Representative Haley Stevens, a four-term congressional moderate, in Michigan’s expensive Democratic Senate primary.`\
 https://www.nytimes.com/video/us/politics/100000011074395/el-sayed-michigan-senate-primary-race.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/08/05/climate/sesame-street-storm-climate-change.ht
 **Trump Seeks a Boost for Hemp That Would Benefit a Top Aide’s Family**\
 `At the White House’s request, senators tucked a change sought by the hemp industry into a crucial spending bill. It would benefit the son-in-law of Susie Wiles, the president’s chief of staff.`\
 https://www.nytimes.com/2026/08/05/us/politics/trump-wiles-hemp-white-house.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/us/politics/100000011074754/05vid-el-sayed-haley-stevens-sot.html
-
-**Shawarma-Spiced Grilled Chicken; Tapenade Pasta Salad; Broiled Peaches With Feta**\
-`There are roughly 7 weeks of summer left. Cook accordingly.`\
-https://www.nytimes.com/2026/08/05/dining/shawarma-spiced-grilled-chicken-tapenade-pasta-salad-broiled-peaches-with-feta.html
 

@@ -1,3 +1,23 @@
+**Abdul El-Sayed Wins Michigan’s Democratic Senate Primary**\
+`Dr. El-Sayed, a former public health official, narrowly defeated Representative Haley Stevens, a four-term congressional moderate, in Michigan’s expensive Democratic Senate primary.`\
+https://www.nytimes.com/video/us/politics/100000011074395/el-sayed-michigan-senate-primary-race.html
+
+**Inside the Abdul El-Sayed Watch Party**\
+`Tim Balk joins Natalie Kitroeff on “The Call” from Michigan, where he attended the election night watch party of Democratic Senate primary candidate Abdul El-Sayed. Balk spoke to supporters of the progressive Democrat as they waited for results in a closer than expected race.`\
+https://www.nytimes.com/video/us/elections/100000011075731/inside-the-abdul-el-sayed-watch-party.html
+
+**El-Sayed Got a Big Win for the Left. Can It Win Like This Nationally?**\
+`The new activist left is built on a coalition that may be too narrow to thrive in Democratic primaries in other areas, particularly the South.`\
+https://www.nytimes.com/2026/08/05/upshot/democrats-michigan-progressives-left.html
+
+**Cost of Trump’s Namesake Warships Likely to Rise by 50 Percent or More**\
+`President Trump’s goal of building a “golden fleet” of 15 battleships could cost $275 billion, according to a government estimate.`\
+https://www.nytimes.com/2026/08/05/us/politics/trump-namesake-warships-cost-increase.html
+
+**Have We Turned Personality Into Diagnosis?**\
+`Why we keep searching for new ways to explain ourselves.`\
+https://www.nytimes.com/2026/08/05/opinion/adhd-autism-diagnosis-social-media.html
+
 **Where El-Sayed Showed Strengths, and Weaknesses, in the Michigan Primary**\
 `Dr. Abdul El-Sayed had a strong showing in college towns, while Representative Haley Stevens did well in Black urban centers.`\
 https://www.nytimes.com/2026/08/05/us/politics/michigan-primary-election-results-what-next.html

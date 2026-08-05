@@ -1,3 +1,11 @@
+**Abdul El-Sayed Wins Michigan’s Democratic Senate Primary**\
+`Dr. El-Sayed, a former public health official, narrowly defeated Representative Haley Stevens, a four-term congressional moderate, in Michigan’s expensive Democratic Senate primary.`\
+https://www.nytimes.com/video/us/politics/100000011074395/el-sayed-michigan-senate-primary-race.html
+
+**Inside the Abdul El-Sayed Watch Party**\
+`Tim Balk joins Natalie Kitroeff on “The Call” from Michigan, where he attended the election night watch party of Democratic Senate primary candidate Abdul El-Sayed. Balk spoke to supporters of the progressive Democrat as they waited for results in a closer than expected race.`\
+https://www.nytimes.com/video/us/elections/100000011075731/inside-the-abdul-el-sayed-watch-party.html
+
 **Where El-Sayed Showed Strengths, and Weaknesses, in the Michigan Primary**\
 `Dr. Abdul El-Sayed had a strong showing in college towns, while Representative Haley Stevens did well in Black urban centers.`\
 https://www.nytimes.com/2026/08/05/us/politics/michigan-primary-election-results-what-next.html
@@ -7,11 +15,11 @@ https://www.nytimes.com/2026/08/05/us/politics/michigan-primary-election-results
 https://www.nytimes.com/2026/08/05/style/abdul-el-sayed-fashion.html
 
 **El-Sayed Got a Big Win for the Left. Can It Win Like This Nationally?**\
-`It’s a victory for the new activist left, but it’s built on a coalition that may be too narrow to thrive among Democrats in other areas, particularly the South.`\
+`The new activist left is built on a coalition that may be too narrow to thrive in Democratic primaries in other areas, particularly the South.`\
 https://www.nytimes.com/2026/08/05/upshot/democrats-michigan-progressives-left.html
 
 **Cost of Trump’s Namesake Warships Likely to Rise by 50 Percent or More**\
-`President Trump’s goal of building a “golden fleet” of 15 battleships could cost $275 billion, according to a government estimate`\
+`President Trump’s goal of building a “golden fleet” of 15 battleships could cost $275 billion, according to a government estimate.`\
 https://www.nytimes.com/2026/08/05/us/politics/trump-namesake-warships-cost-increase.html
 
 **The Good List: 6 Things to Add Delight to Your Day**\
@@ -30,8 +38,8 @@ https://www.nytimes.com/2026/08/05/health/cdc-erica-schwartz.html
 `The federal government is ending its contract with a Kentucky nonprofit that it says pressured medical workers to remove organs from patients who were getting better.`\
 https://www.nytimes.com/2026/08/05/us/organ-donations-kentucky.html
 
-**Always Late? TikTok Thinks You Have A.D.H.D.**\
-`We’ve reached peak self-diagnosis culture.`\
+**Have We Turned Personality Into Diagnosis?**\
+`Why we keep searching for new ways to explain ourselves.`\
 https://www.nytimes.com/2026/08/05/opinion/adhd-autism-diagnosis-social-media.html
 
 **Butterflies Take Flight in Face of Climate Change and Extreme Weather**\
@@ -185,12 +193,4 @@ https://www.nytimes.com/video/embedded/us/politics/100000011074754/05vid-el-saye
 **Shawarma-Spiced Grilled Chicken; Tapenade Pasta Salad; Broiled Peaches With Feta**\
 `There are roughly 7 weeks of summer left. Cook accordingly.`\
 https://www.nytimes.com/2026/08/05/dining/shawarma-spiced-grilled-chicken-tapenade-pasta-salad-broiled-peaches-with-feta.html
-
-**Could U.S. Water Systems Be a New Front in the Iran War?**\
-`Dozens of U.S. water systems have been the targets of cyberattacks in the past week. Our reporter Dustin Volz explains how Iranian hackers are suspected, and how President Trump has cast blame elsewhere.`\
-https://www.nytimes.com/video/us/100000011070404/could-us-water-systems-be-a-new-front-in-the-iran-war.html
-
-**‘That Didn’t Age Well’**\
-`Looney Tunes hasn’t aged well. Neither has “The West Wing.” And that’s OK, the Times Opinion columnist Carlos Lozada says. He argues we shouldn’t just dismiss art that doesn’t fit the moment. Instead, we should learn from it.`\
-https://www.nytimes.com/video/opinion/100000011069719/that-didnt-age-well.html
 
