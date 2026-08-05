@@ -1,3 +1,11 @@
+**Takeaways From the Primary Elections in Michigan**\
+`Dr. Abdul El-Sayed narrowly prevailed over Representative Haley Stevens in the Democratic primary for Senate in Michigan, setting up a nervy race to November for the party.`\
+https://www.nytimes.com/2026/08/05/us/politics/michigan-primary-elections-takeaways.html
+
+**How China’s A.I. Is Surging Across Africa**\
+`In African tech hubs, developers are picking China’s cheap, freely available artificial intelligence models over more powerful U.S. ones.`\
+https://www.nytimes.com/2026/08/05/technology/ai-china-africa.html
+
 **Shri Thanedar Is Ousted by a Democratic Socialist in a Michigan House Primary**\
 `Representative Shri Thanedar is among a wave of Democratic incumbents in Congress whom primary voters have sent packing in a surge of anti-incumbent fervor this cycle.`\
 https://www.nytimes.com/2026/08/05/us/politics/michigan-house-primary-mckinney-thanedar.html
