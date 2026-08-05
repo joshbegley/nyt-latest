@@ -1,3 +1,7 @@
+**Disney Theme Parks Report Strong Results, While Comcast’s Universal Parks Dip**\
+`Theme parks have long been seen as a bellwether for consumer confidence. Disney’s domestic parks and cruises revenue rose 11 percent in the latest quarter.`\
+https://www.nytimes.com/2026/08/05/business/media/disney-parks-universal.html
+
 **Two Cities With a Tangled History**\
 `Ceuta, Spain, and Fnideq, Morocco, are physically separated by only a mile, but they are intertwined by family and trade. A recent border crisis is the latest chapter in their story.`\
 https://www.nytimes.com/2026/08/05/world/europe/ceuta-spain-fnideq-morocco-migration.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/08/05/espanol/estados-unidos/trump-guerra-iran.h
 **Un delfín carga a su cría muerta en lo que los expertos llaman duelo**\
 `Las imágenes publicadas por un grupo conservacionista ofrecen un vistazo inusual a un comportamiento común en los delfines que a menudo pasa desapercibido.`\
 https://www.nytimes.com/es/2026/08/05/espanol/delfin-duelo-cria-muerta-video.html
-
-**Quote of the Day: One Lawyer’s Sisyphean Battle to Help Trans Troops Fight Ban**\
-`Quotation of the Day for Wednesday, August 5, 2026.`\
-https://www.nytimes.com/2026/08/05/pageoneplus/quote-of-the-day-one-lawyers-sisyphean-battle-to-help-trans-troops-fight-ban.html
 
