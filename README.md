@@ -1,6 +1,10 @@
+**Counties to Watch in Michigan’s Democratic Senate Primary**\
+`Results from these eight Michigan counties may prove crucial in an uncertain race between Dr. Abdul El-Sayed and Representative Haley Stevens.`\
+https://www.nytimes.com/2026/08/04/us/elections/michigan-senate-primary-counties-to-watch.html
+
 **Chipotle Removes Jalapeños Linked to Salmonella Outbreak From Its Restaurants**\
 `The Minnesota Department of Health said it had identified 110 salmonella cases in this outbreak, and the F.D.A. is also investigating.`\
-https://www.nytimes.com/2026/08/04/us/chipotle-salmonella-outbreak-jalepenos-minnesota.html
+https://www.nytimes.com/2026/08/04/us/chipotle-salmonella-outbreak-jalapenos-minnesota.html
 
 **5 Things to Know About Abdul El-Sayed, Democratic Senate Hopeful in Michigan**\
 `Dr. El-Sayed, a progressive candidate, is a vocal critic of Israel. He is known for his rhetorical abilities, which have drawn cheers and criticism.`\
@@ -174,11 +178,7 @@ https://www.nytimes.com/2026/08/04/dining/restaurant-review-bar-chucho-nyc.html
 `The 2025 Eaton fire, which killed 19 people and destroyed the Altadena community, began at an inactive tower belonging to Southern California Edison, officials said.`\
 https://www.nytimes.com/2026/08/04/us/eaton-fire-cause-transmission-tower-report.html
 
-**New Zealand’s Final Greyhound Race**\
-`Last week, hundreds of people gathered to witness New Zealand’s final commercial greyhound race. The country banned the sport amid concerns about the dogs’ welfare.`\
-https://www.nytimes.com/video/world/australia/100000011072216/new-zealand-greyhound-racing.html
-
 **Primary Elections Live Updates: Counting Begins in Michigan After Bitter Senate Battle**\
-`Polls are closed in most of of the state, where Dr. Abdul El-Sayed, a progressive, is facing Representative Haley Stevens, a moderate, in the Democratic primary for Senate. Kansas, Missouri, Virginia and Washington are also voting today.`\
+`Polls are closed in most of the state, where Dr. Abdul El-Sayed, a progressive, is facing Representative Haley Stevens, a moderate, in the Democratic primary for Senate. Kansas, Missouri, Virginia and Washington are also voting today.`\
 https://www.nytimes.com/live/2026/08/04/us/midterms-elections-michigan-virginia
 
