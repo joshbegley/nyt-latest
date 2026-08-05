@@ -50,7 +50,7 @@ https://www.nytimes.com/2026/08/05/world/europe/hague-heat-coolcation.html
 `Finland, wary of misinformation from Moscow and beyond, has a leg up on other nations in spotting fake news. But A.I. is a whole new challenge.`\
 https://www.nytimes.com/2026/08/05/world/europe/finland-deepfakes-ai.html
 
-**Tradwives and the Manosphere Have Lost Their Viral Appeal**\
+**The Tradwife Illusion Meets the Anti-Trump Reality**\
 `Nara Smith’s illusion meets the anti-Trump reality.`\
 https://www.nytimes.com/2026/08/05/opinion/nara-smith-working-mom.html
 
