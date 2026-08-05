@@ -1,3 +1,15 @@
+**Google Shakes Up A.I. Leadership**\
+`Minutes after four top researchers said they were leaving, Google said that Demis Hassabis, the Nobel-winning scientist who led the company’s A.I. lab, was stepping into a new job.`\
+https://www.nytimes.com/2026/08/05/technology/google-ai-leadership.html
+
+**Windy Weather Could Worsen Pacific Northwest Fires**\
+`Forecasters expect winds to pick up in eastern Washington and Oregon on Friday and Saturday, but not to be as strong as last weekend’s were.`\
+https://www.nytimes.com/2026/08/05/weather/pacific-northwest-fires-could-worsen-with-more-wind.html
+
+**Los nuevos controles de pasaportes causan caos a los viajeros en Europa**\
+`El sistema biométrico para ciudadanos que no son de la UE está causando extensas demoras en los aeropuertos. Las autoridades dicen que el accidentado lanzamiento mejorará y aumentará la seguridad.`\
+https://www.nytimes.com/es/2026/08/05/espanol/mundo/control-pasaportes-largas-filas-europa.html
+
 **Iran Says It Is Nearing Final Agreement With Oman on Strait of Hormuz**\
 `The agreement on an acceptable route for ships to pass through the strait would effectively ratify Tehran’s control over the crucial waterway.`\
 https://www.nytimes.com/2026/08/05/world/middleeast/iran-oman-strait-of-hormuz.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/08/05/world/asia/south-korea-baseball-heat-wave.htm
 **The New York Times’s Revenue Rises 11%**\
 `The company said it added 280,000 digital subscribers in the second quarter.`\
 https://www.nytimes.com/2026/08/05/business/media/new-york-times-earnings-q2.html
-
-**Rep. Chuck Edwards Drops Re-election Bid in North Carolina After Ethics Rebuke**\
-`Chuck Edwards made the announcement after the House Ethics Committee recommended he be censured for “persistent unprofessional and inappropriate conduct” toward two female staff members.`\
-https://www.nytimes.com/2026/08/05/us/politics/chuck-edwards-north-carolina.html
-
-**A Nail-Biter in Michigan**\
-`We’re watching the Democratic Senate primary.`\
-https://www.nytimes.com/2026/08/05/briefing/michigan-democrat-senate-primary.html
-
-**Disney Theme Parks Report Strong Results, While Comcast’s Universal Parks Dip**\
-`Theme parks have long been seen as a bellwether for consumer confidence. Disney’s domestic parks and cruises revenue rose 11 percent in the latest quarter.`\
-https://www.nytimes.com/2026/08/05/business/media/disney-parks-universal.html
 
