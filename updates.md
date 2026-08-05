@@ -1,3 +1,7 @@
+**El-Sayed’s Michigan Senate Primary Win Sets Up the Left’s Biggest Test of the Fall**\
+`Abdul El-Sayed’s Senate candidacy poses a critical challenge for  Democrats’ ascendant progressive wing: Can an insurgent candidate, with unabashedly liberal positions, win a general election in a moderate state?`\
+https://www.nytimes.com/2026/08/05/us/politics/el-sayed-michigan-senate-primary-win.html
+
 **El-Sayed’s Win Sets Up the Left’s Biggest Test of the Fall**\
 `Abdul El-Sayed’s Senate candidacy poses a critical challenge for  Democrats’ ascendant progressive wing: Can an insurgent candidate, with unabashedly liberal positions, win a general election in a moderate state?`\
 https://www.nytimes.com/2026/08/05/us/politics/el-sayed-michigan-senate-primary-win.html
