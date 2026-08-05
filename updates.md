@@ -1,3 +1,11 @@
+**Malaysian Pilot Caught Smuggling 55 Pounds of Ecstasy Into Indonesia**\
+`A Malaysian pilot was arrested for smuggling more than 55 pounds of ecstasy into Jakarta’s main airport and told investigators that he was promised about $12,200 to transport the drugs.`\
+https://www.nytimes.com/video/world/asia/100000011075450/malaysian-pilot-drug-smuggling-indonesia.html
+
+**A Democratic Socialist Disparaged Thanksgiving. Will Voters Forgive Her?**\
+`“Cancel Thanksgiving,” she wrote. “VDay” brings out “the worst of humanity,” she mused. Francesca Hong’s old social media posts get a fresh look ahead of Wisconsin’s Democratic primary for governor.`\
+https://www.nytimes.com/2026/08/05/us/politics/francesca-hong-thanksgiving.html
+
 **Trump-Backed Michigan Candidate Loses Primary to Rival Who Suspended His Campaign**\
 `Without running a single ad or filing a campaign finance report, Tom Smith, who had suspended his bid, soundly defeated Amir Hassan, a Navy veteran backed by President Trump.`\
 https://www.nytimes.com/2026/08/05/us/politics/trump-hassan-smith-loses-michigan-primary.html
