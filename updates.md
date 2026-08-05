@@ -1,3 +1,11 @@
+**Why Polling Overestimated Abdul El-Sayed’s Advantage in Michigan**\
+`Surveys greatly overestimated how Dr. Abdul El-Sayed would fare in the state’s Democratic Senate primary, revealing some typical polling challenges.`\
+https://www.nytimes.com/2026/08/05/us/politics/michigan-primary-election-polling.html
+
+**Death Renews Scrutiny of Delaney Hall. Here’s What to Know.**\
+`The death of a Salvadoran immigrant at the federal detention center in Newark has raised questions about the conditions there.`\
+https://www.nytimes.com/2026/08/05/nyregion/delaney-hall-ice-what-we-know.html
+
 **Abdul El-Sayed Wins Michigan’s Democratic Senate Primary**\
 `Dr. El-Sayed, a former public health official, narrowly defeated Representative Haley Stevens, a four-term congressional moderate, in Michigan’s expensive Democratic Senate primary.`\
 https://www.nytimes.com/video/us/politics/100000011074395/el-sayed-michigan-senate-primary-race.html
