@@ -1,3 +1,15 @@
+**Pastor Adam Hamilton Wins Kansas Democratic Senate Primary**\
+`The Rev. Adam Hamilton will be a serious underdog against Roger Marshall, a Republican, but Democrats think the state could be competitive if the November environment is favorable enough to them.`\
+https://www.nytimes.com/2026/08/04/us/politics/hamilton-marshall-kansas-senate-election.html
+
+**Michigan Secretary of State Wins Democratic Nomination for Governor**\
+`Jocelyn Benson, who has clashed with Republicans in her role administering elections, is expected to face a competitive race in November.`\
+https://www.nytimes.com/2026/08/04/us/elections/michigan-democratic-primary-governor.html
+
+**Primary Elections Live Updates: Michigan Polls Close After Divisive Senate Battle**\
+`The state’s Democratic Senate primary pitted Dr. Abdul El-Sayed, a progressive, against Representative Haley Stevens. Kansas, Missouri, Virginia and Washington are also voting today.`\
+https://www.nytimes.com/live/2026/08/04/us/midterms-elections-michigan-virginia
+
 **Armed Man Arrested at Trump Golf Club Near Los Angeles**\
 `The man appeared to be observing “security-planning activities” on Sunday at the club in Rancho Palos Verdes, the authorities said. The president was scheduled to speak there on Tuesday night.`\
 https://www.nytimes.com/2026/08/04/us/trump-golf-club-armed-man-arrested.html

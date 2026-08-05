@@ -1,3 +1,11 @@
+**Pastor Adam Hamilton Wins Kansas Democratic Senate Primary**\
+`The Rev. Adam Hamilton will be a serious underdog against Roger Marshall, a Republican, but Democrats think the state could be competitive if the November environment is favorable enough to them.`\
+https://www.nytimes.com/2026/08/04/us/politics/hamilton-marshall-kansas-senate-election.html
+
+**Michigan Secretary of State Wins Democratic Nomination for Governor**\
+`Jocelyn Benson, who has clashed with Republicans in her role administering elections, is expected to face a competitive race in November.`\
+https://www.nytimes.com/2026/08/04/us/elections/michigan-democratic-primary-governor.html
+
 **Armed Man Arrested at Trump Golf Club Near Los Angeles**\
 `The man appeared to be observing “security-planning activities” on Sunday at the club in Rancho Palos Verdes, the authorities said. The president was scheduled to speak there on Tuesday night.`\
 https://www.nytimes.com/2026/08/04/us/trump-golf-club-armed-man-arrested.html
@@ -170,15 +178,7 @@ https://www.nytimes.com/es/2026/08/04/espanol/negocios/uber-agresion-sexual-dema
 `La estrella pop anunció que se tomaría un descanso de la vida pública, lo que parecía destinado a acallar los debates sobre su apariencia física, los cuales se han intensificado desde 2023.`\
 https://www.nytimes.com/es/2026/08/04/espanol/cultura/ariana-grande-salud.html
 
-**Justice Dept. Charges Doctor in $95 Million Skin Substitute Fraud Scheme**\
-`Dr. Stephen Dubin, a wound care doctor in Nevada, is accused of applying unneeded, expensive wound coverings to seniors. He used the profits to buy yachts, the department said.`\
-https://www.nytimes.com/2026/08/04/health/skin-substitutes-medicare-fraud.html
-
-**Veterinary Students Learn to Care for Honeybees as Populations Decline**\
-`Veterinary students at the University of Georgia learned to care for honeybees, which are vital pollinators for U.S. agriculture. Between 2024 and 2025 more than half of the managed colonies in the U.S. have been lost.`\
-https://www.nytimes.com/video/science/100000011072407/honeybee-colony-vet-care-pollinator.html
-
-**Primary Elections Live Updates: Counting Begins in Michigan After Bitter Senate Battle**\
-`Polls are closed in most of the state, where Dr. Abdul El-Sayed, a progressive, is facing Representative Haley Stevens, a moderate, in the Democratic primary for Senate. Kansas, Missouri, Virginia and Washington are also voting today.`\
+**Primary Elections Live Updates: Michigan Polls Close After Divisive Senate Battle**\
+`The state’s Democratic Senate primary pitted Dr. Abdul El-Sayed, a progressive, against Representative Haley Stevens. Kansas, Missouri, Virginia and Washington are also voting today.`\
 https://www.nytimes.com/live/2026/08/04/us/midterms-elections-michigan-virginia
 
