@@ -1,3 +1,19 @@
+**U.S. Cuts Ties With Organ Donor Group After Reports of Abuses**\
+`The federal government is ending its contract with a Kentucky nonprofit that it says pressured medical workers to remove organs from patients who were getting better.`\
+https://www.nytimes.com/2026/08/05/us/organ-donations-kentucky.html
+
+**Always Late? TikTok Thinks You Have A.D.H.D.**\
+`We’ve reached peak self-diagnosis culture.`\
+https://www.nytimes.com/2026/08/05/opinion/adhd-autism-diagnosis-social-media.html
+
+**Butterflies Take Flight in Face of Climate Change and Extreme Weather**\
+`In 32 of the countries included in a recent study, at least a quarter of the native butterfly species had moved to new areas.`\
+https://www.nytimes.com/2026/08/05/science/butterflies-climate-change-extreme-weather.html
+
+**Always Late? TikTok Thinks You Have A.D.H.D.**\
+`We’ve reached peak self-diagnosis culture.`\
+https://www.nytimes.com/video/opinion/100000011064628/always-late-tiktok-thinks-you-have-adhd.html
+
 **A Four-Ton SpaceX Rocket Stage Hit the Moon, but No One Saw It**\
 `Amateur and professional astronomers pointed their telescopes at the impact site. Most did not detect anything.`\
 https://www.nytimes.com/2026/08/05/science/space-x-moon-crash-confirmation.html
