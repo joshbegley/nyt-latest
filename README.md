@@ -178,7 +178,7 @@ https://www.nytimes.com/video/dining/100000011073378/chile-crisp.html
 `Iran. The midterms. Can Trump wriggle out one last time?`\
 https://www.nytimes.com/2026/08/04/opinion/trump-midterms-iran.html
 
-**Primary Elections Live Updates: Abdul El-Sayed Speaks as Count Goes On in Close Michigan Senate Battle**\
-`Dr. El-Sayed, a progressive, faced Representative Haley Stevens, a moderate, in the state’s contentious Democratic primary for Senate. Other contests were held in Kansas, Missouri, Virginia and Washington.`\
+**Primary Elections Live Updates: Race Too Close to Call in Democratic Primary for Michigan Senate Seat**\
+`Dr. Abdul El-Sayed, a progressive, and Representative Haley Stevens, a centrist, both gave speeches with the winner still undeclared. Kansas, Missouri, Virginia and Washington also voted.`\
 https://www.nytimes.com/live/2026/08/04/us/midterms-elections-michigan-virginia
 
