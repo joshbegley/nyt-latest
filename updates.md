@@ -1,3 +1,11 @@
+**Malaysian Pilot Smuggled 55 Pounds of Ecstasy Into Indonesia, Officials Say**\
+`The pilot, identified only by his initials, also tested positive for ecstasy and cocaine when he was arrested last week at the Jakarta airport, the Indonesian police said.`\
+https://www.nytimes.com/2026/08/05/world/asia/malaysian-airlines-pilot-drugs-arrest.html
+
+**Inside the Abdul El-Sayed Watch Party**\
+`Tim Balk joins Natalie Kitroeff on “The Call” from Michigan, where he attended the election night watch party of the Democratic Senate primary candidate Abdul El-Sayed. Mr. Balk spoke to supporters of the progressive Democrat as they waited for results in a closer than expected race.`\
+https://www.nytimes.com/video/us/elections/100000011075731/inside-the-abdul-el-sayed-watch-party.html
+
 **Why Polling Overestimated Abdul El-Sayed’s Advantage in Michigan**\
 `Surveys greatly overestimated how Dr. Abdul El-Sayed would fare in the state’s Democratic Senate primary, revealing some typical polling challenges.`\
 https://www.nytimes.com/2026/08/05/us/politics/michigan-primary-election-polling.html

@@ -1,3 +1,7 @@
+**Trump-Backed Michigan Candidate Loses Primary to Rival Who Suspended His Campaign**\
+`Without running a single ad or filing a campaign finance report, Tom Smith, who had suspended his bid, soundly defeated Amir Hassan, a Navy veteran backed by President Trump.`\
+https://www.nytimes.com/2026/08/05/us/politics/trump-hassan-smith-loses-michigan-primary.html
+
 **Malaysian Pilot Smuggled 55 Pounds of Ecstasy Into Indonesia, Officials Say**\
 `The pilot, identified only by his initials, also tested positive for ecstasy and cocaine when he was arrested last week at the Jakarta airport, the Indonesian police said.`\
 https://www.nytimes.com/2026/08/05/world/asia/malaysian-airlines-pilot-drugs-arrest.html
