@@ -1,3 +1,7 @@
+**Primary Elections Live Updates: Close Race in Democratic Primary for Michigan Senate Seat**\
+`The primary pitted Dr. Abdul El-Sayed, a progressive, against Representative Haley Stevens, a centrist. Kansas, Missouri, Virginia and Washington are also voting today.`\
+https://www.nytimes.com/live/2026/08/04/us/midterms-elections-michigan-virginia
+
 **John James Wins Republican Nomination for Michigan Governor**\
 `Representative John James emerged from the primary, setting up a competitive general election race.`\
 https://www.nytimes.com/2026/08/04/us/elections/michigan-republican-governor-primary.html
