@@ -1,3 +1,15 @@
+**Am I Obligated to Tell My Friends How Bad Their Botox Looks?**\
+`They’re increasingly critical of themselves, and I don’t think they realize how extreme it’s become.`\
+https://www.nytimes.com/2026/08/05/magazine/friends-botox-ethics.html
+
+**Four Top Google A.I. Researchers Form New Start-Up**\
+`Jeff Dean, who for years was one of Google’s most important executives, is leading the new artificial intelligence company with the backing of Google.`\
+https://www.nytimes.com/2026/08/05/technology/google-researchers-ai-startup.html
+
+**‘One Night Only’ Review: A 12-Hour Sexual Reprieve**\
+`This dystopian rom-com follows Allie (Monica Barbaro) and Owen (Callum Turner), on their parallel hunts for passion.`\
+https://www.nytimes.com/2026/08/05/movies/one-night-only-review.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000011074808/05vid-el-sayed-join-movement-sot.html
@@ -14,7 +26,7 @@ https://www.nytimes.com/es/2026/08/05/espanol/mundo/brasil-embajadora-eeuu-visa.
 `“Stones From the River,” her best-known work and an early Oprah’s Book Club selection, was set in a fictional German town in the early 20th century.`\
 https://www.nytimes.com/2026/08/05/books/ursula-hegi-dead.html
 
-**Hacks on U.S. Water Supply Follow Years of Warnings and Neglect**\
+**Suspected Iran Cyberattacks on U.S. Water Supply Follow Years of Warnings and Neglect**\
 `Federal and state officials are racing to address an assault on the nation’s water supply that they believe is the work of Iranian hackers.`\
 https://www.nytimes.com/2026/08/05/us/politics/water-supply-warnings.html
 
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/08/05/world/europe/finland-deepfakes-ai.html
 **The Tradwife Illusion Meets the Anti-Trump Reality**\
 `Nara Smith’s illusion meets the anti-Trump reality.`\
 https://www.nytimes.com/2026/08/05/opinion/nara-smith-working-mom.html
-
-**‘Ted Lasso’ Season 4 Premiere Recap: Begin Again**\
-`Ted is back in Kansas City. But how long will he stay there?`\
-https://www.nytimes.com/2026/08/05/arts/television/ted-lasso-recap-season-4-premiere.html
-
-**Where Did All My Male Friendships Go? (Encore)**\
-`One man’s quest to cure his loneliness and get his friends back.`\
-https://www.nytimes.com/2026/08/05/podcasts/where-did-all-my-male-friendships-go-encore.html
-
-**Wildfire Smoke and Airport Chaos: My Summer Vacation From Hell**\
-`Used to chronicling other people’s vacation disasters, a travel reporter faced the new normal on her own long-awaited family trip.`\
-https://www.nytimes.com/2026/08/05/travel/midwest-wildfire-smoke-tornadoes.html
 
