@@ -1,3 +1,7 @@
+**William Lawrence Wins Primary in Battleground Michigan House District**\
+`William Lawrence defeated two moderate candidates to challenge a vulnerable Republican incumbent, but some worry his views could hurt his chances in November.`\
+https://www.nytimes.com/2026/08/04/us/politics/maasdam-lawrence-michigan-primary.html
+
 **Progressive Democrat Wins Primary in Battleground Michigan House District**\
 `William Lawrence defeated two moderate candidates to challenge a vulnerable Republican incumbent, but some worry his views could hurt his chances in November.`\
 https://www.nytimes.com/2026/08/04/us/politics/maasdam-lawrence-michigan-primary.html
