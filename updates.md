@@ -1,3 +1,11 @@
+**Trump-Backed Michigan Candidate Loses Primary to Rival Who Suspended His Campaign**\
+`Without running a single ad or filing a campaign finance report, Tom Smith, who had suspended his bid, soundly defeated Amir Hassan, a Navy veteran backed by President Trump.`\
+https://www.nytimes.com/2026/08/05/us/politics/trump-hassan-smith-loses-michigan-primary.html
+
+**Inside the Abdul El-Sayed Watch Party**\
+`Tim Balk joins Natalie Kitroeff on “The Call” from Michigan, where he attended the election night watch party of the Democratic Senate primary candidate Abdul El-Sayed. Mr. Balk spoke to supporters of the progressive Democrat as they waited for results in a closer-than-expected race.`\
+https://www.nytimes.com/video/us/elections/100000011075731/inside-the-abdul-el-sayed-watch-party.html
+
 **Malaysian Pilot Smuggled 55 Pounds of Ecstasy Into Indonesia, Officials Say**\
 `The pilot, identified only by his initials, also tested positive for ecstasy and cocaine when he was arrested last week at the Jakarta airport, the Indonesian police said.`\
 https://www.nytimes.com/2026/08/05/world/asia/malaysian-airlines-pilot-drugs-arrest.html
