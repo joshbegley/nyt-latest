@@ -1,3 +1,7 @@
+**Primary Elections Live Updates: Race Too Close to Call in Democratic Primary for Michigan Senate Seat**\
+`Dr. Abdul El-Sayed, a progressive, holds a narrow lead over Representative Haley Stevens, a centrist, in a race that divided Democrats. The party sees the seat as key to its hopes of winning control of the chamber.`\
+https://www.nytimes.com/live/2026/08/05/us/michigan-election-results-primary
+
 **Rep. Chuck Edwards Drops Re-election Bid in North Carolina After Ethics Rebuke**\
 `Chuck Edwards made the announcement after the House Ethics Committee recommended he be censured for “persistent unprofessional and inappropriate conduct” toward two female staff members.`\
 https://www.nytimes.com/2026/08/05/us/politics/chuck-edwards-north-carolina.html
