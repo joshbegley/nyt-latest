@@ -1,3 +1,23 @@
+**Lo que algunas ciudades pierden cuando las personas dejan el alcohol**\
+`Sí, reducir el consumo tiene muchos beneficios. Pero los bares están cerrando. Los empleos están desapareciendo. Y una forma de estar juntos puede sentirse más difícil de encontrar.`\
+https://www.nytimes.com/es/2026/08/05/espanol/consumo-alcohol-restaurantes-bares.html
+
+**¿Por qué Trump se enfrentó con la fiscala Jeanine Pirro?**\
+`La fiscala sostuvo que la evidencia apuntaba a una falla de construcción en el Estanque Reflectante en Washington, no a un delito, y eso provocó una reprimenda pública del presidente y dudas sobre su futuro.`\
+https://www.nytimes.com/es/2026/08/05/espanol/estados-unidos/trump-estanque-lincoln-fiscal-pirro.html
+
+**How to Approach an Interview With Mark Zuckerberg**\
+`When tech executives call a reporter, they usually have a point to make. The job is to listen, but also push and prod, Mike Isaac says.`\
+https://www.nytimes.com/2026/08/05/pageoneplus/how-to-approach-an-interview-with-mark-zuckerberg.html
+
+**He Had Tenure. The New School Laid Him Off Anyway.**\
+`The professor, a longtime critic of the university, was among 19 educators who lost their positions as the institution navigated financial woes.`\
+https://www.nytimes.com/2026/08/05/nyregion/new-school-faculty-fired-nyc.html
+
+**NYT Spelling Bee Answers for August 5, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/08/05/crosswords/spelling-bee-forum.html
+
 **‘Los perros tienen superpoderes y secretos’, dice Paul Yoon, autor de ‘Etna’**\
 `Impulsado por un vínculo profundo con su perro, Paul Yoon escribió ‘Etna’, un libro ambientado en tiempos de guerra y contado desde la perspectiva de un animal.`\
 https://www.nytimes.com/es/2026/08/05/espanol/cultura/etna-libro-paul-yoon.html
@@ -157,26 +177,6 @@ https://www.nytimes.com/2026/08/04/briefing/michigan-primary-spokane.html
 **Missouri Says Voters Cannot Decide on Redrawn Congressional Districts**\
 `Opponents of the new map, which was redrawn to benefit Republicans, had gathered signatures seeking a statewide vote. The issue could now move to the courts.`\
 https://www.nytimes.com/2026/08/04/us/missouri-redistricting-referendum-result.html
-
-**The 50 Best Thriller Books of the 21st Century: A Printable List**\
-`Print this version to keep track of which thrillers you’ve read and those you’d like to read.`\
-https://www.nytimes.com/interactive/2026/books/best-thrillers-21st-century-printable.html
-
-**Former Police Official Is Accused of Helping Her Son Flee a Shooting**\
-`The official, Jennifer Lackard, served as a deputy police commissioner in Mount Vernon, N.Y., before her arrest on Tuesday at her home in the Bronx.`\
-https://www.nytimes.com/2026/08/04/nyregion/mount-vernon-nyc-police-arrest.html
-
-**Gillian Flynn's ‘Gone Girl’ Is the Best Thriller of the 21st Century. Here’s How It Gets Inside Your Head.**\
-`A.O. Scott dissects the first page of Gillian Flynn’s story of murderous marital dysfunction.`\
-https://www.nytimes.com/interactive/2026/books/gone-girl-book-thriller-21st-century.html
-
-**See How Your Favorite Thrillers of the Century Stack Up Against Other Readers**\
-`Play our game, and see what other readers think.`\
-https://www.nytimes.com/interactive/2026/books/best-thrillers-21st-century-reader-vote.html
-
-**Chile Crisp**\
-`There’s just enough oil to slick all the crispy bits of chile, onion and sesame in this version of the spicy Chinese condiment, so it delivers as much crunch as it does salty, sweet, nutty heat.`\
-https://www.nytimes.com/video/dining/100000011073378/chile-crisp.html
 
 **Primary Elections Live Updates: Race Too Close to Call in Democratic Primary for Michigan Senate Seat**\
 `Dr. Abdul El-Sayed, a progressive, and Representative Haley Stevens, a centrist, both gave speeches with the winner still undeclared. Kansas, Missouri, Virginia and Washington also voted.`\
