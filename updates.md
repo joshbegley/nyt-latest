@@ -1,3 +1,7 @@
+**‘Los perros tienen superpoderes y secretos’, dice Paul Yoon, autor de ‘Etna’**\
+`Impulsado por un vínculo profundo con su perro, Paul Yoon escribió ‘Etna’, un libro ambientada en tiempos de guerra y contada desde la perspectiva de un animal.`\
+https://www.nytimes.com/es/2026/08/05/espanol/cultura/etna-libro-paul-yoon.html
+
 **Primary Elections Live Updates: Race Too Close to Call in Democratic Primary for Michigan Senate Seat**\
 `Dr. Abdul El-Sayed, a progressive, and Representative Haley Stevens, a centrist, both gave speeches with the winner still undeclared. Kansas, Missouri, Virginia and Washington also voted.`\
 https://www.nytimes.com/live/2026/08/04/us/midterms-elections-michigan-virginia

@@ -1,3 +1,7 @@
+**‘Los perros tienen superpoderes y secretos’, dice Paul Yoon, autor de ‘Etna’**\
+`Impulsado por un vínculo profundo con su perro, Paul Yoon escribió ‘Etna’, un libro ambientada en tiempos de guerra y contada desde la perspectiva de un animal.`\
+https://www.nytimes.com/es/2026/08/05/espanol/cultura/etna-libro-paul-yoon.html
+
 **La frustración de Trump choca con el enigma del poder en Irán**\
 `A pesar de la fuerza militar, las sanciones y la urgencia política, el presidente no ha logrado traducir su enfoque en un acuerdo que cambie la relación con Teherán.`\
 https://www.nytimes.com/es/2026/08/05/espanol/estados-unidos/trump-guerra-iran.html
@@ -173,10 +177,6 @@ https://www.nytimes.com/interactive/2026/books/best-thrillers-21st-century-reade
 **Chile Crisp**\
 `There’s just enough oil to slick all the crispy bits of chile, onion and sesame in this version of the spicy Chinese condiment, so it delivers as much crunch as it does salty, sweet, nutty heat.`\
 https://www.nytimes.com/video/dining/100000011073378/chile-crisp.html
-
-**Can Trump Wriggle Out One Last Time?**\
-`Iran. The midterms. Can Trump wriggle out one last time?`\
-https://www.nytimes.com/2026/08/04/opinion/trump-midterms-iran.html
 
 **Primary Elections Live Updates: Race Too Close to Call in Democratic Primary for Michigan Senate Seat**\
 `Dr. Abdul El-Sayed, a progressive, and Representative Haley Stevens, a centrist, both gave speeches with the winner still undeclared. Kansas, Missouri, Virginia and Washington also voted.`\
