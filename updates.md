@@ -1,3 +1,11 @@
+**La frustración de Trump choca con el enigma del poder en Irán**\
+`A pesar de la fuerza militar, las sanciones y la urgencia política, el presidente no ha logrado traducir su enfoque en un acuerdo que cambie la relación con Teherán.`\
+https://www.nytimes.com/es/2026/08/05/espanol/estados-unidos/trump-guerra-iran.html
+
+**Primary Elections Live Updates: Abdul El-Sayed Speaks as Count Goes On in Close Michigan Senate Battle**\
+`Dr. El-Sayed, a progressive, faced Representative Haley Stevens, a moderate, in the state’s contentious Democratic primary for Senate. Other contests were held in Kansas, Missouri, Virginia and Washington.`\
+https://www.nytimes.com/live/2026/08/04/us/midterms-elections-michigan-virginia
+
 **Un delfín carga a su cría muerta en lo que los expertos llaman duelo**\
 `Las imágenes publicadas por un grupo conservacionista ofrecen un vistazo inusual a un comportamiento común en los delfines que a menudo pasa desapercibido.`\
 https://www.nytimes.com/es/2026/08/05/espanol/delfin-duelo-cria-muerta-video.html
