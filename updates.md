@@ -1,3 +1,7 @@
+**How the Ukraine War Became a Fight for the Skies**\
+`Russia and Ukraine are producing ever larger numbers of innovative aerial weapons, hoping for a breakthrough as ground combat is largely frozen.`\
+https://www.nytimes.com/2026/08/05/world/europe/russia-ukraine-air-war.html
+
 **Primary Elections Live Updates: Race Too Close to Call in Democratic Primary for Michigan Senate Seat**\
 `The race between Dr. Abdul El-Sayed, a progressive, and Representative Haley Stevens, a centrist, had not been called as of 4 a.m. Wednesday. Kansas, Missouri, Virginia and Washington also voted.`\
 https://www.nytimes.com/live/2026/08/05/us/michigan-election-results-primary
