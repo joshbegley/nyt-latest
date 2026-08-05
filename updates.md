@@ -1,3 +1,7 @@
+**Russia’s Deadly Missile Attack on Kyiv Exploits Ukraine’s Depleted Air Defenses**\
+`At least 17 people were killed, officials said, as the country runs desperately low on interceptor missiles that could fend off Russian bombardments.`\
+https://www.nytimes.com/2026/08/05/world/europe/ukraine-war-kyiv-russia-missile-attack.html
+
 **Primary Elections Live Updates: Race Too Close to Call in Democratic Primary for Michigan Senate Seat**\
 `The race between Dr. Abdul El-Sayed, a progressive, and Representative Haley Stevens, a centrist, had not been called as of 3:30 a.m. Wednesday. Kansas, Missouri, Virginia and Washington also voted.`\
 https://www.nytimes.com/live/2026/08/05/us/michigan-election-results-primary
