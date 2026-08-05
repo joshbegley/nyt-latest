@@ -1,3 +1,7 @@
+**Missouri Voters Reject Measure to Limit Their Ballot Box Powers**\
+`The state’s conservative legislature had put the measure on the ballot that would have enacted citizen initiatives only if they won majorities in each of Missouri’s eight U.S. House districts.`\
+https://www.nytimes.com/2026/08/04/us/elections/missouri-citizen-led-constitutional-amendments.html
+
 **Kansas Rejects Measure to Elect Its State Supreme Court Justices**\
 `The rejection of a measure to begin electing justices was a victory for abortion rights groups who defended the Kansas high court’s ruling that abortion was protected in the state constitution.`\
 https://www.nytimes.com/2026/08/04/us/elections/kansas-judicial-referendum-supreme-court.html
@@ -174,11 +178,7 @@ https://www.nytimes.com/2026/08/04/technology/spacex-earnings-elon-musk.html
 `The comic actor, who ended a celebrated run on “Saturday Night Live” last year, will begin a 12-week engagement in mid-September.`\
 https://www.nytimes.com/2026/08/04/theater/bowen-yang-broadway-oh-mary.html
 
-**Video: Dolphin Carries Dead Calf in What Experts Call Mourning**\
-`Footage posted by a conservancy group offers an unusual glimpse of a common behavior by dolphins that often goes unobserved.`\
-https://www.nytimes.com/2026/08/04/science/dolphin-mother-dead-calf.html
-
-**Primary Elections Live Updates: Michigan Polls Close After Divisive Senate Battle**\
+**Primary Elections Live Updates: Counting Underway in Michigan After Divisive Senate Battle**\
 `The state’s Democratic Senate primary pitted Dr. Abdul El-Sayed, a progressive, against Representative Haley Stevens. Kansas, Missouri, Virginia and Washington are also voting today.`\
 https://www.nytimes.com/live/2026/08/04/us/midterms-elections-michigan-virginia
 
