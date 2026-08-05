@@ -1,3 +1,11 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011074808/05vid-el-sayed-join-movement-sot.html
+
+**Perez Hilton Is Hospitalized After Appearing to Harm Himself on Livestream**\
+`Law enforcement and emergency workers responded to Mr. Hilton’s house after he appeared to hurt himself on a TikTok stream Tuesday.`\
+https://www.nytimes.com/2026/08/05/us/perez-hilton-live-stream-tiktok-self-harm.html
+
 **EE. UU. revoca la visa de la principal diplomática de Brasil**\
 `El Departamento de Estado ha cancelado la visa de la embajadora de Brasil en Washington, lo que profundiza una crisis diplomática entre ambos países.`\
 https://www.nytimes.com/es/2026/08/05/espanol/mundo/brasil-embajadora-eeuu-visa.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/08/05/podcasts/where-did-all-my-male-friendships-go
 **Wildfire Smoke and Airport Chaos: My Summer Vacation From Hell**\
 `Used to chronicling other people’s vacation disasters, a travel reporter faced the new normal on her own long-awaited family trip.`\
 https://www.nytimes.com/2026/08/05/travel/midwest-wildfire-smoke-tornadoes.html
-
-**Groceries Are Expensive. Here’s How 5 Shoppers Are Adjusting.**\
-`Two years ago, we collected receipts from people across the U.S. We thought now would be a good time to look at their spending again.`\
-https://www.nytimes.com/interactive/2026/08/05/dining/grocery-prices-shoppers.html
-
-**Corrections: Aug. 5, 2026**\
-`Corrections that appeared in print on Wednesday, Aug. 5, 2026.`\
-https://www.nytimes.com/2026/08/05/pageoneplus/corrections-aug-5-2026.html
 

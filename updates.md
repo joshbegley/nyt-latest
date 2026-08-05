@@ -1,3 +1,11 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011074808/05vid-el-sayed-join-movement-sot.html
+
+**Perez Hilton Is Hospitalized After Appearing to Harm Himself on Livestream**\
+`Law enforcement and emergency workers responded to Mr. Hilton’s house after he appeared to hurt himself on a TikTok stream Tuesday.`\
+https://www.nytimes.com/2026/08/05/us/perez-hilton-live-stream-tiktok-self-harm.html
+
 **EE. UU. revoca la visa de la principal diplomática de Brasil**\
 `El Departamento de Estado ha cancelado la visa de la embajadora de Brasil en Washington, lo que profundiza una crisis diplomática entre ambos países.`\
 https://www.nytimes.com/es/2026/08/05/espanol/mundo/brasil-embajadora-eeuu-visa.html
