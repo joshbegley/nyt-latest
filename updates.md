@@ -1,3 +1,23 @@
+**Missouri Voters Reject Measure to Limit Their Ballot Box Powers**\
+`The state’s conservative legislature had put the measure on the ballot that would have enacted citizen initiatives only if they won majorities in each of Missouri’s eight U.S. House districts.`\
+https://www.nytimes.com/2026/08/04/us/elections/missouri-citizen-led-constitutional-amendments.html
+
+**Kansas Rejects Measure to Elect Its State Supreme Court Justices**\
+`The rejection of a measure to begin electing justices was a victory for abortion rights groups who defended the Kansas high court’s ruling that abortion was protected in the state constitution.`\
+https://www.nytimes.com/2026/08/04/us/elections/kansas-judicial-referendum-supreme-court.html
+
+**Trump-Backed Lawmaker Wins Kansas Republican Primary for Governor**\
+`Ty Masterson, the president of the Kansas Senate, will aim to flip the governorship in November after eight years of Democratic control.`\
+https://www.nytimes.com/2026/08/04/us/kansas-republican-primary-governor.html
+
+**Wesley Bell Defeats Cori Bush in Missouri**\
+`Representative Wesley Bell beat Cori Bush, his predecessor, in a rematch. He will be a heavy favorite in the safely Democratic district in November.`\
+https://www.nytimes.com/2026/08/04/us/politics/bush-bell-missouri-democratic-primary.html
+
+**Primary Elections Live Updates: Counting Underway in Michigan After Divisive Senate Battle**\
+`The state’s Democratic Senate primary pitted Dr. Abdul El-Sayed, a progressive, against Representative Haley Stevens. Kansas, Missouri, Virginia and Washington are also voting today.`\
+https://www.nytimes.com/live/2026/08/04/us/midterms-elections-michigan-virginia
+
 **Pastor Adam Hamilton Wins Kansas Democratic Senate Primary**\
 `The Rev. Adam Hamilton will be a serious underdog against Roger Marshall, a Republican, but Democrats think the state could be competitive if the November environment is favorable enough to them.`\
 https://www.nytimes.com/2026/08/04/us/politics/hamilton-marshall-kansas-senate-election.html
