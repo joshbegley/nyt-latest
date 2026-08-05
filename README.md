@@ -1,3 +1,19 @@
+**U.S. Cuts Ties With Organ Donor Group After Reports of Abuses**\
+`The federal government is ending its contract with a Kentucky nonprofit that it says pressured medical workers to remove organs from patients who were getting better.`\
+https://www.nytimes.com/2026/08/05/us/organ-donations-kentucky.html
+
+**Always Late? TikTok Thinks You Have A.D.H.D.**\
+`We’ve reached peak self-diagnosis culture.`\
+https://www.nytimes.com/2026/08/05/opinion/adhd-autism-diagnosis-social-media.html
+
+**Butterflies Take Flight in Face of Climate Change and Extreme Weather**\
+`In 32 of the countries included in a recent study, at least a quarter of the native butterfly species had moved to new areas.`\
+https://www.nytimes.com/2026/08/05/science/butterflies-climate-change-extreme-weather.html
+
+**Always Late? TikTok Thinks You Have A.D.H.D.**\
+`We’ve reached peak self-diagnosis culture.`\
+https://www.nytimes.com/video/opinion/100000011064628/always-late-tiktok-thinks-you-have-adhd.html
+
 **Why Congress Wants a Closer U.S.-Israel Defense Partnership**\
 `A proposal making its way through Congress would integrate the U.S. and Israeli defense and intelligence apparatuses more tightly. Some worry that it is a bad idea.`\
 https://www.nytimes.com/2026/08/05/us/politics/congress-us-israel-defense-partnership.html
@@ -177,20 +193,4 @@ https://www.nytimes.com/video/world/europe/100000011074344/russia-ukraine-kyiv-m
 **Takeaways From the Primary Elections in Michigan**\
 `Dr. Abdul El-Sayed narrowly prevailed over Representative Haley Stevens in the Democratic primary for Senate in Michigan, setting up a nervy race to November for the party.`\
 https://www.nytimes.com/2026/08/05/us/politics/michigan-primary-elections-takeaways.html
-
-**How China’s A.I. Is Surging Across Africa**\
-`In African tech hubs, developers are picking China’s cheap, freely available artificial intelligence models over more powerful U.S. ones.`\
-https://www.nytimes.com/2026/08/05/technology/ai-china-africa.html
-
-**Shri Thanedar Is Ousted by a Democratic Socialist in a Michigan House Primary**\
-`Representative Shri Thanedar is among a wave of Democratic incumbents in Congress whom primary voters have sent packing in a surge of anti-incumbent fervor this cycle.`\
-https://www.nytimes.com/2026/08/05/us/politics/michigan-house-primary-mckinney-thanedar.html
-
-**Tiny Love Stories: ‘My Strange Shame’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://www.nytimes.com/2026/08/05/style/tiny-modern-love-stories-my-strange-shame.html
-
-**El papa León visitará Perú en noviembre**\
-`El viaje, que también incluirá a Uruguay y Argentina, será una especie de regreso a casa para el pontífice estadounidense.`\
-https://www.nytimes.com/es/2026/08/05/espanol/mundo/papa-leon-visita-peru.html
 
