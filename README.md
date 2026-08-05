@@ -1,3 +1,7 @@
+**John James Wins Republican Nomination for Michigan Governor**\
+`Representative John James emerged from the primary, setting up a competitive general election race.`\
+https://www.nytimes.com/2026/08/04/us/elections/michigan-republican-governor-primary.html
+
 **Cindy Holscher Wins Kansas Democratic Primary for Governor**\
 `In a race to be governor of Kansas, State Senator Cindy Holscher defeated a fellow Democratic lawmaker who was endorsed by the current governor, Laura Kelly.`\
 https://www.nytimes.com/2026/08/04/us/elections/kansas-democratic-primary-governor.html
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/08/04/world/asia/south-korea-birth-rate-nicu-crisis
 **Inside a Screening of ‘Tony,’ Anthony Bourdain’s Biopic, for Restaurant Workers Only**\
 `Servers, hosts, bartenders, line cooks, dishwashers and chefs were treated to a night at the movies to watch the new film “Tony.”`\
 https://www.nytimes.com/2026/08/04/style/tony-movie-anthony-bourdain-restaurant-workers.html
-
-**Appeals Court Says E.P.A. Cannot Block Billions in Climate Grants**\
-`The funds have been frozen since early in President Trump’s second term.`\
-https://www.nytimes.com/2026/08/04/climate/epa-climate-grants-appeals-court.html
 
 **Primary Elections Live Updates: Counting Underway in Michigan After Divisive Senate Battle**\
 `The state’s Democratic Senate primary pitted Dr. Abdul El-Sayed, a progressive, against Representative Haley Stevens. Kansas, Missouri, Virginia and Washington are also voting today.`\
