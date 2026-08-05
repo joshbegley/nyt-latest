@@ -1,3 +1,11 @@
+**What Michigan Voters Are Seeking in Democratic Senate Primary**\
+`Voters outside Michigan polling stations shared their concerns about health care, employment and affordability in the Senate’s Democratic primary.`\
+https://www.nytimes.com/video/us/elections/100000011069600/michigan-senate-primary-voters-democrat.html
+
+**NYT Crossword Answers for Aug. 5, 2026**\
+`Daniel Bodily’s crossword splits the difference.`\
+https://www.nytimes.com/2026/08/04/crosswords/daily-puzzle-2026-08-05.html
+
 **Arizona’s Democratic Governor Set to Pick a Republican Running Mate**\
 `Gov. Katie Hobbs, locked in a competitive re-election battle, plans to tap a moderate former mayor of Mesa, Ariz., John Giles, to serve as her lieutenant governor if she wins in November.`\
 https://www.nytimes.com/2026/08/04/us/elections/arizona-governor-running-mate.html
@@ -169,14 +177,6 @@ https://www.nytimes.com/2026/08/04/climate/epa-climate-grants-appeals-court.html
 **When A.I. Goes Rogue**\
 `It was the stuff of science fiction — until recently.`\
 https://www.nytimes.com/2026/08/04/world/rogue-ai-agents-cybersecurity-uber.html
-
-**Judge Sets Paramount-Warner Bros. Merger Trial for March**\
-`Paramount, which struck a $111 billion deal to acquire Warner Bros., had requested a November trial for an antitrust lawsuit brought by state attorneys general.`\
-https://www.nytimes.com/2026/08/04/business/media/paramount-warner-bros-trial-march.html
-
-**Inside the Oval Office Showdown Between Trump and Jeanine Pirro**\
-`Jeanine Pirro, the U.S. attorney for the District of Columbia, told President Trump that his interior secretary, Doug Burgum, had misled him with a self-serving cover story for his own mistakes.`\
-https://www.nytimes.com/2026/08/04/us/politics/trump-jeanine-pirro-showdown.html
 
 **Primary Elections Live Updates: Counting Underway in Michigan After Divisive Senate Battle**\
 `The state’s Democratic Senate primary pitted Dr. Abdul El-Sayed, a progressive, against Representative Haley Stevens. Kansas, Missouri, Virginia and Washington are also voting today.`\
