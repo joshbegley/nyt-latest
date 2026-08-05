@@ -1,3 +1,7 @@
+**Fauci Faces Contempt Vote. Here Are the Legal Issues Involved.**\
+`Dr. Fauci invoked his Constitutional right under the Fifth Amendment in refusing to answer questions from a Senate committee. Republicans say he is ineligible for that protection.`\
+https://www.nytimes.com/2026/08/05/us/politics/fauci-contempt-vote-congress.html
+
 **El influencer César Gastélum es asesinado en Culiacán cuando transmitía en vivo**\
 `César Gastélum estaba llevando a cabo un desafío de redes sociales afuera de un KFC en Culiacán cuando fue abatido.`\
 https://www.nytimes.com/es/2026/08/05/espanol/america-latina/cesar-gastelum-influencer-culiacan.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/05/us/kansas-missouri-ballot-measures-abortion.h
 **Google Names Demis Hassabis to New AI Role in a Leadership Shake-up**\
 `Minutes after four top researchers said they were leaving, Google said that Demis Hassabis, the Nobel-winning scientist who led the company’s A.I. lab, was stepping into a new job.`\
 https://www.nytimes.com/2026/08/05/technology/google-ai-leadership.html
-
-**Windy Weather Could Worsen Pacific Northwest Fires**\
-`Forecasters expect winds to pick up in eastern Washington and Oregon on Friday and Saturday, but not to be as strong as last weekend’s were.`\
-https://www.nytimes.com/2026/08/05/weather/pacific-northwest-fires-could-worsen-with-more-wind.html
 

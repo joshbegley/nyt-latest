@@ -1,3 +1,7 @@
+**El influencer César Gastélum es asesinado en Culiacán cuando transmitía en vivo**\
+`César Gastélum estaba llevando a cabo un desafío de redes sociales afuera de un KFC en Culiacán cuando fue abatido.`\
+https://www.nytimes.com/es/2026/08/05/espanol/america-latina/cesar-gastelum-influencer-culiacan.html
+
 **C.I.A. Sets Up Secret Cuba Task Force as Trump Pressures Havana**\
 `The task force will allow the spy agency to quickly direct more financial, human and technical resources at the island, with the goal of creating fissures among the Cuban political elite.`\
 https://www.nytimes.com/2026/08/05/us/politics/cia-cuba-task-force.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/05/technology/google-ai-leadership.html
 **Windy Weather Could Worsen Pacific Northwest Fires**\
 `Forecasters expect winds to pick up in eastern Washington and Oregon on Friday and Saturday, but not to be as strong as last weekend’s were.`\
 https://www.nytimes.com/2026/08/05/weather/pacific-northwest-fires-could-worsen-with-more-wind.html
-
-**Los nuevos controles de pasaportes causan caos a los viajeros en Europa**\
-`El sistema biométrico para ciudadanos que no son de la UE está causando extensas demoras en los aeropuertos. Las autoridades dicen que el accidentado lanzamiento mejorará y aumentará la seguridad.`\
-https://www.nytimes.com/es/2026/08/05/espanol/mundo/control-pasaportes-largas-filas-europa.html
 
