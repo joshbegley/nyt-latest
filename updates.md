@@ -1,3 +1,7 @@
+**Disney Theme Parks Report Strong Results, While Comcast’s Universal Parks Dip**\
+`Theme parks have long been seen as a bellwether for consumer confidence. Disney’s domestic parks and cruises revenue rose 11 percent in the latest quarter.`\
+https://www.nytimes.com/2026/08/05/business/media/disney-parks-universal.html
+
 **Primary Elections Live Updates: Race Too Close to Call in Democratic Primary for Michigan Senate Seat**\
 `Dr. Abdul El-Sayed, a progressive, holds a narrow lead over Representative Haley Stevens, a centrist, as counting continues. Kansas, Missouri, Virginia and Washington also voted.`\
 https://www.nytimes.com/live/2026/08/05/us/michigan-election-results-primary
