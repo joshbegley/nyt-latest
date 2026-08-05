@@ -1,3 +1,7 @@
+**Lawmaker Who Wants Data Center Pause Wins Kansas Democratic Primary**\
+`In a race to be governor of Kansas, State Senator Cindy Holscher defeated a fellow Democratic lawmaker who was endorsed by the current governor, Laura Kelly.`\
+https://www.nytimes.com/2026/08/04/us/elections/kansas-democratic-primary-governor.html
+
 **What Michigan Voters Are Seeking in Democratic Senate Primary**\
 `Voters outside Michigan polling stations shared their concerns about health care, employment and affordability in the Senate’s Democratic primary.`\
 https://www.nytimes.com/video/us/elections/100000011069600/michigan-senate-primary-voters-democrat.html
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/08/04/style/tony-movie-anthony-bourdain-restaurant-
 **Appeals Court Says E.P.A. Cannot Block Billions in Climate Grants**\
 `The funds have been frozen since early in President Trump’s second term.`\
 https://www.nytimes.com/2026/08/04/climate/epa-climate-grants-appeals-court.html
-
-**When A.I. Goes Rogue**\
-`It was the stuff of science fiction — until recently.`\
-https://www.nytimes.com/2026/08/04/world/rogue-ai-agents-cybersecurity-uber.html
 
 **Primary Elections Live Updates: Counting Underway in Michigan After Divisive Senate Battle**\
 `The state’s Democratic Senate primary pitted Dr. Abdul El-Sayed, a progressive, against Representative Haley Stevens. Kansas, Missouri, Virginia and Washington are also voting today.`\
