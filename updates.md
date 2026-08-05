@@ -1,3 +1,7 @@
+**‘The Shards’ and ‘Sterling Point’ Offer Class Struggle as Teen Drama**\
+`“The Shards” and “Sterling Point” offer different angles on that most status-conscious of genres, the teen drama.`\
+https://www.nytimes.com/2026/08/05/arts/television/the-shards-sterling-point-teen-dramas.html
+
 **The New York Times’s Revenue Rises 11%**\
 `The company said it added 280,000 digital subscribers in the second quarter.`\
 https://www.nytimes.com/2026/08/05/business/media/new-york-times-earnings-q2.html

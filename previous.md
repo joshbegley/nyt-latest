@@ -126,7 +126,7 @@ https://www.nytimes.com/2026/08/05/crosswords/connections-questions.html
 `Mixing and matching wood tones is no easy task. Here’s how to think about it.`\
 https://www.nytimes.com/2026/08/05/realestate/which-wood-goes-best-with-my-hardwood-floors.html
 
-**“The Shards” and “Sterling Point” Offer Class Struggle as Teen Drama**\
+**‘The Shards’ and ‘Sterling Point’ Offer Class Struggle as Teen Drama**\
 `“The Shards” and “Sterling Point” offer different angles on that most status-conscious of genres, the teen drama.`\
 https://www.nytimes.com/2026/08/05/arts/television/the-shards-sterling-point-teen-dramas.html
 
