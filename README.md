@@ -1,3 +1,11 @@
+**The New York Times’ Revenue Rises 11%**\
+`The company said it added 280,000 digital subscribers in the second quarter.`\
+https://www.nytimes.com/2026/08/05/business/media/new-york-times-earnings-q2.html
+
+**Rep. Chuck Edwards Drops Re-election Bid in North Carolina After Ethics Rebuke**\
+`Chuck Edwards made the announcement shortly after the House Ethics Committee had recommended he be censured for “persistent unprofessional and inappropriate conduct towards two young female staffers.”`\
+https://www.nytimes.com/2026/08/05/us/politics/chuck-edwards-north-carolina.html
+
 **A Nail-Biter in Michigan**\
 `We’re watching the Democratic Senate primary.`\
 https://www.nytimes.com/2026/08/05/briefing/michigan-democrat-senate-primary.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/05/nyregion/new-school-faculty-fired-nyc.html
 **NYT Spelling Bee Answers for August 5, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/08/05/crosswords/spelling-bee-forum.html
-
-**‘Los perros tienen superpoderes y secretos’, dice Paul Yoon, autor de ‘Etna’**\
-`Impulsado por un vínculo profundo con su perro, Paul Yoon escribió ‘Etna’, un libro ambientado en tiempos de guerra y contado desde la perspectiva de un animal.`\
-https://www.nytimes.com/es/2026/08/05/espanol/cultura/etna-libro-paul-yoon.html
-
-**La frustración de Trump choca con el enigma del poder en Irán**\
-`A pesar de la fuerza militar, las sanciones y la urgencia política, el presidente no ha logrado traducir su enfoque en un acuerdo que cambie la relación con Teherán.`\
-https://www.nytimes.com/es/2026/08/05/espanol/estados-unidos/trump-guerra-iran.html
 
