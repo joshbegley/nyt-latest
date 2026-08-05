@@ -18,7 +18,7 @@ https://www.nytimes.com/es/2026/08/05/espanol/estilos-de-vida/labores-domesticas
 `Voters in Kansas rejected a proposal to start electing Supreme Court justices, while Missourians declined to make it harder to amend the State Constitution.`\
 https://www.nytimes.com/2026/08/05/us/kansas-missouri-ballot-measures-abortion.html
 
-**Google Shakes Up A.I. Leadership**\
+**Google Names Demis Hassabis to New AI Role in a Leadership Shake-up**\
 `Minutes after four top researchers said they were leaving, Google said that Demis Hassabis, the Nobel-winning scientist who led the company’s A.I. lab, was stepping into a new job.`\
 https://www.nytimes.com/2026/08/05/technology/google-ai-leadership.html
 
