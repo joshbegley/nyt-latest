@@ -1,3 +1,15 @@
+**The New York Times’ Revenue Rises 11%**\
+`The company said it added 280,000 digital subscribers in the second quarter.`\
+https://www.nytimes.com/2026/08/05/business/media/new-york-times-earnings-q2.html
+
+**Rep. Chuck Edwards Drops Re-election Bid in North Carolina After Ethics Rebuke**\
+`Chuck Edwards made the announcement shortly after the House Ethics Committee had recommended he be censured for “persistent unprofessional and inappropriate conduct towards two young female staffers.”`\
+https://www.nytimes.com/2026/08/05/us/politics/chuck-edwards-north-carolina.html
+
+**Migrant Crisis Reveals Vast Differences Between Ceuta and Its Moroccan Neighbor**\
+`Ceuta, Spain, and Fnideq, Morocco, are physically separated by only a mile, but they are intertwined by family and trade. A recent border crisis is the latest chapter in their story.`\
+https://www.nytimes.com/2026/08/05/world/europe/ceuta-spain-fnideq-morocco-migration.html
+
 **A Nail-Biter in Michigan**\
 `We’re watching the Democratic Senate primary.`\
 https://www.nytimes.com/2026/08/05/briefing/michigan-democrat-senate-primary.html
