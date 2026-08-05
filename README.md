@@ -1,3 +1,7 @@
+**Record-Breaking Heat Wave in South Korea Leads to Canceled Baseball Games**\
+`The country has been gripped by a record-setting heat wave that endangered both players and spectators.`\
+https://www.nytimes.com/2026/08/05/world/asia/south-korea-baseball-heat-wave.html
+
 **The New York Times’ Revenue Rises 11%**\
 `The company said it added 280,000 digital subscribers in the second quarter.`\
 https://www.nytimes.com/2026/08/05/business/media/new-york-times-earnings-q2.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/05/pageoneplus/how-to-approach-an-interview-with
 **He Had Tenure. The New School Laid Him Off Anyway.**\
 `The professor, a longtime critic of the university, was among 19 educators who lost their positions as the institution navigated financial woes.`\
 https://www.nytimes.com/2026/08/05/nyregion/new-school-faculty-fired-nyc.html
-
-**NYT Spelling Bee Answers for August 5, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/08/05/crosswords/spelling-bee-forum.html
 
