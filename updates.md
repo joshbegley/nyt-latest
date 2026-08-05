@@ -1,3 +1,7 @@
+**Pope Leo Will Visit Peru, Where He Lived for Years, in November**\
+`The trip, which will also include Uruguay and Argentina, will be a homecoming of sorts for the American pontiff.`\
+https://www.nytimes.com/2026/08/05/world/americas/pope-leo-peru-uruguay-argentina.html
+
 **The Winners of Trump’s A.I. Safety Plan**\
 `The Trump administration’s new safety review guidelines appear to exempt Chinese artificial intelligence models. OpenAI’s and Anthropic’s aren’t.`\
 https://www.nytimes.com/2026/08/05/business/dealbook/winners-trump-ai-policy.html

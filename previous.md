@@ -1,3 +1,7 @@
+**Pope Leo Will Visit Peru, Where He Lived for Years, in November**\
+`The trip, which will also include Uruguay and Argentina, will be a homecoming of sorts for the American pontiff.`\
+https://www.nytimes.com/2026/08/05/world/americas/pope-leo-peru-uruguay-argentina.html
+
 **The Winners of Trump’s A.I. Safety Plan**\
 `The Trump administration’s new safety review guidelines appear to exempt Chinese artificial intelligence models. OpenAI’s and Anthropic’s aren’t.`\
 https://www.nytimes.com/2026/08/05/business/dealbook/winners-trump-ai-policy.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/05/world/europe/ukraine-war-kyiv-russia-missile-
 **Primary Elections Live Updates: Race Too Close to Call in Democratic Primary for Michigan Senate Seat**\
 `Dr. Abdul El-Sayed, a progressive, holds a narrow lead over Representative Haley Stevens, a centrist, in a race that divided Democrats. The party sees the seat as key to its hopes of winning control of the chamber.`\
 https://www.nytimes.com/live/2026/08/05/us/michigan-election-results-primary
-
-**Lo que algunas ciudades pierden cuando las personas dejan el alcohol**\
-`Sí, reducir el consumo tiene muchos beneficios. Pero los bares están cerrando. Los empleos están desapareciendo. Y una forma de estar juntos puede sentirse más difícil de encontrar.`\
-https://www.nytimes.com/es/2026/08/05/espanol/consumo-alcohol-restaurantes-bares.html
 
