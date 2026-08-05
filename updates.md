@@ -1,3 +1,7 @@
+**Primary Elections Live Updates: Race Too Close to Call in Democratic Primary for Michigan Senate Seat**\
+`The race between Dr. Abdul El-Sayed, a progressive, and Representative Haley Stevens, a centrist, had not been called as of 3:30 a.m. Wednesday. Kansas, Missouri, Virginia and Washington also voted.`\
+https://www.nytimes.com/live/2026/08/05/us/michigan-election-results-primary
+
 **Race Too Close to Call in Democratic Primary for Michigan Senate Seat**\
 `Dr. Abdul El-Sayed, a progressive, and Representative Haley Stevens, a centrist, both gave speeches with the winner still undeclared. Kansas, Missouri, Virginia and Washington also voted.`\
 https://www.nytimes.com/live/2026/08/04/us/midterms-elections-michigan-virginia

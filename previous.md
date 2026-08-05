@@ -1,3 +1,7 @@
+**Primary Elections Live Updates: Race Too Close to Call in Democratic Primary for Michigan Senate Seat**\
+`The race between Dr. Abdul El-Sayed, a progressive, and Representative Haley Stevens, a centrist, had not been called as of 3:30 a.m. Wednesday. Kansas, Missouri, Virginia and Washington also voted.`\
+https://www.nytimes.com/live/2026/08/05/us/michigan-election-results-primary
+
 **Lo que algunas ciudades pierden cuando las personas dejan el alcohol**\
 `Sí, reducir el consumo tiene muchos beneficios. Pero los bares están cerrando. Los empleos están desapareciendo. Y una forma de estar juntos puede sentirse más difícil de encontrar.`\
 https://www.nytimes.com/es/2026/08/05/espanol/consumo-alcohol-restaurantes-bares.html
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/08/04/technology/white-house-ai-framework.html
 **It’s Primary Night in Michigan and Four Other States**\
 `Plus, an arrest in the Spokane wildfires. Here’s the latest at the end of Tuesday.`\
 https://www.nytimes.com/2026/08/04/briefing/michigan-primary-spokane.html
-
-**Missouri Says Voters Cannot Decide on Redrawn Congressional Districts**\
-`Opponents of the new map, which was redrawn to benefit Republicans, had gathered signatures seeking a statewide vote. The issue could now move to the courts.`\
-https://www.nytimes.com/2026/08/04/us/missouri-redistricting-referendum-result.html
 
 **Race Too Close to Call in Democratic Primary for Michigan Senate Seat**\
 `Dr. Abdul El-Sayed, a progressive, and Representative Haley Stevens, a centrist, both gave speeches with the winner still undeclared. Kansas, Missouri, Virginia and Washington also voted.`\
