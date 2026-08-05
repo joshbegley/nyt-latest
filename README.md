@@ -2,7 +2,7 @@
 `The state’s conservative Legislature had put the measure on the ballot that would have enacted citizen initiatives only if they won majorities in each of Missouri’s eight U.S. House districts.`\
 https://www.nytimes.com/2026/08/04/us/elections/missouri-citizen-led-constitutional-amendments.html
 
-**Kansas Rejects Measure to Elect Its State Supreme Court Justices**\
+**Kansas Voters Crush a Measure to Elect Supreme Court Judges**\
 `The rejection of a measure to begin electing justices was a victory for abortion rights groups who defended the Kansas high court’s ruling that abortion was protected in the state constitution.`\
 https://www.nytimes.com/2026/08/04/us/elections/kansas-judicial-referendum-supreme-court.html
 
