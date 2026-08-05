@@ -1,4 +1,4 @@
-**Lawmaker Who Wants Data Center Pause Wins Kansas Democratic Primary**\
+**Cindy Holscher Wins Kansas Democratic Primary for Governor**\
 `In a race to be governor of Kansas, State Senator Cindy Holscher defeated a fellow Democratic lawmaker who was endorsed by the current governor, Laura Kelly.`\
 https://www.nytimes.com/2026/08/04/us/elections/kansas-democratic-primary-governor.html
 

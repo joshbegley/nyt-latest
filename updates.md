@@ -1,3 +1,7 @@
+**Lawmaker Who Wants Data Center Pause Wins Kansas Democratic Primary**\
+`In a race to be governor of Kansas, State Senator Cindy Holscher defeated a fellow Democratic lawmaker who was endorsed by the current governor, Laura Kelly.`\
+https://www.nytimes.com/2026/08/04/us/elections/kansas-democratic-primary-governor.html
+
 **What Michigan Voters Are Seeking in Democratic Senate Primary**\
 `Voters outside Michigan polling stations shared their concerns about health care, employment and affordability in the Senate’s Democratic primary.`\
 https://www.nytimes.com/video/us/elections/100000011069600/michigan-senate-primary-voters-democrat.html
