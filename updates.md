@@ -1,3 +1,11 @@
+**The Best Movies and TV Shows Coming to Netflix in August**\
+`The second season of “One Hundred Years of Solitude” and the documentary “A Child of My Own” are among the most promising titles.`\
+https://www.nytimes.com/2026/08/05/arts/television/netflix-new-august.html
+
+**Record-Breaking Heat Wave in South Korea Leads to Canceled Baseball Games**\
+`The country has been gripped by a record-setting heat wave that endangered both players and spectators.`\
+https://www.nytimes.com/2026/08/05/world/asia/south-korea-baseball-heat-wave.html
+
 **Primary Elections Live Updates: Race Too Close to Call in Democratic Primary for Michigan Senate Seat**\
 `Dr. Abdul El-Sayed, a progressive, holds a narrow lead over Representative Haley Stevens, a centrist, in a race that divided Democrats. The party sees the seat as key to its hopes of winning control of the chamber.`\
 https://www.nytimes.com/live/2026/08/05/us/michigan-election-results-primary

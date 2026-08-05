@@ -1,3 +1,11 @@
+**The Best Movies and TV Shows Coming to Netflix in August**\
+`The second season of “One Hundred Years of Solitude” and the documentary “A Child of My Own” are among the most promising titles.`\
+https://www.nytimes.com/2026/08/05/arts/television/netflix-new-august.html
+
+**Record-Breaking Heat Wave in South Korea Leads to Canceled Baseball Games**\
+`The country has been gripped by a record-setting heat wave that endangered both players and spectators.`\
+https://www.nytimes.com/2026/08/05/world/asia/south-korea-baseball-heat-wave.html
+
 **The New York Times’ Revenue Rises 11%**\
 `The company said it added 280,000 digital subscribers in the second quarter.`\
 https://www.nytimes.com/2026/08/05/business/media/new-york-times-earnings-q2.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/es/2026/08/05/espanol/estados-unidos/trump-estanque-linc
 **How to Approach an Interview With Mark Zuckerberg**\
 `When tech executives call a reporter, they usually have a point to make. The job is to listen, but also push and prod, Mike Isaac says.`\
 https://www.nytimes.com/2026/08/05/pageoneplus/how-to-approach-an-interview-with-mark-zuckerberg.html
-
-**He Had Tenure. The New School Laid Him Off Anyway.**\
-`The professor, a longtime critic of the university, was among 19 educators who lost their positions as the institution navigated financial woes.`\
-https://www.nytimes.com/2026/08/05/nyregion/new-school-faculty-fired-nyc.html
-
-**NYT Spelling Bee Answers for August 5, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/08/05/crosswords/spelling-bee-forum.html
 
