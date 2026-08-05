@@ -1,3 +1,19 @@
+**Shawarma-Spiced Grilled Chicken; Tapenade Pasta Salad; Broiled Peaches With Feta**\
+`There are roughly 7 weeks of summer left. Cook accordingly.`\
+https://www.nytimes.com/2026/08/05/dining/shawarma-spiced-grilled-chicken-tapenade-pasta-salad-broiled-peaches-with-feta.html
+
+**Could U.S. Water Systems Be a New Front in the Iran War?**\
+`Dozens of U.S. water systems have been the targets of cyberattacks in the past week. Our reporter Dustin Volz explains how Iranian hackers are suspected, and how President Trump has cast blame elsewhere.`\
+https://www.nytimes.com/video/us/100000011070404/could-us-water-systems-be-a-new-front-in-the-iran-war.html
+
+**‘That Didn’t Age Well’**\
+`Looney Tunes hasn’t aged well. Neither has “The West Wing.” And that’s OK, the Times Opinion columnist Carlos Lozada says. He argues we shouldn’t just dismiss art that doesn’t fit the moment. Instead, we should learn from it.`\
+https://www.nytimes.com/video/opinion/100000011069719/that-didnt-age-well.html
+
+**Muslim Americans Celebrate Abdul El-Sayed’s Win in Michigan Primary**\
+`Muslim voters from across the country said they felt hope and anxiety as Dr. El-Sayed moved closer to becoming the nation’s first Muslim senator.`\
+https://www.nytimes.com/2026/08/05/us/elections/muslim-reaction-el-sayed-victory.html
+
 **Will A.I. Create a ‘Permanent Underclass’?**\
 `The writer Jasmine Sun joins the Opinion columnist Ezra Klein to discuss whether A.I. will create a permanent economic underclass or if the complexity of human jobs will resist total automation.`\
 https://www.nytimes.com/video/opinion/100000011047941/will-ai-create-a-permanent-underclass.html

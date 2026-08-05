@@ -1,3 +1,11 @@
+**Trump Seeks a Boost for Hemp That Would Benefit a Top Aide’s Family**\
+`At the White House’s request, senators tucked a change sought by the hemp industry into a crucial spending bill. It would benefit the son-in-law of Susie Wiles, the president’s chief of staff.`\
+https://www.nytimes.com/2026/08/05/us/politics/trump-wiles-hemp-white-house.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011074754/05vid-el-sayed-haley-stevens-sot.html
+
 **Shawarma-Spiced Grilled Chicken; Tapenade Pasta Salad; Broiled Peaches With Feta**\
 `There are roughly 7 weeks of summer left. Cook accordingly.`\
 https://www.nytimes.com/2026/08/05/dining/shawarma-spiced-grilled-chicken-tapenade-pasta-salad-broiled-peaches-with-feta.html
@@ -185,16 +193,4 @@ https://www.nytimes.com/2026/08/05/us/elections/tennessee-primary-democrats.html
 **Tell us Your Connections Tips, Strategies and Questions**\
 `We’re also looking to find out what questions solvers have about the game.`\
 https://www.nytimes.com/2026/08/05/crosswords/connections-questions.html
-
-**Which Wood Goes Best With My Hardwood Floors?**\
-`Mixing and matching wood tones is no easy task. Here’s how to think about it.`\
-https://www.nytimes.com/2026/08/05/realestate/which-wood-goes-best-with-my-hardwood-floors.html
-
-**‘The Shards’ and ‘Sterling Point’ Offer Class Struggle as Teen Drama**\
-`“The Shards” and “Sterling Point” offer different angles on that most status-conscious of genres, the teen drama.`\
-https://www.nytimes.com/2026/08/05/arts/television/the-shards-sterling-point-teen-dramas.html
-
-**Lobga Rangzen, the Tibetan Activist Who Set Himself on Fire in Manhattan**\
-`No one doubted the intensity of Lobga Rangzen’s commitment to a Tibet free of Chinese control. But they were not prepared for what he did next.`\
-https://www.nytimes.com/2026/08/05/world/asia/lobga-rangzen-united-nations-tibet-china.html
 
