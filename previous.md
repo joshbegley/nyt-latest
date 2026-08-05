@@ -1,3 +1,7 @@
+**Will A.I. Create a ‘Permanent Underclass’?**\
+`The writer Jasmine Sun joins the Opinion columnist Ezra Klein to discuss whether A.I. will create a permanent economic underclass or if the complexity of human jobs will resist total automation.`\
+https://www.nytimes.com/video/opinion/100000011047941/will-ai-create-a-permanent-underclass.html
+
 **What Is A.I. Populism?**\
 `Is public backlash to artificial intelligence really about the technology, or is it a resistance to Silicon Valley elites forcing their vision on society? The writer Jasmine Sun joins “The Ezra Klein Show” to discuss the rise of A.I. populism.`\
 https://www.nytimes.com/video/opinion/100000011047934/what-is-ai-populism.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/05/arts/television/ted-lasso-richmond-locations.
 **Word of the Day: encomium**\
 `This word has appeared in 40 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/08/05/learning/word-of-the-day-encomium.html
-
-**The U.S. Relies on Family Caregivers. Millions of Them Are Kids.**\
-`The modern health care system requires the work of caregiving to fall to whoever else lives in a household — even if they’re kids.`\
-https://www.nytimes.com/2026/08/05/magazine/child-family-caregivers-aacy.html
 

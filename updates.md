@@ -1,3 +1,7 @@
+**Will A.I. Create a ‘Permanent Underclass’?**\
+`The writer Jasmine Sun joins the Opinion columnist Ezra Klein to discuss whether A.I. will create a permanent economic underclass or if the complexity of human jobs will resist total automation.`\
+https://www.nytimes.com/video/opinion/100000011047941/will-ai-create-a-permanent-underclass.html
+
 **What Is A.I. Populism?**\
 `Is public backlash to artificial intelligence really about the technology, or is it a resistance to Silicon Valley elites forcing their vision on society? The writer Jasmine Sun joins “The Ezra Klein Show” to discuss the rise of A.I. populism.`\
 https://www.nytimes.com/video/opinion/100000011047934/what-is-ai-populism.html
