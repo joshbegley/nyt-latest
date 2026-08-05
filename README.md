@@ -134,7 +134,7 @@ https://www.nytimes.com/video/arts/100000011044524/listening-to-new-york-city.ht
 `Here’s how to differentiate between common types of pain and what experts recommend for managing them.`\
 https://www.nytimes.com/2026/08/05/well/move/knee-pain-causes-treatments.html
 
-**A Bucolic London Suburb Feels the ‘Ted Lasso’ Effect**\
+**‘Ted Lasso’ Draws Fans to Richmond, a Bucolic London Suburb**\
 `Fans of the warmhearted Apple TV show flock to Richmond-upon-Thames, which has long been a destination for visitors and film location scouts.`\
 https://www.nytimes.com/2026/08/05/arts/television/ted-lasso-richmond-locations.html
 
