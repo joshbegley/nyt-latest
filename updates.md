@@ -1,3 +1,19 @@
+**Where El-Sayed Showed Strengths, and Weaknesses, in the Michigan Primary**\
+`Dr. Abdul El-Sayed had a strong showing in college towns, while Representative Haley Stevens did well in Black urban centers.`\
+https://www.nytimes.com/2026/08/05/us/politics/michigan-primary-election-results-what-next.html
+
+**Abdul El-Sayed’s Winning New Political Uniform**\
+`Could the black T-shirt and jeans be the next big thing in Washington?`\
+https://www.nytimes.com/2026/08/05/style/abdul-el-sayed-fashion.html
+
+**El-Sayed Got a Big Win for the Left. Can It Win Like This Nationally?**\
+`It’s a victory for the new activist left, but it’s built on a coalition that may be too narrow to thrive among Democrats in other areas, particularly the South.`\
+https://www.nytimes.com/2026/08/05/upshot/democrats-michigan-progressives-left.html
+
+**Have We Turned Personality Into Diagnosis?**\
+`We’ve reached peak self-diagnosis culture.`\
+https://www.nytimes.com/video/opinion/100000011064628/always-late-tiktok-thinks-you-have-adhd.html
+
 **Cost of Trump’s Namesake Warships Likely to Rise by 50 Percent or More**\
 `President Trump’s goal of building a “golden fleet” of 15 battleships could cost $275 billion, according to a government estimate`\
 https://www.nytimes.com/2026/08/05/us/politics/trump-namesake-warships-cost-increase.html
