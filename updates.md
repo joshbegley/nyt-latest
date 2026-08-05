@@ -1,3 +1,11 @@
+**¿Qué le pasó a Perez Hilton?**\
+`Las fuerzas del orden y el personal de emergencia acudieron a la casa de Hilton después de que pareciera hacerse daño en una transmisión de TikTok el martes.`\
+https://www.nytimes.com/es/2026/08/05/espanol/estados-unidos/perez-hilton-tiktok-hospital.html
+
+**Who Is Ahead in Florida's 11th Congressional District?**\
+`Track the latest polls in Florida's 11th Congressional District.`\
+https://www.nytimes.com/interactive/polls/florida-us-house-11-polls-2026.html
+
 **On ICE and a T. Rex Fossil: The Winners of Week 7 of Our Summer Reading Contest**\
 `Cristina Ramirez writes about her father and the American dream, while Griffin Gallo reacts via video to the news that a dinosaur skeleton was sold to a private buyer rather than a museum or university.`\
 https://www.nytimes.com/2026/08/05/learning/on-ice-and-a-t-rex-fossil-the-winners-of-week-7-of-our-summer-reading-contest.html
