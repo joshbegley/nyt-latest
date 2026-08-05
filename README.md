@@ -1,3 +1,11 @@
+**Shri Thanedar Is Ousted by a Democratic Socialist in a Michigan House Primary**\
+`Representative Shri Thanedar is among a wave of Democratic incumbents in Congress whom primary voters have sent packing in a surge of anti-incumbent fervor this cycle.`\
+https://www.nytimes.com/2026/08/05/us/politics/michigan-house-primary-mckinney-thanedar.html
+
+**Tiny Love Stories: ‘My Strange Shame’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/08/05/style/tiny-modern-love-stories-my-strange-shame.html
+
 **El papa León visitará Perú en noviembre**\
 `El viaje, que también incluirá a Uruguay y Argentina, será una especie de regreso a casa para el pontífice estadounidense.`\
 https://www.nytimes.com/es/2026/08/05/espanol/mundo/papa-leon-visita-peru.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/05/us/avenal-california-recall-election-dispute.
 **Development Comes for a Florida Hub of Elite Equestrian Activity**\
 `Wellington, Fla., has long been a town for equestrians, and with a spate of new development, it’s leaning in even more.`\
 https://www.nytimes.com/2026/08/05/realestate/wellington-florida-development-equestrians.html
-
-**Trump’s Push for More A.I. Data Centers Will Mean Major Air Pollution**\
-`(No description)`\
-https://www.nytimes.com/2026/08/05/climate/data-centers-pollution-trump-ai-energy.html
-
-**Does Your Relationship Need a ‘Mental Load’ Coach?**\
-`Zach Watson, a self-described “recovering man-child,” advises other men about how to take on their fair share of household labor.`\
-https://www.nytimes.com/2026/08/05/well/family/relationship-coach-mental-load-chores.html
 

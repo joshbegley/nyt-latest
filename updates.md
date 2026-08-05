@@ -1,3 +1,15 @@
+**El papa León visitará Perú en noviembre**\
+`El viaje, que también incluirá a Uruguay y Argentina, será una especie de regreso a casa para el pontífice estadounidense.`\
+https://www.nytimes.com/es/2026/08/05/espanol/mundo/papa-leon-visita-peru.html
+
+**Abdul El-Sayed Wins Democratic Senate Primary in Michigan in a Victory for the Left**\
+`Dr. El-Sayed, a progressive former public health official, narrowly defeated Representative Haley Stevens, a moderate, in a bitter primary dominated by the politics of Israel.`\
+https://www.nytimes.com/2026/08/05/us/politics/el-sayed-stevens-michigan-democratic-senate-primary.html
+
+**Groceries Are Expensive. Here’s How 5 Shoppers Are Adjusting.**\
+`Two years ago, we collected receipts from people across the U.S. We thought now would be a good time to look at their spending again.`\
+https://www.nytimes.com/interactive/2026/08/05/dining/grocery-prices-shoppers.html
+
 **Israel Strikes Lebanon After Accusing Hezbollah of Cease-Fire Violation**\
 `At the same time, Israeli and Lebanese negotiators were holding talks in Rome aimed at fostering a long-term diplomatic settlement.`\
 https://www.nytimes.com/2026/08/05/world/middleeast/israel-lebanon-hezbollah-cease-fire.html
