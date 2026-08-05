@@ -1,3 +1,11 @@
+**The Quest to Extend Human Life**\
+`Why life expectancy is at the heart of the idea of progress.`\
+https://www.nytimes.com/2026/08/05/headway/life-expectancy-united-states.html
+
+**New Mexico Sues Trump Administration for Unredacted Epstein Files in Zorro Ranch Investigation**\
+`The Zorro Ranch outside Santa Fe, where Epstein victims said they were abused, is at the center of an ongoing feud between the state and federal government.`\
+https://www.nytimes.com/2026/08/05/us/epstein-files-new-mexico-trump-zorro-ranch.html
+
 **¿Qué le pasó a Perez Hilton?**\
 `Las fuerzas del orden y el personal de emergencia acudieron a la casa de Hilton después de que pareciera hacerse daño en una transmisión de TikTok el martes.`\
 https://www.nytimes.com/es/2026/08/05/espanol/estados-unidos/perez-hilton-tiktok-hospital.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/08/05/world/europe/ceuta-spain-fnideq-morocco-migra
 **Disney+ Cracks Open the Door to TikTok Creator Videos**\
 `Disney said it would allow “thoughtfully curated” fan-created videos, using clips from its library, to appear on the streaming service.`\
 https://www.nytimes.com/2026/08/05/business/media/disney-tiktok-videos.html
-
-**Arizona’s Food Stamp Crisis Is Coming for the Rest of the U.S.**\
-`The number of people who receive nutrition assistance in Arizona has dropped significantly in a matter of months.`\
-https://www.nytimes.com/2026/08/05/podcasts/the-daily/arizona-food-stamp-snap.html
-
-**A Growing Data Center Pollution Threat, and the Last of the Jan. 6 Cases**\
-`Plus, why veterinarians are learning to handle honeybees.`\
-https://www.nytimes.com/2026/08/05/podcasts/the-headlines/data-center-pollution-threat-last-jan-6-cases-michigan-primary.html
 
