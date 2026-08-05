@@ -1,3 +1,15 @@
+**Un delfín carga a su cría muerta en lo que los expertos llaman duelo**\
+`Las imágenes publicadas por un grupo conservacionista ofrecen un vistazo inusual a un comportamiento común en los delfines que a menudo pasa desapercibido.`\
+https://www.nytimes.com/es/2026/08/05/espanol/delfin-duelo-cria-muerta-video.html
+
+**Quote of the Day: One Lawyer’s Sisyphean Battle to Help Trans Troops Fight Ban**\
+`Quotation of the Day for Wednesday, August 5, 2026.`\
+https://www.nytimes.com/2026/08/05/pageoneplus/quote-of-the-day-one-lawyers-sisyphean-battle-to-help-trans-troops-fight-ban.html
+
+**China’s Nonsmokers Try to Clear the Air, One Confrontation at a Time**\
+`Disputes between smokers and nonsmokers are becoming more visible as a younger generation increasingly refuses to suffer secondhand smoke in silence.`\
+https://www.nytimes.com/2026/08/05/world/asia/china-cigarette-smoking.html
+
 **William Lawrence Wins Primary in Battleground Michigan House District**\
 `William Lawrence defeated two moderate candidates to challenge a vulnerable Republican incumbent, but some worry his views could hurt his chances in November.`\
 https://www.nytimes.com/2026/08/04/us/politics/maasdam-lawrence-michigan-primary.html
