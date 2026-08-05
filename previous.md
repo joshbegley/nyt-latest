@@ -1,3 +1,7 @@
+**What One Witness Saw Moments Before a Fire Started**\
+`A resident of Spokane County, Wash., said he noticed a man acting suspiciously and called 911 after seeing smoke. The police later arrested a suspect tied to one of the wildfires in the area.`\
+https://www.nytimes.com/2026/08/04/us/spokane-fire-arson-suspect-witness.html
+
 **Trump Administration Revokes Visa of Brazil’s Ambassador in the U.S.**\
 `The State Department has canceled the visa of the Brazilian ambassador in Washington, deepening a diplomatic crisis between the two countries.`\
 https://www.nytimes.com/2026/08/04/world/americas/brazil-ambassador-us-visa.html
@@ -173,14 +177,6 @@ https://www.nytimes.com/video/science/100000011072407/honeybee-colony-vet-care-p
 **S&P 500 Hits Record High as Stock Market Worries About Iran and AI Ease**\
 `The S&P 500 rose 1.8 percent, pushing past its previous peak at the start of June and capping a big turnaround from a recent sell off in technology stocks.`\
 https://www.nytimes.com/2026/08/04/business/stock-market-record.html
-
-**Uno de los países más pequeños del mundo cambia su nombre**\
-`Antes llamada Nauru, la isla del Pacífico Sur quiere que su nombre coincida mejor con la forma en que se pronuncia en el idioma que habla su pueblo.`\
-https://www.nytimes.com/es/2026/08/04/espanol/mundo/pais-mas-pequeno-naoreo-nauru.html
-
-**Restaurant Review: Bar Chucho in NYC**\
-`Bar Chucho — from the team behind the Michelin-starred Mexican standout Corima — overachieves but stays true to its purpose. And there’s a great burger at a fair price.`\
-https://www.nytimes.com/2026/08/04/dining/restaurant-review-bar-chucho-nyc.html
 
 **Primary Elections Live Updates: Counting Begins in Michigan After Bitter Senate Battle**\
 `Polls are closed in most of the state, where Dr. Abdul El-Sayed, a progressive, is facing Representative Haley Stevens, a moderate, in the Democratic primary for Senate. Kansas, Missouri, Virginia and Washington are also voting today.`\

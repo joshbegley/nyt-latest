@@ -1,3 +1,7 @@
+**What One Witness Saw Moments Before a Fire Started**\
+`A resident of Spokane County, Wash., said he noticed a man acting suspiciously and called 911 after seeing smoke. The police later arrested a suspect tied to one of the wildfires in the area.`\
+https://www.nytimes.com/2026/08/04/us/spokane-fire-arson-suspect-witness.html
+
 **Trump Administration Revokes Visa of Brazil’s Ambassador in the U.S.**\
 `The State Department has canceled the visa of the Brazilian ambassador in Washington, deepening a diplomatic crisis between the two countries.`\
 https://www.nytimes.com/2026/08/04/world/americas/brazil-ambassador-us-visa.html
