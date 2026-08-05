@@ -1,3 +1,7 @@
+**Star Scholar Jason Arday Resigns From Cambridge**\
+`Jason Arday was hired by the University of Cambridge in 2023 as the youngest Black professor in its history. Doubt has since been cast on his academic qualifications and claims about his life.`\
+https://www.nytimes.com/2026/08/05/books/review/cambridge-jason-arday-resignation-investigation.html
+
 **Explosive Drone Found at German Airport Used by Ukrainian Carrier**\
 `A second drone may have collided with a plane in the air over the airport, damaging the aircraft slightly, the authorities say.`\
 https://www.nytimes.com/2026/08/05/world/europe/germany-explosive-drone-airport.html
