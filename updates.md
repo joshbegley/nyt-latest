@@ -1,3 +1,19 @@
+**Am I Obligated to Tell My Friends How Bad Their Botox Looks?**\
+`They’re increasingly critical of themselves, and I don’t think they realize how extreme it’s become.`\
+https://www.nytimes.com/2026/08/05/magazine/friends-botox-ethics.html
+
+**Four Top Google A.I. Researchers Form New Start-Up**\
+`Jeff Dean, who for years was one of Google’s most important executives, is leading the new artificial intelligence company with the backing of Google.`\
+https://www.nytimes.com/2026/08/05/technology/google-researchers-ai-startup.html
+
+**‘One Night Only’ Review: A 12-Hour Sexual Reprieve**\
+`This dystopian rom-com follows Allie (Monica Barbaro) and Owen (Callum Turner), on their parallel hunts for passion.`\
+https://www.nytimes.com/2026/08/05/movies/one-night-only-review.html
+
+**Suspected Iran Cyberattacks on U.S. Water Supply Follow Years of Warnings and Neglect**\
+`Federal and state officials are racing to address an assault on the nation’s water supply that they believe is the work of Iranian hackers.`\
+https://www.nytimes.com/2026/08/05/us/politics/water-supply-warnings.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000011074808/05vid-el-sayed-join-movement-sot.html
