@@ -22,7 +22,7 @@ https://www.nytimes.com/2026/08/05/arts/television/netflix-new-august.html
 `The country has been gripped by a record-setting heat wave that endangered both players and spectators.`\
 https://www.nytimes.com/2026/08/05/world/asia/south-korea-baseball-heat-wave.html
 
-**The New York Times’ Revenue Rises 11%**\
+**The New York Times’s Revenue Rises 11%**\
 `The company said it added 280,000 digital subscribers in the second quarter.`\
 https://www.nytimes.com/2026/08/05/business/media/new-york-times-earnings-q2.html
 

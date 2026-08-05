@@ -1,3 +1,7 @@
+**The New York Times’s Revenue Rises 11%**\
+`The company said it added 280,000 digital subscribers in the second quarter.`\
+https://www.nytimes.com/2026/08/05/business/media/new-york-times-earnings-q2.html
+
 **Can I Ask My Boyfriend to Straighten and Whiten His Teeth?**\
 `There’s nothing wrong with a reader’s fantastic beau that expensive dental work couldn’t fix. But is actually suggesting it out of the question?`\
 https://www.nytimes.com/2026/08/05/style/romantic-partner-attraction-self-improvement.html
