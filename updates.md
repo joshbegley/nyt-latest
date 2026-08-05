@@ -1,3 +1,11 @@
+**NYT Strands Hints for Aug. 6, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Aug. 6, 2026.`\
+https://www.nytimes.com/2026/08/05/crosswords/strands-sidekick-886.html
+
+**Today’s Wordle Hints for August 6, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Aug. 6, 2026.`\
+https://www.nytimes.com/2026/08/05/crosswords/wordle-review-1874.html
+
 **Primary Elections Live Updates: Race Too Close to Call in Democratic Primary for Michigan Senate Seat**\
 `The race between Dr. Abdul El-Sayed, a progressive, and Representative Haley Stevens, a centrist, had not been called as of 5 a.m. Wednesday. Kansas, Missouri, Virginia and Washington also voted.`\
 https://www.nytimes.com/live/2026/08/05/us/michigan-election-results-primary
