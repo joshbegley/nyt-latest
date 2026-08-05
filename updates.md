@@ -1,3 +1,7 @@
+**El-Sayed’s Win Sets Up the Left’s Biggest Test of the Fall**\
+`Abdul El-Sayed’s Senate candidacy poses a critical challenge for  Democrats’ ascendant progressive wing: Can an insurgent candidate, with unabashedly liberal positions, win a general election in a moderate state?`\
+https://www.nytimes.com/2026/08/05/us/politics/el-sayed-michigan-senate-primary-win.html
+
 **ICE Threatens Sheriffs In Chicago and Minneapolis With Prosecution Over Access to Inmates**\
 `In a new tactic, federal immigration officials recently started saying they would criminally charge the elected county sheriffs in Minneapolis and Chicago.`\
 https://www.nytimes.com/2026/08/05/us/ice-minnesota-sheriff-prosecution.html
