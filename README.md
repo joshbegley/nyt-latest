@@ -19,7 +19,7 @@ https://www.nytimes.com/2026/08/05/nyregion/delaney-hall-ice-what-we-know.html
 https://www.nytimes.com/video/us/politics/100000011074395/el-sayed-michigan-senate-primary-race.html
 
 **Inside the Abdul El-Sayed Watch Party**\
-`Tim Balk joins Natalie Kitroeff on “The Call” from Michigan, where he attended the election night watch party of the Democratic Senate primary candidate Abdul El-Sayed. Mr. Balk spoke to supporters of the progressive Democrat as they waited for results in a closer than expected race.`\
+`Tim Balk joins Natalie Kitroeff on “The Call” from Michigan, where he attended the election night watch party of the Democratic Senate primary candidate Abdul El-Sayed. Mr. Balk spoke to supporters of the progressive Democrat as they waited for results in a closer-than-expected race.`\
 https://www.nytimes.com/video/us/elections/100000011075731/inside-the-abdul-el-sayed-watch-party.html
 
 **Where El-Sayed Showed Strengths, and Weaknesses, in the Michigan Primary**\
