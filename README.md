@@ -1,3 +1,7 @@
+**Watch Live: Abdul El-Sayed Speaks at News Conference**\
+`Dr. Abdul El-Sayed defeated Representative Haley Stevens in the Democratic Michigan Senate primary.`\
+https://www.nytimes.com/video/embedded/us/politics/100000011074634/watch-live-abdul-el-sayed-speaks-at-news-conference.html
+
 **Russian Missile and Drone Attack on Kyiv Kills at Least 17**\
 `President Volodymyr Zelensky of Ukraine urged allies to provide his country with more missile interceptors after Russian missile attacks killed at least 17 people and wounded dozens more early Wednesday morning.`\
 https://www.nytimes.com/video/world/europe/100000011074344/russia-ukraine-kyiv-missiles-interceptors.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/05/style/preppy-fashion-style-dozer-magazine.htm
 **5 Minutes That Will Make You Love Lee Morgan**\
 `This trumpeter earned the admiration of Dizzy Gillespie and Art Blakey when he was still a teenager, and balanced virtuosity with accessibility. Hear 11 of his best tracks.`\
 https://www.nytimes.com/2026/08/05/arts/music/lee-morgan-jazz-music.html
-
-**A Summer in the U.K. Countryside Beach Town St. Ives**\
-`A family’s vacation in the English beach town is filled with surf sessions, lunches by the sand and a landscape that still inspires painters.`\
-https://www.nytimes.com/2026/08/05/travel/uk-st-ives-cornwall-beach.html
 

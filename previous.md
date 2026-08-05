@@ -1,3 +1,7 @@
+**Russian Missile and Drone Attack on Kyiv Kills at Least 17**\
+`President Volodymyr Zelensky of Ukraine urged allies to provide his country with more missile interceptors after Russian missile attacks killed at least 17 people and wounded dozens more early Wednesday morning.`\
+https://www.nytimes.com/video/world/europe/100000011074344/russia-ukraine-kyiv-missiles-interceptors.html
+
 **Takeaways From the Primary Elections in Michigan**\
 `Dr. Abdul El-Sayed narrowly prevailed over Representative Haley Stevens in the Democratic primary for Senate in Michigan, setting up a nervy race to November for the party.`\
 https://www.nytimes.com/2026/08/05/us/politics/michigan-primary-elections-takeaways.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/05/arts/music/lee-morgan-jazz-music.html
 **A Summer in the U.K. Countryside Beach Town St. Ives**\
 `A family’s vacation in the English beach town is filled with surf sessions, lunches by the sand and a landscape that still inspires painters.`\
 https://www.nytimes.com/2026/08/05/travel/uk-st-ives-cornwall-beach.html
-
-**It’s the Summer of Soundwalking. He Is Your Sherpa.**\
-`“We may be hearing but not listening,” Jacek Smolicki said, showing a reporter how sound travels through tree roots in Central Park and amplifying the scraping of aquatic snails.`\
-https://www.nytimes.com/2026/08/05/arts/design/soundwalk-jacek-smolicki-central-park.html
 

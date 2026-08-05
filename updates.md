@@ -1,3 +1,7 @@
+**Russian Missile and Drone Attack on Kyiv Kills at Least 17**\
+`President Volodymyr Zelensky of Ukraine urged allies to provide his country with more missile interceptors after Russian missile attacks killed at least 17 people and wounded dozens more early Wednesday morning.`\
+https://www.nytimes.com/video/world/europe/100000011074344/russia-ukraine-kyiv-missiles-interceptors.html
+
 **Takeaways From the Primary Elections in Michigan**\
 `Dr. Abdul El-Sayed narrowly prevailed over Representative Haley Stevens in the Democratic primary for Senate in Michigan, setting up a nervy race to November for the party.`\
 https://www.nytimes.com/2026/08/05/us/politics/michigan-primary-elections-takeaways.html
