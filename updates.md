@@ -1,3 +1,7 @@
+**Trump dijo que el avión de Catar iría a su biblioteca. Eso podría cambiar**\
+`Un funcionario dijo que no se ha tomado una decisión definitiva sobre qué avión irá a la biblioteca presidencial de Trump, por lo que el futuro de la aeronave catarí sigue sin definirse.`\
+https://www.nytimes.com/es/2026/08/05/espanol/estados-unidos/trump-avion-qatar-biblioteca.html
+
 **Someone Is Poisoning Trees Near Lake Tahoe**\
 `Eleven trees have been killed over the past several years by a strong-smelling, unidentified substance. Another 16 were just attacked this year.`\
 https://www.nytimes.com/2026/08/05/us/lake-tahoe-trees-poison.html

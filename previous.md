@@ -1,3 +1,7 @@
+**Trump dijo que el avión de Catar iría a su biblioteca. Eso podría cambiar**\
+`Un funcionario dijo que no se ha tomado una decisión definitiva sobre qué avión irá a la biblioteca presidencial de Trump, por lo que el futuro de la aeronave catarí sigue sin definirse.`\
+https://www.nytimes.com/es/2026/08/05/espanol/estados-unidos/trump-avion-qatar-biblioteca.html
+
 **Someone Is Poisoning Trees Near Lake Tahoe**\
 `Eleven trees have been killed over the past several years by a strong-smelling, unidentified substance. Another 16 were just attacked this year.`\
 https://www.nytimes.com/2026/08/05/us/lake-tahoe-trees-poison.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/08/05/espanol/estados-unidos/primarias-michigan.
 **Blanche Defends Pirro but Says Trump Can Fire Her at Any Time**\
 `The head of the Justice Department praised the U.S. attorney in Washington after her tense meeting with the president.`\
 https://www.nytimes.com/2026/08/05/us/politics/todd-blanche-pirro-trump.html
-
-**Abdul El-Sayed Thinks Progressives Have a Way to Win. I Hope He’s Right.**\
-`Abdul El-Sayed is quick, magnetic, overflowing with infectious confidence. But he also has a blind spot endemic to his movement.`\
-https://www.nytimes.com/2026/08/05/opinion/abdul-el-sayed-michigan-democrats.html
 
