@@ -1,3 +1,15 @@
+**Blanche Defends Pirro but Says Trump Can Fire Her at Any Time**\
+`The head of the Justice Department praised the U.S. attorney in Washington after her tense meeting with the president.`\
+https://www.nytimes.com/2026/08/05/us/politics/todd-blanche-pirro-trump.html
+
+**Abdul El-Sayed Thinks Progressives Have a Way to Win. I Hope He’s Right.**\
+`He’s quick, magnetic, overflowing with infectious confidence. But he also has a blind spot endemic to his movement.`\
+https://www.nytimes.com/2026/08/05/opinion/abdul-el-sayed-michigan-democrats.html
+
+**Can Abdul El-Sayed Unify Michigan Democrats Ahead of the General Election?**\
+`His close margin of victory may point to challenges ahead.`\
+https://www.nytimes.com/2026/08/05/us/politics/el-sayed-michigan-skeptical-voters.html
+
 **Este asesor puede enseñarle a tu esposo a limpiar la casa**\
 `En las parejas heterosexuales, las mujeres suelen tener más carga mental por las labores domésticas y eso provoca discusiones. Ahora hay profesionales para equilibrar la situación.`\
 https://www.nytimes.com/es/2026/08/05/espanol/estilos-de-vida/labores-domesticas-esposo.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/08/05/style/romantic-partner-attraction-self-improv
 **Pope Leo Will Visit Peru, Where He Lived for Years, in November**\
 `The trip, which will also include Uruguay and Argentina, will be a homecoming of sorts for the American pontiff.`\
 https://www.nytimes.com/2026/08/05/world/americas/pope-leo-peru-uruguay-argentina.html
-
-**The Winners of Trump’s A.I. Safety Plan**\
-`The Trump administration’s new safety review guidelines appear to exempt Chinese artificial intelligence models. OpenAI’s and Anthropic’s aren’t.`\
-https://www.nytimes.com/2026/08/05/business/dealbook/winners-trump-ai-policy.html
-
-**Houthis Threaten to Expand Red Sea Attacks, and Claim Strike on Saudi Tanker**\
-`Saudi Arabia has not commented on the claim by the Houthis, who are backed by Iran and have vowed to close “all access routes” to Saudi oil shipments.`\
-https://www.nytimes.com/2026/08/05/world/middleeast/houthis-claim-attack-saudi-arabia-tanker.html
-
-**The Best Movies and TV Shows Coming to Netflix in August**\
-`The second season of “One Hundred Years of Solitude” and the documentary “A Child of My Own” are among the most promising titles.`\
-https://www.nytimes.com/2026/08/05/arts/television/netflix-new-august.html
 

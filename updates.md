@@ -1,3 +1,15 @@
+**Blanche Defends Pirro but Says Trump Can Fire Her at Any Time**\
+`The head of the Justice Department praised the U.S. attorney in Washington after her tense meeting with the president.`\
+https://www.nytimes.com/2026/08/05/us/politics/todd-blanche-pirro-trump.html
+
+**Abdul El-Sayed Thinks Progressives Have a Way to Win. I Hope He’s Right.**\
+`He’s quick, magnetic, overflowing with infectious confidence. But he also has a blind spot endemic to his movement.`\
+https://www.nytimes.com/2026/08/05/opinion/abdul-el-sayed-michigan-democrats.html
+
+**Can Abdul El-Sayed Unify Michigan Democrats Ahead of the General Election?**\
+`His close margin of victory may point to challenges ahead.`\
+https://www.nytimes.com/2026/08/05/us/politics/el-sayed-michigan-skeptical-voters.html
+
 **Este asesor puede enseñarle a tu esposo a limpiar la casa**\
 `En las parejas heterosexuales, las mujeres suelen tener más carga mental por las labores domésticas y eso provoca discusiones. Ahora hay profesionales para equilibrar la situación.`\
 https://www.nytimes.com/es/2026/08/05/espanol/estilos-de-vida/labores-domesticas-esposo.html
