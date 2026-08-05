@@ -1,3 +1,7 @@
+**A Nail-Biter in Michigan**\
+`We’re watching the Democratic Senate primary.`\
+https://www.nytimes.com/2026/08/05/briefing/michigan-democrat-senate-primary.html
+
 **Disney Theme Parks Report Strong Results, While Comcast’s Universal Parks Dip**\
 `Theme parks have long been seen as a bellwether for consumer confidence. Disney’s domestic parks and cruises revenue rose 11 percent in the latest quarter.`\
 https://www.nytimes.com/2026/08/05/business/media/disney-parks-universal.html

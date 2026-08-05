@@ -1,3 +1,7 @@
+**A Nail-Biter in Michigan**\
+`We’re watching the Democratic Senate primary.`\
+https://www.nytimes.com/2026/08/05/briefing/michigan-democrat-senate-primary.html
+
 **Disney Theme Parks Report Strong Results, While Comcast’s Universal Parks Dip**\
 `Theme parks have long been seen as a bellwether for consumer confidence. Disney’s domestic parks and cruises revenue rose 11 percent in the latest quarter.`\
 https://www.nytimes.com/2026/08/05/business/media/disney-parks-universal.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/08/05/espanol/cultura/etna-libro-paul-yoon.html
 **La frustración de Trump choca con el enigma del poder en Irán**\
 `A pesar de la fuerza militar, las sanciones y la urgencia política, el presidente no ha logrado traducir su enfoque en un acuerdo que cambie la relación con Teherán.`\
 https://www.nytimes.com/es/2026/08/05/espanol/estados-unidos/trump-guerra-iran.html
-
-**Un delfín carga a su cría muerta en lo que los expertos llaman duelo**\
-`Las imágenes publicadas por un grupo conservacionista ofrecen un vistazo inusual a un comportamiento común en los delfines que a menudo pasa desapercibido.`\
-https://www.nytimes.com/es/2026/08/05/espanol/delfin-duelo-cria-muerta-video.html
 

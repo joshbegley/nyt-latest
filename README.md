@@ -6,7 +6,7 @@ https://www.nytimes.com/2026/08/05/briefing/michigan-democrat-senate-primary.htm
 `Theme parks have long been seen as a bellwether for consumer confidence. Disney’s domestic parks and cruises revenue rose 11 percent in the latest quarter.`\
 https://www.nytimes.com/2026/08/05/business/media/disney-parks-universal.html
 
-**Two Cities With a Tangled History**\
+**Migrant Crisis Reveals Vast Differences Between Ceuta and Its Moroccan Neighbor**\
 `Ceuta, Spain, and Fnideq, Morocco, are physically separated by only a mile, but they are intertwined by family and trade. A recent border crisis is the latest chapter in their story.`\
 https://www.nytimes.com/2026/08/05/world/europe/ceuta-spain-fnideq-morocco-migration.html
 
