@@ -1,3 +1,11 @@
+**The Winners of Trump’s A.I. Safety Plan**\
+`The Trump administration’s new safety review guidelines appear to exempt Chinese artificial intelligence models. OpenAI’s and Anthropic’s aren’t.`\
+https://www.nytimes.com/2026/08/05/business/dealbook/winners-trump-ai-policy.html
+
+**‘Ted Lasso’ Draws Fans to Richmond, a Bucolic London Suburb**\
+`Fans of the warmhearted Apple TV show flock to Richmond-upon-Thames, which has long been a destination for visitors and film location scouts.`\
+https://www.nytimes.com/2026/08/05/arts/television/ted-lasso-richmond-locations.html
+
 **Houthis Threaten to Expand Red Sea Attacks, and Claim Strike on Saudi Tanker**\
 `Saudi Arabia has not commented on the claim by the Houthis, who are backed by Iran and have vowed to close “all access routes” to Saudi oil shipments.`\
 https://www.nytimes.com/2026/08/05/world/middleeast/houthis-claim-attack-saudi-arabia-tanker.html
