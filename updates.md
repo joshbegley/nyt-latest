@@ -1,3 +1,11 @@
+**Arizona’s Democratic Governor Set to Pick a Republican Running Mate**\
+`Gov. Katie Hobbs, locked in a competitive re-election battle, plans to tap a moderate former mayor of Mesa, Ariz., John Giles, to serve as her lieutenant governor if she wins in November.`\
+https://www.nytimes.com/2026/08/04/us/elections/arizona-governor-running-mate.html
+
+**A Claim of Brake Failure in a Jaguar Was a Scam, Court Rules**\
+`A court in England determined on Monday that a man’s claim that the brakes in his electric Jaguar had failed was a scam to avoid car payments.`\
+https://www.nytimes.com/video/world/europe/100000011073462/a-claim-of-brake-failure-in-a-jaguar-was-a-scam-court-rules.html
+
 **Missouri Voters Reject Measure to Limit Their Ballot Box Powers**\
 `The state’s conservative Legislature had put the measure on the ballot that would have enacted citizen initiatives only if they won majorities in each of Missouri’s eight U.S. House districts.`\
 https://www.nytimes.com/2026/08/04/us/elections/missouri-citizen-led-constitutional-amendments.html

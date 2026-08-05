@@ -1,3 +1,11 @@
+**Arizona’s Democratic Governor Set to Pick a Republican Running Mate**\
+`Gov. Katie Hobbs, locked in a competitive re-election battle, plans to tap a moderate former mayor of Mesa, Ariz., John Giles, to serve as her lieutenant governor if she wins in November.`\
+https://www.nytimes.com/2026/08/04/us/elections/arizona-governor-running-mate.html
+
+**A Claim of Brake Failure in a Jaguar Was a Scam, Court Rules**\
+`A court in England determined on Monday that a man’s claim that the brakes in his electric Jaguar had failed was a scam to avoid car payments.`\
+https://www.nytimes.com/video/world/europe/100000011073462/a-claim-of-brake-failure-in-a-jaguar-was-a-scam-court-rules.html
+
 **Missouri Voters Reject Measure to Limit Their Ballot Box Powers**\
 `The state’s conservative Legislature had put the measure on the ballot that would have enacted citizen initiatives only if they won majorities in each of Missouri’s eight U.S. House districts.`\
 https://www.nytimes.com/2026/08/04/us/elections/missouri-citizen-led-constitutional-amendments.html
@@ -169,14 +177,6 @@ https://www.nytimes.com/2026/08/04/business/media/paramount-warner-bros-trial-ma
 **Inside the Oval Office Showdown Between Trump and Jeanine Pirro**\
 `Jeanine Pirro, the U.S. attorney for the District of Columbia, told President Trump that his interior secretary, Doug Burgum, had misled him with a self-serving cover story for his own mistakes.`\
 https://www.nytimes.com/2026/08/04/us/politics/trump-jeanine-pirro-showdown.html
-
-**SpaceX, in First Earnings After IPO, Reports Soaring AI Spending**\
-`Elon Musk’s rocket company said its capital expenditures jumped nearly seven times from a year ago. Revenue also rose.`\
-https://www.nytimes.com/2026/08/04/technology/spacex-earnings-elon-musk.html
-
-**Bowen Yang to Make Broadway Debut as Mary Todd Lincoln in ‘Oh, Mary!’**\
-`The comic actor, who ended a celebrated run on “Saturday Night Live” last year, will begin a 12-week engagement in mid-September.`\
-https://www.nytimes.com/2026/08/04/theater/bowen-yang-broadway-oh-mary.html
 
 **Primary Elections Live Updates: Counting Underway in Michigan After Divisive Senate Battle**\
 `The state’s Democratic Senate primary pitted Dr. Abdul El-Sayed, a progressive, against Representative Haley Stevens. Kansas, Missouri, Virginia and Washington are also voting today.`\
