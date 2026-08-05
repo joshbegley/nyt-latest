@@ -1,3 +1,11 @@
+**Ursula Hegi, Who Wrote Searing Novels About Nazi-Era Germany, Dies at 80**\
+`“Stones From the River,” her best-known work and an early Oprah’s Book Club selection, was set in a fictional German town in the early 20th century.`\
+https://www.nytimes.com/2026/08/05/books/ursula-hegi-dead.html
+
+**Hacks on U.S. Water Supply Follow Years of Warnings and Neglect**\
+`Federal and state officials are racing to address an assault on the nation’s water supply that they believe is the work of Iranian hackers.`\
+https://www.nytimes.com/2026/08/05/us/politics/water-supply-warnings.html
+
 **El-Sayed Won a High-Stakes Michigan Primary. Now Comes the Hard Part.**\
 `Abdul El-Sayed’s Senate candidacy poses a critical test of Democrats’ ascendant progressive wing: Can an insurgent candidate, with unabashedly liberal positions, win a general election in a moderate state?`\
 https://www.nytimes.com/2026/08/05/us/politics/el-sayed-michigan-senate-primary-win.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/08/05/pageoneplus/corrections-aug-5-2026.html
 **‘Center Stage’: A Star of Shanghai’s 1930s Heyday Is (Re)Born**\
 `This 1991 film is at once a biopic devoted to the Chinese silent-film star, Ruan Lingyu, and a self-reflexive documentary starring Maggie Cheung.`\
 https://www.nytimes.com/2026/08/05/movies/center-stage-a-star-of-shanghais-1930s-heyday-is-re-born.html
-
-**Let’s Talk About the 50 Best Thrillers of the 21st Century**\
-`From “Gone Girl” to “Mystic River,” Gilbert Cruz, Tina Jordan and Sarah Lyall revisit the books that changed the genre, discuss overlooked favorites and recommend the thrillers that everyone should read next.`\
-https://www.nytimes.com/2026/08/05/podcasts/50-best-thrillers-century.html
-
-**Gen Z’s Dating Doldrums**\
-`Young people in New York City are going out on fewer dates, partly because everything is so expensive.`\
-https://www.nytimes.com/2026/08/05/nyregion/gen-zs-dating-doldrums.html
 

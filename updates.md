@@ -1,3 +1,7 @@
+**El-Sayed Won a High-Stakes Michigan Primary. Now Comes the Hard Part.**\
+`Abdul El-Sayed’s Senate candidacy poses a critical test of Democrats’ ascendant progressive wing: Can an insurgent candidate, with unabashedly liberal positions, win a general election in a moderate state?`\
+https://www.nytimes.com/2026/08/05/us/politics/el-sayed-michigan-senate-primary-win.html
+
 **¿Qué funciona de verdad para el dolor de rodilla?**\
 `Aquí te explicamos cómo diferenciar entre los tipos comunes de dolor y lo que recomiendan los expertos para controlarlos.`\
 https://www.nytimes.com/es/2026/08/05/espanol/estilos-de-vida/dolor-de-rodilla-tratamientos.html
