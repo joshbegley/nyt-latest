@@ -1,3 +1,7 @@
+**Iran Says It Is Nearing Final Agreement With Oman on Strait of Hormuz**\
+`The agreement on an acceptable route for ships to pass through the strait would effectively ratify Tehran’s control over the crucial waterway.`\
+https://www.nytimes.com/2026/08/05/world/middleeast/iran-oman-strait-of-hormuz.html
+
 **ICE Threatens Sheriffs In Chicago and Minneapolis With Prosecution Over Access to Inmates**\
 `In a new tactic, federal immigration officials recently started saying they would criminally charge the elected county sheriffs in Minneapolis and Chicago.`\
 https://www.nytimes.com/2026/08/05/us/ice-minnesota-sheriff-prosecution.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/05/briefing/michigan-democrat-senate-primary.htm
 **Disney Theme Parks Report Strong Results, While Comcast’s Universal Parks Dip**\
 `Theme parks have long been seen as a bellwether for consumer confidence. Disney’s domestic parks and cruises revenue rose 11 percent in the latest quarter.`\
 https://www.nytimes.com/2026/08/05/business/media/disney-parks-universal.html
-
-**Migrant Crisis Reveals Vast Differences Between Ceuta and Its Moroccan Neighbor**\
-`Ceuta, Spain, and Fnideq, Morocco, are physically separated by only a mile, but they are intertwined by family and trade. A recent border crisis is the latest chapter in their story.`\
-https://www.nytimes.com/2026/08/05/world/europe/ceuta-spain-fnideq-morocco-migration.html
 
