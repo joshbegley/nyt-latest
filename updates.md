@@ -1,3 +1,7 @@
+**Abdul El-Sayed Thinks Progressives Have a Way to Win. I Hope He’s Right.**\
+`Abdul El-Sayed is quick, magnetic, overflowing with infectious confidence. But he also has a blind spot endemic to his movement.`\
+https://www.nytimes.com/2026/08/05/opinion/abdul-el-sayed-michigan-democrats.html
+
 **Google Names Demis Hassabis to New AI Role in a Leadership Shake-up**\
 `Minutes after four top researchers said they were leaving, Google said that Demis Hassabis, the Nobel-winning scientist who led the company’s A.I. lab, was stepping into a new job.`\
 https://www.nytimes.com/2026/08/05/technology/google-ai-leadership.html
