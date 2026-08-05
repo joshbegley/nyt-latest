@@ -1,3 +1,7 @@
+**The Good List: 6 Things to Add Delight to Your Day**\
+`‘Kindergarten for adults,’ a video store tribute and The Thin Mint hustle.`\
+https://www.nytimes.com/2026/08/05/briefing/05-the-good-list-html-day-cookie-queens.html
+
 **The Fauci Hearing Shows How Little We’ve Learned About Covid**\
 `We can’t learn critical lessons from the pandemic if we’re obsessed with blame.`\
 https://www.nytimes.com/2026/08/05/opinion/fauci-covid-hearings.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/opinion/100000011047934/what-is-ai-populism.html
 **How Malta Became a Tax Haven for Crocs and Other U.S. Companies**\
 `The Mediterranean archipelago is a hot destination for U.S. companies seeking to shield profits from income taxes.`\
 https://www.nytimes.com/2026/08/05/business/economy/crocs-malta-tax-haven.html
-
-**Watch Live: Abdul El-Sayed Speaks at News Conference**\
-`Dr. Abdul El-Sayed defeated Representative Haley Stevens in the Democratic Michigan Senate primary.`\
-https://www.nytimes.com/video/embedded/us/politics/100000011074634/watch-live-abdul-el-sayed-speaks-at-news-conference.html
 

@@ -1,3 +1,7 @@
+**The Good List: 6 Things to Add Delight to Your Day**\
+`‘Kindergarten for adults,’ a video store tribute and The Thin Mint hustle.`\
+https://www.nytimes.com/2026/08/05/briefing/05-the-good-list-html-day-cookie-queens.html
+
 **The Fauci Hearing Shows How Little We’ve Learned About Covid**\
 `We can’t learn critical lessons from the pandemic if we’re obsessed with blame.`\
 https://www.nytimes.com/2026/08/05/opinion/fauci-covid-hearings.html
