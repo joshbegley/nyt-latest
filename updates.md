@@ -1,3 +1,27 @@
+**Lo que algunas ciudades pierden cuando las personas dejan el alcohol**\
+`Sí, reducir el consumo tiene muchos beneficios. Pero los bares están cerrando. Los empleos están desapareciendo. Y una forma de estar juntos puede sentirse más difícil de encontrar.`\
+https://www.nytimes.com/es/2026/08/05/espanol/consumo-alcohol-restaurantes-bares.html
+
+**¿Por qué Trump se enfrentó con la fiscala Jeanine Pirro?**\
+`La fiscala sostuvo que la evidencia apuntaba a una falla de construcción en el Estanque Reflectante en Washington, no a un delito, y eso provocó una reprimenda pública del presidente y dudas sobre su futuro.`\
+https://www.nytimes.com/es/2026/08/05/espanol/estados-unidos/trump-estanque-lincoln-fiscal-pirro.html
+
+**How to Approach an Interview With Mark Zuckerberg**\
+`When tech executives call a reporter, they usually have a point to make. The job is to listen, but also push and prod, Mike Isaac says.`\
+https://www.nytimes.com/2026/08/05/pageoneplus/how-to-approach-an-interview-with-mark-zuckerberg.html
+
+**He Had Tenure. The New School Laid Him Off Anyway.**\
+`The professor, a longtime critic of the university, was among 19 educators who lost their positions as the institution navigated financial woes.`\
+https://www.nytimes.com/2026/08/05/nyregion/new-school-faculty-fired-nyc.html
+
+**NYT Spelling Bee Answers for August 5, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/08/05/crosswords/spelling-bee-forum.html
+
+**Armed Man Arrested at Trump Golf Club Near Los Angeles**\
+`The man appeared to be observing “security-planning activities” at the club in Rancho Palos Verdes, the authorities said. The president spoke there on Tuesday night.`\
+https://www.nytimes.com/2026/08/04/us/trump-golf-club-armed-man-arrested.html
+
 **‘Los perros tienen superpoderes y secretos’, dice Paul Yoon, autor de ‘Etna’**\
 `Impulsado por un vínculo profundo con su perro, Paul Yoon escribió ‘Etna’, un libro ambientado en tiempos de guerra y contado desde la perspectiva de un animal.`\
 https://www.nytimes.com/es/2026/08/05/espanol/cultura/etna-libro-paul-yoon.html
