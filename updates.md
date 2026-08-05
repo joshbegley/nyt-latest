@@ -1,3 +1,7 @@
+**Tuskegee University Banned Bonnets and Durags. Students Mostly Wonder Why.**\
+`Students at Tuskegee University in Alabama objected to the school’s new dress code, saying it was unnecessary and misunderstood the campus culture.`\
+https://www.nytimes.com/2026/08/05/style/tuskegee-university-dress-code-durags-bonnets-hbcu.html
+
 **8 conclusiones de las primarias en Míchigan**\
 `Un candidato progresista se impuso por un margen estrecho sobre una candidata partidaria de Israel y los candidatos socialistas democráticos tuvieron resultados diversos.`\
 https://www.nytimes.com/es/2026/08/05/espanol/estados-unidos/primarias-michigan.html

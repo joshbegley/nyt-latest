@@ -1,3 +1,7 @@
+**Tuskegee University Banned Bonnets and Durags. Students Mostly Wonder Why.**\
+`Students at Tuskegee University in Alabama objected to the school’s new dress code, saying it was unnecessary and misunderstood the campus culture.`\
+https://www.nytimes.com/2026/08/05/style/tuskegee-university-dress-code-durags-bonnets-hbcu.html
+
 **8 conclusiones de las primarias en Míchigan**\
 `Un candidato progresista se impuso por un margen estrecho sobre una candidata partidaria de Israel y los candidatos socialistas democráticos tuvieron resultados diversos.`\
 https://www.nytimes.com/es/2026/08/05/espanol/estados-unidos/primarias-michigan.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/05/us/politics/el-sayed-stevens-michigan-democra
 **Israel Strikes Lebanon After Accusing Hezbollah of Cease-Fire Violation**\
 `At the same time, Israeli and Lebanese negotiators were holding talks in Rome aimed at fostering a long-term diplomatic settlement.`\
 https://www.nytimes.com/2026/08/05/world/middleeast/israel-lebanon-hezbollah-cease-fire.html
-
-**Can I Ask My Boyfriend to Straighten and Whiten His Teeth?**\
-`There’s nothing wrong with a reader’s fantastic beau that expensive dental work couldn’t fix. But is actually suggesting it out of the question?`\
-https://www.nytimes.com/2026/08/05/style/romantic-partner-attraction-self-improvement.html
 
