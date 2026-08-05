@@ -1,3 +1,7 @@
+**Abdul El-Sayed Wins Michigan’s Democratic Senate Primary**\
+`Dr. El-Sayed, a former public health official, narrowly defeated Representative Haley Stevens, a four-term congressional moderate, in Michigan’s expensive Democratic Senate primary.`\
+https://www.nytimes.com/video/us/politics/100000011074395/el-sayed-michigan-senate-primary-race.html
+
 **Inside the Abdul El-Sayed Watch Party**\
 `Tim Balk joins Natalie Kitroeff on “The Call” from Michigan, where he attended the election night watch party of Democratic Senate primary candidate Abdul El-Sayed. Balk spoke to supporters of the progressive Democrat as they waited for results in a closer than expected race.`\
 https://www.nytimes.com/video/us/elections/100000011075731/inside-the-abdul-el-sayed-watch-party.html
@@ -11,7 +15,7 @@ https://www.nytimes.com/2026/08/05/us/politics/michigan-primary-election-results
 https://www.nytimes.com/2026/08/05/style/abdul-el-sayed-fashion.html
 
 **El-Sayed Got a Big Win for the Left. Can It Win Like This Nationally?**\
-`It’s a victory for the new activist left, but it’s built on a coalition that may be too narrow to thrive among Democrats in other areas, particularly the South.`\
+`The new activist left is built on a coalition that may be too narrow to thrive in Democratic primaries in other areas, particularly the South.`\
 https://www.nytimes.com/2026/08/05/upshot/democrats-michigan-progressives-left.html
 
 **Cost of Trump’s Namesake Warships Likely to Rise by 50 Percent or More**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/embedded/us/politics/100000011074754/05vid-el-saye
 **Shawarma-Spiced Grilled Chicken; Tapenade Pasta Salad; Broiled Peaches With Feta**\
 `There are roughly 7 weeks of summer left. Cook accordingly.`\
 https://www.nytimes.com/2026/08/05/dining/shawarma-spiced-grilled-chicken-tapenade-pasta-salad-broiled-peaches-with-feta.html
-
-**Could U.S. Water Systems Be a New Front in the Iran War?**\
-`Dozens of U.S. water systems have been the targets of cyberattacks in the past week. Our reporter Dustin Volz explains how Iranian hackers are suspected, and how President Trump has cast blame elsewhere.`\
-https://www.nytimes.com/video/us/100000011070404/could-us-water-systems-be-a-new-front-in-the-iran-war.html
 
