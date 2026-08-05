@@ -1,3 +1,11 @@
+**Pineapple-Marinated Chicken Breasts**\
+`Bromelain, the group of enzymes in fresh pineapple, is excellent at breaking down the connective tissues in thick, fibrous chicken breasts. In this simple marinade, grated pineapple completely alters the texture of the breast meat, resulting in something that’s akin to luscious dark meat.`\
+https://www.nytimes.com/video/dining/100000011075605/pineapple-marinated-chicken-breasts.html
+
+**Federal Judge Weakens The National Firearms Act**\
+`The National Firearms Act mandated a permitting process for short-barreled rifles and shotguns, as well as suppressors. A judge ruled that the provision was unconstitutional.`\
+https://www.nytimes.com/2026/08/05/us/politics/national-firearms-act-gun-control.html
+
 **Federal Judge Weakens The National Firearms Act**\
 `The National Firearms Act mandated a permitting process for short-barreled rifles and shotguns, as well as suppressors. A judge ruled that the provision was unconstitutional.`\
 https://www.nytimes.com/2026/08/05/us/politics/federal-judge-weakens-key-gun-control-law.html
