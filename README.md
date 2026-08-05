@@ -1,3 +1,11 @@
+**NYT Strands Hints for Aug. 6, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Aug. 6, 2026.`\
+https://www.nytimes.com/2026/08/05/crosswords/strands-sidekick-886.html
+
+**Today’s Wordle Hints for August 6, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Aug. 6, 2026.`\
+https://www.nytimes.com/2026/08/05/crosswords/wordle-review-1874.html
+
 **How Being Cool Is Making The Hague a Vacation Hot Spot**\
 `Looking for respite from European heat waves, summer tourists are flocking to the diplomatic hub. But city leaders are wary of overcrowding.`\
 https://www.nytimes.com/2026/08/05/world/europe/hague-heat-coolcation.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/04/us/elections/kansas-democratic-primary-govern
 **What Michigan Voters Are Seeking in Democratic Senate Primary**\
 `Voters outside Michigan polling stations shared their concerns about health care, employment and affordability in the Senate’s Democratic primary.`\
 https://www.nytimes.com/video/us/elections/100000011069600/michigan-senate-primary-voters-democrat.html
-
-**NYT Crossword Answers for Aug. 5, 2026**\
-`Daniel Bodily’s crossword splits the difference.`\
-https://www.nytimes.com/2026/08/04/crosswords/daily-puzzle-2026-08-05.html
-
-**Arizona’s Democratic Governor Set to Pick a Republican Running Mate**\
-`Gov. Katie Hobbs, locked in a competitive re-election battle, plans to tap a moderate former mayor of Mesa, Ariz., John Giles, to serve as her lieutenant governor if she wins in November.`\
-https://www.nytimes.com/2026/08/04/us/elections/arizona-governor-running-mate.html
 
