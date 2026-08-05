@@ -1,3 +1,7 @@
+**8 conclusiones de las primarias en Míchigan**\
+`Un candidato progresista se impuso por un margen estrecho sobre una candidata partidaria de Israel y los candidatos socialistas democráticos tuvieron resultados diversos.`\
+https://www.nytimes.com/es/2026/08/05/espanol/estados-unidos/primarias-michigan.html
+
 **Blanche Defends Pirro but Says Trump Can Fire Her at Any Time**\
 `The head of the Justice Department praised the U.S. attorney in Washington after her tense meeting with the president.`\
 https://www.nytimes.com/2026/08/05/us/politics/todd-blanche-pirro-trump.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/05/world/middleeast/israel-lebanon-hezbollah-cea
 **Can I Ask My Boyfriend to Straighten and Whiten His Teeth?**\
 `There’s nothing wrong with a reader’s fantastic beau that expensive dental work couldn’t fix. But is actually suggesting it out of the question?`\
 https://www.nytimes.com/2026/08/05/style/romantic-partner-attraction-self-improvement.html
-
-**Pope Leo Will Visit Peru, Where He Lived for Years, in November**\
-`The trip, which will also include Uruguay and Argentina, will be a homecoming of sorts for the American pontiff.`\
-https://www.nytimes.com/2026/08/05/world/americas/pope-leo-peru-uruguay-argentina.html
 

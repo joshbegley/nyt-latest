@@ -1,3 +1,7 @@
+**8 conclusiones de las primarias en Míchigan**\
+`Un candidato progresista se impuso por un margen estrecho sobre una candidata partidaria de Israel y los candidatos socialistas democráticos tuvieron resultados diversos.`\
+https://www.nytimes.com/es/2026/08/05/espanol/estados-unidos/primarias-michigan.html
+
 **Abdul El-Sayed Thinks Progressives Have a Way to Win. I Hope He’s Right.**\
 `Abdul El-Sayed is quick, magnetic, overflowing with infectious confidence. But he also has a blind spot endemic to his movement.`\
 https://www.nytimes.com/2026/08/05/opinion/abdul-el-sayed-michigan-democrats.html
