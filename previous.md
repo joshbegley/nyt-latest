@@ -1,3 +1,7 @@
+**Israel Strikes Lebanon After Accusing Hezbollah of Cease-Fire Violation**\
+`At the same time, Israeli and Lebanese negotiators were holding talks in Rome aimed at fostering a long-term diplomatic settlement.`\
+https://www.nytimes.com/2026/08/05/world/middleeast/israel-lebanon-hezbollah-cease-fire.html
+
 **Can I Ask My Boyfriend to Straighten and Whiten His Teeth?**\
 `There’s nothing wrong with a reader’s fantastic beau that expensive dental work couldn’t fix. But is actually suggesting it out of the question?`\
 https://www.nytimes.com/2026/08/05/style/romantic-partner-attraction-self-improvement.html
@@ -91,7 +95,7 @@ https://www.nytimes.com/2026/08/05/podcasts/where-did-all-my-male-friendships-go
 https://www.nytimes.com/2026/08/05/travel/midwest-wildfire-smoke-tornadoes.html
 
 **Groceries Are Expensive. Here’s How 5 Shoppers Are Adjusting.**\
-`Two years ago, we collected receipts from people across the U.S. We thought now would be a great time to look at their spending again.`\
+`Two years ago, we collected receipts from people across the U.S. We thought now would be a good time to look at their spending again.`\
 https://www.nytimes.com/interactive/2026/08/05/dining/how-shoppers-are-adjusting-expensive-groceries.html
 
 **Corrections: Aug. 5, 2026**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/05/world/middleeast/israel-strikes-gaza-peace-de
 **How the Ukraine War Became a Fight for the Skies**\
 `Russia and Ukraine are producing ever larger numbers of innovative aerial weapons, hoping for a breakthrough as ground combat is largely frozen.`\
 https://www.nytimes.com/2026/08/05/world/europe/russia-ukraine-air-war.html
-
-**Russia’s Deadly Missile Attack on Kyiv Exploits Ukraine’s Depleted Air Defenses**\
-`At least 17 people were killed, officials said, as the country runs desperately low on interceptor missiles that could fend off Russian bombardments.`\
-https://www.nytimes.com/2026/08/05/world/europe/ukraine-war-kyiv-russia-missile-attack.html
 

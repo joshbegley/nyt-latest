@@ -1,3 +1,11 @@
+**Israel Strikes Lebanon After Accusing Hezbollah of Cease-Fire Violation**\
+`At the same time, Israeli and Lebanese negotiators were holding talks in Rome aimed at fostering a long-term diplomatic settlement.`\
+https://www.nytimes.com/2026/08/05/world/middleeast/israel-lebanon-hezbollah-cease-fire.html
+
+**Groceries Are Expensive. Here’s How 5 Shoppers Are Adjusting.**\
+`Two years ago, we collected receipts from people across the U.S. We thought now would be a good time to look at their spending again.`\
+https://www.nytimes.com/interactive/2026/08/05/dining/how-shoppers-are-adjusting-expensive-groceries.html
+
 **‘The Shards’ and ‘Sterling Point’ Offer Class Struggle as Teen Drama**\
 `“The Shards” and “Sterling Point” offer different angles on that most status-conscious of genres, the teen drama.`\
 https://www.nytimes.com/2026/08/05/arts/television/the-shards-sterling-point-teen-dramas.html

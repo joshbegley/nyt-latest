@@ -1,3 +1,11 @@
+**El papa León visitará Perú en noviembre**\
+`El viaje, que también incluirá a Uruguay y Argentina, será una especie de regreso a casa para el pontífice estadounidense.`\
+https://www.nytimes.com/es/2026/08/05/espanol/mundo/papa-leon-visita-peru.html
+
+**Abdul El-Sayed Wins Democratic Senate Primary in Michigan in a Victory for the Left**\
+`Dr. El-Sayed, a progressive former public health official, narrowly defeated Representative Haley Stevens, a moderate, in a bitter primary dominated by the politics of Israel.`\
+https://www.nytimes.com/2026/08/05/us/politics/el-sayed-stevens-michigan-democratic-senate-primary.html
+
 **Israel Strikes Lebanon After Accusing Hezbollah of Cease-Fire Violation**\
 `At the same time, Israeli and Lebanese negotiators were holding talks in Rome aimed at fostering a long-term diplomatic settlement.`\
 https://www.nytimes.com/2026/08/05/world/middleeast/israel-lebanon-hezbollah-cease-fire.html
@@ -96,7 +104,7 @@ https://www.nytimes.com/2026/08/05/travel/midwest-wildfire-smoke-tornadoes.html
 
 **Groceries Are Expensive. Here’s How 5 Shoppers Are Adjusting.**\
 `Two years ago, we collected receipts from people across the U.S. We thought now would be a good time to look at their spending again.`\
-https://www.nytimes.com/interactive/2026/08/05/dining/how-shoppers-are-adjusting-expensive-groceries.html
+https://www.nytimes.com/interactive/2026/08/05/dining/grocery-prices-shoppers.html
 
 **Corrections: Aug. 5, 2026**\
 `Corrections that appeared in print on Wednesday, Aug. 5, 2026.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/05/climate/data-centers-pollution-trump-ai-energ
 **Does Your Relationship Need a ‘Mental Load’ Coach?**\
 `Zach Watson, a self-described “recovering man-child,” advises other men about how to take on their fair share of household labor.`\
 https://www.nytimes.com/2026/08/05/well/family/relationship-coach-mental-load-chores.html
-
-**Israeli Strikes May Undermine Trump’s Peace Plan for Gaza**\
-`President Trump announced a proposal aimed at achieving the disarmament of Hamas and an Israeli withdrawal. Israel ramped up attacks on the Palestinian enclave.`\
-https://www.nytimes.com/2026/08/05/world/middleeast/israel-strikes-gaza-peace-deal.html
-
-**How the Ukraine War Became a Fight for the Skies**\
-`Russia and Ukraine are producing ever larger numbers of innovative aerial weapons, hoping for a breakthrough as ground combat is largely frozen.`\
-https://www.nytimes.com/2026/08/05/world/europe/russia-ukraine-air-war.html
 
