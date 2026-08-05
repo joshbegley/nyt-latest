@@ -1,5 +1,5 @@
 **‘Los perros tienen superpoderes y secretos’, dice Paul Yoon, autor de ‘Etna’**\
-`Impulsado por un vínculo profundo con su perro, Paul Yoon escribió ‘Etna’, un libro ambientada en tiempos de guerra y contada desde la perspectiva de un animal.`\
+`Impulsado por un vínculo profundo con su perro, Paul Yoon escribió ‘Etna’, un libro ambientado en tiempos de guerra y contado desde la perspectiva de un animal.`\
 https://www.nytimes.com/es/2026/08/05/espanol/cultura/etna-libro-paul-yoon.html
 
 **La frustración de Trump choca con el enigma del poder en Irán**\
