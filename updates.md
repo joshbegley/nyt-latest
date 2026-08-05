@@ -1,3 +1,11 @@
+**Shri Thanedar Is Ousted by a Democratic Socialist in a Michigan House Primary**\
+`Representative Shri Thanedar is among a wave of Democratic incumbents in Congress whom primary voters have sent packing in a surge of anti-incumbent fervor this cycle.`\
+https://www.nytimes.com/2026/08/05/us/politics/michigan-house-primary-mckinney-thanedar.html
+
+**Tiny Love Stories: ‘My Strange Shame’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/08/05/style/tiny-modern-love-stories-my-strange-shame.html
+
 **El papa León visitará Perú en noviembre**\
 `El viaje, que también incluirá a Uruguay y Argentina, será una especie de regreso a casa para el pontífice estadounidense.`\
 https://www.nytimes.com/es/2026/08/05/espanol/mundo/papa-leon-visita-peru.html
