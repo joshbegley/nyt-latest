@@ -178,7 +178,7 @@ https://www.nytimes.com/2026/08/04/world/asia/south-korea-birth-rate-nicu-crisis
 `Servers, hosts, bartenders, line cooks, dishwashers and chefs were treated to a night at the movies to watch the new film “Tony.”`\
 https://www.nytimes.com/2026/08/04/style/tony-movie-anthony-bourdain-restaurant-workers.html
 
-**Primary Elections Live Updates: Counting Underway in Michigan After Divisive Senate Battle**\
-`The state’s Democratic Senate primary pitted Dr. Abdul El-Sayed, a progressive, against Representative Haley Stevens. Kansas, Missouri, Virginia and Washington are also voting today.`\
+**Primary Elections Live Updates: Close Race in Democratic Primary for Michigan Senate Seat**\
+`The primary pitted Dr. Abdul El-Sayed, a progressive, against Representative Haley Stevens, a centrist. Kansas, Missouri, Virginia and Washington are also voting today.`\
 https://www.nytimes.com/live/2026/08/04/us/midterms-elections-michigan-virginia
 
