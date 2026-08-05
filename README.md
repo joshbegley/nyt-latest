@@ -1,3 +1,7 @@
+**How Being Cool Is Making The Hague a Vacation Hot Spot**\
+`Looking for respite from European heat waves, summer tourists are flocking to the diplomatic hub. But city leaders are wary of overcrowding.`\
+https://www.nytimes.com/2026/08/05/world/europe/hague-heat-coolcation.html
+
 **Finland Tries to Protect Children Against Deepfakes, With Russia in Mind**\
 `Finland, wary of misinformation from Moscow and beyond, has a leg up on other nations in spotting fake news. But A.I. is a whole new challenge.`\
 https://www.nytimes.com/2026/08/05/world/europe/finland-deepfakes-ai.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/04/crosswords/daily-puzzle-2026-08-05.html
 **Arizona’s Democratic Governor Set to Pick a Republican Running Mate**\
 `Gov. Katie Hobbs, locked in a competitive re-election battle, plans to tap a moderate former mayor of Mesa, Ariz., John Giles, to serve as her lieutenant governor if she wins in November.`\
 https://www.nytimes.com/2026/08/04/us/elections/arizona-governor-running-mate.html
-
-**A Claim of Brake Failure in a Jaguar Was a Scam, Court Rules**\
-`A court in England determined on Monday that a man’s claim that the brakes in his electric Jaguar had failed was a scam to avoid car payments.`\
-https://www.nytimes.com/video/world/europe/100000011073462/a-claim-of-brake-failure-in-a-jaguar-was-a-scam-court-rules.html
 
