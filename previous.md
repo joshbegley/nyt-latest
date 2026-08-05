@@ -1,8 +1,24 @@
+**Star Scholar Jason Arday Resigns from Cambridge**\
+`Jason Arday was hired by the University of Cambridge in 2023 as the youngest Black professor in its history. Doubt has since been cast on his academic qualifications and claims about his life.`\
+https://www.nytimes.com/2026/08/05/books/review/cambridge-jason-arday-investigation.html
+
+**Mexican Influencer César Gastélum Shot Dead During Livestream from Sinaloa**\
+`César Gastélum was streaming video from outside a KFC in Culiacán, a city in Sinaloa state, when he was gunned down on Tuesday.`\
+https://www.nytimes.com/2026/08/05/world/americas/mexican-influencer-shot-dead-kfc.html
+
+**Trump Said Qatari Jet Was Destined for His Library. That May Change.**\
+`A White House official says no final decision has been made about which plane will go on display at the Trump presidential library. That leaves the fate of the Qatari jet unclear.`\
+https://www.nytimes.com/2026/08/05/us/trump-air-force-one-qatar-library.html
+
+**Musk, Money and Mars**\
+`SpaceX shares are down, but Elon Musk is still the richest man in the world. What’s next?`\
+https://www.nytimes.com/2026/08/05/world/elon-musk-wealth-gaza-strikes.html
+
 **Malaysian Pilot Caught Smuggling 55 Pounds of Ecstasy Into Indonesia**\
 `A Malaysian pilot was arrested for smuggling more than 55 pounds of ecstasy into Jakarta’s main airport and told investigators that he was promised about $12,200 to transport the drugs.`\
 https://www.nytimes.com/video/world/asia/100000011075450/malaysian-pilot-drug-smuggling-indonesia.html
 
-**A Democratic Socialist Disparaged Thanksgiving. Will Voters Forgive Her?**\
+**Francesca Hong Said Thanksgiving Should Be Canceled. Can Wisconsin Voters Forgive Her?**\
 `“Cancel Thanksgiving,” she wrote. “VDay” brings out “the worst of humanity,” she mused. Francesca Hong’s old social media posts get a fresh look ahead of Wisconsin’s Democratic primary for governor.`\
 https://www.nytimes.com/2026/08/05/us/politics/francesca-hong-thanksgiving.html
 
@@ -181,20 +197,4 @@ https://www.nytimes.com/video/embedded/us/politics/100000011074808/05vid-el-saye
 **Perez Hilton Is Hospitalized After Appearing to Harm Himself on Livestream**\
 `Law enforcement and emergency workers responded to Mr. Hilton’s house after he appeared to hurt himself on a TikTok stream Tuesday.`\
 https://www.nytimes.com/2026/08/05/us/perez-hilton-live-stream-tiktok-self-harm.html
-
-**EE. UU. revoca la visa de la principal diplomática de Brasil**\
-`El Departamento de Estado ha cancelado la visa de la embajadora de Brasil en Washington, lo que profundiza una crisis diplomática entre ambos países.`\
-https://www.nytimes.com/es/2026/08/05/espanol/mundo/brasil-embajadora-eeuu-visa.html
-
-**Ursula Hegi, Who Wrote Searing Novels About Nazi-Era Germany, Dies at 80**\
-`“Stones From the River,” her best-known work and an early Oprah’s Book Club selection, was set in a fictional German town in the early 20th century.`\
-https://www.nytimes.com/2026/08/05/books/ursula-hegi-dead.html
-
-**Suspected Iran Cyberattacks on U.S. Water Supply Follow Years of Warnings and Neglect**\
-`Federal and state officials are racing to address an assault on the nation’s water supply that they believe is the work of Iranian hackers.`\
-https://www.nytimes.com/2026/08/05/us/politics/water-supply-warnings.html
-
-**El-Sayed’s Michigan Senate Primary Win Sets Up the Left’s Biggest Test of the Fall**\
-`Abdul El-Sayed’s Senate candidacy poses a critical challenge for Democrats’ ascendant progressive wing: Can an insurgent candidate, with unabashedly liberal positions, win a general election in a moderate state?`\
-https://www.nytimes.com/2026/08/05/us/politics/el-sayed-michigan-senate-primary-win.html
 

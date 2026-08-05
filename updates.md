@@ -1,3 +1,23 @@
+**Star Scholar Jason Arday Resigns from Cambridge**\
+`Jason Arday was hired by the University of Cambridge in 2023 as the youngest Black professor in its history. Doubt has since been cast on his academic qualifications and claims about his life.`\
+https://www.nytimes.com/2026/08/05/books/review/cambridge-jason-arday-investigation.html
+
+**Mexican Influencer César Gastélum Shot Dead During Livestream from Sinaloa**\
+`César Gastélum was streaming video from outside a KFC in Culiacán, a city in Sinaloa state, when he was gunned down on Tuesday.`\
+https://www.nytimes.com/2026/08/05/world/americas/mexican-influencer-shot-dead-kfc.html
+
+**Trump Said Qatari Jet Was Destined for His Library. That May Change.**\
+`A White House official says no final decision has been made about which plane will go on display at the Trump presidential library. That leaves the fate of the Qatari jet unclear.`\
+https://www.nytimes.com/2026/08/05/us/trump-air-force-one-qatar-library.html
+
+**Musk, Money and Mars**\
+`SpaceX shares are down, but Elon Musk is still the richest man in the world. What’s next?`\
+https://www.nytimes.com/2026/08/05/world/elon-musk-wealth-gaza-strikes.html
+
+**Francesca Hong Said Thanksgiving Should Be Canceled. Can Wisconsin Voters Forgive Her?**\
+`“Cancel Thanksgiving,” she wrote. “VDay” brings out “the worst of humanity,” she mused. Francesca Hong’s old social media posts get a fresh look ahead of Wisconsin’s Democratic primary for governor.`\
+https://www.nytimes.com/2026/08/05/us/politics/francesca-hong-thanksgiving.html
+
 **Malaysian Pilot Caught Smuggling 55 Pounds of Ecstasy Into Indonesia**\
 `A Malaysian pilot was arrested for smuggling more than 55 pounds of ecstasy into Jakarta’s main airport and told investigators that he was promised about $12,200 to transport the drugs.`\
 https://www.nytimes.com/video/world/asia/100000011075450/malaysian-pilot-drug-smuggling-indonesia.html
