@@ -1,3 +1,7 @@
+**C.I.A. Sets Up Secret Cuba Task Force as Trump Pressures Havana**\
+`The task force will allow the spy agency to quickly direct more financial, human and technical resources at the island, with the goal of creating fissures among the Cuban political elite.`\
+https://www.nytimes.com/2026/08/05/us/politics/cia-cuba-task-force.html
+
 **Star Scholar Jason Arday Resigns From Cambridge**\
 `Jason Arday was hired by the University of Cambridge in 2023 as the youngest Black professor in its history. Doubt has since been cast on his academic qualifications and claims about his life.`\
 https://www.nytimes.com/2026/08/05/books/review/cambridge-jason-arday-resignation-investigation.html
