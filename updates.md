@@ -1,3 +1,11 @@
+**Armed Man Arrested at Trump Golf Club Near Los Angeles**\
+`The man appeared to be observing “security-planning activities” on Sunday at the club in Rancho Palos Verdes, the authorities said. The president was scheduled to speak there on Tuesday night.`\
+https://www.nytimes.com/2026/08/04/us/trump-golf-club-armed-man-arrested.html
+
+**What One Witness Saw Before a Spokane Wildfire Started**\
+`A resident of Spokane County, Wash., said he noticed a man acting suspiciously and called 911 after seeing smoke. The police later arrested a suspect tied to one of the wildfires in the area.`\
+https://www.nytimes.com/2026/08/04/us/spokane-fire-arson-suspect-witness.html
+
 **What One Witness Saw Moments Before a Fire Started**\
 `A resident of Spokane County, Wash., said he noticed a man acting suspiciously and called 911 after seeing smoke. The police later arrested a suspect tied to one of the wildfires in the area.`\
 https://www.nytimes.com/2026/08/04/us/spokane-fire-arson-suspect-witness.html
