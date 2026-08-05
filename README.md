@@ -4,7 +4,7 @@ https://www.nytimes.com/video/dining/100000011075605/pineapple-marinated-chicken
 
 **Federal Judge Weakens The National Firearms Act**\
 `The National Firearms Act mandated a permitting process for short-barreled rifles and shotguns, as well as suppressors. A judge ruled that the provision was unconstitutional.`\
-https://www.nytimes.com/2026/08/05/us/politics/federal-judge-weakens-key-gun-control-law.html
+https://www.nytimes.com/2026/08/05/us/politics/national-firearms-act-gun-control.html
 
 **Mayor Says El-Sayed’s Win Shows He Is More Than a ‘Mini-Mamdani’**\
 `Mayor Zohran Mamdani of New York said that Dr. Abdul El-Sayed’s close victory in the Michigan Senate primary put “working-class Americans back at the heart of our politics.”`\
