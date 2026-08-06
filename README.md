@@ -1,3 +1,7 @@
+**Art Gallery Shows to See in August**\
+`This week in Newly Reviewed Carolina Miranda covers three shows in Los Angeles: a group exhibit with Tom of Finland at the center, Betye Saar’s “wearable art” and Esther Pearl Watson’s spaceships.`\
+https://www.nytimes.com/2026/08/06/arts/art-gallery-shows-to-see-in-august.html
+
 **El problema legal de Fauci y cómo llegó hasta ahí**\
 `El científico está bajo intenso escrutinio por las decisiones que tomó para enfrentar la pandemia de la covid y su caso ha abierto un intenso debate sobre interpretaciones de la ley.`\
 https://www.nytimes.com/es/2026/08/06/espanol/estados-unidos/fauci-trump.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/08/06/espanol/estilos-de-vida/mujeres-jovenes-en
 **Where Gen Z Finds Meaning in Life**\
 `Readers respond to “Gen Z Fell Out of Love With Work. It’s Easy to See Why,” an Opinion guest essay by Emi Nietfeld. Also: Maligning Dr. Anthony Fauci.`\
 https://www.nytimes.com/2026/08/06/opinion/gen-z-work-life.html
-
-**Edgy Vanity Plates Test Limits of Free Speech**\
-`Virginia will ask the Supreme Court to hear a dispute over a seven-character license plate message.`\
-https://www.nytimes.com/2026/08/06/us/politics/the-docket-vanity-plates-speech.html
 
