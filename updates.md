@@ -1,3 +1,7 @@
+**Mitch McConnell Discharged From Rehabilitation Facility**\
+`The Kentucky Republican has been absent from Congress for nearly two months after a health episode. He said he would continue recovering from home.`\
+https://www.nytimes.com/2026/08/06/us/politics/mitch-mcconnell-discharged-hospitalization-senate.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/opinion/100000011064788/06voters-georgia-cine.html
