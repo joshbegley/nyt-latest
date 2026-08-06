@@ -1,3 +1,11 @@
+**Trump’s Helicopter Flies Near Passenger Jet**\
+`On Tuesday, a passenger jet and a Marine One helicopter carrying President Trump flew near one another. Radio communications between Marine One and the air traffic control at Ronald Reagan National Airport indicate that some communications were garbled.`\
+https://www.nytimes.com/video/us/100000011077110/trump-helicopter-jet-marine-one-faa.html
+
+**Families Sue New York City Over Deaths in 2025 Legionnaires’ Outbreak**\
+`A cluster of cases in Harlem was traced to two city-owned sites. Lawsuits claim that dangerous bacteria spewed from improperly maintained cooling towers.`\
+https://www.nytimes.com/2026/08/06/nyregion/nyc-legionnaires-lawsuit-families-victims.html
+
 **Union Representing IRS Workers Sues Over Trump’s Deal Granting Sweeping Tax Protections**\
 `The request was the first time that anyone had used the courts in an effort to directly kill the sweeping tax protections offered to the president and his family.`\
 https://www.nytimes.com/2026/08/06/us/irs-workers-lawsuit-trump-tax-protections.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/interactive/2026/08/06/us/elections/results-tennessee-us
 **Tennessee Fourth Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Tennessee primary election.`\
 https://www.nytimes.com/interactive/2026/08/06/us/elections/results-tennessee-us-house-4-primary.html
-
-**Tennessee Seventh Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Tennessee primary election.`\
-https://www.nytimes.com/interactive/2026/08/06/us/elections/results-tennessee-us-house-7-primary.html
-
-**Tennessee Eighth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Tennessee primary election.`\
-https://www.nytimes.com/interactive/2026/08/06/us/elections/results-tennessee-us-house-8-primary.html
 
