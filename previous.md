@@ -1,3 +1,7 @@
+**The ‘Heated Rivalry’ Star Hudson Williams Uplifts a Canadian Tire Bag**\
+`After the actor Hudson Williams was photographed carrying a plaid reusable shopping bag, priced under $2, the tote has become a viral fashion accessory.`\
+https://www.nytimes.com/2026/08/06/world/canada/hudson-williams-heated-rivalry-canadian-tire.html
+
 **Can Robots Save Japan’s Aging Cherry Blossom Farmers?**\
 `Monster Wolf and Pochi are among the robots deployed to scare away bears and transport cherry blossoms in a northern region where many farmers are in their 70s or older.`\
 https://www.nytimes.com/2026/08/06/world/asia/japan-ai-robot-cherry-blossoms.html
@@ -15,7 +19,7 @@ https://www.nytimes.com/2026/08/06/world/europe/munich-car-attack-driver-sentenc
 https://www.nytimes.com/video/embedded/business/100000011076861/Biz-China-Robot-IPO-video-2.html
 
 ****\
-`tktktk`\
+`Investors are betting that humanoid robots built to look and move like humans will become the next major breakthrough.`\
 https://www.nytimes.com/video/embedded/business/100000011076857/Biz-China-Robot-IPO-Video1.html
 
 **What’s Behind the A.I. Shake-Up at Google**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/06/world/americas/venezuela-earthquakes-response
 **A Trans Woman Pulled a Gun and Started a ‘Stand Your Ground’ Debate**\
 `Gun-friendly Wyoming has a “stand your ground” statute that allows people to use force to defend themselves. So why is a trans woman being prosecuted after being shoved to the ground?`\
 https://www.nytimes.com/2026/08/06/us/transgender-gun-rights-wyoming.html
-
-**Where Election Deniers Are County Election Officials**\
-`Our politics reporter Nick Corasaniti discusses a Times analysis of a Voting Rights Lab database identifying county-level election officials overseeing key midterm elections who are also affiliated with the election-denier movement.`\
-https://www.nytimes.com/video/us/100000011049676/where-election-deniers-are-county-election-officials.html
 
