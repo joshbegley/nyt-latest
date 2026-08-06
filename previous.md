@@ -1,3 +1,11 @@
+**The Coalitions That Propelled El-Sayed’s Michigan Victory**\
+`Racial and ethnic splits, and a wide lead among younger voters, were enough for Dr. Abdul El-Sayed, a progressive, to hold off Haley Stevens, a moderate, in Michigan’s Democratic Senate primary.`\
+https://www.nytimes.com/interactive/2026/08/05/us/elections/el-sayed-michigan-senate-precinct-maps.html
+
+**TikTok Is Laying Off 250 Employees in Its Nashville Office**\
+`The office was home to members of the app’s content moderation team.`\
+https://www.nytimes.com/2026/08/05/technology/tiktok-layoffs-nashville.html
+
 **La CIA forma un grupo operativo secreto sobre Cuba**\
 `El equipo le permitirá a la agencia de espionaje dedicar rápidamente más recursos financieros, humanos y técnicos a la isla, con el objetivo de crear fisuras entre la élite política cubana.`\
 https://www.nytimes.com/es/2026/08/05/espanol/estados-unidos/cia-grupo-operativo-secreto-cuba.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/opinion/100000011064628/always-late-tiktok-thinks-
 **Why Congress Wants a Closer U.S.-Israel Defense Partnership**\
 `A proposal making its way through Congress would integrate the U.S. and Israeli defense and intelligence apparatuses more tightly. Some worry that it is a bad idea.`\
 https://www.nytimes.com/2026/08/05/us/politics/congress-us-israel-defense-partnership.html
-
-**Free Day Care Spots Lift a $26,000 Burden for These N.Y.C. Families**\
-`Mayor Zohran Mamdani’s plan to expand free child care to 2-year-olds began in four communities. The first 2,000 families to get a seat were thrilled.`\
-https://www.nytimes.com/2026/08/05/nyregion/mamdani-nyc-free-child-care-preschool.html
-
-**Tuskegee University Banned Bonnets and Durags. Students Mostly Wonder Why.**\
-`Students at Tuskegee University in Alabama objected to the school’s new dress code, saying it was unnecessary and misunderstood the campus culture.`\
-https://www.nytimes.com/2026/08/05/style/tuskegee-university-dress-code-durags-bonnets-hbcu.html
 

@@ -1,3 +1,11 @@
+**The Coalitions That Propelled El-Sayed’s Michigan Victory**\
+`Racial and ethnic splits, and a wide lead among younger voters, were enough for Dr. Abdul El-Sayed, a progressive, to hold off Haley Stevens, a moderate, in Michigan’s Democratic Senate primary.`\
+https://www.nytimes.com/interactive/2026/08/05/us/elections/el-sayed-michigan-senate-precinct-maps.html
+
+**TikTok Is Laying Off 250 Employees in Its Nashville Office**\
+`The office was home to members of the app’s content moderation team.`\
+https://www.nytimes.com/2026/08/05/technology/tiktok-layoffs-nashville.html
+
 **La CIA forma un grupo operativo secreto sobre Cuba**\
 `El equipo le permitirá a la agencia de espionaje dedicar rápidamente más recursos financieros, humanos y técnicos a la isla, con el objetivo de crear fisuras entre la élite política cubana.`\
 https://www.nytimes.com/es/2026/08/05/espanol/estados-unidos/cia-grupo-operativo-secreto-cuba.html
