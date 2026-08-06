@@ -104,7 +104,7 @@ https://www.nytimes.com/2026/08/06/arts/television/jacqueline-woodson-the-day-yo
 
 **Follow the Markets and Track Stocks With These Free Apps**\
 `Google Finance and Apple’s Stocks app have added new features over the years to make them more useful for tracking the markets and your investments.`\
-https://www.nytimes.com/2026/08/06/technology/personaltech/carry-wall-street-in-your-pocket-with-these-free-apps.html
+https://www.nytimes.com/2026/08/06/technology/personaltech/finance-stocks-apps.html
 
 **Why a Coast Guard Boat Came to Times Square**\
 `The 31-foot-long vessel and some replica weapons recalling those used in the War of 1812 featured in a celebration that looks ahead to a new Coast Guard museum.`\
