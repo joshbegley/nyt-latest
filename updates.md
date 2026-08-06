@@ -1,3 +1,11 @@
+**After Trump Calls Canadians ‘Nasty,’ Mark Carney Says the Word Fits Trade Talks**\
+`Canada’s prime minister laughed off Trump’s description of Canada but suggested that trade talks between the two countries are acrimonious.`\
+https://www.nytimes.com/2026/08/06/world/canada/carney-trump-tariffs-trade.html
+
+**Trump Signs Executive Orders Targeting Birthright Citizenship and ‘Birth Tourism’**\
+`The orders come after the Supreme Court ruled June 30 that President Trump’s previous efforts to end birthright citizenship were unconstitutional.`\
+https://www.nytimes.com/2026/08/06/us/politics/trump-birthright-citizenship-tourism.html
+
 **Trump Signs Executive Orders Targeting Birthright Citizenship**\
 `The orders come after the Supreme Court ruled June 30 that President Trump’s previous efforts to end birthright citizenship were unconstitutional.`\
 https://www.nytimes.com/2026/08/06/us/politics/trump-birthright-citizenship-tourism.html
