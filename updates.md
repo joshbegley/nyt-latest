@@ -1,3 +1,7 @@
+**Paxton and Talarico Offer Diverging Paths on Affordability**\
+`The candidates are seeking to win over voters with competing proposals on tax, housing and health care that are aimed at lowering household costs.`\
+https://www.nytimes.com/2026/08/06/us/paxton-and-talarico-offer-diverging-paths-on-affordability.html
+
 **Country Music Festival Lights Up Nairobi**\
 `Fans gathered in Kenya to celebrate a genre born far away but that more and more Africans are coming to appreciate.`\
 https://www.nytimes.com/2026/08/06/world/africa/country-music-nairobi-kenya-cowboys.html

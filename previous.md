@@ -1,3 +1,7 @@
+**Paxton and Talarico Offer Diverging Paths on Affordability**\
+`The candidates are seeking to win over voters with competing proposals on tax, housing and health care that are aimed at lowering household costs.`\
+https://www.nytimes.com/2026/08/06/us/paxton-and-talarico-offer-diverging-paths-on-affordability.html
+
 **Country Music Festival Lights Up Nairobi**\
 `Fans gathered in Kenya to celebrate a genre born far away but that more and more Africans are coming to appreciate.`\
 https://www.nytimes.com/2026/08/06/world/africa/country-music-nairobi-kenya-cowboys.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/05/style/abdul-el-sayed-fashion.html
 **El-Sayed Got a Big Win for the Left. Can It Win Like This Nationally?**\
 `The new activist left is built on a coalition that may be too narrow to thrive in Democratic primaries in other areas, particularly the South.`\
 https://www.nytimes.com/2026/08/05/upshot/democrats-michigan-progressives-left.html
-
-**Cost of Trump’s Namesake Warships Likely to Rise by 50 Percent or More**\
-`President Trump’s goal of building a “golden fleet” of 15 battleships could cost $275 billion, according to a government estimate.`\
-https://www.nytimes.com/2026/08/05/us/politics/trump-namesake-warships-cost-increase.html
 
