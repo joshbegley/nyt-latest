@@ -12,7 +12,7 @@ https://www.nytimes.com/video/podcasts/100000011074586/travis-barker-gets-vulner
 
 **Wildfire Smoke Degrades Air Quality Across Washington and Oregon**\
 `Air quality levels reached unhealthy levels across Oregon and Washington this week.`\
-https://www.nytimes.com/2026/08/06/weather/wildfire-smoke-fills-skies-over-the-pacific-northwest.html
+https://www.nytimes.com/2026/08/06/weather/wildfires-air-quality-oregon-washington.html
 
 **Mitch McConnell Discharged From Rehabilitation Facility**\
 `The Kentucky Republican has been absent from Congress for nearly two months after a health episode. He said he would continue recovering from home.`\
