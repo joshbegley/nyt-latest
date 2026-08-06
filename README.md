@@ -1,3 +1,7 @@
+**A.I. Gas Guzzlers**\
+`We look at what’s powering data centers.`\
+https://www.nytimes.com/2026/08/06/briefing/data-centers-gas-power.html
+
 **‘Our Drug Is Wagner’: Bayreuth Festival Draws the Composer’s Fiercest Fans**\
 `As the Bayreuth Festival celebrates 150 years, Wagnerians from around the globe brave heat, hard seats and a complex history for a unique music tradition.`\
 https://www.nytimes.com/2026/08/06/arts/music/bayreuth-festival-wagner-rienzi-germany.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/06/us/paxton-talarico-single-dating.html
 **John Carpenter Found a New Way to Give You Nightmares**\
 `The director of slasher films that defined horror from the 1970s through the ’90s realizes his latest work, “Cathedral,” as both a graphic novel and a hard-rock album.`\
 https://www.nytimes.com/2026/08/06/arts/music/john-carpenter-cathedral-graphic-novel-album.html
-
-**Word of the Day: kibosh**\
-`This word has appeared in eight articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/08/06/learning/word-of-the-day-kibosh.html
 
