@@ -1,3 +1,7 @@
+**Some House Republicans Are Backing a Challenger in Cory Mills’s Re-election Bid**\
+`Two Republican lawmakers have endorsed a primary opponent of Representative Cory Mills, who has been accused of assault and is under investigation by the House Ethics Committee.`\
+https://www.nytimes.com/2026/08/06/us/politics/republicans-endorse-cory-mills-opponent.html
+
 **Florida Man Cut Diver’s Air in Miami Lobster Dispute, Authorities Say**\
 `The authorities say that a confrontation over a diving spot off Miami ended with a boater shutting off a surface-breathing apparatus, leading to an attempted murder charge.`\
 https://www.nytimes.com/2026/08/06/us/florida-lobster-diver-attempted-murder-charge-miami.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/08/06/us/elections/results-tennessee-us
 **Académico estrella renuncia a Cambridge, que investiga sus antecedentes**\
 `Jason Arday fue contratado en 2023 como el profesor negro más joven de la historia de la universidad. Ahora se han puesto en duda sus credenciales académicas y su historia de vida.`\
 https://www.nytimes.com/es/2026/08/06/espanol/cultura/arday-renuncia-cambridge.html
-
-**Who Is Ahead in Indiana's 5th Congressional District?**\
-`Track the latest polls in Indiana's 5th Congressional District.`\
-https://www.nytimes.com/interactive/polls/indiana-us-house-5-polls-2026.html
 

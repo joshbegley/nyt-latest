@@ -1,3 +1,7 @@
+**Florida Man Cut Diver’s Air in Miami Lobster Dispute, Authorities Say**\
+`The authorities say that a confrontation over a diving spot off Miami ended with a boater shutting off a surface-breathing apparatus, leading to an attempted murder charge.`\
+https://www.nytimes.com/2026/08/06/us/florida-lobster-diver-attempted-murder-charge-miami.html
+
 **John O’Malley, Bronx Detective and Federal Investigator, Dies at 73**\
 `As a detective with the N.Y.P.D., he helped prosecute violent crimes under federal law. At the U.S. attorney’s office, he was involved in high-profile exonerations.`\
 https://www.nytimes.com/2026/08/06/nyregion/john-p-omalley-dead.html
