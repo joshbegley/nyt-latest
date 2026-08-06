@@ -1,3 +1,7 @@
+**Florida Man Cut Diver’s Air in Miami Lobster Dispute, Authorities Say**\
+`The authorities say that a confrontation over a diving spot off Miami ended with a boater shutting off a surface-breathing apparatus, leading to an attempted murder charge.`\
+https://www.nytimes.com/2026/08/06/us/florida-lobster-diver-attempted-murder-charge-miami.html
+
 **John O’Malley, Bronx Detective and Federal Investigator, Dies at 73**\
 `As a detective with the N.Y.P.D., he helped prosecute violent crimes under federal law. At the U.S. attorney’s office, he was involved in high-profile exonerations.`\
 https://www.nytimes.com/2026/08/06/nyregion/john-p-omalley-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/08/06/espanol/cultura/arday-renuncia-cambridge.h
 **Who Is Ahead in Indiana's 5th Congressional District?**\
 `Track the latest polls in Indiana's 5th Congressional District.`\
 https://www.nytimes.com/interactive/polls/indiana-us-house-5-polls-2026.html
-
-**Drought Threatens a Vital Economic Artery in the Heart of Europe**\
-`The Rhine conveys vessels and cargo that power European industry. Record low water levels are disrupting supply chains, adding costs and presenting fresh risks to growth.`\
-https://www.nytimes.com/2026/08/06/business/rhine-drought-germany-economy.html
 
