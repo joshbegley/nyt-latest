@@ -1,3 +1,47 @@
+**Tennessee U.S. Senate Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Tennessee primary election.`\
+https://www.nytimes.com/interactive/2026/08/06/us/elections/results-tennessee-us-senate-primary.html
+
+**Tennessee Ninth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Tennessee primary election.`\
+https://www.nytimes.com/interactive/2026/08/06/us/elections/results-tennessee-us-house-9-primary.html
+
+**Tennessee Fifth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Tennessee primary election.`\
+https://www.nytimes.com/interactive/2026/08/06/us/elections/results-tennessee-us-house-5-primary.html
+
+**Tennessee Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Tennessee primary elections.`\
+https://www.nytimes.com/interactive/2026/08/06/us/elections/results-tennessee-primary.html
+
+**Tennessee Governor Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Tennessee primary election.`\
+https://www.nytimes.com/interactive/2026/08/06/us/elections/results-tennessee-governor-primary.html
+
+**Tennessee Second Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Tennessee primary election.`\
+https://www.nytimes.com/interactive/2026/08/06/us/elections/results-tennessee-us-house-2-primary.html
+
+**Tennessee First Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Tennessee primary election.`\
+https://www.nytimes.com/interactive/2026/08/06/us/elections/results-tennessee-us-house-1-primary.html
+
+**Tennessee Fourth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Tennessee primary election.`\
+https://www.nytimes.com/interactive/2026/08/06/us/elections/results-tennessee-us-house-4-primary.html
+
+**Tennessee Seventh Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Tennessee primary election.`\
+https://www.nytimes.com/interactive/2026/08/06/us/elections/results-tennessee-us-house-7-primary.html
+
+**Tennessee Eighth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Tennessee primary election.`\
+https://www.nytimes.com/interactive/2026/08/06/us/elections/results-tennessee-us-house-8-primary.html
+
+**Tennessee Third Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Tennessee primary election.`\
+https://www.nytimes.com/interactive/2026/08/06/us/elections/results-tennessee-us-house-3-primary.html
+
 **A Promising Heart Drug Fails, Challenging a Long-Held Theory of Disease**\
 `The drug targeted inflammation, and its shocking failure has experts questioning whether inflammation really does cause heart disease.`\
 https://www.nytimes.com/2026/08/06/health/heart-disease-drug-fails-novo-nordisk.html
@@ -153,48 +197,4 @@ https://www.nytimes.com/2026/08/06/opinion/us-saudi-arabia-nuclear-deal.html
 **Le dije a mi paciente que no regresaría a casa. Me equivoqué**\
 `Cuando los médicos nos apresuramos a dar certezas sobre cómo progresará la enfermedad de un paciente, corremos el riesgo de cerrar posibilidades.`\
 https://www.nytimes.com/es/2026/08/06/espanol/opinion/doctores-pacientes-terminales.html
-
-**Alcohol. Manliness. Flushable Wipes. Since When Are These ‘Scams’?**\
-`Americans have been taken with scams for years. Now, the word is being used for any system that ends with somebody profiting at their expense.`\
-https://www.nytimes.com/2026/08/06/magazine/scams-origins.html
-
-**36 Hours in Chicago: Things to Do and See**\
-`The city shines in the summertime — and this year’s light is especially bright, thanks in part to a new presidential center.`\
-https://www.nytimes.com/interactive/2026/08/06/travel/things-to-do-chicago.html
-
-**Corrections: Aug. 6, 2026**\
-`Corrections that appeared in print on Thursday, Aug. 6, 2026.`\
-https://www.nytimes.com/2026/08/06/pageoneplus/corrections-aug-6-2026.html
-
-**‘Avatar Aang: The Last Airbender’ Shows How to Beat Franchise Fatigue**\
-`There have been ups and downs, including a widely reviled big-screen disaster. But the latest film shows a story that is headed in the right direction.`\
-https://www.nytimes.com/2026/08/06/movies/avatar-aang-the-last-airbender.html
-
-**How Ukrainians Are Using Social Media to Track Russian Ballistic Missiles**\
-`Using dozens of Telegram social media channels, Ukrainians have learned to game Russian air attacks over nearly four and a half years of war.`\
-https://www.nytimes.com/interactive/2026/08/06/world/europe/russia-ukraine-war-kyiv-telegram.html
-
-**On PBS Kids, Jacqueline Woodson Reminds Children Their Stories Matter**\
-`A new animated special, “The Day You Begin,” based on the best-selling picture book, emphasizes the richness that diversity brings to a community.`\
-https://www.nytimes.com/2026/08/06/arts/television/jacqueline-woodson-the-day-you-begin-pbs-kids.html
-
-**Follow the Markets and Track Stocks With These Free Apps**\
-`Google Finance and Apple’s Stocks app have added new features over the years to make them more useful for tracking the markets and your investments.`\
-https://www.nytimes.com/2026/08/06/technology/personaltech/finance-stocks-apps.html
-
-**Why a Coast Guard Boat Came to Times Square**\
-`The 31-foot-long vessel and some replica weapons recalling those used in the War of 1812 featured in a celebration that looks ahead to a new Coast Guard museum.`\
-https://www.nytimes.com/2026/08/06/nyregion/coast-guard-boat-museum.html
-
-**Scott Galloway: America Abandoned Its ‘Unremarkable’ Young Men**\
-`And what society can do to help a struggling generation.`\
-https://www.nytimes.com/2026/08/06/opinion/ross-douthat-scott-galloway-masculinity.html
-
-**Tarot Was a Courtly Card Game. How Did It Become a Tool for Divination?**\
-`A Morgan Library & Museum exhibition explores the origins of a popular tradition that has drawn occultists and everyday people alike.`\
-https://www.nytimes.com/2026/08/06/arts/design/tarot-cards-morgan.html
-
-**Homes for Sale in New York and Connecticut**\
-`This week’s properties are a six-bedroom house in Pelham, N.Y., and a three-bedroom townhouse in New Canaan, Conn.`\
-https://www.nytimes.com/2026/08/06/realestate/housing-market-near-nyc.html
 
