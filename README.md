@@ -118,8 +118,8 @@ https://www.nytimes.com/2026/08/06/technology/personaltech/finance-stocks-apps.h
 `The 31-foot-long vessel and some replica weapons recalling those used in the War of 1812 featured in a celebration that looks ahead to a new Coast Guard museum.`\
 https://www.nytimes.com/2026/08/06/nyregion/coast-guard-boat-museum.html
 
-**Scott Galloway on What It Takes to Raise Good Men**\
-`The author and academic attributes some of his success to a system that supported “unremarkable” young men.`\
+**Scott Galloway: America Abandoned Its ‘Unremarkable’ Young Men**\
+`And what society can do to help a struggling generation.`\
 https://www.nytimes.com/2026/08/06/opinion/ross-douthat-scott-galloway-masculinity.html
 
 **Tarot Was a Courtly Card Game. How Did It Become a Tool for Divination?**\
