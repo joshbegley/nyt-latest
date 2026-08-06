@@ -90,13 +90,13 @@ https://www.nytimes.com/interactive/2026/08/06/travel/things-to-do-chicago.html
 `Corrections that appeared in print on Thursday, Aug. 6, 2026.`\
 https://www.nytimes.com/2026/08/06/pageoneplus/corrections-aug-6-2026.html
 
-**‘Avatar Aang: The Last Airbender’ Shows How to Beat Franchise Fatigue**\
-`There have been ups and downs, including a widely reviled big-screen disaster. But the latest film shows a story that is headed in the right direction.`\
-https://www.nytimes.com/2026/08/06/movies/avatar-aang-the-last-airbender.html
-
 **How Ukrainians Are Using Social Media to Track Russian Ballistic Missiles**\
 `Using dozens of Telegram social media channels, Ukrainians have learned to game Russian air attacks over nearly four and a half years of war.`\
 https://www.nytimes.com/interactive/2026/08/06/world/europe/russia-ukraine-war-kyiv-telegram.html
+
+**‘Avatar Aang: The Last Airbender’ Shows How to Beat Franchise Fatigue**\
+`There have been ups and downs, including a widely reviled big-screen disaster. But the latest film shows a story that is headed in the right direction.`\
+https://www.nytimes.com/2026/08/06/movies/avatar-aang-the-last-airbender.html
 
 **On PBS Kids, Jacqueline Woodson Reminds Children Their Stories Matter**\
 `A new animated special, “The Day You Begin,” based on the best-selling picture book, emphasizes the richness that diversity brings to a community.`\

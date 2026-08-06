@@ -1,3 +1,11 @@
+**‘Our Drug Is Wagner’: Bayreuth Festival Draws the Composer’s Fiercest Fans**\
+`As the Bayreuth Festival celebrates 150 years, Wagnerians from around the globe brave heat, hard seats and a complex history for a unique music tradition.`\
+https://www.nytimes.com/2026/08/06/arts/music/bayreuth-festival-wagner-rienzi-germany.html
+
+**Follow the Markets and Track Stocks With These Free Apps**\
+`Google Finance and Apple’s Stocks app have added new features over the years to make them more useful for tracking the markets and your investments.`\
+https://www.nytimes.com/2026/08/06/technology/personaltech/finance-stocks-apps.html
+
 **N.Y. Doctor Sentenced in Japan for Vandalizing Ancient Religious Sites**\
 `Masahide Kanayama, a surgeon and an expert in endometriosis, received an 18-month suspended sentence after a court found him guilty of damaging the sites.`\
 https://www.nytimes.com/2026/08/06/world/asia/japan-vandalism-doctor-prison-sentence.html
