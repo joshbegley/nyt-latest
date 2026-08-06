@@ -1,3 +1,11 @@
+**Insults, Expletives and Fat-Shaming: Vance Trolls Critics on the Right and Left**\
+`The vice president has dispensed with the decorum and restraint of his predecessors to directly take on opponents and journalists on social media with sometimes profane and often personal jabs.`\
+https://www.nytimes.com/2026/08/06/us/politics/jd-vance-insults.html
+
+****\
+`Humanoid robots are still a nascent technology, but they are expected to operate in more environments like factories, warehouses, stores and, eventually, homes.`\
+https://www.nytimes.com/video/embedded/business/100000011076861/Biz-China-Robot-IPO-video-2.html
+
 **Sydney Towle, Who Chronicled Her Cancer on TikTok, Dies at 26**\
 `For an audience that grew to more than a million followers, she challenged assumptions about how people with serious illnesses should look and live.`\
 https://www.nytimes.com/2026/08/06/style/sydney-towle-dead.html

@@ -1,3 +1,7 @@
+**Insults, Expletives and Fat-Shaming: Vance Trolls Critics on the Right and Left**\
+`The vice president has dispensed with the decorum and restraint of his predecessors to directly take on opponents and journalists on social media with sometimes profane and often personal jabs.`\
+https://www.nytimes.com/2026/08/06/us/politics/jd-vance-insults.html
+
 **Teach Writing With The New York Times: Our 2026-27 Curriculum**\
 `Our writing units are based on real-world features like narratives, opinion essays, podcasts, informational videos and more.`\
 https://www.nytimes.com/2026/08/06/learning/lesson-plans/teach-writing-with-the-new-york-times-our-2026-27-curriculum.html
@@ -39,7 +43,7 @@ https://www.nytimes.com/video/embedded/world/asia/100000011076383/06int-japan-ro
 https://www.nytimes.com/2026/08/06/world/europe/munich-car-attack-driver-sentence.html
 
 ****\
-`Humanoid robots are still a nascent technology, but they expected to operate in more environments like factories, warehouses, stores and, eventually, homes.`\
+`Humanoid robots are still a nascent technology, but they are expected to operate in more environments like factories, warehouses, stores and, eventually, homes.`\
 https://www.nytimes.com/video/embedded/business/100000011076861/Biz-China-Robot-IPO-video-2.html
 
 ****\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/06/movies/the-last-picture-shows-review.html
 **‘Olmo’ Review: A New Mexican Coming-of-Age Comedy**\
 `Fernando Eimbcke’s film, set in Las Cruces, finds tenderness and turmoil in a 1970s Mexican American household.`\
 https://www.nytimes.com/2026/08/06/movies/olmo-review-a-new-mexican-coming-of-age-comedy.html
-
-**‘Ice Cream Man’ Review: A Rocky Road to Hell**\
-`Sweet-faced kids who just want a treat turn into murderous maniacs in Eli Roth’s messy new horror film.`\
-https://www.nytimes.com/2026/08/06/movies/ice-cream-man-review.html
 
