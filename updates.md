@@ -1,3 +1,7 @@
+**Helicopter Carrying Trump Flew Near Passenger Jet in Washington Airspace**\
+`Marine One, the helicopter that ferries the president, came within less than a mile of an Envoy Air flight on Tuesday, raising new concerns about air traffic control in the congested area.`\
+https://www.nytimes.com/2026/08/05/us/politics/trump-helicopter-jet-marine-one.html
+
 **Bessent Declares Widening Gap Between Rich and Poor ‘Dead’**\
 `Despite data to the contrary, the Treasury Secretary made the case that the K-shaped economy no longer exists.`\
 https://www.nytimes.com/2026/08/05/business/bessent-wage-gap.html

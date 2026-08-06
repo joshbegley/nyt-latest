@@ -1,3 +1,7 @@
+**La CIA forma un grupo operativo secreto sobre Cuba**\
+`El equipo le permitirá a la agencia de espionaje dedicar rápidamente más recursos financieros, humanos y técnicos a la isla, con el objetivo de crear fisuras entre la élite política cubana.`\
+https://www.nytimes.com/es/2026/08/05/espanol/estados-unidos/cia-grupo-operativo-secreto-cuba.html
+
 **Bessent Declares Widening Gap Between Rich and Poor ‘Dead’**\
 `Despite data to the contrary, the Treasury Secretary made the case that the K-shaped economy no longer exists.`\
 https://www.nytimes.com/2026/08/05/business/bessent-wage-gap.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/05/nyregion/mamdani-nyc-free-child-care-preschoo
 **Tuskegee University Banned Bonnets and Durags. Students Mostly Wonder Why.**\
 `Students at Tuskegee University in Alabama objected to the school’s new dress code, saying it was unnecessary and misunderstood the campus culture.`\
 https://www.nytimes.com/2026/08/05/style/tuskegee-university-dress-code-durags-bonnets-hbcu.html
-
-**8 conclusiones de las primarias en Míchigan**\
-`Un candidato progresista se impuso por un margen estrecho sobre una candidata partidaria de Israel y los candidatos socialistas democráticos tuvieron resultados diversos.`\
-https://www.nytimes.com/es/2026/08/05/espanol/estados-unidos/primarias-michigan.html
 
