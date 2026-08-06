@@ -1,3 +1,7 @@
+**En ‘Ted Lasso’ Hannah Waddingham es implacable. Fuera de cámara, es encantadoramente boba**\
+`Hannah Waddingham es de las pocas actrices británicas en abrirse camino del teatro musical a la pantalla.`\
+https://www.nytimes.com/es/2026/08/06/espanol/cultura/ted-lasso-tercera-temporada-actriz.html
+
 **Were You Born After 9/11? We Want to Hear From You.**\
 `We’re writing about what Sept. 11 means to younger generations. Your insights can help.`\
 https://www.nytimes.com/2026/08/06/nyregion/born-after-sept-11.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/05/nyregion/delaney-hall-ice-what-we-know.html
 **Abdul El-Sayed Wins Michigan’s Democratic Senate Primary**\
 `Dr. El-Sayed, a former public health official, narrowly defeated Representative Haley Stevens, a four-term congressional moderate, in Michigan’s expensive Democratic Senate primary.`\
 https://www.nytimes.com/video/us/politics/100000011074395/el-sayed-michigan-senate-primary-race.html
-
-**Inside the Abdul El-Sayed Watch Party**\
-`Tim Balk joins Natalie Kitroeff on “The Call” from Michigan, where he attended the election night watch party of the Democratic Senate primary candidate Abdul El-Sayed. Mr. Balk spoke to supporters of the progressive Democrat as they waited for results in a closer-than-expected race.`\
-https://www.nytimes.com/video/us/elections/100000011075731/inside-the-abdul-el-sayed-watch-party.html
 

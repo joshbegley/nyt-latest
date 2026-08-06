@@ -1,3 +1,7 @@
+**En ‘Ted Lasso’ Hannah Waddingham es implacable. Fuera de cámara, es encantadoramente boba**\
+`Hannah Waddingham es de las pocas actrices británicas en abrirse camino del teatro musical a la pantalla.`\
+https://www.nytimes.com/es/2026/08/06/espanol/cultura/ted-lasso-tercera-temporada-actriz.html
+
 **Were You Born After 9/11? We Want to Hear From You.**\
 `We’re writing about what Sept. 11 means to younger generations. Your insights can help.`\
 https://www.nytimes.com/2026/08/06/nyregion/born-after-sept-11.html
