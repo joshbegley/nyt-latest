@@ -1,3 +1,7 @@
+**Union Representing IRS Workers Sues Over Trump’s Deal Granting Sweeping Tax Protections**\
+`The request was the first time that anyone had used the courts in an effort to directly kill the sweeping tax protections offered to the president and his family.`\
+https://www.nytimes.com/2026/08/06/us/irs-workers-lawsuit-trump-tax-protections.html
+
 **Scott Galloway’s Dating Advice**\
 `Scott Galloway is not a fan of incels. “For 99 percent of history, 99 percent of men have been involuntarily celibate for 99 percent of the time,” he says on “Interesting Times,” urging young men to fight for what they want — including sex. “It’s a motivator for us to be better men. No man has the right to reproduce. You got to work for it.”`\
 https://www.nytimes.com/video/opinion/100000011066438/scott-galloways-dating-advice.html
