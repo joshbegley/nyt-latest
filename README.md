@@ -1,3 +1,7 @@
+**‘Our Drug Is Wagner’: Bayreuth Festival Draws the Composer’s Fiercest Fans**\
+`As the Bayreuth Festival celebrates 150 years, Wagnerians from around the globe brave heat, hard seats and a complex history for a unique music tradition.`\
+https://www.nytimes.com/2026/08/06/arts/music/bayreuth-festival-wagner-rienzi-germany.html
+
 **N.Y. Doctor Sentenced in Japan for Vandalizing Ancient Religious Sites**\
 `Masahide Kanayama, a surgeon and an expert in endometriosis, received an 18-month suspended sentence after a court found him guilty of damaging the sites.`\
 https://www.nytimes.com/2026/08/06/world/asia/japan-vandalism-doctor-prison-sentence.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/06/arts/music/john-carpenter-cathedral-graphic-n
 **Word of the Day: kibosh**\
 `This word has appeared in eight articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/08/06/learning/word-of-the-day-kibosh.html
-
-**Incident at Texas School Underscores Concerns About Police Officers on Campuses**\
-`The incident, one of thousands of times that school officers in Texas have used physical force in recent years, underscores long-held concerns about policing in schools.`\
-https://www.nytimes.com/2026/08/06/us/converse-texas-school-officer-incident-policing.html
 
