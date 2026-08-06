@@ -1,3 +1,11 @@
+**Books Our Editors Loved This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://www.nytimes.com/2026/08/06/books/review/new-recommended-books.html
+
+**French Streamers Convicted in Case Related to Kick Livestream Death**\
+`The two men, users of the platform Kick, received suspended sentences and fines.`\
+https://www.nytimes.com/2026/08/06/world/europe/french-streamers-kick-death-convicted.html
+
 **Federal Judge Orders Pentagon to Lift Freeze on Wind Power**\
 `Since April, the Defense Department has halted all military reviews for wind projects, stalling dozens of projects nationwide.`\
 https://www.nytimes.com/2026/08/06/climate/pentagon-reviews-wind-farms-court-order.html
