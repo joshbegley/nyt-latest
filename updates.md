@@ -1,3 +1,7 @@
+**F.D.A. Approves Moderna’s mRNA Flu Vaccine**\
+`The agency had initially refused to even review the application but reversed course after a public outcry.`\
+https://www.nytimes.com/2026/08/05/health/mrna-flu-vaccine-moderna.html
+
 **NYT Crossword Answers for August 06, 2026**\
 `Dena R. Verkuil and John Kugelman put us in a sticky situation.`\
 https://www.nytimes.com/2026/08/05/crosswords/daily-puzzle-2026-08-06.html

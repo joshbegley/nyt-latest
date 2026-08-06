@@ -1,3 +1,7 @@
+**F.D.A. Approves Moderna’s mRNA Flu Vaccine**\
+`The agency had initially refused to even review the application but reversed course after a public outcry.`\
+https://www.nytimes.com/2026/08/05/health/mrna-flu-vaccine-moderna.html
+
 **NYT Crossword Answers for August 06, 2026**\
 `Dena R. Verkuil and John Kugelman put us in a sticky situation.`\
 https://www.nytimes.com/2026/08/05/crosswords/daily-puzzle-2026-08-06.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/05/opinion/adhd-autism-diagnosis-social-media.ht
 **Butterflies Take Flight in Face of Climate Change and Extreme Weather**\
 `In 32 of the countries included in a recent study, at least a quarter of the native butterfly species had moved to new areas.`\
 https://www.nytimes.com/2026/08/05/science/butterflies-climate-change-extreme-weather.html
-
-**Have We Turned Personality Into Diagnosis?**\
-`We’ve reached peak self-diagnosis culture.`\
-https://www.nytimes.com/video/opinion/100000011064628/always-late-tiktok-thinks-you-have-adhd.html
 
