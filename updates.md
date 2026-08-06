@@ -1,3 +1,11 @@
+**Ceuta y Fnideq, dos ciudades con una historia entrelazada**\
+`Ceuta, España, y Fnideq, Marruecos, están separadas físicamente por apenas un kilómetro y medio, pero las une la familia y el comercio. Una crisis fronteriza marca el capítulo más reciente de su historia.`\
+https://www.nytimes.com/es/2026/08/06/espanol/mundo/espana-marruecos-ceuta-fnideq-crisis-historia.html
+
+**Paxton and Talarico Offer Diverging Paths on Affordability**\
+`The candidates are seeking to win over voters with competing proposals on tax, housing and health care that are aimed at lowering household costs.`\
+https://www.nytimes.com/2026/08/06/us/texas-senate-talarico-paxton-taxes.html
+
 **Paxton and Talarico Offer Diverging Paths on Affordability**\
 `The candidates are seeking to win over voters with competing proposals on tax, housing and health care that are aimed at lowering household costs.`\
 https://www.nytimes.com/2026/08/06/us/paxton-and-talarico-offer-diverging-paths-on-affordability.html
