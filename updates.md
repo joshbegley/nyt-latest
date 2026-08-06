@@ -1,3 +1,7 @@
+**Scott Galloway: America Abandoned Its ‘Unremarkable’ Young Men**\
+`And what society can do to help a struggling generation.`\
+https://www.nytimes.com/2026/08/06/opinion/ross-douthat-scott-galloway-masculinity.html
+
 **What’s Behind the A.I. Shake-Up at Google**\
 `A new role for Demis Hassabis, the head of Google’s artificial intelligence unit, reflects reality at the tech giant. Investors remain worried.`\
 https://www.nytimes.com/2026/08/06/business/dealbook/hassabis-google-ai.html
