@@ -1,3 +1,7 @@
+**‘La Technique’ by Jacques Pépin Turns 50 Years Old**\
+`In his groundbreaking “La Technique,” Jacques Pépin showed Americans how to do everything from carving swans out of apples to breaking down lamb.`\
+https://www.nytimes.com/2026/08/06/dining/la-technique-cookbook-jacques-pepin.html
+
 **Hemp Fight Snarls Speedy Passage of Government Funding Bill**\
 `A White House effort to delay a ban on intoxicating hemp was holding up a final agreement on a bipartisan spending bill ahead of a monthlong Senate recess.`\
 https://www.nytimes.com/2026/08/06/us/politics/hemp-government-funding-bill.html
