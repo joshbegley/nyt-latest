@@ -1,3 +1,11 @@
+**Want to Run the N.Y.C. Marathon? You May Have to Enter Another Lottery**\
+`The race organizer announced changes to the 9+1 program, a popular method for guaranteed entry, for the 2028 marathon.`\
+https://www.nytimes.com/2026/08/06/nyregion/want-to-run-the-nyc-marathon-you-may-have-to-enter-another-lottery.html
+
+**The Real Reason Behind Trump’s Yen Intervention**\
+`The U.S. is bolstering the yen, as it did with the Argentine peso. The reasons are not solely economic.`\
+https://www.nytimes.com/2026/08/06/opinion/treasury-yen-trump-currency-economy.html
+
 **Woman Who Killed Husband 2 Decades Ago Admits to Murdering Wife**\
 `A California woman who was sentenced to 11 years in prison in 2004 pleaded guilty this week in another stabbing death.`\
 https://www.nytimes.com/2026/08/06/us/woman-murder-spouse-california.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/06/us/politics/rfk-jr-head-start-antipoverty-pro
 **The Sauces to Put on (and Under) Every Vegetable**\
 `(No description)`\
 https://www.nytimes.com/2026/08/06/dining/the-sauces-to-put-on-and-under-every-vegetable.html
-
-**Israeli Settler Charged in Death of Activist Awdah Hathaleen**\
-`The indictment was a rare case in which the Israeli authorities pressed charges against an Israeli in the killing of a Palestinian.`\
-https://www.nytimes.com/2026/08/06/world/middleeast/israel-settler-manslaughter-palestinian-activist.html
-
-**Amid Cyclospora Outbreak, Demand for Locally Grown Lettuce Surges**\
-`Small produce stands and farmers’ markets are seeing a surge in demand for leafy greens as sales of lettuce and salad kits from grocery chains and big retailers drop.`\
-https://www.nytimes.com/2026/08/06/business/cyclospora-lettuce-local-produce.html
 
