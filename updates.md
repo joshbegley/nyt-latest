@@ -1,3 +1,7 @@
+**Texas apuesta por más policías en las escuelas. Este caso muestra los riesgos de esa estrategia**\
+`El enfrentamiento entre un oficial y un estudiante de 15 años, grabado en video, ilustra los riesgos de la presencia policial en las aulas texanas.`\
+https://www.nytimes.com/es/2026/08/06/espanol/escuelas-policias-texas.html
+
 **Tennessee Sixth Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Tennessee primary election.`\
 https://www.nytimes.com/interactive/2026/08/06/us/elections/results-tennessee-us-house-6-primary.html
