@@ -1,3 +1,7 @@
+**A Promising Heart Drug Fails, Challenging a Long-Held Theory of Disease**\
+`The drug targeted inflammation, and its shocking failure has experts questioning whether inflammation really does cause heart disease.`\
+https://www.nytimes.com/2026/08/06/health/heart-disease-drug-fails-novo-nordisk.html
+
 **While Fighting Wildfires, They’re Also Fighting Illegal Drones**\
 `Aircraft violating restrictions have disrupted firefighting efforts in Spokane County, Wash., this week, officials said.`\
 https://www.nytimes.com/2026/08/06/us/spokane-wildfires-drones.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/06/arts/design/tarot-cards-morgan.html
 **Homes for Sale in New York and Connecticut**\
 `This week’s properties are a six-bedroom house in Pelham, N.Y., and a three-bedroom townhouse in New Canaan, Conn.`\
 https://www.nytimes.com/2026/08/06/realestate/housing-market-near-nyc.html
-
-**Homes for Sale in Manhattan and the Bronx**\
-`This week’s properties are in the Flatiron district, Yorkville and Riverdale.`\
-https://www.nytimes.com/2026/08/06/realestate/housing-market-nyc.html
 
