@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/opinion/100000011064788/06voters-georgia-cine.html
+
 **FIFA Executives Were Given Ultimatum to Approve World Cup Privatization Plan**\
 `The day before the World Cup final, key FIFA figures faced a stunning demand to sign off on a multibillion-dollar privatization project.`\
 https://www.nytimes.com/2026/08/06/business/fifa-world-cup-privatization.html
@@ -104,7 +108,7 @@ https://www.nytimes.com/2026/08/06/us/politics/the-docket-vanity-plates-speech.h
 
 **Fled to America at 11. Stole at 18. Deported to Vietnam at 44.**\
 `The Trump administration is sending back record numbers of Vietnamese, Laotians and Hmong. Many came to the United States as young war refugees and later committed crimes.`\
-https://www.nytimes.com/2026/08/06/us/politics/immigration-pardons-democratic-governors.html
+https://www.nytimes.com/2026/08/06/us/politics/deportations-southeast-asians-trump.html
 
 **Texas apuesta por más policías en las escuelas. Este caso muestra los riesgos de esa estrategia**\
 `El enfrentamiento entre un oficial y un estudiante de 15 años, grabado en video, ilustra los riesgos de la presencia policial en las aulas texanas.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/06/us/politics/jd-vance-insults.html
 **Teach Writing With The New York Times: Our 2026-27 Curriculum**\
 `Our writing units are based on real-world features like narratives, opinion essays, podcasts, informational videos and more.`\
 https://www.nytimes.com/2026/08/06/learning/lesson-plans/teach-writing-with-the-new-york-times-our-2026-27-curriculum.html
-
-**El Nino Might Mean More Storms Near California Than the Atlantic Coast**\
-`It hasn’t been that long since Hurricane Hilary made a run at Southern California. Could this year see a repeat?`\
-https://www.nytimes.com/2026/08/06/weather/pacific-hurricane-updates-el-nino.html
 
