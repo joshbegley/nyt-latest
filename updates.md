@@ -1,3 +1,7 @@
+**Trump Signs Executive Orders Targeting Birthright Citizenship**\
+`The orders come after the Supreme Court ruled June 30 that President Trump’s previous efforts to end birthright citizenship were unconstitutional.`\
+https://www.nytimes.com/2026/08/06/us/politics/trump-birthright-citizenship-tourism.html
+
 **Voter-Registration Error Could Cost Immigrants a Shot at a Green Card**\
 `New Jersey improperly added as many as 6,600 noncitizens to its voter rolls. Those people could now be forced out of the country.`\
 https://www.nytimes.com/2026/08/06/nyregion/noncitizen-voter-registration-green-card.html
