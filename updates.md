@@ -1,3 +1,11 @@
+**China’s Robots Know Kung Fu and Can Scale Walls. Can They Woo Investors?**\
+`Unitree Robotics wants to raise about $900 million in an I.P.O. that tests market interest in humanoid robots, a technology that wows but has yet to prove its viability.`\
+https://www.nytimes.com/2026/08/06/business/china-unitree-ipo-robot.html
+
+**Tennessee’s Andy Ogles Faces Well-Funded Opposition in House Primary Thursday**\
+`Representative Andy Ogles received President Trump’s endorsement, but his challenger, Charlie Hatcher, a former state agriculture commissioner, has the backing of Gov. Bill Lee.`\
+https://www.nytimes.com/2026/08/06/us/politics/tennessee-republican-primary-andy-ogles.html
+
 ****\
 `Humanoid robots are still a nascent technology, but they expected to operate in more environments like factories, warehouses, stores and, eventually, homes.`\
 https://www.nytimes.com/video/embedded/business/100000011076861/Biz-China-Robot-IPO-video-2.html

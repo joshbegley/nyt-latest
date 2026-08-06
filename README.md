@@ -1,3 +1,11 @@
+**Teach Writing With The New York Times: Our 2026-27 Curriculum**\
+`Our writing units are based on real-world features like narratives, opinion essays, podcasts, informational videos and more.`\
+https://www.nytimes.com/2026/08/06/learning/lesson-plans/teach-writing-with-the-new-york-times-our-2026-27-curriculum.html
+
+**El Nino Might Mean More Storms for California Than the Atlantic Coast**\
+`It hasn’t been that long since Hurricane Hilary made a run at Southern California. Could this year see a repeat?`\
+https://www.nytimes.com/2026/08/06/weather/pacific-hurricane-updates-el-nino.html
+
 **China’s Robots Know Kung Fu and Can Scale Walls. Can They Woo Investors?**\
 `Unitree Robotics wants to raise about $900 million in an I.P.O. that tests market interest in humanoid robots, a technology that wows but has yet to prove its viability.`\
 https://www.nytimes.com/2026/08/06/business/china-unitree-ipo-robot.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/06/movies/olmo-review-a-new-mexican-coming-of-ag
 **‘Ice Cream Man’ Review: A Rocky Road to Hell**\
 `Sweet-faced kids who just want a treat turn into murderous maniacs in Eli Roth’s messy new horror film.`\
 https://www.nytimes.com/2026/08/06/movies/ice-cream-man-review.html
-
-**‘Julian’ Review: Getting Married in 22 Countries**\
-`Cato Kusters’ feature debut recounts the abbreviated love story of the Belgian artist Fleur Pierets and her wife, Julian Boom, as they fight for gay rights abroad.`\
-https://www.nytimes.com/2026/08/06/movies/julian-review.html
-
-**Does He Have the Most Stressful Job in Sports?**\
-`Brian Cashman has presided over four titles and zero losing seasons. Yankees fans want more.`\
-https://www.nytimes.com/2026/08/06/magazine/yankees-brian-cashman.html
 

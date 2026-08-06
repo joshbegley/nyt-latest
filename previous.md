@@ -1,3 +1,7 @@
+**China’s Robots Know Kung Fu and Can Scale Walls. Can They Woo Investors?**\
+`Unitree Robotics wants to raise about $900 million in an I.P.O. that tests market interest in humanoid robots, a technology that wows but has yet to prove its viability.`\
+https://www.nytimes.com/2026/08/06/business/china-unitree-ipo-robot.html
+
 **Sydney Towle, Who Chronicled Her Cancer on TikTok, Dies at 26**\
 `For an audience that grew to more than a million followers, she challenged assumptions of how people with serious illnesses should look and live.`\
 https://www.nytimes.com/2026/08/06/style/sydney-towle-dead.html
@@ -92,7 +96,7 @@ https://www.nytimes.com/es/2026/08/06/espanol/mundo/china-tabaquismo-cigarros-fu
 
 **Tennessee’s Andy Ogles Faces Well-Funded Opposition in House Primary Thursday**\
 `Representative Andy Ogles received President Trump’s endorsement, but his challenger, Charlie Hatcher, a former state agriculture commissioner, has the backing of Gov. Bill Lee.`\
-https://www.nytimes.com/2026/08/06/us/politics/ogles-primary-tennessee.html
+https://www.nytimes.com/2026/08/06/us/politics/tennessee-republican-primary-andy-ogles.html
 
 **Madonna Returns as Queen of the Club**\
 `The pop icon dances her way back to the top of the charts.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/06/movies/julian-review.html
 **Does He Have the Most Stressful Job in Sports?**\
 `Brian Cashman has presided over four titles and zero losing seasons. Yankees fans want more.`\
 https://www.nytimes.com/2026/08/06/magazine/yankees-brian-cashman.html
-
-**‘The Big Cheese’ Review: Who Will Become the World’s Best Cheesemonger?**\
-`In this documentary, a team is determined to help the United States finally claim top honors at a fierce competition in France.`\
-https://www.nytimes.com/2026/08/06/movies/the-big-cheese-review.html
 
