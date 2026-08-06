@@ -1,3 +1,7 @@
+**James R. Urbaniak, Master of Stitching Back Fingers, Dies at 90**\
+`He was among the first to perform microscopic surgery in the 1970s and revolutionized techniques to treat traumatic injuries.`\
+https://www.nytimes.com/2026/08/06/science/james-urbaniak-dead.html
+
 **¿Por qué cada vez más mujeres jóvenes desarrollan enfermedades cardíacas?**\
 `Las tasas van en aumento, pero la prevención es posible. Esto es lo que recomiendan los expertos.`\
 https://www.nytimes.com/es/2026/08/06/espanol/estilos-de-vida/mujeres-jovenes-enfermedades-cardiacas.html
@@ -82,7 +86,7 @@ https://www.nytimes.com/interactive/2026/08/06/us/elections/results-tennessee-us
 `The drug targeted inflammation, and its shocking failure has experts questioning whether inflammation really does cause heart disease.`\
 https://www.nytimes.com/2026/08/06/health/heart-disease-drug-fails-novo-nordisk.html
 
-**While Fighting Wildfires, They’re Also Fighting Illegal Drones**\
+**A Growing Problem in Fighting Wildfires: Drones**\
 `Aircraft violating restrictions have disrupted firefighting efforts in Spokane County, Wash., this week, officials said.`\
 https://www.nytimes.com/2026/08/06/us/spokane-wildfires-drones.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/06/world/europe/le-porge-france-fires-village.ht
 **Las 48 horas que cambiaron a Venezuela**\
 `El gobierno venezolano recurrió al mundo para responder al doblete sísmico. Pero años de presupuestos cada vez más reducidos y represión política debilitaron su capacidad para rescatar a la gente en los escombros.`\
 https://www.nytimes.com/es/2026/08/06/espanol/america-latina/sismos-venezuela-primeras-48-horas.html
-
-**From John Derian, a Playful Collection of Leaf-Shaped Rugs**\
-`Plus: brass flower sculptures, a new restaurant in Crete and more recommendations from T Magazine.`\
-https://www.nytimes.com/2026/08/06/t-magazine/john-derian-leaf-rug.html
 

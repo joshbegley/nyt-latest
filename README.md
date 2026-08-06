@@ -1,3 +1,7 @@
+**Muere Sydney Towle, que compartió su experiencia con el cáncer en TikTok, a los 26 años**\
+`Para un público que creció a más de un millón de seguidores, desafió las suposiciones sobre cómo deberían verse y vivir las personas con enfermedades graves.`\
+https://www.nytimes.com/es/2026/08/06/espanol/estilos-de-vida/muere-sydney-towle-tiktok.html
+
 **James R. Urbaniak, Master of Stitching Back Fingers, Dies at 90**\
 `He was among the first to perform microscopic surgery in the 1970s and revolutionized techniques to treat traumatic injuries.`\
 https://www.nytimes.com/2026/08/06/science/james-urbaniak-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/06/world/europe/ukraine-russia-missile-defense-p
 **Fires Wrecked Their Village in France. Now They Want Answers.**\
 `After fleeing France’s worst wildfire in decades, residents of Le Porge, a village west of Bordeaux, returned home 13 days later. They found a town in ruins.`\
 https://www.nytimes.com/2026/08/06/world/europe/le-porge-france-fires-village.html
-
-**Las 48 horas que cambiaron a Venezuela**\
-`El gobierno venezolano recurrió al mundo para responder al doblete sísmico. Pero años de presupuestos cada vez más reducidos y represión política debilitaron su capacidad para rescatar a la gente en los escombros.`\
-https://www.nytimes.com/es/2026/08/06/espanol/america-latina/sismos-venezuela-primeras-48-horas.html
 
