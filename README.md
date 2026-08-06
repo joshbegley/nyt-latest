@@ -1,3 +1,7 @@
+**Ukraine Is Pleading for Air Defenses. Will the World Listen Anymore?**\
+`Western allies are more hesitant to give up interceptor missiles they may need for their own defense as war rages on multiple fronts.`\
+https://www.nytimes.com/2026/08/06/world/europe/ukraine-russia-missile-defense-patriots.html
+
 **Fires Wrecked Their Village in France. Now They Want Answers.**\
 `After fleeing France’s worst wildfire in decades, residents of Le Porge, a village west of Bordeaux, returned home 13 days later. They found a town in ruins.`\
 https://www.nytimes.com/2026/08/06/world/europe/le-porge-france-fires-village.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/06/well/shambhala-music-festival-drugs-ketamine-
 **Two French Women Are Focused on Their Brand, Version Watches**\
 `Cybèle Vigneron and Carla Lanfranchini have spent the past two years developing their brand.`\
 https://www.nytimes.com/2026/08/06/fashion/version-watches-france.html
-
-**India Moves Up in the Luxury Watch World**\
-`Changing retail, growing consumer wealth and a scheduled end to Swiss tariffs have improved the country’s ranking among watch importers.`\
-https://www.nytimes.com/2026/08/06/fashion/india-imports-swiss-watches.html
 
