@@ -1,3 +1,7 @@
+**This A.I. Just Created Viruses Not Found in Nature**\
+`Scientists trained artificial intelligence on libraries of DNA and then asked the model to create recipes for viral genomes. Sixteen of them were viable, yielding new viruses.`\
+https://www.nytimes.com/2026/08/06/science/ai-viruses-bacteria-arc.html
+
 **Capybaras Were the Newest Lobbyists in This Brazilian Legislature**\
 `In Mato Grosso, Brazil, capybaras wandered into the building, but they were polite during the incursion.`\
 https://www.nytimes.com/2026/08/06/world/americas/capybara-brazil-legislature.html
@@ -26,8 +30,8 @@ https://www.nytimes.com/2026/08/06/upshot/military-promotions-women-hegseth.html
 `Nosing around a book fair for inspiration, a reporter found a firsthand account of one of humanity’s gravest acts, with traces of a journalist’s hand.`\
 https://www.nytimes.com/2026/08/06/insider/enola-gay-hiroshima-pilot.html
 
-**Houthi Strikes on Yemeni Military Threaten to Reignite Civil War**\
-`The Iran-backed militia said they had targeted the armed forces in two resource-rich provinces, as escalating violence in Yemen imperils a fragile truce.`\
+**Houthi Attacks on Yemeni Military Threaten to Reignite Civil War**\
+`The Iranian-backed militia said it had targeted the armed forces in two resource-rich provinces, as escalating violence in Yemen imperils a fragile truce.`\
 https://www.nytimes.com/2026/08/06/world/middleeast/houthi-yemen-strikes.html
 
 **Trump Administration to Deregulate Head Start, Antipoverty Program Created Under R.F.K. Jr.’s Uncle**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/embedded/world/asia/100000011076383/06int-japan-ro
 **Driver in Munich Car Ramming Attack Given Life in Prison**\
 `The attack, in 2025, was one of several carried out in Germany in recent years by men with migrant backgrounds, shaking the public’s sense of safety.`\
 https://www.nytimes.com/2026/08/06/world/europe/munich-car-attack-driver-sentence.html
-
-****\
-`Humanoid robots are still a nascent technology, but they are expected to operate in more environments like factories, warehouses, stores and, eventually, homes.`\
-https://www.nytimes.com/video/embedded/business/100000011076861/Biz-China-Robot-IPO-video-2.html
 

@@ -1,3 +1,11 @@
+**This A.I. Just Created Viruses Not Found in Nature**\
+`Scientists trained artificial intelligence on libraries of DNA and then asked the model to create recipes for viral genomes. Sixteen of them were viable, yielding new viruses.`\
+https://www.nytimes.com/2026/08/06/science/ai-viruses-bacteria-arc.html
+
+**Houthi Attacks on Yemeni Military Threaten to Reignite Civil War**\
+`The Iranian-backed militia said it had targeted the armed forces in two resource-rich provinces, as escalating violence in Yemen imperils a fragile truce.`\
+https://www.nytimes.com/2026/08/06/world/middleeast/houthi-yemen-strikes.html
+
 **Capybaras Were the Newest Lobbyists in This Brazilian Legislature**\
 `In Mato Grosso, Brazil, capybaras wandered into the building, but they were polite during the incursion.`\
 https://www.nytimes.com/2026/08/06/world/americas/capybara-brazil-legislature.html
