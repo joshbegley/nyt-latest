@@ -1,3 +1,11 @@
+**The Sauces to Put on (and Under) Every Vegetable**\
+`(No description)`\
+https://www.nytimes.com/2026/08/06/dining/the-sauces-to-put-on-and-under-every-vegetable.html
+
+**Israeli Settler Charged in Death of Activist Awdah Hathaleen**\
+`The indictment was a rare case in which the Israeli authorities pressed charges against an Israeli in the killing of a Palestinian.`\
+https://www.nytimes.com/2026/08/06/world/middleeast/israel-settler-manslaughter-palestinian-activist.html
+
 **Amid Cyclospora Outbreak, Demand for Locally Grown Lettuce Surges**\
 `Small produce stands and farmers’ markets are seeing a surge in demand for leafy greens as sales of lettuce and salad kits from grocery chains and big retailers drop.`\
 https://www.nytimes.com/2026/08/06/business/cyclospora-lettuce-local-produce.html

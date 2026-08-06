@@ -1,3 +1,11 @@
+**Houthi Strikes on Yemeni Military Threaten to Reignite Civil War**\
+`The Iran-backed militia said they had targeted the armed forces in two resource-rich provinces, as escalating violence in Yemen imperils a fragile truce.`\
+https://www.nytimes.com/2026/08/06/world/middleeast/houthi-strikes-on-yemeni-military-threaten-to-reignite-civil-war.html
+
+**Trump Administration to Deregulate Head Start, Antipoverty Program Created Under R.F.K. Jr.’s Uncle**\
+`While administration officials say the changes will save money by lifting onerous requirements, advocates fear the anti-poverty program will be gutted.`\
+https://www.nytimes.com/2026/08/06/us/politics/rfk-jr-head-start-antipoverty-program.html
+
 **The Sauces to Put on (and Under) Every Vegetable**\
 `(No description)`\
 https://www.nytimes.com/2026/08/06/dining/the-sauces-to-put-on-and-under-every-vegetable.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/06/podcasts/the-daily/cyclospora-taylor-farms-le
 **A New Plan for Closer U.S.-Israel Military Cooperation, and the First mRNA Flu Vaccine**\
 `Plus, what happens when you have an A.I. boss.`\
 https://www.nytimes.com/2026/08/06/podcasts/the-headlines/a-new-plan-for-closer-us-israel-military-cooperation-and-the-first-mrna-flu-vaccine.html
-
-**NYT Connections Answers for August 7, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, Aug. 7, 2026.`\
-https://www.nytimes.com/2026/08/06/crosswords/connections-companion-1153.html
-
-**NYT Strands Hints for Aug. 7, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, Aug. 7, 2026.`\
-https://www.nytimes.com/2026/08/06/crosswords/strands-sidekick-887.html
 
