@@ -1,3 +1,7 @@
+**Annelise Camp, Whose Family Sued to Stop Brain Death Test After Drowning, Has Died**\
+`The case of 2-year-old Annelise Camp, who was found unconscious in May, drew the backing of anti-abortion activists. On Monday, the family decided to remove life support.`\
+https://www.nytimes.com/2026/08/06/us/annelise-camp-dead-drowning-brain-death.html
+
 **‘La Technique’ by Jacques Pépin Turns 50 Years Old**\
 `In his groundbreaking “La Technique,” Jacques Pépin showed Americans how to do everything from carving swans out of apples to breaking down lamb.`\
 https://www.nytimes.com/2026/08/06/dining/la-technique-cookbook-jacques-pepin.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/embedded/business/100000011076861/Biz-China-Robot-
 ****\
 `Investors are betting that humanoid robots built to look and move like humans will become the next major breakthrough.`\
 https://www.nytimes.com/video/embedded/business/100000011076857/Biz-China-Robot-IPO-Video1.html
-
-**What’s Behind the A.I. Shake-Up at Google**\
-`A new role for Demis Hassabis, the head of Google’s artificial intelligence unit, reflects reality at the tech giant. Investors remain worried.`\
-https://www.nytimes.com/2026/08/06/business/dealbook/hassabis-google-ai.html
 
