@@ -1,3 +1,11 @@
+**What’s Behind the A.I. Shake-Up at Google**\
+`A new role for Demis Hassabis, the head of Google’s artificial intelligence unit, reflects reality at the tech giant. Investors remain worried.`\
+https://www.nytimes.com/2026/08/06/business/dealbook/hassabis-google-ai.html
+
+**A Trans Woman Pulled a Gun and Started a ‘Stand Your Ground’ Debate**\
+`Gun-friendly Wyoming has a “stand your ground” statute that allows people to use force to defend themselves. So why is a trans woman being prosecuted after being shoved to the ground?`\
+https://www.nytimes.com/2026/08/06/us/transgender-gun-rights-wyoming.html
+
 **A.I. Gas Guzzlers**\
 `We look at what’s powering data centers.`\
 https://www.nytimes.com/2026/08/06/briefing/data-centers-gas-power.html
