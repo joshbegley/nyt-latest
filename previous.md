@@ -1,3 +1,11 @@
+**Can Robots Save Japan’s Aging Cherry Blossom Farmers?**\
+`Monster Wolf and Pochi are among the robots deployed to scare away bears and transport cherry blossoms in a northern region where many farmers are in their 70s or older.`\
+https://www.nytimes.com/2026/08/06/world/asia/japan-ai-robot-cherry-blossoms.html
+
+****\
+`A mechanical wolf robot used to ward off bears and wild boars at a farm Yamagata, Japan.`\
+https://www.nytimes.com/video/embedded/world/asia/100000011076383/06int-japan-robot-lighter-25027.html
+
 **Driver in Munich Car Ramming Attack Given Life in Prison**\
 `The attack, in 2025, was one of several carried out in Germany in recent years by men with migrant backgrounds, shaking the public’s sense of safety.`\
 https://www.nytimes.com/2026/08/06/world/europe/munich-car-attack-driver-sentence.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/06/us/transgender-gun-rights-wyoming.html
 **Where Election Deniers Are County Election Officials**\
 `Our politics reporter Nick Corasaniti discusses a Times analysis of a Voting Rights Lab database identifying county-level election officials overseeing key midterm elections who are also affiliated with the election-denier movement.`\
 https://www.nytimes.com/video/us/100000011049676/where-election-deniers-are-county-election-officials.html
-
-**How Much of N.Y.C. Is Covered by Trees? Not Enough.**\
-`A goal to improve and expand the city’s tree canopy lacks a solid plan and the money to enact one.`\
-https://www.nytimes.com/2026/08/06/realestate/nyc-trees-canopy-parks.html
-
-**These Retro Sweatpants Are Having a Moment Everywhere, But Especially in the Hamptons**\
-`In quiet luxury Long Island, $168 Y2K logo sweats are having an unexpected renaissance.`\
-https://www.nytimes.com/2026/08/06/style/sweatpants-free-city-hamptons-retro.html
 
