@@ -1,3 +1,11 @@
+**El Nino Might Mean More Storms Near California Than the Atlantic Coast**\
+`It hasn’t been that long since Hurricane Hilary made a run at Southern California. Could this year see a repeat?`\
+https://www.nytimes.com/2026/08/06/weather/pacific-hurricane-updates-el-nino.html
+
+**China’s Unitree Prices IPO in Bet Investors Are Ready for Humanoid Robots**\
+`Unitree Robotics wants to raise about $900 million in an I.P.O. that tests market interest in humanoid robots, a technology that wows but has yet to prove its viability.`\
+https://www.nytimes.com/2026/08/06/business/china-unitree-ipo-robot.html
+
 **Insults, Expletives and Fat-Shaming: Vance Trolls Critics on the Right and Left**\
 `The vice president has dispensed with the decorum and restraint of his predecessors to directly take on opponents and journalists on social media with sometimes profane and often personal jabs.`\
 https://www.nytimes.com/2026/08/06/us/politics/jd-vance-insults.html
