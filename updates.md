@@ -1,3 +1,11 @@
+**Were You Born After 9/11? We Want to Hear From You.**\
+`We’re writing about what Sept. 11 means to younger generations. Your insights can help.`\
+https://www.nytimes.com/2026/08/06/nyregion/born-after-sept-11.html
+
+**NYT Spelling Bee Answers for August 6, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/08/06/crosswords/spelling-bee-forum.html
+
 **Ceuta y Fnideq, dos ciudades con una historia entrelazada**\
 `Ceuta, España, y Fnideq, Marruecos, están separadas físicamente por apenas un kilómetro y medio, pero las une la familia y el comercio. Una crisis fronteriza marca el capítulo más reciente de su historia.`\
 https://www.nytimes.com/es/2026/08/06/espanol/mundo/espana-marruecos-ceuta-fnideq-crisis-historia.html
