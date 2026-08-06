@@ -1,3 +1,11 @@
+**NYT Crossword Answers for August 06, 2026**\
+`Dena R. Verkuil and John Kugelman put us in a sticky situation.`\
+https://www.nytimes.com/2026/08/05/crosswords/daily-puzzle-2026-08-06.html
+
+**Fauci Faces Contempt of Congress Vote on Thursday**\
+`A Senate panel scheduled a vote after Dr. Anthony Fauci declined to answer questions at a hearing last week. Here are the legal issues involved.`\
+https://www.nytimes.com/2026/08/05/us/politics/fauci-contempt-vote-congress.html
+
 **Fauci Could Be Held in Contempt of Congress on Thursday**\
 `A Senate panel scheduled a vote after Dr. Anthony Fauci declined to answer questions at a hearing last week. Here are the legal issues involved.`\
 https://www.nytimes.com/2026/08/05/us/politics/fauci-contempt-vote-congress.html
