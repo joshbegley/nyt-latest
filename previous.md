@@ -1,3 +1,7 @@
+**Voter-Registration Error Could Cost Immigrants a Shot at a Green Card**\
+`New Jersey improperly added as many as 6,600 noncitizens to its voter rolls. Those people could now be forced out of the country.`\
+https://www.nytimes.com/2026/08/06/nyregion/noncitizen-voter-registration-green-card.html
+
 **Art Gallery Shows to See in August**\
 `This week in Newly Reviewed Carolina Miranda covers three shows in Los Angeles: a group exhibit with Tom of Finland at the center, Betye Saar’s “wearable art” and Esther Pearl Watson’s spaceships.`\
 https://www.nytimes.com/2026/08/06/arts/art-gallery-shows-to-see-in-august.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/06/science/james-urbaniak-dead.html
 **¿Por qué cada vez más mujeres jóvenes desarrollan enfermedades cardíacas?**\
 `Las tasas van en aumento, pero la prevención es posible. Esto es lo que recomiendan los expertos.`\
 https://www.nytimes.com/es/2026/08/06/espanol/estilos-de-vida/mujeres-jovenes-enfermedades-cardiacas.html
-
-**Where Gen Z Finds Meaning in Life**\
-`Readers respond to “Gen Z Fell Out of Love With Work. It’s Easy to See Why,” an Opinion guest essay by Emi Nietfeld. Also: Maligning Dr. Anthony Fauci.`\
-https://www.nytimes.com/2026/08/06/opinion/gen-z-work-life.html
 

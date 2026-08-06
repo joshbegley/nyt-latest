@@ -1,3 +1,7 @@
+**Voter-Registration Error Could Cost Immigrants a Shot at a Green Card**\
+`New Jersey improperly added as many as 6,600 noncitizens to its voter rolls. Those people could now be forced out of the country.`\
+https://www.nytimes.com/2026/08/06/nyregion/noncitizen-voter-registration-green-card.html
+
 **Art Gallery Shows to See in August**\
 `This week in Newly Reviewed Carolina Miranda covers three shows in Los Angeles: a group exhibit with Tom of Finland at the center, Betye Saar’s “wearable art” and Esther Pearl Watson’s spaceships.`\
 https://www.nytimes.com/2026/08/06/arts/art-gallery-shows-to-see-in-august.html
