@@ -1,3 +1,11 @@
+**Fires Wrecked Their Village in France. Now They Want Answers.**\
+`After fleeing France’s worst wildfire in decades, residents of Le Porge, a village west of Bordeaux, returned home 13 days later. They found a town in ruins.`\
+https://www.nytimes.com/2026/08/06/world/europe/le-porge-france-fires-village.html
+
+**‘Tony’ Review: An Appetite for Experiences**\
+`On 1970s Cape Cod, a young Anthony Bourdain chases love and finds his future in this rambunctious, utterly charming little movie.`\
+https://www.nytimes.com/2026/08/06/movies/tony-review-dominic-sessa.html
+
 **Las 48 horas que cambiaron a Venezuela**\
 `El gobierno venezolano recurrió al mundo para responder al doblete sísmico. Pero años de presupuestos cada vez más reducidos y represión política debilitaron su capacidad para rescatar a la gente en los escombros.`\
 https://www.nytimes.com/es/2026/08/06/espanol/america-latina/sismos-venezuela-primeras-48-horas.html
