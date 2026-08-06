@@ -1,3 +1,15 @@
+**Country Music Festival Lights Up Nairobi**\
+`Fans gathered in Kenya to celebrate a genre born far away but that more and more Africans are coming to appreciate.`\
+https://www.nytimes.com/2026/08/06/world/africa/country-music-nairobi-kenya-cowboys.html
+
+**Quote of the Day: A Bucolic London Suburb Feels the ‘Ted Lasso’ Effect**\
+`Quotation of the Day for Thursday, August 6, 2026.`\
+https://www.nytimes.com/2026/08/06/pageoneplus/quote-of-the-day-a-bucolic-london-suburb-feels-the-ted-lasso-effect.html
+
+**Europe’s Control of Its Fate Is Tested by Iran and Ukraine Wars, Wildfires and Migration**\
+`A brutal summer has exposed how much Britain, France, Spain and other European countries are under pressure from forces largely out of their control.`\
+https://www.nytimes.com/2026/08/06/world/europe/europe-war-wildfires-migration.html
+
 **Senate Panel Has Obtained Copy of Fauci’s Cellphone**\
 `The development comes as a Senate committee prepares to vote Thursday on whether to hold Dr. Anthony S. Fauci in contempt of Congress for refusing to answer questions at a hearing.`\
 https://www.nytimes.com/2026/08/05/us/politics/fauci-phone-senate.html
