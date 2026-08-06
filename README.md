@@ -1,3 +1,11 @@
+**Were You Born After 9/11? We Want to Hear From You.**\
+`We’re writing about what Sept. 11 means to younger generations. Your insights can help.`\
+https://www.nytimes.com/2026/08/06/nyregion/born-after-sept-11.html
+
+**NYT Spelling Bee Answers for August 6, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/08/06/crosswords/spelling-bee-forum.html
+
 **Ceuta y Fnideq, dos ciudades con una historia entrelazada**\
 `Ceuta, España, y Fnideq, Marruecos, están separadas físicamente por apenas un kilómetro y medio, pero las une la familia y el comercio. Una crisis fronteriza marca el capítulo más reciente de su historia.`\
 https://www.nytimes.com/es/2026/08/06/espanol/mundo/espana-marruecos-ceuta-fnideq-crisis-historia.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/us/politics/100000011074395/el-sayed-michigan-sena
 **Inside the Abdul El-Sayed Watch Party**\
 `Tim Balk joins Natalie Kitroeff on “The Call” from Michigan, where he attended the election night watch party of the Democratic Senate primary candidate Abdul El-Sayed. Mr. Balk spoke to supporters of the progressive Democrat as they waited for results in a closer-than-expected race.`\
 https://www.nytimes.com/video/us/elections/100000011075731/inside-the-abdul-el-sayed-watch-party.html
-
-**Where El-Sayed Showed Strengths, and Weaknesses, in the Michigan Primary**\
-`Dr. Abdul El-Sayed had a strong showing in college towns, while Representative Haley Stevens did well in Black urban centers.`\
-https://www.nytimes.com/2026/08/05/us/politics/michigan-primary-election-results-what-next.html
-
-**Abdul El-Sayed’s Winning New Political Uniform**\
-`Could the black T-shirt and jeans be the next big thing in Washington?`\
-https://www.nytimes.com/2026/08/05/style/abdul-el-sayed-fashion.html
 
