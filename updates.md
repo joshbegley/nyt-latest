@@ -1,3 +1,7 @@
+**Tennessee Sixth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Tennessee primary election.`\
+https://www.nytimes.com/interactive/2026/08/06/us/elections/results-tennessee-us-house-6-primary.html
+
 **Académico estrella renuncia a Cambridge, que investiga sus antecedentes**\
 `Jason Arday fue contratado en 2023 como el profesor negro más joven de la historia de la universidad. Ahora se han puesto en duda sus credenciales académicas y su historia de vida.`\
 https://www.nytimes.com/es/2026/08/06/espanol/cultura/arday-renuncia-cambridge.html
