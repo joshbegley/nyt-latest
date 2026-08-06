@@ -1,3 +1,15 @@
+**Handwritten Account of Hiroshima Bombing Is Up for Auction**\
+`Nosing around a book fair for inspiration, a reporter found a firsthand account of one of humanity’s gravest acts, with traces of a journalist’s hand.`\
+https://www.nytimes.com/2026/08/06/insider/enola-gay-hiroshima-pilot.html
+
+**Houthi Strikes on Yemeni Military Threaten to Reignite Civil War**\
+`The Iran-backed militia said they had targeted the armed forces in two resource-rich provinces, as escalating violence in Yemen imperils a fragile truce.`\
+https://www.nytimes.com/2026/08/06/world/middleeast/houthi-yemen-strikes.html
+
+**Trump Administration to Deregulate Head Start, Antipoverty Program Created Under R.F.K. Jr.’s Uncle**\
+`While administration officials say the changes will save money by lifting onerous requirements, advocates fear the anti-poverty program will be gutted.`\
+https://www.nytimes.com/2026/08/06/us/politics/rfk-jr-head-start-antipoverty-program.html
+
 **The Sauces to Put on (and Under) Every Vegetable**\
 `(No description)`\
 https://www.nytimes.com/2026/08/06/dining/the-sauces-to-put-on-and-under-every-vegetable.html

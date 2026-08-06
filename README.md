@@ -1,3 +1,7 @@
+**Under Hegseth, Women’s Share of Top Military Promotions Plunged This Year**\
+`The percentage of high-ranking officer nominations going to women is currently at its lowest level in over two decades.`\
+https://www.nytimes.com/2026/08/06/upshot/military-promotions-women-hegseth.html
+
 **Handwritten Account of Hiroshima Bombing Is Up for Auction**\
 `Nosing around a book fair for inspiration, a reporter found a firsthand account of one of humanity’s gravest acts, with traces of a journalist’s hand.`\
 https://www.nytimes.com/2026/08/06/insider/enola-gay-hiroshima-pilot.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/06/arts/music/bayreuth-festival-wagner-rienzi-ge
 **N.Y. Doctor Sentenced in Japan for Vandalizing Ancient Religious Sites**\
 `Masahide Kanayama, a surgeon and an expert in endometriosis, received an 18-month suspended sentence after a court found him guilty of damaging the sites.`\
 https://www.nytimes.com/2026/08/06/world/asia/japan-vandalism-doctor-prison-sentence.html
-
-**The Cyclospora Mystery: How Human Waste Got on So Much Lettuce**\
-`The parasite cyclospora, which spreads through food or water contaminated by human feces, has been traced to a Taylor Farms processing facility in Mexico.`\
-https://www.nytimes.com/2026/08/06/podcasts/the-daily/cyclospora-taylor-farms-lettuce.html
 
