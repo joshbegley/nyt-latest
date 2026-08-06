@@ -1,3 +1,7 @@
+**Senate Panel Votes to Hold Fauci in Contempt of Congress**\
+`The Senate Homeland Security Committee voted along party lines to hold Dr. Anthony Fauci in contempt of Congress on Thursday. The resolution accuses Dr. Fauci of failing to comply with a congressional subpoena after he refused to answer questions at a hearing last week.`\
+https://www.nytimes.com/video/us/politics/100000011077161/fauci-contempt-congress-vote.html
+
 **Trump’s Helicopter Flies Near Passenger Jet**\
 `On Tuesday, a passenger jet and a Marine One helicopter carrying President Trump flew near one another. Radio communications between Marine One and the air traffic control at Ronald Reagan National Airport indicate that some communications were garbled.`\
 https://www.nytimes.com/video/us/100000011077110/trump-helicopter-jet-marine-one-faa.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/08/06/us/elections/results-tennessee-us
 **Tennessee First Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Tennessee primary election.`\
 https://www.nytimes.com/interactive/2026/08/06/us/elections/results-tennessee-us-house-1-primary.html
-
-**Tennessee Fourth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Tennessee primary election.`\
-https://www.nytimes.com/interactive/2026/08/06/us/elections/results-tennessee-us-house-4-primary.html
 
