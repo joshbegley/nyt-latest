@@ -1,3 +1,31 @@
+**N.Y. Doctor Sentenced in Japan for Vandalizing Ancient Religious Sites**\
+`Masahide Kanayama, a surgeon and an expert in endometriosis, received an 18-month suspended sentence after a court found him guilty of damaging the sites.`\
+https://www.nytimes.com/2026/08/06/world/asia/japan-vandalism-doctor-prison-sentence.html
+
+**The Cyclospora Mystery: How Human Waste Got on So Much Lettuce**\
+`The parasite cyclospora, which spreads through food or water contaminated by human feces, has been traced to a Taylor Farms processing facility in Mexico.`\
+https://www.nytimes.com/2026/08/06/podcasts/the-daily/cyclospora-taylor-farms-lettuce.html
+
+**A New Plan for Closer U.S.-Israel Military Cooperation, and the First mRNA Flu Vaccine**\
+`Plus, what happens when you have an A.I. boss.`\
+https://www.nytimes.com/2026/08/06/podcasts/the-headlines/a-new-plan-for-closer-us-israel-military-cooperation-and-the-first-mrna-flu-vaccine.html
+
+**NYT Connections Answers for August 7, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Aug. 7, 2026.`\
+https://www.nytimes.com/2026/08/06/crosswords/connections-companion-1153.html
+
+**NYT Strands Hints for Aug. 7, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Aug. 7, 2026.`\
+https://www.nytimes.com/2026/08/06/crosswords/strands-sidekick-887.html
+
+**Today’s Wordle Hints for August 7, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Aug. 7, 2026.`\
+https://www.nytimes.com/2026/08/06/crosswords/wordle-review-1875.html
+
+**The Metropolitan Museum of Art Is Making a Very Bad Mistake**\
+`Is the Met Gala’s new theme antisemitism?`\
+https://www.nytimes.com/2026/08/06/opinion/met-gala-galliano-antisemitism.html
+
 **Ukraine Is Pleading for Air Defenses. Will the World Listen Anymore?**\
 `Western allies are more hesitant to give up interceptor missiles they may need for their own defense as war rages on multiple fronts.`\
 https://www.nytimes.com/2026/08/06/world/europe/ukraine-russia-missile-defense-patriots.html
