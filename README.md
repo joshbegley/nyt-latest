@@ -1,3 +1,7 @@
+**NYT Crossword Answers for August 06, 2026**\
+`Dena R. Verkuil and John Kugelman put us in a sticky situation.`\
+https://www.nytimes.com/2026/08/05/crosswords/daily-puzzle-2026-08-06.html
+
 **The Coalitions That Propelled El-Sayed’s Michigan Victory**\
 `Racial and ethnic splits, and a wide lead among younger voters, were enough for Dr. Abdul El-Sayed, a progressive, to hold off Haley Stevens, a moderate, in Michigan’s Democratic Senate primary.`\
 https://www.nytimes.com/interactive/2026/08/05/us/elections/el-sayed-michigan-senate-precinct-maps.html
@@ -34,7 +38,7 @@ https://www.nytimes.com/2026/08/05/us/politics/national-firearms-act-gun-control
 `Mayor Zohran Mamdani of New York said that Dr. Abdul El-Sayed’s close victory in the Michigan Senate primary put “working-class Americans back at the heart of our politics.”`\
 https://www.nytimes.com/2026/08/05/us/politics/el-sayed-mamdani-michigan-election.html
 
-**Fauci Could Be Held in Contempt of Congress on Thursday**\
+**Fauci Faces Contempt of Congress Vote on Thursday**\
 `A Senate panel scheduled a vote after Dr. Anthony Fauci declined to answer questions at a hearing last week. Here are the legal issues involved.`\
 https://www.nytimes.com/2026/08/05/us/politics/fauci-contempt-vote-congress.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/05/science/butterflies-climate-change-extreme-we
 **Have We Turned Personality Into Diagnosis?**\
 `We’ve reached peak self-diagnosis culture.`\
 https://www.nytimes.com/video/opinion/100000011064628/always-late-tiktok-thinks-you-have-adhd.html
-
-**Why Congress Wants a Closer U.S.-Israel Defense Partnership**\
-`A proposal making its way through Congress would integrate the U.S. and Israeli defense and intelligence apparatuses more tightly. Some worry that it is a bad idea.`\
-https://www.nytimes.com/2026/08/05/us/politics/congress-us-israel-defense-partnership.html
 
