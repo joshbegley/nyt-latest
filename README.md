@@ -1,3 +1,7 @@
+**‘La Technique’ by Jacques Pépin Turns 50 Years Old**\
+`In his groundbreaking “La Technique,” Jacques Pépin showed Americans how to do everything from carving swans out of apples to breaking down lamb.`\
+https://www.nytimes.com/2026/08/06/dining/la-technique-cookbook-jacques-pepin.html
+
 **Hemp Fight Snarls Speedy Passage of Government Funding Bill**\
 `A White House effort to delay a ban on intoxicating hemp was holding up a final agreement on a bipartisan spending bill ahead of a monthlong Senate recess.`\
 https://www.nytimes.com/2026/08/06/us/politics/hemp-government-funding-bill.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/embedded/business/100000011076857/Biz-China-Robot-
 **What’s Behind the A.I. Shake-Up at Google**\
 `A new role for Demis Hassabis, the head of Google’s artificial intelligence unit, reflects reality at the tech giant. Investors remain worried.`\
 https://www.nytimes.com/2026/08/06/business/dealbook/hassabis-google-ai.html
-
-**A.I. Gas Guzzlers**\
-`We look at what’s powering data centers.`\
-https://www.nytimes.com/2026/08/06/briefing/data-centers-gas-power.html
 

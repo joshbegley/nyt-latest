@@ -1,3 +1,11 @@
+**Hemp Fight Snarls Speedy Passage of Government Funding Bill**\
+`A White House effort to delay a ban on intoxicating hemp was holding up a final agreement on a bipartisan spending bill ahead of a monthlong Senate recess.`\
+https://www.nytimes.com/2026/08/06/us/politics/hemp-government-funding-bill.html
+
+**Trump Administration to Pay RWE to Cancel Wind Leases**\
+`It was the fifth such deal struck by the administration to get companies to drop offshore wind projects.`\
+https://www.nytimes.com/2026/08/06/climate/rwe-trump-offshore-wind-canceled.html
+
 **Under Hegseth, Women’s Share of Top Military Promotions Plunged This Year**\
 `The percentage of high-ranking officer nominations going to women is currently at its lowest level in over two decades.`\
 https://www.nytimes.com/2026/08/06/upshot/military-promotions-women-hegseth.html
