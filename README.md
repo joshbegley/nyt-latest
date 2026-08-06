@@ -1,3 +1,15 @@
+**Senate Panel Votes to Hold Fauci in Contempt**\
+`Also, an A.I. model created viruses not found in nature. Here’s the latest at the end of Thursday.`\
+https://www.nytimes.com/2026/08/06/briefing/senate-fauci-contempt-alaska-wave.html
+
+**Trump Issues Tariffs on Key Ingredient for Electronics and Solar Panels**\
+`The administration will impose a minimum import price for polysilicon, a key component for semiconductors and solar panels, as well as tariffs for products made with the material.`\
+https://www.nytimes.com/2026/08/06/us/politics/trump-tariffs-solar-panels.html
+
+**El problema legal de Fauci y cómo llegó hasta ahí**\
+`El científico está bajo intenso escrutinio por las decisiones que tomó para enfrentar la pandemia de la covid y su caso ha abierto un intenso debate sobre interpretaciones de la ley.`\
+https://www.nytimes.com/es/2026/08/06/espanol/estados-unidos/fauci-trump.html
+
 **Some House Republicans Are Backing a Challenger in Cory Mills’s Re-election Bid**\
 `Two Republican lawmakers have endorsed a primary opponent of Representative Cory Mills, who has been accused of assault and is under investigation by the House Ethics Committee.`\
 https://www.nytimes.com/2026/08/06/us/politics/republicans-endorse-cory-mills-opponent.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/08/06/us/politics/the-docket-vanity-plates-speech.h
 **Fled to America at 11. Stole at 18. Deported to Vietnam at 44.**\
 `The Trump administration is sending back record numbers of Vietnamese, Laotians and Hmong. Many came to the United States as young war refugees and later committed crimes.`\
 https://www.nytimes.com/2026/08/06/us/politics/deportations-southeast-asians-trump.html
-
-**Texas apuesta por más policías en las escuelas. Este caso muestra los riesgos de esa estrategia**\
-`El enfrentamiento entre un oficial y un estudiante de 15 años, grabado en video, ilustra los riesgos de la presencia policial en las aulas texanas.`\
-https://www.nytimes.com/es/2026/08/06/espanol/escuelas-policias-texas.html
-
-**Tennessee Sixth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Tennessee primary election.`\
-https://www.nytimes.com/interactive/2026/08/06/us/elections/results-tennessee-us-house-6-primary.html
-
-**Académico estrella renuncia a Cambridge, que investiga sus antecedentes**\
-`Jason Arday fue contratado en 2023 como el profesor negro más joven de la historia de la universidad. Ahora se han puesto en duda sus credenciales académicas y su historia de vida.`\
-https://www.nytimes.com/es/2026/08/06/espanol/cultura/arday-renuncia-cambridge.html
 
