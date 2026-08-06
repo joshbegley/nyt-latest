@@ -1,3 +1,11 @@
+**Hemp Fight Snarls Speedy Passage of Government Funding Bill**\
+`A White House effort to delay a ban on intoxicating hemp was holding up a final agreement on a bipartisan spending bill ahead of a monthlong Senate recess.`\
+https://www.nytimes.com/2026/08/06/us/politics/hemp-government-funding-bill.html
+
+**Trump Administration to Pay RWE to Cancel Wind Leases**\
+`It was the fifth such deal struck by the administration to get companies to drop offshore wind projects.`\
+https://www.nytimes.com/2026/08/06/climate/rwe-trump-offshore-wind-canceled.html
+
 **Under Hegseth, Women’s Share of Top Military Promotions Plunged This Year**\
 `The percentage of high-ranking officer nominations going to women is currently at its lowest level in over two decades.`\
 https://www.nytimes.com/2026/08/06/upshot/military-promotions-women-hegseth.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/06/business/dealbook/hassabis-google-ai.html
 **A.I. Gas Guzzlers**\
 `We look at what’s powering data centers.`\
 https://www.nytimes.com/2026/08/06/briefing/data-centers-gas-power.html
-
-**‘Our Drug Is Wagner’: Bayreuth Festival Draws the Composer’s Fiercest Fans**\
-`As the Bayreuth Festival celebrates 150 years, Wagnerians from around the globe brave heat, hard seats and a complex history for a unique music tradition.`\
-https://www.nytimes.com/2026/08/06/arts/music/bayreuth-festival-wagner-rienzi-germany.html
-
-**N.Y. Doctor Sentenced in Japan for Vandalizing Ancient Religious Sites**\
-`Masahide Kanayama, a surgeon and an expert in endometriosis, received an 18-month suspended sentence after a court found him guilty of damaging the sites.`\
-https://www.nytimes.com/2026/08/06/world/asia/japan-vandalism-doctor-prison-sentence.html
 
