@@ -1,3 +1,11 @@
+**Books Our Editors Loved This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://www.nytimes.com/2026/08/06/books/review/new-recommended-books.html
+
+**French Streamers Convicted in Case Related to Kick Livestream Death**\
+`The two men, users of the platform Kick, received suspended sentences and fines.`\
+https://www.nytimes.com/2026/08/06/world/europe/french-streamers-kick-death-convicted.html
+
 **Federal Judge Orders Pentagon to Lift Freeze on Wind Power**\
 `Since April, the Defense Department has halted all military reviews for wind projects, stalling dozens of projects nationwide.`\
 https://www.nytimes.com/2026/08/06/climate/pentagon-reviews-wind-farms-court-order.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/06/us/politics/fauci-contempt-of-congress.html
 **The ‘Heated Rivalry’ Star Hudson Williams Uplifts a Canadian Tire Bag**\
 `After the actor Hudson Williams was photographed carrying a plaid reusable shopping bag, priced under $2, the tote has become a viral fashion accessory.`\
 https://www.nytimes.com/2026/08/06/world/canada/hudson-williams-heated-rivalry-canadian-tire.html
-
-**Can Robots Save Japan’s Aging Cherry Blossom Farmers?**\
-`Monster Wolf and Pochi are among the robots deployed to scare away bears and transport cherry blossoms in a northern region where many farmers are in their 70s or older.`\
-https://www.nytimes.com/2026/08/06/world/asia/japan-ai-robot-cherry-blossoms.html
-
-****\
-`A mechanical wolf robot used to ward off bears and wild boars at a farm Yamagata, Japan.`\
-https://www.nytimes.com/video/embedded/world/asia/100000011076383/06int-japan-robot-lighter-25027.html
 
