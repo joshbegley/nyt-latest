@@ -1,3 +1,7 @@
+**A.I. Gas Guzzlers**\
+`We look at what’s powering data centers.`\
+https://www.nytimes.com/2026/08/06/briefing/data-centers-gas-power.html
+
 **‘Our Drug Is Wagner’: Bayreuth Festival Draws the Composer’s Fiercest Fans**\
 `As the Bayreuth Festival celebrates 150 years, Wagnerians from around the globe brave heat, hard seats and a complex history for a unique music tradition.`\
 https://www.nytimes.com/2026/08/06/arts/music/bayreuth-festival-wagner-rienzi-germany.html
