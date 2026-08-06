@@ -1,3 +1,15 @@
+**Senate Panel Votes to Hold Fauci in Contempt**\
+`Also, an A.I. model created viruses not found in nature. Here’s the latest at the end of Thursday.`\
+https://www.nytimes.com/2026/08/06/briefing/senate-fauci-contempt-alaska-wave.html
+
+**Trump Issues Tariffs on Key Ingredient for Electronics and Solar Panels**\
+`The administration will impose a minimum import price for polysilicon, a key component for semiconductors and solar panels, as well as tariffs for products made with the material.`\
+https://www.nytimes.com/2026/08/06/us/politics/trump-tariffs-solar-panels.html
+
+**El problema legal de Fauci y cómo llegó hasta ahí**\
+`El científico está bajo intenso escrutinio por las decisiones que tomó para enfrentar la pandemia de la covid y su caso ha abierto un intenso debate sobre interpretaciones de la ley.`\
+https://www.nytimes.com/es/2026/08/06/espanol/estados-unidos/fauci-trump.html
+
 **Some House Republicans Are Backing a Challenger in Cory Mills’s Re-election Bid**\
 `Two Republican lawmakers have endorsed a primary opponent of Representative Cory Mills, who has been accused of assault and is under investigation by the House Ethics Committee.`\
 https://www.nytimes.com/2026/08/06/us/politics/republicans-endorse-cory-mills-opponent.html
