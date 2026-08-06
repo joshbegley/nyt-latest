@@ -1,3 +1,7 @@
+**Mitch McConnell Discharged From Rehabilitation Facility**\
+`The Kentucky Republican has been absent from Congress for nearly two months after a health episode. He said he would continue recovering from home.`\
+https://www.nytimes.com/2026/08/06/us/politics/mitch-mcconnell-discharged-hospitalization-senate.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/opinion/100000011064788/06voters-georgia-cine.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/embedded/business/100000011077189/Biz-Europe-Rhine
 **Insults, Expletives and Fat-Shaming: Vance Trolls Critics on the Right and Left**\
 `The vice president has dispensed with the decorum and restraint of his predecessors to directly take on opponents and journalists on social media with sometimes profane and often personal jabs.`\
 https://www.nytimes.com/2026/08/06/us/politics/jd-vance-insults.html
-
-**Teach Writing With The New York Times: Our 2026-27 Curriculum**\
-`Our writing units are based on real-world features like narratives, opinion essays, podcasts, informational videos and more.`\
-https://www.nytimes.com/2026/08/06/learning/lesson-plans/teach-writing-with-the-new-york-times-our-2026-27-curriculum.html
 

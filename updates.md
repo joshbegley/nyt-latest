@@ -1,3 +1,11 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/opinion/100000011064788/06voters-georgia-cine.html
+
+**Fled to America at 11. Stole at 18. Deported to Vietnam at 44.**\
+`The Trump administration is sending back record numbers of Vietnamese, Laotians and Hmong. Many came to the United States as young war refugees and later committed crimes.`\
+https://www.nytimes.com/2026/08/06/us/politics/deportations-southeast-asians-trump.html
+
 **FIFA Executives Were Given Ultimatum to Approve World Cup Privatization Plan**\
 `The day before the World Cup final, key FIFA figures faced a stunning demand to sign off on a multibillion-dollar privatization project.`\
 https://www.nytimes.com/2026/08/06/business/fifa-world-cup-privatization.html
