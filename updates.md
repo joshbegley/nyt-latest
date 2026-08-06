@@ -1,3 +1,87 @@
+**A Trans Woman Brandished a Firearm. Gun Rights Devotion Disappeared.**\
+`Gun-friendly Wyoming has a “stand your ground” statute that allows people to use force to defend themselves. So why is a trans woman being prosecuted after being shoved to the ground?`\
+https://www.nytimes.com/2026/08/06/us/transgender-gun-rights-wyoming.html
+
+**Where Election Deniers Are County Election Officials**\
+`Our politics reporter Nick Corasaniti discusses a Times analysis of a Voting Rights Lab database identifying county-level election officials overseeing key midterm elections who are also affiliated with the election-denier movement.`\
+https://www.nytimes.com/video/us/100000011049676/where-election-deniers-are-county-election-officials.html
+
+**How Much of N.Y.C. Is Covered by Trees? Not Enough.**\
+`A goal to improve and expand the city’s tree canopy lacks a solid plan and the money to enact one.`\
+https://www.nytimes.com/2026/08/06/realestate/nyc-trees-canopy-parks.html
+
+**These Retro Sweatpants Are Having a Moment Everywhere, But Especially in the Hamptons**\
+`In quiet luxury Long Island, $168 Y2K logo sweats are having an unexpected renaissance.`\
+https://www.nytimes.com/2026/08/06/style/sweatpants-free-city-hamptons-retro.html
+
+**‘Late Fame’ Review: Lost Poet, Found Again**\
+`Willem Dafoe stars as a former poet charmed by a group of would-be young artists.`\
+https://www.nytimes.com/2026/08/06/movies/late-fame-review.html
+
+**‘Teenage Sex and Death at Camp Miasma’ Review: Gushing With Desire**\
+`Hannah Einbinder and Gillian Anderson star in an exhilarating tale of a filmmaker rebooting a problematic slasher franchise.`\
+https://www.nytimes.com/2026/08/06/movies/teenage-sex-and-death-at-camp-miasma-review.html
+
+**In Texas’ Most Eligible Senate Race, It’s Bachelor vs. Divorcé-to-Be**\
+`Ken Paxton is divorcing. James Talarico is dating a onetime staffer. Both have had their romantic lives scrutinized as part of their high-stakes campaigns.`\
+https://www.nytimes.com/2026/08/06/us/paxton-talarico-single-dating.html
+
+**John Carpenter Found a New Way to Give You Nightmares**\
+`The director of slasher films that defined horror from the 1970s through the ’90s realizes his latest work, “Cathedral,” as both a graphic novel and a hard-rock album.`\
+https://www.nytimes.com/2026/08/06/arts/music/john-carpenter-cathedral-graphic-novel-album.html
+
+**Word of the Day: kibosh**\
+`This word has appeared in eight articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/08/06/learning/word-of-the-day-kibosh.html
+
+**Incident at Texas School Underscores Concerns About Police Officers on Campuses**\
+`The incident, one of thousands of times that school officers in Texas have used physical force in recent years, underscores long-held concerns about policing in schools.`\
+https://www.nytimes.com/2026/08/06/us/converse-texas-school-officer-incident-policing.html
+
+**A Growing Number of Election Deniers Hold Key Local Roles in Midterms**\
+`These officials oversee or help administer elections in counties across the nation where competitive House and Senate races will determine control of Congress.`\
+https://www.nytimes.com/2026/08/06/us/politics/a-growing-number-of-election-deniers-hold-key-local-roles-in-midterms.html
+
+**The Vanity Table Makes a Comeback, Thanks to ‘Get Ready With Me’ Culture**\
+`After nearly disappearing from American homes, the dressing table is back — as TikTok influencers discover one of the world’s oldest stages.`\
+https://www.nytimes.com/2026/08/06/realestate/vanity-dressing-table-furniture-grwm.html
+
+**Why So Many C.E.O.s Are Getting a Chief of Staff**\
+`The position as a trusted sounding board is in high demand as business gets more complex — and everyone wants to get in on the latest bureaucratic fad.`\
+https://www.nytimes.com/2026/08/06/business/ceos-chief-of-staff.html
+
+**Riley Sager on His Favorite Books and His New Thriller, ‘The Unknown’**\
+`His 2023 thriller “The Only One Left” has been on the best-seller list there for nearly a year. “The Unknown,” his 10th novel, is out this month.`\
+https://www.nytimes.com/2026/08/06/books/review/riley-sager-the-unknown.html
+
+**At Shambhala Music Festival, a Plan To Make Drugs Like Ketamine and MDMA Safer**\
+`Most raves turn a blind eye to drugs. At Shambhala, free testing offers peace of mind — but can’t eliminate risk altogether.`\
+https://www.nytimes.com/2026/08/06/well/shambhala-music-festival-drugs-ketamine-ecstasy.html
+
+**Two French Women Are Focused on Their Brand, Version Watches**\
+`Cybèle Vigneron and Carla Lanfranchini have spent the past two years developing their brand.`\
+https://www.nytimes.com/2026/08/06/fashion/version-watches-france.html
+
+**India Moves Up in the Luxury Watch World**\
+`Changing retail, growing consumer wealth and a scheduled end to Swiss tariffs have improved the country’s ranking among watch importers.`\
+https://www.nytimes.com/2026/08/06/fashion/india-imports-swiss-watches.html
+
+**More In-House Artisans Are Signing Their Watch Creations**\
+`Hoping to capitalize on customers’ interest in craftsmanship, more luxury brands are allowing in-house artisans to sign their work.`\
+https://www.nytimes.com/2026/08/06/fashion/artisans-signing-watches-jaeger-lecoultre.html
+
+**A Bat Lord Has Landed at the Cloisters. He’ll Be Its Caretaker.**\
+`As the museum reframes its story of medieval art, Andrew Winslow, the collections manager,  embraces the challenge.`\
+https://www.nytimes.com/2026/08/06/arts/design/cloisters-art-handler-bat-lord.html
+
+**Brilliant, Bloody New Mystery Novels**\
+`Our critic on four terrific new releases.`\
+https://www.nytimes.com/2026/08/06/books/review/new-mystery-books.html
+
+**Scott Galloway on What It Takes to Raise Good Men**\
+`The author and academic attributes some of his success to a system that supported “unremarkable” young men.`\
+https://www.nytimes.com/video/opinion/100000011066411/scott-galloway-on-what-it-takes-to-raise-good-men.html
+
 **Budget Airline Jetstar to Charge Fees for Using the Overhead Bin**\
 `Jetstar, a budget carrier, will be the first in Australia to start making passengers pay for carry-on luggage that doesn’t fit under the seat.`\
 https://www.nytimes.com/2026/08/06/world/australia/jetstar-overhead-bin-compartment-baggage-fees.html

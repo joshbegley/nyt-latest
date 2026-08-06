@@ -1,3 +1,87 @@
+**A Trans Woman Brandished a Firearm. Gun Rights Devotion Disappeared.**\
+`Gun-friendly Wyoming has a “stand your ground” statute that allows people to use force to defend themselves. So why is a trans woman being prosecuted after being shoved to the ground?`\
+https://www.nytimes.com/2026/08/06/us/transgender-gun-rights-wyoming.html
+
+**Where Election Deniers Are County Election Officials**\
+`Our politics reporter Nick Corasaniti discusses a Times analysis of a Voting Rights Lab database identifying county-level election officials overseeing key midterm elections who are also affiliated with the election-denier movement.`\
+https://www.nytimes.com/video/us/100000011049676/where-election-deniers-are-county-election-officials.html
+
+**How Much of N.Y.C. Is Covered by Trees? Not Enough.**\
+`A goal to improve and expand the city’s tree canopy lacks a solid plan and the money to enact one.`\
+https://www.nytimes.com/2026/08/06/realestate/nyc-trees-canopy-parks.html
+
+**These Retro Sweatpants Are Having a Moment Everywhere, But Especially in the Hamptons**\
+`In quiet luxury Long Island, $168 Y2K logo sweats are having an unexpected renaissance.`\
+https://www.nytimes.com/2026/08/06/style/sweatpants-free-city-hamptons-retro.html
+
+**‘Late Fame’ Review: Lost Poet, Found Again**\
+`Willem Dafoe stars as a former poet charmed by a group of would-be young artists.`\
+https://www.nytimes.com/2026/08/06/movies/late-fame-review.html
+
+**‘Teenage Sex and Death at Camp Miasma’ Review: Gushing With Desire**\
+`Hannah Einbinder and Gillian Anderson star in an exhilarating tale of a filmmaker rebooting a problematic slasher franchise.`\
+https://www.nytimes.com/2026/08/06/movies/teenage-sex-and-death-at-camp-miasma-review.html
+
+**In Texas’ Most Eligible Senate Race, It’s Bachelor vs. Divorcé-to-Be**\
+`Ken Paxton is divorcing. James Talarico is dating a onetime staffer. Both have had their romantic lives scrutinized as part of their high-stakes campaigns.`\
+https://www.nytimes.com/2026/08/06/us/paxton-talarico-single-dating.html
+
+**John Carpenter Found a New Way to Give You Nightmares**\
+`The director of slasher films that defined horror from the 1970s through the ’90s realizes his latest work, “Cathedral,” as both a graphic novel and a hard-rock album.`\
+https://www.nytimes.com/2026/08/06/arts/music/john-carpenter-cathedral-graphic-novel-album.html
+
+**Word of the Day: kibosh**\
+`This word has appeared in eight articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/08/06/learning/word-of-the-day-kibosh.html
+
+**Incident at Texas School Underscores Concerns About Police Officers on Campuses**\
+`The incident, one of thousands of times that school officers in Texas have used physical force in recent years, underscores long-held concerns about policing in schools.`\
+https://www.nytimes.com/2026/08/06/us/converse-texas-school-officer-incident-policing.html
+
+**A Growing Number of Election Deniers Hold Key Local Roles in Midterms**\
+`These officials oversee or help administer elections in counties across the nation where competitive House and Senate races will determine control of Congress.`\
+https://www.nytimes.com/2026/08/06/us/politics/a-growing-number-of-election-deniers-hold-key-local-roles-in-midterms.html
+
+**The Vanity Table Makes a Comeback, Thanks to ‘Get Ready With Me’ Culture**\
+`After nearly disappearing from American homes, the dressing table is back — as TikTok influencers discover one of the world’s oldest stages.`\
+https://www.nytimes.com/2026/08/06/realestate/vanity-dressing-table-furniture-grwm.html
+
+**Why So Many C.E.O.s Are Getting a Chief of Staff**\
+`The position as a trusted sounding board is in high demand as business gets more complex — and everyone wants to get in on the latest bureaucratic fad.`\
+https://www.nytimes.com/2026/08/06/business/ceos-chief-of-staff.html
+
+**Riley Sager on His Favorite Books and His New Thriller, ‘The Unknown’**\
+`His 2023 thriller “The Only One Left” has been on the best-seller list there for nearly a year. “The Unknown,” his 10th novel, is out this month.`\
+https://www.nytimes.com/2026/08/06/books/review/riley-sager-the-unknown.html
+
+**At Shambhala Music Festival, a Plan To Make Drugs Like Ketamine and MDMA Safer**\
+`Most raves turn a blind eye to drugs. At Shambhala, free testing offers peace of mind — but can’t eliminate risk altogether.`\
+https://www.nytimes.com/2026/08/06/well/shambhala-music-festival-drugs-ketamine-ecstasy.html
+
+**Two French Women Are Focused on Their Brand, Version Watches**\
+`Cybèle Vigneron and Carla Lanfranchini have spent the past two years developing their brand.`\
+https://www.nytimes.com/2026/08/06/fashion/version-watches-france.html
+
+**India Moves Up in the Luxury Watch World**\
+`Changing retail, growing consumer wealth and a scheduled end to Swiss tariffs have improved the country’s ranking among watch importers.`\
+https://www.nytimes.com/2026/08/06/fashion/india-imports-swiss-watches.html
+
+**More In-House Artisans Are Signing Their Watch Creations**\
+`Hoping to capitalize on customers’ interest in craftsmanship, more luxury brands are allowing in-house artisans to sign their work.`\
+https://www.nytimes.com/2026/08/06/fashion/artisans-signing-watches-jaeger-lecoultre.html
+
+**A Bat Lord Has Landed at the Cloisters. He’ll Be Its Caretaker.**\
+`As the museum reframes its story of medieval art, Andrew Winslow, the collections manager,  embraces the challenge.`\
+https://www.nytimes.com/2026/08/06/arts/design/cloisters-art-handler-bat-lord.html
+
+**Brilliant, Bloody New Mystery Novels**\
+`Our critic on four terrific new releases.`\
+https://www.nytimes.com/2026/08/06/books/review/new-mystery-books.html
+
+**Scott Galloway on What It Takes to Raise Good Men**\
+`The author and academic attributes some of his success to a system that supported “unremarkable” young men.`\
+https://www.nytimes.com/video/opinion/100000011066411/scott-galloway-on-what-it-takes-to-raise-good-men.html
+
 **Budget Airline Jetstar to Charge Fees for Using the Overhead Bin**\
 `Jetstar, a budget carrier, will be the first in Australia to start making passengers pay for carry-on luggage that doesn’t fit under the seat.`\
 https://www.nytimes.com/2026/08/06/world/australia/jetstar-overhead-bin-compartment-baggage-fees.html
@@ -113,88 +197,4 @@ https://www.nytimes.com/2026/08/05/briefing/michigan-democrats-pick-el-sayed.htm
 **Helicopter Carrying Trump Flew Near Passenger Jet in Washington Airspace**\
 `Marine One, the helicopter that ferries the president, came within less than a mile of an Envoy Air flight on Tuesday, raising new concerns about air traffic control in the congested area.`\
 https://www.nytimes.com/2026/08/05/us/politics/trump-helicopter-jet-marine-one.html
-
-**Bunny Dolls and Disturbing Allegations: Max Miller’s Strange CNN Interview**\
-`In a 23-minute appearance with the anchor Jake Tapper, the Ohio Republican made an unusual effort to rebut a multitude of allegations that have threatened his re-election bid.`\
-https://www.nytimes.com/2026/08/05/business/media/cnn-max-miller-jake-tapper.html
-
-**Lou Koller, Ambassador of New York Hardcore, Dies at 61**\
-`He screamed as much as sang, as his heavy-metal-inflected punk band, Sick of It All, spread the sound of the New York underground to the world.`\
-https://www.nytimes.com/2026/08/05/arts/music/lou-koller-dead.html
-
-**After Michigan Loss, AIPAC Weighs a Second Effort to Defeat El-Sayed**\
-`The pro-Israel organization spent $32 million in an unsuccessful effort to defeat Abdul El-Sayed in Michigan’s Democratic Senate primary. It might try again in the general election.`\
-https://www.nytimes.com/2026/08/05/us/politics/aipac-michigan-general-election.html
-
-**How Words Are Chosen for NYT Games**\
-`Puzzle editors choose solutions based on curated references and human judgment. But there’s more freedom in the guesses players can make.`\
-https://www.nytimes.com/2026/08/05/insider/games-language-wordle-crossplay-spelling-bee.html
-
-**Scandal Leaves North Carolina G.O.P. With No Candidate and Little Time**\
-`Representative Chuck Edwards’s decision to drop his re-election bid amid sexual harassment charges came as a Democratic farmer, Jamie Ager, was already making inroads.`\
-https://www.nytimes.com/2026/08/05/us/politics/chuck-edwards-scandal-north-carolina.html
-
-**The Dopamine Hit of an A.D.H.D. Label**\
-`Why are so many people embracing diagnostic labels online? Mary H.K. Choi, who has written about her own A.D.H.D. and autism, argues that naming our struggles offers something powerful: the feeling that they’re finally understood — and even solved.`\
-https://www.nytimes.com/video/opinion/100000011075237/the-dopamine-hit-of-an-adhd-label.html
-
-**South Korea Hit With Record-Breaking Heat Wave**\
-`Brutal heat has gripped South Korea as the country faces a record-setting heat wave. The country’s president declared a national disaster on Tuesday, after three citizens died.`\
-https://www.nytimes.com/video/weather/100000011075203/south-korea-heat-wave-seoul.html
-
-**What It Means to Be ‘Neurospicy’**\
-`“Neurospicy” is what Tressie McMillan Cottom’s friend calls her. The Opinion columnist doesn’t dismiss the idea that she could be neurodivergent — she just isn’t looking for another label. It raises a bigger question: Do we always need a label to understand ourselves?`\
-https://www.nytimes.com/video/opinion/100000011064632/what-it-means-to-be-neurospicy.html
-
-**Covering Women in the Trump Era**\
-`Reporting on women in America requires curiosity about — and expertise in — the cultural forces facing women across the political spectrum. Vivian Yee, who covers these issues, shares how she navigates her beat.`\
-https://www.nytimes.com/video/insider/100000011056150/covering-women-in-the-trump-era.html
-
-**New Zealand is Racing to Vaccinate Its Endangered Birds Against Bird Flu**\
-`Conservation experts are trying to slow the march of the viral disease in a country that is home to rare and endangered bird species.`\
-https://www.nytimes.com/2026/08/05/world/australia/new-zealand-bird-flu-vaccines.html
-
-**Coming Soon to the Asia Pacific: A Storm Named Dim-sum**\
-`Forecasters in the region maintain a list of typhoon names drawn from national symbols, including foods, animals and local expressions. Here is how the process works.`\
-https://www.nytimes.com/2026/08/05/weather/typhoon-dolphin-names-dimsum-pacific.html
-
-**Star Scholar Jason Arday Resigns From Cambridge**\
-`Jason Arday was hired by the University of Cambridge in 2023 as the youngest Black professor in its history. Doubt has since been cast on his academic qualifications and claims about his life.`\
-https://www.nytimes.com/2026/08/05/books/review/cambridge-jason-arday-resignation-investigation.html
-
-**Mexican Influencer César Gastélum Shot Dead During Livestream from Sinaloa**\
-`César Gastélum was streaming video from outside a KFC in Culiacán, a city in Sinaloa state, when he was gunned down on Tuesday.`\
-https://www.nytimes.com/2026/08/05/world/americas/mexican-influencer-shot-dead-kfc.html
-
-**Trump Said Qatari Jet Was Destined for His Library. That May Change.**\
-`A White House official says no final decision has been made about which plane will go on display at the Trump presidential library. That leaves the fate of the Qatari jet unclear.`\
-https://www.nytimes.com/2026/08/05/us/trump-air-force-one-qatar-library.html
-
-**Musk, Money and Mars**\
-`SpaceX shares are down, but Elon Musk is still the richest man in the world. What’s next?`\
-https://www.nytimes.com/2026/08/05/world/elon-musk-wealth-gaza-strikes.html
-
-**Malaysian Pilot Caught Smuggling 55 Pounds of Ecstasy Into Indonesia**\
-`A Malaysian pilot was arrested for smuggling more than 55 pounds of ecstasy into Jakarta’s main airport and told investigators that he was promised about $12,200 to transport the drugs.`\
-https://www.nytimes.com/video/world/asia/100000011075450/malaysian-pilot-drug-smuggling-indonesia.html
-
-**Francesca Hong Said Thanksgiving Should Be Canceled. Can Wisconsin Voters Forgive Her?**\
-`“Cancel Thanksgiving,” she wrote. “VDay” brings out “the worst of humanity,” she mused. Francesca Hong’s old social media posts get a fresh look ahead of Wisconsin’s Democratic primary for governor.`\
-https://www.nytimes.com/2026/08/05/us/politics/francesca-hong-thanksgiving.html
-
-**Trump-Backed Michigan Candidate Loses Primary to Rival Who Suspended His Campaign**\
-`Without running a single ad or filing a campaign finance report, Tom Smith, who had suspended his bid, soundly defeated Amir Hassan, a Navy veteran backed by President Trump.`\
-https://www.nytimes.com/2026/08/05/us/politics/trump-hassan-smith-loses-michigan-primary.html
-
-**Malaysian Pilot Smuggled 55 Pounds of Ecstasy Into Indonesia, Officials Say**\
-`The pilot, identified only by his initials, also tested positive for ecstasy and cocaine when he was arrested last week at the Jakarta airport, the Indonesian police said.`\
-https://www.nytimes.com/2026/08/05/world/asia/malaysian-airlines-pilot-drugs-arrest.html
-
-**Why Polling Overestimated Abdul El-Sayed’s Advantage in Michigan**\
-`Surveys greatly overestimated how Dr. Abdul El-Sayed would fare in the state’s Democratic Senate primary, revealing some typical polling challenges.`\
-https://www.nytimes.com/2026/08/05/us/politics/michigan-primary-election-polling.html
-
-**Death Renews Scrutiny of Delaney Hall. Here’s What to Know.**\
-`The death of a Salvadoran immigrant at the federal detention center in Newark has raised questions about the conditions there.`\
-https://www.nytimes.com/2026/08/05/nyregion/delaney-hall-ice-what-we-know.html
 
