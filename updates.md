@@ -1,3 +1,7 @@
+**Sydney Towle, Who Chronicled Her Cancer on TikTok, Dies at 26**\
+`For an audience that grew to more than a million followers, she challenged assumptions about how people with serious illnesses should look and live.`\
+https://www.nytimes.com/2026/08/06/style/sydney-towle-dead.html
+
 **Teach Writing With The New York Times: Our 2026-27 Curriculum**\
 `Our writing units are based on real-world features like narratives, opinion essays, podcasts, informational videos and more.`\
 https://www.nytimes.com/2026/08/06/learning/lesson-plans/teach-writing-with-the-new-york-times-our-2026-27-curriculum.html

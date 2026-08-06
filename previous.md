@@ -11,7 +11,7 @@ https://www.nytimes.com/2026/08/06/weather/pacific-hurricane-updates-el-nino.htm
 https://www.nytimes.com/2026/08/06/business/china-unitree-ipo-robot.html
 
 **Sydney Towle, Who Chronicled Her Cancer on TikTok, Dies at 26**\
-`For an audience that grew to more than a million followers, she challenged assumptions of how people with serious illnesses should look and live.`\
+`For an audience that grew to more than a million followers, she challenged assumptions about how people with serious illnesses should look and live.`\
 https://www.nytimes.com/2026/08/06/style/sydney-towle-dead.html
 
 **Who Is Ahead in South Carolina's 7th Congressional District?**\
