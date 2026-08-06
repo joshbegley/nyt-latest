@@ -1,3 +1,7 @@
+**Fauci Could Be Held in Contempt of Congress on Thursday**\
+`A Senate panel scheduled a vote after Dr. Anthony Fauci declined to answer questions at a hearing last week. Here are the legal issues involved.`\
+https://www.nytimes.com/2026/08/05/us/politics/fauci-contempt-vote-congress.html
+
 **The Coalitions That Propelled El-Sayed’s Michigan Victory**\
 `Racial and ethnic splits, and a wide lead among younger voters, were enough for Dr. Abdul El-Sayed, a progressive, to hold off Haley Stevens, a moderate, in Michigan’s Democratic Senate primary.`\
 https://www.nytimes.com/interactive/2026/08/05/us/elections/el-sayed-michigan-senate-precinct-maps.html
