@@ -1,3 +1,15 @@
+**Cheese On A Conveyor Belt? (Actually) Groundbreaking.**\
+`Becky Hughes takes on burning questions from “Where to Eat” readers.`\
+https://www.nytimes.com/2026/08/06/dining/reader-questions.html
+
+**Travis Barker Gets Vulnerable**\
+`Watch the full “Popcast” conversation with Travis Barker here. Edited excerpts from the interview are below.`\
+https://www.nytimes.com/video/podcasts/100000011074586/travis-barker-gets-vulnerable.html
+
+**Wildfire Smoke Degrades Air Quality Across Washington and Oregon**\
+`Air quality levels reached unhealthy levels across Oregon and Washington this week.`\
+https://www.nytimes.com/2026/08/06/weather/wildfire-smoke-fills-skies-over-the-pacific-northwest.html
+
 **Mitch McConnell Discharged From Rehabilitation Facility**\
 `The Kentucky Republican has been absent from Congress for nearly two months after a health episode. He said he would continue recovering from home.`\
 https://www.nytimes.com/2026/08/06/us/politics/mitch-mcconnell-discharged-hospitalization-senate.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/08/06/health/heart-disease-drug-fails-novo-nordisk.
 **A Growing Problem in Fighting Wildfires: Drones**\
 `Aircraft violating restrictions have disrupted firefighting efforts in Spokane County, Wash., this week, officials said.`\
 https://www.nytimes.com/2026/08/06/us/spokane-wildfires-drones.html
-
-**Fettuccine Alfredo Always Hits**\
-`Says one reader: “I absolutely love this recipe. It never fails me. So simple and delicious.”`\
-https://www.nytimes.com/2026/08/06/dining/fettuccine-alfredo-always-hits.html
-
-****\
-`The Rhine is a crucial waterway for European industry, which ships nearly 300 million tons of cargo along its route every year.`\
-https://www.nytimes.com/video/embedded/business/100000011077189/Biz-Europe-Rhine-video.html
-
-**Insults, Expletives and Fat-Shaming: Vance Trolls Critics on the Right and Left**\
-`The vice president has dispensed with the decorum and restraint of his predecessors to directly take on opponents and journalists on social media with sometimes profane and often personal jabs.`\
-https://www.nytimes.com/2026/08/06/us/politics/jd-vance-insults.html
 
