@@ -135,7 +135,7 @@ https://www.nytimes.com/2026/08/06/opinion/us-saudi-arabia-nuclear-deal.html
 https://www.nytimes.com/es/2026/08/06/espanol/opinion/doctores-pacientes-terminales.html
 
 **Alcohol. Manliness. Flushable Wipes. Since When Are These ‘Scams’?**\
-`It’s a young word with obscure origins. But the fact that it’s so common shows just how ubiquitous fraud seems today.`\
+`Americans have been taken with scams for years. Now, the word is being used for any system that ends with somebody profiting at their expense.`\
 https://www.nytimes.com/2026/08/06/magazine/scams-origins.html
 
 **36 Hours in Chicago: Things to Do and See**\
