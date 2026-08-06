@@ -1,3 +1,11 @@
+**Who Is Ahead in South Carolina's 7th Congressional District?**\
+`Track the latest polls in South Carolina's 7th Congressional District.`\
+https://www.nytimes.com/interactive/polls/south-carolina-us-house-7-polls-2026.html
+
+**Senate Panel Holds Fauci in Contempt of Congress**\
+`Dr. Anthony Fauci had refused to answer questions at a hearing last week, invoking the Fifth Amendment. Republicans argued that he wasn’t entitled to that protection because he had a presidential pardon.`\
+https://www.nytimes.com/2026/08/06/us/politics/fauci-contempt-of-congress.html
+
 **The ‘Heated Rivalry’ Star Hudson Williams Uplifts a Canadian Tire Bag**\
 `After the actor Hudson Williams was photographed carrying a plaid reusable shopping bag, priced under $2, the tote has become a viral fashion accessory.`\
 https://www.nytimes.com/2026/08/06/world/canada/hudson-williams-heated-rivalry-canadian-tire.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/06/movies/the-big-cheese-review.html
 **Why Are More Young Women Developing Heart Disease?**\
 `Rates are on the rise, but prevention is possible. Here’s what experts recommend.`\
 https://www.nytimes.com/2026/08/06/well/heart-disease-young-women.html
-
-**Venezuela’s Response to Earthquakes Exposes Government’s Shortcomings**\
-`The government turned to the world to respond to twin quakes. But years of shrinking budgets and political repression weakened its ability to rescue countless people trapped in rubble.`\
-https://www.nytimes.com/2026/08/06/world/americas/venezuela-earthquakes-response-rodriguez.html
-
-**A Trans Woman Pulled a Gun and Started a ‘Stand Your Ground’ Debate**\
-`Gun-friendly Wyoming has a “stand your ground” statute that allows people to use force to defend themselves. So why is a trans woman being prosecuted after being shoved to the ground?`\
-https://www.nytimes.com/2026/08/06/us/transgender-gun-rights-wyoming.html
 

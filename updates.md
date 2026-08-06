@@ -1,3 +1,11 @@
+**Who Is Ahead in South Carolina's 7th Congressional District?**\
+`Track the latest polls in South Carolina's 7th Congressional District.`\
+https://www.nytimes.com/interactive/polls/south-carolina-us-house-7-polls-2026.html
+
+**Senate Panel Holds Fauci in Contempt of Congress**\
+`Dr. Anthony Fauci had refused to answer questions at a hearing last week, invoking the Fifth Amendment. Republicans argued that he wasn’t entitled to that protection because he had a presidential pardon.`\
+https://www.nytimes.com/2026/08/06/us/politics/fauci-contempt-of-congress.html
+
 **The ‘Heated Rivalry’ Star Hudson Williams Uplifts a Canadian Tire Bag**\
 `After the actor Hudson Williams was photographed carrying a plaid reusable shopping bag, priced under $2, the tote has become a viral fashion accessory.`\
 https://www.nytimes.com/2026/08/06/world/canada/hudson-williams-heated-rivalry-canadian-tire.html
