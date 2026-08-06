@@ -1,3 +1,7 @@
+**Las 48 horas que cambiaron a Venezuela**\
+`El gobierno venezolano recurrió al mundo para responder al doblete sísmico. Pero años de presupuestos cada vez más reducidos y represión política debilitaron su capacidad para rescatar a la gente en los escombros.`\
+https://www.nytimes.com/es/2026/08/06/espanol/america-latina/sismos-venezuela-primeras-48-horas.html
+
 **From John Derian, a Playful Collection of Leaf-Shaped Rugs**\
 `Plus: brass flower sculptures, a new restaurant in Crete and more recommendations from T Magazine.`\
 https://www.nytimes.com/2026/08/06/t-magazine/john-derian-leaf-rug.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/06/fashion/india-imports-swiss-watches.html
 **More In-House Artisans Are Signing Their Watch Creations**\
 `Hoping to capitalize on customers’ interest in craftsmanship, more luxury brands are allowing in-house artisans to sign their work.`\
 https://www.nytimes.com/2026/08/06/fashion/artisans-signing-watches-jaeger-lecoultre.html
-
-**A Bat Lord Has Landed at the Cloisters. He’ll Be Its Caretaker.**\
-`As the museum reframes its story of medieval art, Andrew Winslow, the collections manager,  embraces the challenge.`\
-https://www.nytimes.com/2026/08/06/arts/design/cloisters-art-handler-bat-lord.html
 

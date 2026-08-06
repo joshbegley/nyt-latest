@@ -1,3 +1,127 @@
+**From John Derian, a Playful Collection of Leaf-Shaped Rugs**\
+`Plus: brass flower sculptures, a new restaurant in Crete and more recommendations from T Magazine.`\
+https://www.nytimes.com/2026/08/06/t-magazine/john-derian-leaf-rug.html
+
+**En China, las disputas públicas por el tabaquismo se vuelven visibles**\
+`En un país que consume aproximadamente la mitad de los cigarrillos del mundo, la aplicación de las prohibiciones locales de fumar puede ser laxa o virtualmente inexistente.`\
+https://www.nytimes.com/es/2026/08/06/espanol/mundo/china-tabaquismo-cigarros-fumadores.html
+
+**Tennessee’s Andy Ogles Faces Well-Funded Opposition in House Primary Thursday**\
+`Representative Andy Ogles received President Trump’s endorsement, but his challenger, Charlie Hatcher, a former state agriculture commissioner, has the backing of Gov. Bill Lee.`\
+https://www.nytimes.com/2026/08/06/us/politics/ogles-primary-tennessee.html
+
+**Madonna Returns as Queen of the Club**\
+`The pop icon dances her way back to the top of the charts.`\
+https://www.nytimes.com/2026/08/06/podcasts/cannonball-madonna-confessions-2.html
+
+**Moderate Democrats Prepare for ‘War’ Against an Ascendant Left**\
+`One moderate group says the progressive wins are “deeply troubling” and is planning a $15 million effort against democratic socialism.`\
+https://www.nytimes.com/2026/08/06/us/politics/democratic-party-socialists-moderates.html
+
+**Bros and Their Foes**\
+`Democrats and Republicans are both playing with fire.`\
+https://www.nytimes.com/2026/08/06/opinion/el-syed-democrats-cornyn-tillis-republicans.html
+
+**Why Is the Met Honoring John Galliano, Fashion’s Antisemitic Provocateur?**\
+`Is the Met Gala’s new theme antisemitism?`\
+https://www.nytimes.com/2026/08/06/opinion/met-gala-galliano-antisemitism.html
+
+**The A.I. Jargon That Will Help You Spot a Stock Downturn**\
+`The math that lies behind Silicon Valley shorthand will help determine the future of America’s largest A.I. companies.`\
+https://www.nytimes.com/2026/08/06/opinion/ai-market-bubble-crash.html
+
+**Critics of the U.S.-Saudi Nuclear Deal Have It Exactly Wrong**\
+`Delay risks driving the kingdom, and others, to sign less stringent nuclear deals with our adversaries.`\
+https://www.nytimes.com/2026/08/06/opinion/us-saudi-arabia-nuclear-deal.html
+
+**Le dije a mi paciente que no regresaría a casa. Me equivoqué**\
+`Cuando los médicos nos apresuramos a dar certezas sobre cómo progresará la enfermedad de un paciente, corremos el riesgo de cerrar posibilidades.`\
+https://www.nytimes.com/es/2026/08/06/espanol/opinion/doctores-pacientes-terminales.html
+
+**Alcohol. Manliness. Flushable Wipes. Since When Are These ‘Scams’?**\
+`It’s a young word with obscure origins. But the fact that it’s so common shows just how ubiquitous fraud seems today.`\
+https://www.nytimes.com/2026/08/06/magazine/scams-origins.html
+
+**36 Hours in Chicago: Things to Do and See**\
+`The city shines in the summertime — and this year’s light is especially bright, thanks in part to a new presidential center.`\
+https://www.nytimes.com/interactive/2026/08/06/travel/things-to-do-chicago.html
+
+**Corrections: Aug. 6, 2026**\
+`Corrections that appeared in print on Thursday, Aug. 6, 2026.`\
+https://www.nytimes.com/2026/08/06/pageoneplus/corrections-aug-6-2026.html
+
+**‘Avatar Aang: The Last Airbender’ Shows How to Beat Franchise Fatigue**\
+`There have been ups and downs, including a widely reviled big-screen disaster. But the latest film shows a story that is headed in the right direction.`\
+https://www.nytimes.com/2026/08/06/movies/avatar-aang-the-last-airbender.html
+
+**How Ukrainians Are Using Social Media to Track Russian Ballistic Missiles**\
+`Using dozens of Telegram social media channels, Ukrainians have learned to game Russian air attacks over nearly four and a half years of war.`\
+https://www.nytimes.com/interactive/2026/08/06/world/europe/russia-ukraine-war-kyiv-telegram.html
+
+**On PBS Kids, Jacqueline Woodson Reminds Children Their Stories Matter**\
+`A new animated special, “The Day You Begin,” based on the best-selling picture book, emphasizes the richness that diversity brings to a community.`\
+https://www.nytimes.com/2026/08/06/arts/television/jacqueline-woodson-the-day-you-begin-pbs-kids.html
+
+**Follow the Markets and Track Stocks With These Free Apps**\
+`Google Finance and Apple’s Stocks app have added new features over the years to make them more useful for tracking the markets and your investments.`\
+https://www.nytimes.com/2026/08/06/technology/personaltech/carry-wall-street-in-your-pocket-with-these-free-apps.html
+
+**Why a Coast Guard Boat Came to Times Square**\
+`The 31-foot-long vessel and some replica weapons recalling those used in the War of 1812 featured in a celebration that looks ahead to a new Coast Guard museum.`\
+https://www.nytimes.com/2026/08/06/nyregion/coast-guard-boat-museum.html
+
+**Scott Galloway on What It Takes to Raise Good Men**\
+`The author and academic attributes some of his success to a system that supported “unremarkable” young men.`\
+https://www.nytimes.com/2026/08/06/opinion/ross-douthat-scott-galloway-masculinity.html
+
+**Tarot Was a Courtly Card Game. How Did It Become a Tool for Divination?**\
+`A Morgan Library & Museum exhibition explores the origins of a popular tradition that has drawn occultists and everyday people alike.`\
+https://www.nytimes.com/2026/08/06/arts/design/tarot-cards-morgan.html
+
+**Homes for Sale in New York and Connecticut**\
+`This week’s properties are a six-bedroom house in Pelham, N.Y., and a three-bedroom townhouse in New Canaan, Conn.`\
+https://www.nytimes.com/2026/08/06/realestate/housing-market-near-nyc.html
+
+**Homes for Sale in Manhattan and the Bronx**\
+`This week’s properties are in the Flatiron district, Yorkville and Riverdale.`\
+https://www.nytimes.com/2026/08/06/realestate/housing-market-nyc.html
+
+**‘Tony’ Review: An Appetite for Experiences**\
+`On 1970s Cape Cod, a young Anthony Bourdain chases love and finds his future in this rambunctious, utterly charming little movie.`\
+https://www.nytimes.com/2026/08/06/movies/tony-review-an-appetite-for-experiences.html
+
+**‘Olmo’ Review: A New Mexican Coming-of-Age Comedy**\
+`Fernando Eimbcke’s film, set in Las Cruces, finds tenderness and turmoil in a 1970s Mexican American household.`\
+https://www.nytimes.com/2026/08/06/movies/olmo-review-a-new-mexican-coming-of-age-comedy.html
+
+**‘The Last Picture Shows’ Review: Celebrating Old-School Movie Houses**\
+`The stand-alone cinema is facing extinction. A new documentary chronicles its fight for survival in the United States.`\
+https://www.nytimes.com/2026/08/06/movies/the-last-picture-shows-review.html
+
+**‘Ice Cream Man’ Review: A Rocky Road to Hell**\
+`Sweet-faced kids who just want a treat turn into murderous maniacs in Eli Roth’s messy new horror film.`\
+https://www.nytimes.com/2026/08/06/movies/ice-cream-man-review.html
+
+**‘Julian’ Review: Getting Married in 22 Countries**\
+`Cato Kusters’ feature debut recounts the abbreviated love story of the Belgian artist Fleur Pierets and her wife, Julian Boom, as they fight for gay rights abroad.`\
+https://www.nytimes.com/2026/08/06/movies/julian-review.html
+
+**Does He Have the Most Stressful Job in Sports?**\
+`Brian Cashman has presided over four titles and zero losing seasons. Yankees fans want more.`\
+https://www.nytimes.com/2026/08/06/magazine/yankees-brian-cashman.html
+
+**‘The Big Cheese’ Review: Who Will Become the World’s Best Cheesemonger?**\
+`In this documentary, a team is determined to help the United States finally claim top honors at a fierce competition in France.`\
+https://www.nytimes.com/2026/08/06/movies/the-big-cheese-review.html
+
+**Why Are More Young Women Developing Heart Disease?**\
+`Rates are on the rise, but prevention is possible. Here’s what experts recommend.`\
+https://www.nytimes.com/2026/08/06/well/heart-disease-young-women.html
+
+**Venezuela’s Response to Earthquakes Exposes Government’s Shortcomings**\
+`The government turned to the world to respond to twin quakes. But years of shrinking budgets and political repression weakened its ability to rescue countless people trapped in rubble.`\
+https://www.nytimes.com/2026/08/06/world/americas/venezuela-earthquakes-response-rodriguez.html
+
 **A Trans Woman Brandished a Firearm. Gun Rights Devotion Disappeared.**\
 `Gun-friendly Wyoming has a “stand your ground” statute that allows people to use force to defend themselves. So why is a trans woman being prosecuted after being shoved to the ground?`\
 https://www.nytimes.com/2026/08/06/us/transgender-gun-rights-wyoming.html
@@ -73,128 +197,4 @@ https://www.nytimes.com/2026/08/06/fashion/artisans-signing-watches-jaeger-lecou
 **A Bat Lord Has Landed at the Cloisters. He’ll Be Its Caretaker.**\
 `As the museum reframes its story of medieval art, Andrew Winslow, the collections manager,  embraces the challenge.`\
 https://www.nytimes.com/2026/08/06/arts/design/cloisters-art-handler-bat-lord.html
-
-**Brilliant, Bloody New Mystery Novels**\
-`Our critic on four terrific new releases.`\
-https://www.nytimes.com/2026/08/06/books/review/new-mystery-books.html
-
-**Scott Galloway on What It Takes to Raise Good Men**\
-`The author and academic attributes some of his success to a system that supported “unremarkable” young men.`\
-https://www.nytimes.com/video/opinion/100000011066411/scott-galloway-on-what-it-takes-to-raise-good-men.html
-
-**Budget Airline Jetstar to Charge Fees for Using the Overhead Bin**\
-`Jetstar, a budget carrier, will be the first in Australia to start making passengers pay for carry-on luggage that doesn’t fit under the seat.`\
-https://www.nytimes.com/2026/08/06/world/australia/jetstar-overhead-bin-compartment-baggage-fees.html
-
-**En ‘Ted Lasso’ Hannah Waddingham es implacable. Fuera de cámara, es encantadoramente boba**\
-`Hannah Waddingham es de las pocas actrices británicas en abrirse camino del teatro musical a la pantalla.`\
-https://www.nytimes.com/es/2026/08/06/espanol/cultura/ted-lasso-tercera-temporada-actriz.html
-
-**Were You Born After 9/11? We Want to Hear From You.**\
-`We’re writing about what Sept. 11 means to younger generations. Your insights can help.`\
-https://www.nytimes.com/2026/08/06/nyregion/born-after-sept-11.html
-
-**NYT Spelling Bee Answers for August 6, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/08/06/crosswords/spelling-bee-forum.html
-
-**Ceuta y Fnideq, dos ciudades con una historia entrelazada**\
-`Ceuta, España, y Fnideq, Marruecos, están separadas físicamente por apenas un kilómetro y medio, pero las une la familia y el comercio. Una crisis fronteriza marca el capítulo más reciente de su historia.`\
-https://www.nytimes.com/es/2026/08/06/espanol/mundo/espana-marruecos-ceuta-fnideq-crisis-historia.html
-
-**Paxton and Talarico Offer Diverging Paths on Affordability**\
-`The candidates are seeking to win over voters with competing proposals on tax, housing and health care that are aimed at lowering household costs.`\
-https://www.nytimes.com/2026/08/06/us/texas-senate-talarico-paxton-taxes.html
-
-**Country Music Festival Lights Up Nairobi**\
-`Fans gathered in Kenya to celebrate a genre born far away but that more and more Africans are coming to appreciate.`\
-https://www.nytimes.com/2026/08/06/world/africa/country-music-nairobi-kenya-cowboys.html
-
-**Quote of the Day: A Bucolic London Suburb Feels the ‘Ted Lasso’ Effect**\
-`Quotation of the Day for Thursday, August 6, 2026.`\
-https://www.nytimes.com/2026/08/06/pageoneplus/quote-of-the-day-a-bucolic-london-suburb-feels-the-ted-lasso-effect.html
-
-**Europe’s Control of Its Fate Is Tested by Iran and Ukraine Wars, Wildfires and Migration**\
-`A brutal summer has exposed how much Britain, France, Spain and other European countries are under pressure from forces largely out of their control.`\
-https://www.nytimes.com/2026/08/06/world/europe/europe-war-wildfires-migration.html
-
-**Senate Panel Has Obtained Copy of Fauci’s Cellphone**\
-`The development comes as a Senate committee prepares to vote Thursday on whether to hold Dr. Anthony S. Fauci in contempt of Congress for refusing to answer questions at a hearing.`\
-https://www.nytimes.com/2026/08/05/us/politics/fauci-phone-senate.html
-
-**See Where the Reflecting Pool Renovation Appeared to Fail**\
-`A Times analysis found dozens of areas across the pool's new liner that showed tears, bubbles and peeling.`\
-https://www.nytimes.com/interactive/2026/08/05/us/politics/trump-reflecting-pool-damage.html
-
-**Pakistan Starts Sweeping New Crackdown on Journalists**\
-`With a protest movement in Kashmir challenging its authority in the region, Pakistan restricts independent reporting by local and foreign media.`\
-https://www.nytimes.com/2026/08/05/world/asia/pakistan-international-news-media-ban.html
-
-**F.D.A. Approves Moderna’s mRNA Flu Vaccine**\
-`The agency had initially refused to even review the application but reversed course after a public outcry.`\
-https://www.nytimes.com/2026/08/05/health/mrna-flu-vaccine-moderna.html
-
-**NYT Crossword Answers for August 06, 2026**\
-`Dena R. Verkuil and John Kugelman put us in a sticky situation.`\
-https://www.nytimes.com/2026/08/05/crosswords/daily-puzzle-2026-08-06.html
-
-**The Coalitions That Propelled El-Sayed’s Michigan Victory**\
-`Racial and ethnic splits, and a wide lead among younger voters, were enough for Dr. Abdul El-Sayed, a progressive, to hold off Haley Stevens, a moderate, in Michigan’s Democratic Senate primary.`\
-https://www.nytimes.com/interactive/2026/08/05/us/elections/el-sayed-michigan-senate-precinct-maps.html
-
-**TikTok Is Laying Off 250 Employees in Its Nashville Office**\
-`The office was home to members of the app’s content moderation team.`\
-https://www.nytimes.com/2026/08/05/technology/tiktok-layoffs-nashville.html
-
-**La CIA forma un grupo operativo secreto sobre Cuba**\
-`El equipo le permitirá a la agencia de espionaje dedicar rápidamente más recursos financieros, humanos y técnicos a la isla, con el objetivo de crear fisuras entre la élite política cubana.`\
-https://www.nytimes.com/es/2026/08/05/espanol/estados-unidos/cia-grupo-operativo-secreto-cuba.html
-
-**Bessent Declares Widening Gap Between Rich and Poor ‘Dead’**\
-`Despite data to the contrary, the Treasury Secretary made the case that the K-shaped economy no longer exists.`\
-https://www.nytimes.com/2026/08/05/business/bessent-wage-gap.html
-
-**Trump dijo que el avión de Catar iría a su biblioteca. Eso podría cambiar**\
-`Un funcionario dijo que no se ha tomado una decisión definitiva sobre qué avión irá a la biblioteca presidencial de Trump, por lo que el futuro de la aeronave catarí sigue sin definirse.`\
-https://www.nytimes.com/es/2026/08/05/espanol/estados-unidos/trump-avion-qatar-biblioteca.html
-
-**Someone Is Poisoning Trees Near Lake Tahoe**\
-`Eleven trees have been killed over the past several years by a strong-smelling, unidentified substance. Another 16 were just attacked this year.`\
-https://www.nytimes.com/2026/08/05/us/lake-tahoe-trees-poison.html
-
-**Pineapple-Marinated Chicken Breasts**\
-`Bromelain, the group of enzymes in fresh pineapple, is excellent at breaking down the connective tissues in thick, fibrous chicken breasts. In this simple marinade, grated pineapple completely alters the texture of the breast meat, resulting in something that’s akin to luscious dark meat.`\
-https://www.nytimes.com/video/dining/100000011075605/pineapple-marinated-chicken-breasts.html
-
-**Federal Judge Weakens The National Firearms Act**\
-`The National Firearms Act mandated a permitting process for short-barreled rifles and shotguns, as well as suppressors. A judge ruled that the provision was unconstitutional.`\
-https://www.nytimes.com/2026/08/05/us/politics/national-firearms-act-gun-control.html
-
-**Mayor Says El-Sayed’s Win Shows He Is More Than a ‘Mini-Mamdani’**\
-`Mayor Zohran Mamdani of New York said that Dr. Abdul El-Sayed’s close victory in the Michigan Senate primary put “working-class Americans back at the heart of our politics.”`\
-https://www.nytimes.com/2026/08/05/us/politics/el-sayed-mamdani-michigan-election.html
-
-**Fauci Faces Contempt of Congress Vote on Thursday**\
-`A Senate panel scheduled a vote after Dr. Anthony Fauci declined to answer questions at a hearing last week. Here are the legal issues involved.`\
-https://www.nytimes.com/2026/08/05/us/politics/fauci-contempt-vote-congress.html
-
-**El influencer César Gastélum es asesinado en Culiacán cuando transmitía en vivo**\
-`César Gastélum estaba llevando a cabo un desafío de redes sociales afuera de un KFC en Culiacán cuando fue abatido.`\
-https://www.nytimes.com/es/2026/08/05/espanol/america-latina/cesar-gastelum-influencer-culiacan.html
-
-**C.I.A. Sets Up Secret Cuba Task Force as Trump Pressures Havana**\
-`The task force will allow the spy agency to quickly direct more financial, human and technical resources at the island, with the goal of creating fissures among the Cuban political elite.`\
-https://www.nytimes.com/2026/08/05/us/politics/cia-cuba-task-force.html
-
-**Explosive Drone Found at German Airport Used by Ukrainian Carrier**\
-`A second drone may have collided with a plane in the air over the airport, damaging the aircraft slightly, the authorities say.`\
-https://www.nytimes.com/2026/08/05/world/europe/germany-explosive-drone-airport.html
-
-**Michigan Democrats Pick El-Sayed**\
-`Also, the Senate confirms a new C.D.C. director. Here’s the latest at the end of Wednesday.`\
-https://www.nytimes.com/2026/08/05/briefing/michigan-democrats-pick-el-sayed.html
-
-**Helicopter Carrying Trump Flew Near Passenger Jet in Washington Airspace**\
-`Marine One, the helicopter that ferries the president, came within less than a mile of an Envoy Air flight on Tuesday, raising new concerns about air traffic control in the congested area.`\
-https://www.nytimes.com/2026/08/05/us/politics/trump-helicopter-jet-marine-one.html
 
