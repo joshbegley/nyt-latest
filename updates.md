@@ -1,3 +1,7 @@
+**Pakistan Starts Sweeping New Crackdown on Journalists**\
+`With a protest movement in Kashmir challenging its authority in the region, Pakistan restricts independent reporting by local and foreign media.`\
+https://www.nytimes.com/2026/08/05/world/asia/pakistan-international-news-media-ban.html
+
 **F.D.A. Approves Moderna’s mRNA Flu Vaccine**\
 `The agency had initially refused to even review the application but reversed course after a public outcry.`\
 https://www.nytimes.com/2026/08/05/health/mrna-flu-vaccine-moderna.html
