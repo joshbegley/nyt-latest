@@ -1,3 +1,27 @@
+**N.Y. Doctor Sentenced in Japan for Vandalizing Ancient Religious Sites**\
+`Masahide Kanayama, a surgeon and an expert in endometriosis, received an 18-month suspended sentence after a court found him guilty of damaging the sites.`\
+https://www.nytimes.com/2026/08/06/world/asia/japan-vandalism-doctor-prison-sentence.html
+
+**The Cyclospora Mystery: How Human Waste Got on So Much Lettuce**\
+`The parasite cyclospora, which spreads through food or water contaminated by human feces, has been traced to a Taylor Farms processing facility in Mexico.`\
+https://www.nytimes.com/2026/08/06/podcasts/the-daily/cyclospora-taylor-farms-lettuce.html
+
+**A New Plan for Closer U.S.-Israel Military Cooperation, and the First mRNA Flu Vaccine**\
+`Plus, what happens when you have an A.I. boss.`\
+https://www.nytimes.com/2026/08/06/podcasts/the-headlines/a-new-plan-for-closer-us-israel-military-cooperation-and-the-first-mrna-flu-vaccine.html
+
+**NYT Connections Answers for August 7, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Aug. 7, 2026.`\
+https://www.nytimes.com/2026/08/06/crosswords/connections-companion-1153.html
+
+**NYT Strands Hints for Aug. 7, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Aug. 7, 2026.`\
+https://www.nytimes.com/2026/08/06/crosswords/strands-sidekick-887.html
+
+**Today’s Wordle Hints for August 7, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Aug. 7, 2026.`\
+https://www.nytimes.com/2026/08/06/crosswords/wordle-review-1875.html
+
 **Ukraine Is Pleading for Air Defenses. Will the World Listen Anymore?**\
 `Western allies are more hesitant to give up interceptor missiles they may need for their own defense as war rages on multiple fronts.`\
 https://www.nytimes.com/2026/08/06/world/europe/ukraine-russia-missile-defense-patriots.html
@@ -34,7 +58,7 @@ https://www.nytimes.com/2026/08/06/us/politics/democratic-party-socialists-moder
 `Democrats and Republicans are both playing with fire.`\
 https://www.nytimes.com/2026/08/06/opinion/el-syed-democrats-cornyn-tillis-republicans.html
 
-**Why Is the Met Honoring John Galliano, Fashion’s Antisemitic Provocateur?**\
+**The Metropolitan Museum of Art Is Making a Very Bad Mistake**\
 `Is the Met Gala’s new theme antisemitism?`\
 https://www.nytimes.com/2026/08/06/opinion/met-gala-galliano-antisemitism.html
 
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/08/06/learning/word-of-the-day-kibosh.html
 **Incident at Texas School Underscores Concerns About Police Officers on Campuses**\
 `The incident, one of thousands of times that school officers in Texas have used physical force in recent years, underscores long-held concerns about policing in schools.`\
 https://www.nytimes.com/2026/08/06/us/converse-texas-school-officer-incident-policing.html
-
-**A Growing Number of Election Deniers Hold Key Local Roles in Midterms**\
-`These officials oversee or help administer elections in counties across the nation where competitive House and Senate races will determine control of Congress.`\
-https://www.nytimes.com/2026/08/06/us/politics/a-growing-number-of-election-deniers-hold-key-local-roles-in-midterms.html
-
-**The Vanity Table Makes a Comeback, Thanks to ‘Get Ready With Me’ Culture**\
-`After nearly disappearing from American homes, the dressing table is back — as TikTok influencers discover one of the world’s oldest stages.`\
-https://www.nytimes.com/2026/08/06/realestate/vanity-dressing-table-furniture-grwm.html
-
-**Why So Many C.E.O.s Are Getting a Chief of Staff**\
-`The position as a trusted sounding board is in high demand as business gets more complex — and everyone wants to get in on the latest bureaucratic fad.`\
-https://www.nytimes.com/2026/08/06/business/ceos-chief-of-staff.html
-
-**Riley Sager on His Favorite Books and His New Thriller, ‘The Unknown’**\
-`His 2023 thriller “The Only One Left” has been on the best-seller list there for nearly a year. “The Unknown,” his 10th novel, is out this month.`\
-https://www.nytimes.com/2026/08/06/books/review/riley-sager-the-unknown.html
-
-**At Shambhala Music Festival, a Plan To Make Drugs Like Ketamine and MDMA Safer**\
-`Most raves turn a blind eye to drugs. At Shambhala, free testing offers peace of mind — but can’t eliminate risk altogether.`\
-https://www.nytimes.com/2026/08/06/well/shambhala-music-festival-drugs-ketamine-ecstasy.html
-
-**Two French Women Are Focused on Their Brand, Version Watches**\
-`Cybèle Vigneron and Carla Lanfranchini have spent the past two years developing their brand.`\
-https://www.nytimes.com/2026/08/06/fashion/version-watches-france.html
 
