@@ -1,3 +1,7 @@
+**See Where the Reflecting Pool Renovation Appeared to Fail**\
+`A Times analysis found dozens of areas across the pool's new liner that showed tears, bubbles and peeling.`\
+https://www.nytimes.com/interactive/2026/08/05/us/politics/trump-reflecting-pool-damage.html
+
 **Pakistan Starts Sweeping New Crackdown on Journalists**\
 `With a protest movement in Kashmir challenging its authority in the region, Pakistan restricts independent reporting by local and foreign media.`\
 https://www.nytimes.com/2026/08/05/world/asia/pakistan-international-news-media-ban.html
