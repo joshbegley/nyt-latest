@@ -7,7 +7,7 @@ https://www.nytimes.com/2026/08/06/us/spokane-wildfires-drones.html
 https://www.nytimes.com/2026/08/06/dining/fettuccine-alfredo-always-hits.html
 
 ****\
-`tktkt`\
+`The Rhine is a crucial waterway for European industry, which ships nearly 300 million tons of cargo along its route every year.`\
 https://www.nytimes.com/video/embedded/business/100000011077189/Biz-Europe-Rhine-video.html
 
 **Insults, Expletives and Fat-Shaming: Vance Trolls Critics on the Right and Left**\

@@ -1,3 +1,19 @@
+**While Fighting Wildfires, They’re Also Fighting Illegal Drones**\
+`Aircraft violating restrictions have disrupted firefighting efforts in Spokane County, Wash., this week, officials said.`\
+https://www.nytimes.com/2026/08/06/us/spokane-wildfires-drones.html
+
+**Fettuccine Alfredo Always Hits**\
+`Says one reader: “I absolutely love this recipe. It never fails me. So simple and delicious.”`\
+https://www.nytimes.com/2026/08/06/dining/fettuccine-alfredo-always-hits.html
+
+****\
+`tktkt`\
+https://www.nytimes.com/video/embedded/business/100000011077189/Biz-Europe-Rhine-video.html
+
+**Senate Panel Votes to Hold Fauci in Contempt of Congress**\
+`Dr. Anthony Fauci had refused to answer questions at a hearing last week, invoking the Fifth Amendment. Republicans argued he wasn’t entitled to that protection because he had a presidential pardon.`\
+https://www.nytimes.com/2026/08/06/us/politics/fauci-contempt-of-congress.html
+
 **El Nino Might Mean More Storms Near California Than the Atlantic Coast**\
 `It hasn’t been that long since Hurricane Hilary made a run at Southern California. Could this year see a repeat?`\
 https://www.nytimes.com/2026/08/06/weather/pacific-hurricane-updates-el-nino.html
