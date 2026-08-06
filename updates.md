@@ -1,3 +1,15 @@
+**F.C.C. Removes Limit on Broadcast TV Ownership**\
+`The move lifts a rule that said a single television-station owner could not reach more than 39 percent of U.S. households.`\
+https://www.nytimes.com/2026/08/06/technology/fcc-broadcast-tv-ownership.html
+
+**Retrial Ordered in Child Killing With Parallels to Lindsay Clancy Case**\
+`Massachusetts justices ruled that the jury should have heard evidence of mental illness in the case of Latarsha Sanders, who was convicted in the same county where Ms. Clancy is on trial for murder.`\
+https://www.nytimes.com/2026/08/06/us/latarsha-sanders-lindsay-clancy-child-killings.html
+
+**Justice Department Accuses Duke Law School of Racial Discrimination**\
+`The federal government said the school’s admissions policies, which promote diversity, allowed for racial preferences.`\
+https://www.nytimes.com/2026/08/06/us/justice-department-duke-law-school-racial-discrimination-admissions.html
+
 **A List of Good Things**\
 `For something different in August, we bring you ideas, rituals and activities to add joy to your days.`\
 https://www.nytimes.com/2026/08/06/world/good-list-rituals-strait-hormuz-fifa.html

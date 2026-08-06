@@ -1,3 +1,11 @@
+**Hellbender’s Masa Pancakes**\
+`The chef Yara Herrera is clear: “I didn’t invent the idea of a masa pancake.” But she perfected the form at Hellbender restaurant in Ridgewood, Queens, where the theme of native heirloom corn runs through the tacos and tostadas on the menu.`\
+https://www.nytimes.com/video/dining/100000011077483/hellbenders-masa-pancakes.html
+
+**Two Giant Rodents Wander Into a Brazilian Legislature**\
+`A viral video captured two capybaras wandering into a Brazilian state legislature last week. The animals, which are the largest rodents in the world, were escorted from the premises by a parliamentary aide.`\
+https://www.nytimes.com/video/world/americas/100000011077514/capybara-brazil-legislature.html
+
 **F.C.C. Removes Limit on Broadcast TV Ownership**\
 `The move lifts a rule that said a single television-station owner could not reach more than 39 percent of U.S. households.`\
 https://www.nytimes.com/2026/08/06/technology/fcc-broadcast-tv-ownership.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/06/business/rhine-drought-germany-economy.html
 **Tennessee U.S. Senate Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Tennessee primary election.`\
 https://www.nytimes.com/interactive/2026/08/06/us/elections/results-tennessee-us-senate-primary.html
-
-**Tennessee Ninth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Tennessee primary election.`\
-https://www.nytimes.com/interactive/2026/08/06/us/elections/results-tennessee-us-house-9-primary.html
-
-**Tennessee Fifth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Tennessee primary election.`\
-https://www.nytimes.com/interactive/2026/08/06/us/elections/results-tennessee-us-house-5-primary.html
 
