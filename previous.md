@@ -1,3 +1,11 @@
+**FIFA Executives Were Given Ultimatum to Approve World Cup Privatization Plan**\
+`The day before the World Cup final, key FIFA figures faced a stunning demand to sign off on a multibillion-dollar privatization project.`\
+https://www.nytimes.com/2026/08/06/business/fifa-world-cup-privatization.html
+
+**How the Migrant Crisis in Ceuta Ignited a Backlash Against the Far Right**\
+`A sudden migrant surge from Morocco into the Spanish territory of Ceuta attracted the presence of far-right, anti-immigrant politicians. But many locals say they don’t want their multicultural home to be used as a political prop.`\
+https://www.nytimes.com/video/world/europe/100000011069669/ceuta-spain-morocco-migrant-politics.html
+
 **Bernie Sanders Is Not Doing the Democrats Any Favors**\
 `What exactly is the project of the insurgent left all about?`\
 https://www.nytimes.com/2026/08/06/opinion/democrats-bernie-sanders-dsa-el-sayed.html
@@ -46,7 +54,7 @@ https://www.nytimes.com/2026/08/06/us/politics/hemp-government-funding-bill.html
 `It was the fifth such deal struck by the administration to get companies to drop offshore wind projects.`\
 https://www.nytimes.com/2026/08/06/climate/rwe-trump-offshore-wind-canceled.html
 
-**Under Hegseth, Women’s Share of Top Military Promotions Plunged This Year**\
+**Women’s Share of Top Military Promotions Falls as Hegseth Blocks Nominees**\
 `The percentage of high-ranking officer nominations going to women is currently at its lowest level in over two decades.`\
 https://www.nytimes.com/2026/08/06/upshot/military-promotions-women-hegseth.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/06/learning/lesson-plans/teach-writing-with-the-
 **El Nino Might Mean More Storms Near California Than the Atlantic Coast**\
 `It hasn’t been that long since Hurricane Hilary made a run at Southern California. Could this year see a repeat?`\
 https://www.nytimes.com/2026/08/06/weather/pacific-hurricane-updates-el-nino.html
-
-**China’s Unitree Prices IPO in Bet Investors Are Ready for Humanoid Robots**\
-`Unitree Robotics wants to raise about $900 million in an I.P.O. that tests market interest in humanoid robots, a technology that wows but has yet to prove its viability.`\
-https://www.nytimes.com/2026/08/06/business/china-unitree-ipo-robot.html
-
-**Sydney Towle, Who Chronicled Her Cancer on TikTok, Dies at 26**\
-`For an audience that grew to more than a million followers, she challenged assumptions about how people with serious illnesses should look and live.`\
-https://www.nytimes.com/2026/08/06/style/sydney-towle-dead.html
 

@@ -1,3 +1,15 @@
+**FIFA Executives Were Given Ultimatum to Approve World Cup Privatization Plan**\
+`The day before the World Cup final, key FIFA figures faced a stunning demand to sign off on a multibillion-dollar privatization project.`\
+https://www.nytimes.com/2026/08/06/business/fifa-world-cup-privatization.html
+
+**How the Migrant Crisis in Ceuta Ignited a Backlash Against the Far Right**\
+`A sudden migrant surge from Morocco into the Spanish territory of Ceuta attracted the presence of far-right, anti-immigrant politicians. But many locals say they don’t want their multicultural home to be used as a political prop.`\
+https://www.nytimes.com/video/world/europe/100000011069669/ceuta-spain-morocco-migrant-politics.html
+
+**Women’s Share of Top Military Promotions Falls as Hegseth Blocks Nominees**\
+`The percentage of high-ranking officer nominations going to women is currently at its lowest level in over two decades.`\
+https://www.nytimes.com/2026/08/06/upshot/military-promotions-women-hegseth.html
+
 **Bernie Sanders Is Not Doing the Democrats Any Favors**\
 `What exactly is the project of the insurgent left all about?`\
 https://www.nytimes.com/2026/08/06/opinion/democrats-bernie-sanders-dsa-el-sayed.html
