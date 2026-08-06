@@ -1,3 +1,7 @@
+**John O’Malley, Bronx Detective and Federal Investigator, Dies at 73**\
+`As a detective with the N.Y.P.D., he helped prosecute violent crimes under federal law. At the U.S. attorney’s office, he was involved in high-profile exonerations.`\
+https://www.nytimes.com/2026/08/06/nyregion/john-p-omalley-dead.html
+
 **Hellbender’s Masa Pancakes**\
 `The chef Yara Herrera is clear: “I didn’t invent the idea of a masa pancake.” But she perfected the form at Hellbender restaurant in Ridgewood, Queens, where the theme of native heirloom corn runs through the tacos and tostadas on the menu.`\
 https://www.nytimes.com/video/dining/100000011077483/hellbenders-masa-pancakes.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/polls/indiana-us-house-5-polls-2026.html
 **Drought Threatens a Vital Economic Artery in the Heart of Europe**\
 `The Rhine conveys vessels and cargo that power European industry. Record low water levels are disrupting supply chains, adding costs and presenting fresh risks to growth.`\
 https://www.nytimes.com/2026/08/06/business/rhine-drought-germany-economy.html
-
-**Tennessee U.S. Senate Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Tennessee primary election.`\
-https://www.nytimes.com/interactive/2026/08/06/us/elections/results-tennessee-us-senate-primary.html
 
