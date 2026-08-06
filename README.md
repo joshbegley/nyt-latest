@@ -1,3 +1,7 @@
+**Federal Judge Orders Pentagon to Lift Freeze on Wind Power**\
+`Since April, the Defense Department has halted all military reviews for wind projects, stalling dozens of projects nationwide.`\
+https://www.nytimes.com/2026/08/06/climate/pentagon-reviews-wind-farms-court-order.html
+
 **This A.I. Just Created Viruses Not Found in Nature**\
 `Scientists trained artificial intelligence on libraries of DNA and then asked the model to create recipes for viral genomes. Sixteen of them were viable, yielding new viruses.`\
 https://www.nytimes.com/2026/08/06/science/ai-viruses-bacteria-arc.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/06/world/asia/japan-ai-robot-cherry-blossoms.htm
 ****\
 `A mechanical wolf robot used to ward off bears and wild boars at a farm Yamagata, Japan.`\
 https://www.nytimes.com/video/embedded/world/asia/100000011076383/06int-japan-robot-lighter-25027.html
-
-**Driver in Munich Car Ramming Attack Given Life in Prison**\
-`The attack, in 2025, was one of several carried out in Germany in recent years by men with migrant backgrounds, shaking the public’s sense of safety.`\
-https://www.nytimes.com/2026/08/06/world/europe/munich-car-attack-driver-sentence.html
 
