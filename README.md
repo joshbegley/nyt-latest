@@ -1,3 +1,15 @@
+**While Fighting Wildfires, They’re Also Fighting Illegal Drones**\
+`Aircraft violating restrictions have disrupted firefighting efforts in Spokane County, Wash., this week, officials said.`\
+https://www.nytimes.com/2026/08/06/us/spokane-wildfires-drones.html
+
+**Fettuccine Alfredo Always Hits**\
+`Says one reader: “I absolutely love this recipe. It never fails me. So simple and delicious.”`\
+https://www.nytimes.com/2026/08/06/dining/fettuccine-alfredo-always-hits.html
+
+****\
+`tktkt`\
+https://www.nytimes.com/video/embedded/business/100000011077189/Biz-Europe-Rhine-video.html
+
 **Insults, Expletives and Fat-Shaming: Vance Trolls Critics on the Right and Left**\
 `The vice president has dispensed with the decorum and restraint of his predecessors to directly take on opponents and journalists on social media with sometimes profane and often personal jabs.`\
 https://www.nytimes.com/2026/08/06/us/politics/jd-vance-insults.html
@@ -22,8 +34,8 @@ https://www.nytimes.com/2026/08/06/style/sydney-towle-dead.html
 `Track the latest polls in South Carolina's 7th Congressional District.`\
 https://www.nytimes.com/interactive/polls/south-carolina-us-house-7-polls-2026.html
 
-**Senate Panel Holds Fauci in Contempt of Congress**\
-`Dr. Anthony Fauci had refused to answer questions at a hearing last week, invoking the Fifth Amendment. Republicans argued that he wasn’t entitled to that protection because he had a presidential pardon.`\
+**Senate Panel Votes to Hold Fauci in Contempt of Congress**\
+`Dr. Anthony Fauci had refused to answer questions at a hearing last week, invoking the Fifth Amendment. Republicans argued he wasn’t entitled to that protection because he had a presidential pardon.`\
 https://www.nytimes.com/2026/08/06/us/politics/fauci-contempt-of-congress.html
 
 **The ‘Heated Rivalry’ Star Hudson Williams Uplifts a Canadian Tire Bag**\
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/08/06/realestate/housing-market-near-nyc.html
 **Homes for Sale in Manhattan and the Bronx**\
 `This week’s properties are in the Flatiron district, Yorkville and Riverdale.`\
 https://www.nytimes.com/2026/08/06/realestate/housing-market-nyc.html
-
-**‘Tony’ Review: An Appetite for Experiences**\
-`On 1970s Cape Cod, a young Anthony Bourdain chases love and finds his future in this rambunctious, utterly charming little movie.`\
-https://www.nytimes.com/2026/08/06/movies/tony-review-dominic-sessa.html
-
-**‘The Last Picture Shows’ Review: Celebrating Old-School Movie Houses**\
-`The stand-alone cinema is facing extinction. A new documentary chronicles its fight for survival in the United States.`\
-https://www.nytimes.com/2026/08/06/movies/the-last-picture-shows-review.html
-
-**‘Olmo’ Review: A New Mexican Coming-of-Age Comedy**\
-`Fernando Eimbcke’s film, set in Las Cruces, finds tenderness and turmoil in a 1970s Mexican American household.`\
-https://www.nytimes.com/2026/08/06/movies/olmo-review-a-new-mexican-coming-of-age-comedy.html
 
