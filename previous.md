@@ -1,3 +1,7 @@
+**Sydney Towle, Who Chronicled Her Cancer on TikTok, Dies at 26**\
+`For an audience that grew to more than a million followers, she challenged assumptions of how people with serious illnesses should look and live.`\
+https://www.nytimes.com/2026/08/06/style/sydney-towle-dead.html
+
 **Who Is Ahead in South Carolina's 7th Congressional District?**\
 `Track the latest polls in South Carolina's 7th Congressional District.`\
 https://www.nytimes.com/interactive/polls/south-carolina-us-house-7-polls-2026.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/06/magazine/yankees-brian-cashman.html
 **‘The Big Cheese’ Review: Who Will Become the World’s Best Cheesemonger?**\
 `In this documentary, a team is determined to help the United States finally claim top honors at a fierce competition in France.`\
 https://www.nytimes.com/2026/08/06/movies/the-big-cheese-review.html
-
-**Why Are More Young Women Developing Heart Disease?**\
-`Rates are on the rise, but prevention is possible. Here’s what experts recommend.`\
-https://www.nytimes.com/2026/08/06/well/heart-disease-young-women.html
 

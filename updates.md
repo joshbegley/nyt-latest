@@ -1,3 +1,7 @@
+**Sydney Towle, Who Chronicled Her Cancer on TikTok, Dies at 26**\
+`For an audience that grew to more than a million followers, she challenged assumptions of how people with serious illnesses should look and live.`\
+https://www.nytimes.com/2026/08/06/style/sydney-towle-dead.html
+
 **Who Is Ahead in South Carolina's 7th Congressional District?**\
 `Track the latest polls in South Carolina's 7th Congressional District.`\
 https://www.nytimes.com/interactive/polls/south-carolina-us-house-7-polls-2026.html
