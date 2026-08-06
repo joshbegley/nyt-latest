@@ -1,3 +1,11 @@
+**Bernie Sanders Is Not Doing the Democrats Any Favors**\
+`What exactly is the project of the insurgent left all about?`\
+https://www.nytimes.com/2026/08/06/opinion/democrats-bernie-sanders-dsa-el-sayed.html
+
+**Three Myths People Love to Believe About English**\
+`Sorry to be a spoilsport.`\
+https://www.nytimes.com/2026/08/06/opinion/english-language-linguistics-myths.html
+
 **Birds Are Dying. Clues Point to El Niño.**\
 `A die-off of seabirds has some experts thinking an El Niño weather pattern is to blame, a look at data centers and pollution, and more climate news.`\
 https://www.nytimes.com/2026/08/06/climate/bird-die-offs-el-nino.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/06/business/china-unitree-ipo-robot.html
 **Sydney Towle, Who Chronicled Her Cancer on TikTok, Dies at 26**\
 `For an audience that grew to more than a million followers, she challenged assumptions about how people with serious illnesses should look and live.`\
 https://www.nytimes.com/2026/08/06/style/sydney-towle-dead.html
-
-**Who Is Ahead in South Carolina's 7th Congressional District?**\
-`Track the latest polls in South Carolina's 7th Congressional District.`\
-https://www.nytimes.com/interactive/polls/south-carolina-us-house-7-polls-2026.html
-
-**Senate Panel Votes to Hold Fauci in Contempt of Congress**\
-`Dr. Anthony Fauci had refused to answer questions at a hearing last week, invoking the Fifth Amendment. Republicans argued he wasn’t entitled to that protection because he had a presidential pardon.`\
-https://www.nytimes.com/2026/08/06/us/politics/fauci-contempt-of-congress.html
 
