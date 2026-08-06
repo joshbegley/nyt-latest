@@ -1,3 +1,11 @@
+**Bernie Sanders Is Not Doing the Democrats Any Favors**\
+`What exactly is the project of the insurgent left all about?`\
+https://www.nytimes.com/2026/08/06/opinion/democrats-bernie-sanders-dsa-el-sayed.html
+
+**Three Myths People Love to Believe About English**\
+`Sorry to be a spoilsport.`\
+https://www.nytimes.com/2026/08/06/opinion/english-language-linguistics-myths.html
+
 **Birds Are Dying. Clues Point to El Niño.**\
 `A die-off of seabirds has some experts thinking an El Niño weather pattern is to blame, a look at data centers and pollution, and more climate news.`\
 https://www.nytimes.com/2026/08/06/climate/bird-die-offs-el-nino.html
