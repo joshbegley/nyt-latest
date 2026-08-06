@@ -1,3 +1,7 @@
+**What’s Behind the A.I. Shake-Up at Google**\
+`A new role for Demis Hassabis, the head of Google’s artificial intelligence unit, reflects reality at the tech giant. Investors remain worried.`\
+https://www.nytimes.com/2026/08/06/business/dealbook/hassabis-google-ai.html
+
 **A.I. Gas Guzzlers**\
 `We look at what’s powering data centers.`\
 https://www.nytimes.com/2026/08/06/briefing/data-centers-gas-power.html
@@ -94,13 +98,13 @@ https://www.nytimes.com/interactive/2026/08/06/travel/things-to-do-chicago.html
 `Corrections that appeared in print on Thursday, Aug. 6, 2026.`\
 https://www.nytimes.com/2026/08/06/pageoneplus/corrections-aug-6-2026.html
 
-**How Ukrainians Are Using Social Media to Track Russian Ballistic Missiles**\
-`Using dozens of Telegram social media channels, Ukrainians have learned to game Russian air attacks over nearly four and a half years of war.`\
-https://www.nytimes.com/interactive/2026/08/06/world/europe/russia-ukraine-war-kyiv-telegram.html
-
 **‘Avatar Aang: The Last Airbender’ Shows How to Beat Franchise Fatigue**\
 `There have been ups and downs, including a widely reviled big-screen disaster. But the latest film shows a story that is headed in the right direction.`\
 https://www.nytimes.com/2026/08/06/movies/avatar-aang-the-last-airbender.html
+
+**How Ukrainians Are Using Social Media to Track Russian Ballistic Missiles**\
+`Using dozens of Telegram social media channels, Ukrainians have learned to game Russian air attacks over nearly four and a half years of war.`\
+https://www.nytimes.com/interactive/2026/08/06/world/europe/russia-ukraine-war-kyiv-telegram.html
 
 **On PBS Kids, Jacqueline Woodson Reminds Children Their Stories Matter**\
 `A new animated special, “The Day You Begin,” based on the best-selling picture book, emphasizes the richness that diversity brings to a community.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/06/movies/teenage-sex-and-death-at-camp-miasma-r
 **In Texas’ Most Eligible Senate Race, It’s Bachelor vs. Divorcé-to-Be**\
 `Ken Paxton is divorcing. James Talarico is dating a onetime staffer. Both have had their romantic lives scrutinized as part of their high-stakes campaigns.`\
 https://www.nytimes.com/2026/08/06/us/paxton-talarico-single-dating.html
-
-**John Carpenter Found a New Way to Give You Nightmares**\
-`The director of slasher films that defined horror from the 1970s through the ’90s realizes his latest work, “Cathedral,” as both a graphic novel and a hard-rock album.`\
-https://www.nytimes.com/2026/08/06/arts/music/john-carpenter-cathedral-graphic-novel-album.html
 
