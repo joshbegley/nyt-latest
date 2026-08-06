@@ -6,7 +6,7 @@ https://www.nytimes.com/2026/08/06/us/politics/jd-vance-insults.html
 `Our writing units are based on real-world features like narratives, opinion essays, podcasts, informational videos and more.`\
 https://www.nytimes.com/2026/08/06/learning/lesson-plans/teach-writing-with-the-new-york-times-our-2026-27-curriculum.html
 
-**El Nino Might Mean More Storms for California Than the Atlantic Coast**\
+**El Nino Might Mean More Storms Near California Than the Atlantic Coast**\
 `It hasn’t been that long since Hurricane Hilary made a run at Southern California. Could this year see a repeat?`\
 https://www.nytimes.com/2026/08/06/weather/pacific-hurricane-updates-el-nino.html
 
