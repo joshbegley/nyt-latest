@@ -1,3 +1,7 @@
+**See Where the Reflecting Pool Renovation Appeared to Fail**\
+`A Times analysis found dozens of areas across the pool's new liner that showed tears, bubbles and peeling.`\
+https://www.nytimes.com/interactive/2026/08/05/us/politics/trump-reflecting-pool-damage.html
+
 **Pakistan Starts Sweeping New Crackdown on Journalists**\
 `With a protest movement in Kashmir challenging its authority in the region, Pakistan restricts independent reporting by local and foreign media.`\
 https://www.nytimes.com/2026/08/05/world/asia/pakistan-international-news-media-ban.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/05/health/cdc-erica-schwartz.html
 **U.S. Cuts Ties With Organ Donor Group After Reports of Abuses**\
 `The federal government is ending its contract with a Kentucky nonprofit that it says pressured medical workers to remove organs from patients who were getting better.`\
 https://www.nytimes.com/2026/08/05/us/organ-donations-kentucky.html
-
-**Have We Turned Personality Into Diagnosis?**\
-`Why we keep searching for new ways to explain ourselves.`\
-https://www.nytimes.com/2026/08/05/opinion/adhd-autism-diagnosis-social-media.html
 
