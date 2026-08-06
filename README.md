@@ -1,3 +1,15 @@
+**Académico estrella renuncia a Cambridge, que investiga sus antecedentes**\
+`Jason Arday fue contratado en 2023 como el profesor negro más joven de la historia de la universidad. Ahora se han puesto en duda sus credenciales académicas y su historia de vida.`\
+https://www.nytimes.com/es/2026/08/06/espanol/cultura/arday-renuncia-cambridge.html
+
+**Who Is Ahead in Indiana's 5th Congressional District?**\
+`Track the latest polls in Indiana's 5th Congressional District.`\
+https://www.nytimes.com/interactive/polls/indiana-us-house-5-polls-2026.html
+
+**Drought Threatens a Vital Economic Artery in the Heart of Europe**\
+`The Rhine conveys vessels and cargo that power European industry. Record low water levels are disrupting supply chains, adding costs and presenting fresh risks to growth.`\
+https://www.nytimes.com/2026/08/06/business/rhine-drought-germany-economy.html
+
 **Tennessee U.S. Senate Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Tennessee primary election.`\
 https://www.nytimes.com/interactive/2026/08/06/us/elections/results-tennessee-us-senate-primary.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/08/06/opinion/el-syed-democrats-cornyn-tillis-repub
 **The Metropolitan Museum of Art Is Making a Very Bad Mistake**\
 `Is the Met Gala’s new theme antisemitism?`\
 https://www.nytimes.com/2026/08/06/opinion/met-gala-galliano-antisemitism.html
-
-**The A.I. Jargon That Will Help You Spot a Stock Downturn**\
-`The math that lies behind Silicon Valley shorthand will help determine the future of America’s largest A.I. companies.`\
-https://www.nytimes.com/2026/08/06/opinion/ai-market-bubble-crash.html
-
-**Critics of the U.S.-Saudi Nuclear Deal Have It Exactly Wrong**\
-`Delay risks driving the kingdom, and others, to sign less stringent nuclear deals with our adversaries.`\
-https://www.nytimes.com/2026/08/06/opinion/us-saudi-arabia-nuclear-deal.html
-
-**Le dije a mi paciente que no regresaría a casa. Me equivoqué**\
-`Cuando los médicos nos apresuramos a dar certezas sobre cómo progresará la enfermedad de un paciente, corremos el riesgo de cerrar posibilidades.`\
-https://www.nytimes.com/es/2026/08/06/espanol/opinion/doctores-pacientes-terminales.html
 
