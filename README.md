@@ -166,7 +166,7 @@ https://www.nytimes.com/2026/08/06/well/heart-disease-young-women.html
 `The government turned to the world to respond to twin quakes. But years of shrinking budgets and political repression weakened its ability to rescue countless people trapped in rubble.`\
 https://www.nytimes.com/2026/08/06/world/americas/venezuela-earthquakes-response-rodriguez.html
 
-**A Trans Woman Brandished a Firearm. Gun Rights Devotion Disappeared.**\
+**A Trans Woman Pulled a Gun and Started a ‘Stand Your Ground’ Debate**\
 `Gun-friendly Wyoming has a “stand your ground” statute that allows people to use force to defend themselves. So why is a trans woman being prosecuted after being shoved to the ground?`\
 https://www.nytimes.com/2026/08/06/us/transgender-gun-rights-wyoming.html
 
