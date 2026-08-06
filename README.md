@@ -1,3 +1,7 @@
+**Justice Department Accuses Duke Law School of Racial Discrimination**\
+`The federal government said the school’s admissions policies, which promote diversity, allowed for racial preferences.`\
+https://www.nytimes.com/2026/08/06/us/justice-department-duke-law-school-racial-discrimination-admissions.html
+
 **A List of Good Things**\
 `For something different in August, we bring you ideas, rituals and activities to add joy to your days.`\
 https://www.nytimes.com/2026/08/06/world/good-list-rituals-strait-hormuz-fifa.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/08/06/us/elections/results-tennessee-pr
 **Tennessee Governor Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Tennessee primary election.`\
 https://www.nytimes.com/interactive/2026/08/06/us/elections/results-tennessee-governor-primary.html
-
-**Tennessee Second Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Tennessee primary election.`\
-https://www.nytimes.com/interactive/2026/08/06/us/elections/results-tennessee-us-house-2-primary.html
 

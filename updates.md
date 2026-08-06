@@ -1,3 +1,7 @@
+**A List of Good Things**\
+`For something different in August, we bring you ideas, rituals and activities to add joy to your days.`\
+https://www.nytimes.com/2026/08/06/world/good-list-rituals-strait-hormuz-fifa.html
+
 **Senate Panel Votes to Hold Fauci in Contempt of Congress**\
 `The Senate Homeland Security Committee voted along party lines to hold Dr. Anthony Fauci in contempt of Congress on Thursday. The resolution accuses Dr. Fauci of failing to comply with a congressional subpoena after he refused to answer questions at a hearing last week.`\
 https://www.nytimes.com/video/us/politics/100000011077161/fauci-contempt-congress-vote.html
