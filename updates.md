@@ -1,3 +1,7 @@
+**Capybaras Were the Newest Lobbyists in This Brazilian Legislature**\
+`In Mato Grosso, Brazil, capybaras wandered into the building, but they were polite during the incursion.`\
+https://www.nytimes.com/2026/08/06/world/americas/capybara-brazil-legislature.html
+
 **Annelise Camp, Whose Family Sued to Stop Brain Death Test After Drowning, Has Died**\
 `The case of 2-year-old Annelise Camp, who was found unconscious in May, drew the backing of anti-abortion activists. On Monday, the family decided to remove life support.`\
 https://www.nytimes.com/2026/08/06/us/annelise-camp-dead-drowning-brain-death.html

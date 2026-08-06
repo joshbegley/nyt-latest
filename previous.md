@@ -1,3 +1,7 @@
+**Capybaras Were the Newest Lobbyists in This Brazilian Legislature**\
+`In Mato Grosso, Brazil, capybaras wandered into the building, but they were polite during the incursion.`\
+https://www.nytimes.com/2026/08/06/world/americas/capybara-brazil-legislature.html
+
 **Annelise Camp, Whose Family Sued to Stop Brain Death Test After Drowning, Has Died**\
 `The case of 2-year-old Annelise Camp, who was found unconscious in May, drew the backing of anti-abortion activists. On Monday, the family decided to remove life support.`\
 https://www.nytimes.com/2026/08/06/us/annelise-camp-dead-drowning-brain-death.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/06/world/europe/munich-car-attack-driver-sentenc
 ****\
 `Humanoid robots are still a nascent technology, but they are expected to operate in more environments like factories, warehouses, stores and, eventually, homes.`\
 https://www.nytimes.com/video/embedded/business/100000011076861/Biz-China-Robot-IPO-video-2.html
-
-****\
-`Investors are betting that humanoid robots built to look and move like humans will become the next major breakthrough.`\
-https://www.nytimes.com/video/embedded/business/100000011076857/Biz-China-Robot-IPO-Video1.html
 
