@@ -1,3 +1,11 @@
+**The Sauces to Put on (and Under) Every Vegetable**\
+`(No description)`\
+https://www.nytimes.com/2026/08/06/dining/the-sauces-to-put-on-and-under-every-vegetable.html
+
+**Israeli Settler Charged in Death of Activist Awdah Hathaleen**\
+`The indictment was a rare case in which the Israeli authorities pressed charges against an Israeli in the killing of a Palestinian.`\
+https://www.nytimes.com/2026/08/06/world/middleeast/israel-settler-manslaughter-palestinian-activist.html
+
 **Amid Cyclospora Outbreak, Demand for Locally Grown Lettuce Surges**\
 `Small produce stands and farmers’ markets are seeing a surge in demand for leafy greens as sales of lettuce and salad kits from grocery chains and big retailers drop.`\
 https://www.nytimes.com/2026/08/06/business/cyclospora-lettuce-local-produce.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/06/crosswords/connections-companion-1153.html
 **NYT Strands Hints for Aug. 7, 2026**\
 `Scroll down for hints and conversation about the puzzle for Friday, Aug. 7, 2026.`\
 https://www.nytimes.com/2026/08/06/crosswords/strands-sidekick-887.html
-
-**Today’s Wordle Hints for August 7, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, Aug. 7, 2026.`\
-https://www.nytimes.com/2026/08/06/crosswords/wordle-review-1875.html
-
-**Amid Intensifying Russian Strikes, Ukraine’s Pleas for Air Defenses Are Falling Flat**\
-`Western allies are more hesitant to give up interceptor missiles they may need for their own defense as war rages on multiple fronts.`\
-https://www.nytimes.com/2026/08/06/world/europe/ukraine-russia-missile-defense-patriots.html
 
