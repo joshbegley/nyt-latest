@@ -27,7 +27,7 @@ https://www.nytimes.com/video/embedded/world/asia/100000011076383/06int-japan-ro
 https://www.nytimes.com/2026/08/06/world/europe/munich-car-attack-driver-sentence.html
 
 ****\
-`tktktkt`\
+`Humanoid robots are still a nascent technology, but they expected to operate in more environments like factories, warehouses, stores and, eventually, homes.`\
 https://www.nytimes.com/video/embedded/business/100000011076861/Biz-China-Robot-IPO-video-2.html
 
 ****\

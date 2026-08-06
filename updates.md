@@ -1,3 +1,7 @@
+****\
+`Humanoid robots are still a nascent technology, but they expected to operate in more environments like factories, warehouses, stores and, eventually, homes.`\
+https://www.nytimes.com/video/embedded/business/100000011076861/Biz-China-Robot-IPO-video-2.html
+
 **Sydney Towle, Who Chronicled Her Cancer on TikTok, Dies at 26**\
 `For an audience that grew to more than a million followers, she challenged assumptions of how people with serious illnesses should look and live.`\
 https://www.nytimes.com/2026/08/06/style/sydney-towle-dead.html
