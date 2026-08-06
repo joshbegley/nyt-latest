@@ -1,3 +1,7 @@
+**Budget Airline Jetstar to Charge Fees for Using the Overhead Bin**\
+`Jetstar, a budget carrier, will be the first in Australia to start making passengers pay for carry-on luggage that doesn’t fit under the seat.`\
+https://www.nytimes.com/2026/08/06/world/australia/jetstar-overhead-bin-compartment-baggage-fees.html
+
 **En ‘Ted Lasso’ Hannah Waddingham es implacable. Fuera de cámara, es encantadoramente boba**\
 `Hannah Waddingham es de las pocas actrices británicas en abrirse camino del teatro musical a la pantalla.`\
 https://www.nytimes.com/es/2026/08/06/espanol/cultura/ted-lasso-tercera-temporada-actriz.html
