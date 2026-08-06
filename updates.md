@@ -1,3 +1,7 @@
+**Muere Sydney Towle, que compartió su experiencia con el cáncer en TikTok, a los 26 años**\
+`Para un público que creció a más de un millón de seguidores, desafió las suposiciones sobre cómo deberían verse y vivir las personas con enfermedades graves.`\
+https://www.nytimes.com/es/2026/08/06/espanol/estilos-de-vida/muere-sydney-towle-tiktok.html
+
 **James R. Urbaniak, Master of Stitching Back Fingers, Dies at 90**\
 `He was among the first to perform microscopic surgery in the 1970s and revolutionized techniques to treat traumatic injuries.`\
 https://www.nytimes.com/2026/08/06/science/james-urbaniak-dead.html

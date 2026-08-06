@@ -1,3 +1,7 @@
+**Amid Cyclospora Outbreak, Demand for Locally Grown Lettuce Surges**\
+`Small produce stands and farmers’ markets are seeing a surge in demand for leafy greens as sales of lettuce and salad kits from grocery chains and big retailers drop.`\
+https://www.nytimes.com/2026/08/06/business/cyclospora-lettuce-local-produce.html
+
 **Muere Sydney Towle, que compartió su experiencia con el cáncer en TikTok, a los 26 años**\
 `Para un público que creció a más de un millón de seguidores, desafió las suposiciones sobre cómo deberían verse y vivir las personas con enfermedades graves.`\
 https://www.nytimes.com/es/2026/08/06/espanol/estilos-de-vida/muere-sydney-towle-tiktok.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/06/crosswords/wordle-review-1875.html
 **Amid Intensifying Russian Strikes, Ukraine’s Pleas for Air Defenses Are Falling Flat**\
 `Western allies are more hesitant to give up interceptor missiles they may need for their own defense as war rages on multiple fronts.`\
 https://www.nytimes.com/2026/08/06/world/europe/ukraine-russia-missile-defense-patriots.html
-
-**Fires Wrecked Their Village in France. Now They Want Answers.**\
-`After fleeing France’s worst wildfire in decades, residents of Le Porge, a village west of Bordeaux, returned home 13 days later. They found a town in ruins.`\
-https://www.nytimes.com/2026/08/06/world/europe/le-porge-france-fires-village.html
 
