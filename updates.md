@@ -1,3 +1,11 @@
+**Travis Barker: ‘Skateboarding Taught Me Everything’**\
+`Travis Barker spoke with Jon Caramanica and Joe Coscarelli on “Popcast” about his music career and his new documentary, “Travis Barker: Louder Than Fear,” out Aug. 13.`\
+https://www.nytimes.com/video/podcasts/100000011074588/travis-barker-skateboarding-taught-me-everything.html
+
+**Want to Run the N.Y.C. Marathon? You May Have to Enter Another Lottery.**\
+`The race organizer announced changes to the 9+1 program, a popular method for guaranteed entry, for the 2028 marathon.`\
+https://www.nytimes.com/2026/08/06/nyregion/nyc-marathon-lottery.html
+
 **Want to Run the N.Y.C. Marathon? You May Have to Enter Another Lottery**\
 `The race organizer announced changes to the 9+1 program, a popular method for guaranteed entry, for the 2028 marathon.`\
 https://www.nytimes.com/2026/08/06/nyregion/nyc-marathon-lottery.html
