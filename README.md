@@ -1,3 +1,7 @@
+**Roedores en el Congreso: estos capibaras cabildearon a unos legisladores en Brasil**\
+`Sabemos que tienes preguntas. Aquí las respondemos.`\
+https://www.nytimes.com/es/2026/08/06/espanol/capibaras-congreso-brasil.html
+
 **Cheese On A Conveyor Belt? (Actually) Groundbreaking.**\
 `Becky Hughes takes on burning questions from “Where to Eat” readers.`\
 https://www.nytimes.com/2026/08/06/dining/reader-questions.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/08/06/us/elections/results-tennessee-us
 **A Promising Heart Drug Fails, Challenging a Long-Held Theory of Disease**\
 `The drug targeted inflammation, and its shocking failure has experts questioning whether inflammation really does cause heart disease.`\
 https://www.nytimes.com/2026/08/06/health/heart-disease-drug-fails-novo-nordisk.html
-
-**A Growing Problem in Fighting Wildfires: Drones**\
-`Aircraft violating restrictions have disrupted firefighting efforts in Spokane County, Wash., this week, officials said.`\
-https://www.nytimes.com/2026/08/06/us/spokane-wildfires-drones.html
 
