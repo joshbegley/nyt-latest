@@ -42,7 +42,7 @@ https://www.nytimes.com/2026/08/05/world/europe/germany-explosive-drone-airport.
 `Also, the Senate confirms a new C.D.C. director. Here’s the latest at the end of Wednesday.`\
 https://www.nytimes.com/2026/08/05/briefing/michigan-democrats-pick-el-sayed.html
 
-**Helicopter Carrying Trump Flies Near Passenger Jet in Washington Airspace**\
+**Helicopter Carrying Trump Flew Near Passenger Jet in Washington Airspace**\
 `Marine One, the helicopter that ferries the president, came within less than a mile of an Envoy Air flight on Tuesday, raising new concerns about air traffic control in the congested area.`\
 https://www.nytimes.com/2026/08/05/us/politics/trump-helicopter-jet-marine-one.html
 
