@@ -1,8 +1,12 @@
+**Scott Galloway’s Dating Advice**\
+`Scott Galloway is not a fan of incels. “For 99 percent of history, 99 percent of men have been involuntarily celibate for 99 percent of the time,” he says on “Interesting Times,” urging young men to fight for what they want — including sex. “It’s a motivator for us to be better men. No man has the right to reproduce. You got to work for it.”`\
+https://www.nytimes.com/video/opinion/100000011066438/scott-galloways-dating-advice.html
+
 **Roedores en el Congreso: estos capibaras cabildearon a unos legisladores en Brasil**\
 `Sabemos que tienes preguntas. Aquí las respondemos.`\
 https://www.nytimes.com/es/2026/08/06/espanol/capibaras-congreso-brasil.html
 
-**Cheese On A Conveyor Belt? (Actually) Groundbreaking.**\
+**Cheese on a Conveyor Belt? (Actually) Groundbreaking.**\
 `Becky Hughes takes on burning questions from “Where to Eat” readers.`\
 https://www.nytimes.com/2026/08/06/dining/reader-questions.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/08/06/us/elections/results-tennessee-us
 **Tennessee Third Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Tennessee primary election.`\
 https://www.nytimes.com/interactive/2026/08/06/us/elections/results-tennessee-us-house-3-primary.html
-
-**A Promising Heart Drug Fails, Challenging a Long-Held Theory of Disease**\
-`The drug targeted inflammation, and its shocking failure has experts questioning whether inflammation really does cause heart disease.`\
-https://www.nytimes.com/2026/08/06/health/heart-disease-drug-fails-novo-nordisk.html
 
