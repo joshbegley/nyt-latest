@@ -1,3 +1,7 @@
+**Birds Are Dying. Clues Point to El Niño.**\
+`A die-off of seabirds has some experts thinking an El Niño weather pattern is to blame, a look at data centers and pollution, and more climate news.`\
+https://www.nytimes.com/2026/08/06/climate/bird-die-offs-el-nino.html
+
 **Books Our Editors Loved This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://www.nytimes.com/2026/08/06/books/review/new-recommended-books.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/polls/south-carolina-us-house-7-polls-2026.h
 **Senate Panel Votes to Hold Fauci in Contempt of Congress**\
 `Dr. Anthony Fauci had refused to answer questions at a hearing last week, invoking the Fifth Amendment. Republicans argued he wasn’t entitled to that protection because he had a presidential pardon.`\
 https://www.nytimes.com/2026/08/06/us/politics/fauci-contempt-of-congress.html
-
-**The ‘Heated Rivalry’ Star Hudson Williams Uplifts a Canadian Tire Bag**\
-`After the actor Hudson Williams was photographed carrying a plaid reusable shopping bag, priced under $2, the tote has become a viral fashion accessory.`\
-https://www.nytimes.com/2026/08/06/world/canada/hudson-williams-heated-rivalry-canadian-tire.html
 

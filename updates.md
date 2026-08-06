@@ -1,3 +1,7 @@
+**Birds Are Dying. Clues Point to El Niño.**\
+`A die-off of seabirds has some experts thinking an El Niño weather pattern is to blame, a look at data centers and pollution, and more climate news.`\
+https://www.nytimes.com/2026/08/06/climate/bird-die-offs-el-nino.html
+
 **Books Our Editors Loved This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://www.nytimes.com/2026/08/06/books/review/new-recommended-books.html
