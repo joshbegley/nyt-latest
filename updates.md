@@ -1,3 +1,59 @@
+**Académico estrella renuncia a Cambridge, que investiga sus antecedentes**\
+`Jason Arday fue contratado en 2023 como el profesor negro más joven de la historia de la universidad. Ahora se han puesto en duda sus credenciales académicas y su historia de vida.`\
+https://www.nytimes.com/es/2026/08/06/espanol/cultura/arday-renuncia-cambridge.html
+
+**Who Is Ahead in Indiana's 5th Congressional District?**\
+`Track the latest polls in Indiana's 5th Congressional District.`\
+https://www.nytimes.com/interactive/polls/indiana-us-house-5-polls-2026.html
+
+**Drought Threatens a Vital Economic Artery in the Heart of Europe**\
+`The Rhine conveys vessels and cargo that power European industry. Record low water levels are disrupting supply chains, adding costs and presenting fresh risks to growth.`\
+https://www.nytimes.com/2026/08/06/business/rhine-drought-germany-economy.html
+
+**Tennessee U.S. Senate Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Tennessee primary election.`\
+https://www.nytimes.com/interactive/2026/08/06/us/elections/results-tennessee-us-senate-primary.html
+
+**Tennessee Ninth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Tennessee primary election.`\
+https://www.nytimes.com/interactive/2026/08/06/us/elections/results-tennessee-us-house-9-primary.html
+
+**Tennessee Fifth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Tennessee primary election.`\
+https://www.nytimes.com/interactive/2026/08/06/us/elections/results-tennessee-us-house-5-primary.html
+
+**Tennessee Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Tennessee primary elections.`\
+https://www.nytimes.com/interactive/2026/08/06/us/elections/results-tennessee-primary.html
+
+**Tennessee Governor Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Tennessee primary election.`\
+https://www.nytimes.com/interactive/2026/08/06/us/elections/results-tennessee-governor-primary.html
+
+**Tennessee Second Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Tennessee primary election.`\
+https://www.nytimes.com/interactive/2026/08/06/us/elections/results-tennessee-us-house-2-primary.html
+
+**Tennessee First Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Tennessee primary election.`\
+https://www.nytimes.com/interactive/2026/08/06/us/elections/results-tennessee-us-house-1-primary.html
+
+**Tennessee Fourth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Tennessee primary election.`\
+https://www.nytimes.com/interactive/2026/08/06/us/elections/results-tennessee-us-house-4-primary.html
+
+**Tennessee Seventh Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Tennessee primary election.`\
+https://www.nytimes.com/interactive/2026/08/06/us/elections/results-tennessee-us-house-7-primary.html
+
+**Tennessee Eighth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Tennessee primary election.`\
+https://www.nytimes.com/interactive/2026/08/06/us/elections/results-tennessee-us-house-8-primary.html
+
+**Tennessee Third Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Tennessee primary election.`\
+https://www.nytimes.com/interactive/2026/08/06/us/elections/results-tennessee-us-house-3-primary.html
+
 **A Promising Heart Drug Fails, Challenging a Long-Held Theory of Disease**\
 `The drug targeted inflammation, and its shocking failure has experts questioning whether inflammation really does cause heart disease.`\
 https://www.nytimes.com/2026/08/06/health/heart-disease-drug-fails-novo-nordisk.html
