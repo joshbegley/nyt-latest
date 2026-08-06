@@ -1,3 +1,7 @@
+**Senate Panel Has Obtained Copy of Fauci’s Cellphone**\
+`The development comes as a Senate committee prepares to vote Thursday on whether to hold Dr. Anthony S. Fauci in contempt of Congress for refusing to answer questions at a hearing.`\
+https://www.nytimes.com/2026/08/05/us/politics/fauci-phone-senate.html
+
 **See Where the Reflecting Pool Renovation Appeared to Fail**\
 `A Times analysis found dozens of areas across the pool's new liner that showed tears, bubbles and peeling.`\
 https://www.nytimes.com/interactive/2026/08/05/us/politics/trump-reflecting-pool-damage.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/05/opinion/fauci-covid-hearings.html
 **Senate Confirms Dr. Erica Schwartz as C.D.C. Director**\
 `Dr. Schwartz, a deputy surgeon general in the first Trump administration, has publicly supported childhood vaccines.`\
 https://www.nytimes.com/2026/08/05/health/cdc-erica-schwartz.html
-
-**U.S. Cuts Ties With Organ Donor Group After Reports of Abuses**\
-`The federal government is ending its contract with a Kentucky nonprofit that it says pressured medical workers to remove organs from patients who were getting better.`\
-https://www.nytimes.com/2026/08/05/us/organ-donations-kentucky.html
 

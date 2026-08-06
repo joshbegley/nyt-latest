@@ -1,3 +1,7 @@
+**Senate Panel Has Obtained Copy of Fauci’s Cellphone**\
+`The development comes as a Senate committee prepares to vote Thursday on whether to hold Dr. Anthony S. Fauci in contempt of Congress for refusing to answer questions at a hearing.`\
+https://www.nytimes.com/2026/08/05/us/politics/fauci-phone-senate.html
+
 **See Where the Reflecting Pool Renovation Appeared to Fail**\
 `A Times analysis found dozens of areas across the pool's new liner that showed tears, bubbles and peeling.`\
 https://www.nytimes.com/interactive/2026/08/05/us/politics/trump-reflecting-pool-damage.html
