@@ -34,8 +34,8 @@ https://www.nytimes.com/2026/08/05/us/politics/national-firearms-act-gun-control
 `Mayor Zohran Mamdani of New York said that Dr. Abdul El-Sayed’s close victory in the Michigan Senate primary put “working-class Americans back at the heart of our politics.”`\
 https://www.nytimes.com/2026/08/05/us/politics/el-sayed-mamdani-michigan-election.html
 
-**Fauci Faces Contempt Vote. Here Are the Legal Issues Involved.**\
-`Dr. Fauci invoked his Constitutional right under the Fifth Amendment in refusing to answer questions from a Senate committee. Republicans say he is ineligible for that protection.`\
+**Fauci Could Be Held in Contempt of Congress on Thursday**\
+`A Senate panel scheduled a vote after Dr. Anthony Fauci declined to answer questions at a hearing last week. Here are the legal issues involved.`\
 https://www.nytimes.com/2026/08/05/us/politics/fauci-contempt-vote-congress.html
 
 **El influencer César Gastélum es asesinado en Culiacán cuando transmitía en vivo**\
