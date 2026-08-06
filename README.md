@@ -1,4 +1,8 @@
-**Want to Run the N.Y.C. Marathon? You May Have to Enter Another Lottery**\
+**Travis Barker: ‘Skateboarding Taught Me Everything’**\
+`Travis Barker spoke with Jon Caramanica and Joe Coscarelli on “Popcast” about his music career and his new documentary, “Travis Barker: Louder Than Fear,” out Aug. 13.`\
+https://www.nytimes.com/video/podcasts/100000011074588/travis-barker-skateboarding-taught-me-everything.html
+
+**Want to Run the N.Y.C. Marathon? You May Have to Enter Another Lottery.**\
 `The race organizer announced changes to the 9+1 program, a popular method for guaranteed entry, for the 2028 marathon.`\
 https://www.nytimes.com/2026/08/06/nyregion/nyc-marathon-lottery.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/06/world/middleeast/houthi-yemen-strikes.html
 **Trump Administration to Deregulate Head Start, Antipoverty Program Created Under R.F.K. Jr.’s Uncle**\
 `While administration officials say the changes will save money by lifting onerous requirements, advocates fear the anti-poverty program will be gutted.`\
 https://www.nytimes.com/2026/08/06/us/politics/rfk-jr-head-start-antipoverty-program.html
-
-**The Sauces to Put on (and Under) Every Vegetable**\
-`(No description)`\
-https://www.nytimes.com/2026/08/06/dining/the-sauces-to-put-on-and-under-every-vegetable.html
 

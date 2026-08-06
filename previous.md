@@ -1,6 +1,6 @@
 **Want to Run the N.Y.C. Marathon? You May Have to Enter Another Lottery**\
 `The race organizer announced changes to the 9+1 program, a popular method for guaranteed entry, for the 2028 marathon.`\
-https://www.nytimes.com/2026/08/06/nyregion/want-to-run-the-nyc-marathon-you-may-have-to-enter-another-lottery.html
+https://www.nytimes.com/2026/08/06/nyregion/nyc-marathon-lottery.html
 
 **The Real Reason Behind Trump’s Yen Intervention**\
 `The U.S. is bolstering the yen, as it did with the Argentine peso. The reasons are not solely economic.`\
