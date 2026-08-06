@@ -1,3 +1,7 @@
+**Woman Who Killed Husband 2 Decades Ago Admits to Murdering Wife**\
+`A California woman who was sentenced to 11 years in prison in 2004 pleaded guilty this week in another stabbing death.`\
+https://www.nytimes.com/2026/08/06/us/woman-murder-spouse-california.html
+
 **After Trump Calls Canadians ‘Nasty,’ Mark Carney Says the Word Fits Trade Talks**\
 `Canada’s prime minister laughed off Trump’s description of Canada but suggested that trade talks between the two countries are acrimonious.`\
 https://www.nytimes.com/2026/08/06/world/canada/carney-trump-tariffs-trade.html

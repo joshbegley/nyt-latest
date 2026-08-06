@@ -1,3 +1,7 @@
+**Woman Who Killed Husband 2 Decades Ago Admits to Murdering Wife**\
+`A California woman who was sentenced to 11 years in prison in 2004 pleaded guilty this week in another stabbing death.`\
+https://www.nytimes.com/2026/08/06/us/woman-murder-spouse-california.html
+
 **After Trump Calls Canadians ‘Nasty,’ Mark Carney Says the Word Fits Trade Talks**\
 `Canada’s prime minister laughed off Trump’s description of Canada but suggested that trade talks between the two countries are acrimonious.`\
 https://www.nytimes.com/2026/08/06/world/canada/carney-trump-tariffs-trade.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/06/world/middleeast/israel-settler-manslaughter-
 **Amid Cyclospora Outbreak, Demand for Locally Grown Lettuce Surges**\
 `Small produce stands and farmers’ markets are seeing a surge in demand for leafy greens as sales of lettuce and salad kits from grocery chains and big retailers drop.`\
 https://www.nytimes.com/2026/08/06/business/cyclospora-lettuce-local-produce.html
-
-**Muere Sydney Towle, que compartió su experiencia con el cáncer en TikTok, a los 26 años**\
-`Para un público que creció a más de un millón de seguidores, desafió las suposiciones sobre cómo deberían verse y vivir las personas con enfermedades graves.`\
-https://www.nytimes.com/es/2026/08/06/espanol/estilos-de-vida/muere-sydney-towle-tiktok.html
 
