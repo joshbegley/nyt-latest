@@ -1,3 +1,7 @@
+**Amid Cyclospora Outbreak, Demand for Locally Grown Lettuce Surges**\
+`Small produce stands and farmers’ markets are seeing a surge in demand for leafy greens as sales of lettuce and salad kits from grocery chains and big retailers drop.`\
+https://www.nytimes.com/2026/08/06/business/cyclospora-lettuce-local-produce.html
+
 **Muere Sydney Towle, que compartió su experiencia con el cáncer en TikTok, a los 26 años**\
 `Para un público que creció a más de un millón de seguidores, desafió las suposiciones sobre cómo deberían verse y vivir las personas con enfermedades graves.`\
 https://www.nytimes.com/es/2026/08/06/espanol/estilos-de-vida/muere-sydney-towle-tiktok.html
