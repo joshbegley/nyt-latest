@@ -1,3 +1,7 @@
+**Fires Wrecked Their Village in France. Now They Want Answers.**\
+`After fleeing France’s worst wildfire in decades, residents of Le Porge, a village west of Bordeaux, returned home 13 days later. They found a town in ruins.`\
+https://www.nytimes.com/2026/08/06/world/europe/le-porge-france-fires-village.html
+
 **Las 48 horas que cambiaron a Venezuela**\
 `El gobierno venezolano recurrió al mundo para responder al doblete sísmico. Pero años de presupuestos cada vez más reducidos y represión política debilitaron su capacidad para rescatar a la gente en los escombros.`\
 https://www.nytimes.com/es/2026/08/06/espanol/america-latina/sismos-venezuela-primeras-48-horas.html
@@ -92,15 +96,15 @@ https://www.nytimes.com/2026/08/06/realestate/housing-market-nyc.html
 
 **‘Tony’ Review: An Appetite for Experiences**\
 `On 1970s Cape Cod, a young Anthony Bourdain chases love and finds his future in this rambunctious, utterly charming little movie.`\
-https://www.nytimes.com/2026/08/06/movies/tony-review-an-appetite-for-experiences.html
-
-**‘Olmo’ Review: A New Mexican Coming-of-Age Comedy**\
-`Fernando Eimbcke’s film, set in Las Cruces, finds tenderness and turmoil in a 1970s Mexican American household.`\
-https://www.nytimes.com/2026/08/06/movies/olmo-review-a-new-mexican-coming-of-age-comedy.html
+https://www.nytimes.com/2026/08/06/movies/tony-review-dominic-sessa.html
 
 **‘The Last Picture Shows’ Review: Celebrating Old-School Movie Houses**\
 `The stand-alone cinema is facing extinction. A new documentary chronicles its fight for survival in the United States.`\
 https://www.nytimes.com/2026/08/06/movies/the-last-picture-shows-review.html
+
+**‘Olmo’ Review: A New Mexican Coming-of-Age Comedy**\
+`Fernando Eimbcke’s film, set in Las Cruces, finds tenderness and turmoil in a 1970s Mexican American household.`\
+https://www.nytimes.com/2026/08/06/movies/olmo-review-a-new-mexican-coming-of-age-comedy.html
 
 **‘Ice Cream Man’ Review: A Rocky Road to Hell**\
 `Sweet-faced kids who just want a treat turn into murderous maniacs in Eli Roth’s messy new horror film.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/06/fashion/version-watches-france.html
 **India Moves Up in the Luxury Watch World**\
 `Changing retail, growing consumer wealth and a scheduled end to Swiss tariffs have improved the country’s ranking among watch importers.`\
 https://www.nytimes.com/2026/08/06/fashion/india-imports-swiss-watches.html
-
-**More In-House Artisans Are Signing Their Watch Creations**\
-`Hoping to capitalize on customers’ interest in craftsmanship, more luxury brands are allowing in-house artisans to sign their work.`\
-https://www.nytimes.com/2026/08/06/fashion/artisans-signing-watches-jaeger-lecoultre.html
 
