@@ -1,6 +1,10 @@
+**Handwritten Account of Hiroshima Bombing Is Up for Auction**\
+`Nosing around a book fair for inspiration, a reporter found a firsthand account of one of humanity’s gravest acts, with traces of a journalist’s hand.`\
+https://www.nytimes.com/2026/08/06/insider/enola-gay-hiroshima-pilot.html
+
 **Houthi Strikes on Yemeni Military Threaten to Reignite Civil War**\
 `The Iran-backed militia said they had targeted the armed forces in two resource-rich provinces, as escalating violence in Yemen imperils a fragile truce.`\
-https://www.nytimes.com/2026/08/06/world/middleeast/houthi-strikes-on-yemeni-military-threaten-to-reignite-civil-war.html
+https://www.nytimes.com/2026/08/06/world/middleeast/houthi-yemen-strikes.html
 
 **Trump Administration to Deregulate Head Start, Antipoverty Program Created Under R.F.K. Jr.’s Uncle**\
 `While administration officials say the changes will save money by lifting onerous requirements, advocates fear the anti-poverty program will be gutted.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/06/world/asia/japan-vandalism-doctor-prison-sent
 **The Cyclospora Mystery: How Human Waste Got on So Much Lettuce**\
 `The parasite cyclospora, which spreads through food or water contaminated by human feces, has been traced to a Taylor Farms processing facility in Mexico.`\
 https://www.nytimes.com/2026/08/06/podcasts/the-daily/cyclospora-taylor-farms-lettuce.html
-
-**A New Plan for Closer U.S.-Israel Military Cooperation, and the First mRNA Flu Vaccine**\
-`Plus, what happens when you have an A.I. boss.`\
-https://www.nytimes.com/2026/08/06/podcasts/the-headlines/a-new-plan-for-closer-us-israel-military-cooperation-and-the-first-mrna-flu-vaccine.html
 
