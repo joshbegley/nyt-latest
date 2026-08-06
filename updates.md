@@ -1,3 +1,11 @@
+**Art Gallery Shows to See in August**\
+`This week in Newly Reviewed Carolina Miranda covers three shows in Los Angeles: a group exhibit with Tom of Finland at the center, Betye Saar’s “wearable art” and Esther Pearl Watson’s spaceships.`\
+https://www.nytimes.com/2026/08/06/arts/art-gallery-shows-to-see-in-august.html
+
+**Una IA creó virus que no se encuentran en la naturaleza**\
+`Los científicos entrenaron a un modelo de inteligencia artificial con bases de datos de ADN y luego le pidieron que creara recetas de genomas virales. Dieciséis de ellas resultaron viables y dieron lugar a nuevos virus.`\
+https://www.nytimes.com/es/2026/08/06/espanol/ciencia-y-tecnologia/crear-virus-ia.html
+
 **Senate Panel Votes to Hold Fauci in Contempt**\
 `Also, an A.I. model created viruses not found in nature. Here’s the latest at the end of Thursday.`\
 https://www.nytimes.com/2026/08/06/briefing/senate-fauci-contempt-alaska-wave.html
