@@ -1,3 +1,7 @@
+**La CIA forma un grupo operativo secreto sobre Cuba**\
+`El equipo le permitirá a la agencia de espionaje dedicar rápidamente más recursos financieros, humanos y técnicos a la isla, con el objetivo de crear fisuras entre la élite política cubana.`\
+https://www.nytimes.com/es/2026/08/05/espanol/estados-unidos/cia-grupo-operativo-secreto-cuba.html
+
 **Helicopter Carrying Trump Flew Near Passenger Jet in Washington Airspace**\
 `Marine One, the helicopter that ferries the president, came within less than a mile of an Envoy Air flight on Tuesday, raising new concerns about air traffic control in the congested area.`\
 https://www.nytimes.com/2026/08/05/us/politics/trump-helicopter-jet-marine-one.html
