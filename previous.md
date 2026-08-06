@@ -1,3 +1,19 @@
+**¿Por qué cada vez más mujeres jóvenes desarrollan enfermedades cardíacas?**\
+`Las tasas van en aumento, pero la prevención es posible. Esto es lo que recomiendan los expertos.`\
+https://www.nytimes.com/es/2026/08/06/espanol/estilos-de-vida/mujeres-jovenes-enfermedades-cardiacas.html
+
+**Where Gen Z Finds Meaning in Life**\
+`Readers respond to “Gen Z Fell Out of Love With Work. It’s Easy to See Why,” an Opinion guest essay by Emi Nietfeld. Also: Maligning Dr. Anthony Fauci.`\
+https://www.nytimes.com/2026/08/06/opinion/gen-z-work-life.html
+
+**Edgy Vanity Plates Test Limits of Free Speech**\
+`Virginia will ask the Supreme Court to hear a dispute over a seven-character license plate message.`\
+https://www.nytimes.com/2026/08/06/us/politics/the-docket-vanity-plates-speech.html
+
+**Fled to America at 11. Stole at 18. Deported to Vietnam at 44.**\
+`The Trump administration is sending back record numbers of Vietnamese, Laotians and Hmong. Many came to the United States as young war refugees and later committed crimes.`\
+https://www.nytimes.com/2026/08/06/us/politics/immigration-pardons-democratic-governors.html
+
 **Texas apuesta por más policías en las escuelas. Este caso muestra los riesgos de esa estrategia**\
 `El enfrentamiento entre un oficial y un estudiante de 15 años, grabado en video, ilustra los riesgos de la presencia policial en las aulas texanas.`\
 https://www.nytimes.com/es/2026/08/06/espanol/escuelas-policias-texas.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/es/2026/08/06/espanol/america-latina/sismos-venezuela-pr
 **From John Derian, a Playful Collection of Leaf-Shaped Rugs**\
 `Plus: brass flower sculptures, a new restaurant in Crete and more recommendations from T Magazine.`\
 https://www.nytimes.com/2026/08/06/t-magazine/john-derian-leaf-rug.html
-
-**En China, las disputas públicas por el tabaquismo se vuelven visibles**\
-`En un país que consume aproximadamente la mitad de los cigarrillos del mundo, la aplicación de las prohibiciones locales de fumar puede ser laxa o virtualmente inexistente.`\
-https://www.nytimes.com/es/2026/08/06/espanol/mundo/china-tabaquismo-cigarros-fumadores.html
-
-**Tennessee’s Andy Ogles Faces Well-Funded Opposition in House Primary Thursday**\
-`Representative Andy Ogles received President Trump’s endorsement, but his challenger, Charlie Hatcher, a former state agriculture commissioner, has the backing of Gov. Bill Lee.`\
-https://www.nytimes.com/2026/08/06/us/politics/tennessee-republican-primary-andy-ogles.html
-
-**Madonna Returns as Queen of the Club**\
-`The pop icon dances her way back to the top of the charts.`\
-https://www.nytimes.com/2026/08/06/podcasts/cannonball-madonna-confessions-2.html
-
-**Moderate Democrats Prepare for ‘War’ Against an Ascendant Left**\
-`One moderate group says the progressive wins are “deeply troubling” and is planning a $15 million effort against democratic socialism.`\
-https://www.nytimes.com/2026/08/06/us/politics/democratic-party-socialists-moderates.html
 
