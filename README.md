@@ -1,6 +1,10 @@
+**Ceuta y Fnideq, dos ciudades con una historia entrelazada**\
+`Ceuta, España, y Fnideq, Marruecos, están separadas físicamente por apenas un kilómetro y medio, pero las une la familia y el comercio. Una crisis fronteriza marca el capítulo más reciente de su historia.`\
+https://www.nytimes.com/es/2026/08/06/espanol/mundo/espana-marruecos-ceuta-fnideq-crisis-historia.html
+
 **Paxton and Talarico Offer Diverging Paths on Affordability**\
 `The candidates are seeking to win over voters with competing proposals on tax, housing and health care that are aimed at lowering household costs.`\
-https://www.nytimes.com/2026/08/06/us/paxton-and-talarico-offer-diverging-paths-on-affordability.html
+https://www.nytimes.com/2026/08/06/us/texas-senate-talarico-paxton-taxes.html
 
 **Country Music Festival Lights Up Nairobi**\
 `Fans gathered in Kenya to celebrate a genre born far away but that more and more Africans are coming to appreciate.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/05/us/politics/michigan-primary-election-results
 **Abdul El-Sayed’s Winning New Political Uniform**\
 `Could the black T-shirt and jeans be the next big thing in Washington?`\
 https://www.nytimes.com/2026/08/05/style/abdul-el-sayed-fashion.html
-
-**El-Sayed Got a Big Win for the Left. Can It Win Like This Nationally?**\
-`The new activist left is built on a coalition that may be too narrow to thrive in Democratic primaries in other areas, particularly the South.`\
-https://www.nytimes.com/2026/08/05/upshot/democrats-michigan-progressives-left.html
 
