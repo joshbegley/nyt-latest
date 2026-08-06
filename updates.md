@@ -1,3 +1,15 @@
+**Teach Writing With The New York Times: Our 2026-27 Curriculum**\
+`Our writing units are based on real-world features like narratives, opinion essays, podcasts, informational videos and more.`\
+https://www.nytimes.com/2026/08/06/learning/lesson-plans/teach-writing-with-the-new-york-times-our-2026-27-curriculum.html
+
+**El Nino Might Mean More Storms for California Than the Atlantic Coast**\
+`It hasn’t been that long since Hurricane Hilary made a run at Southern California. Could this year see a repeat?`\
+https://www.nytimes.com/2026/08/06/weather/pacific-hurricane-updates-el-nino.html
+
+**Alcohol. Manliness. Flushable Wipes. Since When Are These ‘Scams’?**\
+`Americans have been taken with scams for years. Now, the word is being used for any system that ends with somebody profiting at their expense.`\
+https://www.nytimes.com/2026/08/06/magazine/scams-origins.html
+
 **China’s Robots Know Kung Fu and Can Scale Walls. Can They Woo Investors?**\
 `Unitree Robotics wants to raise about $900 million in an I.P.O. that tests market interest in humanoid robots, a technology that wows but has yet to prove its viability.`\
 https://www.nytimes.com/2026/08/06/business/china-unitree-ipo-robot.html
