@@ -1,3 +1,19 @@
+**Driver in Munich Car Ramming Attack Given Life in Prison**\
+`The attack, in 2025, was one of several carried out in Germany in recent years by men with migrant backgrounds, shaking the public’s sense of safety.`\
+https://www.nytimes.com/2026/08/06/world/europe/munich-car-attack-driver-sentence.html
+
+****\
+`tktktkt`\
+https://www.nytimes.com/video/embedded/business/100000011076861/Biz-China-Robot-IPO-video-2.html
+
+****\
+`tktktk`\
+https://www.nytimes.com/video/embedded/business/100000011076857/Biz-China-Robot-IPO-Video1.html
+
+**Amid Intensifying Russian Strikes, Ukraine’s Pleas for Air Defenses Are Falling Flat**\
+`Western allies are more hesitant to give up interceptor missiles they may need for their own defense as war rages on multiple fronts.`\
+https://www.nytimes.com/2026/08/06/world/europe/ukraine-russia-missile-defense-patriots.html
+
 **Scott Galloway: America Abandoned Its ‘Unremarkable’ Young Men**\
 `And what society can do to help a struggling generation.`\
 https://www.nytimes.com/2026/08/06/opinion/ross-douthat-scott-galloway-masculinity.html
