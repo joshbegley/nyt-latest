@@ -1,3 +1,15 @@
+**Driver in Munich Car Ramming Attack Given Life in Prison**\
+`The attack, in 2025, was one of several carried out in Germany in recent years by men with migrant backgrounds, shaking the public’s sense of safety.`\
+https://www.nytimes.com/2026/08/06/world/europe/munich-car-attack-driver-sentence.html
+
+****\
+`tktktkt`\
+https://www.nytimes.com/video/embedded/business/100000011076861/Biz-China-Robot-IPO-video-2.html
+
+****\
+`tktktk`\
+https://www.nytimes.com/video/embedded/business/100000011076857/Biz-China-Robot-IPO-Video1.html
+
 **What’s Behind the A.I. Shake-Up at Google**\
 `A new role for Demis Hassabis, the head of Google’s artificial intelligence unit, reflects reality at the tech giant. Investors remain worried.`\
 https://www.nytimes.com/2026/08/06/business/dealbook/hassabis-google-ai.html
@@ -34,7 +46,7 @@ https://www.nytimes.com/2026/08/06/crosswords/strands-sidekick-887.html
 `Scroll down for hints and conversation about the puzzle for Friday, Aug. 7, 2026.`\
 https://www.nytimes.com/2026/08/06/crosswords/wordle-review-1875.html
 
-**Ukraine Is Pleading for Air Defenses. Will the World Listen Anymore?**\
+**Amid Intensifying Russian Strikes, Ukraine’s Pleas for Air Defenses Are Falling Flat**\
 `Western allies are more hesitant to give up interceptor missiles they may need for their own defense as war rages on multiple fronts.`\
 https://www.nytimes.com/2026/08/06/world/europe/ukraine-russia-missile-defense-patriots.html
 
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/08/06/realestate/nyc-trees-canopy-parks.html
 **These Retro Sweatpants Are Having a Moment Everywhere, But Especially in the Hamptons**\
 `In quiet luxury Long Island, $168 Y2K logo sweats are having an unexpected renaissance.`\
 https://www.nytimes.com/2026/08/06/style/sweatpants-free-city-hamptons-retro.html
-
-**‘Late Fame’ Review: Lost Poet, Found Again**\
-`Willem Dafoe stars as a former poet charmed by a group of would-be young artists.`\
-https://www.nytimes.com/2026/08/06/movies/late-fame-review.html
-
-**‘Teenage Sex and Death at Camp Miasma’ Review: Gushing With Desire**\
-`Hannah Einbinder and Gillian Anderson star in an exhilarating tale of a filmmaker rebooting a problematic slasher franchise.`\
-https://www.nytimes.com/2026/08/06/movies/teenage-sex-and-death-at-camp-miasma-review.html
-
-**In Texas’ Most Eligible Senate Race, It’s Bachelor vs. Divorcé-to-Be**\
-`Ken Paxton is divorcing. James Talarico is dating a onetime staffer. Both have had their romantic lives scrutinized as part of their high-stakes campaigns.`\
-https://www.nytimes.com/2026/08/06/us/paxton-talarico-single-dating.html
 
