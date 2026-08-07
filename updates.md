@@ -1,3 +1,7 @@
+**Murkowski Will Oppose Blanche as Attorney General, Putting His Confirmation at Risk**\
+`The Alaska senator is the second Republican to announce plans to vote against Todd Blanche. He likely cannot afford any other G.O.P. defections and still win approval.`\
+https://www.nytimes.com/2026/08/07/us/politics/todd-blanche-ag-murkowski.html
+
 **Murkowski Will Oppose Blanche, Putting His Confirmation at Risk**\
 `The Alaska senator is the second Republican to announce plans to vote against Todd Blanche. He likely cannot afford any other G.O.P. defections and still win approval.`\
 https://www.nytimes.com/2026/08/07/us/politics/todd-blanche-ag-murkowski.html
