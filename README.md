@@ -162,9 +162,9 @@ https://www.nytimes.com/2026/08/07/opinion/georgia-midterm-black-voters-senate.h
 `A Balinese-style house near a national park, a two-level penthouse with views of Corcovado Mountain and a newly renovated duplex with a pool.`\
 https://www.nytimes.com/2026/08/07/realestate/rio-de-janeiro-brazil-homes-sale.html
 
-**A Pope From Chicago Was Elected. The White Sox Were Resurrected.**\
+**Pope Leo XIV Was Elected. The Chicago White Sox Were Resurrected.**\
 `The elevation of Pope Leo XIV, a Chicago native and lifelong supporter of the Sox, was a godsend for a team failing on the field and with fans.`\
-https://www.nytimes.com/2026/08/07/business/a-pope-from-chicago-was-elected-the-white-sox-were-resurrected.html
+https://www.nytimes.com/2026/08/07/business/pope-leo-chicago-white-sox.html
 
 **Candidate Field Set After Republicans Redrew Tennessee District Lines**\
 `Tennessee’s primary elections on Thursday came after Republican legislators carved up the state’s only majority-Black district in a bid to win all nine of the state’s House seats.`\
