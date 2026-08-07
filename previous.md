@@ -1,3 +1,11 @@
+**Callum Turner Reveals His Favorite Rom-Com**\
+`Who was Callum Turner’s first fictional crush? Which role does he still regret missing out on? The actor shares the pop culture moments that left a lasting impression and the one song guaranteed to get him on the dance floor.`\
+https://www.nytimes.com/video/arts/100000011036449/callum-turner-rom-coms-dance-songs.html
+
+**Weekend Weather Is a Summer Stew of Heat, Humidity and Haze**\
+`The worst heat is expected out West, where most of the wildfire smoke may be trapped, while the East also swelters and faces a chance of thunderstorms.`\
+https://www.nytimes.com/2026/08/07/weather/weekend-forecast-points-to-heat-humidty-and-haze.html
+
 **Trump Officials Deport Group of Mexicans Despite Torture Risk**\
 `Immigration authorities used a rare authority to deport them, even though their removal was blocked over concerns they would be tortured if returned.`\
 https://www.nytimes.com/2026/08/07/us/trump-mexico-deportations-torture.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/07/business/dealbook/jobs-warsh-fed-rates.html
 **The White House’s Secret A.I. Rules + The State of Model Alignment With METR’s Chris Painter + The Final Hot Mess Express**\
 `A few details from the White House’s A.I. plan have leaked to the news media, but the administration has officially communicated almost nothing.`\
 https://www.nytimes.com/2026/08/07/podcasts/hardfork-white-house-secret-rules.html
-
-**Curious Minds**\
-`We’re answering reader questions.`\
-https://www.nytimes.com/2026/08/07/briefing/reader-questions-answered.html
-
-**Rescuers Battled Extreme Weather Conditions During Medevac Mission in Antarctica**\
-`An Australian flight crew faced subfreezing temperatures, changing weather conditions and almost constant darkness as they worked to rescue a U.S. national.`\
-https://www.nytimes.com/2026/08/07/world/australia/antarctica-rescue-mission-skytraders.html
 
