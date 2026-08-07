@@ -1,3 +1,11 @@
+**Prosecutor Sues Justice Dept. Over Dismissal After Right-Wing Influencer’s Claim**\
+`Will Rosenzweig joins a growing list of former prosecutors and federal agents who have gone to court to contest the purge of law enforcement deemed disloyal.`\
+https://www.nytimes.com/2026/08/07/us/politics/prosecutor-fired-lawsuit-justice-department.html
+
+**Solar Eclipse 2026: When and Where to See Totality**\
+`Check the weather forecast, path and time of the totality.`\
+https://www.nytimes.com/interactive/2026/08/07/world/europe/solar-eclipse-view-spain-iceland-greenland.html
+
 **Tracking Down Julie Delpy’s Jacket From ‘Before Sunset’**\
 `We help a reader track down a quilted garment worn by Julie Delpy in the film “Before Sunset.”`\
 https://www.nytimes.com/2026/08/07/t-magazine/julie-delpy-before-sunset-fashion.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/07/world/middleeast/iran-nuclear-program.html
 **I Answer Your Questions on Peter Thiel, Chris Rufo and the D.S.A.**\
 `Ezra Klein answers listeners’ questions.`\
 https://www.nytimes.com/video/opinion/100000011066316/i-answer-your-questions-on-peter-thiel-chris-rufo-and-the-dsa.html
-
-**‘The First Time I Voted for Donald Trump, I Thought It Was Going to Make a Difference’**\
-`In Georgia, where Black voters could help decide control of the Senate, Mara Gay asks what they want from America and the Democratic Party.`\
-https://www.nytimes.com/2026/08/07/opinion/georgia-midterm-black-voters-senate.html
-
-**Pick Your Favorite Home Under $2 Million in Rio de Janeiro**\
-`A Balinese-style house near a national park, a two-level penthouse with views of Corcovado Mountain and a newly renovated duplex with a pool.`\
-https://www.nytimes.com/2026/08/07/realestate/rio-de-janeiro-brazil-homes-sale.html
 

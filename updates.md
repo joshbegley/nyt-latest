@@ -1,3 +1,11 @@
+**Prosecutor Sues Justice Dept. Over Dismissal After Right-Wing Influencer’s Claim**\
+`Will Rosenzweig joins a growing list of former prosecutors and federal agents who have gone to court to contest the purge of law enforcement deemed disloyal.`\
+https://www.nytimes.com/2026/08/07/us/politics/prosecutor-fired-lawsuit-justice-department.html
+
+**Solar Eclipse 2026: When and Where to See Totality**\
+`Check the weather forecast, path and time of the totality.`\
+https://www.nytimes.com/interactive/2026/08/07/world/europe/solar-eclipse-view-spain-iceland-greenland.html
+
 **Tracking Down Julie Delpy’s Jacket From ‘Before Sunset’**\
 `We help a reader track down a quilted garment worn by Julie Delpy in the film “Before Sunset.”`\
 https://www.nytimes.com/2026/08/07/t-magazine/julie-delpy-before-sunset-fashion.html
