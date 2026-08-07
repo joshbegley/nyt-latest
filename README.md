@@ -1,3 +1,7 @@
+**El gobierno de Trump acelera la cooperación militar con Colombia**\
+`Abelardo de la Espriella asume la presidencia el viernes. Sus planes podrían hacer de Colombia una pieza crucial en los esfuerzos de Trump contra el narcotráfico en toda la región.`\
+https://www.nytimes.com/es/2026/08/07/espanol/america-latina/colombia-espriella-trump-narcotrafico.html
+
 **I Answer Your Questions on Peter Thiel, Chris Rufo and the D.S.A.**\
 `Ezra Klein answers listeners’ questions.`\
 https://www.nytimes.com/2026/08/07/opinion/ezra-klein-podcast-ask-me-anything.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/07/nyregion/morristown-ny-putman-reunion.html
 **‘The Last House’ Review: End of the World as They Know It**\
 `When a mysterious force traps people in their homes, one family tries to ride out the apocalypse.`\
 https://www.nytimes.com/2026/08/07/movies/the-last-house-review.html
-
-**Thailand School Shooting Leaves at Least Eight Dead**\
-`A student killed his grandparents at their home before opening fire at a high school near Bangkok and turning the gun on himself, the authorities said.`\
-https://www.nytimes.com/2026/08/07/world/asia/thailand-school-shooting.html
 
