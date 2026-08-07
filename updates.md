@@ -1,3 +1,11 @@
+**Live Updates: Slow but Steady Jobs Market Faces Its Latest Test**\
+`U.S. employers have added a solid number of jobs and the unemployment rate has held firm in recent months. New data is due for release on Friday.`\
+https://www.nytimes.com/live/2026/08/07/business/jobs-report-economy
+
+**Several People Dead in Thailand School Shooting**\
+`At least seven people died after a student shot his grandparents and then opened fire at his high school near Bangkok on Friday. The authorities said the shooting ended after the student turned the gun on himself.`\
+https://www.nytimes.com/video/world/asia/100000011079226/thailand-school-shooting-bangkok.html
+
 ****\
 `Hospital footage captured medical staff members clinging to an operating table, trying to protect a patient during a powerful 6.8-magnitude earthquake on July 28 in Japan.`\
 https://www.nytimes.com/video/embedded/world/asia/100000011079303/07vid-japan-hospital-embed-15113.html

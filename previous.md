@@ -1,3 +1,11 @@
+**Live Updates: Slow but Steady Jobs Market Faces Its Latest Test**\
+`U.S. employers have added a solid number of jobs and the unemployment rate has held firm in recent months. New data is due for release on Friday.`\
+https://www.nytimes.com/live/2026/08/07/business/jobs-report-economy
+
+**Several People Dead in Thailand School Shooting**\
+`At least seven people died after a student shot his grandparents and then opened fire at his high school near Bangkok on Friday. The authorities said the shooting ended after the student turned the gun on himself.`\
+https://www.nytimes.com/video/world/asia/100000011079226/thailand-school-shooting-bangkok.html
+
 ****\
 `Hospital footage captured medical staff members clinging to an operating table, trying to protect a patient during a powerful 6.8-magnitude earthquake on July 28 in Japan.`\
 https://www.nytimes.com/video/embedded/world/asia/100000011079303/07vid-japan-hospital-embed-15113.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/08/07/business/china-trade-exports.html
 **NYT Spelling Bee Answers for August 7, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/08/07/crosswords/spelling-bee-forum.html
-
-**Luigi Mangione Is Facing Two Trials. Isn’t That Double Jeopardy?**\
-`The legal principle prevents a person from being tried twice for the same crime. But Mr. Mangione’s situation shows how complicated the judicial system can be.`\
-https://www.nytimes.com/2026/08/07/nyregion/luigi-mangione-double-jeopardy.html
-
-**‘Nobody Stays’: What a 100th Family Reunion Says About Rural New York**\
-`The Putmans, like their homeland in upstate New York, were once known for their dairy farms. A century later, things have changed.`\
-https://www.nytimes.com/2026/08/07/nyregion/morristown-ny-putman-reunion.html
 
