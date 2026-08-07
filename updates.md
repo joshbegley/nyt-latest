@@ -1,3 +1,11 @@
+**At the Fed, Kevin Warsh Can’t Referee His Way Out of Inflation**\
+`The success of his chairmanship may rest on an issue that sits outside the traditional purview of monetary policy: the nation’s ongoing fiscal deficits.`\
+https://www.nytimes.com/2026/08/07/opinion/kevin-warsh-federal-reserve-inflation.html
+
+**Guerras, incendios forestales y migrantes ponen a prueba las capacidades de Europa**\
+`Un verano brutal ha dejado al descubierto la enorme presión que enfrentan los países europeos ante fuerzas que escapan en gran medida a su control.`\
+https://www.nytimes.com/es/2026/08/07/espanol/mundo/europa-guerra-incendios-migracion.html
+
 **Así luce una dictadura desesperada**\
 `El régimen de Daniel Ortega y Rosario Murillo en Nicaragua ya controla a las autoridades electorales. ¿Por qué abandonar incluso la ficción de unas elecciones libres?`\
 https://www.nytimes.com/es/2026/08/07/espanol/opinion/nicaragua-ortega-murillo-elecciones.html
