@@ -34,7 +34,7 @@ https://www.nytimes.com/video/podcasts/100000011078333/madonna-goes-meta.html
 `Recent escalating tensions between the Iran-backed group and the Yemeni government have prompted fears that a truce in place since 2022 is nearing collapse.`\
 https://www.nytimes.com/2026/08/07/world/middleeast/yemen-houthis-attack-military-camp.html
 
-**Schumer, Despite Party Tensions, Forges Ahead in Fight for Senate**\
+**An Unloved Schumer Tries to Win Over Party’s Insurgents**\
 `In a phone call this week, the Democratic leader told the new Michigan Senate nominee who had opposed him to just win, working to foster unity ahead of a difficult race.`\
 https://www.nytimes.com/2026/08/07/us/politics/schumer-senate-midterms.html
 
@@ -94,7 +94,7 @@ https://www.nytimes.com/2026/08/07/well/eat/cyclospora-symptoms-relapse.html
 `The legislation was championed by Senator Lindsey Graham, the South Carolina Republican whose sudden death last month helped spur quick action on it.`\
 https://www.nytimes.com/2026/08/07/us/politics/senate-russia-sanctions.html
 
-**As Pressure Mounts, U.S. Hunts for Cuba’s Next Leader**\
+**U.S. Squeezes Cuba Even as It Searches for a New Regime Leader**\
 `Some officials warn that a more hard-line leader could emerge if the Trump administration moves forward with its plans.`\
 https://www.nytimes.com/2026/08/07/us/politics/us-search-cuba-leader.html
 
