@@ -1,3 +1,7 @@
+**Pope Leo XIV Was Elected. The Chicago White Sox Were Resurrected.**\
+`The elevation of Pope Leo XIV, a Chicago native and lifelong supporter of the Sox, was a godsend for a team failing on the field and with fans.`\
+https://www.nytimes.com/2026/08/07/business/pope-leo-chicago-white-sox.html
+
 **Book Review: ‘The Responsible Party,’ by Claire Carusillo**\
 `In “The Responsible Party,” a novel by Claire Carusillo, a woman named Claire Carusillo vapes her way through her wild family history.`\
 https://www.nytimes.com/2026/08/07/books/review/the-responsible-party-claire-carusillo.html
