@@ -1,3 +1,7 @@
+**Travis Barker Processed His Plane Crash via the Drums**\
+`Travis Barker sat down with Joe Coscarelli and Jon Caramanica to reflect on overcoming the trauma of his 2008 plane crash and his new Hulu documentary, “Travis Barker: Louder Than Fear.”`\
+https://www.nytimes.com/video/podcasts/100000011078681/travis-barker-processed-his-plane-crash-via-the-drums.html
+
 **Book Review: ‘The Responsible Party,’ by Claire Carusillo**\
 `In “The Responsible Party,” a novel by Claire Carusillo, a woman named Claire Carusillo vapes her way through her wild family history.`\
 https://www.nytimes.com/2026/08/07/books/review/the-responsible-party-claire-carusillo.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/07/opinion/antidepressants-ssris-side-effects-dr
 **A Magical Vineyard Dinner in Tuscany Under the Stars and String Lights**\
 `In Italy, long-table vineyard dinners are increasingly popular. It’s not too late to book a place for this August or September.`\
 https://www.nytimes.com/2026/08/07/travel/italy-vineyard-dinners.html
-
-**Monica Barbaro and Callum Turner on Rom-Coms and the Politics of ‘One Night Only’**\
-`In “One Night Only,” Monica Barbaro and Callum Turner play singles living in a world where the government has banned premarital sex. How far-fetched is that?`\
-https://www.nytimes.com/2026/08/07/movies/monica-barbaro-callum-turner-one-night-only.html
 
