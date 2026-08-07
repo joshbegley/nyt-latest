@@ -1,3 +1,7 @@
+**Charles S. Faddis, Ex-C.I.A. Officer Who Pushed Conspiracies, Dies at 68**\
+`After 20 years in the C.I.A., he emerged as an outspoken critic of the agency and as a leader of the election-denial movement in Pennsylvania.`\
+https://www.nytimes.com/2026/08/07/books/charles-sam-faddis-dead.html
+
 **Receding Danube River Exposes Nazi-Era Vessels**\
 `Extreme heat in Europe has lowered water levels in the Danube River, revealing sunken Nazi-era ships. Serbia has begun pulling them out this week after captains struggled to navigate around them.`\
 https://www.nytimes.com/video/world/europe/100000011079863/danube-river-europe-nazi-era-ships.html

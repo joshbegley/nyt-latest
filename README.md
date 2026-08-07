@@ -1,3 +1,7 @@
+**EE. UU. deporta a un grupo de mexicanos en riesgo de tortura**\
+`Las autoridades migratorias usaron una facultad inusual para deportarlos, aunque su expulsión estaba bloqueada por temores de que serían torturados si regresaban a México.`\
+https://www.nytimes.com/es/2026/08/07/espanol/estados-unidos/trump-mexico-deportaciones-tortura.html
+
 **Charles S. Faddis, Ex-C.I.A. Officer Who Pushed Conspiracies, Dies at 68**\
 `After 20 years in the C.I.A., he emerged as an outspoken critic of the agency and as a leader of the election-denial movement in Pennsylvania.`\
 https://www.nytimes.com/2026/08/07/books/charles-sam-faddis-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/07/your-money/debt-bills.html
 **The Bond Market Is Signaling Rising Risks. Investors Should Listen.**\
 `While the Fed didn’t raise rates, the bond market did. That means hardship for home buyers and higher hurdles for A.I. data centers and the stock market. But it’s also a boon for retirees.`\
 https://www.nytimes.com/2026/08/07/business/bonds-stocks-federal-reserve-interest-rates.html
-
-**Edinburgh Fringe: 9 Shows That Are Sure to Make Waves**\
-`As the festival opens Friday, some of the acts already have significant word-of-mouth buzz or planned runs beyond the Fringe.`\
-https://www.nytimes.com/2026/08/07/theater/edinburgh-fringe-what-to-see.html
 
