@@ -1,3 +1,11 @@
+**Video Captured Chaos in Japanese Hospital Mid-Surgery During Earthquake**\
+`Footage released by Kumamoto General Hospital captured medical staff clinging to an operating table, trying to protect a patient during a powerful 6.8-magnitude earthquake on July 28 in Japan.`\
+https://www.nytimes.com/video/world/asia/100000011079540/hospital-earthquake-surgery-chaos.html
+
+**Bill Cassidy Will Back Todd Blanche as Attorney General, Salvaging His Confirmation**\
+`The Louisiana senator said that, despite reservations,  he would back President Trump’s pick for attorney general, giving Republicans enough votes for a majority.`\
+https://www.nytimes.com/2026/08/07/us/politics/todd-blanche-ag-murkowski.html
+
 **Appeals Court Upholds Block on Trump Ballroom Construction**\
 `A federal appeals court panel backed a lower court’s ruling, and made it likely that the Supreme Court will decide the case. But the decision does not mean construction will halt immediately.`\
 https://www.nytimes.com/2026/08/07/us/politics/trump-ballroom-appeals-court.html

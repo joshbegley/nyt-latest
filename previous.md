@@ -1,3 +1,7 @@
+**Video Captured Chaos in Japanese Hospital Mid-Surgery During Earthquake**\
+`Footage released by Kumamoto General Hospital captured medical staff clinging to an operating table, trying to protect a patient during a powerful 6.8-magnitude earthquake on July 28 in Japan.`\
+https://www.nytimes.com/video/world/asia/100000011079540/hospital-earthquake-surgery-chaos.html
+
 **Appeals Court Upholds Block on Trump Ballroom Construction**\
 `A federal appeals court panel backed a lower court’s ruling, and made it likely that the Supreme Court will decide the case. But the decision does not mean construction will halt immediately.`\
 https://www.nytimes.com/2026/08/07/us/politics/trump-ballroom-appeals-court.html
@@ -54,8 +58,8 @@ https://www.nytimes.com/video/podcasts/100000011078681/travis-barker-processed-h
 `In “The Responsible Party,” a novel by Claire Carusillo, a woman named Claire Carusillo vapes her way through her wild family history.`\
 https://www.nytimes.com/2026/08/07/books/review/the-responsible-party-claire-carusillo.html
 
-**Murkowski Will Oppose Blanche as Attorney General, Putting His Confirmation at Risk**\
-`The Alaska senator is the second Republican to announce plans to vote against Todd Blanche. He likely cannot afford any other G.O.P. defections and still win approval.`\
+**Bill Cassidy Will Back Todd Blanche as Attorney General, Salvaging His Confirmation**\
+`The Louisiana senator said that, despite reservations,  he would back President Trump’s pick for attorney general, giving Republicans enough votes for a majority.`\
 https://www.nytimes.com/2026/08/07/us/politics/todd-blanche-ag-murkowski.html
 
 **Summer Reading Contest, Week 10: What Got Your Attention in The Times This Week?**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/07/realestate/alex-proba-playroom-design.html
 **Flying In From Ukraine to Honor Ella Fitzgerald**\
 `The singer Ray Brown Jr., Fitzgerald’s son, lives with his wife in western Ukraine. Tonight he’s stopping by Bryant Park for a concert dedicated to his legendary mother.`\
 https://www.nytimes.com/2026/08/07/nyregion/flying-in-from-ukraine-to-honor-ella-fitzgerald.html
-
-**Thomas S. Hines, Who Helped Put L.A. Architecture on the Map, Dies at 89**\
-`A historian at U.C.L.A., he showed how Los Angeles’s architects and planners made the city a global center for modernist design in the 20th century.`\
-https://www.nytimes.com/2026/08/07/books/thomas-hines-dead.html
 
