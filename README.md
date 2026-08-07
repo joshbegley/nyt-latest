@@ -1,3 +1,7 @@
+**Judge Rules Two Virginia Schools Must Change Confederate Names**\
+`The school board’s decision to rename the schools after Stonewall Jackson, Robert E. Lee and Turner Ashby “cannot be divorced from racial discrimination,” the judge wrote in his ruling.`\
+https://www.nytimes.com/2026/08/07/us/virginia-schools-confederate-names-ruling.html
+
 **A Naked Bicycle Protest Is Also a Party. Is that Bad?**\
 `A split among protest groups has led to dueling rides, which combine nudity and cycling in the name of change.`\
 https://www.nytimes.com/2026/08/07/us/a-naked-bicycle-protest-is-also-a-party-is-that-bad.html
@@ -186,15 +190,11 @@ https://www.nytimes.com/2026/08/07/crosswords/strands-sidekick-888.html
 `Scroll down for hints and conversation about the puzzle for Saturday, Aug. 8, 2026.`\
 https://www.nytimes.com/2026/08/07/crosswords/wordle-review-1876.html
 
-**Live Updates: U.S. Hiring Slumps, a Worrying Sign for the Economy**\
-`Employers shed 23,000 jobs in July, and gains in previous months were revised down sharply, in a downbeat report that suggests the labor market is weaker than previously believed.`\
-https://www.nytimes.com/live/2026/08/07/business/jobs-report-economy
+**Labor Market Shifts Into Reverse as Employers Balk at Hiring**\
+`A spring surge rapidly faded as the summer brought higher prices and more uncertainty for businesses, even as they avoided layoffs.`\
+https://www.nytimes.com/2026/08/07/business/economy/heres-the-latest.html
 
 **Several People Dead in Thailand School Shooting**\
 `At least seven people died after a student shot his grandparents and then opened fire at his high school near Bangkok on Friday. The authorities said the shooting ended after the student turned the gun on himself.`\
 https://www.nytimes.com/video/world/asia/100000011079226/thailand-school-shooting-bangkok.html
-
-****\
-`Hospital footage captured medical staff members clinging to an operating table, trying to protect a patient during a powerful 6.8-magnitude earthquake on July 28 in Japan.`\
-https://www.nytimes.com/video/embedded/world/asia/100000011079303/07vid-japan-hospital-embed-15113.html
 
