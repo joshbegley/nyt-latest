@@ -1,3 +1,31 @@
+**Tracking Down Julie Delpy’s Jacket From ‘Before Sunset’**\
+`We help a reader track down a quilted garment worn by Julie Delpy in the film “Before Sunset.”`\
+https://www.nytimes.com/2026/08/07/t-magazine/julie-delpy-before-sunset-fashion.html
+
+**This Dumpling Tomato Salad Is Peak Summer Eating**\
+`And more of the week’s most popular recipes.`\
+https://www.nytimes.com/2026/08/07/dining/this-dumpling-tomato-salad-is-peak-summer-eating.html
+
+**Five Action Movies to Stream Now**\
+`This month’s picks include martial arts masters, veteran snipers and dirty cops.`\
+https://www.nytimes.com/2026/08/07/movies/action-movies-streaming.html
+
+**This Is What It Feels Like to Live Through a Political Revolution**\
+`What it means not to share a consensus political time.`\
+https://www.nytimes.com/2026/08/07/opinion/politics-revolution-trump-change.html
+
+**Why Scott Galloway Is an A.I. Optimist**\
+`The A.I. economy will create a job boom, not an apocalypse, argues Scott Galloway. Will that lead to a renaissance of meaning for young men? The columnist Ross Douthat, the host of “Interesting Times,” isn’t so sure.`\
+https://www.nytimes.com/video/opinion/100000011066450/why-scott-galloway-is-an-ai-optimist.html
+
+**A Drying Danube River Reveals Nazi-Era Vessels, and Hazards of Heat**\
+`The river’s water levels have fallen as extreme heat has afflicted Europe, exposing sunken German vessels from World War II that are impeding navigation.`\
+https://www.nytimes.com/2026/08/07/world/europe/danube-germany-ships-serbia.html
+
+**An ICE Detention Center Roils a Colorado Town and Jolts a House Race**\
+`Tiny Hudson, Colo., was mostly known as a speed trap between plains and suburbs. Then ICE announced it was coming, setting off months of protests.`\
+https://www.nytimes.com/2026/08/07/us/ice-detention-center-hudson-colorado-house.html
+
 **Weak Jobs Report Does Not Eliminate Prospects of Interest Rate Rise**\
 `Officials at the Federal Reserve are chiefly focused on the trajectory of inflation after five years of overshooting the central bank’s 2 percent target.`\
 https://www.nytimes.com/2026/08/07/business/economy/jobs-report-interest-rates-fed.html
@@ -102,7 +130,7 @@ https://www.nytimes.com/es/2026/08/07/espanol/america-latina/colombia-espriella-
 `Ezra Klein answers listeners’ questions.`\
 https://www.nytimes.com/2026/08/07/opinion/ezra-klein-podcast-ask-me-anything.html
 
-**His Former Father-in-Law Called Him a Danger. Will Republicans Step Up?**\
+**Republicans Need to Push Out Max Miller. Now.**\
 `This Ohio congressman should not still be running for Congress.`\
 https://www.nytimes.com/2026/08/07/opinion/max-miller-moreno-ohio-congressman.html
 
@@ -169,28 +197,4 @@ https://www.nytimes.com/2026/08/07/opinion/georgia-midterm-black-voters-senate.h
 **Pick Your Favorite Home Under $2 Million in Rio de Janeiro**\
 `A Balinese-style house near a national park, a two-level penthouse with views of Corcovado Mountain and a newly renovated duplex with a pool.`\
 https://www.nytimes.com/2026/08/07/realestate/rio-de-janeiro-brazil-homes-sale.html
-
-**Pope Leo XIV Was Elected. The Chicago White Sox Were Resurrected.**\
-`The elevation of Pope Leo XIV, a Chicago native and lifelong supporter of the Sox, was a godsend for a team failing on the field and with fans.`\
-https://www.nytimes.com/2026/08/07/business/pope-leo-chicago-white-sox.html
-
-**Candidate Field Set After Republicans Redrew Tennessee District Lines**\
-`Tennessee’s primary elections on Thursday came after Republican legislators carved up the state’s only majority-Black district in a bid to win all nine of the state’s House seats.`\
-https://www.nytimes.com/2026/08/07/us/elections/tennessee-primary-results.html
-
-**College Is More Political Than Ever. But in a New, Insidious Way.**\
-`Students are self-segregating by ideology.`\
-https://www.nytimes.com/2026/08/07/opinion/college-politics-woke-polarization.html
-
-**Uncovering Kawhi Leonard’s Other Hidden Deal**\
-`Pablo investigates the N.B.A. superstar, Steve Ballmer’s trail of crisis and a tech company facing “the perfect storm.”`\
-https://www.nytimes.com/2026/08/07/podcasts/kawhi-leonard-pablo-torre-nba.html
-
-**Trump Administration Fast-Tracks Military Partnership With Colombia to Target Drug Traffickers**\
-`The country’s new Trump-endorsed president takes office on Friday. Sweeping plans to target drug traffickers with U.S. help are already underway.`\
-https://www.nytimes.com/2026/08/07/world/americas/trump-administration-military-partnership-colombia.html
-
-**A Generation on Antidepressants Searches for the Exit**\
-`Many people feel that antidepressants block their true emotions, but they don’t have guidance about how to get off these drugs.`\
-https://www.nytimes.com/2026/08/07/opinion/antidepressants-ssris-side-effects-drugs-maha.html
 

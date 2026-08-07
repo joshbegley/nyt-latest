@@ -1,3 +1,35 @@
+**Tracking Down Julie Delpy’s Jacket From ‘Before Sunset’**\
+`We help a reader track down a quilted garment worn by Julie Delpy in the film “Before Sunset.”`\
+https://www.nytimes.com/2026/08/07/t-magazine/julie-delpy-before-sunset-fashion.html
+
+**This Dumpling Tomato Salad Is Peak Summer Eating**\
+`And more of the week’s most popular recipes.`\
+https://www.nytimes.com/2026/08/07/dining/this-dumpling-tomato-salad-is-peak-summer-eating.html
+
+**Five Action Movies to Stream Now**\
+`This month’s picks include martial arts masters, veteran snipers and dirty cops.`\
+https://www.nytimes.com/2026/08/07/movies/action-movies-streaming.html
+
+**This Is What It Feels Like to Live Through a Political Revolution**\
+`What it means not to share a consensus political time.`\
+https://www.nytimes.com/2026/08/07/opinion/politics-revolution-trump-change.html
+
+**Why Scott Galloway Is an A.I. Optimist**\
+`The A.I. economy will create a job boom, not an apocalypse, argues Scott Galloway. Will that lead to a renaissance of meaning for young men? The columnist Ross Douthat, the host of “Interesting Times,” isn’t so sure.`\
+https://www.nytimes.com/video/opinion/100000011066450/why-scott-galloway-is-an-ai-optimist.html
+
+**A Drying Danube River Reveals Nazi-Era Vessels, and Hazards of Heat**\
+`The river’s water levels have fallen as extreme heat has afflicted Europe, exposing sunken German vessels from World War II that are impeding navigation.`\
+https://www.nytimes.com/2026/08/07/world/europe/danube-germany-ships-serbia.html
+
+**An ICE Detention Center Roils a Colorado Town and Jolts a House Race**\
+`Tiny Hudson, Colo., was mostly known as a speed trap between plains and suburbs. Then ICE announced it was coming, setting off months of protests.`\
+https://www.nytimes.com/2026/08/07/us/ice-detention-center-hudson-colorado-house.html
+
+**Republicans Need to Push Out Max Miller. Now.**\
+`This Ohio congressman should not still be running for Congress.`\
+https://www.nytimes.com/2026/08/07/opinion/max-miller-moreno-ohio-congressman.html
+
 **Weak Jobs Report Does Not Eliminate Prospects of Interest Rate Rise**\
 `Officials at the Federal Reserve are chiefly focused on the trajectory of inflation after five years of overshooting the central bank’s 2 percent target.`\
 https://www.nytimes.com/2026/08/07/business/economy/jobs-report-interest-rates-fed.html
