@@ -1,3 +1,7 @@
+**‘The Headlines’ News Quiz: Aug. 7, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://www.nytimes.com/2026/08/07/podcasts/the-headlines/the-headlines-news-quiz-aug-7-2026.html
+
 **Jobs Report Poses New Test for Warsh and the Fed**\
 `Friday’s jobs report comes as investors increasingly expect the Federal Reserve to begin raising interest rates as soon as next month.`\
 https://www.nytimes.com/2026/08/07/business/dealbook/jobs-warsh-fed-rates.html

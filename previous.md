@@ -1,3 +1,7 @@
+**‘The Headlines’ News Quiz: Aug. 7, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://www.nytimes.com/2026/08/07/podcasts/the-headlines/the-headlines-news-quiz-aug-7-2026.html
+
 **Jobs Report Poses New Test for Warsh and the Fed**\
 `Friday’s jobs report comes as investors increasingly expect the Federal Reserve to begin raising interest rates as soon as next month.`\
 https://www.nytimes.com/2026/08/07/business/dealbook/jobs-warsh-fed-rates.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/07/books/review/diary-of-a-wimpy-kid-readalikes.
 **Word of the Day: persnickety**\
 `This word has appeared in 16 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/08/07/learning/word-of-the-day-persnickety.html
-
-**Seized on Their Way to Gaza, Activists Tell of Abuse in Israeli Custody**\
-`In interviews, more than 20 people who tried to break an Israeli blockade described beatings, electric shocks and other abuse after being captured. Israel denied the accusations.`\
-https://www.nytimes.com/2026/08/07/world/middleeast/gaza-flotilla-israel-abuse.html
 
