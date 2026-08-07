@@ -98,7 +98,7 @@ https://www.nytimes.com/2026/08/07/nyregion/flying-in-from-ukraine-to-honor-ella
 `A historian at U.C.L.A., he showed how Los Angeles’s architects and planners made the city a global center for modernist design in the 20th century.`\
 https://www.nytimes.com/2026/08/07/books/thomas-hines-dead.html
 
-**The state of Iran’s three key nuclear sites**\
+**The State of Iran’s Three Key Nuclear Sites**\
 `The conflict may have slowed, but not stopped, Iran’s nuclear program, officials and experts said.`\
 https://www.nytimes.com/2026/08/07/world/middleeast/iran-nuclear-program.html
 
