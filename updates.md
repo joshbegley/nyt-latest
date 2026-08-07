@@ -1,3 +1,27 @@
+**Hospital Video Captures Chaos as Earthquake Strikes Mid-Surgery**\
+`Footage shows doctors in Japan clinging to an operating table to protect a patient from the violent tremor. The surgery was completed successfully.`\
+https://www.nytimes.com/2026/08/07/world/asia/hospital-video-earthquake-surgery.html
+
+**Is America’s Drinking Water the Next Front in the Iran War?**\
+`Over 100 municipalities across the United States have identified cyberactivity potentially connected to an Iran-linked hacking spree.`\
+https://www.nytimes.com/2026/08/07/podcasts/the-daily/america-drinking-water-iran-war.html
+
+**Trump Targets Birthright Citizenship Again, and Activists Describe Abuse in Israeli Custody**\
+`Plus, the Friday news quiz.`\
+https://www.nytimes.com/2026/08/07/podcasts/the-headlines/trump-birthright-citizenship-israel-abuse.html
+
+**NYT Connections Answers for August 8, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Aug. 8, 2026.`\
+https://www.nytimes.com/2026/08/07/crosswords/connections-companion-1154.html
+
+**NYT Strands Hints for Aug. 8, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Aug. 8, 2026.`\
+https://www.nytimes.com/2026/08/07/crosswords/strands-sidekick-888.html
+
+**Today’s Wordle Hints for August 8, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Aug. 8, 2026.`\
+https://www.nytimes.com/2026/08/07/crosswords/wordle-review-1876.html
+
 **Live Updates: Slow but Steady Jobs Market Faces Its Latest Test**\
 `U.S. employers have added a solid number of jobs and the unemployment rate has held firm in recent months. New data is due for release on Friday.`\
 https://www.nytimes.com/live/2026/08/07/business/jobs-report-economy
