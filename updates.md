@@ -1,3 +1,27 @@
+**Judge Rules Two Virginia Schools Must Change Confederate Names**\
+`The school board’s decision to rename the schools after Stonewall Jackson, Robert E. Lee and Turner Ashby “cannot be divorced from racial discrimination,” the judge wrote in his ruling.`\
+https://www.nytimes.com/2026/08/07/us/virginia-schools-confederate-names-ruling.html
+
+**A Naked Bicycle Protest Is Also a Party. Is that Bad?**\
+`A split among protest groups has led to dueling rides, which combine nudity and cycling in the name of change.`\
+https://www.nytimes.com/2026/08/07/us/a-naked-bicycle-protest-is-also-a-party-is-that-bad.html
+
+**Abdoogh Khiar (Chilled Buttermilk Cucumber Soup)**\
+`This beautiful and simple classic Iranian cold soup is destined for those hot summer days when all you want to do is pull up a chair inside the fridge.`\
+https://www.nytimes.com/video/dining/100000011079949/abdoogh-khiar-chilled-buttermilk-cucumber-soup.html
+
+**Grated Tomato Pasta**\
+`It’s tough to highlight peak summer tomatoes in pasta. To make the most out of their bright flavor, summer tomatoes should be minimally cooked. This recipe gently warms the fruit, so they keep their acidity and succulence.`\
+https://www.nytimes.com/video/dining/100000011079935/grated-tomato-pasta.html
+
+**Salted Lemon S’mores**\
+`This little no-recipe treat tastes like a cross between a s’more and a lemon meringue pie.`\
+https://www.nytimes.com/video/dining/100000011079897/salted-lemon-smores.html
+
+**Labor Market Shifts Into Reverse as Employers Balk at Hiring**\
+`A spring surge rapidly faded as the summer brought higher prices and more uncertainty for businesses, even as they avoided layoffs.`\
+https://www.nytimes.com/2026/08/07/business/economy/heres-the-latest.html
+
 **Who Is Ahead in Arkansas's 2nd Congressional District?**\
 `Track the latest polls in Arkansas's 2nd Congressional District.`\
 https://www.nytimes.com/interactive/polls/arkansas-us-house-2-polls-2026.html
