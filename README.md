@@ -1,3 +1,7 @@
+**Murkowski Will Oppose Blanche, Putting His Confirmation at Risk**\
+`The Alaska senator is the second Republican to announce plans to vote against Todd Blanche. He likely cannot afford any other G.O.P. defections and still win approval.`\
+https://www.nytimes.com/2026/08/07/us/politics/todd-blanche-ag-murkowski.html
+
 **Summer Reading Contest, Week 10: What Got Your Attention in The Times This Week?**\
 `To participate, submit your response here by Aug. 14 at 9 a.m. Eastern. This week’s winners will be announced by Aug. 26.`\
 https://www.nytimes.com/2026/08/07/learning/summer-reading-contest-week-10-what-got-your-attention-in-the-times-this-week.html
@@ -90,7 +94,7 @@ https://www.nytimes.com/2026/08/07/opinion/ezra-klein-podcast-ask-me-anything.ht
 `This Ohio congressman should not still be running for Congress.`\
 https://www.nytimes.com/2026/08/07/opinion/max-miller-moreno-ohio-congressman.html
 
-**Iran and Ukraine Aren’t Just Wars About Energy. They’re Wars Targeting Energy.**\
+**We Thought Tech Would Make War More Precise. We Were Wrong.**\
 `Until recently, attacking civilian energy infrastructure was unacceptable. The dynamics of modern war have changed that.`\
 https://www.nytimes.com/2026/08/07/magazine/iran-ukraine-war-energy-attack.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/07/movies/monica-barbaro-callum-turner-one-night
 **Travis Barker on Surviving a Plane Crash, Miscarriage and Parenting Famous Kids**\
 ``\
 https://www.nytimes.com/2026/08/07/arts/music/travis-barker-hulu-documentary-popcast-interview.html
-
-**The Gospel According to Anthony Bourdain**\
-`Fans of the late writer and chef are cultlike in their devotion. But have they misunderstood his message?`\
-https://www.nytimes.com/2026/08/07/magazine/tony-anthony-bourdain-cult-fandom.html
 
