@@ -1,3 +1,7 @@
+**One Killed in Fire Started by Man Who Said He Lit It by Accident**\
+`The authorities said they found a body inside a burned home near Sacramento. A man was charged this week with causing the blaze by operating equipment that produced sparks.`\
+https://www.nytimes.com/2026/08/06/us/gann-fire-california.html
+
 **Darwin tenía razón: estas plantas son carnívoras**\
 `Unos científicos mostraron que una especie de planta cubierta de pelos pegajosos es carnívora, lo que confirma la sospecha que Darwin tuvo hace 150 años.`\
 https://www.nytimes.com/es/2026/08/06/espanol/ciencia-y-tecnologia/plantas-carnivoras-darwin.html

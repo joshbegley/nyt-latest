@@ -1,3 +1,7 @@
+**Spokane Arson Suspect Had History of Setting Fires, Prosecutors Say**\
+`The man charged with setting one of the three destructive blazes in eastern Washington this month told detectives he had started two dozen fires in the last year, an affidavit said.`\
+https://www.nytimes.com/2026/08/06/us/spokane-arson-suspect-fire-history.html
+
 **One Killed in Fire Started by Man Who Said He Lit It by Accident**\
 `The authorities said they found a body inside a burned home near Sacramento. A man was charged this week with causing the blaze by operating equipment that produced sparks.`\
 https://www.nytimes.com/2026/08/06/us/gann-fire-california.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/06/dining/la-technique-cookbook-jacques-pepin.ht
 **Hemp Fight Snarls Speedy Passage of Government Funding Bill**\
 `A White House effort to delay a ban on intoxicating hemp was holding up a final agreement on a bipartisan spending bill ahead of a monthlong Senate recess.`\
 https://www.nytimes.com/2026/08/06/us/politics/hemp-government-funding-bill.html
-
-**Trump Administration to Pay RWE to Cancel Wind Leases**\
-`It was the fifth such deal struck by the administration to get companies to drop offshore wind projects.`\
-https://www.nytimes.com/2026/08/06/climate/rwe-trump-offshore-wind-canceled.html
 
