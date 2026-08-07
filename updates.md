@@ -1,3 +1,7 @@
+**Altos ejecutivos de la FIFA fueron presionados para aprobar un proyecto de privatización**\
+`El proyecto pretendía vender una participación del 20 por ciento en la FIFA a un grupo de inversionistas liderado por el hermano del yerno del presidente Trump.`\
+https://www.nytimes.com/es/2026/08/06/espanol/negocios/fifa-infantino-presion-proyecto-privatizacion.html
+
 **Neil Armstrong’s Childhood Home Is for Sale**\
 `In the hometown of the first man on the moon, Wapakoneta, Ohio, the two-story house on a corner lot is listed for $430,000.`\
 https://www.nytimes.com/2026/08/06/us/neil-armstrong-childhood-home-ohio.html
