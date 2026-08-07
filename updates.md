@@ -1,3 +1,19 @@
+**NYT Crossword Answers for August 07, 2026**\
+`Jesse Cohn opens our solving weekend.`\
+https://www.nytimes.com/2026/08/06/crosswords/daily-puzzle-2026-08-07.html
+
+**Meta Ordered to Pay $567 Million Fine by New Mexico Judge**\
+`The penalty, imposed by a state judge, is on top of a $375 million fine ordered by a jury that found Meta misled users about the safety of its platforms.`\
+https://www.nytimes.com/2026/08/06/technology/meta-new-mexico-child-safety.html
+
+**Blackburn Wins Republican Nomination for Tennessee Governor**\
+`Senator Marsha Blackburn easily beat two Republican rivals and is now favored to become the state’s first female governor after the November elections.`\
+https://www.nytimes.com/2026/08/06/us/elections/marsha-blackburn-tennessee-governor-primary.html
+
+**One Dead in California Fire Started by Man Who Said He Lit It by Accident**\
+`The authorities said they found a body inside a burned home near Sacramento. A man was charged this week with causing the blaze by operating equipment that produced sparks.`\
+https://www.nytimes.com/2026/08/06/us/gann-fire-california.html
+
 **Judge Dismisses Former Olympian’s Felony Charge in Reflecting Pool Case**\
 `The move ends the criminal case for David Hearn, a former Olympic canoeist, after prosecutors acknowledged that the Trump administration’s claims of vandalism were false.`\
 https://www.nytimes.com/2026/08/06/us/politics/reflecting-pool-david-hearn-trump.html

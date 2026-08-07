@@ -1,3 +1,7 @@
+**In Upset, Andy Ogles Loses to a Republican Challenger in Tennessee**\
+`Mr. Ogles, a two-term congressman, had held off primary threats before, despite controversy. But on Thursday, Charlie Hatcher, a former state agriculture commissioner, delivered an upset.`\
+https://www.nytimes.com/2026/08/06/us/politics/andy-ogles-loses-tennessee-primary-charlie-hatcher.html
+
 **NYT Crossword Answers for August 07, 2026**\
 `Jesse Cohn opens our solving weekend.`\
 https://www.nytimes.com/2026/08/06/crosswords/daily-puzzle-2026-08-07.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/06/world/europe/french-streamers-kick-death-conv
 **Federal Judge Orders Pentagon to Lift Freeze on Wind Power**\
 `Since April, the Defense Department has halted all military reviews for wind projects, stalling dozens of projects nationwide.`\
 https://www.nytimes.com/2026/08/06/climate/pentagon-reviews-wind-farms-court-order.html
-
-**This A.I. Just Created Viruses Not Found in Nature**\
-`Scientists trained artificial intelligence on libraries of DNA and then asked the model to create recipes for viral genomes. Sixteen of them were viable, yielding new viruses.`\
-https://www.nytimes.com/2026/08/06/science/ai-viruses-bacteria-arc.html
 
