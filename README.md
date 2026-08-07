@@ -1,3 +1,7 @@
+**Trump Restarts Battle to Fire Sitting Fed Governor Lisa Cook**\
+`The Trump administration, rebuffed by the Supreme Court in its first attempt to fire Lisa D. Cook, sent the Federal Reserve governor a letter saying it was “considering” removing her from the job.`\
+https://www.nytimes.com/2026/08/07/business/trump-lisa-cook-fed.html
+
 **Elizabeth Smith, Voice Coach and Juilliard Professor, Dies at 91**\
 `A founding faculty member of Juilliard Drama, she helped the actors Kevin Kline, Patti LuPone, Wendell Pierce and many other mentees find their voice, quite literally.`\
 https://www.nytimes.com/2026/08/07/theater/elizabeth-smith-dead-juilliard-broadway.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/07/world/asia/hospital-video-earthquake-surgery.
 **Is America’s Drinking Water the Next Front in the Iran War?**\
 `Over 100 municipalities across the United States have identified cyberactivity potentially connected to an Iran-linked hacking spree.`\
 https://www.nytimes.com/2026/08/07/podcasts/the-daily/america-drinking-water-iran-war.html
-
-**Trump Targets Birthright Citizenship Again, and Activists Describe Abuse in Israeli Custody**\
-`Plus, the Friday news quiz.`\
-https://www.nytimes.com/2026/08/07/podcasts/the-headlines/trump-birthright-citizenship-israel-abuse.html
 
