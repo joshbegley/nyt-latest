@@ -1,3 +1,7 @@
+**Judge Dismisses Former Olympian’s Felony Charge in Reflecting Pool Case**\
+`The move ends the criminal case for David Hearn, a former Olympic canoeist, after prosecutors acknowledged that the Trump administration’s claims of vandalism were false.`\
+https://www.nytimes.com/2026/08/06/us/politics/reflecting-pool-david-hearn-trump.html
+
 **Spokane Arson Suspect Had History of Setting Fires, Prosecutors Say**\
 `The man charged with setting one of the three destructive blazes in eastern Washington this month told detectives he had started two dozen fires in the last year, an affidavit said.`\
 https://www.nytimes.com/2026/08/06/us/spokane-arson-suspect-fire-history.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/06/us/annelise-camp-dead-drowning-brain-death.ht
 **‘La Technique’ by Jacques Pépin Turns 50 Years Old**\
 `In his groundbreaking “La Technique,” Jacques Pépin showed Americans how to do everything from carving swans out of apples to breaking down lamb.`\
 https://www.nytimes.com/2026/08/06/dining/la-technique-cookbook-jacques-pepin.html
-
-**Hemp Fight Snarls Speedy Passage of Government Funding Bill**\
-`A White House effort to delay a ban on intoxicating hemp was holding up a final agreement on a bipartisan spending bill ahead of a monthlong Senate recess.`\
-https://www.nytimes.com/2026/08/06/us/politics/hemp-government-funding-bill.html
 
