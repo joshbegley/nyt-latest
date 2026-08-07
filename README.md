@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/08/07/nyregion/dsa-mamdani-buses.html
 `Also, Trump officials are searching for Cuba’s next leader. Here’s the latest at the end of Friday.`\
 https://www.nytimes.com/2026/08/07/briefing/labor-market-cuba-leader.html
 
-**‘Black-Bear Pastrami’ Is No Longer on the Menu in This College’s Dorms**\
+**Students Skinned a Bear in a Dorm. Cornell Realized It Should Ban That.**\
 `After two Cornell University students skinned a black bear in a communal kitchen last year to make a meal, the school changed the rules.`\
 https://www.nytimes.com/2026/08/07/nyregion/cornell-student-bear-meat.html
 
