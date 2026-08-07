@@ -54,7 +54,7 @@ https://www.nytimes.com/2026/08/07/crosswords/strands-sidekick-888.html
 `Scroll down for hints and conversation about the puzzle for Saturday, Aug. 8, 2026.`\
 https://www.nytimes.com/2026/08/07/crosswords/wordle-review-1876.html
 
-**Live Updates: U.S. Hiring Slumps Unexpectedly, a Worrying Sign for the Economy**\
+**Live Updates: U.S. Hiring Slumps, a Worrying Sign for the Economy**\
 `Employers shed 23,000 jobs in July, and gains in previous months were revised down sharply, in a downbeat report that suggests the labor market is weaker than previously believed.`\
 https://www.nytimes.com/live/2026/08/07/business/jobs-report-economy
 

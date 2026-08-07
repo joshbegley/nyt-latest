@@ -1,3 +1,15 @@
+**Summer Reading Contest, Week 10: What Got Your Attention in The Times This Week?**\
+`To participate, submit your response here by Aug. 14 at 9 a.m. Eastern. This week’s winners will be announced by Aug. 26.`\
+https://www.nytimes.com/2026/08/07/learning/summer-reading-contest-week-10-what-got-your-attention-in-the-times-this-week.html
+
+**If You’re Struggling to Pay Day-to-Day Bills, There’s Help**\
+`Nonprofit financial counselors say there has been a significant increase this year in the number of borrowers seeking their advice.`\
+https://www.nytimes.com/2026/08/07/your-money/debt-bills.html
+
+**The Fed Didn’t Raise Rates. The Bond Market Did.**\
+`The market is saying risks are rising. That means hardship for home buyers and higher hurdles for A.I. data centers and the stock market. But it’s also a boon for retirees.`\
+https://www.nytimes.com/2026/08/07/business/bonds-stocks-federal-reserve-interest-rates.html
+
 **Edinburgh Fringe: 9 Shows That Are Sure to Make Waves**\
 `As the festival opens Friday, some of the acts already have significant word-of-mouth buzz or planned runs beyond the Fringe.`\
 https://www.nytimes.com/2026/08/07/theater/edinburgh-fringe-what-to-see.html
@@ -7,7 +19,7 @@ https://www.nytimes.com/2026/08/07/theater/edinburgh-fringe-what-to-see.html
 https://www.nytimes.com/interactive/polls/illinois-us-house-4-polls-2026.html
 
 **Saudi Arabia, Turkey and Pakistan Sign Joint Defense Pact**\
-`The agreement treats an attack on any of the three countries as an attack on all. Saudi Arabia has recently faced drone and missile strikes that it has blamed on Iran’s allies in Yemen and Iraq.`\
+`The agreement treats an attack on any of the countries as an attack on all, but in a region of volatile rivalries, it was unclear what that would mean in practice.`\
 https://www.nytimes.com/2026/08/07/world/middleeast/saudi-turkey-pakistan-joint-defense-pact.html
 
 **‘The Headlines’ News Quiz: Aug. 7, 2026**\
@@ -134,7 +146,7 @@ https://www.nytimes.com/2026/08/07/world/middleeast/iran-nuclear-program.html
 `Ezra Klein answers listeners’ questions.`\
 https://www.nytimes.com/video/opinion/100000011066316/i-answer-your-questions-on-peter-thiel-chris-rufo-and-the-dsa.html
 
-**What Black Voters in Georgia Want and Aren’t Getting**\
+**‘The First Time I Voted for Donald Trump, I Thought It Was Going to Make a Difference’**\
 `In Georgia, where Black voters could help decide control of the Senate, Mara Gay asks what they want from America and the Democratic Party.`\
 https://www.nytimes.com/2026/08/07/opinion/georgia-midterm-black-voters-senate.html
 
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/08/07/arts/music/travis-barker-hulu-documentary-pop
 **The Gospel According to Anthony Bourdain**\
 `Fans of the late writer and chef are cultlike in their devotion. But have they misunderstood his message?`\
 https://www.nytimes.com/2026/08/07/magazine/tony-anthony-bourdain-cult-fandom.html
-
-**Drought and Aging Pipes Plunge Puerto Rico Into Another Water Crisis**\
-`Starting on Friday, the island’s water authority is scheduled to shut off water for rotating 48-hour periods in parts of San Juan and surrounding areas.`\
-https://www.nytimes.com/2026/08/07/us/puerto-rico-water-crisis-drought.html
-
-**How to Plan an African Safari**\
-`From budgeting to timing your trip, here’s what to consider before you go.`\
-https://www.nytimes.com/2026/08/07/travel/how-to-plan-an-african-safari.html
-
-**Megan Park Knows That Teenage Girls Deserve More**\
-`The creator of the new young adult series “Sterling Point” trusts her young performers. She used to be one of them.`\
-https://www.nytimes.com/2026/08/07/arts/television/megan-park-sterling-point.html
 

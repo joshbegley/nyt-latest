@@ -1,3 +1,7 @@
+**Live Updates: U.S. Hiring Slumps, a Worrying Sign for the Economy**\
+`Employers shed 23,000 jobs in July, and gains in previous months were revised down sharply, in a downbeat report that suggests the labor market is weaker than previously believed.`\
+https://www.nytimes.com/live/2026/08/07/business/jobs-report-economy
+
 **Live Updates: U.S. Hiring Slumps Unexpectedly, a Worrying Sign for the Economy**\
 `Employers shed 23,000 jobs in July, and gains in previous months were revised down sharply, in a downbeat report that suggests the labor market is weaker than previously believed.`\
 https://www.nytimes.com/live/2026/08/07/business/jobs-report-economy
