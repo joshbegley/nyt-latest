@@ -1,3 +1,15 @@
+**Labor Market Shifts Into Reverse**\
+`Also, Trump officials are searching for Cuba’s next leader. Here’s the latest at the end of Friday.`\
+https://www.nytimes.com/2026/08/07/briefing/labor-market-cuba-leader.html
+
+**‘Black-Bear Pastrami’ Is No Longer on the Menu in This College’s Dorms**\
+`After two Cornell University students skinned a black bear in a communal kitchen last year to make a meal, the school changed the rules.`\
+https://www.nytimes.com/2026/08/07/nyregion/cornell-student-bear-meat.html
+
+**What Black Voters in Georgia Told Us About America**\
+`Georgia could help determine whether Democrats take control of the Senate — and much may depend on whether Black voters turn out. The Opinion writer Mara Gay traveled to the state to find out what voters want from America and from the Democratic Party.`\
+https://www.nytimes.com/video/opinion/100000011064771/what-black-voters-in-georgia-told-us-about-america.html
+
 **Madonna Goes Meta**\
 `Madonna’s “Danceteria,” from her new album “Confessions II,” is packed with self-referential nostalgia, in both the dance floor production and the name-drop lyricism. Our critic Jon Caramanica explores how Madonna uses her own history as a creative engine for hope.`\
 https://www.nytimes.com/video/podcasts/100000011078333/madonna-goes-meta.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/08/07/us/ice-detention-center-hudson-colorado-house
 **Weak Jobs Report Does Not Eliminate Prospects of Interest Rate Rise**\
 `Officials at the Federal Reserve are chiefly focused on the trajectory of inflation after five years of overshooting the central bank’s 2 percent target.`\
 https://www.nytimes.com/2026/08/07/business/economy/jobs-report-interest-rates-fed.html
-
-**Travis Barker Processed His Plane Crash via the Drums**\
-`Travis Barker sat down with Joe Coscarelli and Jon Caramanica to reflect on overcoming the trauma of his 2008 plane crash and his new Hulu documentary, “Travis Barker: Louder Than Fear.”`\
-https://www.nytimes.com/video/podcasts/100000011078681/travis-barker-processed-his-plane-crash-via-the-drums.html
-
-**Book Review: ‘The Responsible Party,’ by Claire Carusillo**\
-`In “The Responsible Party,” a novel by Claire Carusillo, a woman named Claire Carusillo vapes her way through her wild family history.`\
-https://www.nytimes.com/2026/08/07/books/review/the-responsible-party-claire-carusillo.html
-
-**Bill Cassidy Will Back Todd Blanche as Attorney General, Salvaging His Confirmation**\
-`The Louisiana senator said that, despite reservations, he would back President Trump’s pick for attorney general, giving Republicans enough votes for a majority.`\
-https://www.nytimes.com/2026/08/07/us/politics/todd-blanche-ag-murkowski.html
 
