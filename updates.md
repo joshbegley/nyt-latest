@@ -1,3 +1,7 @@
+**Darwin tenía razón: estas plantas son carnívoras**\
+`Unos científicos mostraron que una especie de planta cubierta de pelos pegajosos es carnívora, lo que confirma la sospecha que Darwin tuvo hace 150 años.`\
+https://www.nytimes.com/es/2026/08/06/espanol/ciencia-y-tecnologia/plantas-carnivoras-darwin.html
+
 **Altos ejecutivos de la FIFA fueron presionados para aprobar un proyecto de privatización**\
 `El proyecto pretendía vender una participación del 20 por ciento en la FIFA a un grupo de inversionistas liderado por el hermano del yerno del presidente Trump.`\
 https://www.nytimes.com/es/2026/08/06/espanol/negocios/fifa-infantino-presion-proyecto-privatizacion.html

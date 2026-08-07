@@ -1,3 +1,7 @@
+**Darwin tenía razón: estas plantas son carnívoras**\
+`Unos científicos mostraron que una especie de planta cubierta de pelos pegajosos es carnívora, lo que confirma la sospecha que Darwin tuvo hace 150 años.`\
+https://www.nytimes.com/es/2026/08/06/espanol/ciencia-y-tecnologia/plantas-carnivoras-darwin.html
+
 **Altos ejecutivos de la FIFA fueron presionados para aprobar un proyecto de privatización**\
 `El proyecto pretendía vender una participación del 20 por ciento en la FIFA a un grupo de inversionistas liderado por el hermano del yerno del presidente Trump.`\
 https://www.nytimes.com/es/2026/08/06/espanol/negocios/fifa-infantino-presion-proyecto-privatizacion.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/06/climate/rwe-trump-offshore-wind-canceled.html
 **Women’s Share of Top Military Promotions Falls as Hegseth Blocks Nominees**\
 `The percentage of high-ranking officer nominations going to women is currently at its lowest level in over two decades.`\
 https://www.nytimes.com/2026/08/06/upshot/military-promotions-women-hegseth.html
-
-**Handwritten Account of Hiroshima Bombing Is Up for Auction**\
-`Nosing around a book fair for inspiration, a reporter found a firsthand account of one of humanity’s gravest acts, with traces of a journalist’s hand.`\
-https://www.nytimes.com/2026/08/06/insider/enola-gay-hiroshima-pilot.html
 
