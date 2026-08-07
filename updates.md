@@ -1,3 +1,7 @@
+**Thailand School Shooting Leaves at Least Eight Dead**\
+`A student killed his grandparents at their home before opening fire at a high school near Bangkok and turning the gun on himself, the authorities said.`\
+https://www.nytimes.com/2026/08/07/world/asia/thailand-school-shooting.html
+
 **Thailand School Shooting Leaves at Least Six**\
 `A student killed his grandparents at their home before opening fire at a high school near Bangkok and turning the gun on himself, the authorities said.`\
 https://www.nytimes.com/2026/08/07/world/asia/thailand-school-shooting.html
