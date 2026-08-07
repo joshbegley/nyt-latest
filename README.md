@@ -1,3 +1,11 @@
+**New Jersey Opens Civil Rights Investigation Into Delaney Hall**\
+`The state attorney general said that her office had issued subpoenas and would investigate whether employees at the migrant detention center had violated civil rights.`\
+https://www.nytimes.com/2026/08/07/nyregion/delaney-hall-investigation-civil-rights.html
+
+**Mamdani Hosted a Town Hall About Buses. Why Was the D.S.A. There?**\
+`After Mayor Zohran Mamdani invited the Democratic Socialists of America to a city-sponsored event, watchdog groups raised concerns about mixing politics with government work.`\
+https://www.nytimes.com/2026/08/07/nyregion/dsa-mamdani-buses.html
+
 **Labor Market Shifts Into Reverse**\
 `Also, Trump officials are searching for Cuba’s next leader. Here’s the latest at the end of Friday.`\
 https://www.nytimes.com/2026/08/07/briefing/labor-market-cuba-leader.html
@@ -18,8 +26,8 @@ https://www.nytimes.com/video/podcasts/100000011078333/madonna-goes-meta.html
 `Recent escalating tensions between the Iran-backed group and the Yemeni government have prompted fears that a truce in place since 2022 is nearing collapse.`\
 https://www.nytimes.com/2026/08/07/world/middleeast/yemen-houthis-attack-military-camp.html
 
-**Schumer Forges Ahead in Fight for Senate, Despite Setbacks**\
-`In a phone call, the Democratic leader told the new Michigan contender who has opposed him to just win.`\
+**Schumer, Despite Party Tensions, Forges Ahead in Fight for Senate**\
+`In a phone call this week, the Democratic leader told the new Michigan Senate nominee who had opposed him to just win, working to foster unity ahead of a difficult race.`\
 https://www.nytimes.com/2026/08/07/us/politics/schumer-senate-midterms.html
 
 **EE. UU. deporta a un grupo de mexicanos en riesgo de tortura**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/opinion/100000011066450/why-scott-galloway-is-an-a
 **A Drying Danube River Reveals Nazi-Era Vessels, and Hazards of Heat**\
 `The river’s water levels have fallen as extreme heat has afflicted Europe, exposing sunken German vessels from World War II that are impeding navigation.`\
 https://www.nytimes.com/2026/08/07/world/europe/danube-germany-ships-serbia.html
-
-**An ICE Detention Center Roils a Colorado Town and Jolts a House Race**\
-`Tiny Hudson, Colo., was mostly known as a speed trap between plains and suburbs. Then ICE announced it was coming, setting off months of protests.`\
-https://www.nytimes.com/2026/08/07/us/ice-detention-center-hudson-colorado-house.html
-
-**Weak Jobs Report Does Not Eliminate Prospects of Interest Rate Rise**\
-`Officials at the Federal Reserve are chiefly focused on the trajectory of inflation after five years of overshooting the central bank’s 2 percent target.`\
-https://www.nytimes.com/2026/08/07/business/economy/jobs-report-interest-rates-fed.html
 
