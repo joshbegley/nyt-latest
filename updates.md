@@ -1,3 +1,11 @@
+**‘I Was So Wrong’: Iranians Say Trump’s Promises Never Came True**\
+`As President Trump struggles to extricate the United States from the war in Iran, his promises to protesters in the country have fallen by the wayside.`\
+https://www.nytimes.com/2026/08/07/us/politics/trump-iran-war-protesters.html
+
+**I Wore Shorts to Work. Maybe You Should Too.**\
+`Plus: A “The Devil Wears Prada 2” auction and a collection inspired by André Leon Talley.`\
+https://www.nytimes.com/2026/08/07/style/shorts-office-business-casual.html
+
 **Parts of Eastern and Central Europe Broke Heat Records This Week**\
 `The hot weather has exacerbated dry conditions, creating conditions for wildfires and receding rivers.`\
 https://www.nytimes.com/2026/08/07/world/europe/europe-heat-records.html

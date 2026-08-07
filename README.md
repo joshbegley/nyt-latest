@@ -1,4 +1,4 @@
-**‘I Was So Wrong’: Iranians Say Trump’s Promises Never Came True**\
+**Iranians Say Trump’s Promises Have Fallen by the Wayside as Iran War Drags On**\
 `As President Trump struggles to extricate the United States from the war in Iran, his promises to protesters in the country have fallen by the wayside.`\
 https://www.nytimes.com/2026/08/07/us/politics/trump-iran-war-protesters.html
 

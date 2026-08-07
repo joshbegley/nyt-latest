@@ -1,3 +1,11 @@
+**‘I Was So Wrong’: Iranians Say Trump’s Promises Never Came True**\
+`As President Trump struggles to extricate the United States from the war in Iran, his promises to protesters in the country have fallen by the wayside.`\
+https://www.nytimes.com/2026/08/07/us/politics/trump-iran-war-protesters.html
+
+**I Wore Shorts to Work. Maybe You Should Too.**\
+`Plus: A “The Devil Wears Prada 2” auction and a collection inspired by André Leon Talley.`\
+https://www.nytimes.com/2026/08/07/style/shorts-office-business-casual.html
+
 **Parts of Eastern and Central Europe Broke Heat Records This Week**\
 `The hot weather has exacerbated dry conditions, creating conditions for wildfires and receding rivers.`\
 https://www.nytimes.com/2026/08/07/world/europe/europe-heat-records.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/07/us/the-gadget-that-fixed-my-screen-time-habit
 **Corrections: Aug. 7, 2026**\
 `Corrections that appeared in print on Friday, Aug. 7, 2026.`\
 https://www.nytimes.com/2026/08/07/pageoneplus/corrections-aug-7-2026.html
-
-**Twin Falls Embraces Man Who Confronted Idaho In-N-Out Shooting**\
-`While the motive in the strip mall shooting rampage in Twin Falls, Idaho, remains elusive, a community embraces a bystander who stepped in.`\
-https://www.nytimes.com/2026/08/07/us/twin-falls-idaho-shooting.html
-
-**Piece of Plane Flown by World War II Flying Ace Finally Comes Home**\
-`A search crew found the wreckage of Richard Bong’s missing plane on a Papua New Guinea hillside two years ago. Part of a wing will be on display at a museum honoring him in Wisconsin.`\
-https://www.nytimes.com/2026/08/07/us/richard-bong-plane-recovered-world-war-two.html
 
