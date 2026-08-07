@@ -1,3 +1,7 @@
+**Live Updates: U.S. Hiring Slumps Unexpectedly, a Worrying Sign for the Economy**\
+`Employers shed 23,000 jobs in July, and gains in previous months were revised down sharply, in a downbeat report that suggests the labor market is weaker than previously believed.`\
+https://www.nytimes.com/live/2026/08/07/business/jobs-report-economy
+
 **Edinburgh Fringe: 9 Shows That Are Sure to Make Waves**\
 `As the festival opens Friday, some of the acts already have significant word-of-mouth buzz or planned runs beyond the Fringe.`\
 https://www.nytimes.com/2026/08/07/theater/edinburgh-fringe-what-to-see.html
