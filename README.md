@@ -1,3 +1,27 @@
+**Hospital Video Captures Chaos as Earthquake Strikes Mid-Surgery**\
+`Footage shows doctors in Japan clinging to an operating table to protect a patient from the violent tremor. The surgery was completed successfully.`\
+https://www.nytimes.com/2026/08/07/world/asia/hospital-video-earthquake-surgery.html
+
+**Is America’s Drinking Water the Next Front in the Iran War?**\
+`Over 100 municipalities across the United States have identified cyberactivity potentially connected to an Iran-linked hacking spree.`\
+https://www.nytimes.com/2026/08/07/podcasts/the-daily/america-drinking-water-iran-war.html
+
+**Trump Targets Birthright Citizenship Again, and Activists Describe Abuse in Israeli Custody**\
+`Plus, the Friday news quiz.`\
+https://www.nytimes.com/2026/08/07/podcasts/the-headlines/trump-birthright-citizenship-israel-abuse.html
+
+**NYT Connections Answers for August 8, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Aug. 8, 2026.`\
+https://www.nytimes.com/2026/08/07/crosswords/connections-companion-1154.html
+
+**NYT Strands Hints for Aug. 8, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Aug. 8, 2026.`\
+https://www.nytimes.com/2026/08/07/crosswords/strands-sidekick-888.html
+
+**Today’s Wordle Hints for August 8, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Aug. 8, 2026.`\
+https://www.nytimes.com/2026/08/07/crosswords/wordle-review-1876.html
+
 **Live Updates: Slow but Steady Jobs Market Faces Its Latest Test**\
 `U.S. employers have added a solid number of jobs and the unemployment rate has held firm in recent months. New data is due for release on Friday.`\
 https://www.nytimes.com/live/2026/08/07/business/jobs-report-economy
@@ -169,28 +193,4 @@ https://www.nytimes.com/video/opinion/100000011064730/what-black-voters-in-georg
 **El Museo Metropolitano de Arte está cometiendo un grave error**\
 `¿El nuevo tema de la Met Gala es el antisemitismo?`\
 https://www.nytimes.com/es/2026/08/07/espanol/opinion/museo-metropolitano-arte-galliano-antisemitismo.html
-
-**Estos robots podrían salvar la agricultura en Japón**\
-`Monster Wolf y Pochi tienen la misión de ahuyentar osos y transportar flores de cerezo en una región donde muchos agricultores tienen 70 años o más.`\
-https://www.nytimes.com/es/2026/08/07/espanol/mundo/japon-robots-agricultura.html
-
-**Insultos, groserías, burlas por el peso: así trolea Vance a sus críticos en internet**\
-`El vicepresidente de EE. UU. ha dejado de lado el decoro y la mesura de sus predecesores para enfrentarse directamente a oponentes y periodistas en redes sociales con ataques que a veces son vulgares y con frecuencia personales.`\
-https://www.nytimes.com/es/2026/08/07/espanol/estados-unidos/jd-vance-insultos-internet.html
-
-**La era del Ozempic transforma la comunidad de los osos**\
-`La celebración anual de los osos —hombres gay de mayor tamaño y más velludos— está cambiando con la llegada de los medicamentos GLP-1.`\
-https://www.nytimes.com/es/2026/08/07/espanol/estilos-de-vida/ozempic-impacto-comunidad-osos-gay.html
-
-**A la generación Z no le alcanza para una primera cita**\
-`La asfixiante economía de la ciudad de Nueva York está creando una nueva barrera para el amor.`\
-https://www.nytimes.com/es/2026/08/07/espanol/estados-unidos/generacion-z-dinero-citas.html
-
-**China’s Export Boom Rolls On Despite Trade Backlash**\
-`China’s factories are finding eager buyers abroad even as weak consumer spending and a prolonged property slump weigh on growth at home.`\
-https://www.nytimes.com/2026/08/07/business/china-trade-exports.html
-
-**NYT Spelling Bee Answers for August 7, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/08/07/crosswords/spelling-bee-forum.html
 
