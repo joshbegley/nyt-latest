@@ -1,3 +1,7 @@
+**Curious Minds**\
+`We’re answering reader questions.`\
+https://www.nytimes.com/2026/08/07/briefing/reader-questions-answered.html
+
 **Rescuers Battled Extreme Weather Conditions During Medevac Mission in Antarctica**\
 `An Australian flight crew faced subfreezing temperatures, changing weather conditions and almost constant darkness as they worked to rescue a U.S. national.`\
 https://www.nytimes.com/2026/08/07/world/australia/antarctica-rescue-mission-skytraders.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/07/arts/dance/esperanza-spalding-kayla-farrish-j
 **Trump Targets Birthright Citizenship With New Executive Orders**\
 `President Trump signed two executive orders on Thursday targeting birthright citizenship, weeks after the Supreme Court rejected his previous efforts to end it.`\
 https://www.nytimes.com/video/us/politics/100000011079211/trump-birthright-citizenship-tourism.html
-
-**What Black Voters in Georgia Want and Aren’t Getting**\
-`In Georgia, where Black voters could help decide control of the U.S. Senate, the Times Opinion writer Mara Gay asks some what they want from America and the Democratic Party.`\
-https://www.nytimes.com/video/opinion/100000011064730/what-black-voters-in-georgia-want-and-arent-getting.html
 
