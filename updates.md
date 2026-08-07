@@ -1,3 +1,11 @@
+**Parts of Eastern and Central Europe Broke Heat Records This Week**\
+`The hot weather has exacerbated dry conditions, creating conditions for wildfires and receding rivers.`\
+https://www.nytimes.com/2026/08/07/world/europe/europe-heat-records.html
+
+**Solar Eclipse 2026: When and Where to See Totality**\
+`Check the weather forecast, path and time of the eclipse near you.`\
+https://www.nytimes.com/interactive/2026/08/07/world/europe/solar-eclipse-view-spain-iceland-greenland.html
+
 **Trump firma órdenes contra la ciudadanía por derecho de nacimiento**\
 `Las órdenes se dan luego de que la Corte Suprema de EE. UU. dictaminara el 30 de junio que los esfuerzos previos del mandatario para poner fin a la ciudadanía por derecho de nacimiento eran inconstitucionales.`\
 https://www.nytimes.com/es/2026/08/07/espanol/estados-unidos/ciudadania-nacimiento-trump.html
