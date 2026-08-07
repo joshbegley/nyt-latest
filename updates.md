@@ -1,3 +1,7 @@
+**Travis Barker Processed His Plane Crash via the Drums**\
+`Travis Barker sat down with Joe Coscarelli and Jon Caramanica to reflect on overcoming the trauma of his 2008 plane crash and his new Hulu documentary, “Travis Barker: Louder Than Fear.”`\
+https://www.nytimes.com/video/podcasts/100000011078681/travis-barker-processed-his-plane-crash-via-the-drums.html
+
 **Pope Leo XIV Was Elected. The Chicago White Sox Were Resurrected.**\
 `The elevation of Pope Leo XIV, a Chicago native and lifelong supporter of the Sox, was a godsend for a team failing on the field and with fans.`\
 https://www.nytimes.com/2026/08/07/business/pope-leo-chicago-white-sox.html
