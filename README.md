@@ -38,7 +38,7 @@ https://www.nytimes.com/2026/08/07/nyregion/morristown-ny-putman-reunion.html
 `When a mysterious force traps people in their homes, one family tries to ride out the apocalypse.`\
 https://www.nytimes.com/2026/08/07/movies/the-last-house-review.html
 
-**Thailand School Shooting Leaves at Least Six**\
+**Thailand School Shooting Leaves at Least Eight Dead**\
 `A student killed his grandparents at their home before opening fire at a high school near Bangkok and turning the gun on himself, the authorities said.`\
 https://www.nytimes.com/2026/08/07/world/asia/thailand-school-shooting.html
 
