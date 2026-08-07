@@ -1,3 +1,7 @@
+**Who Is Ahead in Florida's 9th Congressional District?**\
+`Track the latest polls in Florida's 9th Congressional District.`\
+https://www.nytimes.com/interactive/polls/florida-us-house-9-polls-2026.html
+
 **Receding Danube River Exposes Nazi-Era Vessels**\
 `Extreme heat in Europe has lowered water levels in the Danube River, revealing sunken Nazi-era ships. Serbia has begun pulling them out this week after captains struggled to navigate around them.`\
 https://www.nytimes.com/video/world/europe/100000011079863/receding-danube-river-exposes-nazi-era-vessels.html

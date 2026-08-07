@@ -4,7 +4,7 @@ https://www.nytimes.com/interactive/polls/florida-us-house-9-polls-2026.html
 
 **Receding Danube River Exposes Nazi-Era Vessels**\
 `Extreme heat in Europe has lowered water levels in the Danube River, revealing sunken Nazi-era ships. Serbia has begun pulling them out this week after captains struggled to navigate around them.`\
-https://www.nytimes.com/video/world/europe/100000011079863/receding-danube-river-exposes-nazi-era-vessels.html
+https://www.nytimes.com/video/world/europe/100000011079863/danube-river-europe-nazi-era-ships.html
 
 **Three People Explain Their Decision to Undergo Facial Plastic Surgeries**\
 `Plastic surgeries like face-lifts and neck-lifts were once considered extreme. Now they’re just another tool in the cosmetic toolbox.`\

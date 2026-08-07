@@ -1,3 +1,7 @@
+**Who Is Ahead in Florida's 9th Congressional District?**\
+`Track the latest polls in Florida's 9th Congressional District.`\
+https://www.nytimes.com/interactive/polls/florida-us-house-9-polls-2026.html
+
 **Receding Danube River Exposes Nazi-Era Vessels**\
 `Extreme heat in Europe has lowered water levels in the Danube River, revealing sunken Nazi-era ships. Serbia has begun pulling them out this week after captains struggled to navigate around them.`\
 https://www.nytimes.com/video/world/europe/100000011079863/receding-danube-river-exposes-nazi-era-vessels.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/07/theater/edinburgh-fringe-what-to-see.html
 **Who Is Ahead in Illinois's 4th Congressional District?**\
 `Track the latest polls in Illinois's 4th Congressional District.`\
 https://www.nytimes.com/interactive/polls/illinois-us-house-4-polls-2026.html
-
-**Saudi Arabia, Turkey and Pakistan Sign Joint Defense Pact**\
-`The agreement treats an attack on any of the countries as an attack on all, but in a region of volatile rivalries, it was unclear how it would work in practice.`\
-https://www.nytimes.com/2026/08/07/world/middleeast/saudi-turkey-pakistan-joint-defense-pact.html
 
