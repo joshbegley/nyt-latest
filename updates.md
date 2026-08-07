@@ -1,3 +1,7 @@
+**EE. UU. deporta a un grupo de mexicanos en riesgo de tortura**\
+`Las autoridades migratorias usaron una facultad inusual para deportarlos, aunque su expulsión estaba bloqueada por temores de que serían torturados si regresaban a México.`\
+https://www.nytimes.com/es/2026/08/07/espanol/estados-unidos/trump-mexico-deportaciones-tortura.html
+
 **Charles S. Faddis, Ex-C.I.A. Officer Who Pushed Conspiracies, Dies at 68**\
 `After 20 years in the C.I.A., he emerged as an outspoken critic of the agency and as a leader of the election-denial movement in Pennsylvania.`\
 https://www.nytimes.com/2026/08/07/books/charles-sam-faddis-dead.html
