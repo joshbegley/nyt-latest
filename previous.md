@@ -1,3 +1,7 @@
+**Fauci Is Far From the First Person to Plead the Fifth Before Congress**\
+`The constitutional right against self-incrimination has been invoked on several occasions during high-profile — and contentious — hearings.`\
+https://www.nytimes.com/2026/08/06/us/politics/plead-fifth-amendment-fauci-congress.html
+
 **In Upset, Andy Ogles Loses to a Republican Challenger in Tennessee**\
 `Mr. Ogles, a two-term congressman, had held off primary threats before, despite controversy. But on Thursday, Charlie Hatcher, a former state agriculture commissioner, delivered an upset.`\
 https://www.nytimes.com/2026/08/06/us/politics/andy-ogles-loses-tennessee-primary-charlie-hatcher.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/06/books/review/new-recommended-books.html
 **French Streamers Convicted in Case Related to Kick Livestream Death**\
 `The two men, users of the platform Kick, received suspended sentences and fines.`\
 https://www.nytimes.com/2026/08/06/world/europe/french-streamers-kick-death-convicted.html
-
-**Federal Judge Orders Pentagon to Lift Freeze on Wind Power**\
-`Since April, the Defense Department has halted all military reviews for wind projects, stalling dozens of projects nationwide.`\
-https://www.nytimes.com/2026/08/06/climate/pentagon-reviews-wind-farms-court-order.html
 

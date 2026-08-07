@@ -1,3 +1,7 @@
+**Fauci Is Far From the First Person to Plead the Fifth Before Congress**\
+`The constitutional right against self-incrimination has been invoked on several occasions during high-profile — and contentious — hearings.`\
+https://www.nytimes.com/2026/08/06/us/politics/plead-fifth-amendment-fauci-congress.html
+
 **In Upset, Andy Ogles Loses to a Republican Challenger in Tennessee**\
 `Mr. Ogles, a two-term congressman, had held off primary threats before, despite controversy. But on Thursday, Charlie Hatcher, a former state agriculture commissioner, delivered an upset.`\
 https://www.nytimes.com/2026/08/06/us/politics/andy-ogles-loses-tennessee-primary-charlie-hatcher.html
