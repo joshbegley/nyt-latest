@@ -1,3 +1,19 @@
+**Estos robots podrían salvar la agricultura en Japón**\
+`Monster Wolf y Pochi tienen la misión de ahuyentar osos y transportar flores de cerezo en una región donde muchos agricultores tienen 70 años o más.`\
+https://www.nytimes.com/es/2026/08/07/espanol/mundo/japon-robots-agricultura.html
+
+**Insultos, groserías, burlas por el peso: así trolea Vance a sus críticos en internet**\
+`El vicepresidente de EE. UU. ha dejado de lado el decoro y la mesura de sus predecesores para enfrentarse directamente a oponentes y periodistas en redes sociales con ataques que a veces son vulgares y con frecuencia personales.`\
+https://www.nytimes.com/es/2026/08/07/espanol/estados-unidos/jd-vance-insultos-internet.html
+
+**La era del Ozempic transforma la comunidad de los osos**\
+`La celebración anual de los osos —hombres gay de mayor tamaño y más velludos— está cambiando con la llegada de los medicamentos GLP-1.`\
+https://www.nytimes.com/es/2026/08/07/espanol/estilos-de-vida/ozempic-impacto-comunidad-osos-gay.html
+
+**A la generación Z no le alcanza para una primera cita**\
+`La asfixiante economía de la ciudad de Nueva York está creando una nueva barrera para el amor.`\
+https://www.nytimes.com/es/2026/08/07/espanol/estados-unidos/generacion-z-dinero-citas.html
+
 **China’s Export Boom Rolls On Despite Trade Backlash**\
 `China’s factories are finding eager buyers abroad even as weak consumer spending and a prolonged property slump weigh on growth at home.`\
 https://www.nytimes.com/2026/08/07/business/china-trade-exports.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/video/dining/100000011077483/hellbenders-masa-pancakes.h
 **Two Giant Rodents Wander Into a Brazilian Legislature**\
 `A viral video captured two capybaras wandering into a Brazilian state legislature last week. The animals, which are the largest rodents in the world, were escorted from the premises by a parliamentary aide.`\
 https://www.nytimes.com/video/world/americas/100000011077514/capybara-brazil-legislature.html
-
-**F.C.C. Removes Limit on Broadcast TV Ownership**\
-`The move lifts a rule that said a single television-station owner could not reach more than 39 percent of U.S. households.`\
-https://www.nytimes.com/2026/08/06/technology/fcc-broadcast-tv-ownership.html
-
-**Retrial Ordered in Child Killing With Parallels to Lindsay Clancy Case**\
-`Massachusetts justices ruled that the jury should have heard evidence of mental illness in the case of Latarsha Sanders, who was convicted in the same county where Ms. Clancy is on trial for murder.`\
-https://www.nytimes.com/2026/08/06/us/latarsha-sanders-lindsay-clancy-child-killings.html
-
-**Justice Department Accuses Duke Law School of Racial Discrimination**\
-`The federal government said the school’s admissions policies, which promote diversity, allowed for racial preferences.`\
-https://www.nytimes.com/2026/08/06/us/justice-department-duke-law-school-racial-discrimination-admissions.html
-
-**A List of Good Things**\
-`For something different in August, we bring you ideas, rituals and activities to add joy to your days.`\
-https://www.nytimes.com/2026/08/06/world/good-list-rituals-strait-hormuz-fifa.html
 

@@ -1,3 +1,19 @@
+**Estos robots podrían salvar la agricultura en Japón**\
+`Monster Wolf y Pochi tienen la misión de ahuyentar osos y transportar flores de cerezo en una región donde muchos agricultores tienen 70 años o más.`\
+https://www.nytimes.com/es/2026/08/07/espanol/mundo/japon-robots-agricultura.html
+
+**Insultos, groserías, burlas por el peso: así trolea Vance a sus críticos en internet**\
+`El vicepresidente de EE. UU. ha dejado de lado el decoro y la mesura de sus predecesores para enfrentarse directamente a oponentes y periodistas en redes sociales con ataques que a veces son vulgares y con frecuencia personales.`\
+https://www.nytimes.com/es/2026/08/07/espanol/estados-unidos/jd-vance-insultos-internet.html
+
+**La era del Ozempic transforma la comunidad de los osos**\
+`La celebración anual de los osos —hombres gay de mayor tamaño y más velludos— está cambiando con la llegada de los medicamentos GLP-1.`\
+https://www.nytimes.com/es/2026/08/07/espanol/estilos-de-vida/ozempic-impacto-comunidad-osos-gay.html
+
+**A la generación Z no le alcanza para una primera cita**\
+`La asfixiante economía de la ciudad de Nueva York está creando una nueva barrera para el amor.`\
+https://www.nytimes.com/es/2026/08/07/espanol/estados-unidos/generacion-z-dinero-citas.html
+
 **China’s Export Boom Rolls On Despite Trade Backlash**\
 `China’s factories are finding eager buyers abroad even as weak consumer spending and a prolonged property slump weigh on growth at home.`\
 https://www.nytimes.com/2026/08/07/business/china-trade-exports.html
