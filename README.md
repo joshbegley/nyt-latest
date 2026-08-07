@@ -1,3 +1,7 @@
+**Saudi Arabia, Turkey and Pakistan Sign Joint Defense Pact**\
+`The agreement treats an attack on any of the three countries as an attack on all. Saudi Arabia has recently faced drone and missile strikes that it has blamed on Iran’s allies in Yemen and Iraq.`\
+https://www.nytimes.com/2026/08/07/world/middleeast/saudi-turkey-pakistan-joint-defense-pact.html
+
 **‘The Headlines’ News Quiz: Aug. 7, 2026**\
 `Following the news? Tracy Mumford has some questions for you.`\
 https://www.nytimes.com/2026/08/07/podcasts/the-headlines/the-headlines-news-quiz-aug-7-2026.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/07/movies/cookie-queens-girl-scouts-review.html
 **Fans of Jeff Kinney’s Diary of a Wimpy Kid Series Might Like These Laugh-Out-Loud Illustrated Novels, Too**\
 `These recommendations should tide over fans of Jeff Kinney’s laugh-out-loud illustrated novels until the next installment.`\
 https://www.nytimes.com/2026/08/07/books/review/diary-of-a-wimpy-kid-readalikes.html
-
-**Word of the Day: persnickety**\
-`This word has appeared in 16 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/08/07/learning/word-of-the-day-persnickety.html
 
