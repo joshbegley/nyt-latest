@@ -1,3 +1,7 @@
+**Weak Jobs Report Does Not Eliminate Prospects of a September Rate Rise**\
+`Officials at the Federal Reserve are chiefly focused on the trajectory of inflation after five years of overshooting the central bank’s 2 percent target.`\
+https://www.nytimes.com/2026/08/07/business/economy/weak-jobs-report-does-not-eliminate-prospects-of-a-september-rate-rise.html
+
 **Travis Barker Processed His Plane Crash via the Drums**\
 `Travis Barker sat down with Joe Coscarelli and Jon Caramanica to reflect on overcoming the trauma of his 2008 plane crash and his new Hulu documentary, “Travis Barker: Louder Than Fear.”`\
 https://www.nytimes.com/video/podcasts/100000011078681/travis-barker-processed-his-plane-crash-via-the-drums.html
