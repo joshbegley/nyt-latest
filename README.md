@@ -1,3 +1,7 @@
+**Max Miller Continues to Resist Pressure to Drop Out as Deadline Looms**\
+`The Republican House member from Ohio was accused of holding a gun to his ex-wife’s head and fracturing the collarbone of their young daughter. He has denied the accusations.`\
+https://www.nytimes.com/2026/08/07/us/politics/max-miller-gop.html
+
 **More Than 50 Decomposing Bodies Are Found in a Chicago Funeral Home**\
 `The authorities said the bodies were found in various of stages of decomposition. It was not clear how long they had been there.`\
 https://www.nytimes.com/2026/08/07/us/decomposing-bodies-funeral-home-chicago.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/07/us/politics/prosecutor-fired-lawsuit-justice-
 **Solar Eclipse 2026: When and Where to See Totality**\
 `Check the weather forecast, path and time of the eclipse near you.`\
 https://www.nytimes.com/interactive/2026/08/07/world/europe/solar-eclipse-view-spain-iceland-greenland.html
-
-**Tracking Down Julie Delpy’s Jacket From ‘Before Sunset’**\
-`We help a reader track down a quilted garment worn by Julie Delpy in the film “Before Sunset.”`\
-https://www.nytimes.com/2026/08/07/t-magazine/julie-delpy-before-sunset-fashion.html
 

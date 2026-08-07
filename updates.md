@@ -1,3 +1,15 @@
+**More Than 50 Decomposing Bodies Are Found in a Chicago Funeral Home**\
+`The authorities said the bodies were found in various of stages of decomposition. It was not clear how long they had been there.`\
+https://www.nytimes.com/2026/08/07/us/decomposing-bodies-funeral-home-chicago.html
+
+**EE. UU. busca al próximo líder de Cuba**\
+`Algunos funcionarios estadounidenses advierten que podría surgir un líder de línea más dura en la isla si el gobierno de Trump continúa con sus planes.`\
+https://www.nytimes.com/es/2026/08/07/espanol/estados-unidos/trump-proximo-lider-cuba.html
+
+**Mamdani Faces Lawsuit Over Rollout of Second-Home Tax**\
+`Some New York City homeowners are arguing that they have been improperly targeted by the tax on high-end second homes, also known as pieds-à-terre.`\
+https://www.nytimes.com/2026/08/07/nyregion/mamdani-lawsuit-home-tax-pied-a-terre.html
+
 **An Unloved Schumer Tries to Win Over Party’s Insurgents**\
 `In a phone call this week, the Democratic leader told the new Michigan Senate nominee who had opposed him to just win, working to foster unity ahead of a difficult race.`\
 https://www.nytimes.com/2026/08/07/us/politics/schumer-senate-midterms.html
