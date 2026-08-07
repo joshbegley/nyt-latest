@@ -1,3 +1,11 @@
+**Madonna Goes Meta**\
+`Madonna’s “Danceteria,” from her new album “Confessions II,” is packed with self-referential nostalgia, in both the dance floor production and the name-drop lyricism. Our critic Jon Caramanica explores how Madonna uses her own history as a creative engine for hope.`\
+https://www.nytimes.com/video/podcasts/100000011078333/madonna-goes-meta.html
+
+**Houthis Claim Attack on Yemeni Military Camp**\
+`Recent escalating tensions between the Iran-backed group and the Yemeni government have prompted fears that a truce in place since 2022 is nearing collapse.`\
+https://www.nytimes.com/2026/08/07/world/middleeast/yemen-houthis-attack-military-camp.html
+
 **Schumer Forges Ahead in Fight for Senate, Despite Setbacks**\
 `In a phone call, the Democratic leader told the new Michigan contender who has opposed him to just win.`\
 https://www.nytimes.com/2026/08/07/us/politics/schumer-senate-midterms.html

@@ -1,3 +1,11 @@
+**Madonna Goes Meta**\
+`Madonna’s “Danceteria,” from her new album “Confessions II,” is packed with self-referential nostalgia, in both the dance floor production and the name-drop lyricism. Our critic Jon Caramanica explores how Madonna uses her own history as a creative engine for hope.`\
+https://www.nytimes.com/video/podcasts/100000011078333/madonna-goes-meta.html
+
+**Houthis Claim Attack on Yemeni Military Camp**\
+`Recent escalating tensions between the Iran-backed group and the Yemeni government have prompted fears that a truce in place since 2022 is nearing collapse.`\
+https://www.nytimes.com/2026/08/07/world/middleeast/yemen-houthis-attack-military-camp.html
+
 **Schumer Forges Ahead in Fight for Senate, Despite Setbacks**\
 `In a phone call, the Democratic leader told the new Michigan contender who has opposed him to just win.`\
 https://www.nytimes.com/2026/08/07/us/politics/schumer-senate-midterms.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/07/books/review/the-responsible-party-claire-car
 **Bill Cassidy Will Back Todd Blanche as Attorney General, Salvaging His Confirmation**\
 `The Louisiana senator said that, despite reservations, he would back President Trump’s pick for attorney general, giving Republicans enough votes for a majority.`\
 https://www.nytimes.com/2026/08/07/us/politics/todd-blanche-ag-murkowski.html
-
-**Summer Reading Contest, Week 10: What Got Your Attention in The Times This Week?**\
-`To participate, submit your response here by Aug. 14 at 9 a.m. Eastern. This week’s winners will be announced by Aug. 26.`\
-https://www.nytimes.com/2026/08/07/learning/summer-reading-contest-week-10-what-got-your-attention-in-the-times-this-week.html
-
-**If You’re Struggling to Pay Day-to-Day Bills, There’s Help**\
-`Nonprofit financial counselors say there has been a significant increase this year in the number of borrowers seeking their advice.`\
-https://www.nytimes.com/2026/08/07/your-money/debt-bills.html
 
