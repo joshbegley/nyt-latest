@@ -1,3 +1,7 @@
+**Receding Danube River Exposes Nazi-Era Vessels**\
+`Extreme heat in Europe has lowered water levels in the Danube River, revealing sunken Nazi-era ships. Serbia has begun pulling them out this week after captains struggled to navigate around them.`\
+https://www.nytimes.com/video/world/europe/100000011079863/receding-danube-river-exposes-nazi-era-vessels.html
+
 **Three People Explain Their Decision to Undergo Facial Plastic Surgeries**\
 `Plastic surgeries like face-lifts and neck-lifts were once considered extreme. Now they’re just another tool in the cosmetic toolbox.`\
 https://www.nytimes.com/interactive/2026/08/07/magazine/face-lift-plastic-surgery-stories.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/polls/illinois-us-house-4-polls-2026.html
 **Saudi Arabia, Turkey and Pakistan Sign Joint Defense Pact**\
 `The agreement treats an attack on any of the countries as an attack on all, but in a region of volatile rivalries, it was unclear how it would work in practice.`\
 https://www.nytimes.com/2026/08/07/world/middleeast/saudi-turkey-pakistan-joint-defense-pact.html
-
-**‘The Headlines’ News Quiz: Aug. 7, 2026**\
-`Following the news? Tracy Mumford has some questions for you.`\
-https://www.nytimes.com/2026/08/07/podcasts/the-headlines/the-headlines-news-quiz-aug-7-2026.html
 
