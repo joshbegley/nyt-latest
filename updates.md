@@ -1,3 +1,11 @@
+**Murkowski Will Oppose Blanche, Putting His Confirmation at Risk**\
+`The Alaska senator is the second Republican to announce plans to vote against Todd Blanche. He likely cannot afford any other G.O.P. defections and still win approval.`\
+https://www.nytimes.com/2026/08/07/us/politics/todd-blanche-ag-murkowski.html
+
+**We Thought Tech Would Make War More Precise. We Were Wrong.**\
+`Until recently, attacking civilian energy infrastructure was unacceptable. The dynamics of modern war have changed that.`\
+https://www.nytimes.com/2026/08/07/magazine/iran-ukraine-war-energy-attack.html
+
 **Summer Reading Contest, Week 10: What Got Your Attention in The Times This Week?**\
 `To participate, submit your response here by Aug. 14 at 9 a.m. Eastern. This week’s winners will be announced by Aug. 26.`\
 https://www.nytimes.com/2026/08/07/learning/summer-reading-contest-week-10-what-got-your-attention-in-the-times-this-week.html
