@@ -1,3 +1,7 @@
+**Students Skinned a Bear in a Dorm. Cornell Realized It Should Ban That.**\
+`After two Cornell University students skinned a black bear in a communal kitchen last year to make a meal, the school changed the rules.`\
+https://www.nytimes.com/2026/08/07/nyregion/cornell-student-bear-meat.html
+
 **Mamdani Hosted a Town Hall About Buses. Why Was the D.S.A. There?**\
 `After Mayor Zohran Mamdani’s office invited the Democratic Socialists of America to a city-sponsored event, watchdog groups raised concerns about mixing politics with government work.`\
 https://www.nytimes.com/2026/08/07/nyregion/dsa-mamdani-buses.html
