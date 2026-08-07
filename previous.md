@@ -95,7 +95,7 @@ https://www.nytimes.com/video/podcasts/100000011078681/travis-barker-processed-h
 https://www.nytimes.com/2026/08/07/books/review/the-responsible-party-claire-carusillo.html
 
 **Bill Cassidy Will Back Todd Blanche as Attorney General, Salvaging His Confirmation**\
-`The Louisiana senator said that, despite reservations,  he would back President Trump’s pick for attorney general, giving Republicans enough votes for a majority.`\
+`The Louisiana senator said that, despite reservations, he would back President Trump’s pick for attorney general, giving Republicans enough votes for a majority.`\
 https://www.nytimes.com/2026/08/07/us/politics/todd-blanche-ag-murkowski.html
 
 **Summer Reading Contest, Week 10: What Got Your Attention in The Times This Week?**\

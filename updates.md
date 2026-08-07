@@ -1,3 +1,7 @@
+**Bill Cassidy Will Back Todd Blanche as Attorney General, Salvaging His Confirmation**\
+`The Louisiana senator said that, despite reservations, he would back President Trump’s pick for attorney general, giving Republicans enough votes for a majority.`\
+https://www.nytimes.com/2026/08/07/us/politics/todd-blanche-ag-murkowski.html
+
 **Don Lemon Accuses Justice Dept. of Vindictive Prosecution in Church Protest Case**\
 `Lawyers for the former CNN anchor asked a judge to throw out the case, saying prosecutors had “acted on the president’s animus by filing unprecedented charges against a journalist for doing his job.”`\
 https://www.nytimes.com/2026/08/07/us/politics/don-lemon-vindictive-prosecution.html
