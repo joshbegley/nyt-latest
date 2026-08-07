@@ -1,3 +1,7 @@
+**Huyó a Estados Unidos a los 11 años. Robó a los 18. Fue deportada a Vietnam a los 44**\
+`El gobierno de Trump está enviando de regreso a cifras récord de vietnamitas, laosianos y hmong. Muchos llegaron a EE. UU. siendo jóvenes refugiados de guerra y posteriormente cometieron delitos.`\
+https://www.nytimes.com/es/2026/08/07/espanol/estados-unidos/deportaciones-vietnam-laos.html
+
 **They’re Battle-Tested Democrats. Do Voters Care?**\
 `Haley Stevens and Angie Craig were celebrated by Democrats in 2018. This year, they’ve faced tough primaries.`\
 https://www.nytimes.com/2026/08/07/us/politics/angie-craig-haley-stevens-democrats.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/07/movies/action-movies-streaming.html
 **This Is What It Feels Like to Live Through a Political Revolution**\
 `What it means not to share a consensus political time.`\
 https://www.nytimes.com/2026/08/07/opinion/politics-revolution-trump-change.html
-
-**Why Scott Galloway Is an A.I. Optimist**\
-`The A.I. economy will create a job boom, not an apocalypse, argues Scott Galloway. Will that lead to a renaissance of meaning for young men? The columnist Ross Douthat, the host of “Interesting Times,” isn’t so sure.`\
-https://www.nytimes.com/video/opinion/100000011066450/why-scott-galloway-is-an-ai-optimist.html
 

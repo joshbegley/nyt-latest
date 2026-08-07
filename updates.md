@@ -1,3 +1,7 @@
+**They’re Battle-Tested Democrats. Do Voters Care?**\
+`Haley Stevens and Angie Craig were celebrated by Democrats in 2018. This year, they’ve faced tough primaries.`\
+https://www.nytimes.com/2026/08/07/us/politics/angie-craig-haley-stevens-democrats.html
+
 **Students Skinned a Bear in a Dorm. Cornell Realized It Should Ban That.**\
 `After two Cornell University students skinned a black bear in a communal kitchen last year to make a meal, the school changed the rules.`\
 https://www.nytimes.com/2026/08/07/nyregion/cornell-student-bear-meat.html

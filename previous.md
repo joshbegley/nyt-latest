@@ -1,3 +1,7 @@
+**They’re Battle-Tested Democrats. Do Voters Care?**\
+`Haley Stevens and Angie Craig were celebrated by Democrats in 2018. This year, they’ve faced tough primaries.`\
+https://www.nytimes.com/2026/08/07/us/politics/angie-craig-haley-stevens-democrats.html
+
 **New Jersey Opens Civil Rights Investigation Into Delaney Hall**\
 `The state attorney general said that her office had issued subpoenas and would investigate whether employees at the migrant detention center had violated civil rights.`\
 https://www.nytimes.com/2026/08/07/nyregion/delaney-hall-investigation-civil-rights.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/07/opinion/politics-revolution-trump-change.html
 **Why Scott Galloway Is an A.I. Optimist**\
 `The A.I. economy will create a job boom, not an apocalypse, argues Scott Galloway. Will that lead to a renaissance of meaning for young men? The columnist Ross Douthat, the host of “Interesting Times,” isn’t so sure.`\
 https://www.nytimes.com/video/opinion/100000011066450/why-scott-galloway-is-an-ai-optimist.html
-
-**A Drying Danube River Reveals Nazi-Era Vessels, and Hazards of Heat**\
-`The river’s water levels have fallen as extreme heat has afflicted Europe, exposing sunken German vessels from World War II that are impeding navigation.`\
-https://www.nytimes.com/2026/08/07/world/europe/danube-germany-ships-serbia.html
 
