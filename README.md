@@ -1,3 +1,7 @@
+**Charles S. Faddis, Ex-C.I.A. Officer Who Pushed Conspiracies, Dies at 68**\
+`After 20 years in the C.I.A., he emerged as an outspoken critic of the agency and as a leader of the election-denial movement in Pennsylvania.`\
+https://www.nytimes.com/2026/08/07/books/charles-sam-faddis-dead.html
+
 **Who Is Ahead in Florida's 9th Congressional District?**\
 `Track the latest polls in Florida's 9th Congressional District.`\
 https://www.nytimes.com/interactive/polls/florida-us-house-9-polls-2026.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/07/business/bonds-stocks-federal-reserve-interes
 **Edinburgh Fringe: 9 Shows That Are Sure to Make Waves**\
 `As the festival opens Friday, some of the acts already have significant word-of-mouth buzz or planned runs beyond the Fringe.`\
 https://www.nytimes.com/2026/08/07/theater/edinburgh-fringe-what-to-see.html
-
-**Who Is Ahead in Illinois's 4th Congressional District?**\
-`Track the latest polls in Illinois's 4th Congressional District.`\
-https://www.nytimes.com/interactive/polls/illinois-us-house-4-polls-2026.html
 
