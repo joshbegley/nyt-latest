@@ -1,3 +1,7 @@
+**Max Miller Continues to Resist Pressure to Drop Out as Deadline Looms**\
+`The Republican House member from Ohio was accused of holding a gun to his ex-wife’s head and fracturing the collarbone of their young daughter. He has denied the accusations.`\
+https://www.nytimes.com/2026/08/07/us/politics/max-miller-gop.html
+
 **More Than 50 Decomposing Bodies Are Found in a Chicago Funeral Home**\
 `The authorities said the bodies were found in various of stages of decomposition. It was not clear how long they had been there.`\
 https://www.nytimes.com/2026/08/07/us/decomposing-bodies-funeral-home-chicago.html
