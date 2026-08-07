@@ -1,3 +1,7 @@
+**‘Please Drop the Circular Firing Squad, Democrats’**\
+`Readers assess the Democrats’ prospects after the recent primary victories by progressives. Also: President Trump’s “end run” around the birthright ruling.`\
+https://www.nytimes.com/2026/08/07/opinion/democrats-progressives-moderates.html
+
 **Charles S. Faddis, Ex-C.I.A. Officer Who Pushed Conspiracy Theories, Dies at 68**\
 `After 20 years in the C.I.A., he emerged as an outspoken critic of the agency and as a leader of the election-denial movement in Pennsylvania.`\
 https://www.nytimes.com/2026/08/07/books/charles-sam-faddis-dead.html
