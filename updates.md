@@ -1,3 +1,75 @@
+**El gobierno de Trump acelera la cooperación militar con Colombia**\
+`Abelardo de la Espriella asume la presidencia el viernes. Sus planes podrían hacer de Colombia una pieza crucial en los esfuerzos de Trump contra el narcotráfico en toda la región.`\
+https://www.nytimes.com/es/2026/08/07/espanol/america-latina/colombia-espriella-trump-narcotrafico.html
+
+**I Answer Your Questions on Peter Thiel, Chris Rufo and the D.S.A.**\
+`Ezra Klein answers listeners’ questions.`\
+https://www.nytimes.com/2026/08/07/opinion/ezra-klein-podcast-ask-me-anything.html
+
+**His Former Father-in-Law Called Him a Danger. Will Republicans Step Up?**\
+`This Ohio congressman should not still be running for Congress.`\
+https://www.nytimes.com/2026/08/07/opinion/max-miller-moreno-ohio-congressman.html
+
+**Iran and Ukraine Aren’t Just Wars About Energy. They’re Wars Targeting Energy.**\
+`Until recently, attacking civilian energy infrastructure was unacceptable. The dynamics of modern war have changed that.`\
+https://www.nytimes.com/2026/08/07/magazine/iran-ukraine-war-energy-attack.html
+
+**8 Wellness Podcasts You Should Listen to Next**\
+`In case you’re looking for a new deep dive.`\
+https://www.nytimes.com/2026/08/07/well/health-wellness-podcasts.html
+
+**Abdul El-Sayed Talks About His Victory, Chuck Schumer and His Mom**\
+`In an interview with The New York Times, Dr. El-Sayed recalled some of his conversations with establishment figures who once opposed his candidacy.`\
+https://www.nytimes.com/2026/08/07/us/politics/abdul-el-sayed-michigan-primary-interview.html
+
+**The Gadget That Fixed My Screen-Time Habit**\
+`It’s tough breaking a phone addiction. The Brick physically locks you out of distracting apps, making it harder to mindlessly scroll.`\
+https://www.nytimes.com/2026/08/07/us/the-gadget-that-fixed-my-screen-time-habit.html
+
+**Corrections: Aug. 7, 2026**\
+`Corrections that appeared in print on Friday, Aug. 7, 2026.`\
+https://www.nytimes.com/2026/08/07/pageoneplus/corrections-aug-7-2026.html
+
+**Twin Falls Embraces Man Who Confronted Idaho In-N-Out Shooting**\
+`While the motive in the strip mall shooting rampage in Twin Falls, Idaho, remains elusive, a community embraces a bystander who stepped in.`\
+https://www.nytimes.com/2026/08/07/us/twin-falls-idaho-shooting.html
+
+**Piece of Plane Flown by World War II Flying Ace Finally Comes Home**\
+`A search crew found the wreckage of Richard Bong’s missing plane on a Papua New Guinea hillside two years ago. Part of a wing will be on display at a museum honoring him in Wisconsin.`\
+https://www.nytimes.com/2026/08/07/us/richard-bong-plane-recovered-world-war-two.html
+
+**8 New Movies Our Critics Are Talking About This Week**\
+`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
+https://www.nytimes.com/2026/08/07/movies/new-movies-this-week-critics.html
+
+**How the Reflecting Pool Came to Mirror Trump’s Washington**\
+`A hospitality manager for the Trump Organization traveled to Las Vegas to find a solution to problems at a national landmark. This is the untold back story of the fallout.`\
+https://www.nytimes.com/2026/08/07/us/politics/reflecting-pool-trump-administration.html
+
+**A Playroom That’s a Far Cry From Sad Beige**\
+`Colorful cabinets, collages, and couches create the ultimate fun zone for Alex Proba’s daughter.`\
+https://www.nytimes.com/2026/08/07/realestate/alex-proba-playroom-design.html
+
+**Flying In From Ukraine to Honor Ella Fitzgerald**\
+`The singer Ray Brown Jr., Fitzgerald’s son, lives with his wife in western Ukraine. Tonight he’s stopping by Bryant Park for a concert dedicated to his legendary mother.`\
+https://www.nytimes.com/2026/08/07/nyregion/flying-in-from-ukraine-to-honor-ella-fitzgerald.html
+
+**Thomas S. Hines, Who Helped Put L.A. Architecture on the Map, Dies at 89**\
+`A historian at U.C.L.A., he showed how Los Angeles’s architects and planners made the city a global center for modernist design in the 20th century.`\
+https://www.nytimes.com/2026/08/07/books/thomas-hines-dead.html
+
+**The state of Iran’s three key nuclear sites**\
+`The conflict may have slowed, but not stopped, Iran’s nuclear program, officials and experts said.`\
+https://www.nytimes.com/2026/08/07/world/middleeast/iran-nuclear-program.html
+
+**I Answer Your Questions on Peter Thiel, Chris Rufo and the D.S.A.**\
+`Ezra Klein answers listeners’ questions.`\
+https://www.nytimes.com/video/opinion/100000011066316/i-answer-your-questions-on-peter-thiel-chris-rufo-and-the-dsa.html
+
+**What Black Voters in Georgia Want and Aren’t Getting**\
+`In Georgia, where Black voters could help decide control of the Senate, Mara Gay asks what they want from America and the Democratic Party.`\
+https://www.nytimes.com/2026/08/07/opinion/georgia-midterm-black-voters-senate.html
+
 **Pick Your Favorite Home Under $2 Million in Rio de Janeiro**\
 `A Balinese-style house near a national park, a two-level penthouse with views of Corcovado Mountain and a newly renovated duplex with a pool.`\
 https://www.nytimes.com/2026/08/07/realestate/rio-de-janeiro-brazil-homes-sale.html
