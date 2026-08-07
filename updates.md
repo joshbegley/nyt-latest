@@ -1,3 +1,7 @@
+**Drought and Aging Pipes Plunge Puerto Rico Into Another Water Crisis**\
+`Starting on Friday, the island’s water authority is scheduled to shut off water for rotating 48-hour periods in parts of San Juan and surrounding areas.`\
+https://www.nytimes.com/2026/08/07/us/puerto-rico-water-crisis-drought.html
+
 **Saudi Arabia, Turkey and Pakistan Sign Joint Defense Pact**\
 `The agreement treats an attack on any of the three countries as an attack on all. Saudi Arabia has recently faced drone and missile strikes that it has blamed on Iran’s allies in Yemen and Iraq.`\
 https://www.nytimes.com/2026/08/07/world/middleeast/saudi-turkey-pakistan-joint-defense-pact.html

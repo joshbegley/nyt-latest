@@ -175,7 +175,7 @@ https://www.nytimes.com/2026/08/07/arts/music/travis-barker-hulu-documentary-pop
 https://www.nytimes.com/2026/08/07/magazine/tony-anthony-bourdain-cult-fandom.html
 
 **Drought and Aging Pipes Plunge Puerto Rico Into Another Water Crisis**\
-`The disaster has put yet another spotlight on the government’s inability to provide basic services, deepening frustration among residents already plagued by regular power outages.`\
+`Starting on Friday, the island’s water authority is scheduled to shut off water for rotating 48-hour periods in parts of San Juan and surrounding areas.`\
 https://www.nytimes.com/2026/08/07/us/puerto-rico-water-crisis-drought.html
 
 **How to Plan an African Safari**\
