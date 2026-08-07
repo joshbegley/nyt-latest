@@ -1,3 +1,19 @@
+**A Naked Bicycle Protest Is Also a Party. Is that Bad?**\
+`A split among protest groups has led to dueling rides, which combine nudity and cycling in the name of change.`\
+https://www.nytimes.com/2026/08/07/us/a-naked-bicycle-protest-is-also-a-party-is-that-bad.html
+
+**Abdoogh Khiar (Chilled Buttermilk Cucumber Soup)**\
+`This beautiful and simple classic Iranian cold soup is destined for those hot summer days when all you want to do is pull up a chair inside the fridge.`\
+https://www.nytimes.com/video/dining/100000011079949/abdoogh-khiar-chilled-buttermilk-cucumber-soup.html
+
+**Grated Tomato Pasta**\
+`It’s tough to highlight peak summer tomatoes in pasta. To make the most out of their bright flavor, summer tomatoes should be minimally cooked. This recipe gently warms the fruit, so they keep their acidity and succulence.`\
+https://www.nytimes.com/video/dining/100000011079935/grated-tomato-pasta.html
+
+**Salted Lemon S’mores**\
+`This little no-recipe treat tastes like a cross between a s’more and a lemon meringue pie.`\
+https://www.nytimes.com/video/dining/100000011079897/salted-lemon-smores.html
+
 **Who Is Ahead in Arkansas's 2nd Congressional District?**\
 `Track the latest polls in Arkansas's 2nd Congressional District.`\
 https://www.nytimes.com/interactive/polls/arkansas-us-house-2-polls-2026.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/video/world/asia/100000011079226/thailand-school-shootin
 ****\
 `Hospital footage captured medical staff members clinging to an operating table, trying to protect a patient during a powerful 6.8-magnitude earthquake on July 28 in Japan.`\
 https://www.nytimes.com/video/embedded/world/asia/100000011079303/07vid-japan-hospital-embed-15113.html
-
-**El gobierno de Trump acelera la cooperación militar con Colombia**\
-`Abelardo de la Espriella asume la presidencia el viernes. Sus planes podrían hacer de Colombia una pieza crucial en los esfuerzos de Trump contra el narcotráfico en toda la región.`\
-https://www.nytimes.com/es/2026/08/07/espanol/america-latina/colombia-espriella-trump-narcotrafico.html
-
-**I Answer Your Questions on Peter Thiel, Chris Rufo and the D.S.A.**\
-`Ezra Klein answers listeners’ questions.`\
-https://www.nytimes.com/2026/08/07/opinion/ezra-klein-podcast-ask-me-anything.html
-
-**Republicans Need to Push Out Max Miller. Now.**\
-`This Ohio congressman should not still be running for Congress.`\
-https://www.nytimes.com/2026/08/07/opinion/max-miller-moreno-ohio-congressman.html
-
-**We Thought Tech Would Make War More Precise. We Were Wrong.**\
-`Until recently, attacking civilian energy infrastructure was unacceptable. The dynamics of modern war have changed that.`\
-https://www.nytimes.com/2026/08/07/magazine/iran-ukraine-war-energy-attack.html
 
