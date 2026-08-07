@@ -1,3 +1,7 @@
+**Thailand School Shooting Leaves at Least Six**\
+`A student opened fire at a high school near Bangkok, according to local news media.`\
+https://www.nytimes.com/2026/08/07/world/asia/thailand-school-shooting.html
+
 **At the Fed, Kevin Warsh Can’t Referee His Way Out of Inflation**\
 `The success of his chairmanship may rest on an issue that sits outside the traditional purview of monetary policy: the nation’s ongoing fiscal deficits.`\
 https://www.nytimes.com/2026/08/07/opinion/kevin-warsh-federal-reserve-inflation.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/06/us/irs-workers-lawsuit-trump-tax-protections.
 **Scott Galloway’s Dating Advice**\
 `Scott Galloway is not a fan of incels. “For 99 percent of history, 99 percent of men have been involuntarily celibate for 99 percent of the time,” he says on “Interesting Times,” urging young men to fight for what they want — including sex. “It’s a motivator for us to be better men. No man has the right to reproduce. You got to work for it.”`\
 https://www.nytimes.com/video/opinion/100000011066438/scott-galloways-dating-advice.html
-
-**Roedores en el Congreso: estos capibaras cabildearon a unos legisladores en Brasil**\
-`Sabemos que tienes preguntas. Aquí las respondemos.`\
-https://www.nytimes.com/es/2026/08/06/espanol/capibaras-congreso-brasil.html
 

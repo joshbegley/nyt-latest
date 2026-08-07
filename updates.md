@@ -1,3 +1,7 @@
+**Thailand School Shooting Leaves at Least Six**\
+`A student opened fire at a high school near Bangkok, according to local news media.`\
+https://www.nytimes.com/2026/08/07/world/asia/thailand-school-shooting.html
+
 **At the Fed, Kevin Warsh Can’t Referee His Way Out of Inflation**\
 `The success of his chairmanship may rest on an issue that sits outside the traditional purview of monetary policy: the nation’s ongoing fiscal deficits.`\
 https://www.nytimes.com/2026/08/07/opinion/kevin-warsh-federal-reserve-inflation.html
