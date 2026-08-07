@@ -1,3 +1,7 @@
+**Guerras, incendios forestales y migrantes ponen a prueba las capacidades de Europa**\
+`Un verano brutal ha dejado al descubierto la enorme presión que enfrentan los países europeos ante fuerzas que escapan en gran medida a su control.`\
+https://www.nytimes.com/es/2026/08/07/espanol/mundo/europa-guerra-incendios-migracion.html
+
 **Así luce una dictadura desesperada**\
 `El régimen de Daniel Ortega y Rosario Murillo en Nicaragua ya controla a las autoridades electorales. ¿Por qué abandonar incluso la ficción de unas elecciones libres?`\
 https://www.nytimes.com/es/2026/08/07/espanol/opinion/nicaragua-ortega-murillo-elecciones.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/08/06/espanol/capibaras-congreso-brasil.html
 **Cheese on a Conveyor Belt? (Actually) Groundbreaking.**\
 `Becky Hughes takes on burning questions from “Where to Eat” readers.`\
 https://www.nytimes.com/2026/08/06/dining/reader-questions.html
-
-**Travis Barker Gets Vulnerable**\
-`Watch the full “Popcast” conversation with Travis Barker here. Edited excerpts from the interview are below.`\
-https://www.nytimes.com/video/podcasts/100000011074586/travis-barker-gets-vulnerable.html
 
