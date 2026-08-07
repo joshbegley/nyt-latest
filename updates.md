@@ -1,3 +1,11 @@
+**Trump firma órdenes contra la ciudadanía por derecho de nacimiento**\
+`Las órdenes se dan luego de que la Corte Suprema de EE. UU. dictaminara el 30 de junio que los esfuerzos previos del mandatario para poner fin a la ciudadanía por derecho de nacimiento eran inconstitucionales.`\
+https://www.nytimes.com/es/2026/08/07/espanol/estados-unidos/ciudadania-nacimiento-trump.html
+
+**Photos Show England Turning Brown in Drought**\
+`Beset by historically dry weather, much of the nation is losing its signature hue.`\
+https://www.nytimes.com/2026/08/07/world/europe/england-drought-dry-weather-photos.html
+
 **Trump llamó a Canadá ‘desagradable’. Carney responde**\
 `El primer ministro de Canadá desestimó entre risas la descripción que hizo de su país el mandatario estadounidense e insinuó que las conversaciones comerciales entre los dos países son espinosas.`\
 https://www.nytimes.com/es/2026/08/07/espanol/mundo/trump-canada-carney-aranceles.html

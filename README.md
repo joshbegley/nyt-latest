@@ -1,3 +1,7 @@
+**Parts of Eastern and Central Europe Broke Heat Records This Week**\
+`The hot weather has exacerbated dry conditions, creating conditions for wildfires and receding rivers.`\
+https://www.nytimes.com/2026/08/07/world/europe/europe-heat-records.html
+
 **Trump firma órdenes contra la ciudadanía por derecho de nacimiento**\
 `Las órdenes se dan luego de que la Corte Suprema de EE. UU. dictaminara el 30 de junio que los esfuerzos previos del mandatario para poner fin a la ciudadanía por derecho de nacimiento eran inconstitucionales.`\
 https://www.nytimes.com/es/2026/08/07/espanol/estados-unidos/ciudadania-nacimiento-trump.html
@@ -27,7 +31,7 @@ https://www.nytimes.com/video/t-magazine/100000011077787/a-hidden-space-age-gard
 https://www.nytimes.com/2026/08/07/us/politics/prosecutor-fired-lawsuit-justice-department.html
 
 **Solar Eclipse 2026: When and Where to See Totality**\
-`Check the weather forecast, path and time of the totality.`\
+`Check the weather forecast, path and time of the eclipse near you.`\
 https://www.nytimes.com/interactive/2026/08/07/world/europe/solar-eclipse-view-spain-iceland-greenland.html
 
 **Tracking Down Julie Delpy’s Jacket From ‘Before Sunset’**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/07/us/twin-falls-idaho-shooting.html
 **Piece of Plane Flown by World War II Flying Ace Finally Comes Home**\
 `A search crew found the wreckage of Richard Bong’s missing plane on a Papua New Guinea hillside two years ago. Part of a wing will be on display at a museum honoring him in Wisconsin.`\
 https://www.nytimes.com/2026/08/07/us/richard-bong-plane-recovered-world-war-two.html
-
-**8 New Movies Our Critics Are Talking About This Week**\
-`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
-https://www.nytimes.com/2026/08/07/movies/new-movies-this-week-critics.html
 
