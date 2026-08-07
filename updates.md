@@ -1,3 +1,11 @@
+**Book Review: ‘The Responsible Party,’ by Claire Carusillo**\
+`In “The Responsible Party,” a novel by Claire Carusillo, a woman named Claire Carusillo vapes her way through her wild family history.`\
+https://www.nytimes.com/2026/08/07/books/review/the-responsible-party-claire-carusillo.html
+
+**The Bond Market Is Signaling Rising Risks. Investors Should Listen.**\
+`While the Fed didn’t raise rates, the bond market did. That means hardship for home buyers and higher hurdles for A.I. data centers and the stock market. But it’s also a boon for retirees.`\
+https://www.nytimes.com/2026/08/07/business/bonds-stocks-federal-reserve-interest-rates.html
+
 **Murkowski Will Oppose Blanche as Attorney General, Putting His Confirmation at Risk**\
 `The Alaska senator is the second Republican to announce plans to vote against Todd Blanche. He likely cannot afford any other G.O.P. defections and still win approval.`\
 https://www.nytimes.com/2026/08/07/us/politics/todd-blanche-ag-murkowski.html

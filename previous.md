@@ -1,3 +1,7 @@
+**Book Review: ‘The Responsible Party,’ by Claire Carusillo**\
+`In “The Responsible Party,” a novel by Claire Carusillo, a woman named Claire Carusillo vapes her way through her wild family history.`\
+https://www.nytimes.com/2026/08/07/books/review/the-responsible-party-claire-carusillo.html
+
 **Murkowski Will Oppose Blanche as Attorney General, Putting His Confirmation at Risk**\
 `The Alaska senator is the second Republican to announce plans to vote against Todd Blanche. He likely cannot afford any other G.O.P. defections and still win approval.`\
 https://www.nytimes.com/2026/08/07/us/politics/todd-blanche-ag-murkowski.html
@@ -10,8 +14,8 @@ https://www.nytimes.com/2026/08/07/learning/summer-reading-contest-week-10-what-
 `Nonprofit financial counselors say there has been a significant increase this year in the number of borrowers seeking their advice.`\
 https://www.nytimes.com/2026/08/07/your-money/debt-bills.html
 
-**The Fed Didn’t Raise Rates. The Bond Market Did.**\
-`The market is saying risks are rising. That means hardship for home buyers and higher hurdles for A.I. data centers and the stock market. But it’s also a boon for retirees.`\
+**The Bond Market Is Signaling Rising Risks. Investors Should Listen.**\
+`While the Fed didn’t raise rates, the bond market did. That means hardship for home buyers and higher hurdles for A.I. data centers and the stock market. But it’s also a boon for retirees.`\
 https://www.nytimes.com/2026/08/07/business/bonds-stocks-federal-reserve-interest-rates.html
 
 **Edinburgh Fringe: 9 Shows That Are Sure to Make Waves**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/07/travel/italy-vineyard-dinners.html
 **Monica Barbaro and Callum Turner on Rom-Coms and the Politics of ‘One Night Only’**\
 `In “One Night Only,” Monica Barbaro and Callum Turner play singles living in a world where the government has banned premarital sex. How far-fetched is that?`\
 https://www.nytimes.com/2026/08/07/movies/monica-barbaro-callum-turner-one-night-only.html
-
-**Travis Barker on Surviving a Plane Crash, Miscarriage and Parenting Famous Kids**\
-``\
-https://www.nytimes.com/2026/08/07/arts/music/travis-barker-hulu-documentary-popcast-interview.html
 
