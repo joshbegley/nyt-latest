@@ -1,3 +1,15 @@
+**New Jersey Opens Civil Rights Investigation Into Delaney Hall**\
+`The state attorney general said that her office had issued subpoenas and would investigate whether employees at the migrant detention center had violated civil rights.`\
+https://www.nytimes.com/2026/08/07/nyregion/delaney-hall-investigation-civil-rights.html
+
+**Mamdani Hosted a Town Hall About Buses. Why Was the D.S.A. There?**\
+`After Mayor Zohran Mamdani invited the Democratic Socialists of America to a city-sponsored event, watchdog groups raised concerns about mixing politics with government work.`\
+https://www.nytimes.com/2026/08/07/nyregion/dsa-mamdani-buses.html
+
+**Schumer, Despite Party Tensions, Forges Ahead in Fight for Senate**\
+`In a phone call this week, the Democratic leader told the new Michigan Senate nominee who had opposed him to just win, working to foster unity ahead of a difficult race.`\
+https://www.nytimes.com/2026/08/07/us/politics/schumer-senate-midterms.html
+
 **Labor Market Shifts Into Reverse**\
 `Also, Trump officials are searching for Cuba’s next leader. Here’s the latest at the end of Friday.`\
 https://www.nytimes.com/2026/08/07/briefing/labor-market-cuba-leader.html

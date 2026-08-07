@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/08/07/nyregion/delaney-hall-investigation-civil-rights.html
 
 **Mamdani Hosted a Town Hall About Buses. Why Was the D.S.A. There?**\
-`After Mayor Zohran Mamdani invited the Democratic Socialists of America to a city-sponsored event, watchdog groups raised concerns about mixing politics with government work.`\
+`After Mayor Zohran Mamdani’s office invited the Democratic Socialists of America to a city-sponsored event, watchdog groups raised concerns about mixing politics with government work.`\
 https://www.nytimes.com/2026/08/07/nyregion/dsa-mamdani-buses.html
 
 **Labor Market Shifts Into Reverse**\
