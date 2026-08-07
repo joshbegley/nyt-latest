@@ -1,3 +1,7 @@
+**Schumer Forges Ahead in Fight for Senate, Despite Setbacks**\
+`In a phone call, the Democratic leader told the new Michigan contender who has opposed him to just win.`\
+https://www.nytimes.com/2026/08/07/us/politics/schumer-senate-midterms.html
+
 **‘Please Drop the Circular Firing Squad, Democrats’**\
 `Readers assess the Democrats’ prospects after the recent primary victories by progressives. Also: President Trump’s “end run” around the birthright ruling.`\
 https://www.nytimes.com/2026/08/07/opinion/democrats-progressives-moderates.html
