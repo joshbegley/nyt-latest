@@ -1,3 +1,11 @@
+**An Unloved Schumer Tries to Win Over Party’s Insurgents**\
+`In a phone call this week, the Democratic leader told the new Michigan Senate nominee who had opposed him to just win, working to foster unity ahead of a difficult race.`\
+https://www.nytimes.com/2026/08/07/us/politics/schumer-senate-midterms.html
+
+**U.S. Squeezes Cuba Even as It Searches for a New Regime Leader**\
+`Some officials warn that a more hard-line leader could emerge if the Trump administration moves forward with its plans.`\
+https://www.nytimes.com/2026/08/07/us/politics/us-search-cuba-leader.html
+
 **Huyó a Estados Unidos a los 11 años. Robó a los 18. Fue deportada a Vietnam a los 44**\
 `El gobierno de Trump está enviando de regreso a cifras récord de vietnamitas, laosianos y hmong. Muchos llegaron a EE. UU. siendo jóvenes refugiados de guerra y posteriormente cometieron delitos.`\
 https://www.nytimes.com/es/2026/08/07/espanol/estados-unidos/deportaciones-vietnam-laos.html
