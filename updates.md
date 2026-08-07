@@ -1,3 +1,23 @@
+**Summer Reading Contest, Week 10: What Got Your Attention in The Times This Week?**\
+`To participate, submit your response here by Aug. 14 at 9 a.m. Eastern. This week’s winners will be announced by Aug. 26.`\
+https://www.nytimes.com/2026/08/07/learning/summer-reading-contest-week-10-what-got-your-attention-in-the-times-this-week.html
+
+**If You’re Struggling to Pay Day-to-Day Bills, There’s Help**\
+`Nonprofit financial counselors say there has been a significant increase this year in the number of borrowers seeking their advice.`\
+https://www.nytimes.com/2026/08/07/your-money/debt-bills.html
+
+**The Fed Didn’t Raise Rates. The Bond Market Did.**\
+`The market is saying risks are rising. That means hardship for home buyers and higher hurdles for A.I. data centers and the stock market. But it’s also a boon for retirees.`\
+https://www.nytimes.com/2026/08/07/business/bonds-stocks-federal-reserve-interest-rates.html
+
+**Saudi Arabia, Turkey and Pakistan Sign Joint Defense Pact**\
+`The agreement treats an attack on any of the countries as an attack on all, but in a region of volatile rivalries, it was unclear what that would mean in practice.`\
+https://www.nytimes.com/2026/08/07/world/middleeast/saudi-turkey-pakistan-joint-defense-pact.html
+
+**‘The First Time I Voted for Donald Trump, I Thought It Was Going to Make a Difference’**\
+`In Georgia, where Black voters could help decide control of the Senate, Mara Gay asks what they want from America and the Democratic Party.`\
+https://www.nytimes.com/2026/08/07/opinion/georgia-midterm-black-voters-senate.html
+
 **Live Updates: U.S. Hiring Slumps, a Worrying Sign for the Economy**\
 `Employers shed 23,000 jobs in July, and gains in previous months were revised down sharply, in a downbeat report that suggests the labor market is weaker than previously believed.`\
 https://www.nytimes.com/live/2026/08/07/business/jobs-report-economy
