@@ -1,3 +1,15 @@
+**Receding Danube River Exposes Nazi-Era Vessels**\
+`Extreme heat in Europe has lowered water levels in the Danube River, revealing sunken Nazi-era ships. Serbia has begun pulling them out this week after captains struggled to navigate around them.`\
+https://www.nytimes.com/video/world/europe/100000011079863/receding-danube-river-exposes-nazi-era-vessels.html
+
+**Three People Explain Their Decision to Undergo Facial Plastic Surgeries**\
+`Plastic surgeries like face-lifts and neck-lifts were once considered extreme. Now they’re just another tool in the cosmetic toolbox.`\
+https://www.nytimes.com/interactive/2026/08/07/magazine/face-lift-plastic-surgery-stories.html
+
+**Family of Former U.S. Marine Detained in Russia Says He Is in Serious Condition**\
+`Robert Gilman, 32, is in “dissociative stupor,” an advocacy group said, and his family members say they are afraid for his life. Mr. Gilman was arrested in Russia in 2022.`\
+https://www.nytimes.com/2026/08/07/us/robert-gilman-russia-torture.html
+
 **Callum Turner Reveals His Favorite Rom-Com**\
 `Who was Callum Turner’s first fictional crush? Which role does he still regret missing out on? The actor shares the pop culture moments that left a lasting impression and the one song guaranteed to get him on the dance floor.`\
 https://www.nytimes.com/video/arts/100000011036449/callum-turner-rom-coms-dance-songs.html

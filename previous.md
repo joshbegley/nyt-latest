@@ -1,3 +1,15 @@
+**Receding Danube River Exposes Nazi-Era Vessels**\
+`Extreme heat in Europe has lowered water levels in the Danube River, revealing sunken Nazi-era ships. Serbia has begun pulling them out this week after captains struggled to navigate around them.`\
+https://www.nytimes.com/video/world/europe/100000011079863/receding-danube-river-exposes-nazi-era-vessels.html
+
+**Three People Explain Their Decision to Undergo Facial Plastic Surgeries**\
+`Plastic surgeries like face-lifts and neck-lifts were once considered extreme. Now they’re just another tool in the cosmetic toolbox.`\
+https://www.nytimes.com/interactive/2026/08/07/magazine/face-lift-plastic-surgery-stories.html
+
+**Family of Former U.S. Marine Detained in Russia Says He Is in Serious Condition**\
+`Robert Gilman, 32, is in “dissociative stupor,” an advocacy group said, and his family members say they are afraid for his life. Mr. Gilman was arrested in Russia in 2022.`\
+https://www.nytimes.com/2026/08/07/us/robert-gilman-russia-torture.html
+
 **Callum Turner Reveals His Favorite Rom-Com**\
 `Who was Callum Turner’s first fictional crush? Which role does he still regret missing out on? The actor shares the pop culture moments that left a lasting impression and the one song guaranteed to get him on the dance floor.`\
 https://www.nytimes.com/video/arts/100000011036449/callum-turner-rom-coms-dance-songs.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/interactive/polls/illinois-us-house-4-polls-2026.html
 **Saudi Arabia, Turkey and Pakistan Sign Joint Defense Pact**\
 `The agreement treats an attack on any of the countries as an attack on all, but in a region of volatile rivalries, it was unclear how it would work in practice.`\
 https://www.nytimes.com/2026/08/07/world/middleeast/saudi-turkey-pakistan-joint-defense-pact.html
-
-**‘The Headlines’ News Quiz: Aug. 7, 2026**\
-`Following the news? Tracy Mumford has some questions for you.`\
-https://www.nytimes.com/2026/08/07/podcasts/the-headlines/the-headlines-news-quiz-aug-7-2026.html
-
-**Jobs Report Poses New Test for Warsh and the Fed**\
-`Friday’s jobs report comes as investors increasingly expect the Federal Reserve to begin raising interest rates as soon as next month.`\
-https://www.nytimes.com/2026/08/07/business/dealbook/jobs-warsh-fed-rates.html
-
-**The White House’s Secret A.I. Rules + The State of Model Alignment With METR’s Chris Painter + The Final Hot Mess Express**\
-`A few details from the White House’s A.I. plan have leaked to the news media, but the administration has officially communicated almost nothing.`\
-https://www.nytimes.com/2026/08/07/podcasts/hardfork-white-house-secret-rules.html
 
