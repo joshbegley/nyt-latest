@@ -1,3 +1,7 @@
+**What Black Voters in Georgia Want and Aren’t Getting**\
+`In Georgia, where Black voters could help decide control of the U.S. Senate, the Times Opinion writer Mara Gay asks some what they want from America and the Democratic Party.`\
+https://www.nytimes.com/video/opinion/100000011064730/what-black-voters-in-georgia-want-and-arent-getting.html
+
 **Thailand School Shooting Leaves at Least Eight Dead**\
 `A student killed his grandparents at their home before opening fire at a high school near Bangkok and turning the gun on himself, the authorities said.`\
 https://www.nytimes.com/2026/08/07/world/asia/thailand-school-shooting.html

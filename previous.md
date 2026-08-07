@@ -1,3 +1,7 @@
+**What Black Voters in Georgia Want and Aren’t Getting**\
+`In Georgia, where Black voters could help decide control of the U.S. Senate, the Times Opinion writer Mara Gay asks some what they want from America and the Democratic Party.`\
+https://www.nytimes.com/video/opinion/100000011064730/what-black-voters-in-georgia-want-and-arent-getting.html
+
 **El Museo Metropolitano de Arte está cometiendo un grave error**\
 `¿El nuevo tema de la Met Gala es el antisemitismo?`\
 https://www.nytimes.com/es/2026/08/07/espanol/opinion/museo-metropolitano-arte-galliano-antisemitismo.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/06/us/florida-lobster-diver-attempted-murder-cha
 **John O’Malley, Bronx Detective and Federal Investigator, Dies at 73**\
 `As a detective with the N.Y.P.D., he helped prosecute violent crimes under federal law. At the U.S. attorney’s office, he was involved in high-profile exonerations.`\
 https://www.nytimes.com/2026/08/06/nyregion/john-p-omalley-dead.html
-
-**Hellbender’s Masa Pancakes**\
-`The chef Yara Herrera is clear: “I didn’t invent the idea of a masa pancake.” But she perfected the form at Hellbender restaurant in Ridgewood, Queens, where the theme of native heirloom corn runs through the tacos and tostadas on the menu.`\
-https://www.nytimes.com/video/dining/100000011077483/hellbenders-masa-pancakes.html
 
