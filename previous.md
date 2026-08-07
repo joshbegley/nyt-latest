@@ -1,3 +1,7 @@
+**Justin Trudeau, Katy Perry and the Look of the Celebrity Statesman**\
+`What the former prime minister’s boyfriend rebrand says about the intersection of politics and entertainment.`\
+https://www.nytimes.com/2026/08/07/style/justin-trudeau-katy-perry-style.html
+
 **Trump Restarts Battle to Fire Sitting Fed Governor Lisa Cook**\
 `The Trump administration, rebuffed by the Supreme Court in its first attempt to fire Lisa D. Cook, sent the Federal Reserve governor a letter saying it was “considering” removing her from the job.`\
 https://www.nytimes.com/2026/08/07/business/trump-lisa-cook-fed.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/07/world/australia/antarctica-rescue-mission-sky
 **Video Captures Chaos as Earthquake Strikes Japan Hospital Mid-Surgery**\
 `Footage shows doctors in Japan clinging to an operating table to protect a patient from the violent tremor. The surgery was completed successfully.`\
 https://www.nytimes.com/2026/08/07/world/asia/hospital-video-earthquake-surgery.html
-
-**Is America’s Drinking Water the Next Front in the Iran War?**\
-`Over 100 municipalities across the United States have identified cyberactivity potentially connected to an Iran-linked hacking spree.`\
-https://www.nytimes.com/2026/08/07/podcasts/the-daily/america-drinking-water-iran-war.html
 

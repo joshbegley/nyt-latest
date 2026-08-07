@@ -1,3 +1,7 @@
+**Justin Trudeau, Katy Perry and the Look of the Celebrity Statesman**\
+`What the former prime minister’s boyfriend rebrand says about the intersection of politics and entertainment.`\
+https://www.nytimes.com/2026/08/07/style/justin-trudeau-katy-perry-style.html
+
 **Trump Restarts Battle to Fire Sitting Fed Governor Lisa Cook**\
 `The Trump administration, rebuffed by the Supreme Court in its first attempt to fire Lisa D. Cook, sent the Federal Reserve governor a letter saying it was “considering” removing her from the job.`\
 https://www.nytimes.com/2026/08/07/business/trump-lisa-cook-fed.html
