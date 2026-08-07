@@ -1,3 +1,7 @@
+**Weak Jobs Report Does Not Eliminate Prospects of Interest Rate Rise**\
+`Officials at the Federal Reserve are chiefly focused on the trajectory of inflation after five years of overshooting the central bank’s 2 percent target.`\
+https://www.nytimes.com/2026/08/07/business/economy/jobs-report-interest-rates-fed.html
+
 **Weak Jobs Report Does Not Eliminate Prospects of a September Rate Rise**\
 `Officials at the Federal Reserve are chiefly focused on the trajectory of inflation after five years of overshooting the central bank’s 2 percent target.`\
 https://www.nytimes.com/2026/08/07/business/economy/weak-jobs-report-does-not-eliminate-prospects-of-a-september-rate-rise.html
