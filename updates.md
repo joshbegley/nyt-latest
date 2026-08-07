@@ -1,3 +1,11 @@
+**Jobs Report Poses New Test for Warsh and the Fed**\
+`Friday’s jobs report comes as investors increasingly expect the Federal Reserve to begin raising interest rates as soon as next month.`\
+https://www.nytimes.com/2026/08/07/business/dealbook/jobs-warsh-fed-rates.html
+
+**The White House’s Secret A.I. Rules + The State of Model Alignment With METR’s Chris Painter + The Final Hot Mess Express**\
+`A few details from the White House’s A.I. plan have leaked to the news media, but the administration has officially communicated almost nothing.`\
+https://www.nytimes.com/2026/08/07/podcasts/hardfork-white-house-secret-rules.html
+
 **Curious Minds**\
 `We’re answering reader questions.`\
 https://www.nytimes.com/2026/08/07/briefing/reader-questions-answered.html

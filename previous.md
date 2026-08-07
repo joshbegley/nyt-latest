@@ -1,3 +1,11 @@
+**Jobs Report Poses New Test for Warsh and the Fed**\
+`Friday’s jobs report comes as investors increasingly expect the Federal Reserve to begin raising interest rates as soon as next month.`\
+https://www.nytimes.com/2026/08/07/business/dealbook/jobs-warsh-fed-rates.html
+
+**The White House’s Secret A.I. Rules + The State of Model Alignment With METR’s Chris Painter + The Final Hot Mess Express**\
+`A few details from the White House’s A.I. plan have leaked to the news media, but the administration has officially communicated almost nothing.`\
+https://www.nytimes.com/2026/08/07/podcasts/hardfork-white-house-secret-rules.html
+
 **Curious Minds**\
 `We’re answering reader questions.`\
 https://www.nytimes.com/2026/08/07/briefing/reader-questions-answered.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/08/07/learning/word-of-the-day-persnickety.html
 **Seized on Their Way to Gaza, Activists Tell of Abuse in Israeli Custody**\
 `In interviews, more than 20 people who tried to break an Israeli blockade described beatings, electric shocks and other abuse after being captured. Israel denied the accusations.`\
 https://www.nytimes.com/2026/08/07/world/middleeast/gaza-flotilla-israel-abuse.html
-
-**Esperanza Spalding, Kayla Farrish and the Riffy Potential of Jazz and Dance**\
-`The bassist Esperanza Spalding and choreographer Kayla Farrish are teaming up to improvise together, mending the frayed relationship between their arts.`\
-https://www.nytimes.com/2026/08/07/arts/dance/esperanza-spalding-kayla-farrish-jazz-dance.html
-
-**Trump Targets Birthright Citizenship With New Executive Orders**\
-`President Trump signed two executive orders on Thursday targeting birthright citizenship, weeks after the Supreme Court rejected his previous efforts to end it.`\
-https://www.nytimes.com/video/us/politics/100000011079211/trump-birthright-citizenship-tourism.html
 
