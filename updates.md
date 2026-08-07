@@ -1,3 +1,7 @@
+**Así luce una dictadura desesperada**\
+`El régimen de Daniel Ortega y Rosario Murillo en Nicaragua ya controla a las autoridades electorales. ¿Por qué abandonar incluso la ficción de unas elecciones libres?`\
+https://www.nytimes.com/es/2026/08/07/espanol/opinion/nicaragua-ortega-murillo-elecciones.html
+
 **Foreigners Behaving Badly in Vietnam Challenge Its Communist Justice System**\
 `Vietnam is grappling with a surge in visitors, testing its Soviet-style criminal justice system as it tries to supercharge its economy through tourism.`\
 https://www.nytimes.com/2026/08/07/world/asia/vietnam-tourism-foreigners-crime-law.html
