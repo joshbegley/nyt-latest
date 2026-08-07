@@ -1,3 +1,7 @@
+**Thailand School Shooting Leaves at Least Six**\
+`A student opened fire at a high school near Bangkok before turning the gun on himself, the authorities said.`\
+https://www.nytimes.com/2026/08/07/world/asia/thailand-school-shooting.html
+
 **Estos robots podrían salvar la agricultura en Japón**\
 `Monster Wolf y Pochi tienen la misión de ahuyentar osos y transportar flores de cerezo en una región donde muchos agricultores tienen 70 años o más.`\
 https://www.nytimes.com/es/2026/08/07/espanol/mundo/japon-robots-agricultura.html
