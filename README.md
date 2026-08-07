@@ -1,3 +1,7 @@
+**Weekend Weather Is a Summer Stew of Heat, Humidity and Haze**\
+`The worst heat is expected out West, where most of the wildfire smoke may be trapped, while the East also swelters and faces a chance of thunderstorms.`\
+https://www.nytimes.com/2026/08/07/weather/weekend-forecast-points-to-heat-humidty-and-haze.html
+
 **Trump Officials Deport Group of Mexicans Despite Torture Risk**\
 `Immigration authorities used a rare authority to deport them, even though their removal was blocked over concerns they would be tortured if returned.`\
 https://www.nytimes.com/2026/08/07/us/trump-mexico-deportations-torture.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/07/podcasts/hardfork-white-house-secret-rules.ht
 **Curious Minds**\
 `We’re answering reader questions.`\
 https://www.nytimes.com/2026/08/07/briefing/reader-questions-answered.html
-
-**Rescuers Battled Extreme Weather Conditions During Medevac Mission in Antarctica**\
-`An Australian flight crew faced subfreezing temperatures, changing weather conditions and almost constant darkness as they worked to rescue a U.S. national.`\
-https://www.nytimes.com/2026/08/07/world/australia/antarctica-rescue-mission-skytraders.html
 

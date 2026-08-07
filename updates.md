@@ -1,3 +1,7 @@
+**Trump Officials Deport Group of Mexicans Despite Torture Risk**\
+`Immigration authorities used a rare authority to deport them, even though their removal was blocked over concerns they would be tortured if returned.`\
+https://www.nytimes.com/2026/08/07/us/trump-mexico-deportations-torture.html
+
 **Justin Trudeau, Katy Perry and the Look of the Celebrity Statesman**\
 `What the former prime minister’s boyfriend rebrand says about the intersection of politics and entertainment.`\
 https://www.nytimes.com/2026/08/07/style/justin-trudeau-katy-perry-style.html
