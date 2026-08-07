@@ -1,3 +1,7 @@
+**Senate Passes Sanctions Bill Targeting Russia and Iran**\
+`The legislation was championed by Senator Lindsey Graham, the South Carolina Republican whose sudden death last month helped spur quick action on it.`\
+https://www.nytimes.com/2026/08/07/us/politics/senate-russia-sanctions.html
+
 **As Pressure Mounts, U.S. Hunts for Cuba’s Next Leader**\
 `Some officials warn that a more hard-line leader could emerge if the Trump administration moves forward with its plans.`\
 https://www.nytimes.com/2026/08/07/us/politics/us-search-cuba-leader.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/07/crosswords/connections-companion-1154.html
 **NYT Strands Hints for Aug. 8, 2026**\
 `Scroll down for hints and conversation about the puzzle for Saturday, Aug. 8, 2026.`\
 https://www.nytimes.com/2026/08/07/crosswords/strands-sidekick-888.html
-
-**Today’s Wordle Hints for August 8, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, Aug. 8, 2026.`\
-https://www.nytimes.com/2026/08/07/crosswords/wordle-review-1876.html
 
