@@ -1,3 +1,11 @@
+**As Pressure Mounts, U.S. Hunts for Cuba’s Next Leader**\
+`Some officials warn that a more hard-line leader could emerge if the Trump administration moves forward with its plans.`\
+https://www.nytimes.com/2026/08/07/us/politics/us-search-cuba-leader.html
+
+**‘Drop the Circular Firing Squad, Democrats’**\
+`Readers assess the Democrats’ prospects after the recent primary victories by progressives. Also: President Trump’s “end run” around the birthright ruling.`\
+https://www.nytimes.com/2026/08/07/opinion/democrats-progressives-moderates.html
+
 **Judge Rules Two Virginia Schools Must Change Confederate Names**\
 `The school board’s decision to rename the schools after Stonewall Jackson, Robert E. Lee and Turner Ashby “cannot be divorced from racial discrimination,” the judge wrote in his ruling.`\
 https://www.nytimes.com/2026/08/07/us/virginia-schools-confederate-names-ruling.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/07/crosswords/strands-sidekick-888.html
 **Today’s Wordle Hints for August 8, 2026**\
 `Scroll down for hints and conversation about the puzzle for Saturday, Aug. 8, 2026.`\
 https://www.nytimes.com/2026/08/07/crosswords/wordle-review-1876.html
-
-**Labor Market Shifts Into Reverse as Employers Balk at Hiring**\
-`A spring surge rapidly faded as the summer brought higher prices and more uncertainty for businesses, even as they avoided layoffs.`\
-https://www.nytimes.com/2026/08/07/business/economy/heres-the-latest.html
-
-**Several People Dead in Thailand School Shooting**\
-`At least seven people died after a student shot his grandparents and then opened fire at his high school near Bangkok on Friday. The authorities said the shooting ended after the student turned the gun on himself.`\
-https://www.nytimes.com/video/world/asia/100000011079226/thailand-school-shooting-bangkok.html
 
