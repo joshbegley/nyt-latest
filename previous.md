@@ -1,3 +1,7 @@
+**Who Is Ahead in Arkansas's 2nd Congressional District?**\
+`Track the latest polls in Arkansas's 2nd Congressional District.`\
+https://www.nytimes.com/interactive/polls/arkansas-us-house-2-polls-2026.html
+
 **Don Lemon Accuses Justice Dept. of Vindictive Prosecution in Church Protest Case**\
 `Lawyers for the former CNN anchor asked a judge to throw out the case, saying prosecutors had “acted on the president’s animus by filing unprecedented charges against a journalist for doing his job.”`\
 https://www.nytimes.com/2026/08/07/us/politics/don-lemon-vindictive-prosecution.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/07/opinion/max-miller-moreno-ohio-congressman.ht
 **We Thought Tech Would Make War More Precise. We Were Wrong.**\
 `Until recently, attacking civilian energy infrastructure was unacceptable. The dynamics of modern war have changed that.`\
 https://www.nytimes.com/2026/08/07/magazine/iran-ukraine-war-energy-attack.html
-
-**8 Wellness Podcasts You Should Listen to Next**\
-`In case you’re looking for a new deep dive.`\
-https://www.nytimes.com/2026/08/07/well/health-wellness-podcasts.html
 

@@ -1,3 +1,7 @@
+**Who Is Ahead in Arkansas's 2nd Congressional District?**\
+`Track the latest polls in Arkansas's 2nd Congressional District.`\
+https://www.nytimes.com/interactive/polls/arkansas-us-house-2-polls-2026.html
+
 **Bill Cassidy Will Back Todd Blanche as Attorney General, Salvaging His Confirmation**\
 `The Louisiana senator said that, despite reservations, he would back President Trump’s pick for attorney general, giving Republicans enough votes for a majority.`\
 https://www.nytimes.com/2026/08/07/us/politics/todd-blanche-ag-murkowski.html
