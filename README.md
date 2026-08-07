@@ -1,3 +1,7 @@
+**Flashback: Your Weekly History Quiz, Aug. 8, 2026**\
+`Can you sort 8 historical events?`\
+https://www.nytimes.com/interactive/2026/08/07/upshot/flashback.html
+
 **Puerto Rico comenzará a racionar el agua en medio de una nueva crisis**\
 `A partir del viernes, está previsto que la autoridad de acueductos de la isla corte el agua en periodos rotativos de 48 horas en partes de San Juan y las áreas circundantes.`\
 https://www.nytimes.com/es/2026/08/07/espanol/estados-unidos/puerto-rico-agua.html
@@ -111,7 +115,7 @@ https://www.nytimes.com/2026/08/07/theater/edinburgh-fringe-what-to-see.html
 https://www.nytimes.com/interactive/polls/illinois-us-house-4-polls-2026.html
 
 **Saudi Arabia, Turkey and Pakistan Sign Joint Defense Pact**\
-`The agreement treats an attack on any of the countries as an attack on all, but in a region of volatile rivalries, it was unclear what that would mean in practice.`\
+`The agreement treats an attack on any of the countries as an attack on all, but in a region of volatile rivalries, it was unclear how it would work in practice.`\
 https://www.nytimes.com/2026/08/07/world/middleeast/saudi-turkey-pakistan-joint-defense-pact.html
 
 **‘The Headlines’ News Quiz: Aug. 7, 2026**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/07/well/health-wellness-podcasts.html
 **Abdul El-Sayed Talks About His Victory, Chuck Schumer and His Mom**\
 `In an interview with The New York Times, Dr. El-Sayed recalled some of his conversations with establishment figures who once opposed his candidacy.`\
 https://www.nytimes.com/2026/08/07/us/politics/abdul-el-sayed-michigan-primary-interview.html
-
-**The Gadget That Fixed My Screen-Time Habit**\
-`It’s tough breaking a phone addiction. The Brick physically locks you out of distracting apps, making it harder to mindlessly scroll.`\
-https://www.nytimes.com/2026/08/07/us/the-gadget-that-fixed-my-screen-time-habit.html
 

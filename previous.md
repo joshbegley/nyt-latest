@@ -1,4 +1,8 @@
-**‘I Was So Wrong’: Iranians Say Trump’s Promises Never Came True**\
+**Puerto Rico comenzará a racionar el agua en medio de una nueva crisis**\
+`A partir del viernes, está previsto que la autoridad de acueductos de la isla corte el agua en periodos rotativos de 48 horas en partes de San Juan y las áreas circundantes.`\
+https://www.nytimes.com/es/2026/08/07/espanol/estados-unidos/puerto-rico-agua.html
+
+**Iranians Say Trump’s Promises Have Fallen by the Wayside as Iran War Drags On**\
 `As President Trump struggles to extricate the United States from the war in Iran, his promises to protesters in the country have fallen by the wayside.`\
 https://www.nytimes.com/2026/08/07/us/politics/trump-iran-war-protesters.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/07/us/politics/abdul-el-sayed-michigan-primary-i
 **The Gadget That Fixed My Screen-Time Habit**\
 `It’s tough breaking a phone addiction. The Brick physically locks you out of distracting apps, making it harder to mindlessly scroll.`\
 https://www.nytimes.com/2026/08/07/us/the-gadget-that-fixed-my-screen-time-habit.html
-
-**Corrections: Aug. 7, 2026**\
-`Corrections that appeared in print on Friday, Aug. 7, 2026.`\
-https://www.nytimes.com/2026/08/07/pageoneplus/corrections-aug-7-2026.html
 

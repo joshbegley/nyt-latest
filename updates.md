@@ -1,3 +1,11 @@
+**Puerto Rico comenzará a racionar el agua en medio de una nueva crisis**\
+`A partir del viernes, está previsto que la autoridad de acueductos de la isla corte el agua en periodos rotativos de 48 horas en partes de San Juan y las áreas circundantes.`\
+https://www.nytimes.com/es/2026/08/07/espanol/estados-unidos/puerto-rico-agua.html
+
+**Iranians Say Trump’s Promises Have Fallen by the Wayside as Iran War Drags On**\
+`As President Trump struggles to extricate the United States from the war in Iran, his promises to protesters in the country have fallen by the wayside.`\
+https://www.nytimes.com/2026/08/07/us/politics/trump-iran-war-protesters.html
+
 **‘I Was So Wrong’: Iranians Say Trump’s Promises Never Came True**\
 `As President Trump struggles to extricate the United States from the war in Iran, his promises to protesters in the country have fallen by the wayside.`\
 https://www.nytimes.com/2026/08/07/us/politics/trump-iran-war-protesters.html
