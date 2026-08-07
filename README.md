@@ -18,7 +18,7 @@ https://www.nytimes.com/2026/08/07/opinion/democrats-progressives-moderates.html
 `The school board’s decision to rename the schools after Stonewall Jackson, Robert E. Lee and Turner Ashby “cannot be divorced from racial discrimination,” the judge wrote in his ruling.`\
 https://www.nytimes.com/2026/08/07/us/virginia-schools-confederate-names-ruling.html
 
-**A Naked Bicycle Protest Is Also a Party. Is that Bad?**\
+**A Naked Bicycle Protest Is Also a Party. Is That Bad?**\
 `A split among protest groups has led to dueling rides, which combine nudity and cycling in the name of change.`\
 https://www.nytimes.com/2026/08/07/us/a-naked-bicycle-protest-is-also-a-party-is-that-bad.html
 
