@@ -1,3 +1,15 @@
+**Labor Market Shifts Into Reverse**\
+`Also, Trump officials are searching for Cuba’s next leader. Here’s the latest at the end of Friday.`\
+https://www.nytimes.com/2026/08/07/briefing/labor-market-cuba-leader.html
+
+**‘Black-Bear Pastrami’ Is No Longer on the Menu in This College’s Dorms**\
+`After two Cornell University students skinned a black bear in a communal kitchen last year to make a meal, the school changed the rules.`\
+https://www.nytimes.com/2026/08/07/nyregion/cornell-student-bear-meat.html
+
+**What Black Voters in Georgia Told Us About America**\
+`Georgia could help determine whether Democrats take control of the Senate — and much may depend on whether Black voters turn out. The Opinion writer Mara Gay traveled to the state to find out what voters want from America and from the Democratic Party.`\
+https://www.nytimes.com/video/opinion/100000011064771/what-black-voters-in-georgia-told-us-about-america.html
+
 **Madonna Goes Meta**\
 `Madonna’s “Danceteria,” from her new album “Confessions II,” is packed with self-referential nostalgia, in both the dance floor production and the name-drop lyricism. Our critic Jon Caramanica explores how Madonna uses her own history as a creative engine for hope.`\
 https://www.nytimes.com/video/podcasts/100000011078333/madonna-goes-meta.html
