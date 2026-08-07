@@ -1,3 +1,11 @@
+**Edinburgh Fringe: 9 Shows That Are Sure to Make Waves**\
+`As the festival opens Friday, some of the acts already have significant word-of-mouth buzz or planned runs beyond the Fringe.`\
+https://www.nytimes.com/2026/08/07/theater/edinburgh-fringe-what-to-see.html
+
+**Live Updates: U.S. Job Market Shows Unexpected Loss**\
+`Businesses shed 23,000 jobs in July in the face of renewed tariffs and higher costs driven by war in the Middle East.`\
+https://www.nytimes.com/live/2026/08/07/business/jobs-report-economy
+
 **Who Is Ahead in Illinois's 4th Congressional District?**\
 `Track the latest polls in Illinois's 4th Congressional District.`\
 https://www.nytimes.com/interactive/polls/illinois-us-house-4-polls-2026.html
