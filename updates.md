@@ -1,3 +1,39 @@
+**Foreigners Behaving Badly in Vietnam Challenge Its Communist Justice System**\
+`Vietnam is grappling with a surge in visitors, testing its Soviet-style criminal justice system as it tries to supercharge its economy through tourism.`\
+https://www.nytimes.com/2026/08/07/world/asia/vietnam-tourism-foreigners-crime-law.html
+
+**Quote of the Day: Yeehaw! It’s a Country Music Festival in Africa.**\
+`Quotation of the Day for Friday, August 7, 2026.`\
+https://www.nytimes.com/2026/08/07/pageoneplus/quote-of-the-day-yeehaw-its-a-country-music-festival-in-africa.html
+
+**How Japan Minimized Deaths from a Major Earthquake**\
+`After deadly tremors a decade ago, Kumamoto built earthquake-resistant buildings and even trained locals in search and rescue.`\
+https://www.nytimes.com/2026/08/07/world/asia/japan-earthquake-kumamoto-preparation.html
+
+**Residents of London’s Barbican Are Battling a New Tower**\
+`The Barbican, a once divisive housing complex in central London, is now considered an architectural masterpiece. Residents are fighting plans for a 20-story building next door.`\
+https://www.nytimes.com/2026/08/07/world/europe/barbican-london-redevelopment-tower-block.html
+
+**No More Sex, Flirting, Scrolling or Swiping**\
+`I wanted to live like a turtle in the safety of my shell.`\
+https://www.nytimes.com/2026/08/07/style/modern-love-no-more-sex-flirting-scrolling-or-swiping.html
+
+**Country Woman Meets City Man**\
+`Maia Comeau had to drive two hours for her first date with Rich Olaya. “It’s like ‘Green Acres,’ except I’m Eva Gabor’s character,” he said.`\
+https://www.nytimes.com/2026/08/07/style/maia-comeau-rich-olaya-wedding.html
+
+**They Fell in Love Across Two Sides of a Bargaining Table**\
+`Amber Parrish and Vikrum Aiyer were on opposing sides of one of the most expensive and closely watched political fights in California history.`\
+https://www.nytimes.com/2026/08/07/style/amber-parrish-vikrum-aiyer-wedding.html
+
+**As They Read Their Vows, Orange Ash Dusted Their Hair**\
+`Blake Hogge and Trystan Nickovich wanted to marry at Beaver Canyon, Utah, but a wildfire forced a change of plans.`\
+https://www.nytimes.com/2026/08/07/style/trystan-nickovich-blake-hogge-wedding.html
+
+**A New York City Council Member Helped Play Cupid**\
+`Before their first date, Senti Sojwal and Ben Fuller-Googins discovered a shared friend. At a Brooklyn bar, they discovered shared values.`\
+https://www.nytimes.com/2026/08/07/style/senti-sojwal-ben-fuller-googins-wedding.html
+
 **Fauci Is Far From the First Person to Plead the Fifth Before Congress**\
 `The constitutional right against self-incrimination has been invoked on several occasions during high-profile — and contentious — hearings.`\
 https://www.nytimes.com/2026/08/06/us/politics/plead-fifth-amendment-fauci-congress.html
