@@ -1,3 +1,7 @@
+**In Upset, Andy Ogles Loses to a Republican Challenger in Tennessee**\
+`Mr. Ogles, a two-term congressman, had held off primary threats before, despite controversy. But on Thursday, Charlie Hatcher, a former state agriculture commissioner, delivered an upset.`\
+https://www.nytimes.com/2026/08/06/us/politics/andy-ogles-loses-tennessee-primary-charlie-hatcher.html
+
 **NYT Crossword Answers for August 07, 2026**\
 `Jesse Cohn opens our solving weekend.`\
 https://www.nytimes.com/2026/08/06/crosswords/daily-puzzle-2026-08-07.html
