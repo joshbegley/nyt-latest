@@ -1,3 +1,7 @@
+**The State of Iran’s Three Key Nuclear Sites**\
+`The conflict may have slowed, but not stopped, Iran’s nuclear program, officials and experts said.`\
+https://www.nytimes.com/2026/08/07/world/middleeast/iran-nuclear-program.html
+
 **Rescuers Battled Extreme Weather Conditions During Medevac Mission in Antarctica**\
 `An Australian flight crew faced subfreezing temperatures, changing weather conditions and almost constant darkness as they worked to rescue a U.S. national.`\
 https://www.nytimes.com/2026/08/07/world/australia/antarctica-rescue-mission-skytraders.html
