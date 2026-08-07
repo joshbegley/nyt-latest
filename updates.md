@@ -1,3 +1,11 @@
+**As Pressure Mounts, U.S. Hunts for Cuba’s Next Leader**\
+`Some officials warn that a more hard-line leader could emerge if the Trump administration moves forward with its plans.`\
+https://www.nytimes.com/2026/08/07/us/politics/us-search-cuba-leader.html
+
+**‘Drop the Circular Firing Squad, Democrats’**\
+`Readers assess the Democrats’ prospects after the recent primary victories by progressives. Also: President Trump’s “end run” around the birthright ruling.`\
+https://www.nytimes.com/2026/08/07/opinion/democrats-progressives-moderates.html
+
 **Judge Rules Two Virginia Schools Must Change Confederate Names**\
 `The school board’s decision to rename the schools after Stonewall Jackson, Robert E. Lee and Turner Ashby “cannot be divorced from racial discrimination,” the judge wrote in his ruling.`\
 https://www.nytimes.com/2026/08/07/us/virginia-schools-confederate-names-ruling.html
