@@ -1,3 +1,11 @@
+**Who Is Ahead in Illinois's 4th Congressional District?**\
+`Track the latest polls in Illinois's 4th Congressional District.`\
+https://www.nytimes.com/interactive/polls/illinois-us-house-4-polls-2026.html
+
+**Live Updates: Slow but Steady Jobs Market Faces Its Latest Test**\
+`U.S. employers have added a solid number of jobs and the unemployment rate has held firm in recent months. New data for July is due for release on Friday.`\
+https://www.nytimes.com/live/2026/08/07/business/jobs-report-economy
+
 **Video Captures Chaos as Earthquake Strikes Japan Hospital Mid-Surgery**\
 `Footage shows doctors in Japan clinging to an operating table to protect a patient from the violent tremor. The surgery was completed successfully.`\
 https://www.nytimes.com/2026/08/07/world/asia/hospital-video-earthquake-surgery.html

@@ -1,3 +1,7 @@
+**Edinburgh Fringe: 9 Shows That Are Sure to Make Waves**\
+`As the festival opens Friday, some of the acts already have significant word-of-mouth buzz or planned runs beyond the Fringe.`\
+https://www.nytimes.com/2026/08/07/theater/edinburgh-fringe-what-to-see.html
+
 **Who Is Ahead in Illinois's 4th Congressional District?**\
 `Track the latest polls in Illinois's 4th Congressional District.`\
 https://www.nytimes.com/interactive/polls/illinois-us-house-4-polls-2026.html
@@ -50,8 +54,8 @@ https://www.nytimes.com/2026/08/07/crosswords/strands-sidekick-888.html
 `Scroll down for hints and conversation about the puzzle for Saturday, Aug. 8, 2026.`\
 https://www.nytimes.com/2026/08/07/crosswords/wordle-review-1876.html
 
-**Live Updates: Slow but Steady Jobs Market Faces Its Latest Test**\
-`U.S. employers have added a solid number of jobs and the unemployment rate has held firm in recent months. New data for July is due for release on Friday.`\
+**Live Updates: U.S. Job Market Shows Unexpected Loss**\
+`Businesses shed 23,000 jobs in July in the face of renewed tariffs and higher costs driven by war in the Middle East.`\
 https://www.nytimes.com/live/2026/08/07/business/jobs-report-economy
 
 **Several People Dead in Thailand School Shooting**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/07/travel/how-to-plan-an-african-safari.html
 **Megan Park Knows That Teenage Girls Deserve More**\
 `The creator of the new young adult series “Sterling Point” trusts her young performers. She used to be one of them.`\
 https://www.nytimes.com/2026/08/07/arts/television/megan-park-sterling-point.html
-
-**In ‘Cookie Queens,’ the Girl Scouts Are the Stars**\
-`The film, directed by Alysa Nahmias, follows the youngsters and their families during weeks of sales, strategy and stress.`\
-https://www.nytimes.com/2026/08/07/movies/cookie-queens-girl-scouts-review.html
 

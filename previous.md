@@ -1,3 +1,7 @@
+**Who Is Ahead in Illinois's 4th Congressional District?**\
+`Track the latest polls in Illinois's 4th Congressional District.`\
+https://www.nytimes.com/interactive/polls/illinois-us-house-4-polls-2026.html
+
 **Saudi Arabia, Turkey and Pakistan Sign Joint Defense Pact**\
 `The agreement treats an attack on any of the three countries as an attack on all. Saudi Arabia has recently faced drone and missile strikes that it has blamed on Iran’s allies in Yemen and Iraq.`\
 https://www.nytimes.com/2026/08/07/world/middleeast/saudi-turkey-pakistan-joint-defense-pact.html
@@ -47,7 +51,7 @@ https://www.nytimes.com/2026/08/07/crosswords/strands-sidekick-888.html
 https://www.nytimes.com/2026/08/07/crosswords/wordle-review-1876.html
 
 **Live Updates: Slow but Steady Jobs Market Faces Its Latest Test**\
-`U.S. employers have added a solid number of jobs and the unemployment rate has held firm in recent months. New data is due for release on Friday.`\
+`U.S. employers have added a solid number of jobs and the unemployment rate has held firm in recent months. New data for July is due for release on Friday.`\
 https://www.nytimes.com/live/2026/08/07/business/jobs-report-economy
 
 **Several People Dead in Thailand School Shooting**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/07/arts/television/megan-park-sterling-point.htm
 **In ‘Cookie Queens,’ the Girl Scouts Are the Stars**\
 `The film, directed by Alysa Nahmias, follows the youngsters and their families during weeks of sales, strategy and stress.`\
 https://www.nytimes.com/2026/08/07/movies/cookie-queens-girl-scouts-review.html
-
-**Fans of Jeff Kinney’s Diary of a Wimpy Kid Series Might Like These Laugh-Out-Loud Illustrated Novels, Too**\
-`These recommendations should tide over fans of Jeff Kinney’s laugh-out-loud illustrated novels until the next installment.`\
-https://www.nytimes.com/2026/08/07/books/review/diary-of-a-wimpy-kid-readalikes.html
 
