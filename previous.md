@@ -1,3 +1,19 @@
+**NYT Spelling Bee Answers for August 7, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/08/07/crosswords/spelling-bee-forum.html
+
+**Luigi Mangione Is Facing Two Trials. Isn’t That Double Jeopardy?**\
+`The legal principle prevents a person from being tried twice for the same crime. But Mr. Mangione’s situation shows how complicated the judicial system can be.`\
+https://www.nytimes.com/2026/08/07/nyregion/luigi-mangione-double-jeopardy.html
+
+**‘Nobody Stays’: What a 100th Family Reunion Says About Rural New York**\
+`The Putmans, like their homeland in upstate New York, were once known for their dairy farms. A century later, things have changed.`\
+https://www.nytimes.com/2026/08/07/nyregion/morristown-ny-putman-reunion.html
+
+**‘The Last House’ Review: End of the World as They Know It**\
+`When a mysterious force traps people in their homes, one family tries to ride out the apocalypse.`\
+https://www.nytimes.com/2026/08/07/movies/the-last-house-review.html
+
 **Thailand School Shooting Leaves at Least Six**\
 `A student opened fire at a high school near Bangkok, according to local news media.`\
 https://www.nytimes.com/2026/08/07/world/asia/thailand-school-shooting.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/08/06/world/good-list-rituals-strait-hormuz-fifa.ht
 **Senate Panel Votes to Hold Fauci in Contempt of Congress**\
 `The Senate Homeland Security Committee voted along party lines to hold Dr. Anthony Fauci in contempt of Congress on Thursday. The resolution accuses Dr. Fauci of failing to comply with a congressional subpoena after he refused to answer questions at a hearing last week.`\
 https://www.nytimes.com/video/us/politics/100000011077161/fauci-contempt-congress-vote.html
-
-**Trump’s Helicopter Flies Near Passenger Jet**\
-`On Tuesday, a passenger jet and a Marine One helicopter carrying President Trump flew near one another. Radio communications between Marine One and the air traffic control at Ronald Reagan National Airport indicate that some communications were garbled.`\
-https://www.nytimes.com/video/us/100000011077110/trump-helicopter-jet-marine-one-faa.html
-
-**Families Sue New York City Over Deaths in 2025 Legionnaires’ Outbreak**\
-`A cluster of cases in Harlem was traced to two city-owned sites. Lawsuits claim that dangerous bacteria spewed from improperly maintained cooling towers.`\
-https://www.nytimes.com/2026/08/06/nyregion/nyc-legionnaires-lawsuit-families-victims.html
-
-**Union Representing IRS Workers Sues Over Trump’s Deal Granting Sweeping Tax Protections**\
-`The request was the first time that anyone had used the courts in an effort to directly kill the sweeping tax protections offered to the president and his family.`\
-https://www.nytimes.com/2026/08/06/us/irs-workers-lawsuit-trump-tax-protections.html
-
-**Scott Galloway’s Dating Advice**\
-`Scott Galloway is not a fan of incels. “For 99 percent of history, 99 percent of men have been involuntarily celibate for 99 percent of the time,” he says on “Interesting Times,” urging young men to fight for what they want — including sex. “It’s a motivator for us to be better men. No man has the right to reproduce. You got to work for it.”`\
-https://www.nytimes.com/video/opinion/100000011066438/scott-galloways-dating-advice.html
 

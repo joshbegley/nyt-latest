@@ -1,3 +1,19 @@
+**NYT Spelling Bee Answers for August 7, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/08/07/crosswords/spelling-bee-forum.html
+
+**Luigi Mangione Is Facing Two Trials. Isn’t That Double Jeopardy?**\
+`The legal principle prevents a person from being tried twice for the same crime. But Mr. Mangione’s situation shows how complicated the judicial system can be.`\
+https://www.nytimes.com/2026/08/07/nyregion/luigi-mangione-double-jeopardy.html
+
+**‘Nobody Stays’: What a 100th Family Reunion Says About Rural New York**\
+`The Putmans, like their homeland in upstate New York, were once known for their dairy farms. A century later, things have changed.`\
+https://www.nytimes.com/2026/08/07/nyregion/morristown-ny-putman-reunion.html
+
+**‘The Last House’ Review: End of the World as They Know It**\
+`When a mysterious force traps people in their homes, one family tries to ride out the apocalypse.`\
+https://www.nytimes.com/2026/08/07/movies/the-last-house-review.html
+
 **Thailand School Shooting Leaves at Least Six**\
 `A student opened fire at a high school near Bangkok, according to local news media.`\
 https://www.nytimes.com/2026/08/07/world/asia/thailand-school-shooting.html
