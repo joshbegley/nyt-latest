@@ -54,8 +54,8 @@ https://www.nytimes.com/video/podcasts/100000011078681/travis-barker-processed-h
 `In “The Responsible Party,” a novel by Claire Carusillo, a woman named Claire Carusillo vapes her way through her wild family history.`\
 https://www.nytimes.com/2026/08/07/books/review/the-responsible-party-claire-carusillo.html
 
-**Murkowski Will Oppose Blanche as Attorney General, Putting His Confirmation at Risk**\
-`The Alaska senator is the second Republican to announce plans to vote against Todd Blanche. He likely cannot afford any other G.O.P. defections and still win approval.`\
+**Bill Cassidy Will Back Todd Blanche as Attorney General, Salvaging His Confirmation**\
+`The Louisiana senator said that, despite reservations,  he would back President Trump’s pick for attorney general, giving Republicans enough votes for a majority.`\
 https://www.nytimes.com/2026/08/07/us/politics/todd-blanche-ag-murkowski.html
 
 **Summer Reading Contest, Week 10: What Got Your Attention in The Times This Week?**\

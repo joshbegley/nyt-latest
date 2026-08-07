@@ -1,3 +1,11 @@
+**Appeals Court Upholds Block on Trump Ballroom Construction**\
+`A federal appeals court panel backed a lower court’s ruling, and made it likely that the Supreme Court will decide the case. But the decision does not mean construction will halt immediately.`\
+https://www.nytimes.com/2026/08/07/us/politics/trump-ballroom-appeals-court.html
+
+**A Hidden Space-Age Garden in Lower Manhattan**\
+`The artist Arlene Shechet visits two of Isamu Noguchi’s outdoor sculptures in Lower Manhattan, “Sunken Garden for Chase Manhattan Bank Plaza” (1961-64) and “Red Cube” (1968).`\
+https://www.nytimes.com/video/t-magazine/100000011077787/a-hidden-space-age-garden-in-lower-manhattan.html
+
 **Prosecutor Sues Justice Dept. Over Dismissal After Right-Wing Influencer’s Claim**\
 `Will Rosenzweig joins a growing list of former prosecutors and federal agents who have gone to court to contest the purge of law enforcement deemed disloyal.`\
 https://www.nytimes.com/2026/08/07/us/politics/prosecutor-fired-lawsuit-justice-department.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/07/nyregion/flying-in-from-ukraine-to-honor-ella
 **Thomas S. Hines, Who Helped Put L.A. Architecture on the Map, Dies at 89**\
 `A historian at U.C.L.A., he showed how Los Angeles’s architects and planners made the city a global center for modernist design in the 20th century.`\
 https://www.nytimes.com/2026/08/07/books/thomas-hines-dead.html
-
-**The State of Iran’s Three Key Nuclear Sites**\
-`The conflict may have slowed, but not stopped, Iran’s nuclear program, officials and experts said.`\
-https://www.nytimes.com/2026/08/07/world/middleeast/iran-nuclear-program.html
-
-**I Answer Your Questions on Peter Thiel, Chris Rufo and the D.S.A.**\
-`Ezra Klein answers listeners’ questions.`\
-https://www.nytimes.com/video/opinion/100000011066316/i-answer-your-questions-on-peter-thiel-chris-rufo-and-the-dsa.html
 

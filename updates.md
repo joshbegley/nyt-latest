@@ -1,3 +1,11 @@
+**Appeals Court Upholds Block on Trump Ballroom Construction**\
+`A federal appeals court panel backed a lower court’s ruling, and made it likely that the Supreme Court will decide the case. But the decision does not mean construction will halt immediately.`\
+https://www.nytimes.com/2026/08/07/us/politics/trump-ballroom-appeals-court.html
+
+**A Hidden Space-Age Garden in Lower Manhattan**\
+`The artist Arlene Shechet visits two of Isamu Noguchi’s outdoor sculptures in Lower Manhattan, “Sunken Garden for Chase Manhattan Bank Plaza” (1961-64) and “Red Cube” (1968).`\
+https://www.nytimes.com/video/t-magazine/100000011077787/a-hidden-space-age-garden-in-lower-manhattan.html
+
 **Prosecutor Sues Justice Dept. Over Dismissal After Right-Wing Influencer’s Claim**\
 `Will Rosenzweig joins a growing list of former prosecutors and federal agents who have gone to court to contest the purge of law enforcement deemed disloyal.`\
 https://www.nytimes.com/2026/08/07/us/politics/prosecutor-fired-lawsuit-justice-department.html
