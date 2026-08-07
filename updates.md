@@ -1,3 +1,7 @@
+**Mamdani Hosted a Town Hall About Buses. Why Was the D.S.A. There?**\
+`After Mayor Zohran Mamdani’s office invited the Democratic Socialists of America to a city-sponsored event, watchdog groups raised concerns about mixing politics with government work.`\
+https://www.nytimes.com/2026/08/07/nyregion/dsa-mamdani-buses.html
+
 **New Jersey Opens Civil Rights Investigation Into Delaney Hall**\
 `The state attorney general said that her office had issued subpoenas and would investigate whether employees at the migrant detention center had violated civil rights.`\
 https://www.nytimes.com/2026/08/07/nyregion/delaney-hall-investigation-civil-rights.html
