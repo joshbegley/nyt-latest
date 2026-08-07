@@ -1,3 +1,7 @@
+**Rescuers Battled Extreme Weather Conditions During Medevac Mission in Antarctica**\
+`An Australian flight crew faced subfreezing temperatures, changing weather conditions and almost constant darkness as they worked to rescue a U.S. national.`\
+https://www.nytimes.com/2026/08/07/world/australia/antarctica-rescue-mission-skytraders.html
+
 **Hospital Video Captures Chaos as Earthquake Strikes Mid-Surgery**\
 `Footage shows doctors in Japan clinging to an operating table to protect a patient from the violent tremor. The surgery was completed successfully.`\
 https://www.nytimes.com/2026/08/07/world/asia/hospital-video-earthquake-surgery.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/us/politics/100000011079211/trump-birthright-citiz
 **What Black Voters in Georgia Want and Aren’t Getting**\
 `In Georgia, where Black voters could help decide control of the U.S. Senate, the Times Opinion writer Mara Gay asks some what they want from America and the Democratic Party.`\
 https://www.nytimes.com/video/opinion/100000011064730/what-black-voters-in-georgia-want-and-arent-getting.html
-
-**El Museo Metropolitano de Arte está cometiendo un grave error**\
-`¿El nuevo tema de la Met Gala es el antisemitismo?`\
-https://www.nytimes.com/es/2026/08/07/espanol/opinion/museo-metropolitano-arte-galliano-antisemitismo.html
 

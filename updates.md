@@ -1,3 +1,7 @@
+**Rescuers Battled Extreme Weather Conditions During Medevac Mission in Antarctica**\
+`An Australian flight crew faced subfreezing temperatures, changing weather conditions and almost constant darkness as they worked to rescue a U.S. national.`\
+https://www.nytimes.com/2026/08/07/world/australia/antarctica-rescue-mission-skytraders.html
+
 **Hospital Video Captures Chaos as Earthquake Strikes Mid-Surgery**\
 `Footage shows doctors in Japan clinging to an operating table to protect a patient from the violent tremor. The surgery was completed successfully.`\
 https://www.nytimes.com/2026/08/07/world/asia/hospital-video-earthquake-surgery.html
