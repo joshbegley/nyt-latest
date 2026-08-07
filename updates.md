@@ -1,3 +1,7 @@
+**China’s Export Boom Rolls On Despite Trade Backlash**\
+`China’s factories are finding eager buyers abroad even as weak consumer spending and a prolonged property slump weigh on growth at home.`\
+https://www.nytimes.com/2026/08/07/business/china-trade-exports.html
+
 **NYT Spelling Bee Answers for August 7, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/08/07/crosswords/spelling-bee-forum.html

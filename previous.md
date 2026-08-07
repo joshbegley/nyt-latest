@@ -1,3 +1,7 @@
+**China’s Export Boom Rolls On Despite Trade Backlash**\
+`China’s factories are finding eager buyers abroad even as weak consumer spending and a prolonged property slump weigh on growth at home.`\
+https://www.nytimes.com/2026/08/07/business/china-trade-exports.html
+
 **NYT Spelling Bee Answers for August 7, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/08/07/crosswords/spelling-bee-forum.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/06/us/justice-department-duke-law-school-racial-
 **A List of Good Things**\
 `For something different in August, we bring you ideas, rituals and activities to add joy to your days.`\
 https://www.nytimes.com/2026/08/06/world/good-list-rituals-strait-hormuz-fifa.html
-
-**Senate Panel Votes to Hold Fauci in Contempt of Congress**\
-`The Senate Homeland Security Committee voted along party lines to hold Dr. Anthony Fauci in contempt of Congress on Thursday. The resolution accuses Dr. Fauci of failing to comply with a congressional subpoena after he refused to answer questions at a hearing last week.`\
-https://www.nytimes.com/video/us/politics/100000011077161/fauci-contempt-congress-vote.html
 
