@@ -1,3 +1,7 @@
+**Judge Dismisses Former Olympian’s Felony Charge in Reflecting Pool Case**\
+`The move ends the criminal case for David Hearn, a former Olympic canoeist, after prosecutors acknowledged that the Trump administration’s claims of vandalism were false.`\
+https://www.nytimes.com/2026/08/06/us/politics/reflecting-pool-david-hearn-trump.html
+
 **Spokane Arson Suspect Had History of Setting Fires, Prosecutors Say**\
 `The man charged with setting one of the three destructive blazes in eastern Washington this month told detectives he had started two dozen fires in the last year, an affidavit said.`\
 https://www.nytimes.com/2026/08/06/us/spokane-arson-suspect-fire-history.html
