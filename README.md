@@ -1,3 +1,39 @@
+**Foreigners Behaving Badly in Vietnam Challenge Its Communist Justice System**\
+`Vietnam is grappling with a surge in visitors, testing its Soviet-style criminal justice system as it tries to supercharge its economy through tourism.`\
+https://www.nytimes.com/2026/08/07/world/asia/vietnam-tourism-foreigners-crime-law.html
+
+**Quote of the Day: Yeehaw! It’s a Country Music Festival in Africa.**\
+`Quotation of the Day for Friday, August 7, 2026.`\
+https://www.nytimes.com/2026/08/07/pageoneplus/quote-of-the-day-yeehaw-its-a-country-music-festival-in-africa.html
+
+**How Japan Minimized Deaths from a Major Earthquake**\
+`After deadly tremors a decade ago, Kumamoto built earthquake-resistant buildings and even trained locals in search and rescue.`\
+https://www.nytimes.com/2026/08/07/world/asia/japan-earthquake-kumamoto-preparation.html
+
+**Residents of London’s Barbican Are Battling a New Tower**\
+`The Barbican, a once divisive housing complex in central London, is now considered an architectural masterpiece. Residents are fighting plans for a 20-story building next door.`\
+https://www.nytimes.com/2026/08/07/world/europe/barbican-london-redevelopment-tower-block.html
+
+**No More Sex, Flirting, Scrolling or Swiping**\
+`I wanted to live like a turtle in the safety of my shell.`\
+https://www.nytimes.com/2026/08/07/style/modern-love-no-more-sex-flirting-scrolling-or-swiping.html
+
+**Country Woman Meets City Man**\
+`Maia Comeau had to drive two hours for her first date with Rich Olaya. “It’s like ‘Green Acres,’ except I’m Eva Gabor’s character,” he said.`\
+https://www.nytimes.com/2026/08/07/style/maia-comeau-rich-olaya-wedding.html
+
+**They Fell in Love Across Two Sides of a Bargaining Table**\
+`Amber Parrish and Vikrum Aiyer were on opposing sides of one of the most expensive and closely watched political fights in California history.`\
+https://www.nytimes.com/2026/08/07/style/amber-parrish-vikrum-aiyer-wedding.html
+
+**As They Read Their Vows, Orange Ash Dusted Their Hair**\
+`Blake Hogge and Trystan Nickovich wanted to marry at Beaver Canyon, Utah, but a wildfire forced a change of plans.`\
+https://www.nytimes.com/2026/08/07/style/trystan-nickovich-blake-hogge-wedding.html
+
+**A New York City Council Member Helped Play Cupid**\
+`Before their first date, Senti Sojwal and Ben Fuller-Googins discovered a shared friend. At a Brooklyn bar, they discovered shared values.`\
+https://www.nytimes.com/2026/08/07/style/senti-sojwal-ben-fuller-googins-wedding.html
+
 **Fauci Is Far From the First Person to Plead the Fifth Before Congress**\
 `The constitutional right against self-incrimination has been invoked on several occasions during high-profile — and contentious — hearings.`\
 https://www.nytimes.com/2026/08/06/us/politics/plead-fifth-amendment-fauci-congress.html
@@ -161,40 +197,4 @@ https://www.nytimes.com/video/podcasts/100000011074586/travis-barker-gets-vulner
 **Wildfire Smoke Degrades Air Quality Across Washington and Oregon**\
 `Air quality levels reached unhealthy levels across Oregon and Washington this week.`\
 https://www.nytimes.com/2026/08/06/weather/wildfires-air-quality-oregon-washington.html
-
-**Mitch McConnell Discharged From Rehabilitation Facility**\
-`The Kentucky Republican has been absent from Congress for nearly two months after a health episode. He said he would continue recovering from home.`\
-https://www.nytimes.com/2026/08/06/us/politics/mitch-mcconnell-discharged-hospitalization-senate.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/opinion/100000011064788/06voters-georgia-cine.html
-
-**FIFA Executives Were Given Ultimatum to Approve World Cup Privatization Plan**\
-`The day before the World Cup final, key FIFA figures faced a stunning demand to sign off on a multibillion-dollar privatization project.`\
-https://www.nytimes.com/2026/08/06/business/fifa-world-cup-privatization.html
-
-**How the Migrant Crisis in Ceuta Ignited a Backlash Against the Far Right**\
-`A sudden migrant surge from Morocco into the Spanish territory of Ceuta attracted the presence of far-right, anti-immigrant politicians. But many locals say they don’t want their multicultural home to be used as a political prop.`\
-https://www.nytimes.com/video/world/europe/100000011069669/ceuta-spain-morocco-migrant-politics.html
-
-**Bernie Sanders Is Not Doing the Democrats Any Favors**\
-`What exactly is the project of the insurgent left all about?`\
-https://www.nytimes.com/2026/08/06/opinion/democrats-bernie-sanders-dsa-el-sayed.html
-
-**Three Myths People Love to Believe About English**\
-`Sorry to be a spoilsport.`\
-https://www.nytimes.com/2026/08/06/opinion/english-language-linguistics-myths.html
-
-**Birds Are Dying. Clues Point to El Niño.**\
-`A die-off of seabirds has some experts thinking an El Niño weather pattern is to blame, a look at data centers and pollution, and more climate news.`\
-https://www.nytimes.com/2026/08/06/climate/bird-die-offs-el-nino.html
-
-**Books Our Editors Loved This Week**\
-`Reading recommendations from critics and editors at The New York Times.`\
-https://www.nytimes.com/2026/08/06/books/review/new-recommended-books.html
-
-**French Streamers Convicted in Case Related to Kick Livestream Death**\
-`The two men, users of the platform Kick, received suspended sentences and fines.`\
-https://www.nytimes.com/2026/08/06/world/europe/french-streamers-kick-death-convicted.html
 
