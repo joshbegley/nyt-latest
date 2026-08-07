@@ -1,3 +1,7 @@
+**Neil Armstrong’s Childhood Home Is for Sale**\
+`In the hometown of the first man on the moon, Wapakoneta, Ohio, the two-story house on a corner lot is listed for $430,000.`\
+https://www.nytimes.com/2026/08/06/us/neil-armstrong-childhood-home-ohio.html
+
 **Travis Barker: ‘Skateboarding Taught Me Everything’**\
 `Travis Barker spoke with Jon Caramanica and Joe Coscarelli on “Popcast” about his music career and his new documentary, “Travis Barker: Louder Than Fear,” out Aug. 13.`\
 https://www.nytimes.com/video/podcasts/100000011074588/travis-barker-skateboarding-taught-me-everything.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/06/insider/enola-gay-hiroshima-pilot.html
 **Houthi Attacks on Yemeni Military Threaten to Reignite Civil War**\
 `The Iranian-backed militia said it had targeted the armed forces in two resource-rich provinces, as escalating violence in Yemen imperils a fragile truce.`\
 https://www.nytimes.com/2026/08/06/world/middleeast/houthi-yemen-strikes.html
-
-**Trump Administration to Deregulate Head Start, Antipoverty Program Created Under R.F.K. Jr.’s Uncle**\
-`While administration officials say the changes will save money by lifting onerous requirements, advocates fear the anti-poverty program will be gutted.`\
-https://www.nytimes.com/2026/08/06/us/politics/rfk-jr-head-start-antipoverty-program.html
 

@@ -1,3 +1,7 @@
+**Altos ejecutivos de la FIFA fueron presionados para aprobar un proyecto de privatización**\
+`El proyecto pretendía vender una participación del 20 por ciento en la FIFA a un grupo de inversionistas liderado por el hermano del yerno del presidente Trump.`\
+https://www.nytimes.com/es/2026/08/06/espanol/negocios/fifa-infantino-presion-proyecto-privatizacion.html
+
 **Neil Armstrong’s Childhood Home Is for Sale**\
 `In the hometown of the first man on the moon, Wapakoneta, Ohio, the two-story house on a corner lot is listed for $430,000.`\
 https://www.nytimes.com/2026/08/06/us/neil-armstrong-childhood-home-ohio.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/06/upshot/military-promotions-women-hegseth.html
 **Handwritten Account of Hiroshima Bombing Is Up for Auction**\
 `Nosing around a book fair for inspiration, a reporter found a firsthand account of one of humanity’s gravest acts, with traces of a journalist’s hand.`\
 https://www.nytimes.com/2026/08/06/insider/enola-gay-hiroshima-pilot.html
-
-**Houthi Attacks on Yemeni Military Threaten to Reignite Civil War**\
-`The Iranian-backed militia said it had targeted the armed forces in two resource-rich provinces, as escalating violence in Yemen imperils a fragile truce.`\
-https://www.nytimes.com/2026/08/06/world/middleeast/houthi-yemen-strikes.html
 
