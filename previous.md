@@ -1,3 +1,7 @@
+****\
+`Hospital footage captured medical staff members clinging to an operating table, trying to protect a patient during a powerful 6.8-magnitude earthquake on July 28 in Japan.`\
+https://www.nytimes.com/video/embedded/world/asia/100000011079303/07vid-japan-hospital-embed-15113.html
+
 **El gobierno de Trump acelera la cooperación militar con Colombia**\
 `Abelardo de la Espriella asume la presidencia el viernes. Sus planes podrían hacer de Colombia una pieza crucial en los esfuerzos de Trump contra el narcotráfico en toda la región.`\
 https://www.nytimes.com/es/2026/08/07/espanol/america-latina/colombia-espriella-trump-narcotrafico.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/07/nyregion/luigi-mangione-double-jeopardy.html
 **‘Nobody Stays’: What a 100th Family Reunion Says About Rural New York**\
 `The Putmans, like their homeland in upstate New York, were once known for their dairy farms. A century later, things have changed.`\
 https://www.nytimes.com/2026/08/07/nyregion/morristown-ny-putman-reunion.html
-
-**‘The Last House’ Review: End of the World as They Know It**\
-`When a mysterious force traps people in their homes, one family tries to ride out the apocalypse.`\
-https://www.nytimes.com/2026/08/07/movies/the-last-house-review.html
 
