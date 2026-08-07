@@ -1,3 +1,7 @@
+**Schumer Forges Ahead in Fight for Senate, Despite Setbacks**\
+`In a phone call, the Democratic leader told the new Michigan contender who has opposed him to just win.`\
+https://www.nytimes.com/2026/08/07/us/politics/schumer-senate-midterms.html
+
 **EE. UU. deporta a un grupo de mexicanos en riesgo de tortura**\
 `Las autoridades migratorias usaron una facultad inusual para deportarlos, aunque su expulsión estaba bloqueada por temores de que serían torturados si regresaban a México.`\
 https://www.nytimes.com/es/2026/08/07/espanol/estados-unidos/trump-mexico-deportaciones-tortura.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/07/learning/summer-reading-contest-week-10-what-
 **If You’re Struggling to Pay Day-to-Day Bills, There’s Help**\
 `Nonprofit financial counselors say there has been a significant increase this year in the number of borrowers seeking their advice.`\
 https://www.nytimes.com/2026/08/07/your-money/debt-bills.html
-
-**The Bond Market Is Signaling Rising Risks. Investors Should Listen.**\
-`While the Fed didn’t raise rates, the bond market did. That means hardship for home buyers and higher hurdles for A.I. data centers and the stock market. But it’s also a boon for retirees.`\
-https://www.nytimes.com/2026/08/07/business/bonds-stocks-federal-reserve-interest-rates.html
 
