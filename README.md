@@ -1,3 +1,7 @@
+**An ICE Detention Center Roils a Colorado Town and Jolts a House Race**\
+`Tiny Hudson, Colo., was mostly known as a speed trap between plains and suburbs. Then ICE announced it was coming, setting off months of protests.`\
+https://www.nytimes.com/2026/08/07/us/ice-detention-center-hudson-colorado-house.html
+
 **Weak Jobs Report Does Not Eliminate Prospects of Interest Rate Rise**\
 `Officials at the Federal Reserve are chiefly focused on the trajectory of inflation after five years of overshooting the central bank’s 2 percent target.`\
 https://www.nytimes.com/2026/08/07/business/economy/jobs-report-interest-rates-fed.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/07/podcasts/kawhi-leonard-pablo-torre-nba.html
 **Trump Administration Fast-Tracks Military Partnership With Colombia to Target Drug Traffickers**\
 `The country’s new Trump-endorsed president takes office on Friday. Sweeping plans to target drug traffickers with U.S. help are already underway.`\
 https://www.nytimes.com/2026/08/07/world/americas/trump-administration-military-partnership-colombia.html
-
-**A Generation on Antidepressants Searches for the Exit**\
-`Many people feel that antidepressants block their true emotions, but they don’t have guidance about how to get off these drugs.`\
-https://www.nytimes.com/2026/08/07/opinion/antidepressants-ssris-side-effects-drugs-maha.html
 
