@@ -1,3 +1,15 @@
+**NYT Crossword Answers for August 07, 2026**\
+`Jesse Cohn opens our solving weekend.`\
+https://www.nytimes.com/2026/08/06/crosswords/daily-puzzle-2026-08-07.html
+
+**Meta Ordered to Pay $567 Million Fine by New Mexico Judge**\
+`The penalty, imposed by a state judge, is on top of a $375 million fine ordered by a jury that found Meta misled users about the safety of its platforms.`\
+https://www.nytimes.com/2026/08/06/technology/meta-new-mexico-child-safety.html
+
+**Blackburn Wins Republican Nomination for Tennessee Governor**\
+`Senator Marsha Blackburn easily beat two Republican rivals and is now favored to become the state’s first female governor after the November elections.`\
+https://www.nytimes.com/2026/08/06/us/elections/marsha-blackburn-tennessee-governor-primary.html
+
 **Judge Dismisses Former Olympian’s Felony Charge in Reflecting Pool Case**\
 `The move ends the criminal case for David Hearn, a former Olympic canoeist, after prosecutors acknowledged that the Trump administration’s claims of vandalism were false.`\
 https://www.nytimes.com/2026/08/06/us/politics/reflecting-pool-david-hearn-trump.html
@@ -6,7 +18,7 @@ https://www.nytimes.com/2026/08/06/us/politics/reflecting-pool-david-hearn-trump
 `The man charged with setting one of the three destructive blazes in eastern Washington this month told detectives he had started two dozen fires in the last year, an affidavit said.`\
 https://www.nytimes.com/2026/08/06/us/spokane-arson-suspect-fire-history.html
 
-**One Killed in Fire Started by Man Who Said He Lit It by Accident**\
+**One Dead in California Fire Started by Man Who Said He Lit It by Accident**\
 `The authorities said they found a body inside a burned home near Sacramento. A man was charged this week with causing the blaze by operating equipment that produced sparks.`\
 https://www.nytimes.com/2026/08/06/us/gann-fire-california.html
 
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/08/06/climate/pentagon-reviews-wind-farms-court-ord
 **This A.I. Just Created Viruses Not Found in Nature**\
 `Scientists trained artificial intelligence on libraries of DNA and then asked the model to create recipes for viral genomes. Sixteen of them were viable, yielding new viruses.`\
 https://www.nytimes.com/2026/08/06/science/ai-viruses-bacteria-arc.html
-
-**Capybaras Were the Newest Lobbyists in This Brazilian Legislature**\
-`In Mato Grosso, Brazil, capybaras wandered into the building, but they were polite during the incursion.`\
-https://www.nytimes.com/2026/08/06/world/americas/capybara-brazil-legislature.html
-
-**Annelise Camp, Whose Family Sued to Stop Brain Death Test After Drowning, Has Died**\
-`The case of 2-year-old Annelise Camp, who was found unconscious in May, drew the backing of anti-abortion activists. On Monday, the family decided to remove life support.`\
-https://www.nytimes.com/2026/08/06/us/annelise-camp-dead-drowning-brain-death.html
-
-**‘La Technique’ by Jacques Pépin Turns 50 Years Old**\
-`In his groundbreaking “La Technique,” Jacques Pépin showed Americans how to do everything from carving swans out of apples to breaking down lamb.`\
-https://www.nytimes.com/2026/08/06/dining/la-technique-cookbook-jacques-pepin.html
 
