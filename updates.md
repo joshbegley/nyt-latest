@@ -1,3 +1,7 @@
+**Video Captures Chaos as Earthquake Strikes Japan Hospital Mid-Surgery**\
+`Footage shows doctors in Japan clinging to an operating table to protect a patient from the violent tremor. The surgery was completed successfully.`\
+https://www.nytimes.com/2026/08/07/world/asia/hospital-video-earthquake-surgery.html
+
 **Drought and Aging Pipes Plunge Puerto Rico Into Another Water Crisis**\
 `Starting on Friday, the island’s water authority is scheduled to shut off water for rotating 48-hour periods in parts of San Juan and surrounding areas.`\
 https://www.nytimes.com/2026/08/07/us/puerto-rico-water-crisis-drought.html
