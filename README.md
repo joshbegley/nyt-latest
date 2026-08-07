@@ -58,7 +58,7 @@ https://www.nytimes.com/2026/08/07/us/politics/senate-russia-sanctions.html
 `Some officials warn that a more hard-line leader could emerge if the Trump administration moves forward with its plans.`\
 https://www.nytimes.com/2026/08/07/us/politics/us-search-cuba-leader.html
 
-**‘Drop the Circular Firing Squad, Democrats’**\
+**‘Please Drop the Circular Firing Squad, Democrats’**\
 `Readers assess the Democrats’ prospects after the recent primary victories by progressives. Also: President Trump’s “end run” around the birthright ruling.`\
 https://www.nytimes.com/2026/08/07/opinion/democrats-progressives-moderates.html
 
