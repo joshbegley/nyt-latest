@@ -1,3 +1,7 @@
+**Trump llamó a Canadá ‘desagradable’. Carney responde**\
+`El primer ministro de Canadá desestimó entre risas la descripción que hizo de su país el mandatario estadounidense e insinuó que las conversaciones comerciales entre los dos países son espinosas.`\
+https://www.nytimes.com/es/2026/08/07/espanol/mundo/trump-canada-carney-aranceles.html
+
 **Video Captured Chaos in Japanese Hospital Mid-Surgery During Earthquake**\
 `Footage released by Kumamoto General Hospital captured medical staff clinging to an operating table, trying to protect a patient during a powerful 6.8-magnitude earthquake on July 28 in Japan.`\
 https://www.nytimes.com/video/world/asia/100000011079540/hospital-earthquake-surgery-chaos.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/07/us/politics/reflecting-pool-trump-administrat
 **A Playroom That’s a Far Cry From Sad Beige**\
 `Colorful cabinets, collages, and couches create the ultimate fun zone for Alex Proba’s daughter.`\
 https://www.nytimes.com/2026/08/07/realestate/alex-proba-playroom-design.html
-
-**Flying In From Ukraine to Honor Ella Fitzgerald**\
-`The singer Ray Brown Jr., Fitzgerald’s son, lives with his wife in western Ukraine. Tonight he’s stopping by Bryant Park for a concert dedicated to his legendary mother.`\
-https://www.nytimes.com/2026/08/07/nyregion/flying-in-from-ukraine-to-honor-ella-fitzgerald.html
 
