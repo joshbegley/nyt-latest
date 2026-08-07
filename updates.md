@@ -1,3 +1,83 @@
+**Pick Your Favorite Home Under $2 Million in Rio de Janeiro**\
+`A Balinese-style house near a national park, a two-level penthouse with views of Corcovado Mountain and a newly renovated duplex with a pool.`\
+https://www.nytimes.com/2026/08/07/realestate/rio-de-janeiro-brazil-homes-sale.html
+
+**A Pope From Chicago Was Elected. The White Sox Were Resurrected.**\
+`The elevation of Pope Leo XIV, a Chicago native and lifelong supporter of the Sox, was a godsend for a team failing on the field and with fans.`\
+https://www.nytimes.com/2026/08/07/business/a-pope-from-chicago-was-elected-the-white-sox-were-resurrected.html
+
+**Candidate Field Set After Republicans Redrew Tennessee District Lines**\
+`Tennessee’s primary elections on Thursday came after Republican legislators carved up the state’s only majority-Black district in a bid to win all nine of the state’s House seats.`\
+https://www.nytimes.com/2026/08/07/us/elections/tennessee-primary-results.html
+
+**College Is More Political Than Ever. But in a New, Insidious Way.**\
+`Students are self-segregating by ideology.`\
+https://www.nytimes.com/2026/08/07/opinion/college-politics-woke-polarization.html
+
+**Uncovering Kawhi Leonard’s Other Hidden Deal**\
+`Pablo investigates the N.B.A. superstar, Steve Ballmer’s trail of crisis and a tech company facing “the perfect storm.”`\
+https://www.nytimes.com/2026/08/07/podcasts/kawhi-leonard-pablo-torre-nba.html
+
+**Trump Administration Fast-Tracks Military Partnership With Colombia to Target Drug Traffickers**\
+`The country’s new Trump-endorsed president takes office on Friday. Sweeping plans to target drug traffickers with U.S. help are already underway.`\
+https://www.nytimes.com/2026/08/07/world/americas/trump-administration-military-partnership-colombia.html
+
+**A Generation on Antidepressants Searches for the Exit**\
+`Many people feel that antidepressants block their true emotions, but they don’t have guidance about how to get off these drugs.`\
+https://www.nytimes.com/2026/08/07/opinion/antidepressants-ssris-side-effects-drugs-maha.html
+
+**A Magical Vineyard Dinner in Tuscany Under the Stars and String Lights**\
+`In Italy, long-table vineyard dinners are increasingly popular. It’s not too late to book a place for this August or September.`\
+https://www.nytimes.com/2026/08/07/travel/italy-vineyard-dinners.html
+
+**Monica Barbaro and Callum Turner on Rom-Coms and the Politics of ‘One Night Only’**\
+`In “One Night Only,” Monica Barbaro and Callum Turner play singles living in a world where the government has banned premarital sex. How far-fetched is that?`\
+https://www.nytimes.com/2026/08/07/movies/monica-barbaro-callum-turner-one-night-only.html
+
+**Travis Barker on Surviving a Plane Crash, Miscarriage and Parenting Famous Kids**\
+``\
+https://www.nytimes.com/2026/08/07/arts/music/travis-barker-hulu-documentary-popcast-interview.html
+
+**The Gospel According to Anthony Bourdain**\
+`Fans of the late writer and chef are cultlike in their devotion. But have they misunderstood his message?`\
+https://www.nytimes.com/2026/08/07/magazine/tony-anthony-bourdain-cult-fandom.html
+
+**Drought and Aging Pipes Plunge Puerto Rico Into Another Water Crisis**\
+`The disaster has put yet another spotlight on the government’s inability to provide basic services, deepening frustration among residents already plagued by regular power outages.`\
+https://www.nytimes.com/2026/08/07/us/puerto-rico-water-crisis-drought.html
+
+**How to Plan an African Safari**\
+`From budgeting to timing your trip, here’s what to consider before you go.`\
+https://www.nytimes.com/2026/08/07/travel/how-to-plan-an-african-safari.html
+
+**Megan Park Knows That Teenage Girls Deserve More**\
+`The creator of the new young adult series “Sterling Point” trusts her young performers. She used to be one of them.`\
+https://www.nytimes.com/2026/08/07/arts/television/megan-park-sterling-point.html
+
+**In ‘Cookie Queens,’ the Girl Scouts Are the Stars**\
+`The film, directed by Alysa Nahmias, follows the youngsters and their families during weeks of sales, strategy and stress.`\
+https://www.nytimes.com/2026/08/07/movies/cookie-queens-girl-scouts-review.html
+
+**Fans of Jeff Kinney’s Diary of a Wimpy Kid Series Might Like These Laugh-Out-Loud Illustrated Novels, Too**\
+`These recommendations should tide over fans of Jeff Kinney’s laugh-out-loud illustrated novels until the next installment.`\
+https://www.nytimes.com/2026/08/07/books/review/diary-of-a-wimpy-kid-readalikes.html
+
+**Word of the Day: persnickety**\
+`This word has appeared in 16 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/08/07/learning/word-of-the-day-persnickety.html
+
+**Seized on Their Way to Gaza, Activists Tell of Abuse in Israeli Custody**\
+`In interviews, more than 20 people who tried to break an Israeli blockade described beatings, electric shocks and other abuse after being captured. Israel denied the accusations.`\
+https://www.nytimes.com/2026/08/07/world/middleeast/gaza-flotilla-israel-abuse.html
+
+**Esperanza Spalding, Kayla Farrish and the Riffy Potential of Jazz and Dance**\
+`The bassist Esperanza Spalding and choreographer Kayla Farrish are teaming up to improvise together, mending the frayed relationship between their arts.`\
+https://www.nytimes.com/2026/08/07/arts/dance/esperanza-spalding-kayla-farrish-jazz-dance.html
+
+**Trump Targets Birthright Citizenship With New Executive Orders**\
+`President Trump signed two executive orders on Thursday targeting birthright citizenship, weeks after the Supreme Court rejected his previous efforts to end it.`\
+https://www.nytimes.com/video/us/politics/100000011079211/trump-birthright-citizenship-tourism.html
+
 **What Black Voters in Georgia Want and Aren’t Getting**\
 `In Georgia, where Black voters could help decide control of the U.S. Senate, the Times Opinion writer Mara Gay asks some what they want from America and the Democratic Party.`\
 https://www.nytimes.com/video/opinion/100000011064730/what-black-voters-in-georgia-want-and-arent-getting.html
