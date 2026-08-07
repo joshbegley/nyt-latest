@@ -1,3 +1,7 @@
+**Don Lemon Accuses Justice Dept. of Vindictive Prosecution in Church Protest Case**\
+`Lawyers for the former CNN anchor asked a judge to throw out the case, saying prosecutors had “acted on the president’s animus by filing unprecedented charges against a journalist for doing his job.”`\
+https://www.nytimes.com/2026/08/07/us/politics/don-lemon-vindictive-prosecution.html
+
 **Flashback: Your Weekly History Quiz, Aug. 8, 2026**\
 `Can you sort 8 historical events?`\
 https://www.nytimes.com/interactive/2026/08/07/upshot/flashback.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/07/magazine/iran-ukraine-war-energy-attack.html
 **8 Wellness Podcasts You Should Listen to Next**\
 `In case you’re looking for a new deep dive.`\
 https://www.nytimes.com/2026/08/07/well/health-wellness-podcasts.html
-
-**Abdul El-Sayed Talks About His Victory, Chuck Schumer and His Mom**\
-`In an interview with The New York Times, Dr. El-Sayed recalled some of his conversations with establishment figures who once opposed his candidacy.`\
-https://www.nytimes.com/2026/08/07/us/politics/abdul-el-sayed-michigan-primary-interview.html
 
