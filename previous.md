@@ -1,3 +1,7 @@
+**Elizabeth Smith, Voice Coach and Juilliard Professor, Dies at 91**\
+`A founding faculty member of Juilliard Drama, she helped the actors Kevin Kline, Patti LuPone, Wendell Pierce and many other mentees find their voice, quite literally.`\
+https://www.nytimes.com/2026/08/07/theater/elizabeth-smith-dead-juilliard-broadway.html
+
 **Why Cyclospora Symptoms May Come and Go**\
 `Health experts are trying to understand how the food-borne parasite can cause symptoms that come and go, sometimes for weeks.`\
 https://www.nytimes.com/2026/08/07/well/eat/cyclospora-symptoms-relapse.html
@@ -18,7 +22,7 @@ https://www.nytimes.com/2026/08/07/opinion/democrats-progressives-moderates.html
 `The school board’s decision to rename the schools after Stonewall Jackson, Robert E. Lee and Turner Ashby “cannot be divorced from racial discrimination,” the judge wrote in his ruling.`\
 https://www.nytimes.com/2026/08/07/us/virginia-schools-confederate-names-ruling.html
 
-**A Naked Bicycle Protest Is Also a Party. Is that Bad?**\
+**A Naked Bicycle Protest Is Also a Party. Is That Bad?**\
 `A split among protest groups has led to dueling rides, which combine nudity and cycling in the name of change.`\
 https://www.nytimes.com/2026/08/07/us/a-naked-bicycle-protest-is-also-a-party-is-that-bad.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/07/podcasts/the-daily/america-drinking-water-ira
 **Trump Targets Birthright Citizenship Again, and Activists Describe Abuse in Israeli Custody**\
 `Plus, the Friday news quiz.`\
 https://www.nytimes.com/2026/08/07/podcasts/the-headlines/trump-birthright-citizenship-israel-abuse.html
-
-**NYT Connections Answers for August 8, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, Aug. 8, 2026.`\
-https://www.nytimes.com/2026/08/07/crosswords/connections-companion-1154.html
 
