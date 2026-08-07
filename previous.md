@@ -1,3 +1,7 @@
+**El Museo Metropolitano de Arte está cometiendo un grave error**\
+`¿El nuevo tema de la Met Gala es el antisemitismo?`\
+https://www.nytimes.com/es/2026/08/07/espanol/opinion/museo-metropolitano-arte-galliano-antisemitismo.html
+
 **Estos robots podrían salvar la agricultura en Japón**\
 `Monster Wolf y Pochi tienen la misión de ahuyentar osos y transportar flores de cerezo en una región donde muchos agricultores tienen 70 años o más.`\
 https://www.nytimes.com/es/2026/08/07/espanol/mundo/japon-robots-agricultura.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/06/nyregion/john-p-omalley-dead.html
 **Hellbender’s Masa Pancakes**\
 `The chef Yara Herrera is clear: “I didn’t invent the idea of a masa pancake.” But she perfected the form at Hellbender restaurant in Ridgewood, Queens, where the theme of native heirloom corn runs through the tacos and tostadas on the menu.`\
 https://www.nytimes.com/video/dining/100000011077483/hellbenders-masa-pancakes.html
-
-**Two Giant Rodents Wander Into a Brazilian Legislature**\
-`A viral video captured two capybaras wandering into a Brazilian state legislature last week. The animals, which are the largest rodents in the world, were escorted from the premises by a parliamentary aide.`\
-https://www.nytimes.com/video/world/americas/100000011077514/capybara-brazil-legislature.html
 

@@ -39,7 +39,7 @@ https://www.nytimes.com/2026/08/07/nyregion/morristown-ny-putman-reunion.html
 https://www.nytimes.com/2026/08/07/movies/the-last-house-review.html
 
 **Thailand School Shooting Leaves at Least Six**\
-`A student opened fire at a high school near Bangkok before turning the gun on himself, the authorities said.`\
+`A student killed his grandparents at their home before opening fire at a high school near Bangkok and turning the gun on himself, the authorities said.`\
 https://www.nytimes.com/2026/08/07/world/asia/thailand-school-shooting.html
 
 **At the Fed, Kevin Warsh Can’t Referee His Way Out of Inflation**\

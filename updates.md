@@ -1,3 +1,7 @@
+**El Museo Metropolitano de Arte está cometiendo un grave error**\
+`¿El nuevo tema de la Met Gala es el antisemitismo?`\
+https://www.nytimes.com/es/2026/08/07/espanol/opinion/museo-metropolitano-arte-galliano-antisemitismo.html
+
 **Thailand School Shooting Leaves at Least Six**\
 `A student opened fire at a high school near Bangkok before turning the gun on himself, the authorities said.`\
 https://www.nytimes.com/2026/08/07/world/asia/thailand-school-shooting.html
