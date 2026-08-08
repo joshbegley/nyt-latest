@@ -1,3 +1,7 @@
+**8 pódcasts sobre bienestar que recomiendo**\
+`Enfermedades infecciosas, salud mental, duelo y cómo ayudar a los adultos mayores, son solo algunos de los temas que tratan algunas de estas recomendaciones.`\
+https://www.nytimes.com/es/2026/08/08/espanol/estilos-de-vida/podcasts-bienestar-salud.html
+
 **Democrats Vow to Unite Behind Abdul El-Sayed in Michigan, but Tensions Remain**\
 `The party is racing to get behind Dr. Abdul El-Sayed after a poisonous Senate primary in Michigan, but some Democrats still have reservations.`\
 https://www.nytimes.com/2026/08/08/us/politics/el-sayed-buttigieg-michigan-democrats.html
