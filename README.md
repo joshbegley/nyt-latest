@@ -1,3 +1,127 @@
+**New Amazon Data Center Is Set to Have the Most Polluting Power Plant in the U.S.**\
+`The tech giant is investing in the natural-gas-burning power plant as part of a huge data center in Texas, even as it pledges to honor climate commitments.`\
+https://www.nytimes.com/2026/08/08/climate/amazon-data-center-texas-pollution.html
+
+**Fact-Checking 3 Competitive Senate Races in Maine, Michigan and Ohio**\
+`Republican attacks have focused on terrorism and illegal immigration, while Democrats have sought to capitalize on the unpopularity of President Trump’s cuts to Medicaid.`\
+https://www.nytimes.com/2026/08/08/us/politics/fact-check-candidates-maine-michigan-ohio.html
+
+**Italy’s Heat Will Spread to Western Europe Ahead of Solar Eclipse**\
+`Red high-temperature warnings remained in effect for much of southern and western Italy through Saturday.`\
+https://www.nytimes.com/2026/08/08/weather/heat-in-italy-will-spread-to-western-europe.html
+
+**Trump Officials Under Pressure to Deport Haitians After Supreme Court Win on T.P.S. Program**\
+`The lack of visible raids aggressively targeting Haitians who lost temporary status has frustrated some of President Trump’s most fervent supporters.`\
+https://www.nytimes.com/2026/08/08/us/politics/tps-haitians-deport.html
+
+**Corrections: Aug. 8, 2026**\
+`Corrections that appeared in print on Saturday, Aug. 8, 2026.`\
+https://www.nytimes.com/2026/08/08/pageoneplus/corrections-aug-8-2026.html
+
+**El matrimonio que adoraba ya no existía**\
+`Mi esposo, a quien tanto quise, había fallecido. ¿Por qué me sentía tan tranquila?`\
+https://www.nytimes.com/es/2026/08/08/espanol/estilos-de-vida/modern-love-viudez-duelo.html
+
+**Karol G, Flo: Songs to Know This Week**\
+`Karol G returns, Steve Earle and Los Lobos link up and Temper City climbs the charts.`\
+https://www.nytimes.com/2026/08/08/arts/music/9-songs-were-talking-about-this-week.html
+
+**Lindsey Graham Loved to Gab With Reporters. His Sister Won’t.**\
+`Senator Darline Graham, who took her brother’s place after his death and is now seeking to succeed him, has mostly declined to answer questions from reporters at the Capitol.`\
+https://www.nytimes.com/2026/08/08/us/politics/darline-lindsey-graham-questions.html
+
+**Amid Abuse Claims Against Max Miller, This Democrat Thinks He Can Win His Seat**\
+`Brian Poindexter, an ironworker, is in the spotlight in Ohio’s 7th Congressional District, where Mr. Miller faces multiple calls to step aside.`\
+https://www.nytimes.com/2026/08/08/us/politics/brian-poindexter-max-miller-ohio-house.html
+
+**After a Poisonous Primary, Michigan Democrats Promise to Get Along**\
+`The party is racing to get behind Dr. Abdul El-Sayed after a Senate primary that was “spirited,” as Pete Buttigieg diplomatically put it at a unity rally on Friday night, but tensions remain.`\
+https://www.nytimes.com/2026/08/08/us/politics/el-sayed-buttigieg-michigan-democrats.html
+
+**Why Billy Strings, a Grammy-Winning Guitarist, Takes Guitar Lessons**\
+`At 33, the musician Billy Strings has won three Grammys. On “The Interview,” he explained why he continues to study different styles of music.`\
+https://www.nytimes.com/video/podcasts/100000011075682/why-billy-strings-a-grammy-winning-guitarist-takes-guitar-lessons.html
+
+**How Billy Strings Unlocked His Guitar Genius**\
+`On “The Interview,” the virtuoso guitarist Billy Strings talked about how he learned to play the song “Beaumont Rag” at a young age.`\
+https://www.nytimes.com/video/podcasts/100000011075667/how-billy-strings-unlocked-his-guitar-genius.html
+
+**La IA llega a la cuna: el auge de los bebés monitorizados**\
+`Nanit y otras empresas emergentes buscan seguir a los niños durante la noche y, en un futuro cercano, mucho más allá de esas horas.`\
+https://www.nytimes.com/es/2026/08/08/espanol/negocios/ia-bebes-monitorizados.html
+
+**How Billy Strings Started Playing Guitar**\
+`On “The Interview,” the guitar virtuoso Billy Strings demonstrated how he learned about the different sounds the instrument could make.`\
+https://www.nytimes.com/video/podcasts/100000011075654/how-billy-strings-started-playing-guitar.html
+
+**Billy Strings: ‘I’m Singing From a Place of Joy in My Belly Now’**\
+`The musician Billy Strings has won three Grammys, but he still gets nervous going onstage to perform. On “The Interview,” he talked about how becoming a father helped change his perspective.`\
+https://www.nytimes.com/video/podcasts/100000011075642/billy-strings-im-singing-from-a-place-of-joy-in-my-belly-now.html
+
+**Billy Strings on His Family’s Struggle With Addiction**\
+`On “The Interview,” the musician Billy Strings talked about his sobriety after growing up in a family that used hard drugs. Both his biological father and his mother died from drug overdoses.`\
+https://www.nytimes.com/video/podcasts/100000011075615/billy-strings-on-his-familys-struggle-with-addiction.html
+
+**Why Older Pedestrians Are More Likely to Die After Being Hit by a Car**\
+`They are more likely than other age groups to die after being hit by a vehicle.`\
+https://www.nytimes.com/2026/08/08/well/pedestrian-deaths-car-collision-older.html
+
+**The Sexy Magazine You Really Will Read for the Articles**\
+`Erotic Review is a refined publication for a different age.`\
+https://www.nytimes.com/2026/08/08/style/erotic-review-sex-magazine-phoebe-philo.html
+
+**Where a Ring of Steel Once Stood, Belfast Unites at the Fleadh Cheoil**\
+`A weeklong celebration of Irish music and culture is bringing an expected 800,000 people to Northern Ireland’s capital. It’s a sign of how far the city has come decades after a bloody sectarian conflict.`\
+https://www.nytimes.com/2026/08/08/arts/music/where-a-ring-of-steel-once-stood-belfast-unites-in-song.html
+
+**The Garbage Trucks Outside Are Too Loud! What Can I Do?**\
+`Trash collection vehicles could be louder than what the city code allows. To prove it, these are the options.`\
+https://www.nytimes.com/2026/08/08/realestate/garbage-collection-trucks-noise-church.html
+
+**The Best Wines for Summer**\
+`It’s not the color that’s important in hot weather, but the weight and texture of these wines.`\
+https://www.nytimes.com/2026/08/08/dining/drinks/wines-for-summer.html
+
+**Book Review: ‘A Guide to Open Water Lifesaving,’ by Virginia Eubanks**\
+`“A Guide to Open Water Lifesaving,” by Virginia Eubanks, is a memoir of what happened after her partner survived a brutal attack — and her own will to endure.`\
+https://www.nytimes.com/2026/08/08/books/review/a-guide-to-open-water-lifesaving-virginia-eubanks.html
+
+**Medicare Advantage’s Perks Are Getting Scrutiny**\
+`Officials said no to health plans that wanted to expand extra benefits to cover medical marijuana, streaming services and shopping clubs. More changes are coming in 2027.`\
+https://www.nytimes.com/2026/08/08/business/medicare-advantage-benefits.html
+
+**Kacey Musgraves Just Wants to Find the Perfect Dirty Martini**\
+`“I need an ice-cold, perfect balance of dirty, and I think people don’t go dirty enough,” the country singer said.`\
+https://www.nytimes.com/2026/08/08/arts/music/kacey-musgraves-middle-of-nowhere.html
+
+**A 25-Minute Workout to Improve Your Balance and Strength**\
+`These single-leg exercises can help you move more easily and avoid injury.`\
+https://www.nytimes.com/2026/08/08/well/move/single-leg-strength-exercises-balance.html
+
+**5 Experiential Wedding Food Ideas To Wow Your Guests**\
+`From caviar belts to edible balloons, wedding food is becoming part of the entertainment.`\
+https://www.nytimes.com/2026/08/08/style/experiential-wedding-food-trends.html
+
+**‘Teenage Sex and Death at Camp Miasma’ Makes a Case For Embracing Beloved Problematic Films**\
+`Our film critic Alissa Wilkinson reviews “Teenage Sex and Death at Camp Miasma,” dissecting its argument not to discard your favorite films that may not have aged well.`\
+https://www.nytimes.com/video/movies/100000011022361/teenage-sex-and-death-at-camp-miasma-makes-a-case-for-embracing-beloved-problematic-films.html
+
+**How an N.F.L.-Backed Plan to Revitalize Canton, Ohio, Faltered**\
+`The “Hall of Fame Village” was pitched in 2014 as a boon to the city. But hundreds of millions were spent, the N.F.L. backed out, and the project is unfinished.`\
+https://www.nytimes.com/2026/08/08/business/nfl-canton-hall-of-fame-village.html
+
+**Tacky, Rude and Beloved: Is an I-95 Landmark Worth Saving?**\
+`South of the Border harks back to a different time in the South, before the region diversified and exploded in growth.`\
+https://www.nytimes.com/2026/08/08/us/south-of-the-border-carolina.html
+
+**The Messy Dispute Over Fares That Could Cut Off Mackinac Island**\
+`Nearly everyone who arrives on Mackinac Island, a summer refuge in the Great Lakes, comes by ferry. A dispute has threatened that service.`\
+https://www.nytimes.com/2026/08/08/us/mackinac-island-michigan-ferry-dispute.html
+
+**How One of the Last Ventriloquists in the Country Brings Dummies to Life**\
+`From his studio in Maine, one of the last full-time ventriloquist puppet makers in the country combines mechanics, painting and performance to create one-of-a-kind characters.`\
+https://www.nytimes.com/2026/08/08/arts/ventriloquist-dummies-austin-phillips.html
+
 **Billy Strings Escaped the Darkness. He’s Playing to Not Go Back.**\
 `The singer and virtuoso guitar player shares how his mother’s death inspired his new album, “So Much for Goodbyes.”`\
 https://www.nytimes.com/video/podcasts/100000011080051/billy-strings-interview-guitar-music.html
@@ -73,128 +197,4 @@ https://www.nytimes.com/2026/08/08/world/europe/punjabi-soldiers-ww1-british-ind
 **Can Netflix Save a Summer Slump With a Stunt on Sunset Boulevard?**\
 `The streaming giant, still looking for this year’s blockbuster, paid an actor to spend three days inside a billboard in Los Angeles to promote an upcoming film.`\
 https://www.nytimes.com/2026/08/07/business/media/netflix-billboard-marketing-strategy.html
-
-****\
-`Netflix doesn’t traditionally market most of its movies and television shows, preferring instead to let its algorithm do most of the work.`\
-https://www.nytimes.com/video/embedded/business/100000011081024/07Biz-NetflixBillboard-drone_video.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/business/100000011081026/07Biz-NetflixBillboard-Video-opener.html
-
-**Summertime Top**\
-`Kameron Austin Collins presents a breezy themeless with bite.`\
-https://www.nytimes.com/2026/08/07/crosswords/daily-puzzle-2026-08-08.html
-
-**New York City Hall Dismisses Haitian Workers After Loss of Protected Status**\
-`Officials said that dozens of Haitian workers for the city would lose their jobs, but warned that the number could easily reach the hundreds.`\
-https://www.nytimes.com/2026/08/07/nyregion/haitian-nyc-workers-tps.html
-
-**Inside Ezra Klein’s Listening Habits**\
-`“Having spaces where I am an experiencer, not a creator, is important for me.” On a recent episode of “The Ezra Klein Show,” the Opinion columnist Ezra Klein discusses why he turns to complex, discordant music to hold the contradictory feelings required for the show.`\
-https://www.nytimes.com/video/opinion/100000011066322/inside-ezra-kleins-listening-habits.html
-
-**Ezra Klein’s Art of Interviewing**\
-`“It’s supposed to be a space for you to think in, not for me to tell you what to think,” the Opinion columnist Ezra Klein says of his interview philosophy on a special “ask me anything” episode of “The Ezra Klein Show.”`\
-https://www.nytimes.com/video/opinion/100000011066321/ezra-kleins-art-of-interviewing.html
-
-**Canada Offers U.S. Concessions in Trade Talks but Demands a Comprehensive Deal**\
-`Prime Minister Mark Carney is attempting to prevent 50 percent tariffs against many Canadian goods scheduled for this month.`\
-https://www.nytimes.com/2026/08/07/world/canada/us-trade-tariffs-carney-trump.html
-
-**Does the Fifth Amendment Protect Fauci?**\
-`Our chief legal affairs correspondent, Adam Liptak, discusses whether Anthony Fauci’s presidential pardon makes him ineligible to take advantage of Fifth Amendment protections.`\
-https://www.nytimes.com/video/us/politics/100000011077471/does-the-fifth-amendment-protect-fauci.html
-
-**How the U.S. Is Aiming for Regime Change in Cuba**\
-`Our reporter Julian E. Barnes, who covers U.S. intelligence agencies, describes how the Trump administration has been looking for a current or former Cuban official to take over the island’s government.`\
-https://www.nytimes.com/video/us/100000011077541/how-the-us-is-aiming-for-regime-change-in-cuba.html
-
-**Reading Scores Drop for N.Y.C. Students Amid Revamp of Literacy Program**\
-`The declines nearly wiped out gains made in the state exams last year. New York City school leaders promised a review of the results.`\
-https://www.nytimes.com/2026/08/07/nyregion/nyc-student-reading-scores-drop.html
-
-**Max Miller Continues to Resist Pressure to Drop Out as Deadline Looms**\
-`The Republican House member from Ohio was accused of holding a gun to his ex-wife’s head and fracturing the collarbone of their young daughter. He has denied the accusations.`\
-https://www.nytimes.com/2026/08/07/us/politics/max-miller-gop.html
-
-**More Than 50 Decomposing Bodies Are Found in a Chicago Funeral Home**\
-`The authorities said the bodies were found in various of stages of decomposition. It was not clear how long they had been there.`\
-https://www.nytimes.com/2026/08/07/us/decomposing-bodies-funeral-home-chicago.html
-
-**EE. UU. busca al próximo líder de Cuba**\
-`Algunos funcionarios estadounidenses advierten que podría surgir un líder de línea más dura en la isla si el gobierno de Trump continúa con sus planes.`\
-https://www.nytimes.com/es/2026/08/07/espanol/estados-unidos/trump-proximo-lider-cuba.html
-
-**Mamdani Faces Lawsuit Over Rollout of Second-Home Tax**\
-`Some New York City homeowners are arguing that they have been improperly targeted by the tax on high-end second homes, also known as pieds-à-terre.`\
-https://www.nytimes.com/2026/08/07/nyregion/mamdani-lawsuit-home-tax-pied-a-terre.html
-
-**Huyó a Estados Unidos a los 11 años. Robó a los 18. Fue deportada a Vietnam a los 44**\
-`El gobierno de Trump está enviando de regreso a cifras récord de vietnamitas, laosianos y hmong. Muchos llegaron a EE. UU. siendo jóvenes refugiados de guerra y posteriormente cometieron delitos.`\
-https://www.nytimes.com/es/2026/08/07/espanol/estados-unidos/deportaciones-vietnam-laos.html
-
-**They’re Battle-Tested Democrats. Do Voters Care?**\
-`Haley Stevens and Angie Craig were celebrated by Democrats in 2018. This year, they’ve faced tough primaries.`\
-https://www.nytimes.com/2026/08/07/us/politics/angie-craig-haley-stevens-democrats.html
-
-**New Jersey Opens Civil Rights Investigation Into Delaney Hall**\
-`The state attorney general said that her office had issued subpoenas and would investigate whether employees at the migrant detention center had violated civil rights.`\
-https://www.nytimes.com/2026/08/07/nyregion/delaney-hall-investigation-civil-rights.html
-
-**Mamdani Hosted a Town Hall About Buses. Why Was the D.S.A. There?**\
-`After Mayor Zohran Mamdani’s office invited the Democratic Socialists of America to a city-sponsored event, watchdog groups raised concerns about mixing politics with government work.`\
-https://www.nytimes.com/2026/08/07/nyregion/dsa-mamdani-buses.html
-
-**Labor Market Shifts Into Reverse**\
-`Also, Trump officials are searching for Cuba’s next leader. Here’s the latest at the end of Friday.`\
-https://www.nytimes.com/2026/08/07/briefing/labor-market-cuba-leader.html
-
-**Students Skinned a Bear in a Dorm. Cornell Realized It Should Ban That.**\
-`After two Cornell University students skinned a black bear in a communal kitchen last year to make a meal, the school changed the rules.`\
-https://www.nytimes.com/2026/08/07/nyregion/cornell-student-bear-meat.html
-
-**What Black Voters in Georgia Told Us About America**\
-`Georgia could help determine whether Democrats take control of the Senate — and much may depend on whether Black voters turn out. The Opinion writer Mara Gay traveled to the state to find out what voters want from America and from the Democratic Party.`\
-https://www.nytimes.com/video/opinion/100000011064771/what-black-voters-in-georgia-told-us-about-america.html
-
-**Madonna Goes Meta**\
-`Madonna’s “Danceteria,” from her new album “Confessions II,” is packed with self-referential nostalgia, in both the dance floor production and the name-drop lyricism. Our critic Jon Caramanica explores how Madonna uses her own history as a creative engine for hope.`\
-https://www.nytimes.com/video/podcasts/100000011078333/madonna-goes-meta.html
-
-**Houthis Claim Attack on Yemeni Military Camp**\
-`Recent escalating tensions between the Iran-backed group and the Yemeni government have prompted fears that a truce in place since 2022 is nearing collapse.`\
-https://www.nytimes.com/2026/08/07/world/middleeast/yemen-houthis-attack-military-camp.html
-
-**A Spurned Schumer Reaches Out to the Left**\
-`In a phone call this week, the Democratic leader told the new Michigan Senate nominee who had opposed him to just win, working to foster unity ahead of a difficult race.`\
-https://www.nytimes.com/2026/08/07/us/politics/schumer-senate-midterms.html
-
-**EE. UU. deporta a un grupo de mexicanos en riesgo de tortura**\
-`Las autoridades migratorias usaron una facultad inusual para deportarlos, aunque su expulsión estaba bloqueada por temores de que serían torturados si regresaban a México.`\
-https://www.nytimes.com/es/2026/08/07/espanol/estados-unidos/trump-mexico-deportaciones-tortura.html
-
-**Charles S. Faddis, Ex-C.I.A. Officer Who Pushed Conspiracy Theories, Dies at 68**\
-`After 20 years in the C.I.A., he emerged as an outspoken critic of the agency and as a leader of the election-denial movement in Pennsylvania.`\
-https://www.nytimes.com/2026/08/07/books/charles-sam-faddis-dead.html
-
-**Who Is Ahead in Florida's 9th Congressional District?**\
-`Track the latest polls in Florida's 9th Congressional District.`\
-https://www.nytimes.com/interactive/polls/florida-us-house-9-polls-2026.html
-
-**Receding Danube River Exposes Nazi-Era Vessels**\
-`Extreme heat in Europe has lowered water levels in the Danube River, revealing sunken Nazi-era ships. Serbia has begun pulling them out this week after captains struggled to navigate around them.`\
-https://www.nytimes.com/video/world/europe/100000011079863/danube-river-europe-nazi-era-ships.html
-
-**Three People Explain Their Decision to Undergo Facial Plastic Surgeries**\
-`Plastic surgeries like face-lifts and neck-lifts were once considered extreme. Now they’re just another tool in the cosmetic toolbox.`\
-https://www.nytimes.com/interactive/2026/08/07/magazine/face-lift-plastic-surgery-stories.html
-
-**Family of Former U.S. Marine Detained in Russia Says He Is in Serious Condition**\
-`Robert Gilman, 32, is in “dissociative stupor,” an advocacy group said, and his family members say they are afraid for his life. Mr. Gilman was arrested in Russia in 2022.`\
-https://www.nytimes.com/2026/08/07/us/robert-gilman-russia-torture.html
-
-**Callum Turner Reveals His Favorite Rom-Com**\
-`Who was Callum Turner’s first fictional crush? Which role does he still regret missing out on? The actor shares the pop culture moments that left a lasting impression and the one song guaranteed to get him on the dance floor.`\
-https://www.nytimes.com/video/arts/100000011036449/callum-turner-rom-coms-dance-songs.html
 
