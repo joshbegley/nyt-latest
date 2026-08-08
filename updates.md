@@ -1,3 +1,7 @@
+**Abbe Lane, Sultry Singer With a Latin Flair, Dies at 94**\
+`She was a Broadway dancer before becoming Xavier Cugat’s star vocalist and later building a solo career.`\
+https://www.nytimes.com/2026/08/08/arts/music/abbe-lane-dead.html
+
 **Max Miller, Republican Accused of Abuse, Won’t Drop Out, Spokeswoman Says**\
 `Mr. Miller, who has faced pressure from fellow Republicans to end his campaign and avoid endangering a solidly red seat in Ohio, will stay in the race, his spokeswoman said.`\
 https://www.nytimes.com/2026/08/08/us/politics/max-miller-ohio-republican.html
