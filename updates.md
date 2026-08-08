@@ -1,3 +1,7 @@
+**Senate Passes Stopgap Bill to Avert Shutdown, Avoiding Skirmish Before Midterms**\
+`The move came more than a month before the spending deadline, reflecting an eagerness in both parties to avoid a messy fight before the midterm elections.`\
+https://www.nytimes.com/2026/08/08/us/politics/senate-passes-stopgap-bill-shutdown.html
+
 **As Thailand Gets Known for Mass Shootings, Fresh Pledges to Fix Gun Laws**\
 `A rampage at a high school in Thailand on Friday was the latest episode of gun violence in a country that has grappled in recent years with several attacks.`\
 https://www.nytimes.com/2026/08/08/world/asia/thailand-mass-shootings-gun-laws.html

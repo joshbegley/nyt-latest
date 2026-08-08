@@ -40,7 +40,7 @@ https://www.nytimes.com/2026/08/08/us/politics/fact-check-candidates-maine-michi
 
 **Italy’s Heat Will Spread to Western Europe Ahead of Solar Eclipse**\
 `Red high-temperature warnings remained in effect for much of southern and western Italy through Saturday.`\
-https://www.nytimes.com/2026/08/08/weather/heat-in-italy-will-spread-to-western-europe.html
+https://www.nytimes.com/2026/08/08/weather/europe-heat-wave-italy-uk-france-spain.html
 
 **Trump Officials Under Pressure to Deport Haitians After Supreme Court Win on T.P.S. Program**\
 `The lack of visible raids aggressively targeting Haitians who lost temporary status has frustrated some of President Trump’s most fervent supporters.`\
