@@ -1,4 +1,8 @@
 **Does the Fifth Amendment Protect Fauci?**\
+`Our chief legal affairs correspondent, Adam Liptak, discusses whether Anthony Fauci’s presidential pardon makes him ineligible to take advantage of Fifth Amendment protections.`\
+https://www.nytimes.com/video/us/politics/100000011077471/does-the-fifth-amendment-protect-fauci.html
+
+**Does the Fifth Amendment Protect Fauci?**\
 `Our chief legal affairs correspondent, Adam Liptak, explains whether Anthony Fauci’s presidential pardon makes him ineligible to take advantage of Fifth Amendment protections.`\
 https://www.nytimes.com/video/us/politics/100000011077471/does-the-fifth-amendment-protect-fauci.html
 
