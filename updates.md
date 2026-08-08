@@ -1,3 +1,7 @@
+**Edge of Your Seat**\
+`A superfan of thrillers recommends some of her favorites.`\
+https://www.nytimes.com/2026/08/08/briefing/edge-of-your-seat.html
+
 **My Stepson’s Hateful Views Are Damaging My Business. What Should I Do?**\
 `I would love to bar this person from our home, but I cannot.`\
 https://www.nytimes.com/2026/08/08/magazine/stepson-social-media-ethics.html
