@@ -1,3 +1,7 @@
+**Our Most Popular Desserts This Summer**\
+`(No description)`\
+https://www.nytimes.com/2026/08/08/dining/our-most-popular-desserts-this-summer.html
+
 **8 pódcasts sobre bienestar que recomiendo**\
 `Enfermedades infecciosas, salud mental, duelo y cómo ayudar a los adultos mayores, son solo algunos de los temas que tratan algunas de estas recomendaciones.`\
 https://www.nytimes.com/es/2026/08/08/espanol/estilos-de-vida/podcasts-bienestar-salud.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/08/business/nfl-canton-hall-of-fame-village.html
 **Tacky, Rude and Beloved: Is an I-95 Landmark Worth Saving?**\
 `South of the Border harks back to a different time in the South, before the region diversified and exploded in growth.`\
 https://www.nytimes.com/2026/08/08/us/south-of-the-border-carolina.html
-
-**The Messy Dispute Over Fares That Could Cut Off Mackinac Island**\
-`Nearly everyone who arrives on Mackinac Island, a summer refuge in the Great Lakes, comes by ferry. A dispute has threatened that service.`\
-https://www.nytimes.com/2026/08/08/us/mackinac-island-michigan-ferry-dispute.html
 
