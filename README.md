@@ -1,3 +1,27 @@
+**Hawaii First Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Hawaii primary election.`\
+https://www.nytimes.com/interactive/2026/08/08/us/elections/results-hawaii-us-house-1-primary.html
+
+**Hawaii Governor Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Hawaii primary election.`\
+https://www.nytimes.com/interactive/2026/08/08/us/elections/results-hawaii-governor-primary.html
+
+**Iran Issues List of Demands, Dampening Hopes of Reopening Strait**\
+`The head of Iran’s Supreme National Security Council said that the Strait of Hormuz would not reopen unless the United States met certain conditions.`\
+https://www.nytimes.com/2026/08/08/world/middleeast/iran-us-oman-strait-of-hormuz.html
+
+**Hawaii Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Hawaii primary elections.`\
+https://www.nytimes.com/interactive/2026/08/08/us/elections/results-hawaii-primary.html
+
+**Hawaii Lieutenant Governor Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Hawaii primary election.`\
+https://www.nytimes.com/interactive/2026/08/08/us/elections/results-hawaii-lieutenant-governor-primary.html
+
+**Hawaii Second Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Hawaii primary election.`\
+https://www.nytimes.com/interactive/2026/08/08/us/elections/results-hawaii-us-house-2-primary.html
+
 **Our Most Popular Desserts This Summer**\
 `(No description)`\
 https://www.nytimes.com/2026/08/08/dining/our-most-popular-desserts-this-summer.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/08/08/books/review/a-guide-to-open-water-lifesaving
 **Medicare Advantage’s Perks Are Getting Scrutiny**\
 `Officials said no to health plans that wanted to expand extra benefits to cover medical marijuana, streaming services and shopping clubs. More changes are coming in 2027.`\
 https://www.nytimes.com/2026/08/08/business/medicare-advantage-benefits.html
-
-**Kacey Musgraves Just Wants to Find the Perfect Dirty Martini**\
-`“I need an ice-cold, perfect balance of dirty, and I think people don’t go dirty enough,” the country singer said.`\
-https://www.nytimes.com/2026/08/08/arts/music/kacey-musgraves-middle-of-nowhere.html
-
-**A 25-Minute Workout of Single-Leg Exercises to Improve Your Balance and Strength**\
-`These single-leg exercises can help you move more easily and avoid injury.`\
-https://www.nytimes.com/2026/08/08/well/move/single-leg-strength-exercises-balance.html
-
-**5 Experiential Wedding Food Ideas To Wow Your Guests**\
-`From caviar belts to edible balloons, wedding food is becoming part of the entertainment.`\
-https://www.nytimes.com/2026/08/08/style/experiential-wedding-food-trends.html
-
-**‘Teenage Sex and Death at Camp Miasma’ Makes a Case For Embracing Beloved Problematic Films**\
-`Our film critic Alissa Wilkinson reviews “Teenage Sex and Death at Camp Miasma,” dissecting its argument not to discard your favorite films that may not have aged well.`\
-https://www.nytimes.com/video/movies/100000011022361/teenage-sex-and-death-at-camp-miasma-makes-a-case-for-embracing-beloved-problematic-films.html
-
-**How an N.F.L.-Backed Plan to Revitalize Canton, Ohio, Faltered**\
-`The “Hall of Fame Village” was pitched in 2014 as a boon to the city. But hundreds of millions were spent, the N.F.L. backed out, and the project is unfinished.`\
-https://www.nytimes.com/2026/08/08/business/nfl-canton-hall-of-fame-village.html
-
-**Tacky, Rude and Beloved: Is an I-95 Landmark Worth Saving?**\
-`South of the Border harks back to a different time in the South, before the region diversified and exploded in growth.`\
-https://www.nytimes.com/2026/08/08/us/south-of-the-border-carolina.html
 
