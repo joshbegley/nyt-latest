@@ -1,3 +1,7 @@
+**Can Netflix Save a Summer Slump With a Stunt on Sunset Boulevard?**\
+`The streaming giant, still looking for this year’s blockbuster, paid an actor to spend three days inside a billboard in Los Angeles to promote an upcoming film.`\
+https://www.nytimes.com/2026/08/07/business/media/netflix-billboard-marketing-strategy.html
+
 ****\
 `Netflix doesn’t traditionally market most of its movies and television shows, preferring instead to let its algorithm do most of the work.`\
 https://www.nytimes.com/video/embedded/business/100000011081024/07Biz-NetflixBillboard-drone_video.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/08/07/upshot/flashback.html
 **Puerto Rico comenzará a racionar el agua en medio de una nueva crisis**\
 `A partir del viernes, está previsto que la autoridad de acueductos de la isla corte el agua en periodos rotativos de 48 horas en partes de San Juan y las áreas circundantes.`\
 https://www.nytimes.com/es/2026/08/07/espanol/estados-unidos/puerto-rico-agua.html
-
-**Iranians Say Trump’s Promises Have Fallen by the Wayside as Iran War Drags On**\
-`As President Trump struggles to extricate the United States from the war in Iran, his promises to protesters in the country have fallen by the wayside.`\
-https://www.nytimes.com/2026/08/07/us/politics/trump-iran-war-protesters.html
 

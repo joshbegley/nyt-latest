@@ -1,3 +1,7 @@
+**Can Netflix Save a Summer Slump With a Stunt on Sunset Boulevard?**\
+`The streaming giant, still looking for this year’s blockbuster, paid an actor to spend three days inside a billboard in Los Angeles to promote an upcoming film.`\
+https://www.nytimes.com/2026/08/07/business/media/netflix-billboard-marketing-strategy.html
+
 ****\
 `Netflix doesn’t traditionally market most of its movies and television shows, preferring instead to let its algorithm do most of the work.`\
 https://www.nytimes.com/video/embedded/business/100000011081024/07Biz-NetflixBillboard-drone_video.html
