@@ -1,3 +1,23 @@
+**Exdirectiva de Lululemon: la verdad sobre la IA en las empresas**\
+`La revolución de la IA se está estancando porque las empresas no quieren admitir que integrar la tecnología es costoso, lento y requiere esfuerzo humano.`\
+https://www.nytimes.com/es/2026/08/08/espanol/opinion/ia-como-se-usa-empresas-lululemon.html
+
+**Should N.Y. Bathhouses Be Allowed to Offer Space for Sex?**\
+`Two state lawmakers have proposed repealing a health code that prohibits establishments like bathhouses from allowing sexual activity.`\
+https://www.nytimes.com/2026/08/08/nyregion/gay-bathhouses-ny-law.html
+
+**She Cares for Holocaust Survivors. Her Job Will Soon End.**\
+`Since the ’90s, Rizy Horowitz has put on events and served food to survivors in Brooklyn. With fewer than 300 of them left at her nonprofit, she’s thinking about her next chapter.`\
+https://www.nytimes.com/2026/08/08/nyregion/holocaust-survivors-brooklyn.html
+
+**How Your ‘Sex and the City’ B.F.F. Spends a Day That Starts at Noon**\
+`Mario Cantone, who played Charlotte York’s bestie on the show, has a late breakfast of eggs and caviar with his husband at their apartment in Chelsea.`\
+https://www.nytimes.com/interactive/2026/08/08/nyregion/08routine-mario-cantone.html
+
+**NYT Spelling Bee Answers than August 8, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/08/08/crosswords/spelling-bee-forum.html
+
 **El estanque reflectante es el reflejo del Washington de Trump**\
 `Un gerente hotelero de la Organización Trump viajó a Las Vegas para encontrar una solución a los problemas de un monumento nacional. Esta es la historia sobre las consecuencias nunca antes contada.`\
 https://www.nytimes.com/es/2026/08/08/espanol/estados-unidos/trump-estanque-reflectante.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/08/07/style/justin-trudeau-katy-perry-style.html
 **Trump Restarts Battle to Fire Sitting Fed Governor Lisa Cook**\
 `The Trump administration, rebuffed by the Supreme Court in its first attempt to fire Lisa D. Cook, sent the Federal Reserve governor a letter saying it was “considering” removing her from the job.`\
 https://www.nytimes.com/2026/08/07/business/trump-lisa-cook-fed.html
-
-**Elizabeth Smith, Voice Coach and Juilliard Professor, Dies at 91**\
-`A founding faculty member of Juilliard Drama, she helped the actors Kevin Kline, Patti LuPone, Wendell Pierce and many other mentees find their voice, quite literally.`\
-https://www.nytimes.com/2026/08/07/theater/elizabeth-smith-dead-juilliard-broadway.html
-
-**Why Cyclospora Symptoms May Come and Go**\
-`Health experts are trying to understand how the food-borne parasite can cause symptoms that come and go, sometimes for weeks.`\
-https://www.nytimes.com/2026/08/07/well/eat/cyclospora-symptoms-relapse.html
-
-**Senate Passes Sanctions Bill Targeting Russia and Iran**\
-`The legislation was championed by Senator Lindsey Graham, the South Carolina Republican whose sudden death last month helped spur quick action on it.`\
-https://www.nytimes.com/2026/08/07/us/politics/senate-russia-sanctions.html
-
-**U.S. Squeezes Cuba Even as It Searches for a New Regime Leader**\
-`Some officials warn that a more hard-line leader could emerge if the Trump administration moves forward with its plans.`\
-https://www.nytimes.com/2026/08/07/us/politics/us-search-cuba-leader.html
-
-**‘Please Drop the Circular Firing Squad, Democrats’**\
-`Readers assess the Democrats’ prospects after the recent primary victories by progressives. Also: President Trump’s “end run” around the birthright ruling.`\
-https://www.nytimes.com/2026/08/07/opinion/democrats-progressives-moderates.html
 
