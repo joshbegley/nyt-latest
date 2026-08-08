@@ -1,3 +1,7 @@
+**MacKenzie Scott Steps Back Into Spotlight With New Book**\
+`She posted four pages of a manuscript on a newly started Substack newsletter on Saturday and said that the novel would be released serially throughout August.`\
+https://www.nytimes.com/2026/08/08/business/mackenzie-scott-new-book.html
+
 **Wildfire Forces Evacuation of 18,000 From Summerland, British Columbia**\
 `The Bald Range fire, which started on Friday, has burned more than 23,000 acres near the Districts of Summerland and Peachland in British Columbia, officials said.`\
 https://www.nytimes.com/2026/08/08/world/canada/canada-summerland-bc-wildfire-bald-range-evacuation.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/podcasts/100000011075642/billy-strings-im-singing-
 **Billy Strings on His Family’s Struggle With Addiction**\
 `On “The Interview,” the musician Billy Strings talked about his sobriety after growing up in a family that used hard drugs. Both his biological father and his mother died from drug overdoses.`\
 https://www.nytimes.com/video/podcasts/100000011075615/billy-strings-on-his-familys-struggle-with-addiction.html
-
-**Why Older Pedestrians Are More Likely to Die After Being Hit by a Car**\
-`They are more likely than other age groups to die after being hit by a vehicle.`\
-https://www.nytimes.com/2026/08/08/well/pedestrian-deaths-car-collision-older.html
 
