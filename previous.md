@@ -1,3 +1,7 @@
+**Max Miller, Republican Accused of Abuse, Won’t Drop Out, Spokeswoman Says**\
+`Mr. Miller, who has faced pressure from fellow Republicans to end his campaign and avoid endangering a solidly red seat in Ohio, will stay in the race, his spokeswoman said.`\
+https://www.nytimes.com/2026/08/08/us/politics/max-miller-ohio-republican.html
+
 **Hunter Biden Says His Father’s Cancer Is Worsening**\
 `In an interview with the BBC, Mr. Biden said that former President Joseph R. ⁠Biden Jr.’s prostate cancer had spread into his bones and was causing pain.`\
 https://www.nytimes.com/2026/08/08/us/politics/hunter-biden-says-his-fathers-cancer-is-worsening.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/08/pageoneplus/corrections-aug-8-2026.html
 **El matrimonio que adoraba ya no existía**\
 `Mi esposo, a quien tanto quise, había fallecido. ¿Por qué me sentía tan tranquila?`\
 https://www.nytimes.com/es/2026/08/08/espanol/estilos-de-vida/modern-love-viudez-duelo.html
-
-**Karol G, Flo: Songs to Know This Week**\
-`Karol G returns, Steve Earle and Los Lobos link up and Temper City climbs the charts.`\
-https://www.nytimes.com/2026/08/08/arts/music/9-songs-were-talking-about-this-week.html
 
