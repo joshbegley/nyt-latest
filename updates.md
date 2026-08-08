@@ -1,3 +1,15 @@
+**I Wore Shorts to Work. Maybe You Should Too.**\
+`Plus: A “The Devil Wears Prada 2” auction and a collection inspired by André Leon Talley.`\
+https://www.nytimes.com/2026/08/07/style/shorts-office-business-casual.html
+
+**Parts of Eastern and Central Europe Broke Heat Records This Week**\
+`The hot weather has exacerbated dry conditions, creating conditions for wildfires and receding rivers.`\
+https://www.nytimes.com/2026/08/07/world/europe/europe-heat-records.html
+
+**Trump firma órdenes contra la ciudadanía por derecho de nacimiento**\
+`Las órdenes se dan luego de que la Corte Suprema de EE. UU. dictaminara el 30 de junio que los esfuerzos previos del mandatario para poner fin a la ciudadanía por derecho de nacimiento eran inconstitucionales.`\
+https://www.nytimes.com/es/2026/08/07/espanol/estados-unidos/ciudadania-nacimiento-trump.html
+
 ****\
 `Netflix doesn’t traditionally market most of its movies and television shows, preferring instead to let its algorithm do most of the work. But this is not its first marketing stunt.`\
 https://www.nytimes.com/video/embedded/business/100000011081024/07Biz-NetflixBillboard-drone_video.html
