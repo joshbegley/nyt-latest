@@ -1,3 +1,27 @@
+**Hawaii First Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Hawaii primary election.`\
+https://www.nytimes.com/interactive/2026/08/08/us/elections/results-hawaii-us-house-1-primary.html
+
+**Hawaii Governor Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Hawaii primary election.`\
+https://www.nytimes.com/interactive/2026/08/08/us/elections/results-hawaii-governor-primary.html
+
+**Iran Issues List of Demands, Dampening Hopes of Reopening Strait**\
+`The head of Iran’s Supreme National Security Council said that the Strait of Hormuz would not reopen unless the United States met certain conditions.`\
+https://www.nytimes.com/2026/08/08/world/middleeast/iran-us-oman-strait-of-hormuz.html
+
+**Hawaii Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Hawaii primary elections.`\
+https://www.nytimes.com/interactive/2026/08/08/us/elections/results-hawaii-primary.html
+
+**Hawaii Lieutenant Governor Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Hawaii primary election.`\
+https://www.nytimes.com/interactive/2026/08/08/us/elections/results-hawaii-lieutenant-governor-primary.html
+
+**Hawaii Second Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Hawaii primary election.`\
+https://www.nytimes.com/interactive/2026/08/08/us/elections/results-hawaii-us-house-2-primary.html
+
 **Our Most Popular Desserts This Summer**\
 `(No description)`\
 https://www.nytimes.com/2026/08/08/dining/our-most-popular-desserts-this-summer.html
