@@ -1,3 +1,7 @@
+**El estanque reflectante es el reflejo del Washington de Trump**\
+`Un gerente hotelero de la Organización Trump viajó a Las Vegas para encontrar una solución a los problemas de un monumento nacional. Esta es la historia sobre las consecuencias nunca antes contada.`\
+https://www.nytimes.com/es/2026/08/08/espanol/estados-unidos/trump-estanque-reflectante.html
+
 **Activistas capturados de camino a Gaza denuncian abusos bajo custodia israelí**\
 `En entrevistas, más de 20 personas que intentaron romper un bloqueo israelí en mayo describieron golpizas, descargas eléctricas y otros abusos tras ser capturadas. Israel negó las acusaciones.`\
 https://www.nytimes.com/es/2026/08/08/espanol/mundo/activistas-flotilla-gaza-tortura-israel.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/07/us/politics/us-search-cuba-leader.html
 **‘Please Drop the Circular Firing Squad, Democrats’**\
 `Readers assess the Democrats’ prospects after the recent primary victories by progressives. Also: President Trump’s “end run” around the birthright ruling.`\
 https://www.nytimes.com/2026/08/07/opinion/democrats-progressives-moderates.html
-
-**Judge Rules Two Virginia Schools Must Change Confederate Names**\
-`The school board’s decision to rename the schools after Stonewall Jackson, Robert E. Lee and Turner Ashby “cannot be divorced from racial discrimination,” the judge wrote in his ruling.`\
-https://www.nytimes.com/2026/08/07/us/virginia-schools-confederate-names-ruling.html
 

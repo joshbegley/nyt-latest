@@ -1,3 +1,7 @@
+**El estanque reflectante es el reflejo del Washington de Trump**\
+`Un gerente hotelero de la Organización Trump viajó a Las Vegas para encontrar una solución a los problemas de un monumento nacional. Esta es la historia sobre las consecuencias nunca antes contada.`\
+https://www.nytimes.com/es/2026/08/08/espanol/estados-unidos/trump-estanque-reflectante.html
+
 **Activistas capturados de camino a Gaza denuncian abusos bajo custodia israelí**\
 `En entrevistas, más de 20 personas que intentaron romper un bloqueo israelí en mayo describieron golpizas, descargas eléctricas y otros abusos tras ser capturadas. Israel negó las acusaciones.`\
 https://www.nytimes.com/es/2026/08/08/espanol/mundo/activistas-flotilla-gaza-tortura-israel.html
