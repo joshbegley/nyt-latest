@@ -1,3 +1,7 @@
+**¡Querida, llama al doctor de abejas!**\
+`Las abejas productoras de miel enfrentan amenazas que pueden destruir colmenas enteras. Una nueva generación de veterinarios trabaja para impedirlo.`\
+https://www.nytimes.com/es/2026/08/08/espanol/ciencia-y-tecnologia/abejas-proteccion-veterinarios.html
+
 **Exdirectiva de Lululemon: la verdad sobre la IA en las empresas**\
 `La revolución de la IA se está estancando porque las empresas no quieren admitir que integrar la tecnología es costoso, lento y requiere esfuerzo humano.`\
 https://www.nytimes.com/es/2026/08/08/espanol/opinion/ia-como-se-usa-empresas-lululemon.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/07/us/trump-mexico-deportations-torture.html
 **Justin Trudeau, Katy Perry and the Look of the Celebrity Statesman**\
 `What the former prime minister’s boyfriend rebrand says about the intersection of politics and entertainment.`\
 https://www.nytimes.com/2026/08/07/style/justin-trudeau-katy-perry-style.html
-
-**Trump Restarts Battle to Fire Sitting Fed Governor Lisa Cook**\
-`The Trump administration, rebuffed by the Supreme Court in its first attempt to fire Lisa D. Cook, sent the Federal Reserve governor a letter saying it was “considering” removing her from the job.`\
-https://www.nytimes.com/2026/08/07/business/trump-lisa-cook-fed.html
 

@@ -1,3 +1,7 @@
+**¡Querida, llama al doctor de abejas!**\
+`Las abejas productoras de miel enfrentan amenazas que pueden destruir colmenas enteras. Una nueva generación de veterinarios trabaja para impedirlo.`\
+https://www.nytimes.com/es/2026/08/08/espanol/ciencia-y-tecnologia/abejas-proteccion-veterinarios.html
+
 **Exdirectiva de Lululemon: la verdad sobre la IA en las empresas**\
 `La revolución de la IA se está estancando porque las empresas no quieren admitir que integrar la tecnología es costoso, lento y requiere esfuerzo humano.`\
 https://www.nytimes.com/es/2026/08/08/espanol/opinion/ia-como-se-usa-empresas-lululemon.html
