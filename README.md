@@ -1,3 +1,7 @@
+**8 pódcasts sobre bienestar que recomiendo**\
+`Enfermedades infecciosas, salud mental, duelo y cómo ayudar a los adultos mayores, son solo algunos de los temas que tratan algunas de estas recomendaciones.`\
+https://www.nytimes.com/es/2026/08/08/espanol/estilos-de-vida/podcasts-bienestar-salud.html
+
 **Think It’s Cool to Wear Fancy Sneakers to Work? You Might Be Old.**\
 `After years of office casual, young people are embracing loafers, derbies and oxfords.`\
 https://www.nytimes.com/2026/08/08/business/dealbook/loafers-sneakers-work.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/08/us/south-of-the-border-carolina.html
 **The Messy Dispute Over Fares That Could Cut Off Mackinac Island**\
 `Nearly everyone who arrives on Mackinac Island, a summer refuge in the Great Lakes, comes by ferry. A dispute has threatened that service.`\
 https://www.nytimes.com/2026/08/08/us/mackinac-island-michigan-ferry-dispute.html
-
-**How One of the Last Ventriloquists in the Country Brings Dummies to Life**\
-`From his studio in Maine, one of the last full-time ventriloquist puppet makers in the country combines mechanics, painting and performance to create one-of-a-kind characters.`\
-https://www.nytimes.com/2026/08/08/arts/ventriloquist-dummies-austin-phillips.html
 
