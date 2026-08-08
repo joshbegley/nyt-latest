@@ -1,3 +1,15 @@
+**Two Killed in Firefighting Helicopter Crash Near Utah Wildfire**\
+`The aircraft was responding to the Widemouth 2 fire, which has burned more than 100,000 acres since starting last month.`\
+https://www.nytimes.com/2026/08/08/us/two-killed-wildfire-helicopter-crash.html
+
+**Bill Goichberg, Who Reshaped Competitive Chess in the U.S., Dies at 83**\
+`Over a six-decade career, he drastically expanded chess through the tournaments he started, especially the competitions for young players.`\
+https://www.nytimes.com/2026/08/08/us/bill-goichberg-dead.html
+
+**Senate Bows to Reality, Leaving Trump’s Voting Bill Undone**\
+`The summer exit confirmed what had been apparent for weeks: that Republicans lacked the votes to pass the voting restrictions the president has made a top priority.`\
+https://www.nytimes.com/2026/08/08/us/politics/senate-bows-to-reality-leaving-trumps-voting-bill-undone.html
+
 **Blackbird Mountain Guides Report on Lake Tahoe Avalanche That Killed 9 Skiers Assigns No Blame.**\
 `The report was commissioned by Blackbird Mountain Guides, which was in charge of the trip near Lake Tahoe in February.`\
 https://www.nytimes.com/2026/08/08/us/tahoe-avalanche-blackbird-report.html

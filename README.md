@@ -1,3 +1,7 @@
+**This Spiritual Retreat Helps People Find Ecstasy Through Whirling**\
+`A retreat in Turkey is guiding visitors to seek transcendence through sema, the spiritual practice of whirling.`\
+https://www.nytimes.com/video/world/europe/100000011081356/turkey-sema-whirling-dervish-islam.html
+
 **Two Killed in Firefighting Helicopter Crash Near Utah Wildfire**\
 `The aircraft was responding to the Widemouth 2 fire, which has burned more than 100,000 acres since starting last month.`\
 https://www.nytimes.com/2026/08/08/us/two-killed-wildfire-helicopter-crash.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/08/us/politics/el-sayed-buttigieg-michigan-democ
 **Why Billy Strings, a Grammy-Winning Guitarist, Takes Guitar Lessons**\
 `At 33, the musician Billy Strings has won three Grammys. On “The Interview,” he explained why he continues to study different styles of music.`\
 https://www.nytimes.com/video/podcasts/100000011075682/why-billy-strings-a-grammy-winning-guitarist-takes-guitar-lessons.html
-
-**How Billy Strings Unlocked His Guitar Genius**\
-`On “The Interview,” the virtuoso guitarist Billy Strings talked about how he learned to play the song “Beaumont Rag” at a young age.`\
-https://www.nytimes.com/video/podcasts/100000011075667/how-billy-strings-unlocked-his-guitar-genius.html
 
