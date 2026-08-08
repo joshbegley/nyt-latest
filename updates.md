@@ -1,3 +1,7 @@
+**This Spiritual Retreat Helps People Find Ecstasy Through Whirling**\
+`A retreat in Turkey is guiding visitors to seek transcendence through sema, the spiritual practice of whirling.`\
+https://www.nytimes.com/video/world/europe/100000011081356/turkey-sema-whirling-dervish-islam.html
+
 **Two Killed in Firefighting Helicopter Crash Near Utah Wildfire**\
 `The aircraft was responding to the Widemouth 2 fire, which has burned more than 100,000 acres since starting last month.`\
 https://www.nytimes.com/2026/08/08/us/two-killed-wildfire-helicopter-crash.html
