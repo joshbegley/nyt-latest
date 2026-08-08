@@ -1,3 +1,7 @@
+**Blackbird Mountain Guides Report on Lake Tahoe Avalanche That Killed 9 Skiers Assigns No Blame.**\
+`The report was commissioned by Blackbird Mountain Guides, which was in charge of the trip near Lake Tahoe in February.`\
+https://www.nytimes.com/2026/08/08/us/tahoe-avalanche-blackbird-report.html
+
 **MacKenzie Scott Steps Back Into Spotlight With New Book**\
 `She posted four pages of a manuscript on a newly started Substack newsletter on Saturday and said that the novel would be released serially throughout August.`\
 https://www.nytimes.com/2026/08/08/business/mackenzie-scott-new-book.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/podcasts/100000011075654/how-billy-strings-started
 **Billy Strings: ‘I’m Singing From a Place of Joy in My Belly Now’**\
 `The musician Billy Strings has won three Grammys, but he still gets nervous going onstage to perform. On “The Interview,” he talked about how becoming a father helped change his perspective.`\
 https://www.nytimes.com/video/podcasts/100000011075642/billy-strings-im-singing-from-a-place-of-joy-in-my-belly-now.html
-
-**Billy Strings on His Family’s Struggle With Addiction**\
-`On “The Interview,” the musician Billy Strings talked about his sobriety after growing up in a family that used hard drugs. Both his biological father and his mother died from drug overdoses.`\
-https://www.nytimes.com/video/podcasts/100000011075615/billy-strings-on-his-familys-struggle-with-addiction.html
 

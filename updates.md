@@ -1,3 +1,7 @@
+**Blackbird Mountain Guides Report on Lake Tahoe Avalanche That Killed 9 Skiers Assigns No Blame.**\
+`The report was commissioned by Blackbird Mountain Guides, which was in charge of the trip near Lake Tahoe in February.`\
+https://www.nytimes.com/2026/08/08/us/tahoe-avalanche-blackbird-report.html
+
 **MacKenzie Scott Steps Back Into Spotlight With New Book**\
 `She posted four pages of a manuscript on a newly started Substack newsletter on Saturday and said that the novel would be released serially throughout August.`\
 https://www.nytimes.com/2026/08/08/business/mackenzie-scott-new-book.html

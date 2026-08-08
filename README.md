@@ -1,3 +1,15 @@
+**Two Killed in Firefighting Helicopter Crash Near Utah Wildfire**\
+`The aircraft was responding to the Widemouth 2 fire, which has burned more than 100,000 acres since starting last month.`\
+https://www.nytimes.com/2026/08/08/us/two-killed-wildfire-helicopter-crash.html
+
+**Bill Goichberg, Who Reshaped Competitive Chess in the U.S., Dies at 83**\
+`Over a six-decade career, he drastically expanded chess through the tournaments he started, especially the competitions for young players.`\
+https://www.nytimes.com/2026/08/08/us/bill-goichberg-dead.html
+
+**Senate Bows to Reality, Leaving Trump’s Voting Bill Undone**\
+`The summer exit confirmed what had been apparent for weeks: that Republicans lacked the votes to pass the voting restrictions the president has made a top priority.`\
+https://www.nytimes.com/2026/08/08/us/politics/senate-bows-to-reality-leaving-trumps-voting-bill-undone.html
+
 **Blackbird Mountain Guides Report on Lake Tahoe Avalanche That Killed 9 Skiers Assigns No Blame.**\
 `The report was commissioned by Blackbird Mountain Guides, which was in charge of the trip near Lake Tahoe in February.`\
 https://www.nytimes.com/2026/08/08/us/tahoe-avalanche-blackbird-report.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/video/podcasts/100000011075682/why-billy-strings-a-gramm
 **How Billy Strings Unlocked His Guitar Genius**\
 `On “The Interview,” the virtuoso guitarist Billy Strings talked about how he learned to play the song “Beaumont Rag” at a young age.`\
 https://www.nytimes.com/video/podcasts/100000011075667/how-billy-strings-unlocked-his-guitar-genius.html
-
-**La IA llega a la cuna: el auge de los bebés monitorizados**\
-`Nanit y otras empresas emergentes buscan seguir a los niños durante la noche y, en un futuro cercano, mucho más allá de esas horas.`\
-https://www.nytimes.com/es/2026/08/08/espanol/negocios/ia-bebes-monitorizados.html
-
-**How Billy Strings Started Playing Guitar**\
-`On “The Interview,” the guitar virtuoso Billy Strings demonstrated how he learned about the different sounds the instrument could make.`\
-https://www.nytimes.com/video/podcasts/100000011075654/how-billy-strings-started-playing-guitar.html
-
-**Billy Strings: ‘I’m Singing From a Place of Joy in My Belly Now’**\
-`The musician Billy Strings has won three Grammys, but he still gets nervous going onstage to perform. On “The Interview,” he talked about how becoming a father helped change his perspective.`\
-https://www.nytimes.com/video/podcasts/100000011075642/billy-strings-im-singing-from-a-place-of-joy-in-my-belly-now.html
 
