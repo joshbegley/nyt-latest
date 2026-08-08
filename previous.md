@@ -1,3 +1,7 @@
+**Senate Confirms Blanche as Attorney General**\
+`The Senate confirmed Todd Blanche as attorney general on Saturday, pushing past criticism over whether he would compromise the Justice Department’s independence.`\
+https://www.nytimes.com/video/us/politics/100000011081301/senate-blanche-attorney-general.html
+
 **Outbreak of Vibrio Vulnificus, a Flesh-Eating Bacteria, Kills 5 in Louisiana**\
 `Vibrio vulnificus, which thrives in warm, brackish water, has also killed two people in Florida this year.`\
 https://www.nytimes.com/2026/08/08/us/louisiana-vibrio-vulnificus-outbreak-flesh-eating-bacteria.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/08/well/pedestrian-deaths-car-collision-older.ht
 **The Sexy Magazine You Really Will Read for the Articles**\
 `Erotic Review is a refined publication for a different age.`\
 https://www.nytimes.com/2026/08/08/style/erotic-review-sex-magazine-phoebe-philo.html
-
-**Where a Ring of Steel Once Stood, Belfast Unites at the Fleadh Cheoil**\
-`A weeklong celebration of Irish music and culture is bringing an expected 800,000 people to Northern Ireland’s capital. It’s a sign of how far the city has come decades after a bloody sectarian conflict.`\
-https://www.nytimes.com/2026/08/08/arts/music/irish-festival-belfast-fleadh-cheoil.html
 

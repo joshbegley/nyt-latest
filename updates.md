@@ -1,3 +1,7 @@
+**Senate Confirms Blanche as Attorney General**\
+`The Senate confirmed Todd Blanche as attorney general on Saturday, pushing past criticism over whether he would compromise the Justice Department’s independence.`\
+https://www.nytimes.com/video/us/politics/100000011081301/senate-blanche-attorney-general.html
+
 **Outbreak of Vibrio Vulnificus, a Flesh-Eating Bacteria, Kills 5 in Louisiana**\
 `Vibrio vulnificus, which thrives in warm, brackish water, has also killed two people in Florida this year.`\
 https://www.nytimes.com/2026/08/08/us/louisiana-vibrio-vulnificus-outbreak-flesh-eating-bacteria.html
