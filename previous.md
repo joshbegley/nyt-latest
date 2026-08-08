@@ -1,3 +1,7 @@
+**How the U.S. Is Aiming for Regime Change in Cuba**\
+`Our reporter Julian E. Barnes, who covers U.S. intelligence agencies, describes how the Trump administration has been looking for a current or former Cuban official to take over the island’s government.`\
+https://www.nytimes.com/video/us/100000011077541/how-the-us-is-aiming-for-regime-change-in-cuba.html
+
 **Reading Scores Drop for N.Y.C. Students Amid Revamp of Literacy Program**\
 `The declines nearly wiped out gains made in the state exams last year. New York City school leaders promised a review of the results.`\
 https://www.nytimes.com/2026/08/07/nyregion/nyc-student-reading-scores-drop.html
@@ -54,7 +58,7 @@ https://www.nytimes.com/video/podcasts/100000011078333/madonna-goes-meta.html
 `Recent escalating tensions between the Iran-backed group and the Yemeni government have prompted fears that a truce in place since 2022 is nearing collapse.`\
 https://www.nytimes.com/2026/08/07/world/middleeast/yemen-houthis-attack-military-camp.html
 
-**An Unloved Schumer Tries to Win Over Party’s Insurgents**\
+**A Spurned Schumer Reaches Out to the Left**\
 `In a phone call this week, the Democratic leader told the new Michigan Senate nominee who had opposed him to just win, working to foster unity ahead of a difficult race.`\
 https://www.nytimes.com/2026/08/07/us/politics/schumer-senate-midterms.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/07/us/politics/trump-ballroom-appeals-court.html
 **A Hidden Space-Age Garden in Lower Manhattan**\
 `The artist Arlene Shechet visits two of Isamu Noguchi’s outdoor sculptures in Lower Manhattan, “Sunken Garden for Chase Manhattan Bank Plaza” (1961-64) and “Red Cube” (1968).`\
 https://www.nytimes.com/video/t-magazine/100000011077787/a-hidden-space-age-garden-in-lower-manhattan.html
-
-**Prosecutor Sues Justice Dept. Over Dismissal After Right-Wing Influencer’s Claim**\
-`Will Rosenzweig joins a growing list of former prosecutors and federal agents who have gone to court to contest the purge of law enforcement deemed disloyal.`\
-https://www.nytimes.com/2026/08/07/us/politics/prosecutor-fired-lawsuit-justice-department.html
 

@@ -1,3 +1,11 @@
+**How the U.S. Is Aiming for Regime Change in Cuba**\
+`Our reporter Julian E. Barnes, who covers U.S. intelligence agencies, describes how the Trump administration has been looking for a current or former Cuban official to take over the island’s government.`\
+https://www.nytimes.com/video/us/100000011077541/how-the-us-is-aiming-for-regime-change-in-cuba.html
+
+**A Spurned Schumer Reaches Out to the Left**\
+`In a phone call this week, the Democratic leader told the new Michigan Senate nominee who had opposed him to just win, working to foster unity ahead of a difficult race.`\
+https://www.nytimes.com/2026/08/07/us/politics/schumer-senate-midterms.html
+
 **Reading Scores Drop for N.Y.C. Students Amid Revamp of Literacy Program**\
 `The declines nearly wiped out gains made in the state exams last year. New York City school leaders promised a review of the results.`\
 https://www.nytimes.com/2026/08/07/nyregion/nyc-student-reading-scores-drop.html
