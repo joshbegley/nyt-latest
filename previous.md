@@ -14,8 +14,8 @@ https://www.nytimes.com/interactive/2026/08/08/us/elections/results-hawaii-us-ho
 `Get live results and maps from the 2026 Hawaii primary election.`\
 https://www.nytimes.com/interactive/2026/08/08/us/elections/results-hawaii-governor-primary.html
 
-**Iran Issues List of Demands, Dampening Hopes of Reopening Strait**\
-`The head of Iran’s Supreme National Security Council said that the Strait of Hormuz would not reopen unless the United States met certain conditions.`\
+**Iran Issues List of Demands, Dampening Hopes of Reopening Strait of Hormuz**\
+`The head of Iran’s Supreme National Security Council said that the waterway will remain closed until the United States meets certain conditions.`\
 https://www.nytimes.com/2026/08/08/world/middleeast/iran-us-oman-strait-of-hormuz.html
 
 **Hawaii Second Congressional District Primary 2026: Live Election Results**\

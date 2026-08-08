@@ -1,3 +1,7 @@
+**Iran Issues List of Demands, Dampening Hopes of Reopening Strait of Hormuz**\
+`The head of Iran’s Supreme National Security Council said that the waterway will remain closed until the United States meets certain conditions.`\
+https://www.nytimes.com/2026/08/08/world/middleeast/iran-us-oman-strait-of-hormuz.html
+
 **California Knows How to Salad**\
 `Pluot-tomato salad with suya pistachio crunch; charred corn and Cheddar salad; summer melon spoon salad; heirloom tomatoes with fish sauce vinaigrette.`\
 https://www.nytimes.com/2026/08/08/dining/california-knows-how-to-salad.html
