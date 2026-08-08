@@ -110,8 +110,8 @@ https://www.nytimes.com/2026/08/08/us/politics/darline-lindsey-graham-questions.
 `Brian Poindexter, an ironworker, is in the spotlight in Ohio’s 7th Congressional District, where Mr. Miller faces multiple calls to step aside.`\
 https://www.nytimes.com/2026/08/08/us/politics/brian-poindexter-max-miller-ohio-house.html
 
-**After a Poisonous Primary, Michigan Democrats Promise to Get Along**\
-`The party is racing to get behind Dr. Abdul El-Sayed after a Senate primary that was “spirited,” as Pete Buttigieg diplomatically put it at a unity rally on Friday night, but tensions remain.`\
+**Democrats Vow to Unite Behind Abdul El-Sayed in Michigan, but Tensions Remain**\
+`The party is racing to get behind Dr. Abdul El-Sayed after a poisonous Senate primary in Michigan, but some Democrats still have reservations.`\
 https://www.nytimes.com/2026/08/08/us/politics/el-sayed-buttigieg-michigan-democrats.html
 
 **Why Billy Strings, a Grammy-Winning Guitarist, Takes Guitar Lessons**\
