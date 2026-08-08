@@ -1,3 +1,7 @@
+**Reading Scores Drop for N.Y.C. Students Amid Revamp of Literacy Program**\
+`The declines nearly wiped out gains made in the state exams last year. New York City school leaders promised a review of the results.`\
+https://www.nytimes.com/2026/08/07/nyregion/nyc-student-reading-scores-drop.html
+
 **Max Miller Continues to Resist Pressure to Drop Out as Deadline Looms**\
 `The Republican House member from Ohio was accused of holding a gun to his ex-wife’s head and fracturing the collarbone of their young daughter. He has denied the accusations.`\
 https://www.nytimes.com/2026/08/07/us/politics/max-miller-gop.html
