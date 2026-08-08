@@ -1,3 +1,7 @@
+**Billy Strings Escaped the Darkness. He’s Playing to Not Go Back.**\
+`The singer and virtuoso guitar player shares how his mother’s death inspired his new album, “So Much for Goodbyes.”`\
+https://www.nytimes.com/video/podcasts/100000011080051/billy-strings-interview-guitar-music.html
+
 **Senate Passes Stopgap Bill to Avert Shutdown, Avoiding Skirmish Before Midterms**\
 `The move came more than a month before the spending deadline, reflecting an eagerness in both parties to avoid a messy fight before the midterm elections.`\
 https://www.nytimes.com/2026/08/08/us/politics/senate-passes-stopgap-bill.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/07/us/robert-gilman-russia-torture.html
 **Callum Turner Reveals His Favorite Rom-Com**\
 `Who was Callum Turner’s first fictional crush? Which role does he still regret missing out on? The actor shares the pop culture moments that left a lasting impression and the one song guaranteed to get him on the dance floor.`\
 https://www.nytimes.com/video/arts/100000011036449/callum-turner-rom-coms-dance-songs.html
-
-**Weekend Weather Is a Summer Stew of Heat, Humidity and Haze**\
-`The worst heat is expected out West, where most of the wildfire smoke may be trapped, while the East also swelters and faces a chance of thunderstorms.`\
-https://www.nytimes.com/2026/08/07/weather/weekend-forecast-points-to-heat-humidty-and-haze.html
 
