@@ -62,7 +62,7 @@ https://www.nytimes.com/2026/08/08/opinion/socialist-wave-democratic-party.html
 `“Cats: The Jellicle Ball” was a success, despite its short run.`\
 https://www.nytimes.com/2026/08/08/opinion/cats-jellicle-ball-closing-webber-de-shields.html
 
-**A Lot of the Attacks on Higher Ed Are Unfair. Not This One.**\
+**A Top Scholar’s Fall Shows That Universities Don’t Get It**\
 `By protecting a star from plagiarism charges, a storied college undermined its values.`\
 https://www.nytimes.com/2026/08/08/opinion/cambridge-plagiarism-arday-higher-education.html
 

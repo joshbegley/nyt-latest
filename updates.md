@@ -1,3 +1,7 @@
+**A Top Scholar’s Fall Shows That Universities Don’t Get It**\
+`By protecting a star from plagiarism charges, a storied college undermined its values.`\
+https://www.nytimes.com/2026/08/08/opinion/cambridge-plagiarism-arday-higher-education.html
+
 **In Confirming Blanche, Senators Endorse a Justice Dept. Under Trump’s Sway**\
 `Time and again, Todd Blanche has made it clear that he believes President Trump possesses a nearly limitless right to directly control the actions of the Justice Department.`\
 https://www.nytimes.com/2026/08/08/us/politics/blanche-attorney-general-doj-trump-power.html
