@@ -1,3 +1,7 @@
+**Outbreak of Vibrio Vulnificus, a Flesh-Eating Bacteria, Kills 5 in Louisiana**\
+`Vibrio vulnificus, which thrives in warm, brackish water, has also killed two people in Florida this year.`\
+https://www.nytimes.com/2026/08/08/us/louisiana-vibrio-vulnificus-outbreak-flesh-eating-bacteria.html
+
 **The U.S. Is Burning Through Weapons in Iran. Russia and China Are Taking Note.**\
 `The Iran war has depleted U.S. weapons stockpiles, resulting in a significant erosion of firepower. A more drawn-out Iran conflict benefits Moscow and Beijing, some analysts say.`\
 https://www.nytimes.com/2026/08/08/us/politics/pentagon-weapons-stockpiles-china-russia.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/08/style/erotic-review-sex-magazine-phoebe-philo
 **Where a Ring of Steel Once Stood, Belfast Unites at the Fleadh Cheoil**\
 `A weeklong celebration of Irish music and culture is bringing an expected 800,000 people to Northern Ireland’s capital. It’s a sign of how far the city has come decades after a bloody sectarian conflict.`\
 https://www.nytimes.com/2026/08/08/arts/music/irish-festival-belfast-fleadh-cheoil.html
-
-**The Garbage Trucks Outside Are Too Loud! What Can I Do?**\
-`Trash collection vehicles could be louder than what the city code allows. To prove it, these are the options.`\
-https://www.nytimes.com/2026/08/08/realestate/garbage-collection-trucks-noise-church.html
 
