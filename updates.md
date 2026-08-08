@@ -1,3 +1,23 @@
+**Exdirectiva de Lululemon: la verdad sobre la IA en las empresas**\
+`La revolución de la IA se está estancando porque las empresas no quieren admitir que integrar la tecnología es costoso, lento y requiere esfuerzo humano.`\
+https://www.nytimes.com/es/2026/08/08/espanol/opinion/ia-como-se-usa-empresas-lululemon.html
+
+**Should N.Y. Bathhouses Be Allowed to Offer Space for Sex?**\
+`Two state lawmakers have proposed repealing a health code that prohibits establishments like bathhouses from allowing sexual activity.`\
+https://www.nytimes.com/2026/08/08/nyregion/gay-bathhouses-ny-law.html
+
+**She Cares for Holocaust Survivors. Her Job Will Soon End.**\
+`Since the ’90s, Rizy Horowitz has put on events and served food to survivors in Brooklyn. With fewer than 300 of them left at her nonprofit, she’s thinking about her next chapter.`\
+https://www.nytimes.com/2026/08/08/nyregion/holocaust-survivors-brooklyn.html
+
+**How Your ‘Sex and the City’ B.F.F. Spends a Day That Starts at Noon**\
+`Mario Cantone, who played Charlotte York’s bestie on the show, has a late breakfast of eggs and caviar with his husband at their apartment in Chelsea.`\
+https://www.nytimes.com/interactive/2026/08/08/nyregion/08routine-mario-cantone.html
+
+**NYT Spelling Bee Answers than August 8, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/08/08/crosswords/spelling-bee-forum.html
+
 **El estanque reflectante es el reflejo del Washington de Trump**\
 `Un gerente hotelero de la Organización Trump viajó a Las Vegas para encontrar una solución a los problemas de un monumento nacional. Esta es la historia sobre las consecuencias nunca antes contada.`\
 https://www.nytimes.com/es/2026/08/08/espanol/estados-unidos/trump-estanque-reflectante.html
