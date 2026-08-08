@@ -1,3 +1,7 @@
+**Billy Strings Escaped the Darkness. He’s Playing to Not Go Back.**\
+`The genre-straddling musician could have been lost to addiction and trauma. Instead he’s filling arenas.`\
+https://www.nytimes.com/2026/08/08/magazine/billy-strings-interview.html
+
 **New Amazon Data Center Is Set to Have the Most Polluting Power Plant in the U.S.**\
 `The tech giant is investing in the natural-gas-burning power plant as part of a huge data center in Texas, even as it pledges to honor climate commitments.`\
 https://www.nytimes.com/2026/08/08/climate/amazon-data-center-texas-pollution.html
