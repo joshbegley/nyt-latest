@@ -15,7 +15,7 @@ https://www.nytimes.com/interactive/2026/08/08/us/elections/results-hawaii-us-ho
 https://www.nytimes.com/interactive/2026/08/08/us/elections/results-hawaii-governor-primary.html
 
 **Iran Issues List of Demands, Dampening Hopes of Reopening Strait of Hormuz**\
-`The head of Iran’s Supreme National Security Council said that the waterway will remain closed until the United States met certain conditions.`\
+`The head of Iran’s Supreme National Security Council said that the Strait of Hormuz would remain closed until the United States met certain conditions.`\
 https://www.nytimes.com/2026/08/08/world/middleeast/iran-us-oman-strait-of-hormuz.html
 
 **Hawaii Second Congressional District Primary 2026: Live Election Results**\
