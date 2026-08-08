@@ -1,3 +1,7 @@
+**California Knows How to Salad**\
+`Pluot-tomato salad with suya pistachio crunch; charred corn and Cheddar salad; summer melon spoon salad; heirloom tomatoes with fish sauce vinaigrette.`\
+https://www.nytimes.com/2026/08/08/dining/california-knows-how-to-salad.html
+
 **Hawaii First Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Hawaii primary election.`\
 https://www.nytimes.com/interactive/2026/08/08/us/elections/results-hawaii-us-house-1-primary.html

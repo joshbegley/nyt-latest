@@ -1,3 +1,11 @@
+**Hawaii Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Hawaii primary elections.`\
+https://www.nytimes.com/interactive/2026/08/08/us/elections/results-hawaii-primary.html
+
+**California Knows How to Salad**\
+`Pluot-tomato salad with suya pistachio crunch; charred corn and Cheddar salad; summer melon spoon salad; heirloom tomatoes with fish sauce vinaigrette.`\
+https://www.nytimes.com/2026/08/08/dining/california-knows-how-to-salad.html
+
 **Hawaii First Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Hawaii primary election.`\
 https://www.nytimes.com/interactive/2026/08/08/us/elections/results-hawaii-us-house-1-primary.html
@@ -10,17 +18,13 @@ https://www.nytimes.com/interactive/2026/08/08/us/elections/results-hawaii-gover
 `The head of Iran’s Supreme National Security Council said that the Strait of Hormuz would not reopen unless the United States met certain conditions.`\
 https://www.nytimes.com/2026/08/08/world/middleeast/iran-us-oman-strait-of-hormuz.html
 
-**Hawaii Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Hawaii primary elections.`\
-https://www.nytimes.com/interactive/2026/08/08/us/elections/results-hawaii-primary.html
+**Hawaii Second Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Hawaii primary election.`\
+https://www.nytimes.com/interactive/2026/08/08/us/elections/results-hawaii-us-house-2-primary.html
 
 **Hawaii Lieutenant Governor Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Hawaii primary election.`\
 https://www.nytimes.com/interactive/2026/08/08/us/elections/results-hawaii-lieutenant-governor-primary.html
-
-**Hawaii Second Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Hawaii primary election.`\
-https://www.nytimes.com/interactive/2026/08/08/us/elections/results-hawaii-us-house-2-primary.html
 
 **Our Most Popular Desserts This Summer**\
 `(No description)`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/08/dining/drinks/wines-for-summer.html
 **Book Review: ‘A Guide to Open Water Lifesaving,’ by Virginia Eubanks**\
 `“A Guide to Open Water Lifesaving,” by Virginia Eubanks, is a memoir of what happened after her partner survived a brutal attack — and her own will to endure.`\
 https://www.nytimes.com/2026/08/08/books/review/a-guide-to-open-water-lifesaving-virginia-eubanks.html
-
-**Medicare Advantage’s Perks Are Getting Scrutiny**\
-`Officials said no to health plans that wanted to expand extra benefits to cover medical marijuana, streaming services and shopping clubs. More changes are coming in 2027.`\
-https://www.nytimes.com/2026/08/08/business/medicare-advantage-benefits.html
 
