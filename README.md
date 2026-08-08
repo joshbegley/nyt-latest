@@ -1,3 +1,11 @@
+**Ezra Klein’s Art of Interviewing**\
+`“It’s supposed to be a space for you to think in, not for me to tell you what to think,” the Opinion columnist Ezra Klein says of his interview philosophy on a special “ask me anything” episode of “The Ezra Klein Show.”`\
+https://www.nytimes.com/video/opinion/100000011066321/ezra-kleins-art-of-interviewing.html
+
+**Canada Offers U.S. Concessions in Trade Talks but Demands a Comprehensive Deal**\
+`Prime Minister Mark Carney is attempting to prevent 50 percent tariffs against many Canadian goods scheduled for this month.`\
+https://www.nytimes.com/2026/08/07/world/canada/us-trade-tariffs-carney-trump.html
+
 **Does the Fifth Amendment Protect Fauci?**\
 `Our chief legal affairs correspondent, Adam Liptak, discusses whether Anthony Fauci’s presidential pardon makes him ineligible to take advantage of Fifth Amendment protections.`\
 https://www.nytimes.com/video/us/politics/100000011077471/does-the-fifth-amendment-protect-fauci.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/07/world/europe/england-drought-dry-weather-phot
 **Trump llamó a Canadá ‘desagradable’. Carney responde**\
 `El primer ministro de Canadá desestimó entre risas la descripción que hizo de su país el mandatario estadounidense e insinuó que las conversaciones comerciales entre los dos países son espinosas.`\
 https://www.nytimes.com/es/2026/08/07/espanol/mundo/trump-canada-carney-aranceles.html
-
-**Video Captured Chaos in Japanese Hospital Mid-Surgery During Earthquake**\
-`Footage released by Kumamoto General Hospital captured medical staff clinging to an operating table, trying to protect a patient during a powerful 6.8-magnitude earthquake on July 28 in Japan.`\
-https://www.nytimes.com/video/world/asia/100000011079540/hospital-earthquake-surgery-chaos.html
-
-**Appeals Court Upholds Block on Trump Ballroom Construction**\
-`A federal appeals court panel backed a lower court’s ruling, and made it likely that the Supreme Court will decide the case. But the decision does not mean construction will halt immediately.`\
-https://www.nytimes.com/2026/08/07/us/politics/trump-ballroom-appeals-court.html
 
