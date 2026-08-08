@@ -1,3 +1,7 @@
+**Abbe Lane, Sultry Singer With a Latin Flair, Dies at 94**\
+`She was a Broadway dancer before becoming Xavier Cugat’s star vocalist and later building a solo career.`\
+https://www.nytimes.com/2026/08/08/arts/music/abbe-lane-dead.html
+
 **Max Miller, Republican Accused of Abuse, Won’t Drop Out, Spokeswoman Says**\
 `Mr. Miller, who has faced pressure from fellow Republicans to end his campaign and avoid endangering a solidly red seat in Ohio, will stay in the race, his spokeswoman said.`\
 https://www.nytimes.com/2026/08/08/us/politics/max-miller-ohio-republican.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/08/us/politics/tps-haitians-deport.html
 **Corrections: Aug. 8, 2026**\
 `Corrections that appeared in print on Saturday, Aug. 8, 2026.`\
 https://www.nytimes.com/2026/08/08/pageoneplus/corrections-aug-8-2026.html
-
-**El matrimonio que adoraba ya no existía**\
-`Mi esposo, a quien tanto quise, había fallecido. ¿Por qué me sentía tan tranquila?`\
-https://www.nytimes.com/es/2026/08/08/espanol/estilos-de-vida/modern-love-viudez-duelo.html
 
