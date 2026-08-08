@@ -1,3 +1,7 @@
+**New York City Hall Dismisses Haitian Workers After Loss of Protected Status**\
+`Officials said that dozens of Haitian workers for the city would lose their jobs, but warned that the number could easily reach the hundreds.`\
+https://www.nytimes.com/2026/08/07/nyregion/haitian-nyc-workers-tps.html
+
 **New York City Lets Haitian Workers Go After Loss of Protected Status**\
 `Officials said that dozens of Haitian workers for the city would lose their jobs, but warned that the number could easily reach the hundreds.`\
 https://www.nytimes.com/2026/08/07/nyregion/haitian-nyc-workers-tps.html
