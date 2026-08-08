@@ -1,3 +1,7 @@
+**Canada Wildfire Forces Thousands to Evacuate**\
+`Over 18,000 people are under evacuation orders because of a wildfire in British Columbia, local officials said. The Bald Range fire, which started on Friday, is burning about 260 miles east of Vancouver.`\
+https://www.nytimes.com/video/weather/100000011081368/canada-wildfire-evacuation-summerland.html
+
 **This Spiritual Retreat Helps People Find Ecstasy Through Whirling**\
 `A retreat in Turkey is guiding visitors to seek transcendence through sema, the spiritual practice of whirling.`\
 https://www.nytimes.com/video/world/europe/100000011081356/turkey-sema-whirling-dervish-islam.html
