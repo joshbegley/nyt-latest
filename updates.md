@@ -1,3 +1,7 @@
+**Outbreak of Vibrio Vulnificus, a Flesh-Eating Bacteria, Kills 5 in Louisiana**\
+`Vibrio vulnificus, which thrives in warm, brackish water, has also killed two people in Florida this year.`\
+https://www.nytimes.com/2026/08/08/us/louisiana-vibrio-vulnificus-outbreak-flesh-eating-bacteria.html
+
 **The U.S. Is Burning Through Weapons in Iran. Russia and China Are Taking Note.**\
 `The Iran war has depleted U.S. weapons stockpiles, resulting in a significant erosion of firepower. A more drawn-out Iran conflict benefits Moscow and Beijing, some analysts say.`\
 https://www.nytimes.com/2026/08/08/us/politics/pentagon-weapons-stockpiles-china-russia.html
