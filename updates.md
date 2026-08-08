@@ -1,3 +1,7 @@
+**MacKenzie Scott Steps Back Into Spotlight With New Book**\
+`She posted four pages of a manuscript on a newly started Substack newsletter on Saturday and said that the novel would be released serially throughout August.`\
+https://www.nytimes.com/2026/08/08/business/mackenzie-scott-new-book.html
+
 **Wildfire Forces Evacuation of 18,000 From Summerland, British Columbia**\
 `The Bald Range fire, which started on Friday, has burned more than 23,000 acres near the Districts of Summerland and Peachland in British Columbia, officials said.`\
 https://www.nytimes.com/2026/08/08/world/canada/canada-summerland-bc-wildfire-bald-range-evacuation.html
