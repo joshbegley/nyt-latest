@@ -1,7 +1,3 @@
-**Reading Scores Drop for N.Y.C. Students Amid Revamp of Literacy Program**\
-`The declines nearly wiped out gains made in the state exams last year. New York City school leaders promised a review of the results.`\
-https://www.nytimes.com/2026/08/07/nyregion/nyc-student-reading-scores-drop.html
-
 **Max Miller Continues to Resist Pressure to Drop Out as Deadline Looms**\
 `The Republican House member from Ohio was accused of holding a gun to his ex-wife’s head and fracturing the collarbone of their young daughter. He has denied the accusations.`\
 https://www.nytimes.com/2026/08/07/us/politics/max-miller-gop.html
@@ -197,4 +193,8 @@ https://www.nytimes.com/video/t-magazine/100000011077787/a-hidden-space-age-gard
 **Prosecutor Sues Justice Dept. Over Dismissal After Right-Wing Influencer’s Claim**\
 `Will Rosenzweig joins a growing list of former prosecutors and federal agents who have gone to court to contest the purge of law enforcement deemed disloyal.`\
 https://www.nytimes.com/2026/08/07/us/politics/prosecutor-fired-lawsuit-justice-department.html
+
+**Solar Eclipse 2026: When and Where to See Totality**\
+`Check the weather forecast, path and time of the eclipse near you.`\
+https://www.nytimes.com/interactive/2026/08/07/world/europe/solar-eclipse-view-spain-iceland-greenland.html
 
