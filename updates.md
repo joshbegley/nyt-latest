@@ -1,3 +1,11 @@
+**William Orbit, Producer for Madonna’s ‘Ray of Light,’ Dies at 69**\
+`A three-time Grammy winner who was renowned for his mastery of electronic music styles, he also worked with Blur, Pink, Britney Spears and All Saints.`\
+https://www.nytimes.com/2026/08/08/arts/music/william-orbit-dead.html
+
+**Wildfire Forces Evacuation of 18,000 From Summerland, British Columbia**\
+`The Bald Range fire has burned more than 23,000 acres in British Columbia. At one point, the fire spread more than 2,000 acres in about an hour, officials said.`\
+https://www.nytimes.com/2026/08/08/world/canada/canada-summerland-bc-wildfire-bald-range-evacuation.html
+
 **Canada Wildfire Forces Thousands to Evacuate**\
 `Over 18,000 people are under evacuation orders because of a wildfire in British Columbia, local officials said. The Bald Range fire, which started on Friday, is burning about 260 miles east of Vancouver.`\
 https://www.nytimes.com/video/weather/100000011081368/canada-wildfire-evacuation-summerland.html

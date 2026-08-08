@@ -1,3 +1,7 @@
+**William Orbit, Producer for Madonna’s ‘Ray of Light,’ Dies at 69**\
+`A three-time Grammy winner who was renowned for his mastery of electronic music styles, he also worked with Blur, Pink, Britney Spears and All Saints.`\
+https://www.nytimes.com/2026/08/08/arts/music/william-orbit-dead.html
+
 **Canada Wildfire Forces Thousands to Evacuate**\
 `Over 18,000 people are under evacuation orders because of a wildfire in British Columbia, local officials said. The Bald Range fire, which started on Friday, is burning about 260 miles east of Vancouver.`\
 https://www.nytimes.com/video/weather/100000011081368/canada-wildfire-evacuation-summerland.html
@@ -27,7 +31,7 @@ https://www.nytimes.com/2026/08/08/us/tahoe-avalanche-blackbird-report.html
 https://www.nytimes.com/2026/08/08/business/mackenzie-scott-new-book.html
 
 **Wildfire Forces Evacuation of 18,000 From Summerland, British Columbia**\
-`The Bald Range fire, which started on Friday, has burned more than 23,000 acres near the Districts of Summerland and Peachland in British Columbia, officials said.`\
+`The Bald Range fire has burned more than 23,000 acres in British Columbia. At one point, the fire spread more than 2,000 acres in about an hour, officials said.`\
 https://www.nytimes.com/2026/08/08/world/canada/canada-summerland-bc-wildfire-bald-range-evacuation.html
 
 **Senate Confirms Blanche as Attorney General**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/08/us/politics/darline-lindsey-graham-questions.
 **Amid Abuse Claims Against Max Miller, This Democrat Thinks He Can Win His Seat**\
 `Brian Poindexter, an ironworker, is in the spotlight in Ohio’s 7th Congressional District, where Mr. Miller faces multiple calls to step aside.`\
 https://www.nytimes.com/2026/08/08/us/politics/brian-poindexter-max-miller-ohio-house.html
-
-**Democrats Vow to Unite Behind Abdul El-Sayed in Michigan, but Tensions Remain**\
-`The party is racing to get behind Dr. Abdul El-Sayed after a poisonous Senate primary in Michigan, but some Democrats still have reservations.`\
-https://www.nytimes.com/2026/08/08/us/politics/el-sayed-buttigieg-michigan-democrats.html
 
