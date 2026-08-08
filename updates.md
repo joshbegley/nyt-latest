@@ -1,3 +1,23 @@
+**My Stepson’s Hateful Views Are Damaging My Business. What Should I Do?**\
+`I would love to bar this person from our home, but I cannot.`\
+https://www.nytimes.com/2026/08/08/magazine/stepson-social-media-ethics.html
+
+**Signs of Economic Recovery While Greater Uncertainty Looms**\
+`Jobs and trade numbers released this week show that Canada is recovering from trade turmoil, but another round of tariffs may arrive this month.`\
+https://www.nytimes.com/2026/08/08/world/canada/canada-economy-tariffs-carney-trump.html
+
+**Today’s Wordle Answer for August 9, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Aug. 9, 2026.`\
+https://www.nytimes.com/2026/08/08/crosswords/wordle-review-1877.html
+
+**NYT Strands Hints for Aug. 9, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Aug. 9, 2026.`\
+https://www.nytimes.com/2026/08/08/crosswords/strands-sidekick-889.html
+
+**NYT Connections Answers for August 9, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Aug. 9, 2026.`\
+https://www.nytimes.com/2026/08/08/crosswords/connections-companion-1155.html
+
 **Billy Strings Escaped the Darkness. He’s Playing to Not Go Back.**\
 `The genre-straddling musician could have been lost to addiction and trauma. Instead he’s filling arenas.`\
 https://www.nytimes.com/2026/08/08/magazine/billy-strings-interview.html
