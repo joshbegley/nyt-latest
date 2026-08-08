@@ -50,7 +50,7 @@ https://www.nytimes.com/2026/08/08/world/middleeast/yemen-houthis-regional-stabi
 `Michigan presents as much a warning as it does an opportunity.`\
 https://www.nytimes.com/2026/08/08/opinion/democrats-michigan-midterm-el-sayed.html
 
-**A War Zone in Your Backyard**\
+**My Hometown Went Up in Flames. It Won’t Be the Last.**\
 `I watched, heartbroken and sleepless, as my boyhood stamping ground fell to spikes of wind-driven flame.`\
 https://www.nytimes.com/2026/08/08/opinion/wildfires-washington-spokane-climate-change.html
 

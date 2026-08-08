@@ -1,3 +1,7 @@
+**My Hometown Went Up in Flames. It Won’t Be the Last.**\
+`I watched, heartbroken and sleepless, as my boyhood stamping ground fell to spikes of wind-driven flame.`\
+https://www.nytimes.com/2026/08/08/opinion/wildfires-washington-spokane-climate-change.html
+
 **A Top Scholar’s Fall Shows That Universities Don’t Get It**\
 `By protecting a star from plagiarism charges, a storied college undermined its values.`\
 https://www.nytimes.com/2026/08/08/opinion/cambridge-plagiarism-arday-higher-education.html
