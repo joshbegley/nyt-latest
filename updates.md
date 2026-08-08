@@ -1,3 +1,7 @@
+**A 25-Minute Workout of Single-Leg Exercises to Improve Your Balance and Strength**\
+`These single-leg exercises can help you move more easily and avoid injury.`\
+https://www.nytimes.com/2026/08/08/well/move/single-leg-strength-exercises-balance.html
+
 **Think It’s Cool to Wear Fancy Sneakers to Work? You Might Be Old.**\
 `After years of office casual, young people are embracing loafers, derbies and oxfords.`\
 https://www.nytimes.com/2026/08/08/business/dealbook/loafers-sneakers-work.html
