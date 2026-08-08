@@ -1,3 +1,15 @@
+****\
+`Netflix doesn’t traditionally market most of its movies and television shows, preferring instead to let its algorithm do most of the work.`\
+https://www.nytimes.com/video/embedded/business/100000011081024/07Biz-NetflixBillboard-drone_video.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/business/100000011081026/07Biz-NetflixBillboard-Video-opener.html
+
+**Summertime Top**\
+`Kameron Austin Collins presents a breezy themeless with bite.`\
+https://www.nytimes.com/2026/08/07/crosswords/daily-puzzle-2026-08-08.html
+
 **I Wore Shorts to Work. Maybe You Should Too.**\
 `Plus: A “The Devil Wears Prada 2” auction and a collection inspired by André Leon Talley.`\
 https://www.nytimes.com/2026/08/07/style/shorts-office-business-casual.html
