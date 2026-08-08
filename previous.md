@@ -1,3 +1,11 @@
+**Senate Passes Stopgap Bill to Avert Shutdown, Avoiding Skirmish Before Midterms**\
+`The move came more than a month before the spending deadline, reflecting an eagerness in both parties to avoid a messy fight before the midterm elections.`\
+https://www.nytimes.com/2026/08/08/us/politics/senate-passes-stopgap-bill.html
+
+**Los síntomas de la ‘Cyclospora’ pueden volver, incluso después del tratamiento**\
+`Los expertos en salud intentan comprender cómo este parásito transmitido por los alimentos puede causar síntomas que aparecen y desaparecen, a veces durante semanas.`\
+https://www.nytimes.com/es/2026/08/08/espanol/cyclospora-sintomas.html
+
 **¡Querida, llama al doctor de abejas!**\
 `Las abejas productoras de miel enfrentan amenazas que pueden destruir colmenas enteras. Una nueva generación de veterinarios trabaja para impedirlo.`\
 https://www.nytimes.com/es/2026/08/08/espanol/ciencia-y-tecnologia/abejas-proteccion-veterinarios.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/arts/100000011036449/callum-turner-rom-coms-dance-
 **Weekend Weather Is a Summer Stew of Heat, Humidity and Haze**\
 `The worst heat is expected out West, where most of the wildfire smoke may be trapped, while the East also swelters and faces a chance of thunderstorms.`\
 https://www.nytimes.com/2026/08/07/weather/weekend-forecast-points-to-heat-humidty-and-haze.html
-
-**Trump Officials Deport Group of Mexicans Despite Torture Risk**\
-`Immigration authorities used a rare authority to deport them, even though their removal was blocked over concerns they would be tortured if returned.`\
-https://www.nytimes.com/2026/08/07/us/trump-mexico-deportations-torture.html
-
-**Justin Trudeau, Katy Perry and the Look of the Celebrity Statesman**\
-`What the former prime minister’s boyfriend rebrand says about the intersection of politics and entertainment.`\
-https://www.nytimes.com/2026/08/07/style/justin-trudeau-katy-perry-style.html
 
