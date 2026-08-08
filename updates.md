@@ -1,3 +1,11 @@
+**Hunter Biden Says His Father’s Cancer Is Worsening**\
+`In an interview with the BBC, Mr. Biden said that former President Joseph R. ⁠Biden Jr.’s prostate cancer had spread into his bones and was causing pain.`\
+https://www.nytimes.com/2026/08/08/us/politics/hunter-biden-says-his-fathers-cancer-is-worsening.html
+
+**Bald Range Wildfire Forces Evacuation of 18,000 in British Columbia**\
+`The Bald Range fire has burned more than 25,000 acres in British Columbia. At one point, the fire spread more than 2,000 acres in about an hour, officials said.`\
+https://www.nytimes.com/2026/08/08/world/canada/canada-summerland-bc-wildfire-bald-range-evacuation.html
+
 **Freestyle Exercise**\
 `Erik Agard’s themeless Sunday grid pulls you in with centripetal force.`\
 https://www.nytimes.com/2026/08/08/crosswords/daily-puzzle-2026-08-09.html

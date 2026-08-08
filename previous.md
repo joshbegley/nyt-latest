@@ -1,3 +1,7 @@
+**Hunter Biden Says His Father’s Cancer Is Worsening**\
+`In an interview with the BBC, Mr. Biden said that former President Joseph R. ⁠Biden Jr.’s prostate cancer had spread into his bones and was causing pain.`\
+https://www.nytimes.com/2026/08/08/us/politics/hunter-biden-says-his-fathers-cancer-is-worsening.html
+
 **Freestyle Exercise**\
 `Erik Agard’s themeless Sunday grid pulls you in with centripetal force.`\
 https://www.nytimes.com/2026/08/08/crosswords/daily-puzzle-2026-08-09.html
@@ -34,8 +38,8 @@ https://www.nytimes.com/2026/08/08/us/tahoe-avalanche-blackbird-report.html
 `She posted four pages of a manuscript on a newly started Substack newsletter on Saturday and said that the novel would be released serially throughout August.`\
 https://www.nytimes.com/2026/08/08/business/mackenzie-scott-new-book.html
 
-**Wildfire Forces Evacuation of 18,000 From Summerland, British Columbia**\
-`The Bald Range fire has burned more than 23,000 acres in British Columbia. At one point, the fire spread more than 2,000 acres in about an hour, officials said.`\
+**Bald Range Wildfire Forces Evacuation of 18,000 in British Columbia**\
+`The Bald Range fire has burned more than 25,000 acres in British Columbia. At one point, the fire spread more than 2,000 acres in about an hour, officials said.`\
 https://www.nytimes.com/2026/08/08/world/canada/canada-summerland-bc-wildfire-bald-range-evacuation.html
 
 **Senate Confirms Blanche as Attorney General**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/08/08/espanol/estilos-de-vida/modern-love-viudez
 **Karol G, Flo: Songs to Know This Week**\
 `Karol G returns, Steve Earle and Los Lobos link up and Temper City climbs the charts.`\
 https://www.nytimes.com/2026/08/08/arts/music/9-songs-were-talking-about-this-week.html
-
-**Lindsey Graham Loved to Gab With Reporters. His Sister Won’t.**\
-`Senator Darline Graham, who took her brother’s place after his death and is now seeking to succeed him, has mostly declined to answer questions from reporters at the Capitol.`\
-https://www.nytimes.com/2026/08/08/us/politics/darline-lindsey-graham-questions.html
 
