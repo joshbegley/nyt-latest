@@ -1,3 +1,7 @@
+**Wildfire Forces Evacuation of 18,000 From Summerland, British Columbia**\
+`The Bald Range fire, which started on Friday, has burned more than 23,000 acres near the Districts of Summerland and Peachland in British Columbia, officials said.`\
+https://www.nytimes.com/2026/08/08/world/canada/canada-summerland-bc-wildfire-bald-range-evacuation.html
+
 **Senate Confirms Blanche as Attorney General**\
 `The Senate confirmed Todd Blanche as attorney general on Saturday, pushing past criticism over whether he would compromise the Justice Department’s independence.`\
 https://www.nytimes.com/video/us/politics/100000011081301/senate-blanche-attorney-general.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/podcasts/100000011075615/billy-strings-on-his-fami
 **Why Older Pedestrians Are More Likely to Die After Being Hit by a Car**\
 `They are more likely than other age groups to die after being hit by a vehicle.`\
 https://www.nytimes.com/2026/08/08/well/pedestrian-deaths-car-collision-older.html
-
-**The Sexy Magazine You Really Will Read for the Articles**\
-`Erotic Review is a refined publication for a different age.`\
-https://www.nytimes.com/2026/08/08/style/erotic-review-sex-magazine-phoebe-philo.html
 

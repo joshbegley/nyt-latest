@@ -1,3 +1,7 @@
+**Wildfire Forces Evacuation of 18,000 From Summerland, British Columbia**\
+`The Bald Range fire, which started on Friday, has burned more than 23,000 acres near the Districts of Summerland and Peachland in British Columbia, officials said.`\
+https://www.nytimes.com/2026/08/08/world/canada/canada-summerland-bc-wildfire-bald-range-evacuation.html
+
 **Senate Confirms Blanche as Attorney General**\
 `The Senate confirmed Todd Blanche as attorney general on Saturday, pushing past criticism over whether he would compromise the Justice Department’s independence.`\
 https://www.nytimes.com/video/us/politics/100000011081301/senate-blanche-attorney-general.html
