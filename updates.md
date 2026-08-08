@@ -1,3 +1,7 @@
+**Iran Issues List of Demands, Dampening Hopes of Reopening Strait of Hormuz**\
+`The head of Iran’s Supreme National Security Council said that the waterway will remain closed until the United States met certain conditions.`\
+https://www.nytimes.com/2026/08/08/world/middleeast/iran-us-oman-strait-of-hormuz.html
+
 **New Amazon Data Center Stokes Worry It Would Be the Most Polluting Power Plant in the U.S.**\
 `The tech giant is investing in the natural-gas-burning power plant as part of a huge data center in Texas, even as it pledges to honor climate commitments.`\
 https://www.nytimes.com/2026/08/08/climate/amazon-data-center-texas-pollution.html
