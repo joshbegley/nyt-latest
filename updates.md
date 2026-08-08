@@ -1,3 +1,7 @@
+**Italy’s Heat Will Spread to Western Europe Ahead of Solar Eclipse**\
+`Red high-temperature warnings remained in effect for much of southern and western Italy through Saturday.`\
+https://www.nytimes.com/2026/08/08/weather/europe-heat-wave-italy-uk-france-spain.html
+
 **Senate Passes Stopgap Bill to Avert Shutdown, Avoiding Skirmish Before Midterms**\
 `The move came more than a month before the spending deadline, reflecting an eagerness in both parties to avoid a messy fight before the midterm elections.`\
 https://www.nytimes.com/2026/08/08/us/politics/senate-passes-stopgap-bill-shutdown.html
