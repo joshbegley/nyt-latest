@@ -1,3 +1,7 @@
+**In Confirming Blanche, Senators Endorse a Justice Dept. Under Trump’s Sway**\
+`Time and again, Todd Blanche has made it clear that he believes President Trump possesses a nearly limitless right to directly control the actions of the Justice Department.`\
+https://www.nytimes.com/2026/08/08/us/politics/blanche-attorney-general-doj-trump-power.html
+
 **Hawaii Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Hawaii primary elections.`\
 https://www.nytimes.com/interactive/2026/08/08/us/elections/results-hawaii-primary.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/08/realestate/garbage-collection-trucks-noise-ch
 **The Best Wines for Summer**\
 `It’s not the color that’s important in hot weather, but the weight and texture of these wines.`\
 https://www.nytimes.com/2026/08/08/dining/drinks/wines-for-summer.html
-
-**Book Review: ‘A Guide to Open Water Lifesaving,’ by Virginia Eubanks**\
-`“A Guide to Open Water Lifesaving,” by Virginia Eubanks, is a memoir of what happened after her partner survived a brutal attack — and her own will to endure.`\
-https://www.nytimes.com/2026/08/08/books/review/a-guide-to-open-water-lifesaving-virginia-eubanks.html
 
