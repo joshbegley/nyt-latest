@@ -1,3 +1,7 @@
+**Inside Ezra Klein’s Listening Habits**\
+`“Having spaces where I am an experiencer, not a creator, is important for me.” On a recent episode of “The Ezra Klein Show,” the Opinion columnist Ezra Klein discusses why he turns to complex, discordant music to hold the contradictory feelings required for the show.`\
+https://www.nytimes.com/video/opinion/100000011066322/inside-ezra-kleins-listening-habits.html
+
 **Ezra Klein’s Art of Interviewing**\
 `“It’s supposed to be a space for you to think in, not for me to tell you what to think,” the Opinion columnist Ezra Klein says of his interview philosophy on a special “ask me anything” episode of “The Ezra Klein Show.”`\
 https://www.nytimes.com/video/opinion/100000011066321/ezra-kleins-art-of-interviewing.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/08/07/espanol/estados-unidos/ciudadania-nacimien
 **Photos Show England Turning Brown in Drought**\
 `Beset by historically dry weather, much of the nation is losing its signature hue.`\
 https://www.nytimes.com/2026/08/07/world/europe/england-drought-dry-weather-photos.html
-
-**Trump llamó a Canadá ‘desagradable’. Carney responde**\
-`El primer ministro de Canadá desestimó entre risas la descripción que hizo de su país el mandatario estadounidense e insinuó que las conversaciones comerciales entre los dos países son espinosas.`\
-https://www.nytimes.com/es/2026/08/07/espanol/mundo/trump-canada-carney-aranceles.html
 
