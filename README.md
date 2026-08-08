@@ -31,7 +31,7 @@ https://www.nytimes.com/2026/08/08/us/tahoe-avalanche-blackbird-report.html
 https://www.nytimes.com/2026/08/08/business/mackenzie-scott-new-book.html
 
 **Wildfire Forces Evacuation of 18,000 From Summerland, British Columbia**\
-`The Bald Range fire, which started on Friday, has burned more than 23,000 acres near the Districts of Summerland and Peachland in British Columbia, officials said.`\
+`The Bald Range fire has burned more than 23,000 acres in British Columbia. At one point, the fire spread more than 2,000 acres in about an hour, officials said.`\
 https://www.nytimes.com/2026/08/08/world/canada/canada-summerland-bc-wildfire-bald-range-evacuation.html
 
 **Senate Confirms Blanche as Attorney General**\
