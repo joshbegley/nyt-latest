@@ -1,3 +1,7 @@
+**Canada Wildfire Forces Thousands to Evacuate**\
+`Over 18,000 people are under evacuation orders because of a wildfire in British Columbia, local officials said. The Bald Range fire, which started on Friday, is burning about 260 miles east of Vancouver.`\
+https://www.nytimes.com/video/weather/100000011081368/canada-wildfire-evacuation-summerland.html
+
 **This Spiritual Retreat Helps People Find Ecstasy Through Whirling**\
 `A retreat in Turkey is guiding visitors to seek transcendence through sema, the spiritual practice of whirling.`\
 https://www.nytimes.com/video/world/europe/100000011081356/turkey-sema-whirling-dervish-islam.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/08/us/politics/brian-poindexter-max-miller-ohio-
 **Democrats Vow to Unite Behind Abdul El-Sayed in Michigan, but Tensions Remain**\
 `The party is racing to get behind Dr. Abdul El-Sayed after a poisonous Senate primary in Michigan, but some Democrats still have reservations.`\
 https://www.nytimes.com/2026/08/08/us/politics/el-sayed-buttigieg-michigan-democrats.html
-
-**Why Billy Strings, a Grammy-Winning Guitarist, Takes Guitar Lessons**\
-`At 33, the musician Billy Strings has won three Grammys. On “The Interview,” he explained why he continues to study different styles of music.`\
-https://www.nytimes.com/video/podcasts/100000011075682/why-billy-strings-a-grammy-winning-guitarist-takes-guitar-lessons.html
 
