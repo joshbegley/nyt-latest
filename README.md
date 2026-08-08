@@ -1,3 +1,7 @@
+**Activistas capturados de camino a Gaza denuncian abusos bajo custodia israelí**\
+`En entrevistas, más de 20 personas que intentaron romper un bloqueo israelí en mayo describieron golpizas, descargas eléctricas y otros abusos tras ser capturadas. Israel negó las acusaciones.`\
+https://www.nytimes.com/es/2026/08/08/espanol/mundo/activistas-flotilla-gaza-tortura-israel.html
+
 **She Is Russia’s Richest Woman. Her Business Empire Is Going Up in Flames.**\
 `As Ukraine repeatedly strikes warehouses of the e-commerce site Wildberries, Tatyana Kim, its billionaire co-founder, faces her biggest test yet.`\
 https://www.nytimes.com/2026/08/08/world/europe/russia-wildberries-tatyana-kim.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/07/opinion/democrats-progressives-moderates.html
 **Judge Rules Two Virginia Schools Must Change Confederate Names**\
 `The school board’s decision to rename the schools after Stonewall Jackson, Robert E. Lee and Turner Ashby “cannot be divorced from racial discrimination,” the judge wrote in his ruling.`\
 https://www.nytimes.com/2026/08/07/us/virginia-schools-confederate-names-ruling.html
-
-**A Naked Bicycle Protest Is Also a Party. Is That Bad?**\
-`A split among protest groups has led to dueling rides, which combine nudity and cycling in the name of change.`\
-https://www.nytimes.com/2026/08/07/us/a-naked-bicycle-protest-is-also-a-party-is-that-bad.html
 
