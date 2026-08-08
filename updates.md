@@ -1,3 +1,7 @@
+**Does the Fifth Amendment Protect Fauci?**\
+`Our chief legal affairs correspondent, Adam Liptak, explains whether Anthony Fauci’s presidential pardon makes him ineligible to take advantage of Fifth Amendment protections.`\
+https://www.nytimes.com/video/us/politics/100000011077471/does-the-fifth-amendment-protect-fauci.html
+
 **How the U.S. Is Aiming for Regime Change in Cuba**\
 `Our reporter Julian E. Barnes, who covers U.S. intelligence agencies, describes how the Trump administration has been looking for a current or former Cuban official to take over the island’s government.`\
 https://www.nytimes.com/video/us/100000011077541/how-the-us-is-aiming-for-regime-change-in-cuba.html

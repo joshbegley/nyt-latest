@@ -1,3 +1,7 @@
+**Does the Fifth Amendment Protect Fauci?**\
+`Our chief legal affairs correspondent, Adam Liptak, explains whether Anthony Fauci’s presidential pardon makes him ineligible to take advantage of Fifth Amendment protections.`\
+https://www.nytimes.com/video/us/politics/100000011077471/does-the-fifth-amendment-protect-fauci.html
+
 **How the U.S. Is Aiming for Regime Change in Cuba**\
 `Our reporter Julian E. Barnes, who covers U.S. intelligence agencies, describes how the Trump administration has been looking for a current or former Cuban official to take over the island’s government.`\
 https://www.nytimes.com/video/us/100000011077541/how-the-us-is-aiming-for-regime-change-in-cuba.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/world/asia/100000011079540/hospital-earthquake-sur
 **Appeals Court Upholds Block on Trump Ballroom Construction**\
 `A federal appeals court panel backed a lower court’s ruling, and made it likely that the Supreme Court will decide the case. But the decision does not mean construction will halt immediately.`\
 https://www.nytimes.com/2026/08/07/us/politics/trump-ballroom-appeals-court.html
-
-**A Hidden Space-Age Garden in Lower Manhattan**\
-`The artist Arlene Shechet visits two of Isamu Noguchi’s outdoor sculptures in Lower Manhattan, “Sunken Garden for Chase Manhattan Bank Plaza” (1961-64) and “Red Cube” (1968).`\
-https://www.nytimes.com/video/t-magazine/100000011077787/a-hidden-space-age-garden-in-lower-manhattan.html
 
