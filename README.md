@@ -1,3 +1,7 @@
+**Think It’s Cool to Wear Fancy Sneakers to Work? You Might Be Old.**\
+`After years of office casual, young people are embracing loafers, derbies and oxfords.`\
+https://www.nytimes.com/2026/08/08/business/dealbook/loafers-sneakers-work.html
+
 **Yemen Teeters on Civil War as Regional Stability Hangs in the Balance**\
 `While the Middle East waits to hear whether a deal can be reached to reopen the Strait of Hormuz, the Yemeni government’s conflict with Iran-backed Houthi rebels escalated overnight.`\
 https://www.nytimes.com/2026/08/08/world/middleeast/yemen-houthis-regional-stability.html
@@ -10,7 +14,7 @@ https://www.nytimes.com/2026/08/08/opinion/democrats-michigan-midterm-el-sayed.h
 `I watched, heartbroken and sleepless, as my boyhood stamping ground fell to spikes of wind-driven flame.`\
 https://www.nytimes.com/2026/08/08/opinion/wildfires-washington-spokane-climate-change.html
 
-**Who’s Afraid of the Big Bad Organizers?**\
+**Socialists Are Winning Because They Listen to People**\
 `Democrats are going to have to organize voters — not just fund-raise off them.`\
 https://www.nytimes.com/2026/08/08/opinion/socialist-wave-democratic-party.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/08/us/mackinac-island-michigan-ferry-dispute.htm
 **How One of the Last Ventriloquists in the Country Brings Dummies to Life**\
 `From his studio in Maine, one of the last full-time ventriloquist puppet makers in the country combines mechanics, painting and performance to create one-of-a-kind characters.`\
 https://www.nytimes.com/2026/08/08/arts/ventriloquist-dummies-austin-phillips.html
-
-**Billy Strings Escaped the Darkness. He’s Playing to Not Go Back.**\
-`The singer and virtuoso guitar player shares how his mother’s death inspired his new album, “So Much for Goodbyes.”`\
-https://www.nytimes.com/video/podcasts/100000011080051/billy-strings-interview-guitar-music.html
 
