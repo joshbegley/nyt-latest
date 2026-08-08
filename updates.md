@@ -1,3 +1,7 @@
+**Freestyle Exercise**\
+`Erik Agard’s themeless Sunday grid pulls you in with centripetal force.`\
+https://www.nytimes.com/2026/08/08/crosswords/daily-puzzle-2026-08-09.html
+
 **William Orbit, Producer for Madonna’s ‘Ray of Light,’ Dies at 69**\
 `A three-time Grammy winner who was renowned for his mastery of electronic music styles, he also worked with Blur, Pink, Britney Spears and All Saints.`\
 https://www.nytimes.com/2026/08/08/arts/music/william-orbit-dead.html

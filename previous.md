@@ -1,3 +1,7 @@
+**Freestyle Exercise**\
+`Erik Agard’s themeless Sunday grid pulls you in with centripetal force.`\
+https://www.nytimes.com/2026/08/08/crosswords/daily-puzzle-2026-08-09.html
+
 **William Orbit, Producer for Madonna’s ‘Ray of Light,’ Dies at 69**\
 `A three-time Grammy winner who was renowned for his mastery of electronic music styles, he also worked with Blur, Pink, Britney Spears and All Saints.`\
 https://www.nytimes.com/2026/08/08/arts/music/william-orbit-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/08/arts/music/9-songs-were-talking-about-this-we
 **Lindsey Graham Loved to Gab With Reporters. His Sister Won’t.**\
 `Senator Darline Graham, who took her brother’s place after his death and is now seeking to succeed him, has mostly declined to answer questions from reporters at the Capitol.`\
 https://www.nytimes.com/2026/08/08/us/politics/darline-lindsey-graham-questions.html
-
-**Amid Abuse Claims Against Max Miller, This Democrat Thinks He Can Win His Seat**\
-`Brian Poindexter, an ironworker, is in the spotlight in Ohio’s 7th Congressional District, where Mr. Miller faces multiple calls to step aside.`\
-https://www.nytimes.com/2026/08/08/us/politics/brian-poindexter-max-miller-ohio-house.html
 
