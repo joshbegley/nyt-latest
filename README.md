@@ -160,7 +160,7 @@ https://www.nytimes.com/video/podcasts/100000011080051/billy-strings-interview-g
 
 **Senate Passes Stopgap Bill to Avert Shutdown, Avoiding Skirmish Before Midterms**\
 `The move came more than a month before the spending deadline, reflecting an eagerness in both parties to avoid a messy fight before the midterm elections.`\
-https://www.nytimes.com/2026/08/08/us/politics/senate-passes-stopgap-bill.html
+https://www.nytimes.com/2026/08/08/us/politics/senate-passes-stopgap-bill-shutdown.html
 
 **Los síntomas de la ‘Cyclospora’ pueden volver, incluso después del tratamiento**\
 `Los expertos en salud intentan comprender cómo este parásito transmitido por los alimentos puede causar síntomas que aparecen y desaparecen, a veces durante semanas.`\

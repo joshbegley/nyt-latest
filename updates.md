@@ -1,3 +1,7 @@
+**As Thailand Gets Known for Mass Shootings, Fresh Pledges to Fix Gun Laws**\
+`A rampage at a high school in Thailand on Friday was the latest episode of gun violence in a country that has grappled in recent years with several attacks.`\
+https://www.nytimes.com/2026/08/08/world/asia/thailand-mass-shootings-gun-laws.html
+
 **Edge of Your Seat**\
 `A superfan of thrillers recommends some of her favorites.`\
 https://www.nytimes.com/2026/08/08/briefing/edge-of-your-seat.html
