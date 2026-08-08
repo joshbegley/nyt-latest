@@ -1,3 +1,15 @@
+****\
+`Netflix doesn’t traditionally market most of its movies and television shows, preferring instead to let its algorithm do most of the work. But this is not its first marketing stunt.`\
+https://www.nytimes.com/video/embedded/business/100000011081024/07Biz-NetflixBillboard-drone_video.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/business/100000011081026/07Biz-NetflixBillboard-Video-opener.html
+
+**Summertime Top**\
+`Kameron Austin Collins presents a breezy themeless with bite.`\
+https://www.nytimes.com/2026/08/07/crosswords/daily-puzzle-2026-08-08.html
+
 **New York City Hall Dismisses Haitian Workers After Loss of Protected Status**\
 `Officials said that dozens of Haitian workers for the city would lose their jobs, but warned that the number could easily reach the hundreds.`\
 https://www.nytimes.com/2026/08/07/nyregion/haitian-nyc-workers-tps.html
