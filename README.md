@@ -1,3 +1,31 @@
+**She Is Russia’s Richest Woman. Her Business Empire Is Going Up in Flames.**\
+`As Ukraine repeatedly strikes warehouses of the e-commerce site Wildberries, Tatyana Kim, its billionaire co-founder, faces her biggest test yet.`\
+https://www.nytimes.com/2026/08/08/world/europe/russia-wildberries-tatyana-kim.html
+
+**Quote of the Day: China’s A.I., Cheaper and Easier to Use, Is Winning Over Africa**\
+`Quotation of the Day for Saturday, August 8, 2026.`\
+https://www.nytimes.com/2026/08/08/pageoneplus/quote-of-the-day-chinas-ai-cheaper-and-easier-to-use-is-winning-over-africa.html
+
+**Pellet Guns, Sticks and Tear Gas: How India’s Police Halted a Youth March**\
+`A New York Times analysis details the July 20 crackdown on unarmed protesters in New Delhi that has provoked public outrage and accusations of excessive force.`\
+https://www.nytimes.com/2026/08/08/world/asia/pellet-guns-sticks-and-tear-gas-how-indias-police-halted-a-youth-march.html
+
+**Their African Islands Were Set to Be Decolonized. Then the U.S. Bombed Iran.**\
+`The inhabitants of the Chagos Islands were expelled by the British 60 years ago. Refugees were anxious to return this year, but their hopes have been caught in a morass of geopolitics.`\
+https://www.nytimes.com/2026/08/08/world/africa/diego-garcia-chagos-displaced-iran-war.html
+
+**Whirling for 7 Days and Nights, in Search of Ecstasy**\
+`Hundreds of people attended a seven-day retreat in the Turkish countryside seeking transcendence through sema, the spiritual practice of whirling.`\
+https://www.nytimes.com/2026/08/08/world/europe/turkey-sema-whirling-dervish-islam.html
+
+**What to Know About Wildberries, the Company in Ukraine’s Cross Hairs**\
+`Ukrainian drones have increasingly targeted warehouses belonging to Wildberries, which many Russians rely on as the country’s largest e-commerce business.`\
+https://www.nytimes.com/2026/08/08/world/europe/wildberries-russia-ukraine.html
+
+**Punjabi Soldiers Who Fought for Britain in World War I Are Recognized for First Time**\
+`Nearly 10,000 Punjabi soldiers who died in World War I have been added to casualty records for the first time.`\
+https://www.nytimes.com/2026/08/08/world/europe/punjabi-soldiers-ww1-british-indian-army.html
+
 **Can Netflix Save a Summer Slump With a Stunt on Sunset Boulevard?**\
 `The streaming giant, still looking for this year’s blockbuster, paid an actor to spend three days inside a billboard in Los Angeles to promote an upcoming film.`\
 https://www.nytimes.com/2026/08/07/business/media/netflix-billboard-marketing-strategy.html
@@ -169,32 +197,4 @@ https://www.nytimes.com/2026/08/07/us/virginia-schools-confederate-names-ruling.
 **A Naked Bicycle Protest Is Also a Party. Is That Bad?**\
 `A split among protest groups has led to dueling rides, which combine nudity and cycling in the name of change.`\
 https://www.nytimes.com/2026/08/07/us/a-naked-bicycle-protest-is-also-a-party-is-that-bad.html
-
-**Abdoogh Khiar (Chilled Buttermilk Cucumber Soup)**\
-`This beautiful and simple classic Iranian cold soup is destined for those hot summer days when all you want to do is pull up a chair inside the fridge.`\
-https://www.nytimes.com/video/dining/100000011079949/abdoogh-khiar-chilled-buttermilk-cucumber-soup.html
-
-**Grated Tomato Pasta**\
-`It’s tough to highlight peak summer tomatoes in pasta. To make the most out of their bright flavor, summer tomatoes should be minimally cooked. This recipe gently warms the fruit, so they keep their acidity and succulence.`\
-https://www.nytimes.com/video/dining/100000011079935/grated-tomato-pasta.html
-
-**Salted Lemon S’mores**\
-`This little no-recipe treat tastes like a cross between a s’more and a lemon meringue pie.`\
-https://www.nytimes.com/video/dining/100000011079897/salted-lemon-smores.html
-
-**Who Is Ahead in Arkansas's 2nd Congressional District?**\
-`Track the latest polls in Arkansas's 2nd Congressional District.`\
-https://www.nytimes.com/interactive/polls/arkansas-us-house-2-polls-2026.html
-
-**Don Lemon Accuses Justice Dept. of Vindictive Prosecution in Church Protest Case**\
-`Lawyers for the former CNN anchor asked a judge to throw out the case, saying prosecutors had “acted on the president’s animus by filing unprecedented charges against a journalist for doing his job.”`\
-https://www.nytimes.com/2026/08/07/us/politics/don-lemon-vindictive-prosecution.html
-
-**Flashback: Your Weekly History Quiz, Aug. 8, 2026**\
-`Can you sort 8 historical events?`\
-https://www.nytimes.com/interactive/2026/08/07/upshot/flashback.html
-
-**Puerto Rico comenzará a racionar el agua en medio de una nueva crisis**\
-`A partir del viernes, está previsto que la autoridad de acueductos de la isla corte el agua en periodos rotativos de 48 horas en partes de San Juan y las áreas circundantes.`\
-https://www.nytimes.com/es/2026/08/07/espanol/estados-unidos/puerto-rico-agua.html
 
