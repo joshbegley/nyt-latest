@@ -1,3 +1,7 @@
+**Democrats Vow to Unite Behind Abdul El-Sayed in Michigan, but Tensions Remain**\
+`The party is racing to get behind Dr. Abdul El-Sayed after a poisonous Senate primary in Michigan, but some Democrats still have reservations.`\
+https://www.nytimes.com/2026/08/08/us/politics/el-sayed-buttigieg-michigan-democrats.html
+
 **A 25-Minute Workout of Single-Leg Exercises to Improve Your Balance and Strength**\
 `These single-leg exercises can help you move more easily and avoid injury.`\
 https://www.nytimes.com/2026/08/08/well/move/single-leg-strength-exercises-balance.html
