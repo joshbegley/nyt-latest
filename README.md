@@ -1,3 +1,7 @@
+**Edge of Your Seat**\
+`A superfan of thrillers recommends some of her favorites.`\
+https://www.nytimes.com/2026/08/08/briefing/edge-of-your-seat.html
+
 **My Stepson’s Hateful Views Are Damaging My Business. What Should I Do?**\
 `I would love to bar this person from our home, but I cannot.`\
 https://www.nytimes.com/2026/08/08/magazine/stepson-social-media-ethics.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/08/08/espanol/mundo/activistas-flotilla-gaza-tor
 **She Is Russia’s Richest Woman. Her Business Empire Is Going Up in Flames.**\
 `As Ukraine repeatedly strikes warehouses of the e-commerce site Wildberries, Tatyana Kim, its billionaire co-founder, faces her biggest test yet.`\
 https://www.nytimes.com/2026/08/08/world/europe/russia-wildberries-tatyana-kim.html
-
-**Quote of the Day: China’s A.I., Cheaper and Easier to Use, Is Winning Over Africa**\
-`Quotation of the Day for Saturday, August 8, 2026.`\
-https://www.nytimes.com/2026/08/08/pageoneplus/quote-of-the-day-chinas-ai-cheaper-and-easier-to-use-is-winning-over-africa.html
 
