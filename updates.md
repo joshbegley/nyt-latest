@@ -1,3 +1,7 @@
+**The U.S. Is Burning Through Weapons in Iran. Russia and China Are Taking Note.**\
+`The Iran war has depleted U.S. weapons stockpiles, resulting in a significant erosion of firepower. A more drawn-out Iran conflict benefits Moscow and Beijing, some analysts say.`\
+https://www.nytimes.com/2026/08/08/us/politics/pentagon-weapons-stockpiles-china-russia.html
+
 **My Hometown Went Up in Flames. It Won’t Be the Last.**\
 `I watched, heartbroken and sleepless, as my boyhood stamping ground fell to spikes of wind-driven flame.`\
 https://www.nytimes.com/2026/08/08/opinion/wildfires-washington-spokane-climate-change.html

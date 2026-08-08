@@ -1,3 +1,7 @@
+**The U.S. Is Burning Through Weapons in Iran. Russia and China Are Taking Note.**\
+`The Iran war has depleted U.S. weapons stockpiles, resulting in a significant erosion of firepower. A more drawn-out Iran conflict benefits Moscow and Beijing, some analysts say.`\
+https://www.nytimes.com/2026/08/08/us/politics/pentagon-weapons-stockpiles-china-russia.html
+
 **In Confirming Blanche, Senators Endorse a Justice Dept. Under Trump’s Sway**\
 `Time and again, Todd Blanche has made it clear that he believes President Trump possesses a nearly limitless right to directly control the actions of the Justice Department.`\
 https://www.nytimes.com/2026/08/08/us/politics/blanche-attorney-general-doj-trump-power.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/08/arts/music/irish-festival-belfast-fleadh-cheo
 **The Garbage Trucks Outside Are Too Loud! What Can I Do?**\
 `Trash collection vehicles could be louder than what the city code allows. To prove it, these are the options.`\
 https://www.nytimes.com/2026/08/08/realestate/garbage-collection-trucks-noise-church.html
-
-**The Best Wines for Summer**\
-`It’s not the color that’s important in hot weather, but the weight and texture of these wines.`\
-https://www.nytimes.com/2026/08/08/dining/drinks/wines-for-summer.html
 
