@@ -1,3 +1,7 @@
+**In Confirming Blanche, Senators Endorse a Justice Dept. Under Trump’s Sway**\
+`Time and again, Todd Blanche has made it clear that he believes President Trump possesses a nearly limitless right to directly control the actions of the Justice Department.`\
+https://www.nytimes.com/2026/08/08/us/politics/blanche-attorney-general-doj-trump-power.html
+
 **Iran Issues List of Demands, Dampening Hopes of Reopening Strait of Hormuz**\
 `The head of Iran’s Supreme National Security Council said that the Strait of Hormuz would remain closed until the United States met certain conditions.`\
 https://www.nytimes.com/2026/08/08/world/middleeast/iran-us-oman-strait-of-hormuz.html
