@@ -178,13 +178,13 @@ https://www.nytimes.com/2026/08/08/business/medicare-advantage-benefits.html
 `“I need an ice-cold, perfect balance of dirty, and I think people don’t go dirty enough,” the country singer said.`\
 https://www.nytimes.com/2026/08/08/arts/music/kacey-musgraves-middle-of-nowhere.html
 
-**5 Experiential Wedding Food Ideas To Wow Your Guests**\
-`From caviar belts to edible balloons, wedding food is becoming part of the entertainment.`\
-https://www.nytimes.com/2026/08/08/style/experiential-wedding-food-trends.html
-
 **A 25-Minute Workout of Single-Leg Exercises to Improve Your Balance and Strength**\
 `These single-leg exercises can help you move more easily and avoid injury.`\
 https://www.nytimes.com/2026/08/08/well/move/single-leg-strength-exercises-balance.html
+
+**5 Experiential Wedding Food Ideas To Wow Your Guests**\
+`From caviar belts to edible balloons, wedding food is becoming part of the entertainment.`\
+https://www.nytimes.com/2026/08/08/style/experiential-wedding-food-trends.html
 
 **‘Teenage Sex and Death at Camp Miasma’ Makes a Case For Embracing Beloved Problematic Films**\
 `Our film critic Alissa Wilkinson reviews “Teenage Sex and Death at Camp Miasma,” dissecting its argument not to discard your favorite films that may not have aged well.`\
