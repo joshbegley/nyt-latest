@@ -1,3 +1,7 @@
+**Hello, Democrats? Are You Listening?**\
+`Michigan presents as much a warning as it does an opportunity.`\
+https://www.nytimes.com/video/opinion/100000011077969/hello-democrats-are-you-listening.html
+
 **Italy’s Heat Will Spread to Western Europe Ahead of Solar Eclipse**\
 `Red high-temperature warnings remained in effect for much of southern and western Italy through Saturday.`\
 https://www.nytimes.com/2026/08/08/weather/europe-heat-wave-italy-uk-france-spain.html
