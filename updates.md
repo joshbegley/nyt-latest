@@ -1,3 +1,11 @@
+**Think It’s Cool to Wear Fancy Sneakers to Work? You Might Be Old.**\
+`After years of office casual, young people are embracing loafers, derbies and oxfords.`\
+https://www.nytimes.com/2026/08/08/business/dealbook/loafers-sneakers-work.html
+
+**Socialists Are Winning Because They Listen to People**\
+`Democrats are going to have to organize voters — not just fund-raise off them.`\
+https://www.nytimes.com/2026/08/08/opinion/socialist-wave-democratic-party.html
+
 **Yemen Teeters on Civil War as Regional Stability Hangs in the Balance**\
 `While the Middle East waits to hear whether a deal can be reached to reopen the Strait of Hormuz, the Yemeni government’s conflict with Iran-backed Houthi rebels escalated overnight.`\
 https://www.nytimes.com/2026/08/08/world/middleeast/yemen-houthis-regional-stability.html
