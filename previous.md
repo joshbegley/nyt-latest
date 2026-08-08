@@ -1,3 +1,39 @@
+**Yemen Teeters on Civil War as Regional Stability Hangs in the Balance**\
+`While the Middle East waits to hear whether a deal can be reached to reopen the Strait of Hormuz, the Yemeni government’s conflict with Iran-backed Houthi rebels escalated overnight.`\
+https://www.nytimes.com/2026/08/08/world/middleeast/yemen-houthis-regional-stability.html
+
+**Hello, Democrats? Are You Listening?**\
+`Michigan presents as much a warning as it does an opportunity.`\
+https://www.nytimes.com/2026/08/08/opinion/democrats-michigan-midterm-el-sayed.html
+
+**A War Zone in Your Backyard**\
+`I watched, heartbroken and sleepless, as my boyhood stamping ground fell to spikes of wind-driven flame.`\
+https://www.nytimes.com/2026/08/08/opinion/wildfires-washington-spokane-climate-change.html
+
+**Who’s Afraid of the Big Bad Organizers?**\
+`Democrats are going to have to organize voters — not just fund-raise off them.`\
+https://www.nytimes.com/2026/08/08/opinion/socialist-wave-democratic-party.html
+
+**‘Cats: The Jellicle Ball’ Is Not What’s Wrong With Broadway**\
+`“Cats: The Jellicle Ball” was a success, despite its short run.`\
+https://www.nytimes.com/2026/08/08/opinion/cats-jellicle-ball-closing-webber-de-shields.html
+
+**A Lot of the Attacks on Higher Ed Are Unfair. Not This One.**\
+`By protecting a star from plagiarism charges, a storied college undermined its values.`\
+https://www.nytimes.com/2026/08/08/opinion/cambridge-plagiarism-arday-higher-education.html
+
+**What American Poverty Looks Like**\
+`A Latin American sees homes that have air-conditioning but are racked by addiction and puzzles over what it means to be poor.`\
+https://www.nytimes.com/2026/08/08/opinion/america-poverty-peru.html
+
+**Who Is My Enemy? I’m No Longer Sure.**\
+`Where does the side of the angels really lie?`\
+https://www.nytimes.com/2026/08/08/opinion/obama-trump-biden-enemy.html
+
+**Hanging On to This Old House**\
+`Readers respond to a guest essay about what happens when your home is also your nest egg.`\
+https://www.nytimes.com/2026/08/08/opinion/housing-retirement-elderly.html
+
 **Hello, Democrats? Are You Listening?**\
 `Michigan presents as much a warning as it does an opportunity.`\
 https://www.nytimes.com/video/opinion/100000011077969/hello-democrats-are-you-listening.html
@@ -108,7 +144,7 @@ https://www.nytimes.com/2026/08/08/style/erotic-review-sex-magazine-phoebe-philo
 
 **Where a Ring of Steel Once Stood, Belfast Unites at the Fleadh Cheoil**\
 `A weeklong celebration of Irish music and culture is bringing an expected 800,000 people to Northern Ireland’s capital. It’s a sign of how far the city has come decades after a bloody sectarian conflict.`\
-https://www.nytimes.com/2026/08/08/arts/music/where-a-ring-of-steel-once-stood-belfast-unites-in-song.html
+https://www.nytimes.com/2026/08/08/arts/music/irish-festival-belfast-fleadh-cheoil.html
 
 **The Garbage Trucks Outside Are Too Loud! What Can I Do?**\
 `Trash collection vehicles could be louder than what the city code allows. To prove it, these are the options.`\
@@ -161,40 +197,4 @@ https://www.nytimes.com/2026/08/08/arts/ventriloquist-dummies-austin-phillips.ht
 **Billy Strings Escaped the Darkness. He’s Playing to Not Go Back.**\
 `The singer and virtuoso guitar player shares how his mother’s death inspired his new album, “So Much for Goodbyes.”`\
 https://www.nytimes.com/video/podcasts/100000011080051/billy-strings-interview-guitar-music.html
-
-**Senate Passes Stopgap Bill to Avert Shutdown, Avoiding Skirmish Before Midterms**\
-`The move came more than a month before the spending deadline, reflecting an eagerness in both parties to avoid a messy fight before the midterm elections.`\
-https://www.nytimes.com/2026/08/08/us/politics/senate-passes-stopgap-bill-shutdown.html
-
-**Los síntomas de la ‘Cyclospora’ pueden volver, incluso después del tratamiento**\
-`Los expertos en salud intentan comprender cómo este parásito transmitido por los alimentos puede causar síntomas que aparecen y desaparecen, a veces durante semanas.`\
-https://www.nytimes.com/es/2026/08/08/espanol/cyclospora-sintomas.html
-
-**¡Querida, llama al doctor de abejas!**\
-`Las abejas productoras de miel enfrentan amenazas que pueden destruir colmenas enteras. Una nueva generación de veterinarios trabaja para impedirlo.`\
-https://www.nytimes.com/es/2026/08/08/espanol/ciencia-y-tecnologia/abejas-proteccion-veterinarios.html
-
-**Exdirectiva de Lululemon: la verdad sobre la IA en las empresas**\
-`La revolución de la IA se está estancando porque las empresas no quieren admitir que integrar la tecnología es costoso, lento y requiere esfuerzo humano.`\
-https://www.nytimes.com/es/2026/08/08/espanol/opinion/ia-como-se-usa-empresas-lululemon.html
-
-**Should N.Y. Bathhouses Be Allowed to Offer Space for Sex?**\
-`Two state lawmakers have proposed repealing a health code that prohibits establishments like bathhouses from allowing sexual activity.`\
-https://www.nytimes.com/2026/08/08/nyregion/gay-bathhouses-ny-law.html
-
-**She Cares for Holocaust Survivors. Her Job Will Soon End.**\
-`Since the ’90s, Rizy Horowitz has put on events and served food to survivors in Brooklyn. With fewer than 300 of them left at her nonprofit, she’s thinking about her next chapter.`\
-https://www.nytimes.com/2026/08/08/nyregion/holocaust-survivors-brooklyn.html
-
-**How Your ‘Sex and the City’ B.F.F. Spends a Day That Starts at Noon**\
-`Mario Cantone, who played Charlotte York’s bestie on the show, has a late breakfast of eggs and caviar with his husband at their apartment in Chelsea.`\
-https://www.nytimes.com/interactive/2026/08/08/nyregion/08routine-mario-cantone.html
-
-**NYT Spelling Bee Answers than August 8, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/08/08/crosswords/spelling-bee-forum.html
-
-**El estanque reflectante es el reflejo del Washington de Trump**\
-`Un gerente hotelero de la Organización Trump viajó a Las Vegas para encontrar una solución a los problemas de un monumento nacional. Esta es la historia sobre las consecuencias nunca antes contada.`\
-https://www.nytimes.com/es/2026/08/08/espanol/estados-unidos/trump-estanque-reflectante.html
 
