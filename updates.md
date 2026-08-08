@@ -1,3 +1,7 @@
+**Billy Strings Escaped the Darkness. He’s Playing to Not Go Back.**\
+`The singer and virtuoso guitar player shares how his mother’s death inspired his new album, “So Much for Goodbyes.”`\
+https://www.nytimes.com/video/podcasts/100000011080051/billy-strings-interview-guitar-music.html
+
 **Senate Passes Stopgap Bill to Avert Shutdown, Avoiding Skirmish Before Midterms**\
 `The move came more than a month before the spending deadline, reflecting an eagerness in both parties to avoid a messy fight before the midterm elections.`\
 https://www.nytimes.com/2026/08/08/us/politics/senate-passes-stopgap-bill.html
