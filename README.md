@@ -1,3 +1,7 @@
+**Syria Agrees to Reorganized Russian Military Presence**\
+`After more than a year and a half of negotiations, Syria and Russia have agreed on new parameters of Russia’s military presence in Syria. Syria said it opens the way for a new phase in relations.`\
+https://www.nytimes.com/2026/08/09/world/middleeast/syria-reorganized-russian-military-presence.html
+
 **A Young Soldier’s Reckoning With the Afghanistan War**\
 `Readers respond to a front-page essay by Thomas Gibbons-Neff, a veteran, and ponder the moral complexities of war. Also: Women victimized by Uber.`\
 https://www.nytimes.com/2026/08/09/opinion/afghanistan-war.html
@@ -110,7 +114,7 @@ https://www.nytimes.com/2026/08/09/us/kesey-furthur-bus-san-francisco.html
 `In a New York Times/Siena poll of battleground states, national parties were seen as too far to the right or the left, while nominees were viewed as more moderate.`\
 https://www.nytimes.com/2026/08/09/us/elections/poll-voters-political-parties-extreme.html
 
-**A Democratic Socialist Spreads the Word, Even in Hostile Territory**\
+**A Democratic Socialist Seeks New Voters in an Unlikely Place: Fox News**\
 `Gustavo Gordillo, a leader of the New York D.S.A., wants to reach new voters. But in interviews with conservative media, the backlash can be sharp.`\
 https://www.nytimes.com/2026/08/09/us/politics/gustavo-gordillo-democratic-socialists.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/08/09/espanol/mundo/iran-exigencias-estrecho-orm
 **How a Drone ‘Hellscape’ Might Stop a Chinese Invasion of Taiwan**\
 `Inspired by Ukraine’s battlefield gains, Taiwan is betting on drones to deter a potential Chinese invasion.`\
 https://www.nytimes.com/2026/08/09/world/asia/taiwan-drone-china-invasion.html
-
-**When Hobbies Come Before Romance**\
-`Is a packed social calendar the new relationship goals?`\
-https://www.nytimes.com/2026/08/09/style/single-dating-hobbies-hobbyamory.html
 
