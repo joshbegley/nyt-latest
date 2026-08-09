@@ -1,3 +1,7 @@
+**Mother and Daughter Die After Boat Overturns in New York Harbor**\
+`Police divers found a 27-year-old woman and her 5-month-old baby in the water near Liberty Island. A man was arrested and charged with reckless endangerment.`\
+https://www.nytimes.com/2026/08/09/nyregion/new-york-harbor-boat-capsizes-dead.html
+
 **Geraldine de Haas, ‘the First Lady of Chicago Jazz,’ Dies at 91**\
 `After a successful singing career, she led the revival of jazz in the Windy City in the 1970s and ’80s, organizing festivals and concert series.`\
 https://www.nytimes.com/2026/08/09/obituaries/geraldine-de-haas-dead.html
