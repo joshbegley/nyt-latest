@@ -1,3 +1,11 @@
+**The Pope’s Favorite Team**\
+`Are the Chicago White Sox blessed?`\
+https://www.nytimes.com/2026/08/09/briefing/the-popes-favorite-team.html
+
+**Now Coming to a Black Media Outlet Near You: Mayor Mamdani**\
+`Zohran Mamdani’s “all of the above” media strategy, which encompasses ethnic media, influencers and content creators, has led to a recent Black media blitz.`\
+https://www.nytimes.com/2026/08/09/nyregion/black-media-mamdani.html
+
 **Hunter Biden Says His Father’s Cancer Is Worsening**\
 `In an interview with the BBC, Mr. Biden said that former President Joseph R. ⁠Biden Jr.’s prostate cancer had spread into his bones and was causing pain.`\
 https://www.nytimes.com/2026/08/08/us/politics/hunter-biden-joe-biden-cancer.html

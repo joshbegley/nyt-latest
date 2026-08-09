@@ -1,3 +1,7 @@
+**Israel Rejects Trump’s 15-Point Plan to Disarm Hamas**\
+`President Trump’s Board of Peace announced an agreement last month that aimed at Hamas giving up its weapons alongside an Israeli withdrawal from Gaza.`\
+https://www.nytimes.com/2026/08/09/world/middleeast/israel-netanyahu-trump-15-point-plan-hamas-peace-gaza.html
+
 **The Pope’s Favorite Team**\
 `Are the Chicago White Sox blessed?`\
 https://www.nytimes.com/2026/08/09/briefing/the-popes-favorite-team.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/08/t-magazine/maurizio-cattelan-last-supper-dinn
 **Chuck Grassley Announces the Death of His Beloved Vacuum, Beth**\
 `Senator Chuck Grassley mourned his decades-long cleaning companion, writing on social media: “GOOD BYE BETH. U hv been a real workhorse.”`\
 https://www.nytimes.com/2026/08/08/us/politics/beth-vacuum-chuck-grassley-iowa.html
-
-**Abbe Lane, Sultry Singer With a Latin Flair, Dies at 94**\
-`She was a Broadway dancer before becoming Xavier Cugat’s star vocalist and later building a solo career.`\
-https://www.nytimes.com/2026/08/08/arts/music/abbe-lane-dead.html
 
