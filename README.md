@@ -196,5 +196,5 @@ https://www.nytimes.com/2026/08/08/us/politics/max-miller-ohio-republican.html
 
 **Hunter Biden Says His Father’s Cancer Is Worsening**\
 `In an interview with the BBC, Mr. Biden said that former President Joseph R. ⁠Biden Jr.’s prostate cancer had spread into his bones and was causing pain.`\
-https://www.nytimes.com/2026/08/08/us/politics/hunter-biden-says-his-fathers-cancer-is-worsening.html
+https://www.nytimes.com/2026/08/08/us/politics/hunter-biden-joe-biden-cancer.html
 
