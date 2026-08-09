@@ -1,4 +1,4 @@
-**Ocasio-Cortez Says She Is Freezing Her Eggs**\
+**Ocasio-Cortez Says She Is Freezing Her Eggs and Still Mulling a Presidential Run**\
 `In videos on social media, Representative Alexandria Ocasio-Cortez said she wanted “to show more depictions of women having full lives in every context and every choice.”`\
 https://www.nytimes.com/2026/08/09/nyregion/nyc-alexandria-ocasio-cortez-freezing-eggs.html
 
