@@ -1,3 +1,15 @@
+**Geraldine de Haas, ‘the First Lady of Chicago Jazz,’ Dies at 91**\
+`After a successful singing career, she led the revival of jazz in the Windy City in the 1970s and ’80s, organizing festivals and concert series.`\
+https://www.nytimes.com/2026/08/09/obituaries/geraldine-de-haas-dead.html
+
+**A Young Marine’s Reckoning With the Afghanistan War**\
+`Readers respond to a front-page essay by Thomas Gibbons-Neff, a Marine veteran, and ponder the moral complexities of war. Also: Women victimized by Uber.`\
+https://www.nytimes.com/2026/08/09/opinion/afghanistan-war.html
+
+**The ‘Furthur’ Bus’s Long, Strange Trip, and Why It’s Returning to San Francisco**\
+`Ken Kesey’s psychedelic bus, immortalized in “The Electric Kool-Aid Acid Test,” is preparing for one more run. And to its owners, America sure could use it.`\
+https://www.nytimes.com/2026/08/09/us/kesey-furthur-bus-san-francisco.html
+
 **2 Die After Boat Overturns in New York Harbor**\
 `Police divers found a 27-year-old woman and a 5-month-old baby in the water near Liberty Island. A man was arrested and charged with reckless endangerment.`\
 https://www.nytimes.com/2026/08/09/nyregion/new-york-harbor-boat-capsizes-dead.html

@@ -1,3 +1,7 @@
+**Geraldine de Haas, ‘the First Lady of Chicago Jazz,’ Dies at 91**\
+`After a successful singing career, she led the revival of jazz in the Windy City in the 1970s and ’80s, organizing festivals and concert series.`\
+https://www.nytimes.com/2026/08/09/obituaries/geraldine-de-haas-dead.html
+
 **Ocasio-Cortez Says She Is Freezing Her Eggs and Still Mulling a Presidential Run**\
 `In videos on social media, Representative Alexandria Ocasio-Cortez said she wanted “to show more depictions of women having full lives in every context and every choice.”`\
 https://www.nytimes.com/2026/08/09/nyregion/nyc-alexandria-ocasio-cortez-freezing-eggs.html
@@ -15,7 +19,7 @@ https://www.nytimes.com/2026/08/09/world/europe/iran-strait-hormuz-trump-deal.ht
 https://www.nytimes.com/2026/08/09/world/middleeast/syria-reorganized-russian-military-presence.html
 
 **A Young Marine’s Reckoning With the Afghanistan War**\
-`Readers respond to a front-page essay by Thomas Gibbons-Neff, a veteran, and ponder the moral complexities of war. Also: Women victimized by Uber.`\
+`Readers respond to a front-page essay by Thomas Gibbons-Neff, a Marine veteran, and ponder the moral complexities of war. Also: Women victimized by Uber.`\
 https://www.nytimes.com/2026/08/09/opinion/afghanistan-war.html
 
 **Laughing-in-Delight-While-You-Eat Delicious**\
@@ -119,7 +123,7 @@ https://www.nytimes.com/2026/08/09/arts/music/tupac-shakur-murder-trial-duane-da
 https://www.nytimes.com/2026/08/09/style/anthony-scaramuccis-podcast-trump.html
 
 **The ‘Furthur’ Bus’s Long, Strange Trip, and Why It’s Returning to San Francisco**\
-`The psychedelic bus whose passengers hit the road and fueled ’60s counterculture is coming back out. And to its owners, America sure could use it.`\
+`Ken Kesey’s psychedelic bus, immortalized in “The Electric Kool-Aid Acid Test,” is preparing for one more run. And to its owners, America sure could use it.`\
 https://www.nytimes.com/2026/08/09/us/kesey-furthur-bus-san-francisco.html
 
 **Poll: Voters See Political Parties as More Extreme Than Their Own Candidates**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/09/crosswords/spelling-bee-forum.html
 **Moderate Democrat in Hawaii Easily Defeats Progressive House Challenger**\
 `Representative Ed Case beat Jarrett Keohokalole, a younger progressive, in a race that centered on questions of generational change and the state’s skyrocketing cost of living.`\
 https://www.nytimes.com/2026/08/09/us/politics/hawaii-ed-case-jarrett-keohokalole.html
-
-**It Won’t Stop at the Arc de Trump. It Won’t Stop at Washington.**\
-`The Trump administration’s proposed changes to the review process will allow it to take a wrecking ball to historic sites across the country.`\
-https://www.nytimes.com/2026/08/09/opinion/trump-washington-landmarks-arch-pool-east-wing.html
 
