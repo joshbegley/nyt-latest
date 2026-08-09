@@ -1,3 +1,7 @@
+**Netanyahu rechaza el plan de Trump para desarmar a Hamás**\
+`La propuesta contempla un proceso en el que Hamás entregaría sus armas en etapas a un nuevo gobierno palestino en Gaza. A cambio, Israel se retiraría gradualmente.`\
+https://www.nytimes.com/es/2026/08/09/espanol/mundo/trump-plan-netanyahu-hamas.html
+
 **El calor se extenderá por Europa antes del eclipse**\
 `Las temperaturas disminuyeron en algunas zonas de Europa, pero se pronostica que aumentarán de nuevo en los próximos días.`\
 https://www.nytimes.com/es/2026/08/09/espanol/tiempo-y-clima/calor-europa-eclipse.html
