@@ -1,3 +1,7 @@
+**Israel Rejects Trump’s 15-Point Plan to Disarm Hamas**\
+`President Trump’s Board of Peace announced an agreement last month that aimed at Hamas giving up its weapons alongside an Israeli withdrawal from Gaza.`\
+https://www.nytimes.com/2026/08/09/world/middleeast/israel-netanyahu-trump-15-point-plan-hamas-peace-gaza.html
+
 **The Pope’s Favorite Team**\
 `Are the Chicago White Sox blessed?`\
 https://www.nytimes.com/2026/08/09/briefing/the-popes-favorite-team.html
