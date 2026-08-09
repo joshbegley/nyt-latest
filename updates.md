@@ -1,3 +1,7 @@
+**Don Nelson, Hall of Fame N.B.A. Coach and Celtics Star, Dies at 86**\
+`One of the winningest coaches in league history, he led the Bucks, the Warriors and the Mavericks. He also had a brief stint with the Knicks.`\
+https://www.nytimes.com/2026/08/09/obituaries/don-nelson-dead.html
+
 **Don Nelson, Hall of Fame NBA Coach and Celtics Star, Dies at 86**\
 `One of the winningest coaches in league history, he led the Bucks, the Warriors and the Mavericks. He also had a brief stint with the Knicks.`\
 https://www.nytimes.com/2026/08/09/obituaries/don-nelson-dead.html
