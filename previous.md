@@ -1,3 +1,79 @@
+**Esta es la dieta de los hombres más poderosos de EE. UU. Yo la probé**\
+`Me intrigaba que hubiera una dieta radical y varonil para personas radicales y varoniles. Los resultados fueron fascinantes.`\
+https://www.nytimes.com/es/2026/08/09/espanol/dieta-hombres-poderosos.html
+
+**¿Tengo la obligación de decirles a mis amigas que el bótox se les ve mal?**\
+`Cada vez son más duras con ellas mismas, y no creo que se den cuenta de lo extremo que se ha vuelto.`\
+https://www.nytimes.com/es/2026/08/09/espanol/amiga-botox-critica.html
+
+**Corrections: Aug. 9, 2026**\
+`Corrections that appeared in print on Sunday, Aug. 9, 2026.`\
+https://www.nytimes.com/2026/08/09/pageoneplus/corrections-aug-9-2026.html
+
+**In Michigan, a Former Trump Critic Shifts Toward Election Skepticism**\
+`Mike Rogers, the Republican Senate nominee, has suggested that further scrutiny of the 2020 election was warranted and that voting irregularities sunk his first Senate bid two years ago.`\
+https://www.nytimes.com/2026/08/09/us/politics/mike-rogers-michigan-senate-elections.html
+
+**A Democrat Sounds the Alarm on Christian Nationalism in Congress**\
+`Representative Jared Huffman of California, the only self-declared “humanist” in Congress, writes in a new book that the separation of church and state is in grave danger.`\
+https://www.nytimes.com/2026/08/09/us/politics/a-democrat-sounds-the-alarm-on-christian-nationalism-in-congress.html
+
+**She Makes the Impossible Happen for Her Ultrarich Clients**\
+`Olivia Ferney grew up a child of schoolteachers in Ontario. Now she’s an expert in private jets, luxury cabanas and champagne-soaked revels.`\
+https://www.nytimes.com/2026/08/09/style/she-makes-the-impossible-happen-for-her-ultrarich-clients.html
+
+**What to Know About the Tupac Murder, Trial and Suspect**\
+`Three decades after the rapper Tupac Shakur was killed in Las Vegas, a man who prosecutors say provided the murder weapon is scheduled to go to trial.`\
+https://www.nytimes.com/2026/08/09/arts/music/tupac-shakur-murder-trial-duane-davis.html
+
+**Anthony Scaramucci, Podcast Star, Explains U.S. Politics to the World**\
+`He spent 11 days in the Trump White House nine years ago. Now he has a hit podcast, helping the British public, among others, understand what’s going on.`\
+https://www.nytimes.com/2026/08/09/style/anthony-scaramuccis-podcast-trump.html
+
+**The ‘Furthur’ Bus’s Long, Strange Trip, and Why It’s Returning to San Francisco**\
+`The psychedelic bus whose passengers hit the road and fueled ’60s counterculture is coming back out. And to its owners, America sure could use it.`\
+https://www.nytimes.com/2026/08/09/us/kesey-furthur-bus-san-francisco.html
+
+**Poll: Voters See Political Parties as More Extreme Than Their Own Candidates**\
+`In a New York Times/Siena poll of battleground states, national parties were seen as too far to the right or the left, while nominees were viewed as more moderate.`\
+https://www.nytimes.com/2026/08/09/us/elections/poll-voters-political-parties-extreme.html
+
+**A Democratic Socialist Spreads the Word, Even in Hostile Territory**\
+`Gustavo Gordillo, a leader of the New York D.S.A., wants to reach new voters. But in interviews with conservative media, the backlash can be sharp.`\
+https://www.nytimes.com/2026/08/09/us/politics/gustavo-gordillo-democratic-socialists.html
+
+**As the Climate Warms, Beavers are Coming for Canada’s Arctic**\
+`Drawn by a warming climate, Canada’s furry national symbol is colonizing new territory, evading Inuit hunters and reshaping the world they find.`\
+https://www.nytimes.com/2026/08/09/world/canada/arctic-beavers-canada-climate-umiujaq-quebec.html
+
+**Kalshi’s Tarek Mansour Isn’t Interested in Management Advice**\
+`Tarek Mansour co-founded the fast-growing prediction market company shortly after graduating from M.I.T., aiming to provide a “mathematical, objective” view of the world.`\
+https://www.nytimes.com/2026/08/09/business/kalshi-tarek-mansour-prediction-markets.html
+
+**Book Review: “Finding Renée Richards: The Groundbreaking Story of Tennis’s Trans Pioneer”**\
+`Julie Kliegman’s thorough biography of the transgender tennis player is fascinatingly complicated by her changed stance on gender and sports.`\
+https://www.nytimes.com/2026/08/09/books/review/finding-renee-richards-julie-kliegman.html
+
+**The Lonely Crew at the Kennedy Center Will Miss Its…Mice**\
+`Employees say the performing arts center’s quirky-looking mice have an exotic back story. Do they?`\
+https://www.nytimes.com/2026/08/09/us/politics/kennedy-center-renovation-mice.html
+
+**Trump Crypto Took $100 Million From a Businessman With Red Flags**\
+`The curious case of Guren “Bobby” Zhou shows the ease with which investors with shady backgrounds and unknown motivations can funnel money to the president.`\
+https://www.nytimes.com/2026/08/09/us/politics/bobby-zhou-trump-crypto.html
+
+**Nostalgia Is Bringing Gen Z Together Globally**\
+`Lily Kuo and Callie Holtermann, two New York Times reporters, came across similar nostalgia trends on opposite sides of the world. They discuss how these trends developed independently, what makes each unique and what’s driving them.`\
+https://www.nytimes.com/video/arts/design/100000011021653/nostalgia-is-bringing-gen-z-together-globally.html
+
+**A Maine Town, Once Dependent on a Paper Mill, Tries to Move On**\
+`For over a century, Madison Paper Industries was a small Maine town’s economic engine. A new owner moved in, but uncertainty persists.`\
+https://www.nytimes.com/2026/08/09/business/manufacturing-mill-town-madison-maine.html
+
+**Inside the War on Hezbollah’s Finances**\
+`Israel and the United States aren’t just targeting the Lebanese militant group’s weapons. They’re going after its money.`\
+https://www.nytimes.com/2026/08/09/world/europe/lebanon-hezbollah-iran-us-finances.html
+
 **Justin Trudeau, Katy Perry y el ‘look’ del estadista convertido en celebridad**\
 `Lo que dice el cambio de imagen del ex primer ministro de Canadá sobre la intersección entre la política y el entretenimiento.`\
 https://www.nytimes.com/es/2026/08/09/espanol/estilos-de-vida/justin-trudeau-katy-perry-look.html
@@ -121,80 +197,4 @@ https://www.nytimes.com/2026/08/08/world/canada/canada-summerland-bc-wildfire-ba
 **Senate Confirms Blanche as Attorney General**\
 `The Senate confirmed Todd Blanche as attorney general on Saturday, pushing past criticism over whether he would compromise the Justice Department’s independence.`\
 https://www.nytimes.com/video/us/politics/100000011081301/senate-blanche-attorney-general.html
-
-**Outbreak of Vibrio Vulnificus, a Flesh-Eating Bacteria, Kills 5 in Louisiana**\
-`Vibrio vulnificus, which thrives in warm, brackish water, has also killed two people in Florida this year.`\
-https://www.nytimes.com/2026/08/08/us/louisiana-vibrio-vulnificus-outbreak-flesh-eating-bacteria.html
-
-**The U.S. Is Burning Through Weapons in Iran. Russia and China Are Taking Note.**\
-`The Iran war has depleted U.S. weapons stockpiles, resulting in a significant erosion of firepower. A more drawn-out Iran conflict benefits Moscow and Beijing, some analysts say.`\
-https://www.nytimes.com/2026/08/08/us/politics/pentagon-weapons-stockpiles-china-russia.html
-
-**In Confirming Blanche, Senators Endorse a Justice Dept. Under Trump’s Sway**\
-`Time and again, Todd Blanche has made it clear that he believes President Trump possesses a nearly limitless right to directly control the actions of the Justice Department.`\
-https://www.nytimes.com/2026/08/08/us/politics/blanche-attorney-general-doj-trump-power.html
-
-**Hawaii Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Hawaii primary elections.`\
-https://www.nytimes.com/interactive/2026/08/08/us/elections/results-hawaii-primary.html
-
-**California Knows How to Salad**\
-`Pluot-tomato salad with suya pistachio crunch; charred corn and Cheddar salad; summer melon spoon salad; heirloom tomatoes with fish sauce vinaigrette.`\
-https://www.nytimes.com/2026/08/08/dining/california-knows-how-to-salad.html
-
-**Hawaii First Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Hawaii primary election.`\
-https://www.nytimes.com/interactive/2026/08/08/us/elections/results-hawaii-us-house-1-primary.html
-
-**Hawaii Governor Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Hawaii primary election.`\
-https://www.nytimes.com/interactive/2026/08/08/us/elections/results-hawaii-governor-primary.html
-
-**Iran Issues List of Demands, Dampening Hopes of Reopening Strait of Hormuz**\
-`The head of Iran’s Supreme National Security Council said that the Strait of Hormuz would remain closed until the United States met certain conditions.`\
-https://www.nytimes.com/2026/08/08/world/middleeast/iran-us-oman-strait-of-hormuz.html
-
-**Hawaii Second Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Hawaii primary election.`\
-https://www.nytimes.com/interactive/2026/08/08/us/elections/results-hawaii-us-house-2-primary.html
-
-**Hawaii Lieutenant Governor Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Hawaii primary election.`\
-https://www.nytimes.com/interactive/2026/08/08/us/elections/results-hawaii-lieutenant-governor-primary.html
-
-**Our Most Popular Desserts This Summer**\
-`(No description)`\
-https://www.nytimes.com/2026/08/08/dining/our-most-popular-desserts-this-summer.html
-
-**8 pódcasts sobre bienestar que recomiendo**\
-`Enfermedades infecciosas, salud mental, duelo y cómo ayudar a los adultos mayores, son solo algunos de los temas que tratan algunas de estas recomendaciones.`\
-https://www.nytimes.com/es/2026/08/08/espanol/estilos-de-vida/podcasts-bienestar-salud.html
-
-**Think It’s Cool to Wear Fancy Sneakers to Work? You Might Be Old.**\
-`After years of office casual, young people are embracing loafers, derbies and oxfords.`\
-https://www.nytimes.com/2026/08/08/business/dealbook/loafers-sneakers-work.html
-
-**Yemen Teeters on Civil War as Regional Stability Hangs in the Balance**\
-`While the Middle East waits to hear whether a deal can be reached to reopen the Strait of Hormuz, the Yemeni government’s conflict with Iran-backed Houthi rebels escalated overnight.`\
-https://www.nytimes.com/2026/08/08/world/middleeast/yemen-houthis-regional-stability.html
-
-**Hello, Democrats? Are You Listening?**\
-`Michigan presents as much a warning as it does an opportunity.`\
-https://www.nytimes.com/2026/08/08/opinion/democrats-michigan-midterm-el-sayed.html
-
-**My Hometown Went Up in Flames. It Won’t Be the Last.**\
-`I watched, heartbroken and sleepless, as my boyhood stamping ground fell to spikes of wind-driven flame.`\
-https://www.nytimes.com/2026/08/08/opinion/wildfires-washington-spokane-climate-change.html
-
-**Socialists Are Winning Because They Listen to People**\
-`Democrats are going to have to organize voters — not just fund-raise off them.`\
-https://www.nytimes.com/2026/08/08/opinion/socialist-wave-democratic-party.html
-
-**‘Cats: The Jellicle Ball’ Is Not What’s Wrong With Broadway**\
-`“Cats: The Jellicle Ball” was a success, despite its short run.`\
-https://www.nytimes.com/2026/08/08/opinion/cats-jellicle-ball-closing-webber-de-shields.html
-
-**A Top Scholar’s Fall Shows That Universities Don’t Get It**\
-`By protecting a star from plagiarism charges, a storied college undermined its values.`\
-https://www.nytimes.com/2026/08/08/opinion/cambridge-plagiarism-arday-higher-education.html
 

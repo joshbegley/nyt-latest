@@ -182,7 +182,7 @@ https://www.nytimes.com/2026/08/08/us/bill-goichberg-dead.html
 `The summer exit confirmed what had been apparent for weeks: that Republicans lacked the votes to pass the voting restrictions the president has made a top priority.`\
 https://www.nytimes.com/2026/08/08/us/politics/senate-bows-to-reality-leaving-trumps-voting-bill-undone.html
 
-**Blackbird Mountain Guides Report on Lake Tahoe Avalanche That Killed 9 Skiers Assigns No Blame.**\
+**Blackbird Mountain Guides Report on Lake Tahoe Avalanche That Killed 9 Skiers Assigns No Blame**\
 `The report was commissioned by Blackbird Mountain Guides, which was in charge of the trip near Lake Tahoe in February.`\
 https://www.nytimes.com/2026/08/08/us/tahoe-avalanche-blackbird-report.html
 

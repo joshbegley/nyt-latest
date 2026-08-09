@@ -1,3 +1,79 @@
+**Esta es la dieta de los hombres más poderosos de EE. UU. Yo la probé**\
+`Me intrigaba que hubiera una dieta radical y varonil para personas radicales y varoniles. Los resultados fueron fascinantes.`\
+https://www.nytimes.com/es/2026/08/09/espanol/dieta-hombres-poderosos.html
+
+**¿Tengo la obligación de decirles a mis amigas que el bótox se les ve mal?**\
+`Cada vez son más duras con ellas mismas, y no creo que se den cuenta de lo extremo que se ha vuelto.`\
+https://www.nytimes.com/es/2026/08/09/espanol/amiga-botox-critica.html
+
+**Corrections: Aug. 9, 2026**\
+`Corrections that appeared in print on Sunday, Aug. 9, 2026.`\
+https://www.nytimes.com/2026/08/09/pageoneplus/corrections-aug-9-2026.html
+
+**In Michigan, a Former Trump Critic Shifts Toward Election Skepticism**\
+`Mike Rogers, the Republican Senate nominee, has suggested that further scrutiny of the 2020 election was warranted and that voting irregularities sunk his first Senate bid two years ago.`\
+https://www.nytimes.com/2026/08/09/us/politics/mike-rogers-michigan-senate-elections.html
+
+**A Democrat Sounds the Alarm on Christian Nationalism in Congress**\
+`Representative Jared Huffman of California, the only self-declared “humanist” in Congress, writes in a new book that the separation of church and state is in grave danger.`\
+https://www.nytimes.com/2026/08/09/us/politics/a-democrat-sounds-the-alarm-on-christian-nationalism-in-congress.html
+
+**She Makes the Impossible Happen for Her Ultrarich Clients**\
+`Olivia Ferney grew up a child of schoolteachers in Ontario. Now she’s an expert in private jets, luxury cabanas and champagne-soaked revels.`\
+https://www.nytimes.com/2026/08/09/style/she-makes-the-impossible-happen-for-her-ultrarich-clients.html
+
+**What to Know About the Tupac Murder, Trial and Suspect**\
+`Three decades after the rapper Tupac Shakur was killed in Las Vegas, a man who prosecutors say provided the murder weapon is scheduled to go to trial.`\
+https://www.nytimes.com/2026/08/09/arts/music/tupac-shakur-murder-trial-duane-davis.html
+
+**Anthony Scaramucci, Podcast Star, Explains U.S. Politics to the World**\
+`He spent 11 days in the Trump White House nine years ago. Now he has a hit podcast, helping the British public, among others, understand what’s going on.`\
+https://www.nytimes.com/2026/08/09/style/anthony-scaramuccis-podcast-trump.html
+
+**The ‘Furthur’ Bus’s Long, Strange Trip, and Why It’s Returning to San Francisco**\
+`The psychedelic bus whose passengers hit the road and fueled ’60s counterculture is coming back out. And to its owners, America sure could use it.`\
+https://www.nytimes.com/2026/08/09/us/kesey-furthur-bus-san-francisco.html
+
+**Poll: Voters See Political Parties as More Extreme Than Their Own Candidates**\
+`In a New York Times/Siena poll of battleground states, national parties were seen as too far to the right or the left, while nominees were viewed as more moderate.`\
+https://www.nytimes.com/2026/08/09/us/elections/poll-voters-political-parties-extreme.html
+
+**A Democratic Socialist Spreads the Word, Even in Hostile Territory**\
+`Gustavo Gordillo, a leader of the New York D.S.A., wants to reach new voters. But in interviews with conservative media, the backlash can be sharp.`\
+https://www.nytimes.com/2026/08/09/us/politics/gustavo-gordillo-democratic-socialists.html
+
+**As the Climate Warms, Beavers are Coming for Canada’s Arctic**\
+`Drawn by a warming climate, Canada’s furry national symbol is colonizing new territory, evading Inuit hunters and reshaping the world they find.`\
+https://www.nytimes.com/2026/08/09/world/canada/arctic-beavers-canada-climate-umiujaq-quebec.html
+
+**Kalshi’s Tarek Mansour Isn’t Interested in Management Advice**\
+`Tarek Mansour co-founded the fast-growing prediction market company shortly after graduating from M.I.T., aiming to provide a “mathematical, objective” view of the world.`\
+https://www.nytimes.com/2026/08/09/business/kalshi-tarek-mansour-prediction-markets.html
+
+**Book Review: “Finding Renée Richards: The Groundbreaking Story of Tennis’s Trans Pioneer”**\
+`Julie Kliegman’s thorough biography of the transgender tennis player is fascinatingly complicated by her changed stance on gender and sports.`\
+https://www.nytimes.com/2026/08/09/books/review/finding-renee-richards-julie-kliegman.html
+
+**The Lonely Crew at the Kennedy Center Will Miss Its…Mice**\
+`Employees say the performing arts center’s quirky-looking mice have an exotic back story. Do they?`\
+https://www.nytimes.com/2026/08/09/us/politics/kennedy-center-renovation-mice.html
+
+**Trump Crypto Took $100 Million From a Businessman With Red Flags**\
+`The curious case of Guren “Bobby” Zhou shows the ease with which investors with shady backgrounds and unknown motivations can funnel money to the president.`\
+https://www.nytimes.com/2026/08/09/us/politics/bobby-zhou-trump-crypto.html
+
+**Nostalgia Is Bringing Gen Z Together Globally**\
+`Lily Kuo and Callie Holtermann, two New York Times reporters, came across similar nostalgia trends on opposite sides of the world. They discuss how these trends developed independently, what makes each unique and what’s driving them.`\
+https://www.nytimes.com/video/arts/design/100000011021653/nostalgia-is-bringing-gen-z-together-globally.html
+
+**A Maine Town, Once Dependent on a Paper Mill, Tries to Move On**\
+`For over a century, Madison Paper Industries was a small Maine town’s economic engine. A new owner moved in, but uncertainty persists.`\
+https://www.nytimes.com/2026/08/09/business/manufacturing-mill-town-madison-maine.html
+
+**Inside the War on Hezbollah’s Finances**\
+`Israel and the United States aren’t just targeting the Lebanese militant group’s weapons. They’re going after its money.`\
+https://www.nytimes.com/2026/08/09/world/europe/lebanon-hezbollah-iran-us-finances.html
+
 **Justin Trudeau, Katy Perry y el ‘look’ del estadista convertido en celebridad**\
 `Lo que dice el cambio de imagen del ex primer ministro de Canadá sobre la intersección entre la política y el entretenimiento.`\
 https://www.nytimes.com/es/2026/08/09/espanol/estilos-de-vida/justin-trudeau-katy-perry-look.html
