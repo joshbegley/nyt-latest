@@ -1,3 +1,7 @@
+**Still Waiting for Peace in Gaza**\
+`A photojournalist with The New York Times details the displacement and danger, in words and images, that have come to define his home.`\
+https://www.nytimes.com/2026/08/09/world/gaza-israel-iran.html
+
 **Don Nelson, Hall of Fame N.B.A. Coach and Celtics Star, Dies at 86**\
 `One of the winningest coaches in league history, he led the Bucks, the Warriors and the Mavericks. He also had a brief stint with the Knicks.`\
 https://www.nytimes.com/2026/08/09/obituaries/don-nelson-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/09/world/europe/lebanon-hezbollah-iran-us-financ
 **Justin Trudeau, Katy Perry y el ‘look’ del estadista convertido en celebridad**\
 `Lo que dice el cambio de imagen del ex primer ministro de Canadá sobre la intersección entre la política y el entretenimiento.`\
 https://www.nytimes.com/es/2026/08/09/espanol/estilos-de-vida/justin-trudeau-katy-perry-look.html
-
-**Es la mujer más rica de Rusia. Su imperio empresarial está en llamas**\
-`Mientras Ucrania ataca repetidamente los almacenes del sitio de comercio electrónico Wildberries, Tatyana Kim, su multimillonaria cofundadora, se enfrenta a su mayor prueba hasta ahora.`\
-https://www.nytimes.com/es/2026/08/09/espanol/mundo/wildberries-rusia-tienda-ataques-ucrania.html
 
