@@ -1,5 +1,5 @@
-**Books to Make You Feel Something**\
-`Or: Believing’s summer reading list.`\
+**Believing’s Summer Reading List**\
+`Today, I’m sharing some of what I’ve been reading — and what you’ve told me you’re reading,`\
 https://www.nytimes.com/2026/08/09/briefing/books-to-make-you-feel-something.html
 
 **Esta es la dieta de los hombres más poderosos de EE. UU. Yo la probé**\
