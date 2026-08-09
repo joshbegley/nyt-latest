@@ -14,7 +14,7 @@ https://www.nytimes.com/2026/08/09/world/europe/iran-strait-hormuz-trump-deal.ht
 `After more than a year and a half of negotiations, Syria and Russia have agreed on new parameters of Russia’s military presence in Syria. Syria said it opens the way for a new phase in relations.`\
 https://www.nytimes.com/2026/08/09/world/middleeast/syria-reorganized-russian-military-presence.html
 
-**A Young Soldier’s Reckoning With the Afghanistan War**\
+**A Young Marine’s Reckoning With the Afghanistan War**\
 `Readers respond to a front-page essay by Thomas Gibbons-Neff, a veteran, and ponder the moral complexities of war. Also: Women victimized by Uber.`\
 https://www.nytimes.com/2026/08/09/opinion/afghanistan-war.html
 

@@ -1,3 +1,7 @@
+**A Young Marine’s Reckoning With the Afghanistan War**\
+`Readers respond to a front-page essay by Thomas Gibbons-Neff, a veteran, and ponder the moral complexities of war. Also: Women victimized by Uber.`\
+https://www.nytimes.com/2026/08/09/opinion/afghanistan-war.html
+
 **Ocasio-Cortez Says She Is Freezing Her Eggs**\
 `In videos on social media, Representative Alexandria Ocasio-Cortez said she wanted “to show more depictions of women having full lives in every context and every choice.”`\
 https://www.nytimes.com/2026/08/09/nyregion/nyc-alexandria-ocasio-cortez-freezing-eggs.html
