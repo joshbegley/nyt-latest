@@ -43,7 +43,7 @@ https://www.nytimes.com/2026/08/09/briefing/the-popes-favorite-team.html
 https://www.nytimes.com/2026/08/09/nyregion/black-media-mamdani.html
 
 **2 Die After Boat Overturns in New York Harbor, Police Say**\
-`Police divers found a 27-year-old woman and a 5-month-old baby in the water near Liberty Island. They were pronounced dead at a hospital.`\
+`Police divers found a 27-year-old woman and a 5-month-old baby in the water near Liberty Island. A man was arrested and charged with reckless endangerment.`\
 https://www.nytimes.com/2026/08/09/nyregion/new-york-harbor-boat-capsizes-dead.html
 
 **Has America Already Undergone a Soft Breakup?**\
