@@ -1,3 +1,7 @@
+**Blackbird Mountain Guides Report on Lake Tahoe Avalanche That Killed 9 Skiers Assigns No Blame**\
+`The report was commissioned by Blackbird Mountain Guides, which was in charge of the trip near Lake Tahoe in February.`\
+https://www.nytimes.com/2026/08/08/us/tahoe-avalanche-blackbird-report.html
+
 **Esta es la dieta de los hombres más poderosos de EE. UU. Yo la probé**\
 `Me intrigaba que hubiera una dieta radical y varonil para personas radicales y varoniles. Los resultados fueron fascinantes.`\
 https://www.nytimes.com/es/2026/08/09/espanol/dieta-hombres-poderosos.html
