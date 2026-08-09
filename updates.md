@@ -1,3 +1,11 @@
+**A Young Soldier’s Reckoning With the Afghanistan War**\
+`Readers respond to a front-page essay by Thomas Gibbons-Neff, a veteran, and ponder the moral complexities of war. Also: Women victimized by Uber.`\
+https://www.nytimes.com/2026/08/09/opinion/afghanistan-war.html
+
+**Laughing-in-Delight-While-You-Eat Delicious**\
+`That’s these — what else? — perfectly engineered BLTs, plus more fast tomato dinners.`\
+https://www.nytimes.com/2026/08/09/dining/laughing-in-delight-while-you-eat-delicious.html
+
 **In Michigan, a Former Trump Critic Shifts Toward Election Skepticism**\
 `Mike Rogers, the Republican Senate nominee, has suggested that further scrutiny of the 2020 election was warranted and that voting irregularities had sunk his first Senate bid two years ago.`\
 https://www.nytimes.com/2026/08/09/us/politics/mike-rogers-michigan-senate-elections.html

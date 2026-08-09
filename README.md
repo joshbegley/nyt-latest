@@ -30,7 +30,7 @@ https://www.nytimes.com/2026/08/09/nyregion/black-media-mamdani.html
 `Police divers found a 27-year-old woman and a 5-month-old baby in the water near Liberty Island. They were pronounced dead at a hospital.`\
 https://www.nytimes.com/2026/08/09/nyregion/new-york-harbor-boat-capsizes-dead.html
 
-**Blue and Red America Have Become the Bitter Couple That Can’t Quite Face Divorce**\
+**Has America Already Undergone a Soft Breakup?**\
 `It can’t go on like this forever.`\
 https://www.nytimes.com/2026/08/09/opinion/america-politics-blue-red-democrats-republicans.html
 
