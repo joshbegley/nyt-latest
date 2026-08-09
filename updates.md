@@ -1,3 +1,11 @@
+**El calor se extenderá por Europa antes del eclipse**\
+`Las temperaturas disminuyeron en algunas zonas de Europa, pero se pronostica que aumentarán de nuevo en los próximos días.`\
+https://www.nytimes.com/es/2026/08/09/espanol/tiempo-y-clima/calor-europa-eclipse.html
+
+**Ocasio-Cortez Says She Is Freezing Her Eggs and Still Mulling a Presidential Run**\
+`In a TV interview, Representative Alexandria Ocasio-Cortez distanced herself from positions like “defund the police” and indicated she hasn’t ruled out a presidential or Senate run.`\
+https://www.nytimes.com/2026/08/09/nyregion/nyc-alexandria-ocasio-cortez-freezing-eggs.html
+
 **Iran Taps Longtime I.R.G.C. Commander Mohsen Rezaei to Top Security Post**\
 `The appointment of Mohsen Rezaei as secretary of the Supreme National Security Council suggests that Iran’s old guard is consolidating power.`\
 https://www.nytimes.com/2026/08/09/world/middleeast/iran-security-council-guards-commander.html
