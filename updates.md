@@ -1,3 +1,7 @@
+****\
+`In an interview with the BBC, Hunter Biden said that former President Joseph R. ⁠Biden Jr.’s prostate cancer had spread into his bones and was causing pain.`\
+https://www.nytimes.com/video/embedded/us/politics/100000011081603/96vid-hunter-biden-embed-38492.html
+
 **How Maurizio Cattelan Threw His Own Version of the Last Supper**\
 `In Berlin, the artist Maurizio Cattelan gathered friends and collaborators for a dinner with a dramatic theme.`\
 https://www.nytimes.com/2026/08/08/t-magazine/maurizio-cattelan-last-supper-dinner-berlin.html

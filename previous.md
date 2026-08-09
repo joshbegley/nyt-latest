@@ -1,3 +1,7 @@
+****\
+`In an interview with the BBC, Hunter Biden said that former President Joseph R. ⁠Biden Jr.’s prostate cancer had spread into his bones and was causing pain.`\
+https://www.nytimes.com/video/embedded/us/politics/100000011081603/96vid-hunter-biden-embed-38492.html
+
 **How Maurizio Cattelan Threw His Own Version of the Last Supper**\
 `In Berlin, the artist Maurizio Cattelan gathered friends and collaborators for a dinner with a dramatic theme.`\
 https://www.nytimes.com/2026/08/08/t-magazine/maurizio-cattelan-last-supper-dinner-berlin.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/08/climate/amazon-data-center-texas-pollution.ht
 **Fact-Checking 3 Competitive Senate Races in Maine, Michigan and Ohio**\
 `Republican attacks have focused on terrorism and illegal immigration, while Democrats have sought to capitalize on the unpopularity of President Trump’s cuts to Medicaid.`\
 https://www.nytimes.com/2026/08/08/us/politics/fact-check-candidates-maine-michigan-ohio.html
-
-**Italy’s Heat Will Spread to Western Europe Ahead of Solar Eclipse**\
-`Red high-temperature warnings remained in effect for much of southern and western Italy through Saturday.`\
-https://www.nytimes.com/2026/08/08/weather/europe-heat-wave-italy-uk-france-spain.html
 
