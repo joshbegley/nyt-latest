@@ -1,3 +1,11 @@
+**It’s Not Summer Without Ratatouille**\
+`The combination of velvety eggplant, slivers of soft pepper and saucy tomatoes is enough of a reward to justify the oven time on a Sunday afternoon.`\
+https://www.nytimes.com/2026/08/09/dining/its-not-summer-without-ratatouille.html
+
+**Please Judge the Books I’m Reading**\
+`Literary awards get dismissed for elitism. But more than ever, we need passionate and idiosyncratic champions for the books most worth seeking out.`\
+https://www.nytimes.com/2026/08/09/opinion/reading-books-judges-awards-booker.html
+
 **Iran, Holding Firm to Hormuz, Pushes for Return to June MOU**\
 `The Strait of Hormuz is Iran’s best leverage to get Washington to release Iran’s frozen assets, lift economic sanctions and end its naval blockade.`\
 https://www.nytimes.com/2026/08/09/world/europe/iran-strait-hormuz-trump-deal.html

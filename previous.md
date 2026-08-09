@@ -1,3 +1,7 @@
+**It’s Not Summer Without Ratatouille**\
+`The combination of velvety eggplant, slivers of soft pepper and saucy tomatoes is enough of a reward to justify the oven time on a Sunday afternoon.`\
+https://www.nytimes.com/2026/08/09/dining/its-not-summer-without-ratatouille.html
+
 **Iran, Holding Firm to Hormuz, Pushes for Return to June MOU**\
 `The Strait of Hormuz is Iran’s best leverage to get Washington to release Iran’s frozen assets, lift economic sanctions and end its naval blockade.`\
 https://www.nytimes.com/2026/08/09/world/europe/iran-strait-hormuz-trump-deal.html
@@ -46,13 +50,13 @@ https://www.nytimes.com/2026/08/09/opinion/america-politics-blue-red-democrats-r
 `The genre was shaped by exclusion, not expansion.`\
 https://www.nytimes.com/2026/08/09/opinion/bts-grammys-pop-genre-racism.html
 
-**Please Judge What I’m Reading**\
-`Literary awards get dismissed for elitism. But more than ever, we need passionate and idiosyncratic champions for the books most worth seeking out.`\
-https://www.nytimes.com/2026/08/09/opinion/reading-books-judges-awards-booker.html
-
 **Is ‘Gentle Parenting’ Ruining French Children?**\
 `The importing of American-style “positive parenting” has sparked a fierce debate about the best way to raise kids in France.`\
 https://www.nytimes.com/2026/08/09/podcasts/the-daily/is-gentle-parenting-ruining-french-children.html
+
+**Please Judge the Books I’m Reading**\
+`Literary awards get dismissed for elitism. But more than ever, we need passionate and idiosyncratic champions for the books most worth seeking out.`\
+https://www.nytimes.com/2026/08/09/opinion/reading-books-judges-awards-booker.html
 
 **NYT Connections Answers for August 10, 2026**\
 `Scroll down for hints and conversation about the puzzle for Monday, Aug. 10, 2026.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/09/opinion/trump-washington-landmarks-arch-pool-
 **Quote of the Day: The Lonely Crew at the Kennedy Center Will Miss Its…Mice**\
 `Quotation of the Day for Sunday, August 9, 2026.`\
 https://www.nytimes.com/2026/08/09/pageoneplus/quote-of-the-day-the-lonely-crew-at-the-kennedy-center-will-miss-itsmice.html
-
-**Irán emite una lista de exigencias, lo que dificulta la reapertura del estrecho**\
-`El jefe del Consejo Supremo de Seguridad Nacional de Irán impuso como condición para reabrir el estrecho de Ormuz que EE. UU. levante su bloqueo naval y las sanciones a Irán, entre otras demandas.`\
-https://www.nytimes.com/es/2026/08/09/espanol/mundo/iran-exigencias-estrecho-ormuz.html
 
