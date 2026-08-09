@@ -30,7 +30,7 @@ https://www.nytimes.com/2026/08/09/nyregion/black-media-mamdani.html
 `Police divers found a 27-year-old woman and a 5-month-old baby in the water near Liberty Island. They were pronounced dead at a hospital.`\
 https://www.nytimes.com/2026/08/09/nyregion/new-york-harbor-boat-capsizes-dead.html
 
-**Blue and Red America Have Become the Bitter Couple That Can’t Quite Face Divorce**\
+**Has America Already Undergone a Soft Breakup?**\
 `It can’t go on like this forever.`\
 https://www.nytimes.com/2026/08/09/opinion/america-politics-blue-red-democrats-republicans.html
 
@@ -82,8 +82,8 @@ https://www.nytimes.com/es/2026/08/09/espanol/amiga-botox-critica.html
 `Corrections that appeared in print on Sunday, Aug. 9, 2026.`\
 https://www.nytimes.com/2026/08/09/pageoneplus/corrections-aug-9-2026.html
 
-**In Michigan, a Former Trump Critic Shifts Toward Election Skepticism**\
-`Mike Rogers, the Republican Senate nominee, has suggested that further scrutiny of the 2020 election was warranted and that voting irregularities had sunk his first Senate bid two years ago.`\
+**Michigan Senate Candidate, a Former Trump Critic, Shifts Toward Election Skepticism**\
+`Mike Rogers, the Republican nominee, has suggested that further scrutiny of the 2020 election was warranted and that voting irregularities sank his first Senate bid two years ago.`\
 https://www.nytimes.com/2026/08/09/us/politics/mike-rogers-michigan-senate-elections.html
 
 **A Democrat Sounds the Alarm on Christian Nationalism in Congress**\

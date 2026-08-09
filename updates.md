@@ -1,3 +1,11 @@
+**Has America Already Undergone a Soft Breakup?**\
+`It can’t go on like this forever.`\
+https://www.nytimes.com/2026/08/09/opinion/america-politics-blue-red-democrats-republicans.html
+
+**Michigan Senate Candidate, a Former Trump Critic, Shifts Toward Election Skepticism**\
+`Mike Rogers, the Republican nominee, has suggested that further scrutiny of the 2020 election was warranted and that voting irregularities sank his first Senate bid two years ago.`\
+https://www.nytimes.com/2026/08/09/us/politics/mike-rogers-michigan-senate-elections.html
+
 **A Young Soldier’s Reckoning With the Afghanistan War**\
 `Readers respond to a front-page essay by Thomas Gibbons-Neff, a veteran, and ponder the moral complexities of war. Also: Women victimized by Uber.`\
 https://www.nytimes.com/2026/08/09/opinion/afghanistan-war.html
