@@ -1,3 +1,7 @@
+**How Maurizio Cattelan Threw His Own Version of the Last Supper**\
+`In Berlin, the artist Maurizio Cattelan gathered friends and collaborators for a dinner with a dramatic theme.`\
+https://www.nytimes.com/2026/08/08/t-magazine/maurizio-cattelan-last-supper-dinner-berlin.html
+
 **Chuck Grassley Announces the Death of His Beloved Vacuum, Beth**\
 `Senator Chuck Grassley mourned his decades-long cleaning companion, writing on social media: “GOOD BYE BETH. U hv been a real workhorse.”`\
 https://www.nytimes.com/2026/08/08/us/politics/beth-vacuum-chuck-grassley-iowa.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/08/us/politics/fact-check-candidates-maine-michi
 **Italy’s Heat Will Spread to Western Europe Ahead of Solar Eclipse**\
 `Red high-temperature warnings remained in effect for much of southern and western Italy through Saturday.`\
 https://www.nytimes.com/2026/08/08/weather/europe-heat-wave-italy-uk-france-spain.html
-
-**Trump Officials Under Pressure to Deport Haitians After Supreme Court Win on T.P.S. Program**\
-`The lack of visible raids aggressively targeting Haitians who lost temporary status has frustrated some of President Trump’s most fervent supporters.`\
-https://www.nytimes.com/2026/08/08/us/politics/tps-haitians-deport.html
 
