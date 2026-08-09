@@ -1,3 +1,23 @@
+**Quote of the Day: The Lonely Crew at the Kennedy Center Will Miss Its…Mice**\
+`Quotation of the Day for Sunday, August 9, 2026.`\
+https://www.nytimes.com/2026/08/09/pageoneplus/quote-of-the-day-the-lonely-crew-at-the-kennedy-center-will-miss-itsmice.html
+
+**Irán emite una lista de exigencias, lo que dificulta la reapertura del estrecho**\
+`El jefe del Consejo Supremo de Seguridad Nacional de Irán impuso como condición para reabrir el estrecho de Ormuz que EE. UU. levante su bloqueo naval y las sanciones a Irán, entre otras demandas.`\
+https://www.nytimes.com/es/2026/08/09/espanol/mundo/iran-exigencias-estrecho-ormuz.html
+
+**How a Drone ‘Hellscape’ Might Stop a Chinese Invasion of Taiwan**\
+`Inspired by Ukraine’s battlefield gains, Taiwan is betting on drones to deter a potential Chinese invasion.`\
+https://www.nytimes.com/2026/08/09/world/asia/taiwan-drone-china-invasion.html
+
+**When Hobbies Come Before Romance**\
+`Is a packed social calendar the new relationship goals?`\
+https://www.nytimes.com/2026/08/09/style/single-dating-hobbies-hobbyamory.html
+
+**Should You Be Ashamed to Put Down a Book You Don’t Enjoy?**\
+`Is it shameful, or sensible, to put down a book you don’t enjoy? Three little letters, and social media, have turbocharged a longstanding debate.`\
+https://www.nytimes.com/2026/08/09/books/review/dnf-goodreads-finish-books.html
+
 ****\
 `In an interview with the BBC, Hunter Biden said that former President Joseph R. ⁠Biden Jr.’s prostate cancer had spread into his bones and was causing pain.`\
 https://www.nytimes.com/video/embedded/us/politics/100000011081603/96vid-hunter-biden-embed-38492.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/08/08/world/canada/canada-economy-tariffs-carney-tr
 **Today’s Wordle Answer for August 9, 2026**\
 `Scroll down for hints and conversation about the puzzle for Sunday, Aug. 9, 2026.`\
 https://www.nytimes.com/2026/08/08/crosswords/wordle-review-1877.html
-
-**NYT Strands Hints for Aug. 9, 2026**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Aug. 9, 2026.`\
-https://www.nytimes.com/2026/08/08/crosswords/strands-sidekick-889.html
-
-**NYT Connections Answers for August 9, 2026**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Aug. 9, 2026.`\
-https://www.nytimes.com/2026/08/08/crosswords/connections-companion-1155.html
-
-**Billy Strings Escaped the Darkness. He’s Playing to Not Go Back.**\
-`The genre-straddling musician could have been lost to addiction and trauma. Instead he’s filling arenas.`\
-https://www.nytimes.com/2026/08/08/magazine/billy-strings-interview.html
-
-**New Amazon Data Center Stokes Worry It Would Be the Most Polluting Power Plant in the U.S.**\
-`The tech giant is investing in the natural-gas-burning power plant as part of a huge data center in Texas, even as it pledges to honor climate commitments.`\
-https://www.nytimes.com/2026/08/08/climate/amazon-data-center-texas-pollution.html
-
-**Fact-Checking 3 Competitive Senate Races in Maine, Michigan and Ohio**\
-`Republican attacks have focused on terrorism and illegal immigration, while Democrats have sought to capitalize on the unpopularity of President Trump’s cuts to Medicaid.`\
-https://www.nytimes.com/2026/08/08/us/politics/fact-check-candidates-maine-michigan-ohio.html
 

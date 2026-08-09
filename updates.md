@@ -1,3 +1,23 @@
+**Quote of the Day: The Lonely Crew at the Kennedy Center Will Miss Its…Mice**\
+`Quotation of the Day for Sunday, August 9, 2026.`\
+https://www.nytimes.com/2026/08/09/pageoneplus/quote-of-the-day-the-lonely-crew-at-the-kennedy-center-will-miss-itsmice.html
+
+**Irán emite una lista de exigencias, lo que dificulta la reapertura del estrecho**\
+`El jefe del Consejo Supremo de Seguridad Nacional de Irán impuso como condición para reabrir el estrecho de Ormuz que EE. UU. levante su bloqueo naval y las sanciones a Irán, entre otras demandas.`\
+https://www.nytimes.com/es/2026/08/09/espanol/mundo/iran-exigencias-estrecho-ormuz.html
+
+**How a Drone ‘Hellscape’ Might Stop a Chinese Invasion of Taiwan**\
+`Inspired by Ukraine’s battlefield gains, Taiwan is betting on drones to deter a potential Chinese invasion.`\
+https://www.nytimes.com/2026/08/09/world/asia/taiwan-drone-china-invasion.html
+
+**When Hobbies Come Before Romance**\
+`Is a packed social calendar the new relationship goals?`\
+https://www.nytimes.com/2026/08/09/style/single-dating-hobbies-hobbyamory.html
+
+**Should You Be Ashamed to Put Down a Book You Don’t Enjoy?**\
+`Is it shameful, or sensible, to put down a book you don’t enjoy? Three little letters, and social media, have turbocharged a longstanding debate.`\
+https://www.nytimes.com/2026/08/09/books/review/dnf-goodreads-finish-books.html
+
 ****\
 `In an interview with the BBC, Hunter Biden said that former President Joseph R. ⁠Biden Jr.’s prostate cancer had spread into his bones and was causing pain.`\
 https://www.nytimes.com/video/embedded/us/politics/100000011081603/96vid-hunter-biden-embed-38492.html
