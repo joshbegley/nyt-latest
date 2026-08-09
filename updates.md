@@ -1,3 +1,7 @@
+**How Maurizio Cattelan Threw His Own Version of the Last Supper**\
+`In Berlin, the artist Maurizio Cattelan gathered friends and collaborators for a dinner with a dramatic theme.`\
+https://www.nytimes.com/2026/08/08/t-magazine/maurizio-cattelan-last-supper-dinner-berlin.html
+
 **Chuck Grassley Announces the Death of His Beloved Vacuum, Beth**\
 `Senator Chuck Grassley mourned his decades-long cleaning companion, writing on social media: “GOOD BYE BETH. U hv been a real workhorse.”`\
 https://www.nytimes.com/2026/08/08/us/politics/beth-vacuum-chuck-grassley-iowa.html
