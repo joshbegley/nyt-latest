@@ -1,3 +1,7 @@
+**Oil Prices Climb and Stocks Dip on Stalemate in Iran War**\
+`Hopes were dashed over the weekend for a breakthrough on the Strait of Hormuz.`\
+https://www.nytimes.com/2026/08/09/business/oil-stocks-iran-war.html
+
 **NYT Crossword Answers for Aug. 10, 2026**\
 `Nate Cardin hangs out on the quad.`\
 https://www.nytimes.com/2026/08/09/crosswords/daily-puzzle-2026-08-10.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/09/us/politics/bobby-zhou-trump-crypto.html
 **Nostalgia Is Bringing Gen Z Together Globally**\
 `Lily Kuo and Callie Holtermann, two New York Times reporters, came across similar nostalgia trends on opposite sides of the world. They discuss how these trends developed independently, what makes each unique and what’s driving them.`\
 https://www.nytimes.com/video/arts/design/100000011021653/nostalgia-is-bringing-gen-z-together-globally.html
-
-**A Maine Town, Once Dependent on a Paper Mill, Tries to Move On**\
-`For over a century, Madison Paper Industries was a small Maine town’s economic engine. A new owner moved in, but uncertainty persists.`\
-https://www.nytimes.com/2026/08/09/business/manufacturing-mill-town-madison-maine.html
 
