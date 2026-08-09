@@ -1,3 +1,7 @@
+**Moderate Democrat in Hawaii Defeats Progressive House Challenger**\
+`Representative Ed Case beat Jarrett Keohokalole, a younger progressive, in a race that centered on questions of generational change and the state’s skyrocketing cost of living.`\
+https://www.nytimes.com/2026/08/09/us/politics/hawaii-ed-case-jarrett-keohokalole.html
+
 **It Won’t Stop at the Arc de Trump. It Won’t Stop at Washington.**\
 `The Trump administration’s proposed changes to the review process will allow it to take a wrecking ball to historic sites across the country.`\
 https://www.nytimes.com/2026/08/09/opinion/trump-washington-landmarks-arch-pool-east-wing.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/08/briefing/edge-of-your-seat.html
 **My Stepson’s Hateful Views Are Damaging My Business. What Should I Do?**\
 `I would love to bar this person from our home, but I cannot.`\
 https://www.nytimes.com/2026/08/08/magazine/stepson-social-media-ethics.html
-
-**Signs of Economic Recovery While Greater Uncertainty Looms**\
-`Jobs and trade numbers released this week show that Canada is recovering from trade turmoil, but another round of tariffs may arrive this month.`\
-https://www.nytimes.com/2026/08/08/world/canada/canada-economy-tariffs-carney-trump.html
 
