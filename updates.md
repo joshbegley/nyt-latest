@@ -1,3 +1,7 @@
+**Oil Prices Climb and Stocks Dip on Stalemate in Iran War**\
+`Hopes were dashed over the weekend for a breakthrough on the Strait of Hormuz.`\
+https://www.nytimes.com/2026/08/09/business/oil-stocks-iran-war.html
+
 **NYT Crossword Answers for Aug. 10, 2026**\
 `Nate Cardin hangs out on the quad.`\
 https://www.nytimes.com/2026/08/09/crosswords/daily-puzzle-2026-08-10.html
