@@ -1,3 +1,11 @@
+**Obama and Abdul El-Sayed Spoke to Discuss Unity After Michigan Senate Primary**\
+`Dr. Abdul El-Sayed’s call with the former president comes as he tries to win over wary Democrats in Michigan’s high-stakes Senate race.`\
+https://www.nytimes.com/2026/08/09/us/politics/obama-abdul-el-sayed-michigan-senate.html
+
+**Europe Braces for Another Heat Wave. Here’s What to Know.**\
+`High temperature warnings were in place across western, central and southern Europe on Sunday as a heat dome intensifies across the continent.`\
+https://www.nytimes.com/2026/08/09/weather/extreme-heat-wave-uk-france-spain-forecast.html
+
 **Israel Rejects Trump’s 15-Point Plan to Disarm Hamas**\
 `President Trump’s Board of Peace announced an agreement last month that aimed at Hamas giving up its weapons alongside an Israeli withdrawal from Gaza.`\
 https://www.nytimes.com/2026/08/09/world/middleeast/israel-netanyahu-trump-15-point-plan-hamas-peace-gaza.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/09/books/review/dnf-goodreads-finish-books.html
 ****\
 `In an interview with the BBC, Hunter Biden said that former President Joseph R. ⁠Biden Jr.’s prostate cancer had spread into his bones and was causing pain.`\
 https://www.nytimes.com/video/embedded/us/politics/100000011081603/96vid-hunter-biden-embed-38492.html
-
-**How Maurizio Cattelan Threw His Own Version of the Last Supper**\
-`In Berlin, the artist Maurizio Cattelan gathered friends and collaborators for a dinner with a dramatic theme.`\
-https://www.nytimes.com/2026/08/08/t-magazine/maurizio-cattelan-last-supper-dinner-berlin.html
-
-**Chuck Grassley Announces the Death of His Beloved Vacuum, Beth**\
-`Senator Chuck Grassley mourned his decades-long cleaning companion, writing on social media: “GOOD BYE BETH. U hv been a real workhorse.”`\
-https://www.nytimes.com/2026/08/08/us/politics/beth-vacuum-chuck-grassley-iowa.html
 
