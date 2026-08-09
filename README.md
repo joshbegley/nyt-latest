@@ -60,7 +60,7 @@ https://www.nytimes.com/2026/08/09/us/politics/a-democrat-sounds-the-alarm-on-ch
 
 **She Makes the Impossible Happen for Her Ultrarich Clients**\
 `Olivia Ferney grew up a child of schoolteachers in Ontario. Now she’s an expert in private jets, luxury cabanas and champagne-soaked revels.`\
-https://www.nytimes.com/2026/08/09/style/she-makes-the-impossible-happen-for-her-ultrarich-clients.html
+https://www.nytimes.com/2026/08/09/style/olivia-ferney-top-tier-travel.html
 
 **What to Know About the Tupac Murder, Trial and Suspect**\
 `Three decades after the rapper Tupac Shakur was killed in Las Vegas, a man who prosecutors say provided the murder weapon is scheduled to go to trial.`\
