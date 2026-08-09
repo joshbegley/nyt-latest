@@ -1,3 +1,7 @@
+**Dr. Maura L. Gillison, Who Linked Throat Cancers to HPV, Dies at 61**\
+`She challenged the conventional view that a majority of head and neck cancers resulted from cigarette smoking and excessive alcohol consumption.`\
+https://www.nytimes.com/2026/08/09/obituaries/maura-l-gillison-dead.html
+
 **Still Waiting for Peace in Gaza**\
 `A photojournalist with The New York Times details the displacement and danger, in words and images, that have come to define his home.`\
 https://www.nytimes.com/2026/08/09/world/gaza-israel-iran.html
