@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Aug. 10, 2026**\
+`Nate Cardin hangs out on the quad.`\
+https://www.nytimes.com/2026/08/09/crosswords/daily-puzzle-2026-08-10.html
+
 **Dr. Maura L. Gillison, Who Linked Throat Cancers to HPV, Dies at 61**\
 `She challenged the conventional view that a majority of head and neck cancers resulted from cigarette smoking and excessive alcohol consumption.`\
 https://www.nytimes.com/2026/08/09/obituaries/maura-l-gillison-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/arts/design/100000011021653/nostalgia-is-bringing-
 **A Maine Town, Once Dependent on a Paper Mill, Tries to Move On**\
 `For over a century, Madison Paper Industries was a small Maine town’s economic engine. A new owner moved in, but uncertainty persists.`\
 https://www.nytimes.com/2026/08/09/business/manufacturing-mill-town-madison-maine.html
-
-**Inside the War on Hezbollah’s Finances**\
-`Israel and the United States aren’t just targeting the Lebanese militant group’s weapons. They’re going after its money.`\
-https://www.nytimes.com/2026/08/09/world/europe/lebanon-hezbollah-iran-us-finances.html
 
