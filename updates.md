@@ -1,3 +1,11 @@
+**Syria Agrees to Reorganized Russian Military Presence**\
+`After more than a year and a half of negotiations, Syria and Russia have agreed on new parameters of Russia’s military presence in Syria. Syria said it opens the way for a new phase in relations.`\
+https://www.nytimes.com/2026/08/09/world/middleeast/syria-reorganized-russian-military-presence.html
+
+**A Democratic Socialist Seeks New Voters in an Unlikely Place: Fox News**\
+`Gustavo Gordillo, a leader of the New York D.S.A., wants to reach new voters. But in interviews with conservative media, the backlash can be sharp.`\
+https://www.nytimes.com/2026/08/09/us/politics/gustavo-gordillo-democratic-socialists.html
+
 **Has America Already Undergone a Soft Breakup?**\
 `It can’t go on like this forever.`\
 https://www.nytimes.com/2026/08/09/opinion/america-politics-blue-red-democrats-republicans.html

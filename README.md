@@ -1,3 +1,7 @@
+**Iran, Holding Firm to Hormuz, Pushes for Return to June MOU**\
+`The Strait of Hormuz is Iran’s best leverage to get Washington to release Iran’s frozen assets, lift economic sanctions and end its naval blockade.`\
+https://www.nytimes.com/2026/08/09/world/europe/iran-strait-hormuz-trump-deal.html
+
 **Syria Agrees to Reorganized Russian Military Presence**\
 `After more than a year and a half of negotiations, Syria and Russia have agreed on new parameters of Russia’s military presence in Syria. Syria said it opens the way for a new phase in relations.`\
 https://www.nytimes.com/2026/08/09/world/middleeast/syria-reorganized-russian-military-presence.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/09/pageoneplus/quote-of-the-day-the-lonely-crew-
 **Irán emite una lista de exigencias, lo que dificulta la reapertura del estrecho**\
 `El jefe del Consejo Supremo de Seguridad Nacional de Irán impuso como condición para reabrir el estrecho de Ormuz que EE. UU. levante su bloqueo naval y las sanciones a Irán, entre otras demandas.`\
 https://www.nytimes.com/es/2026/08/09/espanol/mundo/iran-exigencias-estrecho-ormuz.html
-
-**How a Drone ‘Hellscape’ Might Stop a Chinese Invasion of Taiwan**\
-`Inspired by Ukraine’s battlefield gains, Taiwan is betting on drones to deter a potential Chinese invasion.`\
-https://www.nytimes.com/2026/08/09/world/asia/taiwan-drone-china-invasion.html
 
