@@ -1,3 +1,7 @@
+**It Won’t Stop at the Arc de Trump. It Won’t Stop at Washington.**\
+`The Trump administration’s proposed changes to the review process will allow it to take a wrecking ball to historic sites across the country.`\
+https://www.nytimes.com/2026/08/09/opinion/trump-washington-landmarks-arch-pool-east-wing.html
+
 **Quote of the Day: The Lonely Crew at the Kennedy Center Will Miss Its…Mice**\
 `Quotation of the Day for Sunday, August 9, 2026.`\
 https://www.nytimes.com/2026/08/09/pageoneplus/quote-of-the-day-the-lonely-crew-at-the-kennedy-center-will-miss-itsmice.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/08/magazine/stepson-social-media-ethics.html
 **Signs of Economic Recovery While Greater Uncertainty Looms**\
 `Jobs and trade numbers released this week show that Canada is recovering from trade turmoil, but another round of tariffs may arrive this month.`\
 https://www.nytimes.com/2026/08/08/world/canada/canada-economy-tariffs-carney-trump.html
-
-**Today’s Wordle Answer for August 9, 2026**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Aug. 9, 2026.`\
-https://www.nytimes.com/2026/08/08/crosswords/wordle-review-1877.html
 

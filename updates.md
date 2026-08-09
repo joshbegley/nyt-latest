@@ -1,3 +1,7 @@
+**It Won’t Stop at the Arc de Trump. It Won’t Stop at Washington.**\
+`The Trump administration’s proposed changes to the review process will allow it to take a wrecking ball to historic sites across the country.`\
+https://www.nytimes.com/2026/08/09/opinion/trump-washington-landmarks-arch-pool-east-wing.html
+
 **Quote of the Day: The Lonely Crew at the Kennedy Center Will Miss Its…Mice**\
 `Quotation of the Day for Sunday, August 9, 2026.`\
 https://www.nytimes.com/2026/08/09/pageoneplus/quote-of-the-day-the-lonely-crew-at-the-kennedy-center-will-miss-itsmice.html
