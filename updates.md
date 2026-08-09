@@ -1,3 +1,7 @@
+**Ocasio-Cortez Says She Is Freezing Her Eggs and Still Mulling a Presidential Run**\
+`In videos on social media, Representative Alexandria Ocasio-Cortez said she wanted “to show more depictions of women having full lives in every context and every choice.”`\
+https://www.nytimes.com/2026/08/09/nyregion/nyc-alexandria-ocasio-cortez-freezing-eggs.html
+
 **2 Die After Boat Overturns in New York Harbor, Police Say**\
 `Police divers found a 27-year-old woman and a 5-month-old baby in the water near Liberty Island. A man was arrested and charged with reckless endangerment.`\
 https://www.nytimes.com/2026/08/09/nyregion/new-york-harbor-boat-capsizes-dead.html
