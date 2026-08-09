@@ -1,3 +1,7 @@
+**Netanyahu rechaza el plan de Trump para desarmar a Hamás**\
+`La propuesta contempla un proceso en el que Hamás entregaría sus armas en etapas a un nuevo gobierno palestino en Gaza. A cambio, Israel se retiraría gradualmente.`\
+https://www.nytimes.com/es/2026/08/09/espanol/mundo/trump-plan-netanyahu-hamas.html
+
 **El calor se extenderá por Europa antes del eclipse**\
 `Las temperaturas disminuyeron en algunas zonas de Europa, pero se pronostica que aumentarán de nuevo en los próximos días.`\
 https://www.nytimes.com/es/2026/08/09/espanol/tiempo-y-clima/calor-europa-eclipse.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/08/09/espanol/mundo/wildberries-rusia-tienda-ata
 **La simplicidad de Jack Johnson se ha vuelto aspiracional**\
 `Sus himnos congelados en el tiempo, odas a dejarse llevar, son la banda sonora de un verano de videos optimistas en redes.`\
 https://www.nytimes.com/es/2026/08/09/espanol/cultura/jack-johnson-documental.html
-
-**¿Qué gana Trump con apuntalar el yen?**\
-`EE. UU. está respaldando el yen, como lo hizo con el peso argentino, y las razones no son solo económicas.`\
-https://www.nytimes.com/es/2026/08/09/espanol/opinion/trump-intervencion-yen.html
 
