@@ -1,3 +1,7 @@
+**Moderate Democrat in Hawaii Defeats Progressive House Challenger**\
+`Representative Ed Case beat Jarrett Keohokalole, a younger progressive, in a race that centered on questions of generational change and the state’s skyrocketing cost of living.`\
+https://www.nytimes.com/2026/08/09/us/politics/hawaii-ed-case-jarrett-keohokalole.html
+
 **It Won’t Stop at the Arc de Trump. It Won’t Stop at Washington.**\
 `The Trump administration’s proposed changes to the review process will allow it to take a wrecking ball to historic sites across the country.`\
 https://www.nytimes.com/2026/08/09/opinion/trump-washington-landmarks-arch-pool-east-wing.html
