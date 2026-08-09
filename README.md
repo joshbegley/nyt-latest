@@ -1,3 +1,7 @@
+**2 Die After Boat Overturns in New York Harbor, Police Say**\
+`Police divers found a 27-year-old woman and a 5-month-old baby in the water near Liberty Island. They were pronounced dead at a hospital.`\
+https://www.nytimes.com/2026/08/09/nyregion/new-york-harbor-boat-capsizes-dead.html
+
 **Blue and Red America Have Become the Bitter Couple That Can’t Quite Face Divorce**\
 `It can’t go on like this forever.`\
 https://www.nytimes.com/2026/08/09/opinion/america-politics-blue-red-democrats-republicans.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/08/us/politics/max-miller-ohio-republican.html
 **Hunter Biden Says His Father’s Cancer Is Worsening**\
 `In an interview with the BBC, Mr. Biden said that former President Joseph R. ⁠Biden Jr.’s prostate cancer had spread into his bones and was causing pain.`\
 https://www.nytimes.com/2026/08/08/us/politics/hunter-biden-says-his-fathers-cancer-is-worsening.html
-
-**Freestyle Exercise**\
-`Erik Agard’s themeless Sunday grid pulls you in with centripetal force.`\
-https://www.nytimes.com/2026/08/08/crosswords/daily-puzzle-2026-08-09.html
 
