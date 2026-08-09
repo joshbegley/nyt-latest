@@ -1,3 +1,39 @@
+**Blue and Red America Have Become the Bitter Couple That Can’t Quite Face Divorce**\
+`It can’t go on like this forever.`\
+https://www.nytimes.com/2026/08/09/opinion/america-politics-blue-red-democrats-republicans.html
+
+**BTS’s Grammys Boycott Highlights the Perils of Pop Music**\
+`The genre was shaped by exclusion, not expansion.`\
+https://www.nytimes.com/2026/08/09/opinion/bts-grammys-pop-genre-racism.html
+
+**Please Judge What I’m Reading**\
+`Literary awards get dismissed for elitism. But more than ever, we need passionate and idiosyncratic champions for the books most worth seeking out.`\
+https://www.nytimes.com/2026/08/09/opinion/reading-books-judges-awards-booker.html
+
+**Is ‘Gentle Parenting’ Ruining French Children?**\
+`The importing of American-style “positive parenting” has sparked a fierce debate about the best way to raise kids in France.`\
+https://www.nytimes.com/2026/08/09/podcasts/the-daily/is-gentle-parenting-ruining-french-children.html
+
+**NYT Connections Answers for August 10, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Aug. 10, 2026.`\
+https://www.nytimes.com/2026/08/09/crosswords/connections-companion-1156.html
+
+**Today’s Wordle Hints for August 10, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Aug. 10, 2026.`\
+https://www.nytimes.com/2026/08/09/crosswords/wordle-review-1878.html
+
+**Therapy Needs Therapy. Neuroscience Can Help.**\
+`The good news is that the neuroscience of perception can pave the way out.`\
+https://www.nytimes.com/2026/08/09/opinion/therapy-neuroscience-perception.html
+
+**These Doctors Perform Daily Miracles, No Hospital in Sight**\
+`Every city needs street medicine.`\
+https://www.nytimes.com/2026/08/09/opinion/street-medicine-homeless-health-care.html
+
+**NYT Strands Hints for Aug. 10, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Aug. 10, 2026.`\
+https://www.nytimes.com/2026/08/09/crosswords/strands-sidekick-890.html
+
 **Believing’s Summer Reading List**\
 `Today, I’m sharing some of what I’ve been reading — and what you’ve told me you’re reading,`\
 https://www.nytimes.com/2026/08/09/briefing/books-to-make-you-feel-something.html
