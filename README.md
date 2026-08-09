@@ -1,3 +1,11 @@
+**The Pope’s Favorite Team**\
+`Are the Chicago White Sox blessed?`\
+https://www.nytimes.com/2026/08/09/briefing/the-popes-favorite-team.html
+
+**Now Coming to a Black Media Outlet Near You: Mayor Mamdani**\
+`Zohran Mamdani’s “all of the above” media strategy, which encompasses ethnic media, influencers and content creators, has led to a recent Black media blitz.`\
+https://www.nytimes.com/2026/08/09/nyregion/black-media-mamdani.html
+
 **2 Die After Boat Overturns in New York Harbor, Police Say**\
 `Police divers found a 27-year-old woman and a 5-month-old baby in the water near Liberty Island. They were pronounced dead at a hospital.`\
 https://www.nytimes.com/2026/08/09/nyregion/new-york-harbor-boat-capsizes-dead.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/08/us/politics/beth-vacuum-chuck-grassley-iowa.h
 **Abbe Lane, Sultry Singer With a Latin Flair, Dies at 94**\
 `She was a Broadway dancer before becoming Xavier Cugat’s star vocalist and later building a solo career.`\
 https://www.nytimes.com/2026/08/08/arts/music/abbe-lane-dead.html
-
-**Max Miller, Republican Accused of Abuse, Won’t Drop Out, Spokeswoman Says**\
-`Mr. Miller, who has faced pressure from fellow Republicans to end his campaign and avoid endangering a solidly red seat in Ohio, will stay in the race, his spokeswoman said.`\
-https://www.nytimes.com/2026/08/08/us/politics/max-miller-ohio-republican.html
-
-**Hunter Biden Says His Father’s Cancer Is Worsening**\
-`In an interview with the BBC, Mr. Biden said that former President Joseph R. ⁠Biden Jr.’s prostate cancer had spread into his bones and was causing pain.`\
-https://www.nytimes.com/2026/08/08/us/politics/hunter-biden-joe-biden-cancer.html
 
