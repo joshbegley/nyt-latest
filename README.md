@@ -1,3 +1,11 @@
+**A Young Soldier’s Reckoning With the Afghanistan War**\
+`Readers respond to a front-page essay by Thomas Gibbons-Neff, a veteran, and ponder the moral complexities of war. Also: Women victimized by Uber.`\
+https://www.nytimes.com/2026/08/09/opinion/afghanistan-war.html
+
+**Laughing-in-Delight-While-You-Eat Delicious**\
+`That’s these — what else? — perfectly engineered BLTs, plus more fast tomato dinners.`\
+https://www.nytimes.com/2026/08/09/dining/laughing-in-delight-while-you-eat-delicious.html
+
 **Obama and Abdul El-Sayed Spoke to Discuss Unity After Michigan Senate Primary**\
 `Dr. Abdul El-Sayed’s call with the former president comes as he tries to win over wary Democrats in Michigan’s high-stakes Senate race.`\
 https://www.nytimes.com/2026/08/09/us/politics/obama-abdul-el-sayed-michigan-senate.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/09/world/asia/taiwan-drone-china-invasion.html
 **When Hobbies Come Before Romance**\
 `Is a packed social calendar the new relationship goals?`\
 https://www.nytimes.com/2026/08/09/style/single-dating-hobbies-hobbyamory.html
-
-**Should You Be Ashamed to Put Down a Book You Don’t Enjoy?**\
-`Is it shameful, or sensible, to put down a book you don’t enjoy? Three little letters, and social media, have turbocharged a longstanding debate.`\
-https://www.nytimes.com/2026/08/09/books/review/dnf-goodreads-finish-books.html
-
-****\
-`In an interview with the BBC, Hunter Biden said that former President Joseph R. ⁠Biden Jr.’s prostate cancer had spread into his bones and was causing pain.`\
-https://www.nytimes.com/video/embedded/us/politics/100000011081603/96vid-hunter-biden-embed-38492.html
 
