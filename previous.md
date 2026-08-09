@@ -1,3 +1,7 @@
+**Justin Trudeau, Katy Perry y el ‘look’ del estadista convertido en celebridad**\
+`Lo que dice el cambio de imagen del ex primer ministro de Canadá sobre la intersección entre la política y el entretenimiento.`\
+https://www.nytimes.com/es/2026/08/09/espanol/estilos-de-vida/justin-trudeau-katy-perry-look.html
+
 **Es la mujer más rica de Rusia. Su imperio empresarial está en llamas**\
 `Mientras Ucrania ataca repetidamente los almacenes del sitio de comercio electrónico Wildberries, Tatyana Kim, su multimillonaria cofundadora, se enfrenta a su mayor prueba hasta ahora.`\
 https://www.nytimes.com/es/2026/08/09/espanol/mundo/wildberries-rusia-tienda-ataques-ucrania.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/08/opinion/cats-jellicle-ball-closing-webber-de-
 **A Top Scholar’s Fall Shows That Universities Don’t Get It**\
 `By protecting a star from plagiarism charges, a storied college undermined its values.`\
 https://www.nytimes.com/2026/08/08/opinion/cambridge-plagiarism-arday-higher-education.html
-
-**What American Poverty Looks Like**\
-`A Latin American sees homes that have air-conditioning but are racked by addiction and puzzles over what it means to be poor.`\
-https://www.nytimes.com/2026/08/08/opinion/america-poverty-peru.html
 
