@@ -1,3 +1,7 @@
+**Dr. Maura L. Gillison, Who Linked Throat Cancers to HPV, Dies at 61**\
+`She challenged the conventional view that a majority of head and neck cancers resulted from cigarette smoking and excessive alcohol consumption.`\
+https://www.nytimes.com/2026/08/09/obituaries/maura-l-gillison-dead.html
+
 **Still Waiting for Peace in Gaza**\
 `A photojournalist with The New York Times details the displacement and danger, in words and images, that have come to define his home.`\
 https://www.nytimes.com/2026/08/09/world/gaza-israel-iran.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/09/business/manufacturing-mill-town-madison-main
 **Inside the War on Hezbollah’s Finances**\
 `Israel and the United States aren’t just targeting the Lebanese militant group’s weapons. They’re going after its money.`\
 https://www.nytimes.com/2026/08/09/world/europe/lebanon-hezbollah-iran-us-finances.html
-
-**Justin Trudeau, Katy Perry y el ‘look’ del estadista convertido en celebridad**\
-`Lo que dice el cambio de imagen del ex primer ministro de Canadá sobre la intersección entre la política y el entretenimiento.`\
-https://www.nytimes.com/es/2026/08/09/espanol/estilos-de-vida/justin-trudeau-katy-perry-look.html
 
