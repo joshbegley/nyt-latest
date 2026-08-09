@@ -56,7 +56,7 @@ https://www.nytimes.com/2026/08/09/us/politics/mike-rogers-michigan-senate-elect
 
 **A Democrat Sounds the Alarm on Christian Nationalism in Congress**\
 `Representative Jared Huffman of California, the only self-declared “humanist” in Congress, writes in a new book that the separation of church and state is in grave danger.`\
-https://www.nytimes.com/2026/08/09/us/politics/a-democrat-sounds-the-alarm-on-christian-nationalism-in-congress.html
+https://www.nytimes.com/2026/08/09/us/politics/democrat-huffman-humanist-religion-christianity.html
 
 **She Makes the Impossible Happen for Her Ultrarich Clients**\
 `Olivia Ferney grew up a child of schoolteachers in Ontario. Now she’s an expert in private jets, luxury cabanas and champagne-soaked revels.`\

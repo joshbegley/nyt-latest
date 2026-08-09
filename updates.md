@@ -1,3 +1,7 @@
+**She Makes the Impossible Happen for Her Ultrarich Clients**\
+`Olivia Ferney grew up a child of schoolteachers in Ontario. Now she’s an expert in private jets, luxury cabanas and champagne-soaked revels.`\
+https://www.nytimes.com/2026/08/09/style/olivia-ferney-top-tier-travel.html
+
 **Blue and Red America Have Become the Bitter Couple That Can’t Quite Face Divorce**\
 `It can’t go on like this forever.`\
 https://www.nytimes.com/2026/08/09/opinion/america-politics-blue-red-democrats-republicans.html
