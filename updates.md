@@ -1,3 +1,15 @@
+**Iran Taps Longtime I.R.G.C. Commander Mohsen Rezaei to Top Security Post**\
+`The appointment of Mohsen Rezaei as secretary of the Supreme National Security Council suggests that Iran’s old guard is consolidating power.`\
+https://www.nytimes.com/2026/08/09/world/middleeast/iran-security-council-guards-commander.html
+
+**El cáncer del expresidente Joe Biden está empeorando, dice su hijo**\
+`Hunter Biden dijo en una entrevista con la BBC que el cáncer de próstata del expresidente hizo metástasis en otras partes del cuerpo y se ha vuelto doloroso.`\
+https://www.nytimes.com/es/2026/08/09/espanol/estados-unidos/joe-biden-cancer.html
+
+**Flight Is Canceled After a Child Refuses to Be Seated**\
+`Passengers aboard a Porter Airlines plane headed to Toronto had to wait for a flight the next day after a child remained standing in a seat and would not get buckled in, the company said.`\
+https://www.nytimes.com/2026/08/09/travel/flight-canceled-child-seatbelt-porter-canada.html
+
 **Mother and Daughter Die After Boat Overturns in New York Harbor**\
 `Police divers found a 27-year-old woman and her 5-month-old baby in the water near Liberty Island. A man was arrested and charged with reckless endangerment.`\
 https://www.nytimes.com/2026/08/09/nyregion/new-york-harbor-boat-capsizes-dead.html

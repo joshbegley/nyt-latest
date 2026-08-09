@@ -1,3 +1,15 @@
+**Iran Taps Longtime I.R.G.C. Commander Mohsen Rezaei to Top Security Post**\
+`The appointment of Mohsen Rezaei as secretary of the Supreme National Security Council suggests that Iran’s old guard is consolidating power.`\
+https://www.nytimes.com/2026/08/09/world/middleeast/iran-security-council-guards-commander.html
+
+**El cáncer del expresidente Joe Biden está empeorando, dice su hijo**\
+`Hunter Biden dijo en una entrevista con la BBC que el cáncer de próstata del expresidente hizo metástasis en otras partes del cuerpo y se ha vuelto doloroso.`\
+https://www.nytimes.com/es/2026/08/09/espanol/estados-unidos/joe-biden-cancer.html
+
+**Flight Is Canceled After a Child Refuses to Be Seated**\
+`Passengers aboard a Porter Airlines plane headed to Toronto had to wait for a flight the next day after a child remained standing in a seat and would not get buckled in, the company said.`\
+https://www.nytimes.com/2026/08/09/travel/flight-canceled-child-seatbelt-porter-canada.html
+
 **Geraldine de Haas, ‘the First Lady of Chicago Jazz,’ Dies at 91**\
 `After a successful singing career, she led the revival of jazz in the Windy City in the 1970s and ’80s, organizing festivals and concert series.`\
 https://www.nytimes.com/2026/08/09/obituaries/geraldine-de-haas-dead.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/es/2026/08/09/espanol/opinion/trump-intervencion-yen.htm
 **El evangelio según Anthony Bourdain**\
 `Los admiradores del fallecido escritor y chef le profesan una devoción casi de culto. Pero ¿han malinterpretado su mensaje?`\
 https://www.nytimes.com/es/2026/08/09/espanol/el-evangelio-segun-anthony-bourdain.html
-
-**‘The Squirrel Pounced on the Apple and Scampered a Few Steps Away’**\
-`Catching up on a crosstown bus, a chaotic street scene in the Bronx and more reader tales from New York City in this week’s Metropolitan Diary.`\
-https://www.nytimes.com/2026/08/09/nyregion/metropolitan-diary.html
-
-**NYT Spelling Bee for August 9, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/08/09/crosswords/spelling-bee-forum.html
-
-**Moderate Democrat in Hawaii Easily Defeats Progressive House Challenger**\
-`Representative Ed Case beat Jarrett Keohokalole, a younger progressive, in a race that centered on questions of generational change and the state’s skyrocketing cost of living.`\
-https://www.nytimes.com/2026/08/09/us/politics/hawaii-ed-case-jarrett-keohokalole.html
 
