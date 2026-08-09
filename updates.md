@@ -1,3 +1,7 @@
+**2 Die After Boat Overturns in New York Harbor, Police Say**\
+`Police divers found a 27-year-old woman and a 5-month-old baby in the water near Liberty Island. They were pronounced dead at a hospital.`\
+https://www.nytimes.com/2026/08/09/nyregion/new-york-harbor-boat-capsizes-dead.html
+
 **A Democrat Sounds the Alarm on Christian Nationalism in Congress**\
 `Representative Jared Huffman of California, the only self-declared “humanist” in Congress, writes in a new book that the separation of church and state is in grave danger.`\
 https://www.nytimes.com/2026/08/09/us/politics/democrat-huffman-humanist-religion-christianity.html
