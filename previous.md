@@ -1,3 +1,7 @@
+**Don Nelson, Hall of Fame NBA Coach and Celtics Star, Dies at 86**\
+`One of the winningest coaches in league history, he led the Bucks, the Warriors and the Mavericks. He also had a brief stint with the Knicks.`\
+https://www.nytimes.com/2026/08/09/obituaries/don-nelson-dead.html
+
 **Netanyahu rechaza el plan de Trump para desarmar a Hamás**\
 `La propuesta contempla un proceso en el que Hamás entregaría sus armas en etapas a un nuevo gobierno palestino en Gaza. A cambio, Israel se retiraría gradualmente.`\
 https://www.nytimes.com/es/2026/08/09/espanol/mundo/trump-plan-netanyahu-hamas.html
@@ -55,7 +59,7 @@ https://www.nytimes.com/2026/08/09/us/politics/obama-abdul-el-sayed-michigan-sen
 https://www.nytimes.com/2026/08/09/weather/extreme-heat-wave-uk-france-spain-forecast.html
 
 **Israel Rejects Trump’s 15-Point Plan to Disarm Hamas**\
-`President Trump’s Board of Peace announced an agreement last month that aimed at Hamas giving up its weapons alongside an Israeli withdrawal from Gaza.`\
+`President Trump’s Board of Peace announced an agreement last month that aimed at Hamas’s giving up its weapons alongside an Israeli withdrawal from Gaza.`\
 https://www.nytimes.com/2026/08/09/world/middleeast/israel-netanyahu-trump-15-point-plan-hamas-peace-gaza.html
 
 **The Pope’s Favorite Team**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/08/09/espanol/estilos-de-vida/justin-trudeau-kat
 **Es la mujer más rica de Rusia. Su imperio empresarial está en llamas**\
 `Mientras Ucrania ataca repetidamente los almacenes del sitio de comercio electrónico Wildberries, Tatyana Kim, su multimillonaria cofundadora, se enfrenta a su mayor prueba hasta ahora.`\
 https://www.nytimes.com/es/2026/08/09/espanol/mundo/wildberries-rusia-tienda-ataques-ucrania.html
-
-**La simplicidad de Jack Johnson se ha vuelto aspiracional**\
-`Sus himnos congelados en el tiempo, odas a dejarse llevar, son la banda sonora de un verano de videos optimistas en redes.`\
-https://www.nytimes.com/es/2026/08/09/espanol/cultura/jack-johnson-documental.html
 

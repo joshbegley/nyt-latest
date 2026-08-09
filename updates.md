@@ -1,3 +1,11 @@
+**Don Nelson, Hall of Fame NBA Coach and Celtics Star, Dies at 86**\
+`One of the winningest coaches in league history, he led the Bucks, the Warriors and the Mavericks. He also had a brief stint with the Knicks.`\
+https://www.nytimes.com/2026/08/09/obituaries/don-nelson-dead.html
+
+**Israel Rejects Trump’s 15-Point Plan to Disarm Hamas**\
+`President Trump’s Board of Peace announced an agreement last month that aimed at Hamas’s giving up its weapons alongside an Israeli withdrawal from Gaza.`\
+https://www.nytimes.com/2026/08/09/world/middleeast/israel-netanyahu-trump-15-point-plan-hamas-peace-gaza.html
+
 **Netanyahu rechaza el plan de Trump para desarmar a Hamás**\
 `La propuesta contempla un proceso en el que Hamás entregaría sus armas en etapas a un nuevo gobierno palestino en Gaza. A cambio, Israel se retiraría gradualmente.`\
 https://www.nytimes.com/es/2026/08/09/espanol/mundo/trump-plan-netanyahu-hamas.html
