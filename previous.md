@@ -1,3 +1,7 @@
+**Books to Make You Feel Something**\
+`Or: Believing’s summer reading list.`\
+https://www.nytimes.com/2026/08/09/briefing/books-to-make-you-feel-something.html
+
 **Esta es la dieta de los hombres más poderosos de EE. UU. Yo la probé**\
 `Me intrigaba que hubiera una dieta radical y varonil para personas radicales y varoniles. Los resultados fueron fascinantes.`\
 https://www.nytimes.com/es/2026/08/09/espanol/dieta-hombres-poderosos.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/08/business/mackenzie-scott-new-book.html
 **Bald Range Wildfire Forces Evacuation of 18,000 in British Columbia**\
 `The Bald Range fire has burned more than 25,000 acres in British Columbia. At one point, the fire spread more than 2,000 acres in about an hour, officials said.`\
 https://www.nytimes.com/2026/08/08/world/canada/canada-summerland-bc-wildfire-bald-range-evacuation.html
-
-**Senate Confirms Blanche as Attorney General**\
-`The Senate confirmed Todd Blanche as attorney general on Saturday, pushing past criticism over whether he would compromise the Justice Department’s independence.`\
-https://www.nytimes.com/video/us/politics/100000011081301/senate-blanche-attorney-general.html
 

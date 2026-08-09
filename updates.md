@@ -1,3 +1,7 @@
+**Books to Make You Feel Something**\
+`Or: Believing’s summer reading list.`\
+https://www.nytimes.com/2026/08/09/briefing/books-to-make-you-feel-something.html
+
 **Blackbird Mountain Guides Report on Lake Tahoe Avalanche That Killed 9 Skiers Assigns No Blame**\
 `The report was commissioned by Blackbird Mountain Guides, which was in charge of the trip near Lake Tahoe in February.`\
 https://www.nytimes.com/2026/08/08/us/tahoe-avalanche-blackbird-report.html
