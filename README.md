@@ -1,3 +1,7 @@
+**El calor se extenderá por Europa antes del eclipse**\
+`Las temperaturas disminuyeron en algunas zonas de Europa, pero se pronostica que aumentarán de nuevo en los próximos días.`\
+https://www.nytimes.com/es/2026/08/09/espanol/tiempo-y-clima/calor-europa-eclipse.html
+
 **Iran Taps Longtime I.R.G.C. Commander Mohsen Rezaei to Top Security Post**\
 `The appointment of Mohsen Rezaei as secretary of the Supreme National Security Council suggests that Iran’s old guard is consolidating power.`\
 https://www.nytimes.com/2026/08/09/world/middleeast/iran-security-council-guards-commander.html
@@ -15,7 +19,7 @@ https://www.nytimes.com/2026/08/09/travel/flight-canceled-child-seatbelt-porter-
 https://www.nytimes.com/2026/08/09/obituaries/geraldine-de-haas-dead.html
 
 **Ocasio-Cortez Says She Is Freezing Her Eggs and Still Mulling a Presidential Run**\
-`In videos on social media, Representative Alexandria Ocasio-Cortez said she wanted “to show more depictions of women having full lives in every context and every choice.”`\
+`In a TV interview, Representative Alexandria Ocasio-Cortez distanced herself from positions like “defund the police” and indicated she hasn’t ruled out a presidential or Senate run.`\
 https://www.nytimes.com/2026/08/09/nyregion/nyc-alexandria-ocasio-cortez-freezing-eggs.html
 
 **It’s Not Summer Without Ratatouille**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/08/09/espanol/cultura/jack-johnson-documental.ht
 **¿Qué gana Trump con apuntalar el yen?**\
 `EE. UU. está respaldando el yen, como lo hizo con el peso argentino, y las razones no son solo económicas.`\
 https://www.nytimes.com/es/2026/08/09/espanol/opinion/trump-intervencion-yen.html
-
-**El evangelio según Anthony Bourdain**\
-`Los admiradores del fallecido escritor y chef le profesan una devoción casi de culto. Pero ¿han malinterpretado su mensaje?`\
-https://www.nytimes.com/es/2026/08/09/espanol/el-evangelio-segun-anthony-bourdain.html
 
