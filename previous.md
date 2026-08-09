@@ -1,3 +1,7 @@
+**Ocasio-Cortez Says She Is Freezing Her Eggs**\
+`In videos on social media, Representative Alexandria Ocasio-Cortez said she wanted “to show more depictions of women having full lives in every context and every choice.”`\
+https://www.nytimes.com/2026/08/09/nyregion/nyc-alexandria-ocasio-cortez-freezing-eggs.html
+
 **It’s Not Summer Without Ratatouille**\
 `The combination of velvety eggplant, slivers of soft pepper and saucy tomatoes is enough of a reward to justify the oven time on a Sunday afternoon.`\
 https://www.nytimes.com/2026/08/09/dining/its-not-summer-without-ratatouille.html
@@ -27,7 +31,7 @@ https://www.nytimes.com/2026/08/09/us/politics/obama-abdul-el-sayed-michigan-sen
 https://www.nytimes.com/2026/08/09/weather/extreme-heat-wave-uk-france-spain-forecast.html
 
 **Israel Rejects Trump’s 15-Point Plan to Disarm Hamas**\
-`President Trump’s Board of Peace announced an agreement last month that aimed at Hamas giving up its weapons alongside an Israeli withdrawal from Gaza.`\
+`President Trump’s Board of Peace announced an agreement last month that aimed at Hamas’s giving up its weapons alongside an Israeli withdrawal from Gaza.`\
 https://www.nytimes.com/2026/08/09/world/middleeast/israel-netanyahu-trump-15-point-plan-hamas-peace-gaza.html
 
 **The Pope’s Favorite Team**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/09/us/politics/hawaii-ed-case-jarrett-keohokalol
 **It Won’t Stop at the Arc de Trump. It Won’t Stop at Washington.**\
 `The Trump administration’s proposed changes to the review process will allow it to take a wrecking ball to historic sites across the country.`\
 https://www.nytimes.com/2026/08/09/opinion/trump-washington-landmarks-arch-pool-east-wing.html
-
-**Quote of the Day: The Lonely Crew at the Kennedy Center Will Miss Its…Mice**\
-`Quotation of the Day for Sunday, August 9, 2026.`\
-https://www.nytimes.com/2026/08/09/pageoneplus/quote-of-the-day-the-lonely-crew-at-the-kennedy-center-will-miss-itsmice.html
 
