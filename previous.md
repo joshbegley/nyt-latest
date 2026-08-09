@@ -1,3 +1,15 @@
+**El evangelio según Anthony Bourdain**\
+`Los admiradores del fallecido escritor y chef le profesan una devoción casi de culto. Pero ¿han malinterpretado su mensaje?`\
+https://www.nytimes.com/es/2026/08/09/espanol/el-evangelio-segun-anthony-bourdain.html
+
+**‘The Squirrel Pounced on the Apple and Scampered a Few Steps Away’**\
+`Catching up on a crosstown bus, a chaotic street scene in the Bronx and more reader tales from New York City in this week’s Metropolitan Diary.`\
+https://www.nytimes.com/2026/08/09/nyregion/metropolitan-diary.html
+
+**NYT Spelling Bee for August 9, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/08/09/crosswords/spelling-bee-forum.html
+
 **Moderate Democrat in Hawaii Defeats Progressive House Challenger**\
 `Representative Ed Case beat Jarrett Keohokalole, a younger progressive, in a race that centered on questions of generational change and the state’s skyrocketing cost of living.`\
 https://www.nytimes.com/2026/08/09/us/politics/hawaii-ed-case-jarrett-keohokalole.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/08/08/opinion/housing-retirement-elderly.html
 **Hello, Democrats? Are You Listening?**\
 `Michigan presents as much a warning as it does an opportunity.`\
 https://www.nytimes.com/video/opinion/100000011077969/hello-democrats-are-you-listening.html
-
-**As Thailand Gets Known for Mass Shootings, Fresh Pledges to Fix Gun Laws**\
-`A rampage at a high school in Thailand on Friday was the latest episode of gun violence in a country that has grappled in recent years with several attacks.`\
-https://www.nytimes.com/2026/08/08/world/asia/thailand-mass-shootings-gun-laws.html
-
-**Edge of Your Seat**\
-`A superfan of thrillers recommends some of her favorites.`\
-https://www.nytimes.com/2026/08/08/briefing/edge-of-your-seat.html
-
-**My Stepson’s Hateful Views Are Damaging My Business. What Should I Do?**\
-`I would love to bar this person from our home, but I cannot.`\
-https://www.nytimes.com/2026/08/08/magazine/stepson-social-media-ethics.html
 
