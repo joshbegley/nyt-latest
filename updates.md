@@ -1,3 +1,7 @@
+**Moderate Democrat in Hawaii Easily Defeats Progressive House Challenger**\
+`Representative Ed Case beat Jarrett Keohokalole, a younger progressive, in a race that centered on questions of generational change and the state’s skyrocketing cost of living.`\
+https://www.nytimes.com/2026/08/09/us/politics/hawaii-ed-case-jarrett-keohokalole.html
+
 **Obama and Abdul El-Sayed Spoke to Discuss Unity After Michigan Senate Primary**\
 `Dr. Abdul El-Sayed’s call with the former president comes as he tries to win over wary Democrats in Michigan’s high-stakes Senate race.`\
 https://www.nytimes.com/2026/08/09/us/politics/obama-abdul-el-sayed-michigan-senate.html
