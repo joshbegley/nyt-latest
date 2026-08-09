@@ -1,3 +1,15 @@
+**Es la mujer más rica de Rusia. Su imperio empresarial está en llamas**\
+`Mientras Ucrania ataca repetidamente los almacenes del sitio de comercio electrónico Wildberries, Tatyana Kim, su multimillonaria cofundadora, se enfrenta a su mayor prueba hasta ahora.`\
+https://www.nytimes.com/es/2026/08/09/espanol/mundo/wildberries-rusia-tienda-ataques-ucrania.html
+
+**La simplicidad de Jack Johnson se ha vuelto aspiracional**\
+`Sus himnos congelados en el tiempo, odas a dejarse llevar, son la banda sonora de un verano de videos optimistas en redes.`\
+https://www.nytimes.com/es/2026/08/09/espanol/cultura/jack-johnson-documental.html
+
+**¿Qué gana Trump con apuntalar el yen?**\
+`EE. UU. está respaldando el yen, como lo hizo con el peso argentino, y las razones no son solo económicas.`\
+https://www.nytimes.com/es/2026/08/09/espanol/opinion/trump-intervencion-yen.html
+
 **El evangelio según Anthony Bourdain**\
 `Los admiradores del fallecido escritor y chef le profesan una devoción casi de culto. Pero ¿han malinterpretado su mensaje?`\
 https://www.nytimes.com/es/2026/08/09/espanol/el-evangelio-segun-anthony-bourdain.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/08/08/opinion/cambridge-plagiarism-arday-higher-edu
 **What American Poverty Looks Like**\
 `A Latin American sees homes that have air-conditioning but are racked by addiction and puzzles over what it means to be poor.`\
 https://www.nytimes.com/2026/08/08/opinion/america-poverty-peru.html
-
-**Who Is My Enemy? I’m No Longer Sure.**\
-`Where does the side of the angels really lie?`\
-https://www.nytimes.com/2026/08/08/opinion/obama-trump-biden-enemy.html
-
-**Hanging On to This Old House**\
-`Readers respond to a guest essay about what happens when your home is also your nest egg.`\
-https://www.nytimes.com/2026/08/08/opinion/housing-retirement-elderly.html
-
-**Hello, Democrats? Are You Listening?**\
-`Michigan presents as much a warning as it does an opportunity.`\
-https://www.nytimes.com/video/opinion/100000011077969/hello-democrats-are-you-listening.html
 
