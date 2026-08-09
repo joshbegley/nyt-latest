@@ -42,7 +42,7 @@ https://www.nytimes.com/2026/08/09/briefing/the-popes-favorite-team.html
 `Zohran Mamdani’s “all of the above” media strategy, which encompasses ethnic media, influencers and content creators, has led to a recent Black media blitz.`\
 https://www.nytimes.com/2026/08/09/nyregion/black-media-mamdani.html
 
-**2 Die After Boat Overturns in New York Harbor, Police Say**\
+**2 Die After Boat Overturns in New York Harbor**\
 `Police divers found a 27-year-old woman and a 5-month-old baby in the water near Liberty Island. A man was arrested and charged with reckless endangerment.`\
 https://www.nytimes.com/2026/08/09/nyregion/new-york-harbor-boat-capsizes-dead.html
 
