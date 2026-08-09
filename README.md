@@ -1,3 +1,39 @@
+**Blue and Red America Have Become the Bitter Couple That Can’t Quite Face Divorce**\
+`It can’t go on like this forever.`\
+https://www.nytimes.com/2026/08/09/opinion/america-politics-blue-red-democrats-republicans.html
+
+**BTS’s Grammys Boycott Highlights the Perils of Pop Music**\
+`The genre was shaped by exclusion, not expansion.`\
+https://www.nytimes.com/2026/08/09/opinion/bts-grammys-pop-genre-racism.html
+
+**Please Judge What I’m Reading**\
+`Literary awards get dismissed for elitism. But more than ever, we need passionate and idiosyncratic champions for the books most worth seeking out.`\
+https://www.nytimes.com/2026/08/09/opinion/reading-books-judges-awards-booker.html
+
+**Is ‘Gentle Parenting’ Ruining French Children?**\
+`The importing of American-style “positive parenting” has sparked a fierce debate about the best way to raise kids in France.`\
+https://www.nytimes.com/2026/08/09/podcasts/the-daily/is-gentle-parenting-ruining-french-children.html
+
+**NYT Connections Answers for August 10, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Aug. 10, 2026.`\
+https://www.nytimes.com/2026/08/09/crosswords/connections-companion-1156.html
+
+**Today’s Wordle Hints for August 10, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Aug. 10, 2026.`\
+https://www.nytimes.com/2026/08/09/crosswords/wordle-review-1878.html
+
+**Therapy Needs Therapy. Neuroscience Can Help.**\
+`The good news is that the neuroscience of perception can pave the way out.`\
+https://www.nytimes.com/2026/08/09/opinion/therapy-neuroscience-perception.html
+
+**These Doctors Perform Daily Miracles, No Hospital in Sight**\
+`Every city needs street medicine.`\
+https://www.nytimes.com/2026/08/09/opinion/street-medicine-homeless-health-care.html
+
+**NYT Strands Hints for Aug. 10, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Aug. 10, 2026.`\
+https://www.nytimes.com/2026/08/09/crosswords/strands-sidekick-890.html
+
 **Believing’s Summer Reading List**\
 `Today, I’m sharing some of what I’ve been reading — and what you’ve told me you’re reading,`\
 https://www.nytimes.com/2026/08/09/briefing/books-to-make-you-feel-something.html
@@ -161,40 +197,4 @@ https://www.nytimes.com/2026/08/08/us/politics/hunter-biden-says-his-fathers-can
 **Freestyle Exercise**\
 `Erik Agard’s themeless Sunday grid pulls you in with centripetal force.`\
 https://www.nytimes.com/2026/08/08/crosswords/daily-puzzle-2026-08-09.html
-
-**William Orbit, Producer for Madonna’s ‘Ray of Light,’ Dies at 69**\
-`A three-time Grammy winner who was renowned for his mastery of electronic music styles, he also worked with Blur, Pink, Britney Spears and All Saints.`\
-https://www.nytimes.com/2026/08/08/arts/music/william-orbit-dead.html
-
-**Canada Wildfire Forces Thousands to Evacuate**\
-`Over 18,000 people are under evacuation orders because of a wildfire in British Columbia, local officials said. The Bald Range fire, which started on Friday, is burning about 260 miles east of Vancouver.`\
-https://www.nytimes.com/video/weather/100000011081368/canada-wildfire-evacuation-summerland.html
-
-**This Spiritual Retreat Helps People Find Ecstasy Through Whirling**\
-`A retreat in Turkey is guiding visitors to seek transcendence through sema, the spiritual practice of whirling.`\
-https://www.nytimes.com/video/world/europe/100000011081356/turkey-sema-whirling-dervish-islam.html
-
-**Two Killed in Firefighting Helicopter Crash Near Utah Wildfire**\
-`The aircraft was responding to the Widemouth 2 fire, which has burned more than 100,000 acres since starting last month.`\
-https://www.nytimes.com/2026/08/08/us/two-killed-wildfire-helicopter-crash.html
-
-**Bill Goichberg, Who Reshaped Competitive Chess in the U.S., Dies at 83**\
-`Over a six-decade career, he drastically expanded chess through the tournaments he started, especially the competitions for young players.`\
-https://www.nytimes.com/2026/08/08/us/bill-goichberg-dead.html
-
-**Senate Bows to Reality, Leaving Trump’s Voting Bill Undone**\
-`The summer exit confirmed what had been apparent for weeks: that Republicans lacked the votes to pass the voting restrictions the president has made a top priority.`\
-https://www.nytimes.com/2026/08/08/us/politics/senate-bows-to-reality-leaving-trumps-voting-bill-undone.html
-
-**Blackbird Mountain Guides Report on Lake Tahoe Avalanche That Killed 9 Skiers Assigns No Blame**\
-`The report was commissioned by Blackbird Mountain Guides, which was in charge of the trip near Lake Tahoe in February.`\
-https://www.nytimes.com/2026/08/08/us/tahoe-avalanche-blackbird-report.html
-
-**MacKenzie Scott Steps Back Into Spotlight With New Book**\
-`She posted four pages of a manuscript on a newly started Substack newsletter on Saturday and said that the novel would be released serially throughout August.`\
-https://www.nytimes.com/2026/08/08/business/mackenzie-scott-new-book.html
-
-**Bald Range Wildfire Forces Evacuation of 18,000 in British Columbia**\
-`The Bald Range fire has burned more than 25,000 acres in British Columbia. At one point, the fire spread more than 2,000 acres in about an hour, officials said.`\
-https://www.nytimes.com/2026/08/08/world/canada/canada-summerland-bc-wildfire-bald-range-evacuation.html
 

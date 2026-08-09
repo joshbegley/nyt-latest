@@ -1,3 +1,7 @@
+**Believing’s Summer Reading List**\
+`Today, I’m sharing some of what I’ve been reading — and what you’ve told me you’re reading,`\
+https://www.nytimes.com/2026/08/09/briefing/books-to-make-you-feel-something.html
+
 **Books to Make You Feel Something**\
 `Or: Believing’s summer reading list.`\
 https://www.nytimes.com/2026/08/09/briefing/books-to-make-you-feel-something.html
