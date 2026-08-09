@@ -75,7 +75,7 @@ https://www.nytimes.com/es/2026/08/09/espanol/amiga-botox-critica.html
 https://www.nytimes.com/2026/08/09/pageoneplus/corrections-aug-9-2026.html
 
 **In Michigan, a Former Trump Critic Shifts Toward Election Skepticism**\
-`Mike Rogers, the Republican Senate nominee, has suggested that further scrutiny of the 2020 election was warranted and that voting irregularities sunk his first Senate bid two years ago.`\
+`Mike Rogers, the Republican Senate nominee, has suggested that further scrutiny of the 2020 election was warranted and that voting irregularities had sunk his first Senate bid two years ago.`\
 https://www.nytimes.com/2026/08/09/us/politics/mike-rogers-michigan-senate-elections.html
 
 **A Democrat Sounds the Alarm on Christian Nationalism in Congress**\

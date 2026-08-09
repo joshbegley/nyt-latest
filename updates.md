@@ -1,3 +1,7 @@
+**In Michigan, a Former Trump Critic Shifts Toward Election Skepticism**\
+`Mike Rogers, the Republican Senate nominee, has suggested that further scrutiny of the 2020 election was warranted and that voting irregularities had sunk his first Senate bid two years ago.`\
+https://www.nytimes.com/2026/08/09/us/politics/mike-rogers-michigan-senate-elections.html
+
 **Moderate Democrat in Hawaii Easily Defeats Progressive House Challenger**\
 `Representative Ed Case beat Jarrett Keohokalole, a younger progressive, in a race that centered on questions of generational change and the state’s skyrocketing cost of living.`\
 https://www.nytimes.com/2026/08/09/us/politics/hawaii-ed-case-jarrett-keohokalole.html
