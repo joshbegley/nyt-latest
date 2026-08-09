@@ -1,3 +1,7 @@
+**Chuck Grassley Announces the Death of His Beloved Vacuum, Beth**\
+`Senator Chuck Grassley mourned his decades-long cleaning companion, writing on social media: “GOOD BYE BETH. U hv been a real workhorse.”`\
+https://www.nytimes.com/2026/08/08/us/politics/beth-vacuum-chuck-grassley-iowa.html
+
 **Abbe Lane, Sultry Singer With a Latin Flair, Dies at 94**\
 `She was a Broadway dancer before becoming Xavier Cugat’s star vocalist and later building a solo career.`\
 https://www.nytimes.com/2026/08/08/arts/music/abbe-lane-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/08/weather/europe-heat-wave-italy-uk-france-spai
 **Trump Officials Under Pressure to Deport Haitians After Supreme Court Win on T.P.S. Program**\
 `The lack of visible raids aggressively targeting Haitians who lost temporary status has frustrated some of President Trump’s most fervent supporters.`\
 https://www.nytimes.com/2026/08/08/us/politics/tps-haitians-deport.html
-
-**Corrections: Aug. 8, 2026**\
-`Corrections that appeared in print on Saturday, Aug. 8, 2026.`\
-https://www.nytimes.com/2026/08/08/pageoneplus/corrections-aug-8-2026.html
 

@@ -1,3 +1,7 @@
+**Chuck Grassley Announces the Death of His Beloved Vacuum, Beth**\
+`Senator Chuck Grassley mourned his decades-long cleaning companion, writing on social media: “GOOD BYE BETH. U hv been a real workhorse.”`\
+https://www.nytimes.com/2026/08/08/us/politics/beth-vacuum-chuck-grassley-iowa.html
+
 **Abbe Lane, Sultry Singer With a Latin Flair, Dies at 94**\
 `She was a Broadway dancer before becoming Xavier Cugat’s star vocalist and later building a solo career.`\
 https://www.nytimes.com/2026/08/08/arts/music/abbe-lane-dead.html
