@@ -1,3 +1,7 @@
+**2 Die After Boat Overturns in New York Harbor, Police Say**\
+`Police divers found a 27-year-old woman and a 5-month-old baby in the water near Liberty Island. A man was arrested and charged with reckless endangerment.`\
+https://www.nytimes.com/2026/08/09/nyregion/new-york-harbor-boat-capsizes-dead.html
+
 **A Young Marine’s Reckoning With the Afghanistan War**\
 `Readers respond to a front-page essay by Thomas Gibbons-Neff, a veteran, and ponder the moral complexities of war. Also: Women victimized by Uber.`\
 https://www.nytimes.com/2026/08/09/opinion/afghanistan-war.html
