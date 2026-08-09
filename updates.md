@@ -1,3 +1,7 @@
+**Hunter Biden Says His Father’s Cancer Is Worsening**\
+`In an interview with the BBC, Mr. Biden said that former President Joseph R. ⁠Biden Jr.’s prostate cancer had spread into his bones and was causing pain.`\
+https://www.nytimes.com/2026/08/08/us/politics/hunter-biden-joe-biden-cancer.html
+
 **2 Die After Boat Overturns in New York Harbor, Police Say**\
 `Police divers found a 27-year-old woman and a 5-month-old baby in the water near Liberty Island. They were pronounced dead at a hospital.`\
 https://www.nytimes.com/2026/08/09/nyregion/new-york-harbor-boat-capsizes-dead.html
