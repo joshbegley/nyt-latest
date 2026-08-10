@@ -1,3 +1,7 @@
+**Muggy Heat and Storms Continue to Grip the U.S., but an End Is in Sight**\
+`Weather at the start of the week looks like more of the same: heat and storms across the Eastern United States. But a subtle shift is in the cards.`\
+https://www.nytimes.com/2026/08/10/weather/heat-storms-midwest-northeast-us.html
+
 **How We Talk About Mental Health Challenges**\
 `The National Alliance on Mental Illness responds to an Opinion guest essay. Also: President Trump’s arch; a retreat on vaccines; Mr. Trump and Canada.`\
 https://www.nytimes.com/2026/08/10/opinion/mental-health.html

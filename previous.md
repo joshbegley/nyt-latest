@@ -2,9 +2,9 @@
 `The National Alliance on Mental Illness responds to an Opinion guest essay. Also: President Trump’s arch; a retreat on vaccines; Mr. Trump and Canada.`\
 https://www.nytimes.com/2026/08/10/opinion/mental-health.html
 
-**It’s Sultry and Stormy, but That Points to Looming Relief**\
+**Muggy Heat and Storms Continue to Grip the U.S., but an End Is in Sight**\
 `Weather at the start of the week looks like more of the same: heat and storms across the Eastern United States. But a subtle shift is in the cards.`\
-https://www.nytimes.com/2026/08/10/weather/weather-this-week-starts-hot-but-an-end-is-in-sight.html
+https://www.nytimes.com/2026/08/10/weather/heat-storms-midwest-northeast-us.html
 
 **Trump Concedes There Was ‘Some Contractor Error’ in Reflecting Pool Renovations**\
 `The president had insisted for weeks that the landmarks’ algae-stained waters and peeling lining were the fault of vandals, not the project itself.`\
