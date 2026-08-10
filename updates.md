@@ -1,3 +1,7 @@
+**The Teenager Chasing Solar Eclipse Totality**\
+`A 17-year-old photographer, who goes by V, traveled from the United States to Spain to witness Wednesday’s total solar eclipse. He became “obsessed” with the cosmic events after seeing one two years ago.`\
+https://www.nytimes.com/video/world/europe/100000011069592/total-solar-eclipse-mallorca.html
+
 **Mike DeWine: Only Trump Can Pull Off Immigration Reform**\
 `Immigration could be his Nixon-goes-to-China.`\
 https://www.nytimes.com/2026/08/10/opinion/trump-dewine-immigration-reform.html
