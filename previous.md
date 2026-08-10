@@ -1,3 +1,19 @@
+**Un poderoso terremoto sacude Colombia**\
+`El temblor de magnitud 7,4 golpeó la parte occidental del país, entre las ciudades de Bogotá, Cali y Medellín, apenas semanas después de que sismos de intensidad similar devastaran partes de la vecina Venezuela.`\
+https://www.nytimes.com/live/2026/08/10/espanol/colombia-temblor-terremoto
+
+**Today, In Short**\
+`Rush week. Katseye. And “Heated Rivalry.”`\
+https://www.nytimes.com/2026/08/10/briefing/today-in-short.html
+
+**Eclipse total de Sol en Europa: visibilidad y recorrido**\
+`Revisa el pronóstico de nubosidad, el recorrido y la hora del eclipse cerca de ti.`\
+https://www.nytimes.com/es/interactive/2026/08/10/espanol/eclipse-donde-ver-mapa.html
+
+**Police in India Use Tear Gas to Break Youth Protest**\
+`Thousands of protesters in the eastern state of Jharkhand claim irregularities in qualifying exams for government jobs and are demanding an overhaul of the system.`\
+https://www.nytimes.com/2026/08/10/world/asia/police-india-protest-jharkhand-jobs.html
+
 **F.D.A. Moves Toward Tighter Restrictions on Food Ingredients**\
 `A proposed rule would require companies to notify the agency about ingredients they plan to add, but companies would still be able to self-police their safety.`\
 https://www.nytimes.com/2026/08/10/well/fda-gras-food-safety.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/08/10/t-magazine/alia-shawkat-charlotte-day-wilson.
 **Can A.I. Get You Where You Want to Go for Less?**\
 `A wave of new services uses A.I. to monitor flights and hotel reservations to help you find lower prices. We look at how these tools work.`\
 https://www.nytimes.com/2026/08/10/travel/ai-travel-savings.html
-
-**The Surveillance Network Tracking Cars Across the U.S.**\
-`License plate readers, like those made by Flock Safety, have become ubiquitous in the U.S. Our reporters Fernando Alfonso III and Kashmir Hill explain how advances in technology have led to growing privacy concerns and opposition to these systems.`\
-https://www.nytimes.com/video/us/100000011056273/the-surveillance-network-tracking-cars-across-the-us.html
-
-**Word of the Day: phantasmagoric**\
-`This word has appeared in 23 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/08/10/learning/word-of-the-day-phantasmagoric.html
-
-**Why Are So Many People Upset About Flock Cameras?**\
-`Flock Safety’s automated license plate-reading cameras, used by thousands of law enforcement agencies in the U.S., have drawn intense criticism from civil liberties groups.`\
-https://www.nytimes.com/article/flock-safety-camera-technology.html
-
-**The Incomprehensible Fashion Statements of Gen Z**\
-`It used to be that you could tell goths from preps by the look of them.`\
-https://www.nytimes.com/2026/08/10/opinion/subcultures-dead-age.html
 

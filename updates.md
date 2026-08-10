@@ -1,3 +1,19 @@
+**Un poderoso terremoto sacude Colombia**\
+`El temblor de magnitud 7,4 golpeó la parte occidental del país, entre las ciudades de Bogotá, Cali y Medellín, apenas semanas después de que sismos de intensidad similar devastaran partes de la vecina Venezuela.`\
+https://www.nytimes.com/live/2026/08/10/espanol/colombia-temblor-terremoto
+
+**Today, In Short**\
+`Rush week. Katseye. And “Heated Rivalry.”`\
+https://www.nytimes.com/2026/08/10/briefing/today-in-short.html
+
+**Eclipse total de Sol en Europa: visibilidad y recorrido**\
+`Revisa el pronóstico de nubosidad, el recorrido y la hora del eclipse cerca de ti.`\
+https://www.nytimes.com/es/interactive/2026/08/10/espanol/eclipse-donde-ver-mapa.html
+
+**Police in India Use Tear Gas to Break Youth Protest**\
+`Thousands of protesters in the eastern state of Jharkhand claim irregularities in qualifying exams for government jobs and are demanding an overhaul of the system.`\
+https://www.nytimes.com/2026/08/10/world/asia/police-india-protest-jharkhand-jobs.html
+
 **Live Updates: Powerful 7.4 Earthquake Strikes Colombia**\
 `The quake shook several major cities, including Bogotá, Cali and Medellín. At least 18 people were reported dead in the city of Pereira, about 35 miles from the epicenter.`\
 https://www.nytimes.com/live/2026/08/10/world/colombia-earthquake-bogota-cali
