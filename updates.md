@@ -1,3 +1,7 @@
+**Map: 7.4-Magnitude Earthquake Shakes Colombia**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/08/10/world/earthquake-colombia-tracker.html
+
 **Why Meta Is Betting Big on Open A.I.**\
 `The technology giant is embracing open models, closer ties to Washington and more as it seeks to catch up in the artificial intelligence race.`\
 https://www.nytimes.com/2026/08/10/business/dealbook/meta-open-ai.html
