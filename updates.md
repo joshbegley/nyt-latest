@@ -1,3 +1,11 @@
+**Live Updates: Powerful Earthquake Strikes Colombia**\
+`The magnitude 7.4 quake hit the western part of the country, between the cities of Bogotá, Cali and Medellin, just weeks after quakes of similar intensity devastated parts of neighboring Venezuela.`\
+https://www.nytimes.com/live/2026/08/10/world/colombia-earthquake-bogota-cali
+
+**Gyeran Bap (Egg Rice)**\
+`Gyeran bap is a lifesaving Korean pantry meal of fried eggs stirred into steamed white rice.`\
+https://www.nytimes.com/video/dining/100000011082920/gyeran-bap-egg-rice.html
+
 **Powerful Earthquake Strikes Colombia**\
 `The magnitude 7.4 quake hit the western part of the country, shaking Bogotá, Cali, Medellín and other cities, just weeks after quakes of similar intensity devastated parts of neighboring Venezuela.`\
 https://www.nytimes.com/2026/08/10/world/americas/colombia-earthquake.html
