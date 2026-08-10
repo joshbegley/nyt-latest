@@ -1,3 +1,7 @@
+**Colombia’s Earthquake Puts Abelardo De La Espriella, Its New President, to the Test**\
+`Abelardo De La Espriella had never held public office until his inauguration on Friday. Now, he is at the helm of a major disaster response.`\
+https://www.nytimes.com/2026/08/10/world/americas/colombia-earthquake-de-la-espriella.html
+
 **Jackie, Bald Eagle in California Who Became Livestream Star, Is Dead**\
 `Jackie had been receiving medical treatment since she was attacked by other eagles last month and found unable to fly near Big Bear Lake.`\
 https://www.nytimes.com/2026/08/10/us/jackie-bald-eagle-california-dead.html
@@ -58,7 +62,7 @@ https://www.nytimes.com/2026/08/10/nyregion/subway-mamdani-mta-heat-geothermal.h
 `Investigators are focusing on the tour operator and the pilot of the boat that capsized in New York Bay on Saturday, killing a mother and her infant daughter.`\
 https://www.nytimes.com/2026/08/10/nyregion/nyc-boat-deadly-capsize.html
 
-**How Trump’s Yearlong ‘Takeover’ of Washington Has Changed the Capital**\
+**One Year Later, Trump’s ‘Takeover’ Has Changed D.C. Is It Better Off?**\
 `The deployment of National Guard troops and federal agents into the streets has been expensive. How effective it has been is debatable.`\
 https://www.nytimes.com/2026/08/10/us/national-guard-washington-dc.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/10/podcasts/the-daily/younger-adults-cancer-scie
 **How Cameras Can Track Every Car in the U.S., and Iran’s Catch-22**\
 `Plus, a drying river reveals Nazi-era vessels.`\
 https://www.nytimes.com/2026/08/10/podcasts/the-headlines/cameras-car-flock-iran.html
-
-**NYT Connections Answers for August 11, 2026**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, Aug. 11, 2026.`\
-https://www.nytimes.com/2026/08/10/crosswords/connections-companion-1157.html
 
