@@ -1,3 +1,7 @@
+**How We Talk About Mental Health Challenges**\
+`The National Alliance on Mental Illness responds to an Opinion guest essay. Also: President Trump’s arch; a retreat on vaccines; Mr. Trump and Canada.`\
+https://www.nytimes.com/2026/08/10/opinion/mental-health.html
+
 **It’s Sultry and Stormy, but That Points to Looming Relief**\
 `Weather at the start of the week looks like more of the same: heat and storms across the Eastern United States. But a subtle shift is in the cards.`\
 https://www.nytimes.com/2026/08/10/weather/weather-this-week-starts-hot-but-an-end-is-in-sight.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/t-magazine/100000011073384/a-hacienda-style-home-i
 **I’ve Seen How A.I. Changes Young People’s Social Lives**\
 `A.I. has become a kind of social sealant, filling the gaps in young people’s relationships.`\
 https://www.nytimes.com/2026/08/10/opinion/ai-artificial-intelligence-relationships.html
-
-**Betsey Johnson Lists Her L.A. Home for Nearly $7.5 Million**\
-`The fashion designer is selling her home in Hidden Hills, a gated community in Los Angeles County. After 10 years, the actor Sara Gilbert moves on.`\
-https://www.nytimes.com/2026/08/10/realestate/betsey-johnson-lists-her-la-home-for-nearly-7-5-million.html
 
