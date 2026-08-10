@@ -1,4 +1,8 @@
-**New York City Judge Sides With Homeowners in Suit Over Second-Home Tax**\
+**Turkey Moves to Advance Peace Process With P.K.K.**\
+`The government adopted a law that might prove a significant step toward ending an outlawed group’s decades-long battle with the Turkish state.`\
+https://www.nytimes.com/2026/08/10/world/europe/turkey-law-pkk-peace-framework.html
+
+**Judge Pauses Rollout of N.Y.C. Second-Home Tax, Dealing Blow to Mamdani**\
 `A group of homeowners had sued the city, arguing that the introduction of the tax was mishandled. After the judge issued an order pausing the rollout, the city said it would appeal.`\
 https://www.nytimes.com/2026/08/10/nyregion/mamdani-second-home-tax-ruling-nyc.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/10/opinion/trump-dewine-immigration-reform.html
 **How Many of These Movies About Books Do You Know?**\
 `Test your knowledge with this short quiz quiz about novels, memoirs and films that celebrate the power of words in one way or another.`\
 https://www.nytimes.com/quiz/2026/08/10/bookreview/book-movies-quiz.html
-
-**Gyeran Bap (Egg Rice)**\
-`Gyeran bap is a lifesaving Korean pantry meal of fried eggs stirred into steamed white rice.`\
-https://www.nytimes.com/video/dining/100000011082920/gyeran-bap-egg-rice.html
 

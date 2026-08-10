@@ -1,3 +1,11 @@
+**New York City Judge Sides With Homeowners in Suit Over Second-Home Tax**\
+`A group of homeowners had sued the city, arguing that the introduction of the tax was mishandled. After the judge issued an order pausing the rollout, the city said it would appeal.`\
+https://www.nytimes.com/2026/08/10/nyregion/mamdani-second-home-tax-ruling-nyc.html
+
+**Wisconsin’s Roller Coaster of a Democratic Primary Race for Governor Crashes to an End**\
+`Democrats appear likely to nominate a democratic socialist for governor. How did they get here?`\
+https://www.nytimes.com/2026/08/10/us/politics/francesca-hong-wisconsin-democratic-primary.html
+
 **Homeland Security Intensifies Pursuit of Noncitizens on Voter Rolls**\
 `Immigrants who said they inadvertently registered to vote while obtaining or renewing driver’s licenses are increasingly facing deportation under the Trump administration.`\
 https://www.nytimes.com/2026/08/10/us/politics/noncitizens-vote-crackdown.html
