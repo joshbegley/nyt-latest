@@ -1,3 +1,7 @@
+**National Gallery Accused of ‘Soft Censorship’ to Avoid Provoking Trump**\
+`A former executive with the Washington museum says it moved a symposium about race in art to avoid political blowback.`\
+https://www.nytimes.com/2026/08/10/arts/design/national-gallery-art-doge-trump-censorship.html
+
 **Trump Signs Executive Order Calling for Fewer Childhood Vaccines**\
 `It is not clear whether the order, the president’s third to address the topic in less than a year, has any legal power.`\
 https://www.nytimes.com/2026/08/10/well/trump-vaccines-executive-order.html
@@ -62,7 +66,7 @@ https://www.nytimes.com/2026/08/10/us/politics/trump-reflecting-pool-renovation-
 `Ken Paxton, the Texas attorney general, makes six-figure income from a cellphone tower on the grounds of a hospital where he was a board member.`\
 https://www.nytimes.com/2026/08/10/us/paxton-cell-tower-company-texas-senate.html
 
-**How ‘Harry Potter’ Fans Protected Dobby’s Grave From the Path of a U.K.-Ireland Power Line**\
+**How ‘Harry Potter’ Fans Protected Dobby’s Grave From the Path of a U.K.-Ireland Power Cable**\
 `Here lies Dobby, a free elf. There will be no electricity cables in sight.`\
 https://www.nytimes.com/2026/08/10/world/europe/dobby-harry-potter-grave-wales.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/10/world/europe/ukraine-drone-attack-russia.html
 **¿Está bien abandonar un libro antes de terminarlo?**\
 `¿Tiene sentido dejar de leer un libro que no te gusta? Los clubes de lectura y las redes sociales han reavivado un viejo debate.`\
 https://www.nytimes.com/es/2026/08/10/espanol/cultura/club-de-lectura-goodreads-libros.html
-
-**La mujer que hace posible lo imposible para los superricos**\
-`Olivia Ferney creció como hija de maestros de escuela en Ontario. Ahora es experta en jets privados, cabañas de lujo y fiestas bañadas en champán.`\
-https://www.nytimes.com/es/2026/08/10/espanol/estilos-de-vida/champan-record-guinness-ultraricos.html
 

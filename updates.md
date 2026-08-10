@@ -1,3 +1,11 @@
+**National Gallery Accused of ‘Soft Censorship’ to Avoid Provoking Trump**\
+`A former executive with the Washington museum says it moved a symposium about race in art to avoid political blowback.`\
+https://www.nytimes.com/2026/08/10/arts/design/national-gallery-art-doge-trump-censorship.html
+
+**How ‘Harry Potter’ Fans Protected Dobby’s Grave From the Path of a U.K.-Ireland Power Cable**\
+`Here lies Dobby, a free elf. There will be no electricity cables in sight.`\
+https://www.nytimes.com/2026/08/10/world/europe/dobby-harry-potter-grave-wales.html
+
 **Trump Signs Executive Order Calling for Fewer Childhood Vaccines**\
 `It is not clear whether the order, the president’s third to address the topic in less than a year, has any legal power.`\
 https://www.nytimes.com/2026/08/10/well/trump-vaccines-executive-order.html
