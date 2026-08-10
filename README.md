@@ -1,6 +1,6 @@
 **Ukrainian Drone Attack Kills 13 Deep Inside Russia**\
 `A strike on an industrial center in Tatarstan marked one of the deadliest attacks on Russian territory since the start of the war.`\
-https://www.nytimes.com/2026/08/10/world/europe/ukrainian-drone-attack-kills-13-deep-inside-russia.html
+https://www.nytimes.com/2026/08/10/world/europe/ukraine-drone-attack-russia.html
 
 **¿Está bien abandonar un libro antes de terminarlo?**\
 `¿Tiene sentido dejar de leer un libro que no te gusta? Los clubes de lectura y las redes sociales han reavivado un viejo debate.`\
