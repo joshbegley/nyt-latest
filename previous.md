@@ -1,3 +1,19 @@
+**Ucrania lanza contra Rusia uno de los ataques con drones más mortíferos de la guerra**\
+`Al menos 13 personas murieron y otras 39 resultaron heridas en la ofensiva, durante la cual fueron alcanzados centros industriales y civiles.`\
+https://www.nytimes.com/es/2026/08/10/espanol/mundo/ucrania-ataca-rusia.html
+
+**In Oval Office, President Trump Calls Democratic Candidates ‘Jihadists’**\
+`Along with his comments about Muslim candidates, Mr. Trump spoke disparagingly of Somalis in the United States, saying “they’re not smart.”`\
+https://www.nytimes.com/2026/08/10/us/politics/trump-democrats-somalis-jihadists-muslim.html
+
+**Barack Obama to Host New Podcast, ‘A Great Book’**\
+`The former president will discuss works by James Baldwin, Toni Morrison and Marilynne Robinson, among others, in a podcast that will premiere in September.`\
+https://www.nytimes.com/2026/08/10/arts/obama-books-podcast.html
+
+**Un terremoto de magnitud 7,4 deja al menos 111 muertos en Colombia**\
+`Mientras equipos de rescate y vecinos buscaban sobrevivientes, era probable que la cifra de muertos aumentara. Más de 1500 viviendas resultaron dañadas, dijo el presidente.`\
+https://www.nytimes.com/es/2026/08/10/espanol/america-latina/terremoto-colombia.html
+
 **Captain Charged in N.Y.C. Accident That Killed Mother and Daughter**\
 `Manuel Hernandez knew there were no life vests for children when he allowed an infant on board, according to a federal complaint. The child and her mother died in the accident.`\
 https://www.nytimes.com/2026/08/10/nyregion/nyc-boat-federal-charges.html
@@ -151,7 +167,7 @@ https://www.nytimes.com/2026/08/10/climate/national-academies-climate-chapter-ju
 https://www.nytimes.com/2026/08/10/nyregion/subway-mamdani-mta-heat-geothermal.html
 
 **A Nighttime New York Boat Tour Turned Deadly in a Matter of Moments**\
-`Investigators are focusing on the tour operator and the pilot of the boat that capsized in New York Bay on Saturday, killing a mother and her infant daughter.`\
+`Investigators are focusing on the tour operator and the captain of the boat that capsized in New York Bay on Saturday, killing a mother and her infant daughter.`\
 https://www.nytimes.com/2026/08/10/nyregion/nyc-boat-deadly-capsize.html
 
 **One Year Later, Trump’s ‘Takeover’ Has Changed D.C. Is It Better Off?**\
@@ -177,20 +193,4 @@ https://www.nytimes.com/2026/08/10/us/politics/trump-reflecting-pool-renovation-
 **One Source of Paxton’s Wealth: A Cell Tower at a Hospital He Knew Well**\
 `Ken Paxton, the Texas attorney general, makes six-figure income from a cellphone tower on the grounds of a hospital where he was a board member.`\
 https://www.nytimes.com/2026/08/10/us/paxton-cell-tower-company-texas-senate.html
-
-**How ‘Harry Potter’ Fans Protected Dobby’s Grave From the Path of a U.K.-Ireland Power Cable**\
-`Here lies Dobby, a free elf. There will be no electricity cables in sight.`\
-https://www.nytimes.com/2026/08/10/world/europe/dobby-harry-potter-grave-wales.html
-
-**Traffic to Trump’s Truth Social Falls Sharply This Summer**\
-`President Trump’s social media platform has had double-digit declines in visitors in June and July, according to estimates from a widely cited online tracking firm.`\
-https://www.nytimes.com/2026/08/10/business/trump-truth-social-traffic-declines.html
-
-**Netanyahu Walks Tightrope on Trump’s Gaza Disarmament Deal**\
-`The Israeli prime minister, facing a tough upcoming election, is trying to satisfy the sometimes competing demands of his right-wing base and of President Trump.`\
-https://www.nytimes.com/2026/08/10/world/middleeast/netanyahu-trump-israel-gaza-disarmament.html
-
-**Trump Shrugs Off A.I. and Data Center Concerns as Voters Grow Anxious**\
-`The president and his top aides have been especially bullish about data centers, despite national blowback against the facilities.`\
-https://www.nytimes.com/2026/08/10/business/trump-artificial-intelligence-data-centers-ai.html
 

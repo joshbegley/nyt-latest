@@ -1,3 +1,7 @@
+**Here Is Where Colombia’s Quake Hit Hardest**\
+`A line of cities near the epicenter sustained major damage, images show. The Colombian capital appeared largely spared.`\
+https://www.nytimes.com/2026/08/10/world/americas/colombia-quake-maps.html
+
 **Ucrania lanza contra Rusia uno de los ataques con drones más mortíferos de la guerra**\
 `Al menos 13 personas murieron y otras 39 resultaron heridas en la ofensiva, durante la cual fueron alcanzados centros industriales y civiles.`\
 https://www.nytimes.com/es/2026/08/10/espanol/mundo/ucrania-ataca-rusia.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/10/weather/heat-storms-midwest-northeast-us.html
 **Trump Concedes There Was ‘Some Contractor Error’ in Reflecting Pool Renovations**\
 `The president had insisted for weeks that the landmarks’ algae-stained waters and peeling lining were the fault of vandals, not the project itself.`\
 https://www.nytimes.com/2026/08/10/us/politics/trump-reflecting-pool-renovation-vandalism.html
-
-**One Source of Paxton’s Wealth: A Cell Tower at a Hospital He Knew Well**\
-`Ken Paxton, the Texas attorney general, makes six-figure income from a cellphone tower on the grounds of a hospital where he was a board member.`\
-https://www.nytimes.com/2026/08/10/us/paxton-cell-tower-company-texas-senate.html
 
