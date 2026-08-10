@@ -1,3 +1,11 @@
+**Taylor Farms Voluntarily Recalls Fresh Jalapeños Over Salmonella Concerns**\
+`The company said it was unaware of any reported illnesses linked to its products containing jalapeños, which were distributed to major retailers across 26 states.`\
+https://www.nytimes.com/2026/08/09/business/taylor-farms-jalapenos-salmonella.html
+
+**‘House of the Dragon’ Season 3 Finale Recap: Breaking Mad**\
+`Aegon’s and Sunfyre’s “resurrections” may be the last straw for Rhaenyra as the Battle of Tumbleton looms.`\
+https://www.nytimes.com/2026/08/09/arts/television/house-of-the-dragon-recap-season-3-episode-8.html
+
 **Trump Names Will Scharf as White House Counsel**\
 `The president said Mr. Scharf, a deeply conservative lawyer and the current staff secretary, would replace David Warrington in early September.`\
 https://www.nytimes.com/2026/08/09/us/politics/trump-will-scharf-white-house-counsel.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/09/us/elections/poll-voters-political-parties-ex
 **As the Climate Warms, Beavers are Coming for Canada’s Arctic**\
 `Drawn by a warming climate, Canada’s furry national symbol is colonizing new territory, evading Inuit hunters and reshaping the world they find.`\
 https://www.nytimes.com/2026/08/09/world/canada/arctic-beavers-canada-climate-umiujaq-quebec.html
-
-**Kalshi’s Tarek Mansour Isn’t Interested in Management Advice**\
-`Tarek Mansour co-founded the fast-growing prediction market company shortly after graduating from M.I.T., aiming to provide a “mathematical, objective” view of the world.`\
-https://www.nytimes.com/2026/08/09/business/kalshi-tarek-mansour-prediction-markets.html
-
-**Book Review: “Finding Renée Richards: The Groundbreaking Story of Tennis’s Trans Pioneer”**\
-`Julie Kliegman’s thorough biography of the transgender tennis player is fascinatingly complicated by her changed stance on gender and sports.`\
-https://www.nytimes.com/2026/08/09/books/review/finding-renee-richards-julie-kliegman.html
 

@@ -1,3 +1,11 @@
+**Taylor Farms Voluntarily Recalls Fresh Jalapeños Over Salmonella Concerns**\
+`The company said it was unaware of any reported illnesses linked to its products containing jalapeños, which were distributed to major retailers across 26 states.`\
+https://www.nytimes.com/2026/08/09/business/taylor-farms-jalapenos-salmonella.html
+
+**‘House of the Dragon’ Season 3 Finale Recap: Breaking Mad**\
+`Aegon’s and Sunfyre’s “resurrections” may be the last straw for Rhaenyra as the Battle of Tumbleton looms.`\
+https://www.nytimes.com/2026/08/09/arts/television/house-of-the-dragon-recap-season-3-episode-8.html
+
 **Trump Names Will Scharf as White House Counsel**\
 `The president said Mr. Scharf, a deeply conservative lawyer and the current staff secretary, would replace David Warrington in early September.`\
 https://www.nytimes.com/2026/08/09/us/politics/trump-will-scharf-white-house-counsel.html
