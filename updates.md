@@ -1,3 +1,15 @@
+**How We Talk About Mental Health Challenges**\
+`The National Alliance on Mental Illness responds to an Opinion guest essay. Also: President Trump’s arch; a retreat on vaccines; Mr. Trump and Canada.`\
+https://www.nytimes.com/2026/08/10/opinion/mental-health.html
+
+**It’s Sultry and Stormy, but That Points to Looming Relief**\
+`Weather at the start of the week looks like more of the same: heat and storms across the Eastern United States. But a subtle shift is in the cards.`\
+https://www.nytimes.com/2026/08/10/weather/weather-this-week-starts-hot-but-an-end-is-in-sight.html
+
+**Trump Concedes There Was ‘Some Contractor Error’ in Reflecting Pool Renovations**\
+`The president had insisted for weeks that the landmarks’ algae-stained waters and peeling lining were the fault of vandals, not the project itself.`\
+https://www.nytimes.com/2026/08/10/us/politics/trump-reflecting-pool-renovation-vandalism.html
+
 **Colombia en directo: temblor causa daños y al menos 20 muertos**\
 `El sismo sacudió varias ciudades importantes, entre ellas Bogotá, Cali y Medellín. Se informó de al menos 20 muertos en la ciudad de Pereira.`\
 https://www.nytimes.com/live/2026/08/10/espanol/colombia-temblor-terremoto
