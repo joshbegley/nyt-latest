@@ -34,7 +34,7 @@ https://www.nytimes.com/2026/08/10/world/middleeast/netanyahu-trump-israel-gaza-
 `The president and his top aides have been especially bullish about data centers, despite national blowback against the facilities.`\
 https://www.nytimes.com/2026/08/10/business/trump-artificial-intelligence-data-centers-ai.html
 
-**Colombia en directo: temblor causa daños y al menos 28 muertos**\
+**Colombia en directo: temblor causa daños y decenas de muertos**\
 `El sismo sacudió varias ciudades importantes, entre ellas Bogotá, Cali y Medellín. Se informó de al menos 28 muertos mientras los rescatistas continuaban buscando en los edificios dañados.`\
 https://www.nytimes.com/live/2026/08/10/espanol/colombia-temblor-terremoto
 
@@ -62,8 +62,8 @@ https://www.nytimes.com/2026/08/10/dining/go-coconut-fish-curry.html
 `Immigration reform could be his Nixon-goes-to-China.`\
 https://www.nytimes.com/2026/08/10/opinion/trump-dewine-immigration-reform.html
 
-**Live Updates: Powerful 7.4 Earthquake Strikes Colombia**\
-`The quake shook several major cities, including Bogotá, Cali and Medellín. At least 28 people were reported dead  as rescuers continued to search damaged buildings.`\
+**Live Updates: Powerful 7.4 Earthquake Strikes Colombia, Killing Dozens**\
+`The quake shook several major cities, including Bogotá, Cali and Medellín. At least 69 people have died, and the death toll appeared likely to rise as rescuers continued to search damaged buildings.`\
 https://www.nytimes.com/live/2026/08/10/world/colombia-earthquake-bogota-cali
 
 **Gyeran Bap (Egg Rice)**\
