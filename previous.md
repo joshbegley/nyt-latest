@@ -1,3 +1,11 @@
+**Europa se prepara para una nueva ola de calor**\
+`Se espera que las temperaturas más extremas se presenten inicialmente en partes de Francia, España e Italia antes de desplazarse hacia Europa central.`\
+https://www.nytimes.com/es/2026/08/10/espanol/tiempo-y-clima/europa-espana-ola-calor-mapas.html
+
+**A Canadian Politician’s A.I. Faux Pas**\
+`The “Hard Fork” co-hosts Kevin Roose and Casey Newton react to a video of Bill Oliver, who included an A.I. prompt in a speech he delivered to the New Brunswick Legislature.`\
+https://www.nytimes.com/video/podcasts/100000011083158/a-canadian-politicians-ai-faux-pas.html
+
 **Top Science Body Deletes Climate Chapter From Judges’ Manual**\
 `The National Academies of Sciences, Engineering and Medicine had been under pressure from Republican leaders, including President Trump.`\
 https://www.nytimes.com/2026/08/10/climate/national-academies-climate-chapter-judges.html
@@ -6,7 +14,7 @@ https://www.nytimes.com/2026/08/10/climate/national-academies-climate-chapter-ju
 `Mayor Zohran Mamdani and state transit officials announced a plan to study a heat-capture system that could cool a notoriously hot train station and help heat city buildings in the winter.`\
 https://www.nytimes.com/2026/08/10/nyregion/subway-mamdani-mta-heat-geothermal.html
 
-**A Nighttime New York Boat Tour Turned Deadly In a Matter of Moments**\
+**A Nighttime New York Boat Tour Turned Deadly in a Matter of Moments**\
 `Investigators are focusing on the tour operator and the pilot of the boat that capsized in New York Bay on Saturday, killing a mother and her infant daughter.`\
 https://www.nytimes.com/2026/08/10/nyregion/nyc-boat-deadly-capsize.html
 
@@ -14,7 +22,7 @@ https://www.nytimes.com/2026/08/10/nyregion/nyc-boat-deadly-capsize.html
 `The deployment of National Guard troops and federal agents into the streets has been expensive. How effective it has been is debatable.`\
 https://www.nytimes.com/2026/08/10/us/national-guard-washington-dc.html
 
-**Will Voters Think Francesca Hong Is Too Radical? Here’s Where She Stands.**\
+**Will Wisconsin Voters Think Francesca Hong Is Too Radical? Here’s Where She Stands.**\
 `The democratic socialist is the front-runner to win the Democratic primary for governor of Wisconsin on Tuesday.`\
 https://www.nytimes.com/2026/08/10/us/francesca-hong-positions-wisconsin-governor.html
 
@@ -185,16 +193,4 @@ https://www.nytimes.com/2026/08/10/us/politics/progressive-left-dsa-ground-game.
 **It’s Hot. They’re Cool. Why Not Wear Flip-Flops?**\
 `At Copenhagen Fashion Week, a low-key shoe completed an array of refined, put-together looks.`\
 https://www.nytimes.com/2026/08/10/style/copenhagen-fashion-week-flip-flops.html
-
-**Why Personality Quizzes Make Us Feel Like We’ve Solved Life’s Puzzles**\
-`Life is a puzzle. Here’s why some tests make us feel as if we’ve solved it.`\
-https://www.nytimes.com/2026/08/10/crosswords/why-we-love-personality-quizzes.html
-
-**25 Years of Big-City Gals Meeting Hometown Hunks on Hallmark**\
-`The Hallmark Channel knows that when life feels hard, Christmas in July can help.`\
-https://www.nytimes.com/2026/08/10/style/hallmark-channel-movies-25-years.html
-
-**Southern Iran Bears Brunt of U.S. Bombing**\
-`While fighting has abated in much of Iran, near-constant U.S. airstrikes in Qeshm island and other southern spots have upended lives and livelihoods.`\
-https://www.nytimes.com/2026/08/10/world/middleeast/iran-south-bombing-strait-hormuz.html
 

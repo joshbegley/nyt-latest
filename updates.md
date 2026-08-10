@@ -1,3 +1,19 @@
+**Europa se prepara para una nueva ola de calor**\
+`Se espera que las temperaturas más extremas se presenten inicialmente en partes de Francia, España e Italia antes de desplazarse hacia Europa central.`\
+https://www.nytimes.com/es/2026/08/10/espanol/tiempo-y-clima/europa-espana-ola-calor-mapas.html
+
+**A Canadian Politician’s A.I. Faux Pas**\
+`The “Hard Fork” co-hosts Kevin Roose and Casey Newton react to a video of Bill Oliver, who included an A.I. prompt in a speech he delivered to the New Brunswick Legislature.`\
+https://www.nytimes.com/video/podcasts/100000011083158/a-canadian-politicians-ai-faux-pas.html
+
+**A Nighttime New York Boat Tour Turned Deadly in a Matter of Moments**\
+`Investigators are focusing on the tour operator and the pilot of the boat that capsized in New York Bay on Saturday, killing a mother and her infant daughter.`\
+https://www.nytimes.com/2026/08/10/nyregion/nyc-boat-deadly-capsize.html
+
+**Will Wisconsin Voters Think Francesca Hong Is Too Radical? Here’s Where She Stands.**\
+`The democratic socialist is the front-runner to win the Democratic primary for governor of Wisconsin on Tuesday.`\
+https://www.nytimes.com/2026/08/10/us/francesca-hong-positions-wisconsin-governor.html
+
 **Top Science Body Deletes Climate Chapter From Judges’ Manual**\
 `The National Academies of Sciences, Engineering and Medicine had been under pressure from Republican leaders, including President Trump.`\
 https://www.nytimes.com/2026/08/10/climate/national-academies-climate-chapter-judges.html
