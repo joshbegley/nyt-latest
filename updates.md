@@ -1,3 +1,7 @@
+**A Nighttime New York Boat Tour Turned Deadly In a Matter of Moments**\
+`Investigators are focusing on the tour operator and the pilot of the boat that capsized in New York Bay on Saturday, killing a mother and her infant daughter.`\
+https://www.nytimes.com/2026/08/10/nyregion/nyc-boat-deadly-capsize.html
+
 **How Small, Independent Newspapers Are Still Finding Readers**\
 `In a world of failing newspapers, free weeklies like The Chronicle of Glens Falls, N.Y., are still finding readers. All it takes is owners who do absolutely everything.`\
 https://www.nytimes.com/2026/08/10/business/media/small-newspapers-success-chronicle-glens-falls.html

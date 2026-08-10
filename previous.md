@@ -1,3 +1,7 @@
+**A Nighttime New York Boat Tour Turned Deadly In a Matter of Moments**\
+`Investigators are focusing on the tour operator and the pilot of the boat that capsized in New York Bay on Saturday, killing a mother and her infant daughter.`\
+https://www.nytimes.com/2026/08/10/nyregion/nyc-boat-deadly-capsize.html
+
 **How Trump’s Yearlong ‘Takeover’ of Washington Has Changed the Capital**\
 `The deployment of National Guard troops and federal agents into the streets has been expensive. How effective it has been is debatable.`\
 https://www.nytimes.com/2026/08/10/us/national-guard-washington-dc.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/10/books/review/joby-warrick-carlos-the-jackal.h
 **A.I.-Driven Chip Crunch Leads to New Rush of Lobbying in Washington**\
 `As data centers gobble up memory chips, other industries that need the components, including electronics companies like Apple and medical device makers, are asking for government help.`\
 https://www.nytimes.com/2026/08/10/technology/memory-chip-shortage-ai.html
-
-**Duane Davis, Who Wrote About Role in Tupac’s Murder, Now Says Memoir Was Fiction**\
-`Duane Davis’s book boasted of his role in the killing of Tupac Shakur. The memoir, which he now disavows, has become prime evidence in his murder trial, which starts this week.`\
-https://www.nytimes.com/2026/08/10/arts/music/tupac-shakur-murder-trial.html
 
