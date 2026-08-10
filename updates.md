@@ -1,3 +1,11 @@
+**Live Updates: Powerful 7.4 Earthquake Strikes Colombia**\
+`The quake shook several major cities, including Bogotá, Cali and Medellín. At least 18 people were reported dead in the city of Pereira, about 35 miles from the epicenter.`\
+https://www.nytimes.com/live/2026/08/10/world/colombia-earthquake-bogota-cali
+
+**Ukraine Drone Attack on Industrial City in Russia Kills at Least 13**\
+`The strike, on an industrial center in Tatarstan, killed at least 13 people.`\
+https://www.nytimes.com/2026/08/10/world/europe/ukraine-drone-attack-russia.html
+
 **F.D.A. Moves Toward Tighter Restrictions on Food Ingredients**\
 `A proposed rule would require companies to notify the agency about ingredients they plan to add, but companies would still be able to self-police their safety.`\
 https://www.nytimes.com/2026/08/10/well/fda-gras-food-safety.html

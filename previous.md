@@ -10,8 +10,8 @@ https://www.nytimes.com/2026/08/10/dining/go-coconut-fish-curry.html
 `It could be his Nixon-goes-to-China.`\
 https://www.nytimes.com/2026/08/10/opinion/trump-dewine-immigration-reform.html
 
-**Live Updates: Powerful Earthquake Strikes Colombia**\
-`The magnitude 7.4 quake hit the western part of the country, between the cities of Bogotá, Cali and Medellin, just weeks after quakes of similar intensity devastated parts of neighboring Venezuela.`\
+**Live Updates: Powerful 7.4 Earthquake Strikes Colombia**\
+`The quake shook several major cities, including Bogotá, Cali and Medellín. At least 18 people were reported dead in the city of Pereira, about 35 miles from the epicenter.`\
 https://www.nytimes.com/live/2026/08/10/world/colombia-earthquake-bogota-cali
 
 **Gyeran Bap (Egg Rice)**\
@@ -87,7 +87,7 @@ https://www.nytimes.com/2026/08/10/crosswords/wordle-review-1879.html
 https://www.nytimes.com/2026/08/10/crosswords/strands-sidekick-891.html
 
 **Ukraine Drone Attack on Industrial City in Russia Kills at Least 13**\
-`A strike on an industrial center in Tatarstan marked one of the deadliest attacks on Russian territory since the start of the war.`\
+`The strike, on an industrial center in Tatarstan, killed at least 13 people.`\
 https://www.nytimes.com/2026/08/10/world/europe/ukraine-drone-attack-russia.html
 
 **¿Está bien abandonar un libro antes de terminarlo?**\
