@@ -1,3 +1,11 @@
+**Colombia en directo: temblor causa daños y decenas de muertos**\
+`El sismo sacudió varias ciudades importantes, entre ellas Bogotá, Cali y Medellín. Se informó de al menos 28 muertos mientras los rescatistas continuaban buscando en los edificios dañados.`\
+https://www.nytimes.com/live/2026/08/10/espanol/colombia-temblor-terremoto
+
+**Live Updates: Powerful 7.4 Earthquake Strikes Colombia, Killing Dozens**\
+`The quake shook several major cities, including Bogotá, Cali and Medellín. At least 69 people have died, and the death toll appeared likely to rise as rescuers continued to search damaged buildings.`\
+https://www.nytimes.com/live/2026/08/10/world/colombia-earthquake-bogota-cali
+
 **Will Voters Think Francesca Hong Is Too Radical? Here’s Where She Stands.**\
 `The democratic socialist is the front-runner to win the Democratic primary for governor of Wisconsin on Tuesday.`\
 https://www.nytimes.com/2026/08/10/us/francesca-hong-positions-wisconsin-governor.html
