@@ -1,3 +1,31 @@
+**No Corrections: August 10, 2026**\
+`No corrections appeared in print on Monday, August 10, 2026.`\
+https://www.nytimes.com/2026/08/10/corrections/no-corrections-august-10-2026.html
+
+**Quote of the Day: In Resort Town Ruins, Life Is About Survival and Burying the Dead**\
+`Quotation of the day for Monday, August 10, 2026.`\
+https://www.nytimes.com/2026/08/10/pageoneplus/quote-of-the-day-in-resort-town-ruins-life-is-about-survival-and-burying-the-dead.html
+
+**EE. UU. agota sus reservas de armas en Irán. Rusia y China toman nota**\
+`La guerra en Irán agota las reservas de misiles de EE. UU., lo que provoca una erosión significativa del poder de fuego. Un conflicto más prolongado en Irán beneficia a Moscú y Pekín, según algunos analistas.`\
+https://www.nytimes.com/es/2026/08/10/espanol/estados-unidos/armas-reservas-eeuu-china-rusia.html
+
+**Extreme Heat Comes for the Red Chile Capital of Pakistan**\
+`The traditional ways of cultivating the peppers may not survive the challenges of climate change and soaring costs, so Pakistani farmers are trying to adapt.`\
+https://www.nytimes.com/2026/08/10/world/asia/pakistan-red-chiles-climate-change.html
+
+**Malaysia Was Confident in Its Social Media Ban, but Kids Are Still on TikTok**\
+`Officials told platforms to verify children’s ages using government-issued documents, like identity cards. But the companies have balked, apparently over privacy concerns.`\
+https://www.nytimes.com/2026/08/10/world/asia/malaysia-social-media-ban-delayed.html
+
+**He Transformed His Spanish Hometown. Did He Also Spoil It?**\
+`Francisco de la Torre, the mayor of Málaga, is credited with turning the once drab port into a culture and tech hub. Critics say he’s also destroyed the city’s soul.`\
+https://www.nytimes.com/2026/08/10/world/europe/malaga-spain-mayor-torre-urban-regeneration.html
+
+**What to Know About Europe’s Total Solar Eclipse: Where to See It and How to Watch Safely**\
+`We’re answering some questions about the solar eclipse on Aug. 12, and providing a place for you to ask more of them.`\
+https://www.nytimes.com/2026/08/10/science/europe-total-solar-eclipse-how-to-watch.html
+
 **Taylor Farms Voluntarily Recalls Fresh Jalapeños Over Salmonella Concerns**\
 `The company said it was unaware of any reported illnesses linked to its products containing jalapeños, which were distributed to major retailers across 26 states.`\
 https://www.nytimes.com/2026/08/09/business/taylor-farms-jalapenos-salmonella.html
@@ -169,32 +197,4 @@ https://www.nytimes.com/2026/08/09/us/politics/mike-rogers-michigan-senate-elect
 **A Democrat Sounds the Alarm on Christian Nationalism in Congress**\
 `Representative Jared Huffman of California, the only self-declared “humanist” in Congress, writes in a new book that the separation of church and state is in grave danger.`\
 https://www.nytimes.com/2026/08/09/us/politics/democrat-huffman-humanist-religion-christianity.html
-
-**She Makes the Impossible Happen for Her Ultrarich Clients**\
-`Olivia Ferney grew up a child of schoolteachers in Ontario. Now she’s an expert in private jets, luxury cabanas and champagne-soaked revels.`\
-https://www.nytimes.com/2026/08/09/style/olivia-ferney-top-tier-travel.html
-
-**What to Know About the Tupac Murder, Trial and Suspect**\
-`Three decades after the rapper Tupac Shakur was killed in Las Vegas, a man who prosecutors say provided the murder weapon is scheduled to go to trial.`\
-https://www.nytimes.com/2026/08/09/arts/music/tupac-shakur-murder-trial-duane-davis.html
-
-**Anthony Scaramucci, Podcast Star, Explains U.S. Politics to the World**\
-`He spent 11 days in the Trump White House nine years ago. Now he has a hit podcast, helping the British public, among others, understand what’s going on.`\
-https://www.nytimes.com/2026/08/09/style/anthony-scaramuccis-podcast-trump.html
-
-**The ‘Furthur’ Bus’s Long, Strange Trip, and Why It’s Returning to San Francisco**\
-`Ken Kesey’s psychedelic bus, immortalized in “The Electric Kool-Aid Acid Test,” is preparing for one more run. And to its owners, America sure could use it.`\
-https://www.nytimes.com/2026/08/09/us/kesey-furthur-bus-san-francisco.html
-
-**A Democratic Socialist Seeks New Voters in an Unlikely Place: Fox News**\
-`Gustavo Gordillo, a leader of the New York D.S.A., wants to reach new voters. But in interviews with conservative media, the backlash can be sharp.`\
-https://www.nytimes.com/2026/08/09/us/politics/gustavo-gordillo-democratic-socialists.html
-
-**Poll: Voters See Political Parties as More Extreme Than Their Own Candidates**\
-`In a New York Times/Siena poll of battleground states, national parties were seen as too far to the right or the left, while nominees were viewed as more moderate.`\
-https://www.nytimes.com/2026/08/09/us/elections/poll-voters-political-parties-extreme.html
-
-**As the Climate Warms, Beavers are Coming for Canada’s Arctic**\
-`Drawn by a warming climate, Canada’s furry national symbol is colonizing new territory, evading Inuit hunters and reshaping the world they find.`\
-https://www.nytimes.com/2026/08/09/world/canada/arctic-beavers-canada-climate-umiujaq-quebec.html
 
