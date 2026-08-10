@@ -1,3 +1,11 @@
+**One Source of Paxton’s Wealth: A Cell Tower at a Hospital He Knew Well**\
+`Ken Paxton, the Texas attorney general, makes six-figure income from a cellphone tower on the grounds of a hospital where he was a board member.`\
+https://www.nytimes.com/2026/08/10/us/paxton-cell-tower-company-texas-senate.html
+
+**How ‘Harry Potter’ Fans Protected Dobby’s Grave From the Path of a U.K.-Ireland Power Line**\
+`Here lies Dobby, a free elf. There will be no electricity cables in sight.`\
+https://www.nytimes.com/2026/08/10/world/europe/dobby-harry-potter-grave-wales.html
+
 **Traffic to Trump’s Truth Social Falls Sharply This Summer**\
 `President Trump’s social media platform has had double-digit declines in visitors in June and July, according to estimates from a widely cited online tracking firm.`\
 https://www.nytimes.com/2026/08/10/business/trump-truth-social-traffic-declines.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/10/opinion/rob-sand-democrats-iowa.html
 **Medical Breakthroughs Are a Thrill. Then Comes the Hard Part.**\
 `The Trump administration has dismantled the agency that ensures that research makes its way into medical practice.`\
 https://www.nytimes.com/2026/08/10/opinion/medical-cures-trump-patients.html
-
-**How a Design World Couple Reclaimed a Lost Family Home**\
-`More than 40 years after the Pasadena, Calif., house was sold, the pair moved in, transforming it into a color-drenched homage to three generations.`\
-https://www.nytimes.com/2026/08/10/t-magazine/pasadena-california-nickey-kehoe-design-home.html
-
-**House Tour | Todd Nickey and Greg Holcomb**\
-`The couple show off the 1927 Pasadena home that Holcomb’s paternal grandparents owned for much of the 1950s and ’60s.`\
-https://www.nytimes.com/video/t-magazine/100000011070100/house-tour-todd-nickey-and-greg-holcomb.html
 

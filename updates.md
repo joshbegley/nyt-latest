@@ -1,3 +1,11 @@
+**One Source of Paxton’s Wealth: A Cell Tower at a Hospital He Knew Well**\
+`Ken Paxton, the Texas attorney general, makes six-figure income from a cellphone tower on the grounds of a hospital where he was a board member.`\
+https://www.nytimes.com/2026/08/10/us/paxton-cell-tower-company-texas-senate.html
+
+**How ‘Harry Potter’ Fans Protected Dobby’s Grave From the Path of a U.K.-Ireland Power Line**\
+`Here lies Dobby, a free elf. There will be no electricity cables in sight.`\
+https://www.nytimes.com/2026/08/10/world/europe/dobby-harry-potter-grave-wales.html
+
 **Traffic to Trump’s Truth Social Falls Sharply This Summer**\
 `President Trump’s social media platform has had double-digit declines in visitors in June and July, according to estimates from a widely cited online tracking firm.`\
 https://www.nytimes.com/2026/08/10/business/trump-truth-social-traffic-declines.html
