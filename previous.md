@@ -1,3 +1,7 @@
+**Waymo Is Growing Faster Than Ever. So Are Its ‘Edge Cases.’**\
+`As Waymo deploys more driverless cars to 15 U.S. cities and counting, its vehicles keep encountering new and unexpected situations that they have no script to handle.`\
+https://www.nytimes.com/2026/08/10/technology/waymo-expansion-edge-cases.html
+
 **Mapa: un terremoto de magnitud 7,4 sacude Colombia**\
 `Mira la localización del epicentro del sismo y el área de movimiento.`\
 https://www.nytimes.com/es/interactive/2026/08/10/espanol/terremoto-colombia.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/10/us/flock-cameras-can-track-every-car-in-ameri
 **The Surprising Truth About Instagram’s VHS Dates Videos**\
 `VHS Dates advertises itself as resurfacing lost dating service videotapes from the 1980s. The account’s followers have been genuinely touched.`\
 https://www.nytimes.com/2026/08/10/arts/vhs-dates-instagram-tapes.html
-
-**Books and Bread: Free Grocery Stores in Libraries Tackle Food Insecurity**\
-`Customers are able to choose their own groceries, often in private, instead of visiting a food pantry for whatever is available on a given day.`\
-https://www.nytimes.com/2026/08/10/us/books-and-bread-free-grocery-stores-in-libraries-tackle-food-insecurity.html
 

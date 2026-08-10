@@ -1,3 +1,7 @@
+**Waymo Is Growing Faster Than Ever. So Are Its ‘Edge Cases.’**\
+`As Waymo deploys more driverless cars to 15 U.S. cities and counting, its vehicles keep encountering new and unexpected situations that they have no script to handle.`\
+https://www.nytimes.com/2026/08/10/technology/waymo-expansion-edge-cases.html
+
 **The Campaign Tactics Helping Progressives Win Primaries Ahead of the 2026 Midterms**\
 `Progressives are being outspent and are receiving little support from the Democratic Party. Their tactics show a different way to succeed.`\
 https://www.nytimes.com/2026/08/10/us/politics/progressive-left-dsa-ground-game.html
