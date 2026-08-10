@@ -1,3 +1,11 @@
+**At Edinburgh Fringe, It’s Time for Comedy, Stunts and Even a Few Owls**\
+`As the festival brings thousands of shows to the Scottish city, there’s also plenty of merriment out on the streets.`\
+https://www.nytimes.com/2026/08/10/arts/edinburgh-fringe-photos.html
+
+**A.I. Agents Are Taking Entire Online Courses for Cheating Students**\
+`As colleges and students embrace virtual classes, the ease of A.I. cheating is raising questions about the value of an online degree.`\
+https://www.nytimes.com/2026/08/10/us/ai-cheating-threatens-the-value-of-online-degrees.html
+
 **How Taiwan Simulated a Potential Chinese Attack**\
 `The 30-minute simulated disruption was part of the island’s effort to test and build people’s resilience in the face of a potential Chinese attack.`\
 https://www.nytimes.com/2026/08/10/world/asia/taiwan-internet-china-invasion-drill.html

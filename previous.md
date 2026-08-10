@@ -1,3 +1,7 @@
+**At Edinburgh Fringe, It’s Time for Comedy, Stunts and Even a Few Owls**\
+`As the festival brings thousands of shows to the Scottish city, there’s also plenty of merriment out on the streets.`\
+https://www.nytimes.com/2026/08/10/arts/edinburgh-fringe-photos.html
+
 **I, Spied**\
 `We’re looking at the little black cameras that are causing a national uproar.`\
 https://www.nytimes.com/2026/08/10/briefing/flock-cameras.html
@@ -178,7 +182,7 @@ https://www.nytimes.com/2026/08/10/us/books-and-bread-free-grocery-stores-in-lib
 `A reader wonders about the origin of a trend.`\
 https://www.nytimes.com/2026/08/10/fashion/shirtdress-trend.html
 
-**A.I. Cheating Threatens the Value of Online Degrees**\
+**A.I. Agents Are Taking Entire Online Courses for Cheating Students**\
 `As colleges and students embrace virtual classes, the ease of A.I. cheating is raising questions about the value of an online degree.`\
 https://www.nytimes.com/2026/08/10/us/ai-cheating-threatens-the-value-of-online-degrees.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/10/style/america-is-atomizing.html
 **Typhoon Dolphin Hits China**\
 `Typhoon Dolphin, the strongest storm to hit China this year, made landfall on Sunday, bringing powerful winds. It also intensified monsoon rains in the Philippines.`\
 https://www.nytimes.com/video/world/asia/100000011082389/typhoon-dolphin-china-shanghai-philippines.html
-
-**Tupac Shakur Murder Trial Set to Start on Monday**\
-`The trial of Duane Keith Davis, the only person to be charged in connection to the 1996 murder of the rapper Tupac Shakur, is set to begin on Monday with jury selection.`\
-https://www.nytimes.com/video/us/100000011082382/tupac-shakur-murder-trial-keefe.html
 
