@@ -1,6 +1,10 @@
+**Ucrania lanza contra Rusia uno de los ataques con drones más mortíferos de la guerra**\
+`Al menos 13 personas murieron y otras 39 resultaron heridas en la ofensiva, durante la cual fueron alcanzados centros industriales y civiles.`\
+https://www.nytimes.com/es/2026/08/10/espanol/mundo/ucrania-ataca-rusia.html
+
 **In Oval Office, President Trump Calls Democratic Candidates ‘Jihadists’**\
 `Along with his comments about Muslim candidates, Mr. Trump spoke disparagingly of Somalis in the United States, saying “they’re not smart.”`\
-https://www.nytimes.com/2026/08/10/us/politics/trump-calls-democratic-candidates-jihadists.html
+https://www.nytimes.com/2026/08/10/us/politics/trump-democrats-somalis-jihadists-muslim.html
 
 **Barack Obama to Host New Podcast, ‘A Great Book’**\
 `The former president will discuss works by James Baldwin, Toni Morrison and Marilynne Robinson, among others, in a podcast that will premiere in September.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/10/us/politics/trump-reflecting-pool-renovation-
 **One Source of Paxton’s Wealth: A Cell Tower at a Hospital He Knew Well**\
 `Ken Paxton, the Texas attorney general, makes six-figure income from a cellphone tower on the grounds of a hospital where he was a board member.`\
 https://www.nytimes.com/2026/08/10/us/paxton-cell-tower-company-texas-senate.html
-
-**How ‘Harry Potter’ Fans Protected Dobby’s Grave From the Path of a U.K.-Ireland Power Cable**\
-`Here lies Dobby, a free elf. There will be no electricity cables in sight.`\
-https://www.nytimes.com/2026/08/10/world/europe/dobby-harry-potter-grave-wales.html
 
