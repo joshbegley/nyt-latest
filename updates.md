@@ -1,3 +1,7 @@
+**Malaysia Was Confident in Its Social Media Ban, but Kids Are Still Logged In**\
+`Officials told platforms to verify children’s ages using government-issued documents, like identity cards. But the companies have balked, apparently over privacy concerns.`\
+https://www.nytimes.com/2026/08/10/world/asia/malaysia-social-media-ban-delayed.html
+
 **Typhoon Dolphin Hits China**\
 `Typhoon Dolphin, the strongest storm to hit China this year, made landfall on Sunday, bringing powerful winds. It also intensified monsoon rains in the Philippines.`\
 https://www.nytimes.com/video/world/asia/100000011082389/typhoon-dolphin-china-shanghai-philippines.html
