@@ -1,3 +1,7 @@
+**Ukrainian Drone Attack Kills 13 Deep Inside Russia**\
+`A strike on an industrial center in Tatarstan marked one of the deadliest attacks on Russian territory since the start of the war.`\
+https://www.nytimes.com/2026/08/10/world/europe/ukrainian-drone-attack-kills-13-deep-inside-russia.html
+
 **¿Está bien abandonar un libro antes de terminarlo?**\
 `¿Tiene sentido dejar de leer un libro que no te gusta? Los clubes de lectura y las redes sociales han reavivado un viejo debate.`\
 https://www.nytimes.com/es/2026/08/10/espanol/cultura/club-de-lectura-goodreads-libros.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/10/arts/television/my-brilliant-career-and-5-mor
 **Explosive Canada Wildfire Leaves 1 Dead in British Columbia**\
 `The Bald Range fire had burned more than 33,000 acres and remained out of control on Sunday, officials said. About 20,000 people were ordered to evacuate.`\
 https://www.nytimes.com/2026/08/10/world/canada/western-canada-wildfires-british-columbia-bc.html
-
-**Eclipse solar total en Europa: esto es lo que hay que saber**\
-`Respondemos algunas preguntas sobre el eclipse solar del 12 de agosto y te ofrecemos un espacio para que hagas más.`\
-https://www.nytimes.com/es/2026/08/10/espanol/preparate-para-el-primer-eclipse-solar-total-en-europa-en-decadas.html
 
