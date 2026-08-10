@@ -1,3 +1,7 @@
+**Daniel Kinahan Extradited From the U.A.E. to Ireland**\
+`Daniel Kinahan, accused of leading a family crime syndicate, was flown home from Dubai on an Irish government jet on Sunday.`\
+https://www.nytimes.com/2026/08/09/world/europe/daniel-kinahan-ireland-extradition.html
+
 **Oil Prices Climb and Stocks Dip on Stalemate in Iran War**\
 `Hopes were dashed over the weekend for a breakthrough on the Strait of Hormuz.`\
 https://www.nytimes.com/2026/08/09/business/oil-stocks-iran-war.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/09/us/politics/kennedy-center-renovation-mice.ht
 **Trump Crypto Took $100 Million From a Businessman With Red Flags**\
 `The curious case of Guren “Bobby” Zhou shows the ease with which investors with shady backgrounds and unknown motivations can funnel money to the president.`\
 https://www.nytimes.com/2026/08/09/us/politics/bobby-zhou-trump-crypto.html
-
-**Nostalgia Is Bringing Gen Z Together Globally**\
-`Lily Kuo and Callie Holtermann, two New York Times reporters, came across similar nostalgia trends on opposite sides of the world. They discuss how these trends developed independently, what makes each unique and what’s driving them.`\
-https://www.nytimes.com/video/arts/design/100000011021653/nostalgia-is-bringing-gen-z-together-globally.html
 
