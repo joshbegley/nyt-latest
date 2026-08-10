@@ -1,3 +1,7 @@
+**Eclipse solar total en Europa: esto es lo que hay que saber**\
+`Respondemos algunas preguntas sobre el eclipse solar del 12 de agosto y te ofrecemos un espacio para que hagas más.`\
+https://www.nytimes.com/es/2026/08/10/espanol/preparate-para-el-primer-eclipse-solar-total-en-europa-en-decadas.html
+
 **No Corrections: August 10, 2026**\
 `No corrections appeared in print on Monday, August 10, 2026.`\
 https://www.nytimes.com/2026/08/10/corrections/no-corrections-august-10-2026.html

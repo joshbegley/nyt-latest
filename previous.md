@@ -1,3 +1,7 @@
+**Eclipse solar total en Europa: esto es lo que hay que saber**\
+`Respondemos algunas preguntas sobre el eclipse solar del 12 de agosto y te ofrecemos un espacio para que hagas más.`\
+https://www.nytimes.com/es/2026/08/10/espanol/preparate-para-el-primer-eclipse-solar-total-en-europa-en-decadas.html
+
 **No Corrections: August 10, 2026**\
 `No corrections appeared in print on Monday, August 10, 2026.`\
 https://www.nytimes.com/2026/08/10/corrections/no-corrections-august-10-2026.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/09/pageoneplus/corrections-aug-9-2026.html
 **Michigan Senate Candidate, a Former Trump Critic, Shifts Toward Election Skepticism**\
 `Mike Rogers, the Republican nominee, has suggested that further scrutiny of the 2020 election was warranted and that voting irregularities sank his first Senate bid two years ago.`\
 https://www.nytimes.com/2026/08/09/us/politics/mike-rogers-michigan-senate-elections.html
-
-**A Democrat Sounds the Alarm on Christian Nationalism in Congress**\
-`Representative Jared Huffman of California, the only self-declared “humanist” in Congress, writes in a new book that the separation of church and state is in grave danger.`\
-https://www.nytimes.com/2026/08/09/us/politics/democrat-huffman-humanist-religion-christianity.html
 
