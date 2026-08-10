@@ -1,3 +1,11 @@
+**I, Spied**\
+`We’re looking at the little black cameras that are causing a national uproar.`\
+https://www.nytimes.com/2026/08/10/briefing/flock-cameras.html
+
+**Taiwan Gingerly Tests How It Would Cope if China Choked Its Internet**\
+`The 30-minute simulated disruption was part of the island’s effort to test and build people’s resilience in the face of a potential Chinese attack.`\
+https://www.nytimes.com/2026/08/10/world/asia/taiwan-internet-china-invasion-drill.html
+
 **Ukraine Drone Attack on Industrial City in Russia Kills at Least 13**\
 `A strike on an industrial center in Tatarstan marked one of the deadliest attacks on Russian territory since the start of the war.`\
 https://www.nytimes.com/2026/08/10/world/europe/ukraine-drone-attack-russia.html
