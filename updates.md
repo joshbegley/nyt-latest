@@ -1,3 +1,7 @@
+**Colombia en directo: temblor causa daños y al menos 20 muertos**\
+`El sismo sacudió varias ciudades importantes, entre ellas Bogotá, Cali y Medellín. Se informó de al menos 20 muertos en la ciudad de Pereira.`\
+https://www.nytimes.com/live/2026/08/10/espanol/colombia-temblor-terremoto
+
 **One Source of Paxton’s Wealth: A Cell Tower at a Hospital He Knew Well**\
 `Ken Paxton, the Texas attorney general, makes six-figure income from a cellphone tower on the grounds of a hospital where he was a board member.`\
 https://www.nytimes.com/2026/08/10/us/paxton-cell-tower-company-texas-senate.html
