@@ -1,3 +1,15 @@
+**NYT Spelling Bee Answers for August 10, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/08/10/crosswords/spelling-bee-forum.html
+
+**An Expert in Traffic Jams Has a Scary Idea: What if the Cars Turn on Us?**\
+`Sam Schwartz, a former New York City traffic commissioner, thinks autonomous vehicles are the future. But his book, “Autokill,” imagines a world where they go very wrong.`\
+https://www.nytimes.com/2026/08/10/nyregion/autokill-sam-schwartz-book.html
+
+**A Fight Brews Between Mamdani and Amazon Over Delivery Workers**\
+`New York’s mayor wants major companies to hire employees directly rather than relying on contractors. The firms say that will raise prices and slow service.`\
+https://www.nytimes.com/2026/08/10/nyregion/mamdani-amazon-delivery-workers-nyc.html
+
 **Typhoon Dolphin Barrels Into China, Prompting Mass Evacuations**\
 `The storm, which made landfall on Sunday evening, is the strongest to hit China this year and also caused flooding in parts of the Philippines.`\
 https://www.nytimes.com/2026/08/10/world/asia/typhoon-dolphin-china-evacuations.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/08/09/crosswords/connections-companion-1156.html
 **Today’s Wordle Hints for August 10, 2026**\
 `Scroll down for hints and conversation about the puzzle for Monday, Aug. 10, 2026.`\
 https://www.nytimes.com/2026/08/09/crosswords/wordle-review-1878.html
-
-**Therapy Needs Therapy. Neuroscience Can Help.**\
-`The good news is that the neuroscience of perception can pave the way out.`\
-https://www.nytimes.com/2026/08/09/opinion/therapy-neuroscience-perception.html
-
-**These Doctors Perform Daily Miracles, No Hospital in Sight**\
-`Every city needs street medicine.`\
-https://www.nytimes.com/2026/08/09/opinion/street-medicine-homeless-health-care.html
-
-**NYT Strands Hints for Aug. 10, 2026**\
-`Scroll down for hints and conversation about the puzzle for Monday, Aug. 10, 2026.`\
-https://www.nytimes.com/2026/08/09/crosswords/strands-sidekick-890.html
 
