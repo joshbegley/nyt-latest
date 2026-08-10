@@ -1,3 +1,7 @@
+**How Taiwan Simulated a Potential Chinese Attack**\
+`The 30-minute simulated disruption was part of the island’s effort to test and build people’s resilience in the face of a potential Chinese attack.`\
+https://www.nytimes.com/2026/08/10/world/asia/taiwan-internet-china-invasion-drill.html
+
 **I, Spied**\
 `We’re looking at the little black cameras that are causing a national uproar.`\
 https://www.nytimes.com/2026/08/10/briefing/flock-cameras.html
