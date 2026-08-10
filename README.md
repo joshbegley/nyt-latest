@@ -1,3 +1,7 @@
+**Workers Complain of Mold and Bugs at Airline Catering Facility Serving LAX Airport**\
+`Employees of Flying Food Group, a major provider of airline meals, said they saw maggots, cockroaches and flies at a branch serving Los Angeles International Airport.`\
+https://www.nytimes.com/2026/08/10/travel/airline-meals-bugs-mold-los-angeles.html
+
 **The Evening: An Earthquake Shakes Colombia**\
 `Plus, Trump calls for fewer childhood vaccines. Here’s the latest at the end of Monday.`\
 https://www.nytimes.com/2026/08/10/briefing/colombia-earthquake-vaccines.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/10/well/fda-gras-food-safety.html
 **Go Coconut Fish Curry**\
 `This five-star malaay qumbe is, to quote a reader, “Delish every time!”`\
 https://www.nytimes.com/2026/08/10/dining/go-coconut-fish-curry.html
-
-**Mike DeWine: Only Trump Can Pull Off Immigration Reform**\
-`Immigration could be his Nixon-goes-to-China.`\
-https://www.nytimes.com/2026/08/10/opinion/trump-dewine-immigration-reform.html
 
