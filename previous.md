@@ -83,7 +83,7 @@ https://www.nytimes.com/2026/08/10/well/fda-gras-food-safety.html
 https://www.nytimes.com/2026/08/10/dining/go-coconut-fish-curry.html
 
 **Mike DeWine: Only Trump Can Pull Off Immigration Reform**\
-`Immigration reform could be his Nixon-goes-to-China.`\
+`Immigration could be his Nixon-goes-to-China.`\
 https://www.nytimes.com/2026/08/10/opinion/trump-dewine-immigration-reform.html
 
 **Live Updates: Powerful 7.4 Earthquake Strikes Colombia, Killing Dozens**\

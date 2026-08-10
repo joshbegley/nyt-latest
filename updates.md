@@ -1,3 +1,7 @@
+**Mike DeWine: Only Trump Can Pull Off Immigration Reform**\
+`Immigration could be his Nixon-goes-to-China.`\
+https://www.nytimes.com/2026/08/10/opinion/trump-dewine-immigration-reform.html
+
 **Europa se prepara para una nueva ola de calor**\
 `Se espera que las temperaturas más extremas se presenten inicialmente en partes de Francia, España e Italia antes de desplazarse hacia Europa central.`\
 https://www.nytimes.com/es/2026/08/10/espanol/tiempo-y-clima/europa-espana-ola-calor-mapas.html

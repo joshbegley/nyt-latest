@@ -1,3 +1,7 @@
+**The Teenager Chasing Solar Eclipse Totality**\
+`A 17-year-old photographer, who goes by V, traveled from the United States to Spain to witness Wednesday’s total solar eclipse. He became “obsessed” with the cosmic events after seeing one two years ago.`\
+https://www.nytimes.com/video/world/europe/100000011069592/total-solar-eclipse-mallorca.html
+
 **Europa se prepara para una nueva ola de calor**\
 `Se espera que las temperaturas más extremas se presenten inicialmente en partes de Francia, España e Italia antes de desplazarse hacia Europa central.`\
 https://www.nytimes.com/es/2026/08/10/espanol/tiempo-y-clima/europa-espana-ola-calor-mapas.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/10/opinion/odyssey-nolan-discourse.html
 **The Campaign Tactics Helping Progressives Win Primaries Ahead of the 2026 Midterms**\
 `Progressives are being outspent and are receiving little support from the Democratic Party. Their tactics show a different way to succeed.`\
 https://www.nytimes.com/2026/08/10/us/politics/progressive-left-dsa-ground-game.html
-
-**It’s Hot. They’re Cool. Why Not Wear Flip-Flops?**\
-`At Copenhagen Fashion Week, a low-key shoe completed an array of refined, put-together looks.`\
-https://www.nytimes.com/2026/08/10/style/copenhagen-fashion-week-flip-flops.html
 
