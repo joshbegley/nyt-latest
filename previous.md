@@ -1,6 +1,30 @@
+**Meta Unveils ‘Open Source’ Version of Its Most Powerful A.I. Model**\
+`The release of Muse Glimmer, a model that can be freely downloaded and modified, is likely to intensify a debate over whether A.I. should be restricted or not.`\
+https://www.nytimes.com/2026/08/10/technology/meta-ai-open-source.html
+
+**Why Adults Are Getting Cancer at a Younger Age**\
+`Scientists are starting to find some answers about what’s driving the high rates of early-onset cancer.`\
+https://www.nytimes.com/2026/08/10/podcasts/the-daily/younger-adults-cancer-science.html
+
+**How Cameras Can Track Every Car in the U.S., and Iran’s Catch-22**\
+`Plus, a drying river reveals Nazi-era vessels.`\
+https://www.nytimes.com/2026/08/10/podcasts/the-headlines/cameras-car-flock-iran.html
+
+**NYT Connections Answers for August 11, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Aug. 11, 2026.`\
+https://www.nytimes.com/2026/08/10/crosswords/connections-companion-1157.html
+
+**Today’s Wordle Hints for August 11, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Aug. 11, 2026.`\
+https://www.nytimes.com/2026/08/10/crosswords/wordle-review-1879.html
+
+**NYT Strands Hints for Aug. 11, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Aug. 11, 2026.`\
+https://www.nytimes.com/2026/08/10/crosswords/strands-sidekick-891.html
+
 **Ukrainian Drone Attack Kills 13 Deep Inside Russia**\
 `A strike on an industrial center in Tatarstan marked one of the deadliest attacks on Russian territory since the start of the war.`\
-https://www.nytimes.com/2026/08/10/world/europe/ukrainian-drone-attack-kills-13-deep-inside-russia.html
+https://www.nytimes.com/2026/08/10/world/europe/ukraine-drone-attack-russia.html
 
 **¿Está bien abandonar un libro antes de terminarlo?**\
 `¿Tiene sentido dejar de leer un libro que no te gusta? Los clubes de lectura y las redes sociales han reavivado un viejo debate.`\
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/08/10/crosswords/spelling-bee-forum.html
 **An Expert in Traffic Jams Has a Scary Idea: What if the Cars Turn on Us?**\
 `Sam Schwartz, a former New York City traffic commissioner, thinks autonomous vehicles are the future. But his book, “Autokill,” imagines a world where they go very wrong.`\
 https://www.nytimes.com/2026/08/10/nyregion/autokill-sam-schwartz-book.html
-
-**A Fight Brews Between Mamdani and Amazon Over Delivery Workers**\
-`New York’s mayor wants major companies to hire employees directly rather than relying on contractors. The firms say that will raise prices and slow service.`\
-https://www.nytimes.com/2026/08/10/nyregion/mamdani-amazon-delivery-workers-nyc.html
-
-**Typhoon Dolphin Barrels Into China, Prompting Mass Evacuations**\
-`The storm, which made landfall on Sunday evening, is the strongest to hit China this year and also caused flooding in parts of the Philippines.`\
-https://www.nytimes.com/2026/08/10/world/asia/typhoon-dolphin-china-evacuations.html
-
-**Ben Jones, ‘Dukes of Hazzard’ Actor and Congressman, Dies at 84**\
-`He played the mechanic Cooter Davenport on the hit television series before serving two terms as a Democratic congressman from Georgia.`\
-https://www.nytimes.com/2026/08/10/obituaries/ben-jones-dead.html
-
-**What America Owes to Afghan Women**\
-`Five years after giving up on Afghanistan, America still has a responsibility to the country’s women.`\
-https://www.nytimes.com/2026/08/10/opinion/afghanistan-women-america.html
-
-**‘My Brilliant Career’ and 5 More Shows to Watch on TV This Week**\
-`Let’s take a look at an Australian series set in 1900 airs and revisit some classic TV episodes that evoke the feeling of summer.`\
-https://www.nytimes.com/2026/08/10/arts/television/my-brilliant-career-and-5-more-shows-to-watch-on-tv-this-week.html
-
-**Explosive Canada Wildfire Leaves 1 Dead in British Columbia**\
-`The Bald Range fire had burned more than 33,000 acres and remained out of control on Sunday, officials said. About 20,000 people were ordered to evacuate.`\
-https://www.nytimes.com/2026/08/10/world/canada/western-canada-wildfires-british-columbia-bc.html
 
