@@ -1,3 +1,11 @@
+**Workers Complain of Mold and Bugs at Airline Catering Facility Serving LAX Airport**\
+`Employees of Flying Food Group, a major provider of airline meals, said they saw maggots, cockroaches and flies at a branch serving Los Angeles International Airport.`\
+https://www.nytimes.com/2026/08/10/travel/airline-meals-bugs-mold-los-angeles.html
+
+**The Evening: An Earthquake Shakes Colombia**\
+`Plus, Trump calls for fewer childhood vaccines. Here’s the latest at the end of Monday.`\
+https://www.nytimes.com/2026/08/10/briefing/colombia-earthquake-vaccines.html
+
 **Turkey Moves to Advance Peace Process With P.K.K.**\
 `The government adopted a law that might prove a significant step toward ending an outlawed group’s decades-long battle with the Turkish state.`\
 https://www.nytimes.com/2026/08/10/world/europe/turkey-law-pkk-peace-framework.html

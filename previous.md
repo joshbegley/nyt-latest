@@ -1,3 +1,11 @@
+**Workers Complain of Mold and Bugs at Airline Catering Facility Serving LAX Airport**\
+`Employees of Flying Food Group, a major provider of airline meals, said they saw maggots, cockroaches and flies at a branch serving Los Angeles International Airport.`\
+https://www.nytimes.com/2026/08/10/travel/airline-meals-bugs-mold-los-angeles.html
+
+**The Evening: An Earthquake Shakes Colombia**\
+`Plus, Trump calls for fewer childhood vaccines. Here’s the latest at the end of Monday.`\
+https://www.nytimes.com/2026/08/10/briefing/colombia-earthquake-vaccines.html
+
 **Turkey Moves to Advance Peace Process With P.K.K.**\
 `The government adopted a law that might prove a significant step toward ending an outlawed group’s decades-long battle with the Turkish state.`\
 https://www.nytimes.com/2026/08/10/world/europe/turkey-law-pkk-peace-framework.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/08/10/well/fda-gras-food-safety.html
 **Go Coconut Fish Curry**\
 `This five-star malaay qumbe is, to quote a reader, “Delish every time!”`\
 https://www.nytimes.com/2026/08/10/dining/go-coconut-fish-curry.html
-
-**Mike DeWine: Only Trump Can Pull Off Immigration Reform**\
-`Immigration could be his Nixon-goes-to-China.`\
-https://www.nytimes.com/2026/08/10/opinion/trump-dewine-immigration-reform.html
-
-**How Many of These Movies About Books Do You Know?**\
-`Test your knowledge with this short quiz quiz about novels, memoirs and films that celebrate the power of words in one way or another.`\
-https://www.nytimes.com/quiz/2026/08/10/bookreview/book-movies-quiz.html
 
