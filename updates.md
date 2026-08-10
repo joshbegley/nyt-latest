@@ -1,3 +1,7 @@
+**Typhoon Dolphin Barrels Into China, Prompting Mass Evacuations**\
+`The storm, which made landfall on Sunday evening, is the strongest to hit China this year and also caused flooding in parts of the Philippines.`\
+https://www.nytimes.com/2026/08/10/world/asia/typhoon-dolphin-china-evacuations.html
+
 **Explosive Canada Wildfire Leaves 1 Dead in British Columbia**\
 `The Bald Range fire had burned more than 33,000 acres and remained out of control on Sunday, officials said. About 20,000 people were ordered to evacuate.`\
 https://www.nytimes.com/2026/08/10/world/canada/western-canada-wildfires-british-columbia-bc.html

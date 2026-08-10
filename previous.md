@@ -1,3 +1,7 @@
+**Typhoon Dolphin Barrels Into China, Prompting Mass Evacuations**\
+`The storm, which made landfall on Sunday evening, is the strongest to hit China this year and also caused flooding in parts of the Philippines.`\
+https://www.nytimes.com/2026/08/10/world/asia/typhoon-dolphin-china-evacuations.html
+
 **Ben Jones, ‘Dukes of Hazzard’ Actor and Congressman, Dies at 84**\
 `He played the mechanic Cooter Davenport on the hit television series before serving two terms as a Democratic congressman from Georgia.`\
 https://www.nytimes.com/2026/08/10/obituaries/ben-jones-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/09/opinion/street-medicine-homeless-health-care.
 **NYT Strands Hints for Aug. 10, 2026**\
 `Scroll down for hints and conversation about the puzzle for Monday, Aug. 10, 2026.`\
 https://www.nytimes.com/2026/08/09/crosswords/strands-sidekick-890.html
-
-**Believing’s Summer Reading List**\
-`Today, I’m sharing some of what I’ve been reading — and what you’ve told me you’re reading,`\
-https://www.nytimes.com/2026/08/09/briefing/books-to-make-you-feel-something.html
 
