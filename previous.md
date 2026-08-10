@@ -1,3 +1,11 @@
+**Netanyahu Walks Tightrope on Trump’s Gaza Disarmament Deal**\
+`Prime Minister Benjamin Netanyahu of Israel is trying to satisfy the sometimes competing demands of his right-wing base and President Trump months ahead of a tough election.`\
+https://www.nytimes.com/2026/08/10/world/middleeast/netanyahu-walks-political-tightrope-on-trumps-gaza-disarmament-deal.html
+
+**Trump Shrugs Off A.I. and Data Center Concerns as Voters Grow Anxious**\
+`The president and his top aides have been especially bullish about data centers, despite national blowback against the facilities.`\
+https://www.nytimes.com/2026/08/10/business/trump-artificial-intelligence-data-centers-ai.html
+
 **Un poderoso terremoto sacude Colombia**\
 `El temblor de magnitud 7,4 golpeó la parte occidental del país, entre las ciudades de Bogotá, Cali y Medellín, apenas semanas después de que sismos de intensidad similar devastaran partes de la vecina Venezuela.`\
 https://www.nytimes.com/live/2026/08/10/espanol/colombia-temblor-terremoto
@@ -27,7 +35,7 @@ https://www.nytimes.com/2026/08/10/dining/go-coconut-fish-curry.html
 https://www.nytimes.com/2026/08/10/opinion/trump-dewine-immigration-reform.html
 
 **Live Updates: Powerful 7.4 Earthquake Strikes Colombia**\
-`The quake shook several major cities, including Bogotá, Cali and Medellín. At least 18 people were reported dead in the city of Pereira, about 35 miles from the epicenter.`\
+`The quake shook several major cities, including Bogotá, Cali and Medellín. At least 20 people were reported dead in the city of Pereira, about 35 miles from the epicenter.`\
 https://www.nytimes.com/live/2026/08/10/world/colombia-earthquake-bogota-cali
 
 **Gyeran Bap (Egg Rice)**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/t-magazine/100000011070100/house-tour-todd-nickey-
 **Private Equity Is Stuck With 33,575 Unsold Businesses**\
 `Even amid a booming deal-making environment, private equity firms are unable to exit a growing number of investments at values their investors require.`\
 https://www.nytimes.com/2026/08/10/business/private-equity-unsold-businesses.html
-
-**Alia Shawkat and Charlotte Day Wilson on the Creative Life**\
-`“The Wrong Girls” actress Alia Shawkat and the R&B artist Charlotte Day Wilson discuss their views on creative collaboration, romantic love and spending time alone.`\
-https://www.nytimes.com/2026/08/10/t-magazine/alia-shawkat-charlotte-day-wilson.html
-
-**Can A.I. Get You Where You Want to Go for Less?**\
-`A wave of new services uses A.I. to monitor flights and hotel reservations to help you find lower prices. We look at how these tools work.`\
-https://www.nytimes.com/2026/08/10/travel/ai-travel-savings.html
 

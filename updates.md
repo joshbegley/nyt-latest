@@ -1,3 +1,15 @@
+**Netanyahu Walks Tightrope on Trump’s Gaza Disarmament Deal**\
+`Prime Minister Benjamin Netanyahu of Israel is trying to satisfy the sometimes competing demands of his right-wing base and President Trump months ahead of a tough election.`\
+https://www.nytimes.com/2026/08/10/world/middleeast/netanyahu-walks-political-tightrope-on-trumps-gaza-disarmament-deal.html
+
+**Trump Shrugs Off A.I. and Data Center Concerns as Voters Grow Anxious**\
+`The president and his top aides have been especially bullish about data centers, despite national blowback against the facilities.`\
+https://www.nytimes.com/2026/08/10/business/trump-artificial-intelligence-data-centers-ai.html
+
+**Live Updates: Powerful 7.4 Earthquake Strikes Colombia**\
+`The quake shook several major cities, including Bogotá, Cali and Medellín. At least 20 people were reported dead in the city of Pereira, about 35 miles from the epicenter.`\
+https://www.nytimes.com/live/2026/08/10/world/colombia-earthquake-bogota-cali
+
 **Un poderoso terremoto sacude Colombia**\
 `El temblor de magnitud 7,4 golpeó la parte occidental del país, entre las ciudades de Bogotá, Cali y Medellín, apenas semanas después de que sismos de intensidad similar devastaran partes de la vecina Venezuela.`\
 https://www.nytimes.com/live/2026/08/10/espanol/colombia-temblor-terremoto
