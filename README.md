@@ -1,6 +1,10 @@
+**D.C.-Area Airport to Close for 3 Hours for Grand Prix Event**\
+`The Federal Aviation Administration has imposed other closures at Reagan National Airport over events marking the 250th anniversary of the nation’s founding.`\
+https://www.nytimes.com/2026/08/10/us/politics/reagan-airport-closure-grand-prix.html
+
 **Taiwan Tested How It Might Cope if China Disrupted Its Communications**\
 `Mobile data was deliberately throttled across central Taiwan for half an hour on Monday as a part of Taiwan’s annual civil defense exercise that prepares citizens in the event of a Chinese invasion.`\
-https://www.nytimes.com/video/world/asia/100000011083141/taiwan-tested-how-it-might-cope-if-china-disrupted-its-communications.html
+https://www.nytimes.com/video/world/asia/100000011083141/taiwan-internet-test-communications-against-china.html
 
 **‘Americans Vote for Boyfriends, Not Candidates’**\
 `“Americans vote for boyfriends, not candidates,” Michelle Cottle says. Why have Democrats forgotten the importance of political performance — something that goes back as far as Abraham Lincoln?`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/10/world/middleeast/iran-strait-of-hormuz-us-oma
 **At Edinburgh Fringe, It’s Time for Comedy, Stunts and Even a Few Owls**\
 `As the festival brings thousands of shows to the Scottish city, there’s also plenty of merriment out on the streets.`\
 https://www.nytimes.com/2026/08/10/arts/edinburgh-fringe-photos.html
-
-**I, Spied**\
-`We’re looking at the little black cameras that are causing a national uproar.`\
-https://www.nytimes.com/2026/08/10/briefing/flock-cameras.html
 
