@@ -1,3 +1,15 @@
+**Traffic to Trump’s Truth Social Falls Sharply This Summer**\
+`President Trump’s social media platform has had double-digit declines in visitors in June and July, according to estimates from a widely cited online tracking firm.`\
+https://www.nytimes.com/2026/08/10/business/trump-truth-social-traffic-declines.html
+
+**Netanyahu Walks Tightrope on Trump’s Gaza Disarmament Deal**\
+`Prime Minister Benjamin Netanyahu of Israel is trying to satisfy the sometimes competing demands of his right-wing base and President Trump months ahead of a tough election.`\
+https://www.nytimes.com/2026/08/10/world/middleeast/netanyahu-trump-israel-gaza-disarmament.html
+
+**Can Rob Sand Break the Republican Grip on Iowa?**\
+`Just shy of 44 with boyish good looks, Rob Sand is very much a moderate, but he has a withering critique of the political establishment in this country.`\
+https://www.nytimes.com/2026/08/10/opinion/rob-sand-democrats-iowa.html
+
 **Netanyahu Walks Tightrope on Trump’s Gaza Disarmament Deal**\
 `Prime Minister Benjamin Netanyahu of Israel is trying to satisfy the sometimes competing demands of his right-wing base and President Trump months ahead of a tough election.`\
 https://www.nytimes.com/2026/08/10/world/middleeast/netanyahu-walks-political-tightrope-on-trumps-gaza-disarmament-deal.html

@@ -1,6 +1,10 @@
+**Traffic to Trump’s Truth Social Falls Sharply This Summer**\
+`President Trump’s social media platform has had double-digit declines in visitors in June and July, according to estimates from a widely cited online tracking firm.`\
+https://www.nytimes.com/2026/08/10/business/trump-truth-social-traffic-declines.html
+
 **Netanyahu Walks Tightrope on Trump’s Gaza Disarmament Deal**\
 `Prime Minister Benjamin Netanyahu of Israel is trying to satisfy the sometimes competing demands of his right-wing base and President Trump months ahead of a tough election.`\
-https://www.nytimes.com/2026/08/10/world/middleeast/netanyahu-walks-political-tightrope-on-trumps-gaza-disarmament-deal.html
+https://www.nytimes.com/2026/08/10/world/middleeast/netanyahu-trump-israel-gaza-disarmament.html
 
 **Trump Shrugs Off A.I. and Data Center Concerns as Voters Grow Anxious**\
 `The president and his top aides have been especially bullish about data centers, despite national blowback against the facilities.`\
@@ -178,7 +182,7 @@ https://www.nytimes.com/2026/08/10/opinion/ai-artificial-intelligence-relationsh
 `The fashion designer is selling her home in Hidden Hills, a gated community in Los Angeles County. After 10 years, the actor Sara Gilbert moves on.`\
 https://www.nytimes.com/2026/08/10/realestate/betsey-johnson-lists-her-la-home-for-nearly-7-5-million.html
 
-**This Is the Winning Formula for Democrats in Red States**\
+**Can Rob Sand Break the Republican Grip on Iowa?**\
 `Just shy of 44 with boyish good looks, Rob Sand is very much a moderate, but he has a withering critique of the political establishment in this country.`\
 https://www.nytimes.com/2026/08/10/opinion/rob-sand-democrats-iowa.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/10/t-magazine/pasadena-california-nickey-kehoe-d
 **House Tour | Todd Nickey and Greg Holcomb**\
 `The couple show off the 1927 Pasadena home that Holcomb’s paternal grandparents owned for much of the 1950s and ’60s.`\
 https://www.nytimes.com/video/t-magazine/100000011070100/house-tour-todd-nickey-and-greg-holcomb.html
-
-**Private Equity Is Stuck With 33,575 Unsold Businesses**\
-`Even amid a booming deal-making environment, private equity firms are unable to exit a growing number of investments at values their investors require.`\
-https://www.nytimes.com/2026/08/10/business/private-equity-unsold-businesses.html
 
