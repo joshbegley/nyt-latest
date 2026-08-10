@@ -1,6 +1,10 @@
-**Powerful Earthquake Strikes Colombia**\
-`The magnitude 7.4 quake hit the western part of the country, shaking Bogotá, Cali, Medellín and other cities, just weeks after quakes of similar intensity devastated parts of neighboring Venezuela.`\
-https://www.nytimes.com/2026/08/10/world/americas/colombia-earthquake.html
+**Live Updates: Powerful Earthquake Strikes Colombia**\
+`The magnitude 7.4 quake hit the western part of the country, between the cities of Bogotá, Cali and Medellin, just weeks after quakes of similar intensity devastated parts of neighboring Venezuela.`\
+https://www.nytimes.com/live/2026/08/10/world/colombia-earthquake-bogota-cali
+
+**Gyeran Bap (Egg Rice)**\
+`Gyeran bap is a lifesaving Korean pantry meal of fried eggs stirred into steamed white rice.`\
+https://www.nytimes.com/video/dining/100000011082920/gyeran-bap-egg-rice.html
 
 **Minnesota’s Democratic Senate Primary Pits Angie Craig Against Peggy Flanagan**\
 `The Senate primary race in Minnesota will be the latest test of left-wing energy in the party, in a state that was convulsed by the Trump administration’s deadly immigration crackdown this winter.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/10/theater/amanda-knox-comedy-edinburgh-festival
 **How Shania Twain Won Over Gen Z**\
 `The pop-country megastar is still thrilling young audiences and influencing a new generation of musicians.`\
 https://www.nytimes.com/2026/08/10/magazine/shania-twain-gen-z.html
-
-**This ‘Heated Rivalry’ Musical Parody Skates a Fine and Funny Line**\
-`Shining a spotlight on the steamiest popular TV show of the season, the creators and cast of this stage production seem to be having serious fun.`\
-https://www.nytimes.com/2026/08/10/theater/heated-rivalry-musical-parody.html
 
