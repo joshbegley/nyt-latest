@@ -1,3 +1,7 @@
+**One Source of Paxton’s Wealth: A Cell Tower at a Hospital He Knew Well**\
+`Ken Paxton, the Texas attorney general, makes six-figure income from a cellphone tower on the grounds of a hospital where he was a board member.`\
+https://www.nytimes.com/2026/08/10/us/paxton-cell-tower-company-texas-senate.html
+
 **How ‘Harry Potter’ Fans Protected Dobby’s Grave From the Path of a U.K.-Ireland Power Line**\
 `Here lies Dobby, a free elf. There will be no electricity cables in sight.`\
 https://www.nytimes.com/2026/08/10/world/europe/dobby-harry-potter-grave-wales.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/10/opinion/rob-sand-democrats-iowa.html
 **Medical Breakthroughs Are a Thrill. Then Comes the Hard Part.**\
 `The Trump administration has dismantled the agency that ensures that research makes its way into medical practice.`\
 https://www.nytimes.com/2026/08/10/opinion/medical-cures-trump-patients.html
-
-**How a Design World Couple Reclaimed a Lost Family Home**\
-`More than 40 years after the Pasadena, Calif., house was sold, the pair moved in, transforming it into a color-drenched homage to three generations.`\
-https://www.nytimes.com/2026/08/10/t-magazine/pasadena-california-nickey-kehoe-design-home.html
 
