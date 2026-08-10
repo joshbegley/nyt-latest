@@ -1,3 +1,7 @@
+**Journalism and Paywalls**\
+`An increasingly hostile environment for independent reporting in the United States and elsewhere has made our job harder, and more expensive.`\
+https://www.nytimes.com/2026/08/10/world/journalism-us-colombia-quake.html
+
 **Fotos del terremoto en Colombia**\
 `El temblor más potente en una década sacudió una región de la costa del Pacífico y causó la muerte de más de 100 personas.`\
 https://www.nytimes.com/es/2026/08/10/espanol/america-latina/fotos-colombia-terremoto.html
@@ -12,7 +16,7 @@ https://www.nytimes.com/2026/08/10/us/politics/reagan-airport-closure-grand-prix
 
 **Taiwan Tested How It Might Cope if China Disrupted Its Communications**\
 `Mobile data was deliberately throttled across central Taiwan for half an hour on Monday as a part of Taiwan’s annual civil defense exercise that prepares citizens in the event of a Chinese invasion.`\
-https://www.nytimes.com/video/world/asia/100000011083141/taiwan-internet-test-communications-against-china.html
+https://www.nytimes.com/video/world/asia/100000011083141/taiwan-china-internet-defense-test.html
 
 **‘Americans Vote for Boyfriends, Not Candidates’**\
 `“Americans vote for boyfriends, not candidates,” Michelle Cottle says. Why have Democrats forgotten the importance of political performance — something that goes back as far as Abraham Lincoln?`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/interactive/2026/08/10/world/earthquake-colombia-tracker
 **Why Meta Is Betting Big on Open A.I.**\
 `The technology giant is embracing open models, closer ties to Washington and more as it seeks to catch up in the artificial intelligence race.`\
 https://www.nytimes.com/2026/08/10/business/dealbook/meta-open-ai.html
-
-**Boeing to Sell 3 Autonomous Flight Subsidiaries**\
-`In exchange for the sale to Archer Aviation, which is developing a piloted electric aircraft, Boeing will receive a 16.5 percent stake in Archer.`\
-https://www.nytimes.com/2026/08/10/business/boeing-subsidiaries-sale-archer-aviation.html
 
