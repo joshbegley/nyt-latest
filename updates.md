@@ -1,3 +1,7 @@
+**Explosive Wildfire in British Columbia Leaves 1 Dead**\
+`The Bald Range fire had burned more than 33,000 acres and remained out of control on Sunday, officials said. About 20,000 people were ordered to evacuate.`\
+https://www.nytimes.com/2026/08/10/world/canada/western-canada-wildfires-british-columbia-bc.html
+
 **Eclipse solar total en Europa: esto es lo que hay que saber**\
 `Respondemos algunas preguntas sobre el eclipse solar del 12 de agosto y te ofrecemos un espacio para que hagas más.`\
 https://www.nytimes.com/es/2026/08/10/espanol/preparate-para-el-primer-eclipse-solar-total-en-europa-en-decadas.html

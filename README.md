@@ -1,3 +1,11 @@
+**What America Owes to Afghan Women**\
+`Five years after giving up on Afghanistan, America still has a responsibility to the country’s women.`\
+https://www.nytimes.com/2026/08/10/opinion/afghanistan-women-america.html
+
+**‘My Brilliant Career’ and 5 More Shows to Watch on TV This Week**\
+`Let’s take a look at an Australian series set in 1900 airs and revisit some classic TV episodes that evoke the feeling of summer.`\
+https://www.nytimes.com/2026/08/10/arts/television/my-brilliant-career-and-5-more-shows-to-watch-on-tv-this-week.html
+
 **Explosive Wildfire in British Columbia Leaves 1 Dead**\
 `The Bald Range fire had burned more than 33,000 acres and remained out of control on Sunday, officials said. About 20,000 people were ordered to evacuate.`\
 https://www.nytimes.com/2026/08/10/world/canada/western-canada-wildfires-british-columbia-bc.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/09/briefing/books-to-make-you-feel-something.htm
 **Esta es la dieta de los hombres más poderosos de EE. UU. Yo la probé**\
 `Me intrigaba que hubiera una dieta radical y varonil para personas radicales y varoniles. Los resultados fueron fascinantes.`\
 https://www.nytimes.com/es/2026/08/09/espanol/dieta-hombres-poderosos.html
-
-**¿Tengo la obligación de decirles a mis amigas que el bótox se les ve mal?**\
-`Cada vez son más duras con ellas mismas, y no creo que se den cuenta de lo extremo que se ha vuelto.`\
-https://www.nytimes.com/es/2026/08/09/espanol/amiga-botox-critica.html
-
-**Corrections: Aug. 9, 2026**\
-`Corrections that appeared in print on Sunday, Aug. 9, 2026.`\
-https://www.nytimes.com/2026/08/09/pageoneplus/corrections-aug-9-2026.html
 
