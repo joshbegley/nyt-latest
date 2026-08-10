@@ -1,3 +1,11 @@
+**Journalism and Paywalls**\
+`An increasingly hostile environment for independent reporting in the United States and elsewhere has made our job harder, and more expensive.`\
+https://www.nytimes.com/2026/08/10/world/journalism-us-colombia-quake.html
+
+**Taiwan Tested How It Might Cope if China Disrupted Its Communications**\
+`Mobile data was deliberately throttled across central Taiwan for half an hour on Monday as a part of Taiwan’s annual civil defense exercise that prepares citizens in the event of a Chinese invasion.`\
+https://www.nytimes.com/video/world/asia/100000011083141/taiwan-china-internet-defense-test.html
+
 **Fotos del terremoto en Colombia**\
 `El temblor más potente en una década sacudió una región de la costa del Pacífico y causó la muerte de más de 100 personas.`\
 https://www.nytimes.com/es/2026/08/10/espanol/america-latina/fotos-colombia-terremoto.html

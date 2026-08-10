@@ -1,3 +1,11 @@
+**Takeaways From Jason Arday’s Memoir**\
+`The British scholar resigned from Cambridge after the university, which made him its youngest Black professor in 2023, began investigating his academic qualifications.`\
+https://www.nytimes.com/2026/08/10/books/review/jason-arday-memoir-takeaways.html
+
+**Major Quake Hits Colombia, Killing at Least 111**\
+`Rescue crews and regular people searched for survivors, and the death toll was likely to rise. More than 1,500 homes were damaged, the president said.`\
+https://www.nytimes.com/2026/08/10/world/americas/major-quake-hits-colombia-killing-at-least-111.html
+
 **Journalism and Paywalls**\
 `An increasingly hostile environment for independent reporting in the United States and elsewhere has made our job harder, and more expensive.`\
 https://www.nytimes.com/2026/08/10/world/journalism-us-colombia-quake.html
@@ -11,7 +19,7 @@ https://www.nytimes.com/es/2026/08/10/espanol/america-latina/fotos-colombia-terr
 https://www.nytimes.com/2026/08/10/us/politics/trump-memos-russia-investigation.html
 
 **D.C.-Area Airport to Close for 3 Hours for Grand Prix Event**\
-`The Federal Aviation Administration has imposed other closures at Reagan National Airport over events marking the 250th anniversary of the nation’s founding.`\
+`The Federal Aviation Administration has imposed other closures at Reagan National Airport over events for the 250th anniversary of the nation’s founding.`\
 https://www.nytimes.com/2026/08/10/us/politics/reagan-airport-closure-grand-prix.html
 
 **Taiwan Tested How It Might Cope if China Disrupted Its Communications**\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/08/10/technology/waymo-expansion-edge-cases.html
 **Mapa: un terremoto de magnitud 7,4 sacude Colombia**\
 `Mira la localización del epicentro del sismo y el área de movimiento.`\
 https://www.nytimes.com/es/interactive/2026/08/10/espanol/terremoto-colombia.html
-
-**Map: 7.4-Magnitude Earthquake Shakes Colombia**\
-`View the location of the quake’s epicenter and shake area.`\
-https://www.nytimes.com/interactive/2026/08/10/world/earthquake-colombia-tracker.html
-
-**Why Meta Is Betting Big on Open A.I.**\
-`The technology giant is embracing open models, closer ties to Washington and more as it seeks to catch up in the artificial intelligence race.`\
-https://www.nytimes.com/2026/08/10/business/dealbook/meta-open-ai.html
 
