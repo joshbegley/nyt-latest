@@ -1,3 +1,15 @@
+**F.D.A. Moves Toward Tighter Restrictions on Food Ingredients**\
+`A proposed rule would require companies to notify the agency about ingredients they plan to add, but companies would still be able to self-police their safety.`\
+https://www.nytimes.com/2026/08/10/well/fda-gras-food-safety.html
+
+**Go Coconut Fish Curry**\
+`This five-star malaay qumbe is, to quote a reader, “Delish every time!”`\
+https://www.nytimes.com/2026/08/10/dining/go-coconut-fish-curry.html
+
+**Mike DeWine: Only Trump Can Pull Off Immigration Reform**\
+`It could be his Nixon-goes-to-China.`\
+https://www.nytimes.com/2026/08/10/opinion/trump-dewine-immigration-reform.html
+
 **Live Updates: Powerful Earthquake Strikes Colombia**\
 `The magnitude 7.4 quake hit the western part of the country, between the cities of Bogotá, Cali and Medellin, just weeks after quakes of similar intensity devastated parts of neighboring Venezuela.`\
 https://www.nytimes.com/live/2026/08/10/world/colombia-earthquake-bogota-cali
@@ -185,16 +197,4 @@ https://www.nytimes.com/article/flock-safety-camera-technology.html
 **The Incomprehensible Fashion Statements of Gen Z**\
 `It used to be that you could tell goths from preps by the look of them.`\
 https://www.nytimes.com/2026/08/10/opinion/subcultures-dead-age.html
-
-**With ‘The Galloping Cure’ in Edinburgh, Missy Mazzoli Tackles the Opioid Crisis**\
-`The composer Missy Mazzoli, driven by personal loss, has turned America’s overdose epidemic into a dark, fantastical allegory.`\
-https://www.nytimes.com/2026/08/10/arts/music/the-galloping-cure-edinburgh-festival-missy-mazzoli.html
-
-**At Edinburgh Fringe, Amanda Knox Takes the Mic to Reclaim Her Story**\
-`In a solo show at the Edinburgh Fringe, Knox is trying to turn her tabloid infamy into stand-up humor, despite an intense backlash.`\
-https://www.nytimes.com/2026/08/10/theater/amanda-knox-comedy-edinburgh-festival-fringe.html
-
-**How Shania Twain Won Over Gen Z**\
-`The pop-country megastar is still thrilling young audiences and influencing a new generation of musicians.`\
-https://www.nytimes.com/2026/08/10/magazine/shania-twain-gen-z.html
 

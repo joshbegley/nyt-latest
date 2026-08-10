@@ -1,3 +1,15 @@
+**F.D.A. Moves Toward Tighter Restrictions on Food Ingredients**\
+`A proposed rule would require companies to notify the agency about ingredients they plan to add, but companies would still be able to self-police their safety.`\
+https://www.nytimes.com/2026/08/10/well/fda-gras-food-safety.html
+
+**Go Coconut Fish Curry**\
+`This five-star malaay qumbe is, to quote a reader, “Delish every time!”`\
+https://www.nytimes.com/2026/08/10/dining/go-coconut-fish-curry.html
+
+**Mike DeWine: Only Trump Can Pull Off Immigration Reform**\
+`It could be his Nixon-goes-to-China.`\
+https://www.nytimes.com/2026/08/10/opinion/trump-dewine-immigration-reform.html
+
 **Live Updates: Powerful Earthquake Strikes Colombia**\
 `The magnitude 7.4 quake hit the western part of the country, between the cities of Bogotá, Cali and Medellin, just weeks after quakes of similar intensity devastated parts of neighboring Venezuela.`\
 https://www.nytimes.com/live/2026/08/10/world/colombia-earthquake-bogota-cali
