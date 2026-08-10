@@ -59,7 +59,7 @@ https://www.nytimes.com/2026/08/10/dining/go-coconut-fish-curry.html
 https://www.nytimes.com/2026/08/10/opinion/trump-dewine-immigration-reform.html
 
 **Live Updates: Powerful 7.4 Earthquake Strikes Colombia**\
-`The quake shook several major cities, including Bogotá, Cali and Medellín. At least 20 people were reported dead in the city of Pereira, about 35 miles from the epicenter.`\
+`The quake shook several major cities, including Bogotá, Cali and Medellín. At least 28 people were reported dead  as rescuers continued to search damaged buildings.`\
 https://www.nytimes.com/live/2026/08/10/world/colombia-earthquake-bogota-cali
 
 **Gyeran Bap (Egg Rice)**\
@@ -110,8 +110,8 @@ https://www.nytimes.com/2026/08/10/briefing/flock-cameras.html
 `The 30-minute simulated disruption was part of the island’s effort to test and build people’s resilience in the face of a potential Chinese attack.`\
 https://www.nytimes.com/2026/08/10/world/asia/taiwan-internet-china-invasion-drill.html
 
-**Meta Unveils ‘Open Source’ Version of Its Most Powerful A.I. Model**\
-`The release of Muse Glimmer, a model that can be freely downloaded and modified, is likely to intensify a debate over whether A.I. should be restricted or not.`\
+**Meta Unveils an Open Version of Its Most Powerful A.I. Model**\
+`The release of Muse Glimmer, a model that can be freely downloaded and modified, is likely to intensify a debate over whether A.I. should be restricted.`\
 https://www.nytimes.com/2026/08/10/technology/meta-ai-open-source.html
 
 **Why Adults Are Getting Cancer at a Younger Age**\
@@ -170,8 +170,8 @@ https://www.nytimes.com/2026/08/10/style/copenhagen-fashion-week-flip-flops.html
 `Life is a puzzle. Here’s why some tests make us feel as if we’ve solved it.`\
 https://www.nytimes.com/2026/08/10/crosswords/why-we-love-personality-quizzes.html
 
-**What the Hallmark Channel Knows About Love**\
-`For 25 years, it’s helped big-city gals find love with hometown hunks — and distracted the rest of us when we need it most.`\
+**25 Years of Big-City Gals Meeting Hometown Hunks on Hallmark**\
+`The Hallmark Channel knows that when life feels hard, Christmas in July can help.`\
 https://www.nytimes.com/2026/08/10/style/hallmark-channel-movies-25-years.html
 
 **Southern Iran Bears Brunt of U.S. Bombing**\
