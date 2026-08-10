@@ -58,7 +58,7 @@ https://www.nytimes.com/es/2026/08/10/espanol/estados-unidos/armas-reservas-eeuu
 `The traditional ways of cultivating the peppers may not survive the challenges of climate change and soaring costs, so Pakistani farmers are trying to adapt.`\
 https://www.nytimes.com/2026/08/10/world/asia/pakistan-red-chiles-climate-change.html
 
-**Malaysia Was Confident in Its Social Media Ban, but Kids Are Still on TikTok**\
+**Malaysia Was Confident in Its Social Media Ban, but Kids Are Still Logged In**\
 `Officials told platforms to verify children’s ages using government-issued documents, like identity cards. But the companies have balked, apparently over privacy concerns.`\
 https://www.nytimes.com/2026/08/10/world/asia/malaysia-social-media-ban-delayed.html
 
