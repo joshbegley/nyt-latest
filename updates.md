@@ -1,3 +1,11 @@
+**Fact-Checking Trump’s Claims About Childhood Vaccines After Executive Order**\
+`Mr. Trump signed an executive order on Monday calling to scale back the number of vaccinations American children receive.`\
+https://www.nytimes.com/2026/08/10/well/trump-vaccines-fact-check.html
+
+**Wall St. Wants Another Half-Trillion Dollars for the A.I. Boom**\
+`Six giant investment firms announced a $500 billion effort to raise money for customers of Nvidia to pay for computing power.`\
+https://www.nytimes.com/2026/08/10/business/ai-nvidia-lenders-500-billion.html
+
 **Man in Custody Over Bomb Threat at U.S. Consulate in Nova Scotia**\
 `A propane tank and several containers of what were believed to be flammable liquids were found inside the man’s vehicle in a nearby parking garage, the police in Halifax said.`\
 https://www.nytimes.com/2026/08/10/world/americas/halifax-canada-bomb-threat-us-consulate.html

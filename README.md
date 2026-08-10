@@ -66,8 +66,8 @@ https://www.nytimes.com/2026/08/10/briefing/colombia-earthquake-vaccines.html
 `The government adopted a law that might prove a significant step toward ending an outlawed group’s decades-long battle with the Turkish state.`\
 https://www.nytimes.com/2026/08/10/world/europe/turkey-law-pkk-peace-framework.html
 
-**Judge Pauses Rollout of N.Y.C. Second-Home Tax, Dealing Blow to Mamdani**\
-`A group of homeowners had sued the city, arguing that the introduction of the tax was mishandled. After the judge issued an order pausing the rollout, the city said it would appeal.`\
+**Judge Pauses Rollout of Second-Home Tax, Dealing Setback to Mamdani**\
+`A group of homeowners had sued New York City, arguing that the introduction of the tax was mishandled. After the judge issued an order pausing the rollout, the city said it would appeal.`\
 https://www.nytimes.com/2026/08/10/nyregion/mamdani-second-home-tax-ruling-nyc.html
 
 **Wisconsin’s Roller Coaster of a Democratic Primary Race for Governor Crashes to an End**\

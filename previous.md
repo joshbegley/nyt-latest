@@ -1,3 +1,11 @@
+**Fact-Checking Trump’s Claims About Childhood Vaccines After Executive Order**\
+`Mr. Trump signed an executive order on Monday calling to scale back the number of vaccinations American children receive.`\
+https://www.nytimes.com/2026/08/10/well/trump-vaccines-fact-check.html
+
+**Wall St. Wants Another Half-Trillion Dollars for the A.I. Boom**\
+`Six giant investment firms announced a $500 billion effort to raise money for customers of Nvidia to pay for computing power.`\
+https://www.nytimes.com/2026/08/10/business/ai-nvidia-lenders-500-billion.html
+
 **Man in Custody Over Bomb Threat at U.S. Consulate in Nova Scotia**\
 `A propane tank and several containers of what were believed to be flammable liquids were found inside the man’s vehicle in a nearby parking garage, the police in Halifax said.`\
 https://www.nytimes.com/2026/08/10/world/americas/halifax-canada-bomb-threat-us-consulate.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/08/10/us/national-guard-washington-dc.html
 **Will Wisconsin Voters Think Francesca Hong Is Too Radical? Here’s Where She Stands.**\
 `The democratic socialist is the front-runner to win the Democratic primary for governor of Wisconsin on Tuesday.`\
 https://www.nytimes.com/2026/08/10/us/francesca-hong-positions-wisconsin-governor.html
-
-**How We Talk About Mental Health Challenges**\
-`The National Alliance on Mental Illness responds to an Opinion guest essay. Also: President Trump’s arch; a retreat on vaccines; Mr. Trump and Canada.`\
-https://www.nytimes.com/2026/08/10/opinion/mental-health.html
-
-**Muggy Heat and Storms Continue to Grip the U.S., but an End Is in Sight**\
-`Weather at the start of the week looks like more of the same: heat and storms across the Eastern United States. But a subtle shift is in the cards.`\
-https://www.nytimes.com/2026/08/10/weather/heat-storms-midwest-northeast-us.html
 
