@@ -1,3 +1,71 @@
+**¿Está bien abandonar un libro antes de terminarlo?**\
+`¿Tiene sentido dejar de leer un libro que no te gusta? Los clubes de lectura y las redes sociales han reavivado un viejo debate.`\
+https://www.nytimes.com/es/2026/08/10/espanol/cultura/club-de-lectura-goodreads-libros.html
+
+**La mujer que hace posible lo imposible para los superricos**\
+`Olivia Ferney creció como hija de maestros de escuela en Ontario. Ahora es experta en jets privados, cabañas de lujo y fiestas bañadas en champán.`\
+https://www.nytimes.com/es/2026/08/10/espanol/estilos-de-vida/champan-record-guinness-ultraricos.html
+
+**Worried About the Lettuce in Your Salad? Some New Yorkers Opt to Buy Local.**\
+`With an intestinal illness called cyclosporiasis causing concern about the produce supply, some consumers have turned to smaller, regional growers.`\
+https://www.nytimes.com/2026/08/10/nyregion/lettuce-new-yorkers-buy-local.html
+
+**How a Student and Gig Worker Lives on $11,400 in the Bronx**\
+`Richard Sencion, 24, cobbles together funds from delivery jobs and bartending gigs while searching for more permanent work and living with his parents.`\
+https://www.nytimes.com/interactive/2026/08/10/nyregion/nyc-budgeting-affordability-sencion.html
+
+**I’m Tired of Talking About Christopher Nolan’s ”The Odyssey.”**\
+`The attention to “The Odyssey” is as exhausting as its hero’s travels.`\
+https://www.nytimes.com/2026/08/10/opinion/odyssey-nolan-discourse.html
+
+**Inside the Left’s Playbook for Winning Elections**\
+`Progressives are being outspent and are receiving little support from the Democratic Party. Their tactics show a different way to succeed.`\
+https://www.nytimes.com/2026/08/10/us/politics/progressive-left-dsa-ground-game.html
+
+**It’s Hot. They’re Cool. Why Not Wear Flip-Flops?**\
+`At Copenhagen Fashion Week, a low-key shoe completed an array of refined, put-together looks.`\
+https://www.nytimes.com/2026/08/10/style/copenhagen-fashion-week-flip-flops.html
+
+**Why Personality Quizzes Make Us Feel Like We’ve Solved Life’s Puzzles**\
+`Life is a puzzle. Here’s why some tests make us feel as if we’ve solved it.`\
+https://www.nytimes.com/2026/08/10/crosswords/why-we-love-personality-quizzes.html
+
+**What the Hallmark Channel Knows About Love**\
+`For 25 years, it’s helped big-city gals find love with hometown hunks — and distracted the rest of us when we need it most.`\
+https://www.nytimes.com/2026/08/10/style/hallmark-channel-movies-25-years.html
+
+**Southern Iran Bears Brunt of U.S. Bombing**\
+`While fighting has abated in much of Iran, near-constant U.S. airstrikes in Qeshm island and other southern spots have upended lives and livelihoods.`\
+https://www.nytimes.com/2026/08/10/world/middleeast/iran-south-bombing-strait-hormuz.html
+
+**Book Review: ‘The Jackal,’ by Joby Warrick**\
+`In his new book, Joby Warrick traces the rise and fall of Carlos the Jackal, the notorious terrorist-for-hire.`\
+https://www.nytimes.com/2026/08/10/books/review/joby-warrick-carlos-the-jackal.html
+
+**A.I.-Driven Chip Crunch Leads to New Rush of Lobbying in Washington**\
+`As data centers gobble up memory chips, other industries that need the components, including electronics companies like Apple and medical device makers, are asking for government help.`\
+https://www.nytimes.com/2026/08/10/technology/memory-chip-shortage-ai.html
+
+**His Book Says He Planned Tupac’s Murder. Now He Says It Was Fiction.**\
+`Duane Davis’s book boasted of his role in the killing of Tupac Shakur. The memoir, which he now disavows, has become prime evidence in his murder trial, which starts this week.`\
+https://www.nytimes.com/2026/08/10/arts/music/tupac-shakur-murder-trial.html
+
+**A Hacienda-Style Home in Pasadena**\
+`Todd Nickey, a co-founder of the Los Angeles-based design firm Nickey Kehoe, and his husband, Greg Holcomb, a real estate agent, show off their 1927 Pasadena home that Holcomb’s paternal grandparents owned for much of the 1950s and ’60s.`\
+https://www.nytimes.com/video/t-magazine/100000011073384/a-hacienda-style-home-in-pasadena.html
+
+**I’ve Seen How A.I. Changes Young People’s Social Lives**\
+`A.I. has become a kind of social sealant, filling the gaps in young people’s relationships.`\
+https://www.nytimes.com/2026/08/10/opinion/ai-artificial-intelligence-relationships.html
+
+**Betsey Johnson Lists Her L.A. Home for Nearly $7.5 Million**\
+`The fashion designer is selling her home in Hidden Hills, a gated community in Los Angeles County. After 10 years, the actor Sara Gilbert moves on.`\
+https://www.nytimes.com/2026/08/10/realestate/betsey-johnson-lists-her-la-home-for-nearly-7-5-million.html
+
+**This Is the Winning Formula for Democrats in Red States**\
+`Just shy of 44 with boyish good looks, Rob Sand is very much a moderate, but he has a withering critique of the political establishment in this country.`\
+https://www.nytimes.com/2026/08/10/opinion/rob-sand-democrats-iowa.html
+
 **Medical Breakthroughs Are a Thrill. Then Comes the Hard Part.**\
 `The Trump administration has dismantled the agency that ensures that research makes its way into medical practice.`\
 https://www.nytimes.com/2026/08/10/opinion/medical-cures-trump-patients.html
@@ -129,72 +197,4 @@ https://www.nytimes.com/2026/08/10/world/canada/western-canada-wildfires-british
 **Eclipse solar total en Europa: esto es lo que hay que saber**\
 `Respondemos algunas preguntas sobre el eclipse solar del 12 de agosto y te ofrecemos un espacio para que hagas más.`\
 https://www.nytimes.com/es/2026/08/10/espanol/preparate-para-el-primer-eclipse-solar-total-en-europa-en-decadas.html
-
-**No Corrections: August 10, 2026**\
-`No corrections appeared in print on Monday, August 10, 2026.`\
-https://www.nytimes.com/2026/08/10/corrections/no-corrections-august-10-2026.html
-
-**Quote of the Day: In Resort Town Ruins, Life Is About Survival and Burying the Dead**\
-`Quotation of the day for Monday, August 10, 2026.`\
-https://www.nytimes.com/2026/08/10/pageoneplus/quote-of-the-day-in-resort-town-ruins-life-is-about-survival-and-burying-the-dead.html
-
-**EE. UU. agota sus reservas de armas en Irán. Rusia y China toman nota**\
-`La guerra en Irán agota las reservas de misiles de EE. UU., lo que provoca una erosión significativa del poder de fuego. Un conflicto más prolongado en Irán beneficia a Moscú y Pekín, según algunos analistas.`\
-https://www.nytimes.com/es/2026/08/10/espanol/estados-unidos/armas-reservas-eeuu-china-rusia.html
-
-**Extreme Heat Comes for the Red Chile Capital of Pakistan**\
-`The traditional ways of cultivating the peppers may not survive the challenges of climate change and soaring costs, so Pakistani farmers are trying to adapt.`\
-https://www.nytimes.com/2026/08/10/world/asia/pakistan-red-chiles-climate-change.html
-
-**Malaysia Was Confident in Its Social Media Ban, but Kids Are Still Logged In**\
-`Officials told platforms to verify children’s ages using government-issued documents, like identity cards. But the companies have balked, apparently over privacy concerns.`\
-https://www.nytimes.com/2026/08/10/world/asia/malaysia-social-media-ban-delayed.html
-
-**He Transformed His Spanish Hometown. Did He Also Spoil It?**\
-`Francisco de la Torre, the mayor of Málaga, is credited with turning the once drab port into a culture and tech hub. Critics say he’s also destroyed the city’s soul.`\
-https://www.nytimes.com/2026/08/10/world/europe/malaga-spain-mayor-torre-urban-regeneration.html
-
-**What to Know About Europe’s Total Solar Eclipse: Where to See It and How to Watch Safely**\
-`We’re answering some questions about the solar eclipse on Aug. 12, and providing a place for you to ask more of them.`\
-https://www.nytimes.com/2026/08/10/science/europe-total-solar-eclipse-how-to-watch.html
-
-**Taylor Farms Voluntarily Recalls Fresh Jalapeños Over Salmonella Concerns**\
-`The company said it was unaware of any reported illnesses linked to its products containing jalapeños, which were distributed to major retailers across 26 states.`\
-https://www.nytimes.com/2026/08/09/business/taylor-farms-jalapenos-salmonella.html
-
-**‘House of the Dragon’ Season 3 Finale Recap: Breaking Mad**\
-`Aegon’s and Sunfyre’s “resurrections” may be the last straw for Rhaenyra as the Battle of Tumbleton looms.`\
-https://www.nytimes.com/2026/08/09/arts/television/house-of-the-dragon-recap-season-3-episode-8.html
-
-**Trump Names Will Scharf as White House Counsel**\
-`The president said Mr. Scharf, a deeply conservative lawyer and the current staff secretary, would replace David Warrington in early September.`\
-https://www.nytimes.com/2026/08/09/us/politics/trump-will-scharf-white-house-counsel.html
-
-**Lake Mead, the Nation’s Largest Reservoir, Is Smaller Than Ever**\
-`Water levels in the reservoir, which sits behind the Hoover Dam, are at record lows. A continued drop would imperil water supplies for millions of people and cut electricity from the dam.`\
-https://www.nytimes.com/2026/08/09/us/lake-mead-water-level-record-low.html
-
-**Daniel Kinahan Extradited From the U.A.E. to Ireland**\
-`Daniel Kinahan, accused of leading a family crime syndicate, was flown home from Dubai on an Irish government jet on Sunday.`\
-https://www.nytimes.com/2026/08/09/world/europe/daniel-kinahan-ireland-extradition.html
-
-**Oil Prices Climb and Stocks Dip on Stalemate in Iran War**\
-`Hopes were dashed over the weekend for a breakthrough on the Strait of Hormuz.`\
-https://www.nytimes.com/2026/08/09/business/oil-stocks-iran-war.html
-
-**NYT Crossword Answers for Aug. 10, 2026**\
-`Nate Cardin hangs out on the quad.`\
-https://www.nytimes.com/2026/08/09/crosswords/daily-puzzle-2026-08-10.html
-
-**Dr. Maura L. Gillison, Who Linked Throat Cancers to HPV, Dies at 61**\
-`She challenged the conventional view that a majority of head and neck cancers resulted from cigarette smoking and excessive alcohol consumption.`\
-https://www.nytimes.com/2026/08/09/obituaries/maura-l-gillison-dead.html
-
-**Still Waiting for Peace in Gaza**\
-`A photojournalist with The New York Times details the displacement and danger, in words and images, that have come to define his home.`\
-https://www.nytimes.com/2026/08/09/world/gaza-israel-iran.html
-
-**Don Nelson, Hall of Fame N.B.A. Coach and Celtics Star, Dies at 86**\
-`One of the winningest coaches in league history, he led the Bucks, the Warriors and the Mavericks. He also had a brief stint with the Knicks.`\
-https://www.nytimes.com/2026/08/09/obituaries/don-nelson-dead.html
 

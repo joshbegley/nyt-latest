@@ -1,3 +1,91 @@
+**Medical Breakthroughs Are a Thrill. Then Comes the Hard Part.**\
+`The Trump administration has dismantled the agency that ensures that research makes its way into medical practice.`\
+https://www.nytimes.com/2026/08/10/opinion/medical-cures-trump-patients.html
+
+**How a Design World Couple Reclaimed a Lost Family Home**\
+`More than 40 years after the Pasadena, Calif., house was sold, the pair moved in, transforming it into a color-drenched homage to three generations.`\
+https://www.nytimes.com/2026/08/10/t-magazine/pasadena-california-nickey-kehoe-design-home.html
+
+**House Tour | Todd Nickey and Greg Holcomb**\
+`The couple show off the 1927 Pasadena home that Holcomb’s paternal grandparents owned for much of the 1950s and ’60s.`\
+https://www.nytimes.com/video/t-magazine/100000011070100/house-tour-todd-nickey-and-greg-holcomb.html
+
+**Private Equity Is Stuck With 33,575 Unsold Businesses**\
+`Even amid a booming deal-making environment, private equity firms are unable to exit a growing number of investments at values their investors require.`\
+https://www.nytimes.com/2026/08/10/business/private-equity-unsold-businesses.html
+
+**Alia Shawkat and Charlotte Day Wilson on the Creative Life**\
+`“The Wrong Girls” actress Alia Shawkat and the R&B artist Charlotte Day Wilson discuss their views on creative collaboration, romantic love and spending time alone.`\
+https://www.nytimes.com/2026/08/10/t-magazine/alia-shawkat-charlotte-day-wilson.html
+
+**Can A.I. Get You Where You Want to Go for Less?**\
+`A wave of new services uses A.I. to monitor flights and hotel reservations to help you find lower prices. We look at how these tools work.`\
+https://www.nytimes.com/2026/08/10/travel/ai-travel-savings.html
+
+**The Surveillance Network Tracking Cars Across the U.S.**\
+`License plate readers, like those made by Flock Safety, have become ubiquitous in the U.S. Our reporters Fernando Alfonso III and Kashmir Hill explain how advances in technology have led to growing privacy concerns and opposition to these systems.`\
+https://www.nytimes.com/video/us/100000011056273/the-surveillance-network-tracking-cars-across-the-us.html
+
+**Word of the Day: phantasmagoric**\
+`This word has appeared in 23 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/08/10/learning/word-of-the-day-phantasmagoric.html
+
+**Why Are So Many People Upset About Flock Cameras?**\
+`Flock Safety’s automated license plate-reading cameras, used by thousands of law enforcement agencies in the U.S., have drawn intense criticism from civil liberties groups.`\
+https://www.nytimes.com/article/flock-safety-camera-technology.html
+
+**The Incomprehensible Fashion Statements of Gen Z**\
+`It used to be that you could tell goths from preps by the look of them.`\
+https://www.nytimes.com/2026/08/10/opinion/subcultures-dead-age.html
+
+**With ‘The Galloping Cure’ in Edinburgh, Missy Mazzoli Tackles the Opioid Crisis**\
+`The composer Missy Mazzoli, driven by personal loss, has turned America’s overdose epidemic into a dark, fantastical allegory.`\
+https://www.nytimes.com/2026/08/10/arts/music/the-galloping-cure-edinburgh-festival-missy-mazzoli.html
+
+**At Edinburgh Fringe, Amanda Knox Takes the Mic to Reclaim Her Story**\
+`In a solo show at the Edinburgh Fringe, Knox is trying to turn her tabloid infamy into stand-up humor, despite an intense backlash.`\
+https://www.nytimes.com/2026/08/10/theater/amanda-knox-comedy-edinburgh-festival-fringe.html
+
+**How Shania Twain Won Over Gen Z**\
+`The pop-country megastar is still thrilling young audiences and influencing a new generation of musicians.`\
+https://www.nytimes.com/2026/08/10/magazine/shania-twain-gen-z.html
+
+**This ‘Heated Rivalry’ Musical Parody Skates a Fine and Funny Line**\
+`Shining a spotlight on the steamiest popular TV show of the season, the creators and cast of this stage production seem to be having serious fun.`\
+https://www.nytimes.com/2026/08/10/theater/heated-rivalry-musical-parody.html
+
+**At Juilliard, 75 Years of Building the Complete Dancer**\
+`A trip through the archives on the Dance Division’s 75th anniversary shows how its history reflects the arc of American dance in the 20th century.`\
+https://www.nytimes.com/2026/08/10/arts/dance/juilliard-dance-division-archive-75th-anniversary.html
+
+**Flock Cameras Can Track Every Car in America. Police Love Them. Citizens Don’t.**\
+`In Texas, there’s one thing liberals and conservatives agree on: They don’t want cameras trained on their cars.`\
+https://www.nytimes.com/2026/08/10/us/flock-cameras-can-track-every-car-in-america-police-love-them-citizens-dont.html
+
+**The Surprising Truth About Instagram’s VHS Dates Videos**\
+`VHS Dates advertises itself as resurfacing lost dating service videotapes from the 1980s. The account’s followers have been genuinely touched.`\
+https://www.nytimes.com/2026/08/10/arts/vhs-dates-instagram-tapes.html
+
+**Books and Bread: Free Grocery Stores in Libraries Tackle Food Insecurity**\
+`Customers are able to choose their own groceries, often in private, instead of visiting a food pantry for whatever is available on a given day.`\
+https://www.nytimes.com/2026/08/10/us/books-and-bread-free-grocery-stores-in-libraries-tackle-food-insecurity.html
+
+**What’s the Deal With All of the Shirtdresses?**\
+`A reader wonders about the origin of a trend.`\
+https://www.nytimes.com/2026/08/10/fashion/shirtdress-trend.html
+
+**A.I. Cheating Threatens the Value of Online Degrees**\
+`As colleges and students embrace virtual classes, the ease of A.I. cheating is raising questions about the value of an online degree.`\
+https://www.nytimes.com/2026/08/10/us/ai-cheating-threatens-the-value-of-online-degrees.html
+
+**How Healthy Are Beets?**\
+`Their eye-popping colors will give you a hint.`\
+https://www.nytimes.com/2026/08/10/well/eat/beets-health-benefits-recipes.html
+
+**America Is Atomizing**\
+`A nation of us versus them and them and them.`\
+https://www.nytimes.com/2026/08/10/style/america-is-atomizing.html
+
 **Typhoon Dolphin Hits China**\
 `Typhoon Dolphin, the strongest storm to hit China this year, made landfall on Sunday, bringing powerful winds. It also intensified monsoon rains in the Philippines.`\
 https://www.nytimes.com/video/world/asia/100000011082389/typhoon-dolphin-china-shanghai-philippines.html
@@ -109,92 +197,4 @@ https://www.nytimes.com/2026/08/09/world/gaza-israel-iran.html
 **Don Nelson, Hall of Fame N.B.A. Coach and Celtics Star, Dies at 86**\
 `One of the winningest coaches in league history, he led the Bucks, the Warriors and the Mavericks. He also had a brief stint with the Knicks.`\
 https://www.nytimes.com/2026/08/09/obituaries/don-nelson-dead.html
-
-**Netanyahu rechaza el plan de Trump para desarmar a Hamás**\
-`La propuesta contempla un proceso en el que Hamás entregaría sus armas en etapas a un nuevo gobierno palestino en Gaza. A cambio, Israel se retiraría gradualmente.`\
-https://www.nytimes.com/es/2026/08/09/espanol/mundo/trump-plan-netanyahu-hamas.html
-
-**El calor se extenderá por Europa antes del eclipse**\
-`Las temperaturas disminuyeron en algunas zonas de Europa, pero se pronostica que aumentarán de nuevo en los próximos días.`\
-https://www.nytimes.com/es/2026/08/09/espanol/tiempo-y-clima/calor-europa-eclipse.html
-
-**Iran Taps Longtime I.R.G.C. Commander Mohsen Rezaei to Top Security Post**\
-`The appointment of Mohsen Rezaei as secretary of the Supreme National Security Council suggests that Iran’s old guard is consolidating power.`\
-https://www.nytimes.com/2026/08/09/world/middleeast/iran-security-council-guards-commander.html
-
-**El cáncer del expresidente Joe Biden está empeorando, dice su hijo**\
-`Hunter Biden dijo en una entrevista con la BBC que el cáncer de próstata del expresidente hizo metástasis en otras partes del cuerpo y se ha vuelto doloroso.`\
-https://www.nytimes.com/es/2026/08/09/espanol/estados-unidos/joe-biden-cancer.html
-
-**Flight Is Canceled After a Child Refuses to Be Seated**\
-`Passengers aboard a Porter Airlines plane headed to Toronto had to wait for a flight the next day after a child remained standing in a seat and would not get buckled in, the company said.`\
-https://www.nytimes.com/2026/08/09/travel/flight-canceled-child-seatbelt-porter-canada.html
-
-**Geraldine de Haas, ‘the First Lady of Chicago Jazz,’ Dies at 91**\
-`After a successful singing career, she led the revival of jazz in the Windy City in the 1970s and ’80s, organizing festivals and concert series.`\
-https://www.nytimes.com/2026/08/09/obituaries/geraldine-de-haas-dead.html
-
-**Ocasio-Cortez Says She Is Freezing Her Eggs and Still Mulling a Presidential Run**\
-`In a TV interview, Representative Alexandria Ocasio-Cortez distanced herself from positions like “defund the police” and indicated she hasn’t ruled out a presidential or Senate run.`\
-https://www.nytimes.com/2026/08/09/nyregion/nyc-alexandria-ocasio-cortez-freezing-eggs.html
-
-**It’s Not Summer Without Ratatouille**\
-`The combination of velvety eggplant, slivers of soft pepper and saucy tomatoes is enough of a reward to justify the oven time on a Sunday afternoon.`\
-https://www.nytimes.com/2026/08/09/dining/its-not-summer-without-ratatouille.html
-
-**Iran, Holding Firm to Hormuz, Pushes for Return to June MOU**\
-`The Strait of Hormuz is Iran’s best leverage to get Washington to release Iran’s frozen assets, lift economic sanctions and end its naval blockade.`\
-https://www.nytimes.com/2026/08/09/world/europe/iran-strait-hormuz-trump-deal.html
-
-**Syria Agrees to Reorganized Russian Military Presence**\
-`After more than a year and a half of negotiations, Syria and Russia have agreed on new parameters of Russia’s military presence in Syria. Syria said it opens the way for a new phase in relations.`\
-https://www.nytimes.com/2026/08/09/world/middleeast/syria-reorganized-russian-military-presence.html
-
-**A Young Marine’s Reckoning With the Afghanistan War**\
-`Readers respond to a front-page essay by Thomas Gibbons-Neff, a Marine veteran, and ponder the moral complexities of war. Also: Women victimized by Uber.`\
-https://www.nytimes.com/2026/08/09/opinion/afghanistan-war.html
-
-**Laughing-in-Delight-While-You-Eat Delicious**\
-`That’s these — what else? — perfectly engineered BLTs, plus more fast tomato dinners.`\
-https://www.nytimes.com/2026/08/09/dining/laughing-in-delight-while-you-eat-delicious.html
-
-**Obama and Abdul El-Sayed Discuss Unity After Michigan Senate Primary**\
-`Dr. Abdul El-Sayed’s call with the former president comes as he tries to win over wary Democrats in Michigan’s high-stakes Senate race.`\
-https://www.nytimes.com/2026/08/09/us/politics/obama-abdul-el-sayed-michigan-senate.html
-
-**Europe Braces for Another Heat Wave. Here’s What to Know.**\
-`High temperature warnings were in place across western, central and southern Europe on Sunday as a heat dome intensifies across the continent.`\
-https://www.nytimes.com/2026/08/09/weather/extreme-heat-wave-uk-france-spain-forecast.html
-
-**Israel Rejects Trump’s 15-Point Plan to Disarm Hamas**\
-`President Trump’s Board of Peace announced an agreement last month that aimed at Hamas’s giving up its weapons alongside an Israeli withdrawal from Gaza.`\
-https://www.nytimes.com/2026/08/09/world/middleeast/israel-netanyahu-trump-15-point-plan-hamas-peace-gaza.html
-
-**The Pope’s Favorite Team**\
-`Are the Chicago White Sox blessed?`\
-https://www.nytimes.com/2026/08/09/briefing/the-popes-favorite-team.html
-
-**Now Coming to a Black Media Outlet Near You: Mayor Mamdani**\
-`Zohran Mamdani’s “all of the above” media strategy, which encompasses ethnic media, influencers and content creators, has led to a recent Black media blitz.`\
-https://www.nytimes.com/2026/08/09/nyregion/black-media-mamdani.html
-
-**Mother and Daughter Die After Boat Overturns in New York Harbor**\
-`Police divers found a 27-year-old woman and her 5-month-old baby in the water near Liberty Island. A man was arrested and charged with reckless endangerment.`\
-https://www.nytimes.com/2026/08/09/nyregion/new-york-harbor-boat-capsizes-dead.html
-
-**Has America Already Undergone a Soft Breakup?**\
-`It can’t go on like this forever.`\
-https://www.nytimes.com/2026/08/09/opinion/america-politics-blue-red-democrats-republicans.html
-
-**BTS’s Grammys Boycott Highlights the Perils of Pop Music**\
-`The genre was shaped by exclusion, not expansion.`\
-https://www.nytimes.com/2026/08/09/opinion/bts-grammys-pop-genre-racism.html
-
-**Is ‘Gentle Parenting’ Ruining French Children?**\
-`The importing of American-style “positive parenting” has sparked a fierce debate about the best way to raise kids in France.`\
-https://www.nytimes.com/2026/08/09/podcasts/the-daily/is-gentle-parenting-ruining-french-children.html
-
-**Please Judge the Books I’m Reading**\
-`Literary awards get dismissed for elitism. But more than ever, we need passionate and idiosyncratic champions for the books most worth seeking out.`\
-https://www.nytimes.com/2026/08/09/opinion/reading-books-judges-awards-booker.html
 
