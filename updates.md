@@ -1,3 +1,11 @@
+**Typhoon Dolphin Hits China**\
+`Typhoon Dolphin, the strongest storm to hit China this year, made landfall on Sunday, bringing powerful winds. It also intensified monsoon rains in the Philippines.`\
+https://www.nytimes.com/video/world/asia/100000011082389/typhoon-dolphin-china-shanghai-philippines.html
+
+**Tupac Shakur Murder Trial Set to Start on Monday**\
+`The trial of Duane Keith Davis, the only person to be charged in connection to the 1996 murder of the rapper Tupac Shakur, is set to begin on Monday with jury selection.`\
+https://www.nytimes.com/video/us/100000011082382/tupac-shakur-murder-trial-keefe.html
+
 **NYT Spelling Bee Answers for August 10, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/08/10/crosswords/spelling-bee-forum.html

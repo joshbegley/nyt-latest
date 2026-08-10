@@ -1,3 +1,11 @@
+**Typhoon Dolphin Hits China**\
+`Typhoon Dolphin, the strongest storm to hit China this year, made landfall on Sunday, bringing powerful winds. It also intensified monsoon rains in the Philippines.`\
+https://www.nytimes.com/video/world/asia/100000011082389/typhoon-dolphin-china-shanghai-philippines.html
+
+**Tupac Shakur Murder Trial Set to Start on Monday**\
+`The trial of Duane Keith Davis, the only person to be charged in connection to the 1996 murder of the rapper Tupac Shakur, is set to begin on Monday with jury selection.`\
+https://www.nytimes.com/video/us/100000011082382/tupac-shakur-murder-trial-keefe.html
+
 **NYT Spelling Bee Answers for August 10, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/08/10/crosswords/spelling-bee-forum.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/09/podcasts/the-daily/is-gentle-parenting-ruinin
 **Please Judge the Books I’m Reading**\
 `Literary awards get dismissed for elitism. But more than ever, we need passionate and idiosyncratic champions for the books most worth seeking out.`\
 https://www.nytimes.com/2026/08/09/opinion/reading-books-judges-awards-booker.html
-
-**NYT Connections Answers for August 10, 2026**\
-`Scroll down for hints and conversation about the puzzle for Monday, Aug. 10, 2026.`\
-https://www.nytimes.com/2026/08/09/crosswords/connections-companion-1156.html
-
-**Today’s Wordle Hints for August 10, 2026**\
-`Scroll down for hints and conversation about the puzzle for Monday, Aug. 10, 2026.`\
-https://www.nytimes.com/2026/08/09/crosswords/wordle-review-1878.html
 
