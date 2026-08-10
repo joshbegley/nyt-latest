@@ -1,3 +1,11 @@
+**‘Americans Vote for Boyfriends, Not Candidates’**\
+`“Americans vote for boyfriends, not candidates,” Michelle Cottle says. Why have Democrats forgotten the importance of political performance — something that goes back as far as Abraham Lincoln?`\
+https://www.nytimes.com/video/opinion/100000011077978/americans-vote-for-boyfriends-not-candidates.html
+
+**Italian Diver Discovers Hundreds of Ancient Amphorae in Sicily**\
+`Hundreds of ancient amphorae were found piled up about 150 feet underwater, suggesting the relics came from a Roman shipwreck from about 2,000 years ago.`\
+https://www.nytimes.com/2026/08/10/world/europe/sicily-shipwreck-discovery.html
+
 **Colombia’s Earthquake Puts Abelardo De La Espriella, Its New President, to the Test**\
 `Abelardo De La Espriella had never held public office until his inauguration on Friday. Now, he is at the helm of a major disaster response.`\
 https://www.nytimes.com/2026/08/10/world/americas/colombia-earthquake-de-la-espriella.html
