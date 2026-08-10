@@ -1,4 +1,8 @@
 **Powerful Earthquake Strikes Colombia**\
+`The magnitude 7.4 quake hit the western part of the country, shaking Bogotá, Cali, Medellín and other cities, just weeks after quakes of similar intensity devastated parts of neighboring Venezuela.`\
+https://www.nytimes.com/2026/08/10/world/americas/colombia-earthquake.html
+
+**Powerful Earthquake Strikes Colombia**\
 `The magnitude 7.4 quake hit the western part of the country, between the cities of Bogotá, Cali and Medellin, just weeks after quakes of similar intensity devastated parts of neighboring Venezuela.`\
 https://www.nytimes.com/2026/08/10/world/americas/colombia-earthquake.html
 
