@@ -1,3 +1,15 @@
+**Jackie, Bald Eagle in California Who Became Livestream Star, Is Dead**\
+`Jackie had been receiving medical treatment since she was attacked by other eagles last month and found unable to fly near Big Bear Lake.`\
+https://www.nytimes.com/2026/08/10/us/jackie-bald-eagle-california-dead.html
+
+**Sanders Calls on A.I. Companies to Pause Development to ‘Avoid Disaster’**\
+`Senator Bernie Sanders warned that corporations have already lost control of technology that could cause “potentially cataclysmic results” for millions of people.`\
+https://www.nytimes.com/2026/08/10/us/politics/bernie-sanders-ai-moratorum.html
+
+**Images Emerge From Quake-Battered Colombia**\
+`The most powerful temblor in a decade struck in a Pacific Coast region, killing over 100 people.`\
+https://www.nytimes.com/2026/08/10/world/americas/colombia-earthquake-photos.html
+
 **Headline test**\
 `summary`\
 https://www.nytimes.com/video/embedded/arts/100000011083855/headline-test.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/08/10/podcasts/the-headlines/cameras-car-flock-iran
 **NYT Connections Answers for August 11, 2026**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, Aug. 11, 2026.`\
 https://www.nytimes.com/2026/08/10/crosswords/connections-companion-1157.html
-
-**Today’s Wordle Hints for August 11, 2026**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, Aug. 11, 2026.`\
-https://www.nytimes.com/2026/08/10/crosswords/wordle-review-1879.html
-
-**NYT Strands Hints for Aug. 11, 2026**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, Aug. 11, 2026.`\
-https://www.nytimes.com/2026/08/10/crosswords/strands-sidekick-891.html
-
-**Ukraine Drone Attack on Industrial City in Russia Kills at Least 13**\
-`The strike, on an industrial center in Tatarstan, killed at least 13 people.`\
-https://www.nytimes.com/2026/08/10/world/europe/ukraine-drone-attack-russia.html
 
