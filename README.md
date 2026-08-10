@@ -1,3 +1,7 @@
+**Trump Wants to Move On From the Middle East. It’s Not Letting Him.**\
+`President Trump is eager to declare success in Iran and Gaza, but he is struggling to impose his will in either conflict.`\
+https://www.nytimes.com/2026/08/10/us/politics/trump-new-strategy-middle-east.html
+
 **Colombia Quake Chases Teenage Venezuelan Brothers From Their New Home**\
 `A pair of brothers who lost their mother and other family members in Venezuela and were profiled by The New York Times have now survived deadly quakes in two countries.`\
 https://www.nytimes.com/2026/08/10/world/americas/colombia-earthquake-venezuela-brothers.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/10/us/politics/minnesota-senate-primary-flanagan
 **How Small, Independent Newspapers Are Still Finding Readers**\
 `In a world of failing newspapers, free weeklies like The Chronicle of Glens Falls, N.Y., are still finding readers. All it takes is owners who do absolutely everything.`\
 https://www.nytimes.com/2026/08/10/business/media/small-newspapers-success-chronicle-glens-falls.html
-
-**Waymo Is Growing Faster Than Ever. So Are Its ‘Edge Cases.’**\
-`As Waymo deploys more driverless cars to 15 U.S. cities and counting, its vehicles keep encountering new and unexpected situations that they have no script to handle.`\
-https://www.nytimes.com/2026/08/10/technology/waymo-expansion-edge-cases.html
 

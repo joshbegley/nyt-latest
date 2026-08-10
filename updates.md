@@ -1,3 +1,11 @@
+**Colombia Quake Chases Teenage Venezuelan Brothers From Their New Home**\
+`A pair of brothers who lost their mother and other family members in Venezuela and were profiled by The New York Times have now survived deadly quakes in two countries.`\
+https://www.nytimes.com/2026/08/10/world/americas/colombia-earthquake-venezuela-brothers.html
+
+**Major Quake Hits Colombia, Killing at Least 111**\
+`Rescue crews and regular people searched for survivors, and the death toll was likely to rise. More than 1,500 homes were damaged, the president said.`\
+https://www.nytimes.com/2026/08/10/world/americas/earthquake-colombia-cali.html
+
 **Takeaways From Jason Arday’s Memoir**\
 `The British scholar resigned from Cambridge after the university, which made him its youngest Black professor in 2023, began investigating his academic qualifications.`\
 https://www.nytimes.com/2026/08/10/books/review/jason-arday-memoir-takeaways.html

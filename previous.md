@@ -1,10 +1,14 @@
+**Colombia Quake Chases Teenage Venezuelan Brothers From Their New Home**\
+`A pair of brothers who lost their mother and other family members in Venezuela and were profiled by The New York Times have now survived deadly quakes in two countries.`\
+https://www.nytimes.com/2026/08/10/world/americas/colombia-earthquake-venezuela-brothers.html
+
 **Takeaways From Jason Arday’s Memoir**\
 `The British scholar resigned from Cambridge after the university, which made him its youngest Black professor in 2023, began investigating his academic qualifications.`\
 https://www.nytimes.com/2026/08/10/books/review/jason-arday-memoir-takeaways.html
 
 **Major Quake Hits Colombia, Killing at Least 111**\
 `Rescue crews and regular people searched for survivors, and the death toll was likely to rise. More than 1,500 homes were damaged, the president said.`\
-https://www.nytimes.com/2026/08/10/world/americas/major-quake-hits-colombia-killing-at-least-111.html
+https://www.nytimes.com/2026/08/10/world/americas/earthquake-colombia-cali.html
 
 **Journalism and Paywalls**\
 `An increasingly hostile environment for independent reporting in the United States and elsewhere has made our job harder, and more expensive.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/10/business/media/small-newspapers-success-chron
 **Waymo Is Growing Faster Than Ever. So Are Its ‘Edge Cases.’**\
 `As Waymo deploys more driverless cars to 15 U.S. cities and counting, its vehicles keep encountering new and unexpected situations that they have no script to handle.`\
 https://www.nytimes.com/2026/08/10/technology/waymo-expansion-edge-cases.html
-
-**Mapa: un terremoto de magnitud 7,4 sacude Colombia**\
-`Mira la localización del epicentro del sismo y el área de movimiento.`\
-https://www.nytimes.com/es/interactive/2026/08/10/espanol/terremoto-colombia.html
 
