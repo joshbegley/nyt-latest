@@ -142,6 +142,10 @@ https://www.nytimes.com/2026/08/10/dining/go-coconut-fish-curry.html
 `Immigration could be his Nixon-goes-to-China.`\
 https://www.nytimes.com/2026/08/10/opinion/trump-dewine-immigration-reform.html
 
+**How Many of These Movies About Books Do You Know?**\
+`Test your knowledge with this short quiz quiz about novels, memoirs and films that celebrate the power of words in one way or another.`\
+https://www.nytimes.com/quiz/2026/08/10/bookreview/book-movies-quiz.html
+
 **Live Updates: Powerful 7.4 Earthquake Strikes Colombia, Killing More Than 100**\
 `The quake shook major cities, including Bogotá, Cali and Medellín. At least 111 people have died, the president said, and the death toll appeared likely to rise as rescuers searched damaged buildings.`\
 https://www.nytimes.com/live/2026/08/10/world/colombia-earthquake-bogota-cali
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/10/arts/edinburgh-fringe-photos.html
 **I, Spied**\
 `We’re looking at the little black cameras that are causing a national uproar.`\
 https://www.nytimes.com/2026/08/10/briefing/flock-cameras.html
-
-**How Taiwan Simulated a Potential Chinese Attack**\
-`The 30-minute simulated disruption was part of the island’s effort to test and build people’s resilience in the face of a potential Chinese attack.`\
-https://www.nytimes.com/2026/08/10/world/asia/taiwan-internet-china-invasion-drill.html
 

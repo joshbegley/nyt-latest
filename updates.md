@@ -1,3 +1,7 @@
+**Taiwan Tested How It Might Cope if China Disrupted Its Communications**\
+`Mobile data was deliberately throttled across central Taiwan for half an hour on Monday as a part of Taiwan’s annual civil defense exercise that prepares citizens in the event of a Chinese invasion.`\
+https://www.nytimes.com/video/world/asia/100000011083141/taiwan-tested-how-it-might-cope-if-china-disrupted-its-communications.html
+
 **‘Americans Vote for Boyfriends, Not Candidates’**\
 `“Americans vote for boyfriends, not candidates,” Michelle Cottle says. Why have Democrats forgotten the importance of political performance — something that goes back as far as Abraham Lincoln?`\
 https://www.nytimes.com/video/opinion/100000011077978/americans-vote-for-boyfriends-not-candidates.html

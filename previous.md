@@ -1,3 +1,7 @@
+**Taiwan Tested How It Might Cope if China Disrupted Its Communications**\
+`Mobile data was deliberately throttled across central Taiwan for half an hour on Monday as a part of Taiwan’s annual civil defense exercise that prepares citizens in the event of a Chinese invasion.`\
+https://www.nytimes.com/video/world/asia/100000011083141/taiwan-tested-how-it-might-cope-if-china-disrupted-its-communications.html
+
 **‘Americans Vote for Boyfriends, Not Candidates’**\
 `“Americans vote for boyfriends, not candidates,” Michelle Cottle says. Why have Democrats forgotten the importance of political performance — something that goes back as far as Abraham Lincoln?`\
 https://www.nytimes.com/video/opinion/100000011077978/americans-vote-for-boyfriends-not-candidates.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/10/briefing/flock-cameras.html
 **How Taiwan Simulated a Potential Chinese Attack**\
 `The 30-minute simulated disruption was part of the island’s effort to test and build people’s resilience in the face of a potential Chinese attack.`\
 https://www.nytimes.com/2026/08/10/world/asia/taiwan-internet-china-invasion-drill.html
-
-**Meta Unveils an Open Version of Its Most Powerful A.I. Model**\
-`The release of Muse Glimmer, a model that can be freely downloaded and modified, is likely to intensify a debate over whether A.I. should be restricted.`\
-https://www.nytimes.com/2026/08/10/technology/meta-ai-open-source.html
 
