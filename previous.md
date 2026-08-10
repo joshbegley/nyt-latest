@@ -1,3 +1,11 @@
+**Minnesota’s Democratic Senate Primary Pits Angie Craig Against Peggy Flanagan**\
+`The Senate primary race in Minnesota will be the latest test of left-wing energy in the party, in a state that was convulsed by the Trump administration’s deadly immigration crackdown this winter.`\
+https://www.nytimes.com/2026/08/10/us/politics/minnesota-senate-primary-flanagan-craig.html
+
+**How Small, Independent Newspapers Are Still Finding Readers**\
+`In a world of failing newspapers, free weeklies like The Chronicle of Glens Falls, N.Y., are still finding readers. All it takes is owners who do absolutely everything.`\
+https://www.nytimes.com/2026/08/10/business/media/small-newspapers-success-chronicle-glen-falls.html
+
 **Waymo Is Growing Faster Than Ever. So Are Its ‘Edge Cases.’**\
 `As Waymo deploys more driverless cars to 15 U.S. cities and counting, its vehicles keep encountering new and unexpected situations that they have no script to handle.`\
 https://www.nytimes.com/2026/08/10/technology/waymo-expansion-edge-cases.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/10/theater/heated-rivalry-musical-parody.html
 **At Juilliard, 75 Years of Building the Complete Dancer**\
 `A trip through the archives on the Dance Division’s 75th anniversary shows how its history reflects the arc of American dance in the 20th century.`\
 https://www.nytimes.com/2026/08/10/arts/dance/juilliard-dance-division-archive-75th-anniversary.html
-
-**Flock Cameras Can Track Every Car in America. Police Love Them. Citizens Don’t.**\
-`In Texas, there’s one thing liberals and conservatives agree on: They don’t want cameras trained on their cars.`\
-https://www.nytimes.com/2026/08/10/us/flock-cameras-can-track-every-car-in-america-police-love-them-citizens-dont.html
-
-**The Surprising Truth About Instagram’s VHS Dates Videos**\
-`VHS Dates advertises itself as resurfacing lost dating service videotapes from the 1980s. The account’s followers have been genuinely touched.`\
-https://www.nytimes.com/2026/08/10/arts/vhs-dates-instagram-tapes.html
 
