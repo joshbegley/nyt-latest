@@ -1,3 +1,7 @@
+**Lake Mead, the Nation’s Largest Reservoir, Is Smaller Than Ever**\
+`Water levels in the reservoir, which sits behind the Hoover Dam, are at record lows. A continued drop would imperil water supplies for millions of people and cut electricity from the dam.`\
+https://www.nytimes.com/2026/08/09/us/lake-mead-water-level-record-low.html
+
 **Daniel Kinahan Extradited From the U.A.E. to Ireland**\
 `Daniel Kinahan, accused of leading a family crime syndicate, was flown home from Dubai on an Irish government jet on Sunday.`\
 https://www.nytimes.com/2026/08/09/world/europe/daniel-kinahan-ireland-extradition.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/09/books/review/finding-renee-richards-julie-kli
 **The Lonely Crew at the Kennedy Center Will Miss Its…Mice**\
 `Employees say the performing arts center’s quirky-looking mice have an exotic back story. Do they?`\
 https://www.nytimes.com/2026/08/09/us/politics/kennedy-center-renovation-mice.html
-
-**Trump Crypto Took $100 Million From a Businessman With Red Flags**\
-`The curious case of Guren “Bobby” Zhou shows the ease with which investors with shady backgrounds and unknown motivations can funnel money to the president.`\
-https://www.nytimes.com/2026/08/09/us/politics/bobby-zhou-trump-crypto.html
 
