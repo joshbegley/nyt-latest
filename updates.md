@@ -1,3 +1,7 @@
+**How Small, Independent Newspapers Are Still Finding Readers**\
+`In a world of failing newspapers, free weeklies like The Chronicle of Glens Falls, N.Y., are still finding readers. All it takes is owners who do absolutely everything.`\
+https://www.nytimes.com/2026/08/10/business/media/small-newspapers-success-chronicle-glens-falls.html
+
 **How Trump’s Yearlong ‘Takeover’ of Washington Has Changed the Capital**\
 `The deployment of National Guard troops and federal agents into the streets has been expensive. How effective it has been is debatable.`\
 https://www.nytimes.com/2026/08/10/us/national-guard-washington-dc.html

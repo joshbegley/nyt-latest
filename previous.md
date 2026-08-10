@@ -80,7 +80,7 @@ https://www.nytimes.com/2026/08/10/us/politics/minnesota-senate-primary-flanagan
 
 **How Small, Independent Newspapers Are Still Finding Readers**\
 `In a world of failing newspapers, free weeklies like The Chronicle of Glens Falls, N.Y., are still finding readers. All it takes is owners who do absolutely everything.`\
-https://www.nytimes.com/2026/08/10/business/media/small-newspapers-success-chronicle-glen-falls.html
+https://www.nytimes.com/2026/08/10/business/media/small-newspapers-success-chronicle-glens-falls.html
 
 **Waymo Is Growing Faster Than Ever. So Are Its ‘Edge Cases.’**\
 `As Waymo deploys more driverless cars to 15 U.S. cities and counting, its vehicles keep encountering new and unexpected situations that they have no script to handle.`\
