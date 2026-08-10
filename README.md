@@ -30,8 +30,8 @@ https://www.nytimes.com/2026/08/10/world/middleeast/netanyahu-trump-israel-gaza-
 `The president and his top aides have been especially bullish about data centers, despite national blowback against the facilities.`\
 https://www.nytimes.com/2026/08/10/business/trump-artificial-intelligence-data-centers-ai.html
 
-**Colombia en directo: temblor causa daños y al menos 20 muertos**\
-`El sismo sacudió varias ciudades importantes, entre ellas Bogotá, Cali y Medellín. Se informó de al menos 20 muertos en la ciudad de Pereira.`\
+**Colombia en directo: temblor causa daños y al menos 28 muertos**\
+`El sismo sacudió varias ciudades importantes, entre ellas Bogotá, Cali y Medellín. Se informó de al menos 28 muertos mientras los rescatistas continuaban buscando en los edificios dañados.`\
 https://www.nytimes.com/live/2026/08/10/espanol/colombia-temblor-terremoto
 
 **Today, In Short**\

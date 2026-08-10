@@ -1,3 +1,15 @@
+**Live Updates: Powerful 7.4 Earthquake Strikes Colombia**\
+`The quake shook several major cities, including Bogotá, Cali and Medellín. At least 28 people were reported dead  as rescuers continued to search damaged buildings.`\
+https://www.nytimes.com/live/2026/08/10/world/colombia-earthquake-bogota-cali
+
+**Meta Unveils an Open Version of Its Most Powerful A.I. Model**\
+`The release of Muse Glimmer, a model that can be freely downloaded and modified, is likely to intensify a debate over whether A.I. should be restricted.`\
+https://www.nytimes.com/2026/08/10/technology/meta-ai-open-source.html
+
+**25 Years of Big-City Gals Meeting Hometown Hunks on Hallmark**\
+`The Hallmark Channel knows that when life feels hard, Christmas in July can help.`\
+https://www.nytimes.com/2026/08/10/style/hallmark-channel-movies-25-years.html
+
 **Muggy Heat and Storms Continue to Grip the U.S., but an End Is in Sight**\
 `Weather at the start of the week looks like more of the same: heat and storms across the Eastern United States. But a subtle shift is in the cards.`\
 https://www.nytimes.com/2026/08/10/weather/heat-storms-midwest-northeast-us.html
