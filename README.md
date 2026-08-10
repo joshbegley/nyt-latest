@@ -87,7 +87,7 @@ https://www.nytimes.com/2026/08/10/crosswords/wordle-review-1879.html
 https://www.nytimes.com/2026/08/10/crosswords/strands-sidekick-891.html
 
 **Ukraine Drone Attack on Industrial City in Russia Kills at Least 13**\
-`A strike on an industrial center in Tatarstan marked one of the deadliest attacks on Russian territory since the start of the war.`\
+`The strike, on an industrial center in Tatarstan, killed at least 13 people.`\
 https://www.nytimes.com/2026/08/10/world/europe/ukraine-drone-attack-russia.html
 
 **¿Está bien abandonar un libro antes de terminarlo?**\
