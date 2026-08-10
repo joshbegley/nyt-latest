@@ -1,3 +1,7 @@
+**Sean MacPherson’s New Restaurant Opens at the ‘End of the World’**\
+`After 25 years, the hotelier Sean MacPherson finally got to open his Lighthouse Café amid Montauk’s 80 mile per hour winds and a boatload of logistics.`\
+https://www.nytimes.com/2026/08/10/dining/sean-macpherson-montauk-lighthouse-cafe.html
+
 **Hegseth Renames Base for Lindsey Graham**\
 `Joint Base Charleston will now be known as Joint Base Lindsey Graham. The senator served as a judge advocate general before retiring as a colonel in 2015.`\
 https://www.nytimes.com/2026/08/10/us/politics/hegseth-base-lindsey-graham.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/10/nyregion/lettuce-new-yorkers-buy-local.html
 **How a Student and Gig Worker Lives on $11,400 in the Bronx**\
 `Richard Sencion, 24, cobbles together funds from delivery jobs and bartending gigs while searching for more permanent work and living with his parents.`\
 https://www.nytimes.com/interactive/2026/08/10/nyregion/nyc-budgeting-affordability-sencion.html
-
-**I’m Tired of Talking About Christopher Nolan’s ”The Odyssey.”**\
-`The attention to “The Odyssey” is as exhausting as its hero’s travels.`\
-https://www.nytimes.com/2026/08/10/opinion/odyssey-nolan-discourse.html
 

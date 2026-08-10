@@ -1,3 +1,7 @@
+**Colombia en directo: terremoto causa daños y al menos 111 muertos**\
+`El temblor sacudió varias de las principales ciudades del país, entre ellas Bogotá, Cali y Medellín. Al menos 111 personas han muerto, dijo el presidente, y parecía probable que el número de víctimas mortales aumentara.`\
+https://www.nytimes.com/live/2026/08/10/espanol/colombia-temblor-terremoto
+
 **Live Updates: Powerful 7.4 Earthquake Strikes Colombia, Killing More Than 100**\
 `The quake shook major cities, including Bogotá, Cali and Medellín. At least 111 people have died, the president said, and the death toll appeared likely to rise as rescuers searched damaged buildings.`\
 https://www.nytimes.com/live/2026/08/10/world/colombia-earthquake-bogota-cali
