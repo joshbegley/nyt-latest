@@ -1,3 +1,27 @@
+**Captain Charged in N.Y.C. Accident That Killed Mother and Daughter**\
+`Manuel Hernandez knew there were no life vests for children when he allowed an infant on board, according to a federal complaint. The child and her mother died in the accident.`\
+https://www.nytimes.com/2026/08/10/nyregion/nyc-boat-federal-charges.html
+
+**Dos hermanos venezolanos sobreviven a otro terremoto, esta vez en Colombia**\
+`Tras perder a tres familiares en junio, los adolescentes acababan de comenzar una nueva vida junto a su padre cuando la tierra volvió a temblar.`\
+https://www.nytimes.com/es/2026/08/10/espanol/america-latina/terremoto-colombia-venezuela-sobrevivientes.html
+
+**Judge Grants Justice Dept. Request to Dismiss Case Against Indian Tycoon**\
+`U.S. prosecutors were pursuing charges against Gautam Adani, India’s richest man, until the Trump Justice Department moved to drop the case against him.`\
+https://www.nytimes.com/2026/08/10/nyregion/adani-fraud-case-dismissed-trump-administration.html
+
+**Yabloko, Russian Antiwar Party, Is Banned From Parliament Elections**\
+`The party, Yabloko, has navigated a delicate balancing act with an increasingly heavy-handed Kremlin, but its pro-peace manifesto turned out to be the red line.`\
+https://www.nytimes.com/2026/08/10/world/europe/russia-yabloko-party-ban-parliament.html
+
+**Temperatura en Europa: dónde hará calor en los próximos días**\
+`Pronóstico de altas temperaturas para el jueves.`\
+https://www.nytimes.com/es/interactive/2026/08/10/espanol/ola-calor-europa-pronostico.html
+
+**El nuevo presidente de Colombia enfrenta su primera gran prueba**\
+`El nuevo presidente nunca había ocupado un cargo público hasta su toma de posesión el viernes. Ahora, está al frente de una importante respuesta a un desastre.`\
+https://www.nytimes.com/es/2026/08/10/espanol/america-latina/colombia-terremoto-abelardo-espriella.html
+
 **Workers Complain of Mold and Bugs at Airline Catering Facility Serving LAX Airport**\
 `Employees of Flying Food Group, a major provider of airline meals, said they saw maggots, cockroaches and flies at a branch serving Los Angeles International Airport.`\
 https://www.nytimes.com/2026/08/10/travel/airline-meals-bugs-mold-los-angeles.html
@@ -169,28 +193,4 @@ https://www.nytimes.com/2026/08/10/world/middleeast/netanyahu-trump-israel-gaza-
 **Trump Shrugs Off A.I. and Data Center Concerns as Voters Grow Anxious**\
 `The president and his top aides have been especially bullish about data centers, despite national blowback against the facilities.`\
 https://www.nytimes.com/2026/08/10/business/trump-artificial-intelligence-data-centers-ai.html
-
-**Colombia en directo: terremoto causa daños y al menos 111 muertos**\
-`El temblor sacudió varias de las principales ciudades del país, entre ellas Bogotá, Cali y Medellín. Al menos 111 personas han muerto, dijo el presidente, y parecía probable que el número de víctimas mortales aumentara.`\
-https://www.nytimes.com/live/2026/08/10/espanol/colombia-temblor-terremoto
-
-**Today, In Short**\
-`Rush week. Katseye. And “Heated Rivalry.”`\
-https://www.nytimes.com/2026/08/10/briefing/today-in-short.html
-
-**Eclipse total de Sol en Europa: visibilidad y recorrido**\
-`Revisa el pronóstico de nubosidad, el recorrido y la hora del eclipse cerca de ti.`\
-https://www.nytimes.com/es/interactive/2026/08/10/espanol/eclipse-donde-ver-mapa.html
-
-**Police in India Use Tear Gas to Break Youth Protest**\
-`Thousands of protesters in the eastern state of Jharkhand claim irregularities in qualifying exams for government jobs and are demanding an overhaul of the system.`\
-https://www.nytimes.com/2026/08/10/world/asia/police-india-protest-jharkhand-jobs.html
-
-**F.D.A. Moves Toward Tighter Restrictions on Food Ingredients**\
-`A proposed rule would require companies to notify the agency about ingredients they are using, but it is unclear if the agency has the resources to vet them all.`\
-https://www.nytimes.com/2026/08/10/well/fda-gras-food-safety.html
-
-**Go Coconut Fish Curry**\
-`This five-star malaay qumbe is, to quote a reader, “Delish every time!”`\
-https://www.nytimes.com/2026/08/10/dining/go-coconut-fish-curry.html
 

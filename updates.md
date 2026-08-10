@@ -1,3 +1,27 @@
+**Captain Charged in N.Y.C. Accident That Killed Mother and Daughter**\
+`Manuel Hernandez knew there were no life vests for children when he allowed an infant on board, according to a federal complaint. The child and her mother died in the accident.`\
+https://www.nytimes.com/2026/08/10/nyregion/nyc-boat-federal-charges.html
+
+**Dos hermanos venezolanos sobreviven a otro terremoto, esta vez en Colombia**\
+`Tras perder a tres familiares en junio, los adolescentes acababan de comenzar una nueva vida junto a su padre cuando la tierra volvió a temblar.`\
+https://www.nytimes.com/es/2026/08/10/espanol/america-latina/terremoto-colombia-venezuela-sobrevivientes.html
+
+**Judge Grants Justice Dept. Request to Dismiss Case Against Indian Tycoon**\
+`U.S. prosecutors were pursuing charges against Gautam Adani, India’s richest man, until the Trump Justice Department moved to drop the case against him.`\
+https://www.nytimes.com/2026/08/10/nyregion/adani-fraud-case-dismissed-trump-administration.html
+
+**Yabloko, Russian Antiwar Party, Is Banned From Parliament Elections**\
+`The party, Yabloko, has navigated a delicate balancing act with an increasingly heavy-handed Kremlin, but its pro-peace manifesto turned out to be the red line.`\
+https://www.nytimes.com/2026/08/10/world/europe/russia-yabloko-party-ban-parliament.html
+
+**Temperatura en Europa: dónde hará calor en los próximos días**\
+`Pronóstico de altas temperaturas para el jueves.`\
+https://www.nytimes.com/es/interactive/2026/08/10/espanol/ola-calor-europa-pronostico.html
+
+**El nuevo presidente de Colombia enfrenta su primera gran prueba**\
+`El nuevo presidente nunca había ocupado un cargo público hasta su toma de posesión el viernes. Ahora, está al frente de una importante respuesta a un desastre.`\
+https://www.nytimes.com/es/2026/08/10/espanol/america-latina/colombia-terremoto-abelardo-espriella.html
+
 **Workers Complain of Mold and Bugs at Airline Catering Facility Serving LAX Airport**\
 `Employees of Flying Food Group, a major provider of airline meals, said they saw maggots, cockroaches and flies at a branch serving Los Angeles International Airport.`\
 https://www.nytimes.com/2026/08/10/travel/airline-meals-bugs-mold-los-angeles.html
