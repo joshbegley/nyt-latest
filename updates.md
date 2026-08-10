@@ -1,3 +1,7 @@
+**Ukraine Drone Attack on Industrial City in Russia Kills at Least 13**\
+`A strike on an industrial center in Tatarstan marked one of the deadliest attacks on Russian territory since the start of the war.`\
+https://www.nytimes.com/2026/08/10/world/europe/ukraine-drone-attack-russia.html
+
 **Meta Unveils ‘Open Source’ Version of Its Most Powerful A.I. Model**\
 `The release of Muse Glimmer, a model that can be freely downloaded and modified, is likely to intensify a debate over whether A.I. should be restricted or not.`\
 https://www.nytimes.com/2026/08/10/technology/meta-ai-open-source.html

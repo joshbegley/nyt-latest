@@ -1,3 +1,11 @@
+**I, Spied**\
+`We’re looking at the little black cameras that are causing a national uproar.`\
+https://www.nytimes.com/2026/08/10/briefing/flock-cameras.html
+
+**Taiwan Gingerly Tests How It Would Cope if China Choked Its Internet**\
+`The 30-minute simulated disruption was part of the island’s effort to test and build people’s resilience in the face of a potential Chinese attack.`\
+https://www.nytimes.com/2026/08/10/world/asia/taiwan-internet-china-invasion-drill.html
+
 **Meta Unveils ‘Open Source’ Version of Its Most Powerful A.I. Model**\
 `The release of Muse Glimmer, a model that can be freely downloaded and modified, is likely to intensify a debate over whether A.I. should be restricted or not.`\
 https://www.nytimes.com/2026/08/10/technology/meta-ai-open-source.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/world/asia/100000011082389/typhoon-dolphin-china-s
 **Tupac Shakur Murder Trial Set to Start on Monday**\
 `The trial of Duane Keith Davis, the only person to be charged in connection to the 1996 murder of the rapper Tupac Shakur, is set to begin on Monday with jury selection.`\
 https://www.nytimes.com/video/us/100000011082382/tupac-shakur-murder-trial-keefe.html
-
-**NYT Spelling Bee Answers for August 10, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/08/10/crosswords/spelling-bee-forum.html
-
-**An Expert in Traffic Jams Has a Scary Idea: What if the Cars Turn on Us?**\
-`Sam Schwartz, a former New York City traffic commissioner, thinks autonomous vehicles are the future. But his book, “Autokill,” imagines a world where they go very wrong.`\
-https://www.nytimes.com/2026/08/10/nyregion/autokill-sam-schwartz-book.html
 

@@ -22,7 +22,7 @@ https://www.nytimes.com/2026/08/10/crosswords/wordle-review-1879.html
 `Scroll down for hints and conversation about the puzzle for Tuesday, Aug. 11, 2026.`\
 https://www.nytimes.com/2026/08/10/crosswords/strands-sidekick-891.html
 
-**Ukrainian Drone Attack Kills 13 Deep Inside Russia**\
+**Ukraine Drone Attack on Industrial City in Russia Kills at Least 13**\
 `A strike on an industrial center in Tatarstan marked one of the deadliest attacks on Russian territory since the start of the war.`\
 https://www.nytimes.com/2026/08/10/world/europe/ukraine-drone-attack-russia.html
 
