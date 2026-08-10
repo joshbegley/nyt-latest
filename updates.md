@@ -1,3 +1,7 @@
+**Lake Mead, the Nation’s Largest Reservoir, Is Smaller Than Ever**\
+`Water levels in the reservoir, which sits behind the Hoover Dam, are at record lows. A continued drop would imperil water supplies for millions of people and cut electricity from the dam.`\
+https://www.nytimes.com/2026/08/09/us/lake-mead-water-level-record-low.html
+
 **Daniel Kinahan Extradited From the U.A.E. to Ireland**\
 `Daniel Kinahan, accused of leading a family crime syndicate, was flown home from Dubai on an Irish government jet on Sunday.`\
 https://www.nytimes.com/2026/08/09/world/europe/daniel-kinahan-ireland-extradition.html
