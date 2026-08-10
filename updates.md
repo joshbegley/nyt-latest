@@ -1,3 +1,7 @@
+**Headline test**\
+`summary`\
+https://www.nytimes.com/video/embedded/arts/100000011083855/headline-test.html
+
 **National Gallery Accused of ‘Soft Censorship’ to Avoid Provoking Trump**\
 `A former executive with the Washington museum says it moved a symposium about race in art to avoid political blowback.`\
 https://www.nytimes.com/2026/08/10/arts/design/national-gallery-art-doge-trump-censorship.html

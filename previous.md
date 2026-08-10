@@ -1,3 +1,7 @@
+**Headline test**\
+`summary`\
+https://www.nytimes.com/video/embedded/arts/100000011083855/headline-test.html
+
 **National Gallery Accused of ‘Soft Censorship’ to Avoid Provoking Trump**\
 `A former executive with the Washington museum says it moved a symposium about race in art to avoid political blowback.`\
 https://www.nytimes.com/2026/08/10/arts/design/national-gallery-art-doge-trump-censorship.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/10/crosswords/strands-sidekick-891.html
 **Ukraine Drone Attack on Industrial City in Russia Kills at Least 13**\
 `The strike, on an industrial center in Tatarstan, killed at least 13 people.`\
 https://www.nytimes.com/2026/08/10/world/europe/ukraine-drone-attack-russia.html
-
-**¿Está bien abandonar un libro antes de terminarlo?**\
-`¿Tiene sentido dejar de leer un libro que no te gusta? Los clubes de lectura y las redes sociales han reavivado un viejo debate.`\
-https://www.nytimes.com/es/2026/08/10/espanol/cultura/club-de-lectura-goodreads-libros.html
 
