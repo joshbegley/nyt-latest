@@ -1,3 +1,11 @@
+**Trump Signs Executive Order Calling for Fewer Childhood Vaccines**\
+`It is not clear whether the order, the president’s third to address the topic in less than a year, has any legal power.`\
+https://www.nytimes.com/2026/08/10/well/trump-vaccines-executive-order.html
+
+**Police Spray Student Protesters in India With Water Cannons and Tear Gas**\
+`Thousands of youth protesters in the eastern state of Jharkhand faced police batons, tear gas, barricades and water cannons as they demanded an investigation into irregularities in the civil service exams.`\
+https://www.nytimes.com/video/world/asia/100000011082858/india-police-students-protests-jharkhand-state.html
+
 **Sean MacPherson’s New Restaurant Opens at the ‘End of the World’**\
 `After 25 years, the hotelier Sean MacPherson finally got to open his Lighthouse Café amid Montauk’s 80 mile per hour winds and a boatload of logistics.`\
 https://www.nytimes.com/2026/08/10/dining/sean-macpherson-montauk-lighthouse-cafe.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/es/2026/08/10/espanol/cultura/club-de-lectura-goodreads-
 **La mujer que hace posible lo imposible para los superricos**\
 `Olivia Ferney creció como hija de maestros de escuela en Ontario. Ahora es experta en jets privados, cabañas de lujo y fiestas bañadas en champán.`\
 https://www.nytimes.com/es/2026/08/10/espanol/estilos-de-vida/champan-record-guinness-ultraricos.html
-
-**Worried About the Lettuce in Your Salad? Some New Yorkers Opt to Buy Local.**\
-`With an intestinal illness called cyclosporiasis causing concern about the produce supply, some consumers have turned to smaller, regional growers.`\
-https://www.nytimes.com/2026/08/10/nyregion/lettuce-new-yorkers-buy-local.html
-
-**How a Student and Gig Worker Lives on $11,400 in the Bronx**\
-`Richard Sencion, 24, cobbles together funds from delivery jobs and bartending gigs while searching for more permanent work and living with his parents.`\
-https://www.nytimes.com/interactive/2026/08/10/nyregion/nyc-budgeting-affordability-sencion.html
 
