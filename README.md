@@ -1,3 +1,7 @@
+**Europa se prepara para una nueva ola de calor**\
+`Se espera que las temperaturas más extremas se presenten inicialmente en partes de Francia, España e Italia antes de desplazarse hacia Europa central.`\
+https://www.nytimes.com/es/2026/08/10/espanol/tiempo-y-clima/europa-espana-ola-calor-mapas.html
+
 **A Canadian Politician’s A.I. Faux Pas**\
 `The “Hard Fork” co-hosts Kevin Roose and Casey Newton react to a video of Bill Oliver, who included an A.I. prompt in a speech he delivered to the New Brunswick Legislature.`\
 https://www.nytimes.com/video/podcasts/100000011083158/a-canadian-politicians-ai-faux-pas.html
@@ -10,7 +14,7 @@ https://www.nytimes.com/2026/08/10/climate/national-academies-climate-chapter-ju
 `Mayor Zohran Mamdani and state transit officials announced a plan to study a heat-capture system that could cool a notoriously hot train station and help heat city buildings in the winter.`\
 https://www.nytimes.com/2026/08/10/nyregion/subway-mamdani-mta-heat-geothermal.html
 
-**A Nighttime New York Boat Tour Turned Deadly In a Matter of Moments**\
+**A Nighttime New York Boat Tour Turned Deadly in a Matter of Moments**\
 `Investigators are focusing on the tour operator and the pilot of the boat that capsized in New York Bay on Saturday, killing a mother and her infant daughter.`\
 https://www.nytimes.com/2026/08/10/nyregion/nyc-boat-deadly-capsize.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/10/us/politics/progressive-left-dsa-ground-game.
 **It’s Hot. They’re Cool. Why Not Wear Flip-Flops?**\
 `At Copenhagen Fashion Week, a low-key shoe completed an array of refined, put-together looks.`\
 https://www.nytimes.com/2026/08/10/style/copenhagen-fashion-week-flip-flops.html
-
-**Why Personality Quizzes Make Us Feel Like We’ve Solved Life’s Puzzles**\
-`Life is a puzzle. Here’s why some tests make us feel as if we’ve solved it.`\
-https://www.nytimes.com/2026/08/10/crosswords/why-we-love-personality-quizzes.html
 
