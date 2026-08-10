@@ -1,3 +1,7 @@
+**Iran Insists Strait of Hormuz Will Stay Closed Until Trump Agrees to Demands**\
+`A spokesman for the Iranian Foreign Ministry said that talks with Oman on shipping routes in the Strait of Hormuz were “separate” from discussions to fully reopen the waterway.`\
+https://www.nytimes.com/2026/08/10/world/middleeast/iran-strait-of-hormuz-us-oman-talks.html
+
 **At Edinburgh Fringe, It’s Time for Comedy, Stunts and Even a Few Owls**\
 `As the festival brings thousands of shows to the Scottish city, there’s also plenty of merriment out on the streets.`\
 https://www.nytimes.com/2026/08/10/arts/edinburgh-fringe-photos.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/10/well/eat/beets-health-benefits-recipes.html
 **America Is Atomizing**\
 `A nation of us versus them and them and them.`\
 https://www.nytimes.com/2026/08/10/style/america-is-atomizing.html
-
-**Typhoon Dolphin Hits China**\
-`Typhoon Dolphin, the strongest storm to hit China this year, made landfall on Sunday, bringing powerful winds. It also intensified monsoon rains in the Philippines.`\
-https://www.nytimes.com/video/world/asia/100000011082389/typhoon-dolphin-china-shanghai-philippines.html
 
