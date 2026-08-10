@@ -1,3 +1,7 @@
+**Trump Names Will Scharf as White House Counsel**\
+`The president said Mr. Scharf, a deeply conservative lawyer and the current staff secretary, would replace David Warrington in early September.`\
+https://www.nytimes.com/2026/08/09/us/politics/trump-will-scharf-white-house-counsel.html
+
 **Lake Mead, the Nation’s Largest Reservoir, Is Smaller Than Ever**\
 `Water levels in the reservoir, which sits behind the Hoover Dam, are at record lows. A continued drop would imperil water supplies for millions of people and cut electricity from the dam.`\
 https://www.nytimes.com/2026/08/09/us/lake-mead-water-level-record-low.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/09/business/kalshi-tarek-mansour-prediction-mark
 **Book Review: “Finding Renée Richards: The Groundbreaking Story of Tennis’s Trans Pioneer”**\
 `Julie Kliegman’s thorough biography of the transgender tennis player is fascinatingly complicated by her changed stance on gender and sports.`\
 https://www.nytimes.com/2026/08/09/books/review/finding-renee-richards-julie-kliegman.html
-
-**The Lonely Crew at the Kennedy Center Will Miss Its…Mice**\
-`Employees say the performing arts center’s quirky-looking mice have an exotic back story. Do they?`\
-https://www.nytimes.com/2026/08/09/us/politics/kennedy-center-renovation-mice.html
 

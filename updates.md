@@ -1,3 +1,7 @@
+**Trump Names Will Scharf as White House Counsel**\
+`The president said Mr. Scharf, a deeply conservative lawyer and the current staff secretary, would replace David Warrington in early September.`\
+https://www.nytimes.com/2026/08/09/us/politics/trump-will-scharf-white-house-counsel.html
+
 **Lake Mead, the Nation’s Largest Reservoir, Is Smaller Than Ever**\
 `Water levels in the reservoir, which sits behind the Hoover Dam, are at record lows. A continued drop would imperil water supplies for millions of people and cut electricity from the dam.`\
 https://www.nytimes.com/2026/08/09/us/lake-mead-water-level-record-low.html
