@@ -1,3 +1,7 @@
+**Powerful Earthquake Strikes Colombia**\
+`The magnitude 7.4 quake hit the western part of the country, between the cities of Bogotá, Cali and Medellin, just weeks after quakes of similar intensity devastated parts of neighboring Venezuela.`\
+https://www.nytimes.com/2026/08/10/world/americas/colombia-earthquake.html
+
 **Minnesota’s Democratic Senate Primary Pits Angie Craig Against Peggy Flanagan**\
 `The Senate primary race in Minnesota will be the latest test of left-wing energy in the party, in a state that was convulsed by the Trump administration’s deadly immigration crackdown this winter.`\
 https://www.nytimes.com/2026/08/10/us/politics/minnesota-senate-primary-flanagan-craig.html

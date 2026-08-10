@@ -1,3 +1,7 @@
+**Powerful Earthquake Strikes Colombia**\
+`The magnitude 7.4 quake hit the western part of the country, between the cities of Bogotá, Cali and Medellin, just weeks after quakes of similar intensity devastated parts of neighboring Venezuela.`\
+https://www.nytimes.com/2026/08/10/world/americas/colombia-earthquake.html
+
 **Minnesota’s Democratic Senate Primary Pits Angie Craig Against Peggy Flanagan**\
 `The Senate primary race in Minnesota will be the latest test of left-wing energy in the party, in a state that was convulsed by the Trump administration’s deadly immigration crackdown this winter.`\
 https://www.nytimes.com/2026/08/10/us/politics/minnesota-senate-primary-flanagan-craig.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/10/magazine/shania-twain-gen-z.html
 **This ‘Heated Rivalry’ Musical Parody Skates a Fine and Funny Line**\
 `Shining a spotlight on the steamiest popular TV show of the season, the creators and cast of this stage production seem to be having serious fun.`\
 https://www.nytimes.com/2026/08/10/theater/heated-rivalry-musical-parody.html
-
-**At Juilliard, 75 Years of Building the Complete Dancer**\
-`A trip through the archives on the Dance Division’s 75th anniversary shows how its history reflects the arc of American dance in the 20th century.`\
-https://www.nytimes.com/2026/08/10/arts/dance/juilliard-dance-division-archive-75th-anniversary.html
 
