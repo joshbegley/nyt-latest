@@ -1,3 +1,7 @@
+**Why Meta Is Betting Big on Open A.I.**\
+`The technology giant is embracing open models, closer ties to Washington and more as it seeks to catch up in the artificial intelligence race.`\
+https://www.nytimes.com/2026/08/10/business/dealbook/meta-open-ai.html
+
 **Boeing to Sell 3 Autonomous Flight Subsidiaries**\
 `In exchange for the sale to Archer Aviation, which is developing a piloted electric aircraft, Boeing will receive a 16.5 percent stake in Archer.`\
 https://www.nytimes.com/2026/08/10/business/boeing-subsidiaries-sale-archer-aviation.html
