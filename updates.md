@@ -1,3 +1,15 @@
+**Fotos del terremoto en Colombia**\
+`El temblor más potente en una década sacudió una región de la costa del Pacífico y causó la muerte de más de 100 personas.`\
+https://www.nytimes.com/es/2026/08/10/espanol/america-latina/fotos-colombia-terremoto.html
+
+**How a Counterintelligence Inquiry Into Trump’s Russia Ties Was Derailed**\
+`Documents released by the White House shed new light on the demise of an often-overlooked 2017 F.B.I. investigation.`\
+https://www.nytimes.com/2026/08/10/us/politics/trump-memos-russia-investigation.html
+
+**F.D.A. Moves Toward Tighter Restrictions on Food Ingredients**\
+`A proposed rule would require companies to notify the agency about ingredients they are using, but it is unclear if the agency has the resources to vet them all.`\
+https://www.nytimes.com/2026/08/10/well/fda-gras-food-safety.html
+
 **D.C.-Area Airport to Close for 3 Hours for Grand Prix Event**\
 `The Federal Aviation Administration has imposed other closures at Reagan National Airport over events marking the 250th anniversary of the nation’s founding.`\
 https://www.nytimes.com/2026/08/10/us/politics/reagan-airport-closure-grand-prix.html

@@ -1,3 +1,11 @@
+**Fotos del terremoto en Colombia**\
+`El temblor más potente en una década sacudió una región de la costa del Pacífico y causó la muerte de más de 100 personas.`\
+https://www.nytimes.com/es/2026/08/10/espanol/america-latina/fotos-colombia-terremoto.html
+
+**How a Counterintelligence Inquiry Into Trump’s Russia Ties Was Derailed**\
+`Documents released by the White House shed new light on the demise of an often-overlooked 2017 F.B.I. investigation.`\
+https://www.nytimes.com/2026/08/10/us/politics/trump-memos-russia-investigation.html
+
 **D.C.-Area Airport to Close for 3 Hours for Grand Prix Event**\
 `The Federal Aviation Administration has imposed other closures at Reagan National Airport over events marking the 250th anniversary of the nation’s founding.`\
 https://www.nytimes.com/2026/08/10/us/politics/reagan-airport-closure-grand-prix.html
@@ -135,7 +143,7 @@ https://www.nytimes.com/es/interactive/2026/08/10/espanol/eclipse-donde-ver-mapa
 https://www.nytimes.com/2026/08/10/world/asia/police-india-protest-jharkhand-jobs.html
 
 **F.D.A. Moves Toward Tighter Restrictions on Food Ingredients**\
-`A proposed rule would require companies to notify the agency about ingredients they plan to add, but companies would still be able to self-police their safety.`\
+`A proposed rule would require companies to notify the agency about ingredients they are using, but it is unclear if the agency has the resources to vet them all.`\
 https://www.nytimes.com/2026/08/10/well/fda-gras-food-safety.html
 
 **Go Coconut Fish Curry**\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/08/10/business/dealbook/meta-open-ai.html
 **Boeing to Sell 3 Autonomous Flight Subsidiaries**\
 `In exchange for the sale to Archer Aviation, which is developing a piloted electric aircraft, Boeing will receive a 16.5 percent stake in Archer.`\
 https://www.nytimes.com/2026/08/10/business/boeing-subsidiaries-sale-archer-aviation.html
-
-**Iran Insists Strait of Hormuz Will Stay Closed Until Trump Agrees to Demands**\
-`A spokesman for the Iranian Foreign Ministry said that talks with Oman on shipping routes in the Strait of Hormuz were “separate” from discussions to fully reopen the waterway.`\
-https://www.nytimes.com/2026/08/10/world/middleeast/iran-strait-of-hormuz-us-oman-talks.html
-
-**At Edinburgh Fringe, It’s Time for Comedy, Stunts and Even a Few Owls**\
-`As the festival brings thousands of shows to the Scottish city, there’s also plenty of merriment out on the streets.`\
-https://www.nytimes.com/2026/08/10/arts/edinburgh-fringe-photos.html
 
