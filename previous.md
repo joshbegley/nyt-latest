@@ -1,3 +1,11 @@
+**Top Science Body Deletes Climate Chapter From Judges’ Manual**\
+`The National Academies of Sciences, Engineering and Medicine had been under pressure from Republican leaders, including President Trump.`\
+https://www.nytimes.com/2026/08/10/climate/national-academies-climate-chapter-judges.html
+
+**The Subway Is Sweltering. Is There a Way to Put That Heat to Good Use?**\
+`Mayor Zohran Mamdani and state transit officials announced a plan to study a heat-capture system that could cool a notoriously hot train station and help heat city buildings in the winter.`\
+https://www.nytimes.com/2026/08/10/nyregion/subway-mamdani-mta-heat-geothermal.html
+
 **A Nighttime New York Boat Tour Turned Deadly In a Matter of Moments**\
 `Investigators are focusing on the tour operator and the pilot of the boat that capsized in New York Bay on Saturday, killing a mother and her infant daughter.`\
 https://www.nytimes.com/2026/08/10/nyregion/nyc-boat-deadly-capsize.html
@@ -42,8 +50,8 @@ https://www.nytimes.com/2026/08/10/world/middleeast/netanyahu-trump-israel-gaza-
 `The president and his top aides have been especially bullish about data centers, despite national blowback against the facilities.`\
 https://www.nytimes.com/2026/08/10/business/trump-artificial-intelligence-data-centers-ai.html
 
-**Colombia en directo: temblor causa daños y decenas de muertos**\
-`El sismo sacudió varias ciudades importantes, entre ellas Bogotá, Cali y Medellín. Se informó de al menos 69 muertos mientras los rescatistas continuaban buscando en los edificios dañados.`\
+**Colombia en directo: terremoto causa daños y decenas de muertos**\
+`El sismo sacudió varias ciudades importantes, entre ellas Bogotá, Cali y Medellín. Se informó de más de 70 personas muertas mientras los rescatistas continuaban buscando en los edificios dañados.`\
 https://www.nytimes.com/live/2026/08/10/espanol/colombia-temblor-terremoto
 
 **Today, In Short**\
@@ -71,7 +79,7 @@ https://www.nytimes.com/2026/08/10/dining/go-coconut-fish-curry.html
 https://www.nytimes.com/2026/08/10/opinion/trump-dewine-immigration-reform.html
 
 **Live Updates: Powerful 7.4 Earthquake Strikes Colombia, Killing Dozens**\
-`The quake shook several major cities, including Bogotá, Cali and Medellín. At least 69 people have died, and the death toll appeared likely to rise as rescuers continued to search damaged buildings.`\
+`The quake shook several major cities, including Bogotá, Cali and Medellín. More than 70 people have died, and the death toll appeared likely to rise as rescuers continued to search damaged buildings.`\
 https://www.nytimes.com/live/2026/08/10/world/colombia-earthquake-bogota-cali
 
 **Gyeran Bap (Egg Rice)**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/10/style/hallmark-channel-movies-25-years.html
 **Southern Iran Bears Brunt of U.S. Bombing**\
 `While fighting has abated in much of Iran, near-constant U.S. airstrikes in Qeshm island and other southern spots have upended lives and livelihoods.`\
 https://www.nytimes.com/2026/08/10/world/middleeast/iran-south-bombing-strait-hormuz.html
-
-**Book Review: ‘The Jackal,’ by Joby Warrick**\
-`In his new book, Joby Warrick traces the rise and fall of Carlos the Jackal, the notorious terrorist-for-hire.`\
-https://www.nytimes.com/2026/08/10/books/review/joby-warrick-carlos-the-jackal.html
-
-**A.I.-Driven Chip Crunch Leads to New Rush of Lobbying in Washington**\
-`As data centers gobble up memory chips, other industries that need the components, including electronics companies like Apple and medical device makers, are asking for government help.`\
-https://www.nytimes.com/2026/08/10/technology/memory-chip-shortage-ai.html
 

@@ -1,3 +1,19 @@
+**Top Science Body Deletes Climate Chapter From Judges’ Manual**\
+`The National Academies of Sciences, Engineering and Medicine had been under pressure from Republican leaders, including President Trump.`\
+https://www.nytimes.com/2026/08/10/climate/national-academies-climate-chapter-judges.html
+
+**The Subway Is Sweltering. Is There a Way to Put That Heat to Good Use?**\
+`Mayor Zohran Mamdani and state transit officials announced a plan to study a heat-capture system that could cool a notoriously hot train station and help heat city buildings in the winter.`\
+https://www.nytimes.com/2026/08/10/nyregion/subway-mamdani-mta-heat-geothermal.html
+
+**Colombia en directo: terremoto causa daños y decenas de muertos**\
+`El sismo sacudió varias ciudades importantes, entre ellas Bogotá, Cali y Medellín. Se informó de más de 70 personas muertas mientras los rescatistas continuaban buscando en los edificios dañados.`\
+https://www.nytimes.com/live/2026/08/10/espanol/colombia-temblor-terremoto
+
+**Live Updates: Powerful 7.4 Earthquake Strikes Colombia, Killing Dozens**\
+`The quake shook several major cities, including Bogotá, Cali and Medellín. More than 70 people have died, and the death toll appeared likely to rise as rescuers continued to search damaged buildings.`\
+https://www.nytimes.com/live/2026/08/10/world/colombia-earthquake-bogota-cali
+
 **A Nighttime New York Boat Tour Turned Deadly In a Matter of Moments**\
 `Investigators are focusing on the tour operator and the pilot of the boat that capsized in New York Bay on Saturday, killing a mother and her infant daughter.`\
 https://www.nytimes.com/2026/08/10/nyregion/nyc-boat-deadly-capsize.html
