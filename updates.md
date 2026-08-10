@@ -1,3 +1,7 @@
+**The Campaign Tactics Helping Progressives Win Primaries Ahead of the 2026 Midterms**\
+`Progressives are being outspent and are receiving little support from the Democratic Party. Their tactics show a different way to succeed.`\
+https://www.nytimes.com/2026/08/10/us/politics/progressive-left-dsa-ground-game.html
+
 **Mapa: un terremoto de magnitud 7,4 sacude Colombia**\
 `Mira la localización del epicentro del sismo y el área de movimiento.`\
 https://www.nytimes.com/es/interactive/2026/08/10/espanol/terremoto-colombia.html
