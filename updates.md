@@ -1,3 +1,15 @@
+**NYT Spelling Bee Answers for August 10, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/08/10/crosswords/spelling-bee-forum.html
+
+**An Expert in Traffic Jams Has a Scary Idea: What if the Cars Turn on Us?**\
+`Sam Schwartz, a former New York City traffic commissioner, thinks autonomous vehicles are the future. But his book, “Autokill,” imagines a world where they go very wrong.`\
+https://www.nytimes.com/2026/08/10/nyregion/autokill-sam-schwartz-book.html
+
+**A Fight Brews Between Mamdani and Amazon Over Delivery Workers**\
+`New York’s mayor wants major companies to hire employees directly rather than relying on contractors. The firms say that will raise prices and slow service.`\
+https://www.nytimes.com/2026/08/10/nyregion/mamdani-amazon-delivery-workers-nyc.html
+
 **Typhoon Dolphin Barrels Into China, Prompting Mass Evacuations**\
 `The storm, which made landfall on Sunday evening, is the strongest to hit China this year and also caused flooding in parts of the Philippines.`\
 https://www.nytimes.com/2026/08/10/world/asia/typhoon-dolphin-china-evacuations.html
