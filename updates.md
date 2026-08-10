@@ -1,3 +1,15 @@
+**D.C.-Area Airport to Close for 3 Hours for Grand Prix Event**\
+`The Federal Aviation Administration has imposed other closures at Reagan National Airport over events marking the 250th anniversary of the nation’s founding.`\
+https://www.nytimes.com/2026/08/10/us/politics/reagan-airport-closure-grand-prix.html
+
+**Taiwan Tested How It Might Cope if China Disrupted Its Communications**\
+`Mobile data was deliberately throttled across central Taiwan for half an hour on Monday as a part of Taiwan’s annual civil defense exercise that prepares citizens in the event of a Chinese invasion.`\
+https://www.nytimes.com/video/world/asia/100000011083141/taiwan-internet-test-communications-against-china.html
+
+**How Many of These Movies About Books Do You Know?**\
+`Test your knowledge with this short quiz quiz about novels, memoirs and films that celebrate the power of words in one way or another.`\
+https://www.nytimes.com/quiz/2026/08/10/bookreview/book-movies-quiz.html
+
 **Taiwan Tested How It Might Cope if China Disrupted Its Communications**\
 `Mobile data was deliberately throttled across central Taiwan for half an hour on Monday as a part of Taiwan’s annual civil defense exercise that prepares citizens in the event of a Chinese invasion.`\
 https://www.nytimes.com/video/world/asia/100000011083141/taiwan-tested-how-it-might-cope-if-china-disrupted-its-communications.html
