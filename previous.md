@@ -1,3 +1,7 @@
+**How Trump’s Yearlong ‘Takeover’ of Washington Has Changed the Capital**\
+`The deployment of National Guard troops and federal agents into the streets has been expensive. How effective it has been is debatable.`\
+https://www.nytimes.com/2026/08/10/us/national-guard-washington-dc.html
+
 **Will Voters Think Francesca Hong Is Too Radical? Here’s Where She Stands.**\
 `The democratic socialist is the front-runner to win the Democratic primary for governor of Wisconsin on Tuesday.`\
 https://www.nytimes.com/2026/08/10/us/francesca-hong-positions-wisconsin-governor.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/10/technology/memory-chip-shortage-ai.html
 **Duane Davis, Who Wrote About Role in Tupac’s Murder, Now Says Memoir Was Fiction**\
 `Duane Davis’s book boasted of his role in the killing of Tupac Shakur. The memoir, which he now disavows, has become prime evidence in his murder trial, which starts this week.`\
 https://www.nytimes.com/2026/08/10/arts/music/tupac-shakur-murder-trial.html
-
-**A Hacienda-Style Home in Pasadena**\
-`Todd Nickey, a co-founder of the Los Angeles-based design firm Nickey Kehoe, and his husband, Greg Holcomb, a real estate agent, show off their 1927 Pasadena home that Holcomb’s paternal grandparents owned for much of the 1950s and ’60s.`\
-https://www.nytimes.com/video/t-magazine/100000011073384/a-hacienda-style-home-in-pasadena.html
 

@@ -1,3 +1,7 @@
+**How Trump’s Yearlong ‘Takeover’ of Washington Has Changed the Capital**\
+`The deployment of National Guard troops and federal agents into the streets has been expensive. How effective it has been is debatable.`\
+https://www.nytimes.com/2026/08/10/us/national-guard-washington-dc.html
+
 **Colombia en directo: temblor causa daños y decenas de muertos**\
 `El sismo sacudió varias ciudades importantes, entre ellas Bogotá, Cali y Medellín. Se informó de al menos 69 muertos mientras los rescatistas continuaban buscando en los edificios dañados.`\
 https://www.nytimes.com/live/2026/08/10/espanol/colombia-temblor-terremoto
