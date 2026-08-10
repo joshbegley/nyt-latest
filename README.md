@@ -4,7 +4,7 @@ https://www.nytimes.com/2026/08/10/books/review/jason-arday-memoir-takeaways.htm
 
 **Major Quake Hits Colombia, Killing at Least 111**\
 `Rescue crews and regular people searched for survivors, and the death toll was likely to rise. More than 1,500 homes were damaged, the president said.`\
-https://www.nytimes.com/2026/08/10/world/americas/major-quake-hits-colombia-killing-at-least-111.html
+https://www.nytimes.com/2026/08/10/world/americas/earthquake-colombia-cali.html
 
 **Journalism and Paywalls**\
 `An increasingly hostile environment for independent reporting in the United States and elsewhere has made our job harder, and more expensive.`\
