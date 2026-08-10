@@ -1,3 +1,7 @@
+**Daniel Kinahan Extradited From the U.A.E. to Ireland**\
+`Daniel Kinahan, accused of leading a family crime syndicate, was flown home from Dubai on an Irish government jet on Sunday.`\
+https://www.nytimes.com/2026/08/09/world/europe/daniel-kinahan-ireland-extradition.html
+
 **Oil Prices Climb and Stocks Dip on Stalemate in Iran War**\
 `Hopes were dashed over the weekend for a breakthrough on the Strait of Hormuz.`\
 https://www.nytimes.com/2026/08/09/business/oil-stocks-iran-war.html
