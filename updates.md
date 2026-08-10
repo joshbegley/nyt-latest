@@ -1,3 +1,7 @@
+**Netanyahu Walks Tightrope on Trump’s Gaza Disarmament Deal**\
+`The Israeli prime minister, facing a tough upcoming election, is trying to satisfy the sometimes competing demands of his right-wing base and of President Trump.`\
+https://www.nytimes.com/2026/08/10/world/middleeast/netanyahu-trump-israel-gaza-disarmament.html
+
 **Hegseth Renames Base for Lindsey Graham**\
 `Joint Base Charleston will now be known as Joint Base Lindsey Graham. The senator served as a judge advocate general before retiring as a colonel in 2015.`\
 https://www.nytimes.com/2026/08/10/us/politics/hegseth-base-lindsey-graham.html
