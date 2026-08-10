@@ -1,3 +1,11 @@
+**Turkey Moves to Advance Peace Process With P.K.K.**\
+`The government adopted a law that might prove a significant step toward ending an outlawed group’s decades-long battle with the Turkish state.`\
+https://www.nytimes.com/2026/08/10/world/europe/turkey-law-pkk-peace-framework.html
+
+**Judge Pauses Rollout of N.Y.C. Second-Home Tax, Dealing Blow to Mamdani**\
+`A group of homeowners had sued the city, arguing that the introduction of the tax was mishandled. After the judge issued an order pausing the rollout, the city said it would appeal.`\
+https://www.nytimes.com/2026/08/10/nyregion/mamdani-second-home-tax-ruling-nyc.html
+
 **New York City Judge Sides With Homeowners in Suit Over Second-Home Tax**\
 `A group of homeowners had sued the city, arguing that the introduction of the tax was mishandled. After the judge issued an order pausing the rollout, the city said it would appeal.`\
 https://www.nytimes.com/2026/08/10/nyregion/mamdani-second-home-tax-ruling-nyc.html
