@@ -1,3 +1,7 @@
+**Will Voters Think Francesca Hong Is Too Radical? Here’s Where She Stands.**\
+`The democratic socialist is the front-runner to win the Democratic primary for governor of Wisconsin on Tuesday.`\
+https://www.nytimes.com/2026/08/10/us/francesca-hong-positions-wisconsin-governor.html
+
 **How We Talk About Mental Health Challenges**\
 `The National Alliance on Mental Illness responds to an Opinion guest essay. Also: President Trump’s arch; a retreat on vaccines; Mr. Trump and Canada.`\
 https://www.nytimes.com/2026/08/10/opinion/mental-health.html
@@ -30,8 +34,8 @@ https://www.nytimes.com/2026/08/10/world/middleeast/netanyahu-trump-israel-gaza-
 `The president and his top aides have been especially bullish about data centers, despite national blowback against the facilities.`\
 https://www.nytimes.com/2026/08/10/business/trump-artificial-intelligence-data-centers-ai.html
 
-**Colombia en directo: temblor causa daños y al menos 20 muertos**\
-`El sismo sacudió varias ciudades importantes, entre ellas Bogotá, Cali y Medellín. Se informó de al menos 20 muertos en la ciudad de Pereira.`\
+**Colombia en directo: temblor causa daños y al menos 28 muertos**\
+`El sismo sacudió varias ciudades importantes, entre ellas Bogotá, Cali y Medellín. Se informó de al menos 28 muertos mientras los rescatistas continuaban buscando en los edificios dañados.`\
 https://www.nytimes.com/live/2026/08/10/espanol/colombia-temblor-terremoto
 
 **Today, In Short**\
@@ -55,7 +59,7 @@ https://www.nytimes.com/2026/08/10/well/fda-gras-food-safety.html
 https://www.nytimes.com/2026/08/10/dining/go-coconut-fish-curry.html
 
 **Mike DeWine: Only Trump Can Pull Off Immigration Reform**\
-`It could be his Nixon-goes-to-China.`\
+`Immigration reform could be his Nixon-goes-to-China.`\
 https://www.nytimes.com/2026/08/10/opinion/trump-dewine-immigration-reform.html
 
 **Live Updates: Powerful 7.4 Earthquake Strikes Colombia**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/10/arts/music/tupac-shakur-murder-trial.html
 **A Hacienda-Style Home in Pasadena**\
 `Todd Nickey, a co-founder of the Los Angeles-based design firm Nickey Kehoe, and his husband, Greg Holcomb, a real estate agent, show off their 1927 Pasadena home that Holcomb’s paternal grandparents owned for much of the 1950s and ’60s.`\
 https://www.nytimes.com/video/t-magazine/100000011073384/a-hacienda-style-home-in-pasadena.html
-
-**I’ve Seen How A.I. Changes Young People’s Social Lives**\
-`A.I. has become a kind of social sealant, filling the gaps in young people’s relationships.`\
-https://www.nytimes.com/2026/08/10/opinion/ai-artificial-intelligence-relationships.html
 

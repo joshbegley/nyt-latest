@@ -1,3 +1,15 @@
+**Will Voters Think Francesca Hong Is Too Radical? Here’s Where She Stands.**\
+`The democratic socialist is the front-runner to win the Democratic primary for governor of Wisconsin on Tuesday.`\
+https://www.nytimes.com/2026/08/10/us/francesca-hong-positions-wisconsin-governor.html
+
+**Colombia en directo: temblor causa daños y al menos 28 muertos**\
+`El sismo sacudió varias ciudades importantes, entre ellas Bogotá, Cali y Medellín. Se informó de al menos 28 muertos mientras los rescatistas continuaban buscando en los edificios dañados.`\
+https://www.nytimes.com/live/2026/08/10/espanol/colombia-temblor-terremoto
+
+**Mike DeWine: Only Trump Can Pull Off Immigration Reform**\
+`Immigration reform could be his Nixon-goes-to-China.`\
+https://www.nytimes.com/2026/08/10/opinion/trump-dewine-immigration-reform.html
+
 **Live Updates: Powerful 7.4 Earthquake Strikes Colombia**\
 `The quake shook several major cities, including Bogotá, Cali and Medellín. At least 28 people were reported dead  as rescuers continued to search damaged buildings.`\
 https://www.nytimes.com/live/2026/08/10/world/colombia-earthquake-bogota-cali
