@@ -1,3 +1,15 @@
+**Jackie, Bald Eagle in California Who Became Livestream Star, Is Dead**\
+`Jackie had been receiving medical treatment since she was attacked by other eagles last month and found unable to fly near Big Bear Lake.`\
+https://www.nytimes.com/2026/08/10/us/jackie-bald-eagle-california-dead.html
+
+**Sanders Calls on A.I. Companies to Pause Development to ‘Avoid Disaster’**\
+`Senator Bernie Sanders warned that corporations have already lost control of technology that could cause “potentially cataclysmic results” for millions of people.`\
+https://www.nytimes.com/2026/08/10/us/politics/bernie-sanders-ai-moratorum.html
+
+**Images Emerge From Quake-Battered Colombia**\
+`The most powerful temblor in a decade struck in a Pacific Coast region, killing over 100 people.`\
+https://www.nytimes.com/2026/08/10/world/americas/colombia-earthquake-photos.html
+
 **Headline test**\
 `summary`\
 https://www.nytimes.com/video/embedded/arts/100000011083855/headline-test.html
