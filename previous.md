@@ -174,13 +174,13 @@ https://www.nytimes.com/2026/08/09/style/anthony-scaramuccis-podcast-trump.html
 `Ken Kesey’s psychedelic bus, immortalized in “The Electric Kool-Aid Acid Test,” is preparing for one more run. And to its owners, America sure could use it.`\
 https://www.nytimes.com/2026/08/09/us/kesey-furthur-bus-san-francisco.html
 
-**Poll: Voters See Political Parties as More Extreme Than Their Own Candidates**\
-`In a New York Times/Siena poll of battleground states, national parties were seen as too far to the right or the left, while nominees were viewed as more moderate.`\
-https://www.nytimes.com/2026/08/09/us/elections/poll-voters-political-parties-extreme.html
-
 **A Democratic Socialist Seeks New Voters in an Unlikely Place: Fox News**\
 `Gustavo Gordillo, a leader of the New York D.S.A., wants to reach new voters. But in interviews with conservative media, the backlash can be sharp.`\
 https://www.nytimes.com/2026/08/09/us/politics/gustavo-gordillo-democratic-socialists.html
+
+**Poll: Voters See Political Parties as More Extreme Than Their Own Candidates**\
+`In a New York Times/Siena poll of battleground states, national parties were seen as too far to the right or the left, while nominees were viewed as more moderate.`\
+https://www.nytimes.com/2026/08/09/us/elections/poll-voters-political-parties-extreme.html
 
 **As the Climate Warms, Beavers are Coming for Canada’s Arctic**\
 `Drawn by a warming climate, Canada’s furry national symbol is colonizing new territory, evading Inuit hunters and reshaping the world they find.`\
