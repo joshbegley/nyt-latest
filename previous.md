@@ -1,3 +1,7 @@
+**Ben Jones, ‘Dukes of Hazzard’ Actor and Congressman, Dies at 84**\
+`He played the mechanic Cooter Davenport on the hit television series before serving two terms as a Democratic congressman from Georgia.`\
+https://www.nytimes.com/2026/08/10/obituaries/ben-jones-dead.html
+
 **What America Owes to Afghan Women**\
 `Five years after giving up on Afghanistan, America still has a responsibility to the country’s women.`\
 https://www.nytimes.com/2026/08/10/opinion/afghanistan-women-america.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/09/crosswords/strands-sidekick-890.html
 **Believing’s Summer Reading List**\
 `Today, I’m sharing some of what I’ve been reading — and what you’ve told me you’re reading,`\
 https://www.nytimes.com/2026/08/09/briefing/books-to-make-you-feel-something.html
-
-**Esta es la dieta de los hombres más poderosos de EE. UU. Yo la probé**\
-`Me intrigaba que hubiera una dieta radical y varonil para personas radicales y varoniles. Los resultados fueron fascinantes.`\
-https://www.nytimes.com/es/2026/08/09/espanol/dieta-hombres-poderosos.html
 

@@ -1,3 +1,7 @@
+**Ben Jones, ‘Dukes of Hazzard’ Actor and Congressman, Dies at 84**\
+`He played the mechanic Cooter Davenport on the hit television series before serving two terms as a Democratic congressman from Georgia.`\
+https://www.nytimes.com/2026/08/10/obituaries/ben-jones-dead.html
+
 **What America Owes to Afghan Women**\
 `Five years after giving up on Afghanistan, America still has a responsibility to the country’s women.`\
 https://www.nytimes.com/2026/08/10/opinion/afghanistan-women-america.html
