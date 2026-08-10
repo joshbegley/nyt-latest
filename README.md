@@ -1,3 +1,7 @@
+**Un poderoso terremoto sacude Colombia**\
+`El temblor de magnitud 7,4 golpeó la parte occidental del país, entre las ciudades de Bogotá, Cali y Medellín, apenas semanas después de que sismos de intensidad similar devastaran partes de la vecina Venezuela.`\
+https://www.nytimes.com/live/2026/08/10/espanol/colombia-temblor-terremoto
+
 **Today, In Short**\
 `Rush week. Katseye. And “Heated Rivalry.”`\
 https://www.nytimes.com/2026/08/10/briefing/today-in-short.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/10/t-magazine/alia-shawkat-charlotte-day-wilson.
 **Can A.I. Get You Where You Want to Go for Less?**\
 `A wave of new services uses A.I. to monitor flights and hotel reservations to help you find lower prices. We look at how these tools work.`\
 https://www.nytimes.com/2026/08/10/travel/ai-travel-savings.html
-
-**The Surveillance Network Tracking Cars Across the U.S.**\
-`License plate readers, like those made by Flock Safety, have become ubiquitous in the U.S. Our reporters Fernando Alfonso III and Kashmir Hill explain how advances in technology have led to growing privacy concerns and opposition to these systems.`\
-https://www.nytimes.com/video/us/100000011056273/the-surveillance-network-tracking-cars-across-the-us.html
 
