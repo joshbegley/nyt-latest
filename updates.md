@@ -1,3 +1,15 @@
+**Man in Custody Over Bomb Threat at U.S. Consulate in Nova Scotia**\
+`A propane tank and several containers of what were believed to be flammable liquids were found inside the man’s vehicle in a nearby parking garage, the police in Halifax said.`\
+https://www.nytimes.com/2026/08/10/world/americas/halifax-canada-bomb-threat-us-consulate.html
+
+**Trump Stokes Islamophobia by Calling Democratic Candidates ‘Jihadists’**\
+`Along with his comments about Muslim candidates, Mr. Trump spoke disparagingly of Somalis in the United States, saying “they’re not smart.”`\
+https://www.nytimes.com/2026/08/10/us/politics/trump-democrats-somalis-jihadists-muslim.html
+
+**From Nest to Deathbed, Jackie the Eagle Entranced California and Beyond**\
+`The bald eagle and her mate gained fame during the pandemic, as a livestream tracked their nesting attempts. She died while being treated for anemia.`\
+https://www.nytimes.com/2026/08/10/us/jackie-bald-eagle-california-dead.html
+
 **Here Is Where Colombia’s Quake Hit Hardest**\
 `A line of cities near the epicenter sustained major damage, images show. The Colombian capital appeared largely spared.`\
 https://www.nytimes.com/2026/08/10/world/americas/colombia-quake-maps.html
