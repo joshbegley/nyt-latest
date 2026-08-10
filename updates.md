@@ -1,3 +1,15 @@
+**Trump Signs Executive Order Calling for Fewer Childhood Vaccines**\
+`It is not clear whether the order, the president’s third to address the topic in less than a year, has any legal power.`\
+https://www.nytimes.com/2026/08/10/well/trump-vaccines-executive-order.html
+
+**Police Spray Student Protesters in India With Water Cannons and Tear Gas**\
+`Thousands of youth protesters in the eastern state of Jharkhand faced police batons, tear gas, barricades and water cannons as they demanded an investigation into irregularities in the civil service exams.`\
+https://www.nytimes.com/video/world/asia/100000011082858/india-police-students-protests-jharkhand-state.html
+
+**Sean MacPherson’s New Restaurant Opens at the ‘End of the World’**\
+`After 25 years, the hotelier Sean MacPherson finally got to open his Lighthouse Café amid Montauk’s 80 mile per hour winds and a boatload of logistics.`\
+https://www.nytimes.com/2026/08/10/dining/sean-macpherson-montauk-lighthouse-cafe.html
+
 **Colombia en directo: terremoto causa daños y al menos 111 muertos**\
 `El temblor sacudió varias de las principales ciudades del país, entre ellas Bogotá, Cali y Medellín. Al menos 111 personas han muerto, dijo el presidente, y parecía probable que el número de víctimas mortales aumentara.`\
 https://www.nytimes.com/live/2026/08/10/espanol/colombia-temblor-terremoto
