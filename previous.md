@@ -1,3 +1,7 @@
+**Homeland Security Intensifies Pursuit of Noncitizens on Voter Rolls**\
+`Immigrants who said they inadvertently registered to vote while obtaining or renewing driver’s licenses are increasingly facing deportation under the Trump administration.`\
+https://www.nytimes.com/2026/08/10/us/politics/noncitizens-vote-crackdown.html
+
 **Trump Wants to Move On From the Middle East. It’s Not Letting Him.**\
 `President Trump is eager to declare success in Iran and Gaza, but he is struggling to impose his will in either conflict.`\
 https://www.nytimes.com/2026/08/10/us/politics/trump-new-strategy-middle-east.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/dining/100000011082920/gyeran-bap-egg-rice.html
 **Minnesota’s Democratic Senate Primary Pits Angie Craig Against Peggy Flanagan**\
 `The Senate primary race in Minnesota will be the latest test of left-wing energy in the party, in a state that was convulsed by the Trump administration’s deadly immigration crackdown this winter.`\
 https://www.nytimes.com/2026/08/10/us/politics/minnesota-senate-primary-flanagan-craig.html
-
-**How Small, Independent Newspapers Are Still Finding Readers**\
-`In a world of failing newspapers, free weeklies like The Chronicle of Glens Falls, N.Y., are still finding readers. All it takes is owners who do absolutely everything.`\
-https://www.nytimes.com/2026/08/10/business/media/small-newspapers-success-chronicle-glens-falls.html
 

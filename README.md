@@ -1,3 +1,11 @@
+**New York City Judge Sides With Homeowners in Suit Over Second-Home Tax**\
+`A group of homeowners had sued the city, arguing that the introduction of the tax was mishandled. After the judge issued an order pausing the rollout, the city said it would appeal.`\
+https://www.nytimes.com/2026/08/10/nyregion/mamdani-second-home-tax-ruling-nyc.html
+
+**Wisconsin’s Roller Coaster of a Democratic Primary Race for Governor Crashes to an End**\
+`Democrats appear likely to nominate a democratic socialist for governor. How did they get here?`\
+https://www.nytimes.com/2026/08/10/us/politics/francesca-hong-wisconsin-democratic-primary.html
+
 **Homeland Security Intensifies Pursuit of Noncitizens on Voter Rolls**\
 `Immigrants who said they inadvertently registered to vote while obtaining or renewing driver’s licenses are increasingly facing deportation under the Trump administration.`\
 https://www.nytimes.com/2026/08/10/us/politics/noncitizens-vote-crackdown.html
@@ -182,15 +190,7 @@ https://www.nytimes.com/2026/08/10/opinion/trump-dewine-immigration-reform.html
 `Test your knowledge with this short quiz quiz about novels, memoirs and films that celebrate the power of words in one way or another.`\
 https://www.nytimes.com/quiz/2026/08/10/bookreview/book-movies-quiz.html
 
-**Live Updates: Powerful 7.4 Earthquake Strikes Colombia, Killing More Than 100**\
-`The quake shook major cities, including Bogotá, Cali and Medellín. At least 111 people have died, the president said, and the death toll appeared likely to rise as rescuers searched damaged buildings.`\
-https://www.nytimes.com/live/2026/08/10/world/colombia-earthquake-bogota-cali
-
 **Gyeran Bap (Egg Rice)**\
 `Gyeran bap is a lifesaving Korean pantry meal of fried eggs stirred into steamed white rice.`\
 https://www.nytimes.com/video/dining/100000011082920/gyeran-bap-egg-rice.html
-
-**Minnesota’s Democratic Senate Primary Pits Angie Craig Against Peggy Flanagan**\
-`The Senate primary race in Minnesota will be the latest test of left-wing energy in the party, in a state that was convulsed by the Trump administration’s deadly immigration crackdown this winter.`\
-https://www.nytimes.com/2026/08/10/us/politics/minnesota-senate-primary-flanagan-craig.html
 

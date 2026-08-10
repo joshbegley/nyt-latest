@@ -1,3 +1,7 @@
+**Homeland Security Intensifies Pursuit of Noncitizens on Voter Rolls**\
+`Immigrants who said they inadvertently registered to vote while obtaining or renewing driver’s licenses are increasingly facing deportation under the Trump administration.`\
+https://www.nytimes.com/2026/08/10/us/politics/noncitizens-vote-crackdown.html
+
 **Trump Wants to Move On From the Middle East. It’s Not Letting Him.**\
 `President Trump is eager to declare success in Iran and Gaza, but he is struggling to impose his will in either conflict.`\
 https://www.nytimes.com/2026/08/10/us/politics/trump-new-strategy-middle-east.html
