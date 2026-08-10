@@ -1,3 +1,31 @@
+**No Corrections: August 10, 2026**\
+`No corrections appeared in print on Monday, August 10, 2026.`\
+https://www.nytimes.com/2026/08/10/corrections/no-corrections-august-10-2026.html
+
+**Quote of the Day: In Resort Town Ruins, Life Is About Survival and Burying the Dead**\
+`Quotation of the day for Monday, August 10, 2026.`\
+https://www.nytimes.com/2026/08/10/pageoneplus/quote-of-the-day-in-resort-town-ruins-life-is-about-survival-and-burying-the-dead.html
+
+**EE. UU. agota sus reservas de armas en Irán. Rusia y China toman nota**\
+`La guerra en Irán agota las reservas de misiles de EE. UU., lo que provoca una erosión significativa del poder de fuego. Un conflicto más prolongado en Irán beneficia a Moscú y Pekín, según algunos analistas.`\
+https://www.nytimes.com/es/2026/08/10/espanol/estados-unidos/armas-reservas-eeuu-china-rusia.html
+
+**Extreme Heat Comes for the Red Chile Capital of Pakistan**\
+`The traditional ways of cultivating the peppers may not survive the challenges of climate change and soaring costs, so Pakistani farmers are trying to adapt.`\
+https://www.nytimes.com/2026/08/10/world/asia/pakistan-red-chiles-climate-change.html
+
+**Malaysia Was Confident in Its Social Media Ban, but Kids Are Still on TikTok**\
+`Officials told platforms to verify children’s ages using government-issued documents, like identity cards. But the companies have balked, apparently over privacy concerns.`\
+https://www.nytimes.com/2026/08/10/world/asia/malaysia-social-media-ban-delayed.html
+
+**He Transformed His Spanish Hometown. Did He Also Spoil It?**\
+`Francisco de la Torre, the mayor of Málaga, is credited with turning the once drab port into a culture and tech hub. Critics say he’s also destroyed the city’s soul.`\
+https://www.nytimes.com/2026/08/10/world/europe/malaga-spain-mayor-torre-urban-regeneration.html
+
+**What to Know About Europe’s Total Solar Eclipse: Where to See It and How to Watch Safely**\
+`We’re answering some questions about the solar eclipse on Aug. 12, and providing a place for you to ask more of them.`\
+https://www.nytimes.com/2026/08/10/science/europe-total-solar-eclipse-how-to-watch.html
+
 **Obama and Abdul El-Sayed Discuss Unity After Michigan Senate Primary**\
 `Dr. Abdul El-Sayed’s call with the former president comes as he tries to win over wary Democrats in Michigan’s high-stakes Senate race.`\
 https://www.nytimes.com/2026/08/09/us/politics/obama-abdul-el-sayed-michigan-senate.html
