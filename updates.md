@@ -1,3 +1,7 @@
+**Obama and Abdul El-Sayed Discuss Unity After Michigan Senate Primary**\
+`Dr. Abdul El-Sayed’s call with the former president comes as he tries to win over wary Democrats in Michigan’s high-stakes Senate race.`\
+https://www.nytimes.com/2026/08/09/us/politics/obama-abdul-el-sayed-michigan-senate.html
+
 **Taylor Farms Voluntarily Recalls Fresh Jalapeños Over Salmonella Concerns**\
 `The company said it was unaware of any reported illnesses linked to its products containing jalapeños, which were distributed to major retailers across 26 states.`\
 https://www.nytimes.com/2026/08/09/business/taylor-farms-jalapenos-salmonella.html
