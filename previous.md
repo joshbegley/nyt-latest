@@ -1,3 +1,7 @@
+**Mapa: un terremoto de magnitud 7,4 sacude Colombia**\
+`Mira la localización del epicentro del sismo y el área de movimiento.`\
+https://www.nytimes.com/es/interactive/2026/08/10/espanol/terremoto-colombia.html
+
 **Map: 7.4-Magnitude Earthquake Shakes Colombia**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/08/10/world/earthquake-colombia-tracker.html
@@ -102,7 +106,7 @@ https://www.nytimes.com/2026/08/10/books/review/joby-warrick-carlos-the-jackal.h
 `As data centers gobble up memory chips, other industries that need the components, including electronics companies like Apple and medical device makers, are asking for government help.`\
 https://www.nytimes.com/2026/08/10/technology/memory-chip-shortage-ai.html
 
-**His Book Says He Planned Tupac’s Murder. Now He Says It Was Fiction.**\
+**Duane Davis, Who Wrote About Role in Tupac’s Murder, Now Says Memoir Was Fiction**\
 `Duane Davis’s book boasted of his role in the killing of Tupac Shakur. The memoir, which he now disavows, has become prime evidence in his murder trial, which starts this week.`\
 https://www.nytimes.com/2026/08/10/arts/music/tupac-shakur-murder-trial.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/10/arts/vhs-dates-instagram-tapes.html
 **Books and Bread: Free Grocery Stores in Libraries Tackle Food Insecurity**\
 `Customers are able to choose their own groceries, often in private, instead of visiting a food pantry for whatever is available on a given day.`\
 https://www.nytimes.com/2026/08/10/us/books-and-bread-free-grocery-stores-in-libraries-tackle-food-insecurity.html
-
-**What’s the Deal With All of the Shirtdresses?**\
-`A reader wonders about the origin of a trend.`\
-https://www.nytimes.com/2026/08/10/fashion/shirtdress-trend.html
 

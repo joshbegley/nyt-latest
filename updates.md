@@ -1,3 +1,11 @@
+**Mapa: un terremoto de magnitud 7,4 sacude Colombia**\
+`Mira la localización del epicentro del sismo y el área de movimiento.`\
+https://www.nytimes.com/es/interactive/2026/08/10/espanol/terremoto-colombia.html
+
+**Duane Davis, Who Wrote About Role in Tupac’s Murder, Now Says Memoir Was Fiction**\
+`Duane Davis’s book boasted of his role in the killing of Tupac Shakur. The memoir, which he now disavows, has become prime evidence in his murder trial, which starts this week.`\
+https://www.nytimes.com/2026/08/10/arts/music/tupac-shakur-murder-trial.html
+
 **Map: 7.4-Magnitude Earthquake Shakes Colombia**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/08/10/world/earthquake-colombia-tracker.html
