@@ -1,3 +1,11 @@
+**Captain Charged in N.Y.C. Accident That Killed Mother and Daughter**\
+`Manuel Hernandez knew there were no life vests for children when he allowed an infant on board, according to a federal complaint. The child and her mother died in the accident.`\
+https://www.nytimes.com/2026/08/10/nyregion/nyc-boat-federal-charges.html
+
+**Dos hermanos venezolanos sobreviven a otro terremoto, esta vez en Colombia**\
+`Tras perder a tres familiares en junio, los adolescentes acababan de comenzar una nueva vida junto a su padre cuando la tierra volvió a temblar.`\
+https://www.nytimes.com/es/2026/08/10/espanol/america-latina/terremoto-colombia-venezuela-sobrevivientes.html
+
 **Judge Grants Justice Dept. Request to Dismiss Case Against Indian Tycoon**\
 `U.S. prosecutors were pursuing charges against Gautam Adani, India’s richest man, until the Trump Justice Department moved to drop the case against him.`\
 https://www.nytimes.com/2026/08/10/nyregion/adani-fraud-case-dismissed-trump-administration.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/08/10/world/middleeast/netanyahu-trump-israel-gaza-
 **Trump Shrugs Off A.I. and Data Center Concerns as Voters Grow Anxious**\
 `The president and his top aides have been especially bullish about data centers, despite national blowback against the facilities.`\
 https://www.nytimes.com/2026/08/10/business/trump-artificial-intelligence-data-centers-ai.html
-
-**Colombia en directo: terremoto causa daños y al menos 111 muertos**\
-`El temblor sacudió varias de las principales ciudades del país, entre ellas Bogotá, Cali y Medellín. Al menos 111 personas han muerto, dijo el presidente, y parecía probable que el número de víctimas mortales aumentara.`\
-https://www.nytimes.com/live/2026/08/10/espanol/colombia-temblor-terremoto
-
-**Today, In Short**\
-`Rush week. Katseye. And “Heated Rivalry.”`\
-https://www.nytimes.com/2026/08/10/briefing/today-in-short.html
 
