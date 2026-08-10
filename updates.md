@@ -1,3 +1,7 @@
+**Boeing to Sell 3 Autonomous Flight Subsidiaries**\
+`In exchange for the sale to Archer Aviation, which is developing a piloted electric aircraft, Boeing will receive a 16.5 percent stake in Archer.`\
+https://www.nytimes.com/2026/08/10/business/boeing-subsidiaries-sale-archer-aviation.html
+
 **Iran Insists Strait of Hormuz Will Stay Closed Until Trump Agrees to Demands**\
 `A spokesman for the Iranian Foreign Ministry said that talks with Oman on shipping routes in the Strait of Hormuz were “separate” from discussions to fully reopen the waterway.`\
 https://www.nytimes.com/2026/08/10/world/middleeast/iran-strait-of-hormuz-us-oman-talks.html
