@@ -78,7 +78,7 @@ https://www.nytimes.com/interactive/2026/08/10/nyregion/nyc-budgeting-affordabil
 `The attention to “The Odyssey” is as exhausting as its hero’s travels.`\
 https://www.nytimes.com/2026/08/10/opinion/odyssey-nolan-discourse.html
 
-**Inside the Left’s Playbook for Winning Elections**\
+**The Campaign Tactics Helping Progressives Win Primaries Ahead of the 2026 Midterms**\
 `Progressives are being outspent and are receiving little support from the Democratic Party. Their tactics show a different way to succeed.`\
 https://www.nytimes.com/2026/08/10/us/politics/progressive-left-dsa-ground-game.html
 
