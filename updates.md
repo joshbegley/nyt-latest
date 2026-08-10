@@ -1,3 +1,11 @@
+**What America Owes to Afghan Women**\
+`Five years after giving up on Afghanistan, America still has a responsibility to the country’s women.`\
+https://www.nytimes.com/2026/08/10/opinion/afghanistan-women-america.html
+
+**‘My Brilliant Career’ and 5 More Shows to Watch on TV This Week**\
+`Let’s take a look at an Australian series set in 1900 airs and revisit some classic TV episodes that evoke the feeling of summer.`\
+https://www.nytimes.com/2026/08/10/arts/television/my-brilliant-career-and-5-more-shows-to-watch-on-tv-this-week.html
+
 **Explosive Wildfire in British Columbia Leaves 1 Dead**\
 `The Bald Range fire had burned more than 33,000 acres and remained out of control on Sunday, officials said. About 20,000 people were ordered to evacuate.`\
 https://www.nytimes.com/2026/08/10/world/canada/western-canada-wildfires-british-columbia-bc.html
