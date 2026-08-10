@@ -1,3 +1,7 @@
+**Live Updates: Powerful 7.4 Earthquake Strikes Colombia, Killing More Than 100**\
+`The quake shook major cities, including Bogotá, Cali and Medellín. At least 111 people have died, the president said, and the death toll appeared likely to rise as rescuers searched damaged buildings.`\
+https://www.nytimes.com/live/2026/08/10/world/colombia-earthquake-bogota-cali
+
 **Netanyahu Walks Tightrope on Trump’s Gaza Disarmament Deal**\
 `The Israeli prime minister, facing a tough upcoming election, is trying to satisfy the sometimes competing demands of his right-wing base and of President Trump.`\
 https://www.nytimes.com/2026/08/10/world/middleeast/netanyahu-trump-israel-gaza-disarmament.html

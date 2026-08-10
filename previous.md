@@ -94,8 +94,8 @@ https://www.nytimes.com/2026/08/10/dining/go-coconut-fish-curry.html
 `Immigration could be his Nixon-goes-to-China.`\
 https://www.nytimes.com/2026/08/10/opinion/trump-dewine-immigration-reform.html
 
-**Live Updates: Powerful 7.4 Earthquake Strikes Colombia, Killing Dozens**\
-`The quake shook several major cities, including Bogotá, Cali and Medellín. More than 70 people have died, and the death toll appeared likely to rise as rescuers continued to search damaged buildings.`\
+**Live Updates: Powerful 7.4 Earthquake Strikes Colombia, Killing More Than 100**\
+`The quake shook major cities, including Bogotá, Cali and Medellín. At least 111 people have died, the president said, and the death toll appeared likely to rise as rescuers searched damaged buildings.`\
 https://www.nytimes.com/live/2026/08/10/world/colombia-earthquake-bogota-cali
 
 **Gyeran Bap (Egg Rice)**\
