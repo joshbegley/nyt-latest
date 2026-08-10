@@ -1,3 +1,7 @@
+**Explosive Canada Wildfire Leaves 1 Dead in British Columbia**\
+`The Bald Range fire had burned more than 33,000 acres and remained out of control on Sunday, officials said. About 20,000 people were ordered to evacuate.`\
+https://www.nytimes.com/2026/08/10/world/canada/western-canada-wildfires-british-columbia-bc.html
+
 **Ben Jones, ‘Dukes of Hazzard’ Actor and Congressman, Dies at 84**\
 `He played the mechanic Cooter Davenport on the hit television series before serving two terms as a Democratic congressman from Georgia.`\
 https://www.nytimes.com/2026/08/10/obituaries/ben-jones-dead.html
