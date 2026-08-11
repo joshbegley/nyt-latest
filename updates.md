@@ -1,3 +1,7 @@
+**Four Killed in Houthi Strike on Red Sea Ship, Yemeni Government Says**\
+`The Yemeni government said the ship was carrying food supplies to a port on the Bab al-Mandab Strait while the Iran-backed Houthis accused Saudi Arabia of transporting weapons.`\
+https://www.nytimes.com/2026/08/11/world/middleeast/deadly-houthi-strike-red-sea.html
+
 **Tate McRae’s Neutrogena Skin Care Ad Inspires Parodies on TikTok**\
 `A video of the pop star using Neutrogena skin care products — with an ultralight touch — led to a wave of parodies.`\
 https://www.nytimes.com/2026/08/11/style/tate-mcrae-neutrogena-ad.html

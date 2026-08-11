@@ -99,7 +99,7 @@ https://www.nytimes.com/2026/08/11/briefing/today-in-short.html
 https://www.nytimes.com/2026/08/11/style/for-one-night-at-least-silent-films-are-back.html
 
 **Four Killed in Houthi Strike on Red Sea Ship, Yemeni Government Says**\
-`The Yemeni government said the ship was carrying food supplies to a port on the Bab al-Mandab Strait. The Iran-backed Houthis have not commented on the attack.`\
+`The Yemeni government said the ship was carrying food supplies to a port on the Bab al-Mandab Strait while the Iran-backed Houthis accused Saudi Arabia of transporting weapons.`\
 https://www.nytimes.com/2026/08/11/world/middleeast/deadly-houthi-strike-red-sea.html
 
 **Frenzy for Solar Eclipse Glasses Takes Over London**\
