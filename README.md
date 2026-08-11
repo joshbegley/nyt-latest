@@ -51,7 +51,7 @@ https://www.nytimes.com/video/world/africa/100000011032450/deported-from-the-us-
 https://www.nytimes.com/video/world/europe/100000011085655/europeans-scramble-to-buy-solar-eclipse-glasses.html
 
 **Election Live Updates: Wisconsin and South Carolina Races Test Power of Progressives and Trump**\
-`Six states are holding primaries on Tuesday. Democratic contests in Wisconsin and Minnesota pit moderates against progressives, while a special Senate primary to run for the late Lindsey Graham’s seat in South Carolina could go to a runoff.`\
+`A democratic socialist is seeking the nomination for governor of Wisconsin, and the late Senator Lindsey Graham’s sister is competing in a primary for his seat. Four other states are also holding races.`\
 https://www.nytimes.com/live/2026/08/11/us/elections-south-carolina-wisconsin
 
 **Richard Lingeman, Cultural Historian and Biographer, Dies at 95**\
