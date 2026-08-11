@@ -43,7 +43,7 @@ https://www.nytimes.com/es/2026/08/11/espanol/america-latina/terremoto-colombia-
 https://www.nytimes.com/2026/08/11/world/americas/presidents-secret-flights-trump-turkey.html
 
 **University of Michigan Will Ease Up on Grades for Student Mental Health**\
-`The University of Michigan will make first-semester grades pass or fail, to encourage students to try different classes and lessen fears of the consequences of a low grade.`\
+`The University of Michigan will make first-semester grades pass or fail, to encourage students to try different classes and lessen fears of what a low grade could mean.`\
 https://www.nytimes.com/2026/08/11/us/university-michigan-grades-freshmen-pass-fail.html
 
 **Are We Too Uptight About Feet?**\
