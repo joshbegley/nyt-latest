@@ -1,3 +1,7 @@
+**Arlene Smith, Whose Song ‘Maybe’ Helped Define Doo-Wop, Dies at 84**\
+`With the Chantels, a groundbreaking female vocal group, she tugged heartstrings with the indelible hit and paved the way for a wave of “girl groups.”`\
+https://www.nytimes.com/2026/08/11/arts/music/arlene-smith-dead.html
+
 **Trump Sues New York and Other States Over In-State Tuition for Migrants**\
 `The administration’s lawsuits, which included Connecticut and Vermont, challenged the legality of giving undocumented students in-state tuition.`\
 https://www.nytimes.com/2026/08/11/nyregion/trump-lawsuit-new-york-tuition-immigrants.html
