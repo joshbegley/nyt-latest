@@ -1,7 +1,3 @@
-**Por qué el vestido camisero es tendencia de moda**\
-`Exploramos la historia y el éxito de una prenda versátil.`\
-https://www.nytimes.com/es/2026/08/10/espanol/estilos-de-vida/vestido-camisero-tendencia-moda.html
-
 **Fact-Checking Trump’s Claims About Childhood Vaccines After Executive Order**\
 `Mr. Trump signed an executive order on Monday calling to scale back the number of vaccinations American children receive.`\
 https://www.nytimes.com/2026/08/10/well/trump-vaccines-fact-check.html
@@ -193,4 +189,8 @@ https://www.nytimes.com/2026/08/10/nyregion/nyc-boat-deadly-capsize.html
 **One Year Later, Trump’s ‘Takeover’ Has Changed D.C. Is It Better Off?**\
 `The deployment of National Guard troops and federal agents into the streets has been expensive. How effective it has been is debatable.`\
 https://www.nytimes.com/2026/08/10/us/national-guard-washington-dc.html
+
+**Will Wisconsin Voters Think Francesca Hong Is Too Radical? Here’s Where She Stands.**\
+`The democratic socialist is the front-runner to win the Democratic primary for governor of Wisconsin on Tuesday.`\
+https://www.nytimes.com/2026/08/10/us/francesca-hong-positions-wisconsin-governor.html
 
