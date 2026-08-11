@@ -1,3 +1,11 @@
+**3 Presidents Before Trump Who Obscured Their Risky Travel Plans**\
+`President Trump was part of a particularly elaborate deception last month, boarding one jet before being spirited away to another.`\
+https://www.nytimes.com/2026/08/11/world/americas/presidents-secret-flights-trump-turkey.html
+
+**University of Michigan Will Ease Up on Grades for Student Mental Health**\
+`The university will make first-semester grades pass or fail, to encourage students to explore different classes and lessen fears that “a low grade may have long-term consequences.”`\
+https://www.nytimes.com/2026/08/11/us/university-michigan-grades-freshmen-pass-fail.html
+
 **Are We Too Uptight About Feet?**\
 `Plus: Your thoughts on my in-office shorts and Beams in Malibu.`\
 https://www.nytimes.com/2026/08/11/style/toes-sandals-feet-flip-flops.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/interactive/2026/08/11/us/elections/results-connecticut-
 **Connecticut First Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Connecticut primary election.`\
 https://www.nytimes.com/interactive/2026/08/11/us/elections/results-connecticut-us-house-1-primary.html
-
-**Connecticut Governor Primary 2026: Live Election Results, Lamont vs. Elliott**\
-`Get live results and maps from the 2026 Connecticut primary election.`\
-https://www.nytimes.com/interactive/2026/08/11/us/elections/results-connecticut-governor-primary.html
-
-**Alabama Seventh Congressional District Special Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Alabama special primary election.`\
-https://www.nytimes.com/interactive/2026/08/11/us/elections/results-alabama-us-house-7-special-primary.html
 
