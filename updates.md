@@ -1,3 +1,7 @@
+**These Are Rachel Antonoff’s Favorite Restaurants**\
+`The food-loving fashion designer tackles the Where to Eat restaurant questionnaire.`\
+https://www.nytimes.com/2026/08/11/dining/fashion-designer-rachel-antonoff.html
+
 **Cómo se frustró una investigación sobre los nexos de Trump con Rusia**\
 `Documentos publicados por la Casa Blanca arrojan luz sobre una indagatoria poco conocida en torno a la campaña presidencial de 2016 de Trump.`\
 https://www.nytimes.com/es/2026/08/11/espanol/estados-unidos/trump-rusia-eleccion-presidencial.html

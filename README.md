@@ -1,3 +1,7 @@
+**Searching for Survivors After Colombia’s Earthquake**\
+`Our Colombia-based reporter Genevieve Glatsky witnesses the search for survivors after a five-story apartment building in the city of Cali collapsed in an earthquake.`\
+https://www.nytimes.com/video/world/americas/100000011085349/searching-for-survivors-after-colombias-earthquake.html
+
 **These Are Rachel Antonoff’s Favorite Restaurants**\
 `The food-loving fashion designer tackles the Where to Eat restaurant questionnaire.`\
 https://www.nytimes.com/2026/08/11/dining/fashion-designer-rachel-antonoff.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/08/11/us/elections/results-wisconsin-us
 **Wisconsin Sixth Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Wisconsin primary election.`\
 https://www.nytimes.com/interactive/2026/08/11/us/elections/results-wisconsin-us-house-6-primary.html
-
-**Vermont At-Large Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Vermont primary election.`\
-https://www.nytimes.com/interactive/2026/08/11/us/elections/results-vermont-us-house-at-large-primary.html
 
