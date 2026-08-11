@@ -1,3 +1,127 @@
+**Democrats Plan New Push to Defeat Max Miller in Ohio After Abuse Accusations**\
+`The party’s congressional campaign arm added Mr. Miller’s opponent, Brian Poindexter, to its highly competitive “Red to Blue” list.`\
+https://www.nytimes.com/2026/08/11/us/politics/democrats-plan-new-push-to-defeat-max-miller-in-ohio-after-abuse-accusations.html
+
+**In a Summer of Climate Misery, Businesses Confront the Need to Adapt**\
+`Repeated heat waves, wildfires, droughts and storms are solidifying the understanding that new investments are unavoidable.`\
+https://www.nytimes.com/2026/08/11/business/economy/climate-change-costs-economy-businesses.html
+
+**Using A.I. to Stop the Demolition of an Old Steam Plant**\
+`Two Roosevelt Island residents used the technology to help them file a lawsuit against the city. They made sure there were no references to made-up precedents.`\
+https://www.nytimes.com/2026/08/11/nyregion/using-ai-to-stop-the-demolition-of-an-old-steam-plant.html
+
+**Can Immigration Agents Stop People Based on Appearance?**\
+`Jazmine Ulloa, our national reporter covering immigration, describes body-camera footage and other court evidence that federal agents used slurs and racially profiled people during immigration sweeps.`\
+https://www.nytimes.com/video/us/100000011079979/can-immigration-agents-stop-people-based-on-appearance.html
+
+**Spain’s Complex Ties With Morocco Fuel Speculation Over Ceuta Migrant Surge**\
+`Rumors swirled that Morocco, perhaps spurred by Israel and the United States, organized a recent border disaster. That unproven speculation, experts said, was exacerbated by the region’s complicated history.`\
+https://www.nytimes.com/2026/08/11/world/europe/spain-ceuta-morocco-migrants.html
+
+**How Social Media Sparked a Refugee Crisis Between Spain and Morocco**\
+`A wave of disinformation online contributed to a surge of migrants in the Spanish enclave of Ceuta who were trying to reach Europe, resulting in about 90 deaths.`\
+https://www.nytimes.com/2026/08/11/technology/social-media-ceuta-spain-morocco.html
+
+**Sun’s Out, U.V. Umbrellas Out**\
+`Coming soon: more sun-blocking umbrellas, everywhere.`\
+https://www.nytimes.com/2026/08/11/style/uv-umbrellas-sun-parasols.html
+
+**Why Experts No Longer Recommend the BRAT Diet for Diarrhea and Nausea**\
+`We asked experts.`\
+https://www.nytimes.com/2026/08/11/well/brat-diet-diarrhea-stomach-bug.html
+
+**Copenhagen Travel Guide: What to See, Visit and Do**\
+`From picturesque canals to cozy coffee shops, here's all you need to plan your visit to the Danish capital.`\
+https://www.nytimes.com/interactive/2026/travel/copenhagen-denmark-guide.html
+
+**How We’re Covering an ‘Identity Crisis’ in Politics**\
+`Recent primary wins have posed critical questions for both Republicans and Democrats as they head into the fall midterms. Carolyn Ryan, managing editor of The New York Times, shares how reporters approach coverage of shifting political dynamics.`\
+https://www.nytimes.com/video/insider/100000011077518/how-were-covering-an-identity-crisis-in-politics.html
+
+**5 Great American Bike Rides of 25 Miles or Less**\
+`Whether you’re looking for a soothing seaside cruise or a blood-pumping Rocky Mountain ascent, these rides are perfect for a spectacular day trip.`\
+https://www.nytimes.com/2026/08/11/travel/us-bike-rides-scenery-trails.html
+
+**Should We Trust the People Building Skyscrapers?**\
+`Life in a crowded city like New York depends on trust. Are corners being cut?`\
+https://www.nytimes.com/2026/08/11/opinion/skyscrapers-pfizer-nyc.html
+
+**What to Know About the Cuban Mafia in Quintana Roo**\
+`A group of Cuban men in Mexico was charged with smuggling people to the United States. One of its leaders said Raúl Castro’s grandson helped, according to interviews and court records.`\
+https://www.nytimes.com/2026/08/11/world/americas/cuban-mafia-quintana-roo.html
+
+**Should You Be Dating While Unemployed?**\
+`If you’re single and unemployed, it may make sense to prioritize job hunting. But that doesn’t have to mean putting your life on pause.`\
+https://www.nytimes.com/2026/08/11/business/dating-unemployed.html
+
+**This Playwright Says He’s Done With Maine. Let’s Hope Not.**\
+`John Cariani remains drawn to the state, despite having moved away years ago. A new production of his “Darker the Night, Brighter the Stars” illustrates why.`\
+https://www.nytimes.com/2026/08/11/theater/john-cariani-darker-the-night-brighter-the-stars.html
+
+**A.C. Vests and UV Parasols: East Asia Deploys Heat-Fighting Gadgets**\
+`The innovations include air-conditioned apparel, refrigerators for humans and hand-held fans that use the science behind semiconductors. Governments are making cooling devices central to heat adaptation.`\
+https://www.nytimes.com/2026/08/11/world/asia/extreme-heat-wave-korea-japan-china-cooling.html
+
+**A.I. Offers Hope for Men With Infertility, Spotting ‘Hidden’ Sperm**\
+`New technology may make it easier for men with extremely low sperm counts to have biological children.`\
+https://www.nytimes.com/2026/08/11/science/ai-infertile-men-sperm.html
+
+**The Right Loves the Founding Fathers. They Might Love the A.I. Versions Even More.**\
+`Glenn Beck and other pundits are turning figures like George Washington into supposedly infallible podcasters.`\
+https://www.nytimes.com/2026/08/11/magazine/founding-fathers-ai-podcasters.html
+
+**Ross Douthat: The Exit Interview**\
+`The Times columnist reflects on the seismic changes in media, religion and politics he’s witnessed in his career so far.`\
+https://www.nytimes.com/video/opinion/100000011066485/ross-douthat-the-exit-interview.html
+
+**The Unexpected Secret of One of Instagram’s Most Nostalgic Accounts**\
+`The Instagram account VHS Dates advertises itself as resurfacing lost dating service videotapes from the 1980s. The account’s creators came clean to our reporter, Sopan Deb.`\
+https://www.nytimes.com/video/arts/100000011063782/instagram-vhs-dates-fake-dating-1980s.html
+
+**Restaurant Review: Bistrot Ha in New York**\
+`The follow-up to the ultra-popular Ha’s Snack Bar is bigger, more ambitious and intermittently brilliant. It can both bewitch and confound.`\
+https://www.nytimes.com/2026/08/11/dining/restaurant-review-bistrot-ha-nyc.html
+
+**New Evidence Shows Agents Using Slurs, Bolstering Profiling Claims**\
+`Body-camera video and other court evidence capture federal agents using slurs and targeting Latinos while bypassing white bystanders during immigration sweeps in Chicago and Los Angeles`\
+https://www.nytimes.com/2026/08/11/us/videos-ice-agents-racial-profiling.html
+
+**Yoshita 1967 Is Making Clothing That’s an Antidote to Fast Fashion**\
+`For the founder of the Nairobi, Kenya-based label Yoshita 1967, traditional craft is personal and political.`\
+https://www.nytimes.com/2026/08/11/t-magazine/anil-padia-yoshita-1967.html
+
+**Can Nebraska’s Definitely-Not-a-Democrat Candidate Crack the G.O.P. Hold on Red America?**\
+`The Democratic brand is just too toxic in large swaths of the country.`\
+https://www.nytimes.com/2026/08/11/opinion/dan-osborn-nebraska-independent-democrats.html
+
+**Word of the Day: marginalia**\
+`This word has appeared in four articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/08/11/learning/word-of-the-day-marginalia.html
+
+**The Era of Electric Motorcycles Has Arrived in Pakistan and Beyond**\
+`People are racing out to buy them worldwide as gasoline prices stay high. The Iran war has made Trump “salesman of the year,” said one executive in Lahore.`\
+https://www.nytimes.com/2026/08/11/climate/electric-motorcycles-pakistan.html
+
+**As Credit Card Debt Mounts, Home Becomes a Piggy Bank**\
+`A rise in home equity to record levels has led many Americans to refinance their mortgages to pay their bills.`\
+https://www.nytimes.com/2026/08/11/business/home-equity-credit-card-debt.html
+
+**‘Saturday Night Live’ U.K. Stars Get a Hero’s Welcome at the Edinburgh Fringe**\
+`As comics like Ania Magliano return to the festival for the first time since the show became a surprise hit, audiences are pouring in to catch them.`\
+https://www.nytimes.com/2026/08/11/arts/saturday-night-live-edinburgh-fringe.html
+
+**Book Review: ‘Sunrise,’ by Téa Obreht**\
+`In “Sunrise,” Téa Obreht mashes up Western gothic, murder mystery and survival saga.`\
+https://www.nytimes.com/2026/08/11/books/review/sunrise-tea-obreht.html
+
+**Book Review: ‘A Tender Age,’ by Chang-rae Lee**\
+`In his new book, Chang-rae Lee follows a 10-year-old into the social powder kegs of schoolyards and summer camps.`\
+https://www.nytimes.com/2026/08/11/books/review/chang-rae-lee-tender-age.html
+
+**Book Review: ‘Under the Falls,’ by Richard Russo**\
+`In Richard Russo’s new novel, “Under the Falls,” a singer reckons with his troubled past and the community he left behind.`\
+https://www.nytimes.com/2026/08/11/books/review/richard-russo-under-the-falls.html
+
 **Musical Manuscripts Are Intimate and Transporting. See Why.**\
 `Franz Welser-Möst, the Cleveland Orchestra’s music director, takes us on a tour through the handwritten score of Mahler’s “Resurrection” Symphony.`\
 https://www.nytimes.com/2026/08/11/arts/music/mahler-manuscript-cleveland.html
@@ -65,136 +189,4 @@ https://www.nytimes.com/2026/08/11/world/europe/italy-curling-rome.html
 **France Bans Unsolicited Telemarketing Calls**\
 `Companies will no longer be allowed to advertise goods and services through cold calls without previous consent from consumers.`\
 https://www.nytimes.com/2026/08/11/world/europe/france-ban-unsolicited-telemarketing-calls.html
-
-**Californians Criticize Federal Efforts to Control the State’s Coast**\
-`Environmentalists and others warned at a hearing on Monday that the Trump administration’s attempt to strip power from California’s coastal protection agency would endanger the shoreline.`\
-https://www.nytimes.com/2026/08/10/us/california-coastal-commission-climate-trump.html
-
-**NYT Crossword Answers for July 11, 2026**\
-`Wade Bednar makes his New York Times Crossword debut.`\
-https://www.nytimes.com/2026/08/10/crosswords/daily-puzzle-2026-08-11.html
-
-**Rabbis Plead With Mamdani to Tone Down His Anti-Israel Messaging**\
-`In a private meeting at City Hall, an invited group of rabbis told Mayor Zohran Mamdani that his relationship with Jewish New Yorkers needed to change.`\
-https://www.nytimes.com/2026/08/10/nyregion/mamdani-rabbis-meeting.html
-
-**Trump Said to Have Secretly Used Military Jet to Leave Turkey Amid Threats**\
-`President Trump hid in an airport catering container and was taken to a military jet for a secret flight out of country after the NATO summit last month.`\
-https://www.nytimes.com/2026/08/10/us/politics/trump-plane-ruse.html
-
-**Powerful 7.4 Earthquake Rattles Colombia, Killing More Than 100**\
-`A 7.4 magnitude earthquake struck western Colombia on Monday, killing more than 100 people and damaging more than 1,500 residential buildings, according to Colombia’s president, Abelardo De La Espriella.`\
-https://www.nytimes.com/video/world/americas/100000011082948/colombia-cali-earthquake-deaths-damage.html
-
-**North Carolina G.O.P. Picks Replacement for Candidate Plagued by Scandal**\
-`Representative Chuck Edwards dropped his re-election bid amid sexual harassment allegations. His replacement, Jennifer Balkcom, has about 80 days to campaign.`\
-https://www.nytimes.com/2026/08/10/us/chuck-edwards-replacement-north-carolina.html
-
-**Un vuelo fue cancelado en Canadá después de que un niño se negó a sentarse**\
-`No estaba claro cuántos pasajeros se vieron afectados, pero pudieron tomar otro vuelo el día siguiente.`\
-https://www.nytimes.com/es/2026/08/10/espanol/vuelo-cancelado-canada-nino.html
-
-**He Says Obscene Things About Mothers and Children. Mike Johnson Is Raising Money for Him.**\
-`Thanks to Trump, G.O.P. extremism has become so ordinary that it breaks through only when it reaches an absurdly high level.`\
-https://www.nytimes.com/2026/08/10/opinion/brandon-herrera-republicans.html
-
-**Por qué el vestido camisero es tendencia de moda**\
-`Exploramos la historia y el éxito de una prenda versátil.`\
-https://www.nytimes.com/es/2026/08/10/espanol/estilos-de-vida/vestido-camisero-tendencia-moda.html
-
-**Fact-Checking Trump’s Claims About Childhood Vaccines After Executive Order**\
-`Mr. Trump signed an executive order on Monday calling to scale back the number of vaccinations American children receive.`\
-https://www.nytimes.com/2026/08/10/well/trump-vaccines-fact-check.html
-
-**Wall St. Wants Another Half-Trillion Dollars for the A.I. Boom**\
-`Six giant investment firms announced a $500 billion effort to raise money for customers of Nvidia to pay for computing power.`\
-https://www.nytimes.com/2026/08/10/business/ai-nvidia-lenders-500-billion.html
-
-**Man in Custody Over Bomb Threat at U.S. Consulate in Nova Scotia**\
-`A propane tank and several containers of what were believed to be flammable liquids were found inside the man’s vehicle in a nearby parking garage, the police in Halifax said.`\
-https://www.nytimes.com/2026/08/10/world/americas/halifax-canada-bomb-threat-us-consulate.html
-
-**Here Is Where Colombia’s Quake Hit Hardest**\
-`A line of cities near the epicenter sustained major damage, images show. The Colombian capital appeared largely spared.`\
-https://www.nytimes.com/2026/08/10/world/americas/colombia-quake-maps.html
-
-**Ucrania lanza contra Rusia uno de los ataques con drones más mortíferos de la guerra**\
-`Al menos 13 personas murieron y otras 39 resultaron heridas en la ofensiva, durante la cual fueron alcanzados centros industriales y civiles.`\
-https://www.nytimes.com/es/2026/08/10/espanol/mundo/ucrania-ataca-rusia.html
-
-**Trump Stokes Islamophobia by Calling Democratic Candidates ‘Jihadists’**\
-`Along with his comments about Muslim candidates, Mr. Trump spoke disparagingly of Somalis in the United States, saying “they’re not smart.”`\
-https://www.nytimes.com/2026/08/10/us/politics/trump-democrats-somalis-jihadists-muslim.html
-
-**Barack Obama to Host New Podcast, ‘A Great Book’**\
-`The former president will discuss works by James Baldwin, Toni Morrison and Marilynne Robinson, among others, in a podcast that will premiere in September.`\
-https://www.nytimes.com/2026/08/10/arts/obama-books-podcast.html
-
-**Un terremoto de magnitud 7,4 deja al menos 111 muertos en Colombia**\
-`Mientras equipos de rescate y vecinos buscaban sobrevivientes, era probable que la cifra de muertos aumentara. Más de 1500 viviendas resultaron dañadas, dijo el presidente.`\
-https://www.nytimes.com/es/2026/08/10/espanol/america-latina/terremoto-colombia.html
-
-**Captain Charged in N.Y.C. Accident That Killed Mother and Daughter**\
-`Manuel Hernandez knew there were no life vests for children when he allowed an infant on board, according to a federal complaint. The child and her mother died in the accident.`\
-https://www.nytimes.com/2026/08/10/nyregion/nyc-boat-federal-charges.html
-
-**Dos hermanos venezolanos sobreviven a otro terremoto, esta vez en Colombia**\
-`Tras perder a tres familiares en junio, los adolescentes acababan de comenzar una nueva vida junto a su padre cuando la tierra volvió a temblar.`\
-https://www.nytimes.com/es/2026/08/10/espanol/america-latina/terremoto-colombia-venezuela-sobrevivientes.html
-
-**Judge Grants Justice Dept. Request to Dismiss Case Against Indian Tycoon**\
-`U.S. prosecutors were pursuing charges against Gautam Adani, India’s richest man, until the Trump Justice Department moved to drop the case against him.`\
-https://www.nytimes.com/2026/08/10/nyregion/adani-fraud-case-dismissed-trump-administration.html
-
-**Yabloko, Russian Antiwar Party, Is Banned From Parliament Elections**\
-`The party, Yabloko, has navigated a delicate balancing act with an increasingly heavy-handed Kremlin, but its pro-peace manifesto turned out to be the red line.`\
-https://www.nytimes.com/2026/08/10/world/europe/russia-yabloko-party-ban-parliament.html
-
-**Temperatura en Europa: dónde hará calor en los próximos días**\
-`Pronóstico de altas temperaturas para el jueves.`\
-https://www.nytimes.com/es/interactive/2026/08/10/espanol/ola-calor-europa-pronostico.html
-
-**El nuevo presidente de Colombia enfrenta su primera gran prueba**\
-`El nuevo presidente nunca había ocupado un cargo público hasta su toma de posesión el viernes. Ahora, está al frente de una importante respuesta a un desastre.`\
-https://www.nytimes.com/es/2026/08/10/espanol/america-latina/colombia-terremoto-abelardo-espriella.html
-
-**Workers Complain of Mold and Bugs at Airline Catering Facility Serving LAX Airport**\
-`Employees of Flying Food Group, a major provider of airline meals, said they saw maggots, cockroaches and flies at a branch serving Los Angeles International Airport.`\
-https://www.nytimes.com/2026/08/10/travel/airline-meals-bugs-mold-los-angeles.html
-
-**The Evening: An Earthquake Shakes Colombia**\
-`Plus, Trump calls for fewer childhood vaccines. Here’s the latest at the end of Monday.`\
-https://www.nytimes.com/2026/08/10/briefing/colombia-earthquake-vaccines.html
-
-**Turkey Moves to Advance Peace Process With P.K.K.**\
-`The government adopted a law that might prove a significant step toward ending an outlawed group’s decades-long battle with the Turkish state.`\
-https://www.nytimes.com/2026/08/10/world/europe/turkey-law-pkk-peace-framework.html
-
-**Judge’s Ruling on Second-Home Tax Deals Temporary Setback to Mamdani**\
-`A judge sided with homeowners who had sued New York City and argued that the introduction of the tax was mishandled. The city moved to appeal, meaning the rollout can proceed.`\
-https://www.nytimes.com/2026/08/10/nyregion/mamdani-second-home-tax-ruling-nyc.html
-
-**Wisconsin’s Roller Coaster of a Democratic Primary Race for Governor Crashes to an End**\
-`Democrats appear likely to nominate a democratic socialist for governor. How did they get here?`\
-https://www.nytimes.com/2026/08/10/us/politics/francesca-hong-wisconsin-democratic-primary.html
-
-**Homeland Security Intensifies Pursuit of Noncitizens on Voter Rolls**\
-`Immigrants who said they inadvertently registered to vote while obtaining or renewing driver’s licenses are increasingly facing deportation under the Trump administration.`\
-https://www.nytimes.com/2026/08/10/us/politics/noncitizens-vote-crackdown.html
-
-**Trump Wants to Move On From the Middle East. It’s Not Letting Him.**\
-`President Trump is eager to declare success in Iran and Gaza, but he is struggling to impose his will in either conflict.`\
-https://www.nytimes.com/2026/08/10/us/politics/trump-new-strategy-middle-east.html
-
-**Colombia Quake Chases Teenage Venezuelan Brothers From Their New Home**\
-`A pair of brothers who lost their mother and other family members in Venezuela and were profiled by The New York Times have now survived deadly quakes in two countries.`\
-https://www.nytimes.com/2026/08/10/world/americas/colombia-earthquake-venezuela-brothers.html
-
-**Takeaways From Jason Arday’s Memoir**\
-`The British scholar resigned from Cambridge after the university, which made him its youngest Black professor in 2023, began investigating his academic qualifications.`\
-https://www.nytimes.com/2026/08/10/books/review/jason-arday-memoir-takeaways.html
-
-**Major Quake Hits Colombia, Killing at Least 111**\
-`Rescue crews and regular people searched for survivors, and the death toll was likely to rise. More than 1,500 homes were damaged, the president said.`\
-https://www.nytimes.com/2026/08/10/world/americas/earthquake-colombia-cali.html
 

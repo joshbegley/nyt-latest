@@ -1,3 +1,27 @@
+**Musical Manuscripts Are Intimate and Transporting. See Why.**\
+`Franz Welser-Möst, the Cleveland Orchestra’s music director, takes us on a tour through the handwritten score of Mahler’s “Resurrection” Symphony.`\
+https://www.nytimes.com/2026/08/11/arts/music/mahler-manuscript-cleveland.html
+
+**How Raúl Castro’s Grandson, Raúl G. Rodríguez Castro, Became a Power Broker**\
+`The Castro family envoy, Raúl G. Rodríguez Castro, who has been in talks with the Trump administration, was once named in a case targeting a Cuban smuggling ring.`\
+https://www.nytimes.com/2026/08/11/world/americas/raul-castro-trump-cuba.html
+
+**How the Bayeux Tapestry Got to the British Museum**\
+`French art experts insisted the fragile 900-year-old masterpiece could never travel. Political will, cutting-edge engineering and unorthodox diplomacy proved them wrong.`\
+https://www.nytimes.com/2026/08/11/arts/design/bayeux-tapestry-british-museum.html
+
+**The Perseids Meteor Shower Is Peaking. Here’s How to Watch.**\
+`The Perseids will be most active on Wednesday into Thursday morning, on the moonless night after a total solar eclipse.`\
+https://www.nytimes.com/2026/08/11/science/perseids-meteor-shower.html
+
+**A Syrian Holdout Province, Sweida, Fears a Government Takeover**\
+`In Sweida Province, dominated by the country’s Druse minority, many say it is just a matter of time before the central government moves to assert control over the region.`\
+https://www.nytimes.com/2026/08/11/world/middleeast/syria-sweida-province-druse-government.html
+
+**Should Letting Children Play Alone Outside Be a Crime?**\
+`Some parents have been surprised to find themselves in the legal system’s cross hairs.`\
+https://www.nytimes.com/2026/08/11/well/family/children-safety-independence-laws.html
+
 **What We Know About the Earthquake in Colombia**\
 `The 7.4-magnitude quake, which killed more than 100 people and damaged hundreds of buildings, was the strongest recorded in Colombia in a decade.`\
 https://www.nytimes.com/2026/08/11/world/americas/colombia-earthquake-cali-medellin-deaths.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/08/10/books/review/jason-arday-memoir-takeaways.htm
 **Major Quake Hits Colombia, Killing at Least 111**\
 `Rescue crews and regular people searched for survivors, and the death toll was likely to rise. More than 1,500 homes were damaged, the president said.`\
 https://www.nytimes.com/2026/08/10/world/americas/earthquake-colombia-cali.html
-
-**Journalism and Paywalls**\
-`An increasingly hostile environment for independent reporting in the United States and elsewhere has made our job harder, and more expensive.`\
-https://www.nytimes.com/2026/08/10/world/journalism-us-colombia-quake.html
-
-**Fotos del terremoto en Colombia**\
-`El temblor más potente en una década sacudió una región de la costa del Pacífico y causó la muerte de más de 100 personas.`\
-https://www.nytimes.com/es/2026/08/10/espanol/america-latina/fotos-colombia-terremoto.html
-
-**How a Counterintelligence Inquiry Into Trump’s Russia Ties Was Derailed**\
-`Documents released by the White House shed new light on the demise of an often-overlooked 2017 F.B.I. investigation.`\
-https://www.nytimes.com/2026/08/10/us/politics/trump-memos-russia-investigation.html
-
-**D.C.-Area Airport to Close for 3 Hours for Grand Prix Event**\
-`The Federal Aviation Administration has imposed other closures at Reagan National Airport over events for the 250th anniversary of the nation’s founding.`\
-https://www.nytimes.com/2026/08/10/us/politics/reagan-airport-closure-grand-prix.html
-
-**Taiwan Tested How It Might Cope if China Disrupted Its Communications**\
-`Mobile data was deliberately throttled across central Taiwan for half an hour on Monday as a part of Taiwan’s annual civil defense exercise that prepares citizens in the event of a Chinese invasion.`\
-https://www.nytimes.com/video/world/asia/100000011083141/taiwan-china-internet-defense-test.html
-
-**‘Americans Vote for Boyfriends, Not Candidates’**\
-`“Americans vote for boyfriends, not candidates,” Michelle Cottle says. Why have Democrats forgotten the importance of political performance — something that goes back as far as Abraham Lincoln?`\
-https://www.nytimes.com/video/opinion/100000011077978/americans-vote-for-boyfriends-not-candidates.html
 

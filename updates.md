@@ -1,3 +1,27 @@
+**Musical Manuscripts Are Intimate and Transporting. See Why.**\
+`Franz Welser-Möst, the Cleveland Orchestra’s music director, takes us on a tour through the handwritten score of Mahler’s “Resurrection” Symphony.`\
+https://www.nytimes.com/2026/08/11/arts/music/mahler-manuscript-cleveland.html
+
+**How Raúl Castro’s Grandson, Raúl G. Rodríguez Castro, Became a Power Broker**\
+`The Castro family envoy, Raúl G. Rodríguez Castro, who has been in talks with the Trump administration, was once named in a case targeting a Cuban smuggling ring.`\
+https://www.nytimes.com/2026/08/11/world/americas/raul-castro-trump-cuba.html
+
+**How the Bayeux Tapestry Got to the British Museum**\
+`French art experts insisted the fragile 900-year-old masterpiece could never travel. Political will, cutting-edge engineering and unorthodox diplomacy proved them wrong.`\
+https://www.nytimes.com/2026/08/11/arts/design/bayeux-tapestry-british-museum.html
+
+**The Perseids Meteor Shower Is Peaking. Here’s How to Watch.**\
+`The Perseids will be most active on Wednesday into Thursday morning, on the moonless night after a total solar eclipse.`\
+https://www.nytimes.com/2026/08/11/science/perseids-meteor-shower.html
+
+**A Syrian Holdout Province, Sweida, Fears a Government Takeover**\
+`In Sweida Province, dominated by the country’s Druse minority, many say it is just a matter of time before the central government moves to assert control over the region.`\
+https://www.nytimes.com/2026/08/11/world/middleeast/syria-sweida-province-druse-government.html
+
+**Should Letting Children Play Alone Outside Be a Crime?**\
+`Some parents have been surprised to find themselves in the legal system’s cross hairs.`\
+https://www.nytimes.com/2026/08/11/well/family/children-safety-independence-laws.html
+
 **What We Know About the Earthquake in Colombia**\
 `The 7.4-magnitude quake, which killed more than 100 people and damaged hundreds of buildings, was the strongest recorded in Colombia in a decade.`\
 https://www.nytimes.com/2026/08/11/world/americas/colombia-earthquake-cali-medellin-deaths.html
