@@ -1,3 +1,11 @@
+**Today, In Short**\
+`“Hobbyamory.” Shania Twain. And puppets.`\
+https://www.nytimes.com/2026/08/11/briefing/today-in-short.html
+
+**Silent Films Are Back, at Least for One Night**\
+`At the Modern Silent Shorts festival, moviegoers saw an old cinematic form brought back to life with seven brand-new films.`\
+https://www.nytimes.com/2026/08/11/style/for-one-night-at-least-silent-films-are-back.html
+
 **Four Killed in Houthi Strike on Red Sea Ship, Yemeni Government Says**\
 `The Yemeni government said the ship was carrying food supplies to a port on the Bab al-Mandab Strait. The Iran-backed Houthis have not commented on the attack.`\
 https://www.nytimes.com/2026/08/11/world/middleeast/deadly-houthi-strike-red-sea.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/interactive/2026/08/11/us/elections/results-alabama-us-h
 **Connecticut Lieutenant Governor Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Connecticut primary election.`\
 https://www.nytimes.com/interactive/2026/08/11/us/elections/results-connecticut-lieutenant-governor-primary.html
-
-**Alabama Sixth Congressional District Special Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Alabama special primary election.`\
-https://www.nytimes.com/interactive/2026/08/11/us/elections/results-alabama-us-house-6-special-primary.html
-
-**Connecticut Third Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Connecticut primary election.`\
-https://www.nytimes.com/interactive/2026/08/11/us/elections/results-connecticut-us-house-3-primary.html
 
