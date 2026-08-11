@@ -1,3 +1,7 @@
+**Rabbis Plead With Mamdani to Tone Down His Anti-Israel Messaging**\
+`In a private meeting at City Hall, an invited group of rabbis told Mayor Zohran Mamdani that his relationship with Jewish New Yorkers needed to change.`\
+https://www.nytimes.com/2026/08/10/nyregion/mamdani-rabbis-meeting.html
+
 **An Elaborate Ruse: Trump Secretly Used Military Jet to Leave Turkey Amid Threats**\
 `President Trump hid in an airport catering cart and was taken to a military jet for a secret flight out of country after the NATO summit last month.`\
 https://www.nytimes.com/2026/08/10/us/politics/trump-plane-ruse.html

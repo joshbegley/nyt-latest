@@ -1,3 +1,7 @@
+**Rabbis Plead With Mamdani to Tone Down His Anti-Israel Messaging**\
+`In a private meeting at City Hall, an invited group of rabbis told Mayor Zohran Mamdani that his relationship with Jewish New Yorkers needed to change.`\
+https://www.nytimes.com/2026/08/10/nyregion/mamdani-rabbis-meeting.html
+
 **He Says Obscene Things About Mothers and Children. Mike Johnson Is Raising Money for Him.**\
 `Thanks to Trump, G.O.P. extremism has become so ordinary that it breaks through only when it reaches an absurdly high level.`\
 https://www.nytimes.com/2026/08/10/opinion/brandon-herrera-republicans.html
