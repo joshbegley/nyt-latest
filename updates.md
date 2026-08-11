@@ -1,3 +1,7 @@
+**Californians Criticize Federal Efforts to Control the State’s Coast**\
+`Environmentalists and others warned at a hearing on Monday that the Trump administration’s attempt to strip power from California’s coastal protection agency would endanger the shoreline.`\
+https://www.nytimes.com/2026/08/10/us/california-coastal-commission-climate-trump.html
+
 **NYT Crossword Answers for July 11, 2026**\
 `Wade Bednar makes his New York Times Crossword debut.`\
 https://www.nytimes.com/2026/08/10/crosswords/daily-puzzle-2026-08-11.html
