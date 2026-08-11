@@ -1,3 +1,11 @@
+**Election Live Updates: Primaries in Six States Pose Tests for Progressives and Trump**\
+`Democratic contests in Minnesota and Wisconsin pit moderates against progressives, while a special primary in South Carolina over the late Lindsey Graham’s Senate seat could be headed to a runoff.`\
+https://www.nytimes.com/live/2026/08/11/us/elections-south-carolina-wisconsin
+
+**Richard Lingeman, Cultural Historian and Biographer, Dies at 95**\
+`He spent decades as a magazine editor and wrote an acclaimed history of small-town America, as well as biographies of the novelists Theodore Dreiser and Sinclair Lewis.`\
+https://www.nytimes.com/2026/08/11/books/richard-lingeman-dead.html
+
 **Human-Shaped Robots at This Car Factory Can Perform Humanlike Tasks**\
 `Humanoids — human-shaped robots — at this BMW factory in South Carolina are expected to respond to voice commands, solve problems and react to unforeseen events. U.S. automakers hope that this technology can give them a fighting chance against their Chinese rivals that enjoy lower costs.`\
 https://www.nytimes.com/video/business/economy/100000011085557/humanoid-robots-bmw-car-factory.html

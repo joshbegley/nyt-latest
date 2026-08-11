@@ -22,7 +22,7 @@ https://www.nytimes.com/2026/08/11/dining/fashion-designer-rachel-antonoff.html
 `Documentos publicados por la Casa Blanca arrojan luz sobre una indagatoria poco conocida en torno a la campaña presidencial de 2016 de Trump.`\
 https://www.nytimes.com/es/2026/08/11/espanol/estados-unidos/trump-rusia-eleccion-presidencial.html
 
-**How Abdul El-Sayed Can Win Michigan**\
+**El-Sayed’s Winning Path in Michigan**\
 `A swing-state Democratic Senate nominee needs to keep saying this: Jews have a right to a Jewish homeland.`\
 https://www.nytimes.com/2026/08/11/opinion/abdul-el-sayed-michigan-jews-israel-mamdani-aipac.html
 
