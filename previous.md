@@ -1,3 +1,7 @@
+**Mamdani to Abandon Plan to Replace Elizabeth Street Garden With Housing**\
+`After more than a decade, the fight over an effort to build affordable housing on the site of a community garden in Manhattan is winding down.`\
+https://www.nytimes.com/2026/08/11/nyregion/mamdani-elizabeth-street-garden-housing.html
+
 **Cómo ver el punto máximo de la lluvia de las Perseidas**\
 `La lluvia de meteoros más intensa del verano estará en su punto máximo desde el miércoles hasta la mañana del jueves, en una noche sin luna tras un eclipse solar total.`\
 https://www.nytimes.com/es/2026/08/11/espanol/ciencia-y-tecnologia/como-ver-las-perseidas-lluvia-meteoros.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/08/11/us/elections/results-minnesota-us
 **Minnesota Attorney General Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Minnesota primary election.`\
 https://www.nytimes.com/interactive/2026/08/11/us/elections/results-minnesota-attorney-general-primary.html
-
-**Minnesota U.S. Senate Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Minnesota primary election.`\
-https://www.nytimes.com/interactive/2026/08/11/us/elections/results-minnesota-us-senate-primary.html
 
