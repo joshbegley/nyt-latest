@@ -1,3 +1,7 @@
+**5 Things to Know About Mark Sanford, Republican Senate Candidate in South Carolina**\
+`The former governor and congressman is a staunch fiscal conservative who repeatedly broke with President Trump on government spending, among other issues.`\
+https://www.nytimes.com/2026/08/11/us/politics/mark-sanford-south-carolina-senate-candidate.html
+
 **Judge Awards $250,000 to Musician Who Fled Trump-Led Kennedy Center Gig**\
 `The center had sued Chuck Redd when he canceled a free concert last year, citing the addition of the Trump name to the venue. But a judge dismissed the case.`\
 https://www.nytimes.com/2026/08/11/arts/music/chuck-redd-kennedy-center.html
