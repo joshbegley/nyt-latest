@@ -1,3 +1,7 @@
+**Cómo ver el punto máximo de la lluvia de las Perseidas**\
+`La lluvia de meteoros más intensa del verano estará en su punto máximo desde el miércoles hasta la mañana del jueves, en una noche sin luna tras un eclipse solar total.`\
+https://www.nytimes.com/es/2026/08/11/espanol/ciencia-y-tecnologia/como-ver-las-perseidas-lluvia-meteoros.html
+
 **Ex-Marine Robert Gilman Is Freed by Russia After 4 Years in Prison**\
 `The Kremlin released Robert Gilman, whose family and an advocacy group had said he was in dire physical condition, on “a humanitarian basis,” President Trump said.`\
 https://www.nytimes.com/2026/08/11/world/europe/russia-robert-gilman-release.html
