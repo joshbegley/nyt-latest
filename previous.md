@@ -1,3 +1,7 @@
+**NYT Crossword Answers for July 11, 2026**\
+`Wade Bednar makes his New York Times Crossword debut.`\
+https://www.nytimes.com/2026/08/10/crosswords/daily-puzzle-2026-08-11.html
+
 **Rabbis Plead With Mamdani to Tone Down His Anti-Israel Messaging**\
 `In a private meeting at City Hall, an invited group of rabbis told Mayor Zohran Mamdani that his relationship with Jewish New Yorkers needed to change.`\
 https://www.nytimes.com/2026/08/10/nyregion/mamdani-rabbis-meeting.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/10/us/politics/hegseth-base-lindsey-graham.html
 **The Teenager Chasing Solar Eclipse Totality**\
 `A 17-year-old photographer, who goes by V, traveled from the United States to Spain to witness Wednesday’s total solar eclipse. He became “obsessed” with the cosmic events after seeing one two years ago.`\
 https://www.nytimes.com/video/world/europe/100000011069592/total-solar-eclipse-mallorca.html
-
-**Europa se prepara para una nueva ola de calor**\
-`Se espera que las temperaturas más extremas se presenten inicialmente en partes de Francia, España e Italia antes de desplazarse hacia Europa central.`\
-https://www.nytimes.com/es/2026/08/10/espanol/tiempo-y-clima/europa-espana-ola-calor-mapas.html
 

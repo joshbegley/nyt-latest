@@ -1,3 +1,7 @@
+**NYT Crossword Answers for July 11, 2026**\
+`Wade Bednar makes his New York Times Crossword debut.`\
+https://www.nytimes.com/2026/08/10/crosswords/daily-puzzle-2026-08-11.html
+
 **Rabbis Plead With Mamdani to Tone Down His Anti-Israel Messaging**\
 `In a private meeting at City Hall, an invited group of rabbis told Mayor Zohran Mamdani that his relationship with Jewish New Yorkers needed to change.`\
 https://www.nytimes.com/2026/08/10/nyregion/mamdani-rabbis-meeting.html
