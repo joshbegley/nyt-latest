@@ -1,3 +1,15 @@
+**Quote of the Day: Red Chile Capital of Pakistan is Wilting Under the Heat**\
+`Quotation of the Day for Monday, August 11, 2026.`\
+https://www.nytimes.com/2026/08/11/pageoneplus/quote-of-the-day-red-chile-capital-of-pakistan-is-wilting-under-the-heat.html
+
+**In a Sweltering Summer, These Italians Want Romans to Curl**\
+`By setting up a curling rink in the shadow of the Colosseum, sports officials hope to capitalize on the fresh popularity of the Winter Olympics phenomenon. Even in a heat wave and without any ice.`\
+https://www.nytimes.com/2026/08/11/world/europe/italy-curling-rome.html
+
+**France Bans Unsolicited Telemarketing Calls**\
+`Companies will no longer be allowed to advertise goods and services through cold calls without previous consent from consumers.`\
+https://www.nytimes.com/2026/08/11/world/europe/france-ban-unsolicited-telemarketing-calls.html
+
 **Californians Criticize Federal Efforts to Control the State’s Coast**\
 `Environmentalists and others warned at a hearing on Monday that the Trump administration’s attempt to strip power from California’s coastal protection agency would endanger the shoreline.`\
 https://www.nytimes.com/2026/08/10/us/california-coastal-commission-climate-trump.html
@@ -11,7 +23,7 @@ https://www.nytimes.com/2026/08/10/crosswords/daily-puzzle-2026-08-11.html
 https://www.nytimes.com/2026/08/10/nyregion/mamdani-rabbis-meeting.html
 
 **Trump Said to Have Secretly Used Military Jet to Leave Turkey Amid Threats**\
-`President Trump hid in an airport catering cart and was taken to a military jet for a secret flight out of country after the NATO summit last month.`\
+`President Trump hid in an airport catering container and was taken to a military jet for a secret flight out of country after the NATO summit last month.`\
 https://www.nytimes.com/2026/08/10/us/politics/trump-plane-ruse.html
 
 **Powerful 7.4 Earthquake Rattles Colombia, Killing More Than 100**\
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/08/10/arts/design/national-gallery-art-doge-trump-c
 **Trump Signs Executive Order Calling for Fewer Childhood Vaccines**\
 `It is not clear whether the order, the president’s third to address the topic in less than a year, has any legal power.`\
 https://www.nytimes.com/2026/08/10/well/trump-vaccines-executive-order.html
-
-**Police Spray Student Protesters in India With Water Cannons and Tear Gas**\
-`Thousands of youth protesters in the eastern state of Jharkhand faced police batons, tear gas, barricades and water cannons as they demanded an investigation into irregularities in the civil service exams.`\
-https://www.nytimes.com/video/world/asia/100000011082858/india-police-students-protests-jharkhand-state.html
-
-**Sean MacPherson’s New Restaurant Opens at the ‘End of the World’**\
-`After 25 years, the hotelier Sean MacPherson finally got to open his Lighthouse Café amid Montauk’s 80 mile per hour winds and a boatload of logistics.`\
-https://www.nytimes.com/2026/08/10/dining/sean-macpherson-montauk-lighthouse-cafe.html
-
-**Hegseth Renames Base for Lindsey Graham**\
-`Joint Base Charleston will now be known as Joint Base Lindsey Graham. The senator served as a judge advocate general before retiring as a colonel in 2015.`\
-https://www.nytimes.com/2026/08/10/us/politics/hegseth-base-lindsey-graham.html
 
