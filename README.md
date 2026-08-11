@@ -1,3 +1,19 @@
+**Powerful 7.4 Earthquake Rattles Colombia, Killing More Than 100**\
+`A 7.4 magnitude earthquake struck western Colombia on Monday, killing more than 100 people and damaging more than 1,500 residential buildings, according to Colombia’s president, Abelardo De La Espriella.`\
+https://www.nytimes.com/video/world/americas/100000011082948/colombia-cali-earthquake-deaths-damage.html
+
+**North Carolina G.O.P. Picks Replacement for Candidate Plagued by Scandal**\
+`Representative Chuck Edwards dropped his re-election bid amid sexual harassment allegations. His replacement, Jennifer Balkcom, has about 80 days to campaign.`\
+https://www.nytimes.com/2026/08/10/us/chuck-edwards-replacement-north-carolina.html
+
+**Un vuelo fue cancelado en Canadá después de que un niño se negó a sentarse**\
+`No estaba claro cuántos pasajeros se vieron afectados, pero pudieron tomar otro vuelo el día siguiente.`\
+https://www.nytimes.com/es/2026/08/10/espanol/vuelo-cancelado-canada-nino.html
+
+**He Fired a Nazi Gun and Joked About Killing Old People. Republicans Don’t Seem Concerned.**\
+`Thanks to Trump, G.O.P. extremism has become so ordinary that it breaks through only when it reaches an absurdly high level.`\
+https://www.nytimes.com/2026/08/10/opinion/brandon-herrera-republicans.html
+
 **Por qué el vestido camisero es tendencia de moda**\
 `Exploramos la historia y el éxito de una prenda versátil.`\
 https://www.nytimes.com/es/2026/08/10/espanol/estilos-de-vida/vestido-camisero-tendencia-moda.html
@@ -177,20 +193,4 @@ https://www.nytimes.com/es/2026/08/10/espanol/tiempo-y-clima/europa-espana-ola-c
 **A Canadian Politician’s A.I. Faux Pas**\
 `The “Hard Fork” co-hosts Kevin Roose and Casey Newton react to a video of Bill Oliver, who included an A.I. prompt in a speech he delivered to the New Brunswick Legislature.`\
 https://www.nytimes.com/video/podcasts/100000011083158/a-canadian-politicians-ai-faux-pas.html
-
-**Top Science Body Deletes Climate Chapter From Judges’ Manual**\
-`The National Academies of Sciences, Engineering and Medicine had been under pressure from Republican leaders, including President Trump.`\
-https://www.nytimes.com/2026/08/10/climate/national-academies-climate-chapter-judges.html
-
-**The Subway Is Sweltering. Is There a Way to Put That Heat to Good Use?**\
-`Mayor Zohran Mamdani and state transit officials announced a plan to study a heat-capture system that could cool a notoriously hot train station and help heat city buildings in the winter.`\
-https://www.nytimes.com/2026/08/10/nyregion/subway-mamdani-mta-heat-geothermal.html
-
-**A Nighttime New York Boat Tour Turned Deadly in a Matter of Moments**\
-`Investigators are focusing on the tour operator and the captain of the boat that capsized in New York Bay on Saturday, killing a mother and her infant daughter.`\
-https://www.nytimes.com/2026/08/10/nyregion/nyc-boat-deadly-capsize.html
-
-**One Year Later, Trump’s ‘Takeover’ Has Changed D.C. Is It Better Off?**\
-`The deployment of National Guard troops and federal agents into the streets has been expensive. How effective it has been is debatable.`\
-https://www.nytimes.com/2026/08/10/us/national-guard-washington-dc.html
 
