@@ -1,3 +1,11 @@
+**Democrats Accuse Trump Administration of Stonewalling Major Transit Projects**\
+`Congressional Democrats express concern that the delays involve “political considerations.”`\
+https://www.nytimes.com/2026/08/11/upshot/democrats-trump-frozen-transit-funds.html
+
+**Deported From the U.S., Trapped in a Prison in Africa**\
+`Roberto Mosquera, a Cuban immigrant who has lived in the United States since 1980 and completed a prison sentence in 1996, was arrested by ICE last year and sent to a prison in Eswatini, a country in Africa he’d never heard of. After a hunger strike, Mosquera obtained a phone and talked with Nicholas Casey of The New York Times Magazine to share what is happening there.`\
+https://www.nytimes.com/video/world/africa/100000011032450/deported-from-the-us-trapped-in-a-prison-in-africa.html
+
 **Restaurant Review: Bar Susanne in New York**\
 `At Bar Susanne in Williamsburg, the chef Jackie Carnesi is bucking expectations with her seafood and raw bar menu — but the French fries are still outstanding.`\
 https://www.nytimes.com/2026/08/11/dining/restaurant-review-bar-susanne-nyc.html
