@@ -1,3 +1,11 @@
+**Cómo el nieto de Raúl Castro pasó de guardaespaldas a figura clave del poder**\
+`El enviado de la familia Castro, quien ha mantenido conversaciones con el gobierno de Trump, fue mencionado en su momento en un caso contra una red de contrabando cubana.`\
+https://www.nytimes.com/es/2026/08/11/espanol/america-latina/cuba-castro-mafia.html
+
+**Heat, Fire, Smoke and Storms Are Wreaking Havoc on the Economy**\
+`Repeated heat waves, wildfires, droughts and storms are solidifying the understanding that new investments are unavoidable.`\
+https://www.nytimes.com/2026/08/11/business/economy/climate-change-costs-economy-businesses.html
+
 **Lincoln Center’s Orchestra Makes Creative Programming Look Easy**\
 `Jonathon Heyward, who leads the Festival Orchestra of Lincoln Center, conducted two concerts that put new music in conversation with classics.`\
 https://www.nytimes.com/2026/08/11/arts/music/festival-orchestra-of-lincoln-center-review.html

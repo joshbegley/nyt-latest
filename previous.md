@@ -1,3 +1,7 @@
+**Cómo el nieto de Raúl Castro pasó de guardaespaldas a figura clave del poder**\
+`El enviado de la familia Castro, quien ha mantenido conversaciones con el gobierno de Trump, fue mencionado en su momento en un caso contra una red de contrabando cubana.`\
+https://www.nytimes.com/es/2026/08/11/espanol/america-latina/cuba-castro-mafia.html
+
 **Lincoln Center’s Orchestra Makes Creative Programming Look Easy**\
 `Jonathon Heyward, who leads the Festival Orchestra of Lincoln Center, conducted two concerts that put new music in conversation with classics.`\
 https://www.nytimes.com/2026/08/11/arts/music/festival-orchestra-of-lincoln-center-review.html
@@ -134,7 +138,7 @@ https://www.nytimes.com/2026/08/11/pageoneplus/corrections-aug-11-2026.html
 `The party’s congressional campaign arm added Mr. Miller’s opponent, Brian Poindexter, to its highly competitive “Red to Blue” list.`\
 https://www.nytimes.com/2026/08/11/us/politics/democrats-max-miller-ohio-abuse-accusations.html
 
-**In a Summer of Climate Misery, Businesses Confront the Need to Adapt**\
+**Heat, Fire, Smoke and Storms Are Wreaking Havoc on the Economy**\
 `Repeated heat waves, wildfires, droughts and storms are solidifying the understanding that new investments are unavoidable.`\
 https://www.nytimes.com/2026/08/11/business/economy/climate-change-costs-economy-businesses.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/11/business/dating-unemployed.html
 **This Playwright Says He’s Done With Maine. Let’s Hope Not.**\
 `John Cariani remains drawn to the state, despite having moved away years ago. A new production of his “Darker the Night, Brighter the Stars” illustrates why.`\
 https://www.nytimes.com/2026/08/11/theater/john-cariani-darker-the-night-brighter-the-stars.html
-
-**A.C. Vests and UV Parasols: East Asia Deploys Heat-Fighting Gadgets**\
-`The innovations include air-conditioned apparel, refrigerators for humans and hand-held fans that use the science behind semiconductors. Governments are making cooling devices central to heat adaptation.`\
-https://www.nytimes.com/2026/08/11/world/asia/extreme-heat-wave-korea-japan-china-cooling.html
 
