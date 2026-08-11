@@ -1,3 +1,11 @@
+**They Accused a Brooklyn Doctor of Abuse. He Got a License in New Jersey.**\
+`Some former patients, many of whom are Orthodox Jewish women, are seeking financial damages in two lawsuits, but say they also want to stop the doctor from opening a new practice.`\
+https://www.nytimes.com/2026/08/11/nyregion/orthodox-doctor-women-abuse.html
+
+**NYT Spelling Bee Answers for August 11, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/08/11/crosswords/spelling-bee-forum.html
+
 **El calor extremo acecha a la capital del chile rojo de Pakistán**\
 `Es posible que los métodos tradicionales de cultivo no sobrevivan a los desafíos del cambio climático y a los costos crecientes. Los agricultores pakistaníes intentan adaptarse.`\
 https://www.nytimes.com/es/2026/08/11/espanol/mundo/pakistan-chile-rojo-cultivo.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/opinion/100000011077978/americans-vote-for-boyfrie
 **Italian Diver Discovers Hundreds of Ancient Amphorae in Sicily**\
 `Hundreds of ancient amphorae were found piled up about 150 feet underwater, suggesting the relics came from a Roman shipwreck from about 2,000 years ago.`\
 https://www.nytimes.com/2026/08/10/world/europe/sicily-shipwreck-discovery.html
-
-**Colombia’s Earthquake Puts Abelardo De La Espriella, Its New President, to the Test**\
-`Abelardo De La Espriella had never held public office until his inauguration on Friday. Now, he is at the helm of a major disaster response.`\
-https://www.nytimes.com/2026/08/10/world/americas/colombia-earthquake-de-la-espriella.html
-
-**From Nest to Deathbed, Jackie the Eagle Entranced California and Beyond**\
-`The bald eagle and her mate gained fame during the pandemic, as a livestream tracked their nesting attempts. She died while being treated for anemia.`\
-https://www.nytimes.com/2026/08/10/us/jackie-bald-eagle-california-dead.html
 
