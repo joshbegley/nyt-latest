@@ -1,3 +1,7 @@
+**El calor extremo acecha a la capital del chile rojo de Pakistán**\
+`Es posible que los métodos tradicionales de cultivo no sobrevivan a los desafíos del cambio climático y a los costos crecientes. Los agricultores pakistaníes intentan adaptarse.`\
+https://www.nytimes.com/es/2026/08/11/espanol/mundo/pakistan-chile-rojo-cultivo.html
+
 **El alcalde que transformó Málaga, para bien o para mal**\
 `A Francisco de la Torre, alcalde de Málaga, se le atribuye haber convertido el otrora monótono puerto en un centro cultural y tecnológico. Sus críticos dicen que también destruyó el alma de la ciudad.`\
 https://www.nytimes.com/es/2026/08/11/espanol/mundo/alcalde-malaga-transformacion.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/10/world/americas/colombia-earthquake-de-la-espr
 **From Nest to Deathbed, Jackie the Eagle Entranced California and Beyond**\
 `The bald eagle and her mate gained fame during the pandemic, as a livestream tracked their nesting attempts. She died while being treated for anemia.`\
 https://www.nytimes.com/2026/08/10/us/jackie-bald-eagle-california-dead.html
-
-**Sanders Calls on A.I. Companies to Pause Development to ‘Avoid Disaster’**\
-`Senator Bernie Sanders warned that corporations have already lost control of technology that could cause “potentially cataclysmic results” for millions of people.`\
-https://www.nytimes.com/2026/08/10/us/politics/bernie-sanders-ai-moratorum.html
 

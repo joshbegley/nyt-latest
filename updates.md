@@ -1,3 +1,7 @@
+**El calor extremo acecha a la capital del chile rojo de Pakistán**\
+`Es posible que los métodos tradicionales de cultivo no sobrevivan a los desafíos del cambio climático y a los costos crecientes. Los agricultores pakistaníes intentan adaptarse.`\
+https://www.nytimes.com/es/2026/08/11/espanol/mundo/pakistan-chile-rojo-cultivo.html
+
 **El alcalde que transformó Málaga, para bien o para mal**\
 `A Francisco de la Torre, alcalde de Málaga, se le atribuye haber convertido el otrora monótono puerto en un centro cultural y tecnológico. Sus críticos dicen que también destruyó el alma de la ciudad.`\
 https://www.nytimes.com/es/2026/08/11/espanol/mundo/alcalde-malaga-transformacion.html
