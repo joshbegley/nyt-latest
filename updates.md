@@ -1,3 +1,7 @@
+**Election Live Updates: Polls Close in South Carolina, Where Graham’s Sister Seeks His Seat**\
+`The late Senator Lindsey Graham’s sister is among a crowded field in a race that could be headed for a runoff. Five other states are also holding races, including Vermont, where polls have also closed, and Wisconsin, where a democratic socialist is seeking the nomination for governor.`\
+https://www.nytimes.com/live/2026/08/11/us/elections-south-carolina-wisconsin
+
 **5 Things to Know About Darline Graham, Republican Senate Hopeful in South Carolina**\
 `The sister of Senator Lindsey Graham was endorsed by President Trump to serve out the remainder of his term. Now she is running in a special primary election.`\
 https://www.nytimes.com/2026/08/11/us/politics/darline-graham-south-carolina-primary.html
