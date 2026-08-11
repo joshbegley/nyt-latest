@@ -1,3 +1,11 @@
+**Ari Emanuel’s Company to Acquire 7 Broadway Theaters and 10 in the West End**\
+`The purchase of ATG Entertainment, which operates dozens of venues worldwide, will require regulatory approval.`\
+https://www.nytimes.com/2026/08/11/theater/ari-emanuel-atg-entertainment.html
+
+**Street Style Look of the Week: Sneakers Made Him Feel ‘Like a Superhero’**\
+`Salehe Bembury, a footwear designer from New York, feels at home in offbeat workwear, including at fashion shows.`\
+https://www.nytimes.com/2026/08/11/style/street-style-look-workwear.html
+
 **U.S. Says It Revoked More Than 175,000 Visas Under Trump**\
 `Most visas were rescinded over criminal accusations, the State Department said, while some were revoked from people who had celebrated the assassination of Charlie Kirk.`\
 https://www.nytimes.com/2026/08/11/us/politics/trump-state-department-visa-revocations.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/08/11/dining/restaurant-review-bistrot-ha-nyc.html
 **New Evidence Shows Agents Using Slurs, Bolstering Profiling Claims**\
 `Body-camera video and other court evidence capture federal agents using slurs and targeting Latinos while bypassing white bystanders during immigration sweeps in Chicago and Los Angeles`\
 https://www.nytimes.com/2026/08/11/us/videos-ice-agents-racial-profiling.html
-
-**Yoshita 1967 Is Making Clothing That’s an Antidote to Fast Fashion**\
-`For the founder of the Nairobi, Kenya-based label Yoshita 1967, traditional craft is personal and political.`\
-https://www.nytimes.com/2026/08/11/t-magazine/anil-padia-yoshita-1967.html
-
-**Can Nebraska’s Definitely-Not-a-Democrat Candidate Crack the G.O.P. Hold on Red America?**\
-`The Democratic brand is just too toxic in large swaths of the country.`\
-https://www.nytimes.com/2026/08/11/opinion/dan-osborn-nebraska-independent-democrats.html
 
