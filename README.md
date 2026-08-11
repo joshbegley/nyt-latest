@@ -14,7 +14,7 @@ https://www.nytimes.com/2026/08/10/us/chuck-edwards-replacement-north-carolina.h
 `No estaba claro cuántos pasajeros se vieron afectados, pero pudieron tomar otro vuelo el día siguiente.`\
 https://www.nytimes.com/es/2026/08/10/espanol/vuelo-cancelado-canada-nino.html
 
-**He Fired a Nazi Gun and Joked About Killing Old People. Republicans Don’t Seem Concerned.**\
+**He Says Obscene Things About Mothers and Children. Mike Johnson Is Raising Money for Him.**\
 `Thanks to Trump, G.O.P. extremism has become so ordinary that it breaks through only when it reaches an absurdly high level.`\
 https://www.nytimes.com/2026/08/10/opinion/brandon-herrera-republicans.html
 
