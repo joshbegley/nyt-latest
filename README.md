@@ -1,3 +1,7 @@
+**Europeans Scramble to Buy Solar Eclipse Glasses**\
+`Dozens lined up outside astronomy shops, pharmacies and convenience stores in Paris, London, Brussels and Barcelona to buy the glasses before Wednesday’s solar eclipse.`\
+https://www.nytimes.com/video/world/europe/100000011085655/europeans-scramble-to-buy-solar-eclipse-glasses.html
+
 **Election Live Updates: Primaries in Six States Pose Tests for Progressives and Trump**\
 `Democratic contests in Minnesota and Wisconsin pit moderates against progressives, while a special primary in South Carolina over the late Lindsey Graham’s Senate seat could be headed to a runoff.`\
 https://www.nytimes.com/live/2026/08/11/us/elections-south-carolina-wisconsin
@@ -30,7 +34,7 @@ https://www.nytimes.com/2026/08/11/opinion/abdul-el-sayed-michigan-jews-israel-m
 `The new label, which will begin to be applied next month, is an effort by the streaming service to be more transparent about A.I.-generated music on its app.`\
 https://www.nytimes.com/2026/08/11/arts/music/spotify-artificial-intelligence-music.html
 
-**Ocasio-Cortez Opened Up About Freezing her Eggs. She Got Women Talking.**\
+**Ocasio-Cortez Opened Up About Freezing Her Eggs. She Got Women Talking.**\
 `Many women say being open about the fertility treatment is a form of empowerment. But critics say all the talk can be misleading.`\
 https://www.nytimes.com/2026/08/11/us/politics/egg-freezing-aoc.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/08/11/us/elections/results-wisconsin-us
 **Wisconsin Attorney General Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Wisconsin primary election.`\
 https://www.nytimes.com/interactive/2026/08/11/us/elections/results-wisconsin-attorney-general-primary.html
-
-**Wisconsin Fifth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Wisconsin primary election.`\
-https://www.nytimes.com/interactive/2026/08/11/us/elections/results-wisconsin-us-house-5-primary.html
 

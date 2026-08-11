@@ -1,3 +1,7 @@
+**El-Sayed’s Winning Path in Michigan**\
+`A swing-state Democratic Senate nominee needs to keep saying this: Jews have a right to a Jewish homeland.`\
+https://www.nytimes.com/2026/08/11/opinion/abdul-el-sayed-michigan-jews-israel-mamdani-aipac.html
+
 **Election Live Updates: Primaries in Six States Pose Tests for Progressives and Trump**\
 `Democratic contests in Minnesota and Wisconsin pit moderates against progressives, while a special primary in South Carolina over the late Lindsey Graham’s Senate seat could be headed to a runoff.`\
 https://www.nytimes.com/live/2026/08/11/us/elections-south-carolina-wisconsin
