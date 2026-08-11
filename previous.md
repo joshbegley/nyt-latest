@@ -1,3 +1,7 @@
+**Are We Too Uptight About Feet?**\
+`Plus: Your thoughts on my in-office shorts and Beams in Malibu.`\
+https://www.nytimes.com/2026/08/11/style/toes-sandals-feet-flip-flops.html
+
 **With El-Sayed’s Victory Comes a Wave of Islamophobia**\
 `As Muslim politicians like Abdul El-Sayed in Michigan have become more prominent, they have experienced considerable bigotry. President Trump said Democrats were electing “jihadists.”`\
 https://www.nytimes.com/2026/08/11/us/politics/muslim-voters-candidates.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/08/11/us/elections/results-connecticut-
 **Alabama Seventh Congressional District Special Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Alabama special primary election.`\
 https://www.nytimes.com/interactive/2026/08/11/us/elections/results-alabama-us-house-7-special-primary.html
-
-**Connecticut Fifth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Connecticut primary election.`\
-https://www.nytimes.com/interactive/2026/08/11/us/elections/results-connecticut-us-house-5-primary.html
 
