@@ -1,3 +1,7 @@
+**Por qué el vestido camisero es tendencia de moda**\
+`Exploramos la historia y el éxito de una prenda versátil.`\
+https://www.nytimes.com/es/2026/08/10/espanol/estilos-de-vida/vestido-camisero-tendencia-moda.html
+
 **Fact-Checking Trump’s Claims About Childhood Vaccines After Executive Order**\
 `Mr. Trump signed an executive order on Monday calling to scale back the number of vaccinations American children receive.`\
 https://www.nytimes.com/2026/08/10/well/trump-vaccines-fact-check.html
