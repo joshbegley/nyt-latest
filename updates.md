@@ -1,3 +1,11 @@
+**Muere Jake Whisenant, famoso escalador, en una caída**\
+`Las autoridades de California dijeron que murió en un accidente mientras escalaba. Estableció un récord en 2024 al escalar la ruta Lurking Fear de El Capitán en menos de tres horas.`\
+https://www.nytimes.com/es/2026/08/11/espanol/estados-unidos/muere-jake-whisenant-accidente.html
+
+**An Electric Motorcycle Revolution**\
+`With gas prices high, people in developing countries are lining up to buy battery-powered bikes. We took a spin around Lahore, Pakistan, on a small-but-mighty one.`\
+https://www.nytimes.com/2026/08/11/climate/electric-motorcycle-boom-developing-countries.html
+
 **Mamdani to Abandon Plan to Replace Elizabeth Street Garden With Housing**\
 `After more than a decade, the fight over an effort to build affordable housing on the site of a community garden in Manhattan is winding down.`\
 https://www.nytimes.com/2026/08/11/nyregion/mamdani-elizabeth-street-garden-housing.html
