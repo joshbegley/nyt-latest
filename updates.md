@@ -1,3 +1,15 @@
+**A 5th Summer Heat Wave Will Hit Europe This Week. Here’s What to Know.**\
+`The latest heat wave is the fifth to batter European countries since May as scientists warn that the continent is warming faster than any other.`\
+https://www.nytimes.com/2026/08/11/weather/europe-extreme-heat-wave-uk-france-spain.html
+
+**Ari Emanuel’s Company to Acquire 7 Broadway Theaters and 10 in the West End**\
+`The purchase of ATG Entertainment, which operates dozens of venues worldwide, will require regulatory approval.`\
+https://www.nytimes.com/2026/08/11/theater/ari-emanuel-atg-entertainment.html
+
+**Street Style Look of the Week: Sneakers Made Him Feel ‘Like a Superhero’**\
+`Salehe Bembury, a footwear designer from New York, feels at home in offbeat workwear, including at fashion shows.`\
+https://www.nytimes.com/2026/08/11/style/street-style-look-workwear.html
+
 **His Start-Up’s Goal: A.I. That Is Trainable and Not Controlled by a Big Company**\
 `A co-founder of xAI is going all in on building open-source artificial intelligence so that “anyone can control and shape A.I. for their own needs.”`\
 https://www.nytimes.com/2026/08/11/technology/igor-babuschkin-xai-river-ai.html
