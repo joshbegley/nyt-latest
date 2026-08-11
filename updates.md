@@ -1,3 +1,11 @@
+**Trump Sues New York and Other States Over In-State Tuition for Migrants**\
+`The administration’s lawsuits, which included Connecticut and Vermont, challenged the legality of giving undocumented students in-state tuition.`\
+https://www.nytimes.com/2026/08/11/nyregion/trump-lawsuit-new-york-tuition-immigrants.html
+
+**My Summer of Bob Dylan**\
+`Hear tracks inspired by his Long Hot Summer Tour, including “My Back Pages” and “Mississippi.”`\
+https://www.nytimes.com/2026/08/11/arts/music/amplifier-newsletter-bob-dylan.html
+
 **Muere Jake Whisenant, famoso escalador, en una caída**\
 `Las autoridades de California dijeron que murió en un accidente mientras escalaba. Estableció un récord en 2024 al escalar la ruta Lurking Fear de El Capitán en menos de tres horas.`\
 https://www.nytimes.com/es/2026/08/11/espanol/estados-unidos/muere-jake-whisenant-accidente.html

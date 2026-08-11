@@ -1,3 +1,7 @@
+**Arlene Smith, Whose Song ‘Maybe’ Helped Define Doo-Wop, Dies at 84**\
+`With the Chantels, a groundbreaking female vocal group, she tugged heartstrings with the indelible hit and paved the way for a wave of “girl groups.”`\
+https://www.nytimes.com/2026/08/11/arts/music/arlene-smith-dead.html
+
 **Trump Sues New York and Other States Over In-State Tuition for Migrants**\
 `The administration’s lawsuits, which included Connecticut and Vermont, challenged the legality of giving undocumented students in-state tuition.`\
 https://www.nytimes.com/2026/08/11/nyregion/trump-lawsuit-new-york-tuition-immigrants.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/08/11/us/elections/results-minnesota-us
 **Minnesota Seventh Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Minnesota primary election.`\
 https://www.nytimes.com/interactive/2026/08/11/us/elections/results-minnesota-us-house-7-primary.html
-
-**Vermont Governor Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Vermont primary election.`\
-https://www.nytimes.com/interactive/2026/08/11/us/elections/results-vermont-governor-primary.html
 
