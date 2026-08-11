@@ -1,3 +1,15 @@
+**5 Things to Know About Darline Graham, Republican Senate Hopeful in South Carolina**\
+`The sister of Senator Lindsey Graham was endorsed by President Trump to serve out the remainder of his term. Now she is running in a special primary election.`\
+https://www.nytimes.com/2026/08/11/us/politics/darline-graham-south-carolina-primary.html
+
+**5 Things to Know About Russell Fry, Republican Senate Candidate in South Carolina**\
+`The two-term Republican congressman, who once interned in the office of Senator Lindsey Graham, has campaigned in part on his youth.`\
+https://www.nytimes.com/2026/08/11/us/politics/russell-fry-south-carolina-senate-primary.html
+
+**5 Things to Know About Ralph Norman, Republican Senate Candidate in South Carolina**\
+`The longtime lawmaker, a member of an ultraconservative group of House members, came in third place in the Republican primary for governor this year.`\
+https://www.nytimes.com/2026/08/11/us/politics/ralph-norman-south-carolina-senate-primary.html
+
 **5 Things to Know About Mark Sanford, Republican Senate Candidate in South Carolina**\
 `The former governor and congressman is a staunch fiscal conservative who repeatedly broke with President Trump on government spending, among other issues.`\
 https://www.nytimes.com/2026/08/11/us/politics/mark-sanford-south-carolina-senate-candidate.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/08/11/world/americas/presidents-secret-flights-trum
 **University of Michigan Will Ease Up on Grades for Student Mental Health**\
 `The university will make first-semester grades pass or fail, to encourage students to try different classes and lessen fears of what a low grade could mean.`\
 https://www.nytimes.com/2026/08/11/us/university-michigan-grades-freshmen-pass-fail.html
-
-**Are We Too Uptight About Feet?**\
-`Plus: Your thoughts on my in-office shorts and Beams in Malibu.`\
-https://www.nytimes.com/2026/08/11/style/toes-sandals-feet-flip-flops.html
-
-**With El-Sayed’s Victory Comes a Wave of Islamophobia**\
-`As Muslim politicians like Abdul El-Sayed in Michigan have become more prominent, they have experienced considerable bigotry. President Trump said Democrats were electing “jihadists.”`\
-https://www.nytimes.com/2026/08/11/us/politics/muslim-voters-candidates.html
-
-**Tom Clark, Private Equity Investor Turned Sheep Farmer, Dies at 85**\
-`On more than 500 acres in upstate New York, he kept a small herd of East Friesian ewes, producing award-winning cheeses and running a high-end restaurant and hotel.`\
-https://www.nytimes.com/2026/08/11/dining/tom-clark-dead.html
 

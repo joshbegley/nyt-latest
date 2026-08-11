@@ -1,3 +1,15 @@
+**5 Things to Know About Darline Graham, Republican Senate Hopeful in South Carolina**\
+`The sister of Senator Lindsey Graham was endorsed by President Trump to serve out the remainder of his term. Now she is running in a special primary election.`\
+https://www.nytimes.com/2026/08/11/us/politics/darline-graham-south-carolina-primary.html
+
+**5 Things to Know About Russell Fry, Republican Senate Candidate in South Carolina**\
+`The two-term Republican congressman, who once interned in the office of Senator Lindsey Graham, has campaigned in part on his youth.`\
+https://www.nytimes.com/2026/08/11/us/politics/russell-fry-south-carolina-senate-primary.html
+
+**5 Things to Know About Ralph Norman, Republican Senate Candidate in South Carolina**\
+`The longtime lawmaker, a member of an ultraconservative group of House members, came in third place in the Republican primary for governor this year.`\
+https://www.nytimes.com/2026/08/11/us/politics/ralph-norman-south-carolina-senate-primary.html
+
 **5 Things to Know About Mark Sanford, Republican Senate Candidate in South Carolina**\
 `The former governor and congressman is a staunch fiscal conservative who repeatedly broke with President Trump on government spending, among other issues.`\
 https://www.nytimes.com/2026/08/11/us/politics/mark-sanford-south-carolina-senate-candidate.html
