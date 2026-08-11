@@ -1,3 +1,7 @@
+**The Eclipse Is Coming, and Iceland Is … Mostly Ready**\
+`Rooms were booked years ago, and officials have been making plans. But there’s no telling where, exactly, Icelanders might go to find the best possible view.`\
+https://www.nytimes.com/2026/08/11/world/europe/solar-eclipse-iceland.html
+
 **Key Races to Watch in Tuesday’s Primary Elections**\
 `South Carolina Republicans will decide who will succeed Lindsey Graham as their party’s Senate nominee. Democrats must choose between moderate and progressive candidates in Wisconsin and Minnesota.`\
 https://www.nytimes.com/video/us/politics/100000011084577/elections-midterms-primaries-minnesota-sc-wisconsin.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/08/11/science/perseids-meteor-shower.html
 **A Syrian Holdout Province, Sweida, Fears a Government Takeover**\
 `In Sweida Province, dominated by the country’s Druse minority, many say it is just a matter of time before the central government moves to assert control over the region.`\
 https://www.nytimes.com/2026/08/11/world/middleeast/syria-sweida-province-druse-government.html
-
-**Should Letting Children Play Alone Outside Be a Crime?**\
-`Some parents have been surprised to find themselves in the legal system’s cross hairs.`\
-https://www.nytimes.com/2026/08/11/well/family/children-safety-independence-laws.html
 
