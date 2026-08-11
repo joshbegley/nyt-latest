@@ -1,3 +1,7 @@
+**5 Things to Know About Mark Sanford, Republican Senate Candidate in South Carolina**\
+`The former governor and congressman is a staunch fiscal conservative who repeatedly broke with President Trump on government spending, among other issues.`\
+https://www.nytimes.com/2026/08/11/us/politics/mark-sanford-south-carolina-senate-candidate.html
+
 **Judge Awards $250,000 to Musician Who Fled Trump-Led Kennedy Center Gig**\
 `The center had sued Chuck Redd when he canceled a free concert last year, citing the addition of the Trump name to the venue. But a judge dismissed the case.`\
 https://www.nytimes.com/2026/08/11/arts/music/chuck-redd-kennedy-center.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/11/us/politics/muslim-voters-candidates.html
 **Tom Clark, Private Equity Investor Turned Sheep Farmer, Dies at 85**\
 `On more than 500 acres in upstate New York, he kept a small herd of East Friesian ewes, producing award-winning cheeses and running a high-end restaurant and hotel.`\
 https://www.nytimes.com/2026/08/11/dining/tom-clark-dead.html
-
-**Today, In Short**\
-`“Hobbyamory.” Shania Twain. And puppets.`\
-https://www.nytimes.com/2026/08/11/briefing/today-in-short.html
 

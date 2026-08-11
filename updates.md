@@ -1,3 +1,11 @@
+**Judge Awards $250,000 to Musician Who Fled Trump-Led Kennedy Center Gig**\
+`The center had sued Chuck Redd when he canceled a free concert last year, citing the addition of the Trump name to the venue. But a judge dismissed the case.`\
+https://www.nytimes.com/2026/08/11/arts/music/chuck-redd-kennedy-center.html
+
+**Election Live Updates: Wisconsin and South Carolina Races Test Power of Progressives and Trump**\
+`A democratic socialist is seeking the nomination for governor of Wisconsin, and the late Senator Lindsey Graham’s sister is competing in a primary for his seat. Four other states are also holding races.`\
+https://www.nytimes.com/live/2026/08/11/us/elections-south-carolina-wisconsin
+
 **When to Expect Results in Wisconsin, Minnesota, South Carolina and Beyond**\
 `Six states are holding elections on Tuesday. The unofficial results will be known late Tuesday or early Wednesday.`\
 https://www.nytimes.com/2026/08/11/us/politics/election-results-timing-wisconsin-minnesota.html
