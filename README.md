@@ -1,3 +1,7 @@
+**Test Your Tomato I.Q.**\
+`It’s peak tomato season. How much do you know about everyone’s favorite summer produce?`\
+https://www.nytimes.com/quiz/2026/08/11/realestate/tomato-gardening-quiz.html
+
 **A 5th Summer Heat Wave Will Hit Europe This Week. Here’s What to Know.**\
 `The latest heat wave is the fifth to batter European countries since May as scientists warn that the continent is warming faster than any other.`\
 https://www.nytimes.com/2026/08/11/weather/europe-extreme-heat-wave-uk-france-spain.html
@@ -58,7 +62,7 @@ https://www.nytimes.com/2026/08/11/crosswords/strands-sidekick-892.html
 `Scroll down for hints and conversation about the puzzle for Wednesday, Aug. 12, 2026.`\
 https://www.nytimes.com/2026/08/11/crosswords/wordle-review-1880.html
 
-**The Eclipse Is Coming, and Iceland Is … Mostly Ready**\
+**The Eclipse Is Coming, and Iceland Is Looking for a Break in the Clouds**\
 `Rooms were booked years ago, and officials have been making plans. But there’s no telling where, exactly, Icelanders might go to find the best possible view.`\
 https://www.nytimes.com/2026/08/11/world/europe/solar-eclipse-iceland.html
 
@@ -185,8 +189,4 @@ https://www.nytimes.com/video/opinion/100000011066485/ross-douthat-the-exit-inte
 **The Unexpected Secret of One of Instagram’s Most Nostalgic Accounts**\
 `The Instagram account VHS Dates advertises itself as resurfacing lost dating service videotapes from the 1980s. The account’s creators came clean to our reporter, Sopan Deb.`\
 https://www.nytimes.com/video/arts/100000011063782/instagram-vhs-dates-fake-dating-1980s.html
-
-**Restaurant Review: Bistrot Ha in New York**\
-`The follow-up to the ultra-popular Ha’s Snack Bar is bigger, more ambitious and intermittently brilliant. It can both bewitch and confound.`\
-https://www.nytimes.com/2026/08/11/dining/restaurant-review-bistrot-ha-nyc.html
 
