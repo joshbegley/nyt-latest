@@ -78,7 +78,7 @@ https://www.nytimes.com/es/2026/08/11/espanol/america-latina/mafia-cubana-quinta
 `La dieta a base de plátanos, arroz, manzana y pan era un recurso socorrido hace unos años para tratar la diarrea. Los expertos advierten que no hay ciencia que la respalde.`\
 https://www.nytimes.com/es/2026/08/11/espanol/dieta-brat-virus-estomacal.html
 
-**Wildfire Forces Evacuations in Big Sur, Along California’s Famed Northern Coast**\
+**Wildfire Forces Evacuations in Big Sur, Along California’s Famed Central Coast**\
 `A fire broke out near Highway 1 on Sunday and spread rapidly overnight, prompting evacuation orders across Monterey County.`\
 https://www.nytimes.com/2026/08/11/us/california-timber-fire-big-sur.html
 

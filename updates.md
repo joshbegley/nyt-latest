@@ -1,3 +1,7 @@
+**Wildfire Forces Evacuations in Big Sur, Along California’s Famed Central Coast**\
+`A fire broke out near Highway 1 on Sunday and spread rapidly overnight, prompting evacuation orders across Monterey County.`\
+https://www.nytimes.com/2026/08/11/us/california-timber-fire-big-sur.html
+
 **A 5th Summer Heat Wave Will Hit Europe This Week. Here’s What to Know.**\
 `The latest heat wave is the fifth to batter European countries since May as scientists warn that the continent is warming faster than any other.`\
 https://www.nytimes.com/2026/08/11/weather/europe-extreme-heat-wave-uk-france-spain.html
