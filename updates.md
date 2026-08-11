@@ -1,3 +1,7 @@
+**Trump Said to Have Secretly Used Military Jet to Leave Turkey Amid Threats**\
+`President Trump hid in an airport catering cart and was taken to a military jet for a secret flight out of country after the NATO summit last month.`\
+https://www.nytimes.com/2026/08/10/us/politics/trump-plane-ruse.html
+
 **Californians Criticize Federal Efforts to Control the State’s Coast**\
 `Environmentalists and others warned at a hearing on Monday that the Trump administration’s attempt to strip power from California’s coastal protection agency would endanger the shoreline.`\
 https://www.nytimes.com/2026/08/10/us/california-coastal-commission-climate-trump.html
