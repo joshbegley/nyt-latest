@@ -1,3 +1,15 @@
+**How Iran Adapted Its Attacks as U.S. War Munitions Dwindled**\
+`The Iranian strikes that killed three U.S. soldiers in Jordan show how quickly Iran’s war-fighting skills have evolved, as the Pentagon runs low on interceptors.`\
+https://www.nytimes.com/2026/08/11/us/politics/iran-military-base-attacks-us-munitions.html
+
+**Pensó que conocía la pobreza por haber crecido en Perú. Estados Unidos la sorprendió**\
+`Una latinoamericana conoció algunos de los códigos postales más pobres de EE. UU. y reflexiona sobre lo que significa ser pobre en el país.`\
+https://www.nytimes.com/es/2026/08/11/espanol/opinion/pobreza-estados-unidos-peru.html
+
+**University of Michigan Will Ease Up on Grades for Student Mental Health**\
+`The University of Michigan will make first-semester grades pass or fail, to encourage students to try different classes and lessen fears of the consequences of a low grade.`\
+https://www.nytimes.com/2026/08/11/us/university-michigan-grades-freshmen-pass-fail.html
+
 **Pensé que conocía la pobreza por haber crecido en Perú. Estados Unidos me sorprendió**\
 `Una latinoamericana conoció algunos de los códigos postales más pobres de EE. UU. y reflexiona sobre lo que significa ser pobre en el país.`\
 https://www.nytimes.com/es/2026/08/11/espanol/opinion/pobreza-estados-unidos-peru.html
