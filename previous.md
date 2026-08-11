@@ -1,3 +1,7 @@
+**Late-Night Hunt for Survivors After Deadly Colombian Quake**\
+`“We heard them screaming,” said one rescuer in Cali, where rescuers face a race against time to find the living.`\
+https://www.nytimes.com/2026/08/11/world/americas/late-night-hunt-for-survivors-after-deadly-colombian-quake.html
+
 **Miami’s Skyline Is Getting Super Tall**\
 `At least 10 new skyscrapers, five of them supertalls, will be built in the next five years. Is that such a good idea?`\
 https://www.nytimes.com/2026/08/11/realestate/miami-skyscrapers-supertalls-development.html
@@ -14,7 +18,7 @@ https://www.nytimes.com/2026/08/11/arts/music/festival-orchestra-of-lincoln-cent
 `Una cadena de ciudades cerca del epicentro sufrió daños graves, según muestran las imágenes. La capital colombiana pareció salir ilesa.`\
 https://www.nytimes.com/es/2026/08/11/espanol/colombia-sismo-zonas-afectadas.html
 
-**G.M’s ‘Car Guy’ Talks Electrics, China and Nepotism**\
+**G.M.’s ‘Car Guy’ Talks Electrics, China and Nepotism**\
 `Mark Reuss became the automaker’s president seven years ago, ascending to a role his father was fired from decades before. We got the chance to speak with him.`\
 https://www.nytimes.com/2026/08/11/business/general-motors-mark-reuss.html
 
@@ -154,8 +158,8 @@ https://www.nytimes.com/2026/08/11/nyregion/using-ai-to-stop-the-demolition-of-a
 `Jazmine Ulloa, our national reporter covering immigration, describes body-camera footage and other court evidence that federal agents used slurs and racially profiled people during immigration sweeps.`\
 https://www.nytimes.com/video/us/100000011079979/can-immigration-agents-stop-people-based-on-appearance.html
 
-**Spain’s Complex Ties With Morocco Fuel Speculation Over Ceuta Migrant Surge**\
-`Rumors swirled that Morocco, perhaps spurred by Israel and the United States, organized a recent border disaster. That unproven speculation, experts said, was exacerbated by the region’s complicated history.`\
+**Why Rumors About Morocco Followed Spain’s Ceuta Migrant Surge**\
+`Claims swirled that Morocco, perhaps spurred by Israel and the United States, organized a recent border disaster. That unproven speculation, experts said, was exacerbated by the region’s complicated history.`\
 https://www.nytimes.com/2026/08/11/world/europe/spain-ceuta-morocco-migrants.html
 
 **How Social Media Sparked a Refugee Crisis Between Spain and Morocco**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/11/opinion/skyscrapers-pfizer-nyc.html
 **What to Know About the Cuban Mafia in Quintana Roo**\
 `A group of Cuban men in Mexico was charged with smuggling people to the United States. One of its leaders said Raúl Castro’s grandson helped, according to interviews and court records.`\
 https://www.nytimes.com/2026/08/11/world/americas/cuban-mafia-quintana-roo.html
-
-**Should You Be Dating While Unemployed?**\
-`If you’re single and unemployed, it may make sense to prioritize job hunting. But that doesn’t have to mean putting your life on pause.`\
-https://www.nytimes.com/2026/08/11/business/dating-unemployed.html
 

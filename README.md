@@ -1,3 +1,7 @@
+**Jurors in Luigi Mangione’s Trial Will Have Identities Protected, Judge Says**\
+`Justice Gregory Carro said the jury of 12 people will be anonymous, shielding their identities from the public. Jury selection is set to start on Sept. 8.`\
+https://www.nytimes.com/2026/08/11/nyregion/luigi-mangione-hearing-murder-trial.html
+
 **Late-Night Hunt for Survivors After Deadly Colombian Quake**\
 `“We heard them screaming,” said one rescuer in Cali, where rescuers face a race against time to find the living.`\
 https://www.nytimes.com/2026/08/11/world/americas/late-night-hunt-for-survivors-after-deadly-colombian-quake.html

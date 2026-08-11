@@ -1,3 +1,15 @@
+**Late-Night Hunt for Survivors After Deadly Colombian Quake**\
+`“We heard them screaming,” said one rescuer in Cali, where rescuers face a race against time to find the living.`\
+https://www.nytimes.com/2026/08/11/world/americas/late-night-hunt-for-survivors-after-deadly-colombian-quake.html
+
+**G.M.’s ‘Car Guy’ Talks Electrics, China and Nepotism**\
+`Mark Reuss became the automaker’s president seven years ago, ascending to a role his father was fired from decades before. We got the chance to speak with him.`\
+https://www.nytimes.com/2026/08/11/business/general-motors-mark-reuss.html
+
+**Why Rumors About Morocco Followed Spain’s Ceuta Migrant Surge**\
+`Claims swirled that Morocco, perhaps spurred by Israel and the United States, organized a recent border disaster. That unproven speculation, experts said, was exacerbated by the region’s complicated history.`\
+https://www.nytimes.com/2026/08/11/world/europe/spain-ceuta-morocco-migrants.html
+
 **Miami’s Skyline Is Getting Super Tall**\
 `At least 10 new skyscrapers, five of them supertalls, will be built in the next five years. Is that such a good idea?`\
 https://www.nytimes.com/2026/08/11/realestate/miami-skyscrapers-supertalls-development.html
