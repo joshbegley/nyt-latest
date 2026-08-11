@@ -1,3 +1,7 @@
+**When to Expect Results in Wisconsin, Minnesota, South Carolina and Beyond**\
+`Six states are holding elections on Tuesday. The unofficial results will be known late Tuesday or early Wednesday.`\
+https://www.nytimes.com/2026/08/11/us/politics/election-results-timing-wisconsin-minnesota.html
+
 **The Evening: Primary Voters Go to the Polls**\
 `Plus, Iran exploits dwindling U.S. interceptors. Here’s the latest at the end of Tuesday.`\
 https://www.nytimes.com/2026/08/11/briefing/primaries-air-force-one.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/11/briefing/today-in-short.html
 **Silent Films Are Back, at Least for One Night**\
 `At the Modern Silent Shorts festival, moviegoers saw an old cinematic form brought back to life with seven brand-new films.`\
 https://www.nytimes.com/2026/08/11/style/for-one-night-at-least-silent-films-are-back.html
-
-**Four Killed in Houthi Strike on Red Sea Ship, Yemeni Government Says**\
-`The Yemeni government said the ship was carrying food supplies to a port on the Bab al-Mandab Strait while the Iran-backed Houthis accused Saudi Arabia of transporting weapons.`\
-https://www.nytimes.com/2026/08/11/world/middleeast/deadly-houthi-strike-red-sea.html
 

@@ -1,3 +1,7 @@
+**When to Expect Results in Wisconsin, Minnesota, South Carolina and Beyond**\
+`Six states are holding elections on Tuesday. The unofficial results will be known late Tuesday or early Wednesday.`\
+https://www.nytimes.com/2026/08/11/us/politics/election-results-timing-wisconsin-minnesota.html
+
 **The Evening: Primary Voters Go to the Polls**\
 `Plus, Iran exploits dwindling U.S. interceptors. Here’s the latest at the end of Tuesday.`\
 https://www.nytimes.com/2026/08/11/briefing/primaries-air-force-one.html
