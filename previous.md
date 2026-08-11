@@ -1,3 +1,7 @@
+**An Elaborate Ruse: Trump Secretly Used Military Jet to Leave Turkey Amid Threats**\
+`President Trump hid in an airport catering cart and was taken to a military jet for a secret flight out of country after the NATO summit last month.`\
+https://www.nytimes.com/2026/08/10/us/politics/trump-plane-ruse.html
+
 **Powerful 7.4 Earthquake Rattles Colombia, Killing More Than 100**\
 `A 7.4 magnitude earthquake struck western Colombia on Monday, killing more than 100 people and damaging more than 1,500 residential buildings, according to Colombia’s president, Abelardo De La Espriella.`\
 https://www.nytimes.com/video/world/americas/100000011082948/colombia-cali-earthquake-deaths-damage.html
@@ -86,8 +90,8 @@ https://www.nytimes.com/2026/08/10/briefing/colombia-earthquake-vaccines.html
 `The government adopted a law that might prove a significant step toward ending an outlawed group’s decades-long battle with the Turkish state.`\
 https://www.nytimes.com/2026/08/10/world/europe/turkey-law-pkk-peace-framework.html
 
-**Judge Pauses Rollout of Second-Home Tax, Dealing Setback to Mamdani**\
-`A group of homeowners had sued New York City, arguing that the introduction of the tax was mishandled. After the judge issued an order pausing the rollout, the city said it would appeal.`\
+**Judge’s Ruling on Second-Home Tax Deals Temporary Setback to Mamdani**\
+`A judge sided with homeowners who had sued New York City and argued that the introduction of the tax was mishandled. The city moved to appeal, meaning the rollout can proceed.`\
 https://www.nytimes.com/2026/08/10/nyregion/mamdani-second-home-tax-ruling-nyc.html
 
 **Wisconsin’s Roller Coaster of a Democratic Primary Race for Governor Crashes to an End**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/world/europe/100000011069592/total-solar-eclipse-m
 **Europa se prepara para una nueva ola de calor**\
 `Se espera que las temperaturas más extremas se presenten inicialmente en partes de Francia, España e Italia antes de desplazarse hacia Europa central.`\
 https://www.nytimes.com/es/2026/08/10/espanol/tiempo-y-clima/europa-espana-ola-calor-mapas.html
-
-**A Canadian Politician’s A.I. Faux Pas**\
-`The “Hard Fork” co-hosts Kevin Roose and Casey Newton react to a video of Bill Oliver, who included an A.I. prompt in a speech he delivered to the New Brunswick Legislature.`\
-https://www.nytimes.com/video/podcasts/100000011083158/a-canadian-politicians-ai-faux-pas.html
 

@@ -1,3 +1,11 @@
+**An Elaborate Ruse: Trump Secretly Used Military Jet to Leave Turkey Amid Threats**\
+`President Trump hid in an airport catering cart and was taken to a military jet for a secret flight out of country after the NATO summit last month.`\
+https://www.nytimes.com/2026/08/10/us/politics/trump-plane-ruse.html
+
+**Judge’s Ruling on Second-Home Tax Deals Temporary Setback to Mamdani**\
+`A judge sided with homeowners who had sued New York City and argued that the introduction of the tax was mishandled. The city moved to appeal, meaning the rollout can proceed.`\
+https://www.nytimes.com/2026/08/10/nyregion/mamdani-second-home-tax-ruling-nyc.html
+
 **Powerful 7.4 Earthquake Rattles Colombia, Killing More Than 100**\
 `A 7.4 magnitude earthquake struck western Colombia on Monday, killing more than 100 people and damaging more than 1,500 residential buildings, according to Colombia’s president, Abelardo De La Espriella.`\
 https://www.nytimes.com/video/world/americas/100000011082948/colombia-cali-earthquake-deaths-damage.html
