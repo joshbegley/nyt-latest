@@ -1,3 +1,7 @@
+**Europe Faces Its Fifth Heat Wave Since May**\
+`Forecasters have warned that the relentless heat, combined with persistently dry conditions, could worsen the threat of wildfires.`\
+https://www.nytimes.com/video/world/europe/100000011084952/europe-heat-wave-weather-wildfires.html
+
 **Angie Craig Has Cash Edge Over Peggy Flanagan in Minnesota’s Democratic Senate Primary**\
 `Representative Angie Craig has benefited from nearly $10 million in spending from groups whose donors remain hidden, giving her an advantage in her Senate primary against Lt. Gov. Peggy Flanagan.`\
 https://www.nytimes.com/2026/08/11/us/politics/minnesota-angie-craig-fundraising-advantage.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/11/world/europe/solar-eclipse-glasses-uk.html
 **Wisconsin Governor Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Wisconsin primary election.`\
 https://www.nytimes.com/interactive/2026/08/11/us/elections/results-wisconsin-governor-primary.html
-
-**Vermont Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Vermont primary elections.`\
-https://www.nytimes.com/interactive/2026/08/11/us/elections/results-vermont-primary.html
 

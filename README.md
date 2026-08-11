@@ -1,3 +1,7 @@
+**The 10 Japanese Pantry Staples You Need in Your Kitchen**\
+`Chefs weigh in on the essentials worth stocking and recommend their favorite brands.`\
+https://www.nytimes.com/2026/08/11/t-magazine/japanese-cooking-recipe-ingredients.html
+
 **Europe Faces Its Fifth Heat Wave Since May**\
 `Forecasters have warned that the relentless heat, combined with persistently dry conditions, could worsen the threat of wildfires.`\
 https://www.nytimes.com/video/world/europe/100000011084952/europe-heat-wave-weather-wildfires.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/11/world/middleeast/deadly-houthi-strike-red-sea
 **Frenzy for Solar Eclipse Glasses Takes Over London**\
 `Ahead of Wednesday’s rare cosmic event, thousands of people in London are searching for protective eyewear, as prices surge and stocks sell out.`\
 https://www.nytimes.com/2026/08/11/world/europe/solar-eclipse-glasses-uk.html
-
-**Wisconsin Governor Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Wisconsin primary election.`\
-https://www.nytimes.com/interactive/2026/08/11/us/elections/results-wisconsin-governor-primary.html
 
