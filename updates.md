@@ -1,3 +1,15 @@
+**Restaurant Review: Bar Susanne in New York**\
+`At Bar Susanne in Williamsburg, the chef Jackie Carnesi is bucking expectations with her seafood and raw bar menu — but the French fries are still outstanding.`\
+https://www.nytimes.com/2026/08/11/dining/restaurant-review-bar-susanne-nyc.html
+
+**Cristiano Ronaldo and Georgina Rodríguez Get Married**\
+`After nearly a decade together and five children in their blended family, the couple reportedly married in an intimate ceremony.`\
+https://www.nytimes.com/2026/08/11/style/cristiano-ronaldo-georgina-rodriguez-married.html
+
+**A Sweaty Texas Night at Barrel O’ Fun with Matthew McConaughey**\
+`The city celebrated one of its favorite Texas movie stars with a cinema bearing his name, ahead of the release of “The Rivals of Amziah King.”`\
+https://www.nytimes.com/2026/08/11/style/matthew-mcconaughey-movie-texas.html
+
 **Total Eclipse**\
 `If you’re in Europe, get ready to gaze at the sky. But not without the right glasses.`\
 https://www.nytimes.com/2026/08/11/world/total-eclipse-trump-secret-escape.html
