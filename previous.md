@@ -1,3 +1,7 @@
+**Ocasio-Cortez Opened Up About Freezing her Eggs. She Got Women Talking.**\
+`Many women say being open about the fertility treatment is a form of empowerment. But critics say all the talk can be misleading.`\
+https://www.nytimes.com/2026/08/11/us/politics/egg-freezing-aoc.html
+
 **Everything You Need for the Perfect Beach Day: The Best Sunscreen, Swimsuits and Gear**\
 `A roundup of the gear and accessories that five seasoned regulars never regret having toted onto the sand.`\
 https://www.nytimes.com/2026/08/11/t-magazine/beach-summer-essentials-sunscreen-swimsuits.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/08/11/us/elections/results-wisconsin-us
 **Wisconsin Secretary of State Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Wisconsin primary election.`\
 https://www.nytimes.com/interactive/2026/08/11/us/elections/results-wisconsin-secretary-of-state-primary.html
-
-**Vermont Secretary of State Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Vermont primary election.`\
-https://www.nytimes.com/interactive/2026/08/11/us/elections/results-vermont-secretary-of-state-primary.html
 

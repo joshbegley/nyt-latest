@@ -1,3 +1,7 @@
+**Ocasio-Cortez Opened Up About Freezing her Eggs. She Got Women Talking.**\
+`Many women say being open about the fertility treatment is a form of empowerment. But critics say all the talk can be misleading.`\
+https://www.nytimes.com/2026/08/11/us/politics/egg-freezing-aoc.html
+
 **Everything You Need for the Perfect Beach Day: The Best Sunscreen, Swimsuits and Gear**\
 `A roundup of the gear and accessories that five seasoned regulars never regret having toted onto the sand.`\
 https://www.nytimes.com/2026/08/11/t-magazine/beach-summer-essentials-sunscreen-swimsuits.html
