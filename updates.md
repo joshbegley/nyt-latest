@@ -1,3 +1,15 @@
+**Warehouse Blaze in Portland, Ore., Is Headache for City Over a Week Later**\
+`The city has set up a safety zone, and Amtrak trains between Seattle and Portland are paused, but freight trains have been passing the structure, alarming officials who have warned of a collapse.`\
+https://www.nytimes.com/2026/08/11/us/portland-warehouse-fire-amtrak.html
+
+**With Trump Secretly Evacuated, Imperiled Air Force One Became a Flying Decoy**\
+`In response to a threat against the jet last month, the president was clandestinely removed in a catering container. But the plane was sent into the skies anyway with government employees and reporters onboard.`\
+https://www.nytimes.com/2026/08/11/us/politics/trump-air-force-one-decoy.html
+
+**Race Too Close to Call in Democratic Primary for Michigan Senate Seat**\
+`Dr. Abdul El-Sayed, a progressive, and Representative Haley Stevens, a centrist, both gave speeches with the winner still undeclared. Kansas, Missouri, Virginia and Washington also voted.`\
+https://www.nytimes.com/live/2026/08/04/us/midterms-elections-michigan-virginia
+
 **Palestinian Americans File Discrimination Lawsuit Against Columbia**\
 `The five plaintiffs, all currently or formerly affiliated with the university, said Columbia had failed to adequately protect them from harassment after the 2023 Hamas attack against Israel.`\
 https://www.nytimes.com/2026/08/11/nyregion/columbia-university-lawsuit-palestinians.html

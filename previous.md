@@ -1,3 +1,11 @@
+**Warehouse Blaze in Portland, Ore., Is Headache for City Over a Week Later**\
+`The city has set up a safety zone, and Amtrak trains between Seattle and Portland are paused, but freight trains have been passing the structure, alarming officials who have warned of a collapse.`\
+https://www.nytimes.com/2026/08/11/us/portland-warehouse-fire-amtrak.html
+
+**With Trump Secretly Evacuated, Imperiled Air Force One Became a Flying Decoy**\
+`In response to a threat against the jet last month, the president was clandestinely removed in a catering container. But the plane was sent into the skies anyway with government employees and reporters onboard.`\
+https://www.nytimes.com/2026/08/11/us/politics/trump-air-force-one-decoy.html
+
 **Palestinian Americans File Discrimination Lawsuit Against Columbia**\
 `The five plaintiffs, all currently or formerly affiliated with the university, said Columbia had failed to adequately protect them from harassment after the 2023 Hamas attack against Israel.`\
 https://www.nytimes.com/2026/08/11/nyregion/columbia-university-lawsuit-palestinians.html
@@ -182,15 +190,7 @@ https://www.nytimes.com/2026/08/11/us/politics/iran-military-base-attacks-us-mun
 `Una latinoamericana conoció algunos de los códigos postales más pobres de EE. UU. y reflexiona sobre lo que significa ser pobre en el país.`\
 https://www.nytimes.com/es/2026/08/11/espanol/opinion/pobreza-estados-unidos-peru.html
 
-**Trump usó un avión militar para salir en secreto de Turquía, según funcionarios**\
-`En medio de amenazas de Irán, el presidente de EE. UU. se escondió en un contenedor de cáterin y fue trasladado en una aeronave militar tras la cumbre de la Otán el mes pasado.`\
-https://www.nytimes.com/es/2026/08/11/espanol/estados-unidos/trump-amenazas-iran-avion-secreto.html
-
-**Trump Is Said to Have Secretly Used Military Jet to Leave Turkey**\
-`President Trump was secretly moved to a military aircraft as he departed the NATO summit in Turkey in July. Two senior U.S. officials said it was done after a threat was made against the president by Iran.`\
-https://www.nytimes.com/video/world/americas/100000011084735/trump-military-jet-turkey-catering-container.html
-
-**Terremoto en Colombia: la búsqueda de sobrevivientes continúa**\
-`“Escuchamos esos gritos”, dijo un rescatista en Cali, donde se vive una carrera contrarreloj para encontrar personas con vida.`\
-https://www.nytimes.com/es/2026/08/11/espanol/america-latina/terremoto-colombia-sobrevivientes-busqueda-rescate.html
+**Race Too Close to Call in Democratic Primary for Michigan Senate Seat**\
+`Dr. Abdul El-Sayed, a progressive, and Representative Haley Stevens, a centrist, both gave speeches with the winner still undeclared. Kansas, Missouri, Virginia and Washington also voted.`\
+https://www.nytimes.com/live/2026/08/04/us/midterms-elections-michigan-virginia
 
