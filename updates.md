@@ -1,3 +1,11 @@
+**They Accused a Brooklyn Doctor of Abuse. He Got a License in New Jersey.**\
+`Some former patients, many of whom are Orthodox Jewish women, are seeking financial damages in two lawsuits, but say they also want to stop the doctor from opening a new practice.`\
+https://www.nytimes.com/2026/08/11/nyregion/orthodox-doctor-women-abuse.html
+
+**NYT Spelling Bee Answers for August 11, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/08/11/crosswords/spelling-bee-forum.html
+
 **El calor extremo acecha a la capital del chile rojo de Pakistán**\
 `Es posible que los métodos tradicionales de cultivo no sobrevivan a los desafíos del cambio climático y a los costos crecientes. Los agricultores pakistaníes intentan adaptarse.`\
 https://www.nytimes.com/es/2026/08/11/espanol/mundo/pakistan-chile-rojo-cultivo.html
