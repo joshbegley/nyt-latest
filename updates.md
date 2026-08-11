@@ -1,3 +1,7 @@
+**El alcalde que transformó Málaga, para bien o para mal**\
+`A Francisco de la Torre, alcalde de Málaga, se le atribuye haber convertido el otrora monótono puerto en un centro cultural y tecnológico. Sus críticos dicen que también destruyó el alma de la ciudad.`\
+https://www.nytimes.com/es/2026/08/11/espanol/mundo/alcalde-malaga-transformacion.html
+
 **Late Night Wonders if Trump Got a Wig**\
 `Anthony Anderson, a guest host on “Jimmy Kimmel Live,” said he’d “seen better weaves on ‘Real Housewives of Atlanta.’”`\
 https://www.nytimes.com/2026/08/11/arts/television/late-night-trump-hair.html
