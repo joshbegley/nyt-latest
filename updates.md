@@ -1,3 +1,19 @@
+**Powerful 7.4 Earthquake Rattles Colombia, Killing More Than 100**\
+`A 7.4 magnitude earthquake struck western Colombia on Monday, killing more than 100 people and damaging more than 1,500 residential buildings, according to Colombia’s president, Abelardo De La Espriella.`\
+https://www.nytimes.com/video/world/americas/100000011082948/colombia-cali-earthquake-deaths-damage.html
+
+**North Carolina G.O.P. Picks Replacement for Candidate Plagued by Scandal**\
+`Representative Chuck Edwards dropped his re-election bid amid sexual harassment allegations. His replacement, Jennifer Balkcom, has about 80 days to campaign.`\
+https://www.nytimes.com/2026/08/10/us/chuck-edwards-replacement-north-carolina.html
+
+**Un vuelo fue cancelado en Canadá después de que un niño se negó a sentarse**\
+`No estaba claro cuántos pasajeros se vieron afectados, pero pudieron tomar otro vuelo el día siguiente.`\
+https://www.nytimes.com/es/2026/08/10/espanol/vuelo-cancelado-canada-nino.html
+
+**He Fired a Nazi Gun and Joked About Killing Old People. Republicans Don’t Seem Concerned.**\
+`Thanks to Trump, G.O.P. extremism has become so ordinary that it breaks through only when it reaches an absurdly high level.`\
+https://www.nytimes.com/2026/08/10/opinion/brandon-herrera-republicans.html
+
 **Por qué el vestido camisero es tendencia de moda**\
 `Exploramos la historia y el éxito de una prenda versátil.`\
 https://www.nytimes.com/es/2026/08/10/espanol/estilos-de-vida/vestido-camisero-tendencia-moda.html
