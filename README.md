@@ -30,8 +30,8 @@ https://www.nytimes.com/video/world/africa/100000011032450/deported-from-the-us-
 `Dozens lined up outside astronomy shops, pharmacies and convenience stores in Paris, London, Brussels and Barcelona to buy the glasses before Wednesday’s solar eclipse.`\
 https://www.nytimes.com/video/world/europe/100000011085655/europeans-scramble-to-buy-solar-eclipse-glasses.html
 
-**Election Live Updates: Primaries in Six States Pose Tests for Progressives and Trump**\
-`Democratic contests in Minnesota and Wisconsin pit moderates against progressives, while a special primary in South Carolina over the late Lindsey Graham’s Senate seat could be headed to a runoff.`\
+**Election Live Updates: Wisconsin and South Carolina Races Test Power of Progressives and Trump**\
+`Six states are holding primaries on Tuesday. Democratic contests in Wisconsin and Minnesota pit moderates against progressives, while a special Senate primary to run for the late Lindsey Graham’s seat in South Carolina could go to a runoff.`\
 https://www.nytimes.com/live/2026/08/11/us/elections-south-carolina-wisconsin
 
 **Richard Lingeman, Cultural Historian and Biographer, Dies at 95**\
