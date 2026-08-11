@@ -1,3 +1,7 @@
+**How Abdul El-Sayed Can Win Michigan**\
+`A swing-state Democratic Senate nominee needs to keep saying this: Jews have a right to a Jewish homeland.`\
+https://www.nytimes.com/2026/08/11/opinion/abdul-el-sayed-michigan-jews-israel-mamdani-aipac.html
+
 **Spotify Will Label A.I. Artists and Avoid Recommending Them**\
 `The new label, which will begin to be applied next month, is an effort by the streaming service to be more transparent about A.I.-generated music on its app.`\
 https://www.nytimes.com/2026/08/11/arts/music/spotify-artificial-intelligence-music.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/08/11/us/elections/results-wisconsin-us
 **Wisconsin Fourth Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Wisconsin primary election.`\
 https://www.nytimes.com/interactive/2026/08/11/us/elections/results-wisconsin-us-house-4-primary.html
-
-**Wisconsin First Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Wisconsin primary election.`\
-https://www.nytimes.com/interactive/2026/08/11/us/elections/results-wisconsin-us-house-1-primary.html
 
