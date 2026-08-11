@@ -1,3 +1,7 @@
+**Russian Civilian Deaths Are Growing Rapidly as Ukraine Expands Its Air War**\
+`The higher tempo of Ukrainian strikes has fueled discontent among Russians, but it is far from clear that it will change the Kremlin’s calculus about the war.`\
+https://www.nytimes.com/2026/08/11/world/europe/russia-ukraine-civilian-casualties.html
+
 **The U.S. Missile Stockpile Is Dangerously Low**\
 `The United States’ war with Iran has caused a critical weaponry shortage. That leaves the U.S. military vulnerable and complicates Washington’s efforts to end the war.`\
 https://www.nytimes.com/2026/08/11/podcasts/the-daily/iran-us-missile-stockpile-trump.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/08/11/books/review/sunrise-tea-obreht.html
 **Book Review: ‘A Tender Age,’ by Chang-rae Lee**\
 `In his new book, Chang-rae Lee follows a 10-year-old into the social powder kegs of schoolyards and summer camps.`\
 https://www.nytimes.com/2026/08/11/books/review/chang-rae-lee-tender-age.html
-
-**Book Review: ‘Under the Falls,’ by Richard Russo**\
-`In Richard Russo’s new novel, “Under the Falls,” a singer reckons with his troubled past and the community he left behind.`\
-https://www.nytimes.com/2026/08/11/books/review/richard-russo-under-the-falls.html
 
