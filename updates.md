@@ -1,3 +1,7 @@
+**Human-Shaped Robots at This Car Factory Can Perform Humanlike Tasks**\
+`Humanoids — human-shaped robots — at this BMW factory in South Carolina are expected to respond to voice commands, solve problems and react to unforeseen events. U.S. automakers hope that this technology can give them a fighting chance against their Chinese rivals that enjoy lower costs.`\
+https://www.nytimes.com/video/business/economy/100000011085557/humanoid-robots-bmw-car-factory.html
+
 **Spotify Will Label A.I. Artists and Avoid Promoting Them**\
 `The new label, which will begin to be applied next month, is an effort by the streaming service to be more transparent about A.I.-generated music on its app.`\
 https://www.nytimes.com/2026/08/11/arts/music/spotify-artificial-intelligence-music.html
