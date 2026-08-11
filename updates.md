@@ -1,3 +1,7 @@
+**Jake Whisenant, Who Raced Up Yosemite’s El Capitan at Record Speed, Dies in a Fall**\
+`Authorities in California said he died in a climbing accident. He set a record in 2024 for climbing El Capitan’s Lurking Fear route in under three hours.`\
+https://www.nytimes.com/2026/08/11/us/jake-whisenant-climber-dead.html
+
 **Quote of the Day: Red Chile Capital of Pakistan is Wilting Under the Heat**\
 `Quotation of the Day for Monday, August 11, 2026.`\
 https://www.nytimes.com/2026/08/11/pageoneplus/quote-of-the-day-red-chile-capital-of-pakistan-is-wilting-under-the-heat.html

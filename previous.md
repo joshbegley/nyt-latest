@@ -1,3 +1,7 @@
+**Jake Whisenant, Who Raced Up Yosemite’s El Capitan at Record Speed, Dies in a Fall**\
+`Authorities in California said he died in a climbing accident. He set a record in 2024 for climbing El Capitan’s Lurking Fear route in under three hours.`\
+https://www.nytimes.com/2026/08/11/us/jake-whisenant-climber-dead.html
+
 **Quote of the Day: Red Chile Capital of Pakistan is Wilting Under the Heat**\
 `Quotation of the Day for Monday, August 11, 2026.`\
 https://www.nytimes.com/2026/08/11/pageoneplus/quote-of-the-day-red-chile-capital-of-pakistan-is-wilting-under-the-heat.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/embedded/arts/100000011083855/headline-test.html
 **National Gallery Accused of ‘Soft Censorship’ to Avoid Provoking Trump**\
 `A former executive with the Washington museum says it moved a symposium about race in art to avoid political blowback.`\
 https://www.nytimes.com/2026/08/10/arts/design/national-gallery-art-doge-trump-censorship.html
-
-**Trump Signs Executive Order Calling for Fewer Childhood Vaccines**\
-`It is not clear whether the order, the president’s third to address the topic in less than a year, has any legal power.`\
-https://www.nytimes.com/2026/08/10/well/trump-vaccines-executive-order.html
 
