@@ -1,3 +1,11 @@
+**David Ellison Floats Hollywood Exit as States Threaten His Warner Bros. Deal**\
+`Mr. Ellison told Paramount executives he is considering pulling the company out of California amid a lawsuit brought by state attorneys general.`\
+https://www.nytimes.com/2026/08/11/business/media/david-ellison-hollywood-paramount-warner-bros.html
+
+**A Timeline of the Fight Over the Elizabeth Street Garden in Manhattan**\
+`The yearslong battle has pitted community members in favor of preserving the garden against politicians, housing advocates and developers who say the space should be used to build affordable homes.`\
+https://www.nytimes.com/2026/08/11/nyregion/elizabeth-street-garden-timeline-new-york.html
+
 **Election Live Updates: Polls Close in South Carolina, Where Graham’s Sister Seeks His Seat**\
 `The late Senator Lindsey Graham’s sister is among a crowded field in a race that could be headed for a runoff. Five other states are also holding races, including Vermont, where polls have also closed, and Wisconsin, where a democratic socialist is seeking the nomination for governor.`\
 https://www.nytimes.com/live/2026/08/11/us/elections-south-carolina-wisconsin
