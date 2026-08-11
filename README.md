@@ -1,3 +1,11 @@
+**Lincoln Center’s Orchestra Makes Creative Programming Look Easy**\
+`Jonathon Heyward, who leads the Festival Orchestra of Lincoln Center, conducted two concerts that put new music in conversation with classics.`\
+https://www.nytimes.com/2026/08/11/arts/music/festival-orchestra-of-lincoln-center-review.html
+
+**Estas son las zonas más afectadas por el sismo en Colombia**\
+`Una cadena de ciudades cerca del epicentro sufrió daños graves, según muestran las imágenes. La capital colombiana pareció salir ilesa.`\
+https://www.nytimes.com/es/2026/08/11/espanol/colombia-sismo-zonas-afectadas.html
+
 **G.M’s ‘Car Guy’ Talks Electrics, China and Nepotism**\
 `Mark Reuss became the automaker’s president seven years ago, ascending to a role his father was fired from decades before. We got the chance to speak with him.`\
 https://www.nytimes.com/2026/08/11/business/general-motors-mark-reuss.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/08/11/theater/john-cariani-darker-the-night-brighte
 **A.C. Vests and UV Parasols: East Asia Deploys Heat-Fighting Gadgets**\
 `The innovations include air-conditioned apparel, refrigerators for humans and hand-held fans that use the science behind semiconductors. Governments are making cooling devices central to heat adaptation.`\
 https://www.nytimes.com/2026/08/11/world/asia/extreme-heat-wave-korea-japan-china-cooling.html
-
-**A.I. Offers Hope for Men With Infertility, Spotting ‘Hidden’ Sperm**\
-`New technology may make it easier for men with extremely low sperm counts to have biological children.`\
-https://www.nytimes.com/2026/08/11/science/ai-infertile-men-sperm.html
-
-**The Right Loves the Founding Fathers. They Might Love the A.I. Versions Even More.**\
-`Glenn Beck and other pundits are turning figures like George Washington into supposedly infallible podcasters.`\
-https://www.nytimes.com/2026/08/11/magazine/founding-fathers-ai-podcasters.html
 
