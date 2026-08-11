@@ -1,3 +1,43 @@
+**‘Take the Keys Away’**\
+`How an exiled consigliere and a “culture of arrogance” have undermined the legacy of Bill Belichick, the former coach of the New England Patriots.`\
+https://www.nytimes.com/2026/08/11/podcasts/take-the-keys-away.html
+
+**Mafia cubana en Quintana Roo: lo que hay que saber**\
+`Un grupo de hombres cubanos en México fue acusado de traficar personas hacia EE. UU. Uno de sus líderes dijo que el nieto de Raúl Castro ayudó, según entrevistas y registros judiciales.`\
+https://www.nytimes.com/es/2026/08/11/espanol/america-latina/mafia-cubana-quintana-roo.html
+
+**¿La dieta BRAT es realmente la mejor manera de tratar un virus estomacal?**\
+`La dieta a base de plátanos, arroz, manzana y pan era un recurso socorrido hace unos años para tratar la diarrea. Los expertos advierten que no hay ciencia que la respalde.`\
+https://www.nytimes.com/es/2026/08/11/espanol/dieta-brat-virus-estomacal.html
+
+**Wildfire Forces Evacuations in Big Sur, Along California’s Famed Northern Coast**\
+`A fire broke out near Highway 1 on Sunday and spread rapidly overnight, prompting evacuation orders across Monterey County.`\
+https://www.nytimes.com/2026/08/11/us/california-timber-fire-big-sur.html
+
+**El efecto ‘Ted Lasso’ se siente en un pintoresco barrio londinense**\
+`Los fans de la conmovedora serie de Apple TV acuden en masa a Richmond-upon-Thames, que desde hace mucho tiempo es un destino para visitantes y exploradores de locaciones cinematográficas.`\
+https://www.nytimes.com/es/2026/08/11/espanol/cultura/ted-lasso-londres.html
+
+**Trump Is Trapped in a Maelstrom of His Own Making**\
+`The president’s zero-sum mind-set is turning us all into losers.`\
+https://www.nytimes.com/2026/08/11/opinion/trumps-tariffs-winners-losers.html
+
+**Ross Douthat: The Exit Interview**\
+`The Times columnist reflects on the seismic changes in media, religion and politics he’s witnessed in his career so far.`\
+https://www.nytimes.com/2026/08/11/opinion/ezra-klein-podcast-ross-douthat.html
+
+**See Trump’s Plan to Fill the Gaps in the Border Wall**\
+`Construction has begun on hundreds of miles of new barriers funded by $47 billion from the president’s signature policy bill last year.`\
+https://www.nytimes.com/interactive/2026/08/11/us/trump-border-wall-construction.html
+
+**How to Buy a Sofa You Won’t Regret**\
+`A sofa is one of the most used (and expensive) pieces of furniture in your home. We explain how to buy one you’ll love, or give new life to one you already own.`\
+https://www.nytimes.com/2026/08/11/podcasts/how-to-buy-a-sofa-you-wont-regret.html
+
+**Corrections: Aug. 11, 2026**\
+`Corrections that appeared in print on Tuesday, Aug. 11, 2026.`\
+https://www.nytimes.com/2026/08/11/pageoneplus/corrections-aug-11-2026.html
+
 **Democrats Plan New Push to Defeat Max Miller in Ohio After Abuse Accusations**\
 `The party’s congressional campaign arm added Mr. Miller’s opponent, Brian Poindexter, to its highly competitive “Red to Blue” list.`\
 https://www.nytimes.com/2026/08/11/us/politics/democrats-plan-new-push-to-defeat-max-miller-in-ohio-after-abuse-accusations.html

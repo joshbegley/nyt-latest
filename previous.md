@@ -1,3 +1,43 @@
+**‘Take the Keys Away’**\
+`How an exiled consigliere and a “culture of arrogance” have undermined the legacy of Bill Belichick, the former coach of the New England Patriots.`\
+https://www.nytimes.com/2026/08/11/podcasts/take-the-keys-away.html
+
+**Mafia cubana en Quintana Roo: lo que hay que saber**\
+`Un grupo de hombres cubanos en México fue acusado de traficar personas hacia EE. UU. Uno de sus líderes dijo que el nieto de Raúl Castro ayudó, según entrevistas y registros judiciales.`\
+https://www.nytimes.com/es/2026/08/11/espanol/america-latina/mafia-cubana-quintana-roo.html
+
+**¿La dieta BRAT es realmente la mejor manera de tratar un virus estomacal?**\
+`La dieta a base de plátanos, arroz, manzana y pan era un recurso socorrido hace unos años para tratar la diarrea. Los expertos advierten que no hay ciencia que la respalde.`\
+https://www.nytimes.com/es/2026/08/11/espanol/dieta-brat-virus-estomacal.html
+
+**Wildfire Forces Evacuations in Big Sur, Along California’s Famed Northern Coast**\
+`A fire broke out near Highway 1 on Sunday and spread rapidly overnight, prompting evacuation orders across Monterey County.`\
+https://www.nytimes.com/2026/08/11/us/california-timber-fire-big-sur.html
+
+**El efecto ‘Ted Lasso’ se siente en un pintoresco barrio londinense**\
+`Los fans de la conmovedora serie de Apple TV acuden en masa a Richmond-upon-Thames, que desde hace mucho tiempo es un destino para visitantes y exploradores de locaciones cinematográficas.`\
+https://www.nytimes.com/es/2026/08/11/espanol/cultura/ted-lasso-londres.html
+
+**Trump Is Trapped in a Maelstrom of His Own Making**\
+`The president’s zero-sum mind-set is turning us all into losers.`\
+https://www.nytimes.com/2026/08/11/opinion/trumps-tariffs-winners-losers.html
+
+**Ross Douthat: The Exit Interview**\
+`The Times columnist reflects on the seismic changes in media, religion and politics he’s witnessed in his career so far.`\
+https://www.nytimes.com/2026/08/11/opinion/ezra-klein-podcast-ross-douthat.html
+
+**See Trump’s Plan to Fill the Gaps in the Border Wall**\
+`Construction has begun on hundreds of miles of new barriers funded by $47 billion from the president’s signature policy bill last year.`\
+https://www.nytimes.com/interactive/2026/08/11/us/trump-border-wall-construction.html
+
+**How to Buy a Sofa You Won’t Regret**\
+`A sofa is one of the most used (and expensive) pieces of furniture in your home. We explain how to buy one you’ll love, or give new life to one you already own.`\
+https://www.nytimes.com/2026/08/11/podcasts/how-to-buy-a-sofa-you-wont-regret.html
+
+**Corrections: Aug. 11, 2026**\
+`Corrections that appeared in print on Tuesday, Aug. 11, 2026.`\
+https://www.nytimes.com/2026/08/11/pageoneplus/corrections-aug-11-2026.html
+
 **Democrats Plan New Push to Defeat Max Miller in Ohio After Abuse Accusations**\
 `The party’s congressional campaign arm added Mr. Miller’s opponent, Brian Poindexter, to its highly competitive “Red to Blue” list.`\
 https://www.nytimes.com/2026/08/11/us/politics/democrats-plan-new-push-to-defeat-max-miller-in-ohio-after-abuse-accusations.html
@@ -149,44 +189,4 @@ https://www.nytimes.com/2026/08/11/well/family/children-safety-independence-laws
 **What We Know About the Earthquake in Colombia**\
 `The 7.4-magnitude quake, which killed more than 100 people and damaged hundreds of buildings, was the strongest recorded in Colombia in a decade.`\
 https://www.nytimes.com/2026/08/11/world/americas/colombia-earthquake-cali-medellin-deaths.html
-
-**They Accused a Brooklyn Doctor of Abuse. He Got a License in New Jersey.**\
-`Some former patients, many of whom are Orthodox Jewish women, are seeking financial damages in two lawsuits, but say they also want to stop the doctor from opening a new practice.`\
-https://www.nytimes.com/2026/08/11/nyregion/orthodox-doctor-women-abuse.html
-
-**NYT Spelling Bee Answers for August 11, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/08/11/crosswords/spelling-bee-forum.html
-
-**El calor extremo acecha a la capital del chile rojo de Pakistán**\
-`Es posible que los métodos tradicionales de cultivo no sobrevivan a los desafíos del cambio climático y a los costos crecientes. Los agricultores pakistaníes intentan adaptarse.`\
-https://www.nytimes.com/es/2026/08/11/espanol/mundo/pakistan-chile-rojo-cultivo.html
-
-**El alcalde que transformó Málaga, para bien o para mal**\
-`A Francisco de la Torre, alcalde de Málaga, se le atribuye haber convertido el otrora monótono puerto en un centro cultural y tecnológico. Sus críticos dicen que también destruyó el alma de la ciudad.`\
-https://www.nytimes.com/es/2026/08/11/espanol/mundo/alcalde-malaga-transformacion.html
-
-**Late Night Wonders if Trump Got a Wig**\
-`Anthony Anderson, a guest host on “Jimmy Kimmel Live,” said he’d “seen better weaves on ‘Real Housewives of Atlanta.’”`\
-https://www.nytimes.com/2026/08/11/arts/television/late-night-trump-hair.html
-
-**Farage vs. the Man With the Trash Can on His Head**\
-`This is how elections are so often fought now. Politicians slink into a constituency to meet fans, make content for their social media and melt away.`\
-https://www.nytimes.com/2026/08/11/opinion/nigel-farage-election.html
-
-**Jake Whisenant, Who Raced Up Yosemite’s El Capitan at Record Speed, Dies in a Fall**\
-`Authorities in California said he died in a climbing accident. He set a record in 2024 for climbing El Capitan’s Lurking Fear route in under three hours.`\
-https://www.nytimes.com/2026/08/11/us/jake-whisenant-climber-dead.html
-
-**Quote of the Day: Red Chile Capital of Pakistan is Wilting Under the Heat**\
-`Quotation of the Day for Monday, August 11, 2026.`\
-https://www.nytimes.com/2026/08/11/pageoneplus/quote-of-the-day-red-chile-capital-of-pakistan-is-wilting-under-the-heat.html
-
-**In a Sweltering Summer, These Italians Want Romans to Curl**\
-`By setting up a curling rink in the shadow of the Colosseum, sports officials hope to capitalize on the fresh popularity of the Winter Olympics phenomenon. Even in a heat wave and without any ice.`\
-https://www.nytimes.com/2026/08/11/world/europe/italy-curling-rome.html
-
-**France Bans Unsolicited Telemarketing Calls**\
-`Companies will no longer be allowed to advertise goods and services through cold calls without previous consent from consumers.`\
-https://www.nytimes.com/2026/08/11/world/europe/france-ban-unsolicited-telemarketing-calls.html
 
