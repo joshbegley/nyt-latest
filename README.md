@@ -1,3 +1,11 @@
+**With El-Sayed’s Victory Comes a Wave of Islamophobia**\
+`As Muslim politicians like Abdul El-Sayed in Michigan have become more prominent, they have experienced considerable bigotry. President Trump said Democrats were electing “jihadists.”`\
+https://www.nytimes.com/2026/08/11/us/politics/muslim-voters-candidates.html
+
+**Tom Clark, Private Equity Investor Turned Sheep Farmer, Dies at 85**\
+`On more than 500 acres in upstate New York, he kept a small herd of East Friesian ewes, producing award-winning cheeses and running a high-end restaurant and hotel.`\
+https://www.nytimes.com/2026/08/11/dining/tom-clark-dead.html
+
 **Today, In Short**\
 `“Hobbyamory.” Shania Twain. And puppets.`\
 https://www.nytimes.com/2026/08/11/briefing/today-in-short.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/interactive/2026/08/11/us/elections/results-alabama-us-h
 **Connecticut Fifth Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Connecticut primary election.`\
 https://www.nytimes.com/interactive/2026/08/11/us/elections/results-connecticut-us-house-5-primary.html
-
-**Alabama First Congressional District Special Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Alabama special primary election.`\
-https://www.nytimes.com/interactive/2026/08/11/us/elections/results-alabama-us-house-1-special-primary.html
-
-**Connecticut Lieutenant Governor Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Connecticut primary election.`\
-https://www.nytimes.com/interactive/2026/08/11/us/elections/results-connecticut-lieutenant-governor-primary.html
 

@@ -1,3 +1,15 @@
+**Today, In Short**\
+`“Hobbyamory.” Shania Twain. And puppets.`\
+https://www.nytimes.com/2026/08/11/briefing/today-in-short.html
+
+**Silent Films Are Back, at Least for One Night**\
+`At the Modern Silent Shorts festival, moviegoers saw an old cinematic form brought back to life with seven brand-new films.`\
+https://www.nytimes.com/2026/08/11/style/for-one-night-at-least-silent-films-are-back.html
+
+**Four Killed in Houthi Strike on Red Sea Ship, Yemeni Government Says**\
+`The Yemeni government said the ship was carrying food supplies to a port on the Bab al-Mandab Strait. The Iran-backed Houthis have not commented on the attack.`\
+https://www.nytimes.com/2026/08/11/world/middleeast/deadly-houthi-strike-red-sea.html
+
 **Frenzy for Solar Eclipse Glasses Takes Over London**\
 `Ahead of Wednesday’s rare cosmic event, thousands of people in London are searching for protective eyewear, as prices surge and stocks sell out.`\
 https://www.nytimes.com/2026/08/11/world/europe/solar-eclipse-glasses-uk.html
