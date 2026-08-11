@@ -1,3 +1,7 @@
+**Angie Craig Has Cash Edge Over Peggy Flanagan in Minnesota’s Democratic Senate Primary**\
+`Representative Angie Craig has benefited from nearly $10 million in spending from groups whose donors remain hidden, giving her an advantage in her Senate primary against Lt. Gov. Peggy Flanagan.`\
+https://www.nytimes.com/2026/08/11/us/politics/minnesota-angie-craig-fundraising-advantage.html
+
 **Democrats Accuse Trump Administration of Stonewalling Major Transit Projects**\
 `Congressional Democrats express concern that the delays involve “political considerations.”`\
 https://www.nytimes.com/2026/08/11/upshot/democrats-trump-frozen-transit-funds.html
