@@ -54,7 +54,7 @@ https://www.nytimes.com/2026/08/11/business/dealbook/ai-lending-nvidia-blackrock
 `The former president was convicted of crimes against humanity during the country’s civil war, the first verdict since he fled to Russia in 2024.`\
 https://www.nytimes.com/2026/08/11/world/middleeast/syria-bashar-al-assad-death-sentence.html
 
-**Oil Prices Rise to $90 a Barrel Over U.S.-Iran Stalemate**\
+**Oil Prices Touch $90 a Barrel Over U.S.-Iran Stalemate**\
 `The stalemate over the Iran war hardened and commercial shipping in the Strait of Hormuz continued to dwindle.`\
 https://www.nytimes.com/2026/08/11/business/oil-prices-iran-war-hormuz.html
 
