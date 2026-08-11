@@ -1,3 +1,11 @@
+**Test Your Tomato I.Q.**\
+`It’s peak tomato season. How much do you know about everyone’s favorite summer produce?`\
+https://www.nytimes.com/quiz/2026/08/11/realestate/tomato-gardening-quiz.html
+
+**The Eclipse Is Coming, and Iceland Is Looking for a Break in the Clouds**\
+`Rooms were booked years ago, and officials have been making plans. But there’s no telling where, exactly, Icelanders might go to find the best possible view.`\
+https://www.nytimes.com/2026/08/11/world/europe/solar-eclipse-iceland.html
+
 **Wildfire Forces Evacuations in Big Sur, Along California’s Famed Central Coast**\
 `A fire broke out near Highway 1 on Sunday and spread rapidly overnight, prompting evacuation orders across Monterey County.`\
 https://www.nytimes.com/2026/08/11/us/california-timber-fire-big-sur.html
