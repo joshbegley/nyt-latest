@@ -1,3 +1,7 @@
+**How Iran Adapted Its Attacks as U.S. War Munitions Dwindled**\
+`The Iranian strikes that killed three U.S. soldiers in Jordan show how quickly Iran’s war-fighting skills have evolved, as the Pentagon runs low on interceptors.`\
+https://www.nytimes.com/2026/08/11/us/politics/iran-military-base-attacks-us-munitions.html
+
 **Pensó que conocía la pobreza por haber crecido en Perú. Estados Unidos la sorprendió**\
 `Una latinoamericana conoció algunos de los códigos postales más pobres de EE. UU. y reflexiona sobre lo que significa ser pobre en el país.`\
 https://www.nytimes.com/es/2026/08/11/espanol/opinion/pobreza-estados-unidos-peru.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/08/11/us/elections/results-vermont-atto
 **Minnesota Third Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Minnesota primary election.`\
 https://www.nytimes.com/interactive/2026/08/11/us/elections/results-minnesota-us-house-3-primary.html
-
-**Minnesota Eighth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Minnesota primary election.`\
-https://www.nytimes.com/interactive/2026/08/11/us/elections/results-minnesota-us-house-8-primary.html
 
