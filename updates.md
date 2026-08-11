@@ -1,3 +1,15 @@
+**Palestinian Americans File Discrimination Lawsuit Against Columbia**\
+`The five plaintiffs, all currently or formerly affiliated with the university, said Columbia had failed to adequately protect them from harassment after the 2023 Hamas attack against Israel.`\
+https://www.nytimes.com/2026/08/11/nyregion/columbia-university-lawsuit-palestinians.html
+
+**The First Rule of Persuasion**\
+`How can you effectively argue with someone you don’t agree with? The Opinion columnist Ross Douthat joins “The Ezra Klein Show” to explain why you must first engage with the best, most high-minded version of your opponent’s position.`\
+https://www.nytimes.com/video/opinion/100000011086404/the-first-rule-of-persuasion.html
+
+**David Ellison Floats Hollywood Exit as States Threaten His Warner Bros. Deal**\
+`Mr. Ellison told Paramount executives that he was considering pulling the company out of California amid a lawsuit brought by state attorneys general.`\
+https://www.nytimes.com/2026/08/11/business/media/david-ellison-hollywood-paramount-warner-bros.html
+
 **David Ellison Floats Hollywood Exit as States Threaten His Warner Bros. Deal**\
 `Mr. Ellison told Paramount executives he is considering pulling the company out of California amid a lawsuit brought by state attorneys general.`\
 https://www.nytimes.com/2026/08/11/business/media/david-ellison-hollywood-paramount-warner-bros.html
