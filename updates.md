@@ -1,3 +1,11 @@
+**U.S. Says It Revoked More Than 175,000 Visas Under Trump**\
+`Most visas were rescinded over criminal accusations, the State Department said, while some were revoked from people who had celebrated the assassination of Charlie Kirk.`\
+https://www.nytimes.com/2026/08/11/us/politics/trump-state-department-visa-revocations.html
+
+**The Perils of Wall St.’s Race to Pour Billions More Into A.I.**\
+`Investors including BlackRock have committed an eye-popping amount to lend to the artificial intelligence industry. That enthusiasm isn’t shared by everyone.`\
+https://www.nytimes.com/2026/08/11/business/dealbook/ai-lending-nvidia-blackrock.html
+
 **Syria Sentences Former President al-Assad to Death for Crimes Against Humanity**\
 `The former president was convicted of crimes against humanity during the country’s civil war, the first verdict since he fled to Russia in 2024.`\
 https://www.nytimes.com/2026/08/11/world/middleeast/syria-bashar-al-assad-death-sentence.html
