@@ -1,3 +1,11 @@
+**The Evening: Primary Voters Go to the Polls**\
+`Plus, Iran exploits dwindling U.S. interceptors. Here’s the latest at the end of Tuesday.`\
+https://www.nytimes.com/2026/08/11/briefing/primaries-air-force-one.html
+
+**Brad Lightcap, a Top OpenAI Executive, Steps Down**\
+`Brad Lightcap, a longtime leader, said he was starting a new venture. His exit from the artificial intelligence company is the latest in a series there.`\
+https://www.nytimes.com/2026/08/11/technology/brad-lightcap-openai.html
+
 **The 10 Japanese Pantry Staples You Need in Your Kitchen**\
 `Chefs weigh in on the essentials worth stocking and recommend their favorite brands.`\
 https://www.nytimes.com/2026/08/11/t-magazine/japanese-cooking-recipe-ingredients.html

@@ -1,3 +1,7 @@
+**The Evening: Primary Voters Go to the Polls**\
+`Plus, Iran exploits dwindling U.S. interceptors. Here’s the latest at the end of Tuesday.`\
+https://www.nytimes.com/2026/08/11/briefing/primaries-air-force-one.html
+
 **The 10 Japanese Pantry Staples You Need in Your Kitchen**\
 `Chefs weigh in on the essentials worth stocking and recommend their favorite brands.`\
 https://www.nytimes.com/2026/08/11/t-magazine/japanese-cooking-recipe-ingredients.html
@@ -79,7 +83,7 @@ https://www.nytimes.com/2026/08/11/us/politics/egg-freezing-aoc.html
 https://www.nytimes.com/2026/08/11/t-magazine/beach-summer-essentials-sunscreen-swimsuits.html
 
 **Brad Lightcap, a Top OpenAI Executive, Steps Down**\
-`In OpenAI’s latest exit, Brad Lightcap, a longtime leader at the artificial intelligence company, said he was leaving to start a new venture.`\
+`Brad Lightcap, a longtime leader, said he was starting a new venture. His exit from the artificial intelligence company is the latest in a series there.`\
 https://www.nytimes.com/2026/08/11/technology/brad-lightcap-openai.html
 
 **Trump Administration Kills Annual Arctic Report Card**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/11/style/for-one-night-at-least-silent-films-are
 **Four Killed in Houthi Strike on Red Sea Ship, Yemeni Government Says**\
 `The Yemeni government said the ship was carrying food supplies to a port on the Bab al-Mandab Strait while the Iran-backed Houthis accused Saudi Arabia of transporting weapons.`\
 https://www.nytimes.com/2026/08/11/world/middleeast/deadly-houthi-strike-red-sea.html
-
-**Frenzy for Solar Eclipse Glasses Takes Over London**\
-`Ahead of Wednesday’s rare cosmic event, thousands of people in London are searching for protective eyewear, as prices surge and stocks sell out.`\
-https://www.nytimes.com/2026/08/11/world/europe/solar-eclipse-glasses-uk.html
 
