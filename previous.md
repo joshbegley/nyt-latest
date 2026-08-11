@@ -1,3 +1,7 @@
+**Miami’s Skyline Is Getting Super Tall**\
+`At least 10 new skyscrapers, five of them supertalls, will be built in the next five years. Is that such a good idea?`\
+https://www.nytimes.com/2026/08/11/realestate/miami-skyscrapers-supertalls-development.html
+
 **Cómo el nieto de Raúl Castro pasó de guardaespaldas a figura clave del poder**\
 `El enviado de la familia Castro, quien ha mantenido conversaciones con el gobierno de Trump, fue mencionado en su momento en un caso contra una red de contrabando cubana.`\
 https://www.nytimes.com/es/2026/08/11/espanol/america-latina/cuba-castro-mafia.html
@@ -50,7 +54,7 @@ https://www.nytimes.com/2026/08/11/business/dealbook/ai-lending-nvidia-blackrock
 `The former president was convicted of crimes against humanity during the country’s civil war, the first verdict since he fled to Russia in 2024.`\
 https://www.nytimes.com/2026/08/11/world/middleeast/syria-bashar-al-assad-death-sentence.html
 
-**Oil Prices Rise to $90 a Barrel Over U.S.-Iran Stalemate**\
+**Oil Prices Touch $90 a Barrel Over U.S.-Iran Stalemate**\
 `The stalemate over the Iran war hardened and commercial shipping in the Strait of Hormuz continued to dwindle.`\
 https://www.nytimes.com/2026/08/11/business/oil-prices-iran-war-hormuz.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/11/world/americas/cuban-mafia-quintana-roo.html
 **Should You Be Dating While Unemployed?**\
 `If you’re single and unemployed, it may make sense to prioritize job hunting. But that doesn’t have to mean putting your life on pause.`\
 https://www.nytimes.com/2026/08/11/business/dating-unemployed.html
-
-**This Playwright Says He’s Done With Maine. Let’s Hope Not.**\
-`John Cariani remains drawn to the state, despite having moved away years ago. A new production of his “Darker the Night, Brighter the Stars” illustrates why.`\
-https://www.nytimes.com/2026/08/11/theater/john-cariani-darker-the-night-brighter-the-stars.html
 

@@ -1,3 +1,11 @@
+**Miami’s Skyline Is Getting Super Tall**\
+`At least 10 new skyscrapers, five of them supertalls, will be built in the next five years. Is that such a good idea?`\
+https://www.nytimes.com/2026/08/11/realestate/miami-skyscrapers-supertalls-development.html
+
+**Oil Prices Touch $90 a Barrel Over U.S.-Iran Stalemate**\
+`The stalemate over the Iran war hardened and commercial shipping in the Strait of Hormuz continued to dwindle.`\
+https://www.nytimes.com/2026/08/11/business/oil-prices-iran-war-hormuz.html
+
 **Cómo el nieto de Raúl Castro pasó de guardaespaldas a figura clave del poder**\
 `El enviado de la familia Castro, quien ha mantenido conversaciones con el gobierno de Trump, fue mencionado en su momento en un caso contra una red de contrabando cubana.`\
 https://www.nytimes.com/es/2026/08/11/espanol/america-latina/cuba-castro-mafia.html
