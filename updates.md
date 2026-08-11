@@ -1,3 +1,11 @@
+**With El-Sayed’s Victory Comes a Wave of Islamophobia**\
+`As Muslim politicians like Abdul El-Sayed in Michigan have become more prominent, they have experienced considerable bigotry. President Trump said Democrats were electing “jihadists.”`\
+https://www.nytimes.com/2026/08/11/us/politics/muslim-voters-candidates.html
+
+**Tom Clark, Private Equity Investor Turned Sheep Farmer, Dies at 85**\
+`On more than 500 acres in upstate New York, he kept a small herd of East Friesian ewes, producing award-winning cheeses and running a high-end restaurant and hotel.`\
+https://www.nytimes.com/2026/08/11/dining/tom-clark-dead.html
+
 **Today, In Short**\
 `“Hobbyamory.” Shania Twain. And puppets.`\
 https://www.nytimes.com/2026/08/11/briefing/today-in-short.html
