@@ -1,3 +1,19 @@
+**Quote of the Day: Red Chile Capital of Pakistan is Wilting Under the Heat**\
+`Quotation of the Day for Monday, August 11, 2026.`\
+https://www.nytimes.com/2026/08/11/pageoneplus/quote-of-the-day-red-chile-capital-of-pakistan-is-wilting-under-the-heat.html
+
+**In a Sweltering Summer, These Italians Want Romans to Curl**\
+`By setting up a curling rink in the shadow of the Colosseum, sports officials hope to capitalize on the fresh popularity of the Winter Olympics phenomenon. Even in a heat wave and without any ice.`\
+https://www.nytimes.com/2026/08/11/world/europe/italy-curling-rome.html
+
+**France Bans Unsolicited Telemarketing Calls**\
+`Companies will no longer be allowed to advertise goods and services through cold calls without previous consent from consumers.`\
+https://www.nytimes.com/2026/08/11/world/europe/france-ban-unsolicited-telemarketing-calls.html
+
+**Trump Said to Have Secretly Used Military Jet to Leave Turkey Amid Threats**\
+`President Trump hid in an airport catering container and was taken to a military jet for a secret flight out of country after the NATO summit last month.`\
+https://www.nytimes.com/2026/08/10/us/politics/trump-plane-ruse.html
+
 **Trump Said to Have Secretly Used Military Jet to Leave Turkey Amid Threats**\
 `President Trump hid in an airport catering cart and was taken to a military jet for a secret flight out of country after the NATO summit last month.`\
 https://www.nytimes.com/2026/08/10/us/politics/trump-plane-ruse.html
