@@ -1,3 +1,7 @@
+**Californians Criticize Federal Efforts to Control the State’s Coast**\
+`Environmentalists and others warned at a hearing on Monday that the Trump administration’s attempt to strip power from California’s coastal protection agency would endanger the shoreline.`\
+https://www.nytimes.com/2026/08/10/us/california-coastal-commission-climate-trump.html
+
 **NYT Crossword Answers for July 11, 2026**\
 `Wade Bednar makes his New York Times Crossword debut.`\
 https://www.nytimes.com/2026/08/10/crosswords/daily-puzzle-2026-08-11.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/10/dining/sean-macpherson-montauk-lighthouse-caf
 **Hegseth Renames Base for Lindsey Graham**\
 `Joint Base Charleston will now be known as Joint Base Lindsey Graham. The senator served as a judge advocate general before retiring as a colonel in 2015.`\
 https://www.nytimes.com/2026/08/10/us/politics/hegseth-base-lindsey-graham.html
-
-**The Teenager Chasing Solar Eclipse Totality**\
-`A 17-year-old photographer, who goes by V, traveled from the United States to Spain to witness Wednesday’s total solar eclipse. He became “obsessed” with the cosmic events after seeing one two years ago.`\
-https://www.nytimes.com/video/world/europe/100000011069592/total-solar-eclipse-mallorca.html
 
