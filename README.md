@@ -1,3 +1,7 @@
+**Everything You Need for the Perfect Beach Day: The Best Sunscreen, Swimsuits and Gear**\
+`A roundup of the gear and accessories that five seasoned regulars never regret having toted onto the sand.`\
+https://www.nytimes.com/2026/08/11/t-magazine/beach-summer-essentials-sunscreen-swimsuits.html
+
 **Brad Lightcap, a Top OpenAI Executive, Steps Down**\
 `In OpenAI’s latest exit, Brad Lightcap, a longtime leader at the artificial intelligence company, said he was leaving to start a new venture.`\
 https://www.nytimes.com/2026/08/11/technology/brad-lightcap-openai.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/08/11/us/elections/results-wisconsin-se
 **Vermont Secretary of State Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Vermont primary election.`\
 https://www.nytimes.com/interactive/2026/08/11/us/elections/results-vermont-secretary-of-state-primary.html
-
-**Wisconsin Lieutenant Governor Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Wisconsin primary election.`\
-https://www.nytimes.com/interactive/2026/08/11/us/elections/results-wisconsin-lieutenant-governor-primary.html
 
