@@ -1,3 +1,7 @@
+**Terremoto en Colombia: lo que sabemos**\
+`El sismo de magnitud 7,4, causó la muerte de más de 100 personas y provocó daños graves en las ciudades de Cali, Pereira y Manizales.`\
+https://www.nytimes.com/es/2026/08/11/espanol/america-latina/terremoto-colombia-que-paso.html
+
 **3 Presidents Before Trump Who Obscured Their Risky Travel Plans**\
 `President Trump was part of a particularly elaborate deception last month, boarding one jet before being spirited away to another.`\
 https://www.nytimes.com/2026/08/11/world/americas/presidents-secret-flights-trump-turkey.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/08/11/us/elections/results-connecticut-
 **Connecticut Attorney General Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Connecticut primary election.`\
 https://www.nytimes.com/interactive/2026/08/11/us/elections/results-connecticut-attorney-general-primary.html
-
-**Connecticut First Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Connecticut primary election.`\
-https://www.nytimes.com/interactive/2026/08/11/us/elections/results-connecticut-us-house-1-primary.html
 
