@@ -1,3 +1,7 @@
+**His Start-Up’s Goal: A.I. That Is Trainable and Not Controlled by a Big Company**\
+`A co-founder of xAI is going all in on building open-source artificial intelligence so that “anyone can control and shape A.I. for their own needs.”`\
+https://www.nytimes.com/2026/08/11/technology/his-start-ups-goal-ai-that-is-trainable-and-not-controlled-by-a-big-company.html
+
 **Three Political Tests**\
 `We look at three crucial primary elections.`\
 https://www.nytimes.com/2026/08/11/briefing/three-political-tests.html

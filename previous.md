@@ -1,3 +1,7 @@
+**His Start-Up’s Goal: A.I. That Is Trainable and Not Controlled by a Big Company**\
+`A co-founder of xAI is going all in on building open-source artificial intelligence so that “anyone can control and shape A.I. for their own needs.”`\
+https://www.nytimes.com/2026/08/11/technology/his-start-ups-goal-ai-that-is-trainable-and-not-controlled-by-a-big-company.html
+
 **Three Political Tests**\
 `We look at three crucial primary elections.`\
 https://www.nytimes.com/2026/08/11/briefing/three-political-tests.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/08/11/business/home-equity-credit-card-debt.html
 **‘Saturday Night Live’ U.K. Stars Get a Hero’s Welcome at the Edinburgh Fringe**\
 `As comics like Ania Magliano return to the festival for the first time since the show became a surprise hit, audiences are pouring in to catch them.`\
 https://www.nytimes.com/2026/08/11/arts/saturday-night-live-edinburgh-fringe.html
-
-**Book Review: ‘Sunrise,’ by Téa Obreht**\
-`In “Sunrise,” Téa Obreht mashes up Western gothic, murder mystery and survival saga.`\
-https://www.nytimes.com/2026/08/11/books/review/sunrise-tea-obreht.html
 
