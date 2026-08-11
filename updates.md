@@ -1,3 +1,11 @@
+**Terremoto en Colombia: la búsqueda de sobrevivientes continúa**\
+`“Escuchamos esos gritos”, dijo un rescatista en Cali, donde se vive una carrera contrarreloj para encontrar personas con vida.`\
+https://www.nytimes.com/es/2026/08/11/espanol/america-latina/terremoto-colombia-sobrevivientes-busqueda-rescate.html
+
+**Before Trump’s Catering Container Ruse, Other Presidents Obscured Risky Travel Plans**\
+`President Trump was part of a particularly elaborate deception last month, boarding one jet before being spirited away to another.`\
+https://www.nytimes.com/2026/08/11/world/americas/presidents-secret-flights-trump-turkey.html
+
 **Rescuers Race to Find Survivors After Deadly Colombian Quake**\
 `Rescuers and residents in Colombia dug through rubble in search of survivors of the deadly 7.4-magnitude earthquake that rocked the country on Monday.`\
 https://www.nytimes.com/video/world/americas/100000011084742/colombia-earthquake-survivors-rescue.html
