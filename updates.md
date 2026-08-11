@@ -1,3 +1,19 @@
+**Ex-Marine Robert Gilman Is Freed by Russia After 4 Years in Prison**\
+`The Kremlin released Robert Gilman, whose family and an advocacy group had said he was in dire physical condition, on “a humanitarian basis,” President Trump said.`\
+https://www.nytimes.com/2026/08/11/world/europe/russia-robert-gilman-release.html
+
+**Reducing Childhood Vaccinations Is ‘Unconscionable’**\
+`“The president’s action will kill children,” a doctor writes. “This is not hyperbole.” Also: President Trump and A.I.; support for global health.`\
+https://www.nytimes.com/2026/08/11/opinion/childhood-vaccinations.html
+
+**Elder Brings Its British Indian Chophouse Chops to Manhattan**\
+`Italian filtered through the Antipodes, garden dining in Prospect Heights and more restaurant news.`\
+https://www.nytimes.com/2026/08/11/dining/nyc-restaurant-news.html
+
+**University of Michigan Will Ease Up on Grades for Student Mental Health**\
+`The University of Michigan will make first-semester grades pass or fail, to encourage students to try different classes and lessen fears of what a low grade could mean.`\
+https://www.nytimes.com/2026/08/11/us/university-michigan-grades-freshmen-pass-fail.html
+
 **How Iran Adapted Its Attacks as U.S. War Munitions Dwindled**\
 `The Iranian strikes that killed three U.S. soldiers in Jordan show how quickly Iran’s war-fighting skills have evolved, as the Pentagon runs low on interceptors.`\
 https://www.nytimes.com/2026/08/11/us/politics/iran-military-base-attacks-us-munitions.html

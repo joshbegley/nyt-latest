@@ -1,3 +1,15 @@
+**Ex-Marine Robert Gilman Is Freed by Russia After 4 Years in Prison**\
+`The Kremlin released Robert Gilman, whose family and an advocacy group had said he was in dire physical condition, on “a humanitarian basis,” President Trump said.`\
+https://www.nytimes.com/2026/08/11/world/europe/russia-robert-gilman-release.html
+
+**Reducing Childhood Vaccinations Is ‘Unconscionable’**\
+`“The president’s action will kill children,” a doctor writes. “This is not hyperbole.” Also: President Trump and A.I.; support for global health.`\
+https://www.nytimes.com/2026/08/11/opinion/childhood-vaccinations.html
+
+**Elder Brings Its British Indian Chophouse Chops to Manhattan**\
+`Italian filtered through the Antipodes, garden dining in Prospect Heights and more restaurant news.`\
+https://www.nytimes.com/2026/08/11/dining/nyc-restaurant-news.html
+
 **How Iran Adapted Its Attacks as U.S. War Munitions Dwindled**\
 `The Iranian strikes that killed three U.S. soldiers in Jordan show how quickly Iran’s war-fighting skills have evolved, as the Pentagon runs low on interceptors.`\
 https://www.nytimes.com/2026/08/11/us/politics/iran-military-base-attacks-us-munitions.html
@@ -31,7 +43,7 @@ https://www.nytimes.com/es/2026/08/11/espanol/america-latina/terremoto-colombia-
 https://www.nytimes.com/2026/08/11/world/americas/presidents-secret-flights-trump-turkey.html
 
 **University of Michigan Will Ease Up on Grades for Student Mental Health**\
-`The University of Michigan will make first-semester grades pass or fail, to encourage students to try different classes and lessen fears of the consequences of a low grade.`\
+`The University of Michigan will make first-semester grades pass or fail, to encourage students to try different classes and lessen fears of what a low grade could mean.`\
 https://www.nytimes.com/2026/08/11/us/university-michigan-grades-freshmen-pass-fail.html
 
 **Are We Too Uptight About Feet?**\
@@ -185,16 +197,4 @@ https://www.nytimes.com/interactive/2026/08/11/us/elections/results-minnesota-us
 **Minnesota Fourth Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Minnesota primary election.`\
 https://www.nytimes.com/interactive/2026/08/11/us/elections/results-minnesota-us-house-4-primary.html
-
-**Minnesota Second Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Minnesota primary election.`\
-https://www.nytimes.com/interactive/2026/08/11/us/elections/results-minnesota-us-house-2-primary.html
-
-**Vermont Attorney General Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Vermont primary election.`\
-https://www.nytimes.com/interactive/2026/08/11/us/elections/results-vermont-attorney-general-primary.html
-
-**Minnesota Third Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Minnesota primary election.`\
-https://www.nytimes.com/interactive/2026/08/11/us/elections/results-minnesota-us-house-3-primary.html
 
