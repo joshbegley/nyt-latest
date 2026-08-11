@@ -1,3 +1,7 @@
+**Human-Shaped Robots at This Car Factory Can Perform Humanlike Tasks**\
+`Humanoids — human-shaped robots — at this BMW factory in South Carolina are expected to respond to voice commands, solve problems and react to unforeseen events. U.S. automakers hope that this technology can give them a fighting chance against their Chinese rivals that enjoy lower costs.`\
+https://www.nytimes.com/video/business/economy/100000011085557/humanoid-robots-bmw-car-factory.html
+
 **Searching for Survivors After Colombia’s Earthquake**\
 `Our Colombia-based reporter Genevieve Glatsky witnesses the search for survivors after a five-story apartment building in the city of Cali collapsed in an earthquake.`\
 https://www.nytimes.com/video/world/americas/100000011085349/searching-for-survivors-after-colombias-earthquake.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/08/11/us/elections/results-wisconsin-us
 **Wisconsin Eighth Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Wisconsin primary election.`\
 https://www.nytimes.com/interactive/2026/08/11/us/elections/results-wisconsin-us-house-8-primary.html
-
-**Wisconsin Sixth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Wisconsin primary election.`\
-https://www.nytimes.com/interactive/2026/08/11/us/elections/results-wisconsin-us-house-6-primary.html
 
