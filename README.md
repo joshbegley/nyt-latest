@@ -1,3 +1,7 @@
+**These Are Rachel Antonoff’s Favorite Restaurants**\
+`The food-loving fashion designer tackles the Where to Eat restaurant questionnaire.`\
+https://www.nytimes.com/2026/08/11/dining/fashion-designer-rachel-antonoff.html
+
 **Cómo se frustró una investigación sobre los nexos de Trump con Rusia**\
 `Documentos publicados por la Casa Blanca arrojan luz sobre una indagatoria poco conocida en torno a la campaña presidencial de 2016 de Trump.`\
 https://www.nytimes.com/es/2026/08/11/espanol/estados-unidos/trump-rusia-eleccion-presidencial.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/08/11/us/elections/results-wisconsin-us
 **Vermont At-Large Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Vermont primary election.`\
 https://www.nytimes.com/interactive/2026/08/11/us/elections/results-vermont-us-house-at-large-primary.html
-
-**Wisconsin Third Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Wisconsin primary election.`\
-https://www.nytimes.com/interactive/2026/08/11/us/elections/results-wisconsin-us-house-3-primary.html
 
