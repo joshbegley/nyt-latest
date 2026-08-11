@@ -1,3 +1,7 @@
+**Russian Civilian Deaths Are Growing Rapidly as Ukraine Expands Its Air War**\
+`The higher tempo of Ukrainian strikes has fueled discontent among Russians, but it is far from clear that it will change the Kremlin’s calculus about the war.`\
+https://www.nytimes.com/2026/08/11/world/europe/russia-ukraine-civilian-casualties.html
+
 **The U.S. Missile Stockpile Is Dangerously Low**\
 `The United States’ war with Iran has caused a critical weaponry shortage. That leaves the U.S. military vulnerable and complicates Washington’s efforts to end the war.`\
 https://www.nytimes.com/2026/08/11/podcasts/the-daily/iran-us-missile-stockpile-trump.html
