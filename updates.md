@@ -1,3 +1,7 @@
+**What We Know About the Earthquake in Colombia**\
+`The 7.4-magnitude quake, which killed more than 100 people and damaged hundreds of buildings, was the strongest recorded in Colombia in a decade.`\
+https://www.nytimes.com/2026/08/11/world/americas/colombia-earthquake-cali-medellin-deaths.html
+
 **They Accused a Brooklyn Doctor of Abuse. He Got a License in New Jersey.**\
 `Some former patients, many of whom are Orthodox Jewish women, are seeking financial damages in two lawsuits, but say they also want to stop the doctor from opening a new practice.`\
 https://www.nytimes.com/2026/08/11/nyregion/orthodox-doctor-women-abuse.html
