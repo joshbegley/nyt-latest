@@ -1,3 +1,23 @@
+**The U.S. Missile Stockpile Is Dangerously Low**\
+`The United States’ war with Iran has caused a critical weaponry shortage. That leaves the U.S. military vulnerable and complicates Washington’s efforts to end the war.`\
+https://www.nytimes.com/2026/08/11/podcasts/the-daily/iran-us-missile-stockpile-trump.html
+
+**Officials Reveal a Secret Ruse to Evacuate Trump, and the F.D.A. Takes On a Food Safety Loophole**\
+`Plus, when you accidentally upset “Harry Potter” fans.`\
+https://www.nytimes.com/2026/08/11/podcasts/the-headlines/evacuate-trump-fda-food-safety-loophole.html
+
+**NYT Connections Answers for August 12, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Aug. 12, 2026.`\
+https://www.nytimes.com/2026/08/11/crosswords/connections-companion-1158.html
+
+**NYT Strands Hints for Aug. 12, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Aug. 12, 2026.`\
+https://www.nytimes.com/2026/08/11/crosswords/strands-sidekick-892.html
+
+**Today's Wordle Hints for August 12, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Aug. 12, 2026.`\
+https://www.nytimes.com/2026/08/11/crosswords/wordle-review-1880.html
+
 **The Eclipse Is Coming, and Iceland Is … Mostly Ready**\
 `Rooms were booked years ago, and officials have been making plans. But there’s no telling where, exactly, Icelanders might go to find the best possible view.`\
 https://www.nytimes.com/2026/08/11/world/europe/solar-eclipse-iceland.html
@@ -169,24 +189,4 @@ https://www.nytimes.com/2026/08/11/books/review/chang-rae-lee-tender-age.html
 **Book Review: ‘Under the Falls,’ by Richard Russo**\
 `In Richard Russo’s new novel, “Under the Falls,” a singer reckons with his troubled past and the community he left behind.`\
 https://www.nytimes.com/2026/08/11/books/review/richard-russo-under-the-falls.html
-
-**Musical Manuscripts Are Intimate and Transporting. See Why.**\
-`Franz Welser-Möst, the Cleveland Orchestra’s music director, takes us on a tour through the handwritten score of Mahler’s “Resurrection” Symphony.`\
-https://www.nytimes.com/2026/08/11/arts/music/mahler-manuscript-cleveland.html
-
-**How Raúl Castro’s Grandson, Raúl G. Rodríguez Castro, Became a Power Broker**\
-`The Castro family envoy, Raúl G. Rodríguez Castro, who has been in talks with the Trump administration, was once named in a case targeting a Cuban smuggling ring.`\
-https://www.nytimes.com/2026/08/11/world/americas/raul-castro-trump-cuba.html
-
-**How the Bayeux Tapestry Got to the British Museum**\
-`French art experts insisted the fragile 900-year-old masterpiece could never travel. Political will, cutting-edge engineering and unorthodox diplomacy proved them wrong.`\
-https://www.nytimes.com/2026/08/11/arts/design/bayeux-tapestry-british-museum.html
-
-**The Perseids Meteor Shower Is Peaking. Here’s How to Watch.**\
-`The Perseids will be most active on Wednesday into Thursday morning, on the moonless night after a total solar eclipse.`\
-https://www.nytimes.com/2026/08/11/science/perseids-meteor-shower.html
-
-**A Syrian Holdout Province, Sweida, Fears a Government Takeover**\
-`In Sweida Province, dominated by the country’s Druse minority, many say it is just a matter of time before the central government moves to assert control over the region.`\
-https://www.nytimes.com/2026/08/11/world/middleeast/syria-sweida-province-druse-government.html
 
