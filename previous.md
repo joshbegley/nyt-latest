@@ -1,3 +1,7 @@
+**Late Night Wonders if Trump Got a Wig**\
+`Anthony Anderson, a guest host on “Jimmy Kimmel Live,” said he’d “seen better weaves on ‘Real Housewives of Atlanta.’”`\
+https://www.nytimes.com/2026/08/11/arts/television/late-night-trump-hair.html
+
 **Farage vs. the Man With the Trash Can on His Head**\
 `This is how elections are so often fought now. Politicians slink into a constituency to meet fans, make content for their social media and melt away.`\
 https://www.nytimes.com/2026/08/11/opinion/nigel-farage-election.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/10/us/politics/bernie-sanders-ai-moratorum.html
 **Images Emerge From Quake-Battered Colombia**\
 `The most powerful temblor in a decade struck in a Pacific Coast region, killing over 100 people.`\
 https://www.nytimes.com/2026/08/10/world/americas/colombia-earthquake-photos.html
-
-**Headline test**\
-`summary`\
-https://www.nytimes.com/video/embedded/arts/100000011083855/headline-test.html
 

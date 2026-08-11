@@ -1,3 +1,7 @@
+**El alcalde que transformó Málaga, para bien o para mal**\
+`A Francisco de la Torre, alcalde de Málaga, se le atribuye haber convertido el otrora monótono puerto en un centro cultural y tecnológico. Sus críticos dicen que también destruyó el alma de la ciudad.`\
+https://www.nytimes.com/es/2026/08/11/espanol/mundo/alcalde-malaga-transformacion.html
+
 **Late Night Wonders if Trump Got a Wig**\
 `Anthony Anderson, a guest host on “Jimmy Kimmel Live,” said he’d “seen better weaves on ‘Real Housewives of Atlanta.’”`\
 https://www.nytimes.com/2026/08/11/arts/television/late-night-trump-hair.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/10/us/jackie-bald-eagle-california-dead.html
 **Sanders Calls on A.I. Companies to Pause Development to ‘Avoid Disaster’**\
 `Senator Bernie Sanders warned that corporations have already lost control of technology that could cause “potentially cataclysmic results” for millions of people.`\
 https://www.nytimes.com/2026/08/10/us/politics/bernie-sanders-ai-moratorum.html
-
-**Images Emerge From Quake-Battered Colombia**\
-`The most powerful temblor in a decade struck in a Pacific Coast region, killing over 100 people.`\
-https://www.nytimes.com/2026/08/10/world/americas/colombia-earthquake-photos.html
 
