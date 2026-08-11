@@ -1,3 +1,7 @@
+**Three Political Tests**\
+`We look at three crucial primary elections.`\
+https://www.nytimes.com/2026/08/11/briefing/three-political-tests.html
+
 **Russian Civilian Deaths Are Growing Rapidly as Ukraine Expands Its Air War**\
 `The higher tempo of Ukrainian strikes has fueled discontent among Russians, but it is far from clear that it will change the Kremlin’s calculus about the war.`\
 https://www.nytimes.com/2026/08/11/world/europe/russia-ukraine-civilian-casualties.html

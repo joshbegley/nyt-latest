@@ -1,3 +1,7 @@
+**Three Political Tests**\
+`We look at three crucial primary elections.`\
+https://www.nytimes.com/2026/08/11/briefing/three-political-tests.html
+
 **Russian Civilian Deaths Are Growing Rapidly as Ukraine Expands Its Air War**\
 `The higher tempo of Ukrainian strikes has fueled discontent among Russians, but it is far from clear that it will change the Kremlin’s calculus about the war.`\
 https://www.nytimes.com/2026/08/11/world/europe/russia-ukraine-civilian-casualties.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/08/11/arts/saturday-night-live-edinburgh-fringe.htm
 **Book Review: ‘Sunrise,’ by Téa Obreht**\
 `In “Sunrise,” Téa Obreht mashes up Western gothic, murder mystery and survival saga.`\
 https://www.nytimes.com/2026/08/11/books/review/sunrise-tea-obreht.html
-
-**Book Review: ‘A Tender Age,’ by Chang-rae Lee**\
-`In his new book, Chang-rae Lee follows a 10-year-old into the social powder kegs of schoolyards and summer camps.`\
-https://www.nytimes.com/2026/08/11/books/review/chang-rae-lee-tender-age.html
 
