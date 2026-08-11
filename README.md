@@ -1,3 +1,7 @@
+**A 5th Summer Heat Wave Will Hit Europe This Week. Here’s What to Know.**\
+`The latest heat wave is the fifth to batter European countries since May as scientists warn that the continent is warming faster than any other.`\
+https://www.nytimes.com/2026/08/11/weather/europe-extreme-heat-wave-uk-france-spain.html
+
 **Ari Emanuel’s Company to Acquire 7 Broadway Theaters and 10 in the West End**\
 `The purchase of ATG Entertainment, which operates dozens of venues worldwide, will require regulatory approval.`\
 https://www.nytimes.com/2026/08/11/theater/ari-emanuel-atg-entertainment.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/video/arts/100000011063782/instagram-vhs-dates-fake-dati
 **Restaurant Review: Bistrot Ha in New York**\
 `The follow-up to the ultra-popular Ha’s Snack Bar is bigger, more ambitious and intermittently brilliant. It can both bewitch and confound.`\
 https://www.nytimes.com/2026/08/11/dining/restaurant-review-bistrot-ha-nyc.html
-
-**New Evidence Shows Agents Using Slurs, Bolstering Profiling Claims**\
-`Body-camera video and other court evidence capture federal agents using slurs and targeting Latinos while bypassing white bystanders during immigration sweeps in Chicago and Los Angeles`\
-https://www.nytimes.com/2026/08/11/us/videos-ice-agents-racial-profiling.html
 
