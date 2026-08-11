@@ -1,3 +1,11 @@
+**How Abdul El-Sayed Can Win Michigan**\
+`A swing-state Democratic Senate nominee needs to keep saying this: Jews have a right to a Jewish homeland.`\
+https://www.nytimes.com/2026/08/11/opinion/abdul-el-sayed-michigan-jews-israel-mamdani-aipac.html
+
+**Spotify Will Label A.I. Artists and Avoid Recommending Them**\
+`The new label, which will begin to be applied next month, is an effort by the streaming service to be more transparent about A.I.-generated music on its app.`\
+https://www.nytimes.com/2026/08/11/arts/music/spotify-artificial-intelligence-music.html
+
 **Ocasio-Cortez Opened Up About Freezing her Eggs. She Got Women Talking.**\
 `Many women say being open about the fertility treatment is a form of empowerment. But critics say all the talk can be misleading.`\
 https://www.nytimes.com/2026/08/11/us/politics/egg-freezing-aoc.html
