@@ -1,3 +1,7 @@
+**Key Races to Watch in Tuesday’s Primary Elections**\
+`South Carolina Republicans will decide who will succeed Lindsey Graham as their party’s Senate nominee. Democrats must choose between moderate and progressive candidates in Wisconsin and Minnesota.`\
+https://www.nytimes.com/video/us/politics/100000011084577/elections-midterms-primaries-minnesota-sc-wisconsin.html
+
 **‘Take the Keys Away’**\
 `How an exiled consigliere and a “culture of arrogance” have undermined the legacy of Bill Belichick, the former coach of the New England Patriots.`\
 https://www.nytimes.com/2026/08/11/podcasts/take-the-keys-away.html

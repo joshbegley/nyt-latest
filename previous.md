@@ -1,3 +1,7 @@
+**Key Races to Watch in Tuesday’s Primary Elections**\
+`South Carolina Republicans will decide who will succeed Lindsey Graham as their party’s Senate nominee. Democrats must choose between moderate and progressive candidates in Wisconsin and Minnesota.`\
+https://www.nytimes.com/video/us/politics/100000011084577/elections-midterms-primaries-minnesota-sc-wisconsin.html
+
 **‘Take the Keys Away’**\
 `How an exiled consigliere and a “culture of arrogance” have undermined the legacy of Bill Belichick, the former coach of the New England Patriots.`\
 https://www.nytimes.com/2026/08/11/podcasts/take-the-keys-away.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/08/11/world/middleeast/syria-sweida-province-druse-
 **Should Letting Children Play Alone Outside Be a Crime?**\
 `Some parents have been surprised to find themselves in the legal system’s cross hairs.`\
 https://www.nytimes.com/2026/08/11/well/family/children-safety-independence-laws.html
-
-**What We Know About the Earthquake in Colombia**\
-`The 7.4-magnitude quake, which killed more than 100 people and damaged hundreds of buildings, was the strongest recorded in Colombia in a decade.`\
-https://www.nytimes.com/2026/08/11/world/americas/colombia-earthquake-cali-medellin-deaths.html
 
