@@ -194,7 +194,3 @@ https://www.nytimes.com/interactive/2026/08/11/us/elections/results-alabama-spec
 `Get live results and maps from the 2026 Wisconsin primary election.`\
 https://www.nytimes.com/interactive/2026/08/11/us/elections/results-wisconsin-us-house-7-primary.html
 
-**Wisconsin Attorney General Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Wisconsin primary election.`\
-https://www.nytimes.com/interactive/2026/08/11/us/elections/results-wisconsin-attorney-general-primary.html
-
