@@ -30,9 +30,101 @@ https://www.nytimes.com/interactive/2026/08/11/us/elections/results-connecticut-
 `Get live results and maps from the 2026 Alabama special primary elections.`\
 https://www.nytimes.com/interactive/2026/08/11/us/elections/results-alabama-special-primary.html
 
+**Wisconsin Seventh Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Wisconsin primary election.`\
+https://www.nytimes.com/interactive/2026/08/11/us/elections/results-wisconsin-us-house-7-primary.html
+
+**Wisconsin Attorney General Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Wisconsin primary election.`\
+https://www.nytimes.com/interactive/2026/08/11/us/elections/results-wisconsin-attorney-general-primary.html
+
+**Wisconsin Fifth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Wisconsin primary election.`\
+https://www.nytimes.com/interactive/2026/08/11/us/elections/results-wisconsin-us-house-5-primary.html
+
+**Wisconsin Second Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Wisconsin primary election.`\
+https://www.nytimes.com/interactive/2026/08/11/us/elections/results-wisconsin-us-house-2-primary.html
+
+**Wisconsin Eighth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Wisconsin primary election.`\
+https://www.nytimes.com/interactive/2026/08/11/us/elections/results-wisconsin-us-house-8-primary.html
+
+**Wisconsin Sixth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Wisconsin primary election.`\
+https://www.nytimes.com/interactive/2026/08/11/us/elections/results-wisconsin-us-house-6-primary.html
+
+**Vermont At-Large Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Vermont primary election.`\
+https://www.nytimes.com/interactive/2026/08/11/us/elections/results-vermont-us-house-at-large-primary.html
+
+**Wisconsin Third Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Wisconsin primary election.`\
+https://www.nytimes.com/interactive/2026/08/11/us/elections/results-wisconsin-us-house-3-primary.html
+
+**Wisconsin Fourth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Wisconsin primary election.`\
+https://www.nytimes.com/interactive/2026/08/11/us/elections/results-wisconsin-us-house-4-primary.html
+
+**Wisconsin First Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Wisconsin primary election.`\
+https://www.nytimes.com/interactive/2026/08/11/us/elections/results-wisconsin-us-house-1-primary.html
+
+**Wisconsin Secretary of State Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Wisconsin primary election.`\
+https://www.nytimes.com/interactive/2026/08/11/us/elections/results-wisconsin-secretary-of-state-primary.html
+
+**Vermont Secretary of State Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Vermont primary election.`\
+https://www.nytimes.com/interactive/2026/08/11/us/elections/results-vermont-secretary-of-state-primary.html
+
+**Wisconsin Lieutenant Governor Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Wisconsin primary election.`\
+https://www.nytimes.com/interactive/2026/08/11/us/elections/results-wisconsin-lieutenant-governor-primary.html
+
+**Vermont Lieutenant Governor Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Vermont primary election.`\
+https://www.nytimes.com/interactive/2026/08/11/us/elections/results-vermont-lieutenant-governor-primary.html
+
+**Minnesota Sixth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Minnesota primary election.`\
+https://www.nytimes.com/interactive/2026/08/11/us/elections/results-minnesota-us-house-6-primary.html
+
+**Minnesota Seventh Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Minnesota primary election.`\
+https://www.nytimes.com/interactive/2026/08/11/us/elections/results-minnesota-us-house-7-primary.html
+
+**Vermont Governor Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Vermont primary election.`\
+https://www.nytimes.com/interactive/2026/08/11/us/elections/results-vermont-governor-primary.html
+
+**Minnesota Fifth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Minnesota primary election.`\
+https://www.nytimes.com/interactive/2026/08/11/us/elections/results-minnesota-us-house-5-primary.html
+
+**Minnesota Auditor Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Minnesota primary election.`\
+https://www.nytimes.com/interactive/2026/08/11/us/elections/results-minnesota-auditor-primary.html
+
+**Minnesota First Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Minnesota primary election.`\
+https://www.nytimes.com/interactive/2026/08/11/us/elections/results-minnesota-us-house-1-primary.html
+
+**Minnesota Attorney General Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Minnesota primary election.`\
+https://www.nytimes.com/interactive/2026/08/11/us/elections/results-minnesota-attorney-general-primary.html
+
+**Minnesota U.S. Senate Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Minnesota primary election.`\
+https://www.nytimes.com/interactive/2026/08/11/us/elections/results-minnesota-us-senate-primary.html
+
 **Minnesota Fourth Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Minnesota primary election.`\
 https://www.nytimes.com/interactive/2026/08/11/us/elections/results-minnesota-us-house-4-primary.html
+
+**Minnesota Second Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Minnesota primary election.`\
+https://www.nytimes.com/interactive/2026/08/11/us/elections/results-minnesota-us-house-2-primary.html
 
 **Vermont Attorney General Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Vermont primary election.`\
@@ -105,96 +197,4 @@ https://www.nytimes.com/interactive/2026/08/11/us/elections/results-alabama-us-h
 **Connecticut Second Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Connecticut primary election.`\
 https://www.nytimes.com/interactive/2026/08/11/us/elections/results-connecticut-us-house-2-primary.html
-
-**Connecticut Fourth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Connecticut primary election.`\
-https://www.nytimes.com/interactive/2026/08/11/us/elections/results-connecticut-us-house-4-primary.html
-
-**Connecticut Comptroller Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Connecticut primary election.`\
-https://www.nytimes.com/interactive/2026/08/11/us/elections/results-connecticut-comptroller-primary.html
-
-**Wisconsin Seventh Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Wisconsin primary election.`\
-https://www.nytimes.com/interactive/2026/08/11/us/elections/results-wisconsin-us-house-7-primary.html
-
-**Wisconsin Eighth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Wisconsin primary election.`\
-https://www.nytimes.com/interactive/2026/08/11/us/elections/results-wisconsin-us-house-8-primary.html
-
-**Wisconsin Lieutenant Governor Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Wisconsin primary election.`\
-https://www.nytimes.com/interactive/2026/08/11/us/elections/results-wisconsin-lieutenant-governor-primary.html
-
-**Wisconsin Third Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Wisconsin primary election.`\
-https://www.nytimes.com/interactive/2026/08/11/us/elections/results-wisconsin-us-house-3-primary.html
-
-**Wisconsin Sixth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Wisconsin primary election.`\
-https://www.nytimes.com/interactive/2026/08/11/us/elections/results-wisconsin-us-house-6-primary.html
-
-**Wisconsin Secretary of State Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Wisconsin primary election.`\
-https://www.nytimes.com/interactive/2026/08/11/us/elections/results-wisconsin-secretary-of-state-primary.html
-
-**Wisconsin First Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Wisconsin primary election.`\
-https://www.nytimes.com/interactive/2026/08/11/us/elections/results-wisconsin-us-house-1-primary.html
-
-**Wisconsin Fourth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Wisconsin primary election.`\
-https://www.nytimes.com/interactive/2026/08/11/us/elections/results-wisconsin-us-house-4-primary.html
-
-**Wisconsin Second Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Wisconsin primary election.`\
-https://www.nytimes.com/interactive/2026/08/11/us/elections/results-wisconsin-us-house-2-primary.html
-
-**Wisconsin Attorney General Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Wisconsin primary election.`\
-https://www.nytimes.com/interactive/2026/08/11/us/elections/results-wisconsin-attorney-general-primary.html
-
-**Wisconsin Fifth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Wisconsin primary election.`\
-https://www.nytimes.com/interactive/2026/08/11/us/elections/results-wisconsin-us-house-5-primary.html
-
-**Vermont At-Large Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Vermont primary election.`\
-https://www.nytimes.com/interactive/2026/08/11/us/elections/results-vermont-us-house-at-large-primary.html
-
-**Minnesota U.S. Senate Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Minnesota primary election.`\
-https://www.nytimes.com/interactive/2026/08/11/us/elections/results-minnesota-us-senate-primary.html
-
-**Vermont Secretary of State Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Vermont primary election.`\
-https://www.nytimes.com/interactive/2026/08/11/us/elections/results-vermont-secretary-of-state-primary.html
-
-**Vermont Governor Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Vermont primary election.`\
-https://www.nytimes.com/interactive/2026/08/11/us/elections/results-vermont-governor-primary.html
-
-**Vermont Lieutenant Governor Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Vermont primary election.`\
-https://www.nytimes.com/interactive/2026/08/11/us/elections/results-vermont-lieutenant-governor-primary.html
-
-**Minnesota Seventh Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Minnesota primary election.`\
-https://www.nytimes.com/interactive/2026/08/11/us/elections/results-minnesota-us-house-7-primary.html
-
-**Minnesota First Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Minnesota primary election.`\
-https://www.nytimes.com/interactive/2026/08/11/us/elections/results-minnesota-us-house-1-primary.html
-
-**Minnesota Fifth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Minnesota primary election.`\
-https://www.nytimes.com/interactive/2026/08/11/us/elections/results-minnesota-us-house-5-primary.html
-
-**Minnesota Second Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Minnesota primary election.`\
-https://www.nytimes.com/interactive/2026/08/11/us/elections/results-minnesota-us-house-2-primary.html
-
-**Minnesota Sixth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Minnesota primary election.`\
-https://www.nytimes.com/interactive/2026/08/11/us/elections/results-minnesota-us-house-6-primary.html
 

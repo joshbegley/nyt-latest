@@ -1,3 +1,11 @@
+**Minnesota Auditor Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Minnesota primary election.`\
+https://www.nytimes.com/interactive/2026/08/11/us/elections/results-minnesota-auditor-primary.html
+
+**Minnesota Attorney General Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Minnesota primary election.`\
+https://www.nytimes.com/interactive/2026/08/11/us/elections/results-minnesota-attorney-general-primary.html
+
 **Wisconsin Governor Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Wisconsin primary election.`\
 https://www.nytimes.com/interactive/2026/08/11/us/elections/results-wisconsin-governor-primary.html
