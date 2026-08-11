@@ -1,3 +1,7 @@
+**Rescuers Race to Find Survivors After Deadly Colombian Quake**\
+`Rescuers and residents in Colombia dug through rubble in search of survivors of the deadly 7.4-magnitude earthquake that rocked the country on Monday.`\
+https://www.nytimes.com/video/world/americas/100000011084742/colombia-earthquake-survivors-rescue.html
+
 **Terremoto en Colombia: lo que sabemos**\
 `El sismo de magnitud 7,4, causó la muerte de más de 100 personas y provocó daños graves en las ciudades de Cali, Pereira y Manizales.`\
 https://www.nytimes.com/es/2026/08/11/espanol/america-latina/terremoto-colombia-que-paso.html
