@@ -1,3 +1,15 @@
+**Pensé que conocía la pobreza por haber crecido en Perú. Estados Unidos me sorprendió**\
+`Una latinoamericana conoció algunos de los códigos postales más pobres de EE. UU. y reflexiona sobre lo que significa ser pobre en el país.`\
+https://www.nytimes.com/es/2026/08/11/espanol/opinion/pobreza-estados-unidos-peru.html
+
+**Trump usó un avión militar para salir en secreto de Turquía, según funcionarios**\
+`En medio de amenazas de Irán, el presidente de EE. UU. se escondió en un contenedor de cáterin y fue trasladado en una aeronave militar tras la cumbre de la Otán el mes pasado.`\
+https://www.nytimes.com/es/2026/08/11/espanol/estados-unidos/trump-amenazas-iran-avion-secreto.html
+
+**Trump Is Said to Have Secretly Used Military Jet to Leave Turkey**\
+`President Trump was secretly moved to a military aircraft as he departed the NATO summit in Turkey in July. Two senior U.S. officials said it was done after a threat was made against the president by Iran.`\
+https://www.nytimes.com/video/world/americas/100000011084735/trump-military-jet-turkey-catering-container.html
+
 **Terremoto en Colombia: la búsqueda de sobrevivientes continúa**\
 `“Escuchamos esos gritos”, dijo un rescatista en Cali, donde se vive una carrera contrarreloj para encontrar personas con vida.`\
 https://www.nytimes.com/es/2026/08/11/espanol/america-latina/terremoto-colombia-sobrevivientes-busqueda-rescate.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/interactive/2026/08/11/us/elections/results-minnesota-us
 **Minnesota Eighth Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Minnesota primary election.`\
 https://www.nytimes.com/interactive/2026/08/11/us/elections/results-minnesota-us-house-8-primary.html
-
-**Minnesota Secretary of State Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Minnesota primary election.`\
-https://www.nytimes.com/interactive/2026/08/11/us/elections/results-minnesota-secretary-of-state-primary.html
-
-**Vermont Auditor Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Vermont primary election.`\
-https://www.nytimes.com/interactive/2026/08/11/us/elections/results-vermont-auditor-primary.html
-
-**South Carolina U.S. Senate Special Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 South Carolina special primary election.`\
-https://www.nytimes.com/interactive/2026/08/11/us/elections/results-south-carolina-us-senate-special-primary.html
 
