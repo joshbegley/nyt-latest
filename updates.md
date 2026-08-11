@@ -1,3 +1,7 @@
+**Spotify Will Label A.I. Artists and Avoid Promoting Them**\
+`The new label, which will begin to be applied next month, is an effort by the streaming service to be more transparent about A.I.-generated music on its app.`\
+https://www.nytimes.com/2026/08/11/arts/music/spotify-artificial-intelligence-music.html
+
 **Searching for Survivors After Colombia’s Earthquake**\
 `Our Colombia-based reporter Genevieve Glatsky witnesses the search for survivors after a five-story apartment building in the city of Cali collapsed in an earthquake.`\
 https://www.nytimes.com/video/world/americas/100000011085349/searching-for-survivors-after-colombias-earthquake.html
