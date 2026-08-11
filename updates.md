@@ -1,3 +1,7 @@
+**The 10 Japanese Pantry Staples You Need in Your Kitchen**\
+`Chefs weigh in on the essentials worth stocking and recommend their favorite brands.`\
+https://www.nytimes.com/2026/08/11/t-magazine/japanese-cooking-recipe-ingredients.html
+
 **Europe Faces Its Fifth Heat Wave Since May**\
 `Forecasters have warned that the relentless heat, combined with persistently dry conditions, could worsen the threat of wildfires.`\
 https://www.nytimes.com/video/world/europe/100000011084952/europe-heat-wave-weather-wildfires.html
