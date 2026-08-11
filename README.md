@@ -1,4 +1,4 @@
-**Pensé que conocía la pobreza por haber crecido en Perú. Estados Unidos me sorprendió**\
+**Pensó que conocía la pobreza por haber crecido en Perú. Estados Unidos la sorprendió**\
 `Una latinoamericana conoció algunos de los códigos postales más pobres de EE. UU. y reflexiona sobre lo que significa ser pobre en el país.`\
 https://www.nytimes.com/es/2026/08/11/espanol/opinion/pobreza-estados-unidos-peru.html
 
@@ -27,7 +27,7 @@ https://www.nytimes.com/es/2026/08/11/espanol/america-latina/terremoto-colombia-
 https://www.nytimes.com/2026/08/11/world/americas/presidents-secret-flights-trump-turkey.html
 
 **University of Michigan Will Ease Up on Grades for Student Mental Health**\
-`The university will make first-semester grades pass or fail, to encourage students to explore different classes and lessen fears that “a low grade may have long-term consequences.”`\
+`The University of Michigan will make first-semester grades pass or fail, to encourage students to try different classes and lessen fears of the consequences of a low grade.`\
 https://www.nytimes.com/2026/08/11/us/university-michigan-grades-freshmen-pass-fail.html
 
 **Are We Too Uptight About Feet?**\
