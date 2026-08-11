@@ -1,3 +1,7 @@
+**Farage vs. the Man With the Trash Can on His Head**\
+`This is how elections are so often fought now. Politicians slink into a constituency to meet fans, make content for their social media and melt away.`\
+https://www.nytimes.com/2026/08/11/opinion/nigel-farage-election.html
+
 **Jake Whisenant, Who Raced Up Yosemite’s El Capitan at Record Speed, Dies in a Fall**\
 `Authorities in California said he died in a climbing accident. He set a record in 2024 for climbing El Capitan’s Lurking Fear route in under three hours.`\
 https://www.nytimes.com/2026/08/11/us/jake-whisenant-climber-dead.html
