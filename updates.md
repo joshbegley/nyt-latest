@@ -1,3 +1,7 @@
+**Frenzy for Solar Eclipse Glasses Takes Over London**\
+`Ahead of Wednesday’s rare cosmic event, thousands of people in London are searching for protective eyewear, as prices surge and stocks sell out.`\
+https://www.nytimes.com/2026/08/11/world/europe/solar-eclipse-glasses-uk.html
+
 **Minnesota Auditor Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Minnesota primary election.`\
 https://www.nytimes.com/interactive/2026/08/11/us/elections/results-minnesota-auditor-primary.html

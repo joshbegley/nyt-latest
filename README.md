@@ -1,3 +1,7 @@
+**Four Killed in Houthi Strike on Red Sea Ship, Yemeni Government Says**\
+`The Yemeni government said the ship was carrying food supplies to a port on the Bab al-Mandab Strait. The Iran-backed Houthis have not commented on the attack.`\
+https://www.nytimes.com/2026/08/11/world/middleeast/deadly-houthi-strike-red-sea.html
+
 **Frenzy for Solar Eclipse Glasses Takes Over London**\
 `Ahead of Wednesday’s rare cosmic event, thousands of people in London are searching for protective eyewear, as prices surge and stocks sell out.`\
 https://www.nytimes.com/2026/08/11/world/europe/solar-eclipse-glasses-uk.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/08/11/us/elections/results-alabama-us-h
 **Connecticut Third Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Connecticut primary election.`\
 https://www.nytimes.com/interactive/2026/08/11/us/elections/results-connecticut-us-house-3-primary.html
-
-**Alabama Second Congressional District Special Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Alabama special primary election.`\
-https://www.nytimes.com/interactive/2026/08/11/us/elections/results-alabama-us-house-2-special-primary.html
 
