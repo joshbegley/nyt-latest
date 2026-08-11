@@ -1,3 +1,23 @@
+**The U.S. Missile Stockpile Is Dangerously Low**\
+`The United States’ war with Iran has caused a critical weaponry shortage. That leaves the U.S. military vulnerable and complicates Washington’s efforts to end the war.`\
+https://www.nytimes.com/2026/08/11/podcasts/the-daily/iran-us-missile-stockpile-trump.html
+
+**Officials Reveal a Secret Ruse to Evacuate Trump, and the F.D.A. Takes On a Food Safety Loophole**\
+`Plus, when you accidentally upset “Harry Potter” fans.`\
+https://www.nytimes.com/2026/08/11/podcasts/the-headlines/evacuate-trump-fda-food-safety-loophole.html
+
+**NYT Connections Answers for August 12, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Aug. 12, 2026.`\
+https://www.nytimes.com/2026/08/11/crosswords/connections-companion-1158.html
+
+**NYT Strands Hints for Aug. 12, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Aug. 12, 2026.`\
+https://www.nytimes.com/2026/08/11/crosswords/strands-sidekick-892.html
+
+**Today's Wordle Hints for August 12, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Aug. 12, 2026.`\
+https://www.nytimes.com/2026/08/11/crosswords/wordle-review-1880.html
+
 **The Eclipse Is Coming, and Iceland Is … Mostly Ready**\
 `Rooms were booked years ago, and officials have been making plans. But there’s no telling where, exactly, Icelanders might go to find the best possible view.`\
 https://www.nytimes.com/2026/08/11/world/europe/solar-eclipse-iceland.html
