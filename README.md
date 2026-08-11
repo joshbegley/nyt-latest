@@ -1,3 +1,7 @@
+**Judge Awards $250,000 to Musician Who Fled Trump-Led Kennedy Center Gig**\
+`The center had sued Chuck Redd when he canceled a free concert last year, citing the addition of the Trump name to the venue. But a judge dismissed the case.`\
+https://www.nytimes.com/2026/08/11/arts/music/chuck-redd-kennedy-center.html
+
 **When to Expect Results in Wisconsin, Minnesota, South Carolina and Beyond**\
 `Six states are holding elections on Tuesday. The unofficial results will be known late Tuesday or early Wednesday.`\
 https://www.nytimes.com/2026/08/11/us/politics/election-results-timing-wisconsin-minnesota.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/11/dining/tom-clark-dead.html
 **Today, In Short**\
 `“Hobbyamory.” Shania Twain. And puppets.`\
 https://www.nytimes.com/2026/08/11/briefing/today-in-short.html
-
-**Silent Films Are Back, at Least for One Night**\
-`At the Modern Silent Shorts festival, moviegoers saw an old cinematic form brought back to life with seven brand-new films.`\
-https://www.nytimes.com/2026/08/11/style/for-one-night-at-least-silent-films-are-back.html
 
