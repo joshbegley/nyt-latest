@@ -1,3 +1,11 @@
+**Europeans Scramble to Buy Solar Eclipse Glasses**\
+`Dozens lined up outside astronomy shops, pharmacies and convenience stores in Paris, London, Brussels and Barcelona to buy the glasses before Wednesday’s solar eclipse.`\
+https://www.nytimes.com/video/world/europe/100000011085655/europeans-scramble-to-buy-solar-eclipse-glasses.html
+
+**Ocasio-Cortez Opened Up About Freezing Her Eggs. She Got Women Talking.**\
+`Many women say being open about the fertility treatment is a form of empowerment. But critics say all the talk can be misleading.`\
+https://www.nytimes.com/2026/08/11/us/politics/egg-freezing-aoc.html
+
 **El-Sayed’s Winning Path in Michigan**\
 `A swing-state Democratic Senate nominee needs to keep saying this: Jews have a right to a Jewish homeland.`\
 https://www.nytimes.com/2026/08/11/opinion/abdul-el-sayed-michigan-jews-israel-mamdani-aipac.html
