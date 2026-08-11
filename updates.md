@@ -1,3 +1,11 @@
+**Total Eclipse**\
+`If you’re in Europe, get ready to gaze at the sky. But not without the right glasses.`\
+https://www.nytimes.com/2026/08/11/world/total-eclipse-trump-secret-escape.html
+
+**Deported from the U.S., Trapped in a Prison in Africa**\
+`Roberto Mosquera, a Cuban immigrant who has lived in the U.S. since 1980 and completed a prison sentence in 1996, was arrested by ICE last year and sent to a prison in Eswatini, a country in Africa he’d never heard of. After a hunger strike, Mosquera obtained a phone and talked with Nicholas Casey of The New York Times Magazine, to share what is happening there.`\
+https://www.nytimes.com/video/world/africa/100000011032450/deported-from-the-us-trapped-in-a-prison-in-africa.html
+
 **Europeans Scramble to Buy Solar Eclipse Glasses**\
 `Dozens lined up outside astronomy shops, pharmacies and convenience stores in Paris, London, Brussels and Barcelona to buy the glasses before Wednesday’s solar eclipse.`\
 https://www.nytimes.com/video/world/europe/100000011085655/europeans-scramble-to-buy-solar-eclipse-glasses.html

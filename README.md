@@ -1,3 +1,7 @@
+**A Sweaty Texas Night at Barrel O’ Fun with Matthew McConaughey**\
+`The city celebrated one of its favorite Texas movie stars with a cinema bearing his name, ahead of the release of “The Rivals of Amziah King.”`\
+https://www.nytimes.com/2026/08/11/style/matthew-mcconaughey-movie-texas.html
+
 **Total Eclipse**\
 `If you’re in Europe, get ready to gaze at the sky. But not without the right glasses.`\
 https://www.nytimes.com/2026/08/11/world/total-eclipse-trump-secret-escape.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/interactive/2026/08/11/us/elections/results-key-races.ht
 **Wisconsin Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Wisconsin primary elections.`\
 https://www.nytimes.com/interactive/2026/08/11/us/elections/results-wisconsin-primary.html
-
-**Connecticut Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Connecticut primary elections.`\
-https://www.nytimes.com/interactive/2026/08/11/us/elections/results-connecticut-primary.html
 
