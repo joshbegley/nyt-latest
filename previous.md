@@ -1,3 +1,15 @@
+**Everything You Need for the Perfect Beach Day: The Best Sunscreen, Swimsuits and Gear**\
+`A roundup of the gear and accessories that five seasoned regulars never regret having toted onto the sand.`\
+https://www.nytimes.com/2026/08/11/t-magazine/beach-summer-essentials-sunscreen-swimsuits.html
+
+**Brad Lightcap, a Top OpenAI Executive, Steps Down**\
+`In OpenAI’s latest exit, Brad Lightcap, a longtime leader at the artificial intelligence company, said he was leaving to start a new venture.`\
+https://www.nytimes.com/2026/08/11/technology/brad-lightcap-openai.html
+
+**Trump Administration Kills Annual Arctic Report Card**\
+`The top of the world is warming faster than any other region. For 20 years, the Arctic Report Card chronicled the extraordinary transformation.`\
+https://www.nytimes.com/2026/08/11/climate/noaa-arctic-report-card.html
+
 **Tate McRae’s Neutrogena Skin Care Ad Inspires Parodies on TikTok**\
 `A video of the pop star using Neutrogena skin care products — with an ultralight touch — led to a wave of parodies.`\
 https://www.nytimes.com/2026/08/11/style/tate-mcrae-neutrogena-ad.html
@@ -75,7 +87,7 @@ https://www.nytimes.com/es/2026/08/11/espanol/america-latina/terremoto-colombia-
 https://www.nytimes.com/2026/08/11/world/americas/presidents-secret-flights-trump-turkey.html
 
 **University of Michigan Will Ease Up on Grades for Student Mental Health**\
-`The University of Michigan will make first-semester grades pass or fail, to encourage students to try different classes and lessen fears of what a low grade could mean.`\
+`The university will make first-semester grades pass or fail, to encourage students to try different classes and lessen fears of what a low grade could mean.`\
 https://www.nytimes.com/2026/08/11/us/university-michigan-grades-freshmen-pass-fail.html
 
 **Are We Too Uptight About Feet?**\
@@ -185,16 +197,4 @@ https://www.nytimes.com/interactive/2026/08/11/us/elections/results-wisconsin-se
 **Vermont Secretary of State Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Vermont primary election.`\
 https://www.nytimes.com/interactive/2026/08/11/us/elections/results-vermont-secretary-of-state-primary.html
-
-**Wisconsin Lieutenant Governor Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Wisconsin primary election.`\
-https://www.nytimes.com/interactive/2026/08/11/us/elections/results-wisconsin-lieutenant-governor-primary.html
-
-**Vermont Lieutenant Governor Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Vermont primary election.`\
-https://www.nytimes.com/interactive/2026/08/11/us/elections/results-vermont-lieutenant-governor-primary.html
-
-**Minnesota Sixth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Minnesota primary election.`\
-https://www.nytimes.com/interactive/2026/08/11/us/elections/results-minnesota-us-house-6-primary.html
 

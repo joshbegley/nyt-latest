@@ -1,3 +1,19 @@
+**Everything You Need for the Perfect Beach Day: The Best Sunscreen, Swimsuits and Gear**\
+`A roundup of the gear and accessories that five seasoned regulars never regret having toted onto the sand.`\
+https://www.nytimes.com/2026/08/11/t-magazine/beach-summer-essentials-sunscreen-swimsuits.html
+
+**Brad Lightcap, a Top OpenAI Executive, Steps Down**\
+`In OpenAI’s latest exit, Brad Lightcap, a longtime leader at the artificial intelligence company, said he was leaving to start a new venture.`\
+https://www.nytimes.com/2026/08/11/technology/brad-lightcap-openai.html
+
+**Trump Administration Kills Annual Arctic Report Card**\
+`The top of the world is warming faster than any other region. For 20 years, the Arctic Report Card chronicled the extraordinary transformation.`\
+https://www.nytimes.com/2026/08/11/climate/noaa-arctic-report-card.html
+
+**University of Michigan Will Ease Up on Grades for Student Mental Health**\
+`The university will make first-semester grades pass or fail, to encourage students to try different classes and lessen fears of what a low grade could mean.`\
+https://www.nytimes.com/2026/08/11/us/university-michigan-grades-freshmen-pass-fail.html
+
 **Four Killed in Houthi Strike on Red Sea Ship, Yemeni Government Says**\
 `The Yemeni government said the ship was carrying food supplies to a port on the Bab al-Mandab Strait while the Iran-backed Houthis accused Saudi Arabia of transporting weapons.`\
 https://www.nytimes.com/2026/08/11/world/middleeast/deadly-houthi-strike-red-sea.html
