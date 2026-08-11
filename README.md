@@ -1,3 +1,11 @@
+**David Ellison Floats Hollywood Exit as States Threaten His Warner Bros. Deal**\
+`Mr. Ellison told Paramount executives he is considering pulling the company out of California amid a lawsuit brought by state attorneys general.`\
+https://www.nytimes.com/2026/08/11/business/media/david-ellison-hollywood-paramount-warner-bros.html
+
+**A Timeline of the Fight Over the Elizabeth Street Garden in Manhattan**\
+`The yearslong battle has pitted community members in favor of preserving the garden against politicians, housing advocates and developers who say the space should be used to build affordable homes.`\
+https://www.nytimes.com/2026/08/11/nyregion/elizabeth-street-garden-timeline-new-york.html
+
 **5 Things to Know About Darline Graham, Republican Senate Hopeful in South Carolina**\
 `The sister of Senator Lindsey Graham was endorsed by President Trump to serve out the remainder of his term. Now she is running in a special primary election.`\
 https://www.nytimes.com/2026/08/11/us/politics/darline-graham-south-carolina-primary.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/video/world/americas/100000011084742/colombia-earthquake
 **Terremoto en Colombia: lo que sabemos**\
 `El sismo de magnitud 7,4, causó la muerte de más de 100 personas y provocó daños graves en las ciudades de Cali, Pereira y Manizales.`\
 https://www.nytimes.com/es/2026/08/11/espanol/america-latina/terremoto-colombia-que-paso.html
-
-**Before Trump’s Catering Container Ruse, Other Presidents Obscured Risky Travel Plans**\
-`President Trump was part of a particularly elaborate deception last month, boarding one jet before being spirited away to another.`\
-https://www.nytimes.com/2026/08/11/world/americas/presidents-secret-flights-trump-turkey.html
-
-**University of Michigan Will Ease Up on Grades for Student Mental Health**\
-`The university will make first-semester grades pass or fail, to encourage students to try different classes and lessen fears of what a low grade could mean.`\
-https://www.nytimes.com/2026/08/11/us/university-michigan-grades-freshmen-pass-fail.html
 
