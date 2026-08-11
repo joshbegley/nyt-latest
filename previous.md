@@ -1,3 +1,7 @@
+**Tate McRae’s Neutrogena Skin Care Ad Inspires Parodies on TikTok**\
+`A video of the pop star using Neutrogena skin care products — with an ultralight touch — led to a wave of parodies.`\
+https://www.nytimes.com/2026/08/11/style/tate-mcrae-neutrogena-ad.html
+
 **Arlene Smith, Whose Song ‘Maybe’ Helped Define Doo-Wop, Dies at 84**\
 `With the Chantels, a groundbreaking female vocal group, she tugged heartstrings with the indelible hit and paved the way for a wave of “girl groups.”`\
 https://www.nytimes.com/2026/08/11/arts/music/arlene-smith-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/08/11/us/elections/results-vermont-lieu
 **Minnesota Sixth Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Minnesota primary election.`\
 https://www.nytimes.com/interactive/2026/08/11/us/elections/results-minnesota-us-house-6-primary.html
-
-**Minnesota Seventh Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Minnesota primary election.`\
-https://www.nytimes.com/interactive/2026/08/11/us/elections/results-minnesota-us-house-7-primary.html
 

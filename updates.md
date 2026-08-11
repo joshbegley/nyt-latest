@@ -1,3 +1,7 @@
+**Tate McRae’s Neutrogena Skin Care Ad Inspires Parodies on TikTok**\
+`A video of the pop star using Neutrogena skin care products — with an ultralight touch — led to a wave of parodies.`\
+https://www.nytimes.com/2026/08/11/style/tate-mcrae-neutrogena-ad.html
+
 **Arlene Smith, Whose Song ‘Maybe’ Helped Define Doo-Wop, Dies at 84**\
 `With the Chantels, a groundbreaking female vocal group, she tugged heartstrings with the indelible hit and paved the way for a wave of “girl groups.”`\
 https://www.nytimes.com/2026/08/11/arts/music/arlene-smith-dead.html
