@@ -1,3 +1,11 @@
+**Oil Prices Rise to $90 a Barrel Over U.S.-Iran Stalemate**\
+`The stalemate over the Iran war hardened and commercial shipping in the Strait of Hormuz continued to dwindle.`\
+https://www.nytimes.com/2026/08/11/business/oil-prices-iran-war-hormuz.html
+
+**Democrats Plan New Push to Defeat Max Miller in Ohio After Abuse Accusations**\
+`The party’s congressional campaign arm added Mr. Miller’s opponent, Brian Poindexter, to its highly competitive “Red to Blue” list.`\
+https://www.nytimes.com/2026/08/11/us/politics/democrats-max-miller-ohio-abuse-accusations.html
+
 **His Start-Up’s Goal: A.I. That Is Trainable and Not Controlled by a Big Company**\
 `A co-founder of xAI is going all in on building open-source artificial intelligence so that “anyone can control and shape A.I. for their own needs.”`\
 https://www.nytimes.com/2026/08/11/technology/his-start-ups-goal-ai-that-is-trainable-and-not-controlled-by-a-big-company.html

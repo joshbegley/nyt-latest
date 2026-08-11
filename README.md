@@ -1,3 +1,7 @@
+**Syria Sentences Former President al-Assad to Death for Crimes Against Humanity**\
+`The former president was convicted of crimes against humanity during the country’s civil war, the first verdict since he fled to Russia in 2024.`\
+https://www.nytimes.com/2026/08/11/world/middleeast/syria-bashar-al-assad-death-sentence.html
+
 **Oil Prices Rise to $90 a Barrel Over U.S.-Iran Stalemate**\
 `The stalemate over the Iran war hardened and commercial shipping in the Strait of Hormuz continued to dwindle.`\
 https://www.nytimes.com/2026/08/11/business/oil-prices-iran-war-hormuz.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/08/11/learning/word-of-the-day-marginalia.html
 **The Era of Electric Motorcycles Has Arrived in Pakistan and Beyond**\
 `People are racing out to buy them worldwide as gasoline prices stay high. The Iran war has made Trump “salesman of the year,” said one executive in Lahore.`\
 https://www.nytimes.com/2026/08/11/climate/electric-motorcycles-pakistan.html
-
-**As Credit Card Debt Mounts, Home Becomes a Piggy Bank**\
-`A rise in home equity to record levels has led many Americans to refinance their mortgages to pay their bills.`\
-https://www.nytimes.com/2026/08/11/business/home-equity-credit-card-debt.html
 

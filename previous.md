@@ -1,3 +1,7 @@
+**Oil Prices Rise to $90 a Barrel Over U.S.-Iran Stalemate**\
+`The stalemate over the Iran war hardened and commercial shipping in the Strait of Hormuz continued to dwindle.`\
+https://www.nytimes.com/2026/08/11/business/oil-prices-iran-war-hormuz.html
+
 **His Start-Up’s Goal: A.I. That Is Trainable and Not Controlled by a Big Company**\
 `A co-founder of xAI is going all in on building open-source artificial intelligence so that “anyone can control and shape A.I. for their own needs.”`\
 https://www.nytimes.com/2026/08/11/technology/his-start-ups-goal-ai-that-is-trainable-and-not-controlled-by-a-big-company.html
@@ -80,7 +84,7 @@ https://www.nytimes.com/2026/08/11/pageoneplus/corrections-aug-11-2026.html
 
 **Democrats Plan New Push to Defeat Max Miller in Ohio After Abuse Accusations**\
 `The party’s congressional campaign arm added Mr. Miller’s opponent, Brian Poindexter, to its highly competitive “Red to Blue” list.`\
-https://www.nytimes.com/2026/08/11/us/politics/democrats-plan-new-push-to-defeat-max-miller-in-ohio-after-abuse-accusations.html
+https://www.nytimes.com/2026/08/11/us/politics/democrats-max-miller-ohio-abuse-accusations.html
 
 **In a Summer of Climate Misery, Businesses Confront the Need to Adapt**\
 `Repeated heat waves, wildfires, droughts and storms are solidifying the understanding that new investments are unavoidable.`\
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/08/11/climate/electric-motorcycles-pakistan.html
 **As Credit Card Debt Mounts, Home Becomes a Piggy Bank**\
 `A rise in home equity to record levels has led many Americans to refinance their mortgages to pay their bills.`\
 https://www.nytimes.com/2026/08/11/business/home-equity-credit-card-debt.html
-
-**‘Saturday Night Live’ U.K. Stars Get a Hero’s Welcome at the Edinburgh Fringe**\
-`As comics like Ania Magliano return to the festival for the first time since the show became a surprise hit, audiences are pouring in to catch them.`\
-https://www.nytimes.com/2026/08/11/arts/saturday-night-live-edinburgh-fringe.html
 
