@@ -1,3 +1,15 @@
+**Lincoln Center’s Orchestra Makes Creative Programming Look Easy**\
+`Jonathon Heyward, who leads the Festival Orchestra of Lincoln Center, conducted two concerts that put new music in conversation with classics.`\
+https://www.nytimes.com/2026/08/11/arts/music/festival-orchestra-of-lincoln-center-review.html
+
+**Estas son las zonas más afectadas por el sismo en Colombia**\
+`Una cadena de ciudades cerca del epicentro sufrió daños graves, según muestran las imágenes. La capital colombiana pareció salir ilesa.`\
+https://www.nytimes.com/es/2026/08/11/espanol/colombia-sismo-zonas-afectadas.html
+
+**G.M’s ‘Car Guy’ Talks Electrics, China and Nepotism**\
+`Mark Reuss became the automaker’s president seven years ago, ascending to a role his father was fired from decades before. We got the chance to speak with him.`\
+https://www.nytimes.com/2026/08/11/business/general-motors-mark-reuss.html
+
 **Trump Picks Project 2025 Co-Author for Role That Would Oversee Any Reflecting Pool Review**\
 `Dennis Kirk, a former adviser to Tulsi Gabbard, is President Trump’s nominee for inspector general for the Interior Department.`\
 https://www.nytimes.com/2026/08/11/us/politics/dennis-kirk-trump-interior-reflecting-pool-project-2025.html
