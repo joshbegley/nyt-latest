@@ -1,3 +1,7 @@
+**Election Live Updates: Wisconsin and South Carolina Races Test Power of Progressives and Trump**\
+`Six states are holding primaries on Tuesday. Democratic contests in Wisconsin and Minnesota pit moderates against progressives, while a special Senate primary to run for the late Lindsey Graham’s seat in South Carolina could go to a runoff.`\
+https://www.nytimes.com/live/2026/08/11/us/elections-south-carolina-wisconsin
+
 **Angie Craig Has Cash Edge Over Peggy Flanagan in Minnesota’s Democratic Senate Primary**\
 `Representative Angie Craig has benefited from nearly $10 million in spending from groups whose donors remain hidden, giving her an advantage in her Senate primary against Lt. Gov. Peggy Flanagan.`\
 https://www.nytimes.com/2026/08/11/us/politics/minnesota-angie-craig-fundraising-advantage.html
