@@ -1,3 +1,7 @@
+**Searching for Survivors After Colombia’s Earthquake**\
+`Our Colombia-based reporter Genevieve Glatsky witnesses the search for survivors after a five-story apartment building in the city of Cali collapsed in an earthquake.`\
+https://www.nytimes.com/video/world/americas/100000011085349/searching-for-survivors-after-colombias-earthquake.html
+
 **These Are Rachel Antonoff’s Favorite Restaurants**\
 `The food-loving fashion designer tackles the Where to Eat restaurant questionnaire.`\
 https://www.nytimes.com/2026/08/11/dining/fashion-designer-rachel-antonoff.html
