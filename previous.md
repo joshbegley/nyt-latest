@@ -1,3 +1,11 @@
+**Trump Picks Project 2025 Co-Author for Role That Would Oversee Any Reflecting Pool Review**\
+`Dennis Kirk, a former adviser to Tulsi Gabbard, is President Trump’s nominee for inspector general for the Interior Department.`\
+https://www.nytimes.com/2026/08/11/us/politics/dennis-kirk-trump-interior-reflecting-pool-project-2025.html
+
+**Robots That Walk and Talk Are Coming to Car Factories**\
+`But experts warn they may not deliver the gains in efficiency that proponents claim.`\
+https://www.nytimes.com/2026/08/11/business/humanoid-robots-car-factories.html
+
 **Test Your Tomato I.Q.**\
 `It’s peak tomato season. How much do you know about everyone’s favorite summer produce?`\
 https://www.nytimes.com/quiz/2026/08/11/realestate/tomato-gardening-quiz.html
@@ -134,7 +142,7 @@ https://www.nytimes.com/2026/08/11/world/europe/spain-ceuta-morocco-migrants.htm
 `A wave of disinformation online contributed to a surge of migrants in the Spanish enclave of Ceuta who were trying to reach Europe, resulting in about 90 deaths.`\
 https://www.nytimes.com/2026/08/11/technology/social-media-ceuta-spain-morocco.html
 
-**Sun’s Out, U.V. Umbrellas Out**\
+**Sun’s Out, UV Umbrellas Out**\
 `Coming soon: more sun-blocking umbrellas, everywhere.`\
 https://www.nytimes.com/2026/08/11/style/uv-umbrellas-sun-parasols.html
 
@@ -185,8 +193,4 @@ https://www.nytimes.com/2026/08/11/magazine/founding-fathers-ai-podcasters.html
 **Ross Douthat: The Exit Interview**\
 `The Times columnist reflects on the seismic changes in media, religion and politics he’s witnessed in his career so far.`\
 https://www.nytimes.com/video/opinion/100000011066485/ross-douthat-the-exit-interview.html
-
-**The Unexpected Secret of One of Instagram’s Most Nostalgic Accounts**\
-`The Instagram account VHS Dates advertises itself as resurfacing lost dating service videotapes from the 1980s. The account’s creators came clean to our reporter, Sopan Deb.`\
-https://www.nytimes.com/video/arts/100000011063782/instagram-vhs-dates-fake-dating-1980s.html
 

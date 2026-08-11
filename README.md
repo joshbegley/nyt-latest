@@ -1,3 +1,7 @@
+**G.M’s ‘Car Guy’ Talks Electrics, China and Nepotism**\
+`Mark Reuss became the automaker’s president seven years ago, ascending to a role his father was fired from decades before. We got the chance to speak with him.`\
+https://www.nytimes.com/2026/08/11/business/general-motors-mark-reuss.html
+
 **Trump Picks Project 2025 Co-Author for Role That Would Oversee Any Reflecting Pool Review**\
 `Dennis Kirk, a former adviser to Tulsi Gabbard, is President Trump’s nominee for inspector general for the Interior Department.`\
 https://www.nytimes.com/2026/08/11/us/politics/dennis-kirk-trump-interior-reflecting-pool-project-2025.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/11/science/ai-infertile-men-sperm.html
 **The Right Loves the Founding Fathers. They Might Love the A.I. Versions Even More.**\
 `Glenn Beck and other pundits are turning figures like George Washington into supposedly infallible podcasters.`\
 https://www.nytimes.com/2026/08/11/magazine/founding-fathers-ai-podcasters.html
-
-**Ross Douthat: The Exit Interview**\
-`The Times columnist reflects on the seismic changes in media, religion and politics he’s witnessed in his career so far.`\
-https://www.nytimes.com/video/opinion/100000011066485/ross-douthat-the-exit-interview.html
 
