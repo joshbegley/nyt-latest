@@ -1,3 +1,7 @@
+**He Says Obscene Things About Mothers and Children. Mike Johnson Is Raising Money for Him.**\
+`Thanks to Trump, G.O.P. extremism has become so ordinary that it breaks through only when it reaches an absurdly high level.`\
+https://www.nytimes.com/2026/08/10/opinion/brandon-herrera-republicans.html
+
 **An Elaborate Ruse: Trump Secretly Used Military Jet to Leave Turkey Amid Threats**\
 `President Trump hid in an airport catering cart and was taken to a military jet for a secret flight out of country after the NATO summit last month.`\
 https://www.nytimes.com/2026/08/10/us/politics/trump-plane-ruse.html
