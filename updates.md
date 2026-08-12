@@ -1,3 +1,11 @@
+**Primary Results Set for Tuesday’s Key Races**\
+`South Carolina Republicans moved to a runoff to decide their Senate nominee. Voters picked a progressive Democrat as their candidate for Senate in Minnesota, but in Wisconsin, a moderate eked out a narrow victory in the contest for governor.`\
+https://www.nytimes.com/video/us/elections/100000011087320/primary-election-results-wisconsin-minnesota-south-carolina.html
+
+**Why the U.S. Economy Needs A.I. — Bubble or Not**\
+`And what a hedge fund’s $35 billion loss reveals about the state of the industry.`\
+https://www.nytimes.com/video/opinion/100000011083257/why-the-us-economy-needs-ai-bubble-or-not.html
+
 **8 Takeaways from Tuesday’s Primaries**\
 `A moderate won the closely fought Democratic primary for governor in Wisconsin, the latest contest between the party’s progressive and moderate wings.`\
 https://www.nytimes.com/2026/08/12/us/politics/south-carolina-wisconsin-minnesota-primaries.html

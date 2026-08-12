@@ -1,3 +1,67 @@
+**Which $480,000 Home Would You Pick?**\
+`This weeks properties are in Lexington, Ky.; Pittsford, N.Y.; and Bradford, Vt.`\
+https://www.nytimes.com/2026/08/12/realestate/which-480000-home-would-you-pick.html
+
+**‘The Winter’s Tale’ Review: A Fable That’s Fit for Summer**\
+`Shakespeare in the Park stages this melancholic comedy, which gives us a good excuse to spend time with Raúl Esparza and Lily Rabe as king and queen.`\
+https://www.nytimes.com/2026/08/12/theater/winters-tale-review-shakespeare-in-the-park.html
+
+**‘I’m Not Ashamed of My Face-Lift’**\
+`Why do people insist on judging women for their cosmetic procedures? The Opinion contributing writer Molly Jong-Fast is not about to feel bad about her face-lift. She argues that misogyny is embedded in how we talk about women’s plastic surgery and the lack of honesty around it is harmful for everyone — especially the next generation.`\
+https://www.nytimes.com/video/opinion/100000011077394/im-not-ashamed-of-my-face-lift.html
+
+**Walking the King Charles III England Coast Path, Now Open to All**\
+`Paul Theroux traced the British coastline in 1982 for his book ‘The Kingdom by the Sea.’ This year he walked parts of the new King Charles III England Coast Path, a continuous route along the country’s seashore.`\
+https://www.nytimes.com/2026/08/12/travel/paul-theroux-king-charles-england-coast-path.html
+
+**This Season, Fashion Is Laying It On Thick**\
+`When temperatures drop, channel the ’90s with bold, oversize silhouettes built piece by piece.`\
+https://www.nytimes.com/2026/08/12/t-magazine/fall-layers-fashion-90s.html
+
+**Word of the Day: munificent**\
+`This word has appeared in four articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/08/12/learning/word-of-the-day-munificent.html
+
+**Rethinking the Wedding Party**\
+`For some couples, the answer is no. Instead, they're shrinking their wedding parties down to a sibling or a close friend, remixing traditional roles or skipping the wedding party altogether.`\
+https://www.nytimes.com/2026/08/12/style/do-you-really-need-a-big-wedding-party.html
+
+**She’ll Make You Rethink How to Wear a Shirt**\
+`Charlotte Collet helps many of the biggest brands in fashion. But there’s lessons for us all in her styling.`\
+https://www.nytimes.com/2026/08/12/style/shell-make-you-rethink-how-to-wear-a-shirt.html
+
+**Blood Tests to Predict Alzheimer’s Are Causing Confusion and Distress**\
+`The tests aren’t a guarantee that someone will develop dementia, but that hasn’t stopped people from getting them.`\
+https://www.nytimes.com/2026/08/12/well/mind/alzheimers-disease-blood-tests-prediction.html
+
+**Joseph Havlat Stacks Up Variations on ‘Sinner, Don’t Let This Harvest Pass’**\
+`Joseph Havlat’s thoughtfully programmed “Sinner, Don’t Let This Harvest Pass” spirals out from Schumann’s enigmatic “Ghost Variations.”`\
+https://www.nytimes.com/2026/08/12/arts/music/joseph-havlat-sinner-dont-let-this-harvest-pass-review.html
+
+**‘Heated Rivalry’ Cried Out for Satire. Edinburgh Fringe Heard the Call.**\
+`With drag kings and blue tinsel, three unauthorized musical tributes at the festival embrace the absurdities of the hit TV show.`\
+https://www.nytimes.com/2026/08/12/theater/heated-rivalry-musicals-edinburgh-fringe.html
+
+**He Was Deported to Eswatini in Southern Africa. He May Never Go Free.**\
+`As the Trump administration sends a growing number of immigrants to countries they have no connection to, some find themselves imprisoned with no way out.`\
+https://www.nytimes.com/2026/08/12/magazine/deportation-immigrants-prison-eswatini.html
+
+**Even With Space Cops and Magic Rings, ‘Lanterns’ Keeps It Real**\
+`HBO’s next big bet in the DC Universe is more like a buddy-cop drama than the usual comic-book adaptation. Fans are in for a few surprises.`\
+https://www.nytimes.com/2026/08/12/arts/television/lanterns-hbo-dc-comics.html
+
+**The Movie Monica Barbaro Watched Until the Tape Broke**\
+`Monica Barbaro, who stars in “One Night Only,” gets nostalgic, sharing the childhood shows she loved, the movie she watched on repeat, and the book that completely caught her off guard.`\
+https://www.nytimes.com/video/arts/100000011036450/monica-barbaro-movie.html
+
+**I Was Dick Cheney’s Cardiologist. I Have Questions About Trump’s Health.**\
+`The president has not been looking well. Americans should get answers to these seven questions.`\
+https://www.nytimes.com/2026/08/12/opinion/trump-health-questions.html
+
+**In These Novels, Rich People Behave Badly. Very Badly.**\
+`The best-selling author Hannah Whitten recommends thrillers, horror, fantasy novels and more about the misdeeds of the ultrawealthy (and their comeuppance).`\
+https://www.nytimes.com/2026/08/12/books/rich-people-fiction-books.html
+
 **Primary Results Set for Tuesday’s Key Races**\
 `South Carolina Republicans moved to a runoff to decide their Senate nominee. Voters picked a progressive Democrat as their candidate for Senate in Minnesota, but in Wisconsin, a moderate eked out a narrow victory in the contest for governor.`\
 https://www.nytimes.com/video/us/elections/100000011087320/primary-election-results-wisconsin-minnesota-south-carolina.html
@@ -19,7 +83,7 @@ https://www.nytimes.com/2026/08/12/science/space/telescope-spots-two-black-holes
 https://www.nytimes.com/2026/08/12/us/elections/wisconsin-governor-democratic-primary-hong-crowley.html
 
 **Election Live Updates: Moderate Democrat Wins Tight Wisconsin Primary for Governor**\
-`David Crowley, the Milwaukee County executive, defeated Francesca Hong, a democratic socialist, in a close race. In Minnesota, Lt. Gov. Peggy Flanagan, a progressive, won the Democratic Senate primary.`\
+`David Crowley, the Milwaukee County executive, edged out Francesca Hong, a democratic socialist. In Minnesota, Lt. Gov. Peggy Flanagan, a progressive, won the Democratic Senate primary.`\
 https://www.nytimes.com/live/2026/08/12/us/primary-election-results-wi-mn-sc
 
 **Toda una generación busca cómo dejar los antidepresivos**\
@@ -133,68 +197,4 @@ https://www.nytimes.com/2026/08/11/weather/storms-midwest-derecho.html
 **Rep. John Larson, a Longtime Lawmaker, Loses a Primary in Connecticut**\
 `In an upset, Luke Bronin, the former mayor of Hartford, won the Democratic nomination, capitalizing on calls for generational change.`\
 https://www.nytimes.com/2026/08/11/us/politics/bronin-larson-connecticut-primary-results.html
-
-**NYT Crossword Answers for Aug. 12, 2026**\
-`The gears are turning in Adrianne Baik’s crossword.`\
-https://www.nytimes.com/2026/08/11/crosswords/daily-puzzle-2026-08-12.html
-
-**A Rescue Effort After Colombia’s Earthquake**\
-`Our reporter Genevieve Glatsky, who is based in Colombia, witnesses the rescue of a buried earthquake survivor in the city of Cali.`\
-https://www.nytimes.com/video/world/americas/100000011086264/a-rescue-effort-after-colombias-earthquake.html
-
-**Fighter Jets Intercept Aircraft Over Trump’s Patriot Games in Ohio**\
-`It was at least the fourth time that an aircraft has violated the no-fly zone near President Trump this week.`\
-https://www.nytimes.com/2026/08/11/us/politics/norad-jets-trump-patriot-games-ohio.html
-
-**Areas to Watch in Minnesota’s Senate and Governor Primaries**\
-`Divides in both parties will be on display Tuesday night, particularly in a group of key counties.`\
-https://www.nytimes.com/2026/08/11/us/politics/minnesota-primary-elections-counties.html
-
-**Amy Klobuchar Wins Minnesota’s Democratic Primary for Governor**\
-`The fourth-term U.S. senator jolted Minnesota politics early this year by mounting a bid to succeed Gov. Tim Walz.`\
-https://www.nytimes.com/2026/08/11/us/klobuchar-minnesota-governor.html
-
-**Tom Tiffany Wins Wisconsin’s Republican Primary for Governor**\
-`Tom Tiffany, a conservative from western Wisconsin, said he would try to lower taxes, bring transparency to health care and protect farmland.`\
-https://www.nytimes.com/2026/08/11/us/wisconsin-governor-republican-primary-tom-tiffany.html
-
-**Areas to Watch in Wisconsin’s Democratic Primary for Governor**\
-`A race between Francesca Hong and David Crowley could highlight the fault lines between Madison and Milwaukee.`\
-https://www.nytimes.com/2026/08/11/us/politics/wisconsin-democratic-primary-governor-counties.html
-
-**Minnesota Primary Election Polling Offers Few Answers in Key Races**\
-`The small group of independent surveys in the Democratic primary for Senate and the Republican primary for governor showed a large share of undecided voters.`\
-https://www.nytimes.com/2026/08/11/us/politics/minnesota-primary-elections-polling.html
-
-**Rat Emoji Lands Man Accused of Illegal Sports Betting Behind Bars**\
-`De’Niro Laster, who was accused of conspiring with an N.B.A. player to bet on basketball, was trying to intimidate witnesses by posting on social media, prosecutors said.`\
-https://www.nytimes.com/2026/08/11/nyregion/rat-emoji-nba-gambling-jail.html
-
-**In Wisconsin Governor Primary, Polls Have Shown a Progressive Democrat With a Big Lead**\
-`Francesca Hong, a democratic socialist, has consistently led in a Democratic primary that struggled to settle on a field of candidates.`\
-https://www.nytimes.com/2026/08/11/us/politics/wisconsin-democratic-primary-governor-polling.html
-
-**It Started as a Hot Tub Harbor Cruise. It Became a Rescue Mission.**\
-`The captain of a party boat gave the fullest account of the rescue of 12 passengers near Liberty Island. A mother and daughter died and the incident is now part of a federal investigation.`\
-https://www.nytimes.com/2026/08/11/nyregion/nyc-capsized-boat-passengers-help.html
-
-**5 Things to Know About Francesca Hong, the Progressive Running for Wisconsin Governor**\
-`The state assemblywoman, a democratic socialist, is a chef and former small business owner. Her campaign focused on economic issues.`\
-https://www.nytimes.com/2026/08/11/us/politics/francesca-hong-wisconsin-progressive-candidate.html
-
-**5 Things to Know About Tom Tiffany, Republican Gubernatorial Candidate in Wisconsin**\
-`Representative Tom Tiffany is running with President Trump’s backing.`\
-https://www.nytimes.com/2026/08/11/us/politics/tom-tiffany-wisconsin-governor-candidate.html
-
-**5 Things to Know About Michael Alfonso, Sean Duffy’s Son-in-Law in Wisconsin’s 7th District Race**\
-`If elected, Mr. Alfonso, 26, would be the youngest member of Congress, thanks in no small part to the support his father-in-law, Transportation Secretary Sean Duffy, and an endorsement from President Trump.`\
-https://www.nytimes.com/2026/08/11/us/politics/michael-alfonso-sean-duffy-wisconsin.html
-
-**Esto sabemos de la boda de Cristiano Ronaldo y Georgina**\
-`Después de casi una década juntos y cinco hijos en su familia reconstituida, la pareja se habría casado en una ceremonia íntima en  Cascais, Portugal.`\
-https://www.nytimes.com/es/2026/08/11/espanol/estilos-de-vida/boda-cristiano-ronaldo-georgina.html
-
-**5 Things to Know About Michele Tafoya, Republican Senate Candidate in Minnesota**\
-`Ms. Tafoya, the favorite to become the state’s Republican nominee for Senate, spent years as an N.F.L. sideline reporter and has leaned into her sports background.`\
-https://www.nytimes.com/2026/08/11/us/politics/michele-tafoya-minnesota-republican-senate.html
 
