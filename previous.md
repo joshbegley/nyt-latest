@@ -1,3 +1,15 @@
+**South Africa’s Zietz MOCAA Names Director to Replace Koyo Kouoh**\
+`Elvira Dyangani Ose, who most recently directed Barcelona’s contemporary art museum, will succeed Kouoh, who died suddenly last year from cancer.`\
+https://www.nytimes.com/2026/08/12/arts/design/south-africas-zietz-mocaa-names-director-to-replace-koyo-kouoh.html
+
+**Hong’s Defeat in Wisconsin Shows the Limits of the Progressive Movement**\
+`Francesca Hong’s defeat in the Democratic primary for governor defied expectations and may have shown the democratic socialist wave cannot reach beyond urban centers.`\
+https://www.nytimes.com/2026/08/12/us/elections/david-crowley-wisconsin-governors-primary.html
+
+**Live Updates: Persistent Inflation Pressures in Focus**\
+`The Consumer Price Index for July will show how higher energy prices are rippling through the U.S. economy.`\
+https://www.nytimes.com/live/2026/08/12/business/inflation-cpi-report
+
 **Safety Subterfuge**\
 `We look at President Trump’s exit from Turkey after last month’s NATO summit.`\
 https://www.nytimes.com/2026/08/12/briefing/trump-turkey-air-force-one.html
@@ -177,24 +189,4 @@ https://www.nytimes.com/2026/08/12/books/rich-people-fiction-books.html
 **Primary Results Set for Tuesday’s Key Races**\
 `South Carolina Republicans moved to a runoff to decide their Senate nominee. Voters picked a progressive Democrat as their candidate for Senate in Minnesota, but in Wisconsin, a moderate eked out a narrow victory in the contest for governor.`\
 https://www.nytimes.com/video/us/elections/100000011087320/primary-election-results-wisconsin-minnesota-south-carolina.html
-
-**Why the U.S. Economy Needs A.I. — Bubble or Not**\
-`And what a hedge fund’s $35 billion loss reveals about the state of the industry.`\
-https://www.nytimes.com/video/opinion/100000011083257/why-the-us-economy-needs-ai-bubble-or-not.html
-
-**Trump Says Secret Plane Swap Was Not His Decision**\
-`President Trump said the Secret Service asked him to get off Air Force One and swap planes in response to a threat from Iran last month. He did not directly comment on the risk of the people he left on the plane.`\
-https://www.nytimes.com/video/us/politics/100000011087345/trump-plane-switch-air-force-one-secret-service.html
-
-**Telescope Spots Two Black Holes on the Cusp of Merging**\
-`New images from the James Webb telescope show a galaxy with a trio of supermassive black holes. Two of them appear to be locked in a tight tango.`\
-https://www.nytimes.com/2026/08/12/science/space/james-webb-telescope-black-holes-merging.html
-
-**Center-Left Candidate Defeats Democratic Socialist in Wisconsin’s Governor Primary**\
-`The upset victory by David Crowley, the Milwaukee County executive, over Francesca Hong sets up a more traditional general election in November.`\
-https://www.nytimes.com/2026/08/12/us/elections/wisconsin-governor-democratic-primary-hong-crowley.html
-
-**Election Live Updates: Democratic Socialist Falls in Tight Wisconsin Primary for Governor**\
-`Francesca Hong, who had led in opinion polls, lost to David Crowley, a moderate Democrat. In Minnesota, Lt. Gov. Peggy Flanagan, a progressive, won the Democratic Senate primary.`\
-https://www.nytimes.com/live/2026/08/12/us/primary-election-results-wi-mn-sc
 

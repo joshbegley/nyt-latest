@@ -1,3 +1,15 @@
+**South Africa’s Zietz MOCAA Names Director to Replace Koyo Kouoh**\
+`Elvira Dyangani Ose, who most recently directed Barcelona’s contemporary art museum, will succeed Kouoh, who died suddenly last year from cancer.`\
+https://www.nytimes.com/2026/08/12/arts/design/south-africas-zietz-mocaa-names-director-to-replace-koyo-kouoh.html
+
+**Hong’s Defeat in Wisconsin Shows the Limits of the Progressive Movement**\
+`Francesca Hong’s defeat in the Democratic primary for governor defied expectations and may have shown the democratic socialist wave cannot reach beyond urban centers.`\
+https://www.nytimes.com/2026/08/12/us/elections/david-crowley-wisconsin-governors-primary.html
+
+**Live Updates: Persistent Inflation Pressures in Focus**\
+`The Consumer Price Index for July will show how higher energy prices are rippling through the U.S. economy.`\
+https://www.nytimes.com/live/2026/08/12/business/inflation-cpi-report
+
 **Safety Subterfuge**\
 `We look at President Trump’s exit from Turkey after last month’s NATO summit.`\
 https://www.nytimes.com/2026/08/12/briefing/trump-turkey-air-force-one.html

@@ -1,3 +1,7 @@
+**Energy Prices Expected to Fall in Latest Inflation Data**\
+`The war with Iran injected volatility into the oil and gas market, with prices rising and falling in concert with the conflict.`\
+https://www.nytimes.com/2026/08/12/business/economy/energy-oil-prices-inflation.html
+
 **South Africa’s Zietz MOCAA Names Director to Replace Koyo Kouoh**\
 `Elvira Dyangani Ose, who most recently directed Barcelona’s contemporary art museum, will succeed Kouoh, who died suddenly last year from cancer.`\
 https://www.nytimes.com/2026/08/12/arts/design/south-africas-zietz-mocaa-names-director-to-replace-koyo-kouoh.html
@@ -22,13 +26,13 @@ https://www.nytimes.com/2026/08/12/world/asia/zhu-rongji-dead.html
 `Last month, President Trump made a dramatic exit after a visit to Turkey, prompting concerns about the safety of his planes. This week, we learned it was all a ruse.`\
 https://www.nytimes.com/2026/08/12/podcasts/the-daily/air-force-one-trump-planes-ruse.html
 
-**Key Takeaways From This Week’s Primaries, and the Deportees Stuck in ‘No Man’s Land’**\
-`Plus, why new Alzheimer’s tests are causing distress.`\
-https://www.nytimes.com/2026/08/12/podcasts/the-headlines/takeaways-primaries-deportees-eswatini.html
-
 **NYT Connections Answers for August 13, 2026**\
 `Scroll down for hints and conversation about the puzzle for Thursday, Aug. 13, 2026.`\
 https://www.nytimes.com/2026/08/12/crosswords/connections-companion-1159.html
+
+**Key Takeaways From This Week’s Primaries, and the Deportees Stuck in ‘No Man’s Land’**\
+`Plus, why new Alzheimer’s tests are causing distress.`\
+https://www.nytimes.com/2026/08/12/podcasts/the-headlines/takeaways-primaries-deportees-eswatini.html
 
 **NYT Strands Hints for Aug. 13, 2026**\
 `Scroll down for hints and conversation about the puzzle for Thursday, Aug. 13, 2026.`\
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/08/12/opinion/trump-health-questions.html
 **In These Novels, Rich People Behave Badly. Very Badly.**\
 `The best-selling author Hannah Whitten recommends thrillers, horror, fantasy novels and more about the misdeeds of the ultrawealthy (and their comeuppance).`\
 https://www.nytimes.com/2026/08/12/books/rich-people-fiction-books.html
-
-**Primary Results Set for Tuesday’s Key Races**\
-`South Carolina Republicans moved to a runoff to decide their Senate nominee. Voters picked a progressive Democrat as their candidate for Senate in Minnesota, but in Wisconsin, a moderate eked out a narrow victory in the contest for governor.`\
-https://www.nytimes.com/video/us/elections/100000011087320/primary-election-results-wisconsin-minnesota-south-carolina.html
 
