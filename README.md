@@ -122,8 +122,8 @@ https://www.nytimes.com/2026/08/12/arts/television/ted-lasso-season-4-episode-2-
 `And what a hedge fund’s $35 billion loss reveals about the state of the industry.`\
 https://www.nytimes.com/2026/08/12/opinion/ai-bubble-economy-crash.html
 
-**What if Judy Punched Back? A Puppet Fest for All, With a Female Focus.**\
-`The International Puppet Fringe Festival, by its nature accessible and diverse, brings dozens of shows, films, exhibits and workshops to the Lower East Side.`\
+**A Puppet Festival That Asks, What if Judy Punched Back?**\
+`The International Puppet Fringe Festival brings dozens of shows, films, exhibits and workshops to the Lower East Side. This year, the focus is on women.`\
 https://www.nytimes.com/2026/08/12/theater/international-puppet-festival-female-puppeteers.html
 
 **Do I Have Too Much Anxiety for a Relationship?**\
