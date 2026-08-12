@@ -95,7 +95,7 @@ https://www.nytimes.com/video/world/africa/100000011032450/deported-from-the-us-
 https://www.nytimes.com/video/world/europe/100000011085655/europeans-scramble-to-buy-solar-eclipse-glasses.html
 
 **Election Live Updates: Tallying Underway in South Carolina, Where Graham’s Sister Seeks His Seat**\
-`The late Senator Lindsey Graham’s sister is among a crowded field in a race that could be headed for a runoff. Five other states are also holding races, including Minnesota and Wisconsin, where a democratic socialist is seeking the nomination for governor`\
+`The late Senator Lindsey Graham’s sister is among a crowded field in a race that could be headed for a runoff. Five other states are also holding races, including Minnesota and Wisconsin, where a democratic socialist is seeking the nomination for governor.`\
 https://www.nytimes.com/live/2026/08/11/us/elections-south-carolina-wisconsin
 
 **Richard Lingeman, Cultural Historian and Biographer, Dies at 95**\
