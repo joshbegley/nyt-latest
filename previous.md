@@ -1,3 +1,7 @@
+**Thailand Halts New Gun Permits After Mass Shooting at a School**\
+`It remains to be seen how far the government will go to tighten gun control in the country, which has experienced a string of high-profile shootings in recent years.`\
+https://www.nytimes.com/2026/08/12/world/asia/thailand-gun-permits-school-shooting.html
+
 **Barcos pesqueros de Ecuador son blanco de misteriosos atacantes**\
 `Las tripulaciones ecuatorianas que trabajan en aguas del Pacífico han sido blanco de un misterioso grupo equipado con drones. Al parecer, algunos marineros han perdido la vida.`\
 https://www.nytimes.com/es/2026/08/12/espanol/america-latina/ecuador-ataques-barcos.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/08/12/espanol/ninos-solos-ilegal.html
 **Mientras EE. UU. se queda sin municiones, las capacidades militares de Irán evolucionan**\
 `Los ataques iraníes que mataron a tres soldados estadounidenses en Jordania revelan dos hechos importantes: primero, Irán es ahora un adversario más hábil. Segundo, al Pentágono le quedan menos interceptores.`\
 https://www.nytimes.com/es/2026/08/12/espanol/estados-unidos/iran-municiones-guerra-arsenal.html
-
-**¿Qué tan saludable es la remolacha?**\
-`La clave está en sus llamativos colores.`\
-https://www.nytimes.com/es/2026/08/12/espanol/estilos-de-vida/que-tan-saludable-es-la-remolacha.html
 

@@ -1,3 +1,7 @@
+**Thailand Halts New Gun Permits After Mass Shooting at a School**\
+`It remains to be seen how far the government will go to tighten gun control in the country, which has experienced a string of high-profile shootings in recent years.`\
+https://www.nytimes.com/2026/08/12/world/asia/thailand-gun-permits-school-shooting.html
+
 **Barcos pesqueros de Ecuador son blanco de misteriosos atacantes**\
 `Las tripulaciones ecuatorianas que trabajan en aguas del Pacífico han sido blanco de un misterioso grupo equipado con drones. Al parecer, algunos marineros han perdido la vida.`\
 https://www.nytimes.com/es/2026/08/12/espanol/america-latina/ecuador-ataques-barcos.html
