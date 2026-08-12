@@ -1,3 +1,11 @@
+**Will the Weather Cooperate? Here’s a Roundup of Forecasts on the Eclipse’s Path**\
+`The spectacle will be at the mercy of the meteorological conditions, with clouds threatening to block the view in some places.`\
+https://www.nytimes.com/2026/08/12/weather/solar-eclipse-europe-weather-forecast.html
+
+**En directo: el eclipse solar total está a unas horas en Europa**\
+`De Islandia a España, los observadores han acudido a los lugares donde, por corto tiempo, la Luna bloqueará completamente al Sol.`\
+https://www.nytimes.com/live/2026/08/12/espanol/eclipse-solar-total
+
 **A Puppet Festival That Asks, What if Judy Punched Back?**\
 `The International Puppet Fringe Festival brings dozens of shows, films, exhibits and workshops to the Lower East Side. This year, the focus is on women.`\
 https://www.nytimes.com/2026/08/12/theater/international-puppet-festival-female-puppeteers.html
