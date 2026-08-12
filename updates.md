@@ -1,3 +1,7 @@
+**Zhu Rongji, Former Premier Who Pushed China to a Market Economy, Dies at 97**\
+`As a vice premier and then premier, he helped transform China into the world’s leading manufacturing power and led his country into the World Trade Organization.`\
+https://www.nytimes.com/2026/08/12/world/asia/zhu-rongji-dead.html
+
 **Telescope Spots Two Black Holes on the Cusp of Merging**\
 `New images from the James Webb telescope show a galaxy with a trio of supermassive black holes. Two of them appear to be locked in a tight tango.`\
 https://www.nytimes.com/2026/08/12/science/space/james-webb-telescope-black-holes-merging.html
