@@ -1,3 +1,7 @@
+**Este año, El Niño es enorme y ya está cambiando el mundo**\
+`Se prevé que este fenómeno climático recurrente alcance su punto máximo a finales de 2026, pero ya está provocando periodos de sequía y pérdidas de cultivos en tres continentes.`\
+https://www.nytimes.com/es/2026/08/12/espanol/tiempo-y-clima/el-nino-mundo.html
+
 **Total Eclipse Blacks Out European Sun**\
 `Plus, takeaways from yesterday’s primary elections. Here’s the latest at the end of Wednesday.`\
 https://www.nytimes.com/2026/08/12/briefing/eclipse-primaries-ice.html
@@ -161,10 +165,6 @@ https://www.nytimes.com/2026/08/12/arts/music/eurovision-war-zones-israel.html
 **The Lessons of Progress**\
 `A retrospective on what six months of indicators reveal.`\
 https://www.nytimes.com/2026/08/12/headway/the-lessons-of-progress.html
-
-**Girl and Boy Scouts, Together and Apart**\
-`Readers recount their experiences as girl scouts, and what sets them apart from boy scouts. Also: The Trump plane ploy; an act of kindness.`\
-https://www.nytimes.com/2026/08/12/opinion/girl-boy-scouts.html
 
 **Por primera vez en décadas, el día se hace noche en Europa bajo un eclipse solar total**\
 `De Islandia a España, los observadores acudieron a los lugares donde, por corto tiempo, la Luna bloqueó completamente al Sol.`\

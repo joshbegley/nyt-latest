@@ -1,3 +1,7 @@
+**Two Killed in Military Helicopter Crash Near Fort Hood in Texas**\
+`The Apache helicopter crashed in Salado, a small town about 20 miles from the military base, and set off a fire, the authorities said.`\
+https://www.nytimes.com/2026/08/12/us/texas-helicopter-crash.html
+
 **Total Eclipse Blacks Out European Sun**\
 `Plus, takeaways from yesterday’s primary elections. Here’s the latest at the end of Wednesday.`\
 https://www.nytimes.com/2026/08/12/briefing/eclipse-primaries-ice.html
