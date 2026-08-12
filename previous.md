@@ -1,4 +1,12 @@
-**Should the M.M.R. Vaccine Be Split Into Three Separate Shots?**\
+**Watching Trump at the Patriot Games**\
+`Zolan Kanno-Youngs was at the finale of the Patriot Games, where President Trump made an appearance. He breaks down the role of sports in the Trump presidency on “The Call” with Natalie Kitroeff.`\
+https://www.nytimes.com/video/us/politics/100000011088835/watching-trump-at-the-patriot-games.html
+
+**The Good List: 6 Things to Add Joy to Your Day**\
+`Cosmic reset, chatting outside and a very old cat.`\
+https://www.nytimes.com/2026/08/12/briefing/12-the-good-list-meteor-shower-cat-glyph.html
+
+**Trump Wants the M.M.R. Vaccine Split Into Three Separate Shots. Doctors Say It’s a Bad Idea.**\
 `President Trump is calling for immunizations for measles, mumps and rubella to be given in individual jabs in three different appointments instead of the standard combination shot.`\
 https://www.nytimes.com/2026/08/12/health/mmr-vaccine-combination-separate.html
 
@@ -153,10 +161,6 @@ https://www.nytimes.com/2026/08/12/business/consumer-debt-inflation.html
 **How Kennedy Helped Fuel Vaccine Skepticism**\
 `Robert F. Kennedy Jr. once mocked the threat of measles during a 2021 speech in Lancaster County, Pa. Now, local officials are racing to contain one of the country’s largest outbreaks. Teddy Rosenbluth, a reporter for Well covering health news, explains.`\
 https://www.nytimes.com/video/well/100000011073335/how-kennedy-fueled-vaccine-skepticism.html
-
-**RFK Jr. Stirred Vaccine Fears in Pennsylvania Years Before Measles Outbreak**\
-`At a speech in Lancaster County, Robert F. Kennedy mocked the threat of measles. Now local officials are racing to contain one of the largest outbreaks in the country.`\
-https://www.nytimes.com/2026/08/12/well/measles-pennsylvania-kennedy-vaccines.html
 
 **Eclipse solar, en vivo: comienza la trayectoria de la totalidad**\
 `De Islandia a España, los observadores han acudido a los lugares donde, por corto tiempo, la Luna bloqueará completamente al Sol.`\

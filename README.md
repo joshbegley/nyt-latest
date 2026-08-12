@@ -106,7 +106,7 @@ https://www.nytimes.com/2026/08/12/us/ice-gun-driver-virginia-immigration.html
 `The authorities in Hopkins, Minn., said two adults and a child, all family members, were killed at an in-home day care center.`\
 https://www.nytimes.com/2026/08/12/us/stabbing-minnesota-day-care.html
 
-**Maps: Tracking a Potential Tropical Storm Near Hawaii**\
+**Maps: Tracking a Potential Tropical Cyclone near Hawaii**\
 `See the likely path and wind arrival times`\
 https://www.nytimes.com/interactive/2026/08/12/weather/hawaii-storm-map-path-tracker.html
 
