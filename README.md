@@ -1,3 +1,11 @@
+**Primary Results Set for Tuesday’s Key Races**\
+`South Carolina Republicans moved to a runoff to decide their Senate nominee. Voters picked a progressive Democrat as their candidate for Senate in Minnesota, but in Wisconsin, a moderate eked out a narrow victory in the contest for governor.`\
+https://www.nytimes.com/video/us/elections/100000011087320/primary-election-results-wisconsin-minnesota-south-carolina.html
+
+**Why the U.S. Economy Needs A.I. — Bubble or Not**\
+`And what a hedge fund’s $35 billion loss reveals about the state of the industry.`\
+https://www.nytimes.com/video/opinion/100000011083257/why-the-us-economy-needs-ai-bubble-or-not.html
+
 **Trump Says Secret Plane Swap Was Not His Decision**\
 `President Trump said the Secret Service asked him to get off Air Force One and swap planes in response to a threat from Iran last month. He did not directly comment on the risk of the people he left on the plane.`\
 https://www.nytimes.com/video/us/politics/100000011087345/trump-plane-switch-air-force-one-secret-service.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/es/2026/08/11/espanol/estilos-de-vida/boda-cristiano-ron
 **5 Things to Know About Michele Tafoya, Republican Senate Candidate in Minnesota**\
 `Ms. Tafoya, the favorite to become the state’s Republican nominee for Senate, spent years as an N.F.L. sideline reporter and has leaned into her sports background.`\
 https://www.nytimes.com/2026/08/11/us/politics/michele-tafoya-minnesota-republican-senate.html
-
-**Rubio, Bessent and Miller Traveled on Decoy Plane From Turkey Without Trump**\
-`Some of President Trump’s top officials traveled on the original Air Force One, which the president secretly disembarked.`\
-https://www.nytimes.com/2026/08/11/us/politics/decoy-plane-passengers.html
-
-**5 Things to Know About Peggy Flanagan, Democratic Senate Candidate in Minnesota**\
-`Ms. Flanagan, the progressive lieutenant governor of Minnesota, is a former organizer who could become the first Native American woman in the Senate.`\
-https://www.nytimes.com/2026/08/11/us/politics/peggy-flanagan-minnesota-senate-candidate.html
 
