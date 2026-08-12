@@ -27,7 +27,7 @@ https://www.nytimes.com/interactive/2026/08/12/movies/the-evil-dead-sam-raimi.ht
 https://www.nytimes.com/2026/08/12/world/africa/-zimbabwe-lake-kariba-ferry-capsize.html
 
 **A Look Inside Trump’s Patriot Games**\
-`President Trump made an appearance at his first-ever Patriot Games in Geneva, Ohio, last night. Zolan Kanno-Youngs dialed in Natalie Kitroeff on “The Call” to break down what he was seeing and how sports have become a defining part of Mr. Trump’s presidency.`\
+`President Trump made an appearance at his first-ever Patriot Games in Geneva, Ohio, last night. Zolan Kanno-Youngs joined Natalie Kitroeff on “The Call” to break down what he was seeing and how sports have become a defining part of Mr. Trump’s presidency.`\
 https://www.nytimes.com/video/us/politics/100000011088255/a-look-inside-trumps-patriot-games.html
 
 **Democrats Pull Back From the Edge of Disaster. Again.**\

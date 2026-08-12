@@ -1,3 +1,7 @@
+**A Look Inside Trump’s Patriot Games**\
+`President Trump made an appearance at his first-ever Patriot Games in Geneva, Ohio, last night. Zolan Kanno-Youngs joined Natalie Kitroeff on “The Call” to break down what he was seeing and how sports have become a defining part of Mr. Trump’s presidency.`\
+https://www.nytimes.com/video/us/politics/100000011088255/a-look-inside-trumps-patriot-games.html
+
 **3 People Are Killed at a Minnesota Day Care Center**\
 `The authorities in Hopkins, Minn., said two adults and a child, all family members, were killed at an in-home day care center.`\
 https://www.nytimes.com/2026/08/12/us/stabbing-minnesota-day-care.html
