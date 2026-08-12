@@ -1,3 +1,7 @@
+**How Kennedy Fueled Vaccine Skepticism**\
+`Robert F. Kennedy Jr. once mocked the threat of measles at a speech in Lancaster County, Pa. Now, local officials are racing to contain one of the country’s largest outbreaks. Teddy Rosenbluth, a reporter for Well, explains.`\
+https://www.nytimes.com/video/well/100000011073335/how-kennedy-fueled-vaccine-skepticism.html
+
 **¿Cooperará el tiempo? Aquí hay un resumen de los pronósticos en la trayectoria del eclipse**\
 `The spectacle will be at the mercy of the meteorological conditions, with clouds threatening to block the view in some places.`\
 https://www.nytimes.com/es/2026/08/12/espanol/pronostico-tiempo.html
@@ -157,8 +161,4 @@ https://www.nytimes.com/2026/08/12/realestate/a-pasadena-craftsman-bursting-with
 **‘Ted Lasso’ Season 4, Episode 2 Recap: Back to Richmond**\
 `This week, Ted wakes up in England where he belongs and meets his new assistant coach.`\
 https://www.nytimes.com/2026/08/12/arts/television/ted-lasso-season-4-episode-2-recap.html
-
-**Why the U.S. Economy Needs A.I. — Bubble or Not**\
-`And what a hedge fund’s $35 billion loss reveals about the state of the industry.`\
-https://www.nytimes.com/2026/08/12/opinion/ai-bubble-economy-crash.html
 
