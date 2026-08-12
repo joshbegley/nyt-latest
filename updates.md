@@ -1,3 +1,7 @@
+**Live Updates: Europe Counts Down to a Total Solar Eclipse**\
+`From Iceland to Spain, people have flocked to places where, briefly, the moon will completely block the sun. It is the continent’s first total eclipse in decades.`\
+https://www.nytimes.com/live/2026/08/12/world/solar-eclipse-2026-updates
+
 **Benign Inflation Data Offers Reprieve to Fed as It Weighs Rate Increase**\
 `The latest Consumer Price Index report helped to reinforce the patient approach adopted by many officials at the Federal Reserve about raising rates, but it has not resolved the debate altogether.`\
 https://www.nytimes.com/2026/08/12/business/economy/inflation-federal-reserve-interest-rates.html

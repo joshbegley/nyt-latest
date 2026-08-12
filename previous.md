@@ -30,8 +30,8 @@ https://www.nytimes.com/2026/08/12/business/dealbook/thrive-holdings-ai-funding.
 `With temperatures set to soar as high as 109 degrees Fahrenheit (43 Celsius) this week, Europeans and tourists say that summer in Europe has lost its appeal.`\
 https://www.nytimes.com/2026/08/12/world/europe/europe-fifth-heat-wave.html
 
-**Live Updates: In Europe, the Total Solar Eclipse Is Only Hours Away**\
-`From Iceland to Spain, people have flocked to places where, briefly, the moon will completely block the sun.`\
+**Live Updates: Europe Counts Down to a Total Solar Eclipse**\
+`From Iceland to Spain, people have flocked to places where, briefly, the moon will completely block the sun. It is the continent’s first total eclipse in decades.`\
 https://www.nytimes.com/live/2026/08/12/world/solar-eclipse-2026-updates
 
 **Benign Inflation Data Offers Reprieve to Fed as It Weighs Rate Increase**\
@@ -165,8 +165,4 @@ https://www.nytimes.com/2026/08/12/world/canada/canada-tariffs-manufacturing-tra
 **Heat Kills Hundreds of Workers Each Year. A Postal Carrier Was One.**\
 `About half a dozen states explicitly protect workers from excessive heat. And some others, like Texas, prevent local governments from passing their own laws.`\
 https://www.nytimes.com/2026/08/12/business/extreme-heat-worker-deaths.html
-
-**Which $480,000 Home Would You Pick?**\
-`This weeks properties are in Lexington, Ky.; Pittsford, N.Y.; and Bradford, Vt.`\
-https://www.nytimes.com/2026/08/12/realestate/which-480000-home-would-you-pick.html
 
