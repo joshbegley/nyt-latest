@@ -39,7 +39,7 @@ https://www.nytimes.com/2026/08/12/us/politics/treasury-scrutiny-shell-companies
 https://www.nytimes.com/2026/08/12/us/texas-helicopter-crash.html
 
 **See the 2026 European Solar Eclipse, in Photos and Videos**\
-`From Iceland to Spain, the celestial show drew visitors far and wide.`\
+`People gathered across the continent to watch the total solar eclipse on Wednesday.`\
 https://www.nytimes.com/2026/08/12/world/europe/solar-eclipse-europe-photos.html
 
 **Journalism in the ‘Zones of Uncertainty’**\
