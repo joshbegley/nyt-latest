@@ -1,3 +1,7 @@
+**More Than 40 Dead After a Ferry Capsizes on Zimbabwe’s Lake Kariba**\
+`The vessel was crowded far beyond capacity and was hit by strong waves, the police said. While dozens have been rescued, the search continues for an unknown number of missing people.`\
+https://www.nytimes.com/2026/08/12/world/africa/-zimbabwe-lake-kariba-ferry-capsize.html
+
 **A Look Inside Trump’s Patriot Games**\
 `President Trump made an appearance at his first-ever Patriot Games in Geneva, Ohio, last night. Zolan Kanno-Youngs dialed in Natalie Kitroeff on “The Call” to break down what he was seeing and how sports have become a defining part of Mr. Trump’s presidency.`\
 https://www.nytimes.com/video/us/politics/100000011088255/a-look-inside-trumps-patriot-games.html
@@ -149,10 +153,6 @@ https://www.nytimes.com/2026/08/12/us/ward-churchill-dead.html
 **How to Safely Watch the Solar Eclipse, Even Without Glasses**\
 `If you plan to watch the solar eclipse, make sure your lenses offer enough protection. Alternatively, you can safely watch using household items.`\
 https://www.nytimes.com/2026/08/12/world/europe/watch-solar-eclipse-without-glasses-pinhole-camera-colander.html
-
-**See Weather Forecasts for Countries in the Total Solar Eclipse’s Path**\
-`The spectacle will be at the mercy of the meteorological conditions, with clouds threatening to block the view in some places.`\
-https://www.nytimes.com/2026/08/12/weather/solar-eclipse-europe-weather-forecast.html
 
 **Eclipse solar, en vivo: comienza la trayectoria de la totalidad**\
 `De Islandia a España, los observadores han acudido a los lugares donde, por corto tiempo, la Luna bloqueará completamente al Sol.`\

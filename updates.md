@@ -1,3 +1,7 @@
+**Live Updates: The Moon Bites Into the Sun in Skies Across Europe**\
+`From Iceland to Spain, people flocked to viewing spots to see the moon completely block out the sun.`\
+https://www.nytimes.com/live/2026/08/12/world/solar-eclipse-2026-updates
+
 **A Look Inside Trump’s Patriot Games**\
 `President Trump made an appearance at his first-ever Patriot Games in Geneva, Ohio, last night. Zolan Kanno-Youngs dialed in Natalie Kitroeff on “The Call” to break down what he was seeing and how sports have become a defining part of Mr. Trump’s presidency.`\
 https://www.nytimes.com/video/us/politics/100000011088255/a-look-inside-trumps-patriot-games.html

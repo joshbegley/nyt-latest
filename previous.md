@@ -158,7 +158,7 @@ https://www.nytimes.com/2026/08/12/weather/solar-eclipse-europe-weather-forecast
 `De Islandia a España, los observadores han acudido a los lugares donde, por corto tiempo, la Luna bloqueará completamente al Sol.`\
 https://www.nytimes.com/live/2026/08/12/espanol/eclipse-solar-total
 
-**Live Updates: Europe’s First Total Solar Eclipse in Decades Is Turning Day to Dark**\
-`From Iceland to Spain, people have flocked to viewing spots to see the moon completely block out the sun.`\
+**Live Updates: The Moon Bites Into the Sun in Skies Across Europe**\
+`From Iceland to Spain, people flocked to viewing spots to see the moon completely block out the sun.`\
 https://www.nytimes.com/live/2026/08/12/world/solar-eclipse-2026-updates
 
