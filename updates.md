@@ -1,3 +1,15 @@
+**Karoline Leavitt, Trump’s Press Secretary, to Depart White House**\
+`President Trump said that Ms. Leavitt, who recently gave birth to her second child, would be leaving to spend time with her family.`\
+https://www.nytimes.com/2026/08/12/us/politics/karoline-leavitt-trump-press-secretary.html
+
+**A Bright Spot in Colombia as Rescuers Free Quake Victim**\
+`A single image shows the obstacles facing emergency workers as they try to unearth people from the rubble.`\
+https://www.nytimes.com/2026/08/12/world/americas/colombia-earthquake-rescue.html
+
+**Which Cabinet Members Joined Trump on His Secret Flight Out of Turkey?**\
+`The White House aides Natalie Harp and Dan Scavino were among those traveling with the president on a military jet.`\
+https://www.nytimes.com/2026/08/12/us/politics/trump-air-force-one-secret-flight-passengers.html
+
 **3 Ex-Georgia Deputies Used Flock Cameras to Stalk People, Sheriff Says**\
 `The former Bibb County deputies were arrested this week amid a growing national debate over Flock cameras, which can be found on roads in every state but Alaska.`\
 https://www.nytimes.com/2026/08/12/us/georgia-sheriffs-flock-cameras-stalking.html
