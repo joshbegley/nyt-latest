@@ -1,3 +1,15 @@
+**Hello, Elotes**\
+`Based on the Mexican street food snack, this grilled corn with cheese, chile and lime is a snap to make.`\
+https://www.nytimes.com/2026/08/12/dining/hello-elotes.html
+
+**The MOTHRA Telescope Captured the Faint Aftermath of a Star’s Death**\
+`During early calibration tests, the MOTHRA telescope’s array of lenses, which will soon number 1,140, captured stellar debris dissolving into space around the Helix Nebula.`\
+https://www.nytimes.com/2026/08/12/science/mothra-telescope-helix-nebula.html
+
+**Look Up at the Sky Tonight. The Perseid Meteor Shower Will Awe You.**\
+`Experiencing awe makes us happier, healthier and more fulfilled. Why not watch the Perseid meteor shower to have a bit more awe in your life?`\
+https://www.nytimes.com/2026/08/12/opinion/perseid-meteor-shower-awe-inspiring.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000011087834/12vid-crowley-reintroduction-sot.html
@@ -10,7 +22,7 @@ https://www.nytimes.com/2026/08/12/us/ward-churchill-dead.html
 `If you plan to watch the solar eclipse, make sure your lenses offer enough protection. Alternatively, you can safely watch using household items.`\
 https://www.nytimes.com/2026/08/12/world/europe/watch-solar-eclipse-without-glasses-pinhole-camera-colander.html
 
-**Will the Weather Cooperate? Here’s a Roundup of Forecasts on the Eclipse’s Path**\
+**See Weather Forecasts for Countries in the Total Solar Eclipse’s Path**\
 `The spectacle will be at the mercy of the meteorological conditions, with clouds threatening to block the view in some places.`\
 https://www.nytimes.com/2026/08/12/weather/solar-eclipse-europe-weather-forecast.html
 
@@ -149,16 +161,4 @@ https://www.nytimes.com/2026/08/12/theater/international-puppet-festival-female-
 **Do I Have Too Much Anxiety for a Relationship?**\
 `Jenny Singer worried the deep, loving relationship she wanted wasn’t something her brain would let her have.`\
 https://www.nytimes.com/2026/08/12/podcasts/anxiety-love-relationships.html
-
-**Ecuadorean Fishing Boats Hit by Mystery Attackers**\
-`Ecuadorean crews plying the waters of the Pacific have been targeted by a mysterious outfit equipped with drones. Some sailors appear to have lost their lives.`\
-https://www.nytimes.com/2026/08/12/world/americas/ecuador-fishing-boat-strikes.html
-
-**‘Mysterious Skin’: One of the Great Movies of the Early 2000s**\
-`Gregg Araki’s coming-of-age drama, starring Joseph Gordon-Levitt, tracks the story of two traumas with one source: a baseball coach.`\
-https://www.nytimes.com/2026/08/12/movies/mysterious-skin-ifc-center.html
-
-**New York City Gave Students Free Transit Cards. They Have Feedback.**\
-`High school students who use a free version of the OMNY payment system say most of their problems would be fixed if the card were made of plastic, according to a new report.`\
-https://www.nytimes.com/2026/08/12/nyregion/new-york-city-gave-students-free-transit-cards-they-have-feedback.html
 

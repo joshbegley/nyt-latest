@@ -1,3 +1,19 @@
+**Hello, Elotes**\
+`Based on the Mexican street food snack, this grilled corn with cheese, chile and lime is a snap to make.`\
+https://www.nytimes.com/2026/08/12/dining/hello-elotes.html
+
+**The MOTHRA Telescope Captured the Faint Aftermath of a Star’s Death**\
+`During early calibration tests, the MOTHRA telescope’s array of lenses, which will soon number 1,140, captured stellar debris dissolving into space around the Helix Nebula.`\
+https://www.nytimes.com/2026/08/12/science/mothra-telescope-helix-nebula.html
+
+**Look Up at the Sky Tonight. The Perseid Meteor Shower Will Awe You.**\
+`Experiencing awe makes us happier, healthier and more fulfilled. Why not watch the Perseid meteor shower to have a bit more awe in your life?`\
+https://www.nytimes.com/2026/08/12/opinion/perseid-meteor-shower-awe-inspiring.html
+
+**See Weather Forecasts for Countries in the Total Solar Eclipse’s Path**\
+`The spectacle will be at the mercy of the meteorological conditions, with clouds threatening to block the view in some places.`\
+https://www.nytimes.com/2026/08/12/weather/solar-eclipse-europe-weather-forecast.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000011087834/12vid-crowley-reintroduction-sot.html
