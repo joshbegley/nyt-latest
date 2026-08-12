@@ -1,3 +1,15 @@
+**Gulf Oil Giants Are Spending Billions to Build Ways Around Strait of Hormuz**\
+`Even if a cease-fire materializes, Gulf exporters recognize that relying strictly on the Strait of Hormuz is a risk they can no longer take.`\
+https://www.nytimes.com/2026/08/12/business/iran-war-hormuz-oil.html
+
+**How Kennedy Helped Fuel Vaccine Skepticism**\
+`Robert F. Kennedy Jr. mocked the threat of measles during a 2021 speech in Lancaster County, Pa. Now, local officials are racing to contain one of the country’s largest outbreaks. Teddy Rosenbluth, reporter for Well covering health news, explains.`\
+https://www.nytimes.com/video/well/100000011073335/how-kennedy-fueled-vaccine-skepticism.html
+
+**South Africa’s Zeitz MOCAA Names Director to Replace Koyo Kouoh**\
+`Elvira Dyangani Ose, who directed Barcelona’s contemporary art museum, will succeed Koyo Kouoh at Zeitz MOCAA after she died suddenly last year from cancer.`\
+https://www.nytimes.com/2026/08/12/arts/design/zeitz-mocaa-director-elvira-dyangani-ose.html
+
 **Consumer Debt Data Shows ‘Overall’ Health Amid Persisting Divides**\
 `Homeowners with low fixed-rate mortgages lead a resilient picture of the economy. But many consumers are frustrated with declining real wages and other loans.`\
 https://www.nytimes.com/2026/08/12/business/consumer-debt-inflation.html
