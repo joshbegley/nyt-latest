@@ -1,3 +1,7 @@
+**8 Takeaways from Tuesday’s Primaries**\
+`A moderate won the closely fought Democratic primary for governor in Wisconsin, the latest contest between the party’s progressive and moderate wings.`\
+https://www.nytimes.com/2026/08/12/us/politics/south-carolina-wisconsin-minnesota-primaries.html
+
 **Trump Says Secret Plane Swap Was Not His Decision**\
 `President Trump said the Secret Service asked him to get off Air Force One and swap planes in response to a threat from Iran last month. He did not directly comment on the risk of the people he left on the plane.`\
 https://www.nytimes.com/video/us/politics/100000011087345/trump-plane-switch-air-force-one-secret-service.html

@@ -31,7 +31,7 @@ https://www.nytimes.com/2026/08/12/crosswords/spelling-bee-forum.html
 https://www.nytimes.com/2026/08/12/arts/television/late-night-trump-catering-container-air-force-one.html
 
 **8 Takeaways from Tuesday’s Primaries**\
-`A Democratic primary for governor in Wisconsin remained neck and neck early Wednesday, leaving a national battle between progressive and moderate wings largely unsettled.`\
+`A moderate won the closely fought Democratic primary for governor in Wisconsin, the latest contest between the party’s progressive and moderate wings.`\
 https://www.nytimes.com/2026/08/12/us/politics/south-carolina-wisconsin-minnesota-primaries.html
 
 **¿Debería ser un delito dejar que los niños jueguen solos afuera?**\
