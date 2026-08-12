@@ -1,3 +1,27 @@
+**All the President’s Planes**\
+`Last month, President Trump made a dramatic exit after a visit to Turkey, prompting concerns about the safety of his planes. This week, we learned it was all a ruse.`\
+https://www.nytimes.com/2026/08/12/podcasts/the-daily/air-force-one-trump-planes-ruse.html
+
+**Key Takeaways From This Week’s Primaries, and the Deportees Stuck in ‘No Man’s Land’**\
+`Plus, why new Alzheimer’s tests are causing distress.`\
+https://www.nytimes.com/2026/08/12/podcasts/the-headlines/takeaways-primaries-deportees-eswatini.html
+
+**NYT Connections Answers for August 13, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Aug. 13, 2026.`\
+https://www.nytimes.com/2026/08/12/crosswords/connections-companion-1159.html
+
+**NYT Strands Hints for Aug. 13, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Aug. 13, 2026.`\
+https://www.nytimes.com/2026/08/12/crosswords/strands-sidekick-893.html
+
+**Today’s Wordle Hints for August 13, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Aug. 13, 2026.`\
+https://www.nytimes.com/2026/08/12/crosswords/wordle-review-1881.html
+
+**Heat Kills Hundreds of Workers Each Year. A Postal Carrier Was One.**\
+`About half a dozen states explicitly protect workers from excessive heat. And some others, like Texas, prevent local governments from passing their own laws.`\
+https://www.nytimes.com/2026/08/12/business/extreme-heat-worker-deaths.html
+
 **Election Live Updates: Democratic Socialist Is Upset in Tight Wisconsin Primary for Governor**\
 `Francesca Hong, who had led in opinion polls, lost to David Crowley, a moderate Democrat. In Minnesota, Lt. Gov. Peggy Flanagan, a progressive, won the Democratic Senate primary.`\
 https://www.nytimes.com/live/2026/08/12/us/primary-election-results-wi-mn-sc

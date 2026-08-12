@@ -1,3 +1,23 @@
+**All the President’s Planes**\
+`Last month, President Trump made a dramatic exit after a visit to Turkey, prompting concerns about the safety of his planes. This week, we learned it was all a ruse.`\
+https://www.nytimes.com/2026/08/12/podcasts/the-daily/air-force-one-trump-planes-ruse.html
+
+**Key Takeaways From This Week’s Primaries, and the Deportees Stuck in ‘No Man’s Land’**\
+`Plus, why new Alzheimer’s tests are causing distress.`\
+https://www.nytimes.com/2026/08/12/podcasts/the-headlines/takeaways-primaries-deportees-eswatini.html
+
+**NYT Connections Answers for August 13, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Aug. 13, 2026.`\
+https://www.nytimes.com/2026/08/12/crosswords/connections-companion-1159.html
+
+**NYT Strands Hints for Aug. 13, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Aug. 13, 2026.`\
+https://www.nytimes.com/2026/08/12/crosswords/strands-sidekick-893.html
+
+**Today’s Wordle Hints for August 13, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Aug. 13, 2026.`\
+https://www.nytimes.com/2026/08/12/crosswords/wordle-review-1881.html
+
 **Thailand Halts New Gun Permits After Mass Shooting at a School**\
 `It remains to be seen how far the government will go to tighten gun control in the country, which has experienced a string of high-profile shootings in recent years.`\
 https://www.nytimes.com/2026/08/12/world/asia/thailand-gun-permits-school-shooting.html
@@ -80,7 +100,7 @@ https://www.nytimes.com/2026/08/12/world/canada/canada-tariffs-manufacturing-tra
 
 **Heat Kills Hundreds of Workers Each Year. A Postal Carrier Was One.**\
 `About half a dozen states explicitly protect workers from excessive heat. And some others, like Texas, prevent local governments from passing their own laws.`\
-https://www.nytimes.com/2026/08/12/business/heat-kills-hundreds-of-workers-each-year-a-postal-carrier-was-one.html
+https://www.nytimes.com/2026/08/12/business/extreme-heat-worker-deaths.html
 
 **Which $480,000 Home Would You Pick?**\
 `This weeks properties are in Lexington, Ky.; Pittsford, N.Y.; and Bradford, Vt.`\
@@ -177,24 +197,4 @@ https://www.nytimes.com/es/2026/08/12/espanol/opinion/antidepresivos-como-dejarl
 **N.Y.C. Students Are Sick of Using Flimsy Paper Cards to Ride the Subway**\
 `A new survey of students who use a free version of the OMNY payment system say most of their problems would be fixed if the card was made out of plastic.`\
 https://www.nytimes.com/2026/08/12/nyregion/subway-omny-card-students-mta.html
-
-**NYT Spelling Bee Answers for August 12, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/08/12/crosswords/spelling-bee-forum.html
-
-**Jimmy Fallon Recreates Trump’s Catering Container Escape**\
-`“Everyone was, like, ‘Well, at least he has one exit plan,’” the “Tonight Show” host said.`\
-https://www.nytimes.com/2026/08/12/arts/television/late-night-trump-catering-container-air-force-one.html
-
-**8 Takeaways from Tuesday’s Primaries**\
-`A moderate won the closely fought Democratic primary for governor in Wisconsin, the latest contest between the party’s progressive and moderate wings.`\
-https://www.nytimes.com/2026/08/12/us/politics/south-carolina-wisconsin-minnesota-primaries.html
-
-**¿Debería ser un delito dejar que los niños jueguen solos afuera?**\
-`Algunos padres se han visto envueltos en procesos legales por permitir que sus hijos tengan autonomía.`\
-https://www.nytimes.com/es/2026/08/12/espanol/ninos-solos-ilegal.html
-
-**Mientras EE. UU. se queda sin municiones, las capacidades militares de Irán evolucionan**\
-`Los ataques iraníes que mataron a tres soldados estadounidenses en Jordania revelan dos hechos importantes: primero, Irán es ahora un adversario más hábil. Segundo, al Pentágono le quedan menos interceptores.`\
-https://www.nytimes.com/es/2026/08/12/espanol/estados-unidos/iran-municiones-guerra-arsenal.html
 
