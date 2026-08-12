@@ -1,3 +1,7 @@
+**8 Takeaways from Tuesday’s Primaries**\
+`A Democratic primary for governor in Wisconsin remained neck and neck early Wednesday, leaving a national battle between progressive and moderate wings largely unsettled.`\
+https://www.nytimes.com/2026/08/12/us/politics/11pol-south-carolina-wisconsin-minnesota-primaries.html
+
 **¿Debería ser un delito dejar que los niños jueguen solos afuera?**\
 `Algunos padres se han visto envueltos en procesos legales por permitir que sus hijos tengan autonomía.`\
 https://www.nytimes.com/es/2026/08/12/espanol/ninos-solos-ilegal.html
