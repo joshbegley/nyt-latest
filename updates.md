@@ -1,3 +1,7 @@
+**Live Updates: Inflation Was Moderate in July, but Energy Prices Remain Elevated**\
+`The Consumer Price Index for July showed prices rose 3.4 percent from a year ago as the war in Iran dragged on.`\
+https://www.nytimes.com/live/2026/08/12/business/inflation-cpi-report
+
 **On Wordle, Data Centers and Gen Z ‘Cockroaches’: The Winners of Week 8 of Our Summer Reading Contest**\
 `This week we’re crowning three video winners. Enjoy!`\
 https://www.nytimes.com/2026/08/12/learning/on-wordle-data-centers-and-gen-z-cockroaches-the-winners-of-week-8-of-our-summer-reading-contest.html
