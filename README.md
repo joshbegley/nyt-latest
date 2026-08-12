@@ -1,3 +1,7 @@
+**Telescope Spots Two Black Holes on the Cusp of Merging**\
+`New images from the James Webb telescope show a galaxy with a trio of supermassive black holes. Two of them appear to be locked in a tight tango.`\
+https://www.nytimes.com/2026/08/12/science/space/telescope-spots-two-black-holes-on-the-cusp-of-merging.html
+
 **Center-Left Candidate Defeats Socialist in Wisconsin’s Governor Primary**\
 `The upset victory by David Crowley, the Milwaukee County executive, over Francesca Hong, a democratic socialist, sets up a more traditional general election in November.`\
 https://www.nytimes.com/2026/08/12/us/elections/wisconsin-governor-democratic-primary-hong-crowley.html
@@ -24,7 +28,7 @@ https://www.nytimes.com/2026/08/12/arts/television/late-night-trump-catering-con
 
 **8 Takeaways from Tuesday’s Primaries**\
 `A Democratic primary for governor in Wisconsin remained neck and neck early Wednesday, leaving a national battle between progressive and moderate wings largely unsettled.`\
-https://www.nytimes.com/2026/08/12/us/politics/11pol-south-carolina-wisconsin-minnesota-primaries.html
+https://www.nytimes.com/2026/08/12/us/politics/south-carolina-wisconsin-minnesota-primaries.html
 
 **¿Debería ser un delito dejar que los niños jueguen solos afuera?**\
 `Algunos padres se han visto envueltos en procesos legales por permitir que sus hijos tengan autonomía.`\
@@ -66,8 +70,8 @@ https://www.nytimes.com/2026/08/12/world/europe/count-binface-nigel-farage-clact
 `Our reporter Amelia Nierenberg describes how the right-wing British political leader Nigel Farage, who is seeking re-election to Parliament, faces an unconventional opponent: Count Binface.`\
 https://www.nytimes.com/video/world/europe/100000011041924/why-nigel-farage-is-running-against-a-trash-can.html
 
-**What to Know About David Crowley, a Democratic Candidate for Wisconsin Governor**\
-`The Milwaukee County executive, who was locked in a tight race for the Democratic nomination against Francesca Hong, could become the first Black governor of Wisconsin.`\
+**What to Know About David Crowley, the Democratic Candidate for Wisconsin Governor**\
+`The Milwaukee County executive, who won a tight primary race against Francesca Hong early Wednesday, could become the first Black governor of Wisconsin.`\
 https://www.nytimes.com/2026/08/11/us/politics/david-crowley-wisconsin-governor.html
 
 **Lisa Demuth Wins Republican Primary for Governor of Minnesota**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/11/us/politics/peggy-flanagan-minnesota-senate-c
 **5 Things to Know About Angie Craig, Democratic Senate Hopeful in Minnesota**\
 `Ms. Craig, a moderate Democratic congresswoman, flipped a swing House seat in 2018 to become Minnesota’s first openly gay member of Congress.`\
 https://www.nytimes.com/2026/08/11/us/politics/angie-craig-minnesota-democratic-senate.html
-
-**Abdul El-Sayed Deleted Old Posts and Videos Defending ‘Defund’ and Floating an End to Fireworks**\
-`The removed posts from Dr. Abdul El-Sayed, the Democratic nominee for Senate in Michigan, immediately set off Republican attacks.`\
-https://www.nytimes.com/2026/08/11/us/politics/abdul-el-sayed-fireworks-police-videos.html
 
