@@ -112,7 +112,7 @@ https://www.nytimes.com/2026/08/12/us/elections/david-crowley-wisconsin-governor
 
 **Inflation Eased Slightly in July, but Prices Remain Elevated as War Drags On**\
 `Though energy prices fell last month after their spring surge, other factors pushed up costs as the Fed considers raising interest rates.`\
-https://www.nytimes.com/2026/08/12/business/economy/what-to-know-about-the-report.html
+https://www.nytimes.com/2026/08/12/business/economy/cpi-report-july-inflation-data.html
 
 **Inflation Was Moderate in July, but Energy Prices Remain Elevated**\
 `The Consumer Price Index for July showed prices rose 3.4 percent from a year ago as the war in Iran dragged on.`\

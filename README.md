@@ -31,7 +31,7 @@ https://www.nytimes.com/2026/08/12/business/iran-war-hormuz-oil.html
 https://www.nytimes.com/2026/08/12/business/consumer-debt-inflation.html
 
 **How Kennedy Helped Fuel Vaccine Skepticism**\
-`Robert F. Kennedy Jr. mocked the threat of measles during a 2021 speech in Lancaster County, Pa. Now, local officials are racing to contain one of the country’s largest outbreaks. Teddy Rosenbluth, reporter for Well covering health news, explains.`\
+`Robert F. Kennedy Jr. once mocked the threat of measles during a 2021 speech in Lancaster County, Pa. Now, local officials are racing to contain one of the country’s largest outbreaks. Teddy Rosenbluth, reporter for Well covering health news, explains.`\
 https://www.nytimes.com/video/well/100000011073335/how-kennedy-fueled-vaccine-skepticism.html
 
 **RFK Jr. Stirred Vaccine Fears in Pennsylvania Years Before Measles Outbreak**\

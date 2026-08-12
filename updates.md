@@ -1,5 +1,9 @@
 **Inflation Eased Slightly in July, but Prices Remain Elevated as War Drags On**\
 `Though energy prices fell last month after their spring surge, other factors pushed up costs as the Fed considers raising interest rates.`\
+https://www.nytimes.com/2026/08/12/business/economy/cpi-report-july-inflation-data.html
+
+**Inflation Eased Slightly in July, but Prices Remain Elevated as War Drags On**\
+`Though energy prices fell last month after their spring surge, other factors pushed up costs as the Fed considers raising interest rates.`\
 https://www.nytimes.com/2026/08/12/business/economy/what-to-know-about-the-report.html
 
 **Inflation Was Moderate in July, but Energy Prices Remain Elevated**\
