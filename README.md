@@ -162,7 +162,3 @@ https://www.nytimes.com/2026/08/12/movies/mysterious-skin-ifc-center.html
 `High school students who use a free version of the OMNY payment system say most of their problems would be fixed if the card were made of plastic, according to a new report.`\
 https://www.nytimes.com/2026/08/12/nyregion/new-york-city-gave-students-free-transit-cards-they-have-feedback.html
 
-**Book Review: ‘Hannah Arendt,’ by Thomas Meyer**\
-`An ungainly new biography by the German philosopher Thomas Meyer purports to situate Arendt in the context of her own era.`\
-https://www.nytimes.com/2026/08/12/books/review/hannah-arendt-thomas-meyer.html
-
