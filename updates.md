@@ -1,3 +1,27 @@
+**Two Killed in Military Helicopter Crash Near Fort Hood in Texas**\
+`The helicopter crashed in Salado, a small town about 20 miles from the military base, the authorities said.`\
+https://www.nytimes.com/2026/08/12/us/texas-helicopter-crash.html
+
+**See the 2026 European Solar Eclipse, in Photos and Videos**\
+`From Iceland to Spain, the celestial show drew visitors far and wide.`\
+https://www.nytimes.com/2026/08/12/world/europe/solar-eclipse-europe-photos.html
+
+**Journalism in the ‘Zones of Uncertainty’**\
+`Can reporting solve mysteries like U.F.O.s and A.I. consciousness? The Opinion columnist Ross Douthat tells his fellow columnist Ezra Klein why journalists should tackle zones of uncertainty when they involve concrete, testable claims.`\
+https://www.nytimes.com/video/opinion/100000011086410/journalism-in-the-zones-of-uncertainty.html
+
+**Forbes Fired Top Editor After Discovering He Received Secret $6 Million Payment**\
+`Randall Lane, the magazine’s chief content officer, received the money from the founder of Shook Research, which has partnered with Forbes on content about wealth advisers.`\
+https://www.nytimes.com/2026/08/12/business/forbes-editor-fired.html
+
+**Karoline Leavitt, Trump’s White House Press Secretary, Is Leaving the Role**\
+`President Trump said that Ms. Leavitt, who recently gave birth to her second child, would be leaving to spend time with her family.`\
+https://www.nytimes.com/2026/08/12/us/politics/karoline-leavitt-trump-press-secretary.html
+
+**Watching Trump at the Patriot Games**\
+`Zolan Kanno-Youngs, a White House correspondent for The New York Times, was at the finale of the Patriot Games, an athletic event marking the U.S.’s 250th birthday, where President Trump made an appearance. Mr. Kanno-Youngs breaks down the role of sports in the Trump presidency on “The Call” with Natalie Kitroeff.`\
+https://www.nytimes.com/video/us/politics/100000011088835/watching-trump-at-the-patriot-games.html
+
 **A Bright Spot in Colombia as Rescuers Free Quake Victim**\
 `(No description)`\
 https://www.nytimes.com/2026/08/12/world/americas/colombia-earthquake-rescue.html
