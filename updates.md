@@ -1,3 +1,7 @@
+**Trump Says Secret Service Ordered Air Force One Swap**\
+`Trump claims his secret plane was in more danger than the Air Force One decoy the public thought Trump was flying on.`\
+https://www.nytimes.com/2026/08/11/us/politics/trump-threat-plane-iran-decoy.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000011087111/11vid-darlene-embed2-30501.html

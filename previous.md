@@ -1,3 +1,7 @@
+**Trump Says Secret Service Ordered Air Force One Swap**\
+`Trump claims his secret plane was in more danger than the Air Force One decoy the public thought Trump was flying on.`\
+https://www.nytimes.com/2026/08/11/us/politics/trump-threat-plane-iran-decoy.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000011087111/11vid-darlene-embed2-30501.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/08/11/briefing/primaries-air-force-one.html
 **The 10 Japanese Pantry Staples You Need in Your Kitchen**\
 `Chefs weigh in on the essentials worth stocking and recommend their favorite brands.`\
 https://www.nytimes.com/2026/08/11/t-magazine/japanese-cooking-recipe-ingredients.html
-
-**Europe Faces Its Fifth Heat Wave Since May**\
-`Forecasters have warned that the relentless heat, combined with persistently dry conditions, could worsen the threat of wildfires.`\
-https://www.nytimes.com/video/world/europe/100000011084952/europe-heat-wave-weather-wildfires.html
 
 **Election Live Updates: Democratic Socialist Locked in Unexpectedly Tight Race in Wisconsin**\
 `Francesca Hong, a democratic socialist who had polled strongly in the Democratic primary for Wisconsin governor, was in a close contest with the Milwaukee County executive. In another crucial race, Senator Darline Graham will face Representative Ralph Norman in a runoff for the G.O.P. nomination for the seat held by her late brother.`\
