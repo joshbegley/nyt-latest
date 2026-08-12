@@ -1,3 +1,7 @@
+**How Crowley Eked Out a Win in the Wisconsin Governor Primary**\
+`A shifting race and a key endorsement helped the moderate Democrat overcome his progressive challenger, Francesca Hong, voters said.`\
+https://www.nytimes.com/2026/08/12/us/wisconsin-polls-primary-election.html
+
 **How ‘The Evil Dead’ Point-of-View Shots Changed Horror Movies Forever**\
 `The racing point-of-view shot is a signature of this franchise. But once you know to look for it, you’ll see it everywhere.`\
 https://www.nytimes.com/interactive/2026/08/12/movies/the-evil-dead-sam-raimi.html
@@ -150,8 +154,8 @@ https://www.nytimes.com/2026/08/12/opinion/perseid-meteor-shower-awe-inspiring.h
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000011087834/12vid-crowley-reintroduction-sot.html
 
-**Ward Churchill, Professor Who Challenged His Dismissal, Dies at 78**\
-`His inflammatory essay about the Sept. 11 attacks prompted his dismissal by the University of Colorado for unrelated research misconduct. A jury later found that he had been wrongfully terminated for his views.`\
+**Ward Churchill, Professor Who Challenged His Dismissal Over 9/11 Essay, Dies at 78**\
+`His inflammatory essay about the attacks prompted his dismissal by the University of Colorado for unrelated research misconduct. A jury later found that he had been wrongfully terminated.`\
 https://www.nytimes.com/2026/08/12/us/ward-churchill-dead.html
 
 **Eclipse solar, en vivo: comienza la trayectoria de la totalidad**\

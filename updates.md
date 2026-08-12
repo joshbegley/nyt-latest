@@ -1,3 +1,7 @@
+**How ‘The Evil Dead’ Point-of-View Shots Changed Horror Movies Forever**\
+`The racing point-of-view shot is a signature of this franchise. But once you know to look for it, you’ll see it everywhere.`\
+https://www.nytimes.com/interactive/2026/08/12/movies/the-evil-dead-sam-raimi.html
+
 **More Than 40 Dead After a Ferry Capsizes on Zimbabwe’s Lake Kariba**\
 `The vessel was crowded far beyond capacity and was hit by strong waves, the police said. While dozens have been rescued, the search continues for an unknown number of missing people.`\
 https://www.nytimes.com/2026/08/12/world/africa/-zimbabwe-lake-kariba-ferry-capsize.html
