@@ -1,3 +1,11 @@
+**Live Updates: In Europe, the Total Solar Eclipse Is Only Hours Away**\
+`From Iceland to Spain, people have flocked to places where, briefly, the moon will completely block the sun.`\
+https://www.nytimes.com/live/2026/08/12/world/solar-eclipse-2026-updates
+
+**Benign Inflation Data Would Reduce Urgency Around September Rate Rise**\
+`The latest Consumer Price Index report will either help to reinforce patience or compel officials to more readily consider lifting borrowing costs.`\
+https://www.nytimes.com/2026/08/12/business/economy/inflation-federal-reserve-interest-rates.html
+
 **Energy Prices Expected to Fall in Latest Inflation Data**\
 `The war with Iran injected volatility into the oil and gas market, with prices rising and falling in concert with the conflict.`\
 https://www.nytimes.com/2026/08/12/business/economy/energy-oil-prices-inflation.html
