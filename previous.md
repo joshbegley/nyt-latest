@@ -44,7 +44,7 @@ https://www.nytimes.com/2026/08/12/pageoneplus/quote-of-the-day-brutal-weather-w
 
 **In Europe, the Total Solar Eclipse Is Hours Away**\
 `Sky watchers have flocked to places, from Iceland to Spain, where the moon will completely block the sun.`\
-https://www.nytimes.com/2026/08/12/world/europe/eclipse-preview.html
+https://www.nytimes.com/2026/08/12/world/europe/solar-eclipse-europe.html
 
 **In Bali, a Quest to Restore the Sacred Glow of Fireflies**\
 `The insects, revered in local culture, are disappearing for many reasons, including rapid development to cater to tourists.`\

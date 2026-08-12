@@ -1,3 +1,7 @@
+**In Europe, the Total Solar Eclipse Is Hours Away**\
+`Sky watchers have flocked to places, from Iceland to Spain, where the moon will completely block the sun.`\
+https://www.nytimes.com/2026/08/12/world/europe/solar-eclipse-europe.html
+
 **Toda una generación busca cómo dejar los antidepresivos**\
 `Muchas personas sienten que los antidepresivos bloquean sus emociones verdaderas, pero no cuentan con orientación sobre cómo dejar estos fármacos.`\
 https://www.nytimes.com/es/2026/08/12/espanol/opinion/antidepresivos-como-dejarlos.html
