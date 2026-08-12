@@ -1,3 +1,7 @@
+**Fighter Jets Intercept Aircraft Over Trump’s Patriot Games in Ohio**\
+`It was at least the fourth time that an aircraft has violated the no-fly zone near President Trump this week.`\
+https://www.nytimes.com/2026/08/11/us/politics/norad-jets-trump-patriot-games-ohio.html
+
 **Areas to Watch in Minnesota’s Senate and Governor Primaries**\
 `Divides in both parties will be on display Tuesday night, particularly in a group of key counties.`\
 https://www.nytimes.com/2026/08/11/us/politics/minnesota-primary-elections-counties.html
@@ -179,16 +183,12 @@ https://www.nytimes.com/video/world/africa/100000011032450/deported-from-the-us-
 https://www.nytimes.com/video/world/europe/100000011085655/europeans-scramble-to-buy-solar-eclipse-glasses.html
 
 **Election Live Updates: Lindsey Graham’s Sister Advances to Runoff in South Carolina Senate Primary**\
-`Senator Darline Graham will face Representative Ralph Norman in a runoff for the G.O.P. nominiation for the seat held by her late brother. Polls have closed in five other states, including Minnesota and Wisconsin, where a democratic socialist is seeking the nomination for governor.`\
+`Senator Darline Graham will face Representative Ralph Norman in a runoff for the G.O.P. nomination for the seat held by her late brother. Polls have closed in five other states, including Minnesota and Wisconsin, where a democratic socialist is seeking the nomination for governor.`\
 https://www.nytimes.com/live/2026/08/11/us/elections-south-carolina-wisconsin
 
 **Richard Lingeman, Cultural Historian and Biographer, Dies at 95**\
 `He spent decades as a magazine editor and wrote an acclaimed history of small-town America, as well as biographies of the novelists Theodore Dreiser and Sinclair Lewis.`\
 https://www.nytimes.com/2026/08/11/books/richard-lingeman-dead.html
-
-**Human-Shaped Robots at This Car Factory Can Perform Humanlike Tasks**\
-`Humanoids — human-shaped robots — at this BMW factory in South Carolina are expected to respond to voice commands, solve problems and react to unforeseen events. U.S. automakers hope that this technology can give them a fighting chance against their Chinese rivals that enjoy lower costs.`\
-https://www.nytimes.com/video/business/economy/100000011085557/humanoid-robots-bmw-car-factory.html
 
 **Race Too Close to Call in Democratic Primary for Michigan Senate Seat**\
 `Dr. Abdul El-Sayed, a progressive, and Representative Haley Stevens, a centrist, both gave speeches with the winner still undeclared. Kansas, Missouri, Virginia and Washington also voted.`\

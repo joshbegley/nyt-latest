@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/08/11/us/politics/minnesota-primary-elections-count
 `The fourth-term U.S. senator jolted Minnesota politics early this year by mounting a bid to succeed Gov. Tim Walz.`\
 https://www.nytimes.com/2026/08/11/us/klobuchar-minnesota-governor.html
 
-**Trump-Backed Representative Wins Nomination for Wisconsin Governor**\
+**Tom Tiffany Wins Wisconsin’s Republican Primary for Governor**\
 `Tom Tiffany, a conservative from western Wisconsin, said he would try to lower taxes, bring transparency to health care and protect farmland.`\
 https://www.nytimes.com/2026/08/11/us/wisconsin-governor-republican-primary-tom-tiffany.html
 

@@ -1,3 +1,11 @@
+**Fighter Jets Intercept Aircraft Over Trump’s Patriot Games in Ohio**\
+`It was at least the fourth time that an aircraft has violated the no-fly zone near President Trump this week.`\
+https://www.nytimes.com/2026/08/11/us/politics/norad-jets-trump-patriot-games-ohio.html
+
+**Election Live Updates: Lindsey Graham’s Sister Advances to Runoff in South Carolina Senate Primary**\
+`Senator Darline Graham will face Representative Ralph Norman in a runoff for the G.O.P. nomination for the seat held by her late brother. Polls have closed in five other states, including Minnesota and Wisconsin, where a democratic socialist is seeking the nomination for governor.`\
+https://www.nytimes.com/live/2026/08/11/us/elections-south-carolina-wisconsin
+
 **Areas to Watch in Minnesota’s Senate and Governor Primaries**\
 `Divides in both parties will be on display Tuesday night, particularly in a group of key counties.`\
 https://www.nytimes.com/2026/08/11/us/politics/minnesota-primary-elections-counties.html
