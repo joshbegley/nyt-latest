@@ -59,7 +59,7 @@ https://www.nytimes.com/video/science/earth/100000011087587/andy-green-sound-bar
 https://www.nytimes.com/video/podcasts/100000011088898/are-rogue-ai-models-just-a-marketing-stunt.html
 
 **Watching Trump at the Patriot Games**\
-`Zolan Kanno-Youngs was at the finale of the Patriot Games, where President Trump made an appearance. He breaks down the role of sports in the Trump presidency on “The Call” with Natalie Kitroeff.`\
+`Zolan Kanno-Youngs, a White House correspondent for The New York Times, was at the finale of the Patriot Games, an athletic event marking the U.S.’s 250th birthday, where President Trump made an appearance. Mr. Kanno-Youngs breaks down the role of sports in the Trump presidency on “The Call” with Natalie Kitroeff.`\
 https://www.nytimes.com/video/us/politics/100000011088835/watching-trump-at-the-patriot-games.html
 
 **The Good List: 6 Things to Add Joy to Your Day**\
