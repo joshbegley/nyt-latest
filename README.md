@@ -150,7 +150,3 @@ https://www.nytimes.com/2026/08/12/crosswords/connections-companion-1159.html
 `Plus, why new Alzheimer’s tests are causing distress.`\
 https://www.nytimes.com/2026/08/12/podcasts/the-headlines/takeaways-primaries-deportees-eswatini.html
 
-**NYT Strands Hints for Aug. 13, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, Aug. 13, 2026.`\
-https://www.nytimes.com/2026/08/12/crosswords/strands-sidekick-893.html
-

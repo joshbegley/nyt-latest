@@ -1,3 +1,15 @@
+**How a Reporter Finds Human Stories in Housing**\
+`Mihir Zaveri shares lessons learned over nearly six years of reporting on rising rents, complex zoning regulations and wily plumbers.`\
+https://www.nytimes.com/2026/08/12/insider/new-york-city-housing.html
+
+**Maps: Tracking Tropical Storm Cristobal**\
+`See the likely path and wind arrival times for Cristobal`\
+https://www.nytimes.com/interactive/2026/08/12/weather/cristobal-map-path-tracker.html
+
+**For Blakeman, Trump Could Make and Break His Bid to Lead New York**\
+`Bruce Blakeman, who is vying to become the state’s second Republican governor in the last 50 years, pushes President Trump’s agenda even as he avoids mentioning his name.`\
+https://www.nytimes.com/2026/08/12/nyregion/bruce-blakeman-governor-ny.html
+
 **How Kennedy Helped Fuel Vaccine Skepticism**\
 `Robert F. Kennedy Jr. once mocked the threat of measles during a 2021 speech in Lancaster County, Pa. Now, local officials are racing to contain one of the country’s largest outbreaks. Teddy Rosenbluth, reporter for Well covering health news, explains.`\
 https://www.nytimes.com/video/well/100000011073335/how-kennedy-fueled-vaccine-skepticism.html
