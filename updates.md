@@ -1,3 +1,23 @@
+**How a Staten Island Lawsuit Is Challenging Mamdani’s Second-Home Tax**\
+`New York officials were already hurrying to roll out the tax. A lawsuit by homeowners, which persuaded a judge to issue a temporary pause, has made the process thornier.`\
+https://www.nytimes.com/2026/08/11/nyregion/pied-a-terre-tax-mamdani.html
+
+**Ned Lamont Wins the Democratic Primary for Connecticut Governor**\
+`Josh Elliott, a state representative who mounted a primary challenge, pledged to raise taxes on the rich and take the state on a more progressive path.`\
+https://www.nytimes.com/2026/08/11/us/politics/connecticut-primary-governor-lamont-elliott.html
+
+**Darline Graham Advances to the Republican Senate Runoff in South Carolina**\
+`Ms. Graham did not win the special primary outright, despite having President Trump’s endorsement. Her runoff opponent was still too close to call.`\
+https://www.nytimes.com/2026/08/11/us/politics/darline-graham-runoff-south-carolina.html
+
+**Trump Administration Bars Medicaid Funding of Transition Treatment for Transgender Youth**\
+`Transgender rights advocates said the new rule would face a legal challenge.`\
+https://www.nytimes.com/2026/08/11/us/politics/trump-medicaid-trans-treatment.html
+
+**Election Live Updates: Lindsey Graham’s Sister Advances to Runoff in South Carolina Senate Primary**\
+`Five other states are also holding races, including Minnesota and Wisconsin, where a democratic socialist is seeking the nomination for governor.`\
+https://www.nytimes.com/live/2026/08/11/us/elections-south-carolina-wisconsin
+
 **Election Live Updates: Tallying Underway in South Carolina, Where Graham’s Sister Seeks His Seat**\
 `The late Senator Lindsey Graham’s sister is among a crowded field in a race that could be headed for a runoff. Five other states are also holding races, including Minnesota and Wisconsin, where a democratic socialist is seeking the nomination for governor.`\
 https://www.nytimes.com/live/2026/08/11/us/elections-south-carolina-wisconsin
