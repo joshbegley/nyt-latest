@@ -174,7 +174,3 @@ https://www.nytimes.com/2026/08/12/travel/paul-theroux-king-charles-england-coas
 `When temperatures drop, channel the ’90s with bold, oversize silhouettes built piece by piece.`\
 https://www.nytimes.com/2026/08/12/t-magazine/fall-layers-fashion-90s.html
 
-**Word of the Day: munificent**\
-`This word has appeared in four articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/08/12/learning/word-of-the-day-munificent.html
-
