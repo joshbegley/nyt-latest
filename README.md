@@ -34,8 +34,8 @@ https://www.nytimes.com/2026/08/12/world/europe/europe-fifth-heat-wave.html
 `From Iceland to Spain, people have flocked to places where, briefly, the moon will completely block the sun.`\
 https://www.nytimes.com/live/2026/08/12/world/solar-eclipse-2026-updates
 
-**Benign Inflation Data Would Reduce Urgency Around September Rate Rise**\
-`The latest Consumer Price Index report will either help to reinforce patience or compel officials to more readily consider lifting borrowing costs.`\
+**Benign Inflation Data Offers Reprieve to Fed as It Weighs Rate Increase**\
+`The latest Consumer Price Index report helped to reinforce the patient approach adopted by many officials at the Federal Reserve about raising rates, but it has not resolved the debate altogether.`\
 https://www.nytimes.com/2026/08/12/business/economy/inflation-federal-reserve-interest-rates.html
 
 **July CPI Report Is Expected to Show Falling Energy Prices**\

@@ -1,3 +1,7 @@
+**A Pasadena Craftsman Bursting With Color**\
+`Grey DeLisle lives with bold wallpaper, retro appliances and a wooden cowboy named Slim.`\
+https://www.nytimes.com/2026/08/12/realestate/a-pasadena-craftsman-bursting-with-color.html
+
 **How to Safely Watch the Solar Eclipse, Even Without Glasses**\
 `If you plan to watch the solar eclipse, make sure your lenses offer enough protection. Alternatively, you can safely watch using household items.`\
 https://www.nytimes.com/2026/08/12/world/europe/watch-solar-eclipse-without-glasses-pinhole-camera-colander.html
