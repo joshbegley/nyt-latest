@@ -1,3 +1,11 @@
+**Karoline Leavitt, Trump’s Press Secretary, to Depart White House**\
+`President Trump said that Ms. Leavitt, who recently gave birth to her second child, would be leaving to spend time with her family.`\
+https://www.nytimes.com/2026/08/12/us/politics/karoline-leavitt-trump-press-secretary.html
+
+**A Bright Spot in Colombia as Rescuers Free Quake Victim**\
+`A single image shows the obstacles facing emergency workers as they try to unearth people from the rubble.`\
+https://www.nytimes.com/2026/08/12/world/americas/colombia-earthquake-rescue.html
+
 **3 Ex-Georgia Deputies Used Flock Cameras to Stalk People, Sheriff Says**\
 `The former Bibb County deputies were arrested this week amid a growing national debate over Flock cameras, which can be found on roads in every state but Alaska.`\
 https://www.nytimes.com/2026/08/12/us/georgia-sheriffs-flock-cameras-stalking.html
@@ -6,7 +14,7 @@ https://www.nytimes.com/2026/08/12/us/georgia-sheriffs-flock-cameras-stalking.ht
 `In a recent interview, Representative Alexandria Ocasio-Cortez distanced herself from the 2020 era of progressivism.`\
 https://www.nytimes.com/2026/08/12/style/woke-1-aoc-dsa.html
 
-**Even Some Cabinet Members Didn’t Join Trump’s Secret Flight. Here’s Who Did.**\
+**Which Cabinet Members Joined Trump on His Secret Flight Out of Turkey?**\
 `The White House aides Natalie Harp and Dan Scavino were among those traveling with the president on a military jet.`\
 https://www.nytimes.com/2026/08/12/us/politics/trump-air-force-one-secret-flight-passengers.html
 
@@ -161,14 +169,6 @@ https://www.nytimes.com/2026/08/12/nyregion/bruce-blakeman-governor-ny.html
 **How Scientists Use Eclipses for Research**\
 `It’s a chance not just to study the sun but also space weather, light pollution and even animal behavior.`\
 https://www.nytimes.com/2026/08/12/world/europe/eclipse-scientists.html
-
-**‘The Wrong Girls’ Review: Dazed, Confused and Psychic**\
-`Kristen Stewart and Alia Shawkat play telepathic best friends in this stoner comedy where a laboratory-engineered hallucinogen is on the loose.`\
-https://www.nytimes.com/2026/08/12/movies/the-wrong-girls-review.html
-
-**My Kids Think It’s Creepy That I Google People Before I Meet Them. Are They Right?**\
-`It’s not as if I am examining F.B.I. files or classified information!`\
-https://www.nytimes.com/2026/08/12/magazine/google-social-media-ethics.html
 
 **Eclipse solar, en vivo: comienza la trayectoria de la totalidad**\
 `De Islandia a España, los observadores han acudido a los lugares donde, por corto tiempo, la Luna bloqueará completamente al Sol.`\

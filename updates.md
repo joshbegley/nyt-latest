@@ -1,3 +1,11 @@
+**3 Ex-Georgia Deputies Used Flock Cameras to Stalk People, Sheriff Says**\
+`The former Bibb County deputies were arrested this week amid a growing national debate over Flock cameras, which can be found on roads in every state but Alaska.`\
+https://www.nytimes.com/2026/08/12/us/georgia-sheriffs-flock-cameras-stalking.html
+
+**AOC Said ‘Woke 1.0 Was Crazy.’ But What Is It?**\
+`In a recent interview, Representative Alexandria Ocasio-Cortez distanced herself from the 2020 era of progressivism.`\
+https://www.nytimes.com/2026/08/12/style/woke-1-aoc-dsa.html
+
 **Even Some Cabinet Members Didn’t Join Trump’s Secret Flight. Here’s Who Did.**\
 `The White House aides Natalie Harp and Dan Scavino were among those traveling with the president on a military jet.`\
 https://www.nytimes.com/2026/08/12/us/politics/trump-air-force-one-secret-flight-passengers.html
