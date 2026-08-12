@@ -1,3 +1,7 @@
+**Woman Arrested After Confessing to Starting Nevada Fire, Officials Say**\
+`The woman was arrested on suspicion of arson and possession of a controlled substance. Officials said she set multiple fires that later became part of the Bug fire, which has burned over 66,000 acres.`\
+https://www.nytimes.com/2026/08/12/us/fred-mountain-fire-arson-arrest.html
+
 **Karoline Leavitt Steps Down as White House Press Secretary**\
 `President Trump announced on Wednesday in a Truth Social post that Karoline Leavitt, his press secretary, would step down at the end of the month.`\
 https://www.nytimes.com/video/us/politics/100000011089013/karoline-leavitt-leaving-white-house.html
@@ -161,10 +165,6 @@ https://www.nytimes.com/2026/08/12/opinion/girl-boy-scouts.html
 **Prediction Firms Are Flagging Insider Traders. Many Will Not Face Charges.**\
 `The agency that polices the industry does not have the staffing, the legal tools or the will to broadly crack down on wagers that are easily manipulated, experts say.`\
 https://www.nytimes.com/2026/08/12/us/politics/prediction-markets-insider-trading.html
-
-**Tiny Love Stories: ‘We Ended Up in Her Bed’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://www.nytimes.com/2026/08/12/style/tiny-modern-love-stories-we-ended-up-in-her-bed.html
 
 **Por primera vez en décadas, el día se hace noche en Europa bajo un eclipse solar total**\
 `De Islandia a España, los observadores acudieron a los lugares donde, por corto tiempo, la Luna bloqueó completamente al Sol.`\
