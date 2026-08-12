@@ -1,3 +1,23 @@
+**Quote of the Day: Brutal Weather Wreaks Havoc on Economy**\
+`Quotation of the Day for Wednesday, August 12, 2026.`\
+https://www.nytimes.com/2026/08/12/pageoneplus/quote-of-the-day-brutal-weather-wreaks-havoc-on-economy.html
+
+**In Europe, the Total Solar Eclipse Is Hours Away**\
+`Sky watchers have flocked to places, from Iceland to Spain, where the moon will completely block the sun.`\
+https://www.nytimes.com/2026/08/12/world/europe/eclipse-preview.html
+
+**In Bali, a Quest to Restore the Sacred Glow of Fireflies**\
+`The insects, revered in local culture, are disappearing for many reasons, including rapid development to cater to tourists.`\
+https://www.nytimes.com/2026/08/12/world/asia/bali-restore-fireflies.html
+
+**How Nigel Farage Ended Up Running Against Count Binface in Clacton**\
+`Nigel Farage forced a new election in his parliamentary seat after coming under pressure over his finances. His main challenger is Count Binface, a novelty candidate.`\
+https://www.nytimes.com/2026/08/12/world/europe/count-binface-nigel-farage-clacton.html
+
+**Why Nigel Farage Is Running Against a ‘Trash Can’**\
+`Our reporter Amelia Nierenberg describes how the right-wing British political leader Nigel Farage, who is seeking re-election to Parliament, faces an unconventional opponent: Count Binface.`\
+https://www.nytimes.com/video/world/europe/100000011041924/why-nigel-farage-is-running-against-a-trash-can.html
+
 **What to Know About David Crowley, a Democratic Candidate for Wisconsin Governor**\
 `The Milwaukee County executive, who was locked in a tight race for the Democratic nomination against Francesca Hong, could become the first Black governor of Wisconsin.`\
 https://www.nytimes.com/2026/08/11/us/politics/david-crowley-wisconsin-governor.html

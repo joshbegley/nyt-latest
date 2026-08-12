@@ -1,3 +1,11 @@
+**Europa está a pocas horas de presenciar un eclipse solar total**\
+`A Islandia, España y otros puntos dentro de la totalidad, los aficionados a la astronomía han acudido en masa a lugares donde la Luna bloqueará completamente al Sol.`\
+https://www.nytimes.com/es/2026/08/12/espanol/mundo/europa-eclipse-hora.html
+
+**Zambia Election: President Hichilema Faces Backlash Ahead of Vote**\
+`President Hakainde Hichilema was elected five years ago, promising to protect civil liberties in his copper-rich African nation. Now, he’s accused of trampling on them.`\
+https://www.nytimes.com/2026/08/12/world/africa/zambia-presidential-election-hichilema.html
+
 **Quote of the Day: Brutal Weather Wreaks Havoc on Economy**\
 `Quotation of the Day for Wednesday, August 12, 2026.`\
 https://www.nytimes.com/2026/08/12/pageoneplus/quote-of-the-day-brutal-weather-wreaks-havoc-on-economy.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/08/11/nyregion/columbia-university-lawsuit-palestin
 **The First Rule of Persuasion**\
 `How can you effectively argue with someone you don’t agree with? The Opinion columnist Ross Douthat joins “The Ezra Klein Show” to explain why you must first engage with the best, most high-minded version of your opponent’s position.`\
 https://www.nytimes.com/video/opinion/100000011086404/the-first-rule-of-persuasion.html
-
-**David Ellison Floats Hollywood Exit as States Threaten His Warner Bros. Deal**\
-`Mr. Ellison told Paramount executives that he was considering pulling the company out of California amid a lawsuit brought by state attorneys general.`\
-https://www.nytimes.com/2026/08/11/business/media/david-ellison-hollywood-paramount-warner-bros.html
-
-**A Timeline of the Fight Over the Elizabeth Street Garden in Manhattan**\
-`The yearslong battle has pitted community members in favor of preserving the garden against politicians, housing advocates and developers who say the space should be used to build affordable homes.`\
-https://www.nytimes.com/2026/08/11/nyregion/elizabeth-street-garden-timeline-new-york.html
 
 **Election Live Updates: Progressive Wins Senate Nomination in Minnesota as Wisconsin Democratic Socialist Faces Tight Race**\
 `Lt. Gov. Peggy Flanagan of Minnesota will hope to keep a Senate seat in Democratic hands in November. In Wisconsin, Francesca Hong, a democratic socialist who had polled strongly in the Democratic primary for governor, was in an unexpectedly close contest with the Milwaukee County executive.`\

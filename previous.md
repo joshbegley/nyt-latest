@@ -1,3 +1,23 @@
+**Quote of the Day: Brutal Weather Wreaks Havoc on Economy**\
+`Quotation of the Day for Wednesday, August 12, 2026.`\
+https://www.nytimes.com/2026/08/12/pageoneplus/quote-of-the-day-brutal-weather-wreaks-havoc-on-economy.html
+
+**In Europe, the Total Solar Eclipse Is Hours Away**\
+`Sky watchers have flocked to places, from Iceland to Spain, where the moon will completely block the sun.`\
+https://www.nytimes.com/2026/08/12/world/europe/eclipse-preview.html
+
+**In Bali, a Quest to Restore the Sacred Glow of Fireflies**\
+`The insects, revered in local culture, are disappearing for many reasons, including rapid development to cater to tourists.`\
+https://www.nytimes.com/2026/08/12/world/asia/bali-restore-fireflies.html
+
+**How Nigel Farage Ended Up Running Against Count Binface in Clacton**\
+`Nigel Farage forced a new election in his parliamentary seat after coming under pressure over his finances. His main challenger is Count Binface, a novelty candidate.`\
+https://www.nytimes.com/2026/08/12/world/europe/count-binface-nigel-farage-clacton.html
+
+**Why Nigel Farage Is Running Against a ‘Trash Can’**\
+`Our reporter Amelia Nierenberg describes how the right-wing British political leader Nigel Farage, who is seeking re-election to Parliament, faces an unconventional opponent: Count Binface.`\
+https://www.nytimes.com/video/world/europe/100000011041924/why-nigel-farage-is-running-against-a-trash-can.html
+
 **What to Know About David Crowley, a Democratic Candidate for Wisconsin Governor**\
 `The Milwaukee County executive, who was locked in a tight race for the Democratic nomination against Francesca Hong, could become the first Black governor of Wisconsin.`\
 https://www.nytimes.com/2026/08/11/us/politics/david-crowley-wisconsin-governor.html
@@ -173,26 +193,6 @@ https://www.nytimes.com/2026/08/11/business/media/david-ellison-hollywood-paramo
 **A Timeline of the Fight Over the Elizabeth Street Garden in Manhattan**\
 `The yearslong battle has pitted community members in favor of preserving the garden against politicians, housing advocates and developers who say the space should be used to build affordable homes.`\
 https://www.nytimes.com/2026/08/11/nyregion/elizabeth-street-garden-timeline-new-york.html
-
-**5 Things to Know About Darline Graham, Republican Senate Hopeful in South Carolina**\
-`The sister of Senator Lindsey Graham was endorsed by President Trump to serve out the remainder of his term. Now she is running in a special primary election.`\
-https://www.nytimes.com/2026/08/11/us/politics/darline-graham-south-carolina-primary.html
-
-**5 Things to Know About Russell Fry, Republican Senate Candidate in South Carolina**\
-`The two-term Republican congressman, who once interned in the office of Senator Lindsey Graham, has campaigned in part on his youth.`\
-https://www.nytimes.com/2026/08/11/us/politics/russell-fry-south-carolina-senate-primary.html
-
-**5 Things to Know About Ralph Norman, Republican Senate Candidate in South Carolina**\
-`The longtime lawmaker, a member of an ultraconservative group of House members, came in third place in the Republican primary for governor this year.`\
-https://www.nytimes.com/2026/08/11/us/politics/ralph-norman-south-carolina-senate-primary.html
-
-**5 Things to Know About Mark Sanford, Republican Senate Candidate in South Carolina**\
-`The former governor and congressman is a staunch fiscal conservative who repeatedly broke with President Trump on government spending, among other issues.`\
-https://www.nytimes.com/2026/08/11/us/politics/mark-sanford-south-carolina-senate-candidate.html
-
-**Judge Awards $250,000 to Musician Who Fled Trump-Led Kennedy Center Gig**\
-`The center had sued Chuck Redd when he canceled a free concert last year, citing the addition of the Trump name to the venue. But a judge dismissed the case.`\
-https://www.nytimes.com/2026/08/11/arts/music/chuck-redd-kennedy-center.html
 
 **Election Live Updates: Progressive Wins Senate Nomination in Minnesota as Wisconsin Democratic Socialist Faces Tight Race**\
 `Lt. Gov. Peggy Flanagan of Minnesota will hope to keep a Senate seat in Democratic hands in November. In Wisconsin, Francesca Hong, a democratic socialist who had polled strongly in the Democratic primary for governor, was in an unexpectedly close contest with the Milwaukee County executive.`\
