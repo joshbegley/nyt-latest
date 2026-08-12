@@ -27,7 +27,7 @@ https://www.nytimes.com/video/world/asia/100000011088702/zhu-rongji-china-premie
 https://www.nytimes.com/es/2026/08/12/espanol/pionera-investigacion-cancer-garganta-muere.html
 
 **Palestinians Trapped by Settlers for Days as Israeli Army Shows Up, and Then Leaves**\
-`The episode casts a spotlight on the army’s struggle to curtail settler violence and protect Palestinians living in the occupied West Bank.`\
+`Two families have been trapped by settlers for days, casting a spotlight on the army’s struggle to curtail settler violence and protect Palestinians living in the occupied West Bank.`\
 https://www.nytimes.com/2026/08/12/world/middleeast/west-bank-palestinians-israeli-settlers.html
 
 **Este año, El Niño es enorme y ya está cambiando el mundo**\

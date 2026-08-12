@@ -1,3 +1,7 @@
+**Palestinians Trapped by Settlers for Days as Israeli Army Shows Up, and Then Leaves**\
+`Two families have been trapped by settlers for days, casting a spotlight on the army’s struggle to curtail settler violence and protect Palestinians living in the occupied West Bank.`\
+https://www.nytimes.com/2026/08/12/world/middleeast/west-bank-palestinians-israeli-settlers.html
+
 **First Total Eclipse in Decades Sweeps Across Europe**\
 `A total solar eclipse, the first in decades in Europe, swept across the continent on Wednesday.`\
 https://www.nytimes.com/video/science/space/100000011088337/europe-total-solar-eclipse.html
