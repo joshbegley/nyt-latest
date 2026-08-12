@@ -14,7 +14,7 @@ https://www.nytimes.com/2026/08/12/us/georgia-sheriffs-flock-cameras-stalking.ht
 `In a recent interview, Representative Alexandria Ocasio-Cortez distanced herself from the 2020 era of progressivism.`\
 https://www.nytimes.com/2026/08/12/style/woke-1-aoc-dsa.html
 
-**Which Cabinet Members Joined Trump on His Secret Flight Out of Turkey?**\
+**Which Trump Officials Joined Him on His Secret Flight Out of Turkey?**\
 `The White House aides Natalie Harp and Dan Scavino were among those traveling with the president on a military jet.`\
 https://www.nytimes.com/2026/08/12/us/politics/trump-air-force-one-secret-flight-passengers.html
 
@@ -51,7 +51,7 @@ https://www.nytimes.com/2026/08/12/briefing/12-the-good-list-meteor-shower-cat-g
 https://www.nytimes.com/2026/08/12/health/mmr-vaccine-combination-separate.html
 
 **Hawaii Braces for a Potential Storm Named Lala**\
-`Hurricane forecasters are predicting a tropical storm, potentially a hurricane, may bring heavy rainfall and strong winds to the Big Island starting Friday.`\
+`Forecasters are predicting a tropical storm, potentially a hurricane, may bring heavy rainfall and strong winds to the Big Island starting Friday.`\
 https://www.nytimes.com/2026/08/12/weather/hawaii-braces-for-a-possible-hurricane-named-lala.html
 
 **As Europe Faces Heat Waves and Wildfires, Travelers Are Forced to Adapt**\

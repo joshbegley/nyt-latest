@@ -1,3 +1,11 @@
+**Which Trump Officials Joined Him on His Secret Flight Out of Turkey?**\
+`The White House aides Natalie Harp and Dan Scavino were among those traveling with the president on a military jet.`\
+https://www.nytimes.com/2026/08/12/us/politics/trump-air-force-one-secret-flight-passengers.html
+
+**Hawaii Braces for a Potential Storm Named Lala**\
+`Forecasters are predicting a tropical storm, potentially a hurricane, may bring heavy rainfall and strong winds to the Big Island starting Friday.`\
+https://www.nytimes.com/2026/08/12/weather/hawaii-braces-for-a-possible-hurricane-named-lala.html
+
 **Karoline Leavitt, Trump’s Press Secretary, to Depart White House**\
 `President Trump said that Ms. Leavitt, who recently gave birth to her second child, would be leaving to spend time with her family.`\
 https://www.nytimes.com/2026/08/12/us/politics/karoline-leavitt-trump-press-secretary.html
