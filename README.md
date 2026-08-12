@@ -1,3 +1,7 @@
+**Democrats Pull Back From the Edge of Disaster. Again.**\
+`It seems that centrists and the left can work the pragmatic side of the street.`\
+https://www.nytimes.com/2026/08/12/opinion/democrats-wisconsin-midterms-dsa.html
+
 **Eurovision Bans Countries in War Zones From Hosting**\
 `The event’s organizers would not say whether that included Israel, but its participation has been a matter of contention during the war in Gaza.`\
 https://www.nytimes.com/2026/08/12/arts/music/eurovision-war-zones-israel.html
@@ -150,11 +154,7 @@ https://www.nytimes.com/2026/08/12/weather/solar-eclipse-europe-weather-forecast
 `De Islandia a España, los observadores han acudido a los lugares donde, por corto tiempo, la Luna bloqueará completamente al Sol.`\
 https://www.nytimes.com/live/2026/08/12/espanol/eclipse-solar-total
 
-**Our Son Is Striking Out on Dating Apps. Should We Hire a Matchmaker?**\
-`A reader wants to help his 37-year-old son find love in Los Angeles but worries that offering to pay for professional help could bruise his ego.`\
-https://www.nytimes.com/2026/08/12/style/son-dating-apps-matchmaker-relationships.html
-
 **Live Updates: Europe’s First Total Solar Eclipse in Decades Is Turning Day to Dark**\
-`From Iceland to Spain, people have flocked to places where, briefly, the moon will completely block the sun.`\
+`From Iceland to Spain, people have flocked to viewing spots to see the moon completely block out the sun.`\
 https://www.nytimes.com/live/2026/08/12/world/solar-eclipse-2026-updates
 
