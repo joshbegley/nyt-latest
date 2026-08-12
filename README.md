@@ -34,8 +34,8 @@ https://www.nytimes.com/2026/08/12/arts/design/zeitz-mocaa-director-elvira-dyang
 `Francesca Hong’s defeat in the Democratic primary for governor defied expectations and may have shown the democratic socialist wave cannot reach beyond urban centers.`\
 https://www.nytimes.com/2026/08/12/us/elections/david-crowley-wisconsin-governors-primary.html
 
-**Live Updates: Consumer Prices Rise 3.4 Percent From a Year Ago**\
-`In July, prices rose 0.1 percent from a month earlier.`\
+**Live Updates: Inflation Was Moderate in July, but Energy Prices Remain Elevated**\
+`The Consumer Price Index for July showed prices rose 3.4 percent from a year ago as the war in Iran dragged on.`\
 https://www.nytimes.com/live/2026/08/12/business/inflation-cpi-report
 
 **Safety Subterfuge**\

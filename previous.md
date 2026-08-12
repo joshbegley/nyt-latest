@@ -178,7 +178,3 @@ https://www.nytimes.com/2026/08/12/learning/word-of-the-day-munificent.html
 `Charlotte Collet helps many of the biggest brands in fashion. But there’s lessons for us all in her styling.`\
 https://www.nytimes.com/2026/08/12/style/shell-make-you-rethink-how-to-wear-a-shirt.html
 
-**Rethinking the Wedding Party**\
-`For some couples, the answer is no. Instead, they're shrinking their wedding parties down to a sibling or a close friend, remixing traditional roles or skipping the wedding party altogether.`\
-https://www.nytimes.com/2026/08/12/style/do-you-really-need-a-big-wedding-party.html
-
