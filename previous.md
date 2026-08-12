@@ -194,8 +194,8 @@ https://www.nytimes.com/2026/08/11/us/portland-warehouse-fire-amtrak.html
 `In response to a threat against the jet last month, the president was clandestinely removed in a catering container. But the plane was sent into the skies anyway with government employees and reporters onboard.`\
 https://www.nytimes.com/2026/08/11/us/politics/trump-air-force-one-decoy.html
 
-**Election Live Updates: Progressive Wins Senate Nomination in Minnesota as Wisconsin Democratic Socialist Faces Tight Race**\
-`Lt. Gov. Peggy Flanagan of Minnesota will hope to keep a Senate seat in Democratic hands in November. In Wisconsin, Francesca Hong, a democratic socialist who had polled strongly in the Democratic primary for governor, was in an unexpectedly close contest with the Milwaukee County executive.`\
+**Election Live Updates:Wisconsin Primary for Governor Too Close to Call Between Moderate and Democratic Socialist**\
+`David Crowley, the Milwaukee County executive, and Francesca Hong, a democratic socialist who had polled strongly in race, were locked in a tight race. In Minnesota, Lt. Gov. Peggy Flanagan, a progresive, won the Democratic Senate primary.`\
 https://www.nytimes.com/live/2026/08/11/us/elections-south-carolina-wisconsin
 
 **Race Too Close to Call in Democratic Primary for Michigan Senate Seat**\
