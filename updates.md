@@ -1,3 +1,7 @@
+**South Africa’s Zeitz MOCAA Names Director to Replace Koyo Kouoh**\
+`Elvira Dyangani Ose, who most recently directed Barcelona’s contemporary art museum, will succeed Kouoh, who died suddenly last year from cancer.`\
+https://www.nytimes.com/2026/08/12/arts/design/zeitz-mocaa-director-elvira-dyangani-ose.html
+
 **Europeans, Braced for 5th Heat Wave of 2026, Have Had Enough**\
 `With temperatures set to soar as high as 109 degrees Fahrenheit (43 Celsius) this week, Europeans and tourists say that summer in Europe has lost its appeal.`\
 https://www.nytimes.com/2026/08/12/world/europe/europe-fifth-heat-wave.html
