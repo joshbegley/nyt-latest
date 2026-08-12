@@ -1,3 +1,19 @@
+**5 Things to Know About Francesca Hong, the Progressive Running for Wisconsin Governor**\
+`The state assemblywoman, a democratic socialist, is a chef and former small business owner. Her campaign focused on economic issues.`\
+https://www.nytimes.com/2026/08/11/us/politics/francesca-hong-wisconsin-progressive-candidate.html
+
+**5 Things to Know About Tom Tiffany, Republican Gubernatorial Candidate in Wisconsin**\
+`Representative Tom Tiffany is running with President Trump’s backing.`\
+https://www.nytimes.com/2026/08/11/us/politics/tom-tiffany-wisconsin-governor-candidate.html
+
+**5 Things to Know About Michael Alfonso, Sean Duffy’s Son-in-Law in Wisconsin’s 7th District Race**\
+`If elected, Mr. Alfonso, 26, would be the youngest member of Congress, thanks in no small part to the support his father-in-law, Transportation Secretary Sean Duffy, and an endorsement from President Trump.`\
+https://www.nytimes.com/2026/08/11/us/politics/michael-alfonso-sean-duffy-wisconsin.html
+
+**Esto sabemos de la boda de Cristiano Ronaldo y Georgina**\
+`Después de casi una década juntos y cinco hijos en su familia reconstituida, la pareja se habría casado en una ceremonia íntima en la ciudad natal de Ronaldo, Madeira, Portugal.`\
+https://www.nytimes.com/es/2026/08/11/espanol/estilos-de-vida/boda-cristiano-ronaldo-georgina.html
+
 **5 Things to Know About Michele Tafoya, Republican Senate Candidate in Minnesota**\
 `Ms. Tafoya, the favorite to become the state’s Republican nominee for Senate, spent years as an N.F.L. sideline reporter and has leaned into her sports background.`\
 https://www.nytimes.com/2026/08/11/us/politics/michele-tafoya-minnesota-republican-senate.html

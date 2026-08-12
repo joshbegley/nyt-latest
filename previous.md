@@ -1,3 +1,19 @@
+**5 Things to Know About Francesca Hong, the Progressive Running for Wisconsin Governor**\
+`The state assemblywoman, a democratic socialist, is a chef and former small business owner. Her campaign focused on economic issues.`\
+https://www.nytimes.com/2026/08/11/us/politics/francesca-hong-wisconsin-progressive-candidate.html
+
+**5 Things to Know About Tom Tiffany, Republican Gubernatorial Candidate in Wisconsin**\
+`Representative Tom Tiffany is running with President Trump’s backing.`\
+https://www.nytimes.com/2026/08/11/us/politics/tom-tiffany-wisconsin-governor-candidate.html
+
+**5 Things to Know About Michael Alfonso, Sean Duffy’s Son-in-Law in Wisconsin’s 7th District Race**\
+`If elected, Mr. Alfonso, 26, would be the youngest member of Congress, thanks in no small part to the support his father-in-law, Transportation Secretary Sean Duffy, and an endorsement from President Trump.`\
+https://www.nytimes.com/2026/08/11/us/politics/michael-alfonso-sean-duffy-wisconsin.html
+
+**Esto sabemos de la boda de Cristiano Ronaldo y Georgina**\
+`Después de casi una década juntos y cinco hijos en su familia reconstituida, la pareja se habría casado en una ceremonia íntima en la ciudad natal de Ronaldo, Madeira, Portugal.`\
+https://www.nytimes.com/es/2026/08/11/espanol/estilos-de-vida/boda-cristiano-ronaldo-georgina.html
+
 **5 Things to Know About Michele Tafoya, Republican Senate Candidate in Minnesota**\
 `Ms. Tafoya, the favorite to become the state’s Republican nominee for Senate, spent years as an N.F.L. sideline reporter and has leaned into her sports background.`\
 https://www.nytimes.com/2026/08/11/us/politics/michele-tafoya-minnesota-republican-senate.html
@@ -173,22 +189,6 @@ https://www.nytimes.com/2026/08/11/t-magazine/beach-summer-essentials-sunscreen-
 **Brad Lightcap, a Top OpenAI Executive, Steps Down**\
 `Brad Lightcap, a longtime leader, said he was starting a new venture. His exit from the artificial intelligence company is the latest in a series there.`\
 https://www.nytimes.com/2026/08/11/technology/brad-lightcap-openai.html
-
-**Trump Administration Kills Annual Arctic Report Card**\
-`The top of the world is warming faster than any other region. For 20 years, the Arctic Report Card chronicled the extraordinary transformation.`\
-https://www.nytimes.com/2026/08/11/climate/noaa-arctic-report-card.html
-
-**Tate McRae’s Neutrogena Skin Care Ad Inspires Parodies on TikTok**\
-`A video of the pop star using Neutrogena skin care products — with an ultralight touch — led to a wave of parodies.`\
-https://www.nytimes.com/2026/08/11/style/tate-mcrae-neutrogena-ad.html
-
-**Arlene Smith, Whose Song ‘Maybe’ Helped Define Doo-Wop, Dies at 84**\
-`With the Chantels, a groundbreaking female vocal group, she tugged heartstrings with the indelible hit and paved the way for a wave of “girl groups.”`\
-https://www.nytimes.com/2026/08/11/arts/music/arlene-smith-dead.html
-
-**Trump Sues New York and Other States Over In-State Tuition for Migrants**\
-`The administration’s lawsuits, which included Connecticut and Vermont, challenged the legality of giving undocumented students in-state tuition.`\
-https://www.nytimes.com/2026/08/11/nyregion/trump-lawsuit-new-york-tuition-immigrants.html
 
 **Race Too Close to Call in Democratic Primary for Michigan Senate Seat**\
 `Dr. Abdul El-Sayed, a progressive, and Representative Haley Stevens, a centrist, both gave speeches with the winner still undeclared. Kansas, Missouri, Virginia and Washington also voted.`\
