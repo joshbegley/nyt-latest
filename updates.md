@@ -1,3 +1,7 @@
+**How to Safely Watch the Solar Eclipse, Even Without Glasses**\
+`If you plan to watch the solar eclipse, make sure your lenses offer enough protection. Alternatively, you can safely watch using household items.`\
+https://www.nytimes.com/2026/08/12/world/europe/watch-solar-eclipse-without-glasses-pinhole-camera-colander.html
+
 **Will the Weather Cooperate? Here’s a Roundup of Forecasts on the Eclipse’s Path**\
 `The spectacle will be at the mercy of the meteorological conditions, with clouds threatening to block the view in some places.`\
 https://www.nytimes.com/2026/08/12/weather/solar-eclipse-europe-weather-forecast.html

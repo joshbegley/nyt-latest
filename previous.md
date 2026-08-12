@@ -1,3 +1,7 @@
+**How to Safely Watch the Solar Eclipse, Even Without Glasses**\
+`If you plan to watch the solar eclipse, make sure your lenses offer enough protection. Alternatively, you can safely watch using household items.`\
+https://www.nytimes.com/2026/08/12/world/europe/watch-solar-eclipse-without-glasses-pinhole-camera-colander.html
+
 **Will the Weather Cooperate? Here’s a Roundup of Forecasts on the Eclipse’s Path**\
 `The spectacle will be at the mercy of the meteorological conditions, with clouds threatening to block the view in some places.`\
 https://www.nytimes.com/2026/08/12/weather/solar-eclipse-europe-weather-forecast.html
@@ -169,8 +173,4 @@ https://www.nytimes.com/2026/08/12/realestate/which-480000-home-would-you-pick.h
 **‘The Winter’s Tale’ Review: A Fable That’s Fit for Summer**\
 `Shakespeare in the Park stages this melancholic comedy, which gives us a good excuse to spend time with Raúl Esparza and Lily Rabe as king and queen.`\
 https://www.nytimes.com/2026/08/12/theater/winters-tale-review-shakespeare-in-the-park.html
-
-**‘I’m Not Ashamed of My Face-Lift’**\
-`Why do people insist on judging women for their cosmetic procedures? The Opinion contributing writer Molly Jong-Fast is not about to feel bad about her face-lift. She argues that misogyny is embedded in how we talk about women’s plastic surgery and the lack of honesty around it is harmful for everyone — especially the next generation.`\
-https://www.nytimes.com/video/opinion/100000011077394/im-not-ashamed-of-my-face-lift.html
 
