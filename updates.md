@@ -1,3 +1,11 @@
+**For Trump, Secret Flight Was a Stunning Ruse. For Putin, ‘a Regular Tuesday.’**\
+`President Trump’s Air Force One subterfuge pales in comparison to the secrecy surrounding Russia’s president, whose fixation on security has reached new heights in recent years.`\
+https://www.nytimes.com/2026/08/12/world/europe/trump-flight-putin-security.html
+
+**Johanna Fernández, Historian of the Young Lords, Dies at 55**\
+`She wrote an award-winning book about the leftist collective, a Latino counterpart to the Black Panthers.`\
+https://www.nytimes.com/2026/08/12/us/johanna-fernandez-dead.html
+
 **Israeli Settlers Are Out of Control**\
 `If Netanyahu is ousted in October’s balloting, don’t expect peace to break out, but the worst violence might be reined in.`\
 https://www.nytimes.com/2026/08/12/opinion/israeli-settlers-palestinians-west-bank.html

@@ -1,3 +1,7 @@
+**‘I Thought I Was Going to Die’: YouTuber Live Streams as Earthquake Hits Colombia**\
+`A social media influencer was on live stream when a 7.4-magnitude earthquake hit Colombia on Monday. José Gallego was in an airport in Pereira when the quake hit, leading him to duck for cover.`\
+https://www.nytimes.com/video/world/americas/100000011085122/colombia-earthquake-live-stream.html
+
 **For Trump, Secret Flight Was a Stunning Ruse. For Putin, ‘a Regular Tuesday.’**\
 `President Trump’s Air Force One subterfuge pales in comparison to the secrecy surrounding Russia’s president, whose fixation on security has reached new heights in recent years.`\
 https://www.nytimes.com/2026/08/12/world/europe/trump-flight-putin-security.html
@@ -14,7 +18,7 @@ https://www.nytimes.com/2026/08/12/opinion/israeli-settlers-palestinians-west-ba
 `Five years into their hard-line rule, the Taliban find themselves in crisis at home and abroad.`\
 https://www.nytimes.com/2026/08/12/world/afghanistan-taliban-anniversary-eclipse-lakers.html
 
-**Ex-Official at Civil Rights Group Is Charged in Plot to Misuse Far-Right Informants**\
+**Ex-Official at Southern Poverty Law Center Accused of Plotting to Misuse Far-Right Informants**\
 `The charges signaled an escalation of the Justice Department’s prosecution of the Southern Poverty Law Center, which is best known for investigating white supremacist groups.`\
 https://www.nytimes.com/2026/08/12/us/politics/splc-fraud-conspiracy-charges.html
 
@@ -161,10 +165,6 @@ https://www.nytimes.com/2026/08/12/us/politics/crowley-hong-wisconsin-governor-p
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/business/100000011088403/mosaic-robotsusopener-411.html
-
-**Trump-Backed Mike Lindell Loses Minnesota Governor Primary to Lisa Demuth**\
-`After his loss in the state’s Republican primary for governor, Mike Lindell, a leading election denier, floated familiar, baseless claims of “anomalies” in his double-digit defeat.`\
-https://www.nytimes.com/2026/08/12/us/politics/trump-lindell-minnesota-republican-primary.html
 
 **Por primera vez en décadas, el día se hace noche en Europa bajo un eclipse solar total**\
 `De Islandia a España, los observadores acudieron a los lugares donde, por corto tiempo, la Luna bloqueó completamente al Sol.`\
