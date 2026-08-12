@@ -8,7 +8,7 @@ https://www.nytimes.com/2026/08/12/us/elections/wisconsin-governor-democratic-pr
 
 **Election Live Updates: Moderate Democrat Wins Tight Wisconsin Primary for Governor**\
 `David Crowley, the Milwaukee County executive, defeated Francesca Hong, a democratic socialist, in a close race. In Minnesota, Lt. Gov. Peggy Flanagan, a progressive, won the Democratic Senate primary.`\
-https://www.nytimes.com/live/2026/08/12/us/wisconsin-election-results-governor
+https://www.nytimes.com/live/2026/08/12/us/primary-election-results-wi-mn-sc
 
 **Toda una generación busca cómo dejar los antidepresivos**\
 `Muchas personas sienten que los antidepresivos bloquean sus emociones verdaderas, pero no cuentan con orientación sobre cómo dejar estos fármacos.`\
