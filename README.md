@@ -186,7 +186,3 @@ https://www.nytimes.com/2026/08/12/magazine/deportation-immigrants-prison-eswati
 `HBO’s next big bet in the DC Universe is more like a buddy-cop drama than the usual comic-book adaptation. Fans are in for a few surprises.`\
 https://www.nytimes.com/2026/08/12/arts/television/lanterns-hbo-dc-comics.html
 
-**The Movie Monica Barbaro Watched Until the Tape Broke**\
-`Monica Barbaro, who stars in “One Night Only,” gets nostalgic, sharing the childhood shows she loved, the movie she watched on repeat, and the book that completely caught her off guard.`\
-https://www.nytimes.com/video/arts/100000011036450/monica-barbaro-movie.html
-
