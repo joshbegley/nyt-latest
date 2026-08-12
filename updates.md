@@ -1,3 +1,7 @@
+**3 People Are Killed at a Minnesota Day Care Center**\
+`The authorities in Hopkins, Minn., said two adults and a child, all family members, were killed at an in-home day care center.`\
+https://www.nytimes.com/2026/08/12/us/stabbing-minnesota-day-care.html
+
 **Hawaii Braces for a Potential Storm Named Lala**\
 `Hurricane forecasters are predicting a tropical storm, potentially a hurricane, may bring heavy rainfall and strong winds to the Big Island starting Friday.`\
 https://www.nytimes.com/2026/08/12/weather/hawaii-braces-for-a-possible-hurricane-named-lala.html
