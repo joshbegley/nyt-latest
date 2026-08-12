@@ -1,3 +1,15 @@
+**Will Paramount’s Brinkmanship Work?**\
+`The media company’s leader, David Ellison, is threatening to pull the company out of California in the face of a lawsuit by states seeking to block its big deal.`\
+https://www.nytimes.com/2026/08/12/business/dealbook/paramount-california-states-lawsuit.html
+
+**Thrive Holdings, A.I.-Focused Buyer of Service Firms, Raises $2 Billion**\
+`The company, Thrive Holdings, acquires businesses to infuse them with artificial intelligence and drew interest from backers like SoftBank.`\
+https://www.nytimes.com/2026/08/12/business/dealbook/thrive-holdings-ai-funding.html
+
+**July CPI Report Is Expected to Show Falling Energy Prices**\
+`The war with Iran injected volatility into the oil and gas market, with prices rising and falling in concert with the conflict.`\
+https://www.nytimes.com/2026/08/12/business/economy/energy-oil-prices-inflation.html
+
 **South Africa’s Zeitz MOCAA Names Director to Replace Koyo Kouoh**\
 `Elvira Dyangani Ose, who most recently directed Barcelona’s contemporary art museum, will succeed Kouoh, who died suddenly last year from cancer.`\
 https://www.nytimes.com/2026/08/12/arts/design/zeitz-mocaa-director-elvira-dyangani-ose.html
