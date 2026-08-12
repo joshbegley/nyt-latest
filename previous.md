@@ -1,3 +1,7 @@
+**Matt Little, a Progressive, Wins a Democratic House Primary in Minnesota**\
+`Mr. Little, a former mayor and state senator, beat two other candidates. He focused on promises of banning corporate money from politics and supporting Medicare for all.`\
+https://www.nytimes.com/2026/08/11/us/politics/berg-little-klein-minnesota-primary.html
+
 **Rebecca Cooke Wins Democratic Primary for Key Wisconsin House Seat**\
 `Ms. Cooke, a three-time congressional candidate, held a huge fund-raising edge in a western Wisconsin race that Democrats consider pivotal to their hopes of flipping the House.`\
 https://www.nytimes.com/2026/08/11/us/politics/wisconsin-democratic-primary-berge-cooke.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/08/11/dining/restaurant-review-bar-susanne-nyc.html
 **Cristiano Ronaldo and Georgina Rodríguez Get Married**\
 `After nearly a decade together and five children in their blended family, the couple reportedly married in an intimate ceremony.`\
 https://www.nytimes.com/2026/08/11/style/cristiano-ronaldo-georgina-rodriguez-married.html
-
-**A Sweaty Texas Night at Barrel O’ Fun with Matthew McConaughey**\
-`The city celebrated one of its favorite Texas movie stars with a cinema bearing his name, ahead of the release of “The Rivals of Amziah King.”`\
-https://www.nytimes.com/2026/08/11/style/matthew-mcconaughey-movie-texas.html
 
 **Election Live Updates: Democratic Socialist Locked in Unexpectedly Tight Race in Wisconsin**\
 `Francesca Hong, a democratic socialist who had polled strongly in the Democratic primary for Wisconsin governor, was locked in a close contest with the Milwaukee County executive. In another crucial race, Senator Darline Graham will face Representative Ralph Norman in a runoff for the G.O.P. nomination for the seat held by her late brother.`\

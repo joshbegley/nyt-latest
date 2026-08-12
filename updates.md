@@ -1,3 +1,7 @@
+**Matt Little, a Progressive, Wins a Democratic House Primary in Minnesota**\
+`Mr. Little, a former mayor and state senator, beat two other candidates. He focused on promises of banning corporate money from politics and supporting Medicare for all.`\
+https://www.nytimes.com/2026/08/11/us/politics/berg-little-klein-minnesota-primary.html
+
 **Rebecca Cooke Wins Democratic Primary for Key Wisconsin House Seat**\
 `Ms. Cooke, a three-time congressional candidate, held a huge fund-raising edge in a western Wisconsin race that Democrats consider pivotal to their hopes of flipping the House.`\
 https://www.nytimes.com/2026/08/11/us/politics/wisconsin-democratic-primary-berge-cooke.html
