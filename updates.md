@@ -1,3 +1,7 @@
+**Election Live Updates: Democratic Socialist Locked in Unexpectedly Tight Race in Wisconsin**\
+`Francesca Hong, a democratic socialist who had polled strongly in the Democratic primary for Wisconsin governor, was in a close contest with the Milwaukee County executive. In another crucial race, Senator Darline Graham will face Representative Ralph Norman in a runoff for the G.O.P. nomination for the seat held by her late brother.`\
+https://www.nytimes.com/live/2026/08/11/us/elections-south-carolina-wisconsin
+
 **Matt Little, a Progressive, Wins a Democratic House Primary in Minnesota**\
 `Mr. Little, a former mayor and state senator, beat two other candidates. He focused on promises of banning corporate money from politics and supporting Medicare for all.`\
 https://www.nytimes.com/2026/08/11/us/politics/berg-little-klein-minnesota-primary.html
