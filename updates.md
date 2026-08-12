@@ -1,3 +1,23 @@
+**How Scientists Use Eclipses for Research**\
+`It’s a chance not just to study the sun but also space weather, light pollution and even animal behavior.`\
+https://www.nytimes.com/2026/08/12/world/europe/eclipse-scientists.html
+
+**‘The Wrong Girls’ Review: Dazed, Confused and Psychic**\
+`Kristen Stewart and Alia Shawkat play telepathic best friends in this stoner comedy where a laboratory-engineered hallucinogen is on the loose.`\
+https://www.nytimes.com/2026/08/12/movies/the-wrong-girls-review.html
+
+**My Kids Think It’s Creepy That I Google People Before I Meet Them. Are They Right?**\
+`It’s not as if I am examining F.B.I. files or classified information!`\
+https://www.nytimes.com/2026/08/12/magazine/google-social-media-ethics.html
+
+**ICE Plans to Give Officers Gloves That Can Deliver Electric Shocks**\
+`The Department of Homeland Security described the gloves as a “de-escalation device,” but critics said they could encourage agents to use more force.`\
+https://www.nytimes.com/2026/08/12/us/politics/ice-gloves-shock.html
+
+**Inflation Eased Slightly in July but Prices Remain Elevated as War Drags On**\
+`Though energy prices fell last month after their spring surge, other factors pushed up costs as the Fed considers raising interest rates.`\
+https://www.nytimes.com/2026/08/12/business/economy/what-to-know-about-the-report.html
+
 **A Space Expert Hoped to Use the Eclipse as Science Class. The D.J.s Had Other Plans.**\
 `Mar Carretero-Castrillo, an astrophysicist, returned to her remote village in Spain to be in the path of totality. Hundreds of  partygoers came too.`\
 https://www.nytimes.com/2026/08/12/world/europe/spain-eclipse-astrophysicist-festival.html

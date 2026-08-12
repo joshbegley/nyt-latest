@@ -1,3 +1,19 @@
+**How Scientists Use Eclipses for Research**\
+`It’s a chance not just to study the sun but also space weather, light pollution and even animal behavior.`\
+https://www.nytimes.com/2026/08/12/world/europe/eclipse-scientists.html
+
+**‘The Wrong Girls’ Review: Dazed, Confused and Psychic**\
+`Kristen Stewart and Alia Shawkat play telepathic best friends in this stoner comedy where a laboratory-engineered hallucinogen is on the loose.`\
+https://www.nytimes.com/2026/08/12/movies/the-wrong-girls-review.html
+
+**My Kids Think It’s Creepy That I Google People Before I Meet Them. Are They Right?**\
+`It’s not as if I am examining F.B.I. files or classified information!`\
+https://www.nytimes.com/2026/08/12/magazine/google-social-media-ethics.html
+
+**ICE Plans to Give Officers Gloves That Can Deliver Electric Shocks**\
+`The Department of Homeland Security described the gloves as a “de-escalation device,” but critics said they could encourage agents to use more force.`\
+https://www.nytimes.com/2026/08/12/us/politics/ice-gloves-shock.html
+
 **A Space Expert Hoped to Use the Eclipse as Science Class. The D.J.s Had Other Plans.**\
 `Mar Carretero-Castrillo, an astrophysicist, returned to her remote village in Spain to be in the path of totality. Hundreds of  partygoers came too.`\
 https://www.nytimes.com/2026/08/12/world/europe/spain-eclipse-astrophysicist-festival.html
@@ -94,6 +110,10 @@ https://www.nytimes.com/2026/08/12/arts/design/zeitz-mocaa-director-elvira-dyang
 `Francesca Hong’s defeat in the Democratic primary for governor defied expectations and may have shown the democratic socialist wave cannot reach beyond urban centers.`\
 https://www.nytimes.com/2026/08/12/us/elections/david-crowley-wisconsin-governors-primary.html
 
+**Inflation Eased Slightly in July but Prices Remain Elevated as War Drags On**\
+`Though energy prices fell last month after their spring surge, other factors pushed up costs as the Fed considers raising interest rates.`\
+https://www.nytimes.com/2026/08/12/business/economy/what-to-know-about-the-report.html
+
 **Live Updates: Inflation Was Moderate in July, but Energy Prices Remain Elevated**\
 `The Consumer Price Index for July showed prices rose 3.4 percent from a year ago as the war in Iran dragged on.`\
 https://www.nytimes.com/live/2026/08/12/business/inflation-cpi-report
@@ -133,24 +153,4 @@ https://www.nytimes.com/2026/08/12/world/asia/thailand-gun-permits-school-shooti
 **Barcos pesqueros de Ecuador son blanco de misteriosos atacantes**\
 `Las tripulaciones ecuatorianas que trabajan en aguas del Pacífico han sido blanco de un misterioso grupo equipado con drones. Al parecer, algunos marineros han perdido la vida.`\
 https://www.nytimes.com/es/2026/08/12/espanol/america-latina/ecuador-ataques-barcos.html
-
-**Does My Face-Lift Make Me a Bad Feminist?**\
-`I, like many a young woman, was once wildly judgmental about plastic surgery. Now I’m not so sure.`\
-https://www.nytimes.com/2026/08/12/opinion/face-lift-feminism-plastic-surgery.html
-
-**Even Elite Colleges Have Become Trade Schools**\
-`Short-term return on investment is an impoverished view of a college education.`\
-https://www.nytimes.com/2026/08/12/opinion/elite-college-trade-school.html
-
-**Los peatones mayores tienen más riesgo de morir en accidentes de tránsito**\
-`Además de algunos factores que los hacen más vulnerables a las colisiones, las consecuencias de las lesiones son mayores a medida que se envejece.`\
-https://www.nytimes.com/es/2026/08/12/espanol/accidentes-muertes-transito-adultos.html
-
-**Los robots humanoides llegan a las fábricas de autos**\
-`Los expertos advierten que estos robots, que caminan y hablan, podrían no cumplir las expectativas de eficiencia que prometen sus impulsores.`\
-https://www.nytimes.com/es/2026/08/12/espanol/negocios/robots-trabajos-fabrica-carros.html
-
-**How a Reporter Interviewed Deportees Sent to a Prison in Africa by the Trump Administration**\
-`A Times reporter spoke with detainees in southern Africa using a cellphone one of them obtained after a hunger strike.`\
-https://www.nytimes.com/2026/08/12/insider/interview-deportees-eswatini-africa-trump.html
 
