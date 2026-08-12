@@ -1,3 +1,11 @@
+**Will Paramount’s Brinkmanship Work?**\
+`The media company’s leader, David Ellison, is threatening to pull the company out of California in the face of a lawsuit by states seeking to block its big deal.`\
+https://www.nytimes.com/2026/08/12/business/dealbook/paramount-california-states-lawsuit.html
+
+**Thrive Holdings, A.I.-Focused Buyer of Service Firms, Raises $2 Billion**\
+`The company, Thrive Holdings, acquires businesses to infuse them with artificial intelligence and drew interest from backers like SoftBank.`\
+https://www.nytimes.com/2026/08/12/business/dealbook/thrive-holdings-ai-funding.html
+
 **Europeans, Braced for 5th Heat Wave of 2026, Have Had Enough**\
 `With temperatures set to soar as high as 109 degrees Fahrenheit (43 Celsius) this week, Europeans and tourists say that summer in Europe has lost its appeal.`\
 https://www.nytimes.com/2026/08/12/world/europe/europe-fifth-heat-wave.html
@@ -173,16 +181,4 @@ https://www.nytimes.com/2026/08/12/style/do-you-really-need-a-big-wedding-party.
 **Blood Tests to Predict Alzheimer’s Are Causing Confusion and Distress**\
 `The tests aren’t a guarantee that someone will develop dementia, but that hasn’t stopped people from getting them.`\
 https://www.nytimes.com/2026/08/12/well/mind/alzheimers-disease-blood-tests-prediction.html
-
-**Joseph Havlat Stacks Up Variations on ‘Sinner, Don’t Let This Harvest Pass’**\
-`Joseph Havlat’s thoughtfully programmed “Sinner, Don’t Let This Harvest Pass” spirals out from Schumann’s enigmatic “Ghost Variations.”`\
-https://www.nytimes.com/2026/08/12/arts/music/joseph-havlat-sinner-dont-let-this-harvest-pass-review.html
-
-**‘Heated Rivalry’ Cried Out for Satire. Edinburgh Fringe Heard the Call.**\
-`With drag kings and blue tinsel, three unauthorized musical tributes at the festival embrace the absurdities of the hit TV show.`\
-https://www.nytimes.com/2026/08/12/theater/heated-rivalry-musicals-edinburgh-fringe.html
-
-**He Was Deported to Eswatini in Southern Africa. He May Never Go Free.**\
-`As the Trump administration sends a growing number of immigrants to countries they have no connection to, some find themselves imprisoned with no way out.`\
-https://www.nytimes.com/2026/08/12/magazine/deportation-immigrants-prison-eswatini.html
 
