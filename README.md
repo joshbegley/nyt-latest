@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011087111/11vid-darlene-embed2-30501.html
+
 **La IA ofrece una nueva esperanza a los hombres con infertilidad**\
 `Una nueva tecnología podría facilitar que los hombres con conteos de espermatozoides extremadamente bajos tengan hijos biológicos.`\
 https://www.nytimes.com/es/2026/08/11/espanol/ciencia-y-tecnologia/hombres-infertilidad-espermatozoides.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/08/11/t-magazine/japanese-cooking-recipe-ingredient
 **Europe Faces Its Fifth Heat Wave Since May**\
 `Forecasters have warned that the relentless heat, combined with persistently dry conditions, could worsen the threat of wildfires.`\
 https://www.nytimes.com/video/world/europe/100000011084952/europe-heat-wave-weather-wildfires.html
-
-**Angie Craig Has Cash Edge Over Peggy Flanagan in Minnesota’s Democratic Senate Primary**\
-`Representative Angie Craig has benefited from nearly $10 million in spending from groups whose donors remain hidden, giving her an advantage in her Senate primary against Lt. Gov. Peggy Flanagan.`\
-https://www.nytimes.com/2026/08/11/us/politics/minnesota-angie-craig-fundraising-advantage.html
 
 **Election Live Updates: Democratic Socialist Locked in Unexpectedly Tight Race in Wisconsin**\
 `Francesca Hong, a democratic socialist who had polled strongly in the Democratic primary for Wisconsin governor, was in a close contest with the Milwaukee County executive. In another crucial race, Senator Darline Graham will face Representative Ralph Norman in a runoff for the G.O.P. nomination for the seat held by her late brother.`\

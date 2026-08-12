@@ -1,3 +1,7 @@
+**La IA ofrece una nueva esperanza a los hombres con infertilidad**\
+`Una nueva tecnología podría facilitar que los hombres con conteos de espermatozoides extremadamente bajos tengan hijos biológicos.`\
+https://www.nytimes.com/es/2026/08/11/espanol/ciencia-y-tecnologia/hombres-infertilidad-espermatozoides.html
+
 **See How Trump’s Secret Air Force One Swap Unfolded**\
 `The extraordinary subterfuge was aimed at protecting an American president who has been in Iran’s cross hairs for years.`\
 https://www.nytimes.com/2026/08/11/us/politics/trump-air-force-one-switch.html
