@@ -1,3 +1,11 @@
+**A Space Expert Hoped to Use the Eclipse as Science Class. The D.J.s Had Other Plans.**\
+`Mar Carretero-Castrillo, an astrophysicist, returned to her remote village in Spain to be in the path of totality. Hundreds of  partygoers came too.`\
+https://www.nytimes.com/2026/08/12/world/europe/spain-eclipse-astrophysicist-festival.html
+
+**Today, In Short**\
+`Flip-flops. Grades. And no-cook recipes.`\
+https://www.nytimes.com/2026/08/12/briefing/today-in-short.html
+
 **Gulf Oil Giants Are Spending Billions to Build Ways Around Strait of Hormuz**\
 `Even if a cease-fire materializes, Gulf exporters recognize that relying strictly on the Strait of Hormuz is a risk they can no longer take.`\
 https://www.nytimes.com/2026/08/12/business/iran-war-hormuz-oil.html
@@ -145,12 +153,4 @@ https://www.nytimes.com/es/2026/08/12/espanol/negocios/robots-trabajos-fabrica-c
 **How a Reporter Interviewed Deportees Sent to a Prison in Africa by the Trump Administration**\
 `A Times reporter spoke with detainees in southern Africa using a cellphone one of them obtained after a hunger strike.`\
 https://www.nytimes.com/2026/08/12/insider/interview-deportees-eswatini-africa-trump.html
-
-**After a Typo, Officers Used Excessive Force in an Arrest, a Report Finds**\
-`Officers with the San Francisco Police Department thought they had caught a car thief. Instead, they had mistyped his license plate number, a watchdog agency said.`\
-https://www.nytimes.com/2026/08/12/us/san-francisco-police-typo-arrest-matthew-ludwig.html
-
-**What Happens When Two Anxious People Fall in Love**\
-`Jenny Singer worried her anxiety would interfere with her ability to have a deep, loving relationship, but when she met someone who understood what she was going through, everything changed.`\
-https://www.nytimes.com/video/podcasts/100000011085447/what-happens-when-two-anxious-people-fall-in-love.html
 

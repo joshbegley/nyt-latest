@@ -1,3 +1,11 @@
+**A Space Expert Hoped to Use the Eclipse as Science Class. The D.J.s Had Other Plans.**\
+`Mar Carretero-Castrillo, an astrophysicist, returned to her remote village in Spain to be in the path of totality. Hundreds of  partygoers came too.`\
+https://www.nytimes.com/2026/08/12/world/europe/spain-eclipse-astrophysicist-festival.html
+
+**Today, In Short**\
+`Flip-flops. Grades. And no-cook recipes.`\
+https://www.nytimes.com/2026/08/12/briefing/today-in-short.html
+
 **Gulf Oil Giants Are Spending Billions to Build Ways Around Strait of Hormuz**\
 `Even if a cease-fire materializes, Gulf exporters recognize that relying strictly on the Strait of Hormuz is a risk they can no longer take.`\
 https://www.nytimes.com/2026/08/12/business/iran-war-hormuz-oil.html
