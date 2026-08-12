@@ -1,3 +1,7 @@
+**On Wordle, Data Centers and Gen Z ‘Cockroaches’: The Winners of Week 8 of Our Summer Reading Contest**\
+`This week we’re crowning three video winners. Enjoy!`\
+https://www.nytimes.com/2026/08/12/learning/on-wordle-data-centers-and-gen-z-cockroaches-the-winners-of-week-8-of-our-summer-reading-contest.html
+
 **Will Paramount’s Brinkmanship Work?**\
 `The media company’s leader, David Ellison, is threatening to pull the company out of California in the face of a lawsuit by states seeking to block its big deal.`\
 https://www.nytimes.com/2026/08/12/business/dealbook/paramount-california-states-lawsuit.html
@@ -30,8 +34,8 @@ https://www.nytimes.com/2026/08/12/arts/design/zeitz-mocaa-director-elvira-dyang
 `Francesca Hong’s defeat in the Democratic primary for governor defied expectations and may have shown the democratic socialist wave cannot reach beyond urban centers.`\
 https://www.nytimes.com/2026/08/12/us/elections/david-crowley-wisconsin-governors-primary.html
 
-**Live Updates: Persistent Inflation Pressures in Focus**\
-`The Consumer Price Index for July will show how higher energy prices are rippling through the U.S. economy.`\
+**Live Updates: Consumer Prices Rise 3.4 Percent From a Year Ago**\
+`In July, prices rose 0.1 percent from a month earlier.`\
 https://www.nytimes.com/live/2026/08/12/business/inflation-cpi-report
 
 **Safety Subterfuge**\
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/08/12/style/shell-make-you-rethink-how-to-wear-a-sh
 **Rethinking the Wedding Party**\
 `For some couples, the answer is no. Instead, they're shrinking their wedding parties down to a sibling or a close friend, remixing traditional roles or skipping the wedding party altogether.`\
 https://www.nytimes.com/2026/08/12/style/do-you-really-need-a-big-wedding-party.html
-
-**Blood Tests to Predict Alzheimer’s Are Causing Confusion and Distress**\
-`The tests aren’t a guarantee that someone will develop dementia, but that hasn’t stopped people from getting them.`\
-https://www.nytimes.com/2026/08/12/well/mind/alzheimers-disease-blood-tests-prediction.html
 

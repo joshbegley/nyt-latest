@@ -1,3 +1,11 @@
+**On Wordle, Data Centers and Gen Z ‘Cockroaches’: The Winners of Week 8 of Our Summer Reading Contest**\
+`This week we’re crowning three video winners. Enjoy!`\
+https://www.nytimes.com/2026/08/12/learning/on-wordle-data-centers-and-gen-z-cockroaches-the-winners-of-week-8-of-our-summer-reading-contest.html
+
+**Live Updates: Consumer Prices Rise 3.4 Percent From a Year Ago**\
+`In July, prices rose 0.1 percent from a month earlier.`\
+https://www.nytimes.com/live/2026/08/12/business/inflation-cpi-report
+
 **Will Paramount’s Brinkmanship Work?**\
 `The media company’s leader, David Ellison, is threatening to pull the company out of California in the face of a lawsuit by states seeking to block its big deal.`\
 https://www.nytimes.com/2026/08/12/business/dealbook/paramount-california-states-lawsuit.html
