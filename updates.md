@@ -1,3 +1,7 @@
+**Election Live Updates: Democratic Socialist Is Upset in Tight Wisconsin Primary for Governor**\
+`Francesca Hong, who had led in opinion polls, lost to David Crowley, a moderate Democrat. In Minnesota, Lt. Gov. Peggy Flanagan, a progressive, won the Democratic Senate primary.`\
+https://www.nytimes.com/live/2026/08/12/us/primary-election-results-wi-mn-sc
+
 **Thailand Halts New Gun Permits After Mass Shooting at a School**\
 `It remains to be seen how far the government will go to tighten gun control in the country, which has experienced a string of high-profile shootings in recent years.`\
 https://www.nytimes.com/2026/08/12/world/asia/thailand-gun-permits-school-shooting.html
