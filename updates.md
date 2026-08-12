@@ -1,3 +1,7 @@
+**Should the M.M.R. Vaccine Be Split Into Three Separate Shots?**\
+`President Trump is calling for immunizations for measles, mumps and rubella to be given in individual jabs in three different appointments instead of the standard combination shot.`\
+https://www.nytimes.com/2026/08/12/health/mmr-vaccine-combination-separate.html
+
 **Live Updates: First Total Eclipse in Europe in Decades Turns Day to Night**\
 `From Iceland to Spain, people flocked to viewing spots to see the moon completely block out the sun.`\
 https://www.nytimes.com/live/2026/08/12/world/solar-eclipse-2026-updates
