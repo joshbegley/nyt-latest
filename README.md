@@ -1,8 +1,24 @@
+**Two Killed in Military Helicopter Crash Near Fort Hood in Texas**\
+`The helicopter crashed in Salado, a small town about 20 miles from the military base, the authorities said.`\
+https://www.nytimes.com/2026/08/12/us/texas-helicopter-crash.html
+
+**See the 2026 European Solar Eclipse, in Photos and Videos**\
+`From Iceland to Spain, the celestial show drew visitors far and wide.`\
+https://www.nytimes.com/2026/08/12/world/europe/solar-eclipse-europe-photos.html
+
+**Journalism in the ‘Zones of Uncertainty’**\
+`Can reporting solve mysteries like U.F.O.s and A.I. consciousness? The Opinion columnist Ross Douthat tells his fellow columnist Ezra Klein why journalists should tackle zones of uncertainty when they involve concrete, testable claims.`\
+https://www.nytimes.com/video/opinion/100000011086410/journalism-in-the-zones-of-uncertainty.html
+
+**Forbes Fired Top Editor After Discovering He Received Secret $6 Million Payment**\
+`Randall Lane, the magazine’s chief content officer, received the money from the founder of Shook Research, which has partnered with Forbes on content about wealth advisers.`\
+https://www.nytimes.com/2026/08/12/business/forbes-editor-fired.html
+
 **Trump Is Sued Over Plan to Sell Early Access to His Truth Social Posts**\
 `The lawsuit filed in federal court said President Trump “stands to gain financially by giving ‘market-moving’ government information to those who are willing and able to pay his personal company.”`\
 https://www.nytimes.com/2026/08/12/us/politics/trump-truth-social-lawsuit.html
 
-**Karoline Leavitt, Trump’s Press Secretary, to Depart White House**\
+**Karoline Leavitt, Trump’s White House Press Secretary, Is Leaving the Role**\
 `President Trump said that Ms. Leavitt, who recently gave birth to her second child, would be leaving to spend time with her family.`\
 https://www.nytimes.com/2026/08/12/us/politics/karoline-leavitt-trump-press-secretary.html
 
@@ -149,22 +165,6 @@ https://www.nytimes.com/2026/08/12/us/ice-gun-driver-virginia-immigration.html
 **3 People Are Killed at a Minnesota Day Care Center**\
 `The authorities in Hopkins, Minn., said two adults and a child, all family members, were killed at an in-home day care center.`\
 https://www.nytimes.com/2026/08/12/us/stabbing-minnesota-day-care.html
-
-**Maps: Tracking a Potential Tropical Cyclone Near Hawaii**\
-`See the likely path and wind arrival times`\
-https://www.nytimes.com/interactive/2026/08/12/weather/hawaii-storm-map-path-tracker.html
-
-**A Partial Solar Eclipse Will Be Visible in Parts of the U.S. and Canada**\
-`Parts of the United States and Canada will have the chance to see the moon block at least a small portion of the sun.`\
-https://www.nytimes.com/2026/08/12/world/europe/solar-eclipse-us-north-america.html
-
-**How a Reporter Finds Human Stories in Housing**\
-`Mihir Zaveri shares lessons learned over nearly six years of reporting on rising rents, complex zoning regulations and wily plumbers.`\
-https://www.nytimes.com/2026/08/12/insider/new-york-city-housing.html
-
-**Maps: Tracking Tropical Storm Cristobal**\
-`See the likely path and wind arrival times for Cristobal`\
-https://www.nytimes.com/interactive/2026/08/12/weather/cristobal-map-path-tracker.html
 
 **Por primera vez en décadas, el día se hace noche en Europa bajo un eclipse solar total**\
 `De Islandia a España, los observadores acudieron a los lugares donde, por corto tiempo, la Luna bloqueó completamente al Sol.`\
