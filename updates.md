@@ -1,3 +1,7 @@
+**¿Debería ser un delito dejar que los niños jueguen solos afuera?**\
+`Algunos padres se han visto envueltos en procesos legales por permitir que sus hijos tengan autonomía.`\
+https://www.nytimes.com/es/2026/08/12/espanol/ninos-solos-ilegal.html
+
 **Election Live Updates: Wisconsin Primary for Governor Too Close to Call Between Moderate and Democratic Socialist**\
 `David Crowley, the Milwaukee County executive, and Francesca Hong, a democratic socialist who had polled strongly in the race, were locked in a tight race. In Minnesota, Lt. Gov. Peggy Flanagan, a progressive, won the Democratic Senate primary.`\
 https://www.nytimes.com/live/2026/08/11/us/elections-south-carolina-wisconsin
