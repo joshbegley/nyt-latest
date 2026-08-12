@@ -166,10 +166,6 @@ https://www.nytimes.com/interactive/2026/08/12/weather/cristobal-map-path-tracke
 `Bruce Blakeman, who is vying to become the state’s second Republican governor in the last 50 years, pushes President Trump’s agenda even as he avoids mentioning his name.`\
 https://www.nytimes.com/2026/08/12/nyregion/bruce-blakeman-governor-ny.html
 
-**How Scientists Use Eclipses for Research**\
-`It’s a chance not just to study the sun but also space weather, light pollution and even animal behavior.`\
-https://www.nytimes.com/2026/08/12/world/europe/eclipse-scientists.html
-
 **Eclipse solar, en vivo: comienza la trayectoria de la totalidad**\
 `De Islandia a España, los observadores han acudido a los lugares donde, por corto tiempo, la Luna bloqueará completamente al Sol.`\
 https://www.nytimes.com/live/2026/08/12/espanol/eclipse-solar-total
