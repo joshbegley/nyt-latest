@@ -1,3 +1,11 @@
+**Mientras EE. UU. se queda sin municiones, las capacidades militares de Irán evolucionan**\
+`Los ataques iraníes que mataron a tres soldados estadounidenses en Jordania revelan dos hechos importantes: primero, Irán es ahora un adversario más hábil. Segundo, al Pentágono le quedan menos interceptores.`\
+https://www.nytimes.com/es/2026/08/12/espanol/estados-unidos/iran-municiones-guerra-arsenal.html
+
+**¿Qué tan saludable es la remolacha?**\
+`La clave está en sus llamativos colores.`\
+https://www.nytimes.com/es/2026/08/12/espanol/estilos-de-vida/que-tan-saludable-es-la-remolacha.html
+
 **Europa está a pocas horas de presenciar un eclipse solar total**\
 `A Islandia, España y otros puntos dentro de la totalidad, los aficionados a la astronomía han acudido en masa a lugares donde la Luna bloqueará completamente al Sol.`\
 https://www.nytimes.com/es/2026/08/12/espanol/mundo/europa-eclipse-hora.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/08/11/us/portland-warehouse-fire-amtrak.html
 **With Trump Secretly Evacuated, Imperiled Air Force One Became a Flying Decoy**\
 `In response to a threat against the jet last month, the president was clandestinely removed in a catering container. But the plane was sent into the skies anyway with government employees and reporters onboard.`\
 https://www.nytimes.com/2026/08/11/us/politics/trump-air-force-one-decoy.html
-
-**Palestinian Americans File Discrimination Lawsuit Against Columbia**\
-`The five plaintiffs, all currently or formerly affiliated with the university, said Columbia had failed to adequately protect them from harassment after the 2023 Hamas attack against Israel.`\
-https://www.nytimes.com/2026/08/11/nyregion/columbia-university-lawsuit-palestinians.html
-
-**The First Rule of Persuasion**\
-`How can you effectively argue with someone you don’t agree with? The Opinion columnist Ross Douthat joins “The Ezra Klein Show” to explain why you must first engage with the best, most high-minded version of your opponent’s position.`\
-https://www.nytimes.com/video/opinion/100000011086404/the-first-rule-of-persuasion.html
 
 **Election Live Updates: Progressive Wins Senate Nomination in Minnesota as Wisconsin Democratic Socialist Faces Tight Race**\
 `Lt. Gov. Peggy Flanagan of Minnesota will hope to keep a Senate seat in Democratic hands in November. In Wisconsin, Francesca Hong, a democratic socialist who had polled strongly in the Democratic primary for governor, was in an unexpectedly close contest with the Milwaukee County executive.`\

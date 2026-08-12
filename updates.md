@@ -1,3 +1,11 @@
+**Mientras EE. UU. se queda sin municiones, las capacidades militares de Irán evolucionan**\
+`Los ataques iraníes que mataron a tres soldados estadounidenses en Jordania revelan dos hechos importantes: primero, Irán es ahora un adversario más hábil. Segundo, al Pentágono le quedan menos interceptores.`\
+https://www.nytimes.com/es/2026/08/12/espanol/estados-unidos/iran-municiones-guerra-arsenal.html
+
+**¿Qué tan saludable es la remolacha?**\
+`La clave está en sus llamativos colores.`\
+https://www.nytimes.com/es/2026/08/12/espanol/estilos-de-vida/que-tan-saludable-es-la-remolacha.html
+
 **Europa está a pocas horas de presenciar un eclipse solar total**\
 `A Islandia, España y otros puntos dentro de la totalidad, los aficionados a la astronomía han acudido en masa a lugares donde la Luna bloqueará completamente al Sol.`\
 https://www.nytimes.com/es/2026/08/12/espanol/mundo/europa-eclipse-hora.html
