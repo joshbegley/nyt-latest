@@ -1,3 +1,7 @@
+**More Than 40 Dead After a Ferry Capsizes on Zimbabwe’s Lake Kariba**\
+`The vessel was crowded far beyond capacity and was hit by strong waves, the police said. While dozens have been rescued, the search continues for an unknown number of missing people.`\
+https://www.nytimes.com/2026/08/12/world/africa/-zimbabwe-lake-kariba-ferry-capsize.html
+
 **Live Updates: The Moon Bites Into the Sun in Skies Across Europe**\
 `From Iceland to Spain, people flocked to viewing spots to see the moon completely block out the sun.`\
 https://www.nytimes.com/live/2026/08/12/world/solar-eclipse-2026-updates

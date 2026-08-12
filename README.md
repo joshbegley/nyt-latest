@@ -1,3 +1,7 @@
+**How ‘The Evil Dead’ Point-of-View Shots Changed Horror Movies Forever**\
+`The racing point-of-view shot is a signature of this franchise. But once you know to look for it, you’ll see it everywhere.`\
+https://www.nytimes.com/interactive/2026/08/12/movies/the-evil-dead-sam-raimi.html
+
 **More Than 40 Dead After a Ferry Capsizes on Zimbabwe’s Lake Kariba**\
 `The vessel was crowded far beyond capacity and was hit by strong waves, the police said. While dozens have been rescued, the search continues for an unknown number of missing people.`\
 https://www.nytimes.com/2026/08/12/world/africa/-zimbabwe-lake-kariba-ferry-capsize.html
@@ -149,10 +153,6 @@ https://www.nytimes.com/video/embedded/us/politics/100000011087834/12vid-crowley
 **Ward Churchill, Professor Who Challenged His Dismissal, Dies at 78**\
 `His inflammatory essay about the Sept. 11 attacks prompted his dismissal by the University of Colorado for unrelated research misconduct. A jury later found that he had been wrongfully terminated for his views.`\
 https://www.nytimes.com/2026/08/12/us/ward-churchill-dead.html
-
-**How to Safely Watch the Solar Eclipse, Even Without Glasses**\
-`If you plan to watch the solar eclipse, make sure your lenses offer enough protection. Alternatively, you can safely watch using household items.`\
-https://www.nytimes.com/2026/08/12/world/europe/watch-solar-eclipse-without-glasses-pinhole-camera-colander.html
 
 **Eclipse solar, en vivo: comienza la trayectoria de la totalidad**\
 `De Islandia a España, los observadores han acudido a los lugares donde, por corto tiempo, la Luna bloqueará completamente al Sol.`\
