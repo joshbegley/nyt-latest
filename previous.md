@@ -1,3 +1,7 @@
+**Jimmy Fallon Recreates Trump’s Catering Container Escape**\
+`“Everyone was, like, ‘Well, at least he has one exit plan,’” the “Tonight Show” host said.`\
+https://www.nytimes.com/2026/08/12/arts/television/late-night-trump-catering-container-air-force-one.html
+
 **8 Takeaways from Tuesday’s Primaries**\
 `A Democratic primary for governor in Wisconsin remained neck and neck early Wednesday, leaving a national battle between progressive and moderate wings largely unsettled.`\
 https://www.nytimes.com/2026/08/12/us/politics/11pol-south-carolina-wisconsin-minnesota-primaries.html
@@ -193,12 +197,4 @@ https://www.nytimes.com/2026/08/11/us/politics/trump-medicaid-trans-treatment.ht
 **Iran Said to Have Known Details of Trump’s Stay at NATO Summit**\
 `The United States picked up multiple streams of information, including one potential threat that involved a shoulder-fired missile.`\
 https://www.nytimes.com/2026/08/11/us/politics/trump-iran-threat-air-force-one.html
-
-**Election Live Updates: Wisconsin Primary for Governor Too Close to Call Between Moderate and Democratic Socialist**\
-`David Crowley, the Milwaukee County executive, and Francesca Hong, a democratic socialist who had polled strongly in the race, were locked in a tight race. In Minnesota, Lt. Gov. Peggy Flanagan, a progressive, won the Democratic Senate primary.`\
-https://www.nytimes.com/live/2026/08/11/us/elections-south-carolina-wisconsin
-
-**Race Too Close to Call in Democratic Primary for Michigan Senate Seat**\
-`Dr. Abdul El-Sayed, a progressive, and Representative Haley Stevens, a centrist, both gave speeches with the winner still undeclared. Kansas, Missouri, Virginia and Washington also voted.`\
-https://www.nytimes.com/live/2026/08/04/us/midterms-elections-michigan-virginia
 

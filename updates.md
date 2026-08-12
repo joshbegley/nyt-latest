@@ -1,3 +1,7 @@
+**Jimmy Fallon Recreates Trump’s Catering Container Escape**\
+`“Everyone was, like, ‘Well, at least he has one exit plan,’” the “Tonight Show” host said.`\
+https://www.nytimes.com/2026/08/12/arts/television/late-night-trump-catering-container-air-force-one.html
+
 **8 Takeaways from Tuesday’s Primaries**\
 `A Democratic primary for governor in Wisconsin remained neck and neck early Wednesday, leaving a national battle between progressive and moderate wings largely unsettled.`\
 https://www.nytimes.com/2026/08/12/us/politics/11pol-south-carolina-wisconsin-minnesota-primaries.html
