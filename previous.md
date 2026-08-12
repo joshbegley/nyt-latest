@@ -1,3 +1,11 @@
+**Center-Left Candidate Defeats Socialist in Wisconsin’s Governor Primary**\
+`The upset victory by David Crowley, the Milwaukee County executive, over Francesca Hong, a democratic socialist, sets up a more traditional general election in November.`\
+https://www.nytimes.com/2026/08/12/us/elections/wisconsin-governor-democratic-primary-hong-crowley.html
+
+**Election Live Updates: Moderate Democrat Wins Tight Wisconsin Primary for Governor**\
+`David Crowley, the Milwaukee County executive, defeated Francesca Hong, a democratic socialist, in a close race. In Minnesota, Lt. Gov. Peggy Flanagan, a progressive, won the Democratic Senate primary.`\
+https://www.nytimes.com/live/2026/08/12/us/wisconsin-election-results-governor
+
 **Toda una generación busca cómo dejar los antidepresivos**\
 `Muchas personas sienten que los antidepresivos bloquean sus emociones verdaderas, pero no cuentan con orientación sobre cómo dejar estos fármacos.`\
 https://www.nytimes.com/es/2026/08/12/espanol/opinion/antidepresivos-como-dejarlos.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/11/us/politics/angie-craig-minnesota-democratic-
 **Abdul El-Sayed Deleted Old Posts and Videos Defending ‘Defund’ and Floating an End to Fireworks**\
 `The removed posts from Dr. Abdul El-Sayed, the Democratic nominee for Senate in Michigan, immediately set off Republican attacks.`\
 https://www.nytimes.com/2026/08/11/us/politics/abdul-el-sayed-fireworks-police-videos.html
-
-**How a Staten Island Lawsuit Is Challenging Mamdani’s Second-Home Tax**\
-`New York officials were already hurrying to roll out the tax. A lawsuit by homeowners, which persuaded a judge to issue a temporary pause, has made the process thornier.`\
-https://www.nytimes.com/2026/08/11/nyregion/pied-a-terre-tax-mamdani.html
-
-**Ned Lamont Wins the Democratic Primary for Connecticut Governor**\
-`Josh Elliott, a state representative who mounted a primary challenge, pledged to raise taxes on the rich and take the state on a more progressive path.`\
-https://www.nytimes.com/2026/08/11/us/politics/connecticut-primary-governor-lamont-elliott.html
 

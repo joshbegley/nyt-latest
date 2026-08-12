@@ -1,3 +1,11 @@
+**Center-Left Candidate Defeats Socialist in Wisconsin’s Governor Primary**\
+`The upset victory by David Crowley, the Milwaukee County executive, over Francesca Hong, a democratic socialist, sets up a more traditional general election in November.`\
+https://www.nytimes.com/2026/08/12/us/elections/wisconsin-governor-democratic-primary-hong-crowley.html
+
+**Election Live Updates: Moderate Democrat Wins Tight Wisconsin Primary for Governor**\
+`David Crowley, the Milwaukee County executive, defeated Francesca Hong, a democratic socialist, in a close race. In Minnesota, Lt. Gov. Peggy Flanagan, a progressive, won the Democratic Senate primary.`\
+https://www.nytimes.com/live/2026/08/12/us/wisconsin-election-results-governor
+
 **In Europe, the Total Solar Eclipse Is Hours Away**\
 `Sky watchers have flocked to places, from Iceland to Spain, where the moon will completely block the sun.`\
 https://www.nytimes.com/2026/08/12/world/europe/solar-eclipse-europe.html
