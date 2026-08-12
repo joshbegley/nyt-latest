@@ -1,3 +1,7 @@
+**See the 2026 European Solar Eclipse, in Photos and Videos**\
+`People gathered across the continent to watch the total solar eclipse on Wednesday.`\
+https://www.nytimes.com/2026/08/12/world/europe/solar-eclipse-europe-photos.html
+
 **South Carolina Senate Runoff Kicks Off With Chick-fil-A and Trump Calls**\
 `Darline Graham and Ralph Norman emerged from a special election sprint on Tuesday to succeed Lindsey Graham. She will sell her closeness to President Trump. He will tout his conservatism.`\
 https://www.nytimes.com/2026/08/12/us/politics/south-carolina-republican-senate-primary-runoff.html
