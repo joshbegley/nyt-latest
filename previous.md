@@ -1,3 +1,7 @@
+**Karoline Leavitt Steps Down as White House Press Secretary**\
+`President Trump announced on Wednesday in a Truth Social post that Karoline Leavitt, his press secretary, would step down at the end of the month.`\
+https://www.nytimes.com/video/us/politics/100000011089013/karoline-leavitt-leaving-white-house.html
+
 **South Carolina Senate Runoff Kicks Off With Chick-fil-A and Trump Calls**\
 `Darline Graham and Ralph Norman emerged from a special election sprint on Tuesday to succeed Lindsey Graham. She will sell her closeness to President Trump. He will tout his conservatism.`\
 https://www.nytimes.com/2026/08/12/us/politics/south-carolina-republican-senate-primary-runoff.html
@@ -6,8 +10,8 @@ https://www.nytimes.com/2026/08/12/us/politics/south-carolina-republican-senate-
 `A medical issue during Mr. Fincke’s fourth space journey resulted in an early medical evacuation, the first ever from the International Space Station.`\
 https://www.nytimes.com/2026/08/12/us/mike-fincke-retires-nasa-astronaut.html
 
-**‘I Thought I Was Going to Die’: YouTuber Live Streams as Earthquake Hits Colombia**\
-`A social media influencer was on live stream when a 7.4-magnitude earthquake hit Colombia on Monday. José Gallego was in an airport in Pereira when the quake hit, leading him to duck for cover.`\
+**‘I Thought I Was Going to Die’: YouTuber Livestreams as Earthquake Hits Colombia**\
+`A social media influencer was on livestream when a 7.4-magnitude earthquake hit Colombia on Monday. José Gallego was in an airport in Pereira when the quake hit, leading him to duck for cover.`\
 https://www.nytimes.com/video/world/americas/100000011085122/colombia-earthquake-live-stream.html
 
 **For Trump, Secret Flight Was a Stunning Ruse. For Putin, ‘a Regular Tuesday.’**\
@@ -162,15 +166,11 @@ https://www.nytimes.com/2026/08/12/us/politics/prediction-markets-insider-tradin
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://www.nytimes.com/2026/08/12/style/tiny-modern-love-stories-we-ended-up-in-her-bed.html
 
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/business/100000011088415/Biz-Us-Robot-Opener-video-chess.html
-
 **Por primera vez en décadas, el día se hace noche en Europa bajo un eclipse solar total**\
 `De Islandia a España, los observadores acudieron a los lugares donde, por corto tiempo, la Luna bloqueó completamente al Sol.`\
 https://www.nytimes.com/live/2026/08/12/espanol/eclipse-solar-total
 
-**Live Updates: First Total Eclipse in Europe in Decades Turns Day to Night**\
+**First Total Eclipse in Europe in Decades Turns Day to Night**\
 `From Iceland to Spain, people flocked to viewing spots to see the moon completely block out the sun.`\
 https://www.nytimes.com/live/2026/08/12/world/solar-eclipse-2026-updates
 

@@ -1,3 +1,15 @@
+**Karoline Leavitt Steps Down as White House Press Secretary**\
+`President Trump announced on Wednesday in a Truth Social post that Karoline Leavitt, his press secretary, would step down at the end of the month.`\
+https://www.nytimes.com/video/us/politics/100000011089013/karoline-leavitt-leaving-white-house.html
+
+**‘I Thought I Was Going to Die’: YouTuber Livestreams as Earthquake Hits Colombia**\
+`A social media influencer was on livestream when a 7.4-magnitude earthquake hit Colombia on Monday. José Gallego was in an airport in Pereira when the quake hit, leading him to duck for cover.`\
+https://www.nytimes.com/video/world/americas/100000011085122/colombia-earthquake-live-stream.html
+
+**First Total Eclipse in Europe in Decades Turns Day to Night**\
+`From Iceland to Spain, people flocked to viewing spots to see the moon completely block out the sun.`\
+https://www.nytimes.com/live/2026/08/12/world/solar-eclipse-2026-updates
+
 **See the 2026 European Solar Eclipse, in Photos and Videos**\
 `People gathered across the continent to watch the total solar eclipse on Wednesday.`\
 https://www.nytimes.com/2026/08/12/world/europe/solar-eclipse-europe-photos.html
