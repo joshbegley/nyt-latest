@@ -1,6 +1,10 @@
-**¿Cooperará el tiempo? Aquí hay un resumen de los pronósticos en la trayectoria del eclipse**\
-`The spectacle will be at the mercy of the meteorological conditions, with clouds threatening to block the view in some places.`\
-https://www.nytimes.com/es/2026/08/12/espanol/pronostico-tiempo.html
+**Consumer Debt Data Shows ‘Overall’ Health Amid Persisting Divides**\
+`Homeowners with low fixed-rate mortgages lead a resilient picture of the economy. But many consumers are frustrated with declining real wages and other loans.`\
+https://www.nytimes.com/2026/08/12/business/consumer-debt-inflation.html
+
+**How Kennedy Fueled Vaccine Skepticism**\
+`Robert F. Kennedy Jr. once mocked the threat of measles at a speech in Lancaster County, Pa. Now, local officials are racing to contain one of the country’s largest outbreaks. Teddy Rosenbluth, a reporter for Well, explains.`\
+https://www.nytimes.com/video/well/100000011073335/how-kennedy-fueled-vaccine-skepticism.html
 
 **RFK Jr. Stirred Vaccine Fears in Pennsylvania Years Before Measles Outbreak**\
 `At a speech in Lancaster County, Robert F. Kennedy mocked the threat of measles. Now local officials are racing to contain one of the largest outbreaks in the country.`\
@@ -153,12 +157,4 @@ https://www.nytimes.com/2026/08/12/pageoneplus/corrections-aug-12-2026.html
 **A Pasadena Craftsman Bursting With Color**\
 `Grey DeLisle lives with bold wallpaper, retro appliances and a wooden cowboy named Slim.`\
 https://www.nytimes.com/2026/08/12/realestate/a-pasadena-craftsman-bursting-with-color.html
-
-**‘Ted Lasso’ Season 4, Episode 2 Recap: Back to Richmond**\
-`This week, Ted wakes up in England where he belongs and meets his new assistant coach.`\
-https://www.nytimes.com/2026/08/12/arts/television/ted-lasso-season-4-episode-2-recap.html
-
-**Why the U.S. Economy Needs A.I. — Bubble or Not**\
-`And what a hedge fund’s $35 billion loss reveals about the state of the industry.`\
-https://www.nytimes.com/2026/08/12/opinion/ai-bubble-economy-crash.html
 

@@ -1,3 +1,11 @@
+**Consumer Debt Data Shows ‘Overall’ Health Amid Persisting Divides**\
+`Homeowners with low fixed-rate mortgages lead a resilient picture of the economy. But many consumers are frustrated with declining real wages and other loans.`\
+https://www.nytimes.com/2026/08/12/business/consumer-debt-inflation.html
+
+**How Kennedy Fueled Vaccine Skepticism**\
+`Robert F. Kennedy Jr. once mocked the threat of measles at a speech in Lancaster County, Pa. Now, local officials are racing to contain one of the country’s largest outbreaks. Teddy Rosenbluth, a reporter for Well, explains.`\
+https://www.nytimes.com/video/well/100000011073335/how-kennedy-fueled-vaccine-skepticism.html
+
 **¿Cooperará el tiempo? Aquí hay un resumen de los pronósticos en la trayectoria del eclipse**\
 `The spectacle will be at the mercy of the meteorological conditions, with clouds threatening to block the view in some places.`\
 https://www.nytimes.com/es/2026/08/12/espanol/pronostico-tiempo.html
