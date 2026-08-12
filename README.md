@@ -123,7 +123,7 @@ https://www.nytimes.com/video/podcasts/100000011085447/what-happens-when-two-anx
 https://www.nytimes.com/2026/08/12/pageoneplus/corrections-aug-12-2026.html
 
 **A Pasadena Craftsman Bursting With Color**\
-`Grey DeLisle lives with bold wallpaper, retro appliances and a wooden cowboy named slim.`\
+`Grey DeLisle lives with bold wallpaper, retro appliances and a wooden cowboy named Slim.`\
 https://www.nytimes.com/2026/08/12/realestate/a-pasadena-craftsman-bursting-with-color.html
 
 **‘Ted Lasso’ Season 4, Episode 2 Recap: Back to Richmond**\
@@ -169,8 +169,4 @@ https://www.nytimes.com/2026/08/12/business/extreme-heat-worker-deaths.html
 **Which $480,000 Home Would You Pick?**\
 `This weeks properties are in Lexington, Ky.; Pittsford, N.Y.; and Bradford, Vt.`\
 https://www.nytimes.com/2026/08/12/realestate/which-480000-home-would-you-pick.html
-
-**‘The Winter’s Tale’ Review: A Fable That’s Fit for Summer**\
-`Shakespeare in the Park stages this melancholic comedy, which gives us a good excuse to spend time with Raúl Esparza and Lily Rabe as king and queen.`\
-https://www.nytimes.com/2026/08/12/theater/winters-tale-review-shakespeare-in-the-park.html
 
