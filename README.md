@@ -47,7 +47,7 @@ https://www.nytimes.com/2026/08/12/us/politics/splc-fraud-conspiracy-charges.htm
 https://www.nytimes.com/2026/08/12/us/politics/treasury-scrutiny-shell-companies.html
 
 **Two Killed in Military Helicopter Crash Near Fort Hood in Texas**\
-`The helicopter crashed in Salado, a small town about 20 miles from the military base, the authorities said.`\
+`The Apache helicopter crashed in Salado, a small town about 20 miles from the military base, and set off a fire, the authorities said.`\
 https://www.nytimes.com/2026/08/12/us/texas-helicopter-crash.html
 
 **See the 2026 European Solar Eclipse, in Photos and Videos**\
