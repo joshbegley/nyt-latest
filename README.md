@@ -1,3 +1,11 @@
+**Israeli Settlers Are Out of Control**\
+`If Netanyahu is ousted in October’s balloting, don’t expect peace to break out, but the worst violence might be reined in.`\
+https://www.nytimes.com/2026/08/12/opinion/israeli-settlers-palestinians-west-bank.html
+
+**Afghanistan’s Unhappy Anniversary**\
+`Five years into their hard-line rule, the Taliban find themselves in crisis at home and abroad.`\
+https://www.nytimes.com/2026/08/12/world/afghanistan-taliban-anniversary-eclipse-lakers.html
+
 **Ex-Official at Civil Rights Group Is Charged in Plot to Misuse Far-Right Informants**\
 `The charges signaled an escalation of the Justice Department’s prosecution of the Southern Poverty Law Center, which is best known for investigating white supremacist groups.`\
 https://www.nytimes.com/2026/08/12/us/politics/splc-fraud-conspiracy-charges.html
@@ -161,10 +169,6 @@ https://www.nytimes.com/2026/08/12/arts/television/lucy-davis-uk-office-cancer.h
 **Effects of Record-Breaking El Niño Are Happening on 3 Continents**\
 `The recurring climate phenomenon is expected to peak later this year, but it is already causing dry spells and crop failures on three continents.`\
 https://www.nytimes.com/2026/08/12/climate/el-nino-early-onset-effects.html
-
-**Ted Decker, CEO of Home Depot, Is Taking Medical Leave**\
-`Ted Decker is expected to return in a few months, and two executives have been appointed to oversee his duties in the interim.`\
-https://www.nytimes.com/2026/08/12/business/home-depot-ceo.html
 
 **Por primera vez en décadas, el día se hace noche en Europa bajo un eclipse solar total**\
 `De Islandia a España, los observadores acudieron a los lugares donde, por corto tiempo, la Luna bloqueó completamente al Sol.`\
