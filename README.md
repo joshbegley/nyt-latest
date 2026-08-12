@@ -1,3 +1,7 @@
+**Areas to Watch in Minnesota’s Senate and Governor Primaries**\
+`Divides in both parties will be on display Tuesday night, particularly in a group of key counties.`\
+https://www.nytimes.com/2026/08/11/us/politics/minnesota-primary-elections-counties.html
+
 **Amy Klobuchar Wins Minnesota’s Democratic Primary for Governor**\
 `The fourth-term U.S. senator jolted Minnesota politics early this year by mounting a bid to succeed Gov. Tim Walz.`\
 https://www.nytimes.com/2026/08/11/us/klobuchar-minnesota-governor.html
@@ -39,7 +43,7 @@ https://www.nytimes.com/2026/08/11/us/politics/tom-tiffany-wisconsin-governor-ca
 https://www.nytimes.com/2026/08/11/us/politics/michael-alfonso-sean-duffy-wisconsin.html
 
 **Esto sabemos de la boda de Cristiano Ronaldo y Georgina**\
-`Después de casi una década juntos y cinco hijos en su familia reconstituida, la pareja se habría casado en una ceremonia íntima en la ciudad natal de Ronaldo, Madeira, Portugal.`\
+`Después de casi una década juntos y cinco hijos en su familia reconstituida, la pareja se habría casado en una ceremonia íntima en  Cascais, Portugal.`\
 https://www.nytimes.com/es/2026/08/11/espanol/estilos-de-vida/boda-cristiano-ronaldo-georgina.html
 
 **5 Things to Know About Michele Tafoya, Republican Senate Candidate in Minnesota**\
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/08/11/books/richard-lingeman-dead.html
 **Human-Shaped Robots at This Car Factory Can Perform Humanlike Tasks**\
 `Humanoids — human-shaped robots — at this BMW factory in South Carolina are expected to respond to voice commands, solve problems and react to unforeseen events. U.S. automakers hope that this technology can give them a fighting chance against their Chinese rivals that enjoy lower costs.`\
 https://www.nytimes.com/video/business/economy/100000011085557/humanoid-robots-bmw-car-factory.html
-
-**Searching for Survivors After Colombia’s Earthquake**\
-`Our Colombia-based reporter Genevieve Glatsky witnesses the search for survivors after a five-story apartment building in the city of Cali collapsed in an earthquake.`\
-https://www.nytimes.com/video/world/americas/100000011085349/searching-for-survivors-after-colombias-earthquake.html
 
 **Race Too Close to Call in Democratic Primary for Michigan Senate Seat**\
 `Dr. Abdul El-Sayed, a progressive, and Representative Haley Stevens, a centrist, both gave speeches with the winner still undeclared. Kansas, Missouri, Virginia and Washington also voted.`\
