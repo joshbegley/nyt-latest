@@ -1,3 +1,7 @@
+**8 Takeaways from Tuesday’s Primaries**\
+`A Democratic primary for governor in Wisconsin remained neck and neck early Wednesday, leaving a national battle between progressive and moderate wings largely unsettled.`\
+https://www.nytimes.com/2026/08/12/us/politics/11pol-south-carolina-wisconsin-minnesota-primaries.html
+
 **¿Debería ser un delito dejar que los niños jueguen solos afuera?**\
 `Algunos padres se han visto envueltos en procesos legales por permitir que sus hijos tengan autonomía.`\
 https://www.nytimes.com/es/2026/08/12/espanol/ninos-solos-ilegal.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/08/11/us/politics/trump-medicaid-trans-treatment.ht
 **Iran Said to Have Known Details of Trump’s Stay at NATO Summit**\
 `The United States picked up multiple streams of information, including one potential threat that involved a shoulder-fired missile.`\
 https://www.nytimes.com/2026/08/11/us/politics/trump-iran-threat-air-force-one.html
-
-**Warehouse Blaze in Portland, Ore., Is Headache for City Over a Week Later**\
-`The city has set up a safety zone, and Amtrak trains between Seattle and Portland are paused, but freight trains have been passing the structure, alarming officials who have warned of a collapse.`\
-https://www.nytimes.com/2026/08/11/us/portland-warehouse-fire-amtrak.html
 
 **Election Live Updates: Wisconsin Primary for Governor Too Close to Call Between Moderate and Democratic Socialist**\
 `David Crowley, the Milwaukee County executive, and Francesca Hong, a democratic socialist who had polled strongly in the race, were locked in a tight race. In Minnesota, Lt. Gov. Peggy Flanagan, a progressive, won the Democratic Senate primary.`\
