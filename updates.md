@@ -1,3 +1,7 @@
+**Benign Inflation Data Offers Reprieve to Fed as It Weighs Rate Increase**\
+`The latest Consumer Price Index report helped to reinforce the patient approach adopted by many officials at the Federal Reserve about raising rates, but it has not resolved the debate altogether.`\
+https://www.nytimes.com/2026/08/12/business/economy/inflation-federal-reserve-interest-rates.html
+
 **A Pasadena Craftsman Bursting With Color**\
 `Grey DeLisle lives with bold wallpaper, retro appliances and a wooden cowboy named Slim.`\
 https://www.nytimes.com/2026/08/12/realestate/a-pasadena-craftsman-bursting-with-color.html
