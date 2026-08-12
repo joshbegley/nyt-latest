@@ -1,3 +1,7 @@
+**Trump-Backed Representative Wins Nomination for Wisconsin Governor**\
+`Tom Tiffany, a conservative from western Wisconsin, said he would try to lower taxes, bring transparency to health care and protect farmland.`\
+https://www.nytimes.com/2026/08/11/us/wisconsin-governor-republican-primary-tom-tiffany.html
+
 **Areas to Watch in Wisconsin’s Democratic Primary for Governor**\
 `A race between Francesca Hong and David Crowley could highlight the fault lines between Madison and Milwaukee.`\
 https://www.nytimes.com/2026/08/11/us/politics/wisconsin-democratic-primary-governor-counties.html
@@ -14,7 +18,7 @@ https://www.nytimes.com/2026/08/11/nyregion/rat-emoji-nba-gambling-jail.html
 `Francesca Hong, a democratic socialist, has consistently led in a Democratic primary that struggled to settle on a field of candidates.`\
 https://www.nytimes.com/2026/08/11/us/politics/wisconsin-democratic-primary-governor-polling.html
 
-**It Started As a Hot Tub Harbor Cruise. It Became a Rescue Mission.**\
+**It Started as a Hot Tub Harbor Cruise. It Became a Rescue Mission.**\
 `The captain of a party boat gave the fullest account of the rescue of 12 passengers near Liberty Island. A mother and daughter died and the incident is now part of a federal investigation.`\
 https://www.nytimes.com/2026/08/11/nyregion/nyc-capsized-boat-passengers-help.html
 
@@ -185,10 +189,6 @@ https://www.nytimes.com/video/world/americas/100000011085349/searching-for-survi
 **These Are Rachel Antonoff’s Favorite Restaurants**\
 `The food-loving fashion designer tackles the Where to Eat restaurant questionnaire.`\
 https://www.nytimes.com/2026/08/11/dining/fashion-designer-rachel-antonoff.html
-
-**Cómo se frustró una investigación sobre los nexos de Trump con Rusia**\
-`Documentos publicados por la Casa Blanca arrojan luz sobre una indagatoria poco conocida en torno a la campaña presidencial de 2016 de Trump.`\
-https://www.nytimes.com/es/2026/08/11/espanol/estados-unidos/trump-rusia-eleccion-presidencial.html
 
 **Race Too Close to Call in Democratic Primary for Michigan Senate Seat**\
 `Dr. Abdul El-Sayed, a progressive, and Representative Haley Stevens, a centrist, both gave speeches with the winner still undeclared. Kansas, Missouri, Virginia and Washington also voted.`\
