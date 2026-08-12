@@ -1,3 +1,7 @@
+**Trump Says Secret Plane Swap Was Not His Decision**\
+`President Trump said the Secret Service asked him to get off Air Force One and swap planes in response to a threat from Iran last month. He did not directly comment on the risk of the people he left on the plane.`\
+https://www.nytimes.com/video/us/politics/100000011087345/trump-plane-switch-air-force-one-secret-service.html
+
 **Telescope Spots Two Black Holes on the Cusp of Merging**\
 `New images from the James Webb telescope show a galaxy with a trio of supermassive black holes. Two of them appear to be locked in a tight tango.`\
 https://www.nytimes.com/2026/08/12/science/space/telescope-spots-two-black-holes-on-the-cusp-of-merging.html
@@ -8,7 +12,7 @@ https://www.nytimes.com/2026/08/12/us/elections/wisconsin-governor-democratic-pr
 
 **Election Live Updates: Moderate Democrat Wins Tight Wisconsin Primary for Governor**\
 `David Crowley, the Milwaukee County executive, defeated Francesca Hong, a democratic socialist, in a close race. In Minnesota, Lt. Gov. Peggy Flanagan, a progressive, won the Democratic Senate primary.`\
-https://www.nytimes.com/live/2026/08/12/us/wisconsin-election-results-governor
+https://www.nytimes.com/live/2026/08/12/us/primary-election-results-wi-mn-sc
 
 **Toda una generación busca cómo dejar los antidepresivos**\
 `Muchas personas sienten que los antidepresivos bloquean sus emociones verdaderas, pero no cuentan con orientación sobre cómo dejar estos fármacos.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/11/us/politics/decoy-plane-passengers.html
 **5 Things to Know About Peggy Flanagan, Democratic Senate Candidate in Minnesota**\
 `Ms. Flanagan, the progressive lieutenant governor of Minnesota, is a former organizer who could become the first Native American woman in the Senate.`\
 https://www.nytimes.com/2026/08/11/us/politics/peggy-flanagan-minnesota-senate-candidate.html
-
-**5 Things to Know About Angie Craig, Democratic Senate Hopeful in Minnesota**\
-`Ms. Craig, a moderate Democratic congresswoman, flipped a swing House seat in 2018 to become Minnesota’s first openly gay member of Congress.`\
-https://www.nytimes.com/2026/08/11/us/politics/angie-craig-minnesota-democratic-senate.html
 

@@ -1,3 +1,11 @@
+**Trump Says Secret Plane Swap Was Not His Decision**\
+`President Trump said the Secret Service asked him to get off Air Force One and swap planes in response to a threat from Iran last month. He did not directly comment on the risk of the people he left on the plane.`\
+https://www.nytimes.com/video/us/politics/100000011087345/trump-plane-switch-air-force-one-secret-service.html
+
+**Election Live Updates: Moderate Democrat Wins Tight Wisconsin Primary for Governor**\
+`David Crowley, the Milwaukee County executive, defeated Francesca Hong, a democratic socialist, in a close race. In Minnesota, Lt. Gov. Peggy Flanagan, a progressive, won the Democratic Senate primary.`\
+https://www.nytimes.com/live/2026/08/12/us/primary-election-results-wi-mn-sc
+
 **Center-Left Candidate Defeats Democratic Socialist in Wisconsin’s Governor Primary**\
 `The upset victory by David Crowley, the Milwaukee County executive, over Francesca Hong sets up a more traditional general election in November.`\
 https://www.nytimes.com/2026/08/12/us/elections/wisconsin-governor-democratic-primary-hong-crowley.html
