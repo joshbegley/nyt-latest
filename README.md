@@ -1,3 +1,11 @@
+**South Carolina Senate Runoff Kicks Off With Chick-fil-A and Trump Calls**\
+`Darline Graham and Ralph Norman emerged from a special election sprint on Tuesday to succeed Lindsey Graham. She will sell her closeness to President Trump. He will tout his conservatism.`\
+https://www.nytimes.com/2026/08/12/us/politics/south-carolina-republican-senate-primary-runoff.html
+
+**Mike Fincke, Astronaut Who Spent 549 Days in Space, Has Retired**\
+`A medical issue during Mr. Fincke’s fourth space journey resulted in an early medical evacuation, the first ever from the International Space Station.`\
+https://www.nytimes.com/2026/08/12/us/mike-fincke-retires-nasa-astronaut.html
+
 **‘I Thought I Was Going to Die’: YouTuber Live Streams as Earthquake Hits Colombia**\
 `A social media influencer was on live stream when a 7.4-magnitude earthquake hit Colombia on Monday. José Gallego was in an airport in Pereira when the quake hit, leading him to duck for cover.`\
 https://www.nytimes.com/video/world/americas/100000011085122/colombia-earthquake-live-stream.html
@@ -157,14 +165,6 @@ https://www.nytimes.com/2026/08/12/style/tiny-modern-love-stories-we-ended-up-in
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/business/100000011088415/Biz-Us-Robot-Opener-video-chess.html
-
-**Why Were Polls So Wrong in the Wisconsin Governor’s Race?**\
-`Francesca Hong, the democratic socialist running in Wisconsin’s Democratic primary for governor, had a double-digit lead in polls as recently as last week. Then she lost. What happened?`\
-https://www.nytimes.com/2026/08/12/us/politics/crowley-hong-wisconsin-governor-primary-polls.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/business/100000011088403/mosaic-robotsusopener-411.html
 
 **Por primera vez en décadas, el día se hace noche en Europa bajo un eclipse solar total**\
 `De Islandia a España, los observadores acudieron a los lugares donde, por corto tiempo, la Luna bloqueó completamente al Sol.`\
