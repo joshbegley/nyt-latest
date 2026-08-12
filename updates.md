@@ -1,4 +1,16 @@
 **Girl and Boy Scouts, Together and Apart**\
+`Readers recount their experiences as girl scouts, and what sets them apart from boy scouts. Also: The Trump plane ploy; an act of kindness.`\
+https://www.nytimes.com/2026/08/12/opinion/girl-boy-scouts.html
+
+**Why Were Polls So Wrong in the Wisconsin Governor’s Race?**\
+`Francesca Hong, the democratic socialist running in Wisconsin’s Democratic primary for governor, had a double-digit lead in polls as recently as last week. Then she lost. What happened?`\
+https://www.nytimes.com/2026/08/12/us/politics/crowley-hong-wisconsin-governor-primary-polls.html
+
+**Eclipse solar, en vivo: comienza la trayectoria de la totalidad**\
+`De Islandia a España, los observadores han acudido a los lugares donde, por corto tiempo, la Luna bloqueará completamente al Sol.`\
+https://www.nytimes.com/live/2026/08/12/espanol/eclipse-solar-total
+
+**Girl and Boy Scouts, Together and Apart**\
 `Readers recount their experience as girl scouts, and what sets them apart from boy scouts. Also: The Trump plane ploy; an act of kindness.`\
 https://www.nytimes.com/2026/08/12/opinion/girl-boy-scouts.html
 
