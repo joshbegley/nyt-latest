@@ -1,3 +1,15 @@
+**What to Know About David Crowley, a Democratic Candidate for Wisconsin Governor**\
+`The Milwaukee County executive, who was locked in a tight race for the Democratic nomination against Francesca Hong, could become the first Black governor of Wisconsin.`\
+https://www.nytimes.com/2026/08/11/us/politics/david-crowley-wisconsin-governor.html
+
+**Lisa Demuth Wins Republican Primary for Governor of Minnesota**\
+`Lisa Demuth beat Mike Lindell, the MyPillow founder who was endorsed by President Trump.`\
+https://www.nytimes.com/2026/08/11/us/elections/minnesota-governor-republican-demuth.html
+
+**Election Live Updates: Progressive Wins Senate Nomination in Minnesota as Wisconsin Democratic Socialist Faces Tight Race**\
+`Lt. Gov. Peggy Flanagan of Minnesota will hope to keep a Senate seat in Democratic hands in November. In Wisconsin, Francesca Hong, a democratic socialist who had polled strongly in the Democratic primary for governor, was in an unexpectedly close contest with the Milwaukee County executive.`\
+https://www.nytimes.com/live/2026/08/11/us/elections-south-carolina-wisconsin
+
 **Peggy Flanagan, a Progressive, Wins the Democratic Senate Primary in Minnesota**\
 `The victory by Minnesota’s lieutenant governor was the latest for the left-wing movement in the Midwest. She could become the first Native woman in the Senate.`\
 https://www.nytimes.com/2026/08/11/us/politics/minnesota-democratic-senate-primary-flanagan-craig.html
