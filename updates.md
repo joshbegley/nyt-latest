@@ -1,3 +1,11 @@
+**Europa está a pocas horas de presenciar un eclipse solar total**\
+`A Islandia, España y otros puntos dentro de la totalidad, los aficionados a la astronomía han acudido en masa a lugares donde la Luna bloqueará completamente al Sol.`\
+https://www.nytimes.com/es/2026/08/12/espanol/mundo/europa-eclipse-hora.html
+
+**Zambia Election: President Hichilema Faces Backlash Ahead of Vote**\
+`President Hakainde Hichilema was elected five years ago, promising to protect civil liberties in his copper-rich African nation. Now, he’s accused of trampling on them.`\
+https://www.nytimes.com/2026/08/12/world/africa/zambia-presidential-election-hichilema.html
+
 **Quote of the Day: Brutal Weather Wreaks Havoc on Economy**\
 `Quotation of the Day for Wednesday, August 12, 2026.`\
 https://www.nytimes.com/2026/08/12/pageoneplus/quote-of-the-day-brutal-weather-wreaks-havoc-on-economy.html
