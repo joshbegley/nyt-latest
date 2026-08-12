@@ -138,8 +138,8 @@ https://www.nytimes.com/2026/08/12/business/dealbook/thrive-holdings-ai-funding.
 `With temperatures set to soar as high as 109 degrees Fahrenheit (43 Celsius) this week, Europeans and tourists say that summer in Europe has lost its appeal.`\
 https://www.nytimes.com/2026/08/12/world/europe/europe-fifth-heat-wave.html
 
-**Live Updates: Europe Counts Down to a Total Solar Eclipse**\
-`From Iceland to Spain, people have flocked to places where, briefly, the moon will completely block the sun. It is the continent’s first total eclipse in decades.`\
+**Live Updates: Europe’s First Total Eclipse in Decades Starts on Path to Darkness**\
+`From Iceland to Spain, people have flocked to places where, briefly, the moon will completely block the sun.`\
 https://www.nytimes.com/live/2026/08/12/world/solar-eclipse-2026-updates
 
 **Benign Inflation Data Offers Reprieve to Fed as It Weighs Rate Increase**\

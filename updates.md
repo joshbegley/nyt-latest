@@ -1,3 +1,19 @@
+**Trump-Backed Mike Lindell Loses Minnesota Governor Primary to Lisa Demuth**\
+`After his loss in the state’s Republican primary for governor, Mike Lindell, a leading election denier, floated familiar, baseless claims of “anomalies” in his double-digit defeat.`\
+https://www.nytimes.com/2026/08/12/us/politics/trump-lindell-minnesota-republican-primary.html
+
+**Cómo observar el eclipse de forma segura (incluso sin gafas)**\
+`Si piensas ver el eclipse, asegúrate de que tus lentes te den la suficiente protección. Como alternativa, puedes verlo de manera segura con algunos artículos del hogar.`\
+https://www.nytimes.com/es/2026/08/12/espanol/eclipse-gafas-como-ver.html
+
+**Lucy Davis, Star of ‘The Office’ U.K., Shares Terminal Cancer Diagnosis**\
+`Lucy Davis, who portrayed the timid, frustrated Dawn Tinsley in the original version of “The Office,” said she had been diagnosed with Stage 4 breast cancer.`\
+https://www.nytimes.com/2026/08/12/arts/television/lucy-davis-uk-office-cancer.html
+
+**Effects of Record-Breaking El Niño Are Happening on 3 Continents**\
+`The recurring climate phenomenon is expected to peak later this year, but it is already causing dry spells and crop failures on three continents.`\
+https://www.nytimes.com/2026/08/12/climate/el-nino-early-onset-effects.html
+
 **Ted Decker, CEO of Home Depot, Is Taking Medical Leave**\
 `Ted Decker is expected to return in a few months, and two executives have been appointed to oversee his duties in the interim.`\
 https://www.nytimes.com/2026/08/12/business/home-depot-ceo.html
