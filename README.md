@@ -1,3 +1,7 @@
+**It Started As a Hot Tub Harbor Cruise. It Became a Rescue Mission.**\
+`The captain of a party boat gave the fullest account of the rescue of 12 passengers near Liberty Island. A mother and daughter died and the incident is now part of a federal investigation.`\
+https://www.nytimes.com/2026/08/11/nyregion/nyc-capsized-boat-passengers-help.html
+
 **5 Things to Know About Francesca Hong, the Progressive Running for Wisconsin Governor**\
 `The state assemblywoman, a democratic socialist, is a chef and former small business owner. Her campaign focused on economic issues.`\
 https://www.nytimes.com/2026/08/11/us/politics/francesca-hong-wisconsin-progressive-candidate.html
@@ -43,7 +47,7 @@ https://www.nytimes.com/2026/08/11/nyregion/pied-a-terre-tax-mamdani.html
 https://www.nytimes.com/2026/08/11/us/politics/connecticut-primary-governor-lamont-elliott.html
 
 **Darline Graham Advances to the Republican Senate Runoff in South Carolina**\
-`Ms. Graham did not win the special primary outright, despite having President Trump’s endorsement. Her runoff opponent was still too close to call.`\
+`Ms. Graham will face Representative Ralph Norman, a hard-line conservative who had previously run for governor, in the runoff.`\
 https://www.nytimes.com/2026/08/11/us/politics/darline-graham-runoff-south-carolina.html
 
 **Trump Administration Bars Medicaid Funding of Transition Treatment for Transgender Youth**\
@@ -147,7 +151,7 @@ https://www.nytimes.com/video/world/africa/100000011032450/deported-from-the-us-
 https://www.nytimes.com/video/world/europe/100000011085655/europeans-scramble-to-buy-solar-eclipse-glasses.html
 
 **Election Live Updates: Lindsey Graham’s Sister Advances to Runoff in South Carolina Senate Primary**\
-`Polls have closed in five other states holding races, including Minnesota and Wisconsin, where a democratic socialist is seeking the nomination for governor.`\
+`Senator Darline Graham will face Representative Ralph Norman in a runoff to run for the seat held by her late brother. Polls have closed in five other states, including Minnesota and Wisconsin, where a democratic socialist is seeking the nomination for governor.`\
 https://www.nytimes.com/live/2026/08/11/us/elections-south-carolina-wisconsin
 
 **Richard Lingeman, Cultural Historian and Biographer, Dies at 95**\
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/08/11/us/politics/egg-freezing-aoc.html
 **Everything You Need for the Perfect Beach Day: The Best Sunscreen, Swimsuits and Gear**\
 `A roundup of the gear and accessories that five seasoned regulars never regret having toted onto the sand.`\
 https://www.nytimes.com/2026/08/11/t-magazine/beach-summer-essentials-sunscreen-swimsuits.html
-
-**Brad Lightcap, a Top OpenAI Executive, Steps Down**\
-`Brad Lightcap, a longtime leader, said he was starting a new venture. His exit from the artificial intelligence company is the latest in a series there.`\
-https://www.nytimes.com/2026/08/11/technology/brad-lightcap-openai.html
 
 **Race Too Close to Call in Democratic Primary for Michigan Senate Seat**\
 `Dr. Abdul El-Sayed, a progressive, and Representative Haley Stevens, a centrist, both gave speeches with the winner still undeclared. Kansas, Missouri, Virginia and Washington also voted.`\

@@ -1,3 +1,7 @@
+**Election Live Updates: Lindsey Graham’s Sister Advances to Runoff in South Carolina Senate Primary**\
+`Polls have closed in five other states holding races, including Minnesota and Wisconsin, where a democratic socialist is seeking the nomination for governor.`\
+https://www.nytimes.com/live/2026/08/11/us/elections-south-carolina-wisconsin
+
 **5 Things to Know About Francesca Hong, the Progressive Running for Wisconsin Governor**\
 `The state assemblywoman, a democratic socialist, is a chef and former small business owner. Her campaign focused on economic issues.`\
 https://www.nytimes.com/2026/08/11/us/politics/francesca-hong-wisconsin-progressive-candidate.html
