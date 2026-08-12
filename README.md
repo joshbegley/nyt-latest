@@ -1,8 +1,12 @@
-**Ned Lamont Earns Democratic Nod for Third Term as Connecticut Governor**\
+**How a Staten Island Lawsuit Is Challenging Mamdani’s Second-Home Tax**\
+`New York officials were already hurrying to roll out the tax. A lawsuit by homeowners, which persuaded a judge to issue a temporary pause, has made the process thornier.`\
+https://www.nytimes.com/2026/08/11/nyregion/pied-a-terre-tax-mamdani.html
+
+**Ned Lamont Wins the Democratic Primary for Connecticut Governor**\
 `Josh Elliott, a state representative who mounted a primary challenge, pledged to raise taxes on the rich and take the state on a more progressive path.`\
 https://www.nytimes.com/2026/08/11/us/politics/connecticut-primary-governor-lamont-elliott.html
 
-**Darline Graham advances to the Republican Senate runoff in South Carolina**\
+**Darline Graham Advances to the Republican Senate Runoff in South Carolina**\
 `Ms. Graham did not win the special primary outright, despite having President Trump’s endorsement. Her runoff opponent was still too close to call.`\
 https://www.nytimes.com/2026/08/11/us/politics/darline-graham-runoff-south-carolina.html
 
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/08/11/nyregion/mamdani-elizabeth-street-garden-hous
 **Cómo ver el punto máximo de la lluvia de las Perseidas**\
 `La lluvia de meteoros más intensa del verano estará en su punto máximo desde el miércoles hasta la mañana del jueves, en una noche sin luna tras un eclipse solar total.`\
 https://www.nytimes.com/es/2026/08/11/espanol/ciencia-y-tecnologia/como-ver-las-perseidas-lluvia-meteoros.html
-
-**Ex-Marine Robert Gilman Is Freed by Russia After 4 Years in Prison**\
-`The Kremlin released Robert Gilman, whose family and an advocacy group had said he was in dire physical condition, on “a humanitarian basis,” President Trump said.`\
-https://www.nytimes.com/2026/08/11/world/europe/russia-robert-gilman-release.html
 
 **Race Too Close to Call in Democratic Primary for Michigan Senate Seat**\
 `Dr. Abdul El-Sayed, a progressive, and Representative Haley Stevens, a centrist, both gave speeches with the winner still undeclared. Kansas, Missouri, Virginia and Washington also voted.`\
