@@ -1,3 +1,15 @@
+**Telescope Spots Two Black Holes on the Cusp of Merging**\
+`New images from the James Webb telescope show a galaxy with a trio of supermassive black holes. Two of them appear to be locked in a tight tango.`\
+https://www.nytimes.com/2026/08/12/science/space/telescope-spots-two-black-holes-on-the-cusp-of-merging.html
+
+**8 Takeaways from Tuesday’s Primaries**\
+`A Democratic primary for governor in Wisconsin remained neck and neck early Wednesday, leaving a national battle between progressive and moderate wings largely unsettled.`\
+https://www.nytimes.com/2026/08/12/us/politics/south-carolina-wisconsin-minnesota-primaries.html
+
+**What to Know About David Crowley, the Democratic Candidate for Wisconsin Governor**\
+`The Milwaukee County executive, who won a tight primary race against Francesca Hong early Wednesday, could become the first Black governor of Wisconsin.`\
+https://www.nytimes.com/2026/08/11/us/politics/david-crowley-wisconsin-governor.html
+
 **Center-Left Candidate Defeats Socialist in Wisconsin’s Governor Primary**\
 `The upset victory by David Crowley, the Milwaukee County executive, over Francesca Hong, a democratic socialist, sets up a more traditional general election in November.`\
 https://www.nytimes.com/2026/08/12/us/elections/wisconsin-governor-democratic-primary-hong-crowley.html
