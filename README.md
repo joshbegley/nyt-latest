@@ -166,10 +166,6 @@ https://www.nytimes.com/video/embedded/business/100000011088403/mosaic-robotsuso
 `After his loss in the state’s Republican primary for governor, Mike Lindell, a leading election denier, floated familiar, baseless claims of “anomalies” in his double-digit defeat.`\
 https://www.nytimes.com/2026/08/12/us/politics/trump-lindell-minnesota-republican-primary.html
 
-**Cómo observar el eclipse de forma segura (incluso sin gafas)**\
-`Si piensas ver el eclipse, asegúrate de que tus lentes te den la suficiente protección. Como alternativa, puedes verlo de manera segura con algunos artículos del hogar.`\
-https://www.nytimes.com/es/2026/08/12/espanol/eclipse-gafas-como-ver.html
-
 **Por primera vez en décadas, el día se hace noche en Europa bajo un eclipse solar total**\
 `De Islandia a España, los observadores acudieron a los lugares donde, por corto tiempo, la Luna bloqueó completamente al Sol.`\
 https://www.nytimes.com/live/2026/08/12/espanol/eclipse-solar-total
