@@ -1,3 +1,11 @@
+**¿Cooperará el tiempo? Aquí hay un resumen de los pronósticos en la trayectoria del eclipse**\
+`The spectacle will be at the mercy of the meteorological conditions, with clouds threatening to block the view in some places.`\
+https://www.nytimes.com/es/2026/08/12/espanol/pronostico-tiempo.html
+
+**RFK Jr. Stirred Vaccine Fears in Pennsylvania Years Before Measles Outbreak**\
+`At a speech in Lancaster County, Robert F. Kennedy mocked the threat of measles. Now local officials are racing to contain one of the largest outbreaks in the country.`\
+https://www.nytimes.com/2026/08/12/well/measles-pennsylvania-kennedy-vaccines.html
+
 **Hello, Elotes**\
 `Based on the Mexican street food snack, this grilled corn with cheese, chile and lime is a snap to make.`\
 https://www.nytimes.com/2026/08/12/dining/hello-elotes.html
