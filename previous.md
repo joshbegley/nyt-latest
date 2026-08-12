@@ -1,3 +1,7 @@
+**Rebecca Cooke Wins Democratic Primary for Key Wisconsin House Seat**\
+`Ms. Cooke, a three-time congressional candidate, held a huge fund-raising edge in a western Wisconsin race that Democrats consider pivotal to their hopes of flipping the House.`\
+https://www.nytimes.com/2026/08/11/us/politics/wisconsin-democratic-primary-berge-cooke.html
+
 **Son-in-Law of Sean Duffy Wins G.O.P. House Primary in Northern Wisconsin**\
 `Michael Alfonso, 26, had the support of the transportation secretary and an endorsement from President Trump.`\
 https://www.nytimes.com/2026/08/11/us/politics/michael-alfonso-wisconsin-republican-primary.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/08/11/style/cristiano-ronaldo-georgina-rodriguez-ma
 **A Sweaty Texas Night at Barrel O’ Fun with Matthew McConaughey**\
 `The city celebrated one of its favorite Texas movie stars with a cinema bearing his name, ahead of the release of “The Rivals of Amziah King.”`\
 https://www.nytimes.com/2026/08/11/style/matthew-mcconaughey-movie-texas.html
-
-**Total Eclipse**\
-`If you’re in Europe, get ready to gaze at the sky. But not without the right glasses.`\
-https://www.nytimes.com/2026/08/11/world/total-eclipse-trump-secret-escape.html
 
 **Election Live Updates: Democratic Socialist Locked in Unexpectedly Tight Race in Wisconsin**\
 `Francesca Hong, a democratic socialist who had polled strongly in the Democratic primary for Wisconsin governor, was locked in a close contest with the Milwaukee County executive. In another crucial race, Senator Darline Graham will face Representative Ralph Norman in a runoff for the G.O.P. nomination for the seat held by her late brother.`\

@@ -1,3 +1,7 @@
+**Rebecca Cooke Wins Democratic Primary for Key Wisconsin House Seat**\
+`Ms. Cooke, a three-time congressional candidate, held a huge fund-raising edge in a western Wisconsin race that Democrats consider pivotal to their hopes of flipping the House.`\
+https://www.nytimes.com/2026/08/11/us/politics/wisconsin-democratic-primary-berge-cooke.html
+
 **Son-in-Law of Sean Duffy Wins G.O.P. House Primary in Northern Wisconsin**\
 `Michael Alfonso, 26, had the support of the transportation secretary and an endorsement from President Trump.`\
 https://www.nytimes.com/2026/08/11/us/politics/michael-alfonso-wisconsin-republican-primary.html
