@@ -1,3 +1,11 @@
+**Maps: Tracking Tropical Storm Cristobal**\
+`See the likely path and wind arrival times for Cristobal`\
+https://www.nytimes.com/interactive/2026/08/12/weather/cristobal-map-path-tracker.html
+
+**For Blakeman, Trump Could Make and Break His Bid to Lead New York**\
+`Bruce Blakeman, who is vying to become the state’s second Republican governor in the last 50 years, pushes President Trump’s agenda even as he avoids mentioning his name.`\
+https://www.nytimes.com/2026/08/12/nyregion/bruce-blakeman-governor-ny.html
+
 **How Scientists Use Eclipses for Research**\
 `It’s a chance not just to study the sun but also space weather, light pollution and even animal behavior.`\
 https://www.nytimes.com/2026/08/12/world/europe/eclipse-scientists.html
@@ -145,12 +153,4 @@ https://www.nytimes.com/2026/08/12/crosswords/strands-sidekick-893.html
 **Today’s Wordle Hints for August 13, 2026**\
 `Scroll down for hints and conversation about the puzzle for Thursday, Aug. 13, 2026.`\
 https://www.nytimes.com/2026/08/12/crosswords/wordle-review-1881.html
-
-**Thailand Halts New Gun Permits After Mass Shooting at a School**\
-`It remains to be seen how far the government will go to tighten gun control in the country, which has experienced a string of high-profile shootings in recent years.`\
-https://www.nytimes.com/2026/08/12/world/asia/thailand-gun-permits-school-shooting.html
-
-**Barcos pesqueros de Ecuador son blanco de misteriosos atacantes**\
-`Las tripulaciones ecuatorianas que trabajan en aguas del Pacífico han sido blanco de un misterioso grupo equipado con drones. Al parecer, algunos marineros han perdido la vida.`\
-https://www.nytimes.com/es/2026/08/12/espanol/america-latina/ecuador-ataques-barcos.html
 

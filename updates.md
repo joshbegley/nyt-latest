@@ -1,3 +1,7 @@
+**How Kennedy Helped Fuel Vaccine Skepticism**\
+`Robert F. Kennedy Jr. once mocked the threat of measles during a 2021 speech in Lancaster County, Pa. Now, local officials are racing to contain one of the country’s largest outbreaks. Teddy Rosenbluth, reporter for Well covering health news, explains.`\
+https://www.nytimes.com/video/well/100000011073335/how-kennedy-fueled-vaccine-skepticism.html
+
 **Inflation Eased Slightly in July, but Prices Remain Elevated as War Drags On**\
 `Though energy prices fell last month after their spring surge, other factors pushed up costs as the Fed considers raising interest rates.`\
 https://www.nytimes.com/2026/08/12/business/economy/cpi-report-july-inflation-data.html
