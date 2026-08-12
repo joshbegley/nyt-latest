@@ -1,3 +1,11 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011087834/12vid-crowley-reintroduction-sot.html
+
+**Ward Churchill, Professor Who Challenged His Dismissal, Dies at 78**\
+`His inflammatory essay about the Sept. 11 attacks prompted his dismissal by the University of Colorado for unrelated research misconduct. A jury later found that he had been wrongfully terminated for his views.`\
+https://www.nytimes.com/2026/08/12/us/ward-churchill-dead.html
+
 **Live Updates: Europe Counts Down to a Total Solar Eclipse**\
 `From Iceland to Spain, people have flocked to places where, briefly, the moon will completely block the sun. It is the continent’s first total eclipse in decades.`\
 https://www.nytimes.com/live/2026/08/12/world/solar-eclipse-2026-updates
