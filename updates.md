@@ -1,3 +1,7 @@
+**Election Live Updates: Wisconsin Primary for Governor Too Close to Call Between Moderate and Democratic Socialist**\
+`David Crowley, the Milwaukee County executive, and Francesca Hong, a democratic socialist who had polled strongly in the race, were locked in a tight race. In Minnesota, Lt. Gov. Peggy Flanagan, a progressive, won the Democratic Senate primary.`\
+https://www.nytimes.com/live/2026/08/11/us/elections-south-carolina-wisconsin
+
 **Election Live Updates:Wisconsin Primary for Governor Too Close to Call Between Moderate and Democratic Socialist**\
 `David Crowley, the Milwaukee County executive, and Francesca Hong, a democratic socialist who had polled strongly in race, were locked in a tight race. In Minnesota, Lt. Gov. Peggy Flanagan, a progresive, won the Democratic Senate primary.`\
 https://www.nytimes.com/live/2026/08/11/us/elections-south-carolina-wisconsin
