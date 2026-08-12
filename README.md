@@ -1,8 +1,12 @@
+**Watching Trump at the Patriot Games**\
+`Zolan Kanno-Youngs was at the finale of the Patriot Games, where President Trump made an appearance. He breaks down the role of sports in the Trump presidency on “The Call” with Natalie Kitroeff.`\
+https://www.nytimes.com/video/us/politics/100000011088835/watching-trump-at-the-patriot-games.html
+
 **The Good List: 6 Things to Add Joy to Your Day**\
 `Cosmic reset, chatting outside and a very old cat.`\
 https://www.nytimes.com/2026/08/12/briefing/12-the-good-list-meteor-shower-cat-glyph.html
 
-**Should the M.M.R. Vaccine Be Split Into Three Separate Shots?**\
+**Trump Wants the M.M.R. Vaccine Split Into Three Separate Shots. Doctors Say It’s a Bad Idea.**\
 `President Trump is calling for immunizations for measles, mumps and rubella to be given in individual jabs in three different appointments instead of the standard combination shot.`\
 https://www.nytimes.com/2026/08/12/health/mmr-vaccine-combination-separate.html
 
