@@ -1,3 +1,15 @@
+**Areas to Watch in Minnesota’s Senate and Governor Primaries**\
+`Divides in both parties will be on display Tuesday night, particularly in a group of key counties.`\
+https://www.nytimes.com/2026/08/11/us/politics/minnesota-primary-elections-counties.html
+
+**Amy Klobuchar Wins Minnesota’s Democratic Primary for Governor**\
+`The fourth-term U.S. senator jolted Minnesota politics early this year by mounting a bid to succeed Gov. Tim Walz.`\
+https://www.nytimes.com/2026/08/11/us/klobuchar-minnesota-governor.html
+
+**Esto sabemos de la boda de Cristiano Ronaldo y Georgina**\
+`Después de casi una década juntos y cinco hijos en su familia reconstituida, la pareja se habría casado en una ceremonia íntima en  Cascais, Portugal.`\
+https://www.nytimes.com/es/2026/08/11/espanol/estilos-de-vida/boda-cristiano-ronaldo-georgina.html
+
 **Trump-Backed Representative Wins Nomination for Wisconsin Governor**\
 `Tom Tiffany, a conservative from western Wisconsin, said he would try to lower taxes, bring transparency to health care and protect farmland.`\
 https://www.nytimes.com/2026/08/11/us/wisconsin-governor-republican-primary-tom-tiffany.html
