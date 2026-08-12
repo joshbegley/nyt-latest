@@ -1,3 +1,7 @@
+**Abdul El-Sayed Deleted Old Posts and Videos Defending ‘Defund’ and Floating an End to Fireworks**\
+`The removed posts from Dr. Abdul El-Sayed, the Democratic nominee for Senate in Michigan, immediately set off Republican attacks.`\
+https://www.nytimes.com/2026/08/11/us/politics/abdul-el-sayed-fireworks-police-videos.html
+
 **How a Staten Island Lawsuit Is Challenging Mamdani’s Second-Home Tax**\
 `New York officials were already hurrying to roll out the tax. A lawsuit by homeowners, which persuaded a judge to issue a temporary pause, has made the process thornier.`\
 https://www.nytimes.com/2026/08/11/nyregion/pied-a-terre-tax-mamdani.html
