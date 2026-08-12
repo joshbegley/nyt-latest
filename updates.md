@@ -1,3 +1,23 @@
+**Rat Emoji Lands Man Accused of Illegal Sports Betting Behind Bars**\
+`De’Niro Laster, who was accused of conspiring with an N.B.A. player to bet on basketball, was trying to intimidate witnesses by posting on social media, prosecutors said.`\
+https://www.nytimes.com/2026/08/11/nyregion/rat-emoji-nba-gambling-jail.html
+
+**In Wisconsin Governor Primary, Polls Have Shown a Progressive Democrat With a Big Lead**\
+`Francesca Hong, a democratic socialist, has consistently led in a Democratic primary that struggled to settle on a field of candidates.`\
+https://www.nytimes.com/2026/08/11/us/politics/wisconsin-democratic-primary-governor-polling.html
+
+**It Started As a Hot Tub Harbor Cruise. It Became a Rescue Mission.**\
+`The captain of a party boat gave the fullest account of the rescue of 12 passengers near Liberty Island. A mother and daughter died and the incident is now part of a federal investigation.`\
+https://www.nytimes.com/2026/08/11/nyregion/nyc-capsized-boat-passengers-help.html
+
+**Darline Graham Advances to the Republican Senate Runoff in South Carolina**\
+`Ms. Graham will face Representative Ralph Norman, a hard-line conservative who had previously run for governor, in the runoff.`\
+https://www.nytimes.com/2026/08/11/us/politics/darline-graham-runoff-south-carolina.html
+
+**Election Live Updates: Lindsey Graham’s Sister Advances to Runoff in South Carolina Senate Primary**\
+`Senator Darline Graham will face Representative Ralph Norman in a runoff to run for the seat held by her late brother. Polls have closed in five other states, including Minnesota and Wisconsin, where a democratic socialist is seeking the nomination for governor.`\
+https://www.nytimes.com/live/2026/08/11/us/elections-south-carolina-wisconsin
+
 **Election Live Updates: Lindsey Graham’s Sister Advances to Runoff in South Carolina Senate Primary**\
 `Polls have closed in five other states holding races, including Minnesota and Wisconsin, where a democratic socialist is seeking the nomination for governor.`\
 https://www.nytimes.com/live/2026/08/11/us/elections-south-carolina-wisconsin
