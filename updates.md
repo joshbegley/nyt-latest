@@ -1,3 +1,15 @@
+**Eurovision Bans Countries in War Zones From Hosting**\
+`The event’s organizers would not say whether that included Israel, but its participation has been a matter of contention during the war in Gaza.`\
+https://www.nytimes.com/2026/08/12/arts/music/eurovision-war-zones-israel.html
+
+**The Lessons of Progress**\
+`A retrospective on what six months of indicators reveal.`\
+https://www.nytimes.com/2026/08/12/headway/the-lessons-of-progress.html
+
+**How Kennedy Helped Fuel Vaccine Skepticism**\
+`Robert F. Kennedy Jr. once mocked the threat of measles during a 2021 speech in Lancaster County, Pa. Now, local officials are racing to contain one of the country’s largest outbreaks. Teddy Rosenbluth, a reporter for Well covering health news, explains.`\
+https://www.nytimes.com/video/well/100000011073335/how-kennedy-fueled-vaccine-skepticism.html
+
 **Girl and Boy Scouts, Together and Apart**\
 `Readers recount their experiences as girl scouts, and what sets them apart from boy scouts. Also: The Trump plane ploy; an act of kindness.`\
 https://www.nytimes.com/2026/08/12/opinion/girl-boy-scouts.html

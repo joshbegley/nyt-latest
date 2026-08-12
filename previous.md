@@ -1,3 +1,11 @@
+**Eurovision Bans Countries in War Zones From Hosting**\
+`The event’s organizers would not say whether that included Israel, but its participation has been a matter of contention during the war in Gaza.`\
+https://www.nytimes.com/2026/08/12/arts/music/eurovision-war-zones-israel.html
+
+**The Lessons of Progress**\
+`A retrospective on what six months of indicators reveal.`\
+https://www.nytimes.com/2026/08/12/headway/the-lessons-of-progress.html
+
 **Girl and Boy Scouts, Together and Apart**\
 `Readers recount their experiences as girl scouts, and what sets them apart from boy scouts. Also: The Trump plane ploy; an act of kindness.`\
 https://www.nytimes.com/2026/08/12/opinion/girl-boy-scouts.html
@@ -103,7 +111,7 @@ https://www.nytimes.com/2026/08/12/business/iran-war-hormuz-oil.html
 https://www.nytimes.com/2026/08/12/business/consumer-debt-inflation.html
 
 **How Kennedy Helped Fuel Vaccine Skepticism**\
-`Robert F. Kennedy Jr. once mocked the threat of measles during a 2021 speech in Lancaster County, Pa. Now, local officials are racing to contain one of the country’s largest outbreaks. Teddy Rosenbluth, reporter for Well covering health news, explains.`\
+`Robert F. Kennedy Jr. once mocked the threat of measles during a 2021 speech in Lancaster County, Pa. Now, local officials are racing to contain one of the country’s largest outbreaks. Teddy Rosenbluth, a reporter for Well covering health news, explains.`\
 https://www.nytimes.com/video/well/100000011073335/how-kennedy-fueled-vaccine-skepticism.html
 
 **RFK Jr. Stirred Vaccine Fears in Pennsylvania Years Before Measles Outbreak**\
@@ -145,14 +153,6 @@ https://www.nytimes.com/live/2026/08/12/espanol/eclipse-solar-total
 **Our Son Is Striking Out on Dating Apps. Should We Hire a Matchmaker?**\
 `A reader wants to help his 37-year-old son find love in Los Angeles but worries that offering to pay for professional help could bruise his ego.`\
 https://www.nytimes.com/2026/08/12/style/son-dating-apps-matchmaker-relationships.html
-
-**On Wordle, Data Centers and Gen Z ‘Cockroaches’: The Winners of Week 8 of Our Summer Reading Contest**\
-`This week we’re crowning three video winners. Enjoy!`\
-https://www.nytimes.com/2026/08/12/learning/on-wordle-data-centers-and-gen-z-cockroaches-the-winners-of-week-8-of-our-summer-reading-contest.html
-
-**Will Paramount’s Brinkmanship Work?**\
-`The media company’s leader, David Ellison, is threatening to pull the company out of California in the face of a lawsuit by states seeking to block its big deal.`\
-https://www.nytimes.com/2026/08/12/business/dealbook/paramount-california-states-lawsuit.html
 
 **Live Updates: Europe’s First Total Solar Eclipse in Decades Is Turning Day to Dark**\
 `From Iceland to Spain, people have flocked to places where, briefly, the moon will completely block the sun.`\
