@@ -1,9 +1,13 @@
+**Gulf Oil Giants Are Spending Billions to Build Ways Around Strait of Hormuz**\
+`Even if a cease-fire materializes, Gulf exporters recognize that relying strictly on the Strait of Hormuz is a risk they can no longer take.`\
+https://www.nytimes.com/2026/08/12/business/iran-war-hormuz-oil.html
+
 **Consumer Debt Data Shows ‘Overall’ Health Amid Persisting Divides**\
 `Homeowners with low fixed-rate mortgages lead a resilient picture of the economy. But many consumers are frustrated with declining real wages and other loans.`\
 https://www.nytimes.com/2026/08/12/business/consumer-debt-inflation.html
 
-**How Kennedy Fueled Vaccine Skepticism**\
-`Robert F. Kennedy Jr. once mocked the threat of measles at a speech in Lancaster County, Pa. Now, local officials are racing to contain one of the country’s largest outbreaks. Teddy Rosenbluth, a reporter for Well, explains.`\
+**How Kennedy Helped Fuel Vaccine Skepticism**\
+`Robert F. Kennedy Jr. mocked the threat of measles during a 2021 speech in Lancaster County, Pa. Now, local officials are racing to contain one of the country’s largest outbreaks. Teddy Rosenbluth, reporter for Well covering health news, explains.`\
 https://www.nytimes.com/video/well/100000011073335/how-kennedy-fueled-vaccine-skepticism.html
 
 **RFK Jr. Stirred Vaccine Fears in Pennsylvania Years Before Measles Outbreak**\
@@ -75,7 +79,7 @@ https://www.nytimes.com/2026/08/12/business/economy/inflation-federal-reserve-in
 https://www.nytimes.com/2026/08/12/business/economy/energy-oil-prices-inflation.html
 
 **South Africa’s Zeitz MOCAA Names Director to Replace Koyo Kouoh**\
-`Elvira Dyangani Ose, who most recently directed Barcelona’s contemporary art museum, will succeed Kouoh, who died suddenly last year from cancer.`\
+`Elvira Dyangani Ose, who directed Barcelona’s contemporary art museum, will succeed Koyo Kouoh at Zeitz MOCAA after she died suddenly last year from cancer.`\
 https://www.nytimes.com/2026/08/12/arts/design/zeitz-mocaa-director-elvira-dyangani-ose.html
 
 **Hong’s Defeat in Wisconsin Shows the Limits of the Progressive Movement**\
@@ -149,8 +153,4 @@ https://www.nytimes.com/2026/08/12/us/san-francisco-police-typo-arrest-matthew-l
 **What Happens When Two Anxious People Fall in Love**\
 `Jenny Singer worried her anxiety would interfere with her ability to have a deep, loving relationship, but when she met someone who understood what she was going through, everything changed.`\
 https://www.nytimes.com/video/podcasts/100000011085447/what-happens-when-two-anxious-people-fall-in-love.html
-
-**Corrections: Aug. 12, 2026**\
-`Corrections that appeared in print on Wednesday, Aug. 12, 2026.`\
-https://www.nytimes.com/2026/08/12/pageoneplus/corrections-aug-12-2026.html
 

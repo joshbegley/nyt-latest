@@ -154,7 +154,3 @@ https://www.nytimes.com/video/podcasts/100000011085447/what-happens-when-two-anx
 `Corrections that appeared in print on Wednesday, Aug. 12, 2026.`\
 https://www.nytimes.com/2026/08/12/pageoneplus/corrections-aug-12-2026.html
 
-**A Pasadena Craftsman Bursting With Color**\
-`Grey DeLisle lives with bold wallpaper, retro appliances and a wooden cowboy named Slim.`\
-https://www.nytimes.com/2026/08/12/realestate/a-pasadena-craftsman-bursting-with-color.html
-
