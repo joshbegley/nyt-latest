@@ -1,3 +1,7 @@
+**Rep. John Larson, a Longtime Lawmaker, Loses a Primary in Connecticut**\
+`In an upset, Luke Bronin, the former mayor of Hartford, won the Democratic nomination, capitalizing on calls for generational change.`\
+https://www.nytimes.com/2026/08/11/us/politics/bronin-larson-connecticut-primary-results.html
+
 **NYT Crossword Answers for Aug. 12, 2026**\
 `The gears are turning in Adrianne Baik’s crossword.`\
 https://www.nytimes.com/2026/08/11/crosswords/daily-puzzle-2026-08-12.html
@@ -186,12 +190,8 @@ https://www.nytimes.com/2026/08/11/world/total-eclipse-trump-secret-escape.html
 `Roberto Mosquera, a Cuban immigrant who has lived in the United States since 1980 and completed a prison sentence in 1996, was arrested by ICE last year and sent to a prison in Eswatini, a country in Africa he’d never heard of. After a hunger strike, Mosquera obtained a phone and talked with Nicholas Casey of The New York Times Magazine to share what is happening there.`\
 https://www.nytimes.com/video/world/africa/100000011032450/deported-from-the-us-trapped-in-a-prison-in-africa.html
 
-**Europeans Scramble to Buy Solar Eclipse Glasses**\
-`Dozens lined up outside astronomy shops, pharmacies and convenience stores in Paris, London, Brussels and Barcelona to buy the glasses before Wednesday’s solar eclipse.`\
-https://www.nytimes.com/video/world/europe/100000011085655/europeans-scramble-to-buy-solar-eclipse-glasses.html
-
-**Election Live Updates: Lindsey Graham’s Sister Advances to Runoff in South Carolina Senate Primary**\
-`Senator Darline Graham will face Representative Ralph Norman in a runoff for the G.O.P. nomination for the seat held by her late brother. Polls have closed in five other states, including Minnesota and Wisconsin, where a democratic socialist is seeking the nomination for governor.`\
+**Election Live Updates: Democratic Socialist Underperforming Polls in Wisconsin**\
+`Francesca Hong, a democratic socialist who had polled strongly in the Democratic primary for Wisconsin governor, was locked in a close contest with the Milwaukee County executive. In another crucial race, Senator Darline Graham will face Representative Ralph Norman in a runoff for the G.O.P. nomination for the seat held by her late brother.`\
 https://www.nytimes.com/live/2026/08/11/us/elections-south-carolina-wisconsin
 
 **Race Too Close to Call in Democratic Primary for Michigan Senate Seat**\

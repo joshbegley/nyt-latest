@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Aug. 12, 2026**\
+`The gears are turning in Adrianne Baik’s crossword.`\
+https://www.nytimes.com/2026/08/11/crosswords/daily-puzzle-2026-08-12.html
+
 **A Rescue Effort After Colombia’s Earthquake**\
 `Our reporter Genevieve Glatsky, who is based in Colombia, witnesses the rescue of a buried earthquake survivor in the city of Cali.`\
 https://www.nytimes.com/video/world/americas/100000011086264/a-rescue-effort-after-colombias-earthquake.html
