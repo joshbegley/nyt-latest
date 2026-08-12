@@ -1,3 +1,7 @@
+**Energy Prices Expected to Fall in Latest Inflation Data**\
+`The war with Iran injected volatility into the oil and gas market, with prices rising and falling in concert with the conflict.`\
+https://www.nytimes.com/2026/08/12/business/economy/energy-oil-prices-inflation.html
+
 **South Africa’s Zietz MOCAA Names Director to Replace Koyo Kouoh**\
 `Elvira Dyangani Ose, who most recently directed Barcelona’s contemporary art museum, will succeed Kouoh, who died suddenly last year from cancer.`\
 https://www.nytimes.com/2026/08/12/arts/design/south-africas-zietz-mocaa-names-director-to-replace-koyo-kouoh.html
