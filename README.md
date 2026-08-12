@@ -1,3 +1,11 @@
+**Live Updates: In Europe, the Total Solar Eclipse Is Only Hours Away**\
+`From Iceland to Spain, people have flocked to places where, briefly, the moon will completely block the sun.`\
+https://www.nytimes.com/live/2026/08/12/world/solar-eclipse-2026-updates
+
+**Benign Inflation Data Would Reduce Urgency Around September Rate Rise**\
+`The latest Consumer Price Index report will either help to reinforce patience or compel officials to more readily consider lifting borrowing costs.`\
+https://www.nytimes.com/2026/08/12/business/economy/inflation-federal-reserve-interest-rates.html
+
 **Energy Prices Expected to Fall in Latest Inflation Data**\
 `The war with Iran injected volatility into the oil and gas market, with prices rising and falling in concert with the conflict.`\
 https://www.nytimes.com/2026/08/12/business/economy/energy-oil-prices-inflation.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/08/12/arts/television/lanterns-hbo-dc-comics.html
 **The Movie Monica Barbaro Watched Until the Tape Broke**\
 `Monica Barbaro, who stars in “One Night Only,” gets nostalgic, sharing the childhood shows she loved, the movie she watched on repeat, and the book that completely caught her off guard.`\
 https://www.nytimes.com/video/arts/100000011036450/monica-barbaro-movie.html
-
-**I Was Dick Cheney’s Cardiologist. I Have Questions About Trump’s Health.**\
-`The president has not been looking well. Americans should get answers to these seven questions.`\
-https://www.nytimes.com/2026/08/12/opinion/trump-health-questions.html
-
-**In These Novels, Rich People Behave Badly. Very Badly.**\
-`The best-selling author Hannah Whitten recommends thrillers, horror, fantasy novels and more about the misdeeds of the ultrawealthy (and their comeuppance).`\
-https://www.nytimes.com/2026/08/12/books/rich-people-fiction-books.html
 
