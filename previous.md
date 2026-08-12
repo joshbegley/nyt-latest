@@ -1,3 +1,15 @@
+**Trump-Backed Representative Wins Nomination for Wisconsin Governor**\
+`Tom Tiffany, a conservative from western Wisconsin, said he would try to lower taxes, bring transparency to health care and protect farmland.`\
+https://www.nytimes.com/2026/08/11/us/wisconsin-governor-republican-primary-tom-tiffany.html
+
+**Areas to Watch in Wisconsin’s Democratic Primary for Governor**\
+`A race between Francesca Hong and David Crowley could highlight the fault lines between Madison and Milwaukee.`\
+https://www.nytimes.com/2026/08/11/us/politics/wisconsin-democratic-primary-governor-counties.html
+
+**Minnesota Primary Election Polling Offers Few Answers in Key Races**\
+`The small group of independent surveys in the Democratic primary for Senate and the Republican primary for governor showed a large share of undecided voters.`\
+https://www.nytimes.com/2026/08/11/us/politics/minnesota-primary-elections-polling.html
+
 **Rat Emoji Lands Man Accused of Illegal Sports Betting Behind Bars**\
 `De’Niro Laster, who was accused of conspiring with an N.B.A. player to bet on basketball, was trying to intimidate witnesses by posting on social media, prosecutors said.`\
 https://www.nytimes.com/2026/08/11/nyregion/rat-emoji-nba-gambling-jail.html
@@ -6,7 +18,7 @@ https://www.nytimes.com/2026/08/11/nyregion/rat-emoji-nba-gambling-jail.html
 `Francesca Hong, a democratic socialist, has consistently led in a Democratic primary that struggled to settle on a field of candidates.`\
 https://www.nytimes.com/2026/08/11/us/politics/wisconsin-democratic-primary-governor-polling.html
 
-**It Started As a Hot Tub Harbor Cruise. It Became a Rescue Mission.**\
+**It Started as a Hot Tub Harbor Cruise. It Became a Rescue Mission.**\
 `The captain of a party boat gave the fullest account of the rescue of 12 passengers near Liberty Island. A mother and daughter died and the incident is now part of a federal investigation.`\
 https://www.nytimes.com/2026/08/11/nyregion/nyc-capsized-boat-passengers-help.html
 
@@ -159,7 +171,7 @@ https://www.nytimes.com/video/world/africa/100000011032450/deported-from-the-us-
 https://www.nytimes.com/video/world/europe/100000011085655/europeans-scramble-to-buy-solar-eclipse-glasses.html
 
 **Election Live Updates: Lindsey Graham’s Sister Advances to Runoff in South Carolina Senate Primary**\
-`Senator Darline Graham will face Representative Ralph Norman in a runoff to run for the seat held by her late brother. Polls have closed in five other states, including Minnesota and Wisconsin, where a democratic socialist is seeking the nomination for governor.`\
+`Senator Darline Graham will face Representative Ralph Norman in a runoff for the G.O.P. nominiation for the seat held by her late brother. Polls have closed in five other states, including Minnesota and Wisconsin, where a democratic socialist is seeking the nomination for governor.`\
 https://www.nytimes.com/live/2026/08/11/us/elections-south-carolina-wisconsin
 
 **Richard Lingeman, Cultural Historian and Biographer, Dies at 95**\
@@ -177,18 +189,6 @@ https://www.nytimes.com/video/world/americas/100000011085349/searching-for-survi
 **These Are Rachel Antonoff’s Favorite Restaurants**\
 `The food-loving fashion designer tackles the Where to Eat restaurant questionnaire.`\
 https://www.nytimes.com/2026/08/11/dining/fashion-designer-rachel-antonoff.html
-
-**Cómo se frustró una investigación sobre los nexos de Trump con Rusia**\
-`Documentos publicados por la Casa Blanca arrojan luz sobre una indagatoria poco conocida en torno a la campaña presidencial de 2016 de Trump.`\
-https://www.nytimes.com/es/2026/08/11/espanol/estados-unidos/trump-rusia-eleccion-presidencial.html
-
-**El-Sayed’s Winning Path in Michigan**\
-`A swing-state Democratic Senate nominee needs to keep saying this: Jews have a right to a Jewish homeland.`\
-https://www.nytimes.com/2026/08/11/opinion/abdul-el-sayed-michigan-jews-israel-mamdani-aipac.html
-
-**Spotify Will Label A.I. Artists and Avoid Promoting Them**\
-`The new label, which will begin to be applied next month, is an effort by the streaming service to be more transparent about A.I.-generated music on its app.`\
-https://www.nytimes.com/2026/08/11/arts/music/spotify-artificial-intelligence-music.html
 
 **Race Too Close to Call in Democratic Primary for Michigan Senate Seat**\
 `Dr. Abdul El-Sayed, a progressive, and Representative Haley Stevens, a centrist, both gave speeches with the winner still undeclared. Kansas, Missouri, Virginia and Washington also voted.`\

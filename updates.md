@@ -1,3 +1,23 @@
+**Trump-Backed Representative Wins Nomination for Wisconsin Governor**\
+`Tom Tiffany, a conservative from western Wisconsin, said he would try to lower taxes, bring transparency to health care and protect farmland.`\
+https://www.nytimes.com/2026/08/11/us/wisconsin-governor-republican-primary-tom-tiffany.html
+
+**Areas to Watch in Wisconsin’s Democratic Primary for Governor**\
+`A race between Francesca Hong and David Crowley could highlight the fault lines between Madison and Milwaukee.`\
+https://www.nytimes.com/2026/08/11/us/politics/wisconsin-democratic-primary-governor-counties.html
+
+**Minnesota Primary Election Polling Offers Few Answers in Key Races**\
+`The small group of independent surveys in the Democratic primary for Senate and the Republican primary for governor showed a large share of undecided voters.`\
+https://www.nytimes.com/2026/08/11/us/politics/minnesota-primary-elections-polling.html
+
+**It Started as a Hot Tub Harbor Cruise. It Became a Rescue Mission.**\
+`The captain of a party boat gave the fullest account of the rescue of 12 passengers near Liberty Island. A mother and daughter died and the incident is now part of a federal investigation.`\
+https://www.nytimes.com/2026/08/11/nyregion/nyc-capsized-boat-passengers-help.html
+
+**Election Live Updates: Lindsey Graham’s Sister Advances to Runoff in South Carolina Senate Primary**\
+`Senator Darline Graham will face Representative Ralph Norman in a runoff for the G.O.P. nominiation for the seat held by her late brother. Polls have closed in five other states, including Minnesota and Wisconsin, where a democratic socialist is seeking the nomination for governor.`\
+https://www.nytimes.com/live/2026/08/11/us/elections-south-carolina-wisconsin
+
 **Rat Emoji Lands Man Accused of Illegal Sports Betting Behind Bars**\
 `De’Niro Laster, who was accused of conspiring with an N.B.A. player to bet on basketball, was trying to intimidate witnesses by posting on social media, prosecutors said.`\
 https://www.nytimes.com/2026/08/11/nyregion/rat-emoji-nba-gambling-jail.html

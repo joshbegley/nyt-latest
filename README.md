@@ -1,3 +1,7 @@
+**Amy Klobuchar Wins Minnesota’s Democratic Primary for Governor**\
+`The fourth-term U.S. senator jolted Minnesota politics early this year by mounting a bid to succeed Gov. Tim Walz.`\
+https://www.nytimes.com/2026/08/11/us/klobuchar-minnesota-governor.html
+
 **Trump-Backed Representative Wins Nomination for Wisconsin Governor**\
 `Tom Tiffany, a conservative from western Wisconsin, said he would try to lower taxes, bring transparency to health care and protect farmland.`\
 https://www.nytimes.com/2026/08/11/us/wisconsin-governor-republican-primary-tom-tiffany.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/video/business/economy/100000011085557/humanoid-robots-b
 **Searching for Survivors After Colombia’s Earthquake**\
 `Our Colombia-based reporter Genevieve Glatsky witnesses the search for survivors after a five-story apartment building in the city of Cali collapsed in an earthquake.`\
 https://www.nytimes.com/video/world/americas/100000011085349/searching-for-survivors-after-colombias-earthquake.html
-
-**These Are Rachel Antonoff’s Favorite Restaurants**\
-`The food-loving fashion designer tackles the Where to Eat restaurant questionnaire.`\
-https://www.nytimes.com/2026/08/11/dining/fashion-designer-rachel-antonoff.html
 
 **Race Too Close to Call in Democratic Primary for Michigan Senate Seat**\
 `Dr. Abdul El-Sayed, a progressive, and Representative Haley Stevens, a centrist, both gave speeches with the winner still undeclared. Kansas, Missouri, Virginia and Washington also voted.`\
