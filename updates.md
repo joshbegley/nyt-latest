@@ -1,3 +1,15 @@
+**Girl and Boy Scouts, Together and Apart**\
+`Readers recount their experience as girl scouts, and what sets them apart from boy scouts. Also: The Trump plane ploy; an act of kindness.`\
+https://www.nytimes.com/2026/08/12/opinion/girl-boy-scouts.html
+
+**Prediction Firms Are Flagging Insider Traders. Many Will Not Face Charges.**\
+`The agency that polices the industry does not have the staffing, the legal tools or the will to broadly crack down on wagers that are easily manipulated, experts say.`\
+https://www.nytimes.com/2026/08/12/us/politics/prediction-markets-insider-trading.html
+
+**Live Updates: Europe’s First Total Solar Eclipse in Decades Is Turning Day to Dark**\
+`From Iceland to Spain, people have flocked to places where, briefly, the moon will completely block the sun.`\
+https://www.nytimes.com/live/2026/08/12/world/solar-eclipse-2026-updates
+
 **Tiny Love Stories: ‘We Ended Up in Her Bed’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://www.nytimes.com/2026/08/12/style/tiny-modern-love-stories-we-ended-up-in-her-bed.html
