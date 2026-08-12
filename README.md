@@ -10,7 +10,7 @@ https://www.nytimes.com/live/2026/08/12/world/solar-eclipse-2026-updates
 `The latest Consumer Price Index report will either help to reinforce patience or compel officials to more readily consider lifting borrowing costs.`\
 https://www.nytimes.com/2026/08/12/business/economy/inflation-federal-reserve-interest-rates.html
 
-**Energy Prices Expected to Fall in Latest Inflation Data**\
+**July CPI Report Is Expected to Show Falling Energy Prices**\
 `The war with Iran injected volatility into the oil and gas market, with prices rising and falling in concert with the conflict.`\
 https://www.nytimes.com/2026/08/12/business/economy/energy-oil-prices-inflation.html
 
