@@ -1,3 +1,7 @@
+**Our Son Is Striking Out on Dating Apps. Should We Hire a Matchmaker?**\
+`A reader wants to help his 37-year-old son find love in Los Angeles but worries that offering to pay for professional help could bruise his ego.`\
+https://www.nytimes.com/2026/08/12/style/son-dating-apps-matchmaker-relationships.html
+
 **Live Updates: Inflation Was Moderate in July, but Energy Prices Remain Elevated**\
 `The Consumer Price Index for July showed prices rose 3.4 percent from a year ago as the war in Iran dragged on.`\
 https://www.nytimes.com/live/2026/08/12/business/inflation-cpi-report

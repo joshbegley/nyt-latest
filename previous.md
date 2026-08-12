@@ -1,3 +1,7 @@
+**Our Son Is Striking Out on Dating Apps. Should We Hire a Matchmaker?**\
+`A reader wants to help his 37-year-old son find love in Los Angeles but worries that offering to pay for professional help could bruise his ego.`\
+https://www.nytimes.com/2026/08/12/style/son-dating-apps-matchmaker-relationships.html
+
 **On Wordle, Data Centers and Gen Z ‘Cockroaches’: The Winners of Week 8 of Our Summer Reading Contest**\
 `This week we’re crowning three video winners. Enjoy!`\
 https://www.nytimes.com/2026/08/12/learning/on-wordle-data-centers-and-gen-z-cockroaches-the-winners-of-week-8-of-our-summer-reading-contest.html
@@ -173,8 +177,4 @@ https://www.nytimes.com/2026/08/12/t-magazine/fall-layers-fashion-90s.html
 **Word of the Day: munificent**\
 `This word has appeared in four articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/08/12/learning/word-of-the-day-munificent.html
-
-**She’ll Make You Rethink How to Wear a Shirt**\
-`Charlotte Collet helps many of the biggest brands in fashion. But there’s lessons for us all in her styling.`\
-https://www.nytimes.com/2026/08/12/style/shell-make-you-rethink-how-to-wear-a-shirt.html
 
