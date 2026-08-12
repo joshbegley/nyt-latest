@@ -1,6 +1,22 @@
+**Who Is Joshua Kushner, the New Lakers Co-Owner?**\
+`The brother of Jared Kushner is an influential venture capitalist with big bets on A.I. and health insurance.`\
+https://www.nytimes.com/2026/08/12/business/joshua-kushner-lakers.html
+
+**Arabian Sea Bird and Turtle Habitat Threatened by Oil From Grounded Tanker**\
+`The spill of Russian crude bound for India compounds the environmental damage from spills in and around the Strait of Hormuz, where tankers and oil facilities have come under attack.`\
+https://www.nytimes.com/2026/08/12/world/middleeast/oil-spill-oman.html
+
+**Hegseth Says Anti-Cartel Coalition Will Do ‘Bad Things to Bad People’**\
+`Defense Secretary Pete Hegseth urged Latin American military leaders gathered in Panama to ramp up their efforts alongside U.S. forces.`\
+https://www.nytimes.com/2026/08/12/us/hegseth-trump-anti-cartel-coalition.html
+
+**Lemon Ricotta Cake**\
+`This easy lemony cake is topped with apricot preserves, which gives an especially sunny presentation. It’s great with sliced fresh peaches, nectarines or berries alongside.`\
+https://www.nytimes.com/video/dining/100000011089468/lemon-ricotta-cake.html
+
 **Zhu Rongji, Former Premier Who Transformed China Into a Market Economy, Dies at 97**\
 `Zhu Rongji, the former Chinese premier, died in Beijing on Wednesday at the age of 97. He helped guide China toward a market-based economy in the 1990s and later into the World Trade Organization that skyrocketed the country’s exports.`\
-https://www.nytimes.com/video/world/asia/100000011088702/zhu-rongji-former-premier-who-transformed-china-into-a-market-economy-dies-at-97.html
+https://www.nytimes.com/video/world/asia/100000011088702/zhu-rongji-china-premier-dead.html
 
 **Muere pionera en la investigación del cáncer de garganta**\
 `Su estatura frustró su interés en el ballet, pero la ciencia ganó a una destacada investigadora que descubrió un vínculo clave entre el VPH y el cáncer de cuello y garganta.`\
@@ -161,18 +177,6 @@ https://www.nytimes.com/interactive/2026/08/12/movies/the-evil-dead-sam-raimi.ht
 **More Than 40 Dead After a Ferry Capsizes on Zimbabwe’s Lake Kariba**\
 `The vessel was crowded far beyond capacity and was hit by strong waves, the police said. While dozens have been rescued, the search continues for an unknown number of missing people.`\
 https://www.nytimes.com/2026/08/12/world/africa/-zimbabwe-lake-kariba-ferry-capsize.html
-
-**A Look Inside Trump’s Patriot Games**\
-`President Trump made an appearance at his first-ever Patriot Games in Geneva, Ohio, last night. Zolan Kanno-Youngs joined Natalie Kitroeff on “The Call” to break down what he was seeing and how sports have become a defining part of Mr. Trump’s presidency.`\
-https://www.nytimes.com/video/us/politics/100000011088255/a-look-inside-trumps-patriot-games.html
-
-**Democrats Pull Back From the Edge of Disaster. Again.**\
-`It seems that centrists and the left can work the pragmatic side of the street.`\
-https://www.nytimes.com/2026/08/12/opinion/democrats-wisconsin-midterms-dsa.html
-
-**Eurovision Bans Countries in War Zones From Hosting**\
-`The event’s organizers would not say whether that included Israel, but its participation has been a matter of contention during the war in Gaza.`\
-https://www.nytimes.com/2026/08/12/arts/music/eurovision-war-zones-israel.html
 
 **Por primera vez en décadas, el día se hace noche en Europa bajo un eclipse solar total**\
 `De Islandia a España, los observadores acudieron a los lugares donde, por corto tiempo, la Luna bloqueó completamente al Sol.`\

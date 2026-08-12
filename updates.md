@@ -1,3 +1,23 @@
+**Who Is Joshua Kushner, the New Lakers Co-Owner?**\
+`The brother of Jared Kushner is an influential venture capitalist with big bets on A.I. and health insurance.`\
+https://www.nytimes.com/2026/08/12/business/joshua-kushner-lakers.html
+
+**Arabian Sea Bird and Turtle Habitat Threatened by Oil From Grounded Tanker**\
+`The spill of Russian crude bound for India compounds the environmental damage from spills in and around the Strait of Hormuz, where tankers and oil facilities have come under attack.`\
+https://www.nytimes.com/2026/08/12/world/middleeast/oil-spill-oman.html
+
+**Hegseth Says Anti-Cartel Coalition Will Do ‘Bad Things to Bad People’**\
+`Defense Secretary Pete Hegseth urged Latin American military leaders gathered in Panama to ramp up their efforts alongside U.S. forces.`\
+https://www.nytimes.com/2026/08/12/us/hegseth-trump-anti-cartel-coalition.html
+
+**Lemon Ricotta Cake**\
+`This easy lemony cake is topped with apricot preserves, which gives an especially sunny presentation. It’s great with sliced fresh peaches, nectarines or berries alongside.`\
+https://www.nytimes.com/video/dining/100000011089468/lemon-ricotta-cake.html
+
+**Zhu Rongji, Former Premier Who Transformed China Into a Market Economy, Dies at 97**\
+`Zhu Rongji, the former Chinese premier, died in Beijing on Wednesday at the age of 97. He helped guide China toward a market-based economy in the 1990s and later into the World Trade Organization that skyrocketed the country’s exports.`\
+https://www.nytimes.com/video/world/asia/100000011088702/zhu-rongji-china-premier-dead.html
+
 **Palestinians Trapped by Settlers for Days as Israeli Army Shows Up, and Then Leaves**\
 `The episode casts a spotlight on the army’s struggle to curtail settler violence and protect Palestinians living in the occupied West Bank.`\
 https://www.nytimes.com/2026/08/12/world/middleeast/west-bank-palestinians-israeli-settlers.html
