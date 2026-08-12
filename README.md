@@ -1,6 +1,10 @@
+**Three Questions for Democrats After an Eye-Opening Loss for Progressives**\
+`Democratic voters in key battlegrounds are showing themselves to be fiercely split. The party has a lot to hash out between now and 2028.`\
+https://www.nytimes.com/2026/08/12/us/politics/david-crowley-francesca-hong-democrats-wisconsin.html
+
 **How Crowley Eked Out a Win in the Wisconsin Governor Primary**\
 `A shifting race and a key endorsement helped the moderate Democrat overcome his progressive challenger, Francesca Hong, voters said.`\
-https://www.nytimes.com/2026/08/12/us/wisconsin-polls-primary-election.html
+https://www.nytimes.com/2026/08/12/us/david-crowley-tony-evers-undecided-voters.html
 
 **How ‘The Evil Dead’ Point-of-View Shots Changed Horror Movies Forever**\
 `The racing point-of-view shot is a signature of this franchise. But once you know to look for it, you’ll see it everywhere.`\
@@ -162,7 +166,7 @@ https://www.nytimes.com/2026/08/12/us/ward-churchill-dead.html
 `De Islandia a España, los observadores han acudido a los lugares donde, por corto tiempo, la Luna bloqueará completamente al Sol.`\
 https://www.nytimes.com/live/2026/08/12/espanol/eclipse-solar-total
 
-**Live Updates: The Moon Bites Into the Sun in Skies Across Europe**\
+**Live Updates: First Total Eclipse in Decades Turns Day to Night in Europe**\
 `From Iceland to Spain, people flocked to viewing spots to see the moon completely block out the sun.`\
 https://www.nytimes.com/live/2026/08/12/world/solar-eclipse-2026-updates
 
