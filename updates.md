@@ -1,3 +1,7 @@
+**A Puppet Festival That Asks, What if Judy Punched Back?**\
+`The International Puppet Fringe Festival brings dozens of shows, films, exhibits and workshops to the Lower East Side. This year, the focus is on women.`\
+https://www.nytimes.com/2026/08/12/theater/international-puppet-festival-female-puppeteers.html
+
 **Our Son Is Striking Out on Dating Apps. Should We Hire a Matchmaker?**\
 `A reader wants to help his 37-year-old son find love in Los Angeles but worries that offering to pay for professional help could bruise his ego.`\
 https://www.nytimes.com/2026/08/12/style/son-dating-apps-matchmaker-relationships.html

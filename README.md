@@ -1,3 +1,11 @@
+**Will the Weather Cooperate? Here’s a Roundup of Forecasts on the Eclipse’s Path**\
+`The spectacle will be at the mercy of the meteorological conditions, with clouds threatening to block the view in some places.`\
+https://www.nytimes.com/2026/08/12/weather/solar-eclipse-europe-weather-forecast.html
+
+**En directo: el eclipse solar total está a unas horas en Europa**\
+`De Islandia a España, los observadores han acudido a los lugares donde, por corto tiempo, la Luna bloqueará completamente al Sol.`\
+https://www.nytimes.com/live/2026/08/12/espanol/eclipse-solar-total
+
 **Our Son Is Striking Out on Dating Apps. Should We Hire a Matchmaker?**\
 `A reader wants to help his 37-year-old son find love in Los Angeles but worries that offering to pay for professional help could bruise his ego.`\
 https://www.nytimes.com/2026/08/12/style/son-dating-apps-matchmaker-relationships.html
@@ -165,12 +173,4 @@ https://www.nytimes.com/2026/08/12/theater/winters-tale-review-shakespeare-in-th
 **‘I’m Not Ashamed of My Face-Lift’**\
 `Why do people insist on judging women for their cosmetic procedures? The Opinion contributing writer Molly Jong-Fast is not about to feel bad about her face-lift. She argues that misogyny is embedded in how we talk about women’s plastic surgery and the lack of honesty around it is harmful for everyone — especially the next generation.`\
 https://www.nytimes.com/video/opinion/100000011077394/im-not-ashamed-of-my-face-lift.html
-
-**Walking the King Charles III England Coast Path, Now Open to All**\
-`Paul Theroux traced the British coastline in 1982 for his book ‘The Kingdom by the Sea.’ This year he walked parts of the new King Charles III England Coast Path, a continuous route along the country’s seashore.`\
-https://www.nytimes.com/2026/08/12/travel/paul-theroux-king-charles-england-coast-path.html
-
-**This Season, Fashion Is Laying It On Thick**\
-`When temperatures drop, channel the ’90s with bold, oversize silhouettes built piece by piece.`\
-https://www.nytimes.com/2026/08/12/t-magazine/fall-layers-fashion-90s.html
 
