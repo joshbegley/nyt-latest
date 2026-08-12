@@ -1,3 +1,15 @@
+**Three People Are Killed at a Minnesota Day Care Center**\
+`The authorities in Hopkins, Minn., said two adults and a child, all family members, were killed at an in-home day care center.`\
+https://www.nytimes.com/2026/08/12/us/stabbing-minnesota-day-care.html
+
+**Maps: Tracking a Potential Tropical Storm Near Hawaii**\
+`See the likely path and wind arrival times`\
+https://www.nytimes.com/interactive/2026/08/12/weather/hawaii-storm-map-path-tracker.html
+
+**A Partial Solar Eclipse Will Be Visible in Parts of the U.S. and Canada**\
+`Parts of the United States and Canada will have the chance to see the moon block at least a small portion of the sun.`\
+https://www.nytimes.com/2026/08/12/world/europe/solar-eclipse-us-north-america.html
+
 **How a Reporter Finds Human Stories in Housing**\
 `Mihir Zaveri shares lessons learned over nearly six years of reporting on rising rents, complex zoning regulations and wily plumbers.`\
 https://www.nytimes.com/2026/08/12/insider/new-york-city-housing.html
@@ -141,16 +153,4 @@ https://www.nytimes.com/2026/08/12/world/asia/zhu-rongji-dead.html
 **All the President’s Planes**\
 `Last month, President Trump made a dramatic exit after a visit to Turkey, prompting concerns about the safety of his planes. This week, we learned it was all a ruse.`\
 https://www.nytimes.com/2026/08/12/podcasts/the-daily/air-force-one-trump-planes-ruse.html
-
-**NYT Connections Answers for August 13, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, Aug. 13, 2026.`\
-https://www.nytimes.com/2026/08/12/crosswords/connections-companion-1159.html
-
-**Key Takeaways From This Week’s Primaries, and the Deportees Stuck in ‘No Man’s Land’**\
-`Plus, why new Alzheimer’s tests are causing distress.`\
-https://www.nytimes.com/2026/08/12/podcasts/the-headlines/takeaways-primaries-deportees-eswatini.html
-
-**NYT Strands Hints for Aug. 13, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, Aug. 13, 2026.`\
-https://www.nytimes.com/2026/08/12/crosswords/strands-sidekick-893.html
 

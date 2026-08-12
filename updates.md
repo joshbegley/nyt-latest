@@ -1,3 +1,15 @@
+**Three People Are Killed at a Minnesota Day Care Center**\
+`The authorities in Hopkins, Minn., said two adults and a child, all family members, were killed at an in-home day care center.`\
+https://www.nytimes.com/2026/08/12/us/stabbing-minnesota-day-care.html
+
+**Maps: Tracking a Potential Tropical Storm Near Hawaii**\
+`See the likely path and wind arrival times`\
+https://www.nytimes.com/interactive/2026/08/12/weather/hawaii-storm-map-path-tracker.html
+
+**A Partial Solar Eclipse Will Be Visible in Parts of the U.S. and Canada**\
+`Parts of the United States and Canada will have the chance to see the moon block at least a small portion of the sun.`\
+https://www.nytimes.com/2026/08/12/world/europe/solar-eclipse-us-north-america.html
+
 **How a Reporter Finds Human Stories in Housing**\
 `Mihir Zaveri shares lessons learned over nearly six years of reporting on rising rents, complex zoning regulations and wily plumbers.`\
 https://www.nytimes.com/2026/08/12/insider/new-york-city-housing.html
