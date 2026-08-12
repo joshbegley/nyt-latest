@@ -1,3 +1,7 @@
+**¿Debería ser un delito dejar que los niños jueguen solos afuera?**\
+`Algunos padres se han visto envueltos en procesos legales por permitir que sus hijos tengan autonomía.`\
+https://www.nytimes.com/es/2026/08/12/espanol/ninos-solos-ilegal.html
+
 **Mientras EE. UU. se queda sin municiones, las capacidades militares de Irán evolucionan**\
 `Los ataques iraníes que mataron a tres soldados estadounidenses en Jordania revelan dos hechos importantes: primero, Irán es ahora un adversario más hábil. Segundo, al Pentágono le quedan menos interceptores.`\
 https://www.nytimes.com/es/2026/08/12/espanol/estados-unidos/iran-municiones-guerra-arsenal.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/08/11/us/politics/trump-iran-threat-air-force-one.h
 **Warehouse Blaze in Portland, Ore., Is Headache for City Over a Week Later**\
 `The city has set up a safety zone, and Amtrak trains between Seattle and Portland are paused, but freight trains have been passing the structure, alarming officials who have warned of a collapse.`\
 https://www.nytimes.com/2026/08/11/us/portland-warehouse-fire-amtrak.html
-
-**With Trump Secretly Evacuated, Imperiled Air Force One Became a Flying Decoy**\
-`In response to a threat against the jet last month, the president was clandestinely removed in a catering container. But the plane was sent into the skies anyway with government employees and reporters onboard.`\
-https://www.nytimes.com/2026/08/11/us/politics/trump-air-force-one-decoy.html
 
 **Election Live Updates: Wisconsin Primary for Governor Too Close to Call Between Moderate and Democratic Socialist**\
 `David Crowley, the Milwaukee County executive, and Francesca Hong, a democratic socialist who had polled strongly in the race, were locked in a tight race. In Minnesota, Lt. Gov. Peggy Flanagan, a progressive, won the Democratic Senate primary.`\
