@@ -1,3 +1,15 @@
+**Zhu Rongji, Former Premier Who Transformed China Into a Market Economy, Dies at 97**\
+`Zhu Rongji, the former Chinese premier, died in Beijing on Wednesday at the age of 97. He helped guide China toward a market-based economy in the 1990s and later into the World Trade Organization that skyrocketed the country’s exports.`\
+https://www.nytimes.com/video/world/asia/100000011088702/zhu-rongji-former-premier-who-transformed-china-into-a-market-economy-dies-at-97.html
+
+**Muere pionera en la investigación del cáncer de garganta**\
+`Su estatura frustró su interés en el ballet, pero la ciencia ganó a una destacada investigadora que descubrió un vínculo clave entre el VPH y el cáncer de cuello y garganta.`\
+https://www.nytimes.com/es/2026/08/12/espanol/pionera-investigacion-cancer-garganta-muere.html
+
+**Palestinians Trapped by Settlers for Days as Israeli Army Shows Up, and Then Leaves**\
+`Israeli soldiers tried to disperse the settlers with tear gas. After the soldiers left, residents said, the settlers resumed their attacks.`\
+https://www.nytimes.com/2026/08/12/world/middleeast/west-bank-palestinians-israeli-settlers.html
+
 **Este año, El Niño es enorme y ya está cambiando el mundo**\
 `Se prevé que este fenómeno climático recurrente alcance su punto máximo a finales de 2026, pero ya está provocando periodos de sequía y pérdidas de cultivos en tres continentes.`\
 https://www.nytimes.com/es/2026/08/12/espanol/tiempo-y-clima/el-nino-mundo.html
