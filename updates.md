@@ -1,3 +1,23 @@
+**Tiny Love Stories: ‘We Ended Up in Her Bed’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/08/12/style/tiny-modern-love-stories-we-ended-up-in-her-bed.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/business/100000011088415/Biz-Us-Robot-Opener-video-chess.html
+
+**Why Were Polls So Wrong in Wisconsin?**\
+`Francesca Hong, the democratic socialist running in Wisconsin’s Democratic primary for governor, had a double-digit lead in polls as recently as last week. Then she lost. What happened?`\
+https://www.nytimes.com/2026/08/12/us/politics/crowley-hong-wisconsin-governor-primary-polls.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/business/100000011088403/mosaic-robotsusopener-411.html
+
+**Live Updates: Europe’s First Total Solar Eclipse Is Turning Day to Dark**\
+`From Iceland to Spain, people have flocked to places where, briefly, the moon will completely block the sun.`\
+https://www.nytimes.com/live/2026/08/12/world/solar-eclipse-2026-updates
+
 **Trump-Backed Mike Lindell Loses Minnesota Governor Primary to Lisa Demuth**\
 `After his loss in the state’s Republican primary for governor, Mike Lindell, a leading election denier, floated familiar, baseless claims of “anomalies” in his double-digit defeat.`\
 https://www.nytimes.com/2026/08/12/us/politics/trump-lindell-minnesota-republican-primary.html

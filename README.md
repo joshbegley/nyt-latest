@@ -1,3 +1,11 @@
+**Girl and Boy Scouts, Together and Apart**\
+`Readers recount their experience as girl scouts, and what sets them apart from boy scouts. Also: The Trump plane ploy; an act of kindness.`\
+https://www.nytimes.com/2026/08/12/opinion/girl-boy-scouts.html
+
+**Prediction Firms Are Flagging Insider Traders. Many Will Not Face Charges.**\
+`The agency that polices the industry does not have the staffing, the legal tools or the will to broadly crack down on wagers that are easily manipulated, experts say.`\
+https://www.nytimes.com/2026/08/12/us/politics/prediction-markets-insider-trading.html
+
 **Tiny Love Stories: ‘We Ended Up in Her Bed’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://www.nytimes.com/2026/08/12/style/tiny-modern-love-stories-we-ended-up-in-her-bed.html
@@ -146,15 +154,7 @@ https://www.nytimes.com/2026/08/12/learning/on-wordle-data-centers-and-gen-z-coc
 `The media company’s leader, David Ellison, is threatening to pull the company out of California in the face of a lawsuit by states seeking to block its big deal.`\
 https://www.nytimes.com/2026/08/12/business/dealbook/paramount-california-states-lawsuit.html
 
-**Thrive Holdings, A.I.-Focused Buyer of Service Firms, Raises $2 Billion**\
-`The company, Thrive Holdings, acquires businesses to infuse them with artificial intelligence and drew interest from backers like SoftBank.`\
-https://www.nytimes.com/2026/08/12/business/dealbook/thrive-holdings-ai-funding.html
-
-**Europeans, Braced for 5th Heat Wave of 2026, Have Had Enough**\
-`With temperatures set to soar as high as 109 degrees Fahrenheit (43 Celsius) this week, Europeans and tourists say that summer in Europe has lost its appeal.`\
-https://www.nytimes.com/2026/08/12/world/europe/europe-fifth-heat-wave.html
-
-**Live Updates: Europe’s First Total Solar Eclipse Is Turning Day to Dark**\
+**Live Updates: Europe’s First Total Solar Eclipse in Decades Is Turning Day to Dark**\
 `From Iceland to Spain, people have flocked to places where, briefly, the moon will completely block the sun.`\
 https://www.nytimes.com/live/2026/08/12/world/solar-eclipse-2026-updates
 
