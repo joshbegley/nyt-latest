@@ -1,3 +1,19 @@
+**Tiny Love Stories: ‘We Ended Up in Her Bed’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/08/12/style/tiny-modern-love-stories-we-ended-up-in-her-bed.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/business/100000011088415/Biz-Us-Robot-Opener-video-chess.html
+
+**Why Were Polls So Wrong in Wisconsin?**\
+`Francesca Hong, the democratic socialist running in Wisconsin’s Democratic primary for governor, had a double-digit lead in polls as recently as last week. Then she lost. What happened?`\
+https://www.nytimes.com/2026/08/12/us/politics/crowley-hong-wisconsin-governor-primary-polls.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/business/100000011088403/mosaic-robotsusopener-411.html
+
 **Trump-Backed Mike Lindell Loses Minnesota Governor Primary to Lisa Demuth**\
 `After his loss in the state’s Republican primary for governor, Mike Lindell, a leading election denier, floated familiar, baseless claims of “anomalies” in his double-digit defeat.`\
 https://www.nytimes.com/2026/08/12/us/politics/trump-lindell-minnesota-republican-primary.html
@@ -138,19 +154,7 @@ https://www.nytimes.com/2026/08/12/business/dealbook/thrive-holdings-ai-funding.
 `With temperatures set to soar as high as 109 degrees Fahrenheit (43 Celsius) this week, Europeans and tourists say that summer in Europe has lost its appeal.`\
 https://www.nytimes.com/2026/08/12/world/europe/europe-fifth-heat-wave.html
 
-**Live Updates: Europe’s First Total Eclipse in Decades Starts on Path to Darkness**\
+**Live Updates: Europe’s First Total Solar Eclipse Is Turning Day to Dark**\
 `From Iceland to Spain, people have flocked to places where, briefly, the moon will completely block the sun.`\
 https://www.nytimes.com/live/2026/08/12/world/solar-eclipse-2026-updates
-
-**Benign Inflation Data Offers Reprieve to Fed as It Weighs Rate Increase**\
-`The latest Consumer Price Index report helped to reinforce the patient approach adopted by many officials at the Federal Reserve about raising rates, but it has not resolved the debate altogether.`\
-https://www.nytimes.com/2026/08/12/business/economy/inflation-federal-reserve-interest-rates.html
-
-**July CPI Report Is Expected to Show Falling Energy Prices**\
-`The war with Iran injected volatility into the oil and gas market, with prices rising and falling in concert with the conflict.`\
-https://www.nytimes.com/2026/08/12/business/economy/energy-oil-prices-inflation.html
-
-**Inflation Was Moderate in July, but Energy Prices Remain Elevated**\
-`The Consumer Price Index for July showed prices rose 3.4 percent from a year ago as the war in Iran dragged on.`\
-https://www.nytimes.com/live/2026/08/12/business/inflation-cpi-report
 
