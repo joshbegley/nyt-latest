@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011087111/11vid-darlene-embed2-30501.html
+
 **La IA ofrece una nueva esperanza a los hombres con infertilidad**\
 `Una nueva tecnología podría facilitar que los hombres con conteos de espermatozoides extremadamente bajos tengan hijos biológicos.`\
 https://www.nytimes.com/es/2026/08/11/espanol/ciencia-y-tecnologia/hombres-infertilidad-espermatozoides.html
