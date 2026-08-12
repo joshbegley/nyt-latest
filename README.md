@@ -1,3 +1,7 @@
+**Should the M.M.R. Vaccine Be Split Into Three Separate Shots?**\
+`President Trump is calling for immunizations for measles, mumps and rubella to be given in individual jabs in three different appointments instead of the standard combination shot.`\
+https://www.nytimes.com/2026/08/12/health/mmr-vaccine-combination-separate.html
+
 **Hawaii Braces for a Potential Storm Named Lala**\
 `Hurricane forecasters are predicting a tropical storm, potentially a hurricane, may bring heavy rainfall and strong winds to the Big Island starting Friday.`\
 https://www.nytimes.com/2026/08/12/weather/hawaii-braces-for-a-possible-hurricane-named-lala.html
@@ -153,14 +157,6 @@ https://www.nytimes.com/video/well/100000011073335/how-kennedy-fueled-vaccine-sk
 **RFK Jr. Stirred Vaccine Fears in Pennsylvania Years Before Measles Outbreak**\
 `At a speech in Lancaster County, Robert F. Kennedy mocked the threat of measles. Now local officials are racing to contain one of the largest outbreaks in the country.`\
 https://www.nytimes.com/2026/08/12/well/measles-pennsylvania-kennedy-vaccines.html
-
-**Hello, Elotes**\
-`Based on the Mexican street food snack, this grilled corn with cheese, chile and lime is a snap to make.`\
-https://www.nytimes.com/2026/08/12/dining/hello-elotes.html
-
-**The MOTHRA Telescope Captured the Faint Aftermath of a Star’s Death**\
-`During early calibration tests, the MOTHRA telescope’s array of lenses, which will soon number 1,140, captured stellar debris dissolving into space around the Helix Nebula.`\
-https://www.nytimes.com/2026/08/12/science/mothra-telescope-helix-nebula.html
 
 **Eclipse solar, en vivo: comienza la trayectoria de la totalidad**\
 `De Islandia a España, los observadores han acudido a los lugares donde, por corto tiempo, la Luna bloqueará completamente al Sol.`\

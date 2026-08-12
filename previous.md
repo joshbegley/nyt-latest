@@ -162,15 +162,11 @@ https://www.nytimes.com/2026/08/12/dining/hello-elotes.html
 `During early calibration tests, the MOTHRA telescope’s array of lenses, which will soon number 1,140, captured stellar debris dissolving into space around the Helix Nebula.`\
 https://www.nytimes.com/2026/08/12/science/mothra-telescope-helix-nebula.html
 
-**Look Up at the Sky Tonight. The Perseid Meteor Shower Will Awe You.**\
-`Experiencing awe makes us happier, healthier and more fulfilled. Why not watch the Perseid meteor shower to have a bit more awe in your life?`\
-https://www.nytimes.com/2026/08/12/opinion/perseid-meteor-shower-awe-inspiring.html
-
 **Eclipse solar, en vivo: comienza la trayectoria de la totalidad**\
 `De Islandia a España, los observadores han acudido a los lugares donde, por corto tiempo, la Luna bloqueará completamente al Sol.`\
 https://www.nytimes.com/live/2026/08/12/espanol/eclipse-solar-total
 
-**Live Updates: First Total Eclipse in Decades Turns Day to Night in Europe**\
+**Live Updates: First Total Eclipse in Europe in Decades Turns Day to Night**\
 `From Iceland to Spain, people flocked to viewing spots to see the moon completely block out the sun.`\
 https://www.nytimes.com/live/2026/08/12/world/solar-eclipse-2026-updates
 
