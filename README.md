@@ -1,3 +1,7 @@
+**What to Know About David Crowley, a Democratic Candidate for Wisconsin Governor**\
+`The Milwaukee County executive, who was locked in a tight race for the Democratic nomination against Francesca Hong, could become the first Black governor of Wisconsin.`\
+https://www.nytimes.com/2026/08/11/us/politics/david-crowley-wisconsin-governor.html
+
 **Lisa Demuth Wins Republican Primary for Governor of Minnesota**\
 `Lisa Demuth beat Mike Lindell, the MyPillow founder who was endorsed by President Trump.`\
 https://www.nytimes.com/2026/08/11/us/elections/minnesota-governor-republican-demuth.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/08/11/us/politics/mark-sanford-south-carolina-senat
 **Judge Awards $250,000 to Musician Who Fled Trump-Led Kennedy Center Gig**\
 `The center had sued Chuck Redd when he canceled a free concert last year, citing the addition of the Trump name to the venue. But a judge dismissed the case.`\
 https://www.nytimes.com/2026/08/11/arts/music/chuck-redd-kennedy-center.html
-
-**When to Expect Results in Wisconsin, Minnesota, South Carolina and Beyond**\
-`Six states are holding elections on Tuesday. The unofficial results will be known late Tuesday or early Wednesday.`\
-https://www.nytimes.com/2026/08/11/us/politics/election-results-timing-wisconsin-minnesota.html
 
 **Election Live Updates: Progressive Wins Senate Nomination in Minnesota as Wisconsin Democratic Socialist Faces Tight Race**\
 `Lt. Gov. Peggy Flanagan of Minnesota will hope to keep a Senate seat in Democratic hands in November. In Wisconsin, Francesca Hong, a democratic socialist who had polled strongly in the Democratic primary for governor, was in an unexpectedly close contest with the Milwaukee County executive.`\
