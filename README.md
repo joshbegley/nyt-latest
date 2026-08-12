@@ -1,3 +1,83 @@
+**Barcos pesqueros de Ecuador son blanco de misteriosos atacantes**\
+`Las tripulaciones ecuatorianas que trabajan en aguas del Pacífico han sido blanco de un misterioso grupo equipado con drones. Al parecer, algunos marineros han perdido la vida.`\
+https://www.nytimes.com/es/2026/08/12/espanol/america-latina/ecuador-ataques-barcos.html
+
+**Does My Face-Lift Make Me a Bad Feminist?**\
+`I, like many a young woman, was once wildly judgmental about plastic surgery. Now I’m not so sure.`\
+https://www.nytimes.com/2026/08/12/opinion/face-lift-feminism-plastic-surgery.html
+
+**Even Elite Colleges Have Become Trade Schools**\
+`Short-term return on investment is an impoverished view of a college education.`\
+https://www.nytimes.com/2026/08/12/opinion/elite-college-trade-school.html
+
+**Los peatones mayores tienen más riesgo de morir en accidentes de tránsito**\
+`Además de algunos factores que los hacen más vulnerables a las colisiones, las consecuencias de las lesiones son mayores a medida que se envejece.`\
+https://www.nytimes.com/es/2026/08/12/espanol/accidentes-muertes-transito-adultos.html
+
+**Los robots humanoides llegan a las fábricas de autos**\
+`Los expertos advierten que estos robots, que caminan y hablan, podrían no cumplir las expectativas de eficiencia que prometen sus impulsores.`\
+https://www.nytimes.com/es/2026/08/12/espanol/negocios/robots-trabajos-fabrica-carros.html
+
+**How a Reporter Interviewed Deportees Sent to a Prison in Africa by the Trump Administration**\
+`A Times reporter spoke with detainees in southern Africa using a cellphone one of them obtained after a hunger strike.`\
+https://www.nytimes.com/2026/08/12/insider/interview-deportees-eswatini-africa-trump.html
+
+**After a Typo, Officers Used Excessive Force in an Arrest, a Report Finds**\
+`Officers with the San Francisco Police Department thought they had caught a car thief. Instead, they had mistyped his license plate number, a watchdog agency said.`\
+https://www.nytimes.com/2026/08/12/us/san-francisco-police-typo-arrest-matthew-ludwig.html
+
+**What Happens When Two Anxious People Fall in Love**\
+`Jenny Singer worried her anxiety would interfere with her ability to have a deep, loving relationship, but when she met someone who understood what she was going through, everything changed.`\
+https://www.nytimes.com/video/podcasts/100000011085447/what-happens-when-two-anxious-people-fall-in-love.html
+
+**Corrections: Aug. 12, 2026**\
+`Corrections that appeared in print on Wednesday, Aug. 12, 2026.`\
+https://www.nytimes.com/2026/08/12/pageoneplus/corrections-aug-12-2026.html
+
+**A Pasadena Craftsman Bursting With Color**\
+`Grey DeLisle lives with bold wallpaper, retro appliances and a wooden cowboy named slim.`\
+https://www.nytimes.com/2026/08/12/realestate/a-pasadena-craftsman-bursting-with-color.html
+
+**‘Ted Lasso’ Season 4, Episode 2 Recap: Back to Richmond**\
+`This week, Ted wakes up in England where he belongs and meets his new assistant coach.`\
+https://www.nytimes.com/2026/08/12/arts/television/ted-lasso-season-4-episode-2-recap.html
+
+**Why the U.S. Economy Needs A.I. — Bubble or Not**\
+`And what a hedge fund’s $35 billion loss reveals about the state of the industry.`\
+https://www.nytimes.com/2026/08/12/opinion/ai-bubble-economy-crash.html
+
+**What if Judy Punched Back? A Puppet Fest for All, With a Female Focus.**\
+`The International Puppet Fringe Festival, by its nature accessible and diverse, brings dozens of shows, films, exhibits and workshops to the Lower East Side.`\
+https://www.nytimes.com/2026/08/12/theater/international-puppet-festival-female-puppeteers.html
+
+**Do I Have Too Much Anxiety for a Relationship?**\
+`Jenny Singer worried the deep, loving relationship she wanted wasn’t something her brain would let her have.`\
+https://www.nytimes.com/2026/08/12/podcasts/anxiety-love-relationships.html
+
+**Ecuadorean Fishing Boats Hit by Mystery Attackers**\
+`Ecuadorean crews plying the waters of the Pacific have been targeted by a mysterious outfit equipped with drones. Some sailors appear to have lost their lives.`\
+https://www.nytimes.com/2026/08/12/world/americas/ecuador-fishing-boat-strikes.html
+
+**‘Mysterious Skin’: One of the Great Movies of the Early 2000s**\
+`Gregg Araki’s coming-of-age drama, starring Joseph Gordon-Levitt, tracks the story of two traumas with one source: a baseball coach.`\
+https://www.nytimes.com/2026/08/12/movies/mysterious-skin-ifc-center.html
+
+**New York City Gave Students Free Transit Cards. They Have Feedback.**\
+`High school students who use a free version of the OMNY payment system say most of their problems would be fixed if the card were made of plastic, according to a new report.`\
+https://www.nytimes.com/2026/08/12/nyregion/new-york-city-gave-students-free-transit-cards-they-have-feedback.html
+
+**Book Review: ‘Hannah Arendt,’ by Thomas Meyer**\
+`An ungainly new biography by the German philosopher Thomas Meyer purports to situate Arendt in the context of her own era.`\
+https://www.nytimes.com/2026/08/12/books/review/hannah-arendt-thomas-meyer.html
+
+**Trump Tariffs Force Some Canadian Companies to Move South of the Border**\
+`If President Trump moves ahead with 50 percent tariffs on a wide range of Canadian products later this month, some companies may only survive by relocating to the United States.`\
+https://www.nytimes.com/2026/08/12/world/canada/canada-tariffs-manufacturing-trade-trump.html
+
+**Heat Kills Hundreds of Workers Each Year. A Postal Carrier Was One.**\
+`About half a dozen states explicitly protect workers from excessive heat. And some others, like Texas, prevent local governments from passing their own laws.`\
+https://www.nytimes.com/2026/08/12/business/heat-kills-hundreds-of-workers-each-year-a-postal-carrier-was-one.html
+
 **Which $480,000 Home Would You Pick?**\
 `This weeks properties are in Lexington, Ky.; Pittsford, N.Y.; and Bradford, Vt.`\
 https://www.nytimes.com/2026/08/12/realestate/which-480000-home-would-you-pick.html
@@ -117,84 +197,4 @@ https://www.nytimes.com/es/2026/08/12/espanol/estados-unidos/iran-municiones-gue
 **¿Qué tan saludable es la remolacha?**\
 `La clave está en sus llamativos colores.`\
 https://www.nytimes.com/es/2026/08/12/espanol/estilos-de-vida/que-tan-saludable-es-la-remolacha.html
-
-**Europa está a pocas horas de presenciar un eclipse solar total**\
-`A Islandia, España y otros puntos dentro de la totalidad, los aficionados a la astronomía han acudido en masa a lugares donde la Luna bloqueará completamente al Sol.`\
-https://www.nytimes.com/es/2026/08/12/espanol/mundo/europa-eclipse-hora.html
-
-**Zambia Election: President Hichilema Faces Backlash Ahead of Vote**\
-`President Hakainde Hichilema was elected five years ago, promising to protect civil liberties in his copper-rich African nation. Now, he’s accused of trampling on them.`\
-https://www.nytimes.com/2026/08/12/world/africa/zambia-presidential-election-hichilema.html
-
-**Quote of the Day: Brutal Weather Wreaks Havoc on Economy**\
-`Quotation of the Day for Wednesday, August 12, 2026.`\
-https://www.nytimes.com/2026/08/12/pageoneplus/quote-of-the-day-brutal-weather-wreaks-havoc-on-economy.html
-
-**In Europe, the Total Solar Eclipse Is Hours Away**\
-`Sky watchers have flocked to places, from Iceland to Spain, where the moon will completely block the sun.`\
-https://www.nytimes.com/2026/08/12/world/europe/solar-eclipse-europe.html
-
-**In Bali, a Quest to Restore the Sacred Glow of Fireflies**\
-`The insects, revered in local culture, are disappearing for many reasons, including rapid development to cater to tourists.`\
-https://www.nytimes.com/2026/08/12/world/asia/bali-restore-fireflies.html
-
-**How Nigel Farage Ended Up Running Against Count Binface in Clacton**\
-`Nigel Farage forced a new election in his parliamentary seat after coming under pressure over his finances. His main challenger is Count Binface, a novelty candidate.`\
-https://www.nytimes.com/2026/08/12/world/europe/count-binface-nigel-farage-clacton.html
-
-**Why Nigel Farage Is Running Against a ‘Trash Can’**\
-`Our reporter Amelia Nierenberg describes how the right-wing British political leader Nigel Farage, who is seeking re-election to Parliament, faces an unconventional opponent: Count Binface.`\
-https://www.nytimes.com/video/world/europe/100000011041924/why-nigel-farage-is-running-against-a-trash-can.html
-
-**What to Know About David Crowley, the Democratic Candidate for Wisconsin Governor**\
-`The Milwaukee County executive, who won a tight primary race against Francesca Hong early Wednesday, could become the first Black governor of Wisconsin.`\
-https://www.nytimes.com/2026/08/11/us/politics/david-crowley-wisconsin-governor.html
-
-**Lisa Demuth Wins Republican Primary for Governor of Minnesota**\
-`Lisa Demuth beat Mike Lindell, the MyPillow founder who was endorsed by President Trump.`\
-https://www.nytimes.com/2026/08/11/us/elections/minnesota-governor-republican-demuth.html
-
-**Peggy Flanagan, a Progressive, Wins the Democratic Senate Primary in Minnesota**\
-`The victory by Minnesota’s lieutenant governor was the latest for the left-wing movement in the Midwest. She could become the first Native woman in the Senate.`\
-https://www.nytimes.com/2026/08/11/us/politics/minnesota-democratic-senate-primary-flanagan-craig.html
-
-**Trump Says Secret Service Ordered Air Force One Swap**\
-`Trump claims his secret plane was in more danger than the Air Force One decoy the public thought Trump was flying on.`\
-https://www.nytimes.com/2026/08/11/us/politics/trump-threat-plane-iran-decoy.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/us/politics/100000011087111/11vid-darlene-embed2-30501.html
-
-**La IA ofrece una nueva esperanza a los hombres con infertilidad**\
-`Una nueva tecnología podría facilitar que los hombres con conteos de espermatozoides extremadamente bajos tengan hijos biológicos.`\
-https://www.nytimes.com/es/2026/08/11/espanol/ciencia-y-tecnologia/hombres-infertilidad-espermatozoides.html
-
-**See How Trump’s Secret Air Force One Swap Unfolded**\
-`The extraordinary subterfuge was aimed at protecting an American president who has been in Iran’s cross hairs for years.`\
-https://www.nytimes.com/2026/08/11/us/politics/trump-air-force-one-switch.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/us/politics/100000011085852/11vid-trump-plane-board.html
-
-**Matt Little, a Progressive, Wins a Democratic House Primary in Minnesota**\
-`Mr. Little, a former mayor and state senator, beat two other candidates. He focused on promises of banning corporate money from politics and supporting Medicare for all.`\
-https://www.nytimes.com/2026/08/11/us/politics/berg-little-klein-minnesota-primary.html
-
-**Rebecca Cooke Wins Democratic Primary for Key Wisconsin House Seat**\
-`Ms. Cooke, a three-time congressional candidate, held a huge fund-raising edge in a western Wisconsin race that Democrats consider pivotal to their hopes of flipping the House.`\
-https://www.nytimes.com/2026/08/11/us/politics/wisconsin-democratic-primary-berge-cooke.html
-
-**Son-in-Law of Sean Duffy Wins G.O.P. House Primary in Northern Wisconsin**\
-`Michael Alfonso, 26, had the support of the transportation secretary and an endorsement from President Trump.`\
-https://www.nytimes.com/2026/08/11/us/politics/michael-alfonso-wisconsin-republican-primary.html
-
-**Powerful ‘Derecho’ Storms Tear Through Midwest**\
-`Strong storms covered hundreds of miles and brought winds nearing 100 miles per hour.`\
-https://www.nytimes.com/2026/08/11/weather/storms-midwest-derecho.html
-
-**Rep. John Larson, a Longtime Lawmaker, Loses a Primary in Connecticut**\
-`In an upset, Luke Bronin, the former mayor of Hartford, won the Democratic nomination, capitalizing on calls for generational change.`\
-https://www.nytimes.com/2026/08/11/us/politics/bronin-larson-connecticut-primary-results.html
 
