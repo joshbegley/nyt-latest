@@ -1,3 +1,11 @@
+**Ex-Official at Civil Rights Group Is Charged in Plot to Misuse Far-Right Informants**\
+`The charges signaled an escalation of the Justice Department’s prosecution of the Southern Poverty Law Center, which is best known for investigating white supremacist groups.`\
+https://www.nytimes.com/2026/08/12/us/politics/splc-fraud-conspiracy-charges.html
+
+**Treasury Scales Back Scrutiny of U.S. Shell Companies**\
+`The Trump administration will not enforce reporting requirements of the 2021 Corporate Transparency Act, which was intended to crack down on money laundering.`\
+https://www.nytimes.com/2026/08/12/us/politics/treasury-scrutiny-shell-companies.html
+
 **Two Killed in Military Helicopter Crash Near Fort Hood in Texas**\
 `The helicopter crashed in Salado, a small town about 20 miles from the military base, the authorities said.`\
 https://www.nytimes.com/2026/08/12/us/texas-helicopter-crash.html
@@ -11,7 +19,7 @@ https://www.nytimes.com/2026/08/12/world/europe/solar-eclipse-europe-photos.html
 https://www.nytimes.com/video/opinion/100000011086410/journalism-in-the-zones-of-uncertainty.html
 
 **Forbes Fired Top Editor After Discovering He Received Secret $6 Million Payment**\
-`Randall Lane, the magazine’s chief content officer, received the money from the founder of Shook Research, which has partnered with Forbes on content about wealth advisers.`\
+`Randall Lane, the magazine’s chief content officer, received the money from the founder of Shook Research, which has worked with Forbes on content about wealth advisers.`\
 https://www.nytimes.com/2026/08/12/business/forbes-editor-fired.html
 
 **Trump Is Sued Over Plan to Sell Early Access to His Truth Social Posts**\
@@ -157,14 +165,6 @@ https://www.nytimes.com/2026/08/12/climate/el-nino-early-onset-effects.html
 **Ted Decker, CEO of Home Depot, Is Taking Medical Leave**\
 `Ted Decker is expected to return in a few months, and two executives have been appointed to oversee his duties in the interim.`\
 https://www.nytimes.com/2026/08/12/business/home-depot-ceo.html
-
-**ICE Agent Points Gun at Woman in Car in Virginia, Videos Show**\
-`The agent accused the woman of trying to run him over with her vehicle, a claim she denied. It was the latest tense encounter between a federal agent and a driver.`\
-https://www.nytimes.com/2026/08/12/us/ice-gun-driver-virginia-immigration.html
-
-**3 People Are Killed at a Minnesota Day Care Center**\
-`The authorities in Hopkins, Minn., said two adults and a child, all family members, were killed at an in-home day care center.`\
-https://www.nytimes.com/2026/08/12/us/stabbing-minnesota-day-care.html
 
 **Por primera vez en décadas, el día se hace noche en Europa bajo un eclipse solar total**\
 `De Islandia a España, los observadores acudieron a los lugares donde, por corto tiempo, la Luna bloqueó completamente al Sol.`\
