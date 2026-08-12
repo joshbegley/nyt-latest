@@ -1,3 +1,7 @@
+**Trump-Backed Mike Lindell Loses Minnesota Governor Primary to Lisa Demuth**\
+`After his loss in the state’s Republican primary for governor, Mike Lindell, a leading election denier, floated familiar, baseless claims of “anomalies” in his double-digit defeat.`\
+https://www.nytimes.com/2026/08/12/us/politics/trump-lindell-minnesota-republican-primary.html
+
 **Cómo observar el eclipse de forma segura (incluso sin gafas)**\
 `Si piensas ver el eclipse, asegúrate de que tus lentes te den la suficiente protección. Como alternativa, puedes verlo de manera segura con algunos artículos del hogar.`\
 https://www.nytimes.com/es/2026/08/12/espanol/eclipse-gafas-como-ver.html
@@ -145,10 +149,6 @@ https://www.nytimes.com/2026/08/12/business/economy/inflation-federal-reserve-in
 **July CPI Report Is Expected to Show Falling Energy Prices**\
 `The war with Iran injected volatility into the oil and gas market, with prices rising and falling in concert with the conflict.`\
 https://www.nytimes.com/2026/08/12/business/economy/energy-oil-prices-inflation.html
-
-**South Africa’s Zeitz MOCAA Names Director to Replace Koyo Kouoh**\
-`Elvira Dyangani Ose, who directed Barcelona’s contemporary art museum, will succeed Koyo Kouoh at Zeitz MOCAA after she died suddenly last year from cancer.`\
-https://www.nytimes.com/2026/08/12/arts/design/zeitz-mocaa-director-elvira-dyangani-ose.html
 
 **Inflation Was Moderate in July, but Energy Prices Remain Elevated**\
 `The Consumer Price Index for July showed prices rose 3.4 percent from a year ago as the war in Iran dragged on.`\
