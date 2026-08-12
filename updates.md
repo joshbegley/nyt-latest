@@ -1,3 +1,7 @@
+**Iran Said to Have Known Details of Trump’s Stay at NATO Summit**\
+`The United States picked up multiple streams of information, including one potential threat that involved a shoulder-fired missile.`\
+https://www.nytimes.com/2026/08/11/us/politics/trump-iran-threat-air-force-one.html
+
 **Election Live Updates: Tallying Underway in South Carolina, Where Graham’s Sister Seeks His Seat**\
 `The late Senator Lindsey Graham’s sister is among a crowded field in a race that could be headed for a runoff. Five other states are also holding races, including Minnesota and Wisconsin, where a democratic socialist is seeking the nomination for governor`\
 https://www.nytimes.com/live/2026/08/11/us/elections-south-carolina-wisconsin

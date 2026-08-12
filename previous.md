@@ -1,3 +1,7 @@
+**Iran Said to Have Known Details of Trump’s Stay at NATO Summit**\
+`The United States picked up multiple streams of information, including one potential threat that involved a shoulder-fired missile.`\
+https://www.nytimes.com/2026/08/11/us/politics/trump-iran-threat-air-force-one.html
+
 **Warehouse Blaze in Portland, Ore., Is Headache for City Over a Week Later**\
 `The city has set up a safety zone, and Amtrak trains between Seattle and Portland are paused, but freight trains have been passing the structure, alarming officials who have warned of a collapse.`\
 https://www.nytimes.com/2026/08/11/us/portland-warehouse-fire-amtrak.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/08/11/dining/nyc-restaurant-news.html
 **How Iran Adapted Its Attacks as U.S. War Munitions Dwindled**\
 `The Iranian strikes that killed three U.S. soldiers in Jordan show how quickly Iran’s war-fighting skills have evolved, as the Pentagon runs low on interceptors.`\
 https://www.nytimes.com/2026/08/11/us/politics/iran-military-base-attacks-us-munitions.html
-
-**Pensó que conocía la pobreza por haber crecido en Perú. Estados Unidos la sorprendió**\
-`Una latinoamericana conoció algunos de los códigos postales más pobres de EE. UU. y reflexiona sobre lo que significa ser pobre en el país.`\
-https://www.nytimes.com/es/2026/08/11/espanol/opinion/pobreza-estados-unidos-peru.html
 
 **Race Too Close to Call in Democratic Primary for Michigan Senate Seat**\
 `Dr. Abdul El-Sayed, a progressive, and Representative Haley Stevens, a centrist, both gave speeches with the winner still undeclared. Kansas, Missouri, Virginia and Washington also voted.`\
