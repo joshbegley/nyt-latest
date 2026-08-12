@@ -1,3 +1,7 @@
+**First Total Eclipse in Decades Sweeps Across Europe**\
+`A total solar eclipse, the first in decades in Europe, swept across the continent on Wednesday.`\
+https://www.nytimes.com/video/science/space/100000011088337/europe-total-solar-eclipse.html
+
 **Who Is Joshua Kushner, the New Lakers Co-Owner?**\
 `The brother of Jared Kushner is an influential venture capitalist with big bets on A.I. and health insurance.`\
 https://www.nytimes.com/2026/08/12/business/joshua-kushner-lakers.html
