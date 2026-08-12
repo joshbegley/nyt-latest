@@ -1,3 +1,15 @@
+**Toda una generación busca cómo dejar los antidepresivos**\
+`Muchas personas sienten que los antidepresivos bloquean sus emociones verdaderas, pero no cuentan con orientación sobre cómo dejar estos fármacos.`\
+https://www.nytimes.com/es/2026/08/12/espanol/opinion/antidepresivos-como-dejarlos.html
+
+**N.Y.C. Students Are Sick of Using Flimsy Paper Cards to Ride the Subway**\
+`A new survey of students who use a free version of the OMNY payment system say most of their problems would be fixed if the card was made out of plastic.`\
+https://www.nytimes.com/2026/08/12/nyregion/subway-omny-card-students-mta.html
+
+**NYT Spelling Bee Answers for August 12, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/08/12/crosswords/spelling-bee-forum.html
+
 **Jimmy Fallon Recreates Trump’s Catering Container Escape**\
 `“Everyone was, like, ‘Well, at least he has one exit plan,’” the “Tonight Show” host said.`\
 https://www.nytimes.com/2026/08/12/arts/television/late-night-trump-catering-container-air-force-one.html
