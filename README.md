@@ -1,3 +1,7 @@
+**South Africa’s Zietz MOCAA Names Director to Replace Koyo Kouoh**\
+`Elvira Dyangani Ose, who most recently directed Barcelona’s contemporary art museum, will succeed Kouoh, who died suddenly last year from cancer.`\
+https://www.nytimes.com/2026/08/12/arts/design/south-africas-zietz-mocaa-names-director-to-replace-koyo-kouoh.html
+
 **Hong’s Defeat in Wisconsin Shows the Limits of the Progressive Movement**\
 `Francesca Hong’s defeat in the Democratic primary for governor defied expectations and may have shown the democratic socialist wave cannot reach beyond urban centers.`\
 https://www.nytimes.com/2026/08/12/us/elections/david-crowley-wisconsin-governors-primary.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/08/12/books/rich-people-fiction-books.html
 **Primary Results Set for Tuesday’s Key Races**\
 `South Carolina Republicans moved to a runoff to decide their Senate nominee. Voters picked a progressive Democrat as their candidate for Senate in Minnesota, but in Wisconsin, a moderate eked out a narrow victory in the contest for governor.`\
 https://www.nytimes.com/video/us/elections/100000011087320/primary-election-results-wisconsin-minnesota-south-carolina.html
-
-**Why the U.S. Economy Needs A.I. — Bubble or Not**\
-`And what a hedge fund’s $35 billion loss reveals about the state of the industry.`\
-https://www.nytimes.com/video/opinion/100000011083257/why-the-us-economy-needs-ai-bubble-or-not.html
 
