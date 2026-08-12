@@ -166,8 +166,8 @@ https://www.nytimes.com/2026/08/12/science/space/telescope-spots-two-black-holes
 `The upset victory by David Crowley, the Milwaukee County executive, over Francesca Hong sets up a more traditional general election in November.`\
 https://www.nytimes.com/2026/08/12/us/elections/wisconsin-governor-democratic-primary-hong-crowley.html
 
-**Election Live Updates: Moderate Democrat Wins Tight Wisconsin Primary for Governor**\
-`David Crowley, the Milwaukee County executive, edged out Francesca Hong, a democratic socialist. In Minnesota, Lt. Gov. Peggy Flanagan, a progressive, won the Democratic Senate primary.`\
+**Election Live Updates: Democratic Socialist Is Upset in Tight Wisconsin Primary for Governor**\
+`Francesca Hong, who had led in opinion polls, lost to David Crowley, a moderate Democrat. In Minnesota, Lt. Gov. Peggy Flanagan, a progressive, won the Democratic Senate primary.`\
 https://www.nytimes.com/live/2026/08/12/us/primary-election-results-wi-mn-sc
 
 **Toda una generación busca cómo dejar los antidepresivos**\
