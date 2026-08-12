@@ -1,3 +1,23 @@
+**Israeli Settlers Are Out of Control**\
+`If Netanyahu is ousted in October’s balloting, don’t expect peace to break out, but the worst violence might be reined in.`\
+https://www.nytimes.com/2026/08/12/opinion/israeli-settlers-palestinians-west-bank.html
+
+**Afghanistan’s Unhappy Anniversary**\
+`Five years into their hard-line rule, the Taliban find themselves in crisis at home and abroad.`\
+https://www.nytimes.com/2026/08/12/world/afghanistan-taliban-anniversary-eclipse-lakers.html
+
+**Ex-Official at Civil Rights Group Is Charged in Plot to Misuse Far-Right Informants**\
+`The charges signaled an escalation of the Justice Department’s prosecution of the Southern Poverty Law Center, which is best known for investigating white supremacist groups.`\
+https://www.nytimes.com/2026/08/12/us/politics/splc-fraud-conspiracy-charges.html
+
+**Treasury Scales Back Scrutiny of U.S. Shell Companies**\
+`The Trump administration will not enforce reporting requirements of the 2021 Corporate Transparency Act, which was intended to crack down on money laundering.`\
+https://www.nytimes.com/2026/08/12/us/politics/treasury-scrutiny-shell-companies.html
+
+**Forbes Fired Top Editor After Discovering He Received Secret $6 Million Payment**\
+`Randall Lane, the magazine’s chief content officer, received the money from the founder of Shook Research, which has worked with Forbes on content about wealth advisers.`\
+https://www.nytimes.com/2026/08/12/business/forbes-editor-fired.html
+
 **Two Killed in Military Helicopter Crash Near Fort Hood in Texas**\
 `The helicopter crashed in Salado, a small town about 20 miles from the military base, the authorities said.`\
 https://www.nytimes.com/2026/08/12/us/texas-helicopter-crash.html
