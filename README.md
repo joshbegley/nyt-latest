@@ -1,3 +1,11 @@
+**Son-in-Law of Sean Duffy Wins G.O.P. House Primary in Northern Wisconsin**\
+`Michael Alfonso, 26, had the support of the transportation secretary and an endorsement from President Trump.`\
+https://www.nytimes.com/2026/08/11/us/politics/michael-alfonso-wisconsin-republican-primary.html
+
+**Powerful ‘Derecho’ Storms Tear Through Midwest**\
+`Strong storms covered hundreds of miles and brought winds nearing 100 miles per hour.`\
+https://www.nytimes.com/2026/08/11/weather/storms-midwest-derecho.html
+
 **Rep. John Larson, a Longtime Lawmaker, Loses a Primary in Connecticut**\
 `In an upset, Luke Bronin, the former mayor of Hartford, won the Democratic nomination, capitalizing on calls for generational change.`\
 https://www.nytimes.com/2026/08/11/us/politics/bronin-larson-connecticut-primary-results.html
@@ -186,11 +194,7 @@ https://www.nytimes.com/2026/08/11/style/matthew-mcconaughey-movie-texas.html
 `If you’re in Europe, get ready to gaze at the sky. But not without the right glasses.`\
 https://www.nytimes.com/2026/08/11/world/total-eclipse-trump-secret-escape.html
 
-**Deported From the U.S., Trapped in a Prison in Africa**\
-`Roberto Mosquera, a Cuban immigrant who has lived in the United States since 1980 and completed a prison sentence in 1996, was arrested by ICE last year and sent to a prison in Eswatini, a country in Africa he’d never heard of. After a hunger strike, Mosquera obtained a phone and talked with Nicholas Casey of The New York Times Magazine to share what is happening there.`\
-https://www.nytimes.com/video/world/africa/100000011032450/deported-from-the-us-trapped-in-a-prison-in-africa.html
-
-**Election Live Updates: Democratic Socialist Underperforming Polls in Wisconsin**\
+**Election Live Updates: Democratic Socialist Locked in Unexpectedly Tight Race in Wisconsin**\
 `Francesca Hong, a democratic socialist who had polled strongly in the Democratic primary for Wisconsin governor, was locked in a close contest with the Milwaukee County executive. In another crucial race, Senator Darline Graham will face Representative Ralph Norman in a runoff for the G.O.P. nomination for the seat held by her late brother.`\
 https://www.nytimes.com/live/2026/08/11/us/elections-south-carolina-wisconsin
 

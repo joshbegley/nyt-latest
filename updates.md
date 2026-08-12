@@ -1,3 +1,11 @@
+**Rep. John Larson, a Longtime Lawmaker, Loses a Primary in Connecticut**\
+`In an upset, Luke Bronin, the former mayor of Hartford, won the Democratic nomination, capitalizing on calls for generational change.`\
+https://www.nytimes.com/2026/08/11/us/politics/bronin-larson-connecticut-primary-results.html
+
+**Election Live Updates: Democratic Socialist Underperforming Polls in Wisconsin**\
+`Francesca Hong, a democratic socialist who had polled strongly in the Democratic primary for Wisconsin governor, was locked in a close contest with the Milwaukee County executive. In another crucial race, Senator Darline Graham will face Representative Ralph Norman in a runoff for the G.O.P. nomination for the seat held by her late brother.`\
+https://www.nytimes.com/live/2026/08/11/us/elections-south-carolina-wisconsin
+
 **NYT Crossword Answers for Aug. 12, 2026**\
 `The gears are turning in Adrianne Baik’s crossword.`\
 https://www.nytimes.com/2026/08/11/crosswords/daily-puzzle-2026-08-12.html
