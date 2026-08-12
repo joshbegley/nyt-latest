@@ -1,3 +1,15 @@
+**Driver Sets Record for Hydrogen-Powered Vehicle at More Than 406 M.P.H.**\
+`Andy Green, a 64-year-old retired Royal Air Force pilot from Britain, was already the only person to break the sound barrier on land. “The ground comes at you very, very quickly,” he said.`\
+https://www.nytimes.com/2026/08/12/us/land-speed-record-utah-andy-green.html
+
+**Driver Who Broke Sound Barrier Sets Another Land-Speed Record**\
+`Andy Green, the only person to break the sound barrier on land, set a new world land-speed record for a hydrogen-powered vehicle, averaging 406.320 miles per hour in two runs at the Bonneville Salt Flats in Utah.`\
+https://www.nytimes.com/video/science/earth/100000011087587/andy-green-sound-barrier-speed-record-utah.html
+
+**Are Rogue A.I. Models Just a Marketing Stunt?**\
+`A.I. models are going rogue. On the “Hard Fork” podcast, the guest Chris Painter asserts that these events aren’t just elaborate marketing stunts — they’re real.`\
+https://www.nytimes.com/video/podcasts/100000011088898/are-rogue-ai-models-just-a-marketing-stunt.html
+
 **Watching Trump at the Patriot Games**\
 `Zolan Kanno-Youngs was at the finale of the Patriot Games, where President Trump made an appearance. He breaks down the role of sports in the Trump presidency on “The Call” with Natalie Kitroeff.`\
 https://www.nytimes.com/video/us/politics/100000011088835/watching-trump-at-the-patriot-games.html
@@ -153,14 +165,6 @@ https://www.nytimes.com/2026/08/12/briefing/today-in-short.html
 **Gulf Oil Giants Are Spending Billions to Build Ways Around Strait of Hormuz**\
 `Even if a cease-fire materializes, Gulf exporters recognize that relying strictly on the Strait of Hormuz is a risk they can no longer take.`\
 https://www.nytimes.com/2026/08/12/business/iran-war-hormuz-oil.html
-
-**Consumer Debt Data Shows ‘Overall’ Health Amid Persisting Divides**\
-`Homeowners with low fixed-rate mortgages lead a resilient picture of the economy. But many consumers are frustrated with declining real wages and other loans.`\
-https://www.nytimes.com/2026/08/12/business/consumer-debt-inflation.html
-
-**How Kennedy Helped Fuel Vaccine Skepticism**\
-`Robert F. Kennedy Jr. once mocked the threat of measles during a 2021 speech in Lancaster County, Pa. Now, local officials are racing to contain one of the country’s largest outbreaks. Teddy Rosenbluth, a reporter for Well covering health news, explains.`\
-https://www.nytimes.com/video/well/100000011073335/how-kennedy-fueled-vaccine-skepticism.html
 
 **Eclipse solar, en vivo: comienza la trayectoria de la totalidad**\
 `De Islandia a España, los observadores han acudido a los lugares donde, por corto tiempo, la Luna bloqueará completamente al Sol.`\
