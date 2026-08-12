@@ -1,3 +1,7 @@
+**A Rescue Effort After Colombia’s Earthquake**\
+`Our reporter Genevieve Glatsky, who is based in Colombia, witnesses the rescue of a buried earthquake survivor in the city of Cali.`\
+https://www.nytimes.com/video/world/americas/100000011086264/a-rescue-effort-after-colombias-earthquake.html
+
 **Tom Tiffany Wins Wisconsin’s Republican Primary for Governor**\
 `Tom Tiffany, a conservative from western Wisconsin, said he would try to lower taxes, bring transparency to health care and protect farmland.`\
 https://www.nytimes.com/2026/08/11/us/wisconsin-governor-republican-primary-tom-tiffany.html
