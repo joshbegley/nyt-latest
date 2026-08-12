@@ -1,3 +1,7 @@
+**Este año, El Niño es enorme y ya está cambiando el mundo**\
+`Se prevé que este fenómeno climático recurrente alcance su punto máximo a finales de 2026, pero ya está provocando periodos de sequía y pérdidas de cultivos en tres continentes.`\
+https://www.nytimes.com/es/2026/08/12/espanol/tiempo-y-clima/el-nino-mundo.html
+
 **Two Killed in Military Helicopter Crash Near Fort Hood in Texas**\
 `The Apache helicopter crashed in Salado, a small town about 20 miles from the military base, and set off a fire, the authorities said.`\
 https://www.nytimes.com/2026/08/12/us/texas-helicopter-crash.html

@@ -1,3 +1,7 @@
+**Palestinians Trapped by Settlers for Days as Israeli Army Shows Up, and Then Leaves**\
+`Israeli soldiers tried to disperse the settlers with tear gas. After the soldiers left, residents said, the settlers resumed their attacks.`\
+https://www.nytimes.com/2026/08/12/world/middleeast/west-bank-palestinians-israeli-settlers.html
+
 **Este año, El Niño es enorme y ya está cambiando el mundo**\
 `Se prevé que este fenómeno climático recurrente alcance su punto máximo a finales de 2026, pero ya está provocando periodos de sequía y pérdidas de cultivos en tres continentes.`\
 https://www.nytimes.com/es/2026/08/12/espanol/tiempo-y-clima/el-nino-mundo.html
