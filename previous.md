@@ -110,11 +110,11 @@ https://www.nytimes.com/2026/08/12/arts/design/zeitz-mocaa-director-elvira-dyang
 `Francesca Hong’s defeat in the Democratic primary for governor defied expectations and may have shown the democratic socialist wave cannot reach beyond urban centers.`\
 https://www.nytimes.com/2026/08/12/us/elections/david-crowley-wisconsin-governors-primary.html
 
-**Inflation Eased Slightly in July but Prices Remain Elevated as War Drags On**\
+**Inflation Eased Slightly in July, but Prices Remain Elevated as War Drags On**\
 `Though energy prices fell last month after their spring surge, other factors pushed up costs as the Fed considers raising interest rates.`\
 https://www.nytimes.com/2026/08/12/business/economy/what-to-know-about-the-report.html
 
-**Live Updates: Inflation Was Moderate in July, but Energy Prices Remain Elevated**\
+**Inflation Was Moderate in July, but Energy Prices Remain Elevated**\
 `The Consumer Price Index for July showed prices rose 3.4 percent from a year ago as the war in Iran dragged on.`\
 https://www.nytimes.com/live/2026/08/12/business/inflation-cpi-report
 

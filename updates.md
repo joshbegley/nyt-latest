@@ -1,3 +1,11 @@
+**Inflation Eased Slightly in July, but Prices Remain Elevated as War Drags On**\
+`Though energy prices fell last month after their spring surge, other factors pushed up costs as the Fed considers raising interest rates.`\
+https://www.nytimes.com/2026/08/12/business/economy/what-to-know-about-the-report.html
+
+**Inflation Was Moderate in July, but Energy Prices Remain Elevated**\
+`The Consumer Price Index for July showed prices rose 3.4 percent from a year ago as the war in Iran dragged on.`\
+https://www.nytimes.com/live/2026/08/12/business/inflation-cpi-report
+
 **How Scientists Use Eclipses for Research**\
 `It’s a chance not just to study the sun but also space weather, light pollution and even animal behavior.`\
 https://www.nytimes.com/2026/08/12/world/europe/eclipse-scientists.html
