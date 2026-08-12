@@ -1,3 +1,7 @@
+**Peggy Flanagan, a Progressive, Wins the Democratic Senate Primary in Minnesota**\
+`The victory by Minnesota’s lieutenant governor was the latest for the left-wing movement in the Midwest. She could become the first Native woman in the Senate.`\
+https://www.nytimes.com/2026/08/11/us/politics/minnesota-democratic-senate-primary-flanagan-craig.html
+
 **Trump Says Secret Service Ordered Air Force One Swap**\
 `Trump claims his secret plane was in more danger than the Air Force One decoy the public thought Trump was flying on.`\
 https://www.nytimes.com/2026/08/11/us/politics/trump-threat-plane-iran-decoy.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/08/11/us/politics/election-results-timing-wisconsin
 **The Evening: Primary Voters Go to the Polls**\
 `Plus, Iran exploits dwindling U.S. interceptors. Here’s the latest at the end of Tuesday.`\
 https://www.nytimes.com/2026/08/11/briefing/primaries-air-force-one.html
-
-**The 10 Japanese Pantry Staples You Need in Your Kitchen**\
-`Chefs weigh in on the essentials worth stocking and recommend their favorite brands.`\
-https://www.nytimes.com/2026/08/11/t-magazine/japanese-cooking-recipe-ingredients.html
 
 **Election Live Updates: Democratic Socialist Locked in Unexpectedly Tight Race in Wisconsin**\
 `Francesca Hong, a democratic socialist who had polled strongly in the Democratic primary for Wisconsin governor, was in a close contest with the Milwaukee County executive. In another crucial race, Senator Darline Graham will face Representative Ralph Norman in a runoff for the G.O.P. nomination for the seat held by her late brother.`\

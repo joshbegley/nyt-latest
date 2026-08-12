@@ -1,3 +1,7 @@
+**Peggy Flanagan, a Progressive, Wins the Democratic Senate Primary in Minnesota**\
+`The victory by Minnesota’s lieutenant governor was the latest for the left-wing movement in the Midwest. She could become the first Native woman in the Senate.`\
+https://www.nytimes.com/2026/08/11/us/politics/minnesota-democratic-senate-primary-flanagan-craig.html
+
 **Trump Says Secret Service Ordered Air Force One Swap**\
 `Trump claims his secret plane was in more danger than the Air Force One decoy the public thought Trump was flying on.`\
 https://www.nytimes.com/2026/08/11/us/politics/trump-threat-plane-iran-decoy.html

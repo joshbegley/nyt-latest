@@ -1,3 +1,7 @@
+**Lisa Demuth Wins Republican Primary for Governor of Minnesota**\
+`Lisa Demuth beat Mike Lindell, the MyPillow founder who was endorsed by President Trump.`\
+https://www.nytimes.com/2026/08/11/us/elections/minnesota-governor-republican-demuth.html
+
 **Peggy Flanagan, a Progressive, Wins the Democratic Senate Primary in Minnesota**\
 `The victory by Minnesota’s lieutenant governor was the latest for the left-wing movement in the Midwest. She could become the first Native woman in the Senate.`\
 https://www.nytimes.com/2026/08/11/us/politics/minnesota-democratic-senate-primary-flanagan-craig.html
@@ -190,12 +194,8 @@ https://www.nytimes.com/2026/08/11/arts/music/chuck-redd-kennedy-center.html
 `Six states are holding elections on Tuesday. The unofficial results will be known late Tuesday or early Wednesday.`\
 https://www.nytimes.com/2026/08/11/us/politics/election-results-timing-wisconsin-minnesota.html
 
-**The Evening: Primary Voters Go to the Polls**\
-`Plus, Iran exploits dwindling U.S. interceptors. Here’s the latest at the end of Tuesday.`\
-https://www.nytimes.com/2026/08/11/briefing/primaries-air-force-one.html
-
-**Election Live Updates: Democratic Socialist Locked in Unexpectedly Tight Race in Wisconsin**\
-`Francesca Hong, a democratic socialist who had polled strongly in the Democratic primary for Wisconsin governor, was in a close contest with the Milwaukee County executive. In another crucial race, Senator Darline Graham will face Representative Ralph Norman in a runoff for the G.O.P. nomination for the seat held by her late brother.`\
+**Election Live Updates: Progressive Wins Senate Nomination in Minnesota as Wisconsin Democratic Socialist Faces Tight Race**\
+`Lt. Gov. Peggy Flanagan of Minnesota will hope to keep a Senate seat in Democratic hands in November. In Wisconsin, Francesca Hong, a democratic socialist who had polled strongly in the Democratic primary for governor, was in an unexpectedly close contest with the Milwaukee County executive.`\
 https://www.nytimes.com/live/2026/08/11/us/elections-south-carolina-wisconsin
 
 **Race Too Close to Call in Democratic Primary for Michigan Senate Seat**\
