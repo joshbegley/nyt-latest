@@ -1,3 +1,11 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011087834/12vid-crowley-reintroduction-sot.html
+
+**Ward Churchill, Professor Who Challenged His Dismissal, Dies at 78**\
+`His inflammatory essay about the Sept. 11 attacks prompted his dismissal by the University of Colorado for unrelated research misconduct. A jury later found that he had been wrongfully terminated for his views.`\
+https://www.nytimes.com/2026/08/12/us/ward-churchill-dead.html
+
 **How to Safely Watch the Solar Eclipse, Even Without Glasses**\
 `If you plan to watch the solar eclipse, make sure your lenses offer enough protection. Alternatively, you can safely watch using household items.`\
 https://www.nytimes.com/2026/08/12/world/europe/watch-solar-eclipse-without-glasses-pinhole-camera-colander.html
@@ -157,12 +165,4 @@ https://www.nytimes.com/2026/08/12/nyregion/new-york-city-gave-students-free-tra
 **Book Review: ‘Hannah Arendt,’ by Thomas Meyer**\
 `An ungainly new biography by the German philosopher Thomas Meyer purports to situate Arendt in the context of her own era.`\
 https://www.nytimes.com/2026/08/12/books/review/hannah-arendt-thomas-meyer.html
-
-**Trump Tariffs Force Some Canadian Companies to Move South of the Border**\
-`If President Trump moves ahead with 50 percent tariffs on a wide range of Canadian products later this month, some companies may only survive by relocating to the United States.`\
-https://www.nytimes.com/2026/08/12/world/canada/canada-tariffs-manufacturing-trade-trump.html
-
-**Heat Kills Hundreds of Workers Each Year. A Postal Carrier Was One.**\
-`About half a dozen states explicitly protect workers from excessive heat. And some others, like Texas, prevent local governments from passing their own laws.`\
-https://www.nytimes.com/2026/08/12/business/extreme-heat-worker-deaths.html
 
