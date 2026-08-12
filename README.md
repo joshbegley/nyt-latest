@@ -1,3 +1,11 @@
+**Rat Emoji Lands Man Accused of Illegal Sports Betting Behind Bars**\
+`De’Niro Laster, who was accused of conspiring with an N.B.A. player to bet on basketball, was trying to intimidate witnesses by posting on social media, prosecutors said.`\
+https://www.nytimes.com/2026/08/11/nyregion/rat-emoji-nba-gambling-jail.html
+
+**In Wisconsin Governor Primary, Polls Have Shown a Progressive Democrat With a Big Lead**\
+`Francesca Hong, a democratic socialist, has consistently led in a Democratic primary that struggled to settle on a field of candidates.`\
+https://www.nytimes.com/2026/08/11/us/politics/wisconsin-democratic-primary-governor-polling.html
+
 **It Started As a Hot Tub Harbor Cruise. It Became a Rescue Mission.**\
 `The captain of a party boat gave the fullest account of the rescue of 12 passengers near Liberty Island. A mother and daughter died and the incident is now part of a federal investigation.`\
 https://www.nytimes.com/2026/08/11/nyregion/nyc-capsized-boat-passengers-help.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/08/11/opinion/abdul-el-sayed-michigan-jews-israel-m
 **Spotify Will Label A.I. Artists and Avoid Promoting Them**\
 `The new label, which will begin to be applied next month, is an effort by the streaming service to be more transparent about A.I.-generated music on its app.`\
 https://www.nytimes.com/2026/08/11/arts/music/spotify-artificial-intelligence-music.html
-
-**Ocasio-Cortez Opened Up About Freezing Her Eggs. She Got Women Talking.**\
-`Many women say being open about the fertility treatment is a form of empowerment. But critics say all the talk can be misleading.`\
-https://www.nytimes.com/2026/08/11/us/politics/egg-freezing-aoc.html
-
-**Everything You Need for the Perfect Beach Day: The Best Sunscreen, Swimsuits and Gear**\
-`A roundup of the gear and accessories that five seasoned regulars never regret having toted onto the sand.`\
-https://www.nytimes.com/2026/08/11/t-magazine/beach-summer-essentials-sunscreen-swimsuits.html
 
 **Race Too Close to Call in Democratic Primary for Michigan Senate Seat**\
 `Dr. Abdul El-Sayed, a progressive, and Representative Haley Stevens, a centrist, both gave speeches with the winner still undeclared. Kansas, Missouri, Virginia and Washington also voted.`\
