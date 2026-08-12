@@ -1,3 +1,7 @@
+**Zhu Rongji, Former Premier Who Pushed China to a Market Economy, Dies at 97**\
+`As a vice premier and then premier, he helped transform China into the world’s leading manufacturing power and led his country into the World Trade Organization.`\
+https://www.nytimes.com/2026/08/12/world/asia/zhu-rongji-dead.html
+
 **All the President’s Planes**\
 `Last month, President Trump made a dramatic exit after a visit to Turkey, prompting concerns about the safety of his planes. This week, we learned it was all a ruse.`\
 https://www.nytimes.com/2026/08/12/podcasts/the-daily/air-force-one-trump-planes-ruse.html
@@ -126,13 +130,13 @@ https://www.nytimes.com/2026/08/12/t-magazine/fall-layers-fashion-90s.html
 `This word has appeared in four articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/08/12/learning/word-of-the-day-munificent.html
 
-**Rethinking the Wedding Party**\
-`For some couples, the answer is no. Instead, they're shrinking their wedding parties down to a sibling or a close friend, remixing traditional roles or skipping the wedding party altogether.`\
-https://www.nytimes.com/2026/08/12/style/do-you-really-need-a-big-wedding-party.html
-
 **She’ll Make You Rethink How to Wear a Shirt**\
 `Charlotte Collet helps many of the biggest brands in fashion. But there’s lessons for us all in her styling.`\
 https://www.nytimes.com/2026/08/12/style/shell-make-you-rethink-how-to-wear-a-shirt.html
+
+**Rethinking the Wedding Party**\
+`For some couples, the answer is no. Instead, they're shrinking their wedding parties down to a sibling or a close friend, remixing traditional roles or skipping the wedding party altogether.`\
+https://www.nytimes.com/2026/08/12/style/do-you-really-need-a-big-wedding-party.html
 
 **Blood Tests to Predict Alzheimer’s Are Causing Confusion and Distress**\
 `The tests aren’t a guarantee that someone will develop dementia, but that hasn’t stopped people from getting them.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/live/2026/08/12/us/primary-election-results-wi-mn-sc
 **Toda una generación busca cómo dejar los antidepresivos**\
 `Muchas personas sienten que los antidepresivos bloquean sus emociones verdaderas, pero no cuentan con orientación sobre cómo dejar estos fármacos.`\
 https://www.nytimes.com/es/2026/08/12/espanol/opinion/antidepresivos-como-dejarlos.html
-
-**N.Y.C. Students Are Sick of Using Flimsy Paper Cards to Ride the Subway**\
-`A new survey of students who use a free version of the OMNY payment system say most of their problems would be fixed if the card was made out of plastic.`\
-https://www.nytimes.com/2026/08/12/nyregion/subway-omny-card-students-mta.html
 
