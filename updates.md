@@ -1,3 +1,7 @@
+**Woman Arrested After Confessing to Starting Nevada Fire, Officials Say**\
+`The woman was arrested on suspicion of arson and possession of a controlled substance. Officials said she set multiple fires that later became part of the Bug fire, which has burned over 66,000 acres.`\
+https://www.nytimes.com/2026/08/12/us/fred-mountain-fire-arson-arrest.html
+
 **Karoline Leavitt Steps Down as White House Press Secretary**\
 `President Trump announced on Wednesday in a Truth Social post that Karoline Leavitt, his press secretary, would step down at the end of the month.`\
 https://www.nytimes.com/video/us/politics/100000011089013/karoline-leavitt-leaving-white-house.html
