@@ -1,3 +1,7 @@
+**La IA ofrece una nueva esperanza a los hombres con infertilidad**\
+`Una nueva tecnología podría facilitar que los hombres con conteos de espermatozoides extremadamente bajos tengan hijos biológicos.`\
+https://www.nytimes.com/es/2026/08/11/espanol/ciencia-y-tecnologia/hombres-infertilidad-espermatozoides.html
+
 **See How Trump’s Secret Air Force One Swap Unfolded**\
 `The extraordinary subterfuge was aimed at protecting an American president who has been in Iran’s cross hairs for years.`\
 https://www.nytimes.com/2026/08/11/us/politics/trump-air-force-one-switch.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/video/world/europe/100000011084952/europe-heat-wave-weat
 **Angie Craig Has Cash Edge Over Peggy Flanagan in Minnesota’s Democratic Senate Primary**\
 `Representative Angie Craig has benefited from nearly $10 million in spending from groups whose donors remain hidden, giving her an advantage in her Senate primary against Lt. Gov. Peggy Flanagan.`\
 https://www.nytimes.com/2026/08/11/us/politics/minnesota-angie-craig-fundraising-advantage.html
-
-**Democrats Accuse Trump Administration of Stonewalling Major Transit Projects**\
-`Congressional Democrats express concern that the delays involve “political considerations.”`\
-https://www.nytimes.com/2026/08/11/upshot/democrats-trump-frozen-transit-funds.html
 
 **Election Live Updates: Democratic Socialist Locked in Unexpectedly Tight Race in Wisconsin**\
 `Francesca Hong, a democratic socialist who had polled strongly in the Democratic primary for Wisconsin governor, was in a close contest with the Milwaukee County executive. In another crucial race, Senator Darline Graham will face Representative Ralph Norman in a runoff for the G.O.P. nomination for the seat held by her late brother.`\

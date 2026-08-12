@@ -1,3 +1,11 @@
+**See How Trump’s Secret Air Force One Swap Unfolded**\
+`The extraordinary subterfuge was aimed at protecting an American president who has been in Iran’s cross hairs for years.`\
+https://www.nytimes.com/2026/08/11/us/politics/trump-air-force-one-switch.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011085852/11vid-trump-plane-board.html
+
 **Election Live Updates: Democratic Socialist Locked in Unexpectedly Tight Race in Wisconsin**\
 `Francesca Hong, a democratic socialist who had polled strongly in the Democratic primary for Wisconsin governor, was in a close contest with the Milwaukee County executive. In another crucial race, Senator Darline Graham will face Representative Ralph Norman in a runoff for the G.O.P. nomination for the seat held by her late brother.`\
 https://www.nytimes.com/live/2026/08/11/us/elections-south-carolina-wisconsin

@@ -1,3 +1,11 @@
+**See How Trump’s Secret Air Force One Swap Unfolded**\
+`The extraordinary subterfuge was aimed at protecting an American president who has been in Iran’s cross hairs for years.`\
+https://www.nytimes.com/2026/08/11/us/politics/trump-air-force-one-switch.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011085852/11vid-trump-plane-board.html
+
 **Matt Little, a Progressive, Wins a Democratic House Primary in Minnesota**\
 `Mr. Little, a former mayor and state senator, beat two other candidates. He focused on promises of banning corporate money from politics and supporting Medicare for all.`\
 https://www.nytimes.com/2026/08/11/us/politics/berg-little-klein-minnesota-primary.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/08/11/us/politics/minnesota-angie-craig-fundraising
 **Democrats Accuse Trump Administration of Stonewalling Major Transit Projects**\
 `Congressional Democrats express concern that the delays involve “political considerations.”`\
 https://www.nytimes.com/2026/08/11/upshot/democrats-trump-frozen-transit-funds.html
-
-**Restaurant Review: Bar Susanne in New York**\
-`At Bar Susanne in Williamsburg, the chef Jackie Carnesi is bucking expectations with her seafood and raw bar menu — but the French fries are still outstanding.`\
-https://www.nytimes.com/2026/08/11/dining/restaurant-review-bar-susanne-nyc.html
-
-**Cristiano Ronaldo and Georgina Rodríguez Get Married**\
-`After nearly a decade together and five children in their blended family, the couple reportedly married in an intimate ceremony.`\
-https://www.nytimes.com/2026/08/11/style/cristiano-ronaldo-georgina-rodriguez-married.html
 
 **Election Live Updates: Democratic Socialist Locked in Unexpectedly Tight Race in Wisconsin**\
 `Francesca Hong, a democratic socialist who had polled strongly in the Democratic primary for Wisconsin governor, was in a close contest with the Milwaukee County executive. In another crucial race, Senator Darline Graham will face Representative Ralph Norman in a runoff for the G.O.P. nomination for the seat held by her late brother.`\
