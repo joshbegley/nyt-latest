@@ -1,3 +1,7 @@
+**A Rescue Effort After Colombia’s Earthquake**\
+`Our reporter Genevieve Glatsky, who is based in Colombia, witnesses the rescue of a buried earthquake survivor in the city of Cali.`\
+https://www.nytimes.com/video/world/americas/100000011086264/a-rescue-effort-after-colombias-earthquake.html
+
 **Fighter Jets Intercept Aircraft Over Trump’s Patriot Games in Ohio**\
 `It was at least the fourth time that an aircraft has violated the no-fly zone near President Trump this week.`\
 https://www.nytimes.com/2026/08/11/us/politics/norad-jets-trump-patriot-games-ohio.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/video/world/europe/100000011085655/europeans-scramble-to
 **Election Live Updates: Lindsey Graham’s Sister Advances to Runoff in South Carolina Senate Primary**\
 `Senator Darline Graham will face Representative Ralph Norman in a runoff for the G.O.P. nomination for the seat held by her late brother. Polls have closed in five other states, including Minnesota and Wisconsin, where a democratic socialist is seeking the nomination for governor.`\
 https://www.nytimes.com/live/2026/08/11/us/elections-south-carolina-wisconsin
-
-**Richard Lingeman, Cultural Historian and Biographer, Dies at 95**\
-`He spent decades as a magazine editor and wrote an acclaimed history of small-town America, as well as biographies of the novelists Theodore Dreiser and Sinclair Lewis.`\
-https://www.nytimes.com/2026/08/11/books/richard-lingeman-dead.html
 
 **Race Too Close to Call in Democratic Primary for Michigan Senate Seat**\
 `Dr. Abdul El-Sayed, a progressive, and Representative Haley Stevens, a centrist, both gave speeches with the winner still undeclared. Kansas, Missouri, Virginia and Washington also voted.`\

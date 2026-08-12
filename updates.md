@@ -1,3 +1,7 @@
+**Tom Tiffany Wins Wisconsin’s Republican Primary for Governor**\
+`Tom Tiffany, a conservative from western Wisconsin, said he would try to lower taxes, bring transparency to health care and protect farmland.`\
+https://www.nytimes.com/2026/08/11/us/wisconsin-governor-republican-primary-tom-tiffany.html
+
 **Fighter Jets Intercept Aircraft Over Trump’s Patriot Games in Ohio**\
 `It was at least the fourth time that an aircraft has violated the no-fly zone near President Trump this week.`\
 https://www.nytimes.com/2026/08/11/us/politics/norad-jets-trump-patriot-games-ohio.html
