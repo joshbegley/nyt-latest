@@ -1,3 +1,7 @@
+**Telescope Spots Two Black Holes on the Cusp of Merging**\
+`New images from the James Webb telescope show a galaxy with a trio of supermassive black holes. Two of them appear to be locked in a tight tango.`\
+https://www.nytimes.com/2026/08/12/science/space/james-webb-telescope-black-holes-merging.html
+
 **All the President’s Planes**\
 `Last month, President Trump made a dramatic exit after a visit to Turkey, prompting concerns about the safety of his planes. This week, we learned it was all a ruse.`\
 https://www.nytimes.com/2026/08/12/podcasts/the-daily/air-force-one-trump-planes-ruse.html
