@@ -1,3 +1,19 @@
+**5 Things to Know About Michele Tafoya, Republican Senate Candidate in Minnesota**\
+`Ms. Tafoya, the favorite to become the state’s Republican nominee for Senate, spent years as an N.F.L. sideline reporter and has leaned into her sports background.`\
+https://www.nytimes.com/2026/08/11/us/politics/michele-tafoya-minnesota-republican-senate.html
+
+**Rubio, Bessent and Miller Traveled on Decoy Plane From Turkey Without Trump**\
+`Some of President Trump’s top officials traveled on the original Air Force One, which the president secretly disembarked.`\
+https://www.nytimes.com/2026/08/11/us/politics/decoy-plane-passengers.html
+
+**5 Things to Know About Peggy Flanagan, Democratic Senate Candidate in Minnesota**\
+`Ms. Flanagan, the progressive lieutenant governor of Minnesota, is a former organizer who could become the first Native American woman in the Senate.`\
+https://www.nytimes.com/2026/08/11/us/politics/peggy-flanagan-minnesota-senate-candidate.html
+
+**5 Things to Know About Angie Craig, Democratic Senate Hopeful in Minnesota**\
+`Ms. Craig, a moderate Democratic congresswoman, flipped a swing House seat in 2018 to become Minnesota’s first openly gay member of Congress.`\
+https://www.nytimes.com/2026/08/11/us/politics/angie-craig-minnesota-democratic-senate.html
+
 **Abdul El-Sayed Deleted Old Posts and Videos Defending ‘Defund’ and Floating an End to Fireworks**\
 `The removed posts from Dr. Abdul El-Sayed, the Democratic nominee for Senate in Michigan, immediately set off Republican attacks.`\
 https://www.nytimes.com/2026/08/11/us/politics/abdul-el-sayed-fireworks-police-videos.html
@@ -173,22 +189,6 @@ https://www.nytimes.com/2026/08/11/arts/music/arlene-smith-dead.html
 **Trump Sues New York and Other States Over In-State Tuition for Migrants**\
 `The administration’s lawsuits, which included Connecticut and Vermont, challenged the legality of giving undocumented students in-state tuition.`\
 https://www.nytimes.com/2026/08/11/nyregion/trump-lawsuit-new-york-tuition-immigrants.html
-
-**My Summer of Bob Dylan**\
-`Hear tracks inspired by his Long Hot Summer Tour, including “My Back Pages” and “Mississippi.”`\
-https://www.nytimes.com/2026/08/11/arts/music/amplifier-newsletter-bob-dylan.html
-
-**Muere Jake Whisenant, famoso escalador, en una caída**\
-`Las autoridades de California dijeron que murió en un accidente mientras escalaba. Estableció un récord en 2024 al escalar la ruta Lurking Fear de El Capitán en menos de tres horas.`\
-https://www.nytimes.com/es/2026/08/11/espanol/estados-unidos/muere-jake-whisenant-accidente.html
-
-**An Electric Motorcycle Revolution**\
-`With gas prices high, people in developing countries are lining up to buy battery-powered bikes. We took a spin around Lahore, Pakistan, on a small-but-mighty one.`\
-https://www.nytimes.com/2026/08/11/climate/electric-motorcycle-boom-developing-countries.html
-
-**Mamdani to Abandon Plan to Replace Elizabeth Street Garden With Housing**\
-`After more than a decade, the fight over an effort to build affordable housing on the site of a community garden in Manhattan is winding down.`\
-https://www.nytimes.com/2026/08/11/nyregion/mamdani-elizabeth-street-garden-housing.html
 
 **Race Too Close to Call in Democratic Primary for Michigan Senate Seat**\
 `Dr. Abdul El-Sayed, a progressive, and Representative Haley Stevens, a centrist, both gave speeches with the winner still undeclared. Kansas, Missouri, Virginia and Washington also voted.`\

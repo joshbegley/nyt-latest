@@ -1,3 +1,19 @@
+**5 Things to Know About Michele Tafoya, Republican Senate Candidate in Minnesota**\
+`Ms. Tafoya, the favorite to become the state’s Republican nominee for Senate, spent years as an N.F.L. sideline reporter and has leaned into her sports background.`\
+https://www.nytimes.com/2026/08/11/us/politics/michele-tafoya-minnesota-republican-senate.html
+
+**Rubio, Bessent and Miller Traveled on Decoy Plane From Turkey Without Trump**\
+`Some of President Trump’s top officials traveled on the original Air Force One, which the president secretly disembarked.`\
+https://www.nytimes.com/2026/08/11/us/politics/decoy-plane-passengers.html
+
+**5 Things to Know About Peggy Flanagan, Democratic Senate Candidate in Minnesota**\
+`Ms. Flanagan, the progressive lieutenant governor of Minnesota, is a former organizer who could become the first Native American woman in the Senate.`\
+https://www.nytimes.com/2026/08/11/us/politics/peggy-flanagan-minnesota-senate-candidate.html
+
+**5 Things to Know About Angie Craig, Democratic Senate Hopeful in Minnesota**\
+`Ms. Craig, a moderate Democratic congresswoman, flipped a swing House seat in 2018 to become Minnesota’s first openly gay member of Congress.`\
+https://www.nytimes.com/2026/08/11/us/politics/angie-craig-minnesota-democratic-senate.html
+
 **Abdul El-Sayed Deleted Old Posts and Videos Defending ‘Defund’ and Floating an End to Fireworks**\
 `The removed posts from Dr. Abdul El-Sayed, the Democratic nominee for Senate in Michigan, immediately set off Republican attacks.`\
 https://www.nytimes.com/2026/08/11/us/politics/abdul-el-sayed-fireworks-police-videos.html
