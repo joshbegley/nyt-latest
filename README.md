@@ -1,3 +1,7 @@
+**Total Eclipse Blacks Out European Sun**\
+`Plus, takeaways from yesterday’s primary elections. Here’s the latest at the end of Wednesday.`\
+https://www.nytimes.com/2026/08/12/briefing/eclipse-primaries-ice.html
+
 **Woman Arrested After Confessing to Starting Nevada Fire, Officials Say**\
 `The woman was arrested on suspicion of arson and possession of a controlled substance. Officials said she set multiple fires that later became part of the Bug fire, which has burned over 66,000 acres.`\
 https://www.nytimes.com/2026/08/12/us/fred-mountain-fire-arson-arrest.html
@@ -161,10 +165,6 @@ https://www.nytimes.com/2026/08/12/headway/the-lessons-of-progress.html
 **Girl and Boy Scouts, Together and Apart**\
 `Readers recount their experiences as girl scouts, and what sets them apart from boy scouts. Also: The Trump plane ploy; an act of kindness.`\
 https://www.nytimes.com/2026/08/12/opinion/girl-boy-scouts.html
-
-**Prediction Firms Are Flagging Insider Traders. Many Will Not Face Charges.**\
-`The agency that polices the industry does not have the staffing, the legal tools or the will to broadly crack down on wagers that are easily manipulated, experts say.`\
-https://www.nytimes.com/2026/08/12/us/politics/prediction-markets-insider-trading.html
 
 **Por primera vez en décadas, el día se hace noche en Europa bajo un eclipse solar total**\
 `De Islandia a España, los observadores acudieron a los lugares donde, por corto tiempo, la Luna bloqueó completamente al Sol.`\
