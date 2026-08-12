@@ -1,3 +1,7 @@
+**Center-Left Candidate Defeats Democratic Socialist in Wisconsin’s Governor Primary**\
+`The upset victory by David Crowley, the Milwaukee County executive, over Francesca Hong sets up a more traditional general election in November.`\
+https://www.nytimes.com/2026/08/12/us/elections/wisconsin-governor-democratic-primary-hong-crowley.html
+
 **Telescope Spots Two Black Holes on the Cusp of Merging**\
 `New images from the James Webb telescope show a galaxy with a trio of supermassive black holes. Two of them appear to be locked in a tight tango.`\
 https://www.nytimes.com/2026/08/12/science/space/telescope-spots-two-black-holes-on-the-cusp-of-merging.html
