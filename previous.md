@@ -1,3 +1,7 @@
+**Safety Subterfuge**\
+`We look at President Trump’s exit from Turkey after last month’s NATO summit.`\
+https://www.nytimes.com/2026/08/12/briefing/trump-turkey-air-force-one.html
+
 **Zhu Rongji, Former Premier Who Pushed China to a Market Economy, Dies at 97**\
 `As a vice premier and then premier, he helped transform China into the world’s leading manufacturing power and led his country into the World Trade Organization.`\
 https://www.nytimes.com/2026/08/12/world/asia/zhu-rongji-dead.html
@@ -190,11 +194,7 @@ https://www.nytimes.com/2026/08/12/science/space/james-webb-telescope-black-hole
 `The upset victory by David Crowley, the Milwaukee County executive, over Francesca Hong sets up a more traditional general election in November.`\
 https://www.nytimes.com/2026/08/12/us/elections/wisconsin-governor-democratic-primary-hong-crowley.html
 
-**Election Live Updates: Democratic Socialist Is Upset in Tight Wisconsin Primary for Governor**\
+**Election Live Updates: Democratic Socialist Falls in Tight Wisconsin Primary for Governor**\
 `Francesca Hong, who had led in opinion polls, lost to David Crowley, a moderate Democrat. In Minnesota, Lt. Gov. Peggy Flanagan, a progressive, won the Democratic Senate primary.`\
 https://www.nytimes.com/live/2026/08/12/us/primary-election-results-wi-mn-sc
-
-**Toda una generación busca cómo dejar los antidepresivos**\
-`Muchas personas sienten que los antidepresivos bloquean sus emociones verdaderas, pero no cuentan con orientación sobre cómo dejar estos fármacos.`\
-https://www.nytimes.com/es/2026/08/12/espanol/opinion/antidepresivos-como-dejarlos.html
 
