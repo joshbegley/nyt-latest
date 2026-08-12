@@ -1,3 +1,11 @@
+**Ted Decker, CEO of Home Depot, Is Taking Medical Leave**\
+`Ted Decker is expected to return in a few months, and two executives have been appointed to oversee his duties in the interim.`\
+https://www.nytimes.com/2026/08/12/business/home-depot-ceo.html
+
+**ICE Agent Points Gun at Woman in Car in Virginia, Videos Show**\
+`The agent accused the woman of trying to run him over with her vehicle, a claim she denied. It was the latest tense encounter between a federal agent and a driver.`\
+https://www.nytimes.com/2026/08/12/us/ice-gun-driver-virginia-immigration.html
+
 **Three People Are Killed at a Minnesota Day Care Center**\
 `The authorities in Hopkins, Minn., said two adults and a child, all family members, were killed at an in-home day care center.`\
 https://www.nytimes.com/2026/08/12/us/stabbing-minnesota-day-care.html
@@ -141,16 +149,4 @@ https://www.nytimes.com/2026/08/12/business/economy/cpi-report-july-inflation-da
 **Inflation Was Moderate in July, but Energy Prices Remain Elevated**\
 `The Consumer Price Index for July showed prices rose 3.4 percent from a year ago as the war in Iran dragged on.`\
 https://www.nytimes.com/live/2026/08/12/business/inflation-cpi-report
-
-**Safety Subterfuge**\
-`We look at President Trump’s exit from Turkey after last month’s NATO summit.`\
-https://www.nytimes.com/2026/08/12/briefing/trump-turkey-air-force-one.html
-
-**Zhu Rongji, Former Premier Who Pushed China to a Market Economy, Dies at 97**\
-`As a vice premier and then premier, he helped transform China into the world’s leading manufacturing power and led his country into the World Trade Organization.`\
-https://www.nytimes.com/2026/08/12/world/asia/zhu-rongji-dead.html
-
-**All the President’s Planes**\
-`Last month, President Trump made a dramatic exit after a visit to Turkey, prompting concerns about the safety of his planes. This week, we learned it was all a ruse.`\
-https://www.nytimes.com/2026/08/12/podcasts/the-daily/air-force-one-trump-planes-ruse.html
 

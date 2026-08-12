@@ -1,3 +1,11 @@
+**Ted Decker, CEO of Home Depot, Is Taking Medical Leave**\
+`Ted Decker is expected to return in a few months, and two executives have been appointed to oversee his duties in the interim.`\
+https://www.nytimes.com/2026/08/12/business/home-depot-ceo.html
+
+**ICE Agent Points Gun at Woman in Car in Virginia, Videos Show**\
+`The agent accused the woman of trying to run him over with her vehicle, a claim she denied. It was the latest tense encounter between a federal agent and a driver.`\
+https://www.nytimes.com/2026/08/12/us/ice-gun-driver-virginia-immigration.html
+
 **Three People Are Killed at a Minnesota Day Care Center**\
 `The authorities in Hopkins, Minn., said two adults and a child, all family members, were killed at an in-home day care center.`\
 https://www.nytimes.com/2026/08/12/us/stabbing-minnesota-day-care.html
