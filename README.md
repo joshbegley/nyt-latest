@@ -1,3 +1,7 @@
+**Lemon Ricotta Cake**\
+`This easy lemony cake is topped with apricot preserves, which gives an especially sunny presentation. It’s great with sliced fresh peaches, nectarines or berries alongside.`\
+https://www.nytimes.com/video/dining/100000011089468/lemon-ricotta-cake.html
+
 **Zhu Rongji, Former Premier Who Transformed China Into a Market Economy, Dies at 97**\
 `Zhu Rongji, the former Chinese premier, died in Beijing on Wednesday at the age of 97. He helped guide China toward a market-based economy in the 1990s and later into the World Trade Organization that skyrocketed the country’s exports.`\
 https://www.nytimes.com/video/world/asia/100000011088702/zhu-rongji-former-premier-who-transformed-china-into-a-market-economy-dies-at-97.html
@@ -169,10 +173,6 @@ https://www.nytimes.com/video/us/politics/100000011088255/a-look-inside-trumps-p
 **Democrats Pull Back From the Edge of Disaster. Again.**\
 `It seems that centrists and the left can work the pragmatic side of the street.`\
 https://www.nytimes.com/2026/08/12/opinion/democrats-wisconsin-midterms-dsa.html
-
-**Eurovision Bans Countries in War Zones From Hosting**\
-`The event’s organizers would not say whether that included Israel, but its participation has been a matter of contention during the war in Gaza.`\
-https://www.nytimes.com/2026/08/12/arts/music/eurovision-war-zones-israel.html
 
 **Por primera vez en décadas, el día se hace noche en Europa bajo un eclipse solar total**\
 `De Islandia a España, los observadores acudieron a los lugares donde, por corto tiempo, la Luna bloqueó completamente al Sol.`\

@@ -1,3 +1,7 @@
+**Palestinians Trapped by Settlers for Days as Israeli Army Shows Up, and Then Leaves**\
+`The episode casts a spotlight on the army’s struggle to curtail settler violence and protect Palestinians living in the occupied West Bank.`\
+https://www.nytimes.com/2026/08/12/world/middleeast/west-bank-palestinians-israeli-settlers.html
+
 **Zhu Rongji, Former Premier Who Transformed China Into a Market Economy, Dies at 97**\
 `Zhu Rongji, the former Chinese premier, died in Beijing on Wednesday at the age of 97. He helped guide China toward a market-based economy in the 1990s and later into the World Trade Organization that skyrocketed the country’s exports.`\
 https://www.nytimes.com/video/world/asia/100000011088702/zhu-rongji-former-premier-who-transformed-china-into-a-market-economy-dies-at-97.html
