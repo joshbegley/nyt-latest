@@ -1,3 +1,15 @@
+**Son-in-Law of Sean Duffy Wins G.O.P. House Primary in Northern Wisconsin**\
+`Michael Alfonso, 26, had the support of the transportation secretary and an endorsement from President Trump.`\
+https://www.nytimes.com/2026/08/11/us/politics/michael-alfonso-wisconsin-republican-primary.html
+
+**Powerful ‘Derecho’ Storms Tear Through Midwest**\
+`Strong storms covered hundreds of miles and brought winds nearing 100 miles per hour.`\
+https://www.nytimes.com/2026/08/11/weather/storms-midwest-derecho.html
+
+**Election Live Updates: Democratic Socialist Locked in Unexpectedly Tight Race in Wisconsin**\
+`Francesca Hong, a democratic socialist who had polled strongly in the Democratic primary for Wisconsin governor, was locked in a close contest with the Milwaukee County executive. In another crucial race, Senator Darline Graham will face Representative Ralph Norman in a runoff for the G.O.P. nomination for the seat held by her late brother.`\
+https://www.nytimes.com/live/2026/08/11/us/elections-south-carolina-wisconsin
+
 **Rep. John Larson, a Longtime Lawmaker, Loses a Primary in Connecticut**\
 `In an upset, Luke Bronin, the former mayor of Hartford, won the Democratic nomination, capitalizing on calls for generational change.`\
 https://www.nytimes.com/2026/08/11/us/politics/bronin-larson-connecticut-primary-results.html
