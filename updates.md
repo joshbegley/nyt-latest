@@ -1,3 +1,7 @@
+**With Big Choices Ahead, Ocasio-Cortez Navigates New Territory**\
+`Representative Alexandria Ocasio-Cortez’s decision to share her decision to freeze her eggs, the news that her longtime relationship had ended and talk of a presidential run have only intensified the debates that swirl around her.`\
+https://www.nytimes.com/2026/08/12/us/politics/with-big-choices-ahead-ocasio-cortez-navigates-new-territory.html
+
 **Three Questions for Democrats After an Eye-Opening Loss for Progressives**\
 `Democratic voters in key battlegrounds are showing themselves to be fiercely split. The party has a lot to hash out between now and 2028.`\
 https://www.nytimes.com/2026/08/12/us/politics/david-crowley-francesca-hong-democrats-wisconsin.html

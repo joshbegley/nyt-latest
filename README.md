@@ -1,3 +1,11 @@
+**Hawaii Braces for a Potential Storm Named Lala**\
+`Hurricane forecasters are predicting a tropical storm, potentially a hurricane, may bring heavy rainfall and strong winds to the Big Island starting Friday.`\
+https://www.nytimes.com/2026/08/12/weather/hawaii-braces-for-a-possible-hurricane-named-lala.html
+
+**As Europe Faces Heat Waves and Wildfires, Travelers Are Forced to Adapt**\
+`Soaring temperatures, widespread wildfires and dried-up rivers are transforming tourism across the continent. Here’s how travelers are responding.`\
+https://www.nytimes.com/2026/08/12/travel/europe-travel-tourism-wildfires-heat-waves.html
+
 **With Big Choices Ahead, Ocasio-Cortez Navigates New Territory**\
 `Representative Alexandria Ocasio-Cortez’s decision to share her decision to freeze her eggs, the news that her longtime relationship had ended and talk of a presidential run have only intensified the debates that swirl around her.`\
 https://www.nytimes.com/2026/08/12/us/politics/with-big-choices-ahead-ocasio-cortez-navigates-new-territory.html
@@ -157,10 +165,6 @@ https://www.nytimes.com/2026/08/12/science/mothra-telescope-helix-nebula.html
 **Look Up at the Sky Tonight. The Perseid Meteor Shower Will Awe You.**\
 `Experiencing awe makes us happier, healthier and more fulfilled. Why not watch the Perseid meteor shower to have a bit more awe in your life?`\
 https://www.nytimes.com/2026/08/12/opinion/perseid-meteor-shower-awe-inspiring.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/us/politics/100000011087834/12vid-crowley-reintroduction-sot.html
 
 **Eclipse solar, en vivo: comienza la trayectoria de la totalidad**\
 `De Islandia a España, los observadores han acudido a los lugares donde, por corto tiempo, la Luna bloqueará completamente al Sol.`\
