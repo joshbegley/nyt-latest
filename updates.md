@@ -1,3 +1,7 @@
+**Europeans, Braced for 5th Heat Wave of 2026, Have Had Enough**\
+`With temperatures set to soar as high as 109 degrees Fahrenheit (43 Celsius) this week, Europeans and tourists say that summer in Europe has lost its appeal.`\
+https://www.nytimes.com/2026/08/12/world/europe/europe-fifth-heat-wave.html
+
 **Live Updates: In Europe, the Total Solar Eclipse Is Only Hours Away**\
 `From Iceland to Spain, people have flocked to places where, briefly, the moon will completely block the sun.`\
 https://www.nytimes.com/live/2026/08/12/world/solar-eclipse-2026-updates

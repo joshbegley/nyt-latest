@@ -1,3 +1,7 @@
+**Europeans, Braced for 5th Heat Wave of 2026, Have Had Enough**\
+`With temperatures set to soar as high as 109 degrees Fahrenheit (43 Celsius) this week, Europeans and tourists say that summer in Europe has lost its appeal.`\
+https://www.nytimes.com/2026/08/12/world/europe/europe-fifth-heat-wave.html
+
 **Live Updates: In Europe, the Total Solar Eclipse Is Only Hours Away**\
 `From Iceland to Spain, people have flocked to places where, briefly, the moon will completely block the sun.`\
 https://www.nytimes.com/live/2026/08/12/world/solar-eclipse-2026-updates
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/08/12/theater/heated-rivalry-musicals-edinburgh-fri
 **He Was Deported to Eswatini in Southern Africa. He May Never Go Free.**\
 `As the Trump administration sends a growing number of immigrants to countries they have no connection to, some find themselves imprisoned with no way out.`\
 https://www.nytimes.com/2026/08/12/magazine/deportation-immigrants-prison-eswatini.html
-
-**Even With Space Cops and Magic Rings, ‘Lanterns’ Keeps It Real**\
-`HBO’s next big bet in the DC Universe is more like a buddy-cop drama than the usual comic-book adaptation. Fans are in for a few surprises.`\
-https://www.nytimes.com/2026/08/12/arts/television/lanterns-hbo-dc-comics.html
 
