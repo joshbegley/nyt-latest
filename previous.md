@@ -1,3 +1,7 @@
+**Trump Is Sued Over Plan to Sell Early Access to His Truth Social Posts**\
+`The lawsuit filed in federal court said President Trump “stands to gain financially by giving ‘market-moving’ government information to those who are willing and able to pay his personal company.”`\
+https://www.nytimes.com/2026/08/12/us/politics/trump-truth-social-lawsuit.html
+
 **Karoline Leavitt, Trump’s Press Secretary, to Depart White House**\
 `President Trump said that Ms. Leavitt, who recently gave birth to her second child, would be leaving to spend time with her family.`\
 https://www.nytimes.com/2026/08/12/us/politics/karoline-leavitt-trump-press-secretary.html
@@ -161,10 +165,6 @@ https://www.nytimes.com/2026/08/12/insider/new-york-city-housing.html
 **Maps: Tracking Tropical Storm Cristobal**\
 `See the likely path and wind arrival times for Cristobal`\
 https://www.nytimes.com/interactive/2026/08/12/weather/cristobal-map-path-tracker.html
-
-**For Blakeman, Trump Could Make and Break His Bid to Lead New York**\
-`Bruce Blakeman, who is vying to become the state’s second Republican governor in the last 50 years, pushes President Trump’s agenda even as he avoids mentioning his name.`\
-https://www.nytimes.com/2026/08/12/nyregion/bruce-blakeman-governor-ny.html
 
 **Eclipse solar, en vivo: comienza la trayectoria de la totalidad**\
 `De Islandia a España, los observadores han acudido a los lugares donde, por corto tiempo, la Luna bloqueará completamente al Sol.`\

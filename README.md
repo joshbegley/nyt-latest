@@ -7,7 +7,7 @@ https://www.nytimes.com/2026/08/12/us/politics/trump-truth-social-lawsuit.html
 https://www.nytimes.com/2026/08/12/us/politics/karoline-leavitt-trump-press-secretary.html
 
 **A Bright Spot in Colombia as Rescuers Free Quake Victim**\
-`A single image shows the obstacles facing emergency workers as they try to unearth people from the rubble.`\
+`(No description)`\
 https://www.nytimes.com/2026/08/12/world/americas/colombia-earthquake-rescue.html
 
 **3 Ex-Georgia Deputies Used Flock Cameras to Stalk People, Sheriff Says**\
@@ -150,7 +150,7 @@ https://www.nytimes.com/2026/08/12/us/ice-gun-driver-virginia-immigration.html
 `The authorities in Hopkins, Minn., said two adults and a child, all family members, were killed at an in-home day care center.`\
 https://www.nytimes.com/2026/08/12/us/stabbing-minnesota-day-care.html
 
-**Maps: Tracking a Potential Tropical Cyclone near Hawaii**\
+**Maps: Tracking a Potential Tropical Cyclone Near Hawaii**\
 `See the likely path and wind arrival times`\
 https://www.nytimes.com/interactive/2026/08/12/weather/hawaii-storm-map-path-tracker.html
 
@@ -166,8 +166,8 @@ https://www.nytimes.com/2026/08/12/insider/new-york-city-housing.html
 `See the likely path and wind arrival times for Cristobal`\
 https://www.nytimes.com/interactive/2026/08/12/weather/cristobal-map-path-tracker.html
 
-**Eclipse solar, en vivo: comienza la trayectoria de la totalidad**\
-`De Islandia a España, los observadores han acudido a los lugares donde, por corto tiempo, la Luna bloqueará completamente al Sol.`\
+**Por primera vez en décadas, el día se hace noche en Europa bajo un eclipse solar total**\
+`De Islandia a España, los observadores acudieron a los lugares donde, por corto tiempo, la Luna bloqueó completamente al Sol.`\
 https://www.nytimes.com/live/2026/08/12/espanol/eclipse-solar-total
 
 **Live Updates: First Total Eclipse in Europe in Decades Turns Day to Night**\

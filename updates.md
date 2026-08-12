@@ -1,3 +1,7 @@
+**Trump Is Sued Over Plan to Sell Early Access to His Truth Social Posts**\
+`The lawsuit filed in federal court said President Trump “stands to gain financially by giving ‘market-moving’ government information to those who are willing and able to pay his personal company.”`\
+https://www.nytimes.com/2026/08/12/us/politics/trump-truth-social-lawsuit.html
+
 **Which Trump Officials Joined Him on His Secret Flight Out of Turkey?**\
 `The White House aides Natalie Harp and Dan Scavino were among those traveling with the president on a military jet.`\
 https://www.nytimes.com/2026/08/12/us/politics/trump-air-force-one-secret-flight-passengers.html
