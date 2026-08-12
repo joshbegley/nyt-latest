@@ -1,3 +1,7 @@
+**How a Reporter Finds Human Stories in Housing**\
+`Mihir Zaveri shares lessons learned over nearly six years of reporting on rising rents, complex zoning regulations and wily plumbers.`\
+https://www.nytimes.com/2026/08/12/insider/new-york-city-housing.html
+
 **Maps: Tracking Tropical Storm Cristobal**\
 `See the likely path and wind arrival times for Cristobal`\
 https://www.nytimes.com/interactive/2026/08/12/weather/cristobal-map-path-tracker.html
@@ -149,8 +153,4 @@ https://www.nytimes.com/2026/08/12/podcasts/the-headlines/takeaways-primaries-de
 **NYT Strands Hints for Aug. 13, 2026**\
 `Scroll down for hints and conversation about the puzzle for Thursday, Aug. 13, 2026.`\
 https://www.nytimes.com/2026/08/12/crosswords/strands-sidekick-893.html
-
-**Today’s Wordle Hints for August 13, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, Aug. 13, 2026.`\
-https://www.nytimes.com/2026/08/12/crosswords/wordle-review-1881.html
 
