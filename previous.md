@@ -1,3 +1,15 @@
+**Even Some Cabinet Members Didn’t Join Trump’s Secret Flight. Here’s Who Did.**\
+`The White House aides Natalie Harp and Dan Scavino were among those traveling with the president on a military jet.`\
+https://www.nytimes.com/2026/08/12/us/politics/trump-air-force-one-secret-flight-passengers.html
+
+**The Perseids, Summer’s Strongest Meteor Shower, Will Peak Tonight**\
+`Unlike the total solar eclipse that swept across Europe, the Perseids can be seen at night by anyone in the Northern Hemisphere.`\
+https://www.nytimes.com/2026/08/12/science/perseids-meteor-eclipse.html
+
+**What Will A.I. Do When Humans Aren’t Involved?**\
+`As humans’ deferral to A.I. systems increases, the “Hard Fork” guest Chris Painter suggests examining the goals, values and principles of A.I. when it’s left unchecked.`\
+https://www.nytimes.com/video/podcasts/100000011088938/what-will-ai-do-when-humans-arent-involved.html
+
 **Driver Sets Record for Hydrogen-Powered Vehicle at More Than 406 M.P.H.**\
 `Andy Green, a 64-year-old retired Royal Air Force pilot from Britain, was already the only person to break the sound barrier on land. “The ground comes at you very, very quickly,” he said.`\
 https://www.nytimes.com/2026/08/12/us/land-speed-record-utah-andy-green.html
@@ -31,7 +43,7 @@ https://www.nytimes.com/2026/08/12/weather/hawaii-braces-for-a-possible-hurrican
 https://www.nytimes.com/2026/08/12/travel/europe-travel-tourism-wildfires-heat-waves.html
 
 **With Big Choices Ahead, Ocasio-Cortez Navigates New Territory**\
-`Representative Alexandria Ocasio-Cortez’s decision to share her decision to freeze her eggs, the news that her longtime relationship had ended and talk of a presidential run have only intensified the debates that swirl around her.`\
+`Representative Alexandria Ocasio-Cortez’s sharing of her decision to freeze her eggs, the news that her longtime relationship had ended and talk of a presidential run have intensified the debates that swirl around her.`\
 https://www.nytimes.com/2026/08/12/us/politics/with-big-choices-ahead-ocasio-cortez-navigates-new-territory.html
 
 **Three Questions for Democrats After an Eye-Opening Loss for Progressives**\
@@ -153,18 +165,6 @@ https://www.nytimes.com/2026/08/12/magazine/google-social-media-ethics.html
 **ICE Plans to Give Officers Gloves That Can Deliver Electric Shocks**\
 `The Department of Homeland Security described the gloves as a “de-escalation device,” but critics said they could encourage agents to use more force.`\
 https://www.nytimes.com/2026/08/12/us/politics/ice-gloves-shock.html
-
-**A Space Expert Hoped to Use the Eclipse as Science Class. The D.J.s Had Other Plans.**\
-`Mar Carretero-Castrillo, an astrophysicist, returned to her remote village in Spain to be in the path of totality. Hundreds of  partygoers came too.`\
-https://www.nytimes.com/2026/08/12/world/europe/spain-eclipse-astrophysicist-festival.html
-
-**Today, In Short**\
-`Flip-flops. Grades. And no-cook recipes.`\
-https://www.nytimes.com/2026/08/12/briefing/today-in-short.html
-
-**Gulf Oil Giants Are Spending Billions to Build Ways Around Strait of Hormuz**\
-`Even if a cease-fire materializes, Gulf exporters recognize that relying strictly on the Strait of Hormuz is a risk they can no longer take.`\
-https://www.nytimes.com/2026/08/12/business/iran-war-hormuz-oil.html
 
 **Eclipse solar, en vivo: comienza la trayectoria de la totalidad**\
 `De Islandia a España, los observadores han acudido a los lugares donde, por corto tiempo, la Luna bloqueará completamente al Sol.`\

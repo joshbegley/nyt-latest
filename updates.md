@@ -1,3 +1,19 @@
+**Even Some Cabinet Members Didn’t Join Trump’s Secret Flight. Here’s Who Did.**\
+`The White House aides Natalie Harp and Dan Scavino were among those traveling with the president on a military jet.`\
+https://www.nytimes.com/2026/08/12/us/politics/trump-air-force-one-secret-flight-passengers.html
+
+**The Perseids, Summer’s Strongest Meteor Shower, Will Peak Tonight**\
+`Unlike the total solar eclipse that swept across Europe, the Perseids can be seen at night by anyone in the Northern Hemisphere.`\
+https://www.nytimes.com/2026/08/12/science/perseids-meteor-eclipse.html
+
+**What Will A.I. Do When Humans Aren’t Involved?**\
+`As humans’ deferral to A.I. systems increases, the “Hard Fork” guest Chris Painter suggests examining the goals, values and principles of A.I. when it’s left unchecked.`\
+https://www.nytimes.com/video/podcasts/100000011088938/what-will-ai-do-when-humans-arent-involved.html
+
+**With Big Choices Ahead, Ocasio-Cortez Navigates New Territory**\
+`Representative Alexandria Ocasio-Cortez’s sharing of her decision to freeze her eggs, the news that her longtime relationship had ended and talk of a presidential run have intensified the debates that swirl around her.`\
+https://www.nytimes.com/2026/08/12/us/politics/with-big-choices-ahead-ocasio-cortez-navigates-new-territory.html
+
 **Driver Sets Record for Hydrogen-Powered Vehicle at More Than 406 M.P.H.**\
 `Andy Green, a 64-year-old retired Royal Air Force pilot from Britain, was already the only person to break the sound barrier on land. “The ground comes at you very, very quickly,” he said.`\
 https://www.nytimes.com/2026/08/12/us/land-speed-record-utah-andy-green.html

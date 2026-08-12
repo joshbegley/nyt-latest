@@ -168,7 +168,7 @@ https://www.nytimes.com/2026/08/12/us/politics/ice-gloves-shock.html
 
 **Eclipse solar, en vivo: comienza la trayectoria de la totalidad**\
 `De Islandia a España, los observadores han acudido a los lugares donde, por corto tiempo, la Luna bloqueará completamente al Sol.`\
-https://www.nytimes.com/live/2026/08/12/espanol/eclipse-solar-total
+https://www.nytimes.com/es/live/2026/08/12/espanol/eclipse-solar-total
 
 **Live Updates: First Total Eclipse in Europe in Decades Turns Day to Night**\
 `From Iceland to Spain, people flocked to viewing spots to see the moon completely block out the sun.`\
