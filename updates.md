@@ -1,3 +1,11 @@
+**Democrats Pull Back From the Edge of Disaster. Again.**\
+`It seems that centrists and the left can work the pragmatic side of the street.`\
+https://www.nytimes.com/2026/08/12/opinion/democrats-wisconsin-midterms-dsa.html
+
+**Live Updates: Europe’s First Total Solar Eclipse in Decades Is Turning Day to Dark**\
+`From Iceland to Spain, people have flocked to viewing spots to see the moon completely block out the sun.`\
+https://www.nytimes.com/live/2026/08/12/world/solar-eclipse-2026-updates
+
 **Eurovision Bans Countries in War Zones From Hosting**\
 `The event’s organizers would not say whether that included Israel, but its participation has been a matter of contention during the war in Gaza.`\
 https://www.nytimes.com/2026/08/12/arts/music/eurovision-war-zones-israel.html
