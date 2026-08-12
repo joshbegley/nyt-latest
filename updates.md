@@ -1,3 +1,7 @@
+**Total Eclipse Blacks Out European Sun**\
+`Plus, takeaways from yesterday’s primary elections. Here’s the latest at the end of Wednesday.`\
+https://www.nytimes.com/2026/08/12/briefing/eclipse-primaries-ice.html
+
 **Woman Arrested After Confessing to Starting Nevada Fire, Officials Say**\
 `The woman was arrested on suspicion of arson and possession of a controlled substance. Officials said she set multiple fires that later became part of the Bug fire, which has burned over 66,000 acres.`\
 https://www.nytimes.com/2026/08/12/us/fred-mountain-fire-arson-arrest.html
