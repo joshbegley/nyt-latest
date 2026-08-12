@@ -1,3 +1,15 @@
+**How Scientists Use Eclipses for Research**\
+`It’s a chance not just to study the sun but also space weather, light pollution and even animal behavior.`\
+https://www.nytimes.com/2026/08/12/world/europe/eclipse-scientists.html
+
+**‘The Wrong Girls’ Review: Dazed, Confused and Psychic**\
+`Kristen Stewart and Alia Shawkat play telepathic best friends in this stoner comedy where a laboratory-engineered hallucinogen is on the loose.`\
+https://www.nytimes.com/2026/08/12/movies/the-wrong-girls-review.html
+
+**My Kids Think It’s Creepy That I Google People Before I Meet Them. Are They Right?**\
+`It’s not as if I am examining F.B.I. files or classified information!`\
+https://www.nytimes.com/2026/08/12/magazine/google-social-media-ethics.html
+
 **ICE Plans to Give Officers Gloves That Can Deliver Electric Shocks**\
 `The Department of Homeland Security described the gloves as a “de-escalation device,” but critics said they could encourage agents to use more force.`\
 https://www.nytimes.com/2026/08/12/us/politics/ice-gloves-shock.html
@@ -141,16 +153,4 @@ https://www.nytimes.com/2026/08/12/world/asia/thailand-gun-permits-school-shooti
 **Barcos pesqueros de Ecuador son blanco de misteriosos atacantes**\
 `Las tripulaciones ecuatorianas que trabajan en aguas del Pacífico han sido blanco de un misterioso grupo equipado con drones. Al parecer, algunos marineros han perdido la vida.`\
 https://www.nytimes.com/es/2026/08/12/espanol/america-latina/ecuador-ataques-barcos.html
-
-**Does My Face-Lift Make Me a Bad Feminist?**\
-`I, like many a young woman, was once wildly judgmental about plastic surgery. Now I’m not so sure.`\
-https://www.nytimes.com/2026/08/12/opinion/face-lift-feminism-plastic-surgery.html
-
-**Even Elite Colleges Have Become Trade Schools**\
-`Short-term return on investment is an impoverished view of a college education.`\
-https://www.nytimes.com/2026/08/12/opinion/elite-college-trade-school.html
-
-**Los peatones mayores tienen más riesgo de morir en accidentes de tránsito**\
-`Además de algunos factores que los hacen más vulnerables a las colisiones, las consecuencias de las lesiones son mayores a medida que se envejece.`\
-https://www.nytimes.com/es/2026/08/12/espanol/accidentes-muertes-transito-adultos.html
 
