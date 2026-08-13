@@ -1,3 +1,11 @@
+**Electric Thrills**\
+`Electric motorcycle sales are surging in Pakistan, as wartime prices accelerate the pivot away from fossil fuels in the developing world.`\
+https://www.nytimes.com/2026/08/13/world/pakistan-e-bikes-europe-heat.html
+
+**Who Is Ahead in the Providence, Rhode Island Mayor Race? Latest 2026 Polls**\
+`Track the latest polls in the Providence, R.I., mayoral election.`\
+https://www.nytimes.com/interactive/polls/providence-rhode-island-mayor-election-polls-2026.html
+
 **What We Know About the Storms Battering the Midwest**\
 `A lingering weather system has brought severe flooding and intense winds — including a few tornadoes — to Illinois, Indiana and Ohio.`\
 https://www.nytimes.com/2026/08/13/us/storm-damage-midwest.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/video/opinion/100000011079571/bryan-johnsons-psychedelic
 **The Case for Trying to Live to 200**\
 `Bryan Johnson has become famous for his goal of defying death, but what does he actually want to do with a longer life? On “Interesting Times,” the tech founder describes his vision for a humanity with radically longer lifespans.`\
 https://www.nytimes.com/video/opinion/100000011079572/the-case-for-trying-to-live-to-200.html
-
-**Former Catholic Bishop Is Convicted of Sexual Abuse, Australian News Outlets Say**\
-`A court found Christopher Alan Saunders, the former bishop of Broome, guilty of sexually abusing two men, the Australian Broadcasting Corporation reported.`\
-https://www.nytimes.com/2026/08/13/world/australia/bishop-christopher-saunders-abuse.html
-
-**Maps: Tracking Tropical Storm Hernan**\
-`See the likely path and wind arrival times for Hernan`\
-https://www.nytimes.com/interactive/2026/08/13/weather/hernan-map-path-tracker.html
 
