@@ -1,3 +1,7 @@
+**Former Catholic Bishop Is Convicted of Sexual Abuse, Australian News Outlets Say**\
+`A court found Christopher Alan Saunders, the former bishop of Broome, guilty of sexually abusing two men, the Australian Broadcasting Corporation reported.`\
+https://www.nytimes.com/2026/08/13/world/australia/bishop-christopher-saunders-abuse.html
+
 **Maps: Tracking Tropical Storm Hernan**\
 `See the likely path and wind arrival times for Hernan`\
 https://www.nytimes.com/interactive/2026/08/13/weather/hernan-map-path-tracker.html
@@ -87,7 +91,7 @@ https://www.nytimes.com/2026/08/13/podcasts/the-truth-behind-an-nfl-injury-consp
 https://www.nytimes.com/2026/08/13/opinion/interesting-times-bryan-johnson.html
 
 **36 Hours in Bergen, Norway: Things to Do and See**\
-`The city, on Norway’s west coast, is no hayseed cousin to other Scandinavian capitals, with a thriving cultural scene that ranges from high art to heavy metal.`\
+`The city on Norway's west coast is no hayseed cousin to the cosmopolitan capitals of Scandinavia, with a thriving cultural scene that ranges from high art to heavy metal.`\
 https://www.nytimes.com/interactive/2026/08/13/travel/things-to-do-bergen-norway.html
 
 **The Special Melons Starring on Summer Menus**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/13/travel/solar-eclipse-2027-morocco-egypt.html
 **These New Yorkers Are Updating the ‘NYCHA Look’ With Renter-Friendly DIY Projects**\
 `Equipped with paint and peel-and-stick tile, D.I.Y. enthusiasts are showing other public housing residents how to beautify their spaces.`\
 https://www.nytimes.com/2026/08/13/realestate/new-york-nycha-apartment-upgrades.html
-
-**‘Nimrods’ Review: American Idiots**\
-`A band of misfit teens aspires to make their musical dreams come true in this Green Day-produced rock comedy.`\
-https://www.nytimes.com/2026/08/13/movies/nimrods-review.html
 

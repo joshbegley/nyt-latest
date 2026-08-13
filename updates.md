@@ -1,3 +1,11 @@
+**Former Catholic Bishop Is Convicted of Sexual Abuse, Australian News Outlets Say**\
+`A court found Christopher Alan Saunders, the former bishop of Broome, guilty of sexually abusing two men, the Australian Broadcasting Corporation reported.`\
+https://www.nytimes.com/2026/08/13/world/australia/bishop-christopher-saunders-abuse.html
+
+**36 Hours in Bergen, Norway: Things to Do and See**\
+`The city on Norway's west coast is no hayseed cousin to the cosmopolitan capitals of Scandinavia, with a thriving cultural scene that ranges from high art to heavy metal.`\
+https://www.nytimes.com/interactive/2026/08/13/travel/things-to-do-bergen-norway.html
+
 **Maps: Tracking Tropical Storm Hernan**\
 `See the likely path and wind arrival times for Hernan`\
 https://www.nytimes.com/interactive/2026/08/13/weather/hernan-map-path-tracker.html
