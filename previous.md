@@ -62,7 +62,7 @@ https://www.nytimes.com/2026/08/13/technology/personaltech/pangram-ai-detector-t
 `One of the planned executions, in Tennessee, comes months after the state called off the execution of another inmate when medical staff could not find a vein for the lethal injection.`\
 https://www.nytimes.com/2026/08/13/us/tennessee-alabama-oklahoma-executions.html
 
-**The Great Scam on the High Seas**\
+**It Was a Great Scam While It Lasted**\
 `U.S. tariff rates are not for rent.`\
 https://www.nytimes.com/2026/08/13/opinion/us-tariffs-economy-trade-transshipment-scam.html
 
