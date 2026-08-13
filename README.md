@@ -1,3 +1,15 @@
+**Wagner Moura Puts Us on Trial in Edinburgh**\
+`Our chief theater critic, Helen Shaw, is in Scotland for the Edinburgh International Festival. For her, Christiane Jatahy’s modern reimagining of Henrik Ibsen’s “Enemy of the People” was a difficult but valuable theater experience.`\
+https://www.nytimes.com/video/theater/100000011065965/wagner-moura-puts-us-on-trial-in-edinburgh.html
+
+**Trump’s Immigration Spies**\
+`And California asks, “Are Jews an ethnic group?” Here’s the latest at the end of Thursday.`\
+https://www.nytimes.com/2026/08/13/briefing/immigration-supremecourt-jews.html
+
+**Ex-Officer Held in New Orleans Mass Shooting Plot Is Freed Without Charges**\
+`Law enforcement officials had said that Christopher Gillum, a former police officer in North Carolina, planned to attack a large festival. He was released without charges.`\
+https://www.nytimes.com/2026/08/13/us/mass-shooting-new-orleans-ex-police-released.html
+
 **Appeals Court Sidesteps Key Question Over Trump’s Use of Alien Enemies Act**\
 `The court dismissed a case over the Alien Enemies Act in a messy conclusion to a long-running legal battle that had seemed destined to end up before the Supreme Court.`\
 https://www.nytimes.com/2026/08/13/us/politics/alien-enemies-act-trump-appeals-court.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/08/13/us/california-jewish-ethnic-identity.html
 **Read the Ruling Dismissing an Antisemitism Lawsuit Against Harvard**\
 `The decision from a federal judge in Boston dealt a blow to the Trump administration’s efforts to force the university into a settlement.`\
 https://www.nytimes.com/interactive/2026/08/13/us/govuscourtsmad2978016501.html
-
-**Judge Dismisses Trump Administration’s Antisemitism Case Against Harvard**\
-`The government argued the university had not done enough to combat antisemitism during campus protests. A judge called the incidents “isolated and episodic.”`\
-https://www.nytimes.com/2026/08/13/us/harvard-antisemitism-case-dismissed.html
-
-**U.S. Investigated Left-Leaning Groups During Minnesota Immigration Crackdown**\
-`The government conducted expansive surveillance, infiltrated group chats and obtained financial records of organizations never accused of crimes.`\
-https://www.nytimes.com/2026/08/13/us/politics/dhs-inquiry-immigration-protests-minnesota.html
-
-**After Supreme Court Losses, Trump Keeps Pushing**\
-`Is the administration defying the court or pursuing lawful alternatives?`\
-https://www.nytimes.com/2026/08/13/us/politics/the-docket-supreme-court-trump-losses.html
 
