@@ -1,3 +1,7 @@
+**The Truth Behind an N.F.L. Injury Conspiracy Theory**\
+`What’s hurting the San Francisco 49ers? “It’s time to talk to a scientist.”`\
+https://www.nytimes.com/2026/08/13/podcasts/the-truth-behind-an-nfl-injury-conspiracy-theory.html
+
 **An 8 P.M. Bedtime, Oxygen Chambers, Blood Tests Galore. What Would You Do for a Longer Life?**\
 `The tech mogul Bryan Johnson is trying to design the blueprint for defying death.`\
 https://www.nytimes.com/2026/08/13/opinion/interesting-times-bryan-johnson.html
