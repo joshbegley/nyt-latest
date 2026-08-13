@@ -1,3 +1,7 @@
+**‘An English Summer Is Not the Same Anymore’**\
+`With forecasters issuing a warning for very high temperatures, this summer is on track to be one of the hottest yet.`\
+https://www.nytimes.com/2026/08/13/world/europe/britain-heat-records.html
+
 **NYT Crossword Answers for Aug. 13, 2026**\
 `Killian Olson helps us find a perfect fit.`\
 https://www.nytimes.com/2026/08/12/crosswords/daily-puzzle-2026-08-13.html

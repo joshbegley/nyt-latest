@@ -1,3 +1,19 @@
+**Fui el cardiólogo de Dick Cheney. Trump no luce bien y deberíamos saber por qué**\
+`El presidente de EE. UU. no se ha visto bien. Los estadounidenses deberían obtener respuestas a estas siete preguntas.`\
+https://www.nytimes.com/es/2026/08/13/espanol/opinion/trump-problemas-salud.html
+
+**Quote of the Day: Join a Game and Meet a Star**\
+`Quotation of the Day for Thursday, August 13, 2026.`\
+https://www.nytimes.com/2026/08/13/pageoneplus/quote-of-the-day-join-a-game-and-meet-a-star.html
+
+**Russian Blockade of Major Ukrainian Ports Threatens Global Grain Supplies**\
+`The deadly strikes are part of a long-running maritime battle with Ukraine and echo battles over other key shipping routes around the world.`\
+https://www.nytimes.com/2026/08/13/world/europe/russia-ukraine-ports-odesa-cargo-ship-attacks.html
+
+**What to Know About Thursday’s Special Election in Clacton: Farage vs. Binface**\
+`Nigel Farage, the right-wing populist leader, forced a by-election in his parliamentary seat of Clacton after he came under pressure over his financial declarations.`\
+https://www.nytimes.com/2026/08/13/world/europe/britain-special-election-farage-binface-what-to-know.html
+
 **‘An English Summer Is Not the Same Anymore’**\
 `With forecasters issuing a warning for very high temperatures, this summer is on track to be one of the hottest yet.`\
 https://www.nytimes.com/2026/08/13/world/europe/britain-heat-records.html
@@ -173,18 +189,6 @@ https://www.nytimes.com/2026/08/12/us/land-speed-record-utah-andy-green.html
 **Driver Who Broke Sound Barrier Sets Another Land-Speed Record**\
 `Andy Green, the only person to break the sound barrier on land, set a new world land-speed record for a hydrogen-powered vehicle, averaging 406.320 miles per hour in two runs at the Bonneville Salt Flats in Utah.`\
 https://www.nytimes.com/video/science/earth/100000011087587/andy-green-sound-barrier-speed-record-utah.html
-
-**Are Rogue A.I. Models Just a Marketing Stunt?**\
-`A.I. models are going rogue. On the “Hard Fork” podcast, the guest Chris Painter asserts that these events aren’t just elaborate marketing stunts — they’re real.`\
-https://www.nytimes.com/video/podcasts/100000011088898/are-rogue-ai-models-just-a-marketing-stunt.html
-
-**Watching Trump at the Patriot Games**\
-`Zolan Kanno-Youngs, a White House correspondent for The New York Times, was at the finale of the Patriot Games, an athletic event marking the U.S.’s 250th birthday, where President Trump made an appearance. Mr. Kanno-Youngs breaks down the role of sports in the Trump presidency on “The Call” with Natalie Kitroeff.`\
-https://www.nytimes.com/video/us/politics/100000011088835/watching-trump-at-the-patriot-games.html
-
-**The Good List: 6 Things to Add Joy to Your Day**\
-`Cosmic reset, chatting outside and a very old cat.`\
-https://www.nytimes.com/2026/08/12/briefing/12-the-good-list-meteor-shower-cat-glyph.html
 
 **Por primera vez en décadas, el día se hace noche en Europa bajo un eclipse solar total**\
 `De Islandia a España, los observadores acudieron a los lugares donde, por corto tiempo, la Luna bloqueó completamente al Sol.`\
