@@ -1,3 +1,11 @@
+**Maps: Tracking Tropical Storm Hernan**\
+`See the likely path and wind arrival times for Hernan`\
+https://www.nytimes.com/interactive/2026/08/13/weather/hernan-map-path-tracker.html
+
+**Luigi Mangione, Facing Stalking Charges in Federal Court, Is Expected to Plead Guilty**\
+`Mr. Mangione faces stalking charges in connection with the killing of an executive in Manhattan. Mr. Mangione could always change his mind at the last minute. A separate murder trial is set to begin next month.`\
+https://www.nytimes.com/2026/08/13/nyregion/luigi-mangione-guilty-plea-federal.html
+
 **How Bob Iger and Joshua Kushner’s Bromance Led Them to Lakers**\
 `Bob Iger, the former chief executive of Disney, and Josh Kushner, the venture capitalist, are buying the Los Angeles Lakers. Their wives set them up.`\
 https://www.nytimes.com/2026/08/13/business/bob-iger-joshua-kushner-lakers.html
