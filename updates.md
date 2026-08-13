@@ -1,3 +1,7 @@
+**Train Derails Near Town of Lewes in East Sussex, U.K.**\
+`Emergency services said they were working at the scene of a derailment near Lewes, in East Sussex, on Thursday. Eighteen other people were less badly hurt.`\
+https://www.nytimes.com/2026/08/13/world/europe/train-derails-southern-england.html
+
 **Readers Choose the Best Thrillers and Mysteries of the Century**\
 `The backbone of the list: nine novels by Tana French, and five novels each from John le Carré, Kate Atkinson and Mick Herron.`\
 https://www.nytimes.com/2026/08/13/books/readers-list-100-best-thrillers-century.html

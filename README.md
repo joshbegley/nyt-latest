@@ -1,3 +1,7 @@
+**Carlos Garcia, Activist Who Helped Revive the Lower East Side, Dies at 80**\
+`He led a Puerto Rican group known as Charas in turning a crumbling public school into a community center, rehabilitating a desolate slice of New York.`\
+https://www.nytimes.com/2026/08/13/nyregion/carlos-chino-garcia-dead.html
+
 **Readers Choose the Best Thrillers and Mysteries of the Century**\
 `The backbone of the list: nine novels by Tana French, and five novels each from John le Carré, Kate Atkinson and Mick Herron.`\
 https://www.nytimes.com/2026/08/13/books/readers-list-100-best-thrillers-century.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/13/business/zhu-rongji-death-mourning-china.html
 **Settler Violence Traps West Bank Palestinians**\
 `A group of Israeli settlers has trapped two Palestinian families in the West Bank since Sunday, highlighting the Israeli army’s struggle to contain settler violence.`\
 https://www.nytimes.com/video/world/middleeast/100000011090034/israeli-settlers-west-bank-palestinians-violence.html
-
-**A City Mobilizes Against a Stubborn Health Threat: Mosquitoes**\
-`The city of Belém in northern Brazil was overwhelmed by an outbreak of dengue two years ago. An all-out municipal effort has reduced cases and may offer lessons to American cities.`\
-https://www.nytimes.com/2026/08/13/health/mosquitoes-brazil-health-threat.html
 
