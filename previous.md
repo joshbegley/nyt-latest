@@ -1,3 +1,11 @@
+**Hallmark Channel cumple 25 años con películas donde el amor siempre triunfa**\
+`Cuando la vida parece difícil, la Navidad en julio puede ayudar.`\
+https://www.nytimes.com/es/2026/08/13/espanol/cultura/hallmark-peliculas.html
+
+**Una rutina de 25 minutos para mejorar tu equilibrio y fuerza**\
+`Estos ejercicios de una sola pierna pueden ayudarte a moverte con más facilidad y a evitar lesiones.`\
+https://www.nytimes.com/es/2026/08/13/espanol/rutina-25-minutos-equilibrio-fuerza.html
+
 **La crisis migratoria entre España y Marruecos fue avivada por las redes sociales**\
 `Según los expertos, una cascada de desinformación contribuyó directamente a la llegada de migrantes en el enclave español, que resultó en unas 90 muertes.`\
 https://www.nytimes.com/es/2026/08/13/espanol/negocios/espana-migrantes-marruecos-redes-sociales.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/08/12/us/politics/trump-truth-social-lawsuit.html
 **Karoline Leavitt, Trump’s White House Press Secretary, Is Leaving the Role**\
 `President Trump said that Ms. Leavitt, who recently gave birth to her second child, would be leaving to spend time with her family.`\
 https://www.nytimes.com/2026/08/12/us/politics/karoline-leavitt-trump-press-secretary.html
-
-**A Bright Spot in Colombia as Rescuers Free Quake Victim**\
-`(No description)`\
-https://www.nytimes.com/2026/08/12/world/americas/colombia-earthquake-rescue.html
-
-**3 Ex-Georgia Deputies Used Flock Cameras to Stalk People, Sheriff Says**\
-`The former Bibb County deputies were arrested this week amid a growing national debate over Flock cameras, which can be found on roads in every state but Alaska.`\
-https://www.nytimes.com/2026/08/12/us/georgia-sheriffs-flock-cameras-stalking.html
 
 **Por primera vez en décadas, el día se hace noche en Europa bajo un eclipse solar total**\
 `De Islandia a España, los observadores acudieron a los lugares donde, por corto tiempo, la Luna bloqueó completamente al Sol.`\

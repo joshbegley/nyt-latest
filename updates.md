@@ -1,3 +1,11 @@
+**Hallmark Channel cumple 25 años con películas donde el amor siempre triunfa**\
+`Cuando la vida parece difícil, la Navidad en julio puede ayudar.`\
+https://www.nytimes.com/es/2026/08/13/espanol/cultura/hallmark-peliculas.html
+
+**Una rutina de 25 minutos para mejorar tu equilibrio y fuerza**\
+`Estos ejercicios de una sola pierna pueden ayudarte a moverte con más facilidad y a evitar lesiones.`\
+https://www.nytimes.com/es/2026/08/13/espanol/rutina-25-minutos-equilibrio-fuerza.html
+
 **If You Weren’t Worried About A.I., You Should Be After the Past Few Weeks**\
 `If there was ever a time to consider halting development of A.I., it’s now.`\
 https://www.nytimes.com/2026/08/13/opinion/ai-danger-openai-anthropic-models.html
