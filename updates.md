@@ -1,3 +1,15 @@
+**¡A salvo!**\
+`Diana Marcela Troncoso fue liberada con vida tras casi 30 horas atrapada entre los escombros del terremoto que sacudió Colombia.`\
+https://www.nytimes.com/es/2026/08/13/espanol/america-latina/colombia-terremoto-foto.html
+
+**Train Derails Near Town of Lewes in East Sussex, U.K.**\
+`Emergency services said they were working at the scene of a train derailment near Lewes, in East Sussex, on Thursday.`\
+https://www.nytimes.com/2026/08/13/world/europe/train-derails-southern-england.html
+
+**Luigi Mangione, Facing Stalking Charges in Federal Court, Is Expected to Plead Guilty**\
+`He is charged with stalking resulting in the death of an executive, but the specifics of his plea were unclear. A murder trial in state court is set for next month.`\
+https://www.nytimes.com/2026/08/13/nyregion/luigi-mangione-guilty-plea-federal.html
+
 **Flock Announces Privacy Updates to Its Car-Tracking Cameras**\
 `Critics say the measures are “public relations” and leave room for continued misuse.`\
 https://www.nytimes.com/2026/08/13/business/flock-cameras-privacy-updates.html
