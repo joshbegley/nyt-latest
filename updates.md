@@ -1,3 +1,7 @@
+**Who Is Ahead in the St. Petersburg, Florida Mayor Race? Latest 2026 Polls**\
+`Track the latest polls in the St. Petersburg, Fla., mayoral election.`\
+https://www.nytimes.com/interactive/polls/st-petersburg-florida-mayor-election-polls-2026.html
+
 **John Crowley, Author of Reality-Blurring Fantasy Novels Like ‘Little, Big,‘ Dies at 83**\
 `The eminent critic Harold Bloom called his 1981 book “Little, Big” a “neglected masterpiece” and one of the best novels of the 20th century.`\
 https://www.nytimes.com/2026/08/13/books/john-crowley-dead.html

@@ -1,3 +1,11 @@
+**What We Know About the Storms Battering the Midwest**\
+`A lingering weather system has brought severe flooding and intense winds — including a few tornadoes — to Illinois, Indiana and Ohio.`\
+https://www.nytimes.com/2026/08/13/us/storm-damage-midwest.html
+
+**Kirk Assassination Suspect Says Shot Accuracy Should Erase Death Penalty**\
+`Prosecutors say they can seek the death penalty against Tyler Robinson because he also endangered people near Charlie Kirk, who was shot in the throat last year. Mr. Robinson’s lawyers note that the gunman struck only his target.`\
+https://www.nytimes.com/2026/08/13/us/charlie-kirk-tyler-robinson-death-penalty.html
+
 **Who Is Ahead in the St. Petersburg, Florida Mayor Race? Latest 2026 Polls**\
 `Track the latest polls in the St. Petersburg, Fla., mayoral election.`\
 https://www.nytimes.com/interactive/polls/st-petersburg-florida-mayor-election-polls-2026.html
@@ -19,7 +27,7 @@ https://www.nytimes.com/2026/08/13/theater/american-daughter-review-wendy-wasser
 https://www.nytimes.com/2026/08/13/climate/el-nino-effects.html
 
 ****\
-`A train derailed in East Sussex, England, on Thursday, seriously injuring two people.`\
+`A train derailed in East Sussex, England, on Thursday, seriously injuring two people, the British Transport Police said in a statement.`\
 https://www.nytimes.com/video/embedded/world/europe/100000011090907/13vid-uk-train-derailment.html
 
 **John Crowley, Author of Reality-Blurring Fantasy Novels Like ‘Little, Big,‘ Dies at 83**\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/08/13/world/australia/bishop-christopher-saunders-a
 **Maps: Tracking Tropical Storm Hernan**\
 `See the likely path and wind arrival times for Hernan`\
 https://www.nytimes.com/interactive/2026/08/13/weather/hernan-map-path-tracker.html
-
-**How Bob Iger and Joshua Kushner’s Bromance Led Them to Lakers**\
-`Bob Iger, the former chief executive of Disney, and Josh Kushner, the venture capitalist, are buying the Los Angeles Lakers. Their wives set them up.`\
-https://www.nytimes.com/2026/08/13/business/bob-iger-joshua-kushner-lakers.html
-
-**5 Classical Music Albums You Can Listen to Right Now**\
-`Wild Up’s latest volume of music by Julius Eastman, Mitsuko Uchida’s Beethoven and works by Joe Hisaishi are among our selections.`\
-https://www.nytimes.com/2026/08/13/arts/music/best-classical-music-albums-august-2026.html
 
