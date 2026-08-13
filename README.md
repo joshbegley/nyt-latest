@@ -1,3 +1,7 @@
+**A Celestial Wonder**\
+`We’re sharing photos from yesterday’s total solar eclipse.`\
+https://www.nytimes.com/2026/08/13/briefing/solar-eclipse-photos.html
+
 **Hegseth Is Pressed to Clarify Lawyer’s Role in Promotion Decisions**\
 `Representative Jason Crow asked Defense Secretary Pete Hegseth to explain statements about his special adviser’s influence following a New York Times report.`\
 https://www.nytimes.com/2026/08/13/us/hegseth-jason-crow-military-promotions.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/13/movies/dont-say-good-luck-review.html
 **An Architect Who Built Where No One Else Dared**\
 `On a hillside outside Birmingham, Ala., Jeffrey Dungan saw a chance to create his dream house, which effectively cascades down the incline.`\
 https://www.nytimes.com/2026/08/13/t-magazine/jeffrey-dungan-birmingham-house.html
-
-**5 Artists Share What Makes Them Optimistic About the Art World**\
-`At a time when news can be dispiriting, we ask five creative people about what makes them optimistic — still — about their field.`\
-https://www.nytimes.com/2026/08/13/t-magazine/art-news-positive-optimism.html
 
