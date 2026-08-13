@@ -1,3 +1,19 @@
+**My Big Fat Greek Chicken With Cucumber-Feta Salad**\
+`The gang’s all here: plump chicken thighs, crisp cucumbers, sweet tomatoes and salty feta.`\
+https://www.nytimes.com/2026/08/13/dining/my-big-fat-greek-chicken-with-cucumber-feta-salad.html
+
+**The Board of Peace Road Map for Gaza Gives Hope**\
+`The signs point to Hamas being serious about disarming. The recent Board of Peace plan for it to surrender its weapons should be carried out.`\
+https://www.nytimes.com/2026/08/13/opinion/gaza-hamas-israel-disarmament-palestinians.html
+
+**Brazil’s Disease-Fighting Mosquitoes**\
+`Our reporter, Apoorva Mandavilli, goes inside a mosquito factory in Brazil, where scientists are producing millions of mosquitoes to fight deadly tropical diseases in a warming world.`\
+https://www.nytimes.com/video/world/americas/100000011042147/brazils-disease-fighting-mosquitoes.html
+
+**In a Chinese Leader’s Death, Mourning for a More Hopeful Time**\
+`Tributes for the former Premier Zhu Rongji reflect nostalgia for an era when China was opening to the world and the future seemed more prosperous and hopeful.`\
+https://www.nytimes.com/2026/08/13/business/zhu-rongji-death-mourning-china.html
+
 **Settler Violence Traps West Bank Palestinians**\
 `A group of Israeli settlers has trapped two Palestinian families in the West Bank since Sunday, highlighting the Israeli army’s struggle to contain settler violence.`\
 https://www.nytimes.com/video/world/middleeast/100000011090034/israeli-settlers-west-bank-palestinians-violence.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/08/13/business/humanoid-robot-us-china.html
 **An 8 P.M. Bedtime, Oxygen Chambers, Blood Tests Galore: What Would You Do for a Longer Life?**\
 `The tech mogul Bryan Johnson is trying to design the blueprint for defying death.`\
 https://www.nytimes.com/video/opinion/100000011079554/an-8-pm-bedtime-oxygen-chambers-blood-tests-galore-what-would-you-do-for-a-longer-life.html
-
-**‘Dead Souls’ Review: A Mean Satire About American Exploitation**\
-`The “Repo Man” director Alex Cox returns with an unabashedly weird western, where he plays a mysterious stranger in an Arizona border town, circa 1890.`\
-https://www.nytimes.com/2026/08/13/movies/dead-souls-review.html
-
-**This Pesticide May Be Too Dangerous to Use. Farmers Say They Need It.**\
-`California announced that it’s phasing out paraquat, a pesticide widely used in the United States that is linked to Parkinson’s disease.`\
-https://www.nytimes.com/2026/08/13/science/paraquat-pesticide-parkinsons-california.html
-
-**Rory Scovel’s New Netflix Special Reviewed: Winging It Never Sounded So Funny**\
-`In “Show Must Go On,” the appearance of unpredictability combined with the possibility of catastrophe is riveting.`\
-https://www.nytimes.com/2026/08/13/arts/television/rory-scovel-comedy-show-must-go-on-review-netflix.html
-
-**The Golden Age of Mexican Food Is Here. And It’s Complicated.**\
-`Even at a time of anti-immigration politics, there has never been a richer variety of Mexican restaurants in the United States.`\
-https://www.nytimes.com/2026/08/13/dining/mexican-food-scene-united-states-immigration.html
 
