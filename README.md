@@ -1,3 +1,19 @@
+**Outdoor Dining Is Expected to Resume Year-Round in New York City**\
+`The City Council is poised to approve a package of bills loosening some restrictions on roadway dining structures, which became ubiquitous during the pandemic.`\
+https://www.nytimes.com/2026/08/13/nyregion/outdoor-dining-is-expected-to-resume-year-round-in-new-york-city.html
+
+**NYT Spelling Bee Answers for August 13, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/08/13/crosswords/spelling-bee-forum.html
+
+**Happy Hour With the Vanishing Nuns of New York**\
+`As convents are closing all over, the sisters are facing the end of their lives together — and they have brought the party to an assisted living center in the suburbs.`\
+https://www.nytimes.com/2026/08/13/nyregion/last-nuns-new-york-city.html
+
+**New Yorkers Who Lost Insurance After Trump Cuts Face Hard Choices**\
+`New York State’s generous health plan for working-class people was hit hard by federal funding cuts. More than 400,000 people are now looking for new coverage or living without it.`\
+https://www.nytimes.com/2026/08/13/nyregion/new-york-health-insurance-trump-cuts.html
+
 **Ocasio-Cortez habló abiertamente sobre congelar sus óvulos y encendió un debate**\
 `Algunas mujeres vieron la apertura como una manera de empoderamiento. Otras consideran que es vender una idea errónea de que el proceso es muy sencillo.`\
 https://www.nytimes.com/es/2026/08/13/espanol/estados-unidos/ocasio-cortez-congela-ovulos.html
@@ -173,22 +189,6 @@ https://www.nytimes.com/2026/08/12/us/politics/splc-fraud-conspiracy-charges.htm
 **Treasury Scales Back Scrutiny of U.S. Shell Companies**\
 `The Trump administration will not enforce reporting requirements of the 2021 Corporate Transparency Act, which was intended to crack down on money laundering.`\
 https://www.nytimes.com/2026/08/12/us/politics/treasury-scrutiny-shell-companies.html
-
-**Two Killed in Military Helicopter Crash Near Fort Hood in Texas**\
-`The Apache helicopter crashed in Salado, a small town about 20 miles from the military base, and set off a fire, the authorities said.`\
-https://www.nytimes.com/2026/08/12/us/texas-helicopter-crash.html
-
-**See the 2026 European Solar Eclipse, in Photos and Videos**\
-`People gathered across the continent to watch the total solar eclipse on Wednesday.`\
-https://www.nytimes.com/2026/08/12/world/europe/solar-eclipse-europe-photos.html
-
-**Journalism in the ‘Zones of Uncertainty’**\
-`Can reporting solve mysteries like U.F.O.s and A.I. consciousness? The Opinion columnist Ross Douthat tells his fellow columnist Ezra Klein why journalists should tackle zones of uncertainty when they involve concrete, testable claims.`\
-https://www.nytimes.com/video/opinion/100000011086410/journalism-in-the-zones-of-uncertainty.html
-
-**Forbes Fired Top Editor After Discovering He Received Secret $6 Million Payment**\
-`Randall Lane, the magazine’s chief content officer, received the money from the founder of Shook Research, which has worked with Forbes on content about wealth advisers.`\
-https://www.nytimes.com/2026/08/12/business/forbes-editor-fired.html
 
 **First Total Eclipse in Europe in Decades Turns Day to Night**\
 `From Iceland to Spain, people flocked to viewing spots to see the moon completely block out the sun.`\
