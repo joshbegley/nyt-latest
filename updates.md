@@ -1,3 +1,7 @@
+**John Crowley, Author of Reality-Blurring Fantasy Novels Like ‘Little, Big,‘ Dies at 83**\
+`The eminent critic Harold Bloom called his 1981 book “Little, Big” a “neglected masterpiece” and one of the best novels of the 20th century.`\
+https://www.nytimes.com/2026/08/13/books/john-crowley-dead.html
+
 **Israeli Settlers Resume West Bank Siege After Eviction**\
 `The military’s failure to keep extremists away from two Palestinian families trapped in their West Bank homes made clear the chaos gripping the Israeli-occupied territory.`\
 https://www.nytimes.com/2026/08/13/world/middleeast/west-bank-siege-israeli-settlers.html

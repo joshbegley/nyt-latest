@@ -1,3 +1,7 @@
+**Who Is Ahead in the St. Petersburg, Florida Mayor Race? Latest 2026 Polls**\
+`Track the latest polls in the St. Petersburg, Fla., mayoral election.`\
+https://www.nytimes.com/interactive/polls/st-petersburg-florida-mayor-election-polls-2026.html
+
 **Israeli Settlers Resume West Bank Siege After Eviction**\
 `The military’s failure to keep extremists away from two Palestinian families trapped in their West Bank homes made clear the chaos gripping the Israeli-occupied territory.`\
 https://www.nytimes.com/2026/08/13/world/middleeast/west-bank-siege-israeli-settlers.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/13/business/bob-iger-joshua-kushner-lakers.html
 **5 Classical Music Albums You Can Listen to Right Now**\
 `Wild Up’s latest volume of music by Julius Eastman, Mitsuko Uchida’s Beethoven and works by Joe Hisaishi are among our selections.`\
 https://www.nytimes.com/2026/08/13/arts/music/best-classical-music-albums-august-2026.html
-
-**We Need Global A.I. Safety Planning**\
-`We used to talk about the risks of A.I. a lot more. On a recent episode of “The Opinions,” the Opinion writer David Wallace-Wells speaks with the Yale law professor and economist Natasha Sarin about how A.I. safety could bring China and the U.S. together.`\
-https://www.nytimes.com/video/opinion/100000011083260/we-need-global-ai-safety-planning.html
 
