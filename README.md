@@ -1,3 +1,7 @@
+**¡A salvo!**\
+`Diana Marcela Troncoso fue liberada con vida tras casi 30 horas atrapada entre los escombros del terremoto que sacudió Colombia.`\
+https://www.nytimes.com/es/2026/08/13/espanol/america-latina/colombia-terremoto-foto.html
+
 **Flock Announces Privacy Updates to Its Car-Tracking Cameras**\
 `Critics say the measures are “public relations” and leave room for continued misuse.`\
 https://www.nytimes.com/2026/08/13/business/flock-cameras-privacy-updates.html
@@ -6,7 +10,7 @@ https://www.nytimes.com/2026/08/13/business/flock-cameras-privacy-updates.html
 `Readers disagree about the Vermont independent’s effect on the Democratic Party. Also: Vice President JD Vance’s crude behavior; a dangerous tool for ICE.`\
 https://www.nytimes.com/2026/08/13/opinion/bernie-sanders-democrats.html
 
-**Train Derails in Southern England**\
+**Train Derails Near Town of Lewes in East Sussex, U.K.**\
 `Emergency services said they were working at the scene of a train derailment near Lewes, in East Sussex, on Thursday.`\
 https://www.nytimes.com/2026/08/13/world/europe/train-derails-southern-england.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/13/podcasts/the-truth-behind-an-nfl-injury-consp
 **Bryan Johnson’s Blueprint for a 150-Year Life: Is It Worth It?**\
 `The tech mogul is trying to design the blueprint for defying death.`\
 https://www.nytimes.com/2026/08/13/opinion/interesting-times-bryan-johnson.html
-
-**36 Hours in Bergen, Norway: Things to Do and See**\
-`The city on Norway’s west coast is no hayseed cousin to the cosmopolitan capitals of Scandinavia, with a thriving cultural scene that ranges from high art to heavy metal.`\
-https://www.nytimes.com/interactive/2026/08/13/travel/things-to-do-bergen-norway.html
 
