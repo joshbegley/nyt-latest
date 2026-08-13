@@ -52,7 +52,7 @@ https://www.nytimes.com/2026/08/13/world/europe/russia-ukraine-ports-odesa-cargo
 
 **What to Know About Thursday’s Special Election in Clacton: Farage vs. Binface**\
 `Nigel Farage, the right-wing populist leader, forced a by-election in his parliamentary seat of Clacton after he came under pressure over his financial declarations.`\
-https://www.nytimes.com/2026/08/13/world/europe/britain-special-election-farage-binface-what-to-know.html
+https://www.nytimes.com/2026/08/13/world/europe/farage-binface-uk-byelection-clacton.html
 
 **‘An English Summer Is Not the Same Anymore’**\
 `With forecasters issuing a warning for very high temperatures, this summer is on track to be one of the hottest yet.`\

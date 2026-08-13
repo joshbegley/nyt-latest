@@ -1,3 +1,7 @@
+**What to Know About Thursday’s Special Election in Clacton: Farage vs. Binface**\
+`Nigel Farage, the right-wing populist leader, forced a by-election in his parliamentary seat of Clacton after he came under pressure over his financial declarations.`\
+https://www.nytimes.com/2026/08/13/world/europe/farage-binface-uk-byelection-clacton.html
+
 **Ocasio-Cortez habló abiertamente sobre congelar sus óvulos y encendió un debate**\
 `Algunas mujeres vieron la apertura como una manera de empoderamiento. Otras consideran que es vender una idea errónea de que el proceso es muy sencillo.`\
 https://www.nytimes.com/es/2026/08/13/espanol/estados-unidos/ocasio-cortez-congela-ovulos.html
