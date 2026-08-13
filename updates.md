@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Aug. 13, 2026**\
+`Killian Olson helps us find a perfect fit.`\
+https://www.nytimes.com/2026/08/12/crosswords/daily-puzzle-2026-08-13.html
+
 **El secretario de Defensa de EE. UU. dice que la coalición anticárteles hará ‘cosas malas a la gente mala’**\
 `Pete Hegseth dijo que el objetivo es “degradar, desmantelar y destruir las redes narcoterroristas” y pidió a los países de Latinoamérica que intensifiquen su lucha.`\
 https://www.nytimes.com/es/2026/08/12/espanol/estados-unidos/pete-hegseth-coalicion-carteles.html
