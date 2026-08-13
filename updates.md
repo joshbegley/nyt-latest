@@ -1,3 +1,11 @@
+**California May Let Residents Choose ‘Jewish’ as an Ethnic Identifier**\
+`A bill would allow Jews to identify themselves as an ethnic group on state forms. Supporters argue it’s a step toward acknowledging the complex nature of Jewish identity.`\
+https://www.nytimes.com/2026/08/13/us/california-jewish-ethnic-identity.html
+
+**Read the Ruling Dismissing an Antisemitism Lawsuit Against Harvard**\
+`The decision from a federal judge in Boston dealt a blow to the Trump administration’s efforts to force the university into a settlement.`\
+https://www.nytimes.com/interactive/2026/08/13/us/govuscourtsmad2978016501.html
+
 **Judge Dismisses Federal Government’s Antisemitism Case Against Harvard**\
 `The government argued the university had not done enough to combat antisemitism during campus protests. A judge called the incidents “isolated and episodic.”`\
 https://www.nytimes.com/2026/08/13/us/harvard-antisemitism-case-dismissed.html

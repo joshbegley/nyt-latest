@@ -1,3 +1,11 @@
+**California May Let Residents Choose ‘Jewish’ as an Ethnic Identifier**\
+`A bill would allow Jews to identify themselves as an ethnic group on state forms. Supporters argue it’s a step toward acknowledging the complex nature of Jewish identity.`\
+https://www.nytimes.com/2026/08/13/us/california-jewish-ethnic-identity.html
+
+**Read the Ruling Dismissing an Antisemitism Lawsuit Against Harvard**\
+`The decision from a federal judge in Boston dealt a blow to the Trump administration’s efforts to force the university into a settlement.`\
+https://www.nytimes.com/interactive/2026/08/13/us/govuscourtsmad2978016501.html
+
 **Judge Dismisses Federal Government’s Antisemitism Case Against Harvard**\
 `The government argued the university had not done enough to combat antisemitism during campus protests. A judge called the incidents “isolated and episodic.”`\
 https://www.nytimes.com/2026/08/13/us/harvard-antisemitism-case-dismissed.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/13/technology/personaltech/pangram-ai-detector-t
 **Oklahoma Becomes First of Three States to Execute Inmates on the Same Day**\
 `Executions were also scheduled in Alabama and Tennessee, which faces scrutiny over a failed execution last month.`\
 https://www.nytimes.com/2026/08/13/us/tennessee-alabama-oklahoma-executions.html
-
-**It Was a Great Scam While It Lasted**\
-`U.S. tariff rates are not for rent.`\
-https://www.nytimes.com/2026/08/13/opinion/us-tariffs-economy-trade-transshipment-scam.html
-
-**How ‘Stacks’ Went From Bodybuilding and Computing to Describing Everything**\
-`The word used to describe a pile of stuff. Now it has to do with a mechanistic pursuit of perfection.`\
-https://www.nytimes.com/2026/08/13/magazine/stacks-bodybuilding-computing.html
 

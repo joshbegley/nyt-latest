@@ -1,3 +1,15 @@
+**Topos Azteca, a Mexican Volunteer Rescue Group, Helps With Rescue Efforts After Colombia Earthquake**\
+`Topos Azteca, a Mexican volunteer rescue group that works worldwide and helped after the Sept. 11 attacks, arrived in Colombia after searching for survivors in Venezuela.`\
+https://www.nytimes.com/2026/08/13/world/americas/topos-azteca-rescue-efforts-colombia-earthquake.html
+
+**Mount Etna Eruption Leaves Travelers Stranded in Sicily**\
+`Ash spewing from Sicily’s Mount Etna volcano caused the cancelation of more than 700 flights, during the peak of Italy’s summer tourism season.`\
+https://www.nytimes.com/video/world/europe/100000011090024/mount-etna-eruption-travelers-sicily-italy.html
+
+**Trump-Led Board Votes Again to Close Kennedy Center for Renovations**\
+`The decision will be reviewed by a federal judge who previously said the board had not thoroughly evaluated the president’s plan.`\
+https://www.nytimes.com/2026/08/13/arts/design/kennedy-center-closure-board-vote-trump.html
+
 **California May Let Residents Choose ‘Jewish’ as an Ethnic Identifier**\
 `A bill would allow Jews to identify themselves as an ethnic group on state forms. Supporters argue it’s a step toward acknowledging the complex nature of Jewish identity.`\
 https://www.nytimes.com/2026/08/13/us/california-jewish-ethnic-identity.html
@@ -10,7 +22,7 @@ https://www.nytimes.com/interactive/2026/08/13/us/govuscourtsmad2978016501.html
 `The government argued the university had not done enough to combat antisemitism during campus protests. A judge called the incidents “isolated and episodic.”`\
 https://www.nytimes.com/2026/08/13/us/harvard-antisemitism-case-dismissed.html
 
-**U.S. Investigated Left-Leaning Groups During Minnesota’s Immigration Crackdown**\
+**U.S. Investigated Left-Leaning Groups During Minnesota Immigration Crackdown**\
 `The government conducted expansive surveillance, infiltrated group chats and obtained financial records of organizations never accused of crimes.`\
 https://www.nytimes.com/2026/08/13/us/politics/dhs-inquiry-immigration-protests-minnesota.html
 
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/08/13/podcasts/the-bicentennial-was-better.html
 **Corrections: Aug. 13, 2026**\
 `Corrections that appeared in print on Thursday, Aug. 13, 2026.`\
 https://www.nytimes.com/2026/08/13/pageoneplus/corrections-aug-13-2026.html
-
-**What We Know About Taylor Farms’ Food Recalls**\
-`Just weeks after the company recalled lettuce and other produce suspected of being tainted by the cyclosporiasis parasite, it recalled jalapeños linked to a salmonella outbreak.`\
-https://www.nytimes.com/2026/08/13/business/taylor-farms-recalls-cyclospora-salmonella.html
-
-**I Tested a Popular A.I. Slop Detector. It Felt Empowering.**\
-`Pangram excels at distinguishing chatbot-generated words from human writing. But it’s not reliable for spotting artificial images.`\
-https://www.nytimes.com/2026/08/13/technology/personaltech/pangram-ai-detector-test.html
-
-**Oklahoma Becomes First of Three States to Execute Inmates on the Same Day**\
-`Executions were also scheduled in Alabama and Tennessee, which faces scrutiny over a failed execution last month.`\
-https://www.nytimes.com/2026/08/13/us/tennessee-alabama-oklahoma-executions.html
 
