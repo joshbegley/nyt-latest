@@ -1,3 +1,7 @@
+**Judge Dismisses Federal Government’s Antisemitism Case Against Harvard**\
+`The government argued the university had not done enough to combat antisemitism during campus protests. A judge called the incidents “isolated and episodic.”`\
+https://www.nytimes.com/2026/08/13/us/harvard-antisemitism-case-dismissed.html
+
 **U.S. Investigated Left-Leaning Groups During Minnesota’s Immigration Crackdown**\
 `The government conducted expansive surveillance, infiltrated group chats and obtained financial records of organizations never accused of crimes.`\
 https://www.nytimes.com/2026/08/13/us/politics/dhs-inquiry-immigration-protests-minnesota.html

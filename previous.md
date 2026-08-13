@@ -1,3 +1,7 @@
+**Judge Dismisses Federal Government’s Antisemitism Case Against Harvard**\
+`The government argued the university had not done enough to combat antisemitism during campus protests. A judge called the incidents “isolated and episodic.”`\
+https://www.nytimes.com/2026/08/13/us/harvard-antisemitism-case-dismissed.html
+
 **U.S. Investigated Left-Leaning Groups During Minnesota’s Immigration Crackdown**\
 `The government conducted expansive surveillance, infiltrated group chats and obtained financial records of organizations never accused of crimes.`\
 https://www.nytimes.com/2026/08/13/us/politics/dhs-inquiry-immigration-protests-minnesota.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/13/opinion/us-tariffs-economy-trade-transshipmen
 **How ‘Stacks’ Went From Bodybuilding and Computing to Describing Everything**\
 `The word used to describe a pile of stuff. Now it has to do with a mechanistic pursuit of perfection.`\
 https://www.nytimes.com/2026/08/13/magazine/stacks-bodybuilding-computing.html
-
-**Inside the Democratic Socialists of America’s Audacious Quest for Power**\
-`Democratic Socialists are capturing more votes than ever before — even as they run up against the limits of their appeal.`\
-https://www.nytimes.com/2026/08/13/magazine/democratic-socialism-dsa-elections-primaries.html
 
