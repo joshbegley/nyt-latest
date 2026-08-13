@@ -1,3 +1,23 @@
+**Electric Thrills**\
+`Electric motorcycle sales are surging in Pakistan, as wartime prices accelerate the pivot away from fossil fuels in the developing world.`\
+https://www.nytimes.com/2026/08/13/world/pakistan-e-bikes-europe-heat.html
+
+**Who Is Ahead in the Providence, Rhode Island Mayor Race? Latest 2026 Polls**\
+`Track the latest polls in the Providence, R.I., mayoral election.`\
+https://www.nytimes.com/interactive/polls/providence-rhode-island-mayor-election-polls-2026.html
+
+**What We Know About the Storms Battering the Midwest**\
+`A lingering weather system has brought severe flooding and intense winds — including a few tornadoes — to Illinois, Indiana and Ohio.`\
+https://www.nytimes.com/2026/08/13/us/storm-damage-midwest.html
+
+**Kirk Assassination Suspect Says Shot Accuracy Should Erase Death Penalty**\
+`Prosecutors say they can seek the death penalty against Tyler Robinson because he also endangered people near Charlie Kirk, who was shot in the throat last year. Mr. Robinson’s lawyers note that the gunman struck only his target.`\
+https://www.nytimes.com/2026/08/13/us/charlie-kirk-tyler-robinson-death-penalty.html
+
+****\
+`A train derailed in East Sussex, England, on Thursday, seriously injuring two people, the British Transport Police said in a statement.`\
+https://www.nytimes.com/video/embedded/world/europe/100000011090907/13vid-uk-train-derailment.html
+
 **Who Is Ahead in the St. Petersburg, Florida Mayor Race? Latest 2026 Polls**\
 `Track the latest polls in the St. Petersburg, Fla., mayoral election.`\
 https://www.nytimes.com/interactive/polls/st-petersburg-florida-mayor-election-polls-2026.html

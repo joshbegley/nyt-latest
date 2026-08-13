@@ -1,3 +1,7 @@
+**Who Is Ahead in the Idaho Governor's Race? Latest 2026 Election Polls**\
+`Track the latest polls in the Idaho governor election.`\
+https://www.nytimes.com/interactive/polls/idaho-governor-election-polls-2026.html
+
 **Electric Thrills**\
 `Electric motorcycle sales are surging in Pakistan, as wartime prices accelerate the pivot away from fossil fuels in the developing world.`\
 https://www.nytimes.com/2026/08/13/world/pakistan-e-bikes-europe-heat.html
@@ -10,7 +14,7 @@ https://www.nytimes.com/interactive/polls/providence-rhode-island-mayor-election
 `A lingering weather system has brought severe flooding and intense winds — including a few tornadoes — to Illinois, Indiana and Ohio.`\
 https://www.nytimes.com/2026/08/13/us/storm-damage-midwest.html
 
-**Kirk Assassination Suspect Says Shot Accuracy Should Erase Death Penalty**\
+**Charlie Kirk Suspect Fights Death Penalty, Saying Gunman ‘Did Not Miss’**\
 `Prosecutors say they can seek the death penalty against Tyler Robinson because he also endangered people near Charlie Kirk, who was shot in the throat last year. Mr. Robinson’s lawyers note that the gunman struck only his target.`\
 https://www.nytimes.com/2026/08/13/us/charlie-kirk-tyler-robinson-death-penalty.html
 
@@ -43,7 +47,7 @@ https://www.nytimes.com/video/embedded/world/europe/100000011090907/13vid-uk-tra
 https://www.nytimes.com/2026/08/13/books/john-crowley-dead.html
 
 **Trump Gives Green Light to U.S. Companies to Aim Hacks at Cybercriminals**\
-`The idea has been long in the making, but could be difficult to implement and lead to unintended consequences, former officials and security experts said.`\
+`The practice would align the United States with countries like China and Russia, where spy agencies have long relied on private-sector hackers to help with national security missions.`\
 https://www.nytimes.com/2026/08/13/us/politics/trump-private-companies-hacking-cybercriminals.html
 
 **Only Global Cooperation Can Keep the World Safe From A.I.**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/13/world/europe/greenland-oil-project-us-dr-phil
 **Bryan Johnson’s Psychedelic Experience**\
 `What’s worse — dying or living forever? The tech mogul Bryan Johnson wants to live for centuries. On “Interesting Times,” he tells the columnist Ross Douthat about how a DMT trip opened his mind to the “preciousness of existence.”`\
 https://www.nytimes.com/video/opinion/100000011079571/bryan-johnsons-psychedelic-experience.html
-
-**The Case for Trying to Live to 200**\
-`Bryan Johnson has become famous for his goal of defying death, but what does he actually want to do with a longer life? On “Interesting Times,” the tech founder describes his vision for a humanity with radically longer lifespans.`\
-https://www.nytimes.com/video/opinion/100000011079572/the-case-for-trying-to-live-to-200.html
 
