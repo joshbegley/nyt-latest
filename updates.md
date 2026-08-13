@@ -1,3 +1,7 @@
+**Appeals Court Sidesteps Key Question Over Trump’s Use of Alien Enemies Act**\
+`The court dismissed a case over the Alien Enemies Act in a messy conclusion to a long-running legal battle that had seemed destined to end up before the Supreme Court.`\
+https://www.nytimes.com/2026/08/13/us/politics/alien-enemies-act-trump-appeals-court.html
+
 **Appeals Court Sidesteps Key Question Over Trump’s Use of Wartime Law**\
 `The court dismissed a case over the Alien Enemies Act in a messy conclusion to a long-running legal battle that had seemed destined to end up before the Supreme Court.`\
 https://www.nytimes.com/2026/08/13/us/politics/alien-enemies-act-trump-appeals-court.html
