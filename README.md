@@ -1,3 +1,7 @@
+**Late Night Ribs Trump for Leaving Staff Behind on Air Force One**\
+`Anthony Anderson, the guest host of “Jimmy Kimmel Live,” called the ruse in which President Trump exited the plane in a catering container “Operation Pig in a Blanket.”`\
+https://www.nytimes.com/2026/08/13/arts/television/late-night-trump-air-force-one-catering.html
+
 **Hallmark Channel cumple 25 años con películas donde el amor siempre triunfa**\
 `Cuando la vida parece difícil, la Navidad en julio puede ayudar.`\
 https://www.nytimes.com/es/2026/08/13/espanol/cultura/hallmark-peliculas.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/08/12/business/forbes-editor-fired.html
 **Trump Is Sued Over Plan to Sell Early Access to His Truth Social Posts**\
 `The lawsuit filed in federal court said President Trump “stands to gain financially by giving ‘market-moving’ government information to those who are willing and able to pay his personal company.”`\
 https://www.nytimes.com/2026/08/12/us/politics/trump-truth-social-lawsuit.html
-
-**Por primera vez en décadas, el día se hace noche en Europa bajo un eclipse solar total**\
-`De Islandia a España, los observadores acudieron a los lugares donde, por corto tiempo, la Luna bloqueó completamente al Sol.`\
-https://www.nytimes.com/live/2026/08/12/espanol/eclipse-solar-total
 
 **First Total Eclipse in Europe in Decades Turns Day to Night**\
 `From Iceland to Spain, people flocked to viewing spots to see the moon completely block out the sun.`\
