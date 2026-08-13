@@ -1,3 +1,7 @@
+**Settler Violence Traps West Bank Palestinians**\
+`A group of Israeli settlers has trapped two Palestinian families in the West Bank since Sunday, highlighting the Israeli army’s struggle to contain settler violence.`\
+https://www.nytimes.com/video/world/middleeast/100000011090034/israeli-settlers-west-bank-palestinians-violence.html
+
 **A City Mobilizes Against a Stubborn Health Threat: Mosquitoes**\
 `The city of Belém in northern Brazil was overwhelmed by an outbreak of dengue two years ago. An all-out municipal effort has reduced cases and may offer lessons to American cities.`\
 https://www.nytimes.com/2026/08/13/health/mosquitoes-brazil-health-threat.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/13/arts/television/rory-scovel-comedy-show-must-
 **The Golden Age of Mexican Food Is Here. And It’s Complicated.**\
 `Even at a time of anti-immigration politics, there has never been a richer variety of Mexican restaurants in the United States.`\
 https://www.nytimes.com/2026/08/13/dining/mexican-food-scene-united-states-immigration.html
-
-**What’s Happening in Kansas Should Alarm Us All**\
-`Is Kansas just the beginning?`\
-https://www.nytimes.com/2026/08/13/opinion/kansas-anti-trans-laws-drivers-license.html
 
