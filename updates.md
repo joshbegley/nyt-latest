@@ -1,3 +1,15 @@
+**John Crowley, Whose Fantasy Novels Blurred Reality and Dream, Dies at 83**\
+`The eminent critic Harold Bloom called his 1981 book ‘Little, Big’ a ‘neglected masterpiece’ and one of the best novels of the 20th century.`\
+https://www.nytimes.com/2026/08/13/books/john-crowley-dead.html
+
+**Trump Gives Green Light to U.S. Companies to Aim Hacks at Cybercriminals**\
+`The idea has been long in the making, but could be difficult to implement and lead to unintended consequences, former officials and security experts said.`\
+https://www.nytimes.com/2026/08/13/us/politics/trump-private-companies-hacking-cybercriminals.html
+
+**Only Global Cooperation Can Keep the World Safe From A.I.**\
+`A conversation with Robert Wright, the author of “The God Test.”`\
+https://www.nytimes.com/2026/08/13/opinion/ai-safety-regulation-robert-wright.html
+
 **Hamas Has No More Cards to Play**\
 `The signs point to Hamas being serious about disarming. The recent Board of Peace plan for it to surrender its weapons should be carried out.`\
 https://www.nytimes.com/2026/08/13/opinion/gaza-hamas-israel-disarmament-palestinians.html

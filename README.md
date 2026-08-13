@@ -1,3 +1,7 @@
+****\
+`A train derailed in East Sussex, England, on Thursday, seriously injuring two people.`\
+https://www.nytimes.com/video/embedded/world/europe/100000011090907/13vid-uk-train-derailment.html
+
 **John Crowley, Whose Fantasy Novels Blurred Reality and Dream, Dies at 83**\
 `The eminent critic Harold Bloom called his 1981 book ‘Little, Big’ a ‘neglected masterpiece’ and one of the best novels of the 20th century.`\
 https://www.nytimes.com/2026/08/13/books/john-crowley-dead.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/13/weather/europe-heat-wave-extreme-heat-warning
 **Hundreds of Flights Canceled in Sicily as Mount Etna Erupts**\
 `Etna erupts often, but it usually doesn’t release this much ash, an expert said. Tens of thousands of travelers’ plans have been disrupted in the past week.`\
 https://www.nytimes.com/2026/08/13/world/europe/mount-etna-volcano-sicily-eruption.html
-
-**Inside the $12.5 Billion Deal for the Lakers**\
-`The transaction, hashed out last weekend, reflects the huge profit potential of major sports franchises.`\
-https://www.nytimes.com/2026/08/13/business/dealbook/lakers-deal-kushner-iger-walter.html
 
