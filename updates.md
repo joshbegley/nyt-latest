@@ -1,3 +1,11 @@
+**Covid Vaccines Are Not Linked to Miscarriage. Here’s How We Know.**\
+`Prominent Republicans and others have falsely claimed this week that the shots are linked, despite years of data showing they are safe.`\
+https://www.nytimes.com/2026/08/13/well/covid-vaccine-pregnancy-miscarriage-fauci.html
+
+**Raoul Vaneigem, Whose Manifesto Inspired 1968 Revolt in France, Dies at 92**\
+`“The Revolution of Everyday Life,” published in 1967, was his cri de coeur against mindless work, materialism and authority.`\
+https://www.nytimes.com/2026/08/13/books/raoul-vaneigem-dead.html
+
 **Seguridad Nacional de EE. UU. pagó 464 millones de dólares por aviones. Luego los estacionó**\
 `La agencia utilizó un contrato sin licitación para comprar 10 aviones usados, diciendo que se necesitaban con urgencia para vuelos de deportación. Pero durante meses, en gran medida, la flota ha permanecido inactiva.`\
 https://www.nytimes.com/es/2026/08/13/espanol/estados-unidos/seguridad-nacional-trump-aviones-sin-uso.html
