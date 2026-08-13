@@ -194,7 +194,3 @@ https://www.nytimes.com/2026/08/13/crosswords/connections-companion-1160.html
 `Scroll down for hints and conversation about the puzzle for Friday, Aug. 14, 2026.`\
 https://www.nytimes.com/2026/08/13/crosswords/strands-sidekick-894.html
 
-**Today’s Wordle Hints for August 14, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, Aug. 14, 2026.`\
-https://www.nytimes.com/2026/08/13/crosswords/wordle-review-1882.html
-
