@@ -30,7 +30,7 @@ https://www.nytimes.com/2026/08/13/us/politics/dhs-inquiry-immigration-protests-
 `Is the administration defying the court or pursuing lawful alternatives?`\
 https://www.nytimes.com/2026/08/13/us/politics/the-docket-supreme-court-trump-losses.html
 
-**Map: 3.8-Magnitude Earthquake Shakes the San Francisco Bay Area**\
+**Maps: 3.8-Magnitude Earthquake Shakes the San Francisco Bay Area**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/08/13/us/quake-tracker-san-francisco-bay.html
 
