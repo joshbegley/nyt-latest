@@ -1,3 +1,7 @@
+**A Fight Over Abortion and Surrogacy Ends With a Baby Born in Texas**\
+`The baby, who was born Wednesday with a severe heart defect, drew the attention of anti-abortion activists and the Texas attorney general after the intended parents wanted the surrogate mother to have an abortion.`\
+https://www.nytimes.com/2026/08/12/us/texas-surrogate-baby-abortion-dispute.html
+
 **Woman Arrested After Confessing to Starting Nevada Fire, Officials Say**\
 `The woman was arrested on suspicion of arson and possession of a controlled substance. Officials said she set multiple fires that later became part of the Bug fire, which has burned over 70,000 acres.`\
 https://www.nytimes.com/2026/08/12/us/fred-mountain-fire-arson-arrest.html
