@@ -1,3 +1,11 @@
+**Today, In Short**\
+`Soup. Eclipse photos. And love bombing.`\
+https://www.nytimes.com/2026/08/13/briefing/today-in-short.html
+
+**How a Longshot U.S. Oil Drilling Project Is Shaking Up Greenland**\
+`A U.S. oil company says it could be on the verge of a major discovery in Greenland. The proposal comes at a tricky time for the Arctic island, and locals are lining up against it.`\
+https://www.nytimes.com/2026/08/13/world/europe/greenland-oil-project-us-dr-phil.html
+
 **My Big Fat Greek Chicken With Cucumber-Feta Salad**\
 `The gang’s all here: plump chicken thighs, crisp cucumbers, sweet tomatoes and salty feta.`\
 https://www.nytimes.com/2026/08/13/dining/my-big-fat-greek-chicken-with-cucumber-feta-salad.html

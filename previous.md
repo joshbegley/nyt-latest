@@ -1,3 +1,7 @@
+**Today, In Short**\
+`Soup. Eclipse photos. And love bombing.`\
+https://www.nytimes.com/2026/08/13/briefing/today-in-short.html
+
 **My Big Fat Greek Chicken With Cucumber-Feta Salad**\
 `The gang’s all here: plump chicken thighs, crisp cucumbers, sweet tomatoes and salty feta.`\
 https://www.nytimes.com/2026/08/13/dining/my-big-fat-greek-chicken-with-cucumber-feta-salad.html
@@ -26,7 +30,7 @@ https://www.nytimes.com/2026/08/13/health/mosquitoes-brazil-health-threat.html
 `Live audio, a new format and new voices have transformed and unsettled the court’s signature public ceremony.`\
 https://www.nytimes.com/2026/08/13/us/politics/supreme-court-changing-oral-arguments.html
 
-**Oil, Hunters and Dr. Phil: How a Longshot Project Is Shaking Up Greenland**\
+**How a Longshot U.S. Oil Drilling Project Is Shaking Up Greenland**\
 `A U.S. oil company says it could be on the verge of a major discovery in Greenland. The proposal comes at a tricky time for the Arctic island, and locals are lining up against it.`\
 https://www.nytimes.com/2026/08/13/world/europe/greenland-oil-project-us-dr-phil.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/13/us/politics/homeland-security-parked-airplane
 **America Wants to Make Its Own Humanoid Robots. That Won’t Be Easy.**\
 `China already manufactures humanoid robots by the thousands. A new generation of U.S. start-ups is betting that there is still time to compete.`\
 https://www.nytimes.com/2026/08/13/business/humanoid-robot-us-china.html
-
-**An 8 P.M. Bedtime, Oxygen Chambers, Blood Tests Galore: What Would You Do for a Longer Life?**\
-`The tech mogul Bryan Johnson is trying to design the blueprint for defying death.`\
-https://www.nytimes.com/video/opinion/100000011079554/an-8-pm-bedtime-oxygen-chambers-blood-tests-galore-what-would-you-do-for-a-longer-life.html
 

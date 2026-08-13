@@ -15,7 +15,7 @@ https://www.nytimes.com/2026/08/13/opinion/gaza-hamas-israel-disarmament-palesti
 https://www.nytimes.com/video/world/americas/100000011042147/brazils-disease-fighting-mosquitoes.html
 
 **In a Chinese Leader’s Death, Mourning for a More Hopeful Time**\
-`Tributes for the former Premier Zhu Rongji reflect nostalgia for an era when China was opening to the world and the future seemed more prosperous and hopeful.`\
+`Tributes for former Premier Zhu Rongji reflect nostalgia for an era when China was opening to the world and the future seemed more prosperous and hopeful.`\
 https://www.nytimes.com/2026/08/13/business/zhu-rongji-death-mourning-china.html
 
 **Settler Violence Traps West Bank Palestinians**\
