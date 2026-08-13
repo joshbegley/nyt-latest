@@ -1,3 +1,7 @@
+**What to Know About Today’s U.K. Special Election: Farage vs. Binface**\
+`Nigel Farage, the right-wing populist leader, forced a by-election in his parliamentary seat of Clacton after he came under pressure over his financial declarations.`\
+https://www.nytimes.com/2026/08/13/world/europe/farage-binface-uk-byelection-clacton.html
+
 **Outdoor Dining Is Expected to Resume Year-Round in New York City**\
 `The City Council is poised to approve a package of bills loosening some restrictions on roadway dining structures, which became ubiquitous during the pandemic.`\
 https://www.nytimes.com/2026/08/13/nyregion/outdoor-dining-is-expected-to-resume-year-round-in-new-york-city.html
