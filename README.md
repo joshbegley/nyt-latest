@@ -1,3 +1,15 @@
+**Rusia ataca barcos graneleros y pone en riesgo el suministro mundial de alimentos**\
+`Decenas de embarcaciones han sido alcanzadas en el mar Negro, mientras crece el temor por una nueva crisis alimentaria global.`\
+https://www.nytimes.com/es/2026/08/13/espanol/mundo/rusia-ataque-barcos-comercio.html
+
+**Trump Administration Lets Parts of the National Firearms Act Lapse**\
+`The retreat by the Justice Department effectively allowed a pillar of the Prohibition-era National Firearms Act to lapse.`\
+https://www.nytimes.com/2026/08/13/us/politics/national-firearms-act-gun-control-doj.html
+
+**Ferry Capsizes in Zimbabwe, Killing Dozens**\
+`More than 40 people died when an overcrowded ferry capsized on Zimbabwe’s Lake Kariba.`\
+https://www.nytimes.com/video/world/africa/100000011089685/zimbabwe-ferry-capsize-lake-kariba.html
+
 **Fui el cardiólogo de Dick Cheney. Trump no luce bien y deberíamos saber por qué**\
 `El presidente de EE. UU. no se ha visto bien. Los estadounidenses deberían obtener respuestas a estas siete preguntas.`\
 https://www.nytimes.com/es/2026/08/13/espanol/opinion/trump-problemas-salud.html
@@ -177,18 +189,6 @@ https://www.nytimes.com/2026/08/12/us/politics/trump-air-force-one-secret-flight
 **The Perseids, Summer’s Strongest Meteor Shower, Will Peak Tonight**\
 `Unlike the total solar eclipse that swept across Europe, the Perseids can be seen at night by anyone in the Northern Hemisphere.`\
 https://www.nytimes.com/2026/08/12/science/perseids-meteor-eclipse.html
-
-**What Will A.I. Do When Humans Aren’t Involved?**\
-`As humans’ deferral to A.I. systems increases, the “Hard Fork” guest Chris Painter suggests examining the goals, values and principles of A.I. when it’s left unchecked.`\
-https://www.nytimes.com/video/podcasts/100000011088938/what-will-ai-do-when-humans-arent-involved.html
-
-**Driver Sets Record for Hydrogen-Powered Vehicle at More Than 406 M.P.H.**\
-`Andy Green, a 64-year-old retired Royal Air Force pilot from Britain, was already the only person to break the sound barrier on land. “The ground comes at you very, very quickly,” he said.`\
-https://www.nytimes.com/2026/08/12/us/land-speed-record-utah-andy-green.html
-
-**Driver Who Broke Sound Barrier Sets Another Land-Speed Record**\
-`Andy Green, the only person to break the sound barrier on land, set a new world land-speed record for a hydrogen-powered vehicle, averaging 406.320 miles per hour in two runs at the Bonneville Salt Flats in Utah.`\
-https://www.nytimes.com/video/science/earth/100000011087587/andy-green-sound-barrier-speed-record-utah.html
 
 **Por primera vez en décadas, el día se hace noche en Europa bajo un eclipse solar total**\
 `De Islandia a España, los observadores acudieron a los lugares donde, por corto tiempo, la Luna bloqueó completamente al Sol.`\
