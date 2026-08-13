@@ -1,3 +1,19 @@
+**Why A.I.’s Promise Isn’t Resonating**\
+`On “The Opinions,” the Yale law professor and economist Natasha Sarin argues that A.I. could transform the U.S. economy for the better. But with the public hearing about layoffs and job losses, she says, it’s no wonder the technology’s economic promise isn’t resonating.`\
+https://www.nytimes.com/video/opinion/100000011088929/why-ais-promise-isnt-resonating.html
+
+**Luigi Mangione Is Expected to Plead Guilty in Federal Court, Where He Faces Stalking Charges**\
+`Mr. Mangione faces stalking charges in connection with the killing of an executive in Manhattan. Mr. Mangione could always change his mind at the last minute. A separate murder trial is set to begin next month.`\
+https://www.nytimes.com/2026/08/13/nyregion/luigi-mangione-guilty-plea-federal.html
+
+**Europe Is Once Again In the Grip of Extreme Heat**\
+`The latest round of extreme temperatures, the fifth since May, is disrupting daily life and testing the region’s resilience.`\
+https://www.nytimes.com/2026/08/13/weather/europe-heat-wave-extreme-heat-warning.html
+
+**Hundreds of Flights Canceled in Sicily as Mount Etna Erupts**\
+`Etna erupts often, but it usually doesn’t release this much ash, an expert said. Tens of thousands of travelers’ plans have been disrupted in the past week.`\
+https://www.nytimes.com/2026/08/13/world/europe/mount-etna-volcano-sicily-eruption.html
+
 **Stagflation Has Returned. Kevin Warsh Must Defy Trump to Protect Our Economy.**\
 `The Northwestern professor Phillip Braun says the return of stagflation brings new urgency to the Fed chairman Kevin Warsh’s next moves.`\
 https://www.nytimes.com/2026/08/13/opinion/stagflation-warsh-trump-inflation-economy.html

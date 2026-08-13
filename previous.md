@@ -1,3 +1,19 @@
+**Why A.I.’s Promise Isn’t Resonating**\
+`On “The Opinions,” the Yale law professor and economist Natasha Sarin argues that A.I. could transform the U.S. economy for the better. But with the public hearing about layoffs and job losses, she says, it’s no wonder the technology’s economic promise isn’t resonating.`\
+https://www.nytimes.com/video/opinion/100000011088929/why-ais-promise-isnt-resonating.html
+
+**Luigi Mangione Is Expected to Plead Guilty in Federal Court, Where He Faces Stalking Charges**\
+`Mr. Mangione faces stalking charges in connection with the killing of an executive in Manhattan. Mr. Mangione could always change his mind at the last minute. A separate murder trial is set to begin next month.`\
+https://www.nytimes.com/2026/08/13/nyregion/luigi-mangione-guilty-plea-federal.html
+
+**Europe Is Once Again In the Grip of Extreme Heat**\
+`The latest round of extreme temperatures, the fifth since May, is disrupting daily life and testing the region’s resilience.`\
+https://www.nytimes.com/2026/08/13/weather/europe-heat-wave-extreme-heat-warning.html
+
+**Hundreds of Flights Canceled in Sicily as Mount Etna Erupts**\
+`Etna erupts often, but it usually doesn’t release this much ash, an expert said. Tens of thousands of travelers’ plans have been disrupted in the past week.`\
+https://www.nytimes.com/2026/08/13/world/europe/mount-etna-volcano-sicily-eruption.html
+
 **Inside the $12.5 Billion Deal for the Lakers**\
 `The transaction, hashed out last weekend, reflects the huge profit potential of major sports franchises.`\
 https://www.nytimes.com/2026/08/13/business/dealbook/lakers-deal-kushner-iger-walter.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/08/13/well/mind/racism-family-relationship-therapis
 **‘The Brink of War’ Review: When the U.S. and U.S.S.R. Came Together**\
 `Written and directed by Michael Russell Gunn and produced by Angel Studios, the film chronicles the frustrating 1986 summit between Reagan and Gorbachev.`\
 https://www.nytimes.com/2026/08/13/movies/the-brink-of-war-review.html
-
-**‘American Doctor’ Review: Going to Gaza to Help, in Any Way They Can**\
-`This documentary by Poh Si Teng focuses on a planned medical trip to Khan Younis, in the southern Gaza Strip, by physicians from the United States.`\
-https://www.nytimes.com/2026/08/13/movies/american-doctor-review.html
-
-**L’Rain Asks if ‘Experimental’ Music Can Be Far-Reaching**\
-`Her latest LP, “Fata Morgana,” explores whether limits to her genre-spanning work are real or perceived.`\
-https://www.nytimes.com/2026/08/13/arts/music/lrain-asks-if-experimental-music-can-be-far-reaching.html
-
-**A Patient’s Final Breath in a Congolese Ebola Ward**\
-`The distance between life and death is razor thin at one medical clinic in Rwampara, the heart of the epidemic ravaging the Democratic Republic of Congo.`\
-https://www.nytimes.com/2026/08/13/world/africa/ebola-congo-patient-dies.html
-
-**‘Fast’ Review: She’s Got Good Traction**\
-`Rob Tregenza’s latest film follows a young woman in Virginia who wants to be a professional racecar driver.`\
-https://www.nytimes.com/2026/08/13/movies/fast-review-shes-got-good-traction.html
 
