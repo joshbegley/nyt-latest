@@ -1,3 +1,11 @@
+**De Venezuela a Colombia: este grupo de rescatistas no ha parado**\
+`Los Topos Azteca, un grupo mexicano de rescate voluntario que trabaja en todo el mundo y ayudó tras los ataques del 11 de septiembre, llegó a Colombia después de buscar sobrevivientes en Venezuela.`\
+https://www.nytimes.com/es/2026/08/13/espanol/america-latina/terremoto-colombia-venezuela-topos-mexico.html
+
+**‘An American Daughter’ Review: Wendy Wasserstein’s Cautionary Tale**\
+`The playwright’s drama about a woman’s troubled nomination for surgeon general arrives Off Broadway. It’s all very ’90s and still very now.`\
+https://www.nytimes.com/2026/08/13/theater/american-daughter-review-wendy-wasserstein.html
+
 **Early-Onset El Niño**\
 `The global weather disrupter appears to be taking a toll, and its peak could still be months away.`\
 https://www.nytimes.com/2026/08/13/climate/el-nino-effects.html
@@ -30,7 +38,7 @@ https://www.nytimes.com/2026/08/13/us/politics/trump-immigration-crackdown.html
 `Reading recommendations from critics and editors at The New York Times.`\
 https://www.nytimes.com/2026/08/13/books/review/new-recommended-books.html
 
-**Wildfire Continues to Threaten California’s Famed Big Sur Region**\
+**Timber Fire Threatens California’s Big Sur Region: What to Know**\
 `The Timber fire has burned more than 4,000 acres and was 7 percent contained on Thursday.`\
 https://www.nytimes.com/2026/08/13/us/timber-fire-big-sur.html
 
@@ -185,12 +193,4 @@ https://www.nytimes.com/video/opinion/100000011083260/we-need-global-ai-safety-p
 **Why A.I.’s Promise Isn’t Resonating**\
 `On “The Opinions,” the Yale law professor and economist Natasha Sarin argues that A.I. could transform the U.S. economy for the better. But with the public hearing about layoffs and job losses, she says, it’s no wonder the technology’s economic promise isn’t resonating.`\
 https://www.nytimes.com/video/opinion/100000011088929/why-ais-promise-isnt-resonating.html
-
-**Luigi Mangione, Facing Stalking Charges in Federal Court, Is Expected to Plead Guilty**\
-`He is charged with stalking resulting in the death of an executive, but the specifics of his plea were unclear. A murder trial in state court is set for next month.`\
-https://www.nytimes.com/2026/08/13/nyregion/luigi-mangione-guilty-plea-federal.html
-
-**Europe Is Once Again In the Grip of Extreme Heat**\
-`The latest round of extreme temperatures, the fifth since May, is disrupting daily life and testing the region’s resilience.`\
-https://www.nytimes.com/2026/08/13/weather/europe-heat-wave-extreme-heat-warning.html
 

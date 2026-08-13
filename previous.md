@@ -1,3 +1,7 @@
+**Early-Onset El Niño**\
+`The global weather disrupter appears to be taking a toll, and its peak could still be months away.`\
+https://www.nytimes.com/2026/08/13/climate/el-nino-effects.html
+
 ****\
 `A train derailed in East Sussex, England, on Thursday, seriously injuring two people.`\
 https://www.nytimes.com/video/embedded/world/europe/100000011090907/13vid-uk-train-derailment.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/13/nyregion/luigi-mangione-guilty-plea-federal.h
 **Europe Is Once Again In the Grip of Extreme Heat**\
 `The latest round of extreme temperatures, the fifth since May, is disrupting daily life and testing the region’s resilience.`\
 https://www.nytimes.com/2026/08/13/weather/europe-heat-wave-extreme-heat-warning.html
-
-**Hundreds of Flights Canceled in Sicily as Mount Etna Erupts**\
-`Etna erupts often, but it usually doesn’t release this much ash, an expert said. Tens of thousands of travelers’ plans have been disrupted in the past week.`\
-https://www.nytimes.com/2026/08/13/world/europe/mount-etna-volcano-sicily-eruption.html
 

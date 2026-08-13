@@ -1,3 +1,7 @@
+**Early-Onset El Niño**\
+`The global weather disrupter appears to be taking a toll, and its peak could still be months away.`\
+https://www.nytimes.com/2026/08/13/climate/el-nino-effects.html
+
 ****\
 `A train derailed in East Sussex, England, on Thursday, seriously injuring two people.`\
 https://www.nytimes.com/video/embedded/world/europe/100000011090907/13vid-uk-train-derailment.html
