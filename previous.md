@@ -1,3 +1,15 @@
+**Israeli Settlers Resume West Bank Siege After Eviction**\
+`The military’s failure to keep extremists away from two Palestinian families trapped in their West Bank homes made clear the chaos gripping the Israeli-occupied territory.`\
+https://www.nytimes.com/2026/08/13/world/middleeast/west-bank-siege-israeli-settlers.html
+
+**De Venezuela a Colombia: este grupo de rescatistas no ha parado**\
+`Los Topos Azteca, un grupo mexicano de rescate voluntario que trabaja en todo el mundo y ayudó tras los ataques del 11 de septiembre, llegó a Colombia después de buscar sobrevivientes en Venezuela.`\
+https://www.nytimes.com/es/2026/08/13/espanol/america-latina/terremoto-colombia-venezuela-topos-mexico.html
+
+**‘An American Daughter’ Review: Wendy Wasserstein’s Cautionary Tale**\
+`The playwright’s drama about a woman’s troubled nomination for surgeon general arrives Off Broadway. It’s all very ’90s and still very now.`\
+https://www.nytimes.com/2026/08/13/theater/american-daughter-review-wendy-wasserstein.html
+
 **Early-Onset El Niño**\
 `The global weather disrupter appears to be taking a toll, and its peak could still be months away.`\
 https://www.nytimes.com/2026/08/13/climate/el-nino-effects.html
@@ -6,8 +18,8 @@ https://www.nytimes.com/2026/08/13/climate/el-nino-effects.html
 `A train derailed in East Sussex, England, on Thursday, seriously injuring two people.`\
 https://www.nytimes.com/video/embedded/world/europe/100000011090907/13vid-uk-train-derailment.html
 
-**John Crowley, Whose Fantasy Novels Blurred Reality and Dream, Dies at 83**\
-`The eminent critic Harold Bloom called his 1981 book ‘Little, Big’ a ‘neglected masterpiece’ and one of the best novels of the 20th century.`\
+**John Crowley, Author of Reality-Blurring Fantasy Novels Like ‘Little, Big,‘ Dies at 83**\
+`The eminent critic Harold Bloom called his 1981 book ‘Little, Big’ a “neglected masterpiece” and one of the best novels of the 20th century.`\
 https://www.nytimes.com/2026/08/13/books/john-crowley-dead.html
 
 **Trump Gives Green Light to U.S. Companies to Aim Hacks at Cybercriminals**\
@@ -30,7 +42,7 @@ https://www.nytimes.com/2026/08/13/us/politics/trump-immigration-crackdown.html
 `Reading recommendations from critics and editors at The New York Times.`\
 https://www.nytimes.com/2026/08/13/books/review/new-recommended-books.html
 
-**Wildfire Continues to Threaten California’s Famed Big Sur Region**\
+**Timber Fire Threatens California’s Big Sur Region: What to Know**\
 `The Timber fire has burned more than 4,000 acres and was 7 percent contained on Thursday.`\
 https://www.nytimes.com/2026/08/13/us/timber-fire-big-sur.html
 
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/08/13/arts/music/best-classical-music-albums-august
 **We Need Global A.I. Safety Planning**\
 `We used to talk about the risks of A.I. a lot more. On a recent episode of “The Opinions,” the Opinion writer David Wallace-Wells speaks with the Yale law professor and economist Natasha Sarin about how A.I. safety could bring China and the U.S. together.`\
 https://www.nytimes.com/video/opinion/100000011083260/we-need-global-ai-safety-planning.html
-
-**Why A.I.’s Promise Isn’t Resonating**\
-`On “The Opinions,” the Yale law professor and economist Natasha Sarin argues that A.I. could transform the U.S. economy for the better. But with the public hearing about layoffs and job losses, she says, it’s no wonder the technology’s economic promise isn’t resonating.`\
-https://www.nytimes.com/video/opinion/100000011088929/why-ais-promise-isnt-resonating.html
-
-**Luigi Mangione, Facing Stalking Charges in Federal Court, Is Expected to Plead Guilty**\
-`He is charged with stalking resulting in the death of an executive, but the specifics of his plea were unclear. A murder trial in state court is set for next month.`\
-https://www.nytimes.com/2026/08/13/nyregion/luigi-mangione-guilty-plea-federal.html
-
-**Europe Is Once Again In the Grip of Extreme Heat**\
-`The latest round of extreme temperatures, the fifth since May, is disrupting daily life and testing the region’s resilience.`\
-https://www.nytimes.com/2026/08/13/weather/europe-heat-wave-extreme-heat-warning.html
 

@@ -1,3 +1,23 @@
+**Israeli Settlers Resume West Bank Siege After Eviction**\
+`The military’s failure to keep extremists away from two Palestinian families trapped in their West Bank homes made clear the chaos gripping the Israeli-occupied territory.`\
+https://www.nytimes.com/2026/08/13/world/middleeast/west-bank-siege-israeli-settlers.html
+
+**De Venezuela a Colombia: este grupo de rescatistas no ha parado**\
+`Los Topos Azteca, un grupo mexicano de rescate voluntario que trabaja en todo el mundo y ayudó tras los ataques del 11 de septiembre, llegó a Colombia después de buscar sobrevivientes en Venezuela.`\
+https://www.nytimes.com/es/2026/08/13/espanol/america-latina/terremoto-colombia-venezuela-topos-mexico.html
+
+**‘An American Daughter’ Review: Wendy Wasserstein’s Cautionary Tale**\
+`The playwright’s drama about a woman’s troubled nomination for surgeon general arrives Off Broadway. It’s all very ’90s and still very now.`\
+https://www.nytimes.com/2026/08/13/theater/american-daughter-review-wendy-wasserstein.html
+
+**John Crowley, Author of Reality-Blurring Fantasy Novels Like ‘Little, Big,‘ Dies at 83**\
+`The eminent critic Harold Bloom called his 1981 book ‘Little, Big’ a “neglected masterpiece” and one of the best novels of the 20th century.`\
+https://www.nytimes.com/2026/08/13/books/john-crowley-dead.html
+
+**Timber Fire Threatens California’s Big Sur Region: What to Know**\
+`The Timber fire has burned more than 4,000 acres and was 7 percent contained on Thursday.`\
+https://www.nytimes.com/2026/08/13/us/timber-fire-big-sur.html
+
 **Early-Onset El Niño**\
 `The global weather disrupter appears to be taking a toll, and its peak could still be months away.`\
 https://www.nytimes.com/2026/08/13/climate/el-nino-effects.html
