@@ -1,3 +1,7 @@
+**Seguridad Nacional de EE. UU. pagó 464 millones de dólares por aviones. Luego los estacionó**\
+`La agencia utilizó un contrato sin licitación para comprar 10 aviones usados, diciendo que se necesitaban con urgencia para vuelos de deportación. Pero durante meses, en gran medida, la flota ha permanecido inactiva.`\
+https://www.nytimes.com/es/2026/08/13/espanol/estados-unidos/seguridad-nacional-trump-aviones-sin-uso.html
+
 **¡A salvo!**\
 `Diana Marcela Troncoso fue liberada con vida tras casi 30 horas atrapada entre los escombros del terremoto que sacudió Colombia.`\
 https://www.nytimes.com/es/2026/08/13/espanol/america-latina/colombia-terremoto-foto.html
@@ -22,8 +26,8 @@ https://www.nytimes.com/2026/08/13/world/americas/topos-azteca-rescue-efforts-co
 `Ash spewing from Sicily’s Mount Etna volcano caused the cancelation of more than 700 flights, during the peak of Italy’s summer tourism season.`\
 https://www.nytimes.com/video/world/europe/100000011090024/mount-etna-eruption-travelers-sicily-italy.html
 
-**Trump-Led Board Votes Again to Close Kennedy Center for Renovations**\
-`The decision will be reviewed by a federal judge who previously said the board had not thoroughly evaluated the president’s plan.`\
+**Kennedy Center Board Decides to Inscribe Trump’s Name on Building**\
+`The vote to add “Restored and Renovated by President Donald J. Trump” is an aggressive test of a judge’s order to remove his name.`\
 https://www.nytimes.com/2026/08/13/arts/design/kennedy-center-closure-board-vote-trump.html
 
 **California May Let Residents Choose ‘Jewish’ as an Ethnic Identifier**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/13/world/asia/china-premier-zhu-rongji-reaction.
 **The Truth Behind an N.F.L. Injury Conspiracy Theory**\
 `What’s hurting the San Francisco 49ers? “It’s time to talk to a scientist.”`\
 https://www.nytimes.com/2026/08/13/podcasts/the-truth-behind-an-nfl-injury-conspiracy-theory.html
-
-**Bryan Johnson’s Blueprint for a 150-Year Life: Is It Worth It?**\
-`The tech mogul is trying to design the blueprint for defying death.`\
-https://www.nytimes.com/2026/08/13/opinion/interesting-times-bryan-johnson.html
 

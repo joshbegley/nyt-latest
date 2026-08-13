@@ -1,3 +1,7 @@
+**Raoul Vaneigem, Whose Manifesto Inspired 1968 Revolt in France, Dies at 92**\
+`“The Revolution of Everyday Life,” published in 1967, was his cri de coeur against mindless work, materialism and authority.`\
+https://www.nytimes.com/2026/08/13/books/raoul-vaneigem-dead.html
+
 **Seguridad Nacional de EE. UU. pagó 464 millones de dólares por aviones. Luego los estacionó**\
 `La agencia utilizó un contrato sin licitación para comprar 10 aviones usados, diciendo que se necesitaban con urgencia para vuelos de deportación. Pero durante meses, en gran medida, la flota ha permanecido inactiva.`\
 https://www.nytimes.com/es/2026/08/13/espanol/estados-unidos/seguridad-nacional-trump-aviones-sin-uso.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/13/crosswords/wordle-review-1882.html
 **How China Remembers Zhu Rongji, the Premier Who Spoke His Mind**\
 `Tributes to the former premier recalled his spirited style and his efforts to integrate China into global commerce, in contrast with the rigidity of the Xi era.`\
 https://www.nytimes.com/2026/08/13/world/asia/china-premier-zhu-rongji-reaction.html
-
-**The Truth Behind an N.F.L. Injury Conspiracy Theory**\
-`What’s hurting the San Francisco 49ers? “It’s time to talk to a scientist.”`\
-https://www.nytimes.com/2026/08/13/podcasts/the-truth-behind-an-nfl-injury-conspiracy-theory.html
 

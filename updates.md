@@ -1,3 +1,11 @@
+**Seguridad Nacional de EE. UU. pagó 464 millones de dólares por aviones. Luego los estacionó**\
+`La agencia utilizó un contrato sin licitación para comprar 10 aviones usados, diciendo que se necesitaban con urgencia para vuelos de deportación. Pero durante meses, en gran medida, la flota ha permanecido inactiva.`\
+https://www.nytimes.com/es/2026/08/13/espanol/estados-unidos/seguridad-nacional-trump-aviones-sin-uso.html
+
+**Kennedy Center Board Decides to Inscribe Trump’s Name on Building**\
+`The vote to add “Restored and Renovated by President Donald J. Trump” is an aggressive test of a judge’s order to remove his name.`\
+https://www.nytimes.com/2026/08/13/arts/design/kennedy-center-closure-board-vote-trump.html
+
 **¡A salvo!**\
 `Diana Marcela Troncoso fue liberada con vida tras casi 30 horas atrapada entre los escombros del terremoto que sacudió Colombia.`\
 https://www.nytimes.com/es/2026/08/13/espanol/america-latina/colombia-terremoto-foto.html
