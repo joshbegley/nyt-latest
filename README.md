@@ -1,4 +1,8 @@
-**Luigi Mangione Is Expected to Plead Guilty in Federal Court**\
+**Why A.I.’s Promise Isn’t Resonating**\
+`On “The Opinions,” the Yale law professor and economist Natasha Sarin argues that A.I. could transform the U.S. economy for the better. But with the public hearing about layoffs and job losses, she says, it’s no wonder the technology’s economic promise isn’t resonating.`\
+https://www.nytimes.com/video/opinion/100000011088929/why-ais-promise-isnt-resonating.html
+
+**Luigi Mangione Is Expected to Plead Guilty in Federal Court, Where He Faces Stalking Charges**\
 `Mr. Mangione faces stalking charges in connection with the killing of an executive in Manhattan. Mr. Mangione could always change his mind at the last minute. A separate murder trial is set to begin next month.`\
 https://www.nytimes.com/2026/08/13/nyregion/luigi-mangione-guilty-plea-federal.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/13/well/mind/racism-family-relationship-therapis
 **‘The Brink of War’ Review: When the U.S. and U.S.S.R. Came Together**\
 `Written and directed by Michael Russell Gunn and produced by Angel Studios, the film chronicles the frustrating 1986 summit between Reagan and Gorbachev.`\
 https://www.nytimes.com/2026/08/13/movies/the-brink-of-war-review.html
-
-**‘American Doctor’ Review: Going to Gaza to Help, in Any Way They Can**\
-`This documentary by Poh Si Teng focuses on a planned medical trip to Khan Younis, in the southern Gaza Strip, by physicians from the United States.`\
-https://www.nytimes.com/2026/08/13/movies/american-doctor-review.html
 
