@@ -70,13 +70,13 @@ https://www.nytimes.com/es/2026/08/13/espanol/opinion/trump-problemas-salud.html
 `Quotation of the Day for Thursday, August 13, 2026.`\
 https://www.nytimes.com/2026/08/13/pageoneplus/quote-of-the-day-join-a-game-and-meet-a-star.html
 
-**Russian Blockade of Major Ukrainian Ports Threatens Global Grain Supplies**\
-`The deadly strikes are part of a long-running maritime battle with Ukraine and echo battles over other key shipping routes around the world.`\
-https://www.nytimes.com/2026/08/13/world/europe/russia-ukraine-ports-odesa-cargo-ship-attacks.html
-
 **What to Know About Today’s U.K. Special Election: Farage vs. Binface**\
 `Nigel Farage, the right-wing populist leader, forced a by-election in his parliamentary seat of Clacton after he came under pressure over his financial declarations.`\
 https://www.nytimes.com/2026/08/13/world/europe/farage-binface-uk-byelection-clacton.html
+
+**Russian Blockade of Major Ukrainian Ports Threatens Global Grain Supplies**\
+`The deadly strikes are part of a long-running maritime battle with Ukraine and echo battles over other key shipping routes around the world.`\
+https://www.nytimes.com/2026/08/13/world/europe/russia-ukraine-ports-odesa-cargo-ship-attacks.html
 
 **‘An English Summer Is Not the Same Anymore’**\
 `With forecasters issuing a warning for very high temperatures, this summer is on track to be one of the hottest yet.`\
