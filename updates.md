@@ -1,3 +1,15 @@
+**Who Is Ahead in the Idaho Governor's Race? Latest 2026 Election Polls**\
+`Track the latest polls in the Idaho governor election.`\
+https://www.nytimes.com/interactive/polls/idaho-governor-election-polls-2026.html
+
+**Charlie Kirk Suspect Fights Death Penalty, Saying Gunman ‘Did Not Miss’**\
+`Prosecutors say they can seek the death penalty against Tyler Robinson because he also endangered people near Charlie Kirk, who was shot in the throat last year. Mr. Robinson’s lawyers note that the gunman struck only his target.`\
+https://www.nytimes.com/2026/08/13/us/charlie-kirk-tyler-robinson-death-penalty.html
+
+**Trump Gives Green Light to U.S. Companies to Aim Hacks at Cybercriminals**\
+`The practice would align the United States with countries like China and Russia, where spy agencies have long relied on private-sector hackers to help with national security missions.`\
+https://www.nytimes.com/2026/08/13/us/politics/trump-private-companies-hacking-cybercriminals.html
+
 **Electric Thrills**\
 `Electric motorcycle sales are surging in Pakistan, as wartime prices accelerate the pivot away from fossil fuels in the developing world.`\
 https://www.nytimes.com/2026/08/13/world/pakistan-e-bikes-europe-heat.html
