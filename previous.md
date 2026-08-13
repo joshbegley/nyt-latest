@@ -1,3 +1,7 @@
+**They Wanted Two Bedrooms in Manhattan. What Would $600,000 Buy?**\
+`When plans to move to Italy fell through, a couple of former dancers decided to put down roots in New York. Here’s what they found.`\
+https://www.nytimes.com/quiz/2026/08/13/realestate/upper-manhattan-homes-sale-prices.html
+
 **Putin Visits Islands Seized from Japan in World War II, Angering Tokyo**\
 `Prime Minister Sanae Takaichi of Japan has been a public critic of Mr. Putin, who has denounced her country’s sanctions against Russia over the Ukraine war.`\
 https://www.nytimes.com/2026/08/13/world/asia/putin-visit-islands-japan-russia.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/13/arts/design/mabel-dwight-prints-whitney-museu
 **In Wyoming, a Primary Fight Between the Right and the Far Right**\
 `One of the most conservative states has a legislature divided between a hard-right House and a merely right Senate. Ultraconservatives want a complete takeover in the Aug. 18 primaries.`\
 https://www.nytimes.com/2026/08/13/us/elections/wyoming-legislature-freedom-caucus.html
-
-**‘Don’t Say Good Luck’ Review: A Bittersweet Big Break**\
-`Sunny Sandler and Melanie Lynskey capture hope and heartache in this melodrama about a daughter’s open door and a mother’s awful diagnosis.`\
-https://www.nytimes.com/2026/08/13/movies/dont-say-good-luck-review.html
 

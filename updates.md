@@ -1,3 +1,7 @@
+**They Wanted Two Bedrooms in Manhattan. What Would $600,000 Buy?**\
+`When plans to move to Italy fell through, a couple of former dancers decided to put down roots in New York. Here’s what they found.`\
+https://www.nytimes.com/quiz/2026/08/13/realestate/upper-manhattan-homes-sale-prices.html
+
 **Putin Visits Islands Seized from Japan in World War II, Angering Tokyo**\
 `Prime Minister Sanae Takaichi of Japan has been a public critic of Mr. Putin, who has denounced her country’s sanctions against Russia over the Ukraine war.`\
 https://www.nytimes.com/2026/08/13/world/asia/putin-visit-islands-japan-russia.html
