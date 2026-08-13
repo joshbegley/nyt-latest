@@ -1,3 +1,23 @@
+**Topos Azteca, a Mexican Volunteer Rescue Group, Helps With Rescue Efforts After Colombia Earthquake**\
+`Topos Azteca, a Mexican volunteer rescue group that works worldwide and helped after the Sept. 11 attacks, arrived in Colombia after searching for survivors in Venezuela.`\
+https://www.nytimes.com/2026/08/13/world/americas/topos-azteca-rescue-efforts-colombia-earthquake.html
+
+**Mount Etna Eruption Leaves Travelers Stranded in Sicily**\
+`Ash spewing from Sicily’s Mount Etna volcano caused the cancelation of more than 700 flights, during the peak of Italy’s summer tourism season.`\
+https://www.nytimes.com/video/world/europe/100000011090024/mount-etna-eruption-travelers-sicily-italy.html
+
+**Trump-Led Board Votes Again to Close Kennedy Center for Renovations**\
+`The decision will be reviewed by a federal judge who previously said the board had not thoroughly evaluated the president’s plan.`\
+https://www.nytimes.com/2026/08/13/arts/design/kennedy-center-closure-board-vote-trump.html
+
+**U.S. Investigated Left-Leaning Groups During Minnesota Immigration Crackdown**\
+`The government conducted expansive surveillance, infiltrated group chats and obtained financial records of organizations never accused of crimes.`\
+https://www.nytimes.com/2026/08/13/us/politics/dhs-inquiry-immigration-protests-minnesota.html
+
+**Maps: 3.8-Magnitude Earthquake Shakes the San Francisco Bay Area**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/08/13/us/quake-tracker-san-francisco-bay.html
+
 **California May Let Residents Choose ‘Jewish’ as an Ethnic Identifier**\
 `A bill would allow Jews to identify themselves as an ethnic group on state forms. Supporters argue it’s a step toward acknowledging the complex nature of Jewish identity.`\
 https://www.nytimes.com/2026/08/13/us/california-jewish-ethnic-identity.html
