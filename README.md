@@ -1,3 +1,7 @@
+**El secretario de Defensa de EE. UU. dice que la coalición anticárteles hará ‘cosas malas a la gente mala’**\
+`Pete Hegseth dijo que el objetivo es “degradar, desmantelar y destruir las redes narcoterroristas” y pidió a los países de Latinoamérica que intensifiquen su lucha.`\
+https://www.nytimes.com/es/2026/08/12/espanol/estados-unidos/pete-hegseth-coalicion-carteles.html
+
 **Federal Hate Crime Charge Filed in Stabbing of Muslim Man in Utah**\
 `The attack left the victim with at least a dozen wounds as several bystanders rushed to intervene.`\
 https://www.nytimes.com/2026/08/12/us/utah-stabbing-hate-crime-muslim.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/08/12/health/mmr-vaccine-combination-separate.html
 **A Special U.S. Navy Squadron Photographed the Last Total Solar Eclipse in Spain in 1905**\
 `Three American warships were sent to Valencia to capture pictures of the sun’s corona with a high-definition camera that would cost over $34,000 in today’s money.`\
 https://www.nytimes.com/2026/08/12/world/europe/total-solar-eclipse-spain-1905-us-navy.html
-
-**Hawaii Braces for a Potential Storm Named Lala**\
-`Forecasters are predicting a tropical storm, potentially a hurricane, may bring heavy rainfall and strong winds to the Big Island starting Friday.`\
-https://www.nytimes.com/2026/08/12/weather/hawaii-braces-for-a-possible-hurricane-named-lala.html
 
 **Por primera vez en décadas, el día se hace noche en Europa bajo un eclipse solar total**\
 `De Islandia a España, los observadores acudieron a los lugares donde, por corto tiempo, la Luna bloqueó completamente al Sol.`\
