@@ -1,3 +1,7 @@
+**ICE Agent Who Pushed Activist to the Ground Near Chicago Pleads Guilty**\
+`The agent, Adam Saracco, was charged with misdemeanor after the altercation at a gas station near Chicago last year during the Trump administration’s crackdown there.`\
+https://www.nytimes.com/2026/08/12/us/politics/ice-chicago-agent-guilty.html
+
 **First Total Eclipse in Decades Sweeps Across Europe**\
 `A total solar eclipse, the first in decades in Europe, swept across the continent on Wednesday.`\
 https://www.nytimes.com/video/science/space/100000011088337/europe-total-solar-eclipse.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/08/12/us/david-crowley-tony-evers-undecided-voters.
 **How ‘The Evil Dead’ Point-of-View Shots Changed Horror Movies Forever**\
 `The racing point-of-view shot is a signature of this franchise. But once you know to look for it, you’ll see it everywhere.`\
 https://www.nytimes.com/interactive/2026/08/12/movies/the-evil-dead-sam-raimi.html
-
-**More Than 40 Dead After a Ferry Capsizes on Zimbabwe’s Lake Kariba**\
-`The vessel was crowded far beyond capacity and was hit by strong waves, the police said. While dozens have been rescued, the search continues for an unknown number of missing people.`\
-https://www.nytimes.com/2026/08/12/world/africa/-zimbabwe-lake-kariba-ferry-capsize.html
 
 **Por primera vez en décadas, el día se hace noche en Europa bajo un eclipse solar total**\
 `De Islandia a España, los observadores acudieron a los lugares donde, por corto tiempo, la Luna bloqueó completamente al Sol.`\
