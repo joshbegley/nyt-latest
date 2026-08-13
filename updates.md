@@ -1,3 +1,11 @@
+**Nigel Farage Quit to Force a New Election. Now, He Faces Count Binface.**\
+`Nigel Farage, the leader of Reform U.K., will face Count Binface, a novelty candidate, in Thursday’s special election that he forced after coming under pressure over his finances.`\
+https://www.nytimes.com/video/world/europe/100000011089783/britain-special-election-farage-binface.html
+
+**No voy a mentir sobre mi cuello**\
+`Como muchas mujeres jóvenes, alguna vez fui ferozmente crítica de la cirugía plástica. Ahora ya no estoy tan segura.`\
+https://www.nytimes.com/es/2026/08/13/espanol/opinion/cirugia-plastica-face-lift-feminismo.html
+
 **What to Know About Today’s U.K. Special Election: Farage vs. Binface**\
 `Nigel Farage, the right-wing populist leader, forced a by-election in his parliamentary seat of Clacton after he came under pressure over his financial declarations.`\
 https://www.nytimes.com/2026/08/13/world/europe/farage-binface-uk-byelection-clacton.html
