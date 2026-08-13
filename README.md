@@ -1,3 +1,15 @@
+**John Crowley, Whose Fantasy Novels Blurred Reality and Dream, Dies at 83**\
+`The eminent critic Harold Bloom called his 1981 book ‘Little, Big’ a ‘neglected masterpiece’ and one of the best novels of the 20th century.`\
+https://www.nytimes.com/2026/08/13/books/john-crowley-dead.html
+
+**Trump Gives Green Light to U.S. Companies to Aim Hacks at Cybercriminals**\
+`The idea has been long in the making, but could be difficult to implement and lead to unintended consequences, former officials and security experts said.`\
+https://www.nytimes.com/2026/08/13/us/politics/trump-private-companies-hacking-cybercriminals.html
+
+**Only Global Cooperation Can Keep the World Safe From A.I.**\
+`A conversation with Robert Wright, the author of “The God Test.”`\
+https://www.nytimes.com/2026/08/13/opinion/ai-safety-regulation-robert-wright.html
+
 **Another OpenAI Executive, Denise Dresser, Departs the A.I. Start-Up**\
 `Denise Dresser, who was previously the C.E.O. of Slack, is the latest in a string of executives to leave the artificial intelligence start-up.`\
 https://www.nytimes.com/2026/08/13/technology/openai-executive-departure-denise-dresser.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/08/13/world/europe/mount-etna-volcano-sicily-erupti
 **Inside the $12.5 Billion Deal for the Lakers**\
 `The transaction, hashed out last weekend, reflects the huge profit potential of major sports franchises.`\
 https://www.nytimes.com/2026/08/13/business/dealbook/lakers-deal-kushner-iger-walter.html
-
-**How Thanksgiving Became Political: Francesca Hong’s Tweets Explained**\
-`Ahead of Wisconsin’s Democratic primary for governor, a past tweet by the assemblywoman that called for the holiday to be canceled was resurfaced.`\
-https://www.nytimes.com/2026/08/13/style/thanksgiving-francesca-hong-wisconsin.html
-
-**They Wanted Two Bedrooms in Manhattan. What Would $600,000 Buy?**\
-`When plans to move to Italy fell through, a couple of former dancers decided to put down roots in New York. Here’s what they found.`\
-https://www.nytimes.com/quiz/2026/08/13/realestate/upper-manhattan-homes-sale-prices.html
-
-**Putin Visits Islands Seized From Japan in World War II, Angering Tokyo**\
-`Prime Minister Sanae Takaichi of Japan has been a public critic of Mr. Putin, who has denounced her country’s sanctions against Russia over the Ukraine war.`\
-https://www.nytimes.com/2026/08/13/world/asia/putin-visit-islands-japan-russia.html
 
