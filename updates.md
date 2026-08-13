@@ -1,3 +1,19 @@
+**Outdoor Dining Is Expected to Resume Year-Round in New York City**\
+`The City Council is poised to approve a package of bills loosening some restrictions on roadway dining structures, which became ubiquitous during the pandemic.`\
+https://www.nytimes.com/2026/08/13/nyregion/outdoor-dining-is-expected-to-resume-year-round-in-new-york-city.html
+
+**NYT Spelling Bee Answers for August 13, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/08/13/crosswords/spelling-bee-forum.html
+
+**Happy Hour With the Vanishing Nuns of New York**\
+`As convents are closing all over, the sisters are facing the end of their lives together — and they have brought the party to an assisted living center in the suburbs.`\
+https://www.nytimes.com/2026/08/13/nyregion/last-nuns-new-york-city.html
+
+**New Yorkers Who Lost Insurance After Trump Cuts Face Hard Choices**\
+`New York State’s generous health plan for working-class people was hit hard by federal funding cuts. More than 400,000 people are now looking for new coverage or living without it.`\
+https://www.nytimes.com/2026/08/13/nyregion/new-york-health-insurance-trump-cuts.html
+
 **What to Know About Thursday’s Special Election in Clacton: Farage vs. Binface**\
 `Nigel Farage, the right-wing populist leader, forced a by-election in his parliamentary seat of Clacton after he came under pressure over his financial declarations.`\
 https://www.nytimes.com/2026/08/13/world/europe/farage-binface-uk-byelection-clacton.html
