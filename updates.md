@@ -1,3 +1,7 @@
+**Woman Arrested After Confessing to Starting Nevada Fire, Officials Say**\
+`The woman was arrested on suspicion of arson and possession of a controlled substance. Officials said she set multiple fires that later became part of the Bug fire, which has burned over 70,000 acres.`\
+https://www.nytimes.com/2026/08/12/us/fred-mountain-fire-arson-arrest.html
+
 **ICE Agent Who Pushed Activist to the Ground Near Chicago Pleads Guilty**\
 `The agent, Adam Saracco, was charged with misdemeanor after the altercation at a gas station near Chicago last year during the Trump administration’s crackdown there.`\
 https://www.nytimes.com/2026/08/12/us/politics/ice-chicago-agent-guilty.html

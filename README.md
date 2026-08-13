@@ -1,3 +1,7 @@
+**A Fight Over Abortion and Surrogacy Ends With a Baby Born in Texas**\
+`The baby, who was born Wednesday with a severe heart defect, drew the attention of anti-abortion activists and the Texas attorney general after the intended parents wanted the surrogate mother to have an abortion.`\
+https://www.nytimes.com/2026/08/12/us/texas-surrogate-baby-abortion-dispute.html
+
 **ICE Agent Who Pushed Activist to the Ground Near Chicago Pleads Guilty**\
 `The agent, Adam Saracco, was charged with misdemeanor after the altercation at a gas station near Chicago last year during the Trump administration’s crackdown there.`\
 https://www.nytimes.com/2026/08/12/us/politics/ice-chicago-agent-guilty.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/08/12/us/politics/david-crowley-francesca-hong-demo
 **How Crowley Eked Out a Win in the Wisconsin Governor Primary**\
 `A shifting race and a key endorsement helped the moderate Democrat overcome his progressive challenger, Francesca Hong, voters said.`\
 https://www.nytimes.com/2026/08/12/us/david-crowley-tony-evers-undecided-voters.html
-
-**How ‘The Evil Dead’ Point-of-View Shots Changed Horror Movies Forever**\
-`The racing point-of-view shot is a signature of this franchise. But once you know to look for it, you’ll see it everywhere.`\
-https://www.nytimes.com/interactive/2026/08/12/movies/the-evil-dead-sam-raimi.html
 
 **Por primera vez en décadas, el día se hace noche en Europa bajo un eclipse solar total**\
 `De Islandia a España, los observadores acudieron a los lugares donde, por corto tiempo, la Luna bloqueó completamente al Sol.`\
