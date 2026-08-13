@@ -1,3 +1,7 @@
+**As Comedians Toy With A.I., Who Will Get the Last Laugh?**\
+`Several acts at the Edinburgh Fringe are testing the boundaries of creativity using artificial intelligence.`\
+https://www.nytimes.com/2026/08/13/arts/edinburgh-fringe-ai-comedy.html
+
 **Nigel Farage Quit to Force a New Election. Now, He Faces Count Binface.**\
 `Nigel Farage, the leader of Reform U.K., will face Count Binface, a novelty candidate, in Thursday’s special election that he forced after coming under pressure over his finances.`\
 https://www.nytimes.com/video/world/europe/100000011089783/britain-special-election-farage-binface.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/08/12/us/johanna-fernandez-dead.html
 **Israeli Settlers Are Out of Control**\
 `If Netanyahu is ousted in October’s balloting, don’t expect peace to break out, but the worst violence might be reined in.`\
 https://www.nytimes.com/2026/08/12/opinion/israeli-settlers-palestinians-west-bank.html
-
-**Afghanistan’s Unhappy Anniversary**\
-`Five years into their hard-line rule, the Taliban find themselves in crisis at home and abroad.`\
-https://www.nytimes.com/2026/08/12/world/afghanistan-taliban-anniversary-eclipse-lakers.html
 
 **First Total Eclipse in Europe in Decades Turns Day to Night**\
 `From Iceland to Spain, people flocked to viewing spots to see the moon completely block out the sun.`\
