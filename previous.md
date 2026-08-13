@@ -1,3 +1,7 @@
+**Train Derails in Southern England**\
+`Emergency services said they were working at the scene of a train derailment near Lewes, in East Sussex, on Thursday.`\
+https://www.nytimes.com/2026/08/13/world/europe/train-derails-southern-england.html
+
 **Topos Azteca, a Mexican Volunteer Rescue Group, Helps With Rescue Efforts After Colombia Earthquake**\
 `Topos Azteca, a Mexican volunteer rescue group that works worldwide and helped after the Sept. 11 attacks, arrived in Colombia after searching for survivors in Venezuela.`\
 https://www.nytimes.com/2026/08/13/world/americas/topos-azteca-rescue-efforts-colombia-earthquake.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/13/t-magazine/the-special-melons-starring-on-sum
 **The Bicentennial Was Better! | Cannonball with Wesley Morris**\
 `America turned 250 and all we got was a lousy logo.`\
 https://www.nytimes.com/2026/08/13/podcasts/the-bicentennial-was-better.html
-
-**Corrections: Aug. 13, 2026**\
-`Corrections that appeared in print on Thursday, Aug. 13, 2026.`\
-https://www.nytimes.com/2026/08/13/pageoneplus/corrections-aug-13-2026.html
 
