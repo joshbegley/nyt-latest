@@ -1,3 +1,7 @@
+**Trump’s Immigration Policy Echoes 1920s Turn Against Certain Newcomers**\
+`U.S. leaders limited immigration amid economic and social turmoil. Historians see similarities to Trump’s crackdown, with a catch: He’s doing it without Congress.`\
+https://www.nytimes.com/2026/08/13/us/politics/trump-immigration-crackdown.html
+
 **Books Our Editors Loved This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://www.nytimes.com/2026/08/13/books/review/new-recommended-books.html
