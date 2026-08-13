@@ -1,3 +1,27 @@
+**Hegseth Is Pressed to Clarify Lawyer’s Role in Promotion Decisions**\
+`Representative Jason Crow asked Defense Secretary Pete Hegseth to explain statements about his special adviser’s influence following a New York Times report.`\
+https://www.nytimes.com/2026/08/13/us/hegseth-jason-crow-military-promotions.html
+
+**Are the Democratic Socialists Winning or Losing?**\
+`Progressive Democrats have been gaining ground in primaries across the country, but recent wins and losses in Michigan and Wisconsin show the strength and the limits of the movement.`\
+https://www.nytimes.com/2026/08/13/podcasts/the-daily/democratic-socialists-michigan-wisconsin-progressive-left.html
+
+**ICE’s Plan to Give Officers Electric Stun Gloves, and a Siege on Palestinian Homes**\
+`Plus, health candy?`\
+https://www.nytimes.com/2026/08/13/podcasts/the-headlines/ice-electric-stun-gloves-palestinian-families.html
+
+**NYT Connections Answers for August 14, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Aug. 14, 2026.`\
+https://www.nytimes.com/2026/08/13/crosswords/connections-companion-1160.html
+
+**NYT Strands Hints for Aug. 14, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Aug. 14, 2026.`\
+https://www.nytimes.com/2026/08/13/crosswords/strands-sidekick-894.html
+
+**Today’s Wordle Hints for August 14, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Aug. 14, 2026.`\
+https://www.nytimes.com/2026/08/13/crosswords/wordle-review-1882.html
+
 **How China Remembers Zhu Rongji, the Premier Who Spoke His Mind**\
 `Tributes to the former premier recalled his spirited style and his efforts to integrate China into global commerce, in contrast with the rigidity of the Xi era.`\
 https://www.nytimes.com/2026/08/13/world/asia/china-premier-zhu-rongji-reaction.html
