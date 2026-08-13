@@ -1,3 +1,11 @@
+**Three Street Carts Where You Can Dine Curbside**\
+`For every brick-and-mortar restaurant, New York City has just as many street carts. These three carts are dining room worthy.`\
+https://www.nytimes.com/2026/08/13/dining/street-carts.html
+
+**Trump Gives Green Light to U.S. Companies to Aim Hacks at Cybercriminals**\
+`The practice would align the United States more closely with countries like China and Russia, where spy agencies have long relied on private-sector hackers to help with national security missions.`\
+https://www.nytimes.com/2026/08/13/us/politics/trump-private-companies-hacking-cybercriminals.html
+
 **Who Is Ahead in the Idaho Governor's Race? Latest 2026 Election Polls**\
 `Track the latest polls in the Idaho governor election.`\
 https://www.nytimes.com/interactive/polls/idaho-governor-election-polls-2026.html

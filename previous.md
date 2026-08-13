@@ -1,3 +1,7 @@
+**Three Street Carts Where You Can Dine Curbside**\
+`For every brick-and-mortar restaurant, New York City has just as many street carts. These three carts are dining room worthy.`\
+https://www.nytimes.com/2026/08/13/dining/street-carts.html
+
 **Who Is Ahead in the Idaho Governor's Race? Latest 2026 Election Polls**\
 `Track the latest polls in the Idaho governor election.`\
 https://www.nytimes.com/interactive/polls/idaho-governor-election-polls-2026.html
@@ -47,7 +51,7 @@ https://www.nytimes.com/video/embedded/world/europe/100000011090907/13vid-uk-tra
 https://www.nytimes.com/2026/08/13/books/john-crowley-dead.html
 
 **Trump Gives Green Light to U.S. Companies to Aim Hacks at Cybercriminals**\
-`The practice would align the United States with countries like China and Russia, where spy agencies have long relied on private-sector hackers to help with national security missions.`\
+`The practice would align the United States more closely with countries like China and Russia, where spy agencies have long relied on private-sector hackers to help with national security missions.`\
 https://www.nytimes.com/2026/08/13/us/politics/trump-private-companies-hacking-cybercriminals.html
 
 **Only Global Cooperation Can Keep the World Safe From A.I.**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/13/us/politics/supreme-court-changing-oral-argum
 **How a Long-Shot U.S. Oil Drilling Project Is Shaking Up Greenland**\
 `A U.S. oil company says it could be on the verge of a major discovery in Greenland. The proposal comes at a tricky time for the Arctic island, and locals are lining up against it.`\
 https://www.nytimes.com/2026/08/13/world/europe/greenland-oil-project-us-dr-phil.html
-
-**Bryan Johnson’s Psychedelic Experience**\
-`What’s worse — dying or living forever? The tech mogul Bryan Johnson wants to live for centuries. On “Interesting Times,” he tells the columnist Ross Douthat about how a DMT trip opened his mind to the “preciousness of existence.”`\
-https://www.nytimes.com/video/opinion/100000011079571/bryan-johnsons-psychedelic-experience.html
 
