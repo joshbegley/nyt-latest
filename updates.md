@@ -1,3 +1,11 @@
+**ICE Agent Who Pushed Activist to the Ground Near Chicago Pleads Guilty**\
+`The agent, Adam Saracco, was charged with misdemeanor after the altercation at a gas station near Chicago last year during the Trump administration’s crackdown there.`\
+https://www.nytimes.com/2026/08/12/us/politics/ice-chicago-agent-guilty.html
+
+**A Special U.S. Navy Squadron Photographed the Last Total Solar Eclipse in Spain in 1905**\
+`Three American warships were sent to Valencia to capture pictures of the sun’s corona with a high-definition camera that would cost over $34,000 in today’s money.`\
+https://www.nytimes.com/2026/08/12/world/europe/total-solar-eclipse-spain-1905-us-navy.html
+
 **First Total Eclipse in Decades Sweeps Across Europe**\
 `A total solar eclipse, the first in decades in Europe, swept across the continent on Wednesday.`\
 https://www.nytimes.com/video/science/space/100000011088337/europe-total-solar-eclipse.html
