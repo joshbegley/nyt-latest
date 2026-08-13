@@ -1,3 +1,7 @@
+**Diya Joukani, India’s ‘It’ Girl, Really Is That Cool**\
+`Diya Joukani’s popular videos on social media documenting her daily life in Mumbai have earned her a reputation as “the cool girl from India.” She has parlayed it into her brand.`\
+https://www.nytimes.com/2026/08/13/style/diya-joukani-india-influencer.html
+
 **How China Remembers Zhu Rongji, the Premier Who Spoke His Mind**\
 `Tributes to the former premier recalled his spirited style and his efforts to integrate China into global commerce, in contrast with the rigidity of the Xi era.`\
 https://www.nytimes.com/2026/08/13/world/asia/china-premier-zhu-rongji-reaction.html
