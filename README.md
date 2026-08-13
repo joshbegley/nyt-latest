@@ -1,3 +1,7 @@
+**A City Mobilizes Against a Stubborn Health Threat: Mosquitoes**\
+`The city of Belém in northern Brazil was overwhelmed by an outbreak of dengue two years ago. An all-out municipal effort has reduced cases and may offer lessons to American cities.`\
+https://www.nytimes.com/2026/08/13/health/mosquitoes-brazil-health-threat.html
+
 **How a Covid-Era Scramble Transformed Supreme Court Arguments**\
 `Live audio, a new format and new voices have transformed and unsettled the court’s signature public ceremony.`\
 https://www.nytimes.com/2026/08/13/us/politics/supreme-court-changing-oral-arguments.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/13/dining/mexican-food-scene-united-states-immig
 **What’s Happening in Kansas Should Alarm Us All**\
 `Is Kansas just the beginning?`\
 https://www.nytimes.com/2026/08/13/opinion/kansas-anti-trans-laws-drivers-license.html
-
-**The Nantucket Lightship Basket Is Having a Very Good Summer**\
-`Long waits, eye-popping prices and master craftsmanship. It’s never been a better time to be a Nantucket friendship basket.`\
-https://www.nytimes.com/2026/08/13/style/nantucket-lightship-friendship-basket.html
 
