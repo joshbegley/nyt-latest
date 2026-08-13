@@ -1,3 +1,7 @@
+**Putin Visits Islands Seized from Japan in World War II, Angering Tokyo**\
+`Prime Minister Sanae Takaichi of Japan has been a public critic of Mr. Putin, who has denounced her country’s sanctions against Russia over the Ukraine war.`\
+https://www.nytimes.com/2026/08/13/world/asia/putin-visit-islands-japan-russia.html
+
 **A Celestial Wonder**\
 `We’re sharing photos from yesterday’s total solar eclipse.`\
 https://www.nytimes.com/2026/08/13/briefing/solar-eclipse-photos.html
@@ -122,7 +126,7 @@ https://www.nytimes.com/2026/08/13/arts/television/rory-scovel-comedy-show-must-
 `Even at a time of anti-immigration politics, there has never been a richer variety of Mexican restaurants in the United States.`\
 https://www.nytimes.com/2026/08/13/dining/mexican-food-scene-united-states-immigration.html
 
-**Kansas Put a Bounty on Trans People**\
+**What’s Happening in Kansas Should Alarm Us All**\
 `Is Kansas just the beginning?`\
 https://www.nytimes.com/2026/08/13/opinion/kansas-anti-trans-laws-drivers-license.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/13/us/elections/wyoming-legislature-freedom-cauc
 **‘Don’t Say Good Luck’ Review: A Bittersweet Big Break**\
 `Sunny Sandler and Melanie Lynskey capture hope and heartache in this melodrama about a daughter’s open door and a mother’s awful diagnosis.`\
 https://www.nytimes.com/2026/08/13/movies/dont-say-good-luck-review.html
-
-**An Architect Who Built Where No One Else Dared**\
-`On a hillside outside Birmingham, Ala., Jeffrey Dungan saw a chance to create his dream house, which effectively cascades down the incline.`\
-https://www.nytimes.com/2026/08/13/t-magazine/jeffrey-dungan-birmingham-house.html
 

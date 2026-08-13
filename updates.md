@@ -1,3 +1,11 @@
+**Putin Visits Islands Seized from Japan in World War II, Angering Tokyo**\
+`Prime Minister Sanae Takaichi of Japan has been a public critic of Mr. Putin, who has denounced her country’s sanctions against Russia over the Ukraine war.`\
+https://www.nytimes.com/2026/08/13/world/asia/putin-visit-islands-japan-russia.html
+
+**What’s Happening in Kansas Should Alarm Us All**\
+`Is Kansas just the beginning?`\
+https://www.nytimes.com/2026/08/13/opinion/kansas-anti-trans-laws-drivers-license.html
+
 **A Celestial Wonder**\
 `We’re sharing photos from yesterday’s total solar eclipse.`\
 https://www.nytimes.com/2026/08/13/briefing/solar-eclipse-photos.html
