@@ -1,3 +1,7 @@
+**Appeals Court Sidesteps Key Question Over Trump’s Use of Wartime Law**\
+`The court dismissed a case over the Alien Enemies Act in a messy conclusion to a long-running legal battle that had seemed destined to end up before the Supreme Court.`\
+https://www.nytimes.com/2026/08/13/us/politics/alien-enemies-act-trump-appeals-court.html
+
 **Stavros Halkias Calls Out Comedians**\
 `The comedian Stavros Halkias called out how wealth and fame are changing A-list comics in his interview with Joe Coscarelli and Jon Caramanica on Popcast.`\
 https://www.nytimes.com/video/podcasts/100000011084159/stavros-halkias-calls-out-comedians.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/13/us/politics/dhs-inquiry-immigration-protests-
 **After Supreme Court Losses, Trump Keeps Pushing**\
 `Is the administration defying the court or pursuing lawful alternatives?`\
 https://www.nytimes.com/2026/08/13/us/politics/the-docket-supreme-court-trump-losses.html
-
-**Maps: 3.8-Magnitude Earthquake Shakes the San Francisco Bay Area**\
-`View the location of the quake’s epicenter and shake area.`\
-https://www.nytimes.com/interactive/2026/08/13/us/quake-tracker-san-francisco-bay.html
 
