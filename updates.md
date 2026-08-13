@@ -1,3 +1,15 @@
+**Wagner Moura Puts Us on Trial in Edinburgh**\
+`Our chief theater critic, Helen Shaw, is in Scotland for the Edinburgh International Festival. For her, Christiane Jatahy’s modern reimagining of Henrik Ibsen’s “Enemy of the People” was a difficult but valuable theater experience.`\
+https://www.nytimes.com/video/theater/100000011065965/wagner-moura-puts-us-on-trial-in-edinburgh.html
+
+**Trump’s Immigration Spies**\
+`And California asks, “Are Jews an ethnic group?” Here’s the latest at the end of Thursday.`\
+https://www.nytimes.com/2026/08/13/briefing/immigration-supremecourt-jews.html
+
+**Ex-Officer Held in New Orleans Mass Shooting Plot Is Freed Without Charges**\
+`Law enforcement officials had said that Christopher Gillum, a former police officer in North Carolina, planned to attack a large festival. He was released without charges.`\
+https://www.nytimes.com/2026/08/13/us/mass-shooting-new-orleans-ex-police-released.html
+
 **Appeals Court Sidesteps Key Question Over Trump’s Use of Alien Enemies Act**\
 `The court dismissed a case over the Alien Enemies Act in a messy conclusion to a long-running legal battle that had seemed destined to end up before the Supreme Court.`\
 https://www.nytimes.com/2026/08/13/us/politics/alien-enemies-act-trump-appeals-court.html
