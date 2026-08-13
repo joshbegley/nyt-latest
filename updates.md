@@ -1,3 +1,11 @@
+**Appeals Court Sidesteps Key Question Over Trump’s Use of Wartime Law**\
+`The court dismissed a case over the Alien Enemies Act in a messy conclusion to a long-running legal battle that had seemed destined to end up before the Supreme Court.`\
+https://www.nytimes.com/2026/08/13/us/politics/alien-enemies-act-trump-appeals-court.html
+
+**Stavros Halkias Calls Out Comedians**\
+`The comedian Stavros Halkias called out how wealth and fame are changing A-list comics in his interview with Joe Coscarelli and Jon Caramanica on Popcast.`\
+https://www.nytimes.com/video/podcasts/100000011084159/stavros-halkias-calls-out-comedians.html
+
 **How a Times Photographer Captured the Solar Eclipse**\
 `To document the celestial event on Wednesday, a photographer had to get creative.`\
 https://www.nytimes.com/2026/08/13/insider/solar-eclipse-photo.html
