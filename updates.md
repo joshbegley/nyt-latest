@@ -1,3 +1,23 @@
+**Another OpenAI Executive, Denise Dresser, Departs the A.I. Start-Up**\
+`Denise Dresser, who was previously the C.E.O. of Slack, is the latest in a string of executives to leave the artificial intelligence start-up.`\
+https://www.nytimes.com/2026/08/13/technology/openai-executive-departure-denise-dresser.html
+
+**Trump’s Immigration Policy Echoes 1920s Crackdown, but This Time Congress Isn’t Involved**\
+`U.S. leaders limited immigration amid economic and social turmoil. Historians see similarities to Trump’s crackdown, with a catch: He’s doing it without Congress.`\
+https://www.nytimes.com/2026/08/13/us/politics/trump-immigration-crackdown.html
+
+**Wildfire Continues to Threaten California’s Famed Big Sur Region**\
+`The Timber fire has burned more than 4,000 acres and was 7 percent contained on Thursday.`\
+https://www.nytimes.com/2026/08/13/us/timber-fire-big-sur.html
+
+**Train Derails Near Town of Lewes in East Sussex, U.K.**\
+`Emergency services said they were working at the scene of a derailment near Lewes, in East Sussex, on Thursday. Nine other people were less seriously hurt.`\
+https://www.nytimes.com/2026/08/13/world/europe/train-derails-southern-england.html
+
+**How a Long-Shot U.S. Oil Drilling Project Is Shaking Up Greenland**\
+`A U.S. oil company says it could be on the verge of a major discovery in Greenland. The proposal comes at a tricky time for the Arctic island, and locals are lining up against it.`\
+https://www.nytimes.com/2026/08/13/world/europe/greenland-oil-project-us-dr-phil.html
+
 **EE. UU. pagó 464 millones de dólares por aviones. Luego los estacionó**\
 `La agencia utilizó un contrato sin licitación para comprar 10 aviones usados, diciendo que se necesitaban con urgencia para vuelos de deportación. Pero durante meses, en gran medida, la flota ha permanecido inactiva.`\
 https://www.nytimes.com/es/2026/08/13/espanol/estados-unidos/seguridad-nacional-trump-aviones-sin-uso.html
