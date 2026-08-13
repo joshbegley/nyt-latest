@@ -1,3 +1,7 @@
+**Books Our Editors Loved This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://www.nytimes.com/2026/08/13/books/review/new-recommended-books.html
+
 **Wildfire Continues to Threaten California’s Famed Big Sur Region**\
 `The Timber fire has burned more than 4,000 acres and was 7  percent contained on Thursday.`\
 https://www.nytimes.com/2026/08/13/us/timber-fire-big-sur.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/13/briefing/solar-eclipse-photos.html
 **Hegseth Is Pressed to Clarify Lawyer’s Role in Promotion Decisions**\
 `Representative Jason Crow asked Defense Secretary Pete Hegseth to explain statements about his special adviser’s influence following a New York Times report.`\
 https://www.nytimes.com/2026/08/13/us/hegseth-jason-crow-military-promotions.html
-
-**Are the Democratic Socialists Winning or Losing?**\
-`Progressive Democrats have been gaining ground in primaries across the country, but recent wins and losses in Michigan and Wisconsin show the strength and the limits of the movement.`\
-https://www.nytimes.com/2026/08/13/podcasts/the-daily/democratic-socialists-michigan-wisconsin-progressive-left.html
 
