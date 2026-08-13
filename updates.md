@@ -1,3 +1,7 @@
+**The Man on a Mission to Build India’s Most Livable City**\
+`The chief minister of Andhra Pradesh has 25,000 workers building his dream capital with waterways, bike lanes and a “Quantum Valley” tech hub.`\
+https://www.nytimes.com/2026/08/13/world/asia/india-amravati-livable-city-andhra-pradesh.html
+
 **Rusia ataca barcos graneleros y pone en riesgo el suministro mundial de alimentos**\
 `Decenas de embarcaciones han sido alcanzadas en el mar Negro, mientras crece el temor por una nueva crisis alimentaria global.`\
 https://www.nytimes.com/es/2026/08/13/espanol/mundo/rusia-ataque-barcos-comercio.html
