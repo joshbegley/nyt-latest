@@ -1,3 +1,7 @@
+**Covid Vaccines Are Not Linked to Miscarriage. Here’s How We Know.**\
+`Prominent Republicans and others have falsely claimed this week that the shots are linked, despite years of data showing they are safe.`\
+https://www.nytimes.com/2026/08/13/well/covid-vaccine-pregnancy-miscarriage-fauci.html
+
 **Raoul Vaneigem, Whose Manifesto Inspired 1968 Revolt in France, Dies at 92**\
 `“The Revolution of Everyday Life,” published in 1967, was his cri de coeur against mindless work, materialism and authority.`\
 https://www.nytimes.com/2026/08/13/books/raoul-vaneigem-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/13/crosswords/strands-sidekick-894.html
 **Today’s Wordle Hints for August 14, 2026**\
 `Scroll down for hints and conversation about the puzzle for Friday, Aug. 14, 2026.`\
 https://www.nytimes.com/2026/08/13/crosswords/wordle-review-1882.html
-
-**How China Remembers Zhu Rongji, the Premier Who Spoke His Mind**\
-`Tributes to the former premier recalled his spirited style and his efforts to integrate China into global commerce, in contrast with the rigidity of the Xi era.`\
-https://www.nytimes.com/2026/08/13/world/asia/china-premier-zhu-rongji-reaction.html
 
