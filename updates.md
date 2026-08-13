@@ -1,3 +1,11 @@
+**Alfonso Fanjul Jr., barón azucarero cubanoestadounidense, muere a los 89 años**\
+`Junto a su hermano, presidió un imperio familiar que incluye la refinería de azúcar de caña más grande del mundo y las marcas Domino y C&H.`\
+https://www.nytimes.com/es/2026/08/13/espanol/cultura/muere-alfonso-fanjul-cuba-azucar.html
+
+**The Times Is Turning 175. What’s Your Favorite Piece You’ve Taught With or Learned From?**\
+`Whether it’s old or new, or an article, essay, photo, video, podcast, graph or illustration, we’d love to hear what’s been most useful to you.`\
+https://www.nytimes.com/2026/08/13/learning/the-times-is-turning-175-whats-your-favorite-piece-youve-taught-with-or-learned-from.html
+
 **Covid Vaccines Are Not Linked to Miscarriage. Here’s How We Know.**\
 `Prominent Republicans and others have falsely claimed this week that the shots are linked, despite years of data showing they are safe.`\
 https://www.nytimes.com/2026/08/13/well/covid-vaccine-pregnancy-miscarriage-fauci.html
