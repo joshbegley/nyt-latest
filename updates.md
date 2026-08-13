@@ -1,3 +1,7 @@
+**We Need Global A.I. Safety Planning**\
+`We used to talk about the risks of A.I. a lot more. On a recent episode of “The Opinions,” the Opinion writer David Wallace-Wells speaks with the Yale law professor and economist Natasha Sarin about how A.I. safety could bring China and the U.S. together.`\
+https://www.nytimes.com/video/opinion/100000011083260/we-need-global-ai-safety-planning.html
+
 **Why A.I.’s Promise Isn’t Resonating**\
 `On “The Opinions,” the Yale law professor and economist Natasha Sarin argues that A.I. could transform the U.S. economy for the better. But with the public hearing about layoffs and job losses, she says, it’s no wonder the technology’s economic promise isn’t resonating.`\
 https://www.nytimes.com/video/opinion/100000011088929/why-ais-promise-isnt-resonating.html
