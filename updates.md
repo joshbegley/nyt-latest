@@ -1,3 +1,31 @@
+**Rusia ataca barcos graneleros y pone en riesgo el suministro mundial de alimentos**\
+`Decenas de embarcaciones han sido alcanzadas en el mar Negro, mientras crece el temor por una nueva crisis alimentaria global.`\
+https://www.nytimes.com/es/2026/08/13/espanol/mundo/rusia-ataque-barcos-comercio.html
+
+**Trump Administration Lets Parts of the National Firearms Act Lapse**\
+`The retreat by the Justice Department effectively allowed a pillar of the Prohibition-era National Firearms Act to lapse.`\
+https://www.nytimes.com/2026/08/13/us/politics/national-firearms-act-gun-control-doj.html
+
+**Ferry Capsizes in Zimbabwe, Killing Dozens**\
+`More than 40 people died when an overcrowded ferry capsized on Zimbabwe’s Lake Kariba.`\
+https://www.nytimes.com/video/world/africa/100000011089685/zimbabwe-ferry-capsize-lake-kariba.html
+
+**Fui el cardiólogo de Dick Cheney. Trump no luce bien y deberíamos saber por qué**\
+`El presidente de EE. UU. no se ha visto bien. Los estadounidenses deberían obtener respuestas a estas siete preguntas.`\
+https://www.nytimes.com/es/2026/08/13/espanol/opinion/trump-problemas-salud.html
+
+**Quote of the Day: Join a Game and Meet a Star**\
+`Quotation of the Day for Thursday, August 13, 2026.`\
+https://www.nytimes.com/2026/08/13/pageoneplus/quote-of-the-day-join-a-game-and-meet-a-star.html
+
+**Russian Blockade of Major Ukrainian Ports Threatens Global Grain Supplies**\
+`The deadly strikes are part of a long-running maritime battle with Ukraine and echo battles over other key shipping routes around the world.`\
+https://www.nytimes.com/2026/08/13/world/europe/russia-ukraine-ports-odesa-cargo-ship-attacks.html
+
+**What to Know About Thursday’s Special Election in Clacton: Farage vs. Binface**\
+`Nigel Farage, the right-wing populist leader, forced a by-election in his parliamentary seat of Clacton after he came under pressure over his financial declarations.`\
+https://www.nytimes.com/2026/08/13/world/europe/britain-special-election-farage-binface-what-to-know.html
+
 **‘An English Summer Is Not the Same Anymore’**\
 `With forecasters issuing a warning for very high temperatures, this summer is on track to be one of the hottest yet.`\
 https://www.nytimes.com/2026/08/13/world/europe/britain-heat-records.html

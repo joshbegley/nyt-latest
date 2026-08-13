@@ -1,3 +1,7 @@
+**The Man on a Mission to Build India’s Most Livable City**\
+`The chief minister of Andhra Pradesh has 25,000 workers building his dream capital with waterways, bike lanes and a “Quantum Valley” tech hub.`\
+https://www.nytimes.com/2026/08/13/world/asia/india-amravati-livable-city-andhra-pradesh.html
+
 **Rusia ataca barcos graneleros y pone en riesgo el suministro mundial de alimentos**\
 `Decenas de embarcaciones han sido alcanzadas en el mar Negro, mientras crece el temor por una nueva crisis alimentaria global.`\
 https://www.nytimes.com/es/2026/08/13/espanol/mundo/rusia-ataque-barcos-comercio.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/08/12/style/woke-1-aoc-dsa.html
 **Which Trump Officials Joined Him on His Secret Flight Out of Turkey?**\
 `The White House aides Natalie Harp and Dan Scavino were among those traveling with the president on a military jet.`\
 https://www.nytimes.com/2026/08/12/us/politics/trump-air-force-one-secret-flight-passengers.html
-
-**The Perseids, Summer’s Strongest Meteor Shower, Will Peak Tonight**\
-`Unlike the total solar eclipse that swept across Europe, the Perseids can be seen at night by anyone in the Northern Hemisphere.`\
-https://www.nytimes.com/2026/08/12/science/perseids-meteor-eclipse.html
 
 **Por primera vez en décadas, el día se hace noche en Europa bajo un eclipse solar total**\
 `De Islandia a España, los observadores acudieron a los lugares donde, por corto tiempo, la Luna bloqueó completamente al Sol.`\
