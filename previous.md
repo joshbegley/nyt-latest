@@ -1,8 +1,12 @@
+**How Thanksgiving Became Political: Francesca Hong’s Tweets Explained**\
+`Ahead of Wisconsin’s Democratic primary for governor, a past tweet by the assemblywoman that called for the holiday to be canceled was resurfaced.`\
+https://www.nytimes.com/2026/08/13/style/thanksgiving-francesca-hong-wisconsin.html
+
 **They Wanted Two Bedrooms in Manhattan. What Would $600,000 Buy?**\
 `When plans to move to Italy fell through, a couple of former dancers decided to put down roots in New York. Here’s what they found.`\
 https://www.nytimes.com/quiz/2026/08/13/realestate/upper-manhattan-homes-sale-prices.html
 
-**Putin Visits Islands Seized from Japan in World War II, Angering Tokyo**\
+**Putin Visits Islands Seized From Japan in World War II, Angering Tokyo**\
 `Prime Minister Sanae Takaichi of Japan has been a public critic of Mr. Putin, who has denounced her country’s sanctions against Russia over the Ukraine war.`\
 https://www.nytimes.com/2026/08/13/world/asia/putin-visit-islands-japan-russia.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/13/movies/fast-review-shes-got-good-traction.htm
 **A Print Maestro With a Birdwatcher’s Eye and a Socialist Soul**\
 `At the Whitney, Mabel Dwight’s caricatures from the 1930s, some gentle and some acidic, show her mastery of lithography and the democratic gesture.`\
 https://www.nytimes.com/2026/08/13/arts/design/mabel-dwight-prints-whitney-museum-art.html
-
-**In Wyoming, a Primary Fight Between the Right and the Far Right**\
-`One of the most conservative states has a legislature divided between a hard-right House and a merely right Senate. Ultraconservatives want a complete takeover in the Aug. 18 primaries.`\
-https://www.nytimes.com/2026/08/13/us/elections/wyoming-legislature-freedom-caucus.html
 

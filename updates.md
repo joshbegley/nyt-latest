@@ -1,3 +1,11 @@
+**How Thanksgiving Became Political: Francesca Hong’s Tweets Explained**\
+`Ahead of Wisconsin’s Democratic primary for governor, a past tweet by the assemblywoman that called for the holiday to be canceled was resurfaced.`\
+https://www.nytimes.com/2026/08/13/style/thanksgiving-francesca-hong-wisconsin.html
+
+**Putin Visits Islands Seized From Japan in World War II, Angering Tokyo**\
+`Prime Minister Sanae Takaichi of Japan has been a public critic of Mr. Putin, who has denounced her country’s sanctions against Russia over the Ukraine war.`\
+https://www.nytimes.com/2026/08/13/world/asia/putin-visit-islands-japan-russia.html
+
 **They Wanted Two Bedrooms in Manhattan. What Would $600,000 Buy?**\
 `When plans to move to Italy fell through, a couple of former dancers decided to put down roots in New York. Here’s what they found.`\
 https://www.nytimes.com/quiz/2026/08/13/realestate/upper-manhattan-homes-sale-prices.html
