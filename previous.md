@@ -1,3 +1,11 @@
+**Bryan Johnson’s Psychedelic Experience**\
+`What’s worse — dying or living forever? The tech mogul Bryan Johnson wants to live for centuries. On “Interesting Times,” he tells the columnist Ross Douthat about how a DMT trip opened his mind to the “preciousness of existence.”`\
+https://www.nytimes.com/video/opinion/100000011079571/bryan-johnsons-psychedelic-experience.html
+
+**The Case for Trying to Live to 200**\
+`Bryan Johnson has become famous for his goal of defying death, but what does he actually want to do with a longer life? On “Interesting Times,” the tech founder describes his vision for a humanity with radically longer lifespans.`\
+https://www.nytimes.com/video/opinion/100000011079572/the-case-for-trying-to-live-to-200.html
+
 **Former Catholic Bishop Is Convicted of Sexual Abuse, Australian News Outlets Say**\
 `A court found Christopher Alan Saunders, the former bishop of Broome, guilty of sexually abusing two men, the Australian Broadcasting Corporation reported.`\
 https://www.nytimes.com/2026/08/13/world/australia/bishop-christopher-saunders-abuse.html
@@ -91,7 +99,7 @@ https://www.nytimes.com/2026/08/13/podcasts/the-truth-behind-an-nfl-injury-consp
 https://www.nytimes.com/2026/08/13/opinion/interesting-times-bryan-johnson.html
 
 **36 Hours in Bergen, Norway: Things to Do and See**\
-`The city on Norway's west coast is no hayseed cousin to the cosmopolitan capitals of Scandinavia, with a thriving cultural scene that ranges from high art to heavy metal.`\
+`The city on Norway’s west coast is no hayseed cousin to the cosmopolitan capitals of Scandinavia, with a thriving cultural scene that ranges from high art to heavy metal.`\
 https://www.nytimes.com/interactive/2026/08/13/travel/things-to-do-bergen-norway.html
 
 **The Special Melons Starring on Summer Menus**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/13/dining/best-mexican-restaurants-united-states
 **Problem Drinking in the U.S. Is on the Decline**\
 `The number of Americans who met criteria for alcohol use disorder decreased by several million over five years, a survey found.`\
 https://www.nytimes.com/2026/08/13/well/problem-drinking-national-survey.html
-
-**How to Catch the ‘Eclipse of the Century’ in 2027, When Spain, Egypt and More Go Dark**\
-`On Aug. 2, Southern Europe, North Africa and the Middle East will witness a solar blockbuster with extra-long totality. If you want to see it, book soon.`\
-https://www.nytimes.com/2026/08/13/travel/solar-eclipse-2027-morocco-egypt.html
-
-**These New Yorkers Are Updating the ‘NYCHA Look’ With Renter-Friendly DIY Projects**\
-`Equipped with paint and peel-and-stick tile, D.I.Y. enthusiasts are showing other public housing residents how to beautify their spaces.`\
-https://www.nytimes.com/2026/08/13/realestate/new-york-nycha-apartment-upgrades.html
 

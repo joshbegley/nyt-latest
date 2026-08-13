@@ -1,3 +1,15 @@
+**Bryan Johnson’s Psychedelic Experience**\
+`What’s worse — dying or living forever? The tech mogul Bryan Johnson wants to live for centuries. On “Interesting Times,” he tells the columnist Ross Douthat about how a DMT trip opened his mind to the “preciousness of existence.”`\
+https://www.nytimes.com/video/opinion/100000011079571/bryan-johnsons-psychedelic-experience.html
+
+**The Case for Trying to Live to 200**\
+`Bryan Johnson has become famous for his goal of defying death, but what does he actually want to do with a longer life? On “Interesting Times,” the tech founder describes his vision for a humanity with radically longer lifespans.`\
+https://www.nytimes.com/video/opinion/100000011079572/the-case-for-trying-to-live-to-200.html
+
+**36 Hours in Bergen, Norway: Things to Do and See**\
+`The city on Norway’s west coast is no hayseed cousin to the cosmopolitan capitals of Scandinavia, with a thriving cultural scene that ranges from high art to heavy metal.`\
+https://www.nytimes.com/interactive/2026/08/13/travel/things-to-do-bergen-norway.html
+
 **Former Catholic Bishop Is Convicted of Sexual Abuse, Australian News Outlets Say**\
 `A court found Christopher Alan Saunders, the former bishop of Broome, guilty of sexually abusing two men, the Australian Broadcasting Corporation reported.`\
 https://www.nytimes.com/2026/08/13/world/australia/bishop-christopher-saunders-abuse.html
