@@ -1,3 +1,11 @@
+**How Bob Iger and Joshua Kushner’s Bromance Led Them to Lakers**\
+`Bob Iger, the former chief executive of Disney, and Josh Kushner, the venture capitalist, are buying the Los Angeles Lakers. Their wives set them up.`\
+https://www.nytimes.com/2026/08/13/business/bob-iger-joshua-kushner-lakers.html
+
+**5 Classical Music Albums You Can Listen to Right Now**\
+`Wild Up’s latest volume of music by Julius Eastman, Mitsuko Uchida’s Beethoven and works by Joe Hisaishi are among our selections.`\
+https://www.nytimes.com/2026/08/13/arts/music/best-classical-music-albums-august-2026.html
+
 **We Need Global A.I. Safety Planning**\
 `We used to talk about the risks of A.I. a lot more. On a recent episode of “The Opinions,” the Opinion writer David Wallace-Wells speaks with the Yale law professor and economist Natasha Sarin about how A.I. safety could bring China and the U.S. together.`\
 https://www.nytimes.com/video/opinion/100000011083260/we-need-global-ai-safety-planning.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/13/movies/nimrods-review.html
 **‘Union County’ Review: High Stakes, Understated Portrayals**\
 `Will Poulter and Noah Centineo play troubled siblings in this simple, downbeat story set amid the opioid epidemic in rural Ohio.`\
 https://www.nytimes.com/2026/08/13/movies/union-county-review.html
-
-**‘The Rivals of Amziah King’ Review: The Banjos and the Bees**\
-`Matthew McConaughey is put to his best use in years in this somewhat messy, but often rollicking film about a beekeeper and the foster child who reappears in his life.`\
-https://www.nytimes.com/2026/08/13/movies/the-rivals-of-amziah-king-review.html
-
-**My Son’s Racist Views Are Destroying Our Family**\
-`Our Ask the Therapist columnist, Lori Gottlieb, advises a reader who wants to maintain a relationship with her son while protecting her daughter from his hurtful behavior.`\
-https://www.nytimes.com/2026/08/13/well/mind/racism-family-relationship-therapist.html
 
