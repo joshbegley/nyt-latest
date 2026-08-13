@@ -2,7 +2,7 @@
 `Según los expertos, una cascada de desinformación contribuyó directamente a la llegada de migrantes en el enclave español, que resultó en unas 90 muertes.`\
 https://www.nytimes.com/es/2026/08/13/espanol/negocios/espana-migrantes-marruecos-redes-sociales.html
 
-**We’re at a Tipping Point on A.I.**\
+**If You Weren’t Worried About A.I., You Should Be After the Past Few Weeks**\
 `If there was ever a time to consider halting development of A.I., it’s now.`\
 https://www.nytimes.com/2026/08/13/opinion/ai-danger-openai-anthropic-models.html
 
