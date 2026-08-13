@@ -1,3 +1,7 @@
+**EE. UU. pagó 464 millones de dólares por aviones. Luego los estacionó**\
+`La agencia utilizó un contrato sin licitación para comprar 10 aviones usados, diciendo que se necesitaban con urgencia para vuelos de deportación. Pero durante meses, en gran medida, la flota ha permanecido inactiva.`\
+https://www.nytimes.com/es/2026/08/13/espanol/estados-unidos/seguridad-nacional-trump-aviones-sin-uso.html
+
 **Trump’s Immigration Policy Echoes 1920s Turn Against Certain Newcomers**\
 `U.S. leaders limited immigration amid economic and social turmoil. Historians see similarities to Trump’s crackdown, with a catch: He’s doing it without Congress.`\
 https://www.nytimes.com/2026/08/13/us/politics/trump-immigration-crackdown.html

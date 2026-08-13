@@ -126,7 +126,7 @@ https://www.nytimes.com/2026/08/13/health/mosquitoes-brazil-health-threat.html
 `Live audio, a new format and new voices have transformed and unsettled the court’s signature public ceremony.`\
 https://www.nytimes.com/2026/08/13/us/politics/supreme-court-changing-oral-arguments.html
 
-**How a Longshot U.S. Oil Drilling Project Is Shaking Up Greenland**\
+**How a Long-Shot U.S. Oil Drilling Project Is Shaking Up Greenland**\
 `A U.S. oil company says it could be on the verge of a major discovery in Greenland. The proposal comes at a tricky time for the Arctic island, and locals are lining up against it.`\
 https://www.nytimes.com/2026/08/13/world/europe/greenland-oil-project-us-dr-phil.html
 

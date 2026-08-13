@@ -26,7 +26,7 @@ https://www.nytimes.com/2026/08/13/well/covid-vaccine-pregnancy-miscarriage-fauc
 `“The Revolution of Everyday Life,” published in 1967, was his cri de coeur against mindless work, materialism and authority.`\
 https://www.nytimes.com/2026/08/13/books/raoul-vaneigem-dead.html
 
-**Seguridad Nacional de EE. UU. pagó 464 millones de dólares por aviones. Luego los estacionó**\
+**EE. UU. pagó 464 millones de dólares por aviones. Luego los estacionó**\
 `La agencia utilizó un contrato sin licitación para comprar 10 aviones usados, diciendo que se necesitaban con urgencia para vuelos de deportación. Pero durante meses, en gran medida, la flota ha permanecido inactiva.`\
 https://www.nytimes.com/es/2026/08/13/espanol/estados-unidos/seguridad-nacional-trump-aviones-sin-uso.html
 
