@@ -1,3 +1,7 @@
+**Maps: Tracking Tropical Storm Hernan**\
+`See the likely path and wind arrival times for Hernan`\
+https://www.nytimes.com/interactive/2026/08/13/weather/hernan-map-path-tracker.html
+
 **How Bob Iger and Joshua Kushner’s Bromance Led Them to Lakers**\
 `Bob Iger, the former chief executive of Disney, and Josh Kushner, the venture capitalist, are buying the Los Angeles Lakers. Their wives set them up.`\
 https://www.nytimes.com/2026/08/13/business/bob-iger-joshua-kushner-lakers.html
@@ -14,7 +18,7 @@ https://www.nytimes.com/video/opinion/100000011083260/we-need-global-ai-safety-p
 `On “The Opinions,” the Yale law professor and economist Natasha Sarin argues that A.I. could transform the U.S. economy for the better. But with the public hearing about layoffs and job losses, she says, it’s no wonder the technology’s economic promise isn’t resonating.`\
 https://www.nytimes.com/video/opinion/100000011088929/why-ais-promise-isnt-resonating.html
 
-**Luigi Mangione Is Expected to Plead Guilty in Federal Court, Where He Faces Stalking Charges**\
+**Luigi Mangione, Facing Stalking Charges in Federal Court, Is Expected to Plead Guilty**\
 `Mr. Mangione faces stalking charges in connection with the killing of an executive in Manhattan. Mr. Mangione could always change his mind at the last minute. A separate murder trial is set to begin next month.`\
 https://www.nytimes.com/2026/08/13/nyregion/luigi-mangione-guilty-plea-federal.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/13/realestate/new-york-nycha-apartment-upgrades.
 **‘Nimrods’ Review: American Idiots**\
 `A band of misfit teens aspires to make their musical dreams come true in this Green Day-produced rock comedy.`\
 https://www.nytimes.com/2026/08/13/movies/nimrods-review.html
-
-**‘Union County’ Review: High Stakes, Understated Portrayals**\
-`Will Poulter and Noah Centineo play troubled siblings in this simple, downbeat story set amid the opioid epidemic in rural Ohio.`\
-https://www.nytimes.com/2026/08/13/movies/union-county-review.html
 
