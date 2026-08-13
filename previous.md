@@ -1,3 +1,15 @@
+**Map: 4.1-Magnitude Earthquake Shakes the San Francisco Bay Area**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/08/13/us/quake-tracker-san-francisco-bay.html
+
+**Alfonso Fanjul Jr., Cuban American Sugar Baron, Dies at 89**\
+`With his brother, he presided over a family empire that includes the world’s largest cane sugar refiner and the Domino and C&H brands.`\
+https://www.nytimes.com/2026/08/13/business/alfonso-fanjul-jr-dead.html
+
+**Cómo ver el ‘eclipse del siglo’ de 2027**\
+`El 2 de agosto, el sur de Europa, el norte de África y Medio Oriente será testigo de un espectacular evento solar con una totalidad excepcionalmente larga. Si quieres verlo, reserva pronto.`\
+https://www.nytimes.com/es/2026/08/13/espanol/estilos-de-vida/como-ver-eclipse-del-siglo-2027.html
+
 **Europa se prepara para una nueva ola de calor en 2026**\
 `Con temperaturas que se elevarán hasta los 43 grados Celsius esta semana, los europeos y los turistas dicen que el verano en Europa ha perdido su atractivo.`\
 https://www.nytimes.com/es/2026/08/13/espanol/mundo/europa-ola-calor-espana-frustracion.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/08/13/opinion/stagflation-warsh-trump-inflation-eco
 **Mamdani to Give Free Broadway Tickets to High Schoolers**\
 `The administration is announcing plans for a lottery to give away more than 2,000 tickets to seven shows, including “Two Strangers (Carry a Cake Across New York).”`\
 https://www.nytimes.com/2026/08/13/nyregion/mamdani-to-give-free-broadway-tickets-to-high-schoolers.html
-
-**Homes for Sale in New York and New Jersey**\
-`This week’s properties are a two-bedroom condo in Pelham, N.Y., and a four-bedroom house in Wayne Township, N.J.`\
-https://www.nytimes.com/2026/08/13/realestate/housing-market-near-nyc.html
-
-**Homes for Sale in Manhattan and Queens**\
-`This week’s properties are in Kips Bay, Yorkville and Long Island City.`\
-https://www.nytimes.com/2026/08/13/realestate/housing-market-nyc.html
-
-**Homeland Security Paid $464 Million for Airplanes. Then It Parked Them.**\
-`The agency used a no-bid contract to buy 10 used jets, saying they were urgently needed for deportation flights. But the fleet has largely sat idle for months.`\
-https://www.nytimes.com/2026/08/13/us/politics/homeland-security-parked-airplanes.html
 

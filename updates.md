@@ -1,3 +1,15 @@
+**Map: 4.1-Magnitude Earthquake Shakes the San Francisco Bay Area**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/08/13/us/quake-tracker-san-francisco-bay.html
+
+**Alfonso Fanjul Jr., Cuban American Sugar Baron, Dies at 89**\
+`With his brother, he presided over a family empire that includes the world’s largest cane sugar refiner and the Domino and C&H brands.`\
+https://www.nytimes.com/2026/08/13/business/alfonso-fanjul-jr-dead.html
+
+**Cómo ver el ‘eclipse del siglo’ de 2027**\
+`El 2 de agosto, el sur de Europa, el norte de África y Medio Oriente será testigo de un espectacular evento solar con una totalidad excepcionalmente larga. Si quieres verlo, reserva pronto.`\
+https://www.nytimes.com/es/2026/08/13/espanol/estilos-de-vida/como-ver-eclipse-del-siglo-2027.html
+
 **Europa se prepara para una nueva ola de calor en 2026**\
 `Con temperaturas que se elevarán hasta los 43 grados Celsius esta semana, los europeos y los turistas dicen que el verano en Europa ha perdido su atractivo.`\
 https://www.nytimes.com/es/2026/08/13/espanol/mundo/europa-ola-calor-espana-frustracion.html
