@@ -154,6 +154,10 @@ https://www.nytimes.com/2026/08/12/briefing/12-the-good-list-meteor-shower-cat-g
 `President Trump is calling for immunizations for measles, mumps and rubella to be given in individual jabs in three different appointments instead of the standard combination shot.`\
 https://www.nytimes.com/2026/08/12/health/mmr-vaccine-combination-separate.html
 
+**A Special U.S. Navy Squadron Photographed the Last Total Solar Eclipse in Spain in 1905**\
+`Three American warships were sent to Valencia to capture pictures of the sun’s corona with a high-definition camera that would cost over $34,000 in today’s money.`\
+https://www.nytimes.com/2026/08/12/world/europe/total-solar-eclipse-spain-1905-us-navy.html
+
 **Hawaii Braces for a Potential Storm Named Lala**\
 `Forecasters are predicting a tropical storm, potentially a hurricane, may bring heavy rainfall and strong winds to the Big Island starting Friday.`\
 https://www.nytimes.com/2026/08/12/weather/hawaii-braces-for-a-possible-hurricane-named-lala.html
