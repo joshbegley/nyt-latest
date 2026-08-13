@@ -122,7 +122,7 @@ https://www.nytimes.com/2026/08/13/arts/television/rory-scovel-comedy-show-must-
 `Even at a time of anti-immigration politics, there has never been a richer variety of Mexican restaurants in the United States.`\
 https://www.nytimes.com/2026/08/13/dining/mexican-food-scene-united-states-immigration.html
 
-**Kansas Put a Bounty on Trans People**\
+**What’s Happening in Kansas Should Alarm Us All**\
 `Is Kansas just the beginning?`\
 https://www.nytimes.com/2026/08/13/opinion/kansas-anti-trans-laws-drivers-license.html
 

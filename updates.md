@@ -1,3 +1,7 @@
+**A Celestial Wonder**\
+`We’re sharing photos from yesterday’s total solar eclipse.`\
+https://www.nytimes.com/2026/08/13/briefing/solar-eclipse-photos.html
+
 **It Was a Great Scam While It Lasted**\
 `U.S. tariff rates are not for rent.`\
 https://www.nytimes.com/2026/08/13/opinion/us-tariffs-economy-trade-transshipment-scam.html
