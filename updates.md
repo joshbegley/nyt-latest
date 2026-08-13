@@ -1,3 +1,11 @@
+**Salvage Company Hoping to Sell Titanic Artifacts Challenges Court’s Role**\
+`A Virginia federal court has awarded the company the rights to collect, but not sell, items from the shipwreck. But the company says its earliest retrievals are governed by a French court.`\
+https://www.nytimes.com/2026/08/13/arts/design/salvage-company-hoping-to-sell-titanic-artifacts-challenges-courts-role.html
+
+**What to Know About Luigi Mangione’s Court Cases and Potential Plea Deal**\
+`Mr. Mangione faces federal charges of stalking that resulted in the death of a health insurance executive. A guilty plea could close the federal case — and complicate a separate state murder trial.`\
+https://www.nytimes.com/2026/08/13/nyregion/luigi-mangione-court-plea-deal-trial.html
+
 **Judge Affirms Settlement Allowing HPE’s Deal for Juniper**\
 `States had opposed an agreement allowing a Hewlett Packard Enterprise acquisition, calling the settlement ineffective and corrupt.`\
 https://www.nytimes.com/2026/08/13/technology/hpe-juniper-justice-department-settlement.html
