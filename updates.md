@@ -1,3 +1,7 @@
+**El secretario de Defensa de EE. UU. dice que la coalición anticárteles hará ‘cosas malas a la gente mala’**\
+`Pete Hegseth dijo que el objetivo es “degradar, desmantelar y destruir las redes narcoterroristas” y pidió a los países de Latinoamérica que intensifiquen su lucha.`\
+https://www.nytimes.com/es/2026/08/12/espanol/estados-unidos/pete-hegseth-coalicion-carteles.html
+
 **Federal Hate Crime Charge Filed in Stabbing of Muslim Man in Utah**\
 `The attack left the victim with at least a dozen wounds as several bystanders rushed to intervene.`\
 https://www.nytimes.com/2026/08/12/us/utah-stabbing-hate-crime-muslim.html
