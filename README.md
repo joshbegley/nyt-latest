@@ -1,3 +1,7 @@
+**Europa se prepara para una nueva ola de calor en 2026**\
+`Con temperaturas que se elevarán hasta los 43 grados Celsius esta semana, los europeos y los turistas dicen que el verano en Europa ha perdido su atractivo.`\
+https://www.nytimes.com/es/2026/08/13/espanol/mundo/europa-ola-calor-espana-frustracion.html
+
 **Today, In Short**\
 `Soup. Eclipse photos. And love bombing.`\
 https://www.nytimes.com/2026/08/13/briefing/today-in-short.html
@@ -67,7 +71,7 @@ https://www.nytimes.com/video/opinion/100000011083260/we-need-global-ai-safety-p
 https://www.nytimes.com/video/opinion/100000011088929/why-ais-promise-isnt-resonating.html
 
 **Luigi Mangione, Facing Stalking Charges in Federal Court, Is Expected to Plead Guilty**\
-`Mr. Mangione faces stalking charges in connection with the killing of an executive in Manhattan. Mr. Mangione could always change his mind at the last minute. A separate murder trial is set to begin next month.`\
+`Mr. Mangione faces stalking charges resulting in the death of an executive in Manhattan. Mr. Mangione could always change his mind at the last minute. A separate murder trial is set to begin next month.`\
 https://www.nytimes.com/2026/08/13/nyregion/luigi-mangione-guilty-plea-federal.html
 
 **Europe Is Once Again In the Grip of Extreme Heat**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/13/realestate/housing-market-nyc.html
 **Homeland Security Paid $464 Million for Airplanes. Then It Parked Them.**\
 `The agency used a no-bid contract to buy 10 used jets, saying they were urgently needed for deportation flights. But the fleet has largely sat idle for months.`\
 https://www.nytimes.com/2026/08/13/us/politics/homeland-security-parked-airplanes.html
-
-**America Wants to Make Its Own Humanoid Robots. That Won’t Be Easy.**\
-`China already manufactures humanoid robots by the thousands. A new generation of U.S. start-ups is betting that there is still time to compete.`\
-https://www.nytimes.com/2026/08/13/business/humanoid-robot-us-china.html
 
