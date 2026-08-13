@@ -127,7 +127,7 @@ https://www.nytimes.com/video/opinion/100000011083260/we-need-global-ai-safety-p
 https://www.nytimes.com/video/opinion/100000011088929/why-ais-promise-isnt-resonating.html
 
 **Luigi Mangione, Facing Stalking Charges in Federal Court, Is Expected to Plead Guilty**\
-`Mr. Mangione faces stalking charges resulting in the death of an executive in Manhattan. Mr. Mangione could always change his mind at the last minute. A separate murder trial is set to begin next month.`\
+`He is charged with stalking resulting in the death of an executive, but the specifics of his plea were unclear. A murder trial in state court is set for next month.`\
 https://www.nytimes.com/2026/08/13/nyregion/luigi-mangione-guilty-plea-federal.html
 
 **Europe Is Once Again In the Grip of Extreme Heat**\
