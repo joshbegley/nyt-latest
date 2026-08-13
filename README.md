@@ -115,7 +115,7 @@ https://www.nytimes.com/2026/08/13/business/flock-cameras-privacy-updates.html
 https://www.nytimes.com/2026/08/13/opinion/bernie-sanders-democrats.html
 
 **Train Derails Near Town of Lewes in East Sussex, U.K.**\
-`Emergency services said they were working at the scene of a derailment near Lewes, in East Sussex, on Thursday. Nine other people were less seriously hurt.`\
+`Emergency services said they were working at the scene of a derailment near Lewes, in East Sussex, on Thursday. Eighteen other people were less badly hurt.`\
 https://www.nytimes.com/2026/08/13/world/europe/train-derails-southern-england.html
 
 **Topos Azteca, a Mexican Volunteer Rescue Group, Helps With Rescue Efforts After Colombia Earthquake**\
