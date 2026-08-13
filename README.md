@@ -186,10 +186,6 @@ https://www.nytimes.com/2026/08/12/business/forbes-editor-fired.html
 `The lawsuit filed in federal court said President Trump “stands to gain financially by giving ‘market-moving’ government information to those who are willing and able to pay his personal company.”`\
 https://www.nytimes.com/2026/08/12/us/politics/trump-truth-social-lawsuit.html
 
-**Karoline Leavitt, Trump’s White House Press Secretary, Is Leaving the Role**\
-`President Trump said that Ms. Leavitt, who recently gave birth to her second child, would be leaving to spend time with her family.`\
-https://www.nytimes.com/2026/08/12/us/politics/karoline-leavitt-trump-press-secretary.html
-
 **Por primera vez en décadas, el día se hace noche en Europa bajo un eclipse solar total**\
 `De Islandia a España, los observadores acudieron a los lugares donde, por corto tiempo, la Luna bloqueó completamente al Sol.`\
 https://www.nytimes.com/live/2026/08/12/espanol/eclipse-solar-total
