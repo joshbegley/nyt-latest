@@ -1,3 +1,15 @@
+**How a Covid-Era Scramble Transformed Supreme Court Arguments**\
+`Live audio, a new format and new voices have transformed and unsettled the court’s signature public ceremony.`\
+https://www.nytimes.com/2026/08/13/us/politics/supreme-court-changing-oral-arguments.html
+
+**Oil, Hunters and Dr. Phil: How a Longshot Project Is Shaking Up Greenland**\
+`A U.S. oil company says it could be on the verge of a major discovery in Greenland. The proposal comes at a tricky time for the Arctic island, and locals are lining up against it.`\
+https://www.nytimes.com/2026/08/13/world/europe/greenland-oil-project-us-dr-phil.html
+
+**Bryan Johnson’s Blueprint for a 150-Year Life: Is It Worth It?**\
+`The tech mogul is trying to design the blueprint for defying death.`\
+https://www.nytimes.com/2026/08/13/opinion/interesting-times-bryan-johnson.html
+
 **Bryan Johnson’s Psychedelic Experience**\
 `What’s worse — dying or living forever? The tech mogul Bryan Johnson wants to live for centuries. On “Interesting Times,” he tells the columnist Ross Douthat about how a DMT trip opened his mind to the “preciousness of existence.”`\
 https://www.nytimes.com/video/opinion/100000011079571/bryan-johnsons-psychedelic-experience.html
