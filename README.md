@@ -87,7 +87,7 @@ https://www.nytimes.com/2026/08/13/podcasts/the-truth-behind-an-nfl-injury-consp
 https://www.nytimes.com/2026/08/13/opinion/interesting-times-bryan-johnson.html
 
 **36 Hours in Bergen, Norway: Things to Do and See**\
-`The city, on Norway’s west coast, is no hayseed cousin to other Scandinavian capitals, with a thriving cultural scene that ranges from high art to heavy metal.`\
+`The city on Norway's west coast is no hayseed cousin to the cosmopolitan capitals of Scandinavia, with a thriving cultural scene that ranges from high art to heavy metal.`\
 https://www.nytimes.com/interactive/2026/08/13/travel/things-to-do-bergen-norway.html
 
 **The Special Melons Starring on Summer Menus**\
