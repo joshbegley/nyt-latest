@@ -1,3 +1,11 @@
+**Salvage Company Hoping to Sell Titanic Artifacts Challenges Court’s Role**\
+`A Virginia federal court has awarded the company the rights to collect, but not sell, items from the shipwreck. But the company says its earliest retrievals are governed by a French court.`\
+https://www.nytimes.com/2026/08/13/arts/design/salvage-company-hoping-to-sell-titanic-artifacts-challenges-courts-role.html
+
+**What to Know About Luigi Mangione’s Court Cases and Potential Plea Deal**\
+`Mr. Mangione faces federal charges of stalking that resulted in the death of a health insurance executive. A guilty plea could close the federal case — and complicate a separate state murder trial.`\
+https://www.nytimes.com/2026/08/13/nyregion/luigi-mangione-court-plea-deal-trial.html
+
 **Judge Affirms Settlement Allowing HPE’s Deal for Juniper**\
 `States had opposed an agreement allowing a Hewlett Packard Enterprise acquisition, calling the settlement ineffective and corrupt.`\
 https://www.nytimes.com/2026/08/13/technology/hpe-juniper-justice-department-settlement.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/08/13/world/europe/train-derails-southern-england.h
 **Topos Azteca, a Mexican Volunteer Rescue Group, Helps With Rescue Efforts After Colombia Earthquake**\
 `Topos Azteca, a Mexican volunteer rescue group that works worldwide and helped after the Sept. 11 attacks, arrived in Colombia after searching for survivors in Venezuela.`\
 https://www.nytimes.com/2026/08/13/world/americas/topos-azteca-rescue-efforts-colombia-earthquake.html
-
-**Mount Etna Eruption Leaves Travelers Stranded in Sicily**\
-`Ash spewing from Mount Etna on Sicily caused the cancellation of more than 700 flights during the peak of Italy’s summer tourism season.`\
-https://www.nytimes.com/video/world/europe/100000011090024/mount-etna-eruption-travelers-sicily-italy.html
-
-**Kennedy Center Board Decides to Inscribe Trump’s Name on Building**\
-`The vote to add “Restored and Renovated by President Donald J. Trump” is an aggressive test of a judge’s order to remove his name.`\
-https://www.nytimes.com/2026/08/13/arts/design/kennedy-center-closure-board-vote-trump.html
 
