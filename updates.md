@@ -1,3 +1,7 @@
+**Judge Affirms Settlement Allowing HPE’s Deal for Juniper**\
+`States had opposed an agreement allowing a Hewlett Packard Enterprise acquisition, calling the settlement ineffective and corrupt.`\
+https://www.nytimes.com/2026/08/13/technology/hpe-juniper-justice-department-settlement.html
+
 **Putin Visited Islands Taken From Japan in World War II, Angering Tokyo**\
 `President Vladimir Putin of Russia visited the Kuril Islands on Thursday for the first time since they were seized from Japan at the end of World War II.`\
 https://www.nytimes.com/video/world/asia/100000011090782/putin-japan-visit-wwii.html

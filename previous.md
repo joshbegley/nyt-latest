@@ -1,3 +1,7 @@
+**Judge Affirms Settlement Allowing HPE’s Deal for Juniper**\
+`States had opposed an agreement allowing a Hewlett Packard Enterprise acquisition, calling the settlement ineffective and corrupt.`\
+https://www.nytimes.com/2026/08/13/technology/hpe-juniper-justice-department-settlement.html
+
 **Putin Visited Islands Taken From Japan in World War II, Angering Tokyo**\
 `President Vladimir Putin of Russia visited the Kuril Islands on Thursday for the first time since they were seized from Japan at the end of World War II.`\
 https://www.nytimes.com/video/world/asia/100000011090782/putin-japan-visit-wwii.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/world/europe/100000011090024/mount-etna-eruption-t
 **Kennedy Center Board Decides to Inscribe Trump’s Name on Building**\
 `The vote to add “Restored and Renovated by President Donald J. Trump” is an aggressive test of a judge’s order to remove his name.`\
 https://www.nytimes.com/2026/08/13/arts/design/kennedy-center-closure-board-vote-trump.html
-
-**California May Let Residents Choose ‘Jewish’ as an Ethnic Identifier**\
-`A bill would allow Jews to identify themselves as an ethnic group on state forms. Supporters argue it’s a step toward acknowledging the complex nature of Jewish identity.`\
-https://www.nytimes.com/2026/08/13/us/california-jewish-ethnic-identity.html
 
