@@ -1,3 +1,11 @@
+**Europa se prepara para una nueva ola de calor en 2026**\
+`Con temperaturas que se elevarán hasta los 43 grados Celsius esta semana, los europeos y los turistas dicen que el verano en Europa ha perdido su atractivo.`\
+https://www.nytimes.com/es/2026/08/13/espanol/mundo/europa-ola-calor-espana-frustracion.html
+
+**Luigi Mangione, Facing Stalking Charges in Federal Court, Is Expected to Plead Guilty**\
+`Mr. Mangione faces stalking charges resulting in the death of an executive in Manhattan. Mr. Mangione could always change his mind at the last minute. A separate murder trial is set to begin next month.`\
+https://www.nytimes.com/2026/08/13/nyregion/luigi-mangione-guilty-plea-federal.html
+
 **In a Chinese Leader’s Death, Mourning for a More Hopeful Time**\
 `Tributes for former Premier Zhu Rongji reflect nostalgia for an era when China was opening to the world and the future seemed more prosperous and hopeful.`\
 https://www.nytimes.com/2026/08/13/business/zhu-rongji-death-mourning-china.html
