@@ -1,3 +1,23 @@
+**Halloumi, Peach and Cucumber Spoon Salad**\
+`When little cubes of cucumbers, peaches and seared halloumi are tossed in lime juice, you get a salad that’s salty, sweet, juicy and crunchy in every spoonful.`\
+https://www.nytimes.com/video/dining/100000011091223/halloumi-peach-and-cucumber-spoon-salad.html
+
+**Atlantic Beach Pie**\
+`Like a dreamy mash-up between a key lime and lemon meringue pie, this surprisingly fast and easy dessert is adapted from Bill Smith, who retired in 2019 after 25 years as the chef at Crook’s Corner, a Chapel Hill, N.C. restaurant that closed in June 2021.`\
+https://www.nytimes.com/video/dining/100000011091205/atlantic-beach-pie.html
+
+**Grilled S’mores Sandwiches**\
+`This always-makes-you-happy dessert combines two classics: s’mores and pan con chocolate, a Spanish snack of toast with melted chocolate on top.`\
+https://www.nytimes.com/video/dining/100000011091176/grilled-smores-sandwiches.html
+
+**Mangonada**\
+`When the summer sun screams across Mexico’s city streets and sandy beaches, mangonadas come to the rescue.`\
+https://www.nytimes.com/video/dining/100000011090890/mangonada.html
+
+**U.S.S. Abraham Lincoln Has Been Deployed for Months, Prompting Concerns**\
+`The U.S.S. Abraham Lincoln has been deployed for nearly nine months. Members of Congress are worried about the crew’s well-being.`\
+https://www.nytimes.com/2026/08/13/us/uss-abraham-lincoln-iran-navy.html
+
 **Carlos Garcia, Activist Who Helped Revive the Lower East Side, Dies at 80**\
 `He led a Puerto Rican group known as Charas in turning a crumbling public school into a community center, rehabilitating a desolate slice of New York.`\
 https://www.nytimes.com/2026/08/13/nyregion/carlos-chino-garcia-dead.html
@@ -173,24 +193,4 @@ https://www.nytimes.com/es/2026/08/13/espanol/mundo/europa-ola-calor-espana-frus
 **Today, In Short**\
 `Soup. Eclipse photos. And love bombing.`\
 https://www.nytimes.com/2026/08/13/briefing/today-in-short.html
-
-**My Big Fat Greek Chicken With Cucumber-Feta Salad**\
-`The gang’s all here: plump chicken thighs, crisp cucumbers, sweet tomatoes and salty feta.`\
-https://www.nytimes.com/2026/08/13/dining/my-big-fat-greek-chicken-with-cucumber-feta-salad.html
-
-**Hamas Has No More Cards to Play**\
-`The signs point to Hamas being serious about disarming. The recent Board of Peace plan for it to surrender its weapons should be carried out.`\
-https://www.nytimes.com/2026/08/13/opinion/gaza-hamas-israel-disarmament-palestinians.html
-
-**Brazil’s Disease-Fighting Mosquitoes**\
-`Our reporter, Apoorva Mandavilli, goes inside a mosquito factory in Brazil, where scientists are producing millions of mosquitoes to fight deadly tropical diseases in a warming world.`\
-https://www.nytimes.com/video/world/americas/100000011042147/brazils-disease-fighting-mosquitoes.html
-
-**In a Chinese Leader’s Death, Mourning for a More Hopeful Time**\
-`Tributes for former Premier Zhu Rongji reflect nostalgia for an era when China was opening to the world and the future seemed more prosperous and hopeful.`\
-https://www.nytimes.com/2026/08/13/business/zhu-rongji-death-mourning-china.html
-
-**Settler Violence Traps West Bank Palestinians**\
-`A group of Israeli settlers has trapped two Palestinian families in the West Bank since Sunday, highlighting the Israeli army’s struggle to contain settler violence.`\
-https://www.nytimes.com/video/world/middleeast/100000011090034/israeli-settlers-west-bank-palestinians-violence.html
 

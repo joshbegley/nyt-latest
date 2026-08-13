@@ -1,3 +1,23 @@
+**Halloumi, Peach and Cucumber Spoon Salad**\
+`When little cubes of cucumbers, peaches and seared halloumi are tossed in lime juice, you get a salad that’s salty, sweet, juicy and crunchy in every spoonful.`\
+https://www.nytimes.com/video/dining/100000011091223/halloumi-peach-and-cucumber-spoon-salad.html
+
+**Atlantic Beach Pie**\
+`Like a dreamy mash-up between a key lime and lemon meringue pie, this surprisingly fast and easy dessert is adapted from Bill Smith, who retired in 2019 after 25 years as the chef at Crook’s Corner, a Chapel Hill, N.C. restaurant that closed in June 2021.`\
+https://www.nytimes.com/video/dining/100000011091205/atlantic-beach-pie.html
+
+**Grilled S’mores Sandwiches**\
+`This always-makes-you-happy dessert combines two classics: s’mores and pan con chocolate, a Spanish snack of toast with melted chocolate on top.`\
+https://www.nytimes.com/video/dining/100000011091176/grilled-smores-sandwiches.html
+
+**Mangonada**\
+`When the summer sun screams across Mexico’s city streets and sandy beaches, mangonadas come to the rescue.`\
+https://www.nytimes.com/video/dining/100000011090890/mangonada.html
+
+**U.S.S. Abraham Lincoln Has Been Deployed for Months, Prompting Concerns**\
+`The U.S.S. Abraham Lincoln has been deployed for nearly nine months. Members of Congress are worried about the crew’s well-being.`\
+https://www.nytimes.com/2026/08/13/us/uss-abraham-lincoln-iran-navy.html
+
 **Charlie Kirk Suspect Fights Death Penalty, Says No Others Were in Danger**\
 `Prosecutors say they can seek the death penalty against Tyler Robinson because he also endangered people near Charlie Kirk, who was shot in the throat last year. Mr. Robinson’s lawyers note that the gunman struck only his target.`\
 https://www.nytimes.com/2026/08/13/us/charlie-kirk-tyler-robinson-death-penalty.html
