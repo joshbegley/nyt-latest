@@ -1,3 +1,7 @@
+**Ocasio-Cortez habló abiertamente sobre congelar sus óvulos y encendió un debate**\
+`Algunas mujeres vieron la apertura como una manera de empoderamiento. Otras consideran que es vender una idea errónea de que el proceso es muy sencillo.`\
+https://www.nytimes.com/es/2026/08/13/espanol/estados-unidos/ocasio-cortez-congela-ovulos.html
+
 **Late Night Ribs Trump for Leaving Staff Behind on Air Force One**\
 `Anthony Anderson, the guest host of “Jimmy Kimmel Live,” called the ruse in which President Trump exited the plane in a catering container “Operation Pig in a Blanket.”`\
 https://www.nytimes.com/2026/08/13/arts/television/late-night-trump-air-force-one-catering.html

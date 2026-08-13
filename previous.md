@@ -1,3 +1,7 @@
+**Ocasio-Cortez habló abiertamente sobre congelar sus óvulos y encendió un debate**\
+`Algunas mujeres vieron la apertura como una manera de empoderamiento. Otras consideran que es vender una idea errónea de que el proceso es muy sencillo.`\
+https://www.nytimes.com/es/2026/08/13/espanol/estados-unidos/ocasio-cortez-congela-ovulos.html
+
 **Late Night Ribs Trump for Leaving Staff Behind on Air Force One**\
 `Anthony Anderson, the guest host of “Jimmy Kimmel Live,” called the ruse in which President Trump exited the plane in a catering container “Operation Pig in a Blanket.”`\
 https://www.nytimes.com/2026/08/13/arts/television/late-night-trump-air-force-one-catering.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/video/opinion/100000011086410/journalism-in-the-zones-of
 **Forbes Fired Top Editor After Discovering He Received Secret $6 Million Payment**\
 `Randall Lane, the magazine’s chief content officer, received the money from the founder of Shook Research, which has worked with Forbes on content about wealth advisers.`\
 https://www.nytimes.com/2026/08/12/business/forbes-editor-fired.html
-
-**Trump Is Sued Over Plan to Sell Early Access to His Truth Social Posts**\
-`The lawsuit filed in federal court said President Trump “stands to gain financially by giving ‘market-moving’ government information to those who are willing and able to pay his personal company.”`\
-https://www.nytimes.com/2026/08/12/us/politics/trump-truth-social-lawsuit.html
 
 **First Total Eclipse in Europe in Decades Turns Day to Night**\
 `From Iceland to Spain, people flocked to viewing spots to see the moon completely block out the sun.`\
