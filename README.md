@@ -1,4 +1,8 @@
-**Trump’s Immigration Policy Echoes 1920s Turn Against Certain Newcomers**\
+**Another OpenAI Executive, Denise Dresser, Departs the A.I. Start-Up**\
+`Denise Dresser, who was previously the C.E.O. of Slack, is the latest in a string of executives to leave the artificial intelligence start-up.`\
+https://www.nytimes.com/2026/08/13/technology/openai-executive-departure-denise-dresser.html
+
+**Trump’s Immigration Policy Echoes 1920s Crackdown, but This Time Congress Isn’t Involved**\
 `U.S. leaders limited immigration amid economic and social turmoil. Historians see similarities to Trump’s crackdown, with a catch: He’s doing it without Congress.`\
 https://www.nytimes.com/2026/08/13/us/politics/trump-immigration-crackdown.html
 
@@ -7,7 +11,7 @@ https://www.nytimes.com/2026/08/13/us/politics/trump-immigration-crackdown.html
 https://www.nytimes.com/2026/08/13/books/review/new-recommended-books.html
 
 **Wildfire Continues to Threaten California’s Famed Big Sur Region**\
-`The Timber fire has burned more than 4,000 acres and was 7  percent contained on Thursday.`\
+`The Timber fire has burned more than 4,000 acres and was 7 percent contained on Thursday.`\
 https://www.nytimes.com/2026/08/13/us/timber-fire-big-sur.html
 
 **Alfonso Fanjul Jr., barón azucarero cubanoestadounidense, muere a los 89 años**\
@@ -43,7 +47,7 @@ https://www.nytimes.com/2026/08/13/business/flock-cameras-privacy-updates.html
 https://www.nytimes.com/2026/08/13/opinion/bernie-sanders-democrats.html
 
 **Train Derails Near Town of Lewes in East Sussex, U.K.**\
-`Emergency services said they were working at the scene of a train derailment near Lewes, in East Sussex, on Thursday.`\
+`Emergency services said they were working at the scene of a derailment near Lewes, in East Sussex, on Thursday. Nine other people were less seriously hurt.`\
 https://www.nytimes.com/2026/08/13/world/europe/train-derails-southern-england.html
 
 **Topos Azteca, a Mexican Volunteer Rescue Group, Helps With Rescue Efforts After Colombia Earthquake**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/quiz/2026/08/13/realestate/upper-manhattan-homes-sale-pr
 **Putin Visits Islands Seized From Japan in World War II, Angering Tokyo**\
 `Prime Minister Sanae Takaichi of Japan has been a public critic of Mr. Putin, who has denounced her country’s sanctions against Russia over the Ukraine war.`\
 https://www.nytimes.com/2026/08/13/world/asia/putin-visit-islands-japan-russia.html
-
-**A Celestial Wonder**\
-`We’re sharing photos from yesterday’s total solar eclipse.`\
-https://www.nytimes.com/2026/08/13/briefing/solar-eclipse-photos.html
 
