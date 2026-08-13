@@ -1,3 +1,7 @@
+**How China Remembers Zhu Rongji, the Premier Who Spoke His Mind**\
+`Tributes to the former premier recalled his spirited style and his efforts to integrate China into global commerce, in contrast with the rigidity of the Xi era.`\
+https://www.nytimes.com/2026/08/13/world/asia/china-premier-zhu-rongji-reaction.html
+
 **The Truth Behind an N.F.L. Injury Conspiracy Theory**\
 `What’s hurting the San Francisco 49ers? “It’s time to talk to a scientist.”`\
 https://www.nytimes.com/2026/08/13/podcasts/the-truth-behind-an-nfl-injury-conspiracy-theory.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/13/movies/the-end-of-oak-street-review.html
 **For Many, Eating Hot Soup in the Summer Is a Classic Way to Cool Down**\
 `Millions of people across the world’s hottest places have long known the best way to cool down in the summer is to eat hotter.`\
 https://www.nytimes.com/2026/08/13/dining/hot-soup-summer.html
-
-**Diya Joukani, India’s ‘It’ Girl, Really Is That Cool**\
-`Diya Joukani’s popular videos on social media documenting her daily life in Mumbai have earned her a reputation as “the cool girl from India.” She has parlayed it into her brand.`\
-https://www.nytimes.com/2026/08/13/style/diya-joukani-india-influencer.html
 
