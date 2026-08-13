@@ -1,3 +1,7 @@
+**‘An English Summer Is Not the Same Anymore’**\
+`With forecasters issuing a warning for very high temperatures, this summer is on track to be one of the hottest yet.`\
+https://www.nytimes.com/2026/08/13/world/europe/britain-heat-records.html
+
 **NYT Crossword Answers for Aug. 13, 2026**\
 `Killian Olson helps us find a perfect fit.`\
 https://www.nytimes.com/2026/08/12/crosswords/daily-puzzle-2026-08-13.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/video/us/politics/100000011088835/watching-trump-at-the-
 **The Good List: 6 Things to Add Joy to Your Day**\
 `Cosmic reset, chatting outside and a very old cat.`\
 https://www.nytimes.com/2026/08/12/briefing/12-the-good-list-meteor-shower-cat-glyph.html
-
-**Trump Wants the M.M.R. Vaccine Split Into Three Separate Shots. Doctors Say It’s a Bad Idea.**\
-`President Trump is calling for immunizations for measles, mumps and rubella to be given in individual jabs in three different appointments instead of the standard combination shot.`\
-https://www.nytimes.com/2026/08/12/health/mmr-vaccine-combination-separate.html
 
 **Por primera vez en décadas, el día se hace noche en Europa bajo un eclipse solar total**\
 `De Islandia a España, los observadores acudieron a los lugares donde, por corto tiempo, la Luna bloqueó completamente al Sol.`\
