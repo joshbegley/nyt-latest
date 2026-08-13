@@ -1,3 +1,7 @@
+**How a Times Photographer Captured the Solar Eclipse**\
+`To document the celestial event on Wednesday, a photographer had to get creative.`\
+https://www.nytimes.com/2026/08/13/insider/solar-eclipse-photo.html
+
 **Stavros Halkias Never Wanted to Get Political**\
 `Watch the full Popcast conversation with Stavros Halkias here. Edited excerpts from the interview are below.`\
 https://www.nytimes.com/video/podcasts/100000011084155/stavros-halkias-never-wanted-to-get-political.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/interactive/2026/08/13/us/quake-tracker-san-francisco-ba
 **Alfonso Fanjul Jr., Cuban American Sugar Baron, Dies at 89**\
 `With his brother, he presided over a family empire that includes the world’s largest cane sugar refiner and the Domino and C&H brands.`\
 https://www.nytimes.com/2026/08/13/business/alfonso-fanjul-jr-dead.html
-
-**Cómo ver el ‘eclipse del siglo’ de 2027**\
-`El 2 de agosto, el sur de Europa, el norte de África y Medio Oriente será testigo de un espectacular evento solar con una totalidad excepcionalmente larga. Si quieres verlo, reserva pronto.`\
-https://www.nytimes.com/es/2026/08/13/espanol/estilos-de-vida/como-ver-eclipse-del-siglo-2027.html
 

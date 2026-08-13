@@ -1,3 +1,7 @@
+**Stavros Halkias Calls Out Comedians**\
+`The comedian Stavros Halkias called out how wealth and fame are changing A-list comics in his interview with Joe Coscarelli and Jon Caramanica on Popcast.`\
+https://www.nytimes.com/video/podcasts/100000011084159/stavros-halkias-calls-out-comedians.html
+
 **How a Times Photographer Captured the Solar Eclipse**\
 `To document the celestial event on Wednesday, a photographer had to get creative.`\
 https://www.nytimes.com/2026/08/13/insider/solar-eclipse-photo.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/13/us/politics/the-docket-supreme-court-trump-lo
 **Maps: 3.8-Magnitude Earthquake Shakes the San Francisco Bay Area**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/08/13/us/quake-tracker-san-francisco-bay.html
-
-**Alfonso Fanjul Jr., Cuban American Sugar Baron, Dies at 89**\
-`With his brother, he presided over a family empire that includes the world’s largest cane sugar refiner and the Domino and C&H brands.`\
-https://www.nytimes.com/2026/08/13/business/alfonso-fanjul-jr-dead.html
 
