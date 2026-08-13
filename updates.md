@@ -1,3 +1,7 @@
+**Charlie Kirk Suspect Fights Death Penalty, Says No Others Were in Danger**\
+`Prosecutors say they can seek the death penalty against Tyler Robinson because he also endangered people near Charlie Kirk, who was shot in the throat last year. Mr. Robinson’s lawyers note that the gunman struck only his target.`\
+https://www.nytimes.com/2026/08/13/us/charlie-kirk-tyler-robinson-death-penalty.html
+
 **Carlos Garcia, Activist Who Helped Revive the Lower East Side, Dies at 80**\
 `He led a Puerto Rican group known as Charas in turning a crumbling public school into a community center, rehabilitating a desolate slice of New York.`\
 https://www.nytimes.com/2026/08/13/nyregion/carlos-chino-garcia-dead.html

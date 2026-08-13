@@ -1,3 +1,7 @@
+**U.S.S. Abraham Lincoln Has Been Deployed for Months, Prompting Concerns**\
+`The U.S.S. Abraham Lincoln has been deployed for nearly nine months. Members of Congress are worried about the crew’s well-being.`\
+https://www.nytimes.com/2026/08/13/us/uss-abraham-lincoln-iran-navy.html
+
 **Carlos Garcia, Activist Who Helped Revive the Lower East Side, Dies at 80**\
 `He led a Puerto Rican group known as Charas in turning a crumbling public school into a community center, rehabilitating a desolate slice of New York.`\
 https://www.nytimes.com/2026/08/13/nyregion/carlos-chino-garcia-dead.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/world/americas/100000011042147/brazils-disease-fig
 **In a Chinese Leader’s Death, Mourning for a More Hopeful Time**\
 `Tributes for former Premier Zhu Rongji reflect nostalgia for an era when China was opening to the world and the future seemed more prosperous and hopeful.`\
 https://www.nytimes.com/2026/08/13/business/zhu-rongji-death-mourning-china.html
-
-**Settler Violence Traps West Bank Palestinians**\
-`A group of Israeli settlers has trapped two Palestinian families in the West Bank since Sunday, highlighting the Israeli army’s struggle to contain settler violence.`\
-https://www.nytimes.com/video/world/middleeast/100000011090034/israeli-settlers-west-bank-palestinians-violence.html
 

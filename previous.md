@@ -30,7 +30,7 @@ https://www.nytimes.com/interactive/polls/providence-rhode-island-mayor-election
 `A lingering weather system has brought severe flooding and intense winds — including a few tornadoes — to Illinois, Indiana and Ohio.`\
 https://www.nytimes.com/2026/08/13/us/storm-damage-midwest.html
 
-**Charlie Kirk Suspect Fights Death Penalty, Saying Gunman ‘Did Not Miss’**\
+**Charlie Kirk Suspect Fights Death Penalty, Says No Others Were in Danger**\
 `Prosecutors say they can seek the death penalty against Tyler Robinson because he also endangered people near Charlie Kirk, who was shot in the throat last year. Mr. Robinson’s lawyers note that the gunman struck only his target.`\
 https://www.nytimes.com/2026/08/13/us/charlie-kirk-tyler-robinson-death-penalty.html
 
