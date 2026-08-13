@@ -1,3 +1,95 @@
+**An 8 P.M. Bedtime, Oxygen Chambers, Blood Tests Galore. What Would You Do for a Longer Life?**\
+`The tech mogul Bryan Johnson is trying to design the blueprint for defying death.`\
+https://www.nytimes.com/2026/08/13/opinion/interesting-times-bryan-johnson.html
+
+**36 Hours in Bergen, Norway: Things to Do and See**\
+`The city, on Norway’s west coast, is no hayseed cousin to other Scandinavian capitals, with a thriving cultural scene that ranges from high art to heavy metal.`\
+https://www.nytimes.com/interactive/2026/08/13/travel/things-to-do-bergen-norway.html
+
+**The Special Melons Starring on Summer Menus**\
+`Plus: a villa in Jalisco, Mexico, experimental art at a Berlin opera house and more recommendations from T Magazine.`\
+https://www.nytimes.com/2026/08/13/t-magazine/the-special-melons-starring-on-summer-menus.html
+
+**The Bicentennial Was Better! | Cannonball with Wesley Morris**\
+`America turned 250 and all we got was a lousy logo.`\
+https://www.nytimes.com/2026/08/13/podcasts/the-bicentennial-was-better.html
+
+**Corrections: Aug. 13, 2026**\
+`Corrections that appeared in print on Thursday, Aug. 13, 2026.`\
+https://www.nytimes.com/2026/08/13/pageoneplus/corrections-aug-13-2026.html
+
+**What We Know About Taylor Farms’ Food Recalls**\
+`Just weeks after the company recalled lettuce and other produce suspected of being tainted by the cyclosporiasis parasite, it recalled jalapeños linked to a salmonella outbreak.`\
+https://www.nytimes.com/2026/08/13/business/taylor-farms-recalls-cyclospora-salmonella.html
+
+**I Tested a Popular A.I. Slop Detector. It Felt Empowering.**\
+`Pangram excels at distinguishing chatbot-generated words from human writing. But it’s not reliable for spotting artificial images.`\
+https://www.nytimes.com/2026/08/13/technology/personaltech/pangram-ai-detector-test.html
+
+**Three States to Execute Inmates on the Same Day**\
+`One of the planned executions, in Tennessee, comes months after the state called off the execution of another inmate when medical staff could not find a vein for the lethal injection.`\
+https://www.nytimes.com/2026/08/13/us/tennessee-alabama-oklahoma-executions.html
+
+**The Great Scam on the High Seas**\
+`U.S. tariff rates are not for rent.`\
+https://www.nytimes.com/2026/08/13/opinion/us-tariffs-economy-trade-transshipment-scam.html
+
+**How ‘Stacks’ Went From Bodybuilding and Computing to Describing Everything**\
+`The word used to describe a pile of stuff. Now it has to do with a mechanistic pursuit of perfection.`\
+https://www.nytimes.com/2026/08/13/magazine/stacks-bodybuilding-computing.html
+
+**Inside the Democratic Socialists of America’s Audacious Quest for Power**\
+`Democratic Socialists are capturing more votes than ever before — even as they run up against the limits of their appeal.`\
+https://www.nytimes.com/2026/08/13/magazine/democratic-socialism-dsa-elections-primaries.html
+
+**Stagflation Has Returned. Kevin Warsh Must Defy Trump to Protect Our Economy.**\
+`Northwestern professor Phillip Braun the return of stagflation brings new urgency to Fed Chair Kevin Warsh’s next moves.`\
+https://www.nytimes.com/2026/08/13/opinion/stagflation-warsh-trump-inflation-economy.html
+
+**Mamdani to Give Free Broadway Tickets to High Schoolers**\
+`The administration is announcing plans for a lottery to give away more than 2,000 tickets to seven shows, including “Two Strangers (Carry a Cake Across New York).”`\
+https://www.nytimes.com/2026/08/13/nyregion/mamdani-to-give-free-broadway-tickets-to-high-schoolers.html
+
+**Homes for Sale in New York and New Jersey**\
+`This week’s properties are a two-bedroom condo in Pelham, N.Y., and a four-bedroom house in Wayne Township, N.J.`\
+https://www.nytimes.com/2026/08/13/realestate/housing-market-near-nyc.html
+
+**Homes for Sale in Manhattan and Queens**\
+`This week’s properties are in Kips Bay, Yorkville and Long Island City.`\
+https://www.nytimes.com/2026/08/13/realestate/housing-market-nyc.html
+
+**Homeland Security Paid $464 Million for Airplanes. Then It Parked Them.**\
+`The agency used a no-bid contract to buy 10 used jets, saying they were urgently needed for deportation flights. But the fleet has largely sat idle for months.`\
+https://www.nytimes.com/2026/08/13/us/politics/homeland-security-parked-airplanes.html
+
+**America Wants to Make Its Own Humanoid Robots. That Won’t Be Easy.**\
+`China already manufactures humanoid robots by the thousands. A new generation of U.S. start-ups is betting that there is still time to compete.`\
+https://www.nytimes.com/2026/08/13/business/humanoid-robot-us-china.html
+
+**An 8 P.M. Bedtime, Oxygen Chambers, Blood Tests Galore: What Would You Do for a Longer Life?**\
+`The tech mogul Bryan Johnson is trying to design the blueprint for defying death.`\
+https://www.nytimes.com/video/opinion/100000011079554/an-8-pm-bedtime-oxygen-chambers-blood-tests-galore-what-would-you-do-for-a-longer-life.html
+
+**‘Dead Souls’ Review: A Mean Satire About American Exploitation**\
+`The “Repo Man” director Alex Cox returns with an unabashedly weird western, where he plays a mysterious stranger in an Arizona border town, circa 1890.`\
+https://www.nytimes.com/2026/08/13/movies/dead-souls-review.html
+
+**This Pesticide May Be Too Dangerous to Use. Farmers Say They Need It.**\
+`California announced that it’s phasing out paraquat, a pesticide widely used in the United States that is linked to Parkinson’s disease.`\
+https://www.nytimes.com/2026/08/13/science/paraquat-pesticide-parkinsons-california.html
+
+**Rory Scovel’s New Netflix Special Reviewed: Winging It Never Sounded So Funny**\
+`In “Show Must Go On,” the appearance of unpredictability combined with the possibility of catastrophe is riveting.`\
+https://www.nytimes.com/2026/08/13/arts/television/rory-scovel-comedy-show-must-go-on-review-netflix.html
+
+**The Golden Age of Mexican Food Is Here. And It’s Complicated.**\
+`Even at a time of anti-immigration politics, there has never been a richer variety of Mexican restaurants in the United States.`\
+https://www.nytimes.com/2026/08/13/dining/mexican-food-scene-united-states-immigration.html
+
+**Kansas Put a Bounty on Trans People**\
+`Is Kansas just the beginning?`\
+https://www.nytimes.com/2026/08/13/opinion/kansas-anti-trans-laws-drivers-license.html
+
 **The Nantucket Lightship Basket Is Having a Very Good Summer**\
 `Long waits, eye-popping prices and master craftsmanship. It’s never been a better time to be a Nantucket friendship basket.`\
 https://www.nytimes.com/2026/08/13/style/nantucket-lightship-friendship-basket.html
@@ -105,96 +197,4 @@ https://www.nytimes.com/2026/08/13/style/diya-joukani-india-influencer.html
 **So You Want to Build an A.I. Star?**\
 `Designers at a new crop of creative studios create fake personas they hope real people will love. Are they distorting culture or mirroring it?`\
 https://www.nytimes.com/2026/08/13/arts/ai-podcasts-fashion-pop-avatars.html
-
-**La DoubleJ, a Store by Fashion’s Woo-Woo Queen, Comes to the Upper East Side**\
-`J.J. Martin believes shopping should make you feel good.`\
-https://www.nytimes.com/2026/08/13/style/jj-martin-la-double-j-spirituality-shopping.html
-
-**Madden Is Designed to Feel Real. So Where Are the Concussions?**\
-`After head injuries were removed from the popular N.F.L. games, a nonprofit group found a visceral way to incorporate them.`\
-https://www.nytimes.com/2026/08/13/arts/madden-27-nfl-concussions.html
-
-**As Comedians Toy With A.I., Who Will Get the Last Laugh?**\
-`Several acts at the Edinburgh Fringe are testing the boundaries of creativity using artificial intelligence.`\
-https://www.nytimes.com/2026/08/13/arts/edinburgh-fringe-ai-comedy.html
-
-**Nigel Farage Quit to Force a New Election. Now, He Faces Count Binface.**\
-`Nigel Farage, the leader of Reform U.K., will face Count Binface, a novelty candidate, in Thursday’s special election that he forced after coming under pressure over his finances.`\
-https://www.nytimes.com/video/world/europe/100000011089783/britain-special-election-farage-binface.html
-
-**No voy a mentir sobre mi cuello**\
-`Como muchas mujeres jóvenes, alguna vez fui ferozmente crítica de la cirugía plástica. Ahora ya no estoy tan segura.`\
-https://www.nytimes.com/es/2026/08/13/espanol/opinion/cirugia-plastica-face-lift-feminismo.html
-
-**Outdoor Dining Is Expected to Resume Year-Round in New York City**\
-`The City Council is poised to approve a package of bills loosening some restrictions on roadway dining structures, which became ubiquitous during the pandemic.`\
-https://www.nytimes.com/2026/08/13/nyregion/outdoor-dining-is-expected-to-resume-year-round-in-new-york-city.html
-
-**NYT Spelling Bee Answers for August 13, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/08/13/crosswords/spelling-bee-forum.html
-
-**Happy Hour With the Vanishing Nuns of New York**\
-`As convents are closing all over, the sisters are facing the end of their lives together — and they have brought the party to an assisted living center in the suburbs.`\
-https://www.nytimes.com/2026/08/13/nyregion/last-nuns-new-york-city.html
-
-**New Yorkers Who Lost Insurance After Trump Cuts Face Hard Choices**\
-`New York State’s generous health plan for working-class people was hit hard by federal funding cuts. More than 400,000 people are now looking for new coverage or living without it.`\
-https://www.nytimes.com/2026/08/13/nyregion/new-york-health-insurance-trump-cuts.html
-
-**Ocasio-Cortez habló abiertamente sobre congelar sus óvulos y encendió un debate**\
-`Algunas mujeres vieron la apertura como una manera de empoderamiento. Otras consideran que es vender una idea errónea de que el proceso es muy sencillo.`\
-https://www.nytimes.com/es/2026/08/13/espanol/estados-unidos/ocasio-cortez-congela-ovulos.html
-
-**Late Night Ribs Trump for Leaving Staff Behind on Air Force One**\
-`Anthony Anderson, the guest host of “Jimmy Kimmel Live,” called the ruse in which President Trump exited the plane in a catering container “Operation Pig in a Blanket.”`\
-https://www.nytimes.com/2026/08/13/arts/television/late-night-trump-air-force-one-catering.html
-
-**Hallmark Channel cumple 25 años con películas donde el amor siempre triunfa**\
-`Cuando la vida parece difícil, la Navidad en julio puede ayudar.`\
-https://www.nytimes.com/es/2026/08/13/espanol/cultura/hallmark-peliculas.html
-
-**Una rutina de 25 minutos para mejorar tu equilibrio y fuerza**\
-`Estos ejercicios de una sola pierna pueden ayudarte a moverte con más facilidad y a evitar lesiones.`\
-https://www.nytimes.com/es/2026/08/13/espanol/rutina-25-minutos-equilibrio-fuerza.html
-
-**La crisis migratoria entre España y Marruecos fue avivada por las redes sociales**\
-`Según los expertos, una cascada de desinformación contribuyó directamente a la llegada de migrantes en el enclave español, que resultó en unas 90 muertes.`\
-https://www.nytimes.com/es/2026/08/13/espanol/negocios/espana-migrantes-marruecos-redes-sociales.html
-
-**If You Weren’t Worried About A.I., You Should Be After the Past Few Weeks**\
-`If there was ever a time to consider halting development of A.I., it’s now.`\
-https://www.nytimes.com/2026/08/13/opinion/ai-danger-openai-anthropic-models.html
-
-**The Man on a Mission to Build India’s Most Livable City**\
-`The chief minister of Andhra Pradesh has 25,000 workers building his dream capital with waterways, bike lanes and a “Quantum Valley” tech hub.`\
-https://www.nytimes.com/2026/08/13/world/asia/india-amravati-livable-city-andhra-pradesh.html
-
-**Rusia ataca barcos graneleros y pone en riesgo el suministro mundial de alimentos**\
-`Decenas de embarcaciones han sido alcanzadas en el mar Negro, mientras crece el temor por una nueva crisis alimentaria global.`\
-https://www.nytimes.com/es/2026/08/13/espanol/mundo/rusia-ataque-barcos-comercio.html
-
-**Trump Administration Lets Parts of the National Firearms Act Lapse**\
-`The retreat by the Justice Department effectively allowed a pillar of the Prohibition-era National Firearms Act to lapse.`\
-https://www.nytimes.com/2026/08/13/us/politics/national-firearms-act-gun-control-doj.html
-
-**Ferry Capsizes in Zimbabwe, Killing Dozens**\
-`More than 40 people died when an overcrowded ferry capsized on Zimbabwe’s Lake Kariba.`\
-https://www.nytimes.com/video/world/africa/100000011089685/zimbabwe-ferry-capsize-lake-kariba.html
-
-**Fui el cardiólogo de Dick Cheney. Trump no luce bien y deberíamos saber por qué**\
-`El presidente de EE. UU. no se ha visto bien. Los estadounidenses deberían obtener respuestas a estas siete preguntas.`\
-https://www.nytimes.com/es/2026/08/13/espanol/opinion/trump-problemas-salud.html
-
-**Quote of the Day: Join a Game and Meet a Star**\
-`Quotation of the Day for Thursday, August 13, 2026.`\
-https://www.nytimes.com/2026/08/13/pageoneplus/quote-of-the-day-join-a-game-and-meet-a-star.html
-
-**What to Know About Today’s U.K. Special Election: Farage vs. Binface**\
-`Nigel Farage, the right-wing populist leader, forced a by-election in his parliamentary seat of Clacton after he came under pressure over his financial declarations.`\
-https://www.nytimes.com/2026/08/13/world/europe/farage-binface-uk-byelection-clacton.html
-
-**First Total Eclipse in Europe in Decades Turns Day to Night**\
-`From Iceland to Spain, people flocked to viewing spots to see the moon completely block out the sun.`\
-https://www.nytimes.com/live/2026/08/12/world/solar-eclipse-2026-updates
 
