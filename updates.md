@@ -1,3 +1,15 @@
+**Books Our Editors Loved This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://www.nytimes.com/2026/08/13/books/review/new-recommended-books.html
+
+**Wildfire Continues to Threaten California’s Famed Big Sur Region**\
+`The Timber fire has burned more than 4,000 acres and was 7  percent contained on Thursday.`\
+https://www.nytimes.com/2026/08/13/us/timber-fire-big-sur.html
+
+**Mount Etna Eruption Leaves Travelers Stranded in Sicily**\
+`Ash spewing from Mount Etna on Sicily caused the cancellation of more than 700 flights during the peak of Italy’s summer tourism season.`\
+https://www.nytimes.com/video/world/europe/100000011090024/mount-etna-eruption-travelers-sicily-italy.html
+
 **Alfonso Fanjul Jr., barón azucarero cubanoestadounidense, muere a los 89 años**\
 `Junto a su hermano, presidió un imperio familiar que incluye la refinería de azúcar de caña más grande del mundo y las marcas Domino y C&H.`\
 https://www.nytimes.com/es/2026/08/13/espanol/cultura/muere-alfonso-fanjul-cuba-azucar.html

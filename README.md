@@ -1,3 +1,7 @@
+**Trump’s Immigration Policy Echoes 1920s Turn Against Certain Newcomers**\
+`U.S. leaders limited immigration amid economic and social turmoil. Historians see similarities to Trump’s crackdown, with a catch: He’s doing it without Congress.`\
+https://www.nytimes.com/2026/08/13/us/politics/trump-immigration-crackdown.html
+
 **Books Our Editors Loved This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://www.nytimes.com/2026/08/13/books/review/new-recommended-books.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/13/world/asia/putin-visit-islands-japan-russia.h
 **A Celestial Wonder**\
 `We’re sharing photos from yesterday’s total solar eclipse.`\
 https://www.nytimes.com/2026/08/13/briefing/solar-eclipse-photos.html
-
-**Hegseth Is Pressed to Clarify Lawyer’s Role in Promotion Decisions**\
-`Representative Jason Crow asked Defense Secretary Pete Hegseth to explain statements about his special adviser’s influence following a New York Times report.`\
-https://www.nytimes.com/2026/08/13/us/hegseth-jason-crow-military-promotions.html
 
