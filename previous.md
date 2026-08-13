@@ -1,3 +1,11 @@
+**Stavros Halkias Never Wanted to Get Political**\
+`Watch the full Popcast conversation with Stavros Halkias here. Edited excerpts from the interview are below.`\
+https://www.nytimes.com/video/podcasts/100000011084155/stavros-halkias-never-wanted-to-get-political.html
+
+**Female Afghans Erased From Public Life in Five Years of Taliban Rule**\
+`Decrees restricting women’s rights to study, work, travel and act independently now threaten to damage Afghanistan permanently, experts say.`\
+https://www.nytimes.com/2026/08/13/world/asia/afghan-women-taliban-rule.html
+
 **Halloumi, Peach and Cucumber Spoon Salad**\
 `When little cubes of cucumbers, peaches and seared halloumi are tossed in lime juice, you get a salad that’s salty, sweet, juicy and crunchy in every spoonful.`\
 https://www.nytimes.com/video/dining/100000011091223/halloumi-peach-and-cucumber-spoon-salad.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/08/13/business/alfonso-fanjul-jr-dead.html
 **Cómo ver el ‘eclipse del siglo’ de 2027**\
 `El 2 de agosto, el sur de Europa, el norte de África y Medio Oriente será testigo de un espectacular evento solar con una totalidad excepcionalmente larga. Si quieres verlo, reserva pronto.`\
 https://www.nytimes.com/es/2026/08/13/espanol/estilos-de-vida/como-ver-eclipse-del-siglo-2027.html
-
-**Europa se prepara para una nueva ola de calor en 2026**\
-`Con temperaturas que se elevarán hasta los 43 grados Celsius esta semana, los europeos y los turistas dicen que el verano en Europa ha perdido su atractivo.`\
-https://www.nytimes.com/es/2026/08/13/espanol/mundo/europa-ola-calor-espana-frustracion.html
-
-**Today, In Short**\
-`Soup. Eclipse photos. And love bombing.`\
-https://www.nytimes.com/2026/08/13/briefing/today-in-short.html
 

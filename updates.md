@@ -1,3 +1,11 @@
+**Stavros Halkias Never Wanted to Get Political**\
+`Watch the full Popcast conversation with Stavros Halkias here. Edited excerpts from the interview are below.`\
+https://www.nytimes.com/video/podcasts/100000011084155/stavros-halkias-never-wanted-to-get-political.html
+
+**Female Afghans Erased From Public Life in Five Years of Taliban Rule**\
+`Decrees restricting women’s rights to study, work, travel and act independently now threaten to damage Afghanistan permanently, experts say.`\
+https://www.nytimes.com/2026/08/13/world/asia/afghan-women-taliban-rule.html
+
 **Halloumi, Peach and Cucumber Spoon Salad**\
 `When little cubes of cucumbers, peaches and seared halloumi are tossed in lime juice, you get a salad that’s salty, sweet, juicy and crunchy in every spoonful.`\
 https://www.nytimes.com/video/dining/100000011091223/halloumi-peach-and-cucumber-spoon-salad.html
