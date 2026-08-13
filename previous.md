@@ -95,7 +95,7 @@ https://www.nytimes.com/2026/08/13/magazine/stacks-bodybuilding-computing.html
 https://www.nytimes.com/2026/08/13/magazine/democratic-socialism-dsa-elections-primaries.html
 
 **Stagflation Has Returned. Kevin Warsh Must Defy Trump to Protect Our Economy.**\
-`Northwestern professor Phillip Braun the return of stagflation brings new urgency to Fed Chair Kevin Warsh’s next moves.`\
+`The Northwestern professor Phillip Braun says the return of stagflation brings new urgency to the Fed chairman Kevin Warsh’s next moves.`\
 https://www.nytimes.com/2026/08/13/opinion/stagflation-warsh-trump-inflation-economy.html
 
 **Mamdani to Give Free Broadway Tickets to High Schoolers**\

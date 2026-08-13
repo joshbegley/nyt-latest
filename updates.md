@@ -1,3 +1,7 @@
+**Stagflation Has Returned. Kevin Warsh Must Defy Trump to Protect Our Economy.**\
+`The Northwestern professor Phillip Braun says the return of stagflation brings new urgency to the Fed chairman Kevin Warsh’s next moves.`\
+https://www.nytimes.com/2026/08/13/opinion/stagflation-warsh-trump-inflation-economy.html
+
 **Inside the $12.5 Billion Deal for the Lakers**\
 `The transaction, hashed out last weekend, reflects the huge profit potential of major sports franchises.`\
 https://www.nytimes.com/2026/08/13/business/dealbook/lakers-deal-kushner-iger-walter.html
