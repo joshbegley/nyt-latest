@@ -1,3 +1,7 @@
+**Hamas Has No More Cards to Play**\
+`The signs point to Hamas being serious about disarming. The recent Board of Peace plan for it to surrender its weapons should be carried out.`\
+https://www.nytimes.com/2026/08/13/opinion/gaza-hamas-israel-disarmament-palestinians.html
+
 **Another OpenAI Executive, Denise Dresser, Departs the A.I. Start-Up**\
 `Denise Dresser, who was previously the C.E.O. of Slack, is the latest in a string of executives to leave the artificial intelligence start-up.`\
 https://www.nytimes.com/2026/08/13/technology/openai-executive-departure-denise-dresser.html

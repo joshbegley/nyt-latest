@@ -106,7 +106,7 @@ https://www.nytimes.com/2026/08/13/briefing/today-in-short.html
 `The gang’s all here: plump chicken thighs, crisp cucumbers, sweet tomatoes and salty feta.`\
 https://www.nytimes.com/2026/08/13/dining/my-big-fat-greek-chicken-with-cucumber-feta-salad.html
 
-**The Board of Peace Road Map for Gaza Gives Hope**\
+**Hamas Has No More Cards to Play**\
 `The signs point to Hamas being serious about disarming. The recent Board of Peace plan for it to surrender its weapons should be carried out.`\
 https://www.nytimes.com/2026/08/13/opinion/gaza-hamas-israel-disarmament-palestinians.html
 
