@@ -1,3 +1,11 @@
+**Deaths of 3 ICE Detainees Prompt Questions About Medical Care**\
+`Immigrants at Delaney Hall in Newark have complained about health services. Federal officials defended the treatment provided there and elsewhere.`\
+https://www.nytimes.com/2026/08/13/nyregion/delaney-hall-detainee-health-ice.html
+
+**Engine Blade Hit Window on Jet When Man Was Partly Sucked Outside, Report Says**\
+`The National Transportation Safety Board said it had found a bird’s remains and feathers on a broken engine.`\
+https://www.nytimes.com/2026/08/13/world/europe/ryanair-flight-passenger-window.html
+
 **Salvage Company Hoping to Sell Titanic Artifacts Challenges Court’s Role**\
 `A Virginia federal court has awarded the company the rights to collect, but not sell, items from the shipwreck. But the company says its earliest retrievals are governed by a French court.`\
 https://www.nytimes.com/2026/08/13/arts/design/salvage-company-hoping-to-sell-titanic-artifacts-challenges-courts-role.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/08/13/business/flock-cameras-privacy-updates.html
 **Is Bernie Sanders Helping or Hurting the Democrats?**\
 `Readers disagree about the Vermont independent’s effect on the Democratic Party. Also: Vice President JD Vance’s crude behavior; a dangerous tool for ICE.`\
 https://www.nytimes.com/2026/08/13/opinion/bernie-sanders-democrats.html
-
-**Train Derails Near Town of Lewes in East Sussex, U.K.**\
-`Emergency services said they were working at the scene of a derailment near Lewes, in East Sussex, on Thursday. Eighteen other people were less badly hurt.`\
-https://www.nytimes.com/2026/08/13/world/europe/train-derails-southern-england.html
-
-**Topos Azteca, a Mexican Volunteer Rescue Group, Helps With Rescue Efforts After Colombia Earthquake**\
-`Topos Azteca, a Mexican volunteer rescue group that works worldwide and helped after the Sept. 11 attacks, arrived in Colombia after searching for survivors in Venezuela.`\
-https://www.nytimes.com/2026/08/13/world/americas/topos-azteca-rescue-efforts-colombia-earthquake.html
 

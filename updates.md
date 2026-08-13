@@ -1,3 +1,11 @@
+**Deaths of 3 ICE Detainees Prompt Questions About Medical Care**\
+`Immigrants at Delaney Hall in Newark have complained about health services. Federal officials defended the treatment provided there and elsewhere.`\
+https://www.nytimes.com/2026/08/13/nyregion/delaney-hall-detainee-health-ice.html
+
+**Engine Blade Hit Window on Jet When Man Was Partly Sucked Outside, Report Says**\
+`The National Transportation Safety Board said it had found a bird’s remains and feathers on a broken engine.`\
+https://www.nytimes.com/2026/08/13/world/europe/ryanair-flight-passenger-window.html
+
 **Salvage Company Hoping to Sell Titanic Artifacts Challenges Court’s Role**\
 `A Virginia federal court has awarded the company the rights to collect, but not sell, items from the shipwreck. But the company says its earliest retrievals are governed by a French court.`\
 https://www.nytimes.com/2026/08/13/arts/design/salvage-company-hoping-to-sell-titanic-artifacts-challenges-courts-role.html
