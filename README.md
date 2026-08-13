@@ -1,3 +1,119 @@
+**The Nantucket Lightship Basket Is Having a Very Good Summer**\
+`Long waits, eye-popping prices and master craftsmanship. It’s never been a better time to be a Nantucket friendship basket.`\
+https://www.nytimes.com/2026/08/13/style/nantucket-lightship-friendship-basket.html
+
+**41 of the Greatest Mexican Restaurants In the United States**\
+`Our favorite choices for seafood from Sonora, carnitas from Michoacán, chalupas from Pueblo and so much more.`\
+https://www.nytimes.com/2026/08/13/dining/best-mexican-restaurants-united-states.html
+
+**Problem Drinking in the U.S. Is on the Decline**\
+`The number of Americans who met criteria for alcohol use disorder decreased by several million over five years, a survey found.`\
+https://www.nytimes.com/2026/08/13/well/problem-drinking-national-survey.html
+
+**How to Catch the ‘Eclipse of the Century’ in 2027, When Spain, Egypt and More Go Dark**\
+`On Aug. 2, Southern Europe, North Africa and the Middle East will witness a solar blockbuster with extra-long totality. If you want to see it, book soon.`\
+https://www.nytimes.com/2026/08/13/travel/solar-eclipse-2027-morocco-egypt.html
+
+**These New Yorkers Are Updating the ‘NYCHA Look’ With Renter-Friendly DIY Projects**\
+`Equipped with paint and peel-and-stick tile, D.I.Y. enthusiasts are showing other public housing residents how to beautify their spaces.`\
+https://www.nytimes.com/2026/08/13/realestate/new-york-nycha-apartment-upgrades.html
+
+**‘Nimrods’ Review: American Idiots**\
+`A band of misfit teens aspires to make their musical dreams come true in this Green Day-produced rock comedy.`\
+https://www.nytimes.com/2026/08/13/movies/nimrods-review.html
+
+**‘Union County’ Review: High Stakes, Understated Portrayals**\
+`Will Poulter and Noah Centineo play troubled siblings in this simple, downbeat story set amid the opioid epidemic in rural Ohio.`\
+https://www.nytimes.com/2026/08/13/movies/union-county-review.html
+
+**‘The Rivals of Amziah King’ Review: The Banjos and the Bees**\
+`Matthew McConaughey is put to his best use in years in this somewhat messy, but often rollicking film about a beekeeper and the foster child who reappears in his life.`\
+https://www.nytimes.com/2026/08/13/movies/the-rivals-of-amziah-king-review.html
+
+**My Son’s Racist Views Are Destroying Our Family**\
+`Our Ask the Therapist columnist, Lori Gottlieb, advises a reader who wants to maintain a relationship with her son while protecting her daughter from his hurtful behavior.`\
+https://www.nytimes.com/2026/08/13/well/mind/racism-family-relationship-therapist.html
+
+**‘The Brink of War’ Review: When the U.S. and U.S.S.R. Came Together**\
+`Written and directed by Michael Russell Gunn and produced by Angel Studios, the film chronicles the frustrating 1986 summit between Reagan and Gorbachev.`\
+https://www.nytimes.com/2026/08/13/movies/the-brink-of-war-review.html
+
+**‘American Doctor’ Review: Going to Gaza to Help, in Any Way They Can**\
+`This documentary by Poh Si Teng focuses on a planned medical trip to Khan Younis, in the southern Gaza Strip, by physicians from the United States.`\
+https://www.nytimes.com/2026/08/13/movies/american-doctor-review.html
+
+**L’Rain Asks if ‘Experimental’ Music Can Be Far-Reaching**\
+`Her latest LP, “Fata Morgana,” explores whether limits to her genre-spanning work are real or perceived.`\
+https://www.nytimes.com/2026/08/13/arts/music/lrain-asks-if-experimental-music-can-be-far-reaching.html
+
+**A Patient’s Final Breath in a Congolese Ebola Ward**\
+`The distance between life and death is razor thin at one medical clinic in Rwampara, the heart of the epidemic ravaging the Democratic Republic of Congo.`\
+https://www.nytimes.com/2026/08/13/world/africa/ebola-congo-patient-dies.html
+
+**‘Fast’ Review: She’s Got Good Traction**\
+`Rob Tregenza’s latest film follows a young woman in Virginia who wants to be a professional racecar driver.`\
+https://www.nytimes.com/2026/08/13/movies/fast-review-shes-got-good-traction.html
+
+**A Print Maestro With a Birdwatcher’s Eye and a Socialist Soul**\
+`At the Whitney, Mabel Dwight’s caricatures from the 1930s, some gentle and some acidic, show her mastery of lithography and the democratic gesture.`\
+https://www.nytimes.com/2026/08/13/arts/design/mabel-dwight-prints-whitney-museum-art.html
+
+**In Wyoming, a Primary Fight Between the Right and the Far Right**\
+`One of the most conservative states has a legislature divided between a hard-right House and a merely right Senate. Ultraconservatives want a complete takeover in the Aug. 18 primaries.`\
+https://www.nytimes.com/2026/08/13/us/elections/wyoming-legislature-freedom-caucus.html
+
+**‘Don’t Say Good Luck’ Review: A Bittersweet Big Break**\
+`Sunny Sandler and Melanie Lynskey capture hope and heartache in this melodrama about a daughter’s open door and a mother’s awful diagnosis.`\
+https://www.nytimes.com/2026/08/13/movies/dont-say-good-luck-review.html
+
+**An Architect Who Built Where No One Else Dared**\
+`On a hillside outside Birmingham, Ala., Jeffrey Dungan saw a chance to create his dream house, which effectively cascades down the incline.`\
+https://www.nytimes.com/2026/08/13/t-magazine/jeffrey-dungan-birmingham-house.html
+
+**5 Artists Share What Makes Them Optimistic About the Art World**\
+`At a time when news can be dispiriting, we ask five creative people about what makes them optimistic — still — about their field.`\
+https://www.nytimes.com/2026/08/13/t-magazine/art-news-positive-optimism.html
+
+**Doral, Fla.: From Marshland to Booming Miami Suburb**\
+`The city’s population has been rapidly growing, and they’re not just coming for the golf.`\
+https://www.nytimes.com/2026/08/13/realestate/doral-florida-real-estate-guide.html
+
+**Word of the Day: isthmus**\
+`This word has appeared in 14 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/08/13/learning/word-of-the-day-isthmus.html
+
+**Come for the Cottage in ‘Heated Rivalry.’ Stay for Everything Else.**\
+`The chance to see the hideaway from the hit queer hockey romance lured me to Canada’s cottage country. But it was the glistening lakes and weep-worthy sunsets that won me over.`\
+https://www.nytimes.com/2026/08/13/travel/heated-rivalry-cottage-muskoka.html
+
+**Which U.S. Cities Are People Moving To?**\
+`Military bases, colleges, and local economies are among the factors driving domestic migration.`\
+https://www.nytimes.com/2026/08/13/realestate/which-us-cities-are-people-moving-to.html
+
+**‘The End of Oak Street’ Review: Cul-de-Sac Dino Attack**\
+`Dinosaurs wreak satisfying havoc in 1980s suburbia while the movie slyly undermines its formula.`\
+https://www.nytimes.com/2026/08/13/movies/the-end-of-oak-street-review.html
+
+**For Many, Eating Hot Soup in the Summer Is a Classic Way to Cool Down**\
+`Millions of people across the world’s hottest places have long known the best way to cool down in the summer is to eat hotter.`\
+https://www.nytimes.com/2026/08/13/dining/hot-soup-summer.html
+
+**Diya Joukani, India’s ‘It’ Girl, Really Is That Cool**\
+`Diya Joukani’s popular videos on social media documenting her daily life in Mumbai have earned her a reputation as “the cool girl from India.” She has parlayed it into her brand.`\
+https://www.nytimes.com/2026/08/13/style/diya-joukani-india-influencer.html
+
+**So You Want to Build an A.I. Star?**\
+`Designers at a new crop of creative studios create fake personas they hope real people will love. Are they distorting culture or mirroring it?`\
+https://www.nytimes.com/2026/08/13/arts/ai-podcasts-fashion-pop-avatars.html
+
+**La DoubleJ, a Store by Fashion’s Woo-Woo Queen, Comes to the Upper East Side**\
+`J.J. Martin believes shopping should make you feel good.`\
+https://www.nytimes.com/2026/08/13/style/jj-martin-la-double-j-spirituality-shopping.html
+
+**Madden Is Designed to Feel Real. So Where Are the Concussions?**\
+`After head injuries were removed from the popular N.F.L. games, a nonprofit group found a visceral way to incorporate them.`\
+https://www.nytimes.com/2026/08/13/arts/madden-27-nfl-concussions.html
+
 **As Comedians Toy With A.I., Who Will Get the Last Laugh?**\
 `Several acts at the Edinburgh Fringe are testing the boundaries of creativity using artificial intelligence.`\
 https://www.nytimes.com/2026/08/13/arts/edinburgh-fringe-ai-comedy.html
@@ -77,118 +193,6 @@ https://www.nytimes.com/2026/08/13/pageoneplus/quote-of-the-day-join-a-game-and-
 **What to Know About Today’s U.K. Special Election: Farage vs. Binface**\
 `Nigel Farage, the right-wing populist leader, forced a by-election in his parliamentary seat of Clacton after he came under pressure over his financial declarations.`\
 https://www.nytimes.com/2026/08/13/world/europe/farage-binface-uk-byelection-clacton.html
-
-**Russian Blockade of Major Ukrainian Ports Threatens Global Grain Supplies**\
-`The deadly strikes are part of a long-running maritime battle with Ukraine and echo battles over other key shipping routes around the world.`\
-https://www.nytimes.com/2026/08/13/world/europe/russia-ukraine-ports-odesa-cargo-ship-attacks.html
-
-**‘An English Summer Is Not the Same Anymore’**\
-`With forecasters issuing a warning for very high temperatures, this summer is on track to be one of the hottest yet.`\
-https://www.nytimes.com/2026/08/13/world/europe/britain-heat-records.html
-
-**NYT Crossword Answers for Aug. 13, 2026**\
-`Killian Olson helps us find a perfect fit.`\
-https://www.nytimes.com/2026/08/12/crosswords/daily-puzzle-2026-08-13.html
-
-**El secretario de Defensa de EE. UU. dice que la coalición anticárteles hará ‘cosas malas a la gente mala’**\
-`Pete Hegseth dijo que el objetivo es “degradar, desmantelar y destruir las redes narcoterroristas” y pidió a los países de Latinoamérica que intensifiquen su lucha.`\
-https://www.nytimes.com/es/2026/08/12/espanol/estados-unidos/pete-hegseth-coalicion-carteles.html
-
-**Federal Hate Crime Charge Filed in Stabbing of Muslim Man in Utah**\
-`The attack left the victim with at least a dozen wounds as several bystanders rushed to intervene.`\
-https://www.nytimes.com/2026/08/12/us/utah-stabbing-hate-crime-muslim.html
-
-**😭 or 😂: Do Your Emojis Make You Look Old?**\
-`When it comes to emoji usage, we’re all just following teen girls.`\
-https://www.nytimes.com/interactive/2026/08/12/upshot/emoji-generations.html
-
-**Hong’s Defeat in Wisconsin Sparks New Disagreements Within Democratic Party**\
-`Some Democrats said the outcome showed that the moderate wing of the party carried more electoral weight, while Ms. Hong’s strong showing gave some progressives hope.`\
-https://www.nytimes.com/2026/08/12/us/politics/democratic-socialists-future-hong.html
-
-**A Third Immigrant Detained at Delaney Hall Dies After Medical Emergency**\
-`A Guatemalan migrant was transferred to a hospital when he experienced what appeared to be a seizure, federal officials said.`\
-https://www.nytimes.com/2026/08/12/nyregion/delaney-hall-immigrant-death.html
-
-**A Fight Over Abortion and Surrogacy Ends With a Baby Born in Texas**\
-`The baby, who was born Wednesday with a severe heart defect, drew the attention of anti-abortion activists and the Texas attorney general after the intended parents wanted the surrogate mother to have an abortion.`\
-https://www.nytimes.com/2026/08/12/us/texas-surrogate-baby-abortion-dispute.html
-
-**ICE Agent Who Pushed Activist to the Ground Near Chicago Pleads Guilty**\
-`The agent, Adam Saracco, was charged with misdemeanor after the altercation at a gas station near Chicago last year during the Trump administration’s crackdown there.`\
-https://www.nytimes.com/2026/08/12/us/politics/ice-chicago-agent-guilty.html
-
-**First Total Eclipse in Decades Sweeps Across Europe**\
-`A total solar eclipse, the first in decades in Europe, swept across the continent on Wednesday.`\
-https://www.nytimes.com/video/science/space/100000011088337/europe-total-solar-eclipse.html
-
-**Who Is Joshua Kushner, the New Lakers Co-Owner?**\
-`The brother of Jared Kushner is an influential venture capitalist with big bets on A.I. and health insurance.`\
-https://www.nytimes.com/2026/08/12/business/joshua-kushner-lakers.html
-
-**Arabian Sea Bird and Turtle Habitat Threatened by Oil From Grounded Tanker**\
-`The spill of Russian crude bound for India compounds the environmental damage from spills in and around the Strait of Hormuz, where tankers and oil facilities have come under attack.`\
-https://www.nytimes.com/2026/08/12/world/middleeast/oil-spill-oman.html
-
-**Hegseth Says Anti-Cartel Coalition Will Do ‘Bad Things to Bad People’**\
-`Defense Secretary Pete Hegseth urged Latin American military leaders gathered in Panama to ramp up their efforts alongside U.S. forces.`\
-https://www.nytimes.com/2026/08/12/us/hegseth-trump-anti-cartel-coalition.html
-
-**Lemon Ricotta Cake**\
-`This easy lemony cake is topped with apricot preserves, which gives an especially sunny presentation. It’s great with sliced fresh peaches, nectarines or berries alongside.`\
-https://www.nytimes.com/video/dining/100000011089468/lemon-ricotta-cake.html
-
-**Zhu Rongji, Former Premier Who Transformed China Into a Market Economy, Dies at 97**\
-`Zhu Rongji, the former Chinese premier, died in Beijing on Wednesday at the age of 97. He helped guide China toward a market-based economy in the 1990s and later into the World Trade Organization that skyrocketed the country’s exports.`\
-https://www.nytimes.com/video/world/asia/100000011088702/zhu-rongji-china-premier-dead.html
-
-**Muere pionera en la investigación del cáncer de garganta**\
-`Su estatura frustró su interés en el ballet, pero la ciencia ganó a una destacada investigadora que descubrió un vínculo clave entre el VPH y el cáncer de cuello y garganta.`\
-https://www.nytimes.com/es/2026/08/12/espanol/pionera-investigacion-cancer-garganta-muere.html
-
-**Settler Siege of Palestinian Homes Highlights Growing West Bank Chaos**\
-`Two families have been trapped by settlers for days, casting a spotlight on the army’s struggle to curtail settler violence and protect Palestinians living in the occupied West Bank.`\
-https://www.nytimes.com/2026/08/12/world/middleeast/west-bank-palestinians-israeli-settlers.html
-
-**Este año, El Niño es enorme y ya está cambiando el mundo**\
-`Se prevé que este fenómeno climático recurrente alcance su punto máximo a finales de 2026, pero ya está provocando periodos de sequía y pérdidas de cultivos en tres continentes.`\
-https://www.nytimes.com/es/2026/08/12/espanol/tiempo-y-clima/el-nino-mundo.html
-
-**Total Eclipse Blacks Out European Sun**\
-`Plus, takeaways from yesterday’s primary elections. Here’s the latest at the end of Wednesday.`\
-https://www.nytimes.com/2026/08/12/briefing/eclipse-primaries-ice.html
-
-**Woman Arrested After Confessing to Starting Nevada Fire, Officials Say**\
-`The woman was arrested on suspicion of arson and possession of a controlled substance. Officials said she set multiple fires that later became part of the Bug fire, which has burned over 70,000 acres.`\
-https://www.nytimes.com/2026/08/12/us/fred-mountain-fire-arson-arrest.html
-
-**Karoline Leavitt Steps Down as White House Press Secretary**\
-`President Trump announced on Wednesday in a Truth Social post that Karoline Leavitt, his press secretary, would step down at the end of the month.`\
-https://www.nytimes.com/video/us/politics/100000011089013/karoline-leavitt-leaving-white-house.html
-
-**South Carolina Senate Runoff Kicks Off With Chick-fil-A and Trump Calls**\
-`Darline Graham and Ralph Norman emerged from a special election sprint on Tuesday to succeed Lindsey Graham. She will sell her closeness to President Trump. He will tout his conservatism.`\
-https://www.nytimes.com/2026/08/12/us/politics/south-carolina-republican-senate-primary-runoff.html
-
-**Mike Fincke, Astronaut Who Spent 549 Days in Space, Has Retired**\
-`A medical issue during Mr. Fincke’s fourth space journey resulted in an early medical evacuation, the first ever from the International Space Station.`\
-https://www.nytimes.com/2026/08/12/us/mike-fincke-retires-nasa-astronaut.html
-
-**‘I Thought I Was Going to Die’: YouTuber Livestreams as Earthquake Hits Colombia**\
-`A social media influencer was on livestream when a 7.4-magnitude earthquake hit Colombia on Monday. José Gallego was in an airport in Pereira when the quake hit, leading him to duck for cover.`\
-https://www.nytimes.com/video/world/americas/100000011085122/colombia-earthquake-live-stream.html
-
-**For Trump, Secret Flight Was a Stunning Ruse. For Putin, ‘a Regular Tuesday.’**\
-`President Trump’s Air Force One subterfuge pales in comparison to the secrecy surrounding Russia’s president, whose fixation on security has reached new heights in recent years.`\
-https://www.nytimes.com/2026/08/12/world/europe/trump-flight-putin-security.html
-
-**Johanna Fernández, Historian of the Young Lords, Dies at 55**\
-`She wrote an award-winning book about the leftist collective, a Latino counterpart to the Black Panthers.`\
-https://www.nytimes.com/2026/08/12/us/johanna-fernandez-dead.html
-
-**Israeli Settlers Are Out of Control**\
-`If Netanyahu is ousted in October’s balloting, don’t expect peace to break out, but the worst violence might be reined in.`\
-https://www.nytimes.com/2026/08/12/opinion/israeli-settlers-palestinians-west-bank.html
 
 **First Total Eclipse in Europe in Decades Turns Day to Night**\
 `From Iceland to Spain, people flocked to viewing spots to see the moon completely block out the sun.`\

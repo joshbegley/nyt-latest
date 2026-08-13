@@ -1,3 +1,7 @@
+**As Comedians Toy With A.I., Who Will Get the Last Laugh?**\
+`Several acts at the Edinburgh Fringe are testing the boundaries of creativity using artificial intelligence.`\
+https://www.nytimes.com/2026/08/13/arts/edinburgh-fringe-ai-comedy.html
+
 **Nigel Farage Quit to Force a New Election. Now, He Faces Count Binface.**\
 `Nigel Farage, the leader of Reform U.K., will face Count Binface, a novelty candidate, in Thursday’s special election that he forced after coming under pressure over his finances.`\
 https://www.nytimes.com/video/world/europe/100000011089783/britain-special-election-farage-binface.html
