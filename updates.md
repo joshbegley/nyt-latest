@@ -1,3 +1,11 @@
+**La crisis migratoria entre España y Marruecos fue avivada por las redes sociales**\
+`Según los expertos, una cascada de desinformación contribuyó directamente a la llegada de migrantes en el enclave español, que resultó en unas 90 muertes.`\
+https://www.nytimes.com/es/2026/08/13/espanol/negocios/espana-migrantes-marruecos-redes-sociales.html
+
+**We’re at a Tipping Point on A.I.**\
+`If there was ever a time to consider halting development of A.I., it’s now.`\
+https://www.nytimes.com/2026/08/13/opinion/ai-danger-openai-anthropic-models.html
+
 **The Man on a Mission to Build India’s Most Livable City**\
 `The chief minister of Andhra Pradesh has 25,000 workers building his dream capital with waterways, bike lanes and a “Quantum Valley” tech hub.`\
 https://www.nytimes.com/2026/08/13/world/asia/india-amravati-livable-city-andhra-pradesh.html

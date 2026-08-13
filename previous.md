@@ -1,3 +1,11 @@
+**La crisis migratoria entre España y Marruecos fue avivada por las redes sociales**\
+`Según los expertos, una cascada de desinformación contribuyó directamente a la llegada de migrantes en el enclave español, que resultó en unas 90 muertes.`\
+https://www.nytimes.com/es/2026/08/13/espanol/negocios/espana-migrantes-marruecos-redes-sociales.html
+
+**We’re at a Tipping Point on A.I.**\
+`If there was ever a time to consider halting development of A.I., it’s now.`\
+https://www.nytimes.com/2026/08/13/opinion/ai-danger-openai-anthropic-models.html
+
 **The Man on a Mission to Build India’s Most Livable City**\
 `The chief minister of Andhra Pradesh has 25,000 workers building his dream capital with waterways, bike lanes and a “Quantum Valley” tech hub.`\
 https://www.nytimes.com/2026/08/13/world/asia/india-amravati-livable-city-andhra-pradesh.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/08/12/world/americas/colombia-earthquake-rescue.htm
 **3 Ex-Georgia Deputies Used Flock Cameras to Stalk People, Sheriff Says**\
 `The former Bibb County deputies were arrested this week amid a growing national debate over Flock cameras, which can be found on roads in every state but Alaska.`\
 https://www.nytimes.com/2026/08/12/us/georgia-sheriffs-flock-cameras-stalking.html
-
-**AOC Said ‘Woke 1.0 Was Crazy.’ But What Is It?**\
-`In a recent interview, Representative Alexandria Ocasio-Cortez distanced herself from the 2020 era of progressivism.`\
-https://www.nytimes.com/2026/08/12/style/woke-1-aoc-dsa.html
-
-**Which Trump Officials Joined Him on His Secret Flight Out of Turkey?**\
-`The White House aides Natalie Harp and Dan Scavino were among those traveling with the president on a military jet.`\
-https://www.nytimes.com/2026/08/12/us/politics/trump-air-force-one-secret-flight-passengers.html
 
 **Por primera vez en décadas, el día se hace noche en Europa bajo un eclipse solar total**\
 `De Islandia a España, los observadores acudieron a los lugares donde, por corto tiempo, la Luna bloqueó completamente al Sol.`\
