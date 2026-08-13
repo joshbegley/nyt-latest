@@ -1,3 +1,7 @@
+****\
+`A train derailed in East Sussex, England, on Thursday, seriously injuring two people.`\
+https://www.nytimes.com/video/embedded/world/europe/100000011090907/13vid-uk-train-derailment.html
+
 **John Crowley, Whose Fantasy Novels Blurred Reality and Dream, Dies at 83**\
 `The eminent critic Harold Bloom called his 1981 book ‘Little, Big’ a ‘neglected masterpiece’ and one of the best novels of the 20th century.`\
 https://www.nytimes.com/2026/08/13/books/john-crowley-dead.html
