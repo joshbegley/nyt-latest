@@ -1,3 +1,7 @@
+**Carlos Garcia, Activist Who Helped Revive the Lower East Side, Dies at 80**\
+`He led a Puerto Rican group known as Charas in turning a crumbling public school into a community center, rehabilitating a desolate slice of New York.`\
+https://www.nytimes.com/2026/08/13/nyregion/carlos-chino-garcia-dead.html
+
 **Train Derails Near Town of Lewes in East Sussex, U.K.**\
 `Emergency services said they were working at the scene of a derailment near Lewes, in East Sussex, on Thursday. Eighteen other people were less badly hurt.`\
 https://www.nytimes.com/2026/08/13/world/europe/train-derails-southern-england.html
