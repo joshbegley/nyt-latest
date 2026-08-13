@@ -1,3 +1,11 @@
+**Readers Choose the Best Thrillers and Mysteries of the Century**\
+`The backbone of the list: nine novels by Tana French, and five novels each from John le Carré, Kate Atkinson and Mick Herron.`\
+https://www.nytimes.com/2026/08/13/books/readers-list-100-best-thrillers-century.html
+
+**Great Movie and TV Adaptations From 21st- Century Thrillers**\
+`From “Slow Horses” to “Big Little Lies,” our list of great psychological thrillers, spy novels and crime fiction have inspired a heap of great adaptations.`\
+https://www.nytimes.com/2026/08/13/books/best-21st-century-thrillers-movie-tv-adaptations.html
+
 **Three Street Carts Where You Can Dine Curbside**\
 `For every brick-and-mortar restaurant, New York City has just as many street carts. These three carts are dining room worthy.`\
 https://www.nytimes.com/2026/08/13/dining/street-carts.html

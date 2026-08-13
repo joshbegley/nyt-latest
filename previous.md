@@ -1,3 +1,11 @@
+**Readers Choose the Best Thrillers and Mysteries of the Century**\
+`The backbone of the list: nine novels by Tana French, and five novels each from John le Carré, Kate Atkinson and Mick Herron.`\
+https://www.nytimes.com/2026/08/13/books/readers-list-100-best-thrillers-century.html
+
+**Great Movie and TV Adaptations From 21st- Century Thrillers**\
+`From “Slow Horses” to “Big Little Lies,” our list of great psychological thrillers, spy novels and crime fiction have inspired a heap of great adaptations.`\
+https://www.nytimes.com/2026/08/13/books/best-21st-century-thrillers-movie-tv-adaptations.html
+
 **Three Street Carts Where You Can Dine Curbside**\
 `For every brick-and-mortar restaurant, New York City has just as many street carts. These three carts are dining room worthy.`\
 https://www.nytimes.com/2026/08/13/dining/street-carts.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/video/world/middleeast/100000011090034/israeli-settlers-
 **A City Mobilizes Against a Stubborn Health Threat: Mosquitoes**\
 `The city of Belém in northern Brazil was overwhelmed by an outbreak of dengue two years ago. An all-out municipal effort has reduced cases and may offer lessons to American cities.`\
 https://www.nytimes.com/2026/08/13/health/mosquitoes-brazil-health-threat.html
-
-**How Supreme Court Oral Arguments Have Transformed Since Covid-Era Precautions**\
-`Live audio, a new format and new voices have transformed and unsettled the court’s signature public ceremony.`\
-https://www.nytimes.com/2026/08/13/us/politics/supreme-court-changing-oral-arguments.html
-
-**How a Long-Shot U.S. Oil Drilling Project Is Shaking Up Greenland**\
-`A U.S. oil company says it could be on the verge of a major discovery in Greenland. The proposal comes at a tricky time for the Arctic island, and locals are lining up against it.`\
-https://www.nytimes.com/2026/08/13/world/europe/greenland-oil-project-us-dr-phil.html
 
