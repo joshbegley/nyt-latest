@@ -1,3 +1,11 @@
+**Federal Hate Crime Charge Filed in Stabbing of Muslim Man in Utah**\
+`The attack left the victim with at least a dozen wounds as several bystanders rushed to intervene.`\
+https://www.nytimes.com/2026/08/12/us/utah-stabbing-hate-crime-muslim.html
+
+**Settler Siege of Palestinian Homes Highlights Growing West Bank Chaos**\
+`Two families have been trapped by settlers for days, casting a spotlight on the army’s struggle to curtail settler violence and protect Palestinians living in the occupied West Bank.`\
+https://www.nytimes.com/2026/08/12/world/middleeast/west-bank-palestinians-israeli-settlers.html
+
 **😭 or 😂: Do Your Emojis Make You Look Old?**\
 `When it comes to emoji usage, we’re all just following teen girls.`\
 https://www.nytimes.com/interactive/2026/08/12/upshot/emoji-generations.html
