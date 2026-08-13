@@ -1,3 +1,7 @@
+**Putin Visited Islands Taken From Japan in World War II, Angering Tokyo**\
+`President Vladimir Putin of Russia visited the Kuril Islands on Thursday for the first time since they were seized from Japan at the end of World War II.`\
+https://www.nytimes.com/video/world/asia/100000011090782/putin-japan-visit-wwii.html
+
 **Wagner Moura Puts Us on Trial in Edinburgh**\
 `Our chief theater critic, Helen Shaw, is in Scotland for the Edinburgh International Festival. For her, Christiane Jatahy’s modern reimagining of Henrik Ibsen’s “Enemy of the People” was a difficult but valuable theater experience.`\
 https://www.nytimes.com/video/theater/100000011065965/wagner-moura-puts-us-on-trial-in-edinburgh.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/13/arts/design/kennedy-center-closure-board-vote
 **California May Let Residents Choose ‘Jewish’ as an Ethnic Identifier**\
 `A bill would allow Jews to identify themselves as an ethnic group on state forms. Supporters argue it’s a step toward acknowledging the complex nature of Jewish identity.`\
 https://www.nytimes.com/2026/08/13/us/california-jewish-ethnic-identity.html
-
-**Read the Ruling Dismissing an Antisemitism Lawsuit Against Harvard**\
-`The decision from a federal judge in Boston dealt a blow to the Trump administration’s efforts to force the university into a settlement.`\
-https://www.nytimes.com/interactive/2026/08/13/us/govuscourtsmad2978016501.html
 

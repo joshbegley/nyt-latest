@@ -1,3 +1,7 @@
+**Putin Visited Islands Taken From Japan in World War II, Angering Tokyo**\
+`President Vladimir Putin of Russia visited the Kuril Islands on Thursday for the first time since they were seized from Japan at the end of World War II.`\
+https://www.nytimes.com/video/world/asia/100000011090782/putin-japan-visit-wwii.html
+
 **Wagner Moura Puts Us on Trial in Edinburgh**\
 `Our chief theater critic, Helen Shaw, is in Scotland for the Edinburgh International Festival. For her, Christiane Jatahy’s modern reimagining of Henrik Ibsen’s “Enemy of the People” was a difficult but valuable theater experience.`\
 https://www.nytimes.com/video/theater/100000011065965/wagner-moura-puts-us-on-trial-in-edinburgh.html
