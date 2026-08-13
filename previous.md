@@ -1,3 +1,7 @@
+**Inside the $12.5 Billion Deal for the Lakers**\
+`The transaction, hashed out last weekend, reflects the huge profit potential of major sports franchises.`\
+https://www.nytimes.com/2026/08/13/business/dealbook/lakers-deal-kushner-iger-walter.html
+
 **How Thanksgiving Became Political: Francesca Hong’s Tweets Explained**\
 `Ahead of Wisconsin’s Democratic primary for governor, a past tweet by the assemblywoman that called for the holiday to be canceled was resurfaced.`\
 https://www.nytimes.com/2026/08/13/style/thanksgiving-francesca-hong-wisconsin.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/13/world/africa/ebola-congo-patient-dies.html
 **‘Fast’ Review: She’s Got Good Traction**\
 `Rob Tregenza’s latest film follows a young woman in Virginia who wants to be a professional racecar driver.`\
 https://www.nytimes.com/2026/08/13/movies/fast-review-shes-got-good-traction.html
-
-**A Print Maestro With a Birdwatcher’s Eye and a Socialist Soul**\
-`At the Whitney, Mabel Dwight’s caricatures from the 1930s, some gentle and some acidic, show her mastery of lithography and the democratic gesture.`\
-https://www.nytimes.com/2026/08/13/arts/design/mabel-dwight-prints-whitney-museum-art.html
 

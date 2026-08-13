@@ -1,3 +1,7 @@
+**Inside the $12.5 Billion Deal for the Lakers**\
+`The transaction, hashed out last weekend, reflects the huge profit potential of major sports franchises.`\
+https://www.nytimes.com/2026/08/13/business/dealbook/lakers-deal-kushner-iger-walter.html
+
 **How Thanksgiving Became Political: Francesca Hong’s Tweets Explained**\
 `Ahead of Wisconsin’s Democratic primary for governor, a past tweet by the assemblywoman that called for the holiday to be canceled was resurfaced.`\
 https://www.nytimes.com/2026/08/13/style/thanksgiving-francesca-hong-wisconsin.html
