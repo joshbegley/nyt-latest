@@ -1,3 +1,15 @@
+**Flock Announces Privacy Updates to Its Car-Tracking Cameras**\
+`Critics say the measures are “public relations” and leave room for continued misuse.`\
+https://www.nytimes.com/2026/08/13/business/flock-cameras-privacy-updates.html
+
+**Is Bernie Sanders Helping or Hurting the Democrats?**\
+`Readers disagree about the Vermont independent’s effect on the Democratic Party. Also: Vice President JD Vance’s crude behavior; a dangerous tool for ICE.`\
+https://www.nytimes.com/2026/08/13/opinion/bernie-sanders-democrats.html
+
+**Judge Dismisses Trump Administration’s Antisemitism Case Against Harvard**\
+`The government argued the university had not done enough to combat antisemitism during campus protests. A judge called the incidents “isolated and episodic.”`\
+https://www.nytimes.com/2026/08/13/us/harvard-antisemitism-case-dismissed.html
+
 **Train Derails in Southern England**\
 `Emergency services said they were working at the scene of a train derailment near Lewes, in East Sussex, on Thursday.`\
 https://www.nytimes.com/2026/08/13/world/europe/train-derails-southern-england.html
