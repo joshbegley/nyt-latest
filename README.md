@@ -1,3 +1,11 @@
+**Nigel Farage Quit to Force a New Election. Now, He Faces Count Binface.**\
+`Nigel Farage, the leader of Reform U.K., will face Count Binface, a novelty candidate, in Thursday’s special election that he forced after coming under pressure over his finances.`\
+https://www.nytimes.com/video/world/europe/100000011089783/britain-special-election-farage-binface.html
+
+**No voy a mentir sobre mi cuello**\
+`Como muchas mujeres jóvenes, alguna vez fui ferozmente crítica de la cirugía plástica. Ahora ya no estoy tan segura.`\
+https://www.nytimes.com/es/2026/08/13/espanol/opinion/cirugia-plastica-face-lift-feminismo.html
+
 **Outdoor Dining Is Expected to Resume Year-Round in New York City**\
 `The City Council is poised to approve a package of bills loosening some restrictions on roadway dining structures, which became ubiquitous during the pandemic.`\
 https://www.nytimes.com/2026/08/13/nyregion/outdoor-dining-is-expected-to-resume-year-round-in-new-york-city.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/08/12/opinion/israeli-settlers-palestinians-west-ba
 **Afghanistan’s Unhappy Anniversary**\
 `Five years into their hard-line rule, the Taliban find themselves in crisis at home and abroad.`\
 https://www.nytimes.com/2026/08/12/world/afghanistan-taliban-anniversary-eclipse-lakers.html
-
-**Ex-Official at Southern Poverty Law Center Accused of Plotting to Misuse Far-Right Informants**\
-`The charges signaled an escalation of the Justice Department’s prosecution of the Southern Poverty Law Center, which is best known for investigating white supremacist groups.`\
-https://www.nytimes.com/2026/08/12/us/politics/splc-fraud-conspiracy-charges.html
-
-**Treasury Scales Back Scrutiny of U.S. Shell Companies**\
-`The Trump administration will not enforce reporting requirements of the 2021 Corporate Transparency Act, which was intended to crack down on money laundering.`\
-https://www.nytimes.com/2026/08/12/us/politics/treasury-scrutiny-shell-companies.html
 
 **First Total Eclipse in Europe in Decades Turns Day to Night**\
 `From Iceland to Spain, people flocked to viewing spots to see the moon completely block out the sun.`\
