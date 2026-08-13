@@ -46,7 +46,7 @@ https://www.nytimes.com/video/world/asia/100000011088702/zhu-rongji-china-premie
 `Su estatura frustró su interés en el ballet, pero la ciencia ganó a una destacada investigadora que descubrió un vínculo clave entre el VPH y el cáncer de cuello y garganta.`\
 https://www.nytimes.com/es/2026/08/12/espanol/pionera-investigacion-cancer-garganta-muere.html
 
-**Palestinians Trapped by Settlers for Days as Israeli Army Shows Up, and Then Leaves**\
+**Settler Siege of Palestinian Homes Highlights Growing West Bank Chaos**\
 `Two families have been trapped by settlers for days, casting a spotlight on the army’s struggle to curtail settler violence and protect Palestinians living in the occupied West Bank.`\
 https://www.nytimes.com/2026/08/12/world/middleeast/west-bank-palestinians-israeli-settlers.html
 

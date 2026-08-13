@@ -1,3 +1,15 @@
+**😭 or 😂: Do Your Emojis Make You Look Old?**\
+`When it comes to emoji usage, we’re all just following teen girls.`\
+https://www.nytimes.com/interactive/2026/08/12/upshot/emoji-generations.html
+
+**Hong’s Defeat in Wisconsin Sparks New Disagreements Within Democratic Party**\
+`Some Democrats said the outcome showed that the moderate wing of the party carried more electoral weight, while Ms. Hong’s strong showing gave some progressives hope.`\
+https://www.nytimes.com/2026/08/12/us/politics/democratic-socialists-future-hong.html
+
+**A Third Immigrant Detained at Delaney Hall Dies After Medical Emergency**\
+`A Guatemalan migrant was transferred to a hospital when he experienced what appeared to be a seizure, federal officials said.`\
+https://www.nytimes.com/2026/08/12/nyregion/delaney-hall-immigrant-death.html
+
 **A Fight Over Abortion and Surrogacy Ends With a Baby Born in Texas**\
 `The baby, who was born Wednesday with a severe heart defect, drew the attention of anti-abortion activists and the Texas attorney general after the intended parents wanted the surrogate mother to have an abortion.`\
 https://www.nytimes.com/2026/08/12/us/texas-surrogate-baby-abortion-dispute.html
