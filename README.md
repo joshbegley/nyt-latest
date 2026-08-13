@@ -66,7 +66,7 @@ https://www.nytimes.com/2026/08/13/pageoneplus/quote-of-the-day-join-a-game-and-
 `The deadly strikes are part of a long-running maritime battle with Ukraine and echo battles over other key shipping routes around the world.`\
 https://www.nytimes.com/2026/08/13/world/europe/russia-ukraine-ports-odesa-cargo-ship-attacks.html
 
-**What to Know About Thursday’s Special Election in Clacton: Farage vs. Binface**\
+**What to Know About Today’s U.K. Special Election: Farage vs. Binface**\
 `Nigel Farage, the right-wing populist leader, forced a by-election in his parliamentary seat of Clacton after he came under pressure over his financial declarations.`\
 https://www.nytimes.com/2026/08/13/world/europe/farage-binface-uk-byelection-clacton.html
 
