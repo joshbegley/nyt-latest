@@ -1,3 +1,7 @@
+**Federal Hate Crime Charge Filed in Stabbing of Muslim Man in Utah**\
+`The attack left the victim with at least a dozen wounds as several bystanders rushed to intervene.`\
+https://www.nytimes.com/2026/08/12/us/utah-stabbing-hate-crime-muslim.html
+
 **😭 or 😂: Do Your Emojis Make You Look Old?**\
 `When it comes to emoji usage, we’re all just following teen girls.`\
 https://www.nytimes.com/interactive/2026/08/12/upshot/emoji-generations.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/08/12/world/europe/total-solar-eclipse-spain-1905-u
 **Hawaii Braces for a Potential Storm Named Lala**\
 `Forecasters are predicting a tropical storm, potentially a hurricane, may bring heavy rainfall and strong winds to the Big Island starting Friday.`\
 https://www.nytimes.com/2026/08/12/weather/hawaii-braces-for-a-possible-hurricane-named-lala.html
-
-**As Europe Faces Heat Waves and Wildfires, Travelers Are Forced to Adapt**\
-`Soaring temperatures, widespread wildfires and dried-up rivers are transforming tourism across the continent. Here’s how travelers are responding.`\
-https://www.nytimes.com/2026/08/12/travel/europe-travel-tourism-wildfires-heat-waves.html
 
 **Por primera vez en décadas, el día se hace noche en Europa bajo un eclipse solar total**\
 `De Islandia a España, los observadores acudieron a los lugares donde, por corto tiempo, la Luna bloqueó completamente al Sol.`\
