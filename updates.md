@@ -1,3 +1,7 @@
+**Late Night Ribs Trump for Leaving Staff Behind on Air Force One**\
+`Anthony Anderson, the guest host of “Jimmy Kimmel Live,” called the ruse in which President Trump exited the plane in a catering container “Operation Pig in a Blanket.”`\
+https://www.nytimes.com/2026/08/13/arts/television/late-night-trump-air-force-one-catering.html
+
 **Hallmark Channel cumple 25 años con películas donde el amor siempre triunfa**\
 `Cuando la vida parece difícil, la Navidad en julio puede ayudar.`\
 https://www.nytimes.com/es/2026/08/13/espanol/cultura/hallmark-peliculas.html
