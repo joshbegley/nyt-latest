@@ -1,3 +1,7 @@
+**In a Chinese Leader’s Death, Mourning for a More Hopeful Time**\
+`Tributes for former Premier Zhu Rongji reflect nostalgia for an era when China was opening to the world and the future seemed more prosperous and hopeful.`\
+https://www.nytimes.com/2026/08/13/business/zhu-rongji-death-mourning-china.html
+
 **Today, In Short**\
 `Soup. Eclipse photos. And love bombing.`\
 https://www.nytimes.com/2026/08/13/briefing/today-in-short.html
