@@ -1,3 +1,11 @@
+**Map: 3.9-Magnitude Earthquake Shakes the San Francisco Bay Area**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/08/13/us/quake-tracker-san-francisco-bay.html
+
+**How Supreme Court Oral Arguments Have Transformed Since Covid-Era Precautions**\
+`Live audio, a new format and new voices have transformed and unsettled the court’s signature public ceremony.`\
+https://www.nytimes.com/2026/08/13/us/politics/supreme-court-changing-oral-arguments.html
+
 **Map: 4.1-Magnitude Earthquake Shakes the San Francisco Bay Area**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/08/13/us/quake-tracker-san-francisco-bay.html

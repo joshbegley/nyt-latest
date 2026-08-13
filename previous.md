@@ -1,4 +1,4 @@
-**Map: 4.1-Magnitude Earthquake Shakes the San Francisco Bay Area**\
+**Map: 3.9-Magnitude Earthquake Shakes the San Francisco Bay Area**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/08/13/us/quake-tracker-san-francisco-bay.html
 
@@ -42,7 +42,7 @@ https://www.nytimes.com/video/world/middleeast/100000011090034/israeli-settlers-
 `The city of Belém in northern Brazil was overwhelmed by an outbreak of dengue two years ago. An all-out municipal effort has reduced cases and may offer lessons to American cities.`\
 https://www.nytimes.com/2026/08/13/health/mosquitoes-brazil-health-threat.html
 
-**How a Covid-Era Scramble Transformed Supreme Court Arguments**\
+**How Supreme Court Oral Arguments Have Transformed Since Covid-Era Precautions**\
 `Live audio, a new format and new voices have transformed and unsettled the court’s signature public ceremony.`\
 https://www.nytimes.com/2026/08/13/us/politics/supreme-court-changing-oral-arguments.html
 
