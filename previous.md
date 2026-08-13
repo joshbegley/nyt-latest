@@ -1,4 +1,12 @@
-**Map: 3.9-Magnitude Earthquake Shakes the San Francisco Bay Area**\
+**U.S. Investigated Left-Leaning Groups During Minnesota’s Immigration Crackdown**\
+`The government conducted expansive surveillance, infiltrated group chats and obtained financial records of organizations never accused of crimes.`\
+https://www.nytimes.com/2026/08/13/us/politics/dhs-inquiry-immigration-protests-minnesota.html
+
+**After Supreme Court Losses, Trump Keeps Pushing**\
+`Is the administration defying the court or pursuing lawful alternatives?`\
+https://www.nytimes.com/2026/08/13/us/politics/the-docket-supreme-court-trump-losses.html
+
+**Map: 3.8-Magnitude Earthquake Shakes the San Francisco Bay Area**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/08/13/us/quake-tracker-san-francisco-bay.html
 
@@ -174,8 +182,8 @@ https://www.nytimes.com/2026/08/13/business/taylor-farms-recalls-cyclospora-salm
 `Pangram excels at distinguishing chatbot-generated words from human writing. But it’s not reliable for spotting artificial images.`\
 https://www.nytimes.com/2026/08/13/technology/personaltech/pangram-ai-detector-test.html
 
-**Three States to Execute Inmates on the Same Day**\
-`One of the planned executions, in Tennessee, comes months after the state called off the execution of another inmate when medical staff could not find a vein for the lethal injection.`\
+**Oklahoma Becomes First of Three States to Execute Inmates on the Same Day**\
+`Executions were also scheduled in Alabama and Tennessee, which faces scrutiny over a failed execution last month.`\
 https://www.nytimes.com/2026/08/13/us/tennessee-alabama-oklahoma-executions.html
 
 **It Was a Great Scam While It Lasted**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/13/magazine/stacks-bodybuilding-computing.html
 **Inside the Democratic Socialists of America’s Audacious Quest for Power**\
 `Democratic Socialists are capturing more votes than ever before — even as they run up against the limits of their appeal.`\
 https://www.nytimes.com/2026/08/13/magazine/democratic-socialism-dsa-elections-primaries.html
-
-**Stagflation Has Returned. Kevin Warsh Must Defy Trump to Protect Our Economy.**\
-`The Northwestern professor Phillip Braun says the return of stagflation brings new urgency to the Fed chairman Kevin Warsh’s next moves.`\
-https://www.nytimes.com/2026/08/13/opinion/stagflation-warsh-trump-inflation-economy.html
-
-**Mamdani to Give Free Broadway Tickets to High Schoolers**\
-`The administration is announcing plans for a lottery to give away more than 2,000 tickets to seven shows, including “Two Strangers (Carry a Cake Across New York).”`\
-https://www.nytimes.com/2026/08/13/nyregion/mamdani-to-give-free-broadway-tickets-to-high-schoolers.html
 

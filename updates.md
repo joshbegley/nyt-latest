@@ -1,3 +1,19 @@
+**U.S. Investigated Left-Leaning Groups During Minnesota’s Immigration Crackdown**\
+`The government conducted expansive surveillance, infiltrated group chats and obtained financial records of organizations never accused of crimes.`\
+https://www.nytimes.com/2026/08/13/us/politics/dhs-inquiry-immigration-protests-minnesota.html
+
+**After Supreme Court Losses, Trump Keeps Pushing**\
+`Is the administration defying the court or pursuing lawful alternatives?`\
+https://www.nytimes.com/2026/08/13/us/politics/the-docket-supreme-court-trump-losses.html
+
+**Map: 3.8-Magnitude Earthquake Shakes the San Francisco Bay Area**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/08/13/us/quake-tracker-san-francisco-bay.html
+
+**Oklahoma Becomes First of Three States to Execute Inmates on the Same Day**\
+`Executions were also scheduled in Alabama and Tennessee, which faces scrutiny over a failed execution last month.`\
+https://www.nytimes.com/2026/08/13/us/tennessee-alabama-oklahoma-executions.html
+
 **Map: 3.9-Magnitude Earthquake Shakes the San Francisco Bay Area**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/08/13/us/quake-tracker-san-francisco-bay.html
