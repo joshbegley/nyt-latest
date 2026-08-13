@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Aug. 13, 2026**\
+`Killian Olson helps us find a perfect fit.`\
+https://www.nytimes.com/2026/08/12/crosswords/daily-puzzle-2026-08-13.html
+
 **El secretario de Defensa de EE. UU. dice que la coalición anticárteles hará ‘cosas malas a la gente mala’**\
 `Pete Hegseth dijo que el objetivo es “degradar, desmantelar y destruir las redes narcoterroristas” y pidió a los países de Latinoamérica que intensifiquen su lucha.`\
 https://www.nytimes.com/es/2026/08/12/espanol/estados-unidos/pete-hegseth-coalicion-carteles.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/08/12/briefing/12-the-good-list-meteor-shower-cat-g
 **Trump Wants the M.M.R. Vaccine Split Into Three Separate Shots. Doctors Say It’s a Bad Idea.**\
 `President Trump is calling for immunizations for measles, mumps and rubella to be given in individual jabs in three different appointments instead of the standard combination shot.`\
 https://www.nytimes.com/2026/08/12/health/mmr-vaccine-combination-separate.html
-
-**A Special U.S. Navy Squadron Photographed the Last Total Solar Eclipse in Spain in 1905**\
-`Three American warships were sent to Valencia to capture pictures of the sun’s corona with a high-definition camera that would cost over $34,000 in today’s money.`\
-https://www.nytimes.com/2026/08/12/world/europe/total-solar-eclipse-spain-1905-us-navy.html
 
 **Por primera vez en décadas, el día se hace noche en Europa bajo un eclipse solar total**\
 `De Islandia a España, los observadores acudieron a los lugares donde, por corto tiempo, la Luna bloqueó completamente al Sol.`\
