@@ -1,3 +1,27 @@
+**Kevin Rideout, American Missionary Kidnapped in Niger, Is Released**\
+`Kevin Rideout, a pilot, had been abducted from his home in the country’s capital, Niamey, last fall. His mission organization said he was in “good health” after his release.`\
+https://www.nytimes.com/2026/08/14/world/africa/american-missionary-niger-rideout-released.html
+
+**The Secret Spy Network Feeding Russia’s War Machine**\
+`Russian spies set up shop in Tokyo, using Japan as a base for routing critical electronic components back home to Russia — after being expelled by Western leaders from their capitals.`\
+https://www.nytimes.com/2026/08/14/podcasts/the-daily/japan-russia-spy-war.html
+
+**Concerns Grow Over Conditions on Aircraft Carrier, and Trump Pushes New Hacking Effort**\
+`Plus, your Friday news quiz.`\
+https://www.nytimes.com/2026/08/14/podcasts/the-headlines/aircraft-carrier-trump-hacking-effort.html
+
+**NYT Connections Answers for August 15, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Aug. 15, 2026.`\
+https://www.nytimes.com/2026/08/14/crosswords/connections-companion-1161.html
+
+**Today’s Wordle Hints for August 15, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Aug. 15, 2026.`\
+https://www.nytimes.com/2026/08/14/crosswords/wordle-review-1883.html
+
+**NYT Strands Hints for Aug. 15, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Aug. 15, 2026.`\
+https://www.nytimes.com/2026/08/14/crosswords/strands-sidekick-895.html
+
 **Record-Breaking Rainfall Leaves Eight Dead and Thousands Stranded in Japan**\
 `Three months’ worth of rain fell in just 12 hours in a region east of Tokyo, leading to deadly flooding.`\
 https://www.nytimes.com/2026/08/14/world/asia/chiba-tokyo-flood-rain-deaths.html
@@ -169,28 +193,4 @@ https://www.nytimes.com/2026/08/14/world/europe/russia-moldova-putin.html
 **We Critiqued the Woke Left. Now We’re Warning the Woke Right.**\
 `The right’s reluctance to gatekeep may be its undoing.`\
 https://www.nytimes.com/2026/08/14/opinion/republicans-woke-radical.html
-
-**Inside Rural Alaska’s Energy Crisis**\
-`Anna Griffin, our Pacific Northwest bureau chief, visits rural Alaska to look at the ways the Iran war worsened an energy crisis there.`\
-https://www.nytimes.com/video/us/100000011027537/alaska-energy-crisis.html
-
-**How Pennsylvania Got Hooked on Games That Look a Lot Like Slot Machines**\
-`A legal loophole kept “skill games” from being considered gambling. Now lawmakers are trying to save them from a court ruling.`\
-https://www.nytimes.com/2026/08/14/upshot/gambling-pennsylvania-slots-skill-games.html
-
-**Extreme Heat Is the New Normal**\
-`Firefighters in Phoenix race to save lives in a city that’s only getting hotter.`\
-https://www.nytimes.com/2026/08/14/opinion/extreme-heat-arizona-climate-change.html
-
-**The News Quiz, August 14, 2026**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://www.nytimes.com/quiz/2026/08/14/briefing/weekly-news-quiz.html
-
-**Can You Hoard a Food Item You Really Like?**\
-`A ruling on a grocery shopping debate.`\
-https://www.nytimes.com/quiz/2026/08/13/magazine/food-hoarding-hodgman-quiz
-
-**As Europe Gets Hotter, Its Transportation Systems Struggle to Cope**\
-`The continent’s railways and roads “were engineered for a climate that no longer exists,” one expert said.`\
-https://www.nytimes.com/2026/08/14/world/europe/heat-trains-transportation-roads.html
 

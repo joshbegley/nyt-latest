@@ -1,3 +1,27 @@
+**Kevin Rideout, American Missionary Kidnapped in Niger, Is Released**\
+`Kevin Rideout, a pilot, had been abducted from his home in the country’s capital, Niamey, last fall. His mission organization said he was in “good health” after his release.`\
+https://www.nytimes.com/2026/08/14/world/africa/american-missionary-niger-rideout-released.html
+
+**The Secret Spy Network Feeding Russia’s War Machine**\
+`Russian spies set up shop in Tokyo, using Japan as a base for routing critical electronic components back home to Russia — after being expelled by Western leaders from their capitals.`\
+https://www.nytimes.com/2026/08/14/podcasts/the-daily/japan-russia-spy-war.html
+
+**Concerns Grow Over Conditions on Aircraft Carrier, and Trump Pushes New Hacking Effort**\
+`Plus, your Friday news quiz.`\
+https://www.nytimes.com/2026/08/14/podcasts/the-headlines/aircraft-carrier-trump-hacking-effort.html
+
+**NYT Connections Answers for August 15, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Aug. 15, 2026.`\
+https://www.nytimes.com/2026/08/14/crosswords/connections-companion-1161.html
+
+**Today’s Wordle Hints for August 15, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Aug. 15, 2026.`\
+https://www.nytimes.com/2026/08/14/crosswords/wordle-review-1883.html
+
+**NYT Strands Hints for Aug. 15, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Aug. 15, 2026.`\
+https://www.nytimes.com/2026/08/14/crosswords/strands-sidekick-895.html
+
 **Record-Breaking Rainfall Leaves Eight Dead and Thousands Stranded in Japan**\
 `Three months’ worth of rain fell in just 12 hours in a region east of Tokyo, leading to deadly flooding.`\
 https://www.nytimes.com/2026/08/14/world/asia/chiba-tokyo-flood-rain-deaths.html
