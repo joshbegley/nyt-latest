@@ -1,3 +1,11 @@
+**Wildfires Burn Across Europe as the Continent Feels Fifth Heat Wave**\
+`Wildfires threatened homes and communities across several countries in Europe this week, as the continent endured its fifth summer heat wave.`\
+https://www.nytimes.com/video/world/europe/100000011092023/europe-heat-wave-wildfires.html
+
+**Live Updates: Mangione Admits Shooting Healthcare Executive as He Pleads Guilty in Federal Court**\
+`Luigi Mangione faces two charges in connection with the 2024 killing of the executive, Brian Thompson, on a Manhattan sidewalk. Mr. Thompson’s family is also in the courtroom.`\
+https://www.nytimes.com/live/2026/08/14/nyregion/luigi-mangione-plea-deal
+
 **Zambia Halts Presidential Election Vote Count Over Violence and Fraud Allegations**\
 `The electoral commission for the southern African nation said poll workers had been attacked and ballots had been stolen as both top candidates claimed leads.`\
 https://www.nytimes.com/2026/08/14/world/africa/zambia-election-vote-count-suspended-president.html
