@@ -1,3 +1,7 @@
+**😭 o 😂: ¿Tus emojis delatan tu edad?**\
+`Cuando se trata del uso de emojis, todos simplemente imitamos a las adolescentes.`\
+https://www.nytimes.com/es/interactive/2026/08/14/espanol/emojis-significado-edad.html
+
 **America Needs a Follow-the-Rules Foreign Policy**\
 `American foreign policy is at a crossroads. What’s next? The Times Opinion columnist Ezra Klein explores the case for abiding by the rules-based international order.`\
 https://www.nytimes.com/video/opinion/100000011089811/america-needs-a-follow-the-rules-foreign-policy.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/14/climate/mining-trump-utah-monuments.html
 **Wildfires Burn Across Europe as the Continent Feels Fifth Heat Wave**\
 `Wildfires threatened homes and communities across several countries in Europe this week, as the continent endured its fifth summer heat wave.`\
 https://www.nytimes.com/video/world/europe/100000011092023/europe-heat-wave-wildfires.html
-
-**Zambia Halts Presidential Election Vote Count Over Violence and Fraud Allegations**\
-`The electoral commission for the southern African nation said poll workers had been attacked and ballots had been stolen.`\
-https://www.nytimes.com/2026/08/14/world/africa/zambia-election-vote-count-suspended-president.html
 
