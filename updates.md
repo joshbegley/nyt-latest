@@ -1,3 +1,23 @@
+**Is It Safe to Eat Lettuce and Other Fresh Produce as Cyclospora Outbreak Wanes?**\
+`As the largest cyclospora outbreak in U.S. history wanes, experts weigh in on whether iceberg and other fresh produce are still a risk.`\
+https://www.nytimes.com/2026/08/14/well/eat/cyclospora-lettuce-jalapenos-produce-safe.html
+
+**‘I’m Not Ashamed of My Face-Lift’**\
+`The Opinion contributing writer Molly Jong-Fast is not about to feel bad about her face-lift.`\
+https://www.nytimes.com/video/opinion/100000011093183/im-not-ashamed-of-my-face-lift.html
+
+**Trump Dismisses Reports About Dire Conditions Aboard U.S.S. Abraham Lincoln**\
+`Asked whether the deployment of the Abraham Lincoln had gone on too long, the president said its deployment had lasted “not nearly long enough.”`\
+https://www.nytimes.com/2026/08/14/us/politics/trump-uss-abraham-lincoln.html
+
+**John Carro, Jurist Who Had Early Brush With Lee Harvey Oswald, Dies at 98**\
+`Decades before his rise to the New York State appellate court, he was a probation officer who tried to help Mr. Oswald, then a teenager living in the Bronx.`\
+https://www.nytimes.com/2026/08/14/us/politics/john-carro-dead.html
+
+**Lawsuit Accuses Selena Gomez of Defrauding Investors in Mental Health Site**\
+`The actor, singer and beauty mogul founded Wondermind, a mental health platform, with her mother. Investors put in more than $1 million in the venture, which “quietly collapsed,” the suit said.`\
+https://www.nytimes.com/2026/08/14/us/selena-gomez-wondermind-lawsuit-fraud.html
+
 **When a Rare Wolf Got Too Close, Denmark Faced a Conservation Dilemma**\
 `The authorities tracked the animal after a string of close encounters with residents, reigniting a bitter debate over how a small, densely populated country should live with wolves.`\
 https://www.nytimes.com/2026/08/14/world/europe/rare-wolf-denmark-conservation-dilemma.html

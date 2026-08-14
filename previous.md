@@ -1,3 +1,19 @@
+**Is It Safe to Eat Lettuce and Other Fresh Produce as Cyclospora Outbreak Wanes?**\
+`As the largest cyclospora outbreak in U.S. history wanes, experts weigh in on whether iceberg and other fresh produce are still a risk.`\
+https://www.nytimes.com/2026/08/14/well/eat/cyclospora-lettuce-jalapenos-produce-safe.html
+
+**‘I’m Not Ashamed of My Face-Lift’**\
+`The Opinion contributing writer Molly Jong-Fast is not about to feel bad about her face-lift.`\
+https://www.nytimes.com/video/opinion/100000011093183/im-not-ashamed-of-my-face-lift.html
+
+**Trump Dismisses Reports About Dire Conditions Aboard U.S.S. Abraham Lincoln**\
+`Asked whether the deployment of the Abraham Lincoln had gone on too long, the president said its deployment had lasted “not nearly long enough.”`\
+https://www.nytimes.com/2026/08/14/us/politics/trump-uss-abraham-lincoln.html
+
+**John Carro, Jurist Who Had Early Brush With Lee Harvey Oswald, Dies at 98**\
+`Decades before his rise to the New York State appellate court, he was a probation officer who tried to help Mr. Oswald, then a teenager living in the Bronx.`\
+https://www.nytimes.com/2026/08/14/us/politics/john-carro-dead.html
+
 **When a Rare Wolf Got Too Close, Denmark Faced a Conservation Dilemma**\
 `The authorities tracked the animal after a string of close encounters with residents, reigniting a bitter debate over how a small, densely populated country should live with wolves.`\
 https://www.nytimes.com/2026/08/14/world/europe/rare-wolf-denmark-conservation-dilemma.html
@@ -46,7 +62,7 @@ https://www.nytimes.com/2026/08/14/world/americas/mexico-visas-lopez-beltran.htm
 `The campaign of Mary Peltola said it was focused on issues important to Alaska and did not approve a message of support from Ms. Harris.`\
 https://www.nytimes.com/2026/08/14/us/politics/kamala-harris-mary-peltola-endorsement.html
 
-**Selena Gomez Is Sued for Defrauding Investors in Mental Health Site**\
+**Lawsuit Accuses Selena Gomez of Defrauding Investors in Mental Health Site**\
 `The actor, singer and beauty mogul founded Wondermind, a mental health platform, with her mother. Investors put in more than $1 million in the venture, which “quietly collapsed,” the suit said.`\
 https://www.nytimes.com/2026/08/14/us/selena-gomez-wondermind-lawsuit-fraud.html
 
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/08/14/world/europe/cezanne-renoir-matisse-heist-rec
 **Why Europe Keeps Being Pummeled by Heat Waves**\
 `The whole planet is warming, but changes in weather patterns could help explain why the continent is suffering so many bouts of severe heat.`\
 https://www.nytimes.com/2026/08/14/climate/europe-heat-waves-jet-stream.html
-
-**Today, In Short**\
-`Emojis. Tate McRae. And the best Mexican restaurants.`\
-https://www.nytimes.com/2026/08/14/briefing/today-in-short.html
-
-**This Cheesy Corn Salad Speaks for Itself**\
-`And more of the week’s most popular recipes.`\
-https://www.nytimes.com/2026/08/14/dining/this-cheesy-corn-salad-speaks-for-itself.html
-
-**Democrats Have ‘Woke 1.0.’ The G.O.P. Has Trump. Which Is the Bigger Drag?**\
-`Both parties face hurdles heading into the fall.`\
-https://www.nytimes.com/2026/08/14/opinion/midterms-trump-elections-democrat-republican.html
-
-**Five Horror Movies to Stream Now**\
-`In these picks: sinister sounds, a troubled teenager and musical maniacs.`\
-https://www.nytimes.com/2026/08/14/movies/horror-movies-streaming.html
 
