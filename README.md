@@ -1,3 +1,15 @@
+**The 5 Congress Members Whose Families Trade the Most Stocks**\
+`Some lawmakers and their families have traded millions of dollars worth of stocks since the start of this term.`\
+https://www.nytimes.com/2026/08/14/us/politics/biggest-stock-traders-congress.html
+
+**Stock Trading by Lawmakers Becomes a Campaign Attack Line**\
+`Republican and Democratic challengers are both using the issue to attack members of Congress as unethical, seizing on a common practice that enrages voters.`\
+https://www.nytimes.com/2026/08/14/us/politics/stock-trading-congress.html
+
+**An A.I. Bot is Judging Your Résumé**\
+`Raise your hand if you’ve been personally victimized by an A.I. job recruiter. Finding a job has become more difficult in part because many corporations are now using bots to evaluate résumés. The Opinion writer Jessica Grose explains why job hunting has become about gaming A.I. recruiters, and why the solution might just be going analog.`\
+https://www.nytimes.com/video/opinion/100000011085683/an-ai-bot-is-judging-your-resume.html
+
 **Hiroshi Okuda, Disrupter Who Revived Toyota in the 1990s, Dies at 93**\
 `As the car company’s president, he made decisions quickly and shook things up, expanding overseas manufacturing and introducing the Prius, a milestone in automotive history.`\
 https://www.nytimes.com/2026/08/14/automobiles/hiroshi-okuda-dead.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/08/14/nyregion/who-is-luigi-mangione.html
 **Judge Rejects Suit Against University of Michigan That Sought Emails on Climate Law**\
 `A conservative group had tried to force the University of Michigan to hand over messages from a law professor who worked on “climate superfund” bills.`\
 https://www.nytimes.com/2026/08/14/climate/climate-superfund-professor-lawsuit-emails-michigan.html
-
-**Who Was Brian Thompson, the UnitedHealthcare CEO Killed in 2024?**\
-`The UnitedHealthcare chief executive rose from humble Midwestern beginnings to the top position at a health insurance giant.`\
-https://www.nytimes.com/2026/08/14/nyregion/who-brian-thompson-unitedhealthcare-ceo-mangione.html
-
-**Live Updates: Mangione Admits Shooting Health Care Executive as He Pleads Guilty in Federal Court**\
-`Luigi Mangione said he stalked the executive, Brian Thompson, before killing him. “I shot Mr. Thompson,” he told the judge. His lawyers said they would argue that his plea means he cannot be tried for murder in state court.`\
-https://www.nytimes.com/live/2026/08/14/nyregion/luigi-mangione-plea-deal
-
-**Ian Frazier Wrote ‘Coyote v. Acme’ in 1990. Now It’s a Movie.**\
-`With “Coyote vs. Acme,” Ian Frazier, a soft-spoken reporter and humorist, has finally gone Hollywood.`\
-https://www.nytimes.com/2026/08/14/style/ian-frazier-coyote-vs-acme-movie.html
 
