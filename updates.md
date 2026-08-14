@@ -1,3 +1,7 @@
+**Kalshi Ordered to Cease Most Operations in Washington State**\
+`In a preliminary injunction, a state judge barred the prediction market from allowing residents to place bets on the bulk of its offerings.`\
+https://www.nytimes.com/2026/08/13/business/kalshi-washington-state-ruling.html
+
 **El periodismo y los muros de pago**\
 `Nuestro trabajo se ha vuelto más difícil y costoso debido a que en Estados Unidos, y otros países, el ejercicio periodístico independiente enfrenta un clima cada vez más hostil.`\
 https://www.nytimes.com/es/2026/08/13/espanol/periodismo-paywall-muro-pago.html
