@@ -1,3 +1,7 @@
+**West Bank Settlers Continue to Besiege Palestinian Families**\
+`Two Palestinian families have been trapped by violent Israeli settlers in the West Bank since Sunday. The Israeli military evicted the settlers, but they returned hours later.`\
+https://www.nytimes.com/video/world/middleeast/100000011092024/west-bank-israel-palestinian-familiies.html
+
 **Un portaaviones de la Marina de EE. UU. causa preocupación**\
 `El USS Abraham Lincoln ha estado desplegado casi nueve meses, primero en el mar Caribe y ahora en Medio Oriente, por lo que hay inquietudes sobre el bienestar de la tripulación.`\
 https://www.nytimes.com/es/2026/08/14/espanol/estados-unidos/ejercito-portaaviones-preocupacion-guerra-iran.html
