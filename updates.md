@@ -1,3 +1,23 @@
+**Reseña de ‘El chacal’, el libro sobre Carlos, superterrorista internacional**\
+`En su nuevo libro, Joby Warrick narra el ascenso y la caída de Carlos, el Chacal, el infame terrorista a sueldo.`\
+https://www.nytimes.com/es/2026/08/14/espanol/cultura/carlos-chacal-libro.html
+
+**Si no te preocupaba la IA, el momento ha llegado**\
+`Tras las últimas semanas, deberíamos considerar detener el desarrollo de la IA.`\
+https://www.nytimes.com/es/2026/08/14/espanol/opinion/ia-tecnologia-riesgos-preocupacion.html
+
+**Mamdani’s ‘Bro’ Culture in City Hall: Sports, Memes, Nicknames for All**\
+`As much as Zohran Mamdani’s team runs on leftist idealism and social media hits, its style of governing also relies on humor, sports references and pop culture.`\
+https://www.nytimes.com/2026/08/14/nyregion/mamdani-bro-culture-sports.html
+
+**NYT Spelling Bee Answers for August 14, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/08/14/crosswords/spelling-bee-forum.html
+
+**Nigel Farage Defeats ‘Trash Can’ to Win U.K. Special Election**\
+`Nigel Farage, the leader of Reform U.K., won a special election that he forced after coming under pressure over his finances. He beat Count Binface, a novelty candidate who wears a trash can over his head.`\
+https://www.nytimes.com/video/world/europe/100000011091762/farage-wins-britain-special-election-over-binface.html
+
 **Farage Wins Special U.K. Election That He Initiated, as Expected**\
 `Nigel Farage, the leader of Reform U.K., won the Clacton by-election with 63 percent. Count Binface, his costumed main rival, came second with 27 percent, a personal best.`\
 https://www.nytimes.com/2026/08/14/world/europe/farage-binface-clacton-result-byelection.html
