@@ -1,3 +1,7 @@
+**Luigi Mangione Expected to Plead Guilty in Federal Court**\
+`Luigi Mangione faces federal stalking charges tied to the killing of a health insurance executive in 2024. A guilty plea could complicate a separate state murder trial.`\
+https://www.nytimes.com/video/us/100000011091828/luigi-mangione-guilty-plea-federal.html
+
 **Another Day of Extreme Heat Bakes Europe, but Relief Is on the Horizon**\
 `Friday is delivering another day of near record heat to the continent, but toward the end of the weekend temperatures could retreat to seasonal averages.`\
 https://www.nytimes.com/2026/08/14/weather/europe-extreme-weather-heat-wave.html
