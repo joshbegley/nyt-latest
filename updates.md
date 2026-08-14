@@ -1,3 +1,11 @@
+**Live Updates: Mangione Is Expected to Plead Guilty to Federal Charges**\
+`Luigi Mangione, 28, faces federal stalking charges that led to the 2024 killing of a health insurance executive, Brian Thompson, in Manhattan. He is scheduled to be tried for murder in state court next month.`\
+https://www.nytimes.com/live/2026/08/14/nyregion/luigi-mangione-plea-deal
+
+**Ian Frazier Wrote ‘Coyote v. Acme’ in 1990. Now It’s a Movie.**\
+`With “Coyote vs. Acme,” Ian Frazier, a soft-spoken reporter and humorist, has finally gone Hollywood.`\
+https://www.nytimes.com/2026/08/14/style/ian-frazier-coyote-vs-acme-movie.html
+
 **La política migratoria de Trump tiene raíces en el pasado de EE. UU.**\
 `El enfoque de Trump recuerda a políticas del siglo XX, cuando Estados Unidos respondió a la llegada de extranjeros con leyes que privilegiaban a unos grupos y cerraban la puerta a otros.`\
 https://www.nytimes.com/es/2026/08/14/espanol/estados-unidos/politica-migratoria-trump.html

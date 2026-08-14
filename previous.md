@@ -1,3 +1,11 @@
+**Live Updates: Mangione Is Expected to Plead Guilty to Federal Charges**\
+`Luigi Mangione, 28, faces federal stalking charges that led to the 2024 killing of a health insurance executive, Brian Thompson, in Manhattan. He is scheduled to be tried for murder in state court next month.`\
+https://www.nytimes.com/live/2026/08/14/nyregion/luigi-mangione-plea-deal
+
+**Ian Frazier Wrote ‘Coyote v. Acme’ in 1990. Now It’s a Movie.**\
+`With “Coyote vs. Acme,” Ian Frazier, a soft-spoken reporter and humorist, has finally gone Hollywood.`\
+https://www.nytimes.com/2026/08/14/style/ian-frazier-coyote-vs-acme-movie.html
+
 **Ellis Ludwig-Leone’s ‘Quiet Hours’ Highlights the Home Piano**\
 `Ellis Ludwig-Leone composed an album of nocturnes, each for a pianist friend to play on a home piano — or a piano that feels like home.`\
 https://www.nytimes.com/2026/08/14/arts/music/ellis-ludwig-leone-quiet-hours-nocturnes-home-pianos.html
@@ -189,8 +197,4 @@ https://www.nytimes.com/2026/08/14/world/europe/notre-dame-windows-glass-taboure
 **Federal Job Cuts Are Making Wildfires Harder to Fight**\
 `The Trump administration pushed out thousands of veteran U.S. Forest Service staff. An ‘extraordinary’ fire season is testing those who are left.`\
 https://www.nytimes.com/2026/08/14/climate/wildfires-forest-service-trump-cuts.html
-
-**How Jane Schoenbrun Has Fun With Horror (and Chicken) at Camp Miasma**\
-`The director discusses a key scene from “Teenage Sex and Death at Camp Miasma,” featuring Hannah Einbinder and Gillian Anderson.`\
-https://www.nytimes.com/2026/08/14/movies/teenage-sex-and-death-at-camp-miasma-clip.html
 
