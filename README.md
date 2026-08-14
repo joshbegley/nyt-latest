@@ -1,3 +1,7 @@
+**Luigi Mangioni’s Case Hit a Cultural Nerve**\
+`As the murder of Brian Thompson shocked most Americans, some people, many on social media, began showing Mr. Mangione sympathy and channeled their own frustration with the health care industry.`\
+https://www.nytimes.com/2026/08/14/nyregion/luigi-mangione-culture-shooting.html
+
 **Reclaiming the Idealism of International Law**\
 `The idealism that helped create the rules-based international order in the 20th century feels far away now, argues the Times Opinion columnist Ezra Klein. But what would it look like to reclaim that? He discusses the question with the scholar Linda Kinstler on “The Ezra Klein Show.”`\
 https://www.nytimes.com/video/opinion/100000011089812/reclaiming-the-idealism-of-international-law.html
@@ -58,7 +62,7 @@ https://www.nytimes.com/es/2026/08/14/espanol/mundo/lopez-beltran-amlo-visa-esta
 `En una audiencia en la que se declaró culpable de delitos federales, Mangione dijo que antes de matar al director ejecutivo de UnitedHealthcare soportó años de dolor durante su trato con la industria de seguros.`\
 https://www.nytimes.com/es/2026/08/14/espanol/estados-unidos/luigi-mangione-culpable.html
 
-**Jason Arday, Cambridge Professor Accused of Plagiarism, Reported Dead**\
+**Jason Arday, Cambridge Professor Accused of Plagiarism, Is Found Dead**\
 `Mr. Arday resigned last week after the university announced an investigation into allegations of plagiarism and fabrication.`\
 https://www.nytimes.com/2026/08/14/world/europe/jason-arday-dead.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/14/world/europe/france-court-strikes-down-ban-so
 **‘Lanterns’ Review: It’s Not Easy Being Green**\
 `HBO’s new Green Lantern series is the latest show in which being a superhero is no fun at all.`\
 https://www.nytimes.com/2026/08/14/arts/television/lanterns-review-hbo.html
-
-**Jeff Bezos Buys a Piece of Liverpool Football Club**\
-`It is the first known investment by Mr. Bezos, one of the world’s richest men, into a sports team.`\
-https://www.nytimes.com/2026/08/14/business/jeff-bezos-liverpool-football-club.html
 

@@ -1,3 +1,11 @@
+**Reclaiming the Idealism of International Law**\
+`The idealism that helped create the rules-based international order in the 20th century feels far away now, argues the Times Opinion columnist Ezra Klein. But what would it look like to reclaim that? He discusses the question with the scholar Linda Kinstler on “The Ezra Klein Show.”`\
+https://www.nytimes.com/video/opinion/100000011089812/reclaiming-the-idealism-of-international-law.html
+
+**Jason Arday, Cambridge Professor Accused of Plagiarism, Reported Dead**\
+`Mr. Arday resigned last week after the university announced an investigation into allegations of plagiarism and fabrication.`\
+https://www.nytimes.com/2026/08/14/world/europe/jason-arday-dead.html
+
 **Mark Rydell, ‘Actor’s Director’ Known for ‘On Golden Pond,’ Dies at 97**\
 `Having started out as an actor, he was able to coax sensitive work out of performers like Bette Midler, Katharine Hepburn, Henry Fonda and John Wayne.`\
 https://www.nytimes.com/2026/08/14/movies/mark-rydell-dead.html
