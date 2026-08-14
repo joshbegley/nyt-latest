@@ -1,3 +1,15 @@
+**Edinburgh Fringe: 8 Buzzy Shows to See**\
+`Whether on a constant treadmill, turning trauma into laughs or venturing into children’s entertainment, these acts are winning over viewers and critics.`\
+https://www.nytimes.com/2026/08/14/arts/edinburgh-festival-fringe-buzziest-shows.html
+
+**Zuckerberg’s Anti-Doom Fantasy + Finally an A.I. Detector That Works + A.I. Math**\
+`“The first rule of Mark Zuckerberg is never count out Mark Zuckerberg.”`\
+https://www.nytimes.com/2026/08/14/podcasts/zuckerberg-essay-pangram-math.html
+
+**Is Ocasio-Cortez Ready for the Glass Cliff?**\
+`She will run as a woman but unlike how every woman before her was forced to run.`\
+https://www.nytimes.com/2026/08/14/opinion/aoc-president-woman-egg-freezing.html
+
 **8 Matisse Works, Looted from Library in Brazil, Are Recovered**\
 `The prints by the French master were taken in São Paulo last year in a brazen daylight heist.`\
 https://www.nytimes.com/2026/08/14/world/americas/matisse-stolen-art-found-sao-paulo-brazil-heist.html
