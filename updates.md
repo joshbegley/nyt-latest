@@ -1,3 +1,15 @@
+**Robinhood Bets Again on a Public Venture Capital Fund**\
+`The trading platform raised $200 million for a second publicly traded vehicle to let ordinary investors buy into privately held start-ups.`\
+https://www.nytimes.com/2026/08/14/business/dealbook/robinhood-public-venture-capital-fund.html
+
+**Heat is Hammering Europe, Again. Here’s What That Looks Like.**\
+`Extreme temperatures and repeated wildfires are pushing infrastructure to the limit and testing the continent’s resolve.`\
+https://www.nytimes.com/2026/08/14/world/europe/europe-heat-wave-photos.html
+
+**New Yorkers Can’t Stop Lining Up for This Sushi**\
+`At a proliferating number of stores, discounts on sushi and other items are offered after 8 p.m. To get the best meals, you have to be there early.`\
+https://www.nytimes.com/2026/08/14/nyregion/sushi-discount-japanese-markets-new-york.html
+
 **An Unlikely Emergency Appeal to the Supreme Court From a Dog Named Bruce**\
 `A last-ditch filing this week came on behalf of a dog that a judge found to be “vicious” and shows how the court’s emergency docket has been growing.`\
 https://www.nytimes.com/2026/08/14/us/politics/supreme-court-emergency-appeal-bruce-the-dog.html

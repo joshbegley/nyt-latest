@@ -1,3 +1,11 @@
+**Robinhood Bets Again on a Public Venture Capital Fund**\
+`The trading platform raised $200 million for a second publicly traded vehicle to let ordinary investors buy into privately held start-ups.`\
+https://www.nytimes.com/2026/08/14/business/dealbook/robinhood-public-venture-capital-fund.html
+
+**Heat is Hammering Europe, Again. Here’s What That Looks Like.**\
+`Extreme temperatures and repeated wildfires are pushing infrastructure to the limit and testing the continent’s resolve.`\
+https://www.nytimes.com/2026/08/14/world/europe/europe-heat-wave-photos.html
+
 **Edinburgh Fringe: 8 Buzzy Shows to See**\
 `Whether on a constant treadmill, turning trauma into laughs or venturing into children’s entertainment, these acts are winning over viewers and critics.`\
 https://www.nytimes.com/2026/08/14/arts/edinburgh-festival-fringe-buzziest-shows.html
@@ -178,19 +186,11 @@ https://www.nytimes.com/2026/08/14/us/activist-sociology-independent.html
 `This word has appeared in 48 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/08/14/learning/word-of-the-day-regurgitate.html
 
-**Gone in 20 Minutes: Half-Off Sushi Draws Throngs to New York’s Japanese Markets**\
-`At a proliferating number of stores, discounts on items like sushi are offered after 8 p.m. To get the best meals, you have to be there early.`\
+**New Yorkers Can’t Stop Lining Up for This Sushi**\
+`At a proliferating number of stores, discounts on sushi and other items are offered after 8 p.m. To get the best meals, you have to be there early.`\
 https://www.nytimes.com/2026/08/14/nyregion/sushi-discount-japanese-markets-new-york.html
 
 **‘A Dying Community’: An Energy Crisis Worsened by the War Strains Alaska**\
 `Diesel generators produce the electricity for small towns and hamlets like Manley Hot Springs, Alaska. Prices are soaring with no end in sight.`\
 https://www.nytimes.com/2026/08/14/us/rural-alaska-oil-prices-iran.html
-
-**Children’s Picture Books About Sleep and Dreaming**\
-`New works cover everything from dreams to gods to insomnia.`\
-https://www.nytimes.com/2026/08/14/books/review/sleep-dreams-childrens-picture-books.html
-
-**How Thrillers Hook You With Their First Sentence**\
-`Can our Book Review editor, Tina Jordan, guess thrillers from their first sentence? In this game we explore a few of the books from The New York Times’s “50 Best Thrillers of the 21st Century” list; and learn a bit more about why opening sentences are so important to get people reading.`\
-https://www.nytimes.com/video/books/100000011051376/how-thrillers-hook-you-with-their-first-sentence.html
 
