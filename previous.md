@@ -194,7 +194,3 @@ https://www.nytimes.com/live/2026/08/14/weather/lala-tropical-storm-hurricane-ha
 `Prospectors are eyeing mineral deposits within the former boundaries of the Bears Ears and Grand Staircase-Escalante National Monuments in Utah.`\
 https://www.nytimes.com/2026/08/14/climate/mining-trump-utah-monuments.html
 
-**Wildfires Burn Across Europe as the Continent Feels Fifth Heat Wave**\
-`Wildfires threatened homes and communities across several countries in Europe this week, as the continent endured its fifth summer heat wave.`\
-https://www.nytimes.com/video/world/europe/100000011092023/europe-heat-wave-wildfires.html
-
