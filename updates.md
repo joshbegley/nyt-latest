@@ -1,3 +1,7 @@
+**An Unlikely Emergency Appeal to the Supreme Court From a Dog Named Bruce**\
+`A last-ditch filing this week came on behalf of a dog that a judge found to be “vicious” and shows how the court’s emergency docket has been growing.`\
+https://www.nytimes.com/2026/08/14/us/politics/supreme-court-emergency-appeal-bruce-the-dog.html
+
 **Edinburgh Fringe: 8 Buzzy Shows to See**\
 `Whether on a constant treadmill, turning trauma into laughs or venturing into children’s entertainment, these acts are winning over viewers and critics.`\
 https://www.nytimes.com/2026/08/14/arts/edinburgh-festival-fringe-buzziest-shows.html
