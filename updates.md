@@ -1,3 +1,11 @@
+**America Needs a Follow-the-Rules Foreign Policy**\
+`American foreign policy is at a crossroads. What’s next? The Times Opinion columnist Ezra Klein explores the case for abiding by the rules-based international order.`\
+https://www.nytimes.com/video/opinion/100000011089811/america-needs-a-follow-the-rules-foreign-policy.html
+
+**Tropical Storm Lala Expected to Strengthen to a Hurricane as It Nears Hawaii**\
+`Up to 25 inches of rain could fall on the Big Island, forecasters said.`\
+https://www.nytimes.com/live/2026/08/14/weather/lala-tropical-storm-hurricane-hawaii
+
 **Jason Arday, académico de Cambridge bajo sospecha de plagio, es reportado muerto**\
 `La policía británica dijo que se había encontrado sin vida a un hombre en una casa vinculada a Arday, quien estaba siendo investigado por acusaciones de plagio y engaño.`\
 https://www.nytimes.com/es/2026/08/14/espanol/mundo/jason-arday-cambridge-muerte.html
