@@ -1,3 +1,7 @@
+**A Timeline of Luigi Mangione’s Cases, From the UnitedHealthcare CEO’s Killing to a Guilty Plea**\
+`The shooting of a health care executive in December 2024 led to a sprawling manhunt, and two complex and interwoven cases.`\
+https://www.nytimes.com/2026/08/14/nyregion/luigi-mangione-timeline.html
+
 **Read Mangione’s Motion Arguing Double Jeopardy in State Case**\
 `Soon after Luigi Mangione pleaded guilty to federal charges in the 2024 killing of the chief executive of UnitedHealthcare, his lawyers filed a motion arguing that separate state charges should be dismissed.`\
 https://www.nytimes.com/interactive/2026/08/14/nyregion/mangione-double-jeopardy-motion.html
