@@ -1,3 +1,15 @@
+**A Prominent Mexican Politician Says U.S. Revoked His Visa**\
+`Andrés Manuel López Beltrán, a former president’s son, lashed out at the Trump administration after he said it canceled his visa, another flashpoint in the tense U.S.-Mexico relationship.`\
+https://www.nytimes.com/2026/08/14/world/americas/mexico-visas-lopez-beltran.html
+
+**Alaska Democrat Mary Peltola Pushes Back Against Endorsement From Kamala Harris**\
+`The campaign of Mary Peltola said it was focused on issues important to Alaska and did not approve a message of support from Ms. Harris.`\
+https://www.nytimes.com/2026/08/14/us/politics/kamala-harris-mary-peltola-endorsement.html
+
+**She Sewed the Blue Angels’ Suits for 40 Years. Then a Big Company Got the Job.**\
+`Jellie Whitehurst in Pensacola, Fla., was surprised to learn that after decades, the Navy had awarded a $1.7 million contract to a company in Virginia to supply the gear.`\
+https://www.nytimes.com/2026/08/14/us/blue-angels-uniforms-contract-shop.html
+
 **Selena Gomez Is Sued for Defrauding Investors in Mental Health Site**\
 `The actor, singer and beauty mogul founded Wondermind, a mental health platform, with her mother. Investors put in more than $1 million in the venture, which “quietly collapsed,” the suit said.`\
 https://www.nytimes.com/2026/08/14/us/selena-gomez-wondermind-lawsuit-fraud.html

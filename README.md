@@ -1,3 +1,7 @@
+**How The New York Times Reported on Trump’s Air Force One Ruse in Turkey**\
+`President Trump’s Air Force One subterfuge duped potential adversaries — and the press. Here’s what happened.`\
+https://www.nytimes.com/2026/08/14/insider/trump-air-force-one-decoy-reporters.html
+
 **A Prominent Mexican Politician Says U.S. Revoked His Visa**\
 `Andrés Manuel López Beltrán, a former president’s son, lashed out at the Trump administration after he said it canceled his visa, another flashpoint in the tense U.S.-Mexico relationship.`\
 https://www.nytimes.com/2026/08/14/world/americas/mexico-visas-lopez-beltran.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/14/arts/music/ellis-ludwig-leone-quiet-hours-noc
 **Trump Administration Asks Supreme Court to Greenlight White House Ballroom**\
 `The planned 90,000-square-foot ballroom is estimated to cost $400 million and is part of the president’s broader effort to remake Washington in his own style.`\
 https://www.nytimes.com/2026/08/14/us/politics/trump-ballroom-white-house-supreme-court.html
-
-**David Hearn’s Lawyers Ask Court to Bar Future Reflecting Pool Charges**\
-`Citing comments by President Trump, David Hearn raised the prospect of “prosecutorial harassment.”`\
-https://www.nytimes.com/2026/08/14/us/hearn-reflecting-pool-prosecutor-harassment.html
 
