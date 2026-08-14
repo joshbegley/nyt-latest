@@ -1,3 +1,7 @@
+**Un portaaviones de la Marina de EE. UU. causa preocupación**\
+`El USS Abraham Lincoln ha estado desplegado casi nueve meses, primero en el mar Caribe y ahora en Medio Oriente, por lo que hay inquietudes sobre el bienestar de la tripulación.`\
+https://www.nytimes.com/es/2026/08/14/espanol/estados-unidos/ejercito-portaaviones-preocupacion-guerra-iran.html
+
 **Brad Pitt dijo que volvió a beber alcohol. No es peligroso, pero no es para todos**\
 `La revelación del actor intensificó el debate sobre una pregunta clave de la sobriedad: ¿alguien que bebió en exceso puede volver a beber con moderación?`\
 https://www.nytimes.com/es/2026/08/14/espanol/cultura/brad-pitt-alcoholismo-sobriedad.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/14/opinion/ezra-klein-podcast-linda-kinstler.htm
 **Las vacunas contra la covid no están vinculadas a los abortos espontáneos**\
 `Republicanos destacados y otras personas hicieron esta afirmación falsa, aprovechando de manera engañosa unos antiguos mensajes de texto de Anthony Fauci.`\
 https://www.nytimes.com/es/2026/08/14/espanol/vacunas-covid-aborto.html
-
-**La política migratoria de Trump tiene raíces en el pasado de EE. UU.**\
-`El enfoque de Trump recuerda a políticas del siglo XX, cuando Estados Unidos respondió a la llegada de extranjeros con leyes que privilegiaban a unos grupos y cerraban la puerta a otros.`\
-https://www.nytimes.com/es/2026/08/14/espanol/estados-unidos/politica-migratoria-trump.html
 
