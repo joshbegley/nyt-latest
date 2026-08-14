@@ -1,3 +1,23 @@
+**The Taliban Kicked the U.S. Out of Afghanistan. Now They Want It Back.**\
+`In an interview, Afghanistan’s foreign minister called on the U.S. to reopen its embassy and invest in the country — a near-impossible sell for now, analysts and former diplomats say.`\
+https://www.nytimes.com/2026/08/14/world/asia/afghanistan-us-taliban.html
+
+**France’s Top Court Strikes Down Ban on Social Media for Children**\
+`The move was a setback for President Emmanuel Macron, who championed the ban. He vowed to pass a new version before he leaves office next spring.`\
+https://www.nytimes.com/2026/08/14/world/europe/france-court-strikes-down-ban-social-media-children.html
+
+**‘Lanterns’ Review: It’s Not Easy Being Green**\
+`HBO’s new Green Lantern series is the latest show in which being a superhero is no fun at all.`\
+https://www.nytimes.com/2026/08/14/arts/television/lanterns-review-hbo.html
+
+**Jeff Bezos Buys a Piece of Liverpool Football Club**\
+`It is the first known investment by Mr. Bezos, one of the world’s richest men, into a sports team.`\
+https://www.nytimes.com/2026/08/14/business/jeff-bezos-liverpool-football-club.html
+
+**The New Macho**\
+`Plus: The woman helping all of us get dressed and thoughts on the other September magazine covers.`\
+https://www.nytimes.com/2026/08/14/style/gq-masculinity-men.html
+
 **July Retail Sales Notch Biggest Drop in Over a Year**\
 `The data for July showed the biggest drop in more than a year, as American households face the economic strains brought on by persistent inflation`\
 https://www.nytimes.com/2026/08/14/business/retail-sales-july.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/es/2026/08/14/espanol/estados-unidos/una-ciudad-se-movil
 **Why You Envy Your Friends**\
 `Turn that burning resentment into insight and motivation.`\
 https://www.nytimes.com/2026/08/14/well/mind/envy-friends.html
-
-**Can Polls Measure the True Strength of the Left?**\
-`Recent polling issues could continue in Democratic primaries in part because progressives are more likely to enjoy taking surveys.`\
-https://www.nytimes.com/2026/08/14/upshot/polling-errors-michigan-wisconsin.html
-
-**Is Ocasio-Cortez Ready for the Glass Cliff?**\
-`She will run as a woman but unlike how every woman before her was forced to run.`\
-https://www.nytimes.com/2026/08/14/opinion/aoc-president-woman-egg-freezing.html
-
-**Corrections: Aug. 14, 2026**\
-`Corrections that appeared in print on Friday, Aug. 14, 2026.`\
-https://www.nytimes.com/2026/08/14/pageoneplus/corrections-aug-14-2026.html
-
-**An Unlikely Emergency Appeal to the Supreme Court From a Dog Named Bruce**\
-`A last-ditch filing this week came on behalf of a dog that a judge found to be “vicious” and shows how the court’s emergency docket has been growing.`\
-https://www.nytimes.com/2026/08/14/us/politics/supreme-court-emergency-appeal-bruce-the-dog.html
-
-**What if America Followed the Rules?**\
-`American foreign policy is at a crossroads. Could international law provide a framework for a foreign policy after President Trump?`\
-https://www.nytimes.com/video/opinion/100000011089809/what-if-america-followed-the-rules.html
 
