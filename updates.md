@@ -1,3 +1,7 @@
+**Live Updates: Luigi Mangione Will Plead Guilty to Federal Charges**\
+`Mangione, 28, faces federal stalking charges in connection with the 2024 killing of a health insurance executive, Brian Thompson, whose family is also in the courtroom in Manhattan.`\
+https://www.nytimes.com/live/2026/08/14/nyregion/luigi-mangione-plea-deal
+
 **Russell Fry to Back Darline Graham in South Carolina Senate Runoff Amid Trump Pressure**\
 `The president has been focused on the race since the death of Lindsey Graham in July. Ms. Graham, the late senator’s sister, is competing against Representative Ralph Norman in a runoff on Aug. 25.`\
 https://www.nytimes.com/2026/08/14/us/politics/russell-fry-darline-graham-south-carolina.html
