@@ -1,3 +1,119 @@
+**What if America Followed the Rules?**\
+`American foreign policy is at a crossroads. Could international law provide a framework for a foreign policy after President Trump?`\
+https://www.nytimes.com/2026/08/14/opinion/ezra-klein-podcast-linda-kinstler.html
+
+**Las vacunas contra la covid no están vinculadas a los abortos espontáneos**\
+`Republicanos destacados y otras personas hicieron esta afirmación falsa, aprovechando de manera engañosa unos antiguos mensajes de texto de Anthony Fauci.`\
+https://www.nytimes.com/es/2026/08/14/espanol/vacunas-covid-aborto.html
+
+**La política migratoria de Trump tiene**\
+`El enfoque de Trump recuerda a políticas del siglo XX, cuando Estados Unidos respondió a la llegada de extranjeros con leyes que privilegiaban a unos grupos y cerraban la puerta a otros.`\
+https://www.nytimes.com/es/2026/08/14/espanol/estados-unidos/politica-migratoria-trump.html
+
+**Una ciudad contra los mosquitos**\
+`Brasil ha adoptado nuevas técnicas para combatir los brotes de dengue. La ciudad de Belém, junto a la selva amazónica, podría ofrecer lecciones a otras ciudades alrededor del mundo.`\
+https://www.nytimes.com/es/2026/08/14/espanol/estados-unidos/una-ciudad-se-moviliza-contra-una-amenaza-de-salud-persistente-los-mosquitos.html
+
+**Why You Envy Your Friends**\
+`Turn that burning resentment into insight and motivation.`\
+https://www.nytimes.com/2026/08/14/well/mind/envy-friends.html
+
+**Can Polls Measure the True Strength of the Left?**\
+`Recent polling issues could continue in Democratic primaries in part because progressives are more likely to enjoy taking surveys.`\
+https://www.nytimes.com/2026/08/14/upshot/polling-errors-michigan-wisconsin.html
+
+**Ocasio-Cortez Can Run. Can She Win?**\
+`She will run as a woman but unlike how every woman before her was forced to run.`\
+https://www.nytimes.com/2026/08/14/opinion/aoc-president-woman-egg-freezing.html
+
+**Corrections: Aug. 14, 2026**\
+`Corrections that appeared in print on Friday, Aug. 14, 2026.`\
+https://www.nytimes.com/2026/08/14/pageoneplus/corrections-aug-14-2026.html
+
+**What if America Followed the Rules?**\
+`American foreign policy is at a crossroads. Could international law provide a framework for a foreign policy after President Trump?`\
+https://www.nytimes.com/video/opinion/100000011089809/what-if-america-followed-the-rules.html
+
+**An Unlikely Emergency Appeal to the Supreme Court from a Dog Named Bruce**\
+`A last-ditch filing this week came on behalf of a dog that a judge found to be “vicious” and shows how the court’s emergency docket has been growing.`\
+https://www.nytimes.com/2026/08/14/us/politics/supreme-court-emergency-appeal-bruce-the-dog.html
+
+**Brad Pitt’s Return to Drinking Is Not Unsafe, Experts Say**\
+`His disclosure in an interview revived a key question about sobriety: whether someone who once drank dangerously can ever drink moderately.`\
+https://www.nytimes.com/2026/08/14/us/brad-pitt-sobriety-experts.html
+
+**9 New Movies Our Critics Are Talking About This Week**\
+`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
+https://www.nytimes.com/2026/08/14/movies/new-movie-releases.html
+
+**Why the D.O.J. Is Pursuing Low-Level Fraud Cases**\
+`Our reporter Devlin Barrett explains why the Department of Justice is pursuing small-time fraud cases, and what that means for larger fraud investigations at the department.`\
+https://www.nytimes.com/video/us/100000011085709/justice-department-jd-vance-small-dollar-fraud.html
+
+**Trump’s Justice Dept. Targets Smaller Fraud Cases**\
+`As the Trump administration drops charges against corporations and the wealthy, it is also taking aim at small-scale fraud cases, including against the operator of a weathered food truck in California.`\
+https://www.nytimes.com/2026/08/14/us/politics/trump-doj-fraud-california-food-truck.html
+
+**Stavros Halkias Never Wanted to Get Political**\
+`The podcast host and emerging Hollywood presence spoke about his new stand-up special, giving advice to incels and comedy’s rightward creep.`\
+https://www.nytimes.com/2026/08/14/arts/stavros-halkias-popcast-interview-tony.html
+
+**When Is It OK to GIve Up on a Book? Our Readers Have Thoughts.**\
+`From carefree dabblers to book group die-hards, everyone, it seems, has an opinion. Just don’t tell them theirs is wrong.`\
+https://www.nytimes.com/2026/08/14/books/review/dnf-reader-comments.html
+
+**Now for Sale at Christie’s: Art by People Who Work at Christie’s**\
+`The auction house is displaying works made by its employees, who craft their works on kitchen tables and in living rooms.`\
+https://www.nytimes.com/2026/08/14/nyregion/now-for-sale-at-christies-art-by-people-who-work-at-christies.html
+
+**5 Children’s Movies to Stream Now**\
+`This month’s picks include two new additions to popular Disney musical franchises.`\
+https://www.nytimes.com/2026/08/14/movies/kids-movies-streaming-now.html
+
+**Pick Your Favorite Summer House in Iceland**\
+`Three two-story cottages offer scenic views and close access to mountains, glaciers and waterfalls.`\
+https://www.nytimes.com/2026/08/14/realestate/pick-your-favorite-summer-house-in-iceland.html
+
+**Phoebe Bridgers Reaches New Heights With “Lost Weekend”**\
+`Humor and pathos coexist, resulting in the best album of her career.`\
+https://www.nytimes.com/2026/08/14/arts/music/phoebe-bridgers-lost-weekend-review.html
+
+**These A.I. Policies Will Hurt Our Business. We Should Do Them Anyway.**\
+`The risks posed by A.I. are too great to forgo any regulation, even for those who stand to gain tremendously from the technology’s rise.`\
+https://www.nytimes.com/2026/08/14/opinion/ai-policy-tax-technology.html
+
+**A ‘Schmigadoon!’ Cast Album and More Theater to Stream**\
+`Other streaming picks include a deft “Winter’s Tale,” a reimagining of a solo show about sex work and a ’70s production of Chekhov by tweens.`\
+https://www.nytimes.com/2026/08/14/theater/schmigadoon-cast-album-theater-streaming.html
+
+**Palestinian Rappers Shabjdeed and Saint Levant in Spat Over Authenticity**\
+`Shabjdeed, a rapper in the West Bank, criticized a fellow Palestinian musician in a song, saying his Western lifestyle and lyrics were far removed from life back home.`\
+https://www.nytimes.com/2026/08/14/world/middleeast/shabjdeed-saint-levant-slv.html
+
+**This Reporter Can Tell Us What Nuclear Apocalypse Looks Like (Encore)**\
+`We bring back an episode from our archives, in which Annie Jacobsen discusses her 2024 book “Nuclear War: A Scenario.”`\
+https://www.nytimes.com/2026/08/14/podcasts/this-reporter-can-tell-us-what-nuclear-apocalypse-looks-like-encore.html
+
+**In “The Bend in the River,” Robb Moss’s Old Friends Reflect on Aging**\
+`In “The Bend in the River,” Robb Moss catches up with the subjects of two of his previous films as they reflect on their lives and what’s left.`\
+https://www.nytimes.com/2026/08/14/movies/the-bend-in-the-river-review.html
+
+**After Notre-Dame Fire, France Restored the Cathedral — but Not These Windows**\
+`France has faithfully renovated most of what burned at Notre-Dame in 2019. Contentiously, six towering windows will soon be replaced by a new design.`\
+https://www.nytimes.com/2026/08/14/world/europe/notre-dame-windows-glass-tabouret.html
+
+**Federal Job Cuts Are Making Wildfires Harder to Fight**\
+`The Trump administration pushed out thousands of veteran U.S. Forest Service staff. An ‘extraordinary’ fire season is testing those who are left.`\
+https://www.nytimes.com/2026/08/14/climate/wildfires-forest-service-trump-cuts.html
+
+**How Jane Schoenbrun Has Fun With Horror (and Chicken) at Camp Miasma**\
+`The director discusses a key scene from “Teenage Sex and Death at Camp Miasma,” featuring Hannah Einbinder and Gillian Anderson.`\
+https://www.nytimes.com/2026/08/14/movies/teenage-sex-and-death-at-camp-miasma-clip.html
+
+**How We Created an Intricate Tapestry of Americans’ Roots**\
+`Combing through census data to map out national origins was a challenge for a group of Times journalists who built a colorful reflection of the country.`\
+https://www.nytimes.com/2026/08/14/insider/american-immigration-nationality-map.html
+
 **Fashion for Free Spirits**\
 `Rich with texture, fall’s best knits play with traditional patterns and palettes.`\
 https://www.nytimes.com/2026/08/14/t-magazine/fall-knits-womens-fashion.html
@@ -77,124 +193,4 @@ https://www.nytimes.com/video/opinion/100000010819020/a-new-inferno.html
 **How Jane Schoenbrun Has Fun With Horror (and Chicken) at Camp Miasma**\
 `The director Jane Schoenbrun breaks down how they played with genre conventions in “Teenage Sex and Death at Camp Miasma.”`\
 https://www.nytimes.com/video/movies/100000011066060/how-jane-schoenbrun-has-fun-with-horror-and-chicken-at-camp-miasma.html
-
-**Christy Knowings, Who Starred on ’90s TV Show ‘All That,’ Dies at 46**\
-`The actress rose to prominence playing absurdist characters on the Nickelodeon series known for joyful silliness.`\
-https://www.nytimes.com/2026/08/14/arts/television/christy-knowings-dead.html
-
-**Luigi Mangione Expected to Plead Guilty in Federal Court**\
-`Luigi Mangione faces federal stalking charges tied to the killing of a health insurance executive in 2024. A guilty plea could complicate a separate state murder trial.`\
-https://www.nytimes.com/video/us/100000011091828/luigi-mangione-guilty-plea-federal.html
-
-**Another Day of Extreme Heat Bakes Europe, but Relief Is on the Horizon**\
-`Friday is delivering another day of near record heat to the continent, but toward the end of the weekend temperatures could retreat to seasonal averages.`\
-https://www.nytimes.com/2026/08/14/weather/europe-extreme-weather-heat-wave.html
-
-**Reseña de ‘El chacal’, el libro sobre Carlos, superterrorista internacional**\
-`En su nuevo libro, Joby Warrick narra el ascenso y la caída de Carlos, el Chacal, el infame terrorista a sueldo.`\
-https://www.nytimes.com/es/2026/08/14/espanol/cultura/carlos-chacal-libro.html
-
-**Si no te preocupaba la IA, el momento ha llegado**\
-`Tras las últimas semanas, deberíamos considerar detener el desarrollo de la IA.`\
-https://www.nytimes.com/es/2026/08/14/espanol/opinion/ia-tecnologia-riesgos-preocupacion.html
-
-**Mamdani’s ‘Bro’ Culture in City Hall: Sports, Memes, Nicknames for All**\
-`As much as Zohran Mamdani’s team runs on leftist idealism and social media hits, its style of governing also relies on humor, sports references and pop culture.`\
-https://www.nytimes.com/2026/08/14/nyregion/mamdani-bro-culture-sports.html
-
-**NYT Spelling Bee Answers for August 14, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/08/14/crosswords/spelling-bee-forum.html
-
-**Nigel Farage Defeats ‘Trash Can’ to Win U.K. Special Election**\
-`Nigel Farage, the leader of Reform U.K., won a special election that he forced after coming under pressure over his finances. He beat Count Binface, a novelty candidate who wears a trash can over his head.`\
-https://www.nytimes.com/video/world/europe/100000011091762/farage-wins-britain-special-election-over-binface.html
-
-**Dos agujeros negros supermasivos están a punto de fusionarse**\
-`En una galaxia muy lejana, el James Webb ha detectado una danza peculiar entre un trío de agujeros negros supermasivos.`\
-https://www.nytimes.com/es/2026/08/14/espanol/ciencia-y-tecnologia/telescopio-agujeros-negros.html
-
-**Jimmy Fallon Reacts to Karoline Leavitt’s White House Exit**\
-`The “Tonight Show” host said President Trump had been surprised by the press secretary’s decision to step down. “She was like, ‘I wanted to wait for a good time but there hasn’t been one, so.’”`\
-https://www.nytimes.com/2026/08/14/arts/television/late-night-jimmy-fallon-karoline-leavitt.html
-
-**Farage Wins Special U.K. Election That He Initiated, as Expected**\
-`Nigel Farage, the leader of Reform U.K., won the Clacton by-election with 63 percent. Count Binface, his costumed main rival, came second with 27 percent, a personal best.`\
-https://www.nytimes.com/2026/08/14/world/europe/farage-binface-clacton-result-byelection.html
-
-**Bienvenidos a la época dorada de la comida mexicana en EE. UU.**\
-`Incluso en una época de políticas antiinmigración, nunca ha habido una variedad tan rica de restaurantes mexicanos en el país.`\
-https://www.nytimes.com/es/2026/08/14/espanol/comida-mexicana-estados-unidos.html
-
-**Outdated American Policy Is Hurting the Afghan People**\
-`A new generation of Afghans wants to move on from the animosities of the past, but Western policies make that difficult.`\
-https://www.nytimes.com/2026/08/14/opinion/afghanistan-us-anniversary-kabul-five-years.html
-
-**Quote of the Day: Eclipse Was a Chance to Teach, and to Party**\
-`Quotation of the Day for Friday, August 14, 2026.`\
-https://www.nytimes.com/2026/08/14/pageoneplus/quote-of-the-day-eclipse-was-a-chance-to-teach-and-to-party.html
-
-**Will Sudan’s El Obeid Become the Next El Fasher? What to Know.**\
-`Taking El Obeid would allow the paramilitary Rapid Support Forces to consolidate its hold on western Sudan, a significant strategic goal.`\
-https://www.nytimes.com/2026/08/14/world/africa/el-obeid-sudan-war-el-fasher.html
-
-**Los lazos de España con Marruecos avivan las especulaciones sobre los migrantes en Ceuta**\
-`Circulaban rumores de que Marruecos, tal vez incitado por Israel y EE. UU., organizó un reciente desastre fronterizo. Esa suposición, según los expertos, se vio exacerbada por la complicada historia de la región.`\
-https://www.nytimes.com/es/2026/08/14/espanol/mundo/espana-marruecos-migrantes-rumores-teorias.html
-
-**The Healing Properties of Goofiness**\
-`Rukhsar Azamee, who came to the United States from Afghanistan, and Thomas Fallon have helped each other laugh through hard times.`\
-https://www.nytimes.com/2026/08/14/style/rukhsar-azamee-thomas-fallon-wedding.html
-
-**My Light Was Out. He Turned It On.**\
-`After a long, mostly sexless marriage, I thought I was done with passion.`\
-https://www.nytimes.com/2026/08/14/style/modern-love-my-light-was-out-he-turned-it-on.html
-
-**Was He the One? Only Her Hairdresser Knew for Sure.**\
-`While Laura DiLorenzo got her hair cut the afternoon before her first date with David Diskin, her hairstylist predicted marriage.`\
-https://www.nytimes.com/2026/08/14/style/laura-dilorenzo-david-diskin-wedding.html
-
-**A Courtship That Made Them Feel Young Again**\
-`Dave Evans and Frish Brandt, who remarried later in life, still found the freshness of “passing notes in school when we were kids,” as she put it.`\
-https://www.nytimes.com/2026/08/14/style/frish-brandt-dave-evans-wedding.html
-
-**They Finally Learned Why Their First Date Never Happened**\
-`More than a decade after Molly Ryan last saw Jesse Howard-Bloom, he sent her a message at just the right time.`\
-https://www.nytimes.com/2026/08/14/style/molly-ryan-jesse-howard-bloom-wedding.html
-
-**American Missionary Kidnapped in Niger Is Said to Be Released From Captivity**\
-`The release of Kevin Rideout, an American missionary pilot who was seized in Niger’s capital last fall, has been a priority for the White House.`\
-https://www.nytimes.com/2026/08/13/us/politics/kevin-rideout-niger-islamic-state.html
-
-**NYT Crossword Answers for Aug. 14, 2026**\
-`Zhou Zhang opens our solving weekend.`\
-https://www.nytimes.com/2026/08/13/crosswords/daily-puzzle-2026-08-14.html
-
-**California Ignored Sexual Abuse of Women in Prison, Justice Dept. Says**\
-`A Justice Department report released on Thursday found that inmates at two state-run women’s prisons routinely had their rights violated. State officials say they have already put reforms in place.`\
-https://www.nytimes.com/2026/08/13/us/california-sexual-abuse-women-prison.html
-
-**New York Will Compost and Target Dog Waste in the City**\
-`The City Council passed a package of bills on Thursday to prevent dog poop from accumulating on sidewalks and in parks.`\
-https://www.nytimes.com/2026/08/13/nyregion/dog-poop-city-council-nyc.html
-
-**Kalshi Ordered to Cease Most Operations in Washington State**\
-`In a preliminary injunction, a state judge barred the prediction market from allowing residents to place bets on the bulk of its offerings.`\
-https://www.nytimes.com/2026/08/13/business/kalshi-washington-state-ruling.html
-
-**El periodismo y los muros de pago**\
-`Nuestro trabajo se ha vuelto más difícil y costoso debido a que en Estados Unidos, y otros países, el ejercicio periodístico independiente enfrenta un clima cada vez más hostil.`\
-https://www.nytimes.com/es/2026/08/13/espanol/periodismo-paywall-muro-pago.html
-
-**After 2 Plasma Donor Deaths, Company Pauses Clinics in Canada**\
-`Grifols, a Spanish company, said “unfounded attention” on its blood plasma business in Canada had led it to temporarily end collections at 17 clinics.`\
-https://www.nytimes.com/2026/08/13/world/canada/plasma-blood-donation-deaths-grifols.html
-
-**Deaths of 3 ICE Detainees Prompt Questions About Medical Care**\
-`Immigrants at Delaney Hall in Newark have complained about health services. Federal officials defended the treatment provided there and elsewhere.`\
-https://www.nytimes.com/2026/08/13/nyregion/delaney-hall-detainee-health-ice.html
-
-**Engine Blade Hit Window on Jet Before Man Was Partly Sucked Outside, Report Says**\
-`The National Transportation Safety Board said it had found a bird’s remains and feathers on a broken engine.`\
-https://www.nytimes.com/2026/08/13/world/europe/ryanair-flight-passenger-window.html
 

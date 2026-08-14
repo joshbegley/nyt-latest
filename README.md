@@ -30,13 +30,13 @@ https://www.nytimes.com/2026/08/14/opinion/aoc-president-woman-egg-freezing.html
 `Corrections that appeared in print on Friday, Aug. 14, 2026.`\
 https://www.nytimes.com/2026/08/14/pageoneplus/corrections-aug-14-2026.html
 
-**What if America Followed the Rules?**\
-`American foreign policy is at a crossroads. Could international law provide a framework for a foreign policy after President Trump?`\
-https://www.nytimes.com/video/opinion/100000011089809/what-if-america-followed-the-rules.html
-
 **An Unlikely Emergency Appeal to the Supreme Court from a Dog Named Bruce**\
 `A last-ditch filing this week came on behalf of a dog that a judge found to be “vicious” and shows how the court’s emergency docket has been growing.`\
 https://www.nytimes.com/2026/08/14/us/politics/supreme-court-emergency-appeal-bruce-the-dog.html
+
+**What if America Followed the Rules?**\
+`American foreign policy is at a crossroads. Could international law provide a framework for a foreign policy after President Trump?`\
+https://www.nytimes.com/video/opinion/100000011089809/what-if-america-followed-the-rules.html
 
 **Brad Pitt’s Return to Drinking Is Not Unsafe, Experts Say**\
 `His disclosure in an interview revived a key question about sobriety: whether someone who once drank dangerously can ever drink moderately.`\
