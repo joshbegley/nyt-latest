@@ -1,3 +1,11 @@
+**Bienvenidos a la época dorada de la comida mexicana en EE. UU.**\
+`Incluso en una época de políticas antiinmigración, nunca ha habido una variedad tan rica de restaurantes mexicanos en el país.`\
+https://www.nytimes.com/es/2026/08/14/espanol/comida-mexicana-estados-unidos.html
+
+**Outdated American Policy Is Hurting the Afghan People**\
+`A new generation of Afghans wants to move on from the animosities of the past, but Western policies make that difficult.`\
+https://www.nytimes.com/2026/08/14/opinion/afghanistan-us-anniversary-kabul-five-years.html
+
 **Engine Blade Hit Window on Jet Before Man Was Partly Sucked Outside, Report Says**\
 `The National Transportation Safety Board said it had found a bird’s remains and feathers on a broken engine.`\
 https://www.nytimes.com/2026/08/13/world/europe/ryanair-flight-passenger-window.html
