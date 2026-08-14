@@ -1,3 +1,7 @@
+**How Jane Schoenbrun Has Fun With Horror (and Chicken) at Camp Miasma**\
+`The director Jane Schoenbrun breaks down how they played with genre conventions in “Teenage Sex and Death at Camp Miasma.”`\
+https://www.nytimes.com/video/movies/100000011066060/how-jane-schoenbrun-has-fun-with-horror-and-chicken-at-camp-miasma.html
+
 **Christy Knowings, Who Starred on ’90s TV Show ‘All That,’ Dies at 46**\
 `The actress rose to prominence playing absurdist characters on the Nickelodeon series known for joyful silliness.`\
 https://www.nytimes.com/2026/08/14/arts/television/christy-knowings-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/13/nyregion/carlos-chino-garcia-dead.html
 **Readers Choose the Best Thrillers and Mysteries of the Century**\
 `The backbone of the list: nine novels by Tana French, and five novels each from John le Carré, Kate Atkinson and Mick Herron.`\
 https://www.nytimes.com/2026/08/13/books/readers-list-100-best-thrillers-century.html
-
-**Great Movie and TV Adaptations From 21st- Century Thrillers**\
-`From “Slow Horses” to “Big Little Lies,” our list of great psychological thrillers, spy novels and crime fiction have inspired a heap of great adaptations.`\
-https://www.nytimes.com/2026/08/13/books/best-21st-century-thrillers-movie-tv-adaptations.html
 
