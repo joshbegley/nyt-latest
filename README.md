@@ -1,3 +1,19 @@
+**Reseña de ‘El chacal’, el libro sobre Carlos, superterrorista internacional**\
+`En su nuevo libro, Joby Warrick narra el ascenso y la caída de Carlos, el Chacal, el infame terrorista a sueldo.`\
+https://www.nytimes.com/es/2026/08/14/espanol/cultura/carlos-chacal-libro.html
+
+**Si no te preocupaba la IA, el momento ha llegado**\
+`Tras las últimas semanas, deberíamos considerar detener el desarrollo de la IA.`\
+https://www.nytimes.com/es/2026/08/14/espanol/opinion/ia-tecnologia-riesgos-preocupacion.html
+
+**Mamdani’s ‘Bro’ Culture in City Hall: Sports, Memes, Nicknames for All**\
+`As much as Zohran Mamdani’s team runs on leftist idealism and social media hits, its style of governing also relies on humor, sports references and pop culture.`\
+https://www.nytimes.com/2026/08/14/nyregion/mamdani-bro-culture-sports.html
+
+**NYT Spelling Bee Answers for August 14, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/08/14/crosswords/spelling-bee-forum.html
+
 **Nigel Farage Defeats ‘Trash Can’ to Win U.K. Special Election**\
 `Nigel Farage, the leader of Reform U.K., won a special election that he forced after coming under pressure over his finances. He beat Count Binface, a novelty candidate who wears a trash can over his head.`\
 https://www.nytimes.com/video/world/europe/100000011091762/farage-wins-britain-special-election-over-binface.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/interactive/polls/idaho-governor-election-polls-2026.htm
 **Electric Thrills**\
 `Electric motorcycle sales are surging in Pakistan, as wartime prices accelerate the pivot away from fossil fuels in the developing world.`\
 https://www.nytimes.com/2026/08/13/world/pakistan-e-bikes-europe-heat.html
-
-**Who Is Ahead in the Providence, Rhode Island Mayor Race? Latest 2026 Polls**\
-`Track the latest polls in the Providence, R.I., mayoral election.`\
-https://www.nytimes.com/interactive/polls/providence-rhode-island-mayor-election-polls-2026.html
-
-**What We Know About the Storms Battering the Midwest**\
-`A lingering weather system has brought severe flooding and intense winds — including a few tornadoes — to Illinois, Indiana and Ohio.`\
-https://www.nytimes.com/2026/08/13/us/storm-damage-midwest.html
-
-**Charlie Kirk Suspect Fights Death Penalty, Says No Others Were in Danger**\
-`Prosecutors say they can seek the death penalty against Tyler Robinson because he also endangered people near Charlie Kirk, who was shot in the throat last year. Mr. Robinson’s lawyers note that the gunman struck only his target.`\
-https://www.nytimes.com/2026/08/13/us/charlie-kirk-tyler-robinson-death-penalty.html
-
-**Who Is Ahead in the St. Petersburg, Florida Mayor Race? Latest 2026 Polls**\
-`Track the latest polls in the St. Petersburg, Fla., mayoral election.`\
-https://www.nytimes.com/interactive/polls/st-petersburg-florida-mayor-election-polls-2026.html
 
