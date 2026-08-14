@@ -1,3 +1,7 @@
+**The Markets Have Been on a Roll. Is It Time to Hedge Your Bets?**\
+`The S&P 500 is in position for a rare fourth year of consecutive annual gains. Risks are rising, our columnist says, yet Wall Street is doubling down.`\
+https://www.nytimes.com/2026/08/14/business/stock-market-ai-bonds-rally.html
+
 **Record-Breaking Rainfall in Japan Leaves Several People Dead**\
 `Heavy rain in Japan pummeled Chiba Prefecture, a region just east of Tokyo, leaving several people dead and stranding thousands at Narita International Airport.`\
 https://www.nytimes.com/video/world/asia/100000011091919/japan-rain-flooding-chiba.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/14/t-magazine/fall-knits-womens-fashion.html
 **Is Activism Hurting Sociology? Sociologists Are Torn.**\
 `A group of sociologists broke away in protest from their colleagues over disagreements about Israel. Some worry the political stances are harming the field.`\
 https://www.nytimes.com/2026/08/14/us/activist-sociology-independent.html
-
-**Word of the Day: regurgitate**\
-`This word has appeared in 48 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/08/14/learning/word-of-the-day-regurgitate.html
 
