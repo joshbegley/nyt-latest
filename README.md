@@ -1,3 +1,7 @@
+**David Hearn’s Lawyers Ask Court to Bar Future Reflecting Pool Charges**\
+`Citing comments by President Trump, David Hearn raised the prospect of “prosecutorial harassment.”`\
+https://www.nytimes.com/2026/08/14/us/hearn-reflecting-pool-prosecutor-harassment.html
+
 **The Markets Have Been on a Roll. Is It Time to Hedge Your Bets?**\
 `The S&P 500 is in position for a rare fourth year of consecutive annual gains. Risks are rising, our columnist says, yet Wall Street is doubling down.`\
 https://www.nytimes.com/2026/08/14/business/stock-market-ai-bonds-rally.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/14/insider/american-immigration-nationality-map.
 **Fashion for Free Spirits**\
 `Rich with texture, fall’s best knits play with traditional patterns and palettes.`\
 https://www.nytimes.com/2026/08/14/t-magazine/fall-knits-womens-fashion.html
-
-**Is Activism Hurting Sociology? Sociologists Are Torn.**\
-`A group of sociologists broke away in protest from their colleagues over disagreements about Israel. Some worry the political stances are harming the field.`\
-https://www.nytimes.com/2026/08/14/us/activist-sociology-independent.html
 

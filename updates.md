@@ -1,3 +1,7 @@
+**The Markets Have Been on a Roll. Is It Time to Hedge Your Bets?**\
+`The S&P 500 is in position for a rare fourth year of consecutive annual gains. Risks are rising, our columnist says, yet Wall Street is doubling down.`\
+https://www.nytimes.com/2026/08/14/business/stock-market-ai-bonds-rally.html
+
 **Record-Breaking Rainfall in Japan Leaves Several People Dead**\
 `Heavy rain in Japan pummeled Chiba Prefecture, a region just east of Tokyo, leaving several people dead and stranding thousands at Narita International Airport.`\
 https://www.nytimes.com/video/world/asia/100000011091919/japan-rain-flooding-chiba.html
