@@ -30,7 +30,7 @@ https://www.nytimes.com/2026/08/14/style/frish-brandt-dave-evans-wedding.html
 `More than a decade after Molly Ryan last saw Jesse Howard-Bloom, he sent her a message at just the right time.`\
 https://www.nytimes.com/2026/08/14/style/molly-ryan-jesse-howard-bloom-wedding.html
 
-**American Missionary Kidnapped in Niger Said to Be Released From Captivity**\
+**American Missionary Kidnapped in Niger Is Said to Be Released From Captivity**\
 `The release of Kevin Rideout, an American missionary pilot who was seized in Niger’s capital last fall, has been a priority for the White House.`\
 https://www.nytimes.com/2026/08/13/us/politics/kevin-rideout-niger-islamic-state.html
 

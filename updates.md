@@ -1,3 +1,7 @@
+**American Missionary Kidnapped in Niger Is Said to Be Released From Captivity**\
+`The release of Kevin Rideout, an American missionary pilot who was seized in Niger’s capital last fall, has been a priority for the White House.`\
+https://www.nytimes.com/2026/08/13/us/politics/kevin-rideout-niger-islamic-state.html
+
 **Quote of the Day: Eclipse Was a Chance to Teach, and to Party**\
 `Quotation of the Day for Friday, August 14, 2026.`\
 https://www.nytimes.com/2026/08/14/pageoneplus/quote-of-the-day-eclipse-was-a-chance-to-teach-and-to-party.html
