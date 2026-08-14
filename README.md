@@ -1,3 +1,7 @@
+**West Bank Settlers Continue to Besiege Palestinian Families**\
+`Two Palestinian families have been trapped by violent Israeli settlers in the West Bank since Sunday. The Israeli military evicted the settlers, but they returned hours later.`\
+https://www.nytimes.com/video/world/middleeast/100000011092024/west-bank-israel-palestinian-familiies.html
+
 **Un portaaviones de la Marina de EE. UU. causa preocupación**\
 `El USS Abraham Lincoln ha estado desplegado casi nueve meses, primero en el mar Caribe y ahora en Medio Oriente, por lo que hay inquietudes sobre el bienestar de la tripulación.`\
 https://www.nytimes.com/es/2026/08/14/espanol/estados-unidos/ejercito-portaaviones-preocupacion-guerra-iran.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/14/podcasts/nba-kawhi-leonard-jumbotron.html
 **What if America Followed the Rules?**\
 `American foreign policy is at a crossroads. Could international law provide a framework for a foreign policy after President Trump?`\
 https://www.nytimes.com/2026/08/14/opinion/ezra-klein-podcast-linda-kinstler.html
-
-**Las vacunas contra la covid no están vinculadas a los abortos espontáneos**\
-`Republicanos destacados y otras personas hicieron esta afirmación falsa, aprovechando de manera engañosa unos antiguos mensajes de texto de Anthony Fauci.`\
-https://www.nytimes.com/es/2026/08/14/espanol/vacunas-covid-aborto.html
 
