@@ -1,3 +1,7 @@
+**Jimmy Fallon Reacts to Karoline Leavitt’s White House Exit**\
+`The “Tonight Show” host said President Trump had been surprised by the press secretary’s decision to step down. “She was like, ‘I wanted to wait for a good time but there hasn’t been one, so.’”`\
+https://www.nytimes.com/2026/08/14/arts/television/late-night-jimmy-fallon-karoline-leavitt.html
+
 **Farage Wins Special U.K. Election That He Initiated, as Expected**\
 `Nigel Farage, the leader of Reform U.K., won the parliamentary by-election in Clacton. Count Binface, his costumed main rival, came second.`\
 https://www.nytimes.com/2026/08/14/world/europe/farage-binface-clacton-result-byelection.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/13/world/middleeast/west-bank-siege-israeli-sett
 **De Venezuela a Colombia: este grupo de rescatistas no ha parado**\
 `Los Topos Azteca, un grupo mexicano de rescate voluntario que trabaja en todo el mundo y ayudó tras los ataques del 11 de septiembre, llegó a Colombia después de buscar sobrevivientes en Venezuela.`\
 https://www.nytimes.com/es/2026/08/13/espanol/america-latina/terremoto-colombia-venezuela-topos-mexico.html
-
-**‘An American Daughter’ Review: Wendy Wasserstein’s Cautionary Tale**\
-`The playwright’s drama about a woman’s troubled nomination for surgeon general arrives Off Broadway. It’s all very ’90s and still very now.`\
-https://www.nytimes.com/2026/08/13/theater/american-daughter-review-wendy-wasserstein.html
 
