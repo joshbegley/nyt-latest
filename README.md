@@ -1,3 +1,11 @@
+**Is It Safe to Eat Lettuce and Other Fresh Produce as Cyclospora Outbreak Wanes?**\
+`As the largest cyclospora outbreak in U.S. history wanes, experts weigh in on whether iceberg and other fresh produce are still a risk.`\
+https://www.nytimes.com/2026/08/14/well/eat/cyclospora-lettuce-jalapenos-produce-safe.html
+
+**‘I’m Not Ashamed of My Face-Lift’**\
+`The Opinion contributing writer Molly Jong-Fast is not about to feel bad about her face-lift.`\
+https://www.nytimes.com/video/opinion/100000011093183/im-not-ashamed-of-my-face-lift.html
+
 **Trump Dismisses Reports About Dire Conditions Aboard U.S.S. Abraham Lincoln**\
 `Asked whether the deployment of the Abraham Lincoln had gone on too long, the president said its deployment had lasted “not nearly long enough.”`\
 https://www.nytimes.com/2026/08/14/us/politics/trump-uss-abraham-lincoln.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/14/world/europe/cezanne-renoir-matisse-heist-rec
 **Why Europe Keeps Being Pummeled by Heat Waves**\
 `The whole planet is warming, but changes in weather patterns could help explain why the continent is suffering so many bouts of severe heat.`\
 https://www.nytimes.com/2026/08/14/climate/europe-heat-waves-jet-stream.html
-
-**Today, In Short**\
-`Emojis. Tate McRae. And the best Mexican restaurants.`\
-https://www.nytimes.com/2026/08/14/briefing/today-in-short.html
-
-**This Cheesy Corn Salad Speaks for Itself**\
-`And more of the week’s most popular recipes.`\
-https://www.nytimes.com/2026/08/14/dining/this-cheesy-corn-salad-speaks-for-itself.html
 
