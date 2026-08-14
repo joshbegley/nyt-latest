@@ -1,3 +1,15 @@
+**Map: 5.2-Magnitude Earthquake Strikes Spain**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/08/14/world/europe/spain-quake-tracker.html
+
+**South Florida Venue Cancels Rally With a Pro-Palestinian Congresswoman**\
+`Representative Rashida Tlaib was supposed to headline an event called “Chomp the Oligarchy” for three candidates for Congress who face Jewish Democrats in Tuesday’s primary.`\
+https://www.nytimes.com/2026/08/14/us/politics/florida-senate-nixon-tlaib.html
+
+**Two Billy Goats Boarded a Bus in Portland. They Did Not Have Passes.**\
+`Security camera footage showed the goats entering the TriMet bus in Portland, Ore., through the middle doors before some passengers shooed them off. They have since been reunited with their owner.`\
+https://www.nytimes.com/2026/08/14/us/goats-bus-portland-oregon.html
+
 **Despite Mamdani’s Attempts to Appease, Many Business Leaders Remain Wary**\
 `The mayor’s attempt to create a business advisory council has been hampered by some concern that joining the council may be perceived as an endorsement of Mr. Mamdani.`\
 https://www.nytimes.com/2026/08/14/nyregion/mamdani-business-advisers.html
@@ -14,8 +26,8 @@ https://www.nytimes.com/interactive/2026/08/14/world/asia/indonesia-quake-tracke
 `Two teens were accused of killing a man in a Connecticut deli in 1999. Their lawyers said the police hid evidence and intimidated witnesses.`\
 https://www.nytimes.com/2026/08/14/nyregion/new-haven-wrongful-conviction-payout.html
 
-**Hawaiian Electric Warns Any Power Outages May Last Days**\
-`The severe tropical weather conditions from the approaching storm Lala are expected to topple trees and down power lines as it crosses the state.`\
+**Hawaiian Electric Warns That Power Outages Could Last for Days**\
+`Strong winds from Tropical Storm Lala, which will likely become a hurricane while approaching Hawaii, are expected to topple trees and down power lines.`\
 https://www.nytimes.com/2026/08/14/weather/hurricane-lala-hawaii-power-grid.html
 
 **President Trump Takes Credit for Steep Crime Rate Declines**\
@@ -62,7 +74,7 @@ https://www.nytimes.com/es/interactive/2026/08/14/espanol/emojis-significado-eda
 `American foreign policy is at a crossroads. What’s next? The Times Opinion columnist Ezra Klein explores the case for abiding by the rules-based international order.`\
 https://www.nytimes.com/video/opinion/100000011089811/america-needs-a-follow-the-rules-foreign-policy.html
 
-**Jason Arday, académico de Cambridge bajo sospecha de plagio, es reportado muerto**\
+**Muere Jason Arday, académico de Cambridge investigado por sospecha de plagio**\
 `La policía británica dijo que se había encontrado sin vida a un hombre en una casa vinculada a Arday, quien estaba siendo investigado por acusaciones de plagio y engaño.`\
 https://www.nytimes.com/es/2026/08/14/espanol/mundo/jason-arday-cambridge-muerte.html
 
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/08/14/us/blue-angels-uniforms-contract-shop.html
 **Read Mangione’s Motion Arguing Double Jeopardy in State Case**\
 `Soon after Luigi Mangione pleaded guilty to federal charges in the 2024 killing of the chief executive of UnitedHealthcare, his lawyers filed a motion arguing that separate state charges should be dismissed.`\
 https://www.nytimes.com/interactive/2026/08/14/nyregion/mangione-double-jeopardy-motion.html
-
-**What’s Next for Luigi Mangione After His Guilty Plea?**\
-`Mr. Mangione’s plea in the federal case could make it difficult for New York State prosecutors to try their own case.`\
-https://www.nytimes.com/2026/08/14/nyregion/what-is-next-luigi-mangione-case.html
-
-**Should Red and Blue States Get a Divorce?**\
-`Responses to an essay about whether America should remain one nation. Also: Christie Brinkley, on nuclear reactors; military aid to Ukraine; whiskey with friends.`\
-https://www.nytimes.com/2026/08/14/opinion/red-blue-states-us-secession.html
-
-**A Timeline of Luigi Mangione’s Cases, From the UnitedHealthcare CEO’s Killing to a Guilty Plea**\
-`The shooting of a health care executive in December 2024 led to a sprawling manhunt, and two complex and interwoven cases.`\
-https://www.nytimes.com/2026/08/14/nyregion/luigi-mangione-timeline.html
 

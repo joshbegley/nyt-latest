@@ -1,3 +1,23 @@
+**Map: 5.2-Magnitude Earthquake Strikes Spain**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/08/14/world/europe/spain-quake-tracker.html
+
+**South Florida Venue Cancels Rally With a Pro-Palestinian Congresswoman**\
+`Representative Rashida Tlaib was supposed to headline an event called “Chomp the Oligarchy” for three candidates for Congress who face Jewish Democrats in Tuesday’s primary.`\
+https://www.nytimes.com/2026/08/14/us/politics/florida-senate-nixon-tlaib.html
+
+**Two Billy Goats Boarded a Bus in Portland. They Did Not Have Passes.**\
+`Security camera footage showed the goats entering the TriMet bus in Portland, Ore., through the middle doors before some passengers shooed them off. They have since been reunited with their owner.`\
+https://www.nytimes.com/2026/08/14/us/goats-bus-portland-oregon.html
+
+**Hawaiian Electric Warns That Power Outages Could Last for Days**\
+`Strong winds from Tropical Storm Lala, which will likely become a hurricane while approaching Hawaii, are expected to topple trees and down power lines.`\
+https://www.nytimes.com/2026/08/14/weather/hurricane-lala-hawaii-power-grid.html
+
+**Muere Jason Arday, académico de Cambridge investigado por sospecha de plagio**\
+`La policía británica dijo que se había encontrado sin vida a un hombre en una casa vinculada a Arday, quien estaba siendo investigado por acusaciones de plagio y engaño.`\
+https://www.nytimes.com/es/2026/08/14/espanol/mundo/jason-arday-cambridge-muerte.html
+
 **Despite Mamdani’s Attempts to Appease, Many Business Leaders Remain Wary**\
 `The mayor’s attempt to create a business advisory council has been hampered by some concern that joining the council may be perceived as an endorsement of Mr. Mamdani.`\
 https://www.nytimes.com/2026/08/14/nyregion/mamdani-business-advisers.html

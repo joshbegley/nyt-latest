@@ -1,3 +1,7 @@
+**Man, 18, Pleads Guilty to Repeatedly Kicking Sea Lion in California**\
+`The man bobbed and wove before lobbing a kick at a sea lion in San Diego last month, a video of the episode shows.`\
+https://www.nytimes.com/2026/08/14/us/sea-lion-kicked-guilty-california.html
+
 **Map: 5.2-Magnitude Earthquake Strikes Spain**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/08/14/world/europe/spain-quake-tracker.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/14/world/europe/farage-britain-trump-playbook-an
 **She Sewed the Blue Angels’ Suits for 40 Years. Then a Big Company Got the Job.**\
 `Jellie Whitehurst in Pensacola, Fla., was surprised to learn that after decades, the Navy had awarded a $1.7 million contract to a company in Virginia to supply the gear.`\
 https://www.nytimes.com/2026/08/14/us/blue-angels-uniforms-contract-shop.html
-
-**Read Mangione’s Motion Arguing Double Jeopardy in State Case**\
-`Soon after Luigi Mangione pleaded guilty to federal charges in the 2024 killing of the chief executive of UnitedHealthcare, his lawyers filed a motion arguing that separate state charges should be dismissed.`\
-https://www.nytimes.com/interactive/2026/08/14/nyregion/mangione-double-jeopardy-motion.html
 
