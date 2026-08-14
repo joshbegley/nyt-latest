@@ -1,3 +1,23 @@
+**Why Europe Keeps Being Pummeled by Heat Waves**\
+`The whole planet is warming, but changes in weather patterns could help explain why the continent is suffering so many bouts of severe heat.`\
+https://www.nytimes.com/2026/08/14/climate/europe-heat-waves-jet-stream.html
+
+**Today, In Short**\
+`Emojis. Tate McRae. And the best Mexican restaurants.`\
+https://www.nytimes.com/2026/08/14/briefing/today-in-short.html
+
+**This Cheesy Corn Salad Speaks for Itself**\
+`And more of the week’s most popular recipes.`\
+https://www.nytimes.com/2026/08/14/dining/this-cheesy-corn-salad-speaks-for-itself.html
+
+**Democrats Have ‘Woke 1.0.’ The G.O.P. Has Trump. Which Is the Bigger Drag?**\
+`Both parties face hurdles heading into the fall.`\
+https://www.nytimes.com/2026/08/14/opinion/midterms-trump-elections-democrat-republican.html
+
+**Five Horror Movies to Stream Now**\
+`In these picks: sinister sounds, a troubled teenager and musical maniacs.`\
+https://www.nytimes.com/2026/08/14/movies/horror-movies-streaming.html
+
 **Amazon and Alphabet’s Profits Reveal Circular Nature of A.I. Boom**\
 `Investment gains at Alphabet and Amazon reveal a new way in which technology companies’ fortunes are increasingly linked.`\
 https://www.nytimes.com/2026/08/14/business/ai-tech-profits.html
@@ -54,7 +74,7 @@ https://www.nytimes.com/2026/08/14/world/middleeast/jared-kushner-visit-israel-h
 `The trading platform raised $200 million for a second publicly traded vehicle to let ordinary investors buy into privately held start-ups.`\
 https://www.nytimes.com/2026/08/14/business/dealbook/robinhood-public-venture-capital-fund.html
 
-**Heat is Hammering Europe, Again. Here’s What That Looks Like.**\
+**Heat Is Hammering Europe, Again. Here’s What That Looks Like.**\
 `Extreme temperatures and repeated wildfires are pushing infrastructure to the limit and testing the continent’s resolve.`\
 https://www.nytimes.com/2026/08/14/world/europe/europe-heat-wave-photos.html
 
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/08/14/books/review/dnf-reader-comments.html
 **Now for Sale at Christie’s: Art by People Who Work at Christie’s**\
 `The auction house is displaying works made by its employees, who craft their works on kitchen tables and in living rooms.`\
 https://www.nytimes.com/2026/08/14/nyregion/now-for-sale-at-christies-art-by-people-who-work-at-christies.html
-
-**5 Children’s Movies to Stream Now**\
-`This month’s picks include two new additions to popular Disney musical franchises.`\
-https://www.nytimes.com/2026/08/14/movies/kids-movies-streaming-now.html
-
-**Pick Your Favorite Summer House in Iceland**\
-`Three two-story cottages offer scenic views and close access to mountains, glaciers and waterfalls.`\
-https://www.nytimes.com/2026/08/14/realestate/pick-your-favorite-summer-house-in-iceland.html
-
-**Phoebe Bridgers Reaches New Heights With “Lost Weekend”**\
-`Humor and pathos coexist, resulting in the best album of her career.`\
-https://www.nytimes.com/2026/08/14/arts/music/phoebe-bridgers-lost-weekend-review.html
-
-**These A.I. Policies Will Hurt Our Business. We Should Do Them Anyway.**\
-`The risks posed by A.I. are too great to forgo any regulation, even for those who stand to gain tremendously from the technology’s rise.`\
-https://www.nytimes.com/2026/08/14/opinion/ai-policy-tax-technology.html
-
-**A ‘Schmigadoon!’ Cast Album and More Theater to Stream**\
-`Other streaming picks include a deft “Winter’s Tale,” a reimagining of a solo show about sex work and a ’70s production of Chekhov by tweens.`\
-https://www.nytimes.com/2026/08/14/theater/schmigadoon-cast-album-theater-streaming.html
 
