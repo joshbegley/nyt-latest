@@ -1,3 +1,31 @@
+**Palestinian Rappers Shabjdeed and Saint Levant in Spat Over Authenticity**\
+`Shabjdeed, a rapper in the West Bank, criticized a fellow Palestinian musician in a song, saying his Western lifestyle and lyrics were far removed from life back home.`\
+https://www.nytimes.com/2026/08/14/world/middleeast/shabjdeed-saint-levant-slv.html
+
+**This Reporter Can Tell Us What Nuclear Apocalypse Looks Like (Encore)**\
+`We bring back an episode from our archives, in which Annie Jacobsen discusses her 2024 book “Nuclear War: A Scenario.”`\
+https://www.nytimes.com/2026/08/14/podcasts/this-reporter-can-tell-us-what-nuclear-apocalypse-looks-like-encore.html
+
+**In “The Bend in the River,” Robb Moss’s Old Friends Reflect on Aging**\
+`In “The Bend in the River,” Robb Moss catches up with the subjects of two of his previous films as they reflect on their lives and what’s left.`\
+https://www.nytimes.com/2026/08/14/movies/the-bend-in-the-river-review.html
+
+**After Notre-Dame Fire, France Restored the Cathedral — but Not These Windows**\
+`France has faithfully renovated most of what burned at Notre-Dame in 2019. Contentiously, six towering windows will soon be replaced by a new design.`\
+https://www.nytimes.com/2026/08/14/world/europe/notre-dame-windows-glass-tabouret.html
+
+**Federal Job Cuts Are Making Wildfires Harder to Fight**\
+`The Trump administration pushed out thousands of veteran U.S. Forest Service staff. An ‘extraordinary’ fire season is testing those who are left.`\
+https://www.nytimes.com/2026/08/14/climate/wildfires-forest-service-trump-cuts.html
+
+**How Jane Schoenbrun Has Fun With Horror (and Chicken) at Camp Miasma**\
+`The director discusses a key scene from “Teenage Sex and Death at Camp Miasma,” featuring Hannah Einbinder and Gillian Anderson.`\
+https://www.nytimes.com/2026/08/14/movies/teenage-sex-and-death-at-camp-miasma-clip.html
+
+**How We Created an Intricate Tapestry of Americans’ Roots**\
+`Combing through census data to map out national origins was a challenge for a group of Times journalists who built a colorful reflection of the country.`\
+https://www.nytimes.com/2026/08/14/insider/american-immigration-nationality-map.html
+
 **Fashion for Free Spirits**\
 `Rich with texture, fall’s best knits play with traditional patterns and palettes.`\
 https://www.nytimes.com/2026/08/14/t-magazine/fall-knits-womens-fashion.html
@@ -165,36 +193,4 @@ https://www.nytimes.com/2026/08/14/style/molly-ryan-jesse-howard-bloom-wedding.h
 **American Missionary Kidnapped in Niger Is Said to Be Released From Captivity**\
 `The release of Kevin Rideout, an American missionary pilot who was seized in Niger’s capital last fall, has been a priority for the White House.`\
 https://www.nytimes.com/2026/08/13/us/politics/kevin-rideout-niger-islamic-state.html
-
-**NYT Crossword Answers for Aug. 14, 2026**\
-`Zhou Zhang opens our solving weekend.`\
-https://www.nytimes.com/2026/08/13/crosswords/daily-puzzle-2026-08-14.html
-
-**California Ignored Sexual Abuse of Women in Prison, Justice Dept. Says**\
-`A Justice Department report released on Thursday found that inmates at two state-run women’s prisons routinely had their rights violated. State officials say they have already put reforms in place.`\
-https://www.nytimes.com/2026/08/13/us/california-sexual-abuse-women-prison.html
-
-**New York Will Compost and Target Dog Waste in the City**\
-`The City Council passed a package of bills on Thursday to prevent dog poop from accumulating on sidewalks and in parks.`\
-https://www.nytimes.com/2026/08/13/nyregion/dog-poop-city-council-nyc.html
-
-**Kalshi Ordered to Cease Most Operations in Washington State**\
-`In a preliminary injunction, a state judge barred the prediction market from allowing residents to place bets on the bulk of its offerings.`\
-https://www.nytimes.com/2026/08/13/business/kalshi-washington-state-ruling.html
-
-**El periodismo y los muros de pago**\
-`Nuestro trabajo se ha vuelto más difícil y costoso debido a que en Estados Unidos, y otros países, el ejercicio periodístico independiente enfrenta un clima cada vez más hostil.`\
-https://www.nytimes.com/es/2026/08/13/espanol/periodismo-paywall-muro-pago.html
-
-**After 2 Plasma Donor Deaths, Company Pauses Clinics in Canada**\
-`Grifols, a Spanish company, said “unfounded attention” on its blood plasma business in Canada had led it to temporarily end collections at 17 clinics.`\
-https://www.nytimes.com/2026/08/13/world/canada/plasma-blood-donation-deaths-grifols.html
-
-**Deaths of 3 ICE Detainees Prompt Questions About Medical Care**\
-`Immigrants at Delaney Hall in Newark have complained about health services. Federal officials defended the treatment provided there and elsewhere.`\
-https://www.nytimes.com/2026/08/13/nyregion/delaney-hall-detainee-health-ice.html
-
-**Engine Blade Hit Window on Jet Before Man Was Partly Sucked Outside, Report Says**\
-`The National Transportation Safety Board said it had found a bird’s remains and feathers on a broken engine.`\
-https://www.nytimes.com/2026/08/13/world/europe/ryanair-flight-passenger-window.html
 

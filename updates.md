@@ -1,3 +1,71 @@
+**Fashion for Free Spirits**\
+`Rich with texture, fall’s best knits play with traditional patterns and palettes.`\
+https://www.nytimes.com/2026/08/14/t-magazine/fall-knits-womens-fashion.html
+
+**Is Activism Hurting Sociology? Sociologists Are Torn.**\
+`A group of sociologists broke away in protest from their colleagues over disagreements about Israel. Some worry the political stances are harming the field.`\
+https://www.nytimes.com/2026/08/14/us/activist-sociology-independent.html
+
+**Word of the Day: regurgitate**\
+`This word has appeared in 48 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/08/14/learning/word-of-the-day-regurgitate.html
+
+**Gone in 20 Minutes: Half-Off Sushi Draws Throngs to New York’s Japanese Markets**\
+`At a proliferating number of stores, discounts on items like sushi are offered after 8 p.m. To get the best meals, you have to be there early.`\
+https://www.nytimes.com/2026/08/14/nyregion/gone-in-20-minutes-half-off-sushi-draws-throngs-to-new-yorks-japanese-markets.html
+
+**‘A Dying Community’: An Energy Crisis Worsened by the War Strains Alaska**\
+`Diesel generators produce the electricity for small towns and hamlets like Manley Hot Springs, Alaska. Prices are soaring with no end in sight.`\
+https://www.nytimes.com/2026/08/14/us/rural-alaska-oil-prices-iran.html
+
+**Children’s Picture Books About Sleep and Dreaming**\
+`New works cover everything from dreams to gods to insomnia.`\
+https://www.nytimes.com/2026/08/14/books/review/sleep-dreams-childrens-picture-books.html
+
+**How Thrillers Hook You With Their First Sentence**\
+`Can our Book Review editor, Tina Jordan, guess thrillers from their first sentence? In this game we explore a few of the books from The New York Times’s “50 Best Thrillers of the 21st Century” list; and learn a bit more about why opening sentences are so important to get people reading.`\
+https://www.nytimes.com/video/books/100000011051376/how-thrillers-hook-you-with-their-first-sentence.html
+
+**RM, a Superstar With BTS, Gets Hois Feet Wet As an Art Curator**\
+`RM, of BTS, brings 145 works by Korean artists to SFMOMA this fall. “I know Picasso, I know van Gogh. I don’t know anyone from my country,” he told himself as he began to buy. “You have to find your root.”`\
+https://www.nytimes.com/2026/08/14/arts/design/bts-rm-art-museum.html
+
+**A Silicon Valley Dirt Farmer Hangs Up His Shears**\
+`Andy Mariani grows exotic and ethereally delicious stone fruit in the shadow of tech giants. But at age 80, it’s time to give up the land.`\
+https://www.nytimes.com/2026/08/14/business/a-silicon-valley-dirt-farmer-hangs-up-his-shears.html
+
+**Chatbots Are Pushing Us Toward a Post-Human Internet**\
+`In matters of work, school and even romance, we turn to A.I. chatbots. But what happens when the bots begin talking to one another?`\
+https://www.nytimes.com/2026/08/14/magazine/ai-chatbots-internet-communication-loops.html
+
+**Russia Campaigned to Derail Moldova’s Pro-Western Government**\
+`In Moldova, Moscow paid Orthodox priests, conducted a vote-buying scheme and set up training camps on election interference — all in an effort to derail the Western-leaning government.`\
+https://www.nytimes.com/2026/08/14/world/europe/russia-moldova-putin.html
+
+**We Critiqued the Woke Left. Now We’re Warning the Woke Right.**\
+`The right’s reluctance to gatekeep may be its undoing.`\
+https://www.nytimes.com/2026/08/14/opinion/republicans-woke-radical.html
+
+**Inside Rural Alaska’s Energy Crisis**\
+`Anna Griffin, our Pacific Northwest bureau chief, visits rural Alaska to look at the ways the Iran war worsened an energy crisis there.`\
+https://www.nytimes.com/video/us/100000011027537/alaska-energy-crisis.html
+
+**How Pennsylvania Got Hooked on Games That Look a Lot Like Slot Machines**\
+`A legal loophole kept “skill games” from being considered gambling. Now lawmakers are trying to save them from a court ruling.`\
+https://www.nytimes.com/2026/08/14/upshot/gambling-pennsylvania-slots-skill-games.html
+
+**Extreme Heat Is the New Normal**\
+`Firefighters in Phoenix race to save lives in a city that’s only getting hotter.`\
+https://www.nytimes.com/2026/08/14/opinion/extreme-heat-arizona-climate-change.html
+
+**The News Quiz, August 14, 2026**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://www.nytimes.com/quiz/2026/08/14/briefing/weekly-news-quiz.html
+
+**Can You Hoard a Food Item You Really Like?**\
+`A ruling on a grocery shopping debate.`\
+https://www.nytimes.com/quiz/2026/08/13/magazine/food-hoarding-hodgman-quiz
+
 **As Europe Gets Hotter, Its Transportation Systems Struggle to Cope**\
 `The continent’s railways and roads “were engineered for a climate that no longer exists,” one expert said.`\
 https://www.nytimes.com/2026/08/14/world/europe/heat-trains-transportation-roads.html
