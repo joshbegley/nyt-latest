@@ -1,3 +1,11 @@
+**Farage Wins Special U.K. Election That He Initiated, as Expected**\
+`Nigel Farage, the leader of Reform U.K., won the parliamentary by-election in Clacton. Count Binface, his costumed main rival, came second.`\
+https://www.nytimes.com/2026/08/14/world/europe/farage-binface-clacton-result-byelection.html
+
+**Stavros Halkias: ‘I Don’t Want the President on My Podcast’**\
+`Watch the full Popcast conversation with Stavros Halkias here. Edited excerpts from the interview are below.`\
+https://www.nytimes.com/video/podcasts/100000011084155/stavros-halkias-never-wanted-to-get-political.html
+
 **Afghan Women Erased From Public Life in Five Years of Taliban Rule**\
 `Decrees restricting the rights of women and girls to study, work, travel and act independently now threaten to damage Afghanistan permanently, experts say.`\
 https://www.nytimes.com/2026/08/13/world/asia/afghan-women-taliban-rule.html

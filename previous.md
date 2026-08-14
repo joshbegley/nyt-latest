@@ -1,3 +1,7 @@
+**Farage Wins Special U.K. Election That He Initiated, as Expected**\
+`Nigel Farage, the leader of Reform U.K., won the parliamentary by-election in Clacton. Count Binface, his costumed main rival, came second.`\
+https://www.nytimes.com/2026/08/14/world/europe/farage-binface-clacton-result-byelection.html
+
 **Bienvenidos a la época dorada de la comida mexicana en EE. UU.**\
 `Incluso en una época de políticas antiinmigración, nunca ha habido una variedad tan rica de restaurantes mexicanos en el país.`\
 https://www.nytimes.com/es/2026/08/14/espanol/comida-mexicana-estados-unidos.html
@@ -114,7 +118,7 @@ https://www.nytimes.com/video/podcasts/100000011084159/stavros-halkias-calls-out
 `To document the celestial event on Wednesday, a photographer had to get creative.`\
 https://www.nytimes.com/2026/08/13/insider/solar-eclipse-photo.html
 
-**Stavros Halkias Never Wanted to Get Political**\
+**Stavros Halkias: ‘I Don’t Want the President on My Podcast’**\
 `Watch the full Popcast conversation with Stavros Halkias here. Edited excerpts from the interview are below.`\
 https://www.nytimes.com/video/podcasts/100000011084155/stavros-halkias-never-wanted-to-get-political.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/08/13/espanol/america-latina/terremoto-colombia-
 **‘An American Daughter’ Review: Wendy Wasserstein’s Cautionary Tale**\
 `The playwright’s drama about a woman’s troubled nomination for surgeon general arrives Off Broadway. It’s all very ’90s and still very now.`\
 https://www.nytimes.com/2026/08/13/theater/american-daughter-review-wendy-wasserstein.html
-
-**Early-Onset El Niño**\
-`The global weather disrupter appears to be taking a toll, and its peak could still be months away.`\
-https://www.nytimes.com/2026/08/13/climate/el-nino-effects.html
 
