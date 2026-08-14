@@ -1,3 +1,7 @@
+**Afghan Women Erased From Public Life in Five Years of Taliban Rule**\
+`Decrees restricting the rights of women and girls to study, work, travel and act independently now threaten to damage Afghanistan permanently, experts say.`\
+https://www.nytimes.com/2026/08/13/world/asia/afghan-women-taliban-rule.html
+
 **Bienvenidos a la época dorada de la comida mexicana en EE. UU.**\
 `Incluso en una época de políticas antiinmigración, nunca ha habido una variedad tan rica de restaurantes mexicanos en el país.`\
 https://www.nytimes.com/es/2026/08/14/espanol/comida-mexicana-estados-unidos.html
