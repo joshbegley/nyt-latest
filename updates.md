@@ -1,3 +1,11 @@
+**Russell Fry to Back Darline Graham in South Carolina Senate Runoff Amid Trump Pressure**\
+`The president has been focused on the race since the death of Lindsey Graham in July. Ms. Graham, the late senator’s sister, is competing against Representative Ralph Norman in a runoff on Aug. 25.`\
+https://www.nytimes.com/2026/08/14/us/politics/russell-fry-darline-graham-south-carolina.html
+
+**Stolen Cézanne, Renoir and Matisse Works Are Recovered, Police Say**\
+`The Italian military police said that art collectively valued at more than $10 million had been found five months after being taken in a nighttime heist near Parma.`\
+https://www.nytimes.com/2026/08/14/world/europe/cezanne-renoir-matisse-heist-recovered.html
+
 **Why Europe Keeps Being Pummeled by Heat Waves**\
 `The whole planet is warming, but changes in weather patterns could help explain why the continent is suffering so many bouts of severe heat.`\
 https://www.nytimes.com/2026/08/14/climate/europe-heat-waves-jet-stream.html

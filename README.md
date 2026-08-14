@@ -46,8 +46,8 @@ https://www.nytimes.com/2026/08/14/climate/climate-superfund-professor-lawsuit-e
 `The United Healthcare chief executive rose from humble Midwestern beginnings to the top position at a health insurance giant.`\
 https://www.nytimes.com/2026/08/14/nyregion/who-brian-thompson-unitedhealthcare-ceo-mangione.html
 
-**Live Updates: Mangione Is Expected to Plead Guilty to Federal Charges**\
-`Luigi Mangione, 28, faces federal stalking charges that led to the 2024 killing of a health insurance executive, Brian Thompson, in Manhattan. He is scheduled to be tried for murder in state court next month.`\
+**Live Updates: Mangione Arrives in Federal Court, Where He Is Expected to Plead Guilty**\
+`Luigi Mangione, 28, faces federal stalking charges in connection with the 2024 killing of a health insurance executive, Brian Thompson, in Manhattan. He is set to be tried for murder in state court next month.`\
 https://www.nytimes.com/live/2026/08/14/nyregion/luigi-mangione-plea-deal
 
 **Ian Frazier Wrote ‘Coyote v. Acme’ in 1990. Now It’s a Movie.**\
