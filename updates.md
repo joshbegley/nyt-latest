@@ -1,3 +1,7 @@
+**Jimmy Fallon Reacts to Karoline Leavitt’s White House Exit**\
+`The “Tonight Show” host said President Trump had been surprised by the press secretary’s decision to step down. “She was like, ‘I wanted to wait for a good time but there hasn’t been one, so.’”`\
+https://www.nytimes.com/2026/08/14/arts/television/late-night-jimmy-fallon-karoline-leavitt.html
+
 **Farage Wins Special U.K. Election That He Initiated, as Expected**\
 `Nigel Farage, the leader of Reform U.K., won the parliamentary by-election in Clacton. Count Binface, his costumed main rival, came second.`\
 https://www.nytimes.com/2026/08/14/world/europe/farage-binface-clacton-result-byelection.html
