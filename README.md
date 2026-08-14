@@ -1,3 +1,7 @@
+**Mark Rydell, ‘Actor’s Director’ Known for ‘On Golden Pond,’ Dies at 97**\
+`Having started out as an actor, he was able to coax sensitive work out of performers like Bette Midler, Katharine Hepburn, Henry Fonda and John Wayne.`\
+https://www.nytimes.com/2026/08/14/movies/mark-rydell-dead.html
+
 **Luigi Mangione Pleads Guilty**\
 `Also, an Alaska Democrat says no thanks to Kamala Harris’s support. Here’s the latest at the end of Friday.`\
 https://www.nytimes.com/2026/08/14/briefing/luigi-mangione-pleads-guilty.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/14/business/jeff-bezos-liverpool-football-club.h
 **The New Macho**\
 `Plus: The woman helping all of us get dressed and thoughts on the other September magazine covers.`\
 https://www.nytimes.com/2026/08/14/style/gq-masculinity-men.html
-
-**July Retail Sales Notch Biggest Drop in Over a Year**\
-`The data for July showed the biggest drop in more than a year, as American households face the economic strains brought on by persistent inflation`\
-https://www.nytimes.com/2026/08/14/business/retail-sales-july.html
 

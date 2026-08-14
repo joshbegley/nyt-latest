@@ -1,3 +1,11 @@
+**Luigi Mangione Pleads Guilty**\
+`Also, an Alaska Democrat says no thanks to Kamala Harris’s support. Here’s the latest at the end of Friday.`\
+https://www.nytimes.com/2026/08/14/briefing/luigi-mangione-pleads-guilty.html
+
+**Five Arrested After Three Stolen Artworks Were Recovered by Italian Officials**\
+`Valued at over $10 million, three artworks that were stolen during a nighttime raid at the Magnani-Rocca Foundation in March have been recovered by Italian officials. Five people have been arrested in connection with the thefts, according to Italy’s military police.`\
+https://www.nytimes.com/video/world/europe/100000011092401/italy-art-heist-artwork-recovered.html
+
 **😭 o 😂: ¿Tus emojis delatan tu edad?**\
 `Cuando se trata del uso de emojis, todos simplemente imitamos a las adolescentes.`\
 https://www.nytimes.com/es/interactive/2026/08/14/espanol/emojis-significado-edad.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/08/14/style/gq-masculinity-men.html
 **July Retail Sales Notch Biggest Drop in Over a Year**\
 `The data for July showed the biggest drop in more than a year, as American households face the economic strains brought on by persistent inflation`\
 https://www.nytimes.com/2026/08/14/business/retail-sales-july.html
-
-**Tropical Storm Lala Expected to Strengthen to a Hurricane as It Nears Hawaii**\
-`Up to 25 inches of rain could fall on the Big Island, forecasters said.`\
-https://www.nytimes.com/live/2026/08/14/weather/lala-tropical-storm-hurricane-hawaii
-
-**Mining Claims Staked on Land Cut From Bears Ears and Grand Staircase Monuments**\
-`Prospectors are eyeing mineral deposits within the former boundaries of the Bears Ears and Grand Staircase-Escalante National Monuments in Utah.`\
-https://www.nytimes.com/2026/08/14/climate/mining-trump-utah-monuments.html
 

@@ -1,3 +1,11 @@
+**Luigi Mangione Pleads Guilty**\
+`Also, an Alaska Democrat says no thanks to Kamala Harris’s support. Here’s the latest at the end of Friday.`\
+https://www.nytimes.com/2026/08/14/briefing/luigi-mangione-pleads-guilty.html
+
+**Five Arrested After Three Stolen Artworks Were Recovered by Italian Officials**\
+`Valued at over $10 million, three artworks that were stolen during a nighttime raid at the Magnani-Rocca Foundation in March have been recovered by Italian officials. Five people have been arrested in connection with the thefts, according to Italy’s military police.`\
+https://www.nytimes.com/video/world/europe/100000011092401/italy-art-heist-artwork-recovered.html
+
 **😭 o 😂: ¿Tus emojis delatan tu edad?**\
 `Cuando se trata del uso de emojis, todos simplemente imitamos a las adolescentes.`\
 https://www.nytimes.com/es/interactive/2026/08/14/espanol/emojis-significado-edad.html
