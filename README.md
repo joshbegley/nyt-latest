@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Aug. 14, 2026**\
+`Zhou Zhang opens our solving weekend.`\
+https://www.nytimes.com/2026/08/13/crosswords/daily-puzzle-2026-08-14.html
+
 **California Ignored Sexual Abuse of Women in Prison, Justice Dept. Says**\
 `A Justice Department report released on Thursday found that inmates at two state-run women’s prisons routinely had their rights violated. State officials say they have already put reforms in place.`\
 https://www.nytimes.com/2026/08/13/us/california-sexual-abuse-women-prison.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/es/2026/08/13/espanol/cultura/muere-alfonso-fanjul-cuba-
 **The Times Is Turning 175. What’s Your Favorite Piece You’ve Taught With or Learned From?**\
 `Whether it’s old or new, or an article, essay, photo, video, podcast, graph or illustration, we’d love to hear what’s been most useful to you.`\
 https://www.nytimes.com/2026/08/13/learning/the-times-is-turning-175-whats-your-favorite-piece-youve-taught-with-or-learned-from.html
-
-**Covid Vaccines Are Not Linked to Miscarriage. Here’s How We Know.**\
-`Prominent Republicans and others have falsely claimed this week that the shots are linked, despite years of data showing they are safe.`\
-https://www.nytimes.com/2026/08/13/well/covid-vaccine-pregnancy-miscarriage-fauci.html
 
