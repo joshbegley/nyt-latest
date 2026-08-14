@@ -1,3 +1,7 @@
+**New Haven to Pay $30.5 Million to 2 Men Wrongfully Convicted of Murder**\
+`Two teens were accused of killing a man in a Connecticut deli in 1999. Their lawyers said the police hid evidence and intimidated witnesses.`\
+https://www.nytimes.com/2026/08/14/nyregion/new-haven-wrongful-conviction-payout.html
+
 **Hawaiian Electric Warns Any Power Outages May Last Days**\
 `The severe tropical weather conditions from the approaching storm Lala are expected to topple trees and down power lines as it crosses the state.`\
 https://www.nytimes.com/2026/08/14/weather/hurricane-lala-hawaii-power-grid.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/opinion/100000011072896/extreme-heat-is-the-new-no
 **West Bank Settlers Continue to Besiege Palestinian Families**\
 `Two Palestinian families have been trapped by violent Israeli settlers in the West Bank since Sunday. The Israeli military evicted the settlers, but they returned hours later.`\
 https://www.nytimes.com/video/world/middleeast/100000011092024/west-bank-israel-palestinian-familiies.html
-
-**Un portaaviones de la Marina de EE. UU. causa preocupación**\
-`El USS Abraham Lincoln ha estado desplegado casi nueve meses, primero en el mar Caribe y ahora en Medio Oriente, por lo que hay inquietudes sobre el bienestar de la tripulación.`\
-https://www.nytimes.com/es/2026/08/14/espanol/estados-unidos/ejercito-portaaviones-preocupacion-guerra-iran.html
 

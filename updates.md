@@ -1,3 +1,7 @@
+**New Haven to Pay $30.5 Million to 2 Men Wrongfully Convicted of Murder**\
+`Two teens were accused of killing a man in a Connecticut deli in 1999. Their lawyers said the police hid evidence and intimidated witnesses.`\
+https://www.nytimes.com/2026/08/14/nyregion/new-haven-wrongful-conviction-payout.html
+
 **Navy and USS Lincoln’s Problems Are Tied to Attacks on U.S. Base Early in War**\
 `Diego Garcia, a tiny island 2,200 miles from the Gulf of Oman, took over as the Navy’s logistics hub after Iran damaged a base in Bahrain.`\
 https://www.nytimes.com/2026/08/14/us/politics/uss-abraham-lincoln-trump-supplies-diego-garcia.html
