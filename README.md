@@ -1,3 +1,7 @@
+**Kalshi Ordered to Cease Most Operations in Washington State**\
+`In a preliminary injunction, a state judge barred the prediction market from allowing residents to place bets on the bulk of its offerings.`\
+https://www.nytimes.com/2026/08/13/business/kalshi-washington-state-ruling.html
+
 **El periodismo y los muros de pago**\
 `Nuestro trabajo se ha vuelto más difícil y costoso debido a que en Estados Unidos, y otros países, el ejercicio periodístico independiente enfrenta un clima cada vez más hostil.`\
 https://www.nytimes.com/es/2026/08/13/espanol/periodismo-paywall-muro-pago.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/13/books/raoul-vaneigem-dead.html
 **EE. UU. pagó 464 millones de dólares por aviones. Luego los estacionó**\
 `La agencia utilizó un contrato sin licitación para comprar 10 aviones usados, diciendo que se necesitaban con urgencia para vuelos de deportación. Pero durante meses, en gran medida, la flota ha permanecido inactiva.`\
 https://www.nytimes.com/es/2026/08/13/espanol/estados-unidos/seguridad-nacional-trump-aviones-sin-uso.html
-
-**¡A salvo!**\
-`Diana Marcela Troncoso fue liberada con vida tras casi 30 horas atrapada entre los escombros del terremoto que sacudió Colombia.`\
-https://www.nytimes.com/es/2026/08/13/espanol/america-latina/colombia-terremoto-foto.html
 
