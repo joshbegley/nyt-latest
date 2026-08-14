@@ -1,3 +1,11 @@
+**Record-Breaking Rainfall in Japan Leaves Several People Dead**\
+`Heavy rain in Japan pummeled Chiba Prefecture, a region just east of Tokyo, leaving several people dead and stranding thousands at Narita International Airport.`\
+https://www.nytimes.com/video/world/asia/100000011091919/japan-rain-flooding-chiba.html
+
+**With Trump’s Hamas Deal in Peril, Kushner Set to Visit Israel for Gaza Talks**\
+`Jared Kushner, President Trump’s senior aide, is expected to meet with Prime Minister Benjamin Netanyahu of Israel, who has rejected a U.S.-backed deal to disarm Hamas.`\
+https://www.nytimes.com/2026/08/14/world/middleeast/jared-kushner-visit-israel-hamas-deal.html
+
 **Robinhood Bets Again on a Public Venture Capital Fund**\
 `The trading platform raised $200 million for a second publicly traded vehicle to let ordinary investors buy into privately held start-ups.`\
 https://www.nytimes.com/2026/08/14/business/dealbook/robinhood-public-venture-capital-fund.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/08/14/us/activist-sociology-independent.html
 **Word of the Day: regurgitate**\
 `This word has appeared in 48 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/08/14/learning/word-of-the-day-regurgitate.html
-
-**New Yorkers Can’t Stop Lining Up for This Sushi**\
-`At a proliferating number of stores, discounts on sushi and other items are offered after 8 p.m. To get the best meals, you have to be there early.`\
-https://www.nytimes.com/2026/08/14/nyregion/sushi-discount-japanese-markets-new-york.html
-
-**‘A Dying Community’: An Energy Crisis Worsened by the War Strains Alaska**\
-`Diesel generators produce the electricity for small towns and hamlets like Manley Hot Springs, Alaska. Prices are soaring with no end in sight.`\
-https://www.nytimes.com/2026/08/14/us/rural-alaska-oil-prices-iran.html
 

@@ -1,3 +1,11 @@
+**Record-Breaking Rainfall in Japan Leaves Several People Dead**\
+`Heavy rain in Japan pummeled Chiba Prefecture, a region just east of Tokyo, leaving several people dead and stranding thousands at Narita International Airport.`\
+https://www.nytimes.com/video/world/asia/100000011091919/japan-rain-flooding-chiba.html
+
+**With Trump’s Hamas Deal in Peril, Kushner Set to Visit Israel for Gaza Talks**\
+`Jared Kushner, President Trump’s senior aide, is expected to meet with Prime Minister Benjamin Netanyahu of Israel, who has rejected a U.S.-backed deal to disarm Hamas.`\
+https://www.nytimes.com/2026/08/14/world/middleeast/jared-kushner-visit-israel-hamas-deal.html
+
 **Robinhood Bets Again on a Public Venture Capital Fund**\
 `The trading platform raised $200 million for a second publicly traded vehicle to let ordinary investors buy into privately held start-ups.`\
 https://www.nytimes.com/2026/08/14/business/dealbook/robinhood-public-venture-capital-fund.html
