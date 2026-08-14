@@ -1,3 +1,7 @@
+**A Prominent Mexican Politician Says U.S. Revoked His Visa**\
+`Andrés Manuel López Beltrán, a former president’s son, lashed out at the Trump administration after he said it canceled his visa, another flashpoint in the tense U.S.-Mexico relationship.`\
+https://www.nytimes.com/2026/08/14/world/americas/mexico-visas-lopez-beltran.html
+
 **Alaska Democrat Mary Peltola Pushes Back Against Endorsement From Kamala Harris**\
 `The campaign of Mary Peltola said it was focused on issues important to Alaska and did not approve a message of support from Ms. Harris.`\
 https://www.nytimes.com/2026/08/14/us/politics/kamala-harris-mary-peltola-endorsement.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/14/us/politics/trump-ballroom-white-house-suprem
 **David Hearn’s Lawyers Ask Court to Bar Future Reflecting Pool Charges**\
 `Citing comments by President Trump, David Hearn raised the prospect of “prosecutorial harassment.”`\
 https://www.nytimes.com/2026/08/14/us/hearn-reflecting-pool-prosecutor-harassment.html
-
-**The Markets Have Been on a Roll. Is It Time to Hedge Your Bets?**\
-`The S&P 500 is in position for a rare fourth year of consecutive annual gains. Risks are rising, our columnist says, yet Wall Street is doubling down.`\
-https://www.nytimes.com/2026/08/14/business/stock-market-ai-bonds-rally.html
 
