@@ -1,3 +1,11 @@
+**Who Is Luigi Mangione?**\
+`A star student from a wealthy family, he attended an Ivy League university, worked in tech and traveled. But his posts and activity on social media suggested some struggle.`\
+https://www.nytimes.com/2026/08/14/nyregion/who-is-luigi-mangione.html
+
+**Judge Rejects Suit Against University of Michigan That Sought Emails on Climate Law**\
+`A conservative group had tried to force the University of Michigan to hand over messages from a law professor who worked on “climate superfund” bills.`\
+https://www.nytimes.com/2026/08/14/climate/climate-superfund-professor-lawsuit-emails-michigan.html
+
 **Who Was Brian Thompson, the UnitedHealthcare CEO Killed in 2024?**\
 `The United Healthcare chief executive rose from humble Midwestern beginnings to the top position at a health insurance giant.`\
 https://www.nytimes.com/2026/08/14/nyregion/who-brian-thompson-unitedhealthcare-ceo-mangione.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/14/world/middleeast/shabjdeed-saint-levant-slv.h
 **In “The Bend in the River,” Robb Moss’s Old Friends Reflect on Aging**\
 `In “The Bend in the River,” Robb Moss catches up with the subjects of two of his previous films as they reflect on their lives and what’s left.`\
 https://www.nytimes.com/2026/08/14/movies/the-bend-in-the-river-review.html
-
-**This Reporter Can Tell Us What Nuclear Apocalypse Looks Like (Encore)**\
-`We bring back an episode from our archives, in which Annie Jacobsen discusses her 2024 book “Nuclear War: A Scenario.”`\
-https://www.nytimes.com/2026/08/14/podcasts/this-reporter-can-tell-us-what-nuclear-apocalypse-looks-like-encore.html
-
-**After Notre-Dame Fire, France Restored the Cathedral — but Not These Windows**\
-`France has faithfully renovated most of what burned at Notre-Dame in 2019. Contentiously, six towering windows will soon be replaced by a new design.`\
-https://www.nytimes.com/2026/08/14/world/europe/notre-dame-windows-glass-tabouret.html
 
