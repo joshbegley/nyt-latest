@@ -1,3 +1,7 @@
+**Christy Knowings, Who Starred on ’90s TV Show ‘All That,’ Dies at 46**\
+`The actress rose to prominence playing absurdist characters on the Nickelodeon series known for joyful silliness.`\
+https://www.nytimes.com/2026/08/14/arts/television/christy-knowings-dead.html
+
 **Luigi Mangione Expected to Plead Guilty in Federal Court**\
 `Luigi Mangione faces federal stalking charges tied to the killing of a health insurance executive in 2024. A guilty plea could complicate a separate state murder trial.`\
 https://www.nytimes.com/video/us/100000011091828/luigi-mangione-guilty-plea-federal.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/13/books/readers-list-100-best-thrillers-century
 **Great Movie and TV Adaptations From 21st- Century Thrillers**\
 `From “Slow Horses” to “Big Little Lies,” our list of great psychological thrillers, spy novels and crime fiction have inspired a heap of great adaptations.`\
 https://www.nytimes.com/2026/08/13/books/best-21st-century-thrillers-movie-tv-adaptations.html
-
-**Three Street Carts Where You Can Dine Curbside**\
-`For every brick-and-mortar restaurant, New York City has just as many street carts. These three carts are dining room worthy.`\
-https://www.nytimes.com/2026/08/13/dining/street-carts.html
 
