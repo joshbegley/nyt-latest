@@ -1,3 +1,7 @@
+**Should Red and Blue States Get a Divorce?**\
+`Responses to an essay about whether America should remain one nation. Also: Christie Brinkley, on nuclear reactors; military aid to Ukraine; whiskey with friends.`\
+https://www.nytimes.com/2026/08/14/opinion/red-blue-states-us-secession.html
+
 **A Timeline of the Luigi Mangione Cases**\
 `The shooting of a health care executive in December 2024 led to a sprawling manhunt, and two complex and interwoven cases.`\
 https://www.nytimes.com/2026/08/14/nyregion/luigi-mangione-timeline.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/14/crosswords/connections-companion-1161.html
 **Today’s Wordle Hints for August 15, 2026**\
 `Scroll down for hints and conversation about the puzzle for Saturday, Aug. 15, 2026.`\
 https://www.nytimes.com/2026/08/14/crosswords/wordle-review-1883.html
-
-**NYT Strands Hints for Aug. 15, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, Aug. 15, 2026.`\
-https://www.nytimes.com/2026/08/14/crosswords/strands-sidekick-895.html
 
