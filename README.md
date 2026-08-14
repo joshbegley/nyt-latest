@@ -1,3 +1,7 @@
+**Hiroshi Okuda, Disrupter Who Revived Toyota in the 1990s, Dies at 93**\
+`As the car company’s president, he made decisions quickly and shook things up, expanding overseas manufacturing and introducing the Prius, a milestone in automotive history.`\
+https://www.nytimes.com/2026/08/14/automobiles/hiroshi-okuda-dead.html
+
 **On the Day Mangione Admits Guilt, a Noticeably Smaller Crowd Gathers**\
 `The family and friends of his victim, Brian Thompson, were inside the courthouse. Outside, the curious and supporters of Luigi Mangione had started gathering in the morning.`\
 https://www.nytimes.com/2026/08/14/nyregion/mangione-scene-courthouse.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/live/2026/08/14/nyregion/luigi-mangione-plea-deal
 **Ian Frazier Wrote ‘Coyote v. Acme’ in 1990. Now It’s a Movie.**\
 `With “Coyote vs. Acme,” Ian Frazier, a soft-spoken reporter and humorist, has finally gone Hollywood.`\
 https://www.nytimes.com/2026/08/14/style/ian-frazier-coyote-vs-acme-movie.html
-
-**Ellis Ludwig-Leone’s ‘Quiet Hours’ Highlights the Home Piano**\
-`Ellis Ludwig-Leone composed an album of nocturnes, each for a pianist friend to play on a home piano — or a piano that feels like home.`\
-https://www.nytimes.com/2026/08/14/arts/music/ellis-ludwig-leone-quiet-hours-nocturnes-home-pianos.html
 

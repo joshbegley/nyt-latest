@@ -1,3 +1,11 @@
+**On the Day Mangione Admits Guilt, a Noticeably Smaller Crowd Gathers**\
+`The family and friends of his victim, Brian Thompson, were inside the courthouse. Outside, the curious and supporters of Luigi Mangione had started gathering in the morning.`\
+https://www.nytimes.com/2026/08/14/nyregion/mangione-scene-courthouse.html
+
+**How The New York Times Reported on Trump’s Air Force One Ruse in Turkey**\
+`President Trump’s Air Force One subterfuge duped potential adversaries — and the press. Here’s what happened.`\
+https://www.nytimes.com/2026/08/14/insider/trump-air-force-one-decoy-reporters.html
+
 **A Prominent Mexican Politician Says U.S. Revoked His Visa**\
 `Andrés Manuel López Beltrán, a former president’s son, lashed out at the Trump administration after he said it canceled his visa, another flashpoint in the tense U.S.-Mexico relationship.`\
 https://www.nytimes.com/2026/08/14/world/americas/mexico-visas-lopez-beltran.html
