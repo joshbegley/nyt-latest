@@ -1,3 +1,11 @@
+**Britain’s Farage Takes a Page From Trump’s Playbook Amid Investigations**\
+`Nigel Farage, the Reform U.K. leader who resigned from Parliament and won back his seat on Thursday, stays on the offensive and says voters don’t care about allegations of financial impropriety.`\
+https://www.nytimes.com/2026/08/14/world/europe/farage-britain-trump-playbook-analysis.html
+
+**She Sewed the Blue Angels’ Flight Suits. Then a Big Company Got the Job.**\
+`Jellie Whitehurst in Pensacola, Fla., was surprised to learn that after decades, the Navy had awarded a $1.7 million contract to a company in Virginia to supply the gear.`\
+https://www.nytimes.com/2026/08/14/us/blue-angels-uniforms-contract-shop.html
+
 **Read Mangione’s Motion Arguing Double Jeopardy in State Case**\
 `Soon after Luigi Mangione pleaded guilty to federal charges in the 2024 killing of the chief executive of UnitedHealthcare, his lawyers filed a motion arguing that separate state charges should be dismissed.`\
 https://www.nytimes.com/interactive/2026/08/14/nyregion/mangione-double-jeopardy-motion.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/14/podcasts/the-headlines/the-headlines-news-qui
 **Kevin Rideout, American Missionary Kidnapped in Niger, Is Released**\
 `Kevin Rideout, a pilot, was abducted from his home in the country’s capital, Niamey, last fall. His mission organization said he was in “good health” after his release.`\
 https://www.nytimes.com/2026/08/14/world/africa/american-missionary-niger-rideout-released.html
-
-**The Secret Spy Network Feeding Russia’s War Machine**\
-`Russian spies set up shop in Tokyo, using Japan as a base for routing critical electronic components back home to Russia — after being expelled by Western leaders from their capitals.`\
-https://www.nytimes.com/2026/08/14/podcasts/the-daily/japan-russia-spy-war.html
-
-**Concerns Grow Over Conditions on Aircraft Carrier, and Trump Pushes New Hacking Effort**\
-`Plus, your Friday news quiz.`\
-https://www.nytimes.com/2026/08/14/podcasts/the-headlines/aircraft-carrier-trump-hacking-effort.html
 

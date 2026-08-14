@@ -1,3 +1,11 @@
+**Britain’s Farage Takes a Page From Trump’s Playbook Amid Investigations**\
+`Nigel Farage, the Reform U.K. leader who resigned from Parliament and won back his seat on Thursday, stays on the offensive and says voters don’t care about allegations of financial impropriety.`\
+https://www.nytimes.com/2026/08/14/world/europe/farage-britain-trump-playbook-analysis.html
+
+**She Sewed the Blue Angels’ Flight Suits. Then a Big Company Got the Job.**\
+`Jellie Whitehurst in Pensacola, Fla., was surprised to learn that after decades, the Navy had awarded a $1.7 million contract to a company in Virginia to supply the gear.`\
+https://www.nytimes.com/2026/08/14/us/blue-angels-uniforms-contract-shop.html
+
 **Zambia Halts Presidential Election Vote Count Over Violence and Fraud Allegations**\
 `The electoral commission for the southern African nation said poll workers had been attacked and ballots had been stolen.`\
 https://www.nytimes.com/2026/08/14/world/africa/zambia-election-vote-count-suspended-president.html
