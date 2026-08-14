@@ -1,3 +1,7 @@
+**‘The Headlines’ News Quiz: Aug. 14, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://www.nytimes.com/2026/08/14/podcasts/the-headlines/the-headlines-news-quiz-aug-14-2026.html
+
 **Kevin Rideout, American Missionary Kidnapped in Niger, Is Released**\
 `Kevin Rideout, a pilot, had been abducted from his home in the country’s capital, Niamey, last fall. His mission organization said he was in “good health” after his release.`\
 https://www.nytimes.com/2026/08/14/world/africa/american-missionary-niger-rideout-released.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/14/magazine/ai-chatbots-internet-communication-l
 **Russia Campaigned to Derail Moldova’s Pro-Western Government**\
 `In Moldova, Moscow paid Orthodox priests, conducted a vote-buying scheme and set up training camps on election interference — all in an effort to derail the Western-leaning government.`\
 https://www.nytimes.com/2026/08/14/world/europe/russia-moldova-putin.html
-
-**We Critiqued the Woke Left. Now We’re Warning the Woke Right.**\
-`The right’s reluctance to gatekeep may be its undoing.`\
-https://www.nytimes.com/2026/08/14/opinion/republicans-woke-radical.html
 

@@ -1,3 +1,7 @@
+**‘The Headlines’ News Quiz: Aug. 14, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://www.nytimes.com/2026/08/14/podcasts/the-headlines/the-headlines-news-quiz-aug-14-2026.html
+
 **Gone in 20 Minutes: Half-Off Sushi Draws Throngs to New York’s Japanese Markets**\
 `At a proliferating number of stores, discounts on items like sushi are offered after 8 p.m. To get the best meals, you have to be there early.`\
 https://www.nytimes.com/2026/08/14/nyregion/sushi-discount-japanese-markets-new-york.html
