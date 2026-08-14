@@ -142,13 +142,13 @@ https://www.nytimes.com/2026/08/14/theater/schmigadoon-cast-album-theater-stream
 `Shabjdeed, a rapper in the West Bank, criticized a fellow Palestinian musician in a song, saying his Western lifestyle and lyrics were far removed from life back home.`\
 https://www.nytimes.com/2026/08/14/world/middleeast/shabjdeed-saint-levant-slv.html
 
-**This Reporter Can Tell Us What Nuclear Apocalypse Looks Like (Encore)**\
-`We bring back an episode from our archives, in which Annie Jacobsen discusses her 2024 book “Nuclear War: A Scenario.”`\
-https://www.nytimes.com/2026/08/14/podcasts/this-reporter-can-tell-us-what-nuclear-apocalypse-looks-like-encore.html
-
 **In “The Bend in the River,” Robb Moss’s Old Friends Reflect on Aging**\
 `In “The Bend in the River,” Robb Moss catches up with the subjects of two of his previous films as they reflect on their lives and what’s left.`\
 https://www.nytimes.com/2026/08/14/movies/the-bend-in-the-river-review.html
+
+**This Reporter Can Tell Us What Nuclear Apocalypse Looks Like (Encore)**\
+`We bring back an episode from our archives, in which Annie Jacobsen discusses her 2024 book “Nuclear War: A Scenario.”`\
+https://www.nytimes.com/2026/08/14/podcasts/this-reporter-can-tell-us-what-nuclear-apocalypse-looks-like-encore.html
 
 **After Notre-Dame Fire, France Restored the Cathedral — but Not These Windows**\
 `France has faithfully renovated most of what burned at Notre-Dame in 2019. Contentiously, six towering windows will soon be replaced by a new design.`\
