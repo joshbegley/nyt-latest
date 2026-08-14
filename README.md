@@ -1,3 +1,11 @@
+**Hawaiian Electric Warns Any Power Outages May Last Days**\
+`The severe tropical weather conditions from the approaching storm Lala are expected to topple trees and down power lines as it crosses the state.`\
+https://www.nytimes.com/2026/08/14/weather/hurricane-lala-hawaii-power-grid.html
+
+**President Trump Takes Credit for Steep Crime Rate Declines**\
+`Violent crime rates, including murder, have dropped precipitously. The trend began before the president’s current term.`\
+https://www.nytimes.com/2026/08/14/us/politics/trump-fbi-crime-rate-declines.html
+
 **Navy Carrier’s Problems Are Tied to Attacks on U.S. Base Early in War**\
 `Diego Garcia, a tiny island 2,200 miles from the Gulf of Oman, took over as the Navy’s logistics hub after Iran damaged a base in Bahrain.`\
 https://www.nytimes.com/2026/08/14/us/politics/uss-abraham-lincoln-trump-supplies-diego-garcia.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/video/world/middleeast/100000011092024/west-bank-israel-
 **Un portaaviones de la Marina de EE. UU. causa preocupación**\
 `El USS Abraham Lincoln ha estado desplegado casi nueve meses, primero en el mar Caribe y ahora en Medio Oriente, por lo que hay inquietudes sobre el bienestar de la tripulación.`\
 https://www.nytimes.com/es/2026/08/14/espanol/estados-unidos/ejercito-portaaviones-preocupacion-guerra-iran.html
-
-**Brad Pitt dijo que volvió a beber alcohol. No es peligroso, pero no es para todos**\
-`La revelación del actor intensificó el debate sobre una pregunta clave de la sobriedad: ¿alguien que bebió en exceso puede volver a beber con moderación?`\
-https://www.nytimes.com/es/2026/08/14/espanol/cultura/brad-pitt-alcoholismo-sobriedad.html
-
-**Flashback: Your Weekly History Quiz, Aug. 15, 2026**\
-`Can you sort 8 historical events?`\
-https://www.nytimes.com/interactive/2026/08/14/upshot/flashback.html
 
