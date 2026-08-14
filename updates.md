@@ -1,3 +1,7 @@
+**Live Updates: Mangione Admits Shooting Health Care Executive as He Pleads Guilty in Federal Court**\
+`Luigi Mangione said he stalked the executive, Brian Thompson, before killing him. “I shot Mr. Thompson,” he told the judge. His lawyers said they will argue that his plea means he cannot be tried for murder in state court.`\
+https://www.nytimes.com/live/2026/08/14/nyregion/luigi-mangione-plea-deal
+
 **Flashback: Your Weekly History Quiz, Aug. 15, 2026**\
 `Can you sort 8 historical events?`\
 https://www.nytimes.com/interactive/2026/08/14/upshot/flashback.html

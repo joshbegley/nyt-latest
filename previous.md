@@ -91,7 +91,7 @@ https://www.nytimes.com/2026/08/14/climate/climate-superfund-professor-lawsuit-e
 https://www.nytimes.com/2026/08/14/nyregion/who-brian-thompson-unitedhealthcare-ceo-mangione.html
 
 **Live Updates: Mangione Admits Shooting Health Care Executive as He Pleads Guilty in Federal Court**\
-`Luigi Mangione said he stalked the executive, Brian Thompson, before killing him on a New York sidewalk in 2024. “I shot Mr. Thompson,” he told the judge.`\
+`Luigi Mangione said he stalked the executive, Brian Thompson, before killing him. “I shot Mr. Thompson,” he told the judge. His lawyers said they will argue that his plea means he cannot be tried for murder in state court.`\
 https://www.nytimes.com/live/2026/08/14/nyregion/luigi-mangione-plea-deal
 
 **Ian Frazier Wrote ‘Coyote v. Acme’ in 1990. Now It’s a Movie.**\
