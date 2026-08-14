@@ -1,3 +1,7 @@
+**Amazon and Alphabet’s Profits Reveal Circular Nature of A.I. Boom**\
+`Investment gains at Alphabet and Amazon reveal a new way in which technology companies’ fortunes are increasingly linked.`\
+https://www.nytimes.com/2026/08/14/business/ai-tech-profits.html
+
 **Tech Giants’ Profits Reveal Potential Vulnerability in the Stock Market**\
 `Investment gains at Alphabet and Amazon reveal a new way in which technology companies’ fortunes are increasingly linked.`\
 https://www.nytimes.com/2026/08/14/business/ai-tech-profits.html
