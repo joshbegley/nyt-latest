@@ -75,14 +75,14 @@ https://www.nytimes.com/2026/08/14/climate/mining-trump-utah-monuments.html
 https://www.nytimes.com/video/world/europe/100000011092023/europe-heat-wave-wildfires.html
 
 **Zambia Halts Presidential Election Vote Count Over Violence and Fraud Allegations**\
-`The electoral commission for the southern African nation said poll workers had been attacked and ballots had been stolen as both top candidates claimed leads.`\
+`The electoral commission for the southern African nation said poll workers had been attacked and ballots had been stolen.`\
 https://www.nytimes.com/2026/08/14/world/africa/zambia-election-vote-count-suspended-president.html
 
 **Russell Fry Backs Darline Graham in South Carolina Senate Runoff Amid Trump Pressure**\
 `The president has been focused on the race since the death of Lindsey Graham in July. Ms. Graham, the late senator’s sister, is competing against Representative Ralph Norman in a runoff on Aug. 25.`\
 https://www.nytimes.com/2026/08/14/us/politics/russell-fry-darline-graham-south-carolina.html
 
-**Stolen Cézanne, Renoir and Matisse Works Are Recovered, Police Say**\
+**Five Arrested in Connection to Stolen Works by Cézanne, Renoir and Matisse, Prosecutors Say**\
 `The Italian military police said that art collectively valued at more than $10 million had been found five months after being taken in a nighttime heist near Parma.`\
 https://www.nytimes.com/2026/08/14/world/europe/cezanne-renoir-matisse-heist-recovered.html
 
