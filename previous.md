@@ -1,3 +1,7 @@
+**Who Was Brian Thompson, the UnitedHealthcare CEO Killed in 2024?**\
+`The United Healthcare chief executive rose from humble Midwestern beginnings to the top position at a health insurance giant.`\
+https://www.nytimes.com/2026/08/14/nyregion/who-brian-thompson-unitedhealthcare-ceo-mangione.html
+
 **Live Updates: Mangione Is Expected to Plead Guilty to Federal Charges**\
 `Luigi Mangione, 28, faces federal stalking charges that led to the 2024 killing of a health insurance executive, Brian Thompson, in Manhattan. He is scheduled to be tried for murder in state court next month.`\
 https://www.nytimes.com/live/2026/08/14/nyregion/luigi-mangione-plea-deal
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/14/podcasts/this-reporter-can-tell-us-what-nucle
 **After Notre-Dame Fire, France Restored the Cathedral — but Not These Windows**\
 `France has faithfully renovated most of what burned at Notre-Dame in 2019. Contentiously, six towering windows will soon be replaced by a new design.`\
 https://www.nytimes.com/2026/08/14/world/europe/notre-dame-windows-glass-tabouret.html
-
-**Federal Job Cuts Are Making Wildfires Harder to Fight**\
-`The Trump administration pushed out thousands of veteran U.S. Forest Service staff. An ‘extraordinary’ fire season is testing those who are left.`\
-https://www.nytimes.com/2026/08/14/climate/wildfires-forest-service-trump-cuts.html
 
