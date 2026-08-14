@@ -82,7 +82,7 @@ https://www.nytimes.com/2026/08/14/opinion/aoc-president-woman-egg-freezing.html
 `Corrections that appeared in print on Friday, Aug. 14, 2026.`\
 https://www.nytimes.com/2026/08/14/pageoneplus/corrections-aug-14-2026.html
 
-**An Unlikely Emergency Appeal to the Supreme Court from a Dog Named Bruce**\
+**An Unlikely Emergency Appeal to the Supreme Court From a Dog Named Bruce**\
 `A last-ditch filing this week came on behalf of a dog that a judge found to be “vicious” and shows how the court’s emergency docket has been growing.`\
 https://www.nytimes.com/2026/08/14/us/politics/supreme-court-emergency-appeal-bruce-the-dog.html
 
