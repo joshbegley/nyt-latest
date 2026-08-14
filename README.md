@@ -1,3 +1,15 @@
+**When a Rare Wolf Got Too Close, Denmark Faced a Conservation Dilemma**\
+`The authorities tracked the animal after a string of close encounters with residents, reigniting a bitter debate over how a small, densely populated country should live with wolves.`\
+https://www.nytimes.com/2026/08/14/world/europe/rare-wolf-denmark-conservation-dilemma.html
+
+**Andrés Manuel López Beltrán, hijo de AMLO, dice que EE. UU. le revocó su visa**\
+`Andrés Manuel López Beltrán, hijo del expresidente López Obrador, arremetió contra el gobierno de Donald Trump por la medida, en otro episodio de fricción para la tensa relación entre México y EE. UU.`\
+https://www.nytimes.com/es/2026/08/14/espanol/mundo/lopez-beltran-amlo-visa-estados-unidos.html
+
+**Luigi Mangione admite haber matado al ejecutivo de seguros abatido en Manhattan**\
+`En una audiencia en la que se declaró culpable de delitos federales, Mangione dijo que antes de matar al director ejecutivo de UnitedHealthcare soportó años de dolor durante su trato con la industria de seguros.`\
+https://www.nytimes.com/es/2026/08/14/espanol/estados-unidos/luigi-mangione-culpable.html
+
 **Jason Arday, Cambridge Scholar Who Resigned Under Scrutiny, Reported Dead**\
 `The British police said a man had been found dead at a home linked to Mr. Arday, who resigned after the university announced an investigation into allegations of plagiarism and fabrication.`\
 https://www.nytimes.com/2026/08/14/world/europe/jason-arday-dead.html
@@ -6,7 +18,7 @@ https://www.nytimes.com/2026/08/14/world/europe/jason-arday-dead.html
 `Some lawmakers and their families have traded millions of dollars worth of stocks since the start of this term.`\
 https://www.nytimes.com/2026/08/14/us/politics/biggest-stock-traders-congress.html
 
-**Stock Trading by Lawmakers Becomes a Campaign Attack Line**\
+**Stock Trading in Congress Becomes an Attack Line in Midterm Campaigns**\
 `Republican and Democratic challengers are both using the issue to attack members of Congress as unethical, seizing on a common practice that enrages voters.`\
 https://www.nytimes.com/2026/08/14/us/politics/stock-trading-congress.html
 
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/08/14/opinion/midterms-trump-elections-democrat-rep
 **Five Horror Movies to Stream Now**\
 `In these picks: sinister sounds, a troubled teenager and musical maniacs.`\
 https://www.nytimes.com/2026/08/14/movies/horror-movies-streaming.html
-
-**Amazon and Alphabet’s Profits Reveal Circular Nature of A.I. Boom**\
-`Investment gains at Alphabet and Amazon reveal a new way in which technology companies’ fortunes are increasingly linked.`\
-https://www.nytimes.com/2026/08/14/business/ai-tech-profits.html
-
-**Why Japan Is Struggling to Stop the Yen’s Decline**\
-`The currency has resumed its slide, eroding gains after the U.S. Treasury intervened to prop it up, as concerns mount about the direction of the country’s spending.`\
-https://www.nytimes.com/2026/08/14/business/japan-yen-intervention.html
-
-**Who Is Luigi Mangione?**\
-`A star student from a wealthy family, he attended an Ivy League university, worked in tech and traveled. But his posts and activity on social media suggested some struggle.`\
-https://www.nytimes.com/2026/08/14/nyregion/who-is-luigi-mangione.html
 

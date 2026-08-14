@@ -1,3 +1,19 @@
+**Jason Arday, Cambridge Scholar Who Resigned Under Scrutiny, Reported Dead**\
+`The British police said a man had been found dead at a home linked to Mr. Arday, who resigned after the university announced an investigation into allegations of plagiarism and fabrication.`\
+https://www.nytimes.com/2026/08/14/world/europe/jason-arday-dead.html
+
+**The 5 Congress Members Whose Families Trade the Most Stocks**\
+`Some lawmakers and their families have traded millions of dollars worth of stocks since the start of this term.`\
+https://www.nytimes.com/2026/08/14/us/politics/biggest-stock-traders-congress.html
+
+**Stock Trading by Lawmakers Becomes a Campaign Attack Line**\
+`Republican and Democratic challengers are both using the issue to attack members of Congress as unethical, seizing on a common practice that enrages voters.`\
+https://www.nytimes.com/2026/08/14/us/politics/stock-trading-congress.html
+
+**An A.I. Bot is Judging Your Résumé**\
+`Raise your hand if you’ve been personally victimized by an A.I. job recruiter. Finding a job has become more difficult in part because many corporations are now using bots to evaluate résumés. The Opinion writer Jessica Grose explains why job hunting has become about gaming A.I. recruiters, and why the solution might just be going analog.`\
+https://www.nytimes.com/video/opinion/100000011085683/an-ai-bot-is-judging-your-resume.html
+
 **Hiroshi Okuda, Disrupter Who Revived Toyota in the 1990s, Dies at 93**\
 `As the car company’s president, he made decisions quickly and shook things up, expanding overseas manufacturing and introducing the Prius, a milestone in automotive history.`\
 https://www.nytimes.com/2026/08/14/automobiles/hiroshi-okuda-dead.html
