@@ -1,3 +1,7 @@
+**Map: 7.7-Magnitude Earthquake Shakes Indonesia**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/08/14/world/asia/indonesia-quake-tracker.html
+
 **New Haven to Pay $30.5 Million to 2 Men Wrongfully Convicted of Murder**\
 `Two teens were accused of killing a man in a Connecticut deli in 1999. Their lawyers said the police hid evidence and intimidated witnesses.`\
 https://www.nytimes.com/2026/08/14/nyregion/new-haven-wrongful-conviction-payout.html
