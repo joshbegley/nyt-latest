@@ -1,3 +1,11 @@
+**Russell Fry to Back Darline Graham in South Carolina Senate Runoff Amid Trump Pressure**\
+`The president has been focused on the race since the death of Lindsey Graham in July. Ms. Graham, the late senator’s sister, is competing against Representative Ralph Norman in a runoff on Aug. 25.`\
+https://www.nytimes.com/2026/08/14/us/politics/russell-fry-darline-graham-south-carolina.html
+
+**Stolen Cézanne, Renoir and Matisse Works Are Recovered, Police Say**\
+`The Italian military police said that art collectively valued at more than $10 million had been found five months after being taken in a nighttime heist near Parma.`\
+https://www.nytimes.com/2026/08/14/world/europe/cezanne-renoir-matisse-heist-recovered.html
+
 **Why Europe Keeps Being Pummeled by Heat Waves**\
 `The whole planet is warming, but changes in weather patterns could help explain why the continent is suffering so many bouts of severe heat.`\
 https://www.nytimes.com/2026/08/14/climate/europe-heat-waves-jet-stream.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/14/us/politics/trump-doj-fraud-california-food-t
 **Stavros Halkias Never Wanted to Get Political**\
 `The podcast host and emerging Hollywood presence spoke about his new stand-up special, giving advice to incels and comedy’s rightward creep.`\
 https://www.nytimes.com/2026/08/14/arts/stavros-halkias-popcast-interview-tony.html
-
-**When Is It OK to GIve Up on a Book? Our Readers Have Thoughts.**\
-`From carefree dabblers to book group die-hards, everyone, it seems, has an opinion. Just don’t tell them theirs is wrong.`\
-https://www.nytimes.com/2026/08/14/books/review/dnf-reader-comments.html
-
-**Now for Sale at Christie’s: Art by People Who Work at Christie’s**\
-`The auction house is displaying works made by its employees, who craft their works on kitchen tables and in living rooms.`\
-https://www.nytimes.com/2026/08/14/nyregion/now-for-sale-at-christies-art-by-people-who-work-at-christies.html
 

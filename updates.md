@@ -1,3 +1,27 @@
+**Why Europe Keeps Being Pummeled by Heat Waves**\
+`The whole planet is warming, but changes in weather patterns could help explain why the continent is suffering so many bouts of severe heat.`\
+https://www.nytimes.com/2026/08/14/climate/europe-heat-waves-jet-stream.html
+
+**Today, In Short**\
+`Emojis. Tate McRae. And the best Mexican restaurants.`\
+https://www.nytimes.com/2026/08/14/briefing/today-in-short.html
+
+**This Cheesy Corn Salad Speaks for Itself**\
+`And more of the week’s most popular recipes.`\
+https://www.nytimes.com/2026/08/14/dining/this-cheesy-corn-salad-speaks-for-itself.html
+
+**Democrats Have ‘Woke 1.0.’ The G.O.P. Has Trump. Which Is the Bigger Drag?**\
+`Both parties face hurdles heading into the fall.`\
+https://www.nytimes.com/2026/08/14/opinion/midterms-trump-elections-democrat-republican.html
+
+**Five Horror Movies to Stream Now**\
+`In these picks: sinister sounds, a troubled teenager and musical maniacs.`\
+https://www.nytimes.com/2026/08/14/movies/horror-movies-streaming.html
+
+**Heat Is Hammering Europe, Again. Here’s What That Looks Like.**\
+`Extreme temperatures and repeated wildfires are pushing infrastructure to the limit and testing the continent’s resolve.`\
+https://www.nytimes.com/2026/08/14/world/europe/europe-heat-wave-photos.html
+
 **Amazon and Alphabet’s Profits Reveal Circular Nature of A.I. Boom**\
 `Investment gains at Alphabet and Amazon reveal a new way in which technology companies’ fortunes are increasingly linked.`\
 https://www.nytimes.com/2026/08/14/business/ai-tech-profits.html
