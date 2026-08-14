@@ -1,3 +1,11 @@
+**Bienvenidos a la época dorada de la comida mexicana en EE. UU.**\
+`Incluso en una época de políticas antiinmigración, nunca ha habido una variedad tan rica de restaurantes mexicanos en el país.`\
+https://www.nytimes.com/es/2026/08/14/espanol/comida-mexicana-estados-unidos.html
+
+**Outdated American Policy Is Hurting the Afghan People**\
+`A new generation of Afghans wants to move on from the animosities of the past, but Western policies make that difficult.`\
+https://www.nytimes.com/2026/08/14/opinion/afghanistan-us-anniversary-kabul-five-years.html
+
 **Quote of the Day: Eclipse Was a Chance to Teach, and to Party**\
 `Quotation of the Day for Friday, August 14, 2026.`\
 https://www.nytimes.com/2026/08/14/pageoneplus/quote-of-the-day-eclipse-was-a-chance-to-teach-and-to-party.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/13/theater/american-daughter-review-wendy-wasser
 **Early-Onset El Niño**\
 `The global weather disrupter appears to be taking a toll, and its peak could still be months away.`\
 https://www.nytimes.com/2026/08/13/climate/el-nino-effects.html
-
-****\
-`A train derailed in East Sussex, England, on Thursday, seriously injuring two people, the British Transport Police said in a statement.`\
-https://www.nytimes.com/video/embedded/world/europe/100000011090907/13vid-uk-train-derailment.html
-
-**John Crowley, Author of Reality-Blurring Fantasy Novels Like ‘Little, Big,‘ Dies at 83**\
-`The eminent critic Harold Bloom called his 1981 book “Little, Big” a “neglected masterpiece” and one of the best novels of the 20th century.`\
-https://www.nytimes.com/2026/08/13/books/john-crowley-dead.html
 
