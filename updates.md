@@ -1,3 +1,15 @@
+**Ellis Ludwig-Leone’s ‘Quiet Hours’ Highlights the Home Piano**\
+`Ellis Ludwig-Leone composed an album of nocturnes, each for a pianist friend to play on a home piano — or a piano that feels like home.`\
+https://www.nytimes.com/2026/08/14/arts/music/ellis-ludwig-leone-quiet-hours-nocturnes-home-pianos.html
+
+**Trump Administration Asks Supreme Court to Greenlight White House Ballroom**\
+`The planned 90,000-square-foot ballroom is estimated to cost $400 million and is part of the president’s broader effort to remake Washington in his own style.`\
+https://www.nytimes.com/2026/08/14/us/politics/trump-ballroom-white-house-supreme-court.html
+
+**Kevin Rideout, American Missionary Kidnapped in Niger, Is Released**\
+`Kevin Rideout, a pilot, was abducted from his home in the country’s capital, Niamey, last fall. His mission organization said he was in “good health” after his release.`\
+https://www.nytimes.com/2026/08/14/world/africa/american-missionary-niger-rideout-released.html
+
 **David Hearn’s Lawyers Ask Court to Bar Future Reflecting Pool Charges**\
 `Citing comments by President Trump, David Hearn raised the prospect of “prosecutorial harassment.”`\
 https://www.nytimes.com/2026/08/14/us/hearn-reflecting-pool-prosecutor-harassment.html
