@@ -1,3 +1,27 @@
+**The Taliban Kicked the U.S. Out of Afghanistan. Now They Want It Back.**\
+`In an interview, Afghanistan’s foreign minister called on the U.S. to reopen its embassy and invest in the country — a near-impossible sell for now, analysts and former diplomats say.`\
+https://www.nytimes.com/2026/08/14/world/asia/afghanistan-us-taliban.html
+
+**France’s Top Court Strikes Down Ban on Social Media for Children**\
+`The move was a setback for President Emmanuel Macron, who championed the ban. He vowed to pass a new version before he leaves office next spring.`\
+https://www.nytimes.com/2026/08/14/world/europe/france-court-strikes-down-ban-social-media-children.html
+
+**‘Lanterns’ Review: It’s Not Easy Being Green**\
+`HBO’s new Green Lantern series is the latest show in which being a superhero is no fun at all.`\
+https://www.nytimes.com/2026/08/14/arts/television/lanterns-review-hbo.html
+
+**Jeff Bezos Buys a Piece of Liverpool Football Club**\
+`It is the first known investment by Mr. Bezos, one of the world’s richest men, into a sports team.`\
+https://www.nytimes.com/2026/08/14/business/jeff-bezos-liverpool-football-club.html
+
+**The New Macho**\
+`Plus: The woman helping all of us get dressed and thoughts on the other September magazine covers.`\
+https://www.nytimes.com/2026/08/14/style/gq-masculinity-men.html
+
+**July Retail Sales Notch Biggest Drop in Over a Year**\
+`The data for July showed the biggest drop in more than a year, as American households face the economic strains brought on by persistent inflation`\
+https://www.nytimes.com/2026/08/14/business/retail-sales-july.html
+
 **Tropical Storm Lala Expected to Strengthen to a Hurricane as It Nears Hawaii**\
 `Up to 25 inches of rain could fall on the Big Island, forecasters said.`\
 https://www.nytimes.com/live/2026/08/14/weather/lala-tropical-storm-hurricane

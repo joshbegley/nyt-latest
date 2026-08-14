@@ -1,3 +1,7 @@
+**Flashback: Your Weekly History Quiz, Aug. 15, 2026**\
+`Can you sort 8 historical events?`\
+https://www.nytimes.com/interactive/2026/08/14/upshot/flashback.html
+
 **The Taliban Kicked the U.S. Out of Afghanistan. Now They Want It Back.**\
 `In an interview, Afghanistan’s foreign minister called on the U.S. to reopen its embassy and invest in the country — a near-impossible sell for now, analysts and former diplomats say.`\
 https://www.nytimes.com/2026/08/14/world/asia/afghanistan-us-taliban.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/08/14/espanol/estados-unidos/politica-migratoria
 **Una ciudad contra los mosquitos**\
 `Brasil ha adoptado nuevas técnicas para combatir los brotes de dengue. La ciudad de Belém, junto a la selva amazónica, podría ofrecer lecciones a otras ciudades alrededor del mundo.`\
 https://www.nytimes.com/es/2026/08/14/espanol/estados-unidos/una-ciudad-se-moviliza-contra-una-amenaza-de-salud-persistente-los-mosquitos.html
-
-**Why You Envy Your Friends**\
-`Turn that burning resentment into insight and motivation.`\
-https://www.nytimes.com/2026/08/14/well/mind/envy-friends.html
 
