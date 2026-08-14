@@ -1,3 +1,7 @@
+**Record-Breaking Rainfall Leaves Eight Dead and Thousands Stranded in Japan**\
+`Three months’ worth of rain fell in just 12 hours in a region east of Tokyo, leading to deadly flooding.`\
+https://www.nytimes.com/2026/08/14/world/asia/chiba-tokyo-flood-rain-deaths.html
+
 **Kawhi Leonard’s ‘No-Show’ Jumbotron Job: The Paper Trail**\
 `Pablo obtains new emails from the NBA scandal that reveal the Clippers’ role in their star’s second hidden “sponsorship” deal.`\
 https://www.nytimes.com/2026/08/14/podcasts/nba-kawhi-leonard-jumbotron.html
@@ -146,7 +150,7 @@ https://www.nytimes.com/2026/08/14/books/review/sleep-dreams-childrens-picture-b
 `Can our Book Review editor, Tina Jordan, guess thrillers from their first sentence? In this game we explore a few of the books from The New York Times’s “50 Best Thrillers of the 21st Century” list; and learn a bit more about why opening sentences are so important to get people reading.`\
 https://www.nytimes.com/video/books/100000011051376/how-thrillers-hook-you-with-their-first-sentence.html
 
-**RM, a Superstar With BTS, Gets Hois Feet Wet As an Art Curator**\
+**RM, a Superstar With BTS, Gets His Feet Wet As an Art Curator**\
 `RM, of BTS, brings 145 works by Korean artists to SFMOMA this fall. “I know Picasso, I know van Gogh. I don’t know anyone from my country,” he told himself as he began to buy. “You have to find your root.”`\
 https://www.nytimes.com/2026/08/14/arts/design/bts-rm-art-museum.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/quiz/2026/08/13/magazine/food-hoarding-hodgman-quiz
 **As Europe Gets Hotter, Its Transportation Systems Struggle to Cope**\
 `The continent’s railways and roads “were engineered for a climate that no longer exists,” one expert said.`\
 https://www.nytimes.com/2026/08/14/world/europe/heat-trains-transportation-roads.html
-
-**A New Inferno**\
-`Firefighters in Phoenix race to save lives in a city that’s only getting hotter.`\
-https://www.nytimes.com/video/opinion/100000010819020/a-new-inferno.html
 

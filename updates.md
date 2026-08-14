@@ -1,3 +1,11 @@
+**Record-Breaking Rainfall Leaves Eight Dead and Thousands Stranded in Japan**\
+`Three months’ worth of rain fell in just 12 hours in a region east of Tokyo, leading to deadly flooding.`\
+https://www.nytimes.com/2026/08/14/world/asia/chiba-tokyo-flood-rain-deaths.html
+
+**RM, a Superstar With BTS, Gets His Feet Wet As an Art Curator**\
+`RM, of BTS, brings 145 works by Korean artists to SFMOMA this fall. “I know Picasso, I know van Gogh. I don’t know anyone from my country,” he told himself as he began to buy. “You have to find your root.”`\
+https://www.nytimes.com/2026/08/14/arts/design/bts-rm-art-museum.html
+
 **Kawhi Leonard’s ‘No-Show’ Jumbotron Job: The Paper Trail**\
 `Pablo obtains new emails from the NBA scandal that reveal the Clippers’ role in their star’s second hidden “sponsorship” deal.`\
 https://www.nytimes.com/2026/08/14/podcasts/nba-kawhi-leonard-jumbotron.html
