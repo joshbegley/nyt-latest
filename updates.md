@@ -1,3 +1,11 @@
+**Zambia Halts Presidential Election Vote Count Over Violence and Fraud Allegations**\
+`The electoral commission for the southern African nation said poll workers had been attacked and ballots had been stolen.`\
+https://www.nytimes.com/2026/08/14/world/africa/zambia-election-vote-count-suspended-president.html
+
+**Five Arrested in Connection to Stolen Works by Cézanne, Renoir and Matisse, Prosecutors Say**\
+`The Italian military police said that art collectively valued at more than $10 million had been found five months after being taken in a nighttime heist near Parma.`\
+https://www.nytimes.com/2026/08/14/world/europe/cezanne-renoir-matisse-heist-recovered.html
+
 **A Timeline of Luigi Mangione’s Cases, From the UnitedHealthcare CEO’s Killing to a Guilty Plea**\
 `The shooting of a health care executive in December 2024 led to a sprawling manhunt, and two complex and interwoven cases.`\
 https://www.nytimes.com/2026/08/14/nyregion/luigi-mangione-timeline.html
