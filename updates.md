@@ -1,3 +1,11 @@
+**Brad Pitt dijo que volvió a beber alcohol. No es peligroso, pero no es para todos**\
+`La revelación del actor intensificó el debate sobre una pregunta clave de la sobriedad: ¿alguien que bebió en exceso puede volver a beber con moderación?`\
+https://www.nytimes.com/es/2026/08/14/espanol/cultura/brad-pitt-alcoholismo-sobriedad.html
+
+**Live Updates: Mangione Admits Shooting Health Care Executive as He Pleads Guilty in Federal Court**\
+`Luigi Mangione said he stalked the executive, Brian Thompson, before killing him. “I shot Mr. Thompson,” he told the judge. His lawyers said they would argue that his plea means he cannot be tried for murder in state court.`\
+https://www.nytimes.com/live/2026/08/14/nyregion/luigi-mangione-plea-deal
+
 **Live Updates: Mangione Admits Shooting Health Care Executive as He Pleads Guilty in Federal Court**\
 `Luigi Mangione said he stalked the executive, Brian Thompson, before killing him. “I shot Mr. Thompson,” he told the judge. His lawyers said they will argue that his plea means he cannot be tried for murder in state court.`\
 https://www.nytimes.com/live/2026/08/14/nyregion/luigi-mangione-plea-deal

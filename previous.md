@@ -1,3 +1,7 @@
+**Brad Pitt dijo que volvió a beber alcohol. No es peligroso, pero no es para todos**\
+`La revelación del actor intensificó el debate sobre una pregunta clave de la sobriedad: ¿alguien que bebió en exceso puede volver a beber con moderación?`\
+https://www.nytimes.com/es/2026/08/14/espanol/cultura/brad-pitt-alcoholismo-sobriedad.html
+
 **Flashback: Your Weekly History Quiz, Aug. 15, 2026**\
 `Can you sort 8 historical events?`\
 https://www.nytimes.com/interactive/2026/08/14/upshot/flashback.html
@@ -91,7 +95,7 @@ https://www.nytimes.com/2026/08/14/climate/climate-superfund-professor-lawsuit-e
 https://www.nytimes.com/2026/08/14/nyregion/who-brian-thompson-unitedhealthcare-ceo-mangione.html
 
 **Live Updates: Mangione Admits Shooting Health Care Executive as He Pleads Guilty in Federal Court**\
-`Luigi Mangione said he stalked the executive, Brian Thompson, before killing him. “I shot Mr. Thompson,” he told the judge. His lawyers said they will argue that his plea means he cannot be tried for murder in state court.`\
+`Luigi Mangione said he stalked the executive, Brian Thompson, before killing him. “I shot Mr. Thompson,” he told the judge. His lawyers said they would argue that his plea means he cannot be tried for murder in state court.`\
 https://www.nytimes.com/live/2026/08/14/nyregion/luigi-mangione-plea-deal
 
 **Ian Frazier Wrote ‘Coyote v. Acme’ in 1990. Now It’s a Movie.**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/08/14/espanol/vacunas-covid-aborto.html
 **La política migratoria de Trump tiene raíces en el pasado de EE. UU.**\
 `El enfoque de Trump recuerda a políticas del siglo XX, cuando Estados Unidos respondió a la llegada de extranjeros con leyes que privilegiaban a unos grupos y cerraban la puerta a otros.`\
 https://www.nytimes.com/es/2026/08/14/espanol/estados-unidos/politica-migratoria-trump.html
-
-**Una ciudad contra los mosquitos**\
-`Brasil ha adoptado nuevas técnicas para combatir los brotes de dengue. La ciudad de Belém, junto a la selva amazónica, podría ofrecer lecciones a otras ciudades alrededor del mundo.`\
-https://www.nytimes.com/es/2026/08/14/espanol/estados-unidos/una-ciudad-se-moviliza-contra-una-amenaza-de-salud-persistente-los-mosquitos.html
 
