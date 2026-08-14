@@ -1,3 +1,7 @@
+**El periodismo y los muros de pago**\
+`Nuestro trabajo se ha vuelto más difícil y costoso debido a que en Estados Unidos, y otros países, el ejercicio periodístico independiente enfrenta un clima cada vez más hostil.`\
+https://www.nytimes.com/es/2026/08/13/espanol/periodismo-paywall-muro-pago.html
+
 **After 2 Plasma Donor Deaths, Company Pauses Clinics in Canada**\
 `Grifols, a Spanish company, said “unfounded attention” on its blood plasma business in Canada had led it to temporarily end collections at 17 clinics.`\
 https://www.nytimes.com/2026/08/13/world/canada/plasma-blood-donation-deaths-grifols.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/es/2026/08/13/espanol/estados-unidos/seguridad-nacional-
 **¡A salvo!**\
 `Diana Marcela Troncoso fue liberada con vida tras casi 30 horas atrapada entre los escombros del terremoto que sacudió Colombia.`\
 https://www.nytimes.com/es/2026/08/13/espanol/america-latina/colombia-terremoto-foto.html
-
-**Flock Announces Privacy Updates to Its Car-Tracking Cameras**\
-`Critics say the measures are “public relations” and leave room for continued misuse.`\
-https://www.nytimes.com/2026/08/13/business/flock-cameras-privacy-updates.html
 
