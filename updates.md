@@ -1,3 +1,7 @@
+**American Missionary Kidnapped in Niger Said to Be Released From Captivity**\
+`The release of Kevin Rideout, an American missionary pilot who was seized in Niger’s capital last fall, has been a priority for the White House.`\
+https://www.nytimes.com/2026/08/13/us/politics/kevin-rideout-niger-islamic-state.html
+
 **NYT Crossword Answers for Aug. 14, 2026**\
 `Zhou Zhang opens our solving weekend.`\
 https://www.nytimes.com/2026/08/13/crosswords/daily-puzzle-2026-08-14.html
