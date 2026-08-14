@@ -1,3 +1,7 @@
+**Nigel Farage Defeats ‘Trash Can’ to Win U.K. Special Election**\
+`Nigel Farage, the leader of Reform U.K., won a special election that he forced after coming under pressure over his finances. He beat Count Binface, a novelty candidate who wears a trash can over his head.`\
+https://www.nytimes.com/video/world/europe/100000011091762/farage-wins-britain-special-election-over-binface.html
+
 **Dos agujeros negros supermasivos están a punto de fusionarse**\
 `En una galaxia muy lejana, el James Webb ha detectado una danza peculiar entre un trío de agujeros negros supermasivos.`\
 https://www.nytimes.com/es/2026/08/14/espanol/ciencia-y-tecnologia/telescopio-agujeros-negros.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/13/us/charlie-kirk-tyler-robinson-death-penalty.
 **Who Is Ahead in the St. Petersburg, Florida Mayor Race? Latest 2026 Polls**\
 `Track the latest polls in the St. Petersburg, Fla., mayoral election.`\
 https://www.nytimes.com/interactive/polls/st-petersburg-florida-mayor-election-polls-2026.html
-
-**Israeli Settlers Resume West Bank Siege After Eviction**\
-`The military’s failure to keep extremists away from two Palestinian families trapped in their West Bank homes made clear the chaos gripping the Israeli-occupied territory.`\
-https://www.nytimes.com/2026/08/13/world/middleeast/west-bank-siege-israeli-settlers.html
 
