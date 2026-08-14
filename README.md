@@ -1,3 +1,7 @@
+**On the Day Mangione Admits Guilt, a Noticeably Smaller Crowd Gathers**\
+`The family and friends of his victim, Brian Thompson, were inside the courthouse. Outside, the curious and supporters of Luigi Mangione had started gathering in the morning.`\
+https://www.nytimes.com/2026/08/14/nyregion/mangione-scene-courthouse.html
+
 **How The New York Times Reported on Trump’s Air Force One Ruse in Turkey**\
 `President Trump’s Air Force One subterfuge duped potential adversaries — and the press. Here’s what happened.`\
 https://www.nytimes.com/2026/08/14/insider/trump-air-force-one-decoy-reporters.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/14/style/ian-frazier-coyote-vs-acme-movie.html
 **Ellis Ludwig-Leone’s ‘Quiet Hours’ Highlights the Home Piano**\
 `Ellis Ludwig-Leone composed an album of nocturnes, each for a pianist friend to play on a home piano — or a piano that feels like home.`\
 https://www.nytimes.com/2026/08/14/arts/music/ellis-ludwig-leone-quiet-hours-nocturnes-home-pianos.html
-
-**Trump Administration Asks Supreme Court to Greenlight White House Ballroom**\
-`The planned 90,000-square-foot ballroom is estimated to cost $400 million and is part of the president’s broader effort to remake Washington in his own style.`\
-https://www.nytimes.com/2026/08/14/us/politics/trump-ballroom-white-house-supreme-court.html
 
