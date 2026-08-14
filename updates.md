@@ -1,3 +1,11 @@
+**As Europe Gets Hotter, Its Transportation Systems Struggle to Cope**\
+`The continent’s railways and roads “were engineered for a climate that no longer exists,” one expert said.`\
+https://www.nytimes.com/2026/08/14/world/europe/heat-trains-transportation-roads.html
+
+**A New Inferno**\
+`Firefighters in Phoenix race to save lives in a city that’s only getting hotter.`\
+https://www.nytimes.com/video/opinion/100000010819020/a-new-inferno.html
+
 **How Jane Schoenbrun Has Fun With Horror (and Chicken) at Camp Miasma**\
 `The director Jane Schoenbrun breaks down how they played with genre conventions in “Teenage Sex and Death at Camp Miasma.”`\
 https://www.nytimes.com/video/movies/100000011066060/how-jane-schoenbrun-has-fun-with-horror-and-chicken-at-camp-miasma.html

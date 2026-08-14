@@ -1,3 +1,11 @@
+**As Europe Gets Hotter, Its Transportation Systems Struggle to Cope**\
+`The continent’s railways and roads “were engineered for a climate that no longer exists,” one expert said.`\
+https://www.nytimes.com/2026/08/14/world/europe/heat-trains-transportation-roads.html
+
+**A New Inferno**\
+`Firefighters in Phoenix race to save lives in a city that’s only getting hotter.`\
+https://www.nytimes.com/video/opinion/100000010819020/a-new-inferno.html
+
 **How Jane Schoenbrun Has Fun With Horror (and Chicken) at Camp Miasma**\
 `The director Jane Schoenbrun breaks down how they played with genre conventions in “Teenage Sex and Death at Camp Miasma.”`\
 https://www.nytimes.com/video/movies/100000011066060/how-jane-schoenbrun-has-fun-with-horror-and-chicken-at-camp-miasma.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/dining/100000011090890/mangonada.html
 **U.S.S. Abraham Lincoln Has Been Deployed for Months, Prompting Concerns**\
 `The U.S.S. Abraham Lincoln has been deployed for nearly nine months. Members of Congress are worried about the crew’s well-being.`\
 https://www.nytimes.com/2026/08/13/us/uss-abraham-lincoln-iran-navy.html
-
-**Carlos Garcia, Activist Who Helped Revive the Lower East Side, Dies at 80**\
-`He led a Puerto Rican group known as Charas in turning a crumbling public school into a community center, rehabilitating a desolate slice of New York.`\
-https://www.nytimes.com/2026/08/13/nyregion/carlos-chino-garcia-dead.html
-
-**Readers Choose the Best Thrillers and Mysteries of the Century**\
-`The backbone of the list: nine novels by Tana French, and five novels each from John le Carré, Kate Atkinson and Mick Herron.`\
-https://www.nytimes.com/2026/08/13/books/readers-list-100-best-thrillers-century.html
 

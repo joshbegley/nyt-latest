@@ -1,3 +1,71 @@
+**Fashion for Free Spirits**\
+`Rich with texture, fall’s best knits play with traditional patterns and palettes.`\
+https://www.nytimes.com/2026/08/14/t-magazine/fall-knits-womens-fashion.html
+
+**Is Activism Hurting Sociology? Sociologists Are Torn.**\
+`A group of sociologists broke away in protest from their colleagues over disagreements about Israel. Some worry the political stances are harming the field.`\
+https://www.nytimes.com/2026/08/14/us/activist-sociology-independent.html
+
+**Word of the Day: regurgitate**\
+`This word has appeared in 48 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/08/14/learning/word-of-the-day-regurgitate.html
+
+**Gone in 20 Minutes: Half-Off Sushi Draws Throngs to New York’s Japanese Markets**\
+`At a proliferating number of stores, discounts on items like sushi are offered after 8 p.m. To get the best meals, you have to be there early.`\
+https://www.nytimes.com/2026/08/14/nyregion/gone-in-20-minutes-half-off-sushi-draws-throngs-to-new-yorks-japanese-markets.html
+
+**‘A Dying Community’: An Energy Crisis Worsened by the War Strains Alaska**\
+`Diesel generators produce the electricity for small towns and hamlets like Manley Hot Springs, Alaska. Prices are soaring with no end in sight.`\
+https://www.nytimes.com/2026/08/14/us/rural-alaska-oil-prices-iran.html
+
+**Children’s Picture Books About Sleep and Dreaming**\
+`New works cover everything from dreams to gods to insomnia.`\
+https://www.nytimes.com/2026/08/14/books/review/sleep-dreams-childrens-picture-books.html
+
+**How Thrillers Hook You With Their First Sentence**\
+`Can our Book Review editor, Tina Jordan, guess thrillers from their first sentence? In this game we explore a few of the books from The New York Times’s “50 Best Thrillers of the 21st Century” list; and learn a bit more about why opening sentences are so important to get people reading.`\
+https://www.nytimes.com/video/books/100000011051376/how-thrillers-hook-you-with-their-first-sentence.html
+
+**RM, a Superstar With BTS, Gets Hois Feet Wet As an Art Curator**\
+`RM, of BTS, brings 145 works by Korean artists to SFMOMA this fall. “I know Picasso, I know van Gogh. I don’t know anyone from my country,” he told himself as he began to buy. “You have to find your root.”`\
+https://www.nytimes.com/2026/08/14/arts/design/bts-rm-art-museum.html
+
+**A Silicon Valley Dirt Farmer Hangs Up His Shears**\
+`Andy Mariani grows exotic and ethereally delicious stone fruit in the shadow of tech giants. But at age 80, it’s time to give up the land.`\
+https://www.nytimes.com/2026/08/14/business/a-silicon-valley-dirt-farmer-hangs-up-his-shears.html
+
+**Chatbots Are Pushing Us Toward a Post-Human Internet**\
+`In matters of work, school and even romance, we turn to A.I. chatbots. But what happens when the bots begin talking to one another?`\
+https://www.nytimes.com/2026/08/14/magazine/ai-chatbots-internet-communication-loops.html
+
+**Russia Campaigned to Derail Moldova’s Pro-Western Government**\
+`In Moldova, Moscow paid Orthodox priests, conducted a vote-buying scheme and set up training camps on election interference — all in an effort to derail the Western-leaning government.`\
+https://www.nytimes.com/2026/08/14/world/europe/russia-moldova-putin.html
+
+**We Critiqued the Woke Left. Now We’re Warning the Woke Right.**\
+`The right’s reluctance to gatekeep may be its undoing.`\
+https://www.nytimes.com/2026/08/14/opinion/republicans-woke-radical.html
+
+**Inside Rural Alaska’s Energy Crisis**\
+`Anna Griffin, our Pacific Northwest bureau chief, visits rural Alaska to look at the ways the Iran war worsened an energy crisis there.`\
+https://www.nytimes.com/video/us/100000011027537/alaska-energy-crisis.html
+
+**How Pennsylvania Got Hooked on Games That Look a Lot Like Slot Machines**\
+`A legal loophole kept “skill games” from being considered gambling. Now lawmakers are trying to save them from a court ruling.`\
+https://www.nytimes.com/2026/08/14/upshot/gambling-pennsylvania-slots-skill-games.html
+
+**Extreme Heat Is the New Normal**\
+`Firefighters in Phoenix race to save lives in a city that’s only getting hotter.`\
+https://www.nytimes.com/2026/08/14/opinion/extreme-heat-arizona-climate-change.html
+
+**The News Quiz, August 14, 2026**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://www.nytimes.com/quiz/2026/08/14/briefing/weekly-news-quiz.html
+
+**Can You Hoard a Food Item You Really Like?**\
+`A ruling on a grocery shopping debate.`\
+https://www.nytimes.com/quiz/2026/08/13/magazine/food-hoarding-hodgman-quiz
+
 **As Europe Gets Hotter, Its Transportation Systems Struggle to Cope**\
 `The continent’s railways and roads “were engineered for a climate that no longer exists,” one expert said.`\
 https://www.nytimes.com/2026/08/14/world/europe/heat-trains-transportation-roads.html
@@ -129,72 +197,4 @@ https://www.nytimes.com/2026/08/13/nyregion/delaney-hall-detainee-health-ice.htm
 **Engine Blade Hit Window on Jet Before Man Was Partly Sucked Outside, Report Says**\
 `The National Transportation Safety Board said it had found a bird’s remains and feathers on a broken engine.`\
 https://www.nytimes.com/2026/08/13/world/europe/ryanair-flight-passenger-window.html
-
-**Salvage Company Hoping to Sell Titanic Artifacts Challenges Court’s Role**\
-`A Virginia federal court has awarded the company the rights to collect, but not sell, items from the shipwreck. But the company says its earliest retrievals are governed by a French court.`\
-https://www.nytimes.com/2026/08/13/arts/design/salvage-company-hoping-to-sell-titanic-artifacts-challenges-courts-role.html
-
-**What to Know About Luigi Mangione’s Court Cases and Potential Plea Deal**\
-`Mr. Mangione faces federal charges of stalking that resulted in the death of a health insurance executive. A guilty plea could close the federal case — and complicate a separate state murder trial.`\
-https://www.nytimes.com/2026/08/13/nyregion/luigi-mangione-court-plea-deal-trial.html
-
-**Judge Affirms Settlement Allowing HPE’s Deal for Juniper**\
-`States had opposed an agreement allowing a Hewlett Packard Enterprise acquisition, calling the settlement ineffective and corrupt.`\
-https://www.nytimes.com/2026/08/13/technology/hpe-juniper-justice-department-settlement.html
-
-**Putin Visited Islands Taken From Japan in World War II, Angering Tokyo**\
-`President Vladimir Putin of Russia visited the Kuril Islands on Thursday for the first time since they were seized from Japan at the end of World War II.`\
-https://www.nytimes.com/video/world/asia/100000011090782/putin-japan-visit-wwii.html
-
-**Wagner Moura Puts Us on Trial in Edinburgh**\
-`Our chief theater critic, Helen Shaw, is in Scotland for the Edinburgh International Festival. For her, Christiane Jatahy’s modern reimagining of Henrik Ibsen’s “Enemy of the People” was a difficult but valuable theater experience.`\
-https://www.nytimes.com/video/theater/100000011065965/wagner-moura-puts-us-on-trial-in-edinburgh.html
-
-**Trump’s Immigration Spies**\
-`And California asks, “Are Jews an ethnic group?” Here’s the latest at the end of Thursday.`\
-https://www.nytimes.com/2026/08/13/briefing/immigration-supremecourt-jews.html
-
-**Ex-Officer Held in New Orleans Mass Shooting Plot Is Freed Without Charges**\
-`Law enforcement officials had said that Christopher Gillum, a former police officer in North Carolina, planned to attack a large festival. He was released without charges.`\
-https://www.nytimes.com/2026/08/13/us/mass-shooting-new-orleans-ex-police-released.html
-
-**Appeals Court Sidesteps Key Question Over Trump’s Use of Alien Enemies Act**\
-`The court dismissed a case over the Alien Enemies Act in a messy conclusion to a long-running legal battle that had seemed destined to end up before the Supreme Court.`\
-https://www.nytimes.com/2026/08/13/us/politics/alien-enemies-act-trump-appeals-court.html
-
-**Stavros Halkias Calls Out Comedians**\
-`The comedian Stavros Halkias called out how wealth and fame are changing A-list comics in his interview with Joe Coscarelli and Jon Caramanica on Popcast.`\
-https://www.nytimes.com/video/podcasts/100000011084159/stavros-halkias-calls-out-comedians.html
-
-**How a Times Photographer Captured the Solar Eclipse**\
-`To document the celestial event on Wednesday, a photographer had to get creative.`\
-https://www.nytimes.com/2026/08/13/insider/solar-eclipse-photo.html
-
-**Stavros Halkias: ‘I Don’t Want the President on My Podcast’**\
-`Watch the full Popcast conversation with Stavros Halkias here. Edited excerpts from the interview are below.`\
-https://www.nytimes.com/video/podcasts/100000011084155/stavros-halkias-never-wanted-to-get-political.html
-
-**Afghan Women Erased From Public Life in Five Years of Taliban Rule**\
-`Decrees restricting the rights of women and girls to study, work, travel and act independently now threaten to damage Afghanistan permanently, experts say.`\
-https://www.nytimes.com/2026/08/13/world/asia/afghan-women-taliban-rule.html
-
-**Halloumi, Peach and Cucumber Spoon Salad**\
-`When little cubes of cucumbers, peaches and seared halloumi are tossed in lime juice, you get a salad that’s salty, sweet, juicy and crunchy in every spoonful.`\
-https://www.nytimes.com/video/dining/100000011091223/halloumi-peach-and-cucumber-spoon-salad.html
-
-**Atlantic Beach Pie**\
-`Like a dreamy mash-up between a key lime and lemon meringue pie, this surprisingly fast and easy dessert is adapted from Bill Smith, who retired in 2019 after 25 years as the chef at Crook’s Corner, a Chapel Hill, N.C. restaurant that closed in June 2021.`\
-https://www.nytimes.com/video/dining/100000011091205/atlantic-beach-pie.html
-
-**Grilled S’mores Sandwiches**\
-`This always-makes-you-happy dessert combines two classics: s’mores and pan con chocolate, a Spanish snack of toast with melted chocolate on top.`\
-https://www.nytimes.com/video/dining/100000011091176/grilled-smores-sandwiches.html
-
-**Mangonada**\
-`When the summer sun screams across Mexico’s city streets and sandy beaches, mangonadas come to the rescue.`\
-https://www.nytimes.com/video/dining/100000011090890/mangonada.html
-
-**U.S.S. Abraham Lincoln Has Been Deployed for Months, Prompting Concerns**\
-`The U.S.S. Abraham Lincoln has been deployed for nearly nine months. Members of Congress are worried about the crew’s well-being.`\
-https://www.nytimes.com/2026/08/13/us/uss-abraham-lincoln-iran-navy.html
 
