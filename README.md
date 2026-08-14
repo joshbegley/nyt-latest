@@ -118,7 +118,7 @@ https://www.nytimes.com/video/podcasts/100000011084159/stavros-halkias-calls-out
 `To document the celestial event on Wednesday, a photographer had to get creative.`\
 https://www.nytimes.com/2026/08/13/insider/solar-eclipse-photo.html
 
-**Stavros Halkias Never Wanted to Get Political**\
+**Stavros Halkias: ‘I Don’t Want the President on My Podcast’**\
 `Watch the full Popcast conversation with Stavros Halkias here. Edited excerpts from the interview are below.`\
 https://www.nytimes.com/video/podcasts/100000011084155/stavros-halkias-never-wanted-to-get-political.html
 
