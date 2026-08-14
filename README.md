@@ -22,7 +22,7 @@ https://www.nytimes.com/2026/08/14/us/politics/uss-abraham-lincoln-trump-supplie
 `Ed Markey is hoping that his progressive politics will save him in Massachusetts.`\
 https://www.nytimes.com/2026/08/14/us/politics/ed-markey-senator-age.html
 
-**Is The Rap-Fashion Mind Meld Complete?**\
+**Is the Rap-Fashion Mind Meld Complete?**\
 `Rapper and model Pz’ is one of the most promising artists working in the Atlanta rap scene right now. Our critic Jon Caramanica breaks down how his recent song with diamond* captures the evolving historical relationship between rap and fashion.`\
 https://www.nytimes.com/video/podcasts/100000011093558/is-the-rap-fashion-mind-meld-complete.html
 
