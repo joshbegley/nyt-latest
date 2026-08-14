@@ -1,3 +1,11 @@
+**8 Matisse Works, Looted from Library in Brazil, Are Recovered**\
+`The prints by the French master were taken in São Paulo last year in a brazen daylight heist.`\
+https://www.nytimes.com/2026/08/14/world/americas/matisse-stolen-art-found-sao-paulo-brazil-heist.html
+
+**Are Political Polls Accurate?**\
+`We look at recent problems with political polling.`\
+https://www.nytimes.com/2026/08/14/briefing/are-political-polls-accurate.html
+
 **‘The Headlines’ News Quiz: Aug. 14, 2026**\
 `Following the news? Tracy Mumford has some questions for you.`\
 https://www.nytimes.com/2026/08/14/podcasts/the-headlines/the-headlines-news-quiz-aug-14-2026.html

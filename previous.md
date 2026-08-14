@@ -1,3 +1,11 @@
+**8 Matisse Works, Looted from Library in Brazil, Are Recovered**\
+`The prints by the French master were taken in São Paulo last year in a brazen daylight heist.`\
+https://www.nytimes.com/2026/08/14/world/americas/matisse-stolen-art-found-sao-paulo-brazil-heist.html
+
+**Are Political Polls Accurate?**\
+`We look at recent problems with political polling.`\
+https://www.nytimes.com/2026/08/14/briefing/are-political-polls-accurate.html
+
 **‘The Headlines’ News Quiz: Aug. 14, 2026**\
 `Following the news? Tracy Mumford has some questions for you.`\
 https://www.nytimes.com/2026/08/14/podcasts/the-headlines/the-headlines-news-quiz-aug-14-2026.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/08/14/arts/design/bts-rm-art-museum.html
 **A Silicon Valley Dirt Farmer Hangs Up His Shears**\
 `Andy Mariani grows exotic and ethereally delicious stone fruit in the shadow of tech giants. But at age 80, it’s time to give up the land.`\
 https://www.nytimes.com/2026/08/14/business/a-silicon-valley-dirt-farmer-hangs-up-his-shears.html
-
-**Chatbots Are Pushing Us Toward a Post-Human Internet**\
-`In matters of work, school and even romance, we turn to A.I. chatbots. But what happens when the bots begin talking to one another?`\
-https://www.nytimes.com/2026/08/14/magazine/ai-chatbots-internet-communication-loops.html
-
-**Russia Campaigned to Derail Moldova’s Pro-Western Government**\
-`In Moldova, Moscow paid Orthodox priests, conducted a vote-buying scheme and set up training camps on election interference — all in an effort to derail the Western-leaning government.`\
-https://www.nytimes.com/2026/08/14/world/europe/russia-moldova-putin.html
 

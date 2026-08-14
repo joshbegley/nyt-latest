@@ -1,3 +1,11 @@
+**These 8 Edinburgh Fringe Shows Have Audiences Abuzz**\
+`Whether on a constant treadmill, turning trauma into laughs or venturing into children’s entertainment, these acts are winning over viewers and critics.`\
+https://www.nytimes.com/2026/08/14/arts/edinburgh-festival-fringe-buzziest-shows.html
+
+**Zuckerberg’s Anti-Doom Fantasy + Finally an A.I. Detector That Works + A.I. Math**\
+`“The first rule of Mark Zuckerberg is never count out Mark Zuckerberg.”`\
+https://www.nytimes.com/2026/08/14/podcasts/zuckerberg-essay-pangram-math.html
+
 **8 Matisse Works, Looted from Library in Brazil, Are Recovered**\
 `The prints by the French master were taken in São Paulo last year in a brazen daylight heist.`\
 https://www.nytimes.com/2026/08/14/world/americas/matisse-stolen-art-found-sao-paulo-brazil-heist.html
@@ -66,7 +74,7 @@ https://www.nytimes.com/2026/08/14/well/mind/envy-friends.html
 `Recent polling issues could continue in Democratic primaries in part because progressives are more likely to enjoy taking surveys.`\
 https://www.nytimes.com/2026/08/14/upshot/polling-errors-michigan-wisconsin.html
 
-**Ocasio-Cortez Can Run. Can She Win?**\
+**Is Ocasio-Cortez Ready for the Glass Cliff?**\
 `She will run as a woman but unlike how every woman before her was forced to run.`\
 https://www.nytimes.com/2026/08/14/opinion/aoc-president-woman-egg-freezing.html
 
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/08/14/books/review/sleep-dreams-childrens-picture-b
 **How Thrillers Hook You With Their First Sentence**\
 `Can our Book Review editor, Tina Jordan, guess thrillers from their first sentence? In this game we explore a few of the books from The New York Times’s “50 Best Thrillers of the 21st Century” list; and learn a bit more about why opening sentences are so important to get people reading.`\
 https://www.nytimes.com/video/books/100000011051376/how-thrillers-hook-you-with-their-first-sentence.html
-
-**RM, a Superstar With BTS, Gets His Feet Wet As an Art Curator**\
-`RM, of BTS, brings 145 works by Korean artists to SFMOMA this fall. “I know Picasso, I know van Gogh. I don’t know anyone from my country,” he told himself as he began to buy. “You have to find your root.”`\
-https://www.nytimes.com/2026/08/14/arts/design/bts-rm-art-museum.html
-
-**A Silicon Valley Dirt Farmer Hangs Up His Shears**\
-`Andy Mariani grows exotic and ethereally delicious stone fruit in the shadow of tech giants. But at age 80, it’s time to give up the land.`\
-https://www.nytimes.com/2026/08/14/business/a-silicon-valley-dirt-farmer-hangs-up-his-shears.html
 
