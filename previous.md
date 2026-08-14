@@ -1,3 +1,7 @@
+**FDA Classifies Egg Recall as Class I for Highest Health Risk**\
+`Nearly 20 million eggs were recalled in July over salmonella concerns. The new classification signals a “reasonable probability” of “serious adverse health consequences or death.”`\
+https://www.nytimes.com/2026/08/14/health/fda-egg-recall-salmonella.html
+
 **Map: 7.7-Magnitude Earthquake Shakes Indonesia**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/08/14/world/asia/indonesia-quake-tracker.html
@@ -22,7 +26,7 @@ https://www.nytimes.com/2026/08/14/us/politics/uss-abraham-lincoln-trump-supplie
 `Ed Markey is hoping that his progressive politics will save him in Massachusetts.`\
 https://www.nytimes.com/2026/08/14/us/politics/ed-markey-senator-age.html
 
-**Is The Rap-Fashion Mind Meld Complete?**\
+**Is the Rap-Fashion Mind Meld Complete?**\
 `Rapper and model Pz’ is one of the most promising artists working in the Atlanta rap scene right now. Our critic Jon Caramanica breaks down how his recent song with diamond* captures the evolving historical relationship between rap and fashion.`\
 https://www.nytimes.com/video/podcasts/100000011093558/is-the-rap-fashion-mind-meld-complete.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/14/nyregion/luigi-mangione-timeline.html
 **Outrage at UnitedHealth and Other Insurers Persists After Brian Thompson Killing**\
 `Higher premiums and rising medical bills have intensified Americans’ dissatisfaction with their medical coverage.`\
 https://www.nytimes.com/2026/08/14/business/unitedhealthcare-killing-luigi-mangione-affordability.html
-
-**Extreme Heat Is The New Normal**\
-`Record-breaking heat is the new normal. At Station 18 in Phoenix, firefighters are on the front lines tackling it — one bag of ice at a time. Watch the full Op-Doc, “A New Inferno.”`\
-https://www.nytimes.com/video/opinion/100000011072896/extreme-heat-is-the-new-normal.html
 

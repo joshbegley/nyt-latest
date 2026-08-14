@@ -1,3 +1,7 @@
+**Despite Mamdani’s Attempts to Appease, Many Business Leaders Remain Wary**\
+`The mayor’s attempt to create a business advisory council has been hampered by some concern that joining the council may be perceived as an endorsement of Mr. Mamdani.`\
+https://www.nytimes.com/2026/08/14/nyregion/mamdani-business-advisers.html
+
 **FDA Classifies Egg Recall as Class I for Highest Health Risk**\
 `Nearly 20 million eggs were recalled in July over salmonella concerns. The new classification signals a “reasonable probability” of “serious adverse health consequences or death.”`\
 https://www.nytimes.com/2026/08/14/health/fda-egg-recall-salmonella.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/14/opinion/red-blue-states-us-secession.html
 **A Timeline of Luigi Mangione’s Cases, From the UnitedHealthcare CEO’s Killing to a Guilty Plea**\
 `The shooting of a health care executive in December 2024 led to a sprawling manhunt, and two complex and interwoven cases.`\
 https://www.nytimes.com/2026/08/14/nyregion/luigi-mangione-timeline.html
-
-**Outrage at UnitedHealth and Other Insurers Persists After Brian Thompson Killing**\
-`Higher premiums and rising medical bills have intensified Americans’ dissatisfaction with their medical coverage.`\
-https://www.nytimes.com/2026/08/14/business/unitedhealthcare-killing-luigi-mangione-affordability.html
 

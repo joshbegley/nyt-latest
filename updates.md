@@ -1,3 +1,11 @@
+**FDA Classifies Egg Recall as Class I for Highest Health Risk**\
+`Nearly 20 million eggs were recalled in July over salmonella concerns. The new classification signals a “reasonable probability” of “serious adverse health consequences or death.”`\
+https://www.nytimes.com/2026/08/14/health/fda-egg-recall-salmonella.html
+
+**Is the Rap-Fashion Mind Meld Complete?**\
+`Rapper and model Pz’ is one of the most promising artists working in the Atlanta rap scene right now. Our critic Jon Caramanica breaks down how his recent song with diamond* captures the evolving historical relationship between rap and fashion.`\
+https://www.nytimes.com/video/podcasts/100000011093558/is-the-rap-fashion-mind-meld-complete.html
+
 **Map: 7.7-Magnitude Earthquake Shakes Indonesia**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/08/14/world/asia/indonesia-quake-tracker.html
