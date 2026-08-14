@@ -1,3 +1,7 @@
+**Gone in 20 Minutes: Half-Off Sushi Draws Throngs to New York’s Japanese Markets**\
+`At a proliferating number of stores, discounts on items like sushi are offered after 8 p.m. To get the best meals, you have to be there early.`\
+https://www.nytimes.com/2026/08/14/nyregion/sushi-discount-japanese-markets-new-york.html
+
 **Kevin Rideout, American Missionary Kidnapped in Niger, Is Released**\
 `Kevin Rideout, a pilot, had been abducted from his home in the country’s capital, Niamey, last fall. His mission organization said he was in “good health” after his release.`\
 https://www.nytimes.com/2026/08/14/world/africa/american-missionary-niger-rideout-released.html

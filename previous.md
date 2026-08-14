@@ -160,7 +160,7 @@ https://www.nytimes.com/2026/08/14/learning/word-of-the-day-regurgitate.html
 
 **Gone in 20 Minutes: Half-Off Sushi Draws Throngs to New York’s Japanese Markets**\
 `At a proliferating number of stores, discounts on items like sushi are offered after 8 p.m. To get the best meals, you have to be there early.`\
-https://www.nytimes.com/2026/08/14/nyregion/gone-in-20-minutes-half-off-sushi-draws-throngs-to-new-yorks-japanese-markets.html
+https://www.nytimes.com/2026/08/14/nyregion/sushi-discount-japanese-markets-new-york.html
 
 **‘A Dying Community’: An Energy Crisis Worsened by the War Strains Alaska**\
 `Diesel generators produce the electricity for small towns and hamlets like Manley Hot Springs, Alaska. Prices are soaring with no end in sight.`\
