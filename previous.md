@@ -1,3 +1,11 @@
+**Tropical Storm Lala Expected to Strengthen to a Hurricane as It Nears Hawaii**\
+`Up to 25 inches of rain could fall on the Big Island, forecasters said.`\
+https://www.nytimes.com/live/2026/08/14/weather/lala-tropical-storm-hurricane
+
+**Mining Claims Staked on Land Cut From Bears Ears and Grand Staircase Monuments**\
+`Prospectors are eyeing mineral deposits within the former boundaries of the Bears Ears and Grand Staircase-Escalante National Monuments in Utah.`\
+https://www.nytimes.com/2026/08/14/climate/mining-trump-utah-monuments.html
+
 **Wildfires Burn Across Europe as the Continent Feels Fifth Heat Wave**\
 `Wildfires threatened homes and communities across several countries in Europe this week, as the continent endured its fifth summer heat wave.`\
 https://www.nytimes.com/video/world/europe/100000011092023/europe-heat-wave-wildfires.html
@@ -55,7 +63,7 @@ https://www.nytimes.com/2026/08/14/climate/climate-superfund-professor-lawsuit-e
 https://www.nytimes.com/2026/08/14/nyregion/who-brian-thompson-unitedhealthcare-ceo-mangione.html
 
 **Live Updates: Mangione Admits Shooting Health Care Executive as He Pleads Guilty in Federal Court**\
-`Luigi Mangione faced two charges in connection with the 2024 killing of the executive, Brian Thompson, on a Manhattan sidewalk. Mr. Thompson’s family is also in the courtroom.`\
+`Luigi Mangione said he stalked the executive, Brian Thompson, before killing him on a New York sidewalk in 2024. “I shot Mr. Thompson,” he told the judge.`\
 https://www.nytimes.com/live/2026/08/14/nyregion/luigi-mangione-plea-deal
 
 **Ian Frazier Wrote ‘Coyote v. Acme’ in 1990. Now It’s a Movie.**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/opinion/100000011089809/what-if-america-followed-t
 **Brad Pitt’s Return to Drinking Is Not Unsafe, Experts Say**\
 `His disclosure in an interview revived a key question about sobriety: whether someone who once drank dangerously can ever drink moderately.`\
 https://www.nytimes.com/2026/08/14/us/brad-pitt-sobriety-experts.html
-
-**9 New Movies Our Critics Are Talking About This Week**\
-`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
-https://www.nytimes.com/2026/08/14/movies/new-movie-releases.html
-
-**Why the D.O.J. Is Pursuing Low-Level Fraud Cases**\
-`Our reporter Devlin Barrett explains why the Department of Justice is pursuing small-time fraud cases, and what that means for larger fraud investigations at the department.`\
-https://www.nytimes.com/video/us/100000011085709/justice-department-jd-vance-small-dollar-fraud.html
 

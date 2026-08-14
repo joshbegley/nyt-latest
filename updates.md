@@ -1,3 +1,15 @@
+**Tropical Storm Lala Expected to Strengthen to a Hurricane as It Nears Hawaii**\
+`Up to 25 inches of rain could fall on the Big Island, forecasters said.`\
+https://www.nytimes.com/live/2026/08/14/weather/lala-tropical-storm-hurricane
+
+**Mining Claims Staked on Land Cut From Bears Ears and Grand Staircase Monuments**\
+`Prospectors are eyeing mineral deposits within the former boundaries of the Bears Ears and Grand Staircase-Escalante National Monuments in Utah.`\
+https://www.nytimes.com/2026/08/14/climate/mining-trump-utah-monuments.html
+
+**Live Updates: Mangione Admits Shooting Health Care Executive as He Pleads Guilty in Federal Court**\
+`Luigi Mangione said he stalked the executive, Brian Thompson, before killing him on a New York sidewalk in 2024. “I shot Mr. Thompson,” he told the judge.`\
+https://www.nytimes.com/live/2026/08/14/nyregion/luigi-mangione-plea-deal
+
 **Live Updates: Mangione Admits Shooting Health Care Executive as He Pleads Guilty in Federal Court**\
 `Luigi Mangione faced two charges in connection with the 2024 killing of the executive, Brian Thompson, on a Manhattan sidewalk. Mr. Thompson’s family is also in the courtroom.`\
 https://www.nytimes.com/live/2026/08/14/nyregion/luigi-mangione-plea-deal

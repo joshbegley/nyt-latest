@@ -1,3 +1,7 @@
+**July Retail Sales Notch Biggest Drop in Over a Year**\
+`The data for July showed the biggest drop in more than a year, as American households face the economic strains brought on by persistent inflation`\
+https://www.nytimes.com/2026/08/14/business/retail-sales-july.html
+
 **Tropical Storm Lala Expected to Strengthen to a Hurricane as It Nears Hawaii**\
 `Up to 25 inches of rain could fall on the Big Island, forecasters said.`\
 https://www.nytimes.com/live/2026/08/14/weather/lala-tropical-storm-hurricane
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/14/us/politics/supreme-court-emergency-appeal-br
 **What if America Followed the Rules?**\
 `American foreign policy is at a crossroads. Could international law provide a framework for a foreign policy after President Trump?`\
 https://www.nytimes.com/video/opinion/100000011089809/what-if-america-followed-the-rules.html
-
-**Brad Pitt’s Return to Drinking Is Not Unsafe, Experts Say**\
-`His disclosure in an interview revived a key question about sobriety: whether someone who once drank dangerously can ever drink moderately.`\
-https://www.nytimes.com/2026/08/14/us/brad-pitt-sobriety-experts.html
 
