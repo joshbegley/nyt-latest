@@ -1,3 +1,11 @@
+**Woman Charged With Vandalizing World War II Memorial**\
+`Two felony charges have been filed against a Kentucky woman after spray paint appeared on the memorial in the capital.`\
+https://www.nytimes.com/2026/08/14/us/politics/world-war-2-memorial-vandalism.html
+
+**Google Turns On Gemini A.I. for Students Using Its Classroom App**\
+`Google enabled A.I. features for K-12 schools that have allowed student access to Gemini. Until this week, Google automatically enabled Gemini in Classroom only for students 18 or older.`\
+https://www.nytimes.com/2026/08/14/business/google-gemini-ai-schools.html
+
 **Mary Morello, Free Speech Activist Who Defended Explicit Lyrics, Dies at 102**\
 `An Illinois teacher — and the mother of the rock star Tom Morello — she took on Tipper Gore during culture war skirmishes over warning labels on records.`\
 https://www.nytimes.com/2026/08/14/us/mary-morello-dead.html
