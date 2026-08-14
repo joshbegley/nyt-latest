@@ -1,3 +1,7 @@
+**Dos agujeros negros supermasivos están a punto de fusionarse**\
+`En una galaxia muy lejana, el James Webb ha detectado una danza peculiar entre un trío de agujeros negros supermasivos.`\
+https://www.nytimes.com/es/2026/08/14/espanol/ciencia-y-tecnologia/telescopio-agujeros-negros.html
+
 **Jimmy Fallon Reacts to Karoline Leavitt’s White House Exit**\
 `The “Tonight Show” host said President Trump had been surprised by the press secretary’s decision to step down. “She was like, ‘I wanted to wait for a good time but there hasn’t been one, so.’”`\
 https://www.nytimes.com/2026/08/14/arts/television/late-night-jimmy-fallon-karoline-leavitt.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/polls/st-petersburg-florida-mayor-election-p
 **Israeli Settlers Resume West Bank Siege After Eviction**\
 `The military’s failure to keep extremists away from two Palestinian families trapped in their West Bank homes made clear the chaos gripping the Israeli-occupied territory.`\
 https://www.nytimes.com/2026/08/13/world/middleeast/west-bank-siege-israeli-settlers.html
-
-**De Venezuela a Colombia: este grupo de rescatistas no ha parado**\
-`Los Topos Azteca, un grupo mexicano de rescate voluntario que trabaja en todo el mundo y ayudó tras los ataques del 11 de septiembre, llegó a Colombia después de buscar sobrevivientes en Venezuela.`\
-https://www.nytimes.com/es/2026/08/13/espanol/america-latina/terremoto-colombia-venezuela-topos-mexico.html
 

@@ -1,3 +1,7 @@
+**Dos agujeros negros supermasivos están a punto de fusionarse**\
+`En una galaxia muy lejana, el James Webb ha detectado una danza peculiar entre un trío de agujeros negros supermasivos.`\
+https://www.nytimes.com/es/2026/08/14/espanol/ciencia-y-tecnologia/telescopio-agujeros-negros.html
+
 **Jimmy Fallon Reacts to Karoline Leavitt’s White House Exit**\
 `The “Tonight Show” host said President Trump had been surprised by the press secretary’s decision to step down. “She was like, ‘I wanted to wait for a good time but there hasn’t been one, so.’”`\
 https://www.nytimes.com/2026/08/14/arts/television/late-night-jimmy-fallon-karoline-leavitt.html
