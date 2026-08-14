@@ -1,3 +1,7 @@
+**Farage Wins Special U.K. Election That He Initiated, as Expected**\
+`Nigel Farage, the leader of Reform U.K., won the Clacton by-election with 63 percent. Count Binface, his costumed main rival, came second with 27 percent, a personal best.`\
+https://www.nytimes.com/2026/08/14/world/europe/farage-binface-clacton-result-byelection.html
+
 **Dos agujeros negros supermasivos están a punto de fusionarse**\
 `En una galaxia muy lejana, el James Webb ha detectado una danza peculiar entre un trío de agujeros negros supermasivos.`\
 https://www.nytimes.com/es/2026/08/14/espanol/ciencia-y-tecnologia/telescopio-agujeros-negros.html
