@@ -1,3 +1,11 @@
+**California Ignored Sexual Abuse of Women in Prison, Justice Dept. Says**\
+`A Justice Department report released on Thursday found that inmates at two state-run women’s prisons routinely had their rights violated. State officials say they have already put reforms in place.`\
+https://www.nytimes.com/2026/08/13/us/california-sexual-abuse-women-prison.html
+
+**New York Will Compost and Target Dog Waste in the City**\
+`The City Council passed a package of bills on Thursday to prevent dog poop from accumulating on sidewalks and in parks.`\
+https://www.nytimes.com/2026/08/13/nyregion/dog-poop-city-council-nyc.html
+
 **Kalshi Ordered to Cease Most Operations in Washington State**\
 `In a preliminary injunction, a state judge barred the prediction market from allowing residents to place bets on the bulk of its offerings.`\
 https://www.nytimes.com/2026/08/13/business/kalshi-washington-state-ruling.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/08/13/learning/the-times-is-turning-175-whats-your-
 **Covid Vaccines Are Not Linked to Miscarriage. Here’s How We Know.**\
 `Prominent Republicans and others have falsely claimed this week that the shots are linked, despite years of data showing they are safe.`\
 https://www.nytimes.com/2026/08/13/well/covid-vaccine-pregnancy-miscarriage-fauci.html
-
-**Raoul Vaneigem, Whose Manifesto Inspired 1968 Revolt in France, Dies at 92**\
-`“The Revolution of Everyday Life,” published in 1967, was his cri de coeur against mindless work, materialism and authority.`\
-https://www.nytimes.com/2026/08/13/books/raoul-vaneigem-dead.html
-
-**EE. UU. pagó 464 millones de dólares por aviones. Luego los estacionó**\
-`La agencia utilizó un contrato sin licitación para comprar 10 aviones usados, diciendo que se necesitaban con urgencia para vuelos de deportación. Pero durante meses, en gran medida, la flota ha permanecido inactiva.`\
-https://www.nytimes.com/es/2026/08/13/espanol/estados-unidos/seguridad-nacional-trump-aviones-sin-uso.html
 

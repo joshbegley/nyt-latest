@@ -1,3 +1,11 @@
+**California Ignored Sexual Abuse of Women in Prison, Justice Dept. Says**\
+`A Justice Department report released on Thursday found that inmates at two state-run women’s prisons routinely had their rights violated. State officials say they have already put reforms in place.`\
+https://www.nytimes.com/2026/08/13/us/california-sexual-abuse-women-prison.html
+
+**New York Will Compost and Target Dog Waste in the City**\
+`The City Council passed a package of bills on Thursday to prevent dog poop from accumulating on sidewalks and in parks.`\
+https://www.nytimes.com/2026/08/13/nyregion/dog-poop-city-council-nyc.html
+
 **Kalshi Ordered to Cease Most Operations in Washington State**\
 `In a preliminary injunction, a state judge barred the prediction market from allowing residents to place bets on the bulk of its offerings.`\
 https://www.nytimes.com/2026/08/13/business/kalshi-washington-state-ruling.html
