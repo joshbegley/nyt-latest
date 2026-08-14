@@ -1,3 +1,35 @@
+**Quote of the Day: Eclipse Was a Chance to Teach, and to Party**\
+`Quotation of the Day for Friday, August 14, 2026.`\
+https://www.nytimes.com/2026/08/14/pageoneplus/quote-of-the-day-eclipse-was-a-chance-to-teach-and-to-party.html
+
+**Will Sudan’s El Obeid Become the Next El Fasher? What to Know.**\
+`Taking El Obeid would allow the paramilitary Rapid Support Forces to consolidate its hold on western Sudan, a significant strategic goal.`\
+https://www.nytimes.com/2026/08/14/world/africa/el-obeid-sudan-war-el-fasher.html
+
+**Los lazos de España con Marruecos avivan las especulaciones sobre los migrantes en Ceuta**\
+`Circulaban rumores de que Marruecos, tal vez incitado por Israel y EE. UU., organizó un reciente desastre fronterizo. Esa suposición, según los expertos, se vio exacerbada por la complicada historia de la región.`\
+https://www.nytimes.com/es/2026/08/14/espanol/mundo/espana-marruecos-migrantes-rumores-teorias.html
+
+**The Healing Properties of Goofiness**\
+`Rukhsar Azamee, who came to the United States from Afghanistan, and Thomas Fallon have helped each other laugh through hard times.`\
+https://www.nytimes.com/2026/08/14/style/rukhsar-azamee-thomas-fallon-wedding.html
+
+**My Light Was Out. He Turned It On.**\
+`After a long, mostly sexless marriage, I thought I was done with passion.`\
+https://www.nytimes.com/2026/08/14/style/modern-love-my-light-was-out-he-turned-it-on.html
+
+**Was He the One? Only Her Hairdresser Knew for Sure.**\
+`While Laura DiLorenzo got her hair cut the afternoon before her first date with David Diskin, her hairstylist predicted marriage.`\
+https://www.nytimes.com/2026/08/14/style/laura-dilorenzo-david-diskin-wedding.html
+
+**A Courtship That Made Them Feel Young Again**\
+`Dave Evans and Frish Brandt, who remarried later in life, still found the freshness of “passing notes in school when we were kids,” as she put it.`\
+https://www.nytimes.com/2026/08/14/style/frish-brandt-dave-evans-wedding.html
+
+**They Finally Learned Why Their First Date Never Happened**\
+`More than a decade after Molly Ryan last saw Jesse Howard-Bloom, he sent her a message at just the right time.`\
+https://www.nytimes.com/2026/08/14/style/molly-ryan-jesse-howard-bloom-wedding.html
+
 **American Missionary Kidnapped in Niger Said to Be Released From Captivity**\
 `The release of Kevin Rideout, an American missionary pilot who was seized in Niger’s capital last fall, has been a priority for the White House.`\
 https://www.nytimes.com/2026/08/13/us/politics/kevin-rideout-niger-islamic-state.html
