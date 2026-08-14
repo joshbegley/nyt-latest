@@ -1,3 +1,7 @@
+**La política migratoria de Trump tiene raíces en el pasado de EE. UU.**\
+`El enfoque de Trump recuerda a políticas del siglo XX, cuando Estados Unidos respondió a la llegada de extranjeros con leyes que privilegiaban a unos grupos y cerraban la puerta a otros.`\
+https://www.nytimes.com/es/2026/08/14/espanol/estados-unidos/politica-migratoria-trump.html
+
 **Ellis Ludwig-Leone’s ‘Quiet Hours’ Highlights the Home Piano**\
 `Ellis Ludwig-Leone composed an album of nocturnes, each for a pianist friend to play on a home piano — or a piano that feels like home.`\
 https://www.nytimes.com/2026/08/14/arts/music/ellis-ludwig-leone-quiet-hours-nocturnes-home-pianos.html

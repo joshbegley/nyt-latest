@@ -90,7 +90,7 @@ https://www.nytimes.com/2026/08/14/opinion/ezra-klein-podcast-linda-kinstler.htm
 `Republicanos destacados y otras personas hicieron esta afirmación falsa, aprovechando de manera engañosa unos antiguos mensajes de texto de Anthony Fauci.`\
 https://www.nytimes.com/es/2026/08/14/espanol/vacunas-covid-aborto.html
 
-**La política migratoria de Trump tiene**\
+**La política migratoria de Trump tiene raíces en el pasado de EE. UU.**\
 `El enfoque de Trump recuerda a políticas del siglo XX, cuando Estados Unidos respondió a la llegada de extranjeros con leyes que privilegiaban a unos grupos y cerraban la puerta a otros.`\
 https://www.nytimes.com/es/2026/08/14/espanol/estados-unidos/politica-migratoria-trump.html
 
