@@ -1,4 +1,4 @@
-**Luigi Mangioni’s Case Hit a Cultural Nerve**\
+**Luigi Mangione’s Case Hit a Cultural Nerve**\
 `As the murder of Brian Thompson shocked most Americans, some people, many on social media, began showing Mr. Mangione sympathy and channeled their own frustration with the health care industry.`\
 https://www.nytimes.com/2026/08/14/nyregion/luigi-mangione-culture-shooting.html
 
