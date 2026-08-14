@@ -1,3 +1,7 @@
+**Youman Wilder, Baseball Coach Who Said He Faced Down ICE Agents, Dies at 63**\
+`He told reporters that he intervened when federal agents approached his young Black and Latino players after a practice last summer.`\
+https://www.nytimes.com/2026/08/14/nyregion/youman-wilder-dead.html
+
 **Britain’s Farage Takes a Page From Trump’s Playbook Amid Investigations**\
 `Nigel Farage, the Reform U.K. leader who resigned from Parliament and won back his seat on Thursday, stays on the offensive and says voters don’t care about allegations of financial impropriety.`\
 https://www.nytimes.com/2026/08/14/world/europe/farage-britain-trump-playbook-analysis.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/14/briefing/are-political-polls-accurate.html
 **‘The Headlines’ News Quiz: Aug. 14, 2026**\
 `Following the news? Tracy Mumford has some questions for you.`\
 https://www.nytimes.com/2026/08/14/podcasts/the-headlines/the-headlines-news-quiz-aug-14-2026.html
-
-**Kevin Rideout, American Missionary Kidnapped in Niger, Is Released**\
-`Kevin Rideout, a pilot, was abducted from his home in the country’s capital, Niamey, last fall. His mission organization said he was in “good health” after his release.`\
-https://www.nytimes.com/2026/08/14/world/africa/american-missionary-niger-rideout-released.html
 
