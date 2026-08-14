@@ -1,3 +1,15 @@
+**A Timeline of the Luigi Mangione Cases**\
+`The shooting of a health care executive in December 2024 led to a sprawling manhunt, and two complex and interwoven cases.`\
+https://www.nytimes.com/2026/08/14/nyregion/luigi-mangione-timeline.html
+
+**Outrage at UnitedHealth and Other Insurers Persists After Brian Thompson Killing**\
+`Higher premiums and rising medical bills have intensified Americans’ dissatisfaction with their medical coverage.`\
+https://www.nytimes.com/2026/08/14/business/unitedhealthcare-killing-luigi-mangione-affordability.html
+
+**Extreme Heat Is The New Normal**\
+`Record-breaking heat is the new normal. At Station 18 in Phoenix, firefighters are on the front lines tackling it — one bag of ice at a time. Watch the full Op-Doc, “A New Inferno.”`\
+https://www.nytimes.com/video/opinion/100000011072896/extreme-heat-is-the-new-normal.html
+
 **West Bank Settlers Continue to Besiege Palestinian Families**\
 `Two Palestinian families have been trapped by violent Israeli settlers in the West Bank since Sunday. The Israeli military evicted the settlers, but they returned hours later.`\
 https://www.nytimes.com/video/world/middleeast/100000011092024/west-bank-israel-palestinian-familiies.html
@@ -99,7 +111,7 @@ https://www.nytimes.com/2026/08/14/nyregion/who-is-luigi-mangione.html
 https://www.nytimes.com/2026/08/14/climate/climate-superfund-professor-lawsuit-emails-michigan.html
 
 **Who Was Brian Thompson, the UnitedHealthcare CEO Killed in 2024?**\
-`The United Healthcare chief executive rose from humble Midwestern beginnings to the top position at a health insurance giant.`\
+`The UnitedHealthcare chief executive rose from humble Midwestern beginnings to the top position at a health insurance giant.`\
 https://www.nytimes.com/2026/08/14/nyregion/who-brian-thompson-unitedhealthcare-ceo-mangione.html
 
 **Live Updates: Mangione Admits Shooting Health Care Executive as He Pleads Guilty in Federal Court**\
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/08/14/crosswords/wordle-review-1883.html
 **NYT Strands Hints for Aug. 15, 2026**\
 `Scroll down for hints and conversation about the puzzle for Saturday, Aug. 15, 2026.`\
 https://www.nytimes.com/2026/08/14/crosswords/strands-sidekick-895.html
-
-**Record-Breaking Rainfall Leaves Eight Dead and Thousands Stranded in Japan**\
-`Three months’ worth of rain fell in just 12 hours in a region east of Tokyo, leading to deadly flooding.`\
-https://www.nytimes.com/2026/08/14/world/asia/chiba-tokyo-flood-rain-deaths.html
-
-**Kawhi Leonard’s ‘No-Show’ Jumbotron Job: The Paper Trail**\
-`Pablo obtains new emails from the NBA scandal that reveal the Clippers’ role in their star’s second hidden “sponsorship” deal.`\
-https://www.nytimes.com/2026/08/14/podcasts/nba-kawhi-leonard-jumbotron.html
-
-**What if America Followed the Rules?**\
-`American foreign policy is at a crossroads. Could international law provide a framework for a foreign policy after President Trump?`\
-https://www.nytimes.com/2026/08/14/opinion/ezra-klein-podcast-linda-kinstler.html
 
