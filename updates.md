@@ -1,3 +1,7 @@
+**Un portaaviones de la Marina de EE. UU. causa preocupación**\
+`El USS Abraham Lincoln ha estado desplegado casi nueve meses, primero en el mar Caribe y ahora en Medio Oriente, por lo que hay inquietudes sobre el bienestar de la tripulación.`\
+https://www.nytimes.com/es/2026/08/14/espanol/estados-unidos/ejercito-portaaviones-preocupacion-guerra-iran.html
+
 **Brad Pitt dijo que volvió a beber alcohol. No es peligroso, pero no es para todos**\
 `La revelación del actor intensificó el debate sobre una pregunta clave de la sobriedad: ¿alguien que bebió en exceso puede volver a beber con moderación?`\
 https://www.nytimes.com/es/2026/08/14/espanol/cultura/brad-pitt-alcoholismo-sobriedad.html
