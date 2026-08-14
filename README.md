@@ -1,3 +1,7 @@
+**What’s Next for Luigi Mangione After His Guilty Plea?**\
+`Mr. Mangione’s plea in the federal case could make it difficult for New York State prosecutors to try their own case.`\
+https://www.nytimes.com/2026/08/14/nyregion/what-is-next-luigi-mangione-case.html
+
 **Should Red and Blue States Get a Divorce?**\
 `Responses to an essay about whether America should remain one nation. Also: Christie Brinkley, on nuclear reactors; military aid to Ukraine; whiskey with friends.`\
 https://www.nytimes.com/2026/08/14/opinion/red-blue-states-us-secession.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/14/podcasts/the-headlines/aircraft-carrier-trump
 **NYT Connections Answers for August 15, 2026**\
 `Scroll down for hints and conversation about the puzzle for Saturday, Aug. 15, 2026.`\
 https://www.nytimes.com/2026/08/14/crosswords/connections-companion-1161.html
-
-**Today’s Wordle Hints for August 15, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, Aug. 15, 2026.`\
-https://www.nytimes.com/2026/08/14/crosswords/wordle-review-1883.html
 
