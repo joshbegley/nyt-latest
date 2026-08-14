@@ -1,3 +1,11 @@
+**Jason Arday, académico de Cambridge bajo sospecha de plagio, es reportado muerto**\
+`La policía británica dijo que se había encontrado sin vida a un hombre en una casa vinculada a Arday, quien estaba siendo investigado por acusaciones de plagio y engaño.`\
+https://www.nytimes.com/es/2026/08/14/espanol/mundo/jason-arday-cambridge-muerte.html
+
+**As Army Fails to Protect Palestinians, Israeli Leaders Sympathize With Settlers**\
+`Defense Minister Katz called for the military to turn over to the police the responsibility for protecting Palestinians after two West Bank families were besieged by violent settlers.`\
+https://www.nytimes.com/2026/08/14/world/middleeast/israel-west-bank-settler-violence-military-police.html
+
 **Is It Safe to Eat Lettuce and Other Fresh Produce as Cyclospora Outbreak Wanes?**\
 `As the largest cyclospora outbreak in U.S. history wanes, experts weigh in on whether iceberg and other fresh produce are still a risk.`\
 https://www.nytimes.com/2026/08/14/well/eat/cyclospora-lettuce-jalapenos-produce-safe.html

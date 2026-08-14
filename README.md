@@ -180,7 +180,7 @@ https://www.nytimes.com/2026/08/14/business/retail-sales-july.html
 
 **Tropical Storm Lala Expected to Strengthen to a Hurricane as It Nears Hawaii**\
 `Up to 25 inches of rain could fall on the Big Island, forecasters said.`\
-https://www.nytimes.com/live/2026/08/14/weather/lala-tropical-storm-hurricane
+https://www.nytimes.com/live/2026/08/14/weather/lala-tropical-storm-hurricane-hawaii
 
 **Mining Claims Staked on Land Cut From Bears Ears and Grand Staircase Monuments**\
 `Prospectors are eyeing mineral deposits within the former boundaries of the Bears Ears and Grand Staircase-Escalante National Monuments in Utah.`\

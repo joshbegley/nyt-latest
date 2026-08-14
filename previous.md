@@ -1,3 +1,11 @@
+**Jason Arday, académico de Cambridge bajo sospecha de plagio, es reportado muerto**\
+`La policía británica dijo que se había encontrado sin vida a un hombre en una casa vinculada a Arday, quien estaba siendo investigado por acusaciones de plagio y engaño.`\
+https://www.nytimes.com/es/2026/08/14/espanol/mundo/jason-arday-cambridge-muerte.html
+
+**As Army Fails to Protect Palestinians, Israeli Leaders Sympathize With Settlers**\
+`Defense Minister Katz called for the military to turn over to the police the responsibility for protecting Palestinians after two West Bank families were besieged by violent settlers.`\
+https://www.nytimes.com/2026/08/14/world/middleeast/israel-west-bank-settler-violence-military-police.html
+
 **Is It Safe to Eat Lettuce and Other Fresh Produce as Cyclospora Outbreak Wanes?**\
 `As the largest cyclospora outbreak in U.S. history wanes, experts weigh in on whether iceberg and other fresh produce are still a risk.`\
 https://www.nytimes.com/2026/08/14/well/eat/cyclospora-lettuce-jalapenos-produce-safe.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/14/world/africa/zambia-election-vote-count-suspe
 **Russell Fry Backs Darline Graham in South Carolina Senate Runoff Amid Trump Pressure**\
 `The president has been focused on the race since the death of Lindsey Graham in July. Ms. Graham, the late senator’s sister, is competing against Representative Ralph Norman in a runoff on Aug. 25.`\
 https://www.nytimes.com/2026/08/14/us/politics/russell-fry-darline-graham-south-carolina.html
-
-**Five Arrested in Connection to Stolen Works by Cézanne, Renoir and Matisse, Prosecutors Say**\
-`The Italian military police said that art collectively valued at more than $10 million had been found five months after being taken in a nighttime heist near Parma.`\
-https://www.nytimes.com/2026/08/14/world/europe/cezanne-renoir-matisse-heist-recovered.html
-
-**Why Europe Keeps Being Pummeled by Heat Waves**\
-`The whole planet is warming, but changes in weather patterns could help explain why the continent is suffering so many bouts of severe heat.`\
-https://www.nytimes.com/2026/08/14/climate/europe-heat-waves-jet-stream.html
 
