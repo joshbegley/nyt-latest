@@ -1,3 +1,7 @@
+**Why Japan Is Struggling to Stop the Yen’s Decline**\
+`The currency has resumed its slide, eroding gains after the U.S. Treasury intervened to prop it up, as concerns mount about the direction of the country’s spending.`\
+https://www.nytimes.com/2026/08/14/business/japan-yen-intervention.html
+
 **Who Is Luigi Mangione?**\
 `A star student from a wealthy family, he attended an Ivy League university, worked in tech and traveled. But his posts and activity on social media suggested some struggle.`\
 https://www.nytimes.com/2026/08/14/nyregion/who-is-luigi-mangione.html

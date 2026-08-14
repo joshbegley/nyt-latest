@@ -1,3 +1,7 @@
+**Why Japan Is Struggling to Stop the Yen’s Decline**\
+`The currency has resumed its slide, eroding gains after the U.S. Treasury intervened to prop it up, as concerns mount about the direction of the country’s spending.`\
+https://www.nytimes.com/2026/08/14/business/japan-yen-intervention.html
+
 **Who Is Luigi Mangione?**\
 `A star student from a wealthy family, he attended an Ivy League university, worked in tech and traveled. But his posts and activity on social media suggested some struggle.`\
 https://www.nytimes.com/2026/08/14/nyregion/who-is-luigi-mangione.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/14/theater/schmigadoon-cast-album-theater-stream
 **Palestinian Rappers Shabjdeed and Saint Levant in Spat Over Authenticity**\
 `Shabjdeed, a rapper in the West Bank, criticized a fellow Palestinian musician in a song, saying his Western lifestyle and lyrics were far removed from life back home.`\
 https://www.nytimes.com/2026/08/14/world/middleeast/shabjdeed-saint-levant-slv.html
-
-**In “The Bend in the River,” Robb Moss’s Old Friends Reflect on Aging**\
-`In “The Bend in the River,” Robb Moss catches up with the subjects of two of his previous films as they reflect on their lives and what’s left.`\
-https://www.nytimes.com/2026/08/14/movies/the-bend-in-the-river-review.html
 
