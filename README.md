@@ -1,3 +1,7 @@
+**Map: 7.7-Magnitude Earthquake Shakes Indonesia**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/08/14/world/asia/indonesia-quake-tracker.html
+
 **New Haven to Pay $30.5 Million to 2 Men Wrongfully Convicted of Murder**\
 `Two teens were accused of killing a man in a Connecticut deli in 1999. Their lawyers said the police hid evidence and intimidated witnesses.`\
 https://www.nytimes.com/2026/08/14/nyregion/new-haven-wrongful-conviction-payout.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/14/business/unitedhealthcare-killing-luigi-mangi
 **Extreme Heat Is The New Normal**\
 `Record-breaking heat is the new normal. At Station 18 in Phoenix, firefighters are on the front lines tackling it — one bag of ice at a time. Watch the full Op-Doc, “A New Inferno.”`\
 https://www.nytimes.com/video/opinion/100000011072896/extreme-heat-is-the-new-normal.html
-
-**West Bank Settlers Continue to Besiege Palestinian Families**\
-`Two Palestinian families have been trapped by violent Israeli settlers in the West Bank since Sunday. The Israeli military evicted the settlers, but they returned hours later.`\
-https://www.nytimes.com/video/world/middleeast/100000011092024/west-bank-israel-palestinian-familiies.html
 
