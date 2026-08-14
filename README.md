@@ -62,7 +62,7 @@ https://www.nytimes.com/2026/08/13/world/canada/plasma-blood-donation-deaths-gri
 `Immigrants at Delaney Hall in Newark have complained about health services. Federal officials defended the treatment provided there and elsewhere.`\
 https://www.nytimes.com/2026/08/13/nyregion/delaney-hall-detainee-health-ice.html
 
-**Engine Blade Hit Window on Jet When Man Was Partly Sucked Outside, Report Says**\
+**Engine Blade Hit Window on Jet Before Man Was Partly Sucked Outside, Report Says**\
 `The National Transportation Safety Board said it had found a bird’s remains and feathers on a broken engine.`\
 https://www.nytimes.com/2026/08/13/world/europe/ryanair-flight-passenger-window.html
 
