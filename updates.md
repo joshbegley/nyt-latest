@@ -1,3 +1,23 @@
+**Hawaiian Electric Warns Any Power Outages May Last Days**\
+`The severe tropical weather conditions from the approaching storm Lala are expected to topple trees and down power lines as it crosses the state.`\
+https://www.nytimes.com/2026/08/14/weather/hurricane-lala-hawaii-power-grid.html
+
+**President Trump Takes Credit for Steep Crime Rate Declines**\
+`Violent crime rates, including murder, have dropped precipitously. The trend began before the president’s current term.`\
+https://www.nytimes.com/2026/08/14/us/politics/trump-fbi-crime-rate-declines.html
+
+**Navy Carrier’s Problems Are Tied to Attacks on U.S. Base Early in War**\
+`Diego Garcia, a tiny island 2,200 miles from the Gulf of Oman, took over as the Navy’s logistics hub after Iran damaged a base in Bahrain.`\
+https://www.nytimes.com/2026/08/14/us/politics/uss-abraham-lincoln-trump-supplies-diego-garcia.html
+
+**Can Senator Ed Markey’s Progressive Politics Help Him Overcome the Age Issue?**\
+`Ed Markey is hoping that his progressive politics will save him in Massachusetts.`\
+https://www.nytimes.com/2026/08/14/us/politics/ed-markey-senator-age.html
+
+**Is The Rap-Fashion Mind Meld Complete?**\
+`Rapper and model Pz’ is one of the most promising artists working in the Atlanta rap scene right now. Our critic Jon Caramanica breaks down how his recent song with diamond* captures the evolving historical relationship between rap and fashion.`\
+https://www.nytimes.com/video/podcasts/100000011093558/is-the-rap-fashion-mind-meld-complete.html
+
 **Luigi Mangione’s Case Hit a Cultural Nerve**\
 `As the murder of Brian Thompson shocked most Americans, some people, many on social media, began showing Mr. Mangione sympathy and channeled their own frustration with the health care industry.`\
 https://www.nytimes.com/2026/08/14/nyregion/luigi-mangione-culture-shooting.html
