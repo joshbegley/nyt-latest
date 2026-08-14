@@ -1,3 +1,7 @@
+**After 2 Plasma Donor Deaths, Company Pauses Clinics in Canada**\
+`Grifols, a Spanish company, said “unfounded attention” on its blood plasma business in Canada had led it to temporarily end collections at 17 clinics.`\
+https://www.nytimes.com/2026/08/13/world/canada/plasma-blood-donation-deaths-grifols.html
+
 **Deaths of 3 ICE Detainees Prompt Questions About Medical Care**\
 `Immigrants at Delaney Hall in Newark have complained about health services. Federal officials defended the treatment provided there and elsewhere.`\
 https://www.nytimes.com/2026/08/13/nyregion/delaney-hall-detainee-health-ice.html
