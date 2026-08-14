@@ -1,3 +1,7 @@
+**Tech Giants’ Profits Reveal Potential Vulnerability in the Stock Market**\
+`Investment gains at Alphabet and Amazon reveal a new way in which technology companies’ fortunes are increasingly linked.`\
+https://www.nytimes.com/2026/08/14/business/ai-tech-profits.html
+
 **Why Japan Is Struggling to Stop the Yen’s Decline**\
 `The currency has resumed its slide, eroding gains after the U.S. Treasury intervened to prop it up, as concerns mount about the direction of the country’s spending.`\
 https://www.nytimes.com/2026/08/14/business/japan-yen-intervention.html
