@@ -1,3 +1,23 @@
+**When a Rare Wolf Got Too Close, Denmark Faced a Conservation Dilemma**\
+`The authorities tracked the animal after a string of close encounters with residents, reigniting a bitter debate over how a small, densely populated country should live with wolves.`\
+https://www.nytimes.com/2026/08/14/world/europe/rare-wolf-denmark-conservation-dilemma.html
+
+**Andrés Manuel López Beltrán, hijo de AMLO, dice que EE. UU. le revocó su visa**\
+`Andrés Manuel López Beltrán, hijo del expresidente López Obrador, arremetió contra el gobierno de Donald Trump por la medida, en otro episodio de fricción para la tensa relación entre México y EE. UU.`\
+https://www.nytimes.com/es/2026/08/14/espanol/mundo/lopez-beltran-amlo-visa-estados-unidos.html
+
+**Luigi Mangione admite haber matado al ejecutivo de seguros abatido en Manhattan**\
+`En una audiencia en la que se declaró culpable de delitos federales, Mangione dijo que antes de matar al director ejecutivo de UnitedHealthcare soportó años de dolor durante su trato con la industria de seguros.`\
+https://www.nytimes.com/es/2026/08/14/espanol/estados-unidos/luigi-mangione-culpable.html
+
+**Jason Arday, Cambridge Professor Accused of Plagiarism, Reported Dead**\
+`The British police said a man had been found dead at a home linked to Mr. Arday, who resigned after the university announced an investigation into allegations of plagiarism and fabrication.`\
+https://www.nytimes.com/2026/08/14/world/europe/jason-arday-dead.html
+
+**Stock Trading in Congress Becomes an Attack Line in Midterm Campaigns**\
+`Republican and Democratic challengers are both using the issue to attack members of Congress as unethical, seizing on a common practice that enrages voters.`\
+https://www.nytimes.com/2026/08/14/us/politics/stock-trading-congress.html
+
 **Jason Arday, Cambridge Scholar Who Resigned Under Scrutiny, Reported Dead**\
 `The British police said a man had been found dead at a home linked to Mr. Arday, who resigned after the university announced an investigation into allegations of plagiarism and fabrication.`\
 https://www.nytimes.com/2026/08/14/world/europe/jason-arday-dead.html

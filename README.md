@@ -1,3 +1,11 @@
+**Trump Dismisses Reports About Dire Conditions Aboard U.S.S. Abraham Lincoln**\
+`Asked whether the deployment of the Abraham Lincoln had gone on too long, the president said its deployment had lasted “not nearly long enough.”`\
+https://www.nytimes.com/2026/08/14/us/politics/trump-uss-abraham-lincoln.html
+
+**John Carro, Jurist Who Had Early Brush With Lee Harvey Oswald, Dies at 98**\
+`Decades before his rise to the New York State appellate court, he was a probation officer who tried to help Mr. Oswald, then a teenager living in the Bronx.`\
+https://www.nytimes.com/2026/08/14/us/politics/john-carro-dead.html
+
 **When a Rare Wolf Got Too Close, Denmark Faced a Conservation Dilemma**\
 `The authorities tracked the animal after a string of close encounters with residents, reigniting a bitter debate over how a small, densely populated country should live with wolves.`\
 https://www.nytimes.com/2026/08/14/world/europe/rare-wolf-denmark-conservation-dilemma.html
@@ -46,7 +54,7 @@ https://www.nytimes.com/2026/08/14/world/americas/mexico-visas-lopez-beltran.htm
 `The campaign of Mary Peltola said it was focused on issues important to Alaska and did not approve a message of support from Ms. Harris.`\
 https://www.nytimes.com/2026/08/14/us/politics/kamala-harris-mary-peltola-endorsement.html
 
-**Selena Gomez Is Sued for Defrauding Investors in Mental Health Site**\
+**Lawsuit Accuses Selena Gomez of Defrauding Investors in Mental Health Site**\
 `The actor, singer and beauty mogul founded Wondermind, a mental health platform, with her mother. Investors put in more than $1 million in the venture, which “quietly collapsed,” the suit said.`\
 https://www.nytimes.com/2026/08/14/us/selena-gomez-wondermind-lawsuit-fraud.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/14/briefing/today-in-short.html
 **This Cheesy Corn Salad Speaks for Itself**\
 `And more of the week’s most popular recipes.`\
 https://www.nytimes.com/2026/08/14/dining/this-cheesy-corn-salad-speaks-for-itself.html
-
-**Democrats Have ‘Woke 1.0.’ The G.O.P. Has Trump. Which Is the Bigger Drag?**\
-`Both parties face hurdles heading into the fall.`\
-https://www.nytimes.com/2026/08/14/opinion/midterms-trump-elections-democrat-republican.html
-
-**Five Horror Movies to Stream Now**\
-`In these picks: sinister sounds, a troubled teenager and musical maniacs.`\
-https://www.nytimes.com/2026/08/14/movies/horror-movies-streaming.html
 
