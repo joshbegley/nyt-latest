@@ -1,3 +1,35 @@
+**Quote of the Day: Eclipse Was a Chance to Teach, and to Party**\
+`Quotation of the Day for Friday, August 14, 2026.`\
+https://www.nytimes.com/2026/08/14/pageoneplus/quote-of-the-day-eclipse-was-a-chance-to-teach-and-to-party.html
+
+**Will Sudan’s El Obeid Become the Next El Fasher? What to Know.**\
+`Taking El Obeid would allow the paramilitary Rapid Support Forces to consolidate its hold on western Sudan, a significant strategic goal.`\
+https://www.nytimes.com/2026/08/14/world/africa/el-obeid-sudan-war-el-fasher.html
+
+**Los lazos de España con Marruecos avivan las especulaciones sobre los migrantes en Ceuta**\
+`Circulaban rumores de que Marruecos, tal vez incitado por Israel y EE. UU., organizó un reciente desastre fronterizo. Esa suposición, según los expertos, se vio exacerbada por la complicada historia de la región.`\
+https://www.nytimes.com/es/2026/08/14/espanol/mundo/espana-marruecos-migrantes-rumores-teorias.html
+
+**The Healing Properties of Goofiness**\
+`Rukhsar Azamee, who came to the United States from Afghanistan, and Thomas Fallon have helped each other laugh through hard times.`\
+https://www.nytimes.com/2026/08/14/style/rukhsar-azamee-thomas-fallon-wedding.html
+
+**My Light Was Out. He Turned It On.**\
+`After a long, mostly sexless marriage, I thought I was done with passion.`\
+https://www.nytimes.com/2026/08/14/style/modern-love-my-light-was-out-he-turned-it-on.html
+
+**Was He the One? Only Her Hairdresser Knew for Sure.**\
+`While Laura DiLorenzo got her hair cut the afternoon before her first date with David Diskin, her hairstylist predicted marriage.`\
+https://www.nytimes.com/2026/08/14/style/laura-dilorenzo-david-diskin-wedding.html
+
+**A Courtship That Made Them Feel Young Again**\
+`Dave Evans and Frish Brandt, who remarried later in life, still found the freshness of “passing notes in school when we were kids,” as she put it.`\
+https://www.nytimes.com/2026/08/14/style/frish-brandt-dave-evans-wedding.html
+
+**They Finally Learned Why Their First Date Never Happened**\
+`More than a decade after Molly Ryan last saw Jesse Howard-Bloom, he sent her a message at just the right time.`\
+https://www.nytimes.com/2026/08/14/style/molly-ryan-jesse-howard-bloom-wedding.html
+
 **American Missionary Kidnapped in Niger Said to Be Released From Captivity**\
 `The release of Kevin Rideout, an American missionary pilot who was seized in Niger’s capital last fall, has been a priority for the White House.`\
 https://www.nytimes.com/2026/08/13/us/politics/kevin-rideout-niger-islamic-state.html
@@ -165,36 +197,4 @@ https://www.nytimes.com/video/embedded/world/europe/100000011090907/13vid-uk-tra
 **John Crowley, Author of Reality-Blurring Fantasy Novels Like ‘Little, Big,‘ Dies at 83**\
 `The eminent critic Harold Bloom called his 1981 book “Little, Big” a “neglected masterpiece” and one of the best novels of the 20th century.`\
 https://www.nytimes.com/2026/08/13/books/john-crowley-dead.html
-
-**Trump Gives Green Light to U.S. Companies to Aim Hacks at Cybercriminals**\
-`The practice would align the United States more closely with countries like China and Russia, where spy agencies have long relied on private-sector hackers to help with national security missions.`\
-https://www.nytimes.com/2026/08/13/us/politics/trump-private-companies-hacking-cybercriminals.html
-
-**Only Global Cooperation Can Keep the World Safe From A.I.**\
-`A conversation with Robert Wright, the author of “The God Test.”`\
-https://www.nytimes.com/2026/08/13/opinion/ai-safety-regulation-robert-wright.html
-
-**Another OpenAI Executive, Denise Dresser, Departs the A.I. Start-Up**\
-`Denise Dresser, who was previously the C.E.O. of Slack, is the latest in a string of executives to leave the artificial intelligence start-up.`\
-https://www.nytimes.com/2026/08/13/technology/openai-executive-departure-denise-dresser.html
-
-**Trump’s Immigration Policy Echoes 1920s Crackdown, but This Time Congress Isn’t Involved**\
-`U.S. leaders limited immigration amid economic and social turmoil. Historians see similarities to Trump’s crackdown, with a catch: He’s doing it without Congress.`\
-https://www.nytimes.com/2026/08/13/us/politics/trump-immigration-crackdown.html
-
-**Books Our Editors Loved This Week**\
-`Reading recommendations from critics and editors at The New York Times.`\
-https://www.nytimes.com/2026/08/13/books/review/new-recommended-books.html
-
-**Timber Fire Threatens California’s Big Sur Region: What to Know**\
-`The Timber fire has burned more than 4,000 acres and was 7 percent contained on Thursday.`\
-https://www.nytimes.com/2026/08/13/us/timber-fire-big-sur.html
-
-**Alfonso Fanjul Jr., barón azucarero cubanoestadounidense, muere a los 89 años**\
-`Junto a su hermano, presidió un imperio familiar que incluye la refinería de azúcar de caña más grande del mundo y las marcas Domino y C&H.`\
-https://www.nytimes.com/es/2026/08/13/espanol/cultura/muere-alfonso-fanjul-cuba-azucar.html
-
-**The Times Is Turning 175. What’s Your Favorite Piece You’ve Taught With or Learned From?**\
-`Whether it’s old or new, or an article, essay, photo, video, podcast, graph or illustration, we’d love to hear what’s been most useful to you.`\
-https://www.nytimes.com/2026/08/13/learning/the-times-is-turning-175-whats-your-favorite-piece-youve-taught-with-or-learned-from.html
 
