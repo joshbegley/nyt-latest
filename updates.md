@@ -1,3 +1,11 @@
+**Who Is Luigi Mangione?**\
+`A star student from a wealthy family, he attended an Ivy League university, worked in tech and traveled. But his posts and activity on social media suggested some struggle.`\
+https://www.nytimes.com/2026/08/14/nyregion/who-is-luigi-mangione.html
+
+**Judge Rejects Suit Against University of Michigan That Sought Emails on Climate Law**\
+`A conservative group had tried to force the University of Michigan to hand over messages from a law professor who worked on “climate superfund” bills.`\
+https://www.nytimes.com/2026/08/14/climate/climate-superfund-professor-lawsuit-emails-michigan.html
+
 **Who Was Brian Thompson, the UnitedHealthcare CEO Killed in 2024?**\
 `The United Healthcare chief executive rose from humble Midwestern beginnings to the top position at a health insurance giant.`\
 https://www.nytimes.com/2026/08/14/nyregion/who-brian-thompson-unitedhealthcare-ceo-mangione.html
