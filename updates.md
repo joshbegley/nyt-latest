@@ -1,3 +1,7 @@
+**😭 o 😂: ¿Tus emojis delatan tu edad?**\
+`Cuando se trata del uso de emojis, todos simplemente imitamos a las adolescentes.`\
+https://www.nytimes.com/es/interactive/2026/08/14/espanol/emojis-significado-edad.html
+
 **America Needs a Follow-the-Rules Foreign Policy**\
 `American foreign policy is at a crossroads. What’s next? The Times Opinion columnist Ezra Klein explores the case for abiding by the rules-based international order.`\
 https://www.nytimes.com/video/opinion/100000011089811/america-needs-a-follow-the-rules-foreign-policy.html
