@@ -1,3 +1,11 @@
+**Mangione Admits to Fatally Shooting Insurance Executive in Manhattan**\
+`At a hearing in which he pleaded guilty to federal crimes, Luigi Mangione said he endured years of back pain while navigating the insurance industry before killing the chief executive of UnitedHealthcare.`\
+https://www.nytimes.com/2026/08/14/nyregion/mangione-admits-shooting-executive.html
+
+**Parkinson’s Made Daniel Barenboim Step Back. But He’s on the Conductor’s Podium Again.**\
+`Daniel Barenboim is leading his orchestra of Arab and Israeli musicians on a European tour. His movements onstage were few, but often effective.`\
+https://www.nytimes.com/2026/08/14/arts/music/daniel-barenboim-conductor.html
+
 **Youman Wilder, Baseball Coach Who Said He Faced Down ICE Agents, Dies at 63**\
 `He told reporters that he intervened when federal agents approached his young Black and Latino players after a practice last summer.`\
 https://www.nytimes.com/2026/08/14/nyregion/youman-wilder-dead.html

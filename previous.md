@@ -1,3 +1,11 @@
+**Mangione Admits to Fatally Shooting Insurance Executive in Manhattan**\
+`At a hearing in which he pleaded guilty to federal crimes, Luigi Mangione said he endured years of back pain while navigating the insurance industry before killing the chief executive of UnitedHealthcare.`\
+https://www.nytimes.com/2026/08/14/nyregion/mangione-admits-shooting-executive.html
+
+**Parkinson’s Made Daniel Barenboim Step Back. But He’s on the Conductor’s Podium Again.**\
+`Daniel Barenboim is leading his orchestra of Arab and Israeli musicians on a European tour. His movements onstage were few, but often effective.`\
+https://www.nytimes.com/2026/08/14/arts/music/daniel-barenboim-conductor.html
+
 **Youman Wilder, Baseball Coach Who Said He Faced Down ICE Agents, Dies at 63**\
 `He told reporters that he intervened when federal agents approached his young Black and Latino players after a practice last summer.`\
 https://www.nytimes.com/2026/08/14/nyregion/youman-wilder-dead.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/14/podcasts/zuckerberg-essay-pangram-math.html
 **8 Matisse Works, Looted from Library in Brazil, Are Recovered**\
 `The prints by the French master were taken in São Paulo last year in a brazen daylight heist.`\
 https://www.nytimes.com/2026/08/14/world/americas/matisse-stolen-art-found-sao-paulo-brazil-heist.html
-
-**Are Political Polls Accurate?**\
-`We look at recent problems with political polling.`\
-https://www.nytimes.com/2026/08/14/briefing/are-political-polls-accurate.html
-
-**‘The Headlines’ News Quiz: Aug. 14, 2026**\
-`Following the news? Tracy Mumford has some questions for you.`\
-https://www.nytimes.com/2026/08/14/podcasts/the-headlines/the-headlines-news-quiz-aug-14-2026.html
 
