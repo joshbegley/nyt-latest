@@ -1,3 +1,7 @@
+**America Needs a Follow-the-Rules Foreign Policy**\
+`American foreign policy is at a crossroads. What’s next? The Times Opinion columnist Ezra Klein explores the case for abiding by the rules-based international order.`\
+https://www.nytimes.com/video/opinion/100000011089811/america-needs-a-follow-the-rules-foreign-policy.html
+
 **Jason Arday, académico de Cambridge bajo sospecha de plagio, es reportado muerto**\
 `La policía británica dijo que se había encontrado sin vida a un hombre en una casa vinculada a Arday, quien estaba siendo investigado por acusaciones de plagio y engaño.`\
 https://www.nytimes.com/es/2026/08/14/espanol/mundo/jason-arday-cambridge-muerte.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/world/europe/100000011092023/europe-heat-wave-wild
 **Zambia Halts Presidential Election Vote Count Over Violence and Fraud Allegations**\
 `The electoral commission for the southern African nation said poll workers had been attacked and ballots had been stolen.`\
 https://www.nytimes.com/2026/08/14/world/africa/zambia-election-vote-count-suspended-president.html
-
-**Russell Fry Backs Darline Graham in South Carolina Senate Runoff Amid Trump Pressure**\
-`The president has been focused on the race since the death of Lindsey Graham in July. Ms. Graham, the late senator’s sister, is competing against Representative Ralph Norman in a runoff on Aug. 25.`\
-https://www.nytimes.com/2026/08/14/us/politics/russell-fry-darline-graham-south-carolina.html
 
