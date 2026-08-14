@@ -1,3 +1,7 @@
+**After 2 Plasma Donor Deaths, Company Pauses Clinics in Canada**\
+`Grifols, a Spanish company, said “unfounded attention” on its blood plasma business in Canada had led it to temporarily end collections at 17 clinics.`\
+https://www.nytimes.com/2026/08/13/world/canada/plasma-blood-donation-deaths-grifols.html
+
 **Is Bernie Sanders Helping or Hurting the Democrats?**\
 `Readers disagree about the Vermont independent’s effect on the Democratic Party. Also: Vice President JD Vance’s crude behavior; a dangerous tool for ICE.`\
 https://www.nytimes.com/2026/08/13/opinion/bernie-sanders-democrats.html
