@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/08/14/nyregion/what-is-next-luigi-mangione-case.htm
 `Responses to an essay about whether America should remain one nation. Also: Christie Brinkley, on nuclear reactors; military aid to Ukraine; whiskey with friends.`\
 https://www.nytimes.com/2026/08/14/opinion/red-blue-states-us-secession.html
 
-**A Timeline of the Luigi Mangione Cases**\
+**A Timeline of Luigi Mangione’s Cases, From the UnitedHealthcare CEO’s Killing to a Guilty Plea**\
 `The shooting of a health care executive in December 2024 led to a sprawling manhunt, and two complex and interwoven cases.`\
 https://www.nytimes.com/2026/08/14/nyregion/luigi-mangione-timeline.html
 

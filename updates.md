@@ -1,3 +1,7 @@
+**Read Mangione’s Motion Arguing Double Jeopardy in State Case**\
+`Soon after Luigi Mangione pleaded guilty to federal charges in the 2024 killing of the chief executive of UnitedHealthcare, his lawyers filed a motion arguing that separate state charges should be dismissed.`\
+https://www.nytimes.com/interactive/2026/08/14/nyregion/mangione-double-jeopardy-motion.html
+
 **What’s Next for Luigi Mangione After His Guilty Plea?**\
 `Mr. Mangione’s plea in the federal case could make it difficult for New York State prosecutors to try their own case.`\
 https://www.nytimes.com/2026/08/14/nyregion/what-is-next-luigi-mangione-case.html
