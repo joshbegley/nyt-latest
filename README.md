@@ -1,4 +1,4 @@
-**These 8 Edinburgh Fringe Shows Have Audiences Abuzz**\
+**Edinburgh Fringe: 8 Buzzy Shows to See**\
 `Whether on a constant treadmill, turning trauma into laughs or venturing into children’s entertainment, these acts are winning over viewers and critics.`\
 https://www.nytimes.com/2026/08/14/arts/edinburgh-festival-fringe-buzziest-shows.html
 
