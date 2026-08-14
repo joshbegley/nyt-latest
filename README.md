@@ -1,3 +1,7 @@
+**Wildfires Burn Across Europe as the Continent Feels Fifth Heat Wave**\
+`Wildfires threatened homes and communities across several countries in Europe this week, as the continent endured its fifth summer heat wave.`\
+https://www.nytimes.com/video/world/europe/100000011092023/europe-heat-wave-wildfires.html
+
 **Zambia Halts Presidential Election Vote Count Over Violence and Fraud Allegations**\
 `The electoral commission for the southern African nation said poll workers had been attacked and ballots had been stolen as both top candidates claimed leads.`\
 https://www.nytimes.com/2026/08/14/world/africa/zambia-election-vote-count-suspended-president.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/14/movies/new-movie-releases.html
 **Why the D.O.J. Is Pursuing Low-Level Fraud Cases**\
 `Our reporter Devlin Barrett explains why the Department of Justice is pursuing small-time fraud cases, and what that means for larger fraud investigations at the department.`\
 https://www.nytimes.com/video/us/100000011085709/justice-department-jd-vance-small-dollar-fraud.html
-
-**Trump’s Justice Dept. Targets Smaller Fraud Cases**\
-`As the Trump administration drops charges against corporations and the wealthy, it is also taking aim at small-scale fraud cases, including against the operator of a weathered food truck in California.`\
-https://www.nytimes.com/2026/08/14/us/politics/trump-doj-fraud-california-food-truck.html
 

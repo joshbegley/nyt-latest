@@ -1,4 +1,8 @@
-**Russell Fry to Back Darline Graham in South Carolina Senate Runoff Amid Trump Pressure**\
+**Zambia Halts Presidential Election Vote Count Over Violence and Fraud Allegations**\
+`The electoral commission for the southern African nation said poll workers had been attacked and ballots had been stolen as both top candidates claimed leads.`\
+https://www.nytimes.com/2026/08/14/world/africa/zambia-election-vote-count-suspended-president.html
+
+**Russell Fry Backs Darline Graham in South Carolina Senate Runoff Amid Trump Pressure**\
 `The president has been focused on the race since the death of Lindsey Graham in July. Ms. Graham, the late senator’s sister, is competing against Representative Ralph Norman in a runoff on Aug. 25.`\
 https://www.nytimes.com/2026/08/14/us/politics/russell-fry-darline-graham-south-carolina.html
 
@@ -46,8 +50,8 @@ https://www.nytimes.com/2026/08/14/climate/climate-superfund-professor-lawsuit-e
 `The United Healthcare chief executive rose from humble Midwestern beginnings to the top position at a health insurance giant.`\
 https://www.nytimes.com/2026/08/14/nyregion/who-brian-thompson-unitedhealthcare-ceo-mangione.html
 
-**Live Updates: Luigi Mangione Will Plead Guilty to Federal Charges**\
-`Mangione, 28, faces federal stalking charges in connection with the 2024 killing of a health insurance executive, Brian Thompson, whose family is also in the courtroom in Manhattan.`\
+**Live Updates: Luigi Mangione Says He Will Plead Guilty to Federal Charges**\
+`Mr. Mangione faces two charges in connection with the 2024 killing of a health insurance executive, Brian Thompson, on a Manhattan sidewalk. Mr. Thompson’s family is also in the courtroom.`\
 https://www.nytimes.com/live/2026/08/14/nyregion/luigi-mangione-plea-deal
 
 **Ian Frazier Wrote ‘Coyote v. Acme’ in 1990. Now It’s a Movie.**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/100000011085709/justice-department-jd-vance-sma
 **Trump’s Justice Dept. Targets Smaller Fraud Cases**\
 `As the Trump administration drops charges against corporations and the wealthy, it is also taking aim at small-scale fraud cases, including against the operator of a weathered food truck in California.`\
 https://www.nytimes.com/2026/08/14/us/politics/trump-doj-fraud-california-food-truck.html
-
-**Stavros Halkias Never Wanted to Get Political**\
-`The podcast host and emerging Hollywood presence spoke about his new stand-up special, giving advice to incels and comedy’s rightward creep.`\
-https://www.nytimes.com/2026/08/14/arts/stavros-halkias-popcast-interview-tony.html
 
