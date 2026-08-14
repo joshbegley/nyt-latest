@@ -1,3 +1,7 @@
+**Another Day of Extreme Heat Bakes Europe, but Relief Is on the Horizon**\
+`Friday is delivering another day of near record heat to the continent, but toward the end of the weekend temperatures could retreat to seasonal averages.`\
+https://www.nytimes.com/2026/08/14/weather/europe-extreme-weather-heat-wave.html
+
 **Reseña de ‘El chacal’, el libro sobre Carlos, superterrorista internacional**\
 `En su nuevo libro, Joby Warrick narra el ascenso y la caída de Carlos, el Chacal, el infame terrorista a sueldo.`\
 https://www.nytimes.com/es/2026/08/14/espanol/cultura/carlos-chacal-libro.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/13/dining/street-carts.html
 **Who Is Ahead in the Idaho Governor's Race? Latest 2026 Election Polls**\
 `Track the latest polls in the Idaho governor election.`\
 https://www.nytimes.com/interactive/polls/idaho-governor-election-polls-2026.html
-
-**Electric Thrills**\
-`Electric motorcycle sales are surging in Pakistan, as wartime prices accelerate the pivot away from fossil fuels in the developing world.`\
-https://www.nytimes.com/2026/08/13/world/pakistan-e-bikes-europe-heat.html
 
