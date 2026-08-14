@@ -6,7 +6,7 @@ https://www.nytimes.com/2026/08/14/weather/hurricane-lala-hawaii-power-grid.html
 `Violent crime rates, including murder, have dropped precipitously. The trend began before the president’s current term.`\
 https://www.nytimes.com/2026/08/14/us/politics/trump-fbi-crime-rate-declines.html
 
-**Navy Carrier’s Problems Are Tied to Attacks on U.S. Base Early in War**\
+**Navy and USS Lincoln’s Problems Are Tied to Attacks on U.S. Base Early in War**\
 `Diego Garcia, a tiny island 2,200 miles from the Gulf of Oman, took over as the Navy’s logistics hub after Iran damaged a base in Bahrain.`\
 https://www.nytimes.com/2026/08/14/us/politics/uss-abraham-lincoln-trump-supplies-diego-garcia.html
 
