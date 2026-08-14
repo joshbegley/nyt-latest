@@ -1,3 +1,7 @@
+**Hiroshi Okuda, Disrupter Who Revived Toyota in the 1990s, Dies at 93**\
+`As the car company’s president, he made decisions quickly and shook things up, expanding overseas manufacturing and introducing the Prius, a milestone in automotive history.`\
+https://www.nytimes.com/2026/08/14/automobiles/hiroshi-okuda-dead.html
+
 **On the Day Mangione Admits Guilt, a Noticeably Smaller Crowd Gathers**\
 `The family and friends of his victim, Brian Thompson, were inside the courthouse. Outside, the curious and supporters of Luigi Mangione had started gathering in the morning.`\
 https://www.nytimes.com/2026/08/14/nyregion/mangione-scene-courthouse.html
