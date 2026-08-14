@@ -1,3 +1,15 @@
+**Mary Morello, Free Speech Activist Who Defended Explicit Lyrics, Dies at 102**\
+`An Illinois teacher — and the mother of the rock star Tom Morello — she took on Tipper Gore during culture war skirmishes over warning labels on records.`\
+https://www.nytimes.com/2026/08/14/us/mary-morello-dead.html
+
+**How Baltimore Awakened Stavros Halkias’s Class Consciousness**\
+`In an interview with “Popcast,” the comedian Stavros Halkias reflects on how his upbringing in Baltimore influenced his personal politics.`\
+https://www.nytimes.com/video/podcasts/100000011084170/how-baltimore-awakened-stavros-halkiass-class-consciousness.html
+
+**How One County Profited From Data Centers, As a Backlash Grew**\
+`Loudoun County, Va., has gotten rich hosting more than 250 data centers, allowing it to cut property taxes. Other locales are taking note, even as a nationwide backlash over data centers grows.`\
+https://static01.nyt.com/slideshow/2026/08/14/business/how-one-county-profited-from-data-centers-as-a-backlash-grew.html
+
 **Mangione Admits to Fatally Shooting Insurance Executive in Manhattan**\
 `At a hearing in which he pleaded guilty to federal crimes, Luigi Mangione said he endured years of back pain while navigating the insurance industry before killing the chief executive of UnitedHealthcare.`\
 https://www.nytimes.com/2026/08/14/nyregion/mangione-admits-shooting-executive.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/08/14/business/dealbook/robinhood-public-venture-ca
 **Heat Is Hammering Europe, Again. Here’s What That Looks Like.**\
 `Extreme temperatures and repeated wildfires are pushing infrastructure to the limit and testing the continent’s resolve.`\
 https://www.nytimes.com/2026/08/14/world/europe/europe-heat-wave-photos.html
-
-**Edinburgh Fringe: 8 Buzzy Shows to See**\
-`Whether on a constant treadmill, turning trauma into laughs or venturing into children’s entertainment, these acts are winning over viewers and critics.`\
-https://www.nytimes.com/2026/08/14/arts/edinburgh-festival-fringe-buzziest-shows.html
-
-**Zuckerberg’s Anti-Doom Fantasy + Finally an A.I. Detector That Works + A.I. Math**\
-`“The first rule of Mark Zuckerberg is never count out Mark Zuckerberg.”`\
-https://www.nytimes.com/2026/08/14/podcasts/zuckerberg-essay-pangram-math.html
-
-**8 Matisse Works, Looted from Library in Brazil, Are Recovered**\
-`The prints by the French master were taken in São Paulo last year in a brazen daylight heist.`\
-https://www.nytimes.com/2026/08/14/world/americas/matisse-stolen-art-found-sao-paulo-brazil-heist.html
 
