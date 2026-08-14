@@ -1,3 +1,7 @@
+**Engine Blade Hit Window on Jet Before Man Was Partly Sucked Outside, Report Says**\
+`The National Transportation Safety Board said it had found a bird’s remains and feathers on a broken engine.`\
+https://www.nytimes.com/2026/08/13/world/europe/ryanair-flight-passenger-window.html
+
 **American Missionary Kidnapped in Niger Is Said to Be Released From Captivity**\
 `The release of Kevin Rideout, an American missionary pilot who was seized in Niger’s capital last fall, has been a priority for the White House.`\
 https://www.nytimes.com/2026/08/13/us/politics/kevin-rideout-niger-islamic-state.html
