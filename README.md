@@ -1,3 +1,7 @@
+**Deadly 7.7-Magnitude Earthquake Hits Indonesia**\
+`A 7.7-magnitude earthquake struck near an island in eastern Indonesia, killing at least 20 and collapsing several buildings.`\
+https://www.nytimes.com/video/world/asia/100000011094073/earthquake-indonesia-flores.html
+
 **¿Ya es seguro comer lechuga?**\
 `Los expertos analizan si la variedad iceberg y otros productos agrícolas frescos siguen siendo un riesgo mientras va disminuyendo el mayor brote de ciclosporiasis en la historia de EE. UU.`\
 https://www.nytimes.com/es/2026/08/15/espanol/estados-unidos/comer-lechuga-seguro-cyclospora.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/14/world/europe/rare-wolf-denmark-conservation-d
 **Andrés Manuel López Beltrán, hijo de AMLO, dice que EE. UU. le revocó su visa**\
 `Andrés Manuel López Beltrán, hijo del expresidente López Obrador, arremetió contra el gobierno de Donald Trump por la medida, en otro episodio de fricción para la tensa relación entre México y EE. UU.`\
 https://www.nytimes.com/es/2026/08/14/espanol/mundo/lopez-beltran-amlo-visa-estados-unidos.html
-
-**Luigi Mangione admite haber matado al ejecutivo de seguros abatido en Manhattan**\
-`En una audiencia en la que se declaró culpable de delitos federales, Mangione dijo que antes de matar al director ejecutivo de UnitedHealthcare soportó años de dolor durante su trato con la industria de seguros.`\
-https://www.nytimes.com/es/2026/08/14/espanol/estados-unidos/luigi-mangione-culpable.html
 
