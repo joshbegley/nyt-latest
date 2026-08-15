@@ -1,3 +1,7 @@
+**Appeal**\
+`Blake Slonecker’s latest Saturday grid is a heavy hitter that’s light on its feet.`\
+https://www.nytimes.com/2026/08/14/crosswords/daily-puzzle-2026-08-15.html
+
 **Stray Voltage Played Role in Deadly Horse Carriage Runaway, Family Says**\
 `In legal filings, the parents of Romanch Mahajan, who died during a carriage ride, say stray electrical current was a factor in a horse’s getting spooked and running off.`\
 https://www.nytimes.com/2026/08/14/nyregion/horse-carriage-ban-central-park-voltage.html
