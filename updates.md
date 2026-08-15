@@ -1,3 +1,7 @@
+**Man Taken Into Custody After Disrupting Worship at Manhattan Synagogue**\
+`The man struck a member of the congregation and a security guard at Central Synagogue while he was being escorted out, the police said. A motive has not been determined.`\
+https://www.nytimes.com/2026/08/14/nyregion/central-synagogue-shabbat-assault-arrest.html
+
 **Appeal**\
 `Blake Slonecker’s latest Saturday grid is a heavy hitter that’s light on its feet.`\
 https://www.nytimes.com/2026/08/14/crosswords/daily-puzzle-2026-08-15.html
