@@ -1,3 +1,7 @@
+**Stray Voltage Played Role in Deadly Horse Carriage Runaway, Family Says**\
+`In legal filings, the parents of Romanch Mahajan, who died during a carriage ride, say stray electrical current was a factor in a horse’s getting spooked and running off.`\
+https://www.nytimes.com/2026/08/14/nyregion/horse-carriage-ban-central-park-voltage.html
+
 **Trump Wades Into N.Y. Governor’s Race by Attacking Hochul on Crime**\
 `President Trump tried to boost the chances of Bruce Blakeman, the Republican candidate, calling Gov. Kathy Hochul’s ICE restrictions dangerous.`\
 https://www.nytimes.com/2026/08/14/nyregion/blakeman-trump.html

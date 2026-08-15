@@ -1,3 +1,7 @@
+**Stray Voltage Played Role in Deadly Horse Carriage Runaway, Family Says**\
+`In legal filings, the parents of Romanch Mahajan, who died during a carriage ride, say stray electrical current was a factor in a horse’s getting spooked and running off.`\
+https://www.nytimes.com/2026/08/14/nyregion/horse-carriage-ban-central-park-voltage.html
+
 **Trump Wades Into N.Y. Governor’s Race by Attacking Hochul on Crime**\
 `President Trump tried to boost the chances of Bruce Blakeman, the Republican candidate, calling Gov. Kathy Hochul’s ICE restrictions dangerous.`\
 https://www.nytimes.com/2026/08/14/nyregion/blakeman-trump.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/14/us/politics/world-war-2-memorial-vandalism.ht
 **Google Turns On Gemini A.I. for Students Using Its Classroom App**\
 `Google enabled A.I. features for K-12 schools that have allowed student access to Gemini. Until this week, Google automatically enabled Gemini in Classroom only for students 18 or older.`\
 https://www.nytimes.com/2026/08/14/business/google-gemini-ai-schools.html
-
-**Mary Morello, Free Speech Activist Who Defended Explicit Lyrics, Dies at 102**\
-`An Illinois teacher — and the mother of the rock star Tom Morello — she took on Tipper Gore during culture war skirmishes over warning labels on records.`\
-https://www.nytimes.com/2026/08/14/us/mary-morello-dead.html
 
