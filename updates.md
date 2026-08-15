@@ -1,3 +1,15 @@
+**¿Ya es seguro comer lechuga?**\
+`Los expertos analizan si la variedad iceberg y otros productos agrícolas frescos siguen siendo un riesgo mientras va disminuyendo el mayor brote de ciclosporiasis en la historia de EE. UU.`\
+https://www.nytimes.com/es/2026/08/15/espanol/estados-unidos/comer-lechuga-seguro-cyclospora.html
+
+**N.Y.C. Congestion Pricing Has Little Effect on Air Quality, Study Finds**\
+`The report from New York City’s Health Department found that pollution improved slightly in Manhattan and did not worsen in other boroughs.`\
+https://www.nytimes.com/2026/08/15/nyregion/nyc-congestion-pricing-air-pollution.html
+
+**NYT Spelling Bee Answers for August 15, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/08/15/crosswords/spelling-bee-forum.html
+
 **At Least 20 Dead as 7.7-Magnitude Earthquake Rocks Indonesia**\
 `The temblor was one of the strongest the area had experienced in decades, an official said.`\
 https://www.nytimes.com/2026/08/15/world/asia/earthquake-indonesia-flores-tsunami.html
