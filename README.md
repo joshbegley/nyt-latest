@@ -1,3 +1,7 @@
+**Hawaii Braces for Lala After Earlier Flooding**\
+`The state experienced some of its worst flooding in decades during storms earlier this year, the governor said.`\
+https://www.nytimes.com/2026/08/15/weather/hawaii-lala-march-flooding.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/100000011094479/15vid-Hurricane-58948.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/15/your-money/vacation-protecting-home.html
 **Leo Woodall, if He Must, Chooses Oasis Over the Beatles**\
 `“Liam Gallagher is the coolest frontman who’s ever lived,” said the actor, one of the stars of “Tony.”`\
 https://www.nytimes.com/2026/08/15/movies/leo-woodall-tony-lotr.html
-
-**Matthew Rhys on Working With Lena Dunham on ‘Girls’**\
-`On “The Interview,” Matthew Rhys discussed working with Lena Dunham in a memorable episode of “Girls.”`\
-https://www.nytimes.com/video/podcasts/100000011088042/matthew-rhys-on-working-with-lena-dunham-on-girls.html
 
