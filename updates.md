@@ -1,3 +1,7 @@
+**2 Planes With Same Call Sign in Phoenix Could Have Been ‘Disastrous’**\
+`An air traffic controller noticed that two planes — one departing, one landing — were both flight 2482. He acted quickly to avoid confusion.`\
+https://www.nytimes.com/2026/08/15/us/american-airlines-call-signs-phoenix.html
+
 **‘Hacks’ Comes to Life in Los Angeles for One Night Only**\
 `Courting Emmy voters, the stars and creators of the HBO Max series got in character for “Deborah Vance & Friends & Enemies Live!”`\
 https://www.nytimes.com/2026/08/15/style/hacks-event-jean-smart-hannah-einbinder.html

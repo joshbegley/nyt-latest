@@ -1,3 +1,7 @@
+**2 Planes With Same Call Sign in Phoenix Could Have Been ‘Disastrous’**\
+`An air traffic controller noticed that two planes — one departing, one landing — were both flight 2482. He acted quickly to avoid confusion.`\
+https://www.nytimes.com/2026/08/15/us/american-airlines-call-signs-phoenix.html
+
 **‘Hacks’ Comes to Life in Los Angeles for One Night Only**\
 `Courting Emmy voters, the stars and creators of the HBO Max series got in character for “Deborah Vance & Friends & Enemies Live!”`\
 https://www.nytimes.com/2026/08/15/style/hacks-event-jean-smart-hannah-einbinder.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/15/us/politics/china-expansion-asia-trump-iran.h
 **Sherrod Brown Seeks Senate Comeback in Ohio, Hoping His Populist Pitch Still Resonates**\
 `At 73, Sherrod Brown is mounting a comeback bid in Ohio. He is one of the Democrats his party is counting on to retake control of the Senate.`\
 https://www.nytimes.com/2026/08/15/us/politics/sherrod-brown-ohio-senate-race.html
-
-**Moving to Florida After Retirement: Is It Worth It?**\
-`Tax benefits are only one of the factors to consider as you make your choice.`\
-https://www.nytimes.com/2026/08/15/realestate/florida-retirement-residency-taxes.html
 
