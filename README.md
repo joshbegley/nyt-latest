@@ -1,3 +1,7 @@
+**Quit Lit**\
+`There are good reasons to abandon books we’re not enjoying, but our attenuated attention might lead us to tap out too early.`\
+https://www.nytimes.com/2026/08/15/briefing/quit-lit.html
+
 **My Mother Is Dying. Does That Mean I Have to Do Everything She Asks?**\
 `I don’t want to say no to everything, but I would like that option sometimes.`\
 https://www.nytimes.com/2026/08/15/magazine/dying-mother-demands-ethics.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/15/world/europe/wary-of-trump-europe-seeks-role-
 **Man Charged With Hate Crime After Disrupting Worship at N.Y.C. Synagogue**\
 `Larry Montes, 46, faces assault and hate crime charges after striking a congregation member and a security guard at Central Synagogue in Manhattan, the police said.`\
 https://www.nytimes.com/2026/08/14/nyregion/central-synagogue-shabbat-assault-arrest.html
-
-**Appeal**\
-`Blake Slonecker’s latest Saturday grid is a heavy hitter that’s light on its feet.`\
-https://www.nytimes.com/2026/08/14/crosswords/daily-puzzle-2026-08-15.html
 

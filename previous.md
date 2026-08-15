@@ -1,3 +1,23 @@
+**My Mother Is Dying. Does That Mean I Have to Do Everything She Asks?**\
+`I don’t want to say no to everything, but I would like that option sometimes.`\
+https://www.nytimes.com/2026/08/15/magazine/dying-mother-demands-ethics.html
+
+**Summer Camps Strive to Stay Part of Canadian Life, Despite Hurdles**\
+`Long a tradition for many kids and teenagers across the country, overnight camps are facing financial and cultural hurdles as inflation bites and parenting trends shift.`\
+https://www.nytimes.com/2026/08/15/world/canada/sleepaway-summer-camp-children-ontario-canada.html
+
+**NYT Connections Answers for August 16, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Aug. 16, 2026.`\
+https://www.nytimes.com/2026/08/15/crosswords/connections-companion-1162.html
+
+**NYT Strands Hints for Aug. 16, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Aug. 16, 2026.`\
+https://www.nytimes.com/2026/08/15/crosswords/strands-sidekick-896.html
+
+**Today’s Wordle Hints for August 16, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Aug. 16, 2026.`\
+https://www.nytimes.com/2026/08/15/crosswords/wordle-review-1884.html
+
 **Matthew Rhys Is on a Tear. If Only He Knew It.**\
 `The “Widow’s Bay” star on his two Emmy nominations, his penchant for going dark and his wobbly self-esteem.`\
 https://www.nytimes.com/2026/08/15/magazine/matthew-rhys-interview.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/08/14/nyregion/central-synagogue-shabbat-assault-ar
 **Appeal**\
 `Blake Slonecker’s latest Saturday grid is a heavy hitter that’s light on its feet.`\
 https://www.nytimes.com/2026/08/14/crosswords/daily-puzzle-2026-08-15.html
-
-**Stray Voltage Played Role in Deadly Horse Carriage Runaway, Family Says**\
-`In legal filings, the parents of Romanch Mahajan, who died during a carriage ride, say stray electrical current was a factor in a horse’s getting spooked and running off.`\
-https://www.nytimes.com/2026/08/14/nyregion/horse-carriage-ban-central-park-voltage.html
-
-**Trump Wades Into N.Y. Governor’s Race by Attacking Hochul on Crime**\
-`President Trump tried to boost the chances of Bruce Blakeman, the Republican candidate, calling Gov. Kathy Hochul’s ICE restrictions dangerous.`\
-https://www.nytimes.com/2026/08/14/nyregion/blakeman-trump.html
-
-**Trump Dismisses Reports of Dire Conditions Aboard U.S.S. Lincoln**\
-`President Trump on Friday dismissed reports of deteriorating conditions on the aircraft carrier Abraham Lincoln, which has been deployed for over eight months.`\
-https://www.nytimes.com/video/us/politics/100000011092857/trump-dismisses-reports-of-dire-conditions-aboard-uss-lincoln.html
-
-**Justice Dept. Dismisses Threats Case in Minnesota Days Before Trial**\
-`The government said it could not prove that a man accused of threatening federal agents had committed a crime, adding to the scores of cases in the administration’s deportation efforts that have unraveled.`\
-https://www.nytimes.com/2026/08/14/us/minnesota-threats-federal-agents-immigration.html
-
-**‘Slayer Statute’ Blocks Nick Reiner From Trust Fund, Its Steward Says**\
-`Mr. Reiner wants access to a $1.6 million trust for his legal defense. Because he is accused of killing his parents, the trustee says he can’t have the money.`\
-https://www.nytimes.com/2026/08/14/movies/nick-reiner-slayer-statute-trust-fund-murder-parents.html
 

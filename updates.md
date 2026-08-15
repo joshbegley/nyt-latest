@@ -1,3 +1,23 @@
+**My Mother Is Dying. Does That Mean I Have to Do Everything She Asks?**\
+`I don’t want to say no to everything, but I would like that option sometimes.`\
+https://www.nytimes.com/2026/08/15/magazine/dying-mother-demands-ethics.html
+
+**Summer Camps Strive to Stay Part of Canadian Life, Despite Hurdles**\
+`Long a tradition for many kids and teenagers across the country, overnight camps are facing financial and cultural hurdles as inflation bites and parenting trends shift.`\
+https://www.nytimes.com/2026/08/15/world/canada/sleepaway-summer-camp-children-ontario-canada.html
+
+**NYT Connections Answers for August 16, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Aug. 16, 2026.`\
+https://www.nytimes.com/2026/08/15/crosswords/connections-companion-1162.html
+
+**NYT Strands Hints for Aug. 16, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Aug. 16, 2026.`\
+https://www.nytimes.com/2026/08/15/crosswords/strands-sidekick-896.html
+
+**Today’s Wordle Hints for August 16, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Aug. 16, 2026.`\
+https://www.nytimes.com/2026/08/15/crosswords/wordle-review-1884.html
+
 **The Iranian YouTube Show Posing Questions Few Dare Ask**\
 `Azad, a popular online debate program, has tackled topics that push the limits of Iran’s authoritarian system. Some question how it has remained on air.`\
 https://www.nytimes.com/2026/08/15/world/middleeast/iran-youtube-show.html
