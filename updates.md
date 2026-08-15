@@ -1,3 +1,7 @@
+**Man Charged With Hate Crime After Disrupting Worship at Manhattan Synagogue**\
+`Larry Montes, 46, faces assault and hate crime charges after striking a congregation member and a security guard at Central Synagogue, the police said.`\
+https://www.nytimes.com/2026/08/14/nyregion/central-synagogue-shabbat-assault-arrest.html
+
 **Man Taken Into Custody After Disrupting Worship at Manhattan Synagogue**\
 `The man struck a member of the congregation and a security guard at Central Synagogue while he was being escorted out, the police said. A motive has not been determined.`\
 https://www.nytimes.com/2026/08/14/nyregion/central-synagogue-shabbat-assault-arrest.html
