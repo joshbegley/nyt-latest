@@ -1,3 +1,7 @@
+**Some Daring Surfers Seek Waves as Hurricane Lala Approaches**\
+`“We have time, so why don’t we enjoy it?” one beachgoer said as the storm made its way across the Pacific.`\
+https://www.nytimes.com/2026/08/15/weather/some-daring-surfers-seek-waves-as-hurricane-lala-approaches.html
+
 **Lala Heads for a State With Older Housing Stock**\
 `Experts warned that many houses on the Big Island weren’t built for hurricane-force wind and rain.`\
 https://www.nytimes.com/2026/08/15/weather/15storm-lala-homes-vulnerability.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/15/pageoneplus/corrections-aug-15-2026.html
 **Worker Pay Isn’t Keeping Up With Inflation Once Again**\
 `When prices spiked in 2021-22, wages failed to keep up for many workers, new research shows. Now the pattern is repeating.`\
 https://www.nytimes.com/2026/08/15/business/inflation-worker-pay.html
-
-**Canadian Petition to Expel U.S. Ambassador Pete Hoekstra Takes Off**\
-`Mr. Hoekstra has been President Trump’s faithful messenger in Canada amid a historic low in relations. More than 170,000 Canadians want him gone.`\
-https://www.nytimes.com/2026/08/15/world/canada/hoekstra-ambassador-petition-canada-trump.html
 
