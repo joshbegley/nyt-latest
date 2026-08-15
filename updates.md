@@ -1,3 +1,11 @@
+**Professor’s Death Leaves Behind Hard Questions for Cambridge on Race and Hiring**\
+`Jason Arday, the school’s youngest Black professor, was found dead on Friday. The school ignored a series of warnings about his life story and his work.`\
+https://www.nytimes.com/2026/08/15/world/europe/jason-arday-cambridge-hiring-questions.html
+
+**Matthew Rhys Is on a Tear. If Only He Knew It.**\
+`Lulu Garcia-Navarro sits down with the actor Matthew Rhys to discuss his Emmy-nominated performances in “Widow’s Bay” and “The Beast In Me.”`\
+https://www.nytimes.com/video/podcasts/100000011091571/matthew-rhys-interview-widows-bay.html
+
 **Deadly 7.7-Magnitude Earthquake Hits Indonesia**\
 `A 7.7-magnitude earthquake struck near an island in eastern Indonesia, killing at least 20 and causing several buildings to collapse.`\
 https://www.nytimes.com/video/world/asia/100000011094073/earthquake-indonesia-flores.html
