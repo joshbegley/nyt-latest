@@ -1,3 +1,7 @@
+**‘Hacks’ Comes to Life in Los Angeles for One Night Only**\
+`Courting Emmy voters, the stars and creators of the HBO Max series got in character for “Deborah Vance & Friends & Enemies Live!”`\
+https://www.nytimes.com/2026/08/15/style/hacks-event-jean-smart-hannah-einbinder.html
+
 **Israeli Strikes in Lebanon Kill 11, Health Officials Say**\
 `The Lebanese health ministry said children were among those killed. The Israeli prime minister’s office said Hezbollah had struck first, injuring three Israeli soldiers.`\
 https://www.nytimes.com/2026/08/15/world/middleeast/israel-strikes-lebanon-ansar.html
