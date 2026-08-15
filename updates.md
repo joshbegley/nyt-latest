@@ -1,3 +1,7 @@
+**Man Charged With Hate Crime After Disrupting Worship at N.Y.C. Synagogue**\
+`Larry Montes, 46, faces assault and hate crime charges after striking a congregation member and a security guard at Central Synagogue in Manhattan, the police said.`\
+https://www.nytimes.com/2026/08/14/nyregion/central-synagogue-shabbat-assault-arrest.html
+
 **Entrenched, Embattled and Defiant, the Taliban Celebrate 5 Years in Power**\
 `The Taliban have Afghanistan in a chokehold that spares no one. But threats are starting to crack their veneer of stability and control.`\
 https://www.nytimes.com/2026/08/15/world/asia/entrenched-embattled-and-defiant-the-taliban-celebrate-5-years-in-power.html
