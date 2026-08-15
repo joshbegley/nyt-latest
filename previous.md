@@ -58,8 +58,8 @@ https://www.nytimes.com/2026/08/15/opinion/trump-haberman-swan-book-politics.htm
 `Iran said the airmen have been held since March 2 when their fighter jets were shot down. The Qatari government denies detaining any Iranian pilots.`\
 https://www.nytimes.com/2026/08/15/world/middleeast/iran-missing-pilots-qatar.html
 
-**Travelers Hunker Down as Tropical Storm Lala Approaches Hawaii’s Big Island**\
-`The storm, expected to become a hurricane, has prompted some travelers to leave hotels early, while others are waiting out the wind and rain.`\
+**Travelers Hunker Down as Hurricane Lala Approaches Hawaii’s Big Island**\
+`The storm has prompted some travelers to leave their hotels early, while others are waiting out the wind and rain.`\
 https://www.nytimes.com/2026/08/15/travel/tropical-storm-lala-hurricane-hawaii-evacuation.html
 
 **Luigi Mangione Admits to Killing Health Insurance Executive**\

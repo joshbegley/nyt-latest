@@ -1,3 +1,7 @@
+**Travelers Hunker Down as Hurricane Lala Approaches Hawaii’s Big Island**\
+`The storm has prompted some travelers to leave their hotels early, while others are waiting out the wind and rain.`\
+https://www.nytimes.com/2026/08/15/travel/tropical-storm-lala-hurricane-hawaii-evacuation.html
+
 **How Did This Hurricane Get the Name Lala?**\
 `Names come from a list developed by a meteorological organization. They can help people pay attention, an official with the National Hurricane Center said.`\
 https://www.nytimes.com/2026/08/15/weather/tropical-storm-lala-name-hawaii-hurricane.html
