@@ -1,3 +1,11 @@
+**‘I Will be Making This on Repeat Until I Can’t Look at Eggs or Tomatoes Anymore’**\
+`That’s just one happy reader comment on this easy new cumin tomato salad with jammy eggs.`\
+https://www.nytimes.com/2026/08/15/dining/i-will-be-making-this-on-repeat-until-i-cant-look-at-eggs-or-tomatoes-anymore.html
+
+**Trump Is in a Fantasy Land of His Own Making**\
+`What would happen if he’s forced to confront an external crisis?`\
+https://www.nytimes.com/2026/08/15/opinion/trump-haberman-swan-book-politics.html
+
 **Iran Says Qatar Captured Three of Its Pilots Early in War With U.S.**\
 `Iran said the airmen have been held since March 2 when their fighter jets were shot down. The Qatari government has not commented.`\
 https://www.nytimes.com/2026/08/15/world/middleeast/iran-missing-pilots-qatar.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/15/well/move/6-exercises-physical-therapists-wis
 **The Iranian YouTube Show Posing Questions Few Dare Ask**\
 `Azad, a popular online debate program, has tackled topics that push the limits of Iran’s authoritarian system. Some question how it has remained on air.`\
 https://www.nytimes.com/2026/08/15/world/middleeast/iran-youtube-show.html
-
-**Book Review: ‘Days of Miracle and Wonder,’ by Ashley Kahn**\
-`In “Days of Miracle and Wonder,” Ashley Kahn revisits the “trials and triumphs” of Paul Simon’s “Graceland.”`\
-https://www.nytimes.com/2026/08/15/books/review/days-of-miracle-and-wonder-ashley-kahn-graceland.html
-
-**Where to Eat and Drink at a Barcelona Bar Like a Local**\
-`The classic bars, known as bodegas, are where locals in the Catalan capital take their rituals seriously. If you know where to look, you can join them.`\
-https://www.nytimes.com/2026/08/15/travel/barcelona-bars-bodegas.html
 
