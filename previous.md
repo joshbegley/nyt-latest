@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/100000011094479/15vid-Hurricane-58948.html
+
 **Bou Meng, Rare Survivor of Khmer Rouge Torture House, Dies at 85**\
 `Saved by his ability to paint, he was one of only a handful of prisoners to make it out of the brutal prison Tuol Sleng.`\
 https://www.nytimes.com/2026/08/15/world/asia/bou-meng-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/15/movies/leo-woodall-tony-lotr.html
 **Matthew Rhys on Working With Lena Dunham on ‘Girls’**\
 `On “The Interview,” Matthew Rhys discussed working with Lena Dunham in a memorable episode of “Girls.”`\
 https://www.nytimes.com/video/podcasts/100000011088042/matthew-rhys-on-working-with-lena-dunham-on-girls.html
-
-**Matthew Rhys: ‘I Want to Get to a Place Where I Just Feel Confident’**\
-`The Welsh actor Matthew Rhys, who is nominated for two Emmys this year, talked about his nervous tendencies on “The Interview.”`\
-https://www.nytimes.com/video/podcasts/100000011088037/matthew-rhys-i-want-to-get-to-a-place-where-i-just-feel-confident.html
 
