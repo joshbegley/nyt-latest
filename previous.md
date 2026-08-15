@@ -26,8 +26,8 @@ https://www.nytimes.com/2026/08/15/us/american-airlines-call-signs-phoenix.html
 `Courting Emmy voters, the stars and creators of the HBO Max series got in character for “Deborah Vance & Friends & Enemies Live!”`\
 https://www.nytimes.com/2026/08/15/style/hacks-event-jean-smart-hannah-einbinder.html
 
-**Luigi Mangione Faces Protracted Legal Battle in State Case After Plea**\
-`Mr. Mangione must still be sentenced in federal court. And his lawyers are seeking to have a state case thrown out before the trial starts next month.`\
+**Will Luigi Mangione’s Lawyers Get His State Case Thrown Out of Court?**\
+`Mr. Mangione must still be sentenced in federal court. And his lawyers are now claiming double jeopardy to get the state case dismissed before the trial starts next month.`\
 https://www.nytimes.com/2026/08/15/nyregion/luigi-mangione-brian-thompson-guilty.html
 
 **Syrian Convicted in Austria of Civil War Abuses Is Detained in Syria**\

@@ -1,3 +1,7 @@
+**Will Luigi Mangione’s Lawyers Get His State Case Thrown Out of Court?**\
+`Mr. Mangione must still be sentenced in federal court. And his lawyers are now claiming double jeopardy to get the state case dismissed before the trial starts next month.`\
+https://www.nytimes.com/2026/08/15/nyregion/luigi-mangione-brian-thompson-guilty.html
+
 **$10 Million in Gold Found Buried Under Former Brewery in Belgium**\
 `A construction worker’s drill struck gold during a renovation project in East Flanders, setting off a search for the owners of the stashed fortune.`\
 https://www.nytimes.com/2026/08/15/world/europe/gold-bars-coins-belgium.html
