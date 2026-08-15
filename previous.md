@@ -1,7 +1,3 @@
-**Mapa: un terremoto de magnitud 5,2 sacude España**\
-`Mira la localización del epicentro del sismo y el área de movimiento.`\
-https://www.nytimes.com/interactive/2026/08/14/espanol/terremoto-espana-granada.html
-
 **Man, 18, Pleads Guilty to Repeatedly Kicking Sea Lion in California**\
 `The man bobbed and wove before lobbing a kick at a sea lion in San Diego last month, a video of the episode shows.`\
 https://www.nytimes.com/2026/08/14/us/sea-lion-kicked-guilty-california.html
@@ -193,4 +189,8 @@ https://www.nytimes.com/2026/08/14/nyregion/youman-wilder-dead.html
 **Britain’s Farage Takes a Page From Trump’s Playbook Amid Investigations**\
 `Nigel Farage, the Reform U.K. leader who resigned from Parliament and won back his seat on Thursday, stays on the offensive and says voters don’t care about allegations of financial impropriety.`\
 https://www.nytimes.com/2026/08/14/world/europe/farage-britain-trump-playbook-analysis.html
+
+**She Sewed the Blue Angels’ Suits for 40 Years. Then a Big Company Got the Job.**\
+`Jellie Whitehurst in Pensacola, Fla., was surprised to learn that after decades, the Navy had awarded a $1.7 million contract to a company in Virginia to supply the gear.`\
+https://www.nytimes.com/2026/08/14/us/blue-angels-uniforms-contract-shop.html
 
