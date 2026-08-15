@@ -1,3 +1,7 @@
+**Justice Dept. Dismisses Threats Case in Minnesota Days Before Trial**\
+`The government said it could not prove that a man accused of threatening federal agents had committed a crime, adding to the scores of cases in the administration’s deportation efforts that have unraveled.`\
+https://www.nytimes.com/2026/08/14/us/minnesota-threats-federal-agents-immigration.html
+
 **‘Slayer Statute’ Blocks Nick Reiner From Trust Fund, Its Steward Says**\
 `Mr. Reiner wants access to a $1.6 million trust for his legal defense. Because he is accused of killing his parents, the trustee says he can’t have the money.`\
 https://www.nytimes.com/2026/08/14/movies/nick-reiner-slayer-statute-trust-fund-murder-parents.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/podcasts/100000011084170/how-baltimore-awakened-st
 **How One County Profited From Data Centers, As a Backlash Grew**\
 `Loudoun County, Va., has gotten rich hosting more than 250 data centers, allowing it to cut property taxes. Other locales are taking note, even as a nationwide backlash over data centers grows.`\
 https://static01.nyt.com/slideshow/2026/08/14/business/how-one-county-profited-from-data-centers-as-a-backlash-grew.html
-
-**Mangione Admits to Fatally Shooting Insurance Executive in Manhattan**\
-`At a hearing in which he pleaded guilty to federal crimes, Luigi Mangione said he endured years of back pain while navigating the insurance industry before killing the chief executive of UnitedHealthcare.`\
-https://www.nytimes.com/2026/08/14/nyregion/mangione-admits-shooting-executive.html
 

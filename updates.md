@@ -1,3 +1,7 @@
+**Justice Dept. Dismisses Threats Case in Minnesota Days Before Trial**\
+`The government said it could not prove that a man accused of threatening federal agents had committed a crime, adding to the scores of cases in the administration’s deportation efforts that have unraveled.`\
+https://www.nytimes.com/2026/08/14/us/minnesota-threats-federal-agents-immigration.html
+
 **‘Slayer Statute’ Blocks Nick Reiner From Trust Fund, Its Steward Says**\
 `Mr. Reiner wants access to a $1.6 million trust for his legal defense. Because he is accused of killing his parents, the trustee says he can’t have the money.`\
 https://www.nytimes.com/2026/08/14/movies/nick-reiner-slayer-statute-trust-fund-murder-parents.html
