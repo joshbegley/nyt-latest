@@ -1,3 +1,7 @@
+**Moldavia es clave para el objetivo de Putin de destruir la OTAN. Esta es la razón**\
+`En la pequeña nación, Moscú pagó a sacerdotes ortodoxos, llevó a cabo un esquema de compra de votos y estableció campamentos de entrenamiento sobre interferencia electoral, todo en un esfuerzo por descarrilar al gobierno de tendencia occidental.`\
+https://www.nytimes.com/es/2026/08/15/espanol/mundo/moldavia-influencia-rusia.html
+
 **Deadly 7.7-Magnitude Earthquake Hits Indonesia**\
 `A 7.7-magnitude earthquake struck near an island in eastern Indonesia, killing at least 20 and collapsing several buildings.`\
 https://www.nytimes.com/video/world/asia/100000011094073/earthquake-indonesia-flores.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/14/us/politics/john-carro-dead.html
 **When a Rare Wolf Got Too Close, Denmark Faced a Conservation Dilemma**\
 `The authorities tracked the animal after a string of close encounters with residents, reigniting a bitter debate over how a small, densely populated country should live with wolves.`\
 https://www.nytimes.com/2026/08/14/world/europe/rare-wolf-denmark-conservation-dilemma.html
-
-**Andrés Manuel López Beltrán, hijo de AMLO, dice que EE. UU. le revocó su visa**\
-`Andrés Manuel López Beltrán, hijo del expresidente López Obrador, arremetió contra el gobierno de Donald Trump por la medida, en otro episodio de fricción para la tensa relación entre México y EE. UU.`\
-https://www.nytimes.com/es/2026/08/14/espanol/mundo/lopez-beltran-amlo-visa-estados-unidos.html
 
