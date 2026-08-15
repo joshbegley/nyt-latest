@@ -1,3 +1,7 @@
+**Luigi Mangione Faces Protracted Legal Battle in State Case After Plea**\
+`Mr. Mangione must still be sentenced in federal court. And his lawyers are seeking to have a state case thrown out before the trial starts next month.`\
+https://www.nytimes.com/2026/08/15/nyregion/luigi-mangione-brian-thompson-guilty.html
+
 **Syrian Convicted in Austria of Civil War Abuses Is Detained in Syria**\
 `Musab Abu Rukbah, a former police chief, left Austria after appealing his eight-year sentence for crimes committed during Syria’s civil war.`\
 https://www.nytimes.com/2026/08/15/world/middleeast/syria-austria-arrest-civil-war-crimes.html

@@ -1,3 +1,7 @@
+**Luigi Mangione Faces Protracted Legal Battle in State Case After Plea**\
+`Mr. Mangione must still be sentenced in federal court. And his lawyers are seeking to have a state case thrown out before the trial starts next month.`\
+https://www.nytimes.com/2026/08/15/nyregion/luigi-mangione-brian-thompson-guilty.html
+
 **Syrian Convicted in Austria of Civil War Abuses Is Detained in Syria**\
 `Musab Abu Rukbah, a former police chief, left Austria after appealing his eight-year sentence for crimes committed during Syria’s civil war.`\
 https://www.nytimes.com/2026/08/15/world/middleeast/syria-austria-arrest-civil-war-crimes.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/15/realestate/florida-retirement-residency-taxes
 **Where Future Champions Race Against the Tide**\
 `An uninhabited Irish island fills up one day each summer for a treasured amateur horse race in which young jockeys ride across the shifting sands.`\
 https://www.nytimes.com/2026/08/15/world/europe/omey-island-races-horse-racing-ireland.html
-
-**The 2026 Salzburg Festival Navigates Uncertain Times Without an Artistic Director**\
-`The renowned classical music festival is at a turning point after ousting its artistic director as it prepares for a disruptive $600 million renovation project.`\
-https://www.nytimes.com/2026/08/15/arts/music/salzburg-festival-markus-hinterhauser.html
 
