@@ -1,3 +1,7 @@
+**Central Synagogue Attack Rattles Jewish New Yorkers**\
+`The police said a man on Friday night struck a congregant at the prominent Upper East Side synagogue, as Jews in the city contend with threats, fears and internal divides.`\
+https://www.nytimes.com/2026/08/15/nyregion/central-synagogue-shabbat-assault.html
+
 **Democrats Make South Carolina the First Contest in 2028 Presidential Primary Calendar**\
 `The party’s membership finalized the new order for the first six states to winnow the candidate field, pushing back Iowa and New Hampshire.`\
 https://www.nytimes.com/2026/08/15/us/politics/democrats-new-presidential-primary-calendar.html
