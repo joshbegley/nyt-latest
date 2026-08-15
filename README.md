@@ -1,3 +1,7 @@
+**Elizabeth Street Garden Fans Celebrate After Developers Drop Suit**\
+`The garden in NoLIta has been a symbol of the fight over preservation and development, but Mayor Zohran Mamdani this week abandoned plans to build there.`\
+https://www.nytimes.com/2026/08/15/nyregion/elizabeth-street-garden-lawsuit-dropped.html
+
 **Hawaii Braces for Lala After Earlier Flooding**\
 `The state experienced some of its worst flooding in decades during storms earlier this year, the governor said.`\
 https://www.nytimes.com/2026/08/15/weather/hawaii-lala-march-flooding.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/15/us/politics/prosecutors-examined-firm-with-ti
 **How to Protect Your Home While You’re on Vacation**\
 `Store food in sealed containers and fix any leaking faucets or pipes, experts told our columnist, who had her own nightmare upon returning home.`\
 https://www.nytimes.com/2026/08/15/your-money/vacation-protecting-home.html
-
-**Leo Woodall, if He Must, Chooses Oasis Over the Beatles**\
-`“Liam Gallagher is the coolest frontman who’s ever lived,” said the actor, one of the stars of “Tony.”`\
-https://www.nytimes.com/2026/08/15/movies/leo-woodall-tony-lotr.html
 
