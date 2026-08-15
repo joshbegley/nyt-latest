@@ -1,3 +1,7 @@
+**‘Hacks’ Comes to Life in Los Angeles for One Night Only**\
+`Courting Emmy voters, the stars and creators of the HBO Max series got in character for “Deborah Vance & Friends & Enemies Live!”`\
+https://www.nytimes.com/2026/08/15/style/hacks-event-jean-smart-hannah-einbinder.html
+
 **Luigi Mangione Faces Protracted Legal Battle in State Case After Plea**\
 `Mr. Mangione must still be sentenced in federal court. And his lawyers are seeking to have a state case thrown out before the trial starts next month.`\
 https://www.nytimes.com/2026/08/15/nyregion/luigi-mangione-brian-thompson-guilty.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/15/us/politics/sherrod-brown-ohio-senate-race.ht
 **Moving to Florida After Retirement: Is It Worth It?**\
 `Tax benefits are only one of the factors to consider as you make your choice.`\
 https://www.nytimes.com/2026/08/15/realestate/florida-retirement-residency-taxes.html
-
-**Where Future Champions Race Against the Tide**\
-`An uninhabited Irish island fills up one day each summer for a treasured amateur horse race in which young jockeys ride across the shifting sands.`\
-https://www.nytimes.com/2026/08/15/world/europe/omey-island-races-horse-racing-ireland.html
 
