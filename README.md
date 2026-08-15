@@ -1,3 +1,7 @@
+**Matthew Rhys Is on a Tear. If Only He Knew It.**\
+`The “Widow’s Bay” star on his two Emmy nominations, his penchant for going dark and his wobbly self-esteem.`\
+https://www.nytimes.com/2026/08/15/magazine/matthew-rhys-interview.html
+
 **41 de los mejores restaurantes mexicanos en Estados Unidos**\
 `Desde humeantes platos de birria hasta sopa de mantarraya, la gastronomía de México ofrece un suculento abanico de posibilidades a los comensales estadounidenses.`\
 https://www.nytimes.com/es/2026/08/15/espanol/mejores-restaurantes-mexicanos-estados-unidos.html
@@ -123,7 +127,7 @@ https://www.nytimes.com/video/podcasts/100000011091571/matthew-rhys-interview-wi
 https://www.nytimes.com/es/2026/08/15/espanol/mundo/moldavia-influencia-rusia.html
 
 **Deadly 7.7-Magnitude Earthquake Hits Indonesia**\
-`A 7.7-magnitude earthquake struck near an island in eastern Indonesia, killing at least 20 and causing several buildings to collapse.`\
+`A 7.7-magnitude earthquake struck near an island in eastern Indonesia, killing at least 38 and causing several buildings to collapse.`\
 https://www.nytimes.com/video/world/asia/100000011094073/earthquake-indonesia-flores.html
 
 **¿Ya es seguro comer lechuga?**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/14/us/minnesota-threats-federal-agents-immigrati
 **‘Slayer Statute’ Blocks Nick Reiner From Trust Fund, Its Steward Says**\
 `Mr. Reiner wants access to a $1.6 million trust for his legal defense. Because he is accused of killing his parents, the trustee says he can’t have the money.`\
 https://www.nytimes.com/2026/08/14/movies/nick-reiner-slayer-statute-trust-fund-murder-parents.html
-
-**Colorado Was Targeted as Trump Fumed Over Election Denier, Email Shows**\
-`The state has accused the government in a lawsuit of retaliating after the conviction of Tina Peters, a Trump supporter. An administration official convened a group to discuss “immediate actions.”`\
-https://www.nytimes.com/2026/08/14/us/colorado-trump-tina-peters.html
 
