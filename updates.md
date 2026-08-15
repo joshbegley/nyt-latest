@@ -1,3 +1,7 @@
+**Democrats Make South Carolina the First Contest in 2028 Presidential Primary Calendar**\
+`The party’s membership finalized the new order for the first six states to winnow the candidate field, pushing back Iowa and New Hampshire.`\
+https://www.nytimes.com/2026/08/15/us/politics/democrats-new-presidential-primary-calendar.html
+
 **An Island Used to Storms Readies for One of the Strongest in Decades**\
 `Storms regularly sweep across Hawaii, but actual hurricanes are rare. As Lala approached, propane, ice and Oreos were among the priorities.`\
 https://www.nytimes.com/2026/08/15/weather/hurricane-lala-hawaii-emergency-prep.html

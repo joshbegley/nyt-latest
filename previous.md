@@ -1,3 +1,7 @@
+**Democrats Make South Carolina the First Contest in 2028 Presidential Primary Calendar**\
+`The party’s membership finalized the new order for the first six states to winnow the candidate field, pushing back Iowa and New Hampshire.`\
+https://www.nytimes.com/2026/08/15/us/politics/democrats-new-presidential-primary-calendar.html
+
 **An Island Used to Storms Readies for One of the Strongest in Decades**\
 `Storms regularly sweep across Hawaii, but actual hurricanes are rare. As Lala approached, propane, ice and Oreos were among the priorities.`\
 https://www.nytimes.com/2026/08/15/weather/hurricane-lala-hawaii-emergency-prep.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/15/style/electric-kool-aid-acid-blue-aqua.html
 **Pilates With a Side of Prenuptial Planning**\
 `Stretches, protein balls and financial advice were on offer at a class on a recent Wednesday morning in Water Mill, N.Y.`\
 https://www.nytimes.com/2026/08/15/style/prenups-pilates-class-hamptons.html
-
-**As China Pushes to Expand in Asia, Trump Focuses on Iran**\
-`Asian allies are beginning to wonder whether the United States would or could defend them in a war.`\
-https://www.nytimes.com/2026/08/15/us/politics/china-expansion-asia-trump-iran.html
 
