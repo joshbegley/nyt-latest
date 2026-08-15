@@ -1,3 +1,11 @@
+**How Did This Hurricane Get the Name Lala?**\
+`Names come from a list developed by a meteorological organization. They can help people pay attention, an official with the National Hurricane Center said.`\
+https://www.nytimes.com/2026/08/15/weather/tropical-storm-lala-name-hawaii-hurricane.html
+
+**Meet Jinny Lu, the World’s Ugliest Dog of 2026**\
+`The rescued pug, who likes to dip her protruding tongue into the food bowls of everyone at home, emerged as the winner of the World’s Ugliest Dog Contest on Friday.`\
+https://www.nytimes.com/2026/08/15/us/ugliest-dog-contest-winner-2026.html
+
 **Will Luigi Mangione’s Lawyers Get His State Case Thrown Out of Court?**\
 `Mr. Mangione must still be sentenced in federal court. And his lawyers are now claiming double jeopardy to get the state case dismissed before the trial starts next month.`\
 https://www.nytimes.com/2026/08/15/nyregion/luigi-mangione-brian-thompson-guilty.html

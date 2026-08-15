@@ -1,3 +1,11 @@
+**How Did This Hurricane Get the Name Lala?**\
+`Names come from a list developed by a meteorological organization. They can help people pay attention, an official with the National Hurricane Center said.`\
+https://www.nytimes.com/2026/08/15/weather/tropical-storm-lala-name-hawaii-hurricane.html
+
+**Meet Jinny Lu, the World’s Ugliest Dog of 2026**\
+`The rescued pug, who likes to dip her protruding tongue into the food bowls of everyone at home, emerged as the winner of the World’s Ugliest Dog Contest on Friday.`\
+https://www.nytimes.com/2026/08/15/us/ugliest-dog-contest-winner-2026.html
+
 **The Last Hurricane to Hit Hawaii Became a Movie Star**\
 `Hurricane Iniki devastated Kauai, causing at least seven deaths and $1.8 billion in damage. It also got a cameo in a Spielberg movie.`\
 https://www.nytimes.com/2026/08/15/weather/hurricane-iniki-hawaii-history-lala.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/podcasts/100000011088037/matthew-rhys-i-want-to-ge
 **Matthew Rhys on the Welsh Pessimism That Keeps Him Humble**\
 `The actor Matthew Rhys has been nominated for two Emmys this year. He explained why he doesn’t get too high an opinion of himself on “The Interview.”`\
 https://www.nytimes.com/video/podcasts/100000011088030/matthew-rhys-on-the-welsh-pessimism-that-keeps-him-humble.html
-
-**Matthew Rhys on Falling in Love With Keri Russell**\
-`On “The Interview,” the actor Matthew Rhys talked about his relationship with Keri Russell, who was his co-star in the TV drama “The Americans.”`\
-https://www.nytimes.com/video/podcasts/100000011088020/matthew-rhys-on-falling-in-love-with-keri-russell.html
-
-**How Cyclospora Evaded the U.S. Food Safety System to Sicken Thousands**\
-`The Trump administration delayed a rule last year that could have sped up the effort to pinpoint the source of the contamination. Critics charge that food safety oversight has eroded overall.`\
-https://www.nytimes.com/2026/08/15/health/cyclospora-invesigation-fda.html
 
