@@ -1,3 +1,11 @@
+**‘Slayer Statute’ Blocks Nick Reiner From Trust Fund, Its Steward Says**\
+`Mr. Reiner wants access to a $1.6 million trust for his legal defense. Because he is accused of killing his parents, the trustee says he can’t have the money.`\
+https://www.nytimes.com/2026/08/14/movies/nick-reiner-slayer-statute-trust-fund-murder-parents.html
+
+**Colorado Was Targeted as Trump Fumed Over Election Denier, Email Shows**\
+`The state has accused the government in a lawsuit of retaliating after the conviction of Tina Peters, a Trump supporter. An administration official convened a group to discuss “immediate actions.”`\
+https://www.nytimes.com/2026/08/14/us/colorado-trump-tina-peters.html
+
 **Series of Michigan Shootings Leave 6 Dead, Including Gunman**\
 `The gunman, Chad Hickman, was found dead in a wooded area near Whitlock Lake in Caldwell Township, the authorities said. A motive for the shootings was not immediately known.`\
 https://www.nytimes.com/2026/08/14/us/shooting-missaukee-county-michigan.html
@@ -185,12 +193,4 @@ https://static01.nyt.com/slideshow/2026/08/14/business/how-one-county-profited-f
 **Mangione Admits to Fatally Shooting Insurance Executive in Manhattan**\
 `At a hearing in which he pleaded guilty to federal crimes, Luigi Mangione said he endured years of back pain while navigating the insurance industry before killing the chief executive of UnitedHealthcare.`\
 https://www.nytimes.com/2026/08/14/nyregion/mangione-admits-shooting-executive.html
-
-**Parkinson’s Made Daniel Barenboim Step Back. But He’s on the Conductor’s Podium Again.**\
-`Daniel Barenboim is leading his orchestra of Arab and Israeli musicians on a European tour. His movements onstage were few, but often effective.`\
-https://www.nytimes.com/2026/08/14/arts/music/daniel-barenboim-conductor.html
-
-**Youman Wilder, Baseball Coach Who Said He Faced Down ICE Agents, Dies at 63**\
-`He told reporters that he intervened when federal agents approached his young Black and Latino players after a practice last summer.`\
-https://www.nytimes.com/2026/08/14/nyregion/youman-wilder-dead.html
 
