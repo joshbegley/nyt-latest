@@ -1,3 +1,11 @@
+**The Last Hurricane to Hit Hawaii Became a Movie Star**\
+`Hurricane Iniki devastated Kauai, causing at least seven deaths and $1.8 billion in damage. It also got a cameo in a Spielberg movie.`\
+https://www.nytimes.com/2026/08/15/weather/hurricane-iniki-hawaii-history-lala.html
+
+**$10 Million in Gold Found Buried Under Former Brewery in Belgium**\
+`A construction worker’s drill struck gold during a renovation project in East Flanders, setting off a search for the owners of the stashed fortune.`\
+https://www.nytimes.com/2026/08/15/world/europe/10-million-in-gold-found-under-former-brewery-in-belgium.html
+
 **Central Synagogue Attack Rattles Jewish New Yorkers**\
 `The police said a man on Friday night struck a congregant at the prominent Upper East Side synagogue, as Jews in the city contend with threats, fears and internal divides.`\
 https://www.nytimes.com/2026/08/15/nyregion/central-synagogue-shabbat-assault.html
@@ -39,7 +47,7 @@ https://www.nytimes.com/2026/08/15/dining/i-will-be-making-this-on-repeat-until-
 https://www.nytimes.com/2026/08/15/opinion/trump-haberman-swan-book-politics.html
 
 **Iran Says Qatar Captured Its Pilots Months Ago, a Claim Qatar Rejects**\
-`Iran said the airmen have been held since March 2 when their fighter jets were shot down. The Qatari government denied the claims.`\
+`Iran said the airmen have been held since March 2 when their fighter jets were shot down. The Qatari government denies detaining any Iranian pilots.`\
 https://www.nytimes.com/2026/08/15/world/middleeast/iran-missing-pilots-qatar.html
 
 **Travelers Hunker Down as Tropical Storm Lala Approaches Hawaii’s Big Island**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/podcasts/100000011088020/matthew-rhys-on-falling-i
 **How Cyclospora Evaded the U.S. Food Safety System to Sicken Thousands**\
 `The Trump administration delayed a rule last year that could have sped up the effort to pinpoint the source of the contamination. Critics charge that food safety oversight has eroded overall.`\
 https://www.nytimes.com/2026/08/15/health/cyclospora-invesigation-fda.html
-
-**What Is Happening at the Border in Big Bend National Park?**\
-`Over the objections of environmentalists, local sheriffs and some state leaders, the Trump administration appears to be moving ahead with border infrastructure in one of Texas’ most beloved parks.`\
-https://www.nytimes.com/2026/08/15/us/border-big-bend-texas.html
-
-**The Electric Kool-Aid Acid Blue That’s Suddenly Everywhere**\
-`It’s nostalgic, optimistic and, some argue, easier to pull off than you may think.`\
-https://www.nytimes.com/2026/08/15/style/electric-kool-aid-acid-blue-aqua.html
 

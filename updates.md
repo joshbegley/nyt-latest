@@ -1,3 +1,7 @@
+**Iran Says Qatar Captured Its Pilots Months Ago, a Claim Qatar Rejects**\
+`Iran said the airmen have been held since March 2 when their fighter jets were shot down. The Qatari government denied the claims.`\
+https://www.nytimes.com/2026/08/15/world/middleeast/iran-missing-pilots-qatar.html
+
 **Central Synagogue Attack Rattles Jewish New Yorkers**\
 `The police said a man on Friday night struck a congregant at the prominent Upper East Side synagogue, as Jews in the city contend with threats, fears and internal divides.`\
 https://www.nytimes.com/2026/08/15/nyregion/central-synagogue-shabbat-assault.html

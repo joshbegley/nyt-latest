@@ -38,8 +38,8 @@ https://www.nytimes.com/2026/08/15/dining/i-will-be-making-this-on-repeat-until-
 `What would happen if he’s forced to confront an external crisis?`\
 https://www.nytimes.com/2026/08/15/opinion/trump-haberman-swan-book-politics.html
 
-**Iran Says Qatar Captured Three of Its Pilots Early in War With U.S.**\
-`Iran said the airmen have been held since March 2 when their fighter jets were shot down. The Qatari government has not commented.`\
+**Iran Says Qatar Captured Its Pilots Months Ago, a Claim Qatar Rejects**\
+`Iran said the airmen have been held since March 2 when their fighter jets were shot down. The Qatari government denied the claims.`\
 https://www.nytimes.com/2026/08/15/world/middleeast/iran-missing-pilots-qatar.html
 
 **Travelers Hunker Down as Tropical Storm Lala Approaches Hawaii’s Big Island**\
@@ -186,13 +186,13 @@ https://www.nytimes.com/video/podcasts/100000011088030/matthew-rhys-on-the-welsh
 `On “The Interview,” the actor Matthew Rhys talked about his relationship with Keri Russell, who was his co-star in the TV drama “The Americans.”`\
 https://www.nytimes.com/video/podcasts/100000011088020/matthew-rhys-on-falling-in-love-with-keri-russell.html
 
-**What Is Happening at the Border in Big Bend National Park?**\
-`Over the objections of environmentalists, local sheriffs and some state leaders, the Trump administration appears to be moving ahead with border infrastructure in one of Texas’ most beloved parks.`\
-https://www.nytimes.com/2026/08/15/us/border-big-bend-texas.html
-
 **How Cyclospora Evaded the U.S. Food Safety System to Sicken Thousands**\
 `The Trump administration delayed a rule last year that could have sped up the effort to pinpoint the source of the contamination. Critics charge that food safety oversight has eroded overall.`\
 https://www.nytimes.com/2026/08/15/health/cyclospora-invesigation-fda.html
+
+**What Is Happening at the Border in Big Bend National Park?**\
+`Over the objections of environmentalists, local sheriffs and some state leaders, the Trump administration appears to be moving ahead with border infrastructure in one of Texas’ most beloved parks.`\
+https://www.nytimes.com/2026/08/15/us/border-big-bend-texas.html
 
 **The Electric Kool-Aid Acid Blue That’s Suddenly Everywhere**\
 `It’s nostalgic, optimistic and, some argue, easier to pull off than you may think.`\
