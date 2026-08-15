@@ -1,3 +1,7 @@
+**Travelers Hunker Down as Tropical Storm Lala Approaches Hawaii’s Big Island**\
+`The storm, expected to become a hurricane, has prompted some travelers to leave hotels early, while others are waiting out the wind and rain.`\
+https://www.nytimes.com/2026/08/15/travel/tropical-storm-lala-hurricane-hawaii-evacuation.html
+
 **Luigi Mangione Admits to Killing Health Insurance Executive**\
 `Mr. Mangione pleaded guilty to federal charges. In court, he outlined how he stalked Brian Thompson on a Manhattan street, shot him and left him to die. He still faces a state case.`\
 https://www.nytimes.com/2026/08/15/nyregion/luigi-mangione-admits-to-killing-health-insurance-executive.html
