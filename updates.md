@@ -1,3 +1,7 @@
+**The Charming, Amusing, Surprisingly Low-Confidence Matthew Rhys**\
+`The “Widow’s Bay” star on his two Emmy nominations, his penchant for going dark and his wobbly self-esteem.`\
+https://www.nytimes.com/2026/08/15/magazine/matthew-rhys-interview.html
+
 **The Cutthroat Wearables Battle Is About More Than Tracking Your Fitness**\
 `Google, Apple, Samsung and upstarts like Oura are racing to integrate data from their wearable devices into the health care system.`\
 https://www.nytimes.com/2026/08/15/business/dealbook/wearables-healthcare.html
