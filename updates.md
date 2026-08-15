@@ -1,3 +1,15 @@
+**‘I Will be Making This on Repeat Until I Can’t Look at Eggs or Tomatoes Anymore’**\
+`That’s just one happy reader comment on this easy new cumin tomato salad with jammy eggs.`\
+https://www.nytimes.com/2026/08/15/dining/i-will-be-making-this-on-repeat-until-i-cant-look-at-eggs-or-tomatoes-anymore.html
+
+**Trump Is in a Fantasy Land of His Own Making**\
+`What would happen if he’s forced to confront an external crisis?`\
+https://www.nytimes.com/2026/08/15/opinion/trump-haberman-swan-book-politics.html
+
+**Iran Says Qatar Captured Three of Its Pilots Early in War With U.S.**\
+`Iran said the airmen have been held since March 2 when their fighter jets were shot down. The Qatari government has not commented.`\
+https://www.nytimes.com/2026/08/15/world/middleeast/iran-missing-pilots-qatar.html
+
 **Canadian Petition to Expel U.S. Ambassador Pete Hoekstra Takes Off**\
 `Mr. Hoekstra has been President Trump’s faithful messenger in Canada amid a historic low in relations. More than 170,000 Canadians want him gone.`\
 https://www.nytimes.com/2026/08/15/world/canada/hoekstra-ambassador-petition-canada-trump.html
