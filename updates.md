@@ -1,3 +1,19 @@
+**Luigi Mangione Admits to Killing Health Insurance Executive**\
+`Mr. Mangione pleaded guilty to federal charges. In court, he outlined how he stalked Brian Thompson on a Manhattan street, shot him and left him to die. He still faces a state case.`\
+https://www.nytimes.com/2026/08/15/nyregion/luigi-mangione-admits-to-killing-health-insurance-executive.html
+
+**The Original Viral Recipe**\
+`In praise of the plum torte and more stone fruit desserts, like apricot upside-down cake and peach pie.`\
+https://www.nytimes.com/2026/08/15/dining/the-original-viral-recipe.html
+
+**On The Job With A New Jersey Firefighter**\
+`Pete Gonzalez cooks elaborate meals for his fellow firefighters in Jersey City, N.J.`\
+https://www.nytimes.com/2026/08/15/dining/how-to-feed-a-firehouse.html
+
+**Es natural envidiar a tus amigos**\
+`En lugar de sentir culpa o autocompasión, vale la pena intentar convertir la envidia en una herramienta para un cambio positivo.`\
+https://www.nytimes.com/es/2026/08/15/espanol/estilos-de-vida/envidia-redes-sociales-que-hacer.html
+
 **Israeli Strikes in Lebanon Kill 11, Health Officials Say**\
 `The Lebanese health ministry said several children were killed in a strike overnight, one of the deadliest attacks in months. Israel’s military said it was targeting Hezbollah infrastructure.`\
 https://www.nytimes.com/2026/08/15/world/middleeast/israel-strikes-lebanon-ansar.html

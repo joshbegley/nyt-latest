@@ -1,3 +1,19 @@
+**Luigi Mangione Admits to Killing Health Insurance Executive**\
+`Mr. Mangione pleaded guilty to federal charges. In court, he outlined how he stalked Brian Thompson on a Manhattan street, shot him and left him to die. He still faces a state case.`\
+https://www.nytimes.com/2026/08/15/nyregion/luigi-mangione-admits-to-killing-health-insurance-executive.html
+
+**The Original Viral Recipe**\
+`In praise of the plum torte and more stone fruit desserts, like apricot upside-down cake and peach pie.`\
+https://www.nytimes.com/2026/08/15/dining/the-original-viral-recipe.html
+
+**On The Job With A New Jersey Firefighter**\
+`Pete Gonzalez cooks elaborate meals for his fellow firefighters in Jersey City, N.J.`\
+https://www.nytimes.com/2026/08/15/dining/how-to-feed-a-firehouse.html
+
+**Es natural envidiar a tus amigos**\
+`En lugar de sentir culpa o autocompasión, vale la pena intentar convertir la envidia en una herramienta para un cambio positivo.`\
+https://www.nytimes.com/es/2026/08/15/espanol/estilos-de-vida/envidia-redes-sociales-que-hacer.html
+
 **The Cutthroat Wearables Battle Is About More Than Tracking Your Fitness**\
 `Google, Apple, Samsung and upstarts like Oura are racing to integrate data from their wearable devices into the health care system.`\
 https://www.nytimes.com/2026/08/15/business/dealbook/wearables-healthcare.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/08/15/nyregion/nyc-street-sign-shop.html
 **Professor’s Death Leaves Behind Hard Questions for Cambridge on Race and Hiring**\
 `Jason Arday, the school’s youngest Black professor, was found dead on Friday. The school ignored a series of warnings about his life story and his work.`\
 https://www.nytimes.com/2026/08/15/world/europe/jason-arday-cambridge-hiring-questions.html
-
-**Matthew Rhys Is on a Tear. If Only He Knew It.**\
-`Lulu Garcia-Navarro sits down with the actor Matthew Rhys to discuss his Emmy-nominated performances in “Widow’s Bay” and “The Beast In Me.”`\
-https://www.nytimes.com/video/podcasts/100000011091571/matthew-rhys-interview-widows-bay.html
-
-**Moldavia es clave para el objetivo de Putin de destruir la OTAN. Esta es la razón**\
-`En la pequeña nación, Moscú pagó a sacerdotes ortodoxos, llevó a cabo un esquema de compra de votos y estableció campamentos de entrenamiento sobre interferencia electoral, todo en un esfuerzo por descarrilar al gobierno de tendencia occidental.`\
-https://www.nytimes.com/es/2026/08/15/espanol/mundo/moldavia-influencia-rusia.html
-
-**Deadly 7.7-Magnitude Earthquake Hits Indonesia**\
-`A 7.7-magnitude earthquake struck near an island in eastern Indonesia, killing at least 38 and causing several buildings to collapse.`\
-https://www.nytimes.com/video/world/asia/100000011094073/earthquake-indonesia-flores.html
-
-**¿Ya es seguro comer lechuga?**\
-`Los expertos analizan si la variedad iceberg y otros productos agrícolas frescos siguen siendo un riesgo mientras va disminuyendo el mayor brote de ciclosporiasis en la historia de EE. UU.`\
-https://www.nytimes.com/es/2026/08/15/espanol/estados-unidos/comer-lechuga-seguro-cyclospora.html
 

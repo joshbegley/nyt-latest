@@ -1,3 +1,7 @@
+**Travelers Hunker Down as Tropical Storm Lala Approaches Hawaii’s Big Island**\
+`The storm, expected to become a hurricane, has prompted some travelers to leave hotels early, while others are waiting out the wind and rain.`\
+https://www.nytimes.com/2026/08/15/travel/tropical-storm-lala-hurricane-hawaii-evacuation.html
+
 **Luigi Mangione Admits to Killing Health Insurance Executive**\
 `Mr. Mangione pleaded guilty to federal charges. In court, he outlined how he stalked Brian Thompson on a Manhattan street, shot him and left him to die. He still faces a state case.`\
 https://www.nytimes.com/2026/08/15/nyregion/luigi-mangione-admits-to-killing-health-insurance-executive.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/15/travel/barcelona-bars-bodegas.html
 **There Are Over 1 Million N.Y.C. Street Signs. Here’s How They Are Made.**\
 `From Cornelia Street to the Brooklyn-Queens Expressway, the 46 workers in this Queens building bring to life the words and symbols that guide the city.`\
 https://www.nytimes.com/2026/08/15/nyregion/nyc-street-sign-shop.html
-
-**Professor’s Death Leaves Behind Hard Questions for Cambridge on Race and Hiring**\
-`Jason Arday, the school’s youngest Black professor, was found dead on Friday. The school ignored a series of warnings about his life story and his work.`\
-https://www.nytimes.com/2026/08/15/world/europe/jason-arday-cambridge-hiring-questions.html
 
