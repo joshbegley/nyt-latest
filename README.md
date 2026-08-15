@@ -1,3 +1,7 @@
+**Mary Heilmann, Painter of Vividly Wobbly Abstractions, Dies at 86**\
+`An emblem of the obstacles faced by women artists of her generation, she was 67 when her first museum retrospective opened to rave reviews in 2007.`\
+https://www.nytimes.com/2026/08/15/arts/design/mary-heilmann-dead.html
+
 **Entrenched, Embattled and Defiant, the Taliban Celebrate 5 Years in Power**\
 `The Taliban have Afghanistan in a chokehold that spares no one. But threats are starting to crack their veneer of stability and control.`\
 https://www.nytimes.com/2026/08/15/world/asia/entrenched-embattled-and-defiant-the-taliban-celebrate-5-years-in-power.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/14/us/politics/stock-trading-congress.html
 **An A.I. Bot is Judging Your Résumé**\
 `Raise your hand if you’ve been personally victimized by an A.I. job recruiter. Finding a job has become more difficult in part because many corporations are now using bots to evaluate résumés. The Opinion writer Jessica Grose explains why job hunting has become about gaming A.I. recruiters, and why the solution might just be going analog.`\
 https://www.nytimes.com/video/opinion/100000011085683/an-ai-bot-is-judging-your-resume.html
-
-**Hiroshi Okuda, Disrupter Who Revived Toyota in the 1990s, Dies at 93**\
-`As the car company’s president, he made decisions quickly and shook things up, expanding overseas manufacturing and introducing the Prius, a milestone in automotive history.`\
-https://www.nytimes.com/2026/08/14/automobiles/hiroshi-okuda-dead.html
 
