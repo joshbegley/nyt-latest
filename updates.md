@@ -1,3 +1,7 @@
+**Deadly 7.7-Magnitude Earthquake Hits Indonesia**\
+`A 7.7-magnitude earthquake struck near an island in eastern Indonesia, killing at least 20 and collapsing several buildings.`\
+https://www.nytimes.com/video/world/asia/100000011094073/earthquake-indonesia-flores.html
+
 **¿Ya es seguro comer lechuga?**\
 `Los expertos analizan si la variedad iceberg y otros productos agrícolas frescos siguen siendo un riesgo mientras va disminuyendo el mayor brote de ciclosporiasis en la historia de EE. UU.`\
 https://www.nytimes.com/es/2026/08/15/espanol/estados-unidos/comer-lechuga-seguro-cyclospora.html
