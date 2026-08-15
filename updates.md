@@ -1,3 +1,7 @@
+**The Cutthroat Wearables Battle Is About More Than Tracking Your Fitness**\
+`Google, Apple, Samsung and upstarts like Oura are racing to integrate data from their wearable devices into the health care system.`\
+https://www.nytimes.com/2026/08/15/business/dealbook/wearables-healthcare.html
+
 **He Tried to Kill My Father. Now He Wants to Rewrite History.**\
 `This is not what contrition looks like.`\
 https://www.nytimes.com/2026/08/15/opinion/ronald-reagan-john-hinckley-jr.html
