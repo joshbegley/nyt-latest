@@ -1,3 +1,7 @@
+**An Island Used to Storms Readies for One of the Strongest in Decades**\
+`Storms regularly sweep across Hawaii, but actual hurricanes are rare. As Lala approached, propane, ice and Oreos were among the priorities.`\
+https://www.nytimes.com/2026/08/15/weather/hurricane-lala-hawaii-emergency-prep.html
+
 **2 Planes With Same Call Sign in Phoenix Could Have Been ‘Disastrous’**\
 `An air traffic controller noticed that two planes — one departing, one landing — were both flight 2482. He acted quickly to avoid confusion.`\
 https://www.nytimes.com/2026/08/15/us/american-airlines-call-signs-phoenix.html
