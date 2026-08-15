@@ -1,3 +1,7 @@
+**At Least 20 Dead as 7.7-Magnitude Earthquake Rocks Indonesia**\
+`The temblor was one of the strongest the area had experienced in decades, an official said.`\
+https://www.nytimes.com/2026/08/15/world/asia/earthquake-indonesia-flores-tsunami.html
+
 **Mary Heilmann, Painter of Vividly Wobbly Abstractions, Dies at 86**\
 `An emblem of the obstacles faced by women artists of her generation, she was 67 when her first museum retrospective opened to rave reviews in 2007.`\
 https://www.nytimes.com/2026/08/15/arts/design/mary-heilmann-dead.html
