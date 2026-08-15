@@ -1,3 +1,7 @@
+**Mary Heilmann, Painter of Vividly Wobbly Abstractions, Dies at 86**\
+`An emblem of the obstacles faced by women artists of her generation, she was 67 when her first museum retrospective opened to rave reviews in 2007.`\
+https://www.nytimes.com/2026/08/15/arts/design/mary-heilmann-dead.html
+
 **Man Charged With Hate Crime After Disrupting Worship at N.Y.C. Synagogue**\
 `Larry Montes, 46, faces assault and hate crime charges after striking a congregation member and a security guard at Central Synagogue in Manhattan, the police said.`\
 https://www.nytimes.com/2026/08/14/nyregion/central-synagogue-shabbat-assault-arrest.html
