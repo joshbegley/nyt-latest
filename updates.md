@@ -1,3 +1,7 @@
+**Syrian Convicted in Austria of Civil War Abuses Is Detained in Syria**\
+`Musab Abu Rukbah, a former police chief, left Austria after appealing his eight-year sentence for crimes committed during Syria’s civil war.`\
+https://www.nytimes.com/2026/08/15/world/middleeast/syria-austria-arrest-civil-war-crimes.html
+
 **Violet Hensley Dies at 109; Ozarks Fiddler Made Opry Debut at 99**\
 `She performed old-time mountain music at the Silver Dollar City theme park in Branson, Mo., for more than 50 years and appeared on “The Beverly Hillbillies.”`\
 https://www.nytimes.com/2026/08/15/arts/music/violet-hensley-dead.html
