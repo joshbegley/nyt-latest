@@ -1,3 +1,11 @@
+**Professor’s Death Leaves Behind Hard Questions for Cambridge on Race and Hiring**\
+`Jason Arday, the school’s youngest Black professor, was found dead on Friday. The school ignored a series of warnings about his life story and his work.`\
+https://www.nytimes.com/2026/08/15/world/europe/jason-arday-cambridge-hiring-questions.html
+
+**Matthew Rhys Is on a Tear. If Only He Knew It.**\
+`Lulu Garcia-Navarro sits down with the actor Matthew Rhys to discuss his Emmy-nominated performances in “Widow’s Bay” and “The Beast In Me.”`\
+https://www.nytimes.com/video/podcasts/100000011091571/matthew-rhys-interview-widows-bay.html
+
 **Moldavia es clave para el objetivo de Putin de destruir la OTAN. Esta es la razón**\
 `En la pequeña nación, Moscú pagó a sacerdotes ortodoxos, llevó a cabo un esquema de compra de votos y estableció campamentos de entrenamiento sobre interferencia electoral, todo en un esfuerzo por descarrilar al gobierno de tendencia occidental.`\
 https://www.nytimes.com/es/2026/08/15/espanol/mundo/moldavia-influencia-rusia.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/video/opinion/100000011093183/im-not-ashamed-of-my-face-
 **Trump Dismisses Reports About Dire Conditions Aboard U.S.S. Abraham Lincoln**\
 `Asked whether the deployment of the Abraham Lincoln had gone on too long, the president said its deployment had lasted “not nearly long enough.”`\
 https://www.nytimes.com/2026/08/14/us/politics/trump-uss-abraham-lincoln.html
-
-**John Carro, Jurist Who Had Early Brush With Lee Harvey Oswald, Dies at 98**\
-`Decades before his rise to the New York State appellate court, he was a probation officer who tried to help Mr. Oswald, then a teenager living in the Bronx.`\
-https://www.nytimes.com/2026/08/14/us/politics/john-carro-dead.html
-
-**When a Rare Wolf Got Too Close, Denmark Faced a Conservation Dilemma**\
-`The authorities tracked the animal after a string of close encounters with residents, reigniting a bitter debate over how a small, densely populated country should live with wolves.`\
-https://www.nytimes.com/2026/08/14/world/europe/rare-wolf-denmark-conservation-dilemma.html
 
