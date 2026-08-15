@@ -1,3 +1,7 @@
+**$10 Million in Gold Found Buried Under Former Brewery in Belgium**\
+`A construction worker’s drill struck gold during a renovation project in East Flanders, setting off a search for the owners of the stashed fortune.`\
+https://www.nytimes.com/2026/08/15/world/europe/gold-bars-coins-belgium.html
+
 **The Last Hurricane to Hit Hawaii Became a Movie Star**\
 `Hurricane Iniki devastated Kauai, causing at least seven deaths and $1.8 billion in damage. It also got a cameo in a Spielberg movie.`\
 https://www.nytimes.com/2026/08/15/weather/hurricane-iniki-hawaii-history-lala.html
