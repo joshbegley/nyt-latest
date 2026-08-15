@@ -1,3 +1,15 @@
+**Series of Michigan Shootings Leave 6 Dead, Including Gunman**\
+`The gunman, Chad Hickman, was found dead in a wooded area near Whitlock Lake in Caldwell Township, the authorities said. A motive for the shootings was not immediately known.`\
+https://www.nytimes.com/2026/08/14/us/shooting-missaukee-county-michigan.html
+
+**Mapa: un terremoto de magnitud 5,2 sacude España**\
+`Mira la localización del epicentro del sismo y el área de movimiento.`\
+https://www.nytimes.com/interactive/2026/08/14/espanol/terremoto-espana-granada.html
+
+**Map: 5.2-Magnitude Earthquake Strikes Southern Spain**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/08/14/world/europe/spain-quake-tracker.html
+
 **Man, 18, Pleads Guilty to Repeatedly Kicking Sea Lion in California**\
 `The man bobbed and wove before lobbing a kick at a sea lion in San Diego last month, a video of the episode shows.`\
 https://www.nytimes.com/2026/08/14/us/sea-lion-kicked-guilty-california.html
