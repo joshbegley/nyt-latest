@@ -150,13 +150,13 @@ https://www.nytimes.com/2026/08/15/us/politics/sherrod-brown-ohio-senate-race.ht
 `Tax benefits are only one of the factors to consider as you make your choice.`\
 https://www.nytimes.com/2026/08/15/realestate/florida-retirement-residency-taxes.html
 
-**The 2026 Salzburg Festival Navigates Uncertain Times Without an Artistic Director**\
-`The renowned classical music festival is at a turning point after ousting its artistic director as it prepares for a disruptive $600 million renovation project.`\
-https://www.nytimes.com/2026/08/15/arts/music/salzburg-festival-markus-hinterhauser.html
-
 **Where Future Champions Race Against the Tide**\
 `An uninhabited Irish island fills up one day each summer for a treasured amateur horse race in which young jockeys ride across the shifting sands.`\
 https://www.nytimes.com/2026/08/15/world/europe/omey-island-races-horse-racing-ireland.html
+
+**The 2026 Salzburg Festival Navigates Uncertain Times Without an Artistic Director**\
+`The renowned classical music festival is at a turning point after ousting its artistic director as it prepares for a disruptive $600 million renovation project.`\
+https://www.nytimes.com/2026/08/15/arts/music/salzburg-festival-markus-hinterhauser.html
 
 **6 Exercises Physical Therapists Wish Everyone Did to Age Well**\
 `Try these simple movements to stay strong and limber.`\
