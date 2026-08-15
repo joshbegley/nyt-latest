@@ -1,3 +1,7 @@
+**Bou Meng, Rare Survivor of Khmer Rouge Torture House, Dies at 85**\
+`Saved by his ability to paint, he was one of only a handful of prisoners to make it out of the brutal prison Tuol Sleng.`\
+https://www.nytimes.com/2026/08/15/world/asia/bou-meng-dead.html
+
 **How Did This Hurricane Get the Name Lala?**\
 `Names come from a list developed by a meteorological organization. They can help people pay attention, an official with the National Hurricane Center said.`\
 https://www.nytimes.com/2026/08/15/weather/tropical-storm-lala-name-hawaii-hurricane.html
@@ -174,7 +178,7 @@ https://www.nytimes.com/2026/08/15/business/inflation-worker-pay.html
 `Mr. Hoekstra has been President Trump’s faithful messenger in Canada amid a historic low in relations. More than 170,000 Canadians want him gone.`\
 https://www.nytimes.com/2026/08/15/world/canada/hoekstra-ambassador-petition-canada-trump.html
 
-**Prosecutors Examined Firm With Tie to Judge in Trump Hush Money Trial**\
+**Prosecutors Examined Firm With Tie to Judge in Trump Hush-Money Trial**\
 `The U.S. attorney in Chicago subpoenaed a fund-raising firm that had been co-owned by the daughter of Judge Juan Merchan, who conducted the trial that led to Donald Trump’s felony conviction.`\
 https://www.nytimes.com/2026/08/15/us/politics/prosecutors-examined-firm-with-tie-to-judge-in-trump-hush-money-trial.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/podcasts/100000011088042/matthew-rhys-on-working-w
 **Matthew Rhys: ‘I Want to Get to a Place Where I Just Feel Confident’**\
 `The Welsh actor Matthew Rhys, who is nominated for two Emmys this year, talked about his nervous tendencies on “The Interview.”`\
 https://www.nytimes.com/video/podcasts/100000011088037/matthew-rhys-i-want-to-get-to-a-place-where-i-just-feel-confident.html
-
-**Matthew Rhys on the Welsh Pessimism That Keeps Him Humble**\
-`The actor Matthew Rhys has been nominated for two Emmys this year. He explained why he doesn’t get too high an opinion of himself on “The Interview.”`\
-https://www.nytimes.com/video/podcasts/100000011088030/matthew-rhys-on-the-welsh-pessimism-that-keeps-him-humble.html
 

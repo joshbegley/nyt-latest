@@ -1,3 +1,11 @@
+**Bou Meng, Rare Survivor of Khmer Rouge Torture House, Dies at 85**\
+`Saved by his ability to paint, he was one of only a handful of prisoners to make it out of the brutal prison Tuol Sleng.`\
+https://www.nytimes.com/2026/08/15/world/asia/bou-meng-dead.html
+
+**Prosecutors Examined Firm With Tie to Judge in Trump Hush-Money Trial**\
+`The U.S. attorney in Chicago subpoenaed a fund-raising firm that had been co-owned by the daughter of Judge Juan Merchan, who conducted the trial that led to Donald Trump’s felony conviction.`\
+https://www.nytimes.com/2026/08/15/us/politics/prosecutors-examined-firm-with-tie-to-judge-in-trump-hush-money-trial.html
+
 **Travelers Hunker Down as Hurricane Lala Approaches Hawaii’s Big Island**\
 `The storm has prompted some travelers to leave their hotels early, while others are waiting out the wind and rain.`\
 https://www.nytimes.com/2026/08/15/travel/tropical-storm-lala-hurricane-hawaii-evacuation.html
