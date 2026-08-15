@@ -1,3 +1,7 @@
+**The Cutthroat Wearables Battle Is About More Than Tracking Your Fitness**\
+`Google, Apple, Samsung and upstarts like Oura are racing to integrate data from their wearable devices into the health care system.`\
+https://www.nytimes.com/2026/08/15/business/dealbook/wearables-healthcare.html
+
 **Israeli Strikes in Lebanon Kill 9, Health Officials Say**\
 `The Lebanese health ministry said several children were killed in a strike overnight, one of the deadliest attacks in months. Israel’s military said it was targeting Hezbollah infrastructure.`\
 https://www.nytimes.com/2026/08/15/world/middleeast/israel-strikes-lebanon-ansar.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/world/asia/100000011094073/earthquake-indonesia-fl
 **¿Ya es seguro comer lechuga?**\
 `Los expertos analizan si la variedad iceberg y otros productos agrícolas frescos siguen siendo un riesgo mientras va disminuyendo el mayor brote de ciclosporiasis en la historia de EE. UU.`\
 https://www.nytimes.com/es/2026/08/15/espanol/estados-unidos/comer-lechuga-seguro-cyclospora.html
-
-**N.Y.C. Congestion Pricing Has Little Effect on Air Quality, Study Finds**\
-`The report from New York City’s Health Department found that pollution improved slightly in Manhattan and did not worsen in other boroughs.`\
-https://www.nytimes.com/2026/08/15/nyregion/nyc-congestion-pricing-air-pollution.html
 
