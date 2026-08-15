@@ -1,3 +1,39 @@
+**Israeli Strikes in Lebanon Kill 9, Health Officials Say**\
+`The Lebanese health ministry said several children were killed in a strike overnight, one of the deadliest attacks in months. Israel’s military said it was targeting Hezbollah infrastructure.`\
+https://www.nytimes.com/2026/08/15/world/middleeast/israel-strikes-lebanon-ansar.html
+
+**The Man Who Shot My Father Thinks This Is a Great Moment for Self-Promotion**\
+`This is not what contrition looks like.`\
+https://www.nytimes.com/2026/08/15/opinion/ronald-reagan-john-hinckley-jr.html
+
+**David Ellison’s Plan to Move Hollywood to Nashville**\
+`The dream of a red-state Hollywood.`\
+https://www.nytimes.com/2026/08/15/opinion/culture/ellison-nashville-paramount-hollywood.html
+
+**How Are the Democrats’ Midterm Dreams Shaping Up?**\
+`Democratic divisions, polling misses and Ocasio-Cortez’s egg freezing: the week in politics.`\
+https://www.nytimes.com/2026/08/15/opinion/democrats-midterms-progress.html
+
+**Europe’s Great Rivers Are Dying. The Continent Is In for a Shock.**\
+`Climate change is beginning to tear up the old map of Europe’s power and wealth.`\
+https://www.nytimes.com/2026/08/15/opinion/europe-rivers-danube-rhine-drought.html
+
+**The Moral Message of the New ‘Odyssey’**\
+`Readers respond to Ezra Klein’s column about the meanings of Christopher Nolan’s movie.`\
+https://www.nytimes.com/2026/08/15/opinion/odyssey-morality.html
+
+**Where the Teacher Is a Hero**\
+`The Trump administration is squeezing struggling Americans with benefit cuts, but ordinary people are stepping up to help.`\
+https://www.nytimes.com/2026/08/15/opinion/poverty-america-arkansas.html
+
+**Trump Is Making Health Care Even Less Affordable**\
+`Republicans are taking deliberate steps to make health care less affordable.`\
+https://www.nytimes.com/2026/08/15/opinion/trump-health-care-cuts.html
+
+**How Are the Democrats’ Midterm Dreams Shaping Up?**\
+`Democratic divisions, polling misses and Ocasio-Cortez’s egg freezing: the week in politics.`\
+https://www.nytimes.com/video/opinion/100000011090294/how-are-the-democrats-midterm-dreams-shaping-up.html
+
 **Quit Lit**\
 `There are good reasons to abandon books we’re not enjoying, but our attenuated attention might lead us to tap out too early.`\
 https://www.nytimes.com/2026/08/15/briefing/quit-lit.html

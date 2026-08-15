@@ -1,3 +1,39 @@
+**Israeli Strikes in Lebanon Kill 9, Health Officials Say**\
+`The Lebanese health ministry said several children were killed in a strike overnight, one of the deadliest attacks in months. Israel’s military said it was targeting Hezbollah infrastructure.`\
+https://www.nytimes.com/2026/08/15/world/middleeast/israel-strikes-lebanon-ansar.html
+
+**The Man Who Shot My Father Thinks This Is a Great Moment for Self-Promotion**\
+`This is not what contrition looks like.`\
+https://www.nytimes.com/2026/08/15/opinion/ronald-reagan-john-hinckley-jr.html
+
+**David Ellison’s Plan to Move Hollywood to Nashville**\
+`The dream of a red-state Hollywood.`\
+https://www.nytimes.com/2026/08/15/opinion/culture/ellison-nashville-paramount-hollywood.html
+
+**How Are the Democrats’ Midterm Dreams Shaping Up?**\
+`Democratic divisions, polling misses and Ocasio-Cortez’s egg freezing: the week in politics.`\
+https://www.nytimes.com/2026/08/15/opinion/democrats-midterms-progress.html
+
+**Europe’s Great Rivers Are Dying. The Continent Is In for a Shock.**\
+`Climate change is beginning to tear up the old map of Europe’s power and wealth.`\
+https://www.nytimes.com/2026/08/15/opinion/europe-rivers-danube-rhine-drought.html
+
+**The Moral Message of the New ‘Odyssey’**\
+`Readers respond to Ezra Klein’s column about the meanings of Christopher Nolan’s movie.`\
+https://www.nytimes.com/2026/08/15/opinion/odyssey-morality.html
+
+**Where the Teacher Is a Hero**\
+`The Trump administration is squeezing struggling Americans with benefit cuts, but ordinary people are stepping up to help.`\
+https://www.nytimes.com/2026/08/15/opinion/poverty-america-arkansas.html
+
+**Trump Is Making Health Care Even Less Affordable**\
+`Republicans are taking deliberate steps to make health care less affordable.`\
+https://www.nytimes.com/2026/08/15/opinion/trump-health-care-cuts.html
+
+**How Are the Democrats’ Midterm Dreams Shaping Up?**\
+`Democratic divisions, polling misses and Ocasio-Cortez’s egg freezing: the week in politics.`\
+https://www.nytimes.com/video/opinion/100000011090294/how-are-the-democrats-midterm-dreams-shaping-up.html
+
 **Quit Lit**\
 `There are good reasons to abandon books we’re not enjoying, but our attenuated attention might lead us to tap out too early.`\
 https://www.nytimes.com/2026/08/15/briefing/quit-lit.html
@@ -161,40 +197,4 @@ https://www.nytimes.com/es/2026/08/15/espanol/estados-unidos/comer-lechuga-segur
 **N.Y.C. Congestion Pricing Has Little Effect on Air Quality, Study Finds**\
 `The report from New York City’s Health Department found that pollution improved slightly in Manhattan and did not worsen in other boroughs.`\
 https://www.nytimes.com/2026/08/15/nyregion/nyc-congestion-pricing-air-pollution.html
-
-**NYT Spelling Bee Answers for August 15, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/08/15/crosswords/spelling-bee-forum.html
-
-**At Least 38 Dead as 7.7-Magnitude Earthquake Rocks Indonesia**\
-`The temblor was one of the strongest the area had experienced in decades, an official said.`\
-https://www.nytimes.com/2026/08/15/world/asia/earthquake-indonesia-flores-tsunami.html
-
-**Mary Heilmann, Painter of Vividly Wobbly Abstractions, Dies at 86**\
-`An emblem of the obstacles faced by women artists of her generation, she was 67 when her first museum retrospective opened to rave reviews in 2007.`\
-https://www.nytimes.com/2026/08/15/arts/design/mary-heilmann-dead.html
-
-**Entrenched, Embattled and Defiant, the Taliban Celebrate 5 Years in Power**\
-`The Taliban have Afghanistan in a chokehold that spares no one. But threats are starting to crack their veneer of stability and control.`\
-https://www.nytimes.com/2026/08/15/world/asia/entrenched-embattled-and-defiant-the-taliban-celebrate-5-years-in-power.html
-
-**Quote of the Day: A.I. Cheating Has Swamped Online Classes**\
-`Quotation of the Day for Saturday, August 15, 2026.`\
-https://www.nytimes.com/2026/08/15/pageoneplus/quote-of-the-day-ai-cheating-has-swamped-online-classes.html
-
-**Toll During One Week of Scorching Europe June Heat Wave: 16,000 Deaths**\
-`Deaths spiked in northwest Europe in June, where countries were unprepared for extreme heat that hit much of the continent.`\
-https://www.nytimes.com/interactive/2026/08/15/world/europe/europe-heat-wave-deaths-june-2026.html
-
-**Heat Deaths in a ‘Cold’ Country Are a Warning to the Rest of Europe**\
-`A June heat wave in Belgium and neighboring countries exposed a lethal lack of readiness. That’s a risk as another wave hits Europe.`\
-https://www.nytimes.com/2026/08/15/world/europe/heat-deaths-in-a-cold-country-are-a-warning-to-the-rest-of-europe.html
-
-**Wary of Trump, Europe Seeks Role in Eventual Russia-Ukraine Talks**\
-`French, German and British diplomats are working on a format for future negotiations — even if Russia has shown little interest.`\
-https://www.nytimes.com/2026/08/15/world/europe/wary-of-trump-europe-seeks-role-in-any-russia-ukraine-talks.html
-
-**Man Charged With Hate Crime After Disrupting Worship at N.Y.C. Synagogue**\
-`Larry Montes, 46, faces assault and hate crime charges after striking a congregation member and a security guard at Central Synagogue in Manhattan, the police said.`\
-https://www.nytimes.com/2026/08/14/nyregion/central-synagogue-shabbat-assault-arrest.html
 
