@@ -1,3 +1,7 @@
+**Israeli Strikes in Lebanon Kill 11, Health Officials Say**\
+`The Lebanese health ministry said several children were killed in a strike overnight, one of the deadliest attacks in months. Israel’s military said it was targeting Hezbollah infrastructure.`\
+https://www.nytimes.com/2026/08/15/world/middleeast/israel-strikes-lebanon-ansar.html
+
 **The Charming, Amusing, Surprisingly Low-Confidence Matthew Rhys**\
 `The “Widow’s Bay” star on his two Emmy nominations, his penchant for going dark and his wobbly self-esteem.`\
 https://www.nytimes.com/2026/08/15/magazine/matthew-rhys-interview.html

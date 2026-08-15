@@ -2,7 +2,7 @@
 `Google, Apple, Samsung and upstarts like Oura are racing to integrate data from their wearable devices into the health care system.`\
 https://www.nytimes.com/2026/08/15/business/dealbook/wearables-healthcare.html
 
-**Israeli Strikes in Lebanon Kill 9, Health Officials Say**\
+**Israeli Strikes in Lebanon Kill 11, Health Officials Say**\
 `The Lebanese health ministry said several children were killed in a strike overnight, one of the deadliest attacks in months. Israel’s military said it was targeting Hezbollah infrastructure.`\
 https://www.nytimes.com/2026/08/15/world/middleeast/israel-strikes-lebanon-ansar.html
 
