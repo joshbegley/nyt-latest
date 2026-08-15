@@ -6,13 +6,13 @@ https://www.nytimes.com/2026/08/15/world/middleeast/israel-strikes-lebanon-ansar
 `This is not what contrition looks like.`\
 https://www.nytimes.com/2026/08/15/opinion/ronald-reagan-john-hinckley-jr.html
 
-**David Ellison’s Plan to Move Hollywood to Nashville**\
-`The dream of a red-state Hollywood.`\
-https://www.nytimes.com/2026/08/15/opinion/culture/ellison-nashville-paramount-hollywood.html
-
 **How Are the Democrats’ Midterm Dreams Shaping Up?**\
 `Democratic divisions, polling misses and Ocasio-Cortez’s egg freezing: the week in politics.`\
 https://www.nytimes.com/2026/08/15/opinion/democrats-midterms-progress.html
+
+**David Ellison’s Plan to Move Hollywood to Nashville**\
+`The dream of a red-state Hollywood.`\
+https://www.nytimes.com/2026/08/15/opinion/culture/ellison-nashville-paramount-hollywood.html
 
 **Europe’s Great Rivers Are Dying. The Continent Is In for a Shock.**\
 `Climate change is beginning to tear up the old map of Europe’s power and wealth.`\
