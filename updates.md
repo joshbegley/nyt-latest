@@ -1,3 +1,11 @@
+**Matthew Rhys Is on a Tear. If Only He Knew It.**\
+`The “Widow’s Bay” star on his two Emmy nominations, his penchant for going dark and his wobbly self-esteem.`\
+https://www.nytimes.com/2026/08/15/magazine/matthew-rhys-interview.html
+
+**Deadly 7.7-Magnitude Earthquake Hits Indonesia**\
+`A 7.7-magnitude earthquake struck near an island in eastern Indonesia, killing at least 38 and causing several buildings to collapse.`\
+https://www.nytimes.com/video/world/asia/100000011094073/earthquake-indonesia-flores.html
+
 **41 de los mejores restaurantes mexicanos en Estados Unidos**\
 `Desde humeantes platos de birria hasta sopa de mantarraya, la gastronomía de México ofrece un suculento abanico de posibilidades a los comensales estadounidenses.`\
 https://www.nytimes.com/es/2026/08/15/espanol/mejores-restaurantes-mexicanos-estados-unidos.html
