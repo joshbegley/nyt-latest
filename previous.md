@@ -1,3 +1,11 @@
+**Trump Wades Into N.Y. Governor’s Race by Attacking Hochul on Crime**\
+`President Trump tried to boost the chances of Bruce Blakeman, the Republican candidate, calling Gov. Kathy Hochul’s ICE restrictions dangerous.`\
+https://www.nytimes.com/2026/08/14/nyregion/blakeman-trump.html
+
+**Trump Dismisses Reports of Dire Conditions Aboard U.S.S. Lincoln**\
+`President Trump on Friday dismissed reports of deteriorating conditions on the aircraft carrier Abraham Lincoln, which has been deployed for over eight months.`\
+https://www.nytimes.com/video/us/politics/100000011092857/trump-dismisses-reports-of-dire-conditions-aboard-uss-lincoln.html
+
 **Justice Dept. Dismisses Threats Case in Minnesota Days Before Trial**\
 `The government said it could not prove that a man accused of threatening federal agents had committed a crime, adding to the scores of cases in the administration’s deportation efforts that have unraveled.`\
 https://www.nytimes.com/2026/08/14/us/minnesota-threats-federal-agents-immigration.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/08/14/business/google-gemini-ai-schools.html
 **Mary Morello, Free Speech Activist Who Defended Explicit Lyrics, Dies at 102**\
 `An Illinois teacher — and the mother of the rock star Tom Morello — she took on Tipper Gore during culture war skirmishes over warning labels on records.`\
 https://www.nytimes.com/2026/08/14/us/mary-morello-dead.html
-
-**How Baltimore Awakened Stavros Halkias’s Class Consciousness**\
-`In an interview with “Popcast,” the comedian Stavros Halkias reflects on how his upbringing in Baltimore influenced his personal politics.`\
-https://www.nytimes.com/video/podcasts/100000011084170/how-baltimore-awakened-stavros-halkiass-class-consciousness.html
-
-**How One County Profited From Data Centers, As a Backlash Grew**\
-`Loudoun County, Va., has gotten rich hosting more than 250 data centers, allowing it to cut property taxes. Other locales are taking note, even as a nationwide backlash over data centers grows.`\
-https://static01.nyt.com/slideshow/2026/08/14/business/how-one-county-profited-from-data-centers-as-a-backlash-grew.html
 

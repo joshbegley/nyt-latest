@@ -1,3 +1,11 @@
+**Trump Wades Into N.Y. Governor’s Race by Attacking Hochul on Crime**\
+`President Trump tried to boost the chances of Bruce Blakeman, the Republican candidate, calling Gov. Kathy Hochul’s ICE restrictions dangerous.`\
+https://www.nytimes.com/2026/08/14/nyregion/blakeman-trump.html
+
+**Trump Dismisses Reports of Dire Conditions Aboard U.S.S. Lincoln**\
+`President Trump on Friday dismissed reports of deteriorating conditions on the aircraft carrier Abraham Lincoln, which has been deployed for over eight months.`\
+https://www.nytimes.com/video/us/politics/100000011092857/trump-dismisses-reports-of-dire-conditions-aboard-uss-lincoln.html
+
 **Justice Dept. Dismisses Threats Case in Minnesota Days Before Trial**\
 `The government said it could not prove that a man accused of threatening federal agents had committed a crime, adding to the scores of cases in the administration’s deportation efforts that have unraveled.`\
 https://www.nytimes.com/2026/08/14/us/minnesota-threats-federal-agents-immigration.html
