@@ -1,3 +1,11 @@
+**Lala Heads for a State With Older Housing Stock**\
+`Experts warned that many houses on the Big Island weren’t built for hurricane-force wind and rain.`\
+https://www.nytimes.com/2026/08/15/weather/15storm-lala-homes-vulnerability.html
+
+**Take the Edge Off**\
+`Sam Brody’s second Sunday puzzle provides infinite solving pleasure.`\
+https://www.nytimes.com/2026/08/15/crosswords/daily-puzzle-2026-08-16.html
+
 **Elizabeth Street Garden Fans Celebrate After Developers Drop Suit**\
 `The garden in NoLIta has been a symbol of the fight over preservation and development, but Mayor Zohran Mamdani this week abandoned plans to build there.`\
 https://www.nytimes.com/2026/08/15/nyregion/elizabeth-street-garden-lawsuit-dropped.html

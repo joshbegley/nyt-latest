@@ -1,3 +1,11 @@
+**Lala Heads for a State With Older Housing Stock**\
+`Experts warned that many houses on the Big Island weren’t built for hurricane-force wind and rain.`\
+https://www.nytimes.com/2026/08/15/weather/15storm-lala-homes-vulnerability.html
+
+**Take the Edge Off**\
+`Sam Brody’s second Sunday puzzle provides infinite solving pleasure.`\
+https://www.nytimes.com/2026/08/15/crosswords/daily-puzzle-2026-08-16.html
+
 **Elizabeth Street Garden Fans Celebrate After Developers Drop Suit**\
 `The garden in NoLIta has been a symbol of the fight over preservation and development, but Mayor Zohran Mamdani this week abandoned plans to build there.`\
 https://www.nytimes.com/2026/08/15/nyregion/elizabeth-street-garden-lawsuit-dropped.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/15/business/inflation-worker-pay.html
 **Canadian Petition to Expel U.S. Ambassador Pete Hoekstra Takes Off**\
 `Mr. Hoekstra has been President Trump’s faithful messenger in Canada amid a historic low in relations. More than 170,000 Canadians want him gone.`\
 https://www.nytimes.com/2026/08/15/world/canada/hoekstra-ambassador-petition-canada-trump.html
-
-**Prosecutors Examined Firm With Tie to Judge in Trump Hush-Money Trial**\
-`The U.S. attorney in Chicago subpoenaed a fund-raising firm that had been co-owned by the daughter of Judge Juan Merchan, who conducted the trial that led to Donald Trump’s felony conviction.`\
-https://www.nytimes.com/2026/08/15/us/politics/prosecutors-examined-firm-with-tie-to-judge-in-trump-hush-money-trial.html
-
-**How to Protect Your Home While You’re on Vacation**\
-`Store food in sealed containers and fix any leaking faucets or pipes, experts told our columnist, who had her own nightmare upon returning home.`\
-https://www.nytimes.com/2026/08/15/your-money/vacation-protecting-home.html
 
