@@ -99,7 +99,7 @@ https://www.nytimes.com/2026/08/15/world/europe/omey-island-races-horse-racing-i
 https://www.nytimes.com/2026/08/15/well/move/6-exercises-physical-therapists-wish-everyone-did-to-age-well.html
 
 **The Iranian YouTube Show Posing Questions Few Dare Ask**\
-`Azad, a popular online debate program, has tackled topics that push the limits of Iran’s authoritarian system. Some wonder how it has remained on air.`\
+`Azad, a popular online debate program, has tackled topics that push the limits of Iran’s authoritarian system. Some question how it has remained on air.`\
 https://www.nytimes.com/2026/08/15/world/middleeast/iran-youtube-show.html
 
 **Book Review: ‘Days of Miracle and Wonder,’ by Ashley Kahn**\
