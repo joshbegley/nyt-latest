@@ -1,3 +1,11 @@
+**Elizabeth Street Garden Fans Celebrate After Developers Drop Suit**\
+`The garden in NoLIta has been a symbol of the fight over preservation and development, but Mayor Zohran Mamdani this week abandoned plans to build there.`\
+https://www.nytimes.com/2026/08/15/nyregion/elizabeth-street-garden-lawsuit-dropped.html
+
+**Hawaii Braces for Lala After Earlier Flooding**\
+`The state experienced some of its worst flooding in decades during storms earlier this year, the governor said.`\
+https://www.nytimes.com/2026/08/15/weather/hawaii-lala-march-flooding.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/100000011094479/15vid-Hurricane-58948.html
