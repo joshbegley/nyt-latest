@@ -1,3 +1,23 @@
+**Entrenched, Embattled and Defiant, the Taliban Celebrate 5 Years in Power**\
+`The Taliban have Afghanistan in a chokehold that spares no one. But threats are starting to crack their veneer of stability and control.`\
+https://www.nytimes.com/2026/08/15/world/asia/entrenched-embattled-and-defiant-the-taliban-celebrate-5-years-in-power.html
+
+**Quote of the Day: A.I. Cheating Has Swamped Online Classes**\
+`Quotation of the Day for Saturday, August 15, 2026.`\
+https://www.nytimes.com/2026/08/15/pageoneplus/quote-of-the-day-ai-cheating-has-swamped-online-classes.html
+
+**Toll During One Week of Scorching Europe June Heat Wave: 16,000 Deaths**\
+`Deaths spiked in northwest Europe in June, where countries were unprepared for extreme heat that hit much of the continent.`\
+https://www.nytimes.com/interactive/2026/08/15/world/europe/europe-heat-wave-deaths-june-2026.html
+
+**Heat Deaths in a ‘Cold’ Country Are a Warning to the Rest of Europe**\
+`A June heat wave in Belgium and neighboring countries exposed a lethal lack of readiness. That’s a risk as another wave hits Europe.`\
+https://www.nytimes.com/2026/08/15/world/europe/heat-deaths-in-a-cold-country-are-a-warning-to-the-rest-of-europe.html
+
+**Wary of Trump, Europe Seeks Role in Eventual Russia-Ukraine Talks**\
+`French, German and British diplomats are working on a format for future negotiations — even if Russia has shown little interest.`\
+https://www.nytimes.com/2026/08/15/world/europe/wary-of-trump-europe-seeks-role-in-any-russia-ukraine-talks.html
+
 **Man Charged With Hate Crime After Disrupting Worship at Manhattan Synagogue**\
 `Larry Montes, 46, faces assault and hate crime charges after striking a congregation member and a security guard at Central Synagogue, the police said.`\
 https://www.nytimes.com/2026/08/14/nyregion/central-synagogue-shabbat-assault-arrest.html

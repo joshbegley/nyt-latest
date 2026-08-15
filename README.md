@@ -18,8 +18,8 @@ https://www.nytimes.com/2026/08/15/world/europe/heat-deaths-in-a-cold-country-ar
 `French, German and British diplomats are working on a format for future negotiations — even if Russia has shown little interest.`\
 https://www.nytimes.com/2026/08/15/world/europe/wary-of-trump-europe-seeks-role-in-any-russia-ukraine-talks.html
 
-**Man Charged With Hate Crime After Disrupting Worship at Manhattan Synagogue**\
-`Larry Montes, 46, faces assault and hate crime charges after striking a congregation member and a security guard at Central Synagogue, the police said.`\
+**Man Charged With Hate Crime After Disrupting Worship at N.Y.C. Synagogue**\
+`Larry Montes, 46, faces assault and hate crime charges after striking a congregation member and a security guard at Central Synagogue in Manhattan, the police said.`\
 https://www.nytimes.com/2026/08/14/nyregion/central-synagogue-shabbat-assault-arrest.html
 
 **Appeal**\

@@ -1,3 +1,23 @@
+**Entrenched, Embattled and Defiant, the Taliban Celebrate 5 Years in Power**\
+`The Taliban have Afghanistan in a chokehold that spares no one. But threats are starting to crack their veneer of stability and control.`\
+https://www.nytimes.com/2026/08/15/world/asia/entrenched-embattled-and-defiant-the-taliban-celebrate-5-years-in-power.html
+
+**Quote of the Day: A.I. Cheating Has Swamped Online Classes**\
+`Quotation of the Day for Saturday, August 15, 2026.`\
+https://www.nytimes.com/2026/08/15/pageoneplus/quote-of-the-day-ai-cheating-has-swamped-online-classes.html
+
+**Toll During One Week of Scorching Europe June Heat Wave: 16,000 Deaths**\
+`Deaths spiked in northwest Europe in June, where countries were unprepared for extreme heat that hit much of the continent.`\
+https://www.nytimes.com/interactive/2026/08/15/world/europe/europe-heat-wave-deaths-june-2026.html
+
+**Heat Deaths in a ‘Cold’ Country Are a Warning to the Rest of Europe**\
+`A June heat wave in Belgium and neighboring countries exposed a lethal lack of readiness. That’s a risk as another wave hits Europe.`\
+https://www.nytimes.com/2026/08/15/world/europe/heat-deaths-in-a-cold-country-are-a-warning-to-the-rest-of-europe.html
+
+**Wary of Trump, Europe Seeks Role in Eventual Russia-Ukraine Talks**\
+`French, German and British diplomats are working on a format for future negotiations — even if Russia has shown little interest.`\
+https://www.nytimes.com/2026/08/15/world/europe/wary-of-trump-europe-seeks-role-in-any-russia-ukraine-talks.html
+
 **Man Charged With Hate Crime After Disrupting Worship at Manhattan Synagogue**\
 `Larry Montes, 46, faces assault and hate crime charges after striking a congregation member and a security guard at Central Synagogue, the police said.`\
 https://www.nytimes.com/2026/08/14/nyregion/central-synagogue-shabbat-assault-arrest.html
@@ -173,24 +193,4 @@ https://www.nytimes.com/video/opinion/100000011085683/an-ai-bot-is-judging-your-
 **Hiroshi Okuda, Disrupter Who Revived Toyota in the 1990s, Dies at 93**\
 `As the car company’s president, he made decisions quickly and shook things up, expanding overseas manufacturing and introducing the Prius, a milestone in automotive history.`\
 https://www.nytimes.com/2026/08/14/automobiles/hiroshi-okuda-dead.html
-
-**On the Day Mangione Admits Guilt, a Noticeably Smaller Crowd Gathers**\
-`The family and friends of his victim, Brian Thompson, were inside the courthouse. Outside, the curious and supporters of Luigi Mangione had started gathering in the morning.`\
-https://www.nytimes.com/2026/08/14/nyregion/mangione-scene-courthouse.html
-
-**How The New York Times Reported on Trump’s Air Force One Ruse in Turkey**\
-`President Trump’s Air Force One subterfuge duped potential adversaries — and the press. Here’s what happened.`\
-https://www.nytimes.com/2026/08/14/insider/trump-air-force-one-decoy-reporters.html
-
-**A Prominent Mexican Politician Says U.S. Revoked His Visa**\
-`Andrés Manuel López Beltrán, a former president’s son, lashed out at the Trump administration after he said it canceled his visa, another flashpoint in the tense U.S.-Mexico relationship.`\
-https://www.nytimes.com/2026/08/14/world/americas/mexico-visas-lopez-beltran.html
-
-**Alaska Democrat Mary Peltola Pushes Back Against Endorsement From Kamala Harris**\
-`The campaign of Mary Peltola said it was focused on issues important to Alaska and did not approve a message of support from Ms. Harris.`\
-https://www.nytimes.com/2026/08/14/us/politics/kamala-harris-mary-peltola-endorsement.html
-
-**Lawsuit Accuses Selena Gomez of Defrauding Investors in Mental Health Site**\
-`The actor, singer and beauty mogul founded Wondermind, a mental health platform, with her mother. Investors put in more than $1 million in the venture, which “quietly collapsed,” the suit said.`\
-https://www.nytimes.com/2026/08/14/us/selena-gomez-wondermind-lawsuit-fraud.html
 
