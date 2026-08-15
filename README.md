@@ -62,7 +62,7 @@ https://www.nytimes.com/2026/08/15/crosswords/strands-sidekick-896.html
 `Scroll down for hints and conversation about the puzzle for Sunday, Aug. 16, 2026.`\
 https://www.nytimes.com/2026/08/15/crosswords/wordle-review-1884.html
 
-**Matthew Rhys Is on a Tear. If Only He Knew It.**\
+**The Charming, Amusing, Surprisingly Low-Confidence Matthew Rhys**\
 `The “Widow’s Bay” star on his two Emmy nominations, his penchant for going dark and his wobbly self-esteem.`\
 https://www.nytimes.com/2026/08/15/magazine/matthew-rhys-interview.html
 
