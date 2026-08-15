@@ -47,7 +47,7 @@ https://www.nytimes.com/es/2026/08/15/espanol/estilos-de-vida/envidia-redes-soci
 https://www.nytimes.com/2026/08/15/business/dealbook/wearables-healthcare.html
 
 **Israeli Strikes in Lebanon Kill 11, Health Officials Say**\
-`The Lebanese health ministry said several children were killed in a strike overnight, one of the deadliest attacks in months. Israel’s military said it was targeting Hezbollah infrastructure.`\
+`The Lebanese health ministry said children were among those killed. The Israeli prime minister’s office said Hezbollah had struck first, injuring three Israeli soldiers.`\
 https://www.nytimes.com/2026/08/15/world/middleeast/israel-strikes-lebanon-ansar.html
 
 **He Tried to Kill My Father. Now He Wants to Rewrite History.**\

@@ -1,3 +1,7 @@
+**Israeli Strikes in Lebanon Kill 11, Health Officials Say**\
+`The Lebanese health ministry said children were among those killed. The Israeli prime minister’s office said Hezbollah had struck first, injuring three Israeli soldiers.`\
+https://www.nytimes.com/2026/08/15/world/middleeast/israel-strikes-lebanon-ansar.html
+
 **Luigi Mangione Faces Protracted Legal Battle in State Case After Plea**\
 `Mr. Mangione must still be sentenced in federal court. And his lawyers are seeking to have a state case thrown out before the trial starts next month.`\
 https://www.nytimes.com/2026/08/15/nyregion/luigi-mangione-brian-thompson-guilty.html
