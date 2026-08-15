@@ -1,3 +1,7 @@
+**Moldavia es clave para el objetivo de Putin de destruir la OTAN. Esta es la razón**\
+`En la pequeña nación, Moscú pagó a sacerdotes ortodoxos, llevó a cabo un esquema de compra de votos y estableció campamentos de entrenamiento sobre interferencia electoral, todo en un esfuerzo por descarrilar al gobierno de tendencia occidental.`\
+https://www.nytimes.com/es/2026/08/15/espanol/mundo/moldavia-influencia-rusia.html
+
 **Deadly 7.7-Magnitude Earthquake Hits Indonesia**\
 `A 7.7-magnitude earthquake struck near an island in eastern Indonesia, killing at least 20 and collapsing several buildings.`\
 https://www.nytimes.com/video/world/asia/100000011094073/earthquake-indonesia-flores.html
