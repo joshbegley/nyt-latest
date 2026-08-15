@@ -1,3 +1,7 @@
+**Violet Hensley Dies at 109; Ozarks Fiddler Made Opry Debut at 99**\
+`She performed old-time mountain music at the Silver Dollar City theme park in Branson, Mo., for more than 50 years and appeared on “The Beverly Hillbillies.”`\
+https://www.nytimes.com/2026/08/15/arts/music/violet-hensley-dead.html
+
 **‘I Will be Making This on Repeat Until I Can’t Look at Eggs or Tomatoes Anymore’**\
 `That’s just one happy reader comment on this easy new cumin tomato salad with jammy eggs.`\
 https://www.nytimes.com/2026/08/15/dining/i-will-be-making-this-on-repeat-until-i-cant-look-at-eggs-or-tomatoes-anymore.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/15/arts/music/salzburg-festival-markus-hinterhau
 **6 Exercises Physical Therapists Wish Everyone Did to Age Well**\
 `Try these simple movements to stay strong and limber.`\
 https://www.nytimes.com/2026/08/15/well/move/6-exercises-physical-therapists-wish-everyone-did-to-age-well.html
-
-**The Iranian YouTube Show Posing Questions Few Dare Ask**\
-`Azad, a popular online debate program, has tackled topics that push the limits of Iran’s authoritarian system. Some question how it has remained on air.`\
-https://www.nytimes.com/2026/08/15/world/middleeast/iran-youtube-show.html
 
