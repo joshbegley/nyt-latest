@@ -1,3 +1,7 @@
+**Man Taken Into Custody After Disrupting Worship at Manhattan Synagogue**\
+`The man struck a member of the congregation and a security guard at Central Synagogue while he was being escorted out, the police said. A motive has not been determined.`\
+https://www.nytimes.com/2026/08/14/nyregion/central-synagogue-shabbat-assault-arrest.html
+
 **Appeal**\
 `Blake Slonecker’s latest Saturday grid is a heavy hitter that’s light on its feet.`\
 https://www.nytimes.com/2026/08/14/crosswords/daily-puzzle-2026-08-15.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/14/us/politics/kamala-harris-mary-peltola-endors
 **Lawsuit Accuses Selena Gomez of Defrauding Investors in Mental Health Site**\
 `The actor, singer and beauty mogul founded Wondermind, a mental health platform, with her mother. Investors put in more than $1 million in the venture, which “quietly collapsed,” the suit said.`\
 https://www.nytimes.com/2026/08/14/us/selena-gomez-wondermind-lawsuit-fraud.html
-
-**DOJ Charges Kentucky Woman in World War II Memorial Vandalism Case**\
-`Two felony charges have been filed against a Kentucky woman after spray paint was seen on the memorial in the capital.`\
-https://www.nytimes.com/2026/08/14/us/politics/world-war-2-memorial-vandalism.html
 
