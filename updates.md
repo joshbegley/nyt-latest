@@ -1,3 +1,7 @@
+**The Iranian YouTube Show Posing Questions Few Dare Ask**\
+`Azad, a popular online debate program, has tackled topics that push the limits of Iran’s authoritarian system. Some question how it has remained on air.`\
+https://www.nytimes.com/2026/08/15/world/middleeast/iran-youtube-show.html
+
 **Matthew Rhys Is on a Tear. If Only He Knew It.**\
 `The “Widow’s Bay” star on his two Emmy nominations, his penchant for going dark and his wobbly self-esteem.`\
 https://www.nytimes.com/2026/08/15/magazine/matthew-rhys-interview.html
