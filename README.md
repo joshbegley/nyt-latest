@@ -1,3 +1,15 @@
+**¿Ya es seguro comer lechuga?**\
+`Los expertos analizan si la variedad iceberg y otros productos agrícolas frescos siguen siendo un riesgo mientras va disminuyendo el mayor brote de ciclosporiasis en la historia de EE. UU.`\
+https://www.nytimes.com/es/2026/08/15/espanol/estados-unidos/comer-lechuga-seguro-cyclospora.html
+
+**N.Y.C. Congestion Pricing Has Little Effect on Air Quality, Study Finds**\
+`The report from New York City’s Health Department found that pollution improved slightly in Manhattan and did not worsen in other boroughs.`\
+https://www.nytimes.com/2026/08/15/nyregion/nyc-congestion-pricing-air-pollution.html
+
+**NYT Spelling Bee Answers for August 15, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/08/15/crosswords/spelling-bee-forum.html
+
 **At Least 20 Dead as 7.7-Magnitude Earthquake Rocks Indonesia**\
 `The temblor was one of the strongest the area had experienced in decades, an official said.`\
 https://www.nytimes.com/2026/08/15/world/asia/earthquake-indonesia-flores-tsunami.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/es/2026/08/14/espanol/mundo/lopez-beltran-amlo-visa-esta
 **Luigi Mangione admite haber matado al ejecutivo de seguros abatido en Manhattan**\
 `En una audiencia en la que se declaró culpable de delitos federales, Mangione dijo que antes de matar al director ejecutivo de UnitedHealthcare soportó años de dolor durante su trato con la industria de seguros.`\
 https://www.nytimes.com/es/2026/08/14/espanol/estados-unidos/luigi-mangione-culpable.html
-
-**Jason Arday, Cambridge Professor Accused of Plagiarism, Is Found Dead**\
-`Mr. Arday resigned last week after the university announced an investigation into allegations of plagiarism and fabrication.`\
-https://www.nytimes.com/2026/08/14/world/europe/jason-arday-dead.html
-
-**The 5 Congress Members Whose Families Trade the Most Stocks**\
-`Some lawmakers and their families have traded millions of dollars worth of stocks since the start of this term.`\
-https://www.nytimes.com/2026/08/14/us/politics/biggest-stock-traders-congress.html
-
-**Stock Trading in Congress Becomes an Attack Line in Midterm Campaigns**\
-`Republican and Democratic challengers are both using the issue to attack members of Congress as unethical, seizing on a common practice that enrages voters.`\
-https://www.nytimes.com/2026/08/14/us/politics/stock-trading-congress.html
 
