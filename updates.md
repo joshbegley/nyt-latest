@@ -1,3 +1,15 @@
+**The Last Hurricane to Hit Hawaii Became a Movie Star**\
+`Hurricane Iniki devastated Kauai, causing at least seven deaths and $1.8 billion in damage. It also got a cameo in a Spielberg movie.`\
+https://www.nytimes.com/2026/08/15/weather/hurricane-iniki-hawaii-history-lala.html
+
+**$10 Million in Gold Found Buried Under Former Brewery in Belgium**\
+`A construction worker’s drill struck gold during a renovation project in East Flanders, setting off a search for the owners of the stashed fortune.`\
+https://www.nytimes.com/2026/08/15/world/europe/10-million-in-gold-found-under-former-brewery-in-belgium.html
+
+**Iran Says Qatar Captured Its Pilots Months Ago, a Claim Qatar Rejects**\
+`Iran said the airmen have been held since March 2 when their fighter jets were shot down. The Qatari government denies detaining any Iranian pilots.`\
+https://www.nytimes.com/2026/08/15/world/middleeast/iran-missing-pilots-qatar.html
+
 **Iran Says Qatar Captured Its Pilots Months Ago, a Claim Qatar Rejects**\
 `Iran said the airmen have been held since March 2 when their fighter jets were shot down. The Qatari government denied the claims.`\
 https://www.nytimes.com/2026/08/15/world/middleeast/iran-missing-pilots-qatar.html

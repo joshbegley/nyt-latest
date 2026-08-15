@@ -4,7 +4,7 @@ https://www.nytimes.com/2026/08/15/weather/hurricane-iniki-hawaii-history-lala.h
 
 **$10 Million in Gold Found Buried Under Former Brewery in Belgium**\
 `A construction worker’s drill struck gold during a renovation project in East Flanders, setting off a search for the owners of the stashed fortune.`\
-https://www.nytimes.com/2026/08/15/world/europe/10-million-in-gold-found-under-former-brewery-in-belgium.html
+https://www.nytimes.com/2026/08/15/world/europe/gold-bars-coins-belgium.html
 
 **Central Synagogue Attack Rattles Jewish New Yorkers**\
 `The police said a man on Friday night struck a congregant at the prominent Upper East Side synagogue, as Jews in the city contend with threats, fears and internal divides.`\
