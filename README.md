@@ -174,7 +174,7 @@ https://www.nytimes.com/2026/08/15/business/inflation-worker-pay.html
 `Mr. Hoekstra has been President Trump’s faithful messenger in Canada amid a historic low in relations. More than 170,000 Canadians want him gone.`\
 https://www.nytimes.com/2026/08/15/world/canada/hoekstra-ambassador-petition-canada-trump.html
 
-**Prosecutors Examined Firm With Tie to Judge in Trump Hush Money Trial**\
+**Prosecutors Examined Firm With Tie to Judge in Trump Hush-Money Trial**\
 `The U.S. attorney in Chicago subpoenaed a fund-raising firm that had been co-owned by the daughter of Judge Juan Merchan, who conducted the trial that led to Donald Trump’s felony conviction.`\
 https://www.nytimes.com/2026/08/15/us/politics/prosecutors-examined-firm-with-tie-to-judge-in-trump-hush-money-trial.html
 
