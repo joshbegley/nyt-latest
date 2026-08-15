@@ -1,3 +1,7 @@
+**Appeal**\
+`Blake Slonecker’s latest Saturday grid is a heavy hitter that’s light on its feet.`\
+https://www.nytimes.com/2026/08/14/crosswords/daily-puzzle-2026-08-15.html
+
 **Stray Voltage Played Role in Deadly Horse Carriage Runaway, Family Says**\
 `In legal filings, the parents of Romanch Mahajan, who died during a carriage ride, say stray electrical current was a factor in a horse’s getting spooked and running off.`\
 https://www.nytimes.com/2026/08/14/nyregion/horse-carriage-ban-central-park-voltage.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/14/us/selena-gomez-wondermind-lawsuit-fraud.html
 **DOJ Charges Kentucky Woman in World War II Memorial Vandalism Case**\
 `Two felony charges have been filed against a Kentucky woman after spray paint was seen on the memorial in the capital.`\
 https://www.nytimes.com/2026/08/14/us/politics/world-war-2-memorial-vandalism.html
-
-**Google Turns On Gemini A.I. for Students Using Its Classroom App**\
-`Google enabled A.I. features for K-12 schools that have allowed student access to Gemini. Until this week, Google automatically enabled Gemini in Classroom only for students 18 or older.`\
-https://www.nytimes.com/2026/08/14/business/google-gemini-ai-schools.html
 
