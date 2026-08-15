@@ -1,3 +1,7 @@
+**At Least 20 Dead as 7.7-Magnitude Earthquake Rocks Indonesia**\
+`The temblor was one of the strongest the area had experienced in decades, an official said.`\
+https://www.nytimes.com/2026/08/15/world/asia/earthquake-indonesia-flores-tsunami.html
+
 **Mary Heilmann, Painter of Vividly Wobbly Abstractions, Dies at 86**\
 `An emblem of the obstacles faced by women artists of her generation, she was 67 when her first museum retrospective opened to rave reviews in 2007.`\
 https://www.nytimes.com/2026/08/15/arts/design/mary-heilmann-dead.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/14/us/politics/biggest-stock-traders-congress.ht
 **Stock Trading in Congress Becomes an Attack Line in Midterm Campaigns**\
 `Republican and Democratic challengers are both using the issue to attack members of Congress as unethical, seizing on a common practice that enrages voters.`\
 https://www.nytimes.com/2026/08/14/us/politics/stock-trading-congress.html
-
-**An A.I. Bot is Judging Your Résumé**\
-`Raise your hand if you’ve been personally victimized by an A.I. job recruiter. Finding a job has become more difficult in part because many corporations are now using bots to evaluate résumés. The Opinion writer Jessica Grose explains why job hunting has become about gaming A.I. recruiters, and why the solution might just be going analog.`\
-https://www.nytimes.com/video/opinion/100000011085683/an-ai-bot-is-judging-your-resume.html
 
