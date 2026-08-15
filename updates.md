@@ -1,3 +1,11 @@
+**‘Slayer Statute’ Blocks Nick Reiner From Trust Fund, Its Steward Says**\
+`Mr. Reiner wants access to a $1.6 million trust for his legal defense. Because he is accused of killing his parents, the trustee says he can’t have the money.`\
+https://www.nytimes.com/2026/08/14/movies/nick-reiner-slayer-statute-trust-fund-murder-parents.html
+
+**Colorado Was Targeted as Trump Fumed Over Election Denier, Email Shows**\
+`The state has accused the government in a lawsuit of retaliating after the conviction of Tina Peters, a Trump supporter. An administration official convened a group to discuss “immediate actions.”`\
+https://www.nytimes.com/2026/08/14/us/colorado-trump-tina-peters.html
+
 **Series of Michigan Shootings Leave 6 Dead, Including Gunman**\
 `The gunman, Chad Hickman, was found dead in a wooded area near Whitlock Lake in Caldwell Township, the authorities said. A motive for the shootings was not immediately known.`\
 https://www.nytimes.com/2026/08/14/us/shooting-missaukee-county-michigan.html
