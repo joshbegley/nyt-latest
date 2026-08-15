@@ -1,3 +1,11 @@
+**He Tried to Kill My Father. Now He Wants to Rewrite History.**\
+`This is not what contrition looks like.`\
+https://www.nytimes.com/2026/08/15/opinion/ronald-reagan-john-hinckley-jr.html
+
+**Republicans Are Trying to Hide These Health Care Cuts**\
+`Republicans are taking deliberate steps to make health care less affordable.`\
+https://www.nytimes.com/2026/08/15/opinion/trump-health-care-cuts.html
+
 **Israeli Strikes in Lebanon Kill 9, Health Officials Say**\
 `The Lebanese health ministry said several children were killed in a strike overnight, one of the deadliest attacks in months. Israel’s military said it was targeting Hezbollah infrastructure.`\
 https://www.nytimes.com/2026/08/15/world/middleeast/israel-strikes-lebanon-ansar.html
