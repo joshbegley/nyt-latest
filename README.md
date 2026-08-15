@@ -2,7 +2,7 @@
 `The Lebanese health ministry said several children were killed in a strike overnight, one of the deadliest attacks in months. Israel’s military said it was targeting Hezbollah infrastructure.`\
 https://www.nytimes.com/2026/08/15/world/middleeast/israel-strikes-lebanon-ansar.html
 
-**The Man Who Shot My Father Thinks This Is a Great Moment for Self-Promotion**\
+**He Tried to Kill My Father. Now He Wants to Rewrite History.**\
 `This is not what contrition looks like.`\
 https://www.nytimes.com/2026/08/15/opinion/ronald-reagan-john-hinckley-jr.html
 
@@ -26,7 +26,7 @@ https://www.nytimes.com/2026/08/15/opinion/odyssey-morality.html
 `The Trump administration is squeezing struggling Americans with benefit cuts, but ordinary people are stepping up to help.`\
 https://www.nytimes.com/2026/08/15/opinion/poverty-america-arkansas.html
 
-**Trump Is Making Health Care Even Less Affordable**\
+**Republicans Are Trying to Hide These Health Care Cuts**\
 `Republicans are taking deliberate steps to make health care less affordable.`\
 https://www.nytimes.com/2026/08/15/opinion/trump-health-care-cuts.html
 
