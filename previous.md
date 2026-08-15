@@ -3,7 +3,7 @@
 https://www.nytimes.com/es/2026/08/15/espanol/mundo/moldavia-influencia-rusia.html
 
 **Deadly 7.7-Magnitude Earthquake Hits Indonesia**\
-`A 7.7-magnitude earthquake struck near an island in eastern Indonesia, killing at least 20 and collapsing several buildings.`\
+`A 7.7-magnitude earthquake struck near an island in eastern Indonesia, killing at least 20 and causing several buildings to collapse.`\
 https://www.nytimes.com/video/world/asia/100000011094073/earthquake-indonesia-flores.html
 
 **¿Ya es seguro comer lechuga?**\
