@@ -1,3 +1,7 @@
+**Iran Says Qatar Captured Three of Its Pilots Early in War With U.S.**\
+`Iran said the airmen have been held since March 2 when their fighter jets were shot down. The Qatari government has not commented.`\
+https://www.nytimes.com/2026/08/15/world/middleeast/iran-missing-pilots-qatar.html
+
 **Travelers Hunker Down as Tropical Storm Lala Approaches Hawaii’s Big Island**\
 `The storm, expected to become a hurricane, has prompted some travelers to leave hotels early, while others are waiting out the wind and rain.`\
 https://www.nytimes.com/2026/08/15/travel/tropical-storm-lala-hurricane-hawaii-evacuation.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/15/books/review/days-of-miracle-and-wonder-ashle
 **Where to Eat and Drink at a Barcelona Bar Like a Local**\
 `The classic bars, known as bodegas, are where locals in the Catalan capital take their rituals seriously. If you know where to look, you can join them.`\
 https://www.nytimes.com/2026/08/15/travel/barcelona-bars-bodegas.html
-
-**There Are Over 1 Million N.Y.C. Street Signs. Here’s How They Are Made.**\
-`From Cornelia Street to the Brooklyn-Queens Expressway, the 46 workers in this Queens building bring to life the words and symbols that guide the city.`\
-https://www.nytimes.com/2026/08/15/nyregion/nyc-street-sign-shop.html
 

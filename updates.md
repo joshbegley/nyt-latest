@@ -1,3 +1,7 @@
+**Canadian Petition to Expel U.S. Ambassador Pete Hoekstra Takes Off**\
+`Mr. Hoekstra has been President Trump’s faithful messenger in Canada amid a historic low in relations. More than 170,000 Canadians want him gone.`\
+https://www.nytimes.com/2026/08/15/world/canada/hoekstra-ambassador-petition-canada-trump.html
+
 **Travelers Hunker Down as Tropical Storm Lala Approaches Hawaii’s Big Island**\
 `The storm, expected to become a hurricane, has prompted some travelers to leave hotels early, while others are waiting out the wind and rain.`\
 https://www.nytimes.com/2026/08/15/travel/tropical-storm-lala-hurricane-hawaii-evacuation.html

@@ -111,7 +111,7 @@ https://www.nytimes.com/2026/08/15/pageoneplus/corrections-aug-15-2026.html
 https://www.nytimes.com/2026/08/15/business/inflation-worker-pay.html
 
 **Canadian Petition to Expel U.S. Ambassador Pete Hoekstra Takes Off**\
-`Mr. Hoekstra has been President Trump’s faithful messenger in Canada amid a historic low in relations. More than 160,000 Canadians want him gone.`\
+`Mr. Hoekstra has been President Trump’s faithful messenger in Canada amid a historic low in relations. More than 170,000 Canadians want him gone.`\
 https://www.nytimes.com/2026/08/15/world/canada/hoekstra-ambassador-petition-canada-trump.html
 
 **Prosecutors Examined Firm With Tie to Judge in Trump Hush Money Trial**\
