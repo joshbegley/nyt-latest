@@ -1,4 +1,4 @@
-**Hawaii’s Older Housing Stock Braces for Lala**\
+**Lala Heads for a State With Older Housing Stock**\
 `Experts warned that many houses on the Big Island weren’t built for hurricane-force wind and rain.`\
 https://www.nytimes.com/2026/08/15/weather/15storm-lala-homes-vulnerability.html
 
