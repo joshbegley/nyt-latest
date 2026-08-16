@@ -1,3 +1,15 @@
+**Live Updates: Storm Lala Lashes Hawaii’s Big Island but Avoids Landfall**\
+`Lala was downgraded from a Category 1 hurricane to a tropical storm early Sunday, but forecasters warned that damage could still be significant. A flash flood warning was in effect on the Big Island.`\
+https://www.nytimes.com/live/2026/08/16/weather/lala-tropical-storm-hurricane-hawaii
+
+**AIPAC Targets Progressive Democrat in Race to Replace Swalwell**\
+`Two Democrats are in a runoff to replace Eric Swalwell, who resigned from Congress in April. The American Israel Public Affairs Committee is spending heavily against a progressive candidate.`\
+https://www.nytimes.com/2026/08/16/us/swalwell-seat-aisha-wahab-aipac.html
+
+**Years of Trump Support Came Undone in 15 Minutes in an Airport.**\
+`The case represents a new front in President Trump’s mass deportation drive: arrests at airports of people who have active immigration cases and no criminal history.`\
+https://www.nytimes.com/2026/08/16/us/trump-immigration-crackdown.html
+
 **Aircraft That Typically Track Atlantic Storms Are Flying Into Lala**\
 `With Atlantic activity down this season, rare Pacific missions are being undertaken to better understand the storm skirting Hawaii.`\
 https://www.nytimes.com/2026/08/16/weather/hawaii-lala-tropical-storm-hurricane-hunters.html
