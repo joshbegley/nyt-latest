@@ -1,3 +1,11 @@
+**Una copa con las últimas monjas de Nueva York**\
+`A medida que desaparecen los conventos, las hermanas afrontan juntas el final de sus vidas y han trasladado la fiesta a una residencia para adultos mayores en las afueras de la ciudad.`\
+https://www.nytimes.com/es/2026/08/16/espanol/estados-unidos/ultimas-monjas-nueva-york.html
+
+**Algunos de los mejores ‘thrillers’ del siglo XXI también son grandes películas y series**\
+`De “Big Little Lies” a “You”, nuestra lista de grandes thrillers psicológicos, novelas de espionaje y ficción criminal ha inspirado un montón de grandes adaptaciones.`\
+https://www.nytimes.com/es/2026/08/16/espanol/cultura/mejores-thrillers-siglo-xxi-peliculas-series.html
+
 **Las mujeres afganas han sido borradas de la vida pública en 5 años de gobierno talibán**\
 `A cinco años de gobierno de los talibanes, unos 20 millones de mujeres y niñas han quedado al margen de la educación, el trabajo, los viajes y la vida independiente.`\
 https://www.nytimes.com/es/2026/08/16/espanol/mundo/mujeres-afganas-gobierno-taliban.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/08/15/world/middleeast/israel-strikes-lebanon-ansar
 **He Tried to Kill My Father. Now He Wants to Rewrite History.**\
 `This is not what contrition looks like.`\
 https://www.nytimes.com/2026/08/15/opinion/ronald-reagan-john-hinckley-jr.html
-
-**How Are the Democrats’ Midterm Dreams Shaping Up?**\
-`Democratic divisions, polling misses and Ocasio-Cortez’s egg freezing: the week in politics.`\
-https://www.nytimes.com/2026/08/15/opinion/democrats-midterms-progress.html
-
-**David Ellison’s Plan to Move Hollywood to Nashville**\
-`The dream of a red-state Hollywood.`\
-https://www.nytimes.com/2026/08/15/opinion/culture/ellison-nashville-paramount-hollywood.html
 
 **Live Updates: Hurricane Lala Lashes Hawaii’s Big Island but Avoids Landfall**\
 `The storm brought damaging winds and widespread power outages as its eyewall grazed the Big Island’s southern tip. The storm’s eye remained offshore as it began moving west toward the rest of the island chain.`\
