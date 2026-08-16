@@ -1,3 +1,7 @@
+**Cholera Outbreak Sickens More Than 90 in Myanmar’s Biggest City**\
+`Civil war and military rule have weakened Myanmar’s health care system, while heavy monsoon rains have increased the risk of waterborne disease.`\
+https://www.nytimes.com/2026/08/16/world/asia/cholera-outbreak-yangon-myanmar.html
+
 **Fue una gran estafa mientras duró**\
 `El acceso preferencial al mercado estadounidense no es una licencia para blanquear las exportaciones de terceros.`\
 https://www.nytimes.com/es/2026/08/16/espanol/opinion/transbordo-aranceles-exportaciones.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/es/2026/08/15/espanol/estilos-de-vida/envidia-redes-soci
 **The Cutthroat Wearables Battle Is About More Than Tracking Your Fitness**\
 `Google, Apple, Samsung and upstarts like Oura are racing to integrate data from their wearable devices into the health care system.`\
 https://www.nytimes.com/2026/08/15/business/dealbook/wearables-healthcare.html
-
-**Israeli Strikes in Lebanon Kill 11, Health Officials Say**\
-`The Lebanese health ministry said children were among those killed. The Israeli prime minister’s office said Hezbollah had struck first, injuring three Israeli soldiers.`\
-https://www.nytimes.com/2026/08/15/world/middleeast/israel-strikes-lebanon-ansar.html
 
 **Live Updates: Hurricane Lala Lashes Hawaii’s Big Island but Avoids Landfall**\
 `The storm brought damaging winds and widespread power outages as its eyewall grazed the Big Island’s southern tip. The storm’s eye remained offshore as it began moving west toward the rest of the island chain.`\
