@@ -94,7 +94,7 @@ https://www.nytimes.com/2026/08/16/arts/television/lanterns-hbo-dc-comics-tv-gre
 `Artem Murdid, his mother and his girlfriend are accused of terrorism. They say they did nothing wrong.`\
 https://www.nytimes.com/2026/08/16/world/europe/russia-detained-ukrainians-war-murdid.html
 
-**He Was a MAGA Patriot. ICE Took His Wife Away.**\
+**Years of Trump Support Came Undone in 15 Minutes in an Airport.**\
 `The case represents a new front in President Trump’s mass deportation drive: arrests at airports of people who have active immigration cases and no criminal history.`\
 https://www.nytimes.com/2026/08/16/us/trump-immigration-crackdown.html
 
