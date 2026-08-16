@@ -183,7 +183,7 @@ https://www.nytimes.com/2026/08/15/magazine/matthew-rhys-interview.html
 https://www.nytimes.com/es/2026/08/15/espanol/mejores-restaurantes-mexicanos-estados-unidos.html
 
 **Sports Team Sale Prices Keep Hitting New Highs**\
-`This week’s deal for the Los Angeles Lakers, which valued the team at a record $12.5 billion, was the latest in a pattern of skyrocketing prices.`\
+`The deal for the Los Angeles Lakers valued the team at a record $12.5 billion, eclipsing the $10 billion paid for the franchise just last year.`\
 https://www.nytimes.com/2026/08/15/business/sports-team-values-billionaires.html
 
 **¿Por qué se toma sopa caliente cuando hace calor?**\
