@@ -1,3 +1,7 @@
+**Trump Orders Pentagon to Curtail Military Exercises With Ally South Korea**\
+`In a social media post, the president scolded South Korea for not helping denuclearize Iran, and also praised North Korea and its leader.`\
+https://www.nytimes.com/2026/08/16/us/politics/trump-south-korea-military-exercises.html
+
 **Liechtenstein Changes Its Law to Allow Women to Ascend the Throne**\
 `The move puts the principality in the majority among nearby nations with royal families.`\
 https://www.nytimes.com/2026/08/16/world/europe/liechtenstein-royal-succession-women.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/16/us/elections/alaska-governor-primary.html
 **As A.I. Data Centers Spread, Pressure Mounts to Share Profits**\
 `Policymakers around the country are maneuvering to ensure that tech giants aren’t the only ones who stand to benefit.`\
 https://www.nytimes.com/2026/08/16/business/ai-data-centers.html
-
-**How Republicans Embraced Brandon Herrera, a Texas Republican Candidate and Gun Influencer**\
-`Brandon Herrera, long an anti-establishment outsider, is trying to help the party defend a red-leaning House district in West Texas. It’s proving messy.`\
-https://www.nytimes.com/2026/08/16/us/politics/herrera-trump-republican-texas-house.html
 
