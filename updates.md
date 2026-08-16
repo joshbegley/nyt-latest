@@ -1,3 +1,7 @@
+**Cholera Outbreak Sickens More Than 90 in Myanmar’s Biggest City**\
+`Civil war and military rule have weakened Myanmar’s health care system, while heavy monsoon rains have increased the risk of waterborne disease.`\
+https://www.nytimes.com/2026/08/16/world/asia/cholera-outbreak-yangon-myanmar.html
+
 **Fue una gran estafa mientras duró**\
 `El acceso preferencial al mercado estadounidense no es una licencia para blanquear las exportaciones de terceros.`\
 https://www.nytimes.com/es/2026/08/16/espanol/opinion/transbordo-aranceles-exportaciones.html
