@@ -1,3 +1,15 @@
+**Easy Dinners for a Not-Easy Time of Year**\
+`Back-to-school season can be stressful. These five dinners are not.`\
+https://www.nytimes.com/2026/08/16/dining/easy-dinners-for-a-not-easy-time-of-year.html
+
+**He’s Awkward. He’s Sticky. He’s the Best Superhero.**\
+`If you want or need any superhero right now, you’re better off with Spider-Man.`\
+https://www.nytimes.com/2026/08/16/opinion/spider-man-brand-new-day-superhero.html
+
+**A Civil Debate About the Civil War**\
+`Readers respond to an Opinion guest essay about the various names given to the Civil War. Also: The Red Scare campaign ploy.`\
+https://www.nytimes.com/2026/08/16/opinion/civil-war-names.html
+
 **Live Updates: Storm Lala Lashes Hawaii’s Big Island but Avoids Landfall**\
 `Lala was downgraded from a Category 1 hurricane to a tropical storm early Sunday, but forecasters warned that damage could still be significant. A flash flood warning was in effect on the Big Island.`\
 https://www.nytimes.com/live/2026/08/16/weather/lala-tropical-storm-hurricane-hawaii
