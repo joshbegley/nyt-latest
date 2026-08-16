@@ -1,3 +1,23 @@
+**Las mujeres afganas han sido borradas de la vida pública en 5 años de gobierno talibán**\
+`A cinco años de gobierno de los talibanes, unos 20 millones de mujeres y niñas han quedado al margen de la educación, el trabajo, los viajes y la vida independiente.`\
+https://www.nytimes.com/es/2026/08/16/espanol/mundo/mujeres-afganas-gobierno-taliban.html
+
+**It’s a Crowded Place With Some of the City’s Trickiest Traffic**\
+`A fatal accident has drawn attention to New York Harbor, a popular destination where not everyone necessarily knows the rules — or cares to follow them.`\
+https://www.nytimes.com/2026/08/16/nyregion/new-york-harbor-safety.html
+
+**Ralph Nader, Unsurprisingly, Still Wants You to Pay Attention**\
+`Mr. Nader, 92, is no longer in the public eye, but he has not stopped fighting for whatever needs fighting, whether people are listening or not.`\
+https://www.nytimes.com/2026/08/16/nyregion/ralph-nader-stock-transfer-tax.html
+
+**‘As We Pulled Into the Station, We Each Took One Last Look’**\
+`A mutual admiration society on a downtown F, knitting on the bus and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://www.nytimes.com/2026/08/16/nyregion/metropolitan-diary.html
+
+**NYT Spelling Bee Answers for August 16, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/08/16/crosswords/spelling-bee-forum.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/100000011094737/16vid-bigisland-embed-Markus-Weltin.html
@@ -173,26 +193,6 @@ https://www.nytimes.com/2026/08/15/opinion/democrats-midterms-progress.html
 **David Ellison’s Plan to Move Hollywood to Nashville**\
 `The dream of a red-state Hollywood.`\
 https://www.nytimes.com/2026/08/15/opinion/culture/ellison-nashville-paramount-hollywood.html
-
-**Europe’s Great Rivers Are Dying. The Continent Is In for a Shock.**\
-`Climate change is beginning to tear up the old map of Europe’s power and wealth.`\
-https://www.nytimes.com/2026/08/15/opinion/europe-rivers-danube-rhine-drought.html
-
-**The Moral Message of the New ‘Odyssey’**\
-`Readers respond to Ezra Klein’s column about the meanings of Christopher Nolan’s movie.`\
-https://www.nytimes.com/2026/08/15/opinion/odyssey-morality.html
-
-**Where the Teacher Is a Hero**\
-`The Trump administration is squeezing struggling Americans with benefit cuts, but ordinary people are stepping up to help.`\
-https://www.nytimes.com/2026/08/15/opinion/poverty-america-arkansas.html
-
-**Republicans Are Trying to Hide These Health Care Cuts**\
-`Republicans are taking deliberate steps to make health care less affordable.`\
-https://www.nytimes.com/2026/08/15/opinion/trump-health-care-cuts.html
-
-**How Are the Democrats’ Midterm Dreams Shaping Up?**\
-`Democratic divisions, polling misses and Ocasio-Cortez’s egg freezing: the week in politics.`\
-https://www.nytimes.com/video/opinion/100000011090294/how-are-the-democrats-midterm-dreams-shaping-up.html
 
 **Live Updates: Hurricane Lala Lashes Hawaii’s Big Island but Avoids Landfall**\
 `The storm brought damaging winds and widespread power outages as its eyewall grazed the Big Island’s southern tip. The storm’s eye remained offshore as it began moving west toward the rest of the island chain.`\
