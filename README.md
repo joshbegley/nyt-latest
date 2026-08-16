@@ -1,3 +1,15 @@
+**Easy Dinners for a Not-Easy Time of Year**\
+`Back-to-school season can be stressful. These five dinners are not.`\
+https://www.nytimes.com/2026/08/16/dining/easy-dinners-for-a-not-easy-time-of-year.html
+
+**He’s Awkward. He’s Sticky. He’s the Best Superhero.**\
+`If you want or need any superhero right now, you’re better off with Spider-Man.`\
+https://www.nytimes.com/2026/08/16/opinion/spider-man-brand-new-day-superhero.html
+
+**A Civil Debate About the Civil War**\
+`Readers respond to an Opinion guest essay about the various names given to the Civil War. Also: The Red Scare campaign ploy.`\
+https://www.nytimes.com/2026/08/16/opinion/civil-war-names.html
+
 **Aircraft That Typically Track Atlantic Storms Are Flying Into Lala**\
 `With Atlantic activity down this season, rare Pacific missions are being undertaken to better understand the storm skirting Hawaii.`\
 https://www.nytimes.com/2026/08/16/weather/hawaii-lala-tropical-storm-hurricane-hunters.html
@@ -181,18 +193,6 @@ https://www.nytimes.com/video/embedded/us/100000011094737/16vid-bigisland-embed-
 **Europe Is Not Ready for American Weed**\
 `The race to go global is on.`\
 https://www.nytimes.com/2026/08/16/opinion/america-weed-cannabis-europe.html
-
-**This Is the Solution to America’s Literacy Crisis, and It’s a Lot of Fun**\
-`Come join the fun.`\
-https://www.nytimes.com/2026/08/16/opinion/reading-literacy-books-education.html
-
-**La pista de baile salvó a Madonna. Luego, ella la expandió para todos**\
-`Para Madonna, el baile no es ni una herramienta ni un accesorio. Es una fuerza inquebrantable en su carrera artística.`\
-https://www.nytimes.com/es/2026/08/16/espanol/cultura/madonna-baile-danza.html
-
-**After Women in India Joined Protests, Online Harassment Followed**\
-`Widespread online abuse and visits from the police show the added risks women take standing up for their beliefs in a patriarchal society.`\
-https://www.nytimes.com/2026/08/16/world/asia/india-women-protests-online-abuse.html
 
 **Hurricane Lala Lashes Hawaii’s Big Island**\
 `The storm brought damaging winds and widespread power outages as its eyewall grazed the Big Island’s southern tip. The storm’s eye remained offshore as it began moving west toward the rest of the island chain.`\
