@@ -1,3 +1,7 @@
+**Blanche Refuses to Say He’ll Always Be Independent of Trump as Attorney General**\
+`The new head of the Justice Department said on “Meet the Press” on Sunday that the president had never asked him to prosecute specific people — and never would.`\
+https://www.nytimes.com/2026/08/16/us/politics/blanche-trump-attorney-general-justice-department.html
+
 **Anthony Bourdain’s Portuguese Kale Soup**\
 `He and Laurie Woolever adapted this simple, hearty soup from a Provincetown favorite, and our Pete Wells has brought it to New York Times Cooking.`\
 https://www.nytimes.com/2026/08/16/dining/anthony-bourdains-portuguese-kale-soup.html

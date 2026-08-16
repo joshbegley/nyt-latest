@@ -1,3 +1,7 @@
+**Blanche Refuses to Say He’ll Always Be Independent of Trump as Attorney General**\
+`The new head of the Justice Department said on “Meet the Press” on Sunday that the president had never asked him to prosecute specific people — and never would.`\
+https://www.nytimes.com/2026/08/16/us/politics/blanche-trump-attorney-general-justice-department.html
+
 **Anthony Bourdain’s Portuguese Kale Soup**\
 `He and Laurie Woolever adapted this simple, hearty soup from a Provincetown favorite, and our Pete Wells has brought it to New York Times Cooking.`\
 https://www.nytimes.com/2026/08/16/dining/anthony-bourdains-portuguese-kale-soup.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/16/nyregion/metropolitan-diary.html
 **NYT Spelling Bee Answers for August 16, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/08/16/crosswords/spelling-bee-forum.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/us/100000011094737/16vid-bigisland-embed-Markus-Weltin.html
 
