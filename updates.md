@@ -1,4 +1,8 @@
 **Kushner Meets With Hamas to Advance Trump’s Gaza Plan**\
+`The president’s son-in-law met the Palestinian militant group’s leaders in Egypt, officials said. He will soon see Benjamin Netanyahu, the Israeli leader.`\
+https://www.nytimes.com/2026/08/16/world/middleeast/kushner-hamas-talks.html
+
+**Kushner Meets With Hamas to Advance Trump’s Gaza Plan**\
 `The president’s son-in-law met the  Palestinian militant group’s leaders in Egypt, officials said. He will soon see Benjamin Netanyahu, the Israeli leader.`\
 https://www.nytimes.com/2026/08/16/world/middleeast/kushner-hamas-talks.html
 
