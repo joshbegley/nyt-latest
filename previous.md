@@ -1,3 +1,7 @@
+**Jason Arday: las advertencias que Cambridge ignoró**\
+`Jason Arday, el profesor negro más joven de la universidad, fue encontrado muerto el viernes. La universidad ignoró una serie de advertencias sobre su historia de vida y su trabajo académico.`\
+https://www.nytimes.com/es/2026/08/16/espanol/mundo/profesor-cambridge-jason-arday-muerte.html
+
 **As Lala Lashes Hawaii, the Atlantic Hurricane Season Remains Calm. So Far.**\
 `An El Niño weather pattern is expected to limit activity into the fall, providing a stabilizing force.`\
 https://www.nytimes.com/2026/08/16/weather/el-nino-lala-tropical-storm.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/16/nyregion/new-york-harbor-safety.html
 **Ralph Nader, Unsurprisingly, Still Wants You to Pay Attention**\
 `Mr. Nader, 92, is no longer in the public eye, but he has not stopped fighting for whatever needs fighting, whether people are listening or not.`\
 https://www.nytimes.com/2026/08/16/nyregion/ralph-nader-stock-transfer-tax.html
-
-**‘As We Pulled Into the Station, We Each Took One Last Look’**\
-`A mutual admiration society on a downtown F, knitting on the bus and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://www.nytimes.com/2026/08/16/nyregion/metropolitan-diary.html
 

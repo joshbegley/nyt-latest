@@ -1,3 +1,7 @@
+**Jason Arday: las advertencias que Cambridge ignoró**\
+`Jason Arday, el profesor negro más joven de la universidad, fue encontrado muerto el viernes. La universidad ignoró una serie de advertencias sobre su historia de vida y su trabajo académico.`\
+https://www.nytimes.com/es/2026/08/16/espanol/mundo/profesor-cambridge-jason-arday-muerte.html
+
 **As Lala Lashes Hawaii, the Atlantic Hurricane Season Remains Calm. So Far.**\
 `An El Niño weather pattern is expected to limit activity into the fall, providing a stabilizing force.`\
 https://www.nytimes.com/2026/08/16/weather/el-nino-lala-tropical-storm.html
