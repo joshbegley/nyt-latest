@@ -34,8 +34,8 @@ https://www.nytimes.com/2026/08/16/crosswords/strands-sidekick-897.html
 `The storm brought damaging winds and widespread power outages to Hawaii on Saturday as its eyewall grazed the Big Island’s southern tip.`\
 https://www.nytimes.com/video/us/100000011094765/hurricane-lala-lashes-hawaiis-big-island-without-making-landfall.html
 
-**Live Updates: Hurricane Lala Lashes Hawaii’s Big Island but Avoids Landfall**\
-`The storm brought damaging winds and widespread power outages as its eyewall grazed the Big Island’s southern tip.`\
+**Live Updates: Storm Lala Lashes Hawaii’s Big Island but Avoids Landfall**\
+`Lala was downgraded from a Category 1 hurricane to a tropical storm early Sunday, but forecasters warned that damage could still be significant. A flash flood warning was in effect on the Big Island.`\
 https://www.nytimes.com/live/2026/08/16/weather/lala-tropical-storm-hurricane-hawaii
 
 **El otro control de Trump sobre América Latina: la visa**\
@@ -54,7 +54,7 @@ https://www.nytimes.com/2026/08/16/world/middleeast/iran-war-us-trump.html
 `Not all progressives are equal: Candidates of the activist left typically don’t perform as well as other Democrats.`\
 https://www.nytimes.com/2026/08/16/upshot/michigan-progressives-el-sayed.html
 
-**AIPAC Targets Progressive Front-Runner in Race to Replace Swalwell**\
+**AIPAC Targets Progressive Democrat in Race to Replace Swalwell**\
 `Two Democrats are in a runoff to replace Eric Swalwell, who resigned from Congress in April. The American Israel Public Affairs Committee is spending heavily against a progressive candidate.`\
 https://www.nytimes.com/2026/08/16/us/swalwell-seat-aisha-wahab-aipac.html
 
