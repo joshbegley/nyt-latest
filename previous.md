@@ -1,3 +1,7 @@
+**Hurricane Lala Threatens Hawaii Farms Still Recovering From March Floods**\
+`Hawaii imports most of its food, but Lala could still deal a significant blow to state agriculture. March storms caused at least $50 million in damages to crops, livestock and equipment.`\
+https://www.nytimes.com/2026/08/15/weather/hawaii-agriculture-farms-hurricane-lala.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/100000011094603/16vid-bigisland-embed-74288.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/15/business/sports-team-values-billionaires.html
 **¿Por qué se toma sopa caliente cuando hace calor?**\
 `Millones de personas en los lugares más calurosos del mundo saben desde hace mucho tiempo que la mejor manera de refrescarse en el verano es comer alimentos más calientes.`\
 https://www.nytimes.com/es/2026/08/15/espanol/estilos-de-vida/calor-sopa.html
-
-**Los ‘años perdidos’ son en realidad un viaje de regreso a casa**\
-`Nadie te dice que volver a ser tú misma no tiene nada de glamuroso. Se trata sobre todo de desaprender y borrar, y de decir no a las cosas a las que solías decir que sí.`\
-https://www.nytimes.com/es/2026/08/15/espanol/estilos-de-vida/modern-love-flirteo-sexting.html
 

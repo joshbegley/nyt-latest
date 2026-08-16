@@ -1,3 +1,7 @@
+**Hurricane Lala Threatens Hawaii Farms Still Recovering From March Floods**\
+`Hawaii imports most of its food, but Lala could still deal a significant blow to state agriculture. March storms caused at least $50 million in damages to crops, livestock and equipment.`\
+https://www.nytimes.com/2026/08/15/weather/hawaii-agriculture-farms-hurricane-lala.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/100000011094603/16vid-bigisland-embed-74288.html
