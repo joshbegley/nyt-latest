@@ -1,3 +1,7 @@
+**La pista de baile salvó a Madonna. Luego, ella la expandió para todos**\
+`Para Madonna, el baile no es ni una herramienta ni un accesorio. Es una fuerza inquebrantable en su carrera artística.`\
+https://www.nytimes.com/es/2026/08/16/espanol/cultura/madonna-baile-danza.html
+
 **After Women in India Joined Protests, Online Harassment Followed**\
 `Widespread online abuse and visits from the police show the added risks women take standing up for their beliefs in a patriarchal society.`\
 https://www.nytimes.com/2026/08/16/world/asia/india-women-protests-online-abuse.html
