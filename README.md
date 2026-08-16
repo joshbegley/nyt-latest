@@ -1,3 +1,7 @@
+**Fue una gran estafa mientras duró**\
+`El acceso preferencial al mercado estadounidense no es una licencia para blanquear las exportaciones de terceros.`\
+https://www.nytimes.com/es/2026/08/16/espanol/opinion/transbordo-aranceles-exportaciones.html
+
 **Una copa con las últimas monjas de Nueva York**\
 `A medida que desaparecen los conventos, las hermanas afrontan juntas el final de sus vidas y han trasladado la fiesta a una residencia para adultos mayores en las afueras de la ciudad.`\
 https://www.nytimes.com/es/2026/08/16/espanol/estados-unidos/ultimas-monjas-nueva-york.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/08/15/business/dealbook/wearables-healthcare.html
 **Israeli Strikes in Lebanon Kill 11, Health Officials Say**\
 `The Lebanese health ministry said children were among those killed. The Israeli prime minister’s office said Hezbollah had struck first, injuring three Israeli soldiers.`\
 https://www.nytimes.com/2026/08/15/world/middleeast/israel-strikes-lebanon-ansar.html
-
-**He Tried to Kill My Father. Now He Wants to Rewrite History.**\
-`This is not what contrition looks like.`\
-https://www.nytimes.com/2026/08/15/opinion/ronald-reagan-john-hinckley-jr.html
 
 **Live Updates: Hurricane Lala Lashes Hawaii’s Big Island but Avoids Landfall**\
 `The storm brought damaging winds and widespread power outages as its eyewall grazed the Big Island’s southern tip. The storm’s eye remained offshore as it began moving west toward the rest of the island chain.`\
