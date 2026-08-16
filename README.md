@@ -82,13 +82,13 @@ https://www.nytimes.com/2026/08/16/upshot/michigan-progressives-el-sayed.html
 `Two Democrats are in a runoff to replace Eric Swalwell, who resigned from Congress in April. The American Israel Public Affairs Committee is spending heavily against a progressive candidate.`\
 https://www.nytimes.com/2026/08/16/us/swalwell-seat-aisha-wahab-aipac.html
 
-**Is the Democratic Party Facing Its Own Tea Party Moment?**\
-`A string of primary wins by progressive candidates has revealed the strength of a high-energy insurgent movement but also its potential limitations.`\
-https://www.nytimes.com/2026/08/16/us/politics/democratic-party-tea-party-moment.html
-
 **How to Look at a Painting**\
 `What I learned on an accidental pilgrimage.`\
 https://www.nytimes.com/2026/08/16/briefing/caravaggio.html
+
+**Is the Democratic Party Facing Its Own Tea Party Moment?**\
+`A string of primary wins by progressive candidates has revealed the strength of a high-energy insurgent movement but also its potential limitations.`\
+https://www.nytimes.com/2026/08/16/us/politics/democratic-party-tea-party-moment.html
 
 **He’s Hiking 2,190 Miles. We Tagged Along for 16, Cameras and All.**\
 `A 91-year-old hiker is on a quest to complete the entire Appalachian Trail. Two journalists, lugging hefty equipment, joined him for a scenic but punishing stretch.`\
