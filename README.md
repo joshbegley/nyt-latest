@@ -34,7 +34,7 @@ https://www.nytimes.com/video/embedded/us/100000011094737/16vid-bigisland-embed-
 `The race to go global is on.`\
 https://www.nytimes.com/2026/08/16/opinion/america-weed-cannabis-europe.html
 
-**The Future of Reading Is a Party**\
+**This Is the Solution to America’s Literacy Crisis, and It’s a Lot of Fun**\
 `Come join the fun.`\
 https://www.nytimes.com/2026/08/16/opinion/reading-literacy-books-education.html
 
