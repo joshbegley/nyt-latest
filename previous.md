@@ -194,7 +194,7 @@ https://www.nytimes.com/video/opinion/100000011090294/how-are-the-democrats-midt
 `There are good reasons to abandon books we’re not enjoying, but our attenuated attention might lead us to tap out too early.`\
 https://www.nytimes.com/2026/08/15/briefing/quit-lit.html
 
-**My Mother Is Dying. Does That Mean I Have to Do Everything She Asks?**\
-`I don’t want to say no to everything, but I would like that option sometimes.`\
-https://www.nytimes.com/2026/08/15/magazine/dying-mother-demands-ethics.html
+**Live Updates: Hurricane Lala Lashes Hawaii’s Big Island but Avoids Landfall**\
+`The storm brought damaging winds and widespread power outages as its eyewall grazed the Big Island’s southern tip. The storm’s eye remained offshore as it began moving west toward the rest of the island chain.`\
+https://www.nytimes.com/live/2026/08/14/weather/lala-tropical-storm-hurricane-hawaii
 

@@ -1,3 +1,7 @@
+**Live Updates: Hurricane Lala Lashes Hawaii’s Big Island but Avoids Landfall**\
+`The storm brought damaging winds and widespread power outages as its eyewall grazed the Big Island’s southern tip. The storm’s eye remained offshore as it began moving west toward the rest of the island chain.`\
+https://www.nytimes.com/live/2026/08/14/weather/lala-tropical-storm-hurricane-hawaii
+
 **Europe Is Not Ready for American Weed**\
 `The race to go global is on.`\
 https://www.nytimes.com/2026/08/16/opinion/america-weed-cannabis-europe.html
