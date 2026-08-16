@@ -1,3 +1,11 @@
+**En Barcelona puedes encontrar el lugar perfecto para disfrutar un vermut y aperitivos**\
+`Los residentes de la capital catalana se toman en serio sus rituales en los bares clásicos, conocidos como bodegas. Si sabes dónde buscar, puedes unirte a ellos.`\
+https://www.nytimes.com/es/2026/08/16/espanol/mundo/barcelona-mejores-bodegas-vermut.html
+
+**Tropical Storm Lala Lashes Hawaii’s Big Island Without Making Landfall**\
+`The storm brought damaging winds and widespread power outages as its eyewall grazed the southern part of the Big Island. One person was killed and two others were injured in a vehicle crash during the storm, a local official said.`\
+https://www.nytimes.com/video/us/100000011094765/hurricane-lala-lashes-hawaiis-big-island-without-making-landfall.html
+
 **Tommy John, Pitcher Who Gave His Name to Career-Saving Surgery, Dies at 83**\
 `After tearing an elbow ligament, he underwent a risky procedure and returned at his best, changing baseball and giving new hope to injured players.`\
 https://www.nytimes.com/2026/08/16/sports/baseball/tommy-john-dead.html

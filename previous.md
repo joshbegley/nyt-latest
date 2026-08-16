@@ -1,3 +1,7 @@
+**En Barcelona puedes encontrar el lugar perfecto para disfrutar un vermut y aperitivos**\
+`Los residentes de la capital catalana se toman en serio sus rituales en los bares clásicos, conocidos como bodegas. Si sabes dónde buscar, puedes unirte a ellos.`\
+https://www.nytimes.com/es/2026/08/16/espanol/mundo/barcelona-mejores-bodegas-vermut.html
+
 **Tommy John, Pitcher Who Gave His Name to Career-Saving Surgery, Dies at 83**\
 `After tearing an elbow ligament, he underwent a risky procedure and returned at his best, changing baseball and giving new hope to injured players.`\
 https://www.nytimes.com/2026/08/16/sports/baseball/tommy-john-dead.html
@@ -66,8 +70,8 @@ https://www.nytimes.com/2026/08/16/opinion/parents-children-no-contact-families.
 `Scroll down for hints and conversation about the puzzle for Monday, Aug. 17, 2026.`\
 https://www.nytimes.com/2026/08/16/crosswords/strands-sidekick-897.html
 
-**Hurricane Lala Lashes Hawaii’s Big Island Without Making Landfall**\
-`The storm brought damaging winds and widespread power outages to Hawaii on Saturday as its eyewall grazed the Big Island’s southern tip.`\
+**Tropical Storm Lala Lashes Hawaii’s Big Island Without Making Landfall**\
+`The storm brought damaging winds and widespread power outages as its eyewall grazed the southern part of the Big Island. One person was killed and two others were injured in a vehicle crash during the storm, a local official said.`\
 https://www.nytimes.com/video/us/100000011094765/hurricane-lala-lashes-hawaiis-big-island-without-making-landfall.html
 
 **Live Updates: Lala Lashes Hawaii With Heavy Rain and Wind but Avoids Landfall**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/08/16/espanol/cultura/mejores-thrillers-siglo-xx
 **Las mujeres afganas han sido borradas de la vida pública en 5 años de gobierno talibán**\
 `A cinco años de gobierno de los talibanes, unos 20 millones de mujeres y niñas han quedado al margen de la educación, el trabajo, los viajes y la vida independiente.`\
 https://www.nytimes.com/es/2026/08/16/espanol/mundo/mujeres-afganas-gobierno-taliban.html
-
-**It’s a Crowded Place With Some of the City’s Trickiest Traffic**\
-`A fatal accident has drawn attention to New York Harbor, a popular destination where not everyone necessarily knows the rules — or follows them.`\
-https://www.nytimes.com/2026/08/16/nyregion/new-york-harbor-safety.html
 
