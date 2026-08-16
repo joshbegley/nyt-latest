@@ -1,3 +1,23 @@
+**Las mujeres afganas han sido borradas de la vida pública en 5 años de gobierno talibán**\
+`A cinco años de gobierno de los talibanes, unos 20 millones de mujeres y niñas han quedado al margen de la educación, el trabajo, los viajes y la vida independiente.`\
+https://www.nytimes.com/es/2026/08/16/espanol/mundo/mujeres-afganas-gobierno-taliban.html
+
+**It’s a Crowded Place With Some of the City’s Trickiest Traffic**\
+`A fatal accident has drawn attention to New York Harbor, a popular destination where not everyone necessarily knows the rules — or cares to follow them.`\
+https://www.nytimes.com/2026/08/16/nyregion/new-york-harbor-safety.html
+
+**Ralph Nader, Unsurprisingly, Still Wants You to Pay Attention**\
+`Mr. Nader, 92, is no longer in the public eye, but he has not stopped fighting for whatever needs fighting, whether people are listening or not.`\
+https://www.nytimes.com/2026/08/16/nyregion/ralph-nader-stock-transfer-tax.html
+
+**‘As We Pulled Into the Station, We Each Took One Last Look’**\
+`A mutual admiration society on a downtown F, knitting on the bus and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://www.nytimes.com/2026/08/16/nyregion/metropolitan-diary.html
+
+**NYT Spelling Bee Answers for August 16, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/08/16/crosswords/spelling-bee-forum.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/100000011094737/16vid-bigisland-embed-Markus-Weltin.html
