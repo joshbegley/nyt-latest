@@ -66,8 +66,8 @@ https://www.nytimes.com/2026/08/16/crosswords/strands-sidekick-897.html
 `The storm brought damaging winds and widespread power outages to Hawaii on Saturday as its eyewall grazed the Big Island’s southern tip.`\
 https://www.nytimes.com/video/us/100000011094765/hurricane-lala-lashes-hawaiis-big-island-without-making-landfall.html
 
-**Live Updates: Lala Lashes Hawaii’s Big Island but Avoids Landfall**\
-`Lala was downgraded from a Category 1 hurricane to a tropical storm early Sunday, but its heavy rains and strong winds could bring significant damage, forecasters warned. A flash flood warning was in effect on the Big Island.`\
+**Live Updates: Lala Lashes Hawaii With Heavy Rain and Wind but Avoids Landfall**\
+`More than 200,000 customers were without power from the storm, which was downgraded from a Category 1 hurricane early Sunday. Forecasters and local officials warned of flooding and urged residents to stay put.`\
 https://www.nytimes.com/live/2026/08/16/weather/lala-tropical-storm-hurricane-hawaii
 
 **El otro control de Trump sobre América Latina: la visa**\
