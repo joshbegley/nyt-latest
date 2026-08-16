@@ -1,3 +1,11 @@
+**Live Updates: Hurricane Lala Lashes Hawaii’s Big Island but Avoids Landfall**\
+`The storm brought damaging winds and widespread power outages as its eyewall grazed the Big Island’s southern tip.`\
+https://www.nytimes.com/live/2026/08/16/weather/lala-tropical-storm-hurricane-hawaii
+
+**Hurricane Lala Lashes Hawaii’s Big Island**\
+`The storm brought damaging winds and widespread power outages as its eyewall grazed the Big Island’s southern tip. The storm’s eye remained offshore as it began moving west toward the rest of the island chain.`\
+https://www.nytimes.com/live/2026/08/14/weather/lala-tropical-storm-hurricane-hawaii
+
 **El otro control de Trump sobre América Latina: la visa**\
 `Como parte de su enfoque expansionista hacia el hemisferio occidental, el gobierno del presidente Trump intenta reafirmar su dominio, una visa estadounidense a la vez.`\
 https://www.nytimes.com/es/2026/08/16/espanol/america-latina/trump-control-america-visa.html
