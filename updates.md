@@ -1,3 +1,99 @@
+**In ‘The Brink of War,’ a Return to an Era of Razor-Edge Diplomacy**\
+`A new film depicts the 1986 nuclear arms summit in Reykjavik, Iceland, between Ronald Reagan and Mikhail Gorbachev, which both offered and dashed hopes of a dramatic breakthrough.`\
+https://www.nytimes.com/2026/08/16/us/politics/brink-of-war-reagan-nuclear-weapons.html
+
+**As Iran War Turns Into Economic Battle, a New U.S. Strategy Recalls Old Ones**\
+`The United States and Iran are poised to blow past a deadline they had set themselves to broker terms on peace and Iran’s nuclear program.`\
+https://www.nytimes.com/2026/08/16/world/middleeast/iran-war-us-trump.html
+
+**Could El-Sayed Cost Democrats Michigan?**\
+`Not all progressives are equal: Candidates of the activist left typically don’t perform as well as other Democrats.`\
+https://www.nytimes.com/2026/08/16/upshot/michigan-progressives-el-sayed.html
+
+**AIPAC Targets Progressive Front-Runner in Race to Replace Swalwell**\
+`Two Democrats are in a runoff to replace Eric Swalwell, who resigned from Congress in April. The American Israel Public Affairs Committee is spending heavily against a progressive candidate.`\
+https://www.nytimes.com/2026/08/16/us/swalwell-seat-aisha-wahab-aipac.html
+
+**Is the Democratic Party Facing Its Own Tea Party Moment?**\
+`A string of primary wins by progressive candidates has revealed the strength of a high-energy insurgent movement but also its potential limitations.`\
+https://www.nytimes.com/2026/08/16/us/politics/democratic-party-tea-party-moment.html
+
+**How to Look at a Painting**\
+`What I learned on an accidental pilgrimage.`\
+https://www.nytimes.com/2026/08/16/briefing/caravaggio.html
+
+**He’s Hiking 2,190 Miles. We Tagged Along for 16, Cameras and All.**\
+`A 91-year-old hiker is on a quest to complete the entire Appalachian Trail. Two journalists, lugging hefty equipment, joined him for a scenic but punishing stretch.`\
+https://www.nytimes.com/2026/08/16/insider/appalachian-trail-hiking-grey-beard.html
+
+**Flying on the Air Force One Decoy Flight**\
+`Our photographer Doug Mills explains what he saw on the Air Force One decoy flight out of Turkey and how it compares with his experiences covering past presidents on flights in high-risk situations.`\
+https://www.nytimes.com/video/us/100000011090279/flying-on-the-air-force-one-decoy-flight.html
+
+**How a False Nuclear Claim About Iran Ricocheted From India to Washington**\
+`A dubious post that spread on X became the basis of false claims that Iran’s leadership had declared it a nuclear power.`\
+https://www.nytimes.com/2026/08/16/business/iran-nuclear-false-claims.html
+
+**Should I Publicize a Bad Publicist?**\
+`Plus: An intern considers whether to give the boss an honest review.`\
+https://www.nytimes.com/2026/08/16/business/bad-boss-warning.html
+
+**Hannah Berner Is Having the Last Laugh, or Would if She Could**\
+`Since a jaw injection went awry and left her unable to smile, the comedian and podcast host has made the most of her predicament.`\
+https://www.nytimes.com/2026/08/16/style/hannah-berner-botox-jaw-tmj.html
+
+**What to Know Before Watching ‘Lanterns,’ HBO’s New DC Comics Series**\
+`For instance, there is more than one Green Lantern. And not every lantern is green. Here’s a brief look at the lore going back to 1940.`\
+https://www.nytimes.com/2026/08/16/arts/television/lanterns-hbo-dc-comics-tv-green-lantern.html
+
+**How a Ukrainian Bank Worker Came to Face Life in a Russian Prison**\
+`Artem Murdid, his mother and his girlfriend are accused of terrorism. They say they did nothing wrong.`\
+https://www.nytimes.com/2026/08/16/world/europe/russia-detained-ukrainians-war-murdid.html
+
+**He Was a MAGA Patriot. ICE Took His Wife Away.**\
+`The case represents a new front in President Trump’s mass deportation drive: arrests at airports of people who have active immigration cases and no criminal history.`\
+https://www.nytimes.com/2026/08/16/us/trump-immigration-crackdown.html
+
+**The DataLounge, a Gay Gossip Website, Shuts Down After 31 Years**\
+`It’s curtains for the DataLounge, an online forum from a time when the internet was funny, wild and maybe a little reckless.`\
+https://www.nytimes.com/2026/08/16/style/datalounge-shut-down-website.html
+
+**Zale Parry, Aquatic Hollywood Star and Early Acid Tripper, Dies at 93**\
+`A diving feat landed her on the cover of Sports Illustrated and led to a film and TV career. She also took part in one of the first LSD studies.`\
+https://www.nytimes.com/2026/08/16/arts/television/zale-parry-dead.html
+
+**The U.S. Military Wants A.I. Dominance. Feuds and China May Thwart It.**\
+`The administration is veering wildly in its response to the national security implications of A.I. as China, America’s main technological and military rival, charges ahead.`\
+https://www.nytimes.com/2026/08/16/us/politics/military-ai-china-anthropic.html
+
+**A Free-for-All in Alaska as 17 Candidates Compete to Be Governor**\
+`Facing huge decisions, the oil-rich, cash-poor state will send four candidates to the final ballot in November. With so many candidates chasing so few voters, the hunt is intense.`\
+https://www.nytimes.com/2026/08/16/us/elections/alaska-governor-primary.html
+
+**As A.I. Data Centers Spread, Pressure Mounts to Share Profits**\
+`Policymakers around the country are maneuvering to ensure that tech giants aren’t the only ones who stand to benefit.`\
+https://www.nytimes.com/2026/08/16/business/ai-data-centers.html
+
+**How Republicans Embraced Brandon Herrera, a Texas Republican Candidate and Gun Influencer**\
+`Brandon Herrera, long an anti-establishment outsider, is trying to help the party defend a red-leaning House district in West Texas. It’s proving messy.`\
+https://www.nytimes.com/2026/08/16/us/politics/herrera-trump-republican-texas-house.html
+
+**As the Old Files Open, One Family Confronts Another’s Dark Nazi Past**\
+`A woman who secured the criminal file of her grandmother, a collaborator, offered to share it with a Jewish family that had been betrayed. Then she balked and a new dispute ensued.`\
+https://www.nytimes.com/2026/08/16/arts/zilversmit-netherlands-podcast-book-holocaust-nazi.html
+
+**Book Review: ‘The Maltese Version,’ by Katy Simpson Smith**\
+`Are the 30-somethings in Katy Simpson Smith’s “The Maltese Version” in love? That depends on how you define it.`\
+https://www.nytimes.com/2026/08/16/books/review/the-maltese-version-katy-simpson-smith.html
+
+**A Shooting at the U.S. Consulate in Toronto Exposes a Neighborhood’s Guns-for-Hire Network**\
+`A shooting at a U.S. Consulate has thrust a neighborhood with a troubled past into the center of an emerging criminal phenomenon: young guns for hire as gig workers in the underworld economy.`\
+https://www.nytimes.com/2026/08/16/world/canada/us-consulate-synagogue-shooting-toronto-canada.html
+
+**Trump’s Other Hold on the Americas: The Visa**\
+`As part of its expansionist approach to the Western Hemisphere, the Trump administration is trying to reassert its dominance, one U.S. visa at a time.`\
+https://www.nytimes.com/2026/08/16/world/americas/trump-americas-visas.html
+
 **Cholera Outbreak Sickens Over 90 in Myanmar’s Biggest City**\
 `Civil war and military rule have weakened Myanmar’s health care system, while heavy monsoon rains have increased the risk of waterborne disease.`\
 https://www.nytimes.com/2026/08/16/world/asia/cholera-outbreak-yangon-myanmar.html
