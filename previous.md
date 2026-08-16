@@ -10,8 +10,8 @@ https://www.nytimes.com/2026/08/16/world/deportations-eswatini-italy-heist.html
 `Since last week, hazardous weather has caused seven deaths, forced people from their homes and required some to be rescued by boat. The region was at risk for more flooding on Sunday.`\
 https://www.nytimes.com/2026/08/16/us/indiana-storms-flooding.html
 
-**Kushner Holds Talks With Hamas to Advance Trump Gaza Plan**\
-`The president’s adviser met with representatives of the armed Palestinian group in Egypt, several officials said.`\
+**Kushner Meets With Hamas to Advance Trump’s Gaza Plan**\
+`The president’s son-in-law met the  Palestinian militant group’s leaders in Egypt, officials said. He will soon see Benjamin Netanyahu, the Israeli leader.`\
 https://www.nytimes.com/2026/08/16/world/middleeast/kushner-hamas-talks.html
 
 **Tras años de apoyar a Trump, el ICE detuvo a su esposa**\

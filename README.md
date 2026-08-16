@@ -11,7 +11,7 @@ https://www.nytimes.com/2026/08/16/world/deportations-eswatini-italy-heist.html
 https://www.nytimes.com/2026/08/16/us/indiana-storms-flooding.html
 
 **Kushner Meets With Hamas to Advance Trump’s Gaza Plan**\
-`The president’s son-in-law met the  Palestinian militant group’s leaders in Egypt, officials said. He will soon see Benjamin Netanyahu, the Israeli leader.`\
+`The president’s son-in-law met the Palestinian militant group’s leaders in Egypt, officials said. He will soon see Benjamin Netanyahu, the Israeli leader.`\
 https://www.nytimes.com/2026/08/16/world/middleeast/kushner-hamas-talks.html
 
 **Tras años de apoyar a Trump, el ICE detuvo a su esposa**\
