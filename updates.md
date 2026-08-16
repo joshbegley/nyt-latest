@@ -1,3 +1,7 @@
+**Kushner Holds Talks With Hamas to Advance Trump Gaza Plan**\
+`The president’s adviser met with representatives of the armed Palestinian group in Egypt, several officials said.`\
+https://www.nytimes.com/2026/08/16/world/middleeast/kushner-hamas-talks.html
+
 **Democrats Face a Potential Tea Party Moment**\
 `A string of primary wins by progressive candidates has revealed the strength of a high-energy insurgent movement but also its possible limitations.`\
 https://www.nytimes.com/2026/08/16/us/politics/democratic-party-tea-party-moment.html
