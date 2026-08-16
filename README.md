@@ -1,3 +1,7 @@
+**As Lala Lashes Hawaii, the Atlantic Hurricane Season Remains Calm. So Far.**\
+`An El Niño weather pattern is expected to limit activity into the fall, providing a stabilizing force.`\
+https://www.nytimes.com/2026/08/16/weather/el-nino-lala-tropical-storm.html
+
 **Blanche Refuses to Say He’ll Always Be Independent of Trump as Attorney General**\
 `The new head of the Justice Department said on “Meet the Press” on Sunday that the president had never asked him to prosecute specific people — and never would.`\
 https://www.nytimes.com/2026/08/16/us/politics/blanche-trump-attorney-general-justice-department.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/16/nyregion/ralph-nader-stock-transfer-tax.html
 **‘As We Pulled Into the Station, We Each Took One Last Look’**\
 `A mutual admiration society on a downtown F, knitting on the bus and more reader tales of New York City in this week’s Metropolitan Diary.`\
 https://www.nytimes.com/2026/08/16/nyregion/metropolitan-diary.html
-
-**NYT Spelling Bee Answers for August 16, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/08/16/crosswords/spelling-bee-forum.html
 
