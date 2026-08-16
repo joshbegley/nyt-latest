@@ -1,3 +1,7 @@
+**Tommy John, Pitcher Who Gave His Name to Career-Saving Surgery, Dies at 83**\
+`After tearing an elbow ligament, he underwent a risky procedure and returned at his best, changing baseball and giving new hope to injured players.`\
+https://www.nytimes.com/2026/08/16/sports/baseball/tommy-john-dead.html
+
 **Live Updates: Lala Lashes Hawaii With Heavy Rain and Wind but Avoids Landfall**\
 `More than 200,000 customers were without power from the storm, which was downgraded from a Category 1 hurricane early Sunday. Forecasters and local officials warned of flooding and urged residents to stay put.`\
 https://www.nytimes.com/live/2026/08/16/weather/lala-tropical-storm-hurricane-hawaii

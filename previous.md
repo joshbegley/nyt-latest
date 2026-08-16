@@ -1,3 +1,7 @@
+**Tommy John, Pitcher Who Gave His Name to Career-Saving Surgery, Dies at 83**\
+`After tearing an elbow ligament, he underwent a risky procedure and returned at his best, changing baseball and giving new hope to injured players.`\
+https://www.nytimes.com/2026/08/16/sports/baseball/tommy-john-dead.html
+
 **Jason Arday: las advertencias que Cambridge ignoró**\
 `Jason Arday, el profesor negro más joven de la universidad, fue encontrado muerto el viernes. La universidad ignoró una serie de advertencias sobre su historia de vida y su trabajo académico.`\
 https://www.nytimes.com/es/2026/08/16/espanol/mundo/profesor-cambridge-jason-arday-muerte.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/08/16/espanol/mundo/mujeres-afganas-gobierno-tal
 **It’s a Crowded Place With Some of the City’s Trickiest Traffic**\
 `A fatal accident has drawn attention to New York Harbor, a popular destination where not everyone necessarily knows the rules — or follows them.`\
 https://www.nytimes.com/2026/08/16/nyregion/new-york-harbor-safety.html
-
-**Ralph Nader, Unsurprisingly, Still Wants You to Pay Attention**\
-`Mr. Nader, 92, is no longer in the public eye, but he has not stopped fighting for whatever needs fighting, whether people are listening or not.`\
-https://www.nytimes.com/2026/08/16/nyregion/ralph-nader-stock-transfer-tax.html
 
