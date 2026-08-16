@@ -183,7 +183,7 @@ https://www.nytimes.com/es/2026/08/16/espanol/cultura/mejores-thrillers-siglo-xx
 https://www.nytimes.com/es/2026/08/16/espanol/mundo/mujeres-afganas-gobierno-taliban.html
 
 **It’s a Crowded Place With Some of the City’s Trickiest Traffic**\
-`A fatal accident has drawn attention to New York Harbor, a popular destination where not everyone necessarily knows the rules — or cares to follow them.`\
+`A fatal accident has drawn attention to New York Harbor, a popular destination where not everyone necessarily knows the rules — or follows them.`\
 https://www.nytimes.com/2026/08/16/nyregion/new-york-harbor-safety.html
 
 **Ralph Nader, Unsurprisingly, Still Wants You to Pay Attention**\

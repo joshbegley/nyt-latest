@@ -1,3 +1,7 @@
+**It’s a Crowded Place With Some of the City’s Trickiest Traffic**\
+`A fatal accident has drawn attention to New York Harbor, a popular destination where not everyone necessarily knows the rules — or follows them.`\
+https://www.nytimes.com/2026/08/16/nyregion/new-york-harbor-safety.html
+
 **Blanche Refuses to Say He’ll Always Be Independent of Trump as Attorney General**\
 `The new head of the Justice Department said on “Meet the Press” on Sunday that the president had never asked him to prosecute specific people — and never would.`\
 https://www.nytimes.com/2026/08/16/us/politics/blanche-trump-attorney-general-justice-department.html
