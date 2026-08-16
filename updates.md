@@ -1,3 +1,7 @@
+**Anthony Bourdain’s Portuguese Kale Soup**\
+`He and Laurie Woolever adapted this simple, hearty soup from a Provincetown favorite, and our Pete Wells has brought it to New York Times Cooking.`\
+https://www.nytimes.com/2026/08/16/dining/anthony-bourdains-portuguese-kale-soup.html
+
 **Cutting Your Parents Off Isn’t the Answer**\
 `Many queer people are going no contact — cutting off their families for myriad reasons. It’s not always the right answer.`\
 https://www.nytimes.com/2026/08/16/opinion/parents-children-no-contact-families.html

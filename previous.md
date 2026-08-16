@@ -1,3 +1,7 @@
+**Anthony Bourdain’s Portuguese Kale Soup**\
+`He and Laurie Woolever adapted this simple, hearty soup from a Provincetown favorite, and our Pete Wells has brought it to New York Times Cooking.`\
+https://www.nytimes.com/2026/08/16/dining/anthony-bourdains-portuguese-kale-soup.html
+
 **Art Heist: 4 Antonello da Messina Paintings Stolen From Sicily**\
 `The works, by Antonello da Messina, were taken as the Sicilian city of Messina held a religious celebration.`\
 https://www.nytimes.com/2026/08/16/world/europe/italy-renaissance-art-heist.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/16/crosswords/spelling-bee-forum.html
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/100000011094737/16vid-bigisland-embed-Markus-Weltin.html
-
-**Hurricane Lala Lashes Hawaii’s Big Island**\
-`The storm brought damaging winds and widespread power outages as its eyewall grazed the Big Island’s southern tip. The storm’s eye remained offshore as it began moving west toward the rest of the island chain.`\
-https://www.nytimes.com/live/2026/08/14/weather/lala-tropical-storm-hurricane-hawaii
 
