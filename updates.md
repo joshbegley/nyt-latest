@@ -1,3 +1,11 @@
+**Fue una gran estafa mientras duró**\
+`El acceso preferencial al mercado estadounidense no es una licencia para blanquear las exportaciones de terceros.`\
+https://www.nytimes.com/es/2026/08/16/espanol/opinion/transbordo-aranceles-exportaciones.html
+
+**This Is the Solution to America’s Literacy Crisis, and It’s a Lot of Fun**\
+`Come join the fun.`\
+https://www.nytimes.com/2026/08/16/opinion/reading-literacy-books-education.html
+
 **Una copa con las últimas monjas de Nueva York**\
 `A medida que desaparecen los conventos, las hermanas afrontan juntas el final de sus vidas y han trasladado la fiesta a una residencia para adultos mayores en las afueras de la ciudad.`\
 https://www.nytimes.com/es/2026/08/16/espanol/estados-unidos/ultimas-monjas-nueva-york.html
