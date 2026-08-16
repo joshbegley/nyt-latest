@@ -1,3 +1,23 @@
+**After Women in India Joined Protests, Online Harassment Followed**\
+`Widespread online abuse and visits from the police show the added risks women take standing up for their beliefs in a patriarchal society.`\
+https://www.nytimes.com/2026/08/16/world/asia/india-women-protests-online-abuse.html
+
+**With Priests Scarce in Rural Italy, an African Pastor Is Filling the Void**\
+`Immigrants have long eased labor shortages on farms and factories in Italy. But churches also need foreign-born priests, like the Rev. Vincent Souly of the Ivory Coast.`\
+https://www.nytimes.com/2026/08/16/world/europe/italy-priest-shortage.html
+
+**Tour ‘Furious’ Actress Emmy Rossum’s Upper East Side Apartment**\
+`The ‘Furious’ actress long dreamed of returning to the neighborhood where she grew up, but with more square footage this time.`\
+https://www.nytimes.com/interactive/2026/08/16/realestate/emmy-rossum-home-tour-furious.html
+
+**How Madonna Put Motion Into Music With Her Dance Performances**\
+`Dance is neither a tool nor an accessory for Madonna. It is an unwavering force in her performing life.`\
+https://www.nytimes.com/2026/08/16/arts/dance/madonna-dance-music.html
+
+**Quote of the Day: Cyclospora Reveals Flaws in the Food Safety System**\
+`Quotation of the Day for Sunday, August 16, 2026.`\
+https://www.nytimes.com/2026/08/16/pageoneplus/quote-of-the-day-cyclospora-reveals-flaws-in-the-food-safety-system.html
+
 **Hurricane Lala Threatens Hawaii Farms Still Recovering From March Floods**\
 `Hawaii imports most of its food, but Lala could still deal a significant blow to state agriculture. March storms caused at least $50 million in damages to crops, livestock and equipment.`\
 https://www.nytimes.com/2026/08/15/weather/hawaii-agriculture-farms-hurricane-lala.html

@@ -1,3 +1,23 @@
+**After Women in India Joined Protests, Online Harassment Followed**\
+`Widespread online abuse and visits from the police show the added risks women take standing up for their beliefs in a patriarchal society.`\
+https://www.nytimes.com/2026/08/16/world/asia/india-women-protests-online-abuse.html
+
+**With Priests Scarce in Rural Italy, an African Pastor Is Filling the Void**\
+`Immigrants have long eased labor shortages on farms and factories in Italy. But churches also need foreign-born priests, like the Rev. Vincent Souly of the Ivory Coast.`\
+https://www.nytimes.com/2026/08/16/world/europe/italy-priest-shortage.html
+
+**Tour ‘Furious’ Actress Emmy Rossum’s Upper East Side Apartment**\
+`The ‘Furious’ actress long dreamed of returning to the neighborhood where she grew up, but with more square footage this time.`\
+https://www.nytimes.com/interactive/2026/08/16/realestate/emmy-rossum-home-tour-furious.html
+
+**How Madonna Put Motion Into Music With Her Dance Performances**\
+`Dance is neither a tool nor an accessory for Madonna. It is an unwavering force in her performing life.`\
+https://www.nytimes.com/2026/08/16/arts/dance/madonna-dance-music.html
+
+**Quote of the Day: Cyclospora Reveals Flaws in the Food Safety System**\
+`Quotation of the Day for Sunday, August 16, 2026.`\
+https://www.nytimes.com/2026/08/16/pageoneplus/quote-of-the-day-cyclospora-reveals-flaws-in-the-food-safety-system.html
+
 **Hurricane Lala Threatens Hawaii Farms Still Recovering From March Floods**\
 `Hawaii imports most of its food, but Lala could still deal a significant blow to state agriculture. March storms caused at least $50 million in damages to crops, livestock and equipment.`\
 https://www.nytimes.com/2026/08/15/weather/hawaii-agriculture-farms-hurricane-lala.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/08/15/crosswords/connections-companion-1162.html
 **NYT Strands Hints for Aug. 16, 2026**\
 `Scroll down for hints and conversation about the puzzle for Sunday, Aug. 16, 2026.`\
 https://www.nytimes.com/2026/08/15/crosswords/strands-sidekick-896.html
-
-**Today’s Wordle Hints for August 16, 2026**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Aug. 16, 2026.`\
-https://www.nytimes.com/2026/08/15/crosswords/wordle-review-1884.html
-
-**The Charming, Amusing, Surprisingly Low-Confidence Matthew Rhys**\
-`The “Widow’s Bay” star on his two Emmy nominations, his penchant for going dark and his wobbly self-esteem.`\
-https://www.nytimes.com/2026/08/15/magazine/matthew-rhys-interview.html
-
-**41 de los mejores restaurantes mexicanos en Estados Unidos**\
-`Desde humeantes platos de birria hasta sopa de mantarraya, la gastronomía de México ofrece un suculento abanico de posibilidades a los comensales estadounidenses.`\
-https://www.nytimes.com/es/2026/08/15/espanol/mejores-restaurantes-mexicanos-estados-unidos.html
-
-**Sports Team Sale Prices Keep Hitting New Highs**\
-`The deal for the Los Angeles Lakers valued the team at a record $12.5 billion, eclipsing the $10 billion paid for the franchise just last year.`\
-https://www.nytimes.com/2026/08/15/business/sports-team-values-billionaires.html
-
-**¿Por qué se toma sopa caliente cuando hace calor?**\
-`Millones de personas en los lugares más calurosos del mundo saben desde hace mucho tiempo que la mejor manera de refrescarse en el verano es comer alimentos más calientes.`\
-https://www.nytimes.com/es/2026/08/15/espanol/estilos-de-vida/calor-sopa.html
 
