@@ -1,3 +1,11 @@
+**Liechtenstein Changes Its Law to Allow Women to Ascend the Throne**\
+`The move puts the principality in the majority among nearby nations with royal families.`\
+https://www.nytimes.com/2026/08/16/world/europe/liechtenstein-royal-succession-women.html
+
+**NYT Crossword Answers for Aug. 17, 2026**\
+`Zhouqin Burnikel gets the nod.`\
+https://www.nytimes.com/2026/08/16/crosswords/daily-puzzle-2026-08-17.html
+
 **Top Admiral Praises Sailors but Concedes Hardships After Visit to U.S.S. Lincoln**\
 `Admiral Brad Cooper, head of U.S. Central Command, acknowledged the difficulty of the carrier’s nearly nine-month deployment but said mental health issues were lower than on other vessels.`\
 https://www.nytimes.com/2026/08/16/us/politics/uss-lincoln-iran-admiral.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/16/business/ai-data-centers.html
 **How Republicans Embraced Brandon Herrera, a Texas Republican Candidate and Gun Influencer**\
 `Brandon Herrera, long an anti-establishment outsider, is trying to help the party defend a red-leaning House district in West Texas. It’s proving messy.`\
 https://www.nytimes.com/2026/08/16/us/politics/herrera-trump-republican-texas-house.html
-
-**As the Old Files Open, One Family Confronts Another’s Dark Nazi Past**\
-`A woman who secured the criminal file of her grandmother, a collaborator, offered to share it with a Jewish family that had been betrayed. Then she balked and a new dispute ensued.`\
-https://www.nytimes.com/2026/08/16/arts/zilversmit-netherlands-podcast-book-holocaust-nazi.html
-
-**Book Review: ‘The Maltese Version,’ by Katy Simpson Smith**\
-`Are the 30-somethings in Katy Simpson Smith’s “The Maltese Version” in love? That depends on how you define it.`\
-https://www.nytimes.com/2026/08/16/books/review/the-maltese-version-katy-simpson-smith.html
 
