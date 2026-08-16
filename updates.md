@@ -1,3 +1,7 @@
+**Art Heist: 4 Antonello da Messina Paintings Stolen From Sicily**\
+`The works, by Antonello da Messina, were taken as the Sicilian city of Messina held a religious celebration.`\
+https://www.nytimes.com/2026/08/16/world/europe/italy-renaissance-art-heist.html
+
 **Easy Dinners for a Not-Easy Time of Year**\
 `Back-to-school season can be stressful. These five dinners are not.`\
 https://www.nytimes.com/2026/08/16/dining/easy-dinners-for-a-not-easy-time-of-year.html
