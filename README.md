@@ -110,8 +110,8 @@ https://www.nytimes.com/2026/08/16/crosswords/strands-sidekick-897.html
 `The storm brought damaging winds and widespread power outages as its eyewall grazed the southern part of the Big Island. One person was killed and two others were injured in a vehicle crash during the storm, a local official said.`\
 https://www.nytimes.com/video/us/100000011094765/hurricane-lala-lashes-hawaiis-big-island-without-making-landfall.html
 
-**Live Updates: Lala Lashes Hawaii With Heavy Rain and Wind but Avoids Landfall**\
-`About 200,000 customers were without power from the storm, which was downgraded from a Category 1 hurricane early Sunday. Forecasters and local officials warned of flooding and urged residents to stay put.`\
+**Live Updates: Lala Causes Widespread Outages and Road Closures**\
+`More than 200,000 customers were without power and at least two hospitals on the Big Island were operating on generators. Forecasters warned of flooding and residents were told to stay put.`\
 https://www.nytimes.com/live/2026/08/16/weather/lala-tropical-storm-hurricane-hawaii
 
 **El otro control de Trump sobre América Latina: la visa**\
