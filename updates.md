@@ -1,3 +1,7 @@
+**El otro control de Trump sobre América Latina: la visa**\
+`Como parte de su enfoque expansionista hacia el hemisferio occidental, el gobierno del presidente Trump intenta reafirmar su dominio, una visa estadounidense a la vez.`\
+https://www.nytimes.com/es/2026/08/16/espanol/america-latina/trump-control-america-visa.html
+
 **In ‘The Brink of War,’ a Return to an Era of Razor-Edge Diplomacy**\
 `A new film depicts the 1986 nuclear arms summit in Reykjavik, Iceland, between Ronald Reagan and Mikhail Gorbachev, which both offered and dashed hopes of a dramatic breakthrough.`\
 https://www.nytimes.com/2026/08/16/us/politics/brink-of-war-reagan-nuclear-weapons.html

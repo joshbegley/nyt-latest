@@ -1,3 +1,7 @@
+**El otro control de Trump sobre América Latina: la visa**\
+`Como parte de su enfoque expansionista hacia el hemisferio occidental, el gobierno del presidente Trump intenta reafirmar su dominio, una visa estadounidense a la vez.`\
+https://www.nytimes.com/es/2026/08/16/espanol/america-latina/trump-control-america-visa.html
+
 **In ‘The Brink of War,’ a Return to an Era of Razor-Edge Diplomacy**\
 `A new film depicts the 1986 nuclear arms summit in Reykjavik, Iceland, between Ronald Reagan and Mikhail Gorbachev, which both offered and dashed hopes of a dramatic breakthrough.`\
 https://www.nytimes.com/2026/08/16/us/politics/brink-of-war-reagan-nuclear-weapons.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/08/15/weather/15storm-lala-homes-vulnerability.html
 **Take the Edge Off**\
 `Sam Brody’s second Sunday puzzle provides infinite solving pleasure.`\
 https://www.nytimes.com/2026/08/15/crosswords/daily-puzzle-2026-08-16.html
-
-**Elizabeth Street Garden Fans Celebrate After Developers Drop Suit**\
-`The garden in NoLIta has been a symbol of the fight over preservation and development, but Mayor Zohran Mamdani this week abandoned plans to build there.`\
-https://www.nytimes.com/2026/08/15/nyregion/elizabeth-street-garden-lawsuit-dropped.html
 
 **Live Updates: Hurricane Lala Lashes Hawaii’s Big Island but Avoids Landfall**\
 `The storm brought damaging winds and widespread power outages as its eyewall grazed the Big Island’s southern tip. The storm’s eye remained offshore as it began moving west toward the rest of the island chain.`\
