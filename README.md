@@ -194,7 +194,7 @@ https://www.nytimes.com/2026/08/15/weather/15storm-lala-homes-vulnerability.html
 `Sam Brody’s second Sunday puzzle provides infinite solving pleasure.`\
 https://www.nytimes.com/2026/08/15/crosswords/daily-puzzle-2026-08-16.html
 
-**Live Updates: Hurricane Lala Lashes Hawaii’s Big Island but Avoids Landfall**\
+**Hurricane Lala Lashes Hawaii’s Big Island**\
 `The storm brought damaging winds and widespread power outages as its eyewall grazed the Big Island’s southern tip. The storm’s eye remained offshore as it began moving west toward the rest of the island chain.`\
 https://www.nytimes.com/live/2026/08/14/weather/lala-tropical-storm-hurricane-hawaii
 
