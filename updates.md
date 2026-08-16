@@ -1,3 +1,7 @@
+**Aircraft That Typically Track Atlantic Storms Are Flying Into Lala**\
+`With Atlantic activity down this season, rare Pacific missions are being undertaken to better understand the storm skirting Hawaii.`\
+https://www.nytimes.com/2026/08/16/weather/hawaii-lala-tropical-storm-hurricane-hunters.html
+
 **Bot Meets Bot**\
 `Are we ready for a world where machines are mostly talking to each other?`\
 https://www.nytimes.com/2026/08/16/briefing/chatbots-talking-to-each-other.html
