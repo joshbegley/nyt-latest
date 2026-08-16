@@ -1,3 +1,11 @@
+**Trump Orders Pentagon to Curtail Military Exercises With Ally South Korea**\
+`In a social media post, the president scolded South Korea for not helping denuclearize Iran, and also praised North Korea and its leader.`\
+https://www.nytimes.com/2026/08/16/us/politics/trump-south-korea-military-exercises.html
+
+**Live Updates: Lala Causes Widespread Outages and Road Closures**\
+`More than 200,000 customers were without power and at least two hospitals on the Big Island were operating on generators. Forecasters warned of flooding and residents were told to stay put.`\
+https://www.nytimes.com/live/2026/08/16/weather/lala-tropical-storm-hurricane-hawaii
+
 **Liechtenstein Changes Its Law to Allow Women to Ascend the Throne**\
 `The move puts the principality in the majority among nearby nations with royal families.`\
 https://www.nytimes.com/2026/08/16/world/europe/liechtenstein-royal-succession-women.html
