@@ -1,3 +1,11 @@
+**Liechtenstein Changes Its Law to Allow Women to Ascend the Throne**\
+`The move puts the principality in the majority among nearby nations with royal families.`\
+https://www.nytimes.com/2026/08/16/world/europe/liechtenstein-royal-succession-women.html
+
+**NYT Crossword Answers for Aug. 17, 2026**\
+`Zhouqin Burnikel gets the nod.`\
+https://www.nytimes.com/2026/08/16/crosswords/daily-puzzle-2026-08-17.html
+
 **Kushner Meets With Hamas to Advance Trump’s Gaza Plan**\
 `The president’s son-in-law met the Palestinian militant group’s leaders in Egypt, officials said. He will soon see Benjamin Netanyahu, the Israeli leader.`\
 https://www.nytimes.com/2026/08/16/world/middleeast/kushner-hamas-talks.html
