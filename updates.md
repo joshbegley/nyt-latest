@@ -1,3 +1,7 @@
+**Live Updates: Lala Lashes Hawaii With Heavy Rain and Wind but Avoids Landfall**\
+`More than 200,000 customers were without power from the storm, which was downgraded from a Category 1 hurricane early Sunday. Forecasters and local officials warned of flooding and urged residents to stay put.`\
+https://www.nytimes.com/live/2026/08/16/weather/lala-tropical-storm-hurricane-hawaii
+
 **Jason Arday: las advertencias que Cambridge ignoró**\
 `Jason Arday, el profesor negro más joven de la universidad, fue encontrado muerto el viernes. La universidad ignoró una serie de advertencias sobre su historia de vida y su trabajo académico.`\
 https://www.nytimes.com/es/2026/08/16/espanol/mundo/profesor-cambridge-jason-arday-muerte.html
