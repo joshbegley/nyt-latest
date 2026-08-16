@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/100000011094603/16vid-bigisland-embed-74288.html
+
 **Sports Team Sale Prices Keep Hitting New Highs**\
 `The deal for the Los Angeles Lakers valued the team at a record $12.5 billion, eclipsing the $10 billion paid for the franchise just last year.`\
 https://www.nytimes.com/2026/08/15/business/sports-team-values-billionaires.html

@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/100000011094603/16vid-bigisland-embed-74288.html
+
 **Shelters Open as Lala Advances Toward Hawaii**\
 `A mix of tourists and locals began gathering at a high school on Saturday morning.`\
 https://www.nytimes.com/2026/08/15/weather/hurricane-lala-shelters.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/08/15/espanol/estilos-de-vida/calor-sopa.html
 **Los ‘años perdidos’ son en realidad un viaje de regreso a casa**\
 `Nadie te dice que volver a ser tú misma no tiene nada de glamuroso. Se trata sobre todo de desaprender y borrar, y de decir no a las cosas a las que solías decir que sí.`\
 https://www.nytimes.com/es/2026/08/15/espanol/estilos-de-vida/modern-love-flirteo-sexting.html
-
-**Corrections: Aug. 15, 2026**\
-`Corrections that appeared in print on Saturday, Aug. 15, 2026.`\
-https://www.nytimes.com/2026/08/15/pageoneplus/corrections-aug-15-2026.html
 
