@@ -1,3 +1,7 @@
+**Bot Meets Bot**\
+`Are we ready for a world where machines are mostly talking to each other?`\
+https://www.nytimes.com/2026/08/16/briefing/chatbots-talking-to-each-other.html
+
 **Ocasio-Cortez Rewrites the Rules**\
 `The representative is fusing her body and mind on the public stage to show us what real female power can look like.`\
 https://www.nytimes.com/2026/08/16/opinion/aoc-egg-freezing-women-politics.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/08/16/world/asia/india-women-protests-online-abuse.
 **With Priests Scarce in Rural Italy, an African Pastor Is Filling the Void**\
 `Immigrants have long eased labor shortages on farms and factories in Italy. But churches also need foreign-born priests, like the Rev. Vincent Souly of the Ivory Coast.`\
 https://www.nytimes.com/2026/08/16/world/europe/italy-priest-shortage.html
-
-**Tour ‘Furious’ Actress Emmy Rossum’s Upper East Side Apartment**\
-`The ‘Furious’ actress long dreamed of returning to the neighborhood where she grew up, but with more square footage this time.`\
-https://www.nytimes.com/interactive/2026/08/16/realestate/emmy-rossum-home-tour-furious.html
 
 **Hurricane Lala Lashes Hawaii’s Big Island**\
 `The storm brought damaging winds and widespread power outages as its eyewall grazed the Big Island’s southern tip. The storm’s eye remained offshore as it began moving west toward the rest of the island chain.`\

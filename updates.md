@@ -1,3 +1,7 @@
+**Bot Meets Bot**\
+`Are we ready for a world where machines are mostly talking to each other?`\
+https://www.nytimes.com/2026/08/16/briefing/chatbots-talking-to-each-other.html
+
 **Ocasio-Cortez Rewrites the Rules**\
 `The representative is fusing her body and mind on the public stage to show us what real female power can look like.`\
 https://www.nytimes.com/2026/08/16/opinion/aoc-egg-freezing-women-politics.html

@@ -1,3 +1,7 @@
+**Aircraft That Typically Track Atlantic Storms Are Flying Into Lala**\
+`With Atlantic activity down this season, rare Pacific missions are being undertaken to better understand the storm skirting Hawaii.`\
+https://www.nytimes.com/2026/08/16/weather/hawaii-lala-tropical-storm-hurricane-hunters.html
+
 **Bot Meets Bot**\
 `Are we ready for a world where machines are mostly talking to each other?`\
 https://www.nytimes.com/2026/08/16/briefing/chatbots-talking-to-each-other.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/es/2026/08/16/espanol/cultura/madonna-baile-danza.html
 **After Women in India Joined Protests, Online Harassment Followed**\
 `Widespread online abuse and visits from the police show the added risks women take standing up for their beliefs in a patriarchal society.`\
 https://www.nytimes.com/2026/08/16/world/asia/india-women-protests-online-abuse.html
-
-**With Priests Scarce in Rural Italy, an African Pastor Is Filling the Void**\
-`Immigrants have long eased labor shortages on farms and factories in Italy. But churches also need foreign-born priests, like the Rev. Vincent Souly of the Ivory Coast.`\
-https://www.nytimes.com/2026/08/16/world/europe/italy-priest-shortage.html
 
 **Hurricane Lala Lashes Hawaii’s Big Island**\
 `The storm brought damaging winds and widespread power outages as its eyewall grazed the Big Island’s southern tip. The storm’s eye remained offshore as it began moving west toward the rest of the island chain.`\
