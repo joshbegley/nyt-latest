@@ -1,3 +1,7 @@
+**Hurricane Lala Lashes Hawaii’s Big Island Without Making Landfall**\
+`The storm brought damaging winds and widespread power outages to Hawaii on Saturday as its eyewall grazed the Big Island’s southern tip.`\
+https://www.nytimes.com/video/us/100000011094765/hurricane-lala-lashes-hawaiis-big-island-without-making-landfall.html
+
 **Live Updates: Hurricane Lala Lashes Hawaii’s Big Island but Avoids Landfall**\
 `The storm brought damaging winds and widespread power outages as its eyewall grazed the Big Island’s southern tip.`\
 https://www.nytimes.com/live/2026/08/16/weather/lala-tropical-storm-hurricane-hawaii
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/08/15/weather/hurricane-lala-shelters.html
 **Some Daring Surfers Seek Waves as Hurricane Lala Approaches**\
 `“We have time, so why don’t we enjoy it?” one beachgoer said as the storm made its way across the Pacific.`\
 https://www.nytimes.com/2026/08/15/weather/some-daring-surfers-seek-waves-as-hurricane-lala-approaches.html
-
-**Lala Heads for a State With Older Housing Stock**\
-`Experts warned that many houses on the Big Island weren’t built for hurricane-force wind and rain.`\
-https://www.nytimes.com/2026/08/15/weather/15storm-lala-homes-vulnerability.html
 
 **Hurricane Lala Lashes Hawaii’s Big Island**\
 `The storm brought damaging winds and widespread power outages as its eyewall grazed the Big Island’s southern tip. The storm’s eye remained offshore as it began moving west toward the rest of the island chain.`\
