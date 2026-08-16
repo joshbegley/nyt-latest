@@ -1,3 +1,27 @@
+**Ocasio-Cortez Rewrites the Rules**\
+`The representative is fusing her body and mind on the public stage to show us what real female power can look like.`\
+https://www.nytimes.com/2026/08/16/opinion/aoc-egg-freezing-women-politics.html
+
+**What Makes a Killer Thriller? We Asked Tana French.**\
+`Our list of the 50 best thrillers of the century. Plus a conversation with the author Tana French.`\
+https://www.nytimes.com/2026/08/16/podcasts/the-daily/thriller-novels-tana-french.html
+
+**NYT Connections Answers for August 17, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Aug. 17, 2026.`\
+https://www.nytimes.com/2026/08/16/crosswords/connections-companion-1163.html
+
+**Today’s Wordle Hints for August 17, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Aug. 17, 2026.`\
+https://www.nytimes.com/2026/08/16/crosswords/wordle-review-1885.html
+
+**Friends Wanted Me to Cut Off My Father. They Were Wrong.**\
+`Many queer people are going no contact — cutting off their families for myriad reasons. It’s not always the right answer.`\
+https://www.nytimes.com/2026/08/16/opinion/parents-children-no-contact-families.html
+
+**NYT Strands Hints for Aug. 17, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Aug. 17, 2026.`\
+https://www.nytimes.com/2026/08/16/crosswords/strands-sidekick-897.html
+
 **Hurricane Lala Lashes Hawaii’s Big Island Without Making Landfall**\
 `The storm brought damaging winds and widespread power outages to Hawaii on Saturday as its eyewall grazed the Big Island’s southern tip.`\
 https://www.nytimes.com/video/us/100000011094765/hurricane-lala-lashes-hawaiis-big-island-without-making-landfall.html
@@ -169,30 +193,6 @@ https://www.nytimes.com/2026/08/16/world/europe/italy-priest-shortage.html
 **Tour ‘Furious’ Actress Emmy Rossum’s Upper East Side Apartment**\
 `The ‘Furious’ actress long dreamed of returning to the neighborhood where she grew up, but with more square footage this time.`\
 https://www.nytimes.com/interactive/2026/08/16/realestate/emmy-rossum-home-tour-furious.html
-
-**How Madonna Put Motion Into Music With Her Dance Performances**\
-`Dance is neither a tool nor an accessory for Madonna. It is an unwavering force in her performing life.`\
-https://www.nytimes.com/2026/08/16/arts/dance/madonna-dance-music.html
-
-**Quote of the Day: Cyclospora Reveals Flaws in the Food Safety System**\
-`Quotation of the Day for Sunday, August 16, 2026.`\
-https://www.nytimes.com/2026/08/16/pageoneplus/quote-of-the-day-cyclospora-reveals-flaws-in-the-food-safety-system.html
-
-**Hurricane Lala Threatens Hawaii Farms Still Recovering From March Floods**\
-`Hawaii imports most of its food, but Lala could still deal a significant blow to state agriculture. March storms caused at least $50 million in damages to crops, livestock and equipment.`\
-https://www.nytimes.com/2026/08/15/weather/hawaii-agriculture-farms-hurricane-lala.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/us/100000011094603/16vid-bigisland-embed-74288.html
-
-**Shelters Open as Lala Advances Toward Hawaii**\
-`A mix of tourists and locals began gathering at a high school on Saturday morning.`\
-https://www.nytimes.com/2026/08/15/weather/hurricane-lala-shelters.html
-
-**Some Daring Surfers Seek Waves as Hurricane Lala Approaches**\
-`“We have time, so why don’t we enjoy it?” one beachgoer said as the storm made its way across the Pacific.`\
-https://www.nytimes.com/2026/08/15/weather/some-daring-surfers-seek-waves-as-hurricane-lala-approaches.html
 
 **Hurricane Lala Lashes Hawaii’s Big Island**\
 `The storm brought damaging winds and widespread power outages as its eyewall grazed the Big Island’s southern tip. The storm’s eye remained offshore as it began moving west toward the rest of the island chain.`\
