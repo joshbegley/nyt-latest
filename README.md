@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/100000011094737/16vid-bigisland-embed-Markus-Weltin.html
+
 **Europe Is Not Ready for American Weed**\
 `The race to go global is on.`\
 https://www.nytimes.com/2026/08/16/opinion/america-weed-cannabis-europe.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/08/15/opinion/trump-health-care-cuts.html
 **How Are the Democrats’ Midterm Dreams Shaping Up?**\
 `Democratic divisions, polling misses and Ocasio-Cortez’s egg freezing: the week in politics.`\
 https://www.nytimes.com/video/opinion/100000011090294/how-are-the-democrats-midterm-dreams-shaping-up.html
-
-**Quit Lit**\
-`There are good reasons to abandon books we’re not enjoying, but our attenuated attention might lead us to tap out too early.`\
-https://www.nytimes.com/2026/08/15/briefing/quit-lit.html
 
 **Live Updates: Hurricane Lala Lashes Hawaii’s Big Island but Avoids Landfall**\
 `The storm brought damaging winds and widespread power outages as its eyewall grazed the Big Island’s southern tip. The storm’s eye remained offshore as it began moving west toward the rest of the island chain.`\
