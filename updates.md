@@ -1,3 +1,7 @@
+**Shelters Open as Lala Advances Toward Hawaii**\
+`A mix of tourists and locals began gathering at a high school on Saturday morning.`\
+https://www.nytimes.com/2026/08/15/weather/hurricane-lala-shelters.html
+
 **Some Daring Surfers Seek Waves as Hurricane Lala Approaches**\
 `“We have time, so why don’t we enjoy it?” one beachgoer said as the storm made its way across the Pacific.`\
 https://www.nytimes.com/2026/08/15/weather/some-daring-surfers-seek-waves-as-hurricane-lala-approaches.html

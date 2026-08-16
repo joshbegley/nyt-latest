@@ -1,3 +1,7 @@
+**Shelters Open as Lala Advances Toward Hawaii**\
+`A mix of tourists and locals began gathering at a high school on Saturday morning.`\
+https://www.nytimes.com/2026/08/15/weather/hurricane-lala-shelters.html
+
 **Some Daring Surfers Seek Waves as Hurricane Lala Approaches**\
 `“We have time, so why don’t we enjoy it?” one beachgoer said as the storm made its way across the Pacific.`\
 https://www.nytimes.com/2026/08/15/weather/some-daring-surfers-seek-waves-as-hurricane-lala-approaches.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/08/15/espanol/estilos-de-vida/modern-love-flirte
 **Corrections: Aug. 15, 2026**\
 `Corrections that appeared in print on Saturday, Aug. 15, 2026.`\
 https://www.nytimes.com/2026/08/15/pageoneplus/corrections-aug-15-2026.html
-
-**Worker Pay Isn’t Keeping Up With Inflation Once Again**\
-`When prices spiked in 2021-22, wages failed to keep up for many workers, new research shows. Now the pattern is repeating.`\
-https://www.nytimes.com/2026/08/15/business/inflation-worker-pay.html
 
