@@ -1,3 +1,7 @@
+**Tras años de apoyar a Trump, el ICE detuvo a su esposa**\
+`El caso representa un nuevo frente en la campaña de deportación masiva en EE. UU.: arrestos en aeropuertos de personas que tienen casos de inmigración activos y sin antecedentes penales.`\
+https://www.nytimes.com/es/2026/08/16/espanol/estados-unidos/trump-detenciones-aeropuertos-ice.html
+
 **Lala Damages Utility Lines in Hawaii, Leaving Thousands Without Power**\
 `Tropical Storm Lala damaged 16 transmission lines and many towers on Hawaii’s Big Island, the state’s main utility said.`\
 https://www.nytimes.com/2026/08/16/weather/electricity-outages-hawaii.html
