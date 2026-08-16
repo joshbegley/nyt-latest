@@ -1,3 +1,11 @@
+**Top Admiral Praises Sailors but Concedes Hardships After Visit to U.S.S. Lincoln**\
+`Admiral Brad Cooper, head of U.S. Central Command, acknowledged the difficulty of the carrier’s nearly nine-month deployment but said mental health issues were lower than on other vessels.`\
+https://www.nytimes.com/2026/08/16/us/politics/uss-lincoln-iran-admiral.html
+
+**No Way Out**\
+`The U.S. is building an archipelago of overseas detention sites where deportees are often held indefinitely without charge.`\
+https://www.nytimes.com/2026/08/16/world/deportations-eswatini-italy-heist.html
+
 **Indiana Prepares for More Rain After Days of Deadly Storms**\
 `Since last week, hazardous weather has caused seven deaths, forced people from their homes and required some to be rescued by boat. The region was at risk for more flooding on Sunday.`\
 https://www.nytimes.com/2026/08/16/us/indiana-storms-flooding.html

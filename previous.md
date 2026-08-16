@@ -1,3 +1,11 @@
+**Top Admiral Praises Sailors but Concedes Hardships After Visit to U.S.S. Lincoln**\
+`Admiral Brad Cooper, head of U.S. Central Command, acknowledged the difficulty of the carrier’s nearly nine-month deployment but said mental health issues were lower than on other vessels.`\
+https://www.nytimes.com/2026/08/16/us/politics/uss-lincoln-iran-admiral.html
+
+**No Way Out**\
+`The U.S. is building an archipelago of overseas detention sites where deportees are often held indefinitely without charge.`\
+https://www.nytimes.com/2026/08/16/world/deportations-eswatini-italy-heist.html
+
 **Indiana Prepares for More Rain After Days of Deadly Storms**\
 `Since last week, hazardous weather has caused seven deaths, forced people from their homes and required some to be rescued by boat. The region was at risk for more flooding on Sunday.`\
 https://www.nytimes.com/2026/08/16/us/indiana-storms-flooding.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/16/arts/zilversmit-netherlands-podcast-book-holo
 **Book Review: ‘The Maltese Version,’ by Katy Simpson Smith**\
 `Are the 30-somethings in Katy Simpson Smith’s “The Maltese Version” in love? That depends on how you define it.`\
 https://www.nytimes.com/2026/08/16/books/review/the-maltese-version-katy-simpson-smith.html
-
-**A Shooting at the U.S. Consulate in Toronto Exposes a Neighborhood’s Guns-for-Hire Network**\
-`A shooting at a U.S. Consulate has thrust a neighborhood with a troubled past into the center of an emerging criminal phenomenon: young guns for hire as gig workers in the underworld economy.`\
-https://www.nytimes.com/2026/08/16/world/canada/us-consulate-synagogue-shooting-toronto-canada.html
-
-**Trump’s Other Hold on the Americas: The Visa**\
-`As part of its expansionist approach to the Western Hemisphere, the Trump administration is trying to reassert its dominance, one U.S. visa at a time.`\
-https://www.nytimes.com/2026/08/16/world/americas/trump-americas-visas.html
 
