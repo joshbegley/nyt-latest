@@ -1,3 +1,7 @@
+**Live Updates: Hurricane Lala Lashes Hawaii’s Big Island but Avoids Landfall**\
+`The storm brought damaging winds and widespread power outages as its eyewall grazed the Big Island’s southern tip.`\
+https://www.nytimes.com/live/2026/08/16/weather/lala-tropical-storm-hurricane-hawaii
+
 **El otro control de Trump sobre América Latina: la visa**\
 `Como parte de su enfoque expansionista hacia el hemisferio occidental, el gobierno del presidente Trump intenta reafirmar su dominio, una visa estadounidense a la vez.`\
 https://www.nytimes.com/es/2026/08/16/espanol/america-latina/trump-control-america-visa.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/08/15/weather/some-daring-surfers-seek-waves-as-hur
 **Lala Heads for a State With Older Housing Stock**\
 `Experts warned that many houses on the Big Island weren’t built for hurricane-force wind and rain.`\
 https://www.nytimes.com/2026/08/15/weather/15storm-lala-homes-vulnerability.html
-
-**Take the Edge Off**\
-`Sam Brody’s second Sunday puzzle provides infinite solving pleasure.`\
-https://www.nytimes.com/2026/08/15/crosswords/daily-puzzle-2026-08-16.html
 
 **Hurricane Lala Lashes Hawaii’s Big Island**\
 `The storm brought damaging winds and widespread power outages as its eyewall grazed the Big Island’s southern tip. The storm’s eye remained offshore as it began moving west toward the rest of the island chain.`\
