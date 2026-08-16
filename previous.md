@@ -87,7 +87,7 @@ https://www.nytimes.com/2026/08/16/crosswords/strands-sidekick-897.html
 https://www.nytimes.com/video/us/100000011094765/hurricane-lala-lashes-hawaiis-big-island-without-making-landfall.html
 
 **Live Updates: Lala Lashes Hawaii With Heavy Rain and Wind but Avoids Landfall**\
-`More than 200,000 customers were without power from the storm, which was downgraded from a Category 1 hurricane early Sunday. Forecasters and local officials warned of flooding and urged residents to stay put.`\
+`About 200,000 customers were without power from the storm, which was downgraded from a Category 1 hurricane early Sunday. Forecasters and local officials warned of flooding and urged residents to stay put.`\
 https://www.nytimes.com/live/2026/08/16/weather/lala-tropical-storm-hurricane-hawaii
 
 **El otro control de Trump sobre América Latina: la visa**\

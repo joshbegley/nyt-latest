@@ -1,3 +1,7 @@
+**Live Updates: Lala Lashes Hawaii With Heavy Rain and Wind but Avoids Landfall**\
+`About 200,000 customers were without power from the storm, which was downgraded from a Category 1 hurricane early Sunday. Forecasters and local officials warned of flooding and urged residents to stay put.`\
+https://www.nytimes.com/live/2026/08/16/weather/lala-tropical-storm-hurricane-hawaii
+
 **Tras años de apoyar a Trump, el ICE detuvo a su esposa**\
 `El caso representa un nuevo frente en la campaña de deportación masiva en EE. UU.: arrestos en aeropuertos de personas que tienen casos de inmigración activos y sin antecedentes penales.`\
 https://www.nytimes.com/es/2026/08/16/espanol/estados-unidos/trump-detenciones-aeropuertos-ice.html
