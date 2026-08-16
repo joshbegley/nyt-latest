@@ -1,3 +1,11 @@
+**Lala Damages Utility Lines in Hawaii, Leaving Thousands Without Power**\
+`Tropical Storm Lala damaged 16 transmission lines and many towers on Hawaii’s Big Island, the state’s main utility said.`\
+https://www.nytimes.com/2026/08/16/weather/electricity-outages-hawaii.html
+
+**Blanche Says He Will Not Pledge to Always Act Independently of White House**\
+`Todd Blanche, the newly confirmed attorney general, refused to say that he would always act independently of the White House in an interview Sunday on NBC’s “Meet the Press.”`\
+https://www.nytimes.com/video/us/politics/100000011095012/todd-blanche-attorney-general-trump.html
+
 **En Barcelona puedes encontrar el lugar perfecto para disfrutar un vermut y aperitivos**\
 `Los residentes de la capital catalana se toman en serio sus rituales en los bares clásicos, conocidos como bodegas. Si sabes dónde buscar, puedes unirte a ellos.`\
 https://www.nytimes.com/es/2026/08/16/espanol/mundo/barcelona-mejores-bodegas-vermut.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/es/2026/08/16/espanol/opinion/transbordo-aranceles-expor
 **Una copa con las últimas monjas de Nueva York**\
 `A medida que desaparecen los conventos, las hermanas afrontan juntas el final de sus vidas y han trasladado la fiesta a una residencia para adultos mayores en las afueras de la ciudad.`\
 https://www.nytimes.com/es/2026/08/16/espanol/estados-unidos/ultimas-monjas-nueva-york.html
-
-**Algunos de los mejores ‘thrillers’ del siglo XXI también son grandes películas y series**\
-`De “Big Little Lies” a “You”, nuestra lista de grandes thrillers psicológicos, novelas de espionaje y ficción criminal ha inspirado un montón de grandes adaptaciones.`\
-https://www.nytimes.com/es/2026/08/16/espanol/cultura/mejores-thrillers-siglo-xxi-peliculas-series.html
-
-**Las mujeres afganas han sido borradas de la vida pública en 5 años de gobierno talibán**\
-`A cinco años de gobierno de los talibanes, unos 20 millones de mujeres y niñas han quedado al margen de la educación, el trabajo, los viajes y la vida independiente.`\
-https://www.nytimes.com/es/2026/08/16/espanol/mundo/mujeres-afganas-gobierno-taliban.html
 
