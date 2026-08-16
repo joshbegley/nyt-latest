@@ -1,3 +1,11 @@
+**Europe Is Not Ready for American Weed**\
+`The race to go global is on.`\
+https://www.nytimes.com/2026/08/16/opinion/america-weed-cannabis-europe.html
+
+**The Future of Reading Is a Party**\
+`Come join the fun.`\
+https://www.nytimes.com/2026/08/16/opinion/reading-literacy-books-education.html
+
 **La pista de baile salvó a Madonna. Luego, ella la expandió para todos**\
 `Para Madonna, el baile no es ni una herramienta ni un accesorio. Es una fuerza inquebrantable en su carrera artística.`\
 https://www.nytimes.com/es/2026/08/16/espanol/cultura/madonna-baile-danza.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/15/briefing/quit-lit.html
 **My Mother Is Dying. Does That Mean I Have to Do Everything She Asks?**\
 `I don’t want to say no to everything, but I would like that option sometimes.`\
 https://www.nytimes.com/2026/08/15/magazine/dying-mother-demands-ethics.html
-
-**Summer Camps Strive to Stay Part of Canadian Life, Despite Hurdles**\
-`Long a tradition for many kids and teenagers across the country, overnight camps are facing financial and cultural hurdles as inflation bites and parenting trends shift.`\
-https://www.nytimes.com/2026/08/15/world/canada/sleepaway-summer-camp-children-ontario-canada.html
-
-**NYT Connections Answers for August 16, 2026**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Aug. 16, 2026.`\
-https://www.nytimes.com/2026/08/15/crosswords/connections-companion-1162.html
 
