@@ -1,3 +1,7 @@
+**Indiana Prepares for More Rain After Days of Deadly Storms**\
+`Since last week, hazardous weather has caused seven deaths, forced people from their homes and required some to be rescued by boat. The region was at risk for more flooding on Sunday.`\
+https://www.nytimes.com/2026/08/16/us/indiana-storms-flooding.html
+
 **Kushner Holds Talks With Hamas to Advance Trump Gaza Plan**\
 `The president’s adviser met with representatives of the armed Palestinian group in Egypt, several officials said.`\
 https://www.nytimes.com/2026/08/16/world/middleeast/kushner-hamas-talks.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/16/world/canada/us-consulate-synagogue-shooting-
 **Trump’s Other Hold on the Americas: The Visa**\
 `As part of its expansionist approach to the Western Hemisphere, the Trump administration is trying to reassert its dominance, one U.S. visa at a time.`\
 https://www.nytimes.com/2026/08/16/world/americas/trump-americas-visas.html
-
-**Cholera Outbreak Sickens Over 90 in Myanmar’s Biggest City**\
-`Civil war and military rule have weakened Myanmar’s health care system, while heavy monsoon rains have increased the risk of waterborne disease.`\
-https://www.nytimes.com/2026/08/16/world/asia/cholera-outbreak-yangon-myanmar.html
 
