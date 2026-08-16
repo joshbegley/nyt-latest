@@ -38,7 +38,7 @@ https://www.nytimes.com/2026/08/16/crosswords/connections-companion-1163.html
 `Scroll down for hints and conversation about the puzzle for Monday, Aug. 17, 2026.`\
 https://www.nytimes.com/2026/08/16/crosswords/wordle-review-1885.html
 
-**Friends Wanted Me to Cut Off My Father. They Were Wrong.**\
+**Cutting Your Parents Off Isn’t the Answer**\
 `Many queer people are going no contact — cutting off their families for myriad reasons. It’s not always the right answer.`\
 https://www.nytimes.com/2026/08/16/opinion/parents-children-no-contact-families.html
 
@@ -50,8 +50,8 @@ https://www.nytimes.com/2026/08/16/crosswords/strands-sidekick-897.html
 `The storm brought damaging winds and widespread power outages to Hawaii on Saturday as its eyewall grazed the Big Island’s southern tip.`\
 https://www.nytimes.com/video/us/100000011094765/hurricane-lala-lashes-hawaiis-big-island-without-making-landfall.html
 
-**Live Updates: Storm Lala Lashes Hawaii’s Big Island but Avoids Landfall**\
-`Lala was downgraded from a Category 1 hurricane to a tropical storm early Sunday, but forecasters warned that damage could still be significant. A flash flood warning was in effect on the Big Island.`\
+**Live Updates: Lala Lashes Hawaii’s Big Island but Avoids Landfall**\
+`Lala was downgraded from a Category 1 hurricane to a tropical storm early Sunday, but its heavy rains and strong winds could bring significant damage, forecasters warned. A flash flood warning was in effect on the Big Island.`\
 https://www.nytimes.com/live/2026/08/16/weather/lala-tropical-storm-hurricane-hawaii
 
 **El otro control de Trump sobre América Latina: la visa**\

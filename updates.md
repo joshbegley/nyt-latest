@@ -1,3 +1,11 @@
+**Cutting Your Parents Off Isn’t the Answer**\
+`Many queer people are going no contact — cutting off their families for myriad reasons. It’s not always the right answer.`\
+https://www.nytimes.com/2026/08/16/opinion/parents-children-no-contact-families.html
+
+**Live Updates: Lala Lashes Hawaii’s Big Island but Avoids Landfall**\
+`Lala was downgraded from a Category 1 hurricane to a tropical storm early Sunday, but its heavy rains and strong winds could bring significant damage, forecasters warned. A flash flood warning was in effect on the Big Island.`\
+https://www.nytimes.com/live/2026/08/16/weather/lala-tropical-storm-hurricane-hawaii
+
 **Art Heist: 4 Antonello da Messina Paintings Stolen From Sicily**\
 `The works, by Antonello da Messina, were taken as the Sicilian city of Messina held a religious celebration.`\
 https://www.nytimes.com/2026/08/16/world/europe/italy-renaissance-art-heist.html
