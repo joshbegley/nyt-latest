@@ -1,3 +1,7 @@
+**As Lala Lashes Hawaii, the Atlantic Hurricane Season Remains Calm. So Far.**\
+`An El Niño weather pattern is expected to limit activity into the fall, providing a stabilizing force.`\
+https://www.nytimes.com/2026/08/16/weather/el-nino-lala-tropical-storm.html
+
 **It’s a Crowded Place With Some of the City’s Trickiest Traffic**\
 `A fatal accident has drawn attention to New York Harbor, a popular destination where not everyone necessarily knows the rules — or follows them.`\
 https://www.nytimes.com/2026/08/16/nyregion/new-york-harbor-safety.html

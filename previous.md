@@ -1,3 +1,7 @@
+**As Lala Lashes Hawaii, the Atlantic Hurricane Season Remains Calm. So Far.**\
+`An El Niño weather pattern is expected to limit activity into the fall, providing a stabilizing force.`\
+https://www.nytimes.com/2026/08/16/weather/el-nino-lala-tropical-storm.html
+
 **Blanche Refuses to Say He’ll Always Be Independent of Trump as Attorney General**\
 `The new head of the Justice Department said on “Meet the Press” on Sunday that the president had never asked him to prosecute specific people — and never would.`\
 https://www.nytimes.com/2026/08/16/us/politics/blanche-trump-attorney-general-justice-department.html
@@ -14,13 +18,13 @@ https://www.nytimes.com/2026/08/16/world/europe/italy-renaissance-art-heist.html
 `Back-to-school season can be stressful. These five dinners are not.`\
 https://www.nytimes.com/2026/08/16/dining/easy-dinners-for-a-not-easy-time-of-year.html
 
-**He’s Awkward. He’s Sticky. He’s the Best Superhero.**\
-`If you want or need any superhero right now, you’re better off with Spider-Man.`\
-https://www.nytimes.com/2026/08/16/opinion/spider-man-brand-new-day-superhero.html
-
 **A Civil Debate About the Civil War**\
 `Readers respond to an Opinion guest essay about the various names given to the Civil War. Also: The Red Scare campaign ploy.`\
 https://www.nytimes.com/2026/08/16/opinion/civil-war-names.html
+
+**He’s Awkward. He’s Sticky. He’s the Best Superhero.**\
+`If you want or need any superhero right now, you’re better off with Spider-Man.`\
+https://www.nytimes.com/2026/08/16/opinion/spider-man-brand-new-day-superhero.html
 
 **Aircraft That Typically Track Atlantic Storms Are Flying Into Lala**\
 `With Atlantic activity down this season, rare Pacific missions are being undertaken to better understand the storm skirting Hawaii.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/16/nyregion/ralph-nader-stock-transfer-tax.html
 **‘As We Pulled Into the Station, We Each Took One Last Look’**\
 `A mutual admiration society on a downtown F, knitting on the bus and more reader tales of New York City in this week’s Metropolitan Diary.`\
 https://www.nytimes.com/2026/08/16/nyregion/metropolitan-diary.html
-
-**NYT Spelling Bee Answers for August 16, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/08/16/crosswords/spelling-bee-forum.html
 
