@@ -1,3 +1,7 @@
+**Democrats Face a Potential Tea Party Moment**\
+`A string of primary wins by progressive candidates has revealed the strength of a high-energy insurgent movement but also its possible limitations.`\
+https://www.nytimes.com/2026/08/16/us/politics/democratic-party-tea-party-moment.html
+
 **Live Updates: Lala Lashes Hawaii With Heavy Rain and Wind but Avoids Landfall**\
 `About 200,000 customers were without power from the storm, which was downgraded from a Category 1 hurricane early Sunday. Forecasters and local officials warned of flooding and urged residents to stay put.`\
 https://www.nytimes.com/live/2026/08/16/weather/lala-tropical-storm-hurricane-hawaii

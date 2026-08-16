@@ -1,3 +1,7 @@
+**Kushner Holds Talks With Hamas to Advance Trump Gaza Plan**\
+`The president’s adviser met with representatives of the armed Palestinian group in Egypt, several officials said.`\
+https://www.nytimes.com/2026/08/16/world/middleeast/kushner-hamas-talks.html
+
 **Tras años de apoyar a Trump, el ICE detuvo a su esposa**\
 `El caso representa un nuevo frente en la campaña de deportación masiva en EE. UU.: arrestos en aeropuertos de personas que tienen casos de inmigración activos y sin antecedentes penales.`\
 https://www.nytimes.com/es/2026/08/16/espanol/estados-unidos/trump-detenciones-aeropuertos-ice.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/16/world/americas/trump-americas-visas.html
 **Cholera Outbreak Sickens Over 90 in Myanmar’s Biggest City**\
 `Civil war and military rule have weakened Myanmar’s health care system, while heavy monsoon rains have increased the risk of waterborne disease.`\
 https://www.nytimes.com/2026/08/16/world/asia/cholera-outbreak-yangon-myanmar.html
-
-**Fue una gran estafa mientras duró**\
-`El acceso preferencial al mercado estadounidense no es una licencia para blanquear las exportaciones de terceros.`\
-https://www.nytimes.com/es/2026/08/16/espanol/opinion/transbordo-aranceles-exportaciones.html
 

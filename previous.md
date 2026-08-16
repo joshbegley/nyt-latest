@@ -114,8 +114,8 @@ https://www.nytimes.com/2026/08/16/us/swalwell-seat-aisha-wahab-aipac.html
 `What I learned on an accidental pilgrimage.`\
 https://www.nytimes.com/2026/08/16/briefing/caravaggio.html
 
-**Is the Democratic Party Facing Its Own Tea Party Moment?**\
-`A string of primary wins by progressive candidates has revealed the strength of a high-energy insurgent movement but also its potential limitations.`\
+**Democrats Face a Potential Tea Party Moment**\
+`A string of primary wins by progressive candidates has revealed the strength of a high-energy insurgent movement but also its possible limitations.`\
 https://www.nytimes.com/2026/08/16/us/politics/democratic-party-tea-party-moment.html
 
 **He’s Hiking 2,190 Miles. We Tagged Along for 16, Cameras and All.**\
