@@ -1,3 +1,7 @@
+**Mamdani Speaks Mandarin to Promote Broadway, and Gets Good Reviews**\
+`Mayor Zohran Mamdani released videos in three languages to highlight a program that offers free theater tickets to high school students. His Mandarin earned some praise.`\
+https://www.nytimes.com/2026/08/16/nyregion/mamdani-mandarin-video.html
+
 **Trump Orders Pentagon to Curtail Military Exercises With Ally South Korea**\
 `In a social media post, the president scolded South Korea for not helping denuclearize Iran, and also praised North Korea and its leader.`\
 https://www.nytimes.com/2026/08/16/us/politics/trump-south-korea-military-exercises.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/16/us/politics/military-ai-china-anthropic.html
 **A Free-for-All in Alaska as 17 Candidates Compete to Be Governor**\
 `Facing huge decisions, the oil-rich, cash-poor state will send four candidates to the final ballot in November. With so many candidates chasing so few voters, the hunt is intense.`\
 https://www.nytimes.com/2026/08/16/us/elections/alaska-governor-primary.html
-
-**As A.I. Data Centers Spread, Pressure Mounts to Share Profits**\
-`Policymakers around the country are maneuvering to ensure that tech giants aren’t the only ones who stand to benefit.`\
-https://www.nytimes.com/2026/08/16/business/ai-data-centers.html
 
