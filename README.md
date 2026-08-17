@@ -118,8 +118,8 @@ https://www.nytimes.com/2026/08/17/arts/music/stefan-zweig-home-salzburg.html
 `The armed group, based in Yemen and backed by Iran, said it had launched missiles near the vital maritime trade route, in a conflict that shows no sign of abating.`\
 https://www.nytimes.com/2026/08/17/world/middleeast/houthis-saudi-strike.html
 
-**Tupac Shakur Murder Trial Updates: Prosecutors Call First Witnesses After Opening Statements**\
-`A responding officer and a woman who had been in a nearby car testified to the events following the drive-by shooting of Tupac Shakur in 1996. Duane Keith Davis is now on trial, accused of supplying the murder weapon.`\
+**Tupac Shakur Murder Trial Begins With Revenge Motive and Defendant’s Own Words**\
+`Duane Keith Davis is on trial for orchestrating the 1996 shooting, which he described in a memoir that he has since disavowed.`\
 https://www.nytimes.com/live/2026/08/17/arts/tupac-murder-trial-duane-davis
 
 **Hayden Panettiere, Known for ‘Nashville’ and ‘Heroes,’ Dies at 36**\
