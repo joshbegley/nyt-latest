@@ -1,3 +1,15 @@
+**Lawyers Give Opening Statements in Tupac Shakur Murder Trial**\
+`Nevada prosecutors accuse Duane Keith Davis of acquiring a .40-caliber Glock and pursuing the rapper in a white Cadillac shortly before the fatal shooting on Sept. 7, 1996.`\
+https://www.nytimes.com/video/us/100000011096956/tupac-death-hearing-duane-davis.html
+
+**Mis estudiantes me vieron batallar con un libro clásico. Eso lo cambió todo**\
+`En la era algorítmica, la enseñanza efectiva debe ser afectiva. Necesitamos reconocer que el desafío de nuestro tiempo no es principalmente intelectual, sino sentimental.`\
+https://www.nytimes.com/es/2026/08/17/espanol/opinion/dostoyevski-estudiantes-pasion-motivacion.html
+
+**Facing Quagmire in Iran, Trump Turns to a Familiar Face: North Korea’s Kim Jong-un**\
+`Seven years ago, President Trump failed to disarm North Korea and walked away. Could the same thing happen with Iran?`\
+https://www.nytimes.com/2026/08/17/us/politics/trump-iran-north-korea-kim-jong-un.html
+
 **Judge Rules Trump Administration Can’t Scrap F.B.I. Move to Maryland**\
 `The ruling is almost certainly not the end of the lengthy fight over the F.B.I.’s future headquarters, which has lasted for years.`\
 https://www.nytimes.com/2026/08/17/us/politics/fbi-headquarters-maryland-trump.html

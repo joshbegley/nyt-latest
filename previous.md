@@ -1,3 +1,15 @@
+**Lawyers Give Opening Statements in Tupac Shakur Murder Trial**\
+`Nevada prosecutors accuse Duane Keith Davis of acquiring a .40-caliber Glock and pursuing the rapper in a white Cadillac shortly before the fatal shooting on Sept. 7, 1996.`\
+https://www.nytimes.com/video/us/100000011096956/tupac-death-hearing-duane-davis.html
+
+**Mis estudiantes me vieron batallar con un libro clásico. Eso lo cambió todo**\
+`En la era algorítmica, la enseñanza efectiva debe ser afectiva. Necesitamos reconocer que el desafío de nuestro tiempo no es principalmente intelectual, sino sentimental.`\
+https://www.nytimes.com/es/2026/08/17/espanol/opinion/dostoyevski-estudiantes-pasion-motivacion.html
+
+**Facing Quagmire in Iran, Trump Turns to a Familiar Face: North Korea’s Kim Jong-un**\
+`Seven years ago, President Trump failed to disarm North Korea and walked away. Could the same thing happen with Iran?`\
+https://www.nytimes.com/2026/08/17/us/politics/trump-iran-north-korea-kim-jong-un.html
+
 **Judge Rules Trump Administration Can’t Scrap F.B.I. Move to Maryland**\
 `The ruling is almost certainly not the end of the lengthy fight over the F.B.I.’s future headquarters, which has lasted for years.`\
 https://www.nytimes.com/2026/08/17/us/politics/fbi-headquarters-maryland-trump.html
@@ -169,18 +181,6 @@ https://www.nytimes.com/2026/08/17/technology/ai-slop.html
 **Supreme Court Again Rejects Trump’s Appeal of $5 Million E. Jean Carroll Payment**\
 `The court declined President Trump’s long-shot request that it reconsider his appeal. He has separately asked the court to overturn a much larger 2024 award.`\
 https://www.nytimes.com/2026/08/17/us/politics/supreme-court-trump-carroll.html
-
-**Tara Erraught Makes Role Debut in “Il viaggio a Reims” at the Salzburg Festival**\
-`The opera singer made her role debut as the hotel host in “Il viaggio a Reims” at this year’s Salzburg Festival.`\
-https://www.nytimes.com/2026/08/17/arts/music/tara-erraught-salzburg-festival.html
-
-**Philippe Sly Is Living With Monks Ahead of Playing St. Francis at the Salzburg Festival**\
-`Philippe Sly felt he needed an immersion course to portray St. Francis in the new Salzburg Festival production of “St. François d’Assise.”`\
-https://www.nytimes.com/2026/08/17/arts/music/philippe-sly-francis-salzburg-festival.html
-
-**Stefan Zweig’s Former Home, Paschinger Schlössl, Is Again For Sale in Salzburg**\
-`The former home of Stefan Zweig, the Jewish Austrian writer, is unexpectedly for sale.`\
-https://www.nytimes.com/2026/08/17/arts/music/stefan-zweig-home-salzburg.html
 
 **Tupac Shakur Murder Trial Begins With Revenge Motive and Defendant’s Own Words**\
 `Duane Keith Davis is on trial for orchestrating the 1996 shooting, which he described in a memoir that he has since disavowed.`\
