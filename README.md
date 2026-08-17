@@ -1,3 +1,7 @@
+**Trump se acerca a Corea del Norte y tensa la alianza con Corea del Sur**\
+`El presidente Trump quiere reducir los ejercicios militares con Corea del Sur, diciendo que eran hostiles hacia Corea del Norte. Pero bajo el mandato de Kim, el Norte se ha vuelto cada vez más beligerante.`\
+https://www.nytimes.com/es/2026/08/17/espanol/mundo/trump-kim-jong-corea-sur-ejercicios-militares.html
+
 **More Naming Drama at the Kennedy Center**\
 `Readers respond to the Kennedy Center Board’s vote to inscribe President Trump’s name on the building. Also, winning the A.I. race; a slogan for Democrats.`\
 https://www.nytimes.com/2026/08/17/opinion/trump-kennedy-center.html
@@ -177,8 +181,4 @@ https://www.nytimes.com/es/2026/08/17/espanol/estilos-de-vida/ejercicios-equilib
 **Democratic Socialists Look for Upsets in Hostile Territory: Florida**\
 `Three primaries for the House and the Senate on Tuesday pose a fresh test for the left, this time in a conservative-leaning state where socialism is often seen as a dirty word.`\
 https://www.nytimes.com/2026/08/17/us/florida-primaries-democratic-socialists.html
-
-**Buttigieg and El-Sayed Are Claiming Faith and Family for the Democrats**\
-`Flag, faith and family don’t belong to one political party.`\
-https://www.nytimes.com/2026/08/17/opinion/buttigieg-el-sayed-patriotism.html
 
