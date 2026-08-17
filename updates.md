@@ -1,3 +1,31 @@
+**Hayden Panettiere, Known for ‘Nashville’ and ‘Heroes,’ Dies at 36**\
+`Hayden Panettiere began her career as a child actress before establishing herself as a star with roles on the TV shows “Heroes” and “Nashville.”`\
+https://www.nytimes.com/video/arts/television/100000011095722/hayden-panettiere-dead-nashville-heroes.html
+
+**Do You Know These Notable Places Linked to Children’s Literature?**\
+`Try this short quiz on locations that were significant to popular 20th-century children’s books authors.`\
+https://www.nytimes.com/quiz/2026/08/17/bookreview/childrens-book-landmarks.html
+
+**Today, In Short**\
+`A shade of blue. The world’s ugliest dog. And Madonna.`\
+https://www.nytimes.com/2026/08/17/briefing/today-in-short.html
+
+**Shrimp and Avocado Salad With Peanut Dressing; One-Pot Orzo With Zucchini**\
+`Ideal meals for the back half of August.`\
+https://www.nytimes.com/2026/08/17/dining/shrimp-and-avocado-salad-with-peanut-dressing-one-pot-orzo-with-zucchini.html
+
+**How Wildfire Smoke Affects Your Health**\
+`Scientists have found that people are being exposed to more toxins than previously known.`\
+https://www.nytimes.com/article/wildfire-smoke-health-effect.html
+
+**The Democrats Aren’t in Tea Party Territory — Yet**\
+`Democrats aren’t shifting left as much as you may think.`\
+https://www.nytimes.com/2026/08/17/opinion/el-sayed-ocasio-cortez-mamdani-sanders.html
+
+**Trump Lashes Out as Preliminary Deal With Iran Expires**\
+`President Trump took aim at Oman, a U.S. ally that has been mediating the talks, as efforts to end a war he started have faltered.`\
+https://www.nytimes.com/2026/08/17/us/politics/trump-iran-truce-oman.html
+
 **Killings Plunge in a City Once Known for Violence**\
 `After decades of notoriously high murder totals, Baltimore and the people whose work entails dealing with the city’s most violent crimes are adjusting to a new reality.`\
 https://www.nytimes.com/2026/08/17/us/baltimore-historic-decline-murder-homicide.html

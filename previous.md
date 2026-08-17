@@ -1,3 +1,31 @@
+**Hayden Panettiere, Known for ‘Nashville’ and ‘Heroes,’ Dies at 36**\
+`Hayden Panettiere began her career as a child actress before establishing herself as a star with roles on the TV shows “Heroes” and “Nashville.”`\
+https://www.nytimes.com/video/arts/television/100000011095722/hayden-panettiere-dead-nashville-heroes.html
+
+**Do You Know These Notable Places Linked to Children’s Literature?**\
+`Try this short quiz on locations that were significant to popular 20th-century children’s books authors.`\
+https://www.nytimes.com/quiz/2026/08/17/bookreview/childrens-book-landmarks.html
+
+**Today, In Short**\
+`A shade of blue. The world’s ugliest dog. And Madonna.`\
+https://www.nytimes.com/2026/08/17/briefing/today-in-short.html
+
+**Shrimp and Avocado Salad With Peanut Dressing; One-Pot Orzo With Zucchini**\
+`Ideal meals for the back half of August.`\
+https://www.nytimes.com/2026/08/17/dining/shrimp-and-avocado-salad-with-peanut-dressing-one-pot-orzo-with-zucchini.html
+
+**How Wildfire Smoke Affects Your Health**\
+`Scientists have found that people are being exposed to more toxins than previously known.`\
+https://www.nytimes.com/article/wildfire-smoke-health-effect.html
+
+**The Democrats Aren’t in Tea Party Territory — Yet**\
+`Democrats aren’t shifting left as much as you may think.`\
+https://www.nytimes.com/2026/08/17/opinion/el-sayed-ocasio-cortez-mamdani-sanders.html
+
+**Trump Lashes Out as Preliminary Deal With Iran Expires**\
+`President Trump took aim at Oman, a U.S. ally that has been mediating the talks, as efforts to end a war he started have faltered.`\
+https://www.nytimes.com/2026/08/17/us/politics/trump-iran-truce-oman.html
+
 **Netflix, Ruth E. Carter and Lil’ Flip: It’s August on Martha’s Vineyard.**\
 `The Massachusetts island is booming as an epicenter of Black joy, cultural power and corporate investment.`\
 https://www.nytimes.com/2026/08/17/style/marthas-vineyard-black-community-events.html
@@ -165,32 +193,4 @@ https://www.nytimes.com/2026/08/17/well/needle-injections-peptides-glp1-drugs-bo
 **Maria Geyman Celebrates Her Book at Manhattan’s Russian Tea Room**\
 `Maria Geyman, the Kyiv-born founder of Masha Tea, gathered friends — and her family’s Soviet-era tea ware — to celebrate her first book at a New York institution.`\
 https://www.nytimes.com/2026/08/17/t-magazine/maria-geyman-masha-tea-party-book.html
-
-**How Louisiana’s New Surgeon General Wants to Transform Public Health**\
-`Dr. Evelyn Griffin is pushing for more emphasis on wellness and prevention. She has also aligned with the MAHA movement in fighting government mandates and questioning the safety of some vaccines.`\
-https://www.nytimes.com/2026/08/17/us/evelyn-griffin-surgeon-general.html
-
-**I Hate Jeans. What Can I Wear Instead?**\
-`A reader asks for help finding an alternative to denim.`\
-https://www.nytimes.com/2026/08/17/fashion/jeans-alternatves-shopping.html
-
-**Islamophobia’s Rise in Texas: ‘I Won’t Rest Until Every Muslim Is Gone’**\
-`Muslim communities have been growing for decades, particularly around Dallas. Now, conservatives want to roll up the welcome mat.`\
-https://www.nytimes.com/2026/08/17/us/politics/islamophobia-texas.html
-
-**Preserving Hanji, the Ancient Korean Craft of Papermaking, in Ohio**\
-`Aimee Lee learned to make hanji with Korean masters. Now she practices their traditional technique in the United States.`\
-https://www.nytimes.com/2026/08/17/arts/design/korean-papermaker-hanji.html
-
-**Book Review: ‘Dèy,’ by Edwidge Danticat**\
-`In Edwidge Danticat’s new novel, “Dèy,” a Haitian American mother in Miami experiences the numbing aftershocks of a random act of violence.`\
-https://www.nytimes.com/2026/08/17/books/review/edwidge-danticat-dey.html
-
-**A French Start-Up, Inbolt, Makes Robots See, and Work, Better**\
-`Inbolt, a French start-up that sells robot vision systems, helped a Stellantis plant in Detroit become a top performer in the company.`\
-https://www.nytimes.com/2026/08/17/business/robots-stellantis-inbolt.html
-
-**Edwidge Danticat Explores the “Precarity of Life” in Her New Novel**\
-`A terrifying personal experience inspired Edwidge Danticat’s fifth novel, which is set in Miami and Brooklyn, but with Haiti always in mind.`\
-https://www.nytimes.com/2026/08/17/books/review/edwidge-danticat-dey-miami.html
 
