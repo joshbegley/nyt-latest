@@ -1,3 +1,7 @@
+**Live Updates: Tupac Shakur Murder Trial Arguments Hinge on Memoir, Interviews**\
+`The drive-by shooting of Tupac Shakur in 1996 was a pivotal moment in music history. Duane Keith Davis is now on trial, accused of supplying the murder weapon.`\
+https://www.nytimes.com/live/2026/08/17/arts/tupac-murder-trial-duane-davis
+
 **Live Updates: 30 Years After Tupac Shakur’s Murder, Opening Statements Are Underway in the Trial**\
 `The drive-by shooting of Tupac Shakur in 1996 was a pivotal moment in music history. Duane Keith Davis is now on trial, accused of supplying the murder weapon.`\
 https://www.nytimes.com/live/2026/08/17/arts/tupac-murder-trial-duane-davis
