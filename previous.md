@@ -1,3 +1,7 @@
+**Hurricane Lala Destroys Homes and Roads Across Hawaii**\
+`Hurricane Lala did not make landfall, but left behind destroyed roads and homes across Hawaii. Lala was downgraded to a tropical storm after moving away from the Big Island.`\
+https://www.nytimes.com/video/us/100000011096246/hurricane-lala-hawaii-damage.html
+
 **Tupac Shakur Murder Trial: Takeaways From Day 1**\
 `Prosecutors said Duane Keith Davis participated in the shooting as an act of gang retaliation, while the defense pointed to what it described as a lack of hard evidence.`\
 https://www.nytimes.com/2026/08/17/arts/music/tupac-shakur-murder-trial-takeaways-day-1.html
@@ -43,7 +47,7 @@ https://www.nytimes.com/2026/08/17/world/europe/russia-yabloko-party-election.ht
 https://www.nytimes.com/2026/08/17/arts/dance/pauline-clayden-dead.html
 
 **Paramount Asks States to Shoulder Costs of Delaying Warner Bros. Deal**\
-`Paramount’s $111 billion deal to acquire Warner Bros. Discovery has been postponed until the conclusion of a trial, scheduled for March.`\
+`Paramount’s $111 billion deal to acquire Warner Bros. Discovery has been postponed until the conclusion of a trial, a delay the studio says could cost it millions of dollars.`\
 https://www.nytimes.com/2026/08/17/business/paramount-warner-bros-antitrust-trial.html
 
 **Trump se acerca a Corea del Norte y tensa la alianza con Corea del Sur**\
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/08/17/pageoneplus/no-corrections-aug-16-2026.html
 **Andy Burnham, UK Prime Minister, Exchanged Texts With Someone Posing as Trump’s Chief of Staff**\
 `Prime Minister Andy Burnham messaged briefly with a person impersonating Susie Wiles, a British government official said.`\
 https://www.nytimes.com/2026/08/17/world/europe/andy-burnham-prime-minister-uk-fake-texts-trump.html
-
-**Mark Cuban and Other Founders Wade Into Wealth Tax Debate**\
-`Some entrepreneurs, including Mark Cuban, are publicly worried about the potential fallout from California’s proposal to impose a special billionaire tax.`\
-https://www.nytimes.com/2026/08/17/business/dealbook/cuban-founders-california-wealth-tax.html
 

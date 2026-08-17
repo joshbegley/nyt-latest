@@ -1,3 +1,11 @@
+**Hurricane Lala Destroys Homes and Roads Across Hawaii**\
+`Hurricane Lala did not make landfall, but left behind destroyed roads and homes across Hawaii. Lala was downgraded to a tropical storm after moving away from the Big Island.`\
+https://www.nytimes.com/video/us/100000011096246/hurricane-lala-hawaii-damage.html
+
+**Paramount Asks States to Shoulder Costs of Delaying Warner Bros. Deal**\
+`Paramount’s $111 billion deal to acquire Warner Bros. Discovery has been postponed until the conclusion of a trial, a delay the studio says could cost it millions of dollars.`\
+https://www.nytimes.com/2026/08/17/business/paramount-warner-bros-antitrust-trial.html
+
 **Tupac Shakur Murder Trial Begins With Revenge Motive and Defendant’s Own Words**\
 `Duane Keith Davis is on trial for orchestrating the 1996 shooting, which he described in a memoir that he has since disavowed.`\
 https://www.nytimes.com/live/2026/08/17/arts/tupac-murder-trial-duane-davis
