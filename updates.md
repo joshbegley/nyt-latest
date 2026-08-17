@@ -1,3 +1,11 @@
+**Houthis Claim Strike on Saudi Vessel as Red Sea Violence Escalates**\
+`The armed group, based in Yemen and backed by Iran, said it had launched missiles near the vital maritime trade route, in a conflict that shows no sign of abating.`\
+https://www.nytimes.com/2026/08/17/world/middleeast/houthis-saudi-strike.html
+
+**Live Updates: 30 Years After Tupac Shakur’s Murder, Trial Jurors Will Hear Outlines of Case**\
+`The drive-by shooting of Tupac Shakur in 1996 was a pivotal moment in music history. Duane Keith Davis is now on trial, accused of supplying the murder weapon.`\
+https://www.nytimes.com/live/2026/08/17/arts/tupac-murder-trial-duane-davis
+
 **Hayden Panettiere, Known for ‘Nashville’ and ‘Heroes,’ Dies at 36**\
 `Hayden Panettiere began her career as a child actress before establishing herself as a star with roles on the TV shows “Heroes” and “Nashville.”`\
 https://www.nytimes.com/video/arts/television/100000011095722/hayden-panettiere-dead-nashville-heroes.html

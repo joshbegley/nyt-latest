@@ -1,3 +1,19 @@
+**Supreme Court Again Rejects Trump’s Appeal of $5 Million E. Jean Carroll Payment**\
+`The court declined President Trump’s long-shot request that it reconsider his appeal. He has separately asked the court to overturn a much larger 2024 award.`\
+https://www.nytimes.com/2026/08/17/us/politics/supreme-court-trump-carroll.html
+
+**Tara Erraught Makes Role Debut in “Il viaggio a Reims” at the Salzburg Festival**\
+`The opera singer made her role debut as the hotel host in “Il viaggio a Reims” at this year’s Salzburg Festival.`\
+https://www.nytimes.com/2026/08/17/arts/music/tara-erraught-salzburg-festival.html
+
+**Philippe Sly Is Living With Monks Ahead of Playing St. Francis at the Salzburg Festival**\
+`Philippe Sly felt he needed an immersion course to portray St. Francis in the new Salzburg Festival production of “St. François d’Assise.”`\
+https://www.nytimes.com/2026/08/17/arts/music/philippe-sly-francis-salzburg-festival.html
+
+**Stefan Zweig’s Former Home, Paschinger Schlössl, Is Again For Sale in Salzburg**\
+`The former home of Stefan Zweig, the Jewish Austrian writer, is unexpectedly for sale.`\
+https://www.nytimes.com/2026/08/17/arts/music/stefan-zweig-home-salzburg.html
+
 **Houthis Claim Strike on Saudi Vessel as Red Sea Violence Escalates**\
 `The armed group, based in Yemen and backed by Iran, said it had launched missiles near the vital maritime trade route, in a conflict that shows no sign of abating.`\
 https://www.nytimes.com/2026/08/17/world/middleeast/houthis-saudi-strike.html
@@ -173,24 +189,4 @@ https://www.nytimes.com/2026/08/17/world/europe/from-the-sky-to-the-battlefield.
 **What Exile Means for an Artist**\
 `For many, the state of ‘in-betweenness’ can be a source of inspiration.`\
 https://www.nytimes.com/2026/08/17/t-magazine/exile-artists-pakistan.html
-
-**I Let My Students Watch Me Struggle With a Masterpiece. It Changed Everything.**\
-`Teachers need to model the passion they want to see.`\
-https://www.nytimes.com/2026/08/17/opinion/higher-ed-dostoevsky-attention.html
-
-**In Brittany, France’s Emerald Coast Enchants With Its Beaches, Oysters and More**\
-`A stretch of Brittany famous for its oysters, vast beaches and cool, maritime climate offers a refreshing alternative to Europe’s hotter destinations.`\
-https://www.nytimes.com/2026/08/17/travel/brittany-france-oysters-beaches.html
-
-**How One Woman With a Very Rare Disease Secured a Clinical Trial**\
-`Through sheer determination, Neena Nizar has become the first patient in a clinical trial testing a treatment for her disease — one so rare it affects just 30 people worldwide.`\
-https://www.nytimes.com/2026/08/17/science/clinical-trial-jansens-disease-nizar-nih.html
-
-**What Do Students Lose When They Stop Writing?**\
-`Educators are worried that many students can no longer write essays without A.I. And it’s costing more than just grammar skills.`\
-https://www.nytimes.com/2026/08/17/us/student-writing-essays-ai.html
-
-**Killings Plunge in a City Once Known for Violence**\
-`After decades of notoriously high murder totals, Baltimore and the people whose work entails dealing with the city’s most violent crimes are adjusting to a new reality.`\
-https://www.nytimes.com/2026/08/17/us/baltimore-historic-decline-murder-homicide.html
 
