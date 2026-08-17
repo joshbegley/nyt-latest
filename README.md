@@ -134,7 +134,7 @@ https://www.nytimes.com/2026/08/17/well/needle-injections-peptides-glp1-drugs-bo
 `Maria Geyman, the Kyiv-born founder of Masha Tea, gathered friends — and her family’s Soviet-era tea ware — to celebrate her first book at a New York institution.`\
 https://www.nytimes.com/2026/08/17/t-magazine/maria-geyman-masha-tea-party-book.html
 
-**How Louisiana’s New Surgeon General Wants to Transform Public Health.**\
+**How Louisiana’s New Surgeon General Wants to Transform Public Health**\
 `Dr. Evelyn Griffin is pushing for more emphasis on wellness and prevention. She has also aligned with the MAHA movement in fighting government mandates and questioning the safety of some vaccines.`\
 https://www.nytimes.com/2026/08/17/us/evelyn-griffin-surgeon-general.html
 

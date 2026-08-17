@@ -1,3 +1,11 @@
+**Watch Out for El Niño**\
+`We explain the climate phenomenon.`\
+https://www.nytimes.com/2026/08/17/briefing/watch-out-for-el-nino.html
+
+**How Louisiana’s New Surgeon General Wants to Transform Public Health.**\
+`Dr. Evelyn Griffin is pushing for more emphasis on wellness and prevention. She has also aligned with the MAHA movement in fighting government mandates and questioning the safety of some vaccines.`\
+https://www.nytimes.com/2026/08/17/us/evelyn-griffin-surgeon-general.html
+
 **Kushner Meets Netanyahu in Effort to Break Logjam Over Gaza**\
 `Prime Minister Benjamin Netanyahu of Israel has refused to pull back the country’s military until Hamas fully disarms. But the Trump administration is under pressure to show progress.`\
 https://www.nytimes.com/2026/08/17/world/middleeast/kushner-netanyahu-gaza-peace-deal.html
