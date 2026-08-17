@@ -18,7 +18,7 @@ https://www.nytimes.com/es/2026/08/17/espanol/mundo/incumplen-acuerdo-iran-eeeuu
 `Two St. Petersburg concerts by the rapper formerly known as Kanye West could become the first performances by a major Western act in Russia since the country invaded Ukraine.`\
 https://www.nytimes.com/2026/08/17/arts/music/ye-kanye-west-russia.html
 
-**No Evidence of Foul Play in Hayden Panettiere’s Death, Police Say**\
+**Hayden Panettiere’s Death and Police Investigation: What We Know**\
 `After responding to a 911 call, emergency responders pronounced the actress dead at an apartment complex in Greenville, S.C.`\
 https://www.nytimes.com/2026/08/17/arts/television/hayden-panettiere-death-foul-play.html
 
@@ -46,7 +46,7 @@ https://www.nytimes.com/2026/08/17/arts/music/stefan-zweig-home-salzburg.html
 `The armed group, based in Yemen and backed by Iran, said it had launched missiles near the vital maritime trade route, in a conflict that shows no sign of abating.`\
 https://www.nytimes.com/2026/08/17/world/middleeast/houthis-saudi-strike.html
 
-**Live Updates: 30 Years After Tupac Shakur’s Murder, Trial Jurors Will Hear Outlines of Case**\
+**Live Updates: 30 Years After Tupac Shakur’s Murder, Trial Jurors Hear Outlines of Case**\
 `The drive-by shooting of Tupac Shakur in 1996 was a pivotal moment in music history. Duane Keith Davis is now on trial, accused of supplying the murder weapon.`\
 https://www.nytimes.com/live/2026/08/17/arts/tupac-murder-trial-duane-davis
 
