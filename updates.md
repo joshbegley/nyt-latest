@@ -1,3 +1,7 @@
+**Border Construction in Big Bend Is Halted After Drawing Criticism**\
+`The Trump administration has been carving a path through some of the beloved national park’s major natural attractions.`\
+https://www.nytimes.com/2026/08/17/us/big-bend-border-wall-texas-construction.html
+
 **El libro de Hayden Panettiere explora los desafíos que enfrentó**\
 `A propósito de la publicación de sus memorias, la actriz habló con el Times sobre cómo su madre la puso en televisión a los 11 meses de edad, la pérdida de la custodia de su hija y más.`\
 https://www.nytimes.com/es/2026/08/17/espanol/hayden-panettiere-entrevista-libro-memorias.html

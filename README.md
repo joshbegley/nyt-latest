@@ -1,3 +1,11 @@
+**Hayden Panettiere: A Life in Pictures**\
+`The actress was a child star who went on to become a fixture of network TV dramas in the 2000s.`\
+https://www.nytimes.com/2026/08/17/arts/television/hayden-panettiere-life-in-pictures.html
+
+**Mamdani Officials Will Skip Council Hearing on Second-Home Tax**\
+`The administration plans to submit written testimony instead of attending, city officials said. A lawsuit over the rollout of the tax is pending.`\
+https://www.nytimes.com/2026/08/17/nyregion/mamdani-city-council-hearing-second-home-tax.html
+
 **Border Construction in Big Bend Is Halted After Drawing Criticism**\
 `The Trump administration has been carving a path through some of the beloved national park’s major natural attractions.`\
 https://www.nytimes.com/2026/08/17/us/big-bend-border-wall-texas-construction.html
@@ -173,12 +181,4 @@ https://www.nytimes.com/2026/08/17/world/middleeast/kushner-netanyahu-gaza-peace
 **U.S. and Iran Blow Past War Deadline, and the Rise of Islamophobia in Texas**\
 `Plus, Hayden Panettiere dies at 36.`\
 https://www.nytimes.com/2026/08/17/podcasts/the-headlines/us-iran-deadline-war-islamophobia-texas.html
-
-**Luigi Mangione’s High-Risk Legal Strategy**\
-`Mr. Mangione pleaded guilty to stalking charges in the killing of Brian Thompson, a health insurance executive, a calculated gamble by his defense team.`\
-https://www.nytimes.com/2026/08/17/podcasts/the-daily/luigi-mangiones-legal-strategy-guilty-plea.html
-
-**NYT Connections Answers for August 18, 2026**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, Aug. 18, 2026.`\
-https://www.nytimes.com/2026/08/17/crosswords/connections-companion-1164.html
 
