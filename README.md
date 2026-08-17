@@ -83,7 +83,7 @@ https://www.nytimes.com/2026/08/17/arts/music/stefan-zweig-home-salzburg.html
 https://www.nytimes.com/2026/08/17/world/middleeast/houthis-saudi-strike.html
 
 **Live Updates: Prosecutors Call First Witnesses in Tupac Shakur Murder Trial**\
-`The drive-by shooting of Tupac Shakur in 1996 was a pivotal moment in music history. Duane Keith Davis is now on trial, accused of supplying the murder weapon.`\
+`A responding officer and a woman who had been in a nearby car testified to the events following the drive-by shooting of Tupac Shakur in 1996.`\
 https://www.nytimes.com/live/2026/08/17/arts/tupac-murder-trial-duane-davis
 
 **Hayden Panettiere, Known for ‘Nashville’ and ‘Heroes,’ Dies at 36**\

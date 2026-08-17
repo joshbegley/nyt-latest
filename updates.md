@@ -1,3 +1,11 @@
+**Barred From Ballot, a Party Becomes a Vessel for Russians’ Discontent**\
+`The spotlight on the country’s only antiwar party has brought a spark to what had looked like another dull, tightly controlled election campaign.`\
+https://www.nytimes.com/2026/08/17/world/europe/russia-yabloko-party-election.html
+
+**Hayden Panettiere’s Death and Police Investigation: What We Know**\
+`After the authorities responded to a 911 call in Greenville, S.C., an initial police investigation found no evidence of “foul play or suspicious circumstances.”`\
+https://www.nytimes.com/2026/08/17/arts/television/hayden-panettiere-death-foul-play.html
+
 **Pauline Clayden, Dancer in a Seminal 1949 ‘Sleeping Beauty,’ Dies at 103**\
 `She was the last known surviving soloist from an event that changed American dance: the opening night of Sadler’s Wells Ballet’s first U.S. tour.`\
 https://www.nytimes.com/2026/08/17/arts/dance/pauline-clayden-dead.html
