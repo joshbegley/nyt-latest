@@ -1,3 +1,15 @@
+**No Evidence of Foul Play in Hayden Panettiere’s Death, Police Say**\
+`After responding to a 911 call, emergency responders pronounced the actress dead at an apartment complex in Greenville, S.C.`\
+https://www.nytimes.com/2026/08/17/arts/television/hayden-panettiere-death-foul-play.html
+
+**Live Updates: 30 Years After Tupac Shakur’s Murder, Trial Jurors Will Hear Outlines of Case**\
+`The drive-by shooting of Tupac Shakur in 1996 was a pivotal moment in music history. Duane Keith Davis is now on trial, accused of supplying the murder weapon.`\
+https://www.nytimes.com/live/2026/08/17/arts/tupac-murder-trial-duane-davis
+
+**Silicon Valley Was Right From the Start**\
+`Silicon Valley was never pacifist; it just followed the customers.`\
+https://www.nytimes.com/2026/08/17/opinion/silicon-valley-war-pentagon.html
+
 **Hayden Panettiere’s Death and Police Investigation: What We Know**\
 `After responding to a 911 call, emergency responders pronounced the actress dead at an apartment complex in Greenville, S.C.`\
 https://www.nytimes.com/2026/08/17/arts/television/hayden-panettiere-death-foul-play.html

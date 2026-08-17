@@ -1,7 +1,3 @@
-**Un oscuro pasado nazi sale a la luz y enfrenta a dos familias**\
-`Una mujer consiguió el expediente penal de su abuela, una colaboracionista, y se ofreció a compartirlo con una familia judía que había sido traicionada. Después se retractó y comenzó una nueva disputa.`\
-https://www.nytimes.com/es/2026/08/17/espanol/cultura/familia-nazi-colaboracionista.html
-
 **‘Benevolent’ Review: Trapped Women Dreaming of Escape**\
 `With her usual irreverent humor, the playwright Sophie McIntosh mines the experiences of four young, cooped-up women at a Manhattan reformatory in 1917.`\
 https://www.nytimes.com/2026/08/17/theater/benevolent-review-sophie-mcintosh.html
@@ -18,7 +14,7 @@ https://www.nytimes.com/es/2026/08/17/espanol/mundo/incumplen-acuerdo-iran-eeeuu
 `Two St. Petersburg concerts by the rapper formerly known as Kanye West could become the first performances by a major Western act in Russia since the country invaded Ukraine.`\
 https://www.nytimes.com/2026/08/17/arts/music/ye-kanye-west-russia.html
 
-**Hayden Panettiere’s Death and Police Investigation: What We Know**\
+**No Evidence of Foul Play in Hayden Panettiere’s Death, Police Say**\
 `After responding to a 911 call, emergency responders pronounced the actress dead at an apartment complex in Greenville, S.C.`\
 https://www.nytimes.com/2026/08/17/arts/television/hayden-panettiere-death-foul-play.html
 
@@ -46,7 +42,7 @@ https://www.nytimes.com/2026/08/17/arts/music/stefan-zweig-home-salzburg.html
 `The armed group, based in Yemen and backed by Iran, said it had launched missiles near the vital maritime trade route, in a conflict that shows no sign of abating.`\
 https://www.nytimes.com/2026/08/17/world/middleeast/houthis-saudi-strike.html
 
-**Live Updates: 30 Years After Tupac Shakur’s Murder, Trial Jurors Hear Outlines of Case**\
+**Live Updates: 30 Years After Tupac Shakur’s Murder, Trial Jurors Will Hear Outlines of Case**\
 `The drive-by shooting of Tupac Shakur in 1996 was a pivotal moment in music history. Duane Keith Davis is now on trial, accused of supplying the murder weapon.`\
 https://www.nytimes.com/live/2026/08/17/arts/tupac-murder-trial-duane-davis
 
@@ -181,4 +177,8 @@ https://www.nytimes.com/interactive/2026/08/17/opinion/covid-pandemic-lab-leak-p
 **There Are Few Witnesses to Tupac Shakur’s Drive-by Shooting**\
 `Prosecutors say Duane Davis and three other men who are now deceased were involved in the fatal confrontation in 1996.`\
 https://www.nytimes.com/2026/08/17/arts/music/tupac-shakur-duane-davis-suge-knight-witnesses.html
+
+**Silicon Valley Was Right From the Start**\
+`Silicon Valley was never pacifist; it just followed the customers.`\
+https://www.nytimes.com/2026/08/17/opinion/silicon-valley-war-pentagon.html
 
