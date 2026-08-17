@@ -1,3 +1,23 @@
+**Nvidia to Back Ohio Data Center With as Much as $105 Billion**\
+`The data center, one of the world’s largest, could cost as much as $500 billion and will be leased by OpenAI.`\
+https://www.nytimes.com/2026/08/17/technology/nvidia-ohio-data-center-openai.html
+
+**What It Will Take to Win the 2028 Democratic Presidential Primary**\
+`A new early calendar will upend how Democrats select their 2028 champion.`\
+https://www.nytimes.com/2026/08/17/opinion/democratic-presidential-primary-2028.html
+
+**‘Buy Now, Pay Later’ Lenders Pitch Loans for Needs Like Electricity and Rent**\
+`The rapid growth of pay-later loans raises questions about whether their popularity is driven by consumer preference or desperation.`\
+https://www.nytimes.com/2026/08/17/business/buy-now-pay-later.html
+
+**What We Know About Damages From Hurricane Lala in Hawaii**\
+`The storm narrowly missed land, but its outer bands left the Big Island with power outages, road closures and flooded homes.`\
+https://www.nytimes.com/2026/08/17/us/hurricane-lala-hawaii-damage.html
+
+**Live Updates: 30 Years After Tupac Shakur’s Murder, Opening Statements Are Underway in Trial**\
+`The drive-by shooting of Tupac Shakur in 1996 was a pivotal moment in music history. Duane Keith Davis is now on trial, accused of supplying the murder weapon.`\
+https://www.nytimes.com/live/2026/08/17/arts/tupac-murder-trial-duane-davis
+
 **Un oscuro pasado nazi sale a la luz y enfrenta a dos familias**\
 `Una mujer consiguió el expediente penal de su abuela, una colaboracionista, y se ofreció a compartirlo con una familia judía que había sido traicionada. Después se retractó y comenzó una nueva disputa.`\
 https://www.nytimes.com/es/2026/08/17/espanol/cultura/familia-nazi-colaboracionista.html
