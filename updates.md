@@ -1,3 +1,11 @@
+**American Hiker Dies After Lighting Strike on Mount Etna in Italy**\
+`Rescuers found a 29-year-old man in serious condition on the volcano’s eastern slope on Sunday. He was later pronounced dead at a hospital in Catania.`\
+https://www.nytimes.com/2026/08/17/world/europe/mount-etna-hiker-lightning-strike-death.html
+
+**Karl-Anthony Towns and Jordyn Woods Get Married in Malibu Wedding**\
+`The Knicks center and the influencer and actress had a star-studded wedding celebration in Malibu over the weekend.`\
+https://www.nytimes.com/2026/08/17/style/karl-anthony-towns-jordyn-woods-wedding.html
+
 **Jefe del Comando Central de EE. UU. admite dificultades tras su visita al USS Lincoln**\
 `El almirante Brad Cooper reconoció el desafío del despliegue del portaaviones por casi nueve meses, pero dijo que los problemas de salud mental eran menores que en otros buques.`\
 https://www.nytimes.com/es/2026/08/17/espanol/estados-unidos/comando-dificultades-uss-lincoln-portaviones.html

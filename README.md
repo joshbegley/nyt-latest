@@ -1,4 +1,4 @@
-**American Hiker Dies After Lighting Strike on Mount Etna in Italy**\
+**American Hiker Dies After Lightning Strike on Mount Etna in Italy**\
 `Rescuers found a 29-year-old man in serious condition on the volcano’s eastern slope on Sunday. He was later pronounced dead at a hospital in Catania.`\
 https://www.nytimes.com/2026/08/17/world/europe/mount-etna-hiker-lightning-strike-death.html
 
