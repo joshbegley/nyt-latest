@@ -1,3 +1,27 @@
+**U.S. and Iran Blow Through Deadline to Agree to a Broad Deal to End War**\
+`President Trump said a cease-fire agreed in June would lead to limits on Iran’s nuclear program and finish the conflict, but the countries appear far apart.`\
+https://www.nytimes.com/2026/08/17/world/middleeast/iran-mou-deadline.html
+
+**‘Posh George,’ the Convicted Fraudster in Nigel Farage’s Inner Circle**\
+`Scrutiny over the gifts and support provided by George Cottrell to Mr. Farage, the Reform U.K. leader, will continue even after he won last week’s special election in Clacton.`\
+https://www.nytimes.com/2026/08/17/world/europe/posh-george-nigel-farage-reform.html
+
+**As China Hunts for Scientific Talent, the US Makes It Easier**\
+`Young researchers have long come to the U.S. for academic training, but a combination of Chinese money and U.S. restrictions is shifting the balance.`\
+https://www.nytimes.com/2026/08/17/business/china-scientific-talent-competition.html
+
+**China Wants Its Data to Power the World’s A.I.**\
+`China is exporting more than A.I. models. It wants its data to influence the world’s chatbots, raising fears that Beijing’s narratives will spread with the technology.`\
+https://www.nytimes.com/2026/08/17/world/asia/china-ai-data-chatbots.html
+
+**No Corrections: Aug. 17, 2026**\
+`No corrections appeared in print on Monday, Aug. 17, 2026.`\
+https://www.nytimes.com/2026/08/17/corrections/no-corrections-aug-17-2026.html
+
+**Quote of the Day: Held by Russia, Ukrainian Feels ‘Crushing’ Fear**\
+`Quotation of the Day for Monday, August 17, 2026.`\
+https://www.nytimes.com/2026/08/17/pageoneplus/quote-of-the-day-held-by-russia-ukrainian-feels-crushing-fear.html
+
 **Superheroes Are a Bore. Except This One.**\
 `If you want or need any superhero right now, you’re better off with Spider-Man.`\
 https://www.nytimes.com/2026/08/16/opinion/spider-man-brand-new-day-superhero.html

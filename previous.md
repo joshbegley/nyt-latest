@@ -1,3 +1,27 @@
+**U.S. and Iran Blow Through Deadline to Agree to a Broad Deal to End War**\
+`President Trump said a cease-fire agreed in June would lead to limits on Iran’s nuclear program and finish the conflict, but the countries appear far apart.`\
+https://www.nytimes.com/2026/08/17/world/middleeast/iran-mou-deadline.html
+
+**‘Posh George,’ the Convicted Fraudster in Nigel Farage’s Inner Circle**\
+`Scrutiny over the gifts and support provided by George Cottrell to Mr. Farage, the Reform U.K. leader, will continue even after he won last week’s special election in Clacton.`\
+https://www.nytimes.com/2026/08/17/world/europe/posh-george-nigel-farage-reform.html
+
+**As China Hunts for Scientific Talent, the US Makes It Easier**\
+`Young researchers have long come to the U.S. for academic training, but a combination of Chinese money and U.S. restrictions is shifting the balance.`\
+https://www.nytimes.com/2026/08/17/business/china-scientific-talent-competition.html
+
+**China Wants Its Data to Power the World’s A.I.**\
+`China is exporting more than A.I. models. It wants its data to influence the world’s chatbots, raising fears that Beijing’s narratives will spread with the technology.`\
+https://www.nytimes.com/2026/08/17/world/asia/china-ai-data-chatbots.html
+
+**No Corrections: Aug. 17, 2026**\
+`No corrections appeared in print on Monday, Aug. 17, 2026.`\
+https://www.nytimes.com/2026/08/17/corrections/no-corrections-aug-17-2026.html
+
+**Quote of the Day: Held by Russia, Ukrainian Feels ‘Crushing’ Fear**\
+`Quotation of the Day for Monday, August 17, 2026.`\
+https://www.nytimes.com/2026/08/17/pageoneplus/quote-of-the-day-held-by-russia-ukrainian-feels-crushing-fear.html
+
 **‘Lanterns’ Season 1 Premiere Recap: No Evil Shall Escape**\
 `Episode 1 of HBO’s Green Lantern series offered two very different origin stories for two very different heroes. It also set a decidedly offbeat tone.`\
 https://www.nytimes.com/2026/08/16/arts/television/lanterns-recap-season-1-episode-1.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/08/16/business/bad-boss-warning.html
 **Hannah Berner Is Having the Last Laugh, or Would if She Could**\
 `Since a jaw injection went awry and left her unable to smile, the comedian and podcast host has made the most of her predicament.`\
 https://www.nytimes.com/2026/08/16/style/hannah-berner-botox-jaw-tmj.html
-
-**What to Know Before Watching ‘Lanterns,’ HBO’s New DC Comics Series**\
-`For instance, there is more than one Green Lantern. And not every lantern is green. Here’s a brief look at the lore going back to 1940.`\
-https://www.nytimes.com/2026/08/16/arts/television/lanterns-hbo-dc-comics-tv-green-lantern.html
-
-**How a Ukrainian Bank Worker Came to Face Life in a Russian Prison**\
-`Artem Murdid, his mother and his girlfriend are accused of terrorism. They say they did nothing wrong.`\
-https://www.nytimes.com/2026/08/16/world/europe/russia-detained-ukrainians-war-murdid.html
-
-**Years of Trump Support Came Undone in 15 Minutes in an Airport.**\
-`The case represents a new front in President Trump’s mass deportation drive: arrests at airports of people who have active immigration cases and no criminal history.`\
-https://www.nytimes.com/2026/08/16/us/trump-immigration-crackdown.html
-
-**The DataLounge, a Gay Gossip Website, Shuts Down After 31 Years**\
-`It’s curtains for the DataLounge, an online forum from a time when the internet was funny, wild and maybe a little reckless.`\
-https://www.nytimes.com/2026/08/16/style/datalounge-shut-down-website.html
-
-**Zale Parry, Aquatic Hollywood Star and Early Acid Tripper, Dies at 93**\
-`A diving feat landed her on the cover of Sports Illustrated and led to a film and TV career. She also took part in one of the first LSD studies.`\
-https://www.nytimes.com/2026/08/16/arts/television/zale-parry-dead.html
-
-**The U.S. Military Wants A.I. Dominance. Feuds and China May Thwart It.**\
-`The administration is veering wildly in its response to the national security implications of A.I. as China, America’s main technological and military rival, charges ahead.`\
-https://www.nytimes.com/2026/08/16/us/politics/military-ai-china-anthropic.html
 
