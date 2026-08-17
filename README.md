@@ -1,3 +1,7 @@
+**Trump Orders Reduction of Military Exercises With South Korea**\
+`President Trump on Sunday instructed the Pentagon to reduce its joint military exercises with South Korea, a key U.S. ally in Asia. He also touted his good relationship with Kim Jong-un, North Korea’s leader.`\
+https://www.nytimes.com/video/world/asia/100000011095423/trump-south-korea-military-exercises.html
+
 **Hurricane Lala Cuts Off Hawaii Town With Region’s Only Hospital**\
 `Residents of Pahala were stranded after parts of a key highway collapsed under heavy rain. All roads leading to the town and its hospital, on the southern end of the Big Island, are now blocked.`\
 https://www.nytimes.com/2026/08/17/weather/pahala-isolated-kau-hawaii-big-island.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/16/us/swalwell-seat-aisha-wahab-aipac.html
 **How to Look at a Painting**\
 `What I learned on an accidental pilgrimage.`\
 https://www.nytimes.com/2026/08/16/briefing/caravaggio.html
-
-**Democrats Face a Potential Tea Party Moment**\
-`A string of primary wins by progressive candidates has revealed the strength of a high-energy insurgent movement but also its possible limitations.`\
-https://www.nytimes.com/2026/08/16/us/politics/democratic-party-tea-party-moment.html
 
