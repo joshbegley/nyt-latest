@@ -1,3 +1,7 @@
+**Hayden Panettiere Was in Cardiac Arrest When Authorities Responded to 911 Call**\
+`After the authorities responded to a 911 call in Greenville, S.C., an initial police investigation found no evidence of “foul play or suspicious circumstances.”`\
+https://www.nytimes.com/2026/08/17/arts/television/hayden-panettiere-death-foul-play.html
+
 **Welcome to The Local: Twin Cities**\
 `We’ll be sharing neighborhood news and, today, talking with Hope Walz. We’ll also be revealing what Wirecutter is reviewing at the State Fair.`\
 https://www.nytimes.com/2026/08/17/us/the-local-twin-cities-launch.html
