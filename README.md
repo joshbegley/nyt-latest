@@ -1,3 +1,7 @@
+**Hilo Is Accustomed to Rain. Hurricane Lala Was Different.**\
+`The city on the eastern side of the island of Hawaii flooded on Saturday night, and powerful winds toppled branches onto homes and power lines.`\
+https://www.nytimes.com/2026/08/17/weather/hurricane-lala-hawaii-hilo-impact.html
+
 **Hayden Panettiere, Star of ‘Nashville’ and ‘Heroes,’ Dies at 36**\
 `In May, she published a memoir after a tumultuous decade that involved depression, substance abuse, losing custody of her daughter and stints in rehab.`\
 https://www.nytimes.com/2026/08/17/arts/television/hayden-panettiere-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/100000011090279/flying-on-the-air-force-one-dec
 **How a False Nuclear Claim About Iran Ricocheted From India to Washington**\
 `A dubious post that spread on X became the basis of false claims that Iran’s leadership had declared it a nuclear power.`\
 https://www.nytimes.com/2026/08/16/business/iran-nuclear-false-claims.html
-
-**Should I Publicize a Bad Publicist?**\
-`Plus: An intern considers whether to give the boss an honest review.`\
-https://www.nytimes.com/2026/08/16/business/bad-boss-warning.html
 
