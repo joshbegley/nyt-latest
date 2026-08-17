@@ -1,3 +1,11 @@
+**Cuba Is Out of Time**\
+`Governments can afford to keep playing the waiting game. Ordinary Cubans cannot.`\
+https://www.nytimes.com/2026/08/17/opinion/cuba-trump-rubio-venezuela.html
+
+**Lala Causes Widespread Outages and Road Closures**\
+`Gov. Josh Green said at least 100 homes had been damaged or washed away on the Big Island. The storm left more than 150,000 customers without power.`\
+https://www.nytimes.com/live/2026/08/16/weather/lala-tropical-storm-hurricane-hawaii
+
 **Live Updates: Lala Causes Widespread Outages and Road Closures**\
 `Gov. Josh Green said at least 100 homes had been damaged or washed away on the Big Island. The storm left more than 150,000 customers without power.`\
 https://www.nytimes.com/live/2026/08/16/weather/lala-tropical-storm-hurricane-hawaii

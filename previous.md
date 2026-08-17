@@ -22,7 +22,7 @@ https://www.nytimes.com/2026/08/17/weather/pahala-isolated-kau-hawaii-big-island
 `The sitcom begins its 18th season, and the teen drama “Outer Banks” airs its series finale.`\
 https://www.nytimes.com/2026/08/17/arts/television/its-always-sunny-in-philadelphia-what-to-watch.html
 
-**Bread Rations. Endless Blackouts. How Much More Can Cubans Endure?**\
+**Cuba Is Out of Time**\
 `Governments can afford to keep playing the waiting game. Ordinary Cubans cannot.`\
 https://www.nytimes.com/2026/08/17/opinion/cuba-trump-rubio-venezuela.html
 
@@ -182,7 +182,7 @@ https://www.nytimes.com/2026/08/16/crosswords/strands-sidekick-897.html
 `The storm brought damaging winds and widespread power outages as its eyewall grazed the southern part of the Big Island. One person was killed and two others were injured in a vehicle crash during the storm, a local official said.`\
 https://www.nytimes.com/video/us/100000011094765/hurricane-lala-lashes-hawaiis-big-island-without-making-landfall.html
 
-**Live Updates: Lala Causes Widespread Outages and Road Closures**\
+**Lala Causes Widespread Outages and Road Closures**\
 `Gov. Josh Green said at least 100 homes had been damaged or washed away on the Big Island. The storm left more than 150,000 customers without power.`\
 https://www.nytimes.com/live/2026/08/16/weather/lala-tropical-storm-hurricane-hawaii
 
