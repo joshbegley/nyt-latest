@@ -1,3 +1,19 @@
+**Florida Race to Replace Byron Donalds Features Candidates Who Have Already Run for Congress**\
+`We look at the crowded race to replace Byron Donalds.`\
+https://www.nytimes.com/2026/08/17/us/politics/florida-byron-donalds-election.html
+
+**Why Is It So Hard to Build the Thing Our Entire Power Supply Depends On?**\
+`Transformers are the linchpin of modern civilization. A single one can take five years to build.`\
+https://www.nytimes.com/interactive/2026/08/17/magazine/transformers-power-electric-grid.html
+
+**Trump Threatens a Middle East Mediator**\
+`Also, killings plunge in Baltimore. Here’s the latest at the end of Monday.`\
+https://www.nytimes.com/2026/08/17/briefing/trump-threatens-a-middle-east-mediator.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011097270/17vid-trump-sot-kim-jong-un.html
+
 **Mary Peltola Shakes Up Campaign Staff Days Before Alaska’s Senate Primary**\
 `Ms. Peltola, the Democratic Senate candidate, fired a longtime senior aide and named a new campaign manager.`\
 https://www.nytimes.com/2026/08/17/us/politics/peltola-campaign-staff-change-primary.html
