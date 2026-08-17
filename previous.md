@@ -1,3 +1,7 @@
+**Kushner Meets Netanyahu in Effort to Break Logjam Over Gaza**\
+`Prime Minister Benjamin Netanyahu of Israel has refused to pull back the country’s military until Hamas fully disarms. But the Trump administration is under pressure to show progress.`\
+https://www.nytimes.com/2026/08/17/world/middleeast/kushner-netanyahu-gaza-peace-deal.html
+
 **U.S. and Iran Blow Past War Deadline, and the Rise of Islamophobia in Texas**\
 `Plus, Hayden Panettiere dies at 36.`\
 https://www.nytimes.com/2026/08/17/podcasts/the-headlines/us-iran-deadline-war-islamophobia-texas.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/17/opinion/cuba-trump-rubio-venezuela.html
 **Hilo Is Accustomed to Rain. Hurricane Lala Was Different.**\
 `The city on the eastern side of the island of Hawaii flooded on Saturday night, and powerful winds toppled branches onto homes and power lines.`\
 https://www.nytimes.com/2026/08/17/weather/hurricane-lala-hawaii-hilo-impact.html
-
-**Hayden Panettiere, Star of ‘Nashville’ and ‘Heroes,’ Dies at 36**\
-`In May, she published a memoir after a tumultuous decade that involved depression, substance abuse, losing custody of her daughter and stints in rehab.`\
-https://www.nytimes.com/2026/08/17/arts/television/hayden-panettiere-dead.html
 

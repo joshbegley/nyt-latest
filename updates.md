@@ -1,3 +1,7 @@
+**Kushner Meets Netanyahu in Effort to Break Logjam Over Gaza**\
+`Prime Minister Benjamin Netanyahu of Israel has refused to pull back the country’s military until Hamas fully disarms. But the Trump administration is under pressure to show progress.`\
+https://www.nytimes.com/2026/08/17/world/middleeast/kushner-netanyahu-gaza-peace-deal.html
+
 **U.S. and Iran Blow Past War Deadline, and the Rise of Islamophobia in Texas**\
 `Plus, Hayden Panettiere dies at 36.`\
 https://www.nytimes.com/2026/08/17/podcasts/the-headlines/us-iran-deadline-war-islamophobia-texas.html
