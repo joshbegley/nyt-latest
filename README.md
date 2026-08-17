@@ -46,7 +46,7 @@ https://www.nytimes.com/2026/08/17/opinion/trump-kennedy-center.html
 `The data center, one of the world’s largest, could cost as much as $500 billion and will be leased by OpenAI.`\
 https://www.nytimes.com/2026/08/17/technology/nvidia-ohio-data-center-openai.html
 
-**What It Will Take to Win the 2028 Democratic Presidential Primaries**\
+**What It Will Take to Win the 2028 Democratic Presidential Nomination**\
 `A new early calendar will upend how Democrats select their 2028 champion.`\
 https://www.nytimes.com/2026/08/17/opinion/democratic-presidential-primary-2028.html
 
