@@ -1,3 +1,7 @@
+**No Evidence of Foul Play in Hayden Panettiere’s Death, Police Say**\
+`After responding to a 911 call, emergency responders pronounced the actress dead at an apartment complex in Greenville, S.C.`\
+https://www.nytimes.com/2026/08/17/arts/television/hayden-panettiere-death-foul-play.html
+
 **AI Slop Is Everywhere. Spotify, LinkedIn and Others Have Had Enough.**\
 `Spotify, LinkedIn and others are trying to dig out of a digital sewage heap full of low-quality content made with artificial intelligence.`\
 https://www.nytimes.com/2026/08/17/technology/ai-slop.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/video/world/asia/100000011069179/japan-earthquake-disast
 **Word of the Day: intelligentsia**\
 `This word has appeared in 14 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/08/17/learning/word-of-the-day-intelligentsia.html
-
-**How Ukraine’s Satellites Help Drive Its War Drones**\
-`Ukrainian drone teams have a powerful new tool: near real-time information on troop movements and locations.`\
-https://www.nytimes.com/2026/08/17/world/europe/from-the-sky-to-the-battlefield.html
 
