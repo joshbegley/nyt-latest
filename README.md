@@ -18,7 +18,7 @@ https://www.nytimes.com/es/2026/08/17/espanol/mundo/incumplen-acuerdo-iran-eeeuu
 `Two St. Petersburg concerts by the rapper formerly known as Kanye West could become the first performances by a major Western act in Russia since the country invaded Ukraine.`\
 https://www.nytimes.com/2026/08/17/arts/music/ye-kanye-west-russia.html
 
-**No Evidence of Foul Play in Hayden Panettiere’s Death, Police Say**\
+**Hayden Panettiere’s Death and Police Investigation: What We Know**\
 `After responding to a 911 call, emergency responders pronounced the actress dead at an apartment complex in Greenville, S.C.`\
 https://www.nytimes.com/2026/08/17/arts/television/hayden-panettiere-death-foul-play.html
 
