@@ -1,3 +1,11 @@
+**Trump se acerca a Corea del Norte y tensa la alianza con Corea del Sur**\
+`El presidente Trump quiere reducir los ejercicios militares con Corea del Sur, diciendo que eran hostiles hacia Corea del Norte. Pero bajo el mandato de Kim, el Norte se ha vuelto cada vez más beligerante.`\
+https://www.nytimes.com/es/2026/08/17/espanol/mundo/trump-kim-jong-corea-sur-ejercicios-militares.html
+
+**More Naming Drama at the Kennedy Center**\
+`Readers respond to the Kennedy Center Board’s vote to inscribe President Trump’s name on the building. Also, winning the A.I. race; a slogan for Democrats.`\
+https://www.nytimes.com/2026/08/17/opinion/trump-kennedy-center.html
+
 **Live Updates: Prosecutors Call First Witness in Tupac Shakur Murder Trial**\
 `The drive-by shooting of Tupac Shakur in 1996 was a pivotal moment in music history. Duane Keith Davis is now on trial, accused of supplying the murder weapon.`\
 https://www.nytimes.com/live/2026/08/17/arts/tupac-murder-trial-duane-davis
