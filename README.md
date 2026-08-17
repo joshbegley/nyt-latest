@@ -115,7 +115,7 @@ https://www.nytimes.com/video/world/asia/100000011069179/japan-earthquake-disast
 https://www.nytimes.com/2026/08/17/learning/word-of-the-day-intelligentsia.html
 
 **How Ukraine’s Satellites Help Drive Its War Drones**\
-`Here’s how speedy access to satellite imagery is bolstering Ukraine.`\
+`Ukrainian drone teams have a powerful new tool: near real-time information on troop movements and locations.`\
 https://www.nytimes.com/2026/08/17/world/europe/from-the-sky-to-the-battlefield.html
 
 **What Exile Means for an Artist**\
