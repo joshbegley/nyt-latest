@@ -1,3 +1,7 @@
+**Iran’s Supreme Leader Signals Intention to Keep Country on a War Footing**\
+`Ayatollah Mojtaba Khamenei’s appointment of hard-line loyalists to top jobs suggests he is prepared to keep the country on a war footing and to quash domestic dissent.`\
+https://www.nytimes.com/2026/08/17/world/middleeast/iran-khamenei-military-leaders-war.html
+
 **EE. UU. busca el dominio de la IA militar y China podría frustrar el plan**\
 `El gobierno estadounidense cambia drásticamente de rumbo ante las implicaciones de la inteligencia artificial para la seguridad nacional, mientras su principal rival tecnológico y militar sigue avanzando.`\
 https://www.nytimes.com/es/2026/08/17/espanol/estados-unidos/ia-militar-china.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/08/16/espanol/america-latina/trump-control-ameri
 **In ‘The Brink of War,’ a Return to an Era of Razor-Edge Diplomacy**\
 `A new film depicts the 1986 nuclear arms summit in Reykjavik, Iceland, between Ronald Reagan and Mikhail Gorbachev, which both offered and dashed hopes of a dramatic breakthrough.`\
 https://www.nytimes.com/2026/08/16/us/politics/brink-of-war-reagan-nuclear-weapons.html
-
-**As Iran War Turns Into Economic Battle, a New U.S. Strategy Recalls Old Ones**\
-`The United States and Iran are poised to blow past a deadline they had set themselves to broker terms on peace and Iran’s nuclear program.`\
-https://www.nytimes.com/2026/08/16/world/middleeast/iran-war-us-trump.html
 
