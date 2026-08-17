@@ -1,3 +1,11 @@
+**Two Goats Were Caught Trying to Ride a Bus**\
+`Two billy goats boarded the TriMet bus in Portland, Ore., last Tuesday. They were later returned to their owner, who lives nearby.`\
+https://www.nytimes.com/video/us/100000011096292/portland-oregon-billy-goat-bus.html
+
+**Hayden Panettiere’s Best Performances: Where to Stream**\
+`The actress was a staple of two popular network TV dramas and had memorable early-career roles in film.`\
+https://www.nytimes.com/2026/08/17/arts/television/hayden-panettiere-nashville-heroes-streaming.html
+
 **Barred From Ballot, a Party Becomes a Vessel for Russians’ Discontent**\
 `The spotlight on the country’s only antiwar party has brought a spark to what had looked like another dull, tightly controlled election campaign.`\
 https://www.nytimes.com/2026/08/17/world/europe/russia-yabloko-party-election.html
@@ -173,12 +181,4 @@ https://www.nytimes.com/2026/08/17/crosswords/wordle-review-1886.html
 **NYT Strands Hints for Aug. 18, 2026**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, Aug. 18, 2026.`\
 https://www.nytimes.com/2026/08/17/crosswords/strands-sidekick-898.html
-
-**Trump’s Overture to North Korea Strains Alliance With the South**\
-`President Trump wants to curtail military exercises with South Korea, saying they were hostile to North Korea. But under Mr. Kim, the North has become increasingly belligerent toward the South.`\
-https://www.nytimes.com/2026/08/17/world/asia/trump-korea-military-kim-jong-un.html
-
-**These Artists May Have Left Pakistan, but It’s Still Present in Their Work**\
-`Is it possible to make art that reflects a country and culture while living outside of it? For members of this diaspora, there’s no other choice.`\
-https://www.nytimes.com/2026/08/17/t-magazine/pakistan-diaspora-artists.html
 

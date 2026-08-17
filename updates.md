@@ -1,3 +1,11 @@
+**Two Goats Were Caught Trying to Ride a Bus**\
+`Two billy goats boarded the TriMet bus in Portland, Ore., last Tuesday. They were later returned to their owner, who lives nearby.`\
+https://www.nytimes.com/video/us/100000011096292/portland-oregon-billy-goat-bus.html
+
+**Hayden Panettiere’s Best Performances: Where to Stream**\
+`The actress was a staple of two popular network TV dramas and had memorable early-career roles in film.`\
+https://www.nytimes.com/2026/08/17/arts/television/hayden-panettiere-nashville-heroes-streaming.html
+
 **Live Updates: Prosecutors Call First Witnesses in Tupac Shakur Murder Trial**\
 `A responding officer and a woman who had been in a nearby car testified to the events following the drive-by shooting of Tupac Shakur in 1996.`\
 https://www.nytimes.com/live/2026/08/17/arts/tupac-murder-trial-duane-davis
