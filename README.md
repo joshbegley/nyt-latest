@@ -1,3 +1,7 @@
+**Jefe del Comando Central de EE. UU. admite dificultades tras su visita al USS Lincoln**\
+`El almirante Brad Cooper reconoció el desafío del despliegue del portaaviones por casi nueve meses, pero dijo que los problemas de salud mental eran menores que en otros buques.`\
+https://www.nytimes.com/es/2026/08/17/espanol/estados-unidos/comando-dificultades-uss-lincoln-portaviones.html
+
 **Muere Hayden Panettiere, estrella de ‘Nashville’ y ‘Héroes’**\
 `Publicó en mayo sus memorias tras una década tumultuosa de depresión, abuso de sustancias, perder la custodia de su hija y periodos en rehabilitación.`\
 https://www.nytimes.com/es/2026/08/17/espanol/muere-hayden-panettiere.html
@@ -122,7 +126,7 @@ https://www.nytimes.com/2026/08/17/world/europe/from-the-sky-to-the-battlefield.
 `For many, the state of ‘in-betweenness’ can be a source of inspiration.`\
 https://www.nytimes.com/2026/08/17/t-magazine/exile-artists-pakistan.html
 
-**To Save Higher Ed, Professors Need to Get a Little Weird**\
+**I Let My Students Watch Me Struggle With a Masterpiece. It Changed Everything.**\
 `Teachers need to model the passion they want to see.`\
 https://www.nytimes.com/2026/08/17/opinion/higher-ed-dostoevsky-attention.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/es/2026/08/17/espanol/estados-unidos/ia-militar-china.ht
 **There’s a Way to Gauge Childhood Development. Why Isn’t It Used More?**\
 `A screening tool is used less in New York State than almost anywhere in the United States. Now, officials are embarking on a campaign to change that.`\
 https://www.nytimes.com/2026/08/17/nyregion/new-york-child-development-screenings.html
-
-**NYT Spelling Bee Answers for August 17, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/08/17/crosswords/spelling-bee-forum.html
 
