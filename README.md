@@ -1,3 +1,7 @@
+**Nvidia to Back Ohio Data Center With as Much as $105 Billion**\
+`The data center, one of the world’s largest, could cost as much as $500 billion and will be leased by OpenAI.`\
+https://www.nytimes.com/2026/08/17/technology/nvidia-ohio-data-center-openai.html
+
 **What It Will Take to Win the 2028 Democratic Presidential Primary**\
 `A new early calendar will upend how Democrats select their 2028 champion.`\
 https://www.nytimes.com/2026/08/17/opinion/democratic-presidential-primary-2028.html
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/08/17/opinion/buttigieg-el-sayed-patriotism.html
 **In Ellensburg, Wash., Building a Home to Live for a Long Time**\
 `A couple wanted an intimate house for two that could also be scaled for entertaining a gang of old friends.`\
 https://www.nytimes.com/2026/08/17/realestate/ellensburg-wash-tokul-house-build.html
-
-**Who Is the New White House Counsel?**\
-`President Trump appointed his former personal lawyer Will Scharf as White House counsel. Maggie Haberman, our White House correspondent, explains how Scharf might help the president avoid congressional oversight at a critical time.`\
-https://www.nytimes.com/video/us/100000011088612/who-is-the-new-white-house-counsel.html
 
