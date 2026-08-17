@@ -1,3 +1,15 @@
+**Mangione’s State Trial Is Delayed as His Lawyers Seek Dismissal**\
+`The delay comes after Luigi Mangione pleaded guilty in federal court on Friday to stalking that led to the death of Brian Thompson, a health care executive.`\
+https://www.nytimes.com/2026/08/17/nyregion/luigi-mangione-state-trial-delayed.html
+
+**Tupac Shakur Murder Trial Updates: Prosecutors Call First Witnesses After Opening Statements**\
+`A responding officer and a woman who had been in a nearby car testified to the events following the drive-by shooting of Tupac Shakur in 1996. Duane Keith Davis is now on trial, accused of supplying the murder weapon.`\
+https://www.nytimes.com/live/2026/08/17/arts/tupac-murder-trial-duane-davis
+
+**As Iran Truce Expires and Options Shrivel, Trump Lashes Out**\
+`President Trump took aim at Oman, a U.S. ally that has been mediating the talks, as efforts to end a war he started have faltered.`\
+https://www.nytimes.com/2026/08/17/us/politics/trump-iran-truce-oman.html
+
 **Tupac Shakur Murder Trial: Takeaways From Day 1**\
 `Prosecutors said Duane Keith Davis participated in the shooting as an act of gang retaliation, while the defense pointed to what it described as a lack of hard evidence.`\
 https://www.nytimes.com/2026/08/17/arts/music/tupac-shakur-murder-trial-takeaways-day-1.html

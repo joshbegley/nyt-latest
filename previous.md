@@ -6,7 +6,7 @@ https://www.nytimes.com/2026/08/17/arts/music/tupac-shakur-murder-trial-takeaway
 `(No description)`\
 https://www.nytimes.com/video/embedded/business/100000011097021/Biz-Europe-Compete-video.html
 
-**Mangione’s State Trial Delayed as His Lawyers Seek Dismissal**\
+**Mangione’s State Trial Is Delayed as His Lawyers Seek Dismissal**\
 `The delay comes after Luigi Mangione pleaded guilty in federal court on Friday to stalking that led to the death of Brian Thompson, a health care executive.`\
 https://www.nytimes.com/2026/08/17/nyregion/luigi-mangione-state-trial-delayed.html
 
@@ -118,7 +118,7 @@ https://www.nytimes.com/2026/08/17/arts/music/stefan-zweig-home-salzburg.html
 `The armed group, based in Yemen and backed by Iran, said it had launched missiles near the vital maritime trade route, in a conflict that shows no sign of abating.`\
 https://www.nytimes.com/2026/08/17/world/middleeast/houthis-saudi-strike.html
 
-**Live Updates: Prosecutors Call First Witnesses in Tupac Shakur Murder Trial**\
+**Tupac Shakur Murder Trial Updates: Prosecutors Call First Witnesses After Opening Statements**\
 `A responding officer and a woman who had been in a nearby car testified to the events following the drive-by shooting of Tupac Shakur in 1996. Duane Keith Davis is now on trial, accused of supplying the murder weapon.`\
 https://www.nytimes.com/live/2026/08/17/arts/tupac-murder-trial-duane-davis
 
@@ -146,7 +146,7 @@ https://www.nytimes.com/article/wildfire-smoke-health-effect.html
 `Democrats aren’t shifting left as much as you may think.`\
 https://www.nytimes.com/2026/08/17/opinion/el-sayed-ocasio-cortez-mamdani-sanders.html
 
-**Trump Lashes Out as Preliminary Deal With Iran Expires**\
+**As Iran Truce Expires and Options Shrivel, Trump Lashes Out**\
 `President Trump took aim at Oman, a U.S. ally that has been mediating the talks, as efforts to end a war he started have faltered.`\
 https://www.nytimes.com/2026/08/17/us/politics/trump-iran-truce-oman.html
 
