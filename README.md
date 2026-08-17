@@ -1,3 +1,11 @@
+**Pauline Clayden, Dancer in a Seminal 1949 ‘Sleeping Beauty,’ Dies at 103**\
+`She was the last known surviving soloist from an event that changed American dance: the opening night of Sadler’s Wells Ballet’s first U.S. tour.`\
+https://www.nytimes.com/2026/08/17/arts/dance/pauline-clayden-dead.html
+
+**Paramount Asks States to Shoulder Costs of Delaying Warner Bros. Deal**\
+`Paramount’s $111 billion deal to acquire Warner Bros. Discovery has been postponed until the conclusion of a trial, scheduled for March.`\
+https://www.nytimes.com/2026/08/17/business/paramount-warner-bros-antitrust-trial.html
+
 **Trump se acerca a Corea del Norte y tensa la alianza con Corea del Sur**\
 `El presidente Trump quiere reducir los ejercicios militares con Corea del Sur, diciendo que eran hostiles hacia Corea del Norte. Pero bajo el mandato de Kim, el Norte se ha vuelto cada vez más beligerante.`\
 https://www.nytimes.com/es/2026/08/17/espanol/mundo/trump-kim-jong-corea-sur-ejercicios-militares.html
@@ -173,12 +181,4 @@ https://www.nytimes.com/2026/08/17/t-magazine/pakistan-diaspora-artists.html
 **Reseña de ‘El final de la calle Oak’: un ataque de dinosaurios en una calle sin salida**\
 `La película de dinosaurios de David Robert Mitchell tiene una rareza que es poco común en las producciones palomeras de verano.`\
 https://www.nytimes.com/es/2026/08/17/espanol/cultura/resena-el-final-de-la-calle-oak.html
-
-**6 ejercicios que los fisioterapeutas recomiendan para envejecer mejor**\
-`Prueba estos sencillos movimientos para mantenerte fuerte y ágil.`\
-https://www.nytimes.com/es/2026/08/17/espanol/estilos-de-vida/ejercicios-equilibrio-vejez.html
-
-**Democratic Socialists Look for Upsets in Hostile Territory: Florida**\
-`Three primaries for the House and the Senate on Tuesday pose a fresh test for the left, this time in a conservative-leaning state where socialism is often seen as a dirty word.`\
-https://www.nytimes.com/2026/08/17/us/florida-primaries-democratic-socialists.html
 
