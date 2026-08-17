@@ -1,3 +1,7 @@
+**Tupac Shakur Murder Trial Begins With Revenge Motive and Defendant’s Own Words**\
+`Duane Keith Davis is on trial for orchestrating the 1996 shooting, which he described in a memoir that he has since disavowed.`\
+https://www.nytimes.com/live/2026/08/17/arts/tupac-murder-trial-duane-davis
+
 **Mangione’s State Trial Is Delayed as His Lawyers Seek Dismissal**\
 `The delay comes after Luigi Mangione pleaded guilty in federal court on Friday to stalking that led to the death of Brian Thompson, a health care executive.`\
 https://www.nytimes.com/2026/08/17/nyregion/luigi-mangione-state-trial-delayed.html
