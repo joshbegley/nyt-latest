@@ -1,3 +1,7 @@
+**Hayden Panettiere: esto es lo que sabemos sobre su muerte**\
+`Después de que las autoridades respondieron a una llamada al 911 en Greenville, Carolina del Sur, una investigación policial inicial no encontró evidencia de ‘un acto delictivo o circunstancias sospechosas’.`\
+https://www.nytimes.com/es/2026/08/17/espanol/cultura/hayden-panettiere-de-que-murio.html
+
 **Lake Powell Hits Lowest Level On Record As Water Crisis Continues**\
 `Levels in the nation’s two largest reservoirs have not been so low since 1957, underscoring a water crisis that the Southwest is struggling to solve.`\
 https://www.nytimes.com/2026/08/17/climate/lake-powell-record-low-colorado.html
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/08/17/style/karl-anthony-towns-jordyn-woods-wedding
 **Jefe del Comando Central de EE. UU. admite dificultades tras su visita al USS Lincoln**\
 `El almirante Brad Cooper reconoció el desafío del despliegue del portaaviones por casi nueve meses, pero dijo que los problemas de salud mental eran menores que en otros buques.`\
 https://www.nytimes.com/es/2026/08/17/espanol/estados-unidos/comando-dificultades-uss-lincoln-portaviones.html
-
-**Muere Hayden Panettiere, estrella de ‘Nashville’ y ‘Héroes’**\
-`Publicó en mayo sus memorias tras una década tumultuosa de depresión, abuso de sustancias, perder la custodia de su hija y periodos en rehabilitación.`\
-https://www.nytimes.com/es/2026/08/17/espanol/muere-hayden-panettiere.html
 

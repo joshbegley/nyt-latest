@@ -1,3 +1,11 @@
+**Lake Powell Hits Lowest Level On Record As Water Crisis Continues**\
+`Levels in the nation’s two largest reservoirs have not been so low since 1957, underscoring a water crisis that the Southwest is struggling to solve.`\
+https://www.nytimes.com/2026/08/17/climate/lake-powell-record-low-colorado.html
+
+**After the Earthquakes**\
+`Venezuela and Japan both experienced major quakes this summer. Their responses differed, and not just because of money.`\
+https://www.nytimes.com/2026/08/17/world/earthquake-response-japan-venezuela.html
+
 **Hurricane Lala Destroys Homes and Roads Across Hawaii**\
 `Hurricane Lala did not make landfall, but left behind destroyed roads and homes across Hawaii. Lala was downgraded to a tropical storm after moving away from the Big Island.`\
 https://www.nytimes.com/video/us/100000011096246/hurricane-lala-hawaii-damage.html
