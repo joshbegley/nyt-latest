@@ -1,3 +1,19 @@
+**Pauline Clayden, Dancer in a Seminal 1949 ‘Sleeping Beauty,’ Dies at 103**\
+`She was the last known surviving soloist from an event that changed American dance: the opening night of Sadler’s Wells Ballet’s first U.S. tour.`\
+https://www.nytimes.com/2026/08/17/arts/dance/pauline-clayden-dead.html
+
+**Paramount Asks States to Shoulder Costs of Delaying Warner Bros. Deal**\
+`Paramount’s $111 billion deal to acquire Warner Bros. Discovery has been postponed until the conclusion of a trial, scheduled for March.`\
+https://www.nytimes.com/2026/08/17/business/paramount-warner-bros-antitrust-trial.html
+
+**What It Will Take to Win the 2028 Democratic Presidential Primaries**\
+`A new early calendar will upend how Democrats select their 2028 champion.`\
+https://www.nytimes.com/2026/08/17/opinion/democratic-presidential-primary-2028.html
+
+**Live Updates: Prosecutors Call First Witnesses in Tupac Shakur Murder Trial**\
+`The drive-by shooting of Tupac Shakur in 1996 was a pivotal moment in music history. Duane Keith Davis is now on trial, accused of supplying the murder weapon.`\
+https://www.nytimes.com/live/2026/08/17/arts/tupac-murder-trial-duane-davis
+
 **Trump se acerca a Corea del Norte y tensa la alianza con Corea del Sur**\
 `El presidente Trump quiere reducir los ejercicios militares con Corea del Sur, diciendo que eran hostiles hacia Corea del Norte. Pero bajo el mandato de Kim, el Norte se ha vuelto cada vez más beligerante.`\
 https://www.nytimes.com/es/2026/08/17/espanol/mundo/trump-kim-jong-corea-sur-ejercicios-militares.html
