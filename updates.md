@@ -1,3 +1,7 @@
+**Superheroes Are a Bore. Except This One.**\
+`If you want or need any superhero right now, you’re better off with Spider-Man.`\
+https://www.nytimes.com/2026/08/16/opinion/spider-man-brand-new-day-superhero.html
+
 **‘Lanterns’ Season 1 Premiere Recap: No Evil Shall Escape**\
 `Episode 1 of HBO’s Green Lantern series offered two very different origin stories for two very different heroes. It also set a decidedly offbeat tone.`\
 https://www.nytimes.com/2026/08/16/arts/television/lanterns-recap-season-1-episode-1.html
