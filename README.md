@@ -1,9 +1,13 @@
+**Everything Salmon With Creamy Caper Sauce**\
+`Covered in a crisp, everything-seasoning crust and served with a creamy, tangy caper sauce, this quick, weeknight salmon dinner is inspired by the beloved flavors of bagels and lox.`\
+https://www.nytimes.com/video/dining/100000011097124/everything-salmon-with-creamy-caper-sauce.html
+
 **Hayden Panettiere: esto es lo que sabemos sobre su muerte**\
 `Después de que las autoridades respondieron a una llamada al 911 en Greenville, Carolina del Sur, una investigación policial inicial no encontró evidencia de ‘un acto delictivo o circunstancias sospechosas’.`\
 https://www.nytimes.com/es/2026/08/17/espanol/cultura/hayden-panettiere-de-que-murio.html
 
 **Lake Powell Hits Lowest Level On Record As Water Crisis Continues**\
-`Levels in the nation’s two largest reservoirs have not been so low since 1957, underscoring a water crisis that the Southwest is struggling to solve.`\
+`Levels in Lakes Mead and Powell have not been so low since 1957, underscoring a water crisis that plagues seven states that rely on the Colorado River.`\
 https://www.nytimes.com/2026/08/17/climate/lake-powell-record-low-colorado.html
 
 **After the Earthquakes**\
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/08/17/world/europe/mount-etna-hiker-lightning-strik
 **Karl-Anthony Towns and Jordyn Woods Get Married in Malibu Wedding**\
 `The Knicks center and the influencer and actress had a star-studded wedding celebration in Malibu over the weekend.`\
 https://www.nytimes.com/2026/08/17/style/karl-anthony-towns-jordyn-woods-wedding.html
-
-**Jefe del Comando Central de EE. UU. admite dificultades tras su visita al USS Lincoln**\
-`El almirante Brad Cooper reconoció el desafío del despliegue del portaaviones por casi nueve meses, pero dijo que los problemas de salud mental eran menores que en otros buques.`\
-https://www.nytimes.com/es/2026/08/17/espanol/estados-unidos/comando-dificultades-uss-lincoln-portaviones.html
 
