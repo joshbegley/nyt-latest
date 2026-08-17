@@ -1,3 +1,7 @@
+**What That $20 Burrito Says About the Psychology of Inflation**\
+`It’s the psychology of inflation that sparks outrage over a $20 burrito.`\
+https://www.nytimes.com/2026/08/17/opinion/inflation-affordability-prices-burrito.html
+
 **Appeals Court Rejects Trump’s Strategy of Picking U.S. Attorneys**\
 `It was the second federal appellate decision to take issue with the administration’s custom of leaving interim prosecutors in place to lead U.S. attorney’s offices to circumvent congressional approval.`\
 https://www.nytimes.com/2026/08/17/us/us-attorneys-interim-appointments.html
