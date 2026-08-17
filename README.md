@@ -183,7 +183,7 @@ https://www.nytimes.com/2026/08/16/crosswords/strands-sidekick-897.html
 https://www.nytimes.com/video/us/100000011094765/hurricane-lala-lashes-hawaiis-big-island-without-making-landfall.html
 
 **Live Updates: Lala Causes Widespread Outages and Road Closures**\
-`More than 200,000 customers were without power and at least two hospitals on the Big Island were operating on generators. Forecasters warned of flooding and residents were told to stay put.`\
+`Gov. Josh Green said at least 100 homes had been damaged or washed away on the Big Island. The storm left more than 150,000 customers without power.`\
 https://www.nytimes.com/live/2026/08/16/weather/lala-tropical-storm-hurricane-hawaii
 
 **El otro control de Trump sobre América Latina: la visa**\
