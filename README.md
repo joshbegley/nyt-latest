@@ -1,3 +1,11 @@
+**Andy Burnham, UK Prime Minister, Exchanged Texts With Someone Posing as Trump’s Chief of Staff**\
+`Prime Minister Andy Burnham messaged briefly with a person impersonating Susie Wiles, a British government official said.`\
+https://www.nytimes.com/2026/08/17/world/europe/andy-burnham-prime-minister-uk-fake-texts-trump.html
+
+**Mark Cuban and Other Founders Wade Into Wealth Tax Debate**\
+`Some entrepreneurs, including Mark Cuban, are publicly worried about the potential fallout from California’s proposal to impose a special billionaire tax.`\
+https://www.nytimes.com/2026/08/17/business/dealbook/cuban-founders-california-wealth-tax.html
+
 **Watch Out for El Niño**\
 `We explain the climate phenomenon.`\
 https://www.nytimes.com/2026/08/17/briefing/watch-out-for-el-nino.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/video/world/asia/100000011095423/trump-south-korea-milit
 **Hurricane Lala Cuts Off Hawaii Town With Region’s Only Hospital**\
 `Residents of Pahala were stranded after parts of a key highway collapsed under heavy rain. All roads leading to the town and its hospital, on the southern end of the Big Island, are now blocked.`\
 https://www.nytimes.com/2026/08/17/weather/pahala-isolated-kau-hawaii-big-island.html
-
-**‘It’s Always Sunny in Philadelphia’ and 6 More Shows to Watch on TV This Week**\
-`The sitcom begins its 18th season, and the teen drama “Outer Banks” airs its series finale.`\
-https://www.nytimes.com/2026/08/17/arts/television/its-always-sunny-in-philadelphia-what-to-watch.html
-
-**Cuba Is Out of Time**\
-`Governments can afford to keep playing the waiting game. Ordinary Cubans cannot.`\
-https://www.nytimes.com/2026/08/17/opinion/cuba-trump-rubio-venezuela.html
 
