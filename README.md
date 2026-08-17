@@ -1,3 +1,7 @@
+**Trump’s Overture to North Korea Strains Alliance With the South**\
+`President Trump wants to curtail military exercises with South Korea, saying they were hostile to North Korea. But under Mr. Kim, the North has become increasingly belligerent toward the South.`\
+https://www.nytimes.com/2026/08/17/world/asia/trump-korea-military-kim-jong-un.html
+
 **These Artists May Have Left Pakistan, but It’s Still Present in Their Work**\
 `Is it possible to make art that reflects a country and culture while living outside of it? For members of this diaspora, there’s no other choice.`\
 https://www.nytimes.com/2026/08/17/t-magazine/pakistan-diaspora-artists.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/17/world/asia/china-ai-data-chatbots.html
 **No Corrections: Aug. 17, 2026**\
 `No corrections appeared in print on Monday, Aug. 17, 2026.`\
 https://www.nytimes.com/2026/08/17/corrections/no-corrections-aug-17-2026.html
-
-**Quote of the Day: Held by Russia, Ukrainian Feels ‘Crushing’ Fear**\
-`Quotation of the Day for Monday, August 17, 2026.`\
-https://www.nytimes.com/2026/08/17/pageoneplus/quote-of-the-day-held-by-russia-ukrainian-feels-crushing-fear.html
 
