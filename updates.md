@@ -1,3 +1,7 @@
+**What It Will Take to Win the 2028 Democratic Presidential Nomination**\
+`A new early calendar will upend how Democrats select their 2028 champion.`\
+https://www.nytimes.com/2026/08/17/opinion/democratic-presidential-primary-2028.html
+
 **Hayden Panettiere: A Life in Pictures**\
 `The actress was a child star who went on to become a fixture of network TV dramas in the 2000s.`\
 https://www.nytimes.com/2026/08/17/arts/television/hayden-panettiere-life-in-pictures.html
