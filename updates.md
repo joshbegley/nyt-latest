@@ -1,3 +1,11 @@
+**El libro de Hayden Panettiere explora los desafíos que enfrentó**\
+`A propósito de la publicación de sus memorias, la actriz habló con el Times sobre cómo su madre la puso en televisión a los 11 meses de edad, la pérdida de la custodia de su hija y más.`\
+https://www.nytimes.com/es/2026/08/17/espanol/hayden-panettiere-entrevista-libro-memorias.html
+
+**Live Updates: Prosecutors Call First Witnesses in Tupac Shakur Murder Trial**\
+`A responding officer and a woman who had been in a nearby car testified to the events following the drive-by shooting of Tupac Shakur in 1996. Duane Keith Davis is now on trial, accused of supplying the murder weapon.`\
+https://www.nytimes.com/live/2026/08/17/arts/tupac-murder-trial-duane-davis
+
 **Two Goats Were Caught Trying to Ride a Bus**\
 `Two billy goats boarded the TriMet bus in Portland, Ore., last Tuesday. They were later returned to their owner, who lives nearby.`\
 https://www.nytimes.com/video/us/100000011096292/portland-oregon-billy-goat-bus.html
