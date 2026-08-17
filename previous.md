@@ -1,3 +1,7 @@
+**Hayden Panettiere, Star of ‘Nashville’ and ‘Heroes,’ Dies at 36**\
+`In May, she published a memoir after a tumultuous decade that involved depression, substance abuse, losing custody of her daughter and stints in rehab.`\
+https://www.nytimes.com/2026/08/17/arts/television/hayden-panettiere-dead.html
+
 **U.S. and Iran Blow Through Deadline to Agree to a Broad Deal to End War**\
 `President Trump said a cease-fire agreed in June would lead to limits on Iran’s nuclear program and finish the conflict, but the countries appear far apart.`\
 https://www.nytimes.com/2026/08/17/world/middleeast/iran-mou-deadline.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/16/business/iran-nuclear-false-claims.html
 **Should I Publicize a Bad Publicist?**\
 `Plus: An intern considers whether to give the boss an honest review.`\
 https://www.nytimes.com/2026/08/16/business/bad-boss-warning.html
-
-**Hannah Berner Is Having the Last Laugh, or Would if She Could**\
-`Since a jaw injection went awry and left her unable to smile, the comedian and podcast host has made the most of her predicament.`\
-https://www.nytimes.com/2026/08/16/style/hannah-berner-botox-jaw-tmj.html
 
