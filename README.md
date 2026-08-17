@@ -186,7 +186,3 @@ https://www.nytimes.com/2026/08/17/us/share-your-experiences-with-the-public-hea
 `Japan avoided a major disaster after a 6.8-magnitude earthquake hit last month. Our reporter River Akira Davis visited Kumamoto, a prefecture near the epicenter, to see how it built quake-proof buildings and infrastructure.`\
 https://www.nytimes.com/video/world/asia/100000011069179/japan-earthquake-disaster-kumamoto.html
 
-**Word of the Day: intelligentsia**\
-`This word has appeared in 14 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/08/17/learning/word-of-the-day-intelligentsia.html
-
