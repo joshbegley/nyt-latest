@@ -154,7 +154,7 @@ https://www.nytimes.com/2026/08/17/science/clinical-trial-jansens-disease-nizar-
 `Educators are worried that many students can no longer write essays without A.I. And it’s costing more than just grammar skills.`\
 https://www.nytimes.com/2026/08/17/us/student-writing-essays-ai.html
 
-**Murder Drops to Historic Lows in Baltimore**\
+**Killings Plunge in a City Once Known for Violence**\
 `After decades of notoriously high murder totals, Baltimore and the people whose work entails dealing with the city’s most violent crimes are adjusting to a new reality.`\
 https://www.nytimes.com/2026/08/17/us/baltimore-historic-decline-murder-homicide.html
 

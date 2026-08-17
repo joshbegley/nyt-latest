@@ -1,3 +1,7 @@
+**Killings Plunge in a City Once Known for Violence**\
+`After decades of notoriously high murder totals, Baltimore and the people whose work entails dealing with the city’s most violent crimes are adjusting to a new reality.`\
+https://www.nytimes.com/2026/08/17/us/baltimore-historic-decline-murder-homicide.html
+
 **Netflix, Ruth E. Carter and Lil’ Flip: It’s August on Martha’s Vineyard.**\
 `The Massachusetts island is booming as an epicenter of Black joy, cultural power and corporate investment.`\
 https://www.nytimes.com/2026/08/17/style/marthas-vineyard-black-community-events.html
