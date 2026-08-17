@@ -1,3 +1,7 @@
+**Live Updates: Prosecutors Call First Witnesses in Tupac Shakur Murder Trial**\
+`A responding officer and a woman who had been in a nearby car testified to the events following the drive-by shooting of Tupac Shakur in 1996.`\
+https://www.nytimes.com/live/2026/08/17/arts/tupac-murder-trial-duane-davis
+
 **Barred From Ballot, a Party Becomes a Vessel for Russians’ Discontent**\
 `The spotlight on the country’s only antiwar party has brought a spark to what had looked like another dull, tightly controlled election campaign.`\
 https://www.nytimes.com/2026/08/17/world/europe/russia-yabloko-party-election.html
