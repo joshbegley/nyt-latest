@@ -1,3 +1,7 @@
+**Kushner se reúne con Hamás para impulsar el plan de Trump para Gaza**\
+`El yerno del presidente se reunió con los líderes del grupo militante palestino en Egipto, según funcionarios. Pronto verá a Benjamín Netanyahu, el líder israelí.`\
+https://www.nytimes.com/es/2026/08/17/espanol/mundo/kushner-reunion-hamas-gaza.html
+
 **More U.S. Parents Opting Children Out of Vaccine Requirements, C.D.C. Reports**\
 `The new data on vaccine exemptions during the 2025-26 school year come just a week after President Trump signed an executive order calling to scale back childhood shots.`\
 https://www.nytimes.com/2026/08/17/well/vaccine-exemptions-rates.html
@@ -177,8 +181,4 @@ https://www.nytimes.com/video/arts/television/100000011095722/hayden-panettiere-
 **Do You Know These Notable Places Linked to Children’s Literature?**\
 `Try this short quiz on locations that were significant to popular 20th-century children’s books authors.`\
 https://www.nytimes.com/quiz/2026/08/17/bookreview/childrens-book-landmarks.html
-
-**Today, In Short**\
-`A shade of blue. The world’s ugliest dog. And Madonna.`\
-https://www.nytimes.com/2026/08/17/briefing/today-in-short.html
 

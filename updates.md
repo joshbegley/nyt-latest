@@ -1,3 +1,7 @@
+**More U.S. Parents Opting Children Out of Vaccine Requirements, C.D.C. Reports**\
+`The new data on vaccine exemptions during the 2025-26 school year come just a week after President Trump signed an executive order calling to scale back childhood shots.`\
+https://www.nytimes.com/2026/08/17/well/vaccine-exemptions-rates.html
+
 **Why Is It So Hard to Build a Transformer?**\
 `Transformers are the linchpin of modern civilization. A single one can take five years to build.`\
 https://www.nytimes.com/interactive/2026/08/17/magazine/transformers-power-electric-grid.html
