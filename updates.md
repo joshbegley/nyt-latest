@@ -1,3 +1,7 @@
+**How Ukraine’s Satellites Help Drive Its War Drones**\
+`Ukrainian drone teams have a powerful new tool: near real-time information on troop movements and locations.`\
+https://www.nytimes.com/2026/08/17/world/europe/from-the-sky-to-the-battlefield.html
+
 **Muere Hayden Panettiere, estrella de ‘Nashville’ y ‘Héroes’**\
 `Publicó en mayo sus memorias tras una década tumultuosa de depresión, abuso de sustancias, perder la custodia de su hija y periodos en rehabilitación.`\
 https://www.nytimes.com/es/2026/08/17/espanol/muere-hayden-panettiere.html
