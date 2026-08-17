@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011097270/17vid-trump-sot-kim-jong-un.html
+
 **Mary Peltola Shakes Up Campaign Staff Days Before Alaska’s Senate Primary**\
 `Ms. Peltola, the Democratic Senate candidate, fired a longtime senior aide and named a new campaign manager.`\
 https://www.nytimes.com/2026/08/17/us/politics/peltola-campaign-staff-change-primary.html
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/08/17/opinion/el-sayed-ocasio-cortez-mamdani-sander
 **As Iran Truce Expires and Options Shrivel, Trump Lashes Out**\
 `President Trump took aim at Oman, a U.S. ally that has been mediating the talks, as efforts to end a war he started have faltered.`\
 https://www.nytimes.com/2026/08/17/us/politics/trump-iran-truce-oman.html
-
-**Netflix, Ruth E. Carter and Lil’ Flip: It’s August on Martha’s Vineyard.**\
-`The Massachusetts island is booming as an epicenter of Black joy, cultural power and corporate investment.`\
-https://www.nytimes.com/2026/08/17/style/marthas-vineyard-black-community-events.html
 

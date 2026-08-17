@@ -1,3 +1,7 @@
+**Mary Peltola Shakes Up Campaign Staff Days Before Alaska’s Senate Primary**\
+`Ms. Peltola, the Democratic Senate candidate, fired a longtime senior aide and named a new campaign manager.`\
+https://www.nytimes.com/2026/08/17/us/politics/peltola-campaign-staff-change-primary.html
+
 **Hayden Panettiere Was in Cardiac Arrest When Authorities Responded to 911 Call**\
 `After the authorities responded to a 911 call in Greenville, S.C., an initial police investigation found no evidence of “foul play or suspicious circumstances.”`\
 https://www.nytimes.com/2026/08/17/arts/television/hayden-panettiere-death-foul-play.html
