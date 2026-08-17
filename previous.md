@@ -1,8 +1,16 @@
+**‘Benevolent’ Review: Trapped Women Dreaming of Escape**\
+`With her usual irreverent humor, the playwright Sophie McIntosh mines the experiences of four young, cooped-up women at a Manhattan reformatory in 1917.`\
+https://www.nytimes.com/2026/08/17/theater/benevolent-review-sophie-mcintosh.html
+
+**Mamdani Gave These Parents a Night Off. This Is How They Spent It.**\
+`New York City provided four hours of free babysitting to about 500 families. Parents used the time to reconnect with each other and to tackle chores uninterrupted.`\
+https://www.nytimes.com/2026/08/17/nyregion/mamdani-free-babysitting-nyc.html
+
 **EE. UU. e Irán incumplen el plazo para lograr un acuerdo de paz**\
 `El presidente Trump dijo que el alto al fuego de junio pondría límites al programa nuclear de Irán y daría fin al conflicto, pero los países parecen estar muy distanciados.`\
 https://www.nytimes.com/es/2026/08/17/espanol/mundo/incumplen-acuerdo-iran-eeeuu.html
 
-**Ye Announces Russia Concerts, Months After Western Europe Cancellations**\
+**Kanye West Announces Russia Concerts, Months After Western Europe Cancellations**\
 `Two St. Petersburg concerts by the rapper formerly known as Kanye West could become the first performances by a major Western act in Russia since the country invaded Ukraine.`\
 https://www.nytimes.com/2026/08/17/arts/music/ye-kanye-west-russia.html
 
@@ -173,16 +181,4 @@ https://www.nytimes.com/2026/08/17/arts/music/tupac-shakur-duane-davis-suge-knig
 **Silicon Valley Was Right From the Start**\
 `Silicon Valley was never pacifist; it just followed the customers.`\
 https://www.nytimes.com/2026/08/17/opinion/silicon-valley-war-pentagon.html
-
-**Jaguars Are Ready to Come Back. The Border Wall Might Stop Them.**\
-`A lone male roves the Arizona mountains, and a female has been spotted just across the border in Mexico. The sightings raise hopes for the species, despite serious threats.`\
-https://www.nytimes.com/2026/08/17/science/jaguars-are-ready-to-come-back-the-border-wall-might-stop-them.html
-
-**They’re Young, They’re Bros and They’re in City Hall**\
-`Mayor Zohran Mamdani’s bros — both men and women — are part of a team imbued with humor and sports fanaticism.`\
-https://www.nytimes.com/2026/08/17/nyregion/theyre-young-theyre-bros-and-theyre-in-city-hall.html
-
-**Elizabeth Smart Is Rethinking the True-Crime Podcast**\
-`Her abduction as a child became a national story. In a new true crime podcast, Smart speaks to survivors of violent crimes about what they endured and the lifelong process of healing.`\
-https://www.nytimes.com/2026/08/17/arts/elizabeth-smart-kidnapping-podcast-true-crime.html
 
