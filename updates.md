@@ -1,3 +1,7 @@
+**Tupac Shakur Murder Trial: Takeaways From Opening Statements**\
+`Prosecutors said Duane Keith Davis participated in the shooting as an act of gang retaliation, while the defense pointed to what it described as a lack of hard evidence.`\
+https://www.nytimes.com/2026/08/17/arts/music/tupac-shakur-murder-trial-takeaways-day-1.html
+
 **Lawyers Give Opening Statements in Tupac Shakur Murder Trial**\
 `Nevada prosecutors accuse Duane Keith Davis of acquiring a .40-caliber Glock and pursuing the rapper in a white Cadillac shortly before the fatal shooting on Sept. 7, 1996.`\
 https://www.nytimes.com/video/us/100000011096956/tupac-death-hearing-duane-davis.html

@@ -1,3 +1,7 @@
+**Trump Votes by Mail Again in Florida**\
+`The president also voted by mail in 2020 and in a Florida special election in March, even as he has railed against the practice and equated it to cheating.`\
+https://www.nytimes.com/2026/08/17/us/politics/trump-mail-vote-florida-election.html
+
 **Lawyers Give Opening Statements in Tupac Shakur Murder Trial**\
 `Nevada prosecutors accuse Duane Keith Davis of acquiring a .40-caliber Glock and pursuing the rapper in a white Cadillac shortly before the fatal shooting on Sept. 7, 1996.`\
 https://www.nytimes.com/video/us/100000011096956/tupac-death-hearing-duane-davis.html
