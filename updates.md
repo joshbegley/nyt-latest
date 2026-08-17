@@ -1,3 +1,7 @@
+**How Louisiana’s New Surgeon General Wants to Transform Public Health**\
+`Dr. Evelyn Griffin is pushing for more emphasis on wellness and prevention. She has also aligned with the MAHA movement in fighting government mandates and questioning the safety of some vaccines.`\
+https://www.nytimes.com/2026/08/17/us/evelyn-griffin-surgeon-general.html
+
 **Watch Out for El Niño**\
 `We explain the climate phenomenon.`\
 https://www.nytimes.com/2026/08/17/briefing/watch-out-for-el-nino.html
