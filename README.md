@@ -1,3 +1,7 @@
+**More Naming Drama at the Kennedy Center**\
+`Readers respond to the Kennedy Center Board’s vote to inscribe President Trump’s name on the building. Also, winning the A.I. race; a slogan for Democrats.`\
+https://www.nytimes.com/2026/08/17/opinion/trump-kennedy-center.html
+
 **Nvidia to Back Ohio Data Center With as Much as $105 Billion**\
 `The data center, one of the world’s largest, could cost as much as $500 billion and will be leased by OpenAI.`\
 https://www.nytimes.com/2026/08/17/technology/nvidia-ohio-data-center-openai.html
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/08/17/us/florida-primaries-democratic-socialists.ht
 **Buttigieg and El-Sayed Are Claiming Faith and Family for the Democrats**\
 `Flag, faith and family don’t belong to one political party.`\
 https://www.nytimes.com/2026/08/17/opinion/buttigieg-el-sayed-patriotism.html
-
-**In Ellensburg, Wash., Building a Home to Live for a Long Time**\
-`A couple wanted an intimate house for two that could also be scaled for entertaining a gang of old friends.`\
-https://www.nytimes.com/2026/08/17/realestate/ellensburg-wash-tokul-house-build.html
 
