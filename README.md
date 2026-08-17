@@ -1,3 +1,7 @@
+**‘Lanterns’ Season 1 Premiere Recap: No Evil Shall Escape**\
+`Episode 1 of HBO’s Green Lantern series offered two very different origin stories for two very different heroes. It also set a decidedly offbeat tone.`\
+https://www.nytimes.com/2026/08/16/arts/television/lanterns-recap-season-1-episode-1.html
+
 **Mamdani Speaks Mandarin to Promote Broadway, and Gets Good Reviews**\
 `Mayor Zohran Mamdani released videos in three languages to highlight a program that offers free theater tickets to high school students. His Mandarin earned some praise.`\
 https://www.nytimes.com/2026/08/16/nyregion/mamdani-mandarin-video.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/16/arts/television/zale-parry-dead.html
 **The U.S. Military Wants A.I. Dominance. Feuds and China May Thwart It.**\
 `The administration is veering wildly in its response to the national security implications of A.I. as China, America’s main technological and military rival, charges ahead.`\
 https://www.nytimes.com/2026/08/16/us/politics/military-ai-china-anthropic.html
-
-**A Free-for-All in Alaska as 17 Candidates Compete to Be Governor**\
-`Facing huge decisions, the oil-rich, cash-poor state will send four candidates to the final ballot in November. With so many candidates chasing so few voters, the hunt is intense.`\
-https://www.nytimes.com/2026/08/16/us/elections/alaska-governor-primary.html
 
