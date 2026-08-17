@@ -1,3 +1,7 @@
+**Iran’s Supreme Leader Signals Intention to Keep Country on a War Footing**\
+`Ayatollah Mojtaba Khamenei’s appointment of hard-line loyalists to top jobs suggests he is prepared to keep the country on a war footing and to quash domestic dissent.`\
+https://www.nytimes.com/2026/08/17/world/middleeast/iran-khamenei-military-leaders-war.html
+
 **Cuba Is Out of Time**\
 `Governments can afford to keep playing the waiting game. Ordinary Cubans cannot.`\
 https://www.nytimes.com/2026/08/17/opinion/cuba-trump-rubio-venezuela.html
