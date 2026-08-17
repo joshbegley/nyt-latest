@@ -150,7 +150,7 @@ https://www.nytimes.com/2026/08/17/us/evelyn-griffin-surgeon-general.html
 `A reader asks for help finding an alternative to denim.`\
 https://www.nytimes.com/2026/08/17/fashion/jeans-alternatves-shopping.html
 
-**How Islamophobia Moved From the Fringe to the Mainstream in Texas**\
+**Islamophobia’s Rise in Texas: ‘I Won’t Rest Until Every Muslim Is Gone’**\
 `Muslim communities have been growing for decades, particularly around Dallas. Now, conservatives want to roll up the welcome mat.`\
 https://www.nytimes.com/2026/08/17/us/politics/islamophobia-texas.html
 
