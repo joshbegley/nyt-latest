@@ -1,3 +1,7 @@
+**Facing Quagmire in Iran, Trump Turns to a Familiar Face: North Korea’s Kim Jong-un**\
+`Seven years ago, President Trump failed to disarm North Korea and walked away. Could the same thing happen with Iran?`\
+https://www.nytimes.com/2026/08/17/us/politics/trump-iran-north-korea-kim-jong-un.html
+
 **Judge Rules Trump Administration Can’t Scrap F.B.I. Move to Maryland**\
 `The ruling is almost certainly not the end of the lengthy fight over the F.B.I.’s future headquarters, which has lasted for years.`\
 https://www.nytimes.com/2026/08/17/us/politics/fbi-headquarters-maryland-trump.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/08/17/arts/music/tara-erraught-salzburg-festival.ht
 **Philippe Sly Is Living With Monks Ahead of Playing St. Francis at the Salzburg Festival**\
 `Philippe Sly felt he needed an immersion course to portray St. Francis in the new Salzburg Festival production of “St. François d’Assise.”`\
 https://www.nytimes.com/2026/08/17/arts/music/philippe-sly-francis-salzburg-festival.html
-
-**Stefan Zweig’s Former Home, Paschinger Schlössl, Is Again For Sale in Salzburg**\
-`The former home of Stefan Zweig, the Jewish Austrian writer, is unexpectedly for sale.`\
-https://www.nytimes.com/2026/08/17/arts/music/stefan-zweig-home-salzburg.html
 
 **Tupac Shakur Murder Trial Begins With Revenge Motive and Defendant’s Own Words**\
 `Duane Keith Davis is on trial for orchestrating the 1996 shooting, which he described in a memoir that he has since disavowed.`\
