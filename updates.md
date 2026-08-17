@@ -1,3 +1,11 @@
+**Netflix, Ruth E. Carter and Lil’ Flip: It’s August on Martha’s Vineyard.**\
+`The Massachusetts island is booming as an epicenter of Black joy, cultural power and corporate investment.`\
+https://www.nytimes.com/2026/08/17/style/marthas-vineyard-black-community-events.html
+
+**American Hiker Dies After Lightning Strike on Mount Etna in Italy**\
+`Rescuers found a 29-year-old man in serious condition on the volcano’s eastern slope on Sunday. He was later pronounced dead at a hospital in Catania.`\
+https://www.nytimes.com/2026/08/17/world/europe/mount-etna-hiker-lightning-strike-death.html
+
 **American Hiker Dies After Lighting Strike on Mount Etna in Italy**\
 `Rescuers found a 29-year-old man in serious condition on the volcano’s eastern slope on Sunday. He was later pronounced dead at a hospital in Catania.`\
 https://www.nytimes.com/2026/08/17/world/europe/mount-etna-hiker-lightning-strike-death.html

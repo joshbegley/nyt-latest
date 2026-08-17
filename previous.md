@@ -1,4 +1,8 @@
-**American Hiker Dies After Lighting Strike on Mount Etna in Italy**\
+**Netflix, Ruth E. Carter and Lil’ Flip: It’s August on Martha’s Vineyard.**\
+`The Massachusetts island is booming as an epicenter of Black joy, cultural power and corporate investment.`\
+https://www.nytimes.com/2026/08/17/style/marthas-vineyard-black-community-events.html
+
+**American Hiker Dies After Lightning Strike on Mount Etna in Italy**\
 `Rescuers found a 29-year-old man in serious condition on the volcano’s eastern slope on Sunday. He was later pronounced dead at a hospital in Catania.`\
 https://www.nytimes.com/2026/08/17/world/europe/mount-etna-hiker-lightning-strike-death.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/17/business/robots-stellantis-inbolt.html
 **Edwidge Danticat Explores the “Precarity of Life” in Her New Novel**\
 `A terrifying personal experience inspired Edwidge Danticat’s fifth novel, which is set in Miami and Brooklyn, but with Haiti always in mind.`\
 https://www.nytimes.com/2026/08/17/books/review/edwidge-danticat-dey-miami.html
-
-**Iran’s Supreme Leader Signals Intention to Keep Country on a War Footing**\
-`Ayatollah Mojtaba Khamenei’s appointment of hard-line loyalists to top jobs suggests he is prepared to keep the country on a war footing and to quash domestic dissent.`\
-https://www.nytimes.com/2026/08/17/world/middleeast/iran-khamenei-military-leaders-war.html
 
