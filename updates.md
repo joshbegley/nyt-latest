@@ -1,3 +1,11 @@
+**Andy Burnham, UK Prime Minister, Exchanged Texts With Someone Posing as Trump’s Chief of Staff**\
+`Prime Minister Andy Burnham messaged briefly with a person impersonating Susie Wiles, a British government official said.`\
+https://www.nytimes.com/2026/08/17/world/europe/andy-burnham-prime-minister-uk-fake-texts-trump.html
+
+**Mark Cuban and Other Founders Wade Into Wealth Tax Debate**\
+`Some entrepreneurs, including Mark Cuban, are publicly worried about the potential fallout from California’s proposal to impose a special billionaire tax.`\
+https://www.nytimes.com/2026/08/17/business/dealbook/cuban-founders-california-wealth-tax.html
+
 **Silicon Valley Was Right From the Start**\
 `Silicon Valley was never pacifist; it just followed the customers.`\
 https://www.nytimes.com/2026/08/17/opinion/silicon-valley-war-pentagon.html
