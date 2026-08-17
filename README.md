@@ -1,3 +1,7 @@
+**Karl-Anthony Towns and Jordyn Woods Get Married in Malibu Wedding**\
+`The Knicks center and the influencer and actress had a star-studded wedding celebration in Malibu over the weekend.`\
+https://www.nytimes.com/2026/08/17/style/karl-anthony-towns-jordyn-woods-wedding.html
+
 **Jefe del Comando Central de EE. UU. admite dificultades tras su visita al USS Lincoln**\
 `El almirante Brad Cooper reconoció el desafío del despliegue del portaaviones por casi nueve meses, pero dijo que los problemas de salud mental eran menores que en otros buques.`\
 https://www.nytimes.com/es/2026/08/17/espanol/estados-unidos/comando-dificultades-uss-lincoln-portaviones.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/17/world/middleeast/iran-khamenei-military-leade
 **EE. UU. busca el dominio de la IA militar y China podría frustrar el plan**\
 `El gobierno estadounidense cambia drásticamente de rumbo ante las implicaciones de la inteligencia artificial para la seguridad nacional, mientras su principal rival tecnológico y militar sigue avanzando.`\
 https://www.nytimes.com/es/2026/08/17/espanol/estados-unidos/ia-militar-china.html
-
-**There’s a Way to Gauge Childhood Development. Why Isn’t It Used More?**\
-`A screening tool is used less in New York State than almost anywhere in the United States. Now, officials are embarking on a campaign to change that.`\
-https://www.nytimes.com/2026/08/17/nyregion/new-york-child-development-screenings.html
 

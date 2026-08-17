@@ -1,3 +1,11 @@
+**Jefe del Comando Central de EE. UU. admite dificultades tras su visita al USS Lincoln**\
+`El almirante Brad Cooper reconoció el desafío del despliegue del portaaviones por casi nueve meses, pero dijo que los problemas de salud mental eran menores que en otros buques.`\
+https://www.nytimes.com/es/2026/08/17/espanol/estados-unidos/comando-dificultades-uss-lincoln-portaviones.html
+
+**I Let My Students Watch Me Struggle With a Masterpiece. It Changed Everything.**\
+`Teachers need to model the passion they want to see.`\
+https://www.nytimes.com/2026/08/17/opinion/higher-ed-dostoevsky-attention.html
+
 **How Ukraine’s Satellites Help Drive Its War Drones**\
 `Ukrainian drone teams have a powerful new tool: near real-time information on troop movements and locations.`\
 https://www.nytimes.com/2026/08/17/world/europe/from-the-sky-to-the-battlefield.html
