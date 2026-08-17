@@ -1,3 +1,7 @@
+**No Corrections: Aug. 16, 2026**\
+`No corrections appeared in print on Sunday, Aug. 16, 2026.`\
+https://www.nytimes.com/2026/08/17/pageoneplus/no-corrections-aug-16-2026.html
+
 **Andy Burnham, UK Prime Minister, Exchanged Texts With Someone Posing as Trump’s Chief of Staff**\
 `Prime Minister Andy Burnham messaged briefly with a person impersonating Susie Wiles, a British government official said.`\
 https://www.nytimes.com/2026/08/17/world/europe/andy-burnham-prime-minister-uk-fake-texts-trump.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/17/crosswords/spelling-bee-forum.html
 **Trump Orders Reduction of Military Exercises With South Korea**\
 `President Trump on Sunday instructed the Pentagon to reduce its joint military exercises with South Korea, a key U.S. ally in Asia. He also touted his good relationship with Kim Jong-un, North Korea’s leader.`\
 https://www.nytimes.com/video/world/asia/100000011095423/trump-south-korea-military-exercises.html
-
-**Hurricane Lala Cuts Off Hawaii Town With Region’s Only Hospital**\
-`Residents of Pahala were stranded after parts of a key highway collapsed under heavy rain. All roads leading to the town and its hospital, on the southern end of the Big Island, are now blocked.`\
-https://www.nytimes.com/2026/08/17/weather/pahala-isolated-kau-hawaii-big-island.html
 

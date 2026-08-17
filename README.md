@@ -1,3 +1,7 @@
+**Muere Hayden Panettiere, estrella de ‘Nashville’ y ‘Héroes’**\
+`Publicó en mayo sus memorias tras una década tumultuosa de depresión, abuso de sustancias, perder la custodia de su hija y periodos en rehabilitación.`\
+https://www.nytimes.com/es/2026/08/17/espanol/muere-hayden-panettiere.html
+
 **No Corrections: Aug. 16, 2026**\
 `No corrections appeared in print on Sunday, Aug. 16, 2026.`\
 https://www.nytimes.com/2026/08/17/pageoneplus/no-corrections-aug-16-2026.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/17/nyregion/new-york-child-development-screening
 **NYT Spelling Bee Answers for August 17, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/08/17/crosswords/spelling-bee-forum.html
-
-**Trump Orders Reduction of Military Exercises With South Korea**\
-`President Trump on Sunday instructed the Pentagon to reduce its joint military exercises with South Korea, a key U.S. ally in Asia. He also touted his good relationship with Kim Jong-un, North Korea’s leader.`\
-https://www.nytimes.com/video/world/asia/100000011095423/trump-south-korea-military-exercises.html
 

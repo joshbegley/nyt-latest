@@ -1,3 +1,7 @@
+**No Corrections: Aug. 16, 2026**\
+`No corrections appeared in print on Sunday, Aug. 16, 2026.`\
+https://www.nytimes.com/2026/08/17/pageoneplus/no-corrections-aug-16-2026.html
+
 **Islamophobia’s Rise in Texas: ‘I Won’t Rest Until Every Muslim Is Gone’**\
 `Muslim communities have been growing for decades, particularly around Dallas. Now, conservatives want to roll up the welcome mat.`\
 https://www.nytimes.com/2026/08/17/us/politics/islamophobia-texas.html
