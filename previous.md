@@ -2,7 +2,7 @@
 `We look at the crowded race to replace Byron Donalds.`\
 https://www.nytimes.com/2026/08/17/us/politics/florida-byron-donalds-election.html
 
-**Why Is It So Hard to Build the Thing Our Entire Power Supply Depends On?**\
+**Why Is It So Hard to Build a Transformer?**\
 `Transformers are the linchpin of modern civilization. A single one can take five years to build.`\
 https://www.nytimes.com/interactive/2026/08/17/magazine/transformers-power-electric-grid.html
 
