@@ -70,7 +70,7 @@ https://www.nytimes.com/interactive/2026/08/17/opinion/covid-pandemic-lab-leak-p
 `Prosecutors say Duane Davis and three other men who are now deceased were involved in the fatal confrontation in 1996.`\
 https://www.nytimes.com/2026/08/17/arts/music/tupac-shakur-duane-davis-suge-knight-witnesses.html
 
-**How Silicon Valley Fell Back in Love With Bombs**\
+**Silicon Valley Was Right From the Start**\
 `Silicon Valley was never pacifist; it just followed the customers.`\
 https://www.nytimes.com/2026/08/17/opinion/silicon-valley-war-pentagon.html
 
