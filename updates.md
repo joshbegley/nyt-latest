@@ -1,3 +1,7 @@
+**Muere Hayden Panettiere, estrella de ‘Nashville’ y ‘Héroes’**\
+`Publicó en mayo sus memorias tras una década tumultuosa de depresión, abuso de sustancias, perder la custodia de su hija y periodos en rehabilitación.`\
+https://www.nytimes.com/es/2026/08/17/espanol/muere-hayden-panettiere.html
+
 **No Corrections: Aug. 16, 2026**\
 `No corrections appeared in print on Sunday, Aug. 16, 2026.`\
 https://www.nytimes.com/2026/08/17/pageoneplus/no-corrections-aug-16-2026.html
