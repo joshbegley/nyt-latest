@@ -1,3 +1,15 @@
+**Tupac Shakur Murder Trial: Takeaways From Day 1**\
+`Prosecutors said Duane Keith Davis participated in the shooting as an act of gang retaliation, while the defense pointed to what it described as a lack of hard evidence.`\
+https://www.nytimes.com/2026/08/17/arts/music/tupac-shakur-murder-trial-takeaways-day-1.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/business/100000011097021/Biz-Europe-Compete-video.html
+
+**Mangione’s State Trial Delayed as His Lawyers Seek Dismissal**\
+`The delay comes after Luigi Mangione pleaded guilty in federal court on Friday to stalking that led to the death of Brian Thompson, a health care executive.`\
+https://www.nytimes.com/2026/08/17/nyregion/luigi-mangione-state-trial-delayed.html
+
 **What It Will Take to Win the 2028 Democratic Presidential Nomination**\
 `A new early calendar will upend how Democrats select their 2028 champion.`\
 https://www.nytimes.com/2026/08/17/opinion/democratic-presidential-primary-2028.html
