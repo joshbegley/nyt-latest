@@ -1,3 +1,7 @@
+**Un oscuro pasado nazi sale a la luz y enfrenta a dos familias**\
+`Una mujer consiguió el expediente penal de su abuela, una colaboracionista, y se ofreció a compartirlo con una familia judía que había sido traicionada. Después se retractó y comenzó una nueva disputa.`\
+https://www.nytimes.com/es/2026/08/17/espanol/cultura/familia-nazi-colaboracionista.html
+
 **‘Benevolent’ Review: Trapped Women Dreaming of Escape**\
 `With her usual irreverent humor, the playwright Sophie McIntosh mines the experiences of four young, cooped-up women at a Manhattan reformatory in 1917.`\
 https://www.nytimes.com/2026/08/17/theater/benevolent-review-sophie-mcintosh.html
@@ -177,8 +181,4 @@ https://www.nytimes.com/interactive/2026/08/17/opinion/covid-pandemic-lab-leak-p
 **There Are Few Witnesses to Tupac Shakur’s Drive-by Shooting**\
 `Prosecutors say Duane Davis and three other men who are now deceased were involved in the fatal confrontation in 1996.`\
 https://www.nytimes.com/2026/08/17/arts/music/tupac-shakur-duane-davis-suge-knight-witnesses.html
-
-**Silicon Valley Was Right From the Start**\
-`Silicon Valley was never pacifist; it just followed the customers.`\
-https://www.nytimes.com/2026/08/17/opinion/silicon-valley-war-pentagon.html
 

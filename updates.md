@@ -1,3 +1,7 @@
+**Un oscuro pasado nazi sale a la luz y enfrenta a dos familias**\
+`Una mujer consiguió el expediente penal de su abuela, una colaboracionista, y se ofreció a compartirlo con una familia judía que había sido traicionada. Después se retractó y comenzó una nueva disputa.`\
+https://www.nytimes.com/es/2026/08/17/espanol/cultura/familia-nazi-colaboracionista.html
+
 **‘Benevolent’ Review: Trapped Women Dreaming of Escape**\
 `With her usual irreverent humor, the playwright Sophie McIntosh mines the experiences of four young, cooped-up women at a Manhattan reformatory in 1917.`\
 https://www.nytimes.com/2026/08/17/theater/benevolent-review-sophie-mcintosh.html
