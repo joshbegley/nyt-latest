@@ -1,3 +1,7 @@
+**Appeals Court Rejects Trump’s Strategy of Picking U.S. Attorneys**\
+`It was the second federal appellate decision to take issue with the administration’s custom of leaving interim prosecutors in place to lead U.S. attorney’s offices to circumvent congressional approval.`\
+https://www.nytimes.com/2026/08/17/us/us-attorneys-interim-appointments.html
+
 **Trump to Travel to Myrtle Beach to Rally for Darline Graham**\
 `The sister of Lindsey Graham was appointed to his Senate seat on an interim basis. She must win a runoff next week against a conservative House member to serve a full six-year term.`\
 https://www.nytimes.com/2026/08/17/us/politics/south-carolina-senate-runoff-graham-norman-trump.html
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/08/17/world/middleeast/houthis-saudi-strike.html
 **Tupac Shakur Murder Trial Begins With Revenge Motive and Defendant’s Own Words**\
 `Duane Keith Davis is on trial for orchestrating the 1996 shooting, which he described in a memoir that he has since disavowed.`\
 https://www.nytimes.com/live/2026/08/17/arts/tupac-murder-trial-duane-davis
-
-**Hayden Panettiere, Known for ‘Nashville’ and ‘Heroes,’ Dies at 36**\
-`Hayden Panettiere began her career as a child actress before establishing herself as a star with roles on the TV shows “Heroes” and “Nashville.”`\
-https://www.nytimes.com/video/arts/television/100000011095722/hayden-panettiere-dead-nashville-heroes.html
 

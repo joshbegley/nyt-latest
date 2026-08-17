@@ -1,3 +1,7 @@
+**Appeals Court Rejects Trump’s Strategy of Picking U.S. Attorneys**\
+`It was the second federal appellate decision to take issue with the administration’s custom of leaving interim prosecutors in place to lead U.S. attorney’s offices to circumvent congressional approval.`\
+https://www.nytimes.com/2026/08/17/us/us-attorneys-interim-appointments.html
+
 **Trump to Travel to Myrtle Beach to Rally for Darline Graham**\
 `The sister of Lindsey Graham was appointed to his Senate seat on an interim basis. She must win a runoff next week against a conservative House member to serve a full six-year term.`\
 https://www.nytimes.com/2026/08/17/us/politics/south-carolina-senate-runoff-graham-norman-trump.html
