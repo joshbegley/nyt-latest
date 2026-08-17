@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/08/17/opinion/trump-kennedy-center.html
 `The data center, one of the world’s largest, could cost as much as $500 billion and will be leased by OpenAI.`\
 https://www.nytimes.com/2026/08/17/technology/nvidia-ohio-data-center-openai.html
 
-**What It Will Take to Win the 2028 Democratic Presidential Primary**\
+**What It Will Take to Win the 2028 Democratic Presidential Primaries**\
 `A new early calendar will upend how Democrats select their 2028 champion.`\
 https://www.nytimes.com/2026/08/17/opinion/democratic-presidential-primary-2028.html
 
@@ -70,7 +70,7 @@ https://www.nytimes.com/2026/08/17/arts/music/stefan-zweig-home-salzburg.html
 `The armed group, based in Yemen and backed by Iran, said it had launched missiles near the vital maritime trade route, in a conflict that shows no sign of abating.`\
 https://www.nytimes.com/2026/08/17/world/middleeast/houthis-saudi-strike.html
 
-**Live Updates: Prosecutors Call First Witness in Tupac Shakur Murder Trial**\
+**Live Updates: Prosecutors Call First Witnesses in Tupac Shakur Murder Trial**\
 `The drive-by shooting of Tupac Shakur in 1996 was a pivotal moment in music history. Duane Keith Davis is now on trial, accused of supplying the murder weapon.`\
 https://www.nytimes.com/live/2026/08/17/arts/tupac-murder-trial-duane-davis
 
