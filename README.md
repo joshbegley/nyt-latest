@@ -1,3 +1,7 @@
+**American Hiker Dies After Lighting Strike on Mount Etna in Italy**\
+`Rescuers found a 29-year-old man in serious condition on the volcano’s eastern slope on Sunday. He was later pronounced dead at a hospital in Catania.`\
+https://www.nytimes.com/2026/08/17/world/europe/mount-etna-hiker-lightning-strike-death.html
+
 **Karl-Anthony Towns and Jordyn Woods Get Married in Malibu Wedding**\
 `The Knicks center and the influencer and actress had a star-studded wedding celebration in Malibu over the weekend.`\
 https://www.nytimes.com/2026/08/17/style/karl-anthony-towns-jordyn-woods-wedding.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/17/books/review/edwidge-danticat-dey-miami.html
 **Iran’s Supreme Leader Signals Intention to Keep Country on a War Footing**\
 `Ayatollah Mojtaba Khamenei’s appointment of hard-line loyalists to top jobs suggests he is prepared to keep the country on a war footing and to quash domestic dissent.`\
 https://www.nytimes.com/2026/08/17/world/middleeast/iran-khamenei-military-leaders-war.html
-
-**EE. UU. busca el dominio de la IA militar y China podría frustrar el plan**\
-`El gobierno estadounidense cambia drásticamente de rumbo ante las implicaciones de la inteligencia artificial para la seguridad nacional, mientras su principal rival tecnológico y militar sigue avanzando.`\
-https://www.nytimes.com/es/2026/08/17/espanol/estados-unidos/ia-militar-china.html
 
