@@ -1,3 +1,7 @@
+**Border Construction in Big Bend Is Halted After Drawing Criticism**\
+`The Trump administration has been carving a path through some of the beloved national park’s major natural attractions.`\
+https://www.nytimes.com/2026/08/17/us/big-bend-border-wall-texas-construction.html
+
 **El libro de Hayden Panettiere explora los desafíos que enfrentó**\
 `A propósito de la publicación de sus memorias, la actriz habló con el Times sobre cómo su madre la puso en televisión a los 11 meses de edad, la pérdida de la custodia de su hija y más.`\
 https://www.nytimes.com/es/2026/08/17/espanol/hayden-panettiere-entrevista-libro-memorias.html
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/08/17/podcasts/the-daily/luigi-mangiones-legal-stra
 **NYT Connections Answers for August 18, 2026**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, Aug. 18, 2026.`\
 https://www.nytimes.com/2026/08/17/crosswords/connections-companion-1164.html
-
-**Today’s Wordle Hints for August 18, 2026**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, Aug. 18, 2026.`\
-https://www.nytimes.com/2026/08/17/crosswords/wordle-review-1886.html
 
