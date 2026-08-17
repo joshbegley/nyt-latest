@@ -1,3 +1,15 @@
+**EE. UU. busca el dominio de la IA militar y China podría frustrar el plan**\
+`El gobierno estadounidense cambia drásticamente de rumbo ante las implicaciones de la inteligencia artificial para la seguridad nacional, mientras su principal rival tecnológico y militar sigue avanzando.`\
+https://www.nytimes.com/es/2026/08/17/espanol/estados-unidos/ia-militar-china.html
+
+**There’s a Way to Gauge Childhood Development. Why Isn’t It Used More?**\
+`A screening tool is used less in New York State than almost anywhere in the United States. Now, officials are embarking on a campaign to change that.`\
+https://www.nytimes.com/2026/08/17/nyregion/new-york-child-development-screenings.html
+
+**NYT Spelling Bee Answers for August 17, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/08/17/crosswords/spelling-bee-forum.html
+
 **Trump Orders Reduction of Military Exercises With South Korea**\
 `President Trump on Sunday instructed the Pentagon to reduce its joint military exercises with South Korea, a key U.S. ally in Asia. He also touted his good relationship with Kim Jong-un, North Korea’s leader.`\
 https://www.nytimes.com/video/world/asia/100000011095423/trump-south-korea-military-exercises.html

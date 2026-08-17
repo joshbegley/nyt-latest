@@ -1,3 +1,15 @@
+**EE. UU. busca el dominio de la IA militar y China podría frustrar el plan**\
+`El gobierno estadounidense cambia drásticamente de rumbo ante las implicaciones de la inteligencia artificial para la seguridad nacional, mientras su principal rival tecnológico y militar sigue avanzando.`\
+https://www.nytimes.com/es/2026/08/17/espanol/estados-unidos/ia-militar-china.html
+
+**There’s a Way to Gauge Childhood Development. Why Isn’t It Used More?**\
+`A screening tool is used less in New York State than almost anywhere in the United States. Now, officials are embarking on a campaign to change that.`\
+https://www.nytimes.com/2026/08/17/nyregion/new-york-child-development-screenings.html
+
+**NYT Spelling Bee Answers for August 17, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/08/17/crosswords/spelling-bee-forum.html
+
 **Trump Orders Reduction of Military Exercises With South Korea**\
 `President Trump on Sunday instructed the Pentagon to reduce its joint military exercises with South Korea, a key U.S. ally in Asia. He also touted his good relationship with Kim Jong-un, North Korea’s leader.`\
 https://www.nytimes.com/video/world/asia/100000011095423/trump-south-korea-military-exercises.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/08/16/us/politics/brink-of-war-reagan-nuclear-weapo
 **As Iran War Turns Into Economic Battle, a New U.S. Strategy Recalls Old Ones**\
 `The United States and Iran are poised to blow past a deadline they had set themselves to broker terms on peace and Iran’s nuclear program.`\
 https://www.nytimes.com/2026/08/16/world/middleeast/iran-war-us-trump.html
-
-**Could El-Sayed Cost Democrats Michigan?**\
-`Not all progressives are equal: Candidates of the activist left typically don’t perform as well as other Democrats.`\
-https://www.nytimes.com/2026/08/16/upshot/michigan-progressives-el-sayed.html
-
-**AIPAC Targets Progressive Democrat in Race to Replace Swalwell**\
-`Two Democrats are in a runoff to replace Eric Swalwell, who resigned from Congress in April. The American Israel Public Affairs Committee is spending heavily against a progressive candidate.`\
-https://www.nytimes.com/2026/08/16/us/swalwell-seat-aisha-wahab-aipac.html
-
-**How to Look at a Painting**\
-`What I learned on an accidental pilgrimage.`\
-https://www.nytimes.com/2026/08/16/briefing/caravaggio.html
 
