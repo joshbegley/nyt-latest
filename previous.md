@@ -2,7 +2,7 @@
 `We explain the climate phenomenon.`\
 https://www.nytimes.com/2026/08/17/briefing/watch-out-for-el-nino.html
 
-**Kushner Meets Netanyahu in Effort to Break Logjam Over Gaza**\
+**Kushner Meets Netanyahu in Israel in Effort to Break Logjam Over Gaza**\
 `Prime Minister Benjamin Netanyahu of Israel has refused to pull back the country’s military until Hamas fully disarms. But the Trump administration is under pressure to show progress.`\
 https://www.nytimes.com/2026/08/17/world/middleeast/kushner-netanyahu-gaza-peace-deal.html
 
