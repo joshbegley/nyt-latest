@@ -1,3 +1,7 @@
+**Hurricane Lala Cuts Off Hawaii Town With Region’s Only Hospital**\
+`Residents of Pahala were stranded after parts of a key highway collapsed under heavy rain. All roads leading to the town and its hospital, on the southern end of the Big Island, are now blocked.`\
+https://www.nytimes.com/2026/08/17/weather/pahala-isolated-kau-hawaii-big-island.html
+
 **‘It’s Always Sunny in Philadelphia’ and 6 More Shows to Watch on TV This Week**\
 `The sitcom begins its 18th season, and the teen drama “Outer Banks” airs its series finale.`\
 https://www.nytimes.com/2026/08/17/arts/television/its-always-sunny-in-philadelphia-what-to-watch.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/16/briefing/caravaggio.html
 **Democrats Face a Potential Tea Party Moment**\
 `A string of primary wins by progressive candidates has revealed the strength of a high-energy insurgent movement but also its possible limitations.`\
 https://www.nytimes.com/2026/08/16/us/politics/democratic-party-tea-party-moment.html
-
-**He’s Hiking 2,190 Miles. We Tagged Along for 16, Cameras and All.**\
-`A 91-year-old hiker is on a quest to complete the entire Appalachian Trail. Two journalists, lugging hefty equipment, joined him for a scenic but punishing stretch.`\
-https://www.nytimes.com/2026/08/16/insider/appalachian-trail-hiking-grey-beard.html
 

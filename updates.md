@@ -1,3 +1,7 @@
+**Hurricane Lala Cuts Off Hawaii Town With Region’s Only Hospital**\
+`Residents of Pahala were stranded after parts of a key highway collapsed under heavy rain. All roads leading to the town and its hospital, on the southern end of the Big Island, are now blocked.`\
+https://www.nytimes.com/2026/08/17/weather/pahala-isolated-kau-hawaii-big-island.html
+
 **‘It’s Always Sunny in Philadelphia’ and 6 More Shows to Watch on TV This Week**\
 `The sitcom begins its 18th season, and the teen drama “Outer Banks” airs its series finale.`\
 https://www.nytimes.com/2026/08/17/arts/television/its-always-sunny-in-philadelphia-what-to-watch.html
