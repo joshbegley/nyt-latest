@@ -1,3 +1,7 @@
+**AI Slop Is Everywhere. Spotify, LinkedIn and Others Have Had Enough.**\
+`Spotify, LinkedIn and others are trying to dig out of a digital sewage heap full of low-quality content made with artificial intelligence.`\
+https://www.nytimes.com/2026/08/17/technology/ai-slop.html
+
 **Supreme Court Again Rejects Trump’s Appeal of $5 Million E. Jean Carroll Payment**\
 `The court declined President Trump’s long-shot request that it reconsider his appeal. He has separately asked the court to overturn a much larger 2024 award.`\
 https://www.nytimes.com/2026/08/17/us/politics/supreme-court-trump-carroll.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/08/17/learning/word-of-the-day-intelligentsia.html
 **How Ukraine’s Satellites Help Drive Its War Drones**\
 `Ukrainian drone teams have a powerful new tool: near real-time information on troop movements and locations.`\
 https://www.nytimes.com/2026/08/17/world/europe/from-the-sky-to-the-battlefield.html
-
-**What Exile Means for an Artist**\
-`For many, the state of ‘in-betweenness’ can be a source of inspiration.`\
-https://www.nytimes.com/2026/08/17/t-magazine/exile-artists-pakistan.html
 
