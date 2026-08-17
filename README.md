@@ -1,3 +1,7 @@
+**Watch Out for El Niño**\
+`We explain the climate phenomenon.`\
+https://www.nytimes.com/2026/08/17/briefing/watch-out-for-el-nino.html
+
 **Kushner Meets Netanyahu in Effort to Break Logjam Over Gaza**\
 `Prime Minister Benjamin Netanyahu of Israel has refused to pull back the country’s military until Hamas fully disarms. But the Trump administration is under pressure to show progress.`\
 https://www.nytimes.com/2026/08/17/world/middleeast/kushner-netanyahu-gaza-peace-deal.html
@@ -130,7 +134,7 @@ https://www.nytimes.com/2026/08/17/well/needle-injections-peptides-glp1-drugs-bo
 `Maria Geyman, the Kyiv-born founder of Masha Tea, gathered friends — and her family’s Soviet-era tea ware — to celebrate her first book at a New York institution.`\
 https://www.nytimes.com/2026/08/17/t-magazine/maria-geyman-masha-tea-party-book.html
 
-**How Louisiana’s New Surgeon General Wants to Transform Public Health**\
+**How Louisiana’s New Surgeon General Wants to Transform Public Health.**\
 `Dr. Evelyn Griffin is pushing for more emphasis on wellness and prevention. She has also aligned with the MAHA movement in fighting government mandates and questioning the safety of some vaccines.`\
 https://www.nytimes.com/2026/08/17/us/evelyn-griffin-surgeon-general.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/17/arts/television/its-always-sunny-in-philadelp
 **Cuba Is Out of Time**\
 `Governments can afford to keep playing the waiting game. Ordinary Cubans cannot.`\
 https://www.nytimes.com/2026/08/17/opinion/cuba-trump-rubio-venezuela.html
-
-**Hilo Is Accustomed to Rain. Hurricane Lala Was Different.**\
-`The city on the eastern side of the island of Hawaii flooded on Saturday night, and powerful winds toppled branches onto homes and power lines.`\
-https://www.nytimes.com/2026/08/17/weather/hurricane-lala-hawaii-hilo-impact.html
 
