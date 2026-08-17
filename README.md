@@ -146,7 +146,7 @@ https://www.nytimes.com/article/wildfire-smoke-health-effect.html
 `Democrats aren’t shifting left as much as you may think.`\
 https://www.nytimes.com/2026/08/17/opinion/el-sayed-ocasio-cortez-mamdani-sanders.html
 
-**Trump Lashes Out as Preliminary Deal With Iran Expires**\
+**As Iran Truce Expires and Options Shrivel, Trump Lashes Out**\
 `President Trump took aim at Oman, a U.S. ally that has been mediating the talks, as efforts to end a war he started have faltered.`\
 https://www.nytimes.com/2026/08/17/us/politics/trump-iran-truce-oman.html
 
