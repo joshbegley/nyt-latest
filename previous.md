@@ -1,3 +1,7 @@
+**Judge Rules Trump Administration Can’t Scrap F.B.I. Move to Maryland**\
+`The ruling is almost certainly not the end of the lengthy fight over the F.B.I.’s future headquarters, which has lasted for years.`\
+https://www.nytimes.com/2026/08/17/us/politics/fbi-headquarters-maryland-trump.html
+
 **What That $20 Burrito Says About the Psychology of Inflation**\
 `It’s the psychology of inflation that sparks outrage over a $20 burrito.`\
 https://www.nytimes.com/2026/08/17/opinion/inflation-affordability-prices-burrito.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/08/17/arts/music/philippe-sly-francis-salzburg-fest
 **Stefan Zweig’s Former Home, Paschinger Schlössl, Is Again For Sale in Salzburg**\
 `The former home of Stefan Zweig, the Jewish Austrian writer, is unexpectedly for sale.`\
 https://www.nytimes.com/2026/08/17/arts/music/stefan-zweig-home-salzburg.html
-
-**Houthis Claim Strike on Saudi Vessel as Red Sea Violence Escalates**\
-`The armed group, based in Yemen and backed by Iran, said it had launched missiles near the vital maritime trade route, in a conflict that shows no sign of abating.`\
-https://www.nytimes.com/2026/08/17/world/middleeast/houthis-saudi-strike.html
 
 **Tupac Shakur Murder Trial Begins With Revenge Motive and Defendant’s Own Words**\
 `Duane Keith Davis is on trial for orchestrating the 1996 shooting, which he described in a memoir that he has since disavowed.`\
