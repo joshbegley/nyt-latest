@@ -1,3 +1,7 @@
+**Islamophobia’s Rise in Texas: ‘I Won’t Rest Until Every Muslim Is Gone’**\
+`Muslim communities have been growing for decades, particularly around Dallas. Now, conservatives want to roll up the welcome mat.`\
+https://www.nytimes.com/2026/08/17/us/politics/islamophobia-texas.html
+
 **Andy Burnham, UK Prime Minister, Exchanged Texts With Someone Posing as Trump’s Chief of Staff**\
 `Prime Minister Andy Burnham messaged briefly with a person impersonating Susie Wiles, a British government official said.`\
 https://www.nytimes.com/2026/08/17/world/europe/andy-burnham-prime-minister-uk-fake-texts-trump.html
