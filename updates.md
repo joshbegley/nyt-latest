@@ -1,3 +1,7 @@
+**‘Lanterns’ Season 1 Premiere Recap: No Evil Shall Escape**\
+`Episode 1 of HBO’s Green Lantern series offered two very different origin stories for two very different heroes. It also set a decidedly offbeat tone.`\
+https://www.nytimes.com/2026/08/16/arts/television/lanterns-recap-season-1-episode-1.html
+
 **Mamdani Speaks Mandarin to Promote Broadway, and Gets Good Reviews**\
 `Mayor Zohran Mamdani released videos in three languages to highlight a program that offers free theater tickets to high school students. His Mandarin earned some praise.`\
 https://www.nytimes.com/2026/08/16/nyregion/mamdani-mandarin-video.html

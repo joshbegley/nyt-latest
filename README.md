@@ -82,7 +82,7 @@ https://www.nytimes.com/2026/08/16/dining/easy-dinners-for-a-not-easy-time-of-ye
 `Readers respond to an Opinion guest essay about the various names given to the Civil War. Also: The Red Scare campaign ploy.`\
 https://www.nytimes.com/2026/08/16/opinion/civil-war-names.html
 
-**He’s Awkward. He’s Sticky. He’s the Best Superhero.**\
+**Superheroes Are a Bore. Except This One.**\
 `If you want or need any superhero right now, you’re better off with Spider-Man.`\
 https://www.nytimes.com/2026/08/16/opinion/spider-man-brand-new-day-superhero.html
 
