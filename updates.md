@@ -1,3 +1,15 @@
+**Everything Salmon With Creamy Caper Sauce**\
+`Covered in a crisp, everything-seasoning crust and served with a creamy, tangy caper sauce, this quick, weeknight salmon dinner is inspired by the beloved flavors of bagels and lox.`\
+https://www.nytimes.com/video/dining/100000011097124/everything-salmon-with-creamy-caper-sauce.html
+
+**Hayden Panettiere: esto es lo que sabemos sobre su muerte**\
+`Después de que las autoridades respondieron a una llamada al 911 en Greenville, Carolina del Sur, una investigación policial inicial no encontró evidencia de ‘un acto delictivo o circunstancias sospechosas’.`\
+https://www.nytimes.com/es/2026/08/17/espanol/cultura/hayden-panettiere-de-que-murio.html
+
+**Lake Powell Hits Lowest Level On Record As Water Crisis Continues**\
+`Levels in Lakes Mead and Powell have not been so low since 1957, underscoring a water crisis that plagues seven states that rely on the Colorado River.`\
+https://www.nytimes.com/2026/08/17/climate/lake-powell-record-low-colorado.html
+
 **Lake Powell Hits Lowest Level On Record As Water Crisis Continues**\
 `Levels in the nation’s two largest reservoirs have not been so low since 1957, underscoring a water crisis that the Southwest is struggling to solve.`\
 https://www.nytimes.com/2026/08/17/climate/lake-powell-record-low-colorado.html
