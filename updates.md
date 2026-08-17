@@ -1,3 +1,11 @@
+**Trump to Travel to Myrtle Beach to Rally for Darline Graham**\
+`The sister of Lindsey Graham was appointed to his Senate seat on an interim basis. She must win a runoff next week against a conservative House member to serve a full six-year term.`\
+https://www.nytimes.com/2026/08/17/us/politics/south-carolina-senate-runoff-graham-norman-trump.html
+
+**Kushner se reúne con Hamás para impulsar el plan de Trump para Gaza**\
+`El yerno del presidente se reunió con los líderes del grupo militante palestino en Egipto, según funcionarios. Pronto verá a Benjamín Netanyahu, el líder israelí.`\
+https://www.nytimes.com/es/2026/08/17/espanol/mundo/kushner-reunion-hamas-gaza.html
+
 **More U.S. Parents Opting Children Out of Vaccine Requirements, C.D.C. Reports**\
 `The new data on vaccine exemptions during the 2025-26 school year come just a week after President Trump signed an executive order calling to scale back childhood shots.`\
 https://www.nytimes.com/2026/08/17/well/vaccine-exemptions-rates.html
