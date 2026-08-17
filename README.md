@@ -1,3 +1,7 @@
+**More U.S. Parents Opting Children Out of Vaccine Requirements, C.D.C. Reports**\
+`The new data on vaccine exemptions during the 2025-26 school year come just a week after President Trump signed an executive order calling to scale back childhood shots.`\
+https://www.nytimes.com/2026/08/17/well/vaccine-exemptions-rates.html
+
 **Florida Race to Replace Byron Donalds Features Candidates Who Have Already Run for Congress**\
 `We look at the crowded race to replace Byron Donalds.`\
 https://www.nytimes.com/2026/08/17/us/politics/florida-byron-donalds-election.html
@@ -177,8 +181,4 @@ https://www.nytimes.com/quiz/2026/08/17/bookreview/childrens-book-landmarks.html
 **Today, In Short**\
 `A shade of blue. The world’s ugliest dog. And Madonna.`\
 https://www.nytimes.com/2026/08/17/briefing/today-in-short.html
-
-**Shrimp and Avocado Salad With Peanut Dressing; One-Pot Orzo With Zucchini**\
-`Ideal meals for the back half of August.`\
-https://www.nytimes.com/2026/08/17/dining/shrimp-and-avocado-salad-with-peanut-dressing-one-pot-orzo-with-zucchini.html
 
