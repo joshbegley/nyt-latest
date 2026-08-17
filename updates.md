@@ -1,3 +1,7 @@
+**Hilo Is Accustomed to Rain. Hurricane Lala Was Different.**\
+`The city on the eastern side of the island of Hawaii flooded on Saturday night, and powerful winds toppled branches onto homes and power lines.`\
+https://www.nytimes.com/2026/08/17/weather/hurricane-lala-hawaii-hilo-impact.html
+
 **Hayden Panettiere, Star of ‘Nashville’ and ‘Heroes,’ Dies at 36**\
 `In May, she published a memoir after a tumultuous decade that involved depression, substance abuse, losing custody of her daughter and stints in rehab.`\
 https://www.nytimes.com/2026/08/17/arts/television/hayden-panettiere-dead.html
