@@ -1,3 +1,11 @@
+**Hayden Panettiere: A Life in Pictures**\
+`The actress was a child star who went on to become a fixture of network TV dramas in the 2000s.`\
+https://www.nytimes.com/2026/08/17/arts/television/hayden-panettiere-life-in-pictures.html
+
+**Mamdani Officials Will Skip Council Hearing on Second-Home Tax**\
+`The administration plans to submit written testimony instead of attending, city officials said. A lawsuit over the rollout of the tax is pending.`\
+https://www.nytimes.com/2026/08/17/nyregion/mamdani-city-council-hearing-second-home-tax.html
+
 **Border Construction in Big Bend Is Halted After Drawing Criticism**\
 `The Trump administration has been carving a path through some of the beloved national park’s major natural attractions.`\
 https://www.nytimes.com/2026/08/17/us/big-bend-border-wall-texas-construction.html
