@@ -1,3 +1,23 @@
+**U.S. and Iran Blow Past War Deadline, and the Rise of Islamophobia in Texas**\
+`Plus, Hayden Panettiere dies at 36.`\
+https://www.nytimes.com/2026/08/17/podcasts/the-headlines/us-iran-deadline-war-islamophobia-texas.html
+
+**Luigi Mangione’s High-Risk Legal Strategy**\
+`Mr. Mangione pleaded guilty to stalking charges in the killing of Brian Thompson, a health insurance executive, a calculated gamble by his defense team.`\
+https://www.nytimes.com/2026/08/17/podcasts/the-daily/luigi-mangiones-legal-strategy-guilty-plea.html
+
+**NYT Connections Answers for August 18, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Aug. 18, 2026.`\
+https://www.nytimes.com/2026/08/17/crosswords/connections-companion-1164.html
+
+**Today’s Wordle Hints for August 18, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Aug. 18, 2026.`\
+https://www.nytimes.com/2026/08/17/crosswords/wordle-review-1886.html
+
+**NYT Strands Hints for Aug. 18, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Aug. 18, 2026.`\
+https://www.nytimes.com/2026/08/17/crosswords/strands-sidekick-898.html
+
 **Trump’s Overture to North Korea Strains Alliance With the South**\
 `President Trump wants to curtail military exercises with South Korea, saying they were hostile to North Korea. But under Mr. Kim, the North has become increasingly belligerent toward the South.`\
 https://www.nytimes.com/2026/08/17/world/asia/trump-korea-military-kim-jong-un.html
