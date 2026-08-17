@@ -78,7 +78,7 @@ https://www.nytimes.com/2026/08/17/world/earthquake-response-japan-venezuela.htm
 `Hurricane Lala did not make landfall, but left behind destroyed roads and homes across Hawaii. Lala was downgraded to a tropical storm after moving away from the Big Island.`\
 https://www.nytimes.com/video/us/100000011096246/hurricane-lala-hawaii-damage.html
 
-**Tupac Shakur Murder Trial: Takeaways From Day 1**\
+**Tupac Shakur Murder Trial: Takeaways From Opening Statements**\
 `Prosecutors said Duane Keith Davis participated in the shooting as an act of gang retaliation, while the defense pointed to what it described as a lack of hard evidence.`\
 https://www.nytimes.com/2026/08/17/arts/music/tupac-shakur-murder-trial-takeaways-day-1.html
 
