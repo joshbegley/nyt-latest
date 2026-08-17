@@ -1,3 +1,11 @@
+**EE. UU. e Irán incumplen el plazo para lograr un acuerdo de paz**\
+`El presidente Trump dijo que el alto al fuego de junio pondría límites al programa nuclear de Irán y daría fin al conflicto, pero los países parecen estar muy distanciados.`\
+https://www.nytimes.com/es/2026/08/17/espanol/mundo/incumplen-acuerdo-iran-eeeuu.html
+
+**Ye Announces Russia Concerts, Months After Western Europe Cancellations**\
+`Two St. Petersburg concerts by the rapper formerly known as Kanye West could become the first performances by a major Western act in Russia since the country invaded Ukraine.`\
+https://www.nytimes.com/2026/08/17/arts/music/ye-kanye-west-russia.html
+
 **No Evidence of Foul Play in Hayden Panettiere’s Death, Police Say**\
 `After responding to a 911 call, emergency responders pronounced the actress dead at an apartment complex in Greenville, S.C.`\
 https://www.nytimes.com/2026/08/17/arts/television/hayden-panettiere-death-foul-play.html
@@ -177,12 +185,4 @@ https://www.nytimes.com/2026/08/17/nyregion/theyre-young-theyre-bros-and-theyre-
 **Elizabeth Smart Is Rethinking the True-Crime Podcast**\
 `Her abduction as a child became a national story. In a new true crime podcast, Smart speaks to survivors of violent crimes about what they endured and the lifelong process of healing.`\
 https://www.nytimes.com/2026/08/17/arts/elizabeth-smart-kidnapping-podcast-true-crime.html
-
-**Share Your Experiences With the Public Health System in Louisiana**\
-`The New York Times is examining how public health is changing in the state, from the whooping cough outbreak to vaccine policies, and we want to hear from you.`\
-https://www.nytimes.com/2026/08/17/us/share-your-experiences-with-the-public-health-system-in-louisiana.html
-
-**How Japan Averted a Major Earthquake Disaster**\
-`Japan avoided a major disaster after a 6.8-magnitude earthquake hit last month. Our reporter River Akira Davis visited Kumamoto, a prefecture near the epicenter, to see how it built quake-proof buildings and infrastructure.`\
-https://www.nytimes.com/video/world/asia/100000011069179/japan-earthquake-disaster-kumamoto.html
 

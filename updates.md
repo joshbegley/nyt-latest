@@ -1,3 +1,11 @@
+**EE. UU. e Irán incumplen el plazo para lograr un acuerdo de paz**\
+`El presidente Trump dijo que el alto al fuego de junio pondría límites al programa nuclear de Irán y daría fin al conflicto, pero los países parecen estar muy distanciados.`\
+https://www.nytimes.com/es/2026/08/17/espanol/mundo/incumplen-acuerdo-iran-eeeuu.html
+
+**Ye Announces Russia Concerts, Months After Western Europe Cancellations**\
+`Two St. Petersburg concerts by the rapper formerly known as Kanye West could become the first performances by a major Western act in Russia since the country invaded Ukraine.`\
+https://www.nytimes.com/2026/08/17/arts/music/ye-kanye-west-russia.html
+
 **No Evidence of Foul Play in Hayden Panettiere’s Death, Police Say**\
 `After responding to a 911 call, emergency responders pronounced the actress dead at an apartment complex in Greenville, S.C.`\
 https://www.nytimes.com/2026/08/17/arts/television/hayden-panettiere-death-foul-play.html
