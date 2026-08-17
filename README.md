@@ -1,3 +1,15 @@
+**Tupac Shakur Murder Trial: Takeaways From Day 1**\
+`Prosecutors said Duane Keith Davis participated in the shooting as an act of gang retaliation, while the defense pointed to what it described as a lack of hard evidence.`\
+https://www.nytimes.com/2026/08/17/arts/music/tupac-shakur-murder-trial-takeaways-day-1.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/business/100000011097021/Biz-Europe-Compete-video.html
+
+**Mangione’s State Trial Delayed as His Lawyers Seek Dismissal**\
+`The delay comes after Luigi Mangione pleaded guilty in federal court on Friday to stalking that led to the death of Brian Thompson, a health care executive.`\
+https://www.nytimes.com/2026/08/17/nyregion/luigi-mangione-state-trial-delayed.html
+
 **Hayden Panettiere: A Life in Pictures**\
 `The actress was a child star who went on to become a fixture of network TV dramas in the 2000s.`\
 https://www.nytimes.com/2026/08/17/arts/television/hayden-panettiere-life-in-pictures.html
@@ -169,16 +181,4 @@ https://www.nytimes.com/2026/08/17/world/europe/andy-burnham-prime-minister-uk-f
 **Mark Cuban and Other Founders Wade Into Wealth Tax Debate**\
 `Some entrepreneurs, including Mark Cuban, are publicly worried about the potential fallout from California’s proposal to impose a special billionaire tax.`\
 https://www.nytimes.com/2026/08/17/business/dealbook/cuban-founders-california-wealth-tax.html
-
-**Watch Out for El Niño**\
-`We explain the climate phenomenon.`\
-https://www.nytimes.com/2026/08/17/briefing/watch-out-for-el-nino.html
-
-**Kushner Meets Netanyahu in Israel in Effort to Break Logjam Over Gaza**\
-`Prime Minister Benjamin Netanyahu of Israel has refused to pull back the country’s military until Hamas fully disarms. But the Trump administration is under pressure to show progress.`\
-https://www.nytimes.com/2026/08/17/world/middleeast/kushner-netanyahu-gaza-peace-deal.html
-
-**U.S. and Iran Blow Past War Deadline, and the Rise of Islamophobia in Texas**\
-`Plus, Hayden Panettiere dies at 36.`\
-https://www.nytimes.com/2026/08/17/podcasts/the-headlines/us-iran-deadline-war-islamophobia-texas.html
 
