@@ -1,3 +1,23 @@
+**AI Slop Is Everywhere. Spotify, LinkedIn and Others Have Had Enough.**\
+`Spotify, LinkedIn and others are trying to dig out of a digital sewage heap full of low-quality content made with artificial intelligence.`\
+https://www.nytimes.com/2026/08/17/technology/ai-slop.html
+
+**Supreme Court Again Rejects Trump’s Appeal of $5 Million E. Jean Carroll Payment**\
+`The court declined President Trump’s long-shot request that it reconsider his appeal. He has separately asked the court to overturn a much larger 2024 award.`\
+https://www.nytimes.com/2026/08/17/us/politics/supreme-court-trump-carroll.html
+
+**Tara Erraught Makes Role Debut in “Il viaggio a Reims” at the Salzburg Festival**\
+`The opera singer made her role debut as the hotel host in “Il viaggio a Reims” at this year’s Salzburg Festival.`\
+https://www.nytimes.com/2026/08/17/arts/music/tara-erraught-salzburg-festival.html
+
+**Philippe Sly Is Living With Monks Ahead of Playing St. Francis at the Salzburg Festival**\
+`Philippe Sly felt he needed an immersion course to portray St. Francis in the new Salzburg Festival production of “St. François d’Assise.”`\
+https://www.nytimes.com/2026/08/17/arts/music/philippe-sly-francis-salzburg-festival.html
+
+**Stefan Zweig’s Former Home, Paschinger Schlössl, Is Again For Sale in Salzburg**\
+`The former home of Stefan Zweig, the Jewish Austrian writer, is unexpectedly for sale.`\
+https://www.nytimes.com/2026/08/17/arts/music/stefan-zweig-home-salzburg.html
+
 **Houthis Claim Strike on Saudi Vessel as Red Sea Violence Escalates**\
 `The armed group, based in Yemen and backed by Iran, said it had launched missiles near the vital maritime trade route, in a conflict that shows no sign of abating.`\
 https://www.nytimes.com/2026/08/17/world/middleeast/houthis-saudi-strike.html
