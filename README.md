@@ -1,3 +1,11 @@
+**Lake Powell Hits Lowest Level On Record As Water Crisis Continues**\
+`Levels in the nation’s two largest reservoirs have not been so low since 1957, underscoring a water crisis that the Southwest is struggling to solve.`\
+https://www.nytimes.com/2026/08/17/climate/lake-powell-record-low-colorado.html
+
+**After the Earthquakes**\
+`Venezuela and Japan both experienced major quakes this summer. Their responses differed, and not just because of money.`\
+https://www.nytimes.com/2026/08/17/world/earthquake-response-japan-venezuela.html
+
 **Hurricane Lala Destroys Homes and Roads Across Hawaii**\
 `Hurricane Lala did not make landfall, but left behind destroyed roads and homes across Hawaii. Lala was downgraded to a tropical storm after moving away from the Big Island.`\
 https://www.nytimes.com/video/us/100000011096246/hurricane-lala-hawaii-damage.html
@@ -173,12 +181,4 @@ https://www.nytimes.com/es/2026/08/17/espanol/estados-unidos/comando-dificultade
 **Muere Hayden Panettiere, estrella de ‘Nashville’ y ‘Héroes’**\
 `Publicó en mayo sus memorias tras una década tumultuosa de depresión, abuso de sustancias, perder la custodia de su hija y periodos en rehabilitación.`\
 https://www.nytimes.com/es/2026/08/17/espanol/muere-hayden-panettiere.html
-
-**No Corrections: Aug. 16, 2026**\
-`No corrections appeared in print on Sunday, Aug. 16, 2026.`\
-https://www.nytimes.com/2026/08/17/pageoneplus/no-corrections-aug-16-2026.html
-
-**Andy Burnham, UK Prime Minister, Exchanged Texts With Someone Posing as Trump’s Chief of Staff**\
-`Prime Minister Andy Burnham messaged briefly with a person impersonating Susie Wiles, a British government official said.`\
-https://www.nytimes.com/2026/08/17/world/europe/andy-burnham-prime-minister-uk-fake-texts-trump.html
 
