@@ -1,3 +1,11 @@
+**‘It’s Always Sunny in Philadelphia’ and 6 More Shows to Watch on TV This Week**\
+`The sitcom begins its 18th season, and the teen drama “Outer Banks” airs its series finale.`\
+https://www.nytimes.com/2026/08/17/arts/television/its-always-sunny-in-philadelphia-what-to-watch.html
+
+**Bread Rations. Endless Blackouts. How Much More Can Cubans Endure?**\
+`Governments can afford to keep playing the waiting game. Ordinary Cubans cannot.`\
+https://www.nytimes.com/2026/08/17/opinion/cuba-trump-rubio-venezuela.html
+
 **Hilo Is Accustomed to Rain. Hurricane Lala Was Different.**\
 `The city on the eastern side of the island of Hawaii flooded on Saturday night, and powerful winds toppled branches onto homes and power lines.`\
 https://www.nytimes.com/2026/08/17/weather/hurricane-lala-hawaii-hilo-impact.html

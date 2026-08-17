@@ -1,3 +1,11 @@
+**‘It’s Always Sunny in Philadelphia’ and 6 More Shows to Watch on TV This Week**\
+`The sitcom begins its 18th season, and the teen drama “Outer Banks” airs its series finale.`\
+https://www.nytimes.com/2026/08/17/arts/television/its-always-sunny-in-philadelphia-what-to-watch.html
+
+**Bread Rations. Endless Blackouts. How Much More Can Cubans Endure?**\
+`Governments can afford to keep playing the waiting game. Ordinary Cubans cannot.`\
+https://www.nytimes.com/2026/08/17/opinion/cuba-trump-rubio-venezuela.html
+
 **Hilo Is Accustomed to Rain. Hurricane Lala Was Different.**\
 `The city on the eastern side of the island of Hawaii flooded on Saturday night, and powerful winds toppled branches onto homes and power lines.`\
 https://www.nytimes.com/2026/08/17/weather/hurricane-lala-hawaii-hilo-impact.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/16/us/politics/democratic-party-tea-party-moment
 **He’s Hiking 2,190 Miles. We Tagged Along for 16, Cameras and All.**\
 `A 91-year-old hiker is on a quest to complete the entire Appalachian Trail. Two journalists, lugging hefty equipment, joined him for a scenic but punishing stretch.`\
 https://www.nytimes.com/2026/08/16/insider/appalachian-trail-hiking-grey-beard.html
-
-**Flying on the Air Force One Decoy Flight**\
-`Our photographer Doug Mills explains what he saw on the Air Force One decoy flight out of Turkey and how it compares with his experiences covering past presidents on flights in high-risk situations.`\
-https://www.nytimes.com/video/us/100000011090279/flying-on-the-air-force-one-decoy-flight.html
-
-**How a False Nuclear Claim About Iran Ricocheted From India to Washington**\
-`A dubious post that spread on X became the basis of false claims that Iran’s leadership had declared it a nuclear power.`\
-https://www.nytimes.com/2026/08/16/business/iran-nuclear-false-claims.html
 
