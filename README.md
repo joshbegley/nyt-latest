@@ -1,3 +1,15 @@
+**What It Will Take to Win the 2028 Democratic Presidential Primary**\
+`A new early calendar will upend how Democrats select their 2028 champion.`\
+https://www.nytimes.com/2026/08/17/opinion/democratic-presidential-primary-2028.html
+
+**‘Buy Now, Pay Later’ Lenders Pitch Loans for Needs Like Electricity and Rent**\
+`The rapid growth of pay-later loans raises questions about whether their popularity is driven by consumer preference or desperation.`\
+https://www.nytimes.com/2026/08/17/business/buy-now-pay-later.html
+
+**What We Know About Damages From Hurricane Lala in Hawaii**\
+`The storm narrowly missed land, but its outer bands left the Big Island with power outages, road closures and flooded homes.`\
+https://www.nytimes.com/2026/08/17/us/hurricane-lala-hawaii-damage.html
+
 **Un oscuro pasado nazi sale a la luz y enfrenta a dos familias**\
 `Una mujer consiguió el expediente penal de su abuela, una colaboracionista, y se ofreció a compartirlo con una familia judía que había sido traicionada. Después se retractó y comenzó una nueva disputa.`\
 https://www.nytimes.com/es/2026/08/17/espanol/cultura/familia-nazi-colaboracionista.html
@@ -46,7 +58,7 @@ https://www.nytimes.com/2026/08/17/arts/music/stefan-zweig-home-salzburg.html
 `The armed group, based in Yemen and backed by Iran, said it had launched missiles near the vital maritime trade route, in a conflict that shows no sign of abating.`\
 https://www.nytimes.com/2026/08/17/world/middleeast/houthis-saudi-strike.html
 
-**Live Updates: 30 Years After Tupac Shakur’s Murder, Trial Jurors Hear Outlines of Case**\
+**Live Updates: 30 Years After Tupac Shakur’s Murder, Opening Statements Are Underway in Trial**\
 `The drive-by shooting of Tupac Shakur in 1996 was a pivotal moment in music history. Duane Keith Davis is now on trial, accused of supplying the murder weapon.`\
 https://www.nytimes.com/live/2026/08/17/arts/tupac-murder-trial-duane-davis
 
@@ -169,12 +181,4 @@ https://www.nytimes.com/2026/08/17/realestate/ellensburg-wash-tokul-house-build.
 **Who Is the New White House Counsel?**\
 `President Trump appointed his former personal lawyer Will Scharf as White House counsel. Maggie Haberman, our White House correspondent, explains how Scharf might help the president avoid congressional oversight at a critical time.`\
 https://www.nytimes.com/video/us/100000011088612/who-is-the-new-white-house-counsel.html
-
-**Is Autocheck Cheating? NYT Crossword Solvers Weigh In.**\
-`New York Times Crossword solvers can’t seem to agree about this feature of the game.`\
-https://www.nytimes.com/2026/08/17/crosswords/autocheck-strong-opinions.html
-
-**How to Stop a Lab Leak From Starting the Next Pandemic**\
-`More than six years after the emergence of Covid-19, no one is keeping track of the risky virus experiments that are capable of starting a pandemic.`\
-https://www.nytimes.com/interactive/2026/08/17/opinion/covid-pandemic-lab-leak-prevention.html
 
