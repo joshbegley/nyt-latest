@@ -1,3 +1,7 @@
+**Live Updates: 30 Years After Tupac Shakur’s Murder, Opening Statements Are Underway in the Trial**\
+`The drive-by shooting of Tupac Shakur in 1996 was a pivotal moment in music history. Duane Keith Davis is now on trial, accused of supplying the murder weapon.`\
+https://www.nytimes.com/live/2026/08/17/arts/tupac-murder-trial-duane-davis
+
 **Nvidia to Back Ohio Data Center With as Much as $105 Billion**\
 `The data center, one of the world’s largest, could cost as much as $500 billion and will be leased by OpenAI.`\
 https://www.nytimes.com/2026/08/17/technology/nvidia-ohio-data-center-openai.html
