@@ -1,3 +1,7 @@
+**Welcome to The Local: Twin Cities**\
+`We’ll be sharing neighborhood news and, today, talking with Hope Walz. We’ll also be revealing what Wirecutter is reviewing at the State Fair.`\
+https://www.nytimes.com/2026/08/17/us/the-local-twin-cities-launch.html
+
 **Everything Salmon With Creamy Caper Sauce**\
 `Covered in a crisp, everything-seasoning crust and served with a creamy, tangy caper sauce, this quick, weeknight salmon dinner is inspired by the beloved flavors of bagels and lox.`\
 https://www.nytimes.com/video/dining/100000011097124/everything-salmon-with-creamy-caper-sauce.html

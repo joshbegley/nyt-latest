@@ -1,3 +1,7 @@
+**Welcome to The Local: Twin Cities**\
+`We’ll be sharing neighborhood news and, today, talking with Hope Walz. We’ll also be revealing what Wirecutter is reviewing at the State Fair.`\
+https://www.nytimes.com/2026/08/17/us/the-local-twin-cities-launch.html
+
 **Everything Salmon With Creamy Caper Sauce**\
 `Covered in a crisp, everything-seasoning crust and served with a creamy, tangy caper sauce, this quick, weeknight salmon dinner is inspired by the beloved flavors of bagels and lox.`\
 https://www.nytimes.com/video/dining/100000011097124/everything-salmon-with-creamy-caper-sauce.html
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/08/17/style/marthas-vineyard-black-community-events
 **American Hiker Dies After Lightning Strike on Mount Etna in Italy**\
 `Rescuers found a 29-year-old man in serious condition on the volcano’s eastern slope on Sunday. He was later pronounced dead at a hospital in Catania.`\
 https://www.nytimes.com/2026/08/17/world/europe/mount-etna-hiker-lightning-strike-death.html
-
-**Karl-Anthony Towns and Jordyn Woods Get Married in Malibu Wedding**\
-`The Knicks center and the influencer and actress had a star-studded wedding celebration in Malibu over the weekend.`\
-https://www.nytimes.com/2026/08/17/style/karl-anthony-towns-jordyn-woods-wedding.html
 

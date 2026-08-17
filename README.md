@@ -114,7 +114,7 @@ https://www.nytimes.com/es/2026/08/17/espanol/mundo/incumplen-acuerdo-iran-eeeuu
 `Two St. Petersburg concerts by the rapper formerly known as Kanye West could become the first performances by a major Western act in Russia since the country invaded Ukraine.`\
 https://www.nytimes.com/2026/08/17/arts/music/ye-kanye-west-russia.html
 
-**Hayden Panettiere’s Death and Police Investigation: What We Know**\
+**Hayden Panettiere Was in Cardiac Arrest When Authorities Responded to 911 Call**\
 `After the authorities responded to a 911 call in Greenville, S.C., an initial police investigation found no evidence of “foul play or suspicious circumstances.”`\
 https://www.nytimes.com/2026/08/17/arts/television/hayden-panettiere-death-foul-play.html
 
