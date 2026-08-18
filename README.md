@@ -1,4 +1,8 @@
-**ABC Sues F.C.C. to Block Threat to Its TV Licenses**\
+**Street Style Look of the Week: Hiking Pants for an Urban Explorer**\
+`A psychiatrist spotted in Copenhagen said he preferred to buy his shirts secondhand: That way he knows what they look like with some wear.`\
+https://www.nytimes.com/2026/08/18/style/street-style-look-hiking-pants.html
+
+**ABC Sues Trump Administration Over F.C.C. Threat to Its TV Licenses**\
 `The network asked a court to stop the agency from taking steps that could force ABC stations off the air and accused the F.C.C. of violating its First Amendment rights.`\
 https://www.nytimes.com/2026/08/18/business/media/abc-fcc-lawsuit-broadcast-licenses.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/18/arts/music/curtis-stewart-24-american-caprice
 **Could ‘Les Misérables’ Save Local Theater?**\
 `Michael Paulson, a New York Times theater reporter, traveled to a remote corner of southern Utah to see a production of “Les Misérables” at Tuacahn, where the show is staged outdoors against the region’s dramatic landscape. Paulson explains the significance of the musical and why this production may be the most successful in the theater’s 31-year history.`\
 https://www.nytimes.com/video/theater/100000011043870/could-les-miserables-save-local-theater.html
-
-**Forty First Dates and Still Searching**\
-`Joseph Pascaretta has spent roughly $65,000 on high-end matchmaking services. Will it help him find the love of his life?`\
-https://www.nytimes.com/2026/08/18/well/family/forty-first-dates-and-still-searching.html
 
