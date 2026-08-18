@@ -1,3 +1,15 @@
+**Deadly Israeli Strike on Gaza Raises Doubts About Trump Peace Plan**\
+`A day after President Trump’s envoy, Jared Kushner, visited Israel to advance a stalled plan for demilitarizing and rebuilding Gaza, the Israeli military said it targeted Hamas commanders.`\
+https://www.nytimes.com/2026/08/18/world/middleeast/israeli-strike-gaza-cafe-peace-plan.html
+
+**E.V. Sales Are Rising After the Gulf Oil Shock. Here’s Where.**\
+`As global fuel prices surge, electric vehicle adoption is breaking records around the world. These charts tell the story.`\
+https://www.nytimes.com/interactive/2026/08/18/climate/ev-car-sales-oil-prices.html
+
+**Border Construction at Big Bend National Park Temporarily Halted**\
+`The Trump administration halted border construction in Big Bend National Park in Texas amid increasing criticism. Local law enforcement officials have said that the border infrastructure is unnecessary in a desolate and undeveloped area.`\
+https://www.nytimes.com/video/us/politics/100000011099153/big-bend-texas-border-us-mexico-immigration.html
+
 **ICE Bars Its Workers From Wearing Meta’s Smart Glasses on the Job**\
 `The agency joins a growing number of workplaces and groups to ban Meta’s devices, which have spurred privacy concerns.`\
 https://www.nytimes.com/2026/08/18/technology/ice-meta-smart-glasses.html
