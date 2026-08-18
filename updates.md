@@ -1,3 +1,7 @@
+**What Does ‘A.I. Positivity’ Look Like?**\
+`In contrast to A.I. “doomerism,” the “Hard Fork” podcast hosts Casey Newton and Kevin Roose discuss positive use cases for A.I.`\
+https://www.nytimes.com/video/podcasts/100000011097632/what-does-ai-positivity-look-like.html
+
 **Family Presses for Information About Fatal ICE Shooting in Maine**\
 `The Department of Homeland Security said there would be an investigation. But so far little has been disclosed about the killing last month.`\
 https://www.nytimes.com/2026/08/17/us/biddeford-maine-ice-shooting-hearing.html
