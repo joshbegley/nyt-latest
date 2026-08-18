@@ -1,3 +1,11 @@
+**5 Things to Know About Angie Nixon, Democratic Senate Candidate in Florida**\
+`Ms. Nixon, a democratic socialist, is running on a platform that calls for universal health care and a federal minimum wage of $25 per hour.`\
+https://www.nytimes.com/2026/08/18/us/politics/angie-nixon-democrat-florida-senate-candidate.html
+
+**5 Things to Know About Alex Vindman, Democratic Senate Candidate in Florida**\
+`The Democrat testified in President Trump’s first impeachment trial and has a twin brother, Eugene, in Congress.`\
+https://www.nytimes.com/2026/08/18/us/politics/alex-vindman-democratic-senate-florida.html
+
 **When to Expect Election Results in Alaska, California, Florida and Wyoming**\
 `Four states are holding elections on Tuesday. Election officials anticipate having results by late Tuesday or early Wednesday.`\
 https://www.nytimes.com/2026/08/18/us/politics/florida-alaska-california-wyoming-results-timing.html
@@ -186,15 +194,7 @@ https://www.nytimes.com/es/2026/08/18/espanol/hermanas-separadas-adopcion-holand
 `A federal agent facing assault charges in Minnesota has been jailed in Texas since May. Gov. Greg Abbott has not granted an extradition request.`\
 https://www.nytimes.com/2026/08/18/us/ice-minnesota-texas-greg-abbott.html
 
-**Florida’s Polling Picture Is Limited Other Than One Key Race**\
-`Representative Byron Donalds had a wide lead in polls of the race for the Republican nomination for governor. Polling was sparse in every other statewide contest.`\
-https://www.nytimes.com/2026/08/18/us/politics/florida-polling-byron-donalds.html
-
-**OpenAI presenta ‘ChatGPT para adolescentes’**\
-`La “start-up” de inteligencia artificial anunció un modo de chatbot que limitará automáticamente algunas conversaciones para proteger mejor a los usuarios jóvenes.`\
-https://www.nytimes.com/es/2026/08/18/espanol/negocios/openai-chatgpt-adolescentes.html
-
-**Election Live Updates: Polls in Florida to Close Soon**\
+**Election Live Updates: Most Florida Polls Close in First Primary With New Maps**\
 `Florida’s redrawn districts are creating compelling contests as voters in California decide who replaces former Representative Eric Swalwell. Alaska’s Senate primary will test contenders’ strengths, and a Trump-backed candidate is the favorite in Wyoming’s race.`\
 https://www.nytimes.com/live/2026/08/18/us/elections-florida-california-alaska
 
