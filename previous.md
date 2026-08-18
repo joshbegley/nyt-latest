@@ -1,3 +1,75 @@
+**Florida Primary Underscores State’s New Identity as a Republican Juggernaut**\
+`Republicans hold every statewide elected office and have drastically swung voter registration in the state. A newly gerrymandered congressional map has added four Republican-leaning seats.`\
+https://www.nytimes.com/2026/08/18/us/politics/florida-primary-republican-dominance.html
+
+**Trump’s Economic Record Doesn’t Come Close to His Campaign Promises**\
+`The president likes to boast about the “greatest economy we’ve ever had.” His record falls far short.`\
+https://www.nytimes.com/interactive/2026/08/18/opinion/trump-economy-campaign-promises.html
+
+**‘A Blatant and Gargantuan Conflict of Interest’**\
+`The Trump family’s crypto business exemplifies all of the sleaziest aspects of the president’s code of conduct.`\
+https://www.nytimes.com/2026/08/18/opinion/trump-family-crypto-conflict-of-interest.html
+
+**What an Eye Cream Can (and Can’t) Do**\
+`Eye cream isn’t just pricey moisturizer in a tiny jar. We explain why the delicate eye area needs special care and share the formulas that actually work.`\
+https://www.nytimes.com/2026/08/18/podcasts/what-an-eye-cream-can-and-cant-do.html
+
+**Hayden Panettiere Grew Up in Front of the Camera. It Took a Toll.**\
+`The “Heroes” and “Nashville” star, who died Sunday at 36, endured personal struggles that were compounded by her public profile.`\
+https://www.nytimes.com/2026/08/18/arts/television/hayden-panettiere-grew-up-in-front-of-the-camera-it-took-a-toll.html
+
+**Corrections: Aug. 18, 2026**\
+`Corrections that appeared in print on Tuesday, Aug. 18, 2026.`\
+https://www.nytimes.com/2026/08/18/pageoneplus/corrections-aug-18-2026.html
+
+**How New York Is Restricting Data Centers**\
+`Gov. Kathy Hochul has been aggressive in imposing a one-year moratorium on the centers. A state senator would go further.`\
+https://www.nytimes.com/2026/08/18/nyregion/how-new-york-is-restricting-data-centers.html
+
+**Searching for Answers From the Man Accused of Sabotaging Alaska’s Senate Race**\
+`Dan Sullivan, a retired schoolteacher from tiny Petersburg, Alaska, shares a name with the incumbent senator he hopes to defeat. Is he a spoiler trying to divide the Republican vote? We traveled to Alaska to find out.`\
+https://www.nytimes.com/2026/08/18/us/politics/dan-sullivan-alaska-senate-primary.html
+
+**In Muskoka, Ontario, Building a Boathouse Was a Family Affair**\
+`When the boathouse they bought was declared structurally unsound, the Schipper family’s adult children sprang into action.`\
+https://www.nytimes.com/2026/08/18/realestate/muskoka-ontario-boathouse-design.html
+
+**What’s in an Airport Code? In West Palm Beach, It’s the President’s Initials.**\
+`The state’s Palm Beach International Airport has been renamed for the president, complete with a rare change in its three-letter airport code.`\
+https://www.nytimes.com/2026/08/18/travel/palm-beach-president-donald-trump-airport.html
+
+**What’s the Best 🏛️ Emoji? Getty Museum Curators Have Thoughts.**\
+`In a series of recent social media posts, curators at the Getty Museum in Los Angeles are rating the best variations on art-adjacent emojis.`\
+https://www.nytimes.com/2026/08/18/style/emoji-getty-museum-instagram.html
+
+**Colman Domingo Discusses His Emmy-Nominated Roles in ‘Euphoria’ and ‘Four Seasons’**\
+`The actor went from oracle to angel of vengeance in the HBO drama. In an interview, he discusses his two Emmy nods for two very different characters.`\
+https://www.nytimes.com/2026/08/18/arts/television/colman-domingo-euphoria-four-seasons-emmys.html
+
+**The A.I.s Are Already Out of Control**\
+`Helen Toner, who served on OpenAI’s board, hopes the recent hack by that company’s models serves as a warning.`\
+https://www.nytimes.com/2026/08/18/opinion/ezra-klein-podcast-helen-toner.html
+
+**Everyone Watches Women’s Sports, Including ‘Ted Lasso’ Fans**\
+`The show’s focus on a women’s squad mirrors a broader increase in the popularity of women’s team sports. Now the series faces a challenge: pleasing old fans while welcoming new ones.`\
+https://www.nytimes.com/2026/08/18/arts/television/ted-lasso-womens-soccer.html
+
+**Childhood Friends, Adopted From India, Discover They’re Sisters**\
+`Meena Geltink and Minal Tijssen were adopted from India by families in the Netherlands and grew up less than 100 miles apart.`\
+https://www.nytimes.com/2026/08/18/world/europe/friends-adopted-sisters-india-netherlands.html
+
+**DNA Test Reveals Two Childhood Friends Are Actually Sisters**\
+`Meena Geltink and Minal Tijssen were born in India and grew up with different adoptive families in the Netherlands. Decades after becoming friends, a DNA test has revealed that the two are also biological sisters.`\
+https://www.nytimes.com/video/world/europe/100000011090006/childhood-friends-sisters-dna-test.html
+
+**Restaurant Review: Yerord Mas in California**\
+`Arthur Grigoryan’s next-generation Armenian cooking is the kind of food that makes Los Angeles special.`\
+https://www.nytimes.com/2026/08/18/dining/restaurant-review-yerord-mas-california.html
+
+**Think N.Y.C. Is Expensive? You Haven’t Looked at South Florida.**\
+`Miami’s living expenses surpassed New York’s for the first time, when comparing U.S. metropolitan areas.`\
+https://www.nytimes.com/2026/08/18/realestate/think-nyc-is-expensive-you-havent-looked-at-south-florida.html
+
 **Six Years in Provence: An Ancient Castle and a Feud Over a Troublesome Bridge**\
 `In a picturesque village, the mayor closed a road, setting off a storm with residents and the owners of a castle that once belonged to his family.`\
 https://www.nytimes.com/2026/08/18/world/europe/provence-chateau-village-feud.html
@@ -125,76 +197,4 @@ https://www.nytimes.com/2026/08/18/pageoneplus/quote-of-the-day-for-african-prie
 **Irán se prepara para la guerra y para contener la disidencia interna**\
 `El líder supremo de Irán nombró a líderes militares de línea dura para altos cargos de seguridad. Los analistas dicen que planea mantener a la nación en pie de guerra.`\
 https://www.nytimes.com/es/2026/08/18/espanol/mundo/iran-nombramientos-guerra.html
-
-**It’s Crunchtime Again for Canada to Avoid New U.S. Tariffs**\
-`Canada is seeking a deal to dodge further economic pain at the hands of the Trump administration on midnight Tuesday. But at what cost?`\
-https://www.nytimes.com/2026/08/18/world/canada/trade-tariffs-trump-carney.html
-
-**India’s College Boom Is Leaving Graduates in Debt and Without Jobs**\
-`Families are betting their savings on private universities as a path to a better life. A shortage of well-paying work is turning that wager into frustration.`\
-https://www.nytimes.com/2026/08/18/business/india-private-university-debt.html
-
-**A California County Eyes a New Hire: Tina Peters, the Election Denier**\
-`The top elections official in Shasta County offered a job to Ms. Peters, a Trump supporter who was convicted of tampering with voting machines in Colorado.`\
-https://www.nytimes.com/2026/08/17/us/california-voting-shasta-county-tina-peters.html
-
-**Zambia Says President Won Re-election After Tumultuous Campaign**\
-`With a second term, Hakainde Hichilema must navigate relations with the Trump administration, which has sought greater access to the copper-rich nation’s natural resources.`\
-https://www.nytimes.com/2026/08/17/world/africa/zambia-election-hichilema.html
-
-**Hegseth Campaigns for Republican Zach Nunn in Iowa**\
-`The appearance for Representative Zach Nunn was another departure from previous norms for the defense secretary, whose predecessors kept a greater distance from politics.`\
-https://www.nytimes.com/2026/08/17/us/politics/hegseth-iowa-campaign-nunn.html
-
-**NYT Crossword Answers for Aug. 18, 2026**\
-`Jeremy Venook makes his New York Times Crossword debut.`\
-https://www.nytimes.com/2026/08/17/crosswords/daily-puzzle-2026-08-18.html
-
-**The Most Dangerous Type of A.I. Company**\
-`Meta may be an example of one of the most dangerous types of A.I. companies — one that believes it’s building tools, when it’s actually building superintelligence. Kevin Roose and Casey Newton discuss it on the “Hard Fork” podcast.`\
-https://www.nytimes.com/video/podcasts/100000011097676/the-most-dangerous-type-of-ai-company.html
-
-**U.S. Airman Says He Would Accept Punishment for Protesting Iran War**\
-`Major Watson characterized the war in Iran as an act of American aggression and compared the U.S. military actions to Russia’s invasion of Ukraine.`\
-https://www.nytimes.com/2026/08/17/us/politics/us-airman-trump-impeach-iran.html
-
-**Mark Zuckerberg ‘Will Move Mountains’ to Get What He Wants**\
-`The “Hard Fork” co-host Casey Newton says Mark Zuckerberg is one of the most competitive people in the world. Zuckerberg’s reorganization of A.I. efforts at Meta, while controversial, already show promise.`\
-https://www.nytimes.com/video/podcasts/100000011097666/mark-zuckerberg-will-move-mountains-to-get-what-he-wants.html
-
-**What Does ‘A.I. Positivity’ Look Like?**\
-`In contrast to A.I. “doomerism,” the “Hard Fork” podcast hosts Casey Newton and Kevin Roose discuss positive use cases for A.I.`\
-https://www.nytimes.com/video/podcasts/100000011097632/what-does-ai-positivity-look-like.html
-
-**Family Presses for Information About Fatal ICE Shooting in Maine**\
-`The Department of Homeland Security said there would be an investigation. But so far little has been disclosed about the killing last month.`\
-https://www.nytimes.com/2026/08/17/us/biddeford-maine-ice-shooting-hearing.html
-
-**After Jason Arday’s Death, Mistaken Calls for Censorship**\
-`Some who once championed Arday seem to be trying to deflect from their own embarrassing credulity.`\
-https://www.nytimes.com/2026/08/17/opinion/jason-arday-cambridge-plagiarism-media.html
-
-**Which Book Should You Read to Finish Summer? Take the Quiz.**\
-`We picked out 32 books that are perfect for the end of the season. Take our quiz to find out which one is right for you.`\
-https://www.nytimes.com/interactive/2026/08/17/books/summer-books-quiz.html
-
-**House Panel Investigates Charges a Democrat Had Sexual Contact With Aide**\
-`Representative Jimmy Gomez of California acknowledged “personal mistakes” outside his marriage but denied breaking rules that bar relationships with a direct subordinate.`\
-https://www.nytimes.com/2026/08/17/us/politics/house-panel-investigates-jimmy-gomez.html
-
-**Trump Votes by Mail Again in Florida**\
-`The president also voted by mail in 2020 and in a Florida special election in March, even as he has railed against the practice and equated it to cheating.`\
-https://www.nytimes.com/2026/08/17/us/politics/trump-mail-vote-florida-election.html
-
-**Lawyers Give Opening Statements in Tupac Shakur Murder Trial**\
-`Nevada prosecutors accuse Duane Keith Davis of acquiring a .40-caliber Glock and pursuing the rapper in a white Cadillac shortly before the fatal shooting on Sept. 7, 1996.`\
-https://www.nytimes.com/video/us/100000011096956/tupac-death-hearing-duane-davis.html
-
-**Mis estudiantes me vieron batallar con un libro clásico. Eso lo cambió todo**\
-`En la era algorítmica, la enseñanza efectiva debe ser afectiva. Necesitamos reconocer que el desafío de nuestro tiempo no es principalmente intelectual, sino sentimental.`\
-https://www.nytimes.com/es/2026/08/17/espanol/opinion/dostoyevski-estudiantes-pasion-motivacion.html
-
-**Facing Quagmire in Iran, Trump Turns to a Familiar Face: North Korea’s Kim Jong-un**\
-`Seven years ago, President Trump failed to disarm North Korea and walked away. Could the same thing happen with Iran?`\
-https://www.nytimes.com/2026/08/17/us/politics/trump-iran-north-korea-kim-jong-un.html
 

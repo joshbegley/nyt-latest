@@ -1,3 +1,75 @@
+**Florida Primary Underscores State’s New Identity as a Republican Juggernaut**\
+`Republicans hold every statewide elected office and have drastically swung voter registration in the state. A newly gerrymandered congressional map has added four Republican-leaning seats.`\
+https://www.nytimes.com/2026/08/18/us/politics/florida-primary-republican-dominance.html
+
+**Trump’s Economic Record Doesn’t Come Close to His Campaign Promises**\
+`The president likes to boast about the “greatest economy we’ve ever had.” His record falls far short.`\
+https://www.nytimes.com/interactive/2026/08/18/opinion/trump-economy-campaign-promises.html
+
+**‘A Blatant and Gargantuan Conflict of Interest’**\
+`The Trump family’s crypto business exemplifies all of the sleaziest aspects of the president’s code of conduct.`\
+https://www.nytimes.com/2026/08/18/opinion/trump-family-crypto-conflict-of-interest.html
+
+**What an Eye Cream Can (and Can’t) Do**\
+`Eye cream isn’t just pricey moisturizer in a tiny jar. We explain why the delicate eye area needs special care and share the formulas that actually work.`\
+https://www.nytimes.com/2026/08/18/podcasts/what-an-eye-cream-can-and-cant-do.html
+
+**Hayden Panettiere Grew Up in Front of the Camera. It Took a Toll.**\
+`The “Heroes” and “Nashville” star, who died Sunday at 36, endured personal struggles that were compounded by her public profile.`\
+https://www.nytimes.com/2026/08/18/arts/television/hayden-panettiere-grew-up-in-front-of-the-camera-it-took-a-toll.html
+
+**Corrections: Aug. 18, 2026**\
+`Corrections that appeared in print on Tuesday, Aug. 18, 2026.`\
+https://www.nytimes.com/2026/08/18/pageoneplus/corrections-aug-18-2026.html
+
+**How New York Is Restricting Data Centers**\
+`Gov. Kathy Hochul has been aggressive in imposing a one-year moratorium on the centers. A state senator would go further.`\
+https://www.nytimes.com/2026/08/18/nyregion/how-new-york-is-restricting-data-centers.html
+
+**Searching for Answers From the Man Accused of Sabotaging Alaska’s Senate Race**\
+`Dan Sullivan, a retired schoolteacher from tiny Petersburg, Alaska, shares a name with the incumbent senator he hopes to defeat. Is he a spoiler trying to divide the Republican vote? We traveled to Alaska to find out.`\
+https://www.nytimes.com/2026/08/18/us/politics/dan-sullivan-alaska-senate-primary.html
+
+**In Muskoka, Ontario, Building a Boathouse Was a Family Affair**\
+`When the boathouse they bought was declared structurally unsound, the Schipper family’s adult children sprang into action.`\
+https://www.nytimes.com/2026/08/18/realestate/muskoka-ontario-boathouse-design.html
+
+**What’s in an Airport Code? In West Palm Beach, It’s the President’s Initials.**\
+`The state’s Palm Beach International Airport has been renamed for the president, complete with a rare change in its three-letter airport code.`\
+https://www.nytimes.com/2026/08/18/travel/palm-beach-president-donald-trump-airport.html
+
+**What’s the Best 🏛️ Emoji? Getty Museum Curators Have Thoughts.**\
+`In a series of recent social media posts, curators at the Getty Museum in Los Angeles are rating the best variations on art-adjacent emojis.`\
+https://www.nytimes.com/2026/08/18/style/emoji-getty-museum-instagram.html
+
+**Colman Domingo Discusses His Emmy-Nominated Roles in ‘Euphoria’ and ‘Four Seasons’**\
+`The actor went from oracle to angel of vengeance in the HBO drama. In an interview, he discusses his two Emmy nods for two very different characters.`\
+https://www.nytimes.com/2026/08/18/arts/television/colman-domingo-euphoria-four-seasons-emmys.html
+
+**The A.I.s Are Already Out of Control**\
+`Helen Toner, who served on OpenAI’s board, hopes the recent hack by that company’s models serves as a warning.`\
+https://www.nytimes.com/2026/08/18/opinion/ezra-klein-podcast-helen-toner.html
+
+**Everyone Watches Women’s Sports, Including ‘Ted Lasso’ Fans**\
+`The show’s focus on a women’s squad mirrors a broader increase in the popularity of women’s team sports. Now the series faces a challenge: pleasing old fans while welcoming new ones.`\
+https://www.nytimes.com/2026/08/18/arts/television/ted-lasso-womens-soccer.html
+
+**Childhood Friends, Adopted From India, Discover They’re Sisters**\
+`Meena Geltink and Minal Tijssen were adopted from India by families in the Netherlands and grew up less than 100 miles apart.`\
+https://www.nytimes.com/2026/08/18/world/europe/friends-adopted-sisters-india-netherlands.html
+
+**DNA Test Reveals Two Childhood Friends Are Actually Sisters**\
+`Meena Geltink and Minal Tijssen were born in India and grew up with different adoptive families in the Netherlands. Decades after becoming friends, a DNA test has revealed that the two are also biological sisters.`\
+https://www.nytimes.com/video/world/europe/100000011090006/childhood-friends-sisters-dna-test.html
+
+**Restaurant Review: Yerord Mas in California**\
+`Arthur Grigoryan’s next-generation Armenian cooking is the kind of food that makes Los Angeles special.`\
+https://www.nytimes.com/2026/08/18/dining/restaurant-review-yerord-mas-california.html
+
+**Think N.Y.C. Is Expensive? You Haven’t Looked at South Florida.**\
+`Miami’s living expenses surpassed New York’s for the first time, when comparing U.S. metropolitan areas.`\
+https://www.nytimes.com/2026/08/18/realestate/think-nyc-is-expensive-you-havent-looked-at-south-florida.html
+
 **Six Years in Provence: An Ancient Castle and a Feud Over a Troublesome Bridge**\
 `In a picturesque village, the mayor closed a road, setting off a storm with residents and the owners of a castle that once belonged to his family.`\
 https://www.nytimes.com/2026/08/18/world/europe/provence-chateau-village-feud.html

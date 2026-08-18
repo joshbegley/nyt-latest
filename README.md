@@ -1,3 +1,11 @@
+**At Ex-Premier Zhu Rongji’s Funeral, China’s Past Shadows Its Present**\
+`Beijing wants to portray today’s China as carrying forward Zhu Rongji’s era of growth, but for many Chinese, the optimism of that time has since faded.`\
+https://www.nytimes.com/2026/08/18/world/asia/zhu-rongji-funeral-china.html
+
+**Cómo prevenir el mareo por movimiento**\
+`Los expertos dicen que hay formas de evitar esa temida sensación de náusea.`\
+https://www.nytimes.com/es/2026/08/18/espanol/mareo-viajar-como-evitar.html
+
 **Florida Primary Underscores State’s New Identity as a Republican Juggernaut**\
 `Republicans hold every statewide elected office and have drastically swung voter registration in the state. A newly gerrymandered congressional map has added four Republican-leaning seats.`\
 https://www.nytimes.com/2026/08/18/us/politics/florida-primary-republican-dominance.html
@@ -50,13 +58,13 @@ https://www.nytimes.com/2026/08/18/arts/television/colman-domingo-euphoria-four-
 `Helen Toner, who served on OpenAI’s board, hopes the recent hack by that company’s models serves as a warning.`\
 https://www.nytimes.com/2026/08/18/opinion/ezra-klein-podcast-helen-toner.html
 
-**Everyone Watches Women’s Sports, Including ‘Ted Lasso’ Fans**\
-`The show’s focus on a women’s squad mirrors a broader increase in the popularity of women’s team sports. Now the series faces a challenge: pleasing old fans while welcoming new ones.`\
-https://www.nytimes.com/2026/08/18/arts/television/ted-lasso-womens-soccer.html
-
 **Childhood Friends, Adopted From India, Discover They’re Sisters**\
 `Meena Geltink and Minal Tijssen were adopted from India by families in the Netherlands and grew up less than 100 miles apart.`\
 https://www.nytimes.com/2026/08/18/world/europe/friends-adopted-sisters-india-netherlands.html
+
+**Everyone Watches Women’s Sports, Including ‘Ted Lasso’ Fans**\
+`The show’s focus on a women’s squad mirrors a broader increase in the popularity of women’s team sports. Now the series faces a challenge: pleasing old fans while welcoming new ones.`\
+https://www.nytimes.com/2026/08/18/arts/television/ted-lasso-womens-soccer.html
 
 **DNA Test Reveals Two Childhood Friends Are Actually Sisters**\
 `Meena Geltink and Minal Tijssen were born in India and grew up with different adoptive families in the Netherlands. Decades after becoming friends, a DNA test has revealed that the two are also biological sisters.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/es/2026/08/18/espanol/america-latina/choco-colombia-terr
 **Chocó, Colombia, Faces Deeper Hardship After an Earthquake**\
 `In Chocó, a remote region, “pain, hunger and homelessness await” survivors of last week’s earthquake, the governor said. Shakira visited to help draw awareness.`\
 https://www.nytimes.com/2026/08/18/world/americas/colombia-earthquake-choco.html
-
-**Quote of the Day: For African Priests in Italy, a Tentative Embrace**\
-`Quotation of the Day for Tuesday, August 18, 2026.`\
-https://www.nytimes.com/2026/08/18/pageoneplus/quote-of-the-day-for-african-priests-in-italy-a-tentative-embrace.html
-
-**Irán se prepara para la guerra y para contener la disidencia interna**\
-`El líder supremo de Irán nombró a líderes militares de línea dura para altos cargos de seguridad. Los analistas dicen que planea mantener a la nación en pie de guerra.`\
-https://www.nytimes.com/es/2026/08/18/espanol/mundo/iran-nombramientos-guerra.html
 
