@@ -1,3 +1,7 @@
+**When to Expect Election Results in Alaska, California, Florida and Wyoming**\
+`Four states are holding elections on Tuesday. Election officials anticipate having results by late Tuesday or early Wednesday.`\
+https://www.nytimes.com/2026/08/18/us/politics/florida-alaska-california-wyoming-results-timing.html
+
 **Former Mother-in-Law Describes Lindsay Clancy’s Mental Health Struggle in Murder Trial**\
 `Ms. Clancy, who is on trial for murder in the deaths of her three children, tried to find treatment for her deteriorating condition, her ex-husband’s mother testified.`\
 https://www.nytimes.com/2026/08/18/us/lindsay-clancy-murder-trial-mother-in-law.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/08/18/us/politics/florida-polling-byron-donalds.htm
 **OpenAI presenta ‘ChatGPT para adolescentes’**\
 `La “start-up” de inteligencia artificial anunció un modo de chatbot que limitará automáticamente algunas conversaciones para proteger mejor a los usuarios jóvenes.`\
 https://www.nytimes.com/es/2026/08/18/espanol/negocios/openai-chatgpt-adolescentes.html
-
-**Hurricane Lala Destroyed a Hawaii Cemetery, Setting Off a Hunt for the Dead**\
-`In the hamlet of Naalehu, the floods of Hurricane Lala opened graves. One mother sought desperately for her son.`\
-https://www.nytimes.com/2026/08/18/us/hurricane-lala-hawaii-naalehu-cemetery.html
 
 **Election Live Updates: Polls in Florida to Close Soon**\
 `Florida’s redrawn districts are creating compelling contests as voters in California decide who replaces former Representative Eric Swalwell. Alaska’s Senate primary will test contenders’ strengths, and a Trump-backed candidate is the favorite in Wyoming’s race.`\
