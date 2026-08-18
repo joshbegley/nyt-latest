@@ -1,3 +1,11 @@
+**Judge Allows Limited Testing in Trump Plan to Paint Eisenhower Building White**\
+`A federal judge ruled that initial preparatory steps, including testing out paints on the building’s gray granite exterior, could proceed for now.`\
+https://www.nytimes.com/2026/08/18/us/politics/judge-paint-eisenhower-building-trump.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/business/100000011099389/Biz-wheels-pebblebeach-Video.html
+
 **Bacon Cheeseburger Meatballs**\
 `This recipe, originally an idea conceived by the Cooking contributor Kevin Pang’s then-9-year-old son, Liam, produces a tender, juicy, beefy meatball with bacon, sweet onion and melted cheese in every single bite.`\
 https://www.nytimes.com/video/dining/100000011098392/bacon-cheeseburger-meatballs.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/interactive/2026/08/18/us/elections/results-california-u
 **Florida Sixth Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Florida primary election.`\
 https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-us-house-6-primary.html
-
-**Florida 25th Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Florida primary election.`\
-https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-us-house-25-primary.html
-
-**Wyoming Superintendent of Public Instruction Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Wyoming primary election.`\
-https://www.nytimes.com/interactive/2026/08/18/us/elections/results-wyoming-superintendent-of-public-instruction-primary.html
 
