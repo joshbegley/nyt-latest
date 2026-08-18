@@ -1,3 +1,11 @@
+**Florida’s Polling Picture Is Limited Other Than One Key Race**\
+`Representative Byron Donalds had a wide lead in polls of the race for the Republican nomination for governor. Polling was sparse in every other statewide contest.`\
+https://www.nytimes.com/2026/08/18/us/politics/florida-polling-byron-donalds.html
+
+**OpenAI presenta ‘ChatGPT para adolescentes’**\
+`La “start-up” de inteligencia artificial anunció un modo de chatbot que limitará automáticamente algunas conversaciones para proteger mejor a los usuarios jóvenes.`\
+https://www.nytimes.com/es/2026/08/18/espanol/negocios/openai-chatgpt-adolescentes.html
+
 **Hurricane Lala Destroyed a Hawaii Cemetery, Setting Off a Hunt for the Dead**\
 `In the hamlet of Naalehu, the floods of Hurricane Lala opened graves. One mother sought desperately for her son.`\
 https://www.nytimes.com/2026/08/18/us/hurricane-lala-hawaii-naalehu-cemetery.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/18/dining/spaghett-baltimore.html
 **Primary Election Results in Alaska, Arkansas, California, Florida, Pennsylvania and Wyoming: Aug. 18, 2026**\
 `Get live results of the key races from the Aug. 18 primaries.`\
 https://www.nytimes.com/interactive/2026/08/18/us/elections/results-key-races-aug-18.html
-
-**Canadá vuelve a enfrentarse a los aranceles de EE. UU.**\
-`A menos que los negociadores canadienses logren un acuerdo de última hora, hoy a la medianoche entrarán en vigor una serie de nuevos gravámenes del gobierno Trump.`\
-https://www.nytimes.com/es/2026/08/18/espanol/mundo/canada-aranceles.html
-
-**Wyoming U.S. Senate Primary 2026: Live Election Results, Benavidez vs. Byrd**\
-`Get live results and maps from the 2026 Wyoming primary election.`\
-https://www.nytimes.com/interactive/2026/08/18/us/elections/results-wyoming-us-senate-primary.html
 
