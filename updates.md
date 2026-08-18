@@ -1,3 +1,7 @@
+**OpenAI Introduces ‘ChatGPT for Teens’ as Safety Concerns Grow**\
+`The artificial intelligence start-up announced a chatbot mode that will automatically limit some conversations to better protect young users.`\
+https://www.nytimes.com/2026/08/18/technology/chatgpt-for-teens-openai.html
+
 **Working Capital**\
 `We look into the exploding business of buy-now-pay-later loans.`\
 https://www.nytimes.com/2026/08/18/briefing/buy-now-pay-later.html

@@ -1,3 +1,7 @@
+**OpenAI Introduces ‘ChatGPT for Teens’ as Safety Concerns Grow**\
+`The artificial intelligence start-up announced a chatbot mode that will automatically limit some conversations to better protect young users.`\
+https://www.nytimes.com/2026/08/18/technology/chatgpt-for-teens-openai.html
+
 **Working Capital**\
 `We look into the exploding business of buy-now-pay-later loans.`\
 https://www.nytimes.com/2026/08/18/briefing/buy-now-pay-later.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/opinion/100000011091562/the-ais-are-already-out-of
 **Judge Orders Release of Woman Accused of Vandalizing World War II Memorial**\
 `Prosecutors led by Jeanine Pirro, the U.S. attorney in Washington, argued that Melissa Farris posed a flight risk and asked the court to reverse its decision.`\
 https://www.nytimes.com/2026/08/18/us/politics/wwii-memorial-vandalism-trump-pirro.html
-
-**Family and Lawmakers Press for Information on ICE Shooting in Maine**\
-`Democratic members of Congress held a public forum on Monday on the fatal ICE shooting in July of a Colombian immigrant, Johan Sebastián Durán Guerrero.`\
-https://www.nytimes.com/video/us/100000011097266/biddeford-maine-ice-shooting-hearing.html
 
