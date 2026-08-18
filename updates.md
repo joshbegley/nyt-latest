@@ -1,3 +1,11 @@
+**The Tragic Story of Jason Arday**\
+`The Cambridge professor, found dead last week, was at the center of a firestorm about race and hiring. We talk to the reporter covering the story.`\
+https://www.nytimes.com/2026/08/18/world/jason-arday-cambridge-canada-meta.html
+
+**Election Live Updates: Coast-to-Coast Primaries to Shape November Slate**\
+`Florida’s redrawn congressional districts have set up compelling contests, while Alaska’s Senate primary will test candidates’ strength. Voters in California will decide who replaces former Representative Eric Swalwell.`\
+https://www.nytimes.com/live/2026/08/18/us/elections-florida-california-alaska
+
 **Frank Beard, Beardless Drummer for ZZ Top, Dies at 77**\
 `The only member of the Texas power trio without a beard, he propelled the band’s blend of boogie, Southern rock and blues for more than a half-century.`\
 https://www.nytimes.com/2026/08/18/arts/music/frank-beard-zz-top-dead.html
