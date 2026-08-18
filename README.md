@@ -1,3 +1,7 @@
+**Family Presses for Information About Fatal ICE Shooting in Maine**\
+`The Department of Homeland Security said there would be an investigation. But so far little has been disclosed about the killing last month.`\
+https://www.nytimes.com/2026/08/17/us/biddeford-maine-ice-shooting-hearing.html
+
 **After Jason Arday’s Death, Mistaken Calls for Censorship**\
 `Some who once championed Arday seem to be trying to deflect from their own embarrassing credulity.`\
 https://www.nytimes.com/2026/08/17/opinion/jason-arday-cambridge-plagiarism-media.html
