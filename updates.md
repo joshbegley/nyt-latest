@@ -1,3 +1,7 @@
+**Frank Beard, Beardless Drummer for ZZ Top, Dies at 77**\
+`The only member of the Texas power trio without a beard, he propelled the band’s blend of boogie, Southern rock and blues for more than a half-century.`\
+https://www.nytimes.com/2026/08/18/arts/music/frank-beard-zz-top-dead.html
+
 **Map: 5.3-Magnitude Earthquake Shakes Afghanistan**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/08/18/world/asia/afghanistan-quake-tracker.html

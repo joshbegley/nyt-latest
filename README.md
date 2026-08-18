@@ -1,3 +1,7 @@
+**The Tragic Story of Jason Arday**\
+`The Cambridge professor, found dead last week, was at the center of a firestorm about race and hiring. We talk to the reporter covering the story.`\
+https://www.nytimes.com/2026/08/18/world/jason-arday-cambridge-canada-meta.html
+
 **Frank Beard, Beardless Drummer for ZZ Top, Dies at 77**\
 `The only member of the Texas power trio without a beard, he propelled the band’s blend of boogie, Southern rock and blues for more than a half-century.`\
 https://www.nytimes.com/2026/08/18/arts/music/frank-beard-zz-top-dead.html
@@ -190,11 +194,7 @@ https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-us-h
 `Get live results and maps from the 2026 Arkansas special primary election.`\
 https://www.nytimes.com/interactive/2026/08/18/us/elections/results-arkansas-state-senate-special-primary-august-18.html
 
-**Florida Third Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Florida primary election.`\
-https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-us-house-3-primary.html
-
-**Election Live Updates: Florida, Alaska and Wyoming Hold Key Primaries**\
+**Election Live Updates: Coast-to-Coast Primaries to Shape November Slate**\
 `Florida’s redrawn congressional districts have set up compelling contests, while Alaska’s Senate primary will test candidates’ strength. Voters in California will decide who replaces former Representative Eric Swalwell.`\
 https://www.nytimes.com/live/2026/08/18/us/elections-florida-california-alaska
 
