@@ -1,3 +1,7 @@
+**Ship Exiting the Strait of Hormuz Is Attacked**\
+`At least 17 commercial sailors have been killed in and around Iranian and Omani waters since March. Six months into the conflict, the vital waterway remains exceptionally dangerous.`\
+https://www.nytimes.com/2026/08/18/business/strait-of-hormuz-ship-attack.html
+
 **A Cuba ya no le queda tiempo**\
 `Los gobiernos pueden darse el lujo de seguir jugando a esperar. Los cubanos comunes, no.`\
 https://www.nytimes.com/es/2026/08/18/espanol/opinion/cuba-trump-castro-futuro.html
