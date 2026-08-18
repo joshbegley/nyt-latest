@@ -1,3 +1,7 @@
+**The Most Dangerous Type of A.I. Company**\
+`Meta may be an example of one of the most dangerous types of A.I. companies — one that believes it’s building tools, when it’s actually building superintelligence. Kevin Roose and Casey Newton discuss it on the “Hard Fork” podcast.`\
+https://www.nytimes.com/video/podcasts/100000011097676/the-most-dangerous-type-of-ai-company.html
+
 **U.S. Airman Says He Would Accept Punishment for Protesting Iran War**\
 `Major Watson characterized the war in Iran as an act of American aggression and compared the U.S. military actions to Russia’s invasion of Ukraine.`\
 https://www.nytimes.com/2026/08/17/us/politics/us-airman-trump-impeach-iran.html
