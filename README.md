@@ -1,3 +1,7 @@
+**Border Construction at Big Bend National Park Temporarily Halted**\
+`The Trump administration halted border construction in Big Bend National Park in Texas amid increasing criticism. Local law enforcement officials have said that the border infrastructure is unnecessary in a desolate and undeveloped area.`\
+https://www.nytimes.com/video/us/politics/100000011099153/big-bend-texas-border-us-mexico-immigration.html
+
 **ICE Bars Its Workers From Wearing Meta’s Smart Glasses on the Job**\
 `The agency joins a growing number of workplaces and groups to ban Meta’s devices, which have spurred privacy concerns.`\
 https://www.nytimes.com/2026/08/18/technology/ice-meta-smart-glasses.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-us-h
 **Florida 12th Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Florida primary election.`\
 https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-us-house-12-primary.html
-
-**Florida Attorney General Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Florida primary election.`\
-https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-attorney-general-primary.html
 
 **Election Live Updates: Coast-to-Coast Primaries to Shape November Slate**\
 `Florida’s redrawn congressional districts have set up compelling contests, while Alaska’s Senate primary will test candidates’ strength. Voters in California will decide who replaces former Representative Eric Swalwell.`\

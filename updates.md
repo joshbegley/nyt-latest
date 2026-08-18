@@ -1,3 +1,19 @@
+**ICE Bars Its Workers From Wearing Meta’s Smart Glasses on the Job**\
+`The agency joins a growing number of workplaces and groups to ban Meta’s devices, which have spurred privacy concerns.`\
+https://www.nytimes.com/2026/08/18/technology/ice-meta-smart-glasses.html
+
+**Penn State Fraternity Members Are Charged in Cocaine Trafficking Case**\
+`More than a dozen current and former students from two fraternities were part of an operation that involved packaging drugs at fraternity houses, the authorities said.`\
+https://www.nytimes.com/2026/08/18/us/penn-state-fraternity-cocaine.html
+
+**Yes, Woke 1.0 Was Crazy. Now Where’s the Accountability?**\
+`The damage was real and long-lasting.`\
+https://www.nytimes.com/2026/08/18/opinion/woke-liberals-restitution.html
+
+**Erin Patterson, Woman Convicted in Australia’s Mushroom Murder Case, Appeals**\
+`An Australian woman, Erin Patterson, was found guilty of murdering three of her husband’s relatives and trying to kill a fourth by serving them deadly mushrooms.`\
+https://www.nytimes.com/2026/08/18/world/australia/erin-patterson-appeal-mushroom-murder-australia.html
+
 **Trump’s Ballroom Is Rising at Breakneck Speed: 20 Hours a Day, 7 Days a Week**\
 `Although the fate of the ballroom is tied up in court, the Trump administration argues that the project is too far along to be stopped now.`\
 https://www.nytimes.com/2026/08/18/us/politics/trump-ballroom-construction.html
