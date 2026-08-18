@@ -1,3 +1,7 @@
+**What Florida Has Taught Our Reporter About National Politics**\
+`Voters may select an “R” or a “D” next to a candidate’s name, but their political views are often more nuanced than a binary choice represents.`\
+https://www.nytimes.com/2026/08/18/insider/florida-reporter-national-politics.html
+
 **Soy psiquiatra. Estoy escuchando algo nuevo de las mujeres jóvenes**\
 `Antes, a las pacientes les aterraba que les dijeran que tenían algo malo. Ahora las jovencitas anuncian sus diagnósticos casi antes de decir su nombre.`\
 https://www.nytimes.com/es/2026/08/18/espanol/opinion/mujeres-traumas-ansiedad-terapia.html
