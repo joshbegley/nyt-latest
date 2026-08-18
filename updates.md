@@ -1,3 +1,11 @@
+**Saolea Offers a Wine Bar’s Expansive Take on Thai Cooking**\
+`Burmese Bites gets a brick-and-mortar location, 20 Blocks goes all in on sandwiches and more restaurant news.`\
+https://www.nytimes.com/2026/08/18/dining/nyc-restaurant-news.html
+
+**The Spaghett Is Baltimore’s Gift to the World**\
+`How the bright-red beer cocktail went from a Charm City special to a worldwide phenomenon.`\
+https://www.nytimes.com/2026/08/18/dining/spaghett-baltimore.html
+
 **Who Is Ahead in Virginia's 5th Congressional District?**\
 `Track the latest polls in Virginia's 5th Congressional District.`\
 https://www.nytimes.com/interactive/polls/virginia-us-house-5-polls-2026.html
