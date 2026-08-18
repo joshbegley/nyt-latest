@@ -1,3 +1,7 @@
+**Residents on Hawaii’s Big Island Look to Help One Another After Hurricane Lala**\
+`In a remote region of the ravaged Big Island, there were  community gas runs, donated turkey stuffing, a makeshift emergency broadcast and even a helicopter.`\
+https://www.nytimes.com/2026/08/18/us/hawaii-hurricane-lala-community-relief.html
+
 **Ship Exiting the Strait of Hormuz Is Attacked**\
 `At least 17 commercial sailors have been killed in and around Iranian and Omani waters since March. Six months into the conflict, the vital waterway remains exceptionally dangerous.`\
 https://www.nytimes.com/2026/08/18/business/strait-of-hormuz-ship-attack.html
