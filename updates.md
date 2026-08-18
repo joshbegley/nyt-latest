@@ -1,3 +1,7 @@
+**El Chocó, un rincón aislado de Colombia, enfrenta las mayores dificultades tras el terremoto**\
+`Residentes, políticos e historiadores atribuyen el aislamiento de la región al abandono del Estado y al racismo estructural. El terremoto debilitó muchos de los ya frágiles vínculos que lo unen con el resto del país.`\
+https://www.nytimes.com/es/2026/08/18/espanol/america-latina/choco-colombia-terremoto-danos.html
+
 **Chocó, Colombia, Faces Deeper Hardship After an Earthquake**\
 `In Chocó, a predominantly Afro-Colombian and Indigenous region, “pain, hunger and homelessness await” survivors of last week’s earthquake, the governor says.`\
 https://www.nytimes.com/2026/08/18/world/americas/colombia-earthquake-choco.html
