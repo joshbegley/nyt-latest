@@ -1,3 +1,7 @@
+**What Does ‘A.I. Positivity’ Look Like?**\
+`In contrast to A.I. “doomerism,” the “Hard Fork” podcast hosts Casey Newton and Kevin Roose discuss positive use cases for A.I.`\
+https://www.nytimes.com/video/podcasts/100000011097632/what-does-ai-positivity-look-like.html
+
 **Family Presses for Information About Fatal ICE Shooting in Maine**\
 `The Department of Homeland Security said there would be an investigation. But so far little has been disclosed about the killing last month.`\
 https://www.nytimes.com/2026/08/17/us/biddeford-maine-ice-shooting-hearing.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/08/17/nyregion/mamdani-free-babysitting-nyc.html
 **EE. UU. e Irán incumplen el plazo para lograr un acuerdo de paz**\
 `El presidente Trump dijo que el alto al fuego de junio pondría límites al programa nuclear de Irán y daría fin al conflicto, pero los países parecen estar muy distanciados.`\
 https://www.nytimes.com/es/2026/08/17/espanol/mundo/incumplen-acuerdo-iran-eeeuu.html
-
-**Kanye West Announces Russia Concerts, Months After Western Europe Cancellations**\
-`Two St. Petersburg concerts by the rapper formerly known as Kanye West could become the first performances by a major Western act in Russia since the country invaded Ukraine.`\
-https://www.nytimes.com/2026/08/17/arts/music/ye-kanye-west-russia.html
 
 **Tupac Shakur Murder Trial Begins With Revenge Motive and Defendant’s Own Words**\
 `Duane Keith Davis is on trial for orchestrating the 1996 shooting, which he described in a memoir that he has since disavowed.`\
