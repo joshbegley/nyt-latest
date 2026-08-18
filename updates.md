@@ -1,3 +1,11 @@
+**Hegseth Campaigns for Republican Zach Nunn in Iowa**\
+`The appearance for Representative Zach Nunn was another departure from previous norms for the defense secretary, whose predecessors kept a greater distance from politics.`\
+https://www.nytimes.com/2026/08/17/us/politics/hegseth-iowa-campaign-nunn.html
+
+**NYT Crossword Answers for Aug. 18, 2026**\
+`Jeremy Venook makes his New York Times Crossword debut.`\
+https://www.nytimes.com/2026/08/17/crosswords/daily-puzzle-2026-08-18.html
+
 **The Most Dangerous Type of A.I. Company**\
 `Meta may be an example of one of the most dangerous types of A.I. companies — one that believes it’s building tools, when it’s actually building superintelligence. Kevin Roose and Casey Newton discuss it on the “Hard Fork” podcast.`\
 https://www.nytimes.com/video/podcasts/100000011097676/the-most-dangerous-type-of-ai-company.html

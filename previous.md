@@ -1,3 +1,11 @@
+**Hegseth Campaigns for Republican Zach Nunn in Iowa**\
+`The appearance for Representative Zach Nunn was another departure from previous norms for the defense secretary, whose predecessors kept a greater distance from politics.`\
+https://www.nytimes.com/2026/08/17/us/politics/hegseth-iowa-campaign-nunn.html
+
+**NYT Crossword Answers for Aug. 18, 2026**\
+`Jeremy Venook makes his New York Times Crossword debut.`\
+https://www.nytimes.com/2026/08/17/crosswords/daily-puzzle-2026-08-18.html
+
 **The Most Dangerous Type of A.I. Company**\
 `Meta may be an example of one of the most dangerous types of A.I. companies — one that believes it’s building tools, when it’s actually building superintelligence. Kevin Roose and Casey Newton discuss it on the “Hard Fork” podcast.`\
 https://www.nytimes.com/video/podcasts/100000011097676/the-most-dangerous-type-of-ai-company.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/08/17/business/buy-now-pay-later.html
 **What We Know About Damages From Hurricane Lala in Hawaii**\
 `The storm narrowly missed land, but its outer bands left the Big Island with power outages, road closures and flooded homes.`\
 https://www.nytimes.com/2026/08/17/us/hurricane-lala-hawaii-damage.html
-
-**Un oscuro pasado nazi sale a la luz y enfrenta a dos familias**\
-`Una mujer consiguió el expediente penal de su abuela, una colaboracionista, y se ofreció a compartirlo con una familia judía que había sido traicionada. Después se retractó y comenzó una nueva disputa.`\
-https://www.nytimes.com/es/2026/08/17/espanol/cultura/familia-nazi-colaboracionista.html
-
-**‘Benevolent’ Review: Trapped Women Dreaming of Escape**\
-`With her usual irreverent humor, the playwright Sophie McIntosh mines the experiences of four young, cooped-up women at a Manhattan reformatory in 1917.`\
-https://www.nytimes.com/2026/08/17/theater/benevolent-review-sophie-mcintosh.html
 
 **Tupac Shakur Murder Trial Begins With Revenge Motive and Defendant’s Own Words**\
 `Duane Keith Davis is on trial for orchestrating the 1996 shooting, which he described in a memoir that he has since disavowed.`\
