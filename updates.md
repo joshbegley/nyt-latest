@@ -1,3 +1,7 @@
+**Trump Fired His Inspectors General. Their Replacements Have a Different Mission.**\
+`President Trump is installing his allies in the offices of inspector general, which are meant to provide independent government oversight.`\
+https://www.nytimes.com/2026/08/18/us/politics/trump-inspector-general.html
+
 **Judge Allows Limited Testing in Trump Plan to Paint Eisenhower Building White**\
 `A federal judge ruled that initial preparatory steps, including testing out paints on the building’s gray granite exterior, could proceed for now.`\
 https://www.nytimes.com/2026/08/18/us/politics/judge-paint-eisenhower-building-trump.html

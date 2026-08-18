@@ -1,3 +1,7 @@
+**Environmentalists Sue to Halt First Sale of Seabed-Mining Rights**\
+`The suit claims the U.S. decision to allow mining for minerals in American waters didn’t consider the potential harm to endangered species.`\
+https://www.nytimes.com/2026/08/18/climate/seabed-mining-lawsuit-american-samoa.html
+
 **Trump Fired His Inspectors General. Their Replacements Have a Different Mission.**\
 `President Trump is installing his allies in the offices of inspector general, which are meant to provide independent government oversight.`\
 https://www.nytimes.com/2026/08/18/us/politics/trump-inspector-general.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-us-h
 **Alaska Measure 1 Election Results: Establish Campaign Contribution Limits for State and Local Elections**\
 `Get live results and maps from the 2026 Alaska general election.`\
 https://www.nytimes.com/interactive/2026/08/18/us/elections/results-alaska-measure-1-campaign-contribution-limits.html
-
-**California 14th Congressional District Special Nonpartisan Runoff 2026: Live Election Results, Hernandez vs. Wahab**\
-`Get live results and maps from the 2026 California special runoff election.`\
-https://www.nytimes.com/interactive/2026/08/18/us/elections/results-california-us-house-14-special-runoff.html
 
