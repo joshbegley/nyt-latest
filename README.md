@@ -1,3 +1,7 @@
+**A Rescue Mission in Remote Colombia**\
+`Our photographer Federico Rios joined aid flights in Chocó to document earthquake rescue efforts in remote communities.`\
+https://www.nytimes.com/video/world/americas/100000011097252/a-rescue-mission-in-remote-colombia.html
+
 **The New Physics of Power**\
 `It doesn’t take much for small powers to gain a big advantage over the powerful.`\
 https://www.nytimes.com/2026/08/18/opinion/us-israel-gaza-hezbollah-hamas-houthis.html
@@ -23,7 +27,7 @@ https://www.nytimes.com/video/embedded/business/100000011099389/Biz-wheels-pebbl
 https://www.nytimes.com/video/dining/100000011098392/bacon-cheeseburger-meatballs.html
 
 **A Missile Alert Half a World Away Interrupts Court Hearing at Guantánamo**\
-`A possible expert witness was hurried off a video feed after an emergency alert in Dubai, just south of the Strait of Hormuz, a flashpoint in the U.S.-Iran war.`\
+`A possible expert witness was hurried off a video feed after an emergency alert in Dubai, near the Strait of Hormuz, a flashpoint in the U.S.-Iran war.`\
 https://www.nytimes.com/2026/08/18/us/guantanamo-hearing-iran-war.html
 
 **Mayor Mamdani Wears a Bike Helmet. Finally.**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-us-h
 **Florida 18th Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Florida primary election.`\
 https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-us-house-18-primary.html
-
-**Florida 11th Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Florida primary election.`\
-https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-us-house-11-primary.html
 
