@@ -1,3 +1,15 @@
+**Google Just Made It Easier for Campaigns to Send You Fund-Raising Emails**\
+`Republicans previously sued Google claiming its spam filter was biased, but the case was dismissed. The company will now allow verified campaigns to more easily bypass the spam filter.`\
+https://www.nytimes.com/2026/08/18/us/politics/google-political-campaigns-email-spam.html
+
+**An A.I. Tax Boom Could Curtail America’s Debt. But Not Solve It.**\
+`The consequences of A.I. for the budget will largely hinge on whether — and to what extent — the technology reshapes the labor market.`\
+https://www.nytimes.com/2026/08/18/us/politics/ai-national-debt-budget.html
+
+**2 Workers Missing After Explosions and Fire at Ohio Recycling Plant**\
+`Chemical tanks had ruptured during the incident but officials said there was no immediate threat to the Toledo area.`\
+https://www.nytimes.com/2026/08/18/us/explosion-fire-toledo-ohio-workers-missing.html
+
 **Gulf Oil Giants Push to Expand Overseas Stockpiles as Iran War Drags On**\
 `Saudi Arabia and the United Arab Emirates are seeking larger oil reserves in Japan and South Korea as regional conflict threatens supply routes.`\
 https://www.nytimes.com/2026/08/18/business/saudi-uae-japan-oil-storage.html
