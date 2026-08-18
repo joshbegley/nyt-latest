@@ -1,3 +1,7 @@
+**Saolea Offers a Wine Bar’s Expansive Take on Thai Cooking**\
+`Burmese Bites gets a brick-and-mortar location, 20 Blocks goes all in on sandwiches and more restaurant news.`\
+https://www.nytimes.com/2026/08/18/dining/nyc-restaurant-news.html
+
 **Who Is Ahead in Virginia's 5th Congressional District?**\
 `Track the latest polls in Virginia's 5th Congressional District.`\
 https://www.nytimes.com/interactive/polls/virginia-us-house-5-polls-2026.html
@@ -175,7 +179,7 @@ https://www.nytimes.com/video/opinion/100000011096297/i-just-want-to-see-america
 https://www.nytimes.com/es/2026/08/18/espanol/opinion/silicon-valley-guerra-pentagono.html
 
 **The Spaghett Is Baltimore’s Gift to the World**\
-`How the bright-red beer cocktail went from a Charm City special to become a worldwide phenomenon.`\
+`How the bright-red beer cocktail went from a Charm City special to a worldwide phenomenon.`\
 https://www.nytimes.com/2026/08/18/dining/spaghett-baltimore.html
 
 **Primary Election Results in Alaska, Arkansas, California, Florida, Pennsylvania and Wyoming: Aug. 18, 2026**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/08/18/us/elections/results-wyoming-us-s
 **Wyoming Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Wyoming primary elections.`\
 https://www.nytimes.com/interactive/2026/08/18/us/elections/results-wyoming-primary.html
-
-**Wyoming Governor Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Wyoming primary election.`\
-https://www.nytimes.com/interactive/2026/08/18/us/elections/results-wyoming-governor-primary.html
 

@@ -1,3 +1,7 @@
+**Who Is Ahead in Virginia's 5th Congressional District?**\
+`Track the latest polls in Virginia's 5th Congressional District.`\
+https://www.nytimes.com/interactive/polls/virginia-us-house-5-polls-2026.html
+
 **Trump Administration Moves to Allow Logging in Pristine National Forests**\
 `The move to repeal the ‘roadless rule’ would pave the way for road construction and logging in nearly 45 million acres of untouched back country.`\
 https://www.nytimes.com/2026/08/18/climate/trump-ends-roadless-rule-forests.html
