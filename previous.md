@@ -1,3 +1,7 @@
+**Mayor Mamdani Wears a Bike Helmet. Finally.**\
+`The mayor, an enthusiastic cyclist, appears to have heeded New Yorkers’ advice that he practice safer biking.`\
+https://www.nytimes.com/2026/08/18/nyregion/mamdani-citi-bike-safety-helmet.html
+
 **What Florida Has Taught Our Reporter About National Politics**\
 `Voters may select an “R” or a “D” next to a candidate’s name, but their political views are often more nuanced than a binary choice represents.`\
 https://www.nytimes.com/2026/08/18/insider/florida-reporter-national-politics.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-us-h
 **Wyoming Treasurer Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Wyoming primary election.`\
 https://www.nytimes.com/interactive/2026/08/18/us/elections/results-wyoming-treasurer-primary.html
-
-**Florida Agriculture Commissioner Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Florida primary election.`\
-https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-agriculture-commissioner-primary.html
 
