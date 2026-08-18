@@ -1,3 +1,11 @@
+**Nigel Farage’s Oddly American Outfit**\
+`Plus: Haute couture for Snoopy and a final ruling on the shoe of the summer.`\
+https://www.nytimes.com/2026/08/18/style/farages-nigel-style.html
+
+**‘I Just Want to See America Love Me’**\
+`In Georgia, Mara Gay sat down with Black voters to hear how they think America is doing — and what they make of the Democratic Party today. “Messy. All over the place,” Jarrett Willis, an entrepreneur, told her. “There’s no structure; it’s nothing to rally behind. It’s lacking that umph factor.”`\
+https://www.nytimes.com/video/opinion/100000011096297/i-just-want-to-see-america-love-me.html
+
 **Silicon Valley fue firme desde el principio**\
 `Los valores de Silicon Valley no han cambiado, solo sus clientes.`\
 https://www.nytimes.com/es/2026/08/18/espanol/opinion/silicon-valley-guerra-pentagono.html
