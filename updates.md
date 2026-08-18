@@ -1,3 +1,11 @@
+**Former Mother-in-Law Describes Lindsay Clancy’s Mental Health Struggle in Murder Trial**\
+`Ms. Clancy, who is on trial for murder in the deaths of her three children, tried to find treatment for her deteriorating condition, her ex-husband’s mother testified.`\
+https://www.nytimes.com/2026/08/18/us/lindsay-clancy-murder-trial-mother-in-law.html
+
+**Election Live Updates: Polls in Florida to Close Soon**\
+`Florida’s redrawn districts are creating compelling contests as voters in California decide who replaces former Representative Eric Swalwell. Alaska’s Senate primary will test contenders’ strengths, and a Trump-backed candidate is the favorite in Wyoming’s race.`\
+https://www.nytimes.com/live/2026/08/18/us/elections-florida-california-alaska
+
 **Theater Chains Back Paramount-Warner Deal That States Say Will Hurt Them**\
 `America’s three largest movie theater companies have lined up behind David Ellison’s $111 billion merger of Paramount and Warner Bros. Discovery.`\
 https://www.nytimes.com/2026/08/18/business/cinemark-paramount-warner-deal-movie-theater-chains.html
