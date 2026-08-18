@@ -1,3 +1,7 @@
+**After Jason Arday’s Death, Mistaken Calls for Censorship**\
+`Some who once championed Arday seem to be trying to deflect from their own embarrassing credulity.`\
+https://www.nytimes.com/2026/08/17/opinion/jason-arday-cambridge-plagiarism-media.html
+
 **More U.S. Parents Opting Children Out of Vaccine Requirements, C.D.C. Reports**\
 `New data on exemptions from state vaccine mandates for schoolchildren come a week after President Trump signed an executive order calling to scale back childhood shots.`\
 https://www.nytimes.com/2026/08/17/well/vaccine-exemptions-rates.html

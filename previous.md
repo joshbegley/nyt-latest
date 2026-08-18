@@ -1,3 +1,7 @@
+**After Jason Arday’s Death, Mistaken Calls for Censorship**\
+`Some who once championed Arday seem to be trying to deflect from their own embarrassing credulity.`\
+https://www.nytimes.com/2026/08/17/opinion/jason-arday-cambridge-plagiarism-media.html
+
 **Which Book Should You Read to Finish Summer? Take the Quiz.**\
 `We picked out 32 books that are perfect for the end of the season. Take our quiz to find out which one is right for you.`\
 https://www.nytimes.com/interactive/2026/08/17/books/summer-books-quiz.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/es/2026/08/17/espanol/mundo/incumplen-acuerdo-iran-eeeuu
 **Kanye West Announces Russia Concerts, Months After Western Europe Cancellations**\
 `Two St. Petersburg concerts by the rapper formerly known as Kanye West could become the first performances by a major Western act in Russia since the country invaded Ukraine.`\
 https://www.nytimes.com/2026/08/17/arts/music/ye-kanye-west-russia.html
-
-**Hayden Panettiere Was in Cardiac Arrest When Authorities Responded to 911 Call**\
-`After the authorities responded to a 911 call in Greenville, S.C., an initial police investigation found no evidence of “foul play or suspicious circumstances.”`\
-https://www.nytimes.com/2026/08/17/arts/television/hayden-panettiere-death-foul-play.html
 
 **Tupac Shakur Murder Trial Begins With Revenge Motive and Defendant’s Own Words**\
 `Duane Keith Davis is on trial for orchestrating the 1996 shooting, which he described in a memoir that he has since disavowed.`\
