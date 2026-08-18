@@ -1,3 +1,7 @@
+**University of Michigan Names President After Prior Pick Faced Brain Cancer**\
+`The university chose a Vanderbilt academic, Cybele Raver, after a previous candidate for the role had to step down because of a brain cancer diagnosis.`\
+https://www.nytimes.com/2026/08/18/us/university-michigan-president-cybele-raver.html
+
 **Court Blocks Road Through Izembek National Wildlife Refuge**\
 `A federal judge ruled that the Trump administration broke the law when it approved a deal to allow a road through the Izembek National Wildlife Refuge.`\
 https://www.nytimes.com/2026/08/18/climate/court-alaska-izembek-refuge.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-us-h
 **Florida 21st Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Florida primary election.`\
 https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-us-house-21-primary.html
-
-**Florida 26th Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Florida primary election.`\
-https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-us-house-26-primary.html
 
 **Election Live Updates: Coast-to-Coast Primaries to Shape November Slate**\
 `Florida’s redrawn congressional districts have set up compelling contests, while Alaska’s Senate primary will test candidates’ strength. Voters in California will decide who replaces former Representative Eric Swalwell.`\

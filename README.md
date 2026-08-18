@@ -1,3 +1,11 @@
+**In a Big Pivot, Seat-Back Screens Are Returning at American Airlines**\
+`In an announcement on Tuesday, the carrier promised screens at every seat in its narrow-body fleet, along with an expansion of its premium seating.`\
+https://www.nytimes.com/2026/08/18/travel/american-airlines-seatback-screens.html
+
+**Trump Officials Ignored Their Own University Investigations, Lawyer Says**\
+`A former Justice Department lawyer says Trump administration leaders ignored findings that elite schools, including Brown and Columbia, hadn’t broken the law as they pressed them into deals.`\
+https://www.nytimes.com/2026/08/18/us/trump-administration-university-investigations-whistleblower.html
+
 **University of Michigan Names President After Prior Pick Faced Brain Cancer**\
 `The university chose a Vanderbilt academic, Cybele Raver, after a previous candidate for the role had to step down because of a brain cancer diagnosis.`\
 https://www.nytimes.com/2026/08/18/us/university-michigan-president-cybele-raver.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-us-h
 **Florida Fifth Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Florida primary election.`\
 https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-us-house-5-primary.html
-
-**Florida 23rd Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Florida primary election.`\
-https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-us-house-23-primary.html
-
-**Florida 21st Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Florida primary election.`\
-https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-us-house-21-primary.html
 
 **Election Live Updates: Coast-to-Coast Primaries to Shape November Slate**\
 `Florida’s redrawn congressional districts have set up compelling contests, while Alaska’s Senate primary will test candidates’ strength. Voters in California will decide who replaces former Representative Eric Swalwell.`\

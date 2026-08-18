@@ -1,3 +1,7 @@
+**University of Michigan Names President After Prior Pick Faced Brain Cancer**\
+`The university chose a Vanderbilt academic, Cybele Raver, after a previous candidate for the role had to step down because of a brain cancer diagnosis.`\
+https://www.nytimes.com/2026/08/18/us/university-michigan-president-cybele-raver.html
+
 **Court Blocks Road Through Izembek National Wildlife Refuge**\
 `A federal judge ruled that the Trump administration broke the law when it approved a deal to allow a road through the Izembek National Wildlife Refuge.`\
 https://www.nytimes.com/2026/08/18/climate/court-alaska-izembek-refuge.html
