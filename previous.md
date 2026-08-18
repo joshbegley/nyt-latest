@@ -1,3 +1,15 @@
+**Is A.I. Development Really on a Safe Path?**\
+`The recent OpenAI Hugging Face hack has raised questions about the safety of frontier A.I. models. Helen Toner, the executive director of Georgetown’s Center for Security and Emerging Technology, discusses ways to improve A.I. safety without pausing development.`\
+https://www.nytimes.com/video/opinion/100000011099984/is-ai-development-really-on-a-safe-path.html
+
+**5 Things to Know About Ashley Moody, Republican Senate Candidate in Florida**\
+`The Republican incumbent has President Trump’s support but has little name recognition to many in her state.`\
+https://www.nytimes.com/2026/08/18/us/politics/ashley-moody-florida-republican-senate-primary.html
+
+**Threatening Friends and Courting Enemies in Trump’s ‘Upside-Down World’**\
+`The president’s hostility to allies like Oman, Canada and South Korea, and his affection for adversaries like North Korea, may still shock some. But it comes as little surprise after a decade of upheaval.`\
+https://www.nytimes.com/2026/08/18/us/politics/trumps-upside-down-world.html
+
 **5 Things to Know About Angie Nixon, Democratic Senate Candidate in Florida**\
 `Ms. Nixon, a democratic socialist, is running on a platform that calls for universal health care and a federal minimum wage of $25 per hour.`\
 https://www.nytimes.com/2026/08/18/us/politics/angie-nixon-democrat-florida-senate-candidate.html
@@ -181,18 +193,6 @@ https://www.nytimes.com/es/2026/08/18/espanol/opinion/mujeres-traumas-ansiedad-t
 **5 New Songs I’m Excited About**\
 `Hear a track from L’Rain and the song our critic wishes Phoebe Bridgers had made her lead single.`\
 https://www.nytimes.com/2026/08/18/arts/music/amplifier-newsletter-phoebe-bridgers-lrain.html
-
-**A Bitter Anniversary for Afghan Women**\
-`Readers respond to a guest essay about the U.S. failure in Afghanistan and the Taliban’s oppression of women. Also: the use of A.I. in medicine.`\
-https://www.nytimes.com/2026/08/18/opinion/afghanistan-taliban-women.html
-
-**Fueron amigas de la infancia. Luego, descubrieron que eran hermanas**\
-`Meena Geltink y Minal Tijssen fueron adoptadas en India por familias de los Países Bajos y crecieron a menos de 160 kilómetros de distancia.`\
-https://www.nytimes.com/es/2026/08/18/espanol/hermanas-separadas-adopcion-holanda.html
-
-**Minnesota Sues Texas Gov. Greg Abbott Over His Refusal to Extradite ICE Agent**\
-`A federal agent facing assault charges in Minnesota has been jailed in Texas since May. Gov. Greg Abbott has not granted an extradition request.`\
-https://www.nytimes.com/2026/08/18/us/ice-minnesota-texas-greg-abbott.html
 
 **Election Live Updates: Most Florida Polls Close in First Primary With New Maps**\
 `Florida’s redrawn districts are creating compelling contests as voters in California decide who replaces former Representative Eric Swalwell. Alaska’s Senate primary will test contenders’ strengths, and a Trump-backed candidate is the favorite in Wyoming’s race.`\

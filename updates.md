@@ -1,3 +1,15 @@
+**Is A.I. Development Really on a Safe Path?**\
+`The recent OpenAI Hugging Face hack has raised questions about the safety of frontier A.I. models. Helen Toner, the executive director of Georgetown’s Center for Security and Emerging Technology, discusses ways to improve A.I. safety without pausing development.`\
+https://www.nytimes.com/video/opinion/100000011099984/is-ai-development-really-on-a-safe-path.html
+
+**5 Things to Know About Ashley Moody, Republican Senate Candidate in Florida**\
+`The Republican incumbent has President Trump’s support but has little name recognition to many in her state.`\
+https://www.nytimes.com/2026/08/18/us/politics/ashley-moody-florida-republican-senate-primary.html
+
+**Threatening Friends and Courting Enemies in Trump’s ‘Upside-Down World’**\
+`The president’s hostility to allies like Oman, Canada and South Korea, and his affection for adversaries like North Korea, may still shock some. But it comes as little surprise after a decade of upheaval.`\
+https://www.nytimes.com/2026/08/18/us/politics/trumps-upside-down-world.html
+
 **5 Things to Know About Angie Nixon, Democratic Senate Candidate in Florida**\
 `Ms. Nixon, a democratic socialist, is running on a platform that calls for universal health care and a federal minimum wage of $25 per hour.`\
 https://www.nytimes.com/2026/08/18/us/politics/angie-nixon-democrat-florida-senate-candidate.html

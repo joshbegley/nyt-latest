@@ -1,3 +1,7 @@
+**Boyfriend Who Abused Hayden Panettiere Had Returned to Her Life**\
+`Despite the actress’s efforts to move on from a turbulent relationship with Brian Hickerson, they were together when she went into cardiac arrest and died.`\
+https://www.nytimes.com/2026/08/18/arts/television/hayden-panettiere-brian-hickerson.html
+
 **Is A.I. Development Really on a Safe Path?**\
 `The recent OpenAI Hugging Face hack has raised questions about the safety of frontier A.I. models. Helen Toner, the executive director of Georgetown’s Center for Security and Emerging Technology, discusses ways to improve A.I. safety without pausing development.`\
 https://www.nytimes.com/video/opinion/100000011099984/is-ai-development-really-on-a-safe-path.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/08/18/insider/florida-reporter-national-politics.ht
 **Soy psiquiatra. Estoy escuchando algo nuevo de las mujeres jóvenes**\
 `Antes, a las pacientes les aterraba que les dijeran que tenían algo malo. Ahora las jovencitas anuncian sus diagnósticos casi antes de decir su nombre.`\
 https://www.nytimes.com/es/2026/08/18/espanol/opinion/mujeres-traumas-ansiedad-terapia.html
-
-**5 New Songs I’m Excited About**\
-`Hear a track from L’Rain and the song our critic wishes Phoebe Bridgers had made her lead single.`\
-https://www.nytimes.com/2026/08/18/arts/music/amplifier-newsletter-phoebe-bridgers-lrain.html
 
 **Election Live Updates: Most Florida Polls Close in First Primary With New Maps**\
 `Florida’s redrawn districts are creating compelling contests as voters in California decide who replaces former Representative Eric Swalwell. Alaska’s Senate primary will test contenders’ strengths, and a Trump-backed candidate is the favorite in Wyoming’s race.`\
