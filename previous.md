@@ -1,5 +1,5 @@
 **Trump Administration Moves to Allow Logging in Pristine National Forests**\
-`The move to repeal the ‘roadless rule” would pave the way for road construction and logging in nearly 45 million acres of untouched back country.`\
+`The move to repeal the ‘roadless rule’ would pave the way for road construction and logging in nearly 45 million acres of untouched back country.`\
 https://www.nytimes.com/2026/08/18/climate/trump-ends-roadless-rule-forests.html
 
 **Who Is Ahead in Rhode Island's 2nd Congressional District?**\
