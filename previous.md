@@ -1,3 +1,7 @@
+**Hurricane Lala Destroyed a Hawaii Cemetery, Setting Off a Hunt for the Dead**\
+`In the hamlet of Naalehu, the floods of Hurricane Lala opened graves. One mother sought desperately for her son.`\
+https://www.nytimes.com/2026/08/18/us/hurricane-lala-hawaii-naalehu-cemetery.html
+
 **Saolea Offers a Wine Bar’s Expansive Take on Thai Cooking**\
 `Burmese Bites gets a brick-and-mortar location, 20 Blocks goes all in on sandwiches and more restaurant news.`\
 https://www.nytimes.com/2026/08/18/dining/nyc-restaurant-news.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/08/18/espanol/mundo/canada-aranceles.html
 **Wyoming U.S. Senate Primary 2026: Live Election Results, Benavidez vs. Byrd**\
 `Get live results and maps from the 2026 Wyoming primary election.`\
 https://www.nytimes.com/interactive/2026/08/18/us/elections/results-wyoming-us-senate-primary.html
-
-**Wyoming Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Wyoming primary elections.`\
-https://www.nytimes.com/interactive/2026/08/18/us/elections/results-wyoming-primary.html
 
