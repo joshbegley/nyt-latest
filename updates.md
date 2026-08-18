@@ -1,3 +1,15 @@
+**A Rescue Mission in Remote Colombia**\
+`Our photographer Federico Rios joined aid flights in Chocó to document earthquake rescue efforts in remote communities.`\
+https://www.nytimes.com/video/world/americas/100000011097252/a-rescue-mission-in-remote-colombia.html
+
+**The New Physics of Power**\
+`It doesn’t take much for small powers to gain a big advantage over the powerful.`\
+https://www.nytimes.com/2026/08/18/opinion/us-israel-gaza-hezbollah-hamas-houthis.html
+
+**A Missile Alert Half a World Away Interrupts Court Hearing at Guantánamo**\
+`A possible expert witness was hurried off a video feed after an emergency alert in Dubai, near the Strait of Hormuz, a flashpoint in the U.S.-Iran war.`\
+https://www.nytimes.com/2026/08/18/us/guantanamo-hearing-iran-war.html
+
 **Environmentalists Sue to Halt First Sale of Seabed-Mining Rights**\
 `The suit claims the U.S. decision to allow mining for minerals in American waters didn’t consider the potential harm to endangered species.`\
 https://www.nytimes.com/2026/08/18/climate/seabed-mining-lawsuit-american-samoa.html

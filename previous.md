@@ -1,3 +1,11 @@
+**A Rescue Mission in Remote Colombia**\
+`Our photographer Federico Rios joined aid flights in Chocó to document earthquake rescue efforts in remote communities.`\
+https://www.nytimes.com/video/world/americas/100000011097252/a-rescue-mission-in-remote-colombia.html
+
+**The New Physics of Power**\
+`It doesn’t take much for small powers to gain a big advantage over the powerful.`\
+https://www.nytimes.com/2026/08/18/opinion/us-israel-gaza-hezbollah-hamas-houthis.html
+
 **Environmentalists Sue to Halt First Sale of Seabed-Mining Rights**\
 `The suit claims the U.S. decision to allow mining for minerals in American waters didn’t consider the potential harm to endangered species.`\
 https://www.nytimes.com/2026/08/18/climate/seabed-mining-lawsuit-american-samoa.html
@@ -19,7 +27,7 @@ https://www.nytimes.com/video/embedded/business/100000011099389/Biz-wheels-pebbl
 https://www.nytimes.com/video/dining/100000011098392/bacon-cheeseburger-meatballs.html
 
 **A Missile Alert Half a World Away Interrupts Court Hearing at Guantánamo**\
-`A possible expert witness was hurried off a video feed after an emergency alert in Dubai, just south of the Strait of Hormuz, a flashpoint in the U.S.-Iran war.`\
+`A possible expert witness was hurried off a video feed after an emergency alert in Dubai, near the Strait of Hormuz, a flashpoint in the U.S.-Iran war.`\
 https://www.nytimes.com/2026/08/18/us/guantanamo-hearing-iran-war.html
 
 **Mayor Mamdani Wears a Bike Helmet. Finally.**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-us-h
 **Florida 18th Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Florida primary election.`\
 https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-us-house-18-primary.html
-
-**Florida 11th Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Florida primary election.`\
-https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-us-house-11-primary.html
-
-**Alaska Measure 1 Election Results: Establish Campaign Contribution Limits for State and Local Elections**\
-`Get live results and maps from the 2026 Alaska general election.`\
-https://www.nytimes.com/interactive/2026/08/18/us/elections/results-alaska-measure-1-campaign-contribution-limits.html
 
