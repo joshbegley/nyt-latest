@@ -1,3 +1,7 @@
+**Zambia Says President Won Re-election After Tumultuous Campaign**\
+`With a second term, Hakainde Hichilema must navigate relations with the Trump administration, which has sought greater access to the copper-rich nation’s natural resources.`\
+https://www.nytimes.com/2026/08/17/world/africa/zambia-election-hichilema.html
+
 **Hegseth Campaigns for Republican Zach Nunn in Iowa**\
 `The appearance for Representative Zach Nunn was another departure from previous norms for the defense secretary, whose predecessors kept a greater distance from politics.`\
 https://www.nytimes.com/2026/08/17/us/politics/hegseth-iowa-campaign-nunn.html

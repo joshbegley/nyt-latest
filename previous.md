@@ -1,3 +1,7 @@
+**Zambia Says President Won Re-election After Tumultuous Campaign**\
+`With a second term, Hakainde Hichilema must navigate relations with the Trump administration, which has sought greater access to the copper-rich nation’s natural resources.`\
+https://www.nytimes.com/2026/08/17/world/africa/zambia-election-hichilema.html
+
 **Hegseth Campaigns for Republican Zach Nunn in Iowa**\
 `The appearance for Representative Zach Nunn was another departure from previous norms for the defense secretary, whose predecessors kept a greater distance from politics.`\
 https://www.nytimes.com/2026/08/17/us/politics/hegseth-iowa-campaign-nunn.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/17/business/buy-now-pay-later.html
 **What We Know About Damages From Hurricane Lala in Hawaii**\
 `The storm narrowly missed land, but its outer bands left the Big Island with power outages, road closures and flooded homes.`\
 https://www.nytimes.com/2026/08/17/us/hurricane-lala-hawaii-damage.html
-
-**Tupac Shakur Murder Trial Begins With Revenge Motive and Defendant’s Own Words**\
-`Duane Keith Davis is on trial for orchestrating the 1996 shooting, which he described in a memoir that he has since disavowed.`\
-https://www.nytimes.com/live/2026/08/17/arts/tupac-murder-trial-duane-davis
 
