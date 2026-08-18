@@ -22,7 +22,7 @@ https://www.nytimes.com/2026/08/18/arts/music/frank-beard-zz-top-dead.html
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/08/18/world/asia/afghanistan-quake-tracker.html
 
-**As Many Taiwan Residents Fears Invasion From China, Some Prepare to Fight Back**\
+**In a Polarized Taiwan, Some Residents Are Training to Defend Their Homeland**\
 `Could civil-defense drills help Taiwan if China moves to annex the island?`\
 https://www.nytimes.com/interactive/2026/08/18/magazine/taiwan-china-invasion-defense.html
 
