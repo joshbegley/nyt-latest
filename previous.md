@@ -1,3 +1,11 @@
+**Is Silicon Valley in the Justice Dept.’s Sights?**\
+`Federal prosecutors are reportedly investigating Andreessen Horowitz, the venture capital giant, over board seats it holds.`\
+https://www.nytimes.com/2026/08/18/business/dealbook/andreessen-horowitz-justice-antitrust.html
+
+**‘Like Totally’: The San Fernando Valley Celebrates Itself on 818 Day**\
+`The Valley is often ignored in Los Angeles discussions, and residents once tried to secede from the city. But on one day each year, the region gets its recognition.`\
+https://www.nytimes.com/2026/08/18/us/818-day-san-fernando-valley.html
+
 **Bond Yields Jump and Stocks Slip as Iran Stalemate Unsettles Investors**\
 `The yield on the 30-year U.S. Treasury bond rose to its highest level in nearly 20 years.`\
 https://www.nytimes.com/2026/08/18/business/oil-prices-bonds.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/18/science/nasa-voyagers-big-bang.html
 **How to Find Your Daughter’s Therapy Speak Less Traumatizing**\
 `Step 1: Take it seriously, not literally.`\
 https://www.nytimes.com/2026/08/18/opinion/therapy-speak-daughter-trauma-anxiety.html
-
-**A Mother’s Quest to Rescue Her Son From Russian-Occupied Ukraine**\
-`They made a risky bid to reunite after three years of separation, illness and deprivation — the kind of ordeal suffered by many thousands of families torn apart by the war in eastern Ukraine.`\
-https://www.nytimes.com/2026/08/18/world/europe/ukraine-russia-rescue.html
-
-**Texas Tech University Is Using A.I. to Cut Left-Leaning Content**\
-`The politician behind Texas’ conservative overhaul of higher education is now running a university system. Some say his effort to ferret out forbidden topics is a dystopian academic nightmare.`\
-https://www.nytimes.com/2026/08/18/us/texas-tech-artificial-intelligence-ideology-brandon-creighton.html
 

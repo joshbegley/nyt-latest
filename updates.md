@@ -1,3 +1,11 @@
+**Is Silicon Valley in the Justice Dept.’s Sights?**\
+`Federal prosecutors are reportedly investigating Andreessen Horowitz, the venture capital giant, over board seats it holds.`\
+https://www.nytimes.com/2026/08/18/business/dealbook/andreessen-horowitz-justice-antitrust.html
+
+**‘Like Totally’: The San Fernando Valley Celebrates Itself on 818 Day**\
+`The Valley is often ignored in Los Angeles discussions, and residents once tried to secede from the city. But on one day each year, the region gets its recognition.`\
+https://www.nytimes.com/2026/08/18/us/818-day-san-fernando-valley.html
+
 **Bond Yields Jump and Stocks Slip as Iran Stalemate Unsettles Investors**\
 `The yield on the 30-year U.S. Treasury bond rose to its highest level in nearly 20 years.`\
 https://www.nytimes.com/2026/08/18/business/oil-prices-bonds.html
