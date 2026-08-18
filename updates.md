@@ -1,3 +1,7 @@
+**Chocó, Colombia, Faces Deeper Hardship After an Earthquake**\
+`In Chocó, a remote region, “pain, hunger and homelessness await” survivors of last week’s earthquake, the governor said. Shakira visited to help draw awareness.`\
+https://www.nytimes.com/2026/08/18/world/americas/colombia-earthquake-choco.html
+
 **Turkey and the Kurds Show a Way Forward**\
 `A recent Turkish law moving toward an end to the conflict with the P.K.K. could be a model for other militant groups.`\
 https://www.nytimes.com/2026/08/18/opinion/turkey-kurds-pkk-hamas.html

@@ -11,7 +11,7 @@ https://www.nytimes.com/2026/08/18/world/asia/philippines-school-shooting-zamboa
 https://www.nytimes.com/es/2026/08/18/espanol/america-latina/choco-colombia-terremoto-danos.html
 
 **Chocó, Colombia, Faces Deeper Hardship After an Earthquake**\
-`In Chocó, a predominantly Afro-Colombian and Indigenous region, “pain, hunger and homelessness await” survivors of last week’s earthquake, the governor says.`\
+`In Chocó, a remote region, “pain, hunger and homelessness await” survivors of last week’s earthquake, the governor said. Shakira visited to help draw awareness.`\
 https://www.nytimes.com/2026/08/18/world/americas/colombia-earthquake-choco.html
 
 **Quote of the Day: For African Priests in Italy, a Tentative Embrace**\
