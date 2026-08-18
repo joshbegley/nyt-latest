@@ -1,3 +1,7 @@
+**U.S. Airman Says He Would Accept Punishment for Protesting Iran War**\
+`Major Watson characterized the war in Iran as an act of American aggression and compared the U.S. military actions to Russia’s invasion of Ukraine.`\
+https://www.nytimes.com/2026/08/17/us/politics/us-airman-trump-impeach-iran.html
+
 **Mark Zuckerberg ‘Will Move Mountains’ to Get What He Wants**\
 `The “Hard Fork” co-host Casey Newton says Mark Zuckerberg is one of the most competitive people in the world. Zuckerberg’s reorganization of A.I. efforts at Meta, while controversial, already show promise.`\
 https://www.nytimes.com/video/podcasts/100000011097666/mark-zuckerberg-will-move-mountains-to-get-what-he-wants.html

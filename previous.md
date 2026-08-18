@@ -1,3 +1,7 @@
+**U.S. Airman Says He Would Accept Punishment for Protesting Iran War**\
+`Major Watson characterized the war in Iran as an act of American aggression and compared the U.S. military actions to Russia’s invasion of Ukraine.`\
+https://www.nytimes.com/2026/08/17/us/politics/us-airman-trump-impeach-iran.html
+
 **Mark Zuckerberg ‘Will Move Mountains’ to Get What He Wants**\
 `The “Hard Fork” co-host Casey Newton says Mark Zuckerberg is one of the most competitive people in the world. Zuckerberg’s reorganization of A.I. efforts at Meta, while controversial, already show promise.`\
 https://www.nytimes.com/video/podcasts/100000011097666/mark-zuckerberg-will-move-mountains-to-get-what-he-wants.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/es/2026/08/17/espanol/cultura/familia-nazi-colaboracioni
 **‘Benevolent’ Review: Trapped Women Dreaming of Escape**\
 `With her usual irreverent humor, the playwright Sophie McIntosh mines the experiences of four young, cooped-up women at a Manhattan reformatory in 1917.`\
 https://www.nytimes.com/2026/08/17/theater/benevolent-review-sophie-mcintosh.html
-
-**Mamdani Gave These Parents a Night Off. This Is How They Spent It.**\
-`New York City provided four hours of free babysitting to hundreds of families. Parents used the time to reconnect with each other and to tackle chores uninterrupted.`\
-https://www.nytimes.com/2026/08/17/nyregion/mamdani-free-babysitting-nyc.html
 
 **Tupac Shakur Murder Trial Begins With Revenge Motive and Defendant’s Own Words**\
 `Duane Keith Davis is on trial for orchestrating the 1996 shooting, which he described in a memoir that he has since disavowed.`\
