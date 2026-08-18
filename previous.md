@@ -56,7 +56,7 @@ https://www.nytimes.com/2026/08/18/podcasts/what-an-eye-cream-can-and-cant-do.ht
 
 **Hayden Panettiere Grew Up in Front of the Camera. It Took a Toll.**\
 `The “Heroes” and “Nashville” star, who died Sunday at 36, endured personal struggles that were compounded by her public profile.`\
-https://www.nytimes.com/2026/08/18/arts/television/hayden-panettiere-grew-up-in-front-of-the-camera-it-took-a-toll.html
+https://www.nytimes.com/2026/08/18/arts/television/hayden-panettiere-child-star-struggles.html
 
 **Corrections: Aug. 18, 2026**\
 `Corrections that appeared in print on Tuesday, Aug. 18, 2026.`\
