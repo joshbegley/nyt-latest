@@ -1,3 +1,7 @@
+**Bond Yields Jump and Stocks Slip as Iran Stalemate Unsettles Investors**\
+`The yield on the 30-year U.S. Treasury bond rose to its highest level in nearly 20 years.`\
+https://www.nytimes.com/2026/08/18/business/oil-prices-bonds.html
+
 **Venezuela y Japón después de los terremotos**\
 `¿Por qué a algunos países les va mucho mejor que a otros cuando se trata de desastres naturales?`\
 https://www.nytimes.com/es/2026/08/18/espanol/mundo/venezuela-y-japon-despues-de-los-terremotos.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/18/world/europe/ukraine-russia-rescue.html
 **Texas Tech University Is Using A.I. to Cut Left-Leaning Content**\
 `The politician behind Texas’ conservative overhaul of higher education is now running a university system. Some say his effort to ferret out forbidden topics is a dystopian academic nightmare.`\
 https://www.nytimes.com/2026/08/18/us/texas-tech-artificial-intelligence-ideology-brandon-creighton.html
-
-**The A.I.s Are Already Out of Control**\
-`Helen Toner, who served on OpenAI’s board, hopes the recent hack by that company’s models serves as a warning.`\
-https://www.nytimes.com/video/opinion/100000011091562/the-ais-are-already-out-of-control.html
 

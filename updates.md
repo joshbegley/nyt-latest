@@ -1,3 +1,7 @@
+**Bond Yields Jump and Stocks Slip as Iran Stalemate Unsettles Investors**\
+`The yield on the 30-year U.S. Treasury bond rose to its highest level in nearly 20 years.`\
+https://www.nytimes.com/2026/08/18/business/oil-prices-bonds.html
+
 **Venezuela y Japón después de los terremotos**\
 `¿Por qué a algunos países les va mucho mejor que a otros cuando se trata de desastres naturales?`\
 https://www.nytimes.com/es/2026/08/18/espanol/mundo/venezuela-y-japon-despues-de-los-terremotos.html
