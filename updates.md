@@ -1,3 +1,11 @@
+**Which Book Should You Read to Finish Summer? Take the Quiz.**\
+`We picked out 32 books that are perfect for the end of the season. Take our quiz to find out which one is right for you.`\
+https://www.nytimes.com/interactive/2026/08/17/books/summer-books-quiz.html
+
+**House Panel Investigates Charges a Democrat Had Sexual Contact With Aide**\
+`Representative Jimmy Gomez of California acknowledged “personal mistakes” outside his marriage but denied breaking rules that bar relationships with a direct subordinate.`\
+https://www.nytimes.com/2026/08/17/us/politics/house-panel-investigates-jimmy-gomez.html
+
 **Trump Votes by Mail Again in Florida**\
 `The president also voted by mail in 2020 and in a Florida special election in March, even as he has railed against the practice and equated it to cheating.`\
 https://www.nytimes.com/2026/08/17/us/politics/trump-mail-vote-florida-election.html

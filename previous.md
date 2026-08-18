@@ -1,3 +1,11 @@
+**Which Book Should You Read to Finish Summer? Take the Quiz.**\
+`We picked out 32 books that are perfect for the end of the season. Take our quiz to find out which one is right for you.`\
+https://www.nytimes.com/interactive/2026/08/17/books/summer-books-quiz.html
+
+**House Panel Investigates Charges a Democrat Had Sexual Contact With Aide**\
+`Representative Jimmy Gomez of California acknowledged “personal mistakes” outside his marriage but denied breaking rules that bar relationships with a direct subordinate.`\
+https://www.nytimes.com/2026/08/17/us/politics/house-panel-investigates-jimmy-gomez.html
+
 **Trump Votes by Mail Again in Florida**\
 `The president also voted by mail in 2020 and in a Florida special election in March, even as he has railed against the practice and equated it to cheating.`\
 https://www.nytimes.com/2026/08/17/us/politics/trump-mail-vote-florida-election.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/08/17/arts/music/ye-kanye-west-russia.html
 **Hayden Panettiere Was in Cardiac Arrest When Authorities Responded to 911 Call**\
 `After the authorities responded to a 911 call in Greenville, S.C., an initial police investigation found no evidence of “foul play or suspicious circumstances.”`\
 https://www.nytimes.com/2026/08/17/arts/television/hayden-panettiere-death-foul-play.html
-
-**AI Slop Is Everywhere. Spotify, LinkedIn and Others Have Had Enough.**\
-`Spotify, LinkedIn and others are trying to dig out of a digital sewage heap full of low-quality content made with artificial intelligence.`\
-https://www.nytimes.com/2026/08/17/technology/ai-slop.html
-
-**Supreme Court Again Rejects Trump’s Appeal of $5 Million E. Jean Carroll Payment**\
-`The court declined President Trump’s long-shot request that it reconsider his appeal. He has separately asked the court to overturn a much larger 2024 award.`\
-https://www.nytimes.com/2026/08/17/us/politics/supreme-court-trump-carroll.html
 
 **Tupac Shakur Murder Trial Begins With Revenge Motive and Defendant’s Own Words**\
 `Duane Keith Davis is on trial for orchestrating the 1996 shooting, which he described in a memoir that he has since disavowed.`\
