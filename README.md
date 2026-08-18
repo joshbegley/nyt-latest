@@ -1,3 +1,7 @@
+**The New Physics of Power**\
+`It doesn’t take much for small powers to gain a big advantage over the powerful.`\
+https://www.nytimes.com/2026/08/18/opinion/us-israel-gaza-hezbollah-hamas-houthis.html
+
 **Environmentalists Sue to Halt First Sale of Seabed-Mining Rights**\
 `The suit claims the U.S. decision to allow mining for minerals in American waters didn’t consider the potential harm to endangered species.`\
 https://www.nytimes.com/2026/08/18/climate/seabed-mining-lawsuit-american-samoa.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-us-h
 **Florida 11th Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Florida primary election.`\
 https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-us-house-11-primary.html
-
-**Alaska Measure 1 Election Results: Establish Campaign Contribution Limits for State and Local Elections**\
-`Get live results and maps from the 2026 Alaska general election.`\
-https://www.nytimes.com/interactive/2026/08/18/us/elections/results-alaska-measure-1-campaign-contribution-limits.html
 
