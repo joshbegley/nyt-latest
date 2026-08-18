@@ -1,3 +1,15 @@
+**Humans Love Having Pets. Seems Like Some Other Primates Do, Too.**\
+`We aren’t the only animals who like to take care of other species. A new study finds that the roots of keeping a pet may stretch deep into our primate past.`\
+https://www.nytimes.com/2026/08/18/science/humans-love-having-pets-seems-like-some-other-primates-do-too.html
+
+**Home Depot Reports Higher Sales, but Its C.E.O. Isn’t There to Spread the News**\
+`Investors got a shock last week when the retailer said that Ted Decker, the chief executive, would take a medical leave. Tuesday’s earnings brought a more welcome surprise.`\
+https://www.nytimes.com/2026/08/18/business/home-depot-ceo-medical-leave.html
+
+**Trump Honors a Teenage Lifeguard and Takes Aim at a CNN Reporter**\
+`President Trump told a journalist to “be quiet” at a White House event for a California lifeguard and a boy he saved.`\
+https://www.nytimes.com/2026/08/18/us/politics/trump-lifeguard-cnn-reporter.html
+
 **Street Style Look of the Week: Hiking Pants for an Urban Explorer**\
 `A psychiatrist spotted in Copenhagen said he preferred to buy his shirts secondhand: That way he knows what they look like with some wear.`\
 https://www.nytimes.com/2026/08/18/style/street-style-look-hiking-pants.html

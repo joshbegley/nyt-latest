@@ -1,3 +1,7 @@
+**Gulf Oil Giants Push to Expand Overseas Stockpiles as Iran War Drags On**\
+`Saudi Arabia and the United Arab Emirates are seeking larger oil reserves in Japan and South Korea as regional conflict threatens supply routes.`\
+https://www.nytimes.com/2026/08/18/business/saudi-uae-japan-oil-storage.html
+
 **Humans Love Having Pets. Seems Like Some Other Primates Do, Too.**\
 `We aren’t the only animals who like to take care of other species. A new study finds that the roots of keeping a pet may stretch deep into our primate past.`\
 https://www.nytimes.com/2026/08/18/science/humans-love-having-pets-seems-like-some-other-primates-do-too.html
@@ -6,7 +10,7 @@ https://www.nytimes.com/2026/08/18/science/humans-love-having-pets-seems-like-so
 `Investors got a shock last week when the retailer said that Ted Decker, the chief executive, would take a medical leave. Tuesday’s earnings brought a more welcome surprise.`\
 https://www.nytimes.com/2026/08/18/business/home-depot-ceo-medical-leave.html
 
-**Trump Honors a Teenage Lifeguard and Takes Aim at a CNN Reporter**\
+**Trump Takes Aim at CNN Reporter Kristen Holmes During Event to Honor California Lifeguard**\
 `President Trump told a journalist to “be quiet” at a White House event for a California lifeguard and a boy he saved.`\
 https://www.nytimes.com/2026/08/18/us/politics/trump-lifeguard-cnn-reporter.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/18/t-magazine/fernando-romero-mexico-city-home.h
 **This Fall, Consider Dressing Like Your Living Room**\
 `Jacquard, velvet, shaggy shearling and tapestry — all staples of interior design — are cropping up in wardrobes.`\
 https://www.nytimes.com/2026/08/18/t-magazine/interior-decor-fashion-style.html
-
-**‘Les Miz’ Offers a Lifeline to a Battered Theater Industry**\
-`Regional theaters can once again produce “Les Misérables” because a national tour has ended. One veteran actor called the popular show “an instant moneymaker.”`\
-https://www.nytimes.com/2026/08/18/theater/les-miserables.html
 

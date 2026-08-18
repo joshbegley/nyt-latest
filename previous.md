@@ -1,3 +1,15 @@
+**Humans Love Having Pets. Seems Like Some Other Primates Do, Too.**\
+`We aren’t the only animals who like to take care of other species. A new study finds that the roots of keeping a pet may stretch deep into our primate past.`\
+https://www.nytimes.com/2026/08/18/science/humans-love-having-pets-seems-like-some-other-primates-do-too.html
+
+**Home Depot Reports Higher Sales, but Its C.E.O. Isn’t There to Spread the News**\
+`Investors got a shock last week when the retailer said that Ted Decker, the chief executive, would take a medical leave. Tuesday’s earnings brought a more welcome surprise.`\
+https://www.nytimes.com/2026/08/18/business/home-depot-ceo-medical-leave.html
+
+**Trump Honors a Teenage Lifeguard and Takes Aim at a CNN Reporter**\
+`President Trump told a journalist to “be quiet” at a White House event for a California lifeguard and a boy he saved.`\
+https://www.nytimes.com/2026/08/18/us/politics/trump-lifeguard-cnn-reporter.html
+
 **Street Style Look of the Week: Hiking Pants for an Urban Explorer**\
 `A psychiatrist spotted in Copenhagen said he preferred to buy his shirts secondhand: That way he knows what they look like with some wear.`\
 https://www.nytimes.com/2026/08/18/style/street-style-look-hiking-pants.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/08/18/t-magazine/interior-decor-fashion-style.html
 **‘Les Miz’ Offers a Lifeline to a Battered Theater Industry**\
 `Regional theaters can once again produce “Les Misérables” because a national tour has ended. One veteran actor called the popular show “an instant moneymaker.”`\
 https://www.nytimes.com/2026/08/18/theater/les-miserables.html
-
-**Book Review: ‘The Book of Chuck,’ by Charmaine Wilkerson**\
-`In “The Book of Chuck,” clairvoyance is a terrible inheritance.`\
-https://www.nytimes.com/2026/08/18/books/review/the-book-of-chuck-latoya-watkins.html
-
-**For New Violin Caprices, He Turned to Nina Simone and Kendrick Lamar**\
-`Curtis Stewart’s “24 American Caprices” are an answer to Paganini’s classic set. And they are already taking hold with musicians.`\
-https://www.nytimes.com/2026/08/18/arts/music/curtis-stewart-24-american-caprices.html
-
-**Could ‘Les Misérables’ Save Local Theater?**\
-`Michael Paulson, a New York Times theater reporter, traveled to a remote corner of southern Utah to see a production of “Les Misérables” at Tuacahn, where the show is staged outdoors against the region’s dramatic landscape. Paulson explains the significance of the musical and why this production may be the most successful in the theater’s 31-year history.`\
-https://www.nytimes.com/video/theater/100000011043870/could-les-miserables-save-local-theater.html
 
