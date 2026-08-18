@@ -1,3 +1,11 @@
+**Many Questions, but Few Answers, at Hearing About N.Y.C. Second-Home Tax**\
+`The Mamdani administration opted to give written testimony to the City Council on the rollout of the new tax, saying officials could not appear in person because of a lawsuit.`\
+https://www.nytimes.com/2026/08/18/nyregion/mamdani-second-home-tax-hearing.html
+
+**Polling Firm Released Fake Data in Hong and Bass Races as a ‘Social Experiment’**\
+`Median Strategies revealed that recent polls from the firm were intended to expose how easily false results can be spread.`\
+https://www.nytimes.com/2026/08/18/polls/median-strategies-polls-bass-california-wisconsin.html
+
 **The Tragic Story of Jason Arday**\
 `The Cambridge professor, found dead last week, was at the center of a firestorm about race and hiring. We talk to the reporter covering the story.`\
 https://www.nytimes.com/2026/08/18/world/jason-arday-cambridge-canada-meta.html
