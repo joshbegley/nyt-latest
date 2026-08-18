@@ -1,3 +1,87 @@
+**Six Years in Provence: An Ancient Castle and a Feud Over a Troublesome Bridge**\
+`In a picturesque village, the mayor closed a road, setting off a storm with residents and the owners of a castle that once belonged to his family.`\
+https://www.nytimes.com/2026/08/18/world/europe/provence-chateau-village-feud.html
+
+**What to Watch in Tuesday’s Primary Elections in Alaska, Florida and Beyond**\
+`An early glimpse of a pivotal Senate race, heated primaries on a newly redrawn congressional map, and a special election to replace Eric Swalwell will be in the spotlight on Tuesday.`\
+https://www.nytimes.com/2026/08/18/us/politics/what-to-watch-primary-elections.html
+
+**States Seek $200 Billion From Meta Over Child Social Media Addiction Claims**\
+`California, Colorado, Kentucky and New Jersey are taking the social media giant to trial in the first bellwether federal case over child harm.`\
+https://www.nytimes.com/2026/08/18/technology/meta-social-media-addiction-trial.html
+
+**Silicon Valley Executives Are Tech Fans. Just Not For Their Own Kids.**\
+`At home, moderation and restraint are the rule for tech parents. Boredom is exalted. Maybe they’re onto something.`\
+https://www.nytimes.com/2026/08/18/technology/silicon-valley-tech-fans-children.html
+
+**The Blackout That Could Devastate America**\
+`The power grid relies on thousands of aging, hand-built transformers. If enough fail, the blackout could last years.`\
+https://www.nytimes.com/2026/08/18/magazine/national-blackout-power-electricity-outage.html
+
+**Word of the Day: gobble**\
+`This word has appeared in 89 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/08/18/learning/word-of-the-day-gobble.html
+
+**Is Motion Sickness Preventable?**\
+`Experts say there are ways to stave off that dreaded queasy feeling.`\
+https://www.nytimes.com/2026/08/18/well/live/motion-sickness-prevention-treatment.html
+
+**In Mexico City, a Futuristic House With a Secret Chess Room**\
+`The architect Fernando Romero has pushed what was once a generic midcentury home as far as it can go.`\
+https://www.nytimes.com/2026/08/18/t-magazine/fernando-romero-mexico-city-home.html
+
+**This Fall, Consider Dressing Like Your Living Room**\
+`Jacquard, velvet, shaggy shearling and tapestry — all staples of interior design — are cropping up in wardrobes.`\
+https://www.nytimes.com/2026/08/18/t-magazine/interior-decor-fashion-style.html
+
+**‘Les Miz’ Offers a Lifeline to a Battered Theater Industry**\
+`Regional theaters can once again produce “Les Misérables” because a national tour has ended. One veteran actor called the popular show “an instant moneymaker.”`\
+https://www.nytimes.com/2026/08/18/theater/les-miserables.html
+
+**Book Review: ‘The Book of Chuck,’ by Charmaine Wilkerson**\
+`In “The Book of Chuck,” clairvoyance is a terrible inheritance.`\
+https://www.nytimes.com/2026/08/18/books/review/the-book-of-chuck-latoya-watkins.html
+
+**For New Violin Caprices, He Turned to Nina Simone and Kendrick Lamar**\
+`Curtis Stewart’s “24 American Caprices” are an answer to Paganini’s classic set. And they are already taking hold with musicians.`\
+https://www.nytimes.com/2026/08/18/arts/music/curtis-stewart-24-american-caprices.html
+
+**Could ‘Les Misérables’ Save Local Theater?**\
+`Michael Paulson, a New York Times theater reporter, traveled to a remote corner of southern Utah to see a production of “Les Misérables” at Tuacahn, where the show is staged outdoors against the region’s dramatic landscape. Paulson explains the significance of the musical and why this production may be the most successful in the theater’s 31-year history.`\
+https://www.nytimes.com/video/theater/100000011043870/could-les-miserables-save-local-theater.html
+
+**Forty First Dates and Still Searching**\
+`Joseph Pascaretta has spent roughly $65,000 on high-end matchmaking services. Will it help him find the love of his life?`\
+https://www.nytimes.com/2026/08/18/well/family/forty-first-dates-and-still-searching.html
+
+**Rafting Through the Grand Canyon on a Depleting Colorado River**\
+`As water levels on the Colorado River fall to historic lows, a rafting trip through the canyon feels even more precious.`\
+https://www.nytimes.com/2026/08/18/travel/grand-canyon-colorado-river-rafting.html
+
+**Book Review: ‘Range,’ by Dorthe Nors**\
+`In “Range,” by the Danish writer Dorthe Nors, a misfit astrophysicist lives alone in the wilderness, struggling to connect.`\
+https://www.nytimes.com/2026/08/18/books/review/range-dorthe-nors.html
+
+**How NASA Engineers Are Keeping the Voyagers Alive**\
+`A reworking of the spacecraft’s power systems could extend the nearly 50-year-old Voyagers’ exploration of interstellar space into the early 2030s.`\
+https://www.nytimes.com/2026/08/18/science/nasa-voyagers-big-bang.html
+
+**How to Find Your Daughter’s Therapy Speak Less Traumatizing**\
+`Step 1: Take it seriously, not literally.`\
+https://www.nytimes.com/2026/08/18/opinion/therapy-speak-daughter-trauma-anxiety.html
+
+**A Mother’s Quest to Rescue Her Son From Russian-Occupied Ukraine**\
+`They made a risky bid to reunite after three years of separation, illness and deprivation — the kind of ordeal suffered by many thousands of families torn apart by the war in eastern Ukraine.`\
+https://www.nytimes.com/2026/08/18/world/europe/ukraine-russia-rescue.html
+
+**Texas Tech University Is Using A.I. to Cut Left-Leaning Content**\
+`The politician behind Texas’ conservative overhaul of higher education is now running a university system. Some say his effort to ferret out forbidden topics is a dystopian academic nightmare.`\
+https://www.nytimes.com/2026/08/18/us/texas-tech-artificial-intelligence-ideology-brandon-creighton.html
+
+**The A.I.s Are Already Out of Control**\
+`Helen Toner, who served on OpenAI’s board, hopes the recent hack by that company’s models serves as a warning.`\
+https://www.nytimes.com/video/opinion/100000011091562/the-ais-are-already-out-of-control.html
+
 **Judge Orders Release of Woman Accused of Vandalizing World War II Memorial**\
 `Prosecutors led by Jeanine Pirro, the U.S. attorney in Washington, argued that Melissa Farris posed a flight risk and asked the court to reverse its decision.`\
 https://www.nytimes.com/2026/08/18/us/politics/wwii-memorial-vandalism-trump-pirro.html
