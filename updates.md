@@ -1,3 +1,23 @@
+**What Went Wrong on the U.S.S. Lincoln?**\
+`Families of soldiers aboard the aircraft carrier — deployed in the Middle East without a break for 270 days — have raised the alarm.`\
+https://www.nytimes.com/2026/08/18/podcasts/the-daily/uss-lincoln-iran-war-navy.html
+
+**NYT Connections Answers for August 19, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Aug. 19, 2026.`\
+https://www.nytimes.com/2026/08/18/crosswords/connections-companion-1165.html
+
+**Trump’s $47 Billion-Dollar Border Wall Plan, and Why a Tupac Murder Trial Is Starting After 30 Years**\
+`Plus, inside the scramble to track cyclospora.`\
+https://www.nytimes.com/2026/08/18/podcasts/the-headlines/trump-border-wall-tupac-murder-trial.html
+
+**Today’s Wordle Hints for August 19, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Aug. 19, 2026.`\
+https://www.nytimes.com/2026/08/18/crosswords/wordle-review-1887.html
+
+**NYT Strands Hints for Aug. 19, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Aug. 19, 2026.`\
+https://www.nytimes.com/2026/08/18/crosswords/strands-sidekick-899.html
+
 **How Israel’s Financial Chokehold Is Stifling the West Bank Economy**\
 `Intensifying restrictions have hit every part of the territory’s dealings, spurring worries about whether the Palestinian Authority can remain solvent.`\
 https://www.nytimes.com/2026/08/18/world/middleeast/west-bank-economy.html
