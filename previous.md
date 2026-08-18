@@ -31,7 +31,7 @@ https://www.nytimes.com/2026/08/18/climate/trump-ends-roadless-rule-forests.html
 https://www.nytimes.com/interactive/polls/rhode-island-us-house-2-polls-2026.html
 
 **Israel Strikes Air Base in Syria, Drawing Ire From the U.S.**\
-`The attack follows a series of military interventions in Syria over the past two years, and spurred the latest American rebuke of Israeli actions in recent weeks.`\
+`American and Syrian officials said Israel carried out the attack, the latest in a series of military interventions in Syria over the past two years.`\
 https://www.nytimes.com/2026/08/18/world/middleeast/israel-airstrikes-syria-air-base.html
 
 **Wyoming At-Large Congressional District Primary 2026: Live Election Results**\

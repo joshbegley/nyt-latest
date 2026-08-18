@@ -1,3 +1,7 @@
+**Israel Strikes Air Base in Syria, Drawing Ire From the U.S.**\
+`American and Syrian officials said Israel carried out the attack, the latest in a series of military interventions in Syria over the past two years.`\
+https://www.nytimes.com/2026/08/18/world/middleeast/israel-airstrikes-syria-air-base.html
+
 **Minnesota Sues Texas Gov. Greg Abbott Over His Refusal to Extradite ICE Agent**\
 `A federal agent facing assault charges in Minnesota has been jailed in Texas since May. Gov. Greg Abbott has not granted an extradition request.`\
 https://www.nytimes.com/2026/08/18/us/ice-minnesota-texas-greg-abbott.html
