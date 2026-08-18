@@ -1,3 +1,7 @@
+**1 Dead After Student Livestreams School Shooting in the Philippines**\
+`The boy shot and killed a schoolmate at a junior high school before fatally turning the gun on himself, the mayor of Zamboanga City said.`\
+https://www.nytimes.com/2026/08/18/world/asia/philippines-school-shooting-zamboanga-city.html
+
 **El Chocó, un rincón aislado de Colombia, enfrenta las mayores dificultades tras el terremoto**\
 `Residentes, políticos e historiadores atribuyen el aislamiento de la región al abandono del Estado y al racismo estructural. El terremoto debilitó muchos de los ya frágiles vínculos que lo unen con el resto del país.`\
 https://www.nytimes.com/es/2026/08/18/espanol/america-latina/choco-colombia-terremoto-danos.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/17/arts/television/hayden-panettiere-nashville-h
 **Barred From Ballot, a Party Becomes a Vessel for Russians’ Discontent**\
 `The spotlight on the country’s only antiwar party has brought a spark to what had looked like another dull, tightly controlled election campaign.`\
 https://www.nytimes.com/2026/08/17/world/europe/russia-yabloko-party-election.html
-
-**Pauline Clayden, Dancer in a Seminal 1949 ‘Sleeping Beauty,’ Dies at 103**\
-`She was the last known surviving soloist from an event that changed American dance: the opening night of Sadler’s Wells Ballet’s first U.S. tour.`\
-https://www.nytimes.com/2026/08/17/arts/dance/pauline-clayden-dead.html
 
