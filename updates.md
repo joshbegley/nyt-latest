@@ -1,3 +1,19 @@
+**Estancado en Irán, Trump se enfoca en Kim Jong-un, de Corea del Norte**\
+`Hace siete años, el presidente Trump no logró desarmar a Corea del Norte y desistió. ¿Podría ocurrir lo mismo con Irán?`\
+https://www.nytimes.com/es/2026/08/18/espanol/estados-unidos/trump-kim-jong-un-iran-corea-norte.html
+
+**Apple Removes Some Fees for App Developers in European Union**\
+`The move followed a long battle with regulators over the company’s tight controls of its App Store.`\
+https://www.nytimes.com/2026/08/18/technology/apple-fees-european-union.html
+
+**Voters Head to the Polls on Either End of the Country**\
+`Also, it’s crunch time for U.S.-Canada trade. Here’s the latest at the end of Tuesday.`\
+https://www.nytimes.com/2026/08/18/briefing/primary-day-alaska-florida.html
+
+**Liberia Agrees to Take 1,200 Deportees From U.S.**\
+`The arrangement is one of the largest known deals that the Trump administration has struck to expel migrants who cannot be sent back to their home countries.`\
+https://www.nytimes.com/2026/08/18/us/politics/liberia-deportees.html
+
 **The OpenAI Hugging Face Hack, Explained**\
 `In July, the A.I. company Hugging Face discovered that it was hacked by an OpenAI agent. Helen Toner, a former OpenAI board member, breaks down the details of what happened on “The Ezra Klein Show.”`\
 https://www.nytimes.com/video/opinion/100000011091564/the-openai-hugging-face-hack-explained.html
