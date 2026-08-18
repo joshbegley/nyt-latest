@@ -1,3 +1,11 @@
+**The OpenAI Hugging Face Hack, Explained**\
+`In July, the A.I. company Hugging Face discovered that it was hacked by an OpenAI agent. Helen Toner, a former OpenAI board member, breaks down the details of what happened on “The Ezra Klein Show.”`\
+https://www.nytimes.com/video/opinion/100000011091564/the-openai-hugging-face-hack-explained.html
+
+**Why A.I.s Lie, Cheat and Steal**\
+`Why does A.I. do things it wasn’t asked to do? Helen Toner, the executive director of Georgetown’s Center for Security and Emerging Technology, explains on “The Ezra Klein Show.”`\
+https://www.nytimes.com/video/opinion/100000011091563/why-ais-lie-cheat-and-steal.html
+
 **In a Big Pivot, Seat-Back Screens Are Returning at American Airlines**\
 `In an announcement on Tuesday, the carrier promised screens at every seat in its narrow-body fleet, along with an expansion of its premium seating.`\
 https://www.nytimes.com/2026/08/18/travel/american-airlines-seatback-screens.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/08/18/world/middleeast/israel-airstrikes-syria-air-
 **Wyoming At-Large Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Wyoming primary election.`\
 https://www.nytimes.com/interactive/2026/08/18/us/elections/results-wyoming-us-house-at-large-primary.html
-
-**Florida 28th Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Florida primary election.`\
-https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-us-house-28-primary.html
-
-**Florida Fifth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Florida primary election.`\
-https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-us-house-5-primary.html
 
 **Election Live Updates: Coast-to-Coast Primaries to Shape November Slate**\
 `Florida’s redrawn congressional districts have set up compelling contests, while Alaska’s Senate primary will test candidates’ strength. Voters in California will decide who replaces former Representative Eric Swalwell.`\

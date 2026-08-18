@@ -1,3 +1,11 @@
+**The OpenAI Hugging Face Hack, Explained**\
+`In July, the A.I. company Hugging Face discovered that it was hacked by an OpenAI agent. Helen Toner, a former OpenAI board member, breaks down the details of what happened on “The Ezra Klein Show.”`\
+https://www.nytimes.com/video/opinion/100000011091564/the-openai-hugging-face-hack-explained.html
+
+**Why A.I.s Lie, Cheat and Steal**\
+`Why does A.I. do things it wasn’t asked to do? Helen Toner, the executive director of Georgetown’s Center for Security and Emerging Technology, explains on “The Ezra Klein Show.”`\
+https://www.nytimes.com/video/opinion/100000011091563/why-ais-lie-cheat-and-steal.html
+
 **In a Big Pivot, Seat-Back Screens Are Returning at American Airlines**\
 `In an announcement on Tuesday, the carrier promised screens at every seat in its narrow-body fleet, along with an expansion of its premium seating.`\
 https://www.nytimes.com/2026/08/18/travel/american-airlines-seatback-screens.html

@@ -1,3 +1,15 @@
+**Apple Removes Some Fees for App Developers in European Union**\
+`The move followed a long battle with regulators over the company’s tight controls of its App Store.`\
+https://www.nytimes.com/2026/08/18/technology/apple-fees-european-union.html
+
+**Voters Head to the Polls on Either End of the Country**\
+`Also, it’s crunch time for U.S.-Canada trade. Here’s the latest at the end of Tuesday.`\
+https://www.nytimes.com/2026/08/18/briefing/primary-day-alaska-florida.html
+
+**Liberia Agrees to Take 1,200 Deportees From U.S.**\
+`The arrangement is one of the largest known deals that the Trump administration has struck to expel migrants who cannot be sent back to their home countries.`\
+https://www.nytimes.com/2026/08/18/us/politics/liberia-deportees.html
+
 **The OpenAI Hugging Face Hack, Explained**\
 `In July, the A.I. company Hugging Face discovered that it was hacked by an OpenAI agent. Helen Toner, a former OpenAI board member, breaks down the details of what happened on “The Ezra Klein Show.”`\
 https://www.nytimes.com/video/opinion/100000011091564/the-openai-hugging-face-hack-explained.html
@@ -181,18 +193,6 @@ https://www.nytimes.com/interactive/polls/virginia-us-house-5-polls-2026.html
 **Trump Administration Moves to Allow Logging in Pristine National Forests**\
 `The move to repeal the ‘roadless rule’ would pave the way for road construction and logging in nearly 45 million acres of untouched back country.`\
 https://www.nytimes.com/2026/08/18/climate/trump-ends-roadless-rule-forests.html
-
-**Who Is Ahead in Rhode Island's 2nd Congressional District?**\
-`Track the latest polls in Rhode Island's 2nd Congressional District.`\
-https://www.nytimes.com/interactive/polls/rhode-island-us-house-2-polls-2026.html
-
-**Israel Strikes Air Base in Syria, Drawing Ire From the U.S.**\
-`The attack was the latest in a series of Israeli military interventions in Syria over the past two years.`\
-https://www.nytimes.com/2026/08/18/world/middleeast/israel-airstrikes-syria-air-base.html
-
-**Wyoming At-Large Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Wyoming primary election.`\
-https://www.nytimes.com/interactive/2026/08/18/us/elections/results-wyoming-us-house-at-large-primary.html
 
 **Election Live Updates: Coast-to-Coast Primaries to Shape November Slate**\
 `Florida’s redrawn congressional districts have set up compelling contests, while Alaska’s Senate primary will test candidates’ strength. Voters in California will decide who replaces former Representative Eric Swalwell.`\
