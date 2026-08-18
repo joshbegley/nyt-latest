@@ -1,3 +1,7 @@
+**Boyfriend Who Abused Hayden Panettiere Had Returned to Her Life**\
+`Despite the actress’s efforts to move on from a turbulent relationship with Brian Hickerson, they were together when she went into cardiac arrest and died.`\
+https://www.nytimes.com/2026/08/18/arts/television/hayden-panettiere-brian-hickerson.html
+
 **Is A.I. Development Really on a Safe Path?**\
 `The recent OpenAI Hugging Face hack has raised questions about the safety of frontier A.I. models. Helen Toner, the executive director of Georgetown’s Center for Security and Emerging Technology, discusses ways to improve A.I. safety without pausing development.`\
 https://www.nytimes.com/video/opinion/100000011099984/is-ai-development-really-on-a-safe-path.html
