@@ -1,3 +1,7 @@
+**A Cuba ya no le queda tiempo**\
+`Los gobiernos pueden darse el lujo de seguir jugando a esperar. Los cubanos comunes, no.`\
+https://www.nytimes.com/es/2026/08/18/espanol/opinion/cuba-trump-castro-futuro.html
+
 **Is Silicon Valley in the Justice Dept.’s Sights?**\
 `Federal prosecutors are reportedly investigating Andreessen Horowitz, the venture capital giant, over board seats it holds.`\
 https://www.nytimes.com/2026/08/18/business/dealbook/andreessen-horowitz-justice-antitrust.html
