@@ -1,3 +1,15 @@
+**Wasserman Schultz Wins Democratic Primary in Historically Black District**\
+`The congresswoman won her party’s nomination in Florida’s 20th District over several Black candidates who sharply criticized her decision to run there.`\
+https://www.nytimes.com/2026/08/18/us/politics/wasserman-schultz-manley-florida-primary.html
+
+**Haitians in Springfield Hunker Down as ICE Begins Detentions**\
+`Federal agents have begun detaining Haitians in the Ohio city, signaling an increase in ICE activity that has panicked the community and kept many from leaving home.`\
+https://www.nytimes.com/2026/08/18/us/ice-haiti-detention-springfield-tps-immigration.html
+
+**Election Live Updates: Voters Choosing Candidates to Succeed DeSantis in Florida**\
+`Representative Byron Donalds has President Trump’s endorsement for governor in the state, and David Jolly is the favorite among Democrats. In California, voters are deciding who replaces former Representative Eric Swalwell.`\
+https://www.nytimes.com/live/2026/08/18/us/elections-florida-california-alaska
+
 **Boyfriend Who Abused Hayden Panettiere Had Returned to Her Life**\
 `Despite the actress’s efforts to move on from a turbulent relationship with Brian Hickerson, they were together when she went into cardiac arrest and died.`\
 https://www.nytimes.com/2026/08/18/arts/television/hayden-panettiere-brian-hickerson.html
