@@ -1,3 +1,23 @@
+**What Went Wrong on the U.S.S. Lincoln?**\
+`Families of soldiers aboard the aircraft carrier — deployed in the Middle East without a break for 270 days — have raised the alarm.`\
+https://www.nytimes.com/2026/08/18/podcasts/the-daily/uss-lincoln-iran-war-navy.html
+
+**NYT Connections Answers for August 19, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Aug. 19, 2026.`\
+https://www.nytimes.com/2026/08/18/crosswords/connections-companion-1165.html
+
+**Trump’s $47 Billion-Dollar Border Wall Plan, and Why a Tupac Murder Trial Is Starting After 30 Years**\
+`Plus, inside the scramble to track cyclospora.`\
+https://www.nytimes.com/2026/08/18/podcasts/the-headlines/trump-border-wall-tupac-murder-trial.html
+
+**Today’s Wordle Hints for August 19, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Aug. 19, 2026.`\
+https://www.nytimes.com/2026/08/18/crosswords/wordle-review-1887.html
+
+**NYT Strands Hints for Aug. 19, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Aug. 19, 2026.`\
+https://www.nytimes.com/2026/08/18/crosswords/strands-sidekick-899.html
+
 **How Israel’s Financial Chokehold Is Stifling the West Bank Economy**\
 `Intensifying restrictions have hit every part of the territory’s dealings, spurring worries about whether the Palestinian Authority can remain solvent.`\
 https://www.nytimes.com/2026/08/18/world/middleeast/west-bank-economy.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/video/us/100000011097266/biddeford-maine-ice-shooting-he
 **En Italia, un sacerdote africano llena el vacío que dejó la escasez de curas**\
 `Los migrantes llevan mucho tiempo paliando la escasez de mano de obra en las granjas y fábricas de Italia. Pero las iglesias también necesitan sacerdotes de origen extranjero, como el reverendo Vincent Souly.`\
 https://www.nytimes.com/es/2026/08/18/espanol/mundo/sacerdote-africano-iglesia-italia.html
-
-**NYT Spelling Bee Answers for August 18, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/08/18/crosswords/spelling-bee-forum.html
-
-**Rosie O’Donnell Just Knows Trump Is Watching Her Host ‘Jimmy Kimmel Live’**\
-`“And if you thought the president hated ‘Jimmy Kimmel Live’ when it was hosted by Jimmy Kimmel, buckle up, people. Buckle up!” O’Donnell said.`\
-https://www.nytimes.com/2026/08/18/arts/television/rosie-odonnell-jimmy-kimmel-trump.html
-
-**Turkey and the Kurds Show a Way Forward**\
-`A recent Turkish law moving toward an end to the conflict with the P.K.K. could be a model for other militant groups.`\
-https://www.nytimes.com/2026/08/18/opinion/turkey-kurds-pkk-hamas.html
-
-**1 Dead After Student Livestreams School Shooting in the Philippines**\
-`The boy shot and killed a schoolmate at a junior high school before fatally turning the gun on himself, the mayor of Zamboanga City said.`\
-https://www.nytimes.com/2026/08/18/world/asia/philippines-school-shooting-zamboanga-city.html
-
-**El Chocó, un rincón aislado de Colombia, enfrenta las mayores dificultades tras el terremoto**\
-`Residentes, políticos e historiadores atribuyen el aislamiento de la región al abandono del Estado y al racismo estructural. El terremoto debilitó muchos de los ya frágiles vínculos que lo unen con el resto del país.`\
-https://www.nytimes.com/es/2026/08/18/espanol/america-latina/choco-colombia-terremoto-danos.html
 
