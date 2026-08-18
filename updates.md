@@ -1,3 +1,7 @@
+**Mark Zuckerberg ‘Will Move Mountains’ to Get What He Wants**\
+`The “Hard Fork” co-host Casey Newton says Mark Zuckerberg is one of the most competitive people in the world. Zuckerberg’s reorganization of A.I. efforts at Meta, while controversial, already show promise.`\
+https://www.nytimes.com/video/podcasts/100000011097666/mark-zuckerberg-will-move-mountains-to-get-what-he-wants.html
+
 **What Does ‘A.I. Positivity’ Look Like?**\
 `In contrast to A.I. “doomerism,” the “Hard Fork” podcast hosts Casey Newton and Kevin Roose discuss positive use cases for A.I.`\
 https://www.nytimes.com/video/podcasts/100000011097632/what-does-ai-positivity-look-like.html

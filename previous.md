@@ -1,3 +1,7 @@
+**Mark Zuckerberg ‘Will Move Mountains’ to Get What He Wants**\
+`The “Hard Fork” co-host Casey Newton says Mark Zuckerberg is one of the most competitive people in the world. Zuckerberg’s reorganization of A.I. efforts at Meta, while controversial, already show promise.`\
+https://www.nytimes.com/video/podcasts/100000011097666/mark-zuckerberg-will-move-mountains-to-get-what-he-wants.html
+
 **What Does ‘A.I. Positivity’ Look Like?**\
 `In contrast to A.I. “doomerism,” the “Hard Fork” podcast hosts Casey Newton and Kevin Roose discuss positive use cases for A.I.`\
 https://www.nytimes.com/video/podcasts/100000011097632/what-does-ai-positivity-look-like.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/08/17/theater/benevolent-review-sophie-mcintosh.htm
 **Mamdani Gave These Parents a Night Off. This Is How They Spent It.**\
 `New York City provided four hours of free babysitting to hundreds of families. Parents used the time to reconnect with each other and to tackle chores uninterrupted.`\
 https://www.nytimes.com/2026/08/17/nyregion/mamdani-free-babysitting-nyc.html
-
-**EE. UU. e Irán incumplen el plazo para lograr un acuerdo de paz**\
-`El presidente Trump dijo que el alto al fuego de junio pondría límites al programa nuclear de Irán y daría fin al conflicto, pero los países parecen estar muy distanciados.`\
-https://www.nytimes.com/es/2026/08/17/espanol/mundo/incumplen-acuerdo-iran-eeeuu.html
 
 **Tupac Shakur Murder Trial Begins With Revenge Motive and Defendant’s Own Words**\
 `Duane Keith Davis is on trial for orchestrating the 1996 shooting, which he described in a memoir that he has since disavowed.`\
