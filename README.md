@@ -1,3 +1,7 @@
+**Working Capital**\
+`We look into the exploding business of buy-now-pay-later loans.`\
+https://www.nytimes.com/2026/08/18/briefing/buy-now-pay-later.html
+
 **What Went Wrong on the U.S.S. Lincoln?**\
 `Families of soldiers aboard the aircraft carrier — deployed in the Middle East without a break for 270 days — have raised the alarm.`\
 https://www.nytimes.com/2026/08/18/podcasts/the-daily/uss-lincoln-iran-war-navy.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/18/us/politics/wwii-memorial-vandalism-trump-pir
 **Family and Lawmakers Press for Information on ICE Shooting in Maine**\
 `Democratic members of Congress held a public forum on Monday on the fatal ICE shooting in July of a Colombian immigrant, Johan Sebastián Durán Guerrero.`\
 https://www.nytimes.com/video/us/100000011097266/biddeford-maine-ice-shooting-hearing.html
-
-**En Italia, un sacerdote africano llena el vacío que dejó la escasez de curas**\
-`Los migrantes llevan mucho tiempo paliando la escasez de mano de obra en las granjas y fábricas de Italia. Pero las iglesias también necesitan sacerdotes de origen extranjero, como el reverendo Vincent Souly.`\
-https://www.nytimes.com/es/2026/08/18/espanol/mundo/sacerdote-africano-iglesia-italia.html
 
