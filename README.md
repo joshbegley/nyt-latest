@@ -86,13 +86,13 @@ https://www.nytimes.com/2026/08/18/arts/television/colman-domingo-euphoria-four-
 `Helen Toner, who served on OpenAI’s board, hopes the recent hack by that company’s models serves as a warning.`\
 https://www.nytimes.com/2026/08/18/opinion/ezra-klein-podcast-helen-toner.html
 
-**Everyone Watches Women’s Sports, Including ‘Ted Lasso’ Fans**\
-`The show’s focus on a women’s squad mirrors a broader increase in the popularity of women’s team sports. Now the series faces a challenge: pleasing old fans while welcoming new ones.`\
-https://www.nytimes.com/2026/08/18/arts/television/ted-lasso-womens-soccer.html
-
 **Childhood Friends, Adopted From India, Discover They’re Sisters**\
 `Meena Geltink and Minal Tijssen were adopted from India by families in the Netherlands and grew up less than 100 miles apart.`\
 https://www.nytimes.com/2026/08/18/world/europe/friends-adopted-sisters-india-netherlands.html
+
+**Everyone Watches Women’s Sports, Including ‘Ted Lasso’ Fans**\
+`The show’s focus on a women’s squad mirrors a broader increase in the popularity of women’s team sports. Now the series faces a challenge: pleasing old fans while welcoming new ones.`\
+https://www.nytimes.com/2026/08/18/arts/television/ted-lasso-womens-soccer.html
 
 **DNA Test Reveals Two Childhood Friends Are Actually Sisters**\
 `Meena Geltink and Minal Tijssen were born in India and grew up with different adoptive families in the Netherlands. Decades after becoming friends, a DNA test has revealed that the two are also biological sisters.`\
