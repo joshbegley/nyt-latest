@@ -152,7 +152,7 @@ https://www.nytimes.com/interactive/2026/08/18/us/elections/results-pennsylvania
 
 **Nigel Farage’s Oddly American Outfit**\
 `Plus: Haute couture for Snoopy and a final ruling on the shoe of the summer.`\
-https://www.nytimes.com/2026/08/18/style/farages-nigel-style.html
+https://www.nytimes.com/2026/08/18/style/nigel-farage-style-uk.html
 
 **‘I Just Want to See America Love Me’**\
 `In Georgia, Mara Gay sat down with Black voters to hear how they think America is doing — and what they make of the Democratic Party today. “Messy. All over the place,” Jarrett Willis, an entrepreneur, told her. “There’s no structure; it’s nothing to rally behind. It’s lacking that umph factor.”`\

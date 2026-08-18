@@ -1,3 +1,39 @@
+**Israel Strikes Air Base in Syria, Drawing Ire From the U.S.**\
+`The attack follows a series of military interventions in Syria over the past two years, and spurred the latest American rebuke of Israeli actions in recent weeks.`\
+https://www.nytimes.com/2026/08/18/world/middleeast/israel-airstrikes-syria-air-base.html
+
+**Florida 21st Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Florida primary election.`\
+https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-us-house-21-primary.html
+
+**Florida 12th Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Florida primary election.`\
+https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-us-house-12-primary.html
+
+**Florida Attorney General Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Florida primary election.`\
+https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-attorney-general-primary.html
+
+**Florida 10th Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Florida primary election.`\
+https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-us-house-10-primary.html
+
+**Arkansas State Senate Special Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Arkansas special primary election.`\
+https://www.nytimes.com/interactive/2026/08/18/us/elections/results-arkansas-state-senate-special-primary-august-18.html
+
+**Florida 11th Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Florida primary election.`\
+https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-us-house-11-primary.html
+
+**Alaska Measure 1 Election Results: Establish Campaign Contribution Limits for State and Local Elections**\
+`Get live results and maps from the 2026 Alaska general election.`\
+https://www.nytimes.com/interactive/2026/08/18/us/elections/results-alaska-measure-1-campaign-contribution-limits.html
+
+**California 14th Congressional District Special Nonpartisan Runoff 2026: Live Election Results, Hernandez vs. Wahab**\
+`Get live results and maps from the 2026 California special runoff election.`\
+https://www.nytimes.com/interactive/2026/08/18/us/elections/results-california-us-house-14-special-runoff.html
+
 **Nigel Farage’s Oddly American Outfit**\
 `Plus: Haute couture for Snoopy and a final ruling on the shoe of the summer.`\
 https://www.nytimes.com/2026/08/18/style/farages-nigel-style.html
