@@ -1,3 +1,7 @@
+**Humans Love Having Pets. Seems Like Some Other Primates Do, Too.**\
+`We aren’t the only animals that like to take care of other species. A new study finds that the roots of keeping a pet may stretch deep into our primate past.`\
+https://www.nytimes.com/2026/08/18/science/humans-love-having-pets-seems-like-some-other-primates-do-too.html
+
 **Residents on Hawaii’s Big Island Look to Help One Another After Hurricane Lala**\
 `In a remote region of the ravaged Big Island, there were community gas runs, donated turkey stuffing, a makeshift emergency broadcast and even a helicopter.`\
 https://www.nytimes.com/2026/08/18/us/hawaii-hurricane-lala-community-relief.html

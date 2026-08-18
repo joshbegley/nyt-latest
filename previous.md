@@ -15,7 +15,7 @@ https://www.nytimes.com/2026/08/18/us/explosion-fire-toledo-ohio-workers-missing
 https://www.nytimes.com/2026/08/18/business/saudi-uae-japan-oil-storage.html
 
 **Humans Love Having Pets. Seems Like Some Other Primates Do, Too.**\
-`We aren’t the only animals who like to take care of other species. A new study finds that the roots of keeping a pet may stretch deep into our primate past.`\
+`We aren’t the only animals that like to take care of other species. A new study finds that the roots of keeping a pet may stretch deep into our primate past.`\
 https://www.nytimes.com/2026/08/18/science/humans-love-having-pets-seems-like-some-other-primates-do-too.html
 
 **Home Depot Reports Higher Sales, but Its C.E.O. Isn’t There to Spread the News**\
