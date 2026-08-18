@@ -1,3 +1,11 @@
+**A Bitter Anniversary for Afghan Women**\
+`Readers respond to a guest essay about the U.S. failure in Afghanistan and the Taliban’s oppression of women. Also: the use of A.I. in medicine.`\
+https://www.nytimes.com/2026/08/18/opinion/afghanistan-taliban-women.html
+
+**Fueron amigas de la infancia. Luego, descubrieron que eran hermanas**\
+`Meena Geltink y Minal Tijssen fueron adoptadas en India por familias de los Países Bajos y crecieron a menos de 160 kilómetros de distancia.`\
+https://www.nytimes.com/es/2026/08/18/espanol/hermanas-separadas-adopcion-holanda.html
+
 **Israel Strikes Air Base in Syria, Drawing Ire From the U.S.**\
 `American and Syrian officials said Israel carried out the attack, the latest in a series of military interventions in Syria over the past two years.`\
 https://www.nytimes.com/2026/08/18/world/middleeast/israel-airstrikes-syria-air-base.html
