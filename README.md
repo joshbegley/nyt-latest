@@ -1,3 +1,11 @@
+**Outshine Frozen Fruit Bars Recalled Over Glass Contamination Concern**\
+`The parent company, Dreyer’s Grand Ice Cream, voluntarily recalled five flavors nationwide. No injuries linked to the recalled products have been reported.`\
+https://www.nytimes.com/2026/08/18/us/outshine-recall-glass-frozen-fruit-treat.html
+
+**Two Workers Killed After Explosion at Ohio Recycling Plant**\
+`Two people were killed after an explosion at a recycling facility in Toledo, Ohio, shortly before 5 a.m. on Tuesday. Local officials said there was no immediate threat to the surrounding area.`\
+https://www.nytimes.com/video/us/100000011098788/ohio-recycling-plant-explosion-missing-workers.html
+
 **U.S. Condemns Israeli Attack on Syrian Military Air Base**\
 `The U.S. condemned Israel for its strike on a defunct military air base in Syria. Although the attack did not cause any casualties, according to Syrian state media, it follows a series of fractures between the two countries in recent weeks.`\
 https://www.nytimes.com/video/world/middleeast/100000011098732/israel-syria-military-base-air-strike.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/interactive/2026/08/18/us/elections/results-wyoming-secr
 **Florida Eighth Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Florida primary election.`\
 https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-us-house-8-primary.html
-
-**Florida Fourth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Florida primary election.`\
-https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-us-house-4-primary.html
-
-**Florida 27th Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Florida primary election.`\
-https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-us-house-27-primary.html
 
 **Election Live Updates: Florida, Alaska and Wyoming Hold Key Primaries**\
 `Florida’s redrawn congressional districts have set up compelling contests, while Alaska’s Senate primary will test candidates’ strength. Voters in California will decide who replaces former Representative Eric Swalwell.`\
