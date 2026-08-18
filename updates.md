@@ -1,3 +1,11 @@
+**Soy psiquiatra. Estoy escuchando algo nuevo de las mujeres jóvenes**\
+`Antes, a las pacientes les aterraba que les dijeran que tenían algo malo. Ahora las jovencitas anuncian sus diagnósticos casi antes de decir su nombre.`\
+https://www.nytimes.com/es/2026/08/18/espanol/opinion/mujeres-traumas-ansiedad-terapia.html
+
+**5 New Songs I’m Excited About**\
+`Hear a track from L’Rain and the song our critic wishes Phoebe Bridgers had made her lead single.`\
+https://www.nytimes.com/2026/08/18/arts/music/amplifier-newsletter-phoebe-bridgers-lrain.html
+
 **A Bitter Anniversary for Afghan Women**\
 `Readers respond to a guest essay about the U.S. failure in Afghanistan and the Taliban’s oppression of women. Also: the use of A.I. in medicine.`\
 https://www.nytimes.com/2026/08/18/opinion/afghanistan-taliban-women.html

@@ -1,3 +1,11 @@
+**Soy psiquiatra. Estoy escuchando algo nuevo de las mujeres jóvenes**\
+`Antes, a las pacientes les aterraba que les dijeran que tenían algo malo. Ahora las jovencitas anuncian sus diagnósticos casi antes de decir su nombre.`\
+https://www.nytimes.com/es/2026/08/18/espanol/opinion/mujeres-traumas-ansiedad-terapia.html
+
+**5 New Songs I’m Excited About**\
+`Hear a track from L’Rain and the song our critic wishes Phoebe Bridgers had made her lead single.`\
+https://www.nytimes.com/2026/08/18/arts/music/amplifier-newsletter-phoebe-bridgers-lrain.html
+
 **A Bitter Anniversary for Afghan Women**\
 `Readers respond to a guest essay about the U.S. failure in Afghanistan and the Taliban’s oppression of women. Also: the use of A.I. in medicine.`\
 https://www.nytimes.com/2026/08/18/opinion/afghanistan-taliban-women.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-agri
 **Pennsylvania State House 12th District Special 2026: Live Election Results**\
 `Get live results and maps from the 2026 Pennsylvania State House special election.`\
 https://www.nytimes.com/interactive/2026/08/18/us/elections/results-pennsylvania-state-house-district-12-special.html
-
-**Nigel Farage’s Oddly American Outfit**\
-`Plus: Haute couture for Snoopy and a final ruling on the shoe of the summer.`\
-https://www.nytimes.com/2026/08/18/style/nigel-farage-style-uk.html
-
-**‘I Just Want to See America Love Me’**\
-`In Georgia, Mara Gay sat down with Black voters to hear how they think America is doing — and what they make of the Democratic Party today. “Messy. All over the place,” Jarrett Willis, an entrepreneur, told her. “There’s no structure; it’s nothing to rally behind. It’s lacking that umph factor.”`\
-https://www.nytimes.com/video/opinion/100000011096297/i-just-want-to-see-america-love-me.html
 
