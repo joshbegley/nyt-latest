@@ -1,3 +1,7 @@
+**A California County Eyes a New Hire: Tina Peters, the Election Denier**\
+`The top elections official in Shasta County offered a job to Ms. Peters, a Trump supporter who was convicted of tampering with voting machines in Colorado.`\
+https://www.nytimes.com/2026/08/17/us/california-voting-shasta-county-tina-peters.html
+
 **Zambia Says President Won Re-election After Tumultuous Campaign**\
 `With a second term, Hakainde Hichilema must navigate relations with the Trump administration, which has sought greater access to the copper-rich nation’s natural resources.`\
 https://www.nytimes.com/2026/08/17/world/africa/zambia-election-hichilema.html

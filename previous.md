@@ -1,3 +1,7 @@
+**A California County Eyes a New Hire: Tina Peters, the Election Denier**\
+`The top elections official in Shasta County offered a job to Ms. Peters, a Trump supporter who was convicted of tampering with voting machines in Colorado.`\
+https://www.nytimes.com/2026/08/17/us/california-voting-shasta-county-tina-peters.html
+
 **Zambia Says President Won Re-election After Tumultuous Campaign**\
 `With a second term, Hakainde Hichilema must navigate relations with the Trump administration, which has sought greater access to the copper-rich nation’s natural resources.`\
 https://www.nytimes.com/2026/08/17/world/africa/zambia-election-hichilema.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/17/opinion/democratic-presidential-primary-2028.
 **‘Buy Now, Pay Later’ Lenders Pitch Loans for Needs Like Electricity and Rent**\
 `The rapid growth of pay-later loans raises questions about whether their popularity is driven by consumer preference or desperation.`\
 https://www.nytimes.com/2026/08/17/business/buy-now-pay-later.html
-
-**What We Know About Damages From Hurricane Lala in Hawaii**\
-`The storm narrowly missed land, but its outer bands left the Big Island with power outages, road closures and flooded homes.`\
-https://www.nytimes.com/2026/08/17/us/hurricane-lala-hawaii-damage.html
 
