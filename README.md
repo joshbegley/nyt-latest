@@ -1,3 +1,7 @@
+**Election Live Updates: Florida, Alaska and Wyoming Hold Key Primaries**\
+`Florida’s redrawn congressional districts have set up compelling contests, while Alaska’s Senate primary will test candidates’ strength. Voters in California will decide who replaces former Representative Eric Swalwell.`\
+https://www.nytimes.com/live/2026/08/18/us/elections-florida-california-alaska
+
 **The Festival draws musical theater performers and fans to an outdoor celebration.**\
 `Among the stars and stans at a Hudson River retreat, two reporters beheld the big belters and niche merchandise at a new musical theater festival.`\
 https://www.nytimes.com/2026/08/18/theater/broadway-musicals-festival-kingston.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/18/dining/restaurant-review-yerord-mas-californi
 **Think N.Y.C. Is Expensive? You Haven’t Looked at South Florida.**\
 `Miami’s living expenses surpassed New York’s for the first time, when comparing U.S. metropolitan areas.`\
 https://www.nytimes.com/2026/08/18/realestate/think-nyc-is-expensive-you-havent-looked-at-south-florida.html
-
-**Six Years in Provence: An Ancient Castle and a Feud Over a Troublesome Bridge**\
-`In a picturesque village, the mayor closed a road, setting off a storm with residents and the owners of a castle that once belonged to his family.`\
-https://www.nytimes.com/2026/08/18/world/europe/provence-chateau-village-feud.html
 

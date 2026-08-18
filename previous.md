@@ -1,3 +1,23 @@
+**The Festival draws musical theater performers and fans to an outdoor celebration.**\
+`Among the stars and stans at a Hudson River retreat, two reporters beheld the big belters and niche merchandise at a new musical theater festival.`\
+https://www.nytimes.com/2026/08/18/theater/broadway-musicals-festival-kingston.html
+
+**Today, In Short**\
+`Budgeting. Baskets. And college football rankings.`\
+https://www.nytimes.com/2026/08/18/briefing/today-in-short.html
+
+**The National Symphony Orchestra’s Next Season Will Be Miles From the Kennedy Center**\
+`The orchestra will play in six halls in the Washington area and tour to five states as the center moves to shut down for a two-year overhaul.`\
+https://www.nytimes.com/2026/08/18/arts/music/national-symphony-orchestra-season-announcement-kennedy-center.html
+
+**The Little-Known Link Between Dementia and Epilepsy**\
+`Doctors were stumped by his memory loss and confusion, until he met the epilepsy specialists.`\
+https://www.nytimes.com/2026/08/18/well/mind/the-little-known-link-between-dementia-and-epilepsy.html
+
+**Anti-ICE Protesters Are Charged With a Terrorism Playbook We’ve Seen Before**\
+`In Prairieland, prosecutors are using antiterrorism laws we’ve seen before.`\
+https://www.nytimes.com/2026/08/18/opinion/trump-terrorism-laws-texas.html
+
 **Google Just Made It Easier for Campaigns to Send You Fund-Raising Emails**\
 `Republicans previously sued Google claiming its spam filter was biased, but the case was dismissed. The company will now allow verified campaigns to more easily bypass the spam filter.`\
 https://www.nytimes.com/2026/08/18/us/politics/google-political-campaigns-email-spam.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/08/18/realestate/think-nyc-is-expensive-you-havent-
 **Six Years in Provence: An Ancient Castle and a Feud Over a Troublesome Bridge**\
 `In a picturesque village, the mayor closed a road, setting off a storm with residents and the owners of a castle that once belonged to his family.`\
 https://www.nytimes.com/2026/08/18/world/europe/provence-chateau-village-feud.html
-
-**What to Watch in Tuesday’s Primary Elections in Alaska, Florida and Beyond**\
-`An early glimpse of a pivotal Senate race, heated primaries on a newly redrawn congressional map, and a special election to replace Eric Swalwell will be in the spotlight on Tuesday.`\
-https://www.nytimes.com/2026/08/18/us/politics/what-to-watch-primary-elections.html
-
-**States Seek $200 Billion From Meta Over Child Social Media Addiction Claims**\
-`California, Colorado, Kentucky and New Jersey are taking the social media giant to trial in the first bellwether federal case over child harm.`\
-https://www.nytimes.com/2026/08/18/technology/meta-social-media-addiction-trial.html
-
-**Silicon Valley Executives Are Tech Fans. Just Not For Their Own Kids.**\
-`At home, moderation and restraint are the rule for tech parents. Boredom is exalted. Maybe they’re onto something.`\
-https://www.nytimes.com/2026/08/18/technology/silicon-valley-tech-fans-children.html
-
-**The Blackout That Could Devastate America**\
-`The power grid relies on thousands of aging, hand-built transformers. If enough fail, the blackout could last years.`\
-https://www.nytimes.com/2026/08/18/magazine/national-blackout-power-electricity-outage.html
-
-**Word of the Day: gobble**\
-`This word has appeared in 89 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/08/18/learning/word-of-the-day-gobble.html
 

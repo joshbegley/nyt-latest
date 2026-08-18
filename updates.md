@@ -1,3 +1,23 @@
+**The Festival draws musical theater performers and fans to an outdoor celebration.**\
+`Among the stars and stans at a Hudson River retreat, two reporters beheld the big belters and niche merchandise at a new musical theater festival.`\
+https://www.nytimes.com/2026/08/18/theater/broadway-musicals-festival-kingston.html
+
+**Today, In Short**\
+`Budgeting. Baskets. And college football rankings.`\
+https://www.nytimes.com/2026/08/18/briefing/today-in-short.html
+
+**The National Symphony Orchestra’s Next Season Will Be Miles From the Kennedy Center**\
+`The orchestra will play in six halls in the Washington area and tour to five states as the center moves to shut down for a two-year overhaul.`\
+https://www.nytimes.com/2026/08/18/arts/music/national-symphony-orchestra-season-announcement-kennedy-center.html
+
+**The Little-Known Link Between Dementia and Epilepsy**\
+`Doctors were stumped by his memory loss and confusion, until he met the epilepsy specialists.`\
+https://www.nytimes.com/2026/08/18/well/mind/the-little-known-link-between-dementia-and-epilepsy.html
+
+**Anti-ICE Protesters Are Charged With a Terrorism Playbook We’ve Seen Before**\
+`In Prairieland, prosecutors are using antiterrorism laws we’ve seen before.`\
+https://www.nytimes.com/2026/08/18/opinion/trump-terrorism-laws-texas.html
+
 **Humans Love Having Pets. Seems Like Some Other Primates Do, Too.**\
 `We aren’t the only animals that like to take care of other species. A new study finds that the roots of keeping a pet may stretch deep into our primate past.`\
 https://www.nytimes.com/2026/08/18/science/humans-love-having-pets-seems-like-some-other-primates-do-too.html
