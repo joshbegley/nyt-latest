@@ -1,3 +1,23 @@
+**Chocó, Colombia, Faces Deeper Hardship After an Earthquake**\
+`In Chocó, a predominantly Afro-Colombian and Indigenous region, “pain, hunger and homelessness await” survivors of last week’s earthquake, the governor says.`\
+https://www.nytimes.com/2026/08/18/world/americas/colombia-earthquake-choco.html
+
+**Quote of the Day: For African Priests in Italy, a Tentative Embrace**\
+`Quotation of the Day for Tuesday, August 18, 2026.`\
+https://www.nytimes.com/2026/08/18/pageoneplus/quote-of-the-day-for-african-priests-in-italy-a-tentative-embrace.html
+
+**Irán se prepara para la guerra y para contener la disidencia interna**\
+`El líder supremo de Irán nombró a líderes militares de línea dura para altos cargos de seguridad. Los analistas dicen que planea mantener a la nación en pie de guerra.`\
+https://www.nytimes.com/es/2026/08/18/espanol/mundo/iran-nombramientos-guerra.html
+
+**It’s Crunchtime Again for Canada to Avoid New U.S. Tariffs**\
+`Canada is seeking a deal to dodge further economic pain at the hands of the Trump administration on midnight Tuesday. But at what cost?`\
+https://www.nytimes.com/2026/08/18/world/canada/trade-tariffs-trump-carney.html
+
+**India’s College Boom Is Leaving Graduates in Debt and Without Jobs**\
+`Families are betting their savings on private universities as a path to a better life. A shortage of well-paying work is turning that wager into frustration.`\
+https://www.nytimes.com/2026/08/18/business/india-private-university-debt.html
+
 **A California County Eyes a New Hire: Tina Peters, the Election Denier**\
 `The top elections official in Shasta County offered a job to Ms. Peters, a Trump supporter who was convicted of tampering with voting machines in Colorado.`\
 https://www.nytimes.com/2026/08/17/us/california-voting-shasta-county-tina-peters.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/08/17/arts/dance/pauline-clayden-dead.html
 **Paramount Asks States to Shoulder Costs of Delaying Warner Bros. Deal**\
 `Paramount’s $111 billion deal to acquire Warner Bros. Discovery has been postponed until the conclusion of a trial, a delay the studio says could cost it millions of dollars.`\
 https://www.nytimes.com/2026/08/17/business/paramount-warner-bros-antitrust-trial.html
-
-**Trump se acerca a Corea del Norte y tensa la alianza con Corea del Sur**\
-`El presidente Trump quiere reducir los ejercicios militares con Corea del Sur, diciendo que eran hostiles hacia Corea del Norte. Pero bajo el mandato de Kim, el Norte se ha vuelto cada vez más beligerante.`\
-https://www.nytimes.com/es/2026/08/17/espanol/mundo/trump-kim-jong-corea-sur-ejercicios-militares.html
-
-**More Naming Drama at the Kennedy Center**\
-`Readers respond to the Kennedy Center Board’s vote to inscribe President Trump’s name on the building. Also, winning the A.I. race; a slogan for Democrats.`\
-https://www.nytimes.com/2026/08/17/opinion/trump-kennedy-center.html
-
-**Nvidia to Back Ohio Data Center With as Much as $105 Billion**\
-`The data center, one of the world’s largest, could cost as much as $500 billion and will be leased by OpenAI.`\
-https://www.nytimes.com/2026/08/17/technology/nvidia-ohio-data-center-openai.html
-
-**What It Will Take to Win the 2028 Democratic Presidential Nomination**\
-`A new early calendar will upend how Democrats select their 2028 champion.`\
-https://www.nytimes.com/2026/08/17/opinion/democratic-presidential-primary-2028.html
-
-**‘Buy Now, Pay Later’ Lenders Pitch Loans for Needs Like Electricity and Rent**\
-`The rapid growth of pay-later loans raises questions about whether their popularity is driven by consumer preference or desperation.`\
-https://www.nytimes.com/2026/08/17/business/buy-now-pay-later.html
 

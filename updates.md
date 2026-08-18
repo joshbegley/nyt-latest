@@ -1,3 +1,23 @@
+**Chocó, Colombia, Faces Deeper Hardship After an Earthquake**\
+`In Chocó, a predominantly Afro-Colombian and Indigenous region, “pain, hunger and homelessness await” survivors of last week’s earthquake, the governor says.`\
+https://www.nytimes.com/2026/08/18/world/americas/colombia-earthquake-choco.html
+
+**Quote of the Day: For African Priests in Italy, a Tentative Embrace**\
+`Quotation of the Day for Tuesday, August 18, 2026.`\
+https://www.nytimes.com/2026/08/18/pageoneplus/quote-of-the-day-for-african-priests-in-italy-a-tentative-embrace.html
+
+**Irán se prepara para la guerra y para contener la disidencia interna**\
+`El líder supremo de Irán nombró a líderes militares de línea dura para altos cargos de seguridad. Los analistas dicen que planea mantener a la nación en pie de guerra.`\
+https://www.nytimes.com/es/2026/08/18/espanol/mundo/iran-nombramientos-guerra.html
+
+**It’s Crunchtime Again for Canada to Avoid New U.S. Tariffs**\
+`Canada is seeking a deal to dodge further economic pain at the hands of the Trump administration on midnight Tuesday. But at what cost?`\
+https://www.nytimes.com/2026/08/18/world/canada/trade-tariffs-trump-carney.html
+
+**India’s College Boom Is Leaving Graduates in Debt and Without Jobs**\
+`Families are betting their savings on private universities as a path to a better life. A shortage of well-paying work is turning that wager into frustration.`\
+https://www.nytimes.com/2026/08/18/business/india-private-university-debt.html
+
 **A California County Eyes a New Hire: Tina Peters, the Election Denier**\
 `The top elections official in Shasta County offered a job to Ms. Peters, a Trump supporter who was convicted of tampering with voting machines in Colorado.`\
 https://www.nytimes.com/2026/08/17/us/california-voting-shasta-county-tina-peters.html
