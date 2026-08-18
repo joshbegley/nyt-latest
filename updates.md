@@ -1,3 +1,7 @@
+**More U.S. Parents Opting Children Out of Vaccine Requirements, C.D.C. Reports**\
+`New data on exemptions from state vaccine mandates for schoolchildren come a week after President Trump signed an executive order calling to scale back childhood shots.`\
+https://www.nytimes.com/2026/08/17/well/vaccine-exemptions-rates.html
+
 **Which Book Should You Read to Finish Summer? Take the Quiz.**\
 `We picked out 32 books that are perfect for the end of the season. Take our quiz to find out which one is right for you.`\
 https://www.nytimes.com/interactive/2026/08/17/books/summer-books-quiz.html

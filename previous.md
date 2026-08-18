@@ -43,7 +43,7 @@ https://www.nytimes.com/2026/08/17/us/politics/south-carolina-senate-runoff-grah
 https://www.nytimes.com/es/2026/08/17/espanol/mundo/kushner-reunion-hamas-gaza.html
 
 **More U.S. Parents Opting Children Out of Vaccine Requirements, C.D.C. Reports**\
-`The new data on vaccine exemptions during the 2025-26 school year come just a week after President Trump signed an executive order calling to scale back childhood shots.`\
+`New data on exemptions from state vaccine mandates for schoolchildren come a week after President Trump signed an executive order calling to scale back childhood shots.`\
 https://www.nytimes.com/2026/08/17/well/vaccine-exemptions-rates.html
 
 **Florida Race to Replace Byron Donalds Features Candidates Who Have Already Run for Congress**\
