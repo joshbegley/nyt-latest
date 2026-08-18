@@ -1,3 +1,7 @@
+**Minnesota Sues Texas Gov. Greg Abbott Over His Refusal to Extradite ICE Agent**\
+`A federal agent facing assault charges in Minnesota has been jailed in Texas since May. Gov. Greg Abbott has not granted an extradition request.`\
+https://www.nytimes.com/2026/08/18/us/ice-minnesota-texas-greg-abbott.html
+
 **Florida’s Polling Picture Is Limited Other Than One Key Race**\
 `Representative Byron Donalds had a wide lead in polls of the race for the Republican nomination for governor. Polling was sparse in every other statewide contest.`\
 https://www.nytimes.com/2026/08/18/us/politics/florida-polling-byron-donalds.html
