@@ -1,3 +1,7 @@
+**ABC Sues F.C.C. to Block Threat to Its TV Licenses**\
+`The network asked a court to stop the agency from taking steps that could force ABC stations off the air and accused the F.C.C. of violating its First Amendment rights.`\
+https://www.nytimes.com/2026/08/18/business/media/abc-fcc-lawsuit-broadcast-licenses.html
+
 **Residents on Hawaii’s Big Island Look to Help One Another After Hurricane Lala**\
 `In a remote region of the ravaged Big Island, there were  community gas runs, donated turkey stuffing, a makeshift emergency broadcast and even a helicopter.`\
 https://www.nytimes.com/2026/08/18/us/hawaii-hurricane-lala-community-relief.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/theater/100000011043870/could-les-miserables-save-
 **Forty First Dates and Still Searching**\
 `Joseph Pascaretta has spent roughly $65,000 on high-end matchmaking services. Will it help him find the love of his life?`\
 https://www.nytimes.com/2026/08/18/well/family/forty-first-dates-and-still-searching.html
-
-**Rafting Through the Grand Canyon on a Depleting Colorado River**\
-`As water levels on the Colorado River fall to historic lows, a rafting trip through the canyon feels even more precious.`\
-https://www.nytimes.com/2026/08/18/travel/grand-canyon-colorado-river-rafting.html
 
