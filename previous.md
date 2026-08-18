@@ -1,3 +1,7 @@
+**Theater Chains Back Paramount-Warner Deal That States Say Will Hurt Them**\
+`America’s three largest movie theater companies have lined up behind David Ellison’s $111 billion merger of Paramount and Warner Bros. Discovery.`\
+https://www.nytimes.com/2026/08/18/business/cinemark-paramount-warner-deal-movie-theater-chains.html
+
 **Estancado en Irán, Trump se enfoca en Kim Jong-un, de Corea del Norte**\
 `Hace siete años, el presidente Trump no logró desarmar a Corea del Norte y desistió. ¿Podría ocurrir lo mismo con Irán?`\
 https://www.nytimes.com/es/2026/08/18/espanol/estados-unidos/trump-kim-jong-un-iran-corea-norte.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/08/18/us/hurricane-lala-hawaii-naalehu-cemetery.htm
 **Saolea Offers a Wine Bar’s Expansive Take on Thai Cooking**\
 `Burmese Bites gets a brick-and-mortar location, 20 Blocks goes all in on sandwiches and more restaurant news.`\
 https://www.nytimes.com/2026/08/18/dining/nyc-restaurant-news.html
-
-**Who Is Ahead in Virginia's 5th Congressional District?**\
-`Track the latest polls in Virginia's 5th Congressional District.`\
-https://www.nytimes.com/interactive/polls/virginia-us-house-5-polls-2026.html
 
 **Election Live Updates: Coast-to-Coast Primaries to Shape November Slate**\
 `Florida’s redrawn congressional districts have set up compelling contests, while Alaska’s Senate primary will test candidates’ strength. Voters in California will decide who replaces former Representative Eric Swalwell.`\

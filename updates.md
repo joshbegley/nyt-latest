@@ -1,3 +1,7 @@
+**Theater Chains Back Paramount-Warner Deal That States Say Will Hurt Them**\
+`America’s three largest movie theater companies have lined up behind David Ellison’s $111 billion merger of Paramount and Warner Bros. Discovery.`\
+https://www.nytimes.com/2026/08/18/business/cinemark-paramount-warner-deal-movie-theater-chains.html
+
 **Estancado en Irán, Trump se enfoca en Kim Jong-un, de Corea del Norte**\
 `Hace siete años, el presidente Trump no logró desarmar a Corea del Norte y desistió. ¿Podría ocurrir lo mismo con Irán?`\
 https://www.nytimes.com/es/2026/08/18/espanol/estados-unidos/trump-kim-jong-un-iran-corea-norte.html
