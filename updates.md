@@ -1,3 +1,11 @@
+**Bacon Cheeseburger Meatballs**\
+`This recipe, originally an idea conceived by the Cooking contributor Kevin Pang’s then-9-year-old son, Liam, produces a tender, juicy, beefy meatball with bacon, sweet onion and melted cheese in every single bite.`\
+https://www.nytimes.com/video/dining/100000011098392/bacon-cheeseburger-meatballs.html
+
+**A Missile Alert Half a World Away Interrupts Court Hearing at Guantánamo**\
+`A possible expert witness was hurried off a video feed after an emergency alert in Dubai, just south of the Strait of Hormuz, a flashpoint in the U.S.-Iran war.`\
+https://www.nytimes.com/2026/08/18/us/guantanamo-hearing-iran-war.html
+
 **Mayor Mamdani Wears a Bike Helmet. Finally.**\
 `The mayor, an enthusiastic cyclist, appears to have heeded New Yorkers’ advice that he practice safer biking.`\
 https://www.nytimes.com/2026/08/18/nyregion/mamdani-citi-bike-safety-helmet.html
