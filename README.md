@@ -1,3 +1,7 @@
+**How Israel’s Financial Chokehold Is Stifling the West Bank Economy**\
+`Intensifying restrictions have hit every part of the territory’s dealings, spurring worries about whether the Palestinian Authority can remain solvent.`\
+https://www.nytimes.com/2026/08/18/world/middleeast/west-bank-economy.html
+
 **At Ex-Premier Zhu Rongji’s Funeral, China’s Past Shadows Its Present**\
 `Beijing wants to portray today’s China as carrying forward Zhu Rongji’s era of growth, but for many Chinese, the optimism of that time has since faded.`\
 https://www.nytimes.com/2026/08/18/world/asia/zhu-rongji-funeral-china.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/18/world/asia/philippines-school-shooting-zamboa
 **El Chocó, un rincón aislado de Colombia, enfrenta las mayores dificultades tras el terremoto**\
 `Residentes, políticos e historiadores atribuyen el aislamiento de la región al abandono del Estado y al racismo estructural. El terremoto debilitó muchos de los ya frágiles vínculos que lo unen con el resto del país.`\
 https://www.nytimes.com/es/2026/08/18/espanol/america-latina/choco-colombia-terremoto-danos.html
-
-**Chocó, Colombia, Faces Deeper Hardship After an Earthquake**\
-`In Chocó, a remote region, “pain, hunger and homelessness await” survivors of last week’s earthquake, the governor said. Shakira visited to help draw awareness.`\
-https://www.nytimes.com/2026/08/18/world/americas/colombia-earthquake-choco.html
 
