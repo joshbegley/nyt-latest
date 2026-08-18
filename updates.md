@@ -1,3 +1,11 @@
+**At Ex-Premier Zhu Rongji’s Funeral, China’s Past Shadows Its Present**\
+`Beijing wants to portray today’s China as carrying forward Zhu Rongji’s era of growth, but for many Chinese, the optimism of that time has since faded.`\
+https://www.nytimes.com/2026/08/18/world/asia/zhu-rongji-funeral-china.html
+
+**Cómo prevenir el mareo por movimiento**\
+`Los expertos dicen que hay formas de evitar esa temida sensación de náusea.`\
+https://www.nytimes.com/es/2026/08/18/espanol/mareo-viajar-como-evitar.html
+
 **Florida Primary Underscores State’s New Identity as a Republican Juggernaut**\
 `Republicans hold every statewide elected office and have drastically swung voter registration in the state. A newly gerrymandered congressional map has added four Republican-leaning seats.`\
 https://www.nytimes.com/2026/08/18/us/politics/florida-primary-republican-dominance.html
