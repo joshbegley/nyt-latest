@@ -1,3 +1,7 @@
+**Debbie Wasserman Schultz Wins Democratic Primary in Redrawn Florida District**\
+`The congresswoman won her party’s nomination in Florida’s 20th District over several Black candidates who sharply criticized her decision to run there.`\
+https://www.nytimes.com/2026/08/18/us/politics/wasserman-schultz-manley-florida-primary.html
+
 **Wasserman Schultz Wins Democratic Primary in Historically Black District**\
 `The congresswoman won her party’s nomination in Florida’s 20th District over several Black candidates who sharply criticized her decision to run there.`\
 https://www.nytimes.com/2026/08/18/us/politics/wasserman-schultz-manley-florida-primary.html

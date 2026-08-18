@@ -1,3 +1,7 @@
+**Judge Orders New Oversight of Immigrant Children’s Detention**\
+`After reviewing claims of persistent safety and sanitary failures, the court named two experts to monitor detention conditions across several facilities.`\
+https://www.nytimes.com/2026/08/18/us/judge-children-immigration-detention-order.html
+
 **Debbie Wasserman Schultz Wins Democratic Primary in Redrawn Florida District**\
 `The congresswoman won her party’s nomination in Florida’s 20th District over several Black candidates who sharply criticized her decision to run there.`\
 https://www.nytimes.com/2026/08/18/us/politics/wasserman-schultz-manley-florida-primary.html
@@ -185,14 +189,6 @@ https://www.nytimes.com/video/embedded/business/100000011099389/Biz-wheels-pebbl
 **Bacon Cheeseburger Meatballs**\
 `This recipe, originally an idea conceived by the Cooking contributor Kevin Pang’s then-9-year-old son, Liam, produces a tender, juicy, beefy meatball with bacon, sweet onion and melted cheese in every single bite.`\
 https://www.nytimes.com/video/dining/100000011098392/bacon-cheeseburger-meatballs.html
-
-**A Missile Alert Half a World Away Interrupts Court Hearing at Guantánamo**\
-`A possible expert witness was hurried off a video feed after an emergency alert in Dubai, near the Strait of Hormuz, a flashpoint in the U.S.-Iran war.`\
-https://www.nytimes.com/2026/08/18/us/guantanamo-hearing-iran-war.html
-
-**Mayor Mamdani Wears a Bike Helmet. Finally.**\
-`The mayor, an enthusiastic cyclist, appears to have heeded New Yorkers’ advice that he practice safer biking.`\
-https://www.nytimes.com/2026/08/18/nyregion/mamdani-citi-bike-safety-helmet.html
 
 **Election Live Updates: Voters Choosing Candidates to Succeed DeSantis in Florida**\
 `Representative Byron Donalds has President Trump’s endorsement for governor in the state, and David Jolly is the favorite among Democrats. In California, voters are deciding who replaces former Representative Eric Swalwell.`\
