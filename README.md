@@ -1,3 +1,7 @@
+**A Bitter Anniversary for Afghan Women**\
+`Readers respond to a guest essay about the U.S. failure in Afghanistan and the Taliban’s oppression of women. Also: the use of A.I. in medicine.`\
+https://www.nytimes.com/2026/08/18/opinion/afghanistan-taliban-women.html
+
 **Fueron amigas de la infancia. Luego, descubrieron que eran hermanas**\
 `Meena Geltink y Minal Tijssen fueron adoptadas en India por familias de los Países Bajos y crecieron a menos de 160 kilómetros de distancia.`\
 https://www.nytimes.com/es/2026/08/18/espanol/hermanas-separadas-adopcion-holanda.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/18/style/nigel-farage-style-uk.html
 **‘I Just Want to See America Love Me’**\
 `In Georgia, Mara Gay sat down with Black voters to hear how they think America is doing — and what they make of the Democratic Party today. “Messy. All over the place,” Jarrett Willis, an entrepreneur, told her. “There’s no structure; it’s nothing to rally behind. It’s lacking that umph factor.”`\
 https://www.nytimes.com/video/opinion/100000011096297/i-just-want-to-see-america-love-me.html
-
-**Silicon Valley fue firme desde el principio**\
-`Los valores de Silicon Valley no han cambiado, solo sus clientes.`\
-https://www.nytimes.com/es/2026/08/18/espanol/opinion/silicon-valley-guerra-pentagono.html
 
