@@ -1,3 +1,7 @@
+**Trump’s Ballroom Is Rising at Breakneck Speed: 20 Hours a Day, 7 Days a Week**\
+`Although the fate of the ballroom is tied up in court, the Trump administration argues that the project is too far along to be stopped now.`\
+https://www.nytimes.com/2026/08/18/us/politics/trump-ballroom-construction.html
+
 **Many Questions, but Few Answers, at Hearing About N.Y.C. Second-Home Tax**\
 `The Mamdani administration opted to give written testimony to the City Council on the rollout of the new tax, saying officials could not appear in person because of a lawsuit.`\
 https://www.nytimes.com/2026/08/18/nyregion/mamdani-second-home-tax-hearing.html
@@ -18,7 +22,7 @@ https://www.nytimes.com/2026/08/18/arts/music/frank-beard-zz-top-dead.html
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/08/18/world/asia/afghanistan-quake-tracker.html
 
-**As Many Taiwan Residents Fears Invasion From China, Some Prepare to Fight Back**\
+**In a Polarized Taiwan, Some Residents Are Training to Defend Their Homeland**\
 `Could civil-defense drills help Taiwan if China moves to annex the island?`\
 https://www.nytimes.com/interactive/2026/08/18/magazine/taiwan-china-invasion-defense.html
 
@@ -189,10 +193,6 @@ https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-chie
 **Wyoming Auditor Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Wyoming primary election.`\
 https://www.nytimes.com/interactive/2026/08/18/us/elections/results-wyoming-auditor-primary.html
-
-**Florida 22nd Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Florida primary election.`\
-https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-us-house-22-primary.html
 
 **Election Live Updates: Coast-to-Coast Primaries to Shape November Slate**\
 `Florida’s redrawn congressional districts have set up compelling contests, while Alaska’s Senate primary will test candidates’ strength. Voters in California will decide who replaces former Representative Eric Swalwell.`\

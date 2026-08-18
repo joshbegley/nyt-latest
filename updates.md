@@ -1,3 +1,11 @@
+**Trump’s Ballroom Is Rising at Breakneck Speed: 20 Hours a Day, 7 Days a Week**\
+`Although the fate of the ballroom is tied up in court, the Trump administration argues that the project is too far along to be stopped now.`\
+https://www.nytimes.com/2026/08/18/us/politics/trump-ballroom-construction.html
+
+**In a Polarized Taiwan, Some Residents Are Training to Defend Their Homeland**\
+`Could civil-defense drills help Taiwan if China moves to annex the island?`\
+https://www.nytimes.com/interactive/2026/08/18/magazine/taiwan-china-invasion-defense.html
+
 **Many Questions, but Few Answers, at Hearing About N.Y.C. Second-Home Tax**\
 `The Mamdani administration opted to give written testimony to the City Council on the rollout of the new tax, saying officials could not appear in person because of a lawsuit.`\
 https://www.nytimes.com/2026/08/18/nyregion/mamdani-second-home-tax-hearing.html
