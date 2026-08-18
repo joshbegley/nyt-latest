@@ -1,3 +1,11 @@
+**Gulf Oil Giants Push to Expand Overseas Stockpiles as Iran War Drags On**\
+`Saudi Arabia and the United Arab Emirates are seeking larger oil reserves in Japan and South Korea as regional conflict threatens supply routes.`\
+https://www.nytimes.com/2026/08/18/business/saudi-uae-japan-oil-storage.html
+
+**Trump Takes Aim at CNN Reporter Kristen Holmes During Event to Honor California Lifeguard**\
+`President Trump told a journalist to “be quiet” at a White House event for a California lifeguard and a boy he saved.`\
+https://www.nytimes.com/2026/08/18/us/politics/trump-lifeguard-cnn-reporter.html
+
 **Humans Love Having Pets. Seems Like Some Other Primates Do, Too.**\
 `We aren’t the only animals who like to take care of other species. A new study finds that the roots of keeping a pet may stretch deep into our primate past.`\
 https://www.nytimes.com/2026/08/18/science/humans-love-having-pets-seems-like-some-other-primates-do-too.html
