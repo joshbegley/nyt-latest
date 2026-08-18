@@ -194,7 +194,7 @@ https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-us-h
 `Get live results and maps from the 2026 Florida primary election.`\
 https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-us-house-24-primary.html
 
-**Florida 18th Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Florida primary election.`\
-https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-us-house-18-primary.html
+**Election Live Updates: Florida, Alaska and Wyoming Hold Key Primaries**\
+`Florida’s redrawn congressional districts have set up compelling contests, while Alaska’s Senate primary will test candidates’ strength. Voters in California will decide who replaces former Representative Eric Swalwell.`\
+https://www.nytimes.com/live/2026/08/18/us/elections-florida-california-alaska
 

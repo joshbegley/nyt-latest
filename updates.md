@@ -1,3 +1,7 @@
+**Election Live Updates: Florida, Alaska and Wyoming Hold Key Primaries**\
+`Florida’s redrawn congressional districts have set up compelling contests, while Alaska’s Senate primary will test candidates’ strength. Voters in California will decide who replaces former Representative Eric Swalwell.`\
+https://www.nytimes.com/live/2026/08/18/us/elections-florida-california-alaska
+
 **A Rescue Mission in Remote Colombia**\
 `Our photographer Federico Rios joined aid flights in Chocó to document earthquake rescue efforts in remote communities.`\
 https://www.nytimes.com/video/world/americas/100000011097252/a-rescue-mission-in-remote-colombia.html
