@@ -1,3 +1,7 @@
+**En Italia, un sacerdote africano llena el vacío que dejó la escasez de curas**\
+`Los migrantes llevan mucho tiempo paliando la escasez de mano de obra en las granjas y fábricas de Italia. Pero las iglesias también necesitan sacerdotes de origen extranjero, como el reverendo Vincent Souly.`\
+https://www.nytimes.com/es/2026/08/18/espanol/mundo/sacerdote-africano-iglesia-italia.html
+
 **NYT Spelling Bee Answers for August 18, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/08/18/crosswords/spelling-bee-forum.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/17/nyregion/mamdani-city-council-hearing-second-
 **Border Construction in Big Bend Is Halted After Drawing Criticism**\
 `The Trump administration has been carving a path through some of the beloved national park’s major natural attractions.`\
 https://www.nytimes.com/2026/08/17/us/big-bend-border-wall-texas-construction.html
-
-**El libro de Hayden Panettiere explora los desafíos que enfrentó**\
-`A propósito de la publicación de sus memorias, la actriz habló con el Times sobre cómo su madre la puso en televisión a los 11 meses de edad, la pérdida de la custodia de su hija y más.`\
-https://www.nytimes.com/es/2026/08/17/espanol/hayden-panettiere-entrevista-libro-memorias.html
 
