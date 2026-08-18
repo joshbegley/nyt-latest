@@ -1,3 +1,11 @@
+**Map: 5.3-Magnitude Earthquake Shakes Afghanistan**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/08/18/world/asia/afghanistan-quake-tracker.html
+
+**As Many Taiwan Residents Fears Invasion From China, Some Prepare to Fight Back**\
+`Could civil-defense drills help Taiwan if China moves to annex the island?`\
+https://www.nytimes.com/interactive/2026/08/18/magazine/taiwan-china-invasion-defense.html
+
 **Restaurant Review: Bar Chimera in New York**\
 `From the team behind the hit Korean steakhouse Cote comes Bar Chimera, a luxe new spot in Midtown.`\
 https://www.nytimes.com/2026/08/18/dining/restaurant-review-bar-chimera-nyc.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-us-h
 **Florida 15th Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Florida primary election.`\
 https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-us-house-15-primary.html
-
-**Florida First Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Florida primary election.`\
-https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-us-house-1-primary.html
-
-**Wyoming Secretary of State Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Wyoming primary election.`\
-https://www.nytimes.com/interactive/2026/08/18/us/elections/results-wyoming-secretary-of-state-primary.html
 
 **Election Live Updates: Florida, Alaska and Wyoming Hold Key Primaries**\
 `Florida’s redrawn congressional districts have set up compelling contests, while Alaska’s Senate primary will test candidates’ strength. Voters in California will decide who replaces former Representative Eric Swalwell.`\
