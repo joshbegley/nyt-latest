@@ -1,3 +1,7 @@
+**Trump Fired His Inspectors General. Their Replacements Have a Different Mission.**\
+`President Trump is installing his allies in the offices of inspector general, which are meant to provide independent government oversight.`\
+https://www.nytimes.com/2026/08/18/us/politics/trump-inspector-general.html
+
 **Judge Allows Limited Testing in Trump Plan to Paint Eisenhower Building White**\
 `A federal judge ruled that initial preparatory steps, including testing out paints on the building’s gray granite exterior, could proceed for now.`\
 https://www.nytimes.com/2026/08/18/us/politics/judge-paint-eisenhower-building-trump.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/08/18/us/elections/results-alaska-measu
 **California 14th Congressional District Special Nonpartisan Runoff 2026: Live Election Results, Hernandez vs. Wahab**\
 `Get live results and maps from the 2026 California special runoff election.`\
 https://www.nytimes.com/interactive/2026/08/18/us/elections/results-california-us-house-14-special-runoff.html
-
-**Florida Sixth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Florida primary election.`\
-https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-us-house-6-primary.html
 
