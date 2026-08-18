@@ -1,3 +1,7 @@
+**Silicon Valley fue firme desde el principio**\
+`Los valores de Silicon Valley no han cambiado, solo sus clientes.`\
+https://www.nytimes.com/es/2026/08/18/espanol/opinion/silicon-valley-guerra-pentagono.html
+
 **The Spaghett Is Baltimore’s Gift to the World**\
 `How the bright-red beer cocktail went from a Charm City special to become a worldwide phenomenon.`\
 https://www.nytimes.com/2026/08/18/dining/spaghett-baltimore.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-us-h
 **Florida 11th Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Florida primary election.`\
 https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-us-house-11-primary.html
-
-**Florida Attorney General Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Florida primary election.`\
-https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-attorney-general-primary.html
 
