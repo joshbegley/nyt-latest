@@ -1,3 +1,15 @@
+**Court Blocks Road Through Izembek National Wildlife Refuge**\
+`A federal judge ruled that the Trump administration broke the law when it approved a deal to allow a road through the Izembek National Wildlife Refuge.`\
+https://www.nytimes.com/2026/08/18/climate/court-alaska-izembek-refuge.html
+
+**Skip Bertman, L.S.U. Baseball Coach Who Packed Stadiums, Dies at 88**\
+`Over 18 seasons at Louisiana State University, he won five national titles and was voted the second-best college baseball coach of the 20th century.`\
+https://www.nytimes.com/2026/08/18/sports/baseball/skip-bertman-dead.html
+
+**Israel Strikes Air Base in Syria, Drawing Ire From the U.S.**\
+`The attack was the latest in a series of Israeli military interventions in Syria over the past two years.`\
+https://www.nytimes.com/2026/08/18/world/middleeast/israel-airstrikes-syria-air-base.html
+
 **Deadly Israeli Strike on Gaza Raises Doubts About Trump Peace Plan**\
 `A day after President Trump’s envoy, Jared Kushner, visited Israel to advance a stalled plan for demilitarizing and rebuilding Gaza, the Israeli military said it targeted Hamas commanders.`\
 https://www.nytimes.com/2026/08/18/world/middleeast/israeli-strike-gaza-cafe-peace-plan.html

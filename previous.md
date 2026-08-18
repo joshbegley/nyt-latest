@@ -1,3 +1,11 @@
+**Court Blocks Road Through Izembek National Wildlife Refuge**\
+`A federal judge ruled that the Trump administration broke the law when it approved a deal to allow a road through the Izembek National Wildlife Refuge.`\
+https://www.nytimes.com/2026/08/18/climate/court-alaska-izembek-refuge.html
+
+**Skip Bertman, L.S.U. Baseball Coach Who Packed Stadiums, Dies at 88**\
+`Over 18 seasons at Louisiana State University, he won five national titles and was voted the second-best college baseball coach of the 20th century.`\
+https://www.nytimes.com/2026/08/18/sports/baseball/skip-bertman-dead.html
+
 **Deadly Israeli Strike on Gaza Raises Doubts About Trump Peace Plan**\
 `A day after President Trump’s envoy, Jared Kushner, visited Israel to advance a stalled plan for demilitarizing and rebuilding Gaza, the Israeli military said it targeted Hamas commanders.`\
 https://www.nytimes.com/2026/08/18/world/middleeast/israeli-strike-gaza-cafe-peace-plan.html
@@ -159,7 +167,7 @@ https://www.nytimes.com/2026/08/18/climate/trump-ends-roadless-rule-forests.html
 https://www.nytimes.com/interactive/polls/rhode-island-us-house-2-polls-2026.html
 
 **Israel Strikes Air Base in Syria, Drawing Ire From the U.S.**\
-`American and Syrian officials said Israel carried out the attack, the latest in a series of military interventions in Syria over the past two years.`\
+`The attack was the latest in a series of Israeli military interventions in Syria over the past two years.`\
 https://www.nytimes.com/2026/08/18/world/middleeast/israel-airstrikes-syria-air-base.html
 
 **Wyoming At-Large Congressional District Primary 2026: Live Election Results**\
@@ -185,14 +193,6 @@ https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-us-h
 **Florida 26th Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Florida primary election.`\
 https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-us-house-26-primary.html
-
-**Florida 16th Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Florida primary election.`\
-https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-us-house-16-primary.html
-
-**Florida 17th Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Florida primary election.`\
-https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-us-house-17-primary.html
 
 **Election Live Updates: Coast-to-Coast Primaries to Shape November Slate**\
 `Florida’s redrawn congressional districts have set up compelling contests, while Alaska’s Senate primary will test candidates’ strength. Voters in California will decide who replaces former Representative Eric Swalwell.`\
