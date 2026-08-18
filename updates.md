@@ -1,3 +1,7 @@
+**Venezuela y Japón después de los terremotos**\
+`¿Por qué a algunos países les va mucho mejor que a otros cuando se trata de desastres naturales?`\
+https://www.nytimes.com/es/2026/08/18/espanol/mundo/venezuela-y-japon-despues-de-los-terremotos.html
+
 **Hayden Panettiere Grew Up in Front of the Camera. It Took a Toll.**\
 `The “Heroes” and “Nashville” star, who died Sunday at 36, endured personal struggles that were compounded by her public profile.`\
 https://www.nytimes.com/2026/08/18/arts/television/hayden-panettiere-child-star-struggles.html

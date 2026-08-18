@@ -1,3 +1,7 @@
+**Venezuela y Japón después de los terremotos**\
+`¿Por qué a algunos países les va mucho mejor que a otros cuando se trata de desastres naturales?`\
+https://www.nytimes.com/es/2026/08/18/espanol/mundo/venezuela-y-japon-despues-de-los-terremotos.html
+
 **OpenAI Introduces ‘ChatGPT for Teens’ as Safety Concerns Grow**\
 `The artificial intelligence start-up announced a chatbot mode that will automatically limit some conversations to better protect young users.`\
 https://www.nytimes.com/2026/08/18/technology/chatgpt-for-teens-openai.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/18/us/texas-tech-artificial-intelligence-ideolog
 **The A.I.s Are Already Out of Control**\
 `Helen Toner, who served on OpenAI’s board, hopes the recent hack by that company’s models serves as a warning.`\
 https://www.nytimes.com/video/opinion/100000011091562/the-ais-are-already-out-of-control.html
-
-**Judge Orders Release of Woman Accused of Vandalizing World War II Memorial**\
-`Prosecutors led by Jeanine Pirro, the U.S. attorney in Washington, argued that Melissa Farris posed a flight risk and asked the court to reverse its decision.`\
-https://www.nytimes.com/2026/08/18/us/politics/wwii-memorial-vandalism-trump-pirro.html
 
