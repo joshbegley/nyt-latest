@@ -1,3 +1,7 @@
+**How Israel’s Financial Chokehold Is Stifling the West Bank Economy**\
+`Intensifying restrictions have hit every part of the territory’s dealings, spurring worries about whether the Palestinian Authority can remain solvent.`\
+https://www.nytimes.com/2026/08/18/world/middleeast/west-bank-economy.html
+
 **At Ex-Premier Zhu Rongji’s Funeral, China’s Past Shadows Its Present**\
 `Beijing wants to portray today’s China as carrying forward Zhu Rongji’s era of growth, but for many Chinese, the optimism of that time has since faded.`\
 https://www.nytimes.com/2026/08/18/world/asia/zhu-rongji-funeral-china.html
