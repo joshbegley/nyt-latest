@@ -1,3 +1,7 @@
+**Canadá vuelve a enfrentarse a los aranceles de EE. UU.**\
+`A menos que los negociadores canadienses logren un acuerdo de última hora, hoy a la medianoche entrarán en vigor una serie de nuevos gravámenes del gobierno Trump.`\
+https://www.nytimes.com/es/2026/08/18/espanol/mundo/canada-aranceles.html
+
 **Wyoming U.S. Senate Primary 2026: Live Election Results, Benavidez vs. Byrd**\
 `Get live results and maps from the 2026 Wyoming primary election.`\
 https://www.nytimes.com/interactive/2026/08/18/us/elections/results-wyoming-us-senate-primary.html
