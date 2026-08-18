@@ -35,7 +35,7 @@ https://www.nytimes.com/2026/08/18/style/street-style-look-hiking-pants.html
 https://www.nytimes.com/2026/08/18/business/media/abc-fcc-lawsuit-broadcast-licenses.html
 
 **Residents on Hawaii’s Big Island Look to Help One Another After Hurricane Lala**\
-`In a remote region of the ravaged Big Island, there were  community gas runs, donated turkey stuffing, a makeshift emergency broadcast and even a helicopter.`\
+`In a remote region of the ravaged Big Island, there were community gas runs, donated turkey stuffing, a makeshift emergency broadcast and even a helicopter.`\
 https://www.nytimes.com/2026/08/18/us/hawaii-hurricane-lala-community-relief.html
 
 **Ship Exiting the Strait of Hormuz Is Attacked**\

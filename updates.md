@@ -1,3 +1,7 @@
+**Residents on Hawaii’s Big Island Look to Help One Another After Hurricane Lala**\
+`In a remote region of the ravaged Big Island, there were community gas runs, donated turkey stuffing, a makeshift emergency broadcast and even a helicopter.`\
+https://www.nytimes.com/2026/08/18/us/hawaii-hurricane-lala-community-relief.html
+
 **Google Just Made It Easier for Campaigns to Send You Fund-Raising Emails**\
 `Republicans previously sued Google claiming its spam filter was biased, but the case was dismissed. The company will now allow verified campaigns to more easily bypass the spam filter.`\
 https://www.nytimes.com/2026/08/18/us/politics/google-political-campaigns-email-spam.html
