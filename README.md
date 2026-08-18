@@ -1,3 +1,7 @@
+**Who Is Ahead in Virginia's 5th Congressional District?**\
+`Track the latest polls in Virginia's 5th Congressional District.`\
+https://www.nytimes.com/interactive/polls/virginia-us-house-5-polls-2026.html
+
 **Trump Administration Moves to Allow Logging in Pristine National Forests**\
 `The move to repeal the ‘roadless rule’ would pave the way for road construction and logging in nearly 45 million acres of untouched back country.`\
 https://www.nytimes.com/2026/08/18/climate/trump-ends-roadless-rule-forests.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/08/18/us/elections/results-wyoming-prim
 **Wyoming Governor Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Wyoming primary election.`\
 https://www.nytimes.com/interactive/2026/08/18/us/elections/results-wyoming-governor-primary.html
-
-**Florida U.S. Senate Special Primary 2026: Live Election Results, Nixon vs. Vindman**\
-`Get live results and maps from the 2026 Florida special primary election.`\
-https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-us-senate-special-primary-august-18.html
 
