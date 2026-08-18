@@ -1,3 +1,27 @@
+**Wyoming U.S. Senate Primary 2026: Live Election Results, Benavidez vs. Byrd**\
+`Get live results and maps from the 2026 Wyoming primary election.`\
+https://www.nytimes.com/interactive/2026/08/18/us/elections/results-wyoming-us-senate-primary.html
+
+**Wyoming Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Wyoming primary elections.`\
+https://www.nytimes.com/interactive/2026/08/18/us/elections/results-wyoming-primary.html
+
+**Wyoming Governor Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Wyoming primary election.`\
+https://www.nytimes.com/interactive/2026/08/18/us/elections/results-wyoming-governor-primary.html
+
+**Florida U.S. Senate Special Primary 2026: Live Election Results, Nixon vs. Vindman**\
+`Get live results and maps from the 2026 Florida special primary election.`\
+https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-us-senate-special-primary-august-18.html
+
+**Florida Seventh Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Florida primary election.`\
+https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-us-house-7-primary.html
+
+**Alaska Governor Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Alaska primary election.`\
+https://www.nytimes.com/interactive/2026/08/18/us/elections/results-alaska-governor-primary.html
+
 **Florida 20th Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Florida primary election.`\
 https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-us-house-20-primary.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/interactive/2026/08/18/us/elections/results-arkansas-sta
 **Florida 21st Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Florida primary election.`\
 https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-us-house-21-primary.html
-
-**Florida 12th Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Florida primary election.`\
-https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-us-house-12-primary.html
-
-**California 14th Congressional District Special Nonpartisan Runoff 2026: Live Election Results, Hernandez vs. Wahab**\
-`Get live results and maps from the 2026 California special runoff election.`\
-https://www.nytimes.com/interactive/2026/08/18/us/elections/results-california-us-house-14-special-runoff.html
-
-**Alaska Measure 1 Election Results: Establish Campaign Contribution Limits for State and Local Elections**\
-`Get live results and maps from the 2026 Alaska general election.`\
-https://www.nytimes.com/interactive/2026/08/18/us/elections/results-alaska-measure-1-campaign-contribution-limits.html
-
-**Election Live Updates: Florida, Alaska and Wyoming Hold Key Primaries**\
-`Florida’s redrawn congressional districts have set up compelling contests, while Alaska’s Senate primary will test candidates’ strength. Voters in California will decide who replaces former Representative Eric Swalwell.`\
-https://www.nytimes.com/live/2026/08/18/us/elections-florida-california-alaska
-
-**The Festival draws musical theater performers and fans to an outdoor celebration.**\
-`Among the stars and stans at a Hudson River retreat, two reporters beheld the big belters and niche merchandise at a new musical theater festival.`\
-https://www.nytimes.com/2026/08/18/theater/broadway-musicals-festival-kingston.html
-
-**Today, In Short**\
-`Budgeting. Baskets. And college football rankings.`\
-https://www.nytimes.com/2026/08/18/briefing/today-in-short.html
 

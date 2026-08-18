@@ -1,3 +1,11 @@
+**Primary Election Results in Alaska, Arkansas, California, Florida, Pennsylvania and Wyoming: Aug. 18, 2026**\
+`Get live results of the key races from the Aug. 18 primaries.`\
+https://www.nytimes.com/interactive/2026/08/18/us/elections/results-key-races-aug-18.html
+
+**Canadá vuelve a enfrentarse a los aranceles de EE. UU.**\
+`A menos que los negociadores canadienses logren un acuerdo de última hora, hoy a la medianoche entrarán en vigor una serie de nuevos gravámenes del gobierno Trump.`\
+https://www.nytimes.com/es/2026/08/18/espanol/mundo/canada-aranceles.html
+
 **Wyoming U.S. Senate Primary 2026: Live Election Results, Benavidez vs. Byrd**\
 `Get live results and maps from the 2026 Wyoming primary election.`\
 https://www.nytimes.com/interactive/2026/08/18/us/elections/results-wyoming-us-senate-primary.html
@@ -53,10 +61,6 @@ https://www.nytimes.com/interactive/2026/08/18/us/elections/results-alaska-prima
 **Artist Preserves Ancient Korean Papermaking Techniques in Ohio**\
 `Aimee Lee makes traditional Korean handmade paper, called hanji. The techniques she uses are on the verge of extinction, she says.`\
 https://www.nytimes.com/video/arts/100000011096398/hanji-paper-making-crafts-korea-arts.html
-
-**Primary Election Results in Alaska, Arkansas, California, Florida, Pennsylvania and Wyoming: Aug. 18, 2026**\
-`Get live results of the key races from the Aug. 18 primaries.`\
-https://www.nytimes.com/interactive/2026/08/18/us/elections/results-key-races-aug-18.html
 
 **Sugar Importer With Trump Ties Said to Maintain Abusive Labor Practices**\
 `A watchdog group said the Dominican company continued to violate labor standards after President Trump lifted an import ban last year.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-atto
 **Arkansas State Senate Special Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Arkansas special primary election.`\
 https://www.nytimes.com/interactive/2026/08/18/us/elections/results-arkansas-state-senate-special-primary-august-18.html
-
-**Florida 21st Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Florida primary election.`\
-https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-us-house-21-primary.html
 

@@ -1,3 +1,27 @@
+**Wyoming U.S. Senate Primary 2026: Live Election Results, Benavidez vs. Byrd**\
+`Get live results and maps from the 2026 Wyoming primary election.`\
+https://www.nytimes.com/interactive/2026/08/18/us/elections/results-wyoming-us-senate-primary.html
+
+**Wyoming Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Wyoming primary elections.`\
+https://www.nytimes.com/interactive/2026/08/18/us/elections/results-wyoming-primary.html
+
+**Wyoming Governor Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Wyoming primary election.`\
+https://www.nytimes.com/interactive/2026/08/18/us/elections/results-wyoming-governor-primary.html
+
+**Florida U.S. Senate Special Primary 2026: Live Election Results, Nixon vs. Vindman**\
+`Get live results and maps from the 2026 Florida special primary election.`\
+https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-us-senate-special-primary-august-18.html
+
+**Florida Seventh Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Florida primary election.`\
+https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-us-house-7-primary.html
+
+**Alaska Governor Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Alaska primary election.`\
+https://www.nytimes.com/interactive/2026/08/18/us/elections/results-alaska-governor-primary.html
+
 **Florida 20th Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Florida primary election.`\
 https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-us-house-20-primary.html
