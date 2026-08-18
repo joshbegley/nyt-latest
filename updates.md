@@ -1,3 +1,7 @@
+**When to Expect Election Results in Alaska, California, Florida and Wyoming**\
+`Four states are holding elections on Tuesday. Election officials anticipate having results by late Tuesday or early Wednesday.`\
+https://www.nytimes.com/2026/08/18/us/politics/florida-alaska-california-wyoming-results-timing.html
+
 **Former Mother-in-Law Describes Lindsay Clancy’s Mental Health Struggle in Murder Trial**\
 `Ms. Clancy, who is on trial for murder in the deaths of her three children, tried to find treatment for her deteriorating condition, her ex-husband’s mother testified.`\
 https://www.nytimes.com/2026/08/18/us/lindsay-clancy-murder-trial-mother-in-law.html
