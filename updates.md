@@ -1,3 +1,11 @@
+**Street Style Look of the Week: Hiking Pants for an Urban Explorer**\
+`A psychiatrist spotted in Copenhagen said he preferred to buy his shirts secondhand: That way he knows what they look like with some wear.`\
+https://www.nytimes.com/2026/08/18/style/street-style-look-hiking-pants.html
+
+**ABC Sues Trump Administration Over F.C.C. Threat to Its TV Licenses**\
+`The network asked a court to stop the agency from taking steps that could force ABC stations off the air and accused the F.C.C. of violating its First Amendment rights.`\
+https://www.nytimes.com/2026/08/18/business/media/abc-fcc-lawsuit-broadcast-licenses.html
+
 **Residents on Hawaii’s Big Island Look to Help One Another After Hurricane Lala**\
 `In a remote region of the ravaged Big Island, there were  community gas runs, donated turkey stuffing, a makeshift emergency broadcast and even a helicopter.`\
 https://www.nytimes.com/2026/08/18/us/hawaii-hurricane-lala-community-relief.html
