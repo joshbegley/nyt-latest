@@ -1,3 +1,7 @@
+**Turkey and the Kurds Show a Way Forward**\
+`A recent Turkish law moving toward an end to the conflict with the P.K.K. could be a model for other militant groups.`\
+https://www.nytimes.com/2026/08/18/opinion/turkey-kurds-pkk-hamas.html
+
 **1 Dead After Student Livestreams School Shooting in the Philippines**\
 `The boy shot and killed a schoolmate at a junior high school before fatally turning the gun on himself, the mayor of Zamboanga City said.`\
 https://www.nytimes.com/2026/08/18/world/asia/philippines-school-shooting-zamboanga-city.html

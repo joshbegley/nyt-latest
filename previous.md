@@ -1,3 +1,7 @@
+**Turkey and the Kurds Show a Way Forward**\
+`A recent Turkish law moving toward an end to the conflict with the P.K.K. could be a model for other militant groups.`\
+https://www.nytimes.com/2026/08/18/opinion/turkey-kurds-pkk-hamas.html
+
 **1 Dead After Student Livestreams School Shooting in the Philippines**\
 `The boy shot and killed a schoolmate at a junior high school before fatally turning the gun on himself, the mayor of Zamboanga City said.`\
 https://www.nytimes.com/2026/08/18/world/asia/philippines-school-shooting-zamboanga-city.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/100000011096292/portland-oregon-billy-goat-bus.
 **Hayden Panettiere’s Best Performances: Where to Stream**\
 `The actress was a staple of two popular network TV dramas and had memorable early-career roles in film.`\
 https://www.nytimes.com/2026/08/17/arts/television/hayden-panettiere-nashville-heroes-streaming.html
-
-**Barred From Ballot, a Party Becomes a Vessel for Russians’ Discontent**\
-`The spotlight on the country’s only antiwar party has brought a spark to what had looked like another dull, tightly controlled election campaign.`\
-https://www.nytimes.com/2026/08/17/world/europe/russia-yabloko-party-election.html
 
