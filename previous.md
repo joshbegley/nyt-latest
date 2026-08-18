@@ -1,3 +1,7 @@
+**NYT Spelling Bee Answers for August 18, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/08/18/crosswords/spelling-bee-forum.html
+
 **Rosie O’Donnell Just Knows Trump Is Watching Her Host ‘Jimmy Kimmel Live’**\
 `“And if you thought the president hated ‘Jimmy Kimmel Live’ when it was hosted by Jimmy Kimmel, buckle up, people. Buckle up!” O’Donnell said.`\
 https://www.nytimes.com/2026/08/18/arts/television/rosie-odonnell-jimmy-kimmel-trump.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/17/us/big-bend-border-wall-texas-construction.ht
 **El libro de Hayden Panettiere explora los desafíos que enfrentó**\
 `A propósito de la publicación de sus memorias, la actriz habló con el Times sobre cómo su madre la puso en televisión a los 11 meses de edad, la pérdida de la custodia de su hija y más.`\
 https://www.nytimes.com/es/2026/08/17/espanol/hayden-panettiere-entrevista-libro-memorias.html
-
-**Two Goats Were Caught Trying to Ride a Bus**\
-`Two billy goats boarded the TriMet bus in Portland, Ore., last Tuesday. They were later returned to their owner, who lives nearby.`\
-https://www.nytimes.com/video/us/100000011096292/portland-oregon-billy-goat-bus.html
 

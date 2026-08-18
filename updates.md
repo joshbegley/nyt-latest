@@ -1,3 +1,7 @@
+**NYT Spelling Bee Answers for August 18, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/08/18/crosswords/spelling-bee-forum.html
+
 **Rosie O’Donnell Just Knows Trump Is Watching Her Host ‘Jimmy Kimmel Live’**\
 `“And if you thought the president hated ‘Jimmy Kimmel Live’ when it was hosted by Jimmy Kimmel, buckle up, people. Buckle up!” O’Donnell said.`\
 https://www.nytimes.com/2026/08/18/arts/television/rosie-odonnell-jimmy-kimmel-trump.html
