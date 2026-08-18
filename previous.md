@@ -1,3 +1,7 @@
+**The Spaghett Is Baltimore’s Gift to the World**\
+`How the bright-red beer cocktail went from a Charm City special to become a worldwide phenomenon.`\
+https://www.nytimes.com/2026/08/18/dining/spaghett-baltimore.html
+
 **Primary Election Results in Alaska, Arkansas, California, Florida, Pennsylvania and Wyoming: Aug. 18, 2026**\
 `Get live results of the key races from the Aug. 18 primaries.`\
 https://www.nytimes.com/interactive/2026/08/18/us/elections/results-key-races-aug-18.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-us-h
 **Florida Attorney General Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Florida primary election.`\
 https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-attorney-general-primary.html
-
-**Arkansas State Senate Special Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Arkansas special primary election.`\
-https://www.nytimes.com/interactive/2026/08/18/us/elections/results-arkansas-state-senate-special-primary-august-18.html
 

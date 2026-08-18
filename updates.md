@@ -1,3 +1,7 @@
+**The Spaghett Is Baltimore’s Gift to the World**\
+`How the bright-red beer cocktail went from a Charm City special to become a worldwide phenomenon.`\
+https://www.nytimes.com/2026/08/18/dining/spaghett-baltimore.html
+
 **Canadá vuelve a enfrentarse a los aranceles de EE. UU.**\
 `A menos que los negociadores canadienses logren un acuerdo de última hora, hoy a la medianoche entrarán en vigor una serie de nuevos gravámenes del gobierno Trump.`\
 https://www.nytimes.com/es/2026/08/18/espanol/mundo/canada-aranceles.html
