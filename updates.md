@@ -1,3 +1,7 @@
+**Environmentalists Sue to Halt First Sale of Seabed-Mining Rights**\
+`The suit claims the U.S. decision to allow mining for minerals in American waters didn’t consider the potential harm to endangered species.`\
+https://www.nytimes.com/2026/08/18/climate/seabed-mining-lawsuit-american-samoa.html
+
 **Trump Fired His Inspectors General. Their Replacements Have a Different Mission.**\
 `President Trump is installing his allies in the offices of inspector general, which are meant to provide independent government oversight.`\
 https://www.nytimes.com/2026/08/18/us/politics/trump-inspector-general.html
