@@ -1,3 +1,11 @@
+**Trump Administration Moves to Allow Logging in Pristine National Forests**\
+`The move to repeal the ‘roadless rule” would pave the way for road construction and logging in nearly 45 million acres of untouched back country.`\
+https://www.nytimes.com/2026/08/18/climate/trump-ends-roadless-rule-forests.html
+
+**Who Is Ahead in Rhode Island's 2nd Congressional District?**\
+`Track the latest polls in Rhode Island's 2nd Congressional District.`\
+https://www.nytimes.com/interactive/polls/rhode-island-us-house-2-polls-2026.html
+
 **Nigel Farage’s Oddly American Outfit**\
 `Plus: Haute couture for Snoopy and a final ruling on the shoe of the summer.`\
 https://www.nytimes.com/2026/08/18/style/nigel-farage-style-uk.html
