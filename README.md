@@ -1,3 +1,7 @@
+**Frank Beard, Beardless Drummer for ZZ Top, Dies at 77**\
+`The only member of the Texas power trio without a beard, he propelled the band’s blend of boogie, Southern rock and blues for more than a half-century.`\
+https://www.nytimes.com/2026/08/18/arts/music/frank-beard-zz-top-dead.html
+
 **Map: 5.3-Magnitude Earthquake Shakes Afghanistan**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/08/18/world/asia/afghanistan-quake-tracker.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/interactive/2026/08/18/us/elections/results-arkansas-sta
 **Florida Third Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Florida primary election.`\
 https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-us-house-3-primary.html
-
-**Florida 15th Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Florida primary election.`\
-https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-us-house-15-primary.html
 
 **Election Live Updates: Florida, Alaska and Wyoming Hold Key Primaries**\
 `Florida’s redrawn congressional districts have set up compelling contests, while Alaska’s Senate primary will test candidates’ strength. Voters in California will decide who replaces former Representative Eric Swalwell.`\
