@@ -1,3 +1,7 @@
+**Family and Lawmakers Press for Information on ICE Shooting in Maine**\
+`Democratic members of Congress held a public forum on Monday on the fatal ICE shooting in July of a Colombian immigrant, Johan Sebastián Durán Guerrero.`\
+https://www.nytimes.com/video/us/100000011097266/biddeford-maine-ice-shooting-hearing.html
+
 **En Italia, un sacerdote africano llena el vacío que dejó la escasez de curas**\
 `Los migrantes llevan mucho tiempo paliando la escasez de mano de obra en las granjas y fábricas de Italia. Pero las iglesias también necesitan sacerdotes de origen extranjero, como el reverendo Vincent Souly.`\
 https://www.nytimes.com/es/2026/08/18/espanol/mundo/sacerdote-africano-iglesia-italia.html
