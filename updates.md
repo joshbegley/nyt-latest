@@ -1,3 +1,7 @@
+**Rosie O’Donnell Just Knows Trump Is Watching Her Host ‘Jimmy Kimmel Live’**\
+`“And if you thought the president hated ‘Jimmy Kimmel Live’ when it was hosted by Jimmy Kimmel, buckle up, people. Buckle up!” O’Donnell said.`\
+https://www.nytimes.com/2026/08/18/arts/television/rosie-odonnell-jimmy-kimmel-trump.html
+
 **Chocó, Colombia, Faces Deeper Hardship After an Earthquake**\
 `In Chocó, a remote region, “pain, hunger and homelessness await” survivors of last week’s earthquake, the governor said. Shakira visited to help draw awareness.`\
 https://www.nytimes.com/2026/08/18/world/americas/colombia-earthquake-choco.html
