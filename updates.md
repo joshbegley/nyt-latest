@@ -1,3 +1,7 @@
+**Nigel Farage’s Oddly American Outfit**\
+`Plus: Haute couture for Snoopy and a final ruling on the shoe of the summer.`\
+https://www.nytimes.com/2026/08/18/style/nigel-farage-style-uk.html
+
 **Israel Strikes Air Base in Syria, Drawing Ire From the U.S.**\
 `The attack follows a series of military interventions in Syria over the past two years, and spurred the latest American rebuke of Israeli actions in recent weeks.`\
 https://www.nytimes.com/2026/08/18/world/middleeast/israel-airstrikes-syria-air-base.html

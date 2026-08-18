@@ -1,3 +1,7 @@
+**Who Is Ahead in Rhode Island's 2nd Congressional District?**\
+`Track the latest polls in Rhode Island's 2nd Congressional District.`\
+https://www.nytimes.com/interactive/polls/rhode-island-us-house-2-polls-2026.html
+
 **Israel Strikes Air Base in Syria, Drawing Ire From the U.S.**\
 `The attack follows a series of military interventions in Syria over the past two years, and spurred the latest American rebuke of Israeli actions in recent weeks.`\
 https://www.nytimes.com/2026/08/18/world/middleeast/israel-airstrikes-syria-air-base.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-us-s
 **Florida Seventh Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Florida primary election.`\
 https://www.nytimes.com/interactive/2026/08/18/us/elections/results-florida-us-house-7-primary.html
-
-**Alaska Governor Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Alaska primary election.`\
-https://www.nytimes.com/interactive/2026/08/18/us/elections/results-alaska-governor-primary.html
 
