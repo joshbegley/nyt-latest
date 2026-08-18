@@ -1,3 +1,11 @@
+**Florida’s Polling Picture Is Limited Other Than One Key Race**\
+`Representative Byron Donalds had a wide lead in polls of the race for the Republican nomination for governor. Polling was sparse in every other statewide contest.`\
+https://www.nytimes.com/2026/08/18/us/politics/florida-polling-byron-donalds.html
+
+**OpenAI presenta ‘ChatGPT para adolescentes’**\
+`La “start-up” de inteligencia artificial anunció un modo de chatbot que limitará automáticamente algunas conversaciones para proteger mejor a los usuarios jóvenes.`\
+https://www.nytimes.com/es/2026/08/18/espanol/negocios/openai-chatgpt-adolescentes.html
+
 **Hurricane Lala Destroyed a Hawaii Cemetery, Setting Off a Hunt for the Dead**\
 `In the hamlet of Naalehu, the floods of Hurricane Lala opened graves. One mother sought desperately for her son.`\
 https://www.nytimes.com/2026/08/18/us/hurricane-lala-hawaii-naalehu-cemetery.html
