@@ -1,3 +1,7 @@
+**Judge Orders Release of Woman Accused of Vandalizing World War II Memorial**\
+`Prosecutors led by Jeanine Pirro, the U.S. attorney in Washington, argued that Melissa Farris posed a flight risk and asked the court to reverse its decision.`\
+https://www.nytimes.com/2026/08/18/us/politics/wwii-memorial-vandalism-trump-pirro.html
+
 **Family and Lawmakers Press for Information on ICE Shooting in Maine**\
 `Democratic members of Congress held a public forum on Monday on the fatal ICE shooting in July of a Colombian immigrant, Johan Sebastián Durán Guerrero.`\
 https://www.nytimes.com/video/us/100000011097266/biddeford-maine-ice-shooting-hearing.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/17/nyregion/luigi-mangione-state-trial-delayed.h
 **Hayden Panettiere: A Life in Pictures**\
 `The actress was a child star who went on to become a fixture of network TV dramas in the 2000s.`\
 https://www.nytimes.com/2026/08/17/arts/television/hayden-panettiere-life-in-pictures.html
-
-**Mamdani Officials Will Skip Council Hearing on Second-Home Tax**\
-`The administration plans to submit written testimony instead of attending, city officials said. A lawsuit over the rollout of the tax is pending.`\
-https://www.nytimes.com/2026/08/17/nyregion/mamdani-city-council-hearing-second-home-tax.html
 
