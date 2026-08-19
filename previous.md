@@ -103,7 +103,7 @@ https://www.nytimes.com/2026/08/19/technology/personaltech/google-pixel-11-revie
 https://www.nytimes.com/video/podcasts/100000011101005/ai-relationships-bridget-todd.html
 
 **As More Americans Turn to Cannabis, Problem Use Is Increasing**\
-`More Americans are reporting they are unable to quit or cut down.`\
+`A growing number of Americans report they are unable to quit or cut down.`\
 https://www.nytimes.com/2026/08/19/well/cannabis-use-disorder-alcohol.html
 
 **¿Quién es Natalie Harp? Esto sabemos sobre la ayudante de Trump**\

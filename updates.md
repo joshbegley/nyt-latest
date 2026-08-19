@@ -1,3 +1,7 @@
+**As More Americans Turn to Cannabis, Problem Use Is Increasing**\
+`A growing number of Americans report they are unable to quit or cut down.`\
+https://www.nytimes.com/2026/08/19/well/cannabis-use-disorder-alcohol.html
+
 **Questioning the Efficacy of Tariffs**\
 `Readers respond to a guest column about efforts to head off transshipments that can lower the tariffs producing countries are required to pay.`\
 https://www.nytimes.com/2026/08/19/opinion/letters/efficacy-of-tariffs.html
