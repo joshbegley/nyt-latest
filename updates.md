@@ -1,3 +1,7 @@
+**How to Find the Best Flight and Travel Deals Over Labor Day and Beyond**\
+`Last-minute budget strategies rest on one key principle: flexibility.`\
+https://www.nytimes.com/2026/08/19/travel/travel-deals-labor-day.html
+
 **700,000 Homes Over 10 Years: The Fix for New York’s Housing Crisis**\
 `To address a dire housing shortage, many New York City neighborhoods need to grow faster, a draft report from city officials said.`\
 https://www.nytimes.com/2026/08/19/nyregion/nyc-housing-shortage.html

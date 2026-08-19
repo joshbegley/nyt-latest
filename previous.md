@@ -102,7 +102,7 @@ https://www.nytimes.com/2026/08/19/arts/television/jessica-williams-shrinking-em
 `They must embrace the heterodoxy that governs how swing voters think.`\
 https://www.nytimes.com/2026/08/19/opinion/democrats-midterms-supermajority.html
 
-**How to Find the Best Deals Over Labor Day and Beyond**\
+**How to Find the Best Flight and Travel Deals Over Labor Day and Beyond**\
 `Last-minute budget strategies rest on one key principle: flexibility.`\
 https://www.nytimes.com/2026/08/19/travel/travel-deals-labor-day.html
 
