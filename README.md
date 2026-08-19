@@ -1,3 +1,7 @@
+**5 Things to Know About Byron Donalds, Republican Nominee for Florida Governor**\
+`Representative Donalds, the Republican nominee for governor of Florida, made a name as a Black conservative in Congress, but his loyalty to President Trump has been his ticket.`\
+https://www.nytimes.com/2026/08/18/us/politics/who-is-byron-donalds.html
+
 **5 Things to Know About David Jolly, the Democratic Nominee for Florida Governor**\
 `A former Republican, he plans to run on an affordability agenda.`\
 https://www.nytimes.com/2026/08/18/us/politics/5-things-to-know-about-david-jolly-the-democratic-nominee-for-florida-governor.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/08/18/dining/restaurant-review-bar-chimera-nyc.html
 **Outshine Frozen Fruit Bars Recalled Over Glass Contamination Concern**\
 `The parent company, Dreyer’s Grand Ice Cream, voluntarily recalled five flavors nationwide. No injuries linked to the recalled products have been reported.`\
 https://www.nytimes.com/2026/08/18/us/outshine-recall-glass-frozen-fruit-treat.html
-
-**Two Workers Killed After Explosion at Ohio Recycling Plant**\
-`Two people were killed after an explosion at a recycling facility in Toledo, Ohio, shortly before 5 a.m. on Tuesday. Local officials said there was no immediate threat to the surrounding area.`\
-https://www.nytimes.com/video/us/100000011098788/ohio-recycling-plant-explosion-missing-workers.html
 
 **Election Live Updates: Democratic Socialist Scores Florida Upset in Latest Victory for Progressives**\
 `State Representative Angie Nixon, a progressive firebrand, defeated Alex Vindman, who had far out-raised her. Byron Donalds, a Trump-backed congressman, will face David Jolly in the Florida governor’s race in November.`\
