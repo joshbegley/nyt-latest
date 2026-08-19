@@ -1,3 +1,15 @@
+**What to Know About Iran’s Economic Ties With Gulf Countries**\
+`The United Arab Emirates, Iran’s most important regional trading partner, announced a total embargo on transactions with Tehran on Tuesday.`\
+https://www.nytimes.com/2026/08/19/world/middleeast/iran-emirates-gulf-economic-ties.html
+
+**Prince Harry and Meghan Will Move Back to U.K. After 6 Years in U.S.**\
+`The prince and his wife, whose relations with King Charles and the rest of the royal family have long been strained, will remain non-working royals, according to a person familiar with the decision.`\
+https://www.nytimes.com/2026/08/19/world/europe/prince-harry-meghan-return-uk.html
+
+**Driver Kills 2 Milligan University Cycling Team Members, Officials Say**\
+`Milligan University said two members of its cycling team had been killed. The driver was charged with vehicular homicide by recklessness.`\
+https://www.nytimes.com/2026/08/19/us/cycling-team-crash-milligan-university.html
+
 **5 Americans and Ecuadorean Official Are Killed in Helicopter Crash in Kenya**\
 `Ecuador’s director of national intelligence was also among those who died in the crash. The search and recovery efforts were being hampered by a fire at the site and the difficult terrain, officials said.`\
 https://www.nytimes.com/2026/08/19/world/africa/helicopter-crash-kenya.html
