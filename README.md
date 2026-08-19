@@ -22,7 +22,7 @@ https://www.nytimes.com/2026/08/19/business/economy/us-debt-40-trillion.html
 `The country’s small-scale gold mining sector has been booming in recent years, leading to a series of deadly accidents.`\
 https://www.nytimes.com/2026/08/19/world/africa/central-african-republic-gold-mine-collapse.html
 
-**Mamdani to Sue City Council Over $10,000 Bonuses to Teachers’ Aides**\
+**Mamdani Sues City Council Over $10,000 Bonuses to Teachers’ Aides**\
 `New York City says the Council’s legislation violates collective bargaining law. The dispute could set up the first high-profile battle between the mayor and a public sector union.`\
 https://www.nytimes.com/2026/08/19/nyregion/mamdani-ny-city-council-lawsuit-teachers.html
 
