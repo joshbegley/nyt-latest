@@ -1,3 +1,27 @@
+**Trump to Appear on Radio With Michael Cohen, His Onetime Nemesis**\
+`The call is the latest sign of a rapprochement between President Trump and his former fixer, who served as the star witness against his former boss in New York State Court.`\
+https://www.nytimes.com/2026/08/19/us/politics/trump-podcast-michael-cohen.html
+
+**Harry and Meghan Will Move Back to Britain After 6 Years in U.S.**\
+`The prince and his wife, whose relations with King Charles and the rest of the royal family have long been strained, will remain non-working royals, according to a person familiar with the decision.`\
+https://www.nytimes.com/2026/08/19/world/europe/prince-harry-meghan-return-uk.html
+
+**Why Treasury Yields Are Rising, and What That Means for the Economy**\
+`Interest rates on U.S. government bonds can affect everything from auto and student loans to mortgages.`\
+https://www.nytimes.com/2026/08/19/business/treasury-bonds-yields-economy.html
+
+**Alabama Democrats Look for a Black Backlash Over Voting Rights**\
+`Democrats in Alabama and beyond are trying to harness Black anger over the Supreme Court’s weakening of the Voting Rights Act and the Republican redistricting that followed.`\
+https://www.nytimes.com/2026/08/19/us/politics/alabama-voting-rights-act-black-voters.html
+
+**Columnist Ross Barkan Apologizes Amid Plagiarism Scandal**\
+`Mr. Barkan, who has written for New York magazine and The New York Times, said he had “never intended to crib from anyone’s work.”`\
+https://www.nytimes.com/2026/08/19/business/media/ross-barkan-plagiarism-apology.html
+
+**Sheet-Pan Shrimp Oreganata**\
+`This breezy weeknight meal loads fresh shrimp with fistfuls of garlicky, seasoned bread crumbs, which crisp and brown on top and plump up and soften underneath as they roast, soaking up the buttery wine sauce at the bottom of the sheet pan.`\
+https://www.nytimes.com/video/dining/100000011101255/sheet-pan-shrimp-oreganata.html
+
 **Trump vs. the International Criminal Court**\
 `The U.S. approach to the court has always been complicated. Now, it’s openly hostile.`\
 https://www.nytimes.com/2026/08/19/world/trump-icc-israel-investigation.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/es/2026/08/19/espanol/estados-unidos/natalie-harp-ayudan
 **Some Stand-Up Comics Are Pivoting Away From Video on Social Media**\
 `Comedians used to post footage of their performances to build a following. Now, some are finding that comic strip-style panels with captions pack a bigger punch.`\
 https://www.nytimes.com/2026/08/19/arts/comedians-social-media-photos-captions.html
-
-**Markets Rally After U.S. Treasury Eases Bond Investor Stress**\
-`Government bond yields fell and stocks rose on a move by the Treasury Department to double the amount of debt that it can buy back from investors.`\
-https://www.nytimes.com/2026/08/19/business/bond-yields-treasury-department.html
-
-**On Dementia, Fauci and Fashion Slop: The Winners of Week 9 of Our Summer Reading Contest**\
-`This week we honor two videos and an essay. Congratulations to Lilian Fu, Jun X. Ren and Ava Castillo!`\
-https://www.nytimes.com/2026/08/19/learning/on-dementia-fauci-and-fashion-slop-the-winners-of-week-9-of-our-summer-reading-contest.html
-
-**Elecciones primarias en Florida: resultados, conclusiones y más**\
-`La representante estatal Angie Nixon, una progresista, derrotó a un moderado que la superó drásticamente en recaudación de fondos gracias al entusiasmo de las bases.`\
-https://www.nytimes.com/es/2026/08/19/espanol/elecciones-florida-resultados.html
-
-**Judge Is Asked to Block Inscription of Trump’s Name on Kennedy Center**\
-`The request from a Democratic lawmaker follows a decision by the Trump-allied board to add “Restored and Renovated by President Donald J. Trump” to the building.`\
-https://www.nytimes.com/2026/08/19/arts/music/judge-trump-name-kennedy-center.html
-
-**Today, In Short**\
-`Summer reading. Surfing. And matchmaking.`\
-https://www.nytimes.com/2026/08/19/briefing/today-in-short.html
-
-**‘It’s Bonkers’: Jennifer Hegseth’s Hands-On Role in Her Husband’s Pentagon**\
-`After an 18-year career at Fox News, she is now her husband’s most influential adviser and de facto producer, shaping the job like no Pentagon spouse has before.`\
-https://www.nytimes.com/2026/08/19/style/jennifer-hegseth.html
 
