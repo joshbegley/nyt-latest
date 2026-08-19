@@ -1,3 +1,7 @@
+**Rosie O’Donnell Rags on Trump’s Strait of Hormuz Claims**\
+`“I’ll put it this way: If the U.S. is in charge of the strait, then I’m also straight — and let’s face it, I’m not,” the guest host said on “Jimmy Kimmel Live.”`\
+https://www.nytimes.com/2026/08/19/arts/television/rosie-odonnell-late-night-trump-strait-of-hormuz.html
+
 **The ‘Crack Spread’ Is Going to Make Your Life Unpleasant**\
 `Gas prices are going to remain high. Don’t blame the price of crude oil.`\
 https://www.nytimes.com/2026/08/19/opinion/gas-prices-crude-oil-diesel.html
