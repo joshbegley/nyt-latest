@@ -1,3 +1,7 @@
+**Rosie O’Donnell Rags on Trump’s Strait of Hormuz Claims**\
+`“I’ll put it this way: If the U.S. is in charge of the strait, then I’m also straight — and let’s face it, I’m not,” the guest host said on “Jimmy Kimmel Live.”`\
+https://www.nytimes.com/2026/08/19/arts/television/rosie-odonnell-late-night-trump-strait-of-hormuz.html
+
 **Scion of Democratic Politics Makes Runoff for Alaska Governor**\
 `Tom Begich, a former Democratic legislator and singer-songwriter, will be one of four candidates on the ranked-choice ballot for governor in November.`\
 https://www.nytimes.com/2026/08/19/us/politics/tom-begich-alaska-governor.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/es/2026/08/18/espanol/estados-unidos/trump-kim-jong-un-i
 **Apple Removes Some Fees for App Developers in European Union**\
 `The move followed a long battle with regulators over the company’s tight controls of its App Store.`\
 https://www.nytimes.com/2026/08/18/technology/apple-fees-european-union.html
-
-**Voters Head to the Polls on Either End of the Country**\
-`Also, it’s crunch time for U.S.-Canada trade. Here’s the latest at the end of Tuesday.`\
-https://www.nytimes.com/2026/08/18/briefing/primary-day-alaska-florida.html
 
 **Election Live Updates: Top Candidates Advance in Alaska Senate Race as Democratic Socialist Scores Florida Upset**\
 `A Democratic former congresswoman will face Alaska’s incumbent Republican senator in November. In Florida, Angie Nixon overcame a huge fund-raising disadvantage to defeat Alex Vindman.`\
