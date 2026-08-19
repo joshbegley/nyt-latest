@@ -1,3 +1,7 @@
+**‘With All My Heart, Natalie.’ Trump’s Most Devoted Aide Emerges.**\
+`President Trump’s White House aide Natalie Harp is always by his side. What, exactly, does she do?`\
+https://www.nytimes.com/2026/08/18/us/politics/natalie-harp-trump-devotion-white-house.html
+
 **Florida Media Mogul Jim Schwartzel Wins Republican House Primary to Replace Byron Donalds**\
 `Jim Schwartzel defeated a large field of competitors for a House seat based in Fort Myers, including several candidates who had recently established Florida residency.`\
 https://www.nytimes.com/2026/08/18/us/politics/florida-republican-primary-19-district.html
