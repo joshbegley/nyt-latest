@@ -1,3 +1,7 @@
+**Una nueva vacuna podría evitar que el melanoma reaparezca**\
+`Moderna y Merck dicen que la vacuna experimental de ARNm previno la reaparición y la propagación del cáncer en pacientes con melanoma de alto riesgo.`\
+https://www.nytimes.com/es/2026/08/19/espanol/ciencia-y-tecnologia/vacuna-melanoma.html
+
 **Driver Kills Two College Cyclists in Tennessee, Officials Say**\
 `Milligan University said two members of its cycling team had been killed. Five others were injured, officials said.`\
 https://www.nytimes.com/2026/08/19/us/cycling-team-crash-milligan-university.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/19/podcasts/the-daily/el-nino-climate-change-hea
 **How Tech Executives Limit Their Kids’ Screen Time, and Trump’s Race to Finish His Ballroom**\
 `Plus, the political emails are coming for you.`\
 https://www.nytimes.com/2026/08/19/podcasts/the-headlines/screen-time-kids-trump-ballroom.html
-
-**NYT Connections Answers for August 20, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, Aug. 20, 2026.`\
-https://www.nytimes.com/2026/08/19/crosswords/connections-companion-1166.html
 
