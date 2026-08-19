@@ -1,3 +1,15 @@
+**In Berkeley, Calif., a Pioneering Modernist Home for $1.425 Million**\
+`The Kip House, designed by Donald Olsen for an eminent physicist, is on the market for only the second time in its history.`\
+https://www.nytimes.com/2026/08/19/realestate/in-berkeley-calif-a-pioneering-modernist-home-for-1-425-million.html
+
+**My Husband Has Alzheimer’s. Can I Date Other People?**\
+`I’m now his caregiver, a single mother and the breadwinner for our family.`\
+https://www.nytimes.com/2026/08/19/magazine/husband-alzheimers-dating-ethics.html
+
+**The A.I. in Google’s New Pixel 11 Is Not Very Helpful**\
+`The phone’s artificial intelligence can order groceries, book tables and take photos on a user’s behalf. But is it something people really want?`\
+https://www.nytimes.com/2026/08/19/technology/personaltech/google-pixel-11-review.html
+
 **Why A.I. Relationships Fizzle**\
 `The writer and podcaster Bridget Todd tells the “Modern Love” podcast host, Anna Martin, why she believes even people who develop intensely intimate bonds with their chatbots lose interest in these “relationships” eventually.`\
 https://www.nytimes.com/video/podcasts/100000011101005/ai-relationships-bridget-todd.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/08/19/us/california-palisades-fire-retrial-rinderkn
 **Which $1.5 Million South Florida Home Would You Pick?**\
 `This week’s properties are in Miami, West Palm Beach and Key West.`\
 https://www.nytimes.com/2026/08/19/realestate/homes-for-sale-in-west-palm-beach-key-west-miami.html
-
-**Jessica Williams Discusses Her Emmy-Nominated Role in ‘Shrinking’**\
-`The actress has received an Emmy nomination for each season of the Apple TV comedy. She can’t think about winning.`\
-https://www.nytimes.com/2026/08/19/arts/television/jessica-williams-shrinking-emmy.html
-
-**Democrats Can’t Fix This Mess Without a Supermajority**\
-`They must embrace the heterodoxy that governs how swing voters think.`\
-https://www.nytimes.com/2026/08/19/opinion/democrats-midterms-supermajority.html
-
-**How to Find the Best Flight and Travel Deals Over Labor Day and Beyond**\
-`Last-minute budget strategies rest on one key principle: flexibility.`\
-https://www.nytimes.com/2026/08/19/travel/travel-deals-labor-day.html
 
