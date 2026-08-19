@@ -1,8 +1,12 @@
+**Trump Ally Scott Singer Wins Republican Primary in Florida’s 25th District**\
+`Scott Singer will face the winner of the Democratic primary in one of the most competitive House races in the nation.`\
+https://www.nytimes.com/2026/08/18/us/politics/florida-republican-primary-25-district.html
+
 **California Becomes First State to Regulate the Squish of Car Tires**\
 `The rule to require efficient replacement tires was praised by environmentalists. But manufacturers warned that the change would hurt American companies and increase tire prices.`\
 https://www.nytimes.com/2026/08/18/us/california-tires-energy-efficient-standards.html
 
-**Representative Cory Mills Loses G.O.P. House Primary in Florida**\
+**Cory Mills Loses Republican Primary Amid Assault Allegations and Ethics Investigation**\
 `Mr. Mills, who is under investigation by the House Ethics Committee and has faced allegations of assault and threatening behavior toward women, lost to Ryan Elijah, a former TV news anchor.`\
 https://www.nytimes.com/2026/08/18/us/politics/mills-elijah-florida-republican-primary.html
 
@@ -190,7 +194,7 @@ https://www.nytimes.com/video/us/100000011098788/ohio-recycling-plant-explosion-
 `The U.S. condemned Israel for its strike on a defunct military air base in Syria. Although the attack did not cause any casualties, according to Syrian state media, it follows a series of fractures between the two countries in recent weeks.`\
 https://www.nytimes.com/video/world/middleeast/100000011098732/israel-syria-military-base-air-strike.html
 
-**Election Live Updates: Democratic Socialist Scores Upset Victory in Florida**\
-`State Representative Angie Nixon, a progressive firebrand, defeated Alex Vindman, who had far out-raised her. Alaska’s Senate primary will test candidates’ strength, while voters in California will decide who replaces former Representative Eric Swalwell.`\
+**Election Live Updates: Democratic Socialist Scores Florida Upset in Latest Victory for Progressives**\
+`State Representative Angie Nixon, a progressive firebrand, defeated Alex Vindman, who had far out-raised her. Byron Donalds, a Trump-backed congressman, will face David Jolly in the Florida governor’s race in November.`\
 https://www.nytimes.com/live/2026/08/18/us/elections-florida-california-alaska
 
