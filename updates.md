@@ -1,3 +1,7 @@
+**More Fed Officials Lost Patience About Elevated Inflation at Latest Meeting**\
+`Minutes from the Federal Reserve’s July gathering showed broadening support for higher borrowing costs to stamp out lingering price pressures.`\
+https://www.nytimes.com/2026/08/19/business/federal-reserve-interest-rates.html
+
 **In Wyoming’s G.O.P. Primaries, an Emphatic Rebuke of the Hard Right**\
 `The Wyoming Freedom Caucus had ambitions for a total takeover of elected state government. But its candidates were rejected from the governor’s mansion to the Legislature.`\
 https://www.nytimes.com/2026/08/19/us/elections/wyoming-republicans-moderate.html
