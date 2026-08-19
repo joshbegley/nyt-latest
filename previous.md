@@ -66,8 +66,8 @@ https://www.nytimes.com/2026/08/18/us/politics/south-carolina-senate-runoff-deba
 `A burst of ad spending is part of a campaign tactic in which the major parties try to boost fringe hopefuls on the other side.`\
 https://www.nytimes.com/2026/08/18/us/politics/alaska-senate-primary-election-meddling.html
 
-**Pentagon Scales Back Major Training Exercises With South Korea**\
-`The move to end the military training a week earlier than scheduled comes after President Trump ordered the Defense Department to reduce joint military exercises with the key U.S. ally.`\
+**U.S. Cuts Back Military Drills With South Korea, as Trump Woos Kim Jong-un**\
+`President Trump had ordered the Defense Department to reduce joint exercises with the key U.S. ally, declaring the drills “hostile” toward North Korea.`\
 https://www.nytimes.com/2026/08/18/us/politics/pentagon-south-korea-training-exercises.html
 
 **Trump to Nominate Heidi Overton, a Top Domestic Policy Aide, for F.D.A. Commissioner**\

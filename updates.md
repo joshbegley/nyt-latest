@@ -1,3 +1,7 @@
+**U.S. Cuts Back Military Drills With South Korea, as Trump Woos Kim Jong-un**\
+`President Trump had ordered the Defense Department to reduce joint exercises with the key U.S. ally, declaring the drills “hostile” toward North Korea.`\
+https://www.nytimes.com/2026/08/18/us/politics/pentagon-south-korea-training-exercises.html
+
 **Top Candidates Advance in Alaska Senate Race as Democratic Socialist Scores Florida Upset**\
 `A Democratic former congresswoman will face Alaska’s incumbent Republican senator in November. In Florida, Angie Nixon overcame a huge fund-raising disadvantage to defeat Alex Vindman.`\
 https://www.nytimes.com/live/2026/08/18/us/elections-florida-california-alaska
