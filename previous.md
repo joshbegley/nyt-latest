@@ -1,3 +1,7 @@
+**5 Americans and Ecuadorean Official Are Killed in Helicopter Crash in Kenya**\
+`Ecuador’s director of national intelligence was also among those who died in the crash. The search and recovery efforts were being hampered by a fire at the site and the difficult terrain, officials said.`\
+https://www.nytimes.com/2026/08/19/world/africa/helicopter-crash-kenya.html
+
 **Trump, Who Has Amassed Enormous Wealth in Crypto, Hosts Industry Leaders**\
 `President Trump called on Congress to pass a major cryptocurrency bill that would tilt regulation in the industry’s favor.`\
 https://www.nytimes.com/2026/08/19/us/politics/trump-crypto-executives.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/19/technology/personaltech/google-pixel-11-revie
 **Why A.I. Relationships Fizzle**\
 `The writer and podcaster Bridget Todd tells the “Modern Love” podcast host, Anna Martin, why she believes even people who develop intensely intimate bonds with their chatbots lose interest in these “relationships” eventually.`\
 https://www.nytimes.com/video/podcasts/100000011101005/ai-relationships-bridget-todd.html
-
-**As More Americans Turn to Cannabis, Problem Use Is Increasing**\
-`A growing number of Americans report they are unable to quit or cut down.`\
-https://www.nytimes.com/2026/08/19/well/cannabis-use-disorder-alcohol.html
 

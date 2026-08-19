@@ -14,7 +14,7 @@ https://www.nytimes.com/2026/08/19/briefing/us-debt-hits-40-trillion.html
 `The call is the latest sign of a rapprochement between President Trump and his former fixer, who served as the star witness against his former boss in New York State Court.`\
 https://www.nytimes.com/2026/08/19/us/politics/trump-podcast-michael-cohen.html
 
-**Harry and Meghan Will Move Back to Britain After 6 Years in U.S.**\
+**Prince Harry and Meghan Will Move Back to U.K. After 6 Years in U.S.**\
 `The prince and his wife, whose relations with King Charles and the rest of the royal family have long been strained, will remain non-working royals, according to a person familiar with the decision.`\
 https://www.nytimes.com/2026/08/19/world/europe/prince-harry-meghan-return-uk.html
 
