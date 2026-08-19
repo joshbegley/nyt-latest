@@ -1,3 +1,15 @@
+**Pentagon Scales Back Major Training Exercises With South Korea**\
+`The move to end the military training a week earlier than scheduled comes after President Trump ordered the Defense Department to reduce joint military exercises with the key U.S. ally.`\
+https://www.nytimes.com/2026/08/18/us/politics/pentagon-south-korea-training-exercises.html
+
+**Trump to Nominate Heidi Overton, a Top Domestic Policy Aide, for F.D.A. Commissioner**\
+`Dr. Overton is a fierce opponent of abortion rights and a supporter of Health Secretary Robert F. Kennedy Jr.’s Make America Healthy Again agenda.`\
+https://www.nytimes.com/2026/08/18/health/heidi-overton-fda.html
+
+**Eric Barlow Wins Wyoming’s Republican Governor Primary Over Trump-Backed Candidate**\
+`Eric Barlow’s defeat of Megan Degenfelder, the state superintendent of education, again showed the limits of the president’s favor.`\
+https://www.nytimes.com/2026/08/18/us/politics/wyoming-governor-republican-primary.html
+
 **Harriet Hageman, Backed by Trump, Wins Wyoming’s Republican Senate Primary**\
 `Ms. Hageman, who unseated Representative Liz Cheney in 2022, is a heavy favorite to replace Senator Cynthia Lummis in the deep-red state.`\
 https://www.nytimes.com/2026/08/18/us/politics/wyoming-senate-trump-republican-hageman.html
@@ -181,18 +193,6 @@ https://www.nytimes.com/video/us/politics/100000011099153/big-bend-texas-border-
 **ICE Bars Its Workers From Wearing Meta’s Smart Glasses on the Job**\
 `The agency joins a growing number of workplaces and groups to ban Meta’s devices, which have spurred privacy concerns.`\
 https://www.nytimes.com/2026/08/18/technology/ice-meta-smart-glasses.html
-
-**Penn State Fraternity Members Are Charged in Cocaine Trafficking Case**\
-`More than a dozen current and former students from two fraternities were part of an operation that involved packaging drugs at fraternity houses, the authorities said.`\
-https://www.nytimes.com/2026/08/18/us/penn-state-fraternity-cocaine.html
-
-**Yes, Woke 1.0 Was Crazy. Now Where’s the Accountability?**\
-`The damage was real and long-lasting.`\
-https://www.nytimes.com/2026/08/18/opinion/woke-liberals-restitution.html
-
-**Erin Patterson, Woman Convicted in Australia’s Mushroom Murder Case, Appeals**\
-`An Australian woman, Erin Patterson, was found guilty of murdering three of her husband’s relatives and trying to kill a fourth by serving them deadly mushrooms.`\
-https://www.nytimes.com/2026/08/18/world/australia/erin-patterson-appeal-mushroom-murder-australia.html
 
 **Election Live Updates: Democratic Socialist Scores Florida Upset in Latest Victory for Progressives**\
 `State Representative Angie Nixon, a progressive firebrand, defeated Alex Vindman, who had far out-raised her. Voters in California will decide who replaces former Representative Eric Swalwell.`\
