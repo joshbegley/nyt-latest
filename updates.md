@@ -1,3 +1,15 @@
+**¿Quién es Natalie Harp? Esto sabemos sobre la ayudante de Trump**\
+`Natalie Harp, colaboradora de la Casa Blanca, siempre está junto al mandatario estadounidense. Esto sabemos sobre ella y su rol.`\
+https://www.nytimes.com/es/2026/08/19/espanol/estados-unidos/natalie-harp-ayudante-trump.html
+
+**Some Stand-Up Comics Are Pivoting Away From Video on Social Media**\
+`Comedians used to post footage of their performances to build a following. Now, some are finding that comic strip-style panels with captions pack a bigger punch.`\
+https://www.nytimes.com/2026/08/19/arts/comedians-social-media-photos-captions.html
+
+**Moderna, Merck Say mRNA Vaccine Prevents Melanoma From Returning**\
+`Moderna and Merck say the experimental vaccine prevented the return and spread of the cancer in high-risk melanoma patients.`\
+https://www.nytimes.com/2026/08/19/science/moderna-merck-mrna-vaccine-melanoma.html
+
 **Markets Rally After U.S. Treasury Tries to Ease Bond Market Stress**\
 `Government bond yields fell and stocks jumped on a move by the Treasury Department to double the amount of debt that it can buy back from investors.`\
 https://www.nytimes.com/2026/08/19/business/bond-yields-treasury-department.html
