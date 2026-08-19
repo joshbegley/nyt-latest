@@ -1,3 +1,7 @@
+**Ukraine’s Ex-Defense Minister Calls for Election, Cementing Break With Zelensky**\
+`Mykhailo Fedorov, a popular young leader who was fired last month, said Russia should not be allowed to dictate when Ukrainians can choose their next government.`\
+https://www.nytimes.com/2026/08/19/world/europe/ukraine-fedorov-zelensky-elections.html
+
 **Kyiv’s Dormition Cathedral is Revived after Russian Drone Strike**\
 `Volunteers and priests rallied to clean up Kyiv’s Dormition Cathedral, still smelling of smoke from a massive blaze, for an anniversary celebration.`\
 https://www.nytimes.com/2026/08/19/world/europe/ukraine-kyiv-cathedral-russia-drone-strike.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/19/us/politics/tom-begich-alaska-governor.html
 **Progressive Democrat Makes Runoff for Alaska Governor**\
 `Jonathan Kreiss-Tomkins, a former state legislator from Sitka, Alaska, will be one of four candidates on the ranked-choice voting ballot in November.`\
 https://www.nytimes.com/2026/08/19/us/politics/jonathan-kreiss-tomkins-alaska-governor.html
-
-**Mary Peltola and Dan Sullivan Advance in Key Alaska Senate Contest**\
-`The Democratic former congresswoman and the incumbent Republican senator will face off in November. Whether a potential spoiler candidate with the same name as the senator qualifies alongside them has not been determined.`\
-https://www.nytimes.com/2026/08/19/us/politics/peltola-sullivan-alaska-senate-primary.html
 
