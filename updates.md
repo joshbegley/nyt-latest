@@ -1,3 +1,11 @@
+**Stripe Buys A.I. Start-Up OpenRouter for $7.5 Billion**\
+`The deal is significant for the artificial intelligence industry, uniting Stripe’s payments business with OpenRouter’s helping businesses direct their spending on A.I. models.`\
+https://www.nytimes.com/2026/08/19/business/stripe-openrouter-ai.html
+
+**The Good List: 6 Things to Add Some Joy to Your Day**\
+`Walk-up songs, a shopping app and a despair antidote.`\
+https://www.nytimes.com/2026/08/19/briefing/19-the-good-list-walk-up-songs-third-thing.html
+
 **In Italy, a Beach Club Run by Nuns Is in Jeopardy**\
 `The Sisters of Charity of Saint Mary have hosted beachgoers in the town of Spotorno for decades. But change is coming.`\
 https://www.nytimes.com/2026/08/19/world/europe/italy-nuns-beach-club.html

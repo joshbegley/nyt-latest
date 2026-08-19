@@ -1,3 +1,11 @@
+**Stripe Buys A.I. Start-Up OpenRouter for $7.5 Billion**\
+`The deal is significant for the artificial intelligence industry, uniting Stripe’s payments business with OpenRouter’s helping businesses direct their spending on A.I. models.`\
+https://www.nytimes.com/2026/08/19/business/stripe-openrouter-ai.html
+
+**The Good List: 6 Things to Add Some Joy to Your Day**\
+`Walk-up songs, a shopping app and a despair antidote.`\
+https://www.nytimes.com/2026/08/19/briefing/19-the-good-list-walk-up-songs-third-thing.html
+
 **In Italy, a Beach Club Run by Nuns Is in Jeopardy**\
 `The Sisters of Charity of Saint Mary have hosted beachgoers in the town of Spotorno for decades. But change is coming.`\
 https://www.nytimes.com/2026/08/19/world/europe/italy-nuns-beach-club.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/08/19/crosswords/connections-companion-1166.html
 **The Nightlife Icon Who Inspired the Duo Behind Matières Fécales**\
 `The designers of the fashion label Matières Fécales, Hannah Rose Dalton and Steven Raj Bhaskaran, discuss a portrait of the Australian performance artist and London club promoter Leigh Bowery by the photographer Nick Knight.`\
 https://www.nytimes.com/video/t-magazine/100000011093452/the-nightlife-icon-who-inspired-the-duo-behind-matieres-fecales.html
-
-**Today’s Wordle Hints for August 20, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, Aug. 20, 2026.`\
-https://www.nytimes.com/2026/08/19/crosswords/wordle-review-1888.html
-
-**NYT Strands Hints for August 20, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, Aug. 20, 2026.`\
-https://www.nytimes.com/2026/08/19/crosswords/strands-sidekick-900.html
 
