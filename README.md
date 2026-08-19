@@ -1,3 +1,7 @@
+**Trump vs. the International Criminal Court**\
+`The U.S. approach to the court has always been complicated. Now, it’s openly hostile.`\
+https://www.nytimes.com/2026/08/19/world/trump-icc-israel-investigation.html
+
 **Where Are Pop Stars Really Born?**\
 `The Slovak singer-songwriter Adéla gained exposure by competing on a reality show to become a member of the girl group KATSEYE, but she ended up carving her own path. Our critic Jon Caramanica dives into how this distinction is on display in her song “Ain’t In LA.”`\
 https://www.nytimes.com/video/podcasts/100000011102157/where-are-pop-stars-really-born.html
@@ -170,8 +174,8 @@ https://www.nytimes.com/es/2026/08/19/espanol/estados-unidos/natalie-harp-ayudan
 `Comedians used to post footage of their performances to build a following. Now, some are finding that comic strip-style panels with captions pack a bigger punch.`\
 https://www.nytimes.com/2026/08/19/arts/comedians-social-media-photos-captions.html
 
-**Markets Rally After U.S. Treasury Tries to Ease Bond Market Stress**\
-`Government bond yields fell and stocks jumped on a move by the Treasury Department to double the amount of debt that it can buy back from investors.`\
+**Markets Rally After U.S. Treasury Eases Bond Investor Stress**\
+`Government bond yields fell and stocks rose on a move by the Treasury Department to double the amount of debt that it can buy back from investors.`\
 https://www.nytimes.com/2026/08/19/business/bond-yields-treasury-department.html
 
 **On Dementia, Fauci and Fashion Slop: The Winners of Week 9 of Our Summer Reading Contest**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/19/briefing/today-in-short.html
 **‘It’s Bonkers’: Jennifer Hegseth’s Hands-On Role in Her Husband’s Pentagon**\
 `After an 18-year career at Fox News, she is now her husband’s most influential adviser and de facto producer, shaping the job like no Pentagon spouse has before.`\
 https://www.nytimes.com/2026/08/19/style/jennifer-hegseth.html
-
-**Meatball Your Cheeseburger**\
-`Turns out, when you combine the creativity of a kid with the cooking know-how of his recipe-developer dad, you get a really great dinner.`\
-https://www.nytimes.com/2026/08/19/dining/meatball-your-cheeseburger.html
 

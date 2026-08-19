@@ -1,3 +1,7 @@
+**Where Are Pop Stars Really Born?**\
+`The Slovak singer-songwriter Adéla gained exposure by competing on a reality show to become a member of the girl group KATSEYE, but she ended up carving her own path. Our critic Jon Caramanica dives into how this distinction is on display in her song “Ain’t In LA.”`\
+https://www.nytimes.com/video/podcasts/100000011102157/where-are-pop-stars-really-born.html
+
 **Chinese Start-Up Lands Reusable Rocket for the First Time**\
 `The milestone by the private company, LandSpace, could put China closer to challenging SpaceX’s rule in lower-cost spaceflight.`\
 https://www.nytimes.com/2026/08/19/world/asia/china-rocket-first-stage-recovery-land.html
@@ -75,7 +79,7 @@ https://www.nytimes.com/es/2026/08/19/espanol/mundo/trump-suspende-aranceles-can
 https://www.nytimes.com/es/2026/08/19/espanol/ciencia-y-tecnologia/vacuna-melanoma.html
 
 **Driver Kills 2 Milligan University Cycling Team Members, Officials Say**\
-`Milligan University said two members of its cycling team had been killed. Five others were injured, officials said.`\
+`Milligan University said two members of its cycling team had been killed. At least seven others were injured, officials said.`\
 https://www.nytimes.com/2026/08/19/us/cycling-team-crash-milligan-university.html
 
 **Stripe Buys A.I. Start-Up OpenRouter for $7.5 Billion**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/19/style/jennifer-hegseth.html
 **Meatball Your Cheeseburger**\
 `Turns out, when you combine the creativity of a kid with the cooking know-how of his recipe-developer dad, you get a really great dinner.`\
 https://www.nytimes.com/2026/08/19/dining/meatball-your-cheeseburger.html
-
-**What Does the Trump Administration Have Against the 26th Amendment?**\
-`American democracy and American higher education are inextricable.`\
-https://www.nytimes.com/2026/08/19/opinion/college-students-voting-civic.html
 
