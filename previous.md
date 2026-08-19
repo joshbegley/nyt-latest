@@ -1,3 +1,7 @@
+**Israel Opens Criminal Inquiries Into Killings of Hind Rajab, 6, and of Medics**\
+`Two high-profile cases that had spurred international condemnation of the country’s conduct in Gaza were transferred to the military police. Such investigations have rarely led to convictions.`\
+https://www.nytimes.com/2026/08/19/world/middleeast/israel-criminal-investigation-hind-rajab-gaza-workers.html
+
 **Why Do People Assume I Have Cancer Just Because I Wear Scarves Over My Short Hair?**\
 `A reader is exasperated by the tender looks and encouraging words she receives from strangers who make assumptions about her health. What can she do?`\
 https://www.nytimes.com/2026/08/19/style/short-hair-cancer-assumptions.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/19/travel/crete-family-vacation.html
 **How Wall St. Profits When Personal Injury Lawsuits Pay Out**\
 `Personal injury cases have exploded, in number and magnitude, funded by companies betting on a win — and offering investors a piece of the action.`\
 https://www.nytimes.com/2026/08/19/business/personal-injury-lawsuits-funding.html
-
-**With Limited Options, Trump Tries Economic Pressure on Iran — Again**\
-`Iran has survived decades of sanctions. Faced with more, it is likely to escalate rather than surrender, analysts said.`\
-https://www.nytimes.com/2026/08/19/world/europe/iran-trump-economic-sanctions-leverage.html
 
