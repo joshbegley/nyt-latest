@@ -54,7 +54,7 @@ https://www.nytimes.com/2026/08/19/us/guo-degang-china-comic-investigated.html
 `A McKenna West-type debacle happened before, and it will happen again.`\
 https://www.nytimes.com/2026/08/19/opinion/when-surrogacy-goes-wrong.html
 
-**The Left Notches Another Win With This Secret Weapon: Old-Fashioned Organizing**\
+**Angie Nixon Notches Another Win for the Left Through Old-Fashioned Organizing**\
 `State Representative Angie Nixon scored a stunning upset on Tuesday in Florida’s Democratic Senate primary. Now comes the hard part: running as a progressive firebrand in a red state.`\
 https://www.nytimes.com/2026/08/19/us/politics/florida-primary-progressives-upset.html
 

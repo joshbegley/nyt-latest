@@ -1,3 +1,7 @@
+**Angie Nixon Notches Another Win for the Left Through Old-Fashioned Organizing**\
+`State Representative Angie Nixon scored a stunning upset on Tuesday in Florida’s Democratic Senate primary. Now comes the hard part: running as a progressive firebrand in a red state.`\
+https://www.nytimes.com/2026/08/19/us/politics/florida-primary-progressives-upset.html
+
 **Kyiv’s Dormition Cathedral is Revived After Russian Drone Strike**\
 `Volunteers and priests rallied to clean up Kyiv’s Dormition Cathedral, still smelling of smoke from a massive blaze, for an anniversary celebration.`\
 https://www.nytimes.com/2026/08/19/world/europe/ukraine-kyiv-cathedral-russia-drone-strike.html
