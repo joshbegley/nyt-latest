@@ -1,3 +1,11 @@
+**5 Things to Know About Byron Donalds, Republican Nominee for Florida Governor**\
+`Representative Donalds, the Republican nominee for governor of Florida, made a name as a Black conservative in Congress, but his loyalty to President Trump has been his ticket.`\
+https://www.nytimes.com/2026/08/18/us/politics/who-is-byron-donalds.html
+
+**5 Things to Know About David Jolly, the Democratic Nominee for Florida Governor**\
+`A former Republican, he plans to run on an affordability agenda.`\
+https://www.nytimes.com/2026/08/18/us/politics/5-things-to-know-about-david-jolly-the-democratic-nominee-for-florida-governor.html
+
 **Trump Ally Scott Singer Wins Republican Primary in Florida’s 25th District**\
 `Scott Singer will face the winner of the Democratic primary in one of the most competitive House races in the nation.`\
 https://www.nytimes.com/2026/08/18/us/politics/florida-republican-primary-25-district.html
