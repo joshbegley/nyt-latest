@@ -1,3 +1,7 @@
+**Judge Is Asked to Block Inscription of Trump’s Name on Kennedy Center**\
+`The request from a Democratic lawmaker follows a decision by the Trump-allied board to add “Restored and Renovated by President Donald J. Trump” to the building.`\
+https://www.nytimes.com/2026/08/19/arts/music/judge-trump-name-kennedy-center.html
+
 **Today, In Short**\
 `Summer reading. Surfing. And matchmaking.`\
 https://www.nytimes.com/2026/08/19/briefing/today-in-short.html
@@ -122,8 +126,8 @@ https://www.nytimes.com/2026/08/19/us/politics/florida-primary-progressives-upse
 `Con la llegada de internet, las tribus comenzaron a mezclarse; ahora es más difícil leer a las personas por el tipo de ropa que usan.`\
 https://www.nytimes.com/es/2026/08/19/espanol/opinion/la-generacion-z-se-viste-como-si-nunca-antes-hubiera-usado-ropa.html
 
-**Trump’s Revenge**\
-`The lust for vengeance shapes the president’s priorities, drives his actions and structures the decisions of his government.`\
+**Trump’s Lust for Vengeance Is Turning Into a Farce**\
+`Revenge shapes the president’s priorities, drives his actions and structures the decisions of his government.`\
 https://www.nytimes.com/2026/08/19/opinion/trumps-revenge.html
 
 **Many Student Loan Borrowers May Have to Switch to Worse Repayment Plans**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/19/well/loneliness-books.html
 **Bridget Todd Doesn’t Trust A.I., But She Told ChatGPT Everything**\
 `The tech writer and podcaster Bridget Todd felt sorry for people who said they had relationships with chatbots. Then she became one of them.`\
 https://www.nytimes.com/2026/08/19/podcasts/bridget-todd-ai-chatgpt.html
-
-**Byron Donalds Is Favored to Become Florida’s First Black Governor**\
-`Byron Donalds, a three-term congressman who won the state’s Republican primary on Tuesday, endorsed President Trump over his own governor, Ron DeSantis. The payoff has been huge.`\
-https://www.nytimes.com/2026/08/19/us/elections/byron-donalds-profile-florida-governors-race.html
 

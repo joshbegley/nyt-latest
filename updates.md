@@ -1,3 +1,11 @@
+**Judge Is Asked to Block Inscription of Trump’s Name on Kennedy Center**\
+`The request from a Democratic lawmaker follows a decision by the Trump-allied board to add “Restored and Renovated by President Donald J. Trump” to the building.`\
+https://www.nytimes.com/2026/08/19/arts/music/judge-trump-name-kennedy-center.html
+
+**Trump’s Lust for Vengeance Is Turning Into a Farce**\
+`Revenge shapes the president’s priorities, drives his actions and structures the decisions of his government.`\
+https://www.nytimes.com/2026/08/19/opinion/trumps-revenge.html
+
 **Today, In Short**\
 `Summer reading. Surfing. And matchmaking.`\
 https://www.nytimes.com/2026/08/19/briefing/today-in-short.html
