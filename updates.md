@@ -1,3 +1,11 @@
+**Why Do People Assume I Have Cancer Just Because I Wear Scarves Over My Short Hair?**\
+`A reader is exasperated by the tender looks and encouraging words she receives from strangers who make assumptions about her health. What can she do?`\
+https://www.nytimes.com/2026/08/19/style/short-hair-cancer-assumptions.html
+
+**Angie Nixon Notches Another Win for the Left Through Old-Fashioned Organizing**\
+`State Representative Angie Nixon scored a stunning upset on Tuesday in Florida’s Democratic Senate primary. Her victory will test the strength of a democratic socialist in a red state.`\
+https://www.nytimes.com/2026/08/19/us/politics/florida-primary-progressives-upset.html
+
 **How to Find the Best Flight and Travel Deals Over Labor Day and Beyond**\
 `Last-minute budget strategies rest on one key principle: flexibility.`\
 https://www.nytimes.com/2026/08/19/travel/travel-deals-labor-day.html

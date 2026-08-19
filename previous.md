@@ -1,3 +1,7 @@
+**Why Do People Assume I Have Cancer Just Because I Wear Scarves Over My Short Hair?**\
+`A reader is exasperated by the tender looks and encouraging words she receives from strangers who make assumptions about her health. What can she do?`\
+https://www.nytimes.com/2026/08/19/style/short-hair-cancer-assumptions.html
+
 **700,000 Homes Over 10 Years: The Fix for New York’s Housing Crisis**\
 `To address a dire housing shortage, many New York City neighborhoods need to grow faster, a draft report from city officials said.`\
 https://www.nytimes.com/2026/08/19/nyregion/nyc-housing-shortage.html
@@ -59,7 +63,7 @@ https://www.nytimes.com/2026/08/19/us/guo-degang-china-comic-investigated.html
 https://www.nytimes.com/2026/08/19/opinion/when-surrogacy-goes-wrong.html
 
 **Angie Nixon Notches Another Win for the Left Through Old-Fashioned Organizing**\
-`State Representative Angie Nixon scored a stunning upset on Tuesday in Florida’s Democratic Senate primary. Now comes the hard part: running as a progressive firebrand in a red state.`\
+`State Representative Angie Nixon scored a stunning upset on Tuesday in Florida’s Democratic Senate primary. Her victory will test the strength of a democratic socialist in a red state.`\
 https://www.nytimes.com/2026/08/19/us/politics/florida-primary-progressives-upset.html
 
 **La generación Z se viste como si nunca antes hubiera usado ropa**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/19/business/personal-injury-lawsuits-funding.htm
 **With Limited Options, Trump Tries Economic Pressure on Iran — Again**\
 `Iran has survived decades of sanctions. Faced with more, it is likely to escalate rather than surrender, analysts said.`\
 https://www.nytimes.com/2026/08/19/world/europe/iran-trump-economic-sanctions-leverage.html
-
-**La relación poco conocida entre la demencia y la epilepsia**\
-`Sus problemas de memoria y confusión parecían síntomas de demencia. Los médicos descubrieron que eran provocados por crisis epilépticas “silenciosas” y pudieron tratarlos.`\
-https://www.nytimes.com/es/2026/08/19/espanol/demencia-epilepsia-relacion.html
 
