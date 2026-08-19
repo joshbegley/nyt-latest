@@ -1,3 +1,7 @@
+**Man Dies at Newly Opened Medical Unit for Rikers Jail**\
+`The death of Christopher Rodriguez is the first at the medical unit, which opened in April at Bellevue Hospital, for people incarcerated on Rikers Island.`\
+https://www.nytimes.com/2026/08/19/nyregion/rikers-death-bellevue.html
+
 **What to Know About Hayden Panettiere’s Death**\
 `The “Nashville” and “Heroes” star had released a memoir months before she died at 36.`\
 https://www.nytimes.com/2026/08/19/arts/music/hayden-panettiere-death-what-to-know.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/19/insider/obits-famous-last-words.html
 **Sen. Darline Graham: ‘I’m Not That Informed on National Security’**\
 `Senator Darline Graham of South Carolina stumbled over a question about the importance of Taiwan to U.S. interests during a debate in a runoff election on Tuesday.`\
 https://www.nytimes.com/video/us/elections/100000011100884/darline-graham-national-security-south-carolina-debate.html
-
-**Former Fauci Adviser Pleads Guilty to Trying to Conceal Covid-Related Records**\
-`Dr. David Morens, a former N.I.H. official, admitted to attempts to conceal emails that discussed the origins of the pandemic.`\
-https://www.nytimes.com/2026/08/19/science/david-morens-covid-fauci.html
 

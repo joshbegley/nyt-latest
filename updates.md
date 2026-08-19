@@ -1,3 +1,7 @@
+**Man Dies at Newly Opened Medical Unit for Rikers Jail**\
+`The death of Christopher Rodriguez is the first at the medical unit, which opened in April at Bellevue Hospital, for people incarcerated on Rikers Island.`\
+https://www.nytimes.com/2026/08/19/nyregion/rikers-death-bellevue.html
+
 **What to Know About Hayden Panettiere’s Death**\
 `The “Nashville” and “Heroes” star had released a memoir months before she died at 36.`\
 https://www.nytimes.com/2026/08/19/arts/music/hayden-panettiere-death-what-to-know.html
