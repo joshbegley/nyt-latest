@@ -1,3 +1,15 @@
+**Markets Rally After U.S. Treasury Tries to Ease Bond Market Stress**\
+`Government bond yields fell and stocks jumped on a move by the Treasury Department to double the amount of debt that it can buy back from investors.`\
+https://www.nytimes.com/2026/08/19/business/bond-yields-treasury-department.html
+
+**On Dementia, Fauci and Fashion Slop: The Winners of Week 9 of Our Summer Reading Contest**\
+`This week we honor two videos and an essay. Congratulations to Lilian Fu, Jun X. Ren and Ava Castillo!`\
+https://www.nytimes.com/2026/08/19/learning/on-dementia-fauci-and-fashion-slop-the-winners-of-week-9-of-our-summer-reading-contest.html
+
+**U.A.E. Announces Halt to Trade With Iran Amid Trump’s Push To Isolate Tehran**\
+`The Emirates has long been a major trading hub for Iran, and analysts say it has been key to Iranian efforts to evade international sanctions, which Emirati officials deny.`\
+https://www.nytimes.com/2026/08/19/world/middleeast/uae-cuts-trade-ties-iran-missiles.html
+
 **Elecciones primarias en Florida: resultados, conclusiones y más**\
 `La representante estatal Angie Nixon, una progresista, derrotó a un moderado que la superó drásticamente en recaudación de fondos gracias al entusiasmo de las bases.`\
 https://www.nytimes.com/es/2026/08/19/espanol/elecciones-florida-resultados.html

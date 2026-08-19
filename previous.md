@@ -1,3 +1,11 @@
+**Markets Rally After U.S. Treasury Tries to Ease Bond Market Stress**\
+`Government bond yields fell and stocks jumped on a move by the Treasury Department to double the amount of debt that it can buy back from investors.`\
+https://www.nytimes.com/2026/08/19/business/bond-yields-treasury-department.html
+
+**On Dementia, Fauci and Fashion Slop: The Winners of Week 9 of Our Summer Reading Contest**\
+`This week we honor two videos and an essay. Congratulations to Lilian Fu, Jun X. Ren and Ava Castillo!`\
+https://www.nytimes.com/2026/08/19/learning/on-dementia-fauci-and-fashion-slop-the-winners-of-week-9-of-our-summer-reading-contest.html
+
 **Elecciones primarias en Florida: resultados, conclusiones y más**\
 `La representante estatal Angie Nixon, una progresista, derrotó a un moderado que la superó drásticamente en recaudación de fondos gracias al entusiasmo de las bases.`\
 https://www.nytimes.com/es/2026/08/19/espanol/elecciones-florida-resultados.html
@@ -74,8 +82,8 @@ https://www.nytimes.com/2026/08/19/business/dealbook/bonds-yields-treasury-ai.ht
 `“I was just longing to let it out,” Camilla said in rare public comments about the king’s 2024 diagnosis, which was not immediately revealed. “But obviously I couldn’t.”`\
 https://www.nytimes.com/2026/08/19/world/europe/camilla-charles-cancer-diagnosis-secret-charity.html
 
-**U.A.E. Halts Trade Ties With Iran and Says It Was Targeted With Missiles**\
-`The Emirates has long been a major trading hub for Iran, and analysts say it has been key to Iranian efforts to evade international sanctions, which the country denies.`\
+**U.A.E. Announces Halt to Trade With Iran Amid Trump’s Push To Isolate Tehran**\
+`The Emirates has long been a major trading hub for Iran, and analysts say it has been key to Iranian efforts to evade international sanctions, which Emirati officials deny.`\
 https://www.nytimes.com/2026/08/19/world/middleeast/uae-cuts-trade-ties-iran-missiles.html
 
 **After the Storm**\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/08/19/opinion/friendship-luxury-good.html
 **The Odyssey of Priam’s Treasure, an Ancient Trove of Artifacts**\
 `A German archaeologist’s dig of important historic pieces in the 1870s set off an ownership battle between Turkey, Germany and Russia, with no signs of abating.`\
 https://www.nytimes.com/2026/08/19/arts/design/priams-treasure-odyssey.html
-
-**For Sale: Baby Clothes, Definitely Worn**\
-`The perfect pair of Levi’s, old Armani. These are the vintage grails some discerning parents are chasing for their toddlers.`\
-https://www.nytimes.com/2026/08/19/style/vintage-baby-clothes-cosmo-darling.html
-
-**Feeling Lonely? These 8 Books Might Help.**\
-`Psychologists, therapists and other experts share the works they recommend to people who are struggling to connect.`\
-https://www.nytimes.com/2026/08/19/well/loneliness-books.html
 
