@@ -1,3 +1,15 @@
+**Why One Times Obits Writer Is Skeptical of Famous Last Words**\
+`Determining the reliability of final thoughts can be a challenge when conveying a person’s life story on deadline.`\
+https://www.nytimes.com/2026/08/19/insider/obits-famous-last-words.html
+
+**Sen. Darline Graham: ‘I’m Not That Informed on National Security’**\
+`Senator Darline Graham of South Carolina stumbled over a question about the importance of Taiwan to U.S. interests during a debate in a runoff election on Tuesday.`\
+https://www.nytimes.com/video/us/elections/100000011100884/darline-graham-national-security-south-carolina-debate.html
+
+**Former Fauci Adviser Pleads Guilty to Trying to Conceal Covid-Related Records**\
+`Dr. David Morens, a former N.I.H. official, admitted to attempts to conceal emails that discussed the origins of the pandemic.`\
+https://www.nytimes.com/2026/08/19/science/david-morens-covid-fauci.html
+
 **The Dresses You Need to Have, From Sundresses to the Perfect Little Black Dress**\
 `These classic styles will simplify getting dressed for nearly any event, from a picnic to a cocktail party.`\
 https://www.nytimes.com/2026/08/19/t-magazine/dress-styles-wardrobe-fashion-essentials.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/08/19/business/student-loans-ibr-paye.html
 **‘Ted Lasso’ Season 4, Episode 3 Recap: Tryouts**\
 `The team begins to take shape.`\
 https://www.nytimes.com/2026/08/19/arts/television/ted-lasso-season-4-episode-3-recap-tryouts.html
-
-**An Otter in the Bronx Is a Big Deal. Here’s Why.**\
-`A photo of a North American river otter suggests a river coming back to life, Bronx Zoo experts say.`\
-https://www.nytimes.com/2026/08/19/nyregion/otter-bronx-river-nyc.html
-
-**Europe Hurries to Fund More Cutting-Edge Businesses to Compete With China and U.S.**\
-`European governments, facing a nearly $1 trillion gap in investment funding, are casting a wide net to back start-ups developing pioneering technologies.`\
-https://www.nytimes.com/2026/08/19/business/economy/europe-investment-innovation-competition-us-china.html
-
-**U.S. Will Try California Arson Suspect Again After Stunning Mistrial**\
-`The man accused of setting the blaze that later turned deadly in the Pacific Palisades is now readying for a new prosecution after a previous effort in June failed.`\
-https://www.nytimes.com/2026/08/19/us/california-palisades-fire-retrial-rinderknecht.html
 
