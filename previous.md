@@ -1,3 +1,7 @@
+**Chinese Robot Maker Unitree Soars 500 Percent in Trading Debut**\
+`Unitree is the second major Chinese technology company linked to the country’s artificial intelligence boom to surge following its initial public offering in the past month.`\
+https://www.nytimes.com/2026/08/18/business/unitree-ipo-trading.html
+
 **Tariffs on Hold as Trump Claims Deal With Canada Is Near**\
 `President Trump announced a three-day delay on imposing 50 percent tariffs in a social media post on Tuesday night, roughly 90 minutes before the 12:01 a.m. deadline.`\
 https://www.nytimes.com/2026/08/18/world/canada/tariffs-trade-trump-carney.html
@@ -190,11 +194,7 @@ https://www.nytimes.com/2026/08/18/world/australia/erin-patterson-appeal-mushroo
 `Although the fate of the ballroom is tied up in court, the Trump administration argues that the project is too far along to be stopped now.`\
 https://www.nytimes.com/2026/08/18/us/politics/trump-ballroom-construction.html
 
-**Many Questions, but Few Answers, at Hearing About N.Y.C. Second-Home Tax**\
-`The Mamdani administration opted to give written testimony to the City Council on the rollout of the new tax, saying officials could not appear in person because of a lawsuit.`\
-https://www.nytimes.com/2026/08/18/nyregion/mamdani-second-home-tax-hearing.html
-
 **Election Live Updates: Democratic Socialist Scores Florida Upset in Latest Victory for Progressives**\
-`State Representative Angie Nixon, a progressive firebrand, defeated Alex Vindman, who had far out-raised her. Byron Donalds, a Trump-backed congressman, will face David Jolly in the Florida governor’s race in November.`\
+`State Representative Angie Nixon, a progressive firebrand, defeated Alex Vindman, who had far out-raised her. Voters in California will decide who replaces former Representative Eric Swalwell.`\
 https://www.nytimes.com/live/2026/08/18/us/elections-florida-california-alaska
 

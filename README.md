@@ -1,3 +1,7 @@
+**Harriet Hageman, Backed by Trump, Wins Wyoming’s Republican Senate Primary**\
+`Ms. Hageman, who unseated Representative Liz Cheney in 2022, is a heavy favorite to replace Senator Cynthia Lummis in the deep-red state.`\
+https://www.nytimes.com/2026/08/18/us/politics/wyoming-senate-trump-republican-hageman.html
+
 **Chinese Robot Maker Unitree Soars 500 Percent in Trading Debut**\
 `Unitree is the second major Chinese technology company linked to the country’s artificial intelligence boom to surge following its initial public offering in the past month.`\
 https://www.nytimes.com/2026/08/18/business/unitree-ipo-trading.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/08/18/opinion/woke-liberals-restitution.html
 **Erin Patterson, Woman Convicted in Australia’s Mushroom Murder Case, Appeals**\
 `An Australian woman, Erin Patterson, was found guilty of murdering three of her husband’s relatives and trying to kill a fourth by serving them deadly mushrooms.`\
 https://www.nytimes.com/2026/08/18/world/australia/erin-patterson-appeal-mushroom-murder-australia.html
-
-**Trump’s Ballroom Is Rising at Breakneck Speed: 20 Hours a Day, 7 Days a Week**\
-`Although the fate of the ballroom is tied up in court, the Trump administration argues that the project is too far along to be stopped now.`\
-https://www.nytimes.com/2026/08/18/us/politics/trump-ballroom-construction.html
 
 **Election Live Updates: Democratic Socialist Scores Florida Upset in Latest Victory for Progressives**\
 `State Representative Angie Nixon, a progressive firebrand, defeated Alex Vindman, who had far out-raised her. Voters in California will decide who replaces former Representative Eric Swalwell.`\

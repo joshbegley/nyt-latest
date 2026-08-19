@@ -1,3 +1,11 @@
+**Chinese Robot Maker Unitree Soars 500 Percent in Trading Debut**\
+`Unitree is the second major Chinese technology company linked to the country’s artificial intelligence boom to surge following its initial public offering in the past month.`\
+https://www.nytimes.com/2026/08/18/business/unitree-ipo-trading.html
+
+**Election Live Updates: Democratic Socialist Scores Florida Upset in Latest Victory for Progressives**\
+`State Representative Angie Nixon, a progressive firebrand, defeated Alex Vindman, who had far out-raised her. Voters in California will decide who replaces former Representative Eric Swalwell.`\
+https://www.nytimes.com/live/2026/08/18/us/elections-florida-california-alaska
+
 **Tariffs on Hold as Trump Claims Deal With Canada Is Near**\
 `President Trump announced a three-day delay on imposing 50 percent tariffs in a social media post on Tuesday night, roughly 90 minutes before the 12:01 a.m. deadline.`\
 https://www.nytimes.com/2026/08/18/world/canada/tariffs-trade-trump-carney.html
