@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Aug. 19, 2026**\
+`Kareem Ayas shares his secret garden.`\
+https://www.nytimes.com/2026/08/18/crosswords/daily-puzzle-2026-08-19.html
+
 **Harvard Agrees to $53 Million Settlement in Body Part Theft Scandal**\
 `The agreement settles lawsuits filed by relatives of people whose remains, donated for medical research and teaching, were stolen and sold by the former manager of the school’s medical morgue.`\
 https://www.nytimes.com/2026/08/18/us/harvard-stolen-body-parts-settlement.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/08/18/polls/median-strategies-polls-bass-california
 **The Tragic Story of Jason Arday**\
 `The Cambridge professor, found dead last week, was at the center of a firestorm about race and hiring. We talk to the reporter covering the story.`\
 https://www.nytimes.com/2026/08/18/world/jason-arday-cambridge-canada-meta.html
-
-**Frank Beard, Beardless Drummer for ZZ Top, Dies at 77**\
-`The only member of the Texas power trio without a beard, he propelled the band’s blend of boogie, Southern rock and blues for more than a half-century.`\
-https://www.nytimes.com/2026/08/18/arts/music/frank-beard-zz-top-dead.html
 
 **Election Live Updates: Democratic Socialist Scores Florida Upset in Latest Victory for Progressives**\
 `State Representative Angie Nixon, a progressive firebrand, defeated Alex Vindman, who had far out-raised her. Byron Donalds, a Trump-backed congressman, will face David Jolly in the Florida governor’s race in November.`\
