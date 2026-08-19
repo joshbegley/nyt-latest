@@ -1,3 +1,7 @@
+**NASA’s Attempt to Save the Swift Telescope Has Failed**\
+`NASA’s Swift Observatory, which studies some of the most powerful explosions in the universe, is expected to burn up in the atmosphere.`\
+https://www.nytimes.com/2026/08/19/science/nasa-swift-telescope-failed-rescue.html
+
 **Derrick Parker, Known as New York’s ‘Hip-Hop Cop,’ Dies at 65**\
 `A veteran detective with deep connections in the city’s rap scene, he served as a one-man intelligence unit and liaison to the music world.`\
 https://www.nytimes.com/2026/08/19/nyregion/derrick-parker-dead.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/us/100000011066777/inside-the-data-center-capital-
 **Voters Aren’t Waiting for November to Try Ousting Officials Over Data Centers**\
 `As a backlash grows over data centers, more local officials are facing recall elections for their support of the computing sites.`\
 https://www.nytimes.com/2026/08/19/technology/data-centers-voter-concerns-independence-missouri.html
-
-**A County Got Rich From Data Centers. Some Question ‘At What Cost?’**\
-`Loudoun County, Va., hosts more than 250 data centers that bring in huge tax revenues. But some officials and residents worry the county has become too dependent on that cash.`\
-https://www.nytimes.com/2026/08/19/technology/data-centers-backlash-loudoun-virginia.html
 
