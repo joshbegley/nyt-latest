@@ -1,3 +1,7 @@
+**U.S. Debt Hits $40 Trillion**\
+`Also, Trump nominates a Kennedy ally to lead the F.D.A. Here’s the latest at the end of Wednesday.`\
+https://www.nytimes.com/2026/08/19/briefing/us-debt-hits-40-trillion.html
+
 **Trump to Appear on Radio With Michael Cohen, His Onetime Nemesis**\
 `The call is the latest sign of a rapprochement between President Trump and his former fixer, who served as the star witness against his former boss in New York State Court.`\
 https://www.nytimes.com/2026/08/19/us/politics/trump-podcast-michael-cohen.html

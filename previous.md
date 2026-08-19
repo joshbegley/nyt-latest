@@ -1,3 +1,7 @@
+**U.S. Debt Hits $40 Trillion**\
+`Also, Trump nominates a Kennedy ally to lead the F.D.A. Here’s the latest at the end of Wednesday.`\
+https://www.nytimes.com/2026/08/19/briefing/us-debt-hits-40-trillion.html
+
 **Trump to Appear on Radio With Michael Cohen, His Onetime Nemesis**\
 `The call is the latest sign of a rapprochement between President Trump and his former fixer, who served as the star witness against his former boss in New York State Court.`\
 https://www.nytimes.com/2026/08/19/us/politics/trump-podcast-michael-cohen.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/19/well/cannabis-use-disorder-alcohol.html
 **¿Quién es Natalie Harp? Esto sabemos sobre la ayudante de Trump**\
 `Natalie Harp, colaboradora de la Casa Blanca, siempre está junto al mandatario estadounidense. Esto sabemos sobre ella y su rol.`\
 https://www.nytimes.com/es/2026/08/19/espanol/estados-unidos/natalie-harp-ayudante-trump.html
-
-**Some Stand-Up Comics Are Pivoting Away From Video on Social Media**\
-`Comedians used to post footage of their performances to build a following. Now, some are finding that comic strip-style panels with captions pack a bigger punch.`\
-https://www.nytimes.com/2026/08/19/arts/comedians-social-media-photos-captions.html
 

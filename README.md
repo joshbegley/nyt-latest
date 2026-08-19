@@ -1,3 +1,7 @@
+**Trump, Who Has Amassed Enormous Wealth in Crypto, Hosts Industry Leaders**\
+`President Trump called on Congress to pass a major cryptocurrency bill that would tilt regulation in the industry’s favor.`\
+https://www.nytimes.com/2026/08/19/us/politics/trump-crypto-executives.html
+
 **U.S. Debt Hits $40 Trillion**\
 `Also, Trump nominates a Kennedy ally to lead the F.D.A. Here’s the latest at the end of Wednesday.`\
 https://www.nytimes.com/2026/08/19/briefing/us-debt-hits-40-trillion.html
@@ -63,7 +67,7 @@ https://www.nytimes.com/2026/08/19/world/africa/central-african-republic-gold-mi
 https://www.nytimes.com/2026/08/19/nyregion/mamdani-ny-city-council-lawsuit-teachers.html
 
 **NASA’s Attempt to Save the Swift Telescope Has Failed**\
-`NASA’s Swift Observatory, which studies some of the most powerful explosions in the universe, is expected to burn up in the atmosphere.`\
+`NASA’s Swift Observatory, which studies some of the most powerful explosions in the universe, will soon burn up in the atmosphere.`\
 https://www.nytimes.com/2026/08/19/science/nasa-swift-telescope-failed-rescue.html
 
 **Derrick Parker, Known as New York’s ‘Hip-Hop Cop,’ Dies at 65**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/podcasts/100000011101005/ai-relationships-bridget-
 **As More Americans Turn to Cannabis, Problem Use Is Increasing**\
 `A growing number of Americans report they are unable to quit or cut down.`\
 https://www.nytimes.com/2026/08/19/well/cannabis-use-disorder-alcohol.html
-
-**¿Quién es Natalie Harp? Esto sabemos sobre la ayudante de Trump**\
-`Natalie Harp, colaboradora de la Casa Blanca, siempre está junto al mandatario estadounidense. Esto sabemos sobre ella y su rol.`\
-https://www.nytimes.com/es/2026/08/19/espanol/estados-unidos/natalie-harp-ayudante-trump.html
 
