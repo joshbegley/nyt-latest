@@ -1,4 +1,4 @@
-**The Topsy-Turvy World of Trump’s Canada Tariffs**\
+**Trump and Canada’s Carney Seem to Make Progress on a Tariff Deal, but Questions Linger**\
 `After a deadline extension, the latest U.S. tariff threats seemed headed toward resolution on Wednesday, but questions lingered about what Canada would give up, and what it would get in exchange.`\
 https://www.nytimes.com/2026/08/19/world/canada/trump-canada-tariffs-carney-deal-trade.html
 
