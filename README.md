@@ -1,3 +1,7 @@
+**More of Trump’s Chosen Candidates Lose Republican Primaries**\
+`A series of recent losses has eroded the president’s winning record, raising new questions about his hold over the party’s voters.`\
+https://www.nytimes.com/2026/08/19/us/politics/trump-primary-election-republican-endorsements.html
+
 **U.S. Debt Hits $40 Trillion as America’s Borrowing Binge Continues**\
 `President Trump’s promises to restore fiscal order and reduce the amount of America’s debt burden have been hampered by spending on the Iran war, tax cuts and tariff refunds.`\
 https://www.nytimes.com/2026/08/19/business/economy/us-debt-40-trillion.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/19/world/iran-war-reader-questions.html
 **El novio que abusó de Hayden Panettiere había vuelto a su vida**\
 `A pesar de los esfuerzos de la actriz por superar una relación turbulenta con Brian Hickerson, estaban juntos cuando ella sufrió un paro cardíaco y murió.`\
 https://www.nytimes.com/es/2026/08/19/espanol/cultura/hayden-panettiere-novio.html
-
-**Moderna, Merck Say mRNA Vaccine Prevents Melanoma From Returning**\
-`Moderna and Merck say the experimental vaccine prevented the return and spread of the cancer in high-risk melanoma patients.`\
-https://www.nytimes.com/2026/08/19/science/moderna-merck-mrna-vaccine-melanoma.html
 
