@@ -1,3 +1,7 @@
+**Mary Peltola and Dan Sullivan Advance in Key Alaska Senate Contest**\
+`The Democratic former congresswoman and the incumbent Republican senator will face off in November. Whether a potential spoiler candidate with the same name as the senator qualifies alongside them has not been determined.`\
+https://www.nytimes.com/2026/08/19/us/politics/peltola-sullivan-alaska-senate-primary.html
+
 **The Hidden Reason Gas Prices Are Not Going Down**\
 `Gas prices are going to remain high. Don’t blame the price of crude oil. Blame the crack spread.`\
 https://www.nytimes.com/2026/08/19/opinion/gas-prices-crude-oil-diesel.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/08/18/us/politics/liberia-deportees.html
 **The OpenAI Hugging Face Hack, Explained**\
 `In July, the A.I. company Hugging Face discovered that it was hacked by an OpenAI agent. Helen Toner, a former OpenAI board member, breaks down the details of what happened on “The Ezra Klein Show.”`\
 https://www.nytimes.com/video/opinion/100000011091564/the-openai-hugging-face-hack-explained.html
-
-**Why A.I.s Lie, Cheat and Steal**\
-`Why does A.I. do things it wasn’t asked to do? Helen Toner, the executive director of Georgetown’s Center for Security and Emerging Technology, explains on “The Ezra Klein Show.”`\
-https://www.nytimes.com/video/opinion/100000011091563/why-ais-lie-cheat-and-steal.html
 
 **Election Live Updates: Democratic Socialist Scores Florida Upset as Contests Are Held in 4 States**\
 `Angie Nixon, a progressive firebrand, won Florida’s Democratic Senate primary. Primaries were held in Alaska and Wyoming, and voters in California were choosing a replacement for Representative Eric Swalwell.`\
