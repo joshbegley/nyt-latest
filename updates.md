@@ -1,3 +1,15 @@
+**Representative Cory Mills Loses G.O.P. House Primary in Florida**\
+`Mr. Mills, who is under investigation by the House Ethics Committee and has faced allegations of assault and threatening behavior toward women, lost to Ryan Elijah, a former TV news anchor.`\
+https://www.nytimes.com/2026/08/18/us/politics/mills-elijah-florida-republican-primary.html
+
+**Angie Nixon Scores Upset Win in Florida Senate Primary**\
+`The underdog faces another uphill battle this November against a Republican incumbent heavily favored to win.`\
+https://www.nytimes.com/2026/08/18/us/politics/florida-democratic-senate-primary-results.html
+
+**5 Things to Know About Ashley Moody, Republican Senate Candidate in Florida**\
+`The Republican incumbent has President Trump’s support, but has little name recognition to many in her state.`\
+https://www.nytimes.com/2026/08/18/us/politics/ashley-moody-florida-republican-senate-primary.html
+
 **Byron Donalds Wins Republican Nomination for Florida Governor**\
 `Mr. Donalds, a conservative congressman with the backing of President Trump, seeks to become the state’s first Black governor.`\
 https://www.nytimes.com/2026/08/18/us/politics/byron-donalds-florida-governor-republican-primary.html
