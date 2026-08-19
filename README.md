@@ -1,3 +1,11 @@
+**Inside the Data Center Capital of the World**\
+`Cecilia Kang, who covers technology and regulatory policy for The New York Times, traveled to the “data center capital of the world” to see how the A.I. boom is affecting Loudoun County, Va.`\
+https://www.nytimes.com/video/us/100000011066777/inside-the-data-center-capital-of-the-world.html
+
+**Voters Aren’t Waiting for November to Try Ousting Officials Over Data Centers**\
+`As a backlash grows over data centers, more local officials are facing recall elections for their support of the computing sites.`\
+https://www.nytimes.com/2026/08/19/technology/data-centers-voter-concerns-independence-missouri.html
+
 **How One County Profited From Data Centers Amid a Growing National Backlash**\
 `Loudoun County, Va., has gotten rich hosting more than 250 data centers, allowing it to cut property taxes. Other locales are taking note, even as a nationwide backlash over data centers grows.`\
 https://www.nytimes.com/2026/08/19/technology/data-centers-backlash-loudoun-virginia.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/t-magazine/100000011093099/my-favorite-artwork-mat
 **The Best Loafers for Any Occasion**\
 `These stack-heeled styles work with everything from jeans to suits.`\
 https://www.nytimes.com/2026/08/19/t-magazine/stack-heeled-loafers-shoes.html
-
-**The High Cost of Being Present at the Venice Biennale**\
-`Some of the most talked-about pavilions at this year’s art event feature theatrical performances. But working with live bodies brings extra challenges.`\
-https://www.nytimes.com/2026/08/19/arts/design/venice-biennale-theater-florentina-holzinger-dries-verhoeven.html
-
-**For Caitlin Simmers, Surfing Is a Dance Born on the Waves**\
-`Caitlin Simmers, a world champion surfer, sees her sport as dance. How does this translate? She’s as seamless as a ribbon.`\
-https://www.nytimes.com/2026/08/19/arts/dance/caitlin-simmers-surf-dance.html
 
