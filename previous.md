@@ -1,3 +1,7 @@
+**California regula cuánto pueden aplastarse las llantas de los coches**\
+`La norma que exige neumáticos de repuesto eficientes fue elogiada por los ambientalistas. Pero los fabricantes advirtieron que el cambio perjudicaría a las empresas estadounidenses y aumentaría los precios.`\
+https://www.nytimes.com/es/2026/08/19/espanol/estados-unidos/california-regulacion-llantas.html
+
 **Prosecutor Reduces Charges Against L.A.P.D. Whistle-Blower After Uproar**\
 `A Los Angeles officer faced prison for secretly recording colleagues making offensive remarks. The county prosecutor is reducing those charges after critics said they would discourage whistle-blowers.`\
 https://www.nytimes.com/2026/08/19/us/lapd-officer-recording-charges.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/19/us/guo-degang-china-comic-investigated.html
 **McKenna West’s Surrogacy Should Not Be a Political Football**\
 `The surrogacy industry is long overdue for a reckoning.`\
 https://www.nytimes.com/2026/08/19/opinion/when-surrogacy-goes-wrong.html
-
-**Angie Nixon Notches Another Win for the Left Through Old-Fashioned Organizing**\
-`State Representative Angie Nixon scored a stunning upset on Tuesday in Florida’s Democratic Senate primary. Her victory will test the strength of a democratic socialist in a red state.`\
-https://www.nytimes.com/2026/08/19/us/politics/florida-primary-progressives-upset.html
 
