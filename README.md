@@ -63,7 +63,7 @@ https://www.nytimes.com/interactive/2026/08/19/us/politics/trump-indycar-race-wa
 https://www.nytimes.com/2026/08/19/us/politics/trump-primary-election-republican-endorsements.html
 
 **U.S. Debt Hits $40 Trillion as America’s Borrowing Binge Continues**\
-`President Trump’s promises to restore fiscal order and reduce the amount of America’s debt burden have been hampered by spending on the Iran war, tax cuts and tariff refunds.`\
+`President Trump’s promises to restore fiscal order and reduce the amount of America’s debt burden have been undercut by spending on the Iran war, tax cuts and tariff refunds.`\
 https://www.nytimes.com/2026/08/19/business/economy/us-debt-40-trillion.html
 
 **More Than 100 Dead in Central African Republic Gold Mine Collapse**\
