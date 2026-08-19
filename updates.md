@@ -1,3 +1,7 @@
+**Angie Nixon Scores Upset Win in Florida Senate Primary**\
+`Angie Nixon faces another difficult test this November against a Republican incumbent heavily favored to win.`\
+https://www.nytimes.com/2026/08/18/us/politics/florida-democratic-senate-primary-results.html
+
 **Trump Administration Moves to Allow Logging in National Forests**\
 `The Trump administration on Tuesday advanced a plan that would pave the way for road construction and logging in nearly 45 million acres of wilderness in national forests.`\
 https://www.nytimes.com/video/us/politics/100000011100038/trump-logging-national-forests-roads.html

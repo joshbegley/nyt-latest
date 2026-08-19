@@ -31,7 +31,7 @@ https://www.nytimes.com/2026/08/18/us/politics/byron-donalds-florida-governor-re
 https://www.nytimes.com/2026/08/18/us/politics/david-jolly-florida-governor-democratic-primary.html
 
 **Angie Nixon Scores Upset Win in Florida Senate Primary**\
-`The underdog faces another uphill battle this November against a Republican incumbent heavily favored to win.`\
+`Angie Nixon faces another difficult test this November against a Republican incumbent heavily favored to win.`\
 https://www.nytimes.com/2026/08/18/us/politics/florida-democratic-senate-primary-results.html
 
 **Sydney Gruters, Wife of R.N.C. Chair, Wins House Primary in Florida With Trump’s Backing**\
