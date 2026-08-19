@@ -1,3 +1,11 @@
+**Trump, Who Has Amassed Enormous Wealth in Crypto, Hosts Industry Leaders**\
+`President Trump called on Congress to pass a major cryptocurrency bill that would tilt regulation in the industry’s favor.`\
+https://www.nytimes.com/2026/08/19/us/politics/trump-crypto-executives.html
+
+**NASA’s Attempt to Save the Swift Telescope Has Failed**\
+`NASA’s Swift Observatory, which studies some of the most powerful explosions in the universe, will soon burn up in the atmosphere.`\
+https://www.nytimes.com/2026/08/19/science/nasa-swift-telescope-failed-rescue.html
+
 **U.S. Debt Hits $40 Trillion**\
 `Also, Trump nominates a Kennedy ally to lead the F.D.A. Here’s the latest at the end of Wednesday.`\
 https://www.nytimes.com/2026/08/19/briefing/us-debt-hits-40-trillion.html
