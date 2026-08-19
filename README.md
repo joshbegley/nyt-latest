@@ -1,3 +1,7 @@
+**Representative Cory Mills Loses G.O.P. House Primary in Florida**\
+`Mr. Mills, who is under investigation by the House Ethics Committee and has faced allegations of assault and threatening behavior toward women, lost to Ryan Elijah, a former TV news anchor.`\
+https://www.nytimes.com/2026/08/18/us/politics/mills-elijah-florida-republican-primary.html
+
 **Byron Donalds Wins Republican Nomination for Florida Governor**\
 `Mr. Donalds, a conservative congressman with the backing of President Trump, seeks to become the state’s first Black governor.`\
 https://www.nytimes.com/2026/08/18/us/politics/byron-donalds-florida-governor-republican-primary.html
@@ -6,7 +10,7 @@ https://www.nytimes.com/2026/08/18/us/politics/byron-donalds-florida-governor-re
 `The former Republican congressman will try to appeal to voters disaffected with President Trump in a state where Republicans significantly outnumber Democrats.`\
 https://www.nytimes.com/2026/08/18/us/politics/david-jolly-florida-governor-democratic-primary.html
 
-**Democratic State Representative Scores Upset Win in Florida Senate Primary**\
+**Angie Nixon Scores Upset Win in Florida Senate Primary**\
 `The underdog faces another uphill battle this November against a Republican incumbent heavily favored to win.`\
 https://www.nytimes.com/2026/08/18/us/politics/florida-democratic-senate-primary-results.html
 
@@ -39,7 +43,7 @@ https://www.nytimes.com/2026/08/18/arts/television/hayden-panettiere-brian-hicke
 https://www.nytimes.com/video/opinion/100000011099984/is-ai-development-really-on-a-safe-path.html
 
 **5 Things to Know About Ashley Moody, Republican Senate Candidate in Florida**\
-`The Republican incumbent has President Trump’s support but has little name recognition to many in her state.`\
+`The Republican incumbent has President Trump’s support, but has little name recognition to many in her state.`\
 https://www.nytimes.com/2026/08/18/us/politics/ashley-moody-florida-republican-senate-primary.html
 
 **Threatening Friends and Courting Enemies in Trump’s ‘Upside-Down World’**\
@@ -185,10 +189,6 @@ https://www.nytimes.com/video/world/middleeast/100000011098732/israel-syria-mili
 **A Rescue Mission in Remote Colombia**\
 `Our photographer Federico Rios joined aid flights in Chocó to document earthquake rescue efforts in remote communities.`\
 https://www.nytimes.com/video/world/americas/100000011097252/a-rescue-mission-in-remote-colombia.html
-
-**The New Physics of Power**\
-`It doesn’t take much for small powers to gain a big advantage over the powerful.`\
-https://www.nytimes.com/2026/08/18/opinion/us-israel-gaza-hezbollah-hamas-houthis.html
 
 **Election Live Updates: Democratic Socialist Scores Upset Victory in Florida**\
 `State Representative Angie Nixon, a progressive firebrand, defeated Alex Vindman, who had far out-raised her. Alaska’s Senate primary will test candidates’ strength, while voters in California will decide who replaces former Representative Eric Swalwell.`\

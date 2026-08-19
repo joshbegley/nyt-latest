@@ -1,8 +1,20 @@
+**Byron Donalds Wins Republican Nomination for Florida Governor**\
+`Mr. Donalds, a conservative congressman with the backing of President Trump, seeks to become the state’s first Black governor.`\
+https://www.nytimes.com/2026/08/18/us/politics/byron-donalds-florida-governor-republican-primary.html
+
+**Former Republican David Jolly Wins Democratic Nomination for Florida Governor**\
+`The former Republican congressman will try to appeal to voters disaffected with President Trump in a state where Republicans significantly outnumber Democrats.`\
+https://www.nytimes.com/2026/08/18/us/politics/david-jolly-florida-governor-democratic-primary.html
+
+**Democratic State Representative Scores Upset Win in Florida Senate Primary**\
+`The underdog faces another uphill battle this November against a Republican incumbent heavily favored to win.`\
+https://www.nytimes.com/2026/08/18/us/politics/florida-democratic-senate-primary-results.html
+
 **Sydney Gruters, Wife of R.N.C. Chair, Wins House Primary in Florida With Trump’s Backing**\
 `Ms. Gruters had been favored to win in a congressional district that was redrawn as part of Gov. Ron DeSantis’s new map, which leaned even more Republican.`\
 https://www.nytimes.com/2026/08/18/us/politics/trump-gruters-florida-republican-primary.html
 
-**Jared Moskowitz, Centrist Democrat From Florida, Beats Back Challenge From Left**\
+**Jared Moskowitz Fends Off DSA-Backed Challenger in Florida’s Democratic Primary**\
 `Mr. Moskowitz, one of the most vocal Democratic supporters of Israel in the House, will compete in a highly competitive general election in the fall.`\
 https://www.nytimes.com/2026/08/18/us/politics/moskowitz-larkin-florida-democratic-primary.html
 
@@ -178,19 +190,7 @@ https://www.nytimes.com/video/world/americas/100000011097252/a-rescue-mission-in
 `It doesn’t take much for small powers to gain a big advantage over the powerful.`\
 https://www.nytimes.com/2026/08/18/opinion/us-israel-gaza-hezbollah-hamas-houthis.html
 
-**Environmentalists Sue to Halt First Sale of Seabed-Mining Rights**\
-`The suit claims the U.S. decision to allow mining for minerals in American waters didn’t consider the potential harm to endangered species.`\
-https://www.nytimes.com/2026/08/18/climate/seabed-mining-lawsuit-american-samoa.html
-
-**Trump Fired His Inspectors General. Their Replacements Have a Different Mission.**\
-`President Trump is installing his allies in the offices of inspector general, which are meant to provide independent government oversight.`\
-https://www.nytimes.com/2026/08/18/us/politics/trump-inspector-general.html
-
-**Judge Allows Limited Testing in Trump Plan to Paint Eisenhower Building White**\
-`A federal judge ruled that initial preparatory steps, including testing out paints on the building’s gray granite exterior, could proceed for now.`\
-https://www.nytimes.com/2026/08/18/us/politics/judge-paint-eisenhower-building-trump.html
-
-**Election Live Updates: Voters Choosing Candidates to Succeed DeSantis in Florida**\
-`Representative Byron Donalds has President Trump’s endorsement for governor in the state, and David Jolly is the favorite among Democrats. In California, voters are deciding who replaces former Representative Eric Swalwell.`\
+**Election Live Updates: Democratic Socialist Scores Upset Victory in Florida**\
+`State Representative Angie Nixon, a progressive firebrand, defeated Alex Vindman, who had far out-raised her. Alaska’s Senate primary will test candidates’ strength, while voters in California will decide who replaces former Representative Eric Swalwell.`\
 https://www.nytimes.com/live/2026/08/18/us/elections-florida-california-alaska
 
