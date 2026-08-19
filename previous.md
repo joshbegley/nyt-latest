@@ -1,3 +1,15 @@
+**Senate Health Panel Chairman Voices Strong Reservations About F.D.A. Nominee**\
+`Senator Bill Cassidy said Dr. Heidi Overton’s role in President Trump’s executive order on vaccines last week was “almost disqualifying.”`\
+https://www.nytimes.com/2026/08/19/us/politics/heidi-overton-cassidy-fda.html
+
+**El director de inteligencia de Ecuador y 5 estadounidenses mueren tras la caída de un helicóptero en Kenia**\
+`El Ministerio de Transporte de Kenia estaba investigando la causa del desplome, según la autoridad de aviación, cuyo comunicado no abordó el estado de la tripulación del helicóptero.`\
+https://www.nytimes.com/es/2026/08/19/espanol/mundo/accidente-helicoptero-kenia-ecuador-inteligencia.html
+
+**The U.S. National Debt Hit a Record High of $40 Trillion**\
+`Alan Rappeport, our economic policy reporter, explains how Trump’s promises to reduce America’s debt burden have been hampered by tax cuts, tariff refunds and his own administration’s policies.`\
+https://www.nytimes.com/video/business/100000011098729/the-us-national-debt-hit-a-record-high-of-40-trillion.html
+
 **What to Know About Iran’s Economic Ties With Gulf Countries**\
 `The United Arab Emirates, Iran’s most important regional trading partner, announced a total embargo on transactions with Tehran on Tuesday.`\
 https://www.nytimes.com/2026/08/19/world/middleeast/iran-emirates-gulf-economic-ties.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/08/19/science/david-morens-covid-fauci.html
 **The Dresses You Need to Have, From Sundresses to the Perfect Little Black Dress**\
 `These classic styles will simplify getting dressed for nearly any event, from a picnic to a cocktail party.`\
 https://www.nytimes.com/2026/08/19/t-magazine/dress-styles-wardrobe-fashion-essentials.html
-
-**In Berkeley, Calif., a Pioneering Modernist Home for $1.425 Million**\
-`The Kip House, designed by Donald Olsen for an eminent physicist, is on the market for only the second time in its history.`\
-https://www.nytimes.com/2026/08/19/realestate/in-berkeley-calif-a-pioneering-modernist-home-for-1-425-million.html
-
-**My Husband Has Alzheimer’s. Can I Date Other People?**\
-`I’m now his caregiver, a single mother and the breadwinner for our family.`\
-https://www.nytimes.com/2026/08/19/magazine/husband-alzheimers-dating-ethics.html
-
-**Google’s Pixel 11 Comes With Plenty of A.I. Does Anyone Want That?**\
-`The phone’s artificial intelligence can order groceries, book tables and take photos on a user’s behalf. But is it something people really want?`\
-https://www.nytimes.com/2026/08/19/technology/personaltech/google-pixel-11-review.html
 

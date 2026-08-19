@@ -1,3 +1,15 @@
+**Senate Health Panel Chairman Voices Strong Reservations About F.D.A. Nominee**\
+`Senator Bill Cassidy said Dr. Heidi Overton’s role in President Trump’s executive order on vaccines last week was “almost disqualifying.”`\
+https://www.nytimes.com/2026/08/19/us/politics/heidi-overton-cassidy-fda.html
+
+**El director de inteligencia de Ecuador y 5 estadounidenses mueren tras la caída de un helicóptero en Kenia**\
+`El Ministerio de Transporte de Kenia estaba investigando la causa del desplome, según la autoridad de aviación, cuyo comunicado no abordó el estado de la tripulación del helicóptero.`\
+https://www.nytimes.com/es/2026/08/19/espanol/mundo/accidente-helicoptero-kenia-ecuador-inteligencia.html
+
+**The U.S. National Debt Hit a Record High of $40 Trillion**\
+`Alan Rappeport, our economic policy reporter, explains how Trump’s promises to reduce America’s debt burden have been hampered by tax cuts, tariff refunds and his own administration’s policies.`\
+https://www.nytimes.com/video/business/100000011098729/the-us-national-debt-hit-a-record-high-of-40-trillion.html
+
 **U.S. Debt Hits $40 Trillion as America’s Borrowing Binge Continues**\
 `President Trump’s promises to restore fiscal order and reduce the amount of America’s debt burden have been undercut by spending on the Iran war, tax cuts and tariff refunds.`\
 https://www.nytimes.com/2026/08/19/business/economy/us-debt-40-trillion.html
