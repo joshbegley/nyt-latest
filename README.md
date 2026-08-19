@@ -1,3 +1,11 @@
+**The Topsy-Turvy World of Trump’s Canada Tariffs**\
+`After a deadline extension, the latest U.S. tariff threats seemed headed toward resolution on Wednesday, but questions lingered about what Canada would give up, and what it would get in exchange.`\
+https://www.nytimes.com/2026/08/19/world/canada/trump-canada-tariffs-carney-deal-trade.html
+
+**Tiny Love Stories: ‘She Thought I Was a Slob’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/08/19/style/tiny-modern-love-stories-she-thought-i-was-a-slob.html
+
 **California regula cuánto pueden aplastarse las llantas de los coches**\
 `La norma que exige neumáticos de repuesto eficientes fue elogiada por los ambientalistas. Pero los fabricantes advirtieron que el cambio perjudicaría a las empresas estadounidenses y aumentaría los precios.`\
 https://www.nytimes.com/es/2026/08/19/espanol/estados-unidos/california-regulacion-llantas.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/08/19/world/europe/ukraine-fedorov-zelensky-electio
 **Kyiv’s Dormition Cathedral is Revived After Russian Drone Strike**\
 `Volunteers and priests rallied to clean up Kyiv’s Dormition Cathedral, still smelling of smoke from a massive blaze, for an anniversary celebration.`\
 https://www.nytimes.com/2026/08/19/world/europe/ukraine-kyiv-cathedral-russia-drone-strike.html
-
-**Chinese Comic Investigated After Singing a Riff of a Patriotic Song**\
-`Guo Degang, one of the country’s best-known comedians, was reported to the authorities, as the arts continue to be a focus for ideological crackdowns.`\
-https://www.nytimes.com/2026/08/19/us/guo-degang-china-comic-investigated.html
-
-**McKenna West’s Surrogacy Should Not Be a Political Football**\
-`The surrogacy industry is long overdue for a reckoning.`\
-https://www.nytimes.com/2026/08/19/opinion/when-surrogacy-goes-wrong.html
 
