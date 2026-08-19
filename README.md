@@ -1,3 +1,7 @@
+**5 Things to Know About David Jolly, the Democratic Nominee for Florida Governor**\
+`A former Republican, he plans to run on an affordability agenda.`\
+https://www.nytimes.com/2026/08/18/us/politics/5-things-to-know-about-david-jolly-the-democratic-nominee-for-florida-governor.html
+
 **Trump Ally Scott Singer Wins Republican Primary in Florida’s 25th District**\
 `Scott Singer will face the winner of the Democratic primary in one of the most competitive House races in the nation.`\
 https://www.nytimes.com/2026/08/18/us/politics/florida-republican-primary-25-district.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/08/18/us/outshine-recall-glass-frozen-fruit-treat.h
 **Two Workers Killed After Explosion at Ohio Recycling Plant**\
 `Two people were killed after an explosion at a recycling facility in Toledo, Ohio, shortly before 5 a.m. on Tuesday. Local officials said there was no immediate threat to the surrounding area.`\
 https://www.nytimes.com/video/us/100000011098788/ohio-recycling-plant-explosion-missing-workers.html
-
-**U.S. Condemns Israeli Attack on Syrian Military Air Base**\
-`The U.S. condemned Israel for its strike on a defunct military air base in Syria. Although the attack did not cause any casualties, according to Syrian state media, it follows a series of fractures between the two countries in recent weeks.`\
-https://www.nytimes.com/video/world/middleeast/100000011098732/israel-syria-military-base-air-strike.html
 
 **Election Live Updates: Democratic Socialist Scores Florida Upset in Latest Victory for Progressives**\
 `State Representative Angie Nixon, a progressive firebrand, defeated Alex Vindman, who had far out-raised her. Byron Donalds, a Trump-backed congressman, will face David Jolly in the Florida governor’s race in November.`\

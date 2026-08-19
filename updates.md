@@ -1,3 +1,11 @@
+**Trump Ally Scott Singer Wins Republican Primary in Florida’s 25th District**\
+`Scott Singer will face the winner of the Democratic primary in one of the most competitive House races in the nation.`\
+https://www.nytimes.com/2026/08/18/us/politics/florida-republican-primary-25-district.html
+
+**Cory Mills Loses Republican Primary Amid Assault Allegations and Ethics Investigation**\
+`Mr. Mills, who is under investigation by the House Ethics Committee and has faced allegations of assault and threatening behavior toward women, lost to Ryan Elijah, a former TV news anchor.`\
+https://www.nytimes.com/2026/08/18/us/politics/mills-elijah-florida-republican-primary.html
+
 **Former Mayor of Boca Raton Wins G.O.P. Primary in Florida’s 25th District**\
 `Scott Singer will face the winner of the Democratic primary in one of the most competitive House races in the nation.`\
 https://www.nytimes.com/2026/08/18/us/politics/florida-republican-primary-25-district.html
