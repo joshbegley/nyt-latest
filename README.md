@@ -1,3 +1,7 @@
+**What to Know About Iran’s Economic Ties With Gulf Countries**\
+`The United Arab Emirates, Iran’s most important regional trading partner, announced a total embargo on transactions with Tehran on Tuesday.`\
+https://www.nytimes.com/2026/08/19/world/middleeast/iran-emirates-gulf-economic-ties.html
+
 **5 Americans and Ecuadorean Official Are Killed in Helicopter Crash in Kenya**\
 `Ecuador’s director of national intelligence was also among those who died in the crash. The search and recovery efforts were being hampered by a fire at the site and the difficult terrain, officials said.`\
 https://www.nytimes.com/2026/08/19/world/africa/helicopter-crash-kenya.html
@@ -119,7 +123,7 @@ https://www.nytimes.com/es/2026/08/19/espanol/mundo/trump-suspende-aranceles-can
 https://www.nytimes.com/es/2026/08/19/espanol/ciencia-y-tecnologia/vacuna-melanoma.html
 
 **Driver Kills 2 Milligan University Cycling Team Members, Officials Say**\
-`Milligan University said two members of its cycling team had been killed. At least seven others were injured, officials said.`\
+`Milligan University said two members of its cycling team had been killed. The driver was charged with vehicular homicide by recklessness.`\
 https://www.nytimes.com/2026/08/19/us/cycling-team-crash-milligan-university.html
 
 **Stripe Buys A.I. Start-Up OpenRouter for $7.5 Billion**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/19/magazine/husband-alzheimers-dating-ethics.htm
 **Google’s Pixel 11 Comes With Plenty of A.I. Does Anyone Want That?**\
 `The phone’s artificial intelligence can order groceries, book tables and take photos on a user’s behalf. But is it something people really want?`\
 https://www.nytimes.com/2026/08/19/technology/personaltech/google-pixel-11-review.html
-
-**Why A.I. Relationships Fizzle**\
-`The writer and podcaster Bridget Todd tells the “Modern Love” podcast host, Anna Martin, why she believes even people who develop intensely intimate bonds with their chatbots lose interest in these “relationships” eventually.`\
-https://www.nytimes.com/video/podcasts/100000011101005/ai-relationships-bridget-todd.html
 
