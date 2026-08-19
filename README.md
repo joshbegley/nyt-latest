@@ -1,3 +1,7 @@
+**More Than 100 Dead in Central African Republic Gold Mine Collapse**\
+`The country’s small-scale gold mining sector has been booming in recent years, leading to a series of deadly accidents.`\
+https://www.nytimes.com/2026/08/19/world/africa/central-african-republic-gold-mine-collapse.html
+
 **Mamdani to Sue City Council Over $10,000 Bonuses to Teachers’ Aides**\
 `New York City says the Council’s legislation violates collective bargaining law. The dispute could set up the first high-profile battle between the mayor and a public sector union.`\
 https://www.nytimes.com/2026/08/19/nyregion/mamdani-ny-city-council-lawsuit-teachers.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/19/science/moderna-merck-mrna-vaccine-melanoma.h
 **How the U.S. Navy Is Helping Get Oil Through the Strait of Hormuz**\
 `With Iran making ship traffic perilous, a U.S. operation offers a way out for some energy exports, stealthily shepherding tankers on dangerous journeys.`\
 https://www.nytimes.com/2026/08/19/business/iran-hormuz-oman-us-navy.html
-
-**Inside the Data Center Capital of the World**\
-`Cecilia Kang, who covers technology and regulatory policy for The New York Times, traveled to the “data center capital of the world” to see how the A.I. boom is affecting Loudoun County, Va.`\
-https://www.nytimes.com/video/us/100000011066777/inside-the-data-center-capital-of-the-world.html
 
