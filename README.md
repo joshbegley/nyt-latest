@@ -1,3 +1,7 @@
+**Derrick Parker, Known as New York’s ‘Hip-Hop Cop,’ Dies at 65**\
+`A veteran detective with deep connections in the city’s rap scene, he served as a one-man intelligence unit and liaison to the music world.`\
+https://www.nytimes.com/2026/08/19/nyregion/derrick-parker-dead.html
+
 **The Local: Vaccines and Lip Balm**\
 `Why so many kids in Minnesota aren’t getting vaccinated.`\
 https://www.nytimes.com/2026/08/19/us/the-local-vaccines-lip-balm.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/19/technology/data-centers-voter-concerns-indepe
 **A County Got Rich From Data Centers. Some Question ‘At What Cost?’**\
 `Loudoun County, Va., hosts more than 250 data centers that bring in huge tax revenues. But some officials and residents worry the county has become too dependent on that cash.`\
 https://www.nytimes.com/2026/08/19/technology/data-centers-backlash-loudoun-virginia.html
-
-**After Youth Outcry, Vietnam Says Former Official Caused Fatal Crash at Tree 55**\
-`Young people are calling for justice after a former Communist Party official killed a teenager in a car crash. The government’s response has been surprising.`\
-https://www.nytimes.com/2026/08/19/world/asia/vietnam-crash-tree-55-community-party-official.html
 
