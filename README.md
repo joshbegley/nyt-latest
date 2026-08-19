@@ -1,3 +1,7 @@
+**The Dresses You Need to Have, From Sundresses to the Perfect Little Black Dress**\
+`These classic styles will simplify getting dressed for nearly any event, from a picnic to a cocktail party.`\
+https://www.nytimes.com/2026/08/19/t-magazine/dress-styles-wardrobe-fashion-essentials.html
+
 **In Berkeley, Calif., a Pioneering Modernist Home for $1.425 Million**\
 `The Kip House, designed by Donald Olsen for an eminent physicist, is on the market for only the second time in its history.`\
 https://www.nytimes.com/2026/08/19/realestate/in-berkeley-calif-a-pioneering-modernist-home-for-1-425-million.html
@@ -54,7 +58,7 @@ https://www.nytimes.com/2026/08/19/style/jennifer-hegseth.html
 `Turns out, when you combine the creativity of a kid with the cooking know-how of his recipe-developer dad, you get a really great dinner.`\
 https://www.nytimes.com/2026/08/19/dining/meatball-your-cheeseburger.html
 
-**The Trump Administration Is Trying to Keep College Students From Voting. Don’t Let It.**\
+**The Trump Administration Is Thwarting College Students’ Most Fundamental Right**\
 `American democracy and American higher education are inextricable.`\
 https://www.nytimes.com/2026/08/19/opinion/college-students-voting-civic.html
 
@@ -154,8 +158,8 @@ https://www.nytimes.com/2026/08/19/world/europe/ukraine-kyiv-cathedral-russia-dr
 `Guo Degang, one of the country’s best-known comedians, was reported to the authorities, as the arts continue to be a focus for ideological crackdowns.`\
 https://www.nytimes.com/2026/08/19/us/guo-degang-china-comic-investigated.html
 
-**Who Is to Blame When Surrogacy Goes Wrong?**\
-`A McKenna West-type debacle happened before, and it will happen again.`\
+**McKenna West’s Surrogacy Should Not Be a Political Football**\
+`The surrogacy industry is long overdue for a reckoning.`\
 https://www.nytimes.com/2026/08/19/opinion/when-surrogacy-goes-wrong.html
 
 **Angie Nixon Notches Another Win for the Left Through Old-Fashioned Organizing**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/19/business/economy/europe-investment-innovation
 **U.S. Will Try California Arson Suspect Again After Stunning Mistrial**\
 `The man accused of setting the blaze that later turned deadly in the Pacific Palisades is now readying for a new prosecution after a previous effort in June failed.`\
 https://www.nytimes.com/2026/08/19/us/california-palisades-fire-retrial-rinderknecht.html
-
-**Which $1.5 Million South Florida Home Would You Pick?**\
-`This week’s properties are in Miami, West Palm Beach and Key West.`\
-https://www.nytimes.com/2026/08/19/realestate/homes-for-sale-in-west-palm-beach-key-west-miami.html
 
