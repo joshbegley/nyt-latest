@@ -1,6 +1,18 @@
+**Prosecutor Reduces Charges Against L.A.P.D. Whistle-Blower After Uproar**\
+`A Los Angeles officer faced prison for secretly recording colleagues making offensive remarks. The county prosecutor is reducing those charges after critics said they would discourage whistle-blowers.`\
+https://www.nytimes.com/2026/08/19/us/lapd-officer-recording-charges.html
+
+**U.K. to Test Whether Tweaks to Trans-Atlantic Flight Paths Affect Global Warming**\
+`Hundreds of aircraft traversing the North Atlantic will be asked to adjust their altitude in an effort to reduce heat-trapping contrails.`\
+https://www.nytimes.com/2026/08/19/climate/contrails-trial-atlantic-flights-climate.html
+
+**Rebel Ice Cream Files for Bankruptcy After Van Leeuwen Wins Packaging Suit**\
+`The announcement comes less than a month after a federal judge ordered Rebel to pay nearly $24 million to Van Leeuwen for copying the design of its containers.`\
+https://www.nytimes.com/2026/08/19/business/rebel-ice-cream-bankruptcy-van-leeuwen-lawsuit.html
+
 **Family Members of Sailor Aboard U.S.S. Lincoln Speak Out**\
 `The mother and husband of a sailor on the aircraft carrier Abraham Lincoln, which has been deployed to the Middle East for more than eight months, shared their concerns with The New York Times about conditions on the ship.`\
-https://www.nytimes.com/video/us/100000011096947/family-members-of-sailor-aboard-uss-lincoln-speak-out.html
+https://www.nytimes.com/video/us/100000011096947/uss-abraham-lincoln-sailor-family-concerns.html
 
 **Why One Times Obits Writer Is Skeptical of Famous Last Words**\
 `Determining the reliability of final thoughts can be a challenge when conveying a person’s life story on deadline.`\
@@ -102,8 +114,8 @@ https://www.nytimes.com/video/us/100000011066777/inside-the-data-center-capital-
 `As a backlash grows over data centers, more local officials are facing recall elections for their support of the computing sites.`\
 https://www.nytimes.com/2026/08/19/technology/data-centers-voter-concerns-independence-missouri.html
 
-**How One County Profited From Data Centers Amid a Growing National Backlash**\
-`Loudoun County, Va., has gotten rich hosting more than 250 data centers, allowing it to cut property taxes. Other locales are taking note, even as a nationwide backlash over data centers grows.`\
+**A County Got Rich From Data Centers. Some Question ‘At What Cost?’**\
+`Loudoun County, Va., hosts more than 250 data centers that bring in huge tax revenues. But some officials and residents worry the county has become too dependent on that cash.`\
 https://www.nytimes.com/2026/08/19/technology/data-centers-backlash-loudoun-virginia.html
 
 **After Youth Outcry, Vietnam Says Former Official Caused Fatal Crash at Tree 55**\
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/08/19/opinion/when-surrogacy-goes-wrong.html
 **Angie Nixon Notches Another Win for the Left Through Old-Fashioned Organizing**\
 `State Representative Angie Nixon scored a stunning upset on Tuesday in Florida’s Democratic Senate primary. Her victory will test the strength of a democratic socialist in a red state.`\
 https://www.nytimes.com/2026/08/19/us/politics/florida-primary-progressives-upset.html
-
-**La generación Z se viste como si nunca antes hubiera usado ropa**\
-`Con la llegada de internet, las tribus comenzaron a mezclarse; ahora es más difícil leer a las personas por el tipo de ropa que usan.`\
-https://www.nytimes.com/es/2026/08/19/espanol/opinion/la-generacion-z-se-viste-como-si-nunca-antes-hubiera-usado-ropa.html
-
-**Trump’s Lust for Vengeance Is Turning Into a Farce**\
-`Revenge shapes the president’s priorities, drives his actions and structures the decisions of his government.`\
-https://www.nytimes.com/2026/08/19/opinion/trumps-revenge.html
-
-**Many Student Loan Borrowers May Have to Switch to Worse Repayment Plans**\
-`In an unusual move, Congress worsened terms for some existing borrowers. Now they’ll have to pay more, and for a longer term.`\
-https://www.nytimes.com/2026/08/19/business/student-loans-ibr-paye.html
 

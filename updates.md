@@ -1,3 +1,23 @@
+**Prosecutor Reduces Charges Against L.A.P.D. Whistle-Blower After Uproar**\
+`A Los Angeles officer faced prison for secretly recording colleagues making offensive remarks. The county prosecutor is reducing those charges after critics said they would discourage whistle-blowers.`\
+https://www.nytimes.com/2026/08/19/us/lapd-officer-recording-charges.html
+
+**U.K. to Test Whether Tweaks to Trans-Atlantic Flight Paths Affect Global Warming**\
+`Hundreds of aircraft traversing the North Atlantic will be asked to adjust their altitude in an effort to reduce heat-trapping contrails.`\
+https://www.nytimes.com/2026/08/19/climate/contrails-trial-atlantic-flights-climate.html
+
+**Rebel Ice Cream Files for Bankruptcy After Van Leeuwen Wins Packaging Suit**\
+`The announcement comes less than a month after a federal judge ordered Rebel to pay nearly $24 million to Van Leeuwen for copying the design of its containers.`\
+https://www.nytimes.com/2026/08/19/business/rebel-ice-cream-bankruptcy-van-leeuwen-lawsuit.html
+
+**Family Members of Sailor Aboard U.S.S. Lincoln Speak Out**\
+`The mother and husband of a sailor on the aircraft carrier Abraham Lincoln, which has been deployed to the Middle East for more than eight months, shared their concerns with The New York Times about conditions on the ship.`\
+https://www.nytimes.com/video/us/100000011096947/uss-abraham-lincoln-sailor-family-concerns.html
+
+**A County Got Rich From Data Centers. Some Question ‘At What Cost?’**\
+`Loudoun County, Va., hosts more than 250 data centers that bring in huge tax revenues. But some officials and residents worry the county has become too dependent on that cash.`\
+https://www.nytimes.com/2026/08/19/technology/data-centers-backlash-loudoun-virginia.html
+
 **Family Members of Sailor Aboard U.S.S. Lincoln Speak Out**\
 `The mother and husband of a sailor on the aircraft carrier Abraham Lincoln, which has been deployed to the Middle East for more than eight months, shared their concerns with The New York Times about conditions on the ship.`\
 https://www.nytimes.com/video/us/100000011096947/family-members-of-sailor-aboard-uss-lincoln-speak-out.html
