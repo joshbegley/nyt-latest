@@ -1,3 +1,7 @@
+**Driver Kills 2 Milligan University Cycling Team Members, Officials Say**\
+`Milligan University said two members of its cycling team had been killed. Five others were injured, officials said.`\
+https://www.nytimes.com/2026/08/19/us/cycling-team-crash-milligan-university.html
+
 **The Local: Vaccines and Lip Balm**\
 `Why so many kids in Minnesota aren’t getting vaccinated.`\
 https://www.nytimes.com/2026/08/19/us/the-local-vaccines-lip-balm.html
