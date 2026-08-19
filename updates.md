@@ -1,3 +1,11 @@
+**Mamdani to Sue City Council Over $10,000 Bonuses to Teachers’ Aides**\
+`New York City says the Council’s legislation violates collective bargaining law. The dispute could set up the first high-profile battle between the mayor and a public sector union.`\
+https://www.nytimes.com/2026/08/19/nyregion/mamdani-ny-city-council-lawsuit-teachers.html
+
+**Family Members of Sailor Aboard U.S.S. Lincoln Speak Out**\
+`The mother and husband of a sailor on the aircraft carrier Abraham Lincoln, which has been deployed to the Middle East for more than eight months, shared their concerns with The New York Times about conditions on the ship.`\
+https://www.nytimes.com/video/us/100000011096947/family-members-of-sailor-aboard-uss-lincoln-speak-out.html
+
 **NASA’s Attempt to Save the Swift Telescope Has Failed**\
 `NASA’s Swift Observatory, which studies some of the most powerful explosions in the universe, is expected to burn up in the atmosphere.`\
 https://www.nytimes.com/2026/08/19/science/nasa-swift-telescope-failed-rescue.html
