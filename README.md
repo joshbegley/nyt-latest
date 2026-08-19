@@ -1,3 +1,7 @@
+**La relación poco conocida entre la demencia y la epilepsia**\
+`Sus problemas de memoria y confusión parecían síntomas de demencia. Los médicos descubrieron que eran provocados por crisis epilépticas “silenciosas” y pudieron tratarlos.`\
+https://www.nytimes.com/es/2026/08/19/espanol/demencia-epilepsia-relacion.html
+
 **Primary Results Set for Florida’s Key Races**\
 `In Florida, a democratic socialist defeated a far better-funded rival in the Democratic Senate primary as a Trump-backed congressman secured the Republican nomination for governor.`\
 https://www.nytimes.com/video/us/politics/100000011100598/florida-primaries-angie-nixon.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/08/18/arts/television/hayden-panettiere-brian-hicke
 **Is A.I. Development Really on a Safe Path?**\
 `The recent OpenAI Hugging Face hack has raised questions about the safety of frontier A.I. models. Helen Toner, the executive director of Georgetown’s Center for Security and Emerging Technology, discusses ways to improve A.I. safety without pausing development.`\
 https://www.nytimes.com/video/opinion/100000011099984/is-ai-development-really-on-a-safe-path.html
-
-**5 Things to Know About Ashley Moody, Republican Senate Candidate in Florida**\
-`The Republican incumbent has President Trump’s support, but has little name recognition to many in her state.`\
-https://www.nytimes.com/2026/08/18/us/politics/ashley-moody-florida-republican-senate-primary.html
 
 **Top Candidates Advance in Alaska Senate Race as Democratic Socialist Scores Florida Upset**\
 `A Democratic former congresswoman will face Alaska’s incumbent Republican senator in November. In Florida, Angie Nixon overcame a huge fund-raising disadvantage to defeat Alex Vindman.`\
