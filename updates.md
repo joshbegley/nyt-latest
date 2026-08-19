@@ -1,3 +1,7 @@
+**In 911 Breakdown, Hundreds of Calls Failed to Reach Bronx Operators**\
+`Over a seven-hour period Tuesday, nearly 1,700 calls did not go through to one of the city's two emergency call centers. It was unclear what had caused the problem.`\
+https://www.nytimes.com/2026/08/18/nyregion/911-nyc-the-bronx-call-center.html
+
 **NYT Crossword Answers for Aug. 19, 2026**\
 `Kareem Ayas shares his secret garden.`\
 https://www.nytimes.com/2026/08/18/crosswords/daily-puzzle-2026-08-19.html

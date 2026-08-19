@@ -1,3 +1,7 @@
+**In 911 Breakdown, Hundreds of Calls Failed to Reach Bronx Operators**\
+`Over a seven-hour period Tuesday, nearly 1,700 calls did not go through to one of the city's two emergency call centers. It was unclear what had caused the problem.`\
+https://www.nytimes.com/2026/08/18/nyregion/911-nyc-the-bronx-call-center.html
+
 **NYT Crossword Answers for Aug. 19, 2026**\
 `Kareem Ayas shares his secret garden.`\
 https://www.nytimes.com/2026/08/18/crosswords/daily-puzzle-2026-08-19.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/08/18/nyregion/mamdani-second-home-tax-hearing.html
 **Polling Firm Released Fake Data in Hong and Bass Races as a ‘Social Experiment’**\
 `Median Strategies revealed that recent polls from the firm were intended to expose how easily false results can be spread.`\
 https://www.nytimes.com/2026/08/18/polls/median-strategies-polls-bass-california-wisconsin.html
-
-**The Tragic Story of Jason Arday**\
-`The Cambridge professor, found dead last week, was at the center of a firestorm about race and hiring. We talk to the reporter covering the story.`\
-https://www.nytimes.com/2026/08/18/world/jason-arday-cambridge-canada-meta.html
 
 **Election Live Updates: Democratic Socialist Scores Florida Upset in Latest Victory for Progressives**\
 `State Representative Angie Nixon, a progressive firebrand, defeated Alex Vindman, who had far out-raised her. Byron Donalds, a Trump-backed congressman, will face David Jolly in the Florida governor’s race in November.`\
