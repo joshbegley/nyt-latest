@@ -1,3 +1,15 @@
+**La islamofobia aumenta en Texas**\
+`Las comunidades musulmanas han estado creciendo durante décadas, particularmente alrededor de Dallas. Ahora, los conservadores les están dando las espaldas.`\
+https://www.nytimes.com/es/2026/08/19/espanol/estados-unidos/texas-musulmanes-islamofobia.html
+
+**‘I’ve Hit My Limit’: Some New Yorkers Opt for Fun at Home to Save Money**\
+`When wages are low and activities are pricey, the frugal find new ways of socializing.`\
+https://www.nytimes.com/2026/08/19/nyregion/nyc-high-cost-of-fun.html
+
+**NYT Spelling Bee Answers for August 19, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/08/19/crosswords/spelling-bee-forum.html
+
 **La nueva física del poder**\
 `Drones, misiles baratos y nuevas tácticas han permitido que actores más débiles impongan costos desproporcionados a Estados Unidos, Israel y otras potencias militares.`\
 https://www.nytimes.com/es/2026/08/19/espanol/opinion/trump-guerra-iran-resumen.html

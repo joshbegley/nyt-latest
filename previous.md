@@ -1,3 +1,15 @@
+**La islamofobia aumenta en Texas**\
+`Las comunidades musulmanas han estado creciendo durante décadas, particularmente alrededor de Dallas. Ahora, los conservadores les están dando las espaldas.`\
+https://www.nytimes.com/es/2026/08/19/espanol/estados-unidos/texas-musulmanes-islamofobia.html
+
+**‘I’ve Hit My Limit’: Some New Yorkers Opt for Fun at Home to Save Money**\
+`When wages are low and activities are pricey, the frugal find new ways of socializing.`\
+https://www.nytimes.com/2026/08/19/nyregion/nyc-high-cost-of-fun.html
+
+**NYT Spelling Bee Answers for August 19, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/08/19/crosswords/spelling-bee-forum.html
+
 **La nueva física del poder**\
 `Drones, misiles baratos y nuevas tácticas han permitido que actores más débiles impongan costos desproporcionados a Estados Unidos, Israel y otras potencias militares.`\
 https://www.nytimes.com/es/2026/08/19/espanol/opinion/trump-guerra-iran-resumen.html
@@ -181,18 +193,6 @@ https://www.nytimes.com/2026/08/18/us/politics/alex-vindman-democratic-senate-fl
 **When to Expect Election Results in Alaska, California, Florida and Wyoming**\
 `Four states are holding elections on Tuesday. Election officials anticipate having results by late Tuesday or early Wednesday.`\
 https://www.nytimes.com/2026/08/18/us/politics/florida-alaska-california-wyoming-results-timing.html
-
-**Former Mother-in-Law Describes Lindsay Clancy’s Mental Health Struggle in Murder Trial**\
-`Ms. Clancy, who is on trial for murder in the deaths of her three children, tried to find treatment for her deteriorating condition, her ex-husband’s mother testified.`\
-https://www.nytimes.com/2026/08/18/us/lindsay-clancy-murder-trial-mother-in-law.html
-
-**Theater Chains Back Paramount-Warner Deal That States Say Will Hurt Them**\
-`America’s three largest movie theater companies have lined up behind David Ellison’s $111 billion merger of Paramount and Warner Bros. Discovery.`\
-https://www.nytimes.com/2026/08/18/business/cinemark-paramount-warner-deal-movie-theater-chains.html
-
-**Estancado en Irán, Trump se enfoca en Kim Jong-un, de Corea del Norte**\
-`Hace siete años, el presidente Trump no logró desarmar a Corea del Norte y desistió. ¿Podría ocurrir lo mismo con Irán?`\
-https://www.nytimes.com/es/2026/08/18/espanol/estados-unidos/trump-kim-jong-un-iran-corea-norte.html
 
 **Election Live Updates: Top Candidates Advance in Alaska Senate Race as Democratic Socialist Scores Florida Upset**\
 `A Democratic former congresswoman will face Alaska’s incumbent Republican senator in November. In Florida, Angie Nixon overcame a huge fund-raising disadvantage to defeat Alex Vindman.`\
