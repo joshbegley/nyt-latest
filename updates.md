@@ -1,3 +1,7 @@
+**Derrick Parker, Known as New York’s ‘Hip-Hop Cop,’ Dies at 65**\
+`A veteran detective with deep connections in the city’s rap scene, he served as a one-man intelligence unit and liaison to the music world.`\
+https://www.nytimes.com/2026/08/19/nyregion/derrick-parker-dead.html
+
 **Driver Kills 2 Milligan University Cycling Team Members, Officials Say**\
 `Milligan University said two members of its cycling team had been killed. Five others were injured, officials said.`\
 https://www.nytimes.com/2026/08/19/us/cycling-team-crash-milligan-university.html
