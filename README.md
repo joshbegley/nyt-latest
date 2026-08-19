@@ -1,3 +1,15 @@
+**Chinese Start-Up Lands Reusable Rocket for the First Time**\
+`The milestone by the private company, LandSpace, could put China closer to challenging SpaceX’s rule in lower-cost spaceflight.`\
+https://www.nytimes.com/2026/08/19/world/asia/china-rocket-first-stage-recovery-land.html
+
+**Chinese Company Lands Reusable Rocket for the First Time**\
+`A private Chinese aerospace company successfully recovered a reusable rocket on land for the first time, state media reported.`\
+https://www.nytimes.com/video/world/asia/100000011101470/china-rocket-space.html
+
+**See Where Indy Cars Will Race Around Washington, D.C.**\
+`Explore the 1.7-mile course that Indy drivers will compete on Aug. 22 and 23.`\
+https://www.nytimes.com/interactive/2026/08/19/us/politics/trump-indycar-race-washington-dc.html
+
 **More of Trump’s Chosen Candidates Lose Republican Primaries**\
 `A series of recent losses has eroded the president’s winning record, raising new questions about his hold over the party’s voters.`\
 https://www.nytimes.com/2026/08/19/us/politics/trump-primary-election-republican-endorsements.html
@@ -185,12 +197,4 @@ https://www.nytimes.com/2026/08/19/dining/meatball-your-cheeseburger.html
 **What Does the Trump Administration Have Against the 26th Amendment?**\
 `American democracy and American higher education are inextricable.`\
 https://www.nytimes.com/2026/08/19/opinion/college-students-voting-civic.html
-
-**Send Us Your Questions About the Iran War**\
-`Times reporters who cover the war, diplomacy, energy and the broader Middle East are joining our “Ask a Correspondent” feature as the conflict nears the six-month mark. Let us know what’s on your mind.`\
-https://www.nytimes.com/2026/08/19/world/iran-war-reader-questions.html
-
-**El novio que abusó de Hayden Panettiere había vuelto a su vida**\
-`A pesar de los esfuerzos de la actriz por superar una relación turbulenta con Brian Hickerson, estaban juntos cuando ella sufrió un paro cardíaco y murió.`\
-https://www.nytimes.com/es/2026/08/19/espanol/cultura/hayden-panettiere-novio.html
 
