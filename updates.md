@@ -1,3 +1,11 @@
+**Kyiv’s Dormition Cathedral is Revived after Russian Drone Strike**\
+`Volunteers and priests rallied to clean up Kyiv’s Dormition Cathedral, still smelling of smoke from a massive blaze, for an anniversary celebration.`\
+https://www.nytimes.com/2026/08/19/world/europe/ukraine-kyiv-cathedral-russia-drone-strike.html
+
+**Chinese Comic Investigated After Singing a Riff of a Patriotic Song**\
+`Guo Degang, one of the country’s best-known comedians, was reported to the authorities, as the arts continue to be a focus for ideological crackdowns.`\
+https://www.nytimes.com/2026/08/19/us/guo-degang-china-comic-investigated.html
+
 **Who Is to Blame When Surrogacy Goes Wrong?**\
 `A McKenna West-type debacle happened before, and it will happen again.`\
 https://www.nytimes.com/2026/08/19/opinion/when-surrogacy-goes-wrong.html
