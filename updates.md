@@ -1,3 +1,7 @@
+**What to Know About Hayden Panettiere’s Death**\
+`The “Nashville” and “Heroes” star had released a memoir months before she died at 36.`\
+https://www.nytimes.com/2026/08/19/arts/music/hayden-panettiere-death-what-to-know.html
+
 **Senate Health Panel Chairman Voices Strong Reservations About F.D.A. Nominee**\
 `Senator Bill Cassidy said Dr. Heidi Overton’s role in President Trump’s executive order on vaccines last week was “almost disqualifying.”`\
 https://www.nytimes.com/2026/08/19/us/politics/heidi-overton-cassidy-fda.html

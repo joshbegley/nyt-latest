@@ -1,3 +1,7 @@
+**What to Know About Hayden Panettiere’s Death**\
+`The “Nashville” and “Heroes” star had released a memoir months before she died at 36.`\
+https://www.nytimes.com/2026/08/19/arts/music/hayden-panettiere-death-what-to-know.html
+
 **Senate Health Panel Chairman Voices Strong Reservations About F.D.A. Nominee**\
 `Senator Bill Cassidy said Dr. Heidi Overton’s role in President Trump’s executive order on vaccines last week was “almost disqualifying.”`\
 https://www.nytimes.com/2026/08/19/us/politics/heidi-overton-cassidy-fda.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/elections/100000011100884/darline-graham-nation
 **Former Fauci Adviser Pleads Guilty to Trying to Conceal Covid-Related Records**\
 `Dr. David Morens, a former N.I.H. official, admitted to attempts to conceal emails that discussed the origins of the pandemic.`\
 https://www.nytimes.com/2026/08/19/science/david-morens-covid-fauci.html
-
-**The Dresses You Need to Have, From Sundresses to the Perfect Little Black Dress**\
-`These classic styles will simplify getting dressed for nearly any event, from a picnic to a cocktail party.`\
-https://www.nytimes.com/2026/08/19/t-magazine/dress-styles-wardrobe-fashion-essentials.html
 
