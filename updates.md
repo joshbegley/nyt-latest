@@ -1,3 +1,11 @@
+**Sydney Gruters, Wife of R.N.C. Chair, Wins House Primary in Florida With Trump’s Backing**\
+`Ms. Gruters had been favored to win in a congressional district that was redrawn as part of Gov. Ron DeSantis’s new map, which leaned even more Republican.`\
+https://www.nytimes.com/2026/08/18/us/politics/trump-gruters-florida-republican-primary.html
+
+**Jared Moskowitz, Centrist Democrat From Florida, Beats Back Challenge From Left**\
+`Mr. Moskowitz, one of the most vocal Democratic supporters of Israel in the House, will compete in a highly competitive general election in the fall.`\
+https://www.nytimes.com/2026/08/18/us/politics/moskowitz-larkin-florida-democratic-primary.html
+
 **Judge Orders New Oversight of Immigrant Children’s Detention**\
 `After reviewing claims of persistent safety and sanitary failures, the court named two experts to monitor detention conditions across several facilities.`\
 https://www.nytimes.com/2026/08/18/us/judge-children-immigration-detention-order.html
