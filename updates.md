@@ -1,3 +1,15 @@
+**Kyiv’s Dormition Cathedral is Revived After Russian Drone Strike**\
+`Volunteers and priests rallied to clean up Kyiv’s Dormition Cathedral, still smelling of smoke from a massive blaze, for an anniversary celebration.`\
+https://www.nytimes.com/2026/08/19/world/europe/ukraine-kyiv-cathedral-russia-drone-strike.html
+
+**Europe Hurries to Fund More Cutting-Edge Businesses to Compete With China and U.S.**\
+`European governments, facing a nearly $1 trillion gap in investment funding, are casting a wide net to back start-ups developing pioneering technologies.`\
+https://www.nytimes.com/2026/08/19/business/economy/europe-investment-innovation-competition-us-china.html
+
+**‘Tiger King’ Director Takes On Reptile Trade in ‘Monsters of God’**\
+`Eric Goode’s latest docuseries about the lurid business of exotic animals is also his most personal, not least for examining his own complicity.`\
+https://www.nytimes.com/2026/08/19/arts/television/monsters-of-god-eric-goode.html
+
 **Many Student Loan Borrowers May Have to Switch to Worse Repayment Plans**\
 `In an unusual move, Congress worsened terms for some existing borrowers. Now they’ll have to pay more, and for a longer term.`\
 https://www.nytimes.com/2026/08/19/business/student-loans-ibr-paye.html
