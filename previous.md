@@ -1,3 +1,11 @@
+**The Local: Vaccines and Lip Balm**\
+`Why so many kids in Minnesota aren’t getting vaccinated.`\
+https://www.nytimes.com/2026/08/19/us/the-local-vaccines-lip-balm.html
+
+**Keep Your Eye on ICE**\
+`Trump’s deportation machine has only ramped up.`\
+https://www.nytimes.com/2026/08/19/opinion/ice-arrests-trump.html
+
 **Video Shows Deck Collapsing as Officers Serve Warrant in Missouri**\
 `Footage from a body-worn camera showed the officers and U.S. marshals at the door of a residence in Huntsville, Mo., as a deck gave way beneath them last month.`\
 https://www.nytimes.com/2026/08/19/us/missouri-deck-collapse-marshals-service.html
@@ -102,7 +110,7 @@ https://www.nytimes.com/2026/08/19/realestate/in-berkeley-calif-a-pioneering-mod
 `I’m now his caregiver, a single mother and the breadwinner for our family.`\
 https://www.nytimes.com/2026/08/19/magazine/husband-alzheimers-dating-ethics.html
 
-**The A.I. in Google’s New Pixel 11 Is Not Very Helpful**\
+**Google’s Pixel 11 Comes With Plenty of A.I. Does Anyone Want That?**\
 `The phone’s artificial intelligence can order groceries, book tables and take photos on a user’s behalf. But is it something people really want?`\
 https://www.nytimes.com/2026/08/19/technology/personaltech/google-pixel-11-review.html
 
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/08/19/technology/data-centers-backlash-loudoun-virg
 **After Youth Outcry, Vietnam Says Former Official Caused Fatal Crash at Tree 55**\
 `Young people are calling for justice after a former Communist Party official killed a teenager in a car crash. The government’s response has been surprising.`\
 https://www.nytimes.com/2026/08/19/world/asia/vietnam-crash-tree-55-community-party-official.html
-
-**Israel Opens Criminal Investigation Into Killings of Hind Rajab and Gaza Medical Workers**\
-`Two high-profile cases that had spurred international condemnation of the country’s conduct in Gaza were transferred to the military police. Such investigations have rarely led to convictions.`\
-https://www.nytimes.com/2026/08/19/world/middleeast/israel-criminal-investigation-hind-rajab-gaza-workers.html
-
-**Why Do People Assume I Have Cancer Just Because I Wear Scarves Over My Short Hair?**\
-`A reader is exasperated by the tender looks and encouraging words she receives from strangers who make assumptions about her health. What can she do?`\
-https://www.nytimes.com/2026/08/19/style/short-hair-cancer-assumptions.html
 

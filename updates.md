@@ -1,3 +1,15 @@
+**The Local: Vaccines and Lip Balm**\
+`Why so many kids in Minnesota aren’t getting vaccinated.`\
+https://www.nytimes.com/2026/08/19/us/the-local-vaccines-lip-balm.html
+
+**Keep Your Eye on ICE**\
+`Trump’s deportation machine has only ramped up.`\
+https://www.nytimes.com/2026/08/19/opinion/ice-arrests-trump.html
+
+**Google’s Pixel 11 Comes With Plenty of A.I. Does Anyone Want That?**\
+`The phone’s artificial intelligence can order groceries, book tables and take photos on a user’s behalf. But is it something people really want?`\
+https://www.nytimes.com/2026/08/19/technology/personaltech/google-pixel-11-review.html
+
 **Video Shows Deck Collapsing as Officers Serve Warrant in Missouri**\
 `Footage from a body-worn camera showed the officers and U.S. marshals at the door of a residence in Huntsville, Mo., as a deck gave way beneath them last month.`\
 https://www.nytimes.com/2026/08/19/us/missouri-deck-collapse-marshals-service.html
