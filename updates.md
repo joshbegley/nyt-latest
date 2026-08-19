@@ -1,3 +1,27 @@
+**Trump to Appear on Radio With Michael Cohen, His Onetime Nemesis**\
+`The call is the latest sign of a rapprochement between President Trump and his former fixer, who served as the star witness against his former boss in New York State Court.`\
+https://www.nytimes.com/2026/08/19/us/politics/trump-podcast-michael-cohen.html
+
+**Harry and Meghan Will Move Back to Britain After 6 Years in U.S.**\
+`The prince and his wife, whose relations with King Charles and the rest of the royal family have long been strained, will remain non-working royals, according to a person familiar with the decision.`\
+https://www.nytimes.com/2026/08/19/world/europe/prince-harry-meghan-return-uk.html
+
+**Why Treasury Yields Are Rising, and What That Means for the Economy**\
+`Interest rates on U.S. government bonds can affect everything from auto and student loans to mortgages.`\
+https://www.nytimes.com/2026/08/19/business/treasury-bonds-yields-economy.html
+
+**Alabama Democrats Look for a Black Backlash Over Voting Rights**\
+`Democrats in Alabama and beyond are trying to harness Black anger over the Supreme Court’s weakening of the Voting Rights Act and the Republican redistricting that followed.`\
+https://www.nytimes.com/2026/08/19/us/politics/alabama-voting-rights-act-black-voters.html
+
+**Columnist Ross Barkan Apologizes Amid Plagiarism Scandal**\
+`Mr. Barkan, who has written for New York magazine and The New York Times, said he had “never intended to crib from anyone’s work.”`\
+https://www.nytimes.com/2026/08/19/business/media/ross-barkan-plagiarism-apology.html
+
+**Sheet-Pan Shrimp Oreganata**\
+`This breezy weeknight meal loads fresh shrimp with fistfuls of garlicky, seasoned bread crumbs, which crisp and brown on top and plump up and soften underneath as they roast, soaking up the buttery wine sauce at the bottom of the sheet pan.`\
+https://www.nytimes.com/video/dining/100000011101255/sheet-pan-shrimp-oreganata.html
+
 **Trump vs. the International Criminal Court**\
 `The U.S. approach to the court has always been complicated. Now, it’s openly hostile.`\
 https://www.nytimes.com/2026/08/19/world/trump-icc-israel-investigation.html
