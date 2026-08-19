@@ -1,3 +1,7 @@
+**After Youth Outcry, Vietnam Says Former Official Caused Fatal Crash at Tree 55**\
+`Young people are calling for justice after a former Communist Party official killed a teenager in a car crash. The government’s response has been surprising.`\
+https://www.nytimes.com/2026/08/19/world/asia/vietnam-crash-tree-55-community-party-official.html
+
 **Israel Opens Criminal Inquiries Into Killings of Hind Rajab, 6, and of Medics**\
 `Two high-profile cases that had spurred international condemnation of the country’s conduct in Gaza were transferred to the military police. Such investigations have rarely led to convictions.`\
 https://www.nytimes.com/2026/08/19/world/middleeast/israel-criminal-investigation-hind-rajab-gaza-workers.html
