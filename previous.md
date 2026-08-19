@@ -1,3 +1,19 @@
+**Today, In Short**\
+`Summer reading. Surfing. And matchmaking.`\
+https://www.nytimes.com/2026/08/19/briefing/today-in-short.html
+
+**‘It’s Bonkers’: Jennifer Hegseth’s Hands-On Role in Her Husband’s Pentagon**\
+`After an 18-year career at Fox News, she is now her husband’s most influential adviser and de facto producer, shaping the job like no Pentagon spouse has before.`\
+https://www.nytimes.com/2026/08/19/style/jennifer-hegseth.html
+
+**Meatball Your Cheeseburger**\
+`Turns out, when you combine the creativity of a kid with the cooking know-how of his recipe-developer dad, you get a really great dinner.`\
+https://www.nytimes.com/2026/08/19/dining/meatball-your-cheeseburger.html
+
+**The Trump Administration Is Trying to Keep College Students From Voting. Don’t Let It.**\
+`American democracy and American higher education are inextricable.`\
+https://www.nytimes.com/2026/08/19/opinion/college-students-voting-civic.html
+
 **Send Us Your Questions About the Iran War**\
 `Times reporters who cover the war, diplomacy, energy and the broader Middle East are joining our “Ask a Correspondent” feature as the conflict nears the six-month mark. Let us know what’s on your mind.`\
 https://www.nytimes.com/2026/08/19/world/iran-war-reader-questions.html
@@ -177,24 +193,4 @@ https://www.nytimes.com/2026/08/19/podcasts/bridget-todd-ai-chatgpt.html
 **Byron Donalds Is Favored to Become Florida’s First Black Governor**\
 `Byron Donalds, a three-term congressman who won the state’s Republican primary on Tuesday, endorsed President Trump over his own governor, Ron DeSantis. The payoff has been huge.`\
 https://www.nytimes.com/2026/08/19/us/elections/byron-donalds-profile-florida-governors-race.html
-
-**Book Review: ‘The Rise and Fall of the Artificial State,’ by Jill Lepore**\
-`In a new book, Jill Lepore examines what happens when we abandon liberal democracy for rule by automation and machines.`\
-https://www.nytimes.com/2026/08/19/books/review/the-rise-and-fall-of-the-artificial-state-jill-lepore.html
-
-**In ‘The Invite’ and ‘Camp Miasma,’ Sex Comes With a Mentor**\
-`In films like “Teenage Sex and Death at Camp Miasma” and “The Invite,” middle-aged sexual gurus are helping younger characters — and audiences — relearn desire.`\
-https://www.nytimes.com/2026/08/19/movies/sex-in-the-movies-camp-miasma-the-invite.html
-
-**Everyone’s Using This A.I. Dictation App That I Want to Murder With a Hammer**\
-`Wispr Flow is supposed to make writing effortless and magical. So I “wrote” this column with it.`\
-https://www.nytimes.com/2026/08/19/magazine/ai-dictation-app-wispr.html
-
-**How Safety Reforms Are Dimming the ‘Dream’ of Owning a Condo in Florida**\
-`Sweeping reforms should make buildings safer, but only if homeowners can afford them, and condominium boards can agree on how they should be enforced.`\
-https://www.nytimes.com/2026/08/19/realestate/miami-condo-safety-regulations-surfside.html
-
-**How the Iran War Made Africa’s Richest Man Even Richer**\
-`Africans have turned to one of their own for fuel as the world’s supplies run low. But they are not the only ones with the continent’s richest man on speed dial.`\
-https://www.nytimes.com/2026/08/19/world/africa/dangote-iran-refinery-oil-nigeria.html
 

@@ -1,3 +1,19 @@
+**Today, In Short**\
+`Summer reading. Surfing. And matchmaking.`\
+https://www.nytimes.com/2026/08/19/briefing/today-in-short.html
+
+**‘It’s Bonkers’: Jennifer Hegseth’s Hands-On Role in Her Husband’s Pentagon**\
+`After an 18-year career at Fox News, she is now her husband’s most influential adviser and de facto producer, shaping the job like no Pentagon spouse has before.`\
+https://www.nytimes.com/2026/08/19/style/jennifer-hegseth.html
+
+**Meatball Your Cheeseburger**\
+`Turns out, when you combine the creativity of a kid with the cooking know-how of his recipe-developer dad, you get a really great dinner.`\
+https://www.nytimes.com/2026/08/19/dining/meatball-your-cheeseburger.html
+
+**The Trump Administration Is Trying to Keep College Students From Voting. Don’t Let It.**\
+`American democracy and American higher education are inextricable.`\
+https://www.nytimes.com/2026/08/19/opinion/college-students-voting-civic.html
+
 **Send Us Your Questions About the Iran War**\
 `Times reporters who cover the war, diplomacy, energy and the broader Middle East are joining our “Ask a Correspondent” feature as the conflict nears the six-month mark. Let us know what’s on your mind.`\
 https://www.nytimes.com/2026/08/19/world/iran-war-reader-questions.html
