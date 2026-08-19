@@ -1,7 +1,3 @@
-**Jared Moskowitz, Centrist Democrat From Florida, Beats Back Challenge From Left**\
-`Mr. Moskowitz, one of the most vocal Democratic supporters of Israel in the House, will compete in a highly competitive general election in the fall.`\
-https://www.nytimes.com/2026/08/18/us/politics/moskowitz-larkin-florida-democratic-primary.html
-
 **Judge Orders New Oversight of Immigrant Children’s Detention**\
 `After reviewing claims of persistent safety and sanitary failures, the court named two experts to monitor detention conditions across several facilities.`\
 https://www.nytimes.com/2026/08/18/us/judge-children-immigration-detention-order.html
@@ -189,6 +185,10 @@ https://www.nytimes.com/2026/08/18/us/politics/judge-paint-eisenhower-building-t
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/business/100000011099389/Biz-wheels-pebblebeach-Video.html
+
+**Bacon Cheeseburger Meatballs**\
+`This recipe, originally an idea conceived by the Cooking contributor Kevin Pang’s then-9-year-old son, Liam, produces a tender, juicy, beefy meatball with bacon, sweet onion and melted cheese in every single bite.`\
+https://www.nytimes.com/video/dining/100000011098392/bacon-cheeseburger-meatballs.html
 
 **Election Live Updates: Voters Choosing Candidates to Succeed DeSantis in Florida**\
 `Representative Byron Donalds has President Trump’s endorsement for governor in the state, and David Jolly is the favorite among Democrats. In California, voters are deciding who replaces former Representative Eric Swalwell.`\
