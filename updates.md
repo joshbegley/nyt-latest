@@ -1,3 +1,7 @@
+**Ukraine’s Ex-Defense Minister Calls for Election, Cementing Break With Zelensky**\
+`Mykhailo Fedorov, a popular young leader who was fired last month, said Russia should not be allowed to dictate when Ukrainians can choose their next government.`\
+https://www.nytimes.com/2026/08/19/world/europe/ukraine-fedorov-zelensky-elections.html
+
 **Kyiv’s Dormition Cathedral is Revived after Russian Drone Strike**\
 `Volunteers and priests rallied to clean up Kyiv’s Dormition Cathedral, still smelling of smoke from a massive blaze, for an anniversary celebration.`\
 https://www.nytimes.com/2026/08/19/world/europe/ukraine-kyiv-cathedral-russia-drone-strike.html
