@@ -1,3 +1,7 @@
+**How One County Profited From Data Centers Amid a Growing National Backlash**\
+`Loudoun County, Va., has gotten rich hosting more than 250 data centers, allowing it to cut property taxes. Other locales are taking note, even as a nationwide backlash over data centers grows.`\
+https://www.nytimes.com/2026/08/19/technology/data-centers-backlash-loudoun-virginia.html
+
 **After Youth Outcry, Vietnam Says Former Official Caused Fatal Crash at Tree 55**\
 `Young people are calling for justice after a former Communist Party official killed a teenager in a car crash. The government’s response has been surprising.`\
 https://www.nytimes.com/2026/08/19/world/asia/vietnam-crash-tree-55-community-party-official.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/19/arts/design/venice-biennale-theater-florentin
 **For Caitlin Simmers, Surfing Is a Dance Born on the Waves**\
 `Caitlin Simmers, a world champion surfer, sees her sport as dance. How does this translate? She’s as seamless as a ribbon.`\
 https://www.nytimes.com/2026/08/19/arts/dance/caitlin-simmers-surf-dance.html
-
-**For a Family Vacation on Crete, the Goal Is Simple: Chill Out**\
-`The plan was to go light on history and museums, heavy on beaches, food and whatever felt right. In other words, the perfect break.`\
-https://www.nytimes.com/2026/08/19/travel/crete-family-vacation.html
 
