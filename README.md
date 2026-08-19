@@ -1,3 +1,7 @@
+**Chinese Comic Investigated After Singing a Riff of a Patriotic Song**\
+`Guo Degang, one of the country’s best-known comedians, was reported to the authorities, as the arts continue to be a focus for ideological crackdowns.`\
+https://www.nytimes.com/2026/08/19/us/guo-degang-china-comic-investigated.html
+
 **Who Is to Blame When Surrogacy Goes Wrong?**\
 `A McKenna West-type debacle happened before, and it will happen again.`\
 https://www.nytimes.com/2026/08/19/opinion/when-surrogacy-goes-wrong.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/19/us/politics/peltola-sullivan-alaska-senate-pr
 **The ‘Crack Spread’ Is Going to Make Your Life Unpleasant**\
 `Gas prices are going to remain high. Don’t blame the price of crude oil.`\
 https://www.nytimes.com/2026/08/19/opinion/gas-prices-crude-oil-diesel.html
-
-**A Stunning Win for the Left in Florida: 6 Takeaways From Tuesday’s Primaries**\
-`State Representative Angie Nixon, a progressive firebrand, defeated a moderate who dramatically out-raised her with grass-roots enthusiasm. Can it carry her to victory in November?`\
-https://www.nytimes.com/2026/08/19/us/politics/florida-primaries-takeaways.html
 
