@@ -1,3 +1,7 @@
+**La nueva física del poder**\
+`Drones, misiles baratos y nuevas tácticas han permitido que actores más débiles impongan costos desproporcionados a Estados Unidos, Israel y otras potencias militares.`\
+https://www.nytimes.com/es/2026/08/19/espanol/opinion/trump-guerra-iran-resumen.html
+
 **Rosie O’Donnell Rags on Trump’s Strait of Hormuz Claims**\
 `“I’ll put it this way: If the U.S. is in charge of the strait, then I’m also straight — and let’s face it, I’m not,” the guest host said on “Jimmy Kimmel Live.”`\
 https://www.nytimes.com/2026/08/19/arts/television/rosie-odonnell-late-night-trump-strait-of-hormuz.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/08/18/business/cinemark-paramount-warner-deal-movie
 **Estancado en Irán, Trump se enfoca en Kim Jong-un, de Corea del Norte**\
 `Hace siete años, el presidente Trump no logró desarmar a Corea del Norte y desistió. ¿Podría ocurrir lo mismo con Irán?`\
 https://www.nytimes.com/es/2026/08/18/espanol/estados-unidos/trump-kim-jong-un-iran-corea-norte.html
-
-**Apple Removes Some Fees for App Developers in European Union**\
-`The move followed a long battle with regulators over the company’s tight controls of its App Store.`\
-https://www.nytimes.com/2026/08/18/technology/apple-fees-european-union.html
 
 **Election Live Updates: Top Candidates Advance in Alaska Senate Race as Democratic Socialist Scores Florida Upset**\
 `A Democratic former congresswoman will face Alaska’s incumbent Republican senator in November. In Florida, Angie Nixon overcame a huge fund-raising disadvantage to defeat Alex Vindman.`\

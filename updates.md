@@ -1,3 +1,7 @@
+**La nueva física del poder**\
+`Drones, misiles baratos y nuevas tácticas han permitido que actores más débiles impongan costos desproporcionados a Estados Unidos, Israel y otras potencias militares.`\
+https://www.nytimes.com/es/2026/08/19/espanol/opinion/trump-guerra-iran-resumen.html
+
 **Rosie O’Donnell Rags on Trump’s Strait of Hormuz Claims**\
 `“I’ll put it this way: If the U.S. is in charge of the strait, then I’m also straight — and let’s face it, I’m not,” the guest host said on “Jimmy Kimmel Live.”`\
 https://www.nytimes.com/2026/08/19/arts/television/rosie-odonnell-late-night-trump-strait-of-hormuz.html
