@@ -1,3 +1,11 @@
+**Video Shows Deck Collapsing as Officers Serve Warrant in Missouri**\
+`Footage from a body-worn camera showed the officers and U.S. marshals at the door of a residence in Huntsville, Mo., as a deck gave way beneath them last month.`\
+https://www.nytimes.com/2026/08/19/us/missouri-deck-collapse-marshals-service.html
+
+**Law Enforcement Officers Injured in Deck Collapse**\
+`Local and federal officers were trying to serve a warrant in Missouri when a deck collapsed beneath them.`\
+https://www.nytimes.com/video/us/100000011101330/marshals-deck-collapse-missouri-arrest.html
+
 **Questioning the Efficacy of Tariffs**\
 `Readers respond to a guest essay about how the government is trying to crack down on a strategy some countries employ to lower the tariffs they pay.`\
 https://www.nytimes.com/2026/08/19/opinion/efficacy-of-tariffs.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/08/19/world/middleeast/israel-criminal-investigatio
 **Why Do People Assume I Have Cancer Just Because I Wear Scarves Over My Short Hair?**\
 `A reader is exasperated by the tender looks and encouraging words she receives from strangers who make assumptions about her health. What can she do?`\
 https://www.nytimes.com/2026/08/19/style/short-hair-cancer-assumptions.html
-
-**What Will It Take to Fix New York’s Housing Shortage?**\
-`A draft report from the city estimates that 700,000 new units would need to be built over the next decade to meet the need for homes.`\
-https://www.nytimes.com/2026/08/19/nyregion/nyc-housing-shortage.html
-
-**The Rising Stakes of the Global Bond Rout**\
-`There were already several factors rattling investors. A further rise in bond yields is making things more expensive for everyone.`\
-https://www.nytimes.com/2026/08/19/business/dealbook/bonds-yields-treasury-ai.html
 

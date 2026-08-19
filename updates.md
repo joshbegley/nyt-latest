@@ -1,3 +1,11 @@
+**Video Shows Deck Collapsing as Officers Serve Warrant in Missouri**\
+`Footage from a body-worn camera showed the officers and U.S. marshals at the door of a residence in Huntsville, Mo., as a deck gave way beneath them last month.`\
+https://www.nytimes.com/2026/08/19/us/missouri-deck-collapse-marshals-service.html
+
+**Law Enforcement Officers Injured in Deck Collapse**\
+`Local and federal officers were trying to serve a warrant in Missouri when a deck collapsed beneath them.`\
+https://www.nytimes.com/video/us/100000011101330/marshals-deck-collapse-missouri-arrest.html
+
 **Questioning the Efficacy of Tariffs**\
 `Readers respond to a guest essay about how the government is trying to crack down on a strategy some countries employ to lower the tariffs they pay.`\
 https://www.nytimes.com/2026/08/19/opinion/efficacy-of-tariffs.html
