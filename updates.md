@@ -1,3 +1,7 @@
+**Tariffs on Hold as Trump Claims Deal With Canada Is Near**\
+`President Trump announced a three-day delay on imposing 50 percent tariffs in a social media post on Tuesday night, roughly 90 minutes before the midnight deadline.`\
+https://www.nytimes.com/2026/08/18/world/canada/tariffs-trade-trump-carney.html
+
 **Pentagon Scales Back Major Training Exercises With South Korea**\
 `The move to end the military training a week earlier than scheduled comes after President Trump ordered the Defense Department to reduce joint military exercises with the key U.S. ally.`\
 https://www.nytimes.com/2026/08/18/us/politics/pentagon-south-korea-training-exercises.html

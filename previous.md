@@ -19,7 +19,7 @@ https://www.nytimes.com/2026/08/18/us/politics/wyoming-senate-trump-republican-h
 https://www.nytimes.com/2026/08/18/business/unitree-ipo-trading.html
 
 **Tariffs on Hold as Trump Claims Deal With Canada Is Near**\
-`President Trump announced a three-day delay on imposing 50 percent tariffs in a social media post on Tuesday night, roughly 90 minutes before the 12:01 a.m. deadline.`\
+`President Trump announced a three-day delay on imposing 50 percent tariffs in a social media post on Tuesday night, roughly 90 minutes before the midnight deadline.`\
 https://www.nytimes.com/2026/08/18/world/canada/tariffs-trade-trump-carney.html
 
 **In 911 Breakdown, Hundreds of Calls Failed to Reach Bronx Operators**\
