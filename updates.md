@@ -1,3 +1,11 @@
+**Who Is Ahead in the Arkansas Governor's Race? Latest 2026 Election Polls**\
+`Track the latest polls in the Arkansas governor election.`\
+https://www.nytimes.com/interactive/polls/arkansas-governor-election-polls-2026.html
+
+**Trump’s Tariffs on Hold as President Claims Deal With Canada Is Near**\
+`President Trump announced a three-day delay on imposing 50 percent tariffs in a social media post on Tuesday night, roughly 90 minutes before the midnight deadline.`\
+https://www.nytimes.com/2026/08/18/world/canada/tariffs-trade-trump-carney.html
+
 **5 Things to Know About Mary Peltola, Democratic Senate Candidate in Alaska**\
 `The Alaska Native, who grew up along the Kuskokwim River near the Bering Sea and fished for salmon, is the leading Democrat in the nonpartisan primary race.`\
 https://www.nytimes.com/2026/08/18/us/politics/mary-peltola-democratic-senate-alaska.html
