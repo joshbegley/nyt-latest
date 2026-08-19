@@ -1,3 +1,55 @@
+**Book Review: ‘The Rise and Fall of the Artificial State,’ by Jill Lepore**\
+`In a new book, Jill Lepore examines what happens when we abandon liberal democracy for rule by automation and machines.`\
+https://www.nytimes.com/2026/08/19/books/review/the-rise-and-fall-of-the-artificial-state-jill-lepore.html
+
+**In ‘The Invite’ and ‘Camp Miasma,’ Sex Comes With a Mentor**\
+`In films like “Teenage Sex and Death at Camp Miasma” and “The Invite,” middle-aged sexual gurus are helping younger characters — and audiences — relearn desire.`\
+https://www.nytimes.com/2026/08/19/movies/sex-in-the-movies-camp-miasma-the-invite.html
+
+**Everyone’s Using This A.I. Dictation App That I Want to Murder With a Hammer**\
+`Wispr Flow is supposed to make writing effortless and magical. So I “wrote” this column with it.`\
+https://www.nytimes.com/2026/08/19/magazine/ai-dictation-app-wispr.html
+
+**How Safety Reforms Are Dimming the ‘Dream’ of Owning a Condo in Florida**\
+`Sweeping reforms should make buildings safer, but only if homeowners can afford them, and condominium boards can agree on how they should be enforced.`\
+https://www.nytimes.com/2026/08/19/realestate/miami-condo-safety-regulations-surfside.html
+
+**How the Iran War Made Africa’s Richest Man Even Richer**\
+`Africans have turned to one of their own for fuel as the world’s supplies run low. But they are not the only ones with the continent’s richest man on speed dial.`\
+https://www.nytimes.com/2026/08/19/world/africa/dangote-iran-refinery-oil-nigeria.html
+
+**Word of the Day: aspersion**\
+`This word has appeared in 22 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/08/19/learning/word-of-the-day-aspersion.html
+
+**The Designers Behind Matières Fécales Share Their Influences**\
+`The fashion designers Steven Raj Bhaskaran and Hannah Rose Dalton share some of the inspirations behind their provocative label.`\
+https://www.nytimes.com/2026/08/19/t-magazine/matieres-fecales-steven-raj-bhaskaran-hannah-rose-dalton-influences.html
+
+**My Favorite Artwork | Matières Fécales**\
+`The designers discuss a photograph of the nightlife icon who inspired their dramatic look.`\
+https://www.nytimes.com/video/t-magazine/100000011093099/my-favorite-artwork-matieres-fecales.html
+
+**The Best Loafers for Any Occasion**\
+`These stack-heeled styles work with everything from jeans to suits.`\
+https://www.nytimes.com/2026/08/19/t-magazine/stack-heeled-loafers-shoes.html
+
+**For Caitlin Simmers, Surfing Is a Dance Born on the Waves**\
+`Caitlin Simmers, a world champion surfer, sees her sport as dance. How does this translate? She’s as seamless as a ribbon.`\
+https://www.nytimes.com/2026/08/19/arts/dance/caitlin-simmers-surf-dance.html
+
+**The High Cost of Being Present at the Venice Biennale**\
+`Some of the most talked-about pavilions at this year’s art event feature theatrical performances. But working with live bodies brings extra challenges.`\
+https://www.nytimes.com/2026/08/19/arts/design/venice-biennale-theater-florentina-holzinger-dries-verhoeven.html
+
+**For a Family Vacation on Crete, the Goal Was Simple: Chill Out**\
+`The plan was to go light on history and museums, heavy on beaches, food and whatever felt right. In other words, the perfect break.`\
+https://www.nytimes.com/2026/08/19/travel/crete-family-vacation.html
+
+**How Wall St. Profits When Personal Injury Lawsuits Pay Out**\
+`Personal injury cases have exploded, in number and magnitude, funded by companies betting on a win — and offering investors a piece of the action.`\
+https://www.nytimes.com/2026/08/19/business/personal-injury-lawsuits-funding.html
+
 **Iran war: Trump tries economic pressure — again**\
 `Iran has survived decades of sanctions. Faced with more, it is likely to escalate rather than surrender, analysts said.`\
 https://www.nytimes.com/2026/08/19/world/europe/iran-trump-economic-sanctions-leverage.html
@@ -145,56 +197,4 @@ https://www.nytimes.com/2026/08/18/us/politics/who-is-byron-donalds.html
 **5 Things to Know About David Jolly, the Democratic Nominee for Florida Governor**\
 `A former Republican, he plans to run on an affordability agenda.`\
 https://www.nytimes.com/2026/08/18/us/politics/5-things-to-know-about-david-jolly-the-democratic-nominee-for-florida-governor.html
-
-**Trump Ally Scott Singer Wins Republican Primary in Florida’s 25th District**\
-`Scott Singer will face the winner of the Democratic primary in one of the most competitive House races in the nation.`\
-https://www.nytimes.com/2026/08/18/us/politics/florida-republican-primary-25-district.html
-
-**California Passes New Rule Regulating Replacement Car Tires**\
-`The rule to require efficient replacement tires was praised by environmentalists. But manufacturers warned that the change would hurt American companies and increase tire prices.`\
-https://www.nytimes.com/2026/08/18/us/california-tires-energy-efficient-standards.html
-
-**Cory Mills Loses Republican Primary Amid Assault Allegations and Ethics Investigation**\
-`Mr. Mills, who is under investigation by the House Ethics Committee and has faced allegations of assault and threatening behavior toward women, lost to Ryan Elijah, a former TV news anchor.`\
-https://www.nytimes.com/2026/08/18/us/politics/mills-elijah-florida-republican-primary.html
-
-**Byron Donalds Wins Republican Nomination for Florida Governor**\
-`Mr. Donalds, a conservative congressman with the backing of President Trump, seeks to become the state’s first Black governor.`\
-https://www.nytimes.com/2026/08/18/us/politics/byron-donalds-florida-governor-republican-primary.html
-
-**Former Republican David Jolly Wins Democratic Nomination for Florida Governor**\
-`The former Republican congressman will try to appeal to voters disaffected with President Trump in a state where Republicans significantly outnumber Democrats.`\
-https://www.nytimes.com/2026/08/18/us/politics/david-jolly-florida-governor-democratic-primary.html
-
-**Angie Nixon Scores Upset Win in Florida Senate Primary**\
-`Angie Nixon faces another difficult test this November against a Republican incumbent heavily favored to win.`\
-https://www.nytimes.com/2026/08/18/us/politics/florida-democratic-senate-primary-results.html
-
-**Sydney Gruters, Wife of R.N.C. Chair, Wins House Primary in Florida With Trump’s Backing**\
-`Ms. Gruters had been favored to win in a congressional district that was redrawn as part of Gov. Ron DeSantis’s new map, which leaned even more Republican.`\
-https://www.nytimes.com/2026/08/18/us/politics/trump-gruters-florida-republican-primary.html
-
-**Jared Moskowitz Fends Off DSA-Backed Challenger in Florida’s Democratic Primary**\
-`Mr. Moskowitz, one of the most vocal Democratic supporters of Israel in the House, will compete in a highly competitive general election in the fall.`\
-https://www.nytimes.com/2026/08/18/us/politics/moskowitz-larkin-florida-democratic-primary.html
-
-**Judge Orders New Oversight of Immigrant Children’s Detention**\
-`After reviewing claims of persistent safety and sanitary failures, the court named two experts to monitor detention conditions across several facilities.`\
-https://www.nytimes.com/2026/08/18/us/judge-children-immigration-detention-order.html
-
-**Debbie Wasserman Schultz Wins Democratic Primary in Redrawn Florida District**\
-`The congresswoman won her party’s nomination in Florida’s 20th District over several Black candidates who sharply criticized her decision to run there.`\
-https://www.nytimes.com/2026/08/18/us/politics/wasserman-schultz-manley-florida-primary.html
-
-**Haitians in Springfield Hunker Down as ICE Begins Detentions**\
-`Federal agents have begun detaining Haitians in the Ohio city, signaling an increase in ICE activity that has panicked the community and kept many from leaving home.`\
-https://www.nytimes.com/2026/08/18/us/ice-haiti-detention-springfield-tps-immigration.html
-
-**Boyfriend Who Abused Hayden Panettiere Had Returned to Her Life**\
-`Despite the actress’s efforts to move on from a turbulent relationship with Brian Hickerson, they were together when she went into cardiac arrest and died.`\
-https://www.nytimes.com/2026/08/18/arts/television/hayden-panettiere-brian-hickerson.html
-
-**Top Candidates Advance in Alaska Senate Race as Democratic Socialist Scores Florida Upset**\
-`A Democratic former congresswoman will face Alaska’s incumbent Republican senator in November. In Florida, Angie Nixon overcame a huge fund-raising disadvantage to defeat Alex Vindman.`\
-https://www.nytimes.com/live/2026/08/18/us/elections-florida-california-alaska
 
