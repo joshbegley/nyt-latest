@@ -1,3 +1,7 @@
+**700,000 Homes Over 10 Years: The Fix for New York’s Housing Crisis**\
+`To address a dire housing shortage, many New York City neighborhoods need to grow faster, a draft report from city officials said.`\
+https://www.nytimes.com/2026/08/19/nyregion/nyc-housing-shortage.html
+
 **Angie Nixon Notches Another Win for the Left Through Old-Fashioned Organizing**\
 `State Representative Angie Nixon scored a stunning upset on Tuesday in Florida’s Democratic Senate primary. Now comes the hard part: running as a progressive firebrand in a red state.`\
 https://www.nytimes.com/2026/08/19/us/politics/florida-primary-progressives-upset.html

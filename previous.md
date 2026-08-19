@@ -1,3 +1,7 @@
+**700,000 Homes Over 10 Years: The Fix for New York’s Housing Crisis**\
+`To address a dire housing shortage, many New York City neighborhoods need to grow faster, a draft report from city officials said.`\
+https://www.nytimes.com/2026/08/19/nyregion/nyc-housing-shortage.html
+
 **The Rising Stakes of the Global Bond Rout**\
 `There were already several factors rattling investors. A further rise in bond yields is making things more expensive for everyone.`\
 https://www.nytimes.com/2026/08/19/business/dealbook/bonds-yields-treasury-ai.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/19/world/europe/iran-trump-economic-sanctions-le
 **La relación poco conocida entre la demencia y la epilepsia**\
 `Sus problemas de memoria y confusión parecían síntomas de demencia. Los médicos descubrieron que eran provocados por crisis epilépticas “silenciosas” y pudieron tratarlos.`\
 https://www.nytimes.com/es/2026/08/19/espanol/demencia-epilepsia-relacion.html
-
-**Primary Results Set for Florida’s Key Races**\
-`In Florida, a democratic socialist defeated a far better-funded rival in the Democratic Senate primary as a Trump-backed congressman secured the Republican nomination for governor.`\
-https://www.nytimes.com/video/us/politics/100000011100598/florida-primaries-angie-nixon.html
 
