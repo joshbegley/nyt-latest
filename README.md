@@ -1,3 +1,7 @@
+**Former NYPD Sergeant Admits to Killing Man in Drunk-Driving Crash**\
+`Tiffany Howell admitted she was drunk when she drove the wrong way on the Taconic State Parkway earlier this year, killing Manuel Boitel, a Manhattan doorman.`\
+https://www.nytimes.com/2026/08/19/nyregion/nypd-police-drunk-driving-guilty.html
+
 **Trump and Canada’s Carney Seem to Make Progress on a Tariff Deal, but Questions Linger**\
 `After a deadline extension, the latest U.S. tariff threats seemed headed toward resolution on Wednesday, but questions lingered about what Canada would give up, and what it would get in exchange.`\
 https://www.nytimes.com/2026/08/19/world/canada/trump-canada-tariffs-carney-deal-trade.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/19/crosswords/strands-sidekick-900.html
 **Ukraine’s Ex-Defense Minister Calls for Election, Cementing Break With Zelensky**\
 `Mykhailo Fedorov, a popular young leader who was fired last month, said Russia should not be allowed to dictate when Ukrainians can choose their next government.`\
 https://www.nytimes.com/2026/08/19/world/europe/ukraine-fedorov-zelensky-elections.html
-
-**Kyiv’s Dormition Cathedral is Revived After Russian Drone Strike**\
-`Volunteers and priests rallied to clean up Kyiv’s Dormition Cathedral, still smelling of smoke from a massive blaze, for an anniversary celebration.`\
-https://www.nytimes.com/2026/08/19/world/europe/ukraine-kyiv-cathedral-russia-drone-strike.html
 
