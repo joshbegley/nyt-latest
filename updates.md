@@ -1,3 +1,11 @@
+**Mary Peltola and Dan Sullivan Advance in Key Alaska Senate Contest**\
+`The Democratic former congresswoman and the incumbent Republican senator will face off in November. Whether a potential spoiler candidate with the same name as the senator qualifies alongside them has not been determined.`\
+https://www.nytimes.com/2026/08/19/us/politics/peltola-sullivan-alaska-senate-primary.html
+
+**Election Live Updates: Top Candidates Advance in Alaska as Democratic Socialist Scores Florida Upset**\
+`A Democratic former congresswoman will face Alaska’s incumbent Republican senator in November. In Florida, Angie Nixon overcame a huge fund-raising disadvantage to defeat Alex Vindman.`\
+https://www.nytimes.com/live/2026/08/18/us/elections-florida-california-alaska
+
 **The Hidden Reason Gas Prices Are Not Going Down**\
 `Gas prices are going to remain high. Don’t blame the price of crude oil. Blame the crack spread.`\
 https://www.nytimes.com/2026/08/19/opinion/gas-prices-crude-oil-diesel.html

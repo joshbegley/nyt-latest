@@ -1,3 +1,11 @@
+**Scion of Democratic Politics Makes Runoff for Alaska Governor**\
+`Tom Begich, a former Democratic legislator and singer-songwriter, will be one of four candidates on the ranked-choice ballot for governor in November.`\
+https://www.nytimes.com/2026/08/19/us/politics/tom-begich-alaska-governor.html
+
+**Progressive Democrat Makes Runoff for Alaska Governor**\
+`Jonathan Kreiss-Tomkins, a former state legislator from Sitka, Alaska, will be one of four candidates on the ranked-choice voting ballot in November.`\
+https://www.nytimes.com/2026/08/19/us/politics/jonathan-kreiss-tomkins-alaska-governor.html
+
 **Mary Peltola and Dan Sullivan Advance in Key Alaska Senate Contest**\
 `The Democratic former congresswoman and the incumbent Republican senator will face off in November. Whether a potential spoiler candidate with the same name as the senator qualifies alongside them has not been determined.`\
 https://www.nytimes.com/2026/08/19/us/politics/peltola-sullivan-alaska-senate-primary.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/08/18/technology/apple-fees-european-union.html
 **Voters Head to the Polls on Either End of the Country**\
 `Also, it’s crunch time for U.S.-Canada trade. Here’s the latest at the end of Tuesday.`\
 https://www.nytimes.com/2026/08/18/briefing/primary-day-alaska-florida.html
-
-**Liberia Agrees to Take 1,200 Deportees From U.S.**\
-`The arrangement is one of the largest known deals that the Trump administration has struck to expel migrants who cannot be sent back to their home countries.`\
-https://www.nytimes.com/2026/08/18/us/politics/liberia-deportees.html
-
-**The OpenAI Hugging Face Hack, Explained**\
-`In July, the A.I. company Hugging Face discovered that it was hacked by an OpenAI agent. Helen Toner, a former OpenAI board member, breaks down the details of what happened on “The Ezra Klein Show.”`\
-https://www.nytimes.com/video/opinion/100000011091564/the-openai-hugging-face-hack-explained.html
 
 **Election Live Updates: Top Candidates Advance in Alaska as Democratic Socialist Scores Florida Upset**\
 `A Democratic former congresswoman will face Alaska’s incumbent Republican senator in November. In Florida, Angie Nixon overcame a huge fund-raising disadvantage to defeat Alex Vindman.`\
