@@ -1,3 +1,7 @@
+**Questioning the Efficacy of Tariffs**\
+`Readers respond to a guest column about efforts to head off transshipments that can lower the tariffs producing countries are required to pay.`\
+https://www.nytimes.com/2026/08/19/opinion/letters/efficacy-of-tariffs.html
+
 **More Fed Officials Lost Patience About Elevated Inflation at Latest Meeting**\
 `Minutes from the Federal Reserve’s July gathering showed broadening support for higher borrowing costs to stamp out lingering price pressures.`\
 https://www.nytimes.com/2026/08/19/business/federal-reserve-interest-rates.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/19/nyregion/nyc-housing-shortage.html
 **The Rising Stakes of the Global Bond Rout**\
 `There were already several factors rattling investors. A further rise in bond yields is making things more expensive for everyone.`\
 https://www.nytimes.com/2026/08/19/business/dealbook/bonds-yields-treasury-ai.html
-
-**Queen Camilla Says It Was ‘Difficult’ to Keep Charles’s Cancer a Secret**\
-`“I was just longing to let it out,” Camilla said in rare public comments about the king’s 2024 diagnosis, which was not immediately revealed. “But obviously I couldn’t.”`\
-https://www.nytimes.com/2026/08/19/world/europe/camilla-charles-cancer-diagnosis-secret-charity.html
 

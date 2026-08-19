@@ -1,3 +1,7 @@
+**Questioning the Efficacy of Tariffs**\
+`Readers respond to a guest column about efforts to head off transshipments that can lower the tariffs producing countries are required to pay.`\
+https://www.nytimes.com/2026/08/19/opinion/letters/efficacy-of-tariffs.html
+
 **More Fed Officials Lost Patience About Elevated Inflation at Latest Meeting**\
 `Minutes from the Federal Reserve’s July gathering showed broadening support for higher borrowing costs to stamp out lingering price pressures.`\
 https://www.nytimes.com/2026/08/19/business/federal-reserve-interest-rates.html
