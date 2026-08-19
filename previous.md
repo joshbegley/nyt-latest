@@ -1,3 +1,7 @@
+**Why Democrats and Republicans Are Backing Rivals in Alaska’s Senate Primary**\
+`A burst of ad spending is part of a campaign tactic in which the major parties try to boost fringe hopefuls on the other side.`\
+https://www.nytimes.com/2026/08/18/us/politics/alaska-senate-primary-election-meddling.html
+
 **Pentagon Scales Back Major Training Exercises With South Korea**\
 `The move to end the military training a week earlier than scheduled comes after President Trump ordered the Defense Department to reduce joint military exercises with the key U.S. ally.`\
 https://www.nytimes.com/2026/08/18/us/politics/pentagon-south-korea-training-exercises.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/interactive/2026/08/18/climate/ev-car-sales-oil-prices.h
 **Border Construction at Big Bend National Park Temporarily Halted**\
 `The Trump administration halted border construction in Big Bend National Park in Texas amid increasing criticism. Local law enforcement officials have said that the border infrastructure is unnecessary in a desolate and undeveloped area.`\
 https://www.nytimes.com/video/us/politics/100000011099153/big-bend-texas-border-us-mexico-immigration.html
-
-**ICE Bars Its Workers From Wearing Meta’s Smart Glasses on the Job**\
-`The agency joins a growing number of workplaces and groups to ban Meta’s devices, which have spurred privacy concerns.`\
-https://www.nytimes.com/2026/08/18/technology/ice-meta-smart-glasses.html
 
 **Election Live Updates: Democratic Socialist Scores Florida Upset in Latest Victory for Progressives**\
 `State Representative Angie Nixon, a progressive firebrand, defeated Alex Vindman, who had far out-raised her. Voters in California will decide who replaces former Representative Eric Swalwell.`\

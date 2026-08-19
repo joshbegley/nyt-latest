@@ -1,3 +1,7 @@
+**Why Democrats and Republicans Are Backing Rivals in Alaska’s Senate Primary**\
+`A burst of ad spending is part of a campaign tactic in which the major parties try to boost fringe hopefuls on the other side.`\
+https://www.nytimes.com/2026/08/18/us/politics/alaska-senate-primary-election-meddling.html
+
 **Tariffs on Hold as Trump Claims Deal With Canada Is Near**\
 `President Trump announced a three-day delay on imposing 50 percent tariffs in a social media post on Tuesday night, roughly 90 minutes before the midnight deadline.`\
 https://www.nytimes.com/2026/08/18/world/canada/tariffs-trade-trump-carney.html
