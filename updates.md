@@ -1,3 +1,27 @@
+**The Dresses You Need to Have, From Sundresses to the Perfect Little Black Dress**\
+`These classic styles will simplify getting dressed for nearly any event, from a picnic to a cocktail party.`\
+https://www.nytimes.com/2026/08/19/t-magazine/dress-styles-wardrobe-fashion-essentials.html
+
+**In Berkeley, Calif., a Pioneering Modernist Home for $1.425 Million**\
+`The Kip House, designed by Donald Olsen for an eminent physicist, is on the market for only the second time in its history.`\
+https://www.nytimes.com/2026/08/19/realestate/in-berkeley-calif-a-pioneering-modernist-home-for-1-425-million.html
+
+**My Husband Has Alzheimer’s. Can I Date Other People?**\
+`I’m now his caregiver, a single mother and the breadwinner for our family.`\
+https://www.nytimes.com/2026/08/19/magazine/husband-alzheimers-dating-ethics.html
+
+**The A.I. in Google’s New Pixel 11 Is Not Very Helpful**\
+`The phone’s artificial intelligence can order groceries, book tables and take photos on a user’s behalf. But is it something people really want?`\
+https://www.nytimes.com/2026/08/19/technology/personaltech/google-pixel-11-review.html
+
+**The Trump Administration Is Thwarting College Students’ Most Fundamental Right**\
+`American democracy and American higher education are inextricable.`\
+https://www.nytimes.com/2026/08/19/opinion/college-students-voting-civic.html
+
+**McKenna West’s Surrogacy Should Not Be a Political Football**\
+`The surrogacy industry is long overdue for a reckoning.`\
+https://www.nytimes.com/2026/08/19/opinion/when-surrogacy-goes-wrong.html
+
 **Why A.I. Relationships Fizzle**\
 `The writer and podcaster Bridget Todd tells the “Modern Love” podcast host, Anna Martin, why she believes even people who develop intensely intimate bonds with their chatbots lose interest in these “relationships” eventually.`\
 https://www.nytimes.com/video/podcasts/100000011101005/ai-relationships-bridget-todd.html
