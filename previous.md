@@ -1,4 +1,4 @@
-**A Stunning Win for the Left in Florida: 6 Takeaways from Tuesday’s Primaries**\
+**A Stunning Win for the Left in Florida: 6 Takeaways From Tuesday’s Primaries**\
 `State Representative Angie Nixon, a progressive firebrand, defeated a moderate who dramatically out-raised her with grass-roots enthusiasm. Can it carry her to victory in November?`\
 https://www.nytimes.com/2026/08/19/us/politics/florida-primaries-takeaways.html
 
