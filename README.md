@@ -67,7 +67,7 @@ https://www.nytimes.com/es/2026/08/19/espanol/opinion/la-generacion-z-se-viste-c
 https://www.nytimes.com/2026/08/19/opinion/trumps-revenge.html
 
 **Many Student Loan Borrowers May Have to Switch to Worse Repayment Plans**\
-`In an usual move, Congress worsened terms for some existing borrowers. Now they’ll have to pay more, and for a longer term.`\
+`In an unusual move, Congress worsened terms for some existing borrowers. Now they’ll have to pay more, and for a longer term.`\
 https://www.nytimes.com/2026/08/19/business/student-loans-ibr-paye.html
 
 **‘Ted Lasso’ Season 4, Episode 3 Recap: Tryouts**\

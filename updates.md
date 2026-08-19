@@ -1,3 +1,11 @@
+**The Rising Stakes of the Global Bond Rout**\
+`There were already several factors rattling investors. A further rise in bond yields is making things more expensive for everyone.`\
+https://www.nytimes.com/2026/08/19/business/dealbook/bonds-yields-treasury-ai.html
+
+**For a Family Vacation on Crete, the Goal Is Simple: Chill Out**\
+`The plan was to go light on history and museums, heavy on beaches, food and whatever felt right. In other words, the perfect break.`\
+https://www.nytimes.com/2026/08/19/travel/crete-family-vacation.html
+
 **Queen Camilla Says It Was ‘Difficult’ to Keep Charles’s Cancer a Secret**\
 `“I was just longing to let it out,” Camilla said in rare public comments about the king’s 2024 diagnosis, which was not immediately revealed. “But obviously I couldn’t.”`\
 https://www.nytimes.com/2026/08/19/world/europe/camilla-charles-cancer-diagnosis-secret-charity.html
