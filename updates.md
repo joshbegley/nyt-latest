@@ -1,3 +1,7 @@
+**Driver Kills Two College Cyclists in Tennessee, Officials Say**\
+`Milligan University said two members of its cycling team had been killed. Five others were injured, officials said.`\
+https://www.nytimes.com/2026/08/19/us/cycling-team-crash-milligan-university.html
+
 **Stripe Buys A.I. Start-Up OpenRouter for $7.5 Billion**\
 `The deal is significant for the artificial intelligence industry, uniting Stripe’s payments business with OpenRouter’s helping businesses direct their spending on A.I. models.`\
 https://www.nytimes.com/2026/08/19/business/stripe-openrouter-ai.html
