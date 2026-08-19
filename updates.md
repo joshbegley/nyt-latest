@@ -1,3 +1,7 @@
+**‘I’m Not That Informed on National Security,’ Graham Says in South Carolina Debate**\
+`Senator Darline Graham made the remark in a debate against Representative Ralph Norman, her opponent in the runoff election to succeed her brother, Lindsey Graham. Here are five takeaways from the debate.`\
+https://www.nytimes.com/2026/08/18/us/politics/south-carolina-senate-runoff-debate-graham-norman.html
+
 **Quote of the Day: Violet Hensley, 109; Carved and Played Fiddles, and Made Opry Debut at 99**\
 `Quotation of the Day for Wednesday, August 19, 2026.`\
 https://www.nytimes.com/2026/08/19/pageoneplus/quote-of-the-day-violet-hensley-109-carved-and-played-fiddles-and-made-opry-debut-at-99.html

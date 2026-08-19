@@ -19,7 +19,7 @@ https://www.nytimes.com/2026/08/18/us/politics/mary-peltola-democratic-senate-al
 https://www.nytimes.com/2026/08/18/us/politics/dan-sullivan-republican-senator-alaska.html
 
 **‘I’m Not That Informed on National Security,’ Graham Says in South Carolina Debate**\
-`Senator Darline Graham made the remark in a debate against Representative Ralph Norman, her opponent in the runoff election to succeed her brother, Lindsey Graham. Here are five takeaways.`\
+`Senator Darline Graham made the remark in a debate against Representative Ralph Norman, her opponent in the runoff election to succeed her brother, Lindsey Graham. Here are five takeaways from the debate.`\
 https://www.nytimes.com/2026/08/18/us/politics/south-carolina-senate-runoff-debate-graham-norman.html
 
 **Why Democrats and Republicans Are Backing Rivals in Alaska’s Senate Primary**\
