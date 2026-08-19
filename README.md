@@ -1,3 +1,11 @@
+**U.A.E. Halts Trade Ties With Iran and Says It Was Targeted With Missiles**\
+`The Emirates has long been a major trading hub for Iran, and analysts say it has been key to Iranian efforts to evade international sanctions, which the country denies.`\
+https://www.nytimes.com/2026/08/19/world/middleeast/uae-cuts-trade-ties-iran-missiles.html
+
+**After the Storm**\
+`We look at the aftermath of Hurricane Lala.`\
+https://www.nytimes.com/2026/08/19/briefing/hurricane-lala-aftermath.html
+
 **El Niño Is Back. And Worse Than Ever.**\
 `The recurring climate phenomenon is poised this year to enter a new phase known as a super El Niño, exacerbating the effects of climate change.`\
 https://www.nytimes.com/2026/08/19/podcasts/the-daily/el-nino-climate-change-heat-wave-drought.html
@@ -74,13 +82,13 @@ https://www.nytimes.com/2026/08/19/us/california-palisades-fire-retrial-rinderkn
 `This week’s properties are in Miami, West Palm Beach and Key West.`\
 https://www.nytimes.com/2026/08/19/realestate/homes-for-sale-in-west-palm-beach-key-west-miami.html
 
-**Democrats Can’t Fix This Mess Without a Supermajority**\
-`They must embrace the heterodoxy that governs how swing voters think.`\
-https://www.nytimes.com/2026/08/19/opinion/democrats-midterms-supermajority.html
-
 **Jessica Williams Discusses Her Emmy-Nominated Role in ‘Shrinking’**\
 `The actress has received an Emmy nomination for each season of the Apple TV comedy. She can’t think about winning.`\
 https://www.nytimes.com/2026/08/19/arts/television/jessica-williams-shrinking-emmy.html
+
+**Democrats Can’t Fix This Mess Without a Supermajority**\
+`They must embrace the heterodoxy that governs how swing voters think.`\
+https://www.nytimes.com/2026/08/19/opinion/democrats-midterms-supermajority.html
 
 **How to Find the Best Deals Over Labor Day and Beyond**\
 `Last-minute budget strategies rest on one key principle: flexibility.`\
@@ -154,13 +162,13 @@ https://www.nytimes.com/video/t-magazine/100000011093099/my-favorite-artwork-mat
 `These stack-heeled styles work with everything from jeans to suits.`\
 https://www.nytimes.com/2026/08/19/t-magazine/stack-heeled-loafers-shoes.html
 
-**For Caitlin Simmers, Surfing Is a Dance Born on the Waves**\
-`Caitlin Simmers, a world champion surfer, sees her sport as dance. How does this translate? She’s as seamless as a ribbon.`\
-https://www.nytimes.com/2026/08/19/arts/dance/caitlin-simmers-surf-dance.html
-
 **The High Cost of Being Present at the Venice Biennale**\
 `Some of the most talked-about pavilions at this year’s art event feature theatrical performances. But working with live bodies brings extra challenges.`\
 https://www.nytimes.com/2026/08/19/arts/design/venice-biennale-theater-florentina-holzinger-dries-verhoeven.html
+
+**For Caitlin Simmers, Surfing Is a Dance Born on the Waves**\
+`Caitlin Simmers, a world champion surfer, sees her sport as dance. How does this translate? She’s as seamless as a ribbon.`\
+https://www.nytimes.com/2026/08/19/arts/dance/caitlin-simmers-surf-dance.html
 
 **For a Family Vacation on Crete, the Goal Was Simple: Chill Out**\
 `The plan was to go light on history and museums, heavy on beaches, food and whatever felt right. In other words, the perfect break.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/es/2026/08/19/espanol/estados-unidos/trump-casa-blanca-s
 **¿Qué pierden los estudiantes cuando dejan de escribir?**\
 `A los educadores les preocupa que muchos estudiantes ya no puedan escribir ensayos sin IA. El costo va más allá de las habilidades gramaticales.`\
 https://www.nytimes.com/es/2026/08/19/espanol/estados-unidos/estudiantes-ia-importancia-escribir.html
-
-**Otros primates, además de los humanos, también disfrutan tener mascotas**\
-`No somos los únicos animales a los que les gusta cuidar a otras especies. Un nuevo estudio revela que las raíces de tener una mascota podrían remontarse a lo más profundo de nuestro pasado primate.`\
-https://www.nytimes.com/es/2026/08/19/espanol/ciencia-y-tecnologia/primates-mascotas.html
-
-**La islamofobia aumenta en Texas**\
-`Las comunidades musulmanas han estado creciendo durante décadas, particularmente alrededor de Dallas. Ahora, los conservadores les están dando las espaldas.`\
-https://www.nytimes.com/es/2026/08/19/espanol/estados-unidos/texas-musulmanes-islamofobia.html
 
