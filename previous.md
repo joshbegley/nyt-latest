@@ -1,4 +1,8 @@
-**‘With All My Heart, Natalie.’ Trump’s Most Devoted Aide Emerges.**\
+**Harvard Agrees to $53 Million Settlement in Body Part Theft Scandal**\
+`The agreement settles lawsuits filed by relatives of people whose remains, donated for medical research and teaching, were stolen and sold by the former manager of the school’s medical morgue.`\
+https://www.nytimes.com/2026/08/18/us/harvard-stolen-body-parts-settlement.html
+
+**Natalie Harp, Trump’s Most Devoted Aide, Is Always by His Side. What Exactly Does She Do?**\
 `President Trump’s White House aide Natalie Harp is always by his side. What, exactly, does she do?`\
 https://www.nytimes.com/2026/08/18/us/politics/natalie-harp-trump-devotion-white-house.html
 
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/08/18/world/jason-arday-cambridge-canada-meta.html
 **Frank Beard, Beardless Drummer for ZZ Top, Dies at 77**\
 `The only member of the Texas power trio without a beard, he propelled the band’s blend of boogie, Southern rock and blues for more than a half-century.`\
 https://www.nytimes.com/2026/08/18/arts/music/frank-beard-zz-top-dead.html
-
-**Map: 5.3-Magnitude Earthquake Shakes Afghanistan**\
-`View the location of the quake’s epicenter and shake area.`\
-https://www.nytimes.com/interactive/2026/08/18/world/asia/afghanistan-quake-tracker.html
 
 **Election Live Updates: Democratic Socialist Scores Florida Upset in Latest Victory for Progressives**\
 `State Representative Angie Nixon, a progressive firebrand, defeated Alex Vindman, who had far out-raised her. Byron Donalds, a Trump-backed congressman, will face David Jolly in the Florida governor’s race in November.`\

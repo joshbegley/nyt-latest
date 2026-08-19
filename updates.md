@@ -1,3 +1,11 @@
+**Harvard Agrees to $53 Million Settlement in Body Part Theft Scandal**\
+`The agreement settles lawsuits filed by relatives of people whose remains, donated for medical research and teaching, were stolen and sold by the former manager of the school’s medical morgue.`\
+https://www.nytimes.com/2026/08/18/us/harvard-stolen-body-parts-settlement.html
+
+**Natalie Harp, Trump’s Most Devoted Aide, Is Always by His Side. What Exactly Does She Do?**\
+`President Trump’s White House aide Natalie Harp is always by his side. What, exactly, does she do?`\
+https://www.nytimes.com/2026/08/18/us/politics/natalie-harp-trump-devotion-white-house.html
+
 **‘With All My Heart, Natalie.’ Trump’s Most Devoted Aide Emerges.**\
 `President Trump’s White House aide Natalie Harp is always by his side. What, exactly, does she do?`\
 https://www.nytimes.com/2026/08/18/us/politics/natalie-harp-trump-devotion-white-house.html
