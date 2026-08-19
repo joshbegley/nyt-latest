@@ -42,7 +42,7 @@ https://www.nytimes.com/2026/08/19/crosswords/strands-sidekick-900.html
 `Mykhailo Fedorov, a popular young leader who was fired last month, said Russia should not be allowed to dictate when Ukrainians can choose their next government.`\
 https://www.nytimes.com/2026/08/19/world/europe/ukraine-fedorov-zelensky-elections.html
 
-**Kyiv’s Dormition Cathedral is Revived after Russian Drone Strike**\
+**Kyiv’s Dormition Cathedral is Revived After Russian Drone Strike**\
 `Volunteers and priests rallied to clean up Kyiv’s Dormition Cathedral, still smelling of smoke from a massive blaze, for an anniversary celebration.`\
 https://www.nytimes.com/2026/08/19/world/europe/ukraine-kyiv-cathedral-russia-drone-strike.html
 
@@ -78,7 +78,7 @@ https://www.nytimes.com/2026/08/19/arts/television/ted-lasso-season-4-episode-3-
 `A photo of a North American river otter suggests a river coming back to life, Bronx Zoo experts say.`\
 https://www.nytimes.com/2026/08/19/nyregion/otter-bronx-river-nyc.html
 
-**Europe Hurries to Fund More Cutting-Edge Businesses to Compete with China and U.S.**\
+**Europe Hurries to Fund More Cutting-Edge Businesses to Compete With China and U.S.**\
 `European governments, facing a nearly $1 trillion gap in investment funding, are casting a wide net to back start-ups developing pioneering technologies.`\
 https://www.nytimes.com/2026/08/19/business/economy/europe-investment-innovation-competition-us-china.html
 
@@ -106,7 +106,7 @@ https://www.nytimes.com/2026/08/19/travel/travel-deals-labor-day.html
 `When several horses wildly outperformed the odds at tracks at Saratoga and the Jersey Shore, bookmakers in London were stung and industry watchers suspected an elaborate plot.`\
 https://www.nytimes.com/2026/08/19/business/horse-racing-betting-coup.html
 
-**Director of ‘Tiger King’ Takes On the Creepy, Crawly Reptile Trade**\
+**‘Tiger King’ Director Takes On Reptile Trade in ‘Monsters of God’**\
 `Eric Goode’s latest docuseries about the lurid business of exotic animals is also his most personal, not least for examining his own complicity.`\
 https://www.nytimes.com/2026/08/19/arts/television/monsters-of-god-eric-goode.html
 

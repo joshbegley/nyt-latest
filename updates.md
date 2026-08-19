@@ -1,3 +1,11 @@
+**Many Student Loan Borrowers May Have to Switch to Worse Repayment Plans**\
+`In an unusual move, Congress worsened terms for some existing borrowers. Now they’ll have to pay more, and for a longer term.`\
+https://www.nytimes.com/2026/08/19/business/student-loans-ibr-paye.html
+
+**With Limited Options, Trump Tries Economic Pressure on Iran — Again**\
+`Iran has survived decades of sanctions. Faced with more, it is likely to escalate rather than surrender, analysts said.`\
+https://www.nytimes.com/2026/08/19/world/europe/iran-trump-economic-sanctions-leverage.html
+
 **The Rising Stakes of the Global Bond Rout**\
 `There were already several factors rattling investors. A further rise in bond yields is making things more expensive for everyone.`\
 https://www.nytimes.com/2026/08/19/business/dealbook/bonds-yields-treasury-ai.html
