@@ -1,3 +1,7 @@
+**Elecciones primarias en Florida: resultados, conclusiones y más**\
+`La representante estatal Angie Nixon, una progresista, derrotó a un moderado que la superó drásticamente en recaudación de fondos gracias al entusiasmo de las bases.`\
+https://www.nytimes.com/es/2026/08/19/espanol/elecciones-florida-resultados.html
+
 **Judge Is Asked to Block Inscription of Trump’s Name on Kennedy Center**\
 `The request from a Democratic lawmaker follows a decision by the Trump-allied board to add “Restored and Renovated by President Donald J. Trump” to the building.`\
 https://www.nytimes.com/2026/08/19/arts/music/judge-trump-name-kennedy-center.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/19/style/vintage-baby-clothes-cosmo-darling.html
 **Feeling Lonely? These 8 Books Might Help.**\
 `Psychologists, therapists and other experts share the works they recommend to people who are struggling to connect.`\
 https://www.nytimes.com/2026/08/19/well/loneliness-books.html
-
-**Bridget Todd Doesn’t Trust A.I., But She Told ChatGPT Everything**\
-`The tech writer and podcaster Bridget Todd felt sorry for people who said they had relationships with chatbots. Then she became one of them.`\
-https://www.nytimes.com/2026/08/19/podcasts/bridget-todd-ai-chatgpt.html
 
