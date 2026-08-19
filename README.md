@@ -1,3 +1,11 @@
+**Why A.I. Relationships Fizzle**\
+`The writer and podcaster Bridget Todd tells the “Modern Love” podcast host, Anna Martin, why she believes even people who develop intensely intimate bonds with their chatbots lose interest in these “relationships” eventually.`\
+https://www.nytimes.com/video/podcasts/100000011101005/ai-relationships-bridget-todd.html
+
+**As More Americans Turn to Cannabis, Problem Use Is Increasing**\
+`More Americans are reporting they are unable to quit or cut down.`\
+https://www.nytimes.com/2026/08/19/well/cannabis-use-disorder-alcohol.html
+
 **¿Quién es Natalie Harp? Esto sabemos sobre la ayudante de Trump**\
 `Natalie Harp, colaboradora de la Casa Blanca, siempre está junto al mandatario estadounidense. Esto sabemos sobre ella y su rol.`\
 https://www.nytimes.com/es/2026/08/19/espanol/estados-unidos/natalie-harp-ayudante-trump.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/08/19/opinion/democrats-midterms-supermajority.html
 **How to Find the Best Flight and Travel Deals Over Labor Day and Beyond**\
 `Last-minute budget strategies rest on one key principle: flexibility.`\
 https://www.nytimes.com/2026/08/19/travel/travel-deals-labor-day.html
-
-**The ‘Betting Coup’ Shaking Up Horse Racing**\
-`When several horses wildly outperformed the odds at tracks at Saratoga and the Jersey Shore, bookmakers in London were stung and industry watchers suspected an elaborate plot.`\
-https://www.nytimes.com/2026/08/19/business/horse-racing-betting-coup.html
-
-**‘Tiger King’ Director Takes On Reptile Trade in ‘Monsters of God’**\
-`Eric Goode’s latest docuseries about the lurid business of exotic animals is also his most personal, not least for examining his own complicity.`\
-https://www.nytimes.com/2026/08/19/arts/television/monsters-of-god-eric-goode.html
 
