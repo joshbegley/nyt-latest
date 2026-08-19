@@ -10,8 +10,8 @@ https://www.nytimes.com/2026/08/19/us/politics/jonathan-kreiss-tomkins-alaska-go
 `The Democratic former congresswoman and the incumbent Republican senator will face off in November. Whether a potential spoiler candidate with the same name as the senator qualifies alongside them has not been determined.`\
 https://www.nytimes.com/2026/08/19/us/politics/peltola-sullivan-alaska-senate-primary.html
 
-**The Hidden Reason Gas Prices Are Not Going Down**\
-`Gas prices are going to remain high. Don’t blame the price of crude oil. Blame the crack spread.`\
+**The ‘Crack Spread’ Is Going to Make Your Life Unpleasant**\
+`Gas prices are going to remain high. Don’t blame the price of crude oil.`\
 https://www.nytimes.com/2026/08/19/opinion/gas-prices-crude-oil-diesel.html
 
 **A Stunning Win for the Left in Florida: 6 Takeaways From Tuesday’s Primaries**\
