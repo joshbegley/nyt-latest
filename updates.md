@@ -1,3 +1,7 @@
+**Una nueva vacuna podría evitar que el melanoma reaparezca**\
+`Moderna y Merck dicen que la vacuna experimental de ARNm previno la reaparición y la propagación del cáncer en pacientes con melanoma de alto riesgo.`\
+https://www.nytimes.com/es/2026/08/19/espanol/ciencia-y-tecnologia/vacuna-melanoma.html
+
 **Driver Kills Two College Cyclists in Tennessee, Officials Say**\
 `Milligan University said two members of its cycling team had been killed. Five others were injured, officials said.`\
 https://www.nytimes.com/2026/08/19/us/cycling-team-crash-milligan-university.html
