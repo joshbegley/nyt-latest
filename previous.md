@@ -1,6 +1,6 @@
 **Questioning the Efficacy of Tariffs**\
-`Readers respond to a guest column about efforts to head off transshipments that can lower the tariffs producing countries are required to pay.`\
-https://www.nytimes.com/2026/08/19/opinion/letters/efficacy-of-tariffs.html
+`Readers respond to a guest essay about how some countries end up paying lower tariffs.`\
+https://www.nytimes.com/2026/08/19/opinion/efficacy-of-tariffs.html
 
 **More Fed Officials Lost Patience About Elevated Inflation at Latest Meeting**\
 `Minutes from the Federal Reserve’s July gathering showed broadening support for higher borrowing costs to stamp out lingering price pressures.`\
@@ -186,8 +186,8 @@ https://www.nytimes.com/2026/08/19/world/middleeast/israel-criminal-investigatio
 `A reader is exasperated by the tender looks and encouraging words she receives from strangers who make assumptions about her health. What can she do?`\
 https://www.nytimes.com/2026/08/19/style/short-hair-cancer-assumptions.html
 
-**700,000 Homes Over 10 Years: The Fix for New York’s Housing Crisis**\
-`To address a dire housing shortage, many New York City neighborhoods need to grow faster, a draft report from city officials said.`\
+**What Will It Take to Fix New York’s Housing Shortage?**\
+`A draft report from the city estimates that 700,000 new units would need to be built over the next decade to meet the need for homes.`\
 https://www.nytimes.com/2026/08/19/nyregion/nyc-housing-shortage.html
 
 **The Rising Stakes of the Global Bond Rout**\

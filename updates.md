@@ -1,3 +1,11 @@
+**Questioning the Efficacy of Tariffs**\
+`Readers respond to a guest essay about how some countries end up paying lower tariffs.`\
+https://www.nytimes.com/2026/08/19/opinion/efficacy-of-tariffs.html
+
+**What Will It Take to Fix New York’s Housing Shortage?**\
+`A draft report from the city estimates that 700,000 new units would need to be built over the next decade to meet the need for homes.`\
+https://www.nytimes.com/2026/08/19/nyregion/nyc-housing-shortage.html
+
 **As More Americans Turn to Cannabis, Problem Use Is Increasing**\
 `A growing number of Americans report they are unable to quit or cut down.`\
 https://www.nytimes.com/2026/08/19/well/cannabis-use-disorder-alcohol.html
