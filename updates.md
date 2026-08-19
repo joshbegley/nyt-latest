@@ -1,3 +1,11 @@
+**5 Things to Know About Mary Peltola, Democratic Senate Candidate in Alaska**\
+`The Alaska Native, who grew up along the Kuskokwim River near the Bering Sea and fished for salmon, is the leading Democrat in the nonpartisan primary race.`\
+https://www.nytimes.com/2026/08/18/us/politics/mary-peltola-democratic-senate-alaska.html
+
+**5 Things to Know About Dan Sullivan, the Alaska Senator Seeking Re-election**\
+`The incumbent Republican has been a reliable supporter of President Trump, giving Democrats a pickup opportunity in a state where most are politically unaffiliated.`\
+https://www.nytimes.com/2026/08/18/us/politics/dan-sullivan-republican-senator-alaska.html
+
 **‘I’m Not That Informed on National Security,’ Graham Says in South Carolina Debate**\
 `Senator Darline Graham made the remark in a debate against Representative Ralph Norman, her opponent in the runoff election to succeed her brother, Lindsey Graham. Here are five takeaways.`\
 https://www.nytimes.com/2026/08/18/us/politics/south-carolina-senate-runoff-debate-graham-norman.html
