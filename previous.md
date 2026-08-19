@@ -1,3 +1,7 @@
+**Iran war: Trump tries economic pressure — again**\
+`Iran has survived decades of sanctions. Faced with more, it is likely to escalate rather than surrender, analysts said.`\
+https://www.nytimes.com/2026/08/19/world/europe/iran-trump-economic-sanctions-leverage.html
+
 **La relación poco conocida entre la demencia y la epilepsia**\
 `Sus problemas de memoria y confusión parecían síntomas de demencia. Los médicos descubrieron que eran provocados por crisis epilépticas “silenciosas” y pudieron tratarlos.`\
 https://www.nytimes.com/es/2026/08/19/espanol/demencia-epilepsia-relacion.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/08/18/us/ice-haiti-detention-springfield-tps-immigr
 **Boyfriend Who Abused Hayden Panettiere Had Returned to Her Life**\
 `Despite the actress’s efforts to move on from a turbulent relationship with Brian Hickerson, they were together when she went into cardiac arrest and died.`\
 https://www.nytimes.com/2026/08/18/arts/television/hayden-panettiere-brian-hickerson.html
-
-**Is A.I. Development Really on a Safe Path?**\
-`The recent OpenAI Hugging Face hack has raised questions about the safety of frontier A.I. models. Helen Toner, the executive director of Georgetown’s Center for Security and Emerging Technology, discusses ways to improve A.I. safety without pausing development.`\
-https://www.nytimes.com/video/opinion/100000011099984/is-ai-development-really-on-a-safe-path.html
 
 **Top Candidates Advance in Alaska Senate Race as Democratic Socialist Scores Florida Upset**\
 `A Democratic former congresswoman will face Alaska’s incumbent Republican senator in November. In Florida, Angie Nixon overcame a huge fund-raising disadvantage to defeat Alex Vindman.`\

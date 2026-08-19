@@ -1,3 +1,7 @@
+**Iran war: Trump tries economic pressure — again**\
+`Iran has survived decades of sanctions. Faced with more, it is likely to escalate rather than surrender, analysts said.`\
+https://www.nytimes.com/2026/08/19/world/europe/iran-trump-economic-sanctions-leverage.html
+
 **La relación poco conocida entre la demencia y la epilepsia**\
 `Sus problemas de memoria y confusión parecían síntomas de demencia. Los médicos descubrieron que eran provocados por crisis epilépticas “silenciosas” y pudieron tratarlos.`\
 https://www.nytimes.com/es/2026/08/19/espanol/demencia-epilepsia-relacion.html
