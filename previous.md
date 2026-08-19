@@ -1,3 +1,15 @@
+**El salón de baile de Trump se construye 20 horas al día, 7 días a la semana**\
+`Aunque el destino del salón de baile está enredado en los tribunales, el gobierno de Trump argumenta que el proyecto está demasiado avanzado para detenerse.`\
+https://www.nytimes.com/es/2026/08/19/espanol/estados-unidos/trump-casa-blanca-salon-baile.html
+
+**¿Qué pierden los estudiantes cuando dejan de escribir?**\
+`A los educadores les preocupa que muchos estudiantes ya no puedan escribir ensayos sin IA. El costo va más allá de las habilidades gramaticales.`\
+https://www.nytimes.com/es/2026/08/19/espanol/estados-unidos/estudiantes-ia-importancia-escribir.html
+
+**Otros primates, además de los humanos, también disfrutan tener mascotas**\
+`No somos los únicos animales a los que les gusta cuidar a otras especies. Un nuevo estudio revela que las raíces de tener una mascota podrían remontarse a lo más profundo de nuestro pasado primate.`\
+https://www.nytimes.com/es/2026/08/19/espanol/ciencia-y-tecnologia/primates-mascotas.html
+
 **La islamofobia aumenta en Texas**\
 `Las comunidades musulmanas han estado creciendo durante décadas, particularmente alrededor de Dallas. Ahora, los conservadores les están dando las espaldas.`\
 https://www.nytimes.com/es/2026/08/19/espanol/estados-unidos/texas-musulmanes-islamofobia.html
@@ -181,18 +193,6 @@ https://www.nytimes.com/2026/08/18/us/politics/ashley-moody-florida-republican-s
 **Threatening Friends and Courting Enemies in Trump’s ‘Upside-Down World’**\
 `The president’s hostility to allies like Oman, Canada and South Korea, and his affection for adversaries like North Korea, may still shock some. But it comes as little surprise after a decade of upheaval.`\
 https://www.nytimes.com/2026/08/18/us/politics/trumps-upside-down-world.html
-
-**5 Things to Know About Angie Nixon, Democratic Senate Candidate in Florida**\
-`Ms. Nixon, a democratic socialist, is running on a platform that calls for universal health care and a federal minimum wage of $25 per hour.`\
-https://www.nytimes.com/2026/08/18/us/politics/angie-nixon-democrat-florida-senate-candidate.html
-
-**5 Things to Know About Alex Vindman, Democratic Senate Candidate in Florida**\
-`The Democrat testified in President Trump’s first impeachment trial and has a twin brother, Eugene, in Congress.`\
-https://www.nytimes.com/2026/08/18/us/politics/alex-vindman-democratic-senate-florida.html
-
-**When to Expect Election Results in Alaska, California, Florida and Wyoming**\
-`Four states are holding elections on Tuesday. Election officials anticipate having results by late Tuesday or early Wednesday.`\
-https://www.nytimes.com/2026/08/18/us/politics/florida-alaska-california-wyoming-results-timing.html
 
 **Top Candidates Advance in Alaska Senate Race as Democratic Socialist Scores Florida Upset**\
 `A Democratic former congresswoman will face Alaska’s incumbent Republican senator in November. In Florida, Angie Nixon overcame a huge fund-raising disadvantage to defeat Alex Vindman.`\

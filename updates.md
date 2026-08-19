@@ -1,3 +1,15 @@
+**El salón de baile de Trump se construye 20 horas al día, 7 días a la semana**\
+`Aunque el destino del salón de baile está enredado en los tribunales, el gobierno de Trump argumenta que el proyecto está demasiado avanzado para detenerse.`\
+https://www.nytimes.com/es/2026/08/19/espanol/estados-unidos/trump-casa-blanca-salon-baile.html
+
+**¿Qué pierden los estudiantes cuando dejan de escribir?**\
+`A los educadores les preocupa que muchos estudiantes ya no puedan escribir ensayos sin IA. El costo va más allá de las habilidades gramaticales.`\
+https://www.nytimes.com/es/2026/08/19/espanol/estados-unidos/estudiantes-ia-importancia-escribir.html
+
+**Otros primates, además de los humanos, también disfrutan tener mascotas**\
+`No somos los únicos animales a los que les gusta cuidar a otras especies. Un nuevo estudio revela que las raíces de tener una mascota podrían remontarse a lo más profundo de nuestro pasado primate.`\
+https://www.nytimes.com/es/2026/08/19/espanol/ciencia-y-tecnologia/primates-mascotas.html
+
 **U.S. Cuts Back Military Drills With South Korea, as Trump Woos Kim Jong-un**\
 `President Trump had ordered the Defense Department to reduce joint exercises with the key U.S. ally, declaring the drills “hostile” toward North Korea.`\
 https://www.nytimes.com/2026/08/18/us/politics/pentagon-south-korea-training-exercises.html
