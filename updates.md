@@ -1,3 +1,11 @@
+**Trump vs. the International Criminal Court**\
+`The U.S. approach to the court has always been complicated. Now, it’s openly hostile.`\
+https://www.nytimes.com/2026/08/19/world/trump-icc-israel-investigation.html
+
+**Markets Rally After U.S. Treasury Eases Bond Investor Stress**\
+`Government bond yields fell and stocks rose on a move by the Treasury Department to double the amount of debt that it can buy back from investors.`\
+https://www.nytimes.com/2026/08/19/business/bond-yields-treasury-department.html
+
 **Where Are Pop Stars Really Born?**\
 `The Slovak singer-songwriter Adéla gained exposure by competing on a reality show to become a member of the girl group KATSEYE, but she ended up carving her own path. Our critic Jon Caramanica dives into how this distinction is on display in her song “Ain’t In LA.”`\
 https://www.nytimes.com/video/podcasts/100000011102157/where-are-pop-stars-really-born.html
