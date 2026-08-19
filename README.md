@@ -1,3 +1,7 @@
+**Primary Results Set for Florida’s Key Races**\
+`In Florida, a democratic socialist defeated a far better-funded rival in the Democratic Senate primary as a Trump-backed congressman secured the Republican nomination for governor.`\
+https://www.nytimes.com/video/us/politics/100000011100598/florida-primaries-angie-nixon.html
+
 **El salón de baile de Trump se construye 20 horas al día, 7 días a la semana**\
 `Aunque el destino del salón de baile está enredado en los tribunales, el gobierno de Trump argumenta que el proyecto está demasiado avanzado para detenerse.`\
 https://www.nytimes.com/es/2026/08/19/espanol/estados-unidos/trump-casa-blanca-salon-baile.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/video/opinion/100000011099984/is-ai-development-really-o
 **5 Things to Know About Ashley Moody, Republican Senate Candidate in Florida**\
 `The Republican incumbent has President Trump’s support, but has little name recognition to many in her state.`\
 https://www.nytimes.com/2026/08/18/us/politics/ashley-moody-florida-republican-senate-primary.html
-
-**Threatening Friends and Courting Enemies in Trump’s ‘Upside-Down World’**\
-`The president’s hostility to allies like Oman, Canada and South Korea, and his affection for adversaries like North Korea, may still shock some. But it comes as little surprise after a decade of upheaval.`\
-https://www.nytimes.com/2026/08/18/us/politics/trumps-upside-down-world.html
 
 **Top Candidates Advance in Alaska Senate Race as Democratic Socialist Scores Florida Upset**\
 `A Democratic former congresswoman will face Alaska’s incumbent Republican senator in November. In Florida, Angie Nixon overcame a huge fund-raising disadvantage to defeat Alex Vindman.`\
