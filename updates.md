@@ -1,3 +1,11 @@
+**Trump and Canada’s Carney Seem to Make Progress on a Tariff Deal, but Questions Linger**\
+`After a deadline extension, the latest U.S. tariff threats seemed headed toward resolution on Wednesday, but questions lingered about what Canada would give up, and what it would get in exchange.`\
+https://www.nytimes.com/2026/08/19/world/canada/trump-canada-tariffs-carney-deal-trade.html
+
+**Tiny Love Stories: ‘She Thought I Was a Slob’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/08/19/style/tiny-modern-love-stories-she-thought-i-was-a-slob.html
+
 **California regula cuánto pueden aplastarse las llantas de los coches**\
 `La norma que exige neumáticos de repuesto eficientes fue elogiada por los ambientalistas. Pero los fabricantes advirtieron que el cambio perjudicaría a las empresas estadounidenses y aumentaría los precios.`\
 https://www.nytimes.com/es/2026/08/19/espanol/estados-unidos/california-regulacion-llantas.html

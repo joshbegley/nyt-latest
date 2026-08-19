@@ -98,7 +98,7 @@ https://www.nytimes.com/2026/08/19/style/jennifer-hegseth.html
 `Turns out, when you combine the creativity of a kid with the cooking know-how of his recipe-developer dad, you get a really great dinner.`\
 https://www.nytimes.com/2026/08/19/dining/meatball-your-cheeseburger.html
 
-**The Trump Administration Is Thwarting College Students’ Most Fundamental Right**\
+**What Does the Trump Administration Have Against the 26th Amendment?**\
 `American democracy and American higher education are inextricable.`\
 https://www.nytimes.com/2026/08/19/opinion/college-students-voting-civic.html
 
