@@ -1,3 +1,15 @@
+**Inside the Data Center Capital of the World**\
+`Cecilia Kang, who covers technology and regulatory policy for The New York Times, traveled to the “data center capital of the world” to see how the A.I. boom is affecting Loudoun County, Va.`\
+https://www.nytimes.com/video/us/100000011066777/inside-the-data-center-capital-of-the-world.html
+
+**Voters Aren’t Waiting for November to Try Ousting Officials Over Data Centers**\
+`As a backlash grows over data centers, more local officials are facing recall elections for their support of the computing sites.`\
+https://www.nytimes.com/2026/08/19/technology/data-centers-voter-concerns-independence-missouri.html
+
+**How One County Profited From Data Centers Amid a Growing National Backlash**\
+`Loudoun County, Va., has gotten rich hosting more than 250 data centers, allowing it to cut property taxes. Other locales are taking note, even as a nationwide backlash over data centers grows.`\
+https://www.nytimes.com/2026/08/19/technology/data-centers-backlash-loudoun-virginia.html
+
 **Israel Opens Criminal Investigation Into Killings of Hind Rajab and Gaza Medical Workers**\
 `Two high-profile cases that had spurred international condemnation of the country’s conduct in Gaza were transferred to the military police. Such investigations have rarely led to convictions.`\
 https://www.nytimes.com/2026/08/19/world/middleeast/israel-criminal-investigation-hind-rajab-gaza-workers.html
