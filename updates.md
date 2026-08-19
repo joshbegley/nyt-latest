@@ -1,3 +1,7 @@
+**California Passes New Rule Regulating Replacement Car Tires**\
+`The rule to require efficient replacement tires was praised by environmentalists. But manufacturers warned that the change would hurt American companies and increase tire prices.`\
+https://www.nytimes.com/2026/08/18/us/california-tires-energy-efficient-standards.html
+
 **5 Things to Know About Byron Donalds, Republican Nominee for Florida Governor**\
 `Representative Donalds, the Republican nominee for governor of Florida, made a name as a Black conservative in Congress, but his loyalty to President Trump has been his ticket.`\
 https://www.nytimes.com/2026/08/18/us/politics/who-is-byron-donalds.html

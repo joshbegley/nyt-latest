@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/08/18/us/politics/5-things-to-know-about-david-joll
 `Scott Singer will face the winner of the Democratic primary in one of the most competitive House races in the nation.`\
 https://www.nytimes.com/2026/08/18/us/politics/florida-republican-primary-25-district.html
 
-**California Becomes First State to Regulate the Squish of Car Tires**\
+**California Passes New Rule Regulating Replacement Car Tires**\
 `The rule to require efficient replacement tires was praised by environmentalists. But manufacturers warned that the change would hurt American companies and increase tire prices.`\
 https://www.nytimes.com/2026/08/18/us/california-tires-energy-efficient-standards.html
 
