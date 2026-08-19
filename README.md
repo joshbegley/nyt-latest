@@ -1,3 +1,87 @@
+**Who Is to Blame When Surrogacy Goes Wrong?**\
+`A McKenna West-type debacle happened before, and it will happen again.`\
+https://www.nytimes.com/2026/08/19/opinion/when-surrogacy-goes-wrong.html
+
+**The Left Notches Another Win With This Secret Weapon: Old-Fashioned Organizing**\
+`State Representative Angie Nixon scored a stunning upset on Tuesday in Florida’s Democratic Senate primary. Now comes the hard part: running as a progressive firebrand in a red state.`\
+https://www.nytimes.com/2026/08/19/us/politics/florida-primary-progressives-upset.html
+
+**La generación Z se viste como si nunca antes hubiera usado ropa**\
+`Con la llegada de internet, las tribus comenzaron a mezclarse; ahora es más difícil leer a las personas por el tipo de ropa que usan.`\
+https://www.nytimes.com/es/2026/08/19/espanol/opinion/la-generacion-z-se-viste-como-si-nunca-antes-hubiera-usado-ropa.html
+
+**Trump’s Revenge**\
+`The lust for vengeance shapes the president’s priorities, drives his actions and structures the decisions of his government.`\
+https://www.nytimes.com/2026/08/19/opinion/trumps-revenge.html
+
+**Many Student Loan Borrowers May Have to Switch to Worse Repayment Plans**\
+`In an usual move, Congress worsened terms for some existing borrowers. Now they’ll have to pay more, and for a longer term.`\
+https://www.nytimes.com/2026/08/19/business/student-loans-ibr-paye.html
+
+**‘Ted Lasso’ Season 4, Episode 3 Recap: Tryouts**\
+`The team begins to take shape.`\
+https://www.nytimes.com/2026/08/19/arts/television/ted-lasso-season-4-episode-3-recap-tryouts.html
+
+**An Otter in the Bronx Is a Big Deal. Here’s Why.**\
+`A photo of a North American river otter suggests a river coming back to life, Bronx Zoo experts say.`\
+https://www.nytimes.com/2026/08/19/nyregion/otter-bronx-river-nyc.html
+
+**Europe Hurries to Fund More Cutting-Edge Businesses to Compete with China and U.S.**\
+`European governments, facing a nearly $1 trillion gap in investment funding, are casting a wide net to back start-ups developing pioneering technologies.`\
+https://www.nytimes.com/2026/08/19/business/economy/europe-investment-innovation-competition-us-china.html
+
+**U.S. Will Try California Arson Suspect Again After Stunning Mistrial**\
+`The man accused of setting the blaze that later turned deadly in the Pacific Palisades is now readying for a new prosecution after a previous effort in June failed.`\
+https://www.nytimes.com/2026/08/19/us/california-palisades-fire-retrial-rinderknecht.html
+
+**Which $1.5 Million South Florida Home Would You Pick?**\
+`This week’s properties are in Miami, West Palm Beach and Key West.`\
+https://www.nytimes.com/2026/08/19/realestate/homes-for-sale-in-west-palm-beach-key-west-miami.html
+
+**Democrats Can’t Fix This Mess Without a Supermajority**\
+`They must embrace the heterodoxy that governs how swing voters think.`\
+https://www.nytimes.com/2026/08/19/opinion/democrats-midterms-supermajority.html
+
+**Jessica Williams Discusses Her Emmy-Nominated Role in ‘Shrinking’**\
+`The actress has received an Emmy nomination for each season of the Apple TV comedy. She can’t think about winning.`\
+https://www.nytimes.com/2026/08/19/arts/television/jessica-williams-shrinking-emmy.html
+
+**How to Find the Best Deals Over Labor Day and Beyond**\
+`Last-minute budget strategies rest on one key principle: flexibility.`\
+https://www.nytimes.com/2026/08/19/travel/travel-deals-labor-day.html
+
+**The ‘Betting Coup’ Shaking Up Horse Racing**\
+`When several horses wildly outperformed the odds at tracks at Saratoga and the Jersey Shore, bookmakers in London were stung and industry watchers suspected an elaborate plot.`\
+https://www.nytimes.com/2026/08/19/business/horse-racing-betting-coup.html
+
+**Director of ‘Tiger King’ Takes On the Creepy, Crawly Reptile Trade**\
+`Eric Goode’s latest docuseries about the lurid business of exotic animals is also his most personal, not least for examining his own complicity.`\
+https://www.nytimes.com/2026/08/19/arts/television/monsters-of-god-eric-goode.html
+
+**Friendship Is the New Luxury Good**\
+`The four-year degree isn’t just an economic signal; it’s become a lifestyle determinant.`\
+https://www.nytimes.com/2026/08/19/opinion/friendship-luxury-good.html
+
+**The Odyssey of Priam’s Treasure, an Ancient Trove of Artifacts**\
+`A German archaeologist’s dig of important historic pieces in the 1870s set off an ownership battle between Turkey, Germany and Russia, with no signs of abating.`\
+https://www.nytimes.com/2026/08/19/arts/design/priams-treasure-odyssey.html
+
+**For Sale: Baby Clothes, Definitely Worn**\
+`The perfect pair of Levi’s, old Armani. These are the vintage grails some discerning parents are chasing for their toddlers.`\
+https://www.nytimes.com/2026/08/19/style/vintage-baby-clothes-cosmo-darling.html
+
+**Feeling Lonely? These 8 Books Might Help.**\
+`Psychologists, therapists and other experts share the works they recommend to people who are struggling to connect.`\
+https://www.nytimes.com/2026/08/19/well/loneliness-books.html
+
+**Bridget Todd Doesn’t Trust A.I., But She Told ChatGPT Everything**\
+`The tech writer and podcaster Bridget Todd felt sorry for people who said they had relationships with chatbots. Then she became one of them.`\
+https://www.nytimes.com/2026/08/19/podcasts/bridget-todd-ai-chatgpt.html
+
+**Byron Donalds Is Favored to Become Florida’s First Black Governor**\
+`Byron Donalds, a three-term congressman who won the state’s Republican primary on Tuesday, endorsed President Trump over his own governor, Ron DeSantis. The payoff has been huge.`\
+https://www.nytimes.com/2026/08/19/us/elections/byron-donalds-profile-florida-governors-race.html
+
 **Book Review: ‘The Rise and Fall of the Artificial State,’ by Jill Lepore**\
 `In a new book, Jill Lepore examines what happens when we abandon liberal democracy for rule by automation and machines.`\
 https://www.nytimes.com/2026/08/19/books/review/the-rise-and-fall-of-the-artificial-state-jill-lepore.html
@@ -113,88 +197,4 @@ https://www.nytimes.com/2026/08/19/opinion/gas-prices-crude-oil-diesel.html
 **A Stunning Win for the Left in Florida: 6 Takeaways From Tuesday’s Primaries**\
 `State Representative Angie Nixon, a progressive firebrand, defeated a moderate who dramatically out-raised her with grass-roots enthusiasm. Can it carry her to victory in November?`\
 https://www.nytimes.com/2026/08/19/us/politics/florida-primaries-takeaways.html
-
-**Quote of the Day: Violet Hensley, 109; Carved and Played Fiddles, and Made Opry Debut at 99**\
-`Quotation of the Day for Wednesday, August 19, 2026.`\
-https://www.nytimes.com/2026/08/19/pageoneplus/quote-of-the-day-violet-hensley-109-carved-and-played-fiddles-and-made-opry-debut-at-99.html
-
-**In a Faltering Chinese Economy, Working-Class Stories Strike a Chord**\
-`Poems, essays and books written by working-class writers have garnered recognition in recent years — as well as increasing government attention.`\
-https://www.nytimes.com/2026/08/19/world/asia/china-working-class-writers-books.html
-
-**Who Is Ahead in the Arkansas Governor's Race? Latest 2026 Election Polls**\
-`Track the latest polls in the Arkansas governor election.`\
-https://www.nytimes.com/interactive/polls/arkansas-governor-election-polls-2026.html
-
-**5 Things to Know About Mary Peltola, Democratic Senate Candidate in Alaska**\
-`The Alaska Native, who grew up along the Kuskokwim River near the Bering Sea and fished for salmon, is the leading Democrat in the nonpartisan primary race.`\
-https://www.nytimes.com/2026/08/18/us/politics/mary-peltola-democratic-senate-alaska.html
-
-**5 Things to Know About Dan Sullivan, the Alaska Senator Seeking Re-election**\
-`The incumbent Republican has been a reliable supporter of President Trump, giving Democrats a pickup opportunity in a state where most are politically unaffiliated.`\
-https://www.nytimes.com/2026/08/18/us/politics/dan-sullivan-republican-senator-alaska.html
-
-**‘I’m Not That Informed on National Security,’ Graham Says in South Carolina Debate**\
-`Senator Darline Graham made the remark in a debate against Representative Ralph Norman, her opponent in the runoff election to succeed her brother, Lindsey Graham. Here are five takeaways from the debate.`\
-https://www.nytimes.com/2026/08/18/us/politics/south-carolina-senate-runoff-debate-graham-norman.html
-
-**Why Democrats and Republicans Are Backing Rivals in Alaska’s Senate Primary**\
-`A burst of ad spending is part of a campaign tactic in which the major parties try to boost fringe hopefuls on the other side.`\
-https://www.nytimes.com/2026/08/18/us/politics/alaska-senate-primary-election-meddling.html
-
-**U.S. Cuts Back Military Drills With South Korea, as Trump Woos Kim Jong-un**\
-`President Trump had ordered the Defense Department to reduce joint exercises with the key U.S. ally, declaring the drills “hostile” toward North Korea.`\
-https://www.nytimes.com/2026/08/18/us/politics/pentagon-south-korea-training-exercises.html
-
-**Trump to Nominate Heidi Overton, a Top Domestic Policy Aide, for F.D.A. Commissioner**\
-`Dr. Overton is a fierce opponent of abortion rights and a supporter of Health Secretary Robert F. Kennedy Jr.’s Make America Healthy Again agenda.`\
-https://www.nytimes.com/2026/08/18/health/heidi-overton-fda.html
-
-**Eric Barlow Wins Wyoming’s Republican Governor Primary Over Trump-Backed Candidate**\
-`Eric Barlow’s defeat of Megan Degenfelder, the state superintendent of education, again showed the limits of the president’s favor.`\
-https://www.nytimes.com/2026/08/18/us/politics/wyoming-governor-republican-primary.html
-
-**Harriet Hageman, Backed by Trump, Wins Wyoming’s Republican Senate Primary**\
-`Ms. Hageman, who unseated Representative Liz Cheney in 2022, is a heavy favorite to replace Senator Cynthia Lummis in the deep-red state.`\
-https://www.nytimes.com/2026/08/18/us/politics/wyoming-senate-trump-republican-hageman.html
-
-**Chinese Robot Maker Unitree Soars 500 Percent in Trading Debut**\
-`Unitree is the second major Chinese technology company linked to the country’s artificial intelligence boom to surge following its initial public offering in the past month.`\
-https://www.nytimes.com/2026/08/18/business/unitree-ipo-trading.html
-
-**Trump’s Tariffs on Hold as President Claims Deal With Canada Is Near**\
-`Prime Minister Mark Carney of Canada was less definitive about what the intense talks produced, saying ‘important work’ remained.`\
-https://www.nytimes.com/2026/08/18/world/canada/tariffs-trade-trump-carney.html
-
-**In 911 Breakdown, Hundreds of Calls Failed to Reach Bronx Operators**\
-`Over a seven-hour period Tuesday, nearly 1,700 calls did not go through to one of the city's two emergency call centers. It was unclear what had caused the problem.`\
-https://www.nytimes.com/2026/08/18/nyregion/911-nyc-the-bronx-call-center.html
-
-**NYT Crossword Answers for Aug. 19, 2026**\
-`Kareem Ayas shares his secret garden.`\
-https://www.nytimes.com/2026/08/18/crosswords/daily-puzzle-2026-08-19.html
-
-**Harvard Agrees to $53 Million Settlement in Body Part Theft Scandal**\
-`The agreement settles lawsuits filed by relatives of people whose remains, donated for medical research and teaching, were stolen and sold by the former manager of the school’s medical morgue.`\
-https://www.nytimes.com/2026/08/18/us/harvard-stolen-body-parts-settlement.html
-
-**Natalie Harp, Trump’s Most Devoted Aide, Is Always by His Side. What Exactly Does She Do?**\
-`President Trump’s White House aide Natalie Harp is always by his side. What, exactly, does she do?`\
-https://www.nytimes.com/2026/08/18/us/politics/natalie-harp-trump-devotion-white-house.html
-
-**Florida Media Mogul Jim Schwartzel Wins Republican House Primary to Replace Byron Donalds**\
-`Jim Schwartzel defeated a large field of competitors for a House seat based in Fort Myers, including several candidates who had recently established Florida residency.`\
-https://www.nytimes.com/2026/08/18/us/politics/florida-republican-primary-19-district.html
-
-**Trump Administration Moves to Allow Logging in National Forests**\
-`The Trump administration on Tuesday advanced a plan that would pave the way for road construction and logging in nearly 45 million acres of wilderness in national forests.`\
-https://www.nytimes.com/video/us/politics/100000011100038/trump-logging-national-forests-roads.html
-
-**5 Things to Know About Byron Donalds, Republican Nominee for Florida Governor**\
-`Representative Donalds, the Republican nominee for governor of Florida, made a name as a Black conservative in Congress, but his loyalty to President Trump has been his ticket.`\
-https://www.nytimes.com/2026/08/18/us/politics/who-is-byron-donalds.html
-
-**5 Things to Know About David Jolly, the Democratic Nominee for Florida Governor**\
-`A former Republican, he plans to run on an affordability agenda.`\
-https://www.nytimes.com/2026/08/18/us/politics/5-things-to-know-about-david-jolly-the-democratic-nominee-for-florida-governor.html
 
