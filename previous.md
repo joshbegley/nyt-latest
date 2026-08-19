@@ -1,5 +1,5 @@
 **Questioning the Efficacy of Tariffs**\
-`Readers respond to a guest essay about how some countries end up paying lower tariffs.`\
+`Readers respond to a guest essay about how the government is trying to crack down on a strategy some countries employ to lower the tariffs they pay.`\
 https://www.nytimes.com/2026/08/19/opinion/efficacy-of-tariffs.html
 
 **More Fed Officials Lost Patience About Elevated Inflation at Latest Meeting**\
