@@ -1,3 +1,7 @@
+**Tariffs on Hold as Trump Claims Deal With Canada Is Near**\
+`President Trump announced a three-day delay on imposing 50 percent tariffs in a social media post on Tuesday night, roughly 90 minutes before the 12:01 a.m. deadline.`\
+https://www.nytimes.com/2026/08/18/world/canada/tariffs-trade-trump-carney.html
+
 **In 911 Breakdown, Hundreds of Calls Failed to Reach Bronx Operators**\
 `Over a seven-hour period Tuesday, nearly 1,700 calls did not go through to one of the city's two emergency call centers. It was unclear what had caused the problem.`\
 https://www.nytimes.com/2026/08/18/nyregion/911-nyc-the-bronx-call-center.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/08/18/us/politics/trump-ballroom-construction.html
 **Many Questions, but Few Answers, at Hearing About N.Y.C. Second-Home Tax**\
 `The Mamdani administration opted to give written testimony to the City Council on the rollout of the new tax, saying officials could not appear in person because of a lawsuit.`\
 https://www.nytimes.com/2026/08/18/nyregion/mamdani-second-home-tax-hearing.html
-
-**Polling Firm Released Fake Data in Hong and Bass Races as a ‘Social Experiment’**\
-`Median Strategies revealed that recent polls from the firm were intended to expose how easily false results can be spread.`\
-https://www.nytimes.com/2026/08/18/polls/median-strategies-polls-bass-california-wisconsin.html
 
 **Election Live Updates: Democratic Socialist Scores Florida Upset in Latest Victory for Progressives**\
 `State Representative Angie Nixon, a progressive firebrand, defeated Alex Vindman, who had far out-raised her. Byron Donalds, a Trump-backed congressman, will face David Jolly in the Florida governor’s race in November.`\

@@ -1,3 +1,7 @@
+**Tariffs on Hold as Trump Claims Deal With Canada Is Near**\
+`President Trump announced a three-day delay on imposing 50 percent tariffs in a social media post on Tuesday night, roughly 90 minutes before the 12:01 a.m. deadline.`\
+https://www.nytimes.com/2026/08/18/world/canada/tariffs-trade-trump-carney.html
+
 **In 911 Breakdown, Hundreds of Calls Failed to Reach Bronx Operators**\
 `Over a seven-hour period Tuesday, nearly 1,700 calls did not go through to one of the city's two emergency call centers. It was unclear what had caused the problem.`\
 https://www.nytimes.com/2026/08/18/nyregion/911-nyc-the-bronx-call-center.html
