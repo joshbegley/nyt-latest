@@ -1,3 +1,7 @@
+**Top Candidates Advance in Alaska Senate Race as Democratic Socialist Scores Florida Upset**\
+`A Democratic former congresswoman will face Alaska’s incumbent Republican senator in November. In Florida, Angie Nixon overcame a huge fund-raising disadvantage to defeat Alex Vindman.`\
+https://www.nytimes.com/live/2026/08/18/us/elections-florida-california-alaska
+
 **La islamofobia aumenta en Texas**\
 `Las comunidades musulmanas han estado creciendo durante décadas, particularmente alrededor de Dallas. Ahora, los conservadores les están dando las espaldas.`\
 https://www.nytimes.com/es/2026/08/19/espanol/estados-unidos/texas-musulmanes-islamofobia.html
