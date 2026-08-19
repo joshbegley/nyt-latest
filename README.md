@@ -1,3 +1,7 @@
+**Family Members of Sailor Aboard U.S.S. Lincoln Speak Out**\
+`The mother and husband of a sailor on the aircraft carrier Abraham Lincoln, which has been deployed to the Middle East for more than eight months, shared their concerns with The New York Times about conditions on the ship.`\
+https://www.nytimes.com/video/us/100000011096947/family-members-of-sailor-aboard-uss-lincoln-speak-out.html
+
 **Why One Times Obits Writer Is Skeptical of Famous Last Words**\
 `Determining the reliability of final thoughts can be a challenge when conveying a person’s life story on deadline.`\
 https://www.nytimes.com/2026/08/19/insider/obits-famous-last-words.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/19/opinion/trumps-revenge.html
 **Many Student Loan Borrowers May Have to Switch to Worse Repayment Plans**\
 `In an unusual move, Congress worsened terms for some existing borrowers. Now they’ll have to pay more, and for a longer term.`\
 https://www.nytimes.com/2026/08/19/business/student-loans-ibr-paye.html
-
-**‘Ted Lasso’ Season 4, Episode 3 Recap: Tryouts**\
-`The team begins to take shape.`\
-https://www.nytimes.com/2026/08/19/arts/television/ted-lasso-season-4-episode-3-recap-tryouts.html
 
