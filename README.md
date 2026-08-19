@@ -75,7 +75,7 @@ https://www.nytimes.com/es/2026/08/19/espanol/mundo/trump-suspende-aranceles-can
 https://www.nytimes.com/es/2026/08/19/espanol/ciencia-y-tecnologia/vacuna-melanoma.html
 
 **Driver Kills 2 Milligan University Cycling Team Members, Officials Say**\
-`Milligan University said two members of its cycling team had been killed. Five others were injured, officials said.`\
+`Milligan University said two members of its cycling team had been killed. At least seven others were injured, officials said.`\
 https://www.nytimes.com/2026/08/19/us/cycling-team-crash-milligan-university.html
 
 **Stripe Buys A.I. Start-Up OpenRouter for $7.5 Billion**\

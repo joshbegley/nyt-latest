@@ -1,3 +1,19 @@
+**Chinese Start-Up Lands Reusable Rocket for the First Time**\
+`The milestone by the private company, LandSpace, could put China closer to challenging SpaceX’s rule in lower-cost spaceflight.`\
+https://www.nytimes.com/2026/08/19/world/asia/china-rocket-first-stage-recovery-land.html
+
+**Chinese Company Lands Reusable Rocket for the First Time**\
+`A private Chinese aerospace company successfully recovered a reusable rocket on land for the first time, state media reported.`\
+https://www.nytimes.com/video/world/asia/100000011101470/china-rocket-space.html
+
+**See Where Indy Cars Will Race Around Washington, D.C.**\
+`Explore the 1.7-mile course that Indy drivers will compete on Aug. 22 and 23.`\
+https://www.nytimes.com/interactive/2026/08/19/us/politics/trump-indycar-race-washington-dc.html
+
+**Mamdani Sues City Council Over $10,000 Bonuses to Teachers’ Aides**\
+`New York City says the Council’s legislation violates collective bargaining law. The dispute could set up the first high-profile battle between the mayor and a public sector union.`\
+https://www.nytimes.com/2026/08/19/nyregion/mamdani-ny-city-council-lawsuit-teachers.html
+
 **More of Trump’s Chosen Candidates Lose Republican Primaries**\
 `A series of recent losses has eroded the president’s winning record, raising new questions about his hold over the party’s voters.`\
 https://www.nytimes.com/2026/08/19/us/politics/trump-primary-election-republican-endorsements.html
