@@ -1,3 +1,11 @@
+**Quote of the Day: Violet Hensley, 109; Carved and Played Fiddles, and Made Opry Debut at 99**\
+`Quotation of the Day for Wednesday, August 19, 2026.`\
+https://www.nytimes.com/2026/08/19/pageoneplus/quote-of-the-day-violet-hensley-109-carved-and-played-fiddles-and-made-opry-debut-at-99.html
+
+**In a Faltering Chinese Economy, Working-Class Stories Strike a Chord**\
+`Poems, essays and books written by working-class writers have garnered recognition in recent years — as well as increasing government attention.`\
+https://www.nytimes.com/2026/08/19/world/asia/china-working-class-writers-books.html
+
 **Who Is Ahead in the Arkansas Governor's Race? Latest 2026 Election Polls**\
 `Track the latest polls in the Arkansas governor election.`\
 https://www.nytimes.com/interactive/polls/arkansas-governor-election-polls-2026.html
@@ -39,7 +47,7 @@ https://www.nytimes.com/2026/08/18/us/politics/wyoming-senate-trump-republican-h
 https://www.nytimes.com/2026/08/18/business/unitree-ipo-trading.html
 
 **Trump’s Tariffs on Hold as President Claims Deal With Canada Is Near**\
-`President Trump announced a three-day delay on imposing 50 percent tariffs in a social media post on Tuesday night, roughly 90 minutes before the midnight deadline.`\
+`Prime Minister Mark Carney of Canada was less definitive about what the intense talks produced, saying ‘important work’ remained.`\
 https://www.nytimes.com/2026/08/18/world/canada/tariffs-trade-trump-carney.html
 
 **In 911 Breakdown, Hundreds of Calls Failed to Reach Bronx Operators**\
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/08/18/travel/american-airlines-seatback-screens.htm
 **Trump Officials Ignored Their Own University Investigations, Lawyer Says**\
 `A former Justice Department lawyer says Trump administration leaders ignored findings that elite schools, including Brown and Columbia, hadn’t broken the law as they pressed them into deals.`\
 https://www.nytimes.com/2026/08/18/us/trump-administration-university-investigations-whistleblower.html
-
-**University of Michigan Names President After Prior Pick Faced Brain Cancer**\
-`The university chose a Vanderbilt academic, Cybele Raver, after a previous candidate for the role had to step down because of a brain cancer diagnosis.`\
-https://www.nytimes.com/2026/08/18/us/university-michigan-president-cybele-raver.html
-
-**Court Blocks Road Through Izembek National Wildlife Refuge**\
-`A federal judge ruled that the Trump administration broke the law when it approved a deal to allow a road through the Izembek National Wildlife Refuge.`\
-https://www.nytimes.com/2026/08/18/climate/court-alaska-izembek-refuge.html
 
 **Election Live Updates: Democratic Socialist Scores Florida Upset as Contests Are Held in 4 States**\
 `Angie Nixon, a progressive firebrand, won Florida’s Democratic Senate primary. Primaries were held in Alaska and Wyoming, and voters in California chose a replacement for Representative Eric Swalwell.`\
