@@ -194,7 +194,7 @@ https://www.nytimes.com/2026/08/18/technology/apple-fees-european-union.html
 `Also, it’s crunch time for U.S.-Canada trade. Here’s the latest at the end of Tuesday.`\
 https://www.nytimes.com/2026/08/18/briefing/primary-day-alaska-florida.html
 
-**Election Live Updates: Top Candidates Advance in Alaska as Democratic Socialist Scores Florida Upset**\
+**Election Live Updates: Top Candidates Advance in Alaska Senate Race as Democratic Socialist Scores Florida Upset**\
 `A Democratic former congresswoman will face Alaska’s incumbent Republican senator in November. In Florida, Angie Nixon overcame a huge fund-raising disadvantage to defeat Alex Vindman.`\
 https://www.nytimes.com/live/2026/08/18/us/elections-florida-california-alaska
 

@@ -1,3 +1,11 @@
+**Scion of Democratic Politics Makes Runoff for Alaska Governor**\
+`Tom Begich, a former Democratic legislator and singer-songwriter, will be one of four candidates on the ranked-choice ballot for governor in November.`\
+https://www.nytimes.com/2026/08/19/us/politics/tom-begich-alaska-governor.html
+
+**Progressive Democrat Makes Runoff for Alaska Governor**\
+`Jonathan Kreiss-Tomkins, a former state legislator from Sitka, Alaska, will be one of four candidates on the ranked-choice voting ballot in November.`\
+https://www.nytimes.com/2026/08/19/us/politics/jonathan-kreiss-tomkins-alaska-governor.html
+
 **Mary Peltola and Dan Sullivan Advance in Key Alaska Senate Contest**\
 `The Democratic former congresswoman and the incumbent Republican senator will face off in November. Whether a potential spoiler candidate with the same name as the senator qualifies alongside them has not been determined.`\
 https://www.nytimes.com/2026/08/19/us/politics/peltola-sullivan-alaska-senate-primary.html
