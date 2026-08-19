@@ -96,7 +96,7 @@ https://www.nytimes.com/2026/08/19/business/rebel-ice-cream-bankruptcy-van-leeuw
 
 **Family Members of Sailor Aboard U.S.S. Lincoln Speak Out**\
 `The mother and husband of a sailor on the aircraft carrier Abraham Lincoln, which has been deployed to the Middle East for more than eight months, shared their concerns with The New York Times about conditions on the ship.`\
-https://www.nytimes.com/video/us/100000011096947/uss-abraham-lincoln-sailor-family-concerns.html
+https://www.nytimes.com/video/us/100000011096947/family-members-of-sailor-aboard-uss-lincoln-speak-out.html
 
 **Why One Times Obits Writer Is Skeptical of Famous Last Words**\
 `Determining the reliability of final thoughts can be a challenge when conveying a person’s life story on deadline.`\
