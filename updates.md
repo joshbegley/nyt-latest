@@ -1,3 +1,7 @@
+**NASA’s Attempt to Save the Swift Telescope Has Failed**\
+`NASA’s Swift Observatory, which studies some of the most powerful explosions in the universe, is expected to burn up in the atmosphere.`\
+https://www.nytimes.com/2026/08/19/science/nasa-swift-telescope-failed-rescue.html
+
 **Derrick Parker, Known as New York’s ‘Hip-Hop Cop,’ Dies at 65**\
 `A veteran detective with deep connections in the city’s rap scene, he served as a one-man intelligence unit and liaison to the music world.`\
 https://www.nytimes.com/2026/08/19/nyregion/derrick-parker-dead.html

@@ -1,3 +1,7 @@
+**Mamdani to Sue City Council Over $10,000 Bonuses to Teachers’ Aides**\
+`New York City says the Council’s legislation violates collective bargaining law. The dispute could set up the first high-profile battle between the mayor and a public sector union.`\
+https://www.nytimes.com/2026/08/19/nyregion/mamdani-ny-city-council-lawsuit-teachers.html
+
 **NASA’s Attempt to Save the Swift Telescope Has Failed**\
 `NASA’s Swift Observatory, which studies some of the most powerful explosions in the universe, is expected to burn up in the atmosphere.`\
 https://www.nytimes.com/2026/08/19/science/nasa-swift-telescope-failed-rescue.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/19/business/iran-hormuz-oman-us-navy.html
 **Inside the Data Center Capital of the World**\
 `Cecilia Kang, who covers technology and regulatory policy for The New York Times, traveled to the “data center capital of the world” to see how the A.I. boom is affecting Loudoun County, Va.`\
 https://www.nytimes.com/video/us/100000011066777/inside-the-data-center-capital-of-the-world.html
-
-**Voters Aren’t Waiting for November to Try Ousting Officials Over Data Centers**\
-`As a backlash grows over data centers, more local officials are facing recall elections for their support of the computing sites.`\
-https://www.nytimes.com/2026/08/19/technology/data-centers-voter-concerns-independence-missouri.html
 
