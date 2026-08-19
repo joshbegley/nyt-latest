@@ -1,3 +1,7 @@
+**U.S. Debt Hits $40 Trillion as America’s Borrowing Binge Continues**\
+`President Trump’s promises to restore fiscal order and reduce the amount of America’s debt burden have been undercut by spending on the Iran war, tax cuts and tariff refunds.`\
+https://www.nytimes.com/2026/08/19/business/economy/us-debt-40-trillion.html
+
 **What to Know About Iran’s Economic Ties With Gulf Countries**\
 `The United Arab Emirates, Iran’s most important regional trading partner, announced a total embargo on transactions with Tehran on Tuesday.`\
 https://www.nytimes.com/2026/08/19/world/middleeast/iran-emirates-gulf-economic-ties.html
