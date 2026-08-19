@@ -1,3 +1,15 @@
+**Quote of the Day: Violet Hensley, 109; Carved and Played Fiddles, and Made Opry Debut at 99**\
+`Quotation of the Day for Wednesday, August 19, 2026.`\
+https://www.nytimes.com/2026/08/19/pageoneplus/quote-of-the-day-violet-hensley-109-carved-and-played-fiddles-and-made-opry-debut-at-99.html
+
+**In a Faltering Chinese Economy, Working-Class Stories Strike a Chord**\
+`Poems, essays and books written by working-class writers have garnered recognition in recent years — as well as increasing government attention.`\
+https://www.nytimes.com/2026/08/19/world/asia/china-working-class-writers-books.html
+
+**Trump’s Tariffs on Hold as President Claims Deal With Canada Is Near**\
+`Prime Minister Mark Carney of Canada was less definitive about what the intense talks produced, saying ‘important work’ remained.`\
+https://www.nytimes.com/2026/08/18/world/canada/tariffs-trade-trump-carney.html
+
 **Who Is Ahead in the Arkansas Governor's Race? Latest 2026 Election Polls**\
 `Track the latest polls in the Arkansas governor election.`\
 https://www.nytimes.com/interactive/polls/arkansas-governor-election-polls-2026.html
