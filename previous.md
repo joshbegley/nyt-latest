@@ -1,3 +1,7 @@
+**Florida Media Mogul Wins G.O.P. Primary to Replace Byron Donalds in House**\
+`Jim Schwartzel defeated a large field of competitors for a House seat based in Fort Myers, including several candidates who had recently established Florida residency.`\
+https://www.nytimes.com/2026/08/18/us/politics/florida-republican-primary-19-district.html
+
 **Trump Administration Moves to Allow Logging in National Forests**\
 `The Trump administration on Tuesday advanced a plan that would pave the way for road construction and logging in nearly 45 million acres of wilderness in national forests.`\
 https://www.nytimes.com/video/us/politics/100000011100038/trump-logging-national-forests-roads.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/interactive/2026/08/18/world/asia/afghanistan-quake-trac
 **In a Polarized Taiwan, Some Residents Are Training to Defend Their Homeland**\
 `Could civil-defense drills help Taiwan if China moves to annex the island?`\
 https://www.nytimes.com/interactive/2026/08/18/magazine/taiwan-china-invasion-defense.html
-
-**Restaurant Review: Bar Chimera in New York**\
-`From the team behind the hit Korean steakhouse Cote comes Bar Chimera, a luxe new spot in Midtown.`\
-https://www.nytimes.com/2026/08/18/dining/restaurant-review-bar-chimera-nyc.html
 
 **Election Live Updates: Democratic Socialist Scores Florida Upset in Latest Victory for Progressives**\
 `State Representative Angie Nixon, a progressive firebrand, defeated Alex Vindman, who had far out-raised her. Byron Donalds, a Trump-backed congressman, will face David Jolly in the Florida governor’s race in November.`\

@@ -1,3 +1,7 @@
+**Florida Media Mogul Wins G.O.P. Primary to Replace Byron Donalds in House**\
+`Jim Schwartzel defeated a large field of competitors for a House seat based in Fort Myers, including several candidates who had recently established Florida residency.`\
+https://www.nytimes.com/2026/08/18/us/politics/florida-republican-primary-19-district.html
+
 **Angie Nixon Scores Upset Win in Florida Senate Primary**\
 `Angie Nixon faces another difficult test this November against a Republican incumbent heavily favored to win.`\
 https://www.nytimes.com/2026/08/18/us/politics/florida-democratic-senate-primary-results.html
