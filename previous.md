@@ -1,3 +1,7 @@
+**Trump Administration Moves to Allow Logging in National Forests**\
+`The Trump administration on Tuesday advanced a plan that would pave the way for road construction and logging in nearly 45 million acres of wilderness in national forests.`\
+https://www.nytimes.com/video/us/politics/100000011100038/trump-logging-national-forests-roads.html
+
 **5 Things to Know About Byron Donalds, Republican Nominee for Florida Governor**\
 `Representative Donalds, the Republican nominee for governor of Florida, made a name as a Black conservative in Congress, but his loyalty to President Trump has been his ticket.`\
 https://www.nytimes.com/2026/08/18/us/politics/who-is-byron-donalds.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/interactive/2026/08/18/magazine/taiwan-china-invasion-de
 **Restaurant Review: Bar Chimera in New York**\
 `From the team behind the hit Korean steakhouse Cote comes Bar Chimera, a luxe new spot in Midtown.`\
 https://www.nytimes.com/2026/08/18/dining/restaurant-review-bar-chimera-nyc.html
-
-**Outshine Frozen Fruit Bars Recalled Over Glass Contamination Concern**\
-`The parent company, Dreyer’s Grand Ice Cream, voluntarily recalled five flavors nationwide. No injuries linked to the recalled products have been reported.`\
-https://www.nytimes.com/2026/08/18/us/outshine-recall-glass-frozen-fruit-treat.html
 
 **Election Live Updates: Democratic Socialist Scores Florida Upset in Latest Victory for Progressives**\
 `State Representative Angie Nixon, a progressive firebrand, defeated Alex Vindman, who had far out-raised her. Byron Donalds, a Trump-backed congressman, will face David Jolly in the Florida governor’s race in November.`\

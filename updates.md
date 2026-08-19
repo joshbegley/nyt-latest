@@ -1,3 +1,7 @@
+**Trump Administration Moves to Allow Logging in National Forests**\
+`The Trump administration on Tuesday advanced a plan that would pave the way for road construction and logging in nearly 45 million acres of wilderness in national forests.`\
+https://www.nytimes.com/video/us/politics/100000011100038/trump-logging-national-forests-roads.html
+
 **California Passes New Rule Regulating Replacement Car Tires**\
 `The rule to require efficient replacement tires was praised by environmentalists. But manufacturers warned that the change would hurt American companies and increase tire prices.`\
 https://www.nytimes.com/2026/08/18/us/california-tires-energy-efficient-standards.html
