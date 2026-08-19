@@ -1,3 +1,35 @@
+**U.A.E. Halts Trade Ties With Iran and Says It Was Targeted With Missiles**\
+`The Emirates has long been a major trading hub for Iran, and analysts say it has been key to Iranian efforts to evade international sanctions, which the country denies.`\
+https://www.nytimes.com/2026/08/19/world/middleeast/uae-cuts-trade-ties-iran-missiles.html
+
+**After the Storm**\
+`We look at the aftermath of Hurricane Lala.`\
+https://www.nytimes.com/2026/08/19/briefing/hurricane-lala-aftermath.html
+
+**El Niño Is Back. And Worse Than Ever.**\
+`The recurring climate phenomenon is poised this year to enter a new phase known as a super El Niño, exacerbating the effects of climate change.`\
+https://www.nytimes.com/2026/08/19/podcasts/the-daily/el-nino-climate-change-heat-wave-drought.html
+
+**How Tech Executives Limit Their Kids’ Screen Time, and Trump’s Race to Finish His Ballroom**\
+`Plus, the political emails are coming for you.`\
+https://www.nytimes.com/2026/08/19/podcasts/the-headlines/screen-time-kids-trump-ballroom.html
+
+**NYT Connections Answers for August 20, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Aug. 20, 2026.`\
+https://www.nytimes.com/2026/08/19/crosswords/connections-companion-1166.html
+
+**The Nightlife Icon Who Inspired the Duo Behind Matières Fécales**\
+`The designers of the fashion label Matières Fécales, Hannah Rose Dalton and Steven Raj Bhaskaran, discuss a portrait of the Australian performance artist and London club promoter Leigh Bowery by the photographer Nick Knight.`\
+https://www.nytimes.com/video/t-magazine/100000011093452/the-nightlife-icon-who-inspired-the-duo-behind-matieres-fecales.html
+
+**Today’s Wordle Hints for August 20, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Aug. 20, 2026.`\
+https://www.nytimes.com/2026/08/19/crosswords/wordle-review-1888.html
+
+**NYT Strands Hints for August 20, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Aug. 20, 2026.`\
+https://www.nytimes.com/2026/08/19/crosswords/strands-sidekick-900.html
+
 **Ukraine’s Ex-Defense Minister Calls for Election, Cementing Break With Zelensky**\
 `Mykhailo Fedorov, a popular young leader who was fired last month, said Russia should not be allowed to dictate when Ukrainians can choose their next government.`\
 https://www.nytimes.com/2026/08/19/world/europe/ukraine-fedorov-zelensky-elections.html

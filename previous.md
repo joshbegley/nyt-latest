@@ -1,3 +1,35 @@
+**U.A.E. Halts Trade Ties With Iran and Says It Was Targeted With Missiles**\
+`The Emirates has long been a major trading hub for Iran, and analysts say it has been key to Iranian efforts to evade international sanctions, which the country denies.`\
+https://www.nytimes.com/2026/08/19/world/middleeast/uae-cuts-trade-ties-iran-missiles.html
+
+**After the Storm**\
+`We look at the aftermath of Hurricane Lala.`\
+https://www.nytimes.com/2026/08/19/briefing/hurricane-lala-aftermath.html
+
+**El Niño Is Back. And Worse Than Ever.**\
+`The recurring climate phenomenon is poised this year to enter a new phase known as a super El Niño, exacerbating the effects of climate change.`\
+https://www.nytimes.com/2026/08/19/podcasts/the-daily/el-nino-climate-change-heat-wave-drought.html
+
+**How Tech Executives Limit Their Kids’ Screen Time, and Trump’s Race to Finish His Ballroom**\
+`Plus, the political emails are coming for you.`\
+https://www.nytimes.com/2026/08/19/podcasts/the-headlines/screen-time-kids-trump-ballroom.html
+
+**NYT Connections Answers for August 20, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Aug. 20, 2026.`\
+https://www.nytimes.com/2026/08/19/crosswords/connections-companion-1166.html
+
+**The Nightlife Icon Who Inspired the Duo Behind Matières Fécales**\
+`The designers of the fashion label Matières Fécales, Hannah Rose Dalton and Steven Raj Bhaskaran, discuss a portrait of the Australian performance artist and London club promoter Leigh Bowery by the photographer Nick Knight.`\
+https://www.nytimes.com/video/t-magazine/100000011093452/the-nightlife-icon-who-inspired-the-duo-behind-matieres-fecales.html
+
+**Today’s Wordle Hints for August 20, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Aug. 20, 2026.`\
+https://www.nytimes.com/2026/08/19/crosswords/wordle-review-1888.html
+
+**NYT Strands Hints for August 20, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Aug. 20, 2026.`\
+https://www.nytimes.com/2026/08/19/crosswords/strands-sidekick-900.html
+
 **Ukraine’s Ex-Defense Minister Calls for Election, Cementing Break With Zelensky**\
 `Mykhailo Fedorov, a popular young leader who was fired last month, said Russia should not be allowed to dictate when Ukrainians can choose their next government.`\
 https://www.nytimes.com/2026/08/19/world/europe/ukraine-fedorov-zelensky-elections.html
@@ -50,13 +82,13 @@ https://www.nytimes.com/2026/08/19/us/california-palisades-fire-retrial-rinderkn
 `This week’s properties are in Miami, West Palm Beach and Key West.`\
 https://www.nytimes.com/2026/08/19/realestate/homes-for-sale-in-west-palm-beach-key-west-miami.html
 
-**Democrats Can’t Fix This Mess Without a Supermajority**\
-`They must embrace the heterodoxy that governs how swing voters think.`\
-https://www.nytimes.com/2026/08/19/opinion/democrats-midterms-supermajority.html
-
 **Jessica Williams Discusses Her Emmy-Nominated Role in ‘Shrinking’**\
 `The actress has received an Emmy nomination for each season of the Apple TV comedy. She can’t think about winning.`\
 https://www.nytimes.com/2026/08/19/arts/television/jessica-williams-shrinking-emmy.html
+
+**Democrats Can’t Fix This Mess Without a Supermajority**\
+`They must embrace the heterodoxy that governs how swing voters think.`\
+https://www.nytimes.com/2026/08/19/opinion/democrats-midterms-supermajority.html
 
 **How to Find the Best Deals Over Labor Day and Beyond**\
 `Last-minute budget strategies rest on one key principle: flexibility.`\
@@ -130,13 +162,13 @@ https://www.nytimes.com/video/t-magazine/100000011093099/my-favorite-artwork-mat
 `These stack-heeled styles work with everything from jeans to suits.`\
 https://www.nytimes.com/2026/08/19/t-magazine/stack-heeled-loafers-shoes.html
 
-**For Caitlin Simmers, Surfing Is a Dance Born on the Waves**\
-`Caitlin Simmers, a world champion surfer, sees her sport as dance. How does this translate? She’s as seamless as a ribbon.`\
-https://www.nytimes.com/2026/08/19/arts/dance/caitlin-simmers-surf-dance.html
-
 **The High Cost of Being Present at the Venice Biennale**\
 `Some of the most talked-about pavilions at this year’s art event feature theatrical performances. But working with live bodies brings extra challenges.`\
 https://www.nytimes.com/2026/08/19/arts/design/venice-biennale-theater-florentina-holzinger-dries-verhoeven.html
+
+**For Caitlin Simmers, Surfing Is a Dance Born on the Waves**\
+`Caitlin Simmers, a world champion surfer, sees her sport as dance. How does this translate? She’s as seamless as a ribbon.`\
+https://www.nytimes.com/2026/08/19/arts/dance/caitlin-simmers-surf-dance.html
 
 **For a Family Vacation on Crete, the Goal Was Simple: Chill Out**\
 `The plan was to go light on history and museums, heavy on beaches, food and whatever felt right. In other words, the perfect break.`\
@@ -165,36 +197,4 @@ https://www.nytimes.com/es/2026/08/19/espanol/estados-unidos/trump-casa-blanca-s
 **¿Qué pierden los estudiantes cuando dejan de escribir?**\
 `A los educadores les preocupa que muchos estudiantes ya no puedan escribir ensayos sin IA. El costo va más allá de las habilidades gramaticales.`\
 https://www.nytimes.com/es/2026/08/19/espanol/estados-unidos/estudiantes-ia-importancia-escribir.html
-
-**Otros primates, además de los humanos, también disfrutan tener mascotas**\
-`No somos los únicos animales a los que les gusta cuidar a otras especies. Un nuevo estudio revela que las raíces de tener una mascota podrían remontarse a lo más profundo de nuestro pasado primate.`\
-https://www.nytimes.com/es/2026/08/19/espanol/ciencia-y-tecnologia/primates-mascotas.html
-
-**La islamofobia aumenta en Texas**\
-`Las comunidades musulmanas han estado creciendo durante décadas, particularmente alrededor de Dallas. Ahora, los conservadores les están dando las espaldas.`\
-https://www.nytimes.com/es/2026/08/19/espanol/estados-unidos/texas-musulmanes-islamofobia.html
-
-**‘I’ve Hit My Limit’: Some New Yorkers Opt for Fun at Home to Save Money**\
-`When wages are low and activities are pricey, the frugal find new ways of socializing.`\
-https://www.nytimes.com/2026/08/19/nyregion/nyc-high-cost-of-fun.html
-
-**NYT Spelling Bee Answers for August 19, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/08/19/crosswords/spelling-bee-forum.html
-
-**La nueva física del poder**\
-`Drones, misiles baratos y nuevas tácticas han permitido que actores más débiles impongan costos desproporcionados a Estados Unidos, Israel y otras potencias militares.`\
-https://www.nytimes.com/es/2026/08/19/espanol/opinion/trump-guerra-iran-resumen.html
-
-**Rosie O’Donnell Rags on Trump’s Strait of Hormuz Claims**\
-`“I’ll put it this way: If the U.S. is in charge of the strait, then I’m also straight — and let’s face it, I’m not,” the guest host said on “Jimmy Kimmel Live.”`\
-https://www.nytimes.com/2026/08/19/arts/television/rosie-odonnell-late-night-trump-strait-of-hormuz.html
-
-**Scion of Democratic Politics Makes Runoff for Alaska Governor**\
-`Tom Begich, a former Democratic legislator and singer-songwriter, will be one of four candidates on the ranked-choice ballot for governor in November.`\
-https://www.nytimes.com/2026/08/19/us/politics/tom-begich-alaska-governor.html
-
-**Progressive Democrat Makes Runoff for Alaska Governor**\
-`Jonathan Kreiss-Tomkins, a former state legislator from Sitka, Alaska, will be one of four candidates on the ranked-choice voting ballot in November.`\
-https://www.nytimes.com/2026/08/19/us/politics/jonathan-kreiss-tomkins-alaska-governor.html
 
