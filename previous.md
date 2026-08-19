@@ -102,7 +102,7 @@ https://www.nytimes.com/2026/08/19/business/horse-racing-betting-coup.html
 `Eric Goode’s latest docuseries about the lurid business of exotic animals is also his most personal, not least for examining his own complicity.`\
 https://www.nytimes.com/2026/08/19/arts/television/monsters-of-god-eric-goode.html
 
-**Friendship Is the New Luxury Good**\
+**Status Defines Friendship for Too Many Americans**\
 `The four-year degree isn’t just an economic signal; it’s become a lifestyle determinant.`\
 https://www.nytimes.com/2026/08/19/opinion/friendship-luxury-good.html
 

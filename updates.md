@@ -1,3 +1,7 @@
+**Status Defines Friendship for Too Many Americans**\
+`The four-year degree isn’t just an economic signal; it’s become a lifestyle determinant.`\
+https://www.nytimes.com/2026/08/19/opinion/friendship-luxury-good.html
+
 **U.A.E. Halts Trade Ties With Iran and Says It Was Targeted With Missiles**\
 `The Emirates has long been a major trading hub for Iran, and analysts say it has been key to Iranian efforts to evade international sanctions, which the country denies.`\
 https://www.nytimes.com/2026/08/19/world/middleeast/uae-cuts-trade-ties-iran-missiles.html
