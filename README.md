@@ -1,3 +1,11 @@
+**¿Quién es Natalie Harp? Esto sabemos sobre la ayudante de Trump**\
+`Natalie Harp, colaboradora de la Casa Blanca, siempre está junto al mandatario estadounidense. Esto sabemos sobre ella y su rol.`\
+https://www.nytimes.com/es/2026/08/19/espanol/estados-unidos/natalie-harp-ayudante-trump.html
+
+**Some Stand-Up Comics Are Pivoting Away From Video on Social Media**\
+`Comedians used to post footage of their performances to build a following. Now, some are finding that comic strip-style panels with captions pack a bigger punch.`\
+https://www.nytimes.com/2026/08/19/arts/comedians-social-media-photos-captions.html
+
 **Markets Rally After U.S. Treasury Tries to Ease Bond Market Stress**\
 `Government bond yields fell and stocks jumped on a move by the Treasury Department to double the amount of debt that it can buy back from investors.`\
 https://www.nytimes.com/2026/08/19/business/bond-yields-treasury-department.html
@@ -39,7 +47,7 @@ https://www.nytimes.com/2026/08/19/world/iran-war-reader-questions.html
 https://www.nytimes.com/es/2026/08/19/espanol/cultura/hayden-panettiere-novio.html
 
 **Moderna, Merck Say mRNA Vaccine Prevents Melanoma From Returning**\
-`The companies say the vaccine prevented the return and spread of the cancer in high-risk melanoma patients.`\
+`Moderna and Merck say the experimental vaccine prevented the return and spread of the cancer in high-risk melanoma patients.`\
 https://www.nytimes.com/2026/08/19/science/moderna-merck-mrna-vaccine-melanoma.html
 
 **How the U.S. Navy Is Helping Get Oil Through the Strait of Hormuz**\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/08/19/business/horse-racing-betting-coup.html
 **‘Tiger King’ Director Takes On Reptile Trade in ‘Monsters of God’**\
 `Eric Goode’s latest docuseries about the lurid business of exotic animals is also his most personal, not least for examining his own complicity.`\
 https://www.nytimes.com/2026/08/19/arts/television/monsters-of-god-eric-goode.html
-
-**Status Defines Friendship for Too Many Americans**\
-`The four-year degree isn’t just an economic signal; it’s become a lifestyle determinant.`\
-https://www.nytimes.com/2026/08/19/opinion/friendship-luxury-good.html
-
-**The Odyssey of Priam’s Treasure, an Ancient Trove of Artifacts**\
-`A German archaeologist’s dig of important historic pieces in the 1870s set off an ownership battle between Turkey, Germany and Russia, with no signs of abating.`\
-https://www.nytimes.com/2026/08/19/arts/design/priams-treasure-odyssey.html
 
