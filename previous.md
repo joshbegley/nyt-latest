@@ -1,3 +1,7 @@
+**A Stunning Win for the Left in Florida: 6 Takeaways from Tuesday’s Primaries**\
+`State Representative Angie Nixon, a progressive firebrand, defeated a moderate who dramatically out-raised her with grass-roots enthusiasm. Can it carry her to victory in November?`\
+https://www.nytimes.com/2026/08/19/us/politics/florida-primaries-takeaways.html
+
 **Quote of the Day: Violet Hensley, 109; Carved and Played Fiddles, and Made Opry Debut at 99**\
 `Quotation of the Day for Wednesday, August 19, 2026.`\
 https://www.nytimes.com/2026/08/19/pageoneplus/quote-of-the-day-violet-hensley-109-carved-and-played-fiddles-and-made-opry-debut-at-99.html
@@ -190,11 +194,7 @@ https://www.nytimes.com/video/opinion/100000011091563/why-ais-lie-cheat-and-stea
 `In an announcement on Tuesday, the carrier promised screens at every seat in its narrow-body fleet, along with an expansion of its premium seating.`\
 https://www.nytimes.com/2026/08/18/travel/american-airlines-seatback-screens.html
 
-**Trump Officials Ignored Their Own University Investigations, Lawyer Says**\
-`A former Justice Department lawyer says Trump administration leaders ignored findings that elite schools, including Brown and Columbia, hadn’t broken the law as they pressed them into deals.`\
-https://www.nytimes.com/2026/08/18/us/trump-administration-university-investigations-whistleblower.html
-
 **Election Live Updates: Democratic Socialist Scores Florida Upset as Contests Are Held in 4 States**\
-`Angie Nixon, a progressive firebrand, won Florida’s Democratic Senate primary. Primaries were held in Alaska and Wyoming, and voters in California chose a replacement for Representative Eric Swalwell.`\
+`Angie Nixon, a progressive firebrand, won Florida’s Democratic Senate primary. Primaries were held in Alaska and Wyoming, and voters in California were choosing a replacement for Representative Eric Swalwell.`\
 https://www.nytimes.com/live/2026/08/18/us/elections-florida-california-alaska
 
