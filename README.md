@@ -1,3 +1,7 @@
+**Who Is Ahead in the Arkansas Governor's Race? Latest 2026 Election Polls**\
+`Track the latest polls in the Arkansas governor election.`\
+https://www.nytimes.com/interactive/polls/arkansas-governor-election-polls-2026.html
+
 **5 Things to Know About Mary Peltola, Democratic Senate Candidate in Alaska**\
 `The Alaska Native, who grew up along the Kuskokwim River near the Bering Sea and fished for salmon, is the leading Democrat in the nonpartisan primary race.`\
 https://www.nytimes.com/2026/08/18/us/politics/mary-peltola-democratic-senate-alaska.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/08/18/us/university-michigan-president-cybele-raver
 **Court Blocks Road Through Izembek National Wildlife Refuge**\
 `A federal judge ruled that the Trump administration broke the law when it approved a deal to allow a road through the Izembek National Wildlife Refuge.`\
 https://www.nytimes.com/2026/08/18/climate/court-alaska-izembek-refuge.html
-
-**Skip Bertman, L.S.U. Baseball Coach Who Packed Stadiums, Dies at 88**\
-`Over 18 seasons at Louisiana State University, he won five national titles and was voted the second-best college baseball coach of the 20th century.`\
-https://www.nytimes.com/2026/08/18/sports/baseball/skip-bertman-dead.html
 
 **Election Live Updates: Democratic Socialist Scores Florida Upset as Contests Are Held in 4 States**\
 `Angie Nixon, a progressive firebrand, won Florida’s Democratic Senate primary. Primaries were held in Alaska and Wyoming, and voters in California chose a replacement for Representative Eric Swalwell.`\
