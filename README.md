@@ -1,3 +1,7 @@
+**In Italy, a Beach Club Run by Nuns Is in Jeopardy**\
+`The Sisters of Charity of Saint Mary have hosted beachgoers in the town of Spotorno for decades. But change is coming.`\
+https://www.nytimes.com/2026/08/19/world/europe/italy-nuns-beach-club.html
+
 **Former NYPD Sergeant Admits to Killing Man in Drunk-Driving Crash**\
 `Tiffany Howell admitted she was drunk when she drove the wrong way on the Taconic State Parkway earlier this year, killing Manuel Boitel, a Manhattan doorman.`\
 https://www.nytimes.com/2026/08/19/nyregion/nypd-police-drunk-driving-guilty.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/19/crosswords/wordle-review-1888.html
 **NYT Strands Hints for August 20, 2026**\
 `Scroll down for hints and conversation about the puzzle for Thursday, Aug. 20, 2026.`\
 https://www.nytimes.com/2026/08/19/crosswords/strands-sidekick-900.html
-
-**Ukraine’s Ex-Defense Minister Calls for Election, Cementing Break With Zelensky**\
-`Mykhailo Fedorov, a popular young leader who was fired last month, said Russia should not be allowed to dictate when Ukrainians can choose their next government.`\
-https://www.nytimes.com/2026/08/19/world/europe/ukraine-fedorov-zelensky-elections.html
 

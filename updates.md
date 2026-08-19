@@ -1,3 +1,11 @@
+**Former NYPD Sergeant Admits to Killing Man in Drunk-Driving Crash**\
+`Tiffany Howell admitted she was drunk when she drove the wrong way on the Taconic State Parkway earlier this year, killing Manuel Boitel, a Manhattan doorman.`\
+https://www.nytimes.com/2026/08/19/nyregion/nypd-police-drunk-driving-guilty.html
+
+**What Does the Trump Administration Have Against the 26th Amendment?**\
+`American democracy and American higher education are inextricable.`\
+https://www.nytimes.com/2026/08/19/opinion/college-students-voting-civic.html
+
 **Trump and Canada’s Carney Seem to Make Progress on a Tariff Deal, but Questions Linger**\
 `After a deadline extension, the latest U.S. tariff threats seemed headed toward resolution on Wednesday, but questions lingered about what Canada would give up, and what it would get in exchange.`\
 https://www.nytimes.com/2026/08/19/world/canada/trump-canada-tariffs-carney-deal-trade.html
