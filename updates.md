@@ -1,3 +1,19 @@
+**Pentagon Scales Back Major Training Exercises With South Korea**\
+`The move to end the military training a week earlier than scheduled comes after President Trump ordered the Defense Department to reduce joint military exercises with the key U.S. ally.`\
+https://www.nytimes.com/2026/08/18/us/politics/pentagon-south-korea-training-exercises.html
+
+**Trump to Nominate Heidi Overton, a Top Domestic Policy Aide, for F.D.A. Commissioner**\
+`Dr. Overton is a fierce opponent of abortion rights and a supporter of Health Secretary Robert F. Kennedy Jr.’s Make America Healthy Again agenda.`\
+https://www.nytimes.com/2026/08/18/health/heidi-overton-fda.html
+
+**Eric Barlow Wins Wyoming’s Republican Governor Primary Over Trump-Backed Candidate**\
+`Eric Barlow’s defeat of Megan Degenfelder, the state superintendent of education, again showed the limits of the president’s favor.`\
+https://www.nytimes.com/2026/08/18/us/politics/wyoming-governor-republican-primary.html
+
+**Harriet Hageman, Backed by Trump, Wins Wyoming’s Republican Senate Primary**\
+`Ms. Hageman, who unseated Representative Liz Cheney in 2022, is a heavy favorite to replace Senator Cynthia Lummis in the deep-red state.`\
+https://www.nytimes.com/2026/08/18/us/politics/wyoming-senate-trump-republican-hageman.html
+
 **Chinese Robot Maker Unitree Soars 500 Percent in Trading Debut**\
 `Unitree is the second major Chinese technology company linked to the country’s artificial intelligence boom to surge following its initial public offering in the past month.`\
 https://www.nytimes.com/2026/08/18/business/unitree-ipo-trading.html
