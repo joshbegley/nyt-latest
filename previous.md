@@ -1,3 +1,7 @@
+**‘I’m Not That Informed on National Security,’ Graham Says in South Carolina Debate**\
+`Senator Darline Graham made the remark in a debate against Representative Ralph Norman, her opponent in the runoff election to succeed her brother, Lindsey Graham. Here are five takeaways.`\
+https://www.nytimes.com/2026/08/18/us/politics/south-carolina-senate-runoff-debate-graham-norman.html
+
 **Why Democrats and Republicans Are Backing Rivals in Alaska’s Senate Primary**\
 `A burst of ad spending is part of a campaign tactic in which the major parties try to boost fringe hopefuls on the other side.`\
 https://www.nytimes.com/2026/08/18/us/politics/alaska-senate-primary-election-meddling.html
@@ -190,11 +194,7 @@ https://www.nytimes.com/2026/08/18/world/middleeast/israeli-strike-gaza-cafe-pea
 `As global fuel prices surge, electric vehicle adoption is breaking records around the world. These charts tell the story.`\
 https://www.nytimes.com/interactive/2026/08/18/climate/ev-car-sales-oil-prices.html
 
-**Border Construction at Big Bend National Park Temporarily Halted**\
-`The Trump administration halted border construction in Big Bend National Park in Texas amid increasing criticism. Local law enforcement officials have said that the border infrastructure is unnecessary in a desolate and undeveloped area.`\
-https://www.nytimes.com/video/us/politics/100000011099153/big-bend-texas-border-us-mexico-immigration.html
-
-**Election Live Updates: Democratic Socialist Scores Florida Upset in Latest Victory for Progressives**\
-`State Representative Angie Nixon, a progressive firebrand, defeated Alex Vindman, who had far out-raised her. Voters in California will decide who replaces former Representative Eric Swalwell.`\
+**Election Live Updates: Democratic Socialist Scores Florida Upset as Contests Are Held in 4 States**\
+`Angie Nixon, a progressive firebrand, won Florida’s Democratic Senate primary. Primaries were held in Alaska and Wyoming, and voters in California chose a replacement for Representative Eric Swalwell.`\
 https://www.nytimes.com/live/2026/08/18/us/elections-florida-california-alaska
 
