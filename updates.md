@@ -1,3 +1,7 @@
+**In Italy, a Beach Club Run by Nuns Is in Jeopardy**\
+`The Sisters of Charity of Saint Mary have hosted beachgoers in the town of Spotorno for decades. But change is coming.`\
+https://www.nytimes.com/2026/08/19/world/europe/italy-nuns-beach-club.html
+
 **Former NYPD Sergeant Admits to Killing Man in Drunk-Driving Crash**\
 `Tiffany Howell admitted she was drunk when she drove the wrong way on the Taconic State Parkway earlier this year, killing Manuel Boitel, a Manhattan doorman.`\
 https://www.nytimes.com/2026/08/19/nyregion/nypd-police-drunk-driving-guilty.html
