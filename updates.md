@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Aug. 19, 2026**\
+`Kareem Ayas shares his secret garden.`\
+https://www.nytimes.com/2026/08/18/crosswords/daily-puzzle-2026-08-19.html
+
 **Harvard Agrees to $53 Million Settlement in Body Part Theft Scandal**\
 `The agreement settles lawsuits filed by relatives of people whose remains, donated for medical research and teaching, were stolen and sold by the former manager of the school’s medical morgue.`\
 https://www.nytimes.com/2026/08/18/us/harvard-stolen-body-parts-settlement.html
