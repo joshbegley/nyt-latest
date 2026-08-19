@@ -1,3 +1,11 @@
+**5 Things to Know About Mary Peltola, Democratic Senate Candidate in Alaska**\
+`The Alaska Native, who grew up along the Kuskokwim River near the Bering Sea and fished for salmon, is the leading Democrat in the nonpartisan primary race.`\
+https://www.nytimes.com/2026/08/18/us/politics/mary-peltola-democratic-senate-alaska.html
+
+**5 Things to Know About Dan Sullivan, the Alaska Senator Seeking Re-election**\
+`The incumbent Republican has been a reliable supporter of President Trump, giving Democrats a pickup opportunity in a state where most are politically unaffiliated.`\
+https://www.nytimes.com/2026/08/18/us/politics/dan-sullivan-republican-senator-alaska.html
+
 **‘I’m Not That Informed on National Security,’ Graham Says in South Carolina Debate**\
 `Senator Darline Graham made the remark in a debate against Representative Ralph Norman, her opponent in the runoff election to succeed her brother, Lindsey Graham. Here are five takeaways.`\
 https://www.nytimes.com/2026/08/18/us/politics/south-carolina-senate-runoff-debate-graham-norman.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/08/18/climate/court-alaska-izembek-refuge.html
 **Skip Bertman, L.S.U. Baseball Coach Who Packed Stadiums, Dies at 88**\
 `Over 18 seasons at Louisiana State University, he won five national titles and was voted the second-best college baseball coach of the 20th century.`\
 https://www.nytimes.com/2026/08/18/sports/baseball/skip-bertman-dead.html
-
-**Deadly Israeli Strike on Gaza Raises Doubts About Trump Peace Plan**\
-`A day after President Trump’s envoy, Jared Kushner, visited Israel to advance a stalled plan for demilitarizing and rebuilding Gaza, the Israeli military said it targeted Hamas commanders.`\
-https://www.nytimes.com/2026/08/18/world/middleeast/israeli-strike-gaza-cafe-peace-plan.html
-
-**E.V. Sales Are Rising After the Gulf Oil Shock. Here’s Where.**\
-`As global fuel prices surge, electric vehicle adoption is breaking records around the world. These charts tell the story.`\
-https://www.nytimes.com/interactive/2026/08/18/climate/ev-car-sales-oil-prices.html
 
 **Election Live Updates: Democratic Socialist Scores Florida Upset as Contests Are Held in 4 States**\
 `Angie Nixon, a progressive firebrand, won Florida’s Democratic Senate primary. Primaries were held in Alaska and Wyoming, and voters in California chose a replacement for Representative Eric Swalwell.`\
