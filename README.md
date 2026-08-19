@@ -1,3 +1,7 @@
+**The Rising Stakes of the Global Bond Rout**\
+`There were already several factors rattling investors. A further rise in bond yields is making things more expensive for everyone.`\
+https://www.nytimes.com/2026/08/19/business/dealbook/bonds-yields-treasury-ai.html
+
 **Queen Camilla Says It Was ‘Difficult’ to Keep Charles’s Cancer a Secret**\
 `“I was just longing to let it out,” Camilla said in rare public comments about the king’s 2024 diagnosis, which was not immediately revealed. “But obviously I couldn’t.”`\
 https://www.nytimes.com/2026/08/19/world/europe/camilla-charles-cancer-diagnosis-secret-charity.html
@@ -174,7 +178,7 @@ https://www.nytimes.com/2026/08/19/arts/design/venice-biennale-theater-florentin
 `Caitlin Simmers, a world champion surfer, sees her sport as dance. How does this translate? She’s as seamless as a ribbon.`\
 https://www.nytimes.com/2026/08/19/arts/dance/caitlin-simmers-surf-dance.html
 
-**For a Family Vacation on Crete, the Goal Was Simple: Chill Out**\
+**For a Family Vacation on Crete, the Goal Is Simple: Chill Out**\
 `The plan was to go light on history and museums, heavy on beaches, food and whatever felt right. In other words, the perfect break.`\
 https://www.nytimes.com/2026/08/19/travel/crete-family-vacation.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/08/19/espanol/demencia-epilepsia-relacion.html
 **Primary Results Set for Florida’s Key Races**\
 `In Florida, a democratic socialist defeated a far better-funded rival in the Democratic Senate primary as a Trump-backed congressman secured the Republican nomination for governor.`\
 https://www.nytimes.com/video/us/politics/100000011100598/florida-primaries-angie-nixon.html
-
-**El salón de baile de Trump se construye 20 horas al día, 7 días a la semana**\
-`Aunque el destino del salón de baile está enredado en los tribunales, el gobierno de Trump argumenta que el proyecto está demasiado avanzado para detenerse.`\
-https://www.nytimes.com/es/2026/08/19/espanol/estados-unidos/trump-casa-blanca-salon-baile.html
 

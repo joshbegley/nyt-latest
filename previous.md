@@ -1,3 +1,7 @@
+**Queen Camilla Says It Was ‘Difficult’ to Keep Charles’s Cancer a Secret**\
+`“I was just longing to let it out,” Camilla said in rare public comments about the king’s 2024 diagnosis, which was not immediately revealed. “But obviously I couldn’t.”`\
+https://www.nytimes.com/2026/08/19/world/europe/camilla-charles-cancer-diagnosis-secret-charity.html
+
 **U.A.E. Halts Trade Ties With Iran and Says It Was Targeted With Missiles**\
 `The Emirates has long been a major trading hub for Iran, and analysts say it has been key to Iranian efforts to evade international sanctions, which the country denies.`\
 https://www.nytimes.com/2026/08/19/world/middleeast/uae-cuts-trade-ties-iran-missiles.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/politics/100000011100598/florida-primaries-angi
 **El salón de baile de Trump se construye 20 horas al día, 7 días a la semana**\
 `Aunque el destino del salón de baile está enredado en los tribunales, el gobierno de Trump argumenta que el proyecto está demasiado avanzado para detenerse.`\
 https://www.nytimes.com/es/2026/08/19/espanol/estados-unidos/trump-casa-blanca-salon-baile.html
-
-**¿Qué pierden los estudiantes cuando dejan de escribir?**\
-`A los educadores les preocupa que muchos estudiantes ya no puedan escribir ensayos sin IA. El costo va más allá de las habilidades gramaticales.`\
-https://www.nytimes.com/es/2026/08/19/espanol/estados-unidos/estudiantes-ia-importancia-escribir.html
 

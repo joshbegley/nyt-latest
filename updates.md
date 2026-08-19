@@ -1,3 +1,7 @@
+**Queen Camilla Says It Was ‘Difficult’ to Keep Charles’s Cancer a Secret**\
+`“I was just longing to let it out,” Camilla said in rare public comments about the king’s 2024 diagnosis, which was not immediately revealed. “But obviously I couldn’t.”`\
+https://www.nytimes.com/2026/08/19/world/europe/camilla-charles-cancer-diagnosis-secret-charity.html
+
 **Status Defines Friendship for Too Many Americans**\
 `The four-year degree isn’t just an economic signal; it’s become a lifestyle determinant.`\
 https://www.nytimes.com/2026/08/19/opinion/friendship-luxury-good.html
