@@ -1,3 +1,15 @@
+**In Wyoming’s G.O.P. Primaries, an Emphatic Rebuke of the Hard Right**\
+`The Wyoming Freedom Caucus had ambitions for a total takeover of elected state government. But its candidates were rejected from the governor’s mansion to the Legislature.`\
+https://www.nytimes.com/2026/08/19/us/elections/wyoming-republicans-moderate.html
+
+**North Korean Official Dismisses Reduced Drills Between US and South Korea**\
+`Kim Yo-jong, a powerful adviser and sister of Kim Jong-un, also said she was “unaware” of any communication with Washington, contradicting President Trump’s claim her brother had responded to his outreach.`\
+https://www.nytimes.com/2026/08/19/world/asia/north-korea-trump-military-drills.html
+
+**Trump suspende las tarifas contra Canadá ante un posible acuerdo**\
+`El primer ministro de Canadá, Mark Carney, se mostró menos entusiasta sobre el resultado de las negociaciones y dijo que aún queda “mucho trabajo” por hacer.`\
+https://www.nytimes.com/es/2026/08/19/espanol/mundo/trump-suspende-aranceles-canada.html
+
 **Una nueva vacuna podría evitar que el melanoma reaparezca**\
 `Moderna y Merck dicen que la vacuna experimental de ARNm previno la reaparición y la propagación del cáncer en pacientes con melanoma de alto riesgo.`\
 https://www.nytimes.com/es/2026/08/19/espanol/ciencia-y-tecnologia/vacuna-melanoma.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/08/19/world/europe/camilla-charles-cancer-diagnosis
 **U.A.E. Announces Halt to Trade With Iran Amid Trump’s Push To Isolate Tehran**\
 `The Emirates has long been a major trading hub for Iran, and analysts say it has been key to Iranian efforts to evade international sanctions, which Emirati officials deny.`\
 https://www.nytimes.com/2026/08/19/world/middleeast/uae-cuts-trade-ties-iran-missiles.html
-
-**After the Storm**\
-`We look at the aftermath of Hurricane Lala.`\
-https://www.nytimes.com/2026/08/19/briefing/hurricane-lala-aftermath.html
-
-**El Niño Is Back. And Worse Than Ever.**\
-`The recurring climate phenomenon is poised this year to enter a new phase known as a super El Niño, exacerbating the effects of climate change.`\
-https://www.nytimes.com/2026/08/19/podcasts/the-daily/el-nino-climate-change-heat-wave-drought.html
-
-**How Tech Executives Limit Their Kids’ Screen Time, and Trump’s Race to Finish His Ballroom**\
-`Plus, the political emails are coming for you.`\
-https://www.nytimes.com/2026/08/19/podcasts/the-headlines/screen-time-kids-trump-ballroom.html
 
