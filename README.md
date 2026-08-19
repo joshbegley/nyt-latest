@@ -186,7 +186,7 @@ https://www.nytimes.com/2026/08/19/travel/crete-family-vacation.html
 `Personal injury cases have exploded, in number and magnitude, funded by companies betting on a win — and offering investors a piece of the action.`\
 https://www.nytimes.com/2026/08/19/business/personal-injury-lawsuits-funding.html
 
-**Iran war: Trump tries economic pressure — again**\
+**With Limited Options, Trump Tries Economic Pressure on Iran — Again**\
 `Iran has survived decades of sanctions. Faced with more, it is likely to escalate rather than surrender, analysts said.`\
 https://www.nytimes.com/2026/08/19/world/europe/iran-trump-economic-sanctions-leverage.html
 
