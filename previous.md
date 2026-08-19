@@ -1,3 +1,19 @@
+**Send Us Your Questions About the Iran War**\
+`Times reporters who cover the war, diplomacy, energy and the broader Middle East are joining our “Ask a Correspondent” feature as the conflict nears the six-month mark. Let us know what’s on your mind.`\
+https://www.nytimes.com/2026/08/19/world/iran-war-reader-questions.html
+
+**El novio que abusó de Hayden Panettiere había vuelto a su vida**\
+`A pesar de los esfuerzos de la actriz por superar una relación turbulenta con Brian Hickerson, estaban juntos cuando ella sufrió un paro cardíaco y murió.`\
+https://www.nytimes.com/es/2026/08/19/espanol/cultura/hayden-panettiere-novio.html
+
+**Moderna, Merck Say mRNA Vaccine Prevents Melanoma From Returning**\
+`The companies say the vaccine prevented the return and spread of the cancer in high-risk melanoma patients.`\
+https://www.nytimes.com/2026/08/19/science/moderna-merck-mrna-vaccine-melanoma.html
+
+**How the U.S. Navy Is Helping Get Oil Through the Strait of Hormuz**\
+`With Iran making ship traffic perilous, a U.S. operation offers a way out for some energy exports, stealthily shepherding tankers on dangerous journeys.`\
+https://www.nytimes.com/2026/08/19/business/iran-hormuz-oman-us-navy.html
+
 **Inside the Data Center Capital of the World**\
 `Cecilia Kang, who covers technology and regulatory policy for The New York Times, traveled to the “data center capital of the world” to see how the A.I. boom is affecting Loudoun County, Va.`\
 https://www.nytimes.com/video/us/100000011066777/inside-the-data-center-capital-of-the-world.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/08/19/realestate/miami-condo-safety-regulations-sur
 **How the Iran War Made Africa’s Richest Man Even Richer**\
 `Africans have turned to one of their own for fuel as the world’s supplies run low. But they are not the only ones with the continent’s richest man on speed dial.`\
 https://www.nytimes.com/2026/08/19/world/africa/dangote-iran-refinery-oil-nigeria.html
-
-**Word of the Day: aspersion**\
-`This word has appeared in 22 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/08/19/learning/word-of-the-day-aspersion.html
-
-**The Designers Behind Matières Fécales Share Their Influences**\
-`The fashion designers Steven Raj Bhaskaran and Hannah Rose Dalton share some of the inspirations behind their provocative label.`\
-https://www.nytimes.com/2026/08/19/t-magazine/matieres-fecales-steven-raj-bhaskaran-hannah-rose-dalton-influences.html
-
-**My Favorite Artwork | Matières Fécales**\
-`The designers discuss a photograph of the nightlife icon who inspired their dramatic look.`\
-https://www.nytimes.com/video/t-magazine/100000011093099/my-favorite-artwork-matieres-fecales.html
-
-**The Best Loafers for Any Occasion**\
-`These stack-heeled styles work with everything from jeans to suits.`\
-https://www.nytimes.com/2026/08/19/t-magazine/stack-heeled-loafers-shoes.html
 
