@@ -1,3 +1,7 @@
+**Walmart Posts Slowest Sales Growth in Years as Americans Tighten Wallets**\
+`Walmart and other big U.S. retailers have warned that consumers were being cautious, even if personal balance sheets seemed healthy.`\
+https://www.nytimes.com/2026/08/20/business/walmart-target-retail-consumer-economy.html
+
 **Did Bessent Put the Fed in a Bind?**\
 `The Treasury Department’s plan for bond interventions have calmed markets. But Wall Street is worried about the fallout for inflation and more.`\
 https://www.nytimes.com/2026/08/20/business/dealbook/bessent-fed-warsh-bonds.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/20/movies/it-ends-review.html
 **What Is Treatment-Resistant Depression?**\
 `If multiple antidepressants haven’t helped, there are other avenues to explore.`\
 https://www.nytimes.com/2026/08/20/well/mind/treatment-resistant-depression.html
-
-**Word of the Day: scintillating**\
-`This word has appeared in 24 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/08/20/learning/word-of-the-day-scintillating.html
 
