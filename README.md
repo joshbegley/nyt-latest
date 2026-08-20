@@ -1,3 +1,19 @@
+**Today, In Short**\
+`“House hang.” Data centers. And canned tuna.`\
+https://www.nytimes.com/2026/08/20/briefing/today-in-short.html
+
+**Going Big on Shrimp Sliders**\
+`Shrimp and tofu sliders, to be exact — that mashed tofu adds extra protein and, along with miso-sesame mayo, keeps the patties from drying out.`\
+https://www.nytimes.com/2026/08/20/dining/going-big-on-shrimp-sliders.html
+
+**Why Democrats Should Go to Acting Class**\
+`Democrats often don’t sound as if they believe themselves. To fix that, they should listen more to acting teachers and less to pollsters.`\
+https://www.nytimes.com/2026/08/20/opinion/democrats-polls-acting-playbook.html
+
+**State Dept. Declares U.S. Citizen in China Wrongfully Detained**\
+`U Min Zin, a scholar who studied Myanmar, is one of two U.S. citizens the department has designated as wrongfully detained in China.`\
+https://www.nytimes.com/2026/08/20/us/politics/scholar-china-wrongfully-detained.html
+
 **Así es como Wall Street saca provecho de las demandas por lesiones personales**\
 `Empresas y doctores han recomendado cirugías costosas, y en algunos casos innecesarias, a clientes desesperados por ganar sus casos en los tribunales.`\
 https://www.nytimes.com/es/2026/08/20/espanol/estados-unidos/demandas-lesiones-trabajadores.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/video/world/asia/100000011091777/india-ai-robots-human-m
 **‘The Snare’ Review: Stuck, With No Good Way Out**\
 `Written and directed by Merlin Camozzi, the film is a potent critique of the tactics used to fight the war on drugs.`\
 https://www.nytimes.com/2026/08/20/movies/the-snare-review.html
-
-**‘The Marching Band’ Review: A Different Kind of Music**\
-`An orchestra director returns to France and bonds with his working-class brother in this feel-good movie.`\
-https://www.nytimes.com/2026/08/20/movies/the-marching-band-review.html
-
-**‘The Magic Faraway Tree’ Review: A Charming Escape**\
-`The director Ben Gregor wastes no time getting us where we want to be: reveling in the fairies and their vibrant world.`\
-https://www.nytimes.com/2026/08/20/movies/the-magic-faraway-tree-review.html
-
-**‘Insidious: Out of the Further’ Review: Bringing Back the Dead**\
-`The sixth installment of the horror franchise tries to revamp it, but its reputation has declined with each new attempt at jump scares.`\
-https://www.nytimes.com/2026/08/20/movies/insidious-out-of-the-further-review.html
-
-**‘Franz’ Review: A Delirious Kafka Biopic**\
-`The work by Agnieszka Holland, starring Idan Weiss, explores the writer’s themes of alienation in a fragmented way.`\
-https://www.nytimes.com/2026/08/20/movies/franz-review-kafka.html
 
