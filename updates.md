@@ -1,3 +1,35 @@
+**How Usher Gets Ready for a Show**\
+`Plus: an under-the-radar Rome neighborhood, coral jewelry and more recommendations from T Magazine.`\
+https://www.nytimes.com/2026/08/20/t-magazine/usher-wellness-routine.html
+
+**JD Vance Thinks You Are Not Christian Enough**\
+`According to the vice president, we are wasting our freedom.`\
+https://www.nytimes.com/2026/08/20/opinion/vance-christian-conservative-republican.html
+
+**Trump’s Order to Cut Military Exercises With South Korea Carries Risks, Experts Say**\
+`President Trump’s decision to curtail the military exercises came as allies question the U.S. commitment to longstanding alliances.`\
+https://www.nytimes.com/2026/08/20/us/politics/trumps-order-military-exercises-risks.html
+
+**The Scales Can’t Fall From Our Eyes Fast Enough**\
+`More Republicans and Democrats are seeing reality for what it is. Does it matter?`\
+https://www.nytimes.com/2026/08/20/opinion/trump-maga-immigration-woke-democrats.html
+
+**Caught Up in the Rapture of Anita Baker**\
+`Celebrating the 40th anniversary of Baker’s seminal album.`\
+https://www.nytimes.com/2026/08/20/podcasts/cannonball-anita-baker-rapture.html
+
+**Moderna’s Shift to Cancer Company Lifts Stock Up 177%**\
+`The company’s fortunes cratered as demand for Covid-19 vaccines plummeted. But it was busy working on something else.`\
+https://www.nytimes.com/2026/08/20/business/moderna-cancer-melanoma.html
+
+**As Iran and U.S. Settle Into an Uneasy Standoff, Who Will Blink First?**\
+`For weeks, there has been no diplomatic progress, but also no full-scale fighting, as both sides seem to believe they can hold out longer than the other.`\
+https://www.nytimes.com/2026/08/20/world/middleeast/iran-us-war-standoff-hormuz.html
+
+**Ken Paxton’s $1,000 Pen Incident Resurfaces in Texas Senate Race**\
+`The pen Mr. Paxton pocketed more than a decade ago has resurfaced as a campaign issue.`\
+https://www.nytimes.com/2026/08/20/us/ken-paxton-montblanc-pen.html
+
 **Can We Do Anything About Tick-Borne Diseases Like Alpha-Gal Syndrome?**\
 `A scientific and civilizational horror story.`\
 https://www.nytimes.com/2026/08/20/magazine/tick-season-lone-star-alpha-gal-syndrome-lyme.html
