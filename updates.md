@@ -1,3 +1,7 @@
+**Trump Threatens Economic Pain for Countries That Help Iran**\
+`The president did not specify what actions he would take, and he has on other occasions abandoned threats to dramatically escalate the war with Iran.`\
+https://www.nytimes.com/2026/08/19/us/politics/trump-sanctions-iran.html
+
 **Trump Threatens Economic Pain Against Countries That Help Iran**\
 `The president did not specify what actions he would take, and he has on other occasions abandoned threats to dramatically escalate the war with Iran.`\
 https://www.nytimes.com/2026/08/19/us/politics/trump-sanctions-iran.html
