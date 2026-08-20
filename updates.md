@@ -1,3 +1,11 @@
+**Russian Missiles Kill at Least 13 in Kyiv as Air Defenses Falter**\
+`Moscow is taking advantage of Ukraine’s depleted stock of interceptors and is intensifying attacks, worsening the civilian death toll.`\
+https://www.nytimes.com/2026/08/20/world/europe/ukraine-kyiv-missiles-russia-war.html
+
+**Bare Grocery Shelves Are a New Wartime Hardship for Ukrainians**\
+`After years of pounding power plants and cities, Russia’s air war has taken aim at Ukraine’s supermarket warehouses.`\
+https://www.nytimes.com/2026/08/20/world/europe/ukraine-grocery-stores-shortages.html
+
 **Cuando la depresión se resiste al tratamiento**\
 `Hay diversos factores que pueden aumentar la probabilidad de que una persona con depresión no responda a los tratamientos farmacológicos iniciales. Pero hay alternativas.`\
 https://www.nytimes.com/es/2026/08/20/espanol/depresion-resistencia-tratamiento-alternativas.html
