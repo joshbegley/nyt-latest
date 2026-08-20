@@ -1,3 +1,7 @@
+**Lloyd Robertson, Unflappable Canadian Broadcaster, Dies at 92**\
+`His 41 years as a national television news anchor surpassed the tenures of Walter Cronkite and Tom Brokaw.`\
+https://www.nytimes.com/2026/08/20/business/media/lloyd-robertson-dead.html
+
 **Read the criminal complaint about a bomb plot in Albany**\
 `Federal agents and police detectives have arrested a 35-year-old woman who prosecutors say was planning to bomb the New York State Capitol, according to a criminal complaint filed in federal court on Thursday.`\
 https://www.nytimes.com/interactive/2026/08/20/nyregion/albany-bomb-criminal-complaint.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/20/world/europe/prince-laurent-belgium-clement-s
 **After Six Years, Harry and Meghan Are Coming Home. What Changed?**\
 `Just last year, Prince Harry said he couldn’t imagine ever bringing his family back to Britain.`\
 https://www.nytimes.com/2026/08/20/world/europe/harry-meghan-britain-return.html
-
-**Who Moves Up, and Who’s Pushed Out, in Pete Hegseth’s Military**\
-`Defense Secretary Pete Hegseth has been replacing top-ranking U.S. military officers with those who, many argue, show more loyalty to Hegseth and his ideas than to the military itself.`\
-https://www.nytimes.com/2026/08/20/podcasts/the-daily/pete-hegseth-us-military.html
 

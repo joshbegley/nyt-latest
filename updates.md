@@ -1,3 +1,7 @@
+**Lloyd Robertson, Unflappable Canadian Broadcaster, Dies at 92**\
+`His 41 years as a national television news anchor surpassed the tenures of Walter Cronkite and Tom Brokaw.`\
+https://www.nytimes.com/2026/08/20/business/media/lloyd-robertson-dead.html
+
 **Read the criminal complaint about a bomb plot in Albany**\
 `Federal agents and police detectives have arrested a 35-year-old woman who prosecutors say was planning to bomb the New York State Capitol, according to a criminal complaint filed in federal court on Thursday.`\
 https://www.nytimes.com/interactive/2026/08/20/nyregion/albany-bomb-criminal-complaint.html
