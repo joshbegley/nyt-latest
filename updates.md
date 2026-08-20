@@ -1,3 +1,7 @@
+**Harry and Meghan’s Break With Britain and Planned Return: a Timeline**\
+`The couple will remain non-working royals. It is unclear where they will live.`\
+https://www.nytimes.com/2026/08/19/world/europe/harry-meghan-uk-royals-timeline.html
+
 **Jimmy Fallon Teases Trump’s Efforts to Rekindle North Korea Bromance**\
 `“Man, you know you’re depressed when you’re texting an old hookup from seven years ago,” Fallon said of the president and North Korea’s leader, Kim Jong-un.`\
 https://www.nytimes.com/2026/08/20/arts/television/jimmy-fallon-trump-kim-jong-un.html
