@@ -1,3 +1,11 @@
+**Russia Pummels Kyiv in Deadly Missile Barrage**\
+`More than a dozen people were killed in Kyiv, the Ukrainian capital, in an overnight Russian missile barrage, Ukrainian officials said on Thursday.`\
+https://www.nytimes.com/video/world/europe/100000011103016/russia-ukraine-missiles-kyiv.html
+
+**Oil Prices Jump and Bond Market Stress Returns**\
+`Bond markets remained volatile, as investors assessed the geopolitical turmoil.`\
+https://www.nytimes.com/2026/08/20/business/iran-war-oil-bonds.html
+
 **Walmart Posts Slowest Sales Growth in Years as Americans Tighten Wallets**\
 `Walmart and other big U.S. retailers have warned that consumers were being cautious, even if personal balance sheets seemed healthy.`\
 https://www.nytimes.com/2026/08/20/business/walmart-target-retail-consumer-economy.html
