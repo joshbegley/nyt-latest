@@ -1,3 +1,7 @@
+**La confusa relación arancelaria entre Trump y Canadá**\
+`Tras una extensión del plazo, las últimas amenazas arancelarias de EE. UU. parecían encaminarse hacia una resolución el miércoles, pero persistían las dudas sobre a qué renunciaría Canadá y qué obtendría a cambio.`\
+https://www.nytimes.com/es/2026/08/20/espanol/mundo/aranceles-trump-canada.html
+
 **The Influencers’ Thanksgiving**\
 `In the middle of August, Macy’s hosted a dinner for social media stars in advance of the 100th Thanksgiving Day Parade.`\
 https://www.nytimes.com/2026/08/20/nyregion/the-influencers-thanksgiving.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/19/science/nasa-swift-telescope-failed-rescue.ht
 **Derrick Parker, Known as New York’s ‘Hip-Hop Cop,’ Dies at 65**\
 `A veteran detective with deep connections in the city’s rap scene, he served as a one-man intelligence unit and liaison to the music world.`\
 https://www.nytimes.com/2026/08/19/nyregion/derrick-parker-dead.html
-
-**The Local: Vaccines and Lip Balm**\
-`Why so many kids in Minnesota aren’t getting vaccinated.`\
-https://www.nytimes.com/2026/08/19/us/the-local-vaccines-lip-balm.html
 
