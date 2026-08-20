@@ -1,3 +1,11 @@
+**As Harry and Meghan Plan Their Return, Britain Wonders: What Changed?**\
+`Just last year, Prince Harry said he couldn’t imagine ever bringing his family back home from America.`\
+https://www.nytimes.com/2026/08/20/world/europe/harry-meghan-britain-return.html
+
+**The Teens Taking On A.I. Data Centers**\
+`Gen Z-ers are forming after-school clubs, speaking at community meetings — and sometimes wrestling with their own dependence on the technology.`\
+https://www.nytimes.com/2026/08/20/style/ai-data-centers-teens.html
+
 **Who Moves Up, and Who’s Pushed Out, in Pete Hegseth’s Military**\
 `Defense Secretary Pete Hegseth has been replacing top-ranking U.S. military officers with those who, many argue, show more loyalty to Hegseth and his ideas than to the military itself.`\
 https://www.nytimes.com/2026/08/20/podcasts/the-daily/pete-hegseth-us-military.html
