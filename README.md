@@ -34,7 +34,7 @@ https://www.nytimes.com/2026/08/20/crosswords/strands-sidekick-901.html
 `Scroll down for hints and conversation about the puzzle for Friday, Aug. 21, 2026.`\
 https://www.nytimes.com/2026/08/20/crosswords/wordle-review-1889.html
 
-**Russian Missiles Kill at Least 13 in Kyiv as Air Defenses Dwindle**\
+**Russian Missiles Kill at Least 15 in Kyiv as Air Defenses Dwindle**\
 `Moscow is taking advantage of Ukraine’s depleted stock of interceptors and is intensifying attacks, worsening the civilian death toll.`\
 https://www.nytimes.com/2026/08/20/world/europe/ukraine-kyiv-missiles-russia-war.html
 
