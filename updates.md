@@ -1,3 +1,11 @@
+**El portaaviones USS Abraham Lincoln finalmente regresa a casa**\
+`Tras una misión en Medio Oriente que inició en noviembre de 2025, el imponente barco y su exhausta tripulación navegarán varias semanas para llegar a San Diego.`\
+https://www.nytimes.com/es/2026/08/20/espanol/estados-unidos/portaaviones-uss-abraham-lincoln-regreso.html
+
+**Trump Officials Impose More Sanctions to Pressure Cuba**\
+`Human rights experts have said that the U.S. attempts to squeeze Cuba’s economy, including an oil blockade, have caused a severe humanitarian crisis.`\
+https://www.nytimes.com/2026/08/20/us/politics/trump-cuba-sanctions.html
+
 **Massachusetts Police Search for Officer’s Wife in Connection With His Death**\
 `The Worcester police are searching for Karen Solomon, a mental health advocate for police officers, in connection with the death of her husband, a police officer.`\
 https://www.nytimes.com/video/us/100000011104279/massachusetts-karen-solomon-officer-death.html
