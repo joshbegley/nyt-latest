@@ -1,3 +1,7 @@
+**Senator Andy Kim Visits Migrant Detention Center After String of Detainee Deaths**\
+`Senator Andy Kim of New Jersey spoke with detainees at the Newark detention center who said they had trouble accessing medical care. Staff members there disputed that account.`\
+https://www.nytimes.com/2026/08/20/nyregion/senator-andy-kim-delaney-hall-detainee-deaths.html
+
 **Londoners React to Harry and Meghan Moving Back to the U.K.**\
 `Prince Harry and Meghan Markle are planning to move back to Britain after leaving for the United States six years ago amid a clash with other members of the British royal family.`\
 https://www.nytimes.com/video/world/europe/100000011103379/londoners-react-harry-meghan-uk-return.html
@@ -135,7 +139,7 @@ https://www.nytimes.com/2026/08/20/world/canada/trump-carney-tariffs-trade-deal.
 https://www.nytimes.com/video/podcasts/100000011097436/why-busta-rhymes-raps-ultimate-showman-is-still-hustling.html
 
 **First U.S. Deportees to Arrive in Liberia Amid Growing Backlash**\
-`Critics in the small West African nation say their government has not said why it agreed to one of the largest U.S. deportation deals, who the deportees are, or how they will be handled.`\
+`The five men were part of the first group of deportees to be sent to the West African nation by the Trump administration. The Liberian government has not clarified their status.`\
 https://www.nytimes.com/2026/08/20/world/africa/liberia-trump-deportations.html
 
 **Rachel Cusk on Her Novel ‘Life of M,’ Gossip and Natalie Portman**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/20/opinion/democrats-polls-acting-playbook.html
 **State Dept. Declares U.S. Citizen in China Wrongfully Detained**\
 `U Min Zin, a scholar who studied Myanmar, is one of two U.S. citizens the department has designated as wrongfully detained in China.`\
 https://www.nytimes.com/2026/08/20/us/politics/scholar-china-wrongfully-detained.html
-
-**Así es como Wall Street saca provecho de las demandas por lesiones personales**\
-`Empresas y doctores han recomendado cirugías costosas, y en algunos casos innecesarias, a clientes desesperados por ganar sus casos en los tribunales.`\
-https://www.nytimes.com/es/2026/08/20/espanol/estados-unidos/demandas-lesiones-trabajadores.html
 

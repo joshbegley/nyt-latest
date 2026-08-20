@@ -1,3 +1,11 @@
+**Senator Andy Kim Visits Migrant Detention Center After String of Detainee Deaths**\
+`Senator Andy Kim of New Jersey spoke with detainees at the Newark detention center who said they had trouble accessing medical care. Staff members there disputed that account.`\
+https://www.nytimes.com/2026/08/20/nyregion/senator-andy-kim-delaney-hall-detainee-deaths.html
+
+**First U.S. Deportees to Arrive in Liberia Amid Growing Backlash**\
+`The five men were part of the first group of deportees to be sent to the West African nation by the Trump administration. The Liberian government has not clarified their status.`\
+https://www.nytimes.com/2026/08/20/world/africa/liberia-trump-deportations.html
+
 **Londoners React to Harry and Meghan Moving Back to the U.K.**\
 `Prince Harry and Meghan Markle are planning to move back to Britain after leaving for the United States six years ago amid a clash with other members of the British royal family.`\
 https://www.nytimes.com/video/world/europe/100000011103379/londoners-react-harry-meghan-uk-return.html
