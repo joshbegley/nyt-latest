@@ -1,3 +1,15 @@
+**Is the Sports Bubble Going to Pop?**\
+`Pablo Torre, host of “Pablo Torre Finds Out,” joins Natalie Kitroeff on “The Daily” to discuss the skyrocketing valuations of sports teams as private equity changes the landscape of professional sports.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011104011/is-the-sports-bubble-going-to-pop.html
+
+**The New York Times Loses Defamation Lawsuit in Alabama**\
+`A 2023 article incorrectly reported that a University of Alabama basketball player was at the scene of a deadly shooting. A jury awarded $9.25 million in damages.`\
+https://www.nytimes.com/2026/08/20/business/media/new-york-times-defamation-lawsuit-alabama.html
+
+**The Scene at Lindsay Clancy’s Trial**\
+`Ellen Barry, our mental health reporter, has been covering the highly publicized trial of Lindsay Clancy. She dialed in Natalie Kitroeff on “The Call” to describe the scene outside the courthouse, as hundreds of women have gathered to support Ms. Clancy.`\
+https://www.nytimes.com/video/podcasts/100000011104172/the-scene-at-lindsay-clancys-trial.html
+
 **El gobierno de Trump aumenta las sanciones para presionar a Cuba**\
 `Expertos en derechos humanos han dicho que los intentos de EE. UU. de asfixiar la economía de Cuba, incluido un bloqueo petrolero, han causado una grave crisis humanitaria.`\
 https://www.nytimes.com/es/2026/08/20/espanol/america-latina/cuba-sanciones-trump.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/08/20/us/politics/uss-abraham-lincoln-iran.html
 **Academic Who Publicized Plagiarism Allegations Against Jason Arday Is Suspended**\
 `Ghent University in Belgium said it suspended the academic, Nathan Cofnas, pending an investigation.`\
 https://www.nytimes.com/2026/08/20/world/europe/arday-cofnas-suspended.html
-
-**Captain in Deadly New York Harbor Accident Is Arrested by ICE**\
-`The captain in a deadly boat accident in New York Harbor this month was arrested by ICE after an investigation found that he was in the United States unlawfully, federal officials said.`\
-https://www.nytimes.com/video/us/100000011103520/ice-arrest-captain-new-york-immigration.html
-
-**Mamdani demanda al Concejo Municipal en Nueva York**\
-`La ciudad de Nueva York dice que la legislación del Concejo viola la ley de negociación colectiva. Esta podría ser la primera batalla de alto perfil entre el alcalde y un sindicato del sector público.`\
-https://www.nytimes.com/es/2026/08/20/espanol/estados-unidos/nueva-york-mamdani-demanda-concejo-municipal.html
-
-**The Best Cap-Toe Pump Shoes, at a Range of Prices**\
-`With Chanel’s signature shoe, variations come at all price points.`\
-https://www.nytimes.com/2026/08/20/t-magazine/cap-toe-two-tone-shoes-chanel.html
 

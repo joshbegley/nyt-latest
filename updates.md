@@ -1,3 +1,15 @@
+**Is the Sports Bubble Going to Pop?**\
+`Pablo Torre, host of “Pablo Torre Finds Out,” joins Natalie Kitroeff on “The Daily” to discuss the skyrocketing valuations of sports teams as private equity changes the landscape of professional sports.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011104011/is-the-sports-bubble-going-to-pop.html
+
+**The New York Times Loses Defamation Lawsuit in Alabama**\
+`A 2023 article incorrectly reported that a University of Alabama basketball player was at the scene of a deadly shooting. A jury awarded $9.25 million in damages.`\
+https://www.nytimes.com/2026/08/20/business/media/new-york-times-defamation-lawsuit-alabama.html
+
+**The Scene at Lindsay Clancy’s Trial**\
+`Ellen Barry, our mental health reporter, has been covering the highly publicized trial of Lindsay Clancy. She dialed in Natalie Kitroeff on “The Call” to describe the scene outside the courthouse, as hundreds of women have gathered to support Ms. Clancy.`\
+https://www.nytimes.com/video/podcasts/100000011104172/the-scene-at-lindsay-clancys-trial.html
+
 **El gobierno de Trump aumenta las sanciones para presionar a Cuba**\
 `Expertos en derechos humanos han dicho que los intentos de EE. UU. de asfixiar la economía de Cuba, incluido un bloqueo petrolero, han causado una grave crisis humanitaria.`\
 https://www.nytimes.com/es/2026/08/20/espanol/america-latina/cuba-sanciones-trump.html
