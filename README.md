@@ -1,12 +1,20 @@
+**Weary U.S. Aircraft Carrier Leaves the Middle East**\
+`Also, Russia takes advantage of Ukraine’s depleted stockpile. Here’s the latest at the end of Thursday.`\
+https://www.nytimes.com/2026/08/20/briefing/aircraft-carrier-ukraine-russia-missiles.html
+
+**Cameroon’s Aging President Returns From Months-Long Stay Abroad**\
+`Paul Biya, 93, had been in Switzerland since early June. The prolonged absence stirred questions about his health and plans for succession.`\
+https://www.nytimes.com/2026/08/20/world/africa/cameroon-president-returns-from-long-stay-abroad.html
+
 **The Message Behind Trump’s Threats of ‘Economic Warfare’ Against Iran**\
 `President Trump’s threats of an “economic D-Day” carry a clear signal to Iran that he does not want to go back to war.`\
-https://www.nytimes.com/2026/08/20/world/europe/the-message-behind-trumps-threats-of-economic-warfare-against-iran.html
+https://www.nytimes.com/2026/08/20/world/europe/trump-iran-economy-sanctions-threats.html
 
 **A Man in a Chucky-Style Mask Was Scaring Philadelphians. Then He Picked the Wrong Woman.**\
 `When Jameka Wilson encountered a man wearing a Chucky-style Halloween mask, her stage combat training kicked in. Now she’s a minor local celebrity.`\
 https://www.nytimes.com/2026/08/20/us/chucky-doll-mask-kick-philadelphia.html
 
-**Duffel Bags Full of Stimulants Seized at Baltimore Airport’s Baggage Claim**\
+**Duffels Full of Khat Seized at Baltimore Airport’s Baggage Claim**\
 `While Customs and Border Protection said it intercepted more than half a ton of khat, which is classified as a controlled substance, experts say far more of the East African plant makes it into the country.`\
 https://www.nytimes.com/2026/08/20/us/khat-smuggling-baltimore-airport.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/20/style/sadie-sink-wig-spider-man-redhead.html
 **Ted Striggles, Who Helped His Fellow Dancers as a Lawyer, Dies at 84**\
 `He was best known for the influential 1976 guide “Poor Dancer’s Almanac,” which aimed to help starving artists survive in New York.`\
 https://www.nytimes.com/2026/08/20/arts/dance/ted-striggles-dead.html
-
-**Ileana Cotrubas, Sensitive Soprano Known for ‘Traviata,’ Dies at 87**\
-`Able to convey the pathos of operatic heroines with her pure, expressive tone, she was also involved in prickly disputes with some directors and conductors.`\
-https://www.nytimes.com/2026/08/20/arts/music/ileana-cotrubas-dead.html
-
-**As Prince Harry and Meghan Depart California for the U.K., Their Neighbors Shrug**\
-`Prince Harry and Meghan Markle self exiled to the ultrawealthy enclave of Montecito in 2020. “They wave. They drive. They close the gates,” a neighbor said.`\
-https://www.nytimes.com/2026/08/20/us/prince-harry-meghan-montecito-california-uk.html
 

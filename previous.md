@@ -1,4 +1,12 @@
-**Duffel Bags Full of Khat Seized at Baltimore Airport’s Baggage Claim**\
+**The Message Behind Trump’s Threats of ‘Economic Warfare’ Against Iran**\
+`President Trump’s threats of an “economic D-Day” carry a clear signal to Iran that he does not want to go back to war.`\
+https://www.nytimes.com/2026/08/20/world/europe/the-message-behind-trumps-threats-of-economic-warfare-against-iran.html
+
+**A Man in a Chucky-Style Mask Was Scaring Philadelphians. Then He Picked the Wrong Woman.**\
+`When Jameka Wilson encountered a man wearing a Chucky-style Halloween mask, her stage combat training kicked in. Now she’s a minor local celebrity.`\
+https://www.nytimes.com/2026/08/20/us/chucky-doll-mask-kick-philadelphia.html
+
+**Duffel Bags Full of Stimulants Seized at Baltimore Airport’s Baggage Claim**\
 `While Customs and Border Protection said it intercepted more than half a ton of khat, which is classified as a controlled substance, experts say far more of the East African plant makes it into the country.`\
 https://www.nytimes.com/2026/08/20/us/khat-smuggling-baltimore-airport.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/20/arts/music/ileana-cotrubas-dead.html
 **As Prince Harry and Meghan Depart California for the U.K., Their Neighbors Shrug**\
 `Prince Harry and Meghan Markle self exiled to the ultrawealthy enclave of Montecito in 2020. “They wave. They drive. They close the gates,” a neighbor said.`\
 https://www.nytimes.com/2026/08/20/us/prince-harry-meghan-montecito-california-uk.html
-
-**3 Teen Girls Knifed by Woman in Attack at Dollar Tree, Police Say**\
-`The woman, who is 44, stabbed two of the girls and slashed the third during a dispute in Brooklyn on Wednesday, the authorities said.`\
-https://www.nytimes.com/2026/08/20/nyregion/brooklyn-dollar-tree-stabbing.html
-
-**China condena a cadena perpetua al fundador de Evergrande**\
-`El castigo de Hui Ka Yan representa el final de la caída de un imperio inmobiliario cuyo colapso desató una prolongada crisis en la economía china.`\
-https://www.nytimes.com/es/2026/08/20/espanol/mundo/china-cadena-perpetua-fundador-evergrande.html
 
