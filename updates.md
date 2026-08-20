@@ -1,3 +1,27 @@
+**Who Moves Up, and Who’s Pushed Out, in Pete Hegseth’s Military**\
+`Defense Secretary Pete Hegseth has been replacing top-ranking U.S. military officers with those who, many argue, show more loyalty to Hegseth and his ideas than to the military itself.`\
+https://www.nytimes.com/2026/08/20/podcasts/the-daily/pete-hegseth-us-military.html
+
+**$40,047,425,768,420 in U.S. Debt, and an Experimental Vaccine for Skin Cancer**\
+`Plus, could tweaking flight paths reduce global warming?`\
+https://www.nytimes.com/2026/08/20/podcasts/the-headlines/us-debt-vaccine-skin-cancer.html
+
+**NYT Connections Answers for August 21, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Aug. 21, 2026.`\
+https://www.nytimes.com/2026/08/20/crosswords/connections-companion-1167.html
+
+**NYT Strands Hints for August 21, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Aug. 21, 2026.`\
+https://www.nytimes.com/2026/08/20/crosswords/strands-sidekick-901.html
+
+**Today’s Wordle Hints for August 21, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Aug. 21, 2026.`\
+https://www.nytimes.com/2026/08/20/crosswords/wordle-review-1889.html
+
+**Russian Missiles Kill at Least 13 in Kyiv as Air Defenses Dwindle**\
+`Moscow is taking advantage of Ukraine’s depleted stock of interceptors and is intensifying attacks, worsening the civilian death toll.`\
+https://www.nytimes.com/2026/08/20/world/europe/ukraine-kyiv-missiles-russia-war.html
+
 **Russian Missiles Kill at Least 13 in Kyiv as Air Defenses Falter**\
 `Moscow is taking advantage of Ukraine’s depleted stock of interceptors and is intensifying attacks, worsening the civilian death toll.`\
 https://www.nytimes.com/2026/08/20/world/europe/ukraine-kyiv-missiles-russia-war.html

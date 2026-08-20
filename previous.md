@@ -1,4 +1,24 @@
-**Russian Missiles Kill at Least 13 in Kyiv as Air Defenses Falter**\
+**Who Moves Up, and Who’s Pushed Out, in Pete Hegseth’s Military**\
+`Defense Secretary Pete Hegseth has been replacing top-ranking U.S. military officers with those who, many argue, show more loyalty to Hegseth and his ideas than to the military itself.`\
+https://www.nytimes.com/2026/08/20/podcasts/the-daily/pete-hegseth-us-military.html
+
+**$40,047,425,768,420 in U.S. Debt, and an Experimental Vaccine for Skin Cancer**\
+`Plus, could tweaking flight paths reduce global warming?`\
+https://www.nytimes.com/2026/08/20/podcasts/the-headlines/us-debt-vaccine-skin-cancer.html
+
+**NYT Connections Answers for August 21, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Aug. 21, 2026.`\
+https://www.nytimes.com/2026/08/20/crosswords/connections-companion-1167.html
+
+**NYT Strands Hints for August 21, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Aug. 21, 2026.`\
+https://www.nytimes.com/2026/08/20/crosswords/strands-sidekick-901.html
+
+**Today’s Wordle Hints for August 21, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Aug. 21, 2026.`\
+https://www.nytimes.com/2026/08/20/crosswords/wordle-review-1889.html
+
+**Russian Missiles Kill at Least 13 in Kyiv as Air Defenses Dwindle**\
 `Moscow is taking advantage of Ukraine’s depleted stock of interceptors and is intensifying attacks, worsening the civilian death toll.`\
 https://www.nytimes.com/2026/08/20/world/europe/ukraine-kyiv-missiles-russia-war.html
 
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/08/20/business/pebble-beach-concours-sandra-button.
 **Why I’ve Spent My Summer Haunting Cemeteries**\
 `In an increasingly morbid world, we can learn from graveyards.`\
 https://www.nytimes.com/2026/08/20/opinion/minnesota-midwest-cemetery-summer.html
-
-**Interview: Blake Crouch on ‘Dark Matter’ and His Favorite Books**\
-`“Lots of white space on a page. Short paragraphs that move.” This month Apple TV airs Season 2 of a series based on his 2016 sci-fi thriller “Dark Matter.”`\
-https://www.nytimes.com/2026/08/20/books/review/blake-crouch-dark-matter.html
-
-**‘The Necessary Conversation’ Puts Family Political Arguments On Full Display**\
-`“The Necessary Conversation,” a podcast and YouTube show, is a very public example of the political disputes families are having all across the country.`\
-https://www.nytimes.com/2026/08/20/headway/the-necessary-conversation-political-argument-podcast.html
-
-**Under Trump, Protected Wild Horses Are Going to Slaughter**\
-`A legal loophole allows the government to sell mustangs on the cheap, stripping them of protections and clearing their path to destruction.`\
-https://www.nytimes.com/2026/08/20/us/trump-wild-horses-legal-loophole-slaughter.html
-
-**From India, a God of Your Choice, to Display at Home**\
-`A vivid show of 19th and 20th century Hindu devotional prints showcases the country’s genius for aesthetic abundance.`\
-https://www.nytimes.com/2026/08/20/arts/design/from-india-a-god-of-your-choice-to-display-at-home.html
-
-**Wanted: Two Bedrooms for a New Chapter in Setúbal, Portugal. Was $400,000 Enough?**\
-`A pair of empty-nesters decided to relocate to Portugal, but Lisbon had become too expensive. A nearby coastal city won them over.`\
-https://www.nytimes.com/quiz/2026/08/20/realestate/setubal-portugal-home-sales-prices.html
 
