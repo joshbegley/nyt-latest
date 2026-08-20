@@ -1,3 +1,7 @@
+**Homeland Security Unable to Prove That Thousands of Noncitizens Registered to Vote in Nevada**\
+`The Department of Homeland Security told Nevada election officials that it identified 185 “potential” noncitizens on the state’s voter rolls, not the nearly 16,000 it claimed last month.`\
+https://www.nytimes.com/2026/08/20/us/politics/trump-nevada-voter-election-fraud.html
+
 **Senator Andy Kim Visits Migrant Detention Center After String of Detainee Deaths**\
 `Senator Andy Kim of New Jersey spoke with detainees at the Newark detention center who said they had trouble accessing medical care. Staff members there disputed that account.`\
 https://www.nytimes.com/2026/08/20/nyregion/senator-andy-kim-delaney-hall-detainee-deaths.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/20/dining/going-big-on-shrimp-sliders.html
 **Great Actors Are More Believable Than Democrats**\
 `Democrats often don’t sound as if they believe themselves. To fix that, they should listen more to acting teachers and less to pollsters.`\
 https://www.nytimes.com/2026/08/20/opinion/democrats-polls-acting-playbook.html
-
-**State Dept. Declares U.S. Citizen in China Wrongfully Detained**\
-`U Min Zin, a scholar who studied Myanmar, is one of two U.S. citizens the department has designated as wrongfully detained in China.`\
-https://www.nytimes.com/2026/08/20/us/politics/scholar-china-wrongfully-detained.html
 
