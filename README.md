@@ -1,3 +1,7 @@
+**Trump Officials Scrap Effort to Recruit Pentagon Lawyers to Represent Migrant Children**\
+`The reversal of the plan, which had not been publicly disclosed, comes amid mounting confusion about how the administration is protecting the rights of unaccompanied minors.`\
+https://www.nytimes.com/2026/08/19/us/politics/migrant-children-pentagon-lawyers.html
+
 **Man Dies at Newly Opened Medical Unit for Rikers Jail**\
 `The death of Christopher Rodriguez is the first at the medical unit, which opened in April at Bellevue Hospital, for people incarcerated on Rikers Island.`\
 https://www.nytimes.com/2026/08/19/nyregion/rikers-death-bellevue.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/100000011096947/family-members-of-sailor-aboard
 **Why One Times Obits Writer Is Skeptical of Famous Last Words**\
 `Determining the reliability of final thoughts can be a challenge when conveying a person’s life story on deadline.`\
 https://www.nytimes.com/2026/08/19/insider/obits-famous-last-words.html
-
-**Sen. Darline Graham: ‘I’m Not That Informed on National Security’**\
-`Senator Darline Graham of South Carolina stumbled over a question about the importance of Taiwan to U.S. interests during a debate in a runoff election on Tuesday.`\
-https://www.nytimes.com/video/us/elections/100000011100884/darline-graham-national-security-south-carolina-debate.html
 
