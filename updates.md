@@ -1,3 +1,15 @@
+**Canada and U.S. Resume Talks Over Trump Tariffs as a New Deadline Looms**\
+`While President Trump has declared that the two countries effectively have a deal, they remain apart on several key issues.`\
+https://www.nytimes.com/2026/08/20/world/canada/trump-carney-tariffs-trade-deal.html
+
+**Why Busta Rhymes, Rap’s Ultimate Showman, Is Still Hustling**\
+`Watch the full Popcast conversation with Busta Rhymes here. Edited excerpts from the interview are below.`\
+https://www.nytimes.com/video/podcasts/100000011097436/why-busta-rhymes-raps-ultimate-showman-is-still-hustling.html
+
+**First U.S. Deportees to Arrive in Liberia Amid Growing Backlash**\
+`Critics in Liberia, a small West African nation, say their government has not explained why it agreed to one of the largest U.S. deportation deals, who the deportees are, or how they will be handled.`\
+https://www.nytimes.com/2026/08/20/world/africa/liberia-trump-deportations.html
+
 **Rachel Cusk on Her Novel ‘Life of M,’ Gossip and Natalie Portman**\
 `She wanted a “vacation” from herself, so she wrote a novel about a celebrity whose life bears a striking resemblance to Natalie Portman’s. Now it’s tabloid fodder.`\
 https://www.nytimes.com/2026/08/20/style/rachel-cusk-life-of-m-natalie-portman.html
