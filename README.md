@@ -1,3 +1,7 @@
+****\
+`“Filipiñana” is set at a golf and country club in the Philippines.`\
+https://www.nytimes.com/video/embedded/world/asia/100000011102917/xp-land-conflicts-embed-73346.html
+
 **Jimmy Fallon Teases Trump’s Efforts to Rekindle North Korea Bromance**\
 `“Man, you know you’re depressed when you’re texting an old hookup from seven years ago,” Fallon said of the president and North Korea’s leader, Kim Jong-un.`\
 https://www.nytimes.com/2026/08/20/arts/television/jimmy-fallon-trump-kim-jong-un.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/19/business/federal-reserve-interest-rates.html
 **In Wyoming’s G.O.P. Primaries, an Emphatic Rebuke of the Hard Right**\
 `The Wyoming Freedom Caucus had ambitions for a total takeover of elected state government. But its candidates were rejected from the governor’s mansion to the Legislature.`\
 https://www.nytimes.com/2026/08/19/us/elections/wyoming-republicans-moderate.html
-
-**North Korean Official Dismisses Reduced Drills Between US and South Korea**\
-`Kim Yo-jong, a powerful adviser and sister of Kim Jong-un, also said she was “unaware” of any communication with Washington, contradicting President Trump’s claim her brother had responded to his outreach.`\
-https://www.nytimes.com/2026/08/19/world/asia/north-korea-trump-military-drills.html
 
