@@ -1,3 +1,23 @@
+**Pilot Is Killed After Small Plane and Police Helicopter Collide in Pennsylvania**\
+`Two Pennsylvania State Police troopers were injured in the crash at Carlisle Airport, officials said.`\
+https://www.nytimes.com/2026/08/20/us/helicopter-plane-collision-pennsylvania.html
+
+**Con opciones limitadas, Trump intenta ejercer presión económica sobre Irán… otra vez**\
+`Irán ha sobrevivido a décadas de sanciones. Según los analistas, es poco probable que la amenaza de más lo motive a rendirse.`\
+https://www.nytimes.com/es/2026/08/20/espanol/mundo/guerra-iran-trump-israel.html
+
+**Quote of the Day: Split From Son in Ukraine War, Mother Plotted a Risky Rescue**\
+`Quotation of the Day for Thursday, August 20, 2026.`\
+https://www.nytimes.com/2026/08/20/pageoneplus/quote-of-the-day-split-from-son-in-ukraine-war-mother-plotted-a-risky-rescue.html
+
+**Hating Matcha, Yet Loving Life, Made Him a TikTok Star at 89**\
+`Werner Kalecinski is a social media sensation among young Germans. How did he go from heartbroken widower to partying on a yacht?`\
+https://www.nytimes.com/2026/08/20/world/europe/elder-opa-influencer-tiktok-star-matcha.html
+
+**Bad Plot, Worse Graphics: Chinese Moviegoers Flock to a Low-Budget Hit**\
+`With its pixelated visuals, “The Bull is Coming” is being celebrated for its authenticity in the age of A.I. and is shaping up to be a Gen Z cult classic.`\
+https://www.nytimes.com/2026/08/20/world/asia/niu-lai-chinese-movie-box-office.html
+
 **Missouri Judge Says Redrawn Congressional Map May Be Used in Midterms**\
 `The decision was a win for Republicans, who have been pushing for the new map in an effort to help maintain the party’s narrow control in the U.S. House in November.`\
 https://www.nytimes.com/2026/08/19/us/missouri-redistricting-midterms.html
