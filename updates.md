@@ -1,3 +1,11 @@
+**After Six Years, Harry and Meghan Are Coming Home. What Changed?**\
+`Just last year, Prince Harry said he couldn’t imagine ever bringing his family back to Britain.`\
+https://www.nytimes.com/2026/08/20/world/europe/harry-meghan-britain-return.html
+
+**J.T. Harding on Crafting the Hits of ‘Music City’**\
+`The Nashville songsmith J.T. Harding gives the lowdown on writing with Keith Urban, Uncle Kracker, Shane McAnally and more.`\
+https://www.nytimes.com/2026/08/20/theater/music-city-jt-harding-broadway.html
+
 **A Prince at 26: Once-Secret Son of Belgian Royal Gains Legal Recognition**\
 `Clément Vandenkerckhove was born to Belgium’s Prince Clement before his marriage. He is now a prince himself, though he is not expected to have royal duties.`\
 https://www.nytimes.com/2026/08/20/world/europe/prince-laurent-belgium-clement-son.html
