@@ -1,3 +1,7 @@
+**Songs for Lizard Season**\
+`Our colleagues at The Amplifier newsletter have music recommendations for the final sun-basking days of summer.`\
+https://www.nytimes.com/2026/08/20/world/music-songs-ukraine-royals.html
+
 **Debating the Use of A.I. in Writing**\
 `Readers responded to a column begging readers not to use A.I. to write. Also, a rush to build the White House ballroom; a Trump voter’s wife is detained by ICE; and Trump derangement syndrome.`\
 https://www.nytimes.com/2026/08/20/opinion/letters/debating-ai-in-writing.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/20/movies/hot-spot-review.html
 **Treasury Turns to Interventionist Tactics to Lower Interest Rates**\
 `Treasury Secretary Scott Bessent is reinventing the government’s role in the world’s most important bond market.`\
 https://www.nytimes.com/2026/08/20/business/treasury-bond-market-interventionist-tactics.html
-
-**Trump’s Economic Threat Puts Focus on Iran’s Trading Partners**\
-`President Trump appeared to suggest that the United States would impose economic penalties on countries that do business with Iran, though he did not specify what actions he would take.`\
-https://www.nytimes.com/2026/08/20/world/middleeast/iran-trade-trump-threat-china.html
 
