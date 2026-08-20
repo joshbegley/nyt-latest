@@ -1,3 +1,11 @@
+**A Red Wig Upsets Fans of ‘Spider-Man’**\
+`Sadie Sink, a natural redhead, wore faux red locks in her Marvel debut, leaving some viewers questioning the choice.`\
+https://www.nytimes.com/2026/08/20/style/sadie-sink-wig-spider-man-redhead.html
+
+**Ted Striggles, Who Helped His Fellow Dancers as a Lawyer, Dies at 84**\
+`He was best known for the influential 1976 guide “Poor Dancer’s Almanac,” which aimed to help starving artists survive in New York.`\
+https://www.nytimes.com/2026/08/20/arts/dance/ted-striggles-dead.html
+
 **Ileana Cotrubas, Sensitive Soprano Known for ‘Traviata,’ Dies at 87**\
 `Able to convey the pathos of operatic heroines with her pure, expressive tone, she was also involved in prickly disputes with some directors and conductors.`\
 https://www.nytimes.com/2026/08/20/arts/music/ileana-cotrubas-dead.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/20/climate/trump-california-climate.html
 **36 Hours in the Cotswolds, England: Things to Do and See**\
 `England’s Cotswolds region offers bucolic splendor, cultural riches, ancient woodlands and Neolithic monuments, not to mention excellent shopping and dining.`\
 https://www.nytimes.com/interactive/2026/08/20/travel/things-to-do-cotswolds.html
-
-**J.T. Harding on Crafting the Hits of ‘Music City’**\
-`The Nashville songsmith J.T. Harding gives the lowdown on writing with Keith Urban, Uncle Kracker, Shane McAnally and more.`\
-https://www.nytimes.com/2026/08/20/theater/music-city-jt-harding-broadway.html
-
-**Homes for Sale in Manhattan and Brooklyn**\
-`This week’s properties are in NoMad, Midtown East and Ditmas Park.`\
-https://www.nytimes.com/2026/08/20/realestate/housing-market-nyc.html
 
