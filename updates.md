@@ -1,3 +1,7 @@
+**Seattle Times Columnist Resigns After Paper Scrapped Trans Sports Column**\
+`Matt Calkins, a longtime sports columnist, said editors had refused to publish a column about transgender athletes in women’s competitions.`\
+https://www.nytimes.com/2026/08/20/business/media/seattle-times-matt-calkins-resigns.html
+
 **Transportation Secretary Sean Duffy’s ‘Road Trip’ Highlights America, and Some of Its Sponsors**\
 `The transportation secretary’s six-part YouTube series is fueling ethical concerns over family adventures funded in large part by corporate sponsors regulated by his department.`\
 https://www.nytimes.com/2026/08/20/us/politics/sean-duffy-american-road-trip.html
