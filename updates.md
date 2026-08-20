@@ -1,3 +1,15 @@
+**The Best Cap-Toe Pump Shoes, at a Range of Prices**\
+`With Chanel’s signature shoe, variations come at all price points.`\
+https://www.nytimes.com/2026/08/20/t-magazine/cap-toe-two-tone-shoes-chanel.html
+
+**Recipe Matchmaker: Grab-Bag Edition**\
+`Recipe requests for savory summer fruit, non-bean protein and three heads of cabbage, right this way.`\
+https://www.nytimes.com/2026/08/20/dining/recipe-matchmaker-grab-bag-edition.html
+
+**First U.S. Deportees to Arrive in Liberia Amid Growing Backlash**\
+`Critics in the small West African nation say their government has not said why it agreed to one of the largest U.S. deportation deals, who the deportees are, or how they will be handled.`\
+https://www.nytimes.com/2026/08/20/world/africa/liberia-trump-deportations.html
+
 **Woman Arrested in Plot to Detonate Bomb in New York State Capitol**\
 `The woman had ties or pledged allegiance to the Islamic State, according to two people with knowledge of the matter. It was unclear how far along she was in planning an attack.`\
 https://www.nytimes.com/2026/08/20/nyregion/albany-isis-plot-bomb-capitol.html

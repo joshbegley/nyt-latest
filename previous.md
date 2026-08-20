@@ -1,3 +1,11 @@
+**The Best Cap-Toe Pump Shoes, at a Range of Prices**\
+`With Chanel’s signature shoe, variations come at all price points.`\
+https://www.nytimes.com/2026/08/20/t-magazine/cap-toe-two-tone-shoes-chanel.html
+
+**Recipe Matchmaker: Grab-Bag Edition**\
+`Recipe requests for savory summer fruit, non-bean protein and three heads of cabbage, right this way.`\
+https://www.nytimes.com/2026/08/20/dining/recipe-matchmaker-grab-bag-edition.html
+
 **Woman Arrested in Plot to Detonate Bomb in New York State Capitol**\
 `The woman had ties or pledged allegiance to the Islamic State, according to two people with knowledge of the matter. It was unclear how far along she was in planning an attack.`\
 https://www.nytimes.com/2026/08/20/nyregion/albany-isis-plot-bomb-capitol.html
@@ -15,7 +23,7 @@ https://www.nytimes.com/2026/08/20/world/canada/trump-carney-tariffs-trade-deal.
 https://www.nytimes.com/video/podcasts/100000011097436/why-busta-rhymes-raps-ultimate-showman-is-still-hustling.html
 
 **First U.S. Deportees to Arrive in Liberia Amid Growing Backlash**\
-`Critics in Liberia, a small West African nation, say their government has not explained why it agreed to one of the largest U.S. deportation deals, who the deportees are, or how they will be handled.`\
+`Critics in the small West African nation say their government has not said why it agreed to one of the largest U.S. deportation deals, who the deportees are, or how they will be handled.`\
 https://www.nytimes.com/2026/08/20/world/africa/liberia-trump-deportations.html
 
 **Rachel Cusk on Her Novel ‘Life of M,’ Gossip and Natalie Portman**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/20/podcasts/cannonball-anita-baker-rapture.html
 **Moderna’s Shift to Cancer Company Lifts Stock Up 177%**\
 `The company’s fortunes cratered as demand for Covid-19 vaccines plummeted. But it was busy working on something else.`\
 https://www.nytimes.com/2026/08/20/business/moderna-cancer-melanoma.html
-
-**As Iran and U.S. Settle Into an Uneasy Standoff, Who Will Blink First?**\
-`For weeks, there has been no diplomatic progress, but also no full-scale fighting, as each side seems to believe it can hold out longer than the other.`\
-https://www.nytimes.com/2026/08/20/world/middleeast/iran-us-war-standoff-hormuz.html
-
-**Ken Paxton’s $1,000 Pen Incident Resurfaces in Texas Senate Race**\
-`The pen Mr. Paxton pocketed more than a decade ago has resurfaced as a campaign issue.`\
-https://www.nytimes.com/2026/08/20/us/ken-paxton-montblanc-pen.html
 
