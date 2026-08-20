@@ -1,4 +1,8 @@
-**FBI Agents Search Eric Swalwell’s Home as Part of Federal Inquiry**\
+**A Few Expert Lawyers Dominate Supreme Court Arguments, a New Study Finds**\
+`Chief Justice Roberts, once such a lawyer, has said he has mixed feelings about the trend.`\
+https://www.nytimes.com/2026/08/20/us/politics/the-docket-supreme-court-lawyers.html
+
+**FBI Agents Search Eric Swalwell’s Home as Part of Federal Sexual Assault Inquiry**\
 `Most sex crimes are prosecuted by state and local authorities. The federal agents appeared to be using civil rights statutes to scrutinize Mr. Swalwell’s conduct, a person familiar with the case said.`\
 https://www.nytimes.com/2026/08/20/us/eric-swalwell-fbi-search-home.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/20/magazine/lore-language-history.html
 **Homes for Sale in New York and Connecticut**\
 `This week’s properties are a three-bedroom in East Hampton, N.Y., and a four-bedroom in Stamford, Conn.`\
 https://www.nytimes.com/2026/08/20/realestate/housing-market-near-nyc.html
-
-**How Trump Is Trying to Crush California’s Climate Policies**\
-`At least a half-dozen federal agencies have taken action against the state that has led the nation in environmental protections.`\
-https://www.nytimes.com/2026/08/20/climate/trump-california-climate.html
 

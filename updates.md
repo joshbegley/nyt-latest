@@ -1,3 +1,11 @@
+**A Few Expert Lawyers Dominate Supreme Court Arguments, a New Study Finds**\
+`Chief Justice Roberts, once such a lawyer, has said he has mixed feelings about the trend.`\
+https://www.nytimes.com/2026/08/20/us/politics/the-docket-supreme-court-lawyers.html
+
+**FBI Agents Search Eric Swalwell’s Home as Part of Federal Sexual Assault Inquiry**\
+`Most sex crimes are prosecuted by state and local authorities. The federal agents appeared to be using civil rights statutes to scrutinize Mr. Swalwell’s conduct, a person familiar with the case said.`\
+https://www.nytimes.com/2026/08/20/us/eric-swalwell-fbi-search-home.html
+
 **FBI Agents Search Eric Swalwell’s Home as Part of Federal Inquiry**\
 `Most sex crimes are prosecuted by state and local authorities. The federal agents appeared to be using civil rights statutes to scrutinize Mr. Swalwell’s conduct, a person familiar with the case said.`\
 https://www.nytimes.com/2026/08/20/us/eric-swalwell-fbi-search-home.html
