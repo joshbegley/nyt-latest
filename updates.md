@@ -1,3 +1,7 @@
+**Cuando la depresión se resiste al tratamiento**\
+`Hay diversos factores que pueden aumentar la probabilidad de que una persona con depresión no responda a los tratamientos farmacológicos iniciales. Pero hay alternativas.`\
+https://www.nytimes.com/es/2026/08/20/espanol/depresion-resistencia-tratamiento-alternativas.html
+
 **How Usher Gets Ready for a Show**\
 `Plus: an under-the-radar Rome neighborhood, coral jewelry and more recommendations from T Magazine.`\
 https://www.nytimes.com/2026/08/20/t-magazine/usher-wellness-routine.html
