@@ -1,3 +1,19 @@
+**Weary U.S. Aircraft Carrier Leaves the Middle East**\
+`Also, Russia takes advantage of Ukraine’s depleted stockpile. Here’s the latest at the end of Thursday.`\
+https://www.nytimes.com/2026/08/20/briefing/aircraft-carrier-ukraine-russia-missiles.html
+
+**Cameroon’s Aging President Returns From Months-Long Stay Abroad**\
+`Paul Biya, 93, had been in Switzerland since early June. The prolonged absence stirred questions about his health and plans for succession.`\
+https://www.nytimes.com/2026/08/20/world/africa/cameroon-president-returns-from-long-stay-abroad.html
+
+**The Message Behind Trump’s Threats of ‘Economic Warfare’ Against Iran**\
+`President Trump’s threats of an “economic D-Day” carry a clear signal to Iran that he does not want to go back to war.`\
+https://www.nytimes.com/2026/08/20/world/europe/trump-iran-economy-sanctions-threats.html
+
+**Duffels Full of Khat Seized at Baltimore Airport’s Baggage Claim**\
+`While Customs and Border Protection said it intercepted more than half a ton of khat, which is classified as a controlled substance, experts say far more of the East African plant makes it into the country.`\
+https://www.nytimes.com/2026/08/20/us/khat-smuggling-baltimore-airport.html
+
 **The Message Behind Trump’s Threats of ‘Economic Warfare’ Against Iran**\
 `President Trump’s threats of an “economic D-Day” carry a clear signal to Iran that he does not want to go back to war.`\
 https://www.nytimes.com/2026/08/20/world/europe/the-message-behind-trumps-threats-of-economic-warfare-against-iran.html

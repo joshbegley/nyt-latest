@@ -1,3 +1,7 @@
+**2 Hijackings in 4 Days: Somali Piracy Surges**\
+`Experts worry that the conflict in Iran and other regional dynamics are setting the stage for a Somali pirates’ comeback.`\
+https://www.nytimes.com/2026/08/20/world/africa/2-hijackings-in-4-days-somali-piracy-surges.html
+
 **Weary U.S. Aircraft Carrier Leaves the Middle East**\
 `Also, Russia takes advantage of Ukraine’s depleted stockpile. Here’s the latest at the end of Thursday.`\
 https://www.nytimes.com/2026/08/20/briefing/aircraft-carrier-ukraine-russia-missiles.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/20/us/eric-swalwell-fbi-search-home.html
 **Why Did Sadie Sink Wear a Red Wig in ‘Spider-Man’?**\
 `Sadie Sink, a natural redhead, wore faux red locks in her Marvel debut, leaving some viewers questioning the choice.`\
 https://www.nytimes.com/2026/08/20/style/sadie-sink-wig-spider-man-redhead.html
-
-**Ted Striggles, Who Helped His Fellow Dancers as a Lawyer, Dies at 84**\
-`He was best known for the influential 1976 guide “Poor Dancer’s Almanac,” which aimed to help starving artists survive in New York.`\
-https://www.nytimes.com/2026/08/20/arts/dance/ted-striggles-dead.html
 
