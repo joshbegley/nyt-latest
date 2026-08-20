@@ -1,3 +1,7 @@
+**Songs for Lizard Season**\
+`Our colleagues at The Amplifier newsletter have music recommendations for the final sun-basking days of summer.`\
+https://www.nytimes.com/2026/08/20/world/music-songs-ukraine-royals.html
+
 **FBI Arrests Woman in Plot to Bomb New York State Capitol Building**\
 `Federal prosecutors say the woman met with an F.B.I. informant several times to plan an attack on the building, which houses the governor’s office and that of lawmakers.`\
 https://www.nytimes.com/2026/08/20/nyregion/albany-isis-plot-bomb-capitol.html
