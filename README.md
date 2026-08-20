@@ -1,3 +1,7 @@
+**Books Our Editors Loved This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://www.nytimes.com/2026/08/20/books/review/20tbr-new-recommended-books.html
+
 **Lindsay Clancy Heard a Voice Telling Her to Kill Her Children, Witnesses Say**\
 `Ms. Clancy has pleaded not guilty to murder, citing postpartum psychosis. Two defense witnesses said she spoke lovingly of her children after the killings.`\
 https://www.nytimes.com/2026/08/20/us/lindsay-clancy-trial-voice-children.html
@@ -7,7 +11,7 @@ https://www.nytimes.com/2026/08/20/us/lindsay-clancy-trial-voice-children.html
 https://www.nytimes.com/2026/08/20/us/politics/uss-abraham-lincoln-iran.html
 
 **Academic Who Publicized Plagiarism Allegations Against Jason Arday Is Suspended**\
-`Ghent University in Belgium said it suspended the professor, Nathan Cofnas, pending an investigation.`\
+`Ghent University in Belgium said it suspended the academic, Nathan Cofnas, pending an investigation.`\
 https://www.nytimes.com/2026/08/20/world/europe/arday-cofnas-suspended.html
 
 **Captain in Deadly New York Harbor Accident Is Arrested by ICE**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/20/world/europe/ukraine-grocery-stores-shortages
 **Cuando la depresión se resiste al tratamiento**\
 `Hay diversos factores que pueden aumentar la probabilidad de que una persona con depresión no responda a los tratamientos farmacológicos iniciales. Pero hay alternativas.`\
 https://www.nytimes.com/es/2026/08/20/espanol/depresion-resistencia-tratamiento-alternativas.html
-
-**How Usher Gets Ready for a Show**\
-`Plus: an under-the-radar Rome neighborhood, coral jewelry and more recommendations from T Magazine.`\
-https://www.nytimes.com/2026/08/20/t-magazine/usher-wellness-routine.html
 

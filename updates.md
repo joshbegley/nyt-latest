@@ -1,3 +1,11 @@
+**Lindsay Clancy Heard a Voice Telling Her to Kill Her Children, Witnesses Say**\
+`Ms. Clancy has pleaded not guilty to murder, citing postpartum psychosis. Two defense witnesses said she spoke lovingly of her children after the killings.`\
+https://www.nytimes.com/2026/08/20/us/lindsay-clancy-trial-voice-children.html
+
+**U.S.S. Abraham Lincoln Leaves Middle East After Months at Sea in Operation Against Iran**\
+`The aircraft carrier has been deployed for nine months, largely in support of U.S. operations against Iran, and is now heading home to San Diego.`\
+https://www.nytimes.com/2026/08/20/us/politics/uss-abraham-lincoln-iran.html
+
 **Weary U.S.S. Abraham Lincoln Leaves Middle East**\
 `The aircraft carrier has been deployed for nine months, largely in support of U.S. operations against Iran, and is now heading home to San Diego.`\
 https://www.nytimes.com/2026/08/20/us/politics/uss-abraham-lincoln-iran.html
