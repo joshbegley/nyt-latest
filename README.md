@@ -1,3 +1,11 @@
+**Russian Missiles Kill at Least 13 in Kyiv as Air Defenses Falter**\
+`Moscow is taking advantage of Ukraine’s depleted stock of interceptors and is intensifying attacks, worsening the civilian death toll.`\
+https://www.nytimes.com/2026/08/20/world/europe/ukraine-kyiv-missiles-russia-war.html
+
+**Bare Grocery Shelves Are a New Wartime Hardship for Ukrainians**\
+`After years of pounding power plants and cities, Russia’s air war has taken aim at Ukraine’s supermarket warehouses.`\
+https://www.nytimes.com/2026/08/20/world/europe/ukraine-grocery-stores-shortages.html
+
 **Cuando la depresión se resiste al tratamiento**\
 `Hay diversos factores que pueden aumentar la probabilidad de que una persona con depresión no responda a los tratamientos farmacológicos iniciales. Pero hay alternativas.`\
 https://www.nytimes.com/es/2026/08/20/espanol/depresion-resistencia-tratamiento-alternativas.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/20/arts/design/from-india-a-god-of-your-choice-t
 **Wanted: Two Bedrooms for a New Chapter in Setúbal, Portugal. Was $400,000 Enough?**\
 `A pair of empty-nesters decided to relocate to Portugal, but Lisbon had become too expensive. A nearby coastal city won them over.`\
 https://www.nytimes.com/quiz/2026/08/20/realestate/setubal-portugal-home-sales-prices.html
-
-**Why Your Next Long-Haul Layover May Be in Seoul, Not Dubai**\
-`The Iran war has slashed transit traffic at Middle Eastern airports, creating opportunities for hubs in Asia and beyond — at least for now.`\
-https://www.nytimes.com/2026/08/20/world/asia/iran-war-asia-airports-dubai.html
-
-**La confusa relación arancelaria entre Trump y Canadá**\
-`Tras una extensión del plazo, las últimas amenazas arancelarias de EE. UU. parecían encaminarse hacia una resolución el miércoles, pero persistían las dudas sobre a qué renunciaría Canadá y qué obtendría a cambio.`\
-https://www.nytimes.com/es/2026/08/20/espanol/mundo/aranceles-trump-canada.html
 
