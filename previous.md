@@ -8,7 +8,7 @@ https://www.nytimes.com/2026/08/20/briefing/were-doing-drugs.html
 
 **A Prince at 26: Once-Secret Son of Belgian Royal Gains Legal Recognition**\
 `Clément Vandenkerckhove was born to Belgium’s Prince Clement before his marriage. He is now a prince himself, though he is not expected to have royal duties.`\
-https://www.nytimes.com/2026/08/20/world/prince-laurent-belgium-clement-son.html
+https://www.nytimes.com/2026/08/20/world/europe/prince-laurent-belgium-clement-son.html
 
 **As Harry and Meghan Plan Their Return, Britain Wonders: What Changed?**\
 `Just last year, Prince Harry said he couldn’t imagine ever bringing his family back home from America.`\

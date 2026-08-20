@@ -1,3 +1,7 @@
+**A Prince at 26: Once-Secret Son of Belgian Royal Gains Legal Recognition**\
+`Clément Vandenkerckhove was born to Belgium’s Prince Clement before his marriage. He is now a prince himself, though he is not expected to have royal duties.`\
+https://www.nytimes.com/2026/08/20/world/europe/prince-laurent-belgium-clement-son.html
+
 **Oil Prices Jump After Trump’s Latest Iran Threat**\
 `Bond markets remained volatile, as investors assessed the geopolitical turmoil.`\
 https://www.nytimes.com/2026/08/20/business/iran-war-oil-bonds.html
