@@ -1,3 +1,7 @@
+**El gobierno de Trump aumenta las sanciones para presionar a Cuba**\
+`Expertos en derechos humanos han dicho que los intentos de EE. UU. de asfixiar la economía de Cuba, incluido un bloqueo petrolero, han causado una grave crisis humanitaria.`\
+https://www.nytimes.com/es/2026/08/20/espanol/america-latina/cuba-sanciones-trump.html
+
 **Nancy Kissinger, Wife of Former Secretary of State, Dies at 92**\
 `A foreign policy specialist, she was politically savvy and well versed in global issues, and traveled widely with her husband, Henry A. Kissinger, on his diplomatic missions.`\
 https://www.nytimes.com/2026/08/20/us/nancy-kissinger-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/08/20/espanol/estados-unidos/nueva-york-mamdani-
 **The Best Cap-Toe Pump Shoes, at a Range of Prices**\
 `With Chanel’s signature shoe, variations come at all price points.`\
 https://www.nytimes.com/2026/08/20/t-magazine/cap-toe-two-tone-shoes-chanel.html
-
-**Recipe Matchmaker: Grab-Bag Edition**\
-`Recipe requests for savory summer fruit, non-bean protein and three heads of cabbage, right this way.`\
-https://www.nytimes.com/2026/08/20/dining/recipe-matchmaker-grab-bag-edition.html
 
