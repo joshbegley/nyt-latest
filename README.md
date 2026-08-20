@@ -1,3 +1,7 @@
+**Read the criminal complaint about a bomb plot in Albany**\
+`Federal agents and police detectives have arrested a 35-year-old woman who prosecutors say was planning to bomb the New York State Capitol, according to a criminal complaint filed in federal court on Thursday.`\
+https://www.nytimes.com/interactive/2026/08/20/nyregion/albany-bomb-criminal-complaint.html
+
 **Hochul’s Advice for Mamdani: Focus on New York City**\
 `In a wide-ranging interview, Gov. Kathy Hochul stressed the values she shares with Mayor Zohran Mamdani and talked about President Trump, taxes and ICE.`\
 https://www.nytimes.com/2026/08/20/nyregion/hochul-mamdani-israel-new-york.html
@@ -54,8 +58,8 @@ https://www.nytimes.com/2026/08/20/t-magazine/cap-toe-two-tone-shoes-chanel.html
 `Recipe requests for savory summer fruit, non-bean protein and three heads of cabbage, right this way.`\
 https://www.nytimes.com/2026/08/20/dining/recipe-matchmaker-grab-bag-edition.html
 
-**Woman Arrested in Plot to Detonate Bomb in New York State Capitol**\
-`The woman had ties or pledged allegiance to the Islamic State, according to two people with knowledge of the matter. It was unclear how far along she was in planning an attack.`\
+**Woman Arrested in Plot to Bomb New York State Capitol**\
+`Federal prosecutors say the woman met with an F.B.I. informant several times to plan an attack on the building, which houses the governor’s office.`\
 https://www.nytimes.com/2026/08/20/nyregion/albany-isis-plot-bomb-capitol.html
 
 **In a Big Year for Progressives, Here’s Why These Moderates Won Their Primaries**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/20/world/europe/harry-meghan-britain-return.html
 **Who Moves Up, and Who’s Pushed Out, in Pete Hegseth’s Military**\
 `Defense Secretary Pete Hegseth has been replacing top-ranking U.S. military officers with those who, many argue, show more loyalty to Hegseth and his ideas than to the military itself.`\
 https://www.nytimes.com/2026/08/20/podcasts/the-daily/pete-hegseth-us-military.html
-
-**$40,047,425,768,420 in U.S. Debt, and an Experimental Vaccine for Skin Cancer**\
-`Plus, could tweaking flight paths reduce global warming?`\
-https://www.nytimes.com/2026/08/20/podcasts/the-headlines/us-debt-vaccine-skin-cancer.html
 
