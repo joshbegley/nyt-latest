@@ -1,3 +1,11 @@
+**Nancy Kissinger, Wife of Former Secretary of State, Dies at 92**\
+`A foreign policy specialist, she was politically savvy and well versed in global issues, and traveled widely with her husband, Henry A. Kissinger, on his diplomatic missions.`\
+https://www.nytimes.com/2026/08/20/us/nancy-kissinger-dead.html
+
+**Aisha Wahab Wins California Special Election to Replace Eric Swalwell**\
+`Aisha Wahab, a Democratic state senator in California, will fill out the term of Eric Swalwell, who resigned from the House amid accusations of sexual misconduct.`\
+https://www.nytimes.com/2026/08/20/us/politics/wahab-hernandez-california-special-election.html
+
 **New Jersey Teenager Drops Bellwether Social Media Addiction Lawsuit**\
 `The case was the third of nine major personal injury cases that could expose Meta, YouTube, Snap and TikTok to financial damages and force them to change the designs of their platforms.`\
 https://www.nytimes.com/2026/08/20/technology/social-media-addiction-lawsuit-dropped.html
