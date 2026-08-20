@@ -1,3 +1,7 @@
+**Phoenix Police Investigate 2 Officers Accused of Violent Traffic Stop**\
+`The department opened a criminal investigation after a couple said they were shocked with a stun gun and beaten during the Aug. 5 encounter.`\
+https://www.nytimes.com/2026/08/20/us/phoenix-police-investigation-traffic-stop.html
+
 **Trump Officials Impose More Sanctions to Pressure Cuba**\
 `Human rights experts have said that the U.S. attempts to squeeze Cuba’s economy, including an oil blockade, have caused a severe humanitarian crisis.`\
 https://www.nytimes.com/2026/08/20/us/politics/trump-officials-impose-more-sanctions-to-pressure-cuba.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/20/world/africa/liberia-trump-deportations.html
 **Rachel Cusk on Her Novel ‘Life of M,’ Gossip and Natalie Portman**\
 `“Life of M,” Rachel Cusk’s new book, has a protagonist with an uncanny resemblance to Natalie Portman. But in an interview, Cusk says she never expected it would cause such a frenzy.`\
 https://www.nytimes.com/2026/08/20/style/rachel-cusk-life-of-m-natalie-portman.html
-
-**A Few Expert Lawyers Dominate Supreme Court Arguments, a New Study Finds**\
-`Chief Justice Roberts, once such a lawyer, has said he has mixed feelings about the trend.`\
-https://www.nytimes.com/2026/08/20/us/politics/the-docket-supreme-court-lawyers.html
 
