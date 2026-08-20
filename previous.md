@@ -1,3 +1,15 @@
+**Londoners React to Harry and Meghan Moving Back to the U.K.**\
+`Prince Harry and Meghan Markle are planning to move back to Britain after leaving for the United States six years ago amid a clash with other members of the British royal family.`\
+https://www.nytimes.com/video/world/europe/100000011103379/londoners-react-harry-meghan-uk-return.html
+
+**Imran Khan Wins Fight to be Moved From Prison to Hospital**\
+`The former prime minister of Pakistan, who was convicted on corruption charges, has been fighting a legal battle over his medical treatment.`\
+https://www.nytimes.com/2026/08/20/world/asia/imran-khan-hospital-pakistan.html
+
+**A Week After Hurricane Lala, Hawaii Faces Another Storm Threat**\
+`A storm is forming in the Pacific just as the Big Island assesses damage from last weekend’s indirect hit.`\
+https://www.nytimes.com/2026/08/20/weather/tropical-storm-hawaii-hurricane-lala-recovery.html
+
 **Songs for Lizard Season**\
 `Our colleagues at The Amplifier newsletter have music recommendations for the final sun-basking days of summer.`\
 https://www.nytimes.com/2026/08/20/world/music-songs-ukraine-royals.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/08/20/us/politics/scholar-china-wrongfully-detained
 **Así es como Wall Street saca provecho de las demandas por lesiones personales**\
 `Empresas y doctores han recomendado cirugías costosas, y en algunos casos innecesarias, a clientes desesperados por ganar sus casos en los tribunales.`\
 https://www.nytimes.com/es/2026/08/20/espanol/estados-unidos/demandas-lesiones-trabajadores.html
-
-**El príncipe Enrique y Meghan volverán al Reino Unido**\
-`La sorpresiva decisión pone fin al exilio autoimpuesto de los duques de Sussex, que comenzó en medio de un clima de enojo y recriminaciones con el resto de la familia real.`\
-https://www.nytimes.com/es/2026/08/20/espanol/mundo/principe-enrique-meghan-regreso-inglaterra.html
-
-**‘Hot Spot’ Review: A Baffling Dystopia**\
-`In this Polish feature, an artificial intelligence system rules over a downtrodden population. Trouble arrives, in the form of Rana (Noomi Rapace).`\
-https://www.nytimes.com/2026/08/20/movies/hot-spot-review.html
-
-**Treasury Turns to Interventionist Tactics to Lower Interest Rates**\
-`Treasury Secretary Scott Bessent is reinventing the government’s role in the world’s most important bond market.`\
-https://www.nytimes.com/2026/08/20/business/treasury-bond-market-interventionist-tactics.html
 

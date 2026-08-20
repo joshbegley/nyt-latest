@@ -1,3 +1,15 @@
+**Londoners React to Harry and Meghan Moving Back to the U.K.**\
+`Prince Harry and Meghan Markle are planning to move back to Britain after leaving for the United States six years ago amid a clash with other members of the British royal family.`\
+https://www.nytimes.com/video/world/europe/100000011103379/londoners-react-harry-meghan-uk-return.html
+
+**Imran Khan Wins Fight to be Moved From Prison to Hospital**\
+`The former prime minister of Pakistan, who was convicted on corruption charges, has been fighting a legal battle over his medical treatment.`\
+https://www.nytimes.com/2026/08/20/world/asia/imran-khan-hospital-pakistan.html
+
+**A Week After Hurricane Lala, Hawaii Faces Another Storm Threat**\
+`A storm is forming in the Pacific just as the Big Island assesses damage from last weekend’s indirect hit.`\
+https://www.nytimes.com/2026/08/20/weather/tropical-storm-hawaii-hurricane-lala-recovery.html
+
 **Songs for Lizard Season**\
 `Our colleagues at The Amplifier newsletter have music recommendations for the final sun-basking days of summer.`\
 https://www.nytimes.com/2026/08/20/world/music-songs-ukraine-royals.html
