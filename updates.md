@@ -1,3 +1,15 @@
+**Duffel Bags Full of Khat Seized at Baltimore Airport’s Baggage Claim**\
+`While Customs and Border Protection said it intercepted more than half a ton of khat, which is classified as a controlled substance, experts say far more of the East African plant makes it into the country.`\
+https://www.nytimes.com/2026/08/20/us/khat-smuggling-baltimore-airport.html
+
+**Summer 2026 News Quiz for Students**\
+`(No description)`\
+https://www.nytimes.com/quiz/2026/08/20/learning/2026-summer-news-quiz-for-students.html
+
+**Darline Graham’s Debate Misstep Tests South Carolina’s Appetite for a Political Newcomer**\
+`The South Carolina senator has argued that her lack of political experience is a strength as she runs to succeed her late brother, Lindsey Graham. But a debate misstep has rattled some of her supporters.`\
+https://www.nytimes.com/2026/08/20/us/politics/darline-graham-debate-south-carolina.html
+
 **Japan’s U.S. Ties Could Not Save a Top Judge From Trump’s I.C.C. Sanctions**\
 `Japan had tried to dissuade the U.S. from imposing sanctions on Tomoko Akane, president of the International Criminal Court, but the White House pressed ahead.`\
 https://www.nytimes.com/2026/08/20/world/asia/japan-trump-icc-judge-sanctions.html
