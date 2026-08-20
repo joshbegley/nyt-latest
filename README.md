@@ -1,3 +1,11 @@
+**Two Binance Employees Detained in the U.A.E. Amid Police Inquiries**\
+`The detentions of the workers, who have been released, are a sign of legal pressure that the world’s largest crypto exchange faces in the Emirates, which is home to its main regulator.`\
+https://www.nytimes.com/2026/08/20/technology/two-binance-employees-detained-uae.html
+
+**Climate: Trump vs. California**\
+`At least a half-dozen federal agencies have moved to undermine the state’s environmental efforts.`\
+https://www.nytimes.com/2026/08/20/climate/climate-trump-vs-california.html
+
 **Lloyd Robertson, Unflappable Canadian Broadcaster, Dies at 92**\
 `His 41 years as a national television news anchor surpassed the tenures of Walter Cronkite and Tom Brokaw.`\
 https://www.nytimes.com/2026/08/20/business/media/lloyd-robertson-dead.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/20/business/iran-war-oil-bonds.html
 **We’re Doing Drugs**\
 `We look at a new study about Americans’ use of cannabis.`\
 https://www.nytimes.com/2026/08/20/briefing/were-doing-drugs.html
-
-**A Prince at 26: Once-Secret Son of Belgian Royal Gains Legal Recognition**\
-`Clément Vandenkerckhove was born to Belgium’s Prince Laurent before his marriage. He is now a prince himself, though he is not expected to have royal duties.`\
-https://www.nytimes.com/2026/08/20/world/europe/prince-laurent-belgium-clement-son.html
-
-**After Six Years, Harry and Meghan Are Coming Home. What Changed?**\
-`Just last year, Prince Harry said he couldn’t imagine ever bringing his family back to Britain.`\
-https://www.nytimes.com/2026/08/20/world/europe/harry-meghan-britain-return.html
 
