@@ -1,3 +1,7 @@
+**Did Bessent Put the Fed in a Bind?**\
+`The Treasury Department’s plan for bond interventions have calmed markets. But Wall Street is worried about the fallout for inflation and more.`\
+https://www.nytimes.com/2026/08/20/business/dealbook/bessent-fed-warsh-bonds.html
+
 **Russian Missiles Kill at Least 15 in Kyiv as Air Defenses Dwindle**\
 `Moscow is taking advantage of Ukraine’s depleted stock of interceptors and is intensifying attacks, worsening the civilian death toll.`\
 https://www.nytimes.com/2026/08/20/world/europe/ukraine-kyiv-missiles-russia-war.html
