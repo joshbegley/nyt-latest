@@ -1,3 +1,11 @@
+**Harry And Meghan Will Return to Britain**\
+`Prince Harry and Meghan Markle, the Duke and Duchess of Sussex, will move back to Britain after six years of self-imposed exile in the United States, two people familiar with their decision said.`\
+https://www.nytimes.com/video/world/europe/100000011102695/prince-harry-meghan-return-uk.html
+
+**China Sentences Evergrande Founder to Life in Prison**\
+`Hui Ka Yan’s punishment caps the downfall of a property empire whose collapse set off a prolonged crisis in the Chinese economy.`\
+https://www.nytimes.com/2026/08/20/business/evergrande-founder-life-prison.html
+
 ****\
 `“Filipiñana” is set at a golf and country club in the Philippines.`\
 https://www.nytimes.com/video/embedded/world/asia/100000011102917/xp-land-conflicts-embed-73346.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/us/100000011101330/marshals-deck-collapse-missouri
 **Questioning the Efficacy of Tariffs**\
 `Readers respond to a guest essay about how the government is trying to crack down on a strategy some countries employ to lower the tariffs they pay.`\
 https://www.nytimes.com/2026/08/19/opinion/efficacy-of-tariffs.html
-
-**More Fed Officials Lost Patience About Elevated Inflation at Latest Meeting**\
-`Minutes from the Federal Reserve’s July gathering showed broadening support for higher borrowing costs to stamp out lingering price pressures.`\
-https://www.nytimes.com/2026/08/19/business/federal-reserve-interest-rates.html
-
-**In Wyoming’s G.O.P. Primaries, an Emphatic Rebuke of the Hard Right**\
-`The Wyoming Freedom Caucus had ambitions for a total takeover of elected state government. But its candidates were rejected from the governor’s mansion to the Legislature.`\
-https://www.nytimes.com/2026/08/19/us/elections/wyoming-republicans-moderate.html
 

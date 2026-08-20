@@ -1,3 +1,11 @@
+**Harry And Meghan Will Return to Britain**\
+`Prince Harry and Meghan Markle, the Duke and Duchess of Sussex, will move back to Britain after six years of self-imposed exile in the United States, two people familiar with their decision said.`\
+https://www.nytimes.com/video/world/europe/100000011102695/prince-harry-meghan-return-uk.html
+
+**China Sentences Evergrande Founder to Life in Prison**\
+`Hui Ka Yan’s punishment caps the downfall of a property empire whose collapse set off a prolonged crisis in the Chinese economy.`\
+https://www.nytimes.com/2026/08/20/business/evergrande-founder-life-prison.html
+
 ****\
 `“Filipiñana” is set at a golf and country club in the Philippines.`\
 https://www.nytimes.com/video/embedded/world/asia/100000011102917/xp-land-conflicts-embed-73346.html
