@@ -1,3 +1,7 @@
+**Missouri Judge Says Redrawn Congressional Map May Be Used in Midterms**\
+`The decision was a win for Republicans, who have been pushing for the new map in an effort to help maintain the party’s narrow control in the U.S. House in November.`\
+https://www.nytimes.com/2026/08/19/us/missouri-redistricting-midterms.html
+
 **NYT Crossword Answers for Aug. 20, 2026**\
 `Hoang-Kim Vu flips the script.`\
 https://www.nytimes.com/2026/08/19/crosswords/daily-puzzle-2026-08-20.html
