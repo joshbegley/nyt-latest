@@ -1,3 +1,7 @@
+**Trump Boasts of Declassifying Secrets, but Withholds Key Election Files From Public**\
+`Even as the White House claims to be focused on transparency, it has ignored a congressional requirement to disclose a report on foreign meddling in the 2024 election.`\
+https://www.nytimes.com/2026/08/20/us/politics/trump-2024-election-classified-files.html
+
 **Two Binance Employees Detained in the U.A.E. Amid Police Inquiries**\
 `The detentions of the workers, who have been released, are a sign of legal pressure that the world’s largest crypto exchange faces in the Emirates, which is home to its main regulator.`\
 https://www.nytimes.com/2026/08/20/technology/two-binance-employees-detained-uae.html
