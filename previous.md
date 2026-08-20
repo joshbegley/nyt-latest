@@ -1,3 +1,7 @@
+**Jimmy Fallon Teases Trump’s Efforts to Rekindle North Korea Bromance**\
+`“Man, you know you’re depressed when you’re texting an old hookup from seven years ago,” Fallon said of the president and North Korea’s leader, Kim Jong-un.`\
+https://www.nytimes.com/2026/08/20/arts/television/jimmy-fallon-trump-kim-jong-un.html
+
 **El meteórico ascenso en el Pentágono de la esposa del secretario de Defensa de EE. UU.**\
 `Fue productora de Fox, ha pulido la imágen de Hegseth y hasta participado en delicadas reuniones junto a funcionarios del más alto rango.`\
 https://www.nytimes.com/es/2026/08/20/espanol/estados-unidos/jennifer-hegseth-pentagono.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/19/us/elections/wyoming-republicans-moderate.htm
 **North Korean Official Dismisses Reduced Drills Between US and South Korea**\
 `Kim Yo-jong, a powerful adviser and sister of Kim Jong-un, also said she was “unaware” of any communication with Washington, contradicting President Trump’s claim her brother had responded to his outreach.`\
 https://www.nytimes.com/2026/08/19/world/asia/north-korea-trump-military-drills.html
-
-**Trump suspende las tarifas contra Canadá ante un posible acuerdo**\
-`El primer ministro de Canadá, Mark Carney, se mostró menos entusiasta sobre el resultado de las negociaciones y dijo que aún queda “mucho trabajo” por hacer.`\
-https://www.nytimes.com/es/2026/08/19/espanol/mundo/trump-suspende-aranceles-canada.html
 

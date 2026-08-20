@@ -1,3 +1,7 @@
+**Jimmy Fallon Teases Trump’s Efforts to Rekindle North Korea Bromance**\
+`“Man, you know you’re depressed when you’re texting an old hookup from seven years ago,” Fallon said of the president and North Korea’s leader, Kim Jong-un.`\
+https://www.nytimes.com/2026/08/20/arts/television/jimmy-fallon-trump-kim-jong-un.html
+
 **El meteórico ascenso en el Pentágono de la esposa del secretario de Defensa de EE. UU.**\
 `Fue productora de Fox, ha pulido la imágen de Hegseth y hasta participado en delicadas reuniones junto a funcionarios del más alto rango.`\
 https://www.nytimes.com/es/2026/08/20/espanol/estados-unidos/jennifer-hegseth-pentagono.html
