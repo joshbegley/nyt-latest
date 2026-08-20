@@ -1,3 +1,7 @@
+**Several Big Brokerages Leave Customer Accounts Open to Theft, Senators Say**\
+`Senators Ron Wyden and Elizabeth Warren, ranking Democrats on the Finance and Banking Committees, have urged regulators to require brokerages to provide stronger customer protections.`\
+https://www.nytimes.com/2026/08/20/business/brokerage-accounts-fraud-protections.html
+
 **Today, In Short**\
 `“House hang.” Data centers. And canned tuna.`\
 https://www.nytimes.com/2026/08/20/briefing/today-in-short.html
@@ -30,7 +34,7 @@ https://www.nytimes.com/2026/08/20/movies/hot-spot-review.html
 `Treasury Secretary Scott Bessent is reinventing the government’s role in the world’s most important bond market.`\
 https://www.nytimes.com/2026/08/20/business/treasury-bond-market-interventionist-tactics.html
 
-**Trump Threat Puts Focus on Iran’s Trading Partners**\
+**Trump’s Economic Threat Puts Focus on Iran’s Trading Partners**\
 `President Trump appeared to suggest that the United States would impose economic penalties on countries that do business with Iran, though he did not specify what actions he would take.`\
 https://www.nytimes.com/2026/08/20/world/middleeast/iran-trade-trump-threat-china.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/20/world/asia/ai-jobs-data-annotation-india-karu
 **The A.I.-Robotics Job Only a Human Can Do**\
 `In India, some people are strapping cameras to their bodies to collect data on how humans move and train A.I.`\
 https://www.nytimes.com/video/world/asia/100000011091777/india-ai-robots-human-movement.html
-
-**‘The Snare’ Review: Stuck, With No Good Way Out**\
-`Written and directed by Merlin Camozzi, the film is a potent critique of the tactics used to fight the war on drugs.`\
-https://www.nytimes.com/2026/08/20/movies/the-snare-review.html
 
