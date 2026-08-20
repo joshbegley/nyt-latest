@@ -1,3 +1,11 @@
+**Child Welfare Agency Had No Right to Monitor Mother, Court Finds**\
+`A woman who had been subject to domestic violence moved from New York to Florida with her children. The authorities continued to monitor her home, which an appeals court found was “a broad overreach.”`\
+https://www.nytimes.com/2026/08/20/nyregion/child-welfare-acs-monitor-mother.html
+
+**Homeland Security Made a Big Claim About Noncitizen Voting. Now It Can’t Prove It.**\
+`The Department of Homeland Security told Nevada election officials that it identified 185 “potential” noncitizens on the state’s voter rolls, not the nearly 16,000 it claimed last month.`\
+https://www.nytimes.com/2026/08/20/us/politics/trump-nevada-voter-election-fraud.html
+
 **El portaaviones USS Abraham Lincoln finalmente regresa a casa**\
 `Tras una misión en Medio Oriente que inició en noviembre de 2025, el imponente barco y su exhausta tripulación navegarán varias semanas para llegar a San Diego.`\
 https://www.nytimes.com/es/2026/08/20/espanol/estados-unidos/portaaviones-uss-abraham-lincoln-regreso.html

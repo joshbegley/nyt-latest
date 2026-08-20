@@ -1,3 +1,7 @@
+**Child Welfare Agency Had No Right to Monitor Mother, Court Finds**\
+`A woman who had been subject to domestic violence moved from New York to Florida with her children. The authorities continued to monitor her home, which an appeals court found was “a broad overreach.”`\
+https://www.nytimes.com/2026/08/20/nyregion/child-welfare-acs-monitor-mother.html
+
 **El portaaviones USS Abraham Lincoln finalmente regresa a casa**\
 `Tras una misión en Medio Oriente que inició en noviembre de 2025, el imponente barco y su exhausta tripulación navegarán varias semanas para llegar a San Diego.`\
 https://www.nytimes.com/es/2026/08/20/espanol/estados-unidos/portaaviones-uss-abraham-lincoln-regreso.html
@@ -54,7 +58,7 @@ https://www.nytimes.com/2026/08/20/world/asia/japan-trump-icc-judge-sanctions.ht
 `Jake Lang has descended four times on Dearborn, Mich., which is majority Arab American. His rhetoric and protests have stirred fear among residents.`\
 https://www.nytimes.com/2026/08/20/us/politics/jake-lang-dearborn-michigan.html
 
-**Homeland Security Unable to Prove That Thousands of Noncitizens Registered to Vote in Nevada**\
+**Homeland Security Made a Big Claim About Noncitizen Voting. Now It Can’t Prove It.**\
 `The Department of Homeland Security told Nevada election officials that it identified 185 “potential” noncitizens on the state’s voter rolls, not the nearly 16,000 it claimed last month.`\
 https://www.nytimes.com/2026/08/20/us/politics/trump-nevada-voter-election-fraud.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/20/us/politics/democrats-primary-election-modera
 **Trump Tariff Talks Leave Key Canadian Official Hopeful**\
 `While President Trump has declared that the two countries effectively have a deal, a Canadian trade official said progress continued ahead of the Saturday deadline.`\
 https://www.nytimes.com/2026/08/20/world/canada/trump-carney-tariffs-trade-deal.html
-
-**Why Busta Rhymes, Rap’s Ultimate Showman, Is Still Hustling**\
-`Watch the full Popcast conversation with Busta Rhymes here. Edited excerpts from the interview are below.`\
-https://www.nytimes.com/video/podcasts/100000011097436/why-busta-rhymes-raps-ultimate-showman-is-still-hustling.html
 

@@ -1,3 +1,7 @@
+**New Jersey Teenager Drops Bellwether Social Media Addiction Lawsuit**\
+`The case was the third of nine major personal injury cases that could expose Meta, YouTube, Snap and TikTok to financial damages and force them to change the designs of their platforms.`\
+https://www.nytimes.com/2026/08/20/technology/social-media-addiction-lawsuit-dropped.html
+
 **Child Welfare Agency Had No Right to Monitor Mother, Court Finds**\
 `A woman who had been subject to domestic violence moved from New York to Florida with her children. The authorities continued to monitor her home, which an appeals court found was “a broad overreach.”`\
 https://www.nytimes.com/2026/08/20/nyregion/child-welfare-acs-monitor-mother.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/20/nyregion/albany-isis-plot-bomb-capitol.html
 **In a Big Year for Progressives, Here’s Why These Moderates Won Their Primaries**\
 `At times this year, the Democratic Party’s centrist wing has felt under siege from the left. But it has won several tough primaries recently.`\
 https://www.nytimes.com/2026/08/20/us/politics/democrats-primary-election-moderates-progressives.html
-
-**Trump Tariff Talks Leave Key Canadian Official Hopeful**\
-`While President Trump has declared that the two countries effectively have a deal, a Canadian trade official said progress continued ahead of the Saturday deadline.`\
-https://www.nytimes.com/2026/08/20/world/canada/trump-carney-tariffs-trade-deal.html
 
