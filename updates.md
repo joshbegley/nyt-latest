@@ -1,3 +1,7 @@
+**Trump Officials Scrap Effort to Recruit Pentagon Lawyers to Represent Migrant Children**\
+`The reversal of the plan, which had not been publicly disclosed, comes amid mounting confusion about how the administration is protecting the rights of unaccompanied minors.`\
+https://www.nytimes.com/2026/08/19/us/politics/migrant-children-pentagon-lawyers.html
+
 **Man Dies at Newly Opened Medical Unit for Rikers Jail**\
 `The death of Christopher Rodriguez is the first at the medical unit, which opened in April at Bellevue Hospital, for people incarcerated on Rikers Island.`\
 https://www.nytimes.com/2026/08/19/nyregion/rikers-death-bellevue.html
