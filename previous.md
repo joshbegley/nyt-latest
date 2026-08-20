@@ -119,7 +119,7 @@ https://www.nytimes.com/2026/08/20/magazine/lore-language-history.html
 https://www.nytimes.com/2026/08/20/realestate/housing-market-near-nyc.html
 
 **How Trump Is Trying to Crush California’s Climate Policies**\
-`At least a half-dozen federal agencies have taken action against the state that has long led the nation in environmental protections.`\
+`At least a half-dozen federal agencies have taken action against the state that has led the nation in environmental protections.`\
 https://www.nytimes.com/2026/08/20/climate/trump-california-climate.html
 
 **36 Hours in the Cotswolds, England: Things to Do and See**\

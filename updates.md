@@ -1,3 +1,7 @@
+**How Trump Is Trying to Crush California’s Climate Policies**\
+`At least a half-dozen federal agencies have taken action against the state that has led the nation in environmental protections.`\
+https://www.nytimes.com/2026/08/20/climate/trump-california-climate.html
+
 **What to Know About Prince Harry and Meghan’s Move Back to the U.K.**\
 `The couple are moving back after six years in the United States. What they will do, and much else, are still unclear.`\
 https://www.nytimes.com/2026/08/20/world/europe/prince-harry-meghan-uk-move-return.html
