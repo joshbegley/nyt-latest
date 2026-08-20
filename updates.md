@@ -1,3 +1,15 @@
+**El príncipe Enrique y Meghan volverán al Reino Unido**\
+`La sorpresiva decisión pone fin al exilio autoimpuesto de los duques de Sussex, que comenzó en medio de un clima de enojo y recriminaciones con el resto de la familia real.`\
+https://www.nytimes.com/es/2026/08/20/espanol/mundo/principe-enrique-meghan-regreso-inglaterra.html
+
+**‘Hot Spot’ Review: A Baffling Dystopia**\
+`In this Polish feature, an artificial intelligence system rules over a downtrodden population. Trouble arrives, in the form of Rana (Noomi Rapace).`\
+https://www.nytimes.com/2026/08/20/movies/hot-spot-review.html
+
+**Walmart Posts Slowest Sales Growth in Years as Americans Tighten Wallets**\
+`Walmart and other big U.S. retailers have warned that consumers were being cautious, even if household balance sheets seemed healthy.`\
+https://www.nytimes.com/2026/08/20/business/walmart-target-retail-consumer-economy.html
+
 **Missile Barrage Shows Russia’s Doubt That Ukraine Can Defend Itself**\
 `Moscow is taking advantage of Ukraine’s depleted stock of interceptors and is intensifying attacks, worsening the civilian death toll.`\
 https://www.nytimes.com/2026/08/20/world/europe/ukraine-kyiv-missiles-russia-war.html

@@ -1,3 +1,11 @@
+**El príncipe Enrique y Meghan volverán al Reino Unido**\
+`La sorpresiva decisión pone fin al exilio autoimpuesto de los duques de Sussex, que comenzó en medio de un clima de enojo y recriminaciones con el resto de la familia real.`\
+https://www.nytimes.com/es/2026/08/20/espanol/mundo/principe-enrique-meghan-regreso-inglaterra.html
+
+**‘Hot Spot’ Review: A Baffling Dystopia**\
+`In this Polish feature, an artificial intelligence system rules over a downtrodden population. Trouble arrives, in the form of Rana (Noomi Rapace).`\
+https://www.nytimes.com/2026/08/20/movies/hot-spot-review.html
+
 **Treasury Turns to Interventionist Tactics to Lower Interest Rates**\
 `Treasury Secretary Scott Bessent is reinventing the government’s role in the world’s most important bond market.`\
 https://www.nytimes.com/2026/08/20/business/treasury-bond-market-interventionist-tactics.html
@@ -23,7 +31,7 @@ https://www.nytimes.com/2026/08/20/world/europe/prince-harry-meghan-uk-move-retu
 https://www.nytimes.com/video/world/europe/100000011103016/russia-ukraine-missiles-kyiv.html
 
 **Walmart Posts Slowest Sales Growth in Years as Americans Tighten Wallets**\
-`Walmart and other big U.S. retailers have warned that consumers were being cautious, even if personal balance sheets seemed healthy.`\
+`Walmart and other big U.S. retailers have warned that consumers were being cautious, even if household balance sheets seemed healthy.`\
 https://www.nytimes.com/2026/08/20/business/walmart-target-retail-consumer-economy.html
 
 **Did Bessent Put the Fed in a Bind?**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/20/movies/franz-review-kafka.html
 **‘How to Divorce During the War’ Review: Trouble on the Home Front**\
 `In this deadpan Lithuanian comedy set in 2022, a couple finds their values are tested amid the backdrop of Russia’s invasion of Ukraine.`\
 https://www.nytimes.com/2026/08/20/movies/how-to-divorce-during-the-war-review.html
-
-**Are Wasps Ruining Your Backyard Cookout? Here’s How to Stop Them.**\
-`Yellow jackets, paper wasps and hornets like to scavenge for protein and sugary carbohydrates. The best defense is making your gathering less appealing to them.`\
-https://www.nytimes.com/2026/08/20/realestate/wasps-hornets-yellow-jackets-outdoor-gatherings.html
-
-**‘Freefall: A Reckoning for Boeing’ Review: Flight Risks**\
-`In a follow-up to the 2022 documentary “Downfall,” the documentarian Rory Kennedy provides updates, few reassuring, on the aircraft manufacturer.`\
-https://www.nytimes.com/2026/08/20/movies/freefall-a-reckoning-for-boeing-review.html
 
