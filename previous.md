@@ -1,4 +1,4 @@
-**Japan’s U.S. Ties Could Not Save a Top Judge from Trump’s I.C.C. Sanctions**\
+**Japan’s U.S. Ties Could Not Save a Top Judge From Trump’s I.C.C. Sanctions**\
 `Japan had tried to dissuade the U.S. from imposing sanctions on Tomoko Akane, president of the International Criminal Court, but the White House pressed ahead.`\
 https://www.nytimes.com/2026/08/20/world/asia/japan-trump-icc-judge-sanctions.html
 
