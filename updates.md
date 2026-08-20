@@ -1,3 +1,11 @@
+**FBI Arrests Woman in Plot to Bomb New York State Capitol Building**\
+`Federal prosecutors say the woman met with an F.B.I. informant several times to plan an attack on the building, which houses the governor’s office and that of lawmakers.`\
+https://www.nytimes.com/2026/08/20/nyregion/albany-isis-plot-bomb-capitol.html
+
+**Why Did Sadie Sink Wear a Red Wig in ‘Spider-Man’?**\
+`Sadie Sink, a natural redhead, wore faux red locks in her Marvel debut, leaving some viewers questioning the choice.`\
+https://www.nytimes.com/2026/08/20/style/sadie-sink-wig-spider-man-redhead.html
+
 **How Big Tech’s A.I. Borrowing Binge Is Driving Up Bond Yields**\
 `Analysts said the recent rise in Treasury yields partly reflected investor expectations that A.I.-driven growth could keep interest rates elevated.`\
 https://www.nytimes.com/2026/08/20/business/bond-yields-tech-ai-debt.html
