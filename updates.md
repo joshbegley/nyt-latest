@@ -1,3 +1,7 @@
+**Así es como Wall Street saca provecho de las demandas por lesiones personales**\
+`Empresas y doctores han recomendado cirugías costosas, y en algunos casos innecesarias, a clientes desesperados por ganar sus casos en los tribunales.`\
+https://www.nytimes.com/es/2026/08/20/espanol/estados-unidos/demandas-lesiones-trabajadores.html
+
 **El príncipe Enrique y Meghan volverán al Reino Unido**\
 `La sorpresiva decisión pone fin al exilio autoimpuesto de los duques de Sussex, que comenzó en medio de un clima de enojo y recriminaciones con el resto de la familia real.`\
 https://www.nytimes.com/es/2026/08/20/espanol/mundo/principe-enrique-meghan-regreso-inglaterra.html

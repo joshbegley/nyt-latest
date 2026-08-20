@@ -1,3 +1,7 @@
+**Así es como Wall Street saca provecho de las demandas por lesiones personales**\
+`Empresas y doctores han recomendado cirugías costosas, y en algunos casos innecesarias, a clientes desesperados por ganar sus casos en los tribunales.`\
+https://www.nytimes.com/es/2026/08/20/espanol/estados-unidos/demandas-lesiones-trabajadores.html
+
 **El príncipe Enrique y Meghan volverán al Reino Unido**\
 `La sorpresiva decisión pone fin al exilio autoimpuesto de los duques de Sussex, que comenzó en medio de un clima de enojo y recriminaciones con el resto de la familia real.`\
 https://www.nytimes.com/es/2026/08/20/espanol/mundo/principe-enrique-meghan-regreso-inglaterra.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/20/movies/insidious-out-of-the-further-review.ht
 **‘Franz’ Review: A Delirious Kafka Biopic**\
 `The work by Agnieszka Holland, starring Idan Weiss, explores the writer’s themes of alienation in a fragmented way.`\
 https://www.nytimes.com/2026/08/20/movies/franz-review-kafka.html
-
-**‘How to Divorce During the War’ Review: Trouble on the Home Front**\
-`In this deadpan Lithuanian comedy set in 2022, a couple finds their values are tested amid the backdrop of Russia’s invasion of Ukraine.`\
-https://www.nytimes.com/2026/08/20/movies/how-to-divorce-during-the-war-review.html
 
