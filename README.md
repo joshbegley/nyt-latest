@@ -1,3 +1,7 @@
+**Is the Sports Bubble Going to Pop?**\
+`Pablo Torre, host of “Pablo Torre Finds Out,” joins Natalie Kitroeff on “The Daily” to discuss the skyrocketing valuations of sports teams as private equity changes the landscape of professional sports.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011104011/is-the-sports-bubble-going-to-pop.html
+
 **The New York Times Loses Defamation Lawsuit in Alabama**\
 `A 2023 article incorrectly reported that a University of Alabama basketball player was at the scene of a deadly shooting. A jury awarded $9.25 million in damages.`\
 https://www.nytimes.com/2026/08/20/business/media/new-york-times-defamation-lawsuit-alabama.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/20/us/politics/uss-abraham-lincoln-iran.html
 **Academic Who Publicized Plagiarism Allegations Against Jason Arday Is Suspended**\
 `Ghent University in Belgium said it suspended the academic, Nathan Cofnas, pending an investigation.`\
 https://www.nytimes.com/2026/08/20/world/europe/arday-cofnas-suspended.html
-
-**Captain in Deadly New York Harbor Accident Is Arrested by ICE**\
-`The captain in a deadly boat accident in New York Harbor this month was arrested by ICE after an investigation found that he was in the United States unlawfully, federal officials said.`\
-https://www.nytimes.com/video/us/100000011103520/ice-arrest-captain-new-york-immigration.html
 
