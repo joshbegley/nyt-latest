@@ -1,3 +1,15 @@
+**El meteórico ascenso en el Pentágono de la esposa del secretario de Defensa de EE. UU.**\
+`Fue productora de Fox, ha pulido la imágen de Hegseth y hasta participado en delicadas reuniones junto a funcionarios del más alto rango.`\
+https://www.nytimes.com/es/2026/08/20/espanol/estados-unidos/jennifer-hegseth-pentagono.html
+
+**America Is About to Get More Expensive**\
+`The impact from the bond market sell-off could prove more enduring, wide-ranging and globally consequential than prior episodes of market volatility.`\
+https://www.nytimes.com/2026/08/20/opinion/bond-market-interest-rates-affordability.html
+
+**Trump Wants to Influence Brazil. It’s Way Ahead of Him.**\
+`The country’s coming election will not be decided by the American president.`\
+https://www.nytimes.com/2026/08/20/opinion/trump-brazil-election-bolsonaro.html
+
 **Pilot Is Killed After Small Plane and Police Helicopter Collide in Pennsylvania**\
 `Two Pennsylvania State Police troopers were injured in the crash at Carlisle Airport, officials said.`\
 https://www.nytimes.com/2026/08/20/us/helicopter-plane-collision-pennsylvania.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/08/19/world/asia/north-korea-trump-military-drills.
 **Trump suspende las tarifas contra Canadá ante un posible acuerdo**\
 `El primer ministro de Canadá, Mark Carney, se mostró menos entusiasta sobre el resultado de las negociaciones y dijo que aún queda “mucho trabajo” por hacer.`\
 https://www.nytimes.com/es/2026/08/19/espanol/mundo/trump-suspende-aranceles-canada.html
-
-**Una nueva vacuna podría evitar que el melanoma reaparezca**\
-`Moderna y Merck dicen que la vacuna experimental de ARNm previno la reaparición y la propagación del cáncer en pacientes con melanoma de alto riesgo.`\
-https://www.nytimes.com/es/2026/08/19/espanol/ciencia-y-tecnologia/vacuna-melanoma.html
-
-**Driver Kills 2 Milligan University Cycling Team Members, Officials Say**\
-`Milligan University said two members of its cycling team had been killed. The driver was charged with vehicular homicide by recklessness.`\
-https://www.nytimes.com/2026/08/19/us/cycling-team-crash-milligan-university.html
-
-**Stripe Buys A.I. Start-Up OpenRouter for $7.5 Billion**\
-`The deal is significant for the artificial intelligence industry, uniting Stripe’s payments business with OpenRouter’s helping businesses direct their spending on A.I. models.`\
-https://www.nytimes.com/2026/08/19/business/stripe-openrouter-ai.html
 
