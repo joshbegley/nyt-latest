@@ -1,3 +1,7 @@
+**El portaaviones USS Abraham Lincoln finalmente regresa a casa**\
+`Tras una misión en Medio Oriente que inició en noviembre de 2025, el imponente barco y su exhausta tripulación navegarán varias semanas para llegar a San Diego.`\
+https://www.nytimes.com/es/2026/08/20/espanol/estados-unidos/portaaviones-uss-abraham-lincoln-regreso.html
+
 **Massachusetts Police Search for Officer’s Wife in Connection With His Death**\
 `The Worcester police are searching for Karen Solomon, a mental health advocate for police officers, in connection with the death of her husband, a police officer.`\
 https://www.nytimes.com/video/us/100000011104279/massachusetts-karen-solomon-officer-death.html
@@ -8,7 +12,7 @@ https://www.nytimes.com/2026/08/20/us/phoenix-police-investigation-traffic-stop.
 
 **Trump Officials Impose More Sanctions to Pressure Cuba**\
 `Human rights experts have said that the U.S. attempts to squeeze Cuba’s economy, including an oil blockade, have caused a severe humanitarian crisis.`\
-https://www.nytimes.com/2026/08/20/us/politics/trump-officials-impose-more-sanctions-to-pressure-cuba.html
+https://www.nytimes.com/2026/08/20/us/politics/trump-cuba-sanctions.html
 
 **How Does Bagged Lettuce Get Contaminated With Cyclospora Anyway?**\
 `During its journey from farm to table, there are many opportunities for harmful microbes to invade.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/20/world/canada/trump-carney-tariffs-trade-deal.
 **Why Busta Rhymes, Rap’s Ultimate Showman, Is Still Hustling**\
 `Watch the full Popcast conversation with Busta Rhymes here. Edited excerpts from the interview are below.`\
 https://www.nytimes.com/video/podcasts/100000011097436/why-busta-rhymes-raps-ultimate-showman-is-still-hustling.html
-
-**First U.S. Deportees to Arrive in Liberia Amid Growing Backlash**\
-`The five men were part of the first group of deportees to be sent to the West African nation by the Trump administration. The Liberian government has not clarified their status.`\
-https://www.nytimes.com/2026/08/20/world/africa/liberia-trump-deportations.html
 

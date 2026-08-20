@@ -1,3 +1,11 @@
+**Massachusetts Police Search for Officer’s Wife in Connection With His Death**\
+`The Worcester police are searching for Karen Solomon, a mental health advocate for police officers, in connection with the death of her husband, a police officer.`\
+https://www.nytimes.com/video/us/100000011104279/massachusetts-karen-solomon-officer-death.html
+
+**Phoenix Police Investigate 2 Officers Accused of Violent Traffic Stop**\
+`The department opened a criminal investigation after a couple said they were shocked with a stun gun and beaten during the Aug. 5 encounter.`\
+https://www.nytimes.com/2026/08/20/us/phoenix-police-investigation-traffic-stop.html
+
 **Trump Officials Impose More Sanctions to Pressure Cuba**\
 `Human rights experts have said that the U.S. attempts to squeeze Cuba’s economy, including an oil blockade, have caused a severe humanitarian crisis.`\
 https://www.nytimes.com/2026/08/20/us/politics/trump-officials-impose-more-sanctions-to-pressure-cuba.html
