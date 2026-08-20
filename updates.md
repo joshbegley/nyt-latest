@@ -1,3 +1,7 @@
+**Homes for Sale in New York and Connecticut**\
+`This week’s properties are a three-bedroom in East Hampton, N.Y., and a four-bedroom in Stamford, Conn.`\
+https://www.nytimes.com/2026/08/20/realestate/housing-market-near-nyc.html
+
 **Treasury Turns to Interventionist Tactics to Lower Interest Rates**\
 `Treasury Secretary Scott Bessent is reinventing the government’s role in the world’s most important bond market.`\
 https://www.nytimes.com/2026/08/20/business/treasury-bond-market-interventionist-tactics.html
