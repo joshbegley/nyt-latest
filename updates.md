@@ -1,3 +1,19 @@
+**Debating the Use of A.I. in Writing**\
+`Readers responded to a column begging readers not to use A.I. to write. Also, a rush to build the White House ballroom; a Trump voter’s wife is detained by ICE; and Trump derangement syndrome.`\
+https://www.nytimes.com/2026/08/20/opinion/letters/debating-ai-in-writing.html
+
+**Summer in the City: The U.S. Open Awaits**\
+`Find tips and guidance for the best way to spend a day in and around Arthur Ashe Stadium for the 2026 U.S. Open.`\
+https://www.nytimes.com/2026/08/20/nyregion/summer-in-the-city-us-open.html
+
+**Maps: Tracking {{type_for_headline} }Southeast of Hawaii**\
+`See the likely path of the storm.`\
+https://www.nytimes.com/interactive/2026/08/20/weather/hawaii-storm-path-tracker.html
+
+**El príncipe Harry y Meghan regresan al Reino Unido. ¿Por qué?**\
+`Apenas el año pasado, el príncipe Enrique dijo que no podía imaginar volver a llevar a su familia al Reino Unido.`\
+https://www.nytimes.com/es/2026/08/20/espanol/mundo/harry-meghan-por-que-regresan-reino-unido.html
+
 **For Filipino Pastries That Go Beyond Ube, Head to Queens**\
 `There’s nothing wrong with the bright purple yam, but don’t stop there when it comes to Filipino baking.`\
 https://www.nytimes.com/2026/08/20/dining/filipino-bakeries-nyc.html

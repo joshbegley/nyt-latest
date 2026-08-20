@@ -18,7 +18,7 @@ https://www.nytimes.com/es/2026/08/20/espanol/mundo/harry-meghan-por-que-regresa
 `There’s nothing wrong with the bright purple yam, but don’t stop there when it comes to Filipino baking.`\
 https://www.nytimes.com/2026/08/20/dining/filipino-bakeries-nyc.html
 
-**How the A.I. Borrowing Binge Helps Drive Up Government Bond Yields**\
+**How Big Tech’s A.I. Borrowing Binge Is Driving Up Bond Yields**\
 `Analysts said the recent rise in Treasury yields partly reflected investor expectations that A.I.-driven growth could keep interest rates elevated.`\
 https://www.nytimes.com/2026/08/20/business/bond-yields-tech-ai-debt.html
 

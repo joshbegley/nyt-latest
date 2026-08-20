@@ -1,3 +1,19 @@
+**Debating the Use of A.I. in Writing**\
+`Readers responded to a column begging readers not to use A.I. to write. Also, a rush to build the White House ballroom; a Trump voter’s wife is detained by ICE; and Trump derangement syndrome.`\
+https://www.nytimes.com/2026/08/20/opinion/letters/debating-ai-in-writing.html
+
+**Summer in the City: The U.S. Open Awaits**\
+`Find tips and guidance for the best way to spend a day in and around Arthur Ashe Stadium for the 2026 U.S. Open.`\
+https://www.nytimes.com/2026/08/20/nyregion/summer-in-the-city-us-open.html
+
+**Maps: Tracking {{type_for_headline} }Southeast of Hawaii**\
+`See the likely path of the storm.`\
+https://www.nytimes.com/interactive/2026/08/20/weather/hawaii-storm-path-tracker.html
+
+**El príncipe Harry y Meghan regresan al Reino Unido. ¿Por qué?**\
+`Apenas el año pasado, el príncipe Enrique dijo que no podía imaginar volver a llevar a su familia al Reino Unido.`\
+https://www.nytimes.com/es/2026/08/20/espanol/mundo/harry-meghan-por-que-regresan-reino-unido.html
+
 **For Filipino Pastries That Go Beyond Ube, Head to Queens**\
 `There’s nothing wrong with the bright purple yam, but don’t stop there when it comes to Filipino baking.`\
 https://www.nytimes.com/2026/08/20/dining/filipino-bakeries-nyc.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/08/20/business/treasury-bond-market-interventionist
 **Trump’s Economic Threat Puts Focus on Iran’s Trading Partners**\
 `President Trump appeared to suggest that the United States would impose economic penalties on countries that do business with Iran, though he did not specify what actions he would take.`\
 https://www.nytimes.com/2026/08/20/world/middleeast/iran-trade-trump-threat-china.html
-
-**La DEA se suma a la investigación de la muerte de Hayden Panettiere**\
-`La actriz habló con franqueza sobre su consumo de drogas y la “ruina de la adicción”. La policía local ha dicho que no hay indicios de criminalidad en torno a su muerte.`\
-https://www.nytimes.com/es/2026/08/20/espanol/cultura/hayden-panettiere-dea-investigacion-drogas.html
-
-**ICE Arrests Captain in New York Boat Accident That Killed 2**\
-`A Coast Guard investigation led to the arrest of Manuel Hernandez, who had been charged with misconduct and neglect after the deaths of a mother and her child.`\
-https://www.nytimes.com/2026/08/20/nyregion/ice-arrest-boat-captain-new-york.html
-
-**What to Know About Prince Harry and Meghan’s Move Back to the U.K.**\
-`The couple are moving back after six years in the United States. What they will do, and much else, are still unclear.`\
-https://www.nytimes.com/2026/08/20/world/europe/prince-harry-meghan-uk-move-return.html
-
-**Russia Pummels Kyiv in Deadly Missile Barrage**\
-`More than a dozen people were killed in Kyiv, the Ukrainian capital, in an overnight Russian missile barrage, Ukrainian officials said on Thursday.`\
-https://www.nytimes.com/video/world/europe/100000011103016/russia-ukraine-missiles-kyiv.html
 
