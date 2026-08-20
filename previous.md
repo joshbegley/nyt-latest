@@ -1,3 +1,7 @@
+**FBI Agents Search Eric Swalwell’s Home as Part of Federal Inquiry**\
+`Most sex crimes are prosecuted by state and local authorities. The federal agents appeared to be using civil rights statutes to scrutinize Mr. Swalwell’s conduct, a person familiar with the case said.`\
+https://www.nytimes.com/2026/08/20/us/eric-swalwell-fbi-search-home.html
+
 **A Red Wig Upsets Fans of ‘Spider-Man’**\
 `Sadie Sink, a natural redhead, wore faux red locks in her Marvel debut, leaving some viewers questioning the choice.`\
 https://www.nytimes.com/2026/08/20/style/sadie-sink-wig-spider-man-redhead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/20/realestate/housing-market-near-nyc.html
 **How Trump Is Trying to Crush California’s Climate Policies**\
 `At least a half-dozen federal agencies have taken action against the state that has led the nation in environmental protections.`\
 https://www.nytimes.com/2026/08/20/climate/trump-california-climate.html
-
-**36 Hours in the Cotswolds, England: Things to Do and See**\
-`England’s Cotswolds region offers bucolic splendor, cultural riches, ancient woodlands and Neolithic monuments, not to mention excellent shopping and dining.`\
-https://www.nytimes.com/interactive/2026/08/20/travel/things-to-do-cotswolds.html
 

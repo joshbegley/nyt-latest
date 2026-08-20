@@ -1,3 +1,7 @@
+**FBI Agents Search Eric Swalwell’s Home as Part of Federal Inquiry**\
+`Most sex crimes are prosecuted by state and local authorities. The federal agents appeared to be using civil rights statutes to scrutinize Mr. Swalwell’s conduct, a person familiar with the case said.`\
+https://www.nytimes.com/2026/08/20/us/eric-swalwell-fbi-search-home.html
+
 **A Red Wig Upsets Fans of ‘Spider-Man’**\
 `Sadie Sink, a natural redhead, wore faux red locks in her Marvel debut, leaving some viewers questioning the choice.`\
 https://www.nytimes.com/2026/08/20/style/sadie-sink-wig-spider-man-redhead.html
