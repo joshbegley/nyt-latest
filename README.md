@@ -1,3 +1,11 @@
+**Canada and U.S. Resume Talks Over Trump Tariffs as a New Deadline Looms**\
+`While President Trump has declared that the two countries effectively have a deal, they remain apart on several key issues.`\
+https://www.nytimes.com/2026/08/20/world/canada/trump-carney-tariffs-trade-deal.html
+
+**Why Busta Rhymes, Rap’s Ultimate Showman, Is Still Hustling**\
+`Watch the full Popcast conversation with Busta Rhymes here. Edited excerpts from the interview are below.`\
+https://www.nytimes.com/video/podcasts/100000011097436/why-busta-rhymes-raps-ultimate-showman-is-still-hustling.html
+
 **First U.S. Deportees to Arrive in Liberia Amid Growing Backlash**\
 `Critics in Liberia, a small West African nation, say their government has not explained why it agreed to one of the largest U.S. deportation deals, who the deportees are, or how they will be handled.`\
 https://www.nytimes.com/2026/08/20/world/africa/liberia-trump-deportations.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/20/magazine/tick-season-lone-star-alpha-gal-synd
 **Corrections: Aug. 20, 2026**\
 `Corrections that appeared in print on Thursday, Aug. 20, 2026.`\
 https://www.nytimes.com/2026/08/20/pageoneplus/corrections-aug-20-2026.html
-
-**Trump’s Election Interference Is Eroding American Democracy**\
-`The president is prioritizing his own interests over the national interest.`\
-https://www.nytimes.com/interactive/2026/08/20/opinion/trump-election-interference-democracy.html
-
-**New York Needs 700,000 Homes. Can It Build Them?**\
-`A draft report from two city agencies estimated how much new housing the city would require in the next 10 years.`\
-https://www.nytimes.com/2026/08/20/nyregion/new-york-needs-700000-homes-can-it-build-them.html
 
