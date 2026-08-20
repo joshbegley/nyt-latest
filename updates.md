@@ -1,3 +1,15 @@
+**El meteórico ascenso en el Pentágono de la esposa del secretario de Defensa de EE. UU.**\
+`Fue productora de Fox, ha pulido la imágen de Hegseth y hasta participado en delicadas reuniones junto a funcionarios del más alto rango.`\
+https://www.nytimes.com/es/2026/08/20/espanol/estados-unidos/jennifer-hegseth-pentagono.html
+
+**America Is About to Get More Expensive**\
+`The impact from the bond market sell-off could prove more enduring, wide-ranging and globally consequential than prior episodes of market volatility.`\
+https://www.nytimes.com/2026/08/20/opinion/bond-market-interest-rates-affordability.html
+
+**Trump Wants to Influence Brazil. It’s Way Ahead of Him.**\
+`The country’s coming election will not be decided by the American president.`\
+https://www.nytimes.com/2026/08/20/opinion/trump-brazil-election-bolsonaro.html
+
 **Pilot Is Killed After Small Plane and Police Helicopter Collide in Pennsylvania**\
 `Two Pennsylvania State Police troopers were injured in the crash at Carlisle Airport, officials said.`\
 https://www.nytimes.com/2026/08/20/us/helicopter-plane-collision-pennsylvania.html
