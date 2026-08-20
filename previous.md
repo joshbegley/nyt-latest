@@ -1,3 +1,11 @@
+**Japan’s U.S. Ties Could Not Save a Top Judge from Trump’s I.C.C. Sanctions**\
+`Japan had tried to dissuade the U.S. from imposing sanctions on Tomoko Akane, president of the International Criminal Court, but the White House pressed ahead.`\
+https://www.nytimes.com/2026/08/20/world/asia/japan-trump-icc-judge-sanctions.html
+
+**An Islamophobic Provocateur Keeps Dearborn, Mich., on Edge**\
+`Jake Lang has descended four times on Dearborn, Mich., which is majority Arab American. His rhetoric and protests have stirred fear among residents.`\
+https://www.nytimes.com/2026/08/20/us/politics/jake-lang-dearborn-michigan.html
+
 **Homeland Security Unable to Prove That Thousands of Noncitizens Registered to Vote in Nevada**\
 `The Department of Homeland Security told Nevada election officials that it identified 185 “potential” noncitizens on the state’s voter rolls, not the nearly 16,000 it claimed last month.`\
 https://www.nytimes.com/2026/08/20/us/politics/trump-nevada-voter-election-fraud.html
@@ -6,11 +14,11 @@ https://www.nytimes.com/2026/08/20/us/politics/trump-nevada-voter-election-fraud
 `Senator Andy Kim of New Jersey spoke with detainees at the Newark detention center who said they had trouble accessing medical care. Staff members there disputed that account.`\
 https://www.nytimes.com/2026/08/20/nyregion/senator-andy-kim-delaney-hall-detainee-deaths.html
 
-**Londoners React to Harry and Meghan Moving Back to the U.K.**\
+**Londoners React to Harry and Meghan’s Plan to Move Back to U.K.**\
 `Prince Harry and Meghan Markle are planning to move back to Britain after leaving for the United States six years ago amid a clash with other members of the British royal family.`\
 https://www.nytimes.com/video/world/europe/100000011103379/londoners-react-harry-meghan-uk-return.html
 
-**Imran Khan Wins Fight to be Moved From Prison to Hospital**\
+**Imran Khan Wins Fight to Be Moved From Prison to Hospital**\
 `The former prime minister of Pakistan, who was convicted on corruption charges, has been fighting a legal battle over his medical treatment.`\
 https://www.nytimes.com/2026/08/20/world/asia/imran-khan-hospital-pakistan.html
 
@@ -127,15 +135,15 @@ https://www.nytimes.com/2026/08/20/t-magazine/cap-toe-two-tone-shoes-chanel.html
 https://www.nytimes.com/2026/08/20/dining/recipe-matchmaker-grab-bag-edition.html
 
 **FBI Arrests Woman in Plot to Bomb New York State Capitol Building**\
-`Federal prosecutors say the woman met with an F.B.I. informant several times to plan an attack on the building, which houses the governor’s office and that of lawmakers.`\
+`Federal prosecutors say the woman met with an F.B.I. informant several times to plan an attack on the building, which houses the governor’s office.`\
 https://www.nytimes.com/2026/08/20/nyregion/albany-isis-plot-bomb-capitol.html
 
 **In a Big Year for Progressives, Here’s Why These Moderates Won Their Primaries**\
 `At times this year, the Democratic Party’s centrist wing has felt under siege from the left. But it has won several tough primaries recently.`\
 https://www.nytimes.com/2026/08/20/us/politics/democrats-primary-election-moderates-progressives.html
 
-**Canada and U.S. Resume Talks Over Trump Tariffs as a New Deadline Looms**\
-`While President Trump has declared that the two countries effectively have a deal, they remain apart on several key issues.`\
+**Trump Tariff Talks Leave Key Canadian Official Hopeful**\
+`While President Trump has declared that the two countries effectively have a deal, a Canadian trade official said progress continued ahead of the Saturday deadline.`\
 https://www.nytimes.com/2026/08/20/world/canada/trump-carney-tariffs-trade-deal.html
 
 **Why Busta Rhymes, Rap’s Ultimate Showman, Is Still Hustling**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/20/business/brokerage-accounts-fraud-protections
 **Today, In Short**\
 `“House hang.” Data centers. And canned tuna.`\
 https://www.nytimes.com/2026/08/20/briefing/today-in-short.html
-
-**Going Big on Shrimp Sliders**\
-`Shrimp and tofu sliders, to be exact — that mashed tofu adds extra protein and, along with miso-sesame mayo, keeps the patties from drying out.`\
-https://www.nytimes.com/2026/08/20/dining/going-big-on-shrimp-sliders.html
-
-**Great Actors Are More Believable Than Democrats**\
-`Democrats often don’t sound as if they believe themselves. To fix that, they should listen more to acting teachers and less to pollsters.`\
-https://www.nytimes.com/2026/08/20/opinion/democrats-polls-acting-playbook.html
 
