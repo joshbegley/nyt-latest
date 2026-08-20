@@ -1,3 +1,19 @@
+**The Influencers’ Thanksgiving**\
+`In the middle of August, Macy’s hosted a dinner for social media stars in advance of the 100th Thanksgiving Day Parade.`\
+https://www.nytimes.com/2026/08/20/nyregion/the-influencers-thanksgiving.html
+
+**Los superhéroes son aburridos. Salvo el Hombre Araña**\
+`Eso se debe a que las limitaciones lo hacen ser más un superhéroe, no menos. Es finito incluso en su misión de combatir el crimen.`\
+https://www.nytimes.com/es/2026/08/20/espanol/opinion/hombre-arana-spiderman-avengers.html
+
+**Trans Migrants in ICE Detention Are Losing Their Rights and Medical Care**\
+`U.S. officials have sometimes eliminated access to gender-related treatment and dissolved measures meant to shield transgender detainees from harassment.`\
+https://www.nytimes.com/2026/08/20/nyregion/transgender-migrants-ice.html
+
+**NYT Spelling Bee Answers for August 20, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/08/20/crosswords/spelling-bee-forum.html
+
 **Harry and Meghan Will Return to Britain**\
 `Prince Harry and Meghan Markle, the Duke and Duchess of Sussex, will move back to Britain after six years of self-imposed exile in the United States, two people familiar with their decision said.`\
 https://www.nytimes.com/video/world/europe/100000011102695/prince-harry-meghan-return-uk.html
