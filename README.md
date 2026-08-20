@@ -1,5 +1,13 @@
+**NYT Crossword Answers for Aug. 20, 2026**\
+`Hoang-Kim Vu flips the script.`\
+https://www.nytimes.com/2026/08/19/crosswords/daily-puzzle-2026-08-20.html
+
+**Who Is Ahead in Ohio's 15th Congressional District?**\
+`Track the latest polls in Ohio's 15th Congressional District.`\
+https://www.nytimes.com/interactive/polls/ohio-us-house-15-polls-2026.html
+
 **Harry and Meghan’s Break with Britain and Planned Return: a Timeline**\
-`The couple will remain non-working royals, though it is unclear what they will do for work or where they will live.`\
+`The couple will remain non-working royals. It is unclear where they will live.`\
 https://www.nytimes.com/2026/08/19/world/europe/harry-meghan-uk-royals-timeline.html
 
 **D.E.A. Joins Investigation Into Hayden Panettiere’s Death**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/19/style/tiny-modern-love-stories-she-thought-i-
 **California regula cuánto pueden aplastarse las llantas de los coches**\
 `La norma que exige neumáticos de repuesto eficientes fue elogiada por los ambientalistas. Pero los fabricantes advirtieron que el cambio perjudicaría a las empresas estadounidenses y aumentaría los precios.`\
 https://www.nytimes.com/es/2026/08/19/espanol/estados-unidos/california-regulacion-llantas.html
-
-**Prosecutor Reduces Charges Against L.A.P.D. Whistle-Blower After Uproar**\
-`A Los Angeles officer faced prison for secretly recording colleagues making offensive remarks. The county prosecutor is reducing those charges after critics said they would discourage whistle-blowers.`\
-https://www.nytimes.com/2026/08/19/us/lapd-officer-recording-charges.html
-
-**U.K. to Test Whether Tweaks to Trans-Atlantic Flight Paths Affect Global Warming**\
-`Hundreds of aircraft traversing the North Atlantic will be asked to adjust their altitude in an effort to reduce heat-trapping contrails.`\
-https://www.nytimes.com/2026/08/19/climate/contrails-trial-atlantic-flights-climate.html
 

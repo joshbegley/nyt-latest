@@ -1,3 +1,7 @@
+**Harry and Meghan’s Break with Britain and Planned Return: a Timeline**\
+`The couple will remain non-working royals, though it is unclear what they will do for work or where they will live.`\
+https://www.nytimes.com/2026/08/19/world/europe/harry-meghan-uk-royals-timeline.html
+
 **D.E.A. Joins Investigation Into Hayden Panettiere’s Death**\
 `The actress spoke candidly about her drug use and “the downfall of addiction.” The local police have said there is no evidence of foul play in her death.`\
 https://www.nytimes.com/2026/08/19/arts/television/hayden-panettiere-dea-investigation-drugs.html
