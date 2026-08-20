@@ -1,3 +1,7 @@
+**Oil Prices Jump After Trump’s Latest Iran Threat**\
+`Bond markets remained volatile, as investors assessed the geopolitical turmoil.`\
+https://www.nytimes.com/2026/08/20/business/iran-war-oil-bonds.html
+
 **We’re Doing Drugs**\
 `We look at a new study about Americans’ use of cannabis.`\
 https://www.nytimes.com/2026/08/20/briefing/were-doing-drugs.html
