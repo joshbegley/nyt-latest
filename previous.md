@@ -1,3 +1,7 @@
+**Darline Graham’s Debate Misstep Tests South Carolina’s Appetite for a Political Newcomer**\
+`Senator Darline Graham has argued that her lack of political experience is a strength as she runs to succeed her brother, Lindsey Graham. But a debate misstep has rattled some of her supporters.`\
+https://www.nytimes.com/2026/08/20/us/politics/darline-graham-debate-south-carolina.html
+
 **Trump Boasts of Declassifying Secrets, but Withholds Key Election Files From Public**\
 `Even as the White House claims to be focused on transparency, it has ignored a congressional requirement to disclose a report on foreign meddling in the 2024 election.`\
 https://www.nytimes.com/2026/08/20/us/politics/trump-2024-election-classified-files.html
@@ -74,7 +78,7 @@ https://www.nytimes.com/2026/08/20/t-magazine/cap-toe-two-tone-shoes-chanel.html
 `Recipe requests for savory summer fruit, non-bean protein and three heads of cabbage, right this way.`\
 https://www.nytimes.com/2026/08/20/dining/recipe-matchmaker-grab-bag-edition.html
 
-**Woman Arrested in Plot to Bomb New York State Capitol**\
+**FBI Arrests Woman in Plot to Bomb New York State Capitol Building**\
 `Federal prosecutors say the woman met with an F.B.I. informant several times to plan an attack on the building, which houses the governor’s office.`\
 https://www.nytimes.com/2026/08/20/nyregion/albany-isis-plot-bomb-capitol.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/20/business/walmart-target-retail-consumer-econo
 **Did Bessent Put the Fed in a Bind?**\
 `The Treasury Department’s plan for bond interventions has calmed markets. But Wall Street is worried about the fallout for inflation and more.`\
 https://www.nytimes.com/2026/08/20/business/dealbook/bessent-fed-warsh-bonds.html
-
-**Bond Market Stress Returns and Oil Rises in Edgy Day for Markets**\
-`Bond markets remained volatile, as investors assessed the geopolitical turmoil.`\
-https://www.nytimes.com/2026/08/20/business/iran-war-oil-bonds.html
 
