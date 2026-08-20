@@ -1,3 +1,7 @@
+**Trump Threatens Economic Pain Against Countries That Help Iran**\
+`The president did not specify what actions he would take, and he has on other occasions abandoned threats to dramatically escalate the war with Iran.`\
+https://www.nytimes.com/2026/08/19/us/politics/trump-sanctions-iran.html
+
 **Trump Officials Scrap Effort to Recruit Pentagon Lawyers to Represent Migrant Children**\
 `The reversal of the plan, which had not been publicly disclosed, comes amid mounting confusion about how the administration is protecting the rights of unaccompanied minors.`\
 https://www.nytimes.com/2026/08/19/us/politics/migrant-children-pentagon-lawyers.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/19/business/rebel-ice-cream-bankruptcy-van-leeuw
 **Family Members of Sailor Aboard U.S.S. Lincoln Speak Out**\
 `The mother and husband of a sailor on the aircraft carrier Abraham Lincoln, which has been deployed to the Middle East for more than eight months, shared their concerns with The New York Times about conditions on the ship.`\
 https://www.nytimes.com/video/us/100000011096947/family-members-of-sailor-aboard-uss-lincoln-speak-out.html
-
-**Why One Times Obits Writer Is Skeptical of Famous Last Words**\
-`Determining the reliability of final thoughts can be a challenge when conveying a person’s life story on deadline.`\
-https://www.nytimes.com/2026/08/19/insider/obits-famous-last-words.html
 
