@@ -1,3 +1,7 @@
+**Pilot Is Killed After Small Plane and Police Helicopter Collide in Pennsylvania**\
+`Two Pennsylvania State Police troopers were injured in the crash at Carlisle Airport, officials said.`\
+https://www.nytimes.com/2026/08/20/us/helicopter-plane-collision-pennsylvania.html
+
 **Con opciones limitadas, Trump intenta ejercer presión económica sobre Irán… otra vez**\
 `Irán ha sobrevivido a décadas de sanciones. Según los analistas, es poco probable que la amenaza de más lo motive a rendirse.`\
 https://www.nytimes.com/es/2026/08/20/espanol/mundo/guerra-iran-trump-israel.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/19/us/cycling-team-crash-milligan-university.htm
 **Stripe Buys A.I. Start-Up OpenRouter for $7.5 Billion**\
 `The deal is significant for the artificial intelligence industry, uniting Stripe’s payments business with OpenRouter’s helping businesses direct their spending on A.I. models.`\
 https://www.nytimes.com/2026/08/19/business/stripe-openrouter-ai.html
-
-**The Good List: 6 Things to Add Some Joy to Your Day**\
-`Walk-up songs, a shopping app and a despair antidote.`\
-https://www.nytimes.com/2026/08/19/briefing/19-the-good-list-walk-up-songs-third-thing.html
 
