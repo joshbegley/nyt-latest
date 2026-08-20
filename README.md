@@ -188,7 +188,7 @@ https://www.nytimes.com/2026/08/20/well/dating-app-disabilities.html
 
 **The Teens Taking On A.I. Data Centers**\
 `Gen Z-ers are forming after-school clubs, speaking at community meetings — and sometimes wrestling with their own dependence on the technology.`\
-https://www.nytimes.com/2026/08/20/style/the-teens-taking-on-data-centers.html
+https://www.nytimes.com/2026/08/20/style/ai-data-centers-teens.html
 
 **A Victory Lap for the Boss of the Pebble Beach Extravaganza**\
 `The Concours d’Elegance, a showcase of some of the world’s finest cars held over the weekend, was a capstone to Sandra Button’s two decades of leading the organization that puts it on.`\
