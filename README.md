@@ -18,7 +18,7 @@ https://www.nytimes.com/2026/08/20/business/walmart-target-retail-consumer-econo
 `The Treasury Department’s plan for bond interventions has calmed markets. But Wall Street is worried about the fallout for inflation and more.`\
 https://www.nytimes.com/2026/08/20/business/dealbook/bessent-fed-warsh-bonds.html
 
-**Oil Prices Jump and Bond Market Stress Returns**\
+**Bond Market Stress Returns and Oil Rises in Edgy Day for Markets**\
 `Bond markets remained volatile, as investors assessed the geopolitical turmoil.`\
 https://www.nytimes.com/2026/08/20/business/iran-war-oil-bonds.html
 

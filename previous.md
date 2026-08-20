@@ -1,3 +1,7 @@
+**Captain in New York Boat Accident That Killed 2 Is Arrested by ICE**\
+`A Coast Guard investigation led to the arrest of Manuel Hernandez, who had been charged with misconduct and neglect after the deaths of a mother and her child.`\
+https://www.nytimes.com/2026/08/20/nyregion/ice-arrest-boat-captain-new-york.html
+
 **What to Know About Prince Harry and Meghan’s Move Back to the U.K.**\
 `The couple are moving back after six years in the United States. What they will do, and much else, are still unclear.`\
 https://www.nytimes.com/2026/08/20/world/europe/prince-harry-meghan-uk-move-return.html
@@ -11,7 +15,7 @@ https://www.nytimes.com/video/world/europe/100000011103016/russia-ukraine-missil
 https://www.nytimes.com/2026/08/20/business/walmart-target-retail-consumer-economy.html
 
 **Did Bessent Put the Fed in a Bind?**\
-`The Treasury Department’s plan for bond interventions have calmed markets. But Wall Street is worried about the fallout for inflation and more.`\
+`The Treasury Department’s plan for bond interventions has calmed markets. But Wall Street is worried about the fallout for inflation and more.`\
 https://www.nytimes.com/2026/08/20/business/dealbook/bessent-fed-warsh-bonds.html
 
 **Oil Prices Jump and Bond Market Stress Returns**\
@@ -23,7 +27,7 @@ https://www.nytimes.com/2026/08/20/business/iran-war-oil-bonds.html
 https://www.nytimes.com/2026/08/20/briefing/were-doing-drugs.html
 
 **A Prince at 26: Once-Secret Son of Belgian Royal Gains Legal Recognition**\
-`Clément Vandenkerckhove was born to Belgium’s Prince Clement before his marriage. He is now a prince himself, though he is not expected to have royal duties.`\
+`Clément Vandenkerckhove was born to Belgium’s Prince Laurent before his marriage. He is now a prince himself, though he is not expected to have royal duties.`\
 https://www.nytimes.com/2026/08/20/world/europe/prince-laurent-belgium-clement-son.html
 
 **After Six Years, Harry and Meghan Are Coming Home. What Changed?**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/20/arts/design/rietveld-houses-exhibition-center
 **Help! Lyft Charged Me $150 for Vomiting in a Car, but I Didn’t Do It.**\
 `A passenger who said he had an uneventful ride home from the airport was shocked to be hit with a cleaning fee for a mess in what appeared to be a different vehicle.`\
 https://www.nytimes.com/2026/08/20/travel/lyft-cleaning-charge.html
-
-**How to Make Sense of 4,000 Edinburgh Shows: Just Soak It All Up**\
-`From 60-minute plays to marathon dramas, surviving the festival and the Fringe isn’t about finding a common thread — it’s about surrendering to the chaos.`\
-https://www.nytimes.com/2026/08/20/theater/edinburgh-festival-fringe.html
 

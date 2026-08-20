@@ -1,3 +1,15 @@
+**Captain in New York Boat Accident That Killed 2 Is Arrested by ICE**\
+`A Coast Guard investigation led to the arrest of Manuel Hernandez, who had been charged with misconduct and neglect after the deaths of a mother and her child.`\
+https://www.nytimes.com/2026/08/20/nyregion/ice-arrest-boat-captain-new-york.html
+
+**Did Bessent Put the Fed in a Bind?**\
+`The Treasury Department’s plan for bond interventions has calmed markets. But Wall Street is worried about the fallout for inflation and more.`\
+https://www.nytimes.com/2026/08/20/business/dealbook/bessent-fed-warsh-bonds.html
+
+**A Prince at 26: Once-Secret Son of Belgian Royal Gains Legal Recognition**\
+`Clément Vandenkerckhove was born to Belgium’s Prince Laurent before his marriage. He is now a prince himself, though he is not expected to have royal duties.`\
+https://www.nytimes.com/2026/08/20/world/europe/prince-laurent-belgium-clement-son.html
+
 **How Trump Is Trying to Crush California’s Climate Policies**\
 `At least a half-dozen federal agencies have taken action against the state that has led the nation in environmental protections.`\
 https://www.nytimes.com/2026/08/20/climate/trump-california-climate.html
