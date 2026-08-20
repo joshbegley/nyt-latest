@@ -1,3 +1,11 @@
+**Read the criminal complaint about a bomb plot in Albany**\
+`Federal agents and police detectives have arrested a 35-year-old woman who prosecutors say was planning to bomb the New York State Capitol, according to a criminal complaint filed in federal court on Thursday.`\
+https://www.nytimes.com/interactive/2026/08/20/nyregion/albany-bomb-criminal-complaint.html
+
+**Woman Arrested in Plot to Bomb New York State Capitol**\
+`Federal prosecutors say the woman met with an F.B.I. informant several times to plan an attack on the building, which houses the governor’s office.`\
+https://www.nytimes.com/2026/08/20/nyregion/albany-isis-plot-bomb-capitol.html
+
 **Hochul’s Advice for Mamdani: Focus on New York City**\
 `In a wide-ranging interview, Gov. Kathy Hochul stressed the values she shares with Mayor Zohran Mamdani and talked about President Trump, taxes and ICE.`\
 https://www.nytimes.com/2026/08/20/nyregion/hochul-mamdani-israel-new-york.html
