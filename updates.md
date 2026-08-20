@@ -1,3 +1,11 @@
+**Several Big Brokerages Leave Customer Accounts Open to Theft, Senators Say**\
+`Senators Ron Wyden and Elizabeth Warren, ranking Democrats on the Finance and Banking Committees, have urged regulators to require brokerages to provide stronger customer protections.`\
+https://www.nytimes.com/2026/08/20/business/brokerage-accounts-fraud-protections.html
+
+**Trump’s Economic Threat Puts Focus on Iran’s Trading Partners**\
+`President Trump appeared to suggest that the United States would impose economic penalties on countries that do business with Iran, though he did not specify what actions he would take.`\
+https://www.nytimes.com/2026/08/20/world/middleeast/iran-trade-trump-threat-china.html
+
 **Today, In Short**\
 `“House hang.” Data centers. And canned tuna.`\
 https://www.nytimes.com/2026/08/20/briefing/today-in-short.html
