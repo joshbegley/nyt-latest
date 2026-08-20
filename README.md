@@ -1,3 +1,19 @@
+**Ileana Cotrubas, Sensitive Soprano Known for ‘Traviata,’ Dies at 87**\
+`Able to convey the pathos of operatic heroines with her pure, expressive tone, she was also involved in prickly disputes with some directors and conductors.`\
+https://www.nytimes.com/2026/08/20/arts/music/ileana-cotrubas-dead.html
+
+**As Prince Harry and Meghan Depart California for the U.K., Their Neighbors Shrug**\
+`Prince Harry and Meghan Markle self exiled to the ultrawealthy enclave of Montecito in 2020. “They wave. They drive. They close the gates,” a neighbor said.`\
+https://www.nytimes.com/2026/08/20/us/prince-harry-meghan-montecito-california-uk.html
+
+**3 Teen Girls Knifed by Woman in Attack at Dollar Tree, Police Say**\
+`The woman, who is 44, stabbed two of the girls and slashed the third during a dispute in Brooklyn on Wednesday, the authorities said.`\
+https://www.nytimes.com/2026/08/20/nyregion/brooklyn-dollar-tree-stabbing.html
+
+**China condena a cadena perpetua al fundador de Evergrande**\
+`El castigo de Hui Ka Yan representa el final de la caída de un imperio inmobiliario cuyo colapso desató una prolongada crisis en la economía china.`\
+https://www.nytimes.com/es/2026/08/20/espanol/mundo/china-cadena-perpetua-fundador-evergrande.html
+
 **Several Big Brokerages Leave Customer Accounts Open to Theft, Senators Say**\
 `Senators Ron Wyden and Elizabeth Warren, ranking Democrats on the Finance and Banking Committees, have urged regulators to require brokerages to provide stronger customer protections.`\
 https://www.nytimes.com/2026/08/20/business/brokerage-accounts-fraud-protections.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/08/20/theater/music-city-jt-harding-broadway.html
 **Homes for Sale in Manhattan and Brooklyn**\
 `This week’s properties are in NoMad, Midtown East and Ditmas Park.`\
 https://www.nytimes.com/2026/08/20/realestate/housing-market-nyc.html
-
-**This Skeleton is the First Confirmed Death by Trebuchet**\
-`Researchers believe a young man buried inside a Scottish castle was a victim of the long-feared siege weapon, more powerful than a typical catapult.`\
-https://www.nytimes.com/2026/08/20/science/a-14th-century-skeleton-had-injuries-that-looked-like-a-car-crash-what-killed-him.html
-
-**Sullivan Fortner Can’t Dodge the Spotlight Much Longer**\
-`This standards-leaning pianist has made fans of jazz’s heavyweights. On “Leave That in There,” out Aug. 28, his playful originals reveal another level of virtuosity.`\
-https://www.nytimes.com/2026/08/20/arts/music/sullivan-fortner-leave-it-in-there.html
-
-**The Indian City Where AI Is Creating Jobs for Humans**\
-`In the fast-growing field of data annotation, workers in a small city in south India train A.I. to improve how it performs tasks traditionally done by people.`\
-https://www.nytimes.com/2026/08/20/world/asia/ai-jobs-data-annotation-india-karur.html
-
-**The A.I.-Robotics Job Only a Human Can Do**\
-`In India, some people are strapping cameras to their bodies to collect data on how humans move and train A.I.`\
-https://www.nytimes.com/video/world/asia/100000011091777/india-ai-robots-human-movement.html
 
