@@ -1,3 +1,11 @@
+**Books Our Editors Loved This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://www.nytimes.com/2026/08/20/books/review/20tbr-new-recommended-books.html
+
+**Academic Who Publicized Plagiarism Allegations Against Jason Arday Is Suspended**\
+`Ghent University in Belgium said it suspended the academic, Nathan Cofnas, pending an investigation.`\
+https://www.nytimes.com/2026/08/20/world/europe/arday-cofnas-suspended.html
+
 **Lindsay Clancy Heard a Voice Telling Her to Kill Her Children, Witnesses Say**\
 `Ms. Clancy has pleaded not guilty to murder, citing postpartum psychosis. Two defense witnesses said she spoke lovingly of her children after the killings.`\
 https://www.nytimes.com/2026/08/20/us/lindsay-clancy-trial-voice-children.html
