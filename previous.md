@@ -1,3 +1,11 @@
+**For Filipino Pastries That Go Beyond Ube, Head to Queens**\
+`There’s nothing wrong with the bright purple yam, but don’t stop there when it comes to Filipino baking.`\
+https://www.nytimes.com/2026/08/20/dining/filipino-bakeries-nyc.html
+
+**How the A.I. Borrowing Binge Helps Drive Up Government Bond Yields**\
+`Analysts said the recent rise in Treasury yields partly reflected investor expectations that A.I.-driven growth could keep interest rates elevated.`\
+https://www.nytimes.com/2026/08/20/business/bond-yields-tech-ai-debt.html
+
 **Darline Graham’s Debate Misstep Tests South Carolina’s Appetite for a Political Newcomer**\
 `Senator Darline Graham has argued that her lack of political experience is a strength as she runs to succeed her brother, Lindsey Graham. But a debate misstep has rattled some of her supporters.`\
 https://www.nytimes.com/2026/08/20/us/politics/darline-graham-debate-south-carolina.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/20/world/europe/prince-harry-meghan-uk-move-retu
 **Russia Pummels Kyiv in Deadly Missile Barrage**\
 `More than a dozen people were killed in Kyiv, the Ukrainian capital, in an overnight Russian missile barrage, Ukrainian officials said on Thursday.`\
 https://www.nytimes.com/video/world/europe/100000011103016/russia-ukraine-missiles-kyiv.html
-
-**Walmart Posts Slowest Sales Growth in Years as Americans Tighten Wallets**\
-`Walmart and other big U.S. retailers have warned that consumers were being cautious, even if household balance sheets seemed healthy.`\
-https://www.nytimes.com/2026/08/20/business/walmart-target-retail-consumer-economy.html
-
-**Did Bessent Put the Fed in a Bind?**\
-`The Treasury Department’s plan for bond interventions has calmed markets. But Wall Street is worried about the fallout for inflation and more.`\
-https://www.nytimes.com/2026/08/20/business/dealbook/bessent-fed-warsh-bonds.html
 

@@ -1,3 +1,7 @@
+**El príncipe Harry y Meghan regresan al Reino Unido. ¿Por qué?**\
+`Apenas el año pasado, el príncipe Enrique dijo que no podía imaginar volver a llevar a su familia al Reino Unido.`\
+https://www.nytimes.com/es/2026/08/20/espanol/mundo/harry-meghan-por-que-regresan-reino-unido.html
+
 **For Filipino Pastries That Go Beyond Ube, Head to Queens**\
 `There’s nothing wrong with the bright purple yam, but don’t stop there when it comes to Filipino baking.`\
 https://www.nytimes.com/2026/08/20/dining/filipino-bakeries-nyc.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/20/nyregion/ice-arrest-boat-captain-new-york.htm
 **What to Know About Prince Harry and Meghan’s Move Back to the U.K.**\
 `The couple are moving back after six years in the United States. What they will do, and much else, are still unclear.`\
 https://www.nytimes.com/2026/08/20/world/europe/prince-harry-meghan-uk-move-return.html
-
-**Russia Pummels Kyiv in Deadly Missile Barrage**\
-`More than a dozen people were killed in Kyiv, the Ukrainian capital, in an overnight Russian missile barrage, Ukrainian officials said on Thursday.`\
-https://www.nytimes.com/video/world/europe/100000011103016/russia-ukraine-missiles-kyiv.html
 

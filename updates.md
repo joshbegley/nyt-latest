@@ -1,3 +1,11 @@
+**For Filipino Pastries That Go Beyond Ube, Head to Queens**\
+`There’s nothing wrong with the bright purple yam, but don’t stop there when it comes to Filipino baking.`\
+https://www.nytimes.com/2026/08/20/dining/filipino-bakeries-nyc.html
+
+**How the A.I. Borrowing Binge Helps Drive Up Government Bond Yields**\
+`Analysts said the recent rise in Treasury yields partly reflected investor expectations that A.I.-driven growth could keep interest rates elevated.`\
+https://www.nytimes.com/2026/08/20/business/bond-yields-tech-ai-debt.html
+
 **Darline Graham’s Debate Misstep Tests South Carolina’s Appetite for a Political Newcomer**\
 `Senator Darline Graham has argued that her lack of political experience is a strength as she runs to succeed her brother, Lindsey Graham. But a debate misstep has rattled some of her supporters.`\
 https://www.nytimes.com/2026/08/20/us/politics/darline-graham-debate-south-carolina.html
