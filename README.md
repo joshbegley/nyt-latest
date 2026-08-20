@@ -1,3 +1,7 @@
+**Missouri Judge Says Redrawn Congressional Map May Be Used in Midterms**\
+`The decision was a win for Republicans, who have been pushing for the new map in an effort to help maintain the party’s narrow control in the U.S. House in November.`\
+https://www.nytimes.com/2026/08/19/us/missouri-redistricting-midterms.html
+
 **NYT Crossword Answers for Aug. 20, 2026**\
 `Hoang-Kim Vu flips the script.`\
 https://www.nytimes.com/2026/08/19/crosswords/daily-puzzle-2026-08-20.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/19/world/canada/trump-canada-tariffs-carney-deal
 **Tiny Love Stories: ‘She Thought I Was a Slob’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://www.nytimes.com/2026/08/19/style/tiny-modern-love-stories-she-thought-i-was-a-slob.html
-
-**California regula cuánto pueden aplastarse las llantas de los coches**\
-`La norma que exige neumáticos de repuesto eficientes fue elogiada por los ambientalistas. Pero los fabricantes advirtieron que el cambio perjudicaría a las empresas estadounidenses y aumentaría los precios.`\
-https://www.nytimes.com/es/2026/08/19/espanol/estados-unidos/california-regulacion-llantas.html
 
