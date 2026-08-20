@@ -46,7 +46,7 @@ https://www.nytimes.com/2026/08/19/crosswords/daily-puzzle-2026-08-20.html
 `Track the latest polls in Ohio's 15th Congressional District.`\
 https://www.nytimes.com/interactive/polls/ohio-us-house-15-polls-2026.html
 
-**Harry and Meghan’s Break with Britain and Planned Return: a Timeline**\
+**Harry and Meghan’s Break With Britain and Planned Return: a Timeline**\
 `The couple will remain non-working royals. It is unclear where they will live.`\
 https://www.nytimes.com/2026/08/19/world/europe/harry-meghan-uk-royals-timeline.html
 
