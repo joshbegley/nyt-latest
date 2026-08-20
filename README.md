@@ -1,3 +1,7 @@
+**Massachusetts Police Search for Officer’s Wife in Connection With His Death**\
+`The Worcester police are searching for Karen Solomon, a mental health advocate for police officers, in connection with the death of her husband, a police officer.`\
+https://www.nytimes.com/video/us/100000011104279/massachusetts-karen-solomon-officer-death.html
+
 **Phoenix Police Investigate 2 Officers Accused of Violent Traffic Stop**\
 `The department opened a criminal investigation after a couple said they were shocked with a stun gun and beaten during the Aug. 5 encounter.`\
 https://www.nytimes.com/2026/08/20/us/phoenix-police-investigation-traffic-stop.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/podcasts/100000011097436/why-busta-rhymes-raps-ult
 **First U.S. Deportees to Arrive in Liberia Amid Growing Backlash**\
 `The five men were part of the first group of deportees to be sent to the West African nation by the Trump administration. The Liberian government has not clarified their status.`\
 https://www.nytimes.com/2026/08/20/world/africa/liberia-trump-deportations.html
-
-**Rachel Cusk on Her Novel ‘Life of M,’ Gossip and Natalie Portman**\
-`“Life of M,” Rachel Cusk’s new book, has a protagonist with an uncanny resemblance to Natalie Portman. But in an interview, Cusk says she never expected it would cause such a frenzy.`\
-https://www.nytimes.com/2026/08/20/style/rachel-cusk-life-of-m-natalie-portman.html
 
