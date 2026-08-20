@@ -1,3 +1,19 @@
+**Weary U.S.S. Abraham Lincoln Leaves Middle East**\
+`The aircraft carrier has been deployed for nine months, largely in support of U.S. operations against Iran, and is now heading home to San Diego.`\
+https://www.nytimes.com/2026/08/20/us/politics/uss-abraham-lincoln-iran.html
+
+**Academic Who Publicized Plagiarism Allegations Against Jason Arday Is Suspended**\
+`Ghent University in Belgium said it suspended the professor, Nathan Cofnas, pending an investigation.`\
+https://www.nytimes.com/2026/08/20/world/europe/arday-cofnas-suspended.html
+
+**Captain in Deadly New York Harbor Accident Is Arrested by ICE**\
+`The captain in a deadly boat accident in New York Harbor this month was arrested by ICE after an investigation found that he was in the United States unlawfully, federal officials said.`\
+https://www.nytimes.com/video/us/100000011103520/ice-arrest-captain-new-york-immigration.html
+
+**Mamdani demanda al Concejo Municipal en Nueva York**\
+`La ciudad de Nueva York dice que la legislación del Concejo viola la ley de negociación colectiva. Esta podría ser la primera batalla de alto perfil entre el alcalde y un sindicato del sector público.`\
+https://www.nytimes.com/es/2026/08/20/espanol/estados-unidos/nueva-york-mamdani-demanda-concejo-municipal.html
+
 **The Best Cap-Toe Pump Shoes, at a Range of Prices**\
 `With Chanel’s signature shoe, variations come at all price points.`\
 https://www.nytimes.com/2026/08/20/t-magazine/cap-toe-two-tone-shoes-chanel.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/08/20/t-magazine/usher-wellness-routine.html
 **JD Vance Thinks You Are Not Christian Enough**\
 `According to the vice president, we are wasting our freedom.`\
 https://www.nytimes.com/2026/08/20/opinion/vance-christian-conservative-republican.html
-
-**Trump’s Order to Cut Military Exercises With South Korea Carries Risks, Experts Say**\
-`President Trump’s decision to curtail the military exercises came as allies question the U.S. commitment to longstanding alliances.`\
-https://www.nytimes.com/2026/08/20/us/politics/trumps-order-military-exercises-risks.html
-
-**The Scales Can’t Fall From Our Eyes Fast Enough**\
-`More Republicans and Democrats are seeing reality for what it is. Does it matter?`\
-https://www.nytimes.com/2026/08/20/opinion/trump-maga-immigration-woke-democrats.html
-
-**Caught Up in the Rapture of Anita Baker**\
-`Celebrating the 40th anniversary of Baker’s seminal album.`\
-https://www.nytimes.com/2026/08/20/podcasts/cannonball-anita-baker-rapture.html
-
-**Moderna’s Shift to Cancer Company Lifts Stock Up 177%**\
-`The company’s fortunes cratered as demand for Covid-19 vaccines plummeted. But it was busy working on something else.`\
-https://www.nytimes.com/2026/08/20/business/moderna-cancer-melanoma.html
 
