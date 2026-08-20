@@ -1,3 +1,7 @@
+**Transportation Secretary Sean Duffy’s ‘Road Trip’ Highlights America, and Some of Its Sponsors**\
+`The transportation secretary’s six-part YouTube series is fueling ethical concerns over family adventures funded in large part by corporate sponsors regulated by his department.`\
+https://www.nytimes.com/2026/08/20/us/politics/sean-duffy-american-road-trip.html
+
 **Is the Sports Bubble Going to Pop?**\
 `Pablo Torre, host of “Pablo Torre Finds Out,” joins Natalie Kitroeff on “The Daily” to discuss the skyrocketing valuations of sports teams as private equity changes the landscape of professional sports.`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011104011/is-the-sports-bubble-going-to-pop.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/20/us/lindsay-clancy-trial-voice-children.html
 **U.S.S. Abraham Lincoln Leaves Middle East After Months at Sea in Operation Against Iran**\
 `The aircraft carrier has been deployed for nine months, largely in support of U.S. operations against Iran, and is now heading home to San Diego.`\
 https://www.nytimes.com/2026/08/20/us/politics/uss-abraham-lincoln-iran.html
-
-**Academic Who Publicized Plagiarism Allegations Against Jason Arday Is Suspended**\
-`Ghent University in Belgium said it suspended the academic, Nathan Cofnas, pending an investigation.`\
-https://www.nytimes.com/2026/08/20/world/europe/arday-cofnas-suspended.html
 
