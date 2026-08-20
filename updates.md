@@ -1,3 +1,7 @@
+**How Big Tech’s A.I. Borrowing Binge Is Driving Up Bond Yields**\
+`Analysts said the recent rise in Treasury yields partly reflected investor expectations that A.I.-driven growth could keep interest rates elevated.`\
+https://www.nytimes.com/2026/08/20/business/bond-yields-tech-ai-debt.html
+
 **Debating the Use of A.I. in Writing**\
 `Readers responded to a column begging readers not to use A.I. to write. Also, a rush to build the White House ballroom; a Trump voter’s wife is detained by ICE; and Trump derangement syndrome.`\
 https://www.nytimes.com/2026/08/20/opinion/letters/debating-ai-in-writing.html

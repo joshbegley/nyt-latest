@@ -103,7 +103,7 @@ https://www.nytimes.com/2026/08/20/t-magazine/cap-toe-two-tone-shoes-chanel.html
 https://www.nytimes.com/2026/08/20/dining/recipe-matchmaker-grab-bag-edition.html
 
 **FBI Arrests Woman in Plot to Bomb New York State Capitol Building**\
-`Federal prosecutors say the woman met with an F.B.I. informant several times to plan an attack on the building, which houses the governor’s office.`\
+`Federal prosecutors say the woman met with an F.B.I. informant several times to plan an attack on the building, which houses the governor’s office and that of lawmakers.`\
 https://www.nytimes.com/2026/08/20/nyregion/albany-isis-plot-bomb-capitol.html
 
 **In a Big Year for Progressives, Here’s Why These Moderates Won Their Primaries**\
