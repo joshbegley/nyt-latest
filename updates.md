@@ -1,3 +1,15 @@
+**Treasury Turns to Interventionist Tactics to Lower Interest Rates**\
+`Treasury Secretary Scott Bessent is reinventing the government’s role in the world’s most important bond market.`\
+https://www.nytimes.com/2026/08/20/business/treasury-bond-market-interventionist-tactics.html
+
+**Trump Threat Puts Focus on Iran’s Trading Partners**\
+`President Trump appeared to suggest that the United States would impose economic penalties on countries that do business with Iran, though he did not specify what actions he would take.`\
+https://www.nytimes.com/2026/08/20/world/middleeast/iran-trade-trump-threat-china.html
+
+**La DEA se suma a la investigación de la muerte de Hayden Panettiere**\
+`La actriz habló con franqueza sobre su consumo de drogas y la “ruina de la adicción”. La policía local ha dicho que no hay indicios de criminalidad en torno a su muerte.`\
+https://www.nytimes.com/es/2026/08/20/espanol/cultura/hayden-panettiere-dea-investigacion-drogas.html
+
 **ICE Arrests Captain in New York Boat Accident That Killed 2**\
 `A Coast Guard investigation led to the arrest of Manuel Hernandez, who had been charged with misconduct and neglect after the deaths of a mother and her child.`\
 https://www.nytimes.com/2026/08/20/nyregion/ice-arrest-boat-captain-new-york.html

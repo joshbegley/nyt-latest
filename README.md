@@ -131,7 +131,7 @@ https://www.nytimes.com/2026/08/20/nyregion/new-york-needs-700000-homes-can-it-b
 https://www.nytimes.com/2026/08/20/magazine/lore-language-history.html
 
 **Homes for Sale in New York and Connecticut**\
-`This week’s properties are a three-bedroom in East Hampton, N. Y., and a four-bedroom in Stamford, Conn.`\
+`This week’s properties are a three-bedroom in East Hampton, N.Y., and a four-bedroom in Stamford, Conn.`\
 https://www.nytimes.com/2026/08/20/realestate/housing-market-near-nyc.html
 
 **How Trump Is Trying to Crush California’s Climate Policies**\
