@@ -1,3 +1,7 @@
+**Russia Pummels Kyiv in Deadly Missile Barrage**\
+`More than a dozen people were killed in Kyiv, the Ukrainian capital, in an overnight Russian missile barrage, Ukrainian officials said on Thursday.`\
+https://www.nytimes.com/video/world/europe/100000011103016/russia-ukraine-missiles-kyiv.html
+
 **Walmart Posts Slowest Sales Growth in Years as Americans Tighten Wallets**\
 `Walmart and other big U.S. retailers have warned that consumers were being cautious, even if personal balance sheets seemed healthy.`\
 https://www.nytimes.com/2026/08/20/business/walmart-target-retail-consumer-economy.html
@@ -6,7 +10,7 @@ https://www.nytimes.com/2026/08/20/business/walmart-target-retail-consumer-econo
 `The Treasury Department’s plan for bond interventions have calmed markets. But Wall Street is worried about the fallout for inflation and more.`\
 https://www.nytimes.com/2026/08/20/business/dealbook/bessent-fed-warsh-bonds.html
 
-**Oil Prices Jump After Trump’s Latest Iran Threat**\
+**Oil Prices Jump and Bond Market Stress Returns**\
 `Bond markets remained volatile, as investors assessed the geopolitical turmoil.`\
 https://www.nytimes.com/2026/08/20/business/iran-war-oil-bonds.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/20/theater/edinburgh-festival-fringe.html
 **‘It Ends’ Review: On the Road to Nowhere**\
 `A taut, efficient thriller about four recent graduates on a road trip delivers existential dread.`\
 https://www.nytimes.com/2026/08/20/movies/it-ends-review.html
-
-**What Is Treatment-Resistant Depression?**\
-`If multiple antidepressants haven’t helped, there are other avenues to explore.`\
-https://www.nytimes.com/2026/08/20/well/mind/treatment-resistant-depression.html
 
