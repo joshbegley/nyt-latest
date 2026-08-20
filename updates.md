@@ -1,3 +1,7 @@
+**Russian Missiles Kill at Least 15 in Kyiv as Air Defenses Dwindle**\
+`Moscow is taking advantage of Ukraine’s depleted stock of interceptors and is intensifying attacks, worsening the civilian death toll.`\
+https://www.nytimes.com/2026/08/20/world/europe/ukraine-kyiv-missiles-russia-war.html
+
 **After Six Years, Harry and Meghan Are Coming Home. What Changed?**\
 `Just last year, Prince Harry said he couldn’t imagine ever bringing his family back to Britain.`\
 https://www.nytimes.com/2026/08/20/world/europe/harry-meghan-britain-return.html

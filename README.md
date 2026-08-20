@@ -1,3 +1,7 @@
+**Did Bessent Put the Fed in a Bind?**\
+`The Treasury Department’s plan for bond interventions have calmed markets. But Wall Street is worried about the fallout for inflation and more.`\
+https://www.nytimes.com/2026/08/20/business/dealbook/bessent-fed-warsh-bonds.html
+
 **Oil Prices Jump After Trump’s Latest Iran Threat**\
 `Bond markets remained volatile, as investors assessed the geopolitical turmoil.`\
 https://www.nytimes.com/2026/08/20/business/iran-war-oil-bonds.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/20/well/mind/treatment-resistant-depression.html
 **Word of the Day: scintillating**\
 `This word has appeared in 24 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/08/20/learning/word-of-the-day-scintillating.html
-
-**On the Windswept Scottish Coast, Fashion With an Air of Mystery**\
-`This fall, sharp, tailored silhouettes meet softly textured layers.`\
-https://www.nytimes.com/2026/08/20/t-magazine/fashion-tailoring-texture.html
 
