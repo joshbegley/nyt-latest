@@ -1,3 +1,19 @@
+**Con opciones limitadas, Trump intenta ejercer presión económica sobre Irán… otra vez**\
+`Irán ha sobrevivido a décadas de sanciones. Según los analistas, es poco probable que la amenaza de más lo motive a rendirse.`\
+https://www.nytimes.com/es/2026/08/20/espanol/mundo/guerra-iran-trump-israel.html
+
+**Quote of the Day: Split From Son in Ukraine War, Mother Plotted a Risky Rescue**\
+`Quotation of the Day for Thursday, August 20, 2026.`\
+https://www.nytimes.com/2026/08/20/pageoneplus/quote-of-the-day-split-from-son-in-ukraine-war-mother-plotted-a-risky-rescue.html
+
+**Hating Matcha, Yet Loving Life, Made Him a TikTok Star at 89**\
+`Werner Kalecinski is a social media sensation among young Germans. How did he go from heartbroken widower to partying on a yacht?`\
+https://www.nytimes.com/2026/08/20/world/europe/elder-opa-influencer-tiktok-star-matcha.html
+
+**Bad Plot, Worse Graphics: Chinese Moviegoers Flock to a Low-Budget Hit**\
+`With its pixelated visuals, “The Bull is Coming” is being celebrated for its authenticity in the age of A.I. and is shaping up to be a Gen Z cult classic.`\
+https://www.nytimes.com/2026/08/20/world/asia/niu-lai-chinese-movie-box-office.html
+
 **Missouri Judge Says Redrawn Congressional Map May Be Used in Midterms**\
 `The decision was a win for Republicans, who have been pushing for the new map in an effort to help maintain the party’s narrow control in the U.S. House in November.`\
 https://www.nytimes.com/2026/08/19/us/missouri-redistricting-midterms.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/08/19/business/stripe-openrouter-ai.html
 **The Good List: 6 Things to Add Some Joy to Your Day**\
 `Walk-up songs, a shopping app and a despair antidote.`\
 https://www.nytimes.com/2026/08/19/briefing/19-the-good-list-walk-up-songs-third-thing.html
-
-**In Italy, a Beach Club Run by Nuns Is in Jeopardy**\
-`The Sisters of Charity of Saint Mary have hosted beachgoers in the town of Spotorno for decades. But change is coming.`\
-https://www.nytimes.com/2026/08/19/world/europe/italy-nuns-beach-club.html
-
-**Former NYPD Sergeant Admits to Killing Man in Drunk-Driving Crash**\
-`Tiffany Howell admitted she was drunk when she drove the wrong way on the Taconic State Parkway earlier this year, killing Manuel Boitel, a Manhattan doorman.`\
-https://www.nytimes.com/2026/08/19/nyregion/nypd-police-drunk-driving-guilty.html
-
-**Trump and Canada’s Carney Seem to Make Progress on a Tariff Deal, but Questions Linger**\
-`After a deadline extension, the latest U.S. tariff threats seemed headed toward resolution on Wednesday, but questions lingered about what Canada would give up, and what it would get in exchange.`\
-https://www.nytimes.com/2026/08/19/world/canada/trump-canada-tariffs-carney-deal-trade.html
-
-**Tiny Love Stories: ‘She Thought I Was a Slob’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://www.nytimes.com/2026/08/19/style/tiny-modern-love-stories-she-thought-i-was-a-slob.html
 
