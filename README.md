@@ -1,3 +1,7 @@
+**Oil Prices Jump After Trump’s Latest Iran Threat**\
+`Bond markets remained volatile, as investors assessed the geopolitical turmoil.`\
+https://www.nytimes.com/2026/08/20/business/iran-war-oil-bonds.html
+
 **We’re Doing Drugs**\
 `We look at a new study about Americans’ use of cannabis.`\
 https://www.nytimes.com/2026/08/20/briefing/were-doing-drugs.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/20/learning/word-of-the-day-scintillating.html
 **On the Windswept Scottish Coast, Fashion With an Air of Mystery**\
 `This fall, sharp, tailored silhouettes meet softly textured layers.`\
 https://www.nytimes.com/2026/08/20/t-magazine/fashion-tailoring-texture.html
-
-**The App Bringing Disabled Daters Together**\
-`Many Dateability users said they were drawn to the app after negative experiences on mainstream platforms.`\
-https://www.nytimes.com/2026/08/20/well/dating-app-disabilities.html
 
