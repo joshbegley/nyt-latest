@@ -1,3 +1,7 @@
+**What to Know About Prince Harry and Meghan’s Move Back to the U.K.**\
+`The couple are moving back after six years in the United States. What they will do, and much else, are still unclear.`\
+https://www.nytimes.com/2026/08/20/world/europe/prince-harry-meghan-uk-move-return.html
+
 **Russia Pummels Kyiv in Deadly Missile Barrage**\
 `More than a dozen people were killed in Kyiv, the Ukrainian capital, in an overnight Russian missile barrage, Ukrainian officials said on Thursday.`\
 https://www.nytimes.com/video/world/europe/100000011103016/russia-ukraine-missiles-kyiv.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/20/travel/lyft-cleaning-charge.html
 **How to Make Sense of 4,000 Edinburgh Shows: Just Soak It All Up**\
 `From 60-minute plays to marathon dramas, surviving the festival and the Fringe isn’t about finding a common thread — it’s about surrendering to the chaos.`\
 https://www.nytimes.com/2026/08/20/theater/edinburgh-festival-fringe.html
-
-**‘It Ends’ Review: On the Road to Nowhere**\
-`A taut, efficient thriller about four recent graduates on a road trip delivers existential dread.`\
-https://www.nytimes.com/2026/08/20/movies/it-ends-review.html
 
