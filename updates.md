@@ -1,3 +1,11 @@
+**Trump Officials Impose More Sanctions to Pressure Cuba**\
+`Human rights experts have said that the U.S. attempts to squeeze Cuba’s economy, including an oil blockade, have caused a severe humanitarian crisis.`\
+https://www.nytimes.com/2026/08/20/us/politics/trump-officials-impose-more-sanctions-to-pressure-cuba.html
+
+**How Does Bagged Lettuce Get Contaminated With Cyclospora Anyway?**\
+`During its journey from farm to table, there are many opportunities for harmful microbes to invade.`\
+https://www.nytimes.com/interactive/2026/08/20/well/eat/bagged-lettuce-salad-cyclospora-e-coli.html
+
 **2 Hijackings in 4 Days: Somali Piracy Surges**\
 `Experts worry that the conflict in Iran and other regional dynamics are setting the stage for a Somali pirates’ comeback.`\
 https://www.nytimes.com/2026/08/20/world/africa/2-hijackings-in-4-days-somali-piracy-surges.html
