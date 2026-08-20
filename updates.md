@@ -1,3 +1,11 @@
+**2 Hijackings in 4 Days: Somali Piracy Surges**\
+`Experts worry that the conflict in Iran and other regional dynamics are setting the stage for a Somali pirates’ comeback.`\
+https://www.nytimes.com/2026/08/20/world/africa/2-hijackings-in-4-days-somali-piracy-surges.html
+
+**Cameroon’s Aging President Returns From Monthslong Stay Abroad**\
+`Paul Biya, 93, had been in Switzerland since early June. The prolonged absence stirred questions about his health and plans for succession.`\
+https://www.nytimes.com/2026/08/20/world/africa/cameroon-president-returns-from-long-stay-abroad.html
+
 **Weary U.S. Aircraft Carrier Leaves the Middle East**\
 `Also, Russia takes advantage of Ukraine’s depleted stockpile. Here’s the latest at the end of Thursday.`\
 https://www.nytimes.com/2026/08/20/briefing/aircraft-carrier-ukraine-russia-missiles.html

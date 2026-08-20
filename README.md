@@ -1,3 +1,11 @@
+**Trump Officials Impose More Sanctions to Pressure Cuba**\
+`Human rights experts have said that the U.S. attempts to squeeze Cuba’s economy, including an oil blockade, have caused a severe humanitarian crisis.`\
+https://www.nytimes.com/2026/08/20/us/politics/trump-officials-impose-more-sanctions-to-pressure-cuba.html
+
+**How Does Bagged Lettuce Get Contaminated With Cyclospora Anyway?**\
+`During its journey from farm to table, there are many opportunities for harmful microbes to invade.`\
+https://www.nytimes.com/interactive/2026/08/20/well/eat/bagged-lettuce-salad-cyclospora-e-coli.html
+
 **2 Hijackings in 4 Days: Somali Piracy Surges**\
 `Experts worry that the conflict in Iran and other regional dynamics are setting the stage for a Somali pirates’ comeback.`\
 https://www.nytimes.com/2026/08/20/world/africa/2-hijackings-in-4-days-somali-piracy-surges.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/20/style/rachel-cusk-life-of-m-natalie-portman.h
 **A Few Expert Lawyers Dominate Supreme Court Arguments, a New Study Finds**\
 `Chief Justice Roberts, once such a lawyer, has said he has mixed feelings about the trend.`\
 https://www.nytimes.com/2026/08/20/us/politics/the-docket-supreme-court-lawyers.html
-
-**FBI Agents Search Eric Swalwell’s Home as Part of Federal Sexual Assault Inquiry**\
-`Most sex crimes are prosecuted by state and local authorities. The federal agents appeared to be using civil rights statutes to scrutinize Mr. Swalwell’s conduct, a person familiar with the case said.`\
-https://www.nytimes.com/2026/08/20/us/eric-swalwell-fbi-search-home.html
-
-**Why Did Sadie Sink Wear a Red Wig in ‘Spider-Man’?**\
-`Sadie Sink, a natural redhead, wore faux red locks in her Marvel debut, leaving some viewers questioning the choice.`\
-https://www.nytimes.com/2026/08/20/style/sadie-sink-wig-spider-man-redhead.html
 
