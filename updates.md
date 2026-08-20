@@ -1,3 +1,7 @@
+**D.E.A. Joins Investigation Into Hayden Panettiere’s Death**\
+`The actress spoke candidly about her drug use and “the downfall of addiction.” The local police have said there is no evidence of foul play in her death.`\
+https://www.nytimes.com/2026/08/19/arts/television/hayden-panettiere-dea-investigation-drugs.html
+
 **Trump Threatens Economic Pain for Countries That Help Iran**\
 `The president did not specify what actions he would take, and he has on other occasions abandoned threats to dramatically escalate the war with Iran.`\
 https://www.nytimes.com/2026/08/19/us/politics/trump-sanctions-iran.html

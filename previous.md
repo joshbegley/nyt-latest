@@ -1,3 +1,7 @@
+**D.E.A. Joins Investigation Into Hayden Panettiere’s Death**\
+`The actress spoke candidly about her drug use and “the downfall of addiction.” The local police have said there is no evidence of foul play in her death.`\
+https://www.nytimes.com/2026/08/19/arts/television/hayden-panettiere-dea-investigation-drugs.html
+
 **Trump Threatens Economic Pain for Countries That Help Iran**\
 `The president did not specify what actions he would take, and he has on other occasions abandoned threats to dramatically escalate the war with Iran.`\
 https://www.nytimes.com/2026/08/19/us/politics/trump-sanctions-iran.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/19/climate/contrails-trial-atlantic-flights-clim
 **Rebel Ice Cream Files for Bankruptcy After Van Leeuwen Wins Packaging Suit**\
 `The announcement comes less than a month after a federal judge ordered Rebel to pay nearly $24 million to Van Leeuwen for copying the design of its containers.`\
 https://www.nytimes.com/2026/08/19/business/rebel-ice-cream-bankruptcy-van-leeuwen-lawsuit.html
-
-**Family Members of Sailor Aboard U.S.S. Lincoln Speak Out**\
-`The mother and husband of a sailor on the aircraft carrier Abraham Lincoln, which has been deployed to the Middle East for more than eight months, shared their concerns with The New York Times about conditions on the ship.`\
-https://www.nytimes.com/video/us/100000011096947/family-members-of-sailor-aboard-uss-lincoln-speak-out.html
 
