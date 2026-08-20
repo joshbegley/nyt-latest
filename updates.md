@@ -1,3 +1,7 @@
+****\
+`“Filipiñana” is set at a golf and country club in the Philippines.`\
+https://www.nytimes.com/video/embedded/world/asia/100000011102917/xp-land-conflicts-embed-73346.html
+
 **Harry and Meghan’s Break With Britain and Planned Return: a Timeline**\
 `The couple will remain non-working royals. It is unclear where they will live.`\
 https://www.nytimes.com/2026/08/19/world/europe/harry-meghan-uk-royals-timeline.html
