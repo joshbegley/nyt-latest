@@ -1,3 +1,7 @@
+**First U.S. Deportees to Arrive in Liberia Amid Growing Backlash**\
+`Critics in Liberia, a small West African nation, say their government has not explained why it agreed to one of the largest U.S. deportation deals, who the deportees are, or how they will be handled.`\
+https://www.nytimes.com/2026/08/20/world/africa/liberia-trump-deportations.html
+
 **Rachel Cusk on Her Novel ‘Life of M,’ Gossip and Natalie Portman**\
 `She wanted a “vacation” from herself, so she wrote a novel about a celebrity whose life bears a striking resemblance to Natalie Portman’s. Now it’s tabloid fodder.`\
 https://www.nytimes.com/2026/08/20/style/rachel-cusk-life-of-m-natalie-portman.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/08/20/opinion/trump-election-interferen
 **New York Needs 700,000 Homes. Can It Build Them?**\
 `A draft report from two city agencies estimated how much new housing the city would require in the next 10 years.`\
 https://www.nytimes.com/2026/08/20/nyregion/new-york-needs-700000-homes-can-it-build-them.html
-
-**A Simple, One-Word Trick to Turn Everyday Life Into Grand Fantasy**\
-`How “lore” turns fact into fiction — and vice versa.`\
-https://www.nytimes.com/2026/08/20/magazine/lore-language-history.html
 

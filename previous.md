@@ -1,3 +1,7 @@
+**Rachel Cusk on Her Novel ‘Life of M,’ Gossip and Natalie Portman**\
+`She wanted a “vacation” from herself, so she wrote a novel about a celebrity whose life bears a striking resemblance to Natalie Portman’s. Now it’s tabloid fodder.`\
+https://www.nytimes.com/2026/08/20/style/rachel-cusk-life-of-m-natalie-portman.html
+
 **A Few Expert Lawyers Dominate Supreme Court Arguments, a New Study Finds**\
 `Chief Justice Roberts, once such a lawyer, has said he has mixed feelings about the trend.`\
 https://www.nytimes.com/2026/08/20/us/politics/the-docket-supreme-court-lawyers.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/20/nyregion/new-york-needs-700000-homes-can-it-b
 **A Simple, One-Word Trick to Turn Everyday Life Into Grand Fantasy**\
 `How “lore” turns fact into fiction — and vice versa.`\
 https://www.nytimes.com/2026/08/20/magazine/lore-language-history.html
-
-**Homes for Sale in New York and Connecticut**\
-`This week’s properties are a three-bedroom in East Hampton, N.Y., and a four-bedroom in Stamford, Conn.`\
-https://www.nytimes.com/2026/08/20/realestate/housing-market-near-nyc.html
 
