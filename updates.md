@@ -1,3 +1,7 @@
+**Walmart Posts Slowest Sales Growth in Years as Americans Tighten Wallets**\
+`Walmart and other big U.S. retailers have warned that consumers were being cautious, even if personal balance sheets seemed healthy.`\
+https://www.nytimes.com/2026/08/20/business/walmart-target-retail-consumer-economy.html
+
 **Did Bessent Put the Fed in a Bind?**\
 `The Treasury Department’s plan for bond interventions have calmed markets. But Wall Street is worried about the fallout for inflation and more.`\
 https://www.nytimes.com/2026/08/20/business/dealbook/bessent-fed-warsh-bonds.html
