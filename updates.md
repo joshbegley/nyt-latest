@@ -1,3 +1,7 @@
+**ICE Arrests Captain in New York Boat Accident That Killed 2**\
+`A Coast Guard investigation led to the arrest of Manuel Hernandez, who had been charged with misconduct and neglect after the deaths of a mother and her child.`\
+https://www.nytimes.com/2026/08/20/nyregion/ice-arrest-boat-captain-new-york.html
+
 **Bond Market Stress Returns and Oil Rises in Edgy Day for Markets**\
 `Bond markets remained volatile, as investors assessed the geopolitical turmoil.`\
 https://www.nytimes.com/2026/08/20/business/iran-war-oil-bonds.html

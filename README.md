@@ -1,3 +1,7 @@
+**La DEA se suma a la investigación de la muerte de Hayden Panettiere**\
+`La actriz habló con franqueza sobre su consumo de drogas y la “ruina de la adicción”. La policía local ha dicho que no hay indicios de criminalidad en torno a su muerte.`\
+https://www.nytimes.com/es/2026/08/20/espanol/cultura/hayden-panettiere-dea-investigacion-drogas.html
+
 **ICE Arrests Captain in New York Boat Accident That Killed 2**\
 `A Coast Guard investigation led to the arrest of Manuel Hernandez, who had been charged with misconduct and neglect after the deaths of a mother and her child.`\
 https://www.nytimes.com/2026/08/20/nyregion/ice-arrest-boat-captain-new-york.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/20/arts/music/alabama-shakes-i-must-be-dreaming-
 **Show of Houses by Dutch Modernist Architect Shines a Light on Gem in U.S.**\
 `A riveting exhibition of photographs of homes by Gerrit Rietveld unearths a mastery, beyond furniture design, of “a new way of living.”`\
 https://www.nytimes.com/2026/08/20/arts/design/rietveld-houses-exhibition-center-for-architecture.html
-
-**Help! Lyft Charged Me $150 for Vomiting in a Car, but I Didn’t Do It.**\
-`A passenger who said he had an uneventful ride home from the airport was shocked to be hit with a cleaning fee for a mess in what appeared to be a different vehicle.`\
-https://www.nytimes.com/2026/08/20/travel/lyft-cleaning-charge.html
 
