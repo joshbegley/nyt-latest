@@ -1,3 +1,7 @@
+**Missile Barrage Shows Russia’s Doubt That Ukraine Can Defend Itself**\
+`Moscow is taking advantage of Ukraine’s depleted stock of interceptors and is intensifying attacks, worsening the civilian death toll.`\
+https://www.nytimes.com/2026/08/20/world/europe/ukraine-kyiv-missiles-russia-war.html
+
 **Homes for Sale in New York and Connecticut**\
 `This week’s properties are a three-bedroom in East Hampton, N.Y., and a four-bedroom in Stamford, Conn.`\
 https://www.nytimes.com/2026/08/20/realestate/housing-market-near-nyc.html
