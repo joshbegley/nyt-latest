@@ -1,3 +1,11 @@
+**Map: 6.7-Magnitude Earthquake Shakes Peru**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/08/20/world/americas/peru-quake-tracker.html
+
+**Trump Officials Move to Fund Gaza Peacekeepers Even as Peace Plan Falters**\
+`The State Department informed Congress of its intent to fund the stabilization force on the same day the president’s Board of Peace announced a plan to disarm Hamas.`\
+https://www.nytimes.com/2026/08/20/us/politics/gaza-peacekeepers-funding.html
+
 **She Lobbied for Police Officers. Now She’s a Suspect in One’s Death.**\
 `A Massachusetts woman who was known as an advocate for the mental health of emergency workers is being sought by the police after her husband, an officer, was found dead.`\
 https://www.nytimes.com/2026/08/20/us/police-shooting-karen-solomon-kurt-worcester.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/20/crosswords/strands-sidekick-901.html
 **Today’s Wordle Hints for August 21, 2026**\
 `Scroll down for hints and conversation about the puzzle for Friday, Aug. 21, 2026.`\
 https://www.nytimes.com/2026/08/20/crosswords/wordle-review-1889.html
-
-**Missile Barrage Shows Russia’s Doubt That Ukraine Can Defend Itself**\
-`Moscow is taking advantage of Ukraine’s depleted stock of interceptors and is intensifying attacks, worsening the civilian death toll.`\
-https://www.nytimes.com/2026/08/20/world/europe/ukraine-kyiv-missiles-russia-war.html
-
-**Bare Grocery Shelves Are a New Wartime Hardship for Ukrainians**\
-`After years of pounding power plants and cities, Russia’s air war has taken aim at Ukraine’s supermarket warehouses.`\
-https://www.nytimes.com/2026/08/20/world/europe/ukraine-grocery-stores-shortages.html
 

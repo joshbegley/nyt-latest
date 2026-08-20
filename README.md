@@ -1,3 +1,7 @@
+**Mapa: un terremoto de magnitud 6,7 sacude Perú**\
+`Mira la localización del epicentro del sismo y el área de movimiento.`\
+https://www.nytimes.com/interactive/2026/08/20/espanol/terremoto-peru-ayacucho.html
+
 **Map: 6.7-Magnitude Earthquake Shakes Peru**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/08/20/world/americas/peru-quake-tracker.html
@@ -6,7 +10,7 @@ https://www.nytimes.com/interactive/2026/08/20/world/americas/peru-quake-tracker
 `The State Department informed Congress of its intent to fund the stabilization force on the same day the president’s Board of Peace announced a plan to disarm Hamas.`\
 https://www.nytimes.com/2026/08/20/us/politics/gaza-peacekeepers-funding.html
 
-**She Lobbied for Police Officers. Now She’s a Suspect in One’s Death.**\
+**Massachusetts Police Search for Karen Solomon in Connection to Husband’s Death**\
 `A Massachusetts woman who was known as an advocate for the mental health of emergency workers is being sought by the police after her husband, an officer, was found dead.`\
 https://www.nytimes.com/2026/08/20/us/police-shooting-karen-solomon-kurt-worcester.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/20/crosswords/connections-companion-1167.html
 **NYT Strands Hints for August 21, 2026**\
 `Scroll down for hints and conversation about the puzzle for Friday, Aug. 21, 2026.`\
 https://www.nytimes.com/2026/08/20/crosswords/strands-sidekick-901.html
-
-**Today’s Wordle Hints for August 21, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, Aug. 21, 2026.`\
-https://www.nytimes.com/2026/08/20/crosswords/wordle-review-1889.html
 

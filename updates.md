@@ -1,3 +1,11 @@
+**Map: 6.7-Magnitude Earthquake Shakes Peru**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/08/20/world/americas/peru-quake-tracker.html
+
+**Trump Officials Move to Fund Gaza Peacekeepers Even as Peace Plan Falters**\
+`The State Department informed Congress of its intent to fund the stabilization force on the same day the president’s Board of Peace announced a plan to disarm Hamas.`\
+https://www.nytimes.com/2026/08/20/us/politics/gaza-peacekeepers-funding.html
+
 **She Lobbied for Police Officers. Now She’s a Suspect in One’s Death.**\
 `A Massachusetts woman who was known as an advocate for the mental health of emergency workers is being sought by the police after her husband, an officer, was found dead.`\
 https://www.nytimes.com/2026/08/20/us/police-shooting-karen-solomon-kurt-worcester.html
