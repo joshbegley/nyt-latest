@@ -1,3 +1,19 @@
+**Woman Arrested in Plot to Detonate Bomb in New York State Capitol**\
+`The woman had ties or pledged allegiance to the Islamic State, according to two people with knowledge of the matter. It was unclear how far along she was in planning an attack.`\
+https://www.nytimes.com/2026/08/20/nyregion/albany-isis-plot-bomb-capitol.html
+
+**In a Big Year for Progressives, Here’s Why These Moderates Won Their Primaries**\
+`At times this year, the Democratic Party’s centrist wing has felt under siege from the left. But it has won several tough primaries recently.`\
+https://www.nytimes.com/2026/08/20/us/politics/democrats-primary-election-moderates-progressives.html
+
+**Great Actors Are More Believable Than Democrats**\
+`Democrats often don’t sound as if they believe themselves. To fix that, they should listen more to acting teachers and less to pollsters.`\
+https://www.nytimes.com/2026/08/20/opinion/democrats-polls-acting-playbook.html
+
+**As Iran and U.S. Settle Into an Uneasy Standoff, Who Will Blink First?**\
+`For weeks, there has been no diplomatic progress, but also no full-scale fighting, as each side seems to believe it can hold out longer than the other.`\
+https://www.nytimes.com/2026/08/20/world/middleeast/iran-us-war-standoff-hormuz.html
+
 **Canada and U.S. Resume Talks Over Trump Tariffs as a New Deadline Looms**\
 `While President Trump has declared that the two countries effectively have a deal, they remain apart on several key issues.`\
 https://www.nytimes.com/2026/08/20/world/canada/trump-carney-tariffs-trade-deal.html

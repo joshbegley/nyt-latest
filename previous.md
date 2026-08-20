@@ -1,3 +1,11 @@
+**Woman Arrested in Plot to Detonate Bomb in New York State Capitol**\
+`The woman had ties or pledged allegiance to the Islamic State, according to two people with knowledge of the matter. It was unclear how far along she was in planning an attack.`\
+https://www.nytimes.com/2026/08/20/nyregion/albany-isis-plot-bomb-capitol.html
+
+**In a Big Year for Progressives, Here’s Why These Moderates Won Their Primaries**\
+`At times this year, the Democratic Party’s centrist wing has felt under siege from the left. But it has won several tough primaries recently.`\
+https://www.nytimes.com/2026/08/20/us/politics/democrats-primary-election-moderates-progressives.html
+
 **Canada and U.S. Resume Talks Over Trump Tariffs as a New Deadline Looms**\
 `While President Trump has declared that the two countries effectively have a deal, they remain apart on several key issues.`\
 https://www.nytimes.com/2026/08/20/world/canada/trump-carney-tariffs-trade-deal.html
@@ -58,7 +66,7 @@ https://www.nytimes.com/2026/08/20/briefing/today-in-short.html
 `Shrimp and tofu sliders, to be exact — that mashed tofu adds extra protein and, along with miso-sesame mayo, keeps the patties from drying out.`\
 https://www.nytimes.com/2026/08/20/dining/going-big-on-shrimp-sliders.html
 
-**Why Democrats Should Go to Acting Class**\
+**Great Actors Are More Believable Than Democrats**\
 `Democrats often don’t sound as if they believe themselves. To fix that, they should listen more to acting teachers and less to pollsters.`\
 https://www.nytimes.com/2026/08/20/opinion/democrats-polls-acting-playbook.html
 
@@ -183,18 +191,10 @@ https://www.nytimes.com/2026/08/20/podcasts/cannonball-anita-baker-rapture.html
 https://www.nytimes.com/2026/08/20/business/moderna-cancer-melanoma.html
 
 **As Iran and U.S. Settle Into an Uneasy Standoff, Who Will Blink First?**\
-`For weeks, there has been no diplomatic progress, but also no full-scale fighting, as both sides seem to believe they can hold out longer than the other.`\
+`For weeks, there has been no diplomatic progress, but also no full-scale fighting, as each side seems to believe it can hold out longer than the other.`\
 https://www.nytimes.com/2026/08/20/world/middleeast/iran-us-war-standoff-hormuz.html
 
 **Ken Paxton’s $1,000 Pen Incident Resurfaces in Texas Senate Race**\
 `The pen Mr. Paxton pocketed more than a decade ago has resurfaced as a campaign issue.`\
 https://www.nytimes.com/2026/08/20/us/ken-paxton-montblanc-pen.html
-
-**Can We Do Anything About Tick-Borne Diseases Like Alpha-Gal Syndrome?**\
-`A scientific and civilizational horror story.`\
-https://www.nytimes.com/2026/08/20/magazine/tick-season-lone-star-alpha-gal-syndrome-lyme.html
-
-**Corrections: Aug. 20, 2026**\
-`Corrections that appeared in print on Thursday, Aug. 20, 2026.`\
-https://www.nytimes.com/2026/08/20/pageoneplus/corrections-aug-20-2026.html
 
