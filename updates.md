@@ -1,3 +1,7 @@
+**Why Your Next Long-Haul Layover May Be in Seoul, Not Dubai**\
+`The Iran war has slashed transit traffic at Middle Eastern airports, creating opportunities for hubs in Asia and beyond — at least for now.`\
+https://www.nytimes.com/2026/08/20/world/asia/iran-war-asia-airports-dubai.html
+
 **La confusa relación arancelaria entre Trump y Canadá**\
 `Tras una extensión del plazo, las últimas amenazas arancelarias de EE. UU. parecían encaminarse hacia una resolución el miércoles, pero persistían las dudas sobre a qué renunciaría Canadá y qué obtendría a cambio.`\
 https://www.nytimes.com/es/2026/08/20/espanol/mundo/aranceles-trump-canada.html

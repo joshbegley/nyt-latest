@@ -1,3 +1,7 @@
+**Why Your Next Long-Haul Layover May Be in Seoul, Not Dubai**\
+`The Iran war has slashed transit traffic at Middle Eastern airports, creating opportunities for hubs in Asia and beyond — at least for now.`\
+https://www.nytimes.com/2026/08/20/world/asia/iran-war-asia-airports-dubai.html
+
 **La confusa relación arancelaria entre Trump y Canadá**\
 `Tras una extensión del plazo, las últimas amenazas arancelarias de EE. UU. parecían encaminarse hacia una resolución el miércoles, pero persistían las dudas sobre a qué renunciaría Canadá y qué obtendría a cambio.`\
 https://www.nytimes.com/es/2026/08/20/espanol/mundo/aranceles-trump-canada.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/19/nyregion/mamdani-ny-city-council-lawsuit-teac
 **NASA’s Attempt to Save the Swift Telescope Has Failed**\
 `NASA’s Swift Observatory, which studies some of the most powerful explosions in the universe, will soon burn up in the atmosphere.`\
 https://www.nytimes.com/2026/08/19/science/nasa-swift-telescope-failed-rescue.html
-
-**Derrick Parker, Known as New York’s ‘Hip-Hop Cop,’ Dies at 65**\
-`A veteran detective with deep connections in the city’s rap scene, he served as a one-man intelligence unit and liaison to the music world.`\
-https://www.nytimes.com/2026/08/19/nyregion/derrick-parker-dead.html
 
