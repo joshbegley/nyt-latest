@@ -1,3 +1,11 @@
+**Hochul’s Advice for Mamdani: Focus on New York City**\
+`In a wide-ranging interview, Gov. Kathy Hochul stressed the values she shares with Mayor Zohran Mamdani and talked about President Trump, taxes and ICE.`\
+https://www.nytimes.com/2026/08/20/nyregion/hochul-mamdani-israel-new-york.html
+
+**Climate: Saving Old Trees Might Save Lives**\
+`We know that trees are good for cities. A new study finds that mature trees are especially good.`\
+https://www.nytimes.com/2026/08/20/climate/climate-saving-old-trees-might-save-lives.html
+
 **Mapa: un terremoto de magnitud 6,7 sacude Perú**\
 `Mira la localización del epicentro del sismo y el área de movimiento.`\
 https://www.nytimes.com/interactive/2026/08/20/espanol/terremoto-peru-ayacucho.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/20/podcasts/the-daily/pete-hegseth-us-military.h
 **$40,047,425,768,420 in U.S. Debt, and an Experimental Vaccine for Skin Cancer**\
 `Plus, could tweaking flight paths reduce global warming?`\
 https://www.nytimes.com/2026/08/20/podcasts/the-headlines/us-debt-vaccine-skin-cancer.html
-
-**NYT Connections Answers for August 21, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, Aug. 21, 2026.`\
-https://www.nytimes.com/2026/08/20/crosswords/connections-companion-1167.html
-
-**NYT Strands Hints for August 21, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, Aug. 21, 2026.`\
-https://www.nytimes.com/2026/08/20/crosswords/strands-sidekick-901.html
 
