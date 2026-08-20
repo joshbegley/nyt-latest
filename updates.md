@@ -1,3 +1,7 @@
+**Trump Threatens Economic Pain Against Countries That Help Iran**\
+`The president did not specify what actions he would take, and he has on other occasions abandoned threats to dramatically escalate the war with Iran.`\
+https://www.nytimes.com/2026/08/19/us/politics/trump-sanctions-iran.html
+
 **Trump Officials Scrap Effort to Recruit Pentagon Lawyers to Represent Migrant Children**\
 `The reversal of the plan, which had not been publicly disclosed, comes amid mounting confusion about how the administration is protecting the rights of unaccompanied minors.`\
 https://www.nytimes.com/2026/08/19/us/politics/migrant-children-pentagon-lawyers.html
