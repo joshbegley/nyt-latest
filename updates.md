@@ -1,3 +1,27 @@
+**A Red Wig Upsets Fans of ‘Spider-Man’**\
+`Sadie Sink, a natural redhead, wore faux red locks in her Marvel debut, leaving some viewers questioning the choice.`\
+https://www.nytimes.com/2026/08/20/style/sadie-sink-wig-spider-man-redhead.html
+
+**Ted Striggles, Who Helped His Fellow Dancers as a Lawyer, Dies at 84**\
+`He was best known for the influential 1976 guide “Poor Dancer’s Almanac,” which aimed to help starving artists survive in New York.`\
+https://www.nytimes.com/2026/08/20/arts/dance/ted-striggles-dead.html
+
+**Ileana Cotrubas, Sensitive Soprano Known for ‘Traviata,’ Dies at 87**\
+`Able to convey the pathos of operatic heroines with her pure, expressive tone, she was also involved in prickly disputes with some directors and conductors.`\
+https://www.nytimes.com/2026/08/20/arts/music/ileana-cotrubas-dead.html
+
+**As Prince Harry and Meghan Depart California for the U.K., Their Neighbors Shrug**\
+`Prince Harry and Meghan Markle self exiled to the ultrawealthy enclave of Montecito in 2020. “They wave. They drive. They close the gates,” a neighbor said.`\
+https://www.nytimes.com/2026/08/20/us/prince-harry-meghan-montecito-california-uk.html
+
+**3 Teen Girls Knifed by Woman in Attack at Dollar Tree, Police Say**\
+`The woman, who is 44, stabbed two of the girls and slashed the third during a dispute in Brooklyn on Wednesday, the authorities said.`\
+https://www.nytimes.com/2026/08/20/nyregion/brooklyn-dollar-tree-stabbing.html
+
+**China condena a cadena perpetua al fundador de Evergrande**\
+`El castigo de Hui Ka Yan representa el final de la caída de un imperio inmobiliario cuyo colapso desató una prolongada crisis en la economía china.`\
+https://www.nytimes.com/es/2026/08/20/espanol/mundo/china-cadena-perpetua-fundador-evergrande.html
+
 **Several Big Brokerages Leave Customer Accounts Open to Theft, Senators Say**\
 `Senators Ron Wyden and Elizabeth Warren, ranking Democrats on the Finance and Banking Committees, have urged regulators to require brokerages to provide stronger customer protections.`\
 https://www.nytimes.com/2026/08/20/business/brokerage-accounts-fraud-protections.html
