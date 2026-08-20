@@ -1,3 +1,11 @@
+**We’re Doing Drugs**\
+`We look at a new study about Americans’ use of cannabis.`\
+https://www.nytimes.com/2026/08/20/briefing/were-doing-drugs.html
+
+**A Prince at 26: Once-Secret Son of Belgian Royal Gains Legal Recognition**\
+`Clément Vandenkerckhove was born to Belgium’s Prince Clement before his marriage. He is now a prince himself, though he is not expected to have royal duties.`\
+https://www.nytimes.com/2026/08/20/world/prince-laurent-belgium-clement-son.html
+
 **As Harry and Meghan Plan Their Return, Britain Wonders: What Changed?**\
 `Just last year, Prince Harry said he couldn’t imagine ever bringing his family back home from America.`\
 https://www.nytimes.com/2026/08/20/world/europe/harry-meghan-britain-return.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/20/t-magazine/fashion-tailoring-texture.html
 **The App Bringing Disabled Daters Together**\
 `Many Dateability users said they were drawn to the app after negative experiences on mainstream platforms.`\
 https://www.nytimes.com/2026/08/20/well/dating-app-disabilities.html
-
-**The Teens Taking On A.I. Data Centers**\
-`Gen Z-ers are forming after-school clubs, speaking at community meetings — and sometimes wrestling with their own dependence on the technology.`\
-https://www.nytimes.com/2026/08/20/style/ai-data-centers-teens.html
-
-**A Victory Lap for the Boss of the Pebble Beach Extravaganza**\
-`The Concours d’Elegance, a showcase of some of the world’s finest cars held over the weekend, was a capstone to Sandra Button’s two decades of leading the organization that puts it on.`\
-https://www.nytimes.com/2026/08/20/business/pebble-beach-concours-sandra-button.html
 
