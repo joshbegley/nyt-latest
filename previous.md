@@ -1,3 +1,7 @@
+**She Lobbied for Police Officers. Now She’s a Suspect in One’s Death.**\
+`A Massachusetts woman who was known as an advocate for the mental health of emergency workers is being sought by the police after her husband, an officer, was found dead.`\
+https://www.nytimes.com/2026/08/20/us/police-shooting-karen-solomon-kurt-worcester.html
+
 **Books Our Editors Loved This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://www.nytimes.com/2026/08/20/books/review/20tbr-new-recommended-books.html
@@ -51,7 +55,7 @@ https://www.nytimes.com/video/podcasts/100000011097436/why-busta-rhymes-raps-ult
 https://www.nytimes.com/2026/08/20/world/africa/liberia-trump-deportations.html
 
 **Rachel Cusk on Her Novel ‘Life of M,’ Gossip and Natalie Portman**\
-`She wanted a “vacation” from herself, so she wrote a novel about a celebrity whose life bears a striking resemblance to Natalie Portman’s. Now it’s tabloid fodder.`\
+`“Life of M,” Rachel Cusk’s new book, has a protagonist with an uncanny resemblance to Natalie Portman. But in an interview, Cusk says she never expected it would cause such a frenzy.`\
 https://www.nytimes.com/2026/08/20/style/rachel-cusk-life-of-m-natalie-portman.html
 
 **A Few Expert Lawyers Dominate Supreme Court Arguments, a New Study Finds**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/20/world/europe/ukraine-kyiv-missiles-russia-war
 **Bare Grocery Shelves Are a New Wartime Hardship for Ukrainians**\
 `After years of pounding power plants and cities, Russia’s air war has taken aim at Ukraine’s supermarket warehouses.`\
 https://www.nytimes.com/2026/08/20/world/europe/ukraine-grocery-stores-shortages.html
-
-**Cuando la depresión se resiste al tratamiento**\
-`Hay diversos factores que pueden aumentar la probabilidad de que una persona con depresión no responda a los tratamientos farmacológicos iniciales. Pero hay alternativas.`\
-https://www.nytimes.com/es/2026/08/20/espanol/depresion-resistencia-tratamiento-alternativas.html
 

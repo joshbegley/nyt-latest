@@ -1,3 +1,11 @@
+**She Lobbied for Police Officers. Now She’s a Suspect in One’s Death.**\
+`A Massachusetts woman who was known as an advocate for the mental health of emergency workers is being sought by the police after her husband, an officer, was found dead.`\
+https://www.nytimes.com/2026/08/20/us/police-shooting-karen-solomon-kurt-worcester.html
+
+**Rachel Cusk on Her Novel ‘Life of M,’ Gossip and Natalie Portman**\
+`“Life of M,” Rachel Cusk’s new book, has a protagonist with an uncanny resemblance to Natalie Portman. But in an interview, Cusk says she never expected it would cause such a frenzy.`\
+https://www.nytimes.com/2026/08/20/style/rachel-cusk-life-of-m-natalie-portman.html
+
 **Books Our Editors Loved This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://www.nytimes.com/2026/08/20/books/review/20tbr-new-recommended-books.html
