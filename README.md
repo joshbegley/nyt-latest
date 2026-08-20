@@ -58,7 +58,7 @@ https://www.nytimes.com/2026/08/20/briefing/today-in-short.html
 `Shrimp and tofu sliders, to be exact — that mashed tofu adds extra protein and, along with miso-sesame mayo, keeps the patties from drying out.`\
 https://www.nytimes.com/2026/08/20/dining/going-big-on-shrimp-sliders.html
 
-**Why Democrats Should Go to Acting Class**\
+**Great Actors Are More Believable Than Democrats**\
 `Democrats often don’t sound as if they believe themselves. To fix that, they should listen more to acting teachers and less to pollsters.`\
 https://www.nytimes.com/2026/08/20/opinion/democrats-polls-acting-playbook.html
 
