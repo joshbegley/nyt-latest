@@ -10,8 +10,8 @@ https://www.nytimes.com/2026/08/20/briefing/were-doing-drugs.html
 `Clément Vandenkerckhove was born to Belgium’s Prince Clement before his marriage. He is now a prince himself, though he is not expected to have royal duties.`\
 https://www.nytimes.com/2026/08/20/world/europe/prince-laurent-belgium-clement-son.html
 
-**As Harry and Meghan Plan Their Return, Britain Wonders: What Changed?**\
-`Just last year, Prince Harry said he couldn’t imagine ever bringing his family back home from America.`\
+**After Six Years, Harry and Meghan Are Coming Home. What Changed?**\
+`Just last year, Prince Harry said he couldn’t imagine ever bringing his family back to Britain.`\
 https://www.nytimes.com/2026/08/20/world/europe/harry-meghan-britain-return.html
 
 **Who Moves Up, and Who’s Pushed Out, in Pete Hegseth’s Military**\
@@ -110,7 +110,7 @@ https://www.nytimes.com/2026/08/20/climate/trump-california-climate.html
 `England’s Cotswolds region offers bucolic splendor, cultural riches, ancient woodlands and Neolithic monuments, not to mention excellent shopping and dining.`\
 https://www.nytimes.com/interactive/2026/08/20/travel/things-to-do-cotswolds.html
 
-**J.T. Harding on Crafting the Hits of Broadway’s ‘Music City’**\
+**J.T. Harding on Crafting the Hits of ‘Music City’**\
 `The Nashville songsmith J.T. Harding gives the lowdown on writing with Keith Urban, Uncle Kracker, Shane McAnally and more.`\
 https://www.nytimes.com/2026/08/20/theater/music-city-jt-harding-broadway.html
 
