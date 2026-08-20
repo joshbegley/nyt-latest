@@ -55,7 +55,7 @@ https://www.nytimes.com/video/podcasts/100000011097436/why-busta-rhymes-raps-ult
 https://www.nytimes.com/2026/08/20/world/africa/liberia-trump-deportations.html
 
 **Rachel Cusk on Her Novel ‘Life of M,’ Gossip and Natalie Portman**\
-`She wanted a “vacation” from herself, so she wrote a novel about a celebrity whose life bears a striking resemblance to Natalie Portman’s. Now it’s tabloid fodder.`\
+`“Life of M,” Rachel Cusk’s new book, has a protagonist with an uncanny resemblance to Natalie Portman. But in an interview, Cusk says she never expected it would cause such a frenzy.`\
 https://www.nytimes.com/2026/08/20/style/rachel-cusk-life-of-m-natalie-portman.html
 
 **A Few Expert Lawyers Dominate Supreme Court Arguments, a New Study Finds**\
