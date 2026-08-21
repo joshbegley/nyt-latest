@@ -1,3 +1,7 @@
+**Stocks and Bonds Steady at the End of a Tumultuous Week**\
+`Fears about the war in Iran, government deficits, the economy and corporate borrowing stirred global markets.`\
+https://www.nytimes.com/2026/08/21/business/stocks-bonds-oil-prices.html
+
 **U.S.S. Lincoln Begins 13,000-Mile Journey Home, and the Shortage That Could Take Down the Grid**\
 `Plus, your Friday news quiz.`\
 https://www.nytimes.com/2026/08/21/podcasts/the-headlines/uss-lincoln-power-grid-shortage.html

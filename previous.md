@@ -1,3 +1,7 @@
+**Stocks and Bonds Steady at the End of a Tumultuous Week**\
+`Fears about the war in Iran, government deficits, the economy and corporate borrowing stirred global markets.`\
+https://www.nytimes.com/2026/08/21/business/stocks-bonds-oil-prices.html
+
 **U.S.S. Lincoln Begins 13,000-Mile Journey Home, and the Shortage That Could Take Down the Grid**\
 `Plus, your Friday news quiz.`\
 https://www.nytimes.com/2026/08/21/podcasts/the-headlines/uss-lincoln-power-grid-shortage.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/insider/100000011048926/avoiding-bias-in-our-cover
 **Book Review: ‘Life of M,’ by Rachel Cusk**\
 `Though full of details that echo the life and career of Natalie Portman, “Life of M” remains chilly and abstract.`\
 https://www.nytimes.com/2026/08/21/books/review/life-of-m-rachel-cusk.html
-
-**Bryan Johnson Wants to Live Forever. But Why?**\
-`The longevity guru intensely monitors his diet and health. At a dinner party, he was asked about his quest for immortality. There was silence.`\
-https://www.nytimes.com/2026/08/21/us/bryan-johnson-biohacker-autoimmune-gastritis.html
 
