@@ -1,3 +1,7 @@
+**Small Plane Crashes in Western Alaska, Killing Eight**\
+`The Cessna aircraft was carrying two pilots, two U.S. Army engineers and four contractors to Cape Newenham from Anchorage when it crashed near a U.S. military site, investigators said.`\
+https://www.nytimes.com/2026/08/21/us/alaska-plane-crash.html
+
 **Mexican Governor, Accused by U.S. of Helping Cartel, Returns to His Job**\
 `After U.S. prosecutors accused Gov. Rubén Rocha Moya of protecting the Sinaloa cartel, he said he would step down to focus on his defense. On Friday, he declared he was back.`\
 https://www.nytimes.com/2026/08/21/world/americas/mexico-sinaloa-governor-cartels.html
