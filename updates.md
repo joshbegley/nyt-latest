@@ -1,3 +1,7 @@
+**In China’s Biggest Car Recall, Tesla and 8 Others Will Address Door Safety**\
+`China’s regulator ordered changes after vehicle occupants sometimes had difficulty exiting electric cars with retractable door handles after crashes.`\
+https://www.nytimes.com/2026/08/21/business/china-car-recall-doors.html
+
 **Busta Rhymes on His Signature ‘Speed Rapping’**\
 `Rapper Busta Rhymes sits down with Joe Coscarelli and Jon Caramanica on Popcast to discuss his decades-long career, legacy, and upcoming projects.`\
 https://www.nytimes.com/video/podcasts/100000011097437/busta-rhymes-on-his-signature-speed-rapping.html
