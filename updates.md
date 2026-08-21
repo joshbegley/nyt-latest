@@ -1,3 +1,7 @@
+**Targeted by an Islamophobic Provocateur, a City’s Muslims Are on Edge**\
+`Jake Lang has descended four times on Dearborn, Mich., which is majority Arab American. His rhetoric and protests have stirred fear among residents.`\
+https://www.nytimes.com/2026/08/20/us/politics/jake-lang-dearborn-michigan.html
+
 **Garlicky Alfredo Beans**\
 `This five-ingredient recipe transforms canned beans into a no-fuss, comforting meal that’s easy to whip together at the end of a long day.`\
 https://www.nytimes.com/video/dining/100000011104479/garlicky-alfredo-beans.html
