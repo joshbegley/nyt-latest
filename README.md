@@ -1,3 +1,7 @@
+**How New York’s Second-Home Tax Turned Into a Headache for Mamdani**\
+`The bumpy rollout of the tax created an opportunity for Mayor Zohran Mamdani’s opponents to fight him in court and in the City Council.`\
+https://www.nytimes.com/2026/08/21/nyregion/mamdani-second-home-tax-rollout.html
+
 **Machel Montano, Soca Sovereign, Takes Over Brooklyn Public Library**\
 `The career retrospective for Machel Montano, a first for a Caribbean artist, highlights his ties to New York City.`\
 https://www.nytimes.com/2026/08/21/arts/music/machel-montano-soca-brooklyn-public-library.html
@@ -35,7 +39,7 @@ https://www.nytimes.com/2026/08/21/world/europe/prince-harry-daily-mail-publishe
 https://www.nytimes.com/2026/08/21/world/europe/harry-meghan-royal-return-public-opinion.html
 
 **In China’s Biggest Car Recall, Tesla and 8 Others Will Address Door Safety**\
-`China’s regulator ordered changes after vehicle occupants sometimes had difficulty exiting electric cars with retractable door handles after crashes.`\
+`China’s regulator ordered changes after vehicle occupants sometimes had difficulty exiting electric cars, an issue that has led to lawsuits against Tesla in the United States.`\
 https://www.nytimes.com/2026/08/21/business/china-car-recall-doors.html
 
 **Busta Rhymes on His Signature ‘Speed Rapping’**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/21/world/europe/giorgia-meloni-rare-interview-ta
 **A Charming Farmhouse Kitchen Is a Celebration of Craft**\
 `Eny Lee Parker and Soren Ferguson brought an 1870s farmhouse in Connecticut back to life using scraps from its past.`\
 https://www.nytimes.com/2026/08/21/realestate/a-charming-farmhouse-kitchen-is-a-celebration-of-craft.html
-
-**Muslim Charity in Britain Faces Scrutiny for Possible Links to Hamas**\
-`British regulators are investigating Al-Khair Foundation after U.S. prosecutors accused a man affiliated with the group of funding terrorism.`\
-https://www.nytimes.com/2026/08/21/world/europe/muslim-charity-in-britain-possible-links-hamas.html
 

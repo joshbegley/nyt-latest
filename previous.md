@@ -1,3 +1,7 @@
+**Machel Montano, Soca Sovereign, Takes Over Brooklyn Public Library**\
+`The career retrospective for Machel Montano, a first for a Caribbean artist, highlights his ties to New York City.`\
+https://www.nytimes.com/2026/08/21/arts/music/machel-montano-soca-brooklyn-public-library.html
+
 **Flashback: Your Weekly History Quiz, Aug. 22, 2026**\
 `Can you sort 8 historical events?`\
 https://www.nytimes.com/interactive/2026/08/21/upshot/flashback.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/21/realestate/a-charming-farmhouse-kitchen-is-a-
 **Muslim Charity in Britain Faces Scrutiny for Possible Links to Hamas**\
 `British regulators are investigating Al-Khair Foundation after U.S. prosecutors accused a man affiliated with the group of funding terrorism.`\
 https://www.nytimes.com/2026/08/21/world/europe/muslim-charity-in-britain-possible-links-hamas.html
-
-**England’s Ancient Trees Are Dying in the Heat**\
-`Extreme temperatures and drought are adding to the stress on oak trees that have lived for hundreds of years and play a key role in the national imagination.`\
-https://www.nytimes.com/2026/08/21/world/europe/oak-trees-heat-wave-england.html
 

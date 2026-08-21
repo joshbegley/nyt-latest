@@ -1,3 +1,7 @@
+**Machel Montano, Soca Sovereign, Takes Over Brooklyn Public Library**\
+`The career retrospective for Machel Montano, a first for a Caribbean artist, highlights his ties to New York City.`\
+https://www.nytimes.com/2026/08/21/arts/music/machel-montano-soca-brooklyn-public-library.html
+
 **Flashback: Your Weekly History Quiz, Aug. 22, 2026**\
 `Can you sort 8 historical events?`\
 https://www.nytimes.com/interactive/2026/08/21/upshot/flashback.html
