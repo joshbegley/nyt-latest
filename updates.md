@@ -1,3 +1,7 @@
+**Small Plane Crashes in Western Alaska, Killing Eight**\
+`The Cessna aircraft was flying to Cape Newenham from Anchorage when it crashed near a U.S. military site, the Federal Aviation Administration said.`\
+https://www.nytimes.com/2026/08/21/us/alaska-plane-crash.html
+
 **Prison Firm Donated to Trump’s PAC After ICE Gave It $165 Million a Year in Contracts**\
 `The GEO Group has profited from the administration’s mass deportation campaign. A subsidiary donated more than $1.4 million to the president’s super PAC last month.`\
 https://www.nytimes.com/2026/08/21/us/politics/geo-group-maga-inc-donations-ice-contracts.html
