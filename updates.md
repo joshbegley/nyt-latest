@@ -1,3 +1,11 @@
+**Germany Identifies a Plot After Finding a Weapons Cache, but Names No Culprit**\
+`Officials were careful not to point a finger, after revealing what they said was a plan for a political attack, at a time when a series of destabilizing actions have been blamed on Russia.`\
+https://www.nytimes.com/2026/08/21/world/europe/germany-foreign-plot-hidden-guns.html
+
+**Case Challenging Mamdani’s Rent Freeze Is Moved to Manhattan**\
+`The ruling is a win for Mayor Zohran Mamdani, who argued that the case be heard in Manhattan and not in Staten Island where the lawsuit challenging the decision had been filed.`\
+https://www.nytimes.com/2026/08/21/nyregion/nyc-mamdani-rent-freeze-courts.html
+
 **Por qué China cree que puede resistir la presión económica de EE. UU. a Irán**\
 `Pekín puede restringir los suministros de minerales críticos de EE. UU. y tiene suficiente petróleo para soportar la pérdida del crudo iraní, dicen analistas chinos.`\
 https://www.nytimes.com/es/2026/08/21/espanol/mundo/china-iran-trump-economia-amenazas.html
