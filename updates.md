@@ -1,3 +1,15 @@
+**Can Bessent’s ‘Big Tool Kit’ Calm Bond Investors?**\
+`Treasury Secretary Scott Bessent has vowed to step up efforts to restore calm to the debt markets. So far, it’s not working out that way.`\
+https://www.nytimes.com/2026/08/21/business/dealbook/bessent-bonds-tool-kit.html
+
+**Iran Must Plan to Overcome ‘Unjust’ U.S. Sanctions, Top Tehran Official Says**\
+`Mohammad Bagher Ghalibaf, lead negotiator in talks with Washington, made the comments after President Trump vowed an “economic D-Day” against Iran.`\
+https://www.nytimes.com/2026/08/21/world/middleeast/iran-sanctions-united-states-ghalibaf.html
+
+**Electricians Love Data Centers. You Should, Too.**\
+`Electricians like data centers. Here’s why you should, too.`\
+https://www.nytimes.com/2026/08/21/opinion/data-centers-electricians-union-labor.html
+
 **‘The Headlines’ News Quiz: Aug. 21, 2026**\
 `Following the news? Tracy Mumford has some questions for you.`\
 https://www.nytimes.com/2026/08/21/podcasts/the-headlines/the-headlines-news-quiz-aug-21-2026.html
