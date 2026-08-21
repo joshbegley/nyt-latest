@@ -1,3 +1,7 @@
+**Busta Rhymes’ New Project Includes Collaborations with D’Angelo and J Dilla**\
+`Busta Rhymes spoke to Popcast about the emotional weight of creating music with the work of friends who have passed away. His new project is curated from hundreds of unreleased J Dilla beats and featuring D’Angelo.`\
+https://www.nytimes.com/video/podcasts/100000011097438/busta-rhymes-new-project-includes-collaborations-with-dangelo-and-j-dilla.html
+
 **Prince Harry and Others Told to Pay Daily Mail Publisher $13 Million**\
 `Harry and six other high-profile figures lost a privacy lawsuit against Associated Newspapers. They may eventually have to pay more than twice the initial sum, a judge said.`\
 https://www.nytimes.com/2026/08/21/world/europe/prince-harry-daily-mail-publisher-pay.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/21/podcasts/tbr-podcast-bookstore-crawl.html
 **Should You Invest in Bonds Right Now?**\
 `High-quality bonds are still safer than stocks, but they have been swinging in value, so move cautiously, our columnist says.`\
 https://www.nytimes.com/2026/08/21/business/investing-bond-market-stocks-funds.html
-
-**Why Cruise Line Are Hiking Certain Fees**\
-`Some major lines are increasing gratuities and deposit requirements, and charging more for certain packages. It’s all adding up.`\
-https://www.nytimes.com/2026/08/21/travel/cruise-lines-fees.html
 
