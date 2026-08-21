@@ -1,3 +1,11 @@
+**Neutrogena States It Made Hayden Panettiere ‘Feel Unsupported’**\
+`The actress said in an interview months before her death that the company had cut ties with her after she discussed suffering from postpartum depression.`\
+https://www.nytimes.com/2026/08/21/style/neutrogena-releases-statement-on-its-past-partnership-with-hayden-panettiere.html
+
+**Caso Rocha Moya: el gobernador acusado por EE. UU. anuncia su regreso al cargo**\
+`Rubén Rocha Moya ha dicho que es inocente y víctima de un ataque político. Días después de que la acusación formal se hiciera pública en abril, dijo que pediría una “licencia temporal” para enfocarse en su defensa.`\
+https://www.nytimes.com/es/2026/08/21/espanol/america-latina/rocha-mayo-sinaloa-regresa-cargo.html
+
 **5 Deportees Are Flown by US to Equatorial Guinea After they Resist Deplaning in Liberia**\
 `At least five of the people flown to Liberia under the Trump administration’s third-country deportation program resisted leaving the plane. They were then flown to Equatorial Guinea.`\
 https://www.nytimes.com/2026/08/21/world/africa/us-deportees-liberia-equatorial-guinea.html
