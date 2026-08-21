@@ -1,3 +1,7 @@
+**Irán y EE. UU., en un pulso de nervios sin ganador**\
+`Durante semanas no ha habido avances diplomáticos, pero tampoco enfrentamientos a gran escala porque cada bando parece creer que puede resistir más tiempo que el otro.`\
+https://www.nytimes.com/es/2026/08/21/espanol/mundo/iran-trump-estancamiento.html
+
 **Rosie O’Donnell Ends Late Night Stint With a Ditty to ‘Donny Boy’**\
 `“It’s kind of weird to think he spent more nights with me this week than Melania,” O’Donnell said of President Trump on her last night guest-hosting “Jimmy Kimmel Live.”`\
 https://www.nytimes.com/2026/08/21/arts/television/rosie-odonnell-jimmy-kimmel-trump.html
