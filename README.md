@@ -1,3 +1,7 @@
+**As Sports Get More Expensive, Will Fans Keep Paying?**\
+`Do some sports owners care more about profit than championships? Pablo Torre, host of “Pablo Torre Finds Out,” joins Natalie Kitroeff on “The Daily” to talk about the shifting business interests of professional sports.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011104017/as-sports-get-more-expensive-will-fans-keep-paying.html
+
 **Why China Thinks It Can Resist Trump’s Economic Threats on Iran**\
 `Beijing can squeeze U.S. critical mineral supplies and has enough oil to withstand the loss of Iranian crude, Chinese analysts say.`\
 https://www.nytimes.com/2026/08/21/world/asia/china-iran-trump-economic-threats.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/21/learning/word-of-the-day-plagiarize.html
 **Giorgia Meloni Cuts the Hard Right a Path to Power**\
 `In a rare interview, the onetime political outcast reflects on her route from “the uncomfortable side of history” to the threshold of leading Italy’s most durable postwar government.`\
 https://www.nytimes.com/2026/08/21/world/europe/italy-giorgia-meloni-interview-profile.html
-
-**Back-to-School Picture Books by Amy Schwartz, Sophie Blackall, Oliver Jeffers and Chris Priestley**\
-`Works by Amy Schwartz, Sophie Blackall, Oliver Jeffers and Chris Priestley show little ones what they might miss if they stay home.`\
-https://www.nytimes.com/2026/08/21/books/review/back-to-school-picture-books.html
 
