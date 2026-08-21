@@ -1,4 +1,4 @@
-**Trump Widens Beef Imports in Bid to Lower Prices**\
+**Trump Announces Move to Lift Ground Beef Tariffs in Bid to Lower Prices**\
 `Cattle ranchers have trimmed their herds in response to drought and low margins, helping push up the cost of another American staple food.`\
 https://www.nytimes.com/2026/08/21/business/economy/trump-beef-prices.html
 
