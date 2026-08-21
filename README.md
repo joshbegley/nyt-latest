@@ -1,3 +1,7 @@
+**Gazebos From Uzbekistan: The Latest Foreign Gifts in Trump’s Washington**\
+`The structures will go up in West Potomac Park, the site of President Trump’s planned National Garden of American Heroes.`\
+https://www.nytimes.com/2026/08/21/us/politics/uzbekistan-gazebos-trump.html
+
 **El académico que acusó a Jason Arday de plagio es suspendido**\
 `La Universidad de Gante en Bélgica dijo que suspendió al académico, Nathan Cofnas, en espera de una investigación.`\
 https://www.nytimes.com/es/2026/08/21/espanol/mundo/arday-muerte-cofnas-suspension.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/21/movies/new-movies-this-week-critics.html
 **Five Free Movies to Stream Now**\
 `Sprinting to the edge because they have nothing left to lose: This month’s picks include “Thief,” “Dog Day Afternoon” and “Gloria.”`\
 https://www.nytimes.com/2026/08/21/movies/five-free-movies-to-stream-now.html
-
-**Why We Can’t Resist a Great Bookstore**\
-`We visit a local New York City bookstore, dive into The Times’s new bookstore crawl series and recommend some of our favorite books about bookstores and booksellers.`\
-https://www.nytimes.com/2026/08/21/podcasts/tbr-podcast-bookstore-crawl.html
 
