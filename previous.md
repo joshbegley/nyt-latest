@@ -1,3 +1,7 @@
+**Court Slashes Award Alex Jones Was Ordered to Pay Sandy Hook Parents**\
+`An appeals court reduced the award to the parents of one victim to $6 million from $49 million, citing a Texas damages cap. The conspiracy theorist owes over $1 billion in other cases.`\
+https://www.nytimes.com/2026/08/21/us/politics/alex-jones-sandy-hook.html
+
 **Mexican Governor, Accused by U.S. of Helping Cartel, Returns to His Job**\
 `After U.S. prosecutors accused Gov. Rubén Rocha Moya of protecting the Sinaloa cartel, he said he would step down to focus on his defense. On Friday, he declared he was back.`\
 https://www.nytimes.com/2026/08/21/world/americas/mexico-sinaloa-governor-cartels.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/podcasts/100000011097437/busta-rhymes-on-his-signa
 **Un enmascarado asustaba a los habitantes de Filadelfia. Pero se metió con la mujer equivocada**\
 `Cuando Jameka Wilson se encontró con un hombre que llevaba una máscara de Halloween al estilo de Chucky, su entrenamiento de combate escénico entró en acción. Ahora es una celebridad local.`\
 https://www.nytimes.com/es/2026/08/21/espanol/estados-unidos/chucky-mascara-filadelfia.html
-
-**Today, In Short**\
-`”Lore.” Sadie Sink. And a matcha hater.`\
-https://www.nytimes.com/2026/08/21/briefing/today-in-short.html
 

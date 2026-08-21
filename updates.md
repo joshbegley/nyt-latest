@@ -1,3 +1,7 @@
+**Court Slashes Award Alex Jones Was Ordered to Pay Sandy Hook Parents**\
+`An appeals court reduced the award to the parents of one victim to $6 million from $49 million, citing a Texas damages cap. The conspiracy theorist owes over $1 billion in other cases.`\
+https://www.nytimes.com/2026/08/21/us/politics/alex-jones-sandy-hook.html
+
 **Small Plane Crashes in Western Alaska, Killing Eight**\
 `The Cessna aircraft was carrying two pilots, two U.S. Army engineers and four contractors to Cape Newenham from Anchorage when it crashed near a U.S. military site, investigators said.`\
 https://www.nytimes.com/2026/08/21/us/alaska-plane-crash.html

@@ -1,3 +1,7 @@
+**Un turista suizo es sentenciado a un año de prisión por violar el ‘Día del Silencio’ en Bali**\
+`El joven de 26 años recibió una condena de un año por parte de un tribunal en la isla turística indonesia tras desobedecer las reglas de un ritual hindú sagrado e insultarlo en Instagram.`\
+https://www.nytimes.com/es/2026/08/21/espanol/mundo/bali-indonesia-turista-carcel-silencio.html
+
 **Court Slashes Award Alex Jones Was Ordered to Pay Sandy Hook Parents**\
 `An appeals court reduced the award to the parents of one victim to $6 million from $49 million, citing a Texas damages cap. The conspiracy theorist owes over $1 billion in other cases.`\
 https://www.nytimes.com/2026/08/21/us/politics/alex-jones-sandy-hook.html
