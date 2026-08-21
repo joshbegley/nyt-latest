@@ -1,3 +1,7 @@
+**Rosie O’Donnell Ends Late Night Stint With a Ditty to ‘Donny Boy’**\
+`“It’s kind of weird to think he spent more nights with me this week than Melania,” O’Donnell said of President Trump on her last night guest-hosting “Jimmy Kimmel Live.”`\
+https://www.nytimes.com/2026/08/21/arts/television/rosie-odonnell-jimmy-kimmel-trump.html
+
 **Un derrumbe en Florida está acabando con el sueño de muchos jubilados**\
 `El terrible derrumbe del edificio Champlain Towers South en Surfside hace cinco años impulsó amplias reformas de seguridad. Pero aplicarlas, y costearlas, resulta complicado.`\
 https://www.nytimes.com/es/2026/08/21/espanol/miami-surfside-regulaciones-seguridad.html

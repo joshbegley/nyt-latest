@@ -1,3 +1,7 @@
+**Rosie O’Donnell Ends Late Night Stint With a Ditty to ‘Donny Boy’**\
+`“It’s kind of weird to think he spent more nights with me this week than Melania,” O’Donnell said of President Trump on her last night guest-hosting “Jimmy Kimmel Live.”`\
+https://www.nytimes.com/2026/08/21/arts/television/rosie-odonnell-jimmy-kimmel-trump.html
+
 **Un derrumbe en Florida está acabando con el sueño de muchos jubilados**\
 `El terrible derrumbe del edificio Champlain Towers South en Surfside hace cinco años impulsó amplias reformas de seguridad. Pero aplicarlas, y costearlas, resulta complicado.`\
 https://www.nytimes.com/es/2026/08/21/espanol/miami-surfside-regulaciones-seguridad.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/20/opinion/letters/debating-ai-in-writing.html
 **Summer in the City: The U.S. Open Awaits**\
 `Find tips and guidance for the best way to spend a day in and around Arthur Ashe Stadium for the 2026 U.S. Open.`\
 https://www.nytimes.com/2026/08/20/nyregion/summer-in-the-city-us-open.html
-
-**Maps: Tracking {{type_for_headline} }Southeast of Hawaii**\
-`See the likely path of the storm.`\
-https://www.nytimes.com/interactive/2026/08/20/weather/hawaii-storm-path-tracker.html
 
