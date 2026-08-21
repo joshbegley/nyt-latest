@@ -1,3 +1,7 @@
+**Desperation Mounts in Indiana After 10 Days Without Power**\
+`Floods from powerful thunderstorms devastated Gary, a city where a third of residents live below the poverty line. Full power restoration isn’t expected until next week.`\
+https://www.nytimes.com/2026/08/21/us/gary-indiana-power-outage.html
+
 **Swiss Tourist Sentenced to Prison After Violating ‘Day of Silence’ in Bali**\
 `The 26-year-old received a yearlong sentence from a court on the Indonesian resort island after he flouted a sacred Hindu ritual and insulted it on Instagram.`\
 https://www.nytimes.com/2026/08/21/travel/bali-swiss-tourist-nyepi.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/21/us/politics/online-gun-sales-trump.html
 **Palestinian Teenager Killed After Israeli Settlers Enter West Bank Village**\
 `Palestinian and Israeli authorities offered divergent accounts of the incident, which came as settler violence has surged across the Israeli-occupied territory.`\
 https://www.nytimes.com/2026/08/21/world/middleeast/palestinian-teenager-killed-israeli-settlers-west-bank.html
-
-**As Sports Get More Expensive, Will Fans Keep Paying?**\
-`Do some sports owners care more about profit than championships? Pablo Torre, host of “Pablo Torre Finds Out,” joins Natalie Kitroeff on “The Daily” to talk about the shifting business interests of professional sports.`\
-https://www.nytimes.com/video/podcasts/the-daily/100000011104017/as-sports-get-more-expensive-will-fans-keep-paying.html
 
