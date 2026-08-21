@@ -1,3 +1,11 @@
+**Neutrogena States It Made Hayden Panettiere ‘Feel Unsupported’**\
+`The actress said in an interview months before her death that the company had cut ties with her after she discussed suffering from postpartum depression.`\
+https://www.nytimes.com/2026/08/21/style/neutrogena-releases-statement-on-its-past-partnership-with-hayden-panettiere.html
+
+**Caso Rocha Moya: el gobernador acusado por EE. UU. anuncia su regreso al cargo**\
+`Rubén Rocha Moya ha dicho que es inocente y víctima de un ataque político. Días después de que la acusación formal se hiciera pública en abril, dijo que pediría una “licencia temporal” para enfocarse en su defensa.`\
+https://www.nytimes.com/es/2026/08/21/espanol/america-latina/rocha-mayo-sinaloa-regresa-cargo.html
+
 **TikTok Settles With U.S. Over Child Privacy Concerns for $400 Million**\
 `The Justice Department resolved a lawsuit that accused the social media company of illegally gathering children’s information.`\
 https://www.nytimes.com/2026/08/21/technology/tiktok-settlement-justice-department.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/21/arts/music/machel-montano-soca-brooklyn-publi
 **Flashback: Your Weekly History Quiz, Aug. 22, 2026**\
 `Can you sort 8 historical events?`\
 https://www.nytimes.com/interactive/2026/08/21/upshot/flashback.html
-
-**Hard Fork #208**\
-`This week we’re talking about Mark Zuckerberg’s latest essay, “The Future Is for Everyone,” which outlines his positive new vision about the potential of A.I. But do we think it’s credible? Then, Pangram’s chief executive, Max Spero, joins us to talk about the breakout success of his A.I. slop detector. And finally, it’s time for our new segment all about math — we’re Running the Numbers.`\
-https://www.nytimes.com/video/podcasts/100000011092280/hard-fork-208.html
-
-**The Slipperiness of ‘Chic’**\
-`Plus: Rachel Cusk speaks on “Life of M,” and a Supreme veteran says goodbye.`\
-https://www.nytimes.com/2026/08/21/style/chic-kinda-tiktok-trend.html
 
