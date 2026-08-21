@@ -1,3 +1,7 @@
+**Defense Rests Case in Lindsay Clancy Murder Trial**\
+`The two sides focused Friday on whether Ms. Clancy was experiencing psychosis when she strangled her three young children in 2023. Closing arguments could begin on Monday.`\
+https://www.nytimes.com/2026/08/21/us/lindsay-clancy-trial-defense.html
+
 **Jalapeño Cheddar Zucchini Bread**\
 `Thanks to its high water content, zucchini reliably delivers super-moist easy-mix breads. This zucchini loaf swings savory, confidently cheesy from sharp Cheddar with a gentle acidity and peppery heat from store-bought pickled jalapeños.`\
 https://www.nytimes.com/video/dining/100000011105662/jalapeno-cheddar-zucchini-bread.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/21/world/europe/prince-harry-daily-mail-publishe
 **‘They’re Always Going to Be Polarizing’: Britons Split on Harry and Meghan’s Return**\
 `Recent surveys suggest the broader public views both of them negatively, especially in comparison to Harry’s brother, William, and his wife, Kate.`\
 https://www.nytimes.com/2026/08/21/world/europe/harry-meghan-royal-return-public-opinion.html
-
-**In China’s Biggest Car Recall, Tesla and 8 Others Will Address Door Safety**\
-`China’s regulator ordered changes after vehicle occupants sometimes had difficulty exiting electric cars, an issue that has led to lawsuits against Tesla in the United States.`\
-https://www.nytimes.com/2026/08/21/business/china-car-recall-doors.html
 
