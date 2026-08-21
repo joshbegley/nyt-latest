@@ -1,3 +1,15 @@
+**On the Radio, Trump Has a Reunion (of Sorts) With Michael Cohen**\
+`President Trump’s former personal lawyer tried to revisit the past in a radio interview. But this was not exactly a stroll down memory lane.`\
+https://www.nytimes.com/2026/08/20/us/politics/trump-radio-michael-cohen.html
+
+**Trump Announces a New Policy for a ‘Golden Age of Space Transportation’**\
+`The policy aims to greatly increase the number of spacecraft launches and re-entries.`\
+https://www.nytimes.com/2026/08/20/science/trump-space-transportation-policy.html
+
+**2 Hijackings in 4 Days: Somali Piracy Rises**\
+`Experts worry that the conflict in Iran and other regional dynamics are setting the stage for a Somali pirates’ comeback.`\
+https://www.nytimes.com/2026/08/20/world/africa/2-hijackings-in-4-days-somali-piracy-surges.html
+
 **Duffels Full of Khat Seized at Baltimore Airport’s Baggage Claim**\
 `While Customs and Border Protection said it intercepted more than half a ton of the controlled substance, experts say far more of the East African plant makes it into the country.`\
 https://www.nytimes.com/2026/08/20/us/khat-smuggling-baltimore-airport.html

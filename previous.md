@@ -1,3 +1,11 @@
+**On the Radio, Trump Has a Reunion (of Sorts) With Michael Cohen**\
+`President Trump’s former personal lawyer tried to revisit the past in a radio interview. But this was not exactly a stroll down memory lane.`\
+https://www.nytimes.com/2026/08/20/us/politics/trump-radio-michael-cohen.html
+
+**Trump Announces a New Policy for a ‘Golden Age of Space Transportation’**\
+`The policy aims to greatly increase the number of spacecraft launches and re-entries.`\
+https://www.nytimes.com/2026/08/20/science/trump-space-transportation-policy.html
+
 **Garlicky Alfredo Beans**\
 `This five-ingredient recipe transforms canned beans into a no-fuss, comforting meal that’s easy to whip together at the end of a long day.`\
 https://www.nytimes.com/video/dining/100000011104479/garlicky-alfredo-beans.html
@@ -62,7 +70,7 @@ https://www.nytimes.com/2026/08/20/us/politics/trump-cuba-sanctions.html
 `During its journey from farm to table, there are many opportunities for harmful microbes to invade.`\
 https://www.nytimes.com/interactive/2026/08/20/well/eat/bagged-lettuce-salad-cyclospora-e-coli.html
 
-**2 Hijackings in 4 Days: Somali Piracy Surges**\
+**2 Hijackings in 4 Days: Somali Piracy Rises**\
 `Experts worry that the conflict in Iran and other regional dynamics are setting the stage for a Somali pirates’ comeback.`\
 https://www.nytimes.com/2026/08/20/world/africa/2-hijackings-in-4-days-somali-piracy-surges.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/interactive/2026/08/20/world/americas/peru-quake-tracker
 **Trump Officials Move to Fund Gaza Peacekeepers Even as Peace Plan Falters**\
 `The State Department informed Congress of its intent to fund the stabilization force on the same day the president’s Board of Peace announced a plan to disarm Hamas.`\
 https://www.nytimes.com/2026/08/20/us/politics/gaza-peacekeepers-funding.html
-
-**Massachusetts Police Search for Karen Solomon in Connection to Husband’s Death**\
-`A Massachusetts woman who was known as an advocate for the mental health of emergency workers is being sought by the police after her husband, an officer, was found dead.`\
-https://www.nytimes.com/2026/08/20/us/police-shooting-karen-solomon-kurt-worcester.html
-
-**Books Our Editors Loved This Week**\
-`Reading recommendations from critics and editors at The New York Times.`\
-https://www.nytimes.com/2026/08/20/books/review/20tbr-new-recommended-books.html
 
