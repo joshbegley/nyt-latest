@@ -1,3 +1,7 @@
+**Massachusetts’ Top Court Bars Statues of Catholic Saints at City Building**\
+`The ruling quashes a plan by the mayor of Quincy that had drawn opposition from many religious figures, as well as from residents of the racially diverse city.`\
+https://www.nytimes.com/2026/08/21/us/quincy-massachusetts-catholic-statues.html
+
 **U.S. Agreed to Pay Liberia $5 Million in Connection with Deportees, Documents Say**\
 `The Trump administration approved the payment after Liberia said it would consider taking migrants from other countries.`\
 https://www.nytimes.com/2026/08/21/us/politics/us-liberia-deportees-payment.html
