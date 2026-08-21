@@ -1,3 +1,7 @@
+**Prison Firm Donated to Trump’s PAC After ICE Gave It $165 Million a Year in Contracts**\
+`The GEO Group has profited from the administration’s mass deportation campaign. A subsidiary donated more than $1.4 million to the president’s super PAC last month.`\
+https://www.nytimes.com/2026/08/21/us/politics/geo-group-maga-inc-donations-ice-contracts.html
+
 **Mark Zuckerberg Buys an Irish Castle**\
 `One of the 21st century’s most prominent landowners has added a nearly 200-year-old estate to his holdings. Archival information says it can take “a brisk walk of 4½ minutes to reach the dining room from the kitchen.”`\
 https://www.nytimes.com/2026/08/21/world/europe/zuckerberg-castle-ireland.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/21/your-money/flood-insurance-hurricane-season.h
 **When Private Equity Comes for Your Favorite Team**\
 `Pablo Torre, the host of “Pablo Torre Finds Out,” joined Natalie Kitroeff on “The Daily” to talk about why sports may be the last great asset in the attention economy; how private equity ownership is changing who can buy a team; and what that means for ticket prices, player decisions and the emotional bond between fans and the franchises they love.`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011104008/when-private-equity-comes-for-your-favorite-team.html
-
-**Can Bessent’s ‘Big Tool Kit’ Calm Bond Investors?**\
-`Treasury Secretary Scott Bessent has vowed to step up efforts to restore calm to the debt markets. So far, it’s not working out that way.`\
-https://www.nytimes.com/2026/08/21/business/dealbook/bessent-bonds-tool-kit.html
 
