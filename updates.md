@@ -1,3 +1,7 @@
+**¿Te sientes solo? Estos 8 libros podrían ayudarte**\
+`Psicólogos, terapeutas y otros expertos comparten los libros que recomiendan a quienes tienen dificultades para conectar con los demás.`\
+https://www.nytimes.com/es/2026/08/21/espanol/libros-soledad.html
+
 **Orban’s Office, Thrown Open, Is Not the Den Hungarians Expected**\
 `The new government of Peter Magyar hoped to use the suite overlooking the Danube as evidence of an autocrat’s indulgence. The trappings fell short.`\
 https://www.nytimes.com/2026/08/21/world/europe/orbans-office-thrown-open-is-not-the-den-hungarians-expected.html

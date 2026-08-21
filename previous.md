@@ -1,3 +1,7 @@
+**¿Te sientes solo? Estos 8 libros podrían ayudarte**\
+`Psicólogos, terapeutas y otros expertos comparten los libros que recomiendan a quienes tienen dificultades para conectar con los demás.`\
+https://www.nytimes.com/es/2026/08/21/espanol/libros-soledad.html
+
 **Orban’s Office, Thrown Open, Is Not the Den Hungarians Expected**\
 `The new government of Peter Magyar hoped to use the suite overlooking the Danube as evidence of an autocrat’s indulgence. The trappings fell short.`\
 https://www.nytimes.com/2026/08/21/world/europe/orbans-office-thrown-open-is-not-the-den-hungarians-expected.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/20/business/bond-yields-tech-ai-debt.html
 **Darline Graham’s Debate Misstep Tests South Carolina’s Appetite for a Political Newcomer**\
 `The South Carolina senator has argued that her lack of political experience is a strength as she runs to succeed her late brother, Lindsey Graham. But a debate misstep has rattled some of her supporters.`\
 https://www.nytimes.com/2026/08/20/us/politics/darline-graham-debate-south-carolina.html
-
-**Trump Boasts of Declassifying Secrets, but Withholds Key Election Files From Public**\
-`Even as the White House claims to be focused on transparency, it has ignored a congressional requirement to disclose a report on foreign meddling in the 2024 election.`\
-https://www.nytimes.com/2026/08/20/us/politics/trump-2024-election-classified-files.html
 
