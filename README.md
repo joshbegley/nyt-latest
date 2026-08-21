@@ -94,7 +94,7 @@ https://www.nytimes.com/quiz/2026/08/20/learning/2026-summer-news-quiz-for-stude
 `Japan had tried to dissuade the U.S. from imposing sanctions on Tomoko Akane, president of the International Criminal Court, but the White House pressed ahead.`\
 https://www.nytimes.com/2026/08/20/world/asia/japan-trump-icc-judge-sanctions.html
 
-**An Islamophobic Provocateur Keeps Dearborn, Mich., on Edge**\
+**Targeted by an Islamophobic Provocateur, a City’s Muslims Are on Edge**\
 `Jake Lang has descended four times on Dearborn, Mich., which is majority Arab American. His rhetoric and protests have stirred fear among residents.`\
 https://www.nytimes.com/2026/08/20/us/politics/jake-lang-dearborn-michigan.html
 
