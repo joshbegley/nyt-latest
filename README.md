@@ -1,3 +1,7 @@
+**Boeing Engineers and Technicians Reject Contract Offer**\
+`The union members also authorized a potential strike if a new agreement is not reached by October.`\
+https://www.nytimes.com/2026/08/21/business/boeing-engineers-technicians-contract.html
+
 **Has Trump’s Trade Policy Achieved Any of Its Goals?**\
 `America’s trade deficit is at roughly the same level as it was during the Biden administration. So has President Trump’s trade policy achieved anything? Brad Setser, a China expert and a senior fellow at the Council on Foreign Relations, weighs in on “The Ezra Klein Show.”`\
 https://www.nytimes.com/video/opinion/100000011093720/has-trumps-trade-policy-achieved-any-of-its-goals.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/21/us/politics/uzbekistan-gazebos-trump.html
 **El académico que acusó a Jason Arday de plagio es suspendido**\
 `La Universidad de Gante en Bélgica dijo que suspendió al académico, Nathan Cofnas, en espera de una investigación.`\
 https://www.nytimes.com/es/2026/08/21/espanol/mundo/arday-muerte-cofnas-suspension.html
-
-**Busta Rhymes’ New Project Includes Collaborations with D’Angelo and J Dilla**\
-`Busta Rhymes spoke to Popcast about the emotional weight of creating music with the work of friends who have passed away. His new project is curated from hundreds of unreleased J Dilla beats and featuring D’Angelo.`\
-https://www.nytimes.com/video/podcasts/100000011097438/busta-rhymes-new-project-includes-collaborations-with-dangelo-and-j-dilla.html
 

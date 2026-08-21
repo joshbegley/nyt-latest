@@ -1,3 +1,7 @@
+**Has Trump’s Trade Policy Achieved Any of Its Goals?**\
+`America’s trade deficit is at roughly the same level as it was during the Biden administration. So has President Trump’s trade policy achieved anything? Brad Setser, a China expert and a senior fellow at the Council on Foreign Relations, weighs in on “The Ezra Klein Show.”`\
+https://www.nytimes.com/video/opinion/100000011093720/has-trumps-trade-policy-achieved-any-of-its-goals.html
+
 **Pentagon Fires Editor and Publisher of Independent Military Publication**\
 `The firings at Stars and Stripes also claimed a Middle East correspondent. They are the latest effort by the Pentagon to diminish the news outlet’s editorial independence.`\
 https://www.nytimes.com/2026/08/21/us/politics/pentagon-fires-stars-stripes-editor.html
