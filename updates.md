@@ -1,3 +1,7 @@
+**Rare Tornados Hit New York as Storm Drenches Mid-Atlantic**\
+`Tornadoes appeared in New York City and on Long Island as flooding disrupted traffic on some major highways. A tornado was also confirmed in Delaware.`\
+https://www.nytimes.com/2026/08/21/nyregion/tornado-storm-long-island-delaware.html
+
 **Irán y EE. UU., en un pulso de nervios sin ganador**\
 `Durante semanas no ha habido avances diplomáticos, pero tampoco enfrentamientos a gran escala porque cada bando parece creer que puede resistir más tiempo que el otro.`\
 https://www.nytimes.com/es/2026/08/21/espanol/mundo/iran-trump-estancamiento.html
