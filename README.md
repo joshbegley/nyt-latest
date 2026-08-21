@@ -1,6 +1,10 @@
+**5 Deportees Are Flown by US to Equatorial Guinea After they Resist Deplaning in Liberia**\
+`Five of the people flown to Liberia under the Trump administration’s third-country deportation program resisted leaving the plane. They were then flown to Equatorial Guinea.`\
+https://www.nytimes.com/2026/08/21/world/africa/us-deportees-liberia-equatorial-guinea.html
+
 **Is U.S. Open Fan Week Still Free if All the Passes Are Gone?**\
 `For the first time, fans this year must show passes to attend the tennis tournament’s free Fan Week. And registration is already closed — at least for now.`\
-https://www.nytimes.com/2026/08/21/nyregion/is-us-open-fan-week-still-free-if-all-the-passes-are-gone.html
+https://www.nytimes.com/2026/08/21/nyregion/us-open-fan-week-passes.html
 
 **Meghan of Sussex Eyes Role in Netflix Show ‘The Gentlemen’**\
 `The duchess's representatives have had exploratory talks about her joining a third season of “The Gentlemen,” two people said. Netflix has not yet ordered a third season of the show.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/21/arts/design/smithsonian-museum-american-latin
 **‘Spa Weekend’ Review: Girls Gone Wellness**\
 `Leslie Mann leads a quartet of gal pals looking for rest, relaxation and sensual massages in this raucous comedy.`\
 https://www.nytimes.com/2026/08/21/movies/spa-weekend-review.html
-
-**Trump Threatens Defamation Suit Over National Guard Report, Aiming to Intimidate a Critic**\
-`It was the latest example of President Trump’s bid to use the legal system against those who voice unflattering facts and opinions generally protected by the First Amendment.`\
-https://www.nytimes.com/2026/08/21/us/politics/trump-lawsuit-liberal-think-tank.html
 
