@@ -1,3 +1,19 @@
+**5 Deportees Are Flown by US to Equatorial Guinea After they Resist Deplaning in Liberia**\
+`Five of the people flown to Liberia under the Trump administration’s third-country deportation program resisted leaving the plane. They were then flown to Equatorial Guinea.`\
+https://www.nytimes.com/2026/08/21/world/africa/us-deportees-liberia-equatorial-guinea.html
+
+**Is U.S. Open Fan Week Still Free if All the Passes Are Gone?**\
+`For the first time, fans this year must show passes to attend the tennis tournament’s free Fan Week. And registration is already closed — at least for now.`\
+https://www.nytimes.com/2026/08/21/nyregion/us-open-fan-week-passes.html
+
+**Meghan of Sussex Eyes Role in Netflix Show ‘The Gentlemen’**\
+`The duchess's representatives have had exploratory talks about her joining a third season of “The Gentlemen,” two people said. Netflix has not yet ordered a third season of the show.`\
+https://www.nytimes.com/2026/08/21/business/meghan-sussex-the-gentlemen-netflix.html
+
+**Zambia’s Democratic Facade Fractures in Post-Election Crackdown**\
+`While the government says it is preventing an insurrection, activists and international observers have raised fears about arbitrary arrests and electoral fraud.`\
+https://www.nytimes.com/2026/08/21/world/africa/zambia-election-crackdown.html
+
 **Desperation Mounts in Indiana After 10 Days Without Power**\
 `Floods from powerful thunderstorms devastated Gary, a city where a third of residents live below the poverty line. Full power restoration isn’t expected until next week.`\
 https://www.nytimes.com/2026/08/21/us/gary-indiana-power-outage.html
