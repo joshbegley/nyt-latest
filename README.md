@@ -1,3 +1,7 @@
+**Trump Widens Beef Imports in Bid to Lower Prices**\
+`Cattle ranchers have trimmed their herds in response to drought and low margins, helping push up the cost of another American staple food.`\
+https://www.nytimes.com/2026/08/21/business/economy/trump-beef-prices.html
+
 **Canada-U.S. Tariff Talks Continue as Trump’s Midnight Deadline Looms**\
 `Canadian negotiators were in Washington to finalize a deal that would stave off new tariffs and improve the terms of existing ones, but Mark Carney faces a tough sell back home.`\
 https://www.nytimes.com/2026/08/21/world/canada/trump-carney-tariffs-trade-deal.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/21/well/more-aging-signs.html
 **Why Do We Keep Imagining a New Civil War?**\
 `Art doesn’t predict the future, but it can be an early warning system.`\
 https://www.nytimes.com/2026/08/21/opinion/civil-war-novels.html
-
-**Giorgia Meloni Has a Lot to Say: The Takeaways**\
-`The Italian prime minister is leading what will soon be the longest-lasting government in the country’s postwar history. She shows herself by turns funny and fierce in a rare interview.`\
-https://www.nytimes.com/2026/08/21/world/europe/giorgia-meloni-rare-interview-takeaways.html
 
