@@ -1,3 +1,7 @@
+**Por qué China cree que puede resistir la presión económica de EE. UU. a Irán**\
+`Pekín puede restringir los suministros de minerales críticos de EE. UU. y tiene suficiente petróleo para soportar la pérdida del crudo iraní, dicen analistas chinos.`\
+https://www.nytimes.com/es/2026/08/21/espanol/mundo/china-iran-trump-economia-amenazas.html
+
 **Trump Announces Move to Lift Ground Beef Tariffs in Bid to Lower Prices**\
 `Cattle ranchers have trimmed their herds in response to drought and low margins, helping push up the cost of another American staple food.`\
 https://www.nytimes.com/2026/08/21/business/economy/trump-beef-prices.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/21/podcasts/is-trader-joes-skin-care-actually-go
 **5 Surprising Signs of Aging**\
 `Hint: You may need to buy new shoes.`\
 https://www.nytimes.com/2026/08/21/well/more-aging-signs.html
-
-**Why Do We Keep Imagining a New Civil War?**\
-`Art doesn’t predict the future, but it can be an early warning system.`\
-https://www.nytimes.com/2026/08/21/opinion/civil-war-novels.html
 
