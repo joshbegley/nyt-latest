@@ -1,3 +1,11 @@
+**How the Woman Behind ‘The Daily Show’ Spends a Day Making Bad News Funny**\
+`Jen Flanz, who has worked on the show for nearly 30 years, plans a “laughternoon” meeting and secures the perfect candy for tapings.`\
+https://www.nytimes.com/interactive/2026/08/21/nyregion/routine-jen-flanz.html
+
+**Chief Justice Allows Trump to Continue White House Ballroom Construction, for Now**\
+`The 90,000-square-foot ballroom project has grown in size and scope, with the president’s lawyers saying it is intertwined with the renovation of an underground military bunker.`\
+https://www.nytimes.com/2026/08/21/us/politics/supreme-court-trump-ballroom.html
+
 **The Local: Drama in the Boundary Waters**\
 `William Kent Krueger talks about his thriller set in the Boundary Waters, a timely subject.`\
 https://www.nytimes.com/2026/08/21/us/the-local-boundary-waters.html

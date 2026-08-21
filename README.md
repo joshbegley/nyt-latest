@@ -1,3 +1,7 @@
+**Mark Zuckerberg Buys an Irish Castle**\
+`One of the 21st century’s most prominent landowners has added a nearly 200-year-old estate to his holdings. Archival information says it can take “a brisk walk of 4½ minutes to reach the dining room from the kitchen.”`\
+https://www.nytimes.com/2026/08/21/world/europe/zuckerberg-castle-ireland.html
+
 **How the Woman Behind ‘The Daily Show’ Spends a Day Making Bad News Funny**\
 `Jen Flanz, who has worked on the show for nearly 30 years, plans a “laughternoon” meeting and secures the perfect candy for tapings.`\
 https://www.nytimes.com/interactive/2026/08/21/nyregion/routine-jen-flanz.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/podcasts/the-daily/100000011104008/when-private-eq
 **Can Bessent’s ‘Big Tool Kit’ Calm Bond Investors?**\
 `Treasury Secretary Scott Bessent has vowed to step up efforts to restore calm to the debt markets. So far, it’s not working out that way.`\
 https://www.nytimes.com/2026/08/21/business/dealbook/bessent-bonds-tool-kit.html
-
-**‘The Headlines’ News Quiz: Aug. 21, 2026**\
-`Following the news? Tracy Mumford has some questions for you.`\
-https://www.nytimes.com/2026/08/21/podcasts/the-headlines/the-headlines-news-quiz-aug-21-2026.html
 
