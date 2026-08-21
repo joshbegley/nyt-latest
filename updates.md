@@ -1,3 +1,7 @@
+**Trump Announces Move to Lift Ground Beef Tariffs in Bid to Lower Prices**\
+`The move prompted blowback from cattle ranchers and Republicans who represent them.`\
+https://www.nytimes.com/2026/08/21/business/economy/trump-beef-prices.html
+
 **Turkey Requests Netanyahu’s Arrest, Saying Israel Abused Flotilla Activists**\
 `Turkey’s request for an Interpol ‘red notice’ came at a time of escalating tensions between the two countries.`\
 https://www.nytimes.com/2026/08/21/world/middleeast/turkey-netanyahu-arrest-israel.html
