@@ -1,3 +1,7 @@
+**Rare Tornadoes Hit New York as Storm Drenches Mid-Atlantic**\
+`Tornadoes appeared in New York City and on Long Island as flooding disrupted traffic on some major highways. A tornado was also confirmed in Delaware.`\
+https://www.nytimes.com/2026/08/21/nyregion/tornado-storm-long-island-delaware.html
+
 **Odia el matcha, pero ama la vida: así es esta estrella de TikTok de 89 años**\
 `Werner Kalecinski es una sensación de las redes sociales entre los jóvenes en Alemania. ¿Cómo pasó de ser un viudo desconsolado a ir de fiesta en un yate?`\
 https://www.nytimes.com/es/2026/08/21/espanol/mundo/estrella-tiktok-abuelo-alemania.html
