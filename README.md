@@ -1,3 +1,7 @@
+**Small Plane Crashes in Western Alaska, Killing Eight**\
+`The Cessna aircraft was flying to Cape Newenham from Anchorage when it crashed near a U.S. military site, the Federal Aviation Administration said.`\
+https://www.nytimes.com/2026/08/21/us/alaska-plane-crash.html
+
 **Prison Firm Donated to Trump’s PAC After ICE Gave It $165 Million a Year in Contracts**\
 `The GEO Group has profited from the administration’s mass deportation campaign. A subsidiary donated more than $1.4 million to the president’s super PAC last month.`\
 https://www.nytimes.com/2026/08/21/us/politics/geo-group-maga-inc-donations-ice-contracts.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/21/world/asia/china-iran-trump-economic-threats.
 **Do You Need Flood Insurance? What to Know Ahead of Peak Hurricane Season.**\
 `No hurricane-strength storms have formed yet this year in the Atlantic basin, but the limiting activity isn’t certain to continue.`\
 https://www.nytimes.com/2026/08/21/your-money/flood-insurance-hurricane-season.html
-
-**When Private Equity Comes for Your Favorite Team**\
-`Pablo Torre, the host of “Pablo Torre Finds Out,” joined Natalie Kitroeff on “The Daily” to talk about why sports may be the last great asset in the attention economy; how private equity ownership is changing who can buy a team; and what that means for ticket prices, player decisions and the emotional bond between fans and the franchises they love.`\
-https://www.nytimes.com/video/podcasts/the-daily/100000011104008/when-private-equity-comes-for-your-favorite-team.html
 
