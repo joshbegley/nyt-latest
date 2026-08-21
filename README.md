@@ -103,7 +103,7 @@ https://www.nytimes.com/2026/08/21/nyregion/nyc-mamdani-rent-freeze-courts.html
 https://www.nytimes.com/es/2026/08/21/espanol/mundo/china-iran-trump-economia-amenazas.html
 
 **Trump Announces Move to Lift Ground Beef Tariffs in Bid to Lower Prices**\
-`Cattle ranchers have trimmed their herds in response to drought and low margins, helping to push up the cost of another American staple food.`\
+`The move prompted blowback from cattle ranchers and Republicans who represent them.`\
 https://www.nytimes.com/2026/08/21/business/economy/trump-beef-prices.html
 
 **Canada-U.S. Tariff Talks Continue as Trump’s Midnight Deadline Looms**\
