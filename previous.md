@@ -1,3 +1,7 @@
+**Iran Must Plan to Overcome ‘Unjust Sanctions,’ Top Tehran Official Says**\
+`Mohammad Bagher Ghalibaf, lead negotiator in talks with the United States, made the comments after President Trump vowed an “economic D-Day” against Iran.`\
+https://www.nytimes.com/2026/08/21/world/middleeast/iran-sanctions-united-states-ghalibaf.html
+
 **A City Under Siege**\
 `We look at how dire the situation has become inside Kyiv.`\
 https://www.nytimes.com/2026/08/21/briefing/a-city-under-siege.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/21/world/americas/rare-south-american-diseases-c
 **‘Nimrods’ vs. ‘Idiots’: Can You Tell These Movies Apart?**\
 `Both R-rated comedies star Mason Thames and feature drug-fueled escapades. But the competition wasn’t intentional. Here’s what happened.`\
 https://www.nytimes.com/2026/08/21/movies/nimrods-idiots-mason-thames.html
-
-**Avoiding Bias in Our Coverage**\
-`Readers often say they’d like us to take a stand on issues, or write to correct a headline they say is flawed. Mike Abrams, a deputy editor at The New York Times, discusses the role of language in the news report.`\
-https://www.nytimes.com/video/insider/100000011048926/avoiding-bias-in-our-coverage.html
 

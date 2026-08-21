@@ -1,3 +1,7 @@
+**Iran Must Plan to Overcome ‘Unjust Sanctions,’ Top Tehran Official Says**\
+`Mohammad Bagher Ghalibaf, lead negotiator in talks with the United States, made the comments after President Trump vowed an “economic D-Day” against Iran.`\
+https://www.nytimes.com/2026/08/21/world/middleeast/iran-sanctions-united-states-ghalibaf.html
+
 **A City Under Siege**\
 `We look at how dire the situation has become inside Kyiv.`\
 https://www.nytimes.com/2026/08/21/briefing/a-city-under-siege.html
