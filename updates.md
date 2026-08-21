@@ -1,3 +1,11 @@
+**The Road Trip Movies That Will Make You Want to Hit the Road**\
+`Directors, actors and visual artists on the films they love in which it’s all about the journey.`\
+https://www.nytimes.com/2026/08/21/t-magazine/favorite-road-trip-movies.html
+
+**It’s a Greek letter and a guy’s name. What does it mean?**\
+`Take our quiz to find out.`\
+https://www.nytimes.com/quiz/2026/08/21/science/21sciencequiz-gamma-ray.html
+
 **Germany Identifies a Plot After Finding a Weapons Cache, but Names No Culprit**\
 `Officials were careful not to point a finger, after revealing what they said was a plan for a political attack, at a time when a series of destabilizing actions have been blamed on Russia.`\
 https://www.nytimes.com/2026/08/21/world/europe/germany-foreign-plot-hidden-guns.html

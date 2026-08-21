@@ -1,3 +1,7 @@
+**Dave Marsh, Rock Critic Who Loved Springsteen and Hated the Dead, Dies at 76**\
+`A passionately opinionated veteran of Creem and Rolling Stone, he was part of a generation of writers who influenced how the world saw the golden age of rock.`\
+https://www.nytimes.com/2026/08/21/arts/music/dave-marsh-dead.html
+
 **The Road Trip Movies That Will Make You Want to Hit the Road**\
 `Directors, actors and visual artists on the films they love in which it’s all about the journey.`\
 https://www.nytimes.com/2026/08/21/t-magazine/favorite-road-trip-movies.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/21/podcasts/the-headlines/uss-lincoln-power-grid
 **When Private Equity Comes for Your Favorite Team**\
 `The Los Angeles Lakers have been sold for a record $12.5 billion, the latest sign that huge pools of institutional money are flooding into professional sports.`\
 https://www.nytimes.com/2026/08/21/podcasts/the-daily/la-lakers-nba-private-equity-billionaires.html
-
-**Today’s Wordle Hints for August 22, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, Aug. 22, 2026.`\
-https://www.nytimes.com/2026/08/21/crosswords/wordle-review-1890.html
 
