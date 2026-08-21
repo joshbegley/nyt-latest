@@ -1,3 +1,7 @@
+**Confronting South Korea’s Violent Past**\
+`The National Museum of Korean Democracy`\
+https://www.nytimes.com/video/embedded/world/asia/100000011105356/confronting-south-koreas-violent-past.html
+
 **Return of Harry and Meghan to U.K. Renews Questions About Their Security Fears**\
 `The couple lost their publicly funded security after deciding to leave Britain in 2020, deepening their split with the royal family.`\
 https://www.nytimes.com/2026/08/21/world/europe/harry-meghan-uk-security.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/quiz/2026/08/20/learning/2026-summer-news-quiz-for-stude
 **Japan’s U.S. Ties Could Not Save a Top Judge From Trump’s I.C.C. Sanctions**\
 `Japan had tried to dissuade the U.S. from imposing sanctions on Tomoko Akane, president of the International Criminal Court, but the White House pressed ahead.`\
 https://www.nytimes.com/2026/08/20/world/asia/japan-trump-icc-judge-sanctions.html
-
-**Targeted by an Islamophobic Provocateur, a City’s Muslims Are on Edge**\
-`Jake Lang has descended four times on Dearborn, Mich., which is majority Arab American. His rhetoric and protests have stirred fear among residents.`\
-https://www.nytimes.com/2026/08/20/us/politics/jake-lang-dearborn-michigan.html
 

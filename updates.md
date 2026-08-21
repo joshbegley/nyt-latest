@@ -1,3 +1,7 @@
+**Confronting South Korea’s Violent Past**\
+`The National Museum of Korean Democracy`\
+https://www.nytimes.com/video/embedded/world/asia/100000011105356/confronting-south-koreas-violent-past.html
+
 **Return of Harry and Meghan to U.K. Renews Questions About Their Security Fears**\
 `The couple lost their publicly funded security after deciding to leave Britain in 2020, deepening their split with the royal family.`\
 https://www.nytimes.com/2026/08/21/world/europe/harry-meghan-uk-security.html

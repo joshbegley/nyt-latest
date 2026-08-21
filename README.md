@@ -1,3 +1,7 @@
+**Tornadoes Hit New York and Delaware**\
+`Tornadoes struck New York and Delaware on Thursday, as severe weather drenched parts of the Mid-Atlantic.`\
+https://www.nytimes.com/video/nyregion/100000011105347/tornado-storm-new-york-delaware.html
+
 **Confronting South Korea’s Violent Past**\
 `The National Museum of Korean Democracy`\
 https://www.nytimes.com/video/embedded/world/asia/100000011105356/confronting-south-koreas-violent-past.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/20/us/khat-smuggling-baltimore-airport.html
 **Summer 2026 News Quiz for Students**\
 `(No description)`\
 https://www.nytimes.com/quiz/2026/08/20/learning/2026-summer-news-quiz-for-students.html
-
-**Japan’s U.S. Ties Could Not Save a Top Judge From Trump’s I.C.C. Sanctions**\
-`Japan had tried to dissuade the U.S. from imposing sanctions on Tomoko Akane, president of the International Criminal Court, but the White House pressed ahead.`\
-https://www.nytimes.com/2026/08/20/world/asia/japan-trump-icc-judge-sanctions.html
 
