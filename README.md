@@ -1,3 +1,11 @@
+**Germany Identifies a Plot After Finding a Weapons Cache, but Names No Culprit**\
+`Officials were careful not to point a finger, after revealing what they said was a plan for a political attack, at a time when a series of destabilizing actions have been blamed on Russia.`\
+https://www.nytimes.com/2026/08/21/world/europe/germany-foreign-plot-hidden-guns.html
+
+**Case Challenging Mamdani’s Rent Freeze Is Moved to Manhattan**\
+`The ruling is a win for Mayor Zohran Mamdani, who argued that the case be heard in Manhattan and not in Staten Island where the lawsuit challenging the decision had been filed.`\
+https://www.nytimes.com/2026/08/21/nyregion/nyc-mamdani-rent-freeze-courts.html
+
 **Por qué China cree que puede resistir la presión económica de EE. UU. a Irán**\
 `Pekín puede restringir los suministros de minerales críticos de EE. UU. y tiene suficiente petróleo para soportar la pérdida del crudo iraní, dicen analistas chinos.`\
 https://www.nytimes.com/es/2026/08/21/espanol/mundo/china-iran-trump-economia-amenazas.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/08/21/crosswords/connections-companion-1168.html
 **Estas enfermedades de Sudamérica anticipan una pandemia**\
 `El ébola, el hantavirus y el patógeno que causa la covid-19 probablemente saltaron de animales a humanos. Lo mismo ocurre con estos virus en Sudamérica, y los científicos dicen que se propagan más rápido debido al cambio climático.`\
 https://www.nytimes.com/es/2026/08/21/espanol/america-latina/argentina-enfermedades-raras-pandemia.html
-
-**Is Trader Joe’s Skin care Actually Good?**\
-`We put Trader Joe’s viral skin care products to the test. Discover which $14-and-under beauty products are total game-changers and which ones you should skip.`\
-https://www.nytimes.com/2026/08/21/podcasts/is-trader-joes-skin-care-actually-good.html
-
-**5 Surprising Signs of Aging**\
-`Hint: You may need to buy new shoes.`\
-https://www.nytimes.com/2026/08/21/well/more-aging-signs.html
 

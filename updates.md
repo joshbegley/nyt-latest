@@ -1,3 +1,7 @@
+**Por qué China cree que puede resistir la presión económica de EE. UU. a Irán**\
+`Pekín puede restringir los suministros de minerales críticos de EE. UU. y tiene suficiente petróleo para soportar la pérdida del crudo iraní, dicen analistas chinos.`\
+https://www.nytimes.com/es/2026/08/21/espanol/mundo/china-iran-trump-economia-amenazas.html
+
 **Trump Announces Move to Lift Ground Beef Tariffs in Bid to Lower Prices**\
 `Cattle ranchers have trimmed their herds in response to drought and low margins, helping push up the cost of another American staple food.`\
 https://www.nytimes.com/2026/08/21/business/economy/trump-beef-prices.html
