@@ -1,3 +1,7 @@
+**Swiss Tourist Sentenced to Prison After Violating ‘Day of Silence’ in Bali**\
+`The 26-year-old received a yearlong sentence from a court on the Indonesian resort island after he flouted a sacred Hindu ritual and insulted it on Instagram.`\
+https://www.nytimes.com/2026/08/21/travel/bali-swiss-tourist-nyepi.html
+
 **Why TikTok Therapy Isn’t Psychotherapy**\
 `Readers respond to a therapist’s essay about what’s gone wrong in the field of mental health care. Also: the triumphs of ‘Cats: The Jellicle Ball.”`\
 https://www.nytimes.com/2026/08/21/opinion/letters/tiktok-isnt-psychotherapy.html
