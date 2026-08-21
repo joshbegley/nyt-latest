@@ -1,3 +1,11 @@
+**‘The Headlines’ News Quiz: Aug. 21, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://www.nytimes.com/2026/08/21/podcasts/the-headlines/the-headlines-news-quiz-aug-21-2026.html
+
+**A.I. Is Everywhere in China. See For Yourself.**\
+`Take a walk with us through Beijing, where everyday A.I. can be useful, gimmicky, or unexpectedly funny.`\
+https://www.nytimes.com/interactive/2026/08/21/world/asia/china-ai-life.html
+
 **OpenAI’s Two-Week Pause + Jill Lepore on the Threat of the “Artificial State” + Train of Thought**\
 `“It is the first time that we know of that a major lab has voluntarily slowed down.”`\
 https://www.nytimes.com/2026/08/21/podcasts/openais-two-week-pause-jill-lepore-on-the-threat-of-the-artificial-state-train-of-thought.html

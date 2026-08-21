@@ -1,3 +1,11 @@
+**‘The Headlines’ News Quiz: Aug. 21, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://www.nytimes.com/2026/08/21/podcasts/the-headlines/the-headlines-news-quiz-aug-21-2026.html
+
+**A.I. Is Everywhere in China. See For Yourself.**\
+`Take a walk with us through Beijing, where everyday A.I. can be useful, gimmicky, or unexpectedly funny.`\
+https://www.nytimes.com/interactive/2026/08/21/world/asia/china-ai-life.html
+
 **OpenAI’s Two-Week Pause + Jill Lepore on the Threat of the “Artificial State” + Train of Thought**\
 `“It is the first time that we know of that a major lab has voluntarily slowed down.”`\
 https://www.nytimes.com/2026/08/21/podcasts/openais-two-week-pause-jill-lepore-on-the-threat-of-the-artificial-state-train-of-thought.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/21/realestate/stephen-ross-west-palm-beach.html
 **The Revival of the American Chestnut**\
 `Plus: an astronomical ring, floral brooches and more from T’s cultural compendium.`\
 https://www.nytimes.com/2026/08/21/t-magazine/chestnut-cooking-dessert.html
-
-**Demna Revives Gucci’s Infamous G-String Thong**\
-`Demna, the label’s new artistic director, revived the 1990s-era G-string originally designed by Tom Ford.`\
-https://www.nytimes.com/2026/08/21/t-magazine/gucci-thong-g-string-demna.html
-
-**Rare South American Diseases Offer Clues on the Next Pandemic**\
-`Ebola virus, hantavirus and the pathogen that causes Covid-19 likely jumped from animals to humans. So do these viruses — and scientists say climate change is speeding their spread.`\
-https://www.nytimes.com/2026/08/21/world/americas/rare-south-american-diseases-climate-change-pandemics.html
 
