@@ -1,3 +1,7 @@
+**Push for Online Gun Sales Meets a Surprising Opponent: Small Gun Dealers**\
+`The Trump administration wants average Americans to be able to buy guns online and have them shipped to their doors. Small gun stores warn it could upend the industry and risk public safety.`\
+https://www.nytimes.com/2026/08/21/us/politics/online-gun-sales-trump.html
+
 **Palestinian Teenager Killed After Israeli Settlers Enter West Bank Village**\
 `Palestinian and Israeli authorities offered divergent accounts of the incident, which came as settler violence has surged across the Israeli-occupied territory.`\
 https://www.nytimes.com/2026/08/21/world/middleeast/palestinian-teenager-killed-israeli-settlers-west-bank.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/21/opinion/crime-democrats-midterms.html
 **Can She Translate a Big New York Sports Moment Into a Poster?**\
 `Eugenia Mello created art for the 2026 U.S. Open inspired by a passion for movement and color, and her own immigrant journey from Peru to Brooklyn.`\
 https://www.nytimes.com/2026/08/21/arts/design/us-open-poster-eugenia-mello.html
-
-**Word of the Day: plagiarize**\
-`This word has appeared in 41 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/08/21/learning/word-of-the-day-plagiarize.html
 
