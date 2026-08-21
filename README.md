@@ -1,3 +1,11 @@
+**Odia el matcha, pero ama la vida: así es esta estrella de TikTok de 89 años**\
+`Werner Kalecinski es una sensación de las redes sociales entre los jóvenes en Alemania. ¿Cómo pasó de ser un viudo desconsolado a ir de fiesta en un yate?`\
+https://www.nytimes.com/es/2026/08/21/espanol/mundo/estrella-tiktok-abuelo-alemania.html
+
+**Trump no sabe cómo hablarle a los brasileños**\
+`Las próximas elecciones en el país sudamericano no serán decididas por el presidente estadounidense.`\
+https://www.nytimes.com/es/2026/08/21/espanol/opinion/trump-elecciones-brasil.html
+
 **Landmarks Panel Approves Designs to Replace Parking Lot With High Rises**\
 `Local groups in the NoHo neighborhood of Manhattan opposed the plan, saying designs for two apartment buildings did not reflect the neighborhood’s historical character.`\
 https://www.nytimes.com/2026/08/21/nyregion/noho-parking-lot-apartments.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/20/us/politics/trump-nevada-voter-election-fraud
 **Senator Andy Kim Visits Migrant Detention Center After String of Detainee Deaths**\
 `Senator Andy Kim of New Jersey spoke with detainees at the Newark detention center who said they had trouble accessing medical care. Staff members there disputed that account.`\
 https://www.nytimes.com/2026/08/20/nyregion/senator-andy-kim-delaney-hall-detainee-deaths.html
-
-**Londoners React to Harry and Meghan’s Plan to Move Back to U.K.**\
-`Prince Harry and Meghan Markle are planning to move back to Britain after leaving for the United States six years ago amid a clash with other members of the British royal family.`\
-https://www.nytimes.com/video/world/europe/100000011103379/londoners-react-harry-meghan-uk-return.html
-
-**Imran Khan Is Granted Brief Hospital Visit Before Returning to Prison**\
-`The former prime minister of Pakistan, who was convicted on corruption charges, has been fighting a legal battle over his medical treatment.`\
-https://www.nytimes.com/2026/08/20/world/asia/imran-khan-hospital-pakistan.html
 
