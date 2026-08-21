@@ -1,3 +1,7 @@
+**Guide Company That Ran Fatal Ski Trip Faces Safety Fine in California**\
+`The state levied a $151,300 fine on Blackbird Mountain Guides, which took backcountry skiers into the Sierra Nevada in threatening conditions. Nine died in an avalanche.`\
+https://www.nytimes.com/2026/08/21/us/blackbird-mountain-guides-avalanche-fine.html
+
 **How to Build an Evening Skin Care Routine**\
 `Three experts share the creams, masks and other products they use before bed.`\
 https://www.nytimes.com/2026/08/21/t-magazine/evening-skin-care-routine.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/21/world/middleeast/iran-sanctions-united-states
 **A City Under Siege**\
 `We look at how dire the situation has become inside Kyiv.`\
 https://www.nytimes.com/2026/08/21/briefing/a-city-under-siege.html
-
-**Stocks and Bonds Steady at the End of a Tumultuous Week**\
-`Fears about the war in Iran, government deficits, the economy and corporate borrowing stirred global markets.`\
-https://www.nytimes.com/2026/08/21/business/stocks-bonds-oil-prices.html
 

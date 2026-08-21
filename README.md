@@ -1,3 +1,11 @@
+**The Local: Drama in the Boundary Waters**\
+`William Kent Krueger talks about his thriller set in the Boundary Waters, a timely subject.`\
+https://www.nytimes.com/2026/08/21/us/the-local-boundary-waters.html
+
+**Ex-Abercrombie C.E.O. Ruled Fit to Stand Trial in Sex Trafficking Case**\
+`A federal judge said that Michael Jeffries had shown “sufficient cognitive functioning.” His lawyers had argued that he could not understand the charges against him because of his mental state.`\
+https://www.nytimes.com/2026/08/21/nyregion/michael-jeffries-abercrombie-sex-trafficking.html
+
 **Guide Company That Ran Fatal Ski Trip Faces Safety Fine in California**\
 `The state levied a $151,300 fine on Blackbird Mountain Guides, which took backcountry skiers into the Sierra Nevada in threatening conditions. Nine died in an avalanche.`\
 https://www.nytimes.com/2026/08/21/us/blackbird-mountain-guides-avalanche-fine.html
@@ -130,8 +138,8 @@ https://www.nytimes.com/video/arts/100000011004372/kerry-washington-whoopi-goldb
 `Las amenazas del presidente Trump de un “Día D económico” envían una clara señal a Irán de que no quiere volver a la guerra.`\
 https://www.nytimes.com/es/2026/08/21/espanol/estados-unidos/trump-iran-amenazas-sanciones-economia.html
 
-**Smithsonian’s New Latino Museum May Receive an Existing Building**\
-`Changing the museum’s designated site to the Arts and Industries Building on the National Mall would bypass congressional approval.`\
+**Smithsonian Plan for Latino Museum Would Bypass Congress**\
+`The board will vote whether to house the museum in its Arts and Industries Building rather than build on a site owned by the National Park Service.`\
 https://www.nytimes.com/2026/08/21/arts/design/smithsonian-museum-american-latino-building.html
 
 **‘Spa Weekend’ Review: Girls Gone Wellness**\
@@ -185,12 +193,4 @@ https://www.nytimes.com/interactive/2026/08/21/world/asia/china-ai-life.html
 **OpenAI’s Two-Week Pause + Jill Lepore on the Threat of the “Artificial State” + Train of Thought**\
 `“It is the first time that we know of that a major lab has voluntarily slowed down.”`\
 https://www.nytimes.com/2026/08/21/podcasts/openais-two-week-pause-jill-lepore-on-the-threat-of-the-artificial-state-train-of-thought.html
-
-**Iran Must Plan to Overcome U.S. Sanctions After Trump’s ‘Economic D-Day’ Threats, Tehran Official Says**\
-`Mohammad Bagher Ghalibaf, lead negotiator in talks with Washington, made the comments after President Trump vowed an “economic D-Day” against Iran.`\
-https://www.nytimes.com/2026/08/21/world/middleeast/iran-sanctions-united-states-ghalibaf.html
-
-**A City Under Siege**\
-`We look at how dire the situation has become inside Kyiv.`\
-https://www.nytimes.com/2026/08/21/briefing/a-city-under-siege.html
 
