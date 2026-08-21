@@ -71,7 +71,7 @@ https://www.nytimes.com/2026/08/21/opinion/letters/tiktok-isnt-psychotherapy.htm
 https://www.nytimes.com/2026/08/21/world/europe/zuckerberg-castle-ireland.html
 
 **Small Plane Crashes in Western Alaska, Killing Eight**\
-`The Cessna aircraft was flying to Cape Newenham from Anchorage when it crashed near a U.S. military site, the Federal Aviation Administration said.`\
+`The Cessna aircraft was carrying two pilots, two U.S. Army engineers and four contractors to Cape Newenham from Anchorage when it crashed near a U.S. military site, investigators said.`\
 https://www.nytimes.com/2026/08/21/us/alaska-plane-crash.html
 
 **Prison Firm Donated to Trump’s PAC After ICE Gave It $165 Million a Year in Contracts**\
