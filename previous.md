@@ -1,3 +1,7 @@
+**A City Under Siege**\
+`We look at how dire the situation has become inside Kyiv.`\
+https://www.nytimes.com/2026/08/21/briefing/a-city-under-siege.html
+
 **Stocks and Bonds Steady at the End of a Tumultuous Week**\
 `Fears about the war in Iran, government deficits, the economy and corporate borrowing stirred global markets.`\
 https://www.nytimes.com/2026/08/21/business/stocks-bonds-oil-prices.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/21/movies/nimrods-idiots-mason-thames.html
 **Avoiding Bias in Our Coverage**\
 `Readers often say they’d like us to take a stand on issues, or write to correct a headline they say is flawed. Mike Abrams, a deputy editor at The New York Times, discusses the role of language in the news report.`\
 https://www.nytimes.com/video/insider/100000011048926/avoiding-bias-in-our-coverage.html
-
-**Book Review: ‘Life of M,’ by Rachel Cusk**\
-`Though full of details that echo the life and career of Natalie Portman, “Life of M” remains chilly and abstract.`\
-https://www.nytimes.com/2026/08/21/books/review/life-of-m-rachel-cusk.html
 

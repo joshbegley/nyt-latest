@@ -1,3 +1,7 @@
+**A City Under Siege**\
+`We look at how dire the situation has become inside Kyiv.`\
+https://www.nytimes.com/2026/08/21/briefing/a-city-under-siege.html
+
 **Stocks and Bonds Steady at the End of a Tumultuous Week**\
 `Fears about the war in Iran, government deficits, the economy and corporate borrowing stirred global markets.`\
 https://www.nytimes.com/2026/08/21/business/stocks-bonds-oil-prices.html
