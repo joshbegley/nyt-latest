@@ -1,3 +1,11 @@
+**Hard Fork #208**\
+`This week we’re talking about Mark Zuckerberg’s latest essay, “The Future Is for Everyone,” which outlines his positive new vision about the potential of A.I. But do we think it’s credible? Then, Pangram’s chief executive, Max Spero, joins us to talk about the breakout success of his A.I. slop detector. And finally, it’s time for our new segment all about math — we’re Running the Numbers.`\
+https://www.nytimes.com/video/podcasts/100000011092280/hard-fork-208.html
+
+**The Slipperiness of ‘Chic’**\
+`Plus: Rachel Cusk speaks on “Life of M,” and a Supreme veteran says goodbye.`\
+https://www.nytimes.com/2026/08/21/style/chic-kinda-tiktok-trend.html
+
 **Gazebos From Uzbekistan: The Latest Foreign Gifts in Trump’s Washington**\
 `The structures will go up in West Potomac Park, the site of President Trump’s planned National Garden of American Heroes.`\
 https://www.nytimes.com/2026/08/21/us/politics/uzbekistan-gazebos-trump.html

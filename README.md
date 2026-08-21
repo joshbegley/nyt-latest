@@ -1,3 +1,7 @@
+**Flashback: Your Weekly History Quiz, Aug. 22, 2026**\
+`Can you sort 8 historical events?`\
+https://www.nytimes.com/interactive/2026/08/21/upshot/flashback.html
+
 **Hard Fork #208**\
 `This week we’re talking about Mark Zuckerberg’s latest essay, “The Future Is for Everyone,” which outlines his positive new vision about the potential of A.I. But do we think it’s credible? Then, Pangram’s chief executive, Max Spero, joins us to talk about the breakout success of his A.I. slop detector. And finally, it’s time for our new segment all about math — we’re Running the Numbers.`\
 https://www.nytimes.com/video/podcasts/100000011092280/hard-fork-208.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/21/world/europe/muslim-charity-in-britain-possib
 **England’s Ancient Trees Are Dying in the Heat**\
 `Extreme temperatures and drought are adding to the stress on oak trees that have lived for hundreds of years and play a key role in the national imagination.`\
 https://www.nytimes.com/2026/08/21/world/europe/oak-trees-heat-wave-england.html
-
-**Corrections: Aug. 21, 2026**\
-`Corrections that appeared in print on Friday, Aug. 21, 2026.`\
-https://www.nytimes.com/2026/08/21/pageoneplus/corrections-aug-21-2026.html
 
