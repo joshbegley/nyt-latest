@@ -1,3 +1,7 @@
+**Storm Lashes Northeast With Heavy Rain and Spawns Tornado in Delaware**\
+`Flooding disrupted traffic in parts of New York City, Long Island and Delaware. The National Weather Service said it had detected two waterspouts off Far Rockaway in Queens.`\
+https://www.nytimes.com/2026/08/21/nyregion/tornado-storm-long-island-delaware.html
+
 **‘Please Love My Son as I Do’**\
 `The surprising ways I try to navigate my relationship with my ex-husband’s new wife.`\
 https://www.nytimes.com/2026/08/21/style/modern-love-please-love-my-son-as-i-do.html
