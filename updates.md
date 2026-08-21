@@ -1,3 +1,7 @@
+**Trump Widens Beef Imports in Bid to Lower Prices**\
+`Cattle ranchers have trimmed their herds in response to drought and low margins, helping push up the cost of another American staple food.`\
+https://www.nytimes.com/2026/08/21/business/economy/trump-beef-prices.html
+
 **Canada-U.S. Tariff Talks Continue as Trump’s Midnight Deadline Looms**\
 `Canadian negotiators were in Washington to finalize a deal that would stave off new tariffs and improve the terms of existing ones, but Mark Carney faces a tough sell back home.`\
 https://www.nytimes.com/2026/08/21/world/canada/trump-carney-tariffs-trade-deal.html
