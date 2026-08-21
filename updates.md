@@ -1,3 +1,7 @@
+**Mexican Governor, Accused by U.S. of Helping Cartel, Returns to His Job**\
+`After U.S. prosecutors accused Gov. Rubén Rocha Moya of protecting the Sinaloa cartel, he said he would step down to focus on his defense. On Friday, he declared he was back.`\
+https://www.nytimes.com/2026/08/21/world/americas/mexico-sinaloa-governor-cartels.html
+
 **Meghan of Sussex Eyes Role in Netflix Show ‘The Gentlemen’**\
 `The duchess’s representatives have had exploratory talks about her joining a third season of “The Gentlemen,” two people said. Netflix has not yet ordered a third season of the show.`\
 https://www.nytimes.com/2026/08/21/business/meghan-sussex-the-gentlemen-netflix.html
