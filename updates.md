@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Aug. 21, 2026**\
+`Adryel W. Robles Ojeda opens our solving weekend.`\
+https://www.nytimes.com/2026/08/20/crosswords/daily-puzzle-2026-08-21.html
+
 **On the Radio, Trump Has a Reunion (of Sorts) With Michael Cohen**\
 `President Trump’s former personal lawyer tried to revisit the past in a radio interview. But this was not exactly a stroll down memory lane.`\
 https://www.nytimes.com/2026/08/20/us/politics/trump-radio-michael-cohen.html
