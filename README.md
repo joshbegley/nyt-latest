@@ -26,7 +26,7 @@ https://www.nytimes.com/2026/08/21/opinion/common-good-vance-trump.html
 `Track the latest polls in the Massachusetts top-two primary initiative, known as Question 3.`\
 https://www.nytimes.com/interactive/polls/massachusetts-top-two-primary-initiative-polls-2026.html
 
-**Shein Was Fast Fashion’s Next Big Thing. Now It’s Fighting for a Second Act.**\
+**Shein, a Fast-Fashion Giant, Struggles to Grow Ahead of a Much-Delayed IPO**\
 `Facing pressure in the United States and Europe, Shein is struggling to find new ways to grow ahead of its much-delayed initial public offering.`\
 https://www.nytimes.com/2026/08/21/business/shein-ipo-questions.html
 
