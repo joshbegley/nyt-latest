@@ -1,3 +1,27 @@
+**Orban’s Office, Thrown Open, Is Not the Den Hungarians Expected**\
+`The new government of Peter Magyar hoped to use the suite overlooking the Danube as evidence of an autocrat’s indulgence. The trappings fell short.`\
+https://www.nytimes.com/2026/08/21/world/europe/orbans-office-thrown-open-is-not-the-den-hungarians-expected.html
+
+**Quote of the Day: A Region Shaped by Hardship is ‘Left in Ruins’**\
+`Quotation of the Day for Friday, August 21, 2026.`\
+https://www.nytimes.com/2026/08/21/pageoneplus/quote-of-the-day-a-region-shaped-by-hardship-is-left-in-ruins.html
+
+**A Four-Day First Date Leads to ‘I Do’**\
+`After a spontaneous road trip, and just two weeks after meeting, Alexandra Hensler and Justice Shepard made their relationship official and exchanged “I love yous.”`\
+https://www.nytimes.com/2026/08/21/style/alexandra-hensler-justice-shepard-wedding.html
+
+**They Divorced. Years Later, They Married Each Other Again.**\
+`Melanie Miguel and Michael Shiloh first married in 1990. After nearly two decades apart and many life lessons learned, they decided to do it all over again.`\
+https://www.nytimes.com/2026/08/21/style/melanie-miguel-michael-shiloh-wedding.html
+
+**He Saved Her Birthday in His Phone. Years Later, They Sent Save the Dates.**\
+`Cait Bailey and Mario Carbone, a founder of the namesake restaurant, met by chance over dinner in New York and eventually built a life together in Miami before marrying in Sicily.`\
+https://www.nytimes.com/2026/08/21/style/cait-bailey-mario-carbone-wedding.html
+
+**It Was Her First, and Last, Girlfriend**\
+`Morgan DeBrincat had never dated a woman before, so she and Sydney Davis were nervous when they connected on Hinge. “Being with her felt so natural, so I was willing to see it through,” Davis said.`\
+https://www.nytimes.com/2026/08/21/style/sydney-davis-morgan-debrincat-wedding.html
+
 ****\
 `Funnel-shaped clouds appeared over parts of Long Island, N.Y., on Thursday, spinning up debris in the area, witnesses said.`\
 https://www.nytimes.com/video/embedded/nyregion/100000011105247/21vid-xp-storm-spout-embed-66461.html

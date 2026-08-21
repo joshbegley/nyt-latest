@@ -1,3 +1,27 @@
+**Orban’s Office, Thrown Open, Is Not the Den Hungarians Expected**\
+`The new government of Peter Magyar hoped to use the suite overlooking the Danube as evidence of an autocrat’s indulgence. The trappings fell short.`\
+https://www.nytimes.com/2026/08/21/world/europe/orbans-office-thrown-open-is-not-the-den-hungarians-expected.html
+
+**Quote of the Day: A Region Shaped by Hardship is ‘Left in Ruins’**\
+`Quotation of the Day for Friday, August 21, 2026.`\
+https://www.nytimes.com/2026/08/21/pageoneplus/quote-of-the-day-a-region-shaped-by-hardship-is-left-in-ruins.html
+
+**A Four-Day First Date Leads to ‘I Do’**\
+`After a spontaneous road trip, and just two weeks after meeting, Alexandra Hensler and Justice Shepard made their relationship official and exchanged “I love yous.”`\
+https://www.nytimes.com/2026/08/21/style/alexandra-hensler-justice-shepard-wedding.html
+
+**They Divorced. Years Later, They Married Each Other Again.**\
+`Melanie Miguel and Michael Shiloh first married in 1990. After nearly two decades apart and many life lessons learned, they decided to do it all over again.`\
+https://www.nytimes.com/2026/08/21/style/melanie-miguel-michael-shiloh-wedding.html
+
+**He Saved Her Birthday in His Phone. Years Later, They Sent Save the Dates.**\
+`Cait Bailey and Mario Carbone, a founder of the namesake restaurant, met by chance over dinner in New York and eventually built a life together in Miami before marrying in Sicily.`\
+https://www.nytimes.com/2026/08/21/style/cait-bailey-mario-carbone-wedding.html
+
+**It Was Her First, and Last, Girlfriend**\
+`Morgan DeBrincat had never dated a woman before, so she and Sydney Davis were nervous when they connected on Hinge. “Being with her felt so natural, so I was willing to see it through,” Davis said.`\
+https://www.nytimes.com/2026/08/21/style/sydney-davis-morgan-debrincat-wedding.html
+
 ****\
 `Funnel-shaped clouds appeared over parts of Long Island, N.Y., on Thursday, spinning up debris in the area, witnesses said.`\
 https://www.nytimes.com/video/embedded/nyregion/100000011105247/21vid-xp-storm-spout-embed-66461.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/08/20/us/politics/darline-graham-debate-south-carol
 **Trump Boasts of Declassifying Secrets, but Withholds Key Election Files From Public**\
 `Even as the White House claims to be focused on transparency, it has ignored a congressional requirement to disclose a report on foreign meddling in the 2024 election.`\
 https://www.nytimes.com/2026/08/20/us/politics/trump-2024-election-classified-files.html
-
-**Two Binance Employees Detained in the U.A.E. Amid Police Inquiries**\
-`The detentions of the workers, who have been released, are a sign of legal pressure that the world’s largest crypto exchange faces in the Emirates, which is home to its main regulator.`\
-https://www.nytimes.com/2026/08/20/technology/two-binance-employees-detained-uae.html
-
-**Climate: Trump vs. California**\
-`At least a half-dozen federal agencies have moved to undermine the state’s environmental efforts.`\
-https://www.nytimes.com/2026/08/20/climate/climate-trump-vs-california.html
-
-**Lloyd Robertson, Unflappable Canadian Broadcaster, Dies at 92**\
-`His 41 years as a national television news anchor surpassed the tenures of Walter Cronkite and Tom Brokaw.`\
-https://www.nytimes.com/2026/08/20/business/media/lloyd-robertson-dead.html
-
-**Read the criminal complaint about a bomb plot in Albany**\
-`Federal agents and police detectives have arrested a 35-year-old woman who prosecutors say was planning to bomb the New York State Capitol, according to a criminal complaint filed in federal court on Thursday.`\
-https://www.nytimes.com/interactive/2026/08/20/nyregion/albany-bomb-criminal-complaint.html
-
-**Hochul’s Advice for Mamdani: Focus on New York City**\
-`In a wide-ranging interview, Gov. Kathy Hochul stressed the values she shares with Mayor Zohran Mamdani and talked about President Trump, taxes and ICE.`\
-https://www.nytimes.com/2026/08/20/nyregion/hochul-mamdani-israel-new-york.html
-
-**Climate: Saving Old Trees Might Save Lives**\
-`We know that trees are good for cities. A new study finds that mature trees are especially good.`\
-https://www.nytimes.com/2026/08/20/climate/climate-saving-old-trees-might-save-lives.html
 
