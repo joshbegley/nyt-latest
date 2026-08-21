@@ -1,3 +1,7 @@
+**OpenAI’s Two-Week Pause + Jill Lepore on the Threat of the “Artificial State” + Train of Thought**\
+`“It is the first time that we know of that a major lab has voluntarily slowed down.”`\
+https://www.nytimes.com/2026/08/21/podcasts/openais-two-week-pause-jill-lepore-on-the-threat-of-the-artificial-state-train-of-thought.html
+
 **Iran Must Plan to Overcome ‘Unjust Sanctions,’ Top Tehran Official Says**\
 `Mohammad Bagher Ghalibaf, lead negotiator in talks with the United States, made the comments after President Trump vowed an “economic D-Day” against Iran.`\
 https://www.nytimes.com/2026/08/21/world/middleeast/iran-sanctions-united-states-ghalibaf.html
