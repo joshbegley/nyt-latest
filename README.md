@@ -14,8 +14,8 @@ https://www.nytimes.com/es/2026/08/21/espanol/miami-surfside-regulaciones-seguri
 `With Iran exerting influence on the Strait of Hormuz, Houthi attacks on a nearby Red Sea passageway assume even greater importance for the world economy.`\
 https://www.nytimes.com/2026/08/21/opinion/houthis-iran-hormuz.html
 
-**Storm Lashes Northeast With Heavy Rain and Spawns Tornado in Delaware**\
-`Flooding disrupted traffic in parts of New York City, Long Island and Delaware. The National Weather Service said it had detected two waterspouts off Far Rockaway in Queens.`\
+**Rare Tornados Hit New York as Storm Drenches Mid-Atlantic**\
+`Tornadoes appeared in New York City and on Long Island as flooding disrupted traffic on some major highways. A tornado was also confirmed in Delaware.`\
 https://www.nytimes.com/2026/08/21/nyregion/tornado-storm-long-island-delaware.html
 
 **‘Please Love My Son as I Do’**\
