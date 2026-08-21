@@ -1,3 +1,7 @@
+**Tornadoes Hit New York and Delaware**\
+`Tornadoes struck New York and Delaware on Thursday, as severe weather drenched parts of the Mid-Atlantic.`\
+https://www.nytimes.com/video/nyregion/100000011105347/tornado-storm-new-york-delaware.html
+
 **Confronting South Korea’s Violent Past**\
 `The National Museum of Korean Democracy`\
 https://www.nytimes.com/video/embedded/world/asia/100000011105356/confronting-south-koreas-violent-past.html
