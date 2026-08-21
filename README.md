@@ -1,3 +1,7 @@
+**‘Please Love My Son as I Do’**\
+`The surprising ways I try to navigate my relationship with my ex-husband’s new wife.`\
+https://www.nytimes.com/2026/08/21/style/modern-love-please-love-my-son-as-i-do.html
+
 **¿Te sientes solo? Estos 8 libros podrían ayudarte**\
 `Psicólogos, terapeutas y otros expertos comparten los libros que recomiendan a quienes tienen dificultades para conectar con los demás.`\
 https://www.nytimes.com/es/2026/08/21/espanol/libros-soledad.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/20/dining/filipino-bakeries-nyc.html
 **How Big Tech’s A.I. Borrowing Binge Is Driving Up Bond Yields**\
 `Analysts said the recent rise in Treasury yields partly reflected investor expectations that A.I.-driven growth could keep interest rates elevated.`\
 https://www.nytimes.com/2026/08/20/business/bond-yields-tech-ai-debt.html
-
-**Darline Graham’s Debate Misstep Tests South Carolina’s Appetite for a Political Newcomer**\
-`The South Carolina senator has argued that her lack of political experience is a strength as she runs to succeed her late brother, Lindsey Graham. But a debate misstep has rattled some of her supporters.`\
-https://www.nytimes.com/2026/08/20/us/politics/darline-graham-debate-south-carolina.html
 
