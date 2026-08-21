@@ -1,3 +1,7 @@
+**Tofu Musubi**\
+`Musubis are a traditional Hawaiian snack built to travel. Often filled with grilled and glazed slices of Spam, here, the rice is topped with teriyaki glazed tofu for a vegetarian twist on the classic.`\
+https://www.nytimes.com/video/smarter-living/wirecutter/100000011105935/tofu-musubi.html
+
 **Un turista suizo es sentenciado a un año de prisión por violar el ‘Día del Silencio’ en Bali**\
 `El joven de 26 años recibió una condena de un año por parte de un tribunal en la isla turística indonesia tras desobedecer las reglas de un ritual hindú sagrado e insultarlo en Instagram.`\
 https://www.nytimes.com/es/2026/08/21/espanol/mundo/bali-indonesia-turista-carcel-silencio.html

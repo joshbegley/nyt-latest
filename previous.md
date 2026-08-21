@@ -1,3 +1,7 @@
+**Tofu Musubi**\
+`Musubis are a traditional Hawaiian snack built to travel. Often filled with grilled and glazed slices of Spam, here, the rice is topped with teriyaki glazed tofu for a vegetarian twist on the classic.`\
+https://www.nytimes.com/video/smarter-living/wirecutter/100000011105935/tofu-musubi.html
+
 **Un turista suizo es sentenciado a un año de prisión por violar el ‘Día del Silencio’ en Bali**\
 `El joven de 26 años recibió una condena de un año por parte de un tribunal en la isla turística indonesia tras desobedecer las reglas de un ritual hindú sagrado e insultarlo en Instagram.`\
 https://www.nytimes.com/es/2026/08/21/espanol/mundo/bali-indonesia-turista-carcel-silencio.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/21/business/china-car-recall-doors.html
 **Busta Rhymes on His Signature ‘Speed Rapping’**\
 `Rapper Busta Rhymes sits down with Joe Coscarelli and Jon Caramanica on Popcast to discuss his decades-long career, legacy, and upcoming projects.`\
 https://www.nytimes.com/video/podcasts/100000011097437/busta-rhymes-on-his-signature-speed-rapping.html
-
-**Un enmascarado asustaba a los habitantes de Filadelfia. Pero se metió con la mujer equivocada**\
-`Cuando Jameka Wilson se encontró con un hombre que llevaba una máscara de Halloween al estilo de Chucky, su entrenamiento de combate escénico entró en acción. Ahora es una celebridad local.`\
-https://www.nytimes.com/es/2026/08/21/espanol/estados-unidos/chucky-mascara-filadelfia.html
 
