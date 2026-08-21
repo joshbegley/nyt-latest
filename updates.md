@@ -1,3 +1,7 @@
+**U.S. Agreed to Pay Liberia $5 Million in Connection with Deportees, Documents Say**\
+`The Trump administration approved the payment after Liberia said it would consider taking migrants from other countries.`\
+https://www.nytimes.com/2026/08/21/us/politics/us-liberia-deportees-payment.html
+
 **Trump Announces Move to Lift Ground Beef Tariffs in Bid to Lower Prices**\
 `The move prompted blowback from cattle ranchers and Republicans who represent them.`\
 https://www.nytimes.com/2026/08/21/business/economy/trump-beef-prices.html

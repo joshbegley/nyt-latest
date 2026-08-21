@@ -1,3 +1,7 @@
+**U.S. Agreed to Pay Liberia $5 Million in Connection with Deportees, Documents Say**\
+`The Trump administration approved the payment after Liberia said it would consider taking migrants from other countries.`\
+https://www.nytimes.com/2026/08/21/us/politics/us-liberia-deportees-payment.html
+
 **Turkey Requests Netanyahu’s Arrest, Saying Israel Abused Flotilla Activists**\
 `Turkey’s request for an Interpol ‘red notice’ came at a time of escalating tensions between the two countries.`\
 https://www.nytimes.com/2026/08/21/world/middleeast/turkey-netanyahu-arrest-israel.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/21/business/shein-ipo-questions.html
 **Victor Niederhoffer, Trader Who Went Boom and Bust (Twice), Dies at 82**\
 `He pioneered a technique for using computers to predict short-term movements in stock prices, something that proved to be hugely lucrative — when it worked.`\
 https://www.nytimes.com/2026/08/21/business/victor-niederhoffer-dead.html
-
-**The ‘Yes’ That Changed Kerry Washington’s Career**\
-`Kerry Washington, producer of “The Whoopi Monologues,” reflects on the moments and experiences that helped shape and inspire her career.`\
-https://www.nytimes.com/video/arts/100000011004372/kerry-washington-whoopi-goldberg-monologues.html
 
