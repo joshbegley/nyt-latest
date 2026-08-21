@@ -1,3 +1,7 @@
+**Can Bessent’s ‘Big Tool Kit’ Calm Bond Investors?**\
+`Treasury Secretary Scott Bessent has vowed to step up efforts to restore calm to the debt markets. So far, it’s not working out that way.`\
+https://www.nytimes.com/2026/08/21/business/dealbook/bessent-bonds-tool-kit.html
+
 **‘The Headlines’ News Quiz: Aug. 21, 2026**\
 `Following the news? Tracy Mumford has some questions for you.`\
 https://www.nytimes.com/2026/08/21/podcasts/the-headlines/the-headlines-news-quiz-aug-21-2026.html
@@ -130,7 +134,7 @@ https://www.nytimes.com/2026/08/21/sports/sailing/carlo-borlenghi-dead.html
 `Americans say they hate prying cameras. But they can’t look away.`\
 https://www.nytimes.com/2026/08/21/magazine/flock-cameras-surveillance-state.html
 
-**Who Loves Data Centers? Electricians.**\
+**Electricians Love Data Centers. You Should, Too.**\
 `Electricians like data centers. Here’s why you should, too.`\
 https://www.nytimes.com/2026/08/21/opinion/data-centers-electricians-union-labor.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/theater/100000011065912/the-loudest-seagull-is-alm
 **How Developer Stephen Ross Is Remaking West Palm Beach**\
 `The billionaire developer is planning an astonishing number of buildings, completely remaking a working-class city.`\
 https://www.nytimes.com/2026/08/21/realestate/stephen-ross-west-palm-beach.html
-
-**The Revival of the American Chestnut**\
-`Plus: an astronomical ring, floral brooches and more from T’s cultural compendium.`\
-https://www.nytimes.com/2026/08/21/t-magazine/chestnut-cooking-dessert.html
 
