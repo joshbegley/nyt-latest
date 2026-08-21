@@ -1,3 +1,7 @@
+**Iran War Raises Risk of Collisions and Oil Spills in Strait of Hormuz**\
+`More vessels are navigating the Strait of Hormuz with their location devices turned off to evade attacks by Iran, adding to the threat of collisions.`\
+https://www.nytimes.com/2026/08/21/business/iran-war-hormuz-oil-spill.html
+
 **Can Bessent’s ‘Big Tool Kit’ Calm Bond Investors?**\
 `Treasury Secretary Scott Bessent has vowed to step up efforts to restore calm to the debt markets. So far, it’s not working out that way.`\
 https://www.nytimes.com/2026/08/21/business/dealbook/bessent-bonds-tool-kit.html

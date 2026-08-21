@@ -158,7 +158,7 @@ https://www.nytimes.com/2026/08/21/travel/swimming-holes-rivers-lakes-ponds.html
 `Samuel Tunick, who faces a felony charge for deleting his phone’s data during an airport customs search, called the government’s peering into people’s private lives “creepy.”`\
 https://www.nytimes.com/2026/08/21/us/politics/samuel-tunick-deleted-phone-felony.html
 
-**Should the Opportunity to Have a Child Be a Human Right?**\
+**When the Choice to Be Childless Is Not Your Own**\
 `What if starting a family was thought of not as a privilege, but as a fundamental right?`\
 https://www.nytimes.com/2026/08/21/opinion/fertility-family-children-human-right.html
 
