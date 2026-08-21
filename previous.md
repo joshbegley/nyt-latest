@@ -1,3 +1,11 @@
+**Busta Rhymes on His Signature ‘Speed Rapping’**\
+`Rapper Busta Rhymes sits down with Joe Coscarelli and Jon Caramanica on Popcast to discuss his decades-long career, legacy, and upcoming projects.`\
+https://www.nytimes.com/video/podcasts/100000011097437/busta-rhymes-on-his-signature-speed-rapping.html
+
+**Un enmascarado asustaba a los habitantes de Filadelfia. Pero se metió con la mujer equivocada**\
+`Cuando Jameka Wilson se encontró con un hombre que llevaba una máscara de Halloween al estilo de Chucky, su entrenamiento de combate escénico entró en acción. Ahora es una celebridad local.`\
+https://www.nytimes.com/es/2026/08/21/espanol/estados-unidos/chucky-mascara-filadelfia.html
+
 **Today, In Short**\
 `”Lore.” Sadie Sink. And a matcha hater.`\
 https://www.nytimes.com/2026/08/21/briefing/today-in-short.html
@@ -18,7 +26,7 @@ https://www.nytimes.com/2026/08/21/opinion/common-good-vance-trump.html
 `Track the latest polls in the Massachusetts top-two primary initiative, known as Question 3.`\
 https://www.nytimes.com/interactive/polls/massachusetts-top-two-primary-initiative-polls-2026.html
 
-**Shein Was Fast Fashion’s Next Big Thing. Now It’s Fighting for a Second Act.**\
+**Shein, a Fast-Fashion Giant, Struggles to Grow Ahead of a Much-Delayed IPO**\
 `Facing pressure in the United States and Europe, Shein is struggling to find new ways to grow ahead of its much-delayed initial public offering.`\
 https://www.nytimes.com/2026/08/21/business/shein-ipo-questions.html
 
@@ -185,16 +193,4 @@ https://www.nytimes.com/2026/08/21/realestate/lakeside-homes-ontario-canada.html
 **Richard Gadd Had Never Heard of the Manosphere**\
 `The creator and star of “Half Man” didn’t have a particular agenda for this dark tale of male repression. But “people think that it’s a political piece of work,” he said.`\
 https://www.nytimes.com/2026/08/21/arts/television/richard-gadd-emmys-half-man.html
-
-**3 Screws to Keep in Your Toolbox**\
-`Hardware stores carry hundreds of screw varieties, but these will suffice for many home projects.`\
-https://www.nytimes.com/2026/08/21/realestate/home-projects-screws.html
-
-**Iran War Raises Risk of Collisions and Oil Spills in Strait of Hormuz**\
-`More vessels are navigating the Strait of Hormuz with their location devices turned off to evade attacks by Iran, adding to the threat of collisions.`\
-https://www.nytimes.com/2026/08/21/business/iran-war-hormuz-oil-spill.html
-
-**At Famous Funeral Home, the Band Plays On**\
-`Frank E. Campbell, the Upper East Side funeral home that caters to the well-known, will host a performance this weekend.`\
-https://www.nytimes.com/2026/08/21/nyregion/frank-e-campbell-funeral-home-band.html
 

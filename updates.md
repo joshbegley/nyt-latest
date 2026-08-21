@@ -1,3 +1,15 @@
+**Busta Rhymes on His Signature ‘Speed Rapping’**\
+`Rapper Busta Rhymes sits down with Joe Coscarelli and Jon Caramanica on Popcast to discuss his decades-long career, legacy, and upcoming projects.`\
+https://www.nytimes.com/video/podcasts/100000011097437/busta-rhymes-on-his-signature-speed-rapping.html
+
+**Un enmascarado asustaba a los habitantes de Filadelfia. Pero se metió con la mujer equivocada**\
+`Cuando Jameka Wilson se encontró con un hombre que llevaba una máscara de Halloween al estilo de Chucky, su entrenamiento de combate escénico entró en acción. Ahora es una celebridad local.`\
+https://www.nytimes.com/es/2026/08/21/espanol/estados-unidos/chucky-mascara-filadelfia.html
+
+**Shein, a Fast-Fashion Giant, Struggles to Grow Ahead of a Much-Delayed IPO**\
+`Facing pressure in the United States and Europe, Shein is struggling to find new ways to grow ahead of its much-delayed initial public offering.`\
+https://www.nytimes.com/2026/08/21/business/shein-ipo-questions.html
+
 **Today, In Short**\
 `”Lore.” Sadie Sink. And a matcha hater.`\
 https://www.nytimes.com/2026/08/21/briefing/today-in-short.html

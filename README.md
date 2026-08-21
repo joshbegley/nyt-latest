@@ -1,3 +1,7 @@
+**In China’s Biggest Car Recall, Tesla and 8 Others Will Address Door Safety**\
+`China’s regulator ordered changes after vehicle occupants sometimes had difficulty exiting electric cars with retractable door handles after crashes.`\
+https://www.nytimes.com/2026/08/21/business/china-car-recall-doors.html
+
 **Busta Rhymes on His Signature ‘Speed Rapping’**\
 `Rapper Busta Rhymes sits down with Joe Coscarelli and Jon Caramanica on Popcast to discuss his decades-long career, legacy, and upcoming projects.`\
 https://www.nytimes.com/video/podcasts/100000011097437/busta-rhymes-on-his-signature-speed-rapping.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/21/arts/television/diarra-from-detroit-diarra-ki
 **Pick Your Favorite Lakeside Home in Ontario**\
 `A boat-in pine cabin, a peaceful waterfront cottage and a suburban townhouse, set amid the Canadian province’s sparkly lakes.`\
 https://www.nytimes.com/2026/08/21/realestate/lakeside-homes-ontario-canada.html
-
-**Richard Gadd Had Never Heard of the Manosphere**\
-`The creator and star of “Half Man” didn’t have a particular agenda for this dark tale of male repression. But “people think that it’s a political piece of work,” he said.`\
-https://www.nytimes.com/2026/08/21/arts/television/richard-gadd-emmys-half-man.html
 
