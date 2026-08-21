@@ -1,3 +1,7 @@
+**Migrantes trans en centros de detención del ICE están perdiendo sus derechos y atención médica**\
+`En ocasiones, las autoridades de EE. UU. han eliminado el acceso a tratamientos relacionados con el género y han suprimido medidas destinadas a proteger a las personas trans detenidas del acoso.`\
+https://www.nytimes.com/es/2026/08/21/espanol/estados-unidos/migrantes-trans-ice-derechos.html
+
 **Odia el matcha, pero ama la vida: así es esta estrella de TikTok de 89 años**\
 `Werner Kalecinski es una sensación de las redes sociales entre los jóvenes en Alemania. ¿Cómo pasó de ser un viudo desconsolado a ir de fiesta en un yate?`\
 https://www.nytimes.com/es/2026/08/21/espanol/mundo/estrella-tiktok-abuelo-alemania.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/20/us/politics/jake-lang-dearborn-michigan.html
 **Homeland Security Made a Big Claim About Noncitizen Voting. Now It Can’t Prove It.**\
 `The Department of Homeland Security told Nevada election officials that it identified 185 “potential” noncitizens on the state’s voter rolls, not the nearly 16,000 it claimed last month.`\
 https://www.nytimes.com/2026/08/20/us/politics/trump-nevada-voter-election-fraud.html
-
-**Senator Andy Kim Visits Migrant Detention Center After String of Detainee Deaths**\
-`Senator Andy Kim of New Jersey spoke with detainees at the Newark detention center who said they had trouble accessing medical care. Staff members there disputed that account.`\
-https://www.nytimes.com/2026/08/20/nyregion/senator-andy-kim-delaney-hall-detainee-deaths.html
 

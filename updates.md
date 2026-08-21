@@ -1,3 +1,7 @@
+**Migrantes trans en centros de detención del ICE están perdiendo sus derechos y atención médica**\
+`En ocasiones, las autoridades de EE. UU. han eliminado el acceso a tratamientos relacionados con el género y han suprimido medidas destinadas a proteger a las personas trans detenidas del acoso.`\
+https://www.nytimes.com/es/2026/08/21/espanol/estados-unidos/migrantes-trans-ice-derechos.html
+
 **Rare Tornadoes Hit New York as Storm Drenches Mid-Atlantic**\
 `Tornadoes appeared in New York City and on Long Island as flooding disrupted traffic on some major highways. A tornado was also confirmed in Delaware.`\
 https://www.nytimes.com/2026/08/21/nyregion/tornado-storm-long-island-delaware.html
