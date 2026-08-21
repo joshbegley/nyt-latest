@@ -1,3 +1,7 @@
+**Palestinian Teenager Killed After Israeli Settlers Enter West Bank Village**\
+`Palestinian and Israeli authorities offered divergent accounts of the incident, which came as settler violence has surged across the Israeli-occupied territory.`\
+https://www.nytimes.com/2026/08/21/world/middleeast/palestinian-teenager-killed-israeli-settlers-west-bank.html
+
 **As Sports Get More Expensive, Will Fans Keep Paying?**\
 `Do some sports owners care more about profit than championships? Pablo Torre, host of “Pablo Torre Finds Out,” joins Natalie Kitroeff on “The Daily” to talk about the shifting business interests of professional sports.`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011104017/as-sports-get-more-expensive-will-fans-keep-paying.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/21/arts/design/us-open-poster-eugenia-mello.html
 **Word of the Day: plagiarize**\
 `This word has appeared in 41 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/08/21/learning/word-of-the-day-plagiarize.html
-
-**Giorgia Meloni Cuts the Hard Right a Path to Power**\
-`In a rare interview, the onetime political outcast reflects on her route from “the uncomfortable side of history” to the threshold of leading Italy’s most durable postwar government.`\
-https://www.nytimes.com/2026/08/21/world/europe/italy-giorgia-meloni-interview-profile.html
 

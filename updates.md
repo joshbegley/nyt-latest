@@ -1,3 +1,7 @@
+**Why China Thinks It Can Resist Trump’s Economic Threats on Iran**\
+`Beijing can squeeze U.S. critical mineral supplies and has enough oil to withstand the loss of Iranian crude, Chinese analysts say.`\
+https://www.nytimes.com/2026/08/21/world/asia/china-iran-trump-economic-threats.html
+
 **Do You Need Flood Insurance? What to Know Ahead of Peak Hurricane Season.**\
 `No hurricane-strength storms have formed yet this year in the Atlantic basin, but the limiting activity isn’t certain to continue.`\
 https://www.nytimes.com/2026/08/21/your-money/flood-insurance-hurricane-season.html
