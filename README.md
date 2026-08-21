@@ -1,3 +1,7 @@
+**Thousands in Gary, Ind., Have Gone 10 Days Without Power**\
+`The electricity has been out for 10 days in Gary, Ind., since deadly storms ripped through the city, knocking down trees and power lines. Residents said they were growing increasingly desperate.`\
+https://www.nytimes.com/video/us/100000011106530/gary-indiana-storm-power-outage.html
+
 **Overlooked No More: Patricia Douglas, Who Challenged Hollywood’s Culture of Abuse**\
 `Eight decades before the #MeToo groundswell, she took MGM to court after alleging she was attacked at a studio party in 1937.`\
 https://www.nytimes.com/2026/08/21/obituaries/patricia-douglas-overlooked.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/21/dining/our-classic-marinara-sauce-with-five-s
 **Five International Movies to Stream Now**\
 `This month’s picks include powerful movies about mothers from Brazil, Argentina and Austria; a magical-realist tale from India; and an Icelandic drama.`\
 https://www.nytimes.com/2026/08/21/movies/international-movies-streaming.html
-
-**JD Vance Isn’t the Only One With a Provocative ‘Common Good’ Vision**\
-`On the search for an elusive new national consensus.`\
-https://www.nytimes.com/2026/08/21/opinion/common-good-vance-trump.html
 
