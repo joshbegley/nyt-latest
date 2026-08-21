@@ -1,3 +1,11 @@
+**Odia el matcha, pero ama la vida: así es esta estrella de TikTok de 89 años**\
+`Werner Kalecinski es una sensación de las redes sociales entre los jóvenes en Alemania. ¿Cómo pasó de ser un viudo desconsolado a ir de fiesta en un yate?`\
+https://www.nytimes.com/es/2026/08/21/espanol/mundo/estrella-tiktok-abuelo-alemania.html
+
+**Trump no sabe cómo hablarle a los brasileños**\
+`Las próximas elecciones en el país sudamericano no serán decididas por el presidente estadounidense.`\
+https://www.nytimes.com/es/2026/08/21/espanol/opinion/trump-elecciones-brasil.html
+
 **Landmarks Panel Approves Designs to Replace Parking Lot With High Rises**\
 `Local groups in the NoHo neighborhood of Manhattan opposed the plan, saying designs for two apartment buildings did not reflect the neighborhood’s historical character.`\
 https://www.nytimes.com/2026/08/21/nyregion/noho-parking-lot-apartments.html
