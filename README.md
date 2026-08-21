@@ -1,3 +1,7 @@
+**Turkey Requests Netanyahu’s Arrest, Saying Israel Abused Flotilla Activists**\
+`Turkey’s request for an Interpol ‘red notice’ came at a time of escalating tensions between the two countries.`\
+https://www.nytimes.com/2026/08/21/world/middleeast/turkey-netanyahu-arrest-israel.html
+
 **U.S. Cuts Colorado River Water for Arizona, California and Nevada**\
 `Arizona’s share of the river will shrink by a third, likely increasing reliance on groundwater and raising pressure on agriculture.`\
 https://www.nytimes.com/2026/08/21/climate/colorado-river-water-cuts-drought.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/21/business/victor-niederhoffer-dead.html
 **The ‘Yes’ That Changed Kerry Washington’s Career**\
 `Kerry Washington, producer of “The Whoopi Monologues,” reflects on the moments and experiences that helped shape and inspire her career.`\
 https://www.nytimes.com/video/arts/100000011004372/kerry-washington-whoopi-goldberg-monologues.html
-
-**Trump amenaza a Irán con una ‘guerra económica’. Esta es la razón**\
-`Las amenazas del presidente Trump de un “Día D económico” envían una clara señal a Irán de que no quiere volver a la guerra.`\
-https://www.nytimes.com/es/2026/08/21/espanol/estados-unidos/trump-iran-amenazas-sanciones-economia.html
 

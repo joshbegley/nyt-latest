@@ -1,3 +1,7 @@
+**U.S. Cuts Colorado River Water for Arizona, California and Nevada**\
+`Arizona’s share of the river will shrink by a third, likely increasing reliance on groundwater and raising pressure on agriculture.`\
+https://www.nytimes.com/2026/08/21/climate/colorado-river-water-cuts-drought.html
+
 **The Case of the Disappearing, Reappearing White House Ballroom Stairs**\
 `Derided by architects as serving no purpose, a grand staircase was never approved by a planning commission but appears back in President Trump’s plans.`\
 https://www.nytimes.com/2026/08/21/upshot/ballroom-trump-white-house.html
