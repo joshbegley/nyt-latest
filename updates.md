@@ -1,3 +1,7 @@
+**Return of Harry and Meghan to U.K. Renews Questions About Their Security Fears**\
+`The couple lost their publicly funded security after deciding to leave Britain in 2020, deepening their split with the royal family.`\
+https://www.nytimes.com/2026/08/21/world/europe/harry-meghan-uk-security.html
+
 **Rare Tornadoes Hit New York City as Storm Drenches Mid-Atlantic**\
 `Tornadoes appeared in Queens and on Long Island as flooding disrupted traffic on some major highways. A tornado was also confirmed in Delaware.`\
 https://www.nytimes.com/2026/08/21/nyregion/tornado-storm-long-island-delaware.html
