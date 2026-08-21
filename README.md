@@ -1,3 +1,7 @@
+**Mexican Governor, Accused by U.S. of Helping Cartel, Returns to His Job**\
+`After U.S. prosecutors accused Gov. Rubén Rocha Moya of protecting the Sinaloa cartel, he said he would step down to focus on his defense. On Friday, he declared he was back.`\
+https://www.nytimes.com/2026/08/21/world/americas/mexico-sinaloa-governor-cartels.html
+
 **Chief Justice Allows White House Ballroom Construction, for Now**\
 `Also, A.I. is everywhere in China. Here’s the latest at the end of Friday.`\
 https://www.nytimes.com/2026/08/21/briefing/supreme-court-ballroom-ai-china.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/es/2026/08/21/espanol/estados-unidos/chucky-mascara-fila
 **Today, In Short**\
 `”Lore.” Sadie Sink. And a matcha hater.`\
 https://www.nytimes.com/2026/08/21/briefing/today-in-short.html
-
-**Our Classic Marinara Sauce With Five Stars and Over 12,000 Reviews**\
-`And more of the week’s most popular recipes.`\
-https://www.nytimes.com/2026/08/21/dining/our-classic-marinara-sauce-with-five-stars-and-over-12000-reviews.html
 

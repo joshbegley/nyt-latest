@@ -1,3 +1,7 @@
+**Meghan of Sussex Eyes Role in Netflix Show ‘The Gentlemen’**\
+`The duchess’s representatives have had exploratory talks about her joining a third season of “The Gentlemen,” two people said. Netflix has not yet ordered a third season of the show.`\
+https://www.nytimes.com/2026/08/21/business/meghan-sussex-the-gentlemen-netflix.html
+
 **Staten Island Becomes the Place to Challenge Mamdani’s Policies in Court**\
 `The ruling is a win for Mayor Zohran Mamdani, who argued that the case be heard in Manhattan. The lawsuit challenging the rent freeze had been filed in Staten Island.`\
 https://www.nytimes.com/2026/08/21/nyregion/nyc-mamdani-rent-freeze-courts.html
