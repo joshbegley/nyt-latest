@@ -1,3 +1,11 @@
+**‘Spa Weekend’ Review: Girls Gone Wellness**\
+`Leslie Mann leads a quartet of gal pals looking for rest, relaxation and sensual massages in this raucous comedy.`\
+https://www.nytimes.com/2026/08/21/movies/spa-weekend-review.html
+
+**Trump Threatens Suit Against Think Tank Over Report He Doesn’t Like**\
+`It was the latest example of President Trump’s bid to use the legal system to intimidate his critics for voicing unflattering facts and opinions generally protected by the First Amendment.`\
+https://www.nytimes.com/2026/08/21/us/politics/trump-lawsuit-liberal-think-tank.html
+
 **Book Review: ‘The Breakup,’ by Kurt Andersen**\
 `In Kurt Andersen’s new novel, “The Breakup,” a family navigates a nation ruptured by civil war.`\
 https://www.nytimes.com/2026/08/21/books/review/kurt-andersen-breakup.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/21/us/politics/samuel-tunick-deleted-phone-felon
 **When the Choice to Be Childless Is Not Your Own**\
 `What if starting a family was thought of not as a privilege, but as a fundamental right?`\
 https://www.nytimes.com/2026/08/21/opinion/fertility-family-children-human-right.html
-
-**Why Are Colleges Giving Financial Aid to Rich Kids?**\
-`We can do better than this. We have to.`\
-https://www.nytimes.com/2026/08/21/opinion/college-financial-aid-wealthy.html
-
-**The Democrats Need a New Approach on Crime**\
-`People want to be protected. The party’s candidates can promise to do that better.`\
-https://www.nytimes.com/2026/08/21/opinion/crime-democrats-midterms.html
 

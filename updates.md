@@ -1,3 +1,11 @@
+**‘Spa Weekend’ Review: Girls Gone Wellness**\
+`Leslie Mann leads a quartet of gal pals looking for rest, relaxation and sensual massages in this raucous comedy.`\
+https://www.nytimes.com/2026/08/21/movies/spa-weekend-review.html
+
+**Trump Threatens Suit Against Think Tank Over Report He Doesn’t Like**\
+`It was the latest example of President Trump’s bid to use the legal system to intimidate his critics for voicing unflattering facts and opinions generally protected by the First Amendment.`\
+https://www.nytimes.com/2026/08/21/us/politics/trump-lawsuit-liberal-think-tank.html
+
 **Book Review: ‘The Breakup,’ by Kurt Andersen**\
 `In Kurt Andersen’s new novel, “The Breakup,” a family navigates a nation ruptured by civil war.`\
 https://www.nytimes.com/2026/08/21/books/review/kurt-andersen-breakup.html
