@@ -1,3 +1,11 @@
+**Prison Firm Donated to Trump’s PAC After ICE Gave It $165 Million a Year in Contracts**\
+`The GEO Group has profited from the administration’s mass deportation campaign. A subsidiary donated more than $1.4 million to the president’s super PAC last month.`\
+https://www.nytimes.com/2026/08/21/us/politics/geo-group-maga-inc-donations-ice-contracts.html
+
+**Mark Zuckerberg Buys an Irish Castle**\
+`One of the 21st century’s most prominent landowners has added a nearly 200-year-old estate to his holdings. Archival information says it can take “a brisk walk of 4½ minutes to reach the dining room from the kitchen.”`\
+https://www.nytimes.com/2026/08/21/world/europe/zuckerberg-castle-ireland.html
+
 **How the Woman Behind ‘The Daily Show’ Spends a Day Making Bad News Funny**\
 `Jen Flanz, who has worked on the show for nearly 30 years, plans a “laughternoon” meeting and secures the perfect candy for tapings.`\
 https://www.nytimes.com/interactive/2026/08/21/nyregion/routine-jen-flanz.html
