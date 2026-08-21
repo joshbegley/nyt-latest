@@ -1,3 +1,7 @@
+**Duffels Full of Khat Seized at Baltimore Airport’s Baggage Claim**\
+`While Customs and Border Protection said it intercepted more than half a ton of the controlled substance, experts say far more of the East African plant makes it into the country.`\
+https://www.nytimes.com/2026/08/20/us/khat-smuggling-baltimore-airport.html
+
 **Targeted by an Islamophobic Provocateur, a City’s Muslims Are on Edge**\
 `Jake Lang has descended four times on Dearborn, Mich., which is majority Arab American. His rhetoric and protests have stirred fear among residents.`\
 https://www.nytimes.com/2026/08/20/us/politics/jake-lang-dearborn-michigan.html

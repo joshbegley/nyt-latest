@@ -83,7 +83,7 @@ https://www.nytimes.com/2026/08/20/world/europe/trump-iran-economy-sanctions-thr
 https://www.nytimes.com/2026/08/20/us/chucky-doll-mask-kick-philadelphia.html
 
 **Duffels Full of Khat Seized at Baltimore Airport’s Baggage Claim**\
-`While Customs and Border Protection said it intercepted more than half a ton of khat, which is classified as a controlled substance, experts say far more of the East African plant makes it into the country.`\
+`While Customs and Border Protection said it intercepted more than half a ton of the controlled substance, experts say far more of the East African plant makes it into the country.`\
 https://www.nytimes.com/2026/08/20/us/khat-smuggling-baltimore-airport.html
 
 **Summer 2026 News Quiz for Students**\
