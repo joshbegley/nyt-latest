@@ -128,7 +128,7 @@ https://www.nytimes.com/2026/08/21/opinion/crime-democrats-midterms.html
 
 **Can She Translate a Big New York Sports Moment Into a Poster?**\
 `Eugenia Mello created art for the 2026 U.S. Open inspired by a passion for movement and color, and her own immigrant journey from Peru to Brooklyn.`\
-https://www.nytimes.com/2026/08/21/arts/design/can-she-translate-a-big-new-york-sports-moment-into-a-poster.html
+https://www.nytimes.com/2026/08/21/arts/design/us-open-poster-eugenia-mello.html
 
 **Word of the Day: plagiarize**\
 `This word has appeared in 41 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
@@ -176,7 +176,7 @@ https://www.nytimes.com/video/insider/100000011048926/avoiding-bias-in-our-cover
 
 **Book Review: ‘Life of M,’ by Rachel Cusk**\
 `Though full of details that echo the life and career of Natalie Portman, “Life of M” remains chilly and abstract.`\
-https://www.nytimes.com/2026/08/21/books/review/can-celebrities-be-people-too-in-a-new-novel-rachel-cusk-isnt-sure.html
+https://www.nytimes.com/2026/08/21/books/review/life-of-m-rachel-cusk.html
 
 **Bryan Johnson Wants to Live Forever. But Why?**\
 `The longevity guru intensely monitors his diet and health. At a dinner party, he was asked about his quest for immortality. There was silence.`\

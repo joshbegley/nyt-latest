@@ -1,3 +1,11 @@
+**Can She Translate a Big New York Sports Moment Into a Poster?**\
+`Eugenia Mello created art for the 2026 U.S. Open inspired by a passion for movement and color, and her own immigrant journey from Peru to Brooklyn.`\
+https://www.nytimes.com/2026/08/21/arts/design/us-open-poster-eugenia-mello.html
+
+**Book Review: ‘Life of M,’ by Rachel Cusk**\
+`Though full of details that echo the life and career of Natalie Portman, “Life of M” remains chilly and abstract.`\
+https://www.nytimes.com/2026/08/21/books/review/life-of-m-rachel-cusk.html
+
 **Estas enfermedades de Sudamérica anticipan una pandemia**\
 `El ébola, el hantavirus y el patógeno que causa la covid-19 probablemente saltaron de animales a humanos. Lo mismo ocurre con estos virus en Sudamérica, y los científicos dicen que se propagan más rápido debido al cambio climático.`\
 https://www.nytimes.com/es/2026/08/21/espanol/america-latina/argentina-enfermedades-raras-pandemia.html
