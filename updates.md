@@ -1,3 +1,7 @@
+**Estas enfermedades de Sudamérica anticipan una pandemia**\
+`El ébola, el hantavirus y el patógeno que causa la covid-19 probablemente saltaron de animales a humanos. Lo mismo ocurre con estos virus en Sudamérica, y los científicos dicen que se propagan más rápido debido al cambio climático.`\
+https://www.nytimes.com/es/2026/08/21/espanol/america-latina/argentina-enfermedades-raras-pandemia.html
+
 **Is Trader Joe’s Skin care Actually Good?**\
 `We put Trader Joe’s viral skin care products to the test. Discover which $14-and-under beauty products are total game-changers and which ones you should skip.`\
 https://www.nytimes.com/2026/08/21/podcasts/is-trader-joes-skin-care-actually-good.html
