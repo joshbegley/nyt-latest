@@ -1,3 +1,107 @@
+**In ‘Never Stop Chasing,’ Tornadoes Strengthen Bonds of Friendship**\
+`In “Never Stop Chasing,” the dangerous livelihood of storm hunting is underpinned by a rare intimacy among men who grew up together`\
+https://www.nytimes.com/2026/08/21/movies/tornado-never-stop-chasing-reed-timmer.html
+
+**6 Wild Swimming Spots For Open Water Escape in the U.S.**\
+`A summer swim in wild waters can bring escape and exhilaration. Here are six places on state and national park land across the United States to backstroke, butterfly or just beat the heat.`\
+https://www.nytimes.com/2026/08/21/travel/swimming-holes-rivers-lakes-ponds.html
+
+**U.S. Citizen Who Deleted Phone’s Data Says His Prosecution Puts Privacy at Risk**\
+`Samuel Tunick, who faces a felony charge for deleting his phone’s data during an airport customs search, called the government’s peering into people’s private lives “creepy.”`\
+https://www.nytimes.com/2026/08/21/us/politics/samuel-tunick-deleted-phone-felony.html
+
+**Should the Opportunity to Have a Child Be a Human Right?**\
+`What if starting a family was thought of not as a privilege, but as a fundamental right?`\
+https://www.nytimes.com/2026/08/21/opinion/fertility-family-children-human-right.html
+
+**Why Are Colleges Giving Financial Aid to Rich Kids?**\
+`We can do better than this. We have to.`\
+https://www.nytimes.com/2026/08/21/opinion/college-financial-aid-wealthy.html
+
+**The Democrats Need a New Approach on Crime**\
+`People want to be protected. The party’s candidates can promise to do that better.`\
+https://www.nytimes.com/2026/08/21/opinion/crime-democrats-midterms.html
+
+**Can She Translate a Big New York Sports Moment Into a Poster?**\
+`Eugenia Mello created art for the 2026 U.S. Open inspired by a passion for movement and color, and her own immigrant journey from Peru to Brooklyn.`\
+https://www.nytimes.com/2026/08/21/arts/design/can-she-translate-a-big-new-york-sports-moment-into-a-poster.html
+
+**Word of the Day: plagiarize**\
+`This word has appeared in 41 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/08/21/learning/word-of-the-day-plagiarize.html
+
+**Giorgia Meloni Cuts the Hard Right a Path to Power**\
+`In a rare interview, the onetime political outcast reflects on her route from “the uncomfortable side of history” to the threshold of leading Italy’s most durable postwar government.`\
+https://www.nytimes.com/2026/08/21/world/europe/italy-giorgia-meloni-interview-profile.html
+
+**Back-to-School Picture Books by Amy Schwartz, Sophie Blackall, Oliver Jeffers and Chris Priestley**\
+`Works by Amy Schwartz, Sophie Blackall, Oliver Jeffers and Chris Priestley show little ones what they might miss if they stay home.`\
+https://www.nytimes.com/2026/08/21/books/review/back-to-school-picture-books.html
+
+**Why Porsche, Bentley and Other Car Brands Entered Miami’s Condo Market**\
+`Pagani, Bentley, Aston Martin and other high-end automakers are teaming up with residential developers, solidifying the city as having the most branded residences associated with car brands in the nation.`\
+https://www.nytimes.com/2026/08/21/business/miami-condos-porsche-bentley-aston-martin.html
+
+**The Loudest ‘Seagull’ Is Almost Entirely Silent**\
+`Performed in Flemish Sign Language, “[seagull]” revisits Anton Chekhov’s play with a cast of hearing and deaf actors. Our chief theater critic, Helen Shaw, met with the play’s director and lead actress at the Edinburgh International Festival.`\
+https://www.nytimes.com/video/theater/100000011065912/the-loudest-seagull-is-almost-entirely-silent.html
+
+**How Developer Stephen Ross Is Remaking West Palm Beach**\
+`The billionaire developer is planning an astonishing number of buildings, completely remaking a working-class city.`\
+https://www.nytimes.com/2026/08/21/realestate/stephen-ross-west-palm-beach.html
+
+**The Revival of the American Chestnut**\
+`Plus: an astronomical ring, floral brooches and more from T’s cultural compendium.`\
+https://www.nytimes.com/2026/08/21/t-magazine/chestnut-cooking-dessert.html
+
+**Demna Revives Gucci’s Infamous G-String Thong**\
+`Demna, the label’s new artistic director, revived the 1990s-era G-string originally designed by Tom Ford.`\
+https://www.nytimes.com/2026/08/21/t-magazine/gucci-thong-g-string-demna.html
+
+**Rare South American Diseases Offer Clues on the Next Pandemic**\
+`Ebola virus, hantavirus and the pathogen that causes Covid-19 likely jumped from animals to humans. So do these viruses — and scientists say climate change is speeding their spread.`\
+https://www.nytimes.com/2026/08/21/world/americas/rare-south-american-diseases-climate-change-pandemics.html
+
+**‘Nimrods’ vs. ‘Idiots’: Can You Tell These Movies Apart?**\
+`Both R-rated comedies star Mason Thames and feature drug-fueled escapades. But the competition wasn’t intentional. Here’s what happened.`\
+https://www.nytimes.com/2026/08/21/movies/nimrods-idiots-mason-thames.html
+
+**Avoiding Bias in Our Coverage**\
+`Readers often say they’d like us to take a stand on issues, or write to correct a headline they say is flawed. Mike Abrams, a deputy editor at The New York Times, discusses the role of language in the news report.`\
+https://www.nytimes.com/video/insider/100000011048926/avoiding-bias-in-our-coverage.html
+
+**Book Review: ‘Life of M,’ by Rachel Cusk**\
+`Though full of details that echo the life and career of Natalie Portman, “Life of M” remains chilly and abstract.`\
+https://www.nytimes.com/2026/08/21/books/review/can-celebrities-be-people-too-in-a-new-novel-rachel-cusk-isnt-sure.html
+
+**Bryan Johnson Wants to Live Forever. But Why?**\
+`The longevity guru intensely monitors his diet and health. At a dinner party, he was asked about his quest for immortality. There was silence.`\
+https://www.nytimes.com/2026/08/21/us/bryan-johnson-biohacker-autoimmune-gastritis.html
+
+**At 77, She Walked 9 Miles Under Drone-Filled Skies to Escape From ‘Hell’**\
+`Rescue teams no longer enter the city of Lyman, in eastern Ukraine, because it is deemed too dangerous. The only way out is a terrifying journey on foot.`\
+https://www.nytimes.com/2026/08/21/world/europe/ukraine-lyman-donetsk-donbas-russia.html
+
+**How Harvard’s Epic Fight With Trump Is Costing the University**\
+`The federal government has slowed Harvard’s funding, despite the university’s legal victories. The conflict is forcing hard choices on campus.`\
+https://www.nytimes.com/2026/08/21/us/harvard-trump-costs.html
+
+**The New York Times News Quiz, August 21, 2026**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://www.nytimes.com/quiz/2026/08/21/briefing/weekly-news-quiz.html
+
+**Can you match the disease with the animal that spreads it?**\
+`(No description)`\
+https://www.nytimes.com/quiz/2026/08/20/world/animal-borne-disease-quiz.html
+
+**Does Your Cat Deserve a Fresh Bowl for Each Feeding?**\
+`A ruling on a wet-food dispute.`\
+https://www.nytimes.com/cat-food-bowl-hodgman-quiz
+
+**The China Shock 2.0**\
+`China is winning the industries of the future. What should the U.S. do about it?`\
+https://www.nytimes.com/video/opinion/100000011093710/the-china-shock-2-0.html
+
 **Tornadoes Hit New York and Delaware**\
 `Tornadoes struck New York and Delaware on Thursday, as severe weather drenched parts of the Mid-Atlantic.`\
 https://www.nytimes.com/video/nyregion/100000011105347/tornado-storm-new-york-delaware.html
