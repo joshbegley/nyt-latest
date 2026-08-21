@@ -1,3 +1,103 @@
+**Is Trader Joe’s Skin care Actually Good?**\
+`We put Trader Joe’s viral skin care products to the test. Discover which $14-and-under beauty products are total game-changers and which ones you should skip.`\
+https://www.nytimes.com/2026/08/21/podcasts/is-trader-joes-skin-care-actually-good.html
+
+**5 Surprising Signs of Aging**\
+`Hint: You may need to buy new shoes.`\
+https://www.nytimes.com/2026/08/21/well/more-aging-signs.html
+
+**Why Do We Keep Imagining a New Civil War?**\
+`Art doesn’t predict the future, but it can be an early warning system.`\
+https://www.nytimes.com/2026/08/21/opinion/civil-war-novels.html
+
+**Giorgia Meloni Has a Lot to Say: The Takeaways**\
+`The Italian prime minister is leading what will soon be the longest-lasting government in the country’s postwar history. She shows herself by turns funny and fierce in a rare interview.`\
+https://www.nytimes.com/2026/08/21/world/europe/giorgia-meloni-rare-interview-takeaways.html
+
+**A Charming Farmhouse Kitchen Is a Celebration of Craft**\
+`Eny Lee Parker and Soren Ferguson brought an 1870s farmhouse in Connecticut back to life using scraps from its past.`\
+https://www.nytimes.com/2026/08/21/realestate/a-charming-farmhouse-kitchen-is-a-celebration-of-craft.html
+
+**Muslim Charity in Britain Faces Scrutiny for Possible Links to Hamas**\
+`British regulators are investigating Al-Khair Foundation after U.S. prosecutors accused a man affiliated with the group of funding terrorism.`\
+https://www.nytimes.com/2026/08/21/world/europe/muslim-charity-in-britain-possible-links-hamas.html
+
+**England’s Ancient Trees Are Dying in the Heat**\
+`Extreme temperatures and drought are adding to the stress on oak trees that have lived for hundreds of years and play a key role in the national imagination.`\
+https://www.nytimes.com/2026/08/21/world/europe/oak-trees-heat-wave-england.html
+
+**Corrections: Aug. 21, 2026**\
+`Corrections that appeared in print on Friday, Aug. 21, 2026.`\
+https://www.nytimes.com/2026/08/21/pageoneplus/corrections-aug-21-2026.html
+
+**8 New Movies Our Critics Are Talking About This Week**\
+`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
+https://www.nytimes.com/2026/08/21/movies/new-movies-this-week-critics.html
+
+**Five Free Movies to Stream Now**\
+`Sprinting to the edge because they have nothing left to lose: This month’s picks include “Thief,” “Dog Day Afternoon” and “Gloria.”`\
+https://www.nytimes.com/2026/08/21/movies/five-free-movies-to-stream-now.html
+
+**Why We Can’t Resist a Great Bookstore**\
+`We visit a local New York City bookstore, dive into The Times’s new bookstore crawl series and recommend some of our favorite books about bookstores and booksellers.`\
+https://www.nytimes.com/2026/08/21/podcasts/tbr-podcast-bookstore-crawl.html
+
+**Should You Invest in Bonds Right Now?**\
+`High-quality bonds are still safer than stocks, but they have been swinging in value, so move cautiously, our columnist says.`\
+https://www.nytimes.com/2026/08/21/business/investing-bond-market-stocks-funds.html
+
+**Why Cruise Line Are Hiking Certain Fees**\
+`Some major lines are increasing gratuities and deposit requirements, and charging more for certain packages. It’s all adding up.`\
+https://www.nytimes.com/2026/08/21/travel/cruise-lines-fees.html
+
+**This Diarra From Detroit Digs Into Her Hometown’s Mysteries**\
+`The comic noir “Diarra From Detroit” gives Diarra Kilpatrick, the creator and star, a chance to explore the “little treasures” of her city.`\
+https://www.nytimes.com/2026/08/21/arts/television/diarra-from-detroit-diarra-kilpatrick.html
+
+**Pick Your Favorite Lakeside Home in Ontario**\
+`A boat-in pine cabin, a peaceful waterfront cottage and a suburban townhouse, set amid the Canadian province’s sparkly lakes.`\
+https://www.nytimes.com/2026/08/21/realestate/lakeside-homes-ontario-canada.html
+
+**Richard Gadd Had Never Heard of the Manosphere**\
+`The creator and star of “Half Man” didn’t have a particular agenda for this dark tale of male repression. But “people think that it’s a political piece of work,” he said.`\
+https://www.nytimes.com/2026/08/21/arts/television/richard-gadd-emmys-half-man.html
+
+**3 Screws to Keep in Your Toolbox**\
+`Hardware stores carry hundreds of screw varieties, but these will suffice for many home projects.`\
+https://www.nytimes.com/2026/08/21/realestate/home-projects-screws.html
+
+**Spike in ‘Dark’ Oil Tankers in Gulf Raises Risk of Catastrophic Spills**\
+`More vessels are navigating the Strait of Hormuz with their location devices turned off to evade attacks by Iran, adding to the threat of collisions.`\
+https://www.nytimes.com/2026/08/21/business/iran-war-hormuz-oil-spill.html
+
+**At Famous Funeral Home, the Band Plays On**\
+`Frank E. Campbell, the Upper East Side funeral home that caters to the well-known, will host a performance this weekend.`\
+https://www.nytimes.com/2026/08/21/nyregion/frank-e-campbell-funeral-home-band.html
+
+**The China Shock 2.0**\
+`China is winning the industries of the future. What should the U.S. do about it?`\
+https://www.nytimes.com/2026/08/21/opinion/ezra-klein-podcast-brad-setser.html
+
+**Carlo Borlenghi, Who Turned Sailing Photography Into an Art, Dies at 70**\
+`For four decades, he documented yachting’s top competitions. But the sailboats weren’t always the focus of his images.`\
+https://www.nytimes.com/2026/08/21/sports/sailing/carlo-borlenghi-dead.html
+
+**Flock Cameras. Canoodling Lawyers. How Much Surveillance Are We Comfortable With?**\
+`Americans say they hate prying cameras. But they can’t look away.`\
+https://www.nytimes.com/2026/08/21/magazine/flock-cameras-surveillance-state.html
+
+**Who Loves Data Centers? Electricians.**\
+`Electricians like data centers. Here’s why you should, too.`\
+https://www.nytimes.com/2026/08/21/opinion/data-centers-electricians-union-labor.html
+
+**How Busta Rhymes Turned 300 Unreleased J Dilla Beats Into His New Album**\
+`The ever-lively rapper discusses showmanship, rap’s generational connections and sorting through 300 J Dilla beats for his new album.`\
+https://www.nytimes.com/2026/08/21/arts/music/busta-rhymes-popcast-interview-dillagence-2.html
+
+**John Rousmaniere, Who Documented a Sailing Disaster, Dies at 82**\
+`Known as the dean of American sailing historians, he wrote a chilling firsthand account of a deadly 1979 race and influenced safety standards.`\
+https://www.nytimes.com/2026/08/21/sports/sailing/john-rousmaniere-dead.html
+
 **In ‘Never Stop Chasing,’ Tornadoes Strengthen Bonds of Friendship**\
 `In “Never Stop Chasing,” the dangerous livelihood of storm hunting is underpinned by a rare intimacy among men who grew up together`\
 https://www.nytimes.com/2026/08/21/movies/tornado-never-stop-chasing-reed-timmer.html
@@ -97,104 +197,4 @@ https://www.nytimes.com/quiz/2026/08/20/world/animal-borne-disease-quiz.html
 **Does Your Cat Deserve a Fresh Bowl for Each Feeding?**\
 `A ruling on a wet-food dispute.`\
 https://www.nytimes.com/cat-food-bowl-hodgman-quiz
-
-**The China Shock 2.0**\
-`China is winning the industries of the future. What should the U.S. do about it?`\
-https://www.nytimes.com/video/opinion/100000011093710/the-china-shock-2-0.html
-
-**Tornadoes Hit New York and Delaware**\
-`Tornadoes struck New York and Delaware on Thursday, as severe weather drenched parts of the Mid-Atlantic.`\
-https://www.nytimes.com/video/nyregion/100000011105347/tornado-storm-new-york-delaware.html
-
-**Confronting South Korea’s Violent Past**\
-`The National Museum of Korean Democracy`\
-https://www.nytimes.com/video/embedded/world/asia/100000011105356/confronting-south-koreas-violent-past.html
-
-**Return of Harry and Meghan to U.K. Renews Questions About Their Security Fears**\
-`The couple lost their publicly funded security after deciding to leave Britain in 2020, deepening their split with the royal family.`\
-https://www.nytimes.com/2026/08/21/world/europe/harry-meghan-uk-security.html
-
-**Migrantes trans en centros de detención del ICE están perdiendo sus derechos y atención médica**\
-`En ocasiones, las autoridades de EE. UU. han eliminado el acceso a tratamientos relacionados con el género y han suprimido medidas destinadas a proteger a las personas trans detenidas del acoso.`\
-https://www.nytimes.com/es/2026/08/21/espanol/estados-unidos/migrantes-trans-ice-derechos.html
-
-**Odia el matcha, pero ama la vida: así es esta estrella de TikTok de 89 años**\
-`Werner Kalecinski es una sensación de las redes sociales entre los jóvenes en Alemania. ¿Cómo pasó de ser un viudo desconsolado a ir de fiesta en un yate?`\
-https://www.nytimes.com/es/2026/08/21/espanol/mundo/estrella-tiktok-abuelo-alemania.html
-
-**Trump no sabe cómo hablarle a los brasileños**\
-`Las próximas elecciones en el país sudamericano no serán decididas por el presidente estadounidense.`\
-https://www.nytimes.com/es/2026/08/21/espanol/opinion/trump-elecciones-brasil.html
-
-**Landmarks Panel Approves Designs to Replace Parking Lot With High Rises**\
-`Local groups in the NoHo neighborhood of Manhattan opposed the plan, saying designs for two apartment buildings did not reflect the neighborhood’s historical character.`\
-https://www.nytimes.com/2026/08/21/nyregion/noho-parking-lot-apartments.html
-
-**N.Y. State Senator’s Former Aides Say She Double-Billed for Travel**\
-`For years, Jessica Ramos used campaign money to pay for hotels and Amtrak tickets while also receiving state payments for travel, records and interviews show.`\
-https://www.nytimes.com/2026/08/21/nyregion/ny-ramos-campaign-expense-charges.html
-
-**NYT Spelling Bee Answers for August 21, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/08/21/crosswords/spelling-bee-forum.html
-
-**Irán y EE. UU., en un pulso de nervios sin ganador**\
-`Durante semanas no ha habido avances diplomáticos, pero tampoco enfrentamientos a gran escala porque cada bando parece creer que puede resistir más tiempo que el otro.`\
-https://www.nytimes.com/es/2026/08/21/espanol/mundo/iran-trump-estancamiento.html
-
-**Rosie O’Donnell Ends Late Night Stint With a Ditty to ‘Donny Boy’**\
-`“It’s kind of weird to think he spent more nights with me this week than Melania,” O’Donnell said of President Trump on her last night guest-hosting “Jimmy Kimmel Live.”`\
-https://www.nytimes.com/2026/08/21/arts/television/rosie-odonnell-jimmy-kimmel-trump.html
-
-**Un derrumbe en Florida está acabando con el sueño de muchos jubilados**\
-`El terrible derrumbe del edificio Champlain Towers South en Surfside hace cinco años impulsó amplias reformas de seguridad. Pero aplicarlas, y costearlas, resulta complicado.`\
-https://www.nytimes.com/es/2026/08/21/espanol/miami-surfside-regulaciones-seguridad.html
-
-**Never Underestimate the Houthis**\
-`With Iran exerting influence on the Strait of Hormuz, Houthi attacks on a nearby Red Sea passageway assume even greater importance for the world economy.`\
-https://www.nytimes.com/2026/08/21/opinion/houthis-iran-hormuz.html
-
-**Rare Tornadoes Hit New York City as Storm Drenches Mid-Atlantic**\
-`Tornadoes appeared in Queens and on Long Island as flooding disrupted traffic on some major highways. A tornado was also confirmed in Delaware.`\
-https://www.nytimes.com/2026/08/21/nyregion/tornado-storm-long-island-delaware.html
-
-**‘Please Love My Son as I Do’**\
-`The surprising ways I try to navigate my relationship with my ex-husband’s new wife.`\
-https://www.nytimes.com/2026/08/21/style/modern-love-please-love-my-son-as-i-do.html
-
-**¿Te sientes solo? Estos 8 libros podrían ayudarte**\
-`Psicólogos, terapeutas y otros expertos comparten los libros que recomiendan a quienes tienen dificultades para conectar con los demás.`\
-https://www.nytimes.com/es/2026/08/21/espanol/libros-soledad.html
-
-**Orban’s Office, Thrown Open, Is Not the Den Hungarians Expected**\
-`The new government of Peter Magyar hoped to use the suite overlooking the Danube as evidence of an autocrat’s indulgence. The trappings fell short.`\
-https://www.nytimes.com/2026/08/21/world/europe/orbans-office-thrown-open-is-not-the-den-hungarians-expected.html
-
-**Quote of the Day: A Region Shaped by Hardship is ‘Left in Ruins’**\
-`Quotation of the Day for Friday, August 21, 2026.`\
-https://www.nytimes.com/2026/08/21/pageoneplus/quote-of-the-day-a-region-shaped-by-hardship-is-left-in-ruins.html
-
-**A Four-Day First Date Leads to ‘I Do’**\
-`After a spontaneous road trip, and just two weeks after meeting, Alexandra Hensler and Justice Shepard made their relationship official and exchanged “I love yous.”`\
-https://www.nytimes.com/2026/08/21/style/alexandra-hensler-justice-shepard-wedding.html
-
-**They Divorced. Years Later, They Married Each Other Again.**\
-`Melanie Miguel and Michael Shiloh first married in 1990. After nearly two decades apart and many life lessons learned, they decided to do it all over again.`\
-https://www.nytimes.com/2026/08/21/style/melanie-miguel-michael-shiloh-wedding.html
-
-**He Saved Her Birthday in His Phone. Years Later, They Sent Save the Dates.**\
-`Cait Bailey and Mario Carbone, a founder of the namesake restaurant, met by chance over dinner in New York and eventually built a life together in Miami before marrying in Sicily.`\
-https://www.nytimes.com/2026/08/21/style/cait-bailey-mario-carbone-wedding.html
-
-**It Was Her First, and Last, Girlfriend**\
-`Morgan DeBrincat had never dated a woman before, so she and Sydney Davis were nervous when they connected on Hinge. “Being with her felt so natural, so I was willing to see it through,” Davis said.`\
-https://www.nytimes.com/2026/08/21/style/sydney-davis-morgan-debrincat-wedding.html
-
-****\
-`Funnel-shaped clouds appeared over parts of Long Island, N.Y., on Thursday, spinning up debris in the area, witnesses said.`\
-https://www.nytimes.com/video/embedded/nyregion/100000011105247/21vid-xp-storm-spout-embed-66461.html
-
-**Florida Counts Its Election Ballots Fast. Why Can’t California Keep Up?**\
-`Florida counted most of its primary ballots within hours on Tuesday night, well ahead of the days California took to report the results of its major election.`\
-https://www.nytimes.com/2026/08/20/us/florida-california-election-ballots.html
 
