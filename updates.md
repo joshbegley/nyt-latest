@@ -1,3 +1,7 @@
+**‘Please Love My Son as I Do’**\
+`The surprising ways I try to navigate my relationship with my ex-husband’s new wife.`\
+https://www.nytimes.com/2026/08/21/style/modern-love-please-love-my-son-as-i-do.html
+
 **¿Te sientes solo? Estos 8 libros podrían ayudarte**\
 `Psicólogos, terapeutas y otros expertos comparten los libros que recomiendan a quienes tienen dificultades para conectar con los demás.`\
 https://www.nytimes.com/es/2026/08/21/espanol/libros-soledad.html

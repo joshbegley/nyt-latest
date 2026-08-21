@@ -1,3 +1,7 @@
+**Storm Lashes Northeast With Heavy Rain and Spawns Tornado in Delaware**\
+`Flooding disrupted traffic in parts of New York City, Long Island and Delaware. The National Weather Service said it had detected two waterspouts off Far Rockaway in Queens.`\
+https://www.nytimes.com/2026/08/21/nyregion/tornado-storm-long-island-delaware.html
+
 **‘Please Love My Son as I Do’**\
 `The surprising ways I try to navigate my relationship with my ex-husband’s new wife.`\
 https://www.nytimes.com/2026/08/21/style/modern-love-please-love-my-son-as-i-do.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/08/20/espanol/mundo/harry-meghan-por-que-regresa
 **For Filipino Pastries That Go Beyond Ube, Head to Queens**\
 `There’s nothing wrong with the bright purple yam, but don’t stop there when it comes to Filipino baking.`\
 https://www.nytimes.com/2026/08/20/dining/filipino-bakeries-nyc.html
-
-**How Big Tech’s A.I. Borrowing Binge Is Driving Up Bond Yields**\
-`Analysts said the recent rise in Treasury yields partly reflected investor expectations that A.I.-driven growth could keep interest rates elevated.`\
-https://www.nytimes.com/2026/08/20/business/bond-yields-tech-ai-debt.html
 
