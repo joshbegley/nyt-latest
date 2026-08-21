@@ -1,3 +1,7 @@
+**Turkey Requests Netanyahu’s Arrest, Saying Israel Abused Flotilla Activists**\
+`Turkey’s request for an Interpol ‘red notice’ came at a time of escalating tensions between the two countries.`\
+https://www.nytimes.com/2026/08/21/world/middleeast/turkey-netanyahu-arrest-israel.html
+
 **U.S. Cuts Colorado River Water for Arizona, California and Nevada**\
 `Arizona’s share of the river will shrink by a third, likely increasing reliance on groundwater and raising pressure on agriculture.`\
 https://www.nytimes.com/2026/08/21/climate/colorado-river-water-cuts-drought.html
