@@ -1,3 +1,11 @@
+**Trump amenaza a Irán con una ‘guerra económica’. Esta es la razón**\
+`Las amenazas del presidente Trump de un “Día D económico” envían una clara señal a Irán de que no quiere volver a la guerra.`\
+https://www.nytimes.com/es/2026/08/21/espanol/estados-unidos/trump-iran-amenazas-sanciones-economia.html
+
+**Smithsonian’s New Latino Museum May Receive an Existing Building**\
+`Changing the museum’s designated site to the Arts and Industries Building on the National Mall would bypass congressional approval.`\
+https://www.nytimes.com/2026/08/21/arts/design/smithsonian-museum-american-latino-building.html
+
 **‘Spa Weekend’ Review: Girls Gone Wellness**\
 `Leslie Mann leads a quartet of gal pals looking for rest, relaxation and sensual massages in this raucous comedy.`\
 https://www.nytimes.com/2026/08/21/movies/spa-weekend-review.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/21/movies/tornado-never-stop-chasing-reed-timmer
 **6 Wild Swimming Spots For Open Water Escape in the U.S.**\
 `A summer swim in wild waters can bring escape and exhilaration. Here are six places on state and national park land across the United States to backstroke, butterfly or just beat the heat.`\
 https://www.nytimes.com/2026/08/21/travel/swimming-holes-rivers-lakes-ponds.html
-
-**U.S. Citizen Who Deleted Phone’s Data Says His Prosecution Puts Privacy at Risk**\
-`Samuel Tunick, who faces a felony charge for deleting his phone’s data during an airport customs search, called the government’s peering into people’s private lives “creepy.”`\
-https://www.nytimes.com/2026/08/21/us/politics/samuel-tunick-deleted-phone-felony.html
-
-**When the Choice to Be Childless Is Not Your Own**\
-`What if starting a family was thought of not as a privilege, but as a fundamental right?`\
-https://www.nytimes.com/2026/08/21/opinion/fertility-family-children-human-right.html
 

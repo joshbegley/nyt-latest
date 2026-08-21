@@ -10,8 +10,8 @@ https://www.nytimes.com/2026/08/21/arts/design/smithsonian-museum-american-latin
 `Leslie Mann leads a quartet of gal pals looking for rest, relaxation and sensual massages in this raucous comedy.`\
 https://www.nytimes.com/2026/08/21/movies/spa-weekend-review.html
 
-**Trump Threatens Suit Against Think Tank Over Report He Doesn’t Like**\
-`It was the latest example of President Trump’s bid to use the legal system to intimidate his critics for voicing unflattering facts and opinions generally protected by the First Amendment.`\
+**Trump Threatens Defamation Suit Over National Guard Report, Aiming to Intimidate a Critic**\
+`It was the latest example of President Trump’s bid to use the legal system against those who voice unflattering facts and opinions generally protected by the First Amendment.`\
 https://www.nytimes.com/2026/08/21/us/politics/trump-lawsuit-liberal-think-tank.html
 
 **Book Review: ‘The Breakup,’ by Kurt Andersen**\

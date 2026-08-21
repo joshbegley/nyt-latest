@@ -1,3 +1,11 @@
+**Trump amenaza a Irán con una ‘guerra económica’. Esta es la razón**\
+`Las amenazas del presidente Trump de un “Día D económico” envían una clara señal a Irán de que no quiere volver a la guerra.`\
+https://www.nytimes.com/es/2026/08/21/espanol/estados-unidos/trump-iran-amenazas-sanciones-economia.html
+
+**Smithsonian’s New Latino Museum May Receive an Existing Building**\
+`Changing the museum’s designated site to the Arts and Industries Building on the National Mall would bypass congressional approval.`\
+https://www.nytimes.com/2026/08/21/arts/design/smithsonian-museum-american-latino-building.html
+
 **‘Spa Weekend’ Review: Girls Gone Wellness**\
 `Leslie Mann leads a quartet of gal pals looking for rest, relaxation and sensual massages in this raucous comedy.`\
 https://www.nytimes.com/2026/08/21/movies/spa-weekend-review.html
