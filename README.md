@@ -1,3 +1,19 @@
+**U.S.S. Lincoln Begins 13,000-Mile Journey Home, and the Shortage That Could Take Down the Grid**\
+`Plus, your Friday news quiz.`\
+https://www.nytimes.com/2026/08/21/podcasts/the-headlines/uss-lincoln-power-grid-shortage.html
+
+**When Private Equity Comes for Your Favorite Team**\
+`The Los Angeles Lakers have been sold for a record $12.5 billion, the latest sign that huge pools of institutional money are flooding into professional sports.`\
+https://www.nytimes.com/2026/08/21/podcasts/the-daily/la-lakers-nba-private-equity-billionaires.html
+
+**Today’s Wordle Hints for August 22, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Aug. 22, 2026.`\
+https://www.nytimes.com/2026/08/21/crosswords/wordle-review-1890.html
+
+**NYT Connections Answers for August 22, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Aug. 22, 2026.`\
+https://www.nytimes.com/2026/08/21/crosswords/connections-companion-1168.html
+
 **Estas enfermedades de Sudamérica anticipan una pandemia**\
 `El ébola, el hantavirus y el patógeno que causa la covid-19 probablemente saltaron de animales a humanos. Lo mismo ocurre con estos virus en Sudamérica, y los científicos dicen que se propagan más rápido debido al cambio climático.`\
 https://www.nytimes.com/es/2026/08/21/espanol/america-latina/argentina-enfermedades-raras-pandemia.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/08/21/books/review/life-of-m-rachel-cusk.html
 **Bryan Johnson Wants to Live Forever. But Why?**\
 `The longevity guru intensely monitors his diet and health. At a dinner party, he was asked about his quest for immortality. There was silence.`\
 https://www.nytimes.com/2026/08/21/us/bryan-johnson-biohacker-autoimmune-gastritis.html
-
-**At 77, She Walked 9 Miles Under Drone-Filled Skies to Escape From ‘Hell’**\
-`Rescue teams no longer enter the city of Lyman, in eastern Ukraine, because it is deemed too dangerous. The only way out is a terrifying journey on foot.`\
-https://www.nytimes.com/2026/08/21/world/europe/ukraine-lyman-donetsk-donbas-russia.html
-
-**How Harvard’s Epic Fight With Trump Is Costing the University**\
-`The federal government has slowed Harvard’s funding, despite the university’s legal victories. The conflict is forcing hard choices on campus.`\
-https://www.nytimes.com/2026/08/21/us/harvard-trump-costs.html
-
-**The New York Times News Quiz, August 21, 2026**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://www.nytimes.com/quiz/2026/08/21/briefing/weekly-news-quiz.html
-
-**Can you match the disease with the animal that spreads it?**\
-`(No description)`\
-https://www.nytimes.com/quiz/2026/08/20/world/animal-borne-disease-quiz.html
 
