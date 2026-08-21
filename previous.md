@@ -1,3 +1,11 @@
+**Un derrumbe en Florida está acabando con el sueño de muchos jubilados**\
+`El terrible derrumbe del edificio Champlain Towers South en Surfside hace cinco años impulsó amplias reformas de seguridad. Pero aplicarlas, y costearlas, resulta complicado.`\
+https://www.nytimes.com/es/2026/08/21/espanol/miami-surfside-regulaciones-seguridad.html
+
+**Never Underestimate the Houthis**\
+`With Iran exerting influence on the Strait of Hormuz, Houthi attacks on a nearby Red Sea passageway assume even greater importance for the world economy.`\
+https://www.nytimes.com/2026/08/21/opinion/houthis-iran-hormuz.html
+
 **Storm Lashes Northeast With Heavy Rain and Spawns Tornado in Delaware**\
 `Flooding disrupted traffic in parts of New York City, Long Island and Delaware. The National Weather Service said it had detected two waterspouts off Far Rockaway in Queens.`\
 https://www.nytimes.com/2026/08/21/nyregion/tornado-storm-long-island-delaware.html
@@ -166,7 +174,7 @@ https://www.nytimes.com/2026/08/20/nyregion/senator-andy-kim-delaney-hall-detain
 `Prince Harry and Meghan Markle are planning to move back to Britain after leaving for the United States six years ago amid a clash with other members of the British royal family.`\
 https://www.nytimes.com/video/world/europe/100000011103379/londoners-react-harry-meghan-uk-return.html
 
-**Imran Khan Wins Fight to Be Moved From Prison to Hospital**\
+**Imran Khan Is Granted Brief Hospital Visit Before Returning to Prison**\
 `The former prime minister of Pakistan, who was convicted on corruption charges, has been fighting a legal battle over his medical treatment.`\
 https://www.nytimes.com/2026/08/20/world/asia/imran-khan-hospital-pakistan.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/20/nyregion/summer-in-the-city-us-open.html
 **Maps: Tracking {{type_for_headline} }Southeast of Hawaii**\
 `See the likely path of the storm.`\
 https://www.nytimes.com/interactive/2026/08/20/weather/hawaii-storm-path-tracker.html
-
-**El príncipe Harry y Meghan regresan al Reino Unido. ¿Por qué?**\
-`Apenas el año pasado, el príncipe Enrique dijo que no podía imaginar volver a llevar a su familia al Reino Unido.`\
-https://www.nytimes.com/es/2026/08/20/espanol/mundo/harry-meghan-por-que-regresan-reino-unido.html
-
-**For Filipino Pastries That Go Beyond Ube, Head to Queens**\
-`There’s nothing wrong with the bright purple yam, but don’t stop there when it comes to Filipino baking.`\
-https://www.nytimes.com/2026/08/20/dining/filipino-bakeries-nyc.html
 
