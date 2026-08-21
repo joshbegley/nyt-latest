@@ -1,3 +1,7 @@
+**It Was Her First, and Last, Girlfriend**\
+`Morgan DeBrincat had never dated a woman before, so she and Sydney Davis were nervous when they connected on Hinge. “Being with her felt so natural, so I was willing to see it through,” Davis said.`\
+https://www.nytimes.com/2026/08/21/style/sydney-davis-morgan-debrincat-wedding.html
+
 ****\
 `Funnel-shaped clouds appeared over parts of Long Island, N.Y., on Thursday, spinning up debris in the area, witnesses said.`\
 https://www.nytimes.com/video/embedded/nyregion/100000011105247/21vid-xp-storm-spout-embed-66461.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/08/20/nyregion/albany-bomb-criminal-com
 **Hochul’s Advice for Mamdani: Focus on New York City**\
 `In a wide-ranging interview, Gov. Kathy Hochul stressed the values she shares with Mayor Zohran Mamdani and talked about President Trump, taxes and ICE.`\
 https://www.nytimes.com/2026/08/20/nyregion/hochul-mamdani-israel-new-york.html
-
-**Climate: Saving Old Trees Might Save Lives**\
-`We know that trees are good for cities. A new study finds that mature trees are especially good.`\
-https://www.nytimes.com/2026/08/20/climate/climate-saving-old-trees-might-save-lives.html
 
