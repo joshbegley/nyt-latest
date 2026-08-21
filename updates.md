@@ -1,3 +1,7 @@
+**Desperation Mounts in Indiana After 10 Days Without Power**\
+`Floods from powerful thunderstorms devastated Gary, a city where a third of residents live below the poverty line. Full power restoration isn’t expected until next week.`\
+https://www.nytimes.com/2026/08/21/us/gary-indiana-power-outage.html
+
 **Swiss Tourist Sentenced to Prison After Violating ‘Day of Silence’ in Bali**\
 `The 26-year-old received a yearlong sentence from a court on the Indonesian resort island after he flouted a sacred Hindu ritual and insulted it on Instagram.`\
 https://www.nytimes.com/2026/08/21/travel/bali-swiss-tourist-nyepi.html
