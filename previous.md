@@ -22,7 +22,7 @@ https://www.nytimes.com/interactive/2026/08/21/world/asia/china-ai-life.html
 `“It is the first time that we know of that a major lab has voluntarily slowed down.”`\
 https://www.nytimes.com/2026/08/21/podcasts/openais-two-week-pause-jill-lepore-on-the-threat-of-the-artificial-state-train-of-thought.html
 
-**Iran Must Plan to Overcome ‘Unjust’ U.S. Sanctions, Top Tehran Official Says**\
+**Iran Must Plan to Overcome U.S. Sanctions After Trump’s ‘Economic D-Day’ Threats, Tehran Official Says**\
 `Mohammad Bagher Ghalibaf, lead negotiator in talks with Washington, made the comments after President Trump vowed an “economic D-Day” against Iran.`\
 https://www.nytimes.com/2026/08/21/world/middleeast/iran-sanctions-united-states-ghalibaf.html
 
@@ -134,13 +134,13 @@ https://www.nytimes.com/2026/08/21/nyregion/frank-e-campbell-funeral-home-band.h
 `China is winning the industries of the future. What should the U.S. do about it?`\
 https://www.nytimes.com/2026/08/21/opinion/ezra-klein-podcast-brad-setser.html
 
-**Carlo Borlenghi, Who Turned Sailing Photography Into an Art, Dies at 70**\
-`For four decades, he documented yachting’s top competitions. But the sailboats weren’t always the focus of his images.`\
-https://www.nytimes.com/2026/08/21/sports/sailing/carlo-borlenghi-dead.html
-
 **Flock Cameras. Canoodling Lawyers. How Much Surveillance Are We Comfortable With?**\
 `Americans say they hate prying cameras. But they can’t look away.`\
 https://www.nytimes.com/2026/08/21/magazine/flock-cameras-surveillance-state.html
+
+**Carlo Borlenghi, Who Turned Sailing Photography Into an Art, Dies at 70**\
+`For four decades, he documented yachting’s top competitions. But the sailboats weren’t always the focus of his images.`\
+https://www.nytimes.com/2026/08/21/sports/sailing/carlo-borlenghi-dead.html
 
 **Electricians Love Data Centers. You Should, Too.**\
 `Electricians like data centers. Here’s why you should, too.`\

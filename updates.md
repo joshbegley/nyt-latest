@@ -1,3 +1,7 @@
+**Iran Must Plan to Overcome U.S. Sanctions After Trump’s ‘Economic D-Day’ Threats, Tehran Official Says**\
+`Mohammad Bagher Ghalibaf, lead negotiator in talks with Washington, made the comments after President Trump vowed an “economic D-Day” against Iran.`\
+https://www.nytimes.com/2026/08/21/world/middleeast/iran-sanctions-united-states-ghalibaf.html
+
 **Hurricane Season Has Been Calm. Should You Have Flood Insurance?**\
 `No hurricane-strength storms have formed yet this year in the Atlantic basin, but the limiting activity isn’t certain to continue.`\
 https://www.nytimes.com/2026/08/21/your-money/hurricane-season-has-been-calm-should-you-have-flood-insurance.html
