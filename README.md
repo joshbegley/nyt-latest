@@ -1,3 +1,7 @@
+**Why China Thinks It Can Resist Trump’s Economic Threats on Iran**\
+`Beijing can squeeze U.S. critical mineral supplies and has enough oil to withstand the loss of Iranian crude, Chinese analysts say.`\
+https://www.nytimes.com/2026/08/21/world/asia/china-iran-trump-economic-threats.html
+
 **Do You Need Flood Insurance? What to Know Ahead of Peak Hurricane Season.**\
 `No hurricane-strength storms have formed yet this year in the Atlantic basin, but the limiting activity isn’t certain to continue.`\
 https://www.nytimes.com/2026/08/21/your-money/flood-insurance-hurricane-season.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/21/world/europe/italy-giorgia-meloni-interview-p
 **Back-to-School Picture Books by Amy Schwartz, Sophie Blackall, Oliver Jeffers and Chris Priestley**\
 `Works by Amy Schwartz, Sophie Blackall, Oliver Jeffers and Chris Priestley show little ones what they might miss if they stay home.`\
 https://www.nytimes.com/2026/08/21/books/review/back-to-school-picture-books.html
-
-**Why Porsche, Bentley and Other Car Brands Entered Miami’s Condo Market**\
-`Pagani, Bentley, Aston Martin and other high-end automakers are teaming up with residential developers, solidifying the city as having the most branded residences associated with car brands in the nation.`\
-https://www.nytimes.com/2026/08/21/business/miami-condos-porsche-bentley-aston-martin.html
 
