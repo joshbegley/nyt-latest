@@ -1,8 +1,12 @@
+**El académico que acusó a Jason Arday de plagio es suspendido**\
+`La Universidad de Gante en Bélgica dijo que suspendió al académico, Nathan Cofnas, en espera de una investigación.`\
+https://www.nytimes.com/es/2026/08/21/espanol/mundo/arday-muerte-cofnas-suspension.html
+
 **Busta Rhymes’ New Project Includes Collaborations with D’Angelo and J Dilla**\
 `Busta Rhymes spoke to Popcast about the emotional weight of creating music with the work of friends who have passed away. His new project is curated from hundreds of unreleased J Dilla beats and featuring D’Angelo.`\
 https://www.nytimes.com/video/podcasts/100000011097438/busta-rhymes-new-project-includes-collaborations-with-dangelo-and-j-dilla.html
 
-**Prince Harry and Others Told to Pay Daily Mail Publisher $13 Million**\
+**Prince Harry, Elton John and Others Told to Pay Daily Mail Publisher $13 Million**\
 `Harry and six other high-profile figures lost a privacy lawsuit against Associated Newspapers. They may eventually have to pay more than twice the initial sum, a judge said.`\
 https://www.nytimes.com/2026/08/21/world/europe/prince-harry-daily-mail-publisher-pay.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/21/movies/five-free-movies-to-stream-now.html
 **Why We Can’t Resist a Great Bookstore**\
 `We visit a local New York City bookstore, dive into The Times’s new bookstore crawl series and recommend some of our favorite books about bookstores and booksellers.`\
 https://www.nytimes.com/2026/08/21/podcasts/tbr-podcast-bookstore-crawl.html
-
-**Should You Invest in Bonds Right Now?**\
-`High-quality bonds are still safer than stocks, but they have been swinging in value, so move cautiously, our columnist says.`\
-https://www.nytimes.com/2026/08/21/business/investing-bond-market-stocks-funds.html
 
