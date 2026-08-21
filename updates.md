@@ -1,3 +1,11 @@
+**Push for Online Gun Sales Meets a Surprising Opponent: Small Gun Dealers**\
+`The Trump administration wants average Americans to be able to buy guns online and have them shipped to their doors. Small gun stores warn it could upend the industry and risk public safety.`\
+https://www.nytimes.com/2026/08/21/us/politics/online-gun-sales-trump.html
+
+**How Busta Rhymes Turned 300 Unreleased J Dilla Beats Into His New Album**\
+`The ever-lively rapper discusses showmanship, rap’s generational connections and sorting through an archive of J Dilla beats for his new album.`\
+https://www.nytimes.com/2026/08/21/arts/music/busta-rhymes-popcast-interview-dillagence-2.html
+
 **Palestinian Teenager Killed After Israeli Settlers Enter West Bank Village**\
 `Palestinian and Israeli authorities offered divergent accounts of the incident, which came as settler violence has surged across the Israeli-occupied territory.`\
 https://www.nytimes.com/2026/08/21/world/middleeast/palestinian-teenager-killed-israeli-settlers-west-bank.html
