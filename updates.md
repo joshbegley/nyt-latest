@@ -1,3 +1,7 @@
+**When the Choice to Be Childless Is Not Your Own**\
+`What if starting a family was thought of not as a privilege, but as a fundamental right?`\
+https://www.nytimes.com/2026/08/21/opinion/fertility-family-children-human-right.html
+
 **Iran War Raises Risk of Collisions and Oil Spills in Strait of Hormuz**\
 `More vessels are navigating the Strait of Hormuz with their location devices turned off to evade attacks by Iran, adding to the threat of collisions.`\
 https://www.nytimes.com/2026/08/21/business/iran-war-hormuz-oil-spill.html
