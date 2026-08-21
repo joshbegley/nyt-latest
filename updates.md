@@ -1,3 +1,7 @@
+**Gazebos From Uzbekistan: The Latest Foreign Gifts in Trump’s Washington**\
+`The structures will go up in West Potomac Park, the site of President Trump’s planned National Garden of American Heroes.`\
+https://www.nytimes.com/2026/08/21/us/politics/uzbekistan-gazebos-trump.html
+
 **El académico que acusó a Jason Arday de plagio es suspendido**\
 `La Universidad de Gante en Bélgica dijo que suspendió al académico, Nathan Cofnas, en espera de una investigación.`\
 https://www.nytimes.com/es/2026/08/21/espanol/mundo/arday-muerte-cofnas-suspension.html
