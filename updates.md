@@ -1,3 +1,15 @@
+**The Local: Drama in the Boundary Waters**\
+`William Kent Krueger talks about his thriller set in the Boundary Waters, a timely subject.`\
+https://www.nytimes.com/2026/08/21/us/the-local-boundary-waters.html
+
+**Ex-Abercrombie C.E.O. Ruled Fit to Stand Trial in Sex Trafficking Case**\
+`A federal judge said that Michael Jeffries had shown “sufficient cognitive functioning.” His lawyers had argued that he could not understand the charges against him because of his mental state.`\
+https://www.nytimes.com/2026/08/21/nyregion/michael-jeffries-abercrombie-sex-trafficking.html
+
+**Smithsonian Plan for Latino Museum Would Bypass Congress**\
+`The board will vote whether to house the museum in its Arts and Industries Building rather than build on a site owned by the National Park Service.`\
+https://www.nytimes.com/2026/08/21/arts/design/smithsonian-museum-american-latino-building.html
+
 **Guide Company That Ran Fatal Ski Trip Faces Safety Fine in California**\
 `The state levied a $151,300 fine on Blackbird Mountain Guides, which took backcountry skiers into the Sierra Nevada in threatening conditions. Nine died in an avalanche.`\
 https://www.nytimes.com/2026/08/21/us/blackbird-mountain-guides-avalanche-fine.html

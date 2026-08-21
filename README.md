@@ -1,3 +1,7 @@
+**Chief Justice Allows Trump to Continue White House Ballroom Construction, for Now**\
+`The 90,000-square-foot ballroom project has grown in size and scope, with the president’s lawyers saying it is intertwined with the renovation of an underground military bunker.`\
+https://www.nytimes.com/2026/08/21/us/politics/supreme-court-trump-ballroom.html
+
 **The Local: Drama in the Boundary Waters**\
 `William Kent Krueger talks about his thriller set in the Boundary Waters, a timely subject.`\
 https://www.nytimes.com/2026/08/21/us/the-local-boundary-waters.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/21/podcasts/the-headlines/the-headlines-news-qui
 **A.I. Is Everywhere in China. See For Yourself.**\
 `Take a walk with us through Beijing, where everyday A.I. can be useful, gimmicky, or unexpectedly funny.`\
 https://www.nytimes.com/interactive/2026/08/21/world/asia/china-ai-life.html
-
-**OpenAI’s Two-Week Pause + Jill Lepore on the Threat of the “Artificial State” + Train of Thought**\
-`“It is the first time that we know of that a major lab has voluntarily slowed down.”`\
-https://www.nytimes.com/2026/08/21/podcasts/openais-two-week-pause-jill-lepore-on-the-threat-of-the-artificial-state-train-of-thought.html
 
