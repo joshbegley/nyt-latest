@@ -1,3 +1,7 @@
+**Garlicky Alfredo Beans**\
+`This five-ingredient recipe transforms canned beans into a no-fuss, comforting meal that’s easy to whip together at the end of a long day.`\
+https://www.nytimes.com/video/dining/100000011104479/garlicky-alfredo-beans.html
+
 **Seattle Times Columnist Resigns After Paper Scrapped Trans Sports Column**\
 `Matt Calkins, a longtime sports columnist, said editors had refused to publish a column about transgender athletes in women’s competitions.`\
 https://www.nytimes.com/2026/08/20/business/media/seattle-times-matt-calkins-resigns.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/20/us/police-shooting-karen-solomon-kurt-worcest
 **Books Our Editors Loved This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://www.nytimes.com/2026/08/20/books/review/20tbr-new-recommended-books.html
-
-**Lindsay Clancy Heard a Voice Telling Her to Kill Her Children, Witnesses Say**\
-`Ms. Clancy has pleaded not guilty to murder, citing postpartum psychosis. Two defense witnesses said she spoke lovingly of her children after the killings.`\
-https://www.nytimes.com/2026/08/20/us/lindsay-clancy-trial-voice-children.html
 

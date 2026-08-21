@@ -1,3 +1,7 @@
+**Garlicky Alfredo Beans**\
+`This five-ingredient recipe transforms canned beans into a no-fuss, comforting meal that’s easy to whip together at the end of a long day.`\
+https://www.nytimes.com/video/dining/100000011104479/garlicky-alfredo-beans.html
+
 **Seattle Times Columnist Resigns After Paper Scrapped Trans Sports Column**\
 `Matt Calkins, a longtime sports columnist, said editors had refused to publish a column about transgender athletes in women’s competitions.`\
 https://www.nytimes.com/2026/08/20/business/media/seattle-times-matt-calkins-resigns.html
