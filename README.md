@@ -43,7 +43,7 @@ https://www.nytimes.com/2026/08/21/world/africa/us-deportees-liberia-equatorial-
 https://www.nytimes.com/2026/08/21/nyregion/us-open-fan-week-passes.html
 
 **Meghan of Sussex Eyes Role in Netflix Show ‘The Gentlemen’**\
-`The duchess's representatives have had exploratory talks about her joining a third season of “The Gentlemen,” two people said. Netflix has not yet ordered a third season of the show.`\
+`The duchess’s representatives have had exploratory talks about her joining a third season of “The Gentlemen,” two people said. Netflix has not yet ordered a third season of the show.`\
 https://www.nytimes.com/2026/08/21/business/meghan-sussex-the-gentlemen-netflix.html
 
 **Zambia’s Democratic Facade Fractures in Post-Election Crackdown**\

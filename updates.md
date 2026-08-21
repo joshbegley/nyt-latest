@@ -1,3 +1,7 @@
+**Staten Island Becomes the Place to Challenge Mamdani’s Policies in Court**\
+`The ruling is a win for Mayor Zohran Mamdani, who argued that the case be heard in Manhattan. The lawsuit challenging the rent freeze had been filed in Staten Island.`\
+https://www.nytimes.com/2026/08/21/nyregion/nyc-mamdani-rent-freeze-courts.html
+
 **Chief Justice Allows White House Ballroom Construction, for Now**\
 `Also, A.I. is everywhere in China. Here’s the latest at the end of Friday.`\
 https://www.nytimes.com/2026/08/21/briefing/supreme-court-ballroom-ai-china.html
