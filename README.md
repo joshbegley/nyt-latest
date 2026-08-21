@@ -1,3 +1,7 @@
+**‘The Headlines’ News Quiz: Aug. 21, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://www.nytimes.com/2026/08/21/podcasts/the-headlines/the-headlines-news-quiz-aug-21-2026.html
+
 **A.I. Is Everywhere in China. See For Yourself.**\
 `Take a walk with us through Beijing, where everyday A.I. can be useful, gimmicky, or unexpectedly funny.`\
 https://www.nytimes.com/interactive/2026/08/21/world/asia/china-ai-life.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/21/realestate/stephen-ross-west-palm-beach.html
 **The Revival of the American Chestnut**\
 `Plus: an astronomical ring, floral brooches and more from T’s cultural compendium.`\
 https://www.nytimes.com/2026/08/21/t-magazine/chestnut-cooking-dessert.html
-
-**Demna Revives Gucci’s Infamous G-String Thong**\
-`Demna, the label’s new artistic director, revived the 1990s-era G-string originally designed by Tom Ford.`\
-https://www.nytimes.com/2026/08/21/t-magazine/gucci-thong-g-string-demna.html
 
