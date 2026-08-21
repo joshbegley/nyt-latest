@@ -79,7 +79,7 @@ https://www.nytimes.com/2026/08/21/climate/colorado-river-water-cuts-drought.htm
 https://www.nytimes.com/2026/08/21/upshot/ballroom-trump-white-house.html
 
 **5 Deportees Are Flown by US to Equatorial Guinea After they Resist Deplaning in Liberia**\
-`Five of the people flown to Liberia under the Trump administration’s third-country deportation program resisted leaving the plane. They were then flown to Equatorial Guinea.`\
+`At least five of the people flown to Liberia under the Trump administration’s third-country deportation program resisted leaving the plane. They were then flown to Equatorial Guinea.`\
 https://www.nytimes.com/2026/08/21/world/africa/us-deportees-liberia-equatorial-guinea.html
 
 **Fan Week at the U.S. Open Is Still Free, if a Bit Confusing**\

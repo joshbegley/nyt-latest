@@ -1,3 +1,7 @@
+**TikTok Settles With U.S. Over Child Privacy Concerns for $400 Million**\
+`The Justice Department resolved a lawsuit that accused the social media company of illegally gathering children’s information.`\
+https://www.nytimes.com/2026/08/21/technology/tiktok-settlement-justice-department.html
+
 **What Is China Shock 2.0?**\
 `China is supplying the world with E.V.s, batteries and other advanced technologies. On “The Ezra Klein Show,” Brad Setser, a senior fellow at the Council on Foreign Relations, explains how China’s manufacturing capacity is impacting geopolitics and the U.S. economy.`\
 https://www.nytimes.com/video/opinion/100000011093723/what-is-china-shock-2-0.html
