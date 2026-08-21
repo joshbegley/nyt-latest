@@ -174,7 +174,7 @@ https://www.nytimes.com/2026/08/20/nyregion/senator-andy-kim-delaney-hall-detain
 `Prince Harry and Meghan Markle are planning to move back to Britain after leaving for the United States six years ago amid a clash with other members of the British royal family.`\
 https://www.nytimes.com/video/world/europe/100000011103379/londoners-react-harry-meghan-uk-return.html
 
-**Imran Khan Wins Fight to Be Moved From Prison to Hospital**\
+**Imran Khan Is Granted Brief Hospital Visit Before Returning to Prison**\
 `The former prime minister of Pakistan, who was convicted on corruption charges, has been fighting a legal battle over his medical treatment.`\
 https://www.nytimes.com/2026/08/20/world/asia/imran-khan-hospital-pakistan.html
 
