@@ -1,3 +1,7 @@
+**Book Review: ‘The Breakup,’ by Kurt Andersen**\
+`In Kurt Andersen’s new novel, “The Breakup,” a family navigates a nation ruptured by civil war.`\
+https://www.nytimes.com/2026/08/21/books/review/kurt-andersen-breakup.html
+
 **Push for Online Gun Sales Meets a Surprising Opponent: Small Gun Dealers**\
 `The Trump administration wants average Americans to be able to buy guns online and have them shipped to their doors. Small gun stores warn it could upend the industry and risk public safety.`\
 https://www.nytimes.com/2026/08/21/us/politics/online-gun-sales-trump.html
