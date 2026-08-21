@@ -1,3 +1,7 @@
+**The Case of the Disappearing, Reappearing White House Ballroom Stairs**\
+`Derided by architects as serving no purpose, a grand staircase was never approved by a planning commission but appears back in President Trump’s plans.`\
+https://www.nytimes.com/2026/08/21/upshot/ballroom-trump-white-house.html
+
 **5 Deportees Are Flown by US to Equatorial Guinea After they Resist Deplaning in Liberia**\
 `Five of the people flown to Liberia under the Trump administration’s third-country deportation program resisted leaving the plane. They were then flown to Equatorial Guinea.`\
 https://www.nytimes.com/2026/08/21/world/africa/us-deportees-liberia-equatorial-guinea.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/es/2026/08/21/espanol/estados-unidos/trump-iran-amenazas
 **Smithsonian Plan for Latino Museum Would Bypass Congress**\
 `The board will vote whether to house the museum in its Arts and Industries Building rather than build on a site owned by the National Park Service.`\
 https://www.nytimes.com/2026/08/21/arts/design/smithsonian-museum-american-latino-building.html
-
-**‘Spa Weekend’ Review: Girls Gone Wellness**\
-`Leslie Mann leads a quartet of gal pals looking for rest, relaxation and sensual massages in this raucous comedy.`\
-https://www.nytimes.com/2026/08/21/movies/spa-weekend-review.html
 
