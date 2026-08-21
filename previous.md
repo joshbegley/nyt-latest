@@ -1,3 +1,7 @@
+**Florida Counts Its Election Ballots Fast. Why Can’t California Keep Up?**\
+`Florida counted most of its primary ballots within hours on Tuesday night, well ahead of the days California took to report the results of its major election.`\
+https://www.nytimes.com/2026/08/20/us/florida-california-election-ballots.html
+
 **NYT Crossword Answers for Aug. 21, 2026**\
 `Adryel W. Robles Ojeda opens our solving weekend.`\
 https://www.nytimes.com/2026/08/20/crosswords/daily-puzzle-2026-08-21.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/20/climate/climate-saving-old-trees-might-save-l
 **Mapa: un terremoto de magnitud 6,7 sacude Perú**\
 `Mira la localización del epicentro del sismo y el área de movimiento.`\
 https://www.nytimes.com/interactive/2026/08/20/espanol/terremoto-peru-ayacucho.html
-
-**Map: 6.7-Magnitude Earthquake Shakes Peru**\
-`View the location of the quake’s epicenter and shake area.`\
-https://www.nytimes.com/interactive/2026/08/20/world/americas/peru-quake-tracker.html
 
