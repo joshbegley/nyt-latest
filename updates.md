@@ -1,3 +1,15 @@
+**Canada-U.S. Tariff Talks Continue as Trump’s Midnight Deadline Looms**\
+`Canadian negotiators were in Washington to finalize a deal that would stave off new tariffs and improve the terms of existing ones, but Mark Carney faces a tough sell back home.`\
+https://www.nytimes.com/2026/08/21/world/canada/trump-carney-tariffs-trade-deal.html
+
+**How New York’s Second-Home Tax Turned Into a Headache for Mamdani**\
+`The bumpy rollout of the tax created an opportunity for Mayor Zohran Mamdani’s opponents to fight him in court and in the City Council.`\
+https://www.nytimes.com/2026/08/21/nyregion/mamdani-second-home-tax-rollout.html
+
+**In China’s Biggest Car Recall, Tesla and 8 Others Will Address Door Safety**\
+`China’s regulator ordered changes after vehicle occupants sometimes had difficulty exiting electric cars, an issue that has led to lawsuits against Tesla in the United States.`\
+https://www.nytimes.com/2026/08/21/business/china-car-recall-doors.html
+
 **Machel Montano, Soca Sovereign, Takes Over Brooklyn Public Library**\
 `The career retrospective for Machel Montano, a first for a Caribbean artist, highlights his ties to New York City.`\
 https://www.nytimes.com/2026/08/21/arts/music/machel-montano-soca-brooklyn-public-library.html
