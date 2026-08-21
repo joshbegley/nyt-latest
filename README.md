@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Aug. 21, 2026**\
+`Adryel W. Robles Ojeda opens our solving weekend.`\
+https://www.nytimes.com/2026/08/20/crosswords/daily-puzzle-2026-08-21.html
+
 **On the Radio, Trump Has a Reunion (of Sorts) With Michael Cohen**\
 `President Trump’s former personal lawyer tried to revisit the past in a radio interview. But this was not exactly a stroll down memory lane.`\
 https://www.nytimes.com/2026/08/20/us/politics/trump-radio-michael-cohen.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/08/20/espanol/terremoto-peru-ayacucho.h
 **Map: 6.7-Magnitude Earthquake Shakes Peru**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/08/20/world/americas/peru-quake-tracker.html
-
-**Trump Officials Move to Fund Gaza Peacekeepers Even as Peace Plan Falters**\
-`The State Department informed Congress of its intent to fund the stabilization force on the same day the president’s Board of Peace announced a plan to disarm Hamas.`\
-https://www.nytimes.com/2026/08/20/us/politics/gaza-peacekeepers-funding.html
 
