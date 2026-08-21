@@ -1,3 +1,11 @@
+**Prince Harry and Others Told to Pay Daily Mail Publisher $13 Million**\
+`Harry and six other high-profile figures lost a privacy lawsuit against Associated Newspapers. They may eventually have to pay more than twice the initial sum, a judge said.`\
+https://www.nytimes.com/2026/08/21/world/europe/prince-harry-daily-mail-publisher-pay.html
+
+**‘They’re Always Going to Be Polarizing’: Britons Split on Harry and Meghan’s Return**\
+`Recent surveys suggest the broader public views both of them negatively, especially in comparison to Harry’s brother, William, and his wife, Kate.`\
+https://www.nytimes.com/2026/08/21/world/europe/harry-meghan-royal-return-public-opinion.html
+
 **In China’s Biggest Car Recall, Tesla and 8 Others Will Address Door Safety**\
 `China’s regulator ordered changes after vehicle occupants sometimes had difficulty exiting electric cars with retractable door handles after crashes.`\
 https://www.nytimes.com/2026/08/21/business/china-car-recall-doors.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/08/21/business/investing-bond-market-stocks-funds.h
 **Why Cruise Line Are Hiking Certain Fees**\
 `Some major lines are increasing gratuities and deposit requirements, and charging more for certain packages. It’s all adding up.`\
 https://www.nytimes.com/2026/08/21/travel/cruise-lines-fees.html
-
-**This Diarra From Detroit Digs Into Her Hometown’s Mysteries**\
-`The comic noir “Diarra From Detroit” gives Diarra Kilpatrick, the creator and star, a chance to explore the “little treasures” of her city.`\
-https://www.nytimes.com/2026/08/21/arts/television/diarra-from-detroit-diarra-kilpatrick.html
-
-**Pick Your Favorite Lakeside Home in Ontario**\
-`A boat-in pine cabin, a peaceful waterfront cottage and a suburban townhouse, set amid the Canadian province’s sparkly lakes.`\
-https://www.nytimes.com/2026/08/21/realestate/lakeside-homes-ontario-canada.html
 
