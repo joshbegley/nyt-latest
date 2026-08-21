@@ -1,3 +1,39 @@
+**Today, In Short**\
+`”Lore.” Sadie Sink. And a matcha hater.`\
+https://www.nytimes.com/2026/08/21/briefing/today-in-short.html
+
+**Our Classic Marinara Sauce With Five Stars and Over 12,000 Reviews**\
+`And more of the week’s most popular recipes.`\
+https://www.nytimes.com/2026/08/21/dining/our-classic-marinara-sauce-with-five-stars-and-over-12000-reviews.html
+
+**Five International Movies to Stream Now**\
+`This month’s picks include powerful movies about mothers from Brazil, Argentina and Austria; a magical-realist tale from India; and an Icelandic drama.`\
+https://www.nytimes.com/2026/08/21/movies/international-movies-streaming.html
+
+**JD Vance Isn’t the Only One With a Provocative ‘Common Good’ Vision**\
+`On the search for an elusive new national consensus.`\
+https://www.nytimes.com/2026/08/21/opinion/common-good-vance-trump.html
+
+**Who Is Ahead in Massachusetts Question 3, the Top-Two Primary Initiative? Latest 2026 Polls**\
+`Track the latest polls in the Massachusetts top-two primary initiative, known as Question 3.`\
+https://www.nytimes.com/interactive/polls/massachusetts-top-two-primary-initiative-polls-2026.html
+
+**Shein Was Fast Fashion’s Next Big Thing. Now It’s Fighting for a Second Act.**\
+`Facing pressure in the United States and Europe, Shein is struggling to find new ways to grow ahead of its much-delayed initial public offering.`\
+https://www.nytimes.com/2026/08/21/business/shein-ipo-questions.html
+
+**Victor Niederhoffer, Trader Who Went Boom and Bust (Twice), Dies at 82**\
+`He pioneered a technique for using computers to predict short-term movements in stock prices, something that proved to be hugely lucrative — when it worked.`\
+https://www.nytimes.com/2026/08/21/business/victor-niederhoffer-dead.html
+
+**The ‘Yes’ That Changed Kerry Washington’s Career**\
+`Kerry Washington, producer of “The Whoopi Monologues,” reflects on the moments and experiences that helped shape and inspire her career.`\
+https://www.nytimes.com/video/arts/100000011004372/kerry-washington-whoopi-goldberg-monologues.html
+
+**Trump Threatens Defamation Suit Over National Guard Report, Aiming to Intimidate a Critic**\
+`It was the latest example of President Trump’s bid to use the legal system against those who voice unflattering facts and opinions generally protected by the First Amendment.`\
+https://www.nytimes.com/2026/08/21/us/politics/trump-lawsuit-liberal-think-tank.html
+
 **Trump amenaza a Irán con una ‘guerra económica’. Esta es la razón**\
 `Las amenazas del presidente Trump de un “Día D económico” envían una clara señal a Irán de que no quiere volver a la guerra.`\
 https://www.nytimes.com/es/2026/08/21/espanol/estados-unidos/trump-iran-amenazas-sanciones-economia.html
