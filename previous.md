@@ -1,3 +1,11 @@
+**How to Build an Evening Skin Care Routine**\
+`Three experts share the creams, masks and other products they use before bed.`\
+https://www.nytimes.com/2026/08/21/t-magazine/evening-skin-care-routine.html
+
+**Margo Howard, Reluctant Columnist and Daughter of Ann Landers, Dies at 86**\
+`She published two books about her famous mother but didn’t fully embrace the family business until her late 50s, when she began writing “Dear Prudence” for Slate.`\
+https://www.nytimes.com/2026/08/21/style/margo-howard-dead.html
+
 **Dave Marsh, Rock Critic Who Loved Springsteen and Hated the Dead, Dies at 76**\
 `A passionately opinionated veteran of Creem and Rolling Stone, he was part of a generation of writers who influenced how the world saw the golden age of rock.`\
 https://www.nytimes.com/2026/08/21/arts/music/dave-marsh-dead.html
@@ -23,7 +31,7 @@ https://www.nytimes.com/2026/08/21/nyregion/nyc-mamdani-rent-freeze-courts.html
 https://www.nytimes.com/es/2026/08/21/espanol/mundo/china-iran-trump-economia-amenazas.html
 
 **Trump Announces Move to Lift Ground Beef Tariffs in Bid to Lower Prices**\
-`Cattle ranchers have trimmed their herds in response to drought and low margins, helping push up the cost of another American staple food.`\
+`Cattle ranchers have trimmed their herds in response to drought and low margins, helping to push up the cost of another American staple food.`\
 https://www.nytimes.com/2026/08/21/business/economy/trump-beef-prices.html
 
 **Canada-U.S. Tariff Talks Continue as Trump’s Midnight Deadline Looms**\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/08/21/briefing/a-city-under-siege.html
 **Stocks and Bonds Steady at the End of a Tumultuous Week**\
 `Fears about the war in Iran, government deficits, the economy and corporate borrowing stirred global markets.`\
 https://www.nytimes.com/2026/08/21/business/stocks-bonds-oil-prices.html
-
-**U.S.S. Lincoln Begins 13,000-Mile Journey Home, and the Shortage That Could Take Down the Grid**\
-`Plus, your Friday news quiz.`\
-https://www.nytimes.com/2026/08/21/podcasts/the-headlines/uss-lincoln-power-grid-shortage.html
-
-**When Private Equity Comes for Your Favorite Team**\
-`The Los Angeles Lakers have been sold for a record $12.5 billion, the latest sign that huge pools of institutional money are flooding into professional sports.`\
-https://www.nytimes.com/2026/08/21/podcasts/the-daily/la-lakers-nba-private-equity-billionaires.html
 

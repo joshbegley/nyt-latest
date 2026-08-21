@@ -1,3 +1,15 @@
+**How to Build an Evening Skin Care Routine**\
+`Three experts share the creams, masks and other products they use before bed.`\
+https://www.nytimes.com/2026/08/21/t-magazine/evening-skin-care-routine.html
+
+**Margo Howard, Reluctant Columnist and Daughter of Ann Landers, Dies at 86**\
+`She published two books about her famous mother but didn’t fully embrace the family business until her late 50s, when she began writing “Dear Prudence” for Slate.`\
+https://www.nytimes.com/2026/08/21/style/margo-howard-dead.html
+
+**Trump Announces Move to Lift Ground Beef Tariffs in Bid to Lower Prices**\
+`Cattle ranchers have trimmed their herds in response to drought and low margins, helping to push up the cost of another American staple food.`\
+https://www.nytimes.com/2026/08/21/business/economy/trump-beef-prices.html
+
 **Dave Marsh, Rock Critic Who Loved Springsteen and Hated the Dead, Dies at 76**\
 `A passionately opinionated veteran of Creem and Rolling Stone, he was part of a generation of writers who influenced how the world saw the golden age of rock.`\
 https://www.nytimes.com/2026/08/21/arts/music/dave-marsh-dead.html
