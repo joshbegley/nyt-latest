@@ -1,4 +1,8 @@
 ****\
+`Funnel-shaped clouds appeared over parts of Long Island, N.Y., on Thursday, spinning up debris in the area, witnesses said.`\
+https://www.nytimes.com/video/embedded/nyregion/100000011105247/21vid-xp-storm-spout-embed-66461.html
+
+****\
 `A funnel-shaped cloud appeared over parts of Long Island, N.Y., on Thursday, spinning up debris near the Rockaways, witnesses said.`\
 https://www.nytimes.com/video/embedded/nyregion/100000011105247/21vid-xp-storm-spout-embed-66461.html
 
