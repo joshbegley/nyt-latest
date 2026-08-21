@@ -1,3 +1,11 @@
+**Hurricane Season Has Been Calm. Should You Have Flood Insurance?**\
+`No hurricane-strength storms have formed yet this year in the Atlantic basin, but the limiting activity isn’t certain to continue.`\
+https://www.nytimes.com/2026/08/21/your-money/hurricane-season-has-been-calm-should-you-have-flood-insurance.html
+
+**When Private Equity Comes for Your Favorite Team**\
+`Pablo Torre, the host of “Pablo Torre Finds Out,” joined Natalie Kitroeff on “The Daily” to talk about why sports may be the last great asset in the attention economy; how private equity ownership is changing who can buy a team; and what that means for ticket prices, player decisions and the emotional bond between fans and the franchises they love.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011104008/when-private-equity-comes-for-your-favorite-team.html
+
 **Can Bessent’s ‘Big Tool Kit’ Calm Bond Investors?**\
 `Treasury Secretary Scott Bessent has vowed to step up efforts to restore calm to the debt markets. So far, it’s not working out that way.`\
 https://www.nytimes.com/2026/08/21/business/dealbook/bessent-bonds-tool-kit.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/21/books/review/back-to-school-picture-books.htm
 **Why Porsche, Bentley and Other Car Brands Entered Miami’s Condo Market**\
 `Pagani, Bentley, Aston Martin and other high-end automakers are teaming up with residential developers, solidifying the city as having the most branded residences associated with car brands in the nation.`\
 https://www.nytimes.com/2026/08/21/business/miami-condos-porsche-bentley-aston-martin.html
-
-**The Loudest ‘Seagull’ Is Almost Entirely Silent**\
-`Performed in Flemish Sign Language, “[seagull]” revisits Anton Chekhov’s play with a cast of hearing and deaf actors. Our chief theater critic, Helen Shaw, met with the play’s director and lead actress at the Edinburgh International Festival.`\
-https://www.nytimes.com/video/theater/100000011065912/the-loudest-seagull-is-almost-entirely-silent.html
-
-**How Developer Stephen Ross Is Remaking West Palm Beach**\
-`The billionaire developer is planning an astonishing number of buildings, completely remaking a working-class city.`\
-https://www.nytimes.com/2026/08/21/realestate/stephen-ross-west-palm-beach.html
 
