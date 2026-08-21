@@ -1,3 +1,11 @@
+**Why TikTok Therapy Isn’t Psychotherapy**\
+`Readers respond to a therapist’s essay about what’s gone wrong in the field of mental health care. Also: the triumphs of ‘Cats: The Jellicle Ball.”`\
+https://www.nytimes.com/2026/08/21/opinion/letters/tiktok-isnt-psychotherapy.html
+
+**Mark Zuckerberg Buys an Irish Castle**\
+`The prominent landowner has added a nearly 200-year-old estate to his holdings. Archival information says it can take “a brisk walk of 4½ minutes to reach the dining room from the kitchen.”`\
+https://www.nytimes.com/2026/08/21/world/europe/zuckerberg-castle-ireland.html
+
 **Small Plane Crashes in Western Alaska, Killing Eight**\
 `The Cessna aircraft was flying to Cape Newenham from Anchorage when it crashed near a U.S. military site, the Federal Aviation Administration said.`\
 https://www.nytimes.com/2026/08/21/us/alaska-plane-crash.html
@@ -5,10 +13,6 @@ https://www.nytimes.com/2026/08/21/us/alaska-plane-crash.html
 **Prison Firm Donated to Trump’s PAC After ICE Gave It $165 Million a Year in Contracts**\
 `The GEO Group has profited from the administration’s mass deportation campaign. A subsidiary donated more than $1.4 million to the president’s super PAC last month.`\
 https://www.nytimes.com/2026/08/21/us/politics/geo-group-maga-inc-donations-ice-contracts.html
-
-**Mark Zuckerberg Buys an Irish Castle**\
-`One of the 21st century’s most prominent landowners has added a nearly 200-year-old estate to his holdings. Archival information says it can take “a brisk walk of 4½ minutes to reach the dining room from the kitchen.”`\
-https://www.nytimes.com/2026/08/21/world/europe/zuckerberg-castle-ireland.html
 
 **How the Woman Behind ‘The Daily Show’ Spends a Day Making Bad News Funny**\
 `Jen Flanz, who has worked on the show for nearly 30 years, plans a “laughternoon” meeting and secures the perfect candy for tapings.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/podcasts/the-daily/100000011104017/as-sports-get-m
 **Why China Thinks It Can Resist Trump’s Economic Threats on Iran**\
 `Beijing can squeeze U.S. critical mineral supplies and has enough oil to withstand the loss of Iranian crude, Chinese analysts say.`\
 https://www.nytimes.com/2026/08/21/world/asia/china-iran-trump-economic-threats.html
-
-**Do You Need Flood Insurance? What to Know Ahead of Peak Hurricane Season.**\
-`No hurricane-strength storms have formed yet this year in the Atlantic basin, but the limiting activity isn’t certain to continue.`\
-https://www.nytimes.com/2026/08/21/your-money/flood-insurance-hurricane-season.html
 
