@@ -114,7 +114,7 @@ https://www.nytimes.com/2026/08/21/arts/television/richard-gadd-emmys-half-man.h
 `Hardware stores carry hundreds of screw varieties, but these will suffice for many home projects.`\
 https://www.nytimes.com/2026/08/21/realestate/home-projects-screws.html
 
-**Spike in ‘Dark’ Oil Tankers in Gulf Raises Risk of Catastrophic Spills**\
+**Iran War Raises Risk of Collisions and Oil Spills in Strait of Hormuz**\
 `More vessels are navigating the Strait of Hormuz with their location devices turned off to evade attacks by Iran, adding to the threat of collisions.`\
 https://www.nytimes.com/2026/08/21/business/iran-war-hormuz-oil-spill.html
 
