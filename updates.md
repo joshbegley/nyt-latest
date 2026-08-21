@@ -1,3 +1,23 @@
+**Thousands in Gary, Ind., Have Gone 10 Days Without Power**\
+`The electricity has been out for 10 days in Gary, Ind., since deadly storms ripped through the city, knocking down trees and power lines. Residents said they were growing increasingly desperate.`\
+https://www.nytimes.com/video/us/100000011106530/gary-indiana-storm-power-outage.html
+
+**Overlooked No More: Patricia Douglas, Who Challenged Hollywood’s Culture of Abuse**\
+`Eight decades before the #MeToo groundswell, she took MGM to court after alleging she was attacked at a studio party in 1937.`\
+https://www.nytimes.com/2026/08/21/obituaries/patricia-douglas-overlooked.html
+
+**America Ends a Summer of Lightning-Fast Primaries and Political Speed Dating**\
+`Plot twists in several states have led to rapid-fire races that have felt more reminiscent of European-style snap campaigns than traditional American marathons.`\
+https://www.nytimes.com/2026/08/21/us/politics/midterm-primaries-south-carolina-wisconsin-michigan.html
+
+**Fan Week at the U.S. Open Is Still Free, if a Bit Confusing**\
+`An awkward policy change casts doubt on how the tennis tournament’s popular free first week will work.`\
+https://www.nytimes.com/2026/08/21/nyregion/us-open-fan-week-passes.html
+
+**Case Challenging Mamdani’s Rent Freeze Is Moved to Manhattan**\
+`The ruling is a win for Mayor Zohran Mamdani, who argued that the case be heard in Manhattan. The lawsuit challenging the rent freeze had been filed in Staten Island.`\
+https://www.nytimes.com/2026/08/21/nyregion/nyc-mamdani-rent-freeze-courts.html
+
 **Massachusetts’ Top Court Bars Statues of Catholic Saints at City Building**\
 `The ruling quashes a plan by the mayor of Quincy that had drawn opposition from many religious figures, as well as from residents of the racially diverse city.`\
 https://www.nytimes.com/2026/08/21/us/quincy-massachusetts-catholic-statues.html

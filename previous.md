@@ -1,3 +1,15 @@
+**Thousands in Gary, Ind., Have Gone 10 Days Without Power**\
+`The electricity has been out for 10 days in Gary, Ind., since deadly storms ripped through the city, knocking down trees and power lines. Residents said they were growing increasingly desperate.`\
+https://www.nytimes.com/video/us/100000011106530/gary-indiana-storm-power-outage.html
+
+**Overlooked No More: Patricia Douglas, Who Challenged Hollywood’s Culture of Abuse**\
+`Eight decades before the #MeToo groundswell, she took MGM to court after alleging she was attacked at a studio party in 1937.`\
+https://www.nytimes.com/2026/08/21/obituaries/patricia-douglas-overlooked.html
+
+**America Ends a Summer of Lightning-Fast Primaries and Political Speed Dating**\
+`Plot twists in several states have led to rapid-fire races that have felt more reminiscent of European-style snap campaigns than traditional American marathons.`\
+https://www.nytimes.com/2026/08/21/us/politics/midterm-primaries-south-carolina-wisconsin-michigan.html
+
 **Massachusetts’ Top Court Bars Statues of Catholic Saints at City Building**\
 `The ruling quashes a plan by the mayor of Quincy that had drawn opposition from many religious figures, as well as from residents of the racially diverse city.`\
 https://www.nytimes.com/2026/08/21/us/quincy-massachusetts-catholic-statues.html
@@ -22,8 +34,8 @@ https://www.nytimes.com/2026/08/21/upshot/ballroom-trump-white-house.html
 `Five of the people flown to Liberia under the Trump administration’s third-country deportation program resisted leaving the plane. They were then flown to Equatorial Guinea.`\
 https://www.nytimes.com/2026/08/21/world/africa/us-deportees-liberia-equatorial-guinea.html
 
-**Is U.S. Open Fan Week Still Free if All the Passes Are Gone?**\
-`For the first time, fans this year must show passes to attend the tennis tournament’s free Fan Week. And registration is already closed — at least for now.`\
+**Fan Week at the U.S. Open Is Still Free, if a Bit Confusing**\
+`An awkward policy change casts doubt on how the tennis tournament’s popular free first week will work.`\
 https://www.nytimes.com/2026/08/21/nyregion/us-open-fan-week-passes.html
 
 **Meghan of Sussex Eyes Role in Netflix Show ‘The Gentlemen’**\
@@ -103,7 +115,7 @@ https://www.nytimes.com/quiz/2026/08/21/science/21sciencequiz-gamma-ray.html
 https://www.nytimes.com/2026/08/21/world/europe/germany-foreign-plot-hidden-guns.html
 
 **Case Challenging Mamdani’s Rent Freeze Is Moved to Manhattan**\
-`The ruling is a win for Mayor Zohran Mamdani, who argued that the case be heard in Manhattan and not in Staten Island where the lawsuit challenging the decision had been filed.`\
+`The ruling is a win for Mayor Zohran Mamdani, who argued that the case be heard in Manhattan. The lawsuit challenging the rent freeze had been filed in Staten Island.`\
 https://www.nytimes.com/2026/08/21/nyregion/nyc-mamdani-rent-freeze-courts.html
 
 **Por qué China cree que puede resistir la presión económica de EE. UU. a Irán**\
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/08/21/dining/our-classic-marinara-sauce-with-five-s
 **Five International Movies to Stream Now**\
 `This month’s picks include powerful movies about mothers from Brazil, Argentina and Austria; a magical-realist tale from India; and an Icelandic drama.`\
 https://www.nytimes.com/2026/08/21/movies/international-movies-streaming.html
-
-**JD Vance Isn’t the Only One With a Provocative ‘Common Good’ Vision**\
-`On the search for an elusive new national consensus.`\
-https://www.nytimes.com/2026/08/21/opinion/common-good-vance-trump.html
-
-**Who Is Ahead in Massachusetts Question 3, the Top-Two Primary Initiative? Latest 2026 Polls**\
-`Track the latest polls in the Massachusetts top-two primary initiative, known as Question 3.`\
-https://www.nytimes.com/interactive/polls/massachusetts-top-two-primary-initiative-polls-2026.html
-
-**Shein, a Fast-Fashion Giant, Struggles to Grow Ahead of a Much-Delayed IPO**\
-`Facing pressure in the United States and Europe, Shein is struggling to find new ways to grow ahead of its much-delayed initial public offering.`\
-https://www.nytimes.com/2026/08/21/business/shein-ipo-questions.html
 
