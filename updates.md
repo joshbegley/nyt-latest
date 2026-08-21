@@ -1,3 +1,19 @@
+**U.S.S. Lincoln Begins 13,000-Mile Journey Home, and the Shortage That Could Take Down the Grid**\
+`Plus, your Friday news quiz.`\
+https://www.nytimes.com/2026/08/21/podcasts/the-headlines/uss-lincoln-power-grid-shortage.html
+
+**When Private Equity Comes for Your Favorite Team**\
+`The Los Angeles Lakers have been sold for a record $12.5 billion, the latest sign that huge pools of institutional money are flooding into professional sports.`\
+https://www.nytimes.com/2026/08/21/podcasts/the-daily/la-lakers-nba-private-equity-billionaires.html
+
+**Today’s Wordle Hints for August 22, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Aug. 22, 2026.`\
+https://www.nytimes.com/2026/08/21/crosswords/wordle-review-1890.html
+
+**NYT Connections Answers for August 22, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Aug. 22, 2026.`\
+https://www.nytimes.com/2026/08/21/crosswords/connections-companion-1168.html
+
 **Can She Translate a Big New York Sports Moment Into a Poster?**\
 `Eugenia Mello created art for the 2026 U.S. Open inspired by a passion for movement and color, and her own immigrant journey from Peru to Brooklyn.`\
 https://www.nytimes.com/2026/08/21/arts/design/us-open-poster-eugenia-mello.html
