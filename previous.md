@@ -1,3 +1,11 @@
+**What Is China Shock 2.0?**\
+`China is supplying the world with E.V.s, batteries and other advanced technologies. On “The Ezra Klein Show,” Brad Setser, a senior fellow at the Council on Foreign Relations, explains how China’s manufacturing capacity is impacting geopolitics and the U.S. economy.`\
+https://www.nytimes.com/video/opinion/100000011093723/what-is-china-shock-2-0.html
+
+**Boeing Engineers and Technicians Reject Contract Offer**\
+`The union members also authorized a potential strike if a new agreement is not reached by October.`\
+https://www.nytimes.com/2026/08/21/business/boeing-engineers-technicians-contract.html
+
 **Has Trump’s Trade Policy Achieved Any of Its Goals?**\
 `America’s trade deficit is at roughly the same level as it was during the Biden administration. So has President Trump’s trade policy achieved anything? Brad Setser, a China expert and a senior fellow at the Council on Foreign Relations, weighs in on “The Ezra Klein Show.”`\
 https://www.nytimes.com/video/opinion/100000011093720/has-trumps-trade-policy-achieved-any-of-its-goals.html
@@ -82,8 +90,8 @@ https://www.nytimes.com/2026/08/21/business/meghan-sussex-the-gentlemen-netflix.
 `While the government says it is preventing an insurrection, activists and international observers have raised fears about arbitrary arrests and electoral fraud.`\
 https://www.nytimes.com/2026/08/21/world/africa/zambia-election-crackdown.html
 
-**Desperation Mounts in Indiana After 10 Days Without Power**\
-`Floods from powerful thunderstorms devastated Gary, a city where a third of residents live below the poverty line. Full power restoration isn’t expected until next week.`\
+**Desperation Mounts as Thousands in Indiana Endure 10 Days Without Power**\
+`Floods from powerful thunderstorms devastated Gary, where a third of residents live below the poverty line and full restoration isn’t expected until next week.`\
 https://www.nytimes.com/2026/08/21/us/gary-indiana-power-outage.html
 
 **Swiss Tourist Sentenced to Prison After Violating ‘Day of Silence’ in Bali**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/21/style/chic-kinda-tiktok-trend.html
 **Gazebos From Uzbekistan: The Latest Foreign Gifts in Trump’s Washington**\
 `The structures will go up in West Potomac Park, the site of President Trump’s planned National Garden of American Heroes.`\
 https://www.nytimes.com/2026/08/21/us/politics/uzbekistan-gazebos-trump.html
-
-**El académico que acusó a Jason Arday de plagio es suspendido**\
-`La Universidad de Gante en Bélgica dijo que suspendió al académico, Nathan Cofnas, en espera de una investigación.`\
-https://www.nytimes.com/es/2026/08/21/espanol/mundo/arday-muerte-cofnas-suspension.html
-
-**Busta Rhymes’ New Project Includes Collaborations with D’Angelo and J Dilla**\
-`Busta Rhymes spoke to Popcast about the emotional weight of creating music with the work of friends who have passed away. His new project is curated from hundreds of unreleased J Dilla beats and featuring D’Angelo.`\
-https://www.nytimes.com/video/podcasts/100000011097438/busta-rhymes-new-project-includes-collaborations-with-dangelo-and-j-dilla.html
 

@@ -1,3 +1,15 @@
+**What Is China Shock 2.0?**\
+`China is supplying the world with E.V.s, batteries and other advanced technologies. On “The Ezra Klein Show,” Brad Setser, a senior fellow at the Council on Foreign Relations, explains how China’s manufacturing capacity is impacting geopolitics and the U.S. economy.`\
+https://www.nytimes.com/video/opinion/100000011093723/what-is-china-shock-2-0.html
+
+**Boeing Engineers and Technicians Reject Contract Offer**\
+`The union members also authorized a potential strike if a new agreement is not reached by October.`\
+https://www.nytimes.com/2026/08/21/business/boeing-engineers-technicians-contract.html
+
+**Desperation Mounts as Thousands in Indiana Endure 10 Days Without Power**\
+`Floods from powerful thunderstorms devastated Gary, where a third of residents live below the poverty line and full restoration isn’t expected until next week.`\
+https://www.nytimes.com/2026/08/21/us/gary-indiana-power-outage.html
+
 **Has Trump’s Trade Policy Achieved Any of Its Goals?**\
 `America’s trade deficit is at roughly the same level as it was during the Biden administration. So has President Trump’s trade policy achieved anything? Brad Setser, a China expert and a senior fellow at the Council on Foreign Relations, weighs in on “The Ezra Klein Show.”`\
 https://www.nytimes.com/video/opinion/100000011093720/has-trumps-trade-policy-achieved-any-of-its-goals.html
