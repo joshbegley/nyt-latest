@@ -118,7 +118,7 @@ https://www.nytimes.com/quiz/2026/08/21/science/21sciencequiz-gamma-ray.html
 `Officials were careful not to point a finger, after revealing what they said was a plan for a political attack, at a time when a series of destabilizing actions have been blamed on Russia.`\
 https://www.nytimes.com/2026/08/21/world/europe/germany-foreign-plot-hidden-guns.html
 
-**Case Challenging Mamdani’s Rent Freeze Is Moved to Manhattan**\
+**Staten Island Becomes the Place to Challenge Mamdani’s Policies in Court**\
 `The ruling is a win for Mayor Zohran Mamdani, who argued that the case be heard in Manhattan. The lawsuit challenging the rent freeze had been filed in Staten Island.`\
 https://www.nytimes.com/2026/08/21/nyregion/nyc-mamdani-rent-freeze-courts.html
 

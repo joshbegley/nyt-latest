@@ -1,3 +1,7 @@
+**Chief Justice Allows White House Ballroom Construction, for Now**\
+`Also, A.I. is everywhere in China. Here’s the latest at the end of Friday.`\
+https://www.nytimes.com/2026/08/21/briefing/supreme-court-ballroom-ai-china.html
+
 **Thousands in Gary, Ind., Have Gone 10 Days Without Power**\
 `The electricity has been out for 10 days in Gary, Ind., since deadly storms ripped through the city, knocking down trees and power lines. Residents said they were growing increasingly desperate.`\
 https://www.nytimes.com/video/us/100000011106530/gary-indiana-storm-power-outage.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/21/briefing/today-in-short.html
 **Our Classic Marinara Sauce With Five Stars and Over 12,000 Reviews**\
 `And more of the week’s most popular recipes.`\
 https://www.nytimes.com/2026/08/21/dining/our-classic-marinara-sauce-with-five-stars-and-over-12000-reviews.html
-
-**Five International Movies to Stream Now**\
-`This month’s picks include powerful movies about mothers from Brazil, Argentina and Austria; a magical-realist tale from India; and an Icelandic drama.`\
-https://www.nytimes.com/2026/08/21/movies/international-movies-streaming.html
 
