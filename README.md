@@ -1,3 +1,7 @@
+**Return of Harry and Meghan to U.K. Renews Questions About Their Security Fears**\
+`The couple lost their publicly funded security after deciding to leave Britain in 2020, deepening their split with the royal family.`\
+https://www.nytimes.com/2026/08/21/world/europe/harry-meghan-uk-security.html
+
 **Migrantes trans en centros de detención del ICE están perdiendo sus derechos y atención médica**\
 `En ocasiones, las autoridades de EE. UU. han eliminado el acceso a tratamientos relacionados con el género y han suprimido medidas destinadas a proteger a las personas trans detenidas del acoso.`\
 https://www.nytimes.com/es/2026/08/21/espanol/estados-unidos/migrantes-trans-ice-derechos.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/20/world/asia/japan-trump-icc-judge-sanctions.ht
 **Targeted by an Islamophobic Provocateur, a City’s Muslims Are on Edge**\
 `Jake Lang has descended four times on Dearborn, Mich., which is majority Arab American. His rhetoric and protests have stirred fear among residents.`\
 https://www.nytimes.com/2026/08/20/us/politics/jake-lang-dearborn-michigan.html
-
-**Homeland Security Made a Big Claim About Noncitizen Voting. Now It Can’t Prove It.**\
-`The Department of Homeland Security told Nevada election officials that it identified 185 “potential” noncitizens on the state’s voter rolls, not the nearly 16,000 it claimed last month.`\
-https://www.nytimes.com/2026/08/20/us/politics/trump-nevada-voter-election-fraud.html
 
