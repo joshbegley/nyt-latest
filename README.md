@@ -1,3 +1,7 @@
+**OpenAI’s Two-Week Pause + Jill Lepore on the Threat of the “Artificial State” + Train of Thought**\
+`“It is the first time that we know of that a major lab has voluntarily slowed down.”`\
+https://www.nytimes.com/2026/08/21/podcasts/openais-two-week-pause-jill-lepore-on-the-threat-of-the-artificial-state-train-of-thought.html
+
 **Iran Must Plan to Overcome ‘Unjust Sanctions,’ Top Tehran Official Says**\
 `Mohammad Bagher Ghalibaf, lead negotiator in talks with the United States, made the comments after President Trump vowed an “economic D-Day” against Iran.`\
 https://www.nytimes.com/2026/08/21/world/middleeast/iran-sanctions-united-states-ghalibaf.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/21/t-magazine/gucci-thong-g-string-demna.html
 **Rare South American Diseases Offer Clues on the Next Pandemic**\
 `Ebola virus, hantavirus and the pathogen that causes Covid-19 likely jumped from animals to humans. So do these viruses — and scientists say climate change is speeding their spread.`\
 https://www.nytimes.com/2026/08/21/world/americas/rare-south-american-diseases-climate-change-pandemics.html
-
-**‘Nimrods’ vs. ‘Idiots’: Can You Tell These Movies Apart?**\
-`Both R-rated comedies star Mason Thames and feature drug-fueled escapades. But the competition wasn’t intentional. Here’s what happened.`\
-https://www.nytimes.com/2026/08/21/movies/nimrods-idiots-mason-thames.html
 
