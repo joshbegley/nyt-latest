@@ -159,7 +159,7 @@ https://www.nytimes.com/2026/08/21/sports/sailing/carlo-borlenghi-dead.html
 https://www.nytimes.com/2026/08/21/opinion/data-centers-electricians-union-labor.html
 
 **How Busta Rhymes Turned 300 Unreleased J Dilla Beats Into His New Album**\
-`The ever-lively rapper discusses showmanship, rap’s generational connections and sorting through 300 J Dilla beats for his new album.`\
+`The ever-lively rapper discusses showmanship, rap’s generational connections and sorting through an archive of J Dilla beats for his new album.`\
 https://www.nytimes.com/2026/08/21/arts/music/busta-rhymes-popcast-interview-dillagence-2.html
 
 **John Rousmaniere, Who Documented a Sailing Disaster, Dies at 82**\
