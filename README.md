@@ -1,3 +1,107 @@
+**In ‘Never Stop Chasing,’ Tornadoes Strengthen Bonds of Friendship**\
+`In “Never Stop Chasing,” the dangerous livelihood of storm hunting is underpinned by a rare intimacy among men who grew up together`\
+https://www.nytimes.com/2026/08/21/movies/tornado-never-stop-chasing-reed-timmer.html
+
+**6 Wild Swimming Spots For Open Water Escape in the U.S.**\
+`A summer swim in wild waters can bring escape and exhilaration. Here are six places on state and national park land across the United States to backstroke, butterfly or just beat the heat.`\
+https://www.nytimes.com/2026/08/21/travel/swimming-holes-rivers-lakes-ponds.html
+
+**U.S. Citizen Who Deleted Phone’s Data Says His Prosecution Puts Privacy at Risk**\
+`Samuel Tunick, who faces a felony charge for deleting his phone’s data during an airport customs search, called the government’s peering into people’s private lives “creepy.”`\
+https://www.nytimes.com/2026/08/21/us/politics/samuel-tunick-deleted-phone-felony.html
+
+**Should the Opportunity to Have a Child Be a Human Right?**\
+`What if starting a family was thought of not as a privilege, but as a fundamental right?`\
+https://www.nytimes.com/2026/08/21/opinion/fertility-family-children-human-right.html
+
+**Why Are Colleges Giving Financial Aid to Rich Kids?**\
+`We can do better than this. We have to.`\
+https://www.nytimes.com/2026/08/21/opinion/college-financial-aid-wealthy.html
+
+**The Democrats Need a New Approach on Crime**\
+`People want to be protected. The party’s candidates can promise to do that better.`\
+https://www.nytimes.com/2026/08/21/opinion/crime-democrats-midterms.html
+
+**Can She Translate a Big New York Sports Moment Into a Poster?**\
+`Eugenia Mello created art for the 2026 U.S. Open inspired by a passion for movement and color, and her own immigrant journey from Peru to Brooklyn.`\
+https://www.nytimes.com/2026/08/21/arts/design/can-she-translate-a-big-new-york-sports-moment-into-a-poster.html
+
+**Word of the Day: plagiarize**\
+`This word has appeared in 41 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/08/21/learning/word-of-the-day-plagiarize.html
+
+**Giorgia Meloni Cuts the Hard Right a Path to Power**\
+`In a rare interview, the onetime political outcast reflects on her route from “the uncomfortable side of history” to the threshold of leading Italy’s most durable postwar government.`\
+https://www.nytimes.com/2026/08/21/world/europe/italy-giorgia-meloni-interview-profile.html
+
+**Back-to-School Picture Books by Amy Schwartz, Sophie Blackall, Oliver Jeffers and Chris Priestley**\
+`Works by Amy Schwartz, Sophie Blackall, Oliver Jeffers and Chris Priestley show little ones what they might miss if they stay home.`\
+https://www.nytimes.com/2026/08/21/books/review/back-to-school-picture-books.html
+
+**Why Porsche, Bentley and Other Car Brands Entered Miami’s Condo Market**\
+`Pagani, Bentley, Aston Martin and other high-end automakers are teaming up with residential developers, solidifying the city as having the most branded residences associated with car brands in the nation.`\
+https://www.nytimes.com/2026/08/21/business/miami-condos-porsche-bentley-aston-martin.html
+
+**The Loudest ‘Seagull’ Is Almost Entirely Silent**\
+`Performed in Flemish Sign Language, “[seagull]” revisits Anton Chekhov’s play with a cast of hearing and deaf actors. Our chief theater critic, Helen Shaw, met with the play’s director and lead actress at the Edinburgh International Festival.`\
+https://www.nytimes.com/video/theater/100000011065912/the-loudest-seagull-is-almost-entirely-silent.html
+
+**How Developer Stephen Ross Is Remaking West Palm Beach**\
+`The billionaire developer is planning an astonishing number of buildings, completely remaking a working-class city.`\
+https://www.nytimes.com/2026/08/21/realestate/stephen-ross-west-palm-beach.html
+
+**The Revival of the American Chestnut**\
+`Plus: an astronomical ring, floral brooches and more from T’s cultural compendium.`\
+https://www.nytimes.com/2026/08/21/t-magazine/chestnut-cooking-dessert.html
+
+**Demna Revives Gucci’s Infamous G-String Thong**\
+`Demna, the label’s new artistic director, revived the 1990s-era G-string originally designed by Tom Ford.`\
+https://www.nytimes.com/2026/08/21/t-magazine/gucci-thong-g-string-demna.html
+
+**Rare South American Diseases Offer Clues on the Next Pandemic**\
+`Ebola virus, hantavirus and the pathogen that causes Covid-19 likely jumped from animals to humans. So do these viruses — and scientists say climate change is speeding their spread.`\
+https://www.nytimes.com/2026/08/21/world/americas/rare-south-american-diseases-climate-change-pandemics.html
+
+**‘Nimrods’ vs. ‘Idiots’: Can You Tell These Movies Apart?**\
+`Both R-rated comedies star Mason Thames and feature drug-fueled escapades. But the competition wasn’t intentional. Here’s what happened.`\
+https://www.nytimes.com/2026/08/21/movies/nimrods-idiots-mason-thames.html
+
+**Avoiding Bias in Our Coverage**\
+`Readers often say they’d like us to take a stand on issues, or write to correct a headline they say is flawed. Mike Abrams, a deputy editor at The New York Times, discusses the role of language in the news report.`\
+https://www.nytimes.com/video/insider/100000011048926/avoiding-bias-in-our-coverage.html
+
+**Book Review: ‘Life of M,’ by Rachel Cusk**\
+`Though full of details that echo the life and career of Natalie Portman, “Life of M” remains chilly and abstract.`\
+https://www.nytimes.com/2026/08/21/books/review/can-celebrities-be-people-too-in-a-new-novel-rachel-cusk-isnt-sure.html
+
+**Bryan Johnson Wants to Live Forever. But Why?**\
+`The longevity guru intensely monitors his diet and health. At a dinner party, he was asked about his quest for immortality. There was silence.`\
+https://www.nytimes.com/2026/08/21/us/bryan-johnson-biohacker-autoimmune-gastritis.html
+
+**At 77, She Walked 9 Miles Under Drone-Filled Skies to Escape From ‘Hell’**\
+`Rescue teams no longer enter the city of Lyman, in eastern Ukraine, because it is deemed too dangerous. The only way out is a terrifying journey on foot.`\
+https://www.nytimes.com/2026/08/21/world/europe/ukraine-lyman-donetsk-donbas-russia.html
+
+**How Harvard’s Epic Fight With Trump Is Costing the University**\
+`The federal government has slowed Harvard’s funding, despite the university’s legal victories. The conflict is forcing hard choices on campus.`\
+https://www.nytimes.com/2026/08/21/us/harvard-trump-costs.html
+
+**The New York Times News Quiz, August 21, 2026**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://www.nytimes.com/quiz/2026/08/21/briefing/weekly-news-quiz.html
+
+**Can you match the disease with the animal that spreads it?**\
+`(No description)`\
+https://www.nytimes.com/quiz/2026/08/20/world/animal-borne-disease-quiz.html
+
+**Does Your Cat Deserve a Fresh Bowl for Each Feeding?**\
+`A ruling on a wet-food dispute.`\
+https://www.nytimes.com/cat-food-bowl-hodgman-quiz
+
+**The China Shock 2.0**\
+`China is winning the industries of the future. What should the U.S. do about it?`\
+https://www.nytimes.com/video/opinion/100000011093710/the-china-shock-2-0.html
+
 **Tornadoes Hit New York and Delaware**\
 `Tornadoes struck New York and Delaware on Thursday, as severe weather drenched parts of the Mid-Atlantic.`\
 https://www.nytimes.com/video/nyregion/100000011105347/tornado-storm-new-york-delaware.html
@@ -93,108 +197,4 @@ https://www.nytimes.com/video/embedded/nyregion/100000011105247/21vid-xp-storm-s
 **Florida Counts Its Election Ballots Fast. Why Can’t California Keep Up?**\
 `Florida counted most of its primary ballots within hours on Tuesday night, well ahead of the days California took to report the results of its major election.`\
 https://www.nytimes.com/2026/08/20/us/florida-california-election-ballots.html
-
-**NYT Crossword Answers for Aug. 21, 2026**\
-`Adryel W. Robles Ojeda opens our solving weekend.`\
-https://www.nytimes.com/2026/08/20/crosswords/daily-puzzle-2026-08-21.html
-
-**On the Radio, Trump Has a Reunion (of Sorts) With Michael Cohen**\
-`President Trump’s former personal lawyer tried to revisit the past in a radio interview. But this was not exactly a stroll down memory lane.`\
-https://www.nytimes.com/2026/08/20/us/politics/trump-radio-michael-cohen.html
-
-**Trump Announces a New Policy for a ‘Golden Age of Space Transportation’**\
-`The policy aims to greatly increase the number of spacecraft launches and re-entries.`\
-https://www.nytimes.com/2026/08/20/science/trump-space-transportation-policy.html
-
-**Garlicky Alfredo Beans**\
-`This five-ingredient recipe transforms canned beans into a no-fuss, comforting meal that’s easy to whip together at the end of a long day.`\
-https://www.nytimes.com/video/dining/100000011104479/garlicky-alfredo-beans.html
-
-**Seattle Times Columnist Resigns After Paper Scrapped Trans Sports Column**\
-`Matt Calkins, a longtime sports columnist, said editors had refused to publish a column about transgender athletes in women’s competitions.`\
-https://www.nytimes.com/2026/08/20/business/media/seattle-times-matt-calkins-resigns.html
-
-**Transportation Secretary Sean Duffy’s ‘Road Trip’ Highlights America, and Some of Its Sponsors**\
-`The transportation secretary’s six-part YouTube series is fueling ethical concerns over family adventures funded in large part by corporate sponsors regulated by his department.`\
-https://www.nytimes.com/2026/08/20/us/politics/sean-duffy-american-road-trip.html
-
-**Is the Sports Bubble Going to Pop?**\
-`Pablo Torre, host of “Pablo Torre Finds Out,” joins Natalie Kitroeff on “The Daily” to discuss the skyrocketing valuations of sports teams as private equity changes the landscape of professional sports.`\
-https://www.nytimes.com/video/podcasts/the-daily/100000011104011/is-the-sports-bubble-going-to-pop.html
-
-**The New York Times Loses Defamation Lawsuit in Alabama**\
-`A 2023 article incorrectly reported that a University of Alabama basketball player was at the scene of a deadly shooting. A jury awarded $9.25 million in damages.`\
-https://www.nytimes.com/2026/08/20/business/media/new-york-times-defamation-lawsuit-alabama.html
-
-**The Scene at Lindsay Clancy’s Trial**\
-`Ellen Barry, our mental health reporter, has been covering the highly publicized trial of Lindsay Clancy. She dialed in Natalie Kitroeff on “The Call” to describe the scene outside the courthouse, as hundreds of women have gathered to support Ms. Clancy.`\
-https://www.nytimes.com/video/podcasts/100000011104172/the-scene-at-lindsay-clancys-trial.html
-
-**El gobierno de Trump aumenta las sanciones para presionar a Cuba**\
-`Expertos en derechos humanos han dicho que los intentos de EE. UU. de asfixiar la economía de Cuba, incluido un bloqueo petrolero, han causado una grave crisis humanitaria.`\
-https://www.nytimes.com/es/2026/08/20/espanol/america-latina/cuba-sanciones-trump.html
-
-**Nancy Kissinger, Wife of Former Secretary of State, Dies at 92**\
-`A foreign policy specialist, she was politically savvy and well versed in global issues, and traveled widely with her husband, Henry A. Kissinger, on his diplomatic missions.`\
-https://www.nytimes.com/2026/08/20/us/nancy-kissinger-dead.html
-
-**Aisha Wahab Wins California Special Election to Replace Eric Swalwell**\
-`Aisha Wahab, a Democratic state senator in California, will fill out the term of Eric Swalwell, who resigned from the House amid accusations of sexual misconduct.`\
-https://www.nytimes.com/2026/08/20/us/politics/wahab-hernandez-california-special-election.html
-
-**New Jersey Teenager Drops Bellwether Social Media Addiction Lawsuit**\
-`The case was the third of nine major personal injury cases that could expose Meta, YouTube, Snap and TikTok to financial damages and force them to change the designs of their platforms.`\
-https://www.nytimes.com/2026/08/20/technology/social-media-addiction-lawsuit-dropped.html
-
-**Child Welfare Agency Had No Right to Monitor Mother, Court Finds**\
-`A woman who had been subject to domestic violence moved from New York to Florida with her children. The authorities continued to monitor her home, which an appeals court found was “a broad overreach.”`\
-https://www.nytimes.com/2026/08/20/nyregion/child-welfare-acs-monitor-mother.html
-
-**El portaaviones USS Abraham Lincoln finalmente regresa a casa**\
-`Tras una misión en Medio Oriente que inició en noviembre de 2025, el imponente barco y su exhausta tripulación navegarán varias semanas para llegar a San Diego.`\
-https://www.nytimes.com/es/2026/08/20/espanol/estados-unidos/portaaviones-uss-abraham-lincoln-regreso.html
-
-**Massachusetts Police Search for Officer’s Wife in Connection With His Death**\
-`The Worcester police are searching for Karen Solomon, a mental health advocate for police officers, in connection with the death of her husband, a police officer.`\
-https://www.nytimes.com/video/us/100000011104279/massachusetts-karen-solomon-officer-death.html
-
-**Phoenix Police Investigate 2 Officers Accused of Violent Traffic Stop**\
-`The department opened a criminal investigation after a couple said they were shocked with a stun gun and beaten during the Aug. 5 encounter.`\
-https://www.nytimes.com/2026/08/20/us/phoenix-police-investigation-traffic-stop.html
-
-**Trump Officials Impose More Sanctions to Pressure Cuba**\
-`Human rights experts have said that the U.S. attempts to squeeze Cuba’s economy, including an oil blockade, have caused a severe humanitarian crisis.`\
-https://www.nytimes.com/2026/08/20/us/politics/trump-cuba-sanctions.html
-
-**How Does Bagged Lettuce Get Contaminated With Cyclospora Anyway?**\
-`During its journey from farm to table, there are many opportunities for harmful microbes to invade.`\
-https://www.nytimes.com/interactive/2026/08/20/well/eat/bagged-lettuce-salad-cyclospora-e-coli.html
-
-**2 Hijackings in 4 Days: Somali Piracy Rises**\
-`Experts worry that the conflict in Iran and other regional dynamics are setting the stage for a Somali pirates’ comeback.`\
-https://www.nytimes.com/2026/08/20/world/africa/2-hijackings-in-4-days-somali-piracy-surges.html
-
-**Weary U.S. Aircraft Carrier Leaves the Middle East**\
-`Also, Russia takes advantage of Ukraine’s depleted stockpile. Here’s the latest at the end of Thursday.`\
-https://www.nytimes.com/2026/08/20/briefing/aircraft-carrier-ukraine-russia-missiles.html
-
-**Cameroon’s Aging President Returns From Monthslong Stay Abroad**\
-`Paul Biya, 93, had been in Switzerland since early June. The prolonged absence stirred questions about his health and plans for succession.`\
-https://www.nytimes.com/2026/08/20/world/africa/cameroon-president-returns-from-long-stay-abroad.html
-
-**The Message Behind Trump’s Threats of ‘Economic Warfare’ Against Iran**\
-`President Trump’s threats of an “economic D-Day” carry a clear signal to Iran that he does not want to go back to war.`\
-https://www.nytimes.com/2026/08/20/world/europe/trump-iran-economy-sanctions-threats.html
-
-**A Man in a Chucky-Style Mask Was Scaring Philadelphians. Then He Picked the Wrong Woman.**\
-`When Jameka Wilson encountered a man wearing a Chucky-style Halloween mask, her stage combat training kicked in. Now she’s a minor local celebrity.`\
-https://www.nytimes.com/2026/08/20/us/chucky-doll-mask-kick-philadelphia.html
-
-**Duffels Full of Khat Seized at Baltimore Airport’s Baggage Claim**\
-`While Customs and Border Protection said it intercepted more than half a ton of the controlled substance, experts say far more of the East African plant makes it into the country.`\
-https://www.nytimes.com/2026/08/20/us/khat-smuggling-baltimore-airport.html
-
-**Summer 2026 News Quiz for Students**\
-`(No description)`\
-https://www.nytimes.com/quiz/2026/08/20/learning/2026-summer-news-quiz-for-students.html
 
