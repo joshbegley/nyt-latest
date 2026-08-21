@@ -1,3 +1,7 @@
+**TikTok Settles With U.S. Over Child Privacy Concerns for $400 Million**\
+`The Justice Department resolved a lawsuit that accused the social media company of illegally gathering children’s information.`\
+https://www.nytimes.com/2026/08/21/technology/tiktok-settlement-justice-department.html
+
 **What Is China Shock 2.0?**\
 `China is supplying the world with E.V.s, batteries and other advanced technologies. On “The Ezra Klein Show,” Brad Setser, a senior fellow at the Council on Foreign Relations, explains how China’s manufacturing capacity is impacting geopolitics and the U.S. economy.`\
 https://www.nytimes.com/video/opinion/100000011093723/what-is-china-shock-2-0.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/podcasts/100000011092280/hard-fork-208.html
 **The Slipperiness of ‘Chic’**\
 `Plus: Rachel Cusk speaks on “Life of M,” and a Supreme veteran says goodbye.`\
 https://www.nytimes.com/2026/08/21/style/chic-kinda-tiktok-trend.html
-
-**Gazebos From Uzbekistan: The Latest Foreign Gifts in Trump’s Washington**\
-`The structures will go up in West Potomac Park, the site of President Trump’s planned National Garden of American Heroes.`\
-https://www.nytimes.com/2026/08/21/us/politics/uzbekistan-gazebos-trump.html
 
