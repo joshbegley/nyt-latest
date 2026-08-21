@@ -1,3 +1,7 @@
+**Swiss Tourist Sentenced to Prison After Violating ‘Day of Silence’ in Bali**\
+`The 26-year-old received a yearlong sentence from a court on the Indonesian resort island after he flouted a sacred Hindu ritual and insulted it on Instagram.`\
+https://www.nytimes.com/2026/08/21/travel/bali-swiss-tourist-nyepi.html
+
 **Why TikTok Therapy Isn’t Psychotherapy**\
 `Readers respond to a therapist’s essay about what’s gone wrong in the field of mental health care. Also: the triumphs of ‘Cats: The Jellicle Ball.”`\
 https://www.nytimes.com/2026/08/21/opinion/letters/tiktok-isnt-psychotherapy.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/21/world/middleeast/palestinian-teenager-killed-
 **As Sports Get More Expensive, Will Fans Keep Paying?**\
 `Do some sports owners care more about profit than championships? Pablo Torre, host of “Pablo Torre Finds Out,” joins Natalie Kitroeff on “The Daily” to talk about the shifting business interests of professional sports.`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011104017/as-sports-get-more-expensive-will-fans-keep-paying.html
-
-**Why China Thinks It Can Resist Trump’s Economic Threats on Iran**\
-`Beijing can squeeze U.S. critical mineral supplies and has enough oil to withstand the loss of Iranian crude, Chinese analysts say.`\
-https://www.nytimes.com/2026/08/21/world/asia/china-iran-trump-economic-threats.html
 

@@ -1,3 +1,11 @@
+**Why TikTok Therapy Isn’t Psychotherapy**\
+`Readers respond to a therapist’s essay about what’s gone wrong in the field of mental health care. Also: the triumphs of ‘Cats: The Jellicle Ball.”`\
+https://www.nytimes.com/2026/08/21/opinion/letters/tiktok-isnt-psychotherapy.html
+
+**Mark Zuckerberg Buys an Irish Castle**\
+`The prominent landowner has added a nearly 200-year-old estate to his holdings. Archival information says it can take “a brisk walk of 4½ minutes to reach the dining room from the kitchen.”`\
+https://www.nytimes.com/2026/08/21/world/europe/zuckerberg-castle-ireland.html
+
 **Small Plane Crashes in Western Alaska, Killing Eight**\
 `The Cessna aircraft was flying to Cape Newenham from Anchorage when it crashed near a U.S. military site, the Federal Aviation Administration said.`\
 https://www.nytimes.com/2026/08/21/us/alaska-plane-crash.html
