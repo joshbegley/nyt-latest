@@ -1,3 +1,7 @@
+**Massachusetts’ Top Court Bars Statues of Catholic Saints at City Building**\
+`The ruling quashes a plan by the mayor of Quincy that had drawn opposition from many religious figures, as well as from residents of the racially diverse city.`\
+https://www.nytimes.com/2026/08/21/us/quincy-massachusetts-catholic-statues.html
+
 **U.S. Agreed to Pay Liberia $5 Million in Connection with Deportees, Documents Say**\
 `The Trump administration approved the payment after Liberia said it would consider taking migrants from other countries.`\
 https://www.nytimes.com/2026/08/21/us/politics/us-liberia-deportees-payment.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/interactive/polls/massachusetts-top-two-primary-initiati
 **Shein, a Fast-Fashion Giant, Struggles to Grow Ahead of a Much-Delayed IPO**\
 `Facing pressure in the United States and Europe, Shein is struggling to find new ways to grow ahead of its much-delayed initial public offering.`\
 https://www.nytimes.com/2026/08/21/business/shein-ipo-questions.html
-
-**Victor Niederhoffer, Trader Who Went Boom and Bust (Twice), Dies at 82**\
-`He pioneered a technique for using computers to predict short-term movements in stock prices, something that proved to be hugely lucrative — when it worked.`\
-https://www.nytimes.com/2026/08/21/business/victor-niederhoffer-dead.html
 
