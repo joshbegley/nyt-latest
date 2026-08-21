@@ -1,3 +1,7 @@
+**Flashback: Your Weekly History Quiz, Aug. 22, 2026**\
+`Can you sort 8 historical events?`\
+https://www.nytimes.com/interactive/2026/08/21/upshot/flashback.html
+
 **Hard Fork #208**\
 `This week we’re talking about Mark Zuckerberg’s latest essay, “The Future Is for Everyone,” which outlines his positive new vision about the potential of A.I. But do we think it’s credible? Then, Pangram’s chief executive, Max Spero, joins us to talk about the breakout success of his A.I. slop detector. And finally, it’s time for our new segment all about math — we’re Running the Numbers.`\
 https://www.nytimes.com/video/podcasts/100000011092280/hard-fork-208.html
