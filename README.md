@@ -1,3 +1,7 @@
+**U.S. Cuts Colorado River Water for Arizona, California and Nevada**\
+`Arizona’s share of the river will shrink by a third, likely increasing reliance on groundwater and raising pressure on agriculture.`\
+https://www.nytimes.com/2026/08/21/climate/colorado-river-water-cuts-drought.html
+
 **The Case of the Disappearing, Reappearing White House Ballroom Stairs**\
 `Derided by architects as serving no purpose, a grand staircase was never approved by a planning commission but appears back in President Trump’s plans.`\
 https://www.nytimes.com/2026/08/21/upshot/ballroom-trump-white-house.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/arts/100000011004372/kerry-washington-whoopi-goldb
 **Trump amenaza a Irán con una ‘guerra económica’. Esta es la razón**\
 `Las amenazas del presidente Trump de un “Día D económico” envían una clara señal a Irán de que no quiere volver a la guerra.`\
 https://www.nytimes.com/es/2026/08/21/espanol/estados-unidos/trump-iran-amenazas-sanciones-economia.html
-
-**Smithsonian Plan for Latino Museum Would Bypass Congress**\
-`The board will vote whether to house the museum in its Arts and Industries Building rather than build on a site owned by the National Park Service.`\
-https://www.nytimes.com/2026/08/21/arts/design/smithsonian-museum-american-latino-building.html
 
