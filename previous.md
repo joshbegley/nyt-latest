@@ -1,3 +1,7 @@
+**Jalapeño Cheddar Zucchini Bread**\
+`Thanks to its high water content, zucchini reliably delivers super-moist easy-mix breads. This zucchini loaf swings savory, confidently cheesy from sharp Cheddar with a gentle acidity and peppery heat from store-bought pickled jalapeños.`\
+https://www.nytimes.com/video/dining/100000011105662/jalapeno-cheddar-zucchini-bread.html
+
 **Tofu Musubi**\
 `Musubis are a traditional Hawaiian snack built to travel. Often filled with grilled and glazed slices of Spam, here, the rice is topped with teriyaki glazed tofu for a vegetarian twist on the classic.`\
 https://www.nytimes.com/video/smarter-living/wirecutter/100000011105935/tofu-musubi.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/21/world/europe/harry-meghan-royal-return-public
 **In China’s Biggest Car Recall, Tesla and 8 Others Will Address Door Safety**\
 `China’s regulator ordered changes after vehicle occupants sometimes had difficulty exiting electric cars, an issue that has led to lawsuits against Tesla in the United States.`\
 https://www.nytimes.com/2026/08/21/business/china-car-recall-doors.html
-
-**Busta Rhymes on His Signature ‘Speed Rapping’**\
-`Rapper Busta Rhymes sits down with Joe Coscarelli and Jon Caramanica on Popcast to discuss his decades-long career, legacy, and upcoming projects.`\
-https://www.nytimes.com/video/podcasts/100000011097437/busta-rhymes-on-his-signature-speed-rapping.html
 

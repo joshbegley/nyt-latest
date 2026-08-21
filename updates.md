@@ -1,3 +1,7 @@
+**Jalapeño Cheddar Zucchini Bread**\
+`Thanks to its high water content, zucchini reliably delivers super-moist easy-mix breads. This zucchini loaf swings savory, confidently cheesy from sharp Cheddar with a gentle acidity and peppery heat from store-bought pickled jalapeños.`\
+https://www.nytimes.com/video/dining/100000011105662/jalapeno-cheddar-zucchini-bread.html
+
 **Tofu Musubi**\
 `Musubis are a traditional Hawaiian snack built to travel. Often filled with grilled and glazed slices of Spam, here, the rice is topped with teriyaki glazed tofu for a vegetarian twist on the classic.`\
 https://www.nytimes.com/video/smarter-living/wirecutter/100000011105935/tofu-musubi.html
