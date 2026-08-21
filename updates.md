@@ -1,3 +1,15 @@
+**Landmarks Panel Approves Designs to Replace Parking Lot With High Rises**\
+`Local groups in the NoHo neighborhood of Manhattan opposed the plan, saying designs for two apartment buildings did not reflect the neighborhood’s historical character.`\
+https://www.nytimes.com/2026/08/21/nyregion/noho-parking-lot-apartments.html
+
+**N.Y. State Senator’s Former Aides Say She Double-Billed for Travel**\
+`For years, Jessica Ramos used campaign money to pay for hotels and Amtrak tickets while also receiving state payments for travel, records and interviews show.`\
+https://www.nytimes.com/2026/08/21/nyregion/ny-ramos-campaign-expense-charges.html
+
+**NYT Spelling Bee Answers for August 21, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/08/21/crosswords/spelling-bee-forum.html
+
 **Rare Tornados Hit New York as Storm Drenches Mid-Atlantic**\
 `Tornadoes appeared in New York City and on Long Island as flooding disrupted traffic on some major highways. A tornado was also confirmed in Delaware.`\
 https://www.nytimes.com/2026/08/21/nyregion/tornado-storm-long-island-delaware.html

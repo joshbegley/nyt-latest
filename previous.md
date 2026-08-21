@@ -1,3 +1,15 @@
+**Landmarks Panel Approves Designs to Replace Parking Lot With High Rises**\
+`Local groups in the NoHo neighborhood of Manhattan opposed the plan, saying designs for two apartment buildings did not reflect the neighborhood’s historical character.`\
+https://www.nytimes.com/2026/08/21/nyregion/noho-parking-lot-apartments.html
+
+**N.Y. State Senator’s Former Aides Say She Double-Billed for Travel**\
+`For years, Jessica Ramos used campaign money to pay for hotels and Amtrak tickets while also receiving state payments for travel, records and interviews show.`\
+https://www.nytimes.com/2026/08/21/nyregion/ny-ramos-campaign-expense-charges.html
+
+**NYT Spelling Bee Answers for August 21, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/08/21/crosswords/spelling-bee-forum.html
+
 **Irán y EE. UU., en un pulso de nervios sin ganador**\
 `Durante semanas no ha habido avances diplomáticos, pero tampoco enfrentamientos a gran escala porque cada bando parece creer que puede resistir más tiempo que el otro.`\
 https://www.nytimes.com/es/2026/08/21/espanol/mundo/iran-trump-estancamiento.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/video/world/europe/100000011103379/londoners-react-harry
 **Imran Khan Is Granted Brief Hospital Visit Before Returning to Prison**\
 `The former prime minister of Pakistan, who was convicted on corruption charges, has been fighting a legal battle over his medical treatment.`\
 https://www.nytimes.com/2026/08/20/world/asia/imran-khan-hospital-pakistan.html
-
-**A Week After Hurricane Lala, Hawaii Faces Another Storm Threat**\
-`A storm is forming in the Pacific just as the Big Island assesses damage from last weekend’s indirect hit.`\
-https://www.nytimes.com/2026/08/20/weather/tropical-storm-hawaii-hurricane-lala-recovery.html
-
-**Songs for Lizard Season**\
-`Our colleagues at The Amplifier newsletter have music recommendations for the final sun-basking days of summer.`\
-https://www.nytimes.com/2026/08/20/world/music-songs-ukraine-royals.html
-
-**Debating the Use of A.I. in Writing**\
-`Readers responded to a column begging readers not to use A.I. to write. Also, a rush to build the White House ballroom; a Trump voter’s wife is detained by ICE; and Trump derangement syndrome.`\
-https://www.nytimes.com/2026/08/20/opinion/letters/debating-ai-in-writing.html
 
