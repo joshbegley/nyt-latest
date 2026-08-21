@@ -1,3 +1,7 @@
+****\
+`A funnel-shaped cloud appeared over parts of Long Island, N.Y., on Thursday, spinning up debris near the Rockaways, witnesses said.`\
+https://www.nytimes.com/video/embedded/nyregion/100000011105247/21vid-xp-storm-spout-embed-66461.html
+
 **Florida Counts Its Election Ballots Fast. Why Can’t California Keep Up?**\
 `Florida counted most of its primary ballots within hours on Tuesday night, well ahead of the days California took to report the results of its major election.`\
 https://www.nytimes.com/2026/08/20/us/florida-california-election-ballots.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/20/nyregion/hochul-mamdani-israel-new-york.html
 **Climate: Saving Old Trees Might Save Lives**\
 `We know that trees are good for cities. A new study finds that mature trees are especially good.`\
 https://www.nytimes.com/2026/08/20/climate/climate-saving-old-trees-might-save-lives.html
-
-**Mapa: un terremoto de magnitud 6,7 sacude Perú**\
-`Mira la localización del epicentro del sismo y el área de movimiento.`\
-https://www.nytimes.com/interactive/2026/08/20/espanol/terremoto-peru-ayacucho.html
 
