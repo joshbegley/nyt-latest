@@ -1,3 +1,11 @@
+**Pentagon Fires Editor and Publisher of Independent Military Publication**\
+`The firings at Stars and Stripes also claimed a Middle East correspondent. They are the latest effort by the Pentagon to diminish the news outlet’s editorial independence.`\
+https://www.nytimes.com/2026/08/21/us/politics/pentagon-fires-stars-stripes-editor.html
+
+**Defense Rests Case in Lindsay Clancy Murder Trial**\
+`The two sides focused Friday on whether Ms. Clancy was experiencing psychosis when she strangled her three young children in 2023. Closing arguments could begin on Monday.`\
+https://www.nytimes.com/2026/08/21/us/lindsay-clancy-trial-defense.html
+
 **Jalapeño Cheddar Zucchini Bread**\
 `Thanks to its high water content, zucchini reliably delivers super-moist easy-mix breads. This zucchini loaf swings savory, confidently cheesy from sharp Cheddar with a gentle acidity and peppery heat from store-bought pickled jalapeños.`\
 https://www.nytimes.com/video/dining/100000011105662/jalapeno-cheddar-zucchini-bread.html

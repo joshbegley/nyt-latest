@@ -1,3 +1,7 @@
+**Has Trump’s Trade Policy Achieved Any of Its Goals?**\
+`America’s trade deficit is at roughly the same level as it was during the Biden administration. So has President Trump’s trade policy achieved anything? Brad Setser, a China expert and a senior fellow at the Council on Foreign Relations, weighs in on “The Ezra Klein Show.”`\
+https://www.nytimes.com/video/opinion/100000011093720/has-trumps-trade-policy-achieved-any-of-its-goals.html
+
 **Pentagon Fires Editor and Publisher of Independent Military Publication**\
 `The firings at Stars and Stripes also claimed a Middle East correspondent. They are the latest effort by the Pentagon to diminish the news outlet’s editorial independence.`\
 https://www.nytimes.com/2026/08/21/us/politics/pentagon-fires-stars-stripes-editor.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/08/21/espanol/mundo/arday-muerte-cofnas-suspensi
 **Busta Rhymes’ New Project Includes Collaborations with D’Angelo and J Dilla**\
 `Busta Rhymes spoke to Popcast about the emotional weight of creating music with the work of friends who have passed away. His new project is curated from hundreds of unreleased J Dilla beats and featuring D’Angelo.`\
 https://www.nytimes.com/video/podcasts/100000011097438/busta-rhymes-new-project-includes-collaborations-with-dangelo-and-j-dilla.html
-
-**Prince Harry, Elton John and Others Told to Pay Daily Mail Publisher $13 Million**\
-`Harry and six other high-profile figures lost a privacy lawsuit against Associated Newspapers. They may eventually have to pay more than twice the initial sum, a judge said.`\
-https://www.nytimes.com/2026/08/21/world/europe/prince-harry-daily-mail-publisher-pay.html
 
