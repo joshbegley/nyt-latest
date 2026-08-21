@@ -1,3 +1,7 @@
+**Book Review: ‘The Breakup,’ by Kurt Andersen**\
+`In Kurt Andersen’s new novel, “The Breakup,” a family navigates a nation ruptured by civil war.`\
+https://www.nytimes.com/2026/08/21/books/review/kurt-andersen-breakup.html
+
 **Push for Online Gun Sales Meets a Surprising Opponent: Small Gun Dealers**\
 `The Trump administration wants average Americans to be able to buy guns online and have them shipped to their doors. Small gun stores warn it could upend the industry and risk public safety.`\
 https://www.nytimes.com/2026/08/21/us/politics/online-gun-sales-trump.html
@@ -150,13 +154,13 @@ https://www.nytimes.com/2026/08/21/nyregion/frank-e-campbell-funeral-home-band.h
 `China is winning the industries of the future. What should the U.S. do about it?`\
 https://www.nytimes.com/2026/08/21/opinion/ezra-klein-podcast-brad-setser.html
 
-**Flock Cameras. Canoodling Lawyers. How Much Surveillance Are We Comfortable With?**\
-`Americans say they hate prying cameras. But they can’t look away.`\
-https://www.nytimes.com/2026/08/21/magazine/flock-cameras-surveillance-state.html
-
 **Carlo Borlenghi, Who Turned Sailing Photography Into an Art, Dies at 70**\
 `For four decades, he documented yachting’s top competitions. But the sailboats weren’t always the focus of his images.`\
 https://www.nytimes.com/2026/08/21/sports/sailing/carlo-borlenghi-dead.html
+
+**Flock Cameras. Canoodling Lawyers. How Much Surveillance Are We Comfortable With?**\
+`Americans say they hate prying cameras. But they can’t look away.`\
+https://www.nytimes.com/2026/08/21/magazine/flock-cameras-surveillance-state.html
 
 **Electricians Love Data Centers. You Should, Too.**\
 `Electricians like data centers. Here’s why you should, too.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/21/opinion/college-financial-aid-wealthy.html
 **The Democrats Need a New Approach on Crime**\
 `People want to be protected. The party’s candidates can promise to do that better.`\
 https://www.nytimes.com/2026/08/21/opinion/crime-democrats-midterms.html
-
-**Can She Translate a Big New York Sports Moment Into a Poster?**\
-`Eugenia Mello created art for the 2026 U.S. Open inspired by a passion for movement and color, and her own immigrant journey from Peru to Brooklyn.`\
-https://www.nytimes.com/2026/08/21/arts/design/us-open-poster-eugenia-mello.html
 
