@@ -1,3 +1,7 @@
+**‘It’s Been Terrible’: Thousands in Indiana Remain Without Power**\
+`Gov. Mike Braun called on the local utility to “match the urgency” of Gary area residents who have had to endure an outage approaching its second week.`\
+https://www.nytimes.com/2026/08/22/us/gary-indiana-11-day-power-outage.html
+
 **Judge Denies New Trial for Karmelo Anthony in Texas Teen’s Killing**\
 `Mr. Anthony, 19, was convicted of murder in the fatal stabbing of Austin Metcalf at a high school track meet last year. His lawyers are appealing the case.`\
 https://www.nytimes.com/2026/08/22/us/karmelo-anthony-texas-stabbing.html
