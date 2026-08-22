@@ -1,3 +1,19 @@
+**Mark Carney Speaks to Canadians After Trade Talks With U.S. Collapse**\
+`Prime Minister Mark Carney addressed Canadians on Saturday morning, hours after he ordered negotiators to suspend U.S. trade talks despite President Trump’s punishing tariffs.`\
+https://www.nytimes.com/2026/08/22/world/canada/carney-tariffs-trade-trump.html
+
+**A Skillet Dinner That Hits All the Right Summer Notes**\
+`Yewande Komolafe’s skillet chicken with peppers and tomatoes is sweet and savory, with lots of acidity to keep things nice and bright.`\
+https://www.nytimes.com/2026/08/22/dining/a-skillet-dinner-that-hits-all-the-right-summer-notes.html
+
+**Watch Live: Canadian Prime Minister Mark Carney Delivers Remarks**\
+`Canadian Prime Minister Mark Carney delivers remarks after the U.S.-Canada trade talks collapsed.`\
+https://www.nytimes.com/video/world/100000011107687/watch-live-canadian-prime-minister-mark-carney-delivers-remarks.html
+
+**Harvard Is Selling a $699 Course Taught by A.I. Clones of Its Faculty**\
+`To create a new bootcamp for entrepreneurs, Harvard Business School made A.I. avatars of its instructors.`\
+https://www.nytimes.com/2026/08/22/business/dealbook/harvard-ai-faculty.html
+
 **Grand Slam Desserts: The Main Draw**\
 `Melon cheesecake bars, Pavlova, and strawberries and cream cake are the perfect match for tennis’s biggest events.`\
 https://www.nytimes.com/2026/08/22/dining/grand-slam-desserts-the-main-draw.html
