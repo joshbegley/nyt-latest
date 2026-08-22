@@ -1,3 +1,35 @@
+**For Some in a Disrupted D.C., Grand Prix Is More Irritation Than Celebration**\
+`Race preparations have snarled traffic, rerouted flights and forced the National Gallery of Art to conduct vibration tests.`\
+https://www.nytimes.com/2026/08/22/us/politics/dc-grand-prix-indycar-traffic-damage.html
+
+**Police Chief in Mississippi Regularly Used Racist Slurs, Private Text Messages Reveal**\
+`Text exchanges obtained by reporters show troubling messages sent by the chief of a Mississippi police department facing an uproar over the fatal shooting of a 1-year-old boy in June.`\
+https://www.nytimes.com/2026/08/22/us/police-chief-mississippi-racist-slurs.html
+
+**Meghan’s Brand, As Ever, Will Live On**\
+`As the Duke and Duchess of Sussex head back to Britain, Meghan’s brand will continue selling wine and fruit spreads.`\
+https://www.nytimes.com/2026/08/22/style/meghan-markle-as-ever.html
+
+**Hawaii Braces for Another Foot of Rain as Lala Cleanup Continues**\
+`The National Weather Service issued a flood watch for the Big Island with heavy rain expected to arrive there by Saturday night.`\
+https://www.nytimes.com/2026/08/22/weather/hawaii-moke-storm-rain-flood.html
+
+**How a Progressive Democrat in Florida Gave Her Party New Hope — and New Fears**\
+`Angie Nixon, a state lawmaker from Jacksonville, shocked Democrats in red Florida by soundly defeating her centrist primary opponent. Now comes the hard part.`\
+https://www.nytimes.com/2026/08/22/us/politics/angie-nixon-florida-senate-socialist.html
+
+**Mi luz estaba apagada. Él la encendió**\
+`Después de un matrimonio largo y casi sin sexo, pensé que ya no me quedaba nada de pasión.`\
+https://www.nytimes.com/es/2026/08/22/espanol/estilos-de-vida/viudez-romance-adulto-mayor-modern-love.html
+
+**Harry and Meghan See Their California Dreams — and Riches — Fade Away**\
+`Like so many others before them, Prince Harry and Meghan arrived in Hollywood with big plans. They are leaving with their star power fading.`\
+https://www.nytimes.com/2026/08/22/us/meghan-harry-hollywood-uk-move.html
+
+**La amistad está determinada por el estatus social para muchos**\
+`La conexión social es un bien público, o al menos debería serlo en EE. UU.`\
+https://www.nytimes.com/es/2026/08/22/espanol/opinion/amistad-clase-social.html
+
 **Tupac Shakur Murder Trial: 5 Takeaways From Week 1**\
 `The jury heard from more than a dozen witnesses, including detectives and former gang members. The suspect, Duane Davis, addressed the judge directly.`\
 https://www.nytimes.com/2026/08/22/arts/music/tupac-shakur-murder-trial-takeaways.html
@@ -6,13 +38,13 @@ https://www.nytimes.com/2026/08/22/arts/music/tupac-shakur-murder-trial-takeaway
 `Jorja Smith offers a loaded invitation, Rapsody explores Africa and the cosmos, and Carly Simon returns with her first single in decades.`\
 https://www.nytimes.com/2026/08/22/arts/music/carly-simon-rapsody-jorja-smith-new-songs.html
 
-**In Ohio, Haitians Feel Shaken by Ankle Monitors and Increased ICE Presence**\
-`The devices, which will make it easier for authorities to locate immigrants in Springfield if large-scale deportations begin, have intensified a sense of dread.`\
-https://www.nytimes.com/2026/08/22/us/haiti-tps-springfield-ankle-monitors.html
-
 **The Economy Got Used to Low Borrowing Costs. Their Exit Could Pose Risks.**\
 `After roughly two decades of ultralow interest rates, a period of rapid readjustment is ahead for the United States, the world’s largest economy and most important financial system.`\
 https://www.nytimes.com/2026/08/22/business/bonds-borrowing-costs-economy.html
+
+**In Ohio, Haitians Feel Shaken by Ankle Monitors and Increased ICE Presence**\
+`The devices, which will make it easier for authorities to locate immigrants in Springfield if large-scale deportations begin, have intensified a sense of dread.`\
+https://www.nytimes.com/2026/08/22/us/haiti-tps-springfield-ankle-monitors.html
 
 **Priya Parker on the D.S.A.: ‘The Jilted Lovers of the Democrats’**\
 `On “The Interview,” the conflict resolution facilitator Priya Parker discussed political fighting and how organizations can find the common ground that prevents a breakup.`\
@@ -165,36 +197,4 @@ https://www.nytimes.com/es/2026/08/22/espanol/america-latina/deportacion-migrant
 **Reseña de ‘La noche del demonio: están entre nosotros’**\
 `La sexta entrega de la franquicia de terror intenta renovarla, pero su reputación ha decaído con cada nuevo intento de sobresalto.`\
 https://www.nytimes.com/es/2026/08/22/espanol/cultura/noche-demonio-resena-insidious.html
-
-**¿La nueva novela de Rachel Cusk trata sobre Natalie Portman?**\
-`‘Life of M’, el nuevo libro de Rachel Cusk, tiene una protagonista con un asombroso parecido a Natalie Portman. Pero, en una entrevista, la autora dice que nunca esperó que causara tal frenesí.`\
-https://www.nytimes.com/es/2026/08/22/espanol/cultura/natalie-portman-rachel-cusk-libro.html
-
-**Quote of the Day: New York Rhythm Captured on Poster**\
-`Quotation of the Day for Saturday, August 22, 2026.`\
-https://www.nytimes.com/2026/08/22/pageoneplus/quote-of-the-day-new-york-rhythm-captured-on-poster.html
-
-**Cities Compete in Dizzying ‘Gold Rush’ to Be Japan’s Backup Capital**\
-`Osaka? Fukuoka? Sapporo? The race is on to be second to Tokyo — and to claim the prestige and money that could come with it.`\
-https://www.nytimes.com/2026/08/22/world/asia/japan-capital-osaka.html
-
-**Close and Loving, or Oppressive? A Novelist Takes Aim at Italian Families.**\
-`Many Italians see themselves in Andrea Bajani’s latest novel, a portrayal of the family as a “little totalitarian system” shaped by psychological and physical violence.`\
-https://www.nytimes.com/2026/08/22/world/europe/italian-families-novel-anniversary-bajani.html
-
-**Canada-U.S. Trade War Escalates as Talks Collapse**\
-`Intense negotiations to stave off new levies by the Trump administration ended in an impasse as Mark Carney suspended talks. U.S. tariffs on Canada, and retaliatory tariffs on the U.S., will come into effect.`\
-https://www.nytimes.com/2026/08/21/world/canada/trump-tariffs-trade-no-deal-carney-canada.html
-
-**With Midterms Approaching, Trump Implores Republicans: Pretend I’m on the Ballot!**\
-`President Trump was in South Carolina to stump for Darline Graham, sister of Lindsey. But his own political future was on his mind, too.`\
-https://www.nytimes.com/2026/08/21/us/politics/trump-darline-graham-south-carolina.html
-
-**Postal Service Publishes Finalized Plan to Restrict Mail Ballots**\
-`The plan complies with President Trump’s executive order to restrict mail voting, which was blocked by federal courts and is under review at the Supreme Court.`\
-https://www.nytimes.com/2026/08/21/us/politics/postal-service-rule-restrict-mail-ballots.html
-
-**Judge Strikes Down Trump’s 75-Country Visa Ban**\
-`The ruling from the Southern District of New York found that the policy went beyond Secretary of State Marco Rubio’s legal authority.`\
-https://www.nytimes.com/2026/08/21/us/politics/judge-trump-75-country-visa-ban.html
 
