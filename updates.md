@@ -1,3 +1,11 @@
+**U.S. Economy Could Feel the Sting From Trade War With Canada**\
+`A tit-for-tat trade fight between the two allies could create new headaches for consumers and businesses already stung by high prices.`\
+https://www.nytimes.com/2026/08/22/business/economy-trade-war-us-canada.html
+
+**Paramount and California to Hold Preliminary Talks on Warner Bros. Deal**\
+`The discussions on Monday are an early effort to resolve a lawsuit that California and 11 other states filed to block Paramount’s $111 billion acquisition of Warner Bros. Discovery.`\
+https://www.nytimes.com/2026/08/22/business/paramount-california-warner-bros.html
+
 **Carney Slams U.S.-Canada Trade Proposal and Vows Retaliation**\
 `Prime Minister Mark Carney gave a powerful speech to Canadians on Saturday morning, hours after ordering negotiators to suspend U.S. trade talks despite President Trump’s punishing tariffs.`\
 https://www.nytimes.com/2026/08/22/world/canada/carney-tariffs-trade-trump.html

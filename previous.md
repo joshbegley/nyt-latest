@@ -1,3 +1,11 @@
+**U.S. Economy Could Feel the Sting From Trade War With Canada**\
+`A tit-for-tat trade fight between the two allies could create new headaches for consumers and businesses already stung by high prices.`\
+https://www.nytimes.com/2026/08/22/business/economy-trade-war-us-canada.html
+
+**Paramount and California to Hold Preliminary Talks on Warner Bros. Deal**\
+`The discussions on Monday are an early effort to resolve a lawsuit that California and 11 other states filed to block Paramount’s $111 billion acquisition of Warner Bros. Discovery.`\
+https://www.nytimes.com/2026/08/22/business/paramount-california-warner-bros.html
+
 **The Real Natalie Harp Scandal Is the President’s Information Diet**\
 `President Trump exists in a degraded, chaotic environment.`\
 https://www.nytimes.com/2026/08/22/opinion/trump-natalie-harp-information-news.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/22/technology/carrier-pigeon-app-texting-technol
 **Corrections: Aug. 22, 2026**\
 `Corrections that appeared in print on Saturday, Aug. 22, 2026.`\
 https://www.nytimes.com/2026/08/22/pageoneplus/corrections-aug-22-2026.html
-
-**Yvette Roudy, France’s First Minister for Women’s Rights, Dies at 97**\
-`Maintaining that access to abortion was as much a matter of economic equality as women’s rights, she successfully championed state reimbursement for abortions.`\
-https://www.nytimes.com/2026/08/22/world/europe/yvette-roudy-dead.html
-
-**Lebanon’s Efforts to Tame Hezbollah Stall Amid Israel War**\
-`President Joseph Aoun took office with a popular mandate to reassert control after the militant group dragged the country back into war with Israel.`\
-https://www.nytimes.com/2026/08/22/world/middleeast/lebanon-hezbollah-israel-diplomacy.html
 
