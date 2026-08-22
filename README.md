@@ -22,7 +22,7 @@ https://www.nytimes.com/2026/08/22/world/asia/japan-capital-osaka.html
 `Many Italians see themselves in Andrea Bajani’s latest novel, a portrayal of the family as a “little totalitarian system” shaped by psychological and physical violence.`\
 https://www.nytimes.com/2026/08/22/world/europe/italian-families-novel-anniversary-bajani.html
 
-**Canada-U.S. Trade War Escalates As Talks Collapse**\
+**Canada-U.S. Trade War Escalates as Talks Collapse**\
 `Intense negotiations to stave off new levies by the Trump administration ended in an impasse as Mark Carney suspended talks. U.S. tariffs on Canada, and retaliatory tariffs on the U.S., will come into effect.`\
 https://www.nytimes.com/2026/08/21/world/canada/trump-tariffs-trade-no-deal-carney-canada.html
 
