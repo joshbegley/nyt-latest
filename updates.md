@@ -1,3 +1,7 @@
+**Tropical Storm Moke Threatens to Bring Up to a Foot of Rain to Hawaii**\
+`Heavy rain is expected to arrive at the Big Island by Saturday night. The storm comes as Hawaii is still cleaning up from the damage done by Hurricane Lala.`\
+https://www.nytimes.com/2026/08/22/weather/hawaii-moke-storm-rain-flood.html
+
 **U.S. Economy Could Feel the Sting From Trade War With Canada**\
 `A tit-for-tat trade fight between the two allies could create new headaches for consumers and businesses already stung by high prices.`\
 https://www.nytimes.com/2026/08/22/business/economy-trade-war-us-canada.html
