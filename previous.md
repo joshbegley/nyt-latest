@@ -1,3 +1,11 @@
+**Harvard’s A.I. Clones Will Hear Your Start-Up Pitch Now**\
+`To create a new $699 bootcamp for entrepreneurs, Harvard Business School made A.I. versions of its faculty.`\
+https://www.nytimes.com/2026/08/22/business/dealbook/harvard-ai-faculty.html
+
+**Otras 5 señales inesperadas de que estás envejeciendo**\
+`Nuestros cuerpos sufren cambios que podrían resultar sorprendentes. Le preguntamos a los expertos por algunos de ellos.`\
+https://www.nytimes.com/es/2026/08/22/espanol/estilos-de-vida/senales-envejecimiento-dolor-pies.html
+
 **Natalie’s Magnificent Obsession**\
 `This human printer runs — but not out of ink.`\
 https://www.nytimes.com/2026/08/22/opinion/natalie-harp-jon-ossoff-trump.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/22/world/europe/rest-is-history-podcast-sandbroo
 **Book Review: ‘The Great Wherever,’ by Shannon Sanders**\
 `In “The Great Wherever,” generations of spirits watch as their descendants debate whether or not to sell their ancestral home.`\
 https://www.nytimes.com/2026/08/22/books/review/the-great-wherever-shannon-sanders.html
-
-**Mapping America’s Largest ‘Dead Zone’**\
-`In a decades-long crisis, marine life has suffered as oxygen periodically dwindles in waters along the Gulf Coast.`\
-https://www.nytimes.com/2026/08/22/science/gulf-coast-hypoxia-fish.html
-
-**A 20-Minute Workout for Strong, Healthy Hips**\
-`These exercises can help you build strength to avoid aches and pains.`\
-https://www.nytimes.com/2026/08/22/well/move/hip-strength-exercises.html
 

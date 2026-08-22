@@ -1,3 +1,11 @@
+**Harvard’s A.I. Clones Will Hear Your Start-Up Pitch Now**\
+`To create a new $699 bootcamp for entrepreneurs, Harvard Business School made A.I. versions of its faculty.`\
+https://www.nytimes.com/2026/08/22/business/dealbook/harvard-ai-faculty.html
+
+**Otras 5 señales inesperadas de que estás envejeciendo**\
+`Nuestros cuerpos sufren cambios que podrían resultar sorprendentes. Le preguntamos a los expertos por algunos de ellos.`\
+https://www.nytimes.com/es/2026/08/22/espanol/estilos-de-vida/senales-envejecimiento-dolor-pies.html
+
 **Natalie’s Magnificent Obsession**\
 `This human printer runs — but not out of ink.`\
 https://www.nytimes.com/2026/08/22/opinion/natalie-harp-jon-ossoff-trump.html
