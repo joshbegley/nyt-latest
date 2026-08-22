@@ -1,4 +1,8 @@
-**Mark Carney Speaks to Canadians After Trade Talks With U.S. Collapse**\
+**The Real Natalie Harp Scandal Is the President’s Information Diet**\
+`President Trump exists in a degraded, chaotic environment.`\
+https://www.nytimes.com/2026/08/22/opinion/trump-natalie-harp-information-news.html
+
+**Carney Slams U.S.-Canada Trade Proposal and Vows Retaliation**\
 `Prime Minister Mark Carney addressed Canadians on Saturday morning, hours after he ordered negotiators to suspend U.S. trade talks despite President Trump’s punishing tariffs.`\
 https://www.nytimes.com/2026/08/22/world/canada/carney-tariffs-trade-trump.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/22/world/europe/yvette-roudy-dead.html
 **Lebanon’s Efforts to Tame Hezbollah Stall Amid Israel War**\
 `President Joseph Aoun took office with a popular mandate to reassert control after the militant group dragged the country back into war with Israel.`\
 https://www.nytimes.com/2026/08/22/world/middleeast/lebanon-hezbollah-israel-diplomacy.html
-
-**My Neighbor Installed a Camera Pointing to My Yard. Is That Legal?**\
-`The answer may partly depend on whether the device was installed with the intent to harass or intimidate.`\
-https://www.nytimes.com/2026/08/22/realestate/neighbors-cameras-visual-surveillance.html
 
