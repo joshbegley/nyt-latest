@@ -58,8 +58,8 @@ https://www.nytimes.com/2026/08/22/opinion/politics-maga-right-left-woke-primari
 `Readers react to a guest essay about how some patients struggle with getting off medications used to treat depression.`\
 https://www.nytimes.com/2026/08/22/opinion/antidepressants-mental-health.html
 
-**$40 Trillion Debt? The Ancient Sumerians Wouldn’t Have Cared.**\
-`U.S. debt has topped $40 trillion. In the ancient world, debt forgiveness was a regular tool to control the economy. Why have we forgotten it?`\
+**An Ancient Sumerian Solution to Our $40 Trillion Deficit**\
+`In the ancient world, debt forgiveness was a regular tool to control the economy. Why have we forgotten it?`\
 https://www.nytimes.com/2026/08/22/opinion/us-debt-40-trillion.html
 
 **Companies Shouldn’t Set Prices One Customer at a Time**\
