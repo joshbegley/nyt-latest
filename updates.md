@@ -1,3 +1,7 @@
+**What Does Harry and Meghan’s Return to England Mean for Their Children?**\
+`One effect of moving back is that Archie and Lilibet now have the opportunity to be schooled as Britons. Here’s what that might look like.`\
+https://www.nytimes.com/2026/08/22/world/europe/harry-meghan-children-schools.html
+
 **An Expert on Conflict Says Your Relationships Are Doomed Without It**\
 `The author Priya Parker says the key to human connection is to lean into the fight.`\
 https://www.nytimes.com/2026/08/22/magazine/priya-parker-interview.html

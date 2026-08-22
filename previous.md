@@ -1,3 +1,7 @@
+**What Does Harry and Meghan’s Return to England Mean for Their Children?**\
+`One effect of moving back is that Archie and Lilibet now have the opportunity to be schooled as Britons. Here’s what that might look like.`\
+https://www.nytimes.com/2026/08/22/world/europe/harry-meghan-children-schools.html
+
 **An Expert on Conflict Says Your Relationships Are Doomed Without It**\
 `The author Priya Parker says the key to human connection is to lean into the fight.`\
 https://www.nytimes.com/2026/08/22/magazine/priya-parker-interview.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/22/crosswords/spelling-bee-forum.html
 **Colman Domingo, nominado al Emmy por ‘Euphoria’, se siente bendecido**\
 `El actor pasó de ser oráculo a ángel de la venganza en el drama de HBO ‘Euphoria’. En esta entrevista, habla sobre sus dos nominaciones al Emmy por dos personajes muy diferentes.`\
 https://www.nytimes.com/es/2026/08/22/espanol/cultura/colman-domingo-euforia-four-seasons-emmys.html
-
-**Malas noticias para ‘la persona más sana del planeta’**\
-`Bryan Johnson, el gurú de la longevidad, quiere vivir para siempre. La gran pregunta es por qué.`\
-https://www.nytimes.com/es/2026/08/22/espanol/estados-unidos/bryan-johnson-rejuvenecimiento-edad.html
 
