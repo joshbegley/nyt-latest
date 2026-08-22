@@ -1,3 +1,7 @@
+**‘It’s Been Terrible’: Thousands in Indiana Remain Without Power**\
+`Gov. Mike Braun called on the local utility to “match the urgency” of Gary area residents who have had to endure an outage approaching its second week.`\
+https://www.nytimes.com/2026/08/22/us/gary-indiana-11-day-power-outage.html
+
 **Judge Denies New Trial for Karmelo Anthony in Texas Teen’s Killing**\
 `Mr. Anthony, 19, was convicted of murder in the fatal stabbing of Austin Metcalf at a high school track meet last year. His lawyers are appealing the case.`\
 https://www.nytimes.com/2026/08/22/us/karmelo-anthony-texas-stabbing.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/podcasts/100000011101290/priya-parker-on-the-dsa-t
 **How Slack Has ‘Turbocharged Conflict’ at Work**\
 `How has Slack changed corporate culture? Priya Parker, a conflict resolution facilitator, discussed its importance with David Marchese on “The Interview.”`\
 https://www.nytimes.com/video/podcasts/100000011101286/how-slack-has-turbocharged-conflict-at-work.html
-
-**Why Polling Chaos Could Create Big Problems for American Politics**\
-`Bad polls. Misleading betting odds. Surveys meant to shape narratives. Ahead of the midterms and 2028, there is suddenly serious confusion about candidate strength and voter sentiment.`\
-https://www.nytimes.com/2026/08/22/us/politics/election-polls-confusion-prediction-markets.html
 
