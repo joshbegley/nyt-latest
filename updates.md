@@ -1,3 +1,11 @@
+**Colman Domingo, nominado al Emmy por ‘Euphoria’, se siente bendecido**\
+`El actor pasó de ser oráculo a ángel de la venganza en el drama de HBO ‘Euphoria’. En esta entrevista, habla sobre sus dos nominaciones al Emmy por dos personajes muy diferentes.`\
+https://www.nytimes.com/es/2026/08/22/espanol/cultura/colman-domingo-euforia-four-seasons-emmys.html
+
+**Malas noticias para ‘la persona más sana del planeta’**\
+`Bryan Johnson, el gurú de la longevidad, quiere vivir para siempre. La gran pregunta es por qué.`\
+https://www.nytimes.com/es/2026/08/22/espanol/estados-unidos/bryan-johnson-rejuvenecimiento-edad.html
+
 **Canada-U.S. Trade War Escalates as Talks Collapse**\
 `Intense negotiations to stave off new levies by the Trump administration ended in an impasse as Mark Carney suspended talks. U.S. tariffs on Canada, and retaliatory tariffs on the U.S., will come into effect.`\
 https://www.nytimes.com/2026/08/21/world/canada/trump-tariffs-trade-no-deal-carney-canada.html

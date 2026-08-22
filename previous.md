@@ -1,3 +1,11 @@
+**Colman Domingo, nominado al Emmy por ‘Euphoria’, se siente bendecido**\
+`El actor pasó de ser oráculo a ángel de la venganza en el drama de HBO ‘Euphoria’. En esta entrevista, habla sobre sus dos nominaciones al Emmy por dos personajes muy diferentes.`\
+https://www.nytimes.com/es/2026/08/22/espanol/cultura/colman-domingo-euforia-four-seasons-emmys.html
+
+**Malas noticias para ‘la persona más sana del planeta’**\
+`Bryan Johnson, el gurú de la longevidad, quiere vivir para siempre. La gran pregunta es por qué.`\
+https://www.nytimes.com/es/2026/08/22/espanol/estados-unidos/bryan-johnson-rejuvenecimiento-edad.html
+
 **Atrapado en Esuatini: la historia de un cubano deportado a África**\
 `Roberto Mosquera llevaba décadas en EE. UU., donde cumplió condenas por delitos pero rehizo su vida como plomero. En un abrir y cerrar de ojos, su vida dio un tumbo.`\
 https://www.nytimes.com/es/2026/08/22/espanol/america-latina/deportacion-migrantes-esuatini.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/21/opinion/letters/tiktok-isnt-psychotherapy.htm
 **Mark Zuckerberg Buys an Irish Castle**\
 `The prominent landowner has added a nearly 200-year-old estate to his holdings. Archival information says it can take “a brisk walk of 4½ minutes to reach the dining room from the kitchen.”`\
 https://www.nytimes.com/2026/08/21/world/europe/zuckerberg-castle-ireland.html
-
-**Small Plane Crashes in Western Alaska, Killing Eight**\
-`The Cessna aircraft was carrying two pilots, two U.S. Army engineers and four contractors to Cape Newenham from Anchorage when it crashed near a U.S. military site, investigators said.`\
-https://www.nytimes.com/2026/08/21/us/alaska-plane-crash.html
-
-**Prison Firm Donated to Trump’s PAC After ICE Gave It $165 Million a Year in Contracts**\
-`The GEO Group has profited from the administration’s mass deportation campaign. A subsidiary donated more than $1.4 million to the president’s super PAC last month.`\
-https://www.nytimes.com/2026/08/21/us/politics/geo-group-maga-inc-donations-ice-contracts.html
 
