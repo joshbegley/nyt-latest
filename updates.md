@@ -1,3 +1,15 @@
+**Quote of the Day: New York Rhythm Captured on Poster**\
+`Quotation of the Day for Saturday, August 22, 2026.`\
+https://www.nytimes.com/2026/08/22/pageoneplus/quote-of-the-day-new-york-rhythm-captured-on-poster.html
+
+**Cities Compete in Dizzying ‘Gold Rush’ to Be Japan’s Backup Capital**\
+`Osaka? Fukuoka? Sapporo? The race is on to be second to Tokyo — and to claim the prestige and money that could come with it.`\
+https://www.nytimes.com/2026/08/22/world/asia/japan-capital-osaka.html
+
+**Close and Loving, or Oppressive? A Novelist Takes Aim at Italian Families.**\
+`Many Italians see themselves in Andrea Bajani’s latest novel, a portrayal of the family as a “little totalitarian system” shaped by psychological and physical violence.`\
+https://www.nytimes.com/2026/08/22/world/europe/italian-families-novel-anniversary-bajani.html
+
 **Canada-U.S. Trade Talks Collapse; Washington Imposes New Tariffs**\
 `Mark Carney suspended talks and will take out retaliatory tariffs against the United States after days of negotiations to stave off new levies by the Trump administration ended in an impasse.`\
 https://www.nytimes.com/2026/08/21/world/canada/trump-tariffs-trade-no-deal-carney-canada.html
