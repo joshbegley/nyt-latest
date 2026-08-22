@@ -1,3 +1,7 @@
+**Nancy Kassebaum, First Woman to Chair a Major Senate Panel, Dies at 94**\
+`A moderate Republican from Kansas, she served three terms before tiring of political strife. “I couldn’t get elected today,” she said in 2013.`\
+https://www.nytimes.com/2026/08/22/us/politics/nancy-kassebaum-dead.html
+
 **Tropical Storm Moke Threatens to Bring Up to a Foot of Rain to Hawaii**\
 `Heavy rain is expected to arrive at the Big Island by Saturday night. The storm comes as Hawaii is still cleaning up from the damage done by Hurricane Lala.`\
 https://www.nytimes.com/2026/08/22/weather/hawaii-moke-storm-rain-flood.html
