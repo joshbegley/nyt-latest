@@ -1,3 +1,11 @@
+**Alfalfa Sprouts Linked to Illnesses in 15 States, F.D.A. Says**\
+`Officials are investigating after multiple strains of E. coli and a type of salmonella sickened dozens of people across the United States. Two people were infected with both salmonella and E. coli.`\
+https://www.nytimes.com/2026/08/21/us/alfalfa-sprouts-recall-salmonella-ecoli.html
+
+**Net Alternative**\
+`Adrian Johnson’s latest themeless puzzle is distractingly good.`\
+https://www.nytimes.com/2026/08/21/crosswords/daily-puzzle-2026-08-22.html
+
 **We Tried to Cover a Tom Kean Campaign Event. Someone Called the Police.**\
 `Representative Thomas Kean Jr. was joined Friday on the campaign trail by House Speaker Mike Johnson. An aide to Mr. Kean blocked a reporter’s entry. Then the police were called.`\
 https://www.nytimes.com/2026/08/21/nyregion/kean-campaign-johnson.html
