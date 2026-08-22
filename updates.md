@@ -1,3 +1,11 @@
+**An Expert on Conflict Says Your Relationships Are Doomed Without It**\
+`In her forthcoming book, “The Art of Fighting,” Priya Parker argues that intentional, thoughtful conflict within and between groups can be a pathway to greater connection.`\
+https://www.nytimes.com/video/podcasts/100000011104626/an-expert-on-conflict-says-your-relationships-are-doomed-without-it.html
+
+**Sun Screen**\
+`What makes a movie a summer movie? Is it the time of its release, or the way that it depicts the season itself? Or something else entirely?`\
+https://www.nytimes.com/2026/08/22/briefing/sun-screen.html
+
 **Shein fue la gran novedad del ‘fast fashion’, pero ha perdido impulso**\
 `El gigante minorista busca nuevas formas de crecer después de que EE. UU. y Europa desmantelaran las exenciones arancelarias que ayudaron a respaldar su modelo de bajo costo.`\
 https://www.nytimes.com/es/2026/08/22/espanol/negocios/shein-caida-popularidad-bolsa.html

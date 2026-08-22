@@ -1,3 +1,11 @@
+**An Expert on Conflict Says Your Relationships Are Doomed Without It**\
+`In her forthcoming book, “The Art of Fighting,” Priya Parker argues that intentional, thoughtful conflict within and between groups can be a pathway to greater connection.`\
+https://www.nytimes.com/video/podcasts/100000011104626/an-expert-on-conflict-says-your-relationships-are-doomed-without-it.html
+
+**Sun Screen**\
+`What makes a movie a summer movie? Is it the time of its release, or the way that it depicts the season itself? Or something else entirely?`\
+https://www.nytimes.com/2026/08/22/briefing/sun-screen.html
+
 **Shein fue la gran novedad del ‘fast fashion’, pero ha perdido impulso**\
 `El gigante minorista busca nuevas formas de crecer después de que EE. UU. y Europa desmantelaran las exenciones arancelarias que ayudaron a respaldar su modelo de bajo costo.`\
 https://www.nytimes.com/es/2026/08/22/espanol/negocios/shein-caida-popularidad-bolsa.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/21/world/africa/us-deportees-liberia-equatorial-
 **Fan Week at the U.S. Open Is Still Free, if a Bit Confusing**\
 `An awkward policy change casts doubt on how the tennis tournament’s popular free first week will work.`\
 https://www.nytimes.com/2026/08/21/nyregion/us-open-fan-week-passes.html
-
-**Meghan of Sussex Eyes Role in Netflix Show ‘The Gentlemen’**\
-`The duchess’s representatives have had exploratory talks about her joining a third season of “The Gentlemen,” two people said. Netflix has not yet ordered a third season of the show.`\
-https://www.nytimes.com/2026/08/21/business/meghan-sussex-the-gentlemen-netflix.html
-
-**Zambia’s Democratic Facade Fractures in Post-Election Crackdown**\
-`While the government says it is preventing an insurrection, activists and international observers have raised fears about arbitrary arrests and electoral fraud.`\
-https://www.nytimes.com/2026/08/21/world/africa/zambia-election-crackdown.html
 
