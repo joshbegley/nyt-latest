@@ -1,3 +1,15 @@
+**The Real Natalie Harp Scandal Is the President’s Information Diet**\
+`President Trump exists in a degraded, chaotic environment.`\
+https://www.nytimes.com/2026/08/22/opinion/trump-natalie-harp-information-news.html
+
+**Carney Slams U.S.-Canada Trade Proposal and Vows Retaliation**\
+`Prime Minister Mark Carney addressed Canadians on Saturday morning, hours after he ordered negotiators to suspend U.S. trade talks despite President Trump’s punishing tariffs.`\
+https://www.nytimes.com/2026/08/22/world/canada/carney-tariffs-trade-trump.html
+
+**An Ancient Sumerian Solution to Our $40 Trillion Deficit**\
+`In the ancient world, debt forgiveness was a regular tool to control the economy. Why have we forgotten it?`\
+https://www.nytimes.com/2026/08/22/opinion/us-debt-40-trillion.html
+
 **Mark Carney Speaks to Canadians After Trade Talks With U.S. Collapse**\
 `Prime Minister Mark Carney addressed Canadians on Saturday morning, hours after he ordered negotiators to suspend U.S. trade talks despite President Trump’s punishing tariffs.`\
 https://www.nytimes.com/2026/08/22/world/canada/carney-tariffs-trade-trump.html
