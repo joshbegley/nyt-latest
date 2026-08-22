@@ -1,3 +1,15 @@
+**Drawing on His Rust Belt Roots, Vance Campaigns for Republicans**\
+`Vice President JD Vance traveled to his hometown, Middletown, Ohio, and spoke at a steel factory where his grandfather once worked.`\
+https://www.nytimes.com/2026/08/21/us/politics/jd-vance-middletown-ohio.html
+
+**Neutrogena States It Made Hayden Panettiere ‘Feel Unsupported’**\
+`The actress said in an interview months before her death that the company had cut ties with her after she discussed suffering from postpartum depression.`\
+https://www.nytimes.com/2026/08/21/style/neutrogena-hayden-panettiere.html
+
+**Caso Rocha Moya: el gobernador acusado por EE. UU. anuncia su regreso al cargo**\
+`Rubén Rocha Moya ha dicho que es inocente y víctima de un ataque político. Días después de que la acusación formal se hiciera pública en abril, dijo que pediría una “licencia temporal”.`\
+https://www.nytimes.com/es/2026/08/21/espanol/america-latina/rocha-moya-sinaloa-regresa-cargo.html
+
 **Neutrogena States It Made Hayden Panettiere ‘Feel Unsupported’**\
 `The actress said in an interview months before her death that the company had cut ties with her after she discussed suffering from postpartum depression.`\
 https://www.nytimes.com/2026/08/21/style/neutrogena-releases-statement-on-its-past-partnership-with-hayden-panettiere.html
