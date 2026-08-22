@@ -1,3 +1,35 @@
+**For Some in a Disrupted D.C., Grand Prix Is More Irritation Than Celebration**\
+`Race preparations have snarled traffic, rerouted flights and forced the National Gallery of Art to conduct vibration tests.`\
+https://www.nytimes.com/2026/08/22/us/politics/dc-grand-prix-indycar-traffic-damage.html
+
+**Police Chief in Mississippi Regularly Used Racist Slurs, Private Text Messages Reveal**\
+`Text exchanges obtained by reporters show troubling messages sent by the chief of a Mississippi police department facing an uproar over the fatal shooting of a 1-year-old boy in June.`\
+https://www.nytimes.com/2026/08/22/us/police-chief-mississippi-racist-slurs.html
+
+**Meghan’s Brand, As Ever, Will Live On**\
+`As the Duke and Duchess of Sussex head back to Britain, Meghan’s brand will continue selling wine and fruit spreads.`\
+https://www.nytimes.com/2026/08/22/style/meghan-markle-as-ever.html
+
+**Hawaii Braces for Another Foot of Rain as Lala Cleanup Continues**\
+`The National Weather Service issued a flood watch for the Big Island with heavy rain expected to arrive there by Saturday night.`\
+https://www.nytimes.com/2026/08/22/weather/hawaii-moke-storm-rain-flood.html
+
+**How a Progressive Democrat in Florida Gave Her Party New Hope — and New Fears**\
+`Angie Nixon, a state lawmaker from Jacksonville, shocked Democrats in red Florida by soundly defeating her centrist primary opponent. Now comes the hard part.`\
+https://www.nytimes.com/2026/08/22/us/politics/angie-nixon-florida-senate-socialist.html
+
+**Mi luz estaba apagada. Él la encendió**\
+`Después de un matrimonio largo y casi sin sexo, pensé que ya no me quedaba nada de pasión.`\
+https://www.nytimes.com/es/2026/08/22/espanol/estilos-de-vida/viudez-romance-adulto-mayor-modern-love.html
+
+**Harry and Meghan See Their California Dreams — and Riches — Fade Away**\
+`Like so many others before them, Prince Harry and Meghan arrived in Hollywood with big plans. They are leaving with their star power fading.`\
+https://www.nytimes.com/2026/08/22/us/meghan-harry-hollywood-uk-move.html
+
+**La amistad está determinada por el estatus social para muchos**\
+`La conexión social es un bien público, o al menos debería serlo en EE. UU.`\
+https://www.nytimes.com/es/2026/08/22/espanol/opinion/amistad-clase-social.html
+
 **Tupac Shakur Murder Trial: 5 Takeaways From Week 1**\
 `The jury heard from more than a dozen witnesses, including detectives and former gang members. The suspect, Duane Davis, addressed the judge directly.`\
 https://www.nytimes.com/2026/08/22/arts/music/tupac-shakur-murder-trial-takeaways.html

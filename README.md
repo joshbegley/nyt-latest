@@ -1,3 +1,11 @@
+**An Expert on Conflict Says Your Relationships Are Doomed Without It**\
+`The author Priya Parker says the key to human connection is to lean into the fight.`\
+https://www.nytimes.com/2026/08/22/magazine/priya-parker-interview.html
+
+**Carney Stands Up to Trump in U.S.-Canada Trade War**\
+`Canada’s prime minister walked away from what he thought was a bad trade deal with the United States. Many Canadians are behind him, but it will be costly.`\
+https://www.nytimes.com/2026/08/22/world/canada/carney-trump-canada-tariffs.html
+
 **For Some in a Disrupted D.C., Grand Prix Is More Irritation Than Celebration**\
 `Race preparations have snarled traffic, rerouted flights and forced the National Gallery of Art to conduct vibration tests.`\
 https://www.nytimes.com/2026/08/22/us/politics/dc-grand-prix-indycar-traffic-damage.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/es/2026/08/22/espanol/cultura/colman-domingo-euforia-fou
 **Malas noticias para ‘la persona más sana del planeta’**\
 `Bryan Johnson, el gurú de la longevidad, quiere vivir para siempre. La gran pregunta es por qué.`\
 https://www.nytimes.com/es/2026/08/22/espanol/estados-unidos/bryan-johnson-rejuvenecimiento-edad.html
-
-**Atrapado en Esuatini: la historia de un cubano deportado a África**\
-`Roberto Mosquera llevaba décadas en EE. UU., donde cumplió condenas por delitos pero rehizo su vida como plomero. En un abrir y cerrar de ojos, su vida dio un tumbo.`\
-https://www.nytimes.com/es/2026/08/22/espanol/america-latina/deportacion-migrantes-esuatini.html
-
-**Reseña de ‘La noche del demonio: están entre nosotros’**\
-`La sexta entrega de la franquicia de terror intenta renovarla, pero su reputación ha decaído con cada nuevo intento de sobresalto.`\
-https://www.nytimes.com/es/2026/08/22/espanol/cultura/noche-demonio-resena-insidious.html
 
