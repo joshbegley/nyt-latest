@@ -1,3 +1,11 @@
+**The Socialist, a Million-Dollar Rowhouse and Unanswered Questions**\
+`Differing accounts of where Gustavo Gordillo, a leader of the Democratic Socialists of America, lives are raising doubts about whether the city’s left-wing organizers are ready for prime time.`\
+https://www.nytimes.com/2026/08/22/nyregion/nyc-gustavo-gordillo-democratic-socialist.html
+
+**NYT Spelling Bee Answers for August 22, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/08/22/crosswords/spelling-bee-forum.html
+
 **Colman Domingo, nominado al Emmy por ‘Euphoria’, se siente bendecido**\
 `El actor pasó de ser oráculo a ángel de la venganza en el drama de HBO ‘Euphoria’. En esta entrevista, habla sobre sus dos nominaciones al Emmy por dos personajes muy diferentes.`\
 https://www.nytimes.com/es/2026/08/22/espanol/cultura/colman-domingo-euforia-four-seasons-emmys.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/21/us/gary-indiana-power-outage.html
 **Swiss Tourist Sentenced to Prison After Violating ‘Day of Silence’ in Bali**\
 `The 26-year-old received a yearlong sentence from a court on the Indonesian resort island after he flouted a sacred Hindu ritual and insulted it on Instagram.`\
 https://www.nytimes.com/2026/08/21/travel/bali-swiss-tourist-nyepi.html
-
-**Why TikTok Therapy Isn’t Psychotherapy**\
-`Readers respond to a therapist’s essay about what’s gone wrong in the field of mental health care. Also: the triumphs of ‘Cats: The Jellicle Ball.”`\
-https://www.nytimes.com/2026/08/21/opinion/letters/tiktok-isnt-psychotherapy.html
-
-**Mark Zuckerberg Buys an Irish Castle**\
-`The prominent landowner has added a nearly 200-year-old estate to his holdings. Archival information says it can take “a brisk walk of 4½ minutes to reach the dining room from the kitchen.”`\
-https://www.nytimes.com/2026/08/21/world/europe/zuckerberg-castle-ireland.html
 
