@@ -1,3 +1,7 @@
+**Alfalfa Sprouts Linked to Illnesses in 15 States, F.D.A. Says**\
+`Officials are investigating after multiple strains of E. coli and a type of salmonella sickened dozens of people across the United States. Two people were infected with both salmonella and E. coli.`\
+https://www.nytimes.com/2026/08/21/us/alfalfa-sprouts-recall-salmonella-ecoli.html
+
 **Net Alternative**\
 `Adrian Johnson’s latest themeless puzzle is distractingly good.`\
 https://www.nytimes.com/2026/08/21/crosswords/daily-puzzle-2026-08-22.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/21/t-magazine/favorite-road-trip-movies.html
 **It’s a Greek letter and a guy’s name. What does it mean?**\
 `Take our quiz to find out.`\
 https://www.nytimes.com/quiz/2026/08/21/science/21sciencequiz-gamma-ray.html
-
-**Germany Identifies a Plot After Finding a Weapons Cache, but Names No Culprit**\
-`Officials were careful not to point a finger, after revealing what they said was a plan for a political attack, at a time when a series of destabilizing actions have been blamed on Russia.`\
-https://www.nytimes.com/2026/08/21/world/europe/germany-foreign-plot-hidden-guns.html
 
