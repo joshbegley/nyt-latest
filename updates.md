@@ -1,3 +1,7 @@
+**Canada-U.S. Trade War Escalates as Talks Collapse**\
+`Intense negotiations to stave off new levies by the Trump administration ended in an impasse as Mark Carney suspended talks. U.S. tariffs on Canada, and retaliatory tariffs on the U.S., will come into effect.`\
+https://www.nytimes.com/2026/08/21/world/canada/trump-tariffs-trade-no-deal-carney-canada.html
+
 **Atrapado en Esuatini: la historia de un cubano deportado a África**\
 `Roberto Mosquera llevaba décadas en EE. UU., donde cumplió condenas por delitos pero rehizo su vida como plomero. En un abrir y cerrar de ojos, su vida dio un tumbo.`\
 https://www.nytimes.com/es/2026/08/22/espanol/america-latina/deportacion-migrantes-esuatini.html
