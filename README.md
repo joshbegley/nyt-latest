@@ -1,3 +1,15 @@
+**These 5 People Spent Decades Behind Bars. Here Are Their Stories.**\
+`Francis Clifford Smith, who died at 101, was among the longest-incarcerated people in the U.S. Here are some others who lived much of their lives in prison.`\
+https://www.nytimes.com/2026/08/22/us/life-prison-sentence-william-heirens-sammie-robinson.html
+
+**Frank Smith, Who Served 70 Years for Murder, Dies at 101**\
+`One of the longest-serving prisoners in American history, he was sent to death row in 1950 before his sentence was commuted to life imprisonment.`\
+https://www.nytimes.com/2026/08/22/us/francis-clifford-smith-dead.html
+
+**Some States Banned the Use of Food Stamps to Buy Soda. Did It Work?**\
+`A study shows a modest decline in soda purchases, but it’s not clear that the results will hold up in the long run.`\
+https://www.nytimes.com/2026/08/22/upshot/snap-restrictions-soda-sugary-drinks.html
+
 **Harvard’s A.I. Clones Will Hear Your Start-Up Pitch Now**\
 `To create a new $699 bootcamp for entrepreneurs, Harvard Business School made A.I. versions of its faculty.`\
 https://www.nytimes.com/2026/08/22/business/dealbook/harvard-ai-faculty.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/08/22/business/gen-z-houses-investing.html
 **Universal’s New Coaster Is a Scream. That’s the Problem.**\
 `The Hollywood theme park built a “whisper quiet” ride to avoid angering nearby neighbors. They didn’t fully account for the enthusiasm of the riders.`\
 https://www.nytimes.com/2026/08/22/business/media/universal-roller-coaster-screams.html
-
-**8 Signs You’re Living in a Rom-Com**\
-`Are you baking cookies with your old high-school crush? Our cartoonist has seen enough trying-on-clothes montages to spot the clues.`\
-https://www.nytimes.com/2026/08/22/movies/rom-com-tropes.html
-
-**How ‘The Rest Is History’ Podcast Conquered the World**\
-`When two British historians, Tom Holland and Dominic Sandbrook, began the show, neither anticipated it would become the top history podcast in the English-speaking world.`\
-https://www.nytimes.com/2026/08/22/world/europe/rest-is-history-podcast-sandbrook-holland.html
-
-**Book Review: ‘The Great Wherever,’ by Shannon Sanders**\
-`In “The Great Wherever,” generations of spirits watch as their descendants debate whether or not to sell their ancestral home.`\
-https://www.nytimes.com/2026/08/22/books/review/the-great-wherever-shannon-sanders.html
 
