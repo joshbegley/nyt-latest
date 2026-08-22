@@ -1,3 +1,11 @@
+**Trump’s Top Trade Representative Details Offer That Canada Refused**\
+`In an interview, Jamieson Greer, Trump’s trade representative, laid out details of the trade offer that the United States made to Canada before talks crumbled.`\
+https://www.nytimes.com/2026/08/22/business/economy/greer-us-canada-trade-deal.html
+
+**Iranians Feel the Toll of U.S. Economic Sanctions**\
+`Residents in Tehran are experiencing the effects of the “economic D-Day” that President Trump threatened against Iran on Wednesday.`\
+https://www.nytimes.com/video/world/middleeast/100000011106110/iran-us-economic-sanctions.html
+
 **The Unexpected Lessons of a Tube Ride From Hell**\
 `Or, how a river taught me how to go with the flow (sorry, had to).`\
 https://www.nytimes.com/2026/08/22/opinion/vacation-type-b-mom.html
