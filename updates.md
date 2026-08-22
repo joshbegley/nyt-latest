@@ -1,3 +1,7 @@
+**Canada ‘at War’ With U.S. After Trade Talks Collapse, Carney Says**\
+`Prime Minister Mark Carney of Canada spoke to reporters on Saturday after trade talks with the U.S. collapsed late Friday.`\
+https://www.nytimes.com/video/world/canada/100000011107673/canada-carney-tariff-trade.html
+
 **Nancy Kassebaum, First Woman to Chair a Major Senate Panel, Dies at 94**\
 `A moderate Republican from Kansas, she served three terms before tiring of political strife. “I couldn’t get elected today,” she said in 2013.`\
 https://www.nytimes.com/2026/08/22/us/politics/nancy-kassebaum-dead.html
