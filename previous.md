@@ -1,6 +1,6 @@
 **We Tried to Cover a Tom Kean Campaign Event. Someone Called the Police.**\
 `Representative Thomas Kean Jr. was joined Friday on the campaign trail by House Speaker Mike Johnson. An aide to Mr. Kean blocked a reporter’s entry. Then the police were called.`\
-https://www.nytimes.com/2026/08/21/nyregion/we-tried-to-cover-a-tom-kean-campaign-event-someone-called-the-police.html
+https://www.nytimes.com/2026/08/21/nyregion/kean-campaign-johnson.html
 
 **N.Y. State Senator Under Ethics Scrutiny Over Billing Practices**\
 `State officials pledged reviews after The New York Times reported that Jessica Ramos billed her campaign for hotels and train fare while also receiving state travel payments.`\

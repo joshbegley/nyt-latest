@@ -1,5 +1,9 @@
 **We Tried to Cover a Tom Kean Campaign Event. Someone Called the Police.**\
 `Representative Thomas Kean Jr. was joined Friday on the campaign trail by House Speaker Mike Johnson. An aide to Mr. Kean blocked a reporter’s entry. Then the police were called.`\
+https://www.nytimes.com/2026/08/21/nyregion/kean-campaign-johnson.html
+
+**We Tried to Cover a Tom Kean Campaign Event. Someone Called the Police.**\
+`Representative Thomas Kean Jr. was joined Friday on the campaign trail by House Speaker Mike Johnson. An aide to Mr. Kean blocked a reporter’s entry. Then the police were called.`\
 https://www.nytimes.com/2026/08/21/nyregion/we-tried-to-cover-a-tom-kean-campaign-event-someone-called-the-police.html
 
 **N.Y. State Senator Under Ethics Scrutiny Over Billing Practices**\
