@@ -1,3 +1,11 @@
+**Atrapado en Esuatini: la historia de un cubano deportado a África**\
+`Roberto Mosquera llevaba décadas en EE. UU., donde cumplió condenas por delitos pero rehizo su vida como plomero. En un abrir y cerrar de ojos, su vida dio un tumbo.`\
+https://www.nytimes.com/es/2026/08/22/espanol/america-latina/deportacion-migrantes-esuatini.html
+
+**Reseña de ‘La noche del demonio: están entre nosotros’**\
+`La sexta entrega de la franquicia de terror intenta renovarla, pero su reputación ha decaído con cada nuevo intento de sobresalto.`\
+https://www.nytimes.com/es/2026/08/22/espanol/cultura/noche-demonio-resena-insidious.html
+
 **¿La nueva novela de Rachel Cusk trata sobre Natalie Portman?**\
 `‘Life of M’, el nuevo libro de Rachel Cusk, tiene una protagonista con un asombroso parecido a Natalie Portman. Pero, en una entrevista, la autora dice que nunca esperó que causara tal frenesí.`\
 https://www.nytimes.com/es/2026/08/22/espanol/cultura/natalie-portman-rachel-cusk-libro.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/21/us/alaska-plane-crash.html
 **Prison Firm Donated to Trump’s PAC After ICE Gave It $165 Million a Year in Contracts**\
 `The GEO Group has profited from the administration’s mass deportation campaign. A subsidiary donated more than $1.4 million to the president’s super PAC last month.`\
 https://www.nytimes.com/2026/08/21/us/politics/geo-group-maga-inc-donations-ice-contracts.html
-
-**How the Woman Behind ‘The Daily Show’ Spends a Day Making Bad News Funny**\
-`Jen Flanz, who has worked on the show for nearly 30 years, plans a “laughternoon” meeting and secures the perfect candy for tapings.`\
-https://www.nytimes.com/interactive/2026/08/21/nyregion/routine-jen-flanz.html
-
-**Chief Justice Allows Trump to Continue White House Ballroom Construction, for Now**\
-`The 90,000-square-foot ballroom project has grown in size and scope, with the president’s lawyers saying it is intertwined with the renovation of an underground military bunker.`\
-https://www.nytimes.com/2026/08/21/us/politics/supreme-court-trump-ballroom.html
 
