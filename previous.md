@@ -1,3 +1,7 @@
+**Waking Up to an Escalating Canada-U.S. Trade War**\
+`The two countries are locked in a potentially devastating tariff war after last-minute demands ended talks in Washington late Friday night.`\
+https://www.nytimes.com/2026/08/22/world/canada/carney-tariffs-trade-trump-free-trade.html
+
 **NYT Connections Answers for August 23, 2026**\
 `Scroll down for hints and conversation about the puzzle for Sunday, Aug. 23, 2026.`\
 https://www.nytimes.com/2026/08/22/crosswords/connections-companion-1169.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/podcasts/100000011104626/an-expert-on-conflict-say
 **Sun Screen**\
 `What makes a movie a summer movie? Is it the time of its release, or the way that it depicts the season itself? Or something else entirely?`\
 https://www.nytimes.com/2026/08/22/briefing/sun-screen.html
-
-**Shein fue la gran novedad del ‘fast fashion’, pero ha perdido impulso**\
-`El gigante minorista busca nuevas formas de crecer después de que EE. UU. y Europa desmantelaran las exenciones arancelarias que ayudaron a respaldar su modelo de bajo costo.`\
-https://www.nytimes.com/es/2026/08/22/espanol/negocios/shein-caida-popularidad-bolsa.html
 
