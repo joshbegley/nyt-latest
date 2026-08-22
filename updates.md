@@ -1,3 +1,11 @@
+**An Expert on Conflict Says Your Relationships Are Doomed Without It**\
+`The author Priya Parker says the key to human connection is to lean into the fight.`\
+https://www.nytimes.com/2026/08/22/magazine/priya-parker-interview.html
+
+**Carney Stands Up to Trump in U.S.-Canada Trade War**\
+`Canada’s prime minister walked away from what he thought was a bad trade deal with the United States. Many Canadians are behind him, but it will be costly.`\
+https://www.nytimes.com/2026/08/22/world/canada/carney-trump-canada-tariffs.html
+
 **For Some in a Disrupted D.C., Grand Prix Is More Irritation Than Celebration**\
 `Race preparations have snarled traffic, rerouted flights and forced the National Gallery of Art to conduct vibration tests.`\
 https://www.nytimes.com/2026/08/22/us/politics/dc-grand-prix-indycar-traffic-damage.html
