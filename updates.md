@@ -1,3 +1,7 @@
+**Small Change**\
+`Jill Singer drops a shiny new Sunday puzzle in our pockets.`\
+https://www.nytimes.com/2026/08/22/crosswords/daily-puzzle-2026-08-23.html
+
 **Trump’s Top Trade Representative Details Offer That Canada Refused**\
 `In an interview, Jamieson Greer, Trump’s trade representative, laid out details of the trade offer that the United States made to Canada before talks crumbled.`\
 https://www.nytimes.com/2026/08/22/business/economy/greer-us-canada-trade-deal.html

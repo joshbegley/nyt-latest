@@ -1,3 +1,7 @@
+**Small Change**\
+`Jill Singer drops a shiny new Sunday puzzle in our pockets.`\
+https://www.nytimes.com/2026/08/22/crosswords/daily-puzzle-2026-08-23.html
+
 **Trump’s Top Trade Representative Details Offer That Canada Refused**\
 `In an interview, Jamieson Greer, Trump’s trade representative, laid out details of the trade offer that the United States made to Canada before talks crumbled.`\
 https://www.nytimes.com/2026/08/22/business/economy/greer-us-canada-trade-deal.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/22/us/politics/election-polls-confusion-predicti
 **Priya Parker: How to Fight With People You Love**\
 `On “The Interview,” Priya Parker, a conflict resolution facilitator, shared the tactics she uses to approach fights with her husband in a healthy way.`\
 https://www.nytimes.com/video/podcasts/100000011101282/priya-parker-how-to-fight-with-people-you-love.html
-
-**Why a Peaceful Relationship Isn’t Always a Healthy One**\
-`Priya Parker, author of “The Art of Fighting,” talked about why conflict avoidance can hurt relationships on “The Interview.”`\
-https://www.nytimes.com/video/podcasts/100000011101280/why-a-peaceful-relationship-isnt-always-a-healthy-one.html
 
