@@ -1,3 +1,7 @@
+**Judge Denies New Trial for Karmelo Anthony in Texas Teen’s Killing**\
+`Mr. Anthony, 19, was convicted of murder in the fatal stabbing of Austin Metcalf at a high school track meet last year. His lawyers are appealing the case.`\
+https://www.nytimes.com/2026/08/22/us/karmelo-anthony-texas-stabbing.html
+
 **Small Change**\
 `Jill Singer drops a shiny new Sunday puzzle in our pockets.`\
 https://www.nytimes.com/2026/08/22/crosswords/daily-puzzle-2026-08-23.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/podcasts/100000011101286/how-slack-has-turbocharge
 **Why Polling Chaos Could Create Big Problems for American Politics**\
 `Bad polls. Misleading betting odds. Surveys meant to shape narratives. Ahead of the midterms and 2028, there is suddenly serious confusion about candidate strength and voter sentiment.`\
 https://www.nytimes.com/2026/08/22/us/politics/election-polls-confusion-prediction-markets.html
-
-**Priya Parker: How to Fight With People You Love**\
-`On “The Interview,” Priya Parker, a conflict resolution facilitator, shared the tactics she uses to approach fights with her husband in a healthy way.`\
-https://www.nytimes.com/video/podcasts/100000011101282/priya-parker-how-to-fight-with-people-you-love.html
 
