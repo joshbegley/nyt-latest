@@ -1,3 +1,7 @@
+**Anthropic Could Aim to Raise $100 Billion in Blockbuster I.P.O.**\
+`The offering could value the five-year-old A.I. start-up at $2 trillion, its bankers have told potential investors, which would exceed Elon Musk’s SpaceX.`\
+https://www.nytimes.com/2026/08/21/technology/anthropic-ipo-100-billion.html
+
 **Trump Accounts Get an Unlikely Endorser: Gavin Newsom**\
 `Mr. Newsom, the governor of California, normally has harsh words for President Trump. But he called the new children’s savings accounts “one of the best things” the president has done.`\
 https://www.nytimes.com/2026/08/21/us/politics/newsom-trump-accounts.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/21/business/economy/trump-beef-prices.html
 **Canada-U.S. Tariff Talks Continue as Trump’s Midnight Deadline Looms**\
 `Canadian negotiators were in Washington to finalize a deal that would stave off new tariffs and improve the terms of existing ones, but Mark Carney faces a tough sell back home.`\
 https://www.nytimes.com/2026/08/21/world/canada/trump-carney-tariffs-trade-deal.html
-
-**How New York’s Second-Home Tax Turned Into a Headache for Mamdani**\
-`The bumpy rollout of the tax created an opportunity for Mayor Zohran Mamdani’s opponents to fight him in court and in the City Council.`\
-https://www.nytimes.com/2026/08/21/nyregion/mamdani-second-home-tax-rollout.html
 

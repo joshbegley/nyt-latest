@@ -1,3 +1,7 @@
+**Anthropic Could Aim to Raise $100 Billion in Blockbuster I.P.O.**\
+`The offering could value the five-year-old A.I. start-up at $2 trillion, its bankers have told potential investors, which would exceed Elon Musk’s SpaceX.`\
+https://www.nytimes.com/2026/08/21/technology/anthropic-ipo-100-billion.html
+
 **Trump Accounts Get an Unlikely Endorser: Gavin Newsom**\
 `Mr. Newsom, the governor of California, normally has harsh words for President Trump. But he called the new children’s savings accounts “one of the best things” the president has done.`\
 https://www.nytimes.com/2026/08/21/us/politics/newsom-trump-accounts.html
