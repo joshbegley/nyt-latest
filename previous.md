@@ -1,3 +1,39 @@
+**Natalie’s Magnificent Obsession**\
+`This human printer runs — but not out of ink.`\
+https://www.nytimes.com/2026/08/22/opinion/natalie-harp-jon-ossoff-trump.html
+
+**How a Type-A Mom Learned to (Briefly) Unclench**\
+`Or, how a river taught me how to go with the flow (sorry, had to).`\
+https://www.nytimes.com/2026/08/22/opinion/vacation-type-b-mom.html
+
+**Is Andy Beshear of Kentucky the Next Bill Clinton?**\
+`A Democratic governor popular in a state that glows red offers lessons for winning working-class voters. For one, speak plain English.`\
+https://www.nytimes.com/2026/08/22/opinion/andy-beshear-president-kentucky.html
+
+**The Right Is Rethinking MAGA. The Left Is Rethinking ‘Woke.’**\
+`As primary results trickle in, both parties are wrestling with what they stand for — and where they’re headed.`\
+https://www.nytimes.com/2026/08/22/opinion/politics-maga-right-left-woke-primaries.html
+
+**Beyond the Stigma of Antidepressants**\
+`Readers react to a guest essay about how some patients struggle with getting off medications used to treat depression.`\
+https://www.nytimes.com/2026/08/22/opinion/antidepressants-mental-health.html
+
+**$40 Trillion Debt? The Ancient Sumerians Wouldn’t Have Cared.**\
+`U.S. debt has topped $40 trillion. In the ancient world, debt forgiveness was a regular tool to control the economy. Why have we forgotten it?`\
+https://www.nytimes.com/2026/08/22/opinion/us-debt-40-trillion.html
+
+**Companies Shouldn’t Set Prices One Customer at a Time**\
+`Surveillance pricing hurts consumers. It’s time to combat it with stronger laws on fair pricing.`\
+https://www.nytimes.com/2026/08/22/opinion/surveillance-pricing-data-companies.html
+
+**Why Women Learn to Reassure Their Doctors That Everything’s Just Fine**\
+`Is it OK to raise this issue? I don’t want to be a bother.`\
+https://www.nytimes.com/2026/08/22/opinion/women-pain-doctors-medical-system.html
+
+**The Right Is Rethinking MAGA. The Left Is Rethinking ‘Woke.’**\
+`As primary results trickle in, both parties are wrestling with what they stand for — and where they’re headed.`\
+https://www.nytimes.com/video/opinion/100000011101498/the-right-is-rethinking-maga-the-left-is-rethinking-woke.html
+
 **Waking Up to an Escalating Canada-U.S. Trade War**\
 `The two countries are locked in a potentially devastating tariff war after last-minute demands ended talks in Washington late Friday night.`\
 https://www.nytimes.com/2026/08/22/world/canada/carney-tariffs-trade-trump-free-trade.html
@@ -161,40 +197,4 @@ https://www.nytimes.com/2026/08/22/science/gulf-coast-hypoxia-fish.html
 **A 20-Minute Workout for Strong, Healthy Hips**\
 `These exercises can help you build strength to avoid aches and pains.`\
 https://www.nytimes.com/2026/08/22/well/move/hip-strength-exercises.html
-
-**How Apartheid Continues to Divide Cape Town**\
-`Our reporter John Eligon takes a six-mile walk between two townships in Cape Town to show how the barriers left by apartheid still exist 30 years later.`\
-https://www.nytimes.com/video/world/100000011014101/how-apartheid-continues-to-divide-cape-town.html
-
-**How a Trump Envoy Uses Vodka and Dirty Jokes to Conduct U.S. Diplomacy**\
-`The diplomat, John Coale, says his personalized approach gets results and matches the president’s style. Critics contend he is giving up too much to an authoritarian leader.`\
-https://www.nytimes.com/2026/08/22/world/europe/belarus-john-coale-lukashenko-trump.html
-
-**Book Review: ‘The Anniversary,’ by Andrea Bajani**\
-`“The Anniversary,” a novel by the Italian novelist Andrea Bajani, examines a marriage ravaged by abuse and malice.`\
-https://www.nytimes.com/2026/08/22/books/review/andrea-bajani-anniversary.html
-
-**These Women Are Changing the Business Model With Sustainability and Support**\
-`A group of local boutique owners and apparel designers committed to independence, sustainability and supporting one another may be changing the business model.`\
-https://www.nytimes.com/2026/08/22/style/women-business-owners-friendship-boutique.html
-
-**The Month’s Best New Mystery Books**\
-`Our columnist on four of the month’s best releases.`\
-https://www.nytimes.com/2026/08/22/books/review/new-mystery-books.html
-
-**How ‘Rocky Horror’ Dreamed Up a Mad Scientist’s World**\
-`The designers kept in mind the slapdash seediness that has been embedded in the musical’s DNA ever since it started in 1973 at the Royal Court Theater in London.`\
-https://www.nytimes.com/2026/08/22/theater/rocky-horror-show-in-one-image.html
-
-**Missing From a Mass Wedding in India: Brides**\
-`A fraud case, in which dozens of grooms showed up for a wedding that never materialized, is an extreme example of scamming in a marriage industry long prone to it.`\
-https://www.nytimes.com/2026/08/22/world/asia/india-mass-wedding-scam.html
-
-**An Expert on Conflict Says Your Relationships Are Doomed Without It**\
-`In her forthcoming book, “The Art of Fighting,” Priya Parker argues that intentional, thoughtful conflict within and between groups can be a pathway to greater connection.`\
-https://www.nytimes.com/video/podcasts/100000011104626/an-expert-on-conflict-says-your-relationships-are-doomed-without-it.html
-
-**Sun Screen**\
-`What makes a movie a summer movie? Is it the time of its release, or the way that it depicts the season itself? Or something else entirely?`\
-https://www.nytimes.com/2026/08/22/briefing/sun-screen.html
 

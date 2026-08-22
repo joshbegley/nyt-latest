@@ -1,3 +1,39 @@
+**Natalie’s Magnificent Obsession**\
+`This human printer runs — but not out of ink.`\
+https://www.nytimes.com/2026/08/22/opinion/natalie-harp-jon-ossoff-trump.html
+
+**How a Type-A Mom Learned to (Briefly) Unclench**\
+`Or, how a river taught me how to go with the flow (sorry, had to).`\
+https://www.nytimes.com/2026/08/22/opinion/vacation-type-b-mom.html
+
+**Is Andy Beshear of Kentucky the Next Bill Clinton?**\
+`A Democratic governor popular in a state that glows red offers lessons for winning working-class voters. For one, speak plain English.`\
+https://www.nytimes.com/2026/08/22/opinion/andy-beshear-president-kentucky.html
+
+**The Right Is Rethinking MAGA. The Left Is Rethinking ‘Woke.’**\
+`As primary results trickle in, both parties are wrestling with what they stand for — and where they’re headed.`\
+https://www.nytimes.com/2026/08/22/opinion/politics-maga-right-left-woke-primaries.html
+
+**Beyond the Stigma of Antidepressants**\
+`Readers react to a guest essay about how some patients struggle with getting off medications used to treat depression.`\
+https://www.nytimes.com/2026/08/22/opinion/antidepressants-mental-health.html
+
+**$40 Trillion Debt? The Ancient Sumerians Wouldn’t Have Cared.**\
+`U.S. debt has topped $40 trillion. In the ancient world, debt forgiveness was a regular tool to control the economy. Why have we forgotten it?`\
+https://www.nytimes.com/2026/08/22/opinion/us-debt-40-trillion.html
+
+**Companies Shouldn’t Set Prices One Customer at a Time**\
+`Surveillance pricing hurts consumers. It’s time to combat it with stronger laws on fair pricing.`\
+https://www.nytimes.com/2026/08/22/opinion/surveillance-pricing-data-companies.html
+
+**Why Women Learn to Reassure Their Doctors That Everything’s Just Fine**\
+`Is it OK to raise this issue? I don’t want to be a bother.`\
+https://www.nytimes.com/2026/08/22/opinion/women-pain-doctors-medical-system.html
+
+**The Right Is Rethinking MAGA. The Left Is Rethinking ‘Woke.’**\
+`As primary results trickle in, both parties are wrestling with what they stand for — and where they’re headed.`\
+https://www.nytimes.com/video/opinion/100000011101498/the-right-is-rethinking-maga-the-left-is-rethinking-woke.html
+
 **Waking Up to an Escalating Canada-U.S. Trade War**\
 `The two countries are locked in a potentially devastating tariff war after last-minute demands ended talks in Washington late Friday night.`\
 https://www.nytimes.com/2026/08/22/world/canada/carney-tariffs-trade-trump-free-trade.html
