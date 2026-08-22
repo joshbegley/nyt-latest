@@ -1,3 +1,11 @@
+**N.Y. State Senator Under Ethics Scrutiny Over Billing Practices**\
+`State officials pledged reviews after The New York Times reported that Jessica Ramos billed her campaign for hotels and train fare while also receiving state travel payments.`\
+https://www.nytimes.com/2026/08/21/nyregion/ny-ramos-billing-ethics-investigation.html
+
+**Defense Concludes Days of Testimony in Lindsay Clancy Murder Trial**\
+`The defense rested its case on Friday in the trial of Lindsay Clancy, who claims she was experiencing postpartum psychosis when she strangled her three young children in 2023.`\
+https://www.nytimes.com/video/us/100000011106719/defense-concludes-days-of-testimony-in-lindsay-clancy-murder-trial.html
+
 **Anthropic Could Aim to Raise $100 Billion in Blockbuster I.P.O.**\
 `The offering could value the five-year-old A.I. start-up at $2 trillion, its bankers have told potential investors, which would exceed Elon Musk’s SpaceX.`\
 https://www.nytimes.com/2026/08/21/technology/anthropic-ipo-100-billion.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/21/nyregion/nyc-mamdani-rent-freeze-courts.html
 **Por qué China cree que puede resistir la presión económica de EE. UU. a Irán**\
 `Pekín puede restringir los suministros de minerales críticos de EE. UU. y tiene suficiente petróleo para soportar la pérdida del crudo iraní, dicen analistas chinos.`\
 https://www.nytimes.com/es/2026/08/21/espanol/mundo/china-iran-trump-economia-amenazas.html
-
-**Trump Announces Move to Lift Ground Beef Tariffs in Bid to Lower Prices**\
-`The move prompted blowback from cattle ranchers and Republicans who represent them.`\
-https://www.nytimes.com/2026/08/21/business/economy/trump-beef-prices.html
-
-**Canada-U.S. Tariff Talks Continue as Trump’s Midnight Deadline Looms**\
-`Canadian negotiators were in Washington to finalize a deal that would stave off new tariffs and improve the terms of existing ones, but Mark Carney faces a tough sell back home.`\
-https://www.nytimes.com/2026/08/21/world/canada/trump-carney-tariffs-trade-deal.html
 
