@@ -1,3 +1,7 @@
+****\
+`Trump spoke at a rally with his anointed Senate candidate, Darline Graham, on Friday ahead of the South Carolina Senate runoff.`\
+https://www.nytimes.com/video/embedded/us/politics/100000011107410/22vid-trump-ballot-embed-27360.html
+
 **The Socialist, a Million-Dollar Rowhouse and Unanswered Questions**\
 `Differing accounts of where Gustavo Gordillo, a leader of the Democratic Socialists of America, lives are raising doubts about whether the city’s left-wing organizers are ready for prime time.`\
 https://www.nytimes.com/2026/08/22/nyregion/nyc-gustavo-gordillo-democratic-socialist.html
