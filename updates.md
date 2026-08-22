@@ -1,3 +1,7 @@
+**Shein fue la gran novedad del ‘fast fashion’, pero ha perdido impulso**\
+`El gigante minorista busca nuevas formas de crecer después de que EE. UU. y Europa desmantelaran las exenciones arancelarias que ayudaron a respaldar su modelo de bajo costo.`\
+https://www.nytimes.com/es/2026/08/22/espanol/negocios/shein-caida-popularidad-bolsa.html
+
 ****\
 `Trump spoke at a rally with his anointed Senate candidate, Darline Graham, on Friday ahead of the South Carolina Senate runoff.`\
 https://www.nytimes.com/video/embedded/us/politics/100000011107410/22vid-trump-ballot-embed-27360.html
