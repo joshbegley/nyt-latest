@@ -1,3 +1,7 @@
+**Grand Slam Desserts: The Main Draw**\
+`Melon cheesecake bars, Pavlova, and strawberries and cream cake are the perfect match for tennis’s biggest events.`\
+https://www.nytimes.com/2026/08/22/dining/grand-slam-desserts-the-main-draw.html
+
 **These 5 People Spent Decades Behind Bars. Here Are Their Stories.**\
 `Francis Clifford Smith, who died at 101, was among the longest-incarcerated people in the U.S. Here are some others who lived much of their lives in prison.`\
 https://www.nytimes.com/2026/08/22/us/life-prison-sentence-william-heirens-sammie-robinson.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/22/well/friend-caregiver.html
 **Gen Z Is Building Wealth By Investing Instead of Buying Homes**\
 `When it comes to building wealth, Gen Z is more focused on investment apps and their retirement accounts than they are in building equity in a home.`\
 https://www.nytimes.com/2026/08/22/business/gen-z-houses-investing.html
-
-**Universal’s New Coaster Is a Scream. That’s the Problem.**\
-`The Hollywood theme park built a “whisper quiet” ride to avoid angering nearby neighbors. They didn’t fully account for the enthusiasm of the riders.`\
-https://www.nytimes.com/2026/08/22/business/media/universal-roller-coaster-screams.html
 
