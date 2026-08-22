@@ -98,7 +98,7 @@ https://www.nytimes.com/2026/08/22/us/politics/angie-nixon-florida-senate-social
 `Después de un matrimonio largo y casi sin sexo, pensé que ya no me quedaba nada de pasión.`\
 https://www.nytimes.com/es/2026/08/22/espanol/estilos-de-vida/viudez-romance-adulto-mayor-modern-love.html
 
-**Harry and Meghan See Their California Dreams — and Riches — Fade Away**\
+**Harry and Meghan See Their California Dreams, and Riches, Fade Away**\
 `Like so many others before them, Prince Harry and Meghan arrived in Hollywood with big plans. They are leaving with their star power fading.`\
 https://www.nytimes.com/2026/08/22/us/meghan-harry-hollywood-uk-move.html
 
