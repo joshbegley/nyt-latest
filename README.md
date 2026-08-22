@@ -1,3 +1,7 @@
+**We Tried to Cover a Tom Kean Campaign Event. Someone Called the Police.**\
+`Representative Thomas Kean Jr. was joined Friday on the campaign trail by House Speaker Mike Johnson. An aide to Mr. Kean blocked a reporter’s entry. Then the police were called.`\
+https://www.nytimes.com/2026/08/21/nyregion/we-tried-to-cover-a-tom-kean-campaign-event-someone-called-the-police.html
+
 **N.Y. State Senator Under Ethics Scrutiny Over Billing Practices**\
 `State officials pledged reviews after The New York Times reported that Jessica Ramos billed her campaign for hotels and train fare while also receiving state travel payments.`\
 https://www.nytimes.com/2026/08/21/nyregion/ny-ramos-billing-ethics-investigation.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/21/world/europe/germany-foreign-plot-hidden-guns
 **Staten Island Becomes the Place to Challenge Mamdani’s Policies in Court**\
 `The ruling is a win for Mayor Zohran Mamdani, who argued that the case be heard in Manhattan. The lawsuit challenging the rent freeze had been filed in Staten Island.`\
 https://www.nytimes.com/2026/08/21/nyregion/nyc-mamdani-rent-freeze-courts.html
-
-**Por qué China cree que puede resistir la presión económica de EE. UU. a Irán**\
-`Pekín puede restringir los suministros de minerales críticos de EE. UU. y tiene suficiente petróleo para soportar la pérdida del crudo iraní, dicen analistas chinos.`\
-https://www.nytimes.com/es/2026/08/21/espanol/mundo/china-iran-trump-economia-amenazas.html
 
