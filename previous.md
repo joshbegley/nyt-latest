@@ -58,7 +58,7 @@ https://www.nytimes.com/es/2026/08/22/espanol/estilos-de-vida/senales-envejecimi
 `This human printer runs — but not out of ink.`\
 https://www.nytimes.com/2026/08/22/opinion/natalie-harp-jon-ossoff-trump.html
 
-**How a Type-A Mom Learned to (Briefly) Unclench**\
+**The Unexpected Lessons of a Tube Ride From Hell**\
 `Or, how a river taught me how to go with the flow (sorry, had to).`\
 https://www.nytimes.com/2026/08/22/opinion/vacation-type-b-mom.html
 
@@ -78,8 +78,8 @@ https://www.nytimes.com/2026/08/22/opinion/antidepressants-mental-health.html
 `In the ancient world, debt forgiveness was a regular tool to control the economy. Why have we forgotten it?`\
 https://www.nytimes.com/2026/08/22/opinion/us-debt-40-trillion.html
 
-**Companies Shouldn’t Set Prices One Customer at a Time**\
-`Surveillance pricing hurts consumers. It’s time to combat it with stronger laws on fair pricing.`\
+**Surveillance Prices. Hidden Fees. Shifting Costs. This Madness Must Stop.**\
+`It’s time to combat commercial surveillance with stronger laws on fair pricing.`\
 https://www.nytimes.com/2026/08/22/opinion/surveillance-pricing-data-companies.html
 
 **This Is Why Women Are Scared to Tell Their Doctors the Truth**\

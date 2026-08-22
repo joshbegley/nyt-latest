@@ -1,3 +1,11 @@
+**The Unexpected Lessons of a Tube Ride From Hell**\
+`Or, how a river taught me how to go with the flow (sorry, had to).`\
+https://www.nytimes.com/2026/08/22/opinion/vacation-type-b-mom.html
+
+**Surveillance Prices. Hidden Fees. Shifting Costs. This Madness Must Stop.**\
+`It’s time to combat commercial surveillance with stronger laws on fair pricing.`\
+https://www.nytimes.com/2026/08/22/opinion/surveillance-pricing-data-companies.html
+
 **Canada ‘at War’ With U.S. After Trade Talks Collapse, Carney Says**\
 `Prime Minister Mark Carney of Canada spoke to reporters on Saturday after trade talks with the U.S. collapsed late Friday.`\
 https://www.nytimes.com/video/world/canada/100000011107673/canada-carney-tariff-trade.html
