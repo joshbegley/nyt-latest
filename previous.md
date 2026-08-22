@@ -1,3 +1,131 @@
+**Tupac Shakur Murder Trial: 5 Takeaways From Week 1**\
+`The jury heard from more than a dozen witnesses, including detectives and former gang members. The suspect, Duane Davis, addressed the judge directly.`\
+https://www.nytimes.com/2026/08/22/arts/music/tupac-shakur-murder-trial-takeaways.html
+
+**10 Songs We’re Talking About**\
+`Jorja Smith offers a loaded invitation, Rapsody explores Africa and the cosmos, and Carly Simon returns with her first single in decades.`\
+https://www.nytimes.com/2026/08/22/arts/music/carly-simon-rapsody-jorja-smith-new-songs.html
+
+**In Ohio, Haitians Feel Shaken by Ankle Monitors and Increased ICE Presence**\
+`The devices, which will make it easier for authorities to locate immigrants in Springfield if large-scale deportations begin, have intensified a sense of dread.`\
+https://www.nytimes.com/2026/08/22/us/haiti-tps-springfield-ankle-monitors.html
+
+**The Economy Got Used to Low Borrowing Costs. Their Exit Could Pose Risks.**\
+`After roughly two decades of ultralow interest rates, a period of rapid readjustment is ahead for the United States, the world’s largest economy and most important financial system.`\
+https://www.nytimes.com/2026/08/22/business/bonds-borrowing-costs-economy.html
+
+**Priya Parker on the D.S.A.: ‘The Jilted Lovers of the Democrats’**\
+`On “The Interview,” the conflict resolution facilitator Priya Parker discussed political fighting and how organizations can find the common ground that prevents a breakup.`\
+https://www.nytimes.com/video/podcasts/100000011101290/priya-parker-on-the-dsa-the-jilted-lovers-of-the-democrats.html
+
+**How Slack Has ‘Turbocharged Conflict’ at Work**\
+`How has Slack changed corporate culture? Priya Parker, a conflict resolution facilitator, discussed its importance with David Marchese on “The Interview.”`\
+https://www.nytimes.com/video/podcasts/100000011101286/how-slack-has-turbocharged-conflict-at-work.html
+
+**Priya Parker: How to Fight With People You Love**\
+`On “The Interview,” Priya Parker, a conflict resolution facilitator, shared the tactics she uses to approach fights with her husband in a healthy way.`\
+https://www.nytimes.com/video/podcasts/100000011101282/priya-parker-how-to-fight-with-people-you-love.html
+
+**Why Polling Chaos Could Create Big Problems for American Politics**\
+`Bad polls. Misleading betting odds. Surveys meant to shape narratives. Ahead of the midterms and 2028, there is suddenly serious confusion about candidate strength and voter sentiment.`\
+https://www.nytimes.com/2026/08/22/us/politics/election-polls-confusion-prediction-markets.html
+
+**Why a Peaceful Relationship Isn’t Always a Healthy One**\
+`Priya Parker, author of “The Art of Fighting,” talked about why conflict avoidance can hurt relationships on “The Interview.”`\
+https://www.nytimes.com/video/podcasts/100000011101280/why-a-peaceful-relationship-isnt-always-a-healthy-one.html
+
+**How the Billionaire Joe Lonsdale Shaped Trump’s Homelessness Policy**\
+`As Republicans have embraced tough measures to clear the streets, no group has led the way more than the Cicero Institute, founded by the venture capitalist Joe Lonsdale.`\
+https://www.nytimes.com/2026/08/22/us/politics/homelessness-lonsdale-billionaire-trump.html
+
+**Why the Lindsay Clancy Case Is Dividing Americans**\
+`She is being tried on murder charges for killing her three young children. The tragedy has resurrected debates over whether such women are criminals or victims.`\
+https://www.nytimes.com/2026/08/22/us/lindsay-clancy-mothers-kill-children-punishment.html
+
+**Sick of Constant Pings, They’re Sending Texts at the Speed of Carrier Pigeon**\
+`Apps that let users send digital messages at ultraslow speeds have taken off, with users reveling in a slower pace of life. (Just don’t use the them to make dinner plans.)`\
+https://www.nytimes.com/2026/08/22/technology/carrier-pigeon-app-texting-technology.html
+
+**Corrections: Aug. 22, 2026**\
+`Corrections that appeared in print on Saturday, Aug. 22, 2026.`\
+https://www.nytimes.com/2026/08/22/pageoneplus/corrections-aug-22-2026.html
+
+**Yvette Roudy, France’s First Minister for Women’s Rights, Dies at 97**\
+`Maintaining that access to abortion was as much a matter of economic equality as women’s rights, she successfully championed state reimbursement for abortions.`\
+https://www.nytimes.com/2026/08/22/world/europe/yvette-roudy-dead.html
+
+**Lebanon’s Efforts to Tame Hezbollah Stall Amid Israel War**\
+`President Joseph Aoun took office with a popular mandate to reassert control after the militant group dragged the country back into war with Israel.`\
+https://www.nytimes.com/2026/08/22/world/middleeast/lebanon-hezbollah-israel-diplomacy.html
+
+**My Neighbor Installed a Camera Pointing to My Yard. Is That Legal?**\
+`The answer may partly depend on whether the device was installed with the intent to harass or intimidate.`\
+https://www.nytimes.com/2026/08/22/realestate/neighbors-cameras-visual-surveillance.html
+
+**Tiffany, ’80s Pop Star, Is Busy Reinventing Herself**\
+`Best known for her hit song “I Think We’re Alone Now,” she is making her Off Broadway debut in “Spandex the Musical.”`\
+https://www.nytimes.com/2026/08/22/theater/tiffany-darwish-spandex-musical.html
+
+**Friends Can Become Caregivers When Older Adults Need Help**\
+`Non-family members can step into helping roles when older adults need assistance.`\
+https://www.nytimes.com/2026/08/22/well/friend-caregiver.html
+
+**Gen Z Is Building Wealth By Investing Instead of Buying Homes**\
+`When it comes to building wealth, Gen Z is more focused on investment apps and their retirement accounts than they are in building equity in a home.`\
+https://www.nytimes.com/2026/08/22/business/gen-z-houses-investing.html
+
+**Universal’s New Coaster Is a Scream. That’s the Problem.**\
+`The Hollywood theme park built a “whisper quiet” ride to avoid angering nearby neighbors. They didn’t fully account for the enthusiasm of the riders.`\
+https://www.nytimes.com/2026/08/22/business/media/universal-roller-coaster-screams.html
+
+**8 Signs You’re Living in a Rom-Com**\
+`Are you baking cookies with your old high-school crush? Our cartoonist has seen enough trying-on-clothes montages to spot the clues.`\
+https://www.nytimes.com/2026/08/22/movies/rom-com-tropes.html
+
+**How ‘The Rest Is History’ Podcast Conquered the World**\
+`When two British historians, Tom Holland and Dominic Sandbrook, began the show, neither anticipated it would become the top history podcast in the English-speaking world.`\
+https://www.nytimes.com/2026/08/22/world/europe/rest-is-history-podcast-sandbrook-holland.html
+
+**Book Review: ‘The Great Wherever,’ by Shannon Sanders**\
+`In “The Great Wherever,” generations of spirits watch as their descendants debate whether or not to sell their ancestral home.`\
+https://www.nytimes.com/2026/08/22/books/review/the-great-wherever-shannon-sanders.html
+
+**Mapping America’s Largest ‘Dead Zone’**\
+`In a decades-long crisis, marine life has suffered as oxygen periodically dwindles in waters along the Gulf Coast.`\
+https://www.nytimes.com/2026/08/22/science/gulf-coast-hypoxia-fish.html
+
+**A 20-Minute Workout for Strong, Healthy Hips**\
+`These exercises can help you build strength to avoid aches and pains.`\
+https://www.nytimes.com/2026/08/22/well/move/hip-strength-exercises.html
+
+**How Apartheid Continues to Divide Cape Town**\
+`Our reporter John Eligon takes a six-mile walk between two townships in Cape Town to show how the barriers left by apartheid still exist 30 years later.`\
+https://www.nytimes.com/video/world/100000011014101/how-apartheid-continues-to-divide-cape-town.html
+
+**How a Trump Envoy Uses Vodka and Dirty Jokes to Conduct U.S. Diplomacy**\
+`The diplomat, John Coale, says his personalized approach gets results and matches the president’s style. Critics contend he is giving up too much to an authoritarian leader.`\
+https://www.nytimes.com/2026/08/22/world/europe/belarus-john-coale-lukashenko-trump.html
+
+**Book Review: ‘The Anniversary,’ by Andrea Bajani**\
+`“The Anniversary,” a novel by the Italian novelist Andrea Bajani, examines a marriage ravaged by abuse and malice.`\
+https://www.nytimes.com/2026/08/22/books/review/andrea-bajani-anniversary.html
+
+**These Women Are Changing the Business Model With Sustainability and Support**\
+`A group of local boutique owners and apparel designers committed to independence, sustainability and supporting one another may be changing the business model.`\
+https://www.nytimes.com/2026/08/22/style/women-business-owners-friendship-boutique.html
+
+**The Month’s Best New Mystery Books**\
+`Our columnist on four of the month’s best releases.`\
+https://www.nytimes.com/2026/08/22/books/review/new-mystery-books.html
+
+**How ‘Rocky Horror’ Dreamed Up a Mad Scientist’s World**\
+`The designers kept in mind the slapdash seediness that has been embedded in the musical’s DNA ever since it started in 1973 at the Royal Court Theater in London.`\
+https://www.nytimes.com/2026/08/22/theater/rocky-horror-show-in-one-image.html
+
+**Missing From a Mass Wedding in India: Brides**\
+`A fraud case, in which dozens of grooms showed up for a wedding that never materialized, is an extreme example of scamming in a marriage industry long prone to it.`\
+https://www.nytimes.com/2026/08/22/world/asia/india-mass-wedding-scam.html
+
 **An Expert on Conflict Says Your Relationships Are Doomed Without It**\
 `In her forthcoming book, “The Art of Fighting,” Priya Parker argues that intentional, thoughtful conflict within and between groups can be a pathway to greater connection.`\
 https://www.nytimes.com/video/podcasts/100000011104626/an-expert-on-conflict-says-your-relationships-are-doomed-without-it.html
@@ -69,132 +197,4 @@ https://www.nytimes.com/2026/08/21/us/politics/postal-service-rule-restrict-mail
 **Judge Strikes Down Trump’s 75-Country Visa Ban**\
 `The ruling from the Southern District of New York found that the policy went beyond Secretary of State Marco Rubio’s legal authority.`\
 https://www.nytimes.com/2026/08/21/us/politics/judge-trump-75-country-visa-ban.html
-
-**Alfalfa Sprouts Linked to Illnesses in 15 States, F.D.A. Says**\
-`Officials are investigating after multiple strains of E. coli and a type of salmonella sickened dozens of people across the United States. Two people were infected with both salmonella and E. coli.`\
-https://www.nytimes.com/2026/08/21/us/alfalfa-sprouts-recall-salmonella-ecoli.html
-
-**Net Alternative**\
-`Adrian Johnson’s latest themeless puzzle is distractingly good.`\
-https://www.nytimes.com/2026/08/21/crosswords/daily-puzzle-2026-08-22.html
-
-**We Tried to Cover a Tom Kean Campaign Event. Someone Called the Police.**\
-`Representative Thomas Kean Jr. was joined Friday on the campaign trail by House Speaker Mike Johnson. An aide to Mr. Kean blocked a reporter’s entry. Then the police were called.`\
-https://www.nytimes.com/2026/08/21/nyregion/kean-campaign-johnson.html
-
-**N.Y. State Senator Under Ethics Scrutiny Over Billing Practices**\
-`State officials pledged reviews after The New York Times reported that Jessica Ramos billed her campaign for hotels and train fare while also receiving state travel payments.`\
-https://www.nytimes.com/2026/08/21/nyregion/ny-ramos-billing-ethics-investigation.html
-
-**Defense Concludes Days of Testimony in Lindsay Clancy Murder Trial**\
-`The defense rested its case on Friday in the trial of Lindsay Clancy, who claims she was experiencing postpartum psychosis when she strangled her three young children in 2023.`\
-https://www.nytimes.com/video/us/100000011106719/defense-concludes-days-of-testimony-in-lindsay-clancy-murder-trial.html
-
-**Anthropic Could Aim to Raise $100 Billion in Blockbuster I.P.O.**\
-`The offering could value the five-year-old A.I. start-up at $2 trillion, its bankers have told potential investors, which would exceed Elon Musk’s SpaceX.`\
-https://www.nytimes.com/2026/08/21/technology/anthropic-ipo-100-billion.html
-
-**Trump Accounts Get an Unlikely Endorser: Gavin Newsom**\
-`Mr. Newsom, the governor of California, normally has harsh words for President Trump. But he called the new children’s savings accounts “one of the best things” the president has done.`\
-https://www.nytimes.com/2026/08/21/us/politics/newsom-trump-accounts.html
-
-**Drawing on His Rust Belt Roots, Vance Campaigns for Republicans**\
-`Vice President JD Vance traveled to his hometown, Middletown, Ohio, and spoke at a steel factory where his grandfather once worked.`\
-https://www.nytimes.com/2026/08/21/us/politics/jd-vance-middletown-ohio.html
-
-**Neutrogena States It Made Hayden Panettiere ‘Feel Unsupported’**\
-`The actress said in an interview months before her death that the company had cut ties with her after she discussed suffering from postpartum depression.`\
-https://www.nytimes.com/2026/08/21/style/neutrogena-hayden-panettiere.html
-
-**Caso Rocha Moya: el gobernador acusado por EE. UU. anuncia su regreso al cargo**\
-`Rubén Rocha Moya ha dicho que es inocente y víctima de un ataque político. Días después de que la acusación formal se hiciera pública en abril, dijo que pediría una “licencia temporal”.`\
-https://www.nytimes.com/es/2026/08/21/espanol/america-latina/rocha-moya-sinaloa-regresa-cargo.html
-
-**TikTok Settles With U.S. Over Child Privacy Concerns for $400 Million**\
-`The Justice Department resolved a lawsuit that accused the social media company of illegally gathering children’s information.`\
-https://www.nytimes.com/2026/08/21/technology/tiktok-settlement-justice-department.html
-
-**What Is China Shock 2.0?**\
-`China is supplying the world with E.V.s, batteries and other advanced technologies. On “The Ezra Klein Show,” Brad Setser, a senior fellow at the Council on Foreign Relations, explains how China’s manufacturing capacity is impacting geopolitics and the U.S. economy.`\
-https://www.nytimes.com/video/opinion/100000011093723/what-is-china-shock-2-0.html
-
-**Boeing Engineers and Technicians Reject Contract Offer**\
-`The union members also authorized a potential strike if a new agreement is not reached by October.`\
-https://www.nytimes.com/2026/08/21/business/boeing-engineers-technicians-contract.html
-
-**Has Trump’s Trade Policy Achieved Any of Its Goals?**\
-`America’s trade deficit is at roughly the same level as it was during the Biden administration. So has President Trump’s trade policy achieved anything? Brad Setser, a China expert and a senior fellow at the Council on Foreign Relations, weighs in on “The Ezra Klein Show.”`\
-https://www.nytimes.com/video/opinion/100000011093720/has-trumps-trade-policy-achieved-any-of-its-goals.html
-
-**Pentagon Fires Editor and Publisher of Independent Military Publication**\
-`The firings at Stars and Stripes also claimed a Middle East correspondent. They are the latest effort by the Pentagon to diminish the news outlet’s editorial independence.`\
-https://www.nytimes.com/2026/08/21/us/politics/pentagon-fires-stars-stripes-editor.html
-
-**Defense Rests Case in Lindsay Clancy Murder Trial**\
-`The two sides focused Friday on whether Ms. Clancy was experiencing psychosis when she strangled her three young children in 2023. Closing arguments could begin on Monday.`\
-https://www.nytimes.com/2026/08/21/us/lindsay-clancy-trial-defense.html
-
-**Jalapeño Cheddar Zucchini Bread**\
-`Thanks to its high water content, zucchini reliably delivers super-moist easy-mix breads. This zucchini loaf swings savory, confidently cheesy from sharp Cheddar with a gentle acidity and peppery heat from store-bought pickled jalapeños.`\
-https://www.nytimes.com/video/dining/100000011105662/jalapeno-cheddar-zucchini-bread.html
-
-**Tofu Musubi**\
-`Musubis are a traditional Hawaiian snack built to travel. Often filled with grilled and glazed slices of Spam, here, the rice is topped with teriyaki glazed tofu for a vegetarian twist on the classic.`\
-https://www.nytimes.com/video/smarter-living/wirecutter/100000011105935/tofu-musubi.html
-
-**Un turista suizo es sentenciado a un año de prisión por violar el ‘Día del Silencio’ en Bali**\
-`El joven de 26 años recibió una condena de un año por parte de un tribunal en la isla turística indonesia tras desobedecer las reglas de un ritual hindú sagrado e insultarlo en Instagram.`\
-https://www.nytimes.com/es/2026/08/21/espanol/mundo/bali-indonesia-turista-carcel-silencio.html
-
-**Court Slashes Award Alex Jones Was Ordered to Pay Sandy Hook Parents**\
-`An appeals court reduced the award to the parents of one victim to $6 million from $49 million, citing a Texas damages cap. The conspiracy theorist owes over $1 billion in other cases.`\
-https://www.nytimes.com/2026/08/21/us/politics/alex-jones-sandy-hook.html
-
-**Mexican Governor, Accused by U.S. of Helping Cartel, Returns to His Job**\
-`After U.S. prosecutors accused Gov. Rubén Rocha Moya of protecting the Sinaloa cartel, he said he would step down to focus on his defense. On Friday, he declared he was back and faced much criticism.`\
-https://www.nytimes.com/2026/08/21/world/americas/mexico-sinaloa-governor-cartels.html
-
-**Chief Justice Allows White House Ballroom Construction, for Now**\
-`Also, A.I. is everywhere in China. Here’s the latest at the end of Friday.`\
-https://www.nytimes.com/2026/08/21/briefing/supreme-court-ballroom-ai-china.html
-
-**Thousands in Gary, Ind., Have Gone 10 Days Without Power**\
-`The electricity has been out for 10 days in Gary, Ind., since deadly storms ripped through the city, knocking down trees and power lines. Residents said they were growing increasingly desperate.`\
-https://www.nytimes.com/video/us/100000011106530/gary-indiana-storm-power-outage.html
-
-**Overlooked No More: Patricia Douglas, Who Challenged Hollywood’s Culture of Abuse**\
-`Eight decades before the #MeToo groundswell, she took MGM to court after alleging she was attacked at a studio party in 1937.`\
-https://www.nytimes.com/2026/08/21/obituaries/patricia-douglas-overlooked.html
-
-**America Ends a Summer of Lightning-Fast Primaries and Political Speed Dating**\
-`Plot twists in several states have led to rapid-fire races that have felt more reminiscent of European-style snap campaigns than traditional American marathons.`\
-https://www.nytimes.com/2026/08/21/us/politics/midterm-primaries-south-carolina-wisconsin-michigan.html
-
-**Massachusetts’ Top Court Bars Statues of Catholic Saints at City Building**\
-`The ruling quashes a plan by the mayor of Quincy that had drawn opposition from many religious figures, as well as from residents of the racially diverse city.`\
-https://www.nytimes.com/2026/08/21/us/quincy-massachusetts-catholic-statues.html
-
-**U.S. Agreed to Pay Liberia $5 Million in Connection with Deportees, Documents Say**\
-`The Trump administration approved the payment after Liberia said it would consider taking migrants from other countries.`\
-https://www.nytimes.com/2026/08/21/us/politics/us-liberia-deportees-payment.html
-
-**Turkey Requests Netanyahu’s Arrest, Saying Israel Abused Flotilla Activists**\
-`Turkey’s request for an Interpol ‘red notice’ came at a time of escalating tensions between the two countries.`\
-https://www.nytimes.com/2026/08/21/world/middleeast/turkey-netanyahu-arrest-israel.html
-
-**U.S. Cuts Colorado River Water for Arizona, California and Nevada**\
-`Arizona’s share of the river will shrink by a third, likely increasing reliance on groundwater and raising pressure on agriculture.`\
-https://www.nytimes.com/2026/08/21/climate/colorado-river-water-cuts-drought.html
-
-**The Case of the Disappearing, Reappearing White House Ballroom Stairs**\
-`Derided by architects as serving no purpose, a grand staircase was never approved by a planning commission but appears back in President Trump’s plans.`\
-https://www.nytimes.com/2026/08/21/upshot/ballroom-trump-white-house.html
-
-**5 Deportees Are Flown by US to Equatorial Guinea After they Resist Deplaning in Liberia**\
-`At least five of the people flown to Liberia under the Trump administration’s third-country deportation program resisted leaving the plane. They were then flown to Equatorial Guinea.`\
-https://www.nytimes.com/2026/08/21/world/africa/us-deportees-liberia-equatorial-guinea.html
-
-**Fan Week at the U.S. Open Is Still Free, if a Bit Confusing**\
-`An awkward policy change casts doubt on how the tennis tournament’s popular free first week will work.`\
-https://www.nytimes.com/2026/08/21/nyregion/us-open-fan-week-passes.html
 
