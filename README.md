@@ -1,3 +1,7 @@
+**Net Alternative**\
+`Adrian Johnson’s latest themeless puzzle is distractingly good.`\
+https://www.nytimes.com/2026/08/21/crosswords/daily-puzzle-2026-08-22.html
+
 **We Tried to Cover a Tom Kean Campaign Event. Someone Called the Police.**\
 `Representative Thomas Kean Jr. was joined Friday on the campaign trail by House Speaker Mike Johnson. An aide to Mr. Kean blocked a reporter’s entry. Then the police were called.`\
 https://www.nytimes.com/2026/08/21/nyregion/kean-campaign-johnson.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/quiz/2026/08/21/science/21sciencequiz-gamma-ray.html
 **Germany Identifies a Plot After Finding a Weapons Cache, but Names No Culprit**\
 `Officials were careful not to point a finger, after revealing what they said was a plan for a political attack, at a time when a series of destabilizing actions have been blamed on Russia.`\
 https://www.nytimes.com/2026/08/21/world/europe/germany-foreign-plot-hidden-guns.html
-
-**Staten Island Becomes the Place to Challenge Mamdani’s Policies in Court**\
-`The ruling is a win for Mayor Zohran Mamdani, who argued that the case be heard in Manhattan. The lawsuit challenging the rent freeze had been filed in Staten Island.`\
-https://www.nytimes.com/2026/08/21/nyregion/nyc-mamdani-rent-freeze-courts.html
 
