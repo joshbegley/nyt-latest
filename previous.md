@@ -1,3 +1,7 @@
+**Postal Service Publishes Finalized Plan to Restrict Mail Ballots**\
+`The plan complies with President Trump’s executive order to restrict mail voting, which was blocked by federal courts and is under review at the Supreme Court.`\
+https://www.nytimes.com/2026/08/21/us/politics/postal-service-rule-restrict-mail-ballots.html
+
 **Judge Strikes Down Trump’s 75-Country Visa Ban**\
 `The ruling from the Southern District of New York found that the policy went beyond Secretary of State Marco Rubio’s legal authority.`\
 https://www.nytimes.com/2026/08/21/us/politics/judge-trump-75-country-visa-ban.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/21/style/margo-howard-dead.html
 **Dave Marsh, Rock Critic Who Loved Springsteen and Hated the Dead, Dies at 76**\
 `A passionately opinionated veteran of Creem and Rolling Stone, he was part of a generation of writers who influenced how the world saw the golden age of rock.`\
 https://www.nytimes.com/2026/08/21/arts/music/dave-marsh-dead.html
-
-**The Road Trip Movies That Will Make You Want to Hit the Road**\
-`Directors, actors and visual artists on the films they love in which it’s all about the journey.`\
-https://www.nytimes.com/2026/08/21/t-magazine/favorite-road-trip-movies.html
 

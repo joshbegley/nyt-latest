@@ -1,3 +1,7 @@
+**Postal Service Publishes Finalized Plan to Restrict Mail Ballots**\
+`The plan complies with President Trump’s executive order to restrict mail voting, which was blocked by federal courts and is under review at the Supreme Court.`\
+https://www.nytimes.com/2026/08/21/us/politics/postal-service-rule-restrict-mail-ballots.html
+
 **Judge Strikes Down Trump’s 75-Country Visa Ban**\
 `The ruling from the Southern District of New York found that the policy went beyond Secretary of State Marco Rubio’s legal authority.`\
 https://www.nytimes.com/2026/08/21/us/politics/judge-trump-75-country-visa-ban.html
