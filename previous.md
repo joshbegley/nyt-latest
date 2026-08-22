@@ -1,3 +1,7 @@
+**U.S. Says Canada Has Declined a Trade Deal to Stave Off Tariffs**\
+`United States trade representative Jamieson Greer said that it was a “missed opportunity for Canada.” The surprising development means tariffs against $20 billion of Canadian goods come into effect at midnight.`\
+https://www.nytimes.com/2026/08/21/world/canada/trump-tariffs-trade-deal-carney-canada.html
+
 **With Midterms Approaching, Trump Implores Republicans: Pretend I’m on the Ballot!**\
 `President Trump was in South Carolina to stump for Darline Graham, sister of Lindsey. But his own political future was on his mind, too.`\
 https://www.nytimes.com/2026/08/21/us/politics/trump-darline-graham-south-carolina.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/21/us/blackbird-mountain-guides-avalanche-fine.h
 **How to Build an Evening Skin Care Routine**\
 `Three experts share the creams, masks and other products they use before bed.`\
 https://www.nytimes.com/2026/08/21/t-magazine/evening-skin-care-routine.html
-
-**Margo Howard, Reluctant Columnist and Daughter of Ann Landers, Dies at 86**\
-`She published two books about her famous mother but didn’t fully embrace the family business until her late 50s, when she began writing “Dear Prudence” for Slate.`\
-https://www.nytimes.com/2026/08/21/style/margo-howard-dead.html
 
