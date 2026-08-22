@@ -1,3 +1,7 @@
+**Carney Slams U.S.-Canada Trade Proposal and Vows Retaliation**\
+`Prime Minister Mark Carney gave a powerful speech to Canadians on Saturday morning, hours after ordering negotiators to suspend U.S. trade talks despite President Trump’s punishing tariffs.`\
+https://www.nytimes.com/2026/08/22/world/canada/carney-tariffs-trade-trump.html
+
 **The Real Natalie Harp Scandal Is the President’s Information Diet**\
 `President Trump exists in a degraded, chaotic environment.`\
 https://www.nytimes.com/2026/08/22/opinion/trump-natalie-harp-information-news.html
