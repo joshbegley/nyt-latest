@@ -1,3 +1,7 @@
+**Judge Strikes Down Trump’s 75-Country Visa Ban**\
+`The ruling from the Southern District of New York found that the policy went beyond Secretary of State Marco Rubio’s legal authority.`\
+https://www.nytimes.com/2026/08/21/us/politics/judge-trump-75-country-visa-ban.html
+
 **Alfalfa Sprouts Linked to Illnesses in 15 States, F.D.A. Says**\
 `Officials are investigating after multiple strains of E. coli and a type of salmonella sickened dozens of people across the United States. Two people were infected with both salmonella and E. coli.`\
 https://www.nytimes.com/2026/08/21/us/alfalfa-sprouts-recall-salmonella-ecoli.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/21/arts/music/dave-marsh-dead.html
 **The Road Trip Movies That Will Make You Want to Hit the Road**\
 `Directors, actors and visual artists on the films they love in which it’s all about the journey.`\
 https://www.nytimes.com/2026/08/21/t-magazine/favorite-road-trip-movies.html
-
-**It’s a Greek letter and a guy’s name. What does it mean?**\
-`Take our quiz to find out.`\
-https://www.nytimes.com/quiz/2026/08/21/science/21sciencequiz-gamma-ray.html
 
