@@ -1,3 +1,7 @@
+**Nancy Kassebaum, First Woman to Chair a Major Senate Panel, Dies at 94**\
+`A moderate Republican from Kansas, she served three terms before tiring of political strife. “I couldn’t get elected today,” she said in 2013.`\
+https://www.nytimes.com/2026/08/22/us/politics/nancy-kassebaum-dead.html
+
 **U.S. Economy Could Feel the Sting From Trade War With Canada**\
 `A tit-for-tat trade fight between the two allies could create new headaches for consumers and businesses already stung by high prices.`\
 https://www.nytimes.com/2026/08/22/business/economy-trade-war-us-canada.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/22/us/lindsay-clancy-mothers-kill-children-punis
 **Sick of Constant Pings, They’re Sending Texts at the Speed of Carrier Pigeon**\
 `Apps that let users send digital messages at ultraslow speeds have taken off, with users reveling in a slower pace of life. (Just don’t use the them to make dinner plans.)`\
 https://www.nytimes.com/2026/08/22/technology/carrier-pigeon-app-texting-technology.html
-
-**Corrections: Aug. 22, 2026**\
-`Corrections that appeared in print on Saturday, Aug. 22, 2026.`\
-https://www.nytimes.com/2026/08/22/pageoneplus/corrections-aug-22-2026.html
 
