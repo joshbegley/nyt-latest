@@ -1,3 +1,7 @@
+**Mark Carney Speaks to Canadians After Trade Talks With U.S. Collapse**\
+`Prime Minister Mark Carney addressed Canadians on Saturday morning, hours after he ordered negotiators to suspend U.S. trade talks despite President Trump’s punishing tariffs.`\
+https://www.nytimes.com/2026/08/22/world/canada/carney-tariffs-trade-trump.html
+
 **A Skillet Dinner That Hits All the Right Summer Notes**\
 `Yewande Komolafe’s skillet chicken with peppers and tomatoes is sweet and savory, with lots of acidity to keep things nice and bright.`\
 https://www.nytimes.com/2026/08/22/dining/a-skillet-dinner-that-hits-all-the-right-summer-notes.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/22/world/middleeast/lebanon-hezbollah-israel-dip
 **My Neighbor Installed a Camera Pointing to My Yard. Is That Legal?**\
 `The answer may partly depend on whether the device was installed with the intent to harass or intimidate.`\
 https://www.nytimes.com/2026/08/22/realestate/neighbors-cameras-visual-surveillance.html
-
-**Tiffany, ’80s Pop Star, Is Busy Reinventing Herself**\
-`Best known for her hit song “I Think We’re Alone Now,” she is making her Off Broadway debut in “Spandex the Musical.”`\
-https://www.nytimes.com/2026/08/22/theater/tiffany-darwish-spandex-musical.html
 
