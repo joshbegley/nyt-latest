@@ -1,3 +1,7 @@
+**Judge Denies New Trial for Karmelo Anthony in Texas Teen’s Killing**\
+`Mr. Anthony, 19, was convicted of murder in the fatal stabbing of Austin Metcalf at a high school track meet last year. His lawyers are appealing the case.`\
+https://www.nytimes.com/2026/08/22/us/karmelo-anthony-texas-stabbing.html
+
 **Trump’s Top Trade Representative Details Offer That Canada Rejected**\
 `In an interview, Jamieson Greer, President’s Trump’s trade representative, laid out details of what the United States offered to Canada before talks crumbled.`\
 https://www.nytimes.com/2026/08/22/business/economy/greer-us-canada-trade-deal.html
