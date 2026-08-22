@@ -142,13 +142,13 @@ https://www.nytimes.com/video/podcasts/100000011101290/priya-parker-on-the-dsa-t
 `How has Slack changed corporate culture? Priya Parker, a conflict resolution facilitator, discussed its importance with David Marchese on “The Interview.”`\
 https://www.nytimes.com/video/podcasts/100000011101286/how-slack-has-turbocharged-conflict-at-work.html
 
-**Priya Parker: How to Fight With People You Love**\
-`On “The Interview,” Priya Parker, a conflict resolution facilitator, shared the tactics she uses to approach fights with her husband in a healthy way.`\
-https://www.nytimes.com/video/podcasts/100000011101282/priya-parker-how-to-fight-with-people-you-love.html
-
 **Why Polling Chaos Could Create Big Problems for American Politics**\
 `Bad polls. Misleading betting odds. Surveys meant to shape narratives. Ahead of the midterms and 2028, there is suddenly serious confusion about candidate strength and voter sentiment.`\
 https://www.nytimes.com/2026/08/22/us/politics/election-polls-confusion-prediction-markets.html
+
+**Priya Parker: How to Fight With People You Love**\
+`On “The Interview,” Priya Parker, a conflict resolution facilitator, shared the tactics she uses to approach fights with her husband in a healthy way.`\
+https://www.nytimes.com/video/podcasts/100000011101282/priya-parker-how-to-fight-with-people-you-love.html
 
 **Why a Peaceful Relationship Isn’t Always a Healthy One**\
 `Priya Parker, author of “The Art of Fighting,” talked about why conflict avoidance can hurt relationships on “The Interview.”`\

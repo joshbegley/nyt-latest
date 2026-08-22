@@ -1,3 +1,15 @@
+**These 5 People Spent Decades Behind Bars. Here Are Their Stories.**\
+`Francis Clifford Smith, who died at 101, was among the longest-incarcerated people in the U.S. Here are some others who lived much of their lives in prison.`\
+https://www.nytimes.com/2026/08/22/us/life-prison-sentence-william-heirens-sammie-robinson.html
+
+**Frank Smith, Who Served 70 Years for Murder, Dies at 101**\
+`One of the longest-serving prisoners in American history, he was sent to death row in 1950 before his sentence was commuted to life imprisonment.`\
+https://www.nytimes.com/2026/08/22/us/francis-clifford-smith-dead.html
+
+**Some States Banned the Use of Food Stamps to Buy Soda. Did It Work?**\
+`A study shows a modest decline in soda purchases, but it’s not clear that the results will hold up in the long run.`\
+https://www.nytimes.com/2026/08/22/upshot/snap-restrictions-soda-sugary-drinks.html
+
 **This Is Why Women Are Scared to Tell Their Doctors the Truth**\
 `Is it OK to raise this issue? I don’t want to be a bother.`\
 https://www.nytimes.com/2026/08/22/opinion/women-pain-doctors-medical-system.html
