@@ -1,3 +1,11 @@
+**Trump’s Top Trade Representative Details Offer That Canada Refused**\
+`In an interview, Jamieson Greer, Trump’s trade representative, laid out details of the trade offer that the United States made to Canada before talks crumbled.`\
+https://www.nytimes.com/2026/08/22/business/economy/greer-us-canada-trade-deal.html
+
+**Iranians Feel the Toll of U.S. Economic Sanctions**\
+`Residents in Tehran are experiencing the effects of the “economic D-Day” that President Trump threatened against Iran on Wednesday.`\
+https://www.nytimes.com/video/world/middleeast/100000011106110/iran-us-economic-sanctions.html
+
 **Canada ‘at War’ With U.S. After Trade Talks Collapse, Carney Says**\
 `Prime Minister Mark Carney of Canada spoke to reporters on Saturday after trade talks with the U.S. collapsed late Friday.`\
 https://www.nytimes.com/video/world/canada/100000011107673/canada-carney-tariff-trade.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/podcasts/100000011101282/priya-parker-how-to-fight
 **Why a Peaceful Relationship Isn’t Always a Healthy One**\
 `Priya Parker, author of “The Art of Fighting,” talked about why conflict avoidance can hurt relationships on “The Interview.”`\
 https://www.nytimes.com/video/podcasts/100000011101280/why-a-peaceful-relationship-isnt-always-a-healthy-one.html
-
-**How the Billionaire Joe Lonsdale Shaped Trump’s Homelessness Policy**\
-`As Republicans have embraced tough measures to clear the streets, no group has led the way more than the Cicero Institute, founded by the venture capitalist Joe Lonsdale.`\
-https://www.nytimes.com/2026/08/22/us/politics/homelessness-lonsdale-billionaire-trump.html
-
-**Why the Lindsay Clancy Case Is Dividing Americans**\
-`She is being tried on murder charges for killing her three young children. The tragedy has resurrected debates over whether such women are criminals or victims.`\
-https://www.nytimes.com/2026/08/22/us/lindsay-clancy-mothers-kill-children-punishment.html
 
