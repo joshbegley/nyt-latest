@@ -1,3 +1,11 @@
+**This Is Why Women Are Scared to Tell Their Doctors the Truth**\
+`Is it OK to raise this issue? I don’t want to be a bother.`\
+https://www.nytimes.com/2026/08/22/opinion/women-pain-doctors-medical-system.html
+
+**Harry and Meghan See Their California Dreams, and Riches, Fade Away**\
+`Like so many others before them, Prince Harry and Meghan arrived in Hollywood with big plans. They are leaving with their star power fading.`\
+https://www.nytimes.com/2026/08/22/us/meghan-harry-hollywood-uk-move.html
+
 **Harvard’s A.I. Clones Will Hear Your Start-Up Pitch Now**\
 `To create a new $699 bootcamp for entrepreneurs, Harvard Business School made A.I. versions of its faculty.`\
 https://www.nytimes.com/2026/08/22/business/dealbook/harvard-ai-faculty.html
