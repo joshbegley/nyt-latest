@@ -1,3 +1,11 @@
+**A Skillet Dinner That Hits All the Right Summer Notes**\
+`Yewande Komolafe’s skillet chicken with peppers and tomatoes is sweet and savory, with lots of acidity to keep things nice and bright.`\
+https://www.nytimes.com/2026/08/22/dining/a-skillet-dinner-that-hits-all-the-right-summer-notes.html
+
+**Watch Live: Canadian Prime Minister Mark Carney Delivers Remarks**\
+`Canadian Prime Minister Mark Carney delivers remarks after the U.S.-Canada trade talks collapsed.`\
+https://www.nytimes.com/video/world/100000011107687/watch-live-canadian-prime-minister-mark-carney-delivers-remarks.html
+
 **Grand Slam Desserts: The Main Draw**\
 `Melon cheesecake bars, Pavlova, and strawberries and cream cake are the perfect match for tennis’s biggest events.`\
 https://www.nytimes.com/2026/08/22/dining/grand-slam-desserts-the-main-draw.html
@@ -14,8 +22,8 @@ https://www.nytimes.com/2026/08/22/us/francis-clifford-smith-dead.html
 `A study shows a modest decline in soda purchases, but it’s not clear that the results will hold up in the long run.`\
 https://www.nytimes.com/2026/08/22/upshot/snap-restrictions-soda-sugary-drinks.html
 
-**Harvard’s A.I. Clones Will Hear Your Start-Up Pitch Now**\
-`To create a new $699 bootcamp for entrepreneurs, Harvard Business School made A.I. versions of its faculty.`\
+**Harvard Is Selling a $699 Course Taught by A.I. Clones of Its Faculty**\
+`To create a new bootcamp for entrepreneurs, Harvard Business School made A.I. avatars of its instructors.`\
 https://www.nytimes.com/2026/08/22/business/dealbook/harvard-ai-faculty.html
 
 **Otras 5 señales inesperadas de que estás envejeciendo**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/22/realestate/neighbors-cameras-visual-surveilla
 **Tiffany, ’80s Pop Star, Is Busy Reinventing Herself**\
 `Best known for her hit song “I Think We’re Alone Now,” she is making her Off Broadway debut in “Spandex the Musical.”`\
 https://www.nytimes.com/2026/08/22/theater/tiffany-darwish-spandex-musical.html
-
-**Friends Can Become Caregivers When Older Adults Need Help**\
-`Non-family members can step into helping roles when older adults need assistance.`\
-https://www.nytimes.com/2026/08/22/well/friend-caregiver.html
-
-**Gen Z Is Building Wealth By Investing Instead of Buying Homes**\
-`When it comes to building wealth, Gen Z is more focused on investment apps and their retirement accounts than they are in building equity in a home.`\
-https://www.nytimes.com/2026/08/22/business/gen-z-houses-investing.html
 
