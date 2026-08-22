@@ -1,3 +1,7 @@
+**Trump Accounts Get an Unlikely Endorser: Gavin Newsom**\
+`Mr. Newsom, the governor of California, normally has harsh words for President Trump. But he called the new children’s savings accounts “one of the best things” the president has done.`\
+https://www.nytimes.com/2026/08/21/us/politics/newsom-trump-accounts.html
+
 **Drawing on His Rust Belt Roots, Vance Campaigns for Republicans**\
 `Vice President JD Vance traveled to his hometown, Middletown, Ohio, and spoke at a steel factory where his grandfather once worked.`\
 https://www.nytimes.com/2026/08/21/us/politics/jd-vance-middletown-ohio.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/21/world/canada/trump-carney-tariffs-trade-deal.
 **How New York’s Second-Home Tax Turned Into a Headache for Mamdani**\
 `The bumpy rollout of the tax created an opportunity for Mayor Zohran Mamdani’s opponents to fight him in court and in the City Council.`\
 https://www.nytimes.com/2026/08/21/nyregion/mamdani-second-home-tax-rollout.html
-
-**Machel Montano, Soca Sovereign, Takes Over Brooklyn Public Library**\
-`The career retrospective for Machel Montano, a first for a Caribbean artist, highlights his ties to New York City.`\
-https://www.nytimes.com/2026/08/21/arts/music/machel-montano-soca-brooklyn-public-library.html
 

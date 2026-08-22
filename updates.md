@@ -1,3 +1,7 @@
+**Trump Accounts Get an Unlikely Endorser: Gavin Newsom**\
+`Mr. Newsom, the governor of California, normally has harsh words for President Trump. But he called the new children’s savings accounts “one of the best things” the president has done.`\
+https://www.nytimes.com/2026/08/21/us/politics/newsom-trump-accounts.html
+
 **Drawing on His Rust Belt Roots, Vance Campaigns for Republicans**\
 `Vice President JD Vance traveled to his hometown, Middletown, Ohio, and spoke at a steel factory where his grandfather once worked.`\
 https://www.nytimes.com/2026/08/21/us/politics/jd-vance-middletown-ohio.html
