@@ -1,3 +1,7 @@
+**Canada-U.S. Trade War Escalates As Talks Collapse**\
+`Intense negotiations to stave off new levies by the Trump administration ended in an impasse as Mark Carney suspended talks. U.S. tariffs on Canada, and retaliatory tariffs on the U.S., will come into effect.`\
+https://www.nytimes.com/2026/08/21/world/canada/trump-tariffs-trade-no-deal-carney-canada.html
+
 **¿La nueva novela de Rachel Cusk trata sobre Natalie Portman?**\
 `‘Life of M’, el nuevo libro de Rachel Cusk, tiene una protagonista con un asombroso parecido a Natalie Portman. Pero, en una entrevista, la autora dice que nunca esperó que causara tal frenesí.`\
 https://www.nytimes.com/es/2026/08/22/espanol/cultura/natalie-portman-rachel-cusk-libro.html
