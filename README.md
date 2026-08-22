@@ -1,3 +1,7 @@
+****\
+`Trump spoke at a rally with his anointed Senate candidate, Darline Graham, on Friday ahead of the South Carolina Senate runoff.`\
+https://www.nytimes.com/video/embedded/us/politics/100000011107410/22vid-trump-ballot-embed-27360.html
+
 **The Socialist, a Million-Dollar Rowhouse and Unanswered Questions**\
 `Differing accounts of where Gustavo Gordillo, a leader of the Democratic Socialists of America, lives are raising doubts about whether the city’s left-wing organizers are ready for prime time.`\
 https://www.nytimes.com/2026/08/22/nyregion/nyc-gustavo-gordillo-democratic-socialist.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/21/world/africa/zambia-election-crackdown.html
 **Desperation Mounts as Thousands in Indiana Endure 10 Days Without Power**\
 `Floods from powerful thunderstorms devastated Gary, where a third of residents live below the poverty line and full restoration isn’t expected until next week.`\
 https://www.nytimes.com/2026/08/21/us/gary-indiana-power-outage.html
-
-**Swiss Tourist Sentenced to Prison After Violating ‘Day of Silence’ in Bali**\
-`The 26-year-old received a yearlong sentence from a court on the Indonesian resort island after he flouted a sacred Hindu ritual and insulted it on Instagram.`\
-https://www.nytimes.com/2026/08/21/travel/bali-swiss-tourist-nyepi.html
 

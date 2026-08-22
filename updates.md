@@ -1,3 +1,11 @@
+**The Socialist, a Million-Dollar Rowhouse and Unanswered Questions**\
+`Differing accounts of where Gustavo Gordillo, a leader of the Democratic Socialists of America, lives are raising doubts about whether the city’s left-wing organizers are ready for prime time.`\
+https://www.nytimes.com/2026/08/22/nyregion/nyc-gustavo-gordillo-democratic-socialist.html
+
+**NYT Spelling Bee Answers for August 22, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/08/22/crosswords/spelling-bee-forum.html
+
 **Mexican Governor, Accused by U.S. of Helping Cartel, Returns to His Job**\
 `After U.S. prosecutors accused Gov. Rubén Rocha Moya of protecting the Sinaloa cartel, he said he would step down to focus on his defense. On Friday, he declared he was back and faced much criticism.`\
 https://www.nytimes.com/2026/08/21/world/americas/mexico-sinaloa-governor-cartels.html
