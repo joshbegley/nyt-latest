@@ -1,3 +1,19 @@
+**NYT Connections Answers for August 23, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Aug. 23, 2026.`\
+https://www.nytimes.com/2026/08/22/crosswords/connections-companion-1169.html
+
+**My Sister Has Gone No-Contact With Our Parents. Do I Have to Choose Sides?**\
+`I do not want to become a mediator or messenger, yet the two sides seem to look to me for guidance.`\
+https://www.nytimes.com/2026/08/22/magazine/sister-no-contact-parents-ethics.html
+
+**NYT Strands Hints for August 23, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Aug. 23, 2026.`\
+https://www.nytimes.com/2026/08/22/crosswords/strands-sidekick-903.html
+
+**Today’s Wordle Hints for August 23, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Aug. 23, 2026.`\
+https://www.nytimes.com/2026/08/22/crosswords/wordle-review-1891.html
+
 **What Does Harry and Meghan’s Return to England Mean for Their Children?**\
 `One effect of moving back is that Archie and Lilibet now have the opportunity to be schooled as Britons. Here’s what that might look like.`\
 https://www.nytimes.com/2026/08/22/world/europe/harry-meghan-children-schools.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/08/22/briefing/sun-screen.html
 **Shein fue la gran novedad del ‘fast fashion’, pero ha perdido impulso**\
 `El gigante minorista busca nuevas formas de crecer después de que EE. UU. y Europa desmantelaran las exenciones arancelarias que ayudaron a respaldar su modelo de bajo costo.`\
 https://www.nytimes.com/es/2026/08/22/espanol/negocios/shein-caida-popularidad-bolsa.html
-
-****\
-`Trump spoke at a rally with his anointed Senate candidate, Darline Graham, on Friday ahead of the South Carolina Senate runoff.`\
-https://www.nytimes.com/video/embedded/us/politics/100000011107410/22vid-trump-ballot-embed-27360.html
-
-**The Socialist, a Million-Dollar Rowhouse and Unanswered Questions**\
-`Differing accounts of where Gustavo Gordillo, a leader of the Democratic Socialists of America, lives are raising doubts about whether the city’s left-wing organizers are ready for prime time.`\
-https://www.nytimes.com/2026/08/22/nyregion/nyc-gustavo-gordillo-democratic-socialist.html
-
-**NYT Spelling Bee Answers for August 22, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/08/22/crosswords/spelling-bee-forum.html
-
-**Colman Domingo, nominado al Emmy por ‘Euphoria’, se siente bendecido**\
-`El actor pasó de ser oráculo a ángel de la venganza en el drama de HBO ‘Euphoria’. En esta entrevista, habla sobre sus dos nominaciones al Emmy por dos personajes muy diferentes.`\
-https://www.nytimes.com/es/2026/08/22/espanol/cultura/colman-domingo-euforia-four-seasons-emmys.html
 
