@@ -1,3 +1,7 @@
+**Canada ‘at War’ With U.S. After Trade Talks Collapse, Carney Says**\
+`Prime Minister Mark Carney of Canada spoke to reporters on Saturday after trade talks with the U.S. collapsed late Friday.`\
+https://www.nytimes.com/video/world/canada/100000011107673/canada-carney-tariff-trade.html
+
 **Nancy Kassebaum, First Woman to Chair a Major Senate Panel, Dies at 94**\
 `A moderate Republican from Kansas, she served three terms before tiring of political strife. “I couldn’t get elected today,” she said in 2013.`\
 https://www.nytimes.com/2026/08/22/us/politics/nancy-kassebaum-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/22/us/politics/homelessness-lonsdale-billionaire
 **Why the Lindsay Clancy Case Is Dividing Americans**\
 `She is being tried on murder charges for killing her three young children. The tragedy has resurrected debates over whether such women are criminals or victims.`\
 https://www.nytimes.com/2026/08/22/us/lindsay-clancy-mothers-kill-children-punishment.html
-
-**Sick of Constant Pings, They’re Sending Texts at the Speed of Carrier Pigeon**\
-`Apps that let users send digital messages at ultraslow speeds have taken off, with users reveling in a slower pace of life. (Just don’t use the them to make dinner plans.)`\
-https://www.nytimes.com/2026/08/22/technology/carrier-pigeon-app-texting-technology.html
 
