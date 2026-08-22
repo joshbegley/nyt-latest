@@ -127,7 +127,7 @@ https://www.nytimes.com/es/2026/08/21/espanol/mundo/bali-indonesia-turista-carce
 https://www.nytimes.com/2026/08/21/us/politics/alex-jones-sandy-hook.html
 
 **Mexican Governor, Accused by U.S. of Helping Cartel, Returns to His Job**\
-`After U.S. prosecutors accused Gov. Rubén Rocha Moya of protecting the Sinaloa cartel, he said he would step down to focus on his defense. On Friday, he declared he was back.`\
+`After U.S. prosecutors accused Gov. Rubén Rocha Moya of protecting the Sinaloa cartel, he said he would step down to focus on his defense. On Friday, he declared he was back and faced much criticism.`\
 https://www.nytimes.com/2026/08/21/world/americas/mexico-sinaloa-governor-cartels.html
 
 **Chief Justice Allows White House Ballroom Construction, for Now**\

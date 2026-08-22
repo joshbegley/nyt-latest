@@ -1,3 +1,7 @@
+**Mexican Governor, Accused by U.S. of Helping Cartel, Returns to His Job**\
+`After U.S. prosecutors accused Gov. Rubén Rocha Moya of protecting the Sinaloa cartel, he said he would step down to focus on his defense. On Friday, he declared he was back and faced much criticism.`\
+https://www.nytimes.com/2026/08/21/world/americas/mexico-sinaloa-governor-cartels.html
+
 **Colman Domingo, nominado al Emmy por ‘Euphoria’, se siente bendecido**\
 `El actor pasó de ser oráculo a ángel de la venganza en el drama de HBO ‘Euphoria’. En esta entrevista, habla sobre sus dos nominaciones al Emmy por dos personajes muy diferentes.`\
 https://www.nytimes.com/es/2026/08/22/espanol/cultura/colman-domingo-euforia-four-seasons-emmys.html
