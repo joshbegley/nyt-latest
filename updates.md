@@ -1,3 +1,7 @@
+**¿La nueva novela de Rachel Cusk trata sobre Natalie Portman?**\
+`‘Life of M’, el nuevo libro de Rachel Cusk, tiene una protagonista con un asombroso parecido a Natalie Portman. Pero, en una entrevista, la autora dice que nunca esperó que causara tal frenesí.`\
+https://www.nytimes.com/es/2026/08/22/espanol/cultura/natalie-portman-rachel-cusk-libro.html
+
 **Quote of the Day: New York Rhythm Captured on Poster**\
 `Quotation of the Day for Saturday, August 22, 2026.`\
 https://www.nytimes.com/2026/08/22/pageoneplus/quote-of-the-day-new-york-rhythm-captured-on-poster.html

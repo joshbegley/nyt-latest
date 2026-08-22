@@ -1,3 +1,7 @@
+**¿La nueva novela de Rachel Cusk trata sobre Natalie Portman?**\
+`‘Life of M’, el nuevo libro de Rachel Cusk, tiene una protagonista con un asombroso parecido a Natalie Portman. Pero, en una entrevista, la autora dice que nunca esperó que causara tal frenesí.`\
+https://www.nytimes.com/es/2026/08/22/espanol/cultura/natalie-portman-rachel-cusk-libro.html
+
 **Quote of the Day: New York Rhythm Captured on Poster**\
 `Quotation of the Day for Saturday, August 22, 2026.`\
 https://www.nytimes.com/2026/08/22/pageoneplus/quote-of-the-day-new-york-rhythm-captured-on-poster.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/08/21/nyregion/routine-jen-flanz.html
 **Chief Justice Allows Trump to Continue White House Ballroom Construction, for Now**\
 `The 90,000-square-foot ballroom project has grown in size and scope, with the president’s lawyers saying it is intertwined with the renovation of an underground military bunker.`\
 https://www.nytimes.com/2026/08/21/us/politics/supreme-court-trump-ballroom.html
-
-**The Local: Drama in the Boundary Waters**\
-`William Kent Krueger talks about his thriller set in the Boundary Waters, a timely subject.`\
-https://www.nytimes.com/2026/08/21/us/the-local-boundary-waters.html
 
