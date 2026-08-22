@@ -1,3 +1,7 @@
+**Canada-U.S. Trade Talks Collapse; Washington Imposes New Tariffs**\
+`Mark Carney suspended talks and will take out retaliatory tariffs against the United States after days of negotiations to stave off new levies by the Trump administration ended in an impasse.`\
+https://www.nytimes.com/2026/08/21/world/canada/trump-tariffs-trade-no-deal-carney-canada.html
+
 **U.S. Says Canada Has Declined a Trade Deal to Stave Off Tariffs**\
 `United States trade representative Jamieson Greer said that it was a “missed opportunity for Canada.” The surprising development means tariffs against $20 billion of Canadian goods come into effect at midnight.`\
 https://www.nytimes.com/2026/08/21/world/canada/trump-tariffs-trade-deal-carney-canada.html

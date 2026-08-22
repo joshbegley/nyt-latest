@@ -1,3 +1,15 @@
+**Quote of the Day: New York Rhythm Captured on Poster**\
+`Quotation of the Day for Saturday, August 22, 2026.`\
+https://www.nytimes.com/2026/08/22/pageoneplus/quote-of-the-day-new-york-rhythm-captured-on-poster.html
+
+**Cities Compete in Dizzying ‘Gold Rush’ to Be Japan’s Backup Capital**\
+`Osaka? Fukuoka? Sapporo? The race is on to be second to Tokyo — and to claim the prestige and money that could come with it.`\
+https://www.nytimes.com/2026/08/22/world/asia/japan-capital-osaka.html
+
+**Close and Loving, or Oppressive? A Novelist Takes Aim at Italian Families.**\
+`Many Italians see themselves in Andrea Bajani’s latest novel, a portrayal of the family as a “little totalitarian system” shaped by psychological and physical violence.`\
+https://www.nytimes.com/2026/08/22/world/europe/italian-families-novel-anniversary-bajani.html
+
 **Canada-U.S. Trade Talks Collapse; Washington Imposes New Tariffs**\
 `Mark Carney suspended talks and will take out retaliatory tariffs against the United States after days of negotiations to stave off new levies by the Trump administration ended in an impasse.`\
 https://www.nytimes.com/2026/08/21/world/canada/trump-tariffs-trade-no-deal-carney-canada.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/08/21/us/politics/supreme-court-trump-ballroom.html
 **The Local: Drama in the Boundary Waters**\
 `William Kent Krueger talks about his thriller set in the Boundary Waters, a timely subject.`\
 https://www.nytimes.com/2026/08/21/us/the-local-boundary-waters.html
-
-**Ex-Abercrombie C.E.O. Ruled Fit to Stand Trial in Sex Trafficking Case**\
-`A federal judge said that Michael Jeffries had shown “sufficient cognitive functioning.” His lawyers had argued that he could not understand the charges against him because of his mental state.`\
-https://www.nytimes.com/2026/08/21/nyregion/michael-jeffries-abercrombie-sex-trafficking.html
-
-**Guide Company That Ran Fatal Ski Trip Faces Safety Fine in California**\
-`The state levied a $151,300 fine on Blackbird Mountain Guides, which took backcountry skiers into the Sierra Nevada in threatening conditions. Nine died in an avalanche.`\
-https://www.nytimes.com/2026/08/21/us/blackbird-mountain-guides-avalanche-fine.html
-
-**How to Build an Evening Skin Care Routine**\
-`Three experts share the creams, masks and other products they use before bed.`\
-https://www.nytimes.com/2026/08/21/t-magazine/evening-skin-care-routine.html
 
