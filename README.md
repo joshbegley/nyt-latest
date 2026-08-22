@@ -34,7 +34,7 @@ https://www.nytimes.com/2026/08/22/opinion/us-debt-40-trillion.html
 `Surveillance pricing hurts consumers. It’s time to combat it with stronger laws on fair pricing.`\
 https://www.nytimes.com/2026/08/22/opinion/surveillance-pricing-data-companies.html
 
-**Why Women Learn to Reassure Their Doctors That Everything’s Just Fine**\
+**This Is Why Women Are Scared to Tell Their Doctors the Truth**\
 `Is it OK to raise this issue? I don’t want to be a bother.`\
 https://www.nytimes.com/2026/08/22/opinion/women-pain-doctors-medical-system.html
 
