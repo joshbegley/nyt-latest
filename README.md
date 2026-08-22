@@ -1,5 +1,5 @@
 **U.S. Says Canada Has Declined a Trade Deal to Stave Off Tariffs**\
-`United States trade representative Jamieson Greer said that it was a “missed opportunity for Canada.” The surprising development means tariffs against $20 billion Canadian goods come into effect at midnight.`\
+`United States trade representative Jamieson Greer said that it was a “missed opportunity for Canada.” The surprising development means tariffs against $20 billion of Canadian goods come into effect at midnight.`\
 https://www.nytimes.com/2026/08/21/world/canada/trump-tariffs-trade-deal-carney-canada.html
 
 **With Midterms Approaching, Trump Implores Republicans: Pretend I’m on the Ballot!**\
