@@ -1,3 +1,7 @@
+**Grand Slam Desserts: The Main Draw**\
+`Melon cheesecake bars, Pavlova, and strawberries and cream cake are the perfect match for tennis’s biggest events.`\
+https://www.nytimes.com/2026/08/22/dining/grand-slam-desserts-the-main-draw.html
+
 **These 5 People Spent Decades Behind Bars. Here Are Their Stories.**\
 `Francis Clifford Smith, who died at 101, was among the longest-incarcerated people in the U.S. Here are some others who lived much of their lives in prison.`\
 https://www.nytimes.com/2026/08/22/us/life-prison-sentence-william-heirens-sammie-robinson.html
