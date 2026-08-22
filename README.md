@@ -126,8 +126,8 @@ https://www.nytimes.com/2026/08/22/us/police-chief-mississippi-racist-slurs.html
 `As the Duke and Duchess of Sussex head back to Britain, Meghan’s brand will continue selling wine and fruit spreads.`\
 https://www.nytimes.com/2026/08/22/style/meghan-markle-as-ever.html
 
-**Hawaii Braces for Another Foot of Rain as Lala Cleanup Continues**\
-`The National Weather Service issued a flood watch for the Big Island with heavy rain expected to arrive there by Saturday night.`\
+**Tropical Storm Moke Threatens to Bring Up to a Foot of Rain to Hawaii**\
+`Heavy rain is expected to arrive at the Big Island by Saturday night. The storm comes as Hawaii is still cleaning up from the damage done by Hurricane Lala.`\
 https://www.nytimes.com/2026/08/22/weather/hawaii-moke-storm-rain-flood.html
 
 **How a Progressive Democrat in Florida Gave Her Party New Hope — and New Fears**\
