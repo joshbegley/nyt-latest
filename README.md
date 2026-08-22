@@ -1,3 +1,7 @@
+**With Midterms Approaching, Trump Implores Republicans: Pretend I’m on the Ballot!**\
+`President Trump was in South Carolina to stump for Darline Graham, sister of Lindsey. But his own political future was on his mind, too.`\
+https://www.nytimes.com/2026/08/21/us/politics/trump-darline-graham-south-carolina.html
+
 **Postal Service Publishes Finalized Plan to Restrict Mail Ballots**\
 `The plan complies with President Trump’s executive order to restrict mail voting, which was blocked by federal courts and is under review at the Supreme Court.`\
 https://www.nytimes.com/2026/08/21/us/politics/postal-service-rule-restrict-mail-ballots.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/21/t-magazine/evening-skin-care-routine.html
 **Margo Howard, Reluctant Columnist and Daughter of Ann Landers, Dies at 86**\
 `She published two books about her famous mother but didn’t fully embrace the family business until her late 50s, when she began writing “Dear Prudence” for Slate.`\
 https://www.nytimes.com/2026/08/21/style/margo-howard-dead.html
-
-**Dave Marsh, Rock Critic Who Loved Springsteen and Hated the Dead, Dies at 76**\
-`A passionately opinionated veteran of Creem and Rolling Stone, he was part of a generation of writers who influenced how the world saw the golden age of rock.`\
-https://www.nytimes.com/2026/08/21/arts/music/dave-marsh-dead.html
 
