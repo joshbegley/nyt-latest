@@ -1,3 +1,7 @@
+**Zelensky Says His Ex-Defense Minister Was Wrong to Call for Elections**\
+`The Ukrainian president repeated his long-held position that elections in the middle of war would tear his country apart.`\
+https://www.nytimes.com/2026/08/23/world/europe/ukraine-zelensky-fedorov-elections.html
+
 **Democrats Need a Candidate Who Inspires, and Can Win**\
 `Readers respond to a guest column outlining what Democrats need to do when selecting a presidential candidate. Also, President Trump’s health reports; video at the Supreme Court.`\
 https://www.nytimes.com/2026/08/23/opinion/letters/democrats-2028-candidate.html
