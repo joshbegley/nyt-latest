@@ -1,3 +1,7 @@
+**A mis hijos les parece raro que busque en Google a las personas antes de conocerlas. ¿Tienen razón?**\
+`¡Tampoco es que esté examinando archivos del FBI ni información clasificada!`\
+https://www.nytimes.com/es/2026/08/23/espanol/buscar-personas-google-etica.html
+
 **A ‘Survivor’ Castaway’s First Challenge: Finding an Apartment**\
 `Stephanie Berger was pretty confident about securing a spot on the 48th season of the reality TV series. She was far less certain about her house-hunting skills.`\
 https://www.nytimes.com/2026/08/23/realestate/survivor-stephanie-berger-rental-apartment.html
