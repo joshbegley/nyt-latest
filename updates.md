@@ -1,3 +1,7 @@
+**Officials Investigating Postal Worker in Assault on a Peacock**\
+`A video appears to show a U.S. Postal Service worker striking a beloved all-white peacock named Sugar in a Pasadena, Calif., neighborhood.`\
+https://www.nytimes.com/2026/08/22/us/pasadena-peacock-attack-postal-worker.html
+
 **Violent Extremist Who Targeted Young People Online Is Sentenced to 77 Years**\
 `Kyle William Spitze was part of an online extremist movement that coerces young people to do self-harm, officials said. Two of his victims died by suicide.`\
 https://www.nytimes.com/2026/08/22/us/kyle-spitze-764-group-sentenced.html
