@@ -3,7 +3,7 @@
 https://www.nytimes.com/es/2026/08/23/espanol/america-latina/trump-presidentes-derecha-alianzas.html
 
 **Washington’s First IndyCar Race Draws Crowds and Closes Roads**\
-`While Washington’s first Grand Prix drew crowds this weekend, it also hampered other activities in and around the capital.`\
+`While Washington’s first IndyCar race drew crowds this weekend, it also hampered other activities in and around the capital.`\
 https://www.nytimes.com/video/us/100000011108177/dc-grand-prix-indycar-traffic-disruption.html
 
 **Jeffries and Kushner Meet Privately as Midterm Attacks Fly**\
