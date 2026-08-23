@@ -1,3 +1,15 @@
+**Hayden Panettiere’s Final Battles: Mysterious Pain and Trouble With an Ex**\
+`In the year before the actress’s death, she struggled to walk at times and worked to disentangle herself from an ex-boyfriend who had abused her.`\
+https://www.nytimes.com/2026/08/23/arts/television/hayden-panettiere-brian-hickerson-boyfriend-book-tour.html
+
+**El gobernador de Sinaloa, acusado por EE. UU. de colaborar con un cártel, pide licencia de nuevo**\
+`Rubén Rocha Moya, un gobernador mexicano, pidió licencia a solo unas horas de haber regresado a su cargo, en medio de críticas de la presidenta y miembros de su partido.`\
+https://www.nytimes.com/es/2026/08/23/espanol/america-latina/rocha-moya-licencia-sinaloa.html
+
+**Fire Near Reno, Nev., Prompts Evacuations of Homes and Hospitals**\
+`The Hawk fire has burned more than 10,000 acres and is encroaching on the northern part of the city, causing the governor to issue a state of emergency.`\
+https://www.nytimes.com/2026/08/23/us/hawk-fire-reno-evacuations.html
+
 **‘Heat Dome’ to Bring Dangerous and Prolonged Heat Wave to Southern States**\
 `Even after sunset, there will be little relief, as much of the South is expected to remain above 80 degrees for several nights in a row.`\
 https://www.nytimes.com/2026/08/23/weather/southwest-heat-wave.html
@@ -76,7 +88,7 @@ https://www.nytimes.com/2026/08/23/world/canada/canadian-goods-trump-tariffs-ite
 
 **Read the document**\
 `NRSC memo on Ohio data centers.`\
-https://www.nytimes.com/interactive/2026/08/23/us/memoohdatacenters260817.html
+https://www.nytimes.com/interactive/2026/08/23/universal/memoohdatacenters260817.html
 
 **Siguiendo el ejemplo de Trump, los líderes conservadores de América Latina respaldan a sus aliados extranjeros**\
 `Entre vítores, muestras de apoyo e insultos hacia sus rivales y el “wokismo”, una nueva generación de líderes de derecha está interviniendo abiertamente en las elecciones de otros países.`\
@@ -185,16 +197,4 @@ https://www.nytimes.com/es/2026/08/23/espanol/opinion/verano-cementerios-vejez-c
 **He Was Wrongly Convicted of Attempted Rape. He’s Suing the DNA Analysts.**\
 `Alexis Rodriguez claims technicians at the New York City medical examiner’s office fabricated DNA evidence, leading to his wrongful conviction in 2014 for attempted rape.`\
 https://www.nytimes.com/2026/08/23/nyregion/new-york-dna-analysts-sued-rape-conviction.html
-
-**‘We Were Ready to Forge Ahead, but My Foul Mood Had Officially Set In’**\
-`Good box-office luck, a friendly stranger with a secret in Murray Hill and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://www.nytimes.com/2026/08/23/nyregion/metropolitan-diary.html
-
-**NYT Spelling Bee Answers for August 23, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/08/23/crosswords/spelling-bee-forum.html
-
-**Two Phoenix Police Officers Fired and Arrested After Violent Traffic Stop**\
-`The officers are accused of beating a couple and shocking them with a stun gun during an unreported traffic stop this month.`\
-https://www.nytimes.com/2026/08/23/us/phoenix-police-arrests-traffic-stop.html
 

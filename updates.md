@@ -1,3 +1,19 @@
+**Hayden Panettiere’s Final Battles: Mysterious Pain and Trouble With an Ex**\
+`In the year before the actress’s death, she struggled to walk at times and worked to disentangle herself from an ex-boyfriend who had abused her.`\
+https://www.nytimes.com/2026/08/23/arts/television/hayden-panettiere-brian-hickerson-boyfriend-book-tour.html
+
+**El gobernador de Sinaloa, acusado por EE. UU. de colaborar con un cártel, pide licencia de nuevo**\
+`Rubén Rocha Moya, un gobernador mexicano, pidió licencia a solo unas horas de haber regresado a su cargo, en medio de críticas de la presidenta y miembros de su partido.`\
+https://www.nytimes.com/es/2026/08/23/espanol/america-latina/rocha-moya-licencia-sinaloa.html
+
+**Fire Near Reno, Nev., Prompts Evacuations of Homes and Hospitals**\
+`The Hawk fire has burned more than 10,000 acres and is encroaching on the northern part of the city, causing the governor to issue a state of emergency.`\
+https://www.nytimes.com/2026/08/23/us/hawk-fire-reno-evacuations.html
+
+**Read the document**\
+`NRSC memo on Ohio data centers.`\
+https://www.nytimes.com/interactive/2026/08/23/universal/memoohdatacenters260817.html
+
 **‘Heat Dome’ to Bring Dangerous and Prolonged Heat Wave to Southern States**\
 `Even after sunset, there will be little relief, as much of the South is expected to remain above 80 degrees for several nights in a row.`\
 https://www.nytimes.com/2026/08/23/weather/southwest-heat-wave.html
