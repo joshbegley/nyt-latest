@@ -1,3 +1,27 @@
+**Think Baseball Is Boring? The Savannah Bananas Are Here to Fix That.**\
+`Our host takes in a game from the biggest team in baseball.`\
+https://www.nytimes.com/2026/08/23/podcasts/the-daily/think-baseball-is-boring-the-savannah-bananas-are-here-to-fix-that.html
+
+**NYT Connections Answers for August 24, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Aug. 24, 2026.`\
+https://www.nytimes.com/2026/08/23/crosswords/connections-companion-1170.html
+
+**Today’s Wordle Hints for August 24, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Aug. 24, 2026.`\
+https://www.nytimes.com/2026/08/23/crosswords/wordle-review-1892.html
+
+**‘Hey! You’re the Jerk at the Beach!’**\
+`As New Yorkers, we’re used to negotiating over tiny patches of space. But I didn’t expect that to continue on the beach.`\
+https://www.nytimes.com/2026/08/23/opinion/beach-battle-nemesis.html
+
+**Musical Gods Are False Idols**\
+`Musicians have a special tendency to elevate their teachers to divine status. It’s the worst thing a serious artist can do.`\
+https://www.nytimes.com/2026/08/23/opinion/music-conservatories-teachers-gods.html
+
+**NYT Strands Hints for August 24, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Aug. 24, 2026.`\
+https://www.nytimes.com/2026/08/23/crosswords/strands-sidekick-904.html
+
 **U.S.-Canada Trade War: What to Know About Tariffs and the Negotiations**\
 `Canada suspended trade negotiations, triggering President Trump’s 50 percent tariffs on a range of Canadian goods. Mark Carney said he would retaliate “dollar for dollar.”`\
 https://www.nytimes.com/2026/08/23/world/canada/canada-us-trade-war-trump-carney.html
