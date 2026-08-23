@@ -1,3 +1,55 @@
+**Dr. Dre and Jimmy Iovine Think A.I. Is Good for Music**\
+`The hit-making duo turned tech moguls also have thoughts about why corporate America isn’t collaborative enough.`\
+https://www.nytimes.com/2026/08/23/business/jimmy-iovine-dr-dre-beats-usc.html
+
+**How Big Tech Captured American Schools**\
+`Companies like Google and Microsoft have used their money, their might and their massive reach to influence nearly every step of the education supply chain.`\
+https://www.nytimes.com/2026/08/23/business/schools-big-tech-google-microsoft.html
+
+**Book Review: ‘Up on Cove Mountain,’ by Earl Swift**\
+`In “Up on Cove Mountain” Earl Swift confronts a place — and a tragedy — that haunts him.`\
+https://www.nytimes.com/2026/08/23/books/review/earl-swift-up-on-cove-mountain.html
+
+**This Canal System Transformed Arizona. It’s Now in Jeopardy.**\
+`Decades ago, the state won funding for a massive Colorado River project by agreeing to be first in line for cuts at a time of deep drought. The Trump administration says that time has come.`\
+https://www.nytimes.com/2026/08/23/us/arizona-canals-colorado-river.html
+
+**Jeff Conolly, Manic Garage-Rock Frontman, Dies at 69**\
+`Known as Monoman for his love of vintage LPs, he kept the punkish torch burning by leading Lyres, a Boston group that became an institution.`\
+https://www.nytimes.com/2026/08/23/arts/music/jeff-conolly-dead.html
+
+**Eon Huntley, the Democratic Socialist Running for Office While Working at Bergdorf**\
+`For Eon Huntley, who won his primary in New York in June, good clothes and populist policies go together.`\
+https://www.nytimes.com/2026/08/23/style/eon-huntley-dsa-bergdorf-goodman.html
+
+**The Best Books to Read on American Identity**\
+`Four authors grapple with the fight over American identity, from the colonial era to the modern day.`\
+https://www.nytimes.com/2026/08/23/books/review/best-books-american-identity.html
+
+**Someone Was Impersonating Collien Fernandes Online. She Says It Was Her Husband.**\
+`The German actress Collien Fernandes set out to discover who was pretending to be her online and sending men sexually explicit material. Her answer ignited a feminist movement.`\
+https://www.nytimes.com/2026/08/23/magazine/collien-fernandes-impersonators-germany-metoo.html
+
+**Angry Ohio Voters Could Turn Their State Purple Again**\
+`A governor’s race, a Senate contest and enough congressional contests to swing control of the House are all in play in Ohio, where voters of all stripes express a deep sense of powerlessness.`\
+https://www.nytimes.com/2026/08/23/us/politics/ohio-politics-voter-anger.html
+
+**Wildfires Are Turning Forests in the American West Into Shrubland**\
+`Towering woodlands in the West are being permanently replaced by tracts of spiky shrubs. Conditions “just aren’t normal anymore,” one researcher said.`\
+https://www.nytimes.com/2026/08/23/climate/wildfire-forest-loss-california-southwest.html
+
+**The U.S. Start-Up Making Low-Cost Interceptors for the Iran War**\
+`For Florida-based Powerus, becoming a global supplier of counterdrone technology has meant involving the Trumps, a golf course and a new way of doing business.`\
+https://www.nytimes.com/2026/08/23/business/powerus-counter-drone-iran-war.html
+
+**Many Nashville Bus Stops Lack Places to Sit. These Locals Took a Stand.**\
+`Frustrated with the government’s slow effort to improve Nashville’s public transit infrastructure, a group of residents has taken bus stop seating into their own hands.`\
+https://www.nytimes.com/2026/08/23/us/nashville-bus-stop-benches.html
+
+**A Sensory-Friendly Boutique for Neurodivergent Brides**\
+`Inspired by her son, who was diagnosed with A.D.H.D. and autism, Beth Clark transformed her 6,500-square-foot bridal salon into a calming, sensory-friendly space for neurodivergent brides.`\
+https://www.nytimes.com/2026/08/23/style/sensory-friendly-neurodivergent-bridal-boutique.html
+
 **A los 77 años, caminó 15 km bajo cielos llenos de drones para escapar del ‘infierno’**\
 `Los equipos de rescate ya no entran en la ciudad de Limán, en el este de Ucrania, porque se considera demasiado peligrosa. La única salida es un aterrador viaje a pie.`\
 https://www.nytimes.com/es/2026/08/23/espanol/mundo/escape-ucrania-guerra.html
@@ -145,56 +197,4 @@ https://www.nytimes.com/2026/08/22/business/dealbook/harvard-ai-faculty.html
 **Otras 5 señales inesperadas de que estás envejeciendo**\
 `Nuestros cuerpos sufren cambios que podrían resultar sorprendentes. Le preguntamos a los expertos por algunos de ellos.`\
 https://www.nytimes.com/es/2026/08/22/espanol/estilos-de-vida/senales-envejecimiento-dolor-pies.html
-
-**Natalie’s Magnificent Obsession**\
-`This human printer runs — but not out of ink.`\
-https://www.nytimes.com/2026/08/22/opinion/natalie-harp-jon-ossoff-trump.html
-
-**The Unexpected Lessons of a Tube Ride From Hell**\
-`Or, how a river taught me how to go with the flow (sorry, had to).`\
-https://www.nytimes.com/2026/08/22/opinion/vacation-type-b-mom.html
-
-**Is Andy Beshear of Kentucky the Next Bill Clinton?**\
-`A Democratic governor popular in a state that glows red offers lessons for winning working-class voters. For one, speak plain English.`\
-https://www.nytimes.com/2026/08/22/opinion/andy-beshear-president-kentucky.html
-
-**The Right Is Rethinking MAGA. The Left Is Rethinking ‘Woke.’**\
-`As primary results trickle in, both parties are wrestling with what they stand for — and where they’re headed.`\
-https://www.nytimes.com/2026/08/22/opinion/politics-maga-right-left-woke-primaries.html
-
-**Beyond the Stigma of Antidepressants**\
-`Readers react to a guest essay about how some patients struggle with getting off medications used to treat depression.`\
-https://www.nytimes.com/2026/08/22/opinion/antidepressants-mental-health.html
-
-**An Ancient Sumerian Solution to Our $40 Trillion Deficit**\
-`In the ancient world, debt forgiveness was a regular tool to control the economy. Why have we forgotten it?`\
-https://www.nytimes.com/2026/08/22/opinion/us-debt-40-trillion.html
-
-**Surveillance Prices. Hidden Fees. Shifting Costs. This Madness Must Stop.**\
-`It’s time to combat commercial surveillance with stronger laws on fair pricing.`\
-https://www.nytimes.com/2026/08/22/opinion/surveillance-pricing-data-companies.html
-
-**This Is Why Women Are Scared to Tell Their Doctors the Truth**\
-`Is it OK to raise this issue? I don’t want to be a bother.`\
-https://www.nytimes.com/2026/08/22/opinion/women-pain-doctors-medical-system.html
-
-**The Right Is Rethinking MAGA. The Left Is Rethinking ‘Woke.’**\
-`As primary results trickle in, both parties are wrestling with what they stand for — and where they’re headed.`\
-https://www.nytimes.com/video/opinion/100000011101498/the-right-is-rethinking-maga-the-left-is-rethinking-woke.html
-
-**Waking Up to an Escalating Canada-U.S. Trade War**\
-`The two countries are locked in a potentially devastating tariff war after last-minute demands ended talks in Washington late Friday night.`\
-https://www.nytimes.com/2026/08/22/world/canada/carney-tariffs-trade-trump-free-trade.html
-
-**NYT Connections Answers for August 23, 2026**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Aug. 23, 2026.`\
-https://www.nytimes.com/2026/08/22/crosswords/connections-companion-1169.html
-
-**My Sister Has Gone No-Contact With Our Parents. Do I Have to Choose Sides?**\
-`I do not want to become a mediator or messenger, yet the two sides seem to look to me for guidance.`\
-https://www.nytimes.com/2026/08/22/magazine/sister-no-contact-parents-ethics.html
-
-**NYT Strands Hints for August 23, 2026**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Aug. 23, 2026.`\
-https://www.nytimes.com/2026/08/22/crosswords/strands-sidekick-903.html
 

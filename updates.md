@@ -1,3 +1,55 @@
+**Dr. Dre and Jimmy Iovine Think A.I. Is Good for Music**\
+`The hit-making duo turned tech moguls also have thoughts about why corporate America isn’t collaborative enough.`\
+https://www.nytimes.com/2026/08/23/business/jimmy-iovine-dr-dre-beats-usc.html
+
+**How Big Tech Captured American Schools**\
+`Companies like Google and Microsoft have used their money, their might and their massive reach to influence nearly every step of the education supply chain.`\
+https://www.nytimes.com/2026/08/23/business/schools-big-tech-google-microsoft.html
+
+**Book Review: ‘Up on Cove Mountain,’ by Earl Swift**\
+`In “Up on Cove Mountain” Earl Swift confronts a place — and a tragedy — that haunts him.`\
+https://www.nytimes.com/2026/08/23/books/review/earl-swift-up-on-cove-mountain.html
+
+**This Canal System Transformed Arizona. It’s Now in Jeopardy.**\
+`Decades ago, the state won funding for a massive Colorado River project by agreeing to be first in line for cuts at a time of deep drought. The Trump administration says that time has come.`\
+https://www.nytimes.com/2026/08/23/us/arizona-canals-colorado-river.html
+
+**Jeff Conolly, Manic Garage-Rock Frontman, Dies at 69**\
+`Known as Monoman for his love of vintage LPs, he kept the punkish torch burning by leading Lyres, a Boston group that became an institution.`\
+https://www.nytimes.com/2026/08/23/arts/music/jeff-conolly-dead.html
+
+**Eon Huntley, the Democratic Socialist Running for Office While Working at Bergdorf**\
+`For Eon Huntley, who won his primary in New York in June, good clothes and populist policies go together.`\
+https://www.nytimes.com/2026/08/23/style/eon-huntley-dsa-bergdorf-goodman.html
+
+**The Best Books to Read on American Identity**\
+`Four authors grapple with the fight over American identity, from the colonial era to the modern day.`\
+https://www.nytimes.com/2026/08/23/books/review/best-books-american-identity.html
+
+**Someone Was Impersonating Collien Fernandes Online. She Says It Was Her Husband.**\
+`The German actress Collien Fernandes set out to discover who was pretending to be her online and sending men sexually explicit material. Her answer ignited a feminist movement.`\
+https://www.nytimes.com/2026/08/23/magazine/collien-fernandes-impersonators-germany-metoo.html
+
+**Angry Ohio Voters Could Turn Their State Purple Again**\
+`A governor’s race, a Senate contest and enough congressional contests to swing control of the House are all in play in Ohio, where voters of all stripes express a deep sense of powerlessness.`\
+https://www.nytimes.com/2026/08/23/us/politics/ohio-politics-voter-anger.html
+
+**Wildfires Are Turning Forests in the American West Into Shrubland**\
+`Towering woodlands in the West are being permanently replaced by tracts of spiky shrubs. Conditions “just aren’t normal anymore,” one researcher said.`\
+https://www.nytimes.com/2026/08/23/climate/wildfire-forest-loss-california-southwest.html
+
+**The U.S. Start-Up Making Low-Cost Interceptors for the Iran War**\
+`For Florida-based Powerus, becoming a global supplier of counterdrone technology has meant involving the Trumps, a golf course and a new way of doing business.`\
+https://www.nytimes.com/2026/08/23/business/powerus-counter-drone-iran-war.html
+
+**Many Nashville Bus Stops Lack Places to Sit. These Locals Took a Stand.**\
+`Frustrated with the government’s slow effort to improve Nashville’s public transit infrastructure, a group of residents has taken bus stop seating into their own hands.`\
+https://www.nytimes.com/2026/08/23/us/nashville-bus-stop-benches.html
+
+**A Sensory-Friendly Boutique for Neurodivergent Brides**\
+`Inspired by her son, who was diagnosed with A.D.H.D. and autism, Beth Clark transformed her 6,500-square-foot bridal salon into a calming, sensory-friendly space for neurodivergent brides.`\
+https://www.nytimes.com/2026/08/23/style/sensory-friendly-neurodivergent-bridal-boutique.html
+
 **A los 77 años, caminó 15 km bajo cielos llenos de drones para escapar del ‘infierno’**\
 `Los equipos de rescate ya no entran en la ciudad de Limán, en el este de Ucrania, porque se considera demasiado peligrosa. La única salida es un aterrador viaje a pie.`\
 https://www.nytimes.com/es/2026/08/23/espanol/mundo/escape-ucrania-guerra.html
