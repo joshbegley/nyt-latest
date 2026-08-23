@@ -22,8 +22,8 @@ https://www.nytimes.com/2026/08/23/us/politics/trump-indycar-race-dc-america-250
 `War, climate shocks and trade disputes are pounding the world’s breadbaskets and pushing the global food system into dangerous territory.`\
 https://www.nytimes.com/2026/08/23/world/wheat-price-iran-war-canada.html
 
-**Evacuations Ordered as Wildfire Approaches Reno, Nev.**\
-`A wildfire has prompted thousands of evacuations in part of Reno, Nev. The blaze, known as the Hawk fire, has grown to more than 10,000 acres since Saturday without any containment.`\
+**Evacuations Ordered as Wildfire Approaches Reno**\
+`A wildfire has forced thousands of evacuations in part of Reno, Nev. The blaze, known as the Hawk fire, has grown to more than 13,000 acres since Saturday without any containment.`\
 https://www.nytimes.com/video/us/100000011108389/reno-wildfire-evacuation.html
 
 **Maker of Clear Eyes Recalls Nearly 40,000 Bottles Over Contamination Risk**\
