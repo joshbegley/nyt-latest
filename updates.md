@@ -1,3 +1,15 @@
+**Democrats Need a Candidate Who Inspires, and Can Win**\
+`Readers respond to a guest column outlining what Democrats need to do when selecting a presidential candidate. Also, President Trump’s health reports; video at the Supreme Court.`\
+https://www.nytimes.com/2026/08/23/opinion/letters/democrats-2028-candidate.html
+
+**How to Fix the Housing Crisis: Look to WWII**\
+`World War II proves the government can intervene directly to fix the housing crisis.`\
+https://www.nytimes.com/2026/08/23/opinion/housing-crisis-world-war-ii-shortage.html
+
+**Five New Recipes I’m Very Excited to Make**\
+`Golden tofu noodle bowl, tangy chicken couscous salad and chermoula beans are bound to be go-tos.`\
+https://www.nytimes.com/2026/08/23/dining/five-new-recipes-im-very-excited-to-make.html
+
 **Iran Warns Gulf States Not to Join Trump’s Economic War**\
 `Iran’s new hard-line national security adviser, Mohsen Rezaei, vowed to prevent “a single drop of oil” from leaving the region.`\
 https://www.nytimes.com/2026/08/23/world/europe/iran-economy-war-united-states.html
