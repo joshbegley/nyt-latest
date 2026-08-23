@@ -1,3 +1,11 @@
+**The Price of Bread**\
+`War, climate shocks and trade disputes are pounding the world’s breadbaskets and pushing the global food system into dangerous territory.`\
+https://www.nytimes.com/2026/08/23/world/wheat-price-iran-war-canada.html
+
+**Fire Near Reno, Nev., Prompts Evacuations of Homes and Hospitals**\
+`The Hawk fire has burned over 13,000 acres and is encroaching on the northern part of the city. About 42,000 people are under formal evacuation orders and thousands more have been urged to flee.`\
+https://www.nytimes.com/2026/08/23/us/hawk-fire-reno-evacuations.html
+
 **Evacuations Ordered as Wildfire Approaches Reno, Nev.**\
 `A wildfire has prompted thousands of evacuations in part of Reno, Nev. The blaze, known as the Hawk fire, has grown to more than 10,000 acres since Saturday without any containment.`\
 https://www.nytimes.com/video/us/100000011108389/reno-wildfire-evacuation.html
