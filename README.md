@@ -1,3 +1,7 @@
+**A Light Salmon Chowder That Goes Heavy on Summer**\
+`Corn and cherry tomatoes add sweetness, and a little horseradish contributes kick.`\
+https://www.nytimes.com/2026/08/23/dining/a-light-salmon-chowder-that-goes-heavy-on-summer.html
+
 **Zelensky Says His Ex-Defense Minister Was Wrong to Call for Elections**\
 `The Ukrainian president repeated his long-held position that elections in the middle of war would tear his country apart.`\
 https://www.nytimes.com/2026/08/23/world/europe/ukraine-zelensky-fedorov-elections.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/23/us/phoenix-police-arrests-traffic-stop.html
 **Mexican Governor Accused by U.S. of Aiding Cartel Leaves Office, Again**\
 `Rubén Rocha Moya of Sinaloa reversed course a day after returning to office, amid widespread criticism, including from members of his own party.`\
 https://www.nytimes.com/2026/08/23/world/americas/governor-ruben-rocha-moya-sinaloa-mexico.html
-
-**The Barbie Backlash**\
-`‘The Odyssey’ and ‘Barbie’ show a zeitgeist shift that goes beyond Hollywood: The hero’s narrative is corroding our political and public life.`\
-https://www.nytimes.com/2026/08/23/opinion/culture/heroine-journey-odyssey-barbie.html
 
