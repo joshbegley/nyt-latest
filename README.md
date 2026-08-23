@@ -1,3 +1,15 @@
+**He Was Wrongly Convicted of Attempted Rape. He’s Suing the DNA Analysts.**\
+`Alexis Rodriguez claims technicians at the New York City medical examiner’s office fabricated DNA evidence, leading to his wrongful conviction in 2014 for attempted rape.`\
+https://www.nytimes.com/2026/08/23/nyregion/new-york-dna-analysts-sued-rape-conviction.html
+
+**‘We Were Ready to Forge Ahead, but My Foul Mood Had Officially Set In’**\
+`Good box-office luck, a friendly stranger with a secret in Murray Hill and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://www.nytimes.com/2026/08/23/nyregion/metropolitan-diary.html
+
+**NYT Spelling Bee Answers for August 23, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/08/23/crosswords/spelling-bee-forum.html
+
 **Two Phoenix Police Officers Fired and Arrested After Violent Traffic Stop**\
 `The officers are accused of beating a couple and shocking them with a stun gun during an unreported traffic stop this month.`\
 https://www.nytimes.com/2026/08/23/us/phoenix-police-arrests-traffic-stop.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/08/22/magazine/priya-parker-interview.html
 **Carney Stands Up to Trump in U.S.-Canada Trade War**\
 `Canada’s prime minister walked away from what he thought was a bad trade deal with the United States. Many Canadians are behind him, but it will be costly.`\
 https://www.nytimes.com/2026/08/22/world/canada/carney-trump-canada-tariffs.html
-
-**For Some in a Disrupted D.C., Grand Prix Is More Irritation Than Celebration**\
-`Race preparations have snarled traffic, rerouted flights and forced the National Gallery of Art to conduct vibration tests.`\
-https://www.nytimes.com/2026/08/22/us/politics/dc-grand-prix-indycar-traffic-damage.html
-
-**Police Chief in Mississippi Regularly Used Racist Slurs, Private Text Messages Reveal**\
-`Text exchanges obtained by reporters show troubling messages sent by the chief of a Mississippi police department facing an uproar over the fatal shooting of a 1-year-old boy in June.`\
-https://www.nytimes.com/2026/08/22/us/police-chief-mississippi-racist-slurs.html
-
-**Meghan’s Brand, As Ever, Will Live On**\
-`As the Duke and Duchess of Sussex head back to Britain, Meghan’s brand will continue selling wine and fruit spreads.`\
-https://www.nytimes.com/2026/08/22/style/meghan-markle-as-ever.html
 
