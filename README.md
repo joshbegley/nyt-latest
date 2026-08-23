@@ -1,11 +1,3 @@
-**Twitter Broke the Left. X Will Break the Right.**\
-`Democrats paid a price for forming their politics on Twitter; the right will pay a price for forming theirs on X.`\
-https://www.nytimes.com/2026/08/23/opinion/twitter-x-woke-1-elon-musk.html
-
-**Go Ahead, Sean Duffy. Let Your Daughter Go to Harvard.**\
-`Four years at Harvard won’t corrupt your children.`\
-https://www.nytimes.com/2026/08/23/opinion/harvard-education-ideology-political-polarization.html
-
 **Think Baseball Is Boring? The Savannah Bananas Are Here to Fix That.**\
 `Our host takes in a game from the biggest team in baseball.`\
 https://www.nytimes.com/2026/08/23/podcasts/the-daily/think-baseball-is-boring-the-savannah-bananas-are-here-to-fix-that.html
@@ -197,4 +189,12 @@ https://www.nytimes.com/2026/08/23/pageoneplus/quote-of-the-day-over-us-trade-ca
 **Officials Investigating Postal Worker in Assault on a Peacock**\
 `A video appears to show a U.S. Postal Service worker striking a beloved all-white peacock named Sugar in a Pasadena, Calif., neighborhood.`\
 https://www.nytimes.com/2026/08/22/us/pasadena-peacock-attack-postal-worker.html
+
+**Violent Extremist Who Targeted Young People Online Is Sentenced to 77 Years**\
+`Kyle William Spitze was part of an online extremist movement that coerces young people to do self-harm, officials said. Two of his victims died by suicide.`\
+https://www.nytimes.com/2026/08/22/us/kyle-spitze-764-group-sentenced.html
+
+**‘It’s Been Terrible’: Thousands in Indiana Remain Without Power**\
+`Gov. Mike Braun called on the local utility to “match the urgency” of Gary area residents who have had to endure an outage approaching its second week.`\
+https://www.nytimes.com/2026/08/22/us/gary-indiana-11-day-power-outage.html
 

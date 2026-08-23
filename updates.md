@@ -1,3 +1,11 @@
+**Twitter Broke the Left. X Will Break the Right.**\
+`Democrats paid a price for forming their politics on Twitter; the right will pay a price for forming theirs on X.`\
+https://www.nytimes.com/2026/08/23/opinion/twitter-x-woke-1-elon-musk.html
+
+**Go Ahead, Sean Duffy. Let Your Daughter Go to Harvard.**\
+`Four years at Harvard won’t corrupt your children.`\
+https://www.nytimes.com/2026/08/23/opinion/harvard-education-ideology-political-polarization.html
+
 **Think Baseball Is Boring? The Savannah Bananas Are Here to Fix That.**\
 `Our host takes in a game from the biggest team in baseball.`\
 https://www.nytimes.com/2026/08/23/podcasts/the-daily/think-baseball-is-boring-the-savannah-bananas-are-here-to-fix-that.html
