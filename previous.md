@@ -8,7 +8,7 @@ https://www.nytimes.com/2026/08/23/us/french-tourist-dead-death-valley.html
 
 **Trump’s Summer of Fun Ends With an IndyCar Race on the Streets of D.C.**\
 `It was the final, major event planned for the nation’s 250th anniversary celebrations. The president took a lap.`\
-https://www.nytimes.com/2026/08/23/us/politics/trump-summer-car-race-dc.html
+https://www.nytimes.com/2026/08/23/us/politics/trump-indycar-race-dc-america-250.html
 
 **The Price of Bread**\
 `War, climate shocks and trade disputes are pounding the world’s breadbaskets and pushing the global food system into dangerous territory.`\

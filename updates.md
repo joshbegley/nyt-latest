@@ -1,3 +1,7 @@
+**Trump’s Summer of Fun Ends With an IndyCar Race on the Streets of D.C.**\
+`It was the final, major event planned for the nation’s 250th anniversary celebrations. The president took a lap.`\
+https://www.nytimes.com/2026/08/23/us/politics/trump-indycar-race-dc-america-250.html
+
 **Trump’s Economic Approach Draws Concern From Some Republicans**\
 `A plan to lower tariffs on imported beef and trade tensions with Canada have compounded some G.O.P. worries about a central issue in the midterms.`\
 https://www.nytimes.com/2026/08/23/us/politics/trump-republicans-economy-midterms.html
