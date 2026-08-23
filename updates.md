@@ -1,3 +1,11 @@
+**Evacuations Ordered as Wildfire Approaches Reno, Nev.**\
+`A wildfire has prompted thousands of evacuations in part of Reno, Nev. The blaze, known as the Hawk fire, has grown to more than 10,000 acres since Saturday without any containment.`\
+https://www.nytimes.com/video/us/100000011108389/reno-wildfire-evacuation.html
+
+**Maker of Clear Eyes Recalls Nearly 40,000 Bottles Over Contamination Risk**\
+`Federal safety regulators said the maker of Clear Eyes Maximum Itchy Eye Relief voluntarily recalled the drops because of a “lack of assurance of sterility.”`\
+https://www.nytimes.com/2026/08/23/health/clear-eyes-eye-drops-fda-recall.html
+
 **Nearly 40,000 Eye Drop Bottles Are Recalled Over Potential Contamination**\
 `Federal safety regulators said the maker of Clear Eyes Maximum Itchy Eye Relief voluntarily recalled the drops because of a “lack of assurance of sterility.”`\
 https://www.nytimes.com/2026/08/23/health/eye-drops-recalled.html
