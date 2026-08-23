@@ -1,3 +1,7 @@
+**Washington’s First IndyCar Race Draws Crowds and Closes Roads**\
+`While Washington’s first IndyCar race drew crowds this weekend, it also hampered other activities in and around the capital.`\
+https://www.nytimes.com/video/us/100000011108177/dc-grand-prix-indycar-traffic-disruption.html
+
 **Siguiendo el ejemplo de Trump, los líderes conservadores de América Latina respaldan a sus aliados extranjeros**\
 `Entre vítores, muestras de apoyo e insultos hacia sus rivales y el “wokismo”, una nueva generación de líderes de derecha está interviniendo abiertamente en las elecciones de otros países.`\
 https://www.nytimes.com/es/2026/08/23/espanol/america-latina/trump-presidentes-derecha-alianzas.html
