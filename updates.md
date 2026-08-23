@@ -1,3 +1,23 @@
+**A ‘Survivor’ Castaway’s First Challenge: Finding an Apartment**\
+`Stephanie Berger was pretty confident about securing a spot on the 48th season of the reality TV series. She was far less certain about her house-hunting skills.`\
+https://www.nytimes.com/2026/08/23/realestate/survivor-stephanie-berger-rental-apartment.html
+
+**El primer ministro de Canadá dice que el país está ‘en guerra’ comercial con EE. UU.**\
+`El primer ministro Mark Carney pronunció un poderoso discurso a los canadienses el sábado por la mañana, horas después de ordenar a los negociadores que suspendieran las conversaciones comerciales con EE. UU. a pesar de los aranceles punitivos del presidente Trump.`\
+https://www.nytimes.com/es/2026/08/23/espanol/mundo/carney-canada-guerra-comercial-trump.html
+
+**Jackie Kennedy Onassis’ Private Beach on Martha's Vineyard Is Open to All. But It’s a Hike.**\
+`Caroline Kennedy and her family sold more than 330 acres of coastal land on Martha’s Vineyard to conservation groups. It comes with some caveats.`\
+https://www.nytimes.com/2026/08/23/us/kennedy-estate-marthas-vineyard-conservation.html
+
+**Four Years Ago, a Crypto Boss Went Missing. Now His Successor Has.**\
+`The mysterious collapse of a European cryptocurrency exchange helps to explain why the industry hasn’t shaken off its reputation as a magnet for criminals.`\
+https://www.nytimes.com/2026/08/23/world/europe/poland-estonia-cryptocurrency.html
+
+**Quote of the Day: Over U.S. Trade, Carney Strikes Combative Tone**\
+`Quotation of the Day for Sunday, August 23, 2026.`\
+https://www.nytimes.com/2026/08/23/pageoneplus/quote-of-the-day-over-us-trade-carney-strikes-combative-tone.html
+
 **Officials Investigating Postal Worker in Assault on a Peacock**\
 `A video appears to show a U.S. Postal Service worker striking a beloved all-white peacock named Sugar in a Pasadena, Calif., neighborhood.`\
 https://www.nytimes.com/2026/08/22/us/pasadena-peacock-attack-postal-worker.html

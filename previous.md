@@ -1,3 +1,23 @@
+**A ‘Survivor’ Castaway’s First Challenge: Finding an Apartment**\
+`Stephanie Berger was pretty confident about securing a spot on the 48th season of the reality TV series. She was far less certain about her house-hunting skills.`\
+https://www.nytimes.com/2026/08/23/realestate/survivor-stephanie-berger-rental-apartment.html
+
+**El primer ministro de Canadá dice que el país está ‘en guerra’ comercial con EE. UU.**\
+`El primer ministro Mark Carney pronunció un poderoso discurso a los canadienses el sábado por la mañana, horas después de ordenar a los negociadores que suspendieran las conversaciones comerciales con EE. UU. a pesar de los aranceles punitivos del presidente Trump.`\
+https://www.nytimes.com/es/2026/08/23/espanol/mundo/carney-canada-guerra-comercial-trump.html
+
+**Jackie Kennedy Onassis’ Private Beach on Martha's Vineyard Is Open to All. But It’s a Hike.**\
+`Caroline Kennedy and her family sold more than 330 acres of coastal land on Martha’s Vineyard to conservation groups. It comes with some caveats.`\
+https://www.nytimes.com/2026/08/23/us/kennedy-estate-marthas-vineyard-conservation.html
+
+**Four Years Ago, a Crypto Boss Went Missing. Now His Successor Has.**\
+`The mysterious collapse of a European cryptocurrency exchange helps to explain why the industry hasn’t shaken off its reputation as a magnet for criminals.`\
+https://www.nytimes.com/2026/08/23/world/europe/poland-estonia-cryptocurrency.html
+
+**Quote of the Day: Over U.S. Trade, Carney Strikes Combative Tone**\
+`Quotation of the Day for Sunday, August 23, 2026.`\
+https://www.nytimes.com/2026/08/23/pageoneplus/quote-of-the-day-over-us-trade-carney-strikes-combative-tone.html
+
 **Officials Investigating Postal Worker in Assault on a Peacock**\
 `A video appears to show a U.S. Postal Service worker striking a beloved all-white peacock named Sugar in a Pasadena, Calif., neighborhood.`\
 https://www.nytimes.com/2026/08/22/us/pasadena-peacock-attack-postal-worker.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/es/2026/08/22/espanol/estilos-de-vida/viudez-romance-adu
 **Harry and Meghan See Their California Dreams, and Riches, Fade Away**\
 `Like so many others before them, Prince Harry and Meghan arrived in Hollywood with big plans. They are leaving with their star power fading.`\
 https://www.nytimes.com/2026/08/22/us/meghan-harry-hollywood-uk-move.html
-
-**La amistad está determinada por el estatus social para muchos**\
-`La conexión social es un bien público, o al menos debería serlo en EE. UU.`\
-https://www.nytimes.com/es/2026/08/22/espanol/opinion/amistad-clase-social.html
-
-**Tupac Shakur Murder Trial: 5 Takeaways From Week 1**\
-`The jury heard from more than a dozen witnesses, including detectives and former gang members. The suspect, Duane Davis, addressed the judge directly.`\
-https://www.nytimes.com/2026/08/22/arts/music/tupac-shakur-murder-trial-takeaways.html
-
-**10 Songs We’re Talking About**\
-`Jorja Smith offers a loaded invitation, Rapsody explores Africa and the cosmos, and Carly Simon returns with her first single in decades.`\
-https://www.nytimes.com/2026/08/22/arts/music/carly-simon-rapsody-jorja-smith-new-songs.html
-
-**The Economy Got Used to Low Borrowing Costs. Their Exit Could Pose Risks.**\
-`After roughly two decades of ultralow interest rates, a period of rapid readjustment is ahead for the United States, the world’s largest economy and most important financial system.`\
-https://www.nytimes.com/2026/08/22/business/bonds-borrowing-costs-economy.html
-
-**In Ohio, Haitians Feel Shaken by Ankle Monitors and Increased ICE Presence**\
-`The devices, which will make it easier for authorities to locate immigrants in Springfield if large-scale deportations begin, have intensified a sense of dread.`\
-https://www.nytimes.com/2026/08/22/us/haiti-tps-springfield-ankle-monitors.html
 
