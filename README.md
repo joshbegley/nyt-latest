@@ -1,3 +1,15 @@
+**Democrats Need a Candidate Who Inspires, and Can Win**\
+`Readers respond to a guest column outlining what Democrats need to do when selecting a presidential candidate. Also, President Trump’s health reports; video at the Supreme Court.`\
+https://www.nytimes.com/2026/08/23/opinion/letters/democrats-2028-candidate.html
+
+**How to Fix the Housing Crisis: Look to WWII**\
+`World War II proves the government can intervene directly to fix the housing crisis.`\
+https://www.nytimes.com/2026/08/23/opinion/housing-crisis-world-war-ii-shortage.html
+
+**Five New Recipes I’m Very Excited to Make**\
+`Golden tofu noodle bowl, tangy chicken couscous salad and chermoula beans are bound to be go-tos.`\
+https://www.nytimes.com/2026/08/23/dining/five-new-recipes-im-very-excited-to-make.html
+
 **Iran Warns Gulf States Not to Join Trump’s Economic War**\
 `Iran’s new hard-line national security adviser, Mohsen Rezaei, vowed to prevent “a single drop of oil” from leaving the region.`\
 https://www.nytimes.com/2026/08/23/world/europe/iran-economy-war-united-states.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/08/23/opinion/culture/heroine-journey-odyssey-barbi
 **A mis hijos les parece raro que busque en Google a las personas antes de conocerlas. ¿Tienen razón?**\
 `¡Tampoco es que esté examinando archivos del FBI ni información clasificada!`\
 https://www.nytimes.com/es/2026/08/23/espanol/buscar-personas-google-etica.html
-
-**A ‘Survivor’ Castaway’s First Challenge: Finding an Apartment**\
-`Stephanie Berger was pretty confident about securing a spot on the 48th season of the reality TV series. She was far less certain about her house-hunting skills.`\
-https://www.nytimes.com/2026/08/23/realestate/survivor-stephanie-berger-rental-apartment.html
-
-**El primer ministro de Canadá dice que el país está ‘en guerra’ comercial con EE. UU.**\
-`El primer ministro Mark Carney pronunció un poderoso discurso a los canadienses el sábado por la mañana, horas después de ordenar a los negociadores que suspendieran las conversaciones comerciales con EE. UU. a pesar de los aranceles punitivos del presidente Trump.`\
-https://www.nytimes.com/es/2026/08/23/espanol/mundo/carney-canada-guerra-comercial-trump.html
-
-**Jackie Kennedy Onassis’ Private Beach on Martha's Vineyard Is Open to All. But It’s a Hike.**\
-`Caroline Kennedy and her family sold more than 330 acres of coastal land on Martha’s Vineyard to conservation groups. It comes with some caveats.`\
-https://www.nytimes.com/2026/08/23/us/kennedy-estate-marthas-vineyard-conservation.html
 
