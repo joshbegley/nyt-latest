@@ -1,3 +1,7 @@
+**Violent Extremist Who Targeted Young People Online Is Sentenced to 77 Years**\
+`Kyle William Spitze was part of an online extremist movement that coerces young people to do self-harm, officials said. Two of his victims died by suicide.`\
+https://www.nytimes.com/2026/08/22/us/kyle-spitze-764-group-sentenced.html
+
 **‘It’s Been Terrible’: Thousands in Indiana Remain Without Power**\
 `Gov. Mike Braun called on the local utility to “match the urgency” of Gary area residents who have had to endure an outage approaching its second week.`\
 https://www.nytimes.com/2026/08/22/us/gary-indiana-11-day-power-outage.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/22/us/haiti-tps-springfield-ankle-monitors.html
 **Priya Parker on the D.S.A.: ‘The Jilted Lovers of the Democrats’**\
 `On “The Interview,” the conflict resolution facilitator Priya Parker discussed political fighting and how organizations can find the common ground that prevents a breakup.`\
 https://www.nytimes.com/video/podcasts/100000011101290/priya-parker-on-the-dsa-the-jilted-lovers-of-the-democrats.html
-
-**How Slack Has ‘Turbocharged Conflict’ at Work**\
-`How has Slack changed corporate culture? Priya Parker, a conflict resolution facilitator, discussed its importance with David Marchese on “The Interview.”`\
-https://www.nytimes.com/video/podcasts/100000011101286/how-slack-has-turbocharged-conflict-at-work.html
 
