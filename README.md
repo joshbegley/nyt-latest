@@ -1,3 +1,7 @@
+**Quote of the Day: Over U.S. Trade, Carney Strikes Combative Tone**\
+`Quotation of the Day for Sunday, August 23, 2026.`\
+https://www.nytimes.com/2026/08/23/pageoneplus/quote-of-the-day-over-us-trade-carney-strikes-combative-tone.html
+
 **Officials Investigating Postal Worker in Assault on a Peacock**\
 `A video appears to show a U.S. Postal Service worker striking a beloved all-white peacock named Sugar in a Pasadena, Calif., neighborhood.`\
 https://www.nytimes.com/2026/08/22/us/pasadena-peacock-attack-postal-worker.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/22/arts/music/carly-simon-rapsody-jorja-smith-ne
 **The Economy Got Used to Low Borrowing Costs. Their Exit Could Pose Risks.**\
 `After roughly two decades of ultralow interest rates, a period of rapid readjustment is ahead for the United States, the world’s largest economy and most important financial system.`\
 https://www.nytimes.com/2026/08/22/business/bonds-borrowing-costs-economy.html
-
-**In Ohio, Haitians Feel Shaken by Ankle Monitors and Increased ICE Presence**\
-`The devices, which will make it easier for authorities to locate immigrants in Springfield if large-scale deportations begin, have intensified a sense of dread.`\
-https://www.nytimes.com/2026/08/22/us/haiti-tps-springfield-ankle-monitors.html
 
