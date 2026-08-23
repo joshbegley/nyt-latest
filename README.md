@@ -1,3 +1,27 @@
+**Think Baseball Is Boring? The Savannah Bananas Are Here to Fix That.**\
+`Our host takes in a game from the biggest team in baseball.`\
+https://www.nytimes.com/2026/08/23/podcasts/the-daily/think-baseball-is-boring-the-savannah-bananas-are-here-to-fix-that.html
+
+**NYT Connections Answers for August 24, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Aug. 24, 2026.`\
+https://www.nytimes.com/2026/08/23/crosswords/connections-companion-1170.html
+
+**Today’s Wordle Hints for August 24, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Aug. 24, 2026.`\
+https://www.nytimes.com/2026/08/23/crosswords/wordle-review-1892.html
+
+**‘Hey! You’re the Jerk at the Beach!’**\
+`As New Yorkers, we’re used to negotiating over tiny patches of space. But I didn’t expect that to continue on the beach.`\
+https://www.nytimes.com/2026/08/23/opinion/beach-battle-nemesis.html
+
+**Musical Gods Are False Idols**\
+`Musicians have a special tendency to elevate their teachers to divine status. It’s the worst thing a serious artist can do.`\
+https://www.nytimes.com/2026/08/23/opinion/music-conservatories-teachers-gods.html
+
+**NYT Strands Hints for August 24, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Aug. 24, 2026.`\
+https://www.nytimes.com/2026/08/23/crosswords/strands-sidekick-904.html
+
 **U.S.-Canada Trade War: What to Know About Tariffs and the Negotiations**\
 `Canada suspended trade negotiations, triggering President Trump’s 50 percent tariffs on a range of Canadian goods. Mark Carney said he would retaliate “dollar for dollar.”`\
 https://www.nytimes.com/2026/08/23/world/canada/canada-us-trade-war-trump-carney.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/08/22/us/kyle-spitze-764-group-sentenced.html
 **‘It’s Been Terrible’: Thousands in Indiana Remain Without Power**\
 `Gov. Mike Braun called on the local utility to “match the urgency” of Gary area residents who have had to endure an outage approaching its second week.`\
 https://www.nytimes.com/2026/08/22/us/gary-indiana-11-day-power-outage.html
-
-**Judge Denies New Trial for Karmelo Anthony in Texas Teen’s Killing**\
-`Mr. Anthony, 19, was convicted of murder in the fatal stabbing of Austin Metcalf at a high school track meet last year. His lawyers are appealing the case.`\
-https://www.nytimes.com/2026/08/22/us/karmelo-anthony-texas-stabbing.html
-
-**Small Change**\
-`Jill Singer drops a shiny new Sunday puzzle in our pockets.`\
-https://www.nytimes.com/2026/08/22/crosswords/daily-puzzle-2026-08-23.html
-
-**Trump’s Top Trade Representative Details Offer That Canada Rejected**\
-`In an interview, Jamieson Greer, President’s Trump’s trade representative, laid out details of what the United States offered to Canada before talks crumbled.`\
-https://www.nytimes.com/2026/08/22/business/economy/greer-us-canada-trade-deal.html
-
-**Iranians Feel the Toll of U.S. Economic Sanctions**\
-`Residents in Tehran are experiencing the effects of the “economic D-Day” that President Trump threatened against Iran on Wednesday.`\
-https://www.nytimes.com/video/world/middleeast/100000011106110/iran-us-economic-sanctions.html
-
-**Canada ‘at War’ With U.S. After Trade Talks Collapse, Carney Says**\
-`Prime Minister Mark Carney of Canada spoke to reporters on Saturday after trade talks with the U.S. collapsed late Friday.`\
-https://www.nytimes.com/video/world/canada/100000011107673/canada-carney-tariff-trade.html
-
-**Nancy Kassebaum, First Woman to Chair a Major Senate Panel, Dies at 94**\
-`A moderate Republican from Kansas, she served three terms before tiring of political strife. “I couldn’t get elected today,” she said in 2013.`\
-https://www.nytimes.com/2026/08/22/us/politics/nancy-kassebaum-dead.html
 
