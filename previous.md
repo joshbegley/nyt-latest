@@ -1,3 +1,7 @@
+**Trump’s Economic Approach Draws Concern From Some Republicans**\
+`A plan to lower tariffs on imported beef and trade tensions with Canada have compounded some G.O.P. worries about a central issue in the midterms.`\
+https://www.nytimes.com/2026/08/23/us/politics/trump-republicans-economy-midterms.html
+
 **French Tourist Dies in Death Valley During 116-Degree Heat**\
 `The 68-year-old tourist and his companion were driving through Death Valley National Park on a remote road last week when their car got stuck in mud, officials said.`\
 https://www.nytimes.com/2026/08/23/us/french-tourist-dead-death-valley.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/23/business/powerus-counter-drone-iran-war.html
 **Many Nashville Bus Stops Lack Places to Sit. These Locals Took a Stand.**\
 `Frustrated with the government’s slow effort to improve Nashville’s public transit infrastructure, a group of residents has taken bus stop seating into their own hands.`\
 https://www.nytimes.com/2026/08/23/us/nashville-bus-stop-benches.html
-
-**A Sensory-Friendly Boutique for Neurodivergent Brides**\
-`Inspired by her son, who was diagnosed with A.D.H.D. and autism, Beth Clark transformed her 6,500-square-foot bridal salon into a calming, sensory-friendly space for neurodivergent brides.`\
-https://www.nytimes.com/2026/08/23/style/sensory-friendly-neurodivergent-bridal-boutique.html
 

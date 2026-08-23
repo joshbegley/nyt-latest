@@ -1,3 +1,7 @@
+**Trump’s Economic Approach Draws Concern From Some Republicans**\
+`A plan to lower tariffs on imported beef and trade tensions with Canada have compounded some G.O.P. worries about a central issue in the midterms.`\
+https://www.nytimes.com/2026/08/23/us/politics/trump-republicans-economy-midterms.html
+
 **French Tourist Dies in Death Valley During 116-Degree Heat**\
 `The 68-year-old tourist and his companion were driving through Death Valley National Park on a remote road last week when their car got stuck in mud, officials said.`\
 https://www.nytimes.com/2026/08/23/us/french-tourist-dead-death-valley.html
