@@ -1,3 +1,7 @@
+**America Was on a Heroine’s Journey. What Happened?**\
+`‘The Odyssey’ and ‘Barbie’ show a zeitgeist shift that goes beyond Hollywood: The hero’s narrative is corroding our political and public life.`\
+https://www.nytimes.com/2026/08/23/opinion/culture/heroine-journey-odyssey-barbie.html
+
 **A mis hijos les parece raro que busque en Google a las personas antes de conocerlas. ¿Tienen razón?**\
 `¡Tampoco es que esté examinando archivos del FBI ni información clasificada!`\
 https://www.nytimes.com/es/2026/08/23/espanol/buscar-personas-google-etica.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/22/weather/hawaii-moke-storm-rain-flood.html
 **How a Progressive Democrat in Florida Gave Her Party New Hope — and New Fears**\
 `Angie Nixon, a state lawmaker from Jacksonville, shocked Democrats in red Florida by soundly defeating her centrist primary opponent. Now comes the hard part.`\
 https://www.nytimes.com/2026/08/22/us/politics/angie-nixon-florida-senate-socialist.html
-
-**Mi luz estaba apagada. Él la encendió**\
-`Después de un matrimonio largo y casi sin sexo, pensé que ya no me quedaba nada de pasión.`\
-https://www.nytimes.com/es/2026/08/22/espanol/estilos-de-vida/viudez-romance-adulto-mayor-modern-love.html
 
