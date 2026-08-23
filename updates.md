@@ -1,3 +1,7 @@
+**Evacuations Ordered as Wildfire Approaches Reno**\
+`A wildfire has forced thousands of evacuations in part of Reno, Nev. The blaze, known as the Hawk fire, has grown to more than 13,000 acres since Saturday without any containment.`\
+https://www.nytimes.com/video/us/100000011108389/reno-wildfire-evacuation.html
+
 **3 Cyclists Die in One Week in Hit-and-Runs in New York City**\
 `Those who died were all on e-bikes. Seventeen cyclists have been killed so far this year, and advocate groups said the deaths should be a rallying cry for safety improvements.`\
 https://www.nytimes.com/2026/08/23/nyregion/nyc-cycling-bike-deaths.html
