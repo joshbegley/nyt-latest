@@ -1,3 +1,7 @@
+**Two Phoenix Police Officers Fired and Arrested After Violent Traffic Stop**\
+`The officers are accused of beating a couple and shocking them with a stun gun during an unreported traffic stop this month.`\
+https://www.nytimes.com/2026/08/23/us/phoenix-police-arrests-traffic-stop.html
+
 **Mexican Governor Accused by U.S. of Aiding Cartel Leaves Office, Again**\
 `Rubén Rocha Moya of Sinaloa reversed course a day after returning to office, amid widespread criticism, including from members of his own party.`\
 https://www.nytimes.com/2026/08/23/world/americas/governor-ruben-rocha-moya-sinaloa-mexico.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/22/us/police-chief-mississippi-racist-slurs.html
 **Meghan’s Brand, As Ever, Will Live On**\
 `As the Duke and Duchess of Sussex head back to Britain, Meghan’s brand will continue selling wine and fruit spreads.`\
 https://www.nytimes.com/2026/08/22/style/meghan-markle-as-ever.html
-
-**Tropical Storm Moke Threatens to Bring Up to a Foot of Rain to Hawaii**\
-`Heavy rain is expected to arrive at the Big Island by Saturday night. The storm comes as Hawaii is still cleaning up from the damage done by Hurricane Lala.`\
-https://www.nytimes.com/2026/08/22/weather/hawaii-moke-storm-rain-flood.html
 

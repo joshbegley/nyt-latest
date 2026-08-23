@@ -1,3 +1,7 @@
+**Two Phoenix Police Officers Fired and Arrested After Violent Traffic Stop**\
+`The officers are accused of beating a couple and shocking them with a stun gun during an unreported traffic stop this month.`\
+https://www.nytimes.com/2026/08/23/us/phoenix-police-arrests-traffic-stop.html
+
 **Mexican Governor Accused by U.S. of Aiding Cartel Leaves Office, Again**\
 `Rubén Rocha Moya of Sinaloa reversed course a day after returning to office, amid widespread criticism, including from members of his own party.`\
 https://www.nytimes.com/2026/08/23/world/americas/governor-ruben-rocha-moya-sinaloa-mexico.html
