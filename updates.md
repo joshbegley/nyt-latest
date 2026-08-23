@@ -1,3 +1,7 @@
+**America’s Desert Metropolis Is on the Short List to Lose Water**\
+`Decades ago, Arizona won funding for a massive Colorado River project by agreeing to be first in line for cuts at a time of deep drought. The Trump administration says that time has come.`\
+https://www.nytimes.com/2026/08/23/us/arizona-canals-colorado-river.html
+
 **Zelensky Says His Ex-Defense Minister Was Wrong to Call for Elections**\
 `The Ukrainian president repeated his long-held position that elections in the middle of war would tear his country apart.`\
 https://www.nytimes.com/2026/08/23/world/europe/ukraine-zelensky-fedorov-elections.html

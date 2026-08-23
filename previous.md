@@ -119,7 +119,7 @@ https://www.nytimes.com/2026/08/23/business/schools-big-tech-google-microsoft.ht
 https://www.nytimes.com/2026/08/23/books/review/earl-swift-up-on-cove-mountain.html
 
 **America’s Desert Metropolis Is on the Short List to Lose Water**\
-`Decades ago, the state won funding for a massive Colorado River project by agreeing to be first in line for cuts at a time of deep drought. The Trump administration says that time has come.`\
+`Decades ago, Arizona won funding for a massive Colorado River project by agreeing to be first in line for cuts at a time of deep drought. The Trump administration says that time has come.`\
 https://www.nytimes.com/2026/08/23/us/arizona-canals-colorado-river.html
 
 **Jeff Conolly, Manic Garage-Rock Frontman, Dies at 69**\
