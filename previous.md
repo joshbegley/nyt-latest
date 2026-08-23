@@ -1,3 +1,7 @@
+**Plumbing Conduits**\
+`Steven Jopek’s debut puzzle won’t let you give up.`\
+https://www.nytimes.com/2026/08/23/crosswords/daily-puzzle-2026-08-24.html
+
 **Trump’s Economic Approach Draws Concern From Some Republicans**\
 `A plan to lower tariffs on imported beef and trade tensions with Canada have compounded some G.O.P. worries about a central issue in the midterms.`\
 https://www.nytimes.com/2026/08/23/us/politics/trump-republicans-economy-midterms.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/23/climate/wildfire-forest-loss-california-south
 **The U.S. Start-Up Making Low-Cost Interceptors for the Iran War**\
 `For Florida-based Powerus, becoming a global supplier of counterdrone technology has meant involving the Trumps, a golf course and a new way of doing business.`\
 https://www.nytimes.com/2026/08/23/business/powerus-counter-drone-iran-war.html
-
-**Many Nashville Bus Stops Lack Places to Sit. These Locals Took a Stand.**\
-`Frustrated with the government’s slow effort to improve Nashville’s public transit infrastructure, a group of residents has taken bus stop seating into their own hands.`\
-https://www.nytimes.com/2026/08/23/us/nashville-bus-stop-benches.html
 
