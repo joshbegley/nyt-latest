@@ -1,3 +1,11 @@
+**En estas 3 películas del verano, el sexo viene con guía**\
+`Gillian Anderson, Penélope Cruz y Olivia Wilde surgen como mentoras para aquellos que tropiezan ante el deseo.`\
+https://www.nytimes.com/es/2026/08/23/espanol/cultura/peliculas-sexo-invitacion-camp-miasma.html
+
+**Pasé mi verano entre cementerios y encontré consuelo**\
+`Los muertos nos enseñan lo mucho que hay que disfrutar de lo efímero de la vida.`\
+https://www.nytimes.com/es/2026/08/23/espanol/opinion/verano-cementerios-vejez-consuelo.html
+
 **He Was Wrongly Convicted of Attempted Rape. He’s Suing the DNA Analysts.**\
 `Alexis Rodriguez claims technicians at the New York City medical examiner’s office fabricated DNA evidence, leading to his wrongful conviction in 2014 for attempted rape.`\
 https://www.nytimes.com/2026/08/23/nyregion/new-york-dna-analysts-sued-rape-conviction.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/22/crosswords/wordle-review-1891.html
 **What Does Harry and Meghan’s Return to England Mean for Their Children?**\
 `One effect of moving back is that Archie and Lilibet now have the opportunity to be schooled as Britons. Here’s what that might look like.`\
 https://www.nytimes.com/2026/08/22/world/europe/harry-meghan-children-schools.html
-
-**An Expert on Conflict Says Your Relationships Are Doomed Without It**\
-`The author Priya Parker says the key to human connection is to lean into the fight.`\
-https://www.nytimes.com/2026/08/22/magazine/priya-parker-interview.html
-
-**Carney Stands Up to Trump in U.S.-Canada Trade War**\
-`Canada’s prime minister walked away from what he thought was a bad trade deal with the United States. Many Canadians are behind him, but it will be costly.`\
-https://www.nytimes.com/2026/08/22/world/canada/carney-trump-canada-tariffs.html
 

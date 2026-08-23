@@ -1,3 +1,11 @@
+**En estas 3 películas del verano, el sexo viene con guía**\
+`Gillian Anderson, Penélope Cruz y Olivia Wilde surgen como mentoras para aquellos que tropiezan ante el deseo.`\
+https://www.nytimes.com/es/2026/08/23/espanol/cultura/peliculas-sexo-invitacion-camp-miasma.html
+
+**Pasé mi verano entre cementerios y encontré consuelo**\
+`Los muertos nos enseñan lo mucho que hay que disfrutar de lo efímero de la vida.`\
+https://www.nytimes.com/es/2026/08/23/espanol/opinion/verano-cementerios-vejez-consuelo.html
+
 **He Was Wrongly Convicted of Attempted Rape. He’s Suing the DNA Analysts.**\
 `Alexis Rodriguez claims technicians at the New York City medical examiner’s office fabricated DNA evidence, leading to his wrongful conviction in 2014 for attempted rape.`\
 https://www.nytimes.com/2026/08/23/nyregion/new-york-dna-analysts-sued-rape-conviction.html
