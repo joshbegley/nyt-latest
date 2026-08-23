@@ -1,3 +1,7 @@
+**A Light Salmon Chowder That Goes Heavy on Summer**\
+`Corn and cherry tomatoes add sweetness, and a little horseradish contributes kick.`\
+https://www.nytimes.com/2026/08/23/dining/a-light-salmon-chowder-that-goes-heavy-on-summer.html
+
 **Push Your Musical Gods Off Their Pedestals**\
 `Musicians have a special tendency to elevate their teachers to divine status. It’s the worst thing a serious artist can do.`\
 https://www.nytimes.com/2026/08/23/opinion/music-conservatories-teachers-gods.html
