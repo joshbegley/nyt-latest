@@ -6,7 +6,7 @@ https://www.nytimes.com/2026/08/23/us/phoenix-police-arrests-traffic-stop.html
 `Rubén Rocha Moya of Sinaloa reversed course a day after returning to office, amid widespread criticism, including from members of his own party.`\
 https://www.nytimes.com/2026/08/23/world/americas/governor-ruben-rocha-moya-sinaloa-mexico.html
 
-**America Was on a Heroine’s Journey. What Happened?**\
+**The Barbie Backlash**\
 `‘The Odyssey’ and ‘Barbie’ show a zeitgeist shift that goes beyond Hollywood: The hero’s narrative is corroding our political and public life.`\
 https://www.nytimes.com/2026/08/23/opinion/culture/heroine-journey-odyssey-barbie.html
 

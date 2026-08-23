@@ -1,3 +1,7 @@
+**The Barbie Backlash**\
+`‘The Odyssey’ and ‘Barbie’ show a zeitgeist shift that goes beyond Hollywood: The hero’s narrative is corroding our political and public life.`\
+https://www.nytimes.com/2026/08/23/opinion/culture/heroine-journey-odyssey-barbie.html
+
 **Two Phoenix Police Officers Fired and Arrested After Violent Traffic Stop**\
 `The officers are accused of beating a couple and shocking them with a stun gun during an unreported traffic stop this month.`\
 https://www.nytimes.com/2026/08/23/us/phoenix-police-arrests-traffic-stop.html
