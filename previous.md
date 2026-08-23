@@ -1,3 +1,15 @@
+**U.S.-Canada Trade War: What to Know About Tariffs and the Negotiations**\
+`Canada suspended trade negotiations, triggering President Trump’s 50 percent tariffs on a range of Canadian goods. Mark Carney said he would retaliate “dollar for dollar.”`\
+https://www.nytimes.com/2026/08/23/world/canada/canada-us-trade-war-trump-carney.html
+
+**What Canadian Goods Will Take Trump’s 50% Tariffs? Some Pretty Strange Items.**\
+`Buoys, dog muzzles, capes, national flags and “base metal statuettes” from Canada are now more expensive for U.S. shoppers.`\
+https://www.nytimes.com/2026/08/23/world/canada/canadian-goods-trump-tariffs-items-list.html
+
+**Read the document**\
+`NRSC memo on Ohio data centers.`\
+https://www.nytimes.com/interactive/2026/08/23/us/memoohdatacenters260817.html
+
 **Siguiendo el ejemplo de Trump, los líderes conservadores de América Latina respaldan a sus aliados extranjeros**\
 `Entre vítores, muestras de apoyo e insultos hacia sus rivales y el “wokismo”, una nueva generación de líderes de derecha está interviniendo abiertamente en las elecciones de otros países.`\
 https://www.nytimes.com/es/2026/08/23/espanol/america-latina/trump-presidentes-derecha-alianzas.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/video/world/canada/100000011107673/canada-carney-tariff-
 **Nancy Kassebaum, First Woman to Chair a Major Senate Panel, Dies at 94**\
 `A moderate Republican from Kansas, she served three terms before tiring of political strife. “I couldn’t get elected today,” she said in 2013.`\
 https://www.nytimes.com/2026/08/22/us/politics/nancy-kassebaum-dead.html
-
-**U.S. Economy Could Feel the Sting From Trade War With Canada**\
-`A tit-for-tat trade fight between the two allies could create new headaches for consumers and businesses already stung by high prices.`\
-https://www.nytimes.com/2026/08/22/business/economy-trade-war-us-canada.html
-
-**Paramount and California to Hold Preliminary Talks on Warner Bros. Deal**\
-`The discussions on Monday are an early effort to resolve a lawsuit that California and 11 other states filed to block Paramount’s $111 billion acquisition of Warner Bros. Discovery.`\
-https://www.nytimes.com/2026/08/22/business/paramount-california-warner-bros.html
-
-**The Real Natalie Harp Scandal Is the President’s Information Diet**\
-`President Trump exists in a degraded, chaotic environment.`\
-https://www.nytimes.com/2026/08/22/opinion/trump-natalie-harp-information-news.html
 

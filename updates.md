@@ -1,3 +1,15 @@
+**U.S.-Canada Trade War: What to Know About Tariffs and the Negotiations**\
+`Canada suspended trade negotiations, triggering President Trump’s 50 percent tariffs on a range of Canadian goods. Mark Carney said he would retaliate “dollar for dollar.”`\
+https://www.nytimes.com/2026/08/23/world/canada/canada-us-trade-war-trump-carney.html
+
+**What Canadian Goods Will Take Trump’s 50% Tariffs? Some Pretty Strange Items.**\
+`Buoys, dog muzzles, capes, national flags and “base metal statuettes” from Canada are now more expensive for U.S. shoppers.`\
+https://www.nytimes.com/2026/08/23/world/canada/canadian-goods-trump-tariffs-items-list.html
+
+**Read the document**\
+`NRSC memo on Ohio data centers.`\
+https://www.nytimes.com/interactive/2026/08/23/us/memoohdatacenters260817.html
+
 **Washington’s First IndyCar Race Draws Crowds and Closes Roads**\
 `While Washington’s first IndyCar race drew crowds this weekend, it also hampered other activities in and around the capital.`\
 https://www.nytimes.com/video/us/100000011108177/dc-grand-prix-indycar-traffic-disruption.html
