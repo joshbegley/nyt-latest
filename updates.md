@@ -1,3 +1,15 @@
+**He Was Wrongly Convicted of Attempted Rape. He’s Suing the DNA Analysts.**\
+`Alexis Rodriguez claims technicians at the New York City medical examiner’s office fabricated DNA evidence, leading to his wrongful conviction in 2014 for attempted rape.`\
+https://www.nytimes.com/2026/08/23/nyregion/new-york-dna-analysts-sued-rape-conviction.html
+
+**‘We Were Ready to Forge Ahead, but My Foul Mood Had Officially Set In’**\
+`Good box-office luck, a friendly stranger with a secret in Murray Hill and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://www.nytimes.com/2026/08/23/nyregion/metropolitan-diary.html
+
+**NYT Spelling Bee Answers for August 23, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/08/23/crosswords/spelling-bee-forum.html
+
 **The Barbie Backlash**\
 `‘The Odyssey’ and ‘Barbie’ show a zeitgeist shift that goes beyond Hollywood: The hero’s narrative is corroding our political and public life.`\
 https://www.nytimes.com/2026/08/23/opinion/culture/heroine-journey-odyssey-barbie.html
