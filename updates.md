@@ -1,3 +1,39 @@
+**Siguiendo el ejemplo de Trump, los líderes conservadores de América Latina respaldan a sus aliados extranjeros**\
+`Entre vítores, muestras de apoyo e insultos hacia sus rivales y el “wokismo”, una nueva generación de líderes de derecha está interviniendo abiertamente en las elecciones de otros países.`\
+https://www.nytimes.com/es/2026/08/23/espanol/america-latina/trump-presidentes-derecha-alianzas.html
+
+**Washington’s First IndyCar Race Draws Crowds and Closes Roads**\
+`While Washington’s first Grand Prix drew crowds this weekend, it also hampered other activities in and around the capital.`\
+https://www.nytimes.com/video/us/100000011108177/dc-grand-prix-indycar-traffic-disruption.html
+
+**Jeffries and Kushner Meet Privately as Midterm Attacks Fly**\
+`President Trump’s son-in-law and the man in line to be speaker of a Democratic-led House discussed how Democrats and the administration could work together.`\
+https://www.nytimes.com/2026/08/23/us/politics/jeffries-kushner-private-meeting.html
+
+**Sean Duffy’s Reality Show: From ‘The Real World’ to the Deal World**\
+`“The Great American Road Trip” sends the transportation secretary and his family on a wholesome, dull tour, with a lot of help from their sponsors.`\
+https://www.nytimes.com/2026/08/23/arts/television/sean-duffy-great-american-road-trip.html
+
+**Corrections: Aug. 23, 2026**\
+`Corrections that appeared in print on Sunday, Aug. 23, 2026.`\
+https://www.nytimes.com/2026/08/23/pageoneplus/corrections-aug-23-2026.html
+
+**The Data Center Backlash Bursts Into the Midterms**\
+`With opposition to the centers mounting, many Democrats and a growing number of Republicans are campaigning against them.`\
+https://www.nytimes.com/2026/08/23/us/politics/data-centers-midterm-elections.html
+
+**The Midterms Feel Like 2006 All Over Again**\
+`With an unpopular war and high prices agitating voters, members of both parties see parallels to an election cycle when Democrats romped. But a lot has changed.`\
+https://www.nytimes.com/2026/08/23/us/politics/midterms-feel-like-2006-all-over-again.html
+
+**Echoing Trump, Latin America’s Leaders Boost Allies Across Borders**\
+`With cheers, endorsements and insults for rivals and “wokismo,” a new crop of right-wing leaders are openly stepping into one another’s elections.`\
+https://www.nytimes.com/2026/08/23/world/americas/latin-america-leaders-trump.html
+
+**The World’s Breadbaskets Are Getting Pounded by War, Weather and Trade Spats**\
+`Bad harvests and attacks on trade passages threaten to drive food prices higher.`\
+https://www.nytimes.com/2026/08/23/climate/wheat-harvests-bread-prices-war-heat.html
+
 **Dr. Dre and Jimmy Iovine Think A.I. Is Good for Music**\
 `The hit-making duo turned tech moguls also have thoughts about why corporate America isn’t collaborative enough.`\
 https://www.nytimes.com/2026/08/23/business/jimmy-iovine-dr-dre-beats-usc.html

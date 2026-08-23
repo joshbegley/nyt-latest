@@ -1,3 +1,39 @@
+**Siguiendo el ejemplo de Trump, los líderes conservadores de América Latina respaldan a sus aliados extranjeros**\
+`Entre vítores, muestras de apoyo e insultos hacia sus rivales y el “wokismo”, una nueva generación de líderes de derecha está interviniendo abiertamente en las elecciones de otros países.`\
+https://www.nytimes.com/es/2026/08/23/espanol/america-latina/trump-presidentes-derecha-alianzas.html
+
+**Washington’s First IndyCar Race Draws Crowds and Closes Roads**\
+`While Washington’s first Grand Prix drew crowds this weekend, it also hampered other activities in and around the capital.`\
+https://www.nytimes.com/video/us/100000011108177/dc-grand-prix-indycar-traffic-disruption.html
+
+**Jeffries and Kushner Meet Privately as Midterm Attacks Fly**\
+`President Trump’s son-in-law and the man in line to be speaker of a Democratic-led House discussed how Democrats and the administration could work together.`\
+https://www.nytimes.com/2026/08/23/us/politics/jeffries-kushner-private-meeting.html
+
+**Sean Duffy’s Reality Show: From ‘The Real World’ to the Deal World**\
+`“The Great American Road Trip” sends the transportation secretary and his family on a wholesome, dull tour, with a lot of help from their sponsors.`\
+https://www.nytimes.com/2026/08/23/arts/television/sean-duffy-great-american-road-trip.html
+
+**Corrections: Aug. 23, 2026**\
+`Corrections that appeared in print on Sunday, Aug. 23, 2026.`\
+https://www.nytimes.com/2026/08/23/pageoneplus/corrections-aug-23-2026.html
+
+**The Data Center Backlash Bursts Into the Midterms**\
+`With opposition to the centers mounting, many Democrats and a growing number of Republicans are campaigning against them.`\
+https://www.nytimes.com/2026/08/23/us/politics/data-centers-midterm-elections.html
+
+**The Midterms Feel Like 2006 All Over Again**\
+`With an unpopular war and high prices agitating voters, members of both parties see parallels to an election cycle when Democrats romped. But a lot has changed.`\
+https://www.nytimes.com/2026/08/23/us/politics/midterms-feel-like-2006-all-over-again.html
+
+**Echoing Trump, Latin America’s Leaders Boost Allies Across Borders**\
+`With cheers, endorsements and insults for rivals and “wokismo,” a new crop of right-wing leaders are openly stepping into one another’s elections.`\
+https://www.nytimes.com/2026/08/23/world/americas/latin-america-leaders-trump.html
+
+**The World’s Breadbaskets Are Getting Pounded by War, Weather and Trade Spats**\
+`Bad harvests and attacks on trade passages threaten to drive food prices higher.`\
+https://www.nytimes.com/2026/08/23/climate/wheat-harvests-bread-prices-war-heat.html
+
 **Dr. Dre and Jimmy Iovine Think A.I. Is Good for Music**\
 `The hit-making duo turned tech moguls also have thoughts about why corporate America isn’t collaborative enough.`\
 https://www.nytimes.com/2026/08/23/business/jimmy-iovine-dr-dre-beats-usc.html
@@ -161,40 +197,4 @@ https://www.nytimes.com/2026/08/22/business/paramount-california-warner-bros.htm
 **The Real Natalie Harp Scandal Is the President’s Information Diet**\
 `President Trump exists in a degraded, chaotic environment.`\
 https://www.nytimes.com/2026/08/22/opinion/trump-natalie-harp-information-news.html
-
-**Carney Slams U.S.-Canada Trade Proposal and Vows Retaliation**\
-`Prime Minister Mark Carney gave a powerful speech to Canadians on Saturday morning, hours after ordering negotiators to suspend U.S. trade talks despite President Trump’s punishing tariffs.`\
-https://www.nytimes.com/2026/08/22/world/canada/carney-tariffs-trade-trump.html
-
-**A Skillet Dinner That Hits All the Right Summer Notes**\
-`Yewande Komolafe’s skillet chicken with peppers and tomatoes is sweet and savory, with lots of acidity to keep things nice and bright.`\
-https://www.nytimes.com/2026/08/22/dining/a-skillet-dinner-that-hits-all-the-right-summer-notes.html
-
-**Watch Live: Canadian Prime Minister Mark Carney Delivers Remarks**\
-`Canadian Prime Minister Mark Carney delivers remarks after the U.S.-Canada trade talks collapsed.`\
-https://www.nytimes.com/video/world/100000011107687/watch-live-canadian-prime-minister-mark-carney-delivers-remarks.html
-
-**Grand Slam Desserts: The Main Draw**\
-`Melon cheesecake bars, Pavlova, and strawberries and cream cake are the perfect match for tennis’s biggest events.`\
-https://www.nytimes.com/2026/08/22/dining/grand-slam-desserts-the-main-draw.html
-
-**These 5 People Spent Decades Behind Bars. Here Are Their Stories.**\
-`Francis Clifford Smith, who died at 101, was among the longest-incarcerated people in the U.S. Here are some others who lived much of their lives in prison.`\
-https://www.nytimes.com/2026/08/22/us/life-prison-sentence-william-heirens-sammie-robinson.html
-
-**Frank Smith, Who Served 70 Years for Murder, Dies at 101**\
-`One of the longest-serving prisoners in American history, he was sent to death row in 1950 before his sentence was commuted to life imprisonment.`\
-https://www.nytimes.com/2026/08/22/us/francis-clifford-smith-dead.html
-
-**Some States Banned the Use of Food Stamps to Buy Soda. Did It Work?**\
-`A study shows a modest decline in soda purchases, but it’s not clear that the results will hold up in the long run.`\
-https://www.nytimes.com/2026/08/22/upshot/snap-restrictions-soda-sugary-drinks.html
-
-**Harvard Is Selling a $699 Course Taught by A.I. Clones of Its Faculty**\
-`To create a new bootcamp for entrepreneurs, Harvard Business School made A.I. avatars of its instructors.`\
-https://www.nytimes.com/2026/08/22/business/dealbook/harvard-ai-faculty.html
-
-**Otras 5 señales inesperadas de que estás envejeciendo**\
-`Nuestros cuerpos sufren cambios que podrían resultar sorprendentes. Le preguntamos a los expertos por algunos de ellos.`\
-https://www.nytimes.com/es/2026/08/22/espanol/estilos-de-vida/senales-envejecimiento-dolor-pies.html
 
