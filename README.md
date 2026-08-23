@@ -1,3 +1,7 @@
+**Nearly 40,000 Eye Drop Bottles Are Recalled Over Potential Contamination**\
+`Federal safety regulators said the maker of Clear Eyes Maximum Itchy Eye Relief voluntarily recalled the drops because of a “lack of assurance of sterility.”`\
+https://www.nytimes.com/2026/08/23/health/eye-drops-recalled.html
+
 **Hayden Panettiere’s Final Battles: Mysterious Pain and Trouble With an Ex**\
 `In the year before the actress’s death, she struggled to walk at times and worked to disentangle herself from an ex-boyfriend who had abused her.`\
 https://www.nytimes.com/2026/08/23/arts/television/hayden-panettiere-brian-hickerson-boyfriend-book-tour.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/08/23/espanol/cultura/peliculas-sexo-invitacion-
 **Pasé mi verano entre cementerios y encontré consuelo**\
 `Los muertos nos enseñan lo mucho que hay que disfrutar de lo efímero de la vida.`\
 https://www.nytimes.com/es/2026/08/23/espanol/opinion/verano-cementerios-vejez-consuelo.html
-
-**He Was Wrongly Convicted of Attempted Rape. He’s Suing the DNA Analysts.**\
-`Alexis Rodriguez claims technicians at the New York City medical examiner’s office fabricated DNA evidence, leading to his wrongful conviction in 2014 for attempted rape.`\
-https://www.nytimes.com/2026/08/23/nyregion/new-york-dna-analysts-sued-rape-conviction.html
 
