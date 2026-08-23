@@ -1,3 +1,15 @@
+**Harlem’s Muslim Map**\
+`How the neighborhood became a cultural and religious bouillabaisse.`\
+https://www.nytimes.com/2026/08/23/briefing/harlems-muslim-map.html
+
+**A Murder Trial in Massachusetts**\
+`How the trial of Lindsay Clancy has become a proxy for how people view society’s ills.`\
+https://www.nytimes.com/2026/08/23/briefing/a-murder-trial-in-massachusetts.html
+
+**America’s Desert Metropolis Is on the Short List to Lose Water**\
+`Decades ago, the state won funding for a massive Colorado River project by agreeing to be first in line for cuts at a time of deep drought. The Trump administration says that time has come.`\
+https://www.nytimes.com/2026/08/23/us/arizona-canals-colorado-river.html
+
 **Twitter Broke the Left. X Will Break the Right.**\
 `Democrats paid a price for forming their politics on Twitter; the right will pay a price for forming theirs on X.`\
 https://www.nytimes.com/2026/08/23/opinion/twitter-x-woke-1-elon-musk.html

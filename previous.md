@@ -1,3 +1,11 @@
+**Harlem’s Muslim Map**\
+`How the neighborhood became a cultural and religious bouillabaisse.`\
+https://www.nytimes.com/2026/08/23/briefing/harlems-muslim-map.html
+
+**A Murder Trial in Massachusetts**\
+`How the trial of Lindsay Clancy has become a proxy for how people view society’s ills.`\
+https://www.nytimes.com/2026/08/23/briefing/a-murder-trial-in-massachusetts.html
+
 **Twitter Broke the Left. X Will Break the Right.**\
 `Democrats paid a price for forming their politics on Twitter; the right will pay a price for forming theirs on X.`\
 https://www.nytimes.com/2026/08/23/opinion/twitter-x-woke-1-elon-musk.html
@@ -90,7 +98,7 @@ https://www.nytimes.com/2026/08/23/business/schools-big-tech-google-microsoft.ht
 `In “Up on Cove Mountain” Earl Swift confronts a place — and a tragedy — that haunts him.`\
 https://www.nytimes.com/2026/08/23/books/review/earl-swift-up-on-cove-mountain.html
 
-**This Canal System Transformed Arizona. It’s Now in Jeopardy.**\
+**America’s Desert Metropolis Is on the Short List to Lose Water**\
 `Decades ago, the state won funding for a massive Colorado River project by agreeing to be first in line for cuts at a time of deep drought. The Trump administration says that time has come.`\
 https://www.nytimes.com/2026/08/23/us/arizona-canals-colorado-river.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/23/us/kennedy-estate-marthas-vineyard-conservati
 **Four Years Ago, a Crypto Boss Went Missing. Now His Successor Has.**\
 `The mysterious collapse of a European cryptocurrency exchange helps to explain why the industry hasn’t shaken off its reputation as a magnet for criminals.`\
 https://www.nytimes.com/2026/08/23/world/europe/poland-estonia-cryptocurrency.html
-
-**Quote of the Day: Over U.S. Trade, Carney Strikes Combative Tone**\
-`Quotation of the Day for Sunday, August 23, 2026.`\
-https://www.nytimes.com/2026/08/23/pageoneplus/quote-of-the-day-over-us-trade-carney-strikes-combative-tone.html
-
-**Officials Investigating Postal Worker in Assault on a Peacock**\
-`A video appears to show a U.S. Postal Service worker striking a beloved all-white peacock named Sugar in a Pasadena, Calif., neighborhood.`\
-https://www.nytimes.com/2026/08/22/us/pasadena-peacock-attack-postal-worker.html
 
