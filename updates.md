@@ -1,3 +1,7 @@
+**‘Heat Dome’ to Bring Dangerous and Prolonged Heat Wave to Southern States**\
+`Even after sunset, there will be little relief, as much of the South is expected to remain above 80 degrees for several nights in a row.`\
+https://www.nytimes.com/2026/08/23/weather/southwest-heat-wave.html
+
 **A Light Salmon Chowder That Goes Heavy on Summer**\
 `Corn and cherry tomatoes add sweetness, and a little horseradish contributes kick.`\
 https://www.nytimes.com/2026/08/23/dining/a-light-salmon-chowder-that-goes-heavy-on-summer.html

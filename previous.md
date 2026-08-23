@@ -1,3 +1,7 @@
+**‘Heat Dome’ to Bring Dangerous and Prolonged Heat Wave to Southern States**\
+`Even after sunset, there will be little relief, as much of the South is expected to remain above 80 degrees for several nights in a row.`\
+https://www.nytimes.com/2026/08/23/weather/southwest-heat-wave.html
+
 **A Light Salmon Chowder That Goes Heavy on Summer**\
 `Corn and cherry tomatoes add sweetness, and a little horseradish contributes kick.`\
 https://www.nytimes.com/2026/08/23/dining/a-light-salmon-chowder-that-goes-heavy-on-summer.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/23/crosswords/spelling-bee-forum.html
 **Two Phoenix Police Officers Fired and Arrested After Violent Traffic Stop**\
 `The officers are accused of beating a couple and shocking them with a stun gun during an unreported traffic stop this month.`\
 https://www.nytimes.com/2026/08/23/us/phoenix-police-arrests-traffic-stop.html
-
-**Mexican Governor Accused by U.S. of Aiding Cartel Leaves Office, Again**\
-`Rubén Rocha Moya of Sinaloa reversed course a day after returning to office, amid widespread criticism, including from members of his own party.`\
-https://www.nytimes.com/2026/08/23/world/americas/governor-ruben-rocha-moya-sinaloa-mexico.html
 
