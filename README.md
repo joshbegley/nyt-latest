@@ -1,3 +1,7 @@
+**The Price of Bread**\
+`War, climate shocks and trade disputes are pounding the world’s breadbaskets and pushing the global food system into dangerous territory.`\
+https://www.nytimes.com/2026/08/23/world/wheat-price-iran-war-canada.html
+
 **Evacuations Ordered as Wildfire Approaches Reno, Nev.**\
 `A wildfire has prompted thousands of evacuations in part of Reno, Nev. The blaze, known as the Hawk fire, has grown to more than 10,000 acres since Saturday without any containment.`\
 https://www.nytimes.com/video/us/100000011108389/reno-wildfire-evacuation.html
@@ -15,7 +19,7 @@ https://www.nytimes.com/2026/08/23/arts/television/hayden-panettiere-brian-hicke
 https://www.nytimes.com/es/2026/08/23/espanol/america-latina/rocha-moya-licencia-sinaloa.html
 
 **Fire Near Reno, Nev., Prompts Evacuations of Homes and Hospitals**\
-`The Hawk fire has burned over 10,000 acres and is encroaching on the northern part of the city. Residents of 14,000 homes have been told to flee, and the governor issued a state of emergency.`\
+`The Hawk fire has burned over 13,000 acres and is encroaching on the northern part of the city. About 42,000 people are under formal evacuation orders and thousands more have been urged to flee.`\
 https://www.nytimes.com/2026/08/23/us/hawk-fire-reno-evacuations.html
 
 **‘Heat Dome’ to Bring Dangerous and Prolonged Heat Wave to Southern States**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/08/23/espanol/mundo/escape-ucrania-guerra.html
 **Reseña de ‘Relajadas y muy peligrosas’: un día de spa desenfrenado**\
 `Leslie Mann lidera a un cuarteto de amigas que buscan descanso, relajación y masajes sensuales en esta escandalosa comedia.`\
 https://www.nytimes.com/es/2026/08/23/espanol/cultura/resena-relajadas-y-muy-peligrosas.html
-
-**En estas 3 películas del verano, el sexo viene con guía**\
-`Gillian Anderson, Penélope Cruz y Olivia Wilde surgen como mentoras para aquellos que tropiezan ante el deseo.`\
-https://www.nytimes.com/es/2026/08/23/espanol/cultura/peliculas-sexo-invitacion-camp-miasma.html
 
