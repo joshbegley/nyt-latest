@@ -1,3 +1,11 @@
+**French Tourist Dies in Death Valley During 116-Degree Heat**\
+`The 68-year-old tourist and his companion were driving through Death Valley National Park on a remote road last week when their car got stuck in mud, officials said.`\
+https://www.nytimes.com/2026/08/23/us/french-tourist-dead-death-valley.html
+
+**Trump’s Summer of Fun Ends With an IndyCar Race on the Streets of D.C.**\
+`It was the final, major event planned for the nation’s 250th anniversary celebrations. The president took a lap.`\
+https://www.nytimes.com/2026/08/23/us/politics/trump-summer-car-race-dc.html
+
 **The Price of Bread**\
 `War, climate shocks and trade disputes are pounding the world’s breadbaskets and pushing the global food system into dangerous territory.`\
 https://www.nytimes.com/2026/08/23/world/wheat-price-iran-war-canada.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/23/us/nashville-bus-stop-benches.html
 **A Sensory-Friendly Boutique for Neurodivergent Brides**\
 `Inspired by her son, who was diagnosed with A.D.H.D. and autism, Beth Clark transformed her 6,500-square-foot bridal salon into a calming, sensory-friendly space for neurodivergent brides.`\
 https://www.nytimes.com/2026/08/23/style/sensory-friendly-neurodivergent-bridal-boutique.html
-
-**A los 77 años, caminó 15 km bajo cielos llenos de drones para escapar del ‘infierno’**\
-`Los equipos de rescate ya no entran en la ciudad de Limán, en el este de Ucrania, porque se considera demasiado peligrosa. La única salida es un aterrador viaje a pie.`\
-https://www.nytimes.com/es/2026/08/23/espanol/mundo/escape-ucrania-guerra.html
-
-**Reseña de ‘Relajadas y muy peligrosas’: un día de spa desenfrenado**\
-`Leslie Mann lidera a un cuarteto de amigas que buscan descanso, relajación y masajes sensuales en esta escandalosa comedia.`\
-https://www.nytimes.com/es/2026/08/23/espanol/cultura/resena-relajadas-y-muy-peligrosas.html
 
