@@ -1,3 +1,7 @@
+**Fire Near Reno, Nev., Prompts Evacuations of Homes and Hospitals**\
+`The Hawk fire has burned over 10,000 acres and is encroaching on the northern part of the city. Residents of 14,000 homes have been told to flee, and the governor issued a state of emergency.`\
+https://www.nytimes.com/2026/08/23/us/hawk-fire-reno-evacuations.html
+
 **Hayden Panettiere’s Final Battles: Mysterious Pain and Trouble With an Ex**\
 `In the year before the actress’s death, she struggled to walk at times and worked to disentangle herself from an ex-boyfriend who had abused her.`\
 https://www.nytimes.com/2026/08/23/arts/television/hayden-panettiere-brian-hickerson-boyfriend-book-tour.html
