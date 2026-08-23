@@ -1,3 +1,11 @@
+**A los 77 años, caminó 15 km bajo cielos llenos de drones para escapar del ‘infierno’**\
+`Los equipos de rescate ya no entran en la ciudad de Limán, en el este de Ucrania, porque se considera demasiado peligrosa. La única salida es un aterrador viaje a pie.`\
+https://www.nytimes.com/es/2026/08/23/espanol/mundo/escape-ucrania-guerra.html
+
+**Reseña de ‘Relajadas y muy peligrosas’: un día de spa desenfrenado**\
+`Leslie Mann lidera a un cuarteto de amigas que buscan descanso, relajación y masajes sensuales en esta escandalosa comedia.`\
+https://www.nytimes.com/es/2026/08/23/espanol/cultura/resena-relajadas-y-muy-peligrosas.html
+
 **En estas 3 películas del verano, el sexo viene con guía**\
 `Gillian Anderson, Penélope Cruz y Olivia Wilde surgen como mentoras para aquellos que tropiezan ante el deseo.`\
 https://www.nytimes.com/es/2026/08/23/espanol/cultura/peliculas-sexo-invitacion-camp-miasma.html
