@@ -50,7 +50,7 @@ https://www.nytimes.com/2026/08/23/crosswords/wordle-review-1892.html
 `As New Yorkers, we’re used to negotiating over tiny patches of space. But I didn’t expect that to continue on the beach.`\
 https://www.nytimes.com/2026/08/23/opinion/beach-battle-nemesis.html
 
-**Musical Gods Are False Idols**\
+**Push Your Musical Gods Off Their Pedestals**\
 `Musicians have a special tendency to elevate their teachers to divine status. It’s the worst thing a serious artist can do.`\
 https://www.nytimes.com/2026/08/23/opinion/music-conservatories-teachers-gods.html
 

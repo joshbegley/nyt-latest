@@ -1,3 +1,7 @@
+**Push Your Musical Gods Off Their Pedestals**\
+`Musicians have a special tendency to elevate their teachers to divine status. It’s the worst thing a serious artist can do.`\
+https://www.nytimes.com/2026/08/23/opinion/music-conservatories-teachers-gods.html
+
 **America’s Desert Metropolis Is on the Short List to Lose Water**\
 `Decades ago, Arizona won funding for a massive Colorado River project by agreeing to be first in line for cuts at a time of deep drought. The Trump administration says that time has come.`\
 https://www.nytimes.com/2026/08/23/us/arizona-canals-colorado-river.html
