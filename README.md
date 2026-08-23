@@ -1,3 +1,7 @@
+**Officials Investigating Postal Worker in Assault on a Peacock**\
+`A video appears to show a U.S. Postal Service worker striking a beloved all-white peacock named Sugar in a Pasadena, Calif., neighborhood.`\
+https://www.nytimes.com/2026/08/22/us/pasadena-peacock-attack-postal-worker.html
+
 **Violent Extremist Who Targeted Young People Online Is Sentenced to 77 Years**\
 `Kyle William Spitze was part of an online extremist movement that coerces young people to do self-harm, officials said. Two of his victims died by suicide.`\
 https://www.nytimes.com/2026/08/22/us/kyle-spitze-764-group-sentenced.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/22/business/bonds-borrowing-costs-economy.html
 **In Ohio, Haitians Feel Shaken by Ankle Monitors and Increased ICE Presence**\
 `The devices, which will make it easier for authorities to locate immigrants in Springfield if large-scale deportations begin, have intensified a sense of dread.`\
 https://www.nytimes.com/2026/08/22/us/haiti-tps-springfield-ankle-monitors.html
-
-**Priya Parker on the D.S.A.: ‘The Jilted Lovers of the Democrats’**\
-`On “The Interview,” the conflict resolution facilitator Priya Parker discussed political fighting and how organizations can find the common ground that prevents a breakup.`\
-https://www.nytimes.com/video/podcasts/100000011101290/priya-parker-on-the-dsa-the-jilted-lovers-of-the-democrats.html
 
