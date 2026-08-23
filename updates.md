@@ -1,3 +1,7 @@
+**Iran Warns Gulf States Not to Join Trump’s Economic War**\
+`Iran’s new hard-line national security adviser, Mohsen Rezaei, vowed to prevent “a single drop of oil” from leaving the region.`\
+https://www.nytimes.com/2026/08/23/world/europe/iran-economy-war-united-states.html
+
 **Harlem’s Muslim Map**\
 `How the neighborhood became a cultural and religious bouillabaisse.`\
 https://www.nytimes.com/2026/08/23/briefing/harlems-muslim-map.html

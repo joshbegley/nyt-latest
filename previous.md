@@ -1,3 +1,7 @@
+**Iran Warns Gulf States Not to Join Trump’s Economic War**\
+`Iran’s new hard-line national security adviser, Mohsen Rezaei, vowed to prevent “a single drop of oil” from leaving the region.`\
+https://www.nytimes.com/2026/08/23/world/europe/iran-economy-war-united-states.html
+
 **Harlem’s Muslim Map**\
 `How the neighborhood became a cultural and religious bouillabaisse.`\
 https://www.nytimes.com/2026/08/23/briefing/harlems-muslim-map.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/08/23/espanol/mundo/carney-canada-guerra-comerci
 **Jackie Kennedy Onassis’ Private Beach on Martha's Vineyard Is Open to All. But It’s a Hike.**\
 `Caroline Kennedy and her family sold more than 330 acres of coastal land on Martha’s Vineyard to conservation groups. It comes with some caveats.`\
 https://www.nytimes.com/2026/08/23/us/kennedy-estate-marthas-vineyard-conservation.html
-
-**Four Years Ago, a Crypto Boss Went Missing. Now His Successor Has.**\
-`The mysterious collapse of a European cryptocurrency exchange helps to explain why the industry hasn’t shaken off its reputation as a magnet for criminals.`\
-https://www.nytimes.com/2026/08/23/world/europe/poland-estonia-cryptocurrency.html
 
