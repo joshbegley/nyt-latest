@@ -1,3 +1,7 @@
+**3 Cyclists Die in One Week in Hit-and-Runs in New York City**\
+`Those who died were all on e-bikes. Seventeen cyclists have been killed so far this year, and advocate groups said the deaths should be a rallying cry for safety improvements.`\
+https://www.nytimes.com/2026/08/23/nyregion/nyc-cycling-bike-deaths.html
+
 **Plumbing Conduits**\
 `Steven Jopek’s debut puzzle won’t let you give up.`\
 https://www.nytimes.com/2026/08/23/crosswords/daily-puzzle-2026-08-24.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/23/us/politics/ohio-politics-voter-anger.html
 **Wildfires Are Turning Forests in the American West Into Shrubland**\
 `Towering woodlands in the West are being permanently replaced by tracts of spiky shrubs. Conditions “just aren’t normal anymore,” one researcher said.`\
 https://www.nytimes.com/2026/08/23/climate/wildfire-forest-loss-california-southwest.html
-
-**The U.S. Start-Up Making Low-Cost Interceptors for the Iran War**\
-`For Florida-based Powerus, becoming a global supplier of counterdrone technology has meant involving the Trumps, a golf course and a new way of doing business.`\
-https://www.nytimes.com/2026/08/23/business/powerus-counter-drone-iran-war.html
 
