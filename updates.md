@@ -1,3 +1,7 @@
+**A $4 Billion Plan to Fix Part of a Crumbling N.Y.C. Highway**\
+`Officials will announce Monday their plan to overhaul the section of the highway that belongs to New York City. The road needs quick repair to remain safe for driving.`\
+https://www.nytimes.com/2026/08/24/nyregion/bqe-highway-redesign-2030.html
+
 **California Cancels Talks With Paramount Over Warner Bros. Merger**\
 `The attorney general of California, one of 12 states suing to block the $111 billion deal, accused Paramount of leaking and misrepresenting earlier settlement discussions.`\
 https://www.nytimes.com/2026/08/24/us/california-bonta-paramount-warner-settlement-talks.html
