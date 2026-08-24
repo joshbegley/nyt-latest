@@ -1,3 +1,11 @@
+**Who Is Ahead in Arizona's Prop. 144 Voter ID and Citizenship Voting Amendment? Latest 2026 Polls.**\
+`Track the latest polls in the Arizona voter ID and citizenshipvoting requirements amendment , known as Prop. 144.`\
+https://www.nytimes.com/interactive/polls/arizona-voter-id-citizenship-amendment-polls-2026.html
+
+**Los aranceles de Trump a Canadá afectan productos inesperados**\
+`Boyas, bozales para perros, capas, banderas nacionales y “estatuillas de metales comunes” importados de Canadá ahora cuestan más en Estados Unidos.`\
+https://www.nytimes.com/es/2026/08/24/espanol/estados-unidos/canada-trump-aranceles.html
+
 **Iceland’s Murder Rate Is Off the Charts (in Its Books, at Least)**\
 `The Nordic nation has almost no homicides, yet crime fiction is its favorite literary genre. That means writers face a challenge: making murder feel believable.`\
 https://www.nytimes.com/2026/08/24/books/iceland-crime-fiction.html

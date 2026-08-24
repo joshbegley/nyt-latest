@@ -1,3 +1,7 @@
+**Who Is Ahead in Arizona's Prop. 144 Voter ID and Citizenship Voting Amendment? Latest 2026 Polls.**\
+`Track the latest polls in the Arizona voter ID and citizenshipvoting requirements amendment , known as Prop. 144.`\
+https://www.nytimes.com/interactive/polls/arizona-voter-id-citizenship-amendment-polls-2026.html
+
 **Who Is Ahead in Maryland's 1st Congressional District?**\
 `Track the latest polls in Maryland's 1st Congressional District.`\
 https://www.nytimes.com/interactive/polls/maryland-us-house-1-polls-2026.html
@@ -18,9 +22,9 @@ https://www.nytimes.com/es/2026/08/24/espanol/cultura/hayden-panettiere-brian-hi
 `Prime Minister Mark Carney’s decision to retaliate against U.S. tariffs has drawn praise from China, and exposed a rift in the Trump administration.`\
 https://www.nytimes.com/2026/08/24/business/dealbook/canada-carney-tariffs-trump.html
 
-**De bozales a banderas: los aranceles de Trump golpean productos inesperados**\
+**Los aranceles de Trump a Canadá afectan productos inesperados**\
 `Boyas, bozales para perros, capas, banderas nacionales y “estatuillas de metales comunes” importados de Canadá ahora cuestan más en Estados Unidos.`\
-https://www.nytimes.com/es/2026/08/24/espanol/estados-unidos/canada-bienes-tarifas-trump.html
+https://www.nytimes.com/es/2026/08/24/espanol/estados-unidos/canada-trump-aranceles.html
 
 **A Chinese Robot Beat Usain Bolt’s 100-Meter Record. Should We Be Impressed?**\
 `China’s humanoid robots are achieving superhuman feats of athleticism. But how that translates into the real world is still an open question, experts said.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/24/us/west-texas-border-wall-ruidosa-corazon-sag
 **What the Bartender Really Thinks About Your Spritz**\
 `You might expect the fizzy summer drinks to be a downer for the people who make them by the hundreds. But think again.`\
 https://www.nytimes.com/2026/08/24/dining/drinks/spritz-bartenders.html
-
-**Word of the Day: duress**\
-`This word has appeared in 69 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/08/24/learning/word-of-the-day-duress.html
 
