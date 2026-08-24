@@ -1,3 +1,7 @@
+**The Ruthless Efficiency of Ultrapotent Street Drugs**\
+`Five decades after the “war on drugs” sought to make substance abuse unaffordable, illicit drugs are cheaper and more powerful than ever. A visit to Baltimore shows why.`\
+https://www.nytimes.com/2026/08/24/science/drugs-opioids-fentanyl-baltimore.html
+
 **Las últimas batallas de Hayden Panettiere antes de morir**\
 `En sus últimos meses, la actriz enfrentaba un misterioso dolor físico y los estragos de una relación abusiva de la que intentaba escapar.`\
 https://www.nytimes.com/es/2026/08/24/espanol/cultura/hayden-panettiere-brian-hickerson-novio-maltrato-libro.html

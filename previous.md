@@ -1,3 +1,7 @@
+**The Ruthless Efficiency of Ultrapotent Street Drugs**\
+`Five decades after the “war on drugs” sought to make substance abuse unaffordable, illicit drugs are cheaper and more powerful than ever. A visit to Baltimore shows why.`\
+https://www.nytimes.com/2026/08/24/science/drugs-opioids-fentanyl-baltimore.html
+
 **Las últimas batallas de Hayden Panettiere antes de morir**\
 `En sus últimos meses, la actriz enfrentaba un misterioso dolor físico y los estragos de una relación abusiva de la que intentaba escapar.`\
 https://www.nytimes.com/es/2026/08/24/espanol/cultura/hayden-panettiere-brian-hickerson-novio-maltrato-libro.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/24/arts/dance/parkour-stairs-movement-acrobatics
 **How Should ‘Huckleberry Finn’ Be Taught?**\
 `I traveled around the country to find out if “Adventures of Huckleberry Finn” still has a place in the classroom.`\
 https://www.nytimes.com/2026/08/24/magazine/huckleberry-finn-teachers-students-schools.html
-
-**‘Point Break’: The Totally Tubular Ride With High-Voltage Buddy Chemistry**\
-`Keanu Reeves and Patrick Swayze were locked in as star-crossed rivals in Kathryn Bigelow’s 1991 adrenaline-fueled, utterly earnest surf action thriller.`\
-https://www.nytimes.com/2026/08/24/movies/point-break-keanu-reeves-patrick-swayze.html
 
