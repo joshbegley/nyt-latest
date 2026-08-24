@@ -114,7 +114,7 @@ https://www.nytimes.com/es/2026/08/24/espanol/estados-unidos/harry-meghan-fracas
 `El arte no predice el futuro, pero puede ser un sistema de alerta temprana.`\
 https://www.nytimes.com/es/2026/08/24/espanol/opinion/nueva-guerra-civil-eeuu-trump.html
 
-**Have Harry and Meghan Learned Their Lesson?**\
+**Don’t Harry and Meghan Know Better?**\
 `Given their past, what does a future in England hold for them?`\
 https://www.nytimes.com/2026/08/24/opinion/harry-meghan-return-england.html
 

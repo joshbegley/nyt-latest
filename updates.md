@@ -1,3 +1,7 @@
+**After Hugging Face Was Attacked By A.I. Agents, It Embarked on a Crusade**\
+`Hugging Face, a start-up that was breached by rogue bots from OpenAI, is using the hack to push for openness in A.I. development.`\
+https://www.nytimes.com/2026/08/24/technology/hugging-face-open-source-ai-attack.html
+
 **With Trump Against Him, Can Ralph Norman Win in South Carolina?**\
 `The ultraconservative congressman who has broken with the president on spending is hoping voters reward his experience, contrarian streak and all.`\
 https://www.nytimes.com/2026/08/24/us/politics/ralph-norman-trump-south-carolina.html
