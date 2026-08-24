@@ -1,3 +1,11 @@
+**With Trump Against Him, Can Ralph Norman Win in South Carolina?**\
+`The ultraconservative congressman who has broken with the president on spending is hoping voters reward his experience, contrarian streak and all.`\
+https://www.nytimes.com/2026/08/24/us/politics/ralph-norman-trump-south-carolina.html
+
+**Anatomy of an Autonomous Attack: 5 Alarming A.I. Capabilities**\
+`When OpenAI’s agents went rogue in July, they demonstrated ingenuity and drive beyond what many experts imagined — a dangerous harbinger of what such bots could do in the future.`\
+https://www.nytimes.com/2026/08/24/science/openai-huggingface-alarming-capabilities.html
+
 **Iran Pledges to Defy Trump’s Economic Sanctions**\
 `Analysts say Tehran could intensify the dispute militarily after attempts to squeeze its economy. An Iranian official vowed “not a single drop of oil” would leave the Gulf.`\
 https://www.nytimes.com/2026/08/24/world/middleeast/iran-sanctions-economy-us-trump.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/24/opinion/claude-pirated-books-ai.html
 **These Conservatives Want to Be Working Moms. The Manosphere Disapproves.**\
 `At a conservative center for women leaders, interns told stories about their lives. One said a male classmate told her, “I don’t know if women should be lawyers.”`\
 https://www.nytimes.com/2026/08/24/us/conservative-women-manosphere-disapproval.html
-
-**Why Are There Street Markings All Over New York City?**\
-`For the last year, Tom Wilson, a photographer, has been taking pictures of municipal street markings around New York City. On a recent walking tour, Michael Kimmelman, the architecture critic for The New York Times, helped Wilson decode the color-coded language that keeps the city running.`\
-https://www.nytimes.com/video/arts/100000011086535/why-are-there-street-markings-all-over-new-york-city.html
-
-**In West Texas, Trump’s Border Wall Collides With Latino History**\
-`A century ago, Mexican American families came together to build an adobe church near the border. Can its bell toll again as the wall expansion nears?`\
-https://www.nytimes.com/2026/08/24/us/west-texas-border-wall-ruidosa-corazon-sagrado.html
 

@@ -1,3 +1,7 @@
+**Iran Pledges to Defy Trump’s Economic Sanctions**\
+`Analysts say Tehran could intensify the dispute militarily after attempts to squeeze its economy. An Iranian official vowed “not a single drop of oil” would leave the Gulf.`\
+https://www.nytimes.com/2026/08/24/world/middleeast/iran-sanctions-economy-us-trump.html
+
 **Who Is Ahead in Arizona's Prop. 144 Voter ID and Citizenship Voting Amendment? Latest 2026 Polls.**\
 `Track the latest polls in the Arizona voter ID and citizenshipvoting requirements amendment , known as Prop. 144.`\
 https://www.nytimes.com/interactive/polls/arizona-voter-id-citizenship-amendment-polls-2026.html
