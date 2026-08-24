@@ -1,4 +1,4 @@
-**Canada Is Fighting Back on Trade. Will Others Follow?**\
+**Canada Is Retaliating Against Trump’s Tariffs. Will Others Follow?**\
 `Prime Minister Mark Carney’s decision to retaliate against U.S. tariffs has drawn praise from China, and exposed a rift in the Trump administration.`\
 https://www.nytimes.com/2026/08/24/business/dealbook/canada-carney-tariffs-trump.html
 
