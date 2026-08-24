@@ -1,3 +1,7 @@
+**A Chinese Robot Beat Usain Bolt’s 100-Meter Record. Should We Be Impressed?**\
+`China’s humanoid robots are achieving superhuman feats of athleticism. But how that translates into the real world is still an open question, experts said.`\
+https://www.nytimes.com/2026/08/24/world/asia/chinese-robot-100-meter-usain-bolt.html
+
 **Research Firm’s Founder Explains $6 Million Payment to Fired Forbes Editor**\
 `RJ Shook of Shook Research said he paid Randall Lane, the former top editor at Forbes, for “services and guidance” in partnering with Forbes and later selling his research firm.`\
 https://www.nytimes.com/2026/08/24/business/media/forbes-randall-lane-shook.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/24/opinion/weed-marijuna-children-regulation.htm
 **Are CBD Products Good for Your Pet?**\
 `Seems as though everyone and  dog is taking them.`\
 https://www.nytimes.com/2026/08/24/well/cbd-dogs-effectiveness-safety.html
-
-**Chinese Robot Beats Usain Bolt’s 100-Meter Record**\
-`A humanoid robot beat Usain Bolt’s 100-meter dash record at the World Humanoid Robot Games in Beijing. It ended up running into a wall to stop and was carried away on a stretcher.`\
-https://www.nytimes.com/video/world/asia/100000011108916/100-meter-dash-humanoid-robot-games-usain-bolt.html
 

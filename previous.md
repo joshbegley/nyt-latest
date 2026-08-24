@@ -1,3 +1,11 @@
+**Research Firm’s Founder Explains $6 Million Payment to Fired Forbes Editor**\
+`RJ Shook of Shook Research said he paid Randall Lane, the former top editor at Forbes, for “services and guidance” in partnering with Forbes and later selling his research firm.`\
+https://www.nytimes.com/2026/08/24/business/media/forbes-randall-lane-shook.html
+
+**Washington Post Ordered to Rehire Fired Columnist Karen Attiah**\
+`An arbitrator ordered the newspaper to reinstate Karen Attiah, who was fired after posting about “white men who espouse hatred and violence” following Charlie Kirk’s killing.`\
+https://www.nytimes.com/2026/08/24/business/washington-post-karen-attiah.html
+
 **El ascenso de Giorgia Meloni, de militante posfascista a figura clave de Europa**\
 `En una entrevista inusual, quien fuera una política marginada reflexiona sobre su ruta desde ‘el lado incómodo de la historia’ hasta el umbral de liderar el gobierno de posguerra más duradero de Italia.`\
 https://www.nytimes.com/es/2026/08/24/espanol/mundo/giorgia-meloni-italia-entrevista.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/24/well/cbd-dogs-effectiveness-safety.html
 **Chinese Robot Beats Usain Bolt’s 100-Meter Record**\
 `A humanoid robot beat Usain Bolt’s 100-meter dash record at the World Humanoid Robot Games in Beijing. It ended up running into a wall to stop and was carried away on a stretcher.`\
 https://www.nytimes.com/video/world/asia/100000011108916/100-meter-dash-humanoid-robot-games-usain-bolt.html
-
-**As Democrats Struggle in Some Western States, Independents See an Opening**\
-`From South Dakota to Alaska, independents are challenging incumbent Republicans and eschewing a Democratic label that Western voters find toxic.`\
-https://www.nytimes.com/2026/08/24/us/politics/independent-candidates-challenge-republicans.html
-
-**Book Review: ‘The Time Tax,’ by Annie Lowrey**\
-`In “The Time Tax,” the Atlantic journalist Annie Lowrey takes aim at bureaucratic red tape.`\
-https://www.nytimes.com/2026/08/24/books/review/the-time-tax-annie-lowrey.html
 
