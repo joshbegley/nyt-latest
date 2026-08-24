@@ -1,3 +1,11 @@
+**Judge Orders U.S. to Return Deported Man at Risk of Torture**\
+`The Mexican man was sent to his home country after assisting federal law enforcement by testifying against Mexican drug cartels.`\
+https://www.nytimes.com/2026/08/24/us/politics/mexico-man-deported-torture.html
+
+**Before and After Images Show How Wildfire Near Reno Leveled Homes**\
+`The Hawk wildfire in Nevada has burned more than 15,000 acres, including these homes in a Reno neighborhood. About 45,000 people were evacuated, and an additional 40,000 were warned that they might need to leave at a moment’s notice.`\
+https://www.nytimes.com/video/us/100000011109787/nevada-wildfires-before-after-reno.html
+
 **OpenAI Is Adding Safeguards. Can We Trust Their Motives?**\
 `OpenAI announced a plan which could set a precedent for other A.I. companies to prioritize safety over progress. Is this a strategic move to win back public favor, after an A.I. model went rogue last month? Or are they purely concerned with safety?`\
 https://www.nytimes.com/video/podcasts/100000011110496/openai-is-adding-safeguards-can-we-trust-their-motives.html

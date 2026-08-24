@@ -1,3 +1,11 @@
+**Judge Orders U.S. to Return Deported Man at Risk of Torture**\
+`The Mexican man was sent to his home country after assisting federal law enforcement by testifying against Mexican drug cartels.`\
+https://www.nytimes.com/2026/08/24/us/politics/mexico-man-deported-torture.html
+
+**Before and After Images Show How Wildfire Near Reno Leveled Homes**\
+`The Hawk wildfire in Nevada has burned more than 15,000 acres, including these homes in a Reno neighborhood. About 45,000 people were evacuated, and an additional 40,000 were warned that they might need to leave at a moment’s notice.`\
+https://www.nytimes.com/video/us/100000011109787/nevada-wildfires-before-after-reno.html
+
 **OpenAI Is Adding Safeguards. Can We Trust Their Motives?**\
 `OpenAI announced a plan which could set a precedent for other A.I. companies to prioritize safety over progress. Is this a strategic move to win back public favor, after an A.I. model went rogue last month? Or are they purely concerned with safety?`\
 https://www.nytimes.com/video/podcasts/100000011110496/openai-is-adding-safeguards-can-we-trust-their-motives.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/24/business/dealbook/canada-carney-tariffs-trump
 **Los aranceles de Trump a Canadá afectan productos inesperados**\
 `Boyas, bozales para perros, capas, banderas nacionales y “estatuillas de metales comunes” importados de Canadá ahora cuestan más en Estados Unidos.`\
 https://www.nytimes.com/es/2026/08/24/espanol/estados-unidos/canada-trump-aranceles.html
-
-**A Chinese Robot Beat Usain Bolt’s 100-Meter Record. Should We Be Impressed?**\
-`China’s humanoid robots are achieving superhuman feats of athleticism. But how that translates into the real world is still an open question, experts said.`\
-https://www.nytimes.com/2026/08/24/world/asia/chinese-robot-100-meter-usain-bolt.html
-
-**Research Firm’s Founder Explains $6 Million Payment to Fired Forbes Editor**\
-`RJ Shook of Shook Research said he paid Randall Lane, the former top editor at Forbes, for “services and guidance” in partnering with Forbes and later selling his research firm.`\
-https://www.nytimes.com/2026/08/24/business/media/forbes-randall-lane-shook.html
 
