@@ -1,3 +1,11 @@
+**El ejército de EE. UU. ataca a otra embarcación en el Pacífico y mata a 2 personas**\
+`Al menos 223 personas han muerto desde que la campaña de Estados Unidos contra embarcaciones comenzó hace casi un año.`\
+https://www.nytimes.com/es/2026/08/24/espanol/estados-unidos/ejercito-ataque-barco-pacifico.html
+
+**Firefighters Grapple With Nevada Blaze That Drove Thousands From Homes**\
+`The Hawk fire has burned more than 15,000 acres since it began on Saturday in the foothills of the Sierra Nevada near Reno.`\
+https://www.nytimes.com/2026/08/24/us/reno-nevada-hawk-fire-wildfire.html
+
 **A Very Chill Chili Bean Salad**\
 `Hetty Lui McKinnon’s five-star no-cook chili bean salad is perfect for when you want chili, but you don’t want to turn on the stove.`\
 https://www.nytimes.com/2026/08/24/dining/a-very-chill-chili-bean-salad.html
