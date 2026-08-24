@@ -1,3 +1,7 @@
+**S.E.C. Investigating Near-Implosion of A.I. Hedge Fund**\
+`Regulators sent subpoenas to major Wall Street banks seeking information about the trading of Situational Awareness, three people briefed on the outreach said.`\
+https://www.nytimes.com/2026/08/24/business/sec-situational-awareness-investigation.html
+
 **What’s Behind the U.S. Treasury’s Latest Attempt to Lower Interest Rates**\
 `The Treasury Department said it could begin to buy back more of its debt, and bond market investors are assessing the potential effects on borrowing costs.`\
 https://www.nytimes.com/2026/08/24/business/treasury-bond-buybacks-impact.html
@@ -35,7 +39,7 @@ https://www.nytimes.com/2026/08/24/us/uss-lincoln-sailor-father-arrested-immigra
 https://www.nytimes.com/2026/08/24/us/politics/trump-graham-south-carolina-endorsement.html
 
 **Man Who Told of a Childhood With Wolves Dies at 80**\
-`Marcos Rodríguez Pantoja’s improbably story of a wild youth became the subject of a study, and inspired a novel and film.`\
+`Marcos Rodríguez Pantoja’s improbable story of a wild youth became the subject of a study, and inspired a novel and film.`\
 https://www.nytimes.com/2026/08/24/world/europe/spain-wolf-boy-dead.html
 
 **Can You Identify These Current Best Sellers?**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/24/podcasts/the-daily/natalie-harps-devotion-to-
 **Canada Is ‘at War’ With U.S. Over Tariffs, and U.S.P.S. Publishes Plan to Restrict Ballots**\
 `Plus, what it’s like to live next to a roller coaster.`\
 https://www.nytimes.com/2026/08/24/podcasts/the-headlines/canada-tariffs-usps-ballots.html
-
-**NYT Connections Answers for August 25, 2026**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, Aug. 25, 2026.`\
-https://www.nytimes.com/2026/08/24/crosswords/connections-companion-1171.html
 
