@@ -1,8 +1,12 @@
+**What You Should Know About College Admissions Changes**\
+`After loosening requirements during the Covid era, some schools are shaking up admissions again, facing pressure from the Trump administration, A.I. and even their own professors.`\
+https://www.nytimes.com/2026/08/24/us/college-admissions-changes.html
+
 **El ejército de EE. UU. ataca a otra embarcación en el Pacífico y mata a 2 personas**\
 `Al menos 223 personas han muerto desde que la campaña de Estados Unidos contra embarcaciones comenzó hace casi un año.`\
 https://www.nytimes.com/es/2026/08/24/espanol/estados-unidos/ejercito-ataque-barco-pacifico.html
 
-**Firefighters Grapple With Nevada Blaze That Drove Thousands From Homes**\
+**Fast-Moving Reno Wildfire Forces Thousands to Evacuate in Nevada**\
 `The Hawk fire has burned more than 15,000 acres since it began on Saturday in the foothills of the Sierra Nevada near Reno.`\
 https://www.nytimes.com/2026/08/24/us/reno-nevada-hawk-fire-wildfire.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/24/us/politics/farmers-federal-workers-exodus.ht
 **Some of Russia’s A.I. Drones Are Powered by Nvidia Microcomputers, Ukrainian Officials Say**\
 `The tech giant says it does not sell the devices in Russia, but they are widely available on resale markets. When purchased that way, they are virtually impossible to track.`\
 https://www.nytimes.com/2026/08/24/world/europe/ukraine-war-nvidia-ai-autonomous-drones.html
-
-**Can ‘Lymphatic Workouts’ Really Help With Bloating or Swelling?**\
-`Some influencers promote specific exercise routines, like walking or jumping, to reduce puffiness. Here’s what to know.`\
-https://www.nytimes.com/2026/08/24/well/move/lymphatic-walking-jumping-workouts.html
 

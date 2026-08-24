@@ -1,3 +1,11 @@
+**What You Should Know About College Admissions Changes**\
+`After loosening requirements during the Covid era, some schools are shaking up admissions again, facing pressure from the Trump administration, A.I. and even their own professors.`\
+https://www.nytimes.com/2026/08/24/us/college-admissions-changes.html
+
+**Fast-Moving Reno Wildfire Forces Thousands to Evacuate in Nevada**\
+`The Hawk fire has burned more than 15,000 acres since it began on Saturday in the foothills of the Sierra Nevada near Reno.`\
+https://www.nytimes.com/2026/08/24/us/reno-nevada-hawk-fire-wildfire.html
+
 **El ejército de EE. UU. ataca a otra embarcación en el Pacífico y mata a 2 personas**\
 `Al menos 223 personas han muerto desde que la campaña de Estados Unidos contra embarcaciones comenzó hace casi un año.`\
 https://www.nytimes.com/es/2026/08/24/espanol/estados-unidos/ejercito-ataque-barco-pacifico.html
