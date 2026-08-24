@@ -1,3 +1,7 @@
+**A Chinese Robot Beat Usain Bolt’s 100-Meter Record. Should We Be Impressed?**\
+`China’s humanoid robots are achieving superhuman feats of athleticism. But how that translates into the real world is still an open question, experts said.`\
+https://www.nytimes.com/2026/08/24/world/asia/chinese-robot-100-meter-usain-bolt.html
+
 **Research Firm’s Founder Explains $6 Million Payment to Fired Forbes Editor**\
 `RJ Shook of Shook Research said he paid Randall Lane, the former top editor at Forbes, for “services and guidance” in partnering with Forbes and later selling his research firm.`\
 https://www.nytimes.com/2026/08/24/business/media/forbes-randall-lane-shook.html
