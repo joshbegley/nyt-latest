@@ -1,3 +1,7 @@
+**El ascenso de Giorgia Meloni, de militante posfascista a figura clave de Europa**\
+`En una entrevista inusual, quien fuera una política marginada reflexiona sobre su ruta desde ‘el lado incómodo de la historia’ hasta el umbral de liderar el gobierno de posguerra más duradero de Italia.`\
+https://www.nytimes.com/es/2026/08/24/espanol/mundo/giorgia-meloni-italia-entrevista.html
+
 **Oil Prices Fall Ahead of U.S. Vow to Intensify Economic War Against Iran**\
 `Treasury Secretary Scott Bessent is expected to announce an escalation of sanctions aimed at further isolating Iranian trade.`\
 https://www.nytimes.com/2026/08/24/business/oil-prices-bonds-stocks.html

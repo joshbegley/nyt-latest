@@ -1,3 +1,7 @@
+**El ascenso de Giorgia Meloni, de militante posfascista a figura clave de Europa**\
+`En una entrevista inusual, quien fuera una política marginada reflexiona sobre su ruta desde ‘el lado incómodo de la historia’ hasta el umbral de liderar el gobierno de posguerra más duradero de Italia.`\
+https://www.nytimes.com/es/2026/08/24/espanol/mundo/giorgia-meloni-italia-entrevista.html
+
 **Oil Prices Fall Ahead of U.S. Vow to Intensify Economic War Against Iran**\
 `Treasury Secretary Scott Bessent is expected to announce an escalation of sanctions aimed at further isolating Iranian trade.`\
 https://www.nytimes.com/2026/08/24/business/oil-prices-bonds-stocks.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/24/us/politics/independent-candidates-challenge-
 **Book Review: ‘The Time Tax,’ by Annie Lowrey**\
 `In “The Time Tax,” the Atlantic journalist Annie Lowrey takes aim at bureaucratic red tape.`\
 https://www.nytimes.com/2026/08/24/books/review/the-time-tax-annie-lowrey.html
-
-**Book Review: ‘Heart of Glass,’ by Jennifer Hillier**\
-`In Jennifer Hillier’s new book, a woman must confront her traumatic past after a body washes up on the shores of her seaside town.`\
-https://www.nytimes.com/2026/08/24/books/review/heart-of-glass-jennifer-hillier.html
 
