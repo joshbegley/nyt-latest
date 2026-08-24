@@ -1,3 +1,11 @@
+**OpenAI Is Adding Safeguards. Can We Trust Their Motives?**\
+`OpenAI announced a plan which could set a precedent for other A.I. companies to prioritize safety over progress. Is this a strategic move to win back public favor, after an A.I. model went rogue last month? Or are they purely concerned with safety?`\
+https://www.nytimes.com/video/podcasts/100000011110496/openai-is-adding-safeguards-can-we-trust-their-motives.html
+
+**A New Effort to Punish Iran**\
+`The Trump administration says it will try to cut the country off from the global economy by targeting its trading partners.`\
+https://www.nytimes.com/2026/08/24/world/iran-sanctions-threat-economy-ukraine.html
+
 **Nevada Sues Trump Administration Over Colorado River Cuts**\
 `The state seeks to block plans for significant water use restrictions over the next decade.`\
 https://www.nytimes.com/2026/08/24/climate/nevada-sues-colorado-river-cuts.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/24/world/asia/chinese-robot-100-meter-usain-bolt
 **Research Firm’s Founder Explains $6 Million Payment to Fired Forbes Editor**\
 `RJ Shook of Shook Research said he paid Randall Lane, the former top editor at Forbes, for “services and guidance” in partnering with Forbes and later selling his research firm.`\
 https://www.nytimes.com/2026/08/24/business/media/forbes-randall-lane-shook.html
-
-**Washington Post Ordered to Rehire Fired Columnist Karen Attiah**\
-`An arbitrator ordered the newspaper to reinstate Karen Attiah, who was fired after posting about “white men who espouse hatred and violence” following Charlie Kirk’s killing.`\
-https://www.nytimes.com/2026/08/24/business/washington-post-karen-attiah.html
-
-**El ascenso de Giorgia Meloni, de militante posfascista a figura clave de Europa**\
-`En una entrevista inusual, quien fuera una política marginada reflexiona sobre su ruta desde ‘el lado incómodo de la historia’ hasta el umbral de liderar el gobierno de posguerra más duradero de Italia.`\
-https://www.nytimes.com/es/2026/08/24/espanol/mundo/giorgia-meloni-italia-entrevista.html
 
