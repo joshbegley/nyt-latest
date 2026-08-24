@@ -1,3 +1,7 @@
+**Don’t Harry and Meghan Know Better?**\
+`Given their past, what does a future in England hold for them?`\
+https://www.nytimes.com/2026/08/24/opinion/harry-meghan-return-england.html
+
 **After Hugging Face Was Attacked By A.I. Agents, It Embarked on a Crusade**\
 `Hugging Face, a start-up that was breached by rogue bots from OpenAI, is using the hack to push for openness in A.I. development.`\
 https://www.nytimes.com/2026/08/24/technology/hugging-face-open-source-ai-attack.html
