@@ -1,3 +1,7 @@
+**After Hugging Face Was Attacked By A.I. Agents, It Embarked on a Crusade**\
+`Hugging Face, a start-up that was breached by rogue bots from OpenAI, is using the hack to push for openness in A.I. development.`\
+https://www.nytimes.com/2026/08/24/technology/hugging-face-open-source-ai-attack.html
+
 **With Trump Against Him, Can Ralph Norman Win in South Carolina?**\
 `The ultraconservative congressman who has broken with the president on spending is hoping voters reward his experience, contrarian streak and all.`\
 https://www.nytimes.com/2026/08/24/us/politics/ralph-norman-trump-south-carolina.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/24/arts/design/street-symbols-michael-kimmelman.
 **Even Millions of Stolen Books Cannot Satisfy Ravenous A.I. Chatbots**\
 `The model collapse scenario threatens to wipe out whatever gains chatbots like Claude enjoyed from being trained on books in the first place.`\
 https://www.nytimes.com/2026/08/24/opinion/claude-pirated-books-ai.html
-
-**These Conservatives Want to Be Working Moms. The Manosphere Disapproves.**\
-`At a conservative center for women leaders, interns told stories about their lives. One said a male classmate told her, “I don’t know if women should be lawyers.”`\
-https://www.nytimes.com/2026/08/24/us/conservative-women-manosphere-disapproval.html
 
