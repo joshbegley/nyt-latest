@@ -2,7 +2,7 @@
 `Al menos 223 personas han muerto desde que la campaña de Estados Unidos contra embarcaciones comenzó hace casi un año.`\
 https://www.nytimes.com/es/2026/08/24/espanol/estados-unidos/ejercito-ataque-barco-pacifico.html
 
-**Firefighters Grapple With Nevada Blaze That Drove Thousands From Homes**\
+**Fast-Moving Reno Wildfire Forces Thousands to Evacuate in Nevada**\
 `The Hawk fire has burned more than 15,000 acres since it began on Saturday in the foothills of the Sierra Nevada near Reno.`\
 https://www.nytimes.com/2026/08/24/us/reno-nevada-hawk-fire-wildfire.html
 
