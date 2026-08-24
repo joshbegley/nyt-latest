@@ -1,4 +1,4 @@
-**Trump Lays It on the Line for Darline Graham**\
+**Trump Lays It on the Line for Darline Graham Ahead of South Carolina Runoff**\
 `The president rallied for the sister of Lindsey Graham in her Senate run in South Carolina and pressured other allies to endorse her. A super PAC run by his advisers weighed in. Will it be enough?`\
 https://www.nytimes.com/2026/08/24/us/politics/trump-graham-south-carolina-endorsement.html
 

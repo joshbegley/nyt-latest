@@ -1,3 +1,7 @@
+**Trump Lays It on the Line for Darline Graham Ahead of South Carolina Runoff**\
+`The president rallied for the sister of Lindsey Graham in her Senate run in South Carolina and pressured other allies to endorse her. A super PAC run by his advisers weighed in. Will it be enough?`\
+https://www.nytimes.com/2026/08/24/us/politics/trump-graham-south-carolina-endorsement.html
+
 **UK Prime Minister Burnham Arrives in Ukraine as Russia Amps Up Warnings**\
 `In his first foreign trip since taking office, the British prime minister pledged to stand by Kyiv despite new warnings of potential consequences.`\
 https://www.nytimes.com/2026/08/24/world/europe/uk-andy-burnham-ukraine-russia.html
