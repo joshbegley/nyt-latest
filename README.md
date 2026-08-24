@@ -1,3 +1,7 @@
+**Forensic Scientists Use ‘Breakthrough’ Method to Identify 9/11 Victim**\
+`DNA analysts at the New York City medical examiner’s office partnered with a squad of local detectives skilled at genealogical research.`\
+https://www.nytimes.com/2026/08/24/nyregion/dna-genealogy-science-victim-identification.html
+
 **Trump Administration Announces New Series of Sanctions Against Iran**\
 `Scott Bessent, secretary of the Treasury, unveiled what the administration describes as its most comprehensive assault to date on Iran’s economy. The plan, called Operation Economic Outcast, would sanction more than 60 entities that aid Iran’s nuclear and missile programs.`\
 https://www.nytimes.com/video/us/politics/100000011110093/bessent-iran-nuclear-sanctions.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/24/dining/a-very-chill-chili-bean-salad.html
 **Big Food Is Winning the War for America’s Diet**\
 `The federal government was supposed to release a definition of ultraprocessed foods. What happened?`\
 https://www.nytimes.com/2026/08/24/opinion/ultraprocessed-food-industry-maha.html
-
-**Nevada Wildfire Forces Thousands to Evacuate Reno Area**\
-`Officials in Nevada formally ordered about 42,000 people to evacuate the Reno area as a growing wildfire continued to approach the city.`\
-https://www.nytimes.com/video/us/100000011109183/reno-wildfire-evacutions.html
 
