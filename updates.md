@@ -1,3 +1,11 @@
+**Laptop Fire on American Airlines Flight Injures at Least One Passenger**\
+`Flight attendants used a fireproof bag to contain the computer after its lithium battery began smoking. One passenger was treated on the ground for injuries.`\
+https://www.nytimes.com/2026/08/24/travel/american-airlines-laptop-fire.html
+
+**Canadá le dijo no a Trump. Y habrá consecuencias en el mundo**\
+`Mark Carney elige el camino difícil, pero hizo aquello para lo que los canadienses lo eligieron: defender a Canadá.`\
+https://www.nytimes.com/es/2026/08/24/espanol/opinion/canada-trump-aranceles-guerra-economia.html
+
 **Muere el ‘niño lobo de Sierra Morena’ a los 80 años**\
 `La increíble historia de la infancia salvaje de Marcos Rodríguez Pantoja se convirtió en objeto de un estudio, además de inspirar una novela y una película.`\
 https://www.nytimes.com/es/2026/08/24/espanol/mundo/muere-nino-lobo-sierra-morena.html
