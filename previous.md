@@ -183,7 +183,7 @@ https://www.nytimes.com/2026/08/24/world/middleeast/syria-israel-talks-us-jordan
 https://www.nytimes.com/2026/08/24/world/asia/us-south-korea-military-drills-iran.html
 
 **UK Prime Minister Burnham Arrives in Ukraine as Russia Amps Up Warnings**\
-`In his first foreign trip since taking office, the British Prime Minister pledged to stand by Kyiv despite new warnings of potential consequences.`\
+`In his first foreign trip since taking office, the British prime minister pledged to stand by Kyiv despite new warnings of potential consequences.`\
 https://www.nytimes.com/2026/08/24/world/europe/uk-andy-burnham-ukraine-russia.html
 
 **¿Un nuevo auge petrolero en Argentina puede salvar su economía?**\
