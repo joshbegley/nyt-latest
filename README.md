@@ -1,3 +1,7 @@
+**U.S. Marines Cancel Drill With South Korea, Citing Iran War Demands**\
+`The move to call off the high-profile event was communicated in June, South Korea said. President Trump shortened another joint military exercise earlier this month.`\
+https://www.nytimes.com/2026/08/24/world/asia/us-south-korea-military-drills-iran.html
+
 **UK Prime Minister Burnham Arrives in Ukraine as Russia Amps Up Warnings**\
 `In his first foreign trip since taking office, Prime Minister Andy Burnham affirmed support for Kyiv despite new warnings from Moscow of consequences for doing so.`\
 https://www.nytimes.com/2026/08/24/world/europe/uk-andy-burnham-ukraine-russia.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/24/nyregion/the-woman-guiding-tourists-through-n
 **NYT Spelling Bee Answers for August 24, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/08/24/crosswords/spelling-bee-forum.html
-
-**Mark Carney Did What Canadians Elected Him to Do**\
-`Mark Carney has chosen suffering, but he did what Canadians elected him to do.`\
-https://www.nytimes.com/2026/08/24/opinion/mark-carney-tariffs-canada-america.html
 

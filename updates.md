@@ -1,3 +1,7 @@
+**Chinese Robot Breaks Usain Bolt’s 100-Meter Record**\
+`A humanoid robot beat Usain Bolt’s 100-meter dash record at the World Humanoid Robot Games in Beijing. It ended up running into a wall to stop and was carried away on a stretcher.`\
+https://www.nytimes.com/video/world/asia/100000011108916/100-meter-dash-humanoid-robot-games-usain-bolt.html
+
 **UK Prime Minister Burnham Arrives in Ukraine as Russia Amps Up Warnings**\
 `In his first foreign trip since taking office, Prime Minister Andy Burnham affirmed support for Kyiv despite new warnings from Moscow of consequences for doing so.`\
 https://www.nytimes.com/2026/08/24/world/europe/uk-andy-burnham-ukraine-russia.html
