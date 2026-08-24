@@ -1,3 +1,7 @@
+**U.S. Military Kills 2 People in Attack on Boat in Pacific**\
+`The United States has killed at least 223 people since its campaign of boat strikes began nearly a year ago.`\
+https://www.nytimes.com/2026/08/24/us/politics/military-boat-strike.html
+
 **The Ruthless Efficiency of Ultrapotent Street Drugs**\
 `Five decades after the “war on drugs” sought to make substance abuse unaffordable, illicit drugs are cheaper and more powerful than ever. A visit to Baltimore shows why.`\
 https://www.nytimes.com/2026/08/24/science/drugs-opioids-fentanyl-baltimore.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/24/learning/word-of-the-day-duress.html
 **The Dancers Turning Stairs and Fences Into Their Stage**\
 `Fluency in a variety of movement techniques — street dance, acrobatics, parkour — allows site-responsive dancers to shape seemingly unbounded interactions with their environments.`\
 https://www.nytimes.com/2026/08/24/arts/dance/parkour-stairs-movement-acrobatics.html
-
-**How Should ‘Huckleberry Finn’ Be Taught?**\
-`I traveled around the country to find out if “Adventures of Huckleberry Finn” still has a place in the classroom.`\
-https://www.nytimes.com/2026/08/24/magazine/huckleberry-finn-teachers-students-schools.html
 
