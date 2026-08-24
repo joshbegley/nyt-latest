@@ -1,3 +1,19 @@
+**OpenAI Is Adding Safeguards. Can We Trust Their Motives?**\
+`OpenAI announced a plan which could set a precedent for other A.I. companies to prioritize safety over progress. Is this a strategic move to win back public favor, after an A.I. model went rogue last month? Or are they purely concerned with safety?`\
+https://www.nytimes.com/video/podcasts/100000011110496/openai-is-adding-safeguards-can-we-trust-their-motives.html
+
+**A New Effort to Punish Iran**\
+`The Trump administration says it will try to cut the country off from the global economy by targeting its trading partners.`\
+https://www.nytimes.com/2026/08/24/world/iran-sanctions-threat-economy-ukraine.html
+
+**Nevada Sues Trump Administration Over Colorado River Cuts**\
+`The state seeks to block plans for significant water use restrictions over the next decade.`\
+https://www.nytimes.com/2026/08/24/climate/nevada-sues-colorado-river-cuts.html
+
+**The Backlash Against Meta’s Smart Glasses Continues to Grow**\
+`ICE just barred its workers from wearing Meta’s smart glasses on the job. On the “Hard Fork” podcast, the hosts Kevin Roose and Casey Newton discuss how quickly public perception is turning against Meta’s Ray-Ban smart glasses.`\
+https://www.nytimes.com/video/podcasts/100000011110305/the-backlash-against-metas-smart-glasses-continues-to-grow.html
+
 **Trump Lays It on the Line for Darline Graham Ahead of South Carolina Runoff**\
 `The president rallied for the sister of Lindsey Graham in her South Carolina Senate run and pressured allies to endorse her. A super PAC run by his advisers has spent nearly $800,000 on her campaign. Will it be enough?`\
 https://www.nytimes.com/2026/08/24/us/politics/trump-graham-south-carolina-endorsement.html
