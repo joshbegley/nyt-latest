@@ -1,3 +1,7 @@
+**Muere el ‘niño lobo de Sierra Morena’ a los 80 años**\
+`La increíble historia de la infancia salvaje de Marcos Rodríguez Pantoja se convirtió en objeto de un estudio, además de inspirar una novela y una película.`\
+https://www.nytimes.com/es/2026/08/24/espanol/mundo/muere-nino-lobo-sierra-morena.html
+
 **The Washington Post deberá recontratar a una columnista despedida**\
 `Una árbitra ordenó al periódico restituir a Karen Attiah, quien fue despedida por sus publicaciones en redes sociales sobre el asesinato de Charlie Kirk.`\
 https://www.nytimes.com/es/2026/08/24/espanol/negocios/washington-post-columnista-despedida-charlie-kirk.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/24/crosswords/strands-sidekick-905.html
 **Syria and Israel Hold U.S.-Mediated Talks to Try to Ease Tensions**\
 `The discussions, reported by the Syrian state news agency, came days after Israel struck an air base in Syria’s northwest, the latest in a series of military interventions.`\
 https://www.nytimes.com/2026/08/24/world/middleeast/syria-israel-talks-us-jordan.html
-
-**U.S. Marines Cancel Drill With South Korea, Citing Iran War Demands**\
-`The move to call off the high-profile event was communicated in June, South Korea said. President Trump shortened another joint military exercise earlier this month.`\
-https://www.nytimes.com/2026/08/24/world/asia/us-south-korea-military-drills-iran.html
 
