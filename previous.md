@@ -1,3 +1,11 @@
+**Oil Prices Fall Ahead of U.S. Vow to Intensify Economic War Against Iran**\
+`Treasury Secretary Scott Bessent is expected to announce an escalation of sanctions aimed at further isolating Iranian trade.`\
+https://www.nytimes.com/2026/08/24/business/oil-prices-bonds-stocks.html
+
+**Should We Read ‘Huck Finn’?**\
+`One reporter traveled to understand how it is taught now.`\
+https://www.nytimes.com/2026/08/24/briefing/should-we-read-huck-finn.html
+
 **Natalie Harp’s Devotion to Trump**\
 `One of the president’s closest aides seems to have limitless access to him and the information he receives.`\
 https://www.nytimes.com/2026/08/24/podcasts/the-daily/natalie-harps-devotion-to-trump.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/24/books/review/the-time-tax-annie-lowrey.html
 **Book Review: ‘Heart of Glass,’ by Jennifer Hillier**\
 `In Jennifer Hillier’s new book, a woman must confront her traumatic past after a body washes up on the shores of her seaside town.`\
 https://www.nytimes.com/2026/08/24/books/review/heart-of-glass-jennifer-hillier.html
-
-**Why Getting High Has Only Gotten Cheaper**\
-`The “war on drugs” sought to reduce substance abuse by driving up prices and lowering demand. Today, street drugs are less expensive and more dangerous than ever.`\
-https://www.nytimes.com/2026/08/24/science/opioids-drugs-economics.html
-
-**How Argentina’s Oil Boom Is Changing Patagonia**\
-`Our correspondent Emma Bubola travels to northwest Patagonia, the epicenter of an oil boom that Argentina hopes will revolutionize its economy.`\
-https://www.nytimes.com/video/world/americas/100000010986029/how-argentinas-oil-boom-is-changing-patagonia.html
 

@@ -1,3 +1,11 @@
+**Oil Prices Fall Ahead of U.S. Vow to Intensify Economic War Against Iran**\
+`Treasury Secretary Scott Bessent is expected to announce an escalation of sanctions aimed at further isolating Iranian trade.`\
+https://www.nytimes.com/2026/08/24/business/oil-prices-bonds-stocks.html
+
+**Should We Read ‘Huck Finn’?**\
+`One reporter traveled to understand how it is taught now.`\
+https://www.nytimes.com/2026/08/24/briefing/should-we-read-huck-finn.html
+
 **Natalie Harp’s Devotion to Trump**\
 `One of the president’s closest aides seems to have limitless access to him and the information he receives.`\
 https://www.nytimes.com/2026/08/24/podcasts/the-daily/natalie-harps-devotion-to-trump.html
