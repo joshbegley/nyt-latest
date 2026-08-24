@@ -1,3 +1,7 @@
+**Opponents Sue to Stop Mamdani’s City-Owned Grocery Store Plan**\
+`A business group filed a lawsuit to stop New York City’s plan to open the five grocery stores, a campaign promise of Mayor Zohran Mamdani’s, arguing that it would hurt smaller stores.`\
+https://www.nytimes.com/2026/08/24/nyregion/mamdani-nyc-grocery-store-lawsuit.html
+
 **A.M. Gittlitz Roots for the Mets (and a Better World)**\
 `Through another lost season, A.M. Gittlitz, the author of a new history of New York’s underdog baseball team, is trying to hold on to hope.`\
 https://www.nytimes.com/2026/08/24/style/gittlitz-new-york-mets-metropolitans-book.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/24/opinion/college-ai.html
 **How a Retired Performer and Part-Time Dog Sitter Lives on $31,500**\
 `After decades living in the East Village of Manhattan, Edward Arrocha is adapting to aging in the city alongside his Chihuahua sidekick, Tiny Girl.`\
 https://www.nytimes.com/interactive/2026/08/24/nyregion/nyc-budgeting-affordability-arrocha.html
-
-**A Park Slope Carriage House Filled With Sunlight**\
-`A couple looking to avoid dark and stuffy brownstones found all the natural light they desired in a converted carriage house.`\
-https://www.nytimes.com/2026/08/24/realestate/park-slope-carriage-house.html
 

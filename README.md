@@ -18,13 +18,13 @@ https://www.nytimes.com/video/world/europe/100000011109253/andy-burnham-uk-ukrai
 `Muchas personas en las redes sociales afirman que el CBD calma los nervios o alivia el dolor de sus mascotas. Aquí te contamos qué dicen los expertos.`\
 https://www.nytimes.com/es/2026/08/24/espanol/cbd-funciona-perros-mascotas.html
 
-**How Farmers Are Staying Afloat as Crop Prices Plunge**\
-`Most U.S. farmers will lose money this year. Landowners and investors are increasingly trying to make money from their land, not what can be grown from it.`\
-https://www.nytimes.com/2026/08/24/business/farmers-land-value-crop-prices-iowa.html
-
 **Karley Sciortino’s Story of an Erotic Discovery Becomes a Film**\
 `Karley Sciortino’s story of an erotic discovery became the basis for a film starring Olivia Wilde — updated with a Gen Z twist.`\
 https://www.nytimes.com/2026/08/24/style/karley-sciortino-i-want-your-sex.html
+
+**How Farmers Are Staying Afloat as Crop Prices Plunge**\
+`Most U.S. farmers will lose money this year. Landowners and investors are increasingly trying to make money from their land, not what can be grown from it.`\
+https://www.nytimes.com/2026/08/24/business/farmers-land-value-crop-prices-iowa.html
 
 **Today, In Short**\
 `Investing. A.I. in china. And can Democrats win back the Senate?`\
