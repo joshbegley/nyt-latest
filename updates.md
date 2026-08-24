@@ -1,3 +1,15 @@
+**Mark Carney Did What Canadians Elected Him to Do**\
+`Mark Carney has chosen suffering, but he did what Canadians elected him to do.`\
+https://www.nytimes.com/2026/08/24/opinion/mark-carney-tariffs-canada-america.html
+
+**‘Adults’ and 6 More Shows to Watch on TV This Week**\
+`The FX comedy returns for a second season, and a true crime documentary airs.`\
+https://www.nytimes.com/2026/08/24/arts/television/adults-and-6-more-shows-to-watch-on-tv-this-week.html
+
+**Let Iran Control the Strait of Hormuz**\
+`President Trump needs to face reality on the Strait of Hormuz.`\
+https://www.nytimes.com/2026/08/24/opinion/iran-strait-of-hormuz-oil-trump.html
+
 **AIPAC Wants to Back This Republican, but He Has Some Reservations**\
 `The pro-Israel group has been preparing to spend big for Mike Rogers, the Republican nominee for Senate in Michigan. Does he want that?`\
 https://www.nytimes.com/2026/08/24/us/politics/aipac-rogers-michigan-senate.html
