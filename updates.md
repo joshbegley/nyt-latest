@@ -1,3 +1,7 @@
+**Las últimas batallas de Hayden Panettiere antes de morir**\
+`En sus últimos meses, la actriz enfrentaba un misterioso dolor físico y los estragos de una relación abusiva de la que intentaba escapar.`\
+https://www.nytimes.com/es/2026/08/24/espanol/cultura/hayden-panettiere-brian-hickerson-novio-maltrato-libro.html
+
 **Canada Is Retaliating Against Trump’s Tariffs. Will Others Follow?**\
 `Prime Minister Mark Carney’s decision to retaliate against U.S. tariffs has drawn praise from China, and exposed a rift in the Trump administration.`\
 https://www.nytimes.com/2026/08/24/business/dealbook/canada-carney-tariffs-trump.html
