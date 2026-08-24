@@ -1,3 +1,7 @@
+**Who Is Ahead in Maryland's 1st Congressional District?**\
+`Track the latest polls in Maryland's 1st Congressional District.`\
+https://www.nytimes.com/interactive/polls/maryland-us-house-1-polls-2026.html
+
 **U.S. Military Kills 2 People in Attack on Boat in Pacific**\
 `The United States has killed at least 223 people since its campaign of boat strikes began nearly a year ago.`\
 https://www.nytimes.com/2026/08/24/us/politics/military-boat-strike.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/24/dining/drinks/spritz-bartenders.html
 **Word of the Day: duress**\
 `This word has appeared in 69 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/08/24/learning/word-of-the-day-duress.html
-
-**The Dancers Turning Stairs and Fences Into Their Stage**\
-`Fluency in a variety of movement techniques — street dance, acrobatics, parkour — allows site-responsive dancers to shape seemingly unbounded interactions with their environments.`\
-https://www.nytimes.com/2026/08/24/arts/dance/parkour-stairs-movement-acrobatics.html
 
