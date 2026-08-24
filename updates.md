@@ -1,3 +1,7 @@
+**Sean Grayson, Ex-Illinois Deputy Who Murdered Sonya Massey, Dies in Prison**\
+`Sean Grayson, 32, was serving a 20-year sentence for the 2024 murder of Sonya Massey, who was holding a pot of hot water when she was shot at her home.`\
+https://www.nytimes.com/2026/08/24/us/sean-grayson-dead-sonya-massey.html
+
 **Opponents Sue to Stop Mamdani’s City-Owned Grocery Store Plan**\
 `A business group filed a lawsuit to stop New York City’s plan to open the five grocery stores, a campaign promise of Mayor Zohran Mamdani’s, arguing that it would hurt smaller stores.`\
 https://www.nytimes.com/2026/08/24/nyregion/mamdani-nyc-grocery-store-lawsuit.html

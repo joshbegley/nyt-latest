@@ -1,3 +1,7 @@
+**Sean Grayson, Ex-Illinois Deputy Who Murdered Sonya Massey, Dies in Prison**\
+`Sean Grayson, 32, was serving a 20-year sentence for the 2024 murder of Sonya Massey, who was holding a pot of hot water when she was shot at her home.`\
+https://www.nytimes.com/2026/08/24/us/sean-grayson-dead-sonya-massey.html
+
 **Opponents Sue to Stop Mamdani’s City-Owned Grocery Store Plan**\
 `A business group filed a lawsuit to stop New York City’s plan to open the five grocery stores, a campaign promise of Mayor Zohran Mamdani’s, arguing that it would hurt smaller stores.`\
 https://www.nytimes.com/2026/08/24/nyregion/mamdani-nyc-grocery-store-lawsuit.html
@@ -18,13 +22,13 @@ https://www.nytimes.com/video/world/europe/100000011109253/andy-burnham-uk-ukrai
 `Muchas personas en las redes sociales afirman que el CBD calma los nervios o alivia el dolor de sus mascotas. Aquí te contamos qué dicen los expertos.`\
 https://www.nytimes.com/es/2026/08/24/espanol/cbd-funciona-perros-mascotas.html
 
-**How Farmers Are Staying Afloat as Crop Prices Plunge**\
-`Most U.S. farmers will lose money this year. Landowners and investors are increasingly trying to make money from their land, not what can be grown from it.`\
-https://www.nytimes.com/2026/08/24/business/farmers-land-value-crop-prices-iowa.html
-
 **Karley Sciortino’s Story of an Erotic Discovery Becomes a Film**\
 `Karley Sciortino’s story of an erotic discovery became the basis for a film starring Olivia Wilde — updated with a Gen Z twist.`\
 https://www.nytimes.com/2026/08/24/style/karley-sciortino-i-want-your-sex.html
+
+**How Farmers Are Staying Afloat as Crop Prices Plunge**\
+`Most U.S. farmers will lose money this year. Landowners and investors are increasingly trying to make money from their land, not what can be grown from it.`\
+https://www.nytimes.com/2026/08/24/business/farmers-land-value-crop-prices-iowa.html
 
 **Today, In Short**\
 `Investing. A.I. in china. And can Democrats win back the Senate?`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/24/opinion/harry-meghan-return-england.html
 **College Students Worried About A.I. Should Study the Humanities**\
 `The future’s a riddle. Shakespeare isn’t.`\
 https://www.nytimes.com/2026/08/24/opinion/college-ai.html
-
-**How a Retired Performer and Part-Time Dog Sitter Lives on $31,500**\
-`After decades living in the East Village of Manhattan, Edward Arrocha is adapting to aging in the city alongside his Chihuahua sidekick, Tiny Girl.`\
-https://www.nytimes.com/interactive/2026/08/24/nyregion/nyc-budgeting-affordability-arrocha.html
 
