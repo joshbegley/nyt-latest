@@ -1,3 +1,7 @@
+**Is Trump’s Endorsement of Darline Graham Enough in South Carolina Senate Runoff?**\
+`The president has made a big bet on a senator’s sister.`\
+https://www.nytimes.com/2026/08/24/us/politics/trump-darline-graham-south-carolina-runoff.html
+
 **Karen Solomon, Wife Charged in Massachusetts Officer’s Death, Is Believed Dead**\
 `Karen Solomon, 58, a longtime advocate for the mental health of emergency workers, had been missing for six days after her husband, a police officer, was found dead.`\
 https://www.nytimes.com/2026/08/24/us/karen-solomon-dead-worcester.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/24/science/openai-huggingface-alarming-capabilit
 **Iran Pledges to Defy Trump’s Economic Sanctions**\
 `Analysts say Tehran could intensify the dispute militarily after the United States announced new efforts to squeeze Iran’s economy.  One Iranian official vowed that “not a single drop of oil” would leave the gulf.`\
 https://www.nytimes.com/2026/08/24/world/middleeast/iran-sanctions-economy-us-trump.html
-
-**Latest Polls on Arizona's Prop. 144 Voter ID and Citizenship Voting Amendment**\
-`Track the latest polls in the Arizona voter ID and citizenshipvoting requirements amendment , known as Prop. 144.`\
-https://www.nytimes.com/interactive/polls/arizona-voter-id-citizenship-amendment-polls-2026.html
 
