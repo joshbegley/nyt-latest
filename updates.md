@@ -1,3 +1,7 @@
+**De bozales a banderas: los aranceles de Trump golpean productos inesperados**\
+`Boyas, bozales para perros, capas, banderas nacionales y “estatuillas de metales comunes” importados de Canadá ahora cuestan más en Estados Unidos.`\
+https://www.nytimes.com/es/2026/08/24/espanol/estados-unidos/canada-bienes-tarifas-trump.html
+
 **A Chinese Robot Beat Usain Bolt’s 100-Meter Record. Should We Be Impressed?**\
 `China’s humanoid robots are achieving superhuman feats of athleticism. But how that translates into the real world is still an open question, experts said.`\
 https://www.nytimes.com/2026/08/24/world/asia/chinese-robot-100-meter-usain-bolt.html

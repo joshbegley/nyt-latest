@@ -1,3 +1,7 @@
+**Canada Is Fighting Back on Trade. Will Others Follow?**\
+`Prime Minister Mark Carney’s decision to retaliate against U.S. tariffs has drawn praise from China, and exposed a rift in the Trump administration.`\
+https://www.nytimes.com/2026/08/24/business/dealbook/canada-carney-tariffs-trump.html
+
 **De bozales a banderas: los aranceles de Trump golpean productos inesperados**\
 `Boyas, bozales para perros, capas, banderas nacionales y “estatuillas de metales comunes” importados de Canadá ahora cuestan más en Estados Unidos.`\
 https://www.nytimes.com/es/2026/08/24/espanol/estados-unidos/canada-bienes-tarifas-trump.html
@@ -55,7 +59,7 @@ https://www.nytimes.com/2026/08/24/world/middleeast/syria-israel-talks-us-jordan
 https://www.nytimes.com/2026/08/24/world/asia/us-south-korea-military-drills-iran.html
 
 **UK Prime Minister Burnham Arrives in Ukraine as Russia Amps Up Warnings**\
-`In his first foreign trip since taking office, Prime Minister Andy Burnham affirmed support for Kyiv despite new warnings from Moscow of consequences for doing so.`\
+`In his first foreign trip since taking office, Prime Minister Andy Burnham affirmed support for Kyiv despite new warnings from Moscow of potential consequences.`\
 https://www.nytimes.com/2026/08/24/world/europe/uk-andy-burnham-ukraine-russia.html
 
 **¿Un nuevo auge petrolero en Argentina puede salvar su economía?**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/24/movies/point-break-keanu-reeves-patrick-swayz
 **A Drone Killed Three Ukrainians. It Was Guided Entirely by A.I.**\
 `An attack by what Ukrainian officials said was a Russian drone with an Nvidia chip presages a dystopian future of weaponry untethered to humans.`\
 https://www.nytimes.com/2026/08/24/world/europe/russia-drones-autonomous-ai-kill-ukraine-war.html
-
-**Today’s Weed Is Way Too Dangerous for Teens**\
-`Are we willing to regulate and enforce cannabis safety, especially to protect the most vulnerable among us?`\
-https://www.nytimes.com/2026/08/24/opinion/weed-marijuna-children-regulation.html
 

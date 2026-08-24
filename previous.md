@@ -1,3 +1,7 @@
+**De bozales a banderas: los aranceles de Trump golpean productos inesperados**\
+`Boyas, bozales para perros, capas, banderas nacionales y “estatuillas de metales comunes” importados de Canadá ahora cuestan más en Estados Unidos.`\
+https://www.nytimes.com/es/2026/08/24/espanol/estados-unidos/canada-bienes-tarifas-trump.html
+
 **A Chinese Robot Beat Usain Bolt’s 100-Meter Record. Should We Be Impressed?**\
 `China’s humanoid robots are achieving superhuman feats of athleticism. But how that translates into the real world is still an open question, experts said.`\
 https://www.nytimes.com/2026/08/24/world/asia/chinese-robot-100-meter-usain-bolt.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/24/world/europe/russia-drones-autonomous-ai-kill
 **Today’s Weed Is Way Too Dangerous for Teens**\
 `Are we willing to regulate and enforce cannabis safety, especially to protect the most vulnerable among us?`\
 https://www.nytimes.com/2026/08/24/opinion/weed-marijuna-children-regulation.html
-
-**Are CBD Products Good for Your Pet?**\
-`Seems as though everyone and  dog is taking them.`\
-https://www.nytimes.com/2026/08/24/well/cbd-dogs-effectiveness-safety.html
 
