@@ -1,3 +1,11 @@
+**‘The Frontier of Algorithmic Fashion’**\
+`Private equity and Big Tech have infiltrated the fashion world. How did it happen, and how can consumers shop more intentionally?`\
+https://www.nytimes.com/video/opinion/100000011093298/the-frontier-of-algorithmic-fashion.html
+
+**Maps: Tracking Typhoon Saudel**\
+`See the likely path and wind arrival times for Saudel`\
+https://www.nytimes.com/interactive/2026/08/24/weather/saudel-map-path-tracker.html
+
 **What You Should Know About College Admissions Changes**\
 `After loosening requirements during the Covid era, some schools are shaking up admissions again, facing pressure from the Trump administration, A.I. and even their own professors.`\
 https://www.nytimes.com/2026/08/24/us/college-admissions-changes.html
