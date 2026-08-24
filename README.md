@@ -1,3 +1,7 @@
+**Creamy Turmeric Pasta**\
+`This earthy pasta is cobbled together using ingredients that you almost certainly already have in your kitchen.`\
+https://www.nytimes.com/video/dining/100000011110596/creamy-turmeric-pasta.html
+
 **NYC’s 911 System Had an Outage. Officials Kept Quiet About It.**\
 `When a partial breakdown of the system occurred last week, New York City officials did not inform the public.`\
 https://www.nytimes.com/2026/08/24/nyregion/mamdani-911-outage-nyc.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/08/24/espanol/cbd-funciona-perros-mascotas.html
 **How Farmers Are Staying Afloat as Crop Prices Plunge**\
 `Most U.S. farmers will lose money this year. Landowners and investors are increasingly trying to make money from their land, not what can be grown from it.`\
 https://www.nytimes.com/2026/08/24/business/farmers-land-value-crop-prices-iowa.html
-
-**Karley Sciortino’s Story of an Erotic Discovery Becomes a Film**\
-`Karley Sciortino’s story of an erotic discovery became the basis for a film starring Olivia Wilde — updated with a Gen Z twist.`\
-https://www.nytimes.com/2026/08/24/style/karley-sciortino-i-want-your-sex.html
 
