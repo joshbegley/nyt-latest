@@ -1,4 +1,8 @@
 **Trump Threatens Even Higher Tariffs on Canadian Exports After Talks Unravel**\
+`President Trump vowed to increase tariffs on cars, trucks, auto parts and steel to 50 percent starting Jan. 1, as the countries edged toward a full-blown trade war.`\
+https://www.nytimes.com/2026/08/24/business/economy/trump-canada-tariffs.html
+
+**Trump Threatens Even Higher Tariffs on Canadian Exports After Talks Unravel**\
 `The president renewed his threats against Canada on Monday. The countries are quickly entering a full-blown trade war.`\
 https://www.nytimes.com/2026/08/24/business/economy/trump-canada-tariffs.html
 
