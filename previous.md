@@ -1,3 +1,11 @@
+**The Woman Guiding Tourists Through New York City’s Worst Day**\
+`Christina Stanton offers a very specific and deeply personal tour of the World Trade Center site to remind visitors what happened 25 years ago.`\
+https://www.nytimes.com/2026/08/24/nyregion/the-woman-guiding-tourists-through-new-york-citys-worst-day.html
+
+**NYT Spelling Bee Answers for August 24, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/08/24/crosswords/spelling-bee-forum.html
+
 **Mark Carney Did What Canadians Elected Him to Do**\
 `Mark Carney has chosen suffering, but he did what Canadians elected him to do.`\
 https://www.nytimes.com/2026/08/24/opinion/mark-carney-tariffs-canada-america.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/23/world/americas/latin-america-leaders-trump.ht
 **The World’s Breadbaskets Are Getting Pounded by War, Weather and Trade Spats**\
 `Bad harvests and attacks on trade passages threaten to drive food prices higher.`\
 https://www.nytimes.com/2026/08/23/climate/wheat-harvests-bread-prices-war-heat.html
-
-**Dr. Dre and Jimmy Iovine Think A.I. Is Good for Music**\
-`The hit-making duo turned tech moguls also have thoughts about why corporate America isn’t collaborative enough.`\
-https://www.nytimes.com/2026/08/23/business/jimmy-iovine-dr-dre-beats-usc.html
-
-**How Big Tech Captured American Schools**\
-`Companies like Google and Microsoft have used their money, their might and their massive reach to influence nearly every step of the education supply chain.`\
-https://www.nytimes.com/2026/08/23/business/schools-big-tech-google-microsoft.html
 
