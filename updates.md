@@ -1,3 +1,23 @@
+**Natalie Harp’s Devotion to Trump**\
+`One of the president’s closest aides seems to have limitless access to him and the information he receives.`\
+https://www.nytimes.com/2026/08/24/podcasts/the-daily/natalie-harps-devotion-to-trump.html
+
+**Canada Is ‘at War’ With U.S. Over Tariffs, and U.S.P.S. Publishes Plan to Restrict Ballots**\
+`Plus, what it’s like to live next to a roller coaster.`\
+https://www.nytimes.com/2026/08/24/podcasts/the-headlines/canada-tariffs-usps-ballots.html
+
+**NYT Connections Answers for August 25, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Aug. 25, 2026.`\
+https://www.nytimes.com/2026/08/24/crosswords/connections-companion-1171.html
+
+**Today’s Wordle Hints for August 25, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Aug. 25, 2026.`\
+https://www.nytimes.com/2026/08/24/crosswords/wordle-review-1893.html
+
+**NYT Strands Hints for August 25, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Aug. 25, 2026.`\
+https://www.nytimes.com/2026/08/24/crosswords/strands-sidekick-905.html
+
 **A Drone Killed Three Ukrainians. It Was Guided Entirely by A.I.**\
 `An attack by what Ukrainian officials said was a Russian drone with an Nvidia chip presages a dystopian future of weaponry untethered to humans.`\
 https://www.nytimes.com/2026/08/24/world/europe/russia-drones-autonomous-ai-kill-ukraine-war.html
