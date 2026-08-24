@@ -1,3 +1,11 @@
+**Trump Lays It on the Line for Darline Graham**\
+`The president rallied for the sister of Lindsey Graham in her Senate run in South Carolina and pressured other allies to endorse her. A super PAC run by his advisers weighed in. Will it be enough?`\
+https://www.nytimes.com/2026/08/24/us/politics/trump-graham-south-carolina-endorsement.html
+
+**Man Who Told of a Childhood With Wolves Dies at 80**\
+`The improbable story of Marcos Rodríguez Pantoja’s wild youth became the subject of a study, as well as inspiring a novel and a film.`\
+https://www.nytimes.com/2026/08/24/world/europe/spain-wolf-boy-dies.html
+
 **Can You Identify These Current Best Sellers?**\
 `Try this quiz on the titles book shoppers have been recently snapping up for their summer reading.`\
 https://www.nytimes.com/quiz/2026/08/24/bookreview/best-sellers-quiz.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/es/2026/08/24/espanol/estilos-de-vida/rutina-ejercicios-
 **El príncipe Enrique y Meghan parten de California con su poder de estrellas desvaneciéndose**\
 `Como muchos otros antes que ellos, el príncipe Enrique y Meghan llegaron a Hollywood con grandes planes. Se van con su poder estelar desvaneciéndose.`\
 https://www.nytimes.com/es/2026/08/24/espanol/estados-unidos/harry-meghan-fracaso-hollywood.html
-
-**¿Por qué seguimos imaginando una nueva guerra civil?**\
-`El arte no predice el futuro, pero puede ser un sistema de alerta temprana.`\
-https://www.nytimes.com/es/2026/08/24/espanol/opinion/nueva-guerra-civil-eeuu-trump.html
-
-**Don’t Harry and Meghan Know Better?**\
-`Given their past, what does a future in England hold for them?`\
-https://www.nytimes.com/2026/08/24/opinion/harry-meghan-return-england.html
 
