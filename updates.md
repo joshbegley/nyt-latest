@@ -1,3 +1,23 @@
+**A.M. Gittlitz Roots for the Mets (and a Better World)**\
+`Through another lost season, A.M. Gittlitz, the author of a new history of New York’s underdog baseball team, is trying to hold on to hope.`\
+https://www.nytimes.com/2026/08/24/style/gittlitz-new-york-mets-metropolitans-book.html
+
+**Shelley Fabares, ‘Donna Reed Show’ Actress, Dies at 82**\
+`She also starred in Elvis Presley movies and the sitcom “Coach.” Somewhat reluctantly, she had a No. 1 hit in 1962 with “Johnny Angel.”`\
+https://www.nytimes.com/2026/08/24/arts/television/shelley-fabares-dead.html
+
+**British Prime Minister Visits Ukraine for Its Independence Day**\
+`Prime Minister Andy Burnham of Britain arrived in Kyiv, the Ukrainian capital, on Monday for the country’s Independence Day, prompting Russia to accuse Britain of stoking tensions.`\
+https://www.nytimes.com/video/world/europe/100000011109253/andy-burnham-uk-ukraine-visit.html
+
+**More Companies Are Promising Cloud Seeding Can Make Rain**\
+`States are spending millions of dollars on cloud-seeding technology, backed by new data on its effectiveness — and driven by desperation for water.`\
+https://www.nytimes.com/2026/08/24/climate/cloud-seeding-west-drought-rain.html
+
+**Latest Polls on Arizona's Prop. 144 Voter ID and Citizenship Voting Amendment**\
+`Track the latest polls in the Arizona voter ID and citizenshipvoting requirements amendment , known as Prop. 144.`\
+https://www.nytimes.com/interactive/polls/arizona-voter-id-citizenship-amendment-polls-2026.html
+
 **¿El CBD es bueno para tu mascota?**\
 `Muchas personas en las redes sociales afirman que el CBD calma los nervios o alivia el dolor de sus mascotas. Aquí te contamos qué dicen los expertos.`\
 https://www.nytimes.com/es/2026/08/24/espanol/cbd-funciona-perros-mascotas.html

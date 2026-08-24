@@ -1,3 +1,15 @@
+**A.M. Gittlitz Roots for the Mets (and a Better World)**\
+`Through another lost season, A.M. Gittlitz, the author of a new history of New York’s underdog baseball team, is trying to hold on to hope.`\
+https://www.nytimes.com/2026/08/24/style/gittlitz-new-york-mets-metropolitans-book.html
+
+**Shelley Fabares, ‘Donna Reed Show’ Actress, Dies at 82**\
+`She also starred in Elvis Presley movies and the sitcom “Coach.” Somewhat reluctantly, she had a No. 1 hit in 1962 with “Johnny Angel.”`\
+https://www.nytimes.com/2026/08/24/arts/television/shelley-fabares-dead.html
+
+**British Prime Minister Visits Ukraine for Its Independence Day**\
+`Prime Minister Andy Burnham of Britain arrived in Kyiv, the Ukrainian capital, on Monday for the country’s Independence Day, prompting Russia to accuse Britain of stoking tensions.`\
+https://www.nytimes.com/video/world/europe/100000011109253/andy-burnham-uk-ukraine-visit.html
+
 **¿El CBD es bueno para tu mascota?**\
 `Muchas personas en las redes sociales afirman que el CBD calma los nervios o alivia el dolor de sus mascotas. Aquí te contamos qué dicen los expertos.`\
 https://www.nytimes.com/es/2026/08/24/espanol/cbd-funciona-perros-mascotas.html
@@ -47,7 +59,7 @@ https://www.nytimes.com/2026/08/24/opinion/ultraprocessed-food-industry-maha.htm
 https://www.nytimes.com/video/us/100000011109183/reno-wildfire-evacutions.html
 
 **More Companies Are Promising Cloud Seeding Can Make Rain**\
-`States are spending millions of dollars on cloud seeding technology, backed by new data on its effectiveness — and driven by desperation for water.`\
+`States are spending millions of dollars on cloud-seeding technology, backed by new data on its effectiveness — and driven by desperation for water.`\
 https://www.nytimes.com/2026/08/24/climate/cloud-seeding-west-drought-rain.html
 
 **Trump Threatens New 50% Tariffs on Cars, Trucks and Steel as U.S.-Canada Trade War Unfolds**\
@@ -70,7 +82,7 @@ https://www.nytimes.com/2026/08/24/science/openai-huggingface-alarming-capabilit
 `Analysts say Tehran could intensify the dispute militarily after attempts to squeeze its economy. An Iranian official vowed “not a single drop of oil” would leave the Gulf.`\
 https://www.nytimes.com/2026/08/24/world/middleeast/iran-sanctions-economy-us-trump.html
 
-**Who Is Ahead in Arizona's Prop. 144 Voter ID and Citizenship Voting Amendment? Latest 2026 Polls.**\
+**Latest Polls on Arizona's Prop. 144 Voter ID and Citizenship Voting Amendment**\
 `Track the latest polls in the Arizona voter ID and citizenshipvoting requirements amendment , known as Prop. 144.`\
 https://www.nytimes.com/interactive/polls/arizona-voter-id-citizenship-amendment-polls-2026.html
 
@@ -185,16 +197,4 @@ https://www.nytimes.com/interactive/2026/08/24/nyregion/nyc-budgeting-affordabil
 **A Park Slope Carriage House Filled With Sunlight**\
 `A couple looking to avoid dark and stuffy brownstones found all the natural light they desired in a converted carriage house.`\
 https://www.nytimes.com/2026/08/24/realestate/park-slope-carriage-house.html
-
-**Dale Dickey Is Way Past Crying in Barney Suits**\
-`Years ago, she donned a dinosaur costume to help make ends meet. Now she is a first-time Emmy nominee for her role in “Widow’s Bay.”`\
-https://www.nytimes.com/2026/08/24/arts/television/dale-dickey-widows-bay-emmy.html
-
-**We’re in a New Era of Class Warfare. History Points to a Way Out.**\
-`The class-based violence of the past was part of a broader struggle. Today, the violence is the end in itself.`\
-https://www.nytimes.com/2026/08/24/opinion/class-warfare-violence.html
-
-**Can Democrats Win Back the Senate? Why Their Chances Are Improving.**\
-`Republicans still have some clear advantages on the map, but President Trump’s unpopularity has opened the door for an outcome that once seemed far-fetched.`\
-https://www.nytimes.com/2026/08/24/us/politics/democrats-republicans-midterms-senate-majority.html
 
