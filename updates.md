@@ -1,3 +1,7 @@
+**U.S. Military Kills 2 People in Attack on Boat in Pacific**\
+`The United States has killed at least 223 people since its campaign of boat strikes began nearly a year ago.`\
+https://www.nytimes.com/2026/08/24/us/politics/military-boat-strike.html
+
 **The Ruthless Efficiency of Ultrapotent Street Drugs**\
 `Five decades after the “war on drugs” sought to make substance abuse unaffordable, illicit drugs are cheaper and more powerful than ever. A visit to Baltimore shows why.`\
 https://www.nytimes.com/2026/08/24/science/drugs-opioids-fentanyl-baltimore.html
