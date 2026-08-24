@@ -1,3 +1,7 @@
+**An ‘Economic D-Day’ That Must Overcome a Troubled History**\
+`The U.S. has spent 20 years promising ‘crippling sanctions’ on Iran. But the latest effort comes with a reverse twist, after military action failed to accomplish President Trump’s goals.`\
+https://www.nytimes.com/2026/08/24/us/politics/trump-bessent-iran-economic-d-day.html
+
 **Louisiana Girl, 8, Dies After Contracting Rare Brain-Eating Amoeba**\
 `Lillian Smart most likely contracted the parasite while swimming in a lake in northwest Louisiana, the state Health Department and a family spokesman said.`\
 https://www.nytimes.com/2026/08/24/us/louisiana-child-dead-brain-eating-amoeba.html
