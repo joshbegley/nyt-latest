@@ -1,3 +1,7 @@
+**Un dron ruso mató a 3 ucranianos. Estaba guiado por IA**\
+`Un ataque de lo que, según las autoridades de Ucrania, era un dron ruso con un chip de Nvidia presagia un futuro distópico de armamento desvinculado de los humanos.`\
+https://www.nytimes.com/es/2026/08/24/espanol/mundo/dron-guerra-rusia-ucrania-ia.html
+
 **U.S.S. Abraham Lincoln Sailor Says Father Was Arrested by Border Patrol**\
 `The sailor, Joshua Aviles, was on his way home from the Middle East aboard the beleaguered aircraft carrier when he learned his father had been detained.`\
 https://www.nytimes.com/2026/08/24/us/uss-lincoln-sailor-father-arrested-immigration.html
