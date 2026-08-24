@@ -1,3 +1,11 @@
+**With Trump Against Him, Can Ralph Norman Win in South Carolina?**\
+`The ultraconservative congressman who has broken with the president on spending is hoping voters reward his experience, contrarian streak and all.`\
+https://www.nytimes.com/2026/08/24/us/politics/ralph-norman-trump-south-carolina.html
+
+**Anatomy of an Autonomous Attack: 5 Alarming A.I. Capabilities**\
+`When OpenAI’s agents went rogue in July, they demonstrated ingenuity and drive beyond what many experts imagined — a dangerous harbinger of what such bots could do in the future.`\
+https://www.nytimes.com/2026/08/24/science/openai-huggingface-alarming-capabilities.html
+
 **Iran Pledges to Defy Trump’s Economic Sanctions**\
 `Analysts say Tehran could intensify the dispute militarily after attempts to squeeze its economy. An Iranian official vowed “not a single drop of oil” would leave the Gulf.`\
 https://www.nytimes.com/2026/08/24/world/middleeast/iran-sanctions-economy-us-trump.html
