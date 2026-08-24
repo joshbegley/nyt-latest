@@ -144,7 +144,7 @@ https://www.nytimes.com/2026/08/24/movies/point-break-keanu-reeves-patrick-swayz
 
 **A Drone Killed Three Ukrainians. It Was Guided Entirely by A.I.**\
 `An attack by what Ukrainian officials said was a Russian drone with an Nvidia chip presages a dystopian future of weaponry untethered to humans.`\
-https://www.nytimes.com/2026/08/24/world/europe/drones-autonomous-ai-kill.html
+https://www.nytimes.com/2026/08/24/world/europe/russia-drones-autonomous-ai-kill-ukraine-war.html
 
 **Today’s Weed Is Way Too Dangerous for Teens**\
 `Are we willing to regulate and enforce cannabis safety, especially to protect the most vulnerable among us?`\
