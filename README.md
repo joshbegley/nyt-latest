@@ -150,7 +150,7 @@ https://www.nytimes.com/2026/08/24/opinion/weed-marijuna-children-regulation.htm
 `Seems as though everyone and  dog is taking them.`\
 https://www.nytimes.com/2026/08/24/well/cbd-dogs-effectiveness-safety.html
 
-**Chinese Robot Breaks Usain Bolt’s 100-Meter Record**\
+**Chinese Robot Beats Usain Bolt’s 100-Meter Record**\
 `A humanoid robot beat Usain Bolt’s 100-meter dash record at the World Humanoid Robot Games in Beijing. It ended up running into a wall to stop and was carried away on a stretcher.`\
 https://www.nytimes.com/video/world/asia/100000011108916/100-meter-dash-humanoid-robot-games-usain-bolt.html
 
