@@ -1,3 +1,7 @@
+**Irán dice que no se doblegará ante la presión económica de Trump**\
+`Algunos analistas afirman que Teherán podría intensificar la disputa militarmente tras los intentos de estrangular su economía. Un funcionario iraní prometió que “ni una sola gota de petróleo” saldría del golfo Pérsico.`\
+https://www.nytimes.com/es/2026/08/24/espanol/mundo/iran-trump-guerra-economica.html
+
 **Un dron ruso mató a 3 ucranianos. Estaba guiado por IA**\
 `Un ataque de lo que, según las autoridades de Ucrania, era un dron ruso con un chip de Nvidia presagia un futuro distópico de armamento desvinculado de los humanos.`\
 https://www.nytimes.com/es/2026/08/24/espanol/mundo/dron-guerra-rusia-ucrania-ia.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/24/world/asia/us-south-korea-military-drills-ira
 **UK Prime Minister Burnham Arrives in Ukraine as Russia Amps Up Warnings**\
 `In his first foreign trip since taking office, the British prime minister pledged to stand by Kyiv despite new warnings of potential consequences.`\
 https://www.nytimes.com/2026/08/24/world/europe/uk-andy-burnham-ukraine-russia.html
-
-**¿Un nuevo auge petrolero en Argentina puede salvar su economía?**\
-`Miles de argentinos se están mudando a un pueblo remoto en busca de trabajo y provistos solo de mochilas, tiendas de campaña y la esperanza de que su país pueda revertir su suerte.`\
-https://www.nytimes.com/es/2026/08/24/espanol/america-latina/argentina-petroleo-patagonia-milei.html
 
