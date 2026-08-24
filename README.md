@@ -1,3 +1,7 @@
+**The Washington Post deberá recontratar a una columnista despedida**\
+`Una árbitra ordenó al periódico restituir a Karen Attiah, quien fue despedida por sus publicaciones en redes sociales sobre el asesinato de Charlie Kirk.`\
+https://www.nytimes.com/es/2026/08/24/espanol/negocios/washington-post-columnista-despedida-charlie-kirk.html
+
 **Irán dice que no se doblegará ante la presión económica de Trump**\
 `Algunos analistas afirman que Teherán podría intensificar la disputa militarmente tras los intentos de estrangular su economía. Un funcionario iraní prometió que “ni una sola gota de petróleo” saldría del golfo Pérsico.`\
 https://www.nytimes.com/es/2026/08/24/espanol/mundo/iran-trump-guerra-economica.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/24/world/middleeast/syria-israel-talks-us-jordan
 **U.S. Marines Cancel Drill With South Korea, Citing Iran War Demands**\
 `The move to call off the high-profile event was communicated in June, South Korea said. President Trump shortened another joint military exercise earlier this month.`\
 https://www.nytimes.com/2026/08/24/world/asia/us-south-korea-military-drills-iran.html
-
-**UK Prime Minister Burnham Arrives in Ukraine as Russia Amps Up Warnings**\
-`In his first foreign trip since taking office, the British prime minister pledged to stand by Kyiv despite new warnings of potential consequences.`\
-https://www.nytimes.com/2026/08/24/world/europe/uk-andy-burnham-ukraine-russia.html
 
