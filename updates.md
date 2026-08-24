@@ -1,3 +1,11 @@
+**S.E.C. Investigating Near-Implosion of A.I. Hedge Fund**\
+`Regulators sent subpoenas to major Wall Street banks seeking information about the trading of Situational Awareness, three people briefed on the outreach said.`\
+https://www.nytimes.com/2026/08/24/business/sec-situational-awareness-investigation.html
+
+**Man Who Told of a Childhood With Wolves Dies at 80**\
+`Marcos Rodríguez Pantoja’s improbable story of a wild youth became the subject of a study, and inspired a novel and film.`\
+https://www.nytimes.com/2026/08/24/world/europe/spain-wolf-boy-dead.html
+
 **What’s Behind the U.S. Treasury’s Latest Attempt to Lower Interest Rates**\
 `The Treasury Department said it could begin to buy back more of its debt, and bond market investors are assessing the potential effects on borrowing costs.`\
 https://www.nytimes.com/2026/08/24/business/treasury-bond-buybacks-impact.html
