@@ -1,3 +1,7 @@
+**British Prime Minister Visits Ukraine for Its Independence Day**\
+`Prime Minister Andy Burnham of Britain arrived in Kyiv, the Ukrainian capital, on Monday for the country’s Independence Day, prompting Russia to accuse Britain of stoking tensions.`\
+https://www.nytimes.com/video/world/europe/100000011109253/andy-burnham-uk-ukraine-visit.html
+
 **¿El CBD es bueno para tu mascota?**\
 `Muchas personas en las redes sociales afirman que el CBD calma los nervios o alivia el dolor de sus mascotas. Aquí te contamos qué dicen los expertos.`\
 https://www.nytimes.com/es/2026/08/24/espanol/cbd-funciona-perros-mascotas.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/24/arts/television/dale-dickey-widows-bay-emmy.h
 **We’re in a New Era of Class Warfare. History Points to a Way Out.**\
 `The class-based violence of the past was part of a broader struggle. Today, the violence is the end in itself.`\
 https://www.nytimes.com/2026/08/24/opinion/class-warfare-violence.html
-
-**Can Democrats Win Back the Senate? Why Their Chances Are Improving.**\
-`Republicans still have some clear advantages on the map, but President Trump’s unpopularity has opened the door for an outcome that once seemed far-fetched.`\
-https://www.nytimes.com/2026/08/24/us/politics/democrats-republicans-midterms-senate-majority.html
 
