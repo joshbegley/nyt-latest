@@ -1,3 +1,23 @@
+**Natalie Harp’s Devotion to Trump**\
+`One of the president’s closest aides seems to have limitless access to him and the information he receives.`\
+https://www.nytimes.com/2026/08/24/podcasts/the-daily/natalie-harps-devotion-to-trump.html
+
+**Canada Is ‘at War’ With U.S. Over Tariffs, and U.S.P.S. Publishes Plan to Restrict Ballots**\
+`Plus, what it’s like to live next to a roller coaster.`\
+https://www.nytimes.com/2026/08/24/podcasts/the-headlines/canada-tariffs-usps-ballots.html
+
+**NYT Connections Answers for August 25, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Aug. 25, 2026.`\
+https://www.nytimes.com/2026/08/24/crosswords/connections-companion-1171.html
+
+**Today’s Wordle Hints for August 25, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Aug. 25, 2026.`\
+https://www.nytimes.com/2026/08/24/crosswords/wordle-review-1893.html
+
+**NYT Strands Hints for August 25, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Aug. 25, 2026.`\
+https://www.nytimes.com/2026/08/24/crosswords/strands-sidekick-905.html
+
 **Syria and Israel Hold U.S.-Mediated Talks to Try to Ease Tensions**\
 `The discussions, reported by the Syrian state news agency, came days after Israel struck an air base in Syria’s northwest, the latest in a series of military interventions.`\
 https://www.nytimes.com/2026/08/24/world/middleeast/syria-israel-talks-us-jordan.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/08/24/science/opioids-drugs-economics.html
 **How Argentina’s Oil Boom Is Changing Patagonia**\
 `Our correspondent Emma Bubola travels to northwest Patagonia, the epicenter of an oil boom that Argentina hopes will revolutionize its economy.`\
 https://www.nytimes.com/video/world/americas/100000010986029/how-argentinas-oil-boom-is-changing-patagonia.html
-
-**Trump Administration Live Updates: U.S. to Escalate Assault on Iran’s Economy**\
-`(No description)`\
-https://www.nytimes.com/live/2026/08/24/us/trump-news-iran-economy
-
-**Where Iran’s Young People Gather, the Government Sees Threats to Its Authority**\
-`In recent weeks, the police have closed dozens of cafes, often citing laws that stipulate women must veil in public. Experts say the closures are part of an effort to control public space.`\
-https://www.nytimes.com/2026/08/24/world/middleeast/iran-cafe-closures.html
-
-**A $4 Billion Plan to Fix Part of a Crumbling N.Y.C. Highway**\
-`Officials will announce Monday their plan to overhaul the section of the highway that belongs to New York City. The road needs quick repair to remain safe for driving.`\
-https://www.nytimes.com/2026/08/24/nyregion/bqe-highway-redesign-2030.html
-
-**California Cancels Talks With Paramount Over Warner Bros. Merger**\
-`The attorney general of California, one of 12 states suing to block the $111 billion deal, accused Paramount of leaking and misrepresenting earlier settlement discussions.`\
-https://www.nytimes.com/2026/08/24/us/california-bonta-paramount-warner-settlement-talks.html
-
-**The Woman Guiding Tourists Through New York City’s Worst Day**\
-`Christina Stanton offers a very specific and deeply personal tour of the World Trade Center site to remind visitors what happened 25 years ago.`\
-https://www.nytimes.com/2026/08/24/nyregion/the-woman-guiding-tourists-through-new-york-citys-worst-day.html
 
