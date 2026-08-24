@@ -1,3 +1,15 @@
+**Forensic Scientists Use ‘Breakthrough’ Method to Identify 9/11 Victim**\
+`DNA analysts at the New York City medical examiner’s office partnered with a squad of local detectives skilled at genealogical research.`\
+https://www.nytimes.com/2026/08/24/nyregion/dna-genealogy-science-victim-identification.html
+
+**Trump Administration Announces New Series of Sanctions Against Iran**\
+`Scott Bessent, secretary of the Treasury, unveiled what the administration describes as its most comprehensive assault to date on Iran’s economy. The plan, called Operation Economic Outcast, would sanction more than 60 entities that aid Iran’s nuclear and missile programs.`\
+https://www.nytimes.com/video/us/politics/100000011110093/bessent-iran-nuclear-sanctions.html
+
+**Gov. Kathy Hochul, Five Years In, Makes Her Case for Four More**\
+`Ms. Hochul, who ascended to the governorship in the depths of the pandemic, believes that New York is back. She hopes she has persuaded New Yorkers.`\
+https://www.nytimes.com/2026/08/24/nyregion/kathy-hochul-new-york-governor-anniversary.html
+
 **Martha’s Vineyard Property Once Owned by Jackie Kennedy Onassis Is Now Open to All**\
 `Visitors to Martha’s Vineyard can now traverse a property once owned by Jackie Kennedy Onassis. Known as the Squibnocket Pond Reservation, the 330-acre reserve opened last year and added a new trail in July.`\
 https://www.nytimes.com/video/us/100000011110027/jackie-kennedy-onassis-marthas-vineyard.html
