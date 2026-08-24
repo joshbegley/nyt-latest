@@ -1,3 +1,7 @@
+**Iceland’s Murder Rate Is Off the Charts (in Its Books, at Least)**\
+`The Nordic nation has almost no homicides, yet crime fiction is its favorite literary genre. That means writers face a challenge: making murder feel believable.`\
+https://www.nytimes.com/2026/08/24/books/iceland-crime-fiction.html
+
 **Who Is Ahead in Maryland's 1st Congressional District?**\
 `Track the latest polls in Maryland's 1st Congressional District.`\
 https://www.nytimes.com/interactive/polls/maryland-us-house-1-polls-2026.html
