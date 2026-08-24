@@ -1,3 +1,7 @@
+**Who Is Ahead in Maryland's 1st Congressional District?**\
+`Track the latest polls in Maryland's 1st Congressional District.`\
+https://www.nytimes.com/interactive/polls/maryland-us-house-1-polls-2026.html
+
 **U.S. Military Kills 2 People in Attack on Boat in Pacific**\
 `The United States has killed at least 223 people since its campaign of boat strikes began nearly a year ago.`\
 https://www.nytimes.com/2026/08/24/us/politics/military-boat-strike.html
