@@ -1,3 +1,31 @@
+**¿Un nuevo auge petrolero en Argentina puede salvar su economía?**\
+`Miles de argentinos se están mudando a un pueblo remoto en busca de trabajo y provistos solo de mochilas, tiendas de campaña y la esperanza de que su país pueda revertir su suerte.`\
+https://www.nytimes.com/es/2026/08/24/espanol/america-latina/argentina-petroleo-patagonia-milei.html
+
+**Una rutina de 20 minutos para fortalecer tus caderas**\
+`Estos ejercicios pueden ayudarte a desarrollar fuerza para evitar molestias y dolores.`\
+https://www.nytimes.com/es/2026/08/24/espanol/estilos-de-vida/rutina-ejercicios-gluteos-caderas.html
+
+**El príncipe Enrique y Meghan parten de California con su poder de estrellas desvaneciéndose**\
+`Como muchos otros antes que ellos, el príncipe Enrique y Meghan llegaron a Hollywood con grandes planes. Se van con su poder estelar desvaneciéndose.`\
+https://www.nytimes.com/es/2026/08/24/espanol/estados-unidos/harry-meghan-fracaso-hollywood.html
+
+**¿Por qué seguimos imaginando una nueva guerra civil?**\
+`El arte no predice el futuro, pero puede ser un sistema de alerta temprana.`\
+https://www.nytimes.com/es/2026/08/24/espanol/opinion/nueva-guerra-civil-eeuu-trump.html
+
+**Have Harry and Meghan Learned Their Lesson?**\
+`Given their past, what does a future in England hold for them?`\
+https://www.nytimes.com/2026/08/24/opinion/harry-meghan-return-england.html
+
+**College Students Worried About A.I. Should Study the Humanities**\
+`The future’s a riddle. Shakespeare isn’t.`\
+https://www.nytimes.com/2026/08/24/opinion/college-ai.html
+
+**How a Retired Performer and Part-Time Dog Sitter Lives on $31,500**\
+`After decades living in the East Village of Manhattan, Edward Arrocha is adapting to aging in the city alongside his Chihuahua sidekick, Tiny Girl.`\
+https://www.nytimes.com/interactive/2026/08/24/nyregion/nyc-budgeting-affordability-arrocha.html
+
 **A Park Slope Carriage House Filled With Sunlight**\
 `A couple looking to avoid dark and stuffy brownstones found all the natural light they desired in a converted carriage house.`\
 https://www.nytimes.com/2026/08/24/realestate/park-slope-carriage-house.html
@@ -169,32 +197,4 @@ https://www.nytimes.com/2026/08/24/opinion/mark-carney-tariffs-canada-america.ht
 **‘Adults’ and 6 More Shows to Watch on TV This Week**\
 `The FX comedy returns for a second season, and a true crime documentary airs.`\
 https://www.nytimes.com/2026/08/24/arts/television/adults-and-6-more-shows-to-watch-on-tv-this-week.html
-
-**Let Iran Control the Strait of Hormuz**\
-`President Trump needs to face reality on the Strait of Hormuz.`\
-https://www.nytimes.com/2026/08/24/opinion/iran-strait-of-hormuz-oil-trump.html
-
-**AIPAC Wants to Back This Republican, but He Has Some Reservations**\
-`The pro-Israel group has been preparing to spend big for Mike Rogers, the Republican nominee for Senate in Michigan. Does he want that?`\
-https://www.nytimes.com/2026/08/24/us/politics/aipac-rogers-michigan-senate.html
-
-**As El Niño Dries Indonesia, Wildfires Intensify**\
-`The unusual weather pattern and dried out peatlands, a kind of wetland, have been behind some of the country’s worst fire seasons. This year could be one.`\
-https://www.nytimes.com/2026/08/24/world/asia/indonesia-el-nino-borneo-fire.html
-
-**Quote of the Day: Polling’s Wild West Landscape Creates Problems in November**\
-`Quotation of the Day for Monday, August 24, 2026.`\
-https://www.nytimes.com/2026/08/24/pageoneplus/quote-of-the-day-pollings-wild-west-landscape-creates-problems-in-november.html
-
-**‘Lanterns’ Season 1, Episode 2 Recap: Keep Superheroes Weird**\
-`This week’s episode gave us better look at what the life of a world famous superhero is like. It isn’t particularly glamorous.`\
-https://www.nytimes.com/2026/08/23/arts/television/lanterns-recap-season-1-episode-2.html
-
-**Butter-Basted Chicken Breasts**\
-`For juicy, bronzed and flavorful chicken breasts, all it takes is a butter-baste.`\
-https://www.nytimes.com/video/dining/100000011103615/butter-basted-chicken-breasts.html
-
-**3 Cyclists Die in One Week in Hit-and-Runs in New York City**\
-`Those who died were all on e-bikes. Seventeen cyclists have been killed so far this year, and advocate groups said the deaths should be a rallying cry for safety improvements.`\
-https://www.nytimes.com/2026/08/23/nyregion/nyc-cycling-bike-deaths.html
 
