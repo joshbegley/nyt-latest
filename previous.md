@@ -1,4 +1,16 @@
-**A Suspect Was Outrunning the Police, So They Jumped in an Uber**\
+**Supreme Court Allows Trump Plan to Restrict Mail-In Voting, for Now**\
+`The administration asked the court to clear the way for President Trump’s order that creates “state citizenship lists” and directs the Postal Service to decide who gets a mail-in ballot.`\
+https://www.nytimes.com/2026/08/24/us/politics/supreme-court-trump-mail-ballots.html
+
+**What Do A.I. Companies Really Do With Data They Purchase?**\
+`Data is often used to train A.I. models through reinforcement learning, in which entire companies are recreated as simulations for A.I. models to interact with.`\
+https://www.nytimes.com/video/podcasts/100000011110545/what-do-ai-companies-really-do-with-data-they-purchase.html
+
+**Take 10 Seconds to Read This Ezra Pound Poem. Think About It All Day.**\
+`People-watchers, trainspotters and A.O. Scott agree: Ezra Pound’s “In a Station of the Metro” is one of the shortest great poems in English.`\
+https://www.nytimes.com/interactive/2026/08/24/books/ezra-pound-poem-station-metro.html
+
+**A Suspect Was Outrunning the Police. So the Officers Jumped in an Uber.**\
 `Anthony Baines was on his way to pick up an Uber customer in Houston. Then, suddenly, he was driving two officers in a low-speed pursuit.`\
 https://www.nytimes.com/2026/08/24/us/anthony-baines-houston-police-pursuit.html
 
@@ -185,16 +197,4 @@ https://www.nytimes.com/interactive/polls/arizona-voter-id-citizenship-amendment
 **Who Is Ahead in Maryland's 1st Congressional District?**\
 `Track the latest polls in Maryland's 1st Congressional District.`\
 https://www.nytimes.com/interactive/polls/maryland-us-house-1-polls-2026.html
-
-**U.S. Military Kills 2 People in Attack on Boat in Pacific**\
-`The United States has killed at least 223 people since its campaign of boat strikes began nearly a year ago.`\
-https://www.nytimes.com/2026/08/24/us/politics/military-boat-strike.html
-
-**The Ruthless Efficiency of Ultrapotent Street Drugs**\
-`Five decades after the “war on drugs” sought to make substance abuse unaffordable, illicit drugs are cheaper and more powerful than ever. A visit to Baltimore shows why.`\
-https://www.nytimes.com/2026/08/24/science/drugs-opioids-fentanyl-baltimore.html
-
-**Las últimas batallas de Hayden Panettiere antes de morir**\
-`En sus últimos meses, la actriz enfrentaba un misterioso dolor físico y los estragos de una relación abusiva de la que intentaba escapar.`\
-https://www.nytimes.com/es/2026/08/24/espanol/cultura/hayden-panettiere-brian-hickerson-novio-maltrato-libro.html
 
