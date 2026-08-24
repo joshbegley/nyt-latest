@@ -1,3 +1,7 @@
+**Trump Lays It on the Line for Darline Graham Ahead of South Carolina Runoff**\
+`The president rallied for the sister of Lindsey Graham in her South Carolina Senate run and pressured allies to endorse her. A super PAC run by his advisers has spent nearly $800,000 on her campaign. Will it be enough?`\
+https://www.nytimes.com/2026/08/24/us/politics/trump-graham-south-carolina-endorsement.html
+
 **The Local: Walkie-talkies for grief**\
 `And a special Minnesota-themed crossword just for you.`\
 https://www.nytimes.com/2026/08/24/us/the-local-annunciation-grief.html
