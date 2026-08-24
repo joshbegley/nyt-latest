@@ -1,3 +1,11 @@
+**Trump Administration Announces New Series of Sanctions Against Iran**\
+`Scott Bessent, secretary of the Treasury, unveiled what the administration describes as its most comprehensive assault to date on Iran’s economy. The plan, called Operation Economic Outcast, would sanction more than 60 entities that aid Iran’s nuclear and missile programs.`\
+https://www.nytimes.com/video/us/politics/100000011110093/bessent-iran-nuclear-sanctions.html
+
+**Gov. Kathy Hochul, Five Years In, Makes Her Case for Four More**\
+`Ms. Hochul, who ascended to the governorship in the depths of the pandemic, believes that New York is back. She hopes she has persuaded New Yorkers.`\
+https://www.nytimes.com/2026/08/24/nyregion/kathy-hochul-new-york-governor-anniversary.html
+
 **Martha’s Vineyard Property Once Owned by Jackie Kennedy Onassis Is Now Open to All**\
 `Visitors to Martha’s Vineyard can now traverse a property once owned by Jackie Kennedy Onassis. Known as the Squibnocket Pond Reservation, the 330-acre reserve opened last year and added a new trail in July.`\
 https://www.nytimes.com/video/us/100000011110027/jackie-kennedy-onassis-marthas-vineyard.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/24/opinion/ultraprocessed-food-industry-maha.htm
 **Nevada Wildfire Forces Thousands to Evacuate Reno Area**\
 `Officials in Nevada formally ordered about 42,000 people to evacuate the Reno area as a growing wildfire continued to approach the city.`\
 https://www.nytimes.com/video/us/100000011109183/reno-wildfire-evacutions.html
-
-**More Companies Are Promising Cloud Seeding Can Make Rain**\
-`States are spending millions of dollars on cloud-seeding technology, backed by new data on its effectiveness — and driven by desperation for water.`\
-https://www.nytimes.com/2026/08/24/climate/cloud-seeding-west-drought-rain.html
-
-**Trump Threatens New 50% Tariffs on Cars, Trucks and Steel as U.S.-Canada Trade War Unfolds**\
-`President Trump vowed to increase tariffs on cars, trucks, auto parts and steel to 50 percent starting Jan. 1, as the countries edged toward a full-blown trade war.`\
-https://www.nytimes.com/2026/08/24/business/economy/trump-canada-tariffs.html
 
