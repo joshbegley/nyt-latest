@@ -62,7 +62,7 @@ https://www.nytimes.com/2026/08/23/us/politics/trump-republicans-economy-midterm
 `The 68-year-old tourist and his companion were driving through Death Valley National Park on a remote road last week when their car got stuck in mud, officials said.`\
 https://www.nytimes.com/2026/08/23/us/french-tourist-dead-death-valley.html
 
-**Trump’s Summer of Fun Ends With an IndyCar Race on the Streets of D.C.**\
+**Trump’s Summer of Fun Ends With IndyCar Race on Streets of D.C.**\
 `It was the final, major event planned for the nation’s 250th anniversary celebrations. The president took a lap.`\
 https://www.nytimes.com/2026/08/23/us/politics/trump-indycar-race-dc-america-250.html
 

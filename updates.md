@@ -1,3 +1,7 @@
+**Trump’s Summer of Fun Ends With IndyCar Race on Streets of D.C.**\
+`It was the final, major event planned for the nation’s 250th anniversary celebrations. The president took a lap.`\
+https://www.nytimes.com/2026/08/23/us/politics/trump-indycar-race-dc-america-250.html
+
 **A $4 Billion Plan to Fix Part of a Crumbling N.Y.C. Highway**\
 `Officials will announce Monday their plan to overhaul the section of the highway that belongs to New York City. The road needs quick repair to remain safe for driving.`\
 https://www.nytimes.com/2026/08/24/nyregion/bqe-highway-redesign-2030.html
