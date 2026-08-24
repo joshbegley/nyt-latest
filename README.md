@@ -1,3 +1,11 @@
+**Laptop Fire on American Airlines Flight Injures at Least One Passenger**\
+`Flight attendants used a fireproof bag to contain the computer after its lithium battery began smoking. One passenger was treated on the ground for injuries.`\
+https://www.nytimes.com/2026/08/24/travel/american-airlines-laptop-fire.html
+
+**Canadá le dijo no a Trump. Y habrá consecuencias en el mundo**\
+`Mark Carney elige el camino difícil, pero hizo aquello para lo que los canadienses lo eligieron: defender a Canadá.`\
+https://www.nytimes.com/es/2026/08/24/espanol/opinion/canada-trump-aranceles-guerra-economia.html
+
 **Muere el ‘niño lobo de Sierra Morena’ a los 80 años**\
 `La increíble historia de la infancia salvaje de Marcos Rodríguez Pantoja se convirtió en objeto de un estudio, además de inspirar una novela y una película.`\
 https://www.nytimes.com/es/2026/08/24/espanol/mundo/muere-nino-lobo-sierra-morena.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/24/crosswords/connections-companion-1171.html
 **Today’s Wordle Hints for August 25, 2026**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, Aug. 25, 2026.`\
 https://www.nytimes.com/2026/08/24/crosswords/wordle-review-1893.html
-
-**NYT Strands Hints for August 25, 2026**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, Aug. 25, 2026.`\
-https://www.nytimes.com/2026/08/24/crosswords/strands-sidekick-905.html
-
-**Syria and Israel Hold U.S.-Mediated Talks to Try to Ease Tensions**\
-`The discussions, reported by the Syrian state news agency, came days after Israel struck an air base in Syria’s northwest, the latest in a series of military interventions.`\
-https://www.nytimes.com/2026/08/24/world/middleeast/syria-israel-talks-us-jordan.html
 
