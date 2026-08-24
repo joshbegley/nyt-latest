@@ -1,3 +1,7 @@
+**Butter-Basted Chicken Breasts**\
+`For juicy, bronzed and flavorful chicken breasts, all it takes is a butter-baste.`\
+https://www.nytimes.com/video/dining/100000011103615/butter-basted-chicken-breasts.html
+
 **3 Cyclists Die in One Week in Hit-and-Runs in New York City**\
 `Those who died were all on e-bikes. Seventeen cyclists have been killed so far this year, and advocate groups said the deaths should be a rallying cry for safety improvements.`\
 https://www.nytimes.com/2026/08/23/nyregion/nyc-cycling-bike-deaths.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/23/magazine/collien-fernandes-impersonators-germ
 **Angry Ohio Voters Could Turn Their State Purple Again**\
 `A governor’s race, a Senate contest and enough congressional contests to swing control of the House are all in play in Ohio, where voters of all stripes express a deep sense of powerlessness.`\
 https://www.nytimes.com/2026/08/23/us/politics/ohio-politics-voter-anger.html
-
-**Wildfires Are Turning Forests in the American West Into Shrubland**\
-`Towering woodlands in the West are being permanently replaced by tracts of spiky shrubs. Conditions “just aren’t normal anymore,” one researcher said.`\
-https://www.nytimes.com/2026/08/23/climate/wildfire-forest-loss-california-southwest.html
 
