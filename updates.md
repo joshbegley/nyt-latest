@@ -1,3 +1,7 @@
+**AIPAC Wants to Back This Republican, but He Has Some Reservations**\
+`The pro-Israel group has been preparing to spend big for Mike Rogers, the Republican nominee for Senate in Michigan. Does he want that?`\
+https://www.nytimes.com/2026/08/24/us/politics/aipac-rogers-michigan-senate.html
+
 **As El Niño Dries Indonesia, Wildfires Intensify**\
 `The unusual weather pattern and dried out peatlands, a kind of wetland, have been behind some of the country’s worst fire seasons. This year could be one.`\
 https://www.nytimes.com/2026/08/24/world/asia/indonesia-el-nino-borneo-fire.html

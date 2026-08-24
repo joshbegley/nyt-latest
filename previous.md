@@ -1,3 +1,7 @@
+**AIPAC Wants to Back This Republican, but He Has Some Reservations**\
+`The pro-Israel group has been preparing to spend big for Mike Rogers, the Republican nominee for Senate in Michigan. Does he want that?`\
+https://www.nytimes.com/2026/08/24/us/politics/aipac-rogers-michigan-senate.html
+
 **As El Niño Dries Indonesia, Wildfires Intensify**\
 `The unusual weather pattern and dried out peatlands, a kind of wetland, have been behind some of the country’s worst fire seasons. This year could be one.`\
 https://www.nytimes.com/2026/08/24/world/asia/indonesia-el-nino-borneo-fire.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/23/us/arizona-canals-colorado-river.html
 **Jeff Conolly, Manic Garage-Rock Frontman, Dies at 69**\
 `Known as Monoman for his love of vintage LPs, he kept the punkish torch burning by leading Lyres, a Boston group that became an institution.`\
 https://www.nytimes.com/2026/08/23/arts/music/jeff-conolly-dead.html
-
-**Eon Huntley, the Democratic Socialist Running for Office While Working at Bergdorf**\
-`For Eon Huntley, who won his primary in New York in June, good clothes and populist policies go together.`\
-https://www.nytimes.com/2026/08/23/style/eon-huntley-dsa-bergdorf-goodman.html
 
