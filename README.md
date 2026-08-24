@@ -19,8 +19,8 @@ https://www.nytimes.com/2026/08/24/us/uss-lincoln-sailor-father-arrested-immigra
 https://www.nytimes.com/2026/08/24/us/politics/trump-graham-south-carolina-endorsement.html
 
 **Man Who Told of a Childhood With Wolves Dies at 80**\
-`The improbable story of Marcos Rodríguez Pantoja’s wild youth became the subject of a study, as well as inspiring a novel and a film.`\
-https://www.nytimes.com/2026/08/24/world/europe/spain-wolf-boy-dies.html
+`Marcos Rodríguez Pantoja’s improbably story of a wild youth became the subject of a study, and inspired a novel and film.`\
+https://www.nytimes.com/2026/08/24/world/europe/spain-wolf-boy-dead.html
 
 **Can You Identify These Current Best Sellers?**\
 `Try this quiz on the titles book shoppers have been recently snapping up for their summer reading.`\
