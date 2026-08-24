@@ -1,3 +1,7 @@
+**Trump Threatens Even Higher Tariffs on Canadian Exports After Talks Unravel**\
+`The president renewed his threats against Canada on Monday. The countries are quickly entering a full-blown trade war.`\
+https://www.nytimes.com/2026/08/24/business/economy/trump-canada-tariffs.html
+
 **Don’t Harry and Meghan Know Better?**\
 `Given their past, what does a future in England hold for them?`\
 https://www.nytimes.com/2026/08/24/opinion/harry-meghan-return-england.html

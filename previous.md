@@ -1,3 +1,7 @@
+**Trump Threatens Even Higher Tariffs on Canadian Exports After Talks Unravel**\
+`The president renewed his threats against Canada on Monday. The countries are quickly entering a full-blown trade war.`\
+https://www.nytimes.com/2026/08/24/business/economy/trump-canada-tariffs.html
+
 **After Hugging Face Was Attacked By A.I. Agents, It Embarked on a Crusade**\
 `Hugging Face, a start-up that was breached by rogue bots from OpenAI, is using the hack to push for openness in A.I. development.`\
 https://www.nytimes.com/2026/08/24/technology/hugging-face-open-source-ai-attack.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/24/books/review/new-romance-books.html
 **Behind the Mysterious Symbols Spray-Painted on Our Streets**\
 `All over New York’s sidewalks and sewers, colored markings hide in plain sight, telling construction crews where to dig and creating accidental art.`\
 https://www.nytimes.com/2026/08/24/arts/design/street-symbols-michael-kimmelman.html
-
-**Even Millions of Stolen Books Cannot Satisfy Ravenous A.I. Chatbots**\
-`The model collapse scenario threatens to wipe out whatever gains chatbots like Claude enjoyed from being trained on books in the first place.`\
-https://www.nytimes.com/2026/08/24/opinion/claude-pirated-books-ai.html
 
