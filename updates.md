@@ -1,3 +1,7 @@
+**UK Prime Minister Burnham Arrives in Ukraine as Russia Amps Up Warnings**\
+`In his first foreign trip since taking office, the British Prime Minister pledged to stand by Kyiv despite new warnings of potential consequences.`\
+https://www.nytimes.com/2026/08/24/world/europe/uk-andy-burnham-ukraine-russia.html
+
 **Can You Identify These Current Best Sellers?**\
 `Try this quiz on the titles book shoppers have been recently snapping up for their summer reading.`\
 https://www.nytimes.com/quiz/2026/08/24/bookreview/best-sellers-quiz.html
