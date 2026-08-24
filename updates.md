@@ -1,3 +1,7 @@
+**UK Prime Minister Burnham Arrives in Ukraine as Russia Amps Up Warnings**\
+`In his first foreign trip since taking office, Prime Minister Andy Burnham affirmed support for Kyiv despite new warnings from Moscow of consequences for doing so.`\
+https://www.nytimes.com/2026/08/24/world/europe/uk-andy-burnham-ukraine-russia.html
+
 **¿Un nuevo auge petrolero en Argentina puede salvar su economía?**\
 `Miles de argentinos se están mudando a un pueblo remoto en busca de trabajo y provistos solo de mochilas, tiendas de campaña y la esperanza de que su país pueda revertir su suerte.`\
 https://www.nytimes.com/es/2026/08/24/espanol/america-latina/argentina-petroleo-patagonia-milei.html
