@@ -1,3 +1,15 @@
+**How Farmers Are Staying Afloat as Crop Prices Plunge**\
+`Most U.S. farmers will lose money this year. Landowners and investors are increasingly trying to make money from their land, not what can be grown from it.`\
+https://www.nytimes.com/2026/08/24/business/farmers-land-value-crop-prices-iowa.html
+
+**She Wrote About Other People’s Sex Lives, Then Wrote a Movie Based on Her Own**\
+`Karley Sciortino’s story of an erotic discovery became the basis for a film starring Olivia Wilde — updated with a Gen Z twist.`\
+https://www.nytimes.com/2026/08/24/style/karley-sciortino.html
+
+**Today, In Short**\
+`Investing. A.I. in china. And can Democrats win back the Senate?`\
+https://www.nytimes.com/2026/08/24/briefing/today-in-short.html
+
 **‘The Frontier of Algorithmic Fashion’**\
 `Private equity and Big Tech have infiltrated the fashion world. How did it happen, and how can consumers shop more intentionally?`\
 https://www.nytimes.com/video/opinion/100000011093298/the-frontier-of-algorithmic-fashion.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/08/24/us/politics/democrats-republicans-midterms-se
 **Trump Shuns E.V.s and Wind Power, But He’s Pouring Billions Into Batteries**\
 `The president may disdain clean energy tech, but energy storage is also crucial for A.I. and defense — and China’s dominance in the sector has officials worried.`\
 https://www.nytimes.com/2026/08/24/climate/trump-administration-batteries-data-centers.html
-
-**Los Angeles Dodgers Owner’s Troubles Roil Insurance World**\
-`Federal investigations of Mark Walter’s business empire have put a spotlight on private-equity-owned insurers that invest premiums in risky assets.`\
-https://www.nytimes.com/2026/08/24/business/mark-walter-insurance-dodgers-lakers.html
-
-**Netflix, YouTube and Amazon Want You to Watch Everything From One App: Theirs**\
-`YouTube is racing to catch up to Amazon, which already offers users the chance to subscribe to services like HBO Max from within its app. Netflix is increasingly open to the idea, too.`\
-https://www.nytimes.com/2026/08/24/business/media/amazon-youtube-netflix-streaming-platform.html
-
-**Diane Keaton’s L.A. ‘Pinterest’ House Sold for $18 Million**\
-`Months after the actress’s death, her beloved Los Angeles home has a new owner. The children’s author Marc Brown, of ‘Arthur’ fame, sold his Martha’s Vineyard compound.`\
-https://www.nytimes.com/2026/08/24/realestate/diane-keaton-marc-brown-celebrity-home-sales.html
 
