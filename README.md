@@ -1,3 +1,7 @@
+**California Cancels Talks With Paramount Over Warner Bros. Merger**\
+`Rob Bonta, California’s attorney general, accused Paramount of leaking and misrepresenting earlier settlement discussions. He is leading a group of 12 states that have sued to block the $111 billion deal.`\
+https://www.nytimes.com/2026/08/24/us/california-bonta-paramount-warner-settlement-talks.html
+
 **The Woman Guiding Tourists Through New York City’s Worst Day**\
 `Christina Stanton offers a very specific and deeply personal tour of the World Trade Center site to remind visitors what happened 25 years ago.`\
 https://www.nytimes.com/2026/08/24/nyregion/the-woman-guiding-tourists-through-new-york-citys-worst-day.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/23/us/politics/midterms-feel-like-2006-all-over-
 **Echoing Trump, Latin America’s Leaders Boost Allies Across Borders**\
 `With cheers, endorsements and insults for rivals and “wokismo,” a new crop of right-wing leaders are openly stepping into one another’s elections.`\
 https://www.nytimes.com/2026/08/23/world/americas/latin-america-leaders-trump.html
-
-**The World’s Breadbaskets Are Getting Pounded by War, Weather and Trade Spats**\
-`Bad harvests and attacks on trade passages threaten to drive food prices higher.`\
-https://www.nytimes.com/2026/08/23/climate/wheat-harvests-bread-prices-war-heat.html
 
