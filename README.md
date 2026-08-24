@@ -1,3 +1,7 @@
+**Sean Grayson, Ex-Illinois Deputy Who Murdered Sonya Massey, Dies in Prison**\
+`Sean Grayson, 32, was serving a 20-year sentence for the 2024 murder of Sonya Massey, who was holding a pot of hot water when she was shot at her home.`\
+https://www.nytimes.com/2026/08/24/us/sean-grayson-dead-sonya-massey.html
+
 **Opponents Sue to Stop Mamdani’s City-Owned Grocery Store Plan**\
 `A business group filed a lawsuit to stop New York City’s plan to open the five grocery stores, a campaign promise of Mayor Zohran Mamdani’s, arguing that it would hurt smaller stores.`\
 https://www.nytimes.com/2026/08/24/nyregion/mamdani-nyc-grocery-store-lawsuit.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/24/opinion/harry-meghan-return-england.html
 **College Students Worried About A.I. Should Study the Humanities**\
 `The future’s a riddle. Shakespeare isn’t.`\
 https://www.nytimes.com/2026/08/24/opinion/college-ai.html
-
-**How a Retired Performer and Part-Time Dog Sitter Lives on $31,500**\
-`After decades living in the East Village of Manhattan, Edward Arrocha is adapting to aging in the city alongside his Chihuahua sidekick, Tiny Girl.`\
-https://www.nytimes.com/interactive/2026/08/24/nyregion/nyc-budgeting-affordability-arrocha.html
 
