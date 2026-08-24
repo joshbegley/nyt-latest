@@ -1,3 +1,7 @@
+**Can You Identify These Current Best Sellers?**\
+`Try this quiz on the titles book shoppers have been recently snapping up for their summer reading.`\
+https://www.nytimes.com/quiz/2026/08/24/bookreview/best-sellers-quiz.html
+
 **Sean Grayson, Ex-Illinois Deputy Who Murdered Sonya Massey, Dies in Prison**\
 `Sean Grayson, 32, was serving a 20-year sentence for the 2024 murder of Sonya Massey, who was holding a pot of hot water when she was shot at her home.`\
 https://www.nytimes.com/2026/08/24/us/sean-grayson-dead-sonya-massey.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/08/24/espanol/opinion/nueva-guerra-civil-eeuu-tr
 **Don’t Harry and Meghan Know Better?**\
 `Given their past, what does a future in England hold for them?`\
 https://www.nytimes.com/2026/08/24/opinion/harry-meghan-return-england.html
-
-**College Students Worried About A.I. Should Study the Humanities**\
-`The future’s a riddle. Shakespeare isn’t.`\
-https://www.nytimes.com/2026/08/24/opinion/college-ai.html
 
