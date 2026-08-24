@@ -1,3 +1,11 @@
+**Martha’s Vineyard Property Once Owned by Jackie Kennedy Onassis Is Now Open to All**\
+`Visitors to Martha’s Vineyard can now traverse a property once owned by Jackie Kennedy Onassis. Known as the Squibnocket Pond Reservation, the 330-acre reserve opened last year and added a new trail in July.`\
+https://www.nytimes.com/video/us/100000011110027/jackie-kennedy-onassis-marthas-vineyard.html
+
+**Justices Allow Plans to Restrict Mail Voting, for Now**\
+`Also, the college admissions process is shifting once again. Here’s the latest at the end of Monday.`\
+https://www.nytimes.com/2026/08/24/briefing/supreme-court-mail-voting-restrictions.html
+
 **Trump Officials Propose Sale of ‘Woke’ Painting by Kehinde Wiley**\
 `The State Department recently removed the painting of Dominicans from a U.S. embassy, noting it was by the artist who made Barack Obama’s presidential portrait.`\
 https://www.nytimes.com/2026/08/24/arts/design/kehinde-wiley-painting-embassy-dominican-republic.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/24/climate/cloud-seeding-west-drought-rain.html
 **Trump Threatens New 50% Tariffs on Cars, Trucks and Steel as U.S.-Canada Trade War Unfolds**\
 `President Trump vowed to increase tariffs on cars, trucks, auto parts and steel to 50 percent starting Jan. 1, as the countries edged toward a full-blown trade war.`\
 https://www.nytimes.com/2026/08/24/business/economy/trump-canada-tariffs.html
-
-**After Hugging Face Was Attacked By A.I. Agents, It Embarked on a Crusade**\
-`Hugging Face, a start-up that was breached by rogue bots from OpenAI, is using the hack to push for openness in A.I. development.`\
-https://www.nytimes.com/2026/08/24/technology/hugging-face-open-source-ai-attack.html
-
-**With Trump Against Him, Can Ralph Norman Win in South Carolina?**\
-`The ultraconservative congressman who has broken with the president on spending is hoping voters reward his experience, contrarian streak and all.`\
-https://www.nytimes.com/2026/08/24/us/politics/ralph-norman-trump-south-carolina.html
 
