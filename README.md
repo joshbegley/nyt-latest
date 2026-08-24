@@ -1,3 +1,7 @@
+**A $4 Billion Plan to Fix Part of a Crumbling N.Y.C. Highway**\
+`Officials will announce Monday their plan to overhaul the section of the highway that belongs to New York City. The road needs quick repair to remain safe for driving.`\
+https://www.nytimes.com/2026/08/24/nyregion/bqe-highway-redesign-2030.html
+
 **California Cancels Talks With Paramount Over Warner Bros. Merger**\
 `The attorney general of California, one of 12 states suing to block the $111 billion deal, accused Paramount of leaking and misrepresenting earlier settlement discussions.`\
 https://www.nytimes.com/2026/08/24/us/california-bonta-paramount-warner-settlement-talks.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/23/us/politics/data-centers-midterm-elections.ht
 **The Midterms Feel Like 2006 All Over Again**\
 `With an unpopular war and high prices agitating voters, members of both parties see parallels to an election cycle when Democrats romped. But a lot has changed.`\
 https://www.nytimes.com/2026/08/23/us/politics/midterms-feel-like-2006-all-over-again.html
-
-**Echoing Trump, Latin America’s Leaders Boost Allies Across Borders**\
-`With cheers, endorsements and insults for rivals and “wokismo,” a new crop of right-wing leaders are openly stepping into one another’s elections.`\
-https://www.nytimes.com/2026/08/23/world/americas/latin-america-leaders-trump.html
 
