@@ -1,3 +1,11 @@
+**Muere el ‘niño lobo de Sierra Morena’ a los 80 años**\
+`La increíble historia de la infancia salvaje de Marcos Rodríguez Pantoja se convirtió en objeto de un estudio, además de inspirar una novela y una película.`\
+https://www.nytimes.com/es/2026/08/24/espanol/mundo/muere-nino-lobo-sierra-morena.html
+
+**Man Who Told of a Childhood With Wolves Dies at 80**\
+`Marcos Rodríguez Pantoja’s improbably story of a wild youth became the subject of a study, and inspired a novel and film.`\
+https://www.nytimes.com/2026/08/24/world/europe/spain-wolf-boy-dead.html
+
 **The Washington Post deberá recontratar a una columnista despedida**\
 `Una árbitra ordenó al periódico restituir a Karen Attiah, quien fue despedida por sus publicaciones en redes sociales sobre el asesinato de Charlie Kirk.`\
 https://www.nytimes.com/es/2026/08/24/espanol/negocios/washington-post-columnista-despedida-charlie-kirk.html
