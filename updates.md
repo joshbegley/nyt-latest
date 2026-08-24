@@ -1,3 +1,7 @@
+**Syria and Israel Hold U.S.-Mediated Talks to Try to Ease Tensions**\
+`The discussions, reported by the Syrian state news agency, came days after Israel struck an air base in Syria’s northwest, the latest in a series of military interventions.`\
+https://www.nytimes.com/2026/08/24/world/middleeast/syria-israel-talks-us-jordan.html
+
 **U.S. Marines Cancel Drill With South Korea, Citing Iran War Demands**\
 `The move to call off the high-profile event was communicated in June, South Korea said. President Trump shortened another joint military exercise earlier this month.`\
 https://www.nytimes.com/2026/08/24/world/asia/us-south-korea-military-drills-iran.html
