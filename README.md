@@ -1,4 +1,12 @@
-**An ‘Economic D-Day’ That Must Overcome a Troubled History**\
+**NYC’s 911 System Had an Outage. Officials Kept Quiet About It.**\
+`When a partial breakdown of the system occurred last week, New York City officials did not inform the public.`\
+https://www.nytimes.com/2026/08/24/nyregion/mamdani-911-outage-nyc.html
+
+**References to ‘Mortal Sin’ Anger Judge and Defense in Clancy Trial**\
+`The religious reference by a prosecution witness on Monday incensed the presiding judge, who sternly instructed jurors to disregard it. Lindsay Clancy’s lawyer asked for a mistrial.`\
+https://www.nytimes.com/2026/08/24/us/lindsay-clancy-trial-religion-catholic.html
+
+**Trump’s ‘Economic D-Day’ for Iran Must Overcome a Troubled History**\
 `The U.S. has spent 20 years promising ‘crippling sanctions’ on Iran. But the latest effort comes with a reverse twist, after military action failed to accomplish President Trump’s goals.`\
 https://www.nytimes.com/2026/08/24/us/politics/trump-bessent-iran-economic-d-day.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/24/business/farmers-land-value-crop-prices-iowa.
 **Karley Sciortino’s Story of an Erotic Discovery Becomes a Film**\
 `Karley Sciortino’s story of an erotic discovery became the basis for a film starring Olivia Wilde — updated with a Gen Z twist.`\
 https://www.nytimes.com/2026/08/24/style/karley-sciortino-i-want-your-sex.html
-
-**Today, In Short**\
-`Investing. A.I. in china. And can Democrats win back the Senate?`\
-https://www.nytimes.com/2026/08/24/briefing/today-in-short.html
-
-**‘The Frontier of Algorithmic Fashion’**\
-`Private equity and Big Tech have infiltrated the fashion world. How did it happen, and how can consumers shop more intentionally?`\
-https://www.nytimes.com/video/opinion/100000011093298/the-frontier-of-algorithmic-fashion.html
 
