@@ -1,3 +1,7 @@
+**Can You Identify These Current Best Sellers?**\
+`Try this quiz on the titles book shoppers have been recently snapping up for their summer reading.`\
+https://www.nytimes.com/quiz/2026/08/24/bookreview/best-sellers-quiz.html
+
 **Sean Grayson, Ex-Illinois Deputy Who Murdered Sonya Massey, Dies in Prison**\
 `Sean Grayson, 32, was serving a 20-year sentence for the 2024 murder of Sonya Massey, who was holding a pot of hot water when she was shot at her home.`\
 https://www.nytimes.com/2026/08/24/us/sean-grayson-dead-sonya-massey.html
