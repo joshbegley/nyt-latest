@@ -1,3 +1,7 @@
+**Is the Supreme Court’s Shadow Docket Changing?**\
+`The Supreme Court’s emergency docket has shrunk in recent months, and the way justices issue opinions on these cases has also changed. Our reporter Ann Marimow looks at what these shifts tell us about the justices, and what it could mean for the court.`\
+https://www.nytimes.com/video/us/politics/100000011086271/is-the-supreme-courts-shadow-docket-changing.html
+
 **Is Trump’s Endorsement of Darline Graham Enough in South Carolina Senate Runoff?**\
 `The president has made a big bet on a senator’s sister.`\
 https://www.nytimes.com/2026/08/24/us/politics/trump-darline-graham-south-carolina-runoff.html

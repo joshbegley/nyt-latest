@@ -1,3 +1,7 @@
+**Is the Supreme Court’s Shadow Docket Changing?**\
+`The Supreme Court’s emergency docket has shrunk in recent months, and the way justices issue opinions on these cases has also changed. Our reporter Ann Marimow looks at what these shifts tell us about the justices, and what it could mean for the court.`\
+https://www.nytimes.com/video/us/politics/100000011086271/is-the-supreme-courts-shadow-docket-changing.html
+
 **Is Trump’s Endorsement of Darline Graham Enough in South Carolina Senate Runoff?**\
 `The president has made a big bet on a senator’s sister.`\
 https://www.nytimes.com/2026/08/24/us/politics/trump-darline-graham-south-carolina-runoff.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/24/us/politics/ralph-norman-trump-south-carolina
 **Anatomy of an Autonomous Attack: 5 Alarming A.I. Capabilities**\
 `When OpenAI’s agents went rogue in July, they demonstrated ingenuity and drive beyond what many experts imagined — a dangerous harbinger of what such bots could do in the future.`\
 https://www.nytimes.com/2026/08/24/science/openai-huggingface-alarming-capabilities.html
-
-**Iran Pledges to Defy Trump’s Economic Sanctions**\
-`Analysts say Tehran could intensify the dispute militarily after the United States announced new efforts to squeeze Iran’s economy.  One Iranian official vowed that “not a single drop of oil” would leave the gulf.`\
-https://www.nytimes.com/2026/08/24/world/middleeast/iran-sanctions-economy-us-trump.html
 
