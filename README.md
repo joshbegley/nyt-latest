@@ -1,3 +1,15 @@
+**Mark Carney Did What Canadians Elected Him to Do**\
+`Mark Carney has chosen suffering, but he did what Canadians elected him to do.`\
+https://www.nytimes.com/2026/08/24/opinion/mark-carney-tariffs-canada-america.html
+
+**‘Adults’ and 6 More Shows to Watch on TV This Week**\
+`The FX comedy returns for a second season, and a true crime documentary airs.`\
+https://www.nytimes.com/2026/08/24/arts/television/adults-and-6-more-shows-to-watch-on-tv-this-week.html
+
+**Let Iran Control the Strait of Hormuz**\
+`President Trump needs to face reality on the Strait of Hormuz.`\
+https://www.nytimes.com/2026/08/24/opinion/iran-strait-of-hormuz-oil-trump.html
+
 **AIPAC Wants to Back This Republican, but He Has Some Reservations**\
 `The pro-Israel group has been preparing to spend big for Mike Rogers, the Republican nominee for Senate in Michigan. Does he want that?`\
 https://www.nytimes.com/2026/08/24/us/politics/aipac-rogers-michigan-senate.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/08/23/business/jimmy-iovine-dr-dre-beats-usc.html
 **How Big Tech Captured American Schools**\
 `Companies like Google and Microsoft have used their money, their might and their massive reach to influence nearly every step of the education supply chain.`\
 https://www.nytimes.com/2026/08/23/business/schools-big-tech-google-microsoft.html
-
-**Book Review: ‘Up on Cove Mountain,’ by Earl Swift**\
-`In “Up on Cove Mountain” Earl Swift confronts a place — and a tragedy — that haunts him.`\
-https://www.nytimes.com/2026/08/23/books/review/earl-swift-up-on-cove-mountain.html
-
-**America’s Desert Metropolis Is on the Short List to Lose Water**\
-`Decades ago, Arizona won funding for a massive Colorado River project by agreeing to be first in line for cuts at a time of deep drought. The Trump administration says that time has come.`\
-https://www.nytimes.com/2026/08/23/us/arizona-canals-colorado-river.html
-
-**Jeff Conolly, Manic Garage-Rock Frontman, Dies at 69**\
-`Known as Monoman for his love of vintage LPs, he kept the punkish torch burning by leading Lyres, a Boston group that became an institution.`\
-https://www.nytimes.com/2026/08/23/arts/music/jeff-conolly-dead.html
 
