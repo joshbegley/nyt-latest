@@ -1,3 +1,15 @@
+**Martha’s Vineyard Property Once Owned by Jackie Kennedy Onassis Is Now Open to All**\
+`Visitors to Martha’s Vineyard can now traverse a property once owned by Jackie Kennedy Onassis. Known as the Squibnocket Pond Reservation, the 330-acre reserve opened last year and added a new trail in July.`\
+https://www.nytimes.com/video/us/100000011110027/jackie-kennedy-onassis-marthas-vineyard.html
+
+**Justices Allow Plans to Restrict Mail Voting, for Now**\
+`Also, the college admissions process is shifting once again. Here’s the latest at the end of Monday.`\
+https://www.nytimes.com/2026/08/24/briefing/supreme-court-mail-voting-restrictions.html
+
+**Trump Officials Propose Sale of ‘Woke’ Painting by Kehinde Wiley**\
+`The State Department recently removed the painting of Dominicans from a U.S. embassy, noting it was by the artist who made Barack Obama’s presidential portrait.`\
+https://www.nytimes.com/2026/08/24/arts/design/kehinde-wiley-painting-embassy-dominican-republic.html
+
 **Is the Supreme Court’s Shadow Docket Changing?**\
 `The Supreme Court’s emergency docket has shrunk in recent months, and the way justices issue opinions on these cases has also changed. Our reporter Ann Marimow looks at what these shifts tell us about the justices, and what it could mean for the court.`\
 https://www.nytimes.com/video/us/politics/100000011086271/is-the-supreme-courts-shadow-docket-changing.html
