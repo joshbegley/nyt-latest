@@ -1,3 +1,11 @@
+**Is Trump’s Endorsement of Darline Graham Enough in South Carolina Senate Runoff?**\
+`The president has made a big bet on a senator’s sister.`\
+https://www.nytimes.com/2026/08/24/us/politics/trump-darline-graham-south-carolina-runoff.html
+
+**Karen Solomon, Wife Charged in Massachusetts Officer’s Death, Is Believed Dead**\
+`Karen Solomon, 58, a longtime advocate for the mental health of emergency workers, had been missing for six days after her husband, a police officer, was found dead.`\
+https://www.nytimes.com/2026/08/24/us/karen-solomon-dead-worcester.html
+
 **Supreme Court Allows Trump Plan to Restrict Mail-In Voting, for Now**\
 `The administration asked the court to clear the way for President Trump’s order that creates “state citizenship lists” and directs the Postal Service to decide who gets a mail-in ballot.`\
 https://www.nytimes.com/2026/08/24/us/politics/supreme-court-trump-mail-ballots.html
