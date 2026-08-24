@@ -1,3 +1,7 @@
+**The Washington Post deberá recontratar a una columnista despedida**\
+`Una árbitra ordenó al periódico restituir a Karen Attiah, quien fue despedida por sus publicaciones en redes sociales sobre el asesinato de Charlie Kirk.`\
+https://www.nytimes.com/es/2026/08/24/espanol/negocios/washington-post-columnista-despedida-charlie-kirk.html
+
 **Irán dice que no se doblegará ante la presión económica de Trump**\
 `Algunos analistas afirman que Teherán podría intensificar la disputa militarmente tras los intentos de estrangular su economía. Un funcionario iraní prometió que “ni una sola gota de petróleo” saldría del golfo Pérsico.`\
 https://www.nytimes.com/es/2026/08/24/espanol/mundo/iran-trump-guerra-economica.html
