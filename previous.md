@@ -1,3 +1,7 @@
+**Where Iran’s Young People Gather, the Government Sees Threats to Its Authority**\
+`In recent weeks, the police have closed dozens of cafes, often citing laws that stipulate women must veil in public. Experts say the closures are part of an effort to control public space.`\
+https://www.nytimes.com/2026/08/24/world/middleeast/iran-cafe-closures.html
+
 **A $4 Billion Plan to Fix Part of a Crumbling N.Y.C. Highway**\
 `Officials will announce Monday their plan to overhaul the section of the highway that belongs to New York City. The road needs quick repair to remain safe for driving.`\
 https://www.nytimes.com/2026/08/24/nyregion/bqe-highway-redesign-2030.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/23/pageoneplus/corrections-aug-23-2026.html
 **The Data Center Backlash Bursts Into the Midterms**\
 `With opposition to the centers mounting, many Democrats and a growing number of Republicans are campaigning against them.`\
 https://www.nytimes.com/2026/08/23/us/politics/data-centers-midterm-elections.html
-
-**The Midterms Feel Like 2006 All Over Again**\
-`With an unpopular war and high prices agitating voters, members of both parties see parallels to an election cycle when Democrats romped. But a lot has changed.`\
-https://www.nytimes.com/2026/08/23/us/politics/midterms-feel-like-2006-all-over-again.html
 

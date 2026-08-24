@@ -1,3 +1,7 @@
+**Where Iran’s Young People Gather, the Government Sees Threats to Its Authority**\
+`In recent weeks, the police have closed dozens of cafes, often citing laws that stipulate women must veil in public. Experts say the closures are part of an effort to control public space.`\
+https://www.nytimes.com/2026/08/24/world/middleeast/iran-cafe-closures.html
+
 **Trump’s Summer of Fun Ends With IndyCar Race on Streets of D.C.**\
 `It was the final, major event planned for the nation’s 250th anniversary celebrations. The president took a lap.`\
 https://www.nytimes.com/2026/08/23/us/politics/trump-indycar-race-dc-america-250.html
