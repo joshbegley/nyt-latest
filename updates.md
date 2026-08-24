@@ -1,3 +1,15 @@
+**How Farmers Are Staying Afloat as Crop Prices Plunge**\
+`Most U.S. farmers will lose money this year. Landowners and investors are increasingly trying to make money from their land, not what can be grown from it.`\
+https://www.nytimes.com/2026/08/24/business/farmers-land-value-crop-prices-iowa.html
+
+**She Wrote About Other People’s Sex Lives, Then Wrote a Movie Based on Her Own**\
+`Karley Sciortino’s story of an erotic discovery became the basis for a film starring Olivia Wilde — updated with a Gen Z twist.`\
+https://www.nytimes.com/2026/08/24/style/karley-sciortino.html
+
+**Today, In Short**\
+`Investing. A.I. in china. And can Democrats win back the Senate?`\
+https://www.nytimes.com/2026/08/24/briefing/today-in-short.html
+
 **‘The Frontier of Algorithmic Fashion’**\
 `Private equity and Big Tech have infiltrated the fashion world. How did it happen, and how can consumers shop more intentionally?`\
 https://www.nytimes.com/video/opinion/100000011093298/the-frontier-of-algorithmic-fashion.html
