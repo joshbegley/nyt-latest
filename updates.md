@@ -1,3 +1,23 @@
+**A Very Chill Chili Bean Salad**\
+`Hetty Lui McKinnon’s five-star no-cook chili bean salad is perfect for when you want chili, but you don’t want to turn on the stove.`\
+https://www.nytimes.com/2026/08/24/dining/a-very-chill-chili-bean-salad.html
+
+**Big Food Is Winning the War for America’s Diet**\
+`The federal government was supposed to release a definition of ultraprocessed foods. What happened?`\
+https://www.nytimes.com/2026/08/24/opinion/ultraprocessed-food-industry-maha.html
+
+**Nevada Wildfire Forces Thousands to Evacuate Reno Area**\
+`Officials in Nevada formally ordered about 42,000 people to evacuate the Reno area as a growing wildfire continued to approach the city.`\
+https://www.nytimes.com/video/us/100000011109183/reno-wildfire-evacutions.html
+
+**More Companies Are Promising Cloud Seeding Can Make Rain**\
+`States are spending millions of dollars on cloud seeding technology, backed by new data on its effectiveness — and driven by desperation for water.`\
+https://www.nytimes.com/2026/08/24/climate/cloud-seeding-west-drought-rain.html
+
+**Trump Threatens New 50% Tariffs on Cars, Trucks and Steel as U.S.-Canada Trade War Unfolds**\
+`President Trump vowed to increase tariffs on cars, trucks, auto parts and steel to 50 percent starting Jan. 1, as the countries edged toward a full-blown trade war.`\
+https://www.nytimes.com/2026/08/24/business/economy/trump-canada-tariffs.html
+
 **Trump Threatens Even Higher Tariffs on Canadian Exports After Talks Unravel**\
 `President Trump vowed to increase tariffs on cars, trucks, auto parts and steel to 50 percent starting Jan. 1, as the countries edged toward a full-blown trade war.`\
 https://www.nytimes.com/2026/08/24/business/economy/trump-canada-tariffs.html

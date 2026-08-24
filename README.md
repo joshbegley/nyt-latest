@@ -1,3 +1,11 @@
+**El ejército de EE. UU. ataca a otra embarcación en el Pacífico y mata a 2 personas**\
+`Al menos 223 personas han muerto desde que la campaña de Estados Unidos contra embarcaciones comenzó hace casi un año.`\
+https://www.nytimes.com/es/2026/08/24/espanol/estados-unidos/ejercito-ataque-barco-pacifico.html
+
+**Firefighters Grapple With Nevada Blaze That Drove Thousands From Homes**\
+`The Hawk fire has burned more than 15,000 acres since it began on Saturday in the foothills of the Sierra Nevada near Reno.`\
+https://www.nytimes.com/2026/08/24/us/reno-nevada-hawk-fire-wildfire.html
+
 **A Very Chill Chili Bean Salad**\
 `Hetty Lui McKinnon’s five-star no-cook chili bean salad is perfect for when you want chili, but you don’t want to turn on the stove.`\
 https://www.nytimes.com/2026/08/24/dining/a-very-chill-chili-bean-salad.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/24/world/europe/ukraine-war-nvidia-ai-autonomous
 **Can ‘Lymphatic Workouts’ Really Help With Bloating or Swelling?**\
 `Some influencers promote specific exercise routines, like walking or jumping, to reduce puffiness. Here’s what to know.`\
 https://www.nytimes.com/2026/08/24/well/move/lymphatic-walking-jumping-workouts.html
-
-**Visiting the Stunning Coast of the Overlooked Italian Region of Calabria**\
-`In Italy’s overlooked deep-south region, this shoreline of ancient towns and gorgeous beaches teems with traces of past civilizations in its traditions, cuisine and festivals.`\
-https://www.nytimes.com/2026/08/24/travel/calabria-italy-coast.html
-
-**A Tree With Ties to Anne Frank Struggles to Survive**\
-`The tree, grown from a cutting of the Anne Frank tree in Amsterdam, is planted across from ground zero.`\
-https://www.nytimes.com/2026/08/24/nyregion/anne-frank-tree-ground-zero.html
 
