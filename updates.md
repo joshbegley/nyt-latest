@@ -1,3 +1,7 @@
+**Butter-Basted Chicken Breasts**\
+`For juicy, bronzed and flavorful chicken breasts, all it takes is a butter-baste.`\
+https://www.nytimes.com/video/dining/100000011103615/butter-basted-chicken-breasts.html
+
 **3 Cyclists Die in One Week in Hit-and-Runs in New York City**\
 `Those who died were all on e-bikes. Seventeen cyclists have been killed so far this year, and advocate groups said the deaths should be a rallying cry for safety improvements.`\
 https://www.nytimes.com/2026/08/23/nyregion/nyc-cycling-bike-deaths.html
