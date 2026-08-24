@@ -162,7 +162,7 @@ https://www.nytimes.com/2026/08/24/nyregion/anne-frank-tree-ground-zero.html
 `Thousands of Argentines are flocking to a remote stretch of Patagonia, seeking work with only backpacks, tents and the hope that they and their country can turn around their fortunes.`\
 https://www.nytimes.com/2026/08/24/world/americas/argentina-oil-patagonia-milei.html
 
-**Iceland’s Murder Rate Is Off the Charts — in Its Books, at Least**\
+**Iceland’s Murder Rate Is Off the Charts (in Its Books, at Least)**\
 `The Nordic nation has almost no homicides, yet crime fiction is its favorite literary genre. That means writers face a challenge: making murder feel believable.`\
 https://www.nytimes.com/2026/08/24/books/iceland-crime-fiction.html
 
