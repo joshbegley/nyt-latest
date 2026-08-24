@@ -1,3 +1,7 @@
+**U.S.S. Abraham Lincoln Sailor Says Father Was Arrested by Border Patrol**\
+`The sailor, Joshua Aviles, was on his way home from the Middle East aboard the beleaguered aircraft carrier when he learned his father had been detained.`\
+https://www.nytimes.com/2026/08/24/us/uss-lincoln-sailor-father-arrested-immigration.html
+
 **Trump Lays It on the Line for Darline Graham Ahead of South Carolina Runoff**\
 `The president rallied for the sister of Lindsey Graham in her Senate run in South Carolina and pressured other allies to endorse her. A super PAC run by his advisers weighed in. Will it be enough?`\
 https://www.nytimes.com/2026/08/24/us/politics/trump-graham-south-carolina-endorsement.html

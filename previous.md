@@ -1,3 +1,7 @@
+**U.S.S. Abraham Lincoln Sailor Says Father Was Arrested by Border Patrol**\
+`The sailor, Joshua Aviles, was on his way home from the Middle East aboard the beleaguered aircraft carrier when he learned his father had been detained.`\
+https://www.nytimes.com/2026/08/24/us/uss-lincoln-sailor-father-arrested-immigration.html
+
 **Trump Lays It on the Line for Darline Graham Ahead of South Carolina Runoff**\
 `The president rallied for the sister of Lindsey Graham in her Senate run in South Carolina and pressured other allies to endorse her. A super PAC run by his advisers weighed in. Will it be enough?`\
 https://www.nytimes.com/2026/08/24/us/politics/trump-graham-south-carolina-endorsement.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/08/24/espanol/america-latina/argentina-petroleo-
 **Una rutina de 20 minutos para fortalecer tus caderas**\
 `Estos ejercicios pueden ayudarte a desarrollar fuerza para evitar molestias y dolores.`\
 https://www.nytimes.com/es/2026/08/24/espanol/estilos-de-vida/rutina-ejercicios-gluteos-caderas.html
-
-**El príncipe Enrique y Meghan parten de California con su poder de estrellas desvaneciéndose**\
-`Como muchos otros antes que ellos, el príncipe Enrique y Meghan llegaron a Hollywood con grandes planes. Se van con su poder estelar desvaneciéndose.`\
-https://www.nytimes.com/es/2026/08/24/espanol/estados-unidos/harry-meghan-fracaso-hollywood.html
 
