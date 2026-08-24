@@ -1,3 +1,19 @@
+**Una juez ordena que vuelva de México a EE. UU. un deportado en riesgo de tortura**\
+`Había sido enviado de vuelta a su país de origen después de ayudar a las autoridades federales al testificar contra cárteles mexicanos de la droga.`\
+https://www.nytimes.com/es/2026/08/24/espanol/orden-deportado-mexico-tortura.html
+
+**The Mayor Went on Vacation. He Didn’t Travel Very Far.**\
+`Zohran Mamdani is known for working around the clock as mayor of New York City, but last week he and his wife headed “upstate” for vacation and some locals were thrilled to spot them.`\
+https://www.nytimes.com/2026/08/24/nyregion/mamdani-mayor-upstate-ny-vacation.html
+
+**Trump Has Quietly Sought Control Over Postal Service to Transform U.S. Elections**\
+`That effort got new attention on Monday, when the Supreme Court allowed preparations for mail voting curbs to proceed. The justices said it is not a final determination on the order’s legality.`\
+https://www.nytimes.com/2026/08/24/us/politics/mail-voting-supreme-court-postal-service-trump.html
+
+**Indiana Governor Calls for NIPSCO to Be Investigated Over Power Outages After Gary Storms**\
+`Nearly 4,000 customers in the Gary area remained without electricity almost two weeks after an intense storm. The utility has pledged to restore power by Tuesday.`\
+https://www.nytimes.com/2026/08/24/us/gary-indiana-power-outage.html
+
 **Forensic Scientists Use ‘Breakthrough’ Method to Identify 9/11 Victim**\
 `DNA analysts at the New York City medical examiner’s office partnered with a squad of local detectives skilled at genealogical research.`\
 https://www.nytimes.com/2026/08/24/nyregion/dna-genealogy-science-victim-identification.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/interactive/2026/08/24/weather/saudel-map-path-tracker.h
 **What You Should Know About College Admissions Changes**\
 `After loosening requirements during the Covid era, some schools are shaking up admissions again, facing pressure from the Trump administration, A.I. and even their own professors.`\
 https://www.nytimes.com/2026/08/24/us/college-admissions-changes.html
-
-**El ejército de EE. UU. ataca a otra embarcación en el Pacífico y mata a 2 personas**\
-`Al menos 223 personas han muerto desde que la campaña de Estados Unidos contra embarcaciones comenzó hace casi un año.`\
-https://www.nytimes.com/es/2026/08/24/espanol/estados-unidos/ejercito-ataque-barco-pacifico.html
-
-**Fast-Moving Reno Wildfire Forces Thousands to Evacuate in Nevada**\
-`The Hawk fire has burned more than 15,000 acres since it began on Saturday in the foothills of the Sierra Nevada near Reno.`\
-https://www.nytimes.com/2026/08/24/us/reno-nevada-hawk-fire-wildfire.html
-
-**A Very Chill Chili Bean Salad**\
-`Hetty Lui McKinnon’s five-star no-cook chili bean salad is perfect for when you want chili, but you don’t want to turn on the stove.`\
-https://www.nytimes.com/2026/08/24/dining/a-very-chill-chili-bean-salad.html
-
-**Big Food Is Winning the War for America’s Diet**\
-`The federal government was supposed to release a definition of ultraprocessed foods. What happened?`\
-https://www.nytimes.com/2026/08/24/opinion/ultraprocessed-food-industry-maha.html
 

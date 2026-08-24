@@ -1,3 +1,7 @@
+**Louisiana Girl, 8, Dies After Contracting Rare Brain-Eating Amoeba**\
+`Lillian Smart most likely contracted the parasite while swimming in a lake in northwest Louisiana, the state Health Department and a family spokesman said.`\
+https://www.nytimes.com/2026/08/24/us/louisiana-child-dead-brain-eating-amoeba.html
+
 **Una juez ordena que vuelva de México a EE. UU. un deportado en riesgo de tortura**\
 `Había sido enviado de vuelta a su país de origen después de ayudar a las autoridades federales al testificar contra cárteles mexicanos de la droga.`\
 https://www.nytimes.com/es/2026/08/24/espanol/orden-deportado-mexico-tortura.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/opinion/100000011093298/the-frontier-of-algorithmi
 **Maps: Tracking Typhoon Saudel**\
 `See the likely path and wind arrival times for Saudel`\
 https://www.nytimes.com/interactive/2026/08/24/weather/saudel-map-path-tracker.html
-
-**What You Should Know About College Admissions Changes**\
-`After loosening requirements during the Covid era, some schools are shaking up admissions again, facing pressure from the Trump administration, A.I. and even their own professors.`\
-https://www.nytimes.com/2026/08/24/us/college-admissions-changes.html
 
