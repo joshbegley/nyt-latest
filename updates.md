@@ -1,3 +1,11 @@
+**U.S. Marines Cancel Drill With South Korea, Citing Iran War Demands**\
+`The move to call off the high-profile event was communicated in June, South Korea said. President Trump shortened another joint military exercise earlier this month.`\
+https://www.nytimes.com/2026/08/24/world/asia/us-south-korea-military-drills-iran.html
+
+**Chinese Robot Beats Usain Bolt’s 100-Meter Record**\
+`A humanoid robot beat Usain Bolt’s 100-meter dash record at the World Humanoid Robot Games in Beijing. It ended up running into a wall to stop and was carried away on a stretcher.`\
+https://www.nytimes.com/video/world/asia/100000011108916/100-meter-dash-humanoid-robot-games-usain-bolt.html
+
 **Chinese Robot Breaks Usain Bolt’s 100-Meter Record**\
 `A humanoid robot beat Usain Bolt’s 100-meter dash record at the World Humanoid Robot Games in Beijing. It ended up running into a wall to stop and was carried away on a stretcher.`\
 https://www.nytimes.com/video/world/asia/100000011108916/100-meter-dash-humanoid-robot-games-usain-bolt.html
