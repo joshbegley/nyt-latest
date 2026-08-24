@@ -1,3 +1,7 @@
+**UK Prime Minister Burnham Arrives in Ukraine as Russia Amps Up Warnings**\
+`In his first foreign trip since taking office, Prime Minister Andy Burnham affirmed support for Kyiv despite new warnings from Moscow of consequences for doing so.`\
+https://www.nytimes.com/2026/08/24/world/europe/uk-andy-burnham-ukraine-russia.html
+
 **¿Un nuevo auge petrolero en Argentina puede salvar su economía?**\
 `Miles de argentinos se están mudando a un pueblo remoto en busca de trabajo y provistos solo de mochilas, tiendas de campaña y la esperanza de que su país pueda revertir su suerte.`\
 https://www.nytimes.com/es/2026/08/24/espanol/america-latina/argentina-petroleo-patagonia-milei.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/24/crosswords/spelling-bee-forum.html
 **Mark Carney Did What Canadians Elected Him to Do**\
 `Mark Carney has chosen suffering, but he did what Canadians elected him to do.`\
 https://www.nytimes.com/2026/08/24/opinion/mark-carney-tariffs-canada-america.html
-
-**‘Adults’ and 6 More Shows to Watch on TV This Week**\
-`The FX comedy returns for a second season, and a true crime documentary airs.`\
-https://www.nytimes.com/2026/08/24/arts/television/adults-and-6-more-shows-to-watch-on-tv-this-week.html
 
