@@ -1,3 +1,11 @@
+**‘The Frontier of Algorithmic Fashion’**\
+`Private equity and Big Tech have infiltrated the fashion world. How did it happen, and how can consumers shop more intentionally?`\
+https://www.nytimes.com/video/opinion/100000011093298/the-frontier-of-algorithmic-fashion.html
+
+**Maps: Tracking Typhoon Saudel**\
+`See the likely path and wind arrival times for Saudel`\
+https://www.nytimes.com/interactive/2026/08/24/weather/saudel-map-path-tracker.html
+
 **What You Should Know About College Admissions Changes**\
 `After loosening requirements during the Covid era, some schools are shaking up admissions again, facing pressure from the Trump administration, A.I. and even their own professors.`\
 https://www.nytimes.com/2026/08/24/us/college-admissions-changes.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/24/business/media/amazon-youtube-netflix-streami
 **Diane Keaton’s L.A. ‘Pinterest’ House Sold for $18 Million**\
 `Months after the actress’s death, her beloved Los Angeles home has a new owner. The children’s author Marc Brown, of ‘Arthur’ fame, sold his Martha’s Vineyard compound.`\
 https://www.nytimes.com/2026/08/24/realestate/diane-keaton-marc-brown-celebrity-home-sales.html
-
-**Farmers Struggle to Get Basic Services From Depleted Agriculture Dept.**\
-`After the departure of thousands of federal workers, rural communities report problems obtaining loans, grants, technical assistance and support for infrastructure and other services.`\
-https://www.nytimes.com/2026/08/24/us/politics/farmers-federal-workers-exodus.html
-
-**Some of Russia’s A.I. Drones Are Powered by Nvidia Microcomputers, Ukrainian Officials Say**\
-`The tech giant says it does not sell the devices in Russia, but they are widely available on resale markets. When purchased that way, they are virtually impossible to track.`\
-https://www.nytimes.com/2026/08/24/world/europe/ukraine-war-nvidia-ai-autonomous-drones.html
 
