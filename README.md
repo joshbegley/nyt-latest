@@ -1,5 +1,5 @@
 **California Cancels Talks With Paramount Over Warner Bros. Merger**\
-`Rob Bonta, California’s attorney general, accused Paramount of leaking and misrepresenting earlier settlement discussions. He is leading a group of 12 states that have sued to block the $111 billion deal.`\
+`The attorney general of California, one of 12 states suing to block the $111 billion deal, accused Paramount of leaking and misrepresenting earlier settlement discussions.`\
 https://www.nytimes.com/2026/08/24/us/california-bonta-paramount-warner-settlement-talks.html
 
 **The Woman Guiding Tourists Through New York City’s Worst Day**\
