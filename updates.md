@@ -1,3 +1,11 @@
+**As El Niño Dries Indonesia, Wildfires Intensify**\
+`The unusual weather pattern and dried out peatlands, a kind of wetland, have been behind some of the country’s worst fire seasons. This year could be one.`\
+https://www.nytimes.com/2026/08/24/world/asia/indonesia-el-nino-borneo-fire.html
+
+**Quote of the Day: Polling’s Wild West Landscape Creates Problems in November**\
+`Quotation of the Day for Monday, August 24, 2026.`\
+https://www.nytimes.com/2026/08/24/pageoneplus/quote-of-the-day-pollings-wild-west-landscape-creates-problems-in-november.html
+
 **‘Lanterns’ Season 1, Episode 2 Recap: Keep Superheroes Weird**\
 `This week’s episode gave us better look at what the life of a world famous superhero is like. It isn’t particularly glamorous.`\
 https://www.nytimes.com/2026/08/23/arts/television/lanterns-recap-season-1-episode-2.html

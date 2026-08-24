@@ -1,3 +1,11 @@
+**As El Niño Dries Indonesia, Wildfires Intensify**\
+`The unusual weather pattern and dried out peatlands, a kind of wetland, have been behind some of the country’s worst fire seasons. This year could be one.`\
+https://www.nytimes.com/2026/08/24/world/asia/indonesia-el-nino-borneo-fire.html
+
+**Quote of the Day: Polling’s Wild West Landscape Creates Problems in November**\
+`Quotation of the Day for Monday, August 24, 2026.`\
+https://www.nytimes.com/2026/08/24/pageoneplus/quote-of-the-day-pollings-wild-west-landscape-creates-problems-in-november.html
+
 **‘Lanterns’ Season 1, Episode 2 Recap: Keep Superheroes Weird**\
 `This week’s episode gave us better look at what the life of a world famous superhero is like. It isn’t particularly glamorous.`\
 https://www.nytimes.com/2026/08/23/arts/television/lanterns-recap-season-1-episode-2.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/23/arts/music/jeff-conolly-dead.html
 **Eon Huntley, the Democratic Socialist Running for Office While Working at Bergdorf**\
 `For Eon Huntley, who won his primary in New York in June, good clothes and populist policies go together.`\
 https://www.nytimes.com/2026/08/23/style/eon-huntley-dsa-bergdorf-goodman.html
-
-**The Best Books to Read on American Identity**\
-`Four authors grapple with the fight over American identity, from the colonial era to the modern day.`\
-https://www.nytimes.com/2026/08/23/books/review/best-books-american-identity.html
-
-**Someone Was Impersonating Collien Fernandes Online. She Says It Was Her Husband.**\
-`The German actress Collien Fernandes set out to discover who was pretending to be her online and sending men sexually explicit material. Her answer ignited a feminist movement.`\
-https://www.nytimes.com/2026/08/23/magazine/collien-fernandes-impersonators-germany-metoo.html
 
