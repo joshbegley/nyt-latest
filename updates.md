@@ -1,3 +1,15 @@
+**NYC’s 911 System Had an Outage. Officials Kept Quiet About It.**\
+`When a partial breakdown of the system occurred last week, New York City officials did not inform the public.`\
+https://www.nytimes.com/2026/08/24/nyregion/mamdani-911-outage-nyc.html
+
+**Religious References in Lindsay Clancy Trial Anger Judge and Defense**\
+`The religious reference by a prosecution witness on Monday incensed the presiding judge, who sternly instructed jurors to disregard it. Lindsay Clancy’s lawyer asked for a mistrial.`\
+https://www.nytimes.com/2026/08/24/us/lindsay-clancy-trial-religion-catholic.html
+
+**Trump’s ‘Economic D-Day’ for Iran Must Overcome a Troubled History**\
+`The U.S. has spent 20 years promising ‘crippling sanctions’ on Iran. But the latest effort comes with a reverse twist, after military action failed to accomplish President Trump’s goals.`\
+https://www.nytimes.com/2026/08/24/us/politics/trump-bessent-iran-economic-d-day.html
+
 **An ‘Economic D-Day’ That Must Overcome a Troubled History**\
 `The U.S. has spent 20 years promising ‘crippling sanctions’ on Iran. But the latest effort comes with a reverse twist, after military action failed to accomplish President Trump’s goals.`\
 https://www.nytimes.com/2026/08/24/us/politics/trump-bessent-iran-economic-d-day.html
