@@ -1,3 +1,11 @@
+**Nevada Sues Trump Administration Over Colorado River Cuts**\
+`The state seeks to block plans for significant water use restrictions over the next decade.`\
+https://www.nytimes.com/2026/08/24/climate/nevada-sues-colorado-river-cuts.html
+
+**The Backlash Against Meta’s Smart Glasses Continues to Grow**\
+`ICE just barred its workers from wearing Meta’s smart glasses on the job. On the “Hard Fork” podcast, the hosts Kevin Roose and Casey Newton discuss how quickly public perception is turning against Meta’s Ray-Ban smart glasses.`\
+https://www.nytimes.com/video/podcasts/100000011110305/the-backlash-against-metas-smart-glasses-continues-to-grow.html
+
 **The Local: Walkie-talkies for grief**\
 `And a special Minnesota-themed crossword just for you.`\
 https://www.nytimes.com/2026/08/24/us/the-local-annunciation-grief.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/24/business/washington-post-karen-attiah.html
 **El ascenso de Giorgia Meloni, de militante posfascista a figura clave de Europa**\
 `En una entrevista inusual, quien fuera una política marginada reflexiona sobre su ruta desde ‘el lado incómodo de la historia’ hasta el umbral de liderar el gobierno de posguerra más duradero de Italia.`\
 https://www.nytimes.com/es/2026/08/24/espanol/mundo/giorgia-meloni-italia-entrevista.html
-
-**Oil Prices Fall Ahead of U.S. Vow to Intensify Economic War Against Iran**\
-`Treasury Secretary Scott Bessent is expected to announce an escalation of sanctions aimed at further isolating Iranian trade.`\
-https://www.nytimes.com/2026/08/24/business/oil-prices-bonds-stocks.html
-
-**Should We Read ‘Huck Finn’?**\
-`One reporter traveled to understand how it is taught now.`\
-https://www.nytimes.com/2026/08/24/briefing/should-we-read-huck-finn.html
 
