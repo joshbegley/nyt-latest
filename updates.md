@@ -1,3 +1,11 @@
+**Canada Is Fighting Back on Trade. Will Others Follow?**\
+`Prime Minister Mark Carney’s decision to retaliate against U.S. tariffs has drawn praise from China, and exposed a rift in the Trump administration.`\
+https://www.nytimes.com/2026/08/24/business/dealbook/canada-carney-tariffs-trump.html
+
+**UK Prime Minister Burnham Arrives in Ukraine as Russia Amps Up Warnings**\
+`In his first foreign trip since taking office, Prime Minister Andy Burnham affirmed support for Kyiv despite new warnings from Moscow of potential consequences.`\
+https://www.nytimes.com/2026/08/24/world/europe/uk-andy-burnham-ukraine-russia.html
+
 **De bozales a banderas: los aranceles de Trump golpean productos inesperados**\
 `Boyas, bozales para perros, capas, banderas nacionales y “estatuillas de metales comunes” importados de Canadá ahora cuestan más en Estados Unidos.`\
 https://www.nytimes.com/es/2026/08/24/espanol/estados-unidos/canada-bienes-tarifas-trump.html
