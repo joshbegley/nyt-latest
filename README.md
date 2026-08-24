@@ -1,3 +1,11 @@
+**A Suspect Was Outrunning the Police, So They Jumped in an Uber**\
+`Anthony Baines was on his way to pick up an Uber customer in Houston. Then, suddenly, he was driving two officers in a low-speed pursuit.`\
+https://www.nytimes.com/2026/08/24/us/anthony-baines-houston-police-pursuit.html
+
+**Houston Uber Driver Assists Police in a Chase**\
+`Video from a dashcam shows a police officer getting into an Uber driver’s vehicle in the middle of a foot pursuit of a suspect. The driver was on his way to pick up another passenger in Houston when he saw the police chasing a suspect.`\
+https://www.nytimes.com/video/us/100000011109798/houston-uber-driver-police-chase.html
+
 **Judge Orders U.S. to Return Deported Man at Risk of Torture**\
 `The Mexican man was sent to his home country after assisting federal law enforcement by testifying against Mexican drug cartels.`\
 https://www.nytimes.com/2026/08/24/us/politics/mexico-man-deported-torture.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/24/science/drugs-opioids-fentanyl-baltimore.html
 **Las últimas batallas de Hayden Panettiere antes de morir**\
 `En sus últimos meses, la actriz enfrentaba un misterioso dolor físico y los estragos de una relación abusiva de la que intentaba escapar.`\
 https://www.nytimes.com/es/2026/08/24/espanol/cultura/hayden-panettiere-brian-hickerson-novio-maltrato-libro.html
-
-**Canada Is Retaliating Against Trump’s Tariffs. Will Others Follow?**\
-`Prime Minister Mark Carney’s decision to retaliate against U.S. tariffs has drawn praise from China, and exposed a rift in the Trump administration.`\
-https://www.nytimes.com/2026/08/24/business/dealbook/canada-carney-tariffs-trump.html
-
-**Los aranceles de Trump a Canadá afectan productos inesperados**\
-`Boyas, bozales para perros, capas, banderas nacionales y “estatuillas de metales comunes” importados de Canadá ahora cuestan más en Estados Unidos.`\
-https://www.nytimes.com/es/2026/08/24/espanol/estados-unidos/canada-trump-aranceles.html
 
