@@ -43,7 +43,7 @@ https://www.nytimes.com/es/2026/08/24/espanol/mundo/dron-guerra-rusia-ucrania-ia
 https://www.nytimes.com/2026/08/24/us/uss-lincoln-sailor-father-arrested-immigration.html
 
 **Trump Lays It on the Line for Darline Graham Ahead of South Carolina Runoff**\
-`The president rallied for the sister of Lindsey Graham in her South Carolina Senate run and pressured allies to endorse her. A super PAC run by his advisers has more than $800,000 on her campaign. Will it be enough?`\
+`The president rallied for the sister of Lindsey Graham in her South Carolina Senate run and pressured allies to endorse her. A super PAC run by his advisers has spent nearly $800,000 on her campaign. Will it be enough?`\
 https://www.nytimes.com/2026/08/24/us/politics/trump-graham-south-carolina-endorsement.html
 
 **Man Who Told of a Childhood With Wolves Dies at 80**\

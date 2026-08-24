@@ -1,3 +1,11 @@
+**The Local: Walkie-talkies for grief**\
+`And a special Minnesota-themed crossword just for you.`\
+https://www.nytimes.com/2026/08/24/us/the-local-annunciation-grief.html
+
+**Iran’s Winning Strategy: Avoid Losing**\
+`Readers respond to a column by Thomas L. Friedman about Iran’s strategy to avoid losing the war. Also: the legacy of Tommy John.`\
+https://www.nytimes.com/2026/08/24/opinion/iran-us-war-stratgey.html
+
 **S.E.C. Investigating Near-Implosion of A.I. Hedge Fund**\
 `Regulators sent subpoenas to major Wall Street banks seeking information about the trading of Situational Awareness, three people briefed on the outreach said.`\
 https://www.nytimes.com/2026/08/24/business/sec-situational-awareness-investigation.html
@@ -35,7 +43,7 @@ https://www.nytimes.com/es/2026/08/24/espanol/mundo/dron-guerra-rusia-ucrania-ia
 https://www.nytimes.com/2026/08/24/us/uss-lincoln-sailor-father-arrested-immigration.html
 
 **Trump Lays It on the Line for Darline Graham Ahead of South Carolina Runoff**\
-`The president rallied for the sister of Lindsey Graham in her Senate run in South Carolina and pressured other allies to endorse her. A super PAC run by his advisers weighed in. Will it be enough?`\
+`The president rallied for the sister of Lindsey Graham in her South Carolina Senate run and pressured allies to endorse her. A super PAC run by his advisers has more than $800,000 on her campaign. Will it be enough?`\
 https://www.nytimes.com/2026/08/24/us/politics/trump-graham-south-carolina-endorsement.html
 
 **Man Who Told of a Childhood With Wolves Dies at 80**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/24/business/oil-prices-bonds-stocks.html
 **Should We Read ‘Huck Finn’?**\
 `One reporter traveled to understand how it is taught now.`\
 https://www.nytimes.com/2026/08/24/briefing/should-we-read-huck-finn.html
-
-**Natalie Harp’s Devotion to Trump**\
-`One of the president’s closest aides seems to have limitless access to him and the information he receives.`\
-https://www.nytimes.com/2026/08/24/podcasts/the-daily/natalie-harps-devotion-to-trump.html
-
-**Canada Is ‘at War’ With U.S. Over Tariffs, and U.S.P.S. Publishes Plan to Restrict Ballots**\
-`Plus, what it’s like to live next to a roller coaster.`\
-https://www.nytimes.com/2026/08/24/podcasts/the-headlines/canada-tariffs-usps-ballots.html
 

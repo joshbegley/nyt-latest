@@ -1,3 +1,15 @@
+**The Local: Walkie-talkies for grief**\
+`And a special Minnesota-themed crossword just for you.`\
+https://www.nytimes.com/2026/08/24/us/the-local-annunciation-grief.html
+
+**Iran’s Winning Strategy: Avoid Losing**\
+`Readers respond to a column by Thomas L. Friedman about Iran’s strategy to avoid losing the war. Also: the legacy of Tommy John.`\
+https://www.nytimes.com/2026/08/24/opinion/iran-us-war-stratgey.html
+
+**Trump Lays It on the Line for Darline Graham Ahead of South Carolina Runoff**\
+`The president rallied for the sister of Lindsey Graham in her South Carolina Senate run and pressured allies to endorse her. A super PAC run by his advisers has more than $800,000 on her campaign. Will it be enough?`\
+https://www.nytimes.com/2026/08/24/us/politics/trump-graham-south-carolina-endorsement.html
+
 **S.E.C. Investigating Near-Implosion of A.I. Hedge Fund**\
 `Regulators sent subpoenas to major Wall Street banks seeking information about the trading of Situational Awareness, three people briefed on the outreach said.`\
 https://www.nytimes.com/2026/08/24/business/sec-situational-awareness-investigation.html
