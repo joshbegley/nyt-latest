@@ -1,3 +1,7 @@
+**A Drone Killed Three Ukrainians. It Was Guided Entirely by A.I.**\
+`An attack by what Ukrainian officials said was a Russian drone with an Nvidia chip presages a dystopian future of weaponry untethered to humans.`\
+https://www.nytimes.com/2026/08/24/world/europe/russia-drones-autonomous-ai-kill-ukraine-war.html
+
 **Syria and Israel Hold U.S.-Mediated Talks to Try to Ease Tensions**\
 `The discussions, reported by the Syrian state news agency, came days after Israel struck an air base in Syria’s northwest, the latest in a series of military interventions.`\
 https://www.nytimes.com/2026/08/24/world/middleeast/syria-israel-talks-us-jordan.html
