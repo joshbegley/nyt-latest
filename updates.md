@@ -1,3 +1,7 @@
+**‘Lanterns’ Season 1, Episode 2 Recap: Keep Superheroes Weird**\
+`This week’s episode gave us better look at what the life of a world famous superhero is like. It isn’t particularly glamorous.`\
+https://www.nytimes.com/2026/08/23/arts/television/lanterns-recap-season-1-episode-2.html
+
 **Butter-Basted Chicken Breasts**\
 `For juicy, bronzed and flavorful chicken breasts, all it takes is a butter-baste.`\
 https://www.nytimes.com/video/dining/100000011103615/butter-basted-chicken-breasts.html

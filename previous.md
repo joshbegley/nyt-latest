@@ -1,3 +1,7 @@
+**‘Lanterns’ Season 1, Episode 2 Recap: Keep Superheroes Weird**\
+`This week’s episode gave us better look at what the life of a world famous superhero is like. It isn’t particularly glamorous.`\
+https://www.nytimes.com/2026/08/23/arts/television/lanterns-recap-season-1-episode-2.html
+
 **Butter-Basted Chicken Breasts**\
 `For juicy, bronzed and flavorful chicken breasts, all it takes is a butter-baste.`\
 https://www.nytimes.com/video/dining/100000011103615/butter-basted-chicken-breasts.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/23/books/review/best-books-american-identity.htm
 **Someone Was Impersonating Collien Fernandes Online. She Says It Was Her Husband.**\
 `The German actress Collien Fernandes set out to discover who was pretending to be her online and sending men sexually explicit material. Her answer ignited a feminist movement.`\
 https://www.nytimes.com/2026/08/23/magazine/collien-fernandes-impersonators-germany-metoo.html
-
-**Angry Ohio Voters Could Turn Their State Purple Again**\
-`A governor’s race, a Senate contest and enough congressional contests to swing control of the House are all in play in Ohio, where voters of all stripes express a deep sense of powerlessness.`\
-https://www.nytimes.com/2026/08/23/us/politics/ohio-politics-voter-anger.html
 
