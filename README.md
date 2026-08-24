@@ -1,3 +1,7 @@
+**¿El CBD es bueno para tu mascota?**\
+`Muchas personas en las redes sociales afirman que el CBD calma los nervios o alivia el dolor de sus mascotas. Aquí te contamos qué dicen los expertos.`\
+https://www.nytimes.com/es/2026/08/24/espanol/cbd-funciona-perros-mascotas.html
+
 **How Farmers Are Staying Afloat as Crop Prices Plunge**\
 `Most U.S. farmers will lose money this year. Landowners and investors are increasingly trying to make money from their land, not what can be grown from it.`\
 https://www.nytimes.com/2026/08/24/business/farmers-land-value-crop-prices-iowa.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/24/opinion/class-warfare-violence.html
 **Can Democrats Win Back the Senate? Why Their Chances Are Improving.**\
 `Republicans still have some clear advantages on the map, but President Trump’s unpopularity has opened the door for an outcome that once seemed far-fetched.`\
 https://www.nytimes.com/2026/08/24/us/politics/democrats-republicans-midterms-senate-majority.html
-
-**Trump Shuns E.V.s and Wind Power, But He’s Pouring Billions Into Batteries**\
-`The president may disdain clean energy tech, but energy storage is also crucial for A.I. and defense — and China’s dominance in the sector has officials worried.`\
-https://www.nytimes.com/2026/08/24/climate/trump-administration-batteries-data-centers.html
 
