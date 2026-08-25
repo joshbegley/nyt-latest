@@ -1,3 +1,7 @@
+**It Was Always Dolly Parton’s Show**\
+`Trailing Dolly Parton around the world, I witnessed so many small moments in which she’d gracefully own her power without the slightest hint of fight.`\
+https://www.nytimes.com/2026/08/25/opinion/dolly-parton-death-america-legacy.html
+
 **The Evening: Canada Retaliates With New U.S. Tariffs**\
 `Plus, Dolly Parton dies at 80. Here’s the latest at the end of Tuesday.`\
 https://www.nytimes.com/2026/08/25/briefing/tariffs-dolly-parton-cte.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/25/arts/music/dolly-parton-dead.html
 **C.I.A. Director Makes Secret Visit to Moscow**\
 `John Ratcliffe flew to Moscow in a military cargo plane from Riga, Latvia. It is not clear whom he met or what the purpose of his trip was.`\
 https://www.nytimes.com/2026/08/25/us/politics/cia-director-russia.html
-
-**SpaceX to Spend $100 Billion on Spaceport in Louisiana**\
-`It would be the rocket company’s second private launch site after Starbase, its headquarters in South Texas.`\
-https://www.nytimes.com/2026/08/25/technology/spacex-louisiana-spaceport.html
 
