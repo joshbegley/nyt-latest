@@ -1,3 +1,7 @@
+**Trump Officials Propose Charging More Than $100,000 for Skilled Worker Visas**\
+`The proposal comes after the Trump administration ran into legal challenges in its attempt to attach a similar fee to the H-1B visa last year.`\
+https://www.nytimes.com/2026/08/24/us/politics/steep-fee-proposal-h1b-visas.html
+
 **Creamy Turmeric Pasta**\
 `This earthy pasta is cobbled together using ingredients that you almost certainly already have in your kitchen.`\
 https://www.nytimes.com/video/dining/100000011110596/creamy-turmeric-pasta.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/world/europe/100000011109253/andy-burnham-uk-ukrai
 **¿El CBD es bueno para tu mascota?**\
 `Muchas personas en las redes sociales afirman que el CBD calma los nervios o alivia el dolor de sus mascotas. Aquí te contamos qué dicen los expertos.`\
 https://www.nytimes.com/es/2026/08/24/espanol/cbd-funciona-perros-mascotas.html
-
-**How Farmers Are Staying Afloat as Crop Prices Plunge**\
-`Most U.S. farmers will lose money this year. Landowners and investors are increasingly trying to make money from their land, not what can be grown from it.`\
-https://www.nytimes.com/2026/08/24/business/farmers-land-value-crop-prices-iowa.html
 
