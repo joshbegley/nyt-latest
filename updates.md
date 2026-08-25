@@ -1,3 +1,7 @@
+**The Evening: Canada Retaliates With New U.S. Tariffs**\
+`Plus, Dolly Parton dies at 80. Here’s the latest at the end of Tuesday.`\
+https://www.nytimes.com/2026/08/25/briefing/tariffs-dolly-parton-cte.html
+
 **Need Help? Prepare for the ‘Time Tax.’**\
 `A form that the Michigan state government asks people to fill out if they are seeking public assistance is the journalist Annie Lowrey’s favorite example of the time tax — the administrative burden the government imposes on those seeking public benefits. At one point, the form contained over 1,000 questions, though it’s since been streamlined. Lowrey walks through it— and what it signals to the people filling it out — on “The Ezra Klein Show.”`\
 https://www.nytimes.com/video/opinion/100000011107034/need-help-prepare-for-the-time-tax.html
