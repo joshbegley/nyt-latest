@@ -1,3 +1,11 @@
+**The Players Lining Up to Succeed Trump**\
+`The 2028 Republican presidential field is taking shape. Who will be the contenders — and who should wait for the next cycle? On “The Opinions,” Jamelle Bouie and David French size up the potential candidates and debate who should make his move now.`\
+https://www.nytimes.com/video/opinion/100000011109369/the-players-lining-up-to-succeed-trump.html
+
+**Which JD Vance Will We See in 2028?**\
+`The Opinion columnist Jamelle Bouie thinks JD Vance has a likability problem. On a recent episode of “The Opinions,” Bouie discusses how this may affect Vance’s prospects if he runs for president in 2028.`\
+https://www.nytimes.com/video/opinion/100000011101510/which-jd-vance-will-we-see-in-2028.html
+
 **China Pushes Back After Trump Tightens the Screws on Iran**\
 `The Trump administration risks a clash with Beijing as it tries to cut off Iran’s economic lifelines without upending a fragile U.S.-China truce.`\
 https://www.nytimes.com/2026/08/25/business/us-bessent-china-iran.html
