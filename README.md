@@ -1,3 +1,15 @@
+**U.S. Removes Syria From Its List of Terrorism Sponsors**\
+`The move lifted economic sanctions on the country, raising hopes of further recovery after its brutal civil war.`\
+https://www.nytimes.com/2026/08/25/world/middleeast/us-syria-terrorism-list-sanctions.html
+
+****\
+`A video shared on social media shows several Israeli soldiers standing by while Knesset member Zvi Sukkot and his aides attack a Palestinian monument in the West Bank village of Madama on Tuesday morning.`\
+https://www.nytimes.com/video/embedded/admin/100000011111382/25vid-westbank-hammer-embed-91515.html
+
+**Street Style Look of the Week: A T-Vintage Shirt That’s a Badge of Honor’**\
+`While in Copenhagen for the runway shows, an art curator took a commemorative T-shirt from her mother out for a whirl.`\
+https://www.nytimes.com/2026/08/25/style/street-style-look-vintage-t-shirt.html
+
 **Tornado Rips Through Towns in Southern France**\
 `An uncommonly powerful tornado destroyed dozens of homes and knocked out power to about 2,800 households.`\
 https://www.nytimes.com/2026/08/25/world/europe/tornado-southern-france-pomas.html
@@ -10,8 +22,8 @@ https://www.nytimes.com/2026/08/25/business/dealbook/bessent-bond-market-drucken
 `El gobierno de Trump dice que intentará aislar al país de la economía mundial atacando a sus socios comerciales.`\
 https://www.nytimes.com/es/2026/08/25/espanol/mundo/sanciones-economicas-iran.html
 
-**California Billionaires Launch Ads Against Wealth Tax**\
-`The billionaire effort is led by Sergey Brin, a co-founder of Google, who has contributed more than $100 million this year toward California campaign efforts.`\
+**Tech Leaders Haven’t Stopped the Billionaire Tax So Far. Will Ads Work?**\
+`The latest opposition effort is led by Sergey Brin, a co-founder of Google, who has contributed more than $100 million this year toward California campaign efforts.`\
 https://www.nytimes.com/2026/08/25/us/california-billionaire-tax-ballot-question.html
 
 **Democratic Senators Ask Homeland Security for Details About Idled Planes**\
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/08/25/opinion/marquis-de-lafayette-1824-tour.html
 **The Generation of Gardeners Combining Wildflower Seeds and Social Consciousness**\
 `A new generation of green thumbs are creating beautifully designed seed packets to encourage the growth of lush gardens — and social consciousness.`\
 https://www.nytimes.com/2026/08/25/style/wildflower-seeds-social-justice.html
-
-**She Was Absolved of a Heinous Crime. Why Won’t They Leave Her Alone?**\
-`A judge exonerated Nancy Smith, an Ohio bus driver, after she was convicted of abusing children in her care. Now, prosecutors want to reverse an order saying she was innocent.`\
-https://www.nytimes.com/2026/08/25/us/nancy-smith-child-sex-abuse-exoneration.html
-
-**Many N.F.L. Players Get Brain Disease. Why Hasn’t OSHA Intervened?**\
-`“We never see things that are this dire,” a former chief scientist of the agency said about rates of C.T.E. in former players.`\
-https://www.nytimes.com/2026/08/25/us/nfl-cte-osha.html
-
-**At Least 1 in 4 NFL Players Gets CTE, Major New Study Finds**\
-`The actual prevalence, researchers said, may be much higher.`\
-https://www.nytimes.com/2026/08/25/us/nfl-cte-brain-disease.html
 
