@@ -1,3 +1,47 @@
+**Silence, Wolves and the Wild East: Hiking in Portugal’s Côa Valley**\
+`A trek in a remote corner of the Iberian Peninsula brought a writer face-to-face with ancient oaks, rewilding efforts and prehistoric cave art.`\
+https://www.nytimes.com/2026/08/25/travel/portugal-coa-valley-grand-hiking-route.html
+
+**Interpol Comes Full Circle on ‘This Mirror Weighs a Ton’**\
+`The band that emerged in post-9/11 New York grapples with the surveillance state on its anxious but hopeful new LP, “This Mirror Weighs a Ton.”`\
+https://www.nytimes.com/2026/08/25/arts/music/interpol-this-mirror-weighs-a-ton-album.html
+
+**Is It Time for This 95-Year-Old Pianist to Retire?**\
+`Her vision and hearing are deteriorating, but she still wants to feel like she’s on top.`\
+https://www.nytimes.com/2026/08/25/business/piano-teacher-performer-retirement.html
+
+**Is Mouthwash Bad for Your Oral Health?**\
+`We asked experts to fact check some claims.`\
+https://www.nytimes.com/2026/08/25/well/mouthwash-oral-microbiome-harms.html
+
+**Book Review: ‘The Black Shield,’ by Wilbert L. Cooper**\
+`In an evocative new memoir, the journalist Wilbert L. Cooper explores the history, and paradoxes, of race and policing in Cleveland, his hometown.`\
+https://www.nytimes.com/2026/08/25/books/review/the-black-shield-wilbert-cooper.html
+
+**What Lafayette’s 1824 Tour Can Teach Americans**\
+`The Marquis de Lafayette returned to the United States in 1824. His tour carries key lessons for a country still fighting over how to remember its past.`\
+https://www.nytimes.com/2026/08/25/opinion/marquis-de-lafayette-1824-tour.html
+
+**The Generation of Gardeners Combining Wildflower Seeds and Social Consciousness**\
+`A new generation of green thumbs are creating beautifully designed seed packets to encourage the growth of lush gardens — and social consciousness.`\
+https://www.nytimes.com/2026/08/25/style/wildflower-seeds-social-justice.html
+
+**She Was Absolved of a Heinous Crime. Why Won’t They Leave Her Alone?**\
+`A judge exonerated Nancy Smith, an Ohio bus driver, after she was convicted of abusing children in her care. Now, prosecutors want to reverse an order saying she was innocent.`\
+https://www.nytimes.com/2026/08/25/us/nancy-smith-child-sex-abuse-exoneration.html
+
+**Many N.F.L. Players Get Brain Disease. Why Hasn’t OSHA Intervened?**\
+`“We never see things that are this dire,” a former chief scientist of the agency said about rates of C.T.E. in former players.`\
+https://www.nytimes.com/2026/08/25/us/nfl-cte-osha.html
+
+**At Least 1 in 4 NFL Players Gets CTE, Major New Study Finds**\
+`The actual prevalence, researchers said, may be much higher.`\
+https://www.nytimes.com/2026/08/25/us/nfl-cte-brain-disease.html
+
+**This Is Why People Hate the Government**\
+`Annie Lowrey, the author of “The Time Tax,” explains how the government steals Americans’ time — on purpose.`\
+https://www.nytimes.com/video/opinion/100000011107029/this-is-why-people-hate-the-government.html
+
 **Australia Bans Generative A.I. From Official Music Charts**\
 `Under new rules, recordings developed using generative A.I. will only be allowed if they are “substantially human-made,” the peak body says.`\
 https://www.nytimes.com/2026/08/25/world/australia/australia-ai-music-chart-ban.html
@@ -153,48 +197,4 @@ https://www.nytimes.com/2026/08/24/nyregion/kathy-hochul-new-york-governor-anniv
 **Martha’s Vineyard Property Once Owned by Jackie Kennedy Onassis Is Now Open to All**\
 `Visitors to Martha’s Vineyard can now traverse a property once owned by Jackie Kennedy Onassis. Known as the Squibnocket Pond Reservation, the 330-acre reserve opened last year and added a new trail in July.`\
 https://www.nytimes.com/video/us/100000011110027/jackie-kennedy-onassis-marthas-vineyard.html
-
-**Justices Allow Plans to Restrict Mail Voting, for Now**\
-`Also, the college admissions process is shifting once again. Here’s the latest at the end of Monday.`\
-https://www.nytimes.com/2026/08/24/briefing/supreme-court-mail-voting-restrictions.html
-
-**Trump Officials Propose Sale of ‘Woke’ Painting by Kehinde Wiley**\
-`The State Department recently removed the painting of Dominicans from a U.S. embassy, noting it was by the artist who made Barack Obama’s presidential portrait.`\
-https://www.nytimes.com/2026/08/24/arts/design/kehinde-wiley-painting-embassy-dominican-republic.html
-
-**Is the Supreme Court’s Shadow Docket Changing?**\
-`The Supreme Court’s emergency docket has shrunk in recent months, and the way justices issue opinions on these cases has also changed. Our reporter Ann Marimow looks at what these shifts tell us about the justices, and what it could mean for the court.`\
-https://www.nytimes.com/video/us/politics/100000011086271/is-the-supreme-courts-shadow-docket-changing.html
-
-**Is Trump’s Endorsement of Darline Graham Enough in South Carolina Senate Runoff?**\
-`The president has made a big bet on a senator’s sister.`\
-https://www.nytimes.com/2026/08/24/us/politics/trump-darline-graham-south-carolina-runoff.html
-
-**Karen Solomon, Wife Charged in Massachusetts Officer’s Death, Is Believed Dead**\
-`Karen Solomon, 58, a longtime advocate for the mental health of emergency workers, had been missing for six days after her husband, a police officer, was found dead.`\
-https://www.nytimes.com/2026/08/24/us/karen-solomon-dead-worcester.html
-
-**Supreme Court Allows Trump to Pursue Mail Voting Limits, for Now**\
-`The administration asked the court to clear the way for President Trump’s order that creates “state citizenship lists” and directs the Postal Service to decide who gets a mail-in ballot.`\
-https://www.nytimes.com/2026/08/24/us/politics/supreme-court-trump-mail-ballots.html
-
-**What Do A.I. Companies Really Do With Data They Purchase?**\
-`Data is often used to train A.I. models through reinforcement learning, in which entire companies are recreated as simulations for A.I. models to interact with.`\
-https://www.nytimes.com/video/podcasts/100000011110545/what-do-ai-companies-really-do-with-data-they-purchase.html
-
-**Take 10 Seconds to Read This Ezra Pound Poem. Think About It All Day.**\
-`People-watchers, trainspotters and A.O. Scott agree: Ezra Pound’s “In a Station of the Metro” is one of the shortest great poems in English.`\
-https://www.nytimes.com/interactive/2026/08/24/books/ezra-pound-poem-station-metro.html
-
-**A Suspect Was Outrunning the Police. So the Officers Jumped in an Uber.**\
-`Anthony Baines was on his way to pick up an Uber customer in Houston. Then, suddenly, he was driving two officers in a low-speed pursuit.`\
-https://www.nytimes.com/2026/08/24/us/anthony-baines-houston-police-pursuit.html
-
-**Houston Uber Driver Assists Police in a Chase**\
-`Video from a dashcam shows a police officer getting into an Uber driver’s vehicle in the middle of a foot pursuit of a suspect. The driver was on his way to pick up another passenger in Houston when he saw the police chasing a suspect.`\
-https://www.nytimes.com/video/us/100000011109798/houston-uber-driver-police-chase.html
-
-**Judge Orders U.S. to Return Deported Man at Risk of Torture**\
-`The Mexican man was sent to his home country after assisting federal law enforcement by testifying against Mexican drug cartels.`\
-https://www.nytimes.com/2026/08/24/us/politics/mexico-man-deported-torture.html
 
