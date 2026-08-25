@@ -1,3 +1,7 @@
+**Jelly Roll Celebrates His 300-Pound Weight Loss on ‘Jimmy Kimmel Live’**\
+`“That means I’ve lost an entire Donald Trump,” the country singer said while guest hosting Monday’s late night show.`\
+https://www.nytimes.com/2026/08/25/arts/television/jelly-roll-jimmy-kimmel-trump.html
+
 **China Is the Iran War’s Unexpected Winner**\
 `The Iran war was supposed to expose China’s weakness on oil, but it didn’t quite work out that way.`\
 https://www.nytimes.com/2026/08/25/opinion/iran-china-energy-power.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/24/travel/american-airlines-laptop-fire.html
 **Canadá le dijo no a Trump. Y habrá consecuencias en el mundo**\
 `Mark Carney elige el camino difícil, pero hizo aquello para lo que los canadienses lo eligieron: defender a Canadá.`\
 https://www.nytimes.com/es/2026/08/24/espanol/opinion/canada-trump-aranceles-guerra-economia.html
-
-**Muere el ‘niño lobo de Sierra Morena’ a los 80 años**\
-`La increíble historia de la infancia salvaje de Marcos Rodríguez Pantoja se convirtió en objeto de un estudio, además de inspirar una novela y una película.`\
-https://www.nytimes.com/es/2026/08/24/espanol/mundo/muere-nino-lobo-sierra-morena.html
 
