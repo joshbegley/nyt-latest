@@ -6,7 +6,7 @@ https://www.nytimes.com/2026/08/25/style/approach-shoes-climbing-style.html
 `Extreme heat waves this summer have set off an early grape harvest in Champagne and elsewhere in France.`\
 https://www.nytimes.com/2026/08/25/world/europe/heat-drought-france-champagne.html
 
-**Trump Threatens to Rename Lake Ontario as Trade War With Canada Heats Up**\
+**Trump Threatens to Rename Lake Ontario to Lake America as U.S.-Canada Trade War Heats Up**\
 `The president’s threat is his latest jab at Canada since trade talks between the two countries broke down.`\
 https://www.nytimes.com/2026/08/25/us/politics/trump-lake-ontario-america-canada-trade.html
 

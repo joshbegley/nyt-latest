@@ -1,3 +1,15 @@
+**A Shoe That Looks Great on Everyone**\
+`Plus: Erling Haaland’s new look, and a surprising hire at Skims.`\
+https://www.nytimes.com/2026/08/25/style/approach-shoes-climbing-style.html
+
+**Two Unvaccinated People Died from Measles in Pennsylvania, Officials Say**\
+`The deaths, which one doctor called “extremely rare in the modern era,” were the first in the United States in 2026.`\
+https://www.nytimes.com/2026/08/25/well/measles-deaths-pennsylvania-outbreak.html
+
+**Read the List of Goods Included in Canada’s Retaliatory Tariffs**\
+`Canada announced tariffs as high as 50 percent on hundreds of American products, days after the collapse of trade talks triggered tariffs from the Trump administration.`\
+https://www.nytimes.com/interactive/2026/08/25/world/canada/Canadian-retaliatory-tariffs-on-American-products-8-25-2026.html
+
 **‘We’ve Never Seen Anything Like It’: Early Harvest Rattles France’s Wine Industry**\
 `Extreme heat waves this summer have set off an early grape harvest in Champagne and elsewhere in France.`\
 https://www.nytimes.com/2026/08/25/world/europe/heat-drought-france-champagne.html
