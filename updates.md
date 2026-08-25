@@ -1,3 +1,19 @@
+**U.S. ‘Economic D-Day’ Targets More Than Just Iranian Oil**\
+`The United States threatened sanctions for any country or entity that engages with Iran’s gold, digital assets, aviation, shipping and tech industries. Here’s why that matters.`\
+https://www.nytimes.com/2026/08/25/world/middleeast/iran-us-sanctions-oil-gold.html
+
+**When to Expect Results in South Carolina and Oklahoma’s Primary Runoff Elections**\
+`The results of primary runoff elections will likely be known by late Tuesday night, officials said.`\
+https://www.nytimes.com/2026/08/25/us/politics/south-carolina-oklahoma-results-timing.html
+
+**Serena Williams Returns to Tennis and Thrills U.S. Open Crowd**\
+`Williams and Carlos Alcaraz coasted to an early victory in mixed doubles before losing their second match.`\
+https://www.nytimes.com/2026/08/25/sports/serena-williams-alcaraz-us-open-photos.html
+
+**Dolly Parton: A Life in Pictures**\
+`Parton made her mark in the country arenas of Nashville, and then crossed over into the pop world, Hollywood and beyond.`\
+https://www.nytimes.com/2026/08/25/arts/music/dolly-parton-photos-life-career.html
+
 **Instagram Chief Says ‘No Silver Bullets’ for Teen Safety in Bellwether Trial**\
 `Adam Mosseri testified in a case brought by states that claim the Meta-owned app created addictive features to hook young users.`\
 https://www.nytimes.com/2026/08/25/technology/instagram-adam-mosseri-trial.html
