@@ -1,3 +1,7 @@
+**Iran May Have Little to Lose as U.S. Tries to Squeeze Its Economy**\
+`Experts warn that a campaign aimed at avoiding military escalation could instead provoke it, as Iranian leaders vow retaliation across the oil-rich Gulf.`\
+https://www.nytimes.com/2026/08/25/world/middleeast/iran-us-economy-sanctions.html
+
 **Christian Convert Who Fled Iran and Was Deported By Trump Finds New Home**\
 `Artemis Ghasemzadeh, who had escaped religious persecution, was deported to Panama under Trump’s immigration crackdown. Now, Canada has given her asylum.`\
 https://www.nytimes.com/2026/08/25/world/middleeast/artemis-ghasemzadeh-iran-christian-us-deported-canada-asylum.html
