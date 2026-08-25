@@ -1,3 +1,11 @@
+**The Origins of Paul Simon’s ‘Graceland’**\
+`On its 40th anniversary, our critic looks back at the album’s creation, paradoxes and reception.`\
+https://www.nytimes.com/2026/08/25/arts/music/amplifier-newsletter-paul-simons-graceland.html
+
+**Dolly Parton, Superstar Whose Songs Spoke to Millions, Dies at 80**\
+`Known for her outsize persona, appearance and talent, she rose from rural poverty to become a top-selling singer, songwriter and entrepreneur.`\
+https://www.nytimes.com/2026/08/25/arts/music/dolly-parton-dead.html
+
 **C.I.A. Director Makes Secret Visit to Moscow**\
 `John Ratcliffe flew to Moscow in a military cargo plane from Riga, Latvia. It is not clear whom he met or what the purpose of his trip was.`\
 https://www.nytimes.com/2026/08/25/us/politics/cia-director-russia.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/es/2026/08/25/espanol/mundo/sanciones-economicas-iran.ht
 **Tech Leaders Haven’t Stopped the Billionaire Tax So Far. Will Ads Work?**\
 `The latest opposition effort is led by Sergey Brin, a co-founder of Google, who has contributed more than $100 million this year toward California campaign efforts.`\
 https://www.nytimes.com/2026/08/25/us/california-billionaire-tax-ballot-question.html
-
-**Democratic Senators Ask Homeland Security for Details About Idled Planes**\
-`The request follows a New York Times story, which revealed that Homeland Security had spent $464 million on used jets that rarely fly.`\
-https://www.nytimes.com/2026/08/25/us/politics/democratic-senators-homeland-security-planes.html
-
-**This A.I. Start-Up Aims to Reverse the Backlash Against Data Centers**\
-`Emerald AI, now valued at $1.05 billion, uses software to keep power demand at the computing facilities from getting out of control.`\
-https://www.nytimes.com/2026/08/25/business/dealbook/emerald-ai-start-up-data-center-backlash.html
 

@@ -1,3 +1,11 @@
+**C.I.A. Director Makes Secret Visit to Moscow**\
+`John Ratcliffe flew to Moscow in a military cargo plane from Riga, Latvia. It is not clear whom he met or what the purpose of his trip was.`\
+https://www.nytimes.com/2026/08/25/us/politics/cia-director-russia.html
+
+**SpaceX to Spend $100 Billion on New Spaceport in Louisiana**\
+`It would be the rocket company’s second private launch site after Starbase, its headquarters in South Texas.`\
+https://www.nytimes.com/2026/08/25/technology/spacex-louisiana-spaceport.html
+
 **Australia Races to Combat Spread of Bird Flu in Wildlife**\
 `Footage shared on social media shows birds in Australia experiencing symptoms consistent with bird flu, as the country’s authorities race to contain the spreading virus.`\
 https://www.nytimes.com/video/world/australia/100000011109241/australia-races-to-combat-spread-of-bird-flu-in-wildlife.html

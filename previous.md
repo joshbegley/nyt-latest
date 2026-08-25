@@ -1,3 +1,11 @@
+**C.I.A. Director Makes Secret Visit to Moscow**\
+`John Ratcliffe flew to Moscow in a military cargo plane from Riga, Latvia. It is not clear whom he met or what the purpose of his trip was.`\
+https://www.nytimes.com/2026/08/25/us/politics/cia-director-russia.html
+
+**SpaceX to Spend $100 Billion on New Spaceport in Louisiana**\
+`It would be the rocket company’s second private launch site after Starbase, its headquarters in South Texas.`\
+https://www.nytimes.com/2026/08/25/technology/spacex-louisiana-spaceport.html
+
 **Australia Races to Combat Spread of Bird Flu in Wildlife**\
 `Footage shared on social media shows birds in Australia experiencing symptoms consistent with bird flu, as the country’s authorities race to contain the spreading virus.`\
 https://www.nytimes.com/video/world/australia/100000011109241/australia-races-to-combat-spread-of-bird-flu-in-wildlife.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/25/us/politics/democratic-senators-homeland-secu
 **This A.I. Start-Up Aims to Reverse the Backlash Against Data Centers**\
 `Emerald AI, now valued at $1.05 billion, uses software to keep power demand at the computing facilities from getting out of control.`\
 https://www.nytimes.com/2026/08/25/business/dealbook/emerald-ai-start-up-data-center-backlash.html
-
-**How Do You Feel About the Risks of Youth Football?**\
-`A new study shows that N.F.L. players have a high risk for developing degenerative brain disease. Does anyone in your family play football? We want to know your thoughts.`\
-https://www.nytimes.com/2026/08/25/us/football-parents-cte.html
-
-**N.F.L. Brain Injuries**\
-`A new study underscores the danger of playing.`\
-https://www.nytimes.com/2026/08/25/briefing/nfl-brain-injuries.html
 
