@@ -1,3 +1,7 @@
+**U.S. Campaign on Iran’s Economy May Still Risk Regional Military Escalation**\
+`Experts warn that a campaign aimed at avoiding military escalation could instead provoke it, as Iranian leaders vow retaliation across the oil-rich Gulf.`\
+https://www.nytimes.com/2026/08/25/world/middleeast/iran-us-economy-sanctions.html
+
 **Trump Administration to Return Diplomats to Middle East Embassies**\
 `Evacuated foreign service officers could begin heading back to their posts as early as this week, an internal document shows, suggesting Washington does not anticipate a renewal of full-scale conflict with Iran.`\
 https://www.nytimes.com/2026/08/25/world/middleeast/us-diplomats-middle-east-embassies.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/25/arts/television/jelly-roll-jimmy-kimmel-trump
 **The Iran War Shows China’s Energy Strategy Is Working**\
 `The Iran war was supposed to expose China’s weakness on oil, but it didn’t quite work out that way.`\
 https://www.nytimes.com/2026/08/25/opinion/iran-china-energy-power.html
-
-**How U.S.-Canada Tariff Negotiations Turned Into an All-Out Trade War**\
-`Detailed accounts of the final hours of the negotiations show that, while the United States offered Canada what it said was the best deal of any country, what Canada had to give up in exchange was seen as unthinkable.`\
-https://www.nytimes.com/2026/08/25/world/canada/trump-carney-trade-war-tariffs.html
 

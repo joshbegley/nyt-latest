@@ -1,5 +1,9 @@
 **Trump Administration to Return Diplomats to Middle East Embassies**\
 `Evacuated foreign service officers could begin heading back to their posts as early as this week, an internal document shows, suggesting Washington does not anticipate a renewal of full-scale conflict with Iran.`\
+https://www.nytimes.com/2026/08/25/world/middleeast/us-diplomats-middle-east-embassies.html
+
+**Trump Administration to Return Diplomats to Middle East Embassies**\
+`Evacuated foreign service officers could begin heading back to their posts as early as this week, an internal document shows, suggesting Washington does not anticipate a renewal of full-scale conflict with Iran.`\
 https://www.nytimes.com/2026/08/25/world/middleeast/us-said-to-be-returning-diplomats-to-middle-east-embassies.html
 
 **Target Apologizes and Drops Halloween Costume Criticized as Racist**\
