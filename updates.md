@@ -1,3 +1,7 @@
+**U.S. Campaign on Iran’s Economy May Still Risk Regional Military Escalation**\
+`Experts warn that a campaign aimed at avoiding military escalation could instead provoke it, as Iranian leaders vow retaliation across the oil-rich Gulf.`\
+https://www.nytimes.com/2026/08/25/world/middleeast/iran-us-economy-sanctions.html
+
 **Trump Administration to Return Diplomats to Middle East Embassies**\
 `Evacuated foreign service officers could begin heading back to their posts as early as this week, an internal document shows, suggesting Washington does not anticipate a renewal of full-scale conflict with Iran.`\
 https://www.nytimes.com/2026/08/25/world/middleeast/us-diplomats-middle-east-embassies.html
