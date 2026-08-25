@@ -1,3 +1,15 @@
+**Canada Announces Retaliatory Tariffs on Hundreds of U.S. Products**\
+`Canada imposed retaliatory tariffs on about 700 American products as the trade war between the two countries heats up.`\
+https://www.nytimes.com/video/world/canada/100000011111532/canada-tariffs-trump-trade-war.html
+
+**Hugo and Mariano Jinkis Cut Deal in Long-Running FIFA Corruption Case**\
+`Hugo and Mariano Jinkis, both former fugitives from Argentina, have agreed to admit they paid “tens of millions of dollars in commercial bribes,” according to U.S. prosecutors.`\
+https://www.nytimes.com/2026/08/25/nyregion/fifa-bribes-jinkis-argentina.html
+
+**Dozens Massacred in Haiti, Officials Say, Heightening Fears of Gangs**\
+`Gangs targeted a key community on the outskirts of the capital, raising fears about the gangs’ next move. The mayor said at least 25 people had been killed, but the U.N. put the death toll at 47.`\
+https://www.nytimes.com/2026/08/25/world/americas/haiti-massacre-kenscoff.html
+
 **Muere Dolly Parton, leyenda indiscutible del country, a los 80 años**\
 `Conocida por su personalidad desbordante, pasó de la pobreza a convertirse en una cantante, compositora y empresaria de gran éxito y con un talento prodigioso.`\
 https://www.nytimes.com/es/2026/08/25/espanol/cultura/muere-dolly-parton.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/08/25/nyregion/newburgh-ice-detention-center-hochul
 **The Players Lining Up to Succeed Trump**\
 `The 2028 Republican presidential field is taking shape. Who will be the contenders — and who should wait for the next cycle? On “The Opinions,” Jamelle Bouie and David French size up the potential candidates and debate who should make his move now.`\
 https://www.nytimes.com/video/opinion/100000011109369/the-players-lining-up-to-succeed-trump.html
-
-**Which JD Vance Will We See in 2028?**\
-`The Opinion columnist Jamelle Bouie thinks JD Vance has a likability problem. On a recent episode of “The Opinions,” Bouie discusses how this may affect Vance’s prospects if he runs for president in 2028.`\
-https://www.nytimes.com/video/opinion/100000011101510/which-jd-vance-will-we-see-in-2028.html
-
-**China Pushes Back After Trump Tightens the Screws on Iran**\
-`The Trump administration risks a clash with Beijing as it tries to cut off Iran’s economic lifelines without upending a fragile U.S.-China truce.`\
-https://www.nytimes.com/2026/08/25/business/us-bessent-china-iran.html
-
-**U.S. Removes Syria From Its List of Terrorism Sponsors**\
-`The move lifted economic sanctions on the country, raising hopes of further recovery after its brutal civil war.`\
-https://www.nytimes.com/2026/08/25/world/middleeast/us-syria-terrorism-list-sanctions.html
 
