@@ -1,3 +1,7 @@
+**Worker Dies After Accident With Plane at Montreal Airport**\
+`The Transportation Safety Board of Canada said the episode involved an Airbus A350 operated by French Bee, a French low-cost airline.`\
+https://www.nytimes.com/2026/08/25/world/canada/montreal-airport-accident-worker-dead.html
+
 **Dolly Parton Had the Voice, and Concerns, of an Earth Angel**\
 `Parton gave hopeful expression to songs she wrote about the hard times and hard-won triumphs of her life.`\
 https://www.nytimes.com/2026/08/25/arts/music/dolly-parton-voice-appraisal.html
@@ -20,7 +24,7 @@ https://www.nytimes.com/2026/08/25/us/politics/south-carolina-oklahoma-results-t
 
 **Serena Williams Returns to Tennis and Thrills U.S. Open Crowd**\
 `Williams and Carlos Alcaraz coasted to an early victory in mixed doubles before losing their second match.`\
-https://www.nytimes.com/2026/08/25/sports/serena-williams-alcaraz-us-open-photos.html
+https://www.nytimes.com/2026/08/25/nyregion/serena-williams-alcaraz-us-open-photos.html
 
 **Dolly Parton: A Life in Pictures**\
 `Parton made her mark in the country arenas of Nashville, and then crossed over into the pop world, Hollywood and beyond.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/world/canada/100000011111532/canada-tariffs-trump-
 **Hugo and Mariano Jinkis Cut Deal in Long-Running FIFA Corruption Case**\
 `Hugo and Mariano Jinkis, both former fugitives from Argentina, have agreed to admit they paid “tens of millions of dollars in commercial bribes,” according to U.S. prosecutors.`\
 https://www.nytimes.com/2026/08/25/nyregion/fifa-bribes-jinkis-argentina.html
-
-**Dozens Massacred in Haiti, Officials Say, Heightening Fears of Gangs**\
-`Gangs targeted a key community on the outskirts of the capital, raising fears about the gangs’ next move. The mayor said at least 25 people had been killed, but the U.N. put the death toll at 47.`\
-https://www.nytimes.com/2026/08/25/world/americas/haiti-massacre-kenscoff.html
 
