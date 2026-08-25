@@ -1,3 +1,15 @@
+**Dolly Parton Had the Voice, and Concerns, of an Earth Angel**\
+`Parton gave hopeful expression to songs she wrote about the hard times and hard-won triumphs of her life.`\
+https://www.nytimes.com/2026/08/25/arts/music/dolly-parton-voice-appraisal.html
+
+**At Trump’s IndyCar Race, a V.I.P. Invitation Became a Diplomatic Snub**\
+`Foreign ambassadors were promised free food and drinks, misting fans and shaded seats during the event. Then some of them were uninvited.`\
+https://www.nytimes.com/2026/08/25/us/politics/trump-indycar-diplomatic-snub.html
+
+**Escucha 15 canciones esenciales de la playlist de Dolly Parton**\
+`La cantautora encabezó las listas de éxitos, abarcó distintos géneros y trascendió las fronteras del country.`\
+https://www.nytimes.com/es/2026/08/25/espanol/cultura/dolly-parton-playlist-mejores-canciones.html
+
 **U.S. ‘Economic D-Day’ Targets More Than Just Iranian Oil**\
 `The United States threatened sanctions for any country or entity that engages with Iran’s gold, digital assets, aviation, shipping and tech industries. Here’s why that matters.`\
 https://www.nytimes.com/2026/08/25/world/middleeast/iran-us-sanctions-oil-gold.html
@@ -114,7 +126,7 @@ https://www.nytimes.com/interactive/2026/08/25/us/elections/results-oklahoma-ins
 `Get live results and maps from the 2026 Georgia special runoff election.`\
 https://www.nytimes.com/interactive/2026/08/25/us/elections/results-georgia-us-house-13-special-runoff.html
 
-**Election Live Updates: Polls Close in South Carolina, Where Trump Backed Graham’s Sister**\
+**Election Live Updates: Polls Close in South Carolina, Where Trump Backed Lindsey Graham’s Sister**\
 `Darline Graham, the sister of the late Senator Lindsey Graham, had President Trump’s support in her race against Ralph Norman for the South Carolina seat. Oklahoma is also holding primary runoffs.`\
 https://www.nytimes.com/live/2026/08/25/us/elections-south-carolina-oklahoma
 
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/08/25/nyregion/fifa-bribes-jinkis-argentina.html
 **Dozens Massacred in Haiti, Officials Say, Heightening Fears of Gangs**\
 `Gangs targeted a key community on the outskirts of the capital, raising fears about the gangs’ next move. The mayor said at least 25 people had been killed, but the U.N. put the death toll at 47.`\
 https://www.nytimes.com/2026/08/25/world/americas/haiti-massacre-kenscoff.html
-
-**Muere Dolly Parton, leyenda indiscutible del country, a los 80 años**\
-`Conocida por su personalidad desbordante, pasó de la pobreza a convertirse en una cantante, compositora y empresaria de gran éxito y con un talento prodigioso.`\
-https://www.nytimes.com/es/2026/08/25/espanol/cultura/muere-dolly-parton.html
-
-**South Carolina Election Becomes Test for Trump**\
-`Runoffs in the state are typically sleepy, but the Republican Senate contest between Darline Graham and Ralph Norman seemed to be drawing relatively high turnout.`\
-https://www.nytimes.com/2026/08/25/us/politics/south-carolina-runoff-trump-test.html
-
-**Supreme Court Ruling on Mail-in Voting Could Add to Election Confusion**\
-`The limits on mail-in voting may not go into effect by November, with at least one state vowing to sue. But some states and experts warned about further voter confusion.`\
-https://www.nytimes.com/2026/08/25/us/mail-in-voting-states.html
 

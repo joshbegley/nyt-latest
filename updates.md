@@ -1,3 +1,7 @@
+**Election Live Updates: Polls Close in South Carolina, Where Trump Backed Graham’s Sister**\
+`Darline Graham, the sister of the late Senator Lindsey Graham, had President Trump’s support in her race against Ralph Norman for the South Carolina seat. Oklahoma is also holding primary runoffs.`\
+https://www.nytimes.com/live/2026/08/25/us/elections-south-carolina-oklahoma
+
 **U.S. ‘Economic D-Day’ Targets More Than Just Iranian Oil**\
 `The United States threatened sanctions for any country or entity that engages with Iran’s gold, digital assets, aviation, shipping and tech industries. Here’s why that matters.`\
 https://www.nytimes.com/2026/08/25/world/middleeast/iran-us-sanctions-oil-gold.html
