@@ -1,3 +1,7 @@
+**China Is the Iran War’s Unexpected Winner**\
+`The Iran war was supposed to expose China’s weakness on oil, but it didn’t quite work out that way.`\
+https://www.nytimes.com/2026/08/25/opinion/iran-china-energy-power.html
+
 **How U.S.-Canada Tariff Negotiations Turned Into an All-Out Trade War**\
 `Detailed accounts of the final hours of the negotiations show that, while the United States offered Canada what it said was the best deal of any country, what Canada had to give up in exchange was seen as unthinkable.`\
 https://www.nytimes.com/2026/08/25/world/canada/trump-carney-trade-war-tariffs.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/08/24/espanol/opinion/canada-trump-aranceles-gue
 **Muere el ‘niño lobo de Sierra Morena’ a los 80 años**\
 `La increíble historia de la infancia salvaje de Marcos Rodríguez Pantoja se convirtió en objeto de un estudio, además de inspirar una novela y una película.`\
 https://www.nytimes.com/es/2026/08/24/espanol/mundo/muere-nino-lobo-sierra-morena.html
-
-**The Washington Post deberá recontratar a una columnista despedida**\
-`Una árbitra ordenó al periódico restituir a Karen Attiah, quien fue despedida por sus publicaciones en redes sociales sobre el asesinato de Charlie Kirk.`\
-https://www.nytimes.com/es/2026/08/24/espanol/negocios/washington-post-columnista-despedida-charlie-kirk.html
 
