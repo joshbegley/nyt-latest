@@ -1,3 +1,7 @@
+**NYT Strands Hints for August 22, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Aug. 22, 2026.`\
+https://www.nytimes.com/2026/08/21/crosswords/strands-sidekick-902.html
+
 **Lindsay Clancy Deserves Mercy, Not Life in Prison**\
 `It is too hard for women suffering from postpartum mental illness to prove the insanity defense.`\
 https://www.nytimes.com/2026/08/25/opinion/lindsay-clancy-postpartum-mom-kids-death.html
