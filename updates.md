@@ -1,3 +1,7 @@
+**‘Abrieron la puerta y nos sacaron’: cómo el ICE irrumpió en un pueblo de Nueva Jersey**\
+`Una mañana de verano, agentes de migración irrumpieron y detuvieron a 18 migrantes en una tienda de Lakewood, Nueva Jersey, sumiendo a la localidad en el miedo.`\
+https://www.nytimes.com/es/2026/08/25/espanol/estados-unidos/ice-nueva-jersey-redadas.html
+
 **El muro fronterizo de Trump podría destruir una iglesia de 110 años**\
 `La campana y la iglesia católica de Ruidosa, en Texas, son símbolos de la unión de dos comunidades. Hoy, un elemento de división amenaza con borrar su historia.`\
 https://www.nytimes.com/es/2026/08/25/espanol/iglesia-muro-ruidosa-texas.html
