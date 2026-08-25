@@ -1,3 +1,11 @@
+**Australia Bans Generative A.I. From Official Music Charts**\
+`Under new rules, recordings developed using generative A.I. will only be allowed if they are “substantially human-made,” the peak body says.`\
+https://www.nytimes.com/2026/08/25/world/australia/australia-ai-music-chart-ban.html
+
+**The Iran War Shows China’s Energy Strategy Is Working**\
+`The Iran war was supposed to expose China’s weakness on oil, but it didn’t quite work out that way.`\
+https://www.nytimes.com/2026/08/25/opinion/iran-china-energy-power.html
+
 **El engaño de las bodas colectivas que dejó a decenas de hombres sin pareja en India**\
 `Una familia vio una oportunidad en las dificultades que enfrentan muchos hombres de comunidades rurales para encontrar esposa. Les cobró por una boda que jamás se celebró.`\
 https://www.nytimes.com/es/2026/08/25/espanol/mundo/fraude-boda-india.html
