@@ -1,3 +1,15 @@
+**Judge Says Sale of Titanic Artifacts Cannot Go Forward for Now**\
+`The salvage company that has been awarded the rights to recover, but not sell, items that sunk with the ship, has proposed selling 100 of them.`\
+https://www.nytimes.com/2026/08/25/arts/design/titanic-artifacts-sale-halted-judge.html
+
+**Otra masacre en Haití deja decenas de muertos, dicen las autoridades**\
+`Las pandillas atacaron una comunidad en las afueras de la capital, lo que generó temor por cuál podría ser su próximo objetivo. El alcalde dijo que habían muerto al menos 25 personas, pero la ONU elevó la cifra de muertos a 47.`\
+https://www.nytimes.com/es/2026/08/25/espanol/america-latina/haiti-pandillas-muertos.html
+
+**Tomato and Cottage Cheese Salad**\
+`In this departure from a Caprese salad, slices of heirloom tomato are topped with dollops of cottage cheese and layered with red onions, olive oil and tender herbs, plus a savory spice blend inspired by everything bagels.`\
+https://www.nytimes.com/video/dining/100000011112655/tomato-and-cottage-cheese-salad.html
+
 **Oklahoma Superintendent of Public Instruction Runoff 2026: Live Election Results**\
 `Get live results and maps from the 2026 Oklahoma runoff election.`\
 https://www.nytimes.com/interactive/2026/08/25/us/elections/results-oklahoma-superintendent-of-public-instruction-runoff.html
