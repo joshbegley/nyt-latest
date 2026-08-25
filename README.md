@@ -1,3 +1,11 @@
+**The Players Lining Up to Succeed Trump**\
+`The 2028 Republican presidential field is taking shape. Who will be the contenders — and who should wait for the next cycle? On “The Opinions,” Jamelle Bouie and David French size up the potential candidates and debate who should make his move now.`\
+https://www.nytimes.com/video/opinion/100000011109369/the-players-lining-up-to-succeed-trump.html
+
+**Which JD Vance Will We See in 2028?**\
+`The Opinion columnist Jamelle Bouie thinks JD Vance has a likability problem. On a recent episode of “The Opinions,” Bouie discusses how this may affect Vance’s prospects if he runs for president in 2028.`\
+https://www.nytimes.com/video/opinion/100000011101510/which-jd-vance-will-we-see-in-2028.html
+
 **China Pushes Back After Trump Tightens the Screws on Iran**\
 `The Trump administration risks a clash with Beijing as it tries to cut off Iran’s economic lifelines without upending a fragile U.S.-China truce.`\
 https://www.nytimes.com/2026/08/25/business/us-bessent-china-iran.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/25/business/piano-teacher-performer-retirement.h
 **Is Mouthwash Bad for Your Oral Health?**\
 `We asked experts to fact check some claims.`\
 https://www.nytimes.com/2026/08/25/well/mouthwash-oral-microbiome-harms.html
-
-**Book Review: ‘The Black Shield,’ by Wilbert L. Cooper**\
-`In an evocative new memoir, the journalist Wilbert L. Cooper explores the history, and paradoxes, of race and policing in Cleveland, his hometown.`\
-https://www.nytimes.com/2026/08/25/books/review/the-black-shield-wilbert-cooper.html
-
-**What Lafayette’s 1824 Tour Can Teach Americans**\
-`The Marquis de Lafayette returned to the United States in 1824. His tour carries key lessons for a country still fighting over how to remember its past.`\
-https://www.nytimes.com/2026/08/25/opinion/marquis-de-lafayette-1824-tour.html
 
