@@ -1,3 +1,15 @@
+**Democrats Score Victory in Campaign Finance Court Case**\
+`Republicans had hoped that a Supreme Court decision allowing party committees to coordinate with candidates would also entitle them to lower ad rates. On Tuesday, an appeals court said otherwise.`\
+https://www.nytimes.com/2026/08/25/us/politics/court-democrats-republicans-ad-case.html
+
+**5 Things to Know About Darline Graham, Trump-Backed South Carolina Senate Candidate**\
+`Ms. Graham is currently serving out the term of her late brother, Lindsey Graham. She has argued that her lack of political experience is a strength.`\
+https://www.nytimes.com/2026/08/25/us/politics/trump-darline-graham-south-carolina.html
+
+**5 Things to Know About Ralph Norman, South Carolina Senate Candidate**\
+`Mr. Norman, a five-term congressman, is a hard-line conservative running against the sister of the late Senator Lindsey Graham.`\
+https://www.nytimes.com/2026/08/25/us/politics/ralph-norman-south-carolina-senate.html
+
 **Worker Dies After Accident With Plane at Montreal Airport**\
 `The Transportation Safety Board of Canada said the episode involved an Airbus A350 operated by French Bee, a French low-cost airline.`\
 https://www.nytimes.com/2026/08/25/world/canada/montreal-airport-accident-worker-dead.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/08/25/opinion/trump-tariffs-illegal-canada.html
 **Angie Nixon and the Power of Pink**\
 `The electoral playbook has a strategic new shade.`\
 https://www.nytimes.com/2026/08/25/style/angie-nixon-florida-pink.html
-
-**Dolly Parton: Hear 15 Essential Songs**\
-`The singer-songwriter rose from poverty to become a chart-topping performer whose earnest character allowed her to span genres.`\
-https://www.nytimes.com/2026/08/25/arts/music/dolly-parton-songs.html
-
-**Canada Announces Retaliatory Tariffs on Hundreds of U.S. Products**\
-`Canada imposed retaliatory tariffs on about 700 American products as the trade war between the two countries heats up.`\
-https://www.nytimes.com/video/world/canada/100000011111532/canada-tariffs-trump-trade-war.html
-
-**Hugo and Mariano Jinkis Cut Deal in Long-Running FIFA Corruption Case**\
-`Hugo and Mariano Jinkis, both former fugitives from Argentina, have agreed to admit they paid “tens of millions of dollars in commercial bribes,” according to U.S. prosecutors.`\
-https://www.nytimes.com/2026/08/25/nyregion/fifa-bribes-jinkis-argentina.html
 
