@@ -1,3 +1,11 @@
+**Restaurant Review: Gigi’s in New York**\
+`Gigi’s, a new Greenpoint bistro, goes all-in on the delicious, deceptively simple rotisserie birds.`\
+https://www.nytimes.com/2026/08/25/dining/restaurant-review-gigis-nyc.html
+
+**Has World War III Already Started?**\
+`Spheres of conflict have multiplied and are merging. Meanwhile, the West is a mess.`\
+https://www.nytimes.com/2026/08/25/opinion/has-world-war-iii-already-started.html
+
 **Dethroned Miss North Carolina Sues Miss USA for Defamation**\
 `Brittany Boltinhouse’s title was rescinded after past social media posts surfaced. She is accusing pageant organizers of damaging her reputation.`\
 https://www.nytimes.com/2026/08/25/style/miss-north-carolina-brittany-boltinhouse-lawsuit.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/interactive/2026/08/25/us/elections/results-south-caroli
 **Oklahoma 2026: Live Election Results**\
 `Get live results and maps from the 2026 Oklahoma elections.`\
 https://www.nytimes.com/interactive/2026/08/25/us/elections/results-oklahoma.html
-
-**Oklahoma Governor Runoff 2026: Live Election Results, Drummond vs. Mazzei**\
-`Get live results and maps from the 2026 Oklahoma runoff election.`\
-https://www.nytimes.com/interactive/2026/08/25/us/elections/results-oklahoma-governor-runoff.html
-
-**Trump’s Canada Tariffs Rely on Untested Law**\
-`The president has invoked a long dormant section of law to hit one of America’s closest allies, a move that has troubled courts in the past.`\
-https://www.nytimes.com/2026/08/25/business/trump-canada-tariffs.html
 
