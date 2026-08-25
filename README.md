@@ -1,3 +1,11 @@
+**Cómo colapsaron las negociaciones comerciales entre EE. UU. y Canadá**\
+`Los relatos detallados de las últimas horas de las negociaciones muestran que, si bien Estados Unidos le ofreció a Canadá lo que, según ellos, era el mejor acuerdo de todos los países, lo que Canadá tenía que ceder a cambio se consideraba inconcebible.`\
+https://www.nytimes.com/es/2026/08/25/espanol/mundo/canada-aranceles-trump-negociaciones.html
+
+**Target se disculpa y retira disfraz de Halloween calificado de racista**\
+`El disfraz infantil evocaba imágenes del maquillaje teatral estilo “blackface”, dijeron los críticos. ‘Sabemos que nos equivocamos y lo lamentamos profundamente’, dijo la cadena de tiendas en respuesta.`\
+https://www.nytimes.com/es/2026/08/25/espanol/estados-unidos/target-disfraz-halloween-racista.html
+
 **The Origins of Paul Simon’s ‘Graceland’**\
 `On its 40th anniversary, our critic looks back at the album’s creation, paradoxes and reception.`\
 https://www.nytimes.com/2026/08/25/arts/music/amplifier-newsletter-paul-simons-graceland.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/25/world/europe/tornado-southern-france-pomas.ht
 **The Heat on Treasury Secretary Scott Bessent Grows**\
 `Treasury Secretary Scott Bessent’s plans to intervene in bond markets have drawn widespread criticism, including from a prominent former mentor.`\
 https://www.nytimes.com/2026/08/25/business/dealbook/bessent-bond-market-druckenmiller.html
-
-**Un nuevo intento de castigar a Irán**\
-`El gobierno de Trump dice que intentará aislar al país de la economía mundial atacando a sus socios comerciales.`\
-https://www.nytimes.com/es/2026/08/25/espanol/mundo/sanciones-economicas-iran.html
-
-**Tech Leaders Haven’t Stopped the Billionaire Tax So Far. Will Ads Work?**\
-`The latest opposition effort is led by Sergey Brin, a co-founder of Google, who has contributed more than $100 million this year toward California campaign efforts.`\
-https://www.nytimes.com/2026/08/25/us/california-billionaire-tax-ballot-question.html
 
