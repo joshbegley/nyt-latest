@@ -1,3 +1,15 @@
+**Cómo colapsaron las negociaciones comerciales entre EE. UU. y Canadá**\
+`Los relatos detallados de las últimas horas de las negociaciones muestran que, si bien Estados Unidos le ofreció a Canadá lo que, según ellos, era el mejor acuerdo de todos los países, lo que Canadá tenía que ceder a cambio se consideraba inconcebible.`\
+https://www.nytimes.com/es/2026/08/25/espanol/mundo/canada-aranceles-trump-negociaciones.html
+
+**Target se disculpa y retira disfraz de Halloween calificado de racista**\
+`El disfraz infantil evocaba imágenes del maquillaje teatral estilo “blackface”, dijeron los críticos. ‘Sabemos que nos equivocamos y lo lamentamos profundamente’, dijo la cadena de tiendas en respuesta.`\
+https://www.nytimes.com/es/2026/08/25/espanol/estados-unidos/target-disfraz-halloween-racista.html
+
+**Dolly Parton, Country Music Superstar Whose Songs Spoke to Millions, Dies at 80**\
+`Known for her outsize persona, appearance and talent, she rose from rural poverty to become a top-selling singer, songwriter and entrepreneur.`\
+https://www.nytimes.com/2026/08/25/arts/music/dolly-parton-dead.html
+
 **The Origins of Paul Simon’s ‘Graceland’**\
 `On its 40th anniversary, our critic looks back at the album’s creation, paradoxes and reception.`\
 https://www.nytimes.com/2026/08/25/arts/music/amplifier-newsletter-paul-simons-graceland.html
