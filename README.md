@@ -1,3 +1,11 @@
+**Are You Fluent in Dating Lingo? Take Our Quiz.**\
+`Ghosting isn’t even the worst of it.`\
+https://www.nytimes.com/interactive/2026/08/24/well/dating-terms-phrases-lingo-quiz.html
+
+**Jeffries Defends Kushner Meeting, Vowing Tough Oversight of Trump**\
+`The Brooklyn Democrat, who is in line to be speaker should his party win the House, has drawn ire from some progressives for huddling with the president’s son-in-law.`\
+https://www.nytimes.com/2026/08/24/us/politics/jeffries-kushner-meeting-trump-oversight.html
+
 **Abdul El-Sayed Joins Jesse Watters of Fox News for Some Light Verbal Combat**\
 `In a smiling yet tense interview, Dr. Abdul El-Sayed, the Democratic nominee for Senate in Michigan, argued that his Republican critics were using culture-war issues to distract from Americans’ economic concerns.`\
 https://www.nytimes.com/2026/08/24/us/abdul-el-sayed-jesse-watters-fox-news.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/24/us/uss-lincoln-sailor-father-arrested-immigra
 **Trump Lays It on the Line for Darline Graham Ahead of South Carolina Runoff**\
 `The president rallied for the sister of Lindsey Graham in her South Carolina Senate run and pressured allies to endorse her. A super PAC run by his advisers has spent nearly $800,000 on her campaign. Will it be enough?`\
 https://www.nytimes.com/2026/08/24/us/politics/trump-graham-south-carolina-endorsement.html
-
-**Man Who Told of a Childhood With Wolves Dies at 80**\
-`Marcos Rodríguez Pantoja’s improbable story of a wild youth became the subject of a study, and inspired a novel and film.`\
-https://www.nytimes.com/2026/08/24/world/europe/spain-wolf-boy-dead.html
-
-**Can You Identify These Current Best Sellers?**\
-`Try this quiz on the titles book shoppers have been recently snapping up for their summer reading.`\
-https://www.nytimes.com/quiz/2026/08/24/bookreview/best-sellers-quiz.html
 

@@ -1,3 +1,7 @@
+**Abdul El-Sayed Joins Jesse Watters of Fox News for Some Light Verbal Combat**\
+`In a smiling yet tense interview, Dr. Abdul El-Sayed, the Democratic nominee for Senate in Michigan, argued that his Republican critics were using culture-war issues to distract from Americans’ economic concerns.`\
+https://www.nytimes.com/2026/08/24/us/abdul-el-sayed-jesse-watters-fox-news.html
+
 **Russian Stadium Says It Won’t Host Ye Concerts**\
 `Gazprom Arena in St. Petersburg said that two October concerts would not take place there, citing a lack of rental agreements.`\
 https://www.nytimes.com/2026/08/24/arts/music/ye-concerts-canceled-russia-gazprom-arena.html
