@@ -1,3 +1,7 @@
+**Spellbinds**\
+`Bryan Kaproth-Gerecht spins up a lofty debut.`\
+https://www.nytimes.com/2026/08/24/crosswords/daily-puzzle-2026-08-25.html
+
 **What Did I Miss? Your Summer Politics Quiz.**\
 `It’s perfectly sane to want to avoid thinking about current events, but attention must be paid.`\
 https://www.nytimes.com/quiz/2026/08/24/opinion/end-of-summer-politics-quiz.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/24/us/sean-grayson-dead-sonya-massey.html
 **Opponents Sue to Stop Mamdani’s City-Owned Grocery Store Plan**\
 `A business group filed a lawsuit to stop New York City’s plan to open the five grocery stores, a campaign promise of Mayor Zohran Mamdani’s, arguing that it would hurt smaller stores.`\
 https://www.nytimes.com/2026/08/24/nyregion/mamdani-nyc-grocery-store-lawsuit.html
-
-**A.M. Gittlitz Roots for the Mets (and a Better World)**\
-`Through another lost season, A.M. Gittlitz, the author of a new history of New York’s underdog baseball team, is trying to hold on to hope.`\
-https://www.nytimes.com/2026/08/24/style/gittlitz-new-york-mets-metropolitans-book.html
 
