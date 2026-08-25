@@ -96,7 +96,7 @@ https://www.nytimes.com/2026/08/25/magazine/dunkin-drinks-coffee-tiktok.html
 
 **Christian Convert Who Fled Iran and Was Deported By Trump Finds New Home**\
 `Artemis Ghasemzadeh, who had escaped religious persecution, was deported to Panama under Trump’s immigration crackdown. Now, Canada has given her asylum.`\
-https://www.nytimes.com/2026/08/25/world/middleeast/christian-convert-who-fled-iran-and-was-ousted-from-us-finds-a-new-home.html
+https://www.nytimes.com/2026/08/25/world/middleeast/artemis-ghasemzadeh-iran-christian-us-deported-canada-asylum.html
 
 **What to Watch in Tuesday’s Primary Runoffs in South Carolina and Oklahoma**\
 `President Trump’s endorsement track record is on the line in two races, including the high-profile contest to succeed the late Senator Lindsey Graham.`\
