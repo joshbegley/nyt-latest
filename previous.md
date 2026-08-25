@@ -1,3 +1,7 @@
+**Una antigua solución sumeria para un déficit de 40 billones de dólares**\
+`En el mundo antiguo, la condonación de deudas era una solución pragmática a un problema intratable. ¿Por qué la hemos olvidado?`\
+https://www.nytimes.com/es/2026/08/25/espanol/opinion/deuda-publica-condonacion.html
+
 **‘Abrieron la puerta y nos sacaron’: cómo el ICE irrumpió en un pueblo de Nueva Jersey**\
 `Una mañana de verano, agentes de migración irrumpieron y detuvieron a 18 migrantes en una tienda de Lakewood, Nueva Jersey, sumiendo a la localidad en el miedo.`\
 https://www.nytimes.com/es/2026/08/25/espanol/estados-unidos/ice-nueva-jersey-redadas.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/100000011109787/nevada-wildfires-before-after-r
 **OpenAI Is Adding Safeguards. Can We Trust Their Motives?**\
 `OpenAI announced a plan which could set a precedent for other A.I. companies to prioritize safety over progress. Is this a strategic move to win back public favor, after an A.I. model went rogue last month? Or are they purely concerned with safety?`\
 https://www.nytimes.com/video/podcasts/100000011110496/openai-is-adding-safeguards-can-we-trust-their-motives.html
-
-**A New Effort to Punish Iran**\
-`The Trump administration says it will try to cut the country off from the global economy by targeting its trading partners.`\
-https://www.nytimes.com/2026/08/24/world/iran-sanctions-threat-economy-ukraine.html
 
