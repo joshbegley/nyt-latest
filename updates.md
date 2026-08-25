@@ -1,3 +1,7 @@
+**Chinese Artist Sentenced to Three Years in Prison for Mao Sculptures**\
+`Gao Zhen, part of a brotherly duo famous for satirical artworks, was convicted of slandering China’s heroes after a secret one-day trial.`\
+https://www.nytimes.com/2026/08/25/world/asia/china-artist-gao-zhen-jailed-mao-sculpture.html
+
 **Jelly Roll Celebrates His 300-Pound Weight Loss on ‘Jimmy Kimmel Live’**\
 `“That means I’ve lost an entire Donald Trump,” the country singer said while guest hosting Monday’s late night show.`\
 https://www.nytimes.com/2026/08/25/arts/television/jelly-roll-jimmy-kimmel-trump.html

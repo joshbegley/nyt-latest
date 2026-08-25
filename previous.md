@@ -1,3 +1,7 @@
+**Chinese Artist Sentenced to Three Years in Prison for Mao Sculptures**\
+`Gao Zhen, part of a brotherly duo famous for satirical artworks, was convicted of slandering China’s heroes after a secret one-day trial.`\
+https://www.nytimes.com/2026/08/25/world/asia/china-artist-gao-zhen-jailed-mao-sculpture.html
+
 **Jelly Roll Celebrates His 300-Pound Weight Loss on ‘Jimmy Kimmel Live’**\
 `“That means I’ve lost an entire Donald Trump,” the country singer said while guest hosting Monday’s late night show.`\
 https://www.nytimes.com/2026/08/25/arts/television/jelly-roll-jimmy-kimmel-trump.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/24/business/treasury-bond-buybacks-impact.html
 **Laptop Fire on American Airlines Flight Injures at Least One Passenger**\
 `Flight attendants used a fireproof bag to contain the computer after its lithium battery began smoking. One passenger was treated on the ground for injuries.`\
 https://www.nytimes.com/2026/08/24/travel/american-airlines-laptop-fire.html
-
-**Canadá le dijo no a Trump. Y habrá consecuencias en el mundo**\
-`Mark Carney elige el camino difícil, pero hizo aquello para lo que los canadienses lo eligieron: defender a Canadá.`\
-https://www.nytimes.com/es/2026/08/24/espanol/opinion/canada-trump-aranceles-guerra-economia.html
 
