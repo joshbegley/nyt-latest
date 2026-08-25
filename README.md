@@ -1,3 +1,11 @@
+**Airstrikes and Illegal Mining Add to Myanmar’s Troubles**\
+`A thriving ‘conflict economy’ is extracting minerals while the military and armed groups inflict abuse on civilians, according to a new report on the scale of recent violence in Myanmar.`\
+https://www.nytimes.com/2026/08/25/world/asia/myanmar-junta-violence-rohingya.html
+
+**Congress Needs to Stop Trump’s Tariff Madness**\
+`Mr. Trump is breaking the law. Congress and the judiciary need to respond.`\
+https://www.nytimes.com/2026/08/25/opinion/trump-tariffs-illegal-canada.html
+
 **Angie Nixon and the Power of Pink**\
 `The electoral playbook has a strategic new shade.`\
 https://www.nytimes.com/2026/08/25/style/angie-nixon-florida-pink.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/25/movies/mile-end-kicks-good-one-streaming-movi
 **Where to Eat in New York City Right Now**\
 `Our favorite restaurants of the moment in the city that never stops eating.`\
 https://www.nytimes.com/article/where-to-eat-nyc-restaurants.html
-
-**‘I’m Fine With My Body’: Danish Leader Responds to Unsolicited Beauty Advice**\
-`Prime Minister Mette Frederiksen had just returned from Ukraine when she received a message from a plastic surgeon asking if she wanted to fix her nose.`\
-https://www.nytimes.com/2026/08/25/world/europe/denmark-frederiksen-nose-plastic-surgeon.html
-
-**Tornado in Southern France Tears Through Village**\
-`A tornado in southern France destroyed homes and injured dozens of people. The town of Pomas, which has a population of about 1,000, was hit especially hard.`\
-https://www.nytimes.com/video/world/europe/100000011111054/tornado-southern-france-damage.html
 
