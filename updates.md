@@ -1,3 +1,7 @@
+**Dethroned Beauty Queen Sues Miss USA for Defamation**\
+`Brittany Boltinhouse’s title as Miss North Carolina USA was rescinded after past social media posts surfaced.`\
+https://www.nytimes.com/2026/08/25/style/miss-north-carolina-brittany-boltinhouse-lawsuit.html
+
 **Forbes Suspends Shook Research Rankings as It Investigates $6 Million Payment**\
 `The magazine, which is reviewing a payment from the founder of Shook Research to its former top editor, also canceled a summit in Las Vegas scheduled for October.`\
 https://www.nytimes.com/2026/08/25/business/media/forbes-shook-research-payment.html
