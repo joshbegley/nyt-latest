@@ -1,3 +1,7 @@
+**John Fetterman’s Popularity With Republicans Surges, Poll Finds**\
+`Pennsylvania Republicans now view John Fetterman, the state’s Democratic senator, more favorably than its sitting G.O.P. senator, a New York Times/Philadelphia Inquirer/Siena poll found.`\
+https://www.nytimes.com/2026/08/25/us/politics/john-fetterman-poll-republicans-democrats-pennsylvania.html
+
 **U.S. Campaign on Iran’s Economy May Still Risk Regional Military Escalation**\
 `Experts warn that a campaign aimed at avoiding military escalation could instead provoke it, as Iranian leaders vow retaliation across the oil-rich Gulf.`\
 https://www.nytimes.com/2026/08/25/world/middleeast/iran-us-economy-sanctions.html
