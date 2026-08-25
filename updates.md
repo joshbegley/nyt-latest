@@ -1,3 +1,7 @@
+**G.O.P. Lawmakers Rebuke Trump on Plan to Increase Beef Imports**\
+`Republicans who have mostly refrained from criticizing the president’s actions have been vocal in opposition to the move, which they say will harm their constituents`\
+https://www.nytimes.com/2026/08/25/us/politics/republicans-trump-beef-imports.html
+
 **Canadian Retaliatory Tariffs on American Products, 8/25/2026**\
 `Read the document`\
 https://www.nytimes.com/interactive/2026/08/25/world/canada/Canadian-retaliatory-tariffs-on-American-products-8-25-2026.html
