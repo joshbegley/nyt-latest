@@ -10,8 +10,8 @@ https://www.nytimes.com/2026/08/25/us/politics/trump-lake-ontario-america-canada
 `In a court filing about honoring President Trump on the facade, the administration said that without a proper renovation the building might need to be “taken down.”`\
 https://www.nytimes.com/2026/08/25/arts/music/trump-kennedy-center-demolition-lawyers.html
 
-**In Pennsylvania, 2 Measles Deaths Are Reported**\
-`The deaths, which one doctor called “extremely rare in the modern era,” are the first in the United States in 2026.`\
+**Two Unvaccinated People Died from Measles in Pennsylvania, Officials Say**\
+`The deaths, which one doctor called “extremely rare in the modern era,” were the first in the United States in 2026.`\
 https://www.nytimes.com/2026/08/25/well/measles-deaths-pennsylvania-outbreak.html
 
 **¿Cómo minimizar el riesgo de la ETC en los niños que juegan fútbol americano?**\
@@ -22,8 +22,8 @@ https://www.nytimes.com/es/2026/08/25/espanol/estados-unidos/futbol-americano-ri
 `Republicans who have mostly refrained from criticizing the president’s actions have been vocal in opposition to the move, which they say will harm their constituents`\
 https://www.nytimes.com/2026/08/25/us/politics/republicans-trump-beef-imports.html
 
-**Canadian Retaliatory Tariffs on American Products, 8/25/2026**\
-`Read the document`\
+**Read the List of Goods Included in Canada’s Retaliatory Tariffs**\
+`Canada announced retaliatory tariffs as high as 50 percent on hundreds of American products, days after the collapse of trade talks triggered punishing tariffs from the Trump administration.`\
 https://www.nytimes.com/interactive/2026/08/25/world/canada/Canadian-retaliatory-tariffs-on-American-products-8-25-2026.html
 
 **El Niño 2026: el fenómeno récord de este año en 3 gráficos**\
