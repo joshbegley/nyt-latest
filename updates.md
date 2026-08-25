@@ -1,3 +1,7 @@
+**What We Know About Australia’s Bird Flu, Which Has Crossed Over to Mammals**\
+`Australia confirmed its first case of H5N1 in June in migratory seabirds. Since then, the virus has spread rapidly, straining government responses.`\
+https://www.nytimes.com/2026/08/25/world/australia/bird-flu-h5n1-mammals.html
+
 **How U.S.-Canada Tariff Negotiations Turned Into an All-Out Trade War**\
 `Detailed accounts of the final hours of the negotiations show that, while the United States offered Canada what it said was the best deal of any country, what Canada had to give up in exchange was seen as unthinkable.`\
 https://www.nytimes.com/2026/08/25/world/canada/trump-carney-trade-war-tariffs.html
