@@ -1,3 +1,19 @@
+**Canada Announces Retaliatory Tariffs on Hundreds of U.S. Products**\
+`Canada imposed retaliatory tariffs on about 700 American products as the trade war between the two countries heats up.`\
+https://www.nytimes.com/video/world/canada/100000011111532/canada-tariffs-trump-trade-war.html
+
+**Hugo and Mariano Jinkis Cut Deal in Long-Running FIFA Corruption Case**\
+`Hugo and Mariano Jinkis, both former fugitives from Argentina, have agreed to admit they paid “tens of millions of dollars in commercial bribes,” according to U.S. prosecutors.`\
+https://www.nytimes.com/2026/08/25/nyregion/fifa-bribes-jinkis-argentina.html
+
+**Dozens Massacred in Haiti, Officials Say, Heightening Fears of Gangs**\
+`Gangs targeted a key community on the outskirts of the capital, raising fears about the gangs’ next move. The mayor said at least 25 people had been killed, but the U.N. put the death toll at 47.`\
+https://www.nytimes.com/2026/08/25/world/americas/haiti-massacre-kenscoff.html
+
+**Muere Dolly Parton, leyenda indiscutible del country, a los 80 años**\
+`Conocida por su personalidad desbordante, pasó de la pobreza a convertirse en una cantante, compositora y empresaria de gran éxito y con un talento prodigioso.`\
+https://www.nytimes.com/es/2026/08/25/espanol/cultura/muere-dolly-parton.html
+
 **South Carolina Election Becomes Test for Trump**\
 `Runoffs in the state are typically sleepy, but the Republican Senate contest between Darline Graham and Ralph Norman seemed to be drawing relatively high turnout.`\
 https://www.nytimes.com/2026/08/25/us/politics/south-carolina-runoff-trump-test.html

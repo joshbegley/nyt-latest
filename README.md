@@ -1,3 +1,11 @@
+**Angie Nixon and the Power of Pink**\
+`The electoral playbook has a strategic new shade.`\
+https://www.nytimes.com/2026/08/25/style/angie-nixon-florida-pink.html
+
+**Dolly Parton: Hear 15 Essential Songs**\
+`The singer-songwriter rose from poverty to become a chart-topping performer whose earnest character allowed her to span genres.`\
+https://www.nytimes.com/2026/08/25/arts/music/dolly-parton-songs.html
+
 **Canada Announces Retaliatory Tariffs on Hundreds of U.S. Products**\
 `Canada imposed retaliatory tariffs on about 700 American products as the trade war between the two countries heats up.`\
 https://www.nytimes.com/video/world/canada/100000011111532/canada-tariffs-trump-trade-war.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/25/world/europe/denmark-frederiksen-nose-plastic
 **Tornado in Southern France Tears Through Village**\
 `A tornado in southern France destroyed homes and injured dozens of people. The town of Pomas, which has a population of about 1,000, was hit especially hard.`\
 https://www.nytimes.com/video/world/europe/100000011111054/tornado-southern-france-damage.html
-
-**Lawmakers Push Hochul to Block ICE From Taking Over Upstate Warehouse**\
-`As a state law preventing the police from working with federal immigration officials goes into effect, a potential plan to use a warehouse as a detention center has drawn outrage.`\
-https://www.nytimes.com/2026/08/25/nyregion/newburgh-ice-detention-center-hochul.html
-
-**The Players Lining Up to Succeed Trump**\
-`The 2028 Republican presidential field is taking shape. Who will be the contenders — and who should wait for the next cycle? On “The Opinions,” Jamelle Bouie and David French size up the potential candidates and debate who should make his move now.`\
-https://www.nytimes.com/video/opinion/100000011109369/the-players-lining-up-to-succeed-trump.html
 
