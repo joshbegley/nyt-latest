@@ -1,3 +1,7 @@
+**El apagón que podría devastar EE. UU.**\
+`Miles de transformadores antiguos, fabricados a mano, sostienen la red eléctrica. Si fallaran demasiados, el apagón podría prolongarse durante años.`\
+https://www.nytimes.com/es/2026/08/25/espanol/estados-unidos/apagones-electricidad-corriente.html
+
 **Chinese Artist Sentenced to Three Years in Prison for Mao Sculptures**\
 `Gao Zhen, part of a brotherly duo famous for satirical artworks, was convicted of slandering one of China’s heroes after a secret one-day trial.`\
 https://www.nytimes.com/2026/08/25/world/asia/china-artist-gao-zhen-jailed-mao-sculpture.html

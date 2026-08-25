@@ -1,3 +1,7 @@
+**El apagón que podría devastar EE. UU.**\
+`Miles de transformadores antiguos, fabricados a mano, sostienen la red eléctrica. Si fallaran demasiados, el apagón podría prolongarse durante años.`\
+https://www.nytimes.com/es/2026/08/25/espanol/estados-unidos/apagones-electricidad-corriente.html
+
 **Chinese Artist Sentenced to Three Years in Prison for Mao Sculptures**\
 `Gao Zhen, part of a brotherly duo famous for satirical artworks, was convicted of slandering one of China’s heroes after a secret one-day trial.`\
 https://www.nytimes.com/2026/08/25/world/asia/china-artist-gao-zhen-jailed-mao-sculpture.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/24/business/sec-situational-awareness-investigat
 **What’s Behind the U.S. Treasury’s Latest Attempt to Lower Interest Rates**\
 `The Treasury Department said it could begin to buy back more of its debt, and bond market investors are assessing the potential effects on borrowing costs.`\
 https://www.nytimes.com/2026/08/24/business/treasury-bond-buybacks-impact.html
-
-**Laptop Fire on American Airlines Flight Injures at Least One Passenger**\
-`Flight attendants used a fireproof bag to contain the computer after its lithium battery began smoking. One passenger was treated on the ground for injuries.`\
-https://www.nytimes.com/2026/08/24/travel/american-airlines-laptop-fire.html
 
