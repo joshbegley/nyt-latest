@@ -1,3 +1,19 @@
+**Oklahoma Superintendent of Public Instruction Runoff 2026: Live Election Results**\
+`Get live results and maps from the 2026 Oklahoma runoff election.`\
+https://www.nytimes.com/interactive/2026/08/25/us/elections/results-oklahoma-superintendent-of-public-instruction-runoff.html
+
+**Oklahoma Labor Commissioner Runoff 2026: Live Election Results**\
+`Get live results and maps from the 2026 Oklahoma runoff election.`\
+https://www.nytimes.com/interactive/2026/08/25/us/elections/results-oklahoma-labor-commissioner-runoff.html
+
+**Oklahoma Insurance Commissioner Runoff 2026: Live Election Results**\
+`Get live results and maps from the 2026 Oklahoma runoff election.`\
+https://www.nytimes.com/interactive/2026/08/25/us/elections/results-oklahoma-insurance-commissioner-runoff.html
+
+**Georgia 13th Congressional District Special Runoff 2026: Live Election Results, Blair vs. Scott**\
+`Get live results and maps from the 2026 Georgia special runoff election.`\
+https://www.nytimes.com/interactive/2026/08/25/us/elections/results-georgia-us-house-13-special-runoff.html
+
 **Election Live Updates: Primary Runoff in Race for Lindsey Graham’s Seat Will Test Trump’s Influence**\
 `Darline Graham, the sister of the late Lindsey Graham, has President Trump’s backing in her bid for the South Carolina seat. Oklahoma is also holding primary runoffs.`\
 https://www.nytimes.com/live/2026/08/25/us/elections-south-carolina-oklahoma
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/08/25/us/politics/republicans-trump-beef-imports.ht
 **Read the List of Goods Included in Canada’s Retaliatory Tariffs**\
 `Canada announced tariffs as high as 50 percent on hundreds of American products, days after the collapse of trade talks triggered tariffs from the Trump administration.`\
 https://www.nytimes.com/interactive/2026/08/25/world/canada/Canadian-retaliatory-tariffs-on-American-products-8-25-2026.html
-
-**El Niño 2026: el fenómeno récord de este año en 3 gráficos**\
-`Con temperaturas del aire y de la superficie del mar que ya han alcanzado récords históricos, el fenómeno de este año podría ser el más fuerte del que se tenga memoria.`\
-https://www.nytimes.com/es/2026/08/25/espanol/tiempo-y-clima/el-nino-2026-record.html
-
-**Trump Wants to Restrict Mail-In Voting. See Which States Rely on It The Most.**\
-`Nearly 30 percent of voters nationwide use mail ballots. President Trump is seeking greater federal control of mail voting.`\
-https://www.nytimes.com/2026/08/25/us/politics/mail-in-ballots-states-voting-trump.html
-
-**Today, In Short**\
-`College football. The U.S. Open. And spritzes.`\
-https://www.nytimes.com/2026/08/25/briefing/today-in-short.html
-
-**Oklahoma U.S. Senate Runoff 2026: Live Election Results, Priest vs. Thomas**\
-`Get live results and maps from the 2026 Oklahoma runoff election.`\
-https://www.nytimes.com/interactive/2026/08/25/us/elections/results-oklahoma-us-senate-runoff.html
 
