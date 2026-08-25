@@ -1,3 +1,15 @@
+**Need Help? Prepare for the ‘Time Tax.’**\
+`A form that the Michigan state government asks people to fill out if they are seeking public assistance is the journalist Annie Lowrey’s favorite example of the time tax — the administrative burden the government imposes on those seeking public benefits. At one point, the form contained over 1,000 questions, though it’s since been streamlined. Lowrey walks through it— and what it signals to the people filling it out — on “The Ezra Klein Show.”`\
+https://www.nytimes.com/video/opinion/100000011107034/need-help-prepare-for-the-time-tax.html
+
+**The Next Tropical Storm Will Share Dolly Parton’s Name**\
+`Dolly Parton died on Tuesday. The next tropical storm in the Atlantic will, coincidentally, carry her name.`\
+https://www.nytimes.com/2026/08/25/weather/tropical-storm-dolly.html
+
+**Sheltering From a Russian Missile Attack in Kyiv**\
+`Constant Méheut joins Natalie Kitroeff on “The Call” from a Kyiv subway station, where he is sheltering as Russian missiles strike the city. He breaks down the grim reality of relying on Telegram to track the attacks, and discusses how dwindling air defenses are leaving the capital increasingly vulnerable.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011111596/sheltering-from-a-russian-missile-attack-in-kyiv.html
+
 **How Welfare Became a ‘Tool of Humiliation’**\
 `Accessing public benefits often requires navigating a burdensome amount of paperwork and bureaucracy — what the journalist Annie Lowrey calls “the time tax.” On “The Ezra Klein Show,” she explains why administrative hurdles that may seem neutral can function as tools of social control.`\
 https://www.nytimes.com/video/opinion/100000011107033/how-welfare-became-a-tool-of-humiliation.html

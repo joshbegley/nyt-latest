@@ -1,3 +1,15 @@
+**Need Help? Prepare for the ‘Time Tax.’**\
+`A form that the Michigan state government asks people to fill out if they are seeking public assistance is the journalist Annie Lowrey’s favorite example of the time tax — the administrative burden the government imposes on those seeking public benefits. At one point, the form contained over 1,000 questions, though it’s since been streamlined. Lowrey walks through it— and what it signals to the people filling it out — on “The Ezra Klein Show.”`\
+https://www.nytimes.com/video/opinion/100000011107034/need-help-prepare-for-the-time-tax.html
+
+**The Next Tropical Storm Will Share Dolly Parton’s Name**\
+`Dolly Parton died on Tuesday. The next tropical storm in the Atlantic will, coincidentally, carry her name.`\
+https://www.nytimes.com/2026/08/25/weather/tropical-storm-dolly.html
+
+**Sheltering From a Russian Missile Attack in Kyiv**\
+`Constant Méheut joins Natalie Kitroeff on “The Call” from a Kyiv subway station, where he is sheltering as Russian missiles strike the city. He breaks down the grim reality of relying on Telegram to track the attacks, and discusses how dwindling air defenses are leaving the capital increasingly vulnerable.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011111596/sheltering-from-a-russian-missile-attack-in-kyiv.html
+
 **How Welfare Became a ‘Tool of Humiliation’**\
 `Accessing public benefits often requires navigating a burdensome amount of paperwork and bureaucracy — what the journalist Annie Lowrey calls “the time tax.” On “The Ezra Klein Show,” she explains why administrative hurdles that may seem neutral can function as tools of social control.`\
 https://www.nytimes.com/video/opinion/100000011107033/how-welfare-became-a-tool-of-humiliation.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/08/25/technology/spacex-louisiana-spaceport.html
 **Australia Races to Combat Spread of Bird Flu in Wildlife**\
 `Footage shared on social media shows birds in Australia experiencing symptoms consistent with bird flu, as the country’s authorities race to contain the spreading virus.`\
 https://www.nytimes.com/video/world/australia/100000011109241/australia-races-to-combat-spread-of-bird-flu-in-wildlife.html
-
-**Robert Skidelsky, Definitive Biographer of Keynes, Dies at 86**\
-`An economic historian and political maverick, he was a sometimes polarizing public intellectual and a member of the House of Lords.`\
-https://www.nytimes.com/2026/08/25/books/robert-skidelsky-dead.html
-
-**What We Know About the Hawk Fire Near Reno**\
-`Thousands of residents were evacuated and dozens of homes burned in Nevada, and forecasters are concerned that critical conditions could return.`\
-https://www.nytimes.com/2026/08/25/us/reno-nevada-hawk-fire.html
-
-**India’s Summer of Youth Protests Is Boiling Over**\
-`The police fired water cannons at protesters in the state of Bihar, while the leaders of the ‘Cockroach’ student movement vowed to return to Delhi’s streets.`\
-https://www.nytimes.com/2026/08/25/world/asia/indias-youth-protests-cockroach.html
 
