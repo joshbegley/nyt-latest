@@ -1,3 +1,11 @@
+**It’s One Parking Spot in New York City. What Could It Cost, $250,000?**\
+`Some New Yorkers are willing to pay condo-like prices for a bit of concrete convenience.`\
+https://www.nytimes.com/2026/08/25/nyregion/private-parking-spots-new-york-city.html
+
+**NYT Spelling Bee Answers for August 25, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/08/25/crosswords/spelling-bee-forum.html
+
 **El apagón que podría devastar EE. UU.**\
 `Miles de transformadores antiguos, fabricados a mano, sostienen la red eléctrica. Si fallaran demasiados, el apagón podría prolongarse durante años.`\
 https://www.nytimes.com/es/2026/08/25/espanol/estados-unidos/apagones-electricidad-corriente.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/24/us/the-local-annunciation-grief.html
 **Iran’s Winning Strategy: Avoid Losing**\
 `Readers respond to a column by Thomas L. Friedman about Iran’s strategy to avoid losing the war. Also: the legacy of Tommy John.`\
 https://www.nytimes.com/2026/08/24/opinion/iran-us-war-stratgey.html
-
-**S.E.C. Investigating Near-Implosion of A.I. Hedge Fund**\
-`Regulators sent subpoenas to major Wall Street banks seeking information about the trading of Situational Awareness, three people briefed on the outreach said.`\
-https://www.nytimes.com/2026/08/24/business/sec-situational-awareness-investigation.html
-
-**What’s Behind the U.S. Treasury’s Latest Attempt to Lower Interest Rates**\
-`The Treasury Department said it could begin to buy back more of its debt, and bond market investors are assessing the potential effects on borrowing costs.`\
-https://www.nytimes.com/2026/08/24/business/treasury-bond-buybacks-impact.html
 
