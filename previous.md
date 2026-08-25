@@ -1,3 +1,19 @@
+**Where Does Trump’s Executive Order Restricting Mail Voting Stand?**\
+`The Supreme Court on Monday allowed the Trump administration to continue with plans to curtail mail-in voting, but the fast-moving, high-stakes legal fight continues.`\
+https://www.nytimes.com/2026/08/25/us/politics/what-to-know-trump-executive-order-mail-voting.html
+
+**Dolly Parton Wanted to Share Her Story on Broadway. She Still Will.**\
+`“Dolly: A True Original Musical” is scheduled to begin previews in December after a strong-selling production in Nashville last year.`\
+https://www.nytimes.com/2026/08/25/theater/dolly-parton-broadway.html
+
+**Dolly Parton Is Mourned by Reba McEntire, Lily Tomlin and More**\
+`After her death at 80, celebrities and politicians honored the country music star for her generosity and philanthropy.`\
+https://www.nytimes.com/2026/08/25/arts/music/dolly-parton-celebrity-reaction.html
+
+**USA vs. Canada**\
+`Our Canada bureau chief tells us how the countries got into a trade war and how people north of the border are experiencing the rift.`\
+https://www.nytimes.com/2026/08/25/world/us-canada-trade-war-dolly-parton.html
+
 **Judge Says Sale of Titanic Artifacts Cannot Go Forward for Now**\
 `The salvage company that has been awarded the rights to recover, but not sell, items that sunk with the ship, has proposed selling 100 of them.`\
 https://www.nytimes.com/2026/08/25/arts/design/titanic-artifacts-sale-halted-judge.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/08/25/climate/epa-data-centers-public-comment.html
 **A Shoe That Looks Great on Everyone**\
 `Plus: Erling Haaland’s new look, and a surprising hire at Skims.`\
 https://www.nytimes.com/2026/08/25/style/approach-shoes-climbing-style.html
-
-**‘We’ve Never Seen Anything Like It’: Early Harvest Rattles France’s Wine Industry**\
-`Extreme heat waves this summer have set off an early grape harvest in Champagne and elsewhere in France.`\
-https://www.nytimes.com/2026/08/25/world/europe/heat-drought-france-champagne.html
-
-**Trump Threatens to Rename Lake Ontario to Lake America as U.S.-Canada Trade War Heats Up**\
-`The president’s threat is his latest jab at Canada since trade talks between the two countries broke down.`\
-https://www.nytimes.com/2026/08/25/us/politics/trump-lake-ontario-america-canada-trade.html
-
-**Trump Lawyers Warn That Kennedy Center Might Need Demolition if Not Fixed**\
-`In a court filing about honoring President Trump on the facade, the administration said that without a proper renovation the building might need to be “taken down.”`\
-https://www.nytimes.com/2026/08/25/arts/music/trump-kennedy-center-demolition-lawyers.html
-
-**Two Unvaccinated People Died From Measles in Pennsylvania, Officials Say**\
-`The deaths were the first in the United States in 2026.`\
-https://www.nytimes.com/2026/08/25/well/measles-deaths-pennsylvania-outbreak.html
 

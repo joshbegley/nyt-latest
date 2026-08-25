@@ -1,3 +1,19 @@
+**Where Does Trump’s Executive Order Restricting Mail Voting Stand?**\
+`The Supreme Court on Monday allowed the Trump administration to continue with plans to curtail mail-in voting, but the fast-moving, high-stakes legal fight continues.`\
+https://www.nytimes.com/2026/08/25/us/politics/what-to-know-trump-executive-order-mail-voting.html
+
+**Dolly Parton Wanted to Share Her Story on Broadway. She Still Will.**\
+`“Dolly: A True Original Musical” is scheduled to begin previews in December after a strong-selling production in Nashville last year.`\
+https://www.nytimes.com/2026/08/25/theater/dolly-parton-broadway.html
+
+**Dolly Parton Is Mourned by Reba McEntire, Lily Tomlin and More**\
+`After her death at 80, celebrities and politicians honored the country music star for her generosity and philanthropy.`\
+https://www.nytimes.com/2026/08/25/arts/music/dolly-parton-celebrity-reaction.html
+
+**USA vs. Canada**\
+`Our Canada bureau chief tells us how the countries got into a trade war and how people north of the border are experiencing the rift.`\
+https://www.nytimes.com/2026/08/25/world/us-canada-trade-war-dolly-parton.html
+
 **Judge Says Sale of Titanic Artifacts Cannot Go Forward for Now**\
 `The salvage company that has been awarded the rights to recover, but not sell, items that sunk with the ship, has proposed selling 100 of them.`\
 https://www.nytimes.com/2026/08/25/arts/design/titanic-artifacts-sale-halted-judge.html
