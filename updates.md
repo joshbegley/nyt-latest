@@ -1,3 +1,27 @@
+**Worker Dies After Accident With Plane at Montreal Airport**\
+`The Transportation Safety Board of Canada said the episode involved an Airbus A350 operated by French Bee, a French low-cost airline.`\
+https://www.nytimes.com/2026/08/25/world/canada/montreal-airport-accident-worker-dead.html
+
+**Dolly Parton Had the Voice, and Concerns, of an Earth Angel**\
+`Parton gave hopeful expression to songs she wrote about the hard times and hard-won triumphs of her life.`\
+https://www.nytimes.com/2026/08/25/arts/music/dolly-parton-voice-appraisal.html
+
+**At Trump’s IndyCar Race, a V.I.P. Invitation Became a Diplomatic Snub**\
+`Foreign ambassadors were promised free food and drinks, misting fans and shaded seats during the event. Then some of them were uninvited.`\
+https://www.nytimes.com/2026/08/25/us/politics/trump-indycar-diplomatic-snub.html
+
+**Escucha 15 canciones esenciales de la playlist de Dolly Parton**\
+`La cantautora encabezó las listas de éxitos, abarcó distintos géneros y trascendió las fronteras del country.`\
+https://www.nytimes.com/es/2026/08/25/espanol/cultura/dolly-parton-playlist-mejores-canciones.html
+
+**Serena Williams Returns to Tennis and Thrills U.S. Open Crowd**\
+`Williams and Carlos Alcaraz coasted to an early victory in mixed doubles before losing their second match.`\
+https://www.nytimes.com/2026/08/25/nyregion/serena-williams-alcaraz-us-open-photos.html
+
+**Election Live Updates: Polls Close in South Carolina, Where Trump Backed Lindsey Graham’s Sister**\
+`Darline Graham, the sister of the late Senator Lindsey Graham, had President Trump’s support in her race against Ralph Norman for the South Carolina seat. Oklahoma is also holding primary runoffs.`\
+https://www.nytimes.com/live/2026/08/25/us/elections-south-carolina-oklahoma
+
 **Election Live Updates: Polls Close in South Carolina, Where Trump Backed Graham’s Sister**\
 `Darline Graham, the sister of the late Senator Lindsey Graham, had President Trump’s support in her race against Ralph Norman for the South Carolina seat. Oklahoma is also holding primary runoffs.`\
 https://www.nytimes.com/live/2026/08/25/us/elections-south-carolina-oklahoma
