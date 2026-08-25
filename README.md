@@ -90,7 +90,7 @@ https://www.nytimes.com/2026/08/25/arts/music/dolly-parton-dead.html
 `John Ratcliffe flew to Moscow in a military cargo plane from Riga, Latvia. It is not clear whom he met or what the purpose of his trip was.`\
 https://www.nytimes.com/2026/08/25/us/politics/cia-director-russia.html
 
-**SpaceX to Spend $100 Billion on New Spaceport in Louisiana**\
+**SpaceX to Spend $100 Billion on Spaceport in Louisiana**\
 `It would be the rocket company’s second private launch site after Starbase, its headquarters in South Texas.`\
 https://www.nytimes.com/2026/08/25/technology/spacex-louisiana-spaceport.html
 
