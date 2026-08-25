@@ -1,3 +1,7 @@
+**NYT Strands Hints for August 22, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Aug. 22, 2026.`\
+https://www.nytimes.com/2026/08/21/crosswords/strands-sidekick-902.html
+
 **Lindsay Clancy Deserves Mercy, Not Life in Prison**\
 `It is too hard for women suffering from postpartum mental illness to prove the insanity defense.`\
 https://www.nytimes.com/2026/08/25/opinion/lindsay-clancy-postpartum-mom-kids-death.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/08/25/us/elections/results-oklahoma-ins
 **Oklahoma Labor Commissioner Runoff 2026: Live Election Results**\
 `Get live results and maps from the 2026 Oklahoma runoff election.`\
 https://www.nytimes.com/interactive/2026/08/25/us/elections/results-oklahoma-labor-commissioner-runoff.html
-
-**Georgia 13th Congressional District Special Runoff 2026: Live Election Results, Blair vs. Scott**\
-`Get live results and maps from the 2026 Georgia special runoff election.`\
-https://www.nytimes.com/interactive/2026/08/25/us/elections/results-georgia-us-house-13-special-runoff.html
 
