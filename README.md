@@ -1,3 +1,7 @@
+**Russian Stadium Says It Won’t Host Ye Concerts**\
+`Gazprom Arena in St. Petersburg said that two October concerts would not take place there, citing a lack of rental agreements.`\
+https://www.nytimes.com/2026/08/24/arts/music/ye-concerts-canceled-russia-gazprom-arena.html
+
 **Spellbinds**\
 `Bryan Kaproth-Gerecht spins up a lofty debut.`\
 https://www.nytimes.com/2026/08/24/crosswords/daily-puzzle-2026-08-25.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/quiz/2026/08/24/bookreview/best-sellers-quiz.html
 **Sean Grayson, Ex-Illinois Deputy Who Murdered Sonya Massey, Dies in Prison**\
 `Sean Grayson, 32, was serving a 20-year sentence for the 2024 murder of Sonya Massey, who was holding a pot of hot water when she was shot at her home.`\
 https://www.nytimes.com/2026/08/24/us/sean-grayson-dead-sonya-massey.html
-
-**Opponents Sue to Stop Mamdani’s City-Owned Grocery Store Plan**\
-`A business group filed a lawsuit to stop New York City’s plan to open the five grocery stores, a campaign promise of Mayor Zohran Mamdani’s, arguing that it would hurt smaller stores.`\
-https://www.nytimes.com/2026/08/24/nyregion/mamdani-nyc-grocery-store-lawsuit.html
 
