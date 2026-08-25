@@ -1,3 +1,15 @@
+**Australia Races to Combat Spread of Bird Flu in Wildlife**\
+`Footage shared on social media shows birds in Australia experiencing symptoms consistent with bird flu, as the country’s authorities race to contain the spreading virus.`\
+https://www.nytimes.com/video/world/australia/100000011109241/australia-races-to-combat-spread-of-bird-flu-in-wildlife.html
+
+**Robert Skidelsky, Definitive Biographer of Keynes, Dies at 86**\
+`An economic historian and political maverick, he was a sometimes polarizing public intellectual and a member of the House of Lords.`\
+https://www.nytimes.com/2026/08/25/books/robert-skidelsky-dead.html
+
+**Two Unvaccinated People Died From Measles in Pennsylvania, Officials Say**\
+`The deaths were the first in the United States in 2026.`\
+https://www.nytimes.com/2026/08/25/well/measles-deaths-pennsylvania-outbreak.html
+
 **G.O.P. Lawmakers Rebuke Trump on Plan to Increase Beef Imports**\
 `Republicans who have mostly refrained from criticizing the president’s actions have been vocal in opposition to the move, which they say will harm their constituents.`\
 https://www.nytimes.com/2026/08/25/us/politics/republicans-trump-beef-imports.html
