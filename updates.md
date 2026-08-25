@@ -1,3 +1,7 @@
+**Spellbinds**\
+`Bryan Kaproth-Gerecht spins up a lofty debut.`\
+https://www.nytimes.com/2026/08/24/crosswords/daily-puzzle-2026-08-25.html
+
 **Supreme Court Allows Trump to Pursue Mail Voting Limits, for Now**\
 `The administration asked the court to clear the way for President Trump’s order that creates “state citizenship lists” and directs the Postal Service to decide who gets a mail-in ballot.`\
 https://www.nytimes.com/2026/08/24/us/politics/supreme-court-trump-mail-ballots.html
