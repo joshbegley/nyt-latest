@@ -1,3 +1,7 @@
+**South Carolina Election Becomes Test for Trump**\
+`Runoffs in the state are typically sleepy, but the Republican Senate contest between Darline Graham and Ralph Norman seemed to be drawing relatively high turnout.`\
+https://www.nytimes.com/2026/08/25/us/politics/south-carolina-runoff-trump-test.html
+
 **Supreme Court Ruling on Mail-in Voting Could Add to Election Confusion**\
 `The limits on mail-in voting may not go into effect by November, with at least one state vowing to sue. But some states and experts warned about further voter confusion.`\
 https://www.nytimes.com/2026/08/25/us/mail-in-voting-states.html

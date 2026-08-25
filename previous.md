@@ -1,3 +1,7 @@
+**South Carolina Election Becomes Test for Trump**\
+`Runoffs in the state are typically sleepy, but the Republican Senate contest between Darline Graham and Ralph Norman seemed to be drawing relatively high turnout.`\
+https://www.nytimes.com/2026/08/25/us/politics/south-carolina-runoff-trump-test.html
+
 **Supreme Court Ruling on Mail-in Voting Could Add to Election Confusion**\
 `The limits on mail-in voting may not go into effect by November, with at least one state vowing to sue. But some states and experts warned about further voter confusion.`\
 https://www.nytimes.com/2026/08/25/us/mail-in-voting-states.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/25/world/middleeast/us-syria-terrorism-list-sanc
 ****\
 `A video shared on social media shows Israeli soldiers standing by while Zvi Sukkot, who is a member of the Israeli Parliament, and his aides attack a Palestinian monument in the West Bank village of Madama on Tuesday.`\
 https://www.nytimes.com/video/embedded/admin/100000011111382/25vid-westbank-hammer-embed-91515.html
-
-**Street Style Look of the Week: A T-Vintage Shirt That’s a Badge of Honor’**\
-`While in Copenhagen for the runway shows, an art curator took a commemorative T-shirt from her mother out for a whirl.`\
-https://www.nytimes.com/2026/08/25/style/street-style-look-vintage-t-shirt.html
 

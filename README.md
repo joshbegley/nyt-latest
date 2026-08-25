@@ -1,3 +1,7 @@
+**Muere Dolly Parton, leyenda indiscutible del country, a los 80 años**\
+`Conocida por su personalidad desbordante, pasó de la pobreza a convertirse en una cantante, compositora y empresaria de gran éxito y con un talento prodigioso.`\
+https://www.nytimes.com/es/2026/08/25/espanol/cultura/muere-dolly-parton.html
+
 **South Carolina Election Becomes Test for Trump**\
 `Runoffs in the state are typically sleepy, but the Republican Senate contest between Darline Graham and Ralph Norman seemed to be drawing relatively high turnout.`\
 https://www.nytimes.com/2026/08/25/us/politics/south-carolina-runoff-trump-test.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/25/business/us-bessent-china-iran.html
 **U.S. Removes Syria From Its List of Terrorism Sponsors**\
 `The move lifted economic sanctions on the country, raising hopes of further recovery after its brutal civil war.`\
 https://www.nytimes.com/2026/08/25/world/middleeast/us-syria-terrorism-list-sanctions.html
-
-****\
-`A video shared on social media shows Israeli soldiers standing by while Zvi Sukkot, who is a member of the Israeli Parliament, and his aides attack a Palestinian monument in the West Bank village of Madama on Tuesday.`\
-https://www.nytimes.com/video/embedded/admin/100000011111382/25vid-westbank-hammer-embed-91515.html
 
