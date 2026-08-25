@@ -1,3 +1,7 @@
+**Forbes Suspends Shook Research Rankings as It Investigates $6 Million Payment**\
+`The magazine, which is reviewing a payment from the founder of Shook Research to its former top editor, also canceled a summit in Las Vegas scheduled for October.`\
+https://www.nytimes.com/2026/08/25/business/media/forbes-shook-research-payment.html
+
 **Court Documents Suggest Rebel Wilson Ordered Websites Attacking Producer**\
 `New documents filed on Tuesday in Los Angeles appear to show that Ms. Wilson, the actress, was heavily involved in disparaging Amanda Ghost, a producer on her movie, “The Deb.”`\
 https://www.nytimes.com/2026/08/25/nyregion/rebel-wilson-the-deb-producer-amanda-ghost.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/25/us/hegseth-purge-army-generals.html
 **Israeli Lawmaker Smashes Palestinian Monument in West Bank**\
 `Videos showed Israeli troops standing by as Zvi Sukkot attacked the monument with a sledgehammer. The military said soldiers had stopped the demolition.`\
 https://www.nytimes.com/2026/08/25/world/middleeast/israel-lawmaker-palestinian-monument.html
-
-**E.P.A. Moves to Curb Public Input on Air Pollution Permits for Data Centers**\
-`Under the proposal, states would no longer need to provide public notice or solicit comments on air pollution permits for data centers and other projects.`\
-https://www.nytimes.com/2026/08/25/climate/epa-data-centers-public-comment.html
 
