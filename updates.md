@@ -1,3 +1,11 @@
+**Court Documents Suggest Rebel Wilson Ordered Websites Attacking Producer**\
+`New documents filed on Tuesday in Los Angeles appear to show that Ms. Wilson, the actress, was heavily involved in disparaging Amanda Ghost, a producer on her movie, “The Deb.”`\
+https://www.nytimes.com/2026/08/25/nyregion/rebel-wilson-the-deb-producer-amanda-ghost.html
+
+**Dolly Parton’s Bedazzled, Bewigged and Bodacious Style**\
+`A wild mountain rose, she used her clothes and her body to subvert expectations.`\
+https://www.nytimes.com/2026/08/25/style/dolly-parton-sense-of-style.html
+
 **Where Does Trump’s Executive Order Restricting Mail Voting Stand?**\
 `The Supreme Court on Monday allowed the Trump administration to continue with plans to curtail mail-in voting, but the fast-moving, high-stakes legal fight continues.`\
 https://www.nytimes.com/2026/08/25/us/politics/what-to-know-trump-executive-order-mail-voting.html

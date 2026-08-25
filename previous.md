@@ -1,3 +1,7 @@
+**Court Documents Suggest Rebel Wilson Ordered Websites Attacking Producer**\
+`New documents filed on Tuesday in Los Angeles appear to show that Ms. Wilson, the actress, was heavily involved in disparaging Amanda Ghost, a producer on her movie, “The Deb.”`\
+https://www.nytimes.com/2026/08/25/nyregion/rebel-wilson-the-deb-producer-amanda-ghost.html
+
 **Where Does Trump’s Executive Order Restricting Mail Voting Stand?**\
 `The Supreme Court on Monday allowed the Trump administration to continue with plans to curtail mail-in voting, but the fast-moving, high-stakes legal fight continues.`\
 https://www.nytimes.com/2026/08/25/us/politics/what-to-know-trump-executive-order-mail-voting.html
@@ -126,7 +130,7 @@ https://www.nytimes.com/2026/08/25/us/politics/south-carolina-runoff-trump-test.
 `The limits on mail-in voting may not go into effect by November, with at least one state vowing to sue. But some states and experts warned about further voter confusion.`\
 https://www.nytimes.com/2026/08/25/us/mail-in-voting-states.html
 
-**Dolly Parton’s Bedazzled, Bewigged, and Bodacious Style**\
+**Dolly Parton’s Bedazzled, Bewigged and Bodacious Style**\
 `A wild mountain rose, she used her clothes and her body to subvert expectations.`\
 https://www.nytimes.com/2026/08/25/style/dolly-parton-sense-of-style.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/25/world/middleeast/israel-lawmaker-palestinian-
 **E.P.A. Moves to Curb Public Input on Air Pollution Permits for Data Centers**\
 `Under the proposal, states would no longer need to provide public notice or solicit comments on air pollution permits for data centers and other projects.`\
 https://www.nytimes.com/2026/08/25/climate/epa-data-centers-public-comment.html
-
-**A Shoe That Looks Great on Everyone**\
-`Plus: Erling Haaland’s new look, and a surprising hire at Skims.`\
-https://www.nytimes.com/2026/08/25/style/approach-shoes-climbing-style.html
 

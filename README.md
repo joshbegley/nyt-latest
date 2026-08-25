@@ -94,7 +94,7 @@ https://www.nytimes.com/2026/08/25/us/cte-nfl-football-takeaways.html
 `A thriving ‘conflict economy’ is extracting minerals while the military and armed groups inflict abuse on civilians, according to a new report on the scale of recent violence in Myanmar.`\
 https://www.nytimes.com/2026/08/25/world/asia/myanmar-junta-violence-rohingya.html
 
-**Congress Needs to Stop Trump’s Tariff Madness**\
+**The Ludicrous Argument Behind Trump’s Tariffs**\
 `Mr. Trump is breaking the law. Congress and the judiciary need to respond.`\
 https://www.nytimes.com/2026/08/25/opinion/trump-tariffs-illegal-canada.html
 
