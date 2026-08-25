@@ -1,3 +1,7 @@
+**Hegseth’s Purge of Top Generals Leaves the Army Rudderless**\
+`The leadership vacuum comes as the Army is trying to adapt to a new kind of war dominated by deadly drones.`\
+https://www.nytimes.com/2026/08/25/us/hegseth-purge-army-generals.html
+
 **Israeli Lawmaker Smashes Palestinian Monument in West Bank**\
 `Videos showed Israeli troops standing by as Zvi Sukkot attacked the monument with a sledgehammer. The military said soldiers had stopped the demolition.`\
 https://www.nytimes.com/2026/08/25/world/middleeast/israel-lawmaker-palestinian-monument.html
