@@ -1,6 +1,18 @@
+**U.S. ‘Economic D-Day’ Targets More Than Just Iranian Oil**\
+`The United States threatened sanctions for any country or entity that engages with Iran’s gold, digital assets, aviation, shipping and tech industries. Here’s why that matters.`\
+https://www.nytimes.com/2026/08/25/world/middleeast/iran-us-sanctions-oil-gold.html
+
+**When to Expect Results in South Carolina and Oklahoma’s Primary Runoff Elections**\
+`The results of primary runoff elections will likely be known by late Tuesday night, officials said.`\
+https://www.nytimes.com/2026/08/25/us/politics/south-carolina-oklahoma-results-timing.html
+
+**Serena Williams Returns to Tennis and Thrills U.S. Open Crowd**\
+`Williams and Carlos Alcaraz coasted to an early victory in mixed doubles before losing their second match.`\
+https://www.nytimes.com/2026/08/25/sports/serena-williams-alcaraz-us-open-photos.html
+
 **Dolly Parton: A Life in Pictures**\
 `Parton made her mark in the country arenas of Nashville, and then crossed over into the pop world, Hollywood and beyond.`\
-https://www.nytimes.com/2026/08/25/arts/music/dolly-parton-a-life-in-pictures.html
+https://www.nytimes.com/2026/08/25/arts/music/dolly-parton-photos-life-career.html
 
 **Instagram Chief Says ‘No Silver Bullets’ for Teen Safety in Bellwether Trial**\
 `Adam Mosseri testified in a case brought by states that claim the Meta-owned app created addictive features to hook young users.`\
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/08/25/us/politics/south-carolina-runoff-trump-test.
 **Supreme Court Ruling on Mail-in Voting Could Add to Election Confusion**\
 `The limits on mail-in voting may not go into effect by November, with at least one state vowing to sue. But some states and experts warned about further voter confusion.`\
 https://www.nytimes.com/2026/08/25/us/mail-in-voting-states.html
-
-**Dolly Parton’s Bedazzled, Bewigged and Bodacious Style**\
-`A wild mountain rose, she used her clothes and her body to subvert expectations.`\
-https://www.nytimes.com/2026/08/25/style/dolly-parton-sense-of-style.html
-
-**Cómo colapsaron las negociaciones comerciales entre EE. UU. y Canadá**\
-`Los relatos detallados de las últimas horas de las negociaciones muestran que, si bien Estados Unidos le ofreció a Canadá lo que, según ellos, era el mejor acuerdo de todos los países, lo que Canadá tenía que ceder a cambio se consideraba inconcebible.`\
-https://www.nytimes.com/es/2026/08/25/espanol/mundo/canada-aranceles-trump-negociaciones.html
-
-**Target se disculpa y retira disfraz de Halloween calificado de racista**\
-`El disfraz infantil evocaba imágenes del maquillaje teatral estilo “blackface”, dijeron los críticos. ‘Sabemos que nos equivocamos y lo lamentamos profundamente’, dijo la cadena de tiendas en respuesta.`\
-https://www.nytimes.com/es/2026/08/25/espanol/estados-unidos/target-disfraz-halloween-racista.html
 
