@@ -1,3 +1,11 @@
+**Israeli Lawmaker Smashes Palestinian Monument in West Bank**\
+`Videos showed Israeli troops standing by as Zvi Sukkot attacked the monument with a sledgehammer. The military said soldiers had stopped the demolition.`\
+https://www.nytimes.com/2026/08/25/world/middleeast/israel-lawmaker-palestinian-monument.html
+
+****\
+`A video shared on social media shows Israeli soldiers standing by while Zvi Sukkot, who is a member of the Israeli Parliament, and his aides attack a Palestinian monument in the West Bank village of Madama on Tuesday.`\
+https://www.nytimes.com/video/embedded/admin/100000011111382/25vid-westbank-hammer-embed-91515.html
+
 **E.P.A. Moves to Curb Public Input on Air Pollution Permits for Data Centers**\
 `Under the proposal, states would no longer need to provide public notice or solicit comments on air pollution permits for data centers and other projects.`\
 https://www.nytimes.com/2026/08/25/climate/epa-data-centers-public-comment.html

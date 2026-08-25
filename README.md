@@ -1,3 +1,7 @@
+**Hegseth’s Purge of Top Generals Leaves the Army Rudderless**\
+`The leadership vacuum comes as the Army is trying to adapt to a new kind of war dominated by deadly drones.`\
+https://www.nytimes.com/2026/08/25/us/hegseth-purge-army-generals.html
+
 **Israeli Lawmaker Smashes Palestinian Monument in West Bank**\
 `Videos showed Israeli troops standing by as Zvi Sukkot attacked the monument with a sledgehammer. The military said soldiers had stopped the demolition.`\
 https://www.nytimes.com/2026/08/25/world/middleeast/israel-lawmaker-palestinian-monument.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/25/us/politics/john-fetterman-poll-republicans-d
 **Iran May Have Little to Lose as U.S. Tries to Squeeze Its Economy**\
 `Experts warn that a campaign aimed at avoiding military escalation could instead provoke it, as Iranian leaders vow retaliation across the oil-rich Gulf.`\
 https://www.nytimes.com/2026/08/25/world/middleeast/iran-us-economy-sanctions.html
-
-**Trump Administration to Return Diplomats to Middle East Embassies**\
-`Evacuated foreign service officers could begin heading back to their posts as early as this week, an internal document shows, suggesting Washington does not anticipate a renewal of full-scale conflict with Iran.`\
-https://www.nytimes.com/2026/08/25/world/middleeast/us-diplomats-middle-east-embassies.html
 

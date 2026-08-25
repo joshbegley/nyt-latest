@@ -1,3 +1,7 @@
+**Israeli Lawmaker Smashes Palestinian Monument in West Bank**\
+`Videos showed Israeli troops standing by as Zvi Sukkot attacked the monument with a sledgehammer. The military said soldiers had stopped the demolition.`\
+https://www.nytimes.com/2026/08/25/world/middleeast/israel-lawmaker-palestinian-monument.html
+
 **E.P.A. Moves to Curb Public Input on Air Pollution Permits for Data Centers**\
 `Under the proposal, states would no longer need to provide public notice or solicit comments on air pollution permits for data centers and other projects.`\
 https://www.nytimes.com/2026/08/25/climate/epa-data-centers-public-comment.html
@@ -123,7 +127,7 @@ https://www.nytimes.com/2026/08/25/business/us-bessent-china-iran.html
 https://www.nytimes.com/2026/08/25/world/middleeast/us-syria-terrorism-list-sanctions.html
 
 ****\
-`A video shared on social media shows Israeli soldiers standing by while Knesset member Zvi Sukkot and his aides attack a Palestinian monument in the West Bank village of Madama on Tuesday morning.`\
+`A video shared on social media shows Israeli soldiers standing by while Zvi Sukkot, who is a member of the Israeli Parliament, and his aides attack a Palestinian monument in the West Bank village of Madama on Tuesday.`\
 https://www.nytimes.com/video/embedded/admin/100000011111382/25vid-westbank-hammer-embed-91515.html
 
 **Street Style Look of the Week: A T-Vintage Shirt That’s a Badge of Honor’**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/25/world/middleeast/iran-us-economy-sanctions.ht
 **Trump Administration to Return Diplomats to Middle East Embassies**\
 `Evacuated foreign service officers could begin heading back to their posts as early as this week, an internal document shows, suggesting Washington does not anticipate a renewal of full-scale conflict with Iran.`\
 https://www.nytimes.com/2026/08/25/world/middleeast/us-diplomats-middle-east-embassies.html
-
-**Target Apologizes and Drops Halloween Costume Criticized as Racist**\
-`The children’s costume evoked blackface imagery, critics said. “We know we got this wrong, and we are deeply sorry,” the retailer said in response.`\
-https://www.nytimes.com/2026/08/25/business/target-halloween-costume-controversy.html
 
