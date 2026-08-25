@@ -1,6 +1,10 @@
+**U.S. Tariffs Could Price Canadian Firms Out of U.S. and Threaten Thousands of Jobs**\
+`The 50 percent tariffs President Trump imposed on Canadian exports to the United States will make it impossible for many Canadian companies to continue to sell to the U.S. market, economists say.`\
+https://www.nytimes.com/2026/08/24/world/canada/us-tariffs-trade-economy.html
+
 **Trump Officials Propose Charging More Than $100,000 for Skilled Worker Visas**\
 `The proposal comes after the Trump administration ran into legal challenges in its attempt to attach a similar fee to the H-1B visa last year.`\
-https://www.nytimes.com/2026/08/24/us/politics/steep-fee-proposal-h1b-visas.html
+https://www.nytimes.com/2026/08/24/us/politics/h1b-visas-fees-proposal-trump.html
 
 **Creamy Turmeric Pasta**\
 `This earthy pasta is cobbled together using ingredients that you almost certainly already have in your kitchen.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/24/arts/television/shelley-fabares-dead.html
 **British Prime Minister Visits Ukraine for Its Independence Day**\
 `Prime Minister Andy Burnham of Britain arrived in Kyiv, the Ukrainian capital, on Monday for the country’s Independence Day, prompting Russia to accuse Britain of stoking tensions.`\
 https://www.nytimes.com/video/world/europe/100000011109253/andy-burnham-uk-ukraine-visit.html
-
-**¿El CBD es bueno para tu mascota?**\
-`Muchas personas en las redes sociales afirman que el CBD calma los nervios o alivia el dolor de sus mascotas. Aquí te contamos qué dicen los expertos.`\
-https://www.nytimes.com/es/2026/08/24/espanol/cbd-funciona-perros-mascotas.html
 
