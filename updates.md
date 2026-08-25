@@ -1,3 +1,95 @@
+**¿El enjuague bucal es malo para la salud oral?**\
+`We asked experts to fact check some claims.`\
+https://www.nytimes.com/es/2026/08/25/espanol/enjuague-bucal-recomendaciones.html
+
+**Are You Using Conditioner All Wrong?**\
+`Our expert clears up some common conditioner confusion, including who needs to use one and how to apply it.`\
+https://www.nytimes.com/2026/08/25/podcasts/are-you-using-conditioner-all-wrong.html
+
+**Toplines: August 2026 Times/Inquirer/Siena Poll of Registered Voters in Pennsylvania**\
+`Results of a New York Times/Philadelphia Inquirer/Siena poll conducted among 760 voters in Pennsylvania from Aug. 17 to 21, 2026.`\
+https://www.nytimes.com/interactive/2026/08/25/polls/times-inquirer-siena-pa-poll-toplines.html
+
+**Cross-Tabs: August 2026 Times/Inquirer/Siena Poll of Registered Voters in Pennsylvania**\
+`Results of a New York Times/Philadelphia Inquirer/Siena poll conducted among 760 voters in Pennsylvania from Aug. 17 to 21, 2026.`\
+https://www.nytimes.com/interactive/2026/08/25/polls/times-inquirer-siena-pa-poll-rv-crosstabs.html
+
+**Cross-Tabs: August 2026 Times/Inquirer/Siena Poll of the Likely Electorate in Pennsylvania**\
+`Results of a New York Times/Philadelphia Inquirer/Siena poll conducted among 760 voters in Pennsylvania from Aug. 17 to 21, 2026.`\
+https://www.nytimes.com/interactive/2026/08/25/polls/times-inquirer-siena-pa-poll-lv-crosstabs.html
+
+**Poll Shows Josh Shapiro Leading Pennsylvania Governor’s Race**\
+`A New York Times/Philadelphia Inquirer/Siena poll found Gov. Josh Shapiro leading Stacy Garrity and having support in the state for a possible presidential bid.`\
+https://www.nytimes.com/2026/08/25/us/elections/josh-shapiro-pennsylvania-poll.html
+
+**Your Child Plays Football. How Can You Minimize Risk of C.T.E.?**\
+`Researchers say it’s all about reducing the total number of blows to the head.`\
+https://www.nytimes.com/2026/08/25/us/cte-prevention-youth-football.html
+
+**A Comic Book About ‘Dogs’ Has a Serious Purpose**\
+`Lucy Lang, the state inspector general, wants teenage readers to understand the role of watchdogs in government.`\
+https://www.nytimes.com/2026/08/25/nyregion/comic-book-inspector-general.html
+
+**This Is Why People Hate the Government**\
+`Annie Lowrey, the author of “The Time Tax,” explains how the government steals Americans’ time — on purpose.`\
+https://www.nytimes.com/2026/08/25/opinion/ezra-klein-podcast-annie-lowrey.html
+
+**For ‘National Treasure’ Superfans, the Secret Lies in Philadelphia**\
+`The creators of the “National Treasure Hunt” podcast bring their passion for the Nicolas Cage heist movie to the birthplace of the Declaration of Independence.`\
+https://www.nytimes.com/2026/08/25/arts/national-treasure-hunt-philadelphia.html
+
+**3 Charts That Explain El Niño**\
+`With air and sea surface temperatures already breaking records, this year’s episode is on track to be the strongest in living memory.`\
+https://www.nytimes.com/2026/08/25/climate/el-nino-temperature-charts.html
+
+**Why Irregular’s A.I. Tests for Meta, Anthropic and OpenAI Went Off the Rails**\
+`Irregular, an Israeli start-up, worked with OpenAI, Anthropic and Meta to assess the security of their A.I. models. It made a mistake. Then the tests went off the rails.`\
+https://www.nytimes.com/2026/08/25/technology/irregular-ai-test-hacks.html
+
+**A Chinese A.I. Lab May Test the World’s Cybersecurity With a Model**\
+`In July, an unreleased OpenAI model went rogue and demonstrated remarkable hacking abilities. This week, a lab called Z.ai will release a similarly powerful system to everyone.`\
+https://www.nytimes.com/2026/08/25/science/cybersecurity-zai-open-weights.html
+
+**We Know the Risks of A.I. We Need to Act.**\
+`A.I. could turn one of our country’s worst habits into a national security crisis.`\
+https://www.nytimes.com/2026/08/25/opinion/ai-risks.html
+
+**Dunkin’ Has a Bunch of New Drinks. Drinking Them Is Not the Point.**\
+`The odd new drinks of a beloved coffee chain reveal a lot about how the attention economy works.`\
+https://www.nytimes.com/2026/08/25/magazine/dunkin-drinks-coffee-tiktok.html
+
+**Christian Convert Who Fled Iran and Was Deported By Trump Finds New Home**\
+`Artemis Ghasemzadeh, who had escaped religious persecution, was deported to Panama under Trump’s immigration crackdown. Now, Canada has given her asylum.`\
+https://www.nytimes.com/2026/08/25/world/middleeast/christian-convert-who-fled-iran-and-was-ousted-from-us-finds-a-new-home.html
+
+**What to Watch in Tuesday’s Primary Runoffs in South Carolina and Oklahoma**\
+`President Trump’s endorsement track record is on the line in two races, including the high-profile contest to succeed the late Senator Lindsey Graham.`\
+https://www.nytimes.com/2026/08/25/us/politics/runoff-election-south-carolina-oklahoma.html
+
+**Restaurant Review: Zoli in New York**\
+`Zoli, part of an art complex in Williamsburg, springs a number of intriguing surprises, starting with those strange fish tanks.`\
+https://www.nytimes.com/2026/08/25/dining/restaurant-review-zoil-brooklyn.html
+
+**The Developers Who Spent $400,000 to Save One Maple Tree**\
+`The artist and architect owners likened sparing the silver maple to “rescuing a geriatric dog.”`\
+https://www.nytimes.com/2026/08/25/realestate/red-hook-silver-maple-treehouse.html
+
+**These Architects Are Designing High-End Homes Made to Look Old**\
+`Architects have carved out a niche in high-end new homes that are exactingly designed to look old.`\
+https://www.nytimes.com/2026/08/25/realestate/architects-historic-homes-design.html
+
+**How Many N.F.L. Players Will Have C.T.E.?**\
+`New research finds that at least one in four N.F.L. players who died in a six-year period had C.T.E., a degenerative brain disease caused by repeated impacts to the head. Our reporter John Branch unpacks the data and its implications for the sport.`\
+https://www.nytimes.com/video/us/100000011092227/nfl-players-cte-study.html
+
+**What Happened to the Coveted Western Tanks Sent to Ukraine?**\
+`Ukraine pleaded for the expensive weapons, and ultimately got them, but drones have rendered them almost unusable.`\
+https://www.nytimes.com/2026/08/25/world/europe/ukraine-russia-tanks.html
+
+**Word of the Day: herbivorous**\
+`This word has appeared in two articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/08/25/learning/word-of-the-day-herbivorous.html
+
 **Silence, Wolves and the Wild East: Hiking in Portugal’s Côa Valley**\
 `A trek in a remote corner of the Iberian Peninsula brought a writer face-to-face with ancient oaks, rewilding efforts and prehistoric cave art.`\
 https://www.nytimes.com/2026/08/25/travel/portugal-coa-valley-grand-hiking-route.html

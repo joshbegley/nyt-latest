@@ -1,3 +1,95 @@
+**¿El enjuague bucal es malo para la salud oral?**\
+`We asked experts to fact check some claims.`\
+https://www.nytimes.com/es/2026/08/25/espanol/enjuague-bucal-recomendaciones.html
+
+**Are You Using Conditioner All Wrong?**\
+`Our expert clears up some common conditioner confusion, including who needs to use one and how to apply it.`\
+https://www.nytimes.com/2026/08/25/podcasts/are-you-using-conditioner-all-wrong.html
+
+**Toplines: August 2026 Times/Inquirer/Siena Poll of Registered Voters in Pennsylvania**\
+`Results of a New York Times/Philadelphia Inquirer/Siena poll conducted among 760 voters in Pennsylvania from Aug. 17 to 21, 2026.`\
+https://www.nytimes.com/interactive/2026/08/25/polls/times-inquirer-siena-pa-poll-toplines.html
+
+**Cross-Tabs: August 2026 Times/Inquirer/Siena Poll of Registered Voters in Pennsylvania**\
+`Results of a New York Times/Philadelphia Inquirer/Siena poll conducted among 760 voters in Pennsylvania from Aug. 17 to 21, 2026.`\
+https://www.nytimes.com/interactive/2026/08/25/polls/times-inquirer-siena-pa-poll-rv-crosstabs.html
+
+**Cross-Tabs: August 2026 Times/Inquirer/Siena Poll of the Likely Electorate in Pennsylvania**\
+`Results of a New York Times/Philadelphia Inquirer/Siena poll conducted among 760 voters in Pennsylvania from Aug. 17 to 21, 2026.`\
+https://www.nytimes.com/interactive/2026/08/25/polls/times-inquirer-siena-pa-poll-lv-crosstabs.html
+
+**Poll Shows Josh Shapiro Leading Pennsylvania Governor’s Race**\
+`A New York Times/Philadelphia Inquirer/Siena poll found Gov. Josh Shapiro leading Stacy Garrity and having support in the state for a possible presidential bid.`\
+https://www.nytimes.com/2026/08/25/us/elections/josh-shapiro-pennsylvania-poll.html
+
+**Your Child Plays Football. How Can You Minimize Risk of C.T.E.?**\
+`Researchers say it’s all about reducing the total number of blows to the head.`\
+https://www.nytimes.com/2026/08/25/us/cte-prevention-youth-football.html
+
+**A Comic Book About ‘Dogs’ Has a Serious Purpose**\
+`Lucy Lang, the state inspector general, wants teenage readers to understand the role of watchdogs in government.`\
+https://www.nytimes.com/2026/08/25/nyregion/comic-book-inspector-general.html
+
+**This Is Why People Hate the Government**\
+`Annie Lowrey, the author of “The Time Tax,” explains how the government steals Americans’ time — on purpose.`\
+https://www.nytimes.com/2026/08/25/opinion/ezra-klein-podcast-annie-lowrey.html
+
+**For ‘National Treasure’ Superfans, the Secret Lies in Philadelphia**\
+`The creators of the “National Treasure Hunt” podcast bring their passion for the Nicolas Cage heist movie to the birthplace of the Declaration of Independence.`\
+https://www.nytimes.com/2026/08/25/arts/national-treasure-hunt-philadelphia.html
+
+**3 Charts That Explain El Niño**\
+`With air and sea surface temperatures already breaking records, this year’s episode is on track to be the strongest in living memory.`\
+https://www.nytimes.com/2026/08/25/climate/el-nino-temperature-charts.html
+
+**Why Irregular’s A.I. Tests for Meta, Anthropic and OpenAI Went Off the Rails**\
+`Irregular, an Israeli start-up, worked with OpenAI, Anthropic and Meta to assess the security of their A.I. models. It made a mistake. Then the tests went off the rails.`\
+https://www.nytimes.com/2026/08/25/technology/irregular-ai-test-hacks.html
+
+**A Chinese A.I. Lab May Test the World’s Cybersecurity With a Model**\
+`In July, an unreleased OpenAI model went rogue and demonstrated remarkable hacking abilities. This week, a lab called Z.ai will release a similarly powerful system to everyone.`\
+https://www.nytimes.com/2026/08/25/science/cybersecurity-zai-open-weights.html
+
+**We Know the Risks of A.I. We Need to Act.**\
+`A.I. could turn one of our country’s worst habits into a national security crisis.`\
+https://www.nytimes.com/2026/08/25/opinion/ai-risks.html
+
+**Dunkin’ Has a Bunch of New Drinks. Drinking Them Is Not the Point.**\
+`The odd new drinks of a beloved coffee chain reveal a lot about how the attention economy works.`\
+https://www.nytimes.com/2026/08/25/magazine/dunkin-drinks-coffee-tiktok.html
+
+**Christian Convert Who Fled Iran and Was Deported By Trump Finds New Home**\
+`Artemis Ghasemzadeh, who had escaped religious persecution, was deported to Panama under Trump’s immigration crackdown. Now, Canada has given her asylum.`\
+https://www.nytimes.com/2026/08/25/world/middleeast/christian-convert-who-fled-iran-and-was-ousted-from-us-finds-a-new-home.html
+
+**What to Watch in Tuesday’s Primary Runoffs in South Carolina and Oklahoma**\
+`President Trump’s endorsement track record is on the line in two races, including the high-profile contest to succeed the late Senator Lindsey Graham.`\
+https://www.nytimes.com/2026/08/25/us/politics/runoff-election-south-carolina-oklahoma.html
+
+**Restaurant Review: Zoli in New York**\
+`Zoli, part of an art complex in Williamsburg, springs a number of intriguing surprises, starting with those strange fish tanks.`\
+https://www.nytimes.com/2026/08/25/dining/restaurant-review-zoil-brooklyn.html
+
+**The Developers Who Spent $400,000 to Save One Maple Tree**\
+`The artist and architect owners likened sparing the silver maple to “rescuing a geriatric dog.”`\
+https://www.nytimes.com/2026/08/25/realestate/red-hook-silver-maple-treehouse.html
+
+**These Architects Are Designing High-End Homes Made to Look Old**\
+`Architects have carved out a niche in high-end new homes that are exactingly designed to look old.`\
+https://www.nytimes.com/2026/08/25/realestate/architects-historic-homes-design.html
+
+**How Many N.F.L. Players Will Have C.T.E.?**\
+`New research finds that at least one in four N.F.L. players who died in a six-year period had C.T.E., a degenerative brain disease caused by repeated impacts to the head. Our reporter John Branch unpacks the data and its implications for the sport.`\
+https://www.nytimes.com/video/us/100000011092227/nfl-players-cte-study.html
+
+**What Happened to the Coveted Western Tanks Sent to Ukraine?**\
+`Ukraine pleaded for the expensive weapons, and ultimately got them, but drones have rendered them almost unusable.`\
+https://www.nytimes.com/2026/08/25/world/europe/ukraine-russia-tanks.html
+
+**Word of the Day: herbivorous**\
+`This word has appeared in two articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/08/25/learning/word-of-the-day-herbivorous.html
+
 **Silence, Wolves and the Wild East: Hiking in Portugal’s Côa Valley**\
 `A trek in a remote corner of the Iberian Peninsula brought a writer face-to-face with ancient oaks, rewilding efforts and prehistoric cave art.`\
 https://www.nytimes.com/2026/08/25/travel/portugal-coa-valley-grand-hiking-route.html
@@ -105,96 +197,4 @@ https://www.nytimes.com/2026/08/25/pageoneplus/quote-of-the-day-deaths-by-russia
 **What We Know About Australia’s Bird Flu, Which Has Crossed Over to Mammals**\
 `Australia confirmed its first case of H5N1 in June in migratory seabirds. Since then, the virus has spread rapidly, straining government responses.`\
 https://www.nytimes.com/2026/08/25/world/australia/bird-flu-h5n1-mammals.html
-
-**Trump Administration Aims to Revoke Visas of Foreign Citizens Applying for Asylum**\
-`The State Department, in a move that could affect as many as 200,000 visa holders and asylum applicants, has begun its review. Cancellations could occur in waves.`\
-https://www.nytimes.com/2026/08/24/us/politics/trump-administration-aims-to-revoke-visas-of-foreign-citizens-applying-for-asylum.html
-
-**Are You Fluent in Dating Lingo? Take Our Quiz.**\
-`Ghosting isn’t even the worst of it.`\
-https://www.nytimes.com/interactive/2026/08/24/well/dating-terms-phrases-lingo-quiz.html
-
-**Jeffries Defends Kushner Meeting, Vowing Tough Oversight of Trump**\
-`The Brooklyn Democrat, who is in line to be speaker should his party win the House, has drawn ire from some progressives for huddling with the president’s son-in-law.`\
-https://www.nytimes.com/2026/08/24/us/politics/jeffries-kushner-meeting-trump-oversight.html
-
-**Abdul El-Sayed Joins Jesse Watters of Fox News for Some Light Verbal Combat**\
-`In a smiling yet tense interview, Dr. Abdul El-Sayed, the Democratic nominee for Senate in Michigan, argued that his Republican critics were using culture-war issues to distract from Americans’ economic concerns.`\
-https://www.nytimes.com/2026/08/24/us/abdul-el-sayed-jesse-watters-fox-news.html
-
-**Russian Stadium Says It Won’t Host Ye Concerts**\
-`Gazprom Arena in St. Petersburg said that two October concerts would not take place there, citing a lack of rental agreements.`\
-https://www.nytimes.com/2026/08/24/arts/music/ye-concerts-canceled-russia-gazprom-arena.html
-
-**Spellbinds**\
-`Bryan Kaproth-Gerecht spins up a lofty debut.`\
-https://www.nytimes.com/2026/08/24/crosswords/daily-puzzle-2026-08-25.html
-
-**What Did I Miss? Your Summer Politics Quiz.**\
-`It’s perfectly sane to want to avoid thinking about current events, but attention must be paid.`\
-https://www.nytimes.com/quiz/2026/08/24/opinion/end-of-summer-politics-quiz.html
-
-**California Judge Says Recalled Officials Are Unlawfully in Office**\
-`The mayor and three other council members of Avenal, Calif., had refused to leave despite a certified vote by residents to recall them. They will now step down, a city official said.`\
-https://www.nytimes.com/2026/08/24/us/avenal-california-recall-city-council.html
-
-**U.S. Tariffs Could Price Canadian Firms Out of U.S. and Threaten Thousands of Jobs**\
-`The 50 percent tariffs President Trump imposed on Canadian exports to the United States will make it impossible for many Canadian companies to continue to sell to the U.S. market, economists say.`\
-https://www.nytimes.com/2026/08/24/world/canada/us-tariffs-trade-economy.html
-
-**Trump Officials Propose Charging More Than $100,000 for Skilled Worker Visas**\
-`The proposal comes after the Trump administration ran into legal challenges in its attempt to attach a similar fee to the H-1B visa last year.`\
-https://www.nytimes.com/2026/08/24/us/politics/h1b-visas-fees-proposal-trump.html
-
-**Creamy Turmeric Pasta**\
-`This earthy pasta is cobbled together using ingredients that you almost certainly already have in your kitchen.`\
-https://www.nytimes.com/video/dining/100000011110596/creamy-turmeric-pasta.html
-
-**NYC’s 911 System Had an Outage. Officials Kept Quiet About It.**\
-`When a partial breakdown of the system occurred last week, New York City officials did not inform the public.`\
-https://www.nytimes.com/2026/08/24/nyregion/mamdani-911-outage-nyc.html
-
-**Religious References in Lindsay Clancy Trial Anger Judge and Defense**\
-`The religious reference by a prosecution witness on Monday incensed the presiding judge, who sternly instructed jurors to disregard it. Lindsay Clancy’s lawyer asked for a mistrial.`\
-https://www.nytimes.com/2026/08/24/us/lindsay-clancy-trial-religion-catholic.html
-
-**Trump’s Attempt to Strangle Iran’s Economy Depends on China’s Cooperation**\
-`The U.S. has spent 20 years promising ‘crippling sanctions’ on Iran. But the latest effort comes with a reverse twist, after military action failed to accomplish President Trump’s goals.`\
-https://www.nytimes.com/2026/08/24/us/politics/trump-bessent-iran-economic-d-day.html
-
-**Louisiana Girl, 8, Dies After Contracting Rare Brain-Eating Amoeba**\
-`Lillian Smart most likely contracted the parasite while swimming in a lake in northwest Louisiana, the state Health Department and a family spokesman said.`\
-https://www.nytimes.com/2026/08/24/us/louisiana-child-dead-brain-eating-amoeba.html
-
-**Una juez ordena que vuelva de México a EE. UU. un deportado en riesgo de tortura**\
-`Había sido enviado de vuelta a su país de origen después de ayudar a las autoridades federales al testificar contra cárteles mexicanos de la droga.`\
-https://www.nytimes.com/es/2026/08/24/espanol/orden-deportado-mexico-tortura.html
-
-**The Mayor Went on Vacation. He Didn’t Travel Very Far.**\
-`Zohran Mamdani is known for working around the clock as mayor of New York City, but last week he and his wife headed “upstate” for vacation and some locals were thrilled to spot them.`\
-https://www.nytimes.com/2026/08/24/nyregion/mamdani-mayor-upstate-ny-vacation.html
-
-**Trump Has Quietly Sought Control Over Postal Service to Transform U.S. Elections**\
-`That effort got new attention on Monday, when the Supreme Court allowed preparations for mail voting curbs to proceed. The justices said it is not a final determination on the order’s legality.`\
-https://www.nytimes.com/2026/08/24/us/politics/mail-voting-supreme-court-postal-service-trump.html
-
-**Indiana Governor Calls for NIPSCO to Be Investigated Over Power Outages After Gary Storms**\
-`Nearly 4,000 customers in the Gary area remained without electricity almost two weeks after an intense storm. The utility has pledged to restore power by Tuesday.`\
-https://www.nytimes.com/2026/08/24/us/gary-indiana-power-outage.html
-
-**Forensic Scientists Use ‘Breakthrough’ Method to Identify 9/11 Victim**\
-`DNA analysts at the New York City medical examiner’s office partnered with a squad of local detectives skilled at genealogical research.`\
-https://www.nytimes.com/2026/08/24/nyregion/dna-genealogy-science-victim-identification.html
-
-**Trump Administration Announces New Series of Sanctions Against Iran**\
-`Scott Bessent, secretary of the Treasury, unveiled what the administration describes as its most comprehensive assault to date on Iran’s economy. The plan, called Operation Economic Outcast, would sanction more than 60 entities that aid Iran’s nuclear and missile programs.`\
-https://www.nytimes.com/video/us/politics/100000011110093/bessent-iran-nuclear-sanctions.html
-
-**Gov. Kathy Hochul, Five Years In, Makes Her Case for Four More**\
-`Ms. Hochul, who ascended to the governorship in the depths of the pandemic, believes that New York is back. She hopes she has persuaded New Yorkers.`\
-https://www.nytimes.com/2026/08/24/nyregion/kathy-hochul-new-york-governor-anniversary.html
-
-**Martha’s Vineyard Property Once Owned by Jackie Kennedy Onassis Is Now Open to All**\
-`Visitors to Martha’s Vineyard can now traverse a property once owned by Jackie Kennedy Onassis. Known as the Squibnocket Pond Reservation, the 330-acre reserve opened last year and added a new trail in July.`\
-https://www.nytimes.com/video/us/100000011110027/jackie-kennedy-onassis-marthas-vineyard.html
 
