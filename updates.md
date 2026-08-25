@@ -1,3 +1,7 @@
+**The Heat on Treasury Secretary Scott Bessent Grows**\
+`Treasury Secretary Scott Bessent’s plans to intervene in bond markets have drawn widespread criticism, including from a prominent former mentor.`\
+https://www.nytimes.com/2026/08/25/business/dealbook/bessent-bond-market-druckenmiller.html
+
 **Tornado Rips Through Towns in Southern France**\
 `An uncommonly powerful tornado destroyed dozens of homes and knocked out power to about 2,800 households.`\
 https://www.nytimes.com/2026/08/25/world/europe/tornado-southern-france-pomas.html
