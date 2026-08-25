@@ -1,3 +1,23 @@
+**Canada Is Done With Trump**\
+`Canada suspended trade negotiations this week, setting off President Trump’s 50 percent tariffs on a range of Canadian goods.`\
+https://www.nytimes.com/2026/08/25/podcasts/the-daily/canada-is-done-with-trump.html
+
+**An Alarming New Study About Brain Injuries in Football, and How States Are Paying Millions for Rain**\
+`Plus, is the BRAT diet really the best thing for stomach bugs?`\
+https://www.nytimes.com/2026/08/25/podcasts/the-headlines/football-cte-rain-brat-diet.html
+
+**NYT Connections Answers for August 26, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Aug. 26, 2026.`\
+https://www.nytimes.com/2026/08/25/crosswords/connections-companion-1172.html
+
+**NYT Strands Hints for August 26, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Aug. 26, 2026.`\
+https://www.nytimes.com/2026/08/25/crosswords/strands-sidekick-906.html
+
+**Today’s Wordle Hints for August 26, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Aug. 26, 2026.`\
+https://www.nytimes.com/2026/08/25/crosswords/wordle-review-1894.html
+
 **John Fetterman’s Popularity With Republicans Surges, Poll Finds**\
 `Pennsylvania Republicans now view John Fetterman, the state’s Democratic senator, more favorably than its sitting G.O.P. senator, a New York Times/Philadelphia Inquirer/Siena poll found.`\
 https://www.nytimes.com/2026/08/25/us/politics/john-fetterman-poll-republicans-democrats-pennsylvania.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/08/25/nyregion/us-open-2026-tennis.html
 **‘They Opened the Door and Pulled Us Out’: How ICE Descended on a Town**\
 `One summer morning, immigration agents swooped in and detained 18 immigrants at a store in Lakewood, N.J., plunging the town into fear.`\
 https://www.nytimes.com/2026/08/25/nyregion/new-jersey-ice-raids.html
-
-**It’s One Parking Spot in New York City. What Could It Cost, $250,000?**\
-`Some New Yorkers are willing to pay condo-like prices for a bit of concrete convenience.`\
-https://www.nytimes.com/2026/08/25/nyregion/private-parking-spots-new-york-city.html
-
-**NYT Spelling Bee Answers for August 25, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/08/25/crosswords/spelling-bee-forum.html
-
-**El apagón que podría devastar EE. UU.**\
-`Miles de transformadores antiguos, fabricados a mano, sostienen la red eléctrica. Si fallaran demasiados, el apagón podría prolongarse durante años.`\
-https://www.nytimes.com/es/2026/08/25/espanol/estados-unidos/apagones-electricidad-corriente.html
-
-**Chinese Artist Sentenced to Three Years in Prison for Mao Sculptures**\
-`Gao Zhen, part of a brotherly duo famous for satirical artworks, was convicted of slandering one of China’s heroes after a secret one-day trial.`\
-https://www.nytimes.com/2026/08/25/world/asia/china-artist-gao-zhen-jailed-mao-sculpture.html
-
-**Jelly Roll Celebrates His 300-Pound Weight Loss on ‘Jimmy Kimmel Live’**\
-`“That means I’ve lost an entire Donald Trump,” the country singer said while guest hosting Monday’s late night show.`\
-https://www.nytimes.com/2026/08/25/arts/television/jelly-roll-jimmy-kimmel-trump.html
 
