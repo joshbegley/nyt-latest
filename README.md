@@ -66,8 +66,8 @@ https://www.nytimes.com/2026/08/25/dining/restaurant-review-gigis-nyc.html
 `Spheres of conflict have multiplied and are merging. Meanwhile, the West is a mess.`\
 https://www.nytimes.com/2026/08/25/opinion/has-world-war-iii-already-started.html
 
-**Dethroned Miss North Carolina Sues Miss USA for Defamation**\
-`Brittany Boltinhouse’s title was rescinded after past social media posts surfaced. She is accusing pageant organizers of damaging her reputation.`\
+**Dethroned Beauty Queen Sues Miss USA for Defamation**\
+`Brittany Boltinhouse’s title as Miss North Carolina USA was rescinded after past social media posts surfaced.`\
 https://www.nytimes.com/2026/08/25/style/miss-north-carolina-brittany-boltinhouse-lawsuit.html
 
 **Champagne Grapes Ripen Early Amid Extreme Heat in France**\
