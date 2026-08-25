@@ -1,3 +1,7 @@
+**Would Darline Graham Be the First Sister to Succeed a Brother in Congress?**\
+`Family dynasties are common in American politics. But sibling succession is rare.`\
+https://www.nytimes.com/2026/08/25/us/politics/darline-lindsey-graham-election-succession.html
+
 **It Was Always Dolly Parton’s Show**\
 `Trailing Dolly Parton around the world, I witnessed so many small moments in which she’d gracefully own her power without the slightest hint of fight.`\
 https://www.nytimes.com/2026/08/25/opinion/dolly-parton-death-america-legacy.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/25/arts/music/amplifier-newsletter-paul-simons-g
 **Dolly Parton, Country Music Superstar Whose Songs Spoke to Millions, Dies at 80**\
 `Known for her outsize persona, appearance and talent, she rose from rural poverty to become a top-selling singer, songwriter and entrepreneur.`\
 https://www.nytimes.com/2026/08/25/arts/music/dolly-parton-dead.html
-
-**C.I.A. Director Makes Secret Visit to Moscow**\
-`John Ratcliffe flew to Moscow in a military cargo plane from Riga, Latvia. It is not clear whom he met or what the purpose of his trip was.`\
-https://www.nytimes.com/2026/08/25/us/politics/cia-director-russia.html
 
