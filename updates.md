@@ -1,3 +1,7 @@
+**N.F.L. Brain Injuries**\
+`A new study underscores the danger of playing.`\
+https://www.nytimes.com/2026/08/25/briefing/nfl-brain-injuries.html
+
 **Iran May Have Little to Lose as U.S. Tries to Squeeze Its Economy**\
 `Experts warn that a campaign aimed at avoiding military escalation could instead provoke it, as Iranian leaders vow retaliation across the oil-rich Gulf.`\
 https://www.nytimes.com/2026/08/25/world/middleeast/iran-us-economy-sanctions.html

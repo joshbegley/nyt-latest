@@ -1,3 +1,7 @@
+**N.F.L. Brain Injuries**\
+`A new study underscores the danger of playing.`\
+https://www.nytimes.com/2026/08/25/briefing/nfl-brain-injuries.html
+
 **Canada Is Done With Trump**\
 `Canada suspended trade negotiations this week, setting off President Trump’s 50 percent tariffs on a range of Canadian goods.`\
 https://www.nytimes.com/2026/08/25/podcasts/the-daily/canada-is-done-with-trump.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/08/25/espanol/iglesia-muro-ruidosa-texas.html
 **What to Know About the 2026 U.S. Open**\
 `The star-studded sporting and social event runs until Sept. 13 at the Billie Jean King National Tennis Center in New York City.`\
 https://www.nytimes.com/2026/08/25/nyregion/us-open-2026-tennis.html
-
-**‘They Opened the Door and Pulled Us Out’: How ICE Descended on a Town**\
-`One summer morning, immigration agents swooped in and detained 18 immigrants at a store in Lakewood, N.J., plunging the town into fear.`\
-https://www.nytimes.com/2026/08/25/nyregion/new-jersey-ice-raids.html
 
