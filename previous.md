@@ -1,3 +1,7 @@
+**Experts for Prosecution Discuss Clancy’s Mental State at Time of Killings**\
+`Lindsay Clancy has said she was suffering postpartum psychosis when she killed her children in 2023. Prosecution experts shared their doubts about that claim on Tuesday.`\
+https://www.nytimes.com/2026/08/25/us/lindsay-clancy-trial.html
+
 **Hugo y Mariano Jinkis llegan a acuerdo en caso de corrupción de la FIFA**\
 `Hugo y Mariano Jinkis, que estaban prófugos en Argentina, volvieron voluntariamente a Estados Unidos en mayo y se espera que esta semana comparezcan ante un tribunal federal en Brooklyn.`\
 https://www.nytimes.com/es/2026/08/25/espanol/estados-unidos/jinkis-caso-corrupcion-acuerdo-fifa.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/25/us/cte-nfl-football-takeaways.html
 **Airstrikes and Illegal Mining Add to Myanmar’s Troubles**\
 `A thriving ‘conflict economy’ is extracting minerals while the military and armed groups inflict abuse on civilians, according to a new report on the scale of recent violence in Myanmar.`\
 https://www.nytimes.com/2026/08/25/world/asia/myanmar-junta-violence-rohingya.html
-
-**The Ludicrous Argument Behind Trump’s Tariffs**\
-`Mr. Trump is breaking the law. Congress and the judiciary need to respond.`\
-https://www.nytimes.com/2026/08/25/opinion/trump-tariffs-illegal-canada.html
 

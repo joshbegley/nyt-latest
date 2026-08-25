@@ -1,3 +1,7 @@
+**Experts for Prosecution Discuss Clancy’s Mental State at Time of Killings**\
+`Lindsay Clancy has said she was suffering postpartum psychosis when she killed her children in 2023. Prosecution experts shared their doubts about that claim on Tuesday.`\
+https://www.nytimes.com/2026/08/25/us/lindsay-clancy-trial.html
+
 **Hugo y Mariano Jinkis llegan a acuerdo en caso de corrupción de la FIFA**\
 `Hugo y Mariano Jinkis, que estaban prófugos en Argentina, volvieron voluntariamente a Estados Unidos en mayo y se espera que esta semana comparezcan ante un tribunal federal en Brooklyn.`\
 https://www.nytimes.com/es/2026/08/25/espanol/estados-unidos/jinkis-caso-corrupcion-acuerdo-fifa.html
