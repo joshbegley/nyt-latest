@@ -55,7 +55,7 @@ https://www.nytimes.com/2026/08/25/well/measles-deaths-pennsylvania-outbreak.htm
 https://www.nytimes.com/es/2026/08/25/espanol/estados-unidos/futbol-americano-riesgo-etc.html
 
 **G.O.P. Lawmakers Rebuke Trump on Plan to Increase Beef Imports**\
-`Republicans who have mostly refrained from criticizing the president’s actions have been vocal in opposition to the move, which they say will harm their constituents`\
+`Republicans who have mostly refrained from criticizing the president’s actions have been vocal in opposition to the move, which they say will harm their constituents.`\
 https://www.nytimes.com/2026/08/25/us/politics/republicans-trump-beef-imports.html
 
 **Read the List of Goods Included in Canada’s Retaliatory Tariffs**\
