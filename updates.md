@@ -1,3 +1,15 @@
+**Restaurant Review: Gigi’s in New York**\
+`Gigi’s, a new Greenpoint bistro, goes all-in on the delicious, deceptively simple rotisserie birds.`\
+https://www.nytimes.com/2026/08/25/dining/restaurant-review-gigis-nyc.html
+
+**Has World War III Already Started?**\
+`Spheres of conflict have multiplied and are merging. Meanwhile, the West is a mess.`\
+https://www.nytimes.com/2026/08/25/opinion/has-world-war-iii-already-started.html
+
+**SpaceX to Spend $100 Billion on Spaceport in Louisiana**\
+`It would be the rocket company’s second private launch site after Starbase, its headquarters in South Texas.`\
+https://www.nytimes.com/2026/08/25/technology/spacex-louisiana-spaceport.html
+
 **Dethroned Miss North Carolina Sues Miss USA for Defamation**\
 `Brittany Boltinhouse’s title was rescinded after past social media posts surfaced. She is accusing pageant organizers of damaging her reputation.`\
 https://www.nytimes.com/2026/08/25/style/miss-north-carolina-brittany-boltinhouse-lawsuit.html

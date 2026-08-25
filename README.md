@@ -1,3 +1,11 @@
+**Election Live Updates: Primary Runoff in Race for Lindsey Graham’s Seat Will Test Trump’s Influence**\
+`Darline Graham, the sister of the late Lindsey Graham, has President Trump’s backing in her bid for the South Carolina seat. Oklahoma is also holding primary runoffs.`\
+https://www.nytimes.com/live/2026/08/25/us/elections-south-carolina-oklahoma
+
+**MAHA Moms Take On Coal**\
+`Some leaders of the health movement are challenging a pillar of the president’s energy agenda.`\
+https://www.nytimes.com/2026/08/25/climate/climate-maha-moms-coal.html
+
 **Restaurant Review: Gigi’s in New York**\
 `Gigi’s, a new Greenpoint bistro, goes all-in on the delicious, deceptively simple rotisserie birds.`\
 https://www.nytimes.com/2026/08/25/dining/restaurant-review-gigis-nyc.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/25/briefing/today-in-short.html
 **Oklahoma U.S. Senate Runoff 2026: Live Election Results, Priest vs. Thomas**\
 `Get live results and maps from the 2026 Oklahoma runoff election.`\
 https://www.nytimes.com/interactive/2026/08/25/us/elections/results-oklahoma-us-senate-runoff.html
-
-**South Carolina U.S. Senate Special Runoff 2026: Live Election Results, Graham vs. Norman**\
-`Get live results and maps from the 2026 South Carolina special runoff election.`\
-https://www.nytimes.com/interactive/2026/08/25/us/elections/results-south-carolina-us-senate-special-runoff-august-25.html
-
-**Oklahoma 2026: Live Election Results**\
-`Get live results and maps from the 2026 Oklahoma elections.`\
-https://www.nytimes.com/interactive/2026/08/25/us/elections/results-oklahoma.html
 
