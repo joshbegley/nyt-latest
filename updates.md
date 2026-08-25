@@ -1,3 +1,7 @@
+**Jelly Roll Celebrates His 300-Pound Weight Loss on ‘Jimmy Kimmel Live’**\
+`“That means I’ve lost an entire Donald Trump,” the country singer said while guest hosting Monday’s late night show.`\
+https://www.nytimes.com/2026/08/25/arts/television/jelly-roll-jimmy-kimmel-trump.html
+
 **China Is the Iran War’s Unexpected Winner**\
 `The Iran war was supposed to expose China’s weakness on oil, but it didn’t quite work out that way.`\
 https://www.nytimes.com/2026/08/25/opinion/iran-china-energy-power.html
