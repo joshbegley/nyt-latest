@@ -10,7 +10,7 @@ https://www.nytimes.com/es/2026/08/25/espanol/estados-unidos/target-disfraz-hall
 `On its 40th anniversary, our critic looks back at the album’s creation, paradoxes and reception.`\
 https://www.nytimes.com/2026/08/25/arts/music/amplifier-newsletter-paul-simons-graceland.html
 
-**Dolly Parton, Superstar Whose Songs Spoke to Millions, Dies at 80**\
+**Dolly Parton, Country Music Superstar Whose Songs Spoke to Millions, Dies at 80**\
 `Known for her outsize persona, appearance and talent, she rose from rural poverty to become a top-selling singer, songwriter and entrepreneur.`\
 https://www.nytimes.com/2026/08/25/arts/music/dolly-parton-dead.html
 
