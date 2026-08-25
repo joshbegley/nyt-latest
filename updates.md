@@ -1,3 +1,7 @@
+**This A.I. Start-Up Aims to Reverse the Backlash Against Data Centers**\
+`Emerald AI, now valued at $1.05 billion, uses software to keep power demand at the computing facilities from getting out of control.`\
+https://www.nytimes.com/2026/08/25/business/dealbook/emerald-ai-start-up-data-center-backlash.html
+
 **How Do You Feel About the Risks of Youth Football?**\
 `A new study shows that N.F.L. players have a high risk for developing degenerative brain disease. Does anyone in your family play football? We want to know your thoughts.`\
 https://www.nytimes.com/2026/08/25/us/football-parents-cte.html

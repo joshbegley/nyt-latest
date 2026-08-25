@@ -1,3 +1,15 @@
+**Un nuevo intento de castigar a Irán**\
+`El gobierno de Trump dice que intentará aislar al país de la economía mundial atacando a sus socios comerciales.`\
+https://www.nytimes.com/es/2026/08/25/espanol/mundo/sanciones-economicas-iran.html
+
+**California Billionaires Launch Ads Against Wealth Tax**\
+`The billionaire effort is led by Sergey Brin, a co-founder of Google, who has contributed more than $100 million this year toward California campaign efforts.`\
+https://www.nytimes.com/2026/08/25/us/california-billionaire-tax-ballot-question.html
+
+**Democratic Senators Ask Homeland Security for Details About Idled Planes**\
+`The request follows a New York Times story, which revealed that Homeland Security had spent $464 million on used jets that rarely fly.`\
+https://www.nytimes.com/2026/08/25/us/politics/democratic-senators-homeland-security-planes.html
+
 **This A.I. Start-Up Aims to Reverse the Backlash Against Data Centers**\
 `Emerald AI, now valued at $1.05 billion, uses software to keep power demand at the computing facilities from getting out of control.`\
 https://www.nytimes.com/2026/08/25/business/dealbook/emerald-ai-start-up-data-center-backlash.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/video/opinion/100000011107029/this-is-why-people-hate-th
 **Australia Bans Generative A.I. From Official Music Charts**\
 `Under new rules, recordings developed using generative A.I. will only be allowed if they are “substantially human-made,” the peak body says.`\
 https://www.nytimes.com/2026/08/25/world/australia/australia-ai-music-chart-ban.html
-
-**El engaño de las bodas colectivas que dejó a decenas de hombres sin pareja en India**\
-`Una familia vio una oportunidad en las dificultades que enfrentan muchos hombres de comunidades rurales para encontrar esposa. Les cobró por una boda que jamás se celebró.`\
-https://www.nytimes.com/es/2026/08/25/espanol/mundo/fraude-boda-india.html
-
-**Una antigua solución sumeria para un déficit de 40 billones de dólares**\
-`En el mundo antiguo, la condonación de deudas era una solución pragmática a un problema intratable. ¿Por qué la hemos olvidado?`\
-https://www.nytimes.com/es/2026/08/25/espanol/opinion/deuda-publica-condonacion.html
-
-**‘Abrieron la puerta y nos sacaron’: cómo el ICE irrumpió en un pueblo de Nueva Jersey**\
-`Una mañana de verano, agentes de migración irrumpieron y detuvieron a 18 migrantes en una tienda de Lakewood, Nueva Jersey, sumiendo a la localidad en el miedo.`\
-https://www.nytimes.com/es/2026/08/25/espanol/estados-unidos/ice-nueva-jersey-redadas.html
 

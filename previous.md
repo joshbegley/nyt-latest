@@ -1,3 +1,7 @@
+**This A.I. Start-Up Aims to Reverse the Backlash Against Data Centers**\
+`Emerald AI, now valued at $1.05 billion, uses software to keep power demand at the computing facilities from getting out of control.`\
+https://www.nytimes.com/2026/08/25/business/dealbook/emerald-ai-start-up-data-center-backlash.html
+
 **How Do You Feel About the Risks of Youth Football?**\
 `A new study shows that N.F.L. players have a high risk for developing degenerative brain disease. Does anyone in your family play football? We want to know your thoughts.`\
 https://www.nytimes.com/2026/08/25/us/football-parents-cte.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/08/25/espanol/opinion/deuda-publica-condonacion.
 **‘Abrieron la puerta y nos sacaron’: cómo el ICE irrumpió en un pueblo de Nueva Jersey**\
 `Una mañana de verano, agentes de migración irrumpieron y detuvieron a 18 migrantes en una tienda de Lakewood, Nueva Jersey, sumiendo a la localidad en el miedo.`\
 https://www.nytimes.com/es/2026/08/25/espanol/estados-unidos/ice-nueva-jersey-redadas.html
-
-**El muro fronterizo de Trump podría destruir una iglesia de 110 años**\
-`La campana y la iglesia católica de Ruidosa, en Texas, son símbolos de la unión de dos comunidades. Hoy, un elemento de división amenaza con borrar su historia.`\
-https://www.nytimes.com/es/2026/08/25/espanol/iglesia-muro-ruidosa-texas.html
 
