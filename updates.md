@@ -1,3 +1,11 @@
+**Trump Wants to Restrict Mail-In Voting. See Which States Rely on It The Most.**\
+`Nearly 30 percent of voters nationwide use mail ballots. President Trump is seeking greater federal control of mail voting.`\
+https://www.nytimes.com/2026/08/25/us/politics/mail-in-ballots-states-voting-trump.html
+
+**Today, In Short**\
+`College football. The U.S. Open. And spritzes.`\
+https://www.nytimes.com/2026/08/25/briefing/today-in-short.html
+
 **Oklahoma U.S. Senate Runoff 2026: Live Election Results, Priest vs. Thomas**\
 `Get live results and maps from the 2026 Oklahoma runoff election.`\
 https://www.nytimes.com/interactive/2026/08/25/us/elections/results-oklahoma-us-senate-runoff.html

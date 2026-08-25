@@ -83,7 +83,7 @@ https://www.nytimes.com/2026/08/25/business/us-bessent-china-iran.html
 https://www.nytimes.com/2026/08/25/world/middleeast/us-syria-terrorism-list-sanctions.html
 
 ****\
-`A video shared on social media shows several Israeli soldiers standing by while Knesset member Zvi Sukkot and his aides attack a Palestinian monument in the West Bank village of Madama on Tuesday morning.`\
+`A video shared on social media shows Israeli soldiers standing by while Knesset member Zvi Sukkot and his aides attack a Palestinian monument in the West Bank village of Madama on Tuesday morning.`\
 https://www.nytimes.com/video/embedded/admin/100000011111382/25vid-westbank-hammer-embed-91515.html
 
 **Street Style Look of the Week: A T-Vintage Shirt That’s a Badge of Honor’**\
