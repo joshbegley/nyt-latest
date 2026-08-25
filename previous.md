@@ -1,3 +1,11 @@
+**What Did I Miss? Your Summer Politics Quiz.**\
+`It’s perfectly sane to want to avoid thinking about current events, but attention must be paid.`\
+https://www.nytimes.com/quiz/2026/08/24/opinion/end-of-summer-politics-quiz.html
+
+**California Judge Says Recalled Officials Are Unlawfully in Office**\
+`The mayor and three other council members of Avenal, Calif., had refused to leave despite a certified vote by residents to recall them. They will now step down, a city official said.`\
+https://www.nytimes.com/2026/08/24/us/avenal-california-recall-city-council.html
+
 **U.S. Tariffs Could Price Canadian Firms Out of U.S. and Threaten Thousands of Jobs**\
 `The 50 percent tariffs President Trump imposed on Canadian exports to the United States will make it impossible for many Canadian companies to continue to sell to the U.S. market, economists say.`\
 https://www.nytimes.com/2026/08/24/world/canada/us-tariffs-trade-economy.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/24/nyregion/mamdani-nyc-grocery-store-lawsuit.ht
 **A.M. Gittlitz Roots for the Mets (and a Better World)**\
 `Through another lost season, A.M. Gittlitz, the author of a new history of New York’s underdog baseball team, is trying to hold on to hope.`\
 https://www.nytimes.com/2026/08/24/style/gittlitz-new-york-mets-metropolitans-book.html
-
-**Shelley Fabares, ‘Donna Reed Show’ Actress, Dies at 82**\
-`She also starred in Elvis Presley movies and the sitcom “Coach.” Somewhat reluctantly, she had a No. 1 hit in 1962 with “Johnny Angel.”`\
-https://www.nytimes.com/2026/08/24/arts/television/shelley-fabares-dead.html
-
-**British Prime Minister Visits Ukraine for Its Independence Day**\
-`Prime Minister Andy Burnham of Britain arrived in Kyiv, the Ukrainian capital, on Monday for the country’s Independence Day, prompting Russia to accuse Britain of stoking tensions.`\
-https://www.nytimes.com/video/world/europe/100000011109253/andy-burnham-uk-ukraine-visit.html
 

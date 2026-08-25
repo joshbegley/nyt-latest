@@ -1,3 +1,11 @@
+**What Did I Miss? Your Summer Politics Quiz.**\
+`It’s perfectly sane to want to avoid thinking about current events, but attention must be paid.`\
+https://www.nytimes.com/quiz/2026/08/24/opinion/end-of-summer-politics-quiz.html
+
+**California Judge Says Recalled Officials Are Unlawfully in Office**\
+`The mayor and three other council members of Avenal, Calif., had refused to leave despite a certified vote by residents to recall them. They will now step down, a city official said.`\
+https://www.nytimes.com/2026/08/24/us/avenal-california-recall-city-council.html
+
 **Trump’s Attempt to Strangle Iran’s Economy Depends on China’s Cooperation**\
 `The U.S. has spent 20 years promising ‘crippling sanctions’ on Iran. But the latest effort comes with a reverse twist, after military action failed to accomplish President Trump’s goals.`\
 https://www.nytimes.com/2026/08/24/us/politics/trump-bessent-iran-economic-d-day.html
