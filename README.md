@@ -1,8 +1,12 @@
+**In Canada and at Home, Deference to Trump Turns to Defiance on Tariffs and Other Issues**\
+`While the president remains the most dominant figure in the world, other leaders and institutions are pushing back more vigorously than at the beginning of his second term.`\
+https://www.nytimes.com/2026/08/25/us/politics/trump-polls-tariffs-carney.html
+
 **Conservative Gay Rights Group Ends Support for Trans Causes**\
 `The Log Cabin Republicans, which is dedicated to gay causes, says that trans rights advocates focus too much on minors.`\
 https://www.nytimes.com/2026/08/25/us/politics/log-cabin-republicans-transgender.html
 
-**Forbes Suspends Shook Research Rankings as It Investigates $6 Million Payment**\
+**Forbes and Shook Research Suspend Rankings Amid Investigation of $6 Million Payment**\
 `The magazine, which is reviewing a payment from the founder of Shook Research to its former top editor, also canceled a summit in Las Vegas scheduled for October.`\
 https://www.nytimes.com/2026/08/25/business/media/forbes-shook-research-payment.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/25/dining/nyc-restaurant-news.html
 **How the Supreme Court Is Issuing Orders as Trump ‘Emergencies’ Return**\
 `The justices are still struggling with whether and when to explain themselves to the public when the court issues temporary, but consequential, orders.`\
 https://www.nytimes.com/2026/08/25/us/politics/supreme-court-trump-emergency-shadow-docket.html
-
-**Hegseth’s Purge of Top Generals Leaves the Army Rudderless**\
-`The leadership vacuum comes as the Army is trying to adapt to a new kind of war dominated by deadly drones.`\
-https://www.nytimes.com/2026/08/25/us/hegseth-purge-army-generals.html
 

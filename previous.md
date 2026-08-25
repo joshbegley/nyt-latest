@@ -1,3 +1,7 @@
+**Conservative Gay Rights Group Ends Support for Trans Causes**\
+`The Log Cabin Republicans, which is dedicated to gay causes, says that trans rights advocates focus too much on minors.`\
+https://www.nytimes.com/2026/08/25/us/politics/log-cabin-republicans-transgender.html
+
 **Forbes Suspends Shook Research Rankings as It Investigates $6 Million Payment**\
 `The magazine, which is reviewing a payment from the founder of Shook Research to its former top editor, also canceled a summit in Las Vegas scheduled for October.`\
 https://www.nytimes.com/2026/08/25/business/media/forbes-shook-research-payment.html
@@ -66,8 +70,8 @@ https://www.nytimes.com/2026/08/25/dining/restaurant-review-gigis-nyc.html
 `Spheres of conflict have multiplied and are merging. Meanwhile, the West is a mess.`\
 https://www.nytimes.com/2026/08/25/opinion/has-world-war-iii-already-started.html
 
-**Dethroned Beauty Queen Sues Miss USA for Defamation**\
-`Brittany Boltinhouse’s title as Miss North Carolina USA was rescinded after past social media posts surfaced.`\
+**Dethroned Beauty Queen Fights Accusations of Bigotry**\
+`Brittany Boltinhouse’s title as Miss North Carolina USA was rescinded after past social media posts surfaced. She is suing pageant organizers and Miss USA for defamation.`\
 https://www.nytimes.com/2026/08/25/style/miss-north-carolina-brittany-boltinhouse-lawsuit.html
 
 **Champagne Grapes Ripen Early Amid Extreme Heat in France**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/25/us/politics/supreme-court-trump-emergency-sha
 **Hegseth’s Purge of Top Generals Leaves the Army Rudderless**\
 `The leadership vacuum comes as the Army is trying to adapt to a new kind of war dominated by deadly drones.`\
 https://www.nytimes.com/2026/08/25/us/hegseth-purge-army-generals.html
-
-**Israeli Lawmaker Smashes Palestinian Monument in West Bank**\
-`Videos showed Israeli troops standing by as Zvi Sukkot attacked the monument with a sledgehammer. The military said soldiers had stopped the demolition.`\
-https://www.nytimes.com/2026/08/25/world/middleeast/israel-lawmaker-palestinian-monument.html
 

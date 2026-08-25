@@ -1,3 +1,11 @@
+**Conservative Gay Rights Group Ends Support for Trans Causes**\
+`The Log Cabin Republicans, which is dedicated to gay causes, says that trans rights advocates focus too much on minors.`\
+https://www.nytimes.com/2026/08/25/us/politics/log-cabin-republicans-transgender.html
+
+**Dethroned Beauty Queen Fights Accusations of Bigotry**\
+`Brittany Boltinhouse’s title as Miss North Carolina USA was rescinded after past social media posts surfaced. She is suing pageant organizers and Miss USA for defamation.`\
+https://www.nytimes.com/2026/08/25/style/miss-north-carolina-brittany-boltinhouse-lawsuit.html
+
 **Dethroned Beauty Queen Sues Miss USA for Defamation**\
 `Brittany Boltinhouse’s title as Miss North Carolina USA was rescinded after past social media posts surfaced.`\
 https://www.nytimes.com/2026/08/25/style/miss-north-carolina-brittany-boltinhouse-lawsuit.html
