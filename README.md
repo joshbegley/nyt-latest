@@ -1,3 +1,7 @@
+**Target Apologizes and Drops Halloween Costume Criticized as Racist**\
+`Critics said the children’s costume evoked blackface imagery. Target said, “We know we got this wrong, and we are deeply sorry.”`\
+https://www.nytimes.com/2026/08/25/business/target-halloween-costume-controversy.html
+
 **¿El enjuague bucal es malo para la salud oral?**\
 `We asked experts to fact check some claims.`\
 https://www.nytimes.com/es/2026/08/25/espanol/enjuague-bucal-recomendaciones.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/25/world/canada/trump-carney-trade-war-tariffs.h
 **Quote of the Day: Deaths by Russian A.I.-Guided Drone Are a First**\
 `Quotation of the Day for Tuesday, August 25, 2026.`\
 https://www.nytimes.com/2026/08/25/pageoneplus/quote-of-the-day-deaths-by-russian-ai-guided-drone-are-a-first.html
-
-**What We Know About Australia’s Bird Flu, Which Has Crossed Over to Mammals**\
-`Australia confirmed its first case of H5N1 in June in migratory seabirds. Since then, the virus has spread rapidly, straining government responses.`\
-https://www.nytimes.com/2026/08/25/world/australia/bird-flu-h5n1-mammals.html
 
