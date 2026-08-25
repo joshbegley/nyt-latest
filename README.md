@@ -1,3 +1,7 @@
+**Democrats Score Victory in Campaign Finance Court Case**\
+`Republicans had hoped that a Supreme Court decision allowing party committees to coordinate with candidates would also entitle them to lower ad rates. On Tuesday, an appeals court said otherwise.`\
+https://www.nytimes.com/2026/08/25/us/politics/court-democrats-republicans-ad-case.html
+
 **5 Things to Know About Darline Graham, Trump-Backed South Carolina Senate Candidate**\
 `Ms. Graham is currently serving out the term of her late brother, Lindsey Graham. She has argued that her lack of political experience is a strength.`\
 https://www.nytimes.com/2026/08/25/us/politics/trump-darline-graham-south-carolina.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/25/opinion/trump-tariffs-illegal-canada.html
 **Angie Nixon and the Power of Pink**\
 `The electoral playbook has a strategic new shade.`\
 https://www.nytimes.com/2026/08/25/style/angie-nixon-florida-pink.html
-
-**Dolly Parton: Hear 15 Essential Songs**\
-`The singer-songwriter rose from poverty to become a chart-topping performer whose earnest character allowed her to span genres.`\
-https://www.nytimes.com/2026/08/25/arts/music/dolly-parton-songs.html
 
