@@ -1,3 +1,7 @@
+**How Do You Feel About the Risks of Youth Football?**\
+`A new study shows that N.F.L. players have a high risk for developing degenerative brain disease. Does anyone in your family play football? We want to know your thoughts.`\
+https://www.nytimes.com/2026/08/25/us/football-parents-cte.html
+
 **N.F.L. Brain Injuries**\
 `A new study underscores the danger of playing.`\
 https://www.nytimes.com/2026/08/25/briefing/nfl-brain-injuries.html

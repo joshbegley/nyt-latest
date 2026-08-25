@@ -1,3 +1,7 @@
+**How Do You Feel About the Risks of Youth Football?**\
+`A new study shows that N.F.L. players have a high risk for developing degenerative brain disease. Does anyone in your family play football? We want to know your thoughts.`\
+https://www.nytimes.com/2026/08/25/us/football-parents-cte.html
+
 **N.F.L. Brain Injuries**\
 `A new study underscores the danger of playing.`\
 https://www.nytimes.com/2026/08/25/briefing/nfl-brain-injuries.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/08/25/espanol/estados-unidos/ice-nueva-jersey-re
 **El muro fronterizo de Trump podría destruir una iglesia de 110 años**\
 `La campana y la iglesia católica de Ruidosa, en Texas, son símbolos de la unión de dos comunidades. Hoy, un elemento de división amenaza con borrar su historia.`\
 https://www.nytimes.com/es/2026/08/25/espanol/iglesia-muro-ruidosa-texas.html
-
-**What to Know About the 2026 U.S. Open**\
-`The star-studded sporting and social event runs until Sept. 13 at the Billie Jean King National Tennis Center in New York City.`\
-https://www.nytimes.com/2026/08/25/nyregion/us-open-2026-tennis.html
 
