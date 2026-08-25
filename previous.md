@@ -1,3 +1,7 @@
+**E.P.A. Moves to Curb Public Input on Air Pollution Permits for Data Centers**\
+`Under the proposal, states would no longer need to provide public notice or solicit comments on air pollution permits for data centers and other projects.`\
+https://www.nytimes.com/2026/08/25/climate/epa-data-centers-public-comment.html
+
 **A Shoe That Looks Great on Everyone**\
 `Plus: Erling Haaland’s new look, and a surprising hire at Skims.`\
 https://www.nytimes.com/2026/08/25/style/approach-shoes-climbing-style.html
@@ -6,7 +10,7 @@ https://www.nytimes.com/2026/08/25/style/approach-shoes-climbing-style.html
 `Extreme heat waves this summer have set off an early grape harvest in Champagne and elsewhere in France.`\
 https://www.nytimes.com/2026/08/25/world/europe/heat-drought-france-champagne.html
 
-**Trump Threatens to Rename Lake Ontario as Trade War With Canada Heats Up**\
+**Trump Threatens to Rename Lake Ontario to Lake America as U.S.-Canada Trade War Heats Up**\
 `The president’s threat is his latest jab at Canada since trade talks between the two countries broke down.`\
 https://www.nytimes.com/2026/08/25/us/politics/trump-lake-ontario-america-canada-trade.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/25/world/middleeast/us-diplomats-middle-east-emb
 **Target Apologizes and Drops Halloween Costume Criticized as Racist**\
 `The children’s costume evoked blackface imagery, critics said. “We know we got this wrong, and we are deeply sorry,” the retailer said in response.`\
 https://www.nytimes.com/2026/08/25/business/target-halloween-costume-controversy.html
-
-**¿El enjuague bucal es malo para la salud oral?**\
-`We asked experts to fact check some claims.`\
-https://www.nytimes.com/es/2026/08/25/espanol/enjuague-bucal-recomendaciones.html
 

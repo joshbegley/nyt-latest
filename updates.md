@@ -1,3 +1,11 @@
+**E.P.A. Moves to Curb Public Input on Air Pollution Permits for Data Centers**\
+`Under the proposal, states would no longer need to provide public notice or solicit comments on air pollution permits for data centers and other projects.`\
+https://www.nytimes.com/2026/08/25/climate/epa-data-centers-public-comment.html
+
+**Trump Threatens to Rename Lake Ontario to Lake America as U.S.-Canada Trade War Heats Up**\
+`The president’s threat is his latest jab at Canada since trade talks between the two countries broke down.`\
+https://www.nytimes.com/2026/08/25/us/politics/trump-lake-ontario-america-canada-trade.html
+
 **A Shoe That Looks Great on Everyone**\
 `Plus: Erling Haaland’s new look, and a surprising hire at Skims.`\
 https://www.nytimes.com/2026/08/25/style/approach-shoes-climbing-style.html
