@@ -1,3 +1,7 @@
+**Russian Stadium Says It Won’t Host Ye Concerts**\
+`Gazprom Arena in St. Petersburg said that two October concerts would not take place there, citing a lack of rental agreements.`\
+https://www.nytimes.com/2026/08/24/arts/music/ye-concerts-canceled-russia-gazprom-arena.html
+
 **Spellbinds**\
 `Bryan Kaproth-Gerecht spins up a lofty debut.`\
 https://www.nytimes.com/2026/08/24/crosswords/daily-puzzle-2026-08-25.html
