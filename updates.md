@@ -1,3 +1,27 @@
+**Oklahoma Superintendent of Public Instruction Runoff 2026: Live Election Results**\
+`Get live results and maps from the 2026 Oklahoma runoff election.`\
+https://www.nytimes.com/interactive/2026/08/25/us/elections/results-oklahoma-superintendent-of-public-instruction-runoff.html
+
+**Oklahoma Labor Commissioner Runoff 2026: Live Election Results**\
+`Get live results and maps from the 2026 Oklahoma runoff election.`\
+https://www.nytimes.com/interactive/2026/08/25/us/elections/results-oklahoma-labor-commissioner-runoff.html
+
+**Oklahoma Insurance Commissioner Runoff 2026: Live Election Results**\
+`Get live results and maps from the 2026 Oklahoma runoff election.`\
+https://www.nytimes.com/interactive/2026/08/25/us/elections/results-oklahoma-insurance-commissioner-runoff.html
+
+**Georgia 13th Congressional District Special Runoff 2026: Live Election Results, Blair vs. Scott**\
+`Get live results and maps from the 2026 Georgia special runoff election.`\
+https://www.nytimes.com/interactive/2026/08/25/us/elections/results-georgia-us-house-13-special-runoff.html
+
+**Election Live Updates: Primary Runoff in Race for Lindsey Graham’s Seat Will Test Trump’s Influence**\
+`Darline Graham, the sister of the late Lindsey Graham, has President Trump’s backing in her bid for the South Carolina seat. Oklahoma is also holding primary runoffs.`\
+https://www.nytimes.com/live/2026/08/25/us/elections-south-carolina-oklahoma
+
+**MAHA Moms Take On Coal**\
+`Some leaders of the health movement are challenging a pillar of the president’s energy agenda.`\
+https://www.nytimes.com/2026/08/25/climate/climate-maha-moms-coal.html
+
 **Restaurant Review: Gigi’s in New York**\
 `Gigi’s, a new Greenpoint bistro, goes all-in on the delicious, deceptively simple rotisserie birds.`\
 https://www.nytimes.com/2026/08/25/dining/restaurant-review-gigis-nyc.html
