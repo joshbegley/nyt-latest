@@ -1,3 +1,11 @@
+**Fringe Views in Primary Campaigns Rattle Florida Jews**\
+`It has been an uneasy primary season for Jewish voters, with debates over Israel animating many races. But what happened in Florida went beyond that.`\
+https://www.nytimes.com/2026/08/25/us/james-fishback-florida-jewish-voters.html
+
+**Brasserie Boulud Lands Just in Time for Lincoln Center’s Fall Season**\
+`El Califa de León and Bread Ahead open their first U.S. locations, and more restaurant news.`\
+https://www.nytimes.com/2026/08/25/dining/nyc-restaurant-news.html
+
 **How the Supreme Court Is Issuing Orders as Trump ‘Emergencies’ Return**\
 `The justices are still struggling with whether and when to explain themselves to the public when the court issues temporary, but consequential orders.`\
 https://www.nytimes.com/2026/08/25/us/politics/supreme-court-trump-emergency-shadow-docket.html
