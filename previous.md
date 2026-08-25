@@ -1,3 +1,7 @@
+**Hugo y Mariano Jinkis llegan a acuerdo en caso de corrupción de la FIFA**\
+`Hugo y Mariano Jinkis, que estaban prófugos en Argentina, volvieron voluntariamente a Estados Unidos en mayo y se espera que esta semana comparezcan ante un tribunal federal en Brooklyn.`\
+https://www.nytimes.com/es/2026/08/25/espanol/estados-unidos/jinkis-caso-corrupcion-acuerdo-fifa.html
+
 **Democrats Score Victory in Campaign Finance Court Case**\
 `Republicans had hoped that a Supreme Court decision allowing party committees to coordinate with candidates would also entitle them to lower ad rates. On Tuesday, an appeals court said otherwise.`\
 https://www.nytimes.com/2026/08/25/us/politics/court-democrats-republicans-ad-case.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/25/world/asia/myanmar-junta-violence-rohingya.ht
 **The Ludicrous Argument Behind Trump’s Tariffs**\
 `Mr. Trump is breaking the law. Congress and the judiciary need to respond.`\
 https://www.nytimes.com/2026/08/25/opinion/trump-tariffs-illegal-canada.html
-
-**Angie Nixon and the Power of Pink**\
-`The electoral playbook has a strategic new shade.`\
-https://www.nytimes.com/2026/08/25/style/angie-nixon-florida-pink.html
 
