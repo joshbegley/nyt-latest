@@ -1,3 +1,7 @@
+**Dolly Parton: A Life in Pictures**\
+`Parton made her mark in the country arenas of Nashville, and then crossed over into the pop world, Hollywood and beyond.`\
+https://www.nytimes.com/2026/08/25/arts/music/dolly-parton-a-life-in-pictures.html
+
 **Instagram Chief Says ‘No Silver Bullets’ for Teen Safety in Bellwether Trial**\
 `Adam Mosseri testified in a case brought by states that claim the Meta-owned app created addictive features to hook young users.`\
 https://www.nytimes.com/2026/08/25/technology/instagram-adam-mosseri-trial.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/08/25/espanol/mundo/canada-aranceles-trump-negoc
 **Target se disculpa y retira disfraz de Halloween calificado de racista**\
 `El disfraz infantil evocaba imágenes del maquillaje teatral estilo “blackface”, dijeron los críticos. ‘Sabemos que nos equivocamos y lo lamentamos profundamente’, dijo la cadena de tiendas en respuesta.`\
 https://www.nytimes.com/es/2026/08/25/espanol/estados-unidos/target-disfraz-halloween-racista.html
-
-**The Origins of Paul Simon’s ‘Graceland’**\
-`On its 40th anniversary, our critic looks back at the album’s creation, paradoxes and reception.`\
-https://www.nytimes.com/2026/08/25/arts/music/amplifier-newsletter-paul-simons-graceland.html
 

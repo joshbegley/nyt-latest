@@ -1,3 +1,7 @@
+**Instagram Chief Says ‘No Silver Bullets’ for Teen Safety in Bellwether Trial**\
+`Adam Mosseri testified in a case brought by states that claim the Meta-owned app created addictive features to hook young users.`\
+https://www.nytimes.com/2026/08/25/technology/instagram-adam-mosseri-trial.html
+
 **Would Darline Graham Be the First Sister to Succeed a Brother in Congress?**\
 `Family dynasties are common in American politics. But sibling succession is rare.`\
 https://www.nytimes.com/2026/08/25/us/politics/darline-lindsey-graham-election-succession.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/08/25/espanol/estados-unidos/target-disfraz-hall
 **The Origins of Paul Simon’s ‘Graceland’**\
 `On its 40th anniversary, our critic looks back at the album’s creation, paradoxes and reception.`\
 https://www.nytimes.com/2026/08/25/arts/music/amplifier-newsletter-paul-simons-graceland.html
-
-**Dolly Parton, Country Music Superstar Whose Songs Spoke to Millions, Dies at 80**\
-`Known for her outsize persona, appearance and talent, she rose from rural poverty to become a top-selling singer, songwriter and entrepreneur.`\
-https://www.nytimes.com/2026/08/25/arts/music/dolly-parton-dead.html
 

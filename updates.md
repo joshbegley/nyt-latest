@@ -1,3 +1,7 @@
+**Instagram Chief Says ‘No Silver Bullets’ for Teen Safety in Bellwether Trial**\
+`Adam Mosseri testified in a case brought by states that claim the Meta-owned app created addictive features to hook young users.`\
+https://www.nytimes.com/2026/08/25/technology/instagram-adam-mosseri-trial.html
+
 **Would Darline Graham Be the First Sister to Succeed a Brother in Congress?**\
 `Family dynasties are common in American politics. But sibling succession is rare.`\
 https://www.nytimes.com/2026/08/25/us/politics/darline-lindsey-graham-election-succession.html
