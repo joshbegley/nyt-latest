@@ -1,3 +1,7 @@
+**What We Know About the Hawk Fire Near Reno**\
+`Thousands of residents were evacuated and dozens of homes burned in Nevada, and forecasters are concerned that critical conditions could return.`\
+https://www.nytimes.com/2026/08/25/us/reno-nevada-hawk-fire.html
+
 **India’s Summer of Youth Protests Is Boiling Over**\
 `The police fired water cannons at protesters in the state of Bihar, while the leaders of the ‘Cockroach’ student movement vowed to return to Delhi’s streets.`\
 https://www.nytimes.com/2026/08/25/world/asia/indias-youth-protests-cockroach.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/25/podcasts/the-daily/canada-is-done-with-trump.
 **An Alarming New Study About Brain Injuries in Football, and How States Are Paying Millions for Rain**\
 `Plus, is the BRAT diet really the best thing for stomach bugs?`\
 https://www.nytimes.com/2026/08/25/podcasts/the-headlines/football-cte-rain-brat-diet.html
-
-**NYT Connections Answers for August 26, 2026**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, Aug. 26, 2026.`\
-https://www.nytimes.com/2026/08/25/crosswords/connections-companion-1172.html
 

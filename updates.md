@@ -1,3 +1,7 @@
+**India’s Summer of Youth Protests Is Boiling Over**\
+`The police fired water cannons at protesters in the state of Bihar, while the leaders of the ‘Cockroach’ student movement vowed to return to Delhi’s streets.`\
+https://www.nytimes.com/2026/08/25/world/asia/indias-youth-protests-cockroach.html
+
 **Fringe Views in Primary Campaigns Rattle Florida Jews**\
 `It has been an uneasy primary season for Jewish voters, with debates over Israel animating many races. But what happened in Florida went beyond that.`\
 https://www.nytimes.com/2026/08/25/us/james-fishback-florida-jewish-voters.html
