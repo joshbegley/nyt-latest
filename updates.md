@@ -1,4 +1,8 @@
 **Chinese Artist Sentenced to Three Years in Prison for Mao Sculptures**\
+`Gao Zhen, part of a brotherly duo famous for satirical artworks, was convicted of slandering one of China’s heroes after a secret one-day trial.`\
+https://www.nytimes.com/2026/08/25/world/asia/china-artist-gao-zhen-jailed-mao-sculpture.html
+
+**Chinese Artist Sentenced to Three Years in Prison for Mao Sculptures**\
 `Gao Zhen, part of a brotherly duo famous for satirical artworks, was convicted of slandering China’s heroes after a secret one-day trial.`\
 https://www.nytimes.com/2026/08/25/world/asia/china-artist-gao-zhen-jailed-mao-sculpture.html
 
