@@ -1,3 +1,15 @@
+**Lindsay Clancy Deserves Mercy, Not Life in Prison**\
+`It is too hard for women suffering from postpartum mental illness to prove the insanity defense.`\
+https://www.nytimes.com/2026/08/25/opinion/lindsay-clancy-postpartum-mom-kids-death.html
+
+**What’s More Than ‘Maximum’? Trump Faces Limits on Iran Sanctions.**\
+`President Trump’s “Economic D-Day” is intended to break the stalemate with Iran. But decades of sanctions have done little to change the country’s behavior.`\
+https://www.nytimes.com/2026/08/25/us/politics/trump-iran-maximum-sanctions.html
+
+**5 Takeaways on the Fallout From an Alarming C.T.E. Study**\
+`At least one in four N.F.L. players, and likely a much higher percentage, had the brain disease when they died. Will anything change?`\
+https://www.nytimes.com/2026/08/25/us/cte-nfl-football-takeaways.html
+
 **Airstrikes and Illegal Mining Add to Myanmar’s Troubles**\
 `A thriving ‘conflict economy’ is extracting minerals while the military and armed groups inflict abuse on civilians, according to a new report on the scale of recent violence in Myanmar.`\
 https://www.nytimes.com/2026/08/25/world/asia/myanmar-junta-violence-rohingya.html
