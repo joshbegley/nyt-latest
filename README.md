@@ -63,7 +63,7 @@ https://www.nytimes.com/2026/08/25/world/middleeast/iran-us-economy-sanctions.ht
 https://www.nytimes.com/2026/08/25/world/middleeast/us-diplomats-middle-east-embassies.html
 
 **Target Apologizes and Drops Halloween Costume Criticized as Racist**\
-`Critics said the children’s costume evoked blackface imagery. Target said, “We know we got this wrong, and we are deeply sorry.”`\
+`Critics said the children’s costume evoked blackface imagery. The retailer said, “We know we got this wrong, and we are deeply sorry.”`\
 https://www.nytimes.com/2026/08/25/business/target-halloween-costume-controversy.html
 
 **¿El enjuague bucal es malo para la salud oral?**\
