@@ -1,3 +1,7 @@
+**Court Allows Trump to Pursue Mail Voting Limits, for Now**\
+`The administration asked the court to clear the way for President Trump’s order that creates “state citizenship lists” and directs the Postal Service to decide who gets a mail-in ballot.`\
+https://www.nytimes.com/2026/08/24/us/politics/supreme-court-trump-mail-ballots.html
+
 **Trump Officials Propose Charging More Than $100,000 for Skilled Worker Visas**\
 `The proposal comes after the Trump administration ran into legal challenges in its attempt to attach a similar fee to the H-1B visa last year.`\
 https://www.nytimes.com/2026/08/24/us/politics/steep-fee-proposal-h1b-visas.html
