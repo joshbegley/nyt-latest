@@ -1,3 +1,7 @@
+**John Fetterman’s Popularity With Republicans Surges, Poll Finds**\
+`Pennsylvania Republicans now view John Fetterman, the state’s Democratic senator, more favorably than its sitting G.O.P. senator, a New York Times/Philadelphia Inquirer/Siena poll found.`\
+https://www.nytimes.com/2026/08/25/us/politics/john-fetterman-poll-republicans-democrats-pennsylvania.html
+
 **U.S. Campaign on Iran’s Economy May Still Risk Regional Military Escalation**\
 `Experts warn that a campaign aimed at avoiding military escalation could instead provoke it, as Iranian leaders vow retaliation across the oil-rich Gulf.`\
 https://www.nytimes.com/2026/08/25/world/middleeast/iran-us-economy-sanctions.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/25/world/asia/china-artist-gao-zhen-jailed-mao-s
 **Jelly Roll Celebrates His 300-Pound Weight Loss on ‘Jimmy Kimmel Live’**\
 `“That means I’ve lost an entire Donald Trump,” the country singer said while guest hosting Monday’s late night show.`\
 https://www.nytimes.com/2026/08/25/arts/television/jelly-roll-jimmy-kimmel-trump.html
-
-**The Iran War Shows China’s Energy Strategy Is Working**\
-`The Iran war was supposed to expose China’s weakness on oil, but it didn’t quite work out that way.`\
-https://www.nytimes.com/2026/08/25/opinion/iran-china-energy-power.html
 
