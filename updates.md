@@ -1,3 +1,7 @@
+**G.O.P. Lawmakers Rebuke Trump on Plan to Increase Beef Imports**\
+`Republicans who have mostly refrained from criticizing the president’s actions have been vocal in opposition to the move, which they say will harm their constituents.`\
+https://www.nytimes.com/2026/08/25/us/politics/republicans-trump-beef-imports.html
+
 **What We Know About the Hawk Fire Near Reno**\
 `Thousands of residents were evacuated and dozens of homes burned in Nevada, and forecasters are concerned that critical conditions could return.`\
 https://www.nytimes.com/2026/08/25/us/reno-nevada-hawk-fire.html

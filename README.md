@@ -1,3 +1,11 @@
+**Australia Races to Combat Spread of Bird Flu in Wildlife**\
+`Footage shared on social media shows birds in Australia experiencing symptoms consistent with bird flu, as the country’s authorities race to contain the spreading virus.`\
+https://www.nytimes.com/video/world/australia/100000011109241/australia-races-to-combat-spread-of-bird-flu-in-wildlife.html
+
+**Robert Skidelsky, Definitive Biographer of Keynes, Dies at 86**\
+`An economic historian and political maverick, he was a sometimes polarizing public intellectual and a member of the House of Lords.`\
+https://www.nytimes.com/2026/08/25/books/robert-skidelsky-dead.html
+
 **What We Know About the Hawk Fire Near Reno**\
 `Thousands of residents were evacuated and dozens of homes burned in Nevada, and forecasters are concerned that critical conditions could return.`\
 https://www.nytimes.com/2026/08/25/us/reno-nevada-hawk-fire.html
@@ -46,8 +54,8 @@ https://www.nytimes.com/2026/08/25/us/politics/trump-lake-ontario-america-canada
 `In a court filing about honoring President Trump on the facade, the administration said that without a proper renovation the building might need to be “taken down.”`\
 https://www.nytimes.com/2026/08/25/arts/music/trump-kennedy-center-demolition-lawyers.html
 
-**Two Unvaccinated People Died from Measles in Pennsylvania, Officials Say**\
-`The deaths, which one doctor called “extremely rare in the modern era,” were the first in the United States in 2026.`\
+**Two Unvaccinated People Died From Measles in Pennsylvania, Officials Say**\
+`The deaths were the first in the United States in 2026.`\
 https://www.nytimes.com/2026/08/25/well/measles-deaths-pennsylvania-outbreak.html
 
 **¿Cómo minimizar el riesgo de la ETC en los niños que juegan fútbol americano?**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/25/us/football-parents-cte.html
 **N.F.L. Brain Injuries**\
 `A new study underscores the danger of playing.`\
 https://www.nytimes.com/2026/08/25/briefing/nfl-brain-injuries.html
-
-**Canada Is Done With Trump**\
-`Canada suspended trade negotiations this week, setting off President Trump’s 50 percent tariffs on a range of Canadian goods.`\
-https://www.nytimes.com/2026/08/25/podcasts/the-daily/canada-is-done-with-trump.html
-
-**An Alarming New Study About Brain Injuries in Football, and How States Are Paying Millions for Rain**\
-`Plus, is the BRAT diet really the best thing for stomach bugs?`\
-https://www.nytimes.com/2026/08/25/podcasts/the-headlines/football-cte-rain-brat-diet.html
 
