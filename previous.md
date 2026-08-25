@@ -1,3 +1,7 @@
+**A Mean-Spirited Turn in Kansas**\
+`Readers respond to a column about a Kansas law that invalidates the licenses of  transgender people. Also, the need for better health care delivery; ugly dog breeds often suffer.`\
+https://www.nytimes.com/2026/08/25/opinion/mean-spirited-in-kansas.html
+
 **NYT Strands Hints for August 22, 2026**\
 `Scroll down for hints and conversation about the puzzle for Saturday, Aug. 22, 2026.`\
 https://www.nytimes.com/2026/08/21/crosswords/strands-sidekick-902.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/08/25/us/elections/results-oklahoma-sup
 **Oklahoma Insurance Commissioner Runoff 2026: Live Election Results**\
 `Get live results and maps from the 2026 Oklahoma runoff election.`\
 https://www.nytimes.com/interactive/2026/08/25/us/elections/results-oklahoma-insurance-commissioner-runoff.html
-
-**Oklahoma Labor Commissioner Runoff 2026: Live Election Results**\
-`Get live results and maps from the 2026 Oklahoma runoff election.`\
-https://www.nytimes.com/interactive/2026/08/25/us/elections/results-oklahoma-labor-commissioner-runoff.html
 

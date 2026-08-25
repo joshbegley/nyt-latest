@@ -1,3 +1,7 @@
+**Champagne Grapes Ripen Early Amid Extreme Heat in France**\
+`The famed Champagne grapes of France ripened about three to four weeks ahead of schedule after an exceptionally hot summer, according to local winemakers. While harvests have been occurring earlier for years, growers say the trend has been accelerating.`\
+https://www.nytimes.com/video/world/europe/100000011111860/france-champagne-grapes-heat.html
+
 **A Mean-Spirited Turn in Kansas**\
 `Readers respond to a column about a Kansas law that invalidates the licenses of  transgender people. Also, the need for better health care delivery; ugly dog breeds often suffer.`\
 https://www.nytimes.com/2026/08/25/opinion/mean-spirited-in-kansas.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/25/business/trump-canada-tariffs.html
 **Oklahoma Superintendent of Public Instruction Runoff 2026: Live Election Results**\
 `Get live results and maps from the 2026 Oklahoma runoff election.`\
 https://www.nytimes.com/interactive/2026/08/25/us/elections/results-oklahoma-superintendent-of-public-instruction-runoff.html
-
-**Oklahoma Insurance Commissioner Runoff 2026: Live Election Results**\
-`Get live results and maps from the 2026 Oklahoma runoff election.`\
-https://www.nytimes.com/interactive/2026/08/25/us/elections/results-oklahoma-insurance-commissioner-runoff.html
 
