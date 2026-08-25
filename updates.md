@@ -1,3 +1,15 @@
+**Un nuevo intento de castigar a Irán**\
+`El gobierno de Trump dice que intentará aislar al país de la economía mundial atacando a sus socios comerciales.`\
+https://www.nytimes.com/es/2026/08/25/espanol/mundo/sanciones-economicas-iran.html
+
+**California Billionaires Launch Ads Against Wealth Tax**\
+`The billionaire effort is led by Sergey Brin, a co-founder of Google, who has contributed more than $100 million this year toward California campaign efforts.`\
+https://www.nytimes.com/2026/08/25/us/california-billionaire-tax-ballot-question.html
+
+**Democratic Senators Ask Homeland Security for Details About Idled Planes**\
+`The request follows a New York Times story, which revealed that Homeland Security had spent $464 million on used jets that rarely fly.`\
+https://www.nytimes.com/2026/08/25/us/politics/democratic-senators-homeland-security-planes.html
+
 **This A.I. Start-Up Aims to Reverse the Backlash Against Data Centers**\
 `Emerald AI, now valued at $1.05 billion, uses software to keep power demand at the computing facilities from getting out of control.`\
 https://www.nytimes.com/2026/08/25/business/dealbook/emerald-ai-start-up-data-center-backlash.html
