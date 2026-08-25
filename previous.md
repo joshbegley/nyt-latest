@@ -1,3 +1,7 @@
+**Tornado Rips Through Towns in Southern France**\
+`An uncommonly powerful tornado destroyed dozens of homes and knocked out power to about 2,800 households.`\
+https://www.nytimes.com/2026/08/25/world/europe/tornado-southern-france-pomas.html
+
 **The Heat on Treasury Secretary Scott Bessent Grows**\
 `Treasury Secretary Scott Bessent’s plans to intervene in bond markets has drawn widespread criticism, including from a prominent former mentor.`\
 https://www.nytimes.com/2026/08/25/business/dealbook/bessent-bond-market-druckenmiller.html
@@ -59,7 +63,7 @@ https://www.nytimes.com/2026/08/25/world/middleeast/iran-us-economy-sanctions.ht
 https://www.nytimes.com/2026/08/25/world/middleeast/us-diplomats-middle-east-embassies.html
 
 **Target Apologizes and Drops Halloween Costume Criticized as Racist**\
-`Critics said the children’s costume evoked blackface imagery. Target said, “We know we got this wrong, and we are deeply sorry.”`\
+`Critics said the children’s costume evoked blackface imagery. The retailer said, “We know we got this wrong, and we are deeply sorry.”`\
 https://www.nytimes.com/2026/08/25/business/target-halloween-costume-controversy.html
 
 **¿El enjuague bucal es malo para la salud oral?**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/25/us/nfl-cte-osha.html
 **At Least 1 in 4 NFL Players Gets CTE, Major New Study Finds**\
 `The actual prevalence, researchers said, may be much higher.`\
 https://www.nytimes.com/2026/08/25/us/nfl-cte-brain-disease.html
-
-**This Is Why People Hate the Government**\
-`Annie Lowrey, the author of “The Time Tax,” explains how the government steals Americans’ time — on purpose.`\
-https://www.nytimes.com/video/opinion/100000011107029/this-is-why-people-hate-the-government.html
 
