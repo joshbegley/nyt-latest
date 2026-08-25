@@ -1,3 +1,7 @@
+**China Pushes Back After Trump Tightens the Screws on Iran**\
+`The Trump administration risks a clash with Beijing as it tries to cut off Iran’s economic lifelines without upending a fragile U.S.-China truce.`\
+https://www.nytimes.com/2026/08/25/business/us-bessent-china-iran.html
+
 **U.S. Removes Syria From Its List of Terrorism Sponsors**\
 `The move lifted economic sanctions on the country, raising hopes of further recovery after its brutal civil war.`\
 https://www.nytimes.com/2026/08/25/world/middleeast/us-syria-terrorism-list-sanctions.html

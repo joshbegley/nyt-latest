@@ -1,3 +1,7 @@
+**China Pushes Back After Trump Tightens the Screws on Iran**\
+`The Trump administration risks a clash with Beijing as it tries to cut off Iran’s economic lifelines without upending a fragile U.S.-China truce.`\
+https://www.nytimes.com/2026/08/25/business/us-bessent-china-iran.html
+
 **U.S. Removes Syria From Its List of Terrorism Sponsors**\
 `The move lifted economic sanctions on the country, raising hopes of further recovery after its brutal civil war.`\
 https://www.nytimes.com/2026/08/25/world/middleeast/us-syria-terrorism-list-sanctions.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/25/books/review/the-black-shield-wilbert-cooper.
 **What Lafayette’s 1824 Tour Can Teach Americans**\
 `The Marquis de Lafayette returned to the United States in 1824. His tour carries key lessons for a country still fighting over how to remember its past.`\
 https://www.nytimes.com/2026/08/25/opinion/marquis-de-lafayette-1824-tour.html
-
-**The Generation of Gardeners Combining Wildflower Seeds and Social Consciousness**\
-`A new generation of green thumbs are creating beautifully designed seed packets to encourage the growth of lush gardens — and social consciousness.`\
-https://www.nytimes.com/2026/08/25/style/wildflower-seeds-social-justice.html
 
