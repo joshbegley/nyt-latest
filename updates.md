@@ -1,3 +1,7 @@
+**Christian Convert Who Fled Iran and Was Deported By Trump Finds New Home**\
+`Artemis Ghasemzadeh, who had escaped religious persecution, was deported to Panama under Trump’s immigration crackdown. Now, Canada has given her asylum.`\
+https://www.nytimes.com/2026/08/25/world/middleeast/artemis-ghasemzadeh-iran-christian-us-deported-canada-asylum.html
+
 **Canada Is Done With Trump**\
 `Canada suspended trade negotiations this week, setting off President Trump’s 50 percent tariffs on a range of Canadian goods.`\
 https://www.nytimes.com/2026/08/25/podcasts/the-daily/canada-is-done-with-trump.html
