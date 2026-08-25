@@ -1,3 +1,7 @@
+**Lawmakers Push Hochul to Block ICE From Taking Over Upstate Warehouse**\
+`As a state law preventing the police from working with federal immigration officials goes into effect, a potential plan to use a warehouse as a detention center has drawn outrage.`\
+https://www.nytimes.com/2026/08/25/nyregion/newburgh-ice-detention-center-hochul.html
+
 **The Players Lining Up to Succeed Trump**\
 `The 2028 Republican presidential field is taking shape. Who will be the contenders — and who should wait for the next cycle? On “The Opinions,” Jamelle Bouie and David French size up the potential candidates and debate who should make his move now.`\
 https://www.nytimes.com/video/opinion/100000011109369/the-players-lining-up-to-succeed-trump.html
