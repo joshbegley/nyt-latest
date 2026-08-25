@@ -1,3 +1,7 @@
+**‘We’ve Never Seen Anything Like It’: Early Harvest Rattles France’s Wine Industry**\
+`Extreme heat waves this summer have set off an early grape harvest in Champagne and elsewhere in France.`\
+https://www.nytimes.com/2026/08/25/world/europe/heat-drought-france-champagne.html
+
 **Trump Threatens to Rename Lake Ontario as Trade War With Canada Heats Up**\
 `The president’s threat is his latest jab at Canada since trade talks between the two countries broke down.`\
 https://www.nytimes.com/2026/08/25/us/politics/trump-lake-ontario-america-canada-trade.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/08/25/espanol/enjuague-bucal-recomendaciones.htm
 **Are You Using Conditioner All Wrong?**\
 `Our expert clears up some common conditioner confusion, including who needs to use one and how to apply it.`\
 https://www.nytimes.com/2026/08/25/podcasts/are-you-using-conditioner-all-wrong.html
-
-**Toplines: August 2026 Times/Inquirer/Siena Poll of Registered Voters in Pennsylvania**\
-`Results of a New York Times/Philadelphia Inquirer/Siena poll conducted among 760 voters in Pennsylvania from Aug. 17 to 21, 2026.`\
-https://www.nytimes.com/interactive/2026/08/25/polls/times-inquirer-siena-pa-poll-toplines.html
 

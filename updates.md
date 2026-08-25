@@ -1,3 +1,7 @@
+**‘We’ve Never Seen Anything Like It’: Early Harvest Rattles France’s Wine Industry**\
+`Extreme heat waves this summer have set off an early grape harvest in Champagne and elsewhere in France.`\
+https://www.nytimes.com/2026/08/25/world/europe/heat-drought-france-champagne.html
+
 **Trump Threatens to Rename Lake Ontario as Trade War With Canada Heats Up**\
 `The president’s threat is his latest jab at Canada since trade talks between the two countries broke down.`\
 https://www.nytimes.com/2026/08/25/us/politics/trump-lake-ontario-america-canada-trade.html
