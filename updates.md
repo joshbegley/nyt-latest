@@ -1,3 +1,23 @@
+**El muro fronterizo de Trump podría destruir una iglesia de 110 años**\
+`La campana y la iglesia católica de Ruidosa, en Texas, son símbolos de la unión de dos comunidades. Hoy, un elemento de división amenaza con borrar su historia.`\
+https://www.nytimes.com/es/2026/08/25/espanol/iglesia-muro-ruidosa-texas.html
+
+**What to Know About the 2026 U.S. Open**\
+`The star-studded sporting and social event runs until Sept. 13 at the Billie Jean King National Tennis Center in New York City.`\
+https://www.nytimes.com/2026/08/25/nyregion/us-open-2026-tennis.html
+
+**‘They Opened the Door and Pulled Us Out’: How ICE Descended on a Town**\
+`One summer morning, immigration agents swooped in and detained 18 immigrants at a store in Lakewood, N.J., plunging the town into fear.`\
+https://www.nytimes.com/2026/08/25/nyregion/new-jersey-ice-raids.html
+
+**It’s One Parking Spot in New York City. What Could It Cost, $250,000?**\
+`Some New Yorkers are willing to pay condo-like prices for a bit of concrete convenience.`\
+https://www.nytimes.com/2026/08/25/nyregion/private-parking-spots-new-york-city.html
+
+**NYT Spelling Bee Answers for August 25, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/08/25/crosswords/spelling-bee-forum.html
+
 **El apagón que podría devastar EE. UU.**\
 `Miles de transformadores antiguos, fabricados a mano, sostienen la red eléctrica. Si fallaran demasiados, el apagón podría prolongarse durante años.`\
 https://www.nytimes.com/es/2026/08/25/espanol/estados-unidos/apagones-electricidad-corriente.html

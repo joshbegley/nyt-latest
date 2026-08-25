@@ -1,3 +1,7 @@
+**‘Abrieron la puerta y nos sacaron’: cómo el ICE irrumpió en un pueblo de Nueva Jersey**\
+`Una mañana de verano, agentes de migración irrumpieron y detuvieron a 18 migrantes en una tienda de Lakewood, Nueva Jersey, sumiendo a la localidad en el miedo.`\
+https://www.nytimes.com/es/2026/08/25/espanol/estados-unidos/ice-nueva-jersey-redadas.html
+
 **El muro fronterizo de Trump podría destruir una iglesia de 110 años**\
 `La campana y la iglesia católica de Ruidosa, en Texas, son símbolos de la unión de dos comunidades. Hoy, un elemento de división amenaza con borrar su historia.`\
 https://www.nytimes.com/es/2026/08/25/espanol/iglesia-muro-ruidosa-texas.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/podcasts/100000011110496/openai-is-adding-safeguar
 **A New Effort to Punish Iran**\
 `The Trump administration says it will try to cut the country off from the global economy by targeting its trading partners.`\
 https://www.nytimes.com/2026/08/24/world/iran-sanctions-threat-economy-ukraine.html
-
-**Nevada Sues Trump Administration Over Colorado River Cuts**\
-`The state seeks to block plans for significant water use restrictions over the next decade.`\
-https://www.nytimes.com/2026/08/24/climate/nevada-sues-colorado-river-cuts.html
 

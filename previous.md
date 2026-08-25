@@ -1,3 +1,23 @@
+**El muro fronterizo de Trump podría destruir una iglesia de 110 años**\
+`La campana y la iglesia católica de Ruidosa, en Texas, son símbolos de la unión de dos comunidades. Hoy, un elemento de división amenaza con borrar su historia.`\
+https://www.nytimes.com/es/2026/08/25/espanol/iglesia-muro-ruidosa-texas.html
+
+**What to Know About the 2026 U.S. Open**\
+`The star-studded sporting and social event runs until Sept. 13 at the Billie Jean King National Tennis Center in New York City.`\
+https://www.nytimes.com/2026/08/25/nyregion/us-open-2026-tennis.html
+
+**‘They Opened the Door and Pulled Us Out’: How ICE Descended on a Town**\
+`One summer morning, immigration agents swooped in and detained 18 immigrants at a store in Lakewood, N.J., plunging the town into fear.`\
+https://www.nytimes.com/2026/08/25/nyregion/new-jersey-ice-raids.html
+
+**It’s One Parking Spot in New York City. What Could It Cost, $250,000?**\
+`Some New Yorkers are willing to pay condo-like prices for a bit of concrete convenience.`\
+https://www.nytimes.com/2026/08/25/nyregion/private-parking-spots-new-york-city.html
+
+**NYT Spelling Bee Answers for August 25, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/08/25/crosswords/spelling-bee-forum.html
+
 **El apagón que podría devastar EE. UU.**\
 `Miles de transformadores antiguos, fabricados a mano, sostienen la red eléctrica. Si fallaran demasiados, el apagón podría prolongarse durante años.`\
 https://www.nytimes.com/es/2026/08/25/espanol/estados-unidos/apagones-electricidad-corriente.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/08/24/world/iran-sanctions-threat-economy-ukraine.h
 **Nevada Sues Trump Administration Over Colorado River Cuts**\
 `The state seeks to block plans for significant water use restrictions over the next decade.`\
 https://www.nytimes.com/2026/08/24/climate/nevada-sues-colorado-river-cuts.html
-
-**The Backlash Against Meta’s Smart Glasses Continues to Grow**\
-`ICE just barred its workers from wearing Meta’s smart glasses on the job. On the “Hard Fork” podcast, the hosts Kevin Roose and Casey Newton discuss how quickly public perception is turning against Meta’s Ray-Ban smart glasses.`\
-https://www.nytimes.com/video/podcasts/100000011110305/the-backlash-against-metas-smart-glasses-continues-to-grow.html
-
-**The Local: Walkie-talkies for grief**\
-`And a special Minnesota-themed crossword just for you.`\
-https://www.nytimes.com/2026/08/24/us/the-local-annunciation-grief.html
-
-**Iran’s Winning Strategy: Avoid Losing**\
-`Readers respond to a column by Thomas L. Friedman about Iran’s strategy to avoid losing the war. Also: the legacy of Tommy John.`\
-https://www.nytimes.com/2026/08/24/opinion/iran-us-war-stratgey.html
-
-**S.E.C. Investigating Near-Implosion of A.I. Hedge Fund**\
-`Regulators sent subpoenas to major Wall Street banks seeking information about the trading of Situational Awareness, three people briefed on the outreach said.`\
-https://www.nytimes.com/2026/08/24/business/sec-situational-awareness-investigation.html
-
-**What’s Behind the U.S. Treasury’s Latest Attempt to Lower Interest Rates**\
-`The Treasury Department said it could begin to buy back more of its debt, and bond market investors are assessing the potential effects on borrowing costs.`\
-https://www.nytimes.com/2026/08/24/business/treasury-bond-buybacks-impact.html
 
