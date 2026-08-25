@@ -1,3 +1,15 @@
+**How U.S.-Canada Tariff Negotiations Turned Into an All-Out Trade War**\
+`Detailed accounts of the final hours of the negotiations show that, while the United States offered Canada what it said was the best deal of any country, what Canada had to give up in exchange was seen as unthinkable.`\
+https://www.nytimes.com/2026/08/25/world/canada/trump-carney-trade-war-tariffs.html
+
+**Quote of the Day: Deaths by Russian A.I.-Guided Drone Are a First**\
+`Quotation of the Day for Tuesday, August 25, 2026.`\
+https://www.nytimes.com/2026/08/25/pageoneplus/quote-of-the-day-deaths-by-russian-ai-guided-drone-are-a-first.html
+
+**Australia Watches Its Bird Flu Fears Come True**\
+`Australia confirmed its first case of H5N1 in June in migratory seabirds. Since then, the virus has spread rapidly, straining government responses.`\
+https://www.nytimes.com/2026/08/25/world/australia/bird-flu-infection-prevention.html
+
 **Trump Administration Aims to Revoke Visas of Foreign Citizens Applying for Asylum**\
 `The State Department, in a move that could affect as many as 200,000 visa holders and asylum applicants, has begun its review. Cancellations could occur in waves.`\
 https://www.nytimes.com/2026/08/24/us/politics/trump-administration-aims-to-revoke-visas-of-foreign-citizens-applying-for-asylum.html
