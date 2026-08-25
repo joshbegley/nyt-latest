@@ -1,3 +1,7 @@
+**China Is the Iran War’s Unexpected Winner**\
+`The Iran war was supposed to expose China’s weakness on oil, but it didn’t quite work out that way.`\
+https://www.nytimes.com/2026/08/25/opinion/iran-china-energy-power.html
+
 **What We Know About Australia’s Bird Flu, Which Has Crossed Over to Mammals**\
 `Australia confirmed its first case of H5N1 in June in migratory seabirds. Since then, the virus has spread rapidly, straining government responses.`\
 https://www.nytimes.com/2026/08/25/world/australia/bird-flu-h5n1-mammals.html
