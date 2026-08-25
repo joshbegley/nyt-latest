@@ -1,3 +1,11 @@
+**In Pennsylvania, 2 Measles Deaths Are Reported**\
+`The deaths, which one doctor called “extremely rare in the modern era,” are the first in the United States in 2026.`\
+https://www.nytimes.com/2026/08/25/well/measles-deaths-pennsylvania-outbreak.html
+
+**¿Cómo minimizar el riesgo de la ETC en los niños que juegan fútbol americano?**\
+`La encefalopatía traumática crónica se puede evitar reduciendo el número total de golpes en la cabeza, dicen los investigadores.`\
+https://www.nytimes.com/es/2026/08/25/espanol/estados-unidos/futbol-americano-riesgo-etc.html
+
 **G.O.P. Lawmakers Rebuke Trump on Plan to Increase Beef Imports**\
 `Republicans who have mostly refrained from criticizing the president’s actions have been vocal in opposition to the move, which they say will harm their constituents`\
 https://www.nytimes.com/2026/08/25/us/politics/republicans-trump-beef-imports.html

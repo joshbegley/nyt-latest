@@ -1,3 +1,7 @@
+**Trump Lawyers Warn That Kennedy Center Might Need Demolition if Not Fixed**\
+`In a court filing about honoring President Trump on the facade, the administration said that without a proper renovation the building might need to be “taken down.”`\
+https://www.nytimes.com/2026/08/25/arts/music/kennedy-center-taken-down-amphitheater.html
+
 **In Pennsylvania, 2 Measles Deaths Are Reported**\
 `The deaths, which one doctor called “extremely rare in the modern era,” are the first in the United States in 2026.`\
 https://www.nytimes.com/2026/08/25/well/measles-deaths-pennsylvania-outbreak.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/08/25/polls/times-inquirer-siena-pa-pol
 **Cross-Tabs: August 2026 Times/Inquirer/Siena Poll of Registered Voters in Pennsylvania**\
 `Results of a New York Times/Philadelphia Inquirer/Siena poll conducted among 760 voters in Pennsylvania from Aug. 17 to 21, 2026.`\
 https://www.nytimes.com/interactive/2026/08/25/polls/times-inquirer-siena-pa-poll-rv-crosstabs.html
-
-**Cross-Tabs: August 2026 Times/Inquirer/Siena Poll of the Likely Electorate in Pennsylvania**\
-`Results of a New York Times/Philadelphia Inquirer/Siena poll conducted among 760 voters in Pennsylvania from Aug. 17 to 21, 2026.`\
-https://www.nytimes.com/interactive/2026/08/25/polls/times-inquirer-siena-pa-poll-lv-crosstabs.html
 
