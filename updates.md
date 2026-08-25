@@ -1,3 +1,19 @@
+**Airstrikes and Illegal Mining Add to Myanmar’s Troubles**\
+`A thriving ‘conflict economy’ is extracting minerals while the military and armed groups inflict abuse on civilians, according to a new report on the scale of recent violence in Myanmar.`\
+https://www.nytimes.com/2026/08/25/world/asia/myanmar-junta-violence-rohingya.html
+
+**Congress Needs to Stop Trump’s Tariff Madness**\
+`Mr. Trump is breaking the law. Congress and the judiciary need to respond.`\
+https://www.nytimes.com/2026/08/25/opinion/trump-tariffs-illegal-canada.html
+
+**Angie Nixon and the Power of Pink**\
+`The electoral playbook has a strategic new shade.`\
+https://www.nytimes.com/2026/08/25/style/angie-nixon-florida-pink.html
+
+**Dolly Parton: Hear 15 Essential Songs**\
+`The singer-songwriter rose from poverty to become a chart-topping performer whose earnest character allowed her to span genres.`\
+https://www.nytimes.com/2026/08/25/arts/music/dolly-parton-songs.html
+
 **Canada Announces Retaliatory Tariffs on Hundreds of U.S. Products**\
 `Canada imposed retaliatory tariffs on about 700 American products as the trade war between the two countries heats up.`\
 https://www.nytimes.com/video/world/canada/100000011111532/canada-tariffs-trump-trade-war.html
