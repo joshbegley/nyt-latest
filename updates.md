@@ -1,3 +1,7 @@
+**Trump’s Attempt to Strangle Iran’s Economy Depends on China’s Cooperation**\
+`The U.S. has spent 20 years promising ‘crippling sanctions’ on Iran. But the latest effort comes with a reverse twist, after military action failed to accomplish President Trump’s goals.`\
+https://www.nytimes.com/2026/08/24/us/politics/trump-bessent-iran-economic-d-day.html
+
 **U.S. Tariffs Could Price Canadian Firms Out of U.S. and Threaten Thousands of Jobs**\
 `The 50 percent tariffs President Trump imposed on Canadian exports to the United States will make it impossible for many Canadian companies to continue to sell to the U.S. market, economists say.`\
 https://www.nytimes.com/2026/08/24/world/canada/us-tariffs-trade-economy.html
