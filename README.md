@@ -1,3 +1,7 @@
+**¿El enjuague bucal es malo para la salud oral?**\
+`We asked experts to fact check some claims.`\
+https://www.nytimes.com/es/2026/08/25/espanol/enjuague-bucal-recomendaciones.html
+
 **Are You Using Conditioner All Wrong?**\
 `Our expert clears up some common conditioner confusion, including who needs to use one and how to apply it.`\
 https://www.nytimes.com/2026/08/25/podcasts/are-you-using-conditioner-all-wrong.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/25/pageoneplus/quote-of-the-day-deaths-by-russia
 **What We Know About Australia’s Bird Flu, Which Has Crossed Over to Mammals**\
 `Australia confirmed its first case of H5N1 in June in migratory seabirds. Since then, the virus has spread rapidly, straining government responses.`\
 https://www.nytimes.com/2026/08/25/world/australia/bird-flu-h5n1-mammals.html
-
-**Trump Administration Aims to Revoke Visas of Foreign Citizens Applying for Asylum**\
-`The State Department, in a move that could affect as many as 200,000 visa holders and asylum applicants, has begun its review. Cancellations could occur in waves.`\
-https://www.nytimes.com/2026/08/24/us/politics/trump-administration-aims-to-revoke-visas-of-foreign-citizens-applying-for-asylum.html
 
