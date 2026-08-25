@@ -1,3 +1,7 @@
+**A Shoe That Looks Great on Everyone**\
+`Plus: Erling Haaland’s new look, and a surprising hire at Skims.`\
+https://www.nytimes.com/2026/08/25/style/approach-shoes-climbing-style.html
+
 **‘We’ve Never Seen Anything Like It’: Early Harvest Rattles France’s Wine Industry**\
 `Extreme heat waves this summer have set off an early grape harvest in Champagne and elsewhere in France.`\
 https://www.nytimes.com/2026/08/25/world/europe/heat-drought-france-champagne.html
@@ -23,7 +27,7 @@ https://www.nytimes.com/es/2026/08/25/espanol/estados-unidos/futbol-americano-ri
 https://www.nytimes.com/2026/08/25/us/politics/republicans-trump-beef-imports.html
 
 **Read the List of Goods Included in Canada’s Retaliatory Tariffs**\
-`Canada announced retaliatory tariffs as high as 50 percent on hundreds of American products, days after the collapse of trade talks triggered punishing tariffs from the Trump administration.`\
+`Canada announced tariffs as high as 50 percent on hundreds of American products, days after the collapse of trade talks triggered tariffs from the Trump administration.`\
 https://www.nytimes.com/interactive/2026/08/25/world/canada/Canadian-retaliatory-tariffs-on-American-products-8-25-2026.html
 
 **El Niño 2026: el fenómeno récord de este año en 3 gráficos**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/25/business/target-halloween-costume-controversy
 **¿El enjuague bucal es malo para la salud oral?**\
 `We asked experts to fact check some claims.`\
 https://www.nytimes.com/es/2026/08/25/espanol/enjuague-bucal-recomendaciones.html
-
-**Are You Using Conditioner All Wrong?**\
-`Our expert clears up some common conditioner confusion, including who needs to use one and how to apply it.`\
-https://www.nytimes.com/2026/08/25/podcasts/are-you-using-conditioner-all-wrong.html
 
