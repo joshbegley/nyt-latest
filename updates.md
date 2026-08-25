@@ -1,3 +1,7 @@
+**The Heat on Treasury Secretary Scott Bessent Grows**\
+`Treasury Secretary Scott Bessent’s plans to intervene in bond markets has drawn widespread criticism, including from a prominent former mentor.`\
+https://www.nytimes.com/2026/08/25/business/dealbook/bessent-bond-market-druckenmiller.html
+
 **Un nuevo intento de castigar a Irán**\
 `El gobierno de Trump dice que intentará aislar al país de la economía mundial atacando a sus socios comerciales.`\
 https://www.nytimes.com/es/2026/08/25/espanol/mundo/sanciones-economicas-iran.html

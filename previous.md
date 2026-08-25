@@ -1,3 +1,7 @@
+**The Heat on Treasury Secretary Scott Bessent Grows**\
+`Treasury Secretary Scott Bessent’s plans to intervene in bond markets has drawn widespread criticism, including from a prominent former mentor.`\
+https://www.nytimes.com/2026/08/25/business/dealbook/bessent-bond-market-druckenmiller.html
+
 **Un nuevo intento de castigar a Irán**\
 `El gobierno de Trump dice que intentará aislar al país de la economía mundial atacando a sus socios comerciales.`\
 https://www.nytimes.com/es/2026/08/25/espanol/mundo/sanciones-economicas-iran.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/25/us/nfl-cte-brain-disease.html
 **This Is Why People Hate the Government**\
 `Annie Lowrey, the author of “The Time Tax,” explains how the government steals Americans’ time — on purpose.`\
 https://www.nytimes.com/video/opinion/100000011107029/this-is-why-people-hate-the-government.html
-
-**Australia Bans Generative A.I. From Official Music Charts**\
-`Under new rules, recordings developed using generative A.I. will only be allowed if they are “substantially human-made,” the peak body says.`\
-https://www.nytimes.com/2026/08/25/world/australia/australia-ai-music-chart-ban.html
 
