@@ -1,3 +1,11 @@
+**Trump Wants to Restrict Mail-In Voting. See Which States Rely on It The Most.**\
+`Nearly 30 percent of voters nationwide use mail ballots. President Trump is seeking greater federal control of mail voting.`\
+https://www.nytimes.com/2026/08/25/us/politics/mail-in-ballots-states-voting-trump.html
+
+**Today, In Short**\
+`College football. The U.S. Open. And spritzes.`\
+https://www.nytimes.com/2026/08/25/briefing/today-in-short.html
+
 **Oklahoma U.S. Senate Runoff 2026: Live Election Results, Priest vs. Thomas**\
 `Get live results and maps from the 2026 Oklahoma runoff election.`\
 https://www.nytimes.com/interactive/2026/08/25/us/elections/results-oklahoma-us-senate-runoff.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/25/opinion/ezra-klein-podcast-annie-lowrey.html
 **For ‘National Treasure’ Superfans, the Secret Lies in Philadelphia**\
 `The creators of the “National Treasure Hunt” podcast bring their passion for the Nicolas Cage heist movie to the birthplace of the Declaration of Independence.`\
 https://www.nytimes.com/2026/08/25/arts/national-treasure-hunt-philadelphia.html
-
-**3 Charts That Explain El Niño**\
-`With air and sea surface temperatures already breaking records, this year’s episode is on track to be the strongest in living memory.`\
-https://www.nytimes.com/2026/08/25/climate/el-nino-temperature-charts.html
-
-**Why Irregular’s A.I. Tests for Meta, Anthropic and OpenAI Went Off the Rails**\
-`Irregular, an Israeli start-up, worked with OpenAI, Anthropic and Meta to assess the security of their A.I. models. It made a mistake. Then the tests went off the rails.`\
-https://www.nytimes.com/2026/08/25/technology/irregular-ai-test-hacks.html
 

@@ -1,3 +1,39 @@
+**Oklahoma U.S. Senate Runoff 2026: Live Election Results, Priest vs. Thomas**\
+`Get live results and maps from the 2026 Oklahoma runoff election.`\
+https://www.nytimes.com/interactive/2026/08/25/us/elections/results-oklahoma-us-senate-runoff.html
+
+**South Carolina U.S. Senate Special Runoff 2026: Live Election Results, Graham vs. Norman**\
+`Get live results and maps from the 2026 South Carolina special runoff election.`\
+https://www.nytimes.com/interactive/2026/08/25/us/elections/results-south-carolina-us-senate-special-runoff-august-25.html
+
+**Oklahoma 2026: Live Election Results**\
+`Get live results and maps from the 2026 Oklahoma elections.`\
+https://www.nytimes.com/interactive/2026/08/25/us/elections/results-oklahoma.html
+
+**Oklahoma Governor Runoff 2026: Live Election Results, Drummond vs. Mazzei**\
+`Get live results and maps from the 2026 Oklahoma runoff election.`\
+https://www.nytimes.com/interactive/2026/08/25/us/elections/results-oklahoma-governor-runoff.html
+
+**Oklahoma Superintendent of Public Instruction Runoff 2026: Live Election Results**\
+`Get live results and maps from the 2026 Oklahoma runoff election.`\
+https://www.nytimes.com/interactive/2026/08/25/us/elections/results-oklahoma-superintendent-of-public-instruction-runoff.html
+
+**Oklahoma Insurance Commissioner Runoff 2026: Live Election Results**\
+`Get live results and maps from the 2026 Oklahoma runoff election.`\
+https://www.nytimes.com/interactive/2026/08/25/us/elections/results-oklahoma-insurance-commissioner-runoff.html
+
+**Oklahoma Labor Commissioner Runoff 2026: Live Election Results**\
+`Get live results and maps from the 2026 Oklahoma runoff election.`\
+https://www.nytimes.com/interactive/2026/08/25/us/elections/results-oklahoma-labor-commissioner-runoff.html
+
+**Georgia 13th Congressional District Special Runoff 2026: Live Election Results, Blair vs. Scott**\
+`Get live results and maps from the 2026 Georgia special runoff election.`\
+https://www.nytimes.com/interactive/2026/08/25/us/elections/results-georgia-us-house-13-special-runoff.html
+
+**Target Apologizes and Drops Halloween Costume Criticized as Racist**\
+`The children’s costume evoked blackface imagery, critics said. “We know we got this wrong, and we are deeply sorry,” the retailer said in response.`\
+https://www.nytimes.com/2026/08/25/business/target-halloween-costume-controversy.html
+
 **Trump’s Canada Tariffs Rely on Untested Law**\
 `The president has invoked a long dormant section of law to hit one of America’s closest allies, a move that has troubled courts in the past.`\
 https://www.nytimes.com/2026/08/25/business/trump-canada-tariffs.html
