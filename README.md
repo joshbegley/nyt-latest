@@ -1,3 +1,7 @@
+**Fringe Views in Primary Campaigns Rattle Florida Jews**\
+`It has been an uneasy primary season for Jewish voters, with debates over Israel animating many races. But what happened in Florida went beyond that.`\
+https://www.nytimes.com/2026/08/25/us/james-fishback-florida-jewish-voters.html
+
 **Brasserie Boulud Lands Just in Time for Lincoln Center’s Fall Season**\
 `El Califa de León and Bread Ahead open their first U.S. locations, and more restaurant news.`\
 https://www.nytimes.com/2026/08/25/dining/nyc-restaurant-news.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/25/crosswords/connections-companion-1172.html
 **NYT Strands Hints for August 26, 2026**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, Aug. 26, 2026.`\
 https://www.nytimes.com/2026/08/25/crosswords/strands-sidekick-906.html
-
-**Today’s Wordle Hints for August 26, 2026**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, Aug. 26, 2026.`\
-https://www.nytimes.com/2026/08/25/crosswords/wordle-review-1894.html
 
