@@ -1,3 +1,7 @@
+**The Ludicrous Argument Behind Trump’s Tariffs**\
+`Mr. Trump is breaking the law. Congress and the judiciary need to respond.`\
+https://www.nytimes.com/2026/08/25/opinion/trump-tariffs-illegal-canada.html
+
 **Court Documents Suggest Rebel Wilson Ordered Websites Attacking Producer**\
 `New documents filed on Tuesday in Los Angeles appear to show that Ms. Wilson, the actress, was heavily involved in disparaging Amanda Ghost, a producer on her movie, “The Deb.”`\
 https://www.nytimes.com/2026/08/25/nyregion/rebel-wilson-the-deb-producer-amanda-ghost.html
