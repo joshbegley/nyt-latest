@@ -1,3 +1,7 @@
+**Dethroned Miss North Carolina Sues Miss USA for Defamation**\
+`Brittany Boltinhouse’s title was rescinded after past social media posts surfaced. She is accusing pageant organizers of damaging her reputation.`\
+https://www.nytimes.com/2026/08/25/style/miss-north-carolina-brittany-boltinhouse-lawsuit.html
+
 **Champagne Grapes Ripen Early Amid Extreme Heat in France**\
 `The famed Champagne grapes of France ripened about three to four weeks ahead of schedule after an exceptionally hot summer, according to local winemakers. While harvests have been occurring earlier for years, growers say the trend has been accelerating.`\
 https://www.nytimes.com/video/world/europe/100000011111860/france-champagne-grapes-heat.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/08/25/us/elections/results-oklahoma-gov
 **Trump’s Canada Tariffs Rely on Untested Law**\
 `The president has invoked a long dormant section of law to hit one of America’s closest allies, a move that has troubled courts in the past.`\
 https://www.nytimes.com/2026/08/25/business/trump-canada-tariffs.html
-
-**Oklahoma Superintendent of Public Instruction Runoff 2026: Live Election Results**\
-`Get live results and maps from the 2026 Oklahoma runoff election.`\
-https://www.nytimes.com/interactive/2026/08/25/us/elections/results-oklahoma-superintendent-of-public-instruction-runoff.html
 
