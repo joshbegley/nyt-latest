@@ -1,3 +1,7 @@
+**G.O.P. Lawmakers Rebuke Trump on Plan to Increase Beef Imports**\
+`Republicans who have mostly refrained from criticizing the president’s actions have been vocal in opposition to the move, which they say will harm their constituents`\
+https://www.nytimes.com/2026/08/25/us/politics/republicans-trump-beef-imports.html
+
 **Canadian Retaliatory Tariffs on American Products, 8/25/2026**\
 `Read the document`\
 https://www.nytimes.com/interactive/2026/08/25/world/canada/Canadian-retaliatory-tariffs-on-American-products-8-25-2026.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/25/us/elections/josh-shapiro-pennsylvania-poll.h
 **Your Child Plays Football. How Can You Minimize Risk of C.T.E.?**\
 `Researchers say it’s all about reducing the total number of blows to the head.`\
 https://www.nytimes.com/2026/08/25/us/cte-prevention-youth-football.html
-
-**A Comic Book About ‘Dogs’ Has a Serious Purpose**\
-`Lucy Lang, the state inspector general, wants teenage readers to understand the role of watchdogs in government.`\
-https://www.nytimes.com/2026/08/25/nyregion/comic-book-inspector-general.html
 

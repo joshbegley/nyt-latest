@@ -1,3 +1,11 @@
+**Canadian Retaliatory Tariffs on American Products, 8/25/2026**\
+`Read the document`\
+https://www.nytimes.com/interactive/2026/08/25/world/canada/Canadian-retaliatory-tariffs-on-American-products-8-25-2026.html
+
+**El Niño 2026: el fenómeno récord de este año en 3 gráficos**\
+`Con temperaturas del aire y de la superficie del mar que ya han alcanzado récords históricos, el fenómeno de este año podría ser el más fuerte del que se tenga memoria.`\
+https://www.nytimes.com/es/2026/08/25/espanol/tiempo-y-clima/el-nino-2026-record.html
+
 **Trump Wants to Restrict Mail-In Voting. See Which States Rely on It The Most.**\
 `Nearly 30 percent of voters nationwide use mail ballots. President Trump is seeking greater federal control of mail voting.`\
 https://www.nytimes.com/2026/08/25/us/politics/mail-in-ballots-states-voting-trump.html
@@ -83,7 +91,7 @@ https://www.nytimes.com/2026/08/25/business/us-bessent-china-iran.html
 https://www.nytimes.com/2026/08/25/world/middleeast/us-syria-terrorism-list-sanctions.html
 
 ****\
-`A video shared on social media shows several Israeli soldiers standing by while Knesset member Zvi Sukkot and his aides attack a Palestinian monument in the West Bank village of Madama on Tuesday morning.`\
+`A video shared on social media shows Israeli soldiers standing by while Knesset member Zvi Sukkot and his aides attack a Palestinian monument in the West Bank village of Madama on Tuesday morning.`\
 https://www.nytimes.com/video/embedded/admin/100000011111382/25vid-westbank-hammer-embed-91515.html
 
 **Street Style Look of the Week: A T-Vintage Shirt That’s a Badge of Honor’**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/25/us/cte-prevention-youth-football.html
 **A Comic Book About ‘Dogs’ Has a Serious Purpose**\
 `Lucy Lang, the state inspector general, wants teenage readers to understand the role of watchdogs in government.`\
 https://www.nytimes.com/2026/08/25/nyregion/comic-book-inspector-general.html
-
-**This Is Why People Hate the Government**\
-`Annie Lowrey, the author of “The Time Tax,” explains how the government steals Americans’ time — on purpose.`\
-https://www.nytimes.com/2026/08/25/opinion/ezra-klein-podcast-annie-lowrey.html
-
-**For ‘National Treasure’ Superfans, the Secret Lies in Philadelphia**\
-`The creators of the “National Treasure Hunt” podcast bring their passion for the Nicolas Cage heist movie to the birthplace of the Declaration of Independence.`\
-https://www.nytimes.com/2026/08/25/arts/national-treasure-hunt-philadelphia.html
 
