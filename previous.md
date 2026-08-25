@@ -1,3 +1,11 @@
+**Supreme Court Ruling on Mail-in Voting Could Add to Election Confusion**\
+`The limits on mail-in voting may not go into effect by November, with at least one state vowing to sue. But some states and experts warned about further voter confusion.`\
+https://www.nytimes.com/2026/08/25/us/mail-in-voting-states.html
+
+**Dolly Parton’s Bedazzled, Bewigged, and Bodacious Style**\
+`A wild mountain rose, she used her clothes and her body to subvert expectations.`\
+https://www.nytimes.com/2026/08/25/style/dolly-parton-sense-of-style.html
+
 **Cómo colapsaron las negociaciones comerciales entre EE. UU. y Canadá**\
 `Los relatos detallados de las últimas horas de las negociaciones muestran que, si bien Estados Unidos le ofreció a Canadá lo que, según ellos, era el mejor acuerdo de todos los países, lo que Canadá tenía que ceder a cambio se consideraba inconcebible.`\
 https://www.nytimes.com/es/2026/08/25/espanol/mundo/canada-aranceles-trump-negociaciones.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/embedded/admin/100000011111382/25vid-westbank-hamm
 **Street Style Look of the Week: A T-Vintage Shirt That’s a Badge of Honor’**\
 `While in Copenhagen for the runway shows, an art curator took a commemorative T-shirt from her mother out for a whirl.`\
 https://www.nytimes.com/2026/08/25/style/street-style-look-vintage-t-shirt.html
-
-**Tornado Rips Through Towns in Southern France**\
-`An uncommonly powerful tornado destroyed dozens of homes and knocked out power to about 2,800 households.`\
-https://www.nytimes.com/2026/08/25/world/europe/tornado-southern-france-pomas.html
-
-**The Heat on Treasury Secretary Scott Bessent Grows**\
-`Treasury Secretary Scott Bessent’s plans to intervene in bond markets have drawn widespread criticism, including from a prominent former mentor.`\
-https://www.nytimes.com/2026/08/25/business/dealbook/bessent-bond-market-druckenmiller.html
 

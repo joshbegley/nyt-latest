@@ -1,3 +1,11 @@
+**Supreme Court Ruling on Mail-in Voting Could Add to Election Confusion**\
+`The limits on mail-in voting may not go into effect by November, with at least one state vowing to sue. But some states and experts warned about further voter confusion.`\
+https://www.nytimes.com/2026/08/25/us/mail-in-voting-states.html
+
+**Dolly Parton’s Bedazzled, Bewigged, and Bodacious Style**\
+`A wild mountain rose, she used her clothes and her body to subvert expectations.`\
+https://www.nytimes.com/2026/08/25/style/dolly-parton-sense-of-style.html
+
 **Cómo colapsaron las negociaciones comerciales entre EE. UU. y Canadá**\
 `Los relatos detallados de las últimas horas de las negociaciones muestran que, si bien Estados Unidos le ofreció a Canadá lo que, según ellos, era el mejor acuerdo de todos los países, lo que Canadá tenía que ceder a cambio se consideraba inconcebible.`\
 https://www.nytimes.com/es/2026/08/25/espanol/mundo/canada-aranceles-trump-negociaciones.html
