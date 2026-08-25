@@ -1,3 +1,23 @@
+**How Welfare Became a ‘Tool of Humiliation’**\
+`Accessing public benefits often requires navigating a burdensome amount of paperwork and bureaucracy — what the journalist Annie Lowrey calls “the time tax.” On “The Ezra Klein Show,” she explains why administrative hurdles that may seem neutral can function as tools of social control.`\
+https://www.nytimes.com/video/opinion/100000011107033/how-welfare-became-a-tool-of-humiliation.html
+
+**Dolly Parton Was Someone We Could All Agree On. Even in Polls.**\
+`Few could match the bipartisan support that Ms. Parton received in public opinion polls. Not even Taylor Swift.`\
+https://www.nytimes.com/2026/08/25/us/dolly-parton-polls-bipartisan.html
+
+**Len Brown, the Kidlike Creator of ‘Mars Attacks,’ Dies at 84**\
+`He brought a juvenile creative sensibility to the Topps Chewing Gum company, where he was able to unerringly predict what would appeal to adolescents.`\
+https://www.nytimes.com/2026/08/25/arts/len-brown-dead.html
+
+**In Canada and at Home, Deference to Trump Turns to Defiance on Tariffs and Other Issues**\
+`While the president remains the most dominant figure in the world, other leaders and institutions are pushing back more vigorously than at the beginning of his second term.`\
+https://www.nytimes.com/2026/08/25/us/politics/trump-polls-tariffs-carney.html
+
+**Forbes and Shook Research Suspend Rankings Amid Investigation of $6 Million Payment**\
+`The magazine, which is reviewing a payment from the founder of Shook Research to its former top editor, also canceled a summit in Las Vegas scheduled for October.`\
+https://www.nytimes.com/2026/08/25/business/media/forbes-shook-research-payment.html
+
 **Conservative Gay Rights Group Ends Support for Trans Causes**\
 `The Log Cabin Republicans, which is dedicated to gay causes, says that trans rights advocates focus too much on minors.`\
 https://www.nytimes.com/2026/08/25/us/politics/log-cabin-republicans-transgender.html

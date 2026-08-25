@@ -1,3 +1,7 @@
+**Sheltering From a Russian Missile Attack in Kyiv**\
+`Constant Méheut joins Natalie Kitroeff on “The Call” from a Kyiv subway station, where he is sheltering as Russian missiles strike the city. He breaks down the grim reality of relying on Telegram to track the attacks, and discusses how dwindling air defenses are leaving the capital increasingly vulnerable.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011111596/sheltering-from-a-russian-missile-attack-in-kyiv.html
+
 **How Welfare Became a ‘Tool of Humiliation’**\
 `Accessing public benefits often requires navigating a burdensome amount of paperwork and bureaucracy — what the journalist Annie Lowrey calls “the time tax.” On “The Ezra Klein Show,” she explains why administrative hurdles that may seem neutral can function as tools of social control.`\
 https://www.nytimes.com/video/opinion/100000011107033/how-welfare-became-a-tool-of-humiliation.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/25/books/robert-skidelsky-dead.html
 **What We Know About the Hawk Fire Near Reno**\
 `Thousands of residents were evacuated and dozens of homes burned in Nevada, and forecasters are concerned that critical conditions could return.`\
 https://www.nytimes.com/2026/08/25/us/reno-nevada-hawk-fire.html
-
-**India’s Summer of Youth Protests Is Boiling Over**\
-`The police fired water cannons at protesters in the state of Bihar, while the leaders of the ‘Cockroach’ student movement vowed to return to Delhi’s streets.`\
-https://www.nytimes.com/2026/08/25/world/asia/indias-youth-protests-cockroach.html
 
