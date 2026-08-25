@@ -1,3 +1,7 @@
+**El engaño de las bodas colectivas que dejó a decenas de hombres sin pareja en India**\
+`Una familia vio una oportunidad en las dificultades que enfrentan muchos hombres de comunidades rurales para encontrar esposa. Les cobró por una boda que jamás se celebró.`\
+https://www.nytimes.com/es/2026/08/25/espanol/mundo/fraude-boda-india.html
+
 **Una antigua solución sumeria para un déficit de 40 billones de dólares**\
 `En el mundo antiguo, la condonación de deudas era una solución pragmática a un problema intratable. ¿Por qué la hemos olvidado?`\
 https://www.nytimes.com/es/2026/08/25/espanol/opinion/deuda-publica-condonacion.html

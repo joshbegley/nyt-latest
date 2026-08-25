@@ -1,3 +1,7 @@
+**Australia Bans Generative A.I. From Official Music Charts**\
+`Under new rules, recordings developed using generative A.I. will only be allowed if they are “substantially human-made,” the peak body says.`\
+https://www.nytimes.com/2026/08/25/world/australia/australia-ai-music-chart-ban.html
+
 **El engaño de las bodas colectivas que dejó a decenas de hombres sin pareja en India**\
 `Una familia vio una oportunidad en las dificultades que enfrentan muchos hombres de comunidades rurales para encontrar esposa. Les cobró por una boda que jamás se celebró.`\
 https://www.nytimes.com/es/2026/08/25/espanol/mundo/fraude-boda-india.html
@@ -42,7 +46,7 @@ https://www.nytimes.com/2026/08/25/world/asia/china-artist-gao-zhen-jailed-mao-s
 `“That means I’ve lost an entire Donald Trump,” the country singer said while guest hosting Monday’s late night show.`\
 https://www.nytimes.com/2026/08/25/arts/television/jelly-roll-jimmy-kimmel-trump.html
 
-**China Is the Iran War’s Unexpected Winner**\
+**The Iran War Shows China’s Energy Strategy Is Working**\
 `The Iran war was supposed to expose China’s weakness on oil, but it didn’t quite work out that way.`\
 https://www.nytimes.com/2026/08/25/opinion/iran-china-energy-power.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/100000011109798/houston-uber-driver-police-chas
 **Judge Orders U.S. to Return Deported Man at Risk of Torture**\
 `The Mexican man was sent to his home country after assisting federal law enforcement by testifying against Mexican drug cartels.`\
 https://www.nytimes.com/2026/08/24/us/politics/mexico-man-deported-torture.html
-
-**Before and After Images Show How Wildfire Near Reno Leveled Homes**\
-`The Hawk wildfire in Nevada has burned more than 15,000 acres, including these homes in a Reno neighborhood. About 45,000 people were evacuated, and an additional 40,000 were warned that they might need to leave at a moment’s notice.`\
-https://www.nytimes.com/video/us/100000011109787/nevada-wildfires-before-after-reno.html
 
