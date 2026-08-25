@@ -1,3 +1,11 @@
+**Are You Fluent in Dating Lingo? Take Our Quiz.**\
+`Ghosting isn’t even the worst of it.`\
+https://www.nytimes.com/interactive/2026/08/24/well/dating-terms-phrases-lingo-quiz.html
+
+**Jeffries Defends Kushner Meeting, Vowing Tough Oversight of Trump**\
+`The Brooklyn Democrat, who is in line to be speaker should his party win the House, has drawn ire from some progressives for huddling with the president’s son-in-law.`\
+https://www.nytimes.com/2026/08/24/us/politics/jeffries-kushner-meeting-trump-oversight.html
+
 **Abdul El-Sayed Joins Jesse Watters of Fox News for Some Light Verbal Combat**\
 `In a smiling yet tense interview, Dr. Abdul El-Sayed, the Democratic nominee for Senate in Michigan, argued that his Republican critics were using culture-war issues to distract from Americans’ economic concerns.`\
 https://www.nytimes.com/2026/08/24/us/abdul-el-sayed-jesse-watters-fox-news.html
