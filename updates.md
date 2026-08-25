@@ -1,3 +1,7 @@
+**Target Apologizes and Drops Halloween Costume Criticized as Racist**\
+`Critics said the children’s costume evoked blackface imagery. Target said, “We know we got this wrong, and we are deeply sorry.”`\
+https://www.nytimes.com/2026/08/25/business/target-halloween-costume-controversy.html
+
 **¿El enjuague bucal es malo para la salud oral?**\
 `We asked experts to fact check some claims.`\
 https://www.nytimes.com/es/2026/08/25/espanol/enjuague-bucal-recomendaciones.html
