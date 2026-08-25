@@ -1,3 +1,7 @@
+**Trump Administration to Return Diplomats to Middle East Embassies**\
+`Evacuated foreign service officers could begin heading back to their posts as early as this week, an internal document shows, suggesting Washington does not anticipate a renewal of full-scale conflict with Iran.`\
+https://www.nytimes.com/2026/08/25/world/middleeast/us-said-to-be-returning-diplomats-to-middle-east-embassies.html
+
 **Target Apologizes and Drops Halloween Costume Criticized as Racist**\
 `Critics said the children’s costume evoked blackface imagery. Target said, “We know we got this wrong, and we are deeply sorry.”`\
 https://www.nytimes.com/2026/08/25/business/target-halloween-costume-controversy.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/25/opinion/iran-china-energy-power.html
 **How U.S.-Canada Tariff Negotiations Turned Into an All-Out Trade War**\
 `Detailed accounts of the final hours of the negotiations show that, while the United States offered Canada what it said was the best deal of any country, what Canada had to give up in exchange was seen as unthinkable.`\
 https://www.nytimes.com/2026/08/25/world/canada/trump-carney-trade-war-tariffs.html
-
-**Quote of the Day: Deaths by Russian A.I.-Guided Drone Are a First**\
-`Quotation of the Day for Tuesday, August 25, 2026.`\
-https://www.nytimes.com/2026/08/25/pageoneplus/quote-of-the-day-deaths-by-russian-ai-guided-drone-are-a-first.html
 
