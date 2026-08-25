@@ -1,3 +1,7 @@
+**Tornado in Southern France Tears Through Village**\
+`A tornado in southern France destroyed homes and injured dozens of people. The town of Pomas, which has a population of about 1,000, was hit especially hard.`\
+https://www.nytimes.com/video/world/europe/100000011111054/tornado-southern-france-damage.html
+
 **Lawmakers Push Hochul to Block ICE From Taking Over Upstate Warehouse**\
 `As a state law preventing the police from working with federal immigration officials goes into effect, a potential plan to use a warehouse as a detention center has drawn outrage.`\
 https://www.nytimes.com/2026/08/25/nyregion/newburgh-ice-detention-center-hochul.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/25/travel/portugal-coa-valley-grand-hiking-route
 **Interpol Comes Full Circle on ‘This Mirror Weighs a Ton’**\
 `The band that emerged in post-9/11 New York grapples with the surveillance state on its anxious but hopeful new LP, “This Mirror Weighs a Ton.”`\
 https://www.nytimes.com/2026/08/25/arts/music/interpol-this-mirror-weighs-a-ton-album.html
-
-**Is It Time for This 95-Year-Old Pianist to Retire?**\
-`Her vision and hearing are deteriorating, but she still wants to feel like she’s on top.`\
-https://www.nytimes.com/2026/08/25/business/piano-teacher-performer-retirement.html
 

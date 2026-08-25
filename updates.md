@@ -1,3 +1,7 @@
+**Tornado in Southern France Tears Through Village**\
+`A tornado in southern France destroyed homes and injured dozens of people. The town of Pomas, which has a population of about 1,000, was hit especially hard.`\
+https://www.nytimes.com/video/world/europe/100000011111054/tornado-southern-france-damage.html
+
 **Lawmakers Push Hochul to Block ICE From Taking Over Upstate Warehouse**\
 `As a state law preventing the police from working with federal immigration officials goes into effect, a potential plan to use a warehouse as a detention center has drawn outrage.`\
 https://www.nytimes.com/2026/08/25/nyregion/newburgh-ice-detention-center-hochul.html

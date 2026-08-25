@@ -1,3 +1,11 @@
+**Where to Eat in New York City Right Now**\
+`Our favorite restaurants of the moment in the city that never stops eating.`\
+https://www.nytimes.com/article/where-to-eat-nyc-restaurants.html
+
+**‘I’m Fine With My Body’: Danish Leader Responds to Unsolicited Beauty Advice**\
+`Prime Minister Mette Frederiksen had just returned from Ukraine when she received a message from a plastic surgeon asking if she wanted to fix her nose.`\
+https://www.nytimes.com/2026/08/25/world/europe/denmark-frederiksen-nose-plastic-surgeon.html
+
 **Tornado in Southern France Tears Through Village**\
 `A tornado in southern France destroyed homes and injured dozens of people. The town of Pomas, which has a population of about 1,000, was hit especially hard.`\
 https://www.nytimes.com/video/world/europe/100000011111054/tornado-southern-france-damage.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/25/world/europe/ukraine-russia-tanks.html
 **Word of the Day: herbivorous**\
 `This word has appeared in two articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/08/25/learning/word-of-the-day-herbivorous.html
-
-**Silence, Wolves and the Wild East: Hiking in Portugal’s Côa Valley**\
-`A trek in a remote corner of the Iberian Peninsula brought a writer face-to-face with ancient oaks, rewilding efforts and prehistoric cave art.`\
-https://www.nytimes.com/2026/08/25/travel/portugal-coa-valley-grand-hiking-route.html
-
-**Interpol Comes Full Circle on ‘This Mirror Weighs a Ton’**\
-`The band that emerged in post-9/11 New York grapples with the surveillance state on its anxious but hopeful new LP, “This Mirror Weighs a Ton.”`\
-https://www.nytimes.com/2026/08/25/arts/music/interpol-this-mirror-weighs-a-ton-album.html
 
