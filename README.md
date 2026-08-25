@@ -1,6 +1,38 @@
+**Oklahoma U.S. Senate Runoff 2026: Live Election Results, Priest vs. Thomas**\
+`Get live results and maps from the 2026 Oklahoma runoff election.`\
+https://www.nytimes.com/interactive/2026/08/25/us/elections/results-oklahoma-us-senate-runoff.html
+
+**South Carolina U.S. Senate Special Runoff 2026: Live Election Results, Graham vs. Norman**\
+`Get live results and maps from the 2026 South Carolina special runoff election.`\
+https://www.nytimes.com/interactive/2026/08/25/us/elections/results-south-carolina-us-senate-special-runoff-august-25.html
+
+**Oklahoma 2026: Live Election Results**\
+`Get live results and maps from the 2026 Oklahoma elections.`\
+https://www.nytimes.com/interactive/2026/08/25/us/elections/results-oklahoma.html
+
+**Oklahoma Governor Runoff 2026: Live Election Results, Drummond vs. Mazzei**\
+`Get live results and maps from the 2026 Oklahoma runoff election.`\
+https://www.nytimes.com/interactive/2026/08/25/us/elections/results-oklahoma-governor-runoff.html
+
 **Trump’s Canada Tariffs Rely on Untested Law**\
 `The president has invoked a long dormant section of law to hit one of America’s closest allies, a move that has troubled courts in the past.`\
 https://www.nytimes.com/2026/08/25/business/trump-canada-tariffs.html
+
+**Oklahoma Superintendent of Public Instruction Runoff 2026: Live Election Results**\
+`Get live results and maps from the 2026 Oklahoma runoff election.`\
+https://www.nytimes.com/interactive/2026/08/25/us/elections/results-oklahoma-superintendent-of-public-instruction-runoff.html
+
+**Oklahoma Insurance Commissioner Runoff 2026: Live Election Results**\
+`Get live results and maps from the 2026 Oklahoma runoff election.`\
+https://www.nytimes.com/interactive/2026/08/25/us/elections/results-oklahoma-insurance-commissioner-runoff.html
+
+**Oklahoma Labor Commissioner Runoff 2026: Live Election Results**\
+`Get live results and maps from the 2026 Oklahoma runoff election.`\
+https://www.nytimes.com/interactive/2026/08/25/us/elections/results-oklahoma-labor-commissioner-runoff.html
+
+**Georgia 13th Congressional District Special Runoff 2026: Live Election Results, Blair vs. Scott**\
+`Get live results and maps from the 2026 Georgia special runoff election.`\
+https://www.nytimes.com/interactive/2026/08/25/us/elections/results-georgia-us-house-13-special-runoff.html
 
 **Canada Fires Back in Trade War Against Trump With Up to 50% Tariffs**\
 `Canada said the higher levies, on items from aluminum foil to dishwashers to fish, would help protect workers, producers and manufacturers harmed by new Trump tariffs.`\
@@ -115,7 +147,7 @@ https://www.nytimes.com/2026/08/25/world/middleeast/iran-us-economy-sanctions.ht
 https://www.nytimes.com/2026/08/25/world/middleeast/us-diplomats-middle-east-embassies.html
 
 **Target Apologizes and Drops Halloween Costume Criticized as Racist**\
-`Critics said the children’s costume evoked blackface imagery. The retailer said, “We know we got this wrong, and we are deeply sorry.”`\
+`The children’s costume evoked blackface imagery, critics said. “We know we got this wrong, and we are deeply sorry,” the retailer said in response.`\
 https://www.nytimes.com/2026/08/25/business/target-halloween-costume-controversy.html
 
 **¿El enjuague bucal es malo para la salud oral?**\
@@ -165,36 +197,4 @@ https://www.nytimes.com/2026/08/25/climate/el-nino-temperature-charts.html
 **Why Irregular’s A.I. Tests for Meta, Anthropic and OpenAI Went Off the Rails**\
 `Irregular, an Israeli start-up, worked with OpenAI, Anthropic and Meta to assess the security of their A.I. models. It made a mistake. Then the tests went off the rails.`\
 https://www.nytimes.com/2026/08/25/technology/irregular-ai-test-hacks.html
-
-**A Chinese A.I. Lab May Test the World’s Cybersecurity With a Model**\
-`In July, an unreleased OpenAI model went rogue and demonstrated remarkable hacking abilities. This week, a lab called Z.ai will release a similarly powerful system to everyone.`\
-https://www.nytimes.com/2026/08/25/science/cybersecurity-zai-open-weights.html
-
-**We Know the Risks of A.I. We Need to Act.**\
-`A.I. could turn one of our country’s worst habits into a national security crisis.`\
-https://www.nytimes.com/2026/08/25/opinion/ai-risks.html
-
-**Dunkin’ Has a Bunch of New Drinks. Drinking Them Is Not the Point.**\
-`The odd new drinks of a beloved coffee chain reveal a lot about how the attention economy works.`\
-https://www.nytimes.com/2026/08/25/magazine/dunkin-drinks-coffee-tiktok.html
-
-**Christian Convert Who Fled Iran and Was Deported By Trump Finds New Home**\
-`Artemis Ghasemzadeh, who had escaped religious persecution, was deported to Panama under Trump’s immigration crackdown. Now, Canada has given her asylum.`\
-https://www.nytimes.com/2026/08/25/world/middleeast/artemis-ghasemzadeh-iran-christian-us-deported-canada-asylum.html
-
-**What to Watch in Tuesday’s Primary Runoffs in South Carolina and Oklahoma**\
-`President Trump’s endorsement track record is on the line in two races, including the high-profile contest to succeed the late Senator Lindsey Graham.`\
-https://www.nytimes.com/2026/08/25/us/politics/runoff-election-south-carolina-oklahoma.html
-
-**Restaurant Review: Zoli in New York**\
-`Zoli, part of an art complex in Williamsburg, springs a number of intriguing surprises, starting with those strange fish tanks.`\
-https://www.nytimes.com/2026/08/25/dining/restaurant-review-zoil-brooklyn.html
-
-**The Developers Who Spent $400,000 to Save One Maple Tree**\
-`The artist and architect owners likened sparing the silver maple to “rescuing a geriatric dog.”`\
-https://www.nytimes.com/2026/08/25/realestate/red-hook-silver-maple-treehouse.html
-
-**These Architects Are Designing High-End Homes Made to Look Old**\
-`Architects have carved out a niche in high-end new homes that are exactingly designed to look old.`\
-https://www.nytimes.com/2026/08/25/realestate/architects-historic-homes-design.html
 

@@ -1,3 +1,23 @@
+**Trump’s Canada Tariffs Rely on Untested Law**\
+`The president has invoked a long dormant section of law to hit one of America’s closest allies, a move that has troubled courts in the past.`\
+https://www.nytimes.com/2026/08/25/business/trump-canada-tariffs.html
+
+**Canada Fires Back in Trade War Against Trump With Up to 50% Tariffs**\
+`Canada said the higher levies, on items from aluminum foil to dishwashers to fish, would help protect workers, producers and manufacturers harmed by new Trump tariffs.`\
+https://www.nytimes.com/2026/08/25/world/canada/canada-tariffs-trump-carney-retaliatory.html
+
+**‘Mile End Kicks,’ ‘Good One’ and More Streaming Gems**\
+`In this month’s picks, a new coming-of-age charmer about a rock critic, a fascinating documentary about the early days of hip-hop and a sweet indie about a Brooklyn father-daughter band.`\
+https://www.nytimes.com/2026/08/25/movies/mile-end-kicks-good-one-streaming-movies.html
+
+**Where to Eat in New York City Right Now**\
+`Our favorite restaurants of the moment in the city that never stops eating.`\
+https://www.nytimes.com/article/where-to-eat-nyc-restaurants.html
+
+**‘I’m Fine With My Body’: Danish Leader Responds to Unsolicited Beauty Advice**\
+`Prime Minister Mette Frederiksen had just returned from Ukraine when she received a message from a plastic surgeon asking if she wanted to fix her nose.`\
+https://www.nytimes.com/2026/08/25/world/europe/denmark-frederiksen-nose-plastic-surgeon.html
+
 **Tornado in Southern France Tears Through Village**\
 `A tornado in southern France destroyed homes and injured dozens of people. The town of Pomas, which has a population of about 1,000, was hit especially hard.`\
 https://www.nytimes.com/video/world/europe/100000011111054/tornado-southern-france-damage.html

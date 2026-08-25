@@ -1,3 +1,23 @@
+**Trump’s Canada Tariffs Rely on Untested Law**\
+`The president has invoked a long dormant section of law to hit one of America’s closest allies, a move that has troubled courts in the past.`\
+https://www.nytimes.com/2026/08/25/business/trump-canada-tariffs.html
+
+**Canada Fires Back in Trade War Against Trump With Up to 50% Tariffs**\
+`Canada said the higher levies, on items from aluminum foil to dishwashers to fish, would help protect workers, producers and manufacturers harmed by new Trump tariffs.`\
+https://www.nytimes.com/2026/08/25/world/canada/canada-tariffs-trump-carney-retaliatory.html
+
+**‘Mile End Kicks,’ ‘Good One’ and More Streaming Gems**\
+`In this month’s picks, a new coming-of-age charmer about a rock critic, a fascinating documentary about the early days of hip-hop and a sweet indie about a Brooklyn father-daughter band.`\
+https://www.nytimes.com/2026/08/25/movies/mile-end-kicks-good-one-streaming-movies.html
+
+**Where to Eat in New York City Right Now**\
+`Our favorite restaurants of the moment in the city that never stops eating.`\
+https://www.nytimes.com/article/where-to-eat-nyc-restaurants.html
+
+**‘I’m Fine With My Body’: Danish Leader Responds to Unsolicited Beauty Advice**\
+`Prime Minister Mette Frederiksen had just returned from Ukraine when she received a message from a plastic surgeon asking if she wanted to fix her nose.`\
+https://www.nytimes.com/2026/08/25/world/europe/denmark-frederiksen-nose-plastic-surgeon.html
+
 **Tornado in Southern France Tears Through Village**\
 `A tornado in southern France destroyed homes and injured dozens of people. The town of Pomas, which has a population of about 1,000, was hit especially hard.`\
 https://www.nytimes.com/video/world/europe/100000011111054/tornado-southern-france-damage.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/08/25/realestate/red-hook-silver-maple-treehouse.ht
 **These Architects Are Designing High-End Homes Made to Look Old**\
 `Architects have carved out a niche in high-end new homes that are exactingly designed to look old.`\
 https://www.nytimes.com/2026/08/25/realestate/architects-historic-homes-design.html
-
-**How Many N.F.L. Players Will Have C.T.E.?**\
-`New research finds that at least one in four N.F.L. players who died in a six-year period had C.T.E., a degenerative brain disease caused by repeated impacts to the head. Our reporter John Branch unpacks the data and its implications for the sport.`\
-https://www.nytimes.com/video/us/100000011092227/nfl-players-cte-study.html
-
-**What Happened to the Coveted Western Tanks Sent to Ukraine?**\
-`Ukraine pleaded for the expensive weapons, and ultimately got them, but drones have rendered them almost unusable.`\
-https://www.nytimes.com/2026/08/25/world/europe/ukraine-russia-tanks.html
-
-**Word of the Day: herbivorous**\
-`This word has appeared in two articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/08/25/learning/word-of-the-day-herbivorous.html
-
-**Silence, Wolves and the Wild East: Hiking in Portugal’s Côa Valley**\
-`A trek in a remote corner of the Iberian Peninsula brought a writer face-to-face with ancient oaks, rewilding efforts and prehistoric cave art.`\
-https://www.nytimes.com/2026/08/25/travel/portugal-coa-valley-grand-hiking-route.html
-
-**Interpol Comes Full Circle on ‘This Mirror Weighs a Ton’**\
-`The band that emerged in post-9/11 New York grapples with the surveillance state on its anxious but hopeful new LP, “This Mirror Weighs a Ton.”`\
-https://www.nytimes.com/2026/08/25/arts/music/interpol-this-mirror-weighs-a-ton-album.html
 
