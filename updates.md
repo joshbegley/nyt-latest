@@ -1,3 +1,11 @@
+**Would Darline Graham Be the First Sister to Succeed a Brother in Congress?**\
+`Family dynasties are common in American politics. But sibling succession is rare.`\
+https://www.nytimes.com/2026/08/25/us/politics/darline-lindsey-graham-election-succession.html
+
+**It Was Always Dolly Parton’s Show**\
+`Trailing Dolly Parton around the world, I witnessed so many small moments in which she’d gracefully own her power without the slightest hint of fight.`\
+https://www.nytimes.com/2026/08/25/opinion/dolly-parton-death-america-legacy.html
+
 **The Evening: Canada Retaliates With New U.S. Tariffs**\
 `Plus, Dolly Parton dies at 80. Here’s the latest at the end of Tuesday.`\
 https://www.nytimes.com/2026/08/25/briefing/tariffs-dolly-parton-cte.html
