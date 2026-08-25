@@ -1,3 +1,23 @@
+**Canada Is Done With Trump**\
+`Canada suspended trade negotiations this week, setting off President Trump’s 50 percent tariffs on a range of Canadian goods.`\
+https://www.nytimes.com/2026/08/25/podcasts/the-daily/canada-is-done-with-trump.html
+
+**An Alarming New Study About Brain Injuries in Football, and How States Are Paying Millions for Rain**\
+`Plus, is the BRAT diet really the best thing for stomach bugs?`\
+https://www.nytimes.com/2026/08/25/podcasts/the-headlines/football-cte-rain-brat-diet.html
+
+**NYT Connections Answers for August 26, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Aug. 26, 2026.`\
+https://www.nytimes.com/2026/08/25/crosswords/connections-companion-1172.html
+
+**NYT Strands Hints for August 26, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Aug. 26, 2026.`\
+https://www.nytimes.com/2026/08/25/crosswords/strands-sidekick-906.html
+
+**Today’s Wordle Hints for August 26, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Aug. 26, 2026.`\
+https://www.nytimes.com/2026/08/25/crosswords/wordle-review-1894.html
+
 **John Fetterman’s Popularity With Republicans Surges, Poll Finds**\
 `Pennsylvania Republicans now view John Fetterman, the state’s Democratic senator, more favorably than its sitting G.O.P. senator, a New York Times/Philadelphia Inquirer/Siena poll found.`\
 https://www.nytimes.com/2026/08/25/us/politics/john-fetterman-poll-republicans-democrats-pennsylvania.html
