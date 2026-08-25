@@ -1,3 +1,15 @@
+**Lindsay Clancy Deserves Mercy, Not Life in Prison**\
+`It is too hard for women suffering from postpartum mental illness to prove the insanity defense.`\
+https://www.nytimes.com/2026/08/25/opinion/lindsay-clancy-postpartum-mom-kids-death.html
+
+**What’s More Than ‘Maximum’? Trump Faces Limits on Iran Sanctions.**\
+`President Trump’s “Economic D-Day” is intended to break the stalemate with Iran. But decades of sanctions have done little to change the country’s behavior.`\
+https://www.nytimes.com/2026/08/25/us/politics/trump-iran-maximum-sanctions.html
+
+**5 Takeaways on the Fallout From an Alarming C.T.E. Study**\
+`At least one in four N.F.L. players, and likely a much higher percentage, had the brain disease when they died. Will anything change?`\
+https://www.nytimes.com/2026/08/25/us/cte-nfl-football-takeaways.html
+
 **Airstrikes and Illegal Mining Add to Myanmar’s Troubles**\
 `A thriving ‘conflict economy’ is extracting minerals while the military and armed groups inflict abuse on civilians, according to a new report on the scale of recent violence in Myanmar.`\
 https://www.nytimes.com/2026/08/25/world/asia/myanmar-junta-violence-rohingya.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/interactive/2026/08/25/us/elections/results-oklahoma-lab
 **Georgia 13th Congressional District Special Runoff 2026: Live Election Results, Blair vs. Scott**\
 `Get live results and maps from the 2026 Georgia special runoff election.`\
 https://www.nytimes.com/interactive/2026/08/25/us/elections/results-georgia-us-house-13-special-runoff.html
-
-**Canada Fires Back in Trade War Against Trump With Up to 50% Tariffs**\
-`Canada said the higher levies, on items from aluminum foil to dishwashers to fish, would help protect workers, producers and manufacturers harmed by new Trump tariffs.`\
-https://www.nytimes.com/2026/08/25/world/canada/canada-tariffs-trump-carney-retaliatory.html
-
-**‘Mile End Kicks,’ ‘Good One’ and More Streaming Gems**\
-`In this month’s picks, a new coming-of-age charmer about a rock critic, a fascinating documentary about the early days of hip-hop and a sweet indie about a Brooklyn father-daughter band.`\
-https://www.nytimes.com/2026/08/25/movies/mile-end-kicks-good-one-streaming-movies.html
-
-**Where to Eat in New York City Right Now**\
-`Our favorite restaurants of the moment in the city that never stops eating.`\
-https://www.nytimes.com/article/where-to-eat-nyc-restaurants.html
 
