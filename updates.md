@@ -1,3 +1,7 @@
+**How the Supreme Court Is Issuing Orders as Trump ‘Emergencies’ Return**\
+`The justices are still struggling with whether and when to explain themselves to the public when the court issues temporary, but consequential, orders.`\
+https://www.nytimes.com/2026/08/25/us/politics/supreme-court-trump-emergency-shadow-docket.html
+
 **The Ludicrous Argument Behind Trump’s Tariffs**\
 `Mr. Trump is breaking the law. Congress and the judiciary need to respond.`\
 https://www.nytimes.com/2026/08/25/opinion/trump-tariffs-illegal-canada.html
