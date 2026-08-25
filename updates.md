@@ -1,3 +1,7 @@
+**Trump Administration Aims to Revoke Visas of Foreign Citizens Applying for Asylum**\
+`The State Department, in a move that could affect as many as 200,000 visa holders and asylum applicants, has begun its review. Cancellations could occur in waves.`\
+https://www.nytimes.com/2026/08/24/us/politics/trump-administration-aims-to-revoke-visas-of-foreign-citizens-applying-for-asylum.html
+
 **Are You Fluent in Dating Lingo? Take Our Quiz.**\
 `Ghosting isn’t even the worst of it.`\
 https://www.nytimes.com/interactive/2026/08/24/well/dating-terms-phrases-lingo-quiz.html

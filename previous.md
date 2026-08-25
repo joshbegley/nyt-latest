@@ -1,3 +1,7 @@
+**Trump Administration Aims to Revoke Visas of Foreign Citizens Applying for Asylum**\
+`The State Department, in a move that could affect as many as 200,000 visa holders and asylum applicants, has begun its review. Cancellations could occur in waves.`\
+https://www.nytimes.com/2026/08/24/us/politics/trump-administration-aims-to-revoke-visas-of-foreign-citizens-applying-for-asylum.html
+
 **Are You Fluent in Dating Lingo? Take Our Quiz.**\
 `Ghosting isn’t even the worst of it.`\
 https://www.nytimes.com/interactive/2026/08/24/well/dating-terms-phrases-lingo-quiz.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/08/24/espanol/mundo/dron-guerra-rusia-ucrania-ia
 **U.S.S. Abraham Lincoln Sailor Says Father Was Arrested by Border Patrol**\
 `The sailor, Joshua Aviles, was on his way home from the Middle East aboard the beleaguered aircraft carrier when he learned his father had been detained.`\
 https://www.nytimes.com/2026/08/24/us/uss-lincoln-sailor-father-arrested-immigration.html
-
-**Trump Lays It on the Line for Darline Graham Ahead of South Carolina Runoff**\
-`The president rallied for the sister of Lindsey Graham in her South Carolina Senate run and pressured allies to endorse her. A super PAC run by his advisers has spent nearly $800,000 on her campaign. Will it be enough?`\
-https://www.nytimes.com/2026/08/24/us/politics/trump-graham-south-carolina-endorsement.html
 
