@@ -1,3 +1,7 @@
+**Darline Graham, With Push From Trump, Wins Senate Primary in South Carolina**\
+`President Trump helped lift Ms. Graham from relative obscurity after the death of her brother, Lindsey Graham, six weeks ago. In Oklahoma, another Trump-backed candidate, Mike Mazzei, won the nomination for governor.`\
+https://www.nytimes.com/live/2026/08/25/us/elections-south-carolina-oklahoma
+
 **A Surrogate Fled to Texas to Avoid an Abortion. Now She Wants Custody of the Baby.**\
 `A surrogate refused to have an abortion after the fetus was diagnosed with a serious heart problem. She fled to Texas and had the child. Now she wants a judge to give custody to her instead of the biological parents.`\
 https://www.nytimes.com/2026/08/25/us/texas-surrogate-custody.html

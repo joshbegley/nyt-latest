@@ -194,7 +194,7 @@ https://www.nytimes.com/2026/08/25/world/us-canada-trade-war-dolly-parton.html
 `The salvage company that has been awarded the rights to recover, but not sell, items that sunk with the ship, has proposed selling 100 of them.`\
 https://www.nytimes.com/2026/08/25/arts/design/titanic-artifacts-sale-halted-judge.html
 
-**Election Live Updates: Darline Graham, With Push From Trump, Wins Senate Primary in South Carolina**\
+**Darline Graham, With Push From Trump, Wins Senate Primary in South Carolina**\
 `President Trump helped lift Ms. Graham from relative obscurity after the death of her brother, Lindsey Graham, six weeks ago. In Oklahoma, another Trump-backed candidate, Mike Mazzei, won the nomination for governor.`\
 https://www.nytimes.com/live/2026/08/25/us/elections-south-carolina-oklahoma
 
