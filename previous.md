@@ -1,3 +1,7 @@
+**Trump’s Top Gaza Official Says Israel Is Jeopardizing the Cease-Fire**\
+`Nickolay Mladenov, the Board of Peace’s high representative for Gaza, criticized Israel for its ongoing strikes on Hamas, after it rejected a U.S.-backed plan to disarm the militant group.`\
+https://www.nytimes.com/2026/08/26/world/middleeast/trump-official-israel-jeopardizing-gaza-cease-fire.html
+
 **Dolly Parton Was a Trailblazer in Business, Too**\
 `Her vision to launch businesses to bring fans closer while protecting her intellectual property was ahead of her time.`\
 https://www.nytimes.com/2026/08/26/business/dolly-parton-businesses.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/26/business/energy-environment/diesel-prices-ira
 **Under Threat, Saudi Arabia Reroutes Oil Exports Yet Again**\
 `Forced away from the Strait of Hormuz in the Persian Gulf, the Saudis turned to the Red Sea. Now they are relying on a less dangerous but more complicated detour via the Suez Canal.`\
 https://www.nytimes.com/2026/08/26/business/saudi-oil-houthis-iran.html
-
-**Harry Styles and the Residencies Taking Over the Music Industry**\
-`Harry Styles’s latest Madison Square Garden takeover is part of a trend that some say transfers the cost of touring to fans.`\
-https://www.nytimes.com/2026/08/26/arts/music/harry-styles-residencies-pop-music.html
 

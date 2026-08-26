@@ -1,3 +1,7 @@
+**Trump’s Top Gaza Official Says Israel Is Jeopardizing the Cease-Fire**\
+`Nickolay Mladenov, the Board of Peace’s high representative for Gaza, criticized Israel for its ongoing strikes on Hamas, after it rejected a U.S.-backed plan to disarm the militant group.`\
+https://www.nytimes.com/2026/08/26/world/middleeast/trump-official-israel-jeopardizing-gaza-cease-fire.html
+
 **Dolly Parton Was a Trailblazer in Business, Too**\
 `Her vision to launch businesses to bring fans closer while protecting her intellectual property was ahead of her time.`\
 https://www.nytimes.com/2026/08/26/business/dolly-parton-businesses.html
