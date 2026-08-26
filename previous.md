@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Aug. 26, 2026**\
+`John Kugelman and Lance Enfinger name names.`\
+https://www.nytimes.com/2026/08/25/crosswords/daily-puzzle-2026-08-26.html
+
 **Country Music Superstar Dolly Parton Dies at 80**\
 `Dolly Parton, the country music superstar who rose from poverty to become a top-selling singer, songwriter and entrepreneur, died of cancer in Nashville on Tuesday.`\
 https://www.nytimes.com/video/embedded/obituaries/100000011112476/country-music-superstar-dolly-parton-dies.html
@@ -18,7 +22,7 @@ https://www.nytimes.com/2026/08/25/us/politics/south-carolina-senate-graham-norm
 `It’s now haunting Broadway in this adaptation of the horror film franchise about a couple seeking a new start. Instead, they become prime targets.`\
 https://www.nytimes.com/2026/08/25/theater/paranormal-activity-review-broadway.html
 
-**5 Things to Know About Mark Mazzei, Oklahoma G.O.P. Candidate for Governor**\
+**5 Things to Know About Mike Mazzei, Oklahoma G.O.P. Candidate for Governor**\
 `The former state senator, who was endorsed by President Trump, spent millions of dollars of his own money on the race.`\
 https://www.nytimes.com/2026/08/25/us/politics/who-is-mark-mazzei.html
 
@@ -190,11 +194,7 @@ https://www.nytimes.com/video/dining/100000011112655/tomato-and-cottage-cheese-s
 `Get live results and maps from the 2026 Oklahoma runoff election.`\
 https://www.nytimes.com/interactive/2026/08/25/us/elections/results-oklahoma-superintendent-of-public-instruction-runoff.html
 
-**Oklahoma Labor Commissioner Runoff 2026: Live Election Results**\
-`Get live results and maps from the 2026 Oklahoma runoff election.`\
-https://www.nytimes.com/interactive/2026/08/25/us/elections/results-oklahoma-labor-commissioner-runoff.html
-
 **Election Live Updates: Darline Graham, With Push From Trump, Wins Senate Primary in South Carolina**\
-`Darline Graham, the sister of the late Lindsey Graham, had President Trump’s backing in her campaign. She defeated Ralph Norman, a staunch conservative who criticized her lack of experience.`\
+`President Trump helped lift Ms. Graham from relative obscurity after the death of her brother, Lindsey Graham, six weeks ago. Voters trusted Mr. Trump’s endorsement, overlooking her inexperience.`\
 https://www.nytimes.com/live/2026/08/25/us/elections-south-carolina-oklahoma
 

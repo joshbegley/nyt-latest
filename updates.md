@@ -1,3 +1,15 @@
+**NYT Crossword Answers for Aug. 26, 2026**\
+`John Kugelman and Lance Enfinger name names.`\
+https://www.nytimes.com/2026/08/25/crosswords/daily-puzzle-2026-08-26.html
+
+**5 Things to Know About Mike Mazzei, Oklahoma G.O.P. Candidate for Governor**\
+`The former state senator, who was endorsed by President Trump, spent millions of dollars of his own money on the race.`\
+https://www.nytimes.com/2026/08/25/us/politics/who-is-mark-mazzei.html
+
+**Election Live Updates: Darline Graham, With Push From Trump, Wins Senate Primary in South Carolina**\
+`President Trump helped lift Ms. Graham from relative obscurity after the death of her brother, Lindsey Graham, six weeks ago. Voters trusted Mr. Trump’s endorsement, overlooking her inexperience.`\
+https://www.nytimes.com/live/2026/08/25/us/elections-south-carolina-oklahoma
+
 **Country Music Superstar Dolly Parton Dies at 80**\
 `Dolly Parton, the country music superstar who rose from poverty to become a top-selling singer, songwriter and entrepreneur, died of cancer in Nashville on Tuesday.`\
 https://www.nytimes.com/video/embedded/obituaries/100000011112476/country-music-superstar-dolly-parton-dies.html
