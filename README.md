@@ -1,3 +1,7 @@
+**Tim Curry: A Life in Pictures**\
+`Curry thrived onstage and onscreen in meaty roles that brought him widespread recognition and generations of dedicated fans.`\
+https://www.nytimes.com/2026/08/26/movies/tim-curry-a-life-in-pictures.html
+
 **Dolly Parton’s Other Legacy: A Fortune Given Away, Dollar by Dollar**\
 `The country star supported early childhood literacy, disaster relief, the development of the Covid-19 vaccine and more.`\
 https://www.nytimes.com/2026/08/26/business/dolly-parton-philanthropy-books-covid-vaccine.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/26/learning/on-happiness-politics-language-and-t
 **A Tax Program for Development in Chicago Left Poor Areas Behind, Study Says**\
 `New research suggests that TIF, a multibillion dollar tax program intended to revive the city’s blighted neighborhoods, has mostly benefited downtown areas.`\
 https://www.nytimes.com/2026/08/26/us/tif-chicago-study-tax-program-downtown.html
-
-**Iran War Weighs on Virginia Beach Voters in Key House Race**\
-`The conflict with Iran is uniquely salient to the Virginia Beach voters deciding which party will win a critical House contest.`\
-https://www.nytimes.com/2026/08/26/us/politics/virginia-beach-congressional-election-iran-war.html
 
