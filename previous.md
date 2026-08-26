@@ -66,8 +66,8 @@ https://www.nytimes.com/video/podcasts/100000011113819/why-is-this-picture-at-ev
 `Joshua Aviles, a Navy sailor, said his father had been freed days after he was detained as Mr. Aviles returned from a lengthy deployment in the Middle East.`\
 https://www.nytimes.com/2026/08/26/us/politics/uss-abraham-lincoln-sailor-father-arrested-immigration-released.html
 
-**Iran and Oman Report Progress in Talks on Strait of Hormuz**\
-`The two countries said they would create a temporary shipping lane and clear mines in the waterway. Global oil prices dipped after the joint announcement.`\
+**Oil Prices Dip on News of Progress in Hormuz Talks**\
+`Iran and Oman said they would create a temporary shipping lane and clear mines in the waterway. Global oil prices eased after the joint announcement.`\
 https://www.nytimes.com/2026/08/26/world/middleeast/iran-oman-strait-hormuz.html
 
 **Live Updates: Hundreds Missing as Deadly Floods Sweep Away Villages in Nepal**\

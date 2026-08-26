@@ -1,3 +1,7 @@
+**Oil Prices Dip on News of Progress in Hormuz Talks**\
+`Iran and Oman said they would create a temporary shipping lane and clear mines in the waterway. Global oil prices eased after the joint announcement.`\
+https://www.nytimes.com/2026/08/26/world/middleeast/iran-oman-strait-hormuz.html
+
 **The Dolly Parton Moments That Are Going Viral After Her Death**\
 `After the country music legend died on Tuesday, fans shared clips of their favorite moments of the singer.`\
 https://www.nytimes.com/2026/08/26/arts/music/dolly-parton-viral-moments.html

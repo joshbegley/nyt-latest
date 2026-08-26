@@ -55,7 +55,7 @@ https://www.nytimes.com/video/embedded/world/asia/100000011113830/26vid-nepal-cc
 https://www.nytimes.com/2026/08/26/arts/music/dolly-parton-jolene-i-will-always-love-you.html
 
 ****\
-`(No description)`\
+`Verified surveillance footage shows the moment a landslide ripped through Gyirong Port, on the border between China and Nepal, on Wednesday.`\
 https://www.nytimes.com/video/embedded/world/asia/100000011113814/26vid-nepal-cctv-49655.html
 
 **Why Is This Picture at Every Sex Party?**\
@@ -193,8 +193,4 @@ https://www.nytimes.com/2026/08/26/arts/music/harry-styles-residencies-pop-music
 **At 97, a Holocaust Survivor’s Life on the Upper West Side**\
 `He was only 12 when he lost most of his relatives. After liberation, he came to New York and put his extraordinary proclivity for languages to work.`\
 https://www.nytimes.com/2026/08/26/realestate/at-97-a-holocaust-survivors-life-on-the-upper-west-side.html
-
-**Book Review: ‘Crossing the Wine-Dark Sea,’ by Emily Wilson**\
-`A new book of essays by the celebrated classicist captures her excitement for her subject matter and the surprising range of her references.`\
-https://www.nytimes.com/2026/08/26/books/review/crossing-the-wine-dark-sea-emily-wilson.html
 
