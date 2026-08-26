@@ -1,3 +1,11 @@
+**Judge Sides With Texas Over Minnesota on Extradition of ICE Agent**\
+`The two states have waged an unusual court battle over the agent facing charges over a shooting in Minneapolis. The agent could be released from jail on Thursday.`\
+https://www.nytimes.com/2026/08/26/us/ice-christian-castro-extradite-texas-minnesota.html
+
+**Who is Ahead in Ohio’s 1st Congressional District?**\
+`Track the latest polls in Ohio’s 1st Congressional District.`\
+https://www.nytimes.com/interactive/polls/ohio-us-house-1-polls-2026.html
+
 **There’s Only One Winner of a Trade War With Canada**\
 `China is the real problem, and Washington needs all the allies it can find.`\
 https://www.nytimes.com/2026/08/26/opinion/us-canada-trade-cars-trucks-china.html
@@ -70,8 +78,8 @@ https://www.nytimes.com/2026/08/26/world/asia/over-100-indian-pilgrims-are-among
 `No está claro en qué momento recibió el diagnóstico de cáncer. Hace poco más de una semana, faltó a una aparición programada en Dollywood.`\
 https://www.nytimes.com/es/2026/08/26/espanol/cultura/dolly-parton-de-que-murio-cancer.html
 
-**Judges Reject Plea to Toss Federal Charges Against Democratic Lawmaker**\
-`An appeals panel ruled against Representative LaMonica McIver, a Democrat accused by the Justice Department of assaulting immigration agents outside Delaney Hall. No one was injured in the clash.`\
+**Judge Rejects Plea to Toss Federal Charges Against Rep. LaMonica McIver**\
+`An appeals panel ruled against Representative LaMonica McIver, who is accused by the Justice Department of assaulting immigration agents outside a migrant detention center in New Jersey.`\
 https://www.nytimes.com/2026/08/26/nyregion/mciver-trump-delaney-hall-decision.html
 
 **Why Dolly Parton Wouldn’t Let Elvis Presley Record ‘I Will Always Love You’**\
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/08/26/dining/nows-the-time-to-make-a-great-blt.html
 **The A.I. Debt Binge Is Endangering the Economy**\
 `The A.I.-fueled debt bubble will likely result in a painful downturn.`\
 https://www.nytimes.com/2026/08/26/opinion/ai-debt-economy-hyperscalers.html
-
-**Deadly Nepal Flood May Have Been Caused by ‘Ice Avalanche,’ Scientists Say**\
-`An initial assessment of satellite imagery suggests an “ice avalanche” from a high-altitude glacier sent a giant cascade into the valley below.`\
-https://www.nytimes.com/2026/08/26/world/asia/nepal-flood-glacier-ice-avalanche.html
-
-**Trump’s Top Gaza Official Says Israel Is Jeopardizing the Cease-Fire**\
-`Nickolay Mladenov, the Board of Peace’s high representative for Gaza, criticized Israel for its ongoing strikes on what it says are Hamas targets, after it rejected a plan to disarm the group.`\
-https://www.nytimes.com/2026/08/26/world/middleeast/trump-official-israel-jeopardizing-gaza-cease-fire.html
 

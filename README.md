@@ -1,3 +1,19 @@
+**Dolly Parton’s Best Movie Performances: Where to Stream**\
+`In movies like “9 to 5” and “Steel Magnolias,” Parton shined as a version of herself.`\
+https://www.nytimes.com/2026/08/26/movies/dolly-parton-movies-streaming.html
+
+**Blake Lively, Who Sought $8 Million for Legal Costs, Is Awarded $400,000**\
+`The ruling all but ends the legal dispute between her and Justin Baldoni over the filming of the movie “It Ends With Us” and its aftermath.`\
+https://www.nytimes.com/2026/08/26/movies/blake-lively-legal-costs-justin-baldoni.html
+
+**Judge Handling 9/11 Case Sets June 2028 Trial Date**\
+`Prosecutors had asked for an earlier start. The judge has not yet ruled on several issues related to the defendants’ torture in C.I.A. prisons.`\
+https://www.nytimes.com/2026/08/26/us/politics/sept11-attacks-trial-date.html
+
+**How The New York Times Covers Harry, Meghan and the Royal Family**\
+`What led to the surprising return of Meghan and Harry to Britain? What will it mean? Our journalists, and many competitors, are seeking answers.`\
+https://www.nytimes.com/2026/08/26/insider/royal-family-harry-meghan-insider.html
+
 **Judge Sides With Texas Over Minnesota on Extradition of ICE Agent**\
 `The two states have waged an unusual court battle over the agent facing charges over a shooting in Minneapolis. The agent could be released from jail on Thursday.`\
 https://www.nytimes.com/2026/08/26/us/ice-christian-castro-extradite-texas-minnesota.html
@@ -173,20 +189,4 @@ https://www.nytimes.com/es/2026/08/26/espanol/negocios/bill-gates-advierte-ia.ht
 **Deadly Flooding Devastates Parts of Nepal and Tibet**\
 `Hundreds of people were missing in Nepal and Tibet, an autonomous region of China, officials said, after waves of floodwaters ripped through river valleys and damaged settlements.`\
 https://www.nytimes.com/video/world/asia/100000011113791/nepal-flood-tibet-people-missing.html
-
-**Stream These Movies and Shows Before They Leave Netflix**\
-`Like “The Four Seasons”? The movie that inspired it is leaving soon, as is the Hayden Panettiere showcase “Nashville.”`\
-https://www.nytimes.com/2026/08/26/arts/television/netflix-expiring-september.html
-
-**Today, In Short**\
-`Dating lingo. Dolly Parton. And dancing.`\
-https://www.nytimes.com/2026/08/26/briefing/today-in-short.html
-
-**Now’s the Time to Make a Great BLT**\
-`And J.J. Goode’s BLT is really, really great. But maybe you’d like BLT pasta, or a tomato, bacon and corn salad?`\
-https://www.nytimes.com/2026/08/26/dining/nows-the-time-to-make-a-great-blt.html
-
-**The A.I. Debt Binge Is Endangering the Economy**\
-`The A.I.-fueled debt bubble will likely result in a painful downturn.`\
-https://www.nytimes.com/2026/08/26/opinion/ai-debt-economy-hyperscalers.html
 

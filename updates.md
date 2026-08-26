@@ -1,3 +1,15 @@
+**Judge Sides With Texas Over Minnesota on Extradition of ICE Agent**\
+`The two states have waged an unusual court battle over the agent facing charges over a shooting in Minneapolis. The agent could be released from jail on Thursday.`\
+https://www.nytimes.com/2026/08/26/us/ice-christian-castro-extradite-texas-minnesota.html
+
+**Who is Ahead in Ohio’s 1st Congressional District?**\
+`Track the latest polls in Ohio’s 1st Congressional District.`\
+https://www.nytimes.com/interactive/polls/ohio-us-house-1-polls-2026.html
+
+**Judge Rejects Plea to Toss Federal Charges Against Rep. LaMonica McIver**\
+`An appeals panel ruled against Representative LaMonica McIver, who is accused by the Justice Department of assaulting immigration agents outside a migrant detention center in New Jersey.`\
+https://www.nytimes.com/2026/08/26/nyregion/mciver-trump-delaney-hall-decision.html
+
 **There’s Only One Winner of a Trade War With Canada**\
 `China is the real problem, and Washington needs all the allies it can find.`\
 https://www.nytimes.com/2026/08/26/opinion/us-canada-trade-cars-trucks-china.html
