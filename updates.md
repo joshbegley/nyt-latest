@@ -1,3 +1,7 @@
+**3 Teenagers Killed in Crash on Brooklyn Highway**\
+`The driver of an S.U.V. was killed, as were two passengers, overnight. Four other people, including the driver and passenger in the other vehicle, were injured.`\
+https://www.nytimes.com/2026/08/26/nyregion/nyc-belt-parkway-crash.html
+
 **Inflation Remains Elevated as Energy Costs Push on Prices**\
 `The Personal Consumption Expenditure index, the Federal Reserve’s preferred inflation tracker, held steady in July.`\
 https://www.nytimes.com/2026/08/26/business/economy/inflation-pce.html

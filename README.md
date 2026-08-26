@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/asia/100000011113845/26visualUploader-44227.html
+
 **3 Teenagers Killed in Crash on Brooklyn Highway**\
 `The driver of an S.U.V. was killed, as were two passengers, overnight. Four other people, including the driver and passenger in the other vehicle, were injured.`\
 https://www.nytimes.com/2026/08/26/nyregion/nyc-belt-parkway-crash.html
@@ -6,8 +10,8 @@ https://www.nytimes.com/2026/08/26/nyregion/nyc-belt-parkway-crash.html
 `The Personal Consumption Expenditure index, the Federal Reserve’s preferred inflation tracker, held steady in July.`\
 https://www.nytimes.com/2026/08/26/business/economy/inflation-pce.html
 
-**Prince Harry and Meghan Set to Arrive in Britain, BBC Reports**\
-`The broadcaster said that the family were expected to land in the U.K. on Wednesday, without naming its sources.`\
+**Prince Harry and Meghan Arrive in Britain, BBC Reports**\
+`The broadcaster said that the family had landed in the country on Wednesday, without citing sources.`\
 https://www.nytimes.com/2026/08/26/world/europe/prince-harry-meghan-uk-arrival.html
 
 **Wall St. Scrutinizes Nvidia’s Deal Machine**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/26/podcasts/modern-love-how-to-host-an-orgy.html
 **22 New Books to Read in September: John Green, R.F. Kuang, Marlon James and More**\
 `Novels by Marlon James, Emma Cline, Hernan Diaz and John Green; nonfiction by Emily Wilson and Robert Kolker; and more.`\
 https://www.nytimes.com/2026/08/26/books/new-books-september.html
-
-**The Only Way to Stop Students From Cheating**\
-`Blue-book exams are fine, but we need to address the issue at its root.`\
-https://www.nytimes.com/2026/08/26/opinion/students-cheating-ai.html
 
