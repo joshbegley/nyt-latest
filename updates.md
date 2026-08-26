@@ -1,3 +1,11 @@
+**Hearing to Review Bill Cosby’s Assets as He Faces $59 Million Judgment**\
+`A judge wants Mr. Cosby or his lawyers to clarify questions about his funds as a woman who sued him for sexual assault says she has not received any of the money she was awarded.`\
+https://www.nytimes.com/2026/08/26/arts/television/bill-cosby-assets-sexual-assault.html
+
+**Army Awards $2.2 Billion for ‘Microreactors’ On U.S. Bases**\
+`The move is part of the Trump administration’s efforts to spur the country’s largest expansion of nuclear power in more than three decades.`\
+https://www.nytimes.com/2026/08/26/climate/army-miniature-nuclear-reactors.html
+
 **Maryland Judge Blocks Democratic Redistricting Measure**\
 `A judge found that Democratic lawmakers had not followed proper procedures in passing a redistricting amendment, but the state Supreme Court will have the final say.`\
 https://www.nytimes.com/2026/08/26/us/maryland-redistricting-constitutional-amendment.html
