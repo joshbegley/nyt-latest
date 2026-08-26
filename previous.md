@@ -1,3 +1,7 @@
+**Trump Administration Sends Saudi Nuclear Deal to Congress for Review**\
+`The prospect that the kingdom could enrich uranium has drawn opposition from Democrats and revived concerns about nuclear proliferation in the Middle East.`\
+https://www.nytimes.com/2026/08/25/us/politics/trump-saudi-nuclear-deal-congress-review.html
+
 **Darline Graham, Backed By Trump, Wins Primary for Senate in South Carolina**\
 `Ms. Graham, who is temporarily filling the seat long held by her late brother, Senator Lindsey Graham, prevailed in a runoff and will be heavily favored in November.`\
 https://www.nytimes.com/2026/08/25/us/politics/south-carolina-senate-graham-norman.html
@@ -23,7 +27,7 @@ https://www.nytimes.com/2026/08/25/nyregion/mamdani-pieds-a-terre-tax-homes.html
 https://www.nytimes.com/2026/08/25/us/politics/everton-blair-georgia-runoff-house-david-scott.html
 
 **Dolly Parton Died After Brief Battle With Cancer**\
-`Parton had recently canceled a Las Vegas residency because of health issues. A spokesman did not provide additional details about her illness.`\
+`Parton had recently canceled a Las Vegas residency because of health issues. A spokesman said she was admitted to a cancer center in Nashville on Friday.`\
 https://www.nytimes.com/2026/08/25/arts/music/dolly-parton-cancer-cause-death.html
 
 **Canadá responde e impone aranceles a cientos de productos de EE. UU.**\
