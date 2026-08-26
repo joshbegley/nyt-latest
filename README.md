@@ -190,7 +190,3 @@ https://www.nytimes.com/2026/08/26/us/parents-football-cte-decisions.html
 `Las personas que no forman parte de la familia pueden asumir funciones de ayuda cuando los adultos mayores necesitan asistencia.`\
 https://www.nytimes.com/es/2026/08/26/espanol/cuidadores-amistad.html
 
-**‘Honeymoon’s Over’: Warsh Under Pressure as Fed Weighs Raising Rates**\
-`Kevin M. Warsh is scheduled to deliver his first address at the Federal Reserve’s annual conference in Jackson, Wyo., with U.S. government bond markets on edge and inflation risks resurfacing.`\
-https://www.nytimes.com/2026/08/26/business/kevin-warsh-federal-reserve-jackson.html
-
