@@ -1,3 +1,19 @@
+**Today, In Short**\
+`Dating lingo. Dolly Parton. And dancing.`\
+https://www.nytimes.com/2026/08/26/briefing/today-in-short.html
+
+**Now’s the Time to Make a Great BLT**\
+`And J.J. Goode’s BLT is really, really great. But maybe you’d like BLT pasta, or a tomato, bacon and corn salad?`\
+https://www.nytimes.com/2026/08/26/dining/nows-the-time-to-make-a-great-blt.html
+
+**The A.I. Debt Binge Is Endangering the Economy**\
+`The A.I.-fueled debt bubble will likely result in a painful downturn.`\
+https://www.nytimes.com/2026/08/26/opinion/ai-debt-economy-hyperscalers.html
+
+**Deadly Nepal Flood May Have Been Caused by ‘Ice Avalanche,’ Scientists Say**\
+`An initial assessment of satellite images suggests an “ice avalanche” from a high-altitude glacier sent a giant cascade into the valley below.`\
+https://www.nytimes.com/2026/08/26/world/asia/nepal-flood-glacier-ice-avalanche.html
+
 **Trump’s Top Gaza Official Says Israel Is Jeopardizing the Cease-Fire**\
 `Nickolay Mladenov, the Board of Peace’s high representative for Gaza, criticized Israel for its ongoing strikes on Hamas, after it rejected a U.S.-backed plan to disarm the militant group.`\
 https://www.nytimes.com/2026/08/26/world/middleeast/trump-official-israel-jeopardizing-gaza-cease-fire.html
