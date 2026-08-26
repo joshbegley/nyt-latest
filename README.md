@@ -1,3 +1,23 @@
+**American Students Shouldn’t Be Guinea Pigs for Chatbots**\
+`Every minute of delay in regulating A.I. use in schools is another opportunity for Big Tech to fill the vacuum.`\
+https://www.nytimes.com/2026/08/26/opinion/ai-norway-schools.html
+
+**5 capacidades alarmantes que la IA demostró en un ataque autónomo**\
+`Cuando los agentes de OpenAI se salieron de control en julio, demostraron un ingenio y una determinación superiores a lo que los expertos anticipaban. Es un peligroso presagio de lo que estos bots podrían hacer en el futuro.`\
+https://www.nytimes.com/es/2026/08/26/espanol/ciencia-y-tecnologia/alarma-ataque-inteligencia-artifical.html
+
+**The President Is a Man Who Would Rather Be King**\
+`Trump does not see himself as a mere president subject to the public’s opinion.`\
+https://www.nytimes.com/2026/08/26/opinion/trump-king-canada-trade-war.html
+
+**A.O.C., I Have a Question (No, Not That One)**\
+`Before a Woke 2 takes over, let the proponents of its predecessor explain how and why they’re moving on.`\
+https://www.nytimes.com/2026/08/26/opinion/aoc-woke-1.html
+
+**Even as Trump’s Standing Slips, He Slingshots Darline Graham to Victory**\
+`After facing low approval ratings and endorsement setbacks, the president made a show of force in lifting Darline Graham to the Republican nomination for Senate in South Carolina.`\
+https://www.nytimes.com/2026/08/26/us/politics/trump-republicans-darline-graham-south-carolina.html
+
 **Their Children Want to Play Football. Parents Ask: Is It Worth the Risk?**\
 `Many families are engaged in tense debates after a new study found a high percentage of N.F.L. players had developed degenerative brain disease.`\
 https://www.nytimes.com/2026/08/26/us/parents-football-cte-decisions.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/08/26/technology/bill-gates-ai-risks.html
 **NYT Spelling Bee Answers for August 26, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/08/26/crosswords/spelling-bee-forum.html
-
-**14 Newborns Die in Hospital Fire in Pakistan’s Capital**\
-`The fire broke out on the third floor of Islamabad’s largest hospital.`\
-https://www.nytimes.com/2026/08/26/world/asia/pakistan-islamabad-hospital-fire.html
-
-**China critica las nuevas sanciones de Trump a Irán**\
-`El gobierno de Trump se arriesga a tener un enfrentamiento con Pekín mientras intenta cortar los salvavidas económicos de Irán sin alterar una frágil tregua entre EE. UU. y China.`\
-https://www.nytimes.com/es/2026/08/26/espanol/negocios/sanciones-iran-china.html
-
-**¿Estamos ante una nueva era de la lucha de clases?**\
-`La violencia de clase del pasado formaba parte de un conflicto más extendido. Hoy, la violencia es un fin en sí misma.`\
-https://www.nytimes.com/es/2026/08/26/espanol/opinion/nueva-lucha-de-clases.html
-
-**Conservative Media Personality Makes Runoff for Alaska Governor**\
-`Bernadette Wilson, who has appealed to other Republicans to consolidate around her party’s top finisher, will be one of four finalists on the ranked-choice ballot in November.`\
-https://www.nytimes.com/2026/08/26/us/politics/bernadette-wilson-alaska-governor.html
-
-**In Headache for Republicans, Second Dan Sullivan Advances in Alaska Senate Race**\
-`A long-shot candidate with the same name as the incumbent Republican senator will be on the ballot in November. That could be a problem for the G.O.P.`\
-https://www.nytimes.com/2026/08/26/us/politics/dan-sullivan-alaska-senate-midterms.html
 
