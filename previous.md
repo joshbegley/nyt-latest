@@ -1,3 +1,7 @@
+**Inflation Remains Elevated as Energy Costs Push on Prices**\
+`The Personal Consumption Expenditure index, the Federal Reserve’s preferred inflation tracker, held steady in July.`\
+https://www.nytimes.com/2026/08/26/business/economy/inflation-pce.html
+
 **Prince Harry and Meghan Set to Arrive in Britain, BBC Reports**\
 `The broadcaster said that the family were expected to land in the U.K. on Wednesday, without naming its sources.`\
 https://www.nytimes.com/2026/08/26/world/europe/prince-harry-meghan-uk-arrival.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/26/opinion/students-cheating-ai.html
 **A Designer Who Says Jewelry ‘Doesn’t Have to Be Expensive’**\
 `Nishita Assomull started her demi-fine line, L’Atelier 73, with the goal of creating beauty but not losing money.`\
 https://www.nytimes.com/2026/08/26/fashion/jewelry-nishita-assomull-london.html
-
-**A Hong Kong Entrepreneur Creates ‘Art to Wear’**\
-`Bertrand Mak has attracted such names as the master Swiss watchmaker Kari Voutilainen to his Sauvereign brand projects.`\
-https://www.nytimes.com/2026/08/26/fashion/jewelry-sauvereign-bertrand-mak-kari-voutilainen.html
 

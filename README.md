@@ -1,3 +1,7 @@
+**3 Teenagers Killed in Crash on Brooklyn Highway**\
+`The driver of an S.U.V. was killed, as were two passengers, overnight. Four other people, including the driver and passenger in the other vehicle, were injured.`\
+https://www.nytimes.com/2026/08/26/nyregion/nyc-belt-parkway-crash.html
+
 **Inflation Remains Elevated as Energy Costs Push on Prices**\
 `The Personal Consumption Expenditure index, the Federal Reserve’s preferred inflation tracker, held steady in July.`\
 https://www.nytimes.com/2026/08/26/business/economy/inflation-pce.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/26/books/new-books-september.html
 **The Only Way to Stop Students From Cheating**\
 `Blue-book exams are fine, but we need to address the issue at its root.`\
 https://www.nytimes.com/2026/08/26/opinion/students-cheating-ai.html
-
-**A Designer Who Says Jewelry ‘Doesn’t Have to Be Expensive’**\
-`Nishita Assomull started her demi-fine line, L’Atelier 73, with the goal of creating beauty but not losing money.`\
-https://www.nytimes.com/2026/08/26/fashion/jewelry-nishita-assomull-london.html
 

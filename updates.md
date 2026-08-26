@@ -1,3 +1,7 @@
+**Inflation Remains Elevated as Energy Costs Push on Prices**\
+`The Personal Consumption Expenditure index, the Federal Reserve’s preferred inflation tracker, held steady in July.`\
+https://www.nytimes.com/2026/08/26/business/economy/inflation-pce.html
+
 **Live Updates: Hundreds Missing as Deadly Floods Sweep Away Villages in Nepal**\
 `A wall of water crashed through a Himalayan river valley shared between Nepal and the Chinese territory of Tibet, destroying settlements and killing at least eight people. Many of the missing were foreign tourists.`\
 https://www.nytimes.com/live/2026/08/26/world/nepal-floods
