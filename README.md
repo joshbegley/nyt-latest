@@ -1,3 +1,7 @@
+**Tiny Love Stories: ‘I Believed Him for Over a Year’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/08/26/style/tiny-modern-love-stories-i-believed-him-for-over-a-year.html
+
 **Trump’s Primary Endorsement Strategy Has Picked Winners and Safe Bets**\
 `Of the hundreds of Republicans President Trump has endorsed this cycle, an overwhelming majority have coasted to victory. However, many are safe bets.`\
 https://www.nytimes.com/interactive/2026/08/26/us/politics/trump-primary-midterms-endorsements.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/08/26/theater/rupert-grint-harry-potter-broadway.ht
 **Meta to Pay Up to $17.1 Billion in Landmark Settlement Over Social Media Addiction Claims**\
 `The social media giant settled with 47 states, the District of Columbia and U.S. territories, and agreed to make major changes to its products over claims its platforms endangered children.`\
 https://www.nytimes.com/2026/08/26/technology/meta-settlement-social-media-addiction-lawsuit.html
-
-**I’m Already Dreading My In-Laws’ Comments on My Pregnancy. Help!**\
-`A reader worries that her father-in-law’s mansplaining and her mother-in-law’s anxiety will crank into overdrive once she’s carrying their grandchild.`\
-https://www.nytimes.com/2026/08/26/style/in-laws-pregnancy-commentary.html
 
 **Live Updates: At Least 98 Killed and Hundreds Missing as Floods Sweep Away Villages in Nepal**\
 `(No description)`\

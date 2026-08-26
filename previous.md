@@ -1,3 +1,11 @@
+**Trump’s Primary Endorsement Strategy Has Picked Winners and Safe Bets**\
+`Of the hundreds of Republicans President Trump has endorsed this cycle, an overwhelming majority have coasted to victory. However, many are safe bets.`\
+https://www.nytimes.com/interactive/2026/08/26/us/politics/trump-primary-midterms-endorsements.html
+
+**¿Qué es la capacidad intrínseca, un término clave para la longevidad?**\
+`La capacidad intrínseca se está convirtiendo en la forma preferida de medir y evaluar el envejecimiento humano.`\
+https://www.nytimes.com/es/2026/08/26/espanol/longevidad-envejecimiento-capacidad-intrinseca-que-es.html
+
 **Praise for Dolly Parton, ‘a National Treasure’**\
 `Readers react to the death of Dolly Parton’s music, philanthropy and the joy she brought to millions. Also: Moms love Spider-Man, too; reading with others.`\
 https://www.nytimes.com/2026/08/26/opinion/dolly-parton-death-praise.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/08/26/technology/meta-settlement-social-media-addic
 **I’m Already Dreading My In-Laws’ Comments on My Pregnancy. Help!**\
 `A reader worries that her father-in-law’s mansplaining and her mother-in-law’s anxiety will crank into overdrive once she’s carrying their grandchild.`\
 https://www.nytimes.com/2026/08/26/style/in-laws-pregnancy-commentary.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/world/asia/100000011113911/26vid-nepal-cctv-short-70271.html
-
-**Masked Man Accused of Harassing Philadelphians Is Arrested in Las Vegas**\
-`Zymire Hughes scared more than a dozen people while wearing a Chucky-style mask, the authorities said. He is being held in jail while awaiting extradition to Pennsylvania.`\
-https://www.nytimes.com/2026/08/26/us/man-arrested-chucky-mask-philadelphia-las-vegas.html
 
 **Live Updates: At Least 98 Killed and Hundreds Missing as Floods Sweep Away Villages in Nepal**\
 `(No description)`\

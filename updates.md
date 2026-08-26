@@ -1,3 +1,11 @@
+**Trump’s Primary Endorsement Strategy Has Picked Winners and Safe Bets**\
+`Of the hundreds of Republicans President Trump has endorsed this cycle, an overwhelming majority have coasted to victory. However, many are safe bets.`\
+https://www.nytimes.com/interactive/2026/08/26/us/politics/trump-primary-midterms-endorsements.html
+
+**¿Qué es la capacidad intrínseca, un término clave para la longevidad?**\
+`La capacidad intrínseca se está convirtiendo en la forma preferida de medir y evaluar el envejecimiento humano.`\
+https://www.nytimes.com/es/2026/08/26/espanol/longevidad-envejecimiento-capacidad-intrinseca-que-es.html
+
 **Praise for Dolly Parton, ‘a National Treasure’**\
 `Readers react to the death of Dolly Parton’s music, philanthropy and the joy she brought to millions. Also: Moms love Spider-Man, too; reading with others.`\
 https://www.nytimes.com/2026/08/26/opinion/dolly-parton-death-praise.html
