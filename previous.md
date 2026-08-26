@@ -1,3 +1,7 @@
+**Maryland Judge Blocks Democratic Redistricting Measure**\
+`A judge found that Democratic lawmakers had not followed proper procedures in passing a redistricting amendment, but the state Supreme Court will have the final say.`\
+https://www.nytimes.com/2026/08/26/us/maryland-redistricting-constitutional-amendment.html
+
 **How Darline Graham’s Politics Compare With Her Brother’s as She Runs for Senate**\
 `Senator Darline Graham has spoken far more about her desire to support President Trump’s agenda than she has talked about her brother’s political goals — or her own.`\
 https://www.nytimes.com/2026/08/26/us/politics/darline-lindsey-graham-political-views.html
@@ -67,7 +71,7 @@ https://www.nytimes.com/interactive/2026/08/26/us/politics/trump-primary-midterm
 https://www.nytimes.com/es/2026/08/26/espanol/longevidad-envejecimiento-capacidad-intrinseca-que-es.html
 
 **Praise for Dolly Parton, ‘a National Treasure’**\
-`Readers react to the death of Dolly Parton’s music, philanthropy and the joy she brought to millions. Also: Moms love Spider-Man, too; reading with others.`\
+`Readers react to the death of Dolly Parton, and celebrate her music, philanthropy and the joy she brought to millions. Also: Moms love Spider-Man, too; the benefits of reading with others.`\
 https://www.nytimes.com/2026/08/26/opinion/dolly-parton-death-praise.html
 
 **Muere Tim Curry, que interpretó a Pennywise en ‘It’**\
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/08/26/science/pancreatic-cancer-daraxonrasib-approv
 **Meet Dean Roy, the 15-Year-Old Running for Vermont Governor and Ready for ‘Impact’**\
 `Dean Roy, 15, will appear on the ballot in November as a third-party candidate. He said his generation’s concerns, like affordability and climate change, have been ignored for too long.`\
 https://www.nytimes.com/2026/08/26/us/politics/dean-roy-vermont-governor-election.html
-
-**El precio del diésel se acerca a un máximo histórico**\
-`El combustible, utilizado en maquinaria agrícola, camiones y otros equipos pesados, ha aumentado su costo debido a la guerra en Irán y a los ataques ucranianos contra las refinerías rusas.`\
-https://www.nytimes.com/es/2026/08/26/espanol/negocios/combustible-diesel-precio-aumento.html
 

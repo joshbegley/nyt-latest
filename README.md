@@ -1,3 +1,7 @@
+**Army Awards $2.2 Billion for ‘Microreactors’ On U.S. Bases**\
+`The move is part of the Trump administration’s efforts to spur the country’s largest expansion of nuclear power in more than three decades.`\
+https://www.nytimes.com/2026/08/26/climate/army-miniature-nuclear-reactors.html
+
 **Maryland Judge Blocks Democratic Redistricting Measure**\
 `A judge found that Democratic lawmakers had not followed proper procedures in passing a redistricting amendment, but the state Supreme Court will have the final say.`\
 https://www.nytimes.com/2026/08/26/us/maryland-redistricting-constitutional-amendment.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/08/26/us/hawk-fire-reno-nevada.html
 **F.D.A. Approves the Drug Daraxonrasib That’s Poised to Transform Pancreatic Cancer**\
 `In a key clinical trial, patients who got the pill, daraxonrasib, lived twice as long as those who got chemotherapy.`\
 https://www.nytimes.com/2026/08/26/science/pancreatic-cancer-daraxonrasib-approval.html
-
-**Meet Dean Roy, the 15-Year-Old Running for Vermont Governor and Ready for ‘Impact’**\
-`Dean Roy, 15, will appear on the ballot in November as a third-party candidate. He said his generation’s concerns, like affordability and climate change, have been ignored for too long.`\
-https://www.nytimes.com/2026/08/26/us/politics/dean-roy-vermont-governor-election.html
 

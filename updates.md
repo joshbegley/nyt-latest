@@ -1,3 +1,11 @@
+**Maryland Judge Blocks Democratic Redistricting Measure**\
+`A judge found that Democratic lawmakers had not followed proper procedures in passing a redistricting amendment, but the state Supreme Court will have the final say.`\
+https://www.nytimes.com/2026/08/26/us/maryland-redistricting-constitutional-amendment.html
+
+**Praise for Dolly Parton, ‘a National Treasure’**\
+`Readers react to the death of Dolly Parton, and celebrate her music, philanthropy and the joy she brought to millions. Also: Moms love Spider-Man, too; the benefits of reading with others.`\
+https://www.nytimes.com/2026/08/26/opinion/dolly-parton-death-praise.html
+
 **How Darline Graham’s Politics Compare With Her Brother’s as She Runs for Senate**\
 `Senator Darline Graham has spoken far more about her desire to support President Trump’s agenda than she has talked about her brother’s political goals — or her own.`\
 https://www.nytimes.com/2026/08/26/us/politics/darline-lindsey-graham-political-views.html
