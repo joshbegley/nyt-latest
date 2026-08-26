@@ -1,3 +1,7 @@
+**Canadians Stand Their Ground Amid New Trump Tariffs and Expanding U.S.-Canada Trade War**\
+`Business owners are preparing for financial pain after the latest U.S.-Canada trade talks collapsed. But many Canadians are embracing a show of resistance.`\
+https://www.nytimes.com/2026/08/26/world/canada/carney-canada-trump-tariffs-retaliate.html
+
 **Rupert Grint Will Join ‘Harry Potter’ Again, This Time on Broadway**\
 `The British actor, who played Ron Weasley in all eight films, will play the same character, this time as an adult, in “Harry Potter and the Cursed Child.”`\
 https://www.nytimes.com/2026/08/26/theater/rupert-grint-harry-potter-broadway.html
