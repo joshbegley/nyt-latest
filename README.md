@@ -78,8 +78,8 @@ https://www.nytimes.com/2026/08/26/world/asia/over-100-indian-pilgrims-are-among
 `No está claro en qué momento recibió el diagnóstico de cáncer. Hace poco más de una semana, faltó a una aparición programada en Dollywood.`\
 https://www.nytimes.com/es/2026/08/26/espanol/cultura/dolly-parton-de-que-murio-cancer.html
 
-**Judges Reject Plea to Toss Federal Charges Against Democratic Lawmaker**\
-`An appeals panel ruled against Representative LaMonica McIver, a Democrat accused by the Justice Department of assaulting immigration agents outside Delaney Hall. No one was injured in the clash.`\
+**Judge Rejects Plea to Toss Federal Charges Against Rep. LaMonica McIver**\
+`An appeals panel ruled against Representative LaMonica McIver, who is accused by the Justice Department of assaulting immigration agents outside a migrant detention center in New Jersey.`\
 https://www.nytimes.com/2026/08/26/nyregion/mciver-trump-delaney-hall-decision.html
 
 **Why Dolly Parton Wouldn’t Let Elvis Presley Record ‘I Will Always Love You’**\
