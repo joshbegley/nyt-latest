@@ -1,3 +1,11 @@
+**I’m Already Dreading My In-Laws’ Comments on My Pregnancy. Help!**\
+`A reader worries that her father-in-law’s mansplaining and her mother-in-law’s anxiety will crank into overdrive once she’s carrying their grandchild.`\
+https://www.nytimes.com/2026/08/26/style/in-laws-pregnancy-commentary.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/asia/100000011113911/26vid-nepal-cctv-short-70271.html
+
 **Masked Man Accused of Harassing Philadelphians Is Arrested in Las Vegas**\
 `Zymire Hughes scared more than a dozen people while wearing a Chucky-style mask, the authorities said. He is being held in jail while awaiting extradition to Pennsylvania.`\
 https://www.nytimes.com/2026/08/26/us/man-arrested-chucky-mask-philadelphia-las-vegas.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/26/arts/design/paul-williams-architect.html
 **Word of the Day: inveigle**\
 `This word has appeared in six articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/08/26/learning/word-of-the-day-inveigle.html
-
-**Ancient Lebanese Treasures Take a Journey From Modern-Day Conflict**\
-`Artifacts from Byblos have been on display in Paris in a show that highlights how modern-day conflict in the Middle East imperils the cultural heritage of the region.`\
-https://www.nytimes.com/2026/08/26/world/middleeast/lebanon-byblos-israel.html
-
-**How To Throw A Sex Party**\
-`Jess Zakira Wise wanted a place for tender, fun, and curious group sex. When she couldn’t find it, she created it herself.`\
-https://www.nytimes.com/2026/08/26/podcasts/modern-love-how-to-host-an-orgy.html
 

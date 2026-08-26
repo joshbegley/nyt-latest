@@ -1,3 +1,19 @@
+**Masked Man Accused of Harassing Philadelphians Is Arrested in Las Vegas**\
+`Zymire Hughes scared more than a dozen people while wearing a Chucky-style mask, the authorities said. He is being held in jail while awaiting extradition to Pennsylvania.`\
+https://www.nytimes.com/2026/08/26/us/man-arrested-chucky-mask-philadelphia-las-vegas.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/asia/100000011113845/26visualUploader-44227.html
+
+**PCE Index Shows Inflation Remained Elevated in July Amid High Energy Costs**\
+`The Personal Consumption Expenditure index, the Federal Reserve’s preferred inflation tracker, held steady in July.`\
+https://www.nytimes.com/2026/08/26/business/economy/inflation-pce.html
+
+**Prince Harry and Meghan Arrive in Britain, BBC Reports**\
+`The broadcaster said that the family had landed in the country on Wednesday, without citing sources.`\
+https://www.nytimes.com/2026/08/26/world/europe/prince-harry-meghan-uk-arrival.html
+
 **3 Teenagers Killed in Crash on Brooklyn Highway**\
 `The driver of an S.U.V. was killed, as were two passengers, overnight. Four other people, including the driver and passenger in the other vehicle, were injured.`\
 https://www.nytimes.com/2026/08/26/nyregion/nyc-belt-parkway-crash.html
