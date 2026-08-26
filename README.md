@@ -138,7 +138,7 @@ https://www.nytimes.com/2026/08/26/business/kevin-warsh-federal-reserve-jackson.
 `This week’s properties are in Providence, R.I.; Tulsa, Okla.; and Salt Lake City.`\
 https://www.nytimes.com/2026/08/26/realestate/homes-for-sale-providence-tulsa-salt-lake-city.html
 
-**Canadians Stand Their Ground as Trump’s New Tariffs Endanger Jobs**\
+**Canadians Stand Their Ground Amid New Trump Tariffs and Expanding U.S.-Canada Trade War**\
 `Business owners are preparing for financial pain after the latest U.S.-Canada trade talks collapsed. But many Canadians are embracing a show of resistance.`\
 https://www.nytimes.com/2026/08/26/world/canada/carney-canada-trump-tariffs-retaliate.html
 
