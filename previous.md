@@ -1,3 +1,7 @@
+**Eight Dead, Others Missing as Floods Sweep Away Villages in Nepal**\
+`A wall of water swept down a Himalayan river valley shared between Nepal and the Chinese territory of Tibet.`\
+https://www.nytimes.com/2026/08/26/world/asia/nepal-floods-tibet-missing.html
+
 **Pacientes de EE. UU. encuentran riesgos en clínicas de psicodélicos de América Latina**\
 `En medio del creciente interés por los tratamientos con sustancias psicodélicas, los estadounidenses viajan al extranjero, a menudo a Latinoamérica, en busca de terapias que alteran la mente y que siguen siendo ilegales en EE. UU.`\
 https://www.nytimes.com/es/2026/08/26/espanol/ciencia-y-tecnologia/tratamiento-psicodelico-ibogaina-mexico.html
@@ -76,7 +80,7 @@ https://www.nytimes.com/2026/08/26/arts/television/ted-lasso-season-4-episode-4-
 
 **Soaring Diesel Prices Are Helping Oil Companies and Hurting Consumers**\
 `The cost of the fuel, used in farm machinery, trucks and other heavy equipment, has surged because of the war in Iran and Ukrainian attacks on Russian refineries.`\
-https://www.nytimes.com/2026/08/26/business/energy-environment/soaring-diesel-prices-are-helping-oil-companies-and-hurting-consumers.html
+https://www.nytimes.com/2026/08/26/business/energy-environment/diesel-prices-iran-war-oil.html
 
 **Under Threat, Saudi Arabia Reroutes Oil Exports Yet Again**\
 `Forced away from the Strait of Hormuz in the Persian Gulf, the Saudis turned to the Red Sea. Now they are relying on a less dangerous but more complicated detour via the Suez Canal.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/26/us/nfl-cte.html
 **Darline Graham Wins Republican Senate Nomination in South Carolina**\
 `Senator Darline Graham, who received President Trump’s backing, defeated Representative Ralph Norman, a five-term congressman, in the Republican primary runoff in South Carolina.`\
 https://www.nytimes.com/video/us/politics/100000011113537/south-carolina-senate-darline-graham.html
-
-**Bill Gates Is Warning That A.I. Is More Dangerous Than Big Tech Will Admit**\
-`In an hourlong interview, he said his industry was downplaying the risks, which he believes include mass unemployment and bioterrorism.`\
-https://www.nytimes.com/2026/08/26/technology/bill-gates-ai-risks.html
 

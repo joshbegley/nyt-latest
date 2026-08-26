@@ -1,3 +1,11 @@
+**Eight Dead, Others Missing as Floods Sweep Away Villages in Nepal**\
+`A wall of water swept down a Himalayan river valley shared between Nepal and the Chinese territory of Tibet.`\
+https://www.nytimes.com/2026/08/26/world/asia/nepal-floods-tibet-missing.html
+
+**Soaring Diesel Prices Are Helping Oil Companies and Hurting Consumers**\
+`The cost of the fuel, used in farm machinery, trucks and other heavy equipment, has surged because of the war in Iran and Ukrainian attacks on Russian refineries.`\
+https://www.nytimes.com/2026/08/26/business/energy-environment/diesel-prices-iran-war-oil.html
+
 **Pacientes de EE. UU. encuentran riesgos en clínicas de psicodélicos de América Latina**\
 `En medio del creciente interés por los tratamientos con sustancias psicodélicas, los estadounidenses viajan al extranjero, a menudo a Latinoamérica, en busca de terapias que alteran la mente y que siguen siendo ilegales en EE. UU.`\
 https://www.nytimes.com/es/2026/08/26/espanol/ciencia-y-tecnologia/tratamiento-psicodelico-ibogaina-mexico.html
