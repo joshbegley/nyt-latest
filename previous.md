@@ -1,3 +1,7 @@
+**Reno Has Long Known of Wildfire Risk. The Hawk Fire Proved It’s Real.**\
+`The Sierra Nevada region is a hot spot for wildfires and some see the Hawk fire as providing an impetus for hardening communities against catastrophe.`\
+https://www.nytimes.com/2026/08/26/us/hawk-fire-reno-nevada.html
+
 **F.D.A. Approves the Drug Daraxonrasib That’s Poised to Transform Pancreatic Cancer**\
 `In a key clinical trial, patients who got the pill, daraxonrasib, lived twice as long as those who got chemotherapy.`\
 https://www.nytimes.com/2026/08/26/science/pancreatic-cancer-daraxonrasib-approval.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/08/26/opinion/aoc-woke-1.html
 **‘You’re Ruining My Dreams’: C.T.E. Study Adds to Family Tension Over Football**\
 `Many families are engaged in tense debates after a new study found a high percentage of N.F.L. players had developed degenerative brain disease.`\
 https://www.nytimes.com/2026/08/26/us/parents-football-cte-decisions.html
-
-**Cuando un amigo se convierte en cuidador**\
-`Las personas que no forman parte de la familia pueden asumir funciones de ayuda cuando los adultos mayores necesitan asistencia.`\
-https://www.nytimes.com/es/2026/08/26/espanol/cuidadores-amistad.html
 

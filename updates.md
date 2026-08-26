@@ -1,3 +1,7 @@
+**Reno Has Long Known of Wildfire Risk. The Hawk Fire Proved It’s Real.**\
+`The Sierra Nevada region is a hot spot for wildfires and some see the Hawk fire as providing an impetus for hardening communities against catastrophe.`\
+https://www.nytimes.com/2026/08/26/us/hawk-fire-reno-nevada.html
+
 **Deadly Nepal Flood May Have Been Caused by ‘Ice Avalanche,’ Scientists Say**\
 `An initial assessment of satellite imagery suggests an “ice avalanche” from a high-altitude glacier sent a giant cascade into the valley below.`\
 https://www.nytimes.com/2026/08/26/world/asia/nepal-flood-glacier-ice-avalanche.html

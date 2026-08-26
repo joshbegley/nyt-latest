@@ -1,3 +1,19 @@
+**Read the Decision From the Federal Appeals Panel**\
+`The panel ruled that the Constitution does not bar the Trump administration from bringing an assault charge against a Democratic member of Congress.`\
+https://www.nytimes.com/interactive/2026/08/26/nyregion/mciver-trump-delaney-third-circuit-decision.html
+
+**Tim Curry, Star of ‘Rocky Horror’ and Much More, Dies at 80**\
+`The actor’s gift for garish eccentricity informed a variety of performances, most famously as the outlandish cross-dressing mad scientist Frank-N-Furter.`\
+https://www.nytimes.com/2026/08/26/movies/tim-curry-dead.html
+
+**How Trump Folded the Graham Family Dynasty Into His Own**\
+`The president came to see Lindsey and Darline Graham as part of his own political legacy.`\
+https://www.nytimes.com/2026/08/26/us/politics/trump-lindsey-graham-darline-graham.html
+
+**Dolly Parton Outsmarted Every Dumb-Blonde Joke**\
+`Nothing a critic or comic said about Parton — and they said plenty — compared with what she said about herself. She stepped on their punchlines and took away their power.`\
+https://www.nytimes.com/2026/08/26/style/dolly-parton-jokes-humor-image.html
+
 **Reno Has Long Known of Wildfire Risk. The Hawk Fire Proved It’s Real.**\
 `The Sierra Nevada region is a hot spot for wildfires and some see the Hawk fire as providing an impetus for hardening communities against catastrophe.`\
 https://www.nytimes.com/2026/08/26/us/hawk-fire-reno-nevada.html
@@ -173,20 +189,4 @@ https://www.nytimes.com/2026/08/26/opinion/ai-norway-schools.html
 **5 capacidades alarmantes que la IA demostró en un ataque autónomo**\
 `Cuando los agentes de OpenAI se salieron de control en julio, demostraron un ingenio y una determinación superiores a lo que los expertos anticipaban. Es un peligroso presagio de lo que estos bots podrían hacer en el futuro.`\
 https://www.nytimes.com/es/2026/08/26/espanol/ciencia-y-tecnologia/alarma-ataque-inteligencia-artifical.html
-
-**It Was Inevitable That Trump Would Come to This**\
-`Lèse-majesté, American-style.`\
-https://www.nytimes.com/2026/08/26/opinion/trump-king-canada-trade-war.html
-
-**Even as Trump’s Standing Slips, He Slingshots Darline Graham to Victory**\
-`After facing low approval ratings and endorsement setbacks, the president made a show of force in lifting Darline Graham to the Republican nomination for Senate in South Carolina.`\
-https://www.nytimes.com/2026/08/26/us/politics/trump-republicans-darline-graham-south-carolina.html
-
-**A Question for the Formerly Woke**\
-`Before a Woke 2 takes over, let the proponents of its predecessor explain how and why they’re moving on.`\
-https://www.nytimes.com/2026/08/26/opinion/aoc-woke-1.html
-
-**‘You’re Ruining My Dreams’: C.T.E. Study Adds to Family Tension Over Football**\
-`Many families are engaged in tense debates after a new study found a high percentage of N.F.L. players had developed degenerative brain disease.`\
-https://www.nytimes.com/2026/08/26/us/parents-football-cte-decisions.html
 
