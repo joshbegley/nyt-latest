@@ -1,3 +1,7 @@
+**Will Dolly Parton’s Imagination Library Survive Without Her?**\
+`The crown jewel of the singer’s philanthropic efforts has handed out hundreds of millions of books to children over the past 31 years. But it isn’t immune to funding cuts.`\
+https://www.nytimes.com/2026/08/26/books/dolly-parton-imagination-library.html
+
 **Armed Man Arrested Near Trump Golf Course Is Sent to Mental Health Court**\
 `A California judge suspended criminal proceedings against the man, a former Marine, who had been arrested days before the president was set to visit for a fund-raiser.`\
 https://www.nytimes.com/2026/08/26/us/trump-golf-course-man-gun-arrest.html

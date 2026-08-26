@@ -1,3 +1,7 @@
+**Will Dolly Parton’s Imagination Library Survive Without Her?**\
+`The crown jewel of the singer’s philanthropic efforts has handed out hundreds of millions of books to children over the past 31 years. But it isn’t immune to funding cuts.`\
+https://www.nytimes.com/2026/08/26/books/dolly-parton-imagination-library.html
+
 **Armed Man Arrested Near Trump Golf Course Is Sent to Mental Health Court**\
 `A California judge suspended criminal proceedings against the man, a former Marine, who had been arrested days before the president was set to visit for a fund-raiser.`\
 https://www.nytimes.com/2026/08/26/us/trump-golf-course-man-gun-arrest.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/26/us/politics/trump-lindsey-graham-darline-grah
 **Dolly Parton Outsmarted Every Dumb-Blonde Joke**\
 `Nothing a critic or comic said about Parton — and they said plenty — compared with what she said about herself. She stepped on their punchlines and took away their power.`\
 https://www.nytimes.com/2026/08/26/style/dolly-parton-jokes-humor-image.html
-
-**Reno Has Long Known of Wildfire Risk. The Hawk Fire Proved It’s Real.**\
-`The Sierra Nevada region is a hot spot for wildfires and some see the Hawk fire as providing an impetus for hardening communities against catastrophe.`\
-https://www.nytimes.com/2026/08/26/us/hawk-fire-reno-nevada.html
 
