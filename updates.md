@@ -1,3 +1,7 @@
+**He Thought He Destroyed a Flock Camera, but It Was a Decoy, Police Say**\
+`A Florida man is facing three felony charges over the Aug. 20 vandalism of a plastic reproduction of one of the automated license plate readers, the authorities said.`\
+https://www.nytimes.com/2026/08/26/us/lock-camera-decoy-vandalism-arrest-florida.html
+
 **Administration Lawyer Chosen to Lead Panel Considering Trump Construction Projects**\
 `Mark Paoletta, also a close associate of Justice Clarence Thomas’s, has been named by President Trump to lead the National Capital Planning Commission.`\
 https://www.nytimes.com/2026/08/26/us/politics/paoletta-lawyer-ncpc.html

@@ -1,3 +1,7 @@
+**He Thought He Destroyed a Flock Camera, but It Was a Decoy, Police Say**\
+`A Florida man is facing three felony charges over the Aug. 20 vandalism of a plastic reproduction of one of the automated license plate readers, the authorities said.`\
+https://www.nytimes.com/2026/08/26/us/lock-camera-decoy-vandalism-arrest-florida.html
+
 **Administration Lawyer Chosen to Lead Panel Considering Trump Construction Projects**\
 `Mark Paoletta, also a close associate of Justice Clarence Thomas’s, has been named by President Trump to lead the National Capital Planning Commission.`\
 https://www.nytimes.com/2026/08/26/us/politics/paoletta-lawyer-ncpc.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/26/style/tiny-modern-love-stories-i-believed-him
 **Trump’s Primary Endorsement Strategy Has Picked Winners and Safe Bets**\
 `Of the hundreds of Republicans President Trump has endorsed this cycle, an overwhelming majority have coasted to victory. However, many are safe bets.`\
 https://www.nytimes.com/interactive/2026/08/26/us/politics/trump-primary-midterms-endorsements.html
-
-**¿Qué es la capacidad intrínseca, un término clave para la longevidad?**\
-`La capacidad intrínseca se está convirtiendo en la forma preferida de medir y evaluar el envejecimiento humano.`\
-https://www.nytimes.com/es/2026/08/26/espanol/longevidad-envejecimiento-capacidad-intrinseca-que-es.html
 
