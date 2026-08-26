@@ -1,3 +1,7 @@
+**Mike Mazzei, Backed by Trump, Wins Oklahoma Primary for Governor**\
+`Mike Mazzei, a former state senator who lent more than $11 million of his own money to his campaign, narrowly defeated the state’s attorney general, Gentner Drummond.`\
+https://www.nytimes.com/2026/08/25/us/elections/oklahoma-governor-drummond-mazzei.html
+
 **Graham, and Trump, Triumph: Six Takeaways From South Carolina’s Senate Runoff**\
 `President Trump went all in for Senator Darline Graham in a primary runoff on Tuesday. It worked, preserving his undefeated streak in Republican Senate primaries this year.`\
 https://www.nytimes.com/2026/08/25/us/politics/election-takeaways-south-carolina-oklahoma.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/08/25/arts/design/titanic-artifacts-sale-halted-jud
 **Otra masacre en Haití deja decenas de muertos, dicen las autoridades**\
 `Las pandillas atacaron una comunidad en las afueras de la capital, lo que generó temor por cuál podría ser su próximo objetivo. El alcalde dijo que habían muerto al menos 25 personas, pero la ONU elevó la cifra de muertos a 47.`\
 https://www.nytimes.com/es/2026/08/25/espanol/america-latina/haiti-pandillas-muertos.html
-
-**Tomato and Cottage Cheese Salad**\
-`In this departure from a Caprese salad, slices of heirloom tomato are topped with dollops of cottage cheese and layered with red onions, olive oil and tender herbs, plus a savory spice blend inspired by everything bagels.`\
-https://www.nytimes.com/video/dining/100000011112655/tomato-and-cottage-cheese-salad.html
 
 **Election Live Updates: Darline Graham, With Push From Trump, Wins Senate Primary in South Carolina**\
 `President Trump helped lift Ms. Graham from relative obscurity after the death of her brother, Lindsey Graham, six weeks ago. Voters trusted Mr. Trump’s endorsement, overlooking her inexperience.`\
