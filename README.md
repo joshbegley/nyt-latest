@@ -162,8 +162,8 @@ https://www.nytimes.com/interactive/2026/08/25/us/elections/results-oklahoma-ins
 `Get live results and maps from the 2026 Georgia special runoff election.`\
 https://www.nytimes.com/interactive/2026/08/25/us/elections/results-georgia-us-house-13-special-runoff.html
 
-**Election Live Updates: Counting Underway in South Carolina, Where Trump Backed Lindsey Graham’s Sister**\
-`Darline Graham, the sister of the late Senator Graham, had President Trump’s support in her race against Ralph Norman for the South Carolina seat. Oklahoma is also holding primary runoffs.`\
+**Election Live Updates: Tight Race Unfolds in South Carolina, Where Trump Backed Lindsey Graham’s Sister**\
+`Darline Graham, the sister of the late Senator Graham, had President Trump’s support in her race against Ralph Norman for the South Carolina seat. Votes are also being counted in Oklahoma’s primary runoffs.`\
 https://www.nytimes.com/live/2026/08/25/us/elections-south-carolina-oklahoma
 
 **MAHA Moms Take On Coal**\
