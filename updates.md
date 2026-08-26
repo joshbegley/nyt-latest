@@ -1,3 +1,7 @@
+**What Does $17.1 Billion Mean for Meta?**\
+`The Silicon Valley company agreed to pay up to $17.1 billion in penalties as part of a landmark settlement with states over social media addiction claims.`\
+https://www.nytimes.com/2026/08/26/technology/meta-settlement-dollars-amount.html
+
 **After Meta Settlement, Here’s What Is Changing For Teens on Instagram and Facebook**\
 `Meta agreed to set more time limits and enhance protections in its platforms for young users, but was short on some specifics.`\
 https://www.nytimes.com/2026/08/26/technology/meta-instagram-facebook-settlement.html
