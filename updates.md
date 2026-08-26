@@ -1,3 +1,7 @@
+**Live Updates: Hundreds Missing as Deadly Floods Sweep Away Villages in Nepal**\
+`A wall of water crashed through a Himalayan river valley shared between Nepal and the Chinese territory of Tibet, destroying settlements and killing at least 22 people. Many of the missing were foreign tourists.`\
+https://www.nytimes.com/live/2026/08/26/world/nepal-floods
+
 **I’m Already Dreading My In-Laws’ Comments on My Pregnancy. Help!**\
 `A reader worries that her father-in-law’s mansplaining and her mother-in-law’s anxiety will crank into overdrive once she’s carrying their grandchild.`\
 https://www.nytimes.com/2026/08/26/style/in-laws-pregnancy-commentary.html
