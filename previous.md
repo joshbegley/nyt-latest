@@ -36,7 +36,7 @@ https://www.nytimes.com/2026/08/25/theater/paranormal-activity-review-broadway.h
 
 **5 Things to Know About Mike Mazzei, Oklahoma G.O.P. Candidate for Governor**\
 `The former state senator, who was endorsed by President Trump, spent millions of dollars of his own money on the race.`\
-https://www.nytimes.com/2026/08/25/us/politics/who-is-mark-mazzei.html
+https://www.nytimes.com/2026/08/25/us/politics/who-is-mike-mazzei.html
 
 **5 Things to Know About Gentner Drummond, Oklahoma G.O.P. Candidate for Governor**\
 `Mr. Drummond, the state attorney general, faces an opponent backed by President Trump and Gov. Kevin Stitt. The campaign has highlighted his independent streak.`\

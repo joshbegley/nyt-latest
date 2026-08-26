@@ -1,3 +1,7 @@
+**5 Things to Know About Mike Mazzei, Oklahoma G.O.P. Candidate for Governor**\
+`The former state senator, who was endorsed by President Trump, spent millions of dollars of his own money on the race.`\
+https://www.nytimes.com/2026/08/25/us/politics/who-is-mike-mazzei.html
+
 **Darline Graham, With Push From Trump, Wins Senate Primary in South Carolina**\
 `President Trump helped lift Ms. Graham from relative obscurity after the death of her brother, Lindsey Graham, six weeks ago. In Oklahoma, another Trump-backed candidate, Mike Mazzei, won the nomination for governor.`\
 https://www.nytimes.com/live/2026/08/25/us/elections-south-carolina-oklahoma
