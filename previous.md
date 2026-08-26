@@ -1,5 +1,5 @@
 **Country Music Superstar Dolly Parton Dies at 80**\
-`Dolly Parton, the country music superstar who rose from poverty to become a top-selling singer, songwriter and entrepreneur, died in Nashville on Tuesday.`\
+`Dolly Parton, the country music superstar who rose from poverty to become a top-selling singer, songwriter and entrepreneur, died of cancer in Nashville on Tuesday.`\
 https://www.nytimes.com/video/embedded/obituaries/100000011112476/country-music-superstar-dolly-parton-dies.html
 
 **Newsom Lists Sacramento Home for $7.5 Million as He Prepares to Leave Town**\
