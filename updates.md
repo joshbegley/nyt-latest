@@ -1,3 +1,11 @@
+**States File Fresh Challenge to Trump’s Mail-In Voting Restrictions**\
+`A new lawsuit brought by a coalition of Democratic state attorneys general took aim at postal regulations designed to meet the president’s demands on voter verification.`\
+https://www.nytimes.com/2026/08/26/us/politics/states-lawsuit-mail-ballot-order.html
+
+**On Happiness, Politics, Language and the Universe: The Week 10 Winners of Our Summer Reading Contest**\
+`As our contest comes to a close, we honor a video and three essays, and hear reflections on this year’s submissions from our judges.`\
+https://www.nytimes.com/2026/08/26/learning/on-happiness-politics-language-and-the-universe-the-week-10-winners-of-our-summer-reading-contest.html
+
 **A Tax Program for Development in Chicago Left Poor Areas Behind, Study Says**\
 `New research suggests that TIF, a multibillion dollar tax program intended to revive the city’s blighted neighborhoods, has mostly benefited downtown areas.`\
 https://www.nytimes.com/2026/08/26/us/tif-chicago-study-tax-program-downtown.html
