@@ -1,3 +1,7 @@
+**Corrections: Aug. 25, 2026**\
+`Corrections that appeared in print on Tuesday, Aug. 25, 2026.`\
+https://www.nytimes.com/2026/08/25/pageoneplus/corrections-aug-25-2026.html
+
 **5 Things to Know About Mike Mazzei, Oklahoma G.O.P. Candidate for Governor**\
 `The former state senator, who was endorsed by President Trump, spent millions of dollars of his own money on the race.`\
 https://www.nytimes.com/2026/08/25/us/politics/who-is-mike-mazzei.html
