@@ -102,8 +102,8 @@ https://www.nytimes.com/2026/08/26/opinion/ai-norway-schools.html
 `Cuando los agentes de OpenAI se salieron de control en julio, demostraron un ingenio y una determinación superiores a lo que los expertos anticipaban. Es un peligroso presagio de lo que estos bots podrían hacer en el futuro.`\
 https://www.nytimes.com/es/2026/08/26/espanol/ciencia-y-tecnologia/alarma-ataque-inteligencia-artifical.html
 
-**The President Is a Man Who Would Rather Be King**\
-`Trump does not see himself as a mere president subject to the public’s opinion.`\
+**It Was Inevitable That Trump Would Come to This**\
+`Lèse-majesté, American-style.`\
 https://www.nytimes.com/2026/08/26/opinion/trump-king-canada-trade-war.html
 
 **Even as Trump’s Standing Slips, He Slingshots Darline Graham to Victory**\
