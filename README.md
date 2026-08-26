@@ -1,3 +1,7 @@
+**A Deadly Flood Tears Through Nepal and Tibet**\
+`An ice avalanche that started high in the Himalayas tumbled thousands of feet, releasing vast amounts of energy that pulverized the ice into a significant volume of flood water.`\
+https://www.nytimes.com/2026/08/26/world/asia/flood-nepal-tibet.html
+
 **After Wasp Attack, a Canadian Rock Climber Is Rescued by Helicopter**\
 `A 33-year-old woman was rescued along with her climbing partner on Tuesday after she was stung more than 100 times while hiking in the British Columbia backcountry north of Vancouver.`\
 https://www.nytimes.com/2026/08/26/world/canada/canada-hiker-wasp-stings-rescue.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/world/asia/100000011113816/14-newborns-die-in-paki
 **What to Know About Deadly Flash Floods in Nepal and Tibet**\
 `An avalanche may have caused an unusual flash flood without heavy rainfall, with hundreds of people unaccounted for in the path of destruction. Here’s what to know.`\
 https://www.nytimes.com/2026/08/26/world/asia/nepal-tibet-floods-wtk.html
-
-**Texas Law Targeting Drag Shows Is Struck Down Again by Judge**\
-`The judge’s message to people offended by drag performances was, “Just don’t go.” Attorney General Ken Paxton vowed to appeal again.`\
-https://www.nytimes.com/2026/08/26/us/drag-show-ban-texas-judge.html
 
