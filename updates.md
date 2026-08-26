@@ -1,3 +1,15 @@
+**I’m Already Dreading My In-Laws’ Comments on My Pregnancy. Help!**\
+`A reader worries that her father-in-law’s mansplaining and her mother-in-law’s anxiety will crank into overdrive once she’s carrying their grandchild.`\
+https://www.nytimes.com/2026/08/26/style/in-laws-pregnancy-commentary.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/asia/100000011113911/26vid-nepal-cctv-short-70271.html
+
+**It Was Inevitable That Trump Would Come to This**\
+`Lèse-majesté, American-style.`\
+https://www.nytimes.com/2026/08/26/opinion/trump-king-canada-trade-war.html
+
 **Masked Man Accused of Harassing Philadelphians Is Arrested in Las Vegas**\
 `Zymire Hughes scared more than a dozen people while wearing a Chucky-style mask, the authorities said. He is being held in jail while awaiting extradition to Pennsylvania.`\
 https://www.nytimes.com/2026/08/26/us/man-arrested-chucky-mask-philadelphia-las-vegas.html
