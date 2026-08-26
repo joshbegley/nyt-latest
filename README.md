@@ -34,7 +34,7 @@ https://www.nytimes.com/2026/08/26/us/politics/uss-abraham-lincoln-sailor-father
 `The two countries said they would create a temporary shipping lane and clear mines in the waterway. Global oil prices dipped after the joint announcement.`\
 https://www.nytimes.com/2026/08/26/world/middleeast/iran-oman-strait-hormuz.html
 
-**Live Updates: 8 Dead and Hundreds Feared Missing as Floods Sweep Away Villages in Nepal**\
+**Live Updates: 8 Dead and Hundreds Missing as Floods Sweep Away Villages in Nepal**\
 `A wall of water crashed through a Himalayan river valley shared between Nepal and the Chinese territory of Tibet, destroying settlements. Many of those reported missing were foreign tourists.`\
 https://www.nytimes.com/live/2026/08/26/world/nepal-floods
 
