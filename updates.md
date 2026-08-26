@@ -1,3 +1,7 @@
+**At Least 14 Newborns Die in Hospital Fire in Pakistan’s Capital**\
+`The fire broke out on the third floor of Islamabad’s largest hospital.`\
+https://www.nytimes.com/2026/08/26/world/asia/pakistan-islamabad-hospital-fire.html
+
 **China critica las nuevas sanciones de Trump a Irán**\
 `El gobierno de Trump se arriesga a tener un enfrentamiento con Pekín mientras intenta cortar los salvavidas económicos de Irán sin alterar una frágil tregua entre EE. UU. y China.`\
 https://www.nytimes.com/es/2026/08/26/espanol/negocios/sanciones-iran-china.html

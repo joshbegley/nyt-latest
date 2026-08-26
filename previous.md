@@ -1,3 +1,7 @@
+**At Least 14 Newborns Die in Hospital Fire in Pakistan’s Capital**\
+`The fire broke out on the third floor of Islamabad’s largest hospital.`\
+https://www.nytimes.com/2026/08/26/world/asia/pakistan-islamabad-hospital-fire.html
+
 **China critica las nuevas sanciones de Trump a Irán**\
 `El gobierno de Trump se arriesga a tener un enfrentamiento con Pekín mientras intenta cortar los salvavidas económicos de Irán sin alterar una frágil tregua entre EE. UU. y China.`\
 https://www.nytimes.com/es/2026/08/26/espanol/negocios/sanciones-iran-china.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/08/25/us/dolly-parton-polls-bipartisan.html
 **Len Brown, the Kidlike Creator of ‘Mars Attacks,’ Dies at 84**\
 `He brought a juvenile creative sensibility to the Topps Chewing Gum company, where he was able to unerringly predict what would appeal to adolescents.`\
 https://www.nytimes.com/2026/08/25/arts/len-brown-dead.html
-
-**In Canada and at Home, Deference to Trump Turns to Defiance on Tariffs and Other Issues**\
-`While the president remains the most dominant figure in the world, other leaders and institutions are pushing back more vigorously than at the beginning of his second term.`\
-https://www.nytimes.com/2026/08/25/us/politics/trump-polls-tariffs-carney.html
 
 **Darline Graham, With Push From Trump, Wins Senate Primary in South Carolina**\
 `President Trump helped lift Ms. Graham from relative obscurity after the death of her brother, Lindsey Graham, six weeks ago. In Oklahoma, another Trump-backed candidate, Mike Mazzei, won the nomination for governor.`\
