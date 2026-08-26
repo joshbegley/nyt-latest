@@ -1,3 +1,11 @@
+**Canadá responde e impone aranceles a cientos de productos de EE. UU.**\
+`La nueva medida alcanza unos 700 artículos, desde pescado y electrodomésticos hasta acero y aluminio, mientras Ottawa busca proteger a su industria frente a las decisiones de Washington.`\
+https://www.nytimes.com/es/2026/08/25/espanol/mundo/canada-impone-aranceles-productos-ee-uu.html
+
+**Dolly Parton Is Mourned by Beyoncé, Reba McEntire and More**\
+`After her death at 80, celebrities and politicians honored the country music star for her generosity and philanthropy.`\
+https://www.nytimes.com/2026/08/25/arts/music/dolly-parton-celebrity-reaction.html
+
 **Dolly Parton’s Death Hits Home for Tennesseans: ‘She Was One of Us’**\
 `The country music star kept her home state at the forefront of her music and work. “She aspired Tennesseans to be better,” one resident said.`\
 https://www.nytimes.com/2026/08/25/us/nashville-mourns-dolly-parton.html
