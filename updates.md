@@ -1,3 +1,7 @@
+**Darline Graham Wins Republican Senate Nomination in South Carolina**\
+`Senator Darline Graham, who received President Trump’s backing, defeated Representative Ralph Norman, a five-term congressman, in the Republican primary runoff in South Carolina.`\
+https://www.nytimes.com/video/us/politics/100000011113537/south-carolina-senate-darline-graham.html
+
 **14 Newborns Die in Hospital Fire in Pakistan’s Capital**\
 `The fire broke out on the third floor of Islamabad’s largest hospital.`\
 https://www.nytimes.com/2026/08/26/world/asia/pakistan-islamabad-hospital-fire.html
