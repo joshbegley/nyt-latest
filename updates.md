@@ -1,3 +1,11 @@
+**A Surrogate Fled to Texas to Avoid an Abortion. Now She Wants Custody of the Baby.**\
+`A surrogate refused to have an abortion after the fetus was diagnosed with a serious heart problem. She fled to Texas and had the child. Now she wants a judge to give custody to her instead of the biological parents.`\
+https://www.nytimes.com/2026/08/25/us/texas-surrogate-custody.html
+
+**Sheltering From a Russian Missile Attack in Kyiv**\
+`As Russian missiles struck Ukraine’s capital, our correspondent Constant Méheut sheltered underground. Here’s what he shared from a subway station in Kyiv while speaking to Natalie Kitroeff on “The Call.”`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011111596/sheltering-from-a-russian-missile-attack-in-kyiv.html
+
 **Mike Mazzei, Backed by Trump, Wins Oklahoma Primary for Governor**\
 `Mike Mazzei, a former state senator who lent more than $11 million of his own money to his campaign, narrowly defeated the state’s attorney general, Gentner Drummond.`\
 https://www.nytimes.com/2026/08/25/us/elections/oklahoma-governor-drummond-mazzei.html

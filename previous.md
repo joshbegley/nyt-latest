@@ -1,3 +1,7 @@
+**A Surrogate Fled to Texas to Avoid an Abortion. Now She Wants Custody of the Baby.**\
+`A surrogate refused to have an abortion after the fetus was diagnosed with a serious heart problem. She fled to Texas and had the child. Now she wants a judge to give custody to her instead of the biological parents.`\
+https://www.nytimes.com/2026/08/25/us/texas-surrogate-custody.html
+
 **Mike Mazzei, Backed by Trump, Wins Oklahoma Primary for Governor**\
 `Mike Mazzei, a former state senator who lent more than $11 million of his own money to his campaign, narrowly defeated the state’s attorney general, Gentner Drummond.`\
 https://www.nytimes.com/2026/08/25/us/elections/oklahoma-governor-drummond-mazzei.html
@@ -139,7 +143,7 @@ https://www.nytimes.com/video/opinion/100000011107034/need-help-prepare-for-the-
 https://www.nytimes.com/2026/08/25/weather/tropical-storm-dolly.html
 
 **Sheltering From a Russian Missile Attack in Kyiv**\
-`Constant Méheut joins Natalie Kitroeff on “The Call” from a Kyiv subway station, where he is sheltering as Russian missiles strike the city. He breaks down the grim reality of relying on Telegram to track the attacks, and discusses how dwindling air defenses are leaving the capital increasingly vulnerable.`\
+`As Russian missiles struck Ukraine’s capital, our correspondent Constant Méheut sheltered underground. Here’s what he shared from a subway station in Kyiv while speaking to Natalie Kitroeff on “The Call.”`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011111596/sheltering-from-a-russian-missile-attack-in-kyiv.html
 
 **How Welfare Became a ‘Tool of Humiliation’**\
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/08/25/world/us-canada-trade-war-dolly-parton.html
 **Judge Says Sale of Titanic Artifacts Cannot Go Forward for Now**\
 `The salvage company that has been awarded the rights to recover, but not sell, items that sunk with the ship, has proposed selling 100 of them.`\
 https://www.nytimes.com/2026/08/25/arts/design/titanic-artifacts-sale-halted-judge.html
-
-**Otra masacre en Haití deja decenas de muertos, dicen las autoridades**\
-`Las pandillas atacaron una comunidad en las afueras de la capital, lo que generó temor por cuál podría ser su próximo objetivo. El alcalde dijo que habían muerto al menos 25 personas, pero la ONU elevó la cifra de muertos a 47.`\
-https://www.nytimes.com/es/2026/08/25/espanol/america-latina/haiti-pandillas-muertos.html
 
 **Election Live Updates: Darline Graham, With Push From Trump, Wins Senate Primary in South Carolina**\
 `President Trump helped lift Ms. Graham from relative obscurity after the death of her brother, Lindsey Graham, six weeks ago. In Oklahoma, another Trump-backed candidate, Mike Mazzei, won the nomination for governor.`\
