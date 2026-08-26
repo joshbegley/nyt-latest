@@ -1,3 +1,7 @@
+**Country Music Superstar Dolly Parton Dies at 80**\
+`Dolly Parton, the country music superstar who rose from poverty to become a top-selling singer, songwriter and entrepreneur, died in Nashville on Tuesday.`\
+https://www.nytimes.com/video/embedded/obituaries/100000011112476/country-music-superstar-dolly-parton-dies.html
+
 **Newsom Lists Sacramento Home for $7.5 Million as He Prepares to Leave Town**\
 `Gov. Gavin Newsom has just over four months left in office and will head back to Marin County full-time, where he will consider a run for president.`\
 https://www.nytimes.com/2026/08/25/us/newsom-selling-sacramento-house.html
