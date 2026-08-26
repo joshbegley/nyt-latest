@@ -1,3 +1,7 @@
+**What’s Changing For Teens on Instagram and Facebook After Meta Settlement**\
+`Meta agreed to set more time limits and enhance protections in its platforms for young users, but was short on some specifics.`\
+https://www.nytimes.com/2026/08/26/technology/meta-instagram-facebook-settlement.html
+
 **A Republican Attack Ad Used a Family’s Tragedy. Now They’re Furious.**\
 `Relatives of a family killed by a semi truck say they were not consulted about the ad. Ohio officials have said the truck driver fraudulently obtained U.S. citizenship.`\
 https://www.nytimes.com/2026/08/26/us/jon-husted-campaign-ad-family-tragedy.html
