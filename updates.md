@@ -1,3 +1,7 @@
+**14 Newborns Die in Pakistan Hospital Fire**\
+`Fourteen newborn babies died on Wednesday in Pakistan’s capital, Islamabad, after a fire broke out in the city’s largest hospital, officials said.`\
+https://www.nytimes.com/video/world/asia/100000011113816/14-newborns-die-in-pakistan-hospital-fire.html
+
 **What to Know About Deadly Flash Floods in Nepal and Tibet**\
 `An avalanche may have caused an unusual flash flood without heavy rainfall, with hundreds of people unaccounted for in the path of destruction. Here’s what to know.`\
 https://www.nytimes.com/2026/08/26/world/asia/nepal-tibet-floods-wtk.html
