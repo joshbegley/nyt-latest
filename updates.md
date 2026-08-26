@@ -1,3 +1,15 @@
+**State Department Advances Trump Crackdown on ‘Far-Left Terrorism’**\
+`Critics say the Trump administration’s focus is disproportionate, as analysts raise alarms about the growing strength of far-right movements.`\
+https://www.nytimes.com/2026/08/26/us/politics/trump-crackdown-far-left.html
+
+**Flood Kills at Least 160 Along Nepal-Tibet Border**\
+`Rescue efforts were underway on Wednesday after a flood swept through settlements along a Himalayan river valley, killing at least 160 people. Scientists say the disaster was caused by a massive chunk of ice that broke off a highland glacier.`\
+https://www.nytimes.com/video/world/asia/100000011115111/floods-nepal-tibet-deaths-rescue.html
+
+**The Real Winner of the Trade War With Canada**\
+`China is the real problem, and Washington needs all the allies it can find.`\
+https://www.nytimes.com/2026/08/26/opinion/us-canada-trade-cars-trucks-china.html
+
 **A Deadly Flood Tears Through Nepal and Tibet**\
 `An ice avalanche that started high in the Himalayas tumbled thousands of feet, releasing vast amounts of energy that pulverized the ice into a significant volume of flood water.`\
 https://www.nytimes.com/2026/08/26/world/asia/flood-nepal-tibet.html
