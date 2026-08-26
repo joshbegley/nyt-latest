@@ -1,3 +1,7 @@
+**There’s Only One Winner of a Trade War With Canada**\
+`China is the real problem, and Washington needs all the allies it can find.`\
+https://www.nytimes.com/2026/08/26/opinion/us-canada-trade-cars-trucks-china.html
+
 **The South Loved Dolly Parton. It Saw the Best of Itself in Her.**\
 `Even as her talents and work ethic opened up the world to her, she kept coming home. For many in the complicated region she’s from, that meant a lot.`\
 https://www.nytimes.com/2026/08/26/us/dolly-parton-south.html
