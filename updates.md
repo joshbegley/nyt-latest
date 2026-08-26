@@ -1,3 +1,11 @@
+****\
+`Verified surveillance footage shows the moment a landslide ripped through Gyirong Port, on the border between China and Nepal, on Wednesday.`\
+https://www.nytimes.com/video/embedded/world/asia/100000011113814/26vid-nepal-cctv-49655.html
+
+**Why Is This Picture at Every Sex Party?**\
+`Jess Zakira Wise, a play party organizer, joins host Anna Martin on “Modern Love” to share her early experiences at sex parties.`\
+https://www.nytimes.com/video/podcasts/100000011113819/why-is-this-picture-at-every-sex-party.html
+
 **Oil Prices Dip on News of Progress in Hormuz Talks**\
 `Iran and Oman said they would create a temporary shipping lane and clear mines in the waterway. Global oil prices eased after the joint announcement.`\
 https://www.nytimes.com/2026/08/26/world/middleeast/iran-oman-strait-hormuz.html
