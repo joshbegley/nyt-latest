@@ -1,3 +1,15 @@
+**Confronting South Korea’s Violent Past and Its Echoes Today**\
+`The National Museum of Korean Democracy, which opened last year, documents an era of brutal suppression. But that dark history has resurfaced in troubling ways.`\
+https://www.nytimes.com/2026/08/26/world/asia/korea-democracy-tankday-starbucks.html
+
+**Quote of the Day: Study Links Brain Disease to at Least 1 in 4 in N.F.L.**\
+`Quotation of the Day for Wednesday, August 26, 2026.`\
+https://www.nytimes.com/2026/08/26/pageoneplus/quote-of-the-day-study-links-brain-disease-to-at-least-1-in-4-in-nfl.html
+
+**What to Know About Bank Melli, Singled Out in U.S. Call for Economic War**\
+`Bank Melli, Iran’s largest lender, already faces waves of sanctions that severely limit its ability to operate abroad. Every foreign branch must be shut down, Treasury Secretary Scott Bessent said.`\
+https://www.nytimes.com/2026/08/26/world/europe/iran-melli-bank-us-sanctions.html
+
 **Corrections: Aug. 25, 2026**\
 `Corrections that appeared in print on Tuesday, Aug. 25, 2026.`\
 https://www.nytimes.com/2026/08/25/pageoneplus/corrections-aug-25-2026.html
@@ -181,18 +193,6 @@ https://www.nytimes.com/2026/08/25/nyregion/rebel-wilson-the-deb-producer-amanda
 **Where Does Trump’s Executive Order Restricting Mail Voting Stand?**\
 `The Supreme Court on Monday allowed the Trump administration to continue with plans to curtail mail-in voting, but the fast-moving, high-stakes legal fight continues.`\
 https://www.nytimes.com/2026/08/25/us/politics/what-to-know-trump-executive-order-mail-voting.html
-
-**Dolly Parton Wanted to Share Her Story on Broadway. She Still Will.**\
-`“Dolly: A True Original Musical” is scheduled to begin previews in December after a strong-selling production in Nashville last year.`\
-https://www.nytimes.com/2026/08/25/theater/dolly-parton-broadway.html
-
-**Dolly Parton Is Mourned by Beyoncé, Reba McEntire and More**\
-`After her death at 80, celebrities and politicians honored the country music star for her generosity and philanthropy.`\
-https://www.nytimes.com/2026/08/25/arts/music/dolly-parton-celebrity-reaction.html
-
-**USA vs. Canada**\
-`Our Canada bureau chief tells us how the countries got into a trade war and how people north of the border are experiencing the rift.`\
-https://www.nytimes.com/2026/08/25/world/us-canada-trade-war-dolly-parton.html
 
 **Darline Graham, With Push From Trump, Wins Senate Primary in South Carolina**\
 `President Trump helped lift Ms. Graham from relative obscurity after the death of her brother, Lindsey Graham, six weeks ago. In Oklahoma, another Trump-backed candidate, Mike Mazzei, won the nomination for governor.`\
