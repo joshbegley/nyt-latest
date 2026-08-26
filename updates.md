@@ -1,3 +1,15 @@
+**5 Things to Know About Mark Mazzei, Oklahoma G.O.P. Candidate for Governor**\
+`The former state senator, who was endorsed by President Trump, spent millions of dollars of his own money on the race.`\
+https://www.nytimes.com/2026/08/25/us/politics/who-is-mark-mazzei.html
+
+**5 Things to Know About Gentner Drummond, Oklahoma G.O.P. Candidate for Governor**\
+`Mr. Drummond, the state attorney general, faces an opponent backed by President Trump and Gov. Kevin Stitt. The campaign has highlighted his independent streak.`\
+https://www.nytimes.com/2026/08/25/us/politics/who-is-gentner-drummond.html
+
+**N.Y.C. Officials Defend Second-Home Tax Rollout and Move to Ease Worries**\
+`Mamdani administration officials said they had used new data to shrink the pool of properties potentially subject to the tax and extended the deadline for homeowners to prove city residency.`\
+https://www.nytimes.com/2026/08/25/nyregion/mamdani-pieds-a-terre-tax-homes.html
+
 **Everton Blair Jr. Wins Race to Fill David Scott’s House Seat in Georgia**\
 `Everton Blair Jr. will serve until January in the seat long held by Mr. Scott, who died in April. Mr. Blair is not competing in the general election for the next full term in the deep-blue district.`\
 https://www.nytimes.com/2026/08/25/us/politics/everton-blair-georgia-runoff-house-david-scott.html
