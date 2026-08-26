@@ -1,3 +1,19 @@
+**Read the Decision From the Federal Appeals Panel**\
+`The panel ruled that the Constitution does not bar the Trump administration from bringing an assault charge against a Democratic member of Congress.`\
+https://www.nytimes.com/interactive/2026/08/26/nyregion/mciver-trump-delaney-third-circuit-decision.html
+
+**Tim Curry, Star of ‘Rocky Horror’ and Much More, Dies at 80**\
+`The actor’s gift for garish eccentricity informed a variety of performances, most famously as the outlandish cross-dressing mad scientist Frank-N-Furter.`\
+https://www.nytimes.com/2026/08/26/movies/tim-curry-dead.html
+
+**How Trump Folded the Graham Family Dynasty Into His Own**\
+`The president came to see Lindsey and Darline Graham as part of his own political legacy.`\
+https://www.nytimes.com/2026/08/26/us/politics/trump-lindsey-graham-darline-graham.html
+
+**Dolly Parton Outsmarted Every Dumb-Blonde Joke**\
+`Nothing a critic or comic said about Parton — and they said plenty — compared with what she said about herself. She stepped on their punchlines and took away their power.`\
+https://www.nytimes.com/2026/08/26/style/dolly-parton-jokes-humor-image.html
+
 **Reno Has Long Known of Wildfire Risk. The Hawk Fire Proved It’s Real.**\
 `The Sierra Nevada region is a hot spot for wildfires and some see the Hawk fire as providing an impetus for hardening communities against catastrophe.`\
 https://www.nytimes.com/2026/08/26/us/hawk-fire-reno-nevada.html

@@ -2,8 +2,8 @@
 `The panel ruled that the Constitution does not bar the Trump administration from bringing an assault charge against a Democratic member of Congress.`\
 https://www.nytimes.com/interactive/2026/08/26/nyregion/mciver-trump-delaney-third-circuit-decision.html
 
-**Tim Curry, Star of ‘Rocky Horror’ and Much More, Dies at 80**\
-`The actor’s gift for garish eccentricity informed a variety of performances, most famously as the outlandish cross-dressing mad scientist Frank-N-Furter.`\
+**Tim Curry, Star of ‘Rocky Horror Picture Show,’ Dies at 80**\
+`The actor’s gift for garish eccentricity was indelibly appropriate for the outlandish, cross-dressing mad scientist Frank-N-Furter.`\
 https://www.nytimes.com/2026/08/26/movies/tim-curry-dead.html
 
 **How Trump Folded the Graham Family Dynasty Into His Own**\
