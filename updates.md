@@ -1,3 +1,11 @@
+**After Wasp Attack, a Canadian Rock Climber Is Rescued by Helicopter**\
+`A 33-year-old woman was rescued along with her climbing partner on Tuesday after she was stung more than 100 times while hiking in the British Columbia backcountry north of Vancouver.`\
+https://www.nytimes.com/2026/08/26/world/canada/canada-hiker-wasp-stings-rescue.html
+
+**The British Actor Tim Curry Dies at 80**\
+`Tim Curry, the expressive star of “The Rocky Horror Picture Show” and numerous other roles, died on Tuesday at his home in Los Angeles, according to his agent. Curry was a Broadway, television and film star known for playing eccentric characters.`\
+https://www.nytimes.com/video/obituaries/archives/100000011114662/british-actor-tim-curry-dead.html
+
 **West Point Climate Professor Says He Was Fired for Refusing to ‘Defy Science’**\
 `Dr. Adam Kalkstein is suing the U. S. Military Academy, where he was a professor of geography and the only climate scientist, after being fired.`\
 https://www.nytimes.com/2026/08/26/us/politics/west-point-climate-professor-lawsuit.html
