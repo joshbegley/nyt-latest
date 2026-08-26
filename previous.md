@@ -1,3 +1,11 @@
+**Prince Harry and Meghan Set to Arrive in Britain, BBC Reports**\
+`The broadcaster said that the family were expected to land in the U.K. on Wednesday, without naming its sources.`\
+https://www.nytimes.com/2026/08/26/world/europe/prince-harry-meghan-uk-arrival.html
+
+**Wall St. Scrutinizes Nvidia’s Deal Machine**\
+`Investors are awaiting the chipmaker’s latest quarterly earnings — and are anxious about its huge portfolio of artificial intelligence investments.`\
+https://www.nytimes.com/2026/08/26/business/dealbook/nvidia-earnings-ai-investments.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/asia/100000011113833/26vid-nepal-cctv-2-93195.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/26/fashion/jewelry-nishita-assomull-london.html
 **A Hong Kong Entrepreneur Creates ‘Art to Wear’**\
 `Bertrand Mak has attracted such names as the master Swiss watchmaker Kari Voutilainen to his Sauvereign brand projects.`\
 https://www.nytimes.com/2026/08/26/fashion/jewelry-sauvereign-bertrand-mak-kari-voutilainen.html
-
-**A Paris Luxury House Creates Jewelry**\
-`Létrange, which has made leather goods since the 19th century, is scheduled to launch its second collection next month during Art Basel Paris.`\
-https://www.nytimes.com/2026/08/26/fashion/jewelry-letrange-paris.html
-
-**A Rare Coral from the Waters off Sicily Is Resurfacing**\
-`Sciacca coral, named for the Sicilian town near where deposits began to be harvested around 1875, is turning up in high and fine jewelry lines.`\
-https://www.nytimes.com/2026/08/26/fashion/jewelry-sciacca-coral-dolce-and-gabbana-sicily.html
 

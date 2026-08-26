@@ -1,3 +1,11 @@
+**Prince Harry and Meghan Set to Arrive in Britain, BBC Reports**\
+`The broadcaster said that the family were expected to land in the U.K. on Wednesday, without naming its sources.`\
+https://www.nytimes.com/2026/08/26/world/europe/prince-harry-meghan-uk-arrival.html
+
+**Wall St. Scrutinizes Nvidia’s Deal Machine**\
+`Investors are awaiting the chipmaker’s latest quarterly earnings — and are anxious about its huge portfolio of artificial intelligence investments.`\
+https://www.nytimes.com/2026/08/26/business/dealbook/nvidia-earnings-ai-investments.html
+
 **Diesel Price Nears Record High, Helping Oil Companies and Hurting Consumers**\
 `The cost of the fuel, used in farm machinery, trucks and other heavy equipment, has surged because of the war in Iran and Ukrainian attacks on Russian refineries.`\
 https://www.nytimes.com/2026/08/26/business/energy-environment/diesel-prices-iran-war-oil.html
