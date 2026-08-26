@@ -1,3 +1,7 @@
+**Dolly Parton’s Other Legacy: A Fortune Given Away, Dollar by Dollar**\
+`The country star supported early childhood literacy, disaster relief, the development of the Covid-19 vaccine and more.`\
+https://www.nytimes.com/2026/08/26/business/dolly-parton-philanthropy-books-covid-vaccine.html
+
 **Canadians Embrace Country’s Resistance as Trade War Intensifies**\
 `Many Canadians have rallied around their country’s show of resistance after the latest U.S.-Canada trade talks collapsed.`\
 https://www.nytimes.com/video/world/canada/100000011114028/canada-trade-war-us-trump.html

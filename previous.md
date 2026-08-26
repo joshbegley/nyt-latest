@@ -1,3 +1,7 @@
+**Dolly Parton’s Other Legacy: A Fortune Given Away, Dollar by Dollar**\
+`The country star supported early childhood literacy, disaster relief, the development of the Covid-19 vaccine and more.`\
+https://www.nytimes.com/2026/08/26/business/dolly-parton-philanthropy-books-covid-vaccine.html
+
 **Canadians Embrace Country’s Resistance as Trade War Intensifies**\
 `Many Canadians have rallied around their country’s show of resistance after the latest U.S.-Canada trade talks collapsed.`\
 https://www.nytimes.com/video/world/canada/100000011114028/canada-trade-war-us-trump.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/26/us/tif-chicago-study-tax-program-downtown.htm
 **Iran War Weighs on Virginia Beach Voters in Key House Race**\
 `The conflict with Iran is uniquely salient to the Virginia Beach voters deciding which party will win a critical House contest.`\
 https://www.nytimes.com/2026/08/26/us/politics/virginia-beach-congressional-election-iran-war.html
-
-**Dolly Parton Fans React to Country Star’s Death**\
-`Fans of Dolly Parton expressed shock and reflected on her legacy after her death on Tuesday`\
-https://www.nytimes.com/video/arts/music/100000011113661/dolly-parton-fans-react-to-country-stars-death.html
 
