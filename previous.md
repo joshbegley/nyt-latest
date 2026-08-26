@@ -1,3 +1,7 @@
+**China critica las nuevas sanciones de Trump a Irán**\
+`El gobierno de Trump se arriesga a tener un enfrentamiento con Pekín mientras intenta cortar los salvavidas económicos de Irán sin alterar una frágil tregua entre EE. UU. y China.`\
+https://www.nytimes.com/es/2026/08/26/espanol/negocios/sanciones-iran-china.html
+
 **¿Estamos ante una nueva era de la lucha de clases?**\
 `La violencia de clase del pasado formaba parte de un conflicto más extendido. Hoy, la violencia es un fin en sí misma.`\
 https://www.nytimes.com/es/2026/08/26/espanol/opinion/nueva-lucha-de-clases.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/08/25/arts/len-brown-dead.html
 **In Canada and at Home, Deference to Trump Turns to Defiance on Tariffs and Other Issues**\
 `While the president remains the most dominant figure in the world, other leaders and institutions are pushing back more vigorously than at the beginning of his second term.`\
 https://www.nytimes.com/2026/08/25/us/politics/trump-polls-tariffs-carney.html
-
-**Conservative Gay Rights Group Ends Support for Trans Causes**\
-`The Log Cabin Republicans, which is dedicated to gay causes, says that trans rights advocates focus too much on minors.`\
-https://www.nytimes.com/2026/08/25/us/politics/log-cabin-republicans-transgender.html
 
 **Darline Graham, With Push From Trump, Wins Senate Primary in South Carolina**\
 `President Trump helped lift Ms. Graham from relative obscurity after the death of her brother, Lindsey Graham, six weeks ago. In Oklahoma, another Trump-backed candidate, Mike Mazzei, won the nomination for governor.`\

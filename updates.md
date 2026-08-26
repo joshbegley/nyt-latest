@@ -1,3 +1,7 @@
+**China critica las nuevas sanciones de Trump a Irán**\
+`El gobierno de Trump se arriesga a tener un enfrentamiento con Pekín mientras intenta cortar los salvavidas económicos de Irán sin alterar una frágil tregua entre EE. UU. y China.`\
+https://www.nytimes.com/es/2026/08/26/espanol/negocios/sanciones-iran-china.html
+
 **¿Estamos ante una nueva era de la lucha de clases?**\
 `La violencia de clase del pasado formaba parte de un conflicto más extendido. Hoy, la violencia es un fin en sí misma.`\
 https://www.nytimes.com/es/2026/08/26/espanol/opinion/nueva-lucha-de-clases.html
