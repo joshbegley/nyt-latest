@@ -1,3 +1,15 @@
+**Darline Graham, Backed By Trump, Wins Primary for Senate in South Carolina**\
+`Ms. Graham, who is temporarily filling the seat long held by her late brother, Senator Lindsey Graham, prevailed in a runoff and will be heavily favored in November.`\
+https://www.nytimes.com/2026/08/25/us/politics/south-carolina-senate-graham-norman.html
+
+**‘Paranormal Activity’ Review: The Thing That Goes Bump in the Night**\
+`It’s now haunting Broadway in this adaptation of the horror film franchise about a couple seeking a new start. Instead, they become prime targets.`\
+https://www.nytimes.com/2026/08/25/theater/paranormal-activity-review-broadway.html
+
+**Election Live Updates: Darline Graham, With Push From Trump, Wins Senate Primary in South Carolina**\
+`Darline Graham, the sister of the late Lindsey Graham, had President Trump’s backing in her campaign. She defeated Ralph Norman, a staunch conservative who criticized her lack of experience.`\
+https://www.nytimes.com/live/2026/08/25/us/elections-south-carolina-oklahoma
+
 **5 Things to Know About Mark Mazzei, Oklahoma G.O.P. Candidate for Governor**\
 `The former state senator, who was endorsed by President Trump, spent millions of dollars of his own money on the race.`\
 https://www.nytimes.com/2026/08/25/us/politics/who-is-mark-mazzei.html
