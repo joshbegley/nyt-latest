@@ -1,3 +1,11 @@
+**State Department Advances Trump Crackdown on ‘Far-Left Terrorism’**\
+`Critics say the Trump administration’s focus is disproportionate, as analysts raise alarms about the growing strength of far-right movements.`\
+https://www.nytimes.com/2026/08/26/us/politics/trump-crackdown-far-left.html
+
+**Flood Kills at Least 160 Along Nepal-Tibet Border**\
+`Rescue efforts were underway on Wednesday after a flood swept through settlements along a Himalayan river valley, killing at least 160 people. Scientists say the disaster was caused by a massive chunk of ice that broke off a highland glacier.`\
+https://www.nytimes.com/video/world/asia/100000011115111/floods-nepal-tibet-deaths-rescue.html
+
 **A Deadly Flood Tears Through Nepal and Tibet**\
 `An ice avalanche that started high in the Himalayas tumbled thousands of feet, releasing vast amounts of energy that pulverized the ice into a significant volume of flood water.`\
 https://www.nytimes.com/2026/08/26/world/asia/flood-nepal-tibet.html
@@ -150,7 +158,7 @@ https://www.nytimes.com/2026/08/26/us/ice-christian-castro-extradite-texas-minne
 `Track the latest polls in Ohio’s 1st Congressional District.`\
 https://www.nytimes.com/interactive/polls/ohio-us-house-1-polls-2026.html
 
-**There’s Only One Winner of a Trade War With Canada**\
+**The Real Winner of the Trade War With Canada**\
 `China is the real problem, and Washington needs all the allies it can find.`\
 https://www.nytimes.com/2026/08/26/opinion/us-canada-trade-cars-trucks-china.html
 
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/08/26/opinion/dolly-parton-death-praise.html
 **Muere Tim Curry, que interpretó a Pennywise en ‘It’**\
 `El talento del actor para la excentricidad dejó una marca indeleble en muchos de sus roles, como el del estrafalario científico travesti de “The Rocky Horror Picture Show”.`\
 https://www.nytimes.com/es/2026/08/26/espanol/cultura/muere-tim-curry.html
-
-**14 Newborns Die in Pakistan Hospital Fire**\
-`Fourteen newborn babies died on Wednesday in Pakistan’s capital, Islamabad, after a fire broke out in the city’s largest hospital, officials said.`\
-https://www.nytimes.com/video/world/asia/100000011113816/14-newborns-die-in-pakistan-hospital-fire.html
-
-**What to Know About Deadly Flash Floods in Nepal and Tibet**\
-`An avalanche may have caused an unusual flash flood without heavy rainfall, with hundreds of people unaccounted for in the path of destruction. Here’s what to know.`\
-https://www.nytimes.com/2026/08/26/world/asia/nepal-tibet-floods-wtk.html
 
