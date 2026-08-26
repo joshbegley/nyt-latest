@@ -1,3 +1,7 @@
+**Pacientes de EE. UU. encuentran riesgos en clínicas de psicodélicos de América Latina**\
+`En medio del creciente interés por los tratamientos con sustancias psicodélicas, los estadounidenses viajan al extranjero, a menudo a Latinoamérica, en busca de terapias que alteran la mente y que siguen siendo ilegales en EE. UU.`\
+https://www.nytimes.com/es/2026/08/26/espanol/ciencia-y-tecnologia/tratamiento-psicodelico-ibogaina-mexico.html
+
 **American Students Shouldn’t Be Guinea Pigs for Chatbots**\
 `Every minute of delay in regulating A.I. use in schools is another opportunity for Big Tech to fill the vacuum.`\
 https://www.nytimes.com/2026/08/26/opinion/ai-norway-schools.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/politics/100000011113537/south-carolina-senate-
 **Bill Gates Is Warning That A.I. Is More Dangerous Than Big Tech Will Admit**\
 `In an hourlong interview, he said his industry was downplaying the risks, which he believes include mass unemployment and bioterrorism.`\
 https://www.nytimes.com/2026/08/26/technology/bill-gates-ai-risks.html
-
-**NYT Spelling Bee Answers for August 26, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/08/26/crosswords/spelling-bee-forum.html
 
