@@ -1,3 +1,7 @@
+**Conservative Media Personality Makes Runoff for Alaska Governor**\
+`Bernadette Wilson, who has appealed to other Republicans to consolidate around her party’s top finisher, will be one of four finalists on the ranked-choice ballot in November.`\
+https://www.nytimes.com/2026/08/26/us/politics/bernadette-wilson-alaska-governor.html
+
 **In Headache for Republicans, Second Dan Sullivan Advances in Alaska Senate Race**\
 `A long-shot candidate with the same name as the incumbent Republican senator will be on the ballot in November. That could be a problem for the G.O.P.`\
 https://www.nytimes.com/2026/08/26/us/politics/dan-sullivan-alaska-senate-midterms.html
