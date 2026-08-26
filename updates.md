@@ -1,3 +1,19 @@
+**Dolly Parton’s Best Movie Performances: Where to Stream**\
+`In movies like “9 to 5” and “Steel Magnolias,” Parton shined as a version of herself.`\
+https://www.nytimes.com/2026/08/26/movies/dolly-parton-movies-streaming.html
+
+**Blake Lively, Who Sought $8 Million for Legal Costs, Is Awarded $400,000**\
+`The ruling all but ends the legal dispute between her and Justin Baldoni over the filming of the movie “It Ends With Us” and its aftermath.`\
+https://www.nytimes.com/2026/08/26/movies/blake-lively-legal-costs-justin-baldoni.html
+
+**Judge Handling 9/11 Case Sets June 2028 Trial Date**\
+`Prosecutors had asked for an earlier start. The judge has not yet ruled on several issues related to the defendants’ torture in C.I.A. prisons.`\
+https://www.nytimes.com/2026/08/26/us/politics/sept11-attacks-trial-date.html
+
+**How The New York Times Covers Harry, Meghan and the Royal Family**\
+`What led to the surprising return of Meghan and Harry to Britain? What will it mean? Our journalists, and many competitors, are seeking answers.`\
+https://www.nytimes.com/2026/08/26/insider/royal-family-harry-meghan-insider.html
+
 **Judge Sides With Texas Over Minnesota on Extradition of ICE Agent**\
 `The two states have waged an unusual court battle over the agent facing charges over a shooting in Minneapolis. The agent could be released from jail on Thursday.`\
 https://www.nytimes.com/2026/08/26/us/ice-christian-castro-extradite-texas-minnesota.html
