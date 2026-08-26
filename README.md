@@ -1,3 +1,7 @@
+**Meta to Pay Up to $17 Billion in Landmark Settlement Over Social Media Addiction Claims**\
+`The social media giant settled with 47 states, the District of Columbia and U.S. territories, and agreed to make major changes to its products over claims its platforms endangered children.`\
+https://www.nytimes.com/2026/08/26/technology/meta-settlement-social-media-addiction-lawsuit.html
+
 **I’m Already Dreading My In-Laws’ Comments on My Pregnancy. Help!**\
 `A reader worries that her father-in-law’s mansplaining and her mother-in-law’s anxiety will crank into overdrive once she’s carrying their grandchild.`\
 https://www.nytimes.com/2026/08/26/style/in-laws-pregnancy-commentary.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/26/style/weather-influencers-tiktok-kyle-cooke.h
 **How Paul Williams Built White and Black Los Angeles**\
 `A pioneering architect’s archive, long thought lost, was preserved by his family. Now, three museums are featuring the work of a man who broke California’s color barrier.`\
 https://www.nytimes.com/2026/08/26/arts/design/paul-williams-architect.html
-
-**Word of the Day: inveigle**\
-`This word has appeared in six articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/08/26/learning/word-of-the-day-inveigle.html
 
