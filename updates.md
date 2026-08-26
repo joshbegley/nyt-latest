@@ -1,3 +1,11 @@
+**Mamdani Persuades C.E.O.s to Join His Business Advisory Council**\
+`Mayor Zohran Mamdani, a democratic socialist who has struggled to win over Wall Street, intends to use the council to help him invigorate New York City’s economy.`\
+https://www.nytimes.com/2026/08/26/nyregion/mamdani-ceos-business-advisory-council.html
+
+**Janie Bradford, Co-Writer of Motown’s First Hit, Dies at 87**\
+`One of the label’s first hires, she worked on “Money (That’s What I Want)” and went on to have a hand in many other songs.`\
+https://www.nytimes.com/2026/08/26/arts/music/janie-bradford-dead.html
+
 **Tim Curry: A Life in Pictures**\
 `Curry thrived onstage and onscreen in meaty roles that brought him widespread recognition and generations of dedicated fans.`\
 https://www.nytimes.com/2026/08/26/movies/tim-curry-a-life-in-pictures.html

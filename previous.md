@@ -1,3 +1,11 @@
+**Mamdani Persuades C.E.O.s to Join His Business Advisory Council**\
+`Mayor Zohran Mamdani, a democratic socialist who has struggled to win over Wall Street, intends to use the council to help him invigorate New York City’s economy.`\
+https://www.nytimes.com/2026/08/26/nyregion/mamdani-ceos-business-advisory-council.html
+
+**Janie Bradford, Co-Writer of Motown’s First Hit, Dies at 87**\
+`One of the label’s first hires, she worked on “Money (That’s What I Want)” and went on to have a hand in many other songs.`\
+https://www.nytimes.com/2026/08/26/arts/music/janie-bradford-dead.html
+
 **Tim Curry: A Life in Pictures**\
 `Curry thrived onstage and onscreen in meaty roles that brought him widespread recognition and generations of dedicated fans.`\
 https://www.nytimes.com/2026/08/26/movies/tim-curry-a-life-in-pictures.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/08/26/arts/music/dolly-parton-publishing-i-will-alw
 **Judge Allows Postal Service Effort to Restrict Mail Voting, for Now**\
 `The order came amid a spate of legal challenges, including one by Democratic state attorneys general, that could still result in the rules being blocked.`\
 https://www.nytimes.com/2026/08/26/us/politics/states-lawsuit-mail-ballot-order.html
-
-**On Happiness, Politics, Language and the Universe: The Week 10 Winners of Our Summer Reading Contest**\
-`As our contest comes to a close, we honor a video and three essays, and hear reflections on this year’s submissions from our judges.`\
-https://www.nytimes.com/2026/08/26/learning/on-happiness-politics-language-and-the-universe-the-week-10-winners-of-our-summer-reading-contest.html
-
-**A Tax Program for Development in Chicago Left Poor Areas Behind, Study Says**\
-`New research suggests that TIF, a multibillion dollar tax program intended to revive the city’s blighted neighborhoods, has mostly benefited downtown areas.`\
-https://www.nytimes.com/2026/08/26/us/tif-chicago-study-tax-program-downtown.html
 

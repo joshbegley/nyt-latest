@@ -1,3 +1,7 @@
+**Meta to Pay Up to $17.1 Billion Over Claims It Harmed Youths**\
+`Also, floods destroy villages in Nepal. Here’s the latest at the end of Wednesday.`\
+https://www.nytimes.com/2026/08/26/briefing/meta-settlement-nepal-floods.html
+
 **Mamdani Persuades C.E.O.s to Join His Business Advisory Council**\
 `Mayor Zohran Mamdani, a democratic socialist who has struggled to win over Wall Street, intends to use the council to help him invigorate New York City’s economy.`\
 https://www.nytimes.com/2026/08/26/nyregion/mamdani-ceos-business-advisory-council.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/26/nyregion/mciver-trump-delaney-hall-decision.h
 **Why Dolly Parton Wouldn’t Let Elvis Presley Record ‘I Will Always Love You’**\
 `When Elvis Presley wanted to record the song, Parton made the hard-nosed decision to protect her ownership of her work.`\
 https://www.nytimes.com/2026/08/26/arts/music/dolly-parton-publishing-i-will-always-love-you.html
-
-**Judge Allows Postal Service Effort to Restrict Mail Voting, for Now**\
-`The order came amid a spate of legal challenges, including one by Democratic state attorneys general, that could still result in the rules being blocked.`\
-https://www.nytimes.com/2026/08/26/us/politics/states-lawsuit-mail-ballot-order.html
 
