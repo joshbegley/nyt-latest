@@ -1,3 +1,7 @@
+**Masked Man Accused of Harassing Philadelphians Is Arrested in Las Vegas**\
+`Zymire Hughes scared more than a dozen people while wearing a Chucky-style mask, the authorities said. He is being held in jail while awaiting extradition to Pennsylvania.`\
+https://www.nytimes.com/2026/08/26/us/man-arrested-chucky-mask-philadelphia-las-vegas.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/asia/100000011113845/26visualUploader-44227.html
@@ -6,7 +10,7 @@ https://www.nytimes.com/video/embedded/world/asia/100000011113845/26visualUpload
 `The driver of an S.U.V. was killed, as were two passengers, overnight. Four other people, including the driver and passenger in the other vehicle, were injured.`\
 https://www.nytimes.com/2026/08/26/nyregion/nyc-belt-parkway-crash.html
 
-**Inflation Remains Elevated as Energy Costs Push on Prices**\
+**PCE Index Shows Inflation Remained Elevated in July Amid High Energy Costs**\
 `The Personal Consumption Expenditure index, the Federal Reserve’s preferred inflation tracker, held steady in July.`\
 https://www.nytimes.com/2026/08/26/business/economy/inflation-pce.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/26/world/middleeast/lebanon-byblos-israel.html
 **How To Throw A Sex Party**\
 `Jess Zakira Wise wanted a place for tender, fun, and curious group sex. When she couldn’t find it, she created it herself.`\
 https://www.nytimes.com/2026/08/26/podcasts/modern-love-how-to-host-an-orgy.html
-
-**22 New Books to Read in September: John Green, R.F. Kuang, Marlon James and More**\
-`Novels by Marlon James, Emma Cline, Hernan Diaz and John Green; nonfiction by Emily Wilson and Robert Kolker; and more.`\
-https://www.nytimes.com/2026/08/26/books/new-books-september.html
 
