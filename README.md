@@ -1,3 +1,15 @@
+**5 Things to Know About Mark Mazzei, Oklahoma G.O.P. Candidate for Governor**\
+`The former state senator, who was endorsed by President Trump, spent millions of dollars of his own money on the race.`\
+https://www.nytimes.com/2026/08/25/us/politics/who-is-mark-mazzei.html
+
+**5 Things to Know About Gentner Drummond, Oklahoma G.O.P. Candidate for Governor**\
+`Mr. Drummond, the state attorney general, faces an opponent backed by President Trump and Gov. Kevin Stitt. The campaign has highlighted his independent streak.`\
+https://www.nytimes.com/2026/08/25/us/politics/who-is-gentner-drummond.html
+
+**N.Y.C. Officials Defend Second-Home Tax Rollout and Move to Ease Worries**\
+`Mamdani administration officials said they had used new data to shrink the pool of properties potentially subject to the tax and extended the deadline for homeowners to prove city residency.`\
+https://www.nytimes.com/2026/08/25/nyregion/mamdani-pieds-a-terre-tax-homes.html
+
 **Everton Blair Jr. Wins Race to Fill David Scott’s House Seat in Georgia**\
 `Everton Blair Jr. will serve until January in the seat long held by Mr. Scott, who died in April. Mr. Blair is not competing in the general election for the next full term in the deep-blue district.`\
 https://www.nytimes.com/2026/08/25/us/politics/everton-blair-georgia-runoff-house-david-scott.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/08/25/climate/climate-maha-moms-coal.html
 **Restaurant Review: Gigi’s in New York**\
 `Gigi’s, a new Greenpoint bistro, goes all-in on the delicious, deceptively simple rotisserie birds.`\
 https://www.nytimes.com/2026/08/25/dining/restaurant-review-gigis-nyc.html
-
-**Has World War III Already Started?**\
-`Spheres of conflict have multiplied and are merging. Meanwhile, the West is a mess.`\
-https://www.nytimes.com/2026/08/25/opinion/has-world-war-iii-already-started.html
-
-**Dethroned Beauty Queen Fights Accusations of Bigotry**\
-`Brittany Boltinhouse’s title as Miss North Carolina USA was rescinded after past social media posts surfaced. She is suing pageant organizers and Miss USA for defamation.`\
-https://www.nytimes.com/2026/08/25/style/miss-north-carolina-brittany-boltinhouse-lawsuit.html
-
-**Champagne Grapes Ripen Early Amid Extreme Heat in France**\
-`The famed Champagne grapes of France ripened about three to four weeks ahead of schedule after an exceptionally hot summer, according to local winemakers. While harvests have been occurring earlier for years, growers say the trend has been accelerating.`\
-https://www.nytimes.com/video/world/europe/100000011111860/france-champagne-grapes-heat.html
 

@@ -1,3 +1,15 @@
+**Everton Blair Jr. Wins Race to Fill David Scott’s House Seat in Georgia**\
+`Everton Blair Jr. will serve until January in the seat long held by Mr. Scott, who died in April. Mr. Blair is not competing in the general election for the next full term in the deep-blue district.`\
+https://www.nytimes.com/2026/08/25/us/politics/everton-blair-georgia-runoff-house-david-scott.html
+
+**Dolly Parton Died After Brief Battle With Cancer**\
+`Parton had recently canceled a Las Vegas residency because of health issues. A spokesman did not provide additional details about her illness.`\
+https://www.nytimes.com/2026/08/25/arts/music/dolly-parton-cancer-cause-death.html
+
+**Election Live Updates: Tight Race Unfolds in South Carolina, Where Trump Backed Lindsey Graham’s Sister**\
+`Darline Graham, the sister of the late Senator Graham, had President Trump’s support in her race against Ralph Norman for the South Carolina seat. Votes are also being counted in Oklahoma’s primary runoffs.`\
+https://www.nytimes.com/live/2026/08/25/us/elections-south-carolina-oklahoma
+
 **Canadá responde e impone aranceles a cientos de productos de EE. UU.**\
 `La nueva medida alcanza unos 700 artículos, desde pescado y electrodomésticos hasta acero y aluminio, mientras Ottawa busca proteger a su industria frente a las decisiones de Washington.`\
 https://www.nytimes.com/es/2026/08/25/espanol/mundo/canada-impone-aranceles-productos-ee-uu.html

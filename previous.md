@@ -1,3 +1,11 @@
+**Everton Blair Jr. Wins Race to Fill David Scott’s House Seat in Georgia**\
+`Everton Blair Jr. will serve until January in the seat long held by Mr. Scott, who died in April. Mr. Blair is not competing in the general election for the next full term in the deep-blue district.`\
+https://www.nytimes.com/2026/08/25/us/politics/everton-blair-georgia-runoff-house-david-scott.html
+
+**Dolly Parton Died After Brief Battle With Cancer**\
+`Parton had recently canceled a Las Vegas residency because of health issues. A spokesman did not provide additional details about her illness.`\
+https://www.nytimes.com/2026/08/25/arts/music/dolly-parton-cancer-cause-death.html
+
 **Canadá responde e impone aranceles a cientos de productos de EE. UU.**\
 `La nueva medida alcanza unos 700 artículos, desde pescado y electrodomésticos hasta acero y aluminio, mientras Ottawa busca proteger a su industria frente a las decisiones de Washington.`\
 https://www.nytimes.com/es/2026/08/25/espanol/mundo/canada-impone-aranceles-productos-ee-uu.html
@@ -162,8 +170,8 @@ https://www.nytimes.com/interactive/2026/08/25/us/elections/results-oklahoma-ins
 `Get live results and maps from the 2026 Georgia special runoff election.`\
 https://www.nytimes.com/interactive/2026/08/25/us/elections/results-georgia-us-house-13-special-runoff.html
 
-**Election Live Updates: Counting Underway in South Carolina, Where Trump Backed Lindsey Graham’s Sister**\
-`Darline Graham, the sister of the late Senator Graham, had President Trump’s support in her race against Ralph Norman for the South Carolina seat. Oklahoma is also holding primary runoffs.`\
+**Election Live Updates: Tight Race Unfolds in South Carolina, Where Trump Backed Lindsey Graham’s Sister**\
+`Darline Graham, the sister of the late Senator Graham, had President Trump’s support in her race against Ralph Norman for the South Carolina seat. Votes are also being counted in Oklahoma’s primary runoffs.`\
 https://www.nytimes.com/live/2026/08/25/us/elections-south-carolina-oklahoma
 
 **MAHA Moms Take On Coal**\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/08/25/style/miss-north-carolina-brittany-boltinhous
 **Champagne Grapes Ripen Early Amid Extreme Heat in France**\
 `The famed Champagne grapes of France ripened about three to four weeks ahead of schedule after an exceptionally hot summer, according to local winemakers. While harvests have been occurring earlier for years, growers say the trend has been accelerating.`\
 https://www.nytimes.com/video/world/europe/100000011111860/france-champagne-grapes-heat.html
-
-**A Mean-Spirited Turn in Kansas**\
-`Readers respond to a column about a Kansas law that invalidates the licenses of  transgender people. Also, the need for better health care delivery; ugly dog breeds often suffer.`\
-https://www.nytimes.com/2026/08/25/opinion/mean-spirited-in-kansas.html
-
-**NYT Strands Hints for August 22, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, Aug. 22, 2026.`\
-https://www.nytimes.com/2026/08/21/crosswords/strands-sidekick-902.html
 
