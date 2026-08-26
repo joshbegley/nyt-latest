@@ -1,3 +1,7 @@
+**Live Updates: 8 Dead and Hundreds Feared Missing as Floods Sweep Away Villages in Nepal**\
+`A wall of water crashed through a Himalayan river valley shared between Nepal and the Chinese territory of Tibet, destroying settlements. Many of those reported missing were foreign tourists.`\
+https://www.nytimes.com/live/2026/08/26/world/nepal-floods
+
 **They’re Done With Trump**\
 `We look at Canada’s opposition to the president.`\
 https://www.nytimes.com/2026/08/26/briefing/theyre-done-with-trump.html
@@ -25,10 +29,6 @@ https://www.nytimes.com/2026/08/26/crosswords/wordle-review-1895.html
 **NYT Strands Hints for August 27, 2026**\
 `Scroll down for hints and conversation about the puzzle for Thursday, Aug. 27, 2026.`\
 https://www.nytimes.com/2026/08/26/crosswords/strands-sidekick-907.html
-
-**Eight Dead, Hundreds Missing as Floods Sweep Away Villages in Nepal**\
-`A wall of water swept down a Himalayan river valley shared between Nepal and the Chinese territory of Tibet.`\
-https://www.nytimes.com/2026/08/26/world/asia/nepal-floods-tibet-missing.html
 
 **Pacientes de EE. UU. encuentran riesgos en clínicas de psicodélicos de América Latina**\
 `En medio del creciente interés por los tratamientos con sustancias psicodélicas, los estadounidenses viajan al extranjero, a menudo a Latinoamérica, en busca de terapias que alteran la mente y que siguen siendo ilegales en EE. UU.`\
