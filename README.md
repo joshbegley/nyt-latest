@@ -1,3 +1,7 @@
+**Conservative Media Personality Makes Runoff for Alaska Governor**\
+`Bernadette Wilson, who has appealed to other Republicans to consolidate around her party’s top finisher, will be one of four finalists on the ranked-choice ballot in November.`\
+https://www.nytimes.com/2026/08/26/us/politics/bernadette-wilson-alaska-governor.html
+
 **In Headache for Republicans, Second Dan Sullivan Advances in Alaska Senate Race**\
 `A long-shot candidate with the same name as the incumbent Republican senator will be on the ballot in November. That could be a problem for the G.O.P.`\
 https://www.nytimes.com/2026/08/26/us/politics/dan-sullivan-alaska-senate-midterms.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/08/25/us/politics/log-cabin-republicans-transgender
 **Forbes and Shook Research Suspend Rankings Amid Investigation of $6 Million Payment**\
 `The magazine, which is reviewing a payment from the founder of Shook Research to its former top editor, also canceled a summit in Las Vegas scheduled for October.`\
 https://www.nytimes.com/2026/08/25/business/media/forbes-shook-research-payment.html
-
-**Court Documents Suggest Rebel Wilson Ordered Websites Attacking Producer**\
-`New documents filed on Tuesday in Los Angeles appear to show that Ms. Wilson, the actress, was heavily involved in disparaging Amanda Ghost, a producer on her movie, “The Deb.”`\
-https://www.nytimes.com/2026/08/25/nyregion/rebel-wilson-the-deb-producer-amanda-ghost.html
 
 **Darline Graham, With Push From Trump, Wins Senate Primary in South Carolina**\
 `President Trump helped lift Ms. Graham from relative obscurity after the death of her brother, Lindsey Graham, six weeks ago. In Oklahoma, another Trump-backed candidate, Mike Mazzei, won the nomination for governor.`\
