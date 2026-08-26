@@ -11,7 +11,7 @@ https://www.nytimes.com/live/2026/08/26/world/nepal-floods
 https://www.nytimes.com/2026/08/26/briefing/theyre-done-with-trump.html
 
 **Kurdish-Led Militia in Syria Disbands in Boost for U.S.-Backed Government**\
-`The Syrian Democratic Forces, a Kurdish-led armed group, will integrate with the country’s military, in a sign of its weakened role.`\
+`The Syrian Democratic Forces, a Kurdish-led armed group that has lost territory and authority in recent months, will integrate with the country’s military.`\
 https://www.nytimes.com/2026/08/26/world/middleeast/kurdish-militia-syria-disbands.html
 
 **The Stunning Rise of the Democratic Socialists of America**\
