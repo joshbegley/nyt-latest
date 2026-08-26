@@ -1,3 +1,7 @@
+**The South Loved Dolly Parton. It Saw the Best of Itself in Her.**\
+`Even as her talents and work ethic opened up the world to her, she kept coming home. For many in the complicated region she’s from, that meant a lot.`\
+https://www.nytimes.com/2026/08/26/us/dolly-parton-south.html
+
 **New Studies Link Menopause Hormone Therapy to Lower Alzheimer’s Risk**\
 `But outside experts point to significant limitations of the research and say the findings should not be seen as definitive.`\
 https://www.nytimes.com/2026/08/26/well/alzheimers-hormone-therapy-menopause-studies.html
@@ -71,7 +75,7 @@ https://www.nytimes.com/2026/08/26/nyregion/mciver-trump-delaney-hall-decision.h
 https://www.nytimes.com/2026/08/26/arts/music/dolly-parton-publishing-i-will-always-love-you.html
 
 **Judge Allows Postal Service Effort to Restrict Mail Voting, for Now**\
-`The ruling came amid a spate of legal challenges, including one by Democratic state attorneys general to new rules devised to meet the president’s demands on voter verification.`\
+`The order came amid a spate of legal challenges, including one by Democratic state attorneys general, that could still result in the rules being blocked.`\
 https://www.nytimes.com/2026/08/26/us/politics/states-lawsuit-mail-ballot-order.html
 
 **On Happiness, Politics, Language and the Universe: The Week 10 Winners of Our Summer Reading Contest**\
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/08/26/world/middleeast/trump-official-israel-jeopar
 **Dolly Parton Was a Trailblazer in Business, Too**\
 `Her vision to launch businesses to bring fans closer while protecting her intellectual property was ahead of her time.`\
 https://www.nytimes.com/2026/08/26/business/dolly-parton-businesses.html
-
-**Dolly Parton’s Viral Moments, From the Grammys With Whitney Houston to Her Moderna Vaccine Song**\
-`After the country music legend died on Tuesday, fans shared clips of their favorite moments of the singer.`\
-https://www.nytimes.com/2026/08/26/arts/music/dolly-parton-viral-moments.html
 
 **Live Updates: At Least 160 Killed and Hundreds Missing as Floods Sweep Away Villages in Nepal**\
 `A wall of water crashed through a Himalayan river valley between Nepal and the Chinese territory of Tibet, the Nepali authorities said. The missing included border officials, port workers and foreign tourists.`\

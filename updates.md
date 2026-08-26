@@ -1,3 +1,11 @@
+**The South Loved Dolly Parton. It Saw the Best of Itself in Her.**\
+`Even as her talents and work ethic opened up the world to her, she kept coming home. For many in the complicated region she’s from, that meant a lot.`\
+https://www.nytimes.com/2026/08/26/us/dolly-parton-south.html
+
+**Judge Allows Postal Service Effort to Restrict Mail Voting, for Now**\
+`The order came amid a spate of legal challenges, including one by Democratic state attorneys general, that could still result in the rules being blocked.`\
+https://www.nytimes.com/2026/08/26/us/politics/states-lawsuit-mail-ballot-order.html
+
 **New Studies Link Menopause Hormone Therapy to Lower Alzheimer’s Risk**\
 `But outside experts point to significant limitations of the research and say the findings should not be seen as definitive.`\
 https://www.nytimes.com/2026/08/26/well/alzheimers-hormone-therapy-menopause-studies.html
