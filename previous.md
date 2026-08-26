@@ -1,3 +1,7 @@
+**Trump’s Efforts to Sow Election Doubts Get Boost from Initial Court Order**\
+`A preliminary Supreme Court ruling could leave voters confused about casting ballots by mail, even as President Trump’s executive order is being litigated in the lower courts, experts said.`\
+https://www.nytimes.com/2026/08/25/us/politics/trump-voting-doubt-mail-ballots.html
+
 **Experts for Prosecution Discuss Clancy’s Mental State at Time of Killings**\
 `Lindsay Clancy has said she was suffering postpartum psychosis when she killed her children in 2023. Prosecution experts shared their doubts about that claim on Tuesday.`\
 https://www.nytimes.com/2026/08/25/us/lindsay-clancy-trial.html
@@ -150,8 +154,8 @@ https://www.nytimes.com/interactive/2026/08/25/us/elections/results-oklahoma-ins
 `Get live results and maps from the 2026 Georgia special runoff election.`\
 https://www.nytimes.com/interactive/2026/08/25/us/elections/results-georgia-us-house-13-special-runoff.html
 
-**Election Live Updates: Polls Close in South Carolina, Where Trump Backed Lindsey Graham’s Sister**\
-`Darline Graham, the sister of the late Senator Lindsey Graham, had President Trump’s support in her race against Ralph Norman for the South Carolina seat. Oklahoma is also holding primary runoffs.`\
+**Election Live Updates: Counting Underway in South Carolina, Where Trump Backed Lindsey Graham’s Sister**\
+`Darline Graham, the sister of the late Senator Graham, had President Trump’s support in her race against Ralph Norman for the South Carolina seat. Oklahoma is also holding primary runoffs.`\
 https://www.nytimes.com/live/2026/08/25/us/elections-south-carolina-oklahoma
 
 **MAHA Moms Take On Coal**\
@@ -189,12 +193,4 @@ https://www.nytimes.com/2026/08/25/opinion/lindsay-clancy-postpartum-mom-kids-de
 **What’s More Than ‘Maximum’? Trump Faces Limits on Iran Sanctions.**\
 `President Trump’s “Economic D-Day” is intended to break the stalemate with Iran. But decades of sanctions have done little to change the country’s behavior.`\
 https://www.nytimes.com/2026/08/25/us/politics/trump-iran-maximum-sanctions.html
-
-**5 Takeaways on the Fallout From an Alarming C.T.E. Study**\
-`At least one in four N.F.L. players, and likely a much higher percentage, had the brain disease when they died. Will anything change?`\
-https://www.nytimes.com/2026/08/25/us/cte-nfl-football-takeaways.html
-
-**Airstrikes and Illegal Mining Add to Myanmar’s Troubles**\
-`A thriving ‘conflict economy’ is extracting minerals while the military and armed groups inflict abuse on civilians, according to a new report on the scale of recent violence in Myanmar.`\
-https://www.nytimes.com/2026/08/25/world/asia/myanmar-junta-violence-rohingya.html
 

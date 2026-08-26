@@ -1,3 +1,11 @@
+**Trump’s Efforts to Sow Election Doubts Get Boost from Initial Court Order**\
+`A preliminary Supreme Court ruling could leave voters confused about casting ballots by mail, even as President Trump’s executive order is being litigated in the lower courts, experts said.`\
+https://www.nytimes.com/2026/08/25/us/politics/trump-voting-doubt-mail-ballots.html
+
+**Election Live Updates: Counting Underway in South Carolina, Where Trump Backed Lindsey Graham’s Sister**\
+`Darline Graham, the sister of the late Senator Graham, had President Trump’s support in her race against Ralph Norman for the South Carolina seat. Oklahoma is also holding primary runoffs.`\
+https://www.nytimes.com/live/2026/08/25/us/elections-south-carolina-oklahoma
+
 **Experts for Prosecution Discuss Clancy’s Mental State at Time of Killings**\
 `Lindsay Clancy has said she was suffering postpartum psychosis when she killed her children in 2023. Prosecution experts shared their doubts about that claim on Tuesday.`\
 https://www.nytimes.com/2026/08/25/us/lindsay-clancy-trial.html
