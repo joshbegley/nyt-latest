@@ -1,3 +1,15 @@
+**What to Know About Deadly Flash Floods in Nepal and Tibet**\
+`An avalanche may have caused an unusual flash flood without heavy rainfall, with hundreds of people unaccounted for in the path of destruction. Here’s what to know.`\
+https://www.nytimes.com/2026/08/26/world/asia/nepal-tibet-floods-wtk.html
+
+**Texas Law Targeting Drag Shows Is Struck Down Again by Judge**\
+`The judge’s message to people offended by drag performances was, “Just don’t go.” Attorney General Ken Paxton vowed to appeal again.`\
+https://www.nytimes.com/2026/08/26/us/drag-show-ban-texas-judge.html
+
+**The Dollywood Theme Park Captured the Essence of Its Founder**\
+`Her idea to create a “fantasy city” that celebrated her home region turned into a billion-dollar attraction that maintained its authentic feel.`\
+https://www.nytimes.com/2026/08/26/arts/music/dollywood-dolly-parton.html
+
 **Federal Funding for Research on Parents With Disabilities Vanishes**\
 `The government gave no explanation for terminating the funding, which for decades has supported the only national center focused on the issue.`\
 https://www.nytimes.com/2026/08/26/well/parents-disabilities-center-funding-cut-trump.html
@@ -177,18 +189,6 @@ https://www.nytimes.com/2026/08/26/nyregion/nyc-belt-parkway-crash.html
 **PCE Index Shows Inflation Remained Elevated in July Amid High Energy Costs**\
 `The Personal Consumption Expenditure index, the Federal Reserve’s preferred inflation tracker, held steady in July.`\
 https://www.nytimes.com/2026/08/26/business/economy/inflation-pce.html
-
-**Prince Harry and Meghan Arrive in Britain, BBC Reports**\
-`The broadcaster said that the family had landed in the country on Wednesday, without citing sources.`\
-https://www.nytimes.com/2026/08/26/world/europe/prince-harry-meghan-uk-arrival.html
-
-**Wall St. Scrutinizes Nvidia’s Deal Machine**\
-`Investors are awaiting the chipmaker’s latest quarterly earnings — and are anxious about its huge portfolio of artificial intelligence investments.`\
-https://www.nytimes.com/2026/08/26/business/dealbook/nvidia-earnings-ai-investments.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/world/asia/100000011113833/26vid-nepal-cctv-2-93195.html
 
 **Live Updates: At Least 98 Killed and Hundreds Missing as Floods Sweep Away Villages in Nepal**\
 `(No description)`\

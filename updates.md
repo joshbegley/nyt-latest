@@ -1,3 +1,15 @@
+**What to Know About Deadly Flash Floods in Nepal and Tibet**\
+`An avalanche may have caused an unusual flash flood without heavy rainfall, with hundreds of people unaccounted for in the path of destruction. Here’s what to know.`\
+https://www.nytimes.com/2026/08/26/world/asia/nepal-tibet-floods-wtk.html
+
+**Texas Law Targeting Drag Shows Is Struck Down Again by Judge**\
+`The judge’s message to people offended by drag performances was, “Just don’t go.” Attorney General Ken Paxton vowed to appeal again.`\
+https://www.nytimes.com/2026/08/26/us/drag-show-ban-texas-judge.html
+
+**The Dollywood Theme Park Captured the Essence of Its Founder**\
+`Her idea to create a “fantasy city” that celebrated her home region turned into a billion-dollar attraction that maintained its authentic feel.`\
+https://www.nytimes.com/2026/08/26/arts/music/dollywood-dolly-parton.html
+
 **Federal Funding for Research on Parents With Disabilities Vanishes**\
 `The government gave no explanation for terminating the funding, which for decades has supported the only national center focused on the issue.`\
 https://www.nytimes.com/2026/08/26/well/parents-disabilities-center-funding-cut-trump.html
