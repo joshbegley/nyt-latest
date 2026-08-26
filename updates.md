@@ -1,3 +1,19 @@
+**El precio del diésel se acerca a un máximo histórico**\
+`El combustible, utilizado en maquinaria agrícola, camiones y otros equipos pesados, ha aumentado su costo debido a la guerra en Irán y a los ataques ucranianos contra las refinerías rusas.`\
+https://www.nytimes.com/es/2026/08/26/espanol/negocios/combustible-diesel-precio-aumento.html
+
+**With ‘Killer in the Code,’ Michael Connelly Puts His Reputation on the Line**\
+`The novelist Michael Connelly knows he is putting his reputation on the line with the podcast “Killer in the Code.” But despite critics’ skepticism, he finds the evidence “completely convincing.”`\
+https://www.nytimes.com/2026/08/26/arts/michael-connelly-black-dahlia-zodiac-podcast.html
+
+**Peter Nadas, Author of ‘the Greatest Novel Written in Our Time,’ Dies at 83**\
+`Susan Sontag gave that high praise to “A Book of Memories” (1986), a labyrinthine chronicle of life under Communism.`\
+https://www.nytimes.com/2026/08/26/books/peter-nadas-dead.html
+
+**Live Updates: At Least 95 Killed and Hundreds Missing as Floods Sweep Away Villages in Nepal**\
+`A wall of water crashed through a Himalayan river valley between Nepal and the Chinese territory of Tibet, the Nepali authorities said. The missing included border officials, port workers and foreign tourists.`\
+https://www.nytimes.com/live/2026/08/26/world/nepal-floods
+
 **Bill Gates advierte que la IA es más peligrosa de lo que la industria tecnológica admite**\
 `En una larga entrevista, el magnate dijo que su industria estaba minimizando los riesgos de la tecnología, los cuales cree que incluyen el desempleo masivo y el bioterrorismo.`\
 https://www.nytimes.com/es/2026/08/26/espanol/negocios/bill-gates-advierte-ia.html

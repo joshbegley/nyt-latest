@@ -1,3 +1,15 @@
+**El precio del diésel se acerca a un máximo histórico**\
+`El combustible, utilizado en maquinaria agrícola, camiones y otros equipos pesados, ha aumentado su costo debido a la guerra en Irán y a los ataques ucranianos contra las refinerías rusas.`\
+https://www.nytimes.com/es/2026/08/26/espanol/negocios/combustible-diesel-precio-aumento.html
+
+**With ‘Killer in the Code,’ Michael Connelly Puts His Reputation on the Line**\
+`The novelist Michael Connelly knows he is putting his reputation on the line with the podcast “Killer in the Code.” But despite critics’ skepticism, he finds the evidence “completely convincing.”`\
+https://www.nytimes.com/2026/08/26/arts/michael-connelly-black-dahlia-zodiac-podcast.html
+
+**Peter Nadas, Author of ‘the Greatest Novel Written in Our Time,’ Dies at 83**\
+`Susan Sontag gave that high praise to “A Book of Memories” (1986), a labyrinthine chronicle of life under Communism.`\
+https://www.nytimes.com/2026/08/26/books/peter-nadas-dead.html
+
 **Bill Gates advierte que la IA es más peligrosa de lo que la industria tecnológica admite**\
 `En una larga entrevista, el magnate dijo que su industria estaba minimizando los riesgos de la tecnología, los cuales cree que incluyen el desempleo masivo y el bioterrorismo.`\
 https://www.nytimes.com/es/2026/08/26/espanol/negocios/bill-gates-advierte-ia.html
@@ -106,7 +118,7 @@ https://www.nytimes.com/2026/08/26/us/politics/uss-abraham-lincoln-sailor-father
 `Iran and Oman said they would create a temporary shipping lane and clear mines in the waterway. Global oil prices eased after the joint announcement.`\
 https://www.nytimes.com/2026/08/26/world/middleeast/iran-oman-strait-hormuz.html
 
-**Live Updates: At Least 72 Killed and Hundreds Missing as Floods Sweep Away Villages in Nepal**\
+**Live Updates: At Least 95 Killed and Hundreds Missing as Floods Sweep Away Villages in Nepal**\
 `A wall of water crashed through a Himalayan river valley between Nepal and the Chinese territory of Tibet, the Nepali authorities said. The missing included border officials, port workers and foreign tourists.`\
 https://www.nytimes.com/live/2026/08/26/world/nepal-floods
 
@@ -154,13 +166,13 @@ https://www.nytimes.com/es/2026/08/26/espanol/ciencia-y-tecnologia/alarma-ataque
 `Lèse-majesté, American-style.`\
 https://www.nytimes.com/2026/08/26/opinion/trump-king-canada-trade-war.html
 
-**A Question for the Formerly Woke**\
-`Before a Woke 2 takes over, let the proponents of its predecessor explain how and why they’re moving on.`\
-https://www.nytimes.com/2026/08/26/opinion/aoc-woke-1.html
-
 **Even as Trump’s Standing Slips, He Slingshots Darline Graham to Victory**\
 `After facing low approval ratings and endorsement setbacks, the president made a show of force in lifting Darline Graham to the Republican nomination for Senate in South Carolina.`\
 https://www.nytimes.com/2026/08/26/us/politics/trump-republicans-darline-graham-south-carolina.html
+
+**A Question for the Formerly Woke**\
+`Before a Woke 2 takes over, let the proponents of its predecessor explain how and why they’re moving on.`\
+https://www.nytimes.com/2026/08/26/opinion/aoc-woke-1.html
 
 **‘You’re Ruining My Dreams’: C.T.E. Study Adds to Family Tension Over Football**\
 `Many families are engaged in tense debates after a new study found a high percentage of N.F.L. players had developed degenerative brain disease.`\
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/08/26/realestate/homes-for-sale-providence-tulsa-sa
 **Canadians Stand Their Ground Amid New Trump Tariffs and Expanding U.S.-Canada Trade War**\
 `Business owners are preparing for financial pain after the latest U.S.-Canada trade talks collapsed. But many Canadians are embracing a show of resistance.`\
 https://www.nytimes.com/2026/08/26/world/canada/carney-canada-trump-tariffs-retaliate.html
-
-**Bessent Faces Credibility Test in Quest to Tame Markets**\
-`The Treasury secretary is confronting the limits of his ability to reshape the economy ahead of midterm elections.`\
-https://www.nytimes.com/2026/08/26/business/scott-bessent-economy-markets.html
-
-**Medication Mix-Up Leaves Knee Surgery Patient Paralyzed**\
-`A patient was unable to move from the sternum down after a routine knee-replacement operation at a Nashville hospital this month. The hospital said she had been given the wrong anesthetic.`\
-https://www.nytimes.com/2026/08/26/us/nashville-hospital-patient-paralyzed-medication-mixup.html
-
-**The Street Symbols That Are Art in Plain Sight**\
-`Color markings on city sidewalks guide construction crews, but they also serve as a visual language.`\
-https://www.nytimes.com/2026/08/26/nyregion/the-street-symbols-that-are-art-in-plain-sight.html
 

@@ -1,3 +1,11 @@
+**F.D.A. Approves the Drug Daraxonrasib That’s Poised to Transform Pancreatic Cancer**\
+`In a key clinical trial, patients who got the pill, daraxonrasib, lived twice as long as those who got chemotherapy.`\
+https://www.nytimes.com/2026/08/26/science/pancreatic-cancer-daraxonrasib-approval.html
+
+**Meet Dean Roy, the 15-Year-Old Running for Vermont Governor and Ready for ‘Impact’**\
+`Dean Roy, 15, will appear on the ballot in November as a third-party candidate. He said his generation’s concerns, like affordability and climate change, have been ignored for too long.`\
+https://www.nytimes.com/2026/08/26/us/politics/dean-roy-vermont-governor-election.html
+
 **El precio del diésel se acerca a un máximo histórico**\
 `El combustible, utilizado en maquinaria agrícola, camiones y otros equipos pesados, ha aumentado su costo debido a la guerra en Irán y a los ataques ucranianos contra las refinerías rusas.`\
 https://www.nytimes.com/es/2026/08/26/espanol/negocios/combustible-diesel-precio-aumento.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/es/2026/08/26/espanol/cuidadores-amistad.html
 **‘Honeymoon’s Over’: Warsh Under Pressure as Fed Weighs Raising Rates**\
 `Kevin M. Warsh is scheduled to deliver his first address at the Federal Reserve’s annual conference in Jackson, Wyo., with U.S. government bond markets on edge and inflation risks resurfacing.`\
 https://www.nytimes.com/2026/08/26/business/kevin-warsh-federal-reserve-jackson.html
-
-**Which $725,000 Home Would You Choose?**\
-`This week’s properties are in Providence, R.I.; Tulsa, Okla.; and Salt Lake City.`\
-https://www.nytimes.com/2026/08/26/realestate/homes-for-sale-providence-tulsa-salt-lake-city.html
-
-**Canadians Stand Their Ground Amid New Trump Tariffs and Expanding U.S.-Canada Trade War**\
-`Business owners are preparing for financial pain after the latest U.S.-Canada trade talks collapsed. But many Canadians are embracing a show of resistance.`\
-https://www.nytimes.com/2026/08/26/world/canada/carney-canada-trump-tariffs-retaliate.html
 
