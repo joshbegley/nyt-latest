@@ -1,3 +1,7 @@
+**The Beginnings of ‘It Ends’**\
+`How the writer-director Alexander Ullom turned post-grad existential anxiety and a tiny budget into his breakout debut horror film.`\
+https://www.nytimes.com/2026/08/26/movies/it-ends-behind-the-scenes.html
+
 **Can We Kick a Woman Out of Our Mahjong Group Because She Plays Too Slowly?**\
 `Her table plays half as many games as the others, and many members refuse to play with her.`\
 https://www.nytimes.com/2026/08/26/magazine/mahjong-group-ethics.html
