@@ -1,3 +1,7 @@
+**¿Estamos ante una nueva era de la lucha de clases?**\
+`La violencia de clase del pasado formaba parte de un conflicto más extendido. Hoy, la violencia es un fin en sí misma.`\
+https://www.nytimes.com/es/2026/08/26/espanol/opinion/nueva-lucha-de-clases.html
+
 **Conservative Media Personality Makes Runoff for Alaska Governor**\
 `Bernadette Wilson, who has appealed to other Republicans to consolidate around her party’s top finisher, will be one of four finalists on the ranked-choice ballot in November.`\
 https://www.nytimes.com/2026/08/26/us/politics/bernadette-wilson-alaska-governor.html
