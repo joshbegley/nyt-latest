@@ -1,3 +1,11 @@
+**Tiny Love Stories: ‘I Believed Him for Over a Year’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/08/26/style/tiny-modern-love-stories-i-believed-him-for-over-a-year.html
+
+**Judge Allows Postal Service Effort to Restrict Mail Voting, for Now**\
+`The ruling came amid a spate of legal challenges, including one by Democratic state attorneys general to new rules devised to meet the president’s demands on voter verification.`\
+https://www.nytimes.com/2026/08/26/us/politics/states-lawsuit-mail-ballot-order.html
+
 **Trump’s Primary Endorsement Strategy Has Picked Winners and Safe Bets**\
 `Of the hundreds of Republicans President Trump has endorsed this cycle, an overwhelming majority have coasted to victory. However, many are safe bets.`\
 https://www.nytimes.com/interactive/2026/08/26/us/politics/trump-primary-midterms-endorsements.html

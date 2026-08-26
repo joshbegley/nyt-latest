@@ -1,3 +1,7 @@
+**Tiny Love Stories: ‘I Believed Him for Over a Year’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/08/26/style/tiny-modern-love-stories-i-believed-him-for-over-a-year.html
+
 **Trump’s Primary Endorsement Strategy Has Picked Winners and Safe Bets**\
 `Of the hundreds of Republicans President Trump has endorsed this cycle, an overwhelming majority have coasted to victory. However, many are safe bets.`\
 https://www.nytimes.com/interactive/2026/08/26/us/politics/trump-primary-midterms-endorsements.html
@@ -58,8 +62,8 @@ https://www.nytimes.com/2026/08/26/nyregion/mciver-trump-delaney-hall-decision.h
 `When Elvis Presley wanted to record the song, Parton made the hard-nosed decision to protect her ownership of her work.`\
 https://www.nytimes.com/2026/08/26/arts/music/dolly-parton-publishing-i-will-always-love-you.html
 
-**States File Fresh Challenge to Trump’s Mail-In Voting Restrictions**\
-`A new lawsuit brought by a coalition of Democratic state attorneys general took aim at postal regulations designed to meet the president’s demands on voter verification.`\
+**Judge Allows Postal Service Effort to Restrict Mail Voting, for Now**\
+`The ruling came amid a spate of legal challenges, including one by Democratic state attorneys general to new rules devised to meet the president’s demands on voter verification.`\
 https://www.nytimes.com/2026/08/26/us/politics/states-lawsuit-mail-ballot-order.html
 
 **On Happiness, Politics, Language and the Universe: The Week 10 Winners of Our Summer Reading Contest**\
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/08/26/theater/rupert-grint-harry-potter-broadway.ht
 **Meta to Pay Up to $17.1 Billion in Landmark Settlement Over Social Media Addiction Claims**\
 `The social media giant settled with 47 states, the District of Columbia and U.S. territories, and agreed to make major changes to its products over claims its platforms endangered children.`\
 https://www.nytimes.com/2026/08/26/technology/meta-settlement-social-media-addiction-lawsuit.html
-
-**I’m Already Dreading My In-Laws’ Comments on My Pregnancy. Help!**\
-`A reader worries that her father-in-law’s mansplaining and her mother-in-law’s anxiety will crank into overdrive once she’s carrying their grandchild.`\
-https://www.nytimes.com/2026/08/26/style/in-laws-pregnancy-commentary.html
 
 **Live Updates: At Least 98 Killed and Hundreds Missing as Floods Sweep Away Villages in Nepal**\
 `(No description)`\
