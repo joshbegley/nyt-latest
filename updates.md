@@ -1,3 +1,11 @@
+**Kurdish-Led Militia in Syria Disbands in Boost for U.S.-Backed Government**\
+`The Syrian Democratic Forces, a Kurdish-led armed group that has lost territory and authority in recent months, will integrate with the country’s military.`\
+https://www.nytimes.com/2026/08/26/world/middleeast/kurdish-militia-syria-disbands.html
+
+**Families Debate Whether Children Should Play Football, After New C.T.E. Study**\
+`Many families are engaged in tense debates after a new study found a high percentage of N.F.L. players had developed degenerative brain disease.`\
+https://www.nytimes.com/2026/08/26/us/parents-football-cte-decisions.html
+
 **Iran and Oman Report Progress in Talks on Strait of Hormuz**\
 `The two countries said they would create a temporary shipping lane and clear mines in the waterway. Global oil prices dipped after the joint announcement.`\
 https://www.nytimes.com/2026/08/26/world/middleeast/iran-oman-strait-hormuz.html

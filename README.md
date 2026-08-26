@@ -1,3 +1,19 @@
+**Dolly Parton’s One-Day Songwriting Feat**\
+`Two of her defining hits — “Jolene” and “I Will Always Love You” — were written in the same day. In different ways, they found sturdy melodies for precarious emotions.`\
+https://www.nytimes.com/2026/08/26/arts/music/dolly-parton-jolene-i-will-always-love-you.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/asia/100000011113814/26vid-nepal-cctv-49655.html
+
+**Why Is This Picture at Every Sex Party?**\
+`Jess Zakira Wise shares her early experiences at sex parties.`\
+https://www.nytimes.com/video/podcasts/100000011113819/why-is-this-picture-at-every-sex-party.html
+
+**U.S.S. Abraham Lincoln Sailor Says Father Arrested by Border Patrol Has Been Released**\
+`Joshua Aviles, a Navy sailor, said his father had been freed days after he was detained as Mr. Aviles returned from a lengthy deployment in the Middle East.`\
+https://www.nytimes.com/2026/08/26/us/politics/uss-abraham-lincoln-sailor-father-arrested-immigration-released.html
+
 **Iran and Oman Report Progress in Talks on Strait of Hormuz**\
 `The two countries said they would create a temporary shipping lane and clear mines in the waterway. Global oil prices dipped after the joint announcement.`\
 https://www.nytimes.com/2026/08/26/world/middleeast/iran-oman-strait-hormuz.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/08/26/fashion/jewelry-pattaraphan-salirathavibhaga-
 **This Jewelry Maker Overcame an Inability to Visualize Design**\
 `The Irish jewelry maker Mark Newman made his own creative system, inspired by functional patterns such as road layouts.`\
 https://www.nytimes.com/2026/08/26/fashion/jewelry-aphantasia-mark-newman.html
-
-**Why Not Add A Gem-Studded Accent to Your Handbag?**\
-`Designers are creating fine jewelry pieces with an eye to reinventing how they are worn.`\
-https://www.nytimes.com/2026/08/26/fashion/jewelry-for-your-handbag.html
-
-**The Allure of Japan’s Jewelry Resale Market**\
-`Its reputation for rigorously assessing pieces before offering them for sale attracts buyers from around the world.`\
-https://www.nytimes.com/2026/08/26/fashion/japan-jewelry-resale-market.html
-
-**Sodalite Is a Blue Stone With a Cool Vibe**\
-`Sodalite has been taking the place of pricey lapis lazuli in some jewelry creations.`\
-https://www.nytimes.com/2026/08/26/fashion/jewelry-sodalite-louis-vuitton.html
-
-**Trust in Talismans Shapes This Jewelry Designer’s Line**\
-`Evil eyes and clovers are just some of the symbols in the Kismet by Milka collection.`\
-https://www.nytimes.com/2026/08/26/fashion/jewelry-kismet-by-milka-istanbul.html
 

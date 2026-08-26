@@ -11,7 +11,7 @@ https://www.nytimes.com/live/2026/08/26/world/nepal-floods
 https://www.nytimes.com/2026/08/26/briefing/theyre-done-with-trump.html
 
 **Kurdish-Led Militia in Syria Disbands in Boost for U.S.-Backed Government**\
-`The Syrian Democratic Forces, a Kurdish-led armed group, will integrate with the country’s military, in a sign of its weakened role.`\
+`The Syrian Democratic Forces, a Kurdish-led armed group that has lost territory and authority in recent months, will integrate with the country’s military.`\
 https://www.nytimes.com/2026/08/26/world/middleeast/kurdish-militia-syria-disbands.html
 
 **The Stunning Rise of the Democratic Socialists of America**\
@@ -58,7 +58,7 @@ https://www.nytimes.com/2026/08/26/opinion/aoc-woke-1.html
 `After facing low approval ratings and endorsement setbacks, the president made a show of force in lifting Darline Graham to the Republican nomination for Senate in South Carolina.`\
 https://www.nytimes.com/2026/08/26/us/politics/trump-republicans-darline-graham-south-carolina.html
 
-**Their Children Want to Play Football. Parents Ask: Is It Worth the Risk?**\
+**Families Debate Whether Children Should Play Football, After New C.T.E. Study**\
 `Many families are engaged in tense debates after a new study found a high percentage of N.F.L. players had developed degenerative brain disease.`\
 https://www.nytimes.com/2026/08/26/us/parents-football-cte-decisions.html
 
