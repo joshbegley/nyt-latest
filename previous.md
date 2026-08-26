@@ -1,3 +1,11 @@
+**Bill Gates Is Warning That A.I. Is More Dangerous Than Big Tech Will Admit**\
+`In an hourlong interview, he said his industry was downplaying the risks, which he believes include mass unemployment and bioterrorism.`\
+https://www.nytimes.com/2026/08/26/technology/bill-gates-ai-risks.html
+
+**NYT Spelling Bee Answers for August 26, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/08/26/crosswords/spelling-bee-forum.html
+
 **At Least 14 Newborns Die in Hospital Fire in Pakistan’s Capital**\
 `The fire broke out on the third floor of Islamabad’s largest hospital.`\
 https://www.nytimes.com/2026/08/26/world/asia/pakistan-islamabad-hospital-fire.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/video/podcasts/the-daily/100000011111596/sheltering-from
 **How Welfare Became a ‘Tool of Humiliation’**\
 `Accessing public benefits often requires navigating a burdensome amount of paperwork and bureaucracy — what the journalist Annie Lowrey calls “the time tax.” On “The Ezra Klein Show,” she explains why administrative hurdles that may seem neutral can function as tools of social control.`\
 https://www.nytimes.com/video/opinion/100000011107033/how-welfare-became-a-tool-of-humiliation.html
-
-**Dolly Parton Was Someone We Could All Agree On. Even in Polls.**\
-`Few could match the bipartisan support that Ms. Parton received in public opinion polls. Not even Taylor Swift.`\
-https://www.nytimes.com/2026/08/25/us/dolly-parton-polls-bipartisan.html
-
-**Len Brown, the Kidlike Creator of ‘Mars Attacks,’ Dies at 84**\
-`He brought a juvenile creative sensibility to the Topps Chewing Gum company, where he was able to unerringly predict what would appeal to adolescents.`\
-https://www.nytimes.com/2026/08/25/arts/len-brown-dead.html
 
 **Darline Graham, With Push From Trump, Wins Senate Primary in South Carolina**\
 `President Trump helped lift Ms. Graham from relative obscurity after the death of her brother, Lindsey Graham, six weeks ago. In Oklahoma, another Trump-backed candidate, Mike Mazzei, won the nomination for governor.`\
