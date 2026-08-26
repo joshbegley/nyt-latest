@@ -18,7 +18,7 @@ https://www.nytimes.com/2026/08/26/crosswords/wordle-review-1895.html
 `Scroll down for hints and conversation about the puzzle for Thursday, Aug. 27, 2026.`\
 https://www.nytimes.com/2026/08/26/crosswords/strands-sidekick-907.html
 
-**Eight Dead, Others Missing as Floods Sweep Away Villages in Nepal**\
+**Eight Dead, Hundreds Missing as Floods Sweep Away Villages in Nepal**\
 `A wall of water swept down a Himalayan river valley shared between Nepal and the Chinese territory of Tibet.`\
 https://www.nytimes.com/2026/08/26/world/asia/nepal-floods-tibet-missing.html
 

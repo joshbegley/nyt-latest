@@ -1,3 +1,7 @@
+**Kurdish-Led Militia in Syria Disbands in Boost for U.S.-Backed Government**\
+`The Syrian Democratic Forces, a Kurdish-led armed group, will integrate with the country’s military, in a sign of its weakened role.`\
+https://www.nytimes.com/2026/08/26/world/middleeast/kurdish-militia-syria-disbands.html
+
 **The Stunning Rise of the Democratic Socialists of America**\
 `Democratic socialists are capturing more votes than ever before — even as they run up against the limits of their appeal.`\
 https://www.nytimes.com/2026/08/26/podcasts/the-daily/democratic-socialism-dsa-elections-primaries.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/26/fashion/jewelry-accenting-your-belt.html
 **Can This English City Keep Its Jewelry Gem?**\
 `The Jewellery Quarter has housed one of Birmingham’s prime industries for centuries, but many now worry that gentrification is changing all that.`\
 https://www.nytimes.com/2026/08/26/fashion/jewelry-quarter-birmingham-england.html
-
-**How the Anvil Was Nearly Dropped on ‘Coyote vs. Acme’**\
-`The live action-animation hybrid comedy fought a real-life studio battle to win its theatrical release.`\
-https://www.nytimes.com/2026/08/26/movies/the-story-behind-coyote-vs-acme.html
 

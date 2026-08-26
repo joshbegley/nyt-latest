@@ -1,3 +1,7 @@
+**Eight Dead, Hundreds Missing as Floods Sweep Away Villages in Nepal**\
+`A wall of water swept down a Himalayan river valley shared between Nepal and the Chinese territory of Tibet.`\
+https://www.nytimes.com/2026/08/26/world/asia/nepal-floods-tibet-missing.html
+
 **The Stunning Rise of the Democratic Socialists of America**\
 `Democratic socialists are capturing more votes than ever before — even as they run up against the limits of their appeal.`\
 https://www.nytimes.com/2026/08/26/podcasts/the-daily/democratic-socialism-dsa-elections-primaries.html
