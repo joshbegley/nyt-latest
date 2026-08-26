@@ -1,3 +1,7 @@
+**14 Newborns Die in Hospital Fire in Pakistan’s Capital**\
+`The fire broke out on the third floor of Islamabad’s largest hospital.`\
+https://www.nytimes.com/2026/08/26/world/asia/pakistan-islamabad-hospital-fire.html
+
 **Bill Gates Is Warning That A.I. Is More Dangerous Than Big Tech Will Admit**\
 `In an hourlong interview, he said his industry was downplaying the risks, which he believes include mass unemployment and bioterrorism.`\
 https://www.nytimes.com/2026/08/26/technology/bill-gates-ai-risks.html

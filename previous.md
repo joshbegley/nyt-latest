@@ -6,7 +6,7 @@ https://www.nytimes.com/2026/08/26/technology/bill-gates-ai-risks.html
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/08/26/crosswords/spelling-bee-forum.html
 
-**At Least 14 Newborns Die in Hospital Fire in Pakistan’s Capital**\
+**14 Newborns Die in Hospital Fire in Pakistan’s Capital**\
 `The fire broke out on the third floor of Islamabad’s largest hospital.`\
 https://www.nytimes.com/2026/08/26/world/asia/pakistan-islamabad-hospital-fire.html
 
