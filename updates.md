@@ -1,3 +1,7 @@
+**Meta to Pay Up to $17 Billion in Landmark Settlement Over Social Media Addiction Claims**\
+`The social media giant settled with 47 states, the District of Columbia and U.S. territories, and agreed to make major changes to its products over claims its platforms endangered children.`\
+https://www.nytimes.com/2026/08/26/technology/meta-settlement-social-media-addiction-lawsuit.html
+
 **Live Updates: Hundreds Missing as Deadly Floods Sweep Away Villages in Nepal**\
 `A wall of water crashed through a Himalayan river valley shared between Nepal and the Chinese territory of Tibet, destroying settlements and killing at least 22 people. Many of the missing were foreign tourists.`\
 https://www.nytimes.com/live/2026/08/26/world/nepal-floods
