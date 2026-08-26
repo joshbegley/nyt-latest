@@ -1,3 +1,19 @@
+**Can We Kick a Woman Out of Our Mahjong Group Because She Plays Too Slowly?**\
+`Her table plays half as many games as the others, and many members refuse to play with her.`\
+https://www.nytimes.com/2026/08/26/magazine/mahjong-group-ethics.html
+
+**¿El príncipe Enrique y Meghan no aprendieron la lección?**\
+`La monarquía ha tolerado una serie asombrosa de comportamientos despreciables de diversos miembros de la realeza, pero no ha pudo soportar a una mujer negra.`\
+https://www.nytimes.com/es/2026/08/26/espanol/opinion/principe-harry-meghan-racismo-familia-real.html
+
+**Summer Weather in L.A. Was Perfect. Then Came Humidity and Mosquitoes.**\
+`Warmer water off the coast has made things slightly swampy for residents used to a succession of splendid days.`\
+https://www.nytimes.com/2026/08/26/us/los-angeles-california-humidity-weather-heat-climate.html
+
+**Tim Curry, Star of ‘Rocky Horror Picture Show,’ Dies at 80**\
+`The actor’s gift for garish eccentricity was indelibly appropriate for the outlandish, cross-dressing mad scientist Frank-N-Furter.`\
+https://www.nytimes.com/2026/08/26/movies/tim-curry-dead.html
+
 **Read the Decision From the Federal Appeals Panel**\
 `The panel ruled that the Constitution does not bar the Trump administration from bringing an assault charge against a Democratic member of Congress.`\
 https://www.nytimes.com/interactive/2026/08/26/nyregion/mciver-trump-delaney-third-circuit-decision.html

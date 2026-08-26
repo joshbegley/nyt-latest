@@ -115,7 +115,7 @@ https://www.nytimes.com/2026/08/26/us/man-arrested-chucky-mask-philadelphia-las-
 https://www.nytimes.com/video/embedded/world/asia/100000011113845/26visualUploader-44227.html
 
 **3 Teenagers Killed in Crash on Brooklyn Highway**\
-`The driver of an S.U.V. was killed, as were two passengers, overnight. Four other people, including the driver and passenger in the other vehicle, were injured.`\
+`The driver of an S.U.V. and two passengers were thrown from the vehicle and pronounced dead at a hospital. Four other people were injured.`\
 https://www.nytimes.com/2026/08/26/nyregion/nyc-belt-parkway-crash.html
 
 **PCE Index Shows Inflation Remained Elevated in July Amid High Energy Costs**\

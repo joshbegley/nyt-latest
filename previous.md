@@ -1,9 +1,21 @@
+**Can We Kick a Woman Out of Our Mahjong Group Because She Plays Too Slowly?**\
+`Her table plays half as many games as the others, and many members refuse to play with her.`\
+https://www.nytimes.com/2026/08/26/magazine/mahjong-group-ethics.html
+
+**¿El príncipe Enrique y Meghan no aprendieron la lección?**\
+`La monarquía ha tolerado una serie asombrosa de comportamientos despreciables de diversos miembros de la realeza, pero no ha pudo soportar a una mujer negra.`\
+https://www.nytimes.com/es/2026/08/26/espanol/opinion/principe-harry-meghan-racismo-familia-real.html
+
+**Summer Weather in L.A. Was Perfect. Then Came Humidity and Mosquitoes.**\
+`Warmer water off the coast has made things slightly swampy for residents used to a succession of splendid days.`\
+https://www.nytimes.com/2026/08/26/us/los-angeles-california-humidity-weather-heat-climate.html
+
 **Read the Decision From the Federal Appeals Panel**\
 `The panel ruled that the Constitution does not bar the Trump administration from bringing an assault charge against a Democratic member of Congress.`\
 https://www.nytimes.com/interactive/2026/08/26/nyregion/mciver-trump-delaney-third-circuit-decision.html
 
-**Tim Curry, Star of ‘Rocky Horror’ and Much More, Dies at 80**\
-`The actor’s gift for garish eccentricity informed a variety of performances, most famously as the outlandish cross-dressing mad scientist Frank-N-Furter.`\
+**Tim Curry, Star of ‘Rocky Horror Picture Show,’ Dies at 80**\
+`The actor’s gift for garish eccentricity was indelibly appropriate for the outlandish, cross-dressing mad scientist Frank-N-Furter.`\
 https://www.nytimes.com/2026/08/26/movies/tim-curry-dead.html
 
 **How Trump Folded the Graham Family Dynasty Into His Own**\
@@ -177,16 +189,4 @@ https://www.nytimes.com/2026/08/26/crosswords/wordle-review-1895.html
 **NYT Strands Hints for August 27, 2026**\
 `Scroll down for hints and conversation about the puzzle for Thursday, Aug. 27, 2026.`\
 https://www.nytimes.com/2026/08/26/crosswords/strands-sidekick-907.html
-
-**Pacientes de EE. UU. encuentran riesgos en clínicas de psicodélicos de América Latina**\
-`En medio del creciente interés por los tratamientos con sustancias psicodélicas, los estadounidenses viajan al extranjero, a menudo a Latinoamérica, en busca de terapias que alteran la mente y que siguen siendo ilegales en EE. UU.`\
-https://www.nytimes.com/es/2026/08/26/espanol/ciencia-y-tecnologia/tratamiento-psicodelico-ibogaina-mexico.html
-
-**American Students Shouldn’t Be Guinea Pigs for Chatbots**\
-`Every minute of delay in regulating A.I. use in schools is another opportunity for Big Tech to fill the vacuum.`\
-https://www.nytimes.com/2026/08/26/opinion/ai-norway-schools.html
-
-**5 capacidades alarmantes que la IA demostró en un ataque autónomo**\
-`Cuando los agentes de OpenAI se salieron de control en julio, demostraron un ingenio y una determinación superiores a lo que los expertos anticipaban. Es un peligroso presagio de lo que estos bots podrían hacer en el futuro.`\
-https://www.nytimes.com/es/2026/08/26/espanol/ciencia-y-tecnologia/alarma-ataque-inteligencia-artifical.html
 
