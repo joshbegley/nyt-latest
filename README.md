@@ -4,7 +4,7 @@ https://www.nytimes.com/2026/08/26/technology/meta-instagram-facebook-settlement
 
 **What Does $17.1 Billion Mean for Meta?**\
 `The Silicon Valley company agreed to pay up to $17.1 billion in penalties as part of a landmark settlement with states over social media addiction claims.`\
-https://www.nytimes.com/2026/08/26/technology/what-does-17-1-billion-mean-for-meta.html
+https://www.nytimes.com/2026/08/26/technology/meta-settlement-dollars-amount.html
 
 **Over 100 Indian Pilgrims Are Among the Missing in Nepal Floods**\
 `Many of them were traveling to or from a Himalayan peak that is revered by Hindus as the spiritual home of the god Shiva.`\

@@ -1,3 +1,23 @@
+**After Meta Settlement, Here’s What Is Changing For Teens on Instagram and Facebook**\
+`Meta agreed to set more time limits and enhance protections in its platforms for young users, but was short on some specifics.`\
+https://www.nytimes.com/2026/08/26/technology/meta-instagram-facebook-settlement.html
+
+**What Does $17.1 Billion Mean for Meta?**\
+`The Silicon Valley company agreed to pay up to $17.1 billion in penalties as part of a landmark settlement with states over social media addiction claims.`\
+https://www.nytimes.com/2026/08/26/technology/what-does-17-1-billion-mean-for-meta.html
+
+**Over 100 Indian Pilgrims Are Among the Missing in Nepal Floods**\
+`Many of them were traveling to or from a Himalayan peak that is revered by Hindus as the spiritual home of the god Shiva.`\
+https://www.nytimes.com/2026/08/26/world/asia/over-100-indian-pilgrims-are-among-the-missing-in-deadly-nepal-floods.html
+
+**Why Dolly Parton Wouldn’t Let Elvis Presley Record ‘I Will Always Love You’**\
+`When Elvis Presley wanted to record the song, Parton made the hard-nosed decision to protect her ownership of her work.`\
+https://www.nytimes.com/2026/08/26/arts/music/dolly-parton-publishing-i-will-always-love-you.html
+
+**Live Updates: At Least 98 Killed and Hundreds Missing as Floods Sweep Away Villages in Nepal**\
+`(No description)`\
+https://www.nytimes.com/live/2026/08/26/world/nepal-floods
+
 **¿De qué murió Dolly Parton?**\
 `No está claro en qué momento recibió el diagnóstico de cáncer. Hace poco más de una semana, faltó a una aparición programada en Dollywood.`\
 https://www.nytimes.com/es/2026/08/26/espanol/cultura/dolly-parton-de-que-murio-cancer.html
