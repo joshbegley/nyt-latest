@@ -1,3 +1,11 @@
+**A Tax Program for Development in Chicago Left Poor Areas Behind, Study Says**\
+`New research suggests that TIF, a multibillion dollar tax program intended to revive the city’s blighted neighborhoods, has mostly benefited downtown areas.`\
+https://www.nytimes.com/2026/08/26/us/tif-chicago-study-tax-program-downtown.html
+
+**Iran War Weighs on Virginia Beach Voters in Key House Race**\
+`The conflict with Iran is uniquely salient to the Virginia Beach voters deciding which party will win a critical House contest.`\
+https://www.nytimes.com/2026/08/26/us/politics/virginia-beach-congressional-election-iran-war.html
+
 **Dolly Parton Fans React to Country Star’s Death**\
 `Fans of Dolly Parton expressed shock and reflected on her legacy after her death on Tuesday`\
 https://www.nytimes.com/video/arts/music/100000011113661/dolly-parton-fans-react-to-country-stars-death.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/08/26/world/middleeast/kurdish-militia-syria-disban
 **The Stunning Rise of the Democratic Socialists of America**\
 `Democratic socialists are capturing more votes than ever before — even as they run up against the limits of their appeal.`\
 https://www.nytimes.com/2026/08/26/podcasts/the-daily/democratic-socialism-dsa-elections-primaries.html
-
-**Hegseth’s Army Purge, and Polling Chaos in the Midterms**\
-`Plus, there was no one like Dolly Parton.`\
-https://www.nytimes.com/2026/08/26/podcasts/the-headlines/hegseth-military-generals-midterms-polls-dolly-parton.html
-
-**NYT Connections Answers for August 27, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, Aug. 27, 2026.`\
-https://www.nytimes.com/2026/08/26/crosswords/connections-companion-1173.html
 

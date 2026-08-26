@@ -1,3 +1,7 @@
+**Oil Prices Dip on News of Progress in Hormuz Talks**\
+`The two countries said they would create a temporary shipping lane and clear mines in the waterway. Global oil prices dipped after the joint announcement.`\
+https://www.nytimes.com/2026/08/26/world/middleeast/iran-oman-strait-hormuz.html
+
 **Dolly Parton Fans React to Country Star’s Death**\
 `Fans of Dolly Parton expressed shock and reflected on her legacy after her death on Tuesday`\
 https://www.nytimes.com/video/arts/music/100000011113661/dolly-parton-fans-react-to-country-stars-death.html
