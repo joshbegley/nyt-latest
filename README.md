@@ -1,3 +1,7 @@
+**Darline Graham Wins Republican Senate Nomination in South Carolina**\
+`Senator Darline Graham, who received President Trump’s backing, defeated Representative Ralph Norman, a five-term congressman, in the Republican primary runoff in South Carolina.`\
+https://www.nytimes.com/video/us/politics/100000011113537/south-carolina-senate-darline-graham.html
+
 **Bill Gates Is Warning That A.I. Is More Dangerous Than Big Tech Will Admit**\
 `In an hourlong interview, he said his industry was downplaying the risks, which he believes include mass unemployment and bioterrorism.`\
 https://www.nytimes.com/2026/08/26/technology/bill-gates-ai-risks.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/08/25/weather/tropical-storm-dolly.html
 **Sheltering From a Russian Missile Attack in Kyiv**\
 `As Russian missiles struck Ukraine’s capital, our correspondent Constant Méheut sheltered underground. Here’s what he shared from a subway station in Kyiv while speaking to Natalie Kitroeff on “The Call.”`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011111596/sheltering-from-a-russian-missile-attack-in-kyiv.html
-
-**How Welfare Became a ‘Tool of Humiliation’**\
-`Accessing public benefits often requires navigating a burdensome amount of paperwork and bureaucracy — what the journalist Annie Lowrey calls “the time tax.” On “The Ezra Klein Show,” she explains why administrative hurdles that may seem neutral can function as tools of social control.`\
-https://www.nytimes.com/video/opinion/100000011107033/how-welfare-became-a-tool-of-humiliation.html
 
 **Darline Graham, With Push From Trump, Wins Senate Primary in South Carolina**\
 `President Trump helped lift Ms. Graham from relative obscurity after the death of her brother, Lindsey Graham, six weeks ago. In Oklahoma, another Trump-backed candidate, Mike Mazzei, won the nomination for governor.`\
