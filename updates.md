@@ -1,3 +1,15 @@
+**How Darline Graham’s Politics Compare With Her Brother’s as She Runs for Senate**\
+`Senator Darline Graham has spoken far more about her desire to support President Trump’s agenda than she has talked about her brother’s political goals — or her own.`\
+https://www.nytimes.com/2026/08/26/us/politics/darline-lindsey-graham-political-views.html
+
+**Dolly Parton, Friend of Miss Piggy, Is Remembered by the Muppets**\
+`Perhaps more than many other entertainers who appeared alongside the Muppets, Parton seemed to have a natural ease with her inanimate sidekicks.`\
+https://www.nytimes.com/2026/08/26/style/dolly-parton-miss-piggy-muppets.html
+
+**The Good List: 6 Things to Add Some Delight to Your Day**\
+`A Dolly duet, a beach finder and never landing.`\
+https://www.nytimes.com/2026/08/26/briefing/the-good-list-dolly-kermit-pelagic.html
+
 **The Local: Insider’s guide to the State Fair**\
 `Plus, our tribute to Dolly Parton, and the new “zero-profit” model at Modern Times.`\
 https://www.nytimes.com/2026/08/26/briefing/minnesota-state-fair.html
