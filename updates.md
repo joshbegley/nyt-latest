@@ -1,3 +1,7 @@
+**Graham, and Trump, Triumph: Six Takeaways From South Carolina’s Senate Runoff**\
+`President Trump went all in for Senator Darline Graham in a primary runoff on Tuesday. It worked, preserving his undefeated streak in Republican Senate primaries this year.`\
+https://www.nytimes.com/2026/08/25/us/politics/election-takeaways-south-carolina-oklahoma.html
+
 **NYT Crossword Answers for Aug. 26, 2026**\
 `John Kugelman and Lance Enfinger name names.`\
 https://www.nytimes.com/2026/08/25/crosswords/daily-puzzle-2026-08-26.html
