@@ -1,3 +1,7 @@
+**Administration Lawyer Chosen to Lead Panel Considering Trump Construction Projects**\
+`Mark Paoletta, also a close associate of Justice Clarence Thomas’s, has been named by President Trump to lead the National Capital Planning Commission.`\
+https://www.nytimes.com/2026/08/26/us/politics/paoletta-lawyer-ncpc.html
+
 **After Meta Settlement, Teens Divided on New Instagram and Facebook Restrictions**\
 `Young people said the platforms could be a space for gathering, but also a waste of time.`\
 https://www.nytimes.com/2026/08/26/style/teens-meta-instagram-facebook-restrictions.html
