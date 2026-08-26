@@ -1,3 +1,7 @@
+**Live Updates: Hundreds Missing as Deadly Floods Sweep Away Villages in Nepal**\
+`A wall of water crashed through a Himalayan river valley between Nepal and the Chinese territory of Tibet, killing dozens of people, the Nepali authorities said. The missing included border officials, port workers and foreign tourists.`\
+https://www.nytimes.com/live/2026/08/26/world/nepal-floods
+
 ****\
 `Verified surveillance footage shows the moment a landslide ripped through Gyirong Port, on the border between China and Nepal, on Wednesday.`\
 https://www.nytimes.com/video/embedded/world/asia/100000011113814/26vid-nepal-cctv-49655.html

@@ -71,7 +71,7 @@ https://www.nytimes.com/2026/08/26/us/politics/uss-abraham-lincoln-sailor-father
 https://www.nytimes.com/2026/08/26/world/middleeast/iran-oman-strait-hormuz.html
 
 **Live Updates: Hundreds Missing as Deadly Floods Sweep Away Villages in Nepal**\
-`A wall of water crashed through a Himalayan river valley between Nepal and the Chinese territory of Tibet, killing dozens of people, the Nepali authorities said. Many of the missing were foreign tourists.`\
+`A wall of water crashed through a Himalayan river valley between Nepal and the Chinese territory of Tibet, killing dozens of people, the Nepali authorities said. The missing included border officials, port workers and foreign tourists.`\
 https://www.nytimes.com/live/2026/08/26/world/nepal-floods
 
 **They’re Done With Trump**\
