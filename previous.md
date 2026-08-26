@@ -1,3 +1,7 @@
+**Dolly Parton Was a Trailblazer in Business, Too**\
+`Her vision to launch businesses to bring fans closer while protecting her intellectual property was ahead of her time.`\
+https://www.nytimes.com/2026/08/26/business/dolly-parton-businesses.html
+
 **The Dolly Parton Moments That Are Going Viral After Her Death**\
 `After the country music legend died on Tuesday, fans shared clips of their favorite moments of the singer.`\
 https://www.nytimes.com/2026/08/26/arts/music/dolly-parton-viral-moments.html
@@ -70,8 +74,8 @@ https://www.nytimes.com/2026/08/26/us/politics/uss-abraham-lincoln-sailor-father
 `Iran and Oman said they would create a temporary shipping lane and clear mines in the waterway. Global oil prices eased after the joint announcement.`\
 https://www.nytimes.com/2026/08/26/world/middleeast/iran-oman-strait-hormuz.html
 
-**Live Updates: Hundreds Missing as Deadly Floods Sweep Away Villages in Nepal**\
-`A wall of water crashed through a Himalayan river valley between Nepal and the Chinese territory of Tibet, killing dozens of people, the Nepali authorities said. The missing included border officials, port workers and foreign tourists.`\
+**Live Updates: At Least 72 Killed and Hundreds Missing as Floods Sweep Away Villages in Nepal**\
+`A wall of water crashed through a Himalayan river valley between Nepal and the Chinese territory of Tibet, the Nepali authorities said. The missing included border officials, port workers and foreign tourists.`\
 https://www.nytimes.com/live/2026/08/26/world/nepal-floods
 
 **They’re Done With Trump**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/26/business/saudi-oil-houthis-iran.html
 **Harry Styles and the Residencies Taking Over the Music Industry**\
 `Harry Styles’s latest Madison Square Garden takeover is part of a trend that some say transfers the cost of touring to fans.`\
 https://www.nytimes.com/2026/08/26/arts/music/harry-styles-residencies-pop-music.html
-
-**At 97, a Holocaust Survivor’s Life on the Upper West Side**\
-`He was only 12 when he lost most of his relatives. After liberation, he came to New York and put his extraordinary proclivity for languages to work.`\
-https://www.nytimes.com/2026/08/26/realestate/at-97-a-holocaust-survivors-life-on-the-upper-west-side.html
 

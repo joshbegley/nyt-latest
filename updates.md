@@ -1,3 +1,11 @@
+**Dolly Parton Was a Trailblazer in Business, Too**\
+`Her vision to launch businesses to bring fans closer while protecting her intellectual property was ahead of her time.`\
+https://www.nytimes.com/2026/08/26/business/dolly-parton-businesses.html
+
+**Live Updates: At Least 72 Killed and Hundreds Missing as Floods Sweep Away Villages in Nepal**\
+`A wall of water crashed through a Himalayan river valley between Nepal and the Chinese territory of Tibet, the Nepali authorities said. The missing included border officials, port workers and foreign tourists.`\
+https://www.nytimes.com/live/2026/08/26/world/nepal-floods
+
 **Live Updates: Hundreds Missing as Deadly Floods Sweep Away Villages in Nepal**\
 `A wall of water crashed through a Himalayan river valley between Nepal and the Chinese territory of Tibet, killing dozens of people, the Nepali authorities said. The missing included border officials, port workers and foreign tourists.`\
 https://www.nytimes.com/live/2026/08/26/world/nepal-floods
