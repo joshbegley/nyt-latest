@@ -71,7 +71,7 @@ https://www.nytimes.com/interactive/2026/08/26/us/politics/trump-primary-midterm
 https://www.nytimes.com/es/2026/08/26/espanol/longevidad-envejecimiento-capacidad-intrinseca-que-es.html
 
 **Praise for Dolly Parton, ‘a National Treasure’**\
-`Readers react to the death of Dolly Parton’s music, philanthropy and the joy she brought to millions. Also: Moms love Spider-Man, too; reading with others.`\
+`Readers react to the death of Dolly Parton, and celebrate her music, philanthropy and the joy she brought to millions. Also: Moms love Spider-Man, too; the benefits of reading with others.`\
 https://www.nytimes.com/2026/08/26/opinion/dolly-parton-death-praise.html
 
 **Muere Tim Curry, que interpretó a Pennywise en ‘It’**\
