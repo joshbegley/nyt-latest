@@ -82,13 +82,13 @@ https://www.nytimes.com/es/2026/08/26/espanol/ciencia-y-tecnologia/alarma-ataque
 `Trump does not see himself as a mere president subject to the public’s opinion.`\
 https://www.nytimes.com/2026/08/26/opinion/trump-king-canada-trade-war.html
 
-**A.O.C., I Have a Question (No, Not That One)**\
-`Before a Woke 2 takes over, let the proponents of its predecessor explain how and why they’re moving on.`\
-https://www.nytimes.com/2026/08/26/opinion/aoc-woke-1.html
-
 **Even as Trump’s Standing Slips, He Slingshots Darline Graham to Victory**\
 `After facing low approval ratings and endorsement setbacks, the president made a show of force in lifting Darline Graham to the Republican nomination for Senate in South Carolina.`\
 https://www.nytimes.com/2026/08/26/us/politics/trump-republicans-darline-graham-south-carolina.html
+
+**A.O.C., I Have a Question (No, Not That One)**\
+`Before a Woke 2 takes over, let the proponents of its predecessor explain how and why they’re moving on.`\
+https://www.nytimes.com/2026/08/26/opinion/aoc-woke-1.html
 
 **Families Debate Whether Children Should Play Football, After New C.T.E. Study**\
 `Many families are engaged in tense debates after a new study found a high percentage of N.F.L. players had developed degenerative brain disease.`\
