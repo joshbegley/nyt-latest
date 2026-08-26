@@ -1,3 +1,7 @@
+**The Local: Insider’s guide to the State Fair**\
+`Plus, our tribute to Dolly Parton, and the new “zero-profit” model at Modern Times.`\
+https://www.nytimes.com/2026/08/26/briefing/minnesota-state-fair.html
+
 **Dolly Parton’s Best Movie Performances: Where to Stream**\
 `In movies like “9 to 5” and “Steel Magnolias,” Parton shined as a version of herself.`\
 https://www.nytimes.com/2026/08/26/movies/dolly-parton-movies-streaming.html

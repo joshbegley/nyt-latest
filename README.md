@@ -1,3 +1,15 @@
+**How Darline Graham’s Politics Compare With Her Brother’s as She Runs for Senate**\
+`Senator Darline Graham has spoken far more about her desire to support President Trump’s agenda than she has talked about her brother’s political goals — or her own.`\
+https://www.nytimes.com/2026/08/26/us/politics/darline-lindsey-graham-political-views.html
+
+**Dolly Parton, Friend of Miss Piggy, Is Remembered by the Muppets**\
+`Perhaps more than many other entertainers who appeared alongside the Muppets, Parton seemed to have a natural ease with her inanimate sidekicks.`\
+https://www.nytimes.com/2026/08/26/style/dolly-parton-miss-piggy-muppets.html
+
+**The Good List: 6 Things to Add Some Delight to Your Day**\
+`A Dolly duet, a beach finder and never landing.`\
+https://www.nytimes.com/2026/08/26/briefing/the-good-list-dolly-kermit-pelagic.html
+
 **The Local: Insider’s guide to the State Fair**\
 `Plus, our tribute to Dolly Parton, and the new “zero-profit” model at Modern Times.`\
 https://www.nytimes.com/2026/08/26/briefing/minnesota-state-fair.html
@@ -177,16 +189,4 @@ https://www.nytimes.com/2026/08/26/us/politics/dean-roy-vermont-governor-electio
 **El precio del diésel se acerca a un máximo histórico**\
 `El combustible, utilizado en maquinaria agrícola, camiones y otros equipos pesados, ha aumentado su costo debido a la guerra en Irán y a los ataques ucranianos contra las refinerías rusas.`\
 https://www.nytimes.com/es/2026/08/26/espanol/negocios/combustible-diesel-precio-aumento.html
-
-**Did the Zodiac Kill the Black Dahlia? This Crime Writer Thinks So.**\
-`The novelist Michael Connelly knows he is putting his reputation on the line with the podcast “Killer in the Code.” But despite critics’ skepticism, he finds the evidence “completely convincing.”`\
-https://www.nytimes.com/2026/08/26/arts/michael-connelly-black-dahlia-zodiac-podcast.html
-
-**Peter Nadas, Author of ‘the Greatest Novel Written in Our Time,’ Dies at 83**\
-`Susan Sontag gave that high praise to “A Book of Memories” (1986), a labyrinthine chronicle of life under Communism.`\
-https://www.nytimes.com/2026/08/26/books/peter-nadas-dead.html
-
-**Bill Gates advierte que la IA es más peligrosa de lo que la industria tecnológica admite**\
-`En una larga entrevista, el magnate dijo que su industria estaba minimizando los riesgos de la tecnología, los cuales cree que incluyen el desempleo masivo y el bioterrorismo.`\
-https://www.nytimes.com/es/2026/08/26/espanol/negocios/bill-gates-advierte-ia.html
 

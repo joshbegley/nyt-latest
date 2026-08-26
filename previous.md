@@ -1,3 +1,7 @@
+**The Local: Insider’s guide to the State Fair**\
+`Plus, our tribute to Dolly Parton, and the new “zero-profit” model at Modern Times.`\
+https://www.nytimes.com/2026/08/26/briefing/minnesota-state-fair.html
+
 **Dolly Parton’s Best Movie Performances: Where to Stream**\
 `In movies like “9 to 5” and “Steel Magnolias,” Parton shined as a version of herself.`\
 https://www.nytimes.com/2026/08/26/movies/dolly-parton-movies-streaming.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/08/26/books/peter-nadas-dead.html
 **Bill Gates advierte que la IA es más peligrosa de lo que la industria tecnológica admite**\
 `En una larga entrevista, el magnate dijo que su industria estaba minimizando los riesgos de la tecnología, los cuales cree que incluyen el desempleo masivo y el bioterrorismo.`\
 https://www.nytimes.com/es/2026/08/26/espanol/negocios/bill-gates-advierte-ia.html
-
-**Deadly Flooding Devastates Parts of Nepal and Tibet**\
-`Hundreds of people were missing in Nepal and Tibet, an autonomous region of China, officials said, after waves of floodwaters ripped through river valleys and damaged settlements.`\
-https://www.nytimes.com/video/world/asia/100000011113791/nepal-flood-tibet-people-missing.html
 
