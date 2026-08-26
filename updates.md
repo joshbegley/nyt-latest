@@ -1,3 +1,7 @@
+**Live Updates: 8 Dead and Hundreds Missing as Floods Sweep Away Villages in Nepal**\
+`A wall of water crashed through a Himalayan river valley shared between Nepal and the Chinese territory of Tibet, destroying settlements. Many of those reported missing were foreign tourists.`\
+https://www.nytimes.com/live/2026/08/26/world/nepal-floods
+
 **Prince Harry and Meghan Set to Arrive in Britain, BBC Reports**\
 `The broadcaster said that the family were expected to land in the U.K. on Wednesday, without naming its sources.`\
 https://www.nytimes.com/2026/08/26/world/europe/prince-harry-meghan-uk-arrival.html
