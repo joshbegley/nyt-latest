@@ -1,3 +1,7 @@
+**Canadá responde e impone aranceles a cientos de productos de EE. UU.**\
+`La nueva medida alcanza unos 700 artículos, desde pescado y electrodomésticos hasta acero y aluminio, mientras Ottawa busca proteger a su industria frente a las decisiones de Washington.`\
+https://www.nytimes.com/es/2026/08/25/espanol/mundo/canada-impone-aranceles-productos-ee-uu.html
+
 **Dolly Parton’s Death Hits Home for Tennesseans: ‘She Was One of Us’**\
 `The country music star kept her home state at the forefront of her music and work. “She aspired Tennesseans to be better,” one resident said.`\
 https://www.nytimes.com/2026/08/25/us/nashville-mourns-dolly-parton.html
@@ -122,7 +126,7 @@ https://www.nytimes.com/2026/08/25/us/politics/what-to-know-trump-executive-orde
 `“Dolly: A True Original Musical” is scheduled to begin previews in December after a strong-selling production in Nashville last year.`\
 https://www.nytimes.com/2026/08/25/theater/dolly-parton-broadway.html
 
-**Dolly Parton Is Mourned by Reba McEntire, Lily Tomlin and More**\
+**Dolly Parton Is Mourned by Beyoncé, Reba McEntire and More**\
 `After her death at 80, celebrities and politicians honored the country music star for her generosity and philanthropy.`\
 https://www.nytimes.com/2026/08/25/arts/music/dolly-parton-celebrity-reaction.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/25/opinion/mean-spirited-in-kansas.html
 **NYT Strands Hints for August 22, 2026**\
 `Scroll down for hints and conversation about the puzzle for Saturday, Aug. 22, 2026.`\
 https://www.nytimes.com/2026/08/21/crosswords/strands-sidekick-902.html
-
-**Lindsay Clancy Deserves Mercy, Not Life in Prison**\
-`It is too hard for women suffering from postpartum mental illness to prove the insanity defense.`\
-https://www.nytimes.com/2026/08/25/opinion/lindsay-clancy-postpartum-mom-kids-death.html
 
