@@ -1,3 +1,15 @@
+**West Point Climate Professor Says He Was Fired for Refusing to ‘Defy Science’**\
+`Dr. Adam Kalkstein is suing the U. S. Military Academy, where he was a professor of geography and the only climate scientist, after being fired.`\
+https://www.nytimes.com/2026/08/26/us/politics/west-point-climate-professor-lawsuit.html
+
+**A Rutgers Dean Is Accused of Filming ‘Upskirt’ Videos**\
+`Rutgers said that Josh Kohut, the dean of research at the School of Environmental and Biological Sciences, had been placed on leave and barred from the university’s campus in New Brunswick, N.J.`\
+https://www.nytimes.com/2026/08/26/nyregion/rutgers-dean-upskirt-videos.html
+
+**Even in Her Movies, Dolly Parton Kept Control**\
+`During her Hollywood peak, Parton played women who knew their value, whether they were a secretary, brothel madam, hairdresser or radio show host.`\
+https://www.nytimes.com/2026/08/26/movies/dolly-parton-movies-9-to-5.html
+
 **Meta pagará hasta 17,1 millardos de dólares por acusaciones relacionadas con la adicción a las redes sociales**\
 `En respuesta a las acusaciones de que sus plataformas ponían en peligro a los menores, el gigante de las redes sociales llegó a un acuerdo con 47 estados, el Distrito de Columbia y territorios de EE. UU., y aceptó hacer importantes cambios a sus productos.`\
 https://www.nytimes.com/es/2026/08/26/espanol/negocios/meta-facebook-adiccion-redes-sociales.html
