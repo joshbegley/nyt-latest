@@ -1,3 +1,11 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/asia/100000011113833/26vid-nepal-cctv-2-93195.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/asia/100000011113830/26vid-nepal-cctv1-69938.html
+
 **Dolly Parton’s One-Day Songwriting Feat**\
 `Two of her defining hits — “Jolene” and “I Will Always Love You” — were written in the same day. In different ways, they found sturdy melodies for precarious emotions.`\
 https://www.nytimes.com/2026/08/26/arts/music/dolly-parton-jolene-i-will-always-love-you.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/26/fashion/jewelry-letrange-paris.html
 **A Rare Coral from the Waters off Sicily Is Resurfacing**\
 `Sciacca coral, named for the Sicilian town near where deposits began to be harvested around 1875, is turning up in high and fine jewelry lines.`\
 https://www.nytimes.com/2026/08/26/fashion/jewelry-sciacca-coral-dolce-and-gabbana-sicily.html
-
-**A Thai Designer Focuses on Creating Jewelry That’s Inclusive**\
-`Pattaraphan Salirathavibhaga stressed that we all want to adorn ourselves.`\
-https://www.nytimes.com/2026/08/26/fashion/jewelry-pattaraphan-salirathavibhaga-thailand.html
-
-**This Jewelry Maker Overcame an Inability to Visualize Design**\
-`The Irish jewelry maker Mark Newman made his own creative system, inspired by functional patterns such as road layouts.`\
-https://www.nytimes.com/2026/08/26/fashion/jewelry-aphantasia-mark-newman.html
 
