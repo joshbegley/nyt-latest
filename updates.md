@@ -1,3 +1,23 @@
+**Will Meta’s Changes Benefit Young Users’ Mental Health?**\
+`Psychologists said the changes were a symbolic victory, but warned their effectiveness might be limited.`\
+https://www.nytimes.com/2026/08/26/well/family/meta-settlement-youth-mental-health.html
+
+**Una inundación repentina en Nepal abre nuevas preguntas sobre los glaciares del Himalaya**\
+`Expertos describen cómo una enorme masa de hielo se fragmentó al precipitarse hacia el valle, liberando agua y escombros con una fuerza comparable a una explosión.`\
+https://www.nytimes.com/es/2026/08/26/espanol/mundo/inundacion-nepal-glaciares-himalaya.html
+
+**Judge Allows Option of Manslaughter Verdict in Lindsay Clancy Case**\
+`If jurors find Ms. Clancy guilty in the strangling deaths of her three children, they will choose among first-degree murder, second-degree murder and manslaughter.`\
+https://www.nytimes.com/2026/08/26/us/lindsay-clancy-manslaughter-murder.html
+
+**Lisa Cook Hits Back at Trump’s Latest Attempt to Oust Her as Fed Governor**\
+`Lisa D. Cook hit back at President Trump’s allegations that she had committed mortgage fraud.`\
+https://www.nytimes.com/2026/08/26/business/trump-lisa-cook-fed.html
+
+**He Thought He Destroyed a Flock Camera, but It Was a Decoy, Police Say**\
+`A Florida man is facing three felony charges over the Aug. 20 vandalism of a plastic reproduction of one of the automated license plate readers, the authorities said.`\
+https://www.nytimes.com/2026/08/26/us/flock-camera-decoy-vandalism-arrest-florida.html
+
 **He Thought He Destroyed a Flock Camera, but It Was a Decoy, Police Say**\
 `A Florida man is facing three felony charges over the Aug. 20 vandalism of a plastic reproduction of one of the automated license plate readers, the authorities said.`\
 https://www.nytimes.com/2026/08/26/us/lock-camera-decoy-vandalism-arrest-florida.html
