@@ -1,3 +1,7 @@
+**Live Updates: Hundreds Missing as Deadly Floods Sweep Away Villages in Nepal**\
+`A wall of water crashed through a Himalayan river valley shared between Nepal and the Chinese territory of Tibet, destroying settlements and killing at least eight people. Many of the missing were foreign tourists.`\
+https://www.nytimes.com/live/2026/08/26/world/nepal-floods
+
 **Live Updates: 8 Dead and Hundreds Missing as Floods Sweep Away Villages in Nepal**\
 `A wall of water crashed through a Himalayan river valley shared between Nepal and the Chinese territory of Tibet, destroying settlements. Many of those reported missing were foreign tourists.`\
 https://www.nytimes.com/live/2026/08/26/world/nepal-floods
