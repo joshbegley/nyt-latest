@@ -1,3 +1,7 @@
+**After Meta Settlement, Teens Divided on New Instagram and Facebook Restrictions**\
+`Young people said the platforms could be a space for gathering, but also a waste of time.`\
+https://www.nytimes.com/2026/08/26/style/teens-meta-instagram-facebook-restrictions.html
+
 **State Department Advances Trump Crackdown on ‘Far-Left Terrorism’**\
 `Critics say the Trump administration’s focus is disproportionate, as analysts raise alarms about the growing strength of far-right movements.`\
 https://www.nytimes.com/2026/08/26/us/politics/trump-crackdown-far-left.html
@@ -6,7 +10,7 @@ https://www.nytimes.com/2026/08/26/us/politics/trump-crackdown-far-left.html
 `Rescue efforts were underway on Wednesday after a flood swept through settlements along a Himalayan river valley, killing at least 160 people. Scientists say the disaster was caused by a massive chunk of ice that broke off a highland glacier.`\
 https://www.nytimes.com/video/world/asia/100000011115111/floods-nepal-tibet-deaths-rescue.html
 
-**A Deadly Flood Tears Through Nepal and Tibet**\
+**Photos: A Deadly Flood Tears Through Nepal and Tibet**\
 `An ice avalanche that started high in the Himalayas tumbled thousands of feet, releasing vast amounts of energy that pulverized the ice into a significant volume of flood water.`\
 https://www.nytimes.com/2026/08/26/world/asia/flood-nepal-tibet.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/es/2026/08/26/espanol/longevidad-envejecimiento-capacida
 **Praise for Dolly Parton, ‘a National Treasure’**\
 `Readers react to the death of Dolly Parton, and celebrate her music, philanthropy and the joy she brought to millions. Also: Moms love Spider-Man, too; the benefits of reading with others.`\
 https://www.nytimes.com/2026/08/26/opinion/dolly-parton-death-praise.html
-
-**Muere Tim Curry, que interpretó a Pennywise en ‘It’**\
-`El talento del actor para la excentricidad dejó una marca indeleble en muchos de sus roles, como el del estrafalario científico travesti de “The Rocky Horror Picture Show”.`\
-https://www.nytimes.com/es/2026/08/26/espanol/cultura/muere-tim-curry.html
 

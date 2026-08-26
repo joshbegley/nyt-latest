@@ -1,3 +1,11 @@
+**After Meta Settlement, Teens Divided on New Instagram and Facebook Restrictions**\
+`Young people said the platforms could be a space for gathering, but also a waste of time.`\
+https://www.nytimes.com/2026/08/26/style/teens-meta-instagram-facebook-restrictions.html
+
+**Photos: A Deadly Flood Tears Through Nepal and Tibet**\
+`An ice avalanche that started high in the Himalayas tumbled thousands of feet, releasing vast amounts of energy that pulverized the ice into a significant volume of flood water.`\
+https://www.nytimes.com/2026/08/26/world/asia/flood-nepal-tibet.html
+
 **State Department Advances Trump Crackdown on ‘Far-Left Terrorism’**\
 `Critics say the Trump administration’s focus is disproportionate, as analysts raise alarms about the growing strength of far-right movements.`\
 https://www.nytimes.com/2026/08/26/us/politics/trump-crackdown-far-left.html

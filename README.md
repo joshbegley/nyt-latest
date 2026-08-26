@@ -1,3 +1,7 @@
+**Administration Lawyer Chosen to Lead Panel Considering Trump Construction Projects**\
+`Mark Paoletta, also a close associate of Justice Clarence Thomas’s, has been named by President Trump to lead the National Capital Planning Commission.`\
+https://www.nytimes.com/2026/08/26/us/politics/paoletta-lawyer-ncpc.html
+
 **After Meta Settlement, Teens Divided on New Instagram and Facebook Restrictions**\
 `Young people said the platforms could be a space for gathering, but also a waste of time.`\
 https://www.nytimes.com/2026/08/26/style/teens-meta-instagram-facebook-restrictions.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/interactive/2026/08/26/us/politics/trump-primary-midterm
 **¿Qué es la capacidad intrínseca, un término clave para la longevidad?**\
 `La capacidad intrínseca se está convirtiendo en la forma preferida de medir y evaluar el envejecimiento humano.`\
 https://www.nytimes.com/es/2026/08/26/espanol/longevidad-envejecimiento-capacidad-intrinseca-que-es.html
-
-**Praise for Dolly Parton, ‘a National Treasure’**\
-`Readers react to the death of Dolly Parton, and celebrate her music, philanthropy and the joy she brought to millions. Also: Moms love Spider-Man, too; the benefits of reading with others.`\
-https://www.nytimes.com/2026/08/26/opinion/dolly-parton-death-praise.html
 
