@@ -1,3 +1,7 @@
+**Diesel Price Nears Record High, Helping Oil Companies and Hurting Consumers**\
+`The cost of the fuel, used in farm machinery, trucks and other heavy equipment, has surged because of the war in Iran and Ukrainian attacks on Russian refineries.`\
+https://www.nytimes.com/2026/08/26/business/energy-environment/diesel-prices-iran-war-oil.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/asia/100000011113833/26vid-nepal-cctv-2-93195.html
