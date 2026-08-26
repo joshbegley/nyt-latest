@@ -1,3 +1,11 @@
+**Tim Curry Was Also a Fashion Pioneer**\
+`His performance as Frank-N-Furter, the cross-dressing mad scientist of “The Rocky Horror Picture Show,” was ahead of its time.`\
+https://www.nytimes.com/2026/08/26/style/tim-curry-fashion-pioneer.html
+
+**Meta to Pay Up to $17.1 Billion Over Claims It Harmed Youths**\
+`Also, floods destroy villages in Nepal. Here’s the latest at the end of Wednesday.`\
+https://www.nytimes.com/2026/08/26/briefing/meta-settlement-nepal-floods.html
+
 **Mamdani Persuades C.E.O.s to Join His Business Advisory Council**\
 `Mayor Zohran Mamdani, a democratic socialist who has struggled to win over Wall Street, intends to use the council to help him invigorate New York City’s economy.`\
 https://www.nytimes.com/2026/08/26/nyregion/mamdani-ceos-business-advisory-council.html
