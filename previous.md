@@ -1,3 +1,7 @@
+**Newsom Lists Sacramento Home for $7.5 Million as He Prepares to Leave Town**\
+`Gov. Gavin Newsom has just over four months left in office and will head back to Marin County full-time, where he will consider a run for president.`\
+https://www.nytimes.com/2026/08/25/us/newsom-selling-sacramento-house.html
+
 **Trump Administration Sends Saudi Nuclear Deal to Congress for Review**\
 `The prospect that the kingdom could enrich uranium has drawn opposition from Democrats and revived concerns about nuclear proliferation in the Middle East.`\
 https://www.nytimes.com/2026/08/25/us/politics/trump-saudi-nuclear-deal-congress-review.html
@@ -35,7 +39,7 @@ https://www.nytimes.com/2026/08/25/arts/music/dolly-parton-cancer-cause-death.ht
 https://www.nytimes.com/es/2026/08/25/espanol/mundo/canada-impone-aranceles-productos-ee-uu.html
 
 **Dolly Parton’s Death Hits Home for Tennesseans: ‘She Was One of Us’**\
-`The country music star kept her home state at the forefront of her music and work. “She aspired Tennesseans to be better,” one resident said.`\
+`The country music star kept her home state at the forefront of her music and work. “She inspired Tennesseans to be better,” one resident said.`\
 https://www.nytimes.com/2026/08/25/us/nashville-mourns-dolly-parton.html
 
 **Trump’s Efforts to Sow Election Doubts Get Boost from Initial Court Order**\
@@ -189,10 +193,6 @@ https://www.nytimes.com/interactive/2026/08/25/us/elections/results-oklahoma-lab
 **Oklahoma Insurance Commissioner Runoff 2026: Live Election Results**\
 `Get live results and maps from the 2026 Oklahoma runoff election.`\
 https://www.nytimes.com/interactive/2026/08/25/us/elections/results-oklahoma-insurance-commissioner-runoff.html
-
-**Georgia 13th Congressional District Special Runoff 2026: Live Election Results, Blair vs. Scott**\
-`Get live results and maps from the 2026 Georgia special runoff election.`\
-https://www.nytimes.com/interactive/2026/08/25/us/elections/results-georgia-us-house-13-special-runoff.html
 
 **Election Live Updates: Darline Graham, With Push From Trump, Wins Senate Primary in South Carolina**\
 `Darline Graham, the sister of the late Lindsey Graham, had President Trump’s backing in her campaign. She defeated Ralph Norman, a staunch conservative who criticized her lack of experience.`\

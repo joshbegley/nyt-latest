@@ -1,3 +1,11 @@
+**Newsom Lists Sacramento Home for $7.5 Million as He Prepares to Leave Town**\
+`Gov. Gavin Newsom has just over four months left in office and will head back to Marin County full-time, where he will consider a run for president.`\
+https://www.nytimes.com/2026/08/25/us/newsom-selling-sacramento-house.html
+
+**Dolly Parton’s Death Hits Home for Tennesseans: ‘She Was One of Us’**\
+`The country music star kept her home state at the forefront of her music and work. “She inspired Tennesseans to be better,” one resident said.`\
+https://www.nytimes.com/2026/08/25/us/nashville-mourns-dolly-parton.html
+
 **Trump Administration Sends Saudi Nuclear Deal to Congress for Review**\
 `The prospect that the kingdom could enrich uranium has drawn opposition from Democrats and revived concerns about nuclear proliferation in the Middle East.`\
 https://www.nytimes.com/2026/08/25/us/politics/trump-saudi-nuclear-deal-congress-review.html
