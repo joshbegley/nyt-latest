@@ -1,3 +1,15 @@
+**Meta pagará hasta 17,1 millardos de dólares por acusaciones relacionadas con la adicción a las redes sociales**\
+`En respuesta a las acusaciones de que sus plataformas ponían en peligro a los menores, el gigante de las redes sociales llegó a un acuerdo con 47 estados, el Distrito de Columbia y territorios de EE. UU., y aceptó hacer importantes cambios a sus productos.`\
+https://www.nytimes.com/es/2026/08/26/espanol/negocios/meta-facebook-adiccion-redes-sociales.html
+
+**He Once Launched a Grenade for Trump. Now He’ll Be White House Counsel.**\
+`Will Scharf has proved his loyalty to President Trump, even filming a TV ad in which he blows away documents from the president’s legal cases. His new role will be to provide in-house legal advice.`\
+https://www.nytimes.com/2026/08/26/us/politics/will-scharf-white-house-counsel.html
+
+**Tim Curry Pioneered Fashion With His ‘Rocky Horror’ Performance**\
+`His performance as Frank-N-Furter, the cross-dressing mad scientist of “The Rocky Horror Picture Show,” was ahead of its time.`\
+https://www.nytimes.com/2026/08/26/style/tim-curry-fashion-pioneer.html
+
 **Tim Curry Was Also a Fashion Pioneer**\
 `His performance as Frank-N-Furter, the cross-dressing mad scientist of “The Rocky Horror Picture Show,” was ahead of its time.`\
 https://www.nytimes.com/2026/08/26/style/tim-curry-fashion-pioneer.html

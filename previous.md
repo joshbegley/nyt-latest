@@ -1,4 +1,12 @@
-**Tim Curry Was Also a Fashion Pioneer**\
+**Meta pagará hasta 17,1 millardos de dólares por acusaciones relacionadas con la adicción a las redes sociales**\
+`En respuesta a las acusaciones de que sus plataformas ponían en peligro a los menores, el gigante de las redes sociales llegó a un acuerdo con 47 estados, el Distrito de Columbia y territorios de EE. UU., y aceptó hacer importantes cambios a sus productos.`\
+https://www.nytimes.com/es/2026/08/26/espanol/negocios/meta-facebook-adiccion-redes-sociales.html
+
+**He Once Launched a Grenade for Trump. Now He’ll Be White House Counsel.**\
+`Will Scharf has proved his loyalty to President Trump, even filming a TV ad in which he blows away documents from the president’s legal cases. His new role will be to provide in-house legal advice.`\
+https://www.nytimes.com/2026/08/26/us/politics/will-scharf-white-house-counsel.html
+
+**Tim Curry Pioneered Fashion With His ‘Rocky Horror’ Performance**\
 `His performance as Frank-N-Furter, the cross-dressing mad scientist of “The Rocky Horror Picture Show,” was ahead of its time.`\
 https://www.nytimes.com/2026/08/26/style/tim-curry-fashion-pioneer.html
 
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/08/26/technology/meta-settlement-dollars-amount.htm
 **Over 100 Indian Pilgrims Are Among the Missing in Nepal Floods**\
 `Many of them were traveling to or from a Himalayan peak that is revered by Hindus as the spiritual home of the god Shiva.`\
 https://www.nytimes.com/2026/08/26/world/asia/over-100-indian-pilgrims-are-among-the-missing-in-deadly-nepal-floods.html
-
-**¿De qué murió Dolly Parton?**\
-`No está claro en qué momento recibió el diagnóstico de cáncer. Hace poco más de una semana, faltó a una aparición programada en Dollywood.`\
-https://www.nytimes.com/es/2026/08/26/espanol/cultura/dolly-parton-de-que-murio-cancer.html
-
-**Judge Rejects Plea to Toss Federal Charges Against Rep. LaMonica McIver**\
-`An appeals panel ruled against Representative LaMonica McIver, who is accused by the Justice Department of assaulting immigration agents outside a migrant detention center in New Jersey.`\
-https://www.nytimes.com/2026/08/26/nyregion/mciver-trump-delaney-hall-decision.html
 
