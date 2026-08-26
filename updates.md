@@ -1,3 +1,23 @@
+**The Stunning Rise of the Democratic Socialists of America**\
+`Democratic socialists are capturing more votes than ever before — even as they run up against the limits of their appeal.`\
+https://www.nytimes.com/2026/08/26/podcasts/the-daily/democratic-socialism-dsa-elections-primaries.html
+
+**Hegseth’s Army Purge, and Polling Chaos in the Midterms**\
+`Plus, there was no one like Dolly Parton.`\
+https://www.nytimes.com/2026/08/26/podcasts/the-headlines/hegseth-military-generals-midterms-polls-dolly-parton.html
+
+**NYT Connections Answers for August 27, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Aug. 27, 2026.`\
+https://www.nytimes.com/2026/08/26/crosswords/connections-companion-1173.html
+
+**Today’s Wordle Hints for August 27, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Aug. 27, 2026.`\
+https://www.nytimes.com/2026/08/26/crosswords/wordle-review-1895.html
+
+**NYT Strands Hints for August 27, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Aug. 27, 2026.`\
+https://www.nytimes.com/2026/08/26/crosswords/strands-sidekick-907.html
+
 **Eight Dead, Others Missing as Floods Sweep Away Villages in Nepal**\
 `A wall of water swept down a Himalayan river valley shared between Nepal and the Chinese territory of Tibet.`\
 https://www.nytimes.com/2026/08/26/world/asia/nepal-floods-tibet-missing.html
