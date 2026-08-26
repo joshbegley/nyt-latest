@@ -1,3 +1,11 @@
+**The Dolly Parton Moments That Are Going Viral After Her Death**\
+`After the country music legend died on Tuesday, fans shared clips of their favorite moments of the singer.`\
+https://www.nytimes.com/2026/08/26/arts/music/dolly-parton-viral-moments.html
+
+**Live Updates: Hundreds Missing as Deadly Floods Sweep Away Villages in Nepal**\
+`A wall of water crashed through a Himalayan river valley between Nepal and the Chinese territory of Tibet, killing dozens of people, the Nepali authorities said. Many of the missing were foreign tourists.`\
+https://www.nytimes.com/live/2026/08/26/world/nepal-floods
+
 **Canadians Stand Their Ground Amid New Trump Tariffs and Expanding U.S.-Canada Trade War**\
 `Business owners are preparing for financial pain after the latest U.S.-Canada trade talks collapsed. But many Canadians are embracing a show of resistance.`\
 https://www.nytimes.com/2026/08/26/world/canada/carney-canada-trump-tariffs-retaliate.html

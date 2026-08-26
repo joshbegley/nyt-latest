@@ -1,3 +1,7 @@
+**The Dolly Parton Moments That Are Going Viral After Her Death**\
+`After the country music legend died on Tuesday, fans shared clips of their favorite moments of the singer.`\
+https://www.nytimes.com/2026/08/26/arts/music/dolly-parton-viral-moments.html
+
 **Rupert Grint Will Join ‘Harry Potter’ Again, This Time on Broadway**\
 `The British actor, who played Ron Weasley in all eight films, will play the same character, this time as an adult, in “Harry Potter and the Cursed Child.”`\
 https://www.nytimes.com/2026/08/26/theater/rupert-grint-harry-potter-broadway.html
@@ -67,7 +71,7 @@ https://www.nytimes.com/2026/08/26/us/politics/uss-abraham-lincoln-sailor-father
 https://www.nytimes.com/2026/08/26/world/middleeast/iran-oman-strait-hormuz.html
 
 **Live Updates: Hundreds Missing as Deadly Floods Sweep Away Villages in Nepal**\
-`A wall of water crashed through a Himalayan river valley shared between Nepal and the Chinese territory of Tibet, destroying settlements and killing at least 22 people. Many of the missing were foreign tourists.`\
+`A wall of water crashed through a Himalayan river valley between Nepal and the Chinese territory of Tibet, killing dozens of people, the Nepali authorities said. Many of the missing were foreign tourists.`\
 https://www.nytimes.com/live/2026/08/26/world/nepal-floods
 
 **They’re Done With Trump**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/26/realestate/at-97-a-holocaust-survivors-life-o
 **Book Review: ‘Crossing the Wine-Dark Sea,’ by Emily Wilson**\
 `A new book of essays by the celebrated classicist captures her excitement for her subject matter and the surprising range of her references.`\
 https://www.nytimes.com/2026/08/26/books/review/crossing-the-wine-dark-sea-emily-wilson.html
-
-**The Weather Influencers Who Focus on Vibes and Clothes Instead of Radar**\
-`A new crop of social media creators offer their followers a “vibes check” or helpful reminders to not get their hair blown out because rain is in the forecast.`\
-https://www.nytimes.com/2026/08/26/style/weather-influencers-tiktok-kyle-cooke.html
 
