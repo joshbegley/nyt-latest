@@ -1,8 +1,12 @@
+**Bill Gates advierte que la IA es más peligrosa de lo que la industria tecnológica admite**\
+`En una larga entrevista, el magnate dijo que su industria estaba minimizando los riesgos de la tecnología, los cuales cree que incluyen el desempleo masivo y el bioterrorismo.`\
+https://www.nytimes.com/es/2026/08/26/espanol/negocios/bill-gates-advierte-ia.html
+
 **Deadly Flooding Devastates Parts of Nepal and Tibet**\
 `Hundreds of people were missing in Nepal and Tibet, an autonomous region of China, officials said, after waves of floodwaters ripped through river valleys and damaged settlements.`\
 https://www.nytimes.com/video/world/asia/100000011113791/nepal-flood-tibet-people-missing.html
 
-**Stream These Movies and Shows Before They Leave**\
+**Stream These Movies and Shows Before They Leave Netflix**\
 `Like “The Four Seasons”? The movie that inspired it is leaving soon, as is the Hayden Panettiere showcase “Nashville.”`\
 https://www.nytimes.com/2026/08/26/arts/television/netflix-expiring-september.html
 
@@ -82,7 +86,7 @@ https://www.nytimes.com/video/embedded/world/asia/100000011113833/26vid-nepal-cc
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/asia/100000011113830/26vid-nepal-cctv1-69938.html
 
-**Dolly Parton’s Greatest Burst of Songwriting**\
+**Dolly Parton Wrote ‘I Will Always Love You’ and ‘Jolene’ in One Creative Burst**\
 `Two of her defining hits — “Jolene” and “I Will Always Love You” — were perhaps written in the same day. In different ways, they found sturdy melodies for precarious emotions.`\
 https://www.nytimes.com/2026/08/26/arts/music/dolly-parton-jolene-i-will-always-love-you.html
 
@@ -150,13 +154,13 @@ https://www.nytimes.com/es/2026/08/26/espanol/ciencia-y-tecnologia/alarma-ataque
 `Lèse-majesté, American-style.`\
 https://www.nytimes.com/2026/08/26/opinion/trump-king-canada-trade-war.html
 
-**Even as Trump’s Standing Slips, He Slingshots Darline Graham to Victory**\
-`After facing low approval ratings and endorsement setbacks, the president made a show of force in lifting Darline Graham to the Republican nomination for Senate in South Carolina.`\
-https://www.nytimes.com/2026/08/26/us/politics/trump-republicans-darline-graham-south-carolina.html
-
 **A Question for the Formerly Woke**\
 `Before a Woke 2 takes over, let the proponents of its predecessor explain how and why they’re moving on.`\
 https://www.nytimes.com/2026/08/26/opinion/aoc-woke-1.html
+
+**Even as Trump’s Standing Slips, He Slingshots Darline Graham to Victory**\
+`After facing low approval ratings and endorsement setbacks, the president made a show of force in lifting Darline Graham to the Republican nomination for Senate in South Carolina.`\
+https://www.nytimes.com/2026/08/26/us/politics/trump-republicans-darline-graham-south-carolina.html
 
 **‘You’re Ruining My Dreams’: C.T.E. Study Adds to Family Tension Over Football**\
 `Many families are engaged in tense debates after a new study found a high percentage of N.F.L. players had developed degenerative brain disease.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/26/us/nashville-hospital-patient-paralyzed-medic
 **The Street Symbols That Are Art in Plain Sight**\
 `Color markings on city sidewalks guide construction crews, but they also serve as a visual language.`\
 https://www.nytimes.com/2026/08/26/nyregion/the-street-symbols-that-are-art-in-plain-sight.html
-
-**Ukraine’s Most Potent Weapon: The Software Orchestrating Its Drone Army**\
-`The Delta system pulls together battlefield data to identify targets, creating a miles-wide “kill zone.” The technology is credited with helping to cut Russian advances to a near standstill.`\
-https://www.nytimes.com/2026/08/26/world/europe/ukraine-delta-battlefield-management.html
 
