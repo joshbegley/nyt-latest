@@ -134,7 +134,7 @@ https://www.nytimes.com/2026/08/26/opinion/child-actor-hayden-panettiere-alison-
 `Can a male coach solve a female locker room?`\
 https://www.nytimes.com/2026/08/26/arts/television/ted-lasso-season-4-episode-4-recap.html
 
-**Soaring Diesel Prices Are Helping Oil Companies and Hurting Consumers**\
+**Diesel Price Nears Record High, Helping Oil Companies and Hurting Consumers**\
 `The cost of the fuel, used in farm machinery, trucks and other heavy equipment, has surged because of the war in Iran and Ukrainian attacks on Russian refineries.`\
 https://www.nytimes.com/2026/08/26/business/energy-environment/diesel-prices-iran-war-oil.html
 

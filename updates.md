@@ -1,3 +1,27 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/asia/100000011113833/26vid-nepal-cctv-2-93195.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/asia/100000011113830/26vid-nepal-cctv1-69938.html
+
+**Dolly Parton’s One-Day Songwriting Feat**\
+`Two of her defining hits — “Jolene” and “I Will Always Love You” — were written in the same day. In different ways, they found sturdy melodies for precarious emotions.`\
+https://www.nytimes.com/2026/08/26/arts/music/dolly-parton-jolene-i-will-always-love-you.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/asia/100000011113814/26vid-nepal-cctv-49655.html
+
+**Why Is This Picture at Every Sex Party?**\
+`Jess Zakira Wise shares her early experiences at sex parties.`\
+https://www.nytimes.com/video/podcasts/100000011113819/why-is-this-picture-at-every-sex-party.html
+
+**U.S.S. Abraham Lincoln Sailor Says Father Arrested by Border Patrol Has Been Released**\
+`Joshua Aviles, a Navy sailor, said his father had been freed days after he was detained as Mr. Aviles returned from a lengthy deployment in the Middle East.`\
+https://www.nytimes.com/2026/08/26/us/politics/uss-abraham-lincoln-sailor-father-arrested-immigration-released.html
+
 **Kurdish-Led Militia in Syria Disbands in Boost for U.S.-Backed Government**\
 `The Syrian Democratic Forces, a Kurdish-led armed group that has lost territory and authority in recent months, will integrate with the country’s military.`\
 https://www.nytimes.com/2026/08/26/world/middleeast/kurdish-militia-syria-disbands.html
