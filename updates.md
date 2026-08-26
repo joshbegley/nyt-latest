@@ -1,3 +1,11 @@
+**Dolly Parton’s Death Hits Home for Tennesseans: ‘She Was One of Us’**\
+`The country music star kept her home state at the forefront of her music and work. “She aspired Tennesseans to be better,” one resident said.`\
+https://www.nytimes.com/2026/08/25/us/nashville-mourns-dolly-parton.html
+
+**What Dolly Parton Told Me**\
+`Trailing Dolly Parton around the world, I witnessed so many small moments in which she’d gracefully own her power without the slightest hint of fight.`\
+https://www.nytimes.com/2026/08/25/opinion/dolly-parton-death-america-legacy.html
+
 **‘She Was One of Us’: To Tennesseans, Dolly Parton’s Death Hits Home**\
 `The country music star kept her home state at the forefront of her music and work. “She aspired Tennesseans to be better,” one resident said.`\
 https://www.nytimes.com/2026/08/25/us/nashville-mourns-dolly-parton.html
