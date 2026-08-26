@@ -1,3 +1,171 @@
+**Their Children Want to Play Football. Parents Ask: Is It Worth the Risk?**\
+`Many families are engaged in tense debates after a new study found a high percentage of N.F.L. players had developed degenerative brain disease.`\
+https://www.nytimes.com/2026/08/26/us/parents-football-cte-decisions.html
+
+**Cuando un amigo se convierte en cuidador**\
+`Las personas que no forman parte de la familia pueden asumir funciones de ayuda cuando los adultos mayores necesitan asistencia.`\
+https://www.nytimes.com/es/2026/08/26/espanol/cuidadores-amistad.html
+
+**‘Honeymoon’s Over’: Warsh Under Pressure as Fed Weighs Raising Rates**\
+`Kevin M. Warsh is scheduled to deliver his first address at the Federal Reserve’s annual conference in Jackson, Wyo., with U.S. government bond markets on edge and inflation risks resurfacing.`\
+https://www.nytimes.com/2026/08/26/business/kevin-warsh-federal-reserve-jackson.html
+
+**Which $725,000 Home Would You Choose?**\
+`This week’s properties are in Providence, R.I.; Tulsa, Okla.; and Salt Lake City.`\
+https://www.nytimes.com/2026/08/26/realestate/homes-for-sale-providence-tulsa-salt-lake-city.html
+
+**Canadians Stand Their Ground as Trump’s New Tariffs Endanger Jobs**\
+`Business owners are preparing for financial pain after the latest U.S.-Canada trade talks collapsed. But many Canadians are embracing a show of resistance.`\
+https://www.nytimes.com/2026/08/26/world/canada/carney-canada-trump-tariffs-retaliate.html
+
+**Bessent Faces Credibility Test in Quest to Tame Markets**\
+`The Treasury secretary is confronting the limits of his ability to reshape the economy ahead of midterm elections.`\
+https://www.nytimes.com/2026/08/26/business/scott-bessent-economy-markets.html
+
+**Medication Mix-Up Leaves Knee Surgery Patient Paralyzed**\
+`A patient was unable to move from the sternum down after a routine knee-replacement operation at a Nashville hospital this month. The hospital said she had been given the wrong anesthetic.`\
+https://www.nytimes.com/2026/08/26/us/nashville-hospital-patient-paralyzed-medication-mixup.html
+
+**The Street Symbols That Are Art in Plain Sight**\
+`Color markings on city sidewalks guide construction crews, but they also serve as a visual language.`\
+https://www.nytimes.com/2026/08/26/nyregion/the-street-symbols-that-are-art-in-plain-sight.html
+
+**Ukraine’s Most Potent Weapon: The Software Orchestrating Its Drone Army**\
+`The Delta system pulls together battlefield data to identify targets, creating a miles-wide “kill zone.” The technology is credited with helping to cut Russian advances to a near standstill.`\
+https://www.nytimes.com/2026/08/26/world/europe/ukraine-delta-battlefield-management.html
+
+**Joe Manchin Pushes for More Independents to Join Congress**\
+`The former Democratic-turned-independent senator and his daughter are backing independent bids for the House and the Senate to try to weaken the two-party grip on the Capitol.`\
+https://www.nytimes.com/2026/08/26/us/politics/joe-manchin-independents-congress.html
+
+**My Hot Divorcée Summer Weekend in Miami**\
+`Women of a certain age and marital status are embracing a social media trend of indulgence, big hats, long dresses and, maybe, empowerment.`\
+https://www.nytimes.com/2026/08/26/travel/hot-divorcee-weekend-miami-florida.html
+
+**What Child Actors Understand About Hayden Panettiere**\
+`We might have worked on different sets, for different directors, in different eras, but every child actor bears the same recognizable wounds.`\
+https://www.nytimes.com/2026/08/26/opinion/child-actor-hayden-panettiere-alison-pill.html
+
+**‘Ted Lasso’ Season 4, Episode 4 Recap: Locked Out**\
+`Can a male coach solve a female locker room?`\
+https://www.nytimes.com/2026/08/26/arts/television/ted-lasso-season-4-episode-4-recap.html
+
+**Soaring Diesel Prices Are Helping Oil Companies and Hurting Consumers**\
+`The cost of the fuel, used in farm machinery, trucks and other heavy equipment, has surged because of the war in Iran and Ukrainian attacks on Russian refineries.`\
+https://www.nytimes.com/2026/08/26/business/energy-environment/soaring-diesel-prices-are-helping-oil-companies-and-hurting-consumers.html
+
+**Under Threat, Saudi Arabia Reroutes Oil Exports Yet Again**\
+`Forced away from the Strait of Hormuz in the Persian Gulf, the Saudis turned to the Red Sea. Now they are relying on a less dangerous but more complicated detour via the Suez Canal.`\
+https://www.nytimes.com/2026/08/26/business/saudi-oil-houthis-iran.html
+
+**Harry Styles and the Residencies Taking Over the Music Industry**\
+`Harry Styles’s latest Madison Square Garden takeover is part of a trend that some say transfers the cost of touring to fans.`\
+https://www.nytimes.com/2026/08/26/arts/music/harry-styles-residencies-pop-music.html
+
+**At 97, a Holocaust Survivor’s Life on the Upper West Side**\
+`He was only 12 when he lost most of his relatives. After liberation, he came to New York and put his extraordinary proclivity for languages to work.`\
+https://www.nytimes.com/2026/08/26/realestate/at-97-a-holocaust-survivors-life-on-the-upper-west-side.html
+
+**Book Review: ‘Crossing the Wine-Dark Sea,’ by Emily Wilson**\
+`A new book of essays by the celebrated classicist captures her excitement for her subject matter and the surprising range of her references.`\
+https://www.nytimes.com/2026/08/26/books/review/crossing-the-wine-dark-sea-emily-wilson.html
+
+**The Weather Influencers Who Focus on Vibes and Clothes Instead of Radar**\
+`A new crop of social media creators offer their followers a “vibes check” or helpful reminders to not get their hair blown out because rain is in the forecast.`\
+https://www.nytimes.com/2026/08/26/style/weather-influencers-tiktok-kyle-cooke.html
+
+**How Paul Williams Built White and Black Los Angeles**\
+`A pioneering architect’s archive, long thought lost, was preserved by his family. Now, three museums are featuring the work of a man who broke California’s color barrier.`\
+https://www.nytimes.com/2026/08/26/arts/design/paul-williams-architect.html
+
+**Word of the Day: inveigle**\
+`This word has appeared in six articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/08/26/learning/word-of-the-day-inveigle.html
+
+**Ancient Lebanese Treasures Take a Journey From Modern-Day Conflict**\
+`Artifacts from Byblos have been on display in Paris in a show that highlights how modern-day conflict in the Middle East imperils the cultural heritage of the region.`\
+https://www.nytimes.com/2026/08/26/world/middleeast/lebanon-byblos-israel.html
+
+**How To Throw A Sex Party**\
+`Jess Zakira Wise wanted a place for tender, fun, and curious group sex. When she couldn’t find it, she created it herself.`\
+https://www.nytimes.com/2026/08/26/podcasts/modern-love-how-to-host-an-orgy.html
+
+**22 New Books to Read in September: John Green, R.F. Kuang, Marlon James and More**\
+`Novels by Marlon James, Emma Cline, Hernan Diaz and John Green; nonfiction by Emily Wilson and Robert Kolker; and more.`\
+https://www.nytimes.com/2026/08/26/books/new-books-september.html
+
+**The Only Way to Stop Students From Cheating**\
+`Blue-book exams are fine, but we need to address the issue at its root.`\
+https://www.nytimes.com/2026/08/26/opinion/students-cheating-ai.html
+
+**A Designer Who Says Jewelry ‘Doesn’t Have to Be Expensive’**\
+`Nishita Assomull started her demi-fine line, L’Atelier 73, with the goal of creating beauty but not losing money.`\
+https://www.nytimes.com/2026/08/26/fashion/jewelry-nishita-assomull-london.html
+
+**A Hong Kong Entrepreneur Creates ‘Art to Wear’**\
+`Bertrand Mak has attracted such names as the master Swiss watchmaker Kari Voutilainen to his Sauvereign brand projects.`\
+https://www.nytimes.com/2026/08/26/fashion/jewelry-sauvereign-bertrand-mak-kari-voutilainen.html
+
+**A Paris Luxury House Creates Jewelry**\
+`Létrange, which has made leather goods since the 19th century, is scheduled to launch its second collection next month during Art Basel Paris.`\
+https://www.nytimes.com/2026/08/26/fashion/jewelry-letrange-paris.html
+
+**A Rare Coral from the Waters off Sicily Is Resurfacing**\
+`Sciacca coral, named for the Sicilian town near where deposits began to be harvested around 1875, is turning up in high and fine jewelry lines.`\
+https://www.nytimes.com/2026/08/26/fashion/jewelry-sciacca-coral-dolce-and-gabbana-sicily.html
+
+**A Thai Designer Focuses on Creating Jewelry That’s Inclusive**\
+`Pattaraphan Salirathavibhaga stressed that we all want to adorn ourselves.`\
+https://www.nytimes.com/2026/08/26/fashion/jewelry-pattaraphan-salirathavibhaga-thailand.html
+
+**This Jewelry Maker Overcame an Inability to Visualize Design**\
+`The Irish jewelry maker Mark Newman made his own creative system, inspired by functional patterns such as road layouts.`\
+https://www.nytimes.com/2026/08/26/fashion/jewelry-aphantasia-mark-newman.html
+
+**Why Not Add A Gem-Studded Accent to Your Handbag?**\
+`Designers are creating fine jewelry pieces with an eye to reinventing how they are worn.`\
+https://www.nytimes.com/2026/08/26/fashion/jewelry-for-your-handbag.html
+
+**The Allure of Japan’s Jewelry Resale Market**\
+`Its reputation for rigorously assessing pieces before offering them for sale attracts buyers from around the world.`\
+https://www.nytimes.com/2026/08/26/fashion/japan-jewelry-resale-market.html
+
+**Sodalite Is a Blue Stone With a Cool Vibe**\
+`Sodalite has been taking the place of pricey lapis lazuli in some jewelry creations.`\
+https://www.nytimes.com/2026/08/26/fashion/jewelry-sodalite-louis-vuitton.html
+
+**Trust in Talismans Shapes This Jewelry Designer’s Line**\
+`Evil eyes and clovers are just some of the symbols in the Kismet by Milka collection.`\
+https://www.nytimes.com/2026/08/26/fashion/jewelry-kismet-by-milka-istanbul.html
+
+**Adding Jewelry to Your Belt Has Become Something of a Trend**\
+`Adding jewelry such as earrings or even necklaces has become something of a trend.`\
+https://www.nytimes.com/2026/08/26/fashion/jewelry-accenting-your-belt.html
+
+**Can This English City Keep Its Jewelry Gem?**\
+`The Jewellery Quarter has housed one of Birmingham’s prime industries for centuries, but many now worry that gentrification is changing all that.`\
+https://www.nytimes.com/2026/08/26/fashion/jewelry-quarter-birmingham-england.html
+
+**How the Anvil Was Nearly Dropped on ‘Coyote vs. Acme’**\
+`The live action-animation hybrid comedy fought a real-life studio battle to win its theatrical release.`\
+https://www.nytimes.com/2026/08/26/movies/the-story-behind-coyote-vs-acme.html
+
+**The Best Literary Detective You’ve Never Heard Of, and the Man Who Made Him**\
+`How Peter Grainger, an English mystery writer, self-published his way into prominence.`\
+https://www.nytimes.com/2026/08/26/books/the-best-literary-detective-youve-never-heard-of-and-the-man-who-made-him.html
+
+**‘Intrinsic Capacity’: The Most Important Longevity Term You’ve Never Heard of**\
+`Intrinsic capacity is quickly becoming a preferred way to measure and assess human aging.`\
+https://www.nytimes.com/2026/08/26/well/intrinsic-capacity-longevity-measure.html
+
+**Americans Encounter Risks at Psychedelic Clinics Abroad**\
+`Participants, often in vulnerable states, have little recourse if mistreated or injured.`\
+https://www.nytimes.com/2026/08/26/health/psychedelic-treaments-ibogaine-mexico.html
+
+**As CTE Cases Soar, Why Can’t Americans Quit the NFL?**\
+`A collision of American popular culture and public health is on display in the N.F.L.`\
+https://www.nytimes.com/2026/08/26/us/nfl-cte.html
+
 **Darline Graham Wins Republican Senate Nomination in South Carolina**\
 `Senator Darline Graham, who received President Trump’s backing, defeated Representative Ralph Norman, a five-term congressman, in the Republican primary runoff in South Carolina.`\
 https://www.nytimes.com/video/us/politics/100000011113537/south-carolina-senate-darline-graham.html
@@ -29,172 +197,4 @@ https://www.nytimes.com/2026/08/26/us/politics/bernadette-wilson-alaska-governor
 **In Headache for Republicans, Second Dan Sullivan Advances in Alaska Senate Race**\
 `A long-shot candidate with the same name as the incumbent Republican senator will be on the ballot in November. That could be a problem for the G.O.P.`\
 https://www.nytimes.com/2026/08/26/us/politics/dan-sullivan-alaska-senate-midterms.html
-
-**Confronting South Korea’s Violent Past and Its Echoes Today**\
-`The National Museum of Korean Democracy, which opened last year, documents an era of brutal suppression. But that dark history has resurfaced in troubling ways.`\
-https://www.nytimes.com/2026/08/26/world/asia/korea-democracy-tankday-starbucks.html
-
-**Quote of the Day: Study Links Brain Disease to at Least 1 in 4 in N.F.L.**\
-`Quotation of the Day for Wednesday, August 26, 2026.`\
-https://www.nytimes.com/2026/08/26/pageoneplus/quote-of-the-day-study-links-brain-disease-to-at-least-1-in-4-in-nfl.html
-
-**What to Know About Bank Melli, Singled Out in U.S. Call for Economic War**\
-`Bank Melli, Iran’s largest lender, already faces waves of sanctions that severely limit its ability to operate abroad. Every foreign branch must be shut down, Treasury Secretary Scott Bessent said.`\
-https://www.nytimes.com/2026/08/26/world/europe/iran-melli-bank-us-sanctions.html
-
-**Corrections: Aug. 25, 2026**\
-`Corrections that appeared in print on Tuesday, Aug. 25, 2026.`\
-https://www.nytimes.com/2026/08/25/pageoneplus/corrections-aug-25-2026.html
-
-**A Surrogate Fled to Texas to Avoid an Abortion. Now She Wants Custody of the Baby.**\
-`A surrogate refused to have an abortion after the fetus was diagnosed with a serious heart problem. She fled to Texas and had the child. Now she wants a judge to give custody to her instead of the biological parents.`\
-https://www.nytimes.com/2026/08/25/us/texas-surrogate-custody.html
-
-**Mike Mazzei, Backed by Trump, Wins Oklahoma Primary for Governor**\
-`Mike Mazzei, a former state senator who lent more than $11 million of his own money to his campaign, narrowly defeated the state’s attorney general, Gentner Drummond.`\
-https://www.nytimes.com/2026/08/25/us/elections/oklahoma-governor-drummond-mazzei.html
-
-**Graham, and Trump, Triumph: Six Takeaways From South Carolina’s Senate Runoff**\
-`President Trump went all in for Senator Darline Graham in a primary runoff on Tuesday. It worked, preserving his undefeated streak in Republican Senate primaries this year.`\
-https://www.nytimes.com/2026/08/25/us/politics/election-takeaways-south-carolina-oklahoma.html
-
-**NYT Crossword Answers for Aug. 26, 2026**\
-`John Kugelman and Lance Enfinger name names.`\
-https://www.nytimes.com/2026/08/25/crosswords/daily-puzzle-2026-08-26.html
-
-**Country Music Superstar Dolly Parton Dies at 80**\
-`Dolly Parton, the country music superstar who rose from poverty to become a top-selling singer, songwriter and entrepreneur, died of cancer in Nashville on Tuesday.`\
-https://www.nytimes.com/video/embedded/obituaries/100000011112476/country-music-superstar-dolly-parton-dies.html
-
-**Newsom Lists Sacramento Home for $7.5 Million as He Prepares to Leave Town**\
-`Gov. Gavin Newsom has just over four months left in office and will head back to Marin County full-time, where he will consider a run for president.`\
-https://www.nytimes.com/2026/08/25/us/newsom-selling-sacramento-house.html
-
-**Trump Administration Sends Saudi Nuclear Deal to Congress for Review**\
-`The prospect that the kingdom could enrich uranium has drawn opposition from Democrats and revived concerns about nuclear proliferation in the Middle East.`\
-https://www.nytimes.com/2026/08/25/us/politics/trump-saudi-nuclear-deal-congress-review.html
-
-**Darline Graham, Backed By Trump, Wins Primary for Senate in South Carolina**\
-`Ms. Graham, who is temporarily filling the seat long held by her late brother, Senator Lindsey Graham, prevailed in a runoff and will be heavily favored in November.`\
-https://www.nytimes.com/2026/08/25/us/politics/south-carolina-senate-graham-norman.html
-
-**‘Paranormal Activity’ Review: The Thing That Goes Bump in the Night**\
-`It’s now haunting Broadway in this adaptation of the horror film franchise about a couple seeking a new start. Instead, they become prime targets.`\
-https://www.nytimes.com/2026/08/25/theater/paranormal-activity-review-broadway.html
-
-**5 Things to Know About Mike Mazzei, Oklahoma G.O.P. Candidate for Governor**\
-`The former state senator, who was endorsed by President Trump, spent millions of dollars of his own money on the race.`\
-https://www.nytimes.com/2026/08/25/us/politics/who-is-mike-mazzei.html
-
-**5 Things to Know About Gentner Drummond, Oklahoma G.O.P. Candidate for Governor**\
-`Mr. Drummond, the state attorney general, faces an opponent backed by President Trump and Gov. Kevin Stitt. The campaign has highlighted his independent streak.`\
-https://www.nytimes.com/2026/08/25/us/politics/who-is-gentner-drummond.html
-
-**N.Y.C. Officials Defend Second-Home Tax Rollout and Move to Ease Worries**\
-`Mamdani administration officials said they had used new data to shrink the pool of properties potentially subject to the tax and extended the deadline for homeowners to prove city residency.`\
-https://www.nytimes.com/2026/08/25/nyregion/mamdani-pieds-a-terre-tax-homes.html
-
-**Everton Blair Jr. Wins Race to Fill David Scott’s House Seat in Georgia**\
-`Everton Blair Jr. will serve until January in the seat long held by Mr. Scott, who died in April. Mr. Blair is not competing in the general election for the next full term in the deep-blue district.`\
-https://www.nytimes.com/2026/08/25/us/politics/everton-blair-georgia-runoff-house-david-scott.html
-
-**Dolly Parton Died After Brief Battle With Cancer**\
-`Parton had recently canceled a Las Vegas residency because of health issues. A spokesman said she was admitted to a cancer center in Nashville on Friday.`\
-https://www.nytimes.com/2026/08/25/arts/music/dolly-parton-cancer-cause-death.html
-
-**Canadá responde e impone aranceles a cientos de productos de EE. UU.**\
-`La nueva medida alcanza unos 700 artículos, desde pescado y electrodomésticos hasta acero y aluminio, mientras Ottawa busca proteger a su industria frente a las decisiones de Washington.`\
-https://www.nytimes.com/es/2026/08/25/espanol/mundo/canada-impone-aranceles-productos-ee-uu.html
-
-**Dolly Parton’s Death Hits Home for Tennesseans: ‘She Was One of Us’**\
-`The country music star kept her home state at the forefront of her music and work. “She inspired Tennesseans to be better,” one resident said.`\
-https://www.nytimes.com/2026/08/25/us/nashville-mourns-dolly-parton.html
-
-**Trump’s Efforts to Sow Election Doubts Get Boost from Initial Court Order**\
-`A preliminary Supreme Court ruling could leave voters confused about casting ballots by mail, even as President Trump’s executive order is being litigated in the lower courts, experts said.`\
-https://www.nytimes.com/2026/08/25/us/politics/trump-voting-doubt-mail-ballots.html
-
-**Experts for Prosecution Discuss Clancy’s Mental State at Time of Killings**\
-`Lindsay Clancy has said she was suffering postpartum psychosis when she killed her children in 2023. Prosecution experts shared their doubts about that claim on Tuesday.`\
-https://www.nytimes.com/2026/08/25/us/lindsay-clancy-trial.html
-
-**Hugo y Mariano Jinkis llegan a acuerdo en caso de corrupción de la FIFA**\
-`Hugo y Mariano Jinkis, que estaban prófugos en Argentina, volvieron voluntariamente a Estados Unidos en mayo y se espera que esta semana comparezcan ante un tribunal federal en Brooklyn.`\
-https://www.nytimes.com/es/2026/08/25/espanol/estados-unidos/jinkis-caso-corrupcion-acuerdo-fifa.html
-
-**Democrats Score Victory in Campaign Finance Court Case**\
-`Republicans had hoped that a Supreme Court decision allowing party committees to coordinate with candidates would also entitle them to lower ad rates. On Tuesday, an appeals court said otherwise.`\
-https://www.nytimes.com/2026/08/25/us/politics/court-democrats-republicans-ad-case.html
-
-**5 Things to Know About Darline Graham, Trump-Backed South Carolina Senate Candidate**\
-`Ms. Graham is currently serving out the term of her late brother, Lindsey Graham. She has argued that her lack of political experience is a strength.`\
-https://www.nytimes.com/2026/08/25/us/politics/trump-darline-graham-south-carolina.html
-
-**5 Things to Know About Ralph Norman, South Carolina Senate Candidate**\
-`Mr. Norman, a five-term congressman, is a hard-line conservative running against the sister of the late Senator Lindsey Graham.`\
-https://www.nytimes.com/2026/08/25/us/politics/ralph-norman-south-carolina-senate.html
-
-**Worker Dies After Accident With Plane at Montreal Airport**\
-`The Transportation Safety Board of Canada said the episode involved an Airbus A350 operated by French Bee, a French low-cost airline.`\
-https://www.nytimes.com/2026/08/25/world/canada/montreal-airport-accident-worker-dead.html
-
-**Dolly Parton Had the Voice, and Concerns, of an Earth Angel**\
-`Parton gave hopeful expression to songs she wrote about the hard times and hard-won triumphs of her life.`\
-https://www.nytimes.com/2026/08/25/arts/music/dolly-parton-voice-appraisal.html
-
-**At Trump’s IndyCar Race, a V.I.P. Invitation Became a Diplomatic Snub**\
-`Foreign ambassadors were promised free food and drinks, misting fans and shaded seats during the event. Then some of them were uninvited.`\
-https://www.nytimes.com/2026/08/25/us/politics/trump-indycar-diplomatic-snub.html
-
-**Escucha 15 canciones esenciales de la playlist de Dolly Parton**\
-`La cantautora encabezó las listas de éxitos, abarcó distintos géneros y trascendió las fronteras del country.`\
-https://www.nytimes.com/es/2026/08/25/espanol/cultura/dolly-parton-playlist-mejores-canciones.html
-
-**U.S. ‘Economic D-Day’ Targets More Than Just Iranian Oil**\
-`The United States threatened sanctions for any country or entity that engages with Iran’s gold, digital assets, aviation, shipping and tech industries. Here’s why that matters.`\
-https://www.nytimes.com/2026/08/25/world/middleeast/iran-us-sanctions-oil-gold.html
-
-**When to Expect Results in South Carolina and Oklahoma’s Primary Runoff Elections**\
-`The results of primary runoff elections will likely be known by late Tuesday night, officials said.`\
-https://www.nytimes.com/2026/08/25/us/politics/south-carolina-oklahoma-results-timing.html
-
-**Serena Williams Returns to Tennis and Thrills U.S. Open Crowd**\
-`Williams and Carlos Alcaraz coasted to an early victory in mixed doubles before losing their second match.`\
-https://www.nytimes.com/2026/08/25/nyregion/serena-williams-alcaraz-us-open-photos.html
-
-**Dolly Parton: A Life in Pictures**\
-`Parton made her mark in the country arenas of Nashville, and then crossed over into the pop world, Hollywood and beyond.`\
-https://www.nytimes.com/2026/08/25/arts/music/dolly-parton-photos-life-career.html
-
-**Instagram Chief Says ‘No Silver Bullets’ for Teen Safety in Bellwether Trial**\
-`Adam Mosseri testified in a case brought by states that claim the Meta-owned app created addictive features to hook young users.`\
-https://www.nytimes.com/2026/08/25/technology/instagram-adam-mosseri-trial.html
-
-**Would Darline Graham Be the First Sister to Succeed a Brother in Congress?**\
-`Family dynasties are common in American politics. But sibling succession is rare.`\
-https://www.nytimes.com/2026/08/25/us/politics/darline-lindsey-graham-election-succession.html
-
-**What Dolly Parton Told Me**\
-`Trailing Dolly Parton around the world, I witnessed so many small moments in which she’d gracefully own her power without the slightest hint of fight.`\
-https://www.nytimes.com/2026/08/25/opinion/dolly-parton-death-america-legacy.html
-
-**The Evening: Canada Retaliates With New U.S. Tariffs**\
-`Plus, Dolly Parton dies at 80. Here’s the latest at the end of Tuesday.`\
-https://www.nytimes.com/2026/08/25/briefing/tariffs-dolly-parton-cte.html
-
-**Need Help? Prepare for the ‘Time Tax.’**\
-`A form that the Michigan state government asks people to fill out if they are seeking public assistance is the journalist Annie Lowrey’s favorite example of the time tax — the administrative burden the government imposes on those seeking public benefits. At one point, the form contained over 1,000 questions, though it’s since been streamlined. Lowrey walks through it— and what it signals to the people filling it out — on “The Ezra Klein Show.”`\
-https://www.nytimes.com/video/opinion/100000011107034/need-help-prepare-for-the-time-tax.html
-
-**The Next Tropical Storm Will Share Dolly Parton’s Name**\
-`Dolly Parton died on Tuesday. The next tropical storm in the Atlantic will, coincidentally, carry her name.`\
-https://www.nytimes.com/2026/08/25/weather/tropical-storm-dolly.html
-
-**Sheltering From a Russian Missile Attack in Kyiv**\
-`As Russian missiles struck Ukraine’s capital, our correspondent Constant Méheut sheltered underground. Here’s what he shared from a subway station in Kyiv while speaking to Natalie Kitroeff on “The Call.”`\
-https://www.nytimes.com/video/podcasts/the-daily/100000011111596/sheltering-from-a-russian-missile-attack-in-kyiv.html
-
-**Darline Graham, With Push From Trump, Wins Senate Primary in South Carolina**\
-`President Trump helped lift Ms. Graham from relative obscurity after the death of her brother, Lindsey Graham, six weeks ago. In Oklahoma, another Trump-backed candidate, Mike Mazzei, won the nomination for governor.`\
-https://www.nytimes.com/live/2026/08/25/us/elections-south-carolina-oklahoma
 
