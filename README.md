@@ -1,3 +1,11 @@
+**What Does $17.1 Billion Mean for Meta?**\
+`The Silicon Valley company agreed to pay up to $17.1 billion in penalties as part of a landmark settlement with states over social media addiction claims.`\
+https://www.nytimes.com/2026/08/26/technology/what-does-17-1-billion-mean-for-meta.html
+
+**Over 100 Indian Pilgrims Are Among the Missing in Nepal Floods**\
+`Many of them were traveling to or from a Himalayan peak that is revered by Hindus as the spiritual home of the god Shiva.`\
+https://www.nytimes.com/2026/08/26/world/asia/over-100-indian-pilgrims-are-among-the-missing-in-deadly-nepal-floods.html
+
 **¿De qué murió Dolly Parton?**\
 `No está claro en qué momento recibió el diagnóstico de cáncer. Hace poco más de una semana, faltó a una aparición programada en Dollywood.`\
 https://www.nytimes.com/es/2026/08/26/espanol/cultura/dolly-parton-de-que-murio-cancer.html
@@ -182,15 +190,7 @@ https://www.nytimes.com/video/embedded/world/asia/100000011113830/26vid-nepal-cc
 `Two of her defining hits — “Jolene” and “I Will Always Love You” — were perhaps written in the same day. In different ways, they found sturdy melodies for precarious emotions.`\
 https://www.nytimes.com/2026/08/26/arts/music/dolly-parton-jolene-i-will-always-love-you.html
 
-****\
-`Verified surveillance footage shows the moment a landslide ripped through Gyirong Port, on the border between China and Nepal, on Wednesday.`\
-https://www.nytimes.com/video/embedded/world/asia/100000011113814/26vid-nepal-cctv-49655.html
-
-**Why Is This Picture at Every Sex Party?**\
-`Jess Zakira Wise, a play party organizer, joins host Anna Martin on “Modern Love” to share her early experiences at sex parties.`\
-https://www.nytimes.com/video/podcasts/100000011113819/why-is-this-picture-at-every-sex-party.html
-
 **Live Updates: At Least 98 Killed and Hundreds Missing as Floods Sweep Away Villages in Nepal**\
-`A wall of water crashed through a Himalayan river valley between Nepal and the Chinese territory of Tibet, the Nepali authorities said. The missing included border officials, port workers and foreign tourists.`\
+`(No description)`\
 https://www.nytimes.com/live/2026/08/26/world/nepal-floods
 

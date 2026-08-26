@@ -1,3 +1,11 @@
+**¿De qué murió Dolly Parton?**\
+`No está claro en qué momento recibió el diagnóstico de cáncer. Hace poco más de una semana, faltó a una aparición programada en Dollywood.`\
+https://www.nytimes.com/es/2026/08/26/espanol/cultura/dolly-parton-de-que-murio-cancer.html
+
+**Judges Reject Plea to Toss Charges Against Democratic House Member**\
+`An appeals panel ruled against Representative LaMonica McIver, a Democrat accused by the Justice Department of assaulting immigration agents outside Delaney Hall. No one was injured in the clash.`\
+https://www.nytimes.com/2026/08/26/nyregion/mciver-trump-delaney-hall-decision.html
+
 **How Dolly Parton Stood on Business With ‘I Will Always Love You’**\
 `When Elvis Presley wanted to record the song, Parton made the hard-nosed decision to protect her ownership of her work.`\
 https://www.nytimes.com/2026/08/26/arts/music/dolly-parton-publishing-i-will-always-love-you.html
@@ -182,15 +190,7 @@ https://www.nytimes.com/video/embedded/world/asia/100000011113814/26vid-nepal-cc
 `Jess Zakira Wise, a play party organizer, joins host Anna Martin on “Modern Love” to share her early experiences at sex parties.`\
 https://www.nytimes.com/video/podcasts/100000011113819/why-is-this-picture-at-every-sex-party.html
 
-**U.S.S. Abraham Lincoln Sailor Says Father Arrested by Border Patrol Has Been Released**\
-`Joshua Aviles, a Navy sailor, said his father had been freed days after he was detained as Mr. Aviles returned from a lengthy deployment in the Middle East.`\
-https://www.nytimes.com/2026/08/26/us/politics/uss-abraham-lincoln-sailor-father-arrested-immigration-released.html
-
-**Oil Prices Dip on News of Progress in Hormuz Talks**\
-`The two countries said they would create a temporary shipping lane and clear mines in the waterway. Global oil prices dipped after the joint announcement.`\
-https://www.nytimes.com/2026/08/26/world/middleeast/iran-oman-strait-hormuz.html
-
-**Live Updates: At Least 95 Killed and Hundreds Missing as Floods Sweep Away Villages in Nepal**\
+**Live Updates: At Least 98 Killed and Hundreds Missing as Floods Sweep Away Villages in Nepal**\
 `A wall of water crashed through a Himalayan river valley between Nepal and the Chinese territory of Tibet, the Nepali authorities said. The missing included border officials, port workers and foreign tourists.`\
 https://www.nytimes.com/live/2026/08/26/world/nepal-floods
 

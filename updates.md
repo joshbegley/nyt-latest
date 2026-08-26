@@ -1,3 +1,15 @@
+**¿De qué murió Dolly Parton?**\
+`No está claro en qué momento recibió el diagnóstico de cáncer. Hace poco más de una semana, faltó a una aparición programada en Dollywood.`\
+https://www.nytimes.com/es/2026/08/26/espanol/cultura/dolly-parton-de-que-murio-cancer.html
+
+**Judges Reject Plea to Toss Charges Against Democratic House Member**\
+`An appeals panel ruled against Representative LaMonica McIver, a Democrat accused by the Justice Department of assaulting immigration agents outside Delaney Hall. No one was injured in the clash.`\
+https://www.nytimes.com/2026/08/26/nyregion/mciver-trump-delaney-hall-decision.html
+
+**Live Updates: At Least 98 Killed and Hundreds Missing as Floods Sweep Away Villages in Nepal**\
+`A wall of water crashed through a Himalayan river valley between Nepal and the Chinese territory of Tibet, the Nepali authorities said. The missing included border officials, port workers and foreign tourists.`\
+https://www.nytimes.com/live/2026/08/26/world/nepal-floods
+
 **How Dolly Parton Stood on Business With ‘I Will Always Love You’**\
 `When Elvis Presley wanted to record the song, Parton made the hard-nosed decision to protect her ownership of her work.`\
 https://www.nytimes.com/2026/08/26/arts/music/dolly-parton-publishing-i-will-always-love-you.html
