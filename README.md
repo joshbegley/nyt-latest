@@ -1,3 +1,23 @@
+**The Stunning Rise of the Democratic Socialists of America**\
+`Democratic socialists are capturing more votes than ever before — even as they run up against the limits of their appeal.`\
+https://www.nytimes.com/2026/08/26/podcasts/the-daily/democratic-socialism-dsa-elections-primaries.html
+
+**Hegseth’s Army Purge, and Polling Chaos in the Midterms**\
+`Plus, there was no one like Dolly Parton.`\
+https://www.nytimes.com/2026/08/26/podcasts/the-headlines/hegseth-military-generals-midterms-polls-dolly-parton.html
+
+**NYT Connections Answers for August 27, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Aug. 27, 2026.`\
+https://www.nytimes.com/2026/08/26/crosswords/connections-companion-1173.html
+
+**Today’s Wordle Hints for August 27, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Aug. 27, 2026.`\
+https://www.nytimes.com/2026/08/26/crosswords/wordle-review-1895.html
+
+**NYT Strands Hints for August 27, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Aug. 27, 2026.`\
+https://www.nytimes.com/2026/08/26/crosswords/strands-sidekick-907.html
+
 **Eight Dead, Others Missing as Floods Sweep Away Villages in Nepal**\
 `A wall of water swept down a Himalayan river valley shared between Nepal and the Chinese territory of Tibet.`\
 https://www.nytimes.com/2026/08/26/world/asia/nepal-floods-tibet-missing.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/08/26/fashion/jewelry-quarter-birmingham-england.ht
 **How the Anvil Was Nearly Dropped on ‘Coyote vs. Acme’**\
 `The live action-animation hybrid comedy fought a real-life studio battle to win its theatrical release.`\
 https://www.nytimes.com/2026/08/26/movies/the-story-behind-coyote-vs-acme.html
-
-**The Best Literary Detective You’ve Never Heard Of, and the Man Who Made Him**\
-`How Peter Grainger, an English mystery writer, self-published his way into prominence.`\
-https://www.nytimes.com/2026/08/26/books/the-best-literary-detective-youve-never-heard-of-and-the-man-who-made-him.html
-
-**‘Intrinsic Capacity’: The Most Important Longevity Term You’ve Never Heard of**\
-`Intrinsic capacity is quickly becoming a preferred way to measure and assess human aging.`\
-https://www.nytimes.com/2026/08/26/well/intrinsic-capacity-longevity-measure.html
-
-**Americans Encounter Risks at Psychedelic Clinics Abroad**\
-`Participants, often in vulnerable states, have little recourse if mistreated or injured.`\
-https://www.nytimes.com/2026/08/26/health/psychedelic-treaments-ibogaine-mexico.html
-
-**As CTE Cases Soar, Why Can’t Americans Quit the NFL?**\
-`A collision of American popular culture and public health is on display in the N.F.L.`\
-https://www.nytimes.com/2026/08/26/us/nfl-cte.html
-
-**Darline Graham Wins Republican Senate Nomination in South Carolina**\
-`Senator Darline Graham, who received President Trump’s backing, defeated Representative Ralph Norman, a five-term congressman, in the Republican primary runoff in South Carolina.`\
-https://www.nytimes.com/video/us/politics/100000011113537/south-carolina-senate-darline-graham.html
 
