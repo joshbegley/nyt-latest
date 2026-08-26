@@ -1,3 +1,7 @@
+**Will Meta’s Changes Benefit Young Users’ Mental Health?**\
+`Psychologists said the changes were a symbolic victory, but warned their effectiveness might be limited.`\
+https://www.nytimes.com/2026/08/26/well/family/meta-settlement-youth-mental-health.html
+
 **Una inundación repentina en Nepal abre nuevas preguntas sobre los glaciares del Himalaya**\
 `Expertos describen cómo una enorme masa de hielo se fragmentó al precipitarse hacia el valle, liberando agua y escombros con una fuerza comparable a una explosión.`\
 https://www.nytimes.com/es/2026/08/26/espanol/mundo/inundacion-nepal-glaciares-himalaya.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/26/opinion/us-canada-trade-cars-trucks-china.htm
 **The South Loved Dolly Parton. It Saw the Best of Itself in Her.**\
 `Even as her talents and work ethic opened up the world to her, she kept coming home. For many in the complicated region she’s from, that meant a lot.`\
 https://www.nytimes.com/2026/08/26/us/dolly-parton-south.html
-
-**New Studies Link Menopause Hormone Therapy to Lower Alzheimer’s Risk**\
-`But outside experts point to significant limitations of the research and say the findings should not be seen as definitive.`\
-https://www.nytimes.com/2026/08/26/well/alzheimers-hormone-therapy-menopause-studies.html
 
