@@ -1,3 +1,7 @@
+**How Dolly Parton Stood on Business With ‘I Will Always Love You’**\
+`When Elvis Presley wanted to record the song, Parton made the hard-nosed decision to protect her ownership of her work.`\
+https://www.nytimes.com/2026/08/26/arts/music/dolly-parton-publishing-i-will-always-love-you.html
+
 **States File Fresh Challenge to Trump’s Mail-In Voting Restrictions**\
 `A new lawsuit brought by a coalition of Democratic state attorneys general took aim at postal regulations designed to meet the president’s demands on voter verification.`\
 https://www.nytimes.com/2026/08/26/us/politics/states-lawsuit-mail-ballot-order.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/26/world/middleeast/iran-oman-strait-hormuz.html
 **Live Updates: At Least 95 Killed and Hundreds Missing as Floods Sweep Away Villages in Nepal**\
 `A wall of water crashed through a Himalayan river valley between Nepal and the Chinese territory of Tibet, the Nepali authorities said. The missing included border officials, port workers and foreign tourists.`\
 https://www.nytimes.com/live/2026/08/26/world/nepal-floods
-
-**They’re Done With Trump**\
-`We look at Canada’s opposition to the president.`\
-https://www.nytimes.com/2026/08/26/briefing/theyre-done-with-trump.html
 

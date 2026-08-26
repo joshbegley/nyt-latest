@@ -1,3 +1,7 @@
+**How Dolly Parton Stood on Business With ‘I Will Always Love You’**\
+`When Elvis Presley wanted to record the song, Parton made the hard-nosed decision to protect her ownership of her work.`\
+https://www.nytimes.com/2026/08/26/arts/music/dolly-parton-publishing-i-will-always-love-you.html
+
 **States File Fresh Challenge to Trump’s Mail-In Voting Restrictions**\
 `A new lawsuit brought by a coalition of Democratic state attorneys general took aim at postal regulations designed to meet the president’s demands on voter verification.`\
 https://www.nytimes.com/2026/08/26/us/politics/states-lawsuit-mail-ballot-order.html
