@@ -1,3 +1,7 @@
+**14 Newborns Die in Pakistan Hospital Fire**\
+`Fourteen newborn babies died on Wednesday in Pakistan’s capital, Islamabad, after a fire broke out in the city’s largest hospital, officials said.`\
+https://www.nytimes.com/video/world/asia/100000011113816/14-newborns-die-in-pakistan-hospital-fire.html
+
 **What to Know About Deadly Flash Floods in Nepal and Tibet**\
 `An avalanche may have caused an unusual flash flood without heavy rainfall, with hundreds of people unaccounted for in the path of destruction. Here’s what to know.`\
 https://www.nytimes.com/2026/08/26/world/asia/nepal-tibet-floods-wtk.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/video/embedded/world/asia/100000011113845/26visualUpload
 **3 Teenagers Killed in Crash on Brooklyn Highway**\
 `The driver of an S.U.V. and two passengers were thrown from the vehicle and pronounced dead at a hospital. Four other people were injured.`\
 https://www.nytimes.com/2026/08/26/nyregion/nyc-belt-parkway-crash.html
-
-**PCE Index Shows Inflation Remained Elevated in July Amid High Energy Costs**\
-`The Personal Consumption Expenditure index, the Federal Reserve’s preferred inflation tracker, held steady in July.`\
-https://www.nytimes.com/2026/08/26/business/economy/inflation-pce.html
 
 **Live Updates: At Least 98 Killed and Hundreds Missing as Floods Sweep Away Villages in Nepal**\
 `(No description)`\
