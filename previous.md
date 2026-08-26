@@ -1,3 +1,11 @@
+**Praise for Dolly Parton, ‘a National Treasure’**\
+`Readers react to the death of Dolly Parton’s music, philanthropy and the joy she brought to millions. Also: Moms love Spider-Man, too; reading with others.`\
+https://www.nytimes.com/2026/08/26/opinion/dolly-parton-death-praise.html
+
+**Muere Tim Curry, que interpretó a Pennywise en ‘It’**\
+`El talento del actor para la excentricidad dejó una marca indeleble en muchos de sus roles, como el del estrafalario científico travesti de “The Rocky Horror Picture Show”.`\
+https://www.nytimes.com/es/2026/08/26/espanol/cultura/muere-tim-curry.html
+
 **14 Newborns Die in Pakistan Hospital Fire**\
 `Fourteen newborn babies died on Wednesday in Pakistan’s capital, Islamabad, after a fire broke out in the city’s largest hospital, officials said.`\
 https://www.nytimes.com/video/world/asia/100000011113816/14-newborns-die-in-pakistan-hospital-fire.html
@@ -10,7 +18,7 @@ https://www.nytimes.com/2026/08/26/world/asia/nepal-tibet-floods-wtk.html
 `The judge’s message to people offended by drag performances was, “Just don’t go.” Attorney General Ken Paxton vowed to appeal again.`\
 https://www.nytimes.com/2026/08/26/us/drag-show-ban-texas-judge.html
 
-**The Dollywood Theme Park Captured the Essence of Its Founder**\
+**How Dollywood Captured the Essence of Dolly Parton**\
 `Her idea to create a “fantasy city” that celebrated her home region turned into a billion-dollar attraction that maintained its authentic feel.`\
 https://www.nytimes.com/2026/08/26/arts/music/dollywood-dolly-parton.html
 
@@ -34,7 +42,7 @@ https://www.nytimes.com/2026/08/26/world/asia/over-100-indian-pilgrims-are-among
 `No está claro en qué momento recibió el diagnóstico de cáncer. Hace poco más de una semana, faltó a una aparición programada en Dollywood.`\
 https://www.nytimes.com/es/2026/08/26/espanol/cultura/dolly-parton-de-que-murio-cancer.html
 
-**Judges Reject Plea to Toss Charges Against Democratic House Member**\
+**Judges Reject Plea to Toss Federal Charges Against Democratic Lawmaker**\
 `An appeals panel ruled against Representative LaMonica McIver, a Democrat accused by the Justice Department of assaulting immigration agents outside Delaney Hall. No one was injured in the clash.`\
 https://www.nytimes.com/2026/08/26/nyregion/mciver-trump-delaney-hall-decision.html
 
@@ -114,7 +122,7 @@ https://www.nytimes.com/2026/08/26/us/politics/dean-roy-vermont-governor-electio
 `El combustible, utilizado en maquinaria agrícola, camiones y otros equipos pesados, ha aumentado su costo debido a la guerra en Irán y a los ataques ucranianos contra las refinerías rusas.`\
 https://www.nytimes.com/es/2026/08/26/espanol/negocios/combustible-diesel-precio-aumento.html
 
-**With ‘Killer in the Code,’ Michael Connelly Puts His Reputation on the Line**\
+**Did the Zodiac Kill the Black Dahlia? This Crime Writer Thinks So.**\
 `The novelist Michael Connelly knows he is putting his reputation on the line with the podcast “Killer in the Code.” But despite critics’ skepticism, he finds the evidence “completely convincing.”`\
 https://www.nytimes.com/2026/08/26/arts/michael-connelly-black-dahlia-zodiac-podcast.html
 
@@ -181,14 +189,6 @@ https://www.nytimes.com/video/embedded/world/asia/100000011113911/26vid-nepal-cc
 **Masked Man Accused of Harassing Philadelphians Is Arrested in Las Vegas**\
 `Zymire Hughes scared more than a dozen people while wearing a Chucky-style mask, the authorities said. He is being held in jail while awaiting extradition to Pennsylvania.`\
 https://www.nytimes.com/2026/08/26/us/man-arrested-chucky-mask-philadelphia-las-vegas.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/world/asia/100000011113845/26visualUploader-44227.html
-
-**3 Teenagers Killed in Crash on Brooklyn Highway**\
-`The driver of an S.U.V. and two passengers were thrown from the vehicle and pronounced dead at a hospital. Four other people were injured.`\
-https://www.nytimes.com/2026/08/26/nyregion/nyc-belt-parkway-crash.html
 
 **Live Updates: At Least 98 Killed and Hundreds Missing as Floods Sweep Away Villages in Nepal**\
 `(No description)`\

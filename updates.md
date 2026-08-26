@@ -1,3 +1,23 @@
+**Praise for Dolly Parton, ‘a National Treasure’**\
+`Readers react to the death of Dolly Parton’s music, philanthropy and the joy she brought to millions. Also: Moms love Spider-Man, too; reading with others.`\
+https://www.nytimes.com/2026/08/26/opinion/dolly-parton-death-praise.html
+
+**Muere Tim Curry, que interpretó a Pennywise en ‘It’**\
+`El talento del actor para la excentricidad dejó una marca indeleble en muchos de sus roles, como el del estrafalario científico travesti de “The Rocky Horror Picture Show”.`\
+https://www.nytimes.com/es/2026/08/26/espanol/cultura/muere-tim-curry.html
+
+**How Dollywood Captured the Essence of Dolly Parton**\
+`Her idea to create a “fantasy city” that celebrated her home region turned into a billion-dollar attraction that maintained its authentic feel.`\
+https://www.nytimes.com/2026/08/26/arts/music/dollywood-dolly-parton.html
+
+**Judges Reject Plea to Toss Federal Charges Against Democratic Lawmaker**\
+`An appeals panel ruled against Representative LaMonica McIver, a Democrat accused by the Justice Department of assaulting immigration agents outside Delaney Hall. No one was injured in the clash.`\
+https://www.nytimes.com/2026/08/26/nyregion/mciver-trump-delaney-hall-decision.html
+
+**Did the Zodiac Kill the Black Dahlia? This Crime Writer Thinks So.**\
+`The novelist Michael Connelly knows he is putting his reputation on the line with the podcast “Killer in the Code.” But despite critics’ skepticism, he finds the evidence “completely convincing.”`\
+https://www.nytimes.com/2026/08/26/arts/michael-connelly-black-dahlia-zodiac-podcast.html
+
 **14 Newborns Die in Pakistan Hospital Fire**\
 `Fourteen newborn babies died on Wednesday in Pakistan’s capital, Islamabad, after a fire broke out in the city’s largest hospital, officials said.`\
 https://www.nytimes.com/video/world/asia/100000011113816/14-newborns-die-in-pakistan-hospital-fire.html
