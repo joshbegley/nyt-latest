@@ -1,3 +1,7 @@
+**There’s Only One Winner of a Trade War With Canada**\
+`China is the real problem, and Washington needs all the allies it can find.`\
+https://www.nytimes.com/2026/08/26/opinion/us-canada-trade-cars-trucks-china.html
+
 **The South Loved Dolly Parton. It Saw the Best of Itself in Her.**\
 `Even as her talents and work ethic opened up the world to her, she kept coming home. For many in the complicated region she’s from, that meant a lot.`\
 https://www.nytimes.com/2026/08/26/us/dolly-parton-south.html
@@ -185,12 +189,4 @@ https://www.nytimes.com/2026/08/26/world/asia/nepal-flood-glacier-ice-avalanche.
 **Trump’s Top Gaza Official Says Israel Is Jeopardizing the Cease-Fire**\
 `Nickolay Mladenov, the Board of Peace’s high representative for Gaza, criticized Israel for its ongoing strikes on what it says are Hamas targets, after it rejected a plan to disarm the group.`\
 https://www.nytimes.com/2026/08/26/world/middleeast/trump-official-israel-jeopardizing-gaza-cease-fire.html
-
-**Dolly Parton Was a Trailblazer in Business, Too**\
-`Her vision to launch businesses to bring fans closer while protecting her intellectual property was ahead of her time.`\
-https://www.nytimes.com/2026/08/26/business/dolly-parton-businesses.html
-
-**Live Updates: At Least 160 Killed and Hundreds Missing as Floods Sweep Away Villages in Nepal**\
-`A wall of water crashed through a Himalayan river valley between Nepal and the Chinese territory of Tibet, the Nepali authorities said. The missing included border officials, port workers and foreign tourists.`\
-https://www.nytimes.com/live/2026/08/26/world/nepal-floods
 
