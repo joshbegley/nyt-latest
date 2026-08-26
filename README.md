@@ -46,8 +46,8 @@ https://www.nytimes.com/video/embedded/world/asia/100000011113833/26vid-nepal-cc
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/asia/100000011113830/26vid-nepal-cctv1-69938.html
 
-**Dolly Parton’s One-Day Songwriting Feat**\
-`Two of her defining hits — “Jolene” and “I Will Always Love You” — were written in the same day. In different ways, they found sturdy melodies for precarious emotions.`\
+**Dolly Parton’s Greatest Burst of Songwriting**\
+`Two of her defining hits — “Jolene” and “I Will Always Love You” — were perhaps written in the same day. In different ways, they found sturdy melodies for precarious emotions.`\
 https://www.nytimes.com/2026/08/26/arts/music/dolly-parton-jolene-i-will-always-love-you.html
 
 ****\
