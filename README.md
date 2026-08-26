@@ -59,7 +59,7 @@ https://www.nytimes.com/2026/08/26/arts/music/dolly-parton-jolene-i-will-always-
 https://www.nytimes.com/video/embedded/world/asia/100000011113814/26vid-nepal-cctv-49655.html
 
 **Why Is This Picture at Every Sex Party?**\
-`Jess Zakira Wise shares her early experiences at sex parties.`\
+`Jess Zakira Wise, a play party organizer, joins host Anna Martin on “Modern Love” to share her early experiences at sex parties.`\
 https://www.nytimes.com/video/podcasts/100000011113819/why-is-this-picture-at-every-sex-party.html
 
 **U.S.S. Abraham Lincoln Sailor Says Father Arrested by Border Patrol Has Been Released**\
