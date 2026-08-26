@@ -1,3 +1,15 @@
+**Bill Gates advierte que la IA es más peligrosa de lo que la industria tecnológica admite**\
+`En una larga entrevista, el magnate dijo que su industria estaba minimizando los riesgos de la tecnología, los cuales cree que incluyen el desempleo masivo y el bioterrorismo.`\
+https://www.nytimes.com/es/2026/08/26/espanol/negocios/bill-gates-advierte-ia.html
+
+**Deadly Flooding Devastates Parts of Nepal and Tibet**\
+`Hundreds of people were missing in Nepal and Tibet, an autonomous region of China, officials said, after waves of floodwaters ripped through river valleys and damaged settlements.`\
+https://www.nytimes.com/video/world/asia/100000011113791/nepal-flood-tibet-people-missing.html
+
+**Stream These Movies and Shows Before They Leave Netflix**\
+`Like “The Four Seasons”? The movie that inspired it is leaving soon, as is the Hayden Panettiere showcase “Nashville.”`\
+https://www.nytimes.com/2026/08/26/arts/television/netflix-expiring-september.html
+
 **Today, In Short**\
 `Dating lingo. Dolly Parton. And dancing.`\
 https://www.nytimes.com/2026/08/26/briefing/today-in-short.html
@@ -15,14 +27,14 @@ https://www.nytimes.com/2026/08/26/opinion/ai-debt-economy-hyperscalers.html
 https://www.nytimes.com/2026/08/26/world/asia/nepal-flood-glacier-ice-avalanche.html
 
 **Trump’s Top Gaza Official Says Israel Is Jeopardizing the Cease-Fire**\
-`Nickolay Mladenov, the Board of Peace’s high representative for Gaza, criticized Israel for its ongoing strikes on Hamas, after it rejected a U.S.-backed plan to disarm the militant group.`\
+`Nickolay Mladenov, the Board of Peace’s high representative for Gaza, criticized Israel for its ongoing strikes on what it says are Hamas targets, after it rejected a plan to disarm the group.`\
 https://www.nytimes.com/2026/08/26/world/middleeast/trump-official-israel-jeopardizing-gaza-cease-fire.html
 
 **Dolly Parton Was a Trailblazer in Business, Too**\
 `Her vision to launch businesses to bring fans closer while protecting her intellectual property was ahead of her time.`\
 https://www.nytimes.com/2026/08/26/business/dolly-parton-businesses.html
 
-**The Dolly Parton Moments That Are Going Viral After Her Death**\
+**Dolly Parton’s Viral Moments, From the Grammys With Whitney Houston to Her Moderna Vaccine Song**\
 `After the country music legend died on Tuesday, fans shared clips of their favorite moments of the singer.`\
 https://www.nytimes.com/2026/08/26/arts/music/dolly-parton-viral-moments.html
 
@@ -74,7 +86,7 @@ https://www.nytimes.com/video/embedded/world/asia/100000011113833/26vid-nepal-cc
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/asia/100000011113830/26vid-nepal-cctv1-69938.html
 
-**Dolly Parton’s Greatest Burst of Songwriting**\
+**Dolly Parton Wrote ‘I Will Always Love You’ and ‘Jolene’ in One Creative Burst**\
 `Two of her defining hits — “Jolene” and “I Will Always Love You” — were perhaps written in the same day. In different ways, they found sturdy melodies for precarious emotions.`\
 https://www.nytimes.com/2026/08/26/arts/music/dolly-parton-jolene-i-will-always-love-you.html
 
@@ -150,7 +162,7 @@ https://www.nytimes.com/2026/08/26/opinion/aoc-woke-1.html
 `After facing low approval ratings and endorsement setbacks, the president made a show of force in lifting Darline Graham to the Republican nomination for Senate in South Carolina.`\
 https://www.nytimes.com/2026/08/26/us/politics/trump-republicans-darline-graham-south-carolina.html
 
-**Families Debate Whether Children Should Play Football, After New C.T.E. Study**\
+**‘You’re Ruining My Dreams’: C.T.E. Study Adds to Family Tension Over Football**\
 `Many families are engaged in tense debates after a new study found a high percentage of N.F.L. players had developed degenerative brain disease.`\
 https://www.nytimes.com/2026/08/26/us/parents-football-cte-decisions.html
 
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/08/26/us/nashville-hospital-patient-paralyzed-medic
 **The Street Symbols That Are Art in Plain Sight**\
 `Color markings on city sidewalks guide construction crews, but they also serve as a visual language.`\
 https://www.nytimes.com/2026/08/26/nyregion/the-street-symbols-that-are-art-in-plain-sight.html
-
-**Ukraine’s Most Potent Weapon: The Software Orchestrating Its Drone Army**\
-`The Delta system pulls together battlefield data to identify targets, creating a miles-wide “kill zone.” The technology is credited with helping to cut Russian advances to a near standstill.`\
-https://www.nytimes.com/2026/08/26/world/europe/ukraine-delta-battlefield-management.html
-
-**Joe Manchin Pushes for More Independents to Join Congress**\
-`The former Democratic-turned-independent senator and his daughter are backing independent bids for the House and the Senate to try to weaken the two-party grip on the Capitol.`\
-https://www.nytimes.com/2026/08/26/us/politics/joe-manchin-independents-congress.html
-
-**My Hot Divorcée Summer Weekend in Miami**\
-`Women of a certain age and marital status are embracing a social media trend of indulgence, big hats, long dresses and, maybe, empowerment.`\
-https://www.nytimes.com/2026/08/26/travel/hot-divorcee-weekend-miami-florida.html
 

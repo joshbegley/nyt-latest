@@ -1,3 +1,31 @@
+**Bill Gates advierte que la IA es más peligrosa de lo que la industria tecnológica admite**\
+`En una larga entrevista, el magnate dijo que su industria estaba minimizando los riesgos de la tecnología, los cuales cree que incluyen el desempleo masivo y el bioterrorismo.`\
+https://www.nytimes.com/es/2026/08/26/espanol/negocios/bill-gates-advierte-ia.html
+
+**Deadly Flooding Devastates Parts of Nepal and Tibet**\
+`Hundreds of people were missing in Nepal and Tibet, an autonomous region of China, officials said, after waves of floodwaters ripped through river valleys and damaged settlements.`\
+https://www.nytimes.com/video/world/asia/100000011113791/nepal-flood-tibet-people-missing.html
+
+**Stream These Movies and Shows Before They Leave Netflix**\
+`Like “The Four Seasons”? The movie that inspired it is leaving soon, as is the Hayden Panettiere showcase “Nashville.”`\
+https://www.nytimes.com/2026/08/26/arts/television/netflix-expiring-september.html
+
+**Trump’s Top Gaza Official Says Israel Is Jeopardizing the Cease-Fire**\
+`Nickolay Mladenov, the Board of Peace’s high representative for Gaza, criticized Israel for its ongoing strikes on what it says are Hamas targets, after it rejected a plan to disarm the group.`\
+https://www.nytimes.com/2026/08/26/world/middleeast/trump-official-israel-jeopardizing-gaza-cease-fire.html
+
+**Dolly Parton’s Viral Moments, From the Grammys With Whitney Houston to Her Moderna Vaccine Song**\
+`After the country music legend died on Tuesday, fans shared clips of their favorite moments of the singer.`\
+https://www.nytimes.com/2026/08/26/arts/music/dolly-parton-viral-moments.html
+
+**Dolly Parton Wrote ‘I Will Always Love You’ and ‘Jolene’ in One Creative Burst**\
+`Two of her defining hits — “Jolene” and “I Will Always Love You” — were perhaps written in the same day. In different ways, they found sturdy melodies for precarious emotions.`\
+https://www.nytimes.com/2026/08/26/arts/music/dolly-parton-jolene-i-will-always-love-you.html
+
+**‘You’re Ruining My Dreams’: C.T.E. Study Adds to Family Tension Over Football**\
+`Many families are engaged in tense debates after a new study found a high percentage of N.F.L. players had developed degenerative brain disease.`\
+https://www.nytimes.com/2026/08/26/us/parents-football-cte-decisions.html
+
 **Today, In Short**\
 `Dating lingo. Dolly Parton. And dancing.`\
 https://www.nytimes.com/2026/08/26/briefing/today-in-short.html
