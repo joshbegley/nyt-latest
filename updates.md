@@ -1,3 +1,39 @@
+**Canadians Embrace Country’s Resistance as Trade War Intensifies**\
+`Many Canadians have rallied around their country’s show of resistance after the latest U.S.-Canada trade talks collapsed.`\
+https://www.nytimes.com/video/world/canada/100000011114028/canada-trade-war-us-trump.html
+
+**Justice Dept. Charges Owner of Failed Surrogacy Firm With Fraud**\
+`The owner of Surro Connections is accused of stealing over $1 million from prospective parents and using it to pay off gambling debts, take trips and purchase luxury goods.`\
+https://www.nytimes.com/2026/08/26/us/politics/justice-dept-surro-connections.html
+
+**Secret Service Officials Said to Be Put on Leave Amid Internal Inquiry**\
+`The agency’s top spokesman is among those on leave, according to two Trump administration officials. The agency said three people faced a misconduct investigation.`\
+https://www.nytimes.com/2026/08/26/us/politics/secret-service-leave-investigation.html
+
+**See How Nepal’s Flash Floods Caused Widespread Destruction**\
+`Floodwaters swept away villages near the border between Nepal and the Tibet region of China.`\
+https://www.nytimes.com/interactive/2026/08/26/world/asia/nepal-china-flash-flood.html
+
+**Man Accused of Bringing Guillotine to D.C. Is Arrested**\
+`Philan-Tam-Duy Le, 35, of Julian, Calif., was taken into custody for “being in possession of the guillotine,” the police said.`\
+https://www.nytimes.com/2026/08/26/us/man-arrested-guillotine-capitol.html
+
+**Why China Loves A.I.**\
+`People in China are way more optimistic about the technology than Americans. We look at what’s behind the difference.`\
+https://www.nytimes.com/2026/08/26/world/china-ai-nepal-tibet-flood.html
+
+**Meta Will Pay Up to $17.1 Billion in Social Media Addiction Settlement**\
+`Meta has agreed to pay up $17.1 billion in a landmark settlement over social media addiction claims, pledging to limit the time teenagers can spend on its platforms and ban features that stoke mental health issues.`\
+https://www.nytimes.com/video/us/100000011114723/meta-social-media-lawsuit-settlement.html
+
+**Nvidia’s Profit Doubles to $59.69 Billion Thanks to A.I. Spending**\
+`Quarterly revenue also more than doubled, to $96.22 billion, the company said, topping expectations on Wall Street.`\
+https://www.nytimes.com/2026/08/26/technology/nvidia-profit-ai-doubles-earnings.html
+
+**The Local: Insider’s Guide to the State Fair**\
+`Plus, our tribute to Dolly Parton, and the new “zero-profit” model at Modern Times.`\
+https://www.nytimes.com/2026/08/26/briefing/minnesota-state-fair.html
+
 **A Movement to Restrict Social Media for Children Has Taken Hold Globally**\
 `Governments around the world have passed or proposed a range of bans or restrictions on young teens using addictive social media platforms.`\
 https://www.nytimes.com/2026/08/26/world/americas/children-social-media-restrictions-global-movement-meta.html
