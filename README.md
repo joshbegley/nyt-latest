@@ -195,6 +195,6 @@ https://www.nytimes.com/2026/08/25/arts/design/titanic-artifacts-sale-halted-jud
 https://www.nytimes.com/es/2026/08/25/espanol/america-latina/haiti-pandillas-muertos.html
 
 **Election Live Updates: Darline Graham, With Push From Trump, Wins Senate Primary in South Carolina**\
-`President Trump helped lift Ms. Graham from relative obscurity after the death of her brother, Lindsey Graham, six weeks ago. Voters trusted Mr. Trump’s endorsement, overlooking her inexperience.`\
+`President Trump helped lift Ms. Graham from relative obscurity after the death of her brother, Lindsey Graham, six weeks ago. In Oklahoma, another Trump-backed candidate, Mike Mazzei, won the nomination for governor.`\
 https://www.nytimes.com/live/2026/08/25/us/elections-south-carolina-oklahoma
 
