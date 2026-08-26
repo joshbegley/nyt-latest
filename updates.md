@@ -1,3 +1,7 @@
+**A Deadly Flood Tears Through Nepal and Tibet**\
+`An ice avalanche that started high in the Himalayas tumbled thousands of feet, releasing vast amounts of energy that pulverized the ice into a significant volume of flood water.`\
+https://www.nytimes.com/2026/08/26/world/asia/flood-nepal-tibet.html
+
 **After Wasp Attack, a Canadian Rock Climber Is Rescued by Helicopter**\
 `A 33-year-old woman was rescued along with her climbing partner on Tuesday after she was stung more than 100 times while hiking in the British Columbia backcountry north of Vancouver.`\
 https://www.nytimes.com/2026/08/26/world/canada/canada-hiker-wasp-stings-rescue.html
