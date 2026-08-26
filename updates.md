@@ -1,3 +1,19 @@
+**Rupert Grint Will Join ‘Harry Potter’ Again, This Time on Broadway**\
+`The British actor, who played Ron Weasley in all eight films, will play the same character, this time as an adult, in “Harry Potter and the Cursed Child.”`\
+https://www.nytimes.com/2026/08/26/theater/rupert-grint-harry-potter-broadway.html
+
+**Meta to Pay Up to $17.1 Billion in Landmark Settlement Over Social Media Addiction Claims**\
+`The social media giant settled with 47 states, the District of Columbia and U.S. territories, and agreed to make major changes to its products over claims its platforms endangered children.`\
+https://www.nytimes.com/2026/08/26/technology/meta-settlement-social-media-addiction-lawsuit.html
+
+**Dolly Parton’s Greatest Burst of Songwriting**\
+`Two of her defining hits — “Jolene” and “I Will Always Love You” — were perhaps written in the same day. In different ways, they found sturdy melodies for precarious emotions.`\
+https://www.nytimes.com/2026/08/26/arts/music/dolly-parton-jolene-i-will-always-love-you.html
+
+**A Question for the Formerly Woke**\
+`Before a Woke 2 takes over, let the proponents of its predecessor explain how and why they’re moving on.`\
+https://www.nytimes.com/2026/08/26/opinion/aoc-woke-1.html
+
 **Meta to Pay Up to $17 Billion in Landmark Settlement Over Social Media Addiction Claims**\
 `The social media giant settled with 47 states, the District of Columbia and U.S. territories, and agreed to make major changes to its products over claims its platforms endangered children.`\
 https://www.nytimes.com/2026/08/26/technology/meta-settlement-social-media-addiction-lawsuit.html

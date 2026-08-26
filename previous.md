@@ -1,4 +1,8 @@
-**Meta to Pay Up to $17 Billion in Landmark Settlement Over Social Media Addiction Claims**\
+**Rupert Grint Will Join ‘Harry Potter’ Again, This Time on Broadway**\
+`The British actor, who played Ron Weasley in all eight films, will play the same character, this time as an adult, in “Harry Potter and the Cursed Child.”`\
+https://www.nytimes.com/2026/08/26/theater/rupert-grint-harry-potter-broadway.html
+
+**Meta to Pay Up to $17.1 Billion in Landmark Settlement Over Social Media Addiction Claims**\
 `The social media giant settled with 47 states, the District of Columbia and U.S. territories, and agreed to make major changes to its products over claims its platforms endangered children.`\
 https://www.nytimes.com/2026/08/26/technology/meta-settlement-social-media-addiction-lawsuit.html
 
@@ -42,8 +46,8 @@ https://www.nytimes.com/video/embedded/world/asia/100000011113833/26vid-nepal-cc
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/asia/100000011113830/26vid-nepal-cctv1-69938.html
 
-**Dolly Parton’s One-Day Songwriting Feat**\
-`Two of her defining hits — “Jolene” and “I Will Always Love You” — were written in the same day. In different ways, they found sturdy melodies for precarious emotions.`\
+**Dolly Parton’s Greatest Burst of Songwriting**\
+`Two of her defining hits — “Jolene” and “I Will Always Love You” — were perhaps written in the same day. In different ways, they found sturdy melodies for precarious emotions.`\
 https://www.nytimes.com/2026/08/26/arts/music/dolly-parton-jolene-i-will-always-love-you.html
 
 ****\
@@ -114,7 +118,7 @@ https://www.nytimes.com/2026/08/26/opinion/trump-king-canada-trade-war.html
 `After facing low approval ratings and endorsement setbacks, the president made a show of force in lifting Darline Graham to the Republican nomination for Senate in South Carolina.`\
 https://www.nytimes.com/2026/08/26/us/politics/trump-republicans-darline-graham-south-carolina.html
 
-**A.O.C., I Have a Question (No, Not That One)**\
+**A Question for the Formerly Woke**\
 `Before a Woke 2 takes over, let the proponents of its predecessor explain how and why they’re moving on.`\
 https://www.nytimes.com/2026/08/26/opinion/aoc-woke-1.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/26/books/review/crossing-the-wine-dark-sea-emily
 **The Weather Influencers Who Focus on Vibes and Clothes Instead of Radar**\
 `A new crop of social media creators offer their followers a “vibes check” or helpful reminders to not get their hair blown out because rain is in the forecast.`\
 https://www.nytimes.com/2026/08/26/style/weather-influencers-tiktok-kyle-cooke.html
-
-**How Paul Williams Built White and Black Los Angeles**\
-`A pioneering architect’s archive, long thought lost, was preserved by his family. Now, three museums are featuring the work of a man who broke California’s color barrier.`\
-https://www.nytimes.com/2026/08/26/arts/design/paul-williams-architect.html
 
