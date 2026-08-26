@@ -1,3 +1,7 @@
+**Kurdish-Led Militia in Syria Disbands in Boost for U.S.-Backed Government**\
+`The Syrian Democratic Forces, a Kurdish-led armed group, will integrate with the country’s military, in a sign of its weakened role.`\
+https://www.nytimes.com/2026/08/26/world/middleeast/kurdish-militia-syria-disbands.html
+
 **Eight Dead, Hundreds Missing as Floods Sweep Away Villages in Nepal**\
 `A wall of water swept down a Himalayan river valley shared between Nepal and the Chinese territory of Tibet.`\
 https://www.nytimes.com/2026/08/26/world/asia/nepal-floods-tibet-missing.html
