@@ -1,3 +1,7 @@
+**A Movement to Restrict Social Media for Children Has Taken Hold Globally**\
+`Governments around the world have passed or proposed a range of bans or restrictions on young teens using addictive social media platforms.`\
+https://www.nytimes.com/2026/08/26/world/americas/children-social-media-restrictions-global-movement-meta.html
+
 **Will Dolly Parton’s Imagination Library Survive Without Her?**\
 `The crown jewel of the singer’s philanthropic efforts has handed out hundreds of millions of books to children over the past 31 years. But it isn’t immune to funding cuts.`\
 https://www.nytimes.com/2026/08/26/books/dolly-parton-imagination-library.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/26/movies/tim-curry-dead.html
 **How Trump Folded the Graham Family Dynasty Into His Own**\
 `The president came to see Lindsey and Darline Graham as part of his own political legacy.`\
 https://www.nytimes.com/2026/08/26/us/politics/trump-lindsey-graham-darline-graham.html
-
-**Dolly Parton Outsmarted Every Dumb-Blonde Joke**\
-`Nothing a critic or comic said about Parton — and they said plenty — compared with what she said about herself. She stepped on their punchlines and took away their power.`\
-https://www.nytimes.com/2026/08/26/style/dolly-parton-jokes-humor-image.html
 

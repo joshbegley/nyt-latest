@@ -1,3 +1,35 @@
+**Canadians Embrace Country’s Resistance as Trade War Intensifies**\
+`Many Canadians have rallied around their country’s show of resistance after the latest U.S.-Canada trade talks collapsed.`\
+https://www.nytimes.com/video/world/canada/100000011114028/canada-trade-war-us-trump.html
+
+**Justice Dept. Charges Owner of Failed Surrogacy Firm With Fraud**\
+`The owner of Surro Connections is accused of stealing over $1 million from prospective parents and using it to pay off gambling debts, take trips and purchase luxury goods.`\
+https://www.nytimes.com/2026/08/26/us/politics/justice-dept-surro-connections.html
+
+**Secret Service Officials Said to Be Put on Leave Amid Internal Inquiry**\
+`The agency’s top spokesman is among those on leave, according to two Trump administration officials. The agency said three people faced a misconduct investigation.`\
+https://www.nytimes.com/2026/08/26/us/politics/secret-service-leave-investigation.html
+
+**See How Nepal’s Flash Floods Caused Widespread Destruction**\
+`Floodwaters swept away villages near the border between Nepal and the Tibet region of China.`\
+https://www.nytimes.com/interactive/2026/08/26/world/asia/nepal-china-flash-flood.html
+
+**Man Accused of Bringing Guillotine to D.C. Is Arrested**\
+`Philan-Tam-Duy Le, 35, of Julian, Calif., was taken into custody for “being in possession of the guillotine,” the police said.`\
+https://www.nytimes.com/2026/08/26/us/man-arrested-guillotine-capitol.html
+
+**Why China Loves A.I.**\
+`People in China are way more optimistic about the technology than Americans. We look at what’s behind the difference.`\
+https://www.nytimes.com/2026/08/26/world/china-ai-nepal-tibet-flood.html
+
+**Meta Will Pay Up to $17.1 Billion in Social Media Addiction Settlement**\
+`Meta has agreed to pay up $17.1 billion in a landmark settlement over social media addiction claims, pledging to limit the time teenagers can spend on its platforms and ban features that stoke mental health issues.`\
+https://www.nytimes.com/video/us/100000011114723/meta-social-media-lawsuit-settlement.html
+
+**Nvidia’s Profit Doubles to $59.69 Billion Thanks to A.I. Spending**\
+`Quarterly revenue also more than doubled, to $96.22 billion, the company said, topping expectations on Wall Street.`\
+https://www.nytimes.com/2026/08/26/technology/nvidia-profit-ai-doubles-earnings.html
+
 **A Movement to Restrict Social Media for Children Has Taken Hold Globally**\
 `Governments around the world have passed or proposed a range of bans or restrictions on young teens using addictive social media platforms.`\
 https://www.nytimes.com/2026/08/26/world/americas/children-social-media-restrictions-global-movement-meta.html
@@ -34,7 +66,7 @@ https://www.nytimes.com/2026/08/26/style/dolly-parton-miss-piggy-muppets.html
 `A Dolly duet, a beach finder and never landing.`\
 https://www.nytimes.com/2026/08/26/briefing/the-good-list-dolly-kermit-pelagic.html
 
-**The Local: Insider’s guide to the State Fair**\
+**The Local: Insider’s Guide to the State Fair**\
 `Plus, our tribute to Dolly Parton, and the new “zero-profit” model at Modern Times.`\
 https://www.nytimes.com/2026/08/26/briefing/minnesota-state-fair.html
 
@@ -161,36 +193,4 @@ https://www.nytimes.com/2026/08/26/us/politics/virginia-beach-congressional-elec
 **Dolly Parton Fans React to Country Star’s Death**\
 `Fans of Dolly Parton expressed shock and reflected on her legacy after her death on Tuesday`\
 https://www.nytimes.com/video/arts/music/100000011113661/dolly-parton-fans-react-to-country-stars-death.html
-
-**Trump Administration Wants Billion-Dollar Businesses to Qualify as ‘Small’**\
-`Higher revenue and employee limits for small businesses that get federal contracts and loans could disadvantage the smallest companies, their owners say.`\
-https://www.nytimes.com/2026/08/26/business/economy/trump-small-business-administration.html
-
-**The Beginnings of ‘It Ends’**\
-`How the writer-director Alexander Ullom turned post-grad existential anxiety and a tiny budget into his breakout debut horror film.`\
-https://www.nytimes.com/2026/08/26/movies/it-ends-behind-the-scenes.html
-
-**Can We Kick a Woman Out of Our Mahjong Group Because She Plays Too Slowly?**\
-`Her table plays half as many games as the others, and many members refuse to play with her.`\
-https://www.nytimes.com/2026/08/26/magazine/mahjong-group-ethics.html
-
-**¿El príncipe Enrique y Meghan no aprendieron la lección?**\
-`La monarquía ha tolerado una serie asombrosa de comportamientos despreciables de diversos miembros de la realeza, pero no ha pudo soportar a una mujer negra.`\
-https://www.nytimes.com/es/2026/08/26/espanol/opinion/principe-harry-meghan-racismo-familia-real.html
-
-**Summer Weather in L.A. Was Perfect. Then Came Humidity and Mosquitoes.**\
-`Warmer water off the coast has made things slightly swampy for residents used to a succession of splendid days.`\
-https://www.nytimes.com/2026/08/26/us/los-angeles-california-humidity-weather-heat-climate.html
-
-**Read the Decision From the Federal Appeals Panel**\
-`The panel ruled that the Constitution does not bar the Trump administration from bringing an assault charge against a Democratic member of Congress.`\
-https://www.nytimes.com/interactive/2026/08/26/nyregion/mciver-trump-delaney-third-circuit-decision.html
-
-**Tim Curry, Star of ‘Rocky Horror Picture Show,’ Dies at 80**\
-`The actor’s gift for garish eccentricity was indelibly appropriate for the outlandish, cross-dressing mad scientist Frank-N-Furter.`\
-https://www.nytimes.com/2026/08/26/movies/tim-curry-dead.html
-
-**How Trump Folded the Graham Family Dynasty Into His Own**\
-`The president came to see Lindsey and Darline Graham as part of his own political legacy.`\
-https://www.nytimes.com/2026/08/26/us/politics/trump-lindsey-graham-darline-graham.html
 
