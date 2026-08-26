@@ -1,3 +1,7 @@
+**Deadly Nepal Flood May Have Been Caused by ‘Ice Avalanche,’ Scientists Say**\
+`An initial assessment of satellite imagery suggests an “ice avalanche” from a high-altitude glacier sent a giant cascade into the valley below.`\
+https://www.nytimes.com/2026/08/26/world/asia/nepal-flood-glacier-ice-avalanche.html
+
 **F.D.A. Approves the Drug Daraxonrasib That’s Poised to Transform Pancreatic Cancer**\
 `In a key clinical trial, patients who got the pill, daraxonrasib, lived twice as long as those who got chemotherapy.`\
 https://www.nytimes.com/2026/08/26/science/pancreatic-cancer-daraxonrasib-approval.html
