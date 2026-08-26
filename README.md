@@ -1,3 +1,19 @@
+**Today, In Short**\
+`Dating lingo. Dolly Parton. And dancing.`\
+https://www.nytimes.com/2026/08/26/briefing/today-in-short.html
+
+**Now’s the Time to Make a Great BLT**\
+`And J.J. Goode’s BLT is really, really great. But maybe you’d like BLT pasta, or a tomato, bacon and corn salad?`\
+https://www.nytimes.com/2026/08/26/dining/nows-the-time-to-make-a-great-blt.html
+
+**The A.I. Debt Binge Is Endangering the Economy**\
+`The A.I.-fueled debt bubble will likely result in a painful downturn.`\
+https://www.nytimes.com/2026/08/26/opinion/ai-debt-economy-hyperscalers.html
+
+**Deadly Nepal Flood May Have Been Caused by ‘Ice Avalanche,’ Scientists Say**\
+`An initial assessment of satellite images suggests an “ice avalanche” from a high-altitude glacier sent a giant cascade into the valley below.`\
+https://www.nytimes.com/2026/08/26/world/asia/nepal-flood-glacier-ice-avalanche.html
+
 **Trump’s Top Gaza Official Says Israel Is Jeopardizing the Cease-Fire**\
 `Nickolay Mladenov, the Board of Peace’s high representative for Gaza, criticized Israel for its ongoing strikes on Hamas, after it rejected a U.S.-backed plan to disarm the militant group.`\
 https://www.nytimes.com/2026/08/26/world/middleeast/trump-official-israel-jeopardizing-gaza-cease-fire.html
@@ -126,13 +142,13 @@ https://www.nytimes.com/es/2026/08/26/espanol/ciencia-y-tecnologia/alarma-ataque
 `Lèse-majesté, American-style.`\
 https://www.nytimes.com/2026/08/26/opinion/trump-king-canada-trade-war.html
 
-**Even as Trump’s Standing Slips, He Slingshots Darline Graham to Victory**\
-`After facing low approval ratings and endorsement setbacks, the president made a show of force in lifting Darline Graham to the Republican nomination for Senate in South Carolina.`\
-https://www.nytimes.com/2026/08/26/us/politics/trump-republicans-darline-graham-south-carolina.html
-
 **A Question for the Formerly Woke**\
 `Before a Woke 2 takes over, let the proponents of its predecessor explain how and why they’re moving on.`\
 https://www.nytimes.com/2026/08/26/opinion/aoc-woke-1.html
+
+**Even as Trump’s Standing Slips, He Slingshots Darline Graham to Victory**\
+`After facing low approval ratings and endorsement setbacks, the president made a show of force in lifting Darline Graham to the Republican nomination for Senate in South Carolina.`\
+https://www.nytimes.com/2026/08/26/us/politics/trump-republicans-darline-graham-south-carolina.html
 
 **Families Debate Whether Children Should Play Football, After New C.T.E. Study**\
 `Many families are engaged in tense debates after a new study found a high percentage of N.F.L. players had developed degenerative brain disease.`\
@@ -177,20 +193,4 @@ https://www.nytimes.com/2026/08/26/us/politics/joe-manchin-independents-congress
 **My Hot Divorcée Summer Weekend in Miami**\
 `Women of a certain age and marital status are embracing a social media trend of indulgence, big hats, long dresses and, maybe, empowerment.`\
 https://www.nytimes.com/2026/08/26/travel/hot-divorcee-weekend-miami-florida.html
-
-**What Child Actors Understand About Hayden Panettiere**\
-`We might have worked on different sets, for different directors, in different eras, but every child actor bears the same recognizable wounds.`\
-https://www.nytimes.com/2026/08/26/opinion/child-actor-hayden-panettiere-alison-pill.html
-
-**‘Ted Lasso’ Season 4, Episode 4 Recap: Locked Out**\
-`Can a male coach solve a female locker room?`\
-https://www.nytimes.com/2026/08/26/arts/television/ted-lasso-season-4-episode-4-recap.html
-
-**Diesel Price Nears Record High, Helping Oil Companies and Hurting Consumers**\
-`The cost of the fuel, used in farm machinery, trucks and other heavy equipment, has surged because of the war in Iran and Ukrainian attacks on Russian refineries.`\
-https://www.nytimes.com/2026/08/26/business/energy-environment/diesel-prices-iran-war-oil.html
-
-**Under Threat, Saudi Arabia Reroutes Oil Exports Yet Again**\
-`Forced away from the Strait of Hormuz in the Persian Gulf, the Saudis turned to the Red Sea. Now they are relying on a less dangerous but more complicated detour via the Suez Canal.`\
-https://www.nytimes.com/2026/08/26/business/saudi-oil-houthis-iran.html
 
