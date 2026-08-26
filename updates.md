@@ -1,3 +1,7 @@
+**‘She Was One of Us’: To Tennesseans, Dolly Parton’s Death Hits Home**\
+`The country music star kept her home state at the forefront of her music and work. “She aspired Tennesseans to be better,” one resident said.`\
+https://www.nytimes.com/2026/08/25/us/nashville-mourns-dolly-parton.html
+
 **Trump’s Efforts to Sow Election Doubts Get Boost from Initial Court Order**\
 `A preliminary Supreme Court ruling could leave voters confused about casting ballots by mail, even as President Trump’s executive order is being litigated in the lower courts, experts said.`\
 https://www.nytimes.com/2026/08/25/us/politics/trump-voting-doubt-mail-ballots.html
