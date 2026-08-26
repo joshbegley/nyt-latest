@@ -1,3 +1,7 @@
+**Tim Curry: A Life in Pictures**\
+`Curry thrived onstage and onscreen in meaty roles that brought him widespread recognition and generations of dedicated fans.`\
+https://www.nytimes.com/2026/08/26/movies/tim-curry-a-life-in-pictures.html
+
 **Dolly Parton’s Other Legacy: A Fortune Given Away, Dollar by Dollar**\
 `The country star supported early childhood literacy, disaster relief, the development of the Covid-19 vaccine and more.`\
 https://www.nytimes.com/2026/08/26/business/dolly-parton-philanthropy-books-covid-vaccine.html
