@@ -1,3 +1,11 @@
+**States File Fresh Challenge to Trump’s Mail-In Voting Restrictions**\
+`A new lawsuit brought by a coalition of Democratic state attorneys general took aim at postal regulations designed to meet the president’s demands on voter verification.`\
+https://www.nytimes.com/2026/08/26/us/politics/states-lawsuit-mail-ballot-order.html
+
+**On Happiness, Politics, Language and the Universe: The Week 10 Winners of Our Summer Reading Contest**\
+`As our contest comes to a close, we honor a video and three essays, and hear reflections on this year’s submissions from our judges.`\
+https://www.nytimes.com/2026/08/26/learning/on-happiness-politics-language-and-the-universe-the-week-10-winners-of-our-summer-reading-contest.html
+
 **A Tax Program for Development in Chicago Left Poor Areas Behind, Study Says**\
 `New research suggests that TIF, a multibillion dollar tax program intended to revive the city’s blighted neighborhoods, has mostly benefited downtown areas.`\
 https://www.nytimes.com/2026/08/26/us/tif-chicago-study-tax-program-downtown.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/live/2026/08/26/world/nepal-floods
 **They’re Done With Trump**\
 `We look at Canada’s opposition to the president.`\
 https://www.nytimes.com/2026/08/26/briefing/theyre-done-with-trump.html
-
-**Kurdish-Led Militia in Syria Disbands in Boost for U.S.-Backed Government**\
-`The Syrian Democratic Forces, a Kurdish-led armed group that has lost territory and authority in recent months, will integrate with the country’s military.`\
-https://www.nytimes.com/2026/08/26/world/middleeast/kurdish-militia-syria-disbands.html
-
-**The Stunning Rise of the Democratic Socialists of America**\
-`Democratic socialists are capturing more votes than ever before — even as they run up against the limits of their appeal.`\
-https://www.nytimes.com/2026/08/26/podcasts/the-daily/democratic-socialism-dsa-elections-primaries.html
 

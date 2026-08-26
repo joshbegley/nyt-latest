@@ -1,3 +1,11 @@
+**A Tax Program for Development in Chicago Left Poor Areas Behind, Study Says**\
+`New research suggests that TIF, a multibillion dollar tax program intended to revive the city’s blighted neighborhoods, has mostly benefited downtown areas.`\
+https://www.nytimes.com/2026/08/26/us/tif-chicago-study-tax-program-downtown.html
+
+**Iran War Weighs on Virginia Beach Voters in Key House Race**\
+`The conflict with Iran is uniquely salient to the Virginia Beach voters deciding which party will win a critical House contest.`\
+https://www.nytimes.com/2026/08/26/us/politics/virginia-beach-congressional-election-iran-war.html
+
 **Oil Prices Dip on News of Progress in Hormuz Talks**\
 `The two countries said they would create a temporary shipping lane and clear mines in the waterway. Global oil prices dipped after the joint announcement.`\
 https://www.nytimes.com/2026/08/26/world/middleeast/iran-oman-strait-hormuz.html
