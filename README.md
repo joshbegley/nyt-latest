@@ -1,3 +1,7 @@
+**They’re Done With Trump**\
+`We look at Canada’s opposition to the president.`\
+https://www.nytimes.com/2026/08/26/briefing/theyre-done-with-trump.html
+
 **Kurdish-Led Militia in Syria Disbands in Boost for U.S.-Backed Government**\
 `The Syrian Democratic Forces, a Kurdish-led armed group, will integrate with the country’s military, in a sign of its weakened role.`\
 https://www.nytimes.com/2026/08/26/world/middleeast/kurdish-militia-syria-disbands.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/26/fashion/jewelry-kismet-by-milka-istanbul.html
 **Adding Jewelry to Your Belt Has Become Something of a Trend**\
 `Adding jewelry such as earrings or even necklaces has become something of a trend.`\
 https://www.nytimes.com/2026/08/26/fashion/jewelry-accenting-your-belt.html
-
-**Can This English City Keep Its Jewelry Gem?**\
-`The Jewellery Quarter has housed one of Birmingham’s prime industries for centuries, but many now worry that gentrification is changing all that.`\
-https://www.nytimes.com/2026/08/26/fashion/jewelry-quarter-birmingham-england.html
 
