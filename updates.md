@@ -1,3 +1,11 @@
+**New Studies Link Menopause Hormone Therapy to Lower Alzheimer’s Risk**\
+`But outside experts point to significant limitations of the research and say the findings should not be seen as definitive.`\
+https://www.nytimes.com/2026/08/26/well/alzheimers-hormone-therapy-menopause-studies.html
+
+**A Republican Attack Ad Used a Family’s Tragedy. Now They’re Furious.**\
+`Relatives of a family killed by a semi truck say they were not consulted about the ad, which connected the crash to illegal immigration.`\
+https://www.nytimes.com/2026/08/26/us/jon-husted-campaign-ad-family-tragedy.html
+
 **What’s Changing For Teens on Instagram and Facebook After Meta Settlement**\
 `Meta agreed to set more time limits and enhance protections in its platforms for young users, but was short on some specifics.`\
 https://www.nytimes.com/2026/08/26/technology/meta-instagram-facebook-settlement.html

@@ -1,5 +1,9 @@
+**New Studies Link Menopause Hormone Therapy to Lower Alzheimer’s Risk**\
+`But outside experts point to significant limitations of the research and say the findings should not be seen as definitive.`\
+https://www.nytimes.com/2026/08/26/well/alzheimers-hormone-therapy-menopause-studies.html
+
 **A Republican Attack Ad Used a Family’s Tragedy. Now They’re Furious.**\
-`Relatives of a family killed by a semi truck say they were not consulted about the ad. Ohio officials have said the truck driver fraudulently obtained U.S. citizenship.`\
+`Relatives of a family killed by a semi truck say they were not consulted about the ad, which connected the crash to illegal immigration.`\
 https://www.nytimes.com/2026/08/26/us/jon-husted-campaign-ad-family-tragedy.html
 
 **Tiny Love Stories: ‘I Believed Him for Over a Year’**\
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/08/26/business/dolly-parton-businesses.html
 **Dolly Parton’s Viral Moments, From the Grammys With Whitney Houston to Her Moderna Vaccine Song**\
 `After the country music legend died on Tuesday, fans shared clips of their favorite moments of the singer.`\
 https://www.nytimes.com/2026/08/26/arts/music/dolly-parton-viral-moments.html
-
-**Rupert Grint Will Join ‘Harry Potter’ Again, This Time on Broadway**\
-`The British actor, who played Ron Weasley in all eight films, will play the same character, this time as an adult, in “Harry Potter and the Cursed Child.”`\
-https://www.nytimes.com/2026/08/26/theater/rupert-grint-harry-potter-broadway.html
 
 **Live Updates: At Least 160 Killed and Hundreds Missing as Floods Sweep Away Villages in Nepal**\
 `A wall of water crashed through a Himalayan river valley between Nepal and the Chinese territory of Tibet, the Nepali authorities said. The missing included border officials, port workers and foreign tourists.`\
