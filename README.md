@@ -43,7 +43,7 @@ https://www.nytimes.com/2026/08/26/dining/nows-the-time-to-make-a-great-blt.html
 https://www.nytimes.com/2026/08/26/opinion/ai-debt-economy-hyperscalers.html
 
 **Deadly Nepal Flood May Have Been Caused by ‘Ice Avalanche,’ Scientists Say**\
-`An initial assessment of satellite images suggests an “ice avalanche” from a high-altitude glacier sent a giant cascade into the valley below.`\
+`An initial assessment of satellite imagery suggests an “ice avalanche” from a high-altitude glacier sent a giant cascade into the valley below.`\
 https://www.nytimes.com/2026/08/26/world/asia/nepal-flood-glacier-ice-avalanche.html
 
 **Trump’s Top Gaza Official Says Israel Is Jeopardizing the Cease-Fire**\
