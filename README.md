@@ -1,3 +1,11 @@
+**Dolly Parton Fans React to Country Star’s Death**\
+`Fans of Dolly Parton expressed shock and reflected on her legacy after her death on Tuesday`\
+https://www.nytimes.com/video/arts/music/100000011113661/dolly-parton-fans-react-to-country-stars-death.html
+
+**Trump Administration Wants Billion-Dollar Businesses to Qualify as ‘Small’**\
+`Higher revenue and employee limits for small businesses that get federal contracts and loans could disadvantage the smallest companies, their owners say.`\
+https://www.nytimes.com/2026/08/26/business/economy/trump-small-business-administration.html
+
 **The Beginnings of ‘It Ends’**\
 `How the writer-director Alexander Ullom turned post-grad existential anxiety and a tiny budget into his breakout debut horror film.`\
 https://www.nytimes.com/2026/08/26/movies/it-ends-behind-the-scenes.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/08/26/podcasts/the-headlines/hegseth-military-gener
 **NYT Connections Answers for August 27, 2026**\
 `Scroll down for hints and conversation about the puzzle for Thursday, Aug. 27, 2026.`\
 https://www.nytimes.com/2026/08/26/crosswords/connections-companion-1173.html
-
-**Today’s Wordle Hints for August 27, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, Aug. 27, 2026.`\
-https://www.nytimes.com/2026/08/26/crosswords/wordle-review-1895.html
-
-**NYT Strands Hints for August 27, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, Aug. 27, 2026.`\
-https://www.nytimes.com/2026/08/26/crosswords/strands-sidekick-907.html
 

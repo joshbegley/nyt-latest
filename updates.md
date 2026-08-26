@@ -1,3 +1,11 @@
+**The Beginnings of ‘It Ends’**\
+`How the writer-director Alexander Ullom turned post-grad existential anxiety and a tiny budget into his breakout debut horror film.`\
+https://www.nytimes.com/2026/08/26/movies/it-ends-behind-the-scenes.html
+
+**3 Teenagers Killed in Crash on Brooklyn Highway**\
+`The driver of an S.U.V. and two passengers were thrown from the vehicle and pronounced dead at a hospital. Four other people were injured.`\
+https://www.nytimes.com/2026/08/26/nyregion/nyc-belt-parkway-crash.html
+
 **Can We Kick a Woman Out of Our Mahjong Group Because She Plays Too Slowly?**\
 `Her table plays half as many games as the others, and many members refuse to play with her.`\
 https://www.nytimes.com/2026/08/26/magazine/mahjong-group-ethics.html
