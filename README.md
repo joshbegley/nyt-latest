@@ -1,3 +1,7 @@
+**In Headache for Republicans, Second Dan Sullivan Advances in Alaska Senate Race**\
+`A long-shot candidate with the same name as the incumbent Republican senator will be on the ballot in November. That could be a problem for the G.O.P.`\
+https://www.nytimes.com/2026/08/26/us/politics/dan-sullivan-alaska-senate-midterms.html
+
 **Confronting South Korea’s Violent Past and Its Echoes Today**\
 `The National Museum of Korean Democracy, which opened last year, documents an era of brutal suppression. But that dark history has resurfaced in troubling ways.`\
 https://www.nytimes.com/2026/08/26/world/asia/korea-democracy-tankday-starbucks.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/08/25/business/media/forbes-shook-research-payment.
 **Court Documents Suggest Rebel Wilson Ordered Websites Attacking Producer**\
 `New documents filed on Tuesday in Los Angeles appear to show that Ms. Wilson, the actress, was heavily involved in disparaging Amanda Ghost, a producer on her movie, “The Deb.”`\
 https://www.nytimes.com/2026/08/25/nyregion/rebel-wilson-the-deb-producer-amanda-ghost.html
-
-**Where Does Trump’s Executive Order Restricting Mail Voting Stand?**\
-`The Supreme Court on Monday allowed the Trump administration to continue with plans to curtail mail-in voting, but the fast-moving, high-stakes legal fight continues.`\
-https://www.nytimes.com/2026/08/25/us/politics/what-to-know-trump-executive-order-mail-voting.html
 
 **Darline Graham, With Push From Trump, Wins Senate Primary in South Carolina**\
 `President Trump helped lift Ms. Graham from relative obscurity after the death of her brother, Lindsey Graham, six weeks ago. In Oklahoma, another Trump-backed candidate, Mike Mazzei, won the nomination for governor.`\

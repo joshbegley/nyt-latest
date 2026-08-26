@@ -1,3 +1,15 @@
+**Confronting South Korea’s Violent Past and Its Echoes Today**\
+`The National Museum of Korean Democracy, which opened last year, documents an era of brutal suppression. But that dark history has resurfaced in troubling ways.`\
+https://www.nytimes.com/2026/08/26/world/asia/korea-democracy-tankday-starbucks.html
+
+**Quote of the Day: Study Links Brain Disease to at Least 1 in 4 in N.F.L.**\
+`Quotation of the Day for Wednesday, August 26, 2026.`\
+https://www.nytimes.com/2026/08/26/pageoneplus/quote-of-the-day-study-links-brain-disease-to-at-least-1-in-4-in-nfl.html
+
+**What to Know About Bank Melli, Singled Out in U.S. Call for Economic War**\
+`Bank Melli, Iran’s largest lender, already faces waves of sanctions that severely limit its ability to operate abroad. Every foreign branch must be shut down, Treasury Secretary Scott Bessent said.`\
+https://www.nytimes.com/2026/08/26/world/europe/iran-melli-bank-us-sanctions.html
+
 **Corrections: Aug. 25, 2026**\
 `Corrections that appeared in print on Tuesday, Aug. 25, 2026.`\
 https://www.nytimes.com/2026/08/25/pageoneplus/corrections-aug-25-2026.html
