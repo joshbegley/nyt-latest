@@ -1,3 +1,7 @@
+**¿Estamos ante una nueva era de la lucha de clases?**\
+`La violencia de clase del pasado formaba parte de un conflicto más extendido. Hoy, la violencia es un fin en sí misma.`\
+https://www.nytimes.com/es/2026/08/26/espanol/opinion/nueva-lucha-de-clases.html
+
 **Conservative Media Personality Makes Runoff for Alaska Governor**\
 `Bernadette Wilson, who has appealed to other Republicans to consolidate around her party’s top finisher, will be one of four finalists on the ranked-choice ballot in November.`\
 https://www.nytimes.com/2026/08/26/us/politics/bernadette-wilson-alaska-governor.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/08/25/us/politics/trump-polls-tariffs-carney.html
 **Conservative Gay Rights Group Ends Support for Trans Causes**\
 `The Log Cabin Republicans, which is dedicated to gay causes, says that trans rights advocates focus too much on minors.`\
 https://www.nytimes.com/2026/08/25/us/politics/log-cabin-republicans-transgender.html
-
-**Forbes and Shook Research Suspend Rankings Amid Investigation of $6 Million Payment**\
-`The magazine, which is reviewing a payment from the founder of Shook Research to its former top editor, also canceled a summit in Las Vegas scheduled for October.`\
-https://www.nytimes.com/2026/08/25/business/media/forbes-shook-research-payment.html
 
 **Darline Graham, With Push From Trump, Wins Senate Primary in South Carolina**\
 `President Trump helped lift Ms. Graham from relative obscurity after the death of her brother, Lindsey Graham, six weeks ago. In Oklahoma, another Trump-backed candidate, Mike Mazzei, won the nomination for governor.`\
