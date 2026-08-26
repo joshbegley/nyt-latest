@@ -1,3 +1,7 @@
+**Federal Funding for Research on Parents With Disabilities Vanishes**\
+`The government gave no explanation for terminating the funding, which for decades has supported the only national center focused on the issue.`\
+https://www.nytimes.com/2026/08/26/well/parents-disabilities-center-funding-cut-trump.html
+
 **What Does $17.1 Billion Mean for Meta?**\
 `The Silicon Valley company agreed to pay up to $17.1 billion in penalties as part of a landmark settlement with states over social media addiction claims.`\
 https://www.nytimes.com/2026/08/26/technology/meta-settlement-dollars-amount.html

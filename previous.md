@@ -1,3 +1,7 @@
+**Federal Funding for Research on Parents With Disabilities Vanishes**\
+`The government gave no explanation for terminating the funding, which for decades has supported the only national center focused on the issue.`\
+https://www.nytimes.com/2026/08/26/well/parents-disabilities-center-funding-cut-trump.html
+
 **After Meta Settlement, Here’s What Is Changing For Teens on Instagram and Facebook**\
 `Meta agreed to set more time limits and enhance protections in its platforms for young users, but was short on some specifics.`\
 https://www.nytimes.com/2026/08/26/technology/meta-instagram-facebook-settlement.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/08/26/business/dealbook/nvidia-earnings-ai-investme
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/asia/100000011113833/26vid-nepal-cctv-2-93195.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/world/asia/100000011113830/26vid-nepal-cctv1-69938.html
 
 **Live Updates: At Least 98 Killed and Hundreds Missing as Floods Sweep Away Villages in Nepal**\
 `(No description)`\
