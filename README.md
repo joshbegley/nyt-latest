@@ -1,3 +1,7 @@
+**Iran and Oman Report Progress in Talks on Strait of Hormuz**\
+`The two countries said they would create a temporary shipping lane and clear mines in the waterway. Global oil prices dipped after the joint announcement.`\
+https://www.nytimes.com/2026/08/26/world/middleeast/iran-oman-strait-hormuz.html
+
 **Live Updates: 8 Dead and Hundreds Feared Missing as Floods Sweep Away Villages in Nepal**\
 `A wall of water crashed through a Himalayan river valley shared between Nepal and the Chinese territory of Tibet, destroying settlements. Many of those reported missing were foreign tourists.`\
 https://www.nytimes.com/live/2026/08/26/world/nepal-floods
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/26/fashion/jewelry-sodalite-louis-vuitton.html
 **Trust in Talismans Shapes This Jewelry Designer’s Line**\
 `Evil eyes and clovers are just some of the symbols in the Kismet by Milka collection.`\
 https://www.nytimes.com/2026/08/26/fashion/jewelry-kismet-by-milka-istanbul.html
-
-**Adding Jewelry to Your Belt Has Become Something of a Trend**\
-`Adding jewelry such as earrings or even necklaces has become something of a trend.`\
-https://www.nytimes.com/2026/08/26/fashion/jewelry-accenting-your-belt.html
 

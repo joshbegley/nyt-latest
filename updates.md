@@ -1,3 +1,11 @@
+**Live Updates: 8 Dead and Hundreds Feared Missing as Floods Sweep Away Villages in Nepal**\
+`A wall of water crashed through a Himalayan river valley shared between Nepal and the Chinese territory of Tibet, destroying settlements. Many of those reported missing were foreign tourists.`\
+https://www.nytimes.com/live/2026/08/26/world/nepal-floods
+
+**They’re Done With Trump**\
+`We look at Canada’s opposition to the president.`\
+https://www.nytimes.com/2026/08/26/briefing/theyre-done-with-trump.html
+
 **Kurdish-Led Militia in Syria Disbands in Boost for U.S.-Backed Government**\
 `The Syrian Democratic Forces, a Kurdish-led armed group, will integrate with the country’s military, in a sign of its weakened role.`\
 https://www.nytimes.com/2026/08/26/world/middleeast/kurdish-militia-syria-disbands.html

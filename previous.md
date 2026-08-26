@@ -1,3 +1,11 @@
+**Live Updates: 8 Dead and Hundreds Feared Missing as Floods Sweep Away Villages in Nepal**\
+`A wall of water crashed through a Himalayan river valley shared between Nepal and the Chinese territory of Tibet, destroying settlements. Many of those reported missing were foreign tourists.`\
+https://www.nytimes.com/live/2026/08/26/world/nepal-floods
+
+**They’re Done With Trump**\
+`We look at Canada’s opposition to the president.`\
+https://www.nytimes.com/2026/08/26/briefing/theyre-done-with-trump.html
+
 **Kurdish-Led Militia in Syria Disbands in Boost for U.S.-Backed Government**\
 `The Syrian Democratic Forces, a Kurdish-led armed group, will integrate with the country’s military, in a sign of its weakened role.`\
 https://www.nytimes.com/2026/08/26/world/middleeast/kurdish-militia-syria-disbands.html
@@ -21,10 +29,6 @@ https://www.nytimes.com/2026/08/26/crosswords/wordle-review-1895.html
 **NYT Strands Hints for August 27, 2026**\
 `Scroll down for hints and conversation about the puzzle for Thursday, Aug. 27, 2026.`\
 https://www.nytimes.com/2026/08/26/crosswords/strands-sidekick-907.html
-
-**Eight Dead, Hundreds Missing as Floods Sweep Away Villages in Nepal**\
-`A wall of water swept down a Himalayan river valley shared between Nepal and the Chinese territory of Tibet.`\
-https://www.nytimes.com/2026/08/26/world/asia/nepal-floods-tibet-missing.html
 
 **Pacientes de EE. UU. encuentran riesgos en clínicas de psicodélicos de América Latina**\
 `En medio del creciente interés por los tratamientos con sustancias psicodélicas, los estadounidenses viajan al extranjero, a menudo a Latinoamérica, en busca de terapias que alteran la mente y que siguen siendo ilegales en EE. UU.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/26/fashion/jewelry-kismet-by-milka-istanbul.html
 **Adding Jewelry to Your Belt Has Become Something of a Trend**\
 `Adding jewelry such as earrings or even necklaces has become something of a trend.`\
 https://www.nytimes.com/2026/08/26/fashion/jewelry-accenting-your-belt.html
-
-**Can This English City Keep Its Jewelry Gem?**\
-`The Jewellery Quarter has housed one of Birmingham’s prime industries for centuries, but many now worry that gentrification is changing all that.`\
-https://www.nytimes.com/2026/08/26/fashion/jewelry-quarter-birmingham-england.html
 
