@@ -42,7 +42,7 @@ https://www.nytimes.com/2026/08/26/arts/music/dollywood-dolly-parton.html
 `The government gave no explanation for terminating the funding, which for decades has supported the only national center focused on the issue.`\
 https://www.nytimes.com/2026/08/26/well/parents-disabilities-center-funding-cut-trump.html
 
-**After Meta Settlement, Here’s What Is Changing For Teens on Instagram and Facebook**\
+**What’s Changing For Teens on Instagram and Facebook After Meta Settlement**\
 `Meta agreed to set more time limits and enhance protections in its platforms for young users, but was short on some specifics.`\
 https://www.nytimes.com/2026/08/26/technology/meta-instagram-facebook-settlement.html
 

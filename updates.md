@@ -1,3 +1,11 @@
+**A Republican Attack Ad Used a Family’s Tragedy. Now They’re Furious.**\
+`Relatives of a family killed by a semi truck say they were not consulted about the ad. Ohio officials have said the truck driver fraudulently obtained U.S. citizenship.`\
+https://www.nytimes.com/2026/08/26/us/jon-husted-campaign-ad-family-tragedy.html
+
+**Live Updates: At Least 160 Killed and Hundreds Missing as Floods Sweep Away Villages in Nepal**\
+`A wall of water crashed through a Himalayan river valley between Nepal and the Chinese territory of Tibet, the Nepali authorities said. The missing included border officials, port workers and foreign tourists.`\
+https://www.nytimes.com/live/2026/08/26/world/nepal-floods
+
 **Tiny Love Stories: ‘I Believed Him for Over a Year’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://www.nytimes.com/2026/08/26/style/tiny-modern-love-stories-i-believed-him-for-over-a-year.html
