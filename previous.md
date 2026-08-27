@@ -111,7 +111,7 @@ https://www.nytimes.com/es/2026/08/26/espanol/negocios/meta-facebook-adiccion-re
 https://www.nytimes.com/2026/08/26/us/politics/will-scharf-white-house-counsel.html
 
 **Tim Curry Pioneered Fashion With His ‘Rocky Horror’ Performance**\
-`His performance as Frank-N-Furter, the cross-dressing mad scientist of “The Rocky Horror Picture Show,” was ahead of its time.`\
+`His performance as Dr. Frank-N-Furter, the cross-dressing mad scientist of “The Rocky Horror Picture Show,” was ahead of its time.`\
 https://www.nytimes.com/2026/08/26/style/tim-curry-fashion-pioneer.html
 
 **Meta to Pay Up to $17.1 Billion Over Claims It Harmed Youths**\

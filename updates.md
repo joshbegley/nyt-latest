@@ -1,3 +1,7 @@
+**Tim Curry Pioneered Fashion With His ‘Rocky Horror’ Performance**\
+`His performance as Dr. Frank-N-Furter, the cross-dressing mad scientist of “The Rocky Horror Picture Show,” was ahead of its time.`\
+https://www.nytimes.com/2026/08/26/style/tim-curry-fashion-pioneer.html
+
 **Un disidente cubano llega a Miami y recibe duras críticas**\
 `Luis Manuel Otero Alcántara, el artista cubano que fue liberado en julio, llegó a EE. UU. y ahora esquiva las críticas de los exiliados que alguna vez le dieron la bienvenida.`\
 https://www.nytimes.com/es/2026/08/27/espanol/america-latina/otero-alcantara-disidente-cubano-miami.html
