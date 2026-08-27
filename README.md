@@ -1,3 +1,7 @@
+**Peter Cullen, Who Voiced Optimus Prime in ‘Transformers,’ Dies at 85**\
+`He voiced the main protagonist of the “Transformers” franchise on television and in blockbuster films for more than four decades. He also had success as Eeyore in “Winnie the Pooh” cartoons.`\
+https://www.nytimes.com/2026/08/27/arts/peter-cullen-dead.html
+
 **Judge Says Trump’s Name Should Stay Off Kennedy Center for Now**\
 `After the court forced the removal of the president’s name from the building’s title, the center devised a plan to add an inscription honoring President Trump.`\
 https://www.nytimes.com/2026/08/27/arts/music/trump-kennedy-center-name.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/27/arts/design/warhol-dolly-parton-portrait.html
 **Ask a Journalist: How Generative A.I. Is Changing Education**\
 `Dana Goldstein joins us for the month of September to chat with teenagers about artificial intelligence and its impact on schools and education. Post your comments and questions for her by Sept. 18.`\
 https://www.nytimes.com/2026/08/27/learning/lesson-plans/ask-a-journalist-how-generative-ai-is-changing-education.html
-
-**Ask a Journalist: A 2026-27 Monthly Series for Teenagers**\
-`Join us for the 2026-27 school year. We’ll choose a discussion topic each month. You post a comment, and New York Times journalists will reply.`\
-https://www.nytimes.com/2026/08/27/learning/lesson-plans/ask-a-journalist-a-monthly-series-for-teenagers.html
 
