@@ -1,3 +1,7 @@
+**Men Are Rethinking Their Approach to Skin Care**\
+`Three perspectives on aging reveal different priorities, while a dermatologist examines the ingredients behind SkinCeuticals P-TIOX Cream.`\
+http://brandedplaylist.nytimes.com/video/embedded/t-brand/100000011117208/men-are-rethinking-their-approach-to-skin-care.html
+
 **C.I.A. Chief Delivered Bleak Assessment of Russia’s War in Secretive Moscow Visit**\
 `C.I.A. analysts have questioned whether President Vladimir V. Putin’s advisers have given him honest assessments of the conflict.`\
 https://www.nytimes.com/2026/08/27/us/politics/cia-director-russia-ukraine.html
@@ -6,7 +10,7 @@ https://www.nytimes.com/2026/08/27/us/politics/cia-director-russia-ukraine.html
 `Dolly podría fortalecerse levemente el jueves, pero pronto se moverá hacia una zona en el Caribe donde los sistemas tropicales generalmente se desintegran.`\
 https://www.nytimes.com/es/2026/08/27/espanol/tiempo-y-clima/dolly-tormenta-puerto-rico-cuba.html
 
-**Celebrities Are Raving About Full-Body Scans, Doctors Urge Caution**\
+**Celebrities Are Raving About Full-Body Scans. Doctors Urge Caution**\
 `The scans are touted as a way to control your health. But researchers say healthy people don’t need them and they can lead to more harm than benefit.`\
 https://www.nytimes.com/2026/08/27/well/busy-philipps-prenuvo-body-scans.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/27/business/energy-environment/california-legisl
 **Man Is Arrested in Fatal Shooting of Mexican Influencer During Livestream**\
 `The authorities accused the man of attacking César Gastélum, a young influencer, during a livestream in Sinaloa this month.`\
 https://www.nytimes.com/2026/08/27/world/americas/mexico-influencer-shooting-gastelum-arrest.html
-
-**Inside the Iceland Eclipse Festival: $1,000-a-Week Yurts and Endless Optimism**\
-`At a festival on a disc golf course, on a peninsula in Iceland, waiting for the sky to descend into darkness.`\
-https://www.nytimes.com/2026/08/27/style/iceland-eclipse-festival.html
 

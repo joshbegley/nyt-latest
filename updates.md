@@ -1,3 +1,11 @@
+**Men Are Rethinking Their Approach to Skin Care**\
+`Three perspectives on aging reveal different priorities, while a dermatologist examines the ingredients behind SkinCeuticals P-TIOX Cream.`\
+http://brandedplaylist.nytimes.com/video/embedded/t-brand/100000011117208/men-are-rethinking-their-approach-to-skin-care.html
+
+**Celebrities Are Raving About Full-Body Scans. Doctors Urge Caution**\
+`The scans are touted as a way to control your health. But researchers say healthy people don’t need them and they can lead to more harm than benefit.`\
+https://www.nytimes.com/2026/08/27/well/busy-philipps-prenuvo-body-scans.html
+
 **C.I.A. Chief Delivered Bleak Assessment of Russia’s War in Secretive Moscow Visit**\
 `C.I.A. analysts have questioned whether President Vladimir V. Putin’s advisers have given him honest assessments of the conflict.`\
 https://www.nytimes.com/2026/08/27/us/politics/cia-director-russia-ukraine.html
