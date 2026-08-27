@@ -1,3 +1,15 @@
+**Obama to Headline Fund-Raiser With Jeffries in New York**\
+`The top Democrats will gather party donors on Sept. 10, just as Republicans converge in Texas for their unusual midterm convention.`\
+https://www.nytimes.com/2026/08/27/us/politics/obama-fundraiser-gop-convention.html
+
+**Canada Hires U.S. Scholars From Harvard and Other Top Universities**\
+`A crackdown on American academia by the Trump administration has handed Canadian universities a rare opportunity to lure some top researchers north.`\
+https://www.nytimes.com/2026/08/27/world/canada/canada-universities-hire-us-researchers.html
+
+**The Last Thing We Need Is a Bad Nuclear Deal From Trump**\
+`Congress should stop the president’s dangerous nuclear deal with Saudi Arabia.`\
+https://www.nytimes.com/2026/08/27/opinion/international-world/saudi-nuclear-deal-congress-trump.html
+
 **On Night of Deadly Air Canada Crash, Two LaGuardia Controllers Left Early**\
 `The Federal Aviation Administration has taken steps to fire the two workers, according to two people familiar with the investigation.`\
 https://www.nytimes.com/2026/08/27/nyregion/air-canada-crash-lga-air-traffic-controllers.html

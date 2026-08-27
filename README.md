@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/08/27/world/canada/canada-universities-hire-us-rese
 `The Federal Aviation Administration has taken steps to fire the two workers, according to two people familiar with the investigation.`\
 https://www.nytimes.com/2026/08/27/nyregion/air-canada-crash-lga-air-traffic-controllers.html
 
-**Trump Orders the Government to Rename Lake Ontario to Lake America**\
+**Trump Signs Executive Order to Rename Lake Ontario to Lake America**\
 `The president also reiterated his criticism that Canada “treats us very badly.” Trade talks between the nations collapsed last week.`\
 https://www.nytimes.com/2026/08/27/us/politics/trump-lake-america-executive-order.html
 
