@@ -1,3 +1,11 @@
+**Cold Noodles With Zucchini**\
+`Zucchini loves the kiss of heat but can easily turn to mush. Briefly salting and drying half-moons of zucchini before quickly stir-frying them, mostly on one side, maintains their texture while lending so much flavor.`\
+https://www.nytimes.com/video/dining/100000011115547/cold-noodles-with-zucchini.html
+
+**NYT Crossword Answers for Aug. 27, 2026**\
+`In Zachary David Levy’s puzzle, the last shall be first.`\
+https://www.nytimes.com/2026/08/26/crosswords/daily-puzzle-2026-08-27.html
+
 **Catastrophic Flood Hits Nepal, Engulfing Crowds and Causing Quake**\
 `The authorities reported hundreds of people missing and at least 160 people killed in the border region of Nepal and Tibet, where an avalanche of mud, water, ice and rocks smashed down.`\
 https://www.nytimes.com/2026/08/26/world/asia/nepal-landslide-tibet.html
@@ -10,7 +18,7 @@ https://www.nytimes.com/2026/08/26/theater/tim-curry-rocky-horror-spamalot.html
 `Psychologists said the changes were a symbolic victory, but warned their effectiveness might be limited.`\
 https://www.nytimes.com/2026/08/26/well/family/meta-settlement-youth-mental-health.html
 
-**Una inundación repentina en Nepal abre nuevas preguntas sobre los glaciares del Himalaya**\
+**Inundaciones en Nepal podrían ser efecto del deshielo en el Himalaya**\
 `Expertos describen cómo una enorme masa de hielo se fragmentó al precipitarse hacia el valle, liberando agua y escombros con una fuerza comparable a una explosión.`\
 https://www.nytimes.com/es/2026/08/26/espanol/mundo/inundacion-nepal-glaciares-himalaya.html
 
@@ -189,8 +197,4 @@ https://www.nytimes.com/2026/08/26/insider/royal-family-harry-meghan-insider.htm
 **Judge Sides With Texas Over Minnesota on Extradition of ICE Agent**\
 `The two states have waged an unusual court battle over the agent facing charges over a shooting in Minneapolis. The agent could be released from jail on Thursday.`\
 https://www.nytimes.com/2026/08/26/us/ice-christian-castro-extradite-texas-minnesota.html
-
-**Who is Ahead in Ohio’s 1st Congressional District?**\
-`Track the latest polls in Ohio’s 1st Congressional District.`\
-https://www.nytimes.com/interactive/polls/ohio-us-house-1-polls-2026.html
 
