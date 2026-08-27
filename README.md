@@ -1,3 +1,23 @@
+**A Historic Settlement Over Social Media Addiction**\
+`Meta, the owner of Facebook and Instagram, agreed to a landmark settlement and agreed to make major changes to its products.`\
+https://www.nytimes.com/2026/08/27/podcasts/the-daily/a-historic-settlement-over-social-media-addiction.html
+
+**ICE Arrests Soar Across U.S., and Meta Agrees to Make Major Changes to Instagram and Facebook**\
+`Plus, a breakthrough in cancer treatment.`\
+https://www.nytimes.com/2026/08/27/podcasts/the-headlines/ice-arrests-meta-instagram-facebook.html
+
+**NYT Connections Answers for August 28, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Aug. 28, 2026.`\
+https://www.nytimes.com/2026/08/27/crosswords/connections-companion-1174.html
+
+**NYT Strands Hints for August 28, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Aug. 28, 2026.`\
+https://www.nytimes.com/2026/08/27/crosswords/strands-sidekick-908.html
+
+**Today’s Wordle Hints for August 28, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Aug. 28, 2026.`\
+https://www.nytimes.com/2026/08/27/crosswords/wordle-review-1896.html
+
 **Where Drones Cannot See, the Ukraine War Is a Deadly Game of Cat and Mouse**\
 `Russian troops are trying to infiltrate the vast, overgrown reservoir basin of a dam they blew up three years ago as Ukrainian soldiers hunt them at close quarters.`\
 https://www.nytimes.com/2026/08/27/world/europe/ukraine-russia-war-zaporizhzhia-frontline-fighting.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/08/27/well/mind/abortion-mother-daughter-advice.htm
 **Prediction Markets and States Clashed, Setting Off a Furious Political Battle**\
 `A legal dispute over the future of Kalshi, Polymarket and others has drawn in the Trump administration, the president’s son and nearly every state attorney general.`\
 https://www.nytimes.com/2026/08/27/technology/prediction-markets-states-kalshi-polymarket-lawsuits.html
-
-**Roy Cohn, Robert Mapplethorpe and a Trump-Era Dilemma Over Free Speech**\
-`When a respected biographer tried to use a Mapplethorpe photograph of Roy Cohn for a book cover, worries about the wrath of Mr. Cohn’s protégé, President Trump, intervened.`\
-https://www.nytimes.com/2026/08/27/business/media/roy-cohn-robert-mapplethorpe-american-scoundrel.html
-
-**Brooklyn Bookstore Crawl: Where to Shop in Prospect Heights and Park Slope**\
-`This Brooklyn walking tour includes some of the oldest and newest bookstores in New York City, great reading spots and tasty snacks.`\
-https://www.nytimes.com/interactive/2026/08/27/books/bookstores-brooklyn-park-slope-prospect-heights.html
-
-**Screwworm Flies Steer Clear of Agriculture Dept. Traps**\
-`No wild flies caught could mean the outbreak is contained. It could also mean, as scientists have said, that current trapping methods are outdated.`\
-https://www.nytimes.com/2026/08/27/business/screwworm-flies-traps-agriculture-dept.html
-
-**The Point of a Gun**\
-`It’s time to reframe the debate.`\
-https://www.nytimes.com/2026/08/27/opinion/gun-ownership-culture-nra.html
-
-**Saudi Arabia Appears to Be Preparing for a New War With the Houthis**\
-`Analysts say that weeks of Houthi attacks on Saudi targets have brought the kingdom and the Iranian-backed militia to the brink of full-blown conflict, and could open a new front in the Iran war.`\
-https://www.nytimes.com/2026/08/27/world/middleeast/saudi-arabia-yemen-houthis-war.html
 
