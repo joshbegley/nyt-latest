@@ -50,13 +50,13 @@ https://www.nytimes.com/2026/08/27/technology/meta-settlement-mark-zuckerberg-yo
 `Revisiting the glory days of summer movies with “Ferris Bueller’s Day Off” and “Ruthless People.”`\
 https://www.nytimes.com/2026/08/27/podcasts/take-me-back-to-the-summer-of-86.html
 
-**Why Some in Canada Want Out of the F-35 Deal With the U.S.**\
-`A year into a government review of the purchase of as many as 88 F-35s, one premier says buying American warplanes makes no sense in the face of President Trump’s latest tariffs.`\
-https://www.nytimes.com/2026/08/27/world/canada/trade-war-canada-us-f35-carney-trump.html
-
 **36 Hours in Bozeman, Mont.: Things to Do and See**\
 `Bozeman is blooming, with nationally recognized restaurants, galleries that honor its Indigenous roots and more to complement its show-stopping scenery.`\
 https://www.nytimes.com/interactive/2026/08/27/travel/things-to-do-bozeman.html
+
+**Why Some in Canada Want Out of the F-35 Deal With the U.S.**\
+`A year into a government review of the purchase of as many as 88 F-35s, one premier says buying American warplanes makes no sense in the face of President Trump’s latest tariffs.`\
+https://www.nytimes.com/2026/08/27/world/canada/trade-war-canada-us-f35-carney-trump.html
 
 **Democratic Socialists Are the Toast of the Party in Uruguay**\
 `The success of progressive candidates in the United States is inspiring leftists abroad struggling under pressure from the Trump administration and its allies.`\

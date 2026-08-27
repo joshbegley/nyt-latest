@@ -42,13 +42,13 @@ https://www.nytimes.com/2026/08/27/opinion/democrats-seth-moulton-massachusetts-
 `We are hated, but not feared.`\
 https://www.nytimes.com/2026/08/27/opinion/trump-canada-trade-war-dolly-parton.html
 
-**Take Me Back to the Summer of ’86 | Cannonball with Wesley Morris**\
-`Revisiting the glory days of summer movies with “Ferris Bueller’s Day Off” and “Ruthless People.”`\
-https://www.nytimes.com/2026/08/27/podcasts/take-me-back-to-the-summer-of-86.html
-
 **Mark Zuckerberg Wants to Make Sure YouTube and TikTok Share His Pain**\
 `Meta, the social media giant, agreed to change the way children interact with its apps. That could be trouble if its competitors don’t abide by the same rules.`\
 https://www.nytimes.com/2026/08/27/technology/meta-settlement-mark-zuckerberg-youtube-tiktok.html
+
+**Take Me Back to the Summer of ’86 | Cannonball with Wesley Morris**\
+`Revisiting the glory days of summer movies with “Ferris Bueller’s Day Off” and “Ruthless People.”`\
+https://www.nytimes.com/2026/08/27/podcasts/take-me-back-to-the-summer-of-86.html
 
 **Why Some in Canada Want Out of the F-35 Deal With the U.S.**\
 `A year into a government review of the purchase of as many as 88 F-35s, one premier says buying American warplanes makes no sense in the face of President Trump’s latest tariffs.`\
