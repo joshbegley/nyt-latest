@@ -1,3 +1,15 @@
+**Rafael Manuel’s Film ‘Filipiñana’ Makes a Golf Course a Villain**\
+`The movie “Filipiñana” pits a country club’s members against its staff, using a golf course to explore the Philippines’ deep divides over land and class.`\
+https://www.nytimes.com/2026/08/27/world/asia/filipinana-film-golf-course-philippines.html
+
+**Progressives Decry Selection of Pro-Israel Democrat for House Panel**\
+`Outrage over the appointment of Representative Jared Moskowitz of Florida, who is vocally pro-Israel, to a Middle East policy subcommittee reflected the party’s rift over Israel.`\
+https://www.nytimes.com/2026/08/27/us/politics/democrats-progressives-moskowitz-israel-house-panel.html
+
+**Anguished Families in Nepal Await Updates About Flood Victims**\
+`Relatives of flood victims gathered outside a hospital in Nepal’s capital, Kathmandu, looking for their loved ones. More than 1,400 people were still missing on Thursday, the authorities said.`\
+https://www.nytimes.com/video/world/asia/100000011116452/nepal-flash-floods-kathmandu-victims.html
+
 **Ask a Journalist: How Generative A.I. Is Changing Education**\
 `Dana Goldstein joins us for the month of September to chat with teenagers about artificial intelligence and its impact on schools and education. Post your comments and questions for her by Sept. 18.`\
 https://www.nytimes.com/2026/08/27/learning/lesson-plans/ask-a-journalist-how-generative-ai-is-changing-education.html

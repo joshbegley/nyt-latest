@@ -1,3 +1,11 @@
+**Rafael Manuel’s Film ‘Filipiñana’ Makes a Golf Course a Villain**\
+`The movie “Filipiñana” pits a country club’s members against its staff, using a golf course to explore the Philippines’ deep divides over land and class.`\
+https://www.nytimes.com/2026/08/27/world/asia/filipinana-film-golf-course-philippines.html
+
+**Progressives Decry Selection of Pro-Israel Democrat for House Panel**\
+`Outrage over the appointment of Representative Jared Moskowitz of Florida, who is vocally pro-Israel, to a Middle East policy subcommittee reflected the party’s rift over Israel.`\
+https://www.nytimes.com/2026/08/27/us/politics/democrats-progressives-moskowitz-israel-house-panel.html
+
 **Kansas Judge Dismisses Murder Charge Against Sheriff’s Deputy**\
 `The judge said prosecutors had failed to meet their burden in the case against a deputy charged in the 2025 jailhouse death of an inmate.`\
 https://www.nytimes.com/2026/08/27/us/kansas-deputy-murder-charge-dismissed.html
@@ -127,7 +135,7 @@ https://www.nytimes.com/es/2026/08/27/espanol/cultura/dolly-parton-donaciones-di
 https://www.nytimes.com/video/us/100000011116917/box-turtles-rescued-from-smugglers-find-haven-at-the-bronx-zoo.html
 
 **Anguished Families in Nepal Await Updates About Flood Victims**\
-`Relatives of flood victims gathered outside a hospital in Nepal’s capital, Kathmandu, looking for their loved ones. More than 1,000 people were still missing on Thursday, the authorities said.`\
+`Relatives of flood victims gathered outside a hospital in Nepal’s capital, Kathmandu, looking for their loved ones. More than 1,400 people were still missing on Thursday, the authorities said.`\
 https://www.nytimes.com/video/world/asia/100000011116452/nepal-flash-floods-kathmandu-victims.html
 
 **It’s Raining Again in New York. Here’s What to Know.**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/27/world/europe/denmark-greenland-forced-contrac
 **Speed of Nepal’s Flash Floods Likely Overwhelmed Warning System, Experts Say**\
 `Scientists and disaster response researchers said Nepal’s early flood warning system relied on a conventional network of river gauges in this remote region.`\
 https://www.nytimes.com/2026/08/27/world/asia/speed-of-flash-floods-likely-overwhelmed-nepals-warning-system-experts-say.html
-
-**As Meta Enters Its Zombie Era, Every Blow Counts**\
-`Meta’s settlement is far from perfect, but it’s better than nothing.`\
-https://www.nytimes.com/2026/08/27/opinion/meta-settlement-social-media-tech.html
-
-**Trump representa un dilema para los republicanos de cara a las elecciones intermedias**\
-`El respaldo del presidente ha sido un impulso importante en las primarias del Partido Republicano pero sus bajos índices de aprobación lo convierten en una carga para los votantes indecisos.`\
-https://www.nytimes.com/es/2026/08/27/espanol/estados-unidos/trump-elecciones-intermedias.html
 
