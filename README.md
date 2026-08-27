@@ -1,3 +1,11 @@
+**Trump representa un dilema para los republicanos de cara a las elecciones intermedias**\
+`El respaldo del presidente ha sido un impulso importante en las primarias del Partido Republicano pero sus bajos índices de aprobación lo convierten en una carga para los votantes indecisos.`\
+https://www.nytimes.com/es/2026/08/27/espanol/estados-unidos/trump-elecciones-intermedias.html
+
+**Secrecy in Lawsuits Has ‘Run Amok,’ Scholars Say**\
+`Two recent studies say judges are not doing enough to protect the public interest in openness.`\
+https://www.nytimes.com/2026/08/27/us/politics/the-docket-lawsuit-secrecy.html
+
 **How SSENSE, a Canadian Retailer, Is Grappling With Trump’s Tariffs**\
 `Ssense’s comeback efforts include moving a core part of its business to the United States so American customers can avoid hefty tariffs.`\
 https://www.nytimes.com/2026/08/27/business/ssense-canada-tariffs-trump.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/es/2026/08/27/espanol/ciencia-y-tecnologia/eclipse-luna-
 **Rescuers in Nepal Face Devastated Roads and Tough Terrain After Deadly Flood**\
 `The deadly Himalayan torrent damaged roads and dozens of bridges. The devastation was impeding the search for survivors and relief deliveries, aid groups said.`\
 https://www.nytimes.com/2026/08/27/world/asia/nepal-china-flash-flood-rescue-roads-bridges.html
-
-**The Japanese Artist Yayoi Kusama Dies at 97**\
-`Yayoi Kusama, the Japanese pop artist famous for dots and mirrors, died at 97 in Tokyo, her foundation and museum said.`\
-https://www.nytimes.com/video/obituaries/archives/100000011116008/japanese-artist-yayoi-kusama-dead.html
-
-**There Is a Sickness Worse Than Wokeness**\
-`The anti-woke movement’s “cure” was more intolerance and more repression.`\
-https://www.nytimes.com/2026/08/27/opinion/woke-right-trump-free-speech.html
 

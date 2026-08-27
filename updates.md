@@ -1,3 +1,15 @@
+**How SSENSE, a Canadian Retailer, Is Grappling With Trump’s Tariffs**\
+`Ssense’s comeback efforts include moving a core part of its business to the United States so American customers can avoid hefty tariffs.`\
+https://www.nytimes.com/2026/08/27/business/ssense-canada-tariffs-trump.html
+
+**The Middle East’s Nuclear Future Now Lies With Congress**\
+`Congress should stop the president’s dangerous nuclear deal with Saudi Arabia.`\
+https://www.nytimes.com/2026/08/27/opinion/international-world/saudi-nuclear-deal-congress-trump.html
+
+**Laura Spector, Who Turned a Loathsome Vine Into Art, Dies at 71**\
+`Using Asian bittersweet, the much-hated invasive species, she created whimsical rustic objects and enchanting furniture.`\
+https://www.nytimes.com/2026/08/27/arts/design/laura-spector-dead.html
+
 **Muere Yayoi Kusama, la artista pop de los lunares y las habitaciones infinitas**\
 `Las pinturas cubiertas de lunares, las esculturas fálicas y los performances públicos de la artista japonesa causaron revuelo en Estados Unidos y toda Europa en la década de 1960.`\
 https://www.nytimes.com/es/2026/08/27/espanol/cultura/muere-yayoi-kusama.html
