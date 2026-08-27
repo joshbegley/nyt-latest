@@ -1,3 +1,11 @@
+**Meta Settles. Finally.**\
+`Meta’s settlement is far from perfect, but every blow counts as the company declines.`\
+https://www.nytimes.com/2026/08/27/opinion/meta-settlement-social-media-tech.html
+
+**Live Updates: Helicopters Rescue Nepal Flood Survivors, With More Than 1,400 Still Missing**\
+`Officials said hundreds were killed in Nepal and Tibet. New York Times reporters flew with rescuers to remote Himalayan areas, where shocked survivors described a torrent of mud sweeping away villages.`\
+https://www.nytimes.com/live/2026/08/27/world/nepal-tibet-flash-floods
+
 **Trump representa un dilema para los republicanos de cara a las elecciones intermedias**\
 `El respaldo del presidente ha sido un impulso importante en las primarias del Partido Republicano pero sus bajos índices de aprobación lo convierten en una carga para los votantes indecisos.`\
 https://www.nytimes.com/es/2026/08/27/espanol/estados-unidos/trump-elecciones-intermedias.html

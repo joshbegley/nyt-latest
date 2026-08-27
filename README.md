@@ -1,3 +1,7 @@
+**Greenlandic Women Will Finally Get Money for Forced Contraception**\
+`For decades, Denmark implanted intrauterine devices in women in Greenland in an effort to keep down the island’s population. On Thursday, the government passed a compensation bill.`\
+https://www.nytimes.com/2026/08/27/world/europe/denmark-greenland-forced-contraception-compensation.html
+
 **Meta Settles. Finally.**\
 `Meta’s settlement is far from perfect, but every blow counts as the company declines.`\
 https://www.nytimes.com/2026/08/27/opinion/meta-settlement-social-media-tech.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/08/27/world/asia/pilgrims-border-crossing-foreign-n
 **The Philanthropic Life of Dolly Parton**\
 `Dolly Parton was a legend in music and philanthropy. She used her fame and fortune to support causes like childhood literacy, disaster relief and vaccine development.`\
 https://www.nytimes.com/video/obituaries/100000011115998/dolly-parton-philanthropy-imagination-library.html
-
-**Dentro de una de las colonias de pingüinos más vulnerables de Perú**\
-`A pesar de que los pingüinos de Humboldt son de las especies más resistentes, los científicos temen que los cambios de temperatura y el Superniño de este año causen un daño grave a la población de estos animales.`\
-https://www.nytimes.com/es/2026/08/27/espanol/ciencia-y-tecnologia/pinguinos-peru-nino-peligros.html
 
 **Live Updates: Helicopters Rescue Nepal Flood Survivors, With More Than 1,400 Still Missing**\
 `Officials said hundreds were killed in Nepal and Tibet. New York Times reporters flew with rescuers to remote Himalayan areas, where shocked survivors described a torrent of mud sweeping away villages.`\
