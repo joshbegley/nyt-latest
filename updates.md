@@ -1,3 +1,15 @@
+**Tropical Storm Dolly Forms In the Atlantic Ocean**\
+`Forecasters were quick to point out that the storm’s name, days after the death of Dolly Parton, was a coincidence.`\
+https://www.nytimes.com/2026/08/27/weather/tropical-storm-dolly-forecast.html
+
+**Speed of Nepal’s Flash Floods Likely Overwhelmed Warning System, Experts Say**\
+`Scientists and disaster response researchers said Nepal’s early flood warning system relied on a conventional network of river gauges in this remote region.`\
+https://www.nytimes.com/2026/08/27/world/asia/speed-of-flash-floods-likely-overwhelmed-nepals-warning-system-experts-say.html
+
+**Lindsay Clancy Murder Trial Closing Arguments Begin**\
+`Ms. Clancy’s lawyer called her “a darn good mother.” The prosecutor accused her of “extreme atrocity and cruelty.”`\
+https://www.nytimes.com/2026/08/27/us/lindsay-clancy-trial-closing.html
+
 **Inundaciones en Nepal y el Tíbet: lo que hay que saber**\
 `Es posible que una avalancha haya causado inundaciones catastróficas incluso sin fuertes lluvias. En la ruta de la destrucción, al menos 1000 personas estaban desaparecidas.`\
 https://www.nytimes.com/es/2026/08/27/espanol/mundo/inundaciones-nepal-tibet-videos-que-paso.html
