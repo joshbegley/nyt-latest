@@ -1,3 +1,7 @@
+**Tropical Storm Dolly Forms In the Atlantic Ocean**\
+`Forecasters were quick to point out that the storm’s name, days after the death of Dolly Parton, was a coincidence.`\
+https://www.nytimes.com/2026/08/27/weather/tropical-storm-dolly-forecast.html
+
 **Inundaciones en Nepal y el Tíbet: lo que hay que saber**\
 `Es posible que una avalancha haya causado inundaciones catastróficas incluso sin fuertes lluvias. En la ruta de la destrucción, al menos 1000 personas estaban desaparecidas.`\
 https://www.nytimes.com/es/2026/08/27/espanol/mundo/inundaciones-nepal-tibet-videos-que-paso.html
@@ -5,6 +9,10 @@ https://www.nytimes.com/es/2026/08/27/espanol/mundo/inundaciones-nepal-tibet-vid
 **Greenlandic Women Will Finally Get Money for Forced Contraception**\
 `For decades, Denmark implanted intrauterine devices in women in Greenland in an effort to keep down the island’s population. On Thursday, the government passed a compensation bill.`\
 https://www.nytimes.com/2026/08/27/world/europe/denmark-greenland-forced-contraception-compensation.html
+
+**Speed of Nepal’s Flash Floods Likely Overwhelmed Warning System, Experts Say**\
+`Scientists and disaster response researchers said Nepal’s early flood warning system relied on a conventional network of river gauges in this remote region.`\
+https://www.nytimes.com/2026/08/27/world/asia/speed-of-flash-floods-likely-overwhelmed-nepals-warning-system-experts-say.html
 
 **Meta Settles. Finally.**\
 `Meta’s settlement is far from perfect, but every blow counts as the company declines.`\
@@ -87,7 +95,7 @@ https://www.nytimes.com/2026/08/27/t-magazine/fig-frozen-yogurt-recipe.html
 https://www.nytimes.com/2026/08/27/t-magazine/copenhagen-hotel-house-of-josty-frederiksberg-gardens.html
 
 **Lindsay Clancy Murder Trial Closing Arguments Begin**\
-`Ms. Clancy’s lawyer told the jury that she was “a darn good mother” who should not be held criminally responsible for her children’s deaths.`\
+`Ms. Clancy’s lawyer called her “a darn good mother.” The prosecutor accused her of “extreme atrocity and cruelty.”`\
 https://www.nytimes.com/2026/08/27/us/lindsay-clancy-trial-closing.html
 
 **Meta Projected It Could Spend $10 Billion on Anthropic’s A.I.**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/27/crosswords/wordle-review-1896.html
 **Where Drones Cannot See, the Ukraine War Is a Deadly Game of Cat and Mouse**\
 `Russian troops are trying to infiltrate the vast, overgrown reservoir basin of a dam they blew up three years ago as Ukrainian soldiers hunt them at close quarters.`\
 https://www.nytimes.com/2026/08/27/world/europe/ukraine-russia-war-zaporizhzhia-frontline-fighting.html
-
-**Pilgrims at Border Crossing Are Among 500 Foreigners Missing After Flood**\
-`The largest contingent appears to have been pilgrims traveling between Nepal and a sacred site in the Chinese region of Tibet.`\
-https://www.nytimes.com/2026/08/27/world/asia/pilgrims-border-crossing-foreign-nationals-nepal-flood.html
-
-**Live Updates: Helicopters Rescue Nepal Flood Survivors, With More Than 1,400 Still Missing**\
-`Officials said hundreds were killed in Nepal and Tibet. New York Times reporters flew with rescuers to remote Himalayan areas, where shocked survivors described a torrent of mud sweeping away villages.`\
-https://www.nytimes.com/live/2026/08/27/world/nepal-tibet-flash-floods
 

@@ -1,3 +1,11 @@
+**Inundaciones en Nepal y el Tíbet: lo que hay que saber**\
+`Es posible que una avalancha haya causado inundaciones catastróficas incluso sin fuertes lluvias. En la ruta de la destrucción, al menos 1000 personas estaban desaparecidas.`\
+https://www.nytimes.com/es/2026/08/27/espanol/mundo/inundaciones-nepal-tibet-videos-que-paso.html
+
+**Greenlandic Women Will Finally Get Money for Forced Contraception**\
+`For decades, Denmark implanted intrauterine devices in women in Greenland in an effort to keep down the island’s population. On Thursday, the government passed a compensation bill.`\
+https://www.nytimes.com/2026/08/27/world/europe/denmark-greenland-forced-contraception-compensation.html
+
 **Meta Settles. Finally.**\
 `Meta’s settlement is far from perfect, but every blow counts as the company declines.`\
 https://www.nytimes.com/2026/08/27/opinion/meta-settlement-social-media-tech.html
