@@ -1,3 +1,7 @@
+**Recipe: Caramelized Fig Frozen Yogurt**\
+`Sonia Fillipow, the founder of the pop-up Sour Cherries, shares a frozen yogurt recipe that celebrates figs.`\
+https://www.nytimes.com/2026/08/27/t-magazine/fig-frozen-yogurt-recipe.html
+
 **A Copenhagen Hotel Overlooking One of the City’s Largest Gardens**\
 `Plus: sea kale on menus, stylish garden wear and more recommendations from T Magazine.`\
 https://www.nytimes.com/2026/08/27/t-magazine/copenhagen-hotel-house-of-josty-frederiksberg-gardens.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/27/arts/music/dolly-parton-politics-trump.html
 **What’s Going On at the Treasury?**\
 `America’s creditors aren’t likely to be reassured by the government’s latest maneuvers.`\
 https://www.nytimes.com/2026/08/27/opinion/us-treasury-debt-credit.html
-
-**‘Cult’ Used to Mean Something. Now It Applies to Taylor Swift and Trader Joe’s.**\
-`The word today applies to more than religious sects, but it says something about our worshipful attitude toward consumption.`\
-https://www.nytimes.com/2026/08/27/magazine/cult-language-consumer-religion.html
 
