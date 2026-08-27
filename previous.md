@@ -1,3 +1,7 @@
+**Miley Cyrus on Dolly Parton: ‘We Chose Each Other’**\
+`Miley Cyrus reflected on her bond with Dolly Parton on “The Interview.” She shared the story of how the country music star became her godmother, and how she was a guiding force throughout her life: “Instead of seeing myself retract in awe of her, I just felt myself going forward and feeling really safe,” Cyrus told Lulu-Garcia Navarro.`\
+https://www.nytimes.com/video/podcasts/100000011115626/miley-cyrus-on-dolly-parton-we-chose-each-other.html
+
 **Yayoi Kusama: A Life in Photos**\
 `Whether making dot-covered sculptures or wild performance pieces, the Japanese artist grabbed critical and popular acclaim.`\
 https://www.nytimes.com/2026/08/27/arts/yayoi-kusama-photos-artwork.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/27/movies/idiots-review.html
 **‘Finding Emily’ Review: You’ve Got Email**\
 `This Gen Z rom-com, with flashes of wit and invention, ultimately leans too heavily on the traditional formula it seems poised to subvert.`\
 https://www.nytimes.com/2026/08/27/movies/finding-emily-review.html
-
-**‘Filipiñana’ Review: Hell is a Golf Course**\
-`Rafael Manuel’s formalist drama snakes its way through a luxury golf course in the Philippines via the point of view of a 17-year-old worker.`\
-https://www.nytimes.com/2026/08/27/movies/filipinana-review.html
 

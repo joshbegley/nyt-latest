@@ -1,3 +1,7 @@
+**Miley Cyrus on Dolly Parton: ‘We Chose Each Other’**\
+`Miley Cyrus reflected on her bond with Dolly Parton on “The Interview.” She shared the story of how the country music star became her godmother, and how she was a guiding force throughout her life: “Instead of seeing myself retract in awe of her, I just felt myself going forward and feeling really safe,” Cyrus told Lulu-Garcia Navarro.`\
+https://www.nytimes.com/video/podcasts/100000011115626/miley-cyrus-on-dolly-parton-we-chose-each-other.html
+
 **What’s Going On at the Treasury?**\
 `America’s creditors aren’t likely to be reassured by the government’s latest maneuvers.`\
 https://www.nytimes.com/2026/08/27/opinion/us-treasury-debt-credit.html
