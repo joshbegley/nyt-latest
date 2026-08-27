@@ -2,9 +2,9 @@
 `Puede que hayamos trabajado en distintos sets, para distintos directores, en distintas épocas, pero todas llevamos las mismas heridas.`\
 https://www.nytimes.com/es/2026/08/27/espanol/opinion/actores-infantiles-problemas.html
 
-**‘A Huge Paradox’: Nepal Region Hit by Flood is Known for Development and Disasters**\
+**‘A Huge Paradox’: Nepal Region Hit by Flood Is Known for Development and Disasters**\
 `The region has experienced an economic boom even as natural disasters have repeatedly struck, including a flood that killed more than 160 people on Wednesday.`\
-https://www.nytimes.com/2026/08/27/world/asia/a-huge-paradox-nepal-region-hit-by-flood-known-for-development-and-disasters.html
+https://www.nytimes.com/2026/08/27/world/asia/nepal-rasuwa-flash-flood-economy.html
 
 **La de ‘Barbie’ también fue una odisea**\
 `Determinar qué género se apropia del viaje del héroe se trata de mucho más que una historia.`\
