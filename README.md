@@ -1,3 +1,7 @@
+**Parents Say Meta Settlement Is Big, but Not Enough**\
+`Across the country, parents described feeling some validation after the landmark $1.7 billion settlement. But they also felt skeptical that much of anything will change.`\
+https://www.nytimes.com/2026/08/27/well/meta-settlement-parents.html
+
 **Men Are Rethinking Their Approach to Skin Care**\
 `Three perspectives on aging reveal different priorities, while a dermatologist examines the ingredients behind SkinCeuticals P-TIOX Cream.`\
 http://brandedplaylist.nytimes.com/video/embedded/t-brand/100000011117208/men-are-rethinking-their-approach-to-skin-care.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/27/style/meta-jonathan-haidt-anxious-generation.
 **California Lawmakers Pass Plug-In Solar Bill**\
 `Legislatures in nearly a dozen states have voted to legalize use of the technology, which can help homeowners reduce their rising electricity costs.`\
 https://www.nytimes.com/2026/08/27/business/energy-environment/california-legislature-plugin-solar.html
-
-**Man Is Arrested in Fatal Shooting of Mexican Influencer During Livestream**\
-`The authorities accused the man of attacking César Gastélum, a young influencer, during a livestream in Sinaloa this month.`\
-https://www.nytimes.com/2026/08/27/world/americas/mexico-influencer-shooting-gastelum-arrest.html
 
