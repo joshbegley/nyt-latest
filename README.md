@@ -1,3 +1,7 @@
+**White House Construction May Have Contributed to Close Call With Trump’s Helicopter**\
+`A controller let a jet take off after missing warnings that Marine One was about to fly through the area, according to the National Transportation Safety Board.`\
+https://www.nytimes.com/2026/08/27/us/marine-one-white-house-construction.html
+
 **Benjamin Rosen, Who Brought Venture Capital to Tech, Dies at 93**\
 `An advocate for Apple on Wall Street, he was also a founding investor in early personal computing firms like Lotus and Compaq, where he served as chairman.`\
 https://www.nytimes.com/2026/08/27/business/ben-rosen-dead.html
@@ -14,8 +18,8 @@ https://www.nytimes.com/2026/08/27/nyregion/summer-in-the-city-us-open-begins.ht
 `The movie “Filipiñana” pits a country club’s members against its staff, using a golf course to explore the Philippines’ deep divides over land and class.`\
 https://www.nytimes.com/2026/08/27/world/asia/filipinana-film-golf-course-philippines.html
 
-**Progressives Decry Selection of Pro-Israel Democrat for House Panel**\
-`Outrage over the appointment of Representative Jared Moskowitz of Florida, who is vocally pro-Israel, to a Middle East policy subcommittee reflected the party’s rift over Israel.`\
+**Progressives Condemn Pick of Pro-Israel Democrat Atop House Panel**\
+`Outrage over making Representative Jared Moskowitz, who is vocally pro-Israel, the top Democrat on a Middle East policy subcommittee reflected the party’s rift over Israel.`\
 https://www.nytimes.com/2026/08/27/us/politics/democrats-progressives-moskowitz-israel-house-panel.html
 
 **Kansas Judge Dismisses Murder Charge Against Sheriff’s Deputy**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/27/dining/on-spoons.html
 **Ratko Mladic, the ‘Butcher of Bosnia,’ Dies in Prison at 83**\
 `The Bosnian Serb commander, who was convicted on charges of genocide for his actions during the Balkan wars, died in detention at The Hague on Thursday.`\
 https://www.nytimes.com/video/world/europe/100000011116603/ratko-mladic-dead.html
-
-**Tropical Storm Dolly Forms In the Atlantic Ocean**\
-`Forecasters were quick to point out that the storm’s name, days after the death of Dolly Parton, was a coincidence.`\
-https://www.nytimes.com/2026/08/27/weather/tropical-storm-dolly-forecast.html
 
