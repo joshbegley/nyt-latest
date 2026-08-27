@@ -1,3 +1,15 @@
+**Prince William Is Still Silent About His Brother, Harry. Can That Last?**\
+`Years of long-distance division between Prince William and his younger brother will be tested now that Harry has returned to Britain.`\
+https://www.nytimes.com/2026/08/27/world/europe/prince-william-is-still-silent-about-his-brother-harry.html
+
+**Quote of the Day: Southerners Embraced Parton as Embodiment of Their Best**\
+`Quotation of the Day for: Thursday, August 27, 2026.`\
+https://www.nytimes.com/2026/08/27/pageoneplus/quote-of-the-day-southerners-embraced-parton-as-embodiment-of-their-best.html
+
+**After Whiskey With His Captors, Cuban Dissident Lands in a Miami Maelstrom**\
+`The former political prisoner Luis Manuel Otero Alcántara is unpacking 4,000 paintings he brought to Miami from Cuba and dodging criticism from exiles who once welcomed him.`\
+https://www.nytimes.com/2026/08/27/world/americas/cuba-exile-otero-alcantaras.html
+
 **Yayoi Kusama Was the Avant-Garde Radical Who Became a Pop Icon**\
 `In her mass-produced ubiquity, Kusama became one of her own dots, spreading her image into every corner of our culture.`\
 https://www.nytimes.com/2026/08/26/arts/design/yayoi-kusama-appraisal.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/08/26/style/dolly-parton-miss-piggy-muppets.html
 **The Good List: 6 Things to Add Some Delight to Your Day**\
 `A Dolly duet, a beach finder and never landing.`\
 https://www.nytimes.com/2026/08/26/briefing/the-good-list-dolly-kermit-pelagic.html
-
-**The Local: Insider’s Guide to the State Fair**\
-`Plus, our tribute to Dolly Parton, and the new “zero-profit” model at Modern Times.`\
-https://www.nytimes.com/2026/08/26/briefing/minnesota-state-fair.html
-
-**Dolly Parton’s Best Movie Performances: Where to Stream**\
-`In movies like “9 to 5” and “Steel Magnolias,” Parton shined as a version of herself.`\
-https://www.nytimes.com/2026/08/26/movies/dolly-parton-movies-streaming.html
-
-**Blake Lively, Who Sought $8 Million for Legal Costs, Is Awarded $400,000**\
-`The ruling all but ends the legal dispute between her and Justin Baldoni over the filming of the movie “It Ends With Us” and its aftermath.`\
-https://www.nytimes.com/2026/08/26/movies/blake-lively-legal-costs-justin-baldoni.html
 
