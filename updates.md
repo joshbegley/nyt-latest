@@ -1,3 +1,27 @@
+**A Historic Settlement Over Social Media Addiction**\
+`Meta, the owner of Facebook and Instagram, agreed to a landmark settlement and agreed to make major changes to its products.`\
+https://www.nytimes.com/2026/08/27/podcasts/the-daily/a-historic-settlement-over-social-media-addiction.html
+
+**ICE Arrests Soar Across U.S., and Meta Agrees to Make Major Changes to Instagram and Facebook**\
+`Plus, a breakthrough in cancer treatment.`\
+https://www.nytimes.com/2026/08/27/podcasts/the-headlines/ice-arrests-meta-instagram-facebook.html
+
+**NYT Connections Answers for August 28, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Aug. 28, 2026.`\
+https://www.nytimes.com/2026/08/27/crosswords/connections-companion-1174.html
+
+**NYT Strands Hints for August 28, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Aug. 28, 2026.`\
+https://www.nytimes.com/2026/08/27/crosswords/strands-sidekick-908.html
+
+**Today’s Wordle Hints for August 28, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Aug. 28, 2026.`\
+https://www.nytimes.com/2026/08/27/crosswords/wordle-review-1896.html
+
+**Where Drones Cannot See, the Ukraine War Is a Deadly Game of Cat and Mouse**\
+`Russian troops are trying to infiltrate the vast, overgrown reservoir basin of a dam they blew up three years ago as Ukrainian soldiers hunt them at close quarters.`\
+https://www.nytimes.com/2026/08/27/world/europe/ukraine-russia-war-zaporizhzhia-frontline-fighting.html
+
 **Pilgrims at Border Crossing Are Among 500 Foreigners Missing After Flood**\
 `The largest contingent appears to have been pilgrims traveling between Nepal and a sacred site in the Chinese region of Tibet.`\
 https://www.nytimes.com/2026/08/27/world/asia/pilgrims-border-crossing-foreign-nationals-nepal-flood.html
