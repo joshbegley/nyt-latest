@@ -1,8 +1,12 @@
+**High School Sports in the Heat**\
+`High temperatures and new safety rules are transforming practice as a new school year begins.`\
+https://www.nytimes.com/2026/08/27/climate/high-school-sports-heat.html
+
 **It’s Bake Time**\
 `Our colleagues from NYT Cooking share a recipe reviewed by nearly 22,000 readers. And it still has five stars.`\
 https://www.nytimes.com/2026/08/27/world/bake-time-yayoi-kusama-nepal.html
 
-**Fired Journalists at Independent Military Publication Sue Pentagon**\
+**Fired Journalists From Stars and Stripes Sue Pentagon**\
 `Three journalists dismissed from Stars and Stripes accused the government of violating their First Amendment rights, asking the courts to stop their termination.`\
 https://www.nytimes.com/2026/08/27/us/politics/stars-and-stripes-fired-journalists-lawsuit-pentagon.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/08/27/espanol/estados-unidos/trump-elecciones-in
 **Secrecy in Lawsuits Has ‘Run Amok,’ Scholars Say**\
 `Two recent studies say judges are not doing enough to protect the public interest in openness.`\
 https://www.nytimes.com/2026/08/27/us/politics/the-docket-lawsuit-secrecy.html
-
-**How SSENSE, a Canadian Retailer, Is Grappling With Trump’s Tariffs**\
-`Ssense’s comeback efforts include moving a core part of its business to the United States so American customers can avoid hefty tariffs.`\
-https://www.nytimes.com/2026/08/27/business/ssense-canada-tariffs-trump.html
 
