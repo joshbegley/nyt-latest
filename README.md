@@ -1,3 +1,11 @@
+**Inside the Iceland Eclipse Festival: $1,000-a-Week Yurts and Endless Optimism**\
+`At a festival on a disc golf course, on a peninsula in Iceland, waiting for the sky to descend into darkness.`\
+https://www.nytimes.com/2026/08/27/style/iceland-eclipse-festival.html
+
+**‘Here There Are Blueberries,’ About a Trove of Nazi Photos, Heads to Broadway**\
+`“Here There Are Blueberries,” about archivists debating how to handle a troubling gift, will open at the Barrymore Theater in November.`\
+https://www.nytimes.com/2026/08/27/theater/here-there-are-blueberries-broadway.html
+
 **ICE agent Christian Castro Released From Texas Jail After Minnesota Loses Court Fight**\
 `The state had sought to have the agent extradited from Texas to answer charges in Minneapolis related to an on-duty shooting that wounded an immigrant.`\
 https://www.nytimes.com/2026/08/27/us/christian-castro-jail-minnesota-texas-ice-agent.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/27/realestate/the-best-cities-to-have-a-roommate
 **Homes for Sale in New York and New Jersey**\
 `This week’s properties are a former carriage house in Newburgh N.Y., and a ranch in Medford, N.J.`\
 https://www.nytimes.com/2026/08/27/realestate/housing-market-near-nyc.html
-
-**New Drug Approved by F.D.A. for Pancreatic Cancer Could Be First of Many**\
-`Companies are testing dozens of similar drugs in cancers of the pancreas, lung, colon and more.`\
-https://www.nytimes.com/2026/08/27/science/pancreatic-cancer-drug-fda-testing.html
-
-**‘The Whisper Man’ Review: Robert De Niro Tries to Crack a Grisly Case**\
-`Robert De Niro plays a world-weary retired lawman drawn back into a horrifying case, while Adam Scott holds our attention as his estranged son.`\
-https://www.nytimes.com/2026/08/27/movies/the-whisper-man-review.html
 

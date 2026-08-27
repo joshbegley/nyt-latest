@@ -1,3 +1,7 @@
+**ICE agent Christian Castro Released From Texas Jail After Minnesota Loses Court Fight**\
+`The state had sought to have the agent extradited from Texas to answer charges in Minneapolis related to an on-duty shooting that wounded an immigrant.`\
+https://www.nytimes.com/2026/08/27/us/christian-castro-jail-minnesota-texas-ice-agent.html
+
 **Rock Landslide and Glacial Collapse Likely Caused Floods in Nepal and Tibet, Scientists Say**\
 `New satellite imagery added to scientists’ understanding of the events that precipitated the deadly flooding in Nepal and Tibet.`\
 https://www.nytimes.com/2026/08/27/world/asia/nepal-flood-cause-landslide-glacier-collapse.html
