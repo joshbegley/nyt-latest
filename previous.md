@@ -1,3 +1,7 @@
+**Live Updates: Rescuers Scour Himalayan Valleys for Survivors After Deadly Flood**\
+`More than 1,300 people were missing in Nepal and the Tibet region of China after a torrent of mud, water and ice swept away villages and bridges, killing at least 165.`\
+https://www.nytimes.com/live/2026/08/27/world/nepal-tibet-flash-floods
+
 **¿Los ‘entrenamientos linfáticos’ pueden ayudar con la hinchazón o la inflamación?**\
 `Algunos influentes promueven rutinas de ejercicio específicas, como caminar o saltar, para reducir la hinchazón. Esto es lo que debes saber.`\
 https://www.nytimes.com/es/2026/08/27/espanol/ejercicios-inflamacion-hinchazon.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/26/world/americas/children-social-media-restrict
 **Will Dolly Parton’s Imagination Library Survive Without Her?**\
 `The crown jewel of the singer’s philanthropic efforts has handed out hundreds of millions of books to children over the past 31 years. But it isn’t immune to funding cuts.`\
 https://www.nytimes.com/2026/08/26/books/dolly-parton-imagination-library.html
-
-**Armed Man Arrested Near Trump Golf Course Is Sent to Mental Health Court**\
-`A California judge suspended criminal proceedings against the man, a former Marine, who had been arrested days before the president was set to visit for a fund-raiser.`\
-https://www.nytimes.com/2026/08/26/us/trump-golf-course-man-gun-arrest.html
 

@@ -1,3 +1,7 @@
+**Live Updates: Rescuers Scour Himalayan Valleys for Survivors After Deadly Flood**\
+`More than 1,300 people were missing in Nepal and the Tibet region of China after a torrent of mud, water and ice swept away villages and bridges, killing at least 165.`\
+https://www.nytimes.com/live/2026/08/27/world/nepal-tibet-flash-floods
+
 **¿Los ‘entrenamientos linfáticos’ pueden ayudar con la hinchazón o la inflamación?**\
 `Algunos influentes promueven rutinas de ejercicio específicas, como caminar o saltar, para reducir la hinchazón. Esto es lo que debes saber.`\
 https://www.nytimes.com/es/2026/08/27/espanol/ejercicios-inflamacion-hinchazon.html
