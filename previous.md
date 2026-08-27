@@ -1,3 +1,11 @@
+**In Nepal, a Catastrophe So Sudden There Was No Time to React**\
+`The collapse of part of a mountain created a flash flood of a scale and speed no one had imagined, survivors said. Hundreds died, at least, and many more are missing.`\
+https://www.nytimes.com/2026/08/27/world/asia/nepal-flood-survivors-devastation.html
+
+**Grand Theft Auto VI Has a New Trailer and Grand Ambitions**\
+`Of course you can steal cars in this Bonnie and Clyde story. In the series’s first game in 13 years, you can do almost anything else, too.`\
+https://www.nytimes.com/2026/08/27/arts/grand-theft-auto-vi-trailer-extended-look-rockstar.html
+
 **Trump Renames Lake Ontario to Lake America**\
 `President Trump signed an executive order on Thursday renaming Lake Ontario to Lake America. The order comes after negotiations between the U.S. and Canada collapsed last week after the two failed to reach a trade agreement.`\
 https://www.nytimes.com/video/us/politics/100000011117424/trump-rename-lake-ontario-lake-america.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/es/2026/08/27/espanol/america-latina/gastelum-asesinato-
 **Sunny With a Chance of Chicken-Zucchini Meatballs**\
 `Ali Slagle’s clever meatballs are half meat, half vegetable, all delicious.`\
 https://www.nytimes.com/2026/08/27/dining/sunny-with-a-chance-of-chicken-zucchini-meatballs.html
-
-**Trump Administration to Expand Deportation Flights to Haiti**\
-`Flights to the Caribbean nation will increase from once a month to once a week now that the Supreme Court allowed President Trump to cancel a humanitarian program.`\
-https://www.nytimes.com/2026/08/27/us/politics/haiti-deportation-flights.html
-
-**En Latinoamérica, los demócratas socialistas son el centro de atención**\
-`El éxito de los candidatos progresistas en EE. UU. está inspirando a los izquierdistas en el extranjero que enfrentan la presión del gobierno de Trump y sus aliados.`\
-https://www.nytimes.com/es/2026/08/27/espanol/america-latina/latinoamerica-izquierda-democratas-socialistas.html
 

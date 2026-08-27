@@ -1,3 +1,11 @@
+**In Nepal, a Catastrophe So Sudden There Was No Time to React**\
+`The collapse of part of a mountain created a flash flood of a scale and speed no one had imagined, survivors said. Hundreds died, at least, and many more are missing.`\
+https://www.nytimes.com/2026/08/27/world/asia/nepal-flood-survivors-devastation.html
+
+**Grand Theft Auto VI Has a New Trailer and Grand Ambitions**\
+`Of course you can steal cars in this Bonnie and Clyde story. In the series’s first game in 13 years, you can do almost anything else, too.`\
+https://www.nytimes.com/2026/08/27/arts/grand-theft-auto-vi-trailer-extended-look-rockstar.html
+
 **Trump Renames Lake Ontario to Lake America**\
 `President Trump signed an executive order on Thursday renaming Lake Ontario to Lake America. The order comes after negotiations between the U.S. and Canada collapsed last week after the two failed to reach a trade agreement.`\
 https://www.nytimes.com/video/us/politics/100000011117424/trump-rename-lake-ontario-lake-america.html
