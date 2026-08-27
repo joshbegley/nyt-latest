@@ -1,3 +1,7 @@
+**Yayoi Kusama: A Life in Photos**\
+`Whether making dot-covered sculptures or wild performance pieces, the Japanese artist grabbed critical and popular acclaim.`\
+https://www.nytimes.com/2026/08/27/arts/yayoi-kusama-photos-artwork.html
+
 **O Canada!**\
 `Even Machiavelli wouldn’t like Trump’s America.`\
 https://www.nytimes.com/2026/08/27/opinion/trump-canada-trade-war-dolly-parton.html

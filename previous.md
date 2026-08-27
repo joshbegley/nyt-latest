@@ -1,3 +1,7 @@
+**Yayoi Kusama: A Life in Photos**\
+`Whether making dot-covered sculptures or wild performance pieces, the Japanese artist grabbed critical and popular acclaim.`\
+https://www.nytimes.com/2026/08/27/arts/yayoi-kusama-photos-artwork.html
+
 **Did Meta’s Big Settlement Actually Help It?**\
 `The tech giant’s landmark deal with states over teen use of social media may cost the company less than expected. It may hurt rivals more.`\
 https://www.nytimes.com/2026/08/27/business/dealbook/meta-settlement-teens.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/27/movies/finding-emily-review.html
 **‘Filipiñana’ Review: Hell is a Golf Course**\
 `Rafael Manuel’s formalist drama snakes its way through a luxury golf course in the Philippines via the point of view of a 17-year-old worker.`\
 https://www.nytimes.com/2026/08/27/movies/filipinana-review.html
-
-**‘The Dog Stars’ Review: Seeking Hope at the End of the World**\
-`A terrific cast led by Jacob Elordi and Margaret Qualley struggles to lift Ridley Scott’s contemplative dystopia out of the doldrums.`\
-https://www.nytimes.com/2026/08/27/movies/the-dog-stars-review.html
 
