@@ -1,3 +1,11 @@
+**Qatari Prime Minister Travels to Tehran as Iran War Nears Six-Month Mark**\
+`Sheikh Mohammed bin Abdulrahman Al Thani has been a key mediator in the conflict, even as his country has blamed Tehran for hundreds of missile and drone attacks.`\
+https://www.nytimes.com/2026/08/27/world/middleeast/qatar-visit-iran.html
+
+**For 30 Nights, Madison Square Garden Is Harry’s House**\
+`The singer kicked off a monthslong residency at the venue on Wednesday night before a giddy crowd.`\
+https://www.nytimes.com/2026/08/27/arts/music/harry-styles-madison-square-garden.html
+
 **In Japan, Yayoi Kusama Is Remembered as a Visionary and a Rebel**\
 `Artists, scholars and fans celebrated Ms. Kusama as a cultural giant who helped bring Japanese art to the masses.`\
 https://www.nytimes.com/2026/08/27/world/asia/yayoi-kusama-japan-artist.html
