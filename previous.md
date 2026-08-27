@@ -151,7 +151,7 @@ https://www.nytimes.com/interactive/2026/08/27/world/asia/nepal-flash-flood-dama
 https://www.nytimes.com/2026/08/27/arts/design/warhol-dolly-parton-portrait.html
 
 **Ask a Journalist: How Generative A.I. Is Changing Education**\
-`Dana Goldstein joins us for the month of September to chat with teenagers about artificial intelligence and its impact on schools and education. Post your comments and questions for her by Sept. 15.`\
+`Dana Goldstein joins us for the month of September to chat with teenagers about artificial intelligence and its impact on schools and education. Post your comments and questions for her by Sept. 18.`\
 https://www.nytimes.com/2026/08/27/learning/lesson-plans/ask-a-journalist-how-generative-ai-is-changing-education.html
 
 **Ask a Journalist: A 2026-27 Monthly Series for Teenagers**\

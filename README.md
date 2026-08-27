@@ -127,7 +127,7 @@ https://www.nytimes.com/es/2026/08/27/espanol/cultura/dolly-parton-donaciones-di
 https://www.nytimes.com/video/us/100000011116917/box-turtles-rescued-from-smugglers-find-haven-at-the-bronx-zoo.html
 
 **Anguished Families in Nepal Await Updates About Flood Victims**\
-`Relatives of flood victims gathered outside a hospital in Nepal’s capital, Kathmandu, looking for their loved ones. More than 1,000 people were still missing on Thursday, the authorities said.`\
+`Relatives of flood victims gathered outside a hospital in Nepal’s capital, Kathmandu, looking for their loved ones. More than 1,400 people were still missing on Thursday, the authorities said.`\
 https://www.nytimes.com/video/world/asia/100000011116452/nepal-flash-floods-kathmandu-victims.html
 
 **It’s Raining Again in New York. Here’s What to Know.**\

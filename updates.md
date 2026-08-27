@@ -1,3 +1,7 @@
+**Ask a Journalist: How Generative A.I. Is Changing Education**\
+`Dana Goldstein joins us for the month of September to chat with teenagers about artificial intelligence and its impact on schools and education. Post your comments and questions for her by Sept. 18.`\
+https://www.nytimes.com/2026/08/27/learning/lesson-plans/ask-a-journalist-how-generative-ai-is-changing-education.html
+
 **Kansas Judge Dismisses Murder Charge Against Sheriff’s Deputy**\
 `The judge said prosecutors had failed to meet their burden in the case against a deputy charged in the 2025 jailhouse death of an inmate.`\
 https://www.nytimes.com/2026/08/27/us/kansas-deputy-murder-charge-dismissed.html
