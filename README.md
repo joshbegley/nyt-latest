@@ -1,3 +1,7 @@
+**Check These Dishes Off Your Summer Bucket List Before It’s Too Late**\
+`Jerk chicken in the heart of Flatbush, an actually affordable lobster roll and all the soft shell crab you can eat.`\
+https://www.nytimes.com/2026/08/27/dining/bucket-list.html
+
 **In ‘9 to 5,’ Dolly Parton Put a Friendly Face on Feminism**\
 `In 1980, feminists were often stereotyped as man-hating or out of touch. Then Parton gave the movement a boost — and an anthem.`\
 https://www.nytimes.com/2026/08/27/magazine/dolly-parton-9-to-5-feminism.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/27/world/canada/trade-war-french-language.html
 **Today, In Short**\
 `Meta. Harry Styles. And “Outer Banks.”`\
 https://www.nytimes.com/2026/08/27/briefing/today-in-short.html
-
-**Mapa: la trayectoria de la tormenta tropical Dolly en vivo**\
-`Consulta la trayectoria probable y las horas de llegada de los vientos de Dolly.`\
-https://www.nytimes.com/interactive/2026/08/27/espanol/dolly-mapa-trayectoria.html
 

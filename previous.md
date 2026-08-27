@@ -1,3 +1,7 @@
+**In ‘9 to 5,’ Dolly Parton Put a Friendly Face on Feminism**\
+`In 1980, feminists were often stereotyped as man-hating or out of touch. Then Parton gave the movement a boost — and an anthem.`\
+https://www.nytimes.com/2026/08/27/magazine/dolly-parton-9-to-5-feminism.html
+
 **In Trump’s Washington, Ballooning National Debt Stirs Little Action**\
 `The relative indifference to the news that the U.S. government now owes $40 trillion demonstrates how drastically the politics of deficit spending has changed.`\
 https://www.nytimes.com/2026/08/27/us/politics/national-debt-trump-reaction.html
@@ -59,7 +63,7 @@ https://www.nytimes.com/2026/08/27/well/meta-settlement-parents.html
 http://brandedplaylist.nytimes.com/video/embedded/t-brand/100000011117208/men-are-rethinking-their-approach-to-skin-care.html
 
 **C.I.A. Chief Delivered Bleak Assessment of Russia’s War in Secretive Moscow Visit**\
-`C.I.A. analysts have questioned whether President Vladimir V. Putin’s advisers have given him honest assessments of the conflict.`\
+`John Ratcliffe’s meeting this week with a Russian intelligence chief was aimed at pushing the Kremlin to pursue a peace deal with Ukraine.`\
 https://www.nytimes.com/2026/08/27/us/politics/cia-director-russia-ukraine.html
 
 **La tormenta tropical Dolly se forma y se moverá hacia el Caribe**\
@@ -182,8 +186,8 @@ https://www.nytimes.com/2026/08/27/arts/design/laura-spector-dead.html
 `Las pinturas cubiertas de lunares, las esculturas fálicas y los performances públicos de la artista japonesa causaron revuelo en Estados Unidos y toda Europa en la década de 1960.`\
 https://www.nytimes.com/es/2026/08/27/espanol/cultura/muere-yayoi-kusama.html
 
-**Backing Off French Issue Could Restart U.S. Trade Talks, Canadian Official Says**\
-`The minister in charge of trade with the United States was responding to comments by Jamieson Greer, the U.S. trade representative, to a Canadian broadcaster.`\
+**Yielding on French Could Restart Trade Talks, Canadian Officials Say**\
+`Canada’s minister in charge of trade with the U.S. was responding to comments by Jamieson Greer, the U.S. trade representative. But that was before any mention of Lake Ontario.`\
 https://www.nytimes.com/2026/08/27/world/canada/trade-war-french-language.html
 
 **Today, In Short**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/27/briefing/today-in-short.html
 **Mapa: la trayectoria de la tormenta tropical Dolly en vivo**\
 `Consulta la trayectoria probable y las horas de llegada de los vientos de Dolly.`\
 https://www.nytimes.com/interactive/2026/08/27/espanol/dolly-mapa-trayectoria.html
-
-**Maps: Tracking Tropical Storm Dolly**\
-`See the likely path and wind arrival times for Dolly`\
-https://www.nytimes.com/interactive/2026/08/27/weather/dolly-map-path-tracker.html
 

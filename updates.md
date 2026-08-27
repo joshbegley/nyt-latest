@@ -1,3 +1,15 @@
+**In ‘9 to 5,’ Dolly Parton Put a Friendly Face on Feminism**\
+`In 1980, feminists were often stereotyped as man-hating or out of touch. Then Parton gave the movement a boost — and an anthem.`\
+https://www.nytimes.com/2026/08/27/magazine/dolly-parton-9-to-5-feminism.html
+
+**C.I.A. Chief Delivered Bleak Assessment of Russia’s War in Secretive Moscow Visit**\
+`John Ratcliffe’s meeting this week with a Russian intelligence chief was aimed at pushing the Kremlin to pursue a peace deal with Ukraine.`\
+https://www.nytimes.com/2026/08/27/us/politics/cia-director-russia-ukraine.html
+
+**Yielding on French Could Restart Trade Talks, Canadian Officials Say**\
+`Canada’s minister in charge of trade with the U.S. was responding to comments by Jamieson Greer, the U.S. trade representative. But that was before any mention of Lake Ontario.`\
+https://www.nytimes.com/2026/08/27/world/canada/trade-war-french-language.html
+
 **In Trump’s Washington, Ballooning National Debt Stirs Little Action**\
 `The relative indifference to the news that the U.S. government now owes $40 trillion demonstrates how drastically the politics of deficit spending has changed.`\
 https://www.nytimes.com/2026/08/27/us/politics/national-debt-trump-reaction.html
