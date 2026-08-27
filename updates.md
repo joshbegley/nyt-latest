@@ -1,3 +1,11 @@
+**High School Sports in the Heat**\
+`High temperatures and new safety rules are transforming practice as a new school year begins.`\
+https://www.nytimes.com/2026/08/27/climate/high-school-sports-heat.html
+
+**Fired Journalists From Stars and Stripes Sue Pentagon**\
+`Three journalists dismissed from Stars and Stripes accused the government of violating their First Amendment rights, asking the courts to stop their termination.`\
+https://www.nytimes.com/2026/08/27/us/politics/stars-and-stripes-fired-journalists-lawsuit-pentagon.html
+
 **It’s Bake Time**\
 `Our colleagues from NYT Cooking share a recipe reviewed by nearly 22,000 readers. And it still has five stars.`\
 https://www.nytimes.com/2026/08/27/world/bake-time-yayoi-kusama-nepal.html
