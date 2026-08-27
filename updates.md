@@ -1,3 +1,11 @@
+**Trump representa un dilema para los republicanos de cara a las elecciones intermedias**\
+`El respaldo del presidente ha sido un impulso importante en las primarias del Partido Republicano pero sus bajos índices de aprobación lo convierten en una carga para los votantes indecisos.`\
+https://www.nytimes.com/es/2026/08/27/espanol/estados-unidos/trump-elecciones-intermedias.html
+
+**Secrecy in Lawsuits Has ‘Run Amok,’ Scholars Say**\
+`Two recent studies say judges are not doing enough to protect the public interest in openness.`\
+https://www.nytimes.com/2026/08/27/us/politics/the-docket-lawsuit-secrecy.html
+
 **How SSENSE, a Canadian Retailer, Is Grappling With Trump’s Tariffs**\
 `Ssense’s comeback efforts include moving a core part of its business to the United States so American customers can avoid hefty tariffs.`\
 https://www.nytimes.com/2026/08/27/business/ssense-canada-tariffs-trump.html
