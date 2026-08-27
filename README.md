@@ -142,7 +142,7 @@ https://www.nytimes.com/2026/08/27/arts/kehinde-wiley-painting-trump.html
 `Bipartisan tributes demonstrated the success of the singer’s long-running effort to stay out of party politics in a sharply divided country.`\
 https://www.nytimes.com/2026/08/27/arts/music/dolly-parton-politics-trump.html
 
-**The Treasury’s Fix Is Feeble. Our Financial Hole Is Deep.**\
+**What’s Going On at the Treasury?**\
 `America’s creditors aren’t likely to be reassured by the government’s latest maneuvers.`\
 https://www.nytimes.com/2026/08/27/opinion/us-treasury-debt-credit.html
 
