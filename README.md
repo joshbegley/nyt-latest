@@ -1,3 +1,7 @@
+**‘I Need to Go to the Hospital,’ Delta Pilot Tells Air Traffic Control**\
+`A Delta Air Lines flight from Los Angeles to Boston safely diverted to Detroit after the captain of a Boeing 757 became ill.`\
+https://www.nytimes.com/2026/08/27/us/delta-pilot-ill.html
+
 **Wall Street Loved Scott Bessent and Kevin Warsh. Not Anymore.**\
 `We are approaching a credibility crisis with Scott Bessent and Kevin Warsh leading our economy.`\
 https://www.nytimes.com/2026/08/27/opinion/bessent-warsh-treasury-fed-bonds-trump.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/08/27/espanol/cultura/dolly-parton-donaciones-di
 **Box Turtles Rescued From Smugglers Find Haven at the Bronx Zoo**\
 `Box turtles that have been rescued from smugglers have been given a second chance at the Bronx Zoo, where they can rehabilitate before returning to their natural habitats.`\
 https://www.nytimes.com/video/us/100000011116917/box-turtles-rescued-from-smugglers-find-haven-at-the-bronx-zoo.html
-
-**Anguished Families in Nepal Await Updates About Flood Victims**\
-`Relatives of flood victims gathered outside a hospital in Nepal’s capital, Kathmandu, looking for their loved ones. More than 1,400 people were still missing on Thursday, the authorities said.`\
-https://www.nytimes.com/video/world/asia/100000011116452/nepal-flash-floods-kathmandu-victims.html
 

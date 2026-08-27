@@ -1,3 +1,11 @@
+**Wall Street Loved Scott Bessent and Kevin Warsh. Not Anymore.**\
+`We are approaching a credibility crisis with Scott Bessent and Kevin Warsh leading our economy.`\
+https://www.nytimes.com/2026/08/27/opinion/bessent-warsh-treasury-fed-bonds-trump.html
+
+**Climber Stranded for Hours on 6-Inch Rock Ledge Before Rescue**\
+`Racing against the darkness, rescuers in California on Saturday saved a man who had become stranded on a ledge perched atop a soaring peak on the Sierra Nevada.`\
+https://www.nytimes.com/2026/08/27/us/california-man-rescued-laurel-mountain.html
+
 **Trump Plans to Mark 9/11 at the Pentagon, Not Ground Zero**\
 `President Trump originally intended to commemorate the 25th anniversary of Sept. 11 with remarks at ground zero, but the memorial’s organizers do not allow speeches. Mr. Trump changed his plans.`\
 https://www.nytimes.com/2026/08/27/us/politics/trump-911-pentagon-ground-zero.html
