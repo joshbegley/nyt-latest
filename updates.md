@@ -1,3 +1,7 @@
+**Andrew and Tristan Tate: A Timeline of Their Rise and a Web of Allegations**\
+`The brothers, who have denied all wrongdoing, are fighting extradition to Britain on multiple charges, including rape and sex trafficking.`\
+https://www.nytimes.com/2026/08/27/world/europe/andrew-tristan-tate-timeline-rape-trafficking-allegations-extradition.html
+
 **En fotos: inundación en Nepal y el Tíbet**\
 `Una avalancha de hielo que comenzó en lo alto del Himalaya cayó por cientos de metros y liberó enormes cantidades de energía que pulverizaron el hielo hasta convertirlo en un gran volumen de agua de inundación.`\
 https://www.nytimes.com/es/2026/08/27/espanol/mundo/inundacion-nepal-tibet.html
