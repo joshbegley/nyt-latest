@@ -1,3 +1,19 @@
+**DeSantis Administration Misspent $10 Million, Grand Jury Says**\
+`A charity tied to Gov. Ron DeSantis’s wife received the money from a state Medicaid settlement and diverted it to political committees supporting a cause favored by the governor.`\
+https://www.nytimes.com/2026/08/27/us/casey-desantis-charity-hope-garden-medicaid-settlement.html
+
+**On Spoons**\
+`Specifically, spoon salads: the best kind of salad, filled with uniform bits of veg.`\
+https://www.nytimes.com/2026/08/27/dining/on-spoons.html
+
+**Ratko Mladic, the ‘Butcher of Bosnia,’ Dies in Prison at 83**\
+`The Bosnian Serb commander, who was convicted on charges of genocide for his actions during the Balkan wars, died in detention at The Hague on Thursday.`\
+https://www.nytimes.com/video/world/europe/100000011116603/ratko-mladic-dead.html
+
+**Jury Begins Deliberations in Lindsay Clancy Murder Trial**\
+`In closing arguments, Ms. Clancy’s lawyer called her “a darn good mother.” The prosecutor accused her of “extreme atrocity and cruelty.”`\
+https://www.nytimes.com/2026/08/27/us/lindsay-clancy-trial-closing.html
+
 **Tropical Storm Dolly Forms In the Atlantic Ocean**\
 `Forecasters were quick to point out that the storm’s name, days after the death of Dolly Parton, was a coincidence.`\
 https://www.nytimes.com/2026/08/27/weather/tropical-storm-dolly-forecast.html

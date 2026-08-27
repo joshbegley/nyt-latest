@@ -1,3 +1,15 @@
+**DeSantis Administration Misspent $10 Million, Grand Jury Says**\
+`A charity tied to Gov. Ron DeSantis’s wife received the money from a state Medicaid settlement and diverted it to political committees supporting a cause favored by the governor.`\
+https://www.nytimes.com/2026/08/27/us/casey-desantis-charity-hope-garden-medicaid-settlement.html
+
+**On Spoons**\
+`Specifically, spoon salads: the best kind of salad, filled with uniform bits of veg.`\
+https://www.nytimes.com/2026/08/27/dining/on-spoons.html
+
+**Ratko Mladic, the ‘Butcher of Bosnia,’ Dies in Prison at 83**\
+`The Bosnian Serb commander, who was convicted on charges of genocide for his actions during the Balkan wars, died in detention at The Hague on Thursday.`\
+https://www.nytimes.com/video/world/europe/100000011116603/ratko-mladic-dead.html
+
 **Tropical Storm Dolly Forms In the Atlantic Ocean**\
 `Forecasters were quick to point out that the storm’s name, days after the death of Dolly Parton, was a coincidence.`\
 https://www.nytimes.com/2026/08/27/weather/tropical-storm-dolly-forecast.html
@@ -94,8 +106,8 @@ https://www.nytimes.com/2026/08/27/t-magazine/fig-frozen-yogurt-recipe.html
 `Plus: sea kale on menus, stylish garden wear and more recommendations from T Magazine.`\
 https://www.nytimes.com/2026/08/27/t-magazine/copenhagen-hotel-house-of-josty-frederiksberg-gardens.html
 
-**Lindsay Clancy Murder Trial Closing Arguments Begin**\
-`Ms. Clancy’s lawyer called her “a darn good mother.” The prosecutor accused her of “extreme atrocity and cruelty.”`\
+**Jury Begins Deliberations in Lindsay Clancy Murder Trial**\
+`In closing arguments, Ms. Clancy’s lawyer called her “a darn good mother.” The prosecutor accused her of “extreme atrocity and cruelty.”`\
 https://www.nytimes.com/2026/08/27/us/lindsay-clancy-trial-closing.html
 
 **Meta Projected It Could Spend $10 Billion on Anthropic’s A.I.**\
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/08/27/podcasts/the-headlines/ice-arrests-meta-insta
 **NYT Connections Answers for August 28, 2026**\
 `Scroll down for hints and conversation about the puzzle for Friday, Aug. 28, 2026.`\
 https://www.nytimes.com/2026/08/27/crosswords/connections-companion-1174.html
-
-**NYT Strands Hints for August 28, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, Aug. 28, 2026.`\
-https://www.nytimes.com/2026/08/27/crosswords/strands-sidekick-908.html
-
-**Today’s Wordle Hints for August 28, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, Aug. 28, 2026.`\
-https://www.nytimes.com/2026/08/27/crosswords/wordle-review-1896.html
-
-**Where Drones Cannot See, the Ukraine War Is a Deadly Game of Cat and Mouse**\
-`Russian troops are trying to infiltrate the vast, overgrown reservoir basin of a dam they blew up three years ago as Ukrainian soldiers hunt them at close quarters.`\
-https://www.nytimes.com/2026/08/27/world/europe/ukraine-russia-war-zaporizhzhia-frontline-fighting.html
 
