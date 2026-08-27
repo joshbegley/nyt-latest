@@ -1,3 +1,15 @@
+**Muere Ratko Mladic, el ‘carnicero de Bosnia’, en La Haya**\
+`Uno de los responsables de la masacre más mortífera de Europa desde la Segunda Guerra Mundial, el asesinato de unos 8000 hombres y niños musulmanes en Srebrenica en 1995, murió bajo custodia en La Haya. Tenía 83 años.`\
+https://www.nytimes.com/es/2026/08/27/espanol/cultura/muere-ratko-mladic-bosnia.html
+
+**Nepal-Tibet Flood: See the Scale of the Destruction**\
+`Satellite images show widespread destruction along more than 50 miles of Himalayan valleys where a torrent of mud swept away villages on Wednesday.`\
+https://www.nytimes.com/interactive/2026/08/27/world/asia/nepal-flash-flood-damage.html
+
+**Trump Makes Terrible Nuclear Deals. This One Should Be Rejected.**\
+`Congress should stop the president’s dangerous nuclear deal with Saudi Arabia.`\
+https://www.nytimes.com/2026/08/27/opinion/international-world/saudi-nuclear-deal-congress-trump.html
+
 **Why Andy Warhol Couldn’t Capture Dolly Parton**\
 `Andy Warhol’s images of Parton don’t strike me as up to the level of his best society portraits; they aren’t quite worthy of the singer’s complex excellence.`\
 https://www.nytimes.com/2026/08/27/arts/design/warhol-dolly-parton-portrait.html
