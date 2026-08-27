@@ -1,3 +1,19 @@
+**What Meta’s $17 Billion Settlement Means**\
+`Our reporter Cecilia Kang explains Meta’s settlement of a lawsuit claiming that the company’s social media platforms had harmed teenage users.`\
+https://www.nytimes.com/video/technology/100000011114831/explaining-metas-17-billion-dollar-settlement.html
+
+**On Night of Deadly Air Canada Crash, Two LaGuardia Controllers Left Early**\
+`The Federal Aviation Administration has taken steps to fire the two workers at LaGuardia Airport, according to two people familiar with the investigation.`\
+https://www.nytimes.com/2026/08/27/nyregion/air-canada-crash-lga-air-traffic-controllers.html
+
+**Trump Signs Executive Order to Rename Lake Ontario to Lake America**\
+`The president also reiterated his criticism that Canada “treats us very badly.” Trade talks between the nations collapsed last week.`\
+https://www.nytimes.com/2026/08/27/us/politics/trump-lake-america-executive-order.html
+
+**Parents Say Meta Settlement Is Big, but Not Enough**\
+`Across the country, parents described feeling some validation after the landmark $17.1 billion settlement. But they also felt skeptical that much of anything will change.`\
+https://www.nytimes.com/2026/08/27/well/meta-settlement-parents.html
+
 **Obama to Headline Fund-Raiser With Jeffries in New York**\
 `The top Democrats will gather party donors on Sept. 10, just as Republicans converge in Texas for their unusual midterm convention.`\
 https://www.nytimes.com/2026/08/27/us/politics/obama-fundraiser-gop-convention.html
