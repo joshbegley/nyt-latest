@@ -1,3 +1,23 @@
+**Prince William Is Still Silent About His Brother, Harry. Can That Last?**\
+`Years of long-distance division between Prince William and his younger brother will be tested now that Harry has returned to Britain.`\
+https://www.nytimes.com/2026/08/27/world/europe/prince-william-is-still-silent-about-his-brother-harry.html
+
+**Quote of the Day: Southerners Embraced Parton as Embodiment of Their Best**\
+`Quotation of the Day for: Thursday, August 27, 2026.`\
+https://www.nytimes.com/2026/08/27/pageoneplus/quote-of-the-day-southerners-embraced-parton-as-embodiment-of-their-best.html
+
+**After Whiskey With His Captors, Cuban Dissident Lands in a Miami Maelstrom**\
+`The former political prisoner Luis Manuel Otero Alcántara is unpacking 4,000 paintings he brought to Miami from Cuba and dodging criticism from exiles who once welcomed him.`\
+https://www.nytimes.com/2026/08/27/world/americas/cuba-exile-otero-alcantaras.html
+
+**Yayoi Kusama Was the Avant-Garde Radical Who Became a Pop Icon**\
+`In her mass-produced ubiquity, Kusama became one of her own dots, spreading her image into every corner of our culture.`\
+https://www.nytimes.com/2026/08/26/arts/design/yayoi-kusama-appraisal.html
+
+**Corrections: Aug. 26, 2026**\
+`Corrections that appeared in print on Wednesday, Aug. 26, 2026.`\
+https://www.nytimes.com/2026/08/26/pageoneplus/corrections-aug-26-2026.html
+
 **Yayoi Kusama, Japanese Pop Artist Known for Polka-Dot Paintings, Dies at 97**\
 `The Japanese artist’s polka-dot covered paintings, phallic sculptures and public performances caused a stir in New York City and Europe in the 1960s.`\
 https://www.nytimes.com/2026/08/26/arts/yayoi-kusama-dead.html
