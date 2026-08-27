@@ -1,3 +1,7 @@
+**Man Is Arrested in Fatal Shooting of Mexican Influencer During Livestream**\
+`The authorities accused the man of attacking César Gastélum, a young influencer, during a livestream in Sinaloa this month.`\
+https://www.nytimes.com/2026/08/27/world/americas/mexico-influencer-shooting-gastelum-arrest.html
+
 **Inside the Iceland Eclipse Festival: $1,000-a-Week Yurts and Endless Optimism**\
 `At a festival on a disc golf course, on a peninsula in Iceland, waiting for the sky to descend into darkness.`\
 https://www.nytimes.com/2026/08/27/style/iceland-eclipse-festival.html
