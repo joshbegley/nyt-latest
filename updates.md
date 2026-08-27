@@ -1,3 +1,7 @@
+**Anguished Families in Nepal Await Updates About Flood Victims**\
+`Relatives of flood victims gathered outside a hospital in Nepal’s capital, Kathmandu, looking for their loved ones. More than 1,000 people were still missing on Thursday, the authorities said.`\
+https://www.nytimes.com/video/world/asia/100000011116452/nepal-flash-floods-kathmandu-victims.html
+
 **It’s Raining Again in New York. Here’s What to Know.**\
 `New York City officials said a flood watch was in effect on Thursday starting at 12 p.m., with the possibility of flash flooding in the afternoon and evening.`\
 https://www.nytimes.com/2026/08/27/nyregion/rain-storm-flooding-nyc.html
