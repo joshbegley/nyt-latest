@@ -182,8 +182,8 @@ https://www.nytimes.com/2026/08/27/arts/design/laura-spector-dead.html
 `Las pinturas cubiertas de lunares, las esculturas fálicas y los performances públicos de la artista japonesa causaron revuelo en Estados Unidos y toda Europa en la década de 1960.`\
 https://www.nytimes.com/es/2026/08/27/espanol/cultura/muere-yayoi-kusama.html
 
-**Backing Off French Issue Could Restart U.S. Trade Talks, Canadian Official Says**\
-`The minister in charge of trade with the United States was responding to comments by Jamieson Greer, the U.S. trade representative, to a Canadian broadcaster.`\
+**Yielding on French Could Restart Trade Talks, Canadian Officials Say**\
+`Canada’s minister in charge of trade with the U.S. was responding to comments by Jamieson Greer, the U.S. trade representative. But that was before any mention of Lake Ontario.`\
 https://www.nytimes.com/2026/08/27/world/canada/trade-war-french-language.html
 
 **Today, In Short**\
