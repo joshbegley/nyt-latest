@@ -1,3 +1,7 @@
+**Live Updates: Rescuers Scour Himalayan Valleys for Survivors After Deadly Flood**\
+`More than 1,300 people were missing in Nepal and the Tibet region of China after a torrent of mud, water and ice swept away villages and bridges. Officials said 180 people were confirmed killed.`\
+https://www.nytimes.com/live/2026/08/27/world/nepal-tibet-flash-floods
+
 **‘A Huge Paradox’: Nepal Region Hit by Flood Is Known for Development and Disasters**\
 `The region has experienced an economic boom even as natural disasters have repeatedly struck, including a flood that killed more than 160 people on Wednesday.`\
 https://www.nytimes.com/2026/08/27/world/asia/nepal-rasuwa-flash-flood-economy.html
