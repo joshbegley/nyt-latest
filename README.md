@@ -1,3 +1,7 @@
+**Starbucks Drops Drink Powder That Enveloped Baristas in Clouds of Dust**\
+`Baristas said the ingredient left them coughing and sneezing.`\
+https://www.nytimes.com/2026/08/27/us/politics/starbucks-silica-powder-blended-drinks.html
+
 **Recipe: Caramelized Fig Frozen Yogurt**\
 `Sonia Fillipow, the founder of the pop-up Sour Cherries, shares a frozen yogurt recipe that celebrates figs.`\
 https://www.nytimes.com/2026/08/27/t-magazine/fig-frozen-yogurt-recipe.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/27/arts/kehinde-wiley-painting-trump.html
 **Dolly Parton’s Cautious Politics Resulted in Widespread Affection**\
 `Bipartisan tributes demonstrated the success of the singer’s long-running effort to stay out of party politics in a sharply divided country.`\
 https://www.nytimes.com/2026/08/27/arts/music/dolly-parton-politics-trump.html
-
-**What’s Going On at the Treasury?**\
-`America’s creditors aren’t likely to be reassured by the government’s latest maneuvers.`\
-https://www.nytimes.com/2026/08/27/opinion/us-treasury-debt-credit.html
 

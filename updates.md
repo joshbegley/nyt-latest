@@ -1,3 +1,11 @@
+**Recipe: Caramelized Fig Frozen Yogurt**\
+`Sonia Fillipow, the founder of the pop-up Sour Cherries, shares a frozen yogurt recipe that celebrates figs.`\
+https://www.nytimes.com/2026/08/27/t-magazine/fig-frozen-yogurt-recipe.html
+
+**“Anxious Generation” Author Jonathan Haidt on the Meta Settlement**\
+`In “The Anxious Generation,” the sociologist laid out the evils of social media for kids. The landmark Meta settlement seems to agree.`\
+https://www.nytimes.com/2026/08/27/style/meta-jonathan-haidt-anxious-generation.html
+
 **A Copenhagen Hotel Overlooking One of the City’s Largest Gardens**\
 `Plus: sea kale on menus, stylish garden wear and more recommendations from T Magazine.`\
 https://www.nytimes.com/2026/08/27/t-magazine/copenhagen-hotel-house-of-josty-frederiksberg-gardens.html
