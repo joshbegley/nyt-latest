@@ -1,3 +1,7 @@
+**Un disidente cubano llega a Miami y recibe duras críticas**\
+`Luis Manuel Otero Alcántara, el artista cubano que fue liberado en julio, llegó a EE. UU. y ahora esquiva las críticas de los exiliados que alguna vez le dieron la bienvenida.`\
+https://www.nytimes.com/es/2026/08/27/espanol/america-latina/otero-alcantara-disidente-cubano-miami.html
+
 **Prince William Is Still Silent About His Brother, Harry. Can That Last?**\
 `Years of long-distance division between Prince William and his younger brother will be tested now that Harry has returned to Britain.`\
 https://www.nytimes.com/2026/08/27/world/europe/prince-william-is-still-silent-about-his-brother-harry.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/26/us/politics/darline-lindsey-graham-political-
 **Dolly Parton, Friend of Miss Piggy, Is Remembered by the Muppets**\
 `Perhaps more than many other entertainers who appeared alongside the Muppets, Parton seemed to have a natural ease with her inanimate sidekicks.`\
 https://www.nytimes.com/2026/08/26/style/dolly-parton-miss-piggy-muppets.html
-
-**The Good List: 6 Things to Add Some Delight to Your Day**\
-`A Dolly duet, a beach finder and never landing.`\
-https://www.nytimes.com/2026/08/26/briefing/the-good-list-dolly-kermit-pelagic.html
 
