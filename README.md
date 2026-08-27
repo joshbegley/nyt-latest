@@ -1,3 +1,7 @@
+**How SSENSE, a Canadian Retailer, Is Grappling With Trump’s Tariffs**\
+`Ssense’s comeback efforts include moving a core part of its business to the United States so American customers can avoid hefty tariffs.`\
+https://www.nytimes.com/2026/08/27/business/ssense-canada-tariffs-trump.html
+
 **The Middle East’s Nuclear Future Now Lies With Congress**\
 `Congress should stop the president’s dangerous nuclear deal with Saudi Arabia.`\
 https://www.nytimes.com/2026/08/27/opinion/international-world/saudi-nuclear-deal-congress-trump.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/obituaries/archives/100000011116008/japanese-artis
 **There Is a Sickness Worse Than Wokeness**\
 `The anti-woke movement’s “cure” was more intolerance and more repression.`\
 https://www.nytimes.com/2026/08/27/opinion/woke-right-trump-free-speech.html
-
-**Democrats to Force Senate Vote on Israel’s Human Rights Practices**\
-`Senator Chris Van Hollen of Maryland is leading a group of Democrats seeking answers about violence against Palestinians in the Israeli-occupied West Bank.`\
-https://www.nytimes.com/2026/08/27/us/politics/senate-democrats-israel-human-rights.html
 
