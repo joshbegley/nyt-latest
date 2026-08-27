@@ -1,3 +1,7 @@
+**China’s Information Control Could Hamper Flood Rescue Efforts in Tibet**\
+`Videos of the disaster, which tore through the border area between Tibet and Nepal, have been removed from social media by China’s censors.`\
+https://www.nytimes.com/2026/08/27/world/asia/flood-disaster-china-censorship.html
+
 **Live Updates: Rescuers Scour Himalayan Valleys for Survivors After Deadly Flood**\
 `More than 1,000 people were missing in Nepal and the Tibet region of China after a torrent of mud, water and ice swept away villages and bridges. Officials said 180 people had been confirmed killed.`\
 https://www.nytimes.com/live/2026/08/27/world/nepal-tibet-flash-floods
