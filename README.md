@@ -1,3 +1,7 @@
+**Anguished Families in Nepal Await Updates About Flood Victims**\
+`Relatives of flood victims gathered outside a hospital in Nepal’s capital, Kathmandu, looking for their loved ones. More than 1,000 people were still missing on Thursday, the authorities said.`\
+https://www.nytimes.com/video/world/asia/100000011116452/nepal-flash-floods-kathmandu-victims.html
+
 **It’s Raining Again in New York. Here’s What to Know.**\
 `New York City officials said a flood watch was in effect on Thursday starting at 12 p.m., with the possibility of flash flooding in the afternoon and evening.`\
 https://www.nytimes.com/2026/08/27/nyregion/rain-storm-flooding-nyc.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/27/business/dealbook/meta-settlement-teens.html
 **Qatari Prime Minister Travels to Tehran as Iran War Nears Six-Month Mark**\
 `Sheikh Mohammed bin Abdulrahman Al Thani has been a key mediator in the conflict, even as his country has blamed Tehran for hundreds of missile and drone attacks.`\
 https://www.nytimes.com/2026/08/27/world/middleeast/qatar-visit-iran.html
-
-**Harry Styles Kicks Off Monthslong Residency at Madison Square Garden**\
-`The singer kicked off a monthslong residency at the venue on Wednesday night before a giddy crowd.`\
-https://www.nytimes.com/2026/08/27/arts/music/harry-styles-madison-square-garden.html
 
