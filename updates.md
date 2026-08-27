@@ -1,3 +1,11 @@
+**La de ‘Barbie’ también fue una odisea**\
+`Determinar qué género se apropia del viaje del héroe se trata de mucho más que una historia.`\
+https://www.nytimes.com/es/2026/08/27/espanol/opinion/odisea-barbie-guerra-cultural.html
+
+**NYT Spelling Bee Answers for August 27, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/08/27/crosswords/spelling-bee-forum.html
+
 **Live Updates: Rescuers Scour Himalayan Valleys for Survivors After Deadly Flood**\
 `More than 1,300 people were missing in Nepal and the Tibet region of China after a torrent of mud, water and ice swept away villages and bridges, killing at least 165.`\
 https://www.nytimes.com/live/2026/08/27/world/nepal-tibet-flash-floods

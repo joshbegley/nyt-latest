@@ -1,3 +1,11 @@
+**La de ‘Barbie’ también fue una odisea**\
+`Determinar qué género se apropia del viaje del héroe se trata de mucho más que una historia.`\
+https://www.nytimes.com/es/2026/08/27/espanol/opinion/odisea-barbie-guerra-cultural.html
+
+**NYT Spelling Bee Answers for August 27, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/08/27/crosswords/spelling-bee-forum.html
+
 **Live Updates: Rescuers Scour Himalayan Valleys for Survivors After Deadly Flood**\
 `More than 1,300 people were missing in Nepal and the Tibet region of China after a torrent of mud, water and ice swept away villages and bridges, killing at least 165.`\
 https://www.nytimes.com/live/2026/08/27/world/nepal-tibet-flash-floods
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/us/100000011114723/meta-social-media-lawsuit-settl
 **Nvidia’s Profit Doubles to $59.69 Billion Thanks to A.I. Spending**\
 `Quarterly revenue also more than doubled, to $96.22 billion, the company said, topping expectations on Wall Street.`\
 https://www.nytimes.com/2026/08/26/technology/nvidia-profit-ai-doubles-earnings.html
-
-**A Movement to Restrict Social Media for Children Has Taken Hold Globally**\
-`Governments around the world have passed or proposed a range of bans or restrictions on young teens using addictive social media platforms.`\
-https://www.nytimes.com/2026/08/26/world/americas/children-social-media-restrictions-global-movement-meta.html
-
-**Will Dolly Parton’s Imagination Library Survive Without Her?**\
-`The crown jewel of the singer’s philanthropic efforts has handed out hundreds of millions of books to children over the past 31 years. But it isn’t immune to funding cuts.`\
-https://www.nytimes.com/2026/08/26/books/dolly-parton-imagination-library.html
 
