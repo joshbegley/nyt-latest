@@ -1,3 +1,7 @@
+**It’s Raining Again in New York. Here’s What to Know.**\
+`New York City officials said a flood watch was in effect on Thursday starting at 12 p.m., with the possibility of flash flooding in the afternoon and evening.`\
+https://www.nytimes.com/2026/08/27/nyregion/rain-storm-flooding-nyc.html
+
 **Climate Change Raises Risk of Disasters Like Nepal Floods**\
 `Glaciers and permafrost in the Himalayas are melting faster as temperatures rise, though scientists are still studying the exact causes of this week’s landslide.`\
 https://www.nytimes.com/2026/08/27/climate/nepal-flooding-climate-change.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/27/world/middleeast/qatar-visit-iran.html
 **Harry Styles Kicks Off Monthslong Residency at Madison Square Garden**\
 `The singer kicked off a monthslong residency at the venue on Wednesday night before a giddy crowd.`\
 https://www.nytimes.com/2026/08/27/arts/music/harry-styles-madison-square-garden.html
-
-****\
-`The muddy remains of buildings near the banks of the flooded Trishuli River.`\
-https://www.nytimes.com/video/embedded/admin/100000011116425/27vid-nepal-floods-embeds-52322.html
 

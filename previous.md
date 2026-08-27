@@ -1,3 +1,7 @@
+**Climate Change Raises Risk of Disasters Like Nepal Floods**\
+`Glaciers and permafrost in the Himalayas are melting faster as temperatures rise, though scientists are still studying the exact causes of this week’s landslide.`\
+https://www.nytimes.com/2026/08/27/climate/nepal-flooding-climate-change.html
+
 **Muere Ratko Mladic, el ‘carnicero de Bosnia’, en La Haya**\
 `Uno de los responsables de la masacre más mortífera de Europa desde la Segunda Guerra Mundial, el asesinato de unos 8000 hombres y niños musulmanes en Srebrenica en 1995, murió bajo custodia en La Haya. Tenía 83 años.`\
 https://www.nytimes.com/es/2026/08/27/espanol/cultura/muere-ratko-mladic-bosnia.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/27/arts/music/harry-styles-madison-square-garden
 ****\
 `The muddy remains of buildings near the banks of the flooded Trishuli River.`\
 https://www.nytimes.com/video/embedded/admin/100000011116425/27vid-nepal-floods-embeds-52322.html
-
-**In Japan, Yayoi Kusama Is Remembered as a Visionary and a Rebel**\
-`Artists, scholars and fans celebrated Ms. Kusama as a cultural giant who helped bring Japanese art to the masses.`\
-https://www.nytimes.com/2026/08/27/world/asia/yayoi-kusama-japan-artist.html
 
