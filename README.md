@@ -1,3 +1,11 @@
+**Today, In Short**\
+`Meta. Harry Styles. And “Outer Banks.”`\
+https://www.nytimes.com/2026/08/27/briefing/today-in-short.html
+
+**Mapa: la trayectoria de la tormenta tropical Dolly en vivo**\
+`Consulta la trayectoria probable y las horas de llegada de los vientos de Dolly.`\
+https://www.nytimes.com/interactive/2026/08/27/espanol/dolly-mapa-trayectoria.html
+
 **Maps: Tracking Tropical Storm Dolly**\
 `See the likely path and wind arrival times for Dolly`\
 https://www.nytimes.com/interactive/2026/08/27/weather/dolly-map-path-tracker.html
@@ -39,7 +47,7 @@ https://www.nytimes.com/2026/08/27/t-magazine/fig-frozen-yogurt-recipe.html
 https://www.nytimes.com/2026/08/27/t-magazine/copenhagen-hotel-house-of-josty-frederiksberg-gardens.html
 
 **Lindsay Clancy Murder Trial Closing Arguments Begin**\
-`Lawyers are making their final pitches to the jury as to whether or not Ms. Clancy should be held criminally responsible for her children’s deaths.`\
+`Ms. Clancy’s lawyer told the jury that she was “a darn good mother” who should not be held criminally responsible for her children’s deaths.`\
 https://www.nytimes.com/2026/08/27/us/lindsay-clancy-trial-closing.html
 
 **Meta Projected It Could Spend $10 Billion on Anthropic’s A.I.**\
@@ -187,14 +195,6 @@ https://www.nytimes.com/2026/08/27/pageoneplus/corrections-aug-27-2026.html
 https://www.nytimes.com/2026/08/27/opinion/democrats-seth-moulton-massachusetts-senate.html
 
 **The Pompous Proof of an America in Decline**\
-`Even Machiavelli wouldn’t like Trump’s America.`\
+`Even Machiavelli wouldn’t like Trump’s doings.`\
 https://www.nytimes.com/2026/08/27/opinion/trump-canada-trade-war-dolly-parton.html
-
-**Mark Zuckerberg Wants to Make Sure YouTube and TikTok Share His Pain**\
-`Meta, the social media giant, agreed to change the way children interact with its apps. That could be trouble if its competitors don’t abide by the same rules.`\
-https://www.nytimes.com/2026/08/27/technology/meta-settlement-mark-zuckerberg-youtube-tiktok.html
-
-**Take Me Back to the Summer of ’86 | Cannonball with Wesley Morris**\
-`Revisiting the glory days of summer movies with “Ferris Bueller’s Day Off” and “Ruthless People.”`\
-https://www.nytimes.com/2026/08/27/podcasts/take-me-back-to-the-summer-of-86.html
 

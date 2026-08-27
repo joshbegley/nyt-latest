@@ -1,3 +1,7 @@
+**Maps: Tracking Tropical Storm Dolly**\
+`See the likely path and wind arrival times for Dolly`\
+https://www.nytimes.com/interactive/2026/08/27/weather/dolly-map-path-tracker.html
+
 **Caso César Gastélum: un sospechoso es detenido por el asesinato del ‘influencer’**\
 `Las autoridades mexicanas acusaron al hombre de atacar a César Gastélum, un joven influente, durante una transmisión en vivo en Sinaloa este mes.`\
 https://www.nytimes.com/es/2026/08/27/espanol/america-latina/gastelum-asesinato-influencer-sospechoso-detenido.html

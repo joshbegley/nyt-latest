@@ -1,3 +1,7 @@
+**Maps: Tracking Tropical Storm Dolly**\
+`See the likely path and wind arrival times for Dolly`\
+https://www.nytimes.com/interactive/2026/08/27/weather/dolly-map-path-tracker.html
+
 **Caso César Gastélum: un sospechoso es detenido por el asesinato del ‘influencer’**\
 `Las autoridades mexicanas acusaron al hombre de atacar a César Gastélum, un joven influente, durante una transmisión en vivo en Sinaloa este mes.`\
 https://www.nytimes.com/es/2026/08/27/espanol/america-latina/gastelum-asesinato-influencer-sospechoso-detenido.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/27/technology/meta-settlement-mark-zuckerberg-yo
 **Take Me Back to the Summer of ’86 | Cannonball with Wesley Morris**\
 `Revisiting the glory days of summer movies with “Ferris Bueller’s Day Off” and “Ruthless People.”`\
 https://www.nytimes.com/2026/08/27/podcasts/take-me-back-to-the-summer-of-86.html
-
-**36 Hours in Bozeman, Mont.: Things to Do and See**\
-`Bozeman is blooming, with nationally recognized restaurants, galleries that honor its Indigenous roots and more to complement its show-stopping scenery.`\
-https://www.nytimes.com/interactive/2026/08/27/travel/things-to-do-bozeman.html
 
