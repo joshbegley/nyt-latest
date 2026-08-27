@@ -1,3 +1,7 @@
+**New White House Counsel Isn’t a Yes Man, but He Won’t Say No, Either**\
+`Will Scharf has proved his loyalty to President Trump, even filming a TV ad in which he blows away documents from the president’s legal cases. His new role will be to provide in-house legal advice.`\
+https://www.nytimes.com/2026/08/26/us/politics/will-scharf-white-house-counsel.html
+
 **Will Meta’s Changes Benefit Young Users’ Mental Health?**\
 `Psychologists said the changes were a symbolic victory, but warned their effectiveness might be limited.`\
 https://www.nytimes.com/2026/08/26/well/family/meta-settlement-youth-mental-health.html

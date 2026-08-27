@@ -62,7 +62,7 @@ https://www.nytimes.com/2026/08/26/movies/dolly-parton-movies-9-to-5.html
 `En respuesta a las acusaciones de que sus plataformas ponían en peligro a los menores, el gigante de las redes sociales llegó a un acuerdo con 47 estados, el Distrito de Columbia y territorios de EE. UU., y aceptó hacer importantes cambios a sus productos.`\
 https://www.nytimes.com/es/2026/08/26/espanol/negocios/meta-facebook-adiccion-redes-sociales.html
 
-**He Once Launched a Grenade for Trump. Now He’ll Be White House Counsel.**\
+**New White House Counsel Isn’t a Yes Man, but He Won’t Say No, Either**\
 `Will Scharf has proved his loyalty to President Trump, even filming a TV ad in which he blows away documents from the president’s legal cases. His new role will be to provide in-house legal advice.`\
 https://www.nytimes.com/2026/08/26/us/politics/will-scharf-white-house-counsel.html
 
