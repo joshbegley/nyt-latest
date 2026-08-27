@@ -1,3 +1,11 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/admin/100000011116398/mosaic-27vid-nepal-floods-embeds-h-buildings-mud-226.html
+
+**Survivors of Deadly Nepal Flood Recall Its Devastating Force**\
+`Survivors described the terrifying speed and power of the “boulders, sand and thick sludge” that killed hundreds and wiped out villages on the border between Nepal and Tibet.`\
+https://www.nytimes.com/2026/08/27/world/asia/nepal-flood-survivors.html
+
 **A Historic Settlement Over Social Media Addiction**\
 `Meta, the owner of Facebook and Instagram, agreed to a landmark settlement and agreed to make major changes to its products.`\
 https://www.nytimes.com/2026/08/27/podcasts/the-daily/a-historic-settlement-over-social-media-addiction.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/27/arts/design/ghana-design-coffins.html
 **‘The Last Sunrise’ Review: A Thrilling Spanish Summer**\
 `A dancer (Maia Reficco) travels to Mallorca and finds herself in a steamy romance with a local fisherman (Fernando Lindez).`\
 https://www.nytimes.com/2026/08/27/movies/the-last-sunrise-review.html
-
-**Should I Tell My Daughter I Know About Her Abortion?**\
-`Our Ask the Therapist columnist, Lori Gottlieb, advises a reader who feels she let down her teenager when she needed support.`\
-https://www.nytimes.com/2026/08/27/well/mind/abortion-mother-daughter-advice.html
-
-**Prediction Markets and States Clashed, Setting Off a Furious Political Battle**\
-`A legal dispute over the future of Kalshi, Polymarket and others has drawn in the Trump administration, the president’s son and nearly every state attorney general.`\
-https://www.nytimes.com/2026/08/27/technology/prediction-markets-states-kalshi-polymarket-lawsuits.html
 
