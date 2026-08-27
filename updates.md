@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/asia/100000011116085/27vid-nepal-families-embed.html
+
 **Todo lo que debes saber sobre el US Open 2026**\
 `El evento deportivo y social repleto de estrellas se lleva a cabo hasta el 13 de septiembre en el Centro Nacional de Tenis Billie Jean King, en la ciudad de Nueva York.`\
 https://www.nytimes.com/es/2026/08/27/espanol/deportes/abierto-estados-unidos-us-open-2026.html
