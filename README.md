@@ -1,3 +1,7 @@
+**A Copenhagen Hotel Overlooking One of the City’s Largest Gardens**\
+`Plus: sea kale on menus, stylish garden wear and more recommendations from T Magazine.`\
+https://www.nytimes.com/2026/08/27/t-magazine/copenhagen-hotel-house-of-josty-frederiksberg-gardens.html
+
 **Closing Arguments Begin in Lindsay Clancy Murder Trial**\
 `Lawyers are making their final pitches to the jury as to whether or not Ms. Clancy should be held criminally responsible for her children’s deaths.`\
 https://www.nytimes.com/2026/08/27/us/lindsay-clancy-trial-closing.html
@@ -6,7 +10,7 @@ https://www.nytimes.com/2026/08/27/us/lindsay-clancy-trial-closing.html
 `The social networking giant projected it could spend $10 billion annually on Anthropic’s tools, illustrating the friend-foe relationships underlying the A.I. race.`\
 https://www.nytimes.com/2026/08/27/technology/meta-anthropic-frenemies.html
 
-**The author of the “Anxious Generation,” Jonathan Haidt, on the Meta Settlement**\
+**“Anxious Generation” Author Jonathan Haidt on the Meta Settlement**\
 `In “The Anxious Generation,” the sociologist laid out the evils of social media for kids. The landmark Meta settlement seems to agree.`\
 https://www.nytimes.com/2026/08/27/style/jonathan-haidt-was-right.html
 
@@ -142,7 +146,7 @@ https://www.nytimes.com/2026/08/27/pageoneplus/corrections-aug-27-2026.html
 `Seth Moulton is trying to lead the next generation of Democratic leaders — and has been for a while.`\
 https://www.nytimes.com/2026/08/27/opinion/democrats-seth-moulton-massachusetts-senate.html
 
-**O Canada!**\
+**The Pompous Proof of an America in Decline**\
 `Even Machiavelli wouldn’t like Trump’s America.`\
 https://www.nytimes.com/2026/08/27/opinion/trump-canada-trade-war-dolly-parton.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/27/opinion/us-treasury-debt-credit.html
 **‘Cult’ Used to Mean Something. Now It Applies to Taylor Swift and Trader Joe’s.**\
 `The word today applies to more than religious sects, but it says something about our worshipful attitude toward consumption.`\
 https://www.nytimes.com/2026/08/27/magazine/cult-language-consumer-religion.html
-
-**5 New Hotels for Your Late Summer Getaway**\
-`From Cape Cod to Croatia, here’s where to enjoy the end of the summer.`\
-https://www.nytimes.com/2026/08/27/travel/summer-new-hotels.html
 
