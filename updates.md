@@ -1,3 +1,7 @@
+**As a Storyteller, Tim Curry Had the Gift**\
+`He was a blast to watch, whether playing a mad scientist in “The Rocky Horror Picture Show,” a butler in “Clue” or a singing King Arthur in “Spamalot.”`\
+https://www.nytimes.com/2026/08/26/theater/tim-curry-rocky-horror-spamalot.html
+
 **New White House Counsel Isn’t a Yes Man, but He Won’t Say No, Either**\
 `Will Scharf has proved his loyalty to President Trump, even filming a TV ad in which he blows away documents from the president’s legal cases. His new role will be to provide in-house legal advice.`\
 https://www.nytimes.com/2026/08/26/us/politics/will-scharf-white-house-counsel.html
