@@ -1,3 +1,7 @@
+**Yayoi Kusama: A Life in Pictures**\
+`Whether making dot-covered sculptures or wild performance pieces, the Japanese artist grabbed critical and popular acclaim.`\
+https://www.nytimes.com/2026/08/27/arts/design/yayoi-kusama-photos-artwork.html
+
 **Harry Styles Kicks Off Monthslong Residency at Madison Square Garden**\
 `The singer kicked off a monthslong residency at the venue on Wednesday night before a giddy crowd.`\
 https://www.nytimes.com/2026/08/27/arts/music/harry-styles-madison-square-garden.html

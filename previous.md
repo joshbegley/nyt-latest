@@ -30,9 +30,9 @@ https://www.nytimes.com/2026/08/27/world/europe/ratko-mladic-dead.html
 `Miley Cyrus reflected on her bond with Dolly Parton on “The Interview.” She shared the story of how the country music star became her godmother, and how she was a guiding force throughout her life: “Instead of seeing myself retract in awe of her, I just felt myself going forward and feeling really safe,” Cyrus told Lulu-Garcia Navarro.`\
 https://www.nytimes.com/video/podcasts/100000011115626/miley-cyrus-on-dolly-parton-we-chose-each-other.html
 
-**Yayoi Kusama: A Life in Photos**\
+**Yayoi Kusama: A Life in Pictures**\
 `Whether making dot-covered sculptures or wild performance pieces, the Japanese artist grabbed critical and popular acclaim.`\
-https://www.nytimes.com/2026/08/27/arts/yayoi-kusama-photos-artwork.html
+https://www.nytimes.com/2026/08/27/arts/design/yayoi-kusama-photos-artwork.html
 
 **Did Meta’s Big Settlement Actually Help It?**\
 `The tech giant’s landmark deal with states over teen use of social media may cost the company less than expected. It may hurt rivals more.`\
