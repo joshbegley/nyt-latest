@@ -1,3 +1,7 @@
+**U.S. to Withdraw 200 Troops Sent to Nigeria Under Trump**\
+`Officials say the small, limited deployment could serve as a model. But terrorists in the country have continued to attack and kill.`\
+https://www.nytimes.com/2026/08/27/us/politics/nigeria-trump-troops-terror-attacks.html
+
 **Starbucks Drops Drink Powder That Enveloped Baristas in Clouds of Dust**\
 `Baristas said the ingredient left them coughing and sneezing.`\
 https://www.nytimes.com/2026/08/27/us/politics/starbucks-silica-powder-blended-drinks.html

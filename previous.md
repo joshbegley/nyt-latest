@@ -1,3 +1,7 @@
+**U.S. to Withdraw 200 Troops Sent to Nigeria Under Trump**\
+`Officials say the small, limited deployment could serve as a model. But terrorists in the country have continued to attack and kill.`\
+https://www.nytimes.com/2026/08/27/us/politics/nigeria-trump-troops-terror-attacks.html
+
 **Starbucks Drops Drink Powder That Enveloped Baristas in Clouds of Dust**\
 `Baristas said the ingredient left them coughing and sneezing.`\
 https://www.nytimes.com/2026/08/27/us/politics/starbucks-silica-powder-blended-drinks.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/27/arts/design/lee-friedlander-book-photographs-
 **When Kehinde Wiley’s Painting Was Removed, It Wasn’t About Art**\
 `The artist’s lavishly ornamented style has much in common with the president’s taste. So why did an administration official call Wiley’s work “aesthetically terrifying”?`\
 https://www.nytimes.com/2026/08/27/arts/kehinde-wiley-painting-trump.html
-
-**Dolly Parton’s Cautious Politics Resulted in Widespread Affection**\
-`Bipartisan tributes demonstrated the success of the singer’s long-running effort to stay out of party politics in a sharply divided country.`\
-https://www.nytimes.com/2026/08/27/arts/music/dolly-parton-politics-trump.html
 

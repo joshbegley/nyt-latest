@@ -1,3 +1,7 @@
+**Trump Raises Money in Texas With Control of the Senate in the Balance**\
+`Many Republicans are hoping for financial support from President Trump, whose fund-raising power in the party remains unmatched despite his low poll numbers.`\
+https://www.nytimes.com/2026/08/27/us/politics/trump-texas-senate-fund-raiser.html
+
 **U.S. to Withdraw 200 Troops Sent to Nigeria Under Trump**\
 `Officials say the small, limited deployment could serve as a model. But terrorists in the country have continued to attack and kill.`\
 https://www.nytimes.com/2026/08/27/us/politics/nigeria-trump-troops-terror-attacks.html
@@ -154,7 +158,7 @@ https://www.nytimes.com/interactive/2026/08/27/us/ice-immigrant-arrests-trump-de
 `Corrections that appeared in print on Thursday, Aug. 27, 2026.`\
 https://www.nytimes.com/2026/08/27/pageoneplus/corrections-aug-27-2026.html
 
-**What Are Moderate Democrats For?**\
+**What Ever Happened to the Young, Exciting Moderate Democrats?**\
 `Seth Moulton is trying to lead the next generation of Democratic leaders — and has been for a while.`\
 https://www.nytimes.com/2026/08/27/opinion/democrats-seth-moulton-massachusetts-senate.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/27/opinion/dolly-parton-appalachia-legacy.html
 **Lee Friedlander Is Funny. Seriously.**\
 `In his new book of photography, “Life Still,” a veteran observer of urban America makes us look twice at an unsung side of his talent.`\
 https://www.nytimes.com/2026/08/27/arts/design/lee-friedlander-book-photographs-aperture.html
-
-**When Kehinde Wiley’s Painting Was Removed, It Wasn’t About Art**\
-`The artist’s lavishly ornamented style has much in common with the president’s taste. So why did an administration official call Wiley’s work “aesthetically terrifying”?`\
-https://www.nytimes.com/2026/08/27/arts/kehinde-wiley-painting-trump.html
 
