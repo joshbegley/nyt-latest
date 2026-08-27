@@ -1,4 +1,4 @@
-**Pilgrims at Border Crossing Among 500 Foreign Nationals Missing After Flood**\
+**Pilgrims at Border Crossing Are Among 500 Foreigners Missing After Flood**\
 `The largest contingent appears to have been pilgrims traveling between Nepal and a sacred site in the Chinese region of Tibet.`\
 https://www.nytimes.com/2026/08/27/world/asia/pilgrims-border-crossing-foreign-nationals-nepal-flood.html
 
