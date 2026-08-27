@@ -1,3 +1,11 @@
+**C.I.A. Chief Delivered Bleak Assessment of Russia’s War in Secretive Moscow Visit**\
+`C.I.A. analysts have questioned whether President Vladimir V. Putin’s advisers have given him honest assessments of the conflict.`\
+https://www.nytimes.com/2026/08/27/us/politics/cia-director-russia-ukraine.html
+
+**Celebrities Are Raving About Full-Body Scans, Doctors Urge Caution**\
+`The scans are touted as a way to control your health. But researchers say healthy people don’t need them and they can lead to more harm than benefit.`\
+https://www.nytimes.com/2026/08/27/well/busy-philipps-prenuvo-body-scans.html
+
 **La tormenta tropical Dolly se forma y se moverá hacia el Caribe**\
 `Dolly podría fortalecerse levemente el jueves, pero pronto se moverá hacia una zona en el Caribe donde los sistemas tropicales generalmente se desintegran.`\
 https://www.nytimes.com/es/2026/08/27/espanol/tiempo-y-clima/dolly-tormenta-puerto-rico-cuba.html
