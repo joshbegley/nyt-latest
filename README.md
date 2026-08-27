@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/asia/100000011116001/27vid-nepal-ugc-embed.html
+
 **A General Store Almost as Old as America**\
 `Ben Shattuck, the proprietor of Davoll’s in coastal Massachusetts, yearns for a retail world before chain stores and online shopping.`\
 https://www.nytimes.com/2026/08/27/style/general-store-massachusetts-davolls-shattuck-slate.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/26/climate/army-miniature-nuclear-reactors.html
 **Maryland Judge Blocks Democratic Redistricting Measure**\
 `A judge found that Democratic lawmakers had not followed proper procedures in passing a redistricting amendment, but the state Supreme Court will have the final say.`\
 https://www.nytimes.com/2026/08/26/us/maryland-redistricting-constitutional-amendment.html
-
-**How Darline Graham’s Politics Compare With Her Brother’s as She Runs for Senate**\
-`Senator Darline Graham has spoken far more about her desire to support President Trump’s agenda than she has talked about her brother’s political goals — or her own.`\
-https://www.nytimes.com/2026/08/26/us/politics/darline-lindsey-graham-political-views.html
 
