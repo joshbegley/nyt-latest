@@ -1,3 +1,11 @@
+**Trump Renames Lake Ontario to Lake America**\
+`President Trump signed an executive order on Thursday renaming Lake Ontario to Lake America. The order comes after negotiations between the U.S. and Canada collapsed last week after the two failed to reach a trade agreement.`\
+https://www.nytimes.com/video/us/politics/100000011117424/trump-rename-lake-ontario-lake-america.html
+
+**As Darkness Approached, Black New Yorkers Found Some Light**\
+`A new book reveals some surprises about early 19th-century Manhattan.`\
+https://www.nytimes.com/2026/08/27/opinion/black-english-new-york.html
+
 **What Meta’s $17 Billion Settlement Means**\
 `Our reporter Cecilia Kang explains Meta’s settlement of a lawsuit claiming that the company’s social media platforms had harmed teenage users.`\
 https://www.nytimes.com/video/technology/100000011114831/explaining-metas-17-billion-dollar-settlement.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/27/us/politics/haiti-deportation-flights.html
 **En Latinoamérica, los demócratas socialistas son el centro de atención**\
 `El éxito de los candidatos progresistas en EE. UU. está inspirando a los izquierdistas en el extranjero que enfrentan la presión del gobierno de Trump y sus aliados.`\
 https://www.nytimes.com/es/2026/08/27/espanol/america-latina/latinoamerica-izquierda-democratas-socialistas.html
-
-**Trump Raises Money in Texas With Control of the Senate in the Balance**\
-`Many Republicans are hoping for financial support from President Trump, whose fund-raising power in the party remains unmatched despite his low poll numbers.`\
-https://www.nytimes.com/2026/08/27/us/politics/trump-texas-senate-fund-raiser.html
-
-**U.S. to Withdraw 200 Troops Sent to Nigeria Under Trump**\
-`Officials say the small, limited deployment could serve as a model. But terrorists in the country have continued to attack and kill.`\
-https://www.nytimes.com/2026/08/27/us/politics/nigeria-trump-troops-terror-attacks.html
 

@@ -1,3 +1,11 @@
+**Trump Renames Lake Ontario to Lake America**\
+`President Trump signed an executive order on Thursday renaming Lake Ontario to Lake America. The order comes after negotiations between the U.S. and Canada collapsed last week after the two failed to reach a trade agreement.`\
+https://www.nytimes.com/video/us/politics/100000011117424/trump-rename-lake-ontario-lake-america.html
+
+**As Darkness Approached, Black New Yorkers Found Some Light**\
+`A new book reveals some surprises about early 19th-century Manhattan.`\
+https://www.nytimes.com/2026/08/27/opinion/black-english-new-york.html
+
 **What Meta’s $17 Billion Settlement Means**\
 `Our reporter Cecilia Kang explains Meta’s settlement of a lawsuit claiming that the company’s social media platforms had harmed teenage users.`\
 https://www.nytimes.com/video/technology/100000011114831/explaining-metas-17-billion-dollar-settlement.html
