@@ -1,3 +1,91 @@
+**Should I Tell My Daughter I Know About Her Abortion?**\
+`Our Ask the Therapist columnist, Lori Gottlieb, advises a reader who feels she let down her teenager when she needed support.`\
+https://www.nytimes.com/2026/08/27/well/mind/abortion-mother-daughter-advice.html
+
+**Prediction Markets and States Clashed, Setting Off a Furious Political Battle**\
+`A legal dispute over the future of Kalshi, Polymarket and others has drawn in the Trump administration, the president’s son and nearly every state attorney general.`\
+https://www.nytimes.com/2026/08/27/technology/prediction-markets-states-kalshi-polymarket-lawsuits.html
+
+**Roy Cohn, Robert Mapplethorpe and a Trump-Era Dilemma Over Free Speech**\
+`When a respected biographer tried to use a Mapplethorpe photograph of Roy Cohn for a book cover, worries about the wrath of Mr. Cohn’s protégé, President Trump, intervened.`\
+https://www.nytimes.com/2026/08/27/business/media/roy-cohn-robert-mapplethorpe-american-scoundrel.html
+
+**Brooklyn Bookstore Crawl: Where to Shop in Prospect Heights and Park Slope**\
+`This Brooklyn walking tour includes some of the oldest and newest bookstores in New York City, great reading spots and tasty snacks.`\
+https://www.nytimes.com/interactive/2026/08/27/books/bookstores-brooklyn-park-slope-prospect-heights.html
+
+**Screwworm Flies Steer Clear of Agriculture Dept. Traps**\
+`No wild flies caught could mean the outbreak is contained. It could also mean, as scientists have said, that current trapping methods are outdated.`\
+https://www.nytimes.com/2026/08/27/business/screwworm-flies-traps-agriculture-dept.html
+
+**The Point of a Gun**\
+`It’s time to reframe the debate.`\
+https://www.nytimes.com/2026/08/27/opinion/gun-ownership-culture-nra.html
+
+**Saudi Arabia Appears to Be Preparing for a New War With the Houthis**\
+`Analysts say that weeks of Houthi attacks on Saudi targets have brought the kingdom and the Iranian-backed militia to the brink of full-blown conflict, and could open a new front in the Iran war.`\
+https://www.nytimes.com/2026/08/27/world/middleeast/saudi-arabia-yemen-houthis-war.html
+
+**Some Scientists Have ‘Magic Hands’ in the Lab. This A.I. Is Learning Why.**\
+`Even the most adept researchers may not know exactly what they do to get successful results. An A.I. model is trying to figure it out by watching every move.`\
+https://www.nytimes.com/2026/08/27/science/scientists-experiments-replication-ai.html
+
+**‘Buddy’ Review: Cuddle Monster**\
+`Barney but Satan: That’s the macabre world Casper Kelly posits in his horror comedy about an adorable but monstrous children’s television unicorn.`\
+https://www.nytimes.com/2026/08/27/movies/buddy-review.html
+
+**How Scientific Is the Science-Fiction of ‘Dark Matter’?**\
+`Ahead of the Season 2 premiere, the writer, a physicist by training, asked around. The answer? It’s complicated.`\
+https://www.nytimes.com/2026/08/27/arts/television/dark-matter-science-quantum-mechanics.html
+
+**Smuggled Turtles Saved at J.F.K. Are Recovering in the Bronx**\
+`China’s exotic pet market is driving a spike in animal smuggling, U.S. wildlife officials say. But these turtles are getting a second chance.`\
+https://www.nytimes.com/2026/08/27/climate/turtle-smuggling-jfk-airport.html
+
+**The Best New Historical Fiction**\
+`Our columnist on the month’s best new books.`\
+https://www.nytimes.com/2026/08/27/books/review/new-historical-fiction.html
+
+**Word of the Day: pneumatic**\
+`This word has appeared in 14 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/08/27/learning/word-of-the-day-pneumatic.html
+
+**Russian Sanctions Are Fueling a Canadian Car Theft Epidemic**\
+`Russia is the largest destination for stolen Canadian cars. Smugglers are meeting the demand of a booming black market.`\
+https://www.nytimes.com/2026/08/27/world/canada/canada-car-theft-russia-sanctions.html
+
+**A Theater Made a Public Pool as a ‘Hug.’ Now It’s a Culture War Flashpoint.**\
+`At Berlin’s storied Volksbühne, a director’s attempt to revive a troubled playhouse with a free swimming pool has stirred fierce debates over race, class and public space.`\
+https://www.nytimes.com/2026/08/27/theater/volksbuehne-swimming-pool-volksbad.html
+
+**A Book Crawl in Picturesque Brooklyn**\
+`Jennifer Harlan, an editor at The New York Times Book Review, takes you to her favorite bookstores in Park Slope/Prospect Heights, Brooklyn. This tour offers readers a variety of genres, new books and used books.`\
+https://www.nytimes.com/video/books/100000011063987/a-book-crawl-in-picturesque-brooklyn.html
+
+**Dinner and a Movie? In Denver, a First Date Might Include Bouldering**\
+`For some, dating in Denver is an endurance sport.`\
+https://www.nytimes.com/2026/08/27/style/denver-dating-hiking.html
+
+**Inside One of Peru’s Most Vulnerable Penguin Colonies**\
+`Scientists worry about the penguins’ future amid changing temperatures and warming waters this year.`\
+https://www.nytimes.com/2026/08/27/science/inside-one-of-perus-most-vulnerable-penguin-colonies.html
+
+**Near-Total Lunar Eclipse Will Turn Moon Blood Red**\
+`People in the Americas, Africa and Europe will have a chance to see Earth’s shadow create a near-total blood moon.`\
+https://www.nytimes.com/2026/08/27/science/lunar-eclipse-blood-moon.html
+
+**Pint-Size Cars, With Enviable Smiles Per Gallon**\
+`Microcars are underpowered, noisy and sometimes smoky, and it helps if you’re good with a wrench. But “the struggle is what makes it fun,” one enthusiast said.`\
+https://www.nytimes.com/2026/08/27/business/tiny-cars-microcars-isetta-mini.html
+
+**Scenes From a Destroyed Barbershop in Lebanon**\
+`Our reporter Abdi Latif Dahir visits a barbershop in Lebanon that was demolished in an Israeli airstrike in the conflict between Israel and Hezbollah.`\
+https://www.nytimes.com/video/world/middleeast/100000011005726/scenes-from-a-destroyed-barbershop-in-lebanon.html
+
+**In Portland, Ore., a TV Stylist With a $540,000 Budget**\
+`A personal stylist and costume designer faced the challenge of qualifying for a mortgage on a freelance income.`\
+https://www.nytimes.com/quiz/2026/08/27/realestate/buy-portland-oregon-house-freelance-income.html
+
 **Andrew and Tristan Tate: A Timeline of Their Rise and a Web of Allegations**\
 `The brothers, who have denied all wrongdoing, are fighting extradition to Britain on multiple charges, including rape and sex trafficking.`\
 https://www.nytimes.com/2026/08/27/world/europe/andrew-tristan-tate-timeline-rape-trafficking-allegations-extradition.html

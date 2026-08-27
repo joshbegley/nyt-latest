@@ -1,3 +1,91 @@
+**Should I Tell My Daughter I Know About Her Abortion?**\
+`Our Ask the Therapist columnist, Lori Gottlieb, advises a reader who feels she let down her teenager when she needed support.`\
+https://www.nytimes.com/2026/08/27/well/mind/abortion-mother-daughter-advice.html
+
+**Prediction Markets and States Clashed, Setting Off a Furious Political Battle**\
+`A legal dispute over the future of Kalshi, Polymarket and others has drawn in the Trump administration, the president’s son and nearly every state attorney general.`\
+https://www.nytimes.com/2026/08/27/technology/prediction-markets-states-kalshi-polymarket-lawsuits.html
+
+**Roy Cohn, Robert Mapplethorpe and a Trump-Era Dilemma Over Free Speech**\
+`When a respected biographer tried to use a Mapplethorpe photograph of Roy Cohn for a book cover, worries about the wrath of Mr. Cohn’s protégé, President Trump, intervened.`\
+https://www.nytimes.com/2026/08/27/business/media/roy-cohn-robert-mapplethorpe-american-scoundrel.html
+
+**Brooklyn Bookstore Crawl: Where to Shop in Prospect Heights and Park Slope**\
+`This Brooklyn walking tour includes some of the oldest and newest bookstores in New York City, great reading spots and tasty snacks.`\
+https://www.nytimes.com/interactive/2026/08/27/books/bookstores-brooklyn-park-slope-prospect-heights.html
+
+**Screwworm Flies Steer Clear of Agriculture Dept. Traps**\
+`No wild flies caught could mean the outbreak is contained. It could also mean, as scientists have said, that current trapping methods are outdated.`\
+https://www.nytimes.com/2026/08/27/business/screwworm-flies-traps-agriculture-dept.html
+
+**The Point of a Gun**\
+`It’s time to reframe the debate.`\
+https://www.nytimes.com/2026/08/27/opinion/gun-ownership-culture-nra.html
+
+**Saudi Arabia Appears to Be Preparing for a New War With the Houthis**\
+`Analysts say that weeks of Houthi attacks on Saudi targets have brought the kingdom and the Iranian-backed militia to the brink of full-blown conflict, and could open a new front in the Iran war.`\
+https://www.nytimes.com/2026/08/27/world/middleeast/saudi-arabia-yemen-houthis-war.html
+
+**Some Scientists Have ‘Magic Hands’ in the Lab. This A.I. Is Learning Why.**\
+`Even the most adept researchers may not know exactly what they do to get successful results. An A.I. model is trying to figure it out by watching every move.`\
+https://www.nytimes.com/2026/08/27/science/scientists-experiments-replication-ai.html
+
+**‘Buddy’ Review: Cuddle Monster**\
+`Barney but Satan: That’s the macabre world Casper Kelly posits in his horror comedy about an adorable but monstrous children’s television unicorn.`\
+https://www.nytimes.com/2026/08/27/movies/buddy-review.html
+
+**How Scientific Is the Science-Fiction of ‘Dark Matter’?**\
+`Ahead of the Season 2 premiere, the writer, a physicist by training, asked around. The answer? It’s complicated.`\
+https://www.nytimes.com/2026/08/27/arts/television/dark-matter-science-quantum-mechanics.html
+
+**Smuggled Turtles Saved at J.F.K. Are Recovering in the Bronx**\
+`China’s exotic pet market is driving a spike in animal smuggling, U.S. wildlife officials say. But these turtles are getting a second chance.`\
+https://www.nytimes.com/2026/08/27/climate/turtle-smuggling-jfk-airport.html
+
+**The Best New Historical Fiction**\
+`Our columnist on the month’s best new books.`\
+https://www.nytimes.com/2026/08/27/books/review/new-historical-fiction.html
+
+**Word of the Day: pneumatic**\
+`This word has appeared in 14 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/08/27/learning/word-of-the-day-pneumatic.html
+
+**Russian Sanctions Are Fueling a Canadian Car Theft Epidemic**\
+`Russia is the largest destination for stolen Canadian cars. Smugglers are meeting the demand of a booming black market.`\
+https://www.nytimes.com/2026/08/27/world/canada/canada-car-theft-russia-sanctions.html
+
+**A Theater Made a Public Pool as a ‘Hug.’ Now It’s a Culture War Flashpoint.**\
+`At Berlin’s storied Volksbühne, a director’s attempt to revive a troubled playhouse with a free swimming pool has stirred fierce debates over race, class and public space.`\
+https://www.nytimes.com/2026/08/27/theater/volksbuehne-swimming-pool-volksbad.html
+
+**A Book Crawl in Picturesque Brooklyn**\
+`Jennifer Harlan, an editor at The New York Times Book Review, takes you to her favorite bookstores in Park Slope/Prospect Heights, Brooklyn. This tour offers readers a variety of genres, new books and used books.`\
+https://www.nytimes.com/video/books/100000011063987/a-book-crawl-in-picturesque-brooklyn.html
+
+**Dinner and a Movie? In Denver, a First Date Might Include Bouldering**\
+`For some, dating in Denver is an endurance sport.`\
+https://www.nytimes.com/2026/08/27/style/denver-dating-hiking.html
+
+**Inside One of Peru’s Most Vulnerable Penguin Colonies**\
+`Scientists worry about the penguins’ future amid changing temperatures and warming waters this year.`\
+https://www.nytimes.com/2026/08/27/science/inside-one-of-perus-most-vulnerable-penguin-colonies.html
+
+**Near-Total Lunar Eclipse Will Turn Moon Blood Red**\
+`People in the Americas, Africa and Europe will have a chance to see Earth’s shadow create a near-total blood moon.`\
+https://www.nytimes.com/2026/08/27/science/lunar-eclipse-blood-moon.html
+
+**Pint-Size Cars, With Enviable Smiles Per Gallon**\
+`Microcars are underpowered, noisy and sometimes smoky, and it helps if you’re good with a wrench. But “the struggle is what makes it fun,” one enthusiast said.`\
+https://www.nytimes.com/2026/08/27/business/tiny-cars-microcars-isetta-mini.html
+
+**Scenes From a Destroyed Barbershop in Lebanon**\
+`Our reporter Abdi Latif Dahir visits a barbershop in Lebanon that was demolished in an Israeli airstrike in the conflict between Israel and Hezbollah.`\
+https://www.nytimes.com/video/world/middleeast/100000011005726/scenes-from-a-destroyed-barbershop-in-lebanon.html
+
+**In Portland, Ore., a TV Stylist With a $540,000 Budget**\
+`A personal stylist and costume designer faced the challenge of qualifying for a mortgage on a freelance income.`\
+https://www.nytimes.com/quiz/2026/08/27/realestate/buy-portland-oregon-house-freelance-income.html
+
 **Andrew and Tristan Tate: A Timeline of Their Rise and a Web of Allegations**\
 `The brothers, who have denied all wrongdoing, are fighting extradition to Britain on multiple charges, including rape and sex trafficking.`\
 https://www.nytimes.com/2026/08/27/world/europe/andrew-tristan-tate-timeline-rape-trafficking-allegations-extradition.html
@@ -109,92 +197,4 @@ https://www.nytimes.com/2026/08/26/us/lindsay-clancy-manslaughter-murder.html
 **Lisa Cook Hits Back at Trump’s Latest Attempt to Oust Her as Fed Governor**\
 `Lisa D. Cook hit back at President Trump’s allegations that she had committed mortgage fraud.`\
 https://www.nytimes.com/2026/08/26/business/trump-lisa-cook-fed.html
-
-**He Thought He Destroyed a Flock Camera, but It Was a Decoy, Police Say**\
-`A Florida man is facing three felony charges over the Aug. 20 vandalism of a plastic reproduction of one of the automated license plate readers, the authorities said.`\
-https://www.nytimes.com/2026/08/26/us/flock-camera-decoy-vandalism-arrest-florida.html
-
-**Administration Lawyer Chosen to Lead Panel Considering Trump Construction Projects**\
-`Mark Paoletta, also a close associate of Justice Clarence Thomas’s, has been named by President Trump to lead the National Capital Planning Commission.`\
-https://www.nytimes.com/2026/08/26/us/politics/paoletta-lawyer-ncpc.html
-
-**After Meta Settlement, Teens Divided on New Instagram and Facebook Restrictions**\
-`Young people said the platforms could be a space for gathering, but also a waste of time.`\
-https://www.nytimes.com/2026/08/26/style/teens-meta-instagram-facebook-restrictions.html
-
-**State Department Advances Trump Crackdown on ‘Far-Left Terrorism’**\
-`Critics say the Trump administration’s focus is disproportionate, as analysts raise alarms about the growing strength of far-right movements.`\
-https://www.nytimes.com/2026/08/26/us/politics/trump-crackdown-far-left.html
-
-**Rescue Efforts Underway in Nepal and Tibet After Deadly Flood**\
-`Rescuers were searching for survivors after a devastating flood swept away villages and bridges. Officials said 180 people were confirmed killed.`\
-https://www.nytimes.com/video/world/asia/100000011115111/floods-nepal-tibet-deaths-rescue.html
-
-**Photos: A Deadly Flood Tears Through Nepal and Tibet**\
-`An ice avalanche that started high in the Himalayas tumbled thousands of feet, releasing vast amounts of energy that pulverized the ice into a significant volume of flood water.`\
-https://www.nytimes.com/2026/08/26/world/asia/flood-nepal-tibet.html
-
-**After Wasp Attack, a Canadian Rock Climber Is Rescued by Helicopter**\
-`A 33-year-old woman was rescued along with her climbing partner on Tuesday after she was stung more than 100 times while hiking in the British Columbia backcountry north of Vancouver.`\
-https://www.nytimes.com/2026/08/26/world/canada/canada-hiker-wasp-stings-rescue.html
-
-**The British Actor Tim Curry Dies at 80**\
-`Tim Curry, the expressive star of “The Rocky Horror Picture Show” and numerous other roles, died on Tuesday at his home in Los Angeles, according to his agent. Curry was a Broadway, television and film star known for playing eccentric characters.`\
-https://www.nytimes.com/video/obituaries/archives/100000011114662/british-actor-tim-curry-dead.html
-
-**West Point Climate Professor Says He Was Fired for Refusing to ‘Defy Science’**\
-`Dr. Adam Kalkstein is suing the U. S. Military Academy, where he was a professor of geography and the only climate scientist, after being fired.`\
-https://www.nytimes.com/2026/08/26/us/politics/west-point-climate-professor-lawsuit.html
-
-**A Rutgers Dean Is Accused of Filming ‘Upskirt’ Videos**\
-`Rutgers said that Josh Kohut, the dean of research at the School of Environmental and Biological Sciences, had been placed on leave and barred from the university’s campus in New Brunswick, N.J.`\
-https://www.nytimes.com/2026/08/26/nyregion/rutgers-dean-upskirt-videos.html
-
-**Even in Her Movies, Dolly Parton Kept Control**\
-`During her Hollywood peak, Parton played women who knew their value, whether they were a secretary, brothel madam, hairdresser or radio show host.`\
-https://www.nytimes.com/2026/08/26/movies/dolly-parton-movies-9-to-5.html
-
-**Meta pagará hasta 17,1 millardos de dólares por acusaciones relacionadas con la adicción a las redes sociales**\
-`En respuesta a las acusaciones de que sus plataformas ponían en peligro a los menores, el gigante de las redes sociales llegó a un acuerdo con 47 estados, el Distrito de Columbia y territorios de EE. UU., y aceptó hacer importantes cambios a sus productos.`\
-https://www.nytimes.com/es/2026/08/26/espanol/negocios/meta-facebook-adiccion-redes-sociales.html
-
-**New White House Counsel Isn’t a Yes Man, but He Won’t Say No, Either**\
-`Will Scharf has proved his loyalty to President Trump, even filming a TV ad in which he blows away documents from the president’s legal cases. His new role will be to provide in-house legal advice.`\
-https://www.nytimes.com/2026/08/26/us/politics/will-scharf-white-house-counsel.html
-
-**Tim Curry Pioneered Fashion With His ‘Rocky Horror’ Performance**\
-`His performance as Dr. Frank-N-Furter, the cross-dressing mad scientist of “The Rocky Horror Picture Show,” was ahead of its time.`\
-https://www.nytimes.com/2026/08/26/style/tim-curry-fashion-pioneer.html
-
-**Meta to Pay Up to $17.1 Billion Over Claims It Harmed Youths**\
-`Also, floods destroy villages in Nepal. Here’s the latest at the end of Wednesday.`\
-https://www.nytimes.com/2026/08/26/briefing/meta-settlement-nepal-floods.html
-
-**Mamdani Persuades C.E.O.s to Join His Business Advisory Council**\
-`Mayor Zohran Mamdani, a democratic socialist who has struggled to win over Wall Street, intends to use the council to help him invigorate New York City’s economy.`\
-https://www.nytimes.com/2026/08/26/nyregion/mamdani-ceos-business-advisory-council.html
-
-**Janie Bradford, Co-Writer of Motown’s First Hit, Dies at 87**\
-`One of the label’s first hires, she worked on “Money (That’s What I Want)” and went on to have a hand in many other songs.`\
-https://www.nytimes.com/2026/08/26/arts/music/janie-bradford-dead.html
-
-**Tim Curry: A Life in Pictures**\
-`Curry thrived onstage and onscreen in meaty roles that brought him widespread recognition and generations of dedicated fans.`\
-https://www.nytimes.com/2026/08/26/movies/tim-curry-a-life-in-pictures.html
-
-**Dolly Parton’s Other Legacy: A Fortune Given Away, Dollar by Dollar**\
-`The country star supported early childhood literacy, disaster relief, the development of the Covid-19 vaccine and more.`\
-https://www.nytimes.com/2026/08/26/business/dolly-parton-philanthropy-books-covid-vaccine.html
-
-**Canadians Embrace Country’s Resistance as Trade War Intensifies**\
-`Many Canadians have rallied around their country’s show of resistance after the latest U.S.-Canada trade talks collapsed.`\
-https://www.nytimes.com/video/world/canada/100000011114028/canada-trade-war-us-trump.html
-
-**Justice Dept. Charges Owner of Failed Surrogacy Firm With Fraud**\
-`The owner of Surro Connections is accused of stealing over $1 million from prospective parents and using it to pay off gambling debts, take trips and purchase luxury goods.`\
-https://www.nytimes.com/2026/08/26/us/politics/justice-dept-surro-connections.html
-
-**Secret Service Officials Said to Be Put on Leave Amid Internal Inquiry**\
-`The agency’s top spokesman is among those on leave, according to two Trump administration officials. The agency said three people faced a misconduct investigation.`\
-https://www.nytimes.com/2026/08/26/us/politics/secret-service-leave-investigation.html
 
