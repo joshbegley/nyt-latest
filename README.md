@@ -27,7 +27,7 @@ https://www.nytimes.com/2026/08/27/us/politics/obama-fundraiser-gop-convention.h
 https://www.nytimes.com/2026/08/27/world/canada/canada-universities-hire-us-researchers.html
 
 **On Night of Deadly Air Canada Crash, Two LaGuardia Controllers Left Early**\
-`The Federal Aviation Administration has taken steps to fire the two workers at LaGuardia Airport, according to two people familiar with the investigation.`\
+`The two controllers are among a dozen that the Federal Aviation Administration has taken steps to fire, according to people familiar with the matter, as part of an inquiry into timecard fraud.`\
 https://www.nytimes.com/2026/08/27/nyregion/air-canada-crash-lga-air-traffic-controllers.html
 
 **Trump Signs Executive Order to Rename Lake Ontario to Lake America**\
