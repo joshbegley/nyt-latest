@@ -1,3 +1,7 @@
+**Where Drones Cannot See, the Ukraine War Is a Deadly Game of Cat and Mouse**\
+`Russian troops are trying to infiltrate the vast, overgrown reservoir basin of a dam they blew up three years ago as Ukrainian soldiers hunt them at close quarters.`\
+https://www.nytimes.com/2026/08/27/world/europe/ukraine-russia-war-zaporizhzhia-frontline-fighting.html
+
 **Pilgrims at Border Crossing Are Among 500 Foreigners Missing After Flood**\
 `The largest contingent appears to have been pilgrims traveling between Nepal and a sacred site in the Chinese region of Tibet.`\
 https://www.nytimes.com/2026/08/27/world/asia/pilgrims-border-crossing-foreign-nationals-nepal-flood.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/27/opinion/gun-ownership-culture-nra.html
 **Saudi Arabia Appears to Be Preparing for a New War With the Houthis**\
 `Analysts say that weeks of Houthi attacks on Saudi targets have brought the kingdom and the Iranian-backed militia to the brink of full-blown conflict, and could open a new front in the Iran war.`\
 https://www.nytimes.com/2026/08/27/world/middleeast/saudi-arabia-yemen-houthis-war.html
-
-**Some Scientists Have ‘Magic Hands’ in the Lab. This A.I. Is Learning Why.**\
-`Even the most adept researchers may not know exactly what they do to get successful results. An A.I. model is trying to figure it out by watching every move.`\
-https://www.nytimes.com/2026/08/27/science/scientists-experiments-replication-ai.html
 

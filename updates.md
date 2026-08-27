@@ -1,3 +1,11 @@
+**Pilgrims at Border Crossing Are Among 500 Foreigners Missing After Flood**\
+`The largest contingent appears to have been pilgrims traveling between Nepal and a sacred site in the Chinese region of Tibet.`\
+https://www.nytimes.com/2026/08/27/world/asia/pilgrims-border-crossing-foreign-nationals-nepal-flood.html
+
+**Harry Styles Fans Camp Out for the Best View of the Star**\
+`As early as Tuesday, general admission ticket holders waited for the line (before the line) that would determine their vantage points at Wednesday night’s show.`\
+https://www.nytimes.com/2026/08/27/arts/music/harry-styles-msg-residency-fans.html
+
 **The Philanthropic Life of Dolly Parton**\
 `Dolly Parton was a legend in music and philanthropy. She used her fame and fortune to support causes like childhood literacy, disaster relief and vaccine development.`\
 https://www.nytimes.com/video/obituaries/100000011115998/dolly-parton-philanthropy-imagination-library.html

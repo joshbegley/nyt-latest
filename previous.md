@@ -1,3 +1,7 @@
+**Pilgrims at Border Crossing Are Among 500 Foreigners Missing After Flood**\
+`The largest contingent appears to have been pilgrims traveling between Nepal and a sacred site in the Chinese region of Tibet.`\
+https://www.nytimes.com/2026/08/27/world/asia/pilgrims-border-crossing-foreign-nationals-nepal-flood.html
+
 **The Philanthropic Life of Dolly Parton**\
 `Dolly Parton was a legend in music and philanthropy. She used her fame and fortune to support causes like childhood literacy, disaster relief and vaccine development.`\
 https://www.nytimes.com/video/obituaries/100000011115998/dolly-parton-philanthropy-imagination-library.html
@@ -96,7 +100,7 @@ https://www.nytimes.com/2026/08/27/travel/summer-new-hotels.html
 
 **Harry Styles Fans Camp Out for the Best View of the Star**\
 `As early as Tuesday, general admission ticket holders waited for the line (before the line) that would determine their vantage points at Wednesday night’s show.`\
-https://www.nytimes.com/2026/08/27/arts/music/harry-styles-fans-camp-out-for-the-best-view-of-the-star.html
+https://www.nytimes.com/2026/08/27/arts/music/harry-styles-msg-residency-fans.html
 
 **Parking, Street Cleaning and Equity: A Brooklyn Debate**\
 `How many times a week should drivers have to move their cars for street cleaning? In Prospect Heights, a pilot program is easing the rules.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/27/world/middleeast/saudi-arabia-yemen-houthis-w
 **Some Scientists Have ‘Magic Hands’ in the Lab. This A.I. Is Learning Why.**\
 `Even the most adept researchers may not know exactly what they do to get successful results. An A.I. model is trying to figure it out by watching every move.`\
 https://www.nytimes.com/2026/08/27/science/scientists-experiments-replication-ai.html
-
-**‘Buddy’ Review: Cuddle Monster**\
-`Barney but Satan: That’s the macabre world Casper Kelly posits in his horror comedy about an adorable but monstrous children’s television unicorn.`\
-https://www.nytimes.com/2026/08/27/movies/buddy-review.html
 
