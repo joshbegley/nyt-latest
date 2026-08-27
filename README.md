@@ -42,7 +42,7 @@ https://www.nytimes.com/2026/08/27/business/dealbook/meta-settlement-teens.html
 `Sheikh Mohammed bin Abdulrahman Al Thani has been a key mediator in the conflict, even as his country has blamed Tehran for hundreds of missile and drone attacks.`\
 https://www.nytimes.com/2026/08/27/world/middleeast/qatar-visit-iran.html
 
-**For 30 Nights, Madison Square Garden Is Harry’s House**\
+**Harry Styles Kicks Off Monthslong Residency at Madison Square Garden**\
 `The singer kicked off a monthslong residency at the venue on Wednesday night before a giddy crowd.`\
 https://www.nytimes.com/2026/08/27/arts/music/harry-styles-madison-square-garden.html
 

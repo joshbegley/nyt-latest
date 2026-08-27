@@ -1,3 +1,7 @@
+**Loving Dolly Parton Was Easy. Understanding Her Was Hard.**\
+`She didn’t see herself as a saint; she identified as something we needed even more: a writer.`\
+https://www.nytimes.com/2026/08/27/opinion/dolly-parton-appalachia-legacy.html
+
 **California Lawmakers Pass Plug-In Solar Bill**\
 `Legislatures in nearly a dozen states have voted to legalize use of the technology, which can help homeowners reduce their rising electricity costs.`\
 https://www.nytimes.com/2026/08/27/business/energy-environment/california-legislature-plugin-solar.html
