@@ -1,3 +1,19 @@
+**On Night of Deadly Air Canada Crash, Two LaGuardia Controllers Left Early**\
+`The Federal Aviation Administration has taken steps to fire the two workers, according to two people familiar with the investigation.`\
+https://www.nytimes.com/2026/08/27/nyregion/air-canada-crash-lga-air-traffic-controllers.html
+
+**Trump Orders the Government to Rename Lake Ontario to Lake America**\
+`The president also reiterated his criticism that Canada “treats us very badly.” Trade talks between the nations collapsed last week.`\
+https://www.nytimes.com/2026/08/27/us/politics/trump-lake-america-executive-order.html
+
+**Dollar Tree and Dollar General Report Sales Gains as Shoppers Cut Costs**\
+`Dollar General and Dollar Tree each reported gains in sales and store traffic on Thursday as higher gas prices forced shoppers to pare back.`\
+https://www.nytimes.com/2026/08/27/business/dollar-general-dollar-tree.html
+
+**The Real Bonds Between the U.S. and Canada**\
+`Readers weigh in on the ties between Canada and the United States, beyond the trade war. Also: A disheartening trip to Washington; lessons from military purges past; feminism and face-lifts.`\
+https://www.nytimes.com/2026/08/27/opinion/us-canada-relations.html
+
 **Parents Say Meta Settlement Is Big, but Not Enough**\
 `Across the country, parents described feeling some validation after the landmark $1.7 billion settlement. But they also felt skeptical that much of anything will change.`\
 https://www.nytimes.com/2026/08/27/well/meta-settlement-parents.html

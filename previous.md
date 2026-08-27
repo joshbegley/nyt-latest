@@ -1,3 +1,19 @@
+**On Night of Deadly Air Canada Crash, Two LaGuardia Controllers Left Early**\
+`The Federal Aviation Administration has taken steps to fire the two workers, according to two people familiar with the investigation.`\
+https://www.nytimes.com/2026/08/27/nyregion/air-canada-crash-lga-air-traffic-controllers.html
+
+**Trump Orders the Government to Rename Lake Ontario to Lake America**\
+`The president also reiterated his criticism that Canada “treats us very badly.” Trade talks between the nations collapsed last week.`\
+https://www.nytimes.com/2026/08/27/us/politics/trump-lake-america-executive-order.html
+
+**Dollar Tree and Dollar General Report Sales Gains as Shoppers Cut Costs**\
+`Dollar General and Dollar Tree each reported gains in sales and store traffic on Thursday as higher gas prices forced shoppers to pare back.`\
+https://www.nytimes.com/2026/08/27/business/dollar-general-dollar-tree.html
+
+**The Real Bonds Between the U.S. and Canada**\
+`Readers weigh in on the ties between Canada and the United States, beyond the trade war. Also: A disheartening trip to Washington; lessons from military purges past; feminism and face-lifts.`\
+https://www.nytimes.com/2026/08/27/opinion/us-canada-relations.html
+
 **Parents Say Meta Settlement Is Big, but Not Enough**\
 `Across the country, parents described feeling some validation after the landmark $1.7 billion settlement. But they also felt skeptical that much of anything will change.`\
 https://www.nytimes.com/2026/08/27/well/meta-settlement-parents.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/08/27/t-magazine/fig-frozen-yogurt-recipe.html
 **A Copenhagen Hotel Overlooking One of the City’s Largest Gardens**\
 `Plus: sea kale on menus, stylish garden wear and more recommendations from T Magazine.`\
 https://www.nytimes.com/2026/08/27/t-magazine/copenhagen-hotel-house-of-josty-frederiksberg-gardens.html
-
-**Jury Begins Deliberations in Lindsay Clancy Murder Trial**\
-`In closing arguments, Ms. Clancy’s lawyer called her “a darn good mother.” The prosecutor accused her of “extreme atrocity and cruelty.”`\
-https://www.nytimes.com/2026/08/27/us/lindsay-clancy-trial-closing.html
-
-**Meta Projected It Could Spend $10 Billion on Anthropic’s A.I.**\
-`The social networking giant projected it could spend $10 billion annually on Anthropic’s tools, illustrating the friend-foe relationships underlying the A.I. race.`\
-https://www.nytimes.com/2026/08/27/technology/meta-anthropic-frenemies.html
-
-**“Anxious Generation” Author Jonathan Haidt on the Meta Settlement**\
-`In “The Anxious Generation,” he laid out the evils of social media for kids. The landmark Meta settlement seems to agree.`\
-https://www.nytimes.com/2026/08/27/style/meta-jonathan-haidt-anxious-generation.html
-
-**California Lawmakers Pass Plug-In Solar Bill**\
-`Legislatures in nearly a dozen states have voted to legalize use of the technology, which can help homeowners reduce their rising electricity costs.`\
-https://www.nytimes.com/2026/08/27/business/energy-environment/california-legislature-plugin-solar.html
 

@@ -1,3 +1,7 @@
+**Canada Hires U.S. Scholars From Harvard and Other Top Universities**\
+`A crackdown on American academia by the Trump administration has handed Canadian universities a rare opportunity to lure some top researchers north.`\
+https://www.nytimes.com/2026/08/27/world/canada/canada-universities-hire-us-researchers.html
+
 **On Night of Deadly Air Canada Crash, Two LaGuardia Controllers Left Early**\
 `The Federal Aviation Administration has taken steps to fire the two workers, according to two people familiar with the investigation.`\
 https://www.nytimes.com/2026/08/27/nyregion/air-canada-crash-lga-air-traffic-controllers.html
@@ -134,7 +138,7 @@ https://www.nytimes.com/2026/08/27/us/politics/the-docket-lawsuit-secrecy.html
 `Ssense’s comeback efforts include moving a core part of its business to the United States so American customers can avoid hefty tariffs.`\
 https://www.nytimes.com/2026/08/27/business/ssense-canada-tariffs-trump.html
 
-**Trump Makes Terrible Nuclear Deals. This One Should Be Rejected.**\
+**The Middle East’s Nuclear Future Now Lies With Congress**\
 `Congress should stop the president’s dangerous nuclear deal with Saudi Arabia.`\
 https://www.nytimes.com/2026/08/27/opinion/international-world/saudi-nuclear-deal-congress-trump.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/27/us/politics/starbucks-silica-powder-blended-d
 **Recipe: Caramelized Fig Frozen Yogurt**\
 `Sonia Fillipow, the founder of the pop-up Sour Cherries, shares a frozen yogurt recipe that celebrates figs.`\
 https://www.nytimes.com/2026/08/27/t-magazine/fig-frozen-yogurt-recipe.html
-
-**A Copenhagen Hotel Overlooking One of the City’s Largest Gardens**\
-`Plus: sea kale on menus, stylish garden wear and more recommendations from T Magazine.`\
-https://www.nytimes.com/2026/08/27/t-magazine/copenhagen-hotel-house-of-josty-frederiksberg-gardens.html
 
