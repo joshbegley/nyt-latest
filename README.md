@@ -158,7 +158,7 @@ https://www.nytimes.com/2026/08/27/world/americas/latin-america-democratic-socia
 `The president’s pull with the party base has been clear and his resources are vast. But his low approval ratings make him a liability with swing voters.`\
 https://www.nytimes.com/2026/08/27/us/politics/trump-midterm-election-republicans.html
 
-**The Greatest Story Dolly Parton Ever Wrote Was Herself**\
+**Loving Dolly Parton Was Easy. Understanding Her Was Hard.**\
 `She didn’t see herself as a saint; she identified as something we needed even more: a writer.`\
 https://www.nytimes.com/2026/08/27/opinion/dolly-parton-appalachia-legacy.html
 
