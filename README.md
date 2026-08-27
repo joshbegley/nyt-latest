@@ -35,7 +35,7 @@ https://www.nytimes.com/2026/08/27/learning/lesson-plans/ask-a-journalist-how-ge
 https://www.nytimes.com/2026/08/27/learning/lesson-plans/ask-a-journalist-a-monthly-series-for-teenagers.html
 
 **OpenAI and 100 Others Warn That Window to Defend Against A.I. Attacks Is Narrowing**\
-`In an open letter, OpenAI, Anthropic, Google and others said a wave of A.I.-enabled cyberattacks was coming and organizations and governments needed to prepare themselves.`\
+`In an open letter, OpenAI, Anthropic, Google and others said that a wave of A.I.-enabled cyberattacks was coming and that organizations and governments needed to prepare themselves.`\
 https://www.nytimes.com/2026/08/27/technology/openai-letter-ai-attacks.html
 
 **DeSantis Administration Misspent $10 Million, Grand Jury Says**\
