@@ -1,3 +1,7 @@
+**Yayoi Kusama, Japanese Pop Artist Known for Polka-Dot Paintings, Dies at 97**\
+`The Japanese artist’s polka-dot covered paintings, phallic sculptures and public performances caused a stir in New York City and Europe in the 1960s.`\
+https://www.nytimes.com/2026/08/26/arts/yayoi-kusama-dead.html
+
 **Yayoi Kusama, Pop Artist Who Expanded and Endured, Dies at 97**\
 `The Japanese artist’s polka-dot covered paintings, phallic sculptures and public performances caused a stir in New York City and Europe in the 1960s.`\
 https://www.nytimes.com/2026/08/26/arts/yayoi-kusama-dead.html
