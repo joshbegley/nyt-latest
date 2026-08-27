@@ -15,7 +15,7 @@ https://www.nytimes.com/es/2026/08/27/espanol/opinion/odisea-barbie-guerra-cultu
 https://www.nytimes.com/2026/08/27/crosswords/spelling-bee-forum.html
 
 **Live Updates: Rescuers Scour Himalayan Valleys for Survivors After Deadly Flood**\
-`More than 1,300 people were missing in Nepal and the Tibet region of China after a torrent of mud, water and ice swept away villages and bridges, killing at least 168.`\
+`More than 1,300 people were missing in Nepal and the Tibet region of China after a torrent of mud, water and ice swept away villages and bridges. Officials said 180 people were confirmed killed.`\
 https://www.nytimes.com/live/2026/08/27/world/nepal-tibet-flash-floods
 
 **¿Los ‘entrenamientos linfáticos’ pueden ayudar con la hinchazón o la inflamación?**\
