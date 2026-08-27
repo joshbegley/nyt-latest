@@ -1,3 +1,7 @@
+**The Philanthropic Life of Dolly Parton**\
+`Dolly Parton was a legend in music and philanthropy. She used her fame and fortune to support causes like childhood literacy, disaster relief and vaccine development.`\
+https://www.nytimes.com/video/obituaries/100000011115998/dolly-parton-philanthropy-imagination-library.html
+
 **Dentro de una de las colonias de pingüinos más vulnerables de Perú**\
 `A pesar de que los pingüinos de Humboldt son de las especies más resistentes, los científicos temen que los cambios de temperatura y el Superniño de este año causen un daño grave a la población de estos animales.`\
 https://www.nytimes.com/es/2026/08/27/espanol/ciencia-y-tecnologia/pinguinos-peru-nino-peligros.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/27/science/scientists-experiments-replication-ai
 **‘Buddy’ Review: Cuddle Monster**\
 `Barney but Satan: That’s the macabre world Casper Kelly posits in his horror comedy about an adorable but monstrous children’s television unicorn.`\
 https://www.nytimes.com/2026/08/27/movies/buddy-review.html
-
-**How Scientific Is the Science-Fiction of ‘Dark Matter’?**\
-`Ahead of the Season 2 premiere, the writer, a physicist by training, asked around. The answer? It’s complicated.`\
-https://www.nytimes.com/2026/08/27/arts/television/dark-matter-science-quantum-mechanics.html
 
