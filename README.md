@@ -1,3 +1,7 @@
+**Obama to Headline Fund-Raiser With Jeffries in New York**\
+`The top Democrats will gather party donors on Sept. 10, just as Republicans converge in Texas for their unusual midterm convention.`\
+https://www.nytimes.com/2026/08/27/us/politics/obama-fundraiser-gop-convention.html
+
 **Canada Hires U.S. Scholars From Harvard and Other Top Universities**\
 `A crackdown on American academia by the Trump administration has handed Canadian universities a rare opportunity to lure some top researchers north.`\
 https://www.nytimes.com/2026/08/27/world/canada/canada-universities-hire-us-researchers.html
@@ -138,7 +142,7 @@ https://www.nytimes.com/2026/08/27/us/politics/the-docket-lawsuit-secrecy.html
 `Ssense’s comeback efforts include moving a core part of its business to the United States so American customers can avoid hefty tariffs.`\
 https://www.nytimes.com/2026/08/27/business/ssense-canada-tariffs-trump.html
 
-**The Middle East’s Nuclear Future Now Lies With Congress**\
+**The Last Thing We Need Is a Bad Nuclear Deal From Trump**\
 `Congress should stop the president’s dangerous nuclear deal with Saudi Arabia.`\
 https://www.nytimes.com/2026/08/27/opinion/international-world/saudi-nuclear-deal-congress-trump.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/27/us/politics/nigeria-trump-troops-terror-attac
 **Starbucks Drops Drink Powder That Enveloped Baristas in Clouds of Dust**\
 `Baristas said the ingredient left them coughing and sneezing.`\
 https://www.nytimes.com/2026/08/27/us/politics/starbucks-silica-powder-blended-drinks.html
-
-**Recipe: Caramelized Fig Frozen Yogurt**\
-`Sonia Fillipow, the founder of the pop-up Sour Cherries, shares a frozen yogurt recipe that celebrates figs.`\
-https://www.nytimes.com/2026/08/27/t-magazine/fig-frozen-yogurt-recipe.html
 
