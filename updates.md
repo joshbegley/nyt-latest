@@ -1,3 +1,11 @@
+**Caso César Gastélum: un sospechoso es detenido por el asesinato del ‘influencer’**\
+`Las autoridades mexicanas acusaron al hombre de atacar a César Gastélum, un joven influente, durante una transmisión en vivo en Sinaloa este mes.`\
+https://www.nytimes.com/es/2026/08/27/espanol/america-latina/gastelum-asesinato-influencer-sospechoso-detenido.html
+
+****\
+`The muddy remains of buildings near the banks of the flooded Trishuli River.`\
+https://www.nytimes.com/video/embedded/admin/100000011116425/27vid-nepal-floods-embeds-52322.html
+
 **Sunny With a Chance of Chicken-Zucchini Meatballs**\
 `Ali Slagle’s clever meatballs are half meat, half vegetable, all delicious.`\
 https://www.nytimes.com/2026/08/27/dining/sunny-with-a-chance-of-chicken-zucchini-meatballs.html
