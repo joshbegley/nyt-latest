@@ -1,3 +1,7 @@
+**Kansas Judge Dismisses Murder Charge Against Sheriff’s Deputy**\
+`The judge said prosecutors had failed to meet their burden in the case against a deputy charged in the 2025 jailhouse death of an inmate.`\
+https://www.nytimes.com/2026/08/27/us/kansas-deputy-murder-charge-dismissed.html
+
 **High School Sports in the Heat**\
 `High temperatures and new safety rules are transforming practice as a new school year begins.`\
 https://www.nytimes.com/2026/08/27/climate/high-school-sports-heat.html
