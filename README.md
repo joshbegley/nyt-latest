@@ -1,3 +1,7 @@
+**Backing Off French Issue Could Restart U.S. Trade Talks, Canadian Official Says**\
+`The minister in charge of trade with the United States was responding to comments by Jamieson Greer, the U.S. trade representative, to a Canadian broadcaster.`\
+https://www.nytimes.com/2026/08/27/world/canada/trade-war-french-language.html
+
 **Today, In Short**\
 `Meta. Harry Styles. And “Outer Banks.”`\
 https://www.nytimes.com/2026/08/27/briefing/today-in-short.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/27/pageoneplus/corrections-aug-27-2026.html
 **What Ever Happened to the Young, Exciting Moderate Democrats?**\
 `Seth Moulton is trying to lead the next generation of Democratic leaders — and has been for a while.`\
 https://www.nytimes.com/2026/08/27/opinion/democrats-seth-moulton-massachusetts-senate.html
-
-**The Pompous Proof of an America in Decline**\
-`Even Machiavelli wouldn’t like Trump’s doings.`\
-https://www.nytimes.com/2026/08/27/opinion/trump-canada-trade-war-dolly-parton.html
 

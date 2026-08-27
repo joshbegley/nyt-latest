@@ -1,3 +1,19 @@
+**Today, In Short**\
+`Meta. Harry Styles. And “Outer Banks.”`\
+https://www.nytimes.com/2026/08/27/briefing/today-in-short.html
+
+**Mapa: la trayectoria de la tormenta tropical Dolly en vivo**\
+`Consulta la trayectoria probable y las horas de llegada de los vientos de Dolly.`\
+https://www.nytimes.com/interactive/2026/08/27/espanol/dolly-mapa-trayectoria.html
+
+**Lindsay Clancy Murder Trial Closing Arguments Begin**\
+`Ms. Clancy’s lawyer told the jury that she was “a darn good mother” who should not be held criminally responsible for her children’s deaths.`\
+https://www.nytimes.com/2026/08/27/us/lindsay-clancy-trial-closing.html
+
+**The Pompous Proof of an America in Decline**\
+`Even Machiavelli wouldn’t like Trump’s doings.`\
+https://www.nytimes.com/2026/08/27/opinion/trump-canada-trade-war-dolly-parton.html
+
 **Maps: Tracking Tropical Storm Dolly**\
 `See the likely path and wind arrival times for Dolly`\
 https://www.nytimes.com/interactive/2026/08/27/weather/dolly-map-path-tracker.html
