@@ -1,3 +1,11 @@
+**Box Turtles Rescued From Smugglers Find Haven at the Bronx Zoo**\
+`Box turtles that have been rescued from smugglers have been given a second chance at the Bronx Zoo, where they can rehabilitate before returning to their natural habitats.`\
+https://www.nytimes.com/video/us/100000011116917/box-turtles-rescued-from-smugglers-find-haven-at-the-bronx-zoo.html
+
+**OpenAI and 100 Others Warn That Window to Defend Against A.I. Attacks Is Narrowing**\
+`In an open letter, OpenAI, Anthropic, Google and others said that a wave of A.I.-enabled cyberattacks was coming and that organizations and governments needed to prepare themselves.`\
+https://www.nytimes.com/2026/08/27/technology/openai-letter-ai-attacks.html
+
 **Anguished Families in Nepal Await Updates About Flood Victims**\
 `Relatives of flood victims gathered outside a hospital in Nepal’s capital, Kathmandu, looking for their loved ones. More than 1,000 people were still missing on Thursday, the authorities said.`\
 https://www.nytimes.com/video/world/asia/100000011116452/nepal-flash-floods-kathmandu-victims.html

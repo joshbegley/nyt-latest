@@ -1,3 +1,7 @@
+**Box Turtles Rescued From Smugglers Find Haven at the Bronx Zoo**\
+`Box turtles that have been rescued from smugglers have been given a second chance at the Bronx Zoo, where they can rehabilitate before returning to their natural habitats.`\
+https://www.nytimes.com/video/us/100000011116917/box-turtles-rescued-from-smugglers-find-haven-at-the-bronx-zoo.html
+
 **Anguished Families in Nepal Await Updates About Flood Victims**\
 `Relatives of flood victims gathered outside a hospital in Nepal’s capital, Kathmandu, looking for their loved ones. More than 1,000 people were still missing on Thursday, the authorities said.`\
 https://www.nytimes.com/video/world/asia/100000011116452/nepal-flash-floods-kathmandu-victims.html
@@ -31,7 +35,7 @@ https://www.nytimes.com/2026/08/27/learning/lesson-plans/ask-a-journalist-how-ge
 https://www.nytimes.com/2026/08/27/learning/lesson-plans/ask-a-journalist-a-monthly-series-for-teenagers.html
 
 **OpenAI and 100 Others Warn That Window to Defend Against A.I. Attacks Is Narrowing**\
-`In an open letter, OpenAI, Anthropic, Google and others said a wave of A.I.-enabled cyberattacks was coming and organizations and governments needed to prepare themselves.`\
+`In an open letter, OpenAI, Anthropic, Google and others said that a wave of A.I.-enabled cyberattacks was coming and that organizations and governments needed to prepare themselves.`\
 https://www.nytimes.com/2026/08/27/technology/openai-letter-ai-attacks.html
 
 **DeSantis Administration Misspent $10 Million, Grand Jury Says**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/27/arts/design/yayoi-kusama-photos-artwork.html
 **Did Meta’s Big Settlement Actually Help It?**\
 `The tech giant’s landmark deal with states over teen use of social media may cost the company less than expected. It may hurt rivals more.`\
 https://www.nytimes.com/2026/08/27/business/dealbook/meta-settlement-teens.html
-
-**Qatari Prime Minister Travels to Tehran as Iran War Nears Six-Month Mark**\
-`Sheikh Mohammed bin Abdulrahman Al Thani has been a key mediator in the conflict, even as his country has blamed Tehran for hundreds of missile and drone attacks.`\
-https://www.nytimes.com/2026/08/27/world/middleeast/qatar-visit-iran.html
 
