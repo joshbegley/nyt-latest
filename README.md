@@ -1,3 +1,11 @@
+**The Middle East’s Nuclear Future Now Lies With Congress**\
+`Congress should stop the president’s dangerous nuclear deal with Saudi Arabia.`\
+https://www.nytimes.com/2026/08/27/opinion/international-world/saudi-nuclear-deal-congress-trump.html
+
+**Laura Spector, Who Turned a Loathsome Vine Into Art, Dies at 71**\
+`Using Asian bittersweet, the much-hated invasive species, she created whimsical rustic objects and enchanting furniture.`\
+https://www.nytimes.com/2026/08/27/arts/design/laura-spector-dead.html
+
 **Muere Yayoi Kusama, la artista pop de los lunares y las habitaciones infinitas**\
 `Las pinturas cubiertas de lunares, las esculturas fálicas y los performances públicos de la artista japonesa causaron revuelo en Estados Unidos y toda Europa en la década de 1960.`\
 https://www.nytimes.com/es/2026/08/27/espanol/cultura/muere-yayoi-kusama.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/27/opinion/woke-right-trump-free-speech.html
 **Democrats to Force Senate Vote on Israel’s Human Rights Practices**\
 `Senator Chris Van Hollen of Maryland is leading a group of Democrats seeking answers about violence against Palestinians in the Israeli-occupied West Bank.`\
 https://www.nytimes.com/2026/08/27/us/politics/senate-democrats-israel-human-rights.html
-
-**ICE Arrests Soar as People With No Criminal Record Are Increasingly Targeted**\
-`As immigration arrests hit record highs, ICE appears closer than ever to meeting its goal of 2,000 daily arrests.`\
-https://www.nytimes.com/interactive/2026/08/27/us/ice-immigrant-arrests-trump-deportation-dhs.html
-
-**Corrections: Aug. 27, 2026**\
-`Corrections that appeared in print on Thursday, Aug. 27, 2026.`\
-https://www.nytimes.com/2026/08/27/pageoneplus/corrections-aug-27-2026.html
 
