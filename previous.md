@@ -1,3 +1,7 @@
+**Fire at Home of Canadian Parliament Member Is Under Investigation**\
+`Two cars were destroyed at the Toronto home of Salma Zahid, a Liberal member of Parliament, in an overnight episode condemned by Prime Minister Mark Carney.`\
+https://www.nytimes.com/2026/08/27/world/canada/salma-zahid-mp-canada-arson.html
+
 **White House Construction May Have Contributed to Close Call With Trump’s Helicopter**\
 `A controller let a jet take off after missing warnings that Marine One was about to fly through the area, according to the National Transportation Safety Board.`\
 https://www.nytimes.com/2026/08/27/us/marine-one-white-house-construction.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/27/us/casey-desantis-charity-hope-garden-medicai
 **On Spoons**\
 `Specifically, spoon salads: the best kind of salad, filled with uniform bits of veg.`\
 https://www.nytimes.com/2026/08/27/dining/on-spoons.html
-
-**Ratko Mladic, the ‘Butcher of Bosnia,’ Dies in Prison at 83**\
-`The Bosnian Serb commander, who was convicted on charges of genocide for his actions during the Balkan wars, died in detention at The Hague on Thursday.`\
-https://www.nytimes.com/video/world/europe/100000011116603/ratko-mladic-dead.html
 

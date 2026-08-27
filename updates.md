@@ -1,3 +1,7 @@
+**Fire at Home of Canadian Parliament Member Is Under Investigation**\
+`Two cars were destroyed at the Toronto home of Salma Zahid, a Liberal member of Parliament, in an overnight episode condemned by Prime Minister Mark Carney.`\
+https://www.nytimes.com/2026/08/27/world/canada/salma-zahid-mp-canada-arson.html
+
 **White House Construction May Have Contributed to Close Call With Trump’s Helicopter**\
 `A controller let a jet take off after missing warnings that Marine One was about to fly through the area, according to the National Transportation Safety Board.`\
 https://www.nytimes.com/2026/08/27/us/marine-one-white-house-construction.html
