@@ -1,3 +1,19 @@
+**Why Andy Warhol Couldn’t Capture Dolly Parton**\
+`Andy Warhol’s images of Parton don’t strike me as up to the level of his best society portraits; they aren’t quite worthy of the singer’s complex excellence.`\
+https://www.nytimes.com/2026/08/27/arts/design/warhol-dolly-parton-portrait.html
+
+**Ask a Journalist: How Generative A.I. Is Changing Education**\
+`Dana Goldstein joins us for the month of September to chat with teenagers about artificial intelligence and its impact on schools and education. Post your comments and questions for her by Sept. 15.`\
+https://www.nytimes.com/2026/08/27/learning/lesson-plans/ask-a-journalist-how-generative-ai-is-changing-education.html
+
+**Ask a Journalist: A 2026-27 Monthly Series for Teenagers**\
+`Join us for the 2026-27 school year. We’ll choose a discussion topic each month. You post a comment, and New York Times journalists will reply.`\
+https://www.nytimes.com/2026/08/27/learning/lesson-plans/ask-a-journalist-a-monthly-series-for-teenagers.html
+
+**OpenAI and 100 Others Warn That Window to Defend Against A.I. Attacks Is Narrowing**\
+`In an open letter, OpenAI, Anthropic, Google and others said a wave of A.I.-enabled cyberattacks was coming and organizations and governments needed to prepare themselves.`\
+https://www.nytimes.com/2026/08/27/technology/openai-letter-ai-attacks.html
+
 **DeSantis Administration Misspent $10 Million, Grand Jury Says**\
 `A charity tied to Gov. Ron DeSantis’s wife received the money from a state Medicaid settlement and diverted it to political committees supporting a cause favored by the governor.`\
 https://www.nytimes.com/2026/08/27/us/casey-desantis-charity-hope-garden-medicaid-settlement.html
