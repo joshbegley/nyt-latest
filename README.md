@@ -1,3 +1,7 @@
+**The Real Bonds Between the U.S. and Canada**\
+`Readers weigh in on the ties between Canada and the United States, beyond the trade war. Also: A disheartening trip to Washington; lessons from military purges past; feminism and face-lifts.`\
+https://www.nytimes.com/2026/08/27/opinion/us-canada-relations.html
+
 **Parents Say Meta Settlement Is Big, but Not Enough**\
 `Across the country, parents described feeling some validation after the landmark $1.7 billion settlement. But they also felt skeptical that much of anything will change.`\
 https://www.nytimes.com/2026/08/27/well/meta-settlement-parents.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/27/technology/meta-anthropic-frenemies.html
 **“Anxious Generation” Author Jonathan Haidt on the Meta Settlement**\
 `In “The Anxious Generation,” he laid out the evils of social media for kids. The landmark Meta settlement seems to agree.`\
 https://www.nytimes.com/2026/08/27/style/meta-jonathan-haidt-anxious-generation.html
-
-**California Lawmakers Pass Plug-In Solar Bill**\
-`Legislatures in nearly a dozen states have voted to legalize use of the technology, which can help homeowners reduce their rising electricity costs.`\
-https://www.nytimes.com/2026/08/27/business/energy-environment/california-legislature-plugin-solar.html
 

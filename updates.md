@@ -1,3 +1,7 @@
+**Parents Say Meta Settlement Is Big, but Not Enough**\
+`Across the country, parents described feeling some validation after the landmark $1.7 billion settlement. But they also felt skeptical that much of anything will change.`\
+https://www.nytimes.com/2026/08/27/well/meta-settlement-parents.html
+
 **Men Are Rethinking Their Approach to Skin Care**\
 `Three perspectives on aging reveal different priorities, while a dermatologist examines the ingredients behind SkinCeuticals P-TIOX Cream.`\
 http://brandedplaylist.nytimes.com/video/embedded/t-brand/100000011117208/men-are-rethinking-their-approach-to-skin-care.html
