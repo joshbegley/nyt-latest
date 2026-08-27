@@ -1,3 +1,11 @@
+**Rock Landslide and Glacial Collapse Likely Caused Floods in Nepal and Tibet, Scientists Say**\
+`New satellite imagery added to scientists’ understanding of the events that precipitated the deadly flooding in Nepal and Tibet.`\
+https://www.nytimes.com/2026/08/27/world/asia/nepal-flood-cause-landslide-glacier-collapse.html
+
+**Ratko Mladic, Murderous ‘Butcher of Bosnia,’ Dies at 83**\
+`A general during the Balkan wars of the 1990s, he was convicted in the killing of some 8,000 Muslims at Srebrenica, Europe’s deadliest massacre since World War II.`\
+https://www.nytimes.com/2026/08/27/world/europe/ratko-mladic-dead.html
+
 **Miley Cyrus on Dolly Parton: ‘We Chose Each Other’**\
 `Miley Cyrus reflected on her bond with Dolly Parton on “The Interview.” She shared the story of how the country music star became her godmother, and how she was a guiding force throughout her life: “Instead of seeing myself retract in awe of her, I just felt myself going forward and feeling really safe,” Cyrus told Lulu-Garcia Navarro.`\
 https://www.nytimes.com/video/podcasts/100000011115626/miley-cyrus-on-dolly-parton-we-chose-each-other.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/27/movies/the-whisper-man-review.html
 **‘Runa Simi’ Review: The Fight to Keep Quechua Alive**\
 `This Peruvian documentary follows a voice artist who wants to dub “The Lion King” into the Indigenous language. Can he succeed?`\
 https://www.nytimes.com/2026/08/27/movies/runa-simi-review.html
-
-**‘Idiots’ Review: Burn After Seeing**\
-`Dave Franco and O’Shea Jackson contend with guns, drugs and a SoundCloud rapper in this over-the-top, gross-out crime comedy.`\
-https://www.nytimes.com/2026/08/27/movies/idiots-review.html
-
-**‘Finding Emily’ Review: You’ve Got Email**\
-`This Gen Z rom-com, with flashes of wit and invention, ultimately leans too heavily on the traditional formula it seems poised to subvert.`\
-https://www.nytimes.com/2026/08/27/movies/finding-emily-review.html
 
