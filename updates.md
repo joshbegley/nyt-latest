@@ -1,3 +1,7 @@
+**Trump Plans to Mark 9/11 at the Pentagon, Not Ground Zero**\
+`President Trump originally intended to commemorate the 25th anniversary of Sept. 11 with remarks at ground zero, but the memorial’s organizers do not allow speeches. Mr. Trump changed his plans.`\
+https://www.nytimes.com/2026/08/27/us/politics/trump-911-pentagon-ground-zero.html
+
 **Man Flees Fire at His Home in Stolen Rescue Truck, Police Say**\
 `Officials in New Hampshire said the man used the rescue truck as a weapon, nearly striking emergency responders who were trying to save his rural house.`\
 https://www.nytimes.com/2026/08/27/us/fire-truck-stolen-new-hampshire.html
