@@ -194,7 +194,7 @@ https://www.nytimes.com/video/obituaries/100000011115998/dolly-parton-philanthro
 `A pesar de que los pingüinos de Humboldt son de las especies más resistentes, los científicos temen que los cambios de temperatura y el Superniño de este año causen un daño grave a la población de estos animales.`\
 https://www.nytimes.com/es/2026/08/27/espanol/ciencia-y-tecnologia/pinguinos-peru-nino-peligros.html
 
-**Cómo y cuándo ver la ‘luna de sangre’ de esta semana**\
-`Los habitantes de tres continentes podrán observar a simple vista cómo la sombra de la Tierra crea una luna de sangre casi total.`\
-https://www.nytimes.com/es/2026/08/27/espanol/ciencia-y-tecnologia/eclipse-luna-sangre-cuando.html
+**Live Updates: Helicopters Rescue Nepal Flood Survivors, With More Than 1,400 Still Missing**\
+`Officials said hundreds were killed in Nepal and Tibet. New York Times reporters flew with rescuers to remote Himalayan areas, where shocked survivors described a torrent of mud sweeping away villages.`\
+https://www.nytimes.com/live/2026/08/27/world/nepal-tibet-flash-floods
 
