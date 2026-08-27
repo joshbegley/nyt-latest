@@ -1,5 +1,5 @@
-**Man Is Arrested in Fatal Shooting of Mexican Influencer**\
-`The authorities accuse the man of attacking César Gastélum, a young influencer, during a livestream in Sinaloa this month.`\
+**Man Is Arrested in Fatal Shooting of Mexican Influencer During Livestream**\
+`The authorities accused the man of attacking César Gastélum, a young influencer, during a livestream in Sinaloa this month.`\
 https://www.nytimes.com/2026/08/27/world/americas/mexico-influencer-shooting-gastelum-arrest.html
 
 **Inside the Iceland Eclipse Festival: $1,000-a-Week Yurts and Endless Optimism**\
