@@ -1,3 +1,7 @@
+**In Trump’s Washington, Ballooning National Debt Stirs Little Action**\
+`The relative indifference to the news that the U.S. government now owes $40 trillion demonstrates how drastically the politics of deficit spending has changed.`\
+https://www.nytimes.com/2026/08/27/us/politics/national-debt-trump-reaction.html
+
 **Nepal Flood Maroons Thousands After Roads and Bridges Swept Away**\
 `Twenty-five miles of roads were erased, stranding a quarter of a million Nepalis and knocking out phone and power lines.`\
 https://www.nytimes.com/2026/08/27/world/asia/nepal-flood-damage-infrastructure-tibet.html
