@@ -1,3 +1,7 @@
+**Did Meta’s Big Settlement Actually Help It?**\
+`The tech giant’s landmark deal with states over teen use of social media may cost the company less than expected. It may hurt rivals more.`\
+https://www.nytimes.com/2026/08/27/business/dealbook/meta-settlement-teens.html
+
 **Qatari Prime Minister Travels to Tehran as Iran War Nears Six-Month Mark**\
 `Sheikh Mohammed bin Abdulrahman Al Thani has been a key mediator in the conflict, even as his country has blamed Tehran for hundreds of missile and drone attacks.`\
 https://www.nytimes.com/2026/08/27/world/middleeast/qatar-visit-iran.html

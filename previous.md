@@ -1,3 +1,7 @@
+**Did Meta’s Big Settlement Actually Help It?**\
+`The tech giant’s landmark deal with states over teen use of social media may cost the company less than expected. It may hurt rivals more.`\
+https://www.nytimes.com/2026/08/27/business/dealbook/meta-settlement-teens.html
+
 **Qatari Prime Minister Travels to Tehran as Iran War Nears Six-Month Mark**\
 `Sheikh Mohammed bin Abdulrahman Al Thani has been a key mediator in the conflict, even as his country has blamed Tehran for hundreds of missile and drone attacks.`\
 https://www.nytimes.com/2026/08/27/world/middleeast/qatar-visit-iran.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/27/movies/filipinana-review.html
 **‘The Dog Stars’ Review: Seeking Hope at the End of the World**\
 `A terrific cast led by Jacob Elordi and Margaret Qualley struggles to lift Ridley Scott’s contemplative dystopia out of the doldrums.`\
 https://www.nytimes.com/2026/08/27/movies/the-dog-stars-review.html
-
-**‘Coyote vs. Acme’ Review: A Daffy Corporate Comedy**\
-`A delightful tale that nails the tone of the Looney Tunes shorts while telling a new story, too.`\
-https://www.nytimes.com/2026/08/27/movies/coyote-vs-acme-review.html
 

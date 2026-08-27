@@ -94,8 +94,8 @@ https://www.nytimes.com/2026/08/27/pageoneplus/corrections-aug-27-2026.html
 `Seth Moulton is trying to lead the next generation of Democratic leaders — and has been for a while.`\
 https://www.nytimes.com/2026/08/27/opinion/democrats-seth-moulton-massachusetts-senate.html
 
-**Even Machiavelli Wouldn’t Like Trump’s America**\
-`We are hated, but not feared.`\
+**O Canada!**\
+`Even Machiavelli wouldn’t like Trump’s America.`\
 https://www.nytimes.com/2026/08/27/opinion/trump-canada-trade-war-dolly-parton.html
 
 **Mark Zuckerberg Wants to Make Sure YouTube and TikTok Share His Pain**\
