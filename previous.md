@@ -1,3 +1,7 @@
+**¿Los ‘entrenamientos linfáticos’ pueden ayudar con la hinchazón o la inflamación?**\
+`Algunos influentes promueven rutinas de ejercicio específicas, como caminar o saltar, para reducir la hinchazón. Esto es lo que debes saber.`\
+https://www.nytimes.com/es/2026/08/27/espanol/ejercicios-inflamacion-hinchazon.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/asia/100000011116085/27vid-nepal-families-embed.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/26/books/dolly-parton-imagination-library.html
 **Armed Man Arrested Near Trump Golf Course Is Sent to Mental Health Court**\
 `A California judge suspended criminal proceedings against the man, a former Marine, who had been arrested days before the president was set to visit for a fund-raiser.`\
 https://www.nytimes.com/2026/08/26/us/trump-golf-course-man-gun-arrest.html
-
-**Hearing to Review Bill Cosby’s Assets as He Faces $59 Million Judgment**\
-`A judge wants Mr. Cosby or his lawyers to clarify questions about his funds as a woman who sued him for sexual assault says she has not received any of the money she was awarded.`\
-https://www.nytimes.com/2026/08/26/arts/television/bill-cosby-assets-sexual-assault.html
 

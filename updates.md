@@ -1,3 +1,7 @@
+**¿Los ‘entrenamientos linfáticos’ pueden ayudar con la hinchazón o la inflamación?**\
+`Algunos influentes promueven rutinas de ejercicio específicas, como caminar o saltar, para reducir la hinchazón. Esto es lo que debes saber.`\
+https://www.nytimes.com/es/2026/08/27/espanol/ejercicios-inflamacion-hinchazon.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/asia/100000011116085/27vid-nepal-families-embed.html
