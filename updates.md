@@ -1,3 +1,7 @@
+**The South Loved Dolly Parton. It Saw the Best of Itself in Her.**\
+`Even as her talents and work ethic opened up the world to her, she kept coming home. For many in the complicated region she’s from, that meant a lot.`\
+https://www.nytimes.com/2026/08/26/us/dolly-parton-south.html
+
 **As a Storyteller, Tim Curry Had the Gift**\
 `He was a blast to watch, whether playing a mad scientist in “The Rocky Horror Picture Show,” a butler in “Clue” or a singing King Arthur in “Spamalot.”`\
 https://www.nytimes.com/2026/08/26/theater/tim-curry-rocky-horror-spamalot.html
