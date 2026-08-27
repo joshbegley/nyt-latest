@@ -1,3 +1,7 @@
+**What Our Reporter Saw After the Floods in Nepal**\
+`Our correspondent Anupreeta Das witnessed the rescue operation following the catastrophic flooding in Nepal and Tibet, in which a torrent of debris and water carried away entire villages in just minutes.`\
+https://www.nytimes.com/video/world/asia/100000011114070/what-our-reporter-saw-after-the-floods-in-nepal.html
+
 **De coronel en Venezuela a actor en Florida y de vuelta como deportado**\
 `Un oficial retirado de la Guardia Nacional de Venezuela solía liderar una unidad militar represiva. En 2018, se descubrió que tenía una nueva vida en los suburbios de Miami como extra de TV.`\
 https://www.nytimes.com/es/2026/08/27/espanol/america-latina/quero-silva-venezolano-deportado-tortura.html
