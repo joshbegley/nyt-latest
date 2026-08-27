@@ -1,3 +1,11 @@
+**Trump Administration Will Appeal Harvard Antisemitism Case**\
+`A federal judge earlier ruled against Trump officials in a lawsuit accusing the university of allowing persistent antisemitism on campus.`\
+https://www.nytimes.com/2026/08/27/us/politics/trump-administration-harvard-antisemitism-lawsuit-appeal.html
+
+**A Venezuelan Colonel Turned Actor Is Deported From Florida**\
+`A former lieutenant colonel in Venezuela’s National Guard living in Florida was deported, interrupting a lawsuit that accused him of ordering violent raids and torture.`\
+https://www.nytimes.com/2026/08/27/world/americas/venezuelan-quero-silva-florida-deported.html
+
 **Peter Cullen, Who Voiced Optimus Prime in ‘Transformers,’ Dies at 85**\
 `He voiced the main protagonist of the “Transformers” franchise on television and in blockbuster films for more than four decades. He also had success as Eeyore in “Winnie the Pooh” cartoons.`\
 https://www.nytimes.com/2026/08/27/arts/peter-cullen-dead.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/es/2026/08/27/espanol/cultura/muere-ratko-mladic-bosnia.
 **Nepal-Tibet Flood: See the Scale of the Destruction**\
 `Satellite images show widespread destruction along more than 50 miles of Himalayan valleys where a torrent of mud swept away villages on Wednesday.`\
 https://www.nytimes.com/interactive/2026/08/27/world/asia/nepal-flash-flood-damage.html
-
-**Why Andy Warhol Couldn’t Capture Dolly Parton**\
-`Andy Warhol’s images of Parton don’t strike me as up to the level of his best society portraits; they aren’t quite worthy of the singer’s complex excellence.`\
-https://www.nytimes.com/2026/08/27/arts/design/warhol-dolly-parton-portrait.html
-
-**Ask a Journalist: How Generative A.I. Is Changing Education**\
-`Dana Goldstein joins us for the month of September to chat with teenagers about artificial intelligence and its impact on schools and education. Post your comments and questions for her by Sept. 18.`\
-https://www.nytimes.com/2026/08/27/learning/lesson-plans/ask-a-journalist-how-generative-ai-is-changing-education.html
 
