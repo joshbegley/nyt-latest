@@ -1,3 +1,7 @@
+**Harry Styles Kicks Off Monthslong Residency at Madison Square Garden**\
+`The singer kicked off a monthslong residency at the venue on Wednesday night before a giddy crowd.`\
+https://www.nytimes.com/2026/08/27/arts/music/harry-styles-madison-square-garden.html
+
 **Loving Dolly Parton Was Easy. Understanding Her Was Hard.**\
 `She didn’t see herself as a saint; she identified as something we needed even more: a writer.`\
 https://www.nytimes.com/2026/08/27/opinion/dolly-parton-appalachia-legacy.html
