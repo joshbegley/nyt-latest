@@ -1,3 +1,11 @@
+**Catastrophic Flood Hits Nepal, Engulfing Crowds and Causing Quake**\
+`The authorities reported hundreds of people missing and at least 160 people killed in the border region of Nepal and Tibet, where an avalanche of mud, water, ice and rocks smashed down.`\
+https://www.nytimes.com/2026/08/26/world/asia/nepal-landslide-tibet.html
+
+**As a Storyteller, Tim Curry Had the Gift**\
+`He was a blast to watch, whether playing a mad scientist in “The Rocky Horror Picture Show,” a butler in “Clue” or a singing King Arthur in “Spamalot.”`\
+https://www.nytimes.com/2026/08/26/theater/tim-curry-rocky-horror-spamalot.html
+
 **Will Meta’s Changes Benefit Young Users’ Mental Health?**\
 `Psychologists said the changes were a symbolic victory, but warned their effectiveness might be limited.`\
 https://www.nytimes.com/2026/08/26/well/family/meta-settlement-youth-mental-health.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/08/26/us/ice-christian-castro-extradite-texas-minne
 **Who is Ahead in Ohio’s 1st Congressional District?**\
 `Track the latest polls in Ohio’s 1st Congressional District.`\
 https://www.nytimes.com/interactive/polls/ohio-us-house-1-polls-2026.html
-
-**The Real Winner of the Trade War With Canada**\
-`China is the real problem, and Washington needs all the allies it can find.`\
-https://www.nytimes.com/2026/08/26/opinion/us-canada-trade-cars-trucks-china.html
-
-**The South Loved Dolly Parton. It Saw the Best of Itself in Her.**\
-`Even as her talents and work ethic opened up the world to her, she kept coming home. For many in the complicated region she’s from, that meant a lot.`\
-https://www.nytimes.com/2026/08/26/us/dolly-parton-south.html
 
