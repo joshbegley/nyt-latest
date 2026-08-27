@@ -1,3 +1,7 @@
+**Fui actriz infantil. Nadie merece ese destino**\
+`Puede que hayamos trabajado en distintos sets, para distintos directores, en distintas épocas, pero todas llevamos las mismas heridas.`\
+https://www.nytimes.com/es/2026/08/27/espanol/opinion/actores-infantiles-problemas.html
+
 **‘A Huge Paradox’: Nepal Region Hit by Flood is Known for Development and Disasters**\
 `The region has experienced an economic boom even as natural disasters have repeatedly struck, including a flood that killed more than 160 people on Wednesday.`\
 https://www.nytimes.com/2026/08/27/world/asia/a-huge-paradox-nepal-region-hit-by-flood-known-for-development-and-disasters.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/26/us/man-arrested-guillotine-capitol.html
 **Why China Loves A.I.**\
 `People in China are way more optimistic about the technology than Americans. We look at what’s behind the difference.`\
 https://www.nytimes.com/2026/08/26/world/china-ai-nepal-tibet-flood.html
-
-**Meta Will Pay Up to $17.1 Billion in Social Media Addiction Settlement**\
-`Meta has agreed to pay up $17.1 billion in a landmark settlement over social media addiction claims, pledging to limit the time teenagers can spend on its platforms and ban features that stoke mental health issues.`\
-https://www.nytimes.com/video/us/100000011114723/meta-social-media-lawsuit-settlement.html
 
