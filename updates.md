@@ -1,3 +1,7 @@
+**A General Store Almost as Old as America**\
+`Ben Shattuck, the proprietor of Davoll’s in coastal Massachusetts, yearns for a retail world before chain stores and online shopping.`\
+https://www.nytimes.com/2026/08/27/style/general-store-massachusetts-davolls-shattuck-slate.html
+
 **Tim Curry Pioneered Fashion With His ‘Rocky Horror’ Performance**\
 `His performance as Dr. Frank-N-Furter, the cross-dressing mad scientist of “The Rocky Horror Picture Show,” was ahead of its time.`\
 https://www.nytimes.com/2026/08/26/style/tim-curry-fashion-pioneer.html

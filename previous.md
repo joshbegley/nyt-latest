@@ -1,3 +1,7 @@
+**A General Store Almost as Old as America**\
+`Ben Shattuck, the proprietor of Davoll’s in coastal Massachusetts, yearns for a retail world before chain stores and online shopping.`\
+https://www.nytimes.com/2026/08/27/style/general-store-massachusetts-davolls-shattuck-slate.html
+
 **Un disidente cubano llega a Miami y recibe duras críticas**\
 `Luis Manuel Otero Alcántara, el artista cubano que fue liberado en julio, llegó a EE. UU. y ahora esquiva las críticas de los exiliados que alguna vez le dieron la bienvenida.`\
 https://www.nytimes.com/es/2026/08/27/espanol/america-latina/otero-alcantara-disidente-cubano-miami.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/26/us/maryland-redistricting-constitutional-amen
 **How Darline Graham’s Politics Compare With Her Brother’s as She Runs for Senate**\
 `Senator Darline Graham has spoken far more about her desire to support President Trump’s agenda than she has talked about her brother’s political goals — or her own.`\
 https://www.nytimes.com/2026/08/26/us/politics/darline-lindsey-graham-political-views.html
-
-**Dolly Parton, Friend of Miss Piggy, Is Remembered by the Muppets**\
-`Perhaps more than many other entertainers who appeared alongside the Muppets, Parton seemed to have a natural ease with her inanimate sidekicks.`\
-https://www.nytimes.com/2026/08/26/style/dolly-parton-miss-piggy-muppets.html
 
