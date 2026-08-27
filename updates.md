@@ -1,3 +1,15 @@
+**En Latinoamérica, los demócratas socialistas son el centro de atención**\
+`El éxito de los candidatos progresistas en EE. UU. está inspirando a los izquierdistas en el extranjero que enfrentan la presión del gobierno de Trump y sus aliados.`\
+https://www.nytimes.com/es/2026/08/27/espanol/america-latina/latinoamerica-izquierda-democratas-socialistas.html
+
+**“Anxious Generation” Author Jonathan Haidt on the Meta Settlement**\
+`In “The Anxious Generation,” he laid out the evils of social media for kids. The landmark Meta settlement seems to agree.`\
+https://www.nytimes.com/2026/08/27/style/meta-jonathan-haidt-anxious-generation.html
+
+**As Anger Grows Over Trump Tariffs, Some in Canada Want Out of U.S. F-35 Deal**\
+`A year into a government review of the purchase of as many as 88 F-35s, one premier says buying American warplanes makes no sense in the face of President Trump’s latest tariffs.`\
+https://www.nytimes.com/2026/08/27/world/canada/trade-war-canada-us-f35-carney-trump.html
+
 **Trump Raises Money in Texas With Control of the Senate in the Balance**\
 `Many Republicans are hoping for financial support from President Trump, whose fund-raising power in the party remains unmatched despite his low poll numbers.`\
 https://www.nytimes.com/2026/08/27/us/politics/trump-texas-senate-fund-raiser.html

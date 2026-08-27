@@ -1,3 +1,7 @@
+**Trump Administration to Expand Deportation Flights to Haiti**\
+`Flights to the Caribbean nation will increase from once a month to once a week now that the Supreme Court allowed President Trump to cancel a humanitarian program.`\
+https://www.nytimes.com/2026/08/27/us/politics/haiti-deportation-flights.html
+
 **En Latinoamérica, los demócratas socialistas son el centro de atención**\
 `El éxito de los candidatos progresistas en EE. UU. está inspirando a los izquierdistas en el extranjero que enfrentan la presión del gobierno de Trump y sus aliados.`\
 https://www.nytimes.com/es/2026/08/27/espanol/america-latina/latinoamerica-izquierda-democratas-socialistas.html
@@ -22,7 +26,7 @@ https://www.nytimes.com/2026/08/27/t-magazine/fig-frozen-yogurt-recipe.html
 `Plus: sea kale on menus, stylish garden wear and more recommendations from T Magazine.`\
 https://www.nytimes.com/2026/08/27/t-magazine/copenhagen-hotel-house-of-josty-frederiksberg-gardens.html
 
-**Closing Arguments Begin in Lindsay Clancy Murder Trial**\
+**Lindsay Clancy Murder Trial Closing Arguments Begin**\
 `Lawyers are making their final pitches to the jury as to whether or not Ms. Clancy should be held criminally responsible for her children’s deaths.`\
 https://www.nytimes.com/2026/08/27/us/lindsay-clancy-trial-closing.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/27/world/americas/latin-america-democratic-socia
 **Trump’s Strength in Primaries is Clear. The Midterms Pose a Different Test.**\
 `The president’s pull with the party base has been clear and his resources are vast. But his low approval ratings make him a liability with swing voters.`\
 https://www.nytimes.com/2026/08/27/us/politics/trump-midterm-election-republicans.html
-
-**Loving Dolly Parton Was Easy. Understanding Her Was Hard.**\
-`She didn’t see herself as a saint; she identified as something we needed even more: a writer.`\
-https://www.nytimes.com/2026/08/27/opinion/dolly-parton-appalachia-legacy.html
 
