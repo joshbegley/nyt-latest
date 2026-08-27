@@ -1,3 +1,15 @@
+**Man Flees Fire at His Home in Stolen Rescue Truck, Police Say**\
+`Officials in New Hampshire said the man used the rescue truck as a weapon, nearly striking emergency responders who were trying to save his rural house.`\
+https://www.nytimes.com/2026/08/27/us/fire-truck-stolen-new-hampshire.html
+
+**Trump Administration Will Appeal Harvard Antisemitism Case**\
+`A federal judge earlier ruled against Trump officials in a lawsuit accusing the university of allowing persistent antisemitism on campus.`\
+https://www.nytimes.com/2026/08/27/us/politics/trump-administration-harvard-antisemitism-lawsuit-appeal.html
+
+**A Venezuelan Colonel Turned Actor Is Deported From Florida**\
+`A former lieutenant colonel in Venezuela’s National Guard living in Florida was deported, interrupting a lawsuit that accused him of ordering violent raids and torture.`\
+https://www.nytimes.com/2026/08/27/world/americas/venezuelan-quero-silva-florida-deported.html
+
 **Peter Cullen, Who Voiced Optimus Prime in ‘Transformers,’ Dies at 85**\
 `He voiced the main protagonist of the “Transformers” franchise on television and in blockbuster films for more than four decades. He also had success as Eeyore in “Winnie the Pooh” cartoons.`\
 https://www.nytimes.com/2026/08/27/arts/peter-cullen-dead.html
