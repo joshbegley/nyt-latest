@@ -1,3 +1,7 @@
+**Meta Settles. Finally.**\
+`Meta’s settlement is far from perfect, but every blow counts as the company declines.`\
+https://www.nytimes.com/2026/08/27/opinion/meta-settlement-social-media-tech.html
+
 **Trump representa un dilema para los republicanos de cara a las elecciones intermedias**\
 `El respaldo del presidente ha sido un impulso importante en las primarias del Partido Republicano pero sus bajos índices de aprobación lo convierten en una carga para los votantes indecisos.`\
 https://www.nytimes.com/es/2026/08/27/espanol/estados-unidos/trump-elecciones-intermedias.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/08/27/espanol/ciencia-y-tecnologia/pinguinos-per
 **Cómo y cuándo ver la ‘luna de sangre’ de esta semana**\
 `Los habitantes de tres continentes podrán observar a simple vista cómo la sombra de la Tierra crea una luna de sangre casi total.`\
 https://www.nytimes.com/es/2026/08/27/espanol/ciencia-y-tecnologia/eclipse-luna-sangre-cuando.html
-
-**Rescuers in Nepal Face Devastated Roads and Tough Terrain After Deadly Flood**\
-`The deadly Himalayan torrent damaged roads and dozens of bridges. The devastation was impeding the search for survivors and relief deliveries, aid groups said.`\
-https://www.nytimes.com/2026/08/27/world/asia/nepal-china-flash-flood-rescue-roads-bridges.html
 
