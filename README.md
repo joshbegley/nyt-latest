@@ -1,3 +1,7 @@
+**Man Flees Fire at His Home in Stolen Rescue Truck, Police Say**\
+`Officials in New Hampshire said the man used the rescue truck as a weapon, nearly striking emergency responders who were trying to save his rural house.`\
+https://www.nytimes.com/2026/08/27/us/fire-truck-stolen-new-hampshire.html
+
 **Trump Administration Will Appeal Harvard Antisemitism Case**\
 `A federal judge earlier ruled against Trump officials in a lawsuit accusing the university of allowing persistent antisemitism on campus.`\
 https://www.nytimes.com/2026/08/27/us/politics/trump-administration-harvard-antisemitism-lawsuit-appeal.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/27/climate/nepal-flooding-climate-change.html
 **Muere Ratko Mladic, el ‘carnicero de Bosnia’, en La Haya**\
 `Uno de los responsables de la masacre más mortífera de Europa desde la Segunda Guerra Mundial, el asesinato de unos 8000 hombres y niños musulmanes en Srebrenica en 1995, murió bajo custodia en La Haya. Tenía 83 años.`\
 https://www.nytimes.com/es/2026/08/27/espanol/cultura/muere-ratko-mladic-bosnia.html
-
-**Nepal-Tibet Flood: See the Scale of the Destruction**\
-`Satellite images show widespread destruction along more than 50 miles of Himalayan valleys where a torrent of mud swept away villages on Wednesday.`\
-https://www.nytimes.com/interactive/2026/08/27/world/asia/nepal-flash-flood-damage.html
 
