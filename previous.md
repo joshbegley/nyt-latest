@@ -1,3 +1,7 @@
+**California Lawmakers Pass Plug-In Solar Bill**\
+`Legislatures in nearly a dozen states have voted to legalize use of the technology, which can help homeowners reduce their rising electricity costs.`\
+https://www.nytimes.com/2026/08/27/business/energy-environment/california-legislature-plugin-solar.html
+
 **Man Is Arrested in Fatal Shooting of Mexican Influencer During Livestream**\
 `The authorities accused the man of attacking César Gastélum, a young influencer, during a livestream in Sinaloa this month.`\
 https://www.nytimes.com/2026/08/27/world/americas/mexico-influencer-shooting-gastelum-arrest.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/27/nyregion/alternate-side-parking-brooklyn.html
 **Homes for Sale in Manhattan and Brooklyn**\
 `This week’s properties are in Midtown East, on the Upper East Side and in Crown Heights.`\
 https://www.nytimes.com/2026/08/27/realestate/housing-market-nyc.html
-
-**The Best Cities to Have a Roommate**\
-`A new study provides insight into which large cities offer the most value when sharing rent.`\
-https://www.nytimes.com/2026/08/27/realestate/the-best-cities-to-have-a-roommate.html
 

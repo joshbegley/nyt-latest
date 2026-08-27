@@ -1,3 +1,7 @@
+**California Lawmakers Pass Plug-In Solar Bill**\
+`Legislatures in nearly a dozen states have voted to legalize use of the technology, which can help homeowners reduce their rising electricity costs.`\
+https://www.nytimes.com/2026/08/27/business/energy-environment/california-legislature-plugin-solar.html
+
 **Man Is Arrested in Fatal Shooting of Mexican Influencer During Livestream**\
 `The authorities accused the man of attacking César Gastélum, a young influencer, during a livestream in Sinaloa this month.`\
 https://www.nytimes.com/2026/08/27/world/americas/mexico-influencer-shooting-gastelum-arrest.html
