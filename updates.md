@@ -1,3 +1,7 @@
+**Live Updates: Rescuers Scour Himalayan Valleys for Survivors After Deadly Flood**\
+`More than 1,000 people were missing in Nepal and the Tibet region of China after a torrent of mud, water and ice swept away villages and bridges. Officials said 180 people had been confirmed killed.`\
+https://www.nytimes.com/live/2026/08/27/world/nepal-tibet-flash-floods
+
 **Rescue Efforts Underway in Nepal and Tibet After Deadly Flood**\
 `Rescuers were searching for survivors after a devastating flood swept away villages and bridges. Officials said 180 people were confirmed killed.`\
 https://www.nytimes.com/video/world/asia/100000011115111/floods-nepal-tibet-deaths-rescue.html
