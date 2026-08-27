@@ -194,7 +194,3 @@ https://www.nytimes.com/2026/08/26/world/china-ai-nepal-tibet-flood.html
 `Meta has agreed to pay up $17.1 billion in a landmark settlement over social media addiction claims, pledging to limit the time teenagers can spend on its platforms and ban features that stoke mental health issues.`\
 https://www.nytimes.com/video/us/100000011114723/meta-social-media-lawsuit-settlement.html
 
-**Nvidia’s Profit Doubles to $59.69 Billion Thanks to A.I. Spending**\
-`Quarterly revenue also more than doubled, to $96.22 billion, the company said, topping expectations on Wall Street.`\
-https://www.nytimes.com/2026/08/26/technology/nvidia-profit-ai-doubles-earnings.html
-
