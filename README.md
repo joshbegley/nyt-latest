@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/asia/100000011116085/27vid-nepal-families-embed.html
+
 **Todo lo que debes saber sobre el US Open 2026**\
 `El evento deportivo y social repleto de estrellas se lleva a cabo hasta el 13 de septiembre en el Centro Nacional de Tenis Billie Jean King, en la ciudad de Nueva York.`\
 https://www.nytimes.com/es/2026/08/27/espanol/deportes/abierto-estados-unidos-us-open-2026.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/26/us/trump-golf-course-man-gun-arrest.html
 **Hearing to Review Bill Cosby’s Assets as He Faces $59 Million Judgment**\
 `A judge wants Mr. Cosby or his lawyers to clarify questions about his funds as a woman who sued him for sexual assault says she has not received any of the money she was awarded.`\
 https://www.nytimes.com/2026/08/26/arts/television/bill-cosby-assets-sexual-assault.html
-
-**Army Awards $2.2 Billion for ‘Microreactors’ On U.S. Bases**\
-`The move is part of the Trump administration’s efforts to spur the country’s largest expansion of nuclear power in more than three decades.`\
-https://www.nytimes.com/2026/08/26/climate/army-miniature-nuclear-reactors.html
 
