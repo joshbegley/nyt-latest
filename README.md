@@ -1,3 +1,7 @@
+**Trump Plans to Mark 9/11 at the Pentagon, Not Ground Zero**\
+`President Trump originally intended to commemorate the 25th anniversary of Sept. 11 with remarks at ground zero, but the memorial’s organizers do not allow speeches. Mr. Trump changed his plans.`\
+https://www.nytimes.com/2026/08/27/us/politics/trump-911-pentagon-ground-zero.html
+
 **Man Flees Fire at His Home in Stolen Rescue Truck, Police Say**\
 `Officials in New Hampshire said the man used the rescue truck as a weapon, nearly striking emergency responders who were trying to save his rural house.`\
 https://www.nytimes.com/2026/08/27/us/fire-truck-stolen-new-hampshire.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/27/nyregion/rain-storm-flooding-nyc.html
 **Climate Change Raises Risk of Disasters Like Nepal Floods**\
 `Glaciers and permafrost in the Himalayas are melting faster as temperatures rise, though scientists are still studying the exact causes of this week’s landslide.`\
 https://www.nytimes.com/2026/08/27/climate/nepal-flooding-climate-change.html
-
-**Muere Ratko Mladic, el ‘carnicero de Bosnia’, en La Haya**\
-`Uno de los responsables de la masacre más mortífera de Europa desde la Segunda Guerra Mundial, el asesinato de unos 8000 hombres y niños musulmanes en Srebrenica en 1995, murió bajo custodia en La Haya. Tenía 83 años.`\
-https://www.nytimes.com/es/2026/08/27/espanol/cultura/muere-ratko-mladic-bosnia.html
 
