@@ -1,3 +1,19 @@
+**Dentro de una de las colonias de pingüinos más vulnerables de Perú**\
+`A pesar de que los pingüinos de Humboldt son de las especies más resistentes, los científicos temen que los cambios de temperatura y el Superniño de este año causen un daño grave a la población de estos animales.`\
+https://www.nytimes.com/es/2026/08/27/espanol/ciencia-y-tecnologia/pinguinos-peru-nino-peligros.html
+
+**Cómo y cuándo ver la ‘luna de sangre’ de esta semana**\
+`Los habitantes de tres continentes podrán observar a simple vista cómo la sombra de la Tierra crea una luna de sangre casi total.`\
+https://www.nytimes.com/es/2026/08/27/espanol/ciencia-y-tecnologia/eclipse-luna-sangre-cuando.html
+
+**Rescuers in Nepal Face Devastated Roads and Tough Terrain After Deadly Flood**\
+`The deadly Himalayan torrent damaged roads and dozens of bridges. The devastation was impeding the search for survivors and relief deliveries, aid groups said.`\
+https://www.nytimes.com/2026/08/27/world/asia/nepal-china-flash-flood-rescue-roads-bridges.html
+
+**The Japanese Artist Yayoi Kusama Dies at 97**\
+`Yayoi Kusama, the Japanese pop artist famous for dots and mirrors, died at 97 in Tokyo, her foundation and museum said.`\
+https://www.nytimes.com/video/obituaries/archives/100000011116008/japanese-artist-yayoi-kusama-dead.html
+
 **There Is a Sickness Worse Than Wokeness**\
 `The anti-woke movement’s “cure” was more intolerance and more repression.`\
 https://www.nytimes.com/2026/08/27/opinion/woke-right-trump-free-speech.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/08/27/movies/buddy-review.html
 **How Scientific Is the Science-Fiction of ‘Dark Matter’?**\
 `Ahead of the Season 2 premiere, the writer, a physicist by training, asked around. The answer? It’s complicated.`\
 https://www.nytimes.com/2026/08/27/arts/television/dark-matter-science-quantum-mechanics.html
-
-**Smuggled Turtles Saved at J.F.K. Are Recovering in the Bronx**\
-`China’s exotic pet market is driving a spike in animal smuggling, U.S. wildlife officials say. But these turtles are getting a second chance.`\
-https://www.nytimes.com/2026/08/27/climate/turtle-smuggling-jfk-airport.html
-
-**The Best New Historical Fiction**\
-`Our columnist on the month’s best new books.`\
-https://www.nytimes.com/2026/08/27/books/review/new-historical-fiction.html
-
-**Word of the Day: pneumatic**\
-`This word has appeared in 14 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/08/27/learning/word-of-the-day-pneumatic.html
-
-**Russian Sanctions Are Fueling a Canadian Car Theft Epidemic**\
-`Russia is the largest destination for stolen Canadian cars. Smugglers are meeting the demand of a booming black market.`\
-https://www.nytimes.com/2026/08/27/world/canada/canada-car-theft-russia-sanctions.html
 
