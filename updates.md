@@ -1,3 +1,7 @@
+**In Japan, Yayoi Kusama Is Remembered as a Visionary and a Rebel**\
+`Artists, scholars and fans celebrated Ms. Kusama as a cultural giant who helped bring Japanese art to the masses.`\
+https://www.nytimes.com/2026/08/27/world/asia/yayoi-kusama-japan-artist.html
+
 **Getting Kids Offline**\
 `We explain the Meta deal.`\
 https://www.nytimes.com/2026/08/27/briefing/getting-kids-offline.html
