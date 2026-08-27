@@ -1,3 +1,7 @@
+**Funding Delays Threaten Rollout of Mamdani’s 2-K Program**\
+`Many early childhood centers, the backbone of New York City’s universal child care system, have not received money from the city for this school year, some day care operators said.`\
+https://www.nytimes.com/2026/08/27/nyregion/nyc-2k-child-care-programs-funding-mamdani.html
+
 **What Our Reporter Saw After the Floods in Nepal**\
 `Our correspondent Anupreeta Das witnessed the rescue operation following the catastrophic flooding in Nepal and Tibet, in which a torrent of debris and water carried away entire villages in just minutes.`\
 https://www.nytimes.com/video/world/asia/100000011114070/what-our-reporter-saw-after-the-floods-in-nepal.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/08/27/well/busy-philipps-prenuvo-body-scans.html
 **A Study of Brain Proteins Offers New Targets to Treat Autism**\
 `Researchers hope their findings could help inform future therapies for people with severe autism.`\
 https://www.nytimes.com/2026/08/27/science/autism-treatments.html
-
-**Books Our Editors Loved This Week**\
-`Reading recommendations from critics and editors at The New York Times`\
-https://www.nytimes.com/2026/08/27/books/review/new-recommended-books.html
 
 **Trump Administration Live: U.S. to Step Up Deportations to Haiti Despite Warning Not to Visit**\
 `(No description)`\
