@@ -1,3 +1,7 @@
+**‘I Need to Go to the Hospital,’ Delta Pilot Tells Air Traffic Control**\
+`A Delta Air Lines flight from Los Angeles to Boston safely diverted to Detroit after the captain of a Boeing 757 became ill.`\
+https://www.nytimes.com/2026/08/27/us/delta-pilot-ill.html
+
 **Wall Street Loved Scott Bessent and Kevin Warsh. Not Anymore.**\
 `We are approaching a credibility crisis with Scott Bessent and Kevin Warsh leading our economy.`\
 https://www.nytimes.com/2026/08/27/opinion/bessent-warsh-treasury-fed-bonds-trump.html
