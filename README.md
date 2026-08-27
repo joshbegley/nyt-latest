@@ -1,3 +1,7 @@
+**Nepal Flood Maroons Thousands After Roads and Bridges Swept Away**\
+`Twenty-five miles of roads were erased, stranding a quarter of a million Nepalis and knocking out phone and power lines.`\
+https://www.nytimes.com/2026/08/27/world/asia/nepal-flood-damage-infrastructure-tibet.html
+
 **In Nepal, a Catastrophe So Sudden There Was No Time to React**\
 `The collapse of part of a mountain created a flash flood of a scale and speed no one had imagined, survivors said. Hundreds died, at least, and many more are missing.`\
 https://www.nytimes.com/2026/08/27/world/asia/nepal-flood-survivors-devastation.html
@@ -27,7 +31,7 @@ https://www.nytimes.com/2026/08/27/us/politics/obama-fundraiser-gop-convention.h
 https://www.nytimes.com/2026/08/27/world/canada/canada-universities-hire-us-researchers.html
 
 **On Night of Deadly Air Canada Crash, Two LaGuardia Controllers Left Early**\
-`The two controllers are among a dozen that the Federal Aviation Administration has taken steps to fire, according to people familiar with the matter, as part of an inquiry into timecard fraud.`\
+`The two controllers are among a dozen that the Federal Aviation Administration has taken steps to fire as part of an inquiry into timecard fraud, according to people familiar with the matter.`\
 https://www.nytimes.com/2026/08/27/nyregion/air-canada-crash-lga-air-traffic-controllers.html
 
 **Trump Signs Executive Order to Rename Lake Ontario to Lake America**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/08/27/weather/dolly-map-path-tracker.ht
 **Caso César Gastélum: un sospechoso es detenido por el asesinato del ‘influencer’**\
 `Las autoridades mexicanas acusaron al hombre de atacar a César Gastélum, un joven influente, durante una transmisión en vivo en Sinaloa este mes.`\
 https://www.nytimes.com/es/2026/08/27/espanol/america-latina/gastelum-asesinato-influencer-sospechoso-detenido.html
-
-**Sunny With a Chance of Chicken-Zucchini Meatballs**\
-`Ali Slagle’s clever meatballs are half meat, half vegetable, all delicious.`\
-https://www.nytimes.com/2026/08/27/dining/sunny-with-a-chance-of-chicken-zucchini-meatballs.html
 
