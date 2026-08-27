@@ -1,3 +1,7 @@
+**Caso César Gastélum: un sospechoso es detenido por el asesinato del ‘influencer’**\
+`Las autoridades mexicanas acusaron al hombre de atacar a César Gastélum, un joven influente, durante una transmisión en vivo en Sinaloa este mes.`\
+https://www.nytimes.com/es/2026/08/27/espanol/america-latina/gastelum-asesinato-influencer-sospechoso-detenido.html
+
 **Sunny With a Chance of Chicken-Zucchini Meatballs**\
 `Ali Slagle’s clever meatballs are half meat, half vegetable, all delicious.`\
 https://www.nytimes.com/2026/08/27/dining/sunny-with-a-chance-of-chicken-zucchini-meatballs.html
@@ -89,6 +93,10 @@ https://www.nytimes.com/2026/08/27/world/middleeast/qatar-visit-iran.html
 **Harry Styles Kicks Off Monthslong Residency at Madison Square Garden**\
 `The singer kicked off a monthslong residency at the venue on Wednesday night before a giddy crowd.`\
 https://www.nytimes.com/2026/08/27/arts/music/harry-styles-madison-square-garden.html
+
+****\
+`The muddy remains of buildings near the banks of the flooded Trishuli River.`\
+https://www.nytimes.com/video/embedded/admin/100000011116425/27vid-nepal-floods-embeds-52322.html
 
 **In Japan, Yayoi Kusama Is Remembered as a Visionary and a Rebel**\
 `Artists, scholars and fans celebrated Ms. Kusama as a cultural giant who helped bring Japanese art to the masses.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/27/podcasts/take-me-back-to-the-summer-of-86.htm
 **36 Hours in Bozeman, Mont.: Things to Do and See**\
 `Bozeman is blooming, with nationally recognized restaurants, galleries that honor its Indigenous roots and more to complement its show-stopping scenery.`\
 https://www.nytimes.com/interactive/2026/08/27/travel/things-to-do-bozeman.html
-
-**As Anger Grows Over Trump Tariffs, Some in Canada Want Out of U.S. F-35 Deal**\
-`A year into a government review of the purchase of as many as 88 F-35s, one premier says buying American warplanes makes no sense in the face of President Trump’s latest tariffs.`\
-https://www.nytimes.com/2026/08/27/world/canada/trade-war-canada-us-f35-carney-trump.html
-
-**Democratic Socialists Are the Toast of the Party in Uruguay**\
-`The success of progressive candidates in the United States is inspiring leftists abroad struggling under pressure from the Trump administration and its allies.`\
-https://www.nytimes.com/2026/08/27/world/americas/latin-america-democratic-socialists.html
 

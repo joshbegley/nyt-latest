@@ -1,3 +1,7 @@
+**Sunny With a Chance of Chicken-Zucchini Meatballs**\
+`Ali Slagle’s clever meatballs are half meat, half vegetable, all delicious.`\
+https://www.nytimes.com/2026/08/27/dining/sunny-with-a-chance-of-chicken-zucchini-meatballs.html
+
 **Trump Administration to Expand Deportation Flights to Haiti**\
 `Flights to the Caribbean nation will increase from once a month to once a week now that the Supreme Court allowed President Trump to cancel a humanitarian program.`\
 https://www.nytimes.com/2026/08/27/us/politics/haiti-deportation-flights.html

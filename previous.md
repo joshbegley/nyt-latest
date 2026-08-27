@@ -1,3 +1,7 @@
+**Sunny With a Chance of Chicken-Zucchini Meatballs**\
+`Ali Slagle’s clever meatballs are half meat, half vegetable, all delicious.`\
+https://www.nytimes.com/2026/08/27/dining/sunny-with-a-chance-of-chicken-zucchini-meatballs.html
+
 **Trump Administration to Expand Deportation Flights to Haiti**\
 `Flights to the Caribbean nation will increase from once a month to once a week now that the Supreme Court allowed President Trump to cancel a humanitarian program.`\
 https://www.nytimes.com/2026/08/27/us/politics/haiti-deportation-flights.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/27/world/canada/trade-war-canada-us-f35-carney-t
 **Democratic Socialists Are the Toast of the Party in Uruguay**\
 `The success of progressive candidates in the United States is inspiring leftists abroad struggling under pressure from the Trump administration and its allies.`\
 https://www.nytimes.com/2026/08/27/world/americas/latin-america-democratic-socialists.html
-
-**Trump’s Strength in Primaries is Clear. The Midterms Pose a Different Test.**\
-`The president’s pull with the party base has been clear and his resources are vast. But his low approval ratings make him a liability with swing voters.`\
-https://www.nytimes.com/2026/08/27/us/politics/trump-midterm-election-republicans.html
 
