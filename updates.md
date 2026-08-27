@@ -1,3 +1,7 @@
+**En fotos: inundación en Nepal y el Tíbet**\
+`Una avalancha de hielo que comenzó en lo alto del Himalaya cayó por cientos de metros y liberó enormes cantidades de energía que pulverizaron el hielo hasta convertirlo en un gran volumen de agua de inundación.`\
+https://www.nytimes.com/es/2026/08/27/espanol/mundo/inundacion-nepal-tibet.html
+
 **China’s Information Control Could Hamper Flood Rescue Efforts in Tibet**\
 `Videos of the disaster, which tore through the border area between Tibet and Nepal, have been removed from social media by China’s censors.`\
 https://www.nytimes.com/2026/08/27/world/asia/flood-disaster-china-censorship.html
