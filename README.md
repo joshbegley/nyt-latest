@@ -114,8 +114,8 @@ https://www.nytimes.com/2026/08/26/style/teens-meta-instagram-facebook-restricti
 `Critics say the Trump administration’s focus is disproportionate, as analysts raise alarms about the growing strength of far-right movements.`\
 https://www.nytimes.com/2026/08/26/us/politics/trump-crackdown-far-left.html
 
-**Flood Kills at Least 160 Along Nepal-Tibet Border**\
-`Rescue efforts were underway on Wednesday after a flood swept through settlements along a Himalayan river valley, killing at least 160 people. Scientists say the disaster was caused by a massive chunk of ice that broke off a highland glacier.`\
+**Rescue Efforts Underway in Nepal and Tibet After Deadly Flood**\
+`Rescuers were searching for survivors after a devastating flood swept away villages and bridges. Officials said 180 people were confirmed killed.`\
 https://www.nytimes.com/video/world/asia/100000011115111/floods-nepal-tibet-deaths-rescue.html
 
 **Photos: A Deadly Flood Tears Through Nepal and Tibet**\
