@@ -1,3 +1,7 @@
+**Peter Cullen, Who Voiced Optimus Prime in ‘Transformers,’ Dies at 85**\
+`He voiced the main protagonist of the “Transformers” franchise on television and in blockbuster films for more than four decades. He also had success as Eeyore in “Winnie the Pooh” cartoons.`\
+https://www.nytimes.com/2026/08/27/arts/peter-cullen-dead.html
+
 **Judge Says Trump’s Name Should Stay Off Kennedy Center for Now**\
 `After the court forced the removal of the president’s name from the building’s title, the center devised a plan to add an inscription honoring President Trump.`\
 https://www.nytimes.com/2026/08/27/arts/music/trump-kennedy-center-name.html
