@@ -1,3 +1,11 @@
+**‘A Huge Paradox’: Nepal Region Hit by Flood is Known for Development and Disasters**\
+`The region has experienced an economic boom even as natural disasters have repeatedly struck, including a flood that killed more than 160 people on Wednesday.`\
+https://www.nytimes.com/2026/08/27/world/asia/a-huge-paradox-nepal-region-hit-by-flood-known-for-development-and-disasters.html
+
+**Prince William Is Still Silent About His Brother, Harry. Can That Last?**\
+`Years of long-distance division between Prince William and his younger brother will be tested now that Harry has returned to Britain.`\
+https://www.nytimes.com/2026/08/27/world/europe/prince-william-harry-uk.html
+
 **Live Updates: Rescuers Scour Himalayan Valleys for Survivors After Deadly Flood**\
 `More than 1,300 people were missing in Nepal and the Tibet region of China after a torrent of mud, water and ice swept away villages and bridges, killing at least 168.`\
 https://www.nytimes.com/live/2026/08/27/world/nepal-tibet-flash-floods

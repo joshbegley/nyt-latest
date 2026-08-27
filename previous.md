@@ -1,3 +1,7 @@
+**‘A Huge Paradox’: Nepal Region Hit by Flood is Known for Development and Disasters**\
+`The region has experienced an economic boom even as natural disasters have repeatedly struck, including a flood that killed more than 160 people on Wednesday.`\
+https://www.nytimes.com/2026/08/27/world/asia/a-huge-paradox-nepal-region-hit-by-flood-known-for-development-and-disasters.html
+
 **La de ‘Barbie’ también fue una odisea**\
 `Determinar qué género se apropia del viaje del héroe se trata de mucho más que una historia.`\
 https://www.nytimes.com/es/2026/08/27/espanol/opinion/odisea-barbie-guerra-cultural.html
@@ -36,7 +40,7 @@ https://www.nytimes.com/es/2026/08/27/espanol/america-latina/otero-alcantara-dis
 
 **Prince William Is Still Silent About His Brother, Harry. Can That Last?**\
 `Years of long-distance division between Prince William and his younger brother will be tested now that Harry has returned to Britain.`\
-https://www.nytimes.com/2026/08/27/world/europe/prince-william-is-still-silent-about-his-brother-harry.html
+https://www.nytimes.com/2026/08/27/world/europe/prince-william-harry-uk.html
 
 **Quote of the Day: Southerners Embraced Parton as Embodiment of Their Best**\
 `Quotation of the Day for: Thursday, August 27, 2026.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/26/world/china-ai-nepal-tibet-flood.html
 **Meta Will Pay Up to $17.1 Billion in Social Media Addiction Settlement**\
 `Meta has agreed to pay up $17.1 billion in a landmark settlement over social media addiction claims, pledging to limit the time teenagers can spend on its platforms and ban features that stoke mental health issues.`\
 https://www.nytimes.com/video/us/100000011114723/meta-social-media-lawsuit-settlement.html
-
-**Nvidia’s Profit Doubles to $59.69 Billion Thanks to A.I. Spending**\
-`Quarterly revenue also more than doubled, to $96.22 billion, the company said, topping expectations on Wall Street.`\
-https://www.nytimes.com/2026/08/26/technology/nvidia-profit-ai-doubles-earnings.html
 
