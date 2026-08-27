@@ -1,3 +1,11 @@
+**La tormenta tropical Dolly se forma y se moverá hacia el Caribe**\
+`Dolly podría fortalecerse levemente el jueves, pero pronto se moverá hacia una zona en el Caribe donde los sistemas tropicales generalmente se desintegran.`\
+https://www.nytimes.com/es/2026/08/27/espanol/tiempo-y-clima/dolly-tormenta-puerto-rico-cuba.html
+
+**Celebrities Are Raving About Full-Body Scans, Doctors Urge Caution**\
+`The scans are touted as a way to control your health. But researchers say healthy people don’t need them and they can lead to more harm than benefit.`\
+https://www.nytimes.com/2026/08/27/well/busy-phillips-prenuvo-body-scans.html
+
 **A Study of Brain Proteins Offers New Targets to Treat Autism**\
 `Researchers hope their findings could help inform future therapies for people with severe autism.`\
 https://www.nytimes.com/2026/08/27/science/autism-treatments.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/27/style/iceland-eclipse-festival.html
 **‘Here There Are Blueberries,’ About a Trove of Nazi Photos, Heads to Broadway**\
 `“Here There Are Blueberries,” about archivists debating how to handle a troubling gift, will open at the Barrymore Theater in November.`\
 https://www.nytimes.com/2026/08/27/theater/here-there-are-blueberries-broadway.html
-
-**ICE agent Christian Castro Released From Texas Jail After Minnesota Loses Court Fight**\
-`The state had sought to have the agent extradited from Texas to answer charges in Minneapolis related to an on-duty shooting that wounded an immigrant.`\
-https://www.nytimes.com/2026/08/27/us/christian-castro-jail-minnesota-texas-ice-agent.html
-
-**Rock Landslide and Glacial Collapse Likely Caused Floods in Nepal and Tibet, Scientists Say**\
-`New satellite imagery added to scientists’ understanding of the events that precipitated the deadly flooding in Nepal and Tibet.`\
-https://www.nytimes.com/2026/08/27/world/asia/nepal-flood-cause-landslide-glacier-collapse.html
 
