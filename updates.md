@@ -1,3 +1,7 @@
+**Starbucks Drops Drink Powder That Enveloped Baristas in Clouds of Dust**\
+`Baristas said the ingredient left them coughing and sneezing.`\
+https://www.nytimes.com/2026/08/27/us/politics/starbucks-silica-powder-blended-drinks.html
+
 **Recipe: Caramelized Fig Frozen Yogurt**\
 `Sonia Fillipow, the founder of the pop-up Sour Cherries, shares a frozen yogurt recipe that celebrates figs.`\
 https://www.nytimes.com/2026/08/27/t-magazine/fig-frozen-yogurt-recipe.html
