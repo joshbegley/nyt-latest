@@ -1,3 +1,7 @@
+**Getting Kids Offline**\
+`We explain the Meta deal.`\
+https://www.nytimes.com/2026/08/27/briefing/getting-kids-offline.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/admin/100000011116398/mosaic-27vid-nepal-floods-embeds-h-buildings-mud-226.html

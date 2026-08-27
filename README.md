@@ -1,3 +1,7 @@
+**In Japan, Yayoi Kusama Is Remembered as a Visionary and a Rebel**\
+`Artists, scholars and fans celebrated Ms. Kusama as a cultural giant who helped bring Japanese art to the masses.`\
+https://www.nytimes.com/2026/08/27/world/asia/yayoi-kusama-japan-artist.html
+
 **Getting Kids Offline**\
 `We explain the Meta deal.`\
 https://www.nytimes.com/2026/08/27/briefing/getting-kids-offline.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/27/movies/colony-review.html
 **‘Boorman and the Devil’ Review: Behind a Plagued Production**\
 `A documentary looks back at what went wrong — and right — during the making of “Exorcist II: The Heretic,” the director John Boorman’s maligned 1977 sequel.`\
 https://www.nytimes.com/2026/08/27/movies/boorman-and-the-devil-review.html
-
-**6 Feet Under in Coffins That Are Over the Top**\
-`Elaborate coffins, produced by Ghanaian artisans, are the centerpieces of funerals that celebrate the life of the deceased and get them to the afterlife in style.`\
-https://www.nytimes.com/2026/08/27/arts/design/ghana-design-coffins.html
 

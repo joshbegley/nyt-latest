@@ -1,3 +1,7 @@
+**Getting Kids Offline**\
+`We explain the Meta deal.`\
+https://www.nytimes.com/2026/08/27/briefing/getting-kids-offline.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/admin/100000011116398/mosaic-27vid-nepal-floods-embeds-h-buildings-mud-226.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/27/movies/boorman-and-the-devil-review.html
 **6 Feet Under in Coffins That Are Over the Top**\
 `Elaborate coffins, produced by Ghanaian artisans, are the centerpieces of funerals that celebrate the life of the deceased and get them to the afterlife in style.`\
 https://www.nytimes.com/2026/08/27/arts/design/ghana-design-coffins.html
-
-**‘The Last Sunrise’ Review: A Thrilling Spanish Summer**\
-`A dancer (Maia Reficco) travels to Mallorca and finds herself in a steamy romance with a local fisherman (Fernando Lindez).`\
-https://www.nytimes.com/2026/08/27/movies/the-last-sunrise-review.html
 
