@@ -1,3 +1,7 @@
+**O Canada!**\
+`Even Machiavelli wouldn’t like Trump’s America.`\
+https://www.nytimes.com/2026/08/27/opinion/trump-canada-trade-war-dolly-parton.html
+
 **Did Meta’s Big Settlement Actually Help It?**\
 `The tech giant’s landmark deal with states over teen use of social media may cost the company less than expected. It may hurt rivals more.`\
 https://www.nytimes.com/2026/08/27/business/dealbook/meta-settlement-teens.html
