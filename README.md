@@ -1,3 +1,7 @@
+**What Meta’s $17 Billion Settlement Means**\
+`Our reporter Cecilia Kang explains Meta’s settlement of a lawsuit claiming that the company’s social media platforms had harmed teenage users.`\
+https://www.nytimes.com/video/technology/100000011114831/explaining-metas-17-billion-dollar-settlement.html
+
 **Obama to Headline Fund-Raiser With Jeffries in New York**\
 `The top Democrats will gather party donors on Sept. 10, just as Republicans converge in Texas for their unusual midterm convention.`\
 https://www.nytimes.com/2026/08/27/us/politics/obama-fundraiser-gop-convention.html
@@ -7,7 +11,7 @@ https://www.nytimes.com/2026/08/27/us/politics/obama-fundraiser-gop-convention.h
 https://www.nytimes.com/2026/08/27/world/canada/canada-universities-hire-us-researchers.html
 
 **On Night of Deadly Air Canada Crash, Two LaGuardia Controllers Left Early**\
-`The Federal Aviation Administration has taken steps to fire the two workers, according to two people familiar with the investigation.`\
+`The Federal Aviation Administration has taken steps to fire the two workers at LaGuardia Airport, according to two people familiar with the investigation.`\
 https://www.nytimes.com/2026/08/27/nyregion/air-canada-crash-lga-air-traffic-controllers.html
 
 **Trump Signs Executive Order to Rename Lake Ontario to Lake America**\
@@ -23,7 +27,7 @@ https://www.nytimes.com/2026/08/27/business/dollar-general-dollar-tree.html
 https://www.nytimes.com/2026/08/27/opinion/us-canada-relations.html
 
 **Parents Say Meta Settlement Is Big, but Not Enough**\
-`Across the country, parents described feeling some validation after the landmark $1.7 billion settlement. But they also felt skeptical that much of anything will change.`\
+`Across the country, parents described feeling some validation after the landmark $17.1 billion settlement. But they also felt skeptical that much of anything will change.`\
 https://www.nytimes.com/2026/08/27/well/meta-settlement-parents.html
 
 **Men Are Rethinking Their Approach to Skin Care**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/27/us/politics/trump-texas-senate-fund-raiser.ht
 **U.S. to Withdraw 200 Troops Sent to Nigeria Under Trump**\
 `Officials say the small, limited deployment could serve as a model. But terrorists in the country have continued to attack and kill.`\
 https://www.nytimes.com/2026/08/27/us/politics/nigeria-trump-troops-terror-attacks.html
-
-**Starbucks Drops Drink Powder That Enveloped Baristas in Clouds of Dust**\
-`Baristas said the ingredient left them coughing and sneezing.`\
-https://www.nytimes.com/2026/08/27/us/politics/starbucks-silica-powder-blended-drinks.html
 
