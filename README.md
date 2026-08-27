@@ -1,3 +1,11 @@
+**Fired Journalists at Independent Military Publication Sue Pentagon**\
+`Three journalists dismissed from Stars and Stripes accused the government of violating their First Amendment rights, asking the courts to stop their termination.`\
+https://www.nytimes.com/2026/08/27/us/politics/stars-and-stripes-fired-journalists-lawsuit-pentagon.html
+
+**Why The Florida Democrat Angie Nixon Chose Pink**\
+`What role did the color pink play in State Representative Angie Nixon’s surprising win in the Senate primary in Florida? Our chief fashion critic, Vanessa Friedman, examines the strategic choice.`\
+https://www.nytimes.com/video/style/100000011109687/why-the-florida-democrat-angie-nixon-chose-pink.html
+
 **Fans Push to Rename Nashville Airport for Dolly Parton**\
 `A surging online push to rename Nashville International Airport for the beloved Tennessean superstar could get snagged in bureaucracy and politics.`\
 https://www.nytimes.com/2026/08/27/travel/dolly-parton-nashville-airport.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/27/business/ssense-canada-tariffs-trump.html
 **The Last Thing We Need Is a Bad Nuclear Deal From Trump**\
 `Congress should stop the president’s dangerous nuclear deal with Saudi Arabia.`\
 https://www.nytimes.com/2026/08/27/opinion/international-world/saudi-nuclear-deal-congress-trump.html
-
-**Laura Spector, Who Turned a Loathsome Vine Into Art, Dies at 71**\
-`Using Asian bittersweet, the much-hated invasive species, she created whimsical rustic objects and enchanting furniture.`\
-https://www.nytimes.com/2026/08/27/arts/design/laura-spector-dead.html
-
-**Muere Yayoi Kusama, la artista pop de los lunares y las habitaciones infinitas**\
-`Las pinturas cubiertas de lunares, las esculturas fálicas y los performances públicos de la artista japonesa causaron revuelo en Estados Unidos y toda Europa en la década de 1960.`\
-https://www.nytimes.com/es/2026/08/27/espanol/cultura/muere-yayoi-kusama.html
 
