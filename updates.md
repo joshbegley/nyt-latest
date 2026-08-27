@@ -1,3 +1,7 @@
+**‘A Huge Paradox’: Nepal Region Hit by Flood Is Known for Development and Disasters**\
+`The region has experienced an economic boom even as natural disasters have repeatedly struck, including a flood that killed more than 160 people on Wednesday.`\
+https://www.nytimes.com/2026/08/27/world/asia/nepal-rasuwa-flash-flood-economy.html
+
 **Fui actriz infantil. Nadie merece ese destino**\
 `Puede que hayamos trabajado en distintos sets, para distintos directores, en distintas épocas, pero todas llevamos las mismas heridas.`\
 https://www.nytimes.com/es/2026/08/27/espanol/opinion/actores-infantiles-problemas.html
