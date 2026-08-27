@@ -1,3 +1,7 @@
+**Yayoi Kusama, Pop Artist Who Expanded and Endured, Dies at 97**\
+`The Japanese artist’s polka-dot covered paintings, phallic sculptures and public performances caused a stir in New York City and Europe in the 1960s.`\
+https://www.nytimes.com/2026/08/26/arts/yayoi-kusama-dead.html
+
 **Cold Noodles With Zucchini**\
 `Zucchini loves the kiss of heat but can easily turn to mush. Briefly salting and drying half-moons of zucchini before quickly stir-frying them, mostly on one side, maintains their texture while lending so much flavor.`\
 https://www.nytimes.com/video/dining/100000011115547/cold-noodles-with-zucchini.html
