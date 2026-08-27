@@ -1,3 +1,7 @@
+**Todo lo que debes saber sobre el US Open 2026**\
+`El evento deportivo y social repleto de estrellas se lleva a cabo hasta el 13 de septiembre en el Centro Nacional de Tenis Billie Jean King, en la ciudad de Nueva York.`\
+https://www.nytimes.com/es/2026/08/27/espanol/deportes/abierto-estados-unidos-us-open-2026.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/asia/100000011116001/27vid-nepal-ugc-embed.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/26/arts/television/bill-cosby-assets-sexual-assa
 **Army Awards $2.2 Billion for ‘Microreactors’ On U.S. Bases**\
 `The move is part of the Trump administration’s efforts to spur the country’s largest expansion of nuclear power in more than three decades.`\
 https://www.nytimes.com/2026/08/26/climate/army-miniature-nuclear-reactors.html
-
-**Maryland Judge Blocks Democratic Redistricting Measure**\
-`A judge found that Democratic lawmakers had not followed proper procedures in passing a redistricting amendment, but the state Supreme Court will have the final say.`\
-https://www.nytimes.com/2026/08/26/us/maryland-redistricting-constitutional-amendment.html
 

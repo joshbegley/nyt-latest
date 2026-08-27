@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/asia/100000011116001/27vid-nepal-ugc-embed.html
+
 **A General Store Almost as Old as America**\
 `Ben Shattuck, the proprietor of Davoll’s in coastal Massachusetts, yearns for a retail world before chain stores and online shopping.`\
 https://www.nytimes.com/2026/08/27/style/general-store-massachusetts-davolls-shattuck-slate.html
