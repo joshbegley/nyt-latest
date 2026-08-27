@@ -1,3 +1,19 @@
+**Fired Journalists at Independent Military Publication Sue Pentagon**\
+`Three journalists dismissed from Stars and Stripes accused the government of violating their First Amendment rights, asking the courts to stop their termination.`\
+https://www.nytimes.com/2026/08/27/us/politics/stars-and-stripes-fired-journalists-lawsuit-pentagon.html
+
+**Why The Florida Democrat Angie Nixon Chose Pink**\
+`What role did the color pink play in State Representative Angie Nixon’s surprising win in the Senate primary in Florida? Our chief fashion critic, Vanessa Friedman, examines the strategic choice.`\
+https://www.nytimes.com/video/style/100000011109687/why-the-florida-democrat-angie-nixon-chose-pink.html
+
+**Fans Push to Rename Nashville Airport for Dolly Parton**\
+`A surging online push to rename Nashville International Airport for the beloved Tennessean superstar could get snagged in bureaucracy and politics.`\
+https://www.nytimes.com/2026/08/27/travel/dolly-parton-nashville-airport.html
+
+**Jaye P. Morgan, Hit-Making Singer and Bawdy TV Personality, Dies at 94**\
+`With a humorous stage name adapted from that of the New York financier, she made a 1950s Hit Parade splash and later was a flamboyant talk-show regular.`\
+https://www.nytimes.com/2026/08/27/arts/jaye-p-morgan-dead.html
+
 **Check These Dishes Off Your Summer Bucket List Before It’s Too Late**\
 `Jerk chicken in the heart of Flatbush, an actually affordable lobster roll and all the soft shell crab you can eat.`\
 https://www.nytimes.com/2026/08/27/dining/bucket-list.html
@@ -162,8 +178,8 @@ https://www.nytimes.com/2026/08/27/world/europe/denmark-greenland-forced-contrac
 `Scientists and disaster response researchers said Nepal’s early flood warning system relied on a conventional network of river gauges in this remote region.`\
 https://www.nytimes.com/2026/08/27/world/asia/speed-of-flash-floods-likely-overwhelmed-nepals-warning-system-experts-say.html
 
-**Meta Settles. Finally.**\
-`Meta’s settlement is far from perfect, but every blow counts as the company declines.`\
+**As Meta Enters Its Zombie Era, Every Blow Counts**\
+`Meta’s settlement is far from perfect, but it’s better than nothing.`\
 https://www.nytimes.com/2026/08/27/opinion/meta-settlement-social-media-tech.html
 
 **Trump representa un dilema para los republicanos de cara a las elecciones intermedias**\
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/08/27/business/ssense-canada-tariffs-trump.html
 **The Last Thing We Need Is a Bad Nuclear Deal From Trump**\
 `Congress should stop the president’s dangerous nuclear deal with Saudi Arabia.`\
 https://www.nytimes.com/2026/08/27/opinion/international-world/saudi-nuclear-deal-congress-trump.html
-
-**Laura Spector, Who Turned a Loathsome Vine Into Art, Dies at 71**\
-`Using Asian bittersweet, the much-hated invasive species, she created whimsical rustic objects and enchanting furniture.`\
-https://www.nytimes.com/2026/08/27/arts/design/laura-spector-dead.html
-
-**Muere Yayoi Kusama, la artista pop de los lunares y las habitaciones infinitas**\
-`Las pinturas cubiertas de lunares, las esculturas fálicas y los performances públicos de la artista japonesa causaron revuelo en Estados Unidos y toda Europa en la década de 1960.`\
-https://www.nytimes.com/es/2026/08/27/espanol/cultura/muere-yayoi-kusama.html
-
-**Yielding on French Could Restart Trade Talks, Canadian Officials Say**\
-`Canada’s minister in charge of trade with the U.S. was responding to comments by Jamieson Greer, the U.S. trade representative. But that was before any mention of Lake Ontario.`\
-https://www.nytimes.com/2026/08/27/world/canada/trade-war-french-language.html
-
-**Today, In Short**\
-`Meta. Harry Styles. And “Outer Banks.”`\
-https://www.nytimes.com/2026/08/27/briefing/today-in-short.html
 

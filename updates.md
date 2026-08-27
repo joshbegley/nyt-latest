@@ -1,3 +1,23 @@
+**Fired Journalists at Independent Military Publication Sue Pentagon**\
+`Three journalists dismissed from Stars and Stripes accused the government of violating their First Amendment rights, asking the courts to stop their termination.`\
+https://www.nytimes.com/2026/08/27/us/politics/stars-and-stripes-fired-journalists-lawsuit-pentagon.html
+
+**Why The Florida Democrat Angie Nixon Chose Pink**\
+`What role did the color pink play in State Representative Angie Nixon’s surprising win in the Senate primary in Florida? Our chief fashion critic, Vanessa Friedman, examines the strategic choice.`\
+https://www.nytimes.com/video/style/100000011109687/why-the-florida-democrat-angie-nixon-chose-pink.html
+
+**Fans Push to Rename Nashville Airport for Dolly Parton**\
+`A surging online push to rename Nashville International Airport for the beloved Tennessean superstar could get snagged in bureaucracy and politics.`\
+https://www.nytimes.com/2026/08/27/travel/dolly-parton-nashville-airport.html
+
+**Jaye P. Morgan, Hit-Making Singer and Bawdy TV Personality, Dies at 94**\
+`With a humorous stage name adapted from that of the New York financier, she made a 1950s Hit Parade splash and later was a flamboyant talk-show regular.`\
+https://www.nytimes.com/2026/08/27/arts/jaye-p-morgan-dead.html
+
+**As Meta Enters Its Zombie Era, Every Blow Counts**\
+`Meta’s settlement is far from perfect, but it’s better than nothing.`\
+https://www.nytimes.com/2026/08/27/opinion/meta-settlement-social-media-tech.html
+
 **Check These Dishes Off Your Summer Bucket List Before It’s Too Late**\
 `Jerk chicken in the heart of Flatbush, an actually affordable lobster roll and all the soft shell crab you can eat.`\
 https://www.nytimes.com/2026/08/27/dining/bucket-list.html
