@@ -1,3 +1,11 @@
+**Trump Administration to Expand Deportation Flights to Haiti**\
+`Flights to the Caribbean nation will increase from once a month to once a week now that the Supreme Court allowed President Trump to cancel a humanitarian program.`\
+https://www.nytimes.com/2026/08/27/us/politics/haiti-deportation-flights.html
+
+**Lindsay Clancy Murder Trial Closing Arguments Begin**\
+`Lawyers are making their final pitches to the jury as to whether or not Ms. Clancy should be held criminally responsible for her children’s deaths.`\
+https://www.nytimes.com/2026/08/27/us/lindsay-clancy-trial-closing.html
+
 **En Latinoamérica, los demócratas socialistas son el centro de atención**\
 `El éxito de los candidatos progresistas en EE. UU. está inspirando a los izquierdistas en el extranjero que enfrentan la presión del gobierno de Trump y sus aliados.`\
 https://www.nytimes.com/es/2026/08/27/espanol/america-latina/latinoamerica-izquierda-democratas-socialistas.html
