@@ -1,3 +1,11 @@
+**Trump Raises Money in Texas With Control of the Senate in the Balance**\
+`Many Republicans are hoping for financial support from President Trump, whose fund-raising power in the party remains unmatched despite his low poll numbers.`\
+https://www.nytimes.com/2026/08/27/us/politics/trump-texas-senate-fund-raiser.html
+
+**What Ever Happened to the Young, Exciting Moderate Democrats?**\
+`Seth Moulton is trying to lead the next generation of Democratic leaders — and has been for a while.`\
+https://www.nytimes.com/2026/08/27/opinion/democrats-seth-moulton-massachusetts-senate.html
+
 **U.S. to Withdraw 200 Troops Sent to Nigeria Under Trump**\
 `Officials say the small, limited deployment could serve as a model. But terrorists in the country have continued to attack and kill.`\
 https://www.nytimes.com/2026/08/27/us/politics/nigeria-trump-troops-terror-attacks.html

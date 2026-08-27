@@ -1,3 +1,7 @@
+**En Latinoamérica, los demócratas socialistas son el centro de atención**\
+`El éxito de los candidatos progresistas en EE. UU. está inspirando a los izquierdistas en el extranjero que enfrentan la presión del gobierno de Trump y sus aliados.`\
+https://www.nytimes.com/es/2026/08/27/espanol/america-latina/latinoamerica-izquierda-democratas-socialistas.html
+
 **Trump Raises Money in Texas With Control of the Senate in the Balance**\
 `Many Republicans are hoping for financial support from President Trump, whose fund-raising power in the party remains unmatched despite his low poll numbers.`\
 https://www.nytimes.com/2026/08/27/us/politics/trump-texas-senate-fund-raiser.html
@@ -27,7 +31,7 @@ https://www.nytimes.com/2026/08/27/us/lindsay-clancy-trial-closing.html
 https://www.nytimes.com/2026/08/27/technology/meta-anthropic-frenemies.html
 
 **“Anxious Generation” Author Jonathan Haidt on the Meta Settlement**\
-`In “The Anxious Generation,” the sociologist laid out the evils of social media for kids. The landmark Meta settlement seems to agree.`\
+`In “The Anxious Generation,” he laid out the evils of social media for kids. The landmark Meta settlement seems to agree.`\
 https://www.nytimes.com/2026/08/27/style/meta-jonathan-haidt-anxious-generation.html
 
 **California Lawmakers Pass Plug-In Solar Bill**\
@@ -178,7 +182,7 @@ https://www.nytimes.com/2026/08/27/podcasts/take-me-back-to-the-summer-of-86.htm
 `Bozeman is blooming, with nationally recognized restaurants, galleries that honor its Indigenous roots and more to complement its show-stopping scenery.`\
 https://www.nytimes.com/interactive/2026/08/27/travel/things-to-do-bozeman.html
 
-**Why Some in Canada Want Out of the F-35 Deal With the U.S.**\
+**As Anger Grows Over Trump Tariffs, Some in Canada Want Out of U.S. F-35 Deal**\
 `A year into a government review of the purchase of as many as 88 F-35s, one premier says buying American warplanes makes no sense in the face of President Trump’s latest tariffs.`\
 https://www.nytimes.com/2026/08/27/world/canada/trade-war-canada-us-f35-carney-trump.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/27/us/politics/trump-midterm-election-republican
 **Loving Dolly Parton Was Easy. Understanding Her Was Hard.**\
 `She didn’t see herself as a saint; she identified as something we needed even more: a writer.`\
 https://www.nytimes.com/2026/08/27/opinion/dolly-parton-appalachia-legacy.html
-
-**Lee Friedlander Is Funny. Seriously.**\
-`In his new book of photography, “Life Still,” a veteran observer of urban America makes us look twice at an unsung side of his talent.`\
-https://www.nytimes.com/2026/08/27/arts/design/lee-friedlander-book-photographs-aperture.html
 
