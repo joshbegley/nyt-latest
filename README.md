@@ -1,10 +1,14 @@
+**C.I.A. Chief Delivered Bleak Assessment of Russia’s War in Secretive Moscow Visit**\
+`C.I.A. analysts have questioned whether President Vladimir V. Putin’s advisers have given him honest assessments of the conflict.`\
+https://www.nytimes.com/2026/08/27/us/politics/cia-director-russia-ukraine.html
+
 **La tormenta tropical Dolly se forma y se moverá hacia el Caribe**\
 `Dolly podría fortalecerse levemente el jueves, pero pronto se moverá hacia una zona en el Caribe donde los sistemas tropicales generalmente se desintegran.`\
 https://www.nytimes.com/es/2026/08/27/espanol/tiempo-y-clima/dolly-tormenta-puerto-rico-cuba.html
 
 **Celebrities Are Raving About Full-Body Scans, Doctors Urge Caution**\
 `The scans are touted as a way to control your health. But researchers say healthy people don’t need them and they can lead to more harm than benefit.`\
-https://www.nytimes.com/2026/08/27/well/busy-phillips-prenuvo-body-scans.html
+https://www.nytimes.com/2026/08/27/well/busy-philipps-prenuvo-body-scans.html
 
 **A Study of Brain Proteins Offers New Targets to Treat Autism**\
 `Researchers hope their findings could help inform future therapies for people with severe autism.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/27/world/americas/mexico-influencer-shooting-gas
 **Inside the Iceland Eclipse Festival: $1,000-a-Week Yurts and Endless Optimism**\
 `At a festival on a disc golf course, on a peninsula in Iceland, waiting for the sky to descend into darkness.`\
 https://www.nytimes.com/2026/08/27/style/iceland-eclipse-festival.html
-
-**‘Here There Are Blueberries,’ About a Trove of Nazi Photos, Heads to Broadway**\
-`“Here There Are Blueberries,” about archivists debating how to handle a troubling gift, will open at the Barrymore Theater in November.`\
-https://www.nytimes.com/2026/08/27/theater/here-there-are-blueberries-broadway.html
 

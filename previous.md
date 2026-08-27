@@ -1,3 +1,27 @@
+**La tormenta tropical Dolly se forma y se moverá hacia el Caribe**\
+`Dolly podría fortalecerse levemente el jueves, pero pronto se moverá hacia una zona en el Caribe donde los sistemas tropicales generalmente se desintegran.`\
+https://www.nytimes.com/es/2026/08/27/espanol/tiempo-y-clima/dolly-tormenta-puerto-rico-cuba.html
+
+**Celebrities Are Raving About Full-Body Scans, Doctors Urge Caution**\
+`The scans are touted as a way to control your health. But researchers say healthy people don’t need them and they can lead to more harm than benefit.`\
+https://www.nytimes.com/2026/08/27/well/busy-phillips-prenuvo-body-scans.html
+
+**A Study of Brain Proteins Offers New Targets to Treat Autism**\
+`Researchers hope their findings could help inform future therapies for people with severe autism.`\
+https://www.nytimes.com/2026/08/27/science/autism-treatments.html
+
+**Books Our Editors Loved This Week**\
+`Reading recommendations from critics and editors at The New York Times`\
+https://www.nytimes.com/2026/08/27/books/review/new-recommended-books.html
+
+**Malaria, Likely Spread by Mosquito on Plane, Kills 2 Airport Workers in Germany**\
+`Six employees at Frankfurt Airport were infected this summer, according to German health officials and the airport’s operator. Four recovered.`\
+https://www.nytimes.com/2026/08/27/world/europe/malaria-deaths-frankfurt-airport.html
+
+**El otro legado de Dolly Parton: una fortuna donada a quienes lo necesitaban**\
+`La estrella del country apoyó la alfabetización en la primera infancia, la ayuda en casos de desastre, el desarrollo de la vacuna contra la COVID-19 y más.`\
+https://www.nytimes.com/es/2026/08/27/espanol/cultura/dolly-parton-donaciones-dinero.html
+
 **Box Turtles Rescued From Smugglers Find Haven at the Bronx Zoo**\
 `Box turtles that have been rescued from smugglers have been given a second chance at the Bronx Zoo, where they can rehabilitate before returning to their natural habitats.`\
 https://www.nytimes.com/video/us/100000011116917/box-turtles-rescued-from-smugglers-find-haven-at-the-bronx-zoo.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/08/27/style/iceland-eclipse-festival.html
 **‘Here There Are Blueberries,’ About a Trove of Nazi Photos, Heads to Broadway**\
 `“Here There Are Blueberries,” about archivists debating how to handle a troubling gift, will open at the Barrymore Theater in November.`\
 https://www.nytimes.com/2026/08/27/theater/here-there-are-blueberries-broadway.html
-
-**ICE agent Christian Castro Released From Texas Jail After Minnesota Loses Court Fight**\
-`The state had sought to have the agent extradited from Texas to answer charges in Minneapolis related to an on-duty shooting that wounded an immigrant.`\
-https://www.nytimes.com/2026/08/27/us/christian-castro-jail-minnesota-texas-ice-agent.html
-
-**Rock Landslide and Glacial Collapse Likely Caused Floods in Nepal and Tibet, Scientists Say**\
-`New satellite imagery added to scientists’ understanding of the events that precipitated the deadly flooding in Nepal and Tibet.`\
-https://www.nytimes.com/2026/08/27/world/asia/nepal-flood-cause-landslide-glacier-collapse.html
-
-**Ratko Mladic, Murderous ‘Butcher of Bosnia,’ Dies at 83**\
-`A general during the Balkan wars of the 1990s, he was convicted in the killing of some 8,000 Muslims at Srebrenica, Europe’s deadliest massacre since World War II.`\
-https://www.nytimes.com/2026/08/27/world/europe/ratko-mladic-dead.html
-
-**Miley Cyrus on Dolly Parton: ‘We Chose Each Other’**\
-`Miley Cyrus reflected on her bond with Dolly Parton on “The Interview.” She shared the story of how the country music star became her godmother, and how she was a guiding force throughout her life: “Instead of seeing myself retract in awe of her, I just felt myself going forward and feeling really safe,” Cyrus told Lulu-Garcia Navarro.`\
-https://www.nytimes.com/video/podcasts/100000011115626/miley-cyrus-on-dolly-parton-we-chose-each-other.html
-
-**Yayoi Kusama: A Life in Pictures**\
-`Whether making dot-covered sculptures or wild performance pieces, the Japanese artist grabbed critical and popular acclaim.`\
-https://www.nytimes.com/2026/08/27/arts/design/yayoi-kusama-photos-artwork.html
-
-**Did Meta’s Big Settlement Actually Help It?**\
-`The tech giant’s landmark deal with states over teen use of social media may cost the company less than expected. It may hurt rivals more.`\
-https://www.nytimes.com/2026/08/27/business/dealbook/meta-settlement-teens.html
 

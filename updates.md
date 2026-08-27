@@ -1,3 +1,27 @@
+**La tormenta tropical Dolly se forma y se moverá hacia el Caribe**\
+`Dolly podría fortalecerse levemente el jueves, pero pronto se moverá hacia una zona en el Caribe donde los sistemas tropicales generalmente se desintegran.`\
+https://www.nytimes.com/es/2026/08/27/espanol/tiempo-y-clima/dolly-tormenta-puerto-rico-cuba.html
+
+**Celebrities Are Raving About Full-Body Scans, Doctors Urge Caution**\
+`The scans are touted as a way to control your health. But researchers say healthy people don’t need them and they can lead to more harm than benefit.`\
+https://www.nytimes.com/2026/08/27/well/busy-phillips-prenuvo-body-scans.html
+
+**A Study of Brain Proteins Offers New Targets to Treat Autism**\
+`Researchers hope their findings could help inform future therapies for people with severe autism.`\
+https://www.nytimes.com/2026/08/27/science/autism-treatments.html
+
+**Books Our Editors Loved This Week**\
+`Reading recommendations from critics and editors at The New York Times`\
+https://www.nytimes.com/2026/08/27/books/review/new-recommended-books.html
+
+**Malaria, Likely Spread by Mosquito on Plane, Kills 2 Airport Workers in Germany**\
+`Six employees at Frankfurt Airport were infected this summer, according to German health officials and the airport’s operator. Four recovered.`\
+https://www.nytimes.com/2026/08/27/world/europe/malaria-deaths-frankfurt-airport.html
+
+**El otro legado de Dolly Parton: una fortuna donada a quienes lo necesitaban**\
+`La estrella del country apoyó la alfabetización en la primera infancia, la ayuda en casos de desastre, el desarrollo de la vacuna contra la COVID-19 y más.`\
+https://www.nytimes.com/es/2026/08/27/espanol/cultura/dolly-parton-donaciones-dinero.html
+
 **Box Turtles Rescued From Smugglers Find Haven at the Bronx Zoo**\
 `Box turtles that have been rescued from smugglers have been given a second chance at the Bronx Zoo, where they can rehabilitate before returning to their natural habitats.`\
 https://www.nytimes.com/video/us/100000011116917/box-turtles-rescued-from-smugglers-find-haven-at-the-bronx-zoo.html
