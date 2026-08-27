@@ -1,3 +1,19 @@
+**A Copenhagen Hotel Overlooking One of the City’s Largest Gardens**\
+`Plus: sea kale on menus, stylish garden wear and more recommendations from T Magazine.`\
+https://www.nytimes.com/2026/08/27/t-magazine/copenhagen-hotel-house-of-josty-frederiksberg-gardens.html
+
+**Closing Arguments Begin in Lindsay Clancy Murder Trial**\
+`Lawyers are making their final pitches to the jury as to whether or not Ms. Clancy should be held criminally responsible for her children’s deaths.`\
+https://www.nytimes.com/2026/08/27/us/lindsay-clancy-trial-closing.html
+
+**Meta Projected It Could Spend $10 Billion on Anthropic’s A.I.**\
+`The social networking giant projected it could spend $10 billion annually on Anthropic’s tools, illustrating the friend-foe relationships underlying the A.I. race.`\
+https://www.nytimes.com/2026/08/27/technology/meta-anthropic-frenemies.html
+
+**“Anxious Generation” Author Jonathan Haidt on the Meta Settlement**\
+`In “The Anxious Generation,” the sociologist laid out the evils of social media for kids. The landmark Meta settlement seems to agree.`\
+https://www.nytimes.com/2026/08/27/style/jonathan-haidt-was-right.html
+
 **California Lawmakers Pass Plug-In Solar Bill**\
 `Legislatures in nearly a dozen states have voted to legalize use of the technology, which can help homeowners reduce their rising electricity costs.`\
 https://www.nytimes.com/2026/08/27/business/energy-environment/california-legislature-plugin-solar.html
@@ -130,7 +146,7 @@ https://www.nytimes.com/2026/08/27/pageoneplus/corrections-aug-27-2026.html
 `Seth Moulton is trying to lead the next generation of Democratic leaders — and has been for a while.`\
 https://www.nytimes.com/2026/08/27/opinion/democrats-seth-moulton-massachusetts-senate.html
 
-**O Canada!**\
+**The Pompous Proof of an America in Decline**\
 `Even Machiavelli wouldn’t like Trump’s America.`\
 https://www.nytimes.com/2026/08/27/opinion/trump-canada-trade-war-dolly-parton.html
 
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/08/27/opinion/us-treasury-debt-credit.html
 **‘Cult’ Used to Mean Something. Now It Applies to Taylor Swift and Trader Joe’s.**\
 `The word today applies to more than religious sects, but it says something about our worshipful attitude toward consumption.`\
 https://www.nytimes.com/2026/08/27/magazine/cult-language-consumer-religion.html
-
-**5 New Hotels for Your Late Summer Getaway**\
-`From Cape Cod to Croatia, here’s where to enjoy the end of the summer.`\
-https://www.nytimes.com/2026/08/27/travel/summer-new-hotels.html
-
-**Harry Styles Fans Camp Out for the Best View of the Star**\
-`As early as Tuesday, general admission ticket holders waited for the line (before the line) that would determine their vantage points at Wednesday night’s show.`\
-https://www.nytimes.com/2026/08/27/arts/music/harry-styles-msg-residency-fans.html
-
-**Parking, Street Cleaning and Equity: A Brooklyn Debate**\
-`How many times a week should drivers have to move their cars for street cleaning? In Prospect Heights, a pilot program is easing the rules.`\
-https://www.nytimes.com/2026/08/27/nyregion/alternate-side-parking-brooklyn.html
-
-**Homes for Sale in Manhattan and Brooklyn**\
-`This week’s properties are in Midtown East, on the Upper East Side and in Crown Heights.`\
-https://www.nytimes.com/2026/08/27/realestate/housing-market-nyc.html
 

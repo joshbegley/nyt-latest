@@ -12,7 +12,7 @@ https://www.nytimes.com/2026/08/27/technology/meta-anthropic-frenemies.html
 
 **“Anxious Generation” Author Jonathan Haidt on the Meta Settlement**\
 `In “The Anxious Generation,” the sociologist laid out the evils of social media for kids. The landmark Meta settlement seems to agree.`\
-https://www.nytimes.com/2026/08/27/style/jonathan-haidt-was-right.html
+https://www.nytimes.com/2026/08/27/style/meta-jonathan-haidt-anxious-generation.html
 
 **California Lawmakers Pass Plug-In Solar Bill**\
 `Legislatures in nearly a dozen states have voted to legalize use of the technology, which can help homeowners reduce their rising electricity costs.`\

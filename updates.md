@@ -1,3 +1,23 @@
+**A Copenhagen Hotel Overlooking One of the City’s Largest Gardens**\
+`Plus: sea kale on menus, stylish garden wear and more recommendations from T Magazine.`\
+https://www.nytimes.com/2026/08/27/t-magazine/copenhagen-hotel-house-of-josty-frederiksberg-gardens.html
+
+**Closing Arguments Begin in Lindsay Clancy Murder Trial**\
+`Lawyers are making their final pitches to the jury as to whether or not Ms. Clancy should be held criminally responsible for her children’s deaths.`\
+https://www.nytimes.com/2026/08/27/us/lindsay-clancy-trial-closing.html
+
+**Meta Projected It Could Spend $10 Billion on Anthropic’s A.I.**\
+`The social networking giant projected it could spend $10 billion annually on Anthropic’s tools, illustrating the friend-foe relationships underlying the A.I. race.`\
+https://www.nytimes.com/2026/08/27/technology/meta-anthropic-frenemies.html
+
+**“Anxious Generation” Author Jonathan Haidt on the Meta Settlement**\
+`In “The Anxious Generation,” the sociologist laid out the evils of social media for kids. The landmark Meta settlement seems to agree.`\
+https://www.nytimes.com/2026/08/27/style/jonathan-haidt-was-right.html
+
+**The Pompous Proof of an America in Decline**\
+`Even Machiavelli wouldn’t like Trump’s America.`\
+https://www.nytimes.com/2026/08/27/opinion/trump-canada-trade-war-dolly-parton.html
+
 **Yayoi Kusama: A Life in Pictures**\
 `Whether making dot-covered sculptures or wild performance pieces, the Japanese artist grabbed critical and popular acclaim.`\
 https://www.nytimes.com/2026/08/27/arts/design/yayoi-kusama-photos-artwork.html
