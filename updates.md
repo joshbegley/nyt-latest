@@ -1,3 +1,11 @@
+**Inside the Iceland Eclipse Festival: $1,000-a-Week Yurts and Endless Optimism**\
+`At a festival on a disc golf course, on a peninsula in Iceland, waiting for the sky to descend into darkness.`\
+https://www.nytimes.com/2026/08/27/style/iceland-eclipse-festival.html
+
+**‘Here There Are Blueberries,’ About a Trove of Nazi Photos, Heads to Broadway**\
+`“Here There Are Blueberries,” about archivists debating how to handle a troubling gift, will open at the Barrymore Theater in November.`\
+https://www.nytimes.com/2026/08/27/theater/here-there-are-blueberries-broadway.html
+
 **ICE agent Christian Castro Released From Texas Jail After Minnesota Loses Court Fight**\
 `The state had sought to have the agent extradited from Texas to answer charges in Minneapolis related to an on-duty shooting that wounded an immigrant.`\
 https://www.nytimes.com/2026/08/27/us/christian-castro-jail-minnesota-texas-ice-agent.html
