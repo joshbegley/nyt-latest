@@ -1,3 +1,7 @@
+**Un disidente cubano llega a Miami y recibe duras críticas**\
+`Luis Manuel Otero Alcántara, el artista cubano que fue liberado en julio, llegó a EE. UU. y ahora esquiva las críticas de los exiliados que alguna vez le dieron la bienvenida.`\
+https://www.nytimes.com/es/2026/08/27/espanol/america-latina/otero-alcantara-disidente-cubano-miami.html
+
 **Prince William Is Still Silent About His Brother, Harry. Can That Last?**\
 `Years of long-distance division between Prince William and his younger brother will be tested now that Harry has returned to Britain.`\
 https://www.nytimes.com/2026/08/27/world/europe/prince-william-is-still-silent-about-his-brother-harry.html
