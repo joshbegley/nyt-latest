@@ -1,3 +1,7 @@
+**China’s Information Control Could Hamper Flood Rescue Efforts in Tibet**\
+`Videos of the disaster, which tore through the border area between Tibet and Nepal, have been removed from social media by China’s censors.`\
+https://www.nytimes.com/2026/08/27/world/asia/flood-disaster-china-censorship.html
+
 **Fui actriz infantil. Nadie merece ese destino**\
 `Puede que hayamos trabajado en distintos sets, para distintos directores, en distintas épocas, pero todas llevamos las mismas heridas.`\
 https://www.nytimes.com/es/2026/08/27/espanol/opinion/actores-infantiles-problemas.html

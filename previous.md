@@ -194,7 +194,3 @@ https://www.nytimes.com/interactive/2026/08/26/world/asia/nepal-china-flash-floo
 `Philan-Tam-Duy Le, 35, of Julian, Calif., was taken into custody for “being in possession of the guillotine,” the police said.`\
 https://www.nytimes.com/2026/08/26/us/man-arrested-guillotine-capitol.html
 
-**Why China Loves A.I.**\
-`People in China are way more optimistic about the technology than Americans. We look at what’s behind the difference.`\
-https://www.nytimes.com/2026/08/26/world/china-ai-nepal-tibet-flood.html
-
