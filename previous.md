@@ -1,3 +1,7 @@
+**De coronel en Venezuela a actor en Florida y de vuelta como deportado**\
+`Un oficial retirado de la Guardia Nacional de Venezuela solía liderar una unidad militar represiva. En 2018, se descubrió que tenía una nueva vida en los suburbios de Miami como extra de TV.`\
+https://www.nytimes.com/es/2026/08/27/espanol/america-latina/quero-silva-venezolano-deportado-tortura.html
+
 **‘I Need to Go to the Hospital,’ Delta Pilot Tells Air Traffic Control**\
 `A Delta Air Lines flight from Los Angeles to Boston safely diverted to Detroit after the captain of a Boeing 757 became ill.`\
 https://www.nytimes.com/2026/08/27/us/delta-pilot-ill.html
@@ -190,11 +194,7 @@ https://www.nytimes.com/2026/08/27/books/review/new-recommended-books.html
 `Six employees at Frankfurt Airport were infected this summer, according to German health officials and the airport’s operator. Four recovered.`\
 https://www.nytimes.com/2026/08/27/world/europe/malaria-deaths-frankfurt-airport.html
 
-**El otro legado de Dolly Parton: una fortuna donada a quienes lo necesitaban**\
-`La estrella del country apoyó la alfabetización en la primera infancia, la ayuda en casos de desastre, el desarrollo de la vacuna contra la COVID-19 y más.`\
-https://www.nytimes.com/es/2026/08/27/espanol/cultura/dolly-parton-donaciones-dinero.html
-
-**Box Turtles Rescued From Smugglers Find Haven at the Bronx Zoo**\
-`Box turtles that have been rescued from smugglers have been given a second chance at the Bronx Zoo, where they can rehabilitate before returning to their natural habitats.`\
-https://www.nytimes.com/video/us/100000011116917/box-turtles-rescued-from-smugglers-find-haven-at-the-bronx-zoo.html
+**Trump Administration Live: U.S. to Step Up Deportations to Haiti Despite Warning Not to Visit**\
+`(No description)`\
+https://www.nytimes.com/live/2026/08/27/us/trump-news
 
