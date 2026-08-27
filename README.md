@@ -1,4 +1,8 @@
-**Fire at Home of Canadian Parliament Member Is Under Investigation**\
+**What to Know About New Covid Vaccines for Fall 2026**\
+`The shots have been approved for people 65 and older, and for younger people with underlying conditions. Others may be able to get them off label.`\
+https://www.nytimes.com/2026/08/27/well/live/covid-vaccines-fall-2026.html
+
+**Fire Outside Home of Canadian Parliament Member Is Under Investigation**\
 `Two cars were destroyed at the Toronto home of Salma Zahid, a Liberal member of Parliament, in an overnight episode condemned by Prime Minister Mark Carney.`\
 https://www.nytimes.com/2026/08/27/world/canada/salma-zahid-mp-canada-arson.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/27/technology/openai-letter-ai-attacks.html
 **DeSantis Administration Misspent $10 Million, Grand Jury Says**\
 `A charity tied to Gov. Ron DeSantis’s wife received the money from a state Medicaid settlement and diverted it to political committees supporting a cause favored by the governor.`\
 https://www.nytimes.com/2026/08/27/us/casey-desantis-charity-hope-garden-medicaid-settlement.html
-
-**On Spoons**\
-`Specifically, spoon salads: the best kind of salad, filled with uniform bits of veg.`\
-https://www.nytimes.com/2026/08/27/dining/on-spoons.html
 
