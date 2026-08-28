@@ -1,3 +1,11 @@
+**Prediction Markets Should Be Regulated as Gambling, Appeals Court Says**\
+`The outcome contradicted an earlier appeals court decision. Federal regulators said the split rulings called for resolution by the Supreme Court.`\
+https://www.nytimes.com/2026/08/28/technology/kalshi-prediction-markets-federal-courts.html
+
+**George Cave, C.I.A. Agent With a Role in Iran-Contra, Dies at 97**\
+`He worked throughout the Middle East before joining a secret team that tried to obtain the release of Western hostages in Lebanon in exchange for arms sent to Iran.`\
+https://www.nytimes.com/2026/08/28/us/george-w-cave-dead.html
+
 **Chevron estaría en conversaciones para expandirse en Venezuela**\
 `El gigante petrolero afianza su apuesta de permanecer en Venezuela, donde ya representa alrededor de una cuarta parte de la producción petrolera del país.`\
 https://www.nytimes.com/es/2026/08/28/espanol/negocios/venezuela-chevron-petroleo-trump.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/arts/100000010968781/lexi-minetree-legally-blonde-
 **Controversy Erupts Over Pennsylvania Measles Deaths**\
 `The conflict, which largely falls along political lines, centers on the details of one of the deaths, in a newborn.`\
 https://www.nytimes.com/2026/08/28/well/pennsylvania-measles-deaths-controversy.html
-
-**Trump Updates $15 Billion Libel Lawsuit Against The New York Times**\
-`The president has argued that the news organization sought to undermine his 2024 presidential campaign by disparaging his reputation as a businessman. The Times has moved to dismiss the lawsuit.`\
-https://www.nytimes.com/2026/08/28/business/media/trump-new-york-times-lawsuit.html
-
-**Judge Throws Out Key 9/11 Confession as Tainted by Torture**\
-`Prosecutors argued the statements by the defendant, Khalid Shaikh Mohammed, were crucial evidence for the eventual death-penalty trial.`\
-https://www.nytimes.com/2026/08/28/us/politics/september11-confession-trial.html
 
