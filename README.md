@@ -194,7 +194,7 @@ https://www.nytimes.com/2026/08/28/books/review/shaun-tan-hometown.html
 `Tourists still flock to the picturesque 16th-century Dunguaire Castle on Galway Bay. But in recent years, a dispute over ownership has prevented visitors from entering.`\
 https://www.nytimes.com/2026/08/28/world/europe/ireland-dunguaire-castle.html
 
-**NASA’s Nancy Grace Roman Telescope Promises a Breakthrough in Cosmic Exploration**\
-`NASA’s latest offering to the stars comes from a legacy of great observatories that enabled decades of discovery and unearthed new mysteries about the universe.`\
-https://www.nytimes.com/2026/08/28/science/nasa-nancy-grace-roman-space-telescope.html
+**Live Updates: New Nepal Flood Warning Clouds Desperate Search for Survivors**\
+`The Nepali police warned people to head for safety because more water could soak flood-ravaged villages. China said that the risk of a Tibetan lake overflowing had “gradually decreased.”`\
+https://www.nytimes.com/live/2026/08/28/world/nepal-tibet-flash-floods
 
