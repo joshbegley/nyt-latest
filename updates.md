@@ -1,3 +1,11 @@
+**For Trump, the Iran War Is Stuck Between Combat and Genuine Peace**\
+`The war has deteriorated over the past six months into Mr. Trump’s own version of a “forever war,” with no clear goals and no end in sight.`\
+https://www.nytimes.com/2026/08/28/us/politics/for-trump-the-iran-war-is-stuck-between-combat-and-genuine-peace.html
+
+**Nepal Roughly Doubles Number of Missing After Flood**\
+`Also, Trump orders the creation of a space academy. Here’s the latest at the end of Friday.`\
+https://www.nytimes.com/2026/08/28/briefing/nepal-flood-missing-trump-space-academy.html
+
 **Roy Slaper, Unlikely ‘Legend’ of Denim, Dies at 54**\
 `After filling his apartment with industrial sewing machines, he began producing high-end jeans that made him famous with denim-heads in the days of lumberjack chic.`\
 https://www.nytimes.com/2026/08/28/arts/design/roy-slaper-dead.html
