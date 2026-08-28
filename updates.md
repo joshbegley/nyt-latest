@@ -1,3 +1,11 @@
+**Nepali Flood Survivors Face Profound Loss, Pressing Needs and Murky Futures**\
+`The disaster has left countless people with little or nothing of the lives they had built, struggling with immediate survival and unsure how to rebuild.`\
+https://www.nytimes.com/2026/08/28/world/asia/nepal-flood-survivors.html
+
+**For Trump, the Iran War Is Stuck Between Combat and Genuine Peace**\
+`The war has deteriorated over the past six months into Mr. Trump’s own version of a “forever war,” with no clear goals and no end in sight.`\
+https://www.nytimes.com/2026/08/28/us/politics/trump-iran-war.html
+
 **Prediction Markets Should Be Regulated as Gambling, Appeals Court Says**\
 `The outcome contradicted an earlier appeals court decision. Federal regulators said the split rulings called for resolution by the Supreme Court.`\
 https://www.nytimes.com/2026/08/28/technology/kalshi-prediction-markets-federal-courts.html
