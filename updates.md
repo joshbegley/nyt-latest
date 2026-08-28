@@ -1,3 +1,11 @@
+**Harald V, Norway’s King as Tradition and Modernity Collided, Dies at 89**\
+`His 35-year reign opened an ancient monarchy to marriages with so-called commoners and to an incendiary association with Jeffrey Epstein.`\
+https://www.nytimes.com/2026/08/28/world/europe/king-harald-v-dead.html
+
+**Live Updates: New Flood Warning Complicates Desperate Himalayan Search**\
+`Rescuers are racing to find survivors of a torrent that swept through valleys along the China-Nepal border. The Nepali police on Friday warned people to head for safety, citing a new risk of flooding.`\
+https://www.nytimes.com/live/2026/08/28/world/nepal-tibet-flash-floods
+
 **Live Updates: Threat of New Floods Complicates Desperate Himalayan Search**\
 `Rescuers are racing to find survivors of a torrent that swept through valleys along the China-Nepal border. The Nepali police on Friday warned people to head for safety, citing a new risk of flooding.`\
 https://www.nytimes.com/live/2026/08/28/world/nepal-tibet-flash-floods
