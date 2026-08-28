@@ -1,3 +1,11 @@
+**Trump Administration Looks to Give a Swath of Yosemite Park to Developer**\
+`The proposed land swap would allow easy access to the crown jewel of the national park system. Democrats and former Park Service officials are incensed.`\
+https://www.nytimes.com/2026/08/28/us/trump-administration-yosemite-private-developer.html
+
+**‘Trump Voters Are Finally Starting to Sour on Him’**\
+`Democrats want fighters. A former Republican has ideas.`\
+https://www.nytimes.com/2026/08/28/opinion/democrats-fighters-trump-republicans.html
+
 **‘The Frontier of Algorithmic Fashion’**\
 `Private equity and Big Tech have infiltrated the fashion world. How did it happen, and how can consumers shop more intentionally?`\
 https://www.nytimes.com/video/opinion/100000011117306/the-frontier-of-algorithmic-fashion.html

@@ -1,3 +1,7 @@
+**Trump Administration Looks to Give a Swath of Yosemite Park to Developer**\
+`The proposed land swap would allow easy access to the crown jewel of the national park system. Democrats and former Park Service officials are incensed.`\
+https://www.nytimes.com/2026/08/28/us/trump-administration-yosemite-private-developer.html
+
 **‘The Frontier of Algorithmic Fashion’**\
 `Private equity and Big Tech have infiltrated the fashion world. How did it happen, and how can consumers shop more intentionally?`\
 https://www.nytimes.com/video/opinion/100000011117306/the-frontier-of-algorithmic-fashion.html
@@ -178,8 +182,8 @@ https://www.nytimes.com/2026/08/28/dining/a-tomato-and-white-bean-stew-for-summe
 `This month’s options include an adaptation of an early Stephen King novel, jungle dinosaur battles and atmospheric thrillers.`\
 https://www.nytimes.com/2026/08/28/movies/science-fiction-movies-streaming.html
 
-**Democrats Want Fighters. A Former Republican Has Ideas.**\
-`On deep frustration with the Democratic establishment and potential souring among Trump supporters.`\
+**‘Trump Voters Are Finally Starting to Sour on Him’**\
+`Democrats want fighters. A former Republican has ideas.`\
 https://www.nytimes.com/2026/08/28/opinion/democrats-fighters-trump-republicans.html
 
 **Maps: Tracking Tropical Storm Lowell**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/interactive/2026/08/28/weather/tropical-storm-lowell-haw
 **Mourners in Norway Remember King Harald V**\
 `Norwegians grieved a monarch who remained popular despite scandals involving the royal family. His death marks a new era for the country.`\
 https://www.nytimes.com/2026/08/28/world/europe/king-harald-norway-death.html
-
-**For Once, a New York Jet Is Destined to Win Something**\
-`A House race in Arizona pits Jay Feely, a former Jets kicker, against Amish Shah, a former sideline doctor for the team. Jets fans in the district say it’s a welcome distraction from all the losing.`\
-https://www.nytimes.com/2026/08/28/us/politics/new-york-jets-house-race-feely-shah.html
 
