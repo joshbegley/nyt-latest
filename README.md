@@ -1,3 +1,15 @@
+**Milo Yiannopoulos, a Right-Wing Provocateur, Is Arrested by ICE**\
+`Mr. Yiannopoulos, a prominent early supporter of President Trump, was detained at the New Orleans airport. The Trump administration publicized his arrest and shared a mug shot.`\
+https://www.nytimes.com/2026/08/28/us/politics/milo-yiannopoulos-arrested-ice.html
+
+**A Melting Glacier in Nepal Was a Time Bomb. There Are More to Come.**\
+`A geologist reflects on the disaster and explains why rapid warming will make deadly glacial floods far more common.`\
+https://www.nytimes.com/2026/08/28/climate/climate-forward-nepal-disaster.html
+
+**It’s Trump’s Capital Now, but Voters Aren’t Living in It**\
+`His obsession with remaking Washington might hurt his party politically.`\
+https://www.nytimes.com/2026/08/28/us/politics/trump-washington-dc-capital-voters.html
+
 **See Moments After a Glacier Collapsed, Launching Deadly Flash Floods in Nepal**\
 `Exclusive videos verified by The New York Times show the clearest view yet of the avalanche in northern Nepal near Tibet that sent a wall of water and mud coursing through river valleys below.`\
 https://www.nytimes.com/2026/08/28/world/asia/himalayan-glacier-collapse-flood.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/08/28/business/economy/jobs-labor-numbers.html
 **China Offers Condolences to Nepal While Emphasizing Disaster Began There**\
 `China’s leader, Xi Jinping, issued his first message to Nepal’s government  since the landslide on Wednesday that has left hundreds dead near the countries’ border.`\
 https://www.nytimes.com/2026/08/28/world/asia/china-nepal-floods-xi-jinping.html
-
-**Today, In Short**\
-`Weather influencers. Cottage cheese. And tennis.`\
-https://www.nytimes.com/2026/08/28/briefing/today-in-short.html
-
-**Where to Eat, Sleep and Shop Along the Southwest Michigan Shoreline**\
-`On Lake Michigan’s southeastern shore, generations of artists have long drawn inspiration from the landscape. Now there’s a new wave of creative people finding more and more reasons to linger.`\
-https://www.nytimes.com/2026/08/28/t-magazine/lake-michigan-coast-dunes.html
-
-**A Tomato and White Bean Stew for Summer**\
-`And more of the week’s most popular recipes.`\
-https://www.nytimes.com/2026/08/28/dining/a-tomato-and-white-bean-stew-for-summer.html
 
