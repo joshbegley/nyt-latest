@@ -2,7 +2,7 @@
 `A small gene-editing study significantly reduced LDL cholesterol levels, and the results have stuck a year later.`\
 https://www.nytimes.com/2026/08/28/science/an-experimental-single-time-treatment-slashed-cholesterol-for-a-year.html
 
-**The S.E.C. Wants to Let Companies Tell Investors Less, Raising Risks**\
+**Proposed Rollback of S.E.C. Rules Raises Fears of Another Enron Crisis**\
 `Fewer audit and disclosure requirements could reduce costs, but experts say they could also help disguise fraud or financial stress.`\
 https://www.nytimes.com/2026/08/28/business/economy/sec-quarterly-reporting.html
 

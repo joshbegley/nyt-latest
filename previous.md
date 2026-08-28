@@ -1,3 +1,11 @@
+**An Experimental Single-Time Treatment Slashed Cholesterol for a Year**\
+`A small gene-editing study significantly reduced LDL cholesterol levels, and the results have stuck a year later.`\
+https://www.nytimes.com/2026/08/28/science/an-experimental-single-time-treatment-slashed-cholesterol-for-a-year.html
+
+**The S.E.C. Wants to Let Companies Tell Investors Less, Raising Risks**\
+`Fewer audit and disclosure requirements could reduce costs, but experts say they could also help disguise fraud or financial stress.`\
+https://www.nytimes.com/2026/08/28/business/economy/sec-quarterly-reporting.html
+
 **Who Is Ahead in North Carolina's 3rd Congressional District?**\
 `Track the latest polls in North Carolina's 3rd Congressional District.`\
 https://www.nytimes.com/interactive/polls/north-carolina-us-house-3-polls-2026.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/08/28/climate/solar-power-railway-train-tracks.html
 **A New Declaration of Independence for America’s 250th Birthday From Arion Press**\
 `In the heart of tech-mad San Francisco, Arion Press makes some of the world’s most sought-after dead-tree artifacts, including a new riff on the Declaration of Independence.`\
 https://www.nytimes.com/2026/08/28/arts/arion-press-san-francisco-declaration-independence.html
-
-**‘Les Misérables’ Review: The Barricades Rise Above the Hudson**\
-`In this semi-open-air staging in the Hudson Valley, the musical conjures Paris’s seedy cobblestone streets with an adept Jean Valjean leading the charge.`\
-https://www.nytimes.com/2026/08/28/theater/les-miserables-review-hudson-valley-shakespeare.html
-
-**Inside Afghanistan’s Secret Schools for Girls**\
-`The Taliban have banned education for millions of Afghan girls. Times journalists examined classrooms where students, teachers and parents continue to resist by defying the rules.`\
-https://www.nytimes.com/2026/08/28/world/asia/afghanistan-girls-education.html
 
 **Live Updates: New Nepal Flood Warning Clouds Desperate Search for Survivors**\
 `The Nepali police warned people to head for safety because more water could soak flood-ravaged villages. China said that the risk of a Tibetan lake overflowing had “gradually decreased.”`\

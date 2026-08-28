@@ -1,3 +1,11 @@
+**An Experimental Single-Time Treatment Slashed Cholesterol for a Year**\
+`A small gene-editing study significantly reduced LDL cholesterol levels, and the results have stuck a year later.`\
+https://www.nytimes.com/2026/08/28/science/an-experimental-single-time-treatment-slashed-cholesterol-for-a-year.html
+
+**The S.E.C. Wants to Let Companies Tell Investors Less, Raising Risks**\
+`Fewer audit and disclosure requirements could reduce costs, but experts say they could also help disguise fraud or financial stress.`\
+https://www.nytimes.com/2026/08/28/business/economy/sec-quarterly-reporting.html
+
 **Who Is Ahead in North Carolina's 3rd Congressional District?**\
 `Track the latest polls in North Carolina's 3rd Congressional District.`\
 https://www.nytimes.com/interactive/polls/north-carolina-us-house-3-polls-2026.html
