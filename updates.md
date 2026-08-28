@@ -1,3 +1,7 @@
+**In Nepal, Fears of a Second Flood Grow as Rescue Efforts Continue**\
+`Nepali and Chinese authorities warned that a lake created by a deadly landslide could burst open soon. Another deluge would pose the most risk to rescuers, an expert said.`\
+https://www.nytimes.com/2026/08/28/world/asia/nepal-flash-floods-rescue.html
+
 **Las grandes ambiciones de ‘Grand Theft Auto VI’**\
 `El juego, que llegará al mercado el 19 de noviembre, combina crimen, sátira y un mundo abierto de actividades que va desde carreras y paracaidismo hasta fiestas de alta sociedad.`\
 https://www.nytimes.com/es/2026/08/28/espanol/cultura/grand-theft-auto-vi-gta.html
