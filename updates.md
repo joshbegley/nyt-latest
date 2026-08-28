@@ -1,3 +1,7 @@
+**LA Mayor Karen Bass Eases Street Vending Crackdown After Debate**\
+`Mayor Karen Bass said food vendors discourage restaurant patrons, mentioning them alongside homeless encampments. Her opponent, Nithya Raman, said vendors should be brought into the system.`\
+https://www.nytimes.com/2026/08/27/us/los-angeles-street-vendors-karen-bass.html
+
 **King Donald Is Dethroning the Dollar**\
 `The dollar’s roll as the world’s reserve currency is threatened by the erosion of our institutions under Trump.`\
 https://www.nytimes.com/2026/08/28/opinion/trump-dollar-currency.html

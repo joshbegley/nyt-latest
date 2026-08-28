@@ -67,7 +67,7 @@ https://www.nytimes.com/2026/08/27/technology/anthropic-government-blacklisting-
 https://www.nytimes.com/2026/08/27/weather/big-sur-fire-updates.html
 
 **LA Mayor Karen Bass Eases Street Vending Crackdown After Debate**\
-`Mayor Karen Bass had compared the ubiquitous purveyors of street food with homeless encampments. Her opponent, Nithya Raman, said vendors should be brought into the system.`\
+`Mayor Karen Bass said food vendors discourage restaurant patrons, mentioning them alongside homeless encampments. Her opponent, Nithya Raman, said vendors should be brought into the system.`\
 https://www.nytimes.com/2026/08/27/us/los-angeles-street-vendors-karen-bass.html
 
 **Lake Ontario Didn’t Ask for Trump to Rename It**\
