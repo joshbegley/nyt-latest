@@ -1,3 +1,7 @@
+**Nepali Flood Survivors Face Profound Loss, Pressing Needs and Murky Futures**\
+`The disaster has left countless people with little or nothing of the lives they had built, struggling with immediate survival and unsure how to rebuild.`\
+https://www.nytimes.com/2026/08/28/world/asia/nepal-flood-survivors.html
+
 **Prediction Markets Should Be Regulated as Gambling, Appeals Court Says**\
 `The outcome contradicted an earlier appeals court decision. Federal regulators said the split rulings called for resolution by the Supreme Court.`\
 https://www.nytimes.com/2026/08/28/technology/kalshi-prediction-markets-federal-courts.html
@@ -20,7 +24,7 @@ https://www.nytimes.com/2026/08/28/books/odyssey-emily-wilson-translation.html
 
 **For Trump, the Iran War Is Stuck Between Combat and Genuine Peace**\
 `The war has deteriorated over the past six months into Mr. Trump’s own version of a “forever war,” with no clear goals and no end in sight.`\
-https://www.nytimes.com/2026/08/28/us/politics/for-trump-the-iran-war-is-stuck-between-combat-and-genuine-peace.html
+https://www.nytimes.com/2026/08/28/us/politics/trump-iran-war.html
 
 **Nepal Roughly Doubles Number of Missing After Flood**\
 `Also, Trump orders the creation of a space academy. Here’s the latest at the end of Friday.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/28/world/africa/uganda-king-oyo-dead.html
 **The First Thing Lexi Minetree Did After Landing the ‘Legally Blonde’ Prequel**\
 `The actor Lexi Minetree, who plays a young Elle Woods in “Elle,” the prequel to “Legally Blonde,” opens up about landing the role, discovering her love of acting and the book that shaped her view on the power of storytelling.`\
 https://www.nytimes.com/video/arts/100000010968781/lexi-minetree-legally-blonde-elle-woods.html
-
-**Controversy Erupts Over Pennsylvania Measles Deaths**\
-`The conflict, which largely falls along political lines, centers on the details of one of the deaths, in a newborn.`\
-https://www.nytimes.com/2026/08/28/well/pennsylvania-measles-deaths-controversy.html
 

@@ -1,3 +1,19 @@
+**Prediction Markets Should Be Regulated as Gambling, Appeals Court Says**\
+`The outcome contradicted an earlier appeals court decision. Federal regulators said the split rulings called for resolution by the Supreme Court.`\
+https://www.nytimes.com/2026/08/28/technology/kalshi-prediction-markets-federal-courts.html
+
+**George Cave, C.I.A. Agent With a Role in Iran-Contra, Dies at 97**\
+`He worked throughout the Middle East before joining a secret team that tried to obtain the release of Western hostages in Lebanon in exchange for arms sent to Iran.`\
+https://www.nytimes.com/2026/08/28/us/george-w-cave-dead.html
+
+**Chevron estaría en conversaciones para expandirse en Venezuela**\
+`El gigante petrolero afianza su apuesta de permanecer en Venezuela, donde ya representa alrededor de una cuarta parte de la producción petrolera del país.`\
+https://www.nytimes.com/es/2026/08/28/espanol/negocios/venezuela-chevron-petroleo-trump.html
+
+**‘Lake America’? These Upstate New Yorkers Aren’t Letting Go of ‘Ontario’**\
+`President Trump on Thursday signed an order rechristening Lake Ontario as Lake America, but businesses around Niagara Falls say they won’t be changing their tune.`\
+https://www.nytimes.com/2026/08/28/nyregion/lake-america-ontario-trump-canada.html
+
 **The ‘Odyssey’ Scholar Emily Wilson, a Critic of the Movie, Is Redoing Her Translation**\
 `Wilson, who was the first woman to translate the Homeric tale into English, caused a firestorm when she criticized Christopher Nolan’s blockbuster film.`\
 https://www.nytimes.com/2026/08/28/books/odyssey-emily-wilson-translation.html
