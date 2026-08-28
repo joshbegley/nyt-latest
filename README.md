@@ -1,3 +1,7 @@
+**The US Open Is Here. Is It America’s Time?**\
+`With the men’s draw wide open and two American women in the form of their lives, could it be an American sweep at Flushing Meadows?`\
+https://www.nytimes.com/2026/08/28/podcasts/us-open-tennis.html
+
 **‘The Sauna Is Hot and Uncomfortable’: Vote on E.U. Talks Makes Iceland Sweat**\
 `The usually genial country is been bitterly divided over a vote this weekend on whether to enter membership talks with the European Union.`\
 https://www.nytimes.com/2026/08/28/world/europe/iceland-european-union-vote.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/28/world/europe/six-months-in-irans-regime-stand
 **El nuevo fármaco contra el cáncer aprobado por la FDA podría ser el primero de muchos**\
 `Los investigadores esperan que sea el comienzo de un nuevo capítulo en el tratamiento para una variedad de tipos de cáncer.`\
 https://www.nytimes.com/es/2026/08/28/espanol/ciencia-y-tecnologia/farmaco-cancer-daraxonrasib.html
-
-**Canadians Wave Off Trump’s Order to Rename Lake Ontario**\
-`Canadians waved off President Trump’s executive order to rename Lake Ontario to Lake America. The move comes amid an escalating trade war between the United States and Canada.`\
-https://www.nytimes.com/video/world/americas/100000011118686/canada-trump-lake-ontario-america.html
 
