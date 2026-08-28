@@ -1,3 +1,7 @@
+**The Lindsay Clancy Army, From Moms in Pink to Candace Owens**\
+`How to understand the support, from a wide range of voices, for a mother on trial for murder.`\
+https://www.nytimes.com/2026/08/27/style/lindsay-clancy-trial-support.html
+
 **Funding Delays Threaten Rollout of Mamdani’s 2-K Program**\
 `Many early childhood centers, the backbone of New York City’s universal child care system, have not received money from the city for this school year, some day care operators said.`\
 https://www.nytimes.com/2026/08/27/nyregion/nyc-2k-child-care-programs-funding-mamdani.html
