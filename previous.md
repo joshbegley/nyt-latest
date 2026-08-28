@@ -1,3 +1,7 @@
+**El nuevo fármaco contra el cáncer aprobado por la FDA podría ser el primero de muchos**\
+`Los investigadores esperan que sea el comienzo de un nuevo capítulo en el tratamiento para una variedad de tipos de cáncer.`\
+https://www.nytimes.com/es/2026/08/28/espanol/ciencia-y-tecnologia/farmaco-cancer-daraxonrasib.html
+
 **Canadians Wave Off Trump’s Order to Rename Lake Ontario**\
 `Canadians waved off President Trump’s executive order to rename Lake Ontario to Lake America. The move comes amid an escalating trade war between the United States and Canada.`\
 https://www.nytimes.com/video/world/americas/100000011118686/canada-trump-lake-ontario-america.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/08/27/business/ben-rosen-dead.html
 **Survivors of Nepal Flood Left in Stunned Disbelief: ‘They All Died, and I Lived’**\
 `A visit near the border with Tibet laid bare the effects of a swollen river’s furious speed. Miles of devastation were left behind in a flash flood that killed more than 300.`\
 https://www.nytimes.com/2026/08/27/world/asia/nepal-flash-flood-dhunche.html
-
-**Summer in the City: The U.S. Open Has Begun**\
-`Here’s how to ace the early rounds of the U.S. Open without pushing your bank account to break point.`\
-https://www.nytimes.com/2026/08/27/nyregion/summer-in-the-city-us-open-begins.html
 
 **U.S. to Step Up Deportations to Haiti Despite Warning Not to Visit**\
 `(No description)`\

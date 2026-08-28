@@ -1,3 +1,7 @@
+**El nuevo fármaco contra el cáncer aprobado por la FDA podría ser el primero de muchos**\
+`Los investigadores esperan que sea el comienzo de un nuevo capítulo en el tratamiento para una variedad de tipos de cáncer.`\
+https://www.nytimes.com/es/2026/08/28/espanol/ciencia-y-tecnologia/farmaco-cancer-daraxonrasib.html
+
 **Canadians Wave Off Trump’s Order to Rename Lake Ontario**\
 `Canadians waved off President Trump’s executive order to rename Lake Ontario to Lake America. The move comes amid an escalating trade war between the United States and Canada.`\
 https://www.nytimes.com/video/world/americas/100000011118686/canada-trump-lake-ontario-america.html
