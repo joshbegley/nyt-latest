@@ -1,3 +1,7 @@
+**How Bad Is America’s $40 Trillion Debt?**\
+`U.S. debt recently crossed $40 trillion. On “The Ezra Klein Show,” the financial journalist Robin Wigglesworth explains how we got here — and whether the number is cause for concern.`\
+https://www.nytimes.com/video/opinion/100000011115448/how-bad-is-americas-40-trillion-debt.html
+
 **Hegseth Blocks Promotions of Four Army Officers as Purge Widens**\
 `The turmoil has left a leadership vacuum in the Army at a moment when it is trying to find ways to defend troops against the threat posed by cheap drones.`\
 https://www.nytimes.com/2026/08/28/us/politics/hegseth-blocks-army-promotions.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/08/28/espanol/mundo/muere-harald-v-rey-noruega.h
 **Book Club: Let’s Talk About ‘London Falling,’ by Patrick Radden Keefe**\
 `Keefe’s new book explores a teenager’s mysterious death on the River Thames.`\
 https://www.nytimes.com/2026/08/28/podcasts/podcast-london-falling-book-club.html
-
-**Social Media and the Myth of the Big Tobacco Moment**\
-`Smoking used to be everywhere, the way Facebook, TikTok, Snap, YouTube and Instagram are now. Society decided to break the habit, but it took a long time.`\
-https://www.nytimes.com/2026/08/28/technology/meta-social-media-big-tobacco.html
 
