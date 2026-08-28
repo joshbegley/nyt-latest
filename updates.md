@@ -1,3 +1,7 @@
+**Judge Once Again Bars Postal Service from Restricting Mail-in Vote**\
+`After reviewing the agency’s final plan to comply with President Trump’s demands, a federal judge barred the Postal Service from imposing new restrictions on mail-in voting.`\
+https://www.nytimes.com/2026/08/27/us/politics/judge-postal-service-mail-ballots.html
+
 **NYT Crossword Answers for Aug. 28, 2026**\
 `Jack Hatchett opens our solving weekend.`\
 https://www.nytimes.com/2026/08/27/crosswords/daily-puzzle-2026-08-28.html
