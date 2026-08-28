@@ -1,3 +1,7 @@
+**Warsh’s Big Test at Jackson Hole**\
+`Investors want Kevin Warsh, the Fed chairman, to address inflation, interest rates and the bond market in a major speech. Some worry he won’t say enough.`\
+https://www.nytimes.com/2026/08/28/business/dealbook/warsh-fed-jackson-hole.html
+
 **Disaster Experts Say Nepal Glacier Collapse Was Difficult to Predict**\
 `Given the challenges in forecasting and detecting such calamities, researchers advised banning construction on floodplains and marking out clear evacuation routes.`\
 https://www.nytimes.com/2026/08/28/world/australia/nepal-flood-glacier-collapse.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/28/arts/music/floating-points-dance-and-ballet-m
 **Tips for Traveling While Pregnant**\
 `Doing research and getting advice from your doctor before you go can make your trip smoother.`\
 https://www.nytimes.com/2026/08/28/travel/pregnant-travel-trips.html
-
-**Clashes Cloud Shawn Fain’s Re-election Bid at U.A.W.**\
-`A federal investigation and conflict over Israel are preoccupying the United Auto Workers president ahead of a vote that would give him a second term.`\
-https://www.nytimes.com/2026/08/28/business/economy/uaw-shawn-fain-reelection.html
 

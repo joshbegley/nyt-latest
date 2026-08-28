@@ -1,3 +1,7 @@
+**Warsh’s Big Test at Jackson Hole**\
+`Investors want Kevin Warsh, the Fed chairman, to address inflation, interest rates and the bond market in a major speech. Some worry he won’t say enough.`\
+https://www.nytimes.com/2026/08/28/business/dealbook/warsh-fed-jackson-hole.html
+
 **What It Took to Dismantle the Most Powerful Company in the World**\
 `A playbook to curb the growing power of Big Tech.`\
 https://www.nytimes.com/2026/08/28/opinion/ai-power-lobbying-military-britain-east-india-company.html
