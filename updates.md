@@ -1,3 +1,7 @@
+**Who Is Haakon, Norway’s New King?**\
+`Crown Prince Haakon, the only son of King Harald V, will become monarch, a largely ceremonial and symbolic role.`\
+https://www.nytimes.com/2026/08/28/world/europe/norway-new-king-haakon.html
+
 **The US Open Is Here. Is It America’s Time?**\
 `With the men’s draw wide open and two American women in the form of their lives, could it be an American sweep at Flushing Meadows?`\
 https://www.nytimes.com/2026/08/28/podcasts/us-open-tennis.html
