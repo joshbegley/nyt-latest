@@ -1,3 +1,19 @@
+**FAFSA Form for College Aid Will Be Less Stressful This Year, Officials Say**\
+`The college financial aid form has long been a stressor for high school seniors and their parents. Fixes have made it simpler and faster to complete, officials say.`\
+https://www.nytimes.com/2026/08/28/business/college-aid-fafsa.html
+
+**What if the A.I. Stock Market Rally Is Just Getting Started?**\
+`Edward Yardeni, an upbeat strategist with an excellent track record in assessing the stock market, explains why he thinks the good times will continue for years.`\
+https://www.nytimes.com/2026/08/28/business/ai-stock-market-bull-rally.html
+
+**Trump vs. the Bond Market**\
+`Robin Wigglesworth of Financial Times explains everything you need to know about the Trump administration’s meddling with the bond market.`\
+https://www.nytimes.com/2026/08/28/opinion/ezra-klein-podcast-robin-wigglesworth.html
+
+**Live Updates: New Nepal Flood Warning Clouds Desperate Search for Survivors**\
+`The Nepali police warned people to head for safety because more water could soak flood-ravaged villages. China said that the risk of a Tibetan lake overflowing had “gradually decreased.”`\
+https://www.nytimes.com/live/2026/08/28/world/nepal-tibet-flash-floods
+
 **Warsh’s Big Test at Jackson Hole**\
 `Investors want Kevin Warsh, the Fed chairman, to address inflation, interest rates and the bond market in a major speech. Some worry he won’t say enough.`\
 https://www.nytimes.com/2026/08/28/business/dealbook/warsh-fed-jackson-hole.html
