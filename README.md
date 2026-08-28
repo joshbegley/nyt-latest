@@ -1,3 +1,7 @@
+**New Exclusive Video Reveals Immediate Aftermath of Nepal Glacier Collapse**\
+`New footage exclusively obtained by The New York Times showed the aftermath of the moment a giant glacier broke away from the top of a ridge in the Himalayas, setting off a deluge of mud, snow, floodwaters and debris to the valley communities below. Upstream, two newly formed lakes threaten rescue efforts for hundreds of missing people.`\
+https://www.nytimes.com/video/world/asia/100000011119084/new-exclusive-video-reveals-immediate-aftermath-of-nepal-glacier-collapse.html
+
 **Trump Administration Appeals Ruling Halting Mail-In Voting Rules**\
 `The Postal Service appealed an emergency decision from Thursday that blocked it from changing its procedures for mail-in voting ahead of the upcoming midterm elections.`\
 https://www.nytimes.com/2026/08/28/us/politics/trump-appeal-mail-ballot.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/28/dining/a-tomato-and-white-bean-stew-for-summe
 **Five Science Fiction Movies to Stream Now**\
 `This month’s options include an adaptation of an early Stephen King novel, jungle dinosaur battles and atmospheric thrillers.`\
 https://www.nytimes.com/2026/08/28/movies/science-fiction-movies-streaming.html
-
-**‘Trump Voters Are Finally Starting to Sour on Him’**\
-`Democrats want fighters. A former Republican has ideas.`\
-https://www.nytimes.com/2026/08/28/opinion/democrats-fighters-trump-republicans.html
 
