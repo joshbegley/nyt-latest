@@ -1,3 +1,7 @@
+**A Disaster in Nepal**\
+`Authorities in Nepal are warning rescuers that more flooding may be on its way. Let’s start there.`\
+https://www.nytimes.com/2026/08/28/briefing/a-disaster-in-nepal.html
+
 **Lindsay Clancy Is on Trial. So Is Postpartum Psychosis.**\
 `She is being tried on murder charges in the deaths of her three children. The tragedy has resurrected debates over whether such women are criminals or victims.`\
 https://www.nytimes.com/2026/08/28/podcasts/the-daily/lindsay-clancy-trial-postpartum-psychosis.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/28/movies/butthole-surfers-documentary.html
 **How a Private Equity Group Drove an Apartment Complex Into the Ground**\
 `After decades as a coveted address in Syracuse, N.Y., the sprawling Nob Hill complex descended into neglect, squalor and death. One family paid a terrible price.`\
 https://www.nytimes.com/2026/08/28/nyregion/nob-hill-private-equity-fire.html
-
-**Adult Mystery Books for Fans of Detectives and Spies**\
-`The best-selling thriller writer Tess Gerritsen likes older detectives who bring a lifetime of experience to their cases.`\
-https://www.nytimes.com/2026/08/28/books/mystery-detective-books-adults.html
 
