@@ -1,3 +1,11 @@
+**‘The Frontier of Algorithmic Fashion’**\
+`Private equity and Big Tech have infiltrated the fashion world. How did it happen, and how can consumers shop more intentionally?`\
+https://www.nytimes.com/video/opinion/100000011117306/the-frontier-of-algorithmic-fashion.html
+
+**Trump Administration Asks Supreme Court to Uphold Ban on Transgender Troops**\
+`President Trump issued an executive order barring transgender service members from the military as part of a broader attack on transgender rights.`\
+https://www.nytimes.com/2026/08/28/us/politics/trump-supreme-court-transgender-troops.html
+
 **The Local: Michael Che on First Avenue**\
 `And, of course, pickles at the State Fair.`\
 https://www.nytimes.com/2026/08/28/us/michael-che-first-ave.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/08/28/world/europe/king-harald-norway-death.html
 **For Once, a New York Jet Is Destined to Win Something**\
 `A House race in Arizona pits Jay Feely, a former Jets kicker, against Amish Shah, a former sideline doctor for the team. Jets fans in the district say it’s a welcome distraction from all the losing.`\
 https://www.nytimes.com/2026/08/28/us/politics/new-york-jets-house-race-feely-shah.html
-
-**An Experimental Single-Time Treatment Slashed Cholesterol for a Year**\
-`A small gene-editing study significantly reduced LDL cholesterol levels, and the results have stuck a year later.`\
-https://www.nytimes.com/2026/08/28/science/an-experimental-single-time-treatment-slashed-cholesterol-for-a-year.html
-
-**Companies Can Tell Investors Less Under Proposed S.E.C. Rules**\
-`Fewer audit and disclosure requirements could reduce costs, but experts say they could also help disguise fraud or financial stress.`\
-https://www.nytimes.com/2026/08/28/business/economy/sec-quarterly-reporting.html
 
