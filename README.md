@@ -1,3 +1,7 @@
+**The Local: Michael Che on First Avenue**\
+`And, of course, pickles at the State Fair.`\
+https://www.nytimes.com/2026/08/28/us/michael-che-first-ave.html
+
 **Autopsy Shows Man Killed by National Guard in Memphis Was Shot in Back**\
 `The death of the man after a confrontation with National Guard troops is under investigation. An autopsy by a medical examiner shows that he was shot in the back and declared it a homicide.`\
 https://www.nytimes.com/2026/08/28/us/tyrin-johnson-national-guard-shooting-autopsy-memphis.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/28/science/an-experimental-single-time-treatment
 **Companies Can Tell Investors Less Under Proposed S.E.C. Rules**\
 `Fewer audit and disclosure requirements could reduce costs, but experts say they could also help disguise fraud or financial stress.`\
 https://www.nytimes.com/2026/08/28/business/economy/sec-quarterly-reporting.html
-
-**Who Is Ahead in North Carolina's 3rd Congressional District?**\
-`Track the latest polls in North Carolina's 3rd Congressional District.`\
-https://www.nytimes.com/interactive/polls/north-carolina-us-house-3-polls-2026.html
 
