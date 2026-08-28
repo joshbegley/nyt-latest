@@ -194,7 +194,7 @@ https://www.nytimes.com/2026/08/27/nyregion/air-canada-crash-lga-air-traffic-con
 `The president also reiterated his criticism that Canada “treats us very badly.” Trade talks between the nations collapsed last week.`\
 https://www.nytimes.com/2026/08/27/us/politics/trump-lake-america-executive-order.html
 
-**Trump Administration Live: U.S. to Step Up Deportations to Haiti Despite Warning Not to Visit**\
+**U.S. to Step Up Deportations to Haiti Despite Warning Not to Visit**\
 `(No description)`\
 https://www.nytimes.com/live/2026/08/27/us/trump-news
 
