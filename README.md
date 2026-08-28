@@ -1,3 +1,7 @@
+**Los Angeles Mayor, Stung in Debate, Eases Street Vending Crackdown**\
+`Mayor Karen Bass had compared the ubiquitous purveyors of street food with homeless encampments. Her opponent, Nithya Raman, said vendors should be brought into the system.`\
+https://www.nytimes.com/2026/08/27/us/los-angeles-street-vendors-karen-bass.html
+
 **Lake Ontario Didn’t Ask for This**\
 `There is a U.S.-led war in the Middle East and the midterm elections on the horizon, but President Trump’s latest priority seems to be “Making The Great Lakes Even Greater.”`\
 https://www.nytimes.com/2026/08/27/us/politics/trump-lake-ontario-renaming.html
@@ -189,10 +193,6 @@ http://brandedplaylist.nytimes.com/video/embedded/t-brand/100000011117208/men-ar
 **C.I.A. Chief Delivered Bleak Assessment of Russia’s War in Secretive Moscow Visit**\
 `John Ratcliffe’s meeting this week with a Russian intelligence chief was aimed at pushing the Kremlin to pursue a peace deal with Ukraine.`\
 https://www.nytimes.com/2026/08/27/us/politics/cia-director-russia-ukraine.html
-
-**La tormenta tropical Dolly se forma y se moverá hacia el Caribe**\
-`Dolly podría fortalecerse levemente el jueves, pero pronto se moverá hacia una zona en el Caribe donde los sistemas tropicales generalmente se desintegran.`\
-https://www.nytimes.com/es/2026/08/27/espanol/tiempo-y-clima/dolly-tormenta-puerto-rico-cuba.html
 
 **Trump Administration Live: U.S. to Step Up Deportations to Haiti Despite Warning Not to Visit**\
 `(No description)`\
