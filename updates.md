@@ -1,3 +1,7 @@
+**Los Angeles Mayor, Stung in Debate, Eases Street Vending Crackdown**\
+`Mayor Karen Bass had compared the ubiquitous purveyors of street food with homeless encampments. Her opponent, Nithya Raman, said vendors should be brought into the system.`\
+https://www.nytimes.com/2026/08/27/us/los-angeles-street-vendors-karen-bass.html
+
 **Lake Ontario Didn’t Ask for This**\
 `There is a U.S.-led war in the Middle East and the midterm elections on the horizon, but President Trump’s latest priority seems to be “Making The Great Lakes Even Greater.”`\
 https://www.nytimes.com/2026/08/27/us/politics/trump-lake-ontario-renaming.html
