@@ -1,3 +1,7 @@
+**How to Find More Time for Your Friends**\
+`Commit to your friendships like you do the gym.`\
+https://www.nytimes.com/2026/08/28/well/friendship-social-rings.html
+
 **Book Club: Let’s Talk About ‘London Falling,’ by Patrick Radden Keefe**\
 `Keefe’s new book explores a teenager’s mysterious death on the River Thames.`\
 https://www.nytimes.com/2026/08/28/podcasts/podcast-london-falling-book-club.html

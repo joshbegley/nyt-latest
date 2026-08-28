@@ -1,3 +1,7 @@
+**Muere Harald V, rey de Noruega**\
+`Su reinado de 35 años abrió una antigua monarquía a matrimonios con los llamados plebeyos y a una asociación incendiaria con Jeffrey Epstein.`\
+https://www.nytimes.com/es/2026/08/28/espanol/mundo/muere-harald-v-rey-noruega.html
+
 **Book Club: Let’s Talk About ‘London Falling,’ by Patrick Radden Keefe**\
 `Keefe’s new book explores a teenager’s mysterious death on the River Thames.`\
 https://www.nytimes.com/2026/08/28/podcasts/podcast-london-falling-book-club.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/08/28/magazine/rachel-cusk-natalie-portman-life-of-
 **How 6 Months of War in Iran Jolted Oil, Gas, Stocks and More**\
 `How markets have moved six months into the war, and where they might be headed in the future.`\
 https://www.nytimes.com/2026/08/28/business/iran-war-oil-stocks-prices.html
-
-**Book Club: Read ‘Etna,’ by Paul Yoon, With the Book Review**\
-`In September, the Book Review Book Club will read Paul Yoon’s latest, about a bomb-sniffing dog trying to make it home after a war.`\
-https://www.nytimes.com/2026/08/28/books/review/etna-paul-yoon-book-club.html
 
 **Live Updates: Nepal Roughly Doubles Number of Missing to 1,900 Amid Desperate Search for Survivors**\
 `A spokeswoman for the disaster relief agency said the tally grew after some 900 people were reported missing from hydropower projects. Rescue efforts were complicated by fears of new possible flooding.`\
