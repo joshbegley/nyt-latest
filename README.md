@@ -70,8 +70,8 @@ https://www.nytimes.com/2026/08/28/us/tyrin-johnson-national-guard-shooting-auto
 `El liderazgo iraní ve su propia supervivencia como la de la nación, y considera los sacrificios de los iraníes como un acto necesario de patriotismo.`\
 https://www.nytimes.com/es/2026/08/28/espanol/mundo/guerra-trump-iran.html
 
-**In Win for Trump, Chevron Is Said to Be in Talks to Expand in Venezuela**\
-`The Trump administration has been pushing U.S. oil companies like Chevron to invest more in Venezuela’s oil industry.`\
+**Chevron Is in Talks to Expand in Venezuela, a Potential Win for Trump**\
+`President Trump’s administration has been pushing U.S. companies like Chevron to invest more in Venezuela’s oil industry.`\
 https://www.nytimes.com/2026/08/28/business/energy-environment/chevron-venezuela-oil-deal.html
 
 **Trump Creates a Space Academy and Honors the Artemis Astronauts**\
