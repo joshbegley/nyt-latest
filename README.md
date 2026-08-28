@@ -1,4 +1,4 @@
-**Los Angeles Mayor, Stung in Debate, Eases Street Vending Crackdown**\
+**LA Mayor Karen Bass Eases Street Vending Crackdown After Debate**\
 `Mayor Karen Bass had compared the ubiquitous purveyors of street food with homeless encampments. Her opponent, Nithya Raman, said vendors should be brought into the system.`\
 https://www.nytimes.com/2026/08/27/us/los-angeles-street-vendors-karen-bass.html
 
