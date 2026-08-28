@@ -1,3 +1,7 @@
+**A Town Council Turns to a Deck of Cards to Break a Tie**\
+`Two candidates for Town Council in Gila Bend, Ariz., finished with the same number of votes. A century-old state law mandated breaking the tie with a game of chance.`\
+https://www.nytimes.com/2026/08/28/us/gila-bend-election-tiebreaker.html
+
 **Jury Continues Deliberations in Lindsay Clancy Murder Trial**\
 `To reach a verdict, jurors must agree on whether Ms. Clancy should be held criminally responsible for killing her three children.`\
 https://www.nytimes.com/2026/08/28/us/lindsay-clancy-trial-jury-deliberation.html
