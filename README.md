@@ -1,3 +1,11 @@
+**Chevron estaría en conversaciones para expandirse en Venezuela**\
+`El gigante petrolero afianza su apuesta de permanecer en Venezuela, donde ya representa alrededor de una cuarta parte de la producción petrolera del país.`\
+https://www.nytimes.com/es/2026/08/28/espanol/negocios/venezuela-chevron-petroleo-trump.html
+
+**‘Lake America’? These Upstate New Yorkers Aren’t Letting Go of ‘Ontario’**\
+`President Trump on Thursday signed an order rechristening Lake Ontario as Lake America, but businesses around Niagara Falls say they won’t be changing their tune.`\
+https://www.nytimes.com/2026/08/28/nyregion/lake-america-ontario-trump-canada.html
+
 **The ‘Odyssey’ Scholar Emily Wilson, a Critic of the Movie, Is Redoing Her Translation**\
 `Wilson, who was the first woman to translate the Homeric tale into English, caused a firestorm when she criticized Christopher Nolan’s blockbuster film.`\
 https://www.nytimes.com/2026/08/28/books/odyssey-emily-wilson-translation.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/28/business/media/trump-new-york-times-lawsuit.h
 **Judge Throws Out Key 9/11 Confession as Tainted by Torture**\
 `Prosecutors argued the statements by the defendant, Khalid Shaikh Mohammed, were crucial evidence for the eventual death-penalty trial.`\
 https://www.nytimes.com/2026/08/28/us/politics/september11-confession-trial.html
-
-**Investors Expect Higher Rates After Fed Chairman’s Inflation Pledge**\
-`Kevin Warsh reiterated the Federal Reserve’s commitment to tackle rising prices, nudging up investor expectations of a rate increase.`\
-https://www.nytimes.com/2026/08/28/business/markets-stocks-bonds-warsh-jackson-hole.html
-
-**China Sees Opportunity in America’s Recent A.I. Security Scares**\
-`A leading Chinese A.I. start-up released its latest model and made the case that China’s embrace of open software is safer than Silicon Valley’s closed approach.`\
-https://www.nytimes.com/2026/08/28/business/china-artificial-intelligence-zai.html
 

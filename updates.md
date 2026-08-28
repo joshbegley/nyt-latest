@@ -1,3 +1,7 @@
+**The ‘Odyssey’ Scholar Emily Wilson, a Critic of the Movie, Is Redoing Her Translation**\
+`Wilson, who was the first woman to translate the Homeric tale into English, caused a firestorm when she criticized Christopher Nolan’s blockbuster film.`\
+https://www.nytimes.com/2026/08/28/books/odyssey-emily-wilson-translation.html
+
 **For Trump, the Iran War Is Stuck Between Combat and Genuine Peace**\
 `The war has deteriorated over the past six months into Mr. Trump’s own version of a “forever war,” with no clear goals and no end in sight.`\
 https://www.nytimes.com/2026/08/28/us/politics/for-trump-the-iran-war-is-stuck-between-combat-and-genuine-peace.html
