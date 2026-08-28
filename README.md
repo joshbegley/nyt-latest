@@ -1,3 +1,27 @@
+**Today, In Short**\
+`Weather influencers. Cottage cheese. And tennis.`\
+https://www.nytimes.com/2026/08/28/briefing/today-in-short.html
+
+**Where to Eat, Sleep and Shop Along the Southwest Michigan Shoreline**\
+`On Lake Michigan’s southeastern shore, generations of artists have long drawn inspiration from the landscape. Now there’s a new wave of creative people finding more and more reasons to linger.`\
+https://www.nytimes.com/2026/08/28/t-magazine/lake-michigan-coast-dunes.html
+
+**A Tomato and White Bean Stew for Summer**\
+`And more of the week’s most popular recipes.`\
+https://www.nytimes.com/2026/08/28/dining/a-tomato-and-white-bean-stew-for-summer.html
+
+**Five Science Fiction Movies to Stream Now**\
+`This month’s options include an adaptation of an early Stephen King novel, jungle dinosaur battles and atmospheric thrillers.`\
+https://www.nytimes.com/2026/08/28/movies/science-fiction-movies-streaming.html
+
+**Democrats Want Fighters. A Former Republican Has Ideas.**\
+`On deep frustration with the Democratic establishment and potential souring among Trump supporters.`\
+https://www.nytimes.com/2026/08/28/opinion/democrats-fighters-trump-republicans.html
+
+**Maps: Tracking Tropical Storm Lowell**\
+`See the likely path and wind arrival times for Lowell`\
+https://www.nytimes.com/interactive/2026/08/28/weather/tropical-storm-lowell-hawaii-map-tracker.html
+
 **Mourners in Norway Remember King Harald V**\
 `Norwegians grieved a monarch who remained popular despite scandals involving the royal family. His death marks a new era for the country.`\
 https://www.nytimes.com/2026/08/28/world/europe/king-harald-norway-death.html
@@ -87,7 +111,7 @@ https://www.nytimes.com/2026/08/28/world/europe/norway-new-king-haakon.html
 https://www.nytimes.com/2026/08/28/podcasts/us-open-tennis.html
 
 **‘The Sauna Is Hot and Uncomfortable’: Vote on E.U. Talks Makes Iceland Sweat**\
-`The usually genial country is been bitterly divided over a vote this weekend on whether to enter membership talks with the European Union.`\
+`The usually genial country has been bitterly divided over a vote this weekend on whether to enter membership talks with the European Union.`\
 https://www.nytimes.com/2026/08/28/world/europe/iceland-european-union-vote.html
 
 **Fear Over Malaysia’s Plan to Send Back Rohingya Migrants to Myanmar**\
@@ -165,30 +189,6 @@ https://www.nytimes.com/2026/08/28/movies/new-movies-this-week-critics.html
 **Where a Catholic School Closed, a Charter School Opens**\
 `In Sunset Park, Brooklyn, Launch Schools is leasing a former parochial school building as a permanent home for its high school.`\
 https://www.nytimes.com/2026/08/28/nyregion/parochial-school-charter-brooklyn.html
-
-**Meet the Megadonors Who Have Poured $1.2 Billion Into the Midterms**\
-`The leaderboard of the top 20 donors is dominated by the tech industry and ultrawealthy Republicans.`\
-https://www.nytimes.com/interactive/2026/08/28/us/politics/billionaire-midterms-donors.html
-
-**Why These Giant Storage Tanks Increasingly Hold Very Little Oil**\
-`Oil companies and governments are consuming their once vast stockpiles as Iran and the United States continue to struggle for control over the Strait of Hormuz.`\
-https://www.nytimes.com/2026/08/28/business/energy-environment/oil-storage-iran-war.html
-
-**As A.I. Money Floods the Market, San Francisco Renters Weigh Buyouts**\
-`Landlords are offering renters in rent-controlled apartments tens of thousands of dollars to leave their homes. For many, it’s not enough.`\
-https://www.nytimes.com/2026/08/28/realestate/as-ai-money-floods-the-market-san-francisco-renters-weigh-buyouts.html
-
-**This Is Looting by Another Name**\
-`Our cultural heritage is being sold off for parts.`\
-https://www.nytimes.com/2026/08/28/opinion/mexico-frida-kahlo-art.html
-
-**I Study Successful People. They Have One Habit in Common.**\
-`Being a successful self-starter doesn’t mean pulling yourself up by your bootstraps.`\
-https://www.nytimes.com/2026/08/28/opinion/successful-people-help.html
-
-**How Key Oil Stockpiles Dwindled During the War in Iran**\
-`Our energy reporter Rebecca F. Elliott explains how oil reserves helped prevent an oil shock caused by the war in Iran from getting even worse — and how low those reserves are now.`\
-https://www.nytimes.com/video/us/100000011093055/how-key-oil-stockpiles-dwindled-during-the-war-in-iran.html
 
 **Live Updates: Nepal Nearly Doubles Number of Missing to 1,900 Amid Desperate Search for Survivors**\
 `A spokeswoman for the disaster relief agency said the tally grew after some 900 people were reported missing from hydropower projects. Rescue efforts were complicated by fears of new possible flooding.`\

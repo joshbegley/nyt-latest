@@ -1,3 +1,7 @@
+**Mourners in Norway Remember King Harald V**\
+`Norwegians grieved a monarch who remained popular despite scandals involving the royal family. His death marks a new era for the country.`\
+https://www.nytimes.com/2026/08/28/world/europe/king-harald-norway-death.html
+
 **For Once, a New York Jet Is Destined to Win Something**\
 `A House race in Arizona pits Jay Feely, a former Jets kicker, against Amish Shah, a former sideline doctor for the team. Jets fans in the district say it’s a welcome distraction from all the losing.`\
 https://www.nytimes.com/2026/08/28/us/politics/new-york-jets-house-race-feely-shah.html

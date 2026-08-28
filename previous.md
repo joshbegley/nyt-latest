@@ -1,3 +1,7 @@
+**Mourners in Norway Remember King Harald V**\
+`Norwegians grieved a monarch who remained popular despite scandals involving the royal family. His death marks a new era for the country.`\
+https://www.nytimes.com/2026/08/28/world/europe/king-harald-norway-death.html
+
 **For Once, a New York Jet Is Destined to Win Something**\
 `A House race in Arizona pits Jay Feely, a former Jets kicker, against Amish Shah, a former sideline doctor for the team. Jets fans in the district say it’s a welcome distraction from all the losing.`\
 https://www.nytimes.com/2026/08/28/us/politics/new-york-jets-house-race-feely-shah.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/08/28/opinion/successful-people-help.html
 **How Key Oil Stockpiles Dwindled During the War in Iran**\
 `Our energy reporter Rebecca F. Elliott explains how oil reserves helped prevent an oil shock caused by the war in Iran from getting even worse — and how low those reserves are now.`\
 https://www.nytimes.com/video/us/100000011093055/how-key-oil-stockpiles-dwindled-during-the-war-in-iran.html
-
-**What It Took to Dismantle the Most Powerful Company in the World**\
-`A playbook to curb the growing power of Big Tech.`\
-https://www.nytimes.com/2026/08/28/opinion/ai-power-lobbying-military-britain-east-india-company.html
 
 **Live Updates: Nepal Nearly Doubles Number of Missing to 1,900 Amid Desperate Search for Survivors**\
 `A spokeswoman for the disaster relief agency said the tally grew after some 900 people were reported missing from hydropower projects. Rescue efforts were complicated by fears of new possible flooding.`\
