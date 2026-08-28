@@ -1,3 +1,7 @@
+**Unstable Manhattan Building Had More Damaged Columns Than Previously Known**\
+`Drawings obtained by The New York Times and reviewed by engineers show insufficient reinforcements on eight more steel columns than previously known at a Manhattan building.`\
+https://www.nytimes.com/2026/08/28/nyregion/nyc-manhattan-building-collapse-pfizer-columns-steel.html
+
 **Nepali Flood Survivors Face Profound Loss, Pressing Needs and Murky Futures**\
 `The disaster has left countless people with little or nothing of the lives they had built, struggling with immediate survival and unsure how to rebuild.`\
 https://www.nytimes.com/2026/08/28/world/asia/nepal-flood-survivors.html
