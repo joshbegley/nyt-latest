@@ -1,3 +1,7 @@
+**Why Countries Are Pushing Social Media Bans Despite Their Flaws**\
+`Proposals for curbing social media use among children have wide support, but critics say they are ineffective.`\
+https://www.nytimes.com/2026/08/28/technology/social-media-bans-meta.html
+
 **Mount Kailash, Sacred to 4 Faiths, Drew Pilgrims Lost in Nepal and Tibet Floods**\
 `The peak is revered by Hindus, Buddhists, Jains and those belonging to the pre-Buddhist Bon religion.`\
 https://www.nytimes.com/2026/08/28/world/asia/mount-kailash-nepal-floods.html

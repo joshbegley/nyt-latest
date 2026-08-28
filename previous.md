@@ -1,3 +1,7 @@
+**Why Countries Are Pushing Social Media Bans Despite Their Flaws**\
+`Proposals for curbing social media use among children have wide support, but critics say they are ineffective.`\
+https://www.nytimes.com/2026/08/28/technology/social-media-bans-meta.html
+
 **Mount Kailash, Sacred to 4 Faiths, Drew Pilgrims Lost in Nepal and Tibet Floods**\
 `The peak is revered by Hindus, Buddhists, Jains and those belonging to the pre-Buddhist Bon religion.`\
 https://www.nytimes.com/2026/08/28/world/asia/mount-kailash-nepal-floods.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/08/28/learning/word-of-the-day-pirouette.html
 **How the Foo Fighters Fill a Three-Hour Set List, Night After Night**\
 `Dave Grohl, the frontman of the Foo Fighters, tells us how he packs 31 years into 3 hours with something for fans of every generation.`\
 https://www.nytimes.com/2026/08/28/arts/music/foo-fighters-live-setlist.html
-
-**Book Review: ‘Hometown,’ by Shaun Tan**\
-`As Shaun Tan reminds us with his stand-alone follow-up to “The Arrival,” some truths are so enormous, so beautiful, they can be told only through myth.`\
-https://www.nytimes.com/2026/08/28/books/review/shaun-tan-hometown.html
 
 **Live Updates: New Nepal Flood Warning Clouds Desperate Search for Survivors**\
 `The Nepali police warned people to head for safety because more water could soak flood-ravaged villages. China said that the risk of a Tibetan lake overflowing had “gradually decreased.”`\
