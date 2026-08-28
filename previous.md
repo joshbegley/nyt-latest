@@ -1,5 +1,5 @@
 ****\
-`tk tk tk`\
+`(No description)`\
 https://www.nytimes.com/video/embedded/business/100000011119925/Biz-Novo-Comeback-Video.html
 
 **Benjamin Alire Sáenz, First Latino Writer to Win PEN/Faulkner, Dies at 71**\
