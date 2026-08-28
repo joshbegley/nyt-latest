@@ -1,3 +1,15 @@
+**Hegseth Blocks Promotions of Four Army Officers as Purge Widens**\
+`The turmoil has left a leadership vacuum in the Army at a moment when it is trying to find ways to defend troops against the threat posed by cheap drones.`\
+https://www.nytimes.com/2026/08/28/us/politics/hegseth-blocks-army-promotions.html
+
+**What the Heck Is Happening in the Bond Market?**\
+`The U.S. Treasury market has been acting a little strange lately. Robin Wigglesworth, a financial journalist at The Financial Times, helps break down the factors contributing to recent volatility.`\
+https://www.nytimes.com/video/opinion/100000011115446/what-the-heck-is-happening-in-the-bond-market.html
+
+**California Sues Trump Administration Over Offshore Wind Cancellation**\
+`The state is asking a court to reverse a Trump administration agreement and reinstate a planned offshore wind farm.`\
+https://www.nytimes.com/2026/08/28/us/politics/california-trump-offshore-wind-lawsuit.html
+
 **Milo Yiannopoulos, a Right-Wing Provocateur, Is Arrested by ICE**\
 `Mr. Yiannopoulos, a prominent early supporter of President Trump, was detained at the New Orleans airport. The Trump administration publicized his arrest and shared a mug shot.`\
 https://www.nytimes.com/2026/08/28/us/politics/milo-yiannopoulos-arrested-ice.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/08/28/podcasts/podcast-london-falling-book-club.htm
 **Social Media and the Myth of the Big Tobacco Moment**\
 `Smoking used to be everywhere, the way Facebook, TikTok, Snap, YouTube and Instagram are now. Society decided to break the habit, but it took a long time.`\
 https://www.nytimes.com/2026/08/28/technology/meta-social-media-big-tobacco.html
-
-**The T.S.A. Abruptly Scraps Its New Private-Security Model**\
-`Under new leadership, the agency scrapped Gold+, which would have allowed private companies to provide the full scope of screening services, technology and maintenance.`\
-https://www.nytimes.com/2026/08/28/travel/tsa-privatization-gold-plus.html
-
-**Smaller Revision Points to More Accurate Jobs Numbers**\
-`The 2026 revisions by the Bureau of Labor Statistics represent a downward adjustment of just 0.1 percent of the total work force.`\
-https://www.nytimes.com/2026/08/28/business/economy/jobs-labor-numbers.html
-
-**China Offers Condolences to Nepal While Emphasizing Disaster Began There**\
-`China’s leader, Xi Jinping, issued his first message to Nepal’s government  since the landslide on Wednesday that has left hundreds dead near the countries’ border.`\
-https://www.nytimes.com/2026/08/28/world/asia/china-nepal-floods-xi-jinping.html
 
