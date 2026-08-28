@@ -1,3 +1,7 @@
+**U.S. to Step Up Deportations to Haiti Despite Warning Not to Visit**\
+`(No description)`\
+https://www.nytimes.com/live/2026/08/27/us/trump-news
+
 **Gwyneth Paltrow’s Hamptons Dinner for Sam Altman Postponed**\
 `The actress and wellness entrepreneur did not deny her plans to host an intimate gathering for Sam Altman. But it will have to wait.`\
 https://www.nytimes.com/2026/08/27/style/gwyneth-paltrows-sam-altman-dinner-postponed.html
