@@ -114,7 +114,7 @@ https://www.nytimes.com/2026/08/28/well/pennsylvania-measles-deaths-controversy.
 `The president has argued that the news organization sought to undermine his 2024 presidential campaign by disparaging his reputation as a businessman. The Times has moved to dismiss the lawsuit.`\
 https://www.nytimes.com/2026/08/28/business/media/trump-new-york-times-lawsuit.html
 
-**Judge Excludes Key Confession in Sept. 11 Case**\
+**Judge Throws Out Key 9/11 Confession as Tainted by Torture**\
 `Prosecutors argued the statements by the defendant, Khalid Shaikh Mohammed, were crucial evidence for the eventual death-penalty trial.`\
 https://www.nytimes.com/2026/08/28/us/politics/september11-confession-trial.html
 

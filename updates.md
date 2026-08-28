@@ -1,3 +1,7 @@
+**Judge Throws Out Key 9/11 Confession as Tainted by Torture**\
+`Prosecutors argued the statements by the defendant, Khalid Shaikh Mohammed, were crucial evidence for the eventual death-penalty trial.`\
+https://www.nytimes.com/2026/08/28/us/politics/september11-confession-trial.html
+
 **Trump Administration Looks to Give a Swath of Yosemite Park to Developer**\
 `The proposed land swap would allow easy access to the crown jewel of the national park system. Democrats and former Park Service officials are incensed.`\
 https://www.nytimes.com/2026/08/28/us/trump-administration-yosemite-private-developer.html
