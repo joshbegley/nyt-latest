@@ -1,3 +1,7 @@
+**Police Make Surprise Discovery of Stolen Statue of Olympic Gymnast Sunisa Lee**\
+`The St. Paul, Minn., police were investigating a report of gunfire when they found a bronze bust of Sunisa Lee, the gold medal Olympian, that was stolen last year.`\
+https://www.nytimes.com/2026/08/28/us/suni-lee-minnesota-statue-recovered.html
+
 **El jefe de la CIA viajó en secreto a Rusia y entregó una evaluación sombría de la guerra**\
 `La reunión de esta semana de John Ratcliffe con un jefe de la inteligencia rusa tenía como objetivo presionar al Kremlin para que buscara un acuerdo de paz con Ucrania.`\
 https://www.nytimes.com/es/2026/08/28/espanol/estados-unidos/director-cia-reunion-secreta-rusia.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/28/science/narwhals-tusk-spiral-twist.html
 **You Can Have My Walkman, Just Don’t Take My Mix Tape**\
 `These objects contain meaning.`\
 https://www.nytimes.com/interactive/2026/08/28/style/mix-tape-analog-music.html
-
-**Thieves Steal Bronze Age Treasures in Brazen Spanish Museum Heist**\
-`Art theft experts say the heist at the Museum of Villena mimics increasingly violent and quick robberies elsewhere in Europe, possibly inspired by last year’s Louvre break-in.`\
-https://www.nytimes.com/2026/08/28/arts/design/spain-museum-heist-treasure-of-villena.html
 

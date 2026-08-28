@@ -1,3 +1,7 @@
+**Police Make Surprise Discovery of Stolen Statue of Olympic Gymnast Sunisa Lee**\
+`The St. Paul, Minn., police were investigating a report of gunfire when they found a bronze bust of Sunisa Lee, the gold medal Olympian, that was stolen last year.`\
+https://www.nytimes.com/2026/08/28/us/suni-lee-minnesota-statue-recovered.html
+
 **You Can Have My Walkman, Just Don’t Take My Mix Tape**\
 `These objects contain meaning.`\
 https://www.nytimes.com/interactive/2026/08/28/style/mix-tape-analog-music.html
