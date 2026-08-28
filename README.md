@@ -1,3 +1,7 @@
+**Narwhals Have Stunning Spiraled Tusks. That’s Not the Only Twist.**\
+`X-rays revealed that the tusks have an internal opposing twist, which may help explain how they grow so straight — the only tusks like them in nature.`\
+https://www.nytimes.com/2026/08/28/science/narwhals-tusk-spiral-twist.html
+
 **You Can Have My Walkman, Just Don’t Take My Mix Tape**\
 `These objects contain meaning.`\
 https://www.nytimes.com/interactive/2026/08/28/style/mix-tape-analog-music.html
@@ -34,7 +38,7 @@ https://www.nytimes.com/2026/08/28/business/markets-stocks-bonds-warsh-jackson-h
 `A leading Chinese A.I. start-up released its latest model and made the case that China’s embrace of open software is safer than Silicon Valley’s closed approach.`\
 https://www.nytimes.com/2026/08/28/business/china-artificial-intelligence-zai.html
 
-**The Home Robert Indiana Left Behind as Possible Museum Site to Be Sold**\
+**Home Robert Indiana Left Behind as Possible Museum Site to Be Sold**\
 `The foundation that Indiana created to protect his legacy said his plan became unfeasible and the proceeds would now be used for grants to artists.`\
 https://www.nytimes.com/2026/08/28/arts/design/robert-indiana-home-museum-sale.html
 
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/08/28/world/europe/norway-new-king-haakon.html
 **The US Open Is Here. Is It America’s Time?**\
 `With the men’s draw wide open and two American women in the form of their lives, could it be an American sweep at Flushing Meadows?`\
 https://www.nytimes.com/2026/08/28/podcasts/us-open-tennis.html
-
-**‘The Sauna Is Hot and Uncomfortable’: Vote on E.U. Talks Makes Iceland Sweat**\
-`The usually genial country has been bitterly divided over a vote this weekend on whether to enter membership talks with the European Union.`\
-https://www.nytimes.com/2026/08/28/world/europe/iceland-european-union-vote.html
 
 **Live Updates: Nepal Roughly Doubles Number of Missing to 1,900 Amid Desperate Search for Survivors**\
 `A spokeswoman for the disaster relief agency said the tally grew after some 900 people were reported missing from hydropower projects. Rescue efforts were complicated by fears of new possible flooding.`\

@@ -1,3 +1,31 @@
+**You Can Have My Walkman, Just Don’t Take My Mix Tape**\
+`These objects contain meaning.`\
+https://www.nytimes.com/interactive/2026/08/28/style/mix-tape-analog-music.html
+
+**Thieves Steal Bronze Age Treasures in Brazen Spanish Museum Heist**\
+`Art theft experts say the heist at the Museum of Villena mimics increasingly violent and quick robberies elsewhere in Europe, possibly inspired by last year’s Louvre break-in.`\
+https://www.nytimes.com/2026/08/28/arts/design/spain-museum-heist-treasure-of-villena.html
+
+**King Oyo of Uganda’s Tooro Kingdom Dies at 34**\
+`King Oyo Nyimba Kabamba Iguru Rukidi IV of the Tooro Kingdom, in western Uganda, had been in “critical condition,” the kingdom’s prime minister said.`\
+https://www.nytimes.com/2026/08/28/world/africa/uganda-king-oyo-dead.html
+
+**The First Thing Lexi Minetree Did After Landing the ‘Legally Blonde’ Prequel**\
+`The actor Lexi Minetree, who plays a young Elle Woods in “Elle,” the prequel to “Legally Blonde,” opens up about landing the role, discovering her love of acting and the book that shaped her view on the power of storytelling.`\
+https://www.nytimes.com/video/arts/100000010968781/lexi-minetree-legally-blonde-elle-woods.html
+
+**Controversy Erupts Over Pennsylvania Measles Deaths**\
+`The conflict, which largely falls along political lines, centers on the details of one of the deaths, in a newborn.`\
+https://www.nytimes.com/2026/08/28/well/pennsylvania-measles-deaths-controversy.html
+
+**Trump Updates $15 Billion Libel Lawsuit Against The New York Times**\
+`The president has argued that the news organization sought to undermine his 2024 presidential campaign by disparaging his reputation as a businessman. The Times has moved to dismiss the lawsuit.`\
+https://www.nytimes.com/2026/08/28/business/media/trump-new-york-times-lawsuit.html
+
+**Judge Excludes Key Confession in Sept. 11 Case**\
+`Prosecutors argued the statements by the defendant, Khalid Shaikh Mohammed, were crucial evidence for the eventual death-penalty trial.`\
+https://www.nytimes.com/2026/08/28/us/politics/september11-confession-trial.html
+
 **Investors Expect Higher Rates After Fed Chairman’s Inflation Pledge**\
 `Kevin Warsh reiterated the Federal Reserve’s commitment to tackle rising prices, nudging up investor expectations of a rate increase.`\
 https://www.nytimes.com/2026/08/28/business/markets-stocks-bonds-warsh-jackson-hole.html
