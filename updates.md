@@ -1,3 +1,11 @@
+**The Best Outfits Are a Little Undone**\
+`Plus: Kusama’s polka dots and a tip on where to find the best vintage tennis gear.`\
+https://www.nytimes.com/2026/08/28/style/alia-shawkat-celebrity-stylist-vintage.html
+
+**Las personas exitosas tienen un hábito en común**\
+`Tener éxito e iniciativa no significa hacerlo sin ayuda.`\
+https://www.nytimes.com/es/2026/08/28/espanol/opinion/habitos-exito.html
+
 **The Battle Over Mail-In Voting**\
 `Readers react to the Supreme Court ruling on the president’s move to restrict mail-in ballots. Also: How to deal with more data centers.`\
 https://www.nytimes.com/2026/08/28/opinion/trump-mail-voting.html

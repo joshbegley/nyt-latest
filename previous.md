@@ -1,3 +1,11 @@
+**The Best Outfits Are a Little Undone**\
+`Plus: Kusama’s polka dots and a tip on where to find the best vintage tennis gear.`\
+https://www.nytimes.com/2026/08/28/style/alia-shawkat-celebrity-stylist-vintage.html
+
+**Las personas exitosas tienen un hábito en común**\
+`Tener éxito e iniciativa no significa hacerlo sin ayuda.`\
+https://www.nytimes.com/es/2026/08/28/espanol/opinion/habitos-exito.html
+
 **Un vuelo de Delta Air Lines se desvió por una emergencia médica del capitán**\
 `Un vuelo de Delta Air Lines de Los Ángeles a Boston se desvió de manera segura a Detroit luego de que el capitán del Boeing 757 se enfermara.`\
 https://www.nytimes.com/es/2026/08/28/espanol/estados-unidos/accidente-avion-emergencia-medica-vuelo.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/08/28/world/asia/mount-kailash-nepal-floods.html
 **FAFSA Form for College Aid Will Be Less Stressful This Year, Officials Say**\
 `The college financial aid form has long been a stressor for high school seniors and their parents. Fixes have made it simpler and faster to complete, officials say.`\
 https://www.nytimes.com/2026/08/28/business/college-aid-fafsa.html
-
-**What if the A.I. Stock Market Rally Is Just Getting Started?**\
-`Edward Yardeni, an upbeat strategist with an excellent track record in assessing the stock market, explains why he thinks the good times will continue for years.`\
-https://www.nytimes.com/2026/08/28/business/ai-stock-market-bull-rally.html
-
-**Warsh’s Big Test at Jackson Hole**\
-`Investors want Kevin Warsh, the Fed chairman, to address inflation, interest rates and the bond market in a major speech. Some worry he won’t say enough.`\
-https://www.nytimes.com/2026/08/28/business/dealbook/warsh-fed-jackson-hole.html
 
 **Live Updates: Nepal Roughly Doubles Number of Missing to 1,900 Amid Desperate Search for Survivors**\
 `A spokeswoman for the disaster relief agency said the tally grew after some 900 people were reported missing from hydropower projects. Rescue efforts were complicated by fears of new possible flooding.`\
