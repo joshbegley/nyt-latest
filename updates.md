@@ -1,3 +1,11 @@
+**‘Finding Emily,’ a Gen Z Rom-Com, Isn’t Timeless. That’s the Point.**\
+`The British movie aims to speak to young viewers by exploring love and romance in the digital age. The actors themselves served as consultants.`\
+https://www.nytimes.com/2026/08/28/movies/finding-emily-movie-gen-z-rom-com.html
+
+**Muere Harald V, rey de Noruega**\
+`Su reinado de 35 años abrió una antigua monarquía a matrimonios con los llamados plebeyos y a una asociación incendiaria con Jeffrey Epstein.`\
+https://www.nytimes.com/es/2026/08/28/espanol/mundo/muere-harald-v-rey-noruega.html
+
 **How to Find More Time for Your Friends**\
 `Commit to your friendships like you do the gym.`\
 https://www.nytimes.com/2026/08/28/well/friendship-social-rings.html
