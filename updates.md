@@ -1,3 +1,7 @@
+**Near-Total Eclipse Paints the Moon Blood Red**\
+`Moon gazers across the Americas, Africa and Europe could see the deep lunar eclipse on Thursday night.`\
+https://www.nytimes.com/video/science/space/100000011119062/lunar-eclipse-moon-red.html
+
 **‘Finding Emily,’ a Gen Z Rom-Com, Isn’t Timeless. That’s the Point.**\
 `The British movie aims to speak to young viewers by exploring love and romance in the digital age. The actors themselves served as consultants.`\
 https://www.nytimes.com/2026/08/28/movies/finding-emily-movie-gen-z-rom-com.html
