@@ -1,4 +1,8 @@
 **Live Updates: Threat of New Floods Complicates Desperate Himalayan Search**\
+`Rescuers are racing to find survivors of a torrent that swept through valleys along the China-Nepal border. The Nepali police on Friday warned people to head for safety, citing a new risk of flooding.`\
+https://www.nytimes.com/live/2026/08/28/world/nepal-tibet-flash-floods
+
+**Live Updates: Threat of New Floods Complicates Desperate Himalayan Search**\
 `Rescuers were racing to find survivors of a destructive torrent that swept through valleys along the China-Nepal border. More than 1,000 people were still missing.`\
 https://www.nytimes.com/live/2026/08/28/world/nepal-tibet-flash-floods
 
