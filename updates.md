@@ -1,3 +1,7 @@
+**What It Took to Dismantle the Most Powerful Company in the World**\
+`A playbook to curb the growing power of Big Tech.`\
+https://www.nytimes.com/2026/08/28/opinion/ai-power-lobbying-military-britain-east-india-company.html
+
 **Disaster Experts Say Nepal Glacier Collapse Was Difficult to Predict**\
 `Given the challenges in forecasting and detecting such calamities, researchers advised banning construction on floodplains and marking out clear evacuation routes.`\
 https://www.nytimes.com/2026/08/28/world/australia/nepal-flood-glacier-collapse.html
