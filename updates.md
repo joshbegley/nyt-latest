@@ -1,3 +1,11 @@
+**Canadians Wave Off Trump’s Order to Rename Lake Ontario**\
+`Canadians waved off President Trump’s executive order to rename Lake Ontario to Lake America. The move comes amid an escalating trade war between the United States and Canada.`\
+https://www.nytimes.com/video/world/americas/100000011118686/canada-trump-lake-ontario-america.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/admin/100000011118923/28nepal-blog-vid-ru-wvqj.html
+
 **¿Qué tienen que ver las sanciones a Rusia con los robos de autos en Canadá?**\
 `Cuando las automotrices occidentales abandonaron el mercado ruso y muchas naciones prohibieron exportar vehículos a ese país, los grupos criminales se movilizaron para llenar el vacío con vehículos canadienses.`\
 https://www.nytimes.com/es/2026/08/28/espanol/mundo/robo-autos-canada-sanciones-rusia.html

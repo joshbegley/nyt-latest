@@ -1,3 +1,11 @@
+**Canadians Wave Off Trump’s Order to Rename Lake Ontario**\
+`Canadians waved off President Trump’s executive order to rename Lake Ontario to Lake America. The move comes amid an escalating trade war between the United States and Canada.`\
+https://www.nytimes.com/video/world/americas/100000011118686/canada-trump-lake-ontario-america.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/admin/100000011118923/28nepal-blog-vid-ru-wvqj.html
+
 **¿Qué tienen que ver las sanciones a Rusia con los robos de autos en Canadá?**\
 `Cuando las automotrices occidentales abandonaron el mercado ruso y muchas naciones prohibieron exportar vehículos a ese país, los grupos criminales se movilizaron para llenar el vacío con vehículos canadienses.`\
 https://www.nytimes.com/es/2026/08/28/espanol/mundo/robo-autos-canada-sanciones-rusia.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/08/27/world/asia/nepal-flash-flood-dhunche.html
 **Summer in the City: The U.S. Open Has Begun**\
 `Here’s how to ace the early rounds of the U.S. Open without pushing your bank account to break point.`\
 https://www.nytimes.com/2026/08/27/nyregion/summer-in-the-city-us-open-begins.html
-
-**Rafael Manuel’s Film ‘Filipiñana’ Makes a Golf Course a Villain**\
-`The movie “Filipiñana” pits a country club’s members against its staff, using a golf course to explore the Philippines’ deep divides over land and class.`\
-https://www.nytimes.com/2026/08/27/world/asia/filipinana-film-golf-course-philippines.html
-
-**Progressives Condemn Pick of Pro-Israel Democrat Atop House Panel**\
-`Outrage over making Representative Jared Moskowitz, who is vocally pro-Israel, the top Democrat on a Middle East policy subcommittee reflected the party’s rift over Israel.`\
-https://www.nytimes.com/2026/08/27/us/politics/democrats-progressives-moskowitz-israel-house-panel.html
 
 **U.S. to Step Up Deportations to Haiti Despite Warning Not to Visit**\
 `(No description)`\
