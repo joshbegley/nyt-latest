@@ -1,4 +1,8 @@
 **Judge Rules Trump Administration’s Blacklisting of Anthropic Was Illegal**\
+`The government retaliated against the A.I. start-up “for constitutionally protected expressive activities,” a federal judge in California wrote.`\
+https://www.nytimes.com/2026/08/27/technology/anthropic-government-blacklisting-ruling.html
+
+**Judge Rules Trump Administration’s Blacklisting of Anthropic Was Illegal**\
 `The government unlawfully retaliated against the A.I. start-up “for constitutionally protected expressive activities,” a federal judge in California wrote.`\
 https://www.nytimes.com/2026/08/27/technology/anthropic-government-blacklisting-ruling.html
 
