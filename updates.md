@@ -1,3 +1,7 @@
+**Inside Afghanistan’s Secret Schools for Girls**\
+`The Taliban have banned education for millions of Afghan girls. Times journalists examined classrooms where students, teachers and parents continue to resist by defying the rules.`\
+https://www.nytimes.com/2026/08/28/world/asia/afghanistan-girls-education.html
+
 **Lindsay Clancy Is on Trial. So Is Postpartum Psychosis.**\
 `She is being tried on murder charges in the deaths of her three children. The tragedy has resurrected debates over whether such women are criminals or victims.`\
 https://www.nytimes.com/2026/08/28/podcasts/the-daily/lindsay-clancy-trial-postpartum-psychosis.html
