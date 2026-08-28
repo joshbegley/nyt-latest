@@ -1,3 +1,7 @@
+**Judge Once Again Bars Postal Service from Restricting Mail-in Vote**\
+`After reviewing the agency’s final plan to comply with President Trump’s demands, a federal judge barred the Postal Service from imposing new restrictions on mail-in voting.`\
+https://www.nytimes.com/2026/08/27/us/politics/judge-postal-service-mail-ballots.html
+
 **NYT Crossword Answers for Aug. 28, 2026**\
 `Jack Hatchett opens our solving weekend.`\
 https://www.nytimes.com/2026/08/27/crosswords/daily-puzzle-2026-08-28.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/08/27/us/politics/trump-lake-america-executive-orde
 **Dollar Tree and Dollar General Report Sales Gains as Shoppers Cut Costs**\
 `Dollar General and Dollar Tree each reported gains in sales and store traffic on Thursday as higher gas prices forced shoppers to pare back.`\
 https://www.nytimes.com/2026/08/27/business/dollar-general-dollar-tree.html
-
-**The Real Bonds Between the U.S. and Canada**\
-`Readers weigh in on the ties between Canada and the United States, beyond the trade war. Also: A disheartening trip to Washington; lessons from military purges past; feminism and face-lifts.`\
-https://www.nytimes.com/2026/08/27/opinion/us-canada-relations.html
 
 **Trump Administration Live: U.S. to Step Up Deportations to Haiti Despite Warning Not to Visit**\
 `(No description)`\

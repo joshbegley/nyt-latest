@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Aug. 28, 2026**\
+`Jack Hatchett opens our solving weekend.`\
+https://www.nytimes.com/2026/08/27/crosswords/daily-puzzle-2026-08-28.html
+
 **Judge Rules Trump Administration’s Blacklisting of Anthropic Was Illegal**\
 `The government retaliated against the A.I. start-up “for constitutionally protected expressive activities,” a federal judge in California wrote.`\
 https://www.nytimes.com/2026/08/27/technology/anthropic-government-blacklisting-ruling.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/08/27/business/dollar-general-dollar-tree.html
 **The Real Bonds Between the U.S. and Canada**\
 `Readers weigh in on the ties between Canada and the United States, beyond the trade war. Also: A disheartening trip to Washington; lessons from military purges past; feminism and face-lifts.`\
 https://www.nytimes.com/2026/08/27/opinion/us-canada-relations.html
-
-**Parents Say Meta Settlement Is Big, but Not Enough**\
-`Across the country, parents described feeling some validation after the landmark $17.1 billion settlement. But they also felt skeptical that much of anything will change.`\
-https://www.nytimes.com/2026/08/27/well/meta-settlement-parents.html
 
 **Trump Administration Live: U.S. to Step Up Deportations to Haiti Despite Warning Not to Visit**\
 `(No description)`\
