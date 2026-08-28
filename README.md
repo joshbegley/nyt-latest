@@ -182,8 +182,8 @@ https://www.nytimes.com/2026/08/28/dining/a-tomato-and-white-bean-stew-for-summe
 `This month’s options include an adaptation of an early Stephen King novel, jungle dinosaur battles and atmospheric thrillers.`\
 https://www.nytimes.com/2026/08/28/movies/science-fiction-movies-streaming.html
 
-**Democrats Want Fighters. A Former Republican Has Ideas.**\
-`On deep frustration with the Democratic establishment and potential souring among Trump supporters.`\
+**‘Trump Voters Are Finally Starting to Sour on Him’**\
+`Democrats want fighters. A former Republican has ideas.`\
 https://www.nytimes.com/2026/08/28/opinion/democrats-fighters-trump-republicans.html
 
 **Maps: Tracking Tropical Storm Lowell**\
