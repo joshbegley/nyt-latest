@@ -1,3 +1,7 @@
+**China Sees Opportunity in America’s Recent A.I. Security Scares**\
+`A leading Chinese A.I. start-up released its latest model and made the case that China’s embrace of open software is safer than Silicon Valley’s closed approach.`\
+https://www.nytimes.com/2026/08/28/business/china-artificial-intelligence-zai.html
+
 **The Home Robert Indiana Left Behind as Possible Museum Site to Be Sold**\
 `The foundation that Indiana created to protect his legacy said his plan became unfeasible and the proceeds would now be used for grants to artists.`\
 https://www.nytimes.com/2026/08/28/arts/design/robert-indiana-home-museum-sale.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/es/2026/08/28/espanol/cultura/resena-runa-simi-quechua.h
 **Trump vs. the Bond Market**\
 `Robin Wigglesworth of Financial Times explains everything you need to know about the Trump administration’s meddling with the bond market.`\
 https://www.nytimes.com/2026/08/28/opinion/ezra-klein-podcast-robin-wigglesworth.html
-
-**The Best Time to Buy a Mattress**\
-`Our expert shares how to negotiate and get the best deal.`\
-https://www.nytimes.com/2026/08/28/podcasts/the-best-time-to-buy-a-mattress.html
 
 **Live Updates: Nepal Roughly Doubles Number of Missing to 1,900 Amid Desperate Search for Survivors**\
 `A spokeswoman for the disaster relief agency said the tally grew after some 900 people were reported missing from hydropower projects. Rescue efforts were complicated by fears of new possible flooding.`\

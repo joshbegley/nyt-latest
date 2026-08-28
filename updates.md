@@ -1,3 +1,11 @@
+**The Home Robert Indiana Left Behind as Possible Museum Site to Be Sold**\
+`The foundation that Indiana created to protect his legacy said his plan became unfeasible and the proceeds would now be used for grants to artists.`\
+https://www.nytimes.com/2026/08/28/arts/design/robert-indiana-home-museum-sale.html
+
+**Flashback: Your Weekly History Quiz, Aug. 29, 2026**\
+`Can you sort 8 historical events?`\
+https://www.nytimes.com/interactive/2026/08/28/upshot/flashback.html
+
 **Near-Total Eclipse Paints the Moon Blood Red**\
 `Moon gazers across the Americas, Africa and Europe could see the deep lunar eclipse on Thursday night.`\
 https://www.nytimes.com/video/science/space/100000011119062/lunar-eclipse-moon-red.html
