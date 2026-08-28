@@ -1,3 +1,7 @@
+**Fed Chairman Seeks to Calm Concerns About Elevated Inflation**\
+`In a high-profile speech, Kevin M. Warsh said that the Federal Reserve was chiefly responsible for taming inflation. If price increases did not return to the central bank’s target quickly, “we have work to do,” he said.`\
+https://www.nytimes.com/2026/08/28/business/fed-kevin-warsh-speech-inflation.html
+
 **Why Countries Are Pushing Social Media Bans Despite Their Flaws**\
 `Proposals for curbing social media use among children have wide support, but critics say they are ineffective.`\
 https://www.nytimes.com/2026/08/28/technology/social-media-bans-meta.html
