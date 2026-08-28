@@ -1,3 +1,11 @@
+**FAFSA Form for College Aid Will Be Less Stressful This Year, Officials Say**\
+`The college financial aid form has long been a stressor for high school seniors and their parents. Fixes have made it simpler and faster to complete, officials say.`\
+https://www.nytimes.com/2026/08/28/business/college-aid-fafsa.html
+
+**What if the A.I. Stock Market Rally Is Just Getting Started?**\
+`Edward Yardeni, an upbeat strategist with an excellent track record in assessing the stock market, explains why he thinks the good times will continue for years.`\
+https://www.nytimes.com/2026/08/28/business/ai-stock-market-bull-rally.html
+
 **Warsh’s Big Test at Jackson Hole**\
 `Investors want Kevin Warsh, the Fed chairman, to address inflation, interest rates and the bond market in a major speech. Some worry he won’t say enough.`\
 https://www.nytimes.com/2026/08/28/business/dealbook/warsh-fed-jackson-hole.html
@@ -78,7 +86,7 @@ https://www.nytimes.com/2026/08/28/pageoneplus/corrections-aug-28-2026.html
 `El documental peruano ‘Runa Simi’ retrata la obstinación de un actor de doblaje empeñado en traducir ‘El rey león’ a su lengua materna con el respaldo de Disney.`\
 https://www.nytimes.com/es/2026/08/28/espanol/cultura/resena-runa-simi-quechua.html
 
-**The Bond Market Chaos Is Coming for Us All**\
+**Trump vs. the Bond Market**\
 `Robin Wigglesworth of Financial Times explains everything you need to know about the Trump administration’s meddling with the bond market.`\
 https://www.nytimes.com/2026/08/28/opinion/ezra-klein-podcast-robin-wigglesworth.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/28/world/europe/ireland-dunguaire-castle.html
 **NASA’s Nancy Grace Roman Telescope Promises a Breakthrough in Cosmic Exploration**\
 `NASA’s latest offering to the stars comes from a legacy of great observatories that enabled decades of discovery and unearthed new mysteries about the universe.`\
 https://www.nytimes.com/2026/08/28/science/nasa-nancy-grace-roman-space-telescope.html
-
-**Floating Points Makes Music for the Dance Floor, and Ballet**\
-`Floating Points brings his niche classical music obsessions and deep love for dance clubs to his ballet score and new album “Mere Mortals.”`\
-https://www.nytimes.com/2026/08/28/arts/music/floating-points-dance-and-ballet-music.html
-
-**Tips for Traveling While Pregnant**\
-`Doing research and getting advice from your doctor before you go can make your trip smoother.`\
-https://www.nytimes.com/2026/08/28/travel/pregnant-travel-trips.html
 
