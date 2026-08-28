@@ -1,3 +1,11 @@
+**New Exclusive Video Reveals Immediate Aftermath of Nepal Glacier Collapse**\
+`New footage exclusively obtained by The New York Times showed the aftermath of the moment a giant glacier broke away from the top of a ridge in the Himalayas, setting off a deluge of mud, snow, floodwaters and debris to the valley communities below. Upstream, two newly formed lakes threaten rescue efforts for hundreds of missing people.`\
+https://www.nytimes.com/video/world/asia/100000011119084/new-exclusive-video-reveals-immediate-aftermath-of-nepal-glacier-collapse.html
+
+**In Win for Trump, Chevron Is Said to Be in Talks to Expand in Venezuela**\
+`The Trump administration has been pushing U.S. oil companies like Chevron to invest more in Venezuela’s oil industry.`\
+https://www.nytimes.com/2026/08/28/business/energy-environment/chevron-venezuela-oil-deal.html
+
 **Trump Administration Appeals Ruling Halting Mail-In Voting Rules**\
 `The Postal Service appealed an emergency decision from Thursday that blocked it from changing its procedures for mail-in voting ahead of the upcoming midterm elections.`\
 https://www.nytimes.com/2026/08/28/us/politics/trump-appeal-mail-ballot.html
