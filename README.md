@@ -1,3 +1,7 @@
+**¿Qué tienen que ver las sanciones a Rusia con los robos de autos en Canadá?**\
+`Cuando las automotrices occidentales abandonaron el mercado ruso y muchas naciones prohibieron exportar vehículos a ese país, los grupos criminales se movilizaron para llenar el vacío con vehículos canadienses.`\
+https://www.nytimes.com/es/2026/08/28/espanol/mundo/robo-autos-canada-sanciones-rusia.html
+
 **She Filmed the Towers That Morning. 25 Years Later, She Finally Watched.**\
 `Thuc Nguyen filmed the World Trade Center attack from the fire escape of her Chinatown apartment. For many years, she avoided looking at the footage.`\
 https://www.nytimes.com/2026/08/28/nyregion/9-11-footage-25-years-unreleased.html
@@ -14,7 +18,7 @@ https://www.nytimes.com/2026/08/28/crosswords/spelling-bee-forum.html
 `His 35-year reign opened an ancient monarchy to marriages with so-called commoners and to an incendiary association with Jeffrey Epstein.`\
 https://www.nytimes.com/2026/08/28/world/europe/king-harald-v-dead.html
 
-**Live Updates: New Flood Warning Complicates Desperate Himalayan Search**\
+**Live Updates: New Nepal Flood Warning Complicates Desperate Himalayan Search**\
 `Rescuers are racing to find survivors of a torrent that swept through valleys along the China-Nepal border. The Nepali police on Friday warned people to head for safety, citing a new risk of flooding.`\
 https://www.nytimes.com/live/2026/08/28/world/nepal-tibet-flash-floods
 
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/08/27/world/asia/filipinana-film-golf-course-philip
 **Progressives Condemn Pick of Pro-Israel Democrat Atop House Panel**\
 `Outrage over making Representative Jared Moskowitz, who is vocally pro-Israel, the top Democrat on a Middle East policy subcommittee reflected the party’s rift over Israel.`\
 https://www.nytimes.com/2026/08/27/us/politics/democrats-progressives-moskowitz-israel-house-panel.html
-
-**Kansas Judge Dismisses Murder Charge Against Sheriff’s Deputy**\
-`The judge said prosecutors had failed to meet their burden in the case against a deputy charged in the 2025 jailhouse death of an inmate.`\
-https://www.nytimes.com/2026/08/27/us/kansas-deputy-murder-charge-dismissed.html
 
 **U.S. to Step Up Deportations to Haiti Despite Warning Not to Visit**\
 `(No description)`\
