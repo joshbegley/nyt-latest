@@ -114,7 +114,7 @@ https://www.nytimes.com/2026/08/28/business/iran-war-oil-stocks-prices.html
 `In September, the Book Review Book Club will read Paul Yoon’s latest, about a bomb-sniffing dog trying to make it home after a war.`\
 https://www.nytimes.com/2026/08/28/books/review/etna-paul-yoon-book-club.html
 
-**The Town Council Race Was Tied. The Three of Spades Called It.**\
+**A Town Council Turns to a Deck of Cards to Break a Tie**\
 `Two candidates for Town Council in Gila Bend, Ariz., finished with the same number of votes. A century-old state law mandated breaking the tie with a game of chance.`\
 https://www.nytimes.com/2026/08/28/us/gila-bend-election-tiebreaker.html
 

@@ -1,3 +1,7 @@
+**Jury Continues Deliberations in Lindsay Clancy Murder Trial**\
+`To reach a verdict, jurors must agree on whether Ms. Clancy should be held criminally responsible for killing her three children.`\
+https://www.nytimes.com/2026/08/28/us/lindsay-clancy-trial-jury-deliberation.html
+
 **FAFSA Form for College Aid Will Be Less Stressful This Year, Officials Say**\
 `The college financial aid form has long been a stressor for high school seniors and their parents. Fixes have made it simpler and faster to complete, officials say.`\
 https://www.nytimes.com/2026/08/28/business/college-aid-fafsa.html

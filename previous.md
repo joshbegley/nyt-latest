@@ -62,13 +62,13 @@ https://www.nytimes.com/2026/08/28/world/europe/iceland-european-union-vote.html
 `The announcement has sent panic through a community that fled its country’s brutal military rule, civil war, religious persecution or some combination of the three.`\
 https://www.nytimes.com/2026/08/28/world/asia/rohingya-refugees-malaysia-myanmar.html
 
-**Jury Deliberations Underway in Lindsay Clancy Murder Trial**\
-`In order to reach a verdict, jurors must agree on whether Ms. Clancy should be held criminally responsible for killing her three children.`\
-https://www.nytimes.com/2026/08/28/us/lindsay-clancy-trial-jury-deliberation.html
-
 **Wyoming Governor Objects to ‘Very Odd’ D.O.J. Election Monitoring**\
 `Governor Mark Gordon, a Republican, said he was concerned by the behavior of election observers who visited a polling station in Cheyenne.`\
 https://www.nytimes.com/2026/08/28/us/politics/wyoming-governor-objects-to-very-odd-doj-election-monitoring.html
+
+**Jury Continues Deliberations in Lindsay Clancy Murder Trial**\
+`To reach a verdict, jurors must agree on whether Ms. Clancy should be held criminally responsible for killing her three children.`\
+https://www.nytimes.com/2026/08/28/us/lindsay-clancy-trial-jury-deliberation.html
 
 **Make Friendship a Healthy Habit**\
 `Commit to your friendships like you do the gym.`\
