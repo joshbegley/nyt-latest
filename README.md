@@ -146,7 +146,7 @@ https://www.nytimes.com/2026/08/28/opinion/successful-people-help.html
 `Our energy reporter Rebecca F. Elliott explains how oil reserves helped prevent an oil shock caused by the war in Iran from getting even worse — and how low those reserves are now.`\
 https://www.nytimes.com/video/us/100000011093055/how-key-oil-stockpiles-dwindled-during-the-war-in-iran.html
 
-**What It Would Take to Dismantle the Most Powerful Companies in the World**\
+**What It Took to Dismantle the Most Powerful Company in the World**\
 `A playbook to curb the growing power of Big Tech.`\
 https://www.nytimes.com/2026/08/28/opinion/ai-power-lobbying-military-britain-east-india-company.html
 
