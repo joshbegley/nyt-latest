@@ -152,7 +152,7 @@ https://www.nytimes.com/2026/08/28/theater/les-miserables-review-hudson-valley-s
 
 **Inside Afghanistan’s Secret Schools for Girls**\
 `The Taliban have banned education for millions of Afghan girls. Times journalists examined classrooms where students, teachers and parents continue to resist by defying the rules.`\
-https://www.nytimes.com/2026/08/28/world/asia/afghanistans-girls-education.html
+https://www.nytimes.com/2026/08/28/world/asia/afghanistan-girls-education.html
 
 **Word of the Day: pirouette**\
 `This word has appeared in 21 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
