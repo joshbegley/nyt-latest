@@ -1,3 +1,7 @@
+**Judge Rules Trump Administration’s Blacklisting of Anthropic Was Illegal**\
+`The government unlawfully retaliated against the A.I. start-up “for constitutionally protected expressive activities,” a federal judge in California wrote.`\
+https://www.nytimes.com/2026/08/27/technology/anthropic-government-blacklisting-ruling.html
+
 **New Red Flag Warnings For Area Around Fire in Big Sur, Calif.**\
 `A red flag warning was issued for much of Friday along California’s Central Coast, where multiple fires have burned this month.`\
 https://www.nytimes.com/2026/08/27/weather/big-sur-fire-updates.html

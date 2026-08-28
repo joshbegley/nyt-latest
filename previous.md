@@ -1,3 +1,7 @@
+**Judge Rules Trump Administration’s Blacklisting of Anthropic Was Illegal**\
+`The government unlawfully retaliated against the A.I. start-up “for constitutionally protected expressive activities,” a federal judge in California wrote.`\
+https://www.nytimes.com/2026/08/27/technology/anthropic-government-blacklisting-ruling.html
+
 **New Red Flag Warnings For Area Around Fire in Big Sur, Calif.**\
 `A red flag warning was issued for much of Friday along California’s Central Coast, where multiple fires have burned this month.`\
 https://www.nytimes.com/2026/08/27/weather/big-sur-fire-updates.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/08/27/opinion/us-canada-relations.html
 **Parents Say Meta Settlement Is Big, but Not Enough**\
 `Across the country, parents described feeling some validation after the landmark $17.1 billion settlement. But they also felt skeptical that much of anything will change.`\
 https://www.nytimes.com/2026/08/27/well/meta-settlement-parents.html
-
-**Men Are Rethinking Their Approach to Skin Care**\
-`Three perspectives on aging reveal different priorities, while a dermatologist examines the ingredients behind SkinCeuticals P-TIOX Cream.`\
-http://brandedplaylist.nytimes.com/video/embedded/t-brand/100000011117208/men-are-rethinking-their-approach-to-skin-care.html
 
 **Trump Administration Live: U.S. to Step Up Deportations to Haiti Despite Warning Not to Visit**\
 `(No description)`\
