@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/admin/100000011119036/28vids-nepal-floods-embeds.html
+
 **Who Is Haakon, Norway’s New King?**\
 `Crown Prince Haakon, the only son of King Harald V, will become monarch, a largely ceremonial and symbolic role.`\
 https://www.nytimes.com/2026/08/28/world/europe/norway-new-king-haakon.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/28/world/middleeast/iranians-war-six-months-losi
 **The Bond Market Chaos Is Coming for Us All**\
 `Robin Wigglesworth of Financial Times explains everything you need to know about the Trump administration’s meddling with the bond market.`\
 https://www.nytimes.com/video/opinion/100000011115412/the-bond-market-chaos-is-coming-for-us-all.html
-
-**Six Months In, Iran Appears Stronger and U.S. Goals Unclear**\
-`Trump’s replacement of a military war with a heightened economic one is not expected to alter Iran’s strategy, while further impoverishing its people.`\
-https://www.nytimes.com/2026/08/28/world/europe/six-months-in-irans-regime-stands-us-goals-remain-unmet.html
 
