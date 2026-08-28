@@ -1,3 +1,27 @@
+**Lindsay Clancy Is on Trial. So Is Postpartum Psychosis.**\
+`She is being tried on murder charges in the deaths of her three children. The tragedy has resurrected debates over whether such women are criminals or victims.`\
+https://www.nytimes.com/2026/08/28/podcasts/the-daily/lindsay-clancy-trial-postpartum-psychosis.html
+
+**Six Months of War, and Trump’s Push for ‘Lake America’**\
+`Plus, the Friday news quiz.`\
+https://www.nytimes.com/2026/08/28/podcasts/the-headlines/six-months-of-war-and-trumps-push-for-lake-america.html
+
+**NYT Connections Answers for August 29, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Aug. 29, 2026.`\
+https://www.nytimes.com/2026/08/28/crosswords/connections-companion-1175.html
+
+**NYT Strands Hints for August 29, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Aug. 29, 2026.`\
+https://www.nytimes.com/2026/08/28/crosswords/strands-sidekick-909.html
+
+**Today’s Wordle Hints for August 29. 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Aug. 29, 2026.`\
+https://www.nytimes.com/2026/08/28/crosswords/wordle-review-1897.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/admin/100000011119036/28vids-nepal-floods-embeds.html
+
 **Who Is Haakon, Norway’s New King?**\
 `Crown Prince Haakon, the only son of King Harald V, will become monarch, a largely ceremonial and symbolic role.`\
 https://www.nytimes.com/2026/08/28/world/europe/norway-new-king-haakon.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/08/28/nyregion/nob-hill-private-equity-fire.html
 **Adult Mystery Books for Fans of Detectives and Spies**\
 `The best-selling thriller writer Tess Gerritsen likes older detectives who bring a lifetime of experience to their cases.`\
 https://www.nytimes.com/2026/08/28/books/mystery-detective-books-adults.html
-
-**Inside a Secret School for Afghan Girls**\
-`Under Taliban rule, Afghan girls are officially barred from receiving an education beyond the sixth grade. Across the country, however, clandestine classrooms have emerged to defy the ban. Our Afghanistan and Pakistan bureau chief, Elian Peltier, visited one of these covert schools to meet the young women determined to learn.`\
-https://www.nytimes.com/video/world/asia/100000010989934/inside-a-secret-school-for-afghan-girls.html
-
-**The New York Times News Quiz, August 28, 2026**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://www.nytimes.com/quiz/2026/08/28/briefing/weekly-news-quiz.html
-
-**Can You Park in an E.V. Charging Spot With a Regular Car?**\
-`A ruling on a parking lot dispute.`\
-https://www.nytimes.com/quiz/2026/08/27/magazine/ev-parking-spot-hodgman-quiz.html
-
-**Why Many Iranians Are Losing Hope After Six Months of War**\
-`Iranians have become increasingly desperate, as they grapple with an economic crisis made worse by the conflict and grow increasingly skeptical about President Trump’s motives.`\
-https://www.nytimes.com/2026/08/28/world/middleeast/iranians-war-six-months-losing-hope.html
-
-**The Bond Market Chaos Is Coming for Us All**\
-`Robin Wigglesworth of Financial Times explains everything you need to know about the Trump administration’s meddling with the bond market.`\
-https://www.nytimes.com/video/opinion/100000011115412/the-bond-market-chaos-is-coming-for-us-all.html
-
-**Six Months In, Iran Appears Stronger and U.S. Goals Unclear**\
-`Trump’s replacement of a military war with a heightened economic one is not expected to alter Iran’s strategy, while further impoverishing its people.`\
-https://www.nytimes.com/2026/08/28/world/europe/six-months-in-irans-regime-stands-us-goals-remain-unmet.html
 

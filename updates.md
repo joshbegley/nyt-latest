@@ -1,3 +1,27 @@
+**Lindsay Clancy Is on Trial. So Is Postpartum Psychosis.**\
+`She is being tried on murder charges in the deaths of her three children. The tragedy has resurrected debates over whether such women are criminals or victims.`\
+https://www.nytimes.com/2026/08/28/podcasts/the-daily/lindsay-clancy-trial-postpartum-psychosis.html
+
+**Six Months of War, and Trump’s Push for ‘Lake America’**\
+`Plus, the Friday news quiz.`\
+https://www.nytimes.com/2026/08/28/podcasts/the-headlines/six-months-of-war-and-trumps-push-for-lake-america.html
+
+**NYT Connections Answers for August 29, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Aug. 29, 2026.`\
+https://www.nytimes.com/2026/08/28/crosswords/connections-companion-1175.html
+
+**NYT Strands Hints for August 29, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Aug. 29, 2026.`\
+https://www.nytimes.com/2026/08/28/crosswords/strands-sidekick-909.html
+
+**Today’s Wordle Hints for August 29. 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Aug. 29, 2026.`\
+https://www.nytimes.com/2026/08/28/crosswords/wordle-review-1897.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/admin/100000011119036/28vids-nepal-floods-embeds.html
+
 **Who Is Haakon, Norway’s New King?**\
 `Crown Prince Haakon, the only son of King Harald V, will become monarch, a largely ceremonial and symbolic role.`\
 https://www.nytimes.com/2026/08/28/world/europe/norway-new-king-haakon.html
