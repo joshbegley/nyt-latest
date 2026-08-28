@@ -1,3 +1,7 @@
+**Meta Shifts the Blame + Do Data Center Bans Work? + The Final HatGPT**\
+`Meta negotiated an unusual provision in their landmark settlement: If TikTok and YouTube also agree to penalties and changes to their products, Meta will pay more.`\
+https://www.nytimes.com/2026/08/28/podcasts/hardfork-meta-settlement.html
+
 **A Disaster in Nepal**\
 `Authorities in Nepal are warning rescuers that more flooding may be on its way. Let’s start there.`\
 https://www.nytimes.com/2026/08/28/briefing/a-disaster-in-nepal.html

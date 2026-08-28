@@ -1,3 +1,7 @@
+**Meta Shifts the Blame + Do Data Center Bans Work? + The Final HatGPT**\
+`Meta negotiated an unusual provision in their landmark settlement: If TikTok and YouTube also agree to penalties and changes to their products, Meta will pay more.`\
+https://www.nytimes.com/2026/08/28/podcasts/hardfork-meta-settlement.html
+
 **A Disaster in Nepal**\
 `Authorities in Nepal are warning rescuers that more flooding may be on its way. Let’s start there.`\
 https://www.nytimes.com/2026/08/28/briefing/a-disaster-in-nepal.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/28/business/economy/uaw-shawn-fain-reelection.ht
 **A New Documentary Gives Butthole Surfers Their Due**\
 `A new movie explores Butthole Surfers’ musical legacy, with layers of loss and regret. “It’s kind of vindicating,” the singer Gibby Haynes said.`\
 https://www.nytimes.com/2026/08/28/movies/butthole-surfers-documentary.html
-
-**How a Private Equity Group Drove an Apartment Complex Into the Ground**\
-`After decades as a coveted address in Syracuse, N.Y., the sprawling Nob Hill complex descended into neglect, squalor and death. One family paid a terrible price.`\
-https://www.nytimes.com/2026/08/28/nyregion/nob-hill-private-equity-fire.html
 
