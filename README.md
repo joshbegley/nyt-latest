@@ -1,3 +1,7 @@
+**China Offers Condolences to Nepal While Emphasizing Disaster Began There**\
+`China’s leader, Xi Jinping, issued his first message to Nepal’s government  since the landslide on Wednesday that has left hundreds dead near the countries’ border.`\
+https://www.nytimes.com/2026/08/28/world/asia/china-nepal-floods-xi-jinping.html
+
 **Today, In Short**\
 `Weather influencers. Cottage cheese. And tennis.`\
 https://www.nytimes.com/2026/08/28/briefing/today-in-short.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/08/28/realestate/homes-costa-del-sol-spain.html
 **9 New Movies Our Critics Are Talking About This Week**\
 `Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
 https://www.nytimes.com/2026/08/28/movies/new-movies-this-week-critics.html
-
-**Where a Catholic School Closed, a Charter School Opens**\
-`In Sunset Park, Brooklyn, Launch Schools is leasing a former parochial school building as a permanent home for its high school.`\
-https://www.nytimes.com/2026/08/28/nyregion/parochial-school-charter-brooklyn.html
 
 **Live Updates: Nepal Roughly Doubles Number of Missing to 1,900 Amid Desperate Search for Survivors**\
 `A spokeswoman for the disaster relief agency said the tally grew after some 900 people were reported missing from hydropower projects. Rescue efforts were complicated by fears of new possible flooding.`\

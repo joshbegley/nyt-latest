@@ -190,7 +190,7 @@ https://www.nytimes.com/2026/08/28/movies/new-movies-this-week-critics.html
 `In Sunset Park, Brooklyn, Launch Schools is leasing a former parochial school building as a permanent home for its high school.`\
 https://www.nytimes.com/2026/08/28/nyregion/parochial-school-charter-brooklyn.html
 
-**Live Updates: Nepal Nearly Doubles Number of Missing to 1,900 Amid Desperate Search for Survivors**\
+**Live Updates: Nepal Roughly Doubles Number of Missing to 1,900 Amid Desperate Search for Survivors**\
 `A spokeswoman for the disaster relief agency said the tally grew after some 900 people were reported missing from hydropower projects. Rescue efforts were complicated by fears of new possible flooding.`\
 https://www.nytimes.com/live/2026/08/28/world/nepal-tibet-flash-floods
 
