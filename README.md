@@ -1,3 +1,7 @@
+**The Home Robert Indiana Left Behind as Possible Museum Site to Be Sold**\
+`The foundation that Indiana created to protect his legacy said his plan became unfeasible and the proceeds would now be used for grants to artists.`\
+https://www.nytimes.com/2026/08/28/arts/design/robert-indiana-home-museum-sale.html
+
 **Flashback: Your Weekly History Quiz, Aug. 29, 2026**\
 `Can you sort 8 historical events?`\
 https://www.nytimes.com/interactive/2026/08/28/upshot/flashback.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/08/28/opinion/ezra-klein-podcast-robin-wigglesworth
 **The Best Time to Buy a Mattress**\
 `Our expert shares how to negotiate and get the best deal.`\
 https://www.nytimes.com/2026/08/28/podcasts/the-best-time-to-buy-a-mattress.html
-
-**With Term Winding Down, Pelosi Tries to Anoint a Successor**\
-`Representative Nancy Pelosi, the former House speaker, has been working hard on behalf of Connie Chan, a San Francisco supervisor with a relatively low profile in California.`\
-https://www.nytimes.com/2026/08/28/us/pelosi-connie-chan-congress.html
 
 **Live Updates: Nepal Roughly Doubles Number of Missing to 1,900 Amid Desperate Search for Survivors**\
 `A spokeswoman for the disaster relief agency said the tally grew after some 900 people were reported missing from hydropower projects. Rescue efforts were complicated by fears of new possible flooding.`\
