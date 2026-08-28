@@ -1,3 +1,7 @@
+**King Donald Is Dethroning the Dollar**\
+`The dollar’s roll as the world’s reserve currency is threatened by the erosion of our institutions under Trump.`\
+https://www.nytimes.com/2026/08/28/opinion/trump-dollar-currency.html
+
 **In Nepal, Fears of a Second Flood Grow as Rescue Efforts Continue**\
 `Nepali and Chinese authorities warned that a lake created by a deadly landslide could burst open soon. Another deluge would pose the most risk to rescuers, an expert said.`\
 https://www.nytimes.com/2026/08/28/world/asia/nepal-flash-floods-rescue.html
