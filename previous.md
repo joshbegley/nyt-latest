@@ -1,3 +1,7 @@
+**For Once, a New York Jet Is Destined to Win Something**\
+`A House race in Arizona pits Jay Feely, a former Jets kicker, against Amish Shah, a former sideline doctor for the team. Jets fans in the district say it’s a welcome distraction from all the losing.`\
+https://www.nytimes.com/2026/08/28/us/politics/new-york-jets-house-race-feely-shah.html
+
 **An Experimental Single-Time Treatment Slashed Cholesterol for a Year**\
 `A small gene-editing study significantly reduced LDL cholesterol levels, and the results have stuck a year later.`\
 https://www.nytimes.com/2026/08/28/science/an-experimental-single-time-treatment-slashed-cholesterol-for-a-year.html
@@ -86,13 +90,13 @@ https://www.nytimes.com/2026/08/28/world/europe/iceland-european-union-vote.html
 `The announcement has sent panic through a community that fled its country’s brutal military rule, civil war, religious persecution or some combination of the three.`\
 https://www.nytimes.com/2026/08/28/world/asia/rohingya-refugees-malaysia-myanmar.html
 
-**Wyoming Governor Objects to ‘Very Odd’ D.O.J. Election Monitoring**\
-`Governor Mark Gordon, a Republican, said he was concerned by the behavior of election observers who visited a polling station in Cheyenne.`\
-https://www.nytimes.com/2026/08/28/us/politics/wyoming-governor-objects-to-very-odd-doj-election-monitoring.html
-
 **Jury Continues Deliberations in Lindsay Clancy Murder Trial**\
 `To reach a verdict, jurors must agree on whether Ms. Clancy should be held criminally responsible for killing her three children.`\
 https://www.nytimes.com/2026/08/28/us/lindsay-clancy-trial-jury-deliberation.html
+
+**Wyoming Governor Objects to ‘Very Odd’ D.O.J. Election Monitoring**\
+`Governor Mark Gordon, a Republican, said he was concerned by the behavior of election observers who visited a polling station in Cheyenne.`\
+https://www.nytimes.com/2026/08/28/us/politics/wyoming-governor-objects-to-very-odd-doj-election-monitoring.html
 
 **Make Friendship a Healthy Habit**\
 `Commit to your friendships like you do the gym.`\
@@ -186,15 +190,7 @@ https://www.nytimes.com/video/us/100000011093055/how-key-oil-stockpiles-dwindled
 `A playbook to curb the growing power of Big Tech.`\
 https://www.nytimes.com/2026/08/28/opinion/ai-power-lobbying-military-britain-east-india-company.html
 
-**Sun-Ways Is Testing Out Train Track Solar Farms**\
-`A pilot program placing solar panels between the rails has proven successful enough that the idea is spreading to Italy, France and Korea.`\
-https://www.nytimes.com/2026/08/28/climate/solar-power-railway-train-tracks.html
-
-**A New Declaration of Independence for America’s 250th Birthday From Arion Press**\
-`In the heart of tech-mad San Francisco, Arion Press makes some of the world’s most sought-after dead-tree artifacts, including a new riff on the Declaration of Independence.`\
-https://www.nytimes.com/2026/08/28/arts/arion-press-san-francisco-declaration-independence.html
-
-**Live Updates: New Nepal Flood Warning Clouds Desperate Search for Survivors**\
-`The Nepali police warned people to head for safety because more water could soak flood-ravaged villages. China said that the risk of a Tibetan lake overflowing had “gradually decreased.”`\
+**Live Updates: Nepal Nearly Doubles Number of Missing to 1,900 Amid Desperate Search for Survivors**\
+`A spokeswoman for the disaster relief agency said the tally grew after some 900 people were reported missing from hydropower projects. Rescue efforts were complicated by fears of new possible flooding.`\
 https://www.nytimes.com/live/2026/08/28/world/nepal-tibet-flash-floods
 

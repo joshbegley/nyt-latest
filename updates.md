@@ -1,3 +1,11 @@
+**For Once, a New York Jet Is Destined to Win Something**\
+`A House race in Arizona pits Jay Feely, a former Jets kicker, against Amish Shah, a former sideline doctor for the team. Jets fans in the district say it’s a welcome distraction from all the losing.`\
+https://www.nytimes.com/2026/08/28/us/politics/new-york-jets-house-race-feely-shah.html
+
+**Live Updates: Nepal Nearly Doubles Number of Missing to 1,900 Amid Desperate Search for Survivors**\
+`A spokeswoman for the disaster relief agency said the tally grew after some 900 people were reported missing from hydropower projects. Rescue efforts were complicated by fears of new possible flooding.`\
+https://www.nytimes.com/live/2026/08/28/world/nepal-tibet-flash-floods
+
 **Companies Can Tell Investors Less Under Proposed S.E.C. Rules**\
 `Fewer audit and disclosure requirements could reduce costs, but experts say they could also help disguise fraud or financial stress.`\
 https://www.nytimes.com/2026/08/28/business/economy/sec-quarterly-reporting.html
