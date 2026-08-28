@@ -1,3 +1,7 @@
+**You Can Have My Walkman, Just Don’t Take My Mix Tape**\
+`These objects contain meaning.`\
+https://www.nytimes.com/interactive/2026/08/28/style/mix-tape-analog-music.html
+
 **El jefe de la CIA viajó en secreto a Rusia y entregó una evaluación sombría de la guerra**\
 `La reunión de esta semana de John Ratcliffe con un jefe de la inteligencia rusa tenía como objetivo presionar al Kremlin para que buscara un acuerdo de paz con Ucrania.`\
 https://www.nytimes.com/es/2026/08/28/espanol/estados-unidos/director-cia-reunion-secreta-rusia.html
