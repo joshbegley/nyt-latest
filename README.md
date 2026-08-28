@@ -1,3 +1,7 @@
+**Investors Expect Higher Rates After Fed Chairman’s Inflation Pledge**\
+`Kevin Warsh reiterated the Federal Reserve’s commitment to tackle rising prices, nudging up investor expectations of a rate increase.`\
+https://www.nytimes.com/2026/08/28/business/markets-stocks-bonds-warsh-jackson-hole.html
+
 **China Sees Opportunity in America’s Recent A.I. Security Scares**\
 `A leading Chinese A.I. start-up released its latest model and made the case that China’s embrace of open software is safer than Silicon Valley’s closed approach.`\
 https://www.nytimes.com/2026/08/28/business/china-artificial-intelligence-zai.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/08/28/pageoneplus/corrections-aug-28-2026.html
 **Reseña de ‘Runa Simi’: la lucha por mantener vivo el quechua**\
 `El documental peruano ‘Runa Simi’ retrata la obstinación de un actor de doblaje empeñado en traducir ‘El rey león’ a su lengua materna con el respaldo de Disney.`\
 https://www.nytimes.com/es/2026/08/28/espanol/cultura/resena-runa-simi-quechua.html
-
-**Trump vs. the Bond Market**\
-`Robin Wigglesworth of Financial Times explains everything you need to know about the Trump administration’s meddling with the bond market.`\
-https://www.nytimes.com/2026/08/28/opinion/ezra-klein-podcast-robin-wigglesworth.html
 
 **Live Updates: Nepal Roughly Doubles Number of Missing to 1,900 Amid Desperate Search for Survivors**\
 `A spokeswoman for the disaster relief agency said the tally grew after some 900 people were reported missing from hydropower projects. Rescue efforts were complicated by fears of new possible flooding.`\
