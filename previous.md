@@ -1,3 +1,11 @@
+**Mark Zuckerberg quiere asegurarse de que YouTube y TikTok compartan su dolor**\
+`Como parte de un acuerdo, Meta aceptó limitar el acceso de los niños a sus productos estrella como Instagram y Facebook. Ahora busca que sus competidores acaten las mismas reglas.`\
+https://www.nytimes.com/es/2026/08/28/espanol/negocios/meta-cambios-instagram-tiktok-youtube.html
+
+**La derecha reconsidera lo MAGA. La izquierda reconsidera lo ‘woke’**\
+`Tres columnistas conversan sobre el rumbo del Partido Republicano después del presidente Donald Trump y los cambios que los demócratas comienzan a plantearse.`\
+https://www.nytimes.com/es/2026/08/28/espanol/opinion/estados-unidos-elecciones-trump-maga-woke-izquierda.html
+
 **King Donald Is Dethroning the Dollar**\
 `The dollar’s roll as the world’s reserve currency is threatened by the erosion of our institutions under Trump.`\
 https://www.nytimes.com/2026/08/28/opinion/trump-dollar-currency.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/video/style/100000011109687/why-the-florida-democrat-ang
 **Fans Push to Rename Nashville Airport for Dolly Parton**\
 `A surging online push to rename Nashville International Airport for the beloved Tennessean superstar could get snagged in bureaucracy and politics.`\
 https://www.nytimes.com/2026/08/27/travel/dolly-parton-nashville-airport.html
-
-**Jaye P. Morgan, Hit-Making Singer and Bawdy TV Personality, Dies at 94**\
-`With a humorous stage name adapted from that of the New York financier, she made a 1950s Hit Parade splash and later was a flamboyant talk-show regular.`\
-https://www.nytimes.com/2026/08/27/arts/jaye-p-morgan-dead.html
-
-**Check These Dishes Off Your Summer Bucket List Before It’s Too Late**\
-`Jerk chicken in the heart of Flatbush, an actually affordable lobster roll and all the soft shell crab you can eat.`\
-https://www.nytimes.com/2026/08/27/dining/bucket-list.html
 
 **U.S. to Step Up Deportations to Haiti Despite Warning Not to Visit**\
 `(No description)`\

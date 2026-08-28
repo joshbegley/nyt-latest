@@ -1,3 +1,11 @@
+**Mark Zuckerberg quiere asegurarse de que YouTube y TikTok compartan su dolor**\
+`Como parte de un acuerdo, Meta aceptó limitar el acceso de los niños a sus productos estrella como Instagram y Facebook. Ahora busca que sus competidores acaten las mismas reglas.`\
+https://www.nytimes.com/es/2026/08/28/espanol/negocios/meta-cambios-instagram-tiktok-youtube.html
+
+**La derecha reconsidera lo MAGA. La izquierda reconsidera lo ‘woke’**\
+`Tres columnistas conversan sobre el rumbo del Partido Republicano después del presidente Donald Trump y los cambios que los demócratas comienzan a plantearse.`\
+https://www.nytimes.com/es/2026/08/28/espanol/opinion/estados-unidos-elecciones-trump-maga-woke-izquierda.html
+
 **LA Mayor Karen Bass Eases Street Vending Crackdown After Debate**\
 `Mayor Karen Bass said food vendors discourage restaurant patrons, mentioning them alongside homeless encampments. Her opponent, Nithya Raman, said vendors should be brought into the system.`\
 https://www.nytimes.com/2026/08/27/us/los-angeles-street-vendors-karen-bass.html
