@@ -1,3 +1,11 @@
+**Read the Decision From Judge Alvin Hellerstein**\
+`The judge denied President Trump’s request to move his Manhattan criminal case to federal court, saying his arguments were “neither new nor legally sufficient.”`\
+https://www.nytimes.com/interactive/2026/08/28/nyregion/trump-hush-money-case-hellerstein-decision.html
+
+**Tank That Imploded at Washington Paper Plant, Killing 11, Was Known to Be Unsafe, Report Says**\
+`A chemical disaster in Washington in May involved a tank that had been deemed at risk of failure nearly a year before, according to federal investigators.`\
+https://www.nytimes.com/2026/08/28/us/longview-chemical-tank-warnings.html
+
 **Judge Again Denies Trump’s Request to Move Hush-Money Case to Federal Court**\
 `The ruling, from Judge Alvin K. Hellerstein, blocks President Trump’s quickest path to overturning his 2024 conviction for covering up hush-money payments to a porn star.`\
 https://www.nytimes.com/2026/08/28/nyregion/trump-hush-money-case.html

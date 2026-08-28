@@ -147,7 +147,7 @@ https://www.nytimes.com/2026/08/28/business/economy/sec-quarterly-reporting.html
 https://www.nytimes.com/interactive/polls/north-carolina-us-house-3-polls-2026.html
 
 **Fed Chairman Warsh Seeks to Calm Elevated Inflation Concerns**\
-`In a high-profile speech, Kevin M. Warsh said the Federal Reserve was chiefly responsible for taming inflation. If price increases did not return to the central bank’s target quickly, “we have work to do,” he said.`\
+`In a high-profile speech, Kevin M. Warsh said that the Federal Reserve was chiefly responsible for taming inflation. If price increases did not return to the central bank’s target quickly, “we have work to do,” he said.`\
 https://www.nytimes.com/2026/08/28/business/fed-kevin-warsh-speech-inflation.html
 
 **Why Countries Are Pushing Social Media Bans Despite Their Flaws**\
