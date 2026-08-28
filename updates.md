@@ -1,4 +1,8 @@
 **New Exclusive Video Reveals Immediate Aftermath of Nepal Glacier Collapse**\
+`New footage exclusively obtained by The New York Times showed the aftermath of the moment a giant glacier broke away from the top of a ridge in the Himalayas, setting off a deadly flood.`\
+https://www.nytimes.com/video/world/asia/100000011119084/new-exclusive-video-reveals-immediate-aftermath-of-nepal-glacier-collapse.html
+
+**New Exclusive Video Reveals Immediate Aftermath of Nepal Glacier Collapse**\
 `New footage exclusively obtained by The New York Times showed the aftermath of the moment a giant glacier broke away from the top of a ridge in the Himalayas, setting off a deluge of mud, snow, floodwaters and debris to the valley communities below. Upstream, two newly formed lakes threaten rescue efforts for hundreds of missing people.`\
 https://www.nytimes.com/video/world/asia/100000011119084/new-exclusive-video-reveals-immediate-aftermath-of-nepal-glacier-collapse.html
 
