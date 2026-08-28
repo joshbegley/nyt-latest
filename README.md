@@ -1,3 +1,7 @@
+**Lake Ontario Didn’t Ask for This**\
+`There is a U.S.-led war in the Middle East and the midterm elections on the horizon, but President Trump’s latest priority seems to be “Making The Great Lakes Even Greater.”`\
+https://www.nytimes.com/2026/08/27/us/politics/trump-lake-ontario-renaming.html
+
 **The Lindsay Clancy Army, From Moms in Pink to Candace Owens**\
 `How to understand the support, from a wide range of voices, for a mother on trial for murder.`\
 https://www.nytimes.com/2026/08/27/style/lindsay-clancy-trial-support.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/08/27/us/politics/cia-director-russia-ukraine.html
 **La tormenta tropical Dolly se forma y se moverá hacia el Caribe**\
 `Dolly podría fortalecerse levemente el jueves, pero pronto se moverá hacia una zona en el Caribe donde los sistemas tropicales generalmente se desintegran.`\
 https://www.nytimes.com/es/2026/08/27/espanol/tiempo-y-clima/dolly-tormenta-puerto-rico-cuba.html
-
-**Celebrities Are Raving About Full-Body Scans. Doctors Urge Caution**\
-`The scans are touted as a way to control your health. But researchers say healthy people don’t need them and they can lead to more harm than benefit.`\
-https://www.nytimes.com/2026/08/27/well/busy-philipps-prenuvo-body-scans.html
 
 **Trump Administration Live: U.S. to Step Up Deportations to Haiti Despite Warning Not to Visit**\
 `(No description)`\
