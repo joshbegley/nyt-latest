@@ -2,7 +2,7 @@
 `A small gene-editing study significantly reduced LDL cholesterol levels, and the results have stuck a year later.`\
 https://www.nytimes.com/2026/08/28/science/an-experimental-single-time-treatment-slashed-cholesterol-for-a-year.html
 
-**Proposed Rollback of S.E.C. Rules Raises Fears of Another Enron Crisis**\
+**Companies Can Tell Investors Less Under Proposed S.E.C. Rules**\
 `Fewer audit and disclosure requirements could reduce costs, but experts say they could also help disguise fraud or financial stress.`\
 https://www.nytimes.com/2026/08/28/business/economy/sec-quarterly-reporting.html
 
@@ -178,13 +178,13 @@ https://www.nytimes.com/2026/08/28/opinion/mexico-frida-kahlo-art.html
 `Being a successful self-starter doesn’t mean pulling yourself up by your bootstraps.`\
 https://www.nytimes.com/2026/08/28/opinion/successful-people-help.html
 
-**What It Took to Dismantle the Most Powerful Company in the World**\
-`A playbook to curb the growing power of Big Tech.`\
-https://www.nytimes.com/2026/08/28/opinion/ai-power-lobbying-military-britain-east-india-company.html
-
 **How Key Oil Stockpiles Dwindled During the War in Iran**\
 `Our energy reporter Rebecca F. Elliott explains how oil reserves helped prevent an oil shock caused by the war in Iran from getting even worse — and how low those reserves are now.`\
 https://www.nytimes.com/video/us/100000011093055/how-key-oil-stockpiles-dwindled-during-the-war-in-iran.html
+
+**What It Took to Dismantle the Most Powerful Company in the World**\
+`A playbook to curb the growing power of Big Tech.`\
+https://www.nytimes.com/2026/08/28/opinion/ai-power-lobbying-military-britain-east-india-company.html
 
 **Sun-Ways Is Testing Out Train Track Solar Farms**\
 `A pilot program placing solar panels between the rails has proven successful enough that the idea is spreading to Italy, France and Korea.`\
