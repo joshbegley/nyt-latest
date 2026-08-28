@@ -78,7 +78,7 @@ https://www.nytimes.com/2026/08/28/obituaries/benjamin-alire-saenz-dead.html
 `X-rays revealed that the tusks have an internal opposing twist, which may help explain how they grow so straight — the only tusks like them in nature.`\
 https://www.nytimes.com/2026/08/28/science/narwhals-tusk-spiral-twist.html
 
-**You Can Have My Walkman, Just Don’t Take My Mix Tape**\
+**You Can Have My Walkman, Just Don’t Take My Mixtape**\
 `These objects contain meaning.`\
 https://www.nytimes.com/interactive/2026/08/28/style/mix-tape-analog-music.html
 

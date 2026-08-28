@@ -1,3 +1,7 @@
+**The Local: Michael Che on First Avenue**\
+`And, of course, pickles at the State Fair.`\
+https://www.nytimes.com/2026/08/28/us/michael-che-first-ave.html
+
 **Autopsy Shows Man Killed by National Guard in Memphis Was Shot in Back**\
 `The death of the man after a confrontation with National Guard troops is under investigation. An autopsy by a medical examiner shows that he was shot in the back and declared it a homicide.`\
 https://www.nytimes.com/2026/08/28/us/tyrin-johnson-national-guard-shooting-autopsy-memphis.html
