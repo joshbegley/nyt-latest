@@ -34,8 +34,8 @@ https://www.nytimes.com/2026/08/28/us/tyrin-johnson-national-guard-shooting-auto
 `El liderazgo iraní ve su propia supervivencia como la de la nación, y considera los sacrificios de los iraníes como un acto necesario de patriotismo.`\
 https://www.nytimes.com/es/2026/08/28/espanol/mundo/guerra-trump-iran.html
 
-**Oil Giant Chevron Is Said to Be in Talks to Expand in Venezuela**\
-`Chevron, the second largest U.S. oil company, is building on its wager to remain in Venezuela, where it already accounts for about a quarter of the country’s oil production.`\
+**In Win for Trump, Chevron Is Said to Be in Talks to Expand in Venezuela**\
+`The Trump administration has been pushing U.S. oil companies like Chevron to invest more in Venezuela’s oil industry.`\
 https://www.nytimes.com/2026/08/28/business/energy-environment/chevron-venezuela-oil-deal.html
 
 **Trump Creates a Space Academy and Honors the Artemis Astronauts**\

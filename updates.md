@@ -1,3 +1,7 @@
+**Trump Administration Appeals Ruling Halting Mail-In Voting Rules**\
+`The Postal Service appealed an emergency decision from Thursday that blocked it from changing its procedures for mail-in voting ahead of the upcoming midterm elections.`\
+https://www.nytimes.com/2026/08/28/us/politics/trump-appeal-mail-ballot.html
+
 **Roban el Tesoro de Villena en España**\
 `En cuestión de minutos, unos ladrones irrumpieron en el Museo de Villena y sustrajeron una colección invaluable de objetos de oro y plata.`\
 https://www.nytimes.com/es/2026/08/28/espanol/cultura/robo-tesoro-villena-edad-bronce-espana.html
