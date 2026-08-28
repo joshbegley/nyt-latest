@@ -1,3 +1,7 @@
+**Who Is Haakon, Norway’s New King?**\
+`Crown Prince Haakon, the only son of King Harald V, will become monarch, a largely ceremonial and symbolic role.`\
+https://www.nytimes.com/2026/08/28/world/europe/norway-new-king-haakon.html
+
 **The US Open Is Here. Is It America’s Time?**\
 `With the men’s draw wide open and two American women in the form of their lives, could it be an American sweep at Flushing Meadows?`\
 https://www.nytimes.com/2026/08/28/podcasts/us-open-tennis.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/opinion/100000011115412/the-bond-market-chaos-is-c
 **Six Months In, Iran Appears Stronger and U.S. Goals Unclear**\
 `Trump’s replacement of a military war with a heightened economic one is not expected to alter Iran’s strategy, while further impoverishing its people.`\
 https://www.nytimes.com/2026/08/28/world/europe/six-months-in-irans-regime-stands-us-goals-remain-unmet.html
-
-**El nuevo fármaco contra el cáncer aprobado por la FDA podría ser el primero de muchos**\
-`Los investigadores esperan que sea el comienzo de un nuevo capítulo en el tratamiento para una variedad de tipos de cáncer.`\
-https://www.nytimes.com/es/2026/08/28/espanol/ciencia-y-tecnologia/farmaco-cancer-daraxonrasib.html
 
