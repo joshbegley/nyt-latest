@@ -1,3 +1,11 @@
+**New Red Flag Warnings For Area Around Fire in Big Sur, Calif.**\
+`A red flag warning was issued for much of Friday along California’s Central Coast, where multiple fires have burned this month.`\
+https://www.nytimes.com/2026/08/27/weather/big-sur-fire-updates.html
+
+**Support for Lindsay Clancy, From Pink T-Shirts to Conservative Stars**\
+`How to understand the wide range of sympathy for a mother on trial for murder.`\
+https://www.nytimes.com/2026/08/27/style/lindsay-clancy-trial-support.html
+
 **LA Mayor Karen Bass Eases Street Vending Crackdown After Debate**\
 `Mayor Karen Bass had compared the ubiquitous purveyors of street food with homeless encampments. Her opponent, Nithya Raman, said vendors should be brought into the system.`\
 https://www.nytimes.com/2026/08/27/us/los-angeles-street-vendors-karen-bass.html

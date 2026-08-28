@@ -1,3 +1,7 @@
+**New Red Flag Warnings For Area Around Fire in Big Sur, Calif.**\
+`A red flag warning was issued for much of Friday along California’s Central Coast, where multiple fires have burned this month.`\
+https://www.nytimes.com/2026/08/27/weather/big-sur-fire-updates.html
+
 **LA Mayor Karen Bass Eases Street Vending Crackdown After Debate**\
 `Mayor Karen Bass had compared the ubiquitous purveyors of street food with homeless encampments. Her opponent, Nithya Raman, said vendors should be brought into the system.`\
 https://www.nytimes.com/2026/08/27/us/los-angeles-street-vendors-karen-bass.html
@@ -6,8 +10,8 @@ https://www.nytimes.com/2026/08/27/us/los-angeles-street-vendors-karen-bass.html
 `There is a U.S.-led war in the Middle East and the midterm elections on the horizon, but President Trump’s latest priority seems to be “Making The Great Lakes Even Greater.”`\
 https://www.nytimes.com/2026/08/27/us/politics/trump-lake-ontario-renaming.html
 
-**The Lindsay Clancy Army, From Moms in Pink to Candace Owens**\
-`How to understand the support, from a wide range of voices, for a mother on trial for murder.`\
+**Support for Lindsay Clancy, From Pink T-Shirts to Conservative Stars**\
+`How to understand the wide range of sympathy for a mother on trial for murder.`\
 https://www.nytimes.com/2026/08/27/style/lindsay-clancy-trial-support.html
 
 **Funding Delays Threaten Rollout of Mamdani’s 2-K Program**\
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/08/27/well/meta-settlement-parents.html
 **Men Are Rethinking Their Approach to Skin Care**\
 `Three perspectives on aging reveal different priorities, while a dermatologist examines the ingredients behind SkinCeuticals P-TIOX Cream.`\
 http://brandedplaylist.nytimes.com/video/embedded/t-brand/100000011117208/men-are-rethinking-their-approach-to-skin-care.html
-
-**C.I.A. Chief Delivered Bleak Assessment of Russia’s War in Secretive Moscow Visit**\
-`John Ratcliffe’s meeting this week with a Russian intelligence chief was aimed at pushing the Kremlin to pursue a peace deal with Ukraine.`\
-https://www.nytimes.com/2026/08/27/us/politics/cia-director-russia-ukraine.html
 
 **Trump Administration Live: U.S. to Step Up Deportations to Haiti Despite Warning Not to Visit**\
 `(No description)`\
