@@ -1,3 +1,11 @@
+**Smaller Revision Points to More Accurate Jobs Numbers**\
+`The 2026 revisions by the Bureau of Labor Statistics represent a downward adjustment of just 0.1 percent of the total work force.`\
+https://www.nytimes.com/2026/08/28/business/economy/jobs-labor-numbers.html
+
+**China Offers Condolences to Nepal While Emphasizing Disaster Began There**\
+`China’s leader, Xi Jinping, issued his first message to Nepal’s government  since the landslide on Wednesday that has left hundreds dead near the countries’ border.`\
+https://www.nytimes.com/2026/08/28/world/asia/china-nepal-floods-xi-jinping.html
+
 **Live Updates: Nepal Roughly Doubles Number of Missing to 1,900 Amid Desperate Search for Survivors**\
 `A spokeswoman for the disaster relief agency said the tally grew after some 900 people were reported missing from hydropower projects. Rescue efforts were complicated by fears of new possible flooding.`\
 https://www.nytimes.com/live/2026/08/28/world/nepal-tibet-flash-floods

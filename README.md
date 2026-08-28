@@ -1,3 +1,15 @@
+**Book Club: Let’s Talk About ‘London Falling,’ by Patrick Radden Keefe**\
+`Keefe’s new book explores a teenager’s mysterious death on the River Thames.`\
+https://www.nytimes.com/2026/08/28/podcasts/podcast-london-falling-book-club.html
+
+**Social Media and the Myth of the Big Tobacco Moment**\
+`Smoking used to be everywhere, the way Facebook, TikTok, Snap, YouTube and Instagram are now. Society decided to break the habit, but it took a long time.`\
+https://www.nytimes.com/2026/08/28/technology/meta-social-media-big-tobacco.html
+
+**The T.S.A. Abruptly Scraps Its New Private-Security Model**\
+`Under new leadership, the agency scrapped Gold+, which would have allowed private companies to provide the full scope of screening services, technology and maintenance.`\
+https://www.nytimes.com/2026/08/28/travel/tsa-privatization-gold-plus.html
+
 **Smaller Revision Points to More Accurate Jobs Numbers**\
 `The 2026 revisions by the Bureau of Labor Statistics represent a downward adjustment of just 0.1 percent of the total work force.`\
 https://www.nytimes.com/2026/08/28/business/economy/jobs-labor-numbers.html
@@ -177,18 +189,6 @@ https://www.nytimes.com/2026/08/28/business/iran-war-oil-stocks-prices.html
 **Book Club: Read ‘Etna,’ by Paul Yoon, With the Book Review**\
 `In September, the Book Review Book Club will read Paul Yoon’s latest, about a bomb-sniffing dog trying to make it home after a war.`\
 https://www.nytimes.com/2026/08/28/books/review/etna-paul-yoon-book-club.html
-
-**A Town Council Turns to a Deck of Cards to Break a Tie**\
-`Two candidates for Town Council in Gila Bend, Ariz., finished with the same number of votes. A century-old state law mandated breaking the tie with a game of chance.`\
-https://www.nytimes.com/2026/08/28/us/gila-bend-election-tiebreaker.html
-
-**A.I. Brings Big Gains to Hurricane Forecasts, Google Researchers Say**\
-`Analysis by the company’s DeepMind unit suggests that an A.I.-enabled model delivers accurate forecasts a day or more before conventional models can.`\
-https://www.nytimes.com/2026/08/28/science/ai-hurricane-forecasts-google.html
-
-**Pick Your Favorite $1.4 Million Home in Costa del Sol, Spain**\
-`Traditional architecture meets modern taste in this sunny stretch of Andalusia on the Mediterranean Sea.`\
-https://www.nytimes.com/2026/08/28/realestate/homes-costa-del-sol-spain.html
 
 **Live Updates: Nepal Roughly Doubles Number of Missing to 1,900 Amid Desperate Search for Survivors**\
 `A spokeswoman for the disaster relief agency said the tally grew after some 900 people were reported missing from hydropower projects. Rescue efforts were complicated by fears of new possible flooding.`\
