@@ -1,3 +1,39 @@
+**Las grandes ambiciones de ‘Grand Theft Auto VI’**\
+`El juego, que llegará al mercado el 19 de noviembre, combina crimen, sátira y un mundo abierto de actividades que va desde carreras y paracaidismo hasta fiestas de alta sociedad.`\
+https://www.nytimes.com/es/2026/08/28/espanol/cultura/grand-theft-auto-vi-gta.html
+
+**Palestine Action Activists Accused of Vandalism at Trump Turnberry Face Terrorism Accusation**\
+`Prosecutors will seek to prove that members of Palestine Action who they say painted “Gaza is not 4 sale” on the Scottish golf course last year committed acts connected to terrorism.`\
+https://www.nytimes.com/2026/08/28/world/europe/palestine-action-trump-golf-course.html
+
+**Quote of the Day: Huge Waves Sped Through Valleys, Trapping Victims**\
+`Quotation of the Day for Friday, August 28, 2026.`\
+https://www.nytimes.com/2026/08/28/pageoneplus/quote-of-the-day-huge-waves-sped-through-valleys-trapping-victims.html
+
+**This Wasn’t the Marriage I Promised Him**\
+`My husband was holding up our entire world by himself.`\
+https://www.nytimes.com/2026/08/28/style/modern-love-this-wasnt-the-marriage-i-promised.html
+
+**They Took the Plunge**\
+`Alison Bick and Maxim Zaslavsky embraced the summer and each other with a pool party-barbecue wedding.`\
+https://www.nytimes.com/2026/08/28/style/alison-bick-maxim-zaslavsky-wedding.html
+
+**Soon After Meeting, They Realized ‘We Were on the Same Page’**\
+`Trent Keel and Craig Greiwe, who connected on a dating app three years ago, had a similar vision of the life they wanted to lead.`\
+https://www.nytimes.com/2026/08/28/style/trent-keel-craig-griewe-wedding.html
+
+**Call Her Newly Romantic**\
+`Sofia Franklyn, a former host and creator of the popular podcast “Call Her Daddy,” had made a living off the dating game. Then she met John Messamore.`\
+https://www.nytimes.com/2026/08/28/style/sofia-franklyn-john-messamore-wedding.html
+
+**‘I Would Have Married Him That Night’**\
+`Kamie Crawford, a television and podcast host, was certain she’d found “the one” in Xavier Champagne on their very first date.`\
+https://www.nytimes.com/2026/08/28/style/kamie-crawford-xavier-champagne-wedding.html
+
+**The Deputy Sheriff Who Made Her Feel Safe**\
+`Just weeks after Terri Wade started dating Christopher Fung, she suffered a devastating loss. Fung’s support never wavered.`\
+https://www.nytimes.com/2026/08/28/style/terri-wade-christopher-fung-wedding.html
+
 **TK**\
 `TK`\
 https://static01.nyt.com/slideshow/2026/08/27/t-magazine/travel/tk.html
