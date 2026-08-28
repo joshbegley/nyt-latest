@@ -1,3 +1,19 @@
+**The First Thing Lexi Minetree Did After Landing the ‘Legally Blonde’ Prequel**\
+`The actor Lexi Minetree, who plays a young Elle Woods in “Elle,” the prequel to “Legally Blonde,” opens up about landing the role, discovering her love of acting and the book that shaped her view on the power of storytelling.`\
+https://www.nytimes.com/video/arts/100000010968781/lexi-minetree-legally-blonde-elle-woods.html
+
+**Controversy Erupts Over Pennsylvania Measles Deaths**\
+`The conflict, which largely falls along political lines, centers on the details of one of the deaths, in a newborn.`\
+https://www.nytimes.com/2026/08/28/well/pennsylvania-measles-deaths-controversy.html
+
+**Trump Updates $15 Billion Libel Lawsuit Against The New York Times**\
+`The president has argued that the news organization sought to undermine his 2024 presidential campaign by disparaging his reputation as a businessman. The Times has moved to dismiss the lawsuit.`\
+https://www.nytimes.com/2026/08/28/business/media/trump-new-york-times-lawsuit.html
+
+**Judge Excludes Key Confession in Sept. 11 Case**\
+`Prosecutors argued the statements by the defendant, Khalid Shaikh Mohammed, were crucial evidence for the eventual death-penalty trial.`\
+https://www.nytimes.com/2026/08/28/us/politics/september11-confession-trial.html
+
 **Investors Expect Higher Rates After Fed Chairman’s Inflation Pledge**\
 `Kevin Warsh reiterated the Federal Reserve’s commitment to tackle rising prices, nudging up investor expectations of a rate increase.`\
 https://www.nytimes.com/2026/08/28/business/markets-stocks-bonds-warsh-jackson-hole.html
@@ -173,22 +189,6 @@ https://www.nytimes.com/2026/08/28/us/lindsay-clancy-trial-jury-deliberation.htm
 **Wyoming Governor Objects to ‘Very Odd’ D.O.J. Election Monitoring**\
 `Governor Mark Gordon, a Republican, said he was concerned by the behavior of election observers who visited a polling station in Cheyenne.`\
 https://www.nytimes.com/2026/08/28/us/politics/wyoming-governor-objects-to-very-odd-doj-election-monitoring.html
-
-**How to Find More Time for Your Friends**\
-`Commit to your friendships like you do the gym.`\
-https://www.nytimes.com/2026/08/28/well/friendship-social-rings.html
-
-**Los jaguares están listos para volver a EE. UU. El muro fronterizo podría evitarlo**\
-`Un macho solitario deambula por las montañas de Arizona y una hembra ha sido avistada justo al otro lado de la frontera, en México. Los avistamientos generan esperanzas para la especie, a pesar de las graves amenazas.`\
-https://www.nytimes.com/es/2026/08/28/espanol/ciencia-y-tecnologia/jaguares-muro-fronterizo.html
-
-**Corrections: Aug. 28, 2026**\
-`Corrections that appeared in print on Friday, Aug. 28, 2026.`\
-https://www.nytimes.com/2026/08/28/pageoneplus/corrections-aug-28-2026.html
-
-**Reseña de ‘Runa Simi’: la lucha por mantener vivo el quechua**\
-`El documental peruano ‘Runa Simi’ retrata la obstinación de un actor de doblaje empeñado en traducir ‘El rey león’ a su lengua materna con el respaldo de Disney.`\
-https://www.nytimes.com/es/2026/08/28/espanol/cultura/resena-runa-simi-quechua.html
 
 **Live Updates: Nepal Roughly Doubles Number of Missing to 1,900 Amid Desperate Search for Survivors**\
 `A spokeswoman for the disaster relief agency said the tally grew after some 900 people were reported missing from hydropower projects. Rescue efforts were complicated by fears of new possible flooding.`\
