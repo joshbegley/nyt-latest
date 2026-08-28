@@ -1,3 +1,7 @@
+**For Trump, the Iran War Is Stuck Between Combat and Genuine Peace**\
+`The war has deteriorated over the past six months into Mr. Trump’s own version of a “forever war,” with no clear goals and no end in sight.`\
+https://www.nytimes.com/2026/08/28/us/politics/for-trump-the-iran-war-is-stuck-between-combat-and-genuine-peace.html
+
 **Nepal Roughly Doubles Number of Missing After Flood**\
 `Also, Trump orders the creation of a space academy. Here’s the latest at the end of Friday.`\
 https://www.nytimes.com/2026/08/28/briefing/nepal-flood-missing-trump-space-academy.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/28/business/china-artificial-intelligence-zai.ht
 **Home Robert Indiana Left Behind as Possible Museum Site to Be Sold**\
 `The foundation that Indiana created to protect his legacy said his plan became unfeasible and the proceeds would now be used for grants to artists.`\
 https://www.nytimes.com/2026/08/28/arts/design/robert-indiana-home-museum-sale.html
-
-**Flashback: Your Weekly History Quiz, Aug. 29, 2026**\
-`Can you sort 8 historical events?`\
-https://www.nytimes.com/interactive/2026/08/28/upshot/flashback.html
 
