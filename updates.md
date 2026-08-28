@@ -1,3 +1,15 @@
+**Oil Giant Chevron Is Said to Be in Talks to Expand in Venezuela**\
+`Chevron, the second largest U.S. oil company, is building on its wager to remain in Venezuela, where it already accounts for about a quarter of the country’s oil production.`\
+https://www.nytimes.com/2026/08/28/business/energy-environment/chevron-venezuela-oil-deal.html
+
+**Trump Creates a Space Academy and Honors the Artemis Astronauts**\
+`President Trump presented the Congressional Space Medal of Honor to the Artemis II crew, which took a journey around the moon.`\
+https://www.nytimes.com/2026/08/28/us/politics/trump-space-academy-artemis-astronauts.html
+
+**Fed Chairman Warsh Seeks to Calm Elevated Inflation Concerns**\
+`In a high-profile speech, Kevin M. Warsh said the Federal Reserve was chiefly responsible for taming inflation. If price increases do not return to the central bank’s target quickly, “we have work to do,” he said.`\
+https://www.nytimes.com/2026/08/28/business/fed-kevin-warsh-speech-inflation.html
+
 **$42 Million Abu Ghraib Jury Verdict Is Overturned on Appeal**\
 `A Fourth Circuit panel ordered the case to be dismissed, citing a new Supreme Court ruling limiting the ability of foreign citizens to sue in U.S. court.`\
 https://www.nytimes.com/2026/08/28/us/politics/abu-ghraib-verdict-overturned.html
