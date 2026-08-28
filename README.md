@@ -1,3 +1,7 @@
+**The ‘Odyssey’ Scholar Emily Wilson, a Critic of the Movie, Is Redoing Her Translation**\
+`Wilson, who was the first woman to translate the Homeric tale into English, caused a firestorm when she criticized Christopher Nolan’s blockbuster film.`\
+https://www.nytimes.com/2026/08/28/books/odyssey-emily-wilson-translation.html
+
 **For Trump, the Iran War Is Stuck Between Combat and Genuine Peace**\
 `The war has deteriorated over the past six months into Mr. Trump’s own version of a “forever war,” with no clear goals and no end in sight.`\
 https://www.nytimes.com/2026/08/28/us/politics/for-trump-the-iran-war-is-stuck-between-combat-and-genuine-peace.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/28/business/markets-stocks-bonds-warsh-jackson-h
 **China Sees Opportunity in America’s Recent A.I. Security Scares**\
 `A leading Chinese A.I. start-up released its latest model and made the case that China’s embrace of open software is safer than Silicon Valley’s closed approach.`\
 https://www.nytimes.com/2026/08/28/business/china-artificial-intelligence-zai.html
-
-**Home Robert Indiana Left Behind as Possible Museum Site to Be Sold**\
-`The foundation that Indiana created to protect his legacy said his plan became unfeasible and the proceeds would now be used for grants to artists.`\
-https://www.nytimes.com/2026/08/28/arts/design/robert-indiana-home-museum-sale.html
 
