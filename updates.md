@@ -1,3 +1,11 @@
+**Disaster Experts Say Nepal Glacier Collapse Was Difficult to Predict**\
+`Given the challenges in forecasting and detecting such calamities, researchers advised banning construction on floodplains and marking out clear evacuation routes.`\
+https://www.nytimes.com/2026/08/28/world/australia/nepal-flood-glacier-collapse.html
+
+**A Disaster in Nepal**\
+`The Nepali authorities warned people to head for safety because more water could soak flood-ravaged villages.`\
+https://www.nytimes.com/2026/08/28/briefing/a-disaster-in-nepal.html
+
 **Meta Shifts the Blame + Do Data Center Bans Work? + The Final HatGPT**\
 `Meta negotiated an unusual provision in their landmark settlement: If TikTok and YouTube also agree to penalties and changes to their products, Meta will pay more.`\
 https://www.nytimes.com/2026/08/28/podcasts/hardfork-meta-settlement.html
