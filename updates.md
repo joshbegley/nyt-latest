@@ -1,3 +1,27 @@
+**Leave Mail-In Voting Alone**\
+`Readers react to the Supreme Court ruling on the president’s move to restrict mail-in ballots. Also: How to deal with more data centers.`\
+https://www.nytimes.com/2026/08/28/opinion/trump-mail-voting.html
+
+**Un vuelo de Delta Air Lines se desvió por una emergencia médica del capitán**\
+`Un vuelo de Delta Air Lines de Los Ángeles a Boston se desvió de manera segura a Detroit luego de que el capitán del Boeing 757 se enfermara.`\
+https://www.nytimes.com/es/2026/08/28/espanol/estados-unidos/accidente-avion-emergencia-medica-vuelo.html
+
+**Yogurt Cake**\
+`This Turkish yogurt cake, adapted from the cookbook “Claudia Roden’s Mediterranean,” is similar to a lemon-scented cheesecake, but it’s lighter and has a fresher, tangier flavor.`\
+https://www.nytimes.com/video/dining/100000011119586/yogurt-cake.html
+
+**Sweet and Salty Frozen Grapes**\
+`This snack draws on the South Asian and Mexican culinary traditions of serving ice-cold fruit seasoned with spices and salt.`\
+https://www.nytimes.com/video/dining/100000011116835/sweet-and-salty-frozen-grapes.html
+
+**Shake and Bake Pork Chops**\
+`This homemade version of the nostalgic seasoned bread crumbs from the supermarket yields pork chops that cook up almost as easy and fast — and even juicier.`\
+https://www.nytimes.com/video/dining/100000011116753/shake-and-bake-pork-chops.html
+
+**Fed Chairman Warsh Seeks to Calm Elevated Inflation Concerns**\
+`In a high-profile speech, Kevin M. Warsh said that the Federal Reserve was chiefly responsible for taming inflation. If price increases did not return to the central bank’s target quickly, “we have work to do,” he said.`\
+https://www.nytimes.com/2026/08/28/business/fed-kevin-warsh-speech-inflation.html
+
 **Read the Decision From Judge Alvin Hellerstein**\
 `The judge denied President Trump’s request to move his Manhattan criminal case to federal court, saying his arguments were “neither new nor legally sufficient.”`\
 https://www.nytimes.com/interactive/2026/08/28/nyregion/trump-hush-money-case-hellerstein-decision.html

@@ -1,3 +1,23 @@
+**Leave Mail-In Voting Alone**\
+`Readers react to the Supreme Court ruling on the president’s move to restrict mail-in ballots. Also: How to deal with more data centers.`\
+https://www.nytimes.com/2026/08/28/opinion/trump-mail-voting.html
+
+**Un vuelo de Delta Air Lines se desvió por una emergencia médica del capitán**\
+`Un vuelo de Delta Air Lines de Los Ángeles a Boston se desvió de manera segura a Detroit luego de que el capitán del Boeing 757 se enfermara.`\
+https://www.nytimes.com/es/2026/08/28/espanol/estados-unidos/accidente-avion-emergencia-medica-vuelo.html
+
+**Yogurt Cake**\
+`This Turkish yogurt cake, adapted from the cookbook “Claudia Roden’s Mediterranean,” is similar to a lemon-scented cheesecake, but it’s lighter and has a fresher, tangier flavor.`\
+https://www.nytimes.com/video/dining/100000011119586/yogurt-cake.html
+
+**Sweet and Salty Frozen Grapes**\
+`This snack draws on the South Asian and Mexican culinary traditions of serving ice-cold fruit seasoned with spices and salt.`\
+https://www.nytimes.com/video/dining/100000011116835/sweet-and-salty-frozen-grapes.html
+
+**Shake and Bake Pork Chops**\
+`This homemade version of the nostalgic seasoned bread crumbs from the supermarket yields pork chops that cook up almost as easy and fast — and even juicier.`\
+https://www.nytimes.com/video/dining/100000011116753/shake-and-bake-pork-chops.html
+
 **Read the Decision From Judge Alvin Hellerstein**\
 `The judge denied President Trump’s request to move his Manhattan criminal case to federal court, saying his arguments were “neither new nor legally sufficient.”`\
 https://www.nytimes.com/interactive/2026/08/28/nyregion/trump-hush-money-case-hellerstein-decision.html
@@ -147,7 +167,7 @@ https://www.nytimes.com/2026/08/28/business/economy/sec-quarterly-reporting.html
 https://www.nytimes.com/interactive/polls/north-carolina-us-house-3-polls-2026.html
 
 **Fed Chairman Warsh Seeks to Calm Elevated Inflation Concerns**\
-`In a high-profile speech, Kevin M. Warsh said the Federal Reserve was chiefly responsible for taming inflation. If price increases did not return to the central bank’s target quickly, “we have work to do,” he said.`\
+`In a high-profile speech, Kevin M. Warsh said that the Federal Reserve was chiefly responsible for taming inflation. If price increases did not return to the central bank’s target quickly, “we have work to do,” he said.`\
 https://www.nytimes.com/2026/08/28/business/fed-kevin-warsh-speech-inflation.html
 
 **Why Countries Are Pushing Social Media Bans Despite Their Flaws**\
@@ -169,26 +189,6 @@ https://www.nytimes.com/2026/08/28/business/ai-stock-market-bull-rally.html
 **Warsh’s Big Test at Jackson Hole**\
 `Investors want Kevin Warsh, the Fed chairman, to address inflation, interest rates and the bond market in a major speech. Some worry he won’t say enough.`\
 https://www.nytimes.com/2026/08/28/business/dealbook/warsh-fed-jackson-hole.html
-
-**Disaster Experts Say Nepal Glacier Collapse Was Difficult to Predict**\
-`Given the challenges in forecasting and detecting such calamities, researchers advised banning construction on floodplains and marking out clear evacuation routes.`\
-https://www.nytimes.com/2026/08/28/world/australia/nepal-flood-glacier-collapse.html
-
-**Meta Shifts the Blame + Do Data Center Bans Work? + The Final HatGPT**\
-`Meta negotiated an unusual provision in their landmark settlement: If TikTok and YouTube also agree to penalties and changes to their products, Meta will pay more.`\
-https://www.nytimes.com/2026/08/28/podcasts/hardfork-meta-settlement.html
-
-**A Disaster in Nepal**\
-`The Nepali authorities warned people to head for safety because more water could soak flood-ravaged villages.`\
-https://www.nytimes.com/2026/08/28/briefing/a-disaster-in-nepal.html
-
-**Lindsay Clancy Is on Trial. So Is Postpartum Psychosis.**\
-`She is being tried on murder charges in the deaths of her three children. The tragedy has resurrected debates over whether such women are criminals or victims.`\
-https://www.nytimes.com/2026/08/28/podcasts/the-daily/lindsay-clancy-trial-postpartum-psychosis.html
-
-**Six Months of War, and Trump’s Push for ‘Lake America’**\
-`Plus, the Friday news quiz.`\
-https://www.nytimes.com/2026/08/28/podcasts/the-headlines/six-months-of-war-and-trumps-push-for-lake-america.html
 
 **Live Updates: Nepal Roughly Doubles Number of Missing to 1,900 Amid Desperate Search for Survivors**\
 `A spokeswoman for the disaster relief agency said the tally grew after some 900 people were reported missing from hydropower projects. Rescue efforts were complicated by fears of new possible flooding.`\
