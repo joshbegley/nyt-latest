@@ -1,3 +1,11 @@
+****\
+`tk tk tk`\
+https://www.nytimes.com/video/embedded/business/100000011119925/Biz-Novo-Comeback-Video.html
+
+**Benjamin Alire Sáenz, First Latino Writer to Win PEN/Faulkner, Dies at 71**\
+`A former Catholic priest, he later became an acclaimed author, writing more than two dozen works about life in the U.S.-Mexican borderlands.`\
+https://www.nytimes.com/2026/08/28/obituaries/benjamin-alire-saenz-dead.html
+
 **Fed Chairman Warsh Seeks to Calm Elevated Inflation Concerns**\
 `In a high-profile speech, Kevin M. Warsh said the Federal Reserve was chiefly responsible for taming inflation. If price increases did not return to the central bank’s target quickly, “we have work to do,” he said.`\
 https://www.nytimes.com/2026/08/28/business/fed-kevin-warsh-speech-inflation.html
