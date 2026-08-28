@@ -1,3 +1,7 @@
+**Live Updates: Threat of New Floods Complicates Desperate Himalayan Search**\
+`Rescuers were racing to find survivors of a destructive torrent that swept through valleys along the China-Nepal border. More than 1,000 people were still missing.`\
+https://www.nytimes.com/live/2026/08/28/world/nepal-tibet-flash-floods
+
 **Mark Zuckerberg quiere asegurarse de que YouTube y TikTok compartan su dolor**\
 `Como parte de un acuerdo, Meta aceptó limitar el acceso de los niños a sus productos estrella como Instagram y Facebook. Ahora busca que sus competidores acaten las mismas reglas.`\
 https://www.nytimes.com/es/2026/08/28/espanol/negocios/meta-cambios-instagram-tiktok-youtube.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/08/27/us/politics/stars-and-stripes-fired-journalis
 **Why The Florida Democrat Angie Nixon Chose Pink**\
 `What role did the color pink play in State Representative Angie Nixon’s surprising win in the Senate primary in Florida? Our chief fashion critic, Vanessa Friedman, examines the strategic choice.`\
 https://www.nytimes.com/video/style/100000011109687/why-the-florida-democrat-angie-nixon-chose-pink.html
-
-**Fans Push to Rename Nashville Airport for Dolly Parton**\
-`A surging online push to rename Nashville International Airport for the beloved Tennessean superstar could get snagged in bureaucracy and politics.`\
-https://www.nytimes.com/2026/08/27/travel/dolly-parton-nashville-airport.html
 
 **U.S. to Step Up Deportations to Haiti Despite Warning Not to Visit**\
 `(No description)`\
