@@ -1,3 +1,7 @@
+**Live Updates: Threat of New Floods Complicates Desperate Himalayan Search**\
+`Rescuers were racing to find survivors of a destructive torrent that swept through valleys along the China-Nepal border. More than 1,000 people were still missing.`\
+https://www.nytimes.com/live/2026/08/28/world/nepal-tibet-flash-floods
+
 **Mark Zuckerberg quiere asegurarse de que YouTube y TikTok compartan su dolor**\
 `Como parte de un acuerdo, Meta aceptó limitar el acceso de los niños a sus productos estrella como Instagram y Facebook. Ahora busca que sus competidores acaten las mismas reglas.`\
 https://www.nytimes.com/es/2026/08/28/espanol/negocios/meta-cambios-instagram-tiktok-youtube.html
