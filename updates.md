@@ -1,3 +1,7 @@
+**Fed Chairman Warsh Seeks to Calm Elevated Inflation Concerns**\
+`In a high-profile speech, Kevin M. Warsh said the Federal Reserve was chiefly responsible for taming inflation. If price increases did not return to the central bank’s target quickly, “we have work to do,” he said.`\
+https://www.nytimes.com/2026/08/28/business/fed-kevin-warsh-speech-inflation.html
+
 **Narwhals Have Stunning Spiraled Tusks. That’s Not the Only Twist.**\
 `X-rays revealed that the tusks have an internal opposing twist, which may help explain how they grow so straight — the only tusks like them in nature.`\
 https://www.nytimes.com/2026/08/28/science/narwhals-tusk-spiral-twist.html
