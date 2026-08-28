@@ -1,3 +1,7 @@
+**Who Is Ahead in North Carolina's 3rd Congressional District?**\
+`Track the latest polls in North Carolina's 3rd Congressional District.`\
+https://www.nytimes.com/interactive/polls/north-carolina-us-house-3-polls-2026.html
+
 **Fed Chairman Seeks to Calm Concerns About Elevated Inflation**\
 `In a high-profile speech, Kevin M. Warsh said that the Federal Reserve was chiefly responsible for taming inflation. If price increases did not return to the central bank’s target quickly, “we have work to do,” he said.`\
 https://www.nytimes.com/2026/08/28/business/fed-kevin-warsh-speech-inflation.html
@@ -166,13 +170,13 @@ https://www.nytimes.com/2026/08/28/opinion/mexico-frida-kahlo-art.html
 `Being a successful self-starter doesn’t mean pulling yourself up by your bootstraps.`\
 https://www.nytimes.com/2026/08/28/opinion/successful-people-help.html
 
-**How Key Oil Stockpiles Dwindled During the War in Iran**\
-`Our energy reporter Rebecca F. Elliott explains how oil reserves helped prevent an oil shock caused by the war in Iran from getting even worse — and how low those reserves are now.`\
-https://www.nytimes.com/video/us/100000011093055/how-key-oil-stockpiles-dwindled-during-the-war-in-iran.html
-
 **What It Took to Dismantle the Most Powerful Company in the World**\
 `A playbook to curb the growing power of Big Tech.`\
 https://www.nytimes.com/2026/08/28/opinion/ai-power-lobbying-military-britain-east-india-company.html
+
+**How Key Oil Stockpiles Dwindled During the War in Iran**\
+`Our energy reporter Rebecca F. Elliott explains how oil reserves helped prevent an oil shock caused by the war in Iran from getting even worse — and how low those reserves are now.`\
+https://www.nytimes.com/video/us/100000011093055/how-key-oil-stockpiles-dwindled-during-the-war-in-iran.html
 
 **Sun-Ways Is Testing Out Train Track Solar Farms**\
 `A pilot program placing solar panels between the rails has proven successful enough that the idea is spreading to Italy, France and Korea.`\
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/08/28/theater/les-miserables-review-hudson-valley-s
 **Inside Afghanistan’s Secret Schools for Girls**\
 `The Taliban have banned education for millions of Afghan girls. Times journalists examined classrooms where students, teachers and parents continue to resist by defying the rules.`\
 https://www.nytimes.com/2026/08/28/world/asia/afghanistan-girls-education.html
-
-**Word of the Day: pirouette**\
-`This word has appeared in 21 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/08/28/learning/word-of-the-day-pirouette.html
 
 **Live Updates: New Nepal Flood Warning Clouds Desperate Search for Survivors**\
 `The Nepali police warned people to head for safety because more water could soak flood-ravaged villages. China said that the risk of a Tibetan lake overflowing had “gradually decreased.”`\
