@@ -1,3 +1,55 @@
+**NASA’s Nancy Grace Roman Telescope Promises a Breakthrough in Cosmic Exploration**\
+`NASA’s latest offering to the stars comes from a legacy of great observatories that enabled decades of discovery and unearthed new mysteries about the universe.`\
+https://www.nytimes.com/2026/08/28/science/nasa-nancy-grace-roman-space-telescope.html
+
+**Floating Points Makes Music for the Dance Floor, and Ballet**\
+`Floating Points brings his niche classical music obsessions and deep love for dance clubs to his ballet score and new album “Mere Mortals.”`\
+https://www.nytimes.com/2026/08/28/arts/music/floating-points-dance-and-ballet-music.html
+
+**Tips for Traveling While Pregnant**\
+`Doing research and getting advice from your doctor before you go can make your trip smoother.`\
+https://www.nytimes.com/2026/08/28/travel/pregnant-travel-trips.html
+
+**Clashes Cloud Shawn Fain’s Re-election Bid at U.A.W.**\
+`A federal investigation and conflict over Israel are preoccupying the United Auto Workers president ahead of a vote that would give him a second term.`\
+https://www.nytimes.com/2026/08/28/business/economy/uaw-shawn-fain-reelection.html
+
+**A New Documentary Gives Butthole Surfers Their Due**\
+`A new movie explores Butthole Surfers’ musical legacy, with layers of loss and regret. “It’s kind of vindicating,” the singer Gibby Haynes said.`\
+https://www.nytimes.com/2026/08/28/movies/butthole-surfers-documentary.html
+
+**How a Private Equity Group Drove an Apartment Complex Into the Ground**\
+`After decades as a coveted address in Syracuse, N.Y., the sprawling Nob Hill complex descended into neglect, squalor and death. One family paid a terrible price.`\
+https://www.nytimes.com/2026/08/28/nyregion/nob-hill-private-equity-fire.html
+
+**Adult Mystery Books for Fans of Detectives and Spies**\
+`The best-selling thriller writer Tess Gerritsen likes older detectives who bring a lifetime of experience to their cases.`\
+https://www.nytimes.com/2026/08/28/books/mystery-detective-books-adults.html
+
+**Inside a Secret School for Afghan Girls**\
+`Under Taliban rule, Afghan girls are officially barred from receiving an education beyond the sixth grade. Across the country, however, clandestine classrooms have emerged to defy the ban. Our Afghanistan and Pakistan bureau chief, Elian Peltier, visited one of these covert schools to meet the young women determined to learn.`\
+https://www.nytimes.com/video/world/asia/100000010989934/inside-a-secret-school-for-afghan-girls.html
+
+**The New York Times News Quiz, August 28, 2026**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://www.nytimes.com/quiz/2026/08/28/briefing/weekly-news-quiz.html
+
+**Can You Park in an E.V. Charging Spot With a Regular Car?**\
+`A ruling on a parking lot dispute.`\
+https://www.nytimes.com/quiz/2026/08/27/magazine/ev-parking-spot-hodgman-quiz.html
+
+**Why Many Iranians Are Losing Hope After Six Months of War**\
+`Iranians have become increasingly desperate, as they grapple with an economic crisis made worse by the conflict and grow increasingly skeptical about President Trump’s motives.`\
+https://www.nytimes.com/2026/08/28/world/middleeast/iranians-war-six-months-losing-hope.html
+
+**The Bond Market Chaos Is Coming for Us All**\
+`Robin Wigglesworth of Financial Times explains everything you need to know about the Trump administration’s meddling with the bond market.`\
+https://www.nytimes.com/video/opinion/100000011115412/the-bond-market-chaos-is-coming-for-us-all.html
+
+**Six Months In, Iran Appears Stronger and U.S. Goals Unclear**\
+`Trump’s replacement of a military war with a heightened economic one is not expected to alter Iran’s strategy, while further impoverishing its people.`\
+https://www.nytimes.com/2026/08/28/world/europe/six-months-in-irans-regime-stands-us-goals-remain-unmet.html
+
 **El nuevo fármaco contra el cáncer aprobado por la FDA podría ser el primero de muchos**\
 `Los investigadores esperan que sea el comienzo de un nuevo capítulo en el tratamiento para una variedad de tipos de cáncer.`\
 https://www.nytimes.com/es/2026/08/28/espanol/ciencia-y-tecnologia/farmaco-cancer-daraxonrasib.html
@@ -141,58 +193,6 @@ https://www.nytimes.com/2026/08/27/us/delta-pilot-ill.html
 **Wall Street Loved Scott Bessent and Kevin Warsh. Not Anymore.**\
 `We are approaching a credibility crisis with Scott Bessent and Kevin Warsh leading our economy.`\
 https://www.nytimes.com/2026/08/27/opinion/bessent-warsh-treasury-fed-bonds-trump.html
-
-**Climber Stranded for Hours on 6-Inch Rock Ledge Before Rescue**\
-`Racing against the darkness, rescuers in California on Saturday saved a man who had become stranded on a ledge perched atop a soaring peak on the Sierra Nevada.`\
-https://www.nytimes.com/2026/08/27/us/california-man-rescued-laurel-mountain.html
-
-**Trump Plans to Mark 9/11 at the Pentagon, Not Ground Zero**\
-`President Trump originally intended to commemorate the 25th anniversary of Sept. 11 with remarks at ground zero, but the memorial’s organizers do not allow speeches. Mr. Trump changed his plans.`\
-https://www.nytimes.com/2026/08/27/us/politics/trump-911-pentagon-ground-zero.html
-
-**Man Flees Fire at His Home in Stolen Rescue Truck, Police Say**\
-`Officials in New Hampshire said the man used the rescue truck as a weapon, nearly striking emergency responders who were trying to save his rural house.`\
-https://www.nytimes.com/2026/08/27/us/fire-truck-stolen-new-hampshire.html
-
-**Trump Administration Will Appeal Harvard Antisemitism Case**\
-`A federal judge earlier ruled against Trump officials in a lawsuit accusing the university of allowing persistent antisemitism on campus.`\
-https://www.nytimes.com/2026/08/27/us/politics/trump-administration-harvard-antisemitism-lawsuit-appeal.html
-
-**A Venezuelan Colonel Turned Actor Is Deported From Florida**\
-`A former lieutenant colonel in Venezuela’s National Guard living in Florida was deported, interrupting a lawsuit that accused him of ordering violent raids and torture.`\
-https://www.nytimes.com/2026/08/27/world/americas/venezuelan-quero-silva-florida-deported.html
-
-**Peter Cullen, Who Voiced Optimus Prime in ‘Transformers,’ Dies at 85**\
-`He voiced the main protagonist of the “Transformers” franchise on television and in blockbuster films for more than four decades. He also had success as Eeyore in “Winnie the Pooh” cartoons.`\
-https://www.nytimes.com/2026/08/27/arts/peter-cullen-dead.html
-
-**Judge Says Trump’s Name Should Stay Off Kennedy Center for Now**\
-`After the court forced the removal of the president’s name from the building’s title, the center devised a plan to add an inscription honoring President Trump.`\
-https://www.nytimes.com/2026/08/27/arts/music/trump-kennedy-center-name.html
-
-**Rescuers Search Himalayan Valleys After Devastating Flood**\
-`Also, the C.I.A. chief urges Russia to cut a deal to end the war. Here’s the latest at the end of Thursday.`\
-https://www.nytimes.com/2026/08/27/briefing/nepal-flood-cia-russia-meeting.html
-
-**What to Know About New Covid Vaccines for Fall 2026**\
-`The shots have been approved for people 65 and older, and for younger people with underlying conditions. Others may be able to get them off label.`\
-https://www.nytimes.com/2026/08/27/well/live/covid-vaccines-fall-2026.html
-
-**Fire Outside Home of Canadian Parliament Member Is Under Investigation**\
-`Two cars were destroyed at the Toronto home of Salma Zahid, a Liberal member of Parliament, in an overnight episode condemned by Prime Minister Mark Carney.`\
-https://www.nytimes.com/2026/08/27/world/canada/salma-zahid-mp-canada-arson.html
-
-**White House Construction May Have Contributed to Close Call With Trump’s Helicopter**\
-`A controller let a jet take off after missing warnings that Marine One was about to fly through the area, according to the National Transportation Safety Board.`\
-https://www.nytimes.com/2026/08/27/us/marine-one-white-house-construction.html
-
-**Benjamin Rosen, Who Brought Venture Capital to Tech, Dies at 93**\
-`An advocate for Apple on Wall Street, he was also a founding investor in early personal computing firms like Lotus and Compaq, where he served as chairman.`\
-https://www.nytimes.com/2026/08/27/business/ben-rosen-dead.html
-
-**Survivors of Nepal Flood Left in Stunned Disbelief: ‘They All Died, and I Lived’**\
-`A visit near the border with Tibet laid bare the effects of a swollen river’s furious speed. Miles of devastation were left behind in a flash flood that killed more than 300.`\
-https://www.nytimes.com/2026/08/27/world/asia/nepal-flash-flood-dhunche.html
 
 **U.S. to Step Up Deportations to Haiti Despite Warning Not to Visit**\
 `(No description)`\

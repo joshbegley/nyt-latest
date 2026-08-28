@@ -1,3 +1,55 @@
+**NASA’s Nancy Grace Roman Telescope Promises a Breakthrough in Cosmic Exploration**\
+`NASA’s latest offering to the stars comes from a legacy of great observatories that enabled decades of discovery and unearthed new mysteries about the universe.`\
+https://www.nytimes.com/2026/08/28/science/nasa-nancy-grace-roman-space-telescope.html
+
+**Floating Points Makes Music for the Dance Floor, and Ballet**\
+`Floating Points brings his niche classical music obsessions and deep love for dance clubs to his ballet score and new album “Mere Mortals.”`\
+https://www.nytimes.com/2026/08/28/arts/music/floating-points-dance-and-ballet-music.html
+
+**Tips for Traveling While Pregnant**\
+`Doing research and getting advice from your doctor before you go can make your trip smoother.`\
+https://www.nytimes.com/2026/08/28/travel/pregnant-travel-trips.html
+
+**Clashes Cloud Shawn Fain’s Re-election Bid at U.A.W.**\
+`A federal investigation and conflict over Israel are preoccupying the United Auto Workers president ahead of a vote that would give him a second term.`\
+https://www.nytimes.com/2026/08/28/business/economy/uaw-shawn-fain-reelection.html
+
+**A New Documentary Gives Butthole Surfers Their Due**\
+`A new movie explores Butthole Surfers’ musical legacy, with layers of loss and regret. “It’s kind of vindicating,” the singer Gibby Haynes said.`\
+https://www.nytimes.com/2026/08/28/movies/butthole-surfers-documentary.html
+
+**How a Private Equity Group Drove an Apartment Complex Into the Ground**\
+`After decades as a coveted address in Syracuse, N.Y., the sprawling Nob Hill complex descended into neglect, squalor and death. One family paid a terrible price.`\
+https://www.nytimes.com/2026/08/28/nyregion/nob-hill-private-equity-fire.html
+
+**Adult Mystery Books for Fans of Detectives and Spies**\
+`The best-selling thriller writer Tess Gerritsen likes older detectives who bring a lifetime of experience to their cases.`\
+https://www.nytimes.com/2026/08/28/books/mystery-detective-books-adults.html
+
+**Inside a Secret School for Afghan Girls**\
+`Under Taliban rule, Afghan girls are officially barred from receiving an education beyond the sixth grade. Across the country, however, clandestine classrooms have emerged to defy the ban. Our Afghanistan and Pakistan bureau chief, Elian Peltier, visited one of these covert schools to meet the young women determined to learn.`\
+https://www.nytimes.com/video/world/asia/100000010989934/inside-a-secret-school-for-afghan-girls.html
+
+**The New York Times News Quiz, August 28, 2026**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://www.nytimes.com/quiz/2026/08/28/briefing/weekly-news-quiz.html
+
+**Can You Park in an E.V. Charging Spot With a Regular Car?**\
+`A ruling on a parking lot dispute.`\
+https://www.nytimes.com/quiz/2026/08/27/magazine/ev-parking-spot-hodgman-quiz.html
+
+**Why Many Iranians Are Losing Hope After Six Months of War**\
+`Iranians have become increasingly desperate, as they grapple with an economic crisis made worse by the conflict and grow increasingly skeptical about President Trump’s motives.`\
+https://www.nytimes.com/2026/08/28/world/middleeast/iranians-war-six-months-losing-hope.html
+
+**The Bond Market Chaos Is Coming for Us All**\
+`Robin Wigglesworth of Financial Times explains everything you need to know about the Trump administration’s meddling with the bond market.`\
+https://www.nytimes.com/video/opinion/100000011115412/the-bond-market-chaos-is-coming-for-us-all.html
+
+**Six Months In, Iran Appears Stronger and U.S. Goals Unclear**\
+`Trump’s replacement of a military war with a heightened economic one is not expected to alter Iran’s strategy, while further impoverishing its people.`\
+https://www.nytimes.com/2026/08/28/world/europe/six-months-in-irans-regime-stands-us-goals-remain-unmet.html
+
 **El nuevo fármaco contra el cáncer aprobado por la FDA podría ser el primero de muchos**\
 `Los investigadores esperan que sea el comienzo de un nuevo capítulo en el tratamiento para una variedad de tipos de cáncer.`\
 https://www.nytimes.com/es/2026/08/28/espanol/ciencia-y-tecnologia/farmaco-cancer-daraxonrasib.html
