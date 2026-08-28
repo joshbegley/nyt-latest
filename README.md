@@ -1,3 +1,7 @@
+**Fed Chairman Seeks to Calm Concerns About Elevated Inflation**\
+`In a high-profile speech, Kevin M. Warsh said that the Federal Reserve was chiefly responsible for taming inflation. If price increases did not return to the central bank’s target quickly, “we have work to do,” he said.`\
+https://www.nytimes.com/2026/08/28/business/fed-kevin-warsh-speech-inflation.html
+
 **Why Countries Are Pushing Social Media Bans Despite Their Flaws**\
 `Proposals for curbing social media use among children have wide support, but critics say they are ineffective.`\
 https://www.nytimes.com/2026/08/28/technology/social-media-bans-meta.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/08/28/world/asia/afghanistan-girls-education.html
 **Word of the Day: pirouette**\
 `This word has appeared in 21 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/08/28/learning/word-of-the-day-pirouette.html
-
-**How the Foo Fighters Fill a Three-Hour Set List, Night After Night**\
-`Dave Grohl, the frontman of the Foo Fighters, tells us how he packs 31 years into 3 hours with something for fans of every generation.`\
-https://www.nytimes.com/2026/08/28/arts/music/foo-fighters-live-setlist.html
 
 **Live Updates: New Nepal Flood Warning Clouds Desperate Search for Survivors**\
 `The Nepali police warned people to head for safety because more water could soak flood-ravaged villages. China said that the risk of a Tibetan lake overflowing had “gradually decreased.”`\
