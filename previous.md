@@ -1,3 +1,7 @@
+**El jefe de la CIA viajó en secreto a Rusia y entregó una evaluación sombría de la guerra**\
+`La reunión de esta semana de John Ratcliffe con un jefe de la inteligencia rusa tenía como objetivo presionar al Kremlin para que buscara un acuerdo de paz con Ucrania.`\
+https://www.nytimes.com/es/2026/08/28/espanol/estados-unidos/director-cia-reunion-secreta-rusia.html
+
 **Unstable Manhattan Building Had More Damaged Columns Than Previously Known**\
 `Drawings obtained by The New York Times and reviewed by engineers show insufficient reinforcements on eight more steel columns than previously known at a Manhattan building.`\
 https://www.nytimes.com/2026/08/28/nyregion/nyc-manhattan-building-collapse-pfizer-columns-steel.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/08/28/style/mix-tape-analog-music.html
 **Thieves Steal Bronze Age Treasures in Brazen Spanish Museum Heist**\
 `Art theft experts say the heist at the Museum of Villena mimics increasingly violent and quick robberies elsewhere in Europe, possibly inspired by last year’s Louvre break-in.`\
 https://www.nytimes.com/2026/08/28/arts/design/spain-museum-heist-treasure-of-villena.html
-
-**King Oyo of Uganda’s Tooro Kingdom Dies at 34**\
-`King Oyo Nyimba Kabamba Iguru Rukidi IV of the Tooro Kingdom, in western Uganda, had been in “critical condition,” the kingdom’s prime minister said.`\
-https://www.nytimes.com/2026/08/28/world/africa/uganda-king-oyo-dead.html
 
