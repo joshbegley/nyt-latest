@@ -1,3 +1,7 @@
+**A Disaster in Nepal**\
+`Authorities in Nepal are warning rescuers that more flooding may be on its way. Let’s start there.`\
+https://www.nytimes.com/2026/08/28/briefing/a-disaster-in-nepal.html
+
 **Inside Afghanistan’s Secret Schools for Girls**\
 `The Taliban have banned education for millions of Afghan girls. Times journalists examined classrooms where students, teachers and parents continue to resist by defying the rules.`\
 https://www.nytimes.com/2026/08/28/world/asia/afghanistan-girls-education.html
