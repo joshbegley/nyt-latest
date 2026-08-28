@@ -1,3 +1,31 @@
+**Today, In Short**\
+`Weather influencers. Cottage cheese. And tennis.`\
+https://www.nytimes.com/2026/08/28/briefing/today-in-short.html
+
+**Where to Eat, Sleep and Shop Along the Southwest Michigan Shoreline**\
+`On Lake Michigan’s southeastern shore, generations of artists have long drawn inspiration from the landscape. Now there’s a new wave of creative people finding more and more reasons to linger.`\
+https://www.nytimes.com/2026/08/28/t-magazine/lake-michigan-coast-dunes.html
+
+**A Tomato and White Bean Stew for Summer**\
+`And more of the week’s most popular recipes.`\
+https://www.nytimes.com/2026/08/28/dining/a-tomato-and-white-bean-stew-for-summer.html
+
+**Five Science Fiction Movies to Stream Now**\
+`This month’s options include an adaptation of an early Stephen King novel, jungle dinosaur battles and atmospheric thrillers.`\
+https://www.nytimes.com/2026/08/28/movies/science-fiction-movies-streaming.html
+
+**Democrats Want Fighters. A Former Republican Has Ideas.**\
+`On deep frustration with the Democratic establishment and potential souring among Trump supporters.`\
+https://www.nytimes.com/2026/08/28/opinion/democrats-fighters-trump-republicans.html
+
+**Maps: Tracking Tropical Storm Lowell**\
+`See the likely path and wind arrival times for Lowell`\
+https://www.nytimes.com/interactive/2026/08/28/weather/tropical-storm-lowell-hawaii-map-tracker.html
+
+**‘The Sauna Is Hot and Uncomfortable’: Vote on E.U. Talks Makes Iceland Sweat**\
+`The usually genial country has been bitterly divided over a vote this weekend on whether to enter membership talks with the European Union.`\
+https://www.nytimes.com/2026/08/28/world/europe/iceland-european-union-vote.html
+
 **Mourners in Norway Remember King Harald V**\
 `Norwegians grieved a monarch who remained popular despite scandals involving the royal family. His death marks a new era for the country.`\
 https://www.nytimes.com/2026/08/28/world/europe/king-harald-norway-death.html
