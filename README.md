@@ -1,3 +1,15 @@
+**You Can Have My Walkman, Just Don’t Take My Mix Tape**\
+`These objects contain meaning.`\
+https://www.nytimes.com/interactive/2026/08/28/style/mix-tape-analog-music.html
+
+**Thieves Steal Bronze Age Treasures in Brazen Spanish Museum Heist**\
+`Art theft experts say the heist at the Museum of Villena mimics increasingly violent and quick robberies elsewhere in Europe, possibly inspired by last year’s Louvre break-in.`\
+https://www.nytimes.com/2026/08/28/arts/design/spain-museum-heist-treasure-of-villena.html
+
+**King Oyo of Uganda’s Tooro Kingdom Dies at 34**\
+`King Oyo Nyimba Kabamba Iguru Rukidi IV of the Tooro Kingdom, in western Uganda, had been in “critical condition,” the kingdom’s prime minister said.`\
+https://www.nytimes.com/2026/08/28/world/africa/uganda-king-oyo-dead.html
+
 **The First Thing Lexi Minetree Did After Landing the ‘Legally Blonde’ Prequel**\
 `The actor Lexi Minetree, who plays a young Elle Woods in “Elle,” the prequel to “Legally Blonde,” opens up about landing the role, discovering her love of acting and the book that shaped her view on the power of storytelling.`\
 https://www.nytimes.com/video/arts/100000010968781/lexi-minetree-legally-blonde-elle-woods.html
@@ -177,18 +189,6 @@ https://www.nytimes.com/2026/08/28/podcasts/us-open-tennis.html
 **‘The Sauna Is Hot and Uncomfortable’: Vote on E.U. Talks Makes Iceland Sweat**\
 `The usually genial country has been bitterly divided over a vote this weekend on whether to enter membership talks with the European Union.`\
 https://www.nytimes.com/2026/08/28/world/europe/iceland-european-union-vote.html
-
-**Fear Over Malaysia’s Plan to Send Back Rohingya Migrants to Myanmar**\
-`The announcement has sent panic through a community that fled its country’s brutal military rule, civil war, religious persecution or some combination of the three.`\
-https://www.nytimes.com/2026/08/28/world/asia/rohingya-refugees-malaysia-myanmar.html
-
-**Jury Continues Deliberations in Lindsay Clancy Murder Trial**\
-`To reach a verdict, jurors must agree on whether Ms. Clancy should be held criminally responsible for killing her three children.`\
-https://www.nytimes.com/2026/08/28/us/lindsay-clancy-trial-jury-deliberation.html
-
-**Wyoming Governor Objects to ‘Very Odd’ D.O.J. Election Monitoring**\
-`Governor Mark Gordon, a Republican, said he was concerned by the behavior of election observers who visited a polling station in Cheyenne.`\
-https://www.nytimes.com/2026/08/28/us/politics/wyoming-governor-objects-to-very-odd-doj-election-monitoring.html
 
 **Live Updates: Nepal Roughly Doubles Number of Missing to 1,900 Amid Desperate Search for Survivors**\
 `A spokeswoman for the disaster relief agency said the tally grew after some 900 people were reported missing from hydropower projects. Rescue efforts were complicated by fears of new possible flooding.`\
