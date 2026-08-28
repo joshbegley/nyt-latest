@@ -6,7 +6,7 @@ https://www.nytimes.com/2026/08/27/us/politics/judge-postal-service-mail-ballots
 `Jack Hatchett opens our solving weekend.`\
 https://www.nytimes.com/2026/08/27/crosswords/daily-puzzle-2026-08-28.html
 
-**Judge Rules Trump Administration’s Blacklisting of Anthropic Was Illegal**\
+**Trump Administration’s Blacklisting of Anthropic Was Illegal, Judge Rules**\
 `The government retaliated against the A.I. start-up “for constitutionally protected expressive activities,” a federal judge in California wrote.`\
 https://www.nytimes.com/2026/08/27/technology/anthropic-government-blacklisting-ruling.html
 

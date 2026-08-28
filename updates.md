@@ -1,3 +1,7 @@
+**Trump Administration’s Blacklisting of Anthropic Was Illegal, Judge Rules**\
+`The government retaliated against the A.I. start-up “for constitutionally protected expressive activities,” a federal judge in California wrote.`\
+https://www.nytimes.com/2026/08/27/technology/anthropic-government-blacklisting-ruling.html
+
 **Judge Once Again Bars Postal Service From Restricting Mail-In Vote**\
 `After reviewing the agency’s final plan to comply with President Trump’s demands, a federal judge barred the Postal Service from imposing new restrictions on mail-in voting.`\
 https://www.nytimes.com/2026/08/27/us/politics/judge-postal-service-mail-ballots.html
