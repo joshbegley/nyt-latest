@@ -1,3 +1,15 @@
+**Roy Slaper, Unlikely ‘Legend’ of Denim, Dies at 54**\
+`After filling his apartment with industrial sewing machines, he began producing high-end jeans that made him famous with denim-heads in the days of lumberjack chic.`\
+https://www.nytimes.com/2026/08/28/arts/design/roy-slaper-dead.html
+
+**James Roche, Embattled Air Force Secretary, Dies at 86**\
+`A former executive in the weapons industry, he led the Air Force amid reports of sexual assault at its service academy and a multibillion-dollar procurement scandal.`\
+https://www.nytimes.com/2026/08/28/us/james-roche-dead.html
+
+**Federal Judge Blocks HUD Funding Changes**\
+`The department’s attempted overhaul of its grant program would “cut out more fair housing organizations than they include,” according to the ruling.`\
+https://www.nytimes.com/2026/08/28/realestate/hud-fair-housing-funding-lawsuit.html
+
 **How Bad Is America’s $40 Trillion Debt?**\
 `U.S. debt recently crossed $40 trillion. On “The Ezra Klein Show,” the financial journalist Robin Wigglesworth explains how we got here — and whether the number is cause for concern.`\
 https://www.nytimes.com/video/opinion/100000011115448/how-bad-is-americas-40-trillion-debt.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/interactive/2026/08/28/upshot/flashback.html
 **Near-Total Eclipse Paints the Moon Blood Red**\
 `Moon gazers across the Americas, Africa and Europe could see the deep lunar eclipse on Thursday night.`\
 https://www.nytimes.com/video/science/space/100000011119062/lunar-eclipse-moon-red.html
-
-**‘Finding Emily,’ a Gen Z Rom-Com, Isn’t Timeless. That’s the Point.**\
-`The British movie aims to speak to young viewers by exploring love and romance in the digital age. The actors themselves served as consultants.`\
-https://www.nytimes.com/2026/08/28/movies/finding-emily-movie-gen-z-rom-com.html
-
-**Muere Harald V, rey de Noruega**\
-`Su reinado de 35 años abrió una antigua monarquía a matrimonios con los llamados plebeyos y a una asociación incendiaria con Jeffrey Epstein.`\
-https://www.nytimes.com/es/2026/08/28/espanol/mundo/muere-harald-v-rey-noruega.html
-
-**Book Club: Let’s Talk About ‘London Falling,’ by Patrick Radden Keefe**\
-`Keefe’s new book explores a teenager’s mysterious death on the River Thames.`\
-https://www.nytimes.com/2026/08/28/podcasts/podcast-london-falling-book-club.html
 
