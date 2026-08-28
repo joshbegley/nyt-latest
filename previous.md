@@ -1,10 +1,10 @@
-**Leave Mail-In Voting Alone**\
-`Readers react to the Supreme Court ruling on the president’s move to restrict mail-in ballots. Also: How to deal with more data centers.`\
-https://www.nytimes.com/2026/08/28/opinion/trump-mail-voting.html
-
 **Un vuelo de Delta Air Lines se desvió por una emergencia médica del capitán**\
 `Un vuelo de Delta Air Lines de Los Ángeles a Boston se desvió de manera segura a Detroit luego de que el capitán del Boeing 757 se enfermara.`\
 https://www.nytimes.com/es/2026/08/28/espanol/estados-unidos/accidente-avion-emergencia-medica-vuelo.html
+
+**The Battle Over Mail-In Voting**\
+`Readers react to the Supreme Court ruling on the president’s move to restrict mail-in ballots. Also: How to deal with more data centers.`\
+https://www.nytimes.com/2026/08/28/opinion/trump-mail-voting.html
 
 **Yogurt Cake**\
 `This Turkish yogurt cake, adapted from the cookbook “Claudia Roden’s Mediterranean,” is similar to a lemon-scented cheesecake, but it’s lighter and has a fresher, tangier flavor.`\

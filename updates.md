@@ -1,3 +1,7 @@
+**The Battle Over Mail-In Voting**\
+`Readers react to the Supreme Court ruling on the president’s move to restrict mail-in ballots. Also: How to deal with more data centers.`\
+https://www.nytimes.com/2026/08/28/opinion/trump-mail-voting.html
+
 **Leave Mail-In Voting Alone**\
 `Readers react to the Supreme Court ruling on the president’s move to restrict mail-in ballots. Also: How to deal with more data centers.`\
 https://www.nytimes.com/2026/08/28/opinion/trump-mail-voting.html
