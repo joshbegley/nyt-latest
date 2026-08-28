@@ -1,3 +1,11 @@
+**¿Qué tienen que ver las sanciones a Rusia con los robos de autos en Canadá?**\
+`Cuando las automotrices occidentales abandonaron el mercado ruso y muchas naciones prohibieron exportar vehículos a ese país, los grupos criminales se movilizaron para llenar el vacío con vehículos canadienses.`\
+https://www.nytimes.com/es/2026/08/28/espanol/mundo/robo-autos-canada-sanciones-rusia.html
+
+**Live Updates: New Nepal Flood Warning Complicates Desperate Himalayan Search**\
+`Rescuers are racing to find survivors of a torrent that swept through valleys along the China-Nepal border. The Nepali police on Friday warned people to head for safety, citing a new risk of flooding.`\
+https://www.nytimes.com/live/2026/08/28/world/nepal-tibet-flash-floods
+
 **She Filmed the Towers That Morning. 25 Years Later, She Finally Watched.**\
 `Thuc Nguyen filmed the World Trade Center attack from the fire escape of her Chinatown apartment. For many years, she avoided looking at the footage.`\
 https://www.nytimes.com/2026/08/28/nyregion/9-11-footage-25-years-unreleased.html
