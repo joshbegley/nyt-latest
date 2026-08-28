@@ -1,3 +1,7 @@
+**King Donald Is Dethroning the Dollar**\
+`The dollar’s roll as the world’s reserve currency is threatened by the erosion of our institutions under Trump.`\
+https://www.nytimes.com/2026/08/28/opinion/trump-dollar-currency.html
+
 **In Nepal, Fears of a Second Flood Grow as Rescue Efforts Continue**\
 `Nepali and Chinese authorities warned that a lake created by a deadly landslide could burst open soon. Another deluge would pose the most risk to rescuers, an expert said.`\
 https://www.nytimes.com/2026/08/28/world/asia/nepal-flash-floods-rescue.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/08/27/arts/jaye-p-morgan-dead.html
 **Check These Dishes Off Your Summer Bucket List Before It’s Too Late**\
 `Jerk chicken in the heart of Flatbush, an actually affordable lobster roll and all the soft shell crab you can eat.`\
 https://www.nytimes.com/2026/08/27/dining/bucket-list.html
-
-**In ‘9 to 5,’ Dolly Parton Put a Friendly Face on Feminism**\
-`In 1980, feminists were often stereotyped as man-hating or out of touch. Then Parton gave the movement a boost — and an anthem.`\
-https://www.nytimes.com/2026/08/27/magazine/dolly-parton-9-to-5-feminism.html
 
 **U.S. to Step Up Deportations to Haiti Despite Warning Not to Visit**\
 `(No description)`\
