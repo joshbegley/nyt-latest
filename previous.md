@@ -1,3 +1,11 @@
+**Haakon VIII Is Norway’s New King After Father’s Death**\
+`King Haakon VIII ascended to the throne after his father, King Harald V, died on Friday. The late monarch remained popular despite several scandals involving other members of the royal family.`\
+https://www.nytimes.com/video/world/europe/100000011119054/norway-king-haakon-harald-father-death.html
+
+**Judge Again Denies Trump Request to Move Criminal Case to Federal Court**\
+`The ruling, from Judge Alvin K. Hellerstein, blocks President Trump’s quickest path to overturning his 2024 conviction for covering up hush-money payments to a porn star.`\
+https://www.nytimes.com/2026/08/28/nyregion/trump-hush-money-case.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/business/100000011119925/Biz-Novo-Comeback-Video.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/08/28/crosswords/connections-companion-1175.html
 **NYT Strands Hints for August 29, 2026**\
 `Scroll down for hints and conversation about the puzzle for Saturday, Aug. 29, 2026.`\
 https://www.nytimes.com/2026/08/28/crosswords/strands-sidekick-909.html
-
-**Today’s Wordle Hints for August 29. 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, Aug. 29, 2026.`\
-https://www.nytimes.com/2026/08/28/crosswords/wordle-review-1897.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/admin/100000011119036/28vids-nepal-floods-embeds.html
 
 **Live Updates: Nepal Roughly Doubles Number of Missing to 1,900 Amid Desperate Search for Survivors**\
 `A spokeswoman for the disaster relief agency said the tally grew after some 900 people were reported missing from hydropower projects. Rescue efforts were complicated by fears of new possible flooding.`\
