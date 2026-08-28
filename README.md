@@ -1,3 +1,7 @@
+**Near-Total Eclipse Paints the Moon Blood Red**\
+`Moon gazers across the Americas, Africa and Europe could see the deep lunar eclipse on Thursday night.`\
+https://www.nytimes.com/video/science/space/100000011119062/lunar-eclipse-moon-red.html
+
 **‘Finding Emily,’ a Gen Z Rom-Com, Isn’t Timeless. That’s the Point.**\
 `The British movie aims to speak to young viewers by exploring love and romance in the digital age. The actors themselves served as consultants.`\
 https://www.nytimes.com/2026/08/28/movies/finding-emily-movie-gen-z-rom-com.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/08/28/us/pelosi-connie-chan-congress.html
 **Drought, Heat, Low Water Levels: Europe’s River Cruises Take a Hit**\
 `The Danube and Rhine are at record lows this summer, disrupting hundreds of cruises that have become an increasingly popular part of Europe’s tourism industry.`\
 https://www.nytimes.com/2026/08/28/travel/europe-river-cruises-drought.html
-
-**Rachel Cusk Tried to Caricature Natalie Portman. She Only Caricatured Herself.**\
-`Her latest novel appears to savage a celebrity. But Cusk has, once again, managed to turn herself into the victim.`\
-https://www.nytimes.com/2026/08/28/magazine/rachel-cusk-natalie-portman-life-of-m.html
 
 **Live Updates: Nepal Roughly Doubles Number of Missing to 1,900 Amid Desperate Search for Survivors**\
 `A spokeswoman for the disaster relief agency said the tally grew after some 900 people were reported missing from hydropower projects. Rescue efforts were complicated by fears of new possible flooding.`\
