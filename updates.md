@@ -1,3 +1,15 @@
+**Book Club: Let’s Talk About ‘London Falling,’ by Patrick Radden Keefe**\
+`Keefe’s new book explores a teenager’s mysterious death on the River Thames.`\
+https://www.nytimes.com/2026/08/28/podcasts/podcast-london-falling-book-club.html
+
+**Social Media and the Myth of the Big Tobacco Moment**\
+`Smoking used to be everywhere, the way Facebook, TikTok, Snap, YouTube and Instagram are now. Society decided to break the habit, but it took a long time.`\
+https://www.nytimes.com/2026/08/28/technology/meta-social-media-big-tobacco.html
+
+**The T.S.A. Abruptly Scraps Its New Private-Security Model**\
+`Under new leadership, the agency scrapped Gold+, which would have allowed private companies to provide the full scope of screening services, technology and maintenance.`\
+https://www.nytimes.com/2026/08/28/travel/tsa-privatization-gold-plus.html
+
 **Smaller Revision Points to More Accurate Jobs Numbers**\
 `The 2026 revisions by the Bureau of Labor Statistics represent a downward adjustment of just 0.1 percent of the total work force.`\
 https://www.nytimes.com/2026/08/28/business/economy/jobs-labor-numbers.html

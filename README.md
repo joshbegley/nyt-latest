@@ -146,7 +146,7 @@ https://www.nytimes.com/2026/08/28/us/lindsay-clancy-trial-jury-deliberation.htm
 `Governor Mark Gordon, a Republican, said he was concerned by the behavior of election observers who visited a polling station in Cheyenne.`\
 https://www.nytimes.com/2026/08/28/us/politics/wyoming-governor-objects-to-very-odd-doj-election-monitoring.html
 
-**Make Friendship a Healthy Habit**\
+**How to Find More Time for Your Friends**\
 `Commit to your friendships like you do the gym.`\
 https://www.nytimes.com/2026/08/28/well/friendship-social-rings.html
 
