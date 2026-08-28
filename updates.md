@@ -1,3 +1,7 @@
+**Mount Kailash, Sacred to 4 Faiths, Drew Pilgrims Lost in Nepal and Tibet Floods**\
+`The peak is revered by Hindus, Buddhists, Jains and those belonging to the pre-Buddhist Bon religion.`\
+https://www.nytimes.com/2026/08/28/world/asia/mount-kailash-nepal-floods.html
+
 **A Town Council Turns to a Deck of Cards to Break a Tie**\
 `Two candidates for Town Council in Gila Bend, Ariz., finished with the same number of votes. A century-old state law mandated breaking the tie with a game of chance.`\
 https://www.nytimes.com/2026/08/28/us/gila-bend-election-tiebreaker.html
