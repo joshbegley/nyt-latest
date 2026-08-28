@@ -1,3 +1,11 @@
+****\
+`tk tk tk`\
+https://www.nytimes.com/video/embedded/business/100000011119925/Biz-Novo-Comeback-Video.html
+
+**Benjamin Alire Sáenz, First Latino Writer to Win PEN/Faulkner, Dies at 71**\
+`A former Catholic priest, he later became an acclaimed author, writing more than two dozen works about life in the U.S.-Mexican borderlands.`\
+https://www.nytimes.com/2026/08/28/obituaries/benjamin-alire-saenz-dead.html
+
 **Narwhals Have Stunning Spiraled Tusks. That’s Not the Only Twist.**\
 `X-rays revealed that the tusks have an internal opposing twist, which may help explain how they grow so straight — the only tusks like them in nature.`\
 https://www.nytimes.com/2026/08/28/science/narwhals-tusk-spiral-twist.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/08/28/crosswords/wordle-review-1897.html
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/admin/100000011119036/28vids-nepal-floods-embeds.html
-
-**Who Is Haakon, Norway’s New King?**\
-`Crown Prince Haakon, the only son of King Harald V, will become monarch, a largely ceremonial and symbolic role.`\
-https://www.nytimes.com/2026/08/28/world/europe/norway-new-king-haakon.html
-
-**The US Open Is Here. Is It America’s Time?**\
-`With the men’s draw wide open and two American women in the form of their lives, could it be an American sweep at Flushing Meadows?`\
-https://www.nytimes.com/2026/08/28/podcasts/us-open-tennis.html
 
 **Live Updates: Nepal Roughly Doubles Number of Missing to 1,900 Amid Desperate Search for Survivors**\
 `A spokeswoman for the disaster relief agency said the tally grew after some 900 people were reported missing from hydropower projects. Rescue efforts were complicated by fears of new possible flooding.`\
