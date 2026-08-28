@@ -1,3 +1,39 @@
+**Las grandes ambiciones de ‘Grand Theft Auto VI’**\
+`El juego, que llegará al mercado el 19 de noviembre, combina crimen, sátira y un mundo abierto de actividades que va desde carreras y paracaidismo hasta fiestas de alta sociedad.`\
+https://www.nytimes.com/es/2026/08/28/espanol/cultura/grand-theft-auto-vi-gta.html
+
+**Palestine Action Activists Accused of Vandalism at Trump Turnberry Face Terrorism Accusation**\
+`Prosecutors will seek to prove that members of Palestine Action who they say painted “Gaza is not 4 sale” on the Scottish golf course last year committed acts connected to terrorism.`\
+https://www.nytimes.com/2026/08/28/world/europe/palestine-action-trump-golf-course.html
+
+**Quote of the Day: Huge Waves Sped Through Valleys, Trapping Victims**\
+`Quotation of the Day for Friday, August 28, 2026.`\
+https://www.nytimes.com/2026/08/28/pageoneplus/quote-of-the-day-huge-waves-sped-through-valleys-trapping-victims.html
+
+**This Wasn’t the Marriage I Promised Him**\
+`My husband was holding up our entire world by himself.`\
+https://www.nytimes.com/2026/08/28/style/modern-love-this-wasnt-the-marriage-i-promised.html
+
+**They Took the Plunge**\
+`Alison Bick and Maxim Zaslavsky embraced the summer and each other with a pool party-barbecue wedding.`\
+https://www.nytimes.com/2026/08/28/style/alison-bick-maxim-zaslavsky-wedding.html
+
+**Soon After Meeting, They Realized ‘We Were on the Same Page’**\
+`Trent Keel and Craig Greiwe, who connected on a dating app three years ago, had a similar vision of the life they wanted to lead.`\
+https://www.nytimes.com/2026/08/28/style/trent-keel-craig-griewe-wedding.html
+
+**Call Her Newly Romantic**\
+`Sofia Franklyn, a former host and creator of the popular podcast “Call Her Daddy,” had made a living off the dating game. Then she met John Messamore.`\
+https://www.nytimes.com/2026/08/28/style/sofia-franklyn-john-messamore-wedding.html
+
+**‘I Would Have Married Him That Night’**\
+`Kamie Crawford, a television and podcast host, was certain she’d found “the one” in Xavier Champagne on their very first date.`\
+https://www.nytimes.com/2026/08/28/style/kamie-crawford-xavier-champagne-wedding.html
+
+**The Deputy Sheriff Who Made Her Feel Safe**\
+`Just weeks after Terri Wade started dating Christopher Fung, she suffered a devastating loss. Fung’s support never wavered.`\
+https://www.nytimes.com/2026/08/28/style/terri-wade-christopher-fung-wedding.html
+
 **TK**\
 `TK`\
 https://static01.nyt.com/slideshow/2026/08/27/t-magazine/travel/tk.html
@@ -157,42 +193,6 @@ https://www.nytimes.com/2026/08/27/magazine/dolly-parton-9-to-5-feminism.html
 **In Trump’s Washington, Ballooning National Debt Stirs Little Action**\
 `The relative indifference to the news that the U.S. government now owes $40 trillion demonstrates how drastically the politics of deficit spending has changed.`\
 https://www.nytimes.com/2026/08/27/us/politics/national-debt-trump-reaction.html
-
-**Nepal Flood Maroons Thousands After Roads and Bridges Swept Away**\
-`Twenty-five miles of roads were erased, stranding a quarter of a million Nepalis and knocking out phone and power lines.`\
-https://www.nytimes.com/2026/08/27/world/asia/nepal-flood-damage-infrastructure-tibet.html
-
-**In Nepal, a Catastrophe So Sudden There Was No Time to React**\
-`The collapse of part of a mountain created a flash flood of a scale and speed no one had imagined, survivors said. Hundreds died, at least, and many more are missing.`\
-https://www.nytimes.com/2026/08/27/world/asia/nepal-flood-survivors-devastation.html
-
-**Grand Theft Auto VI Has a New Trailer and Grand Ambitions**\
-`Of course you can steal cars in this Bonnie and Clyde story. In the series’s first game in 13 years, you can do almost anything else, too.`\
-https://www.nytimes.com/2026/08/27/arts/grand-theft-auto-vi-trailer-extended-look-rockstar.html
-
-**Trump Renames Lake Ontario to Lake America**\
-`President Trump signed an executive order on Thursday renaming Lake Ontario to Lake America. The order comes after negotiations between the U.S. and Canada collapsed last week after the two failed to reach a trade agreement.`\
-https://www.nytimes.com/video/us/politics/100000011117424/trump-rename-lake-ontario-lake-america.html
-
-**As Darkness Approached, Black New Yorkers Found Some Light**\
-`A new book reveals some surprises about early 19th-century Manhattan.`\
-https://www.nytimes.com/2026/08/27/opinion/black-english-new-york.html
-
-**What Meta’s $17 Billion Settlement Means**\
-`Our reporter Cecilia Kang explains Meta’s settlement of a lawsuit claiming that the company’s social media platforms had harmed teenage users.`\
-https://www.nytimes.com/video/technology/100000011114831/explaining-metas-17-billion-dollar-settlement.html
-
-**Obama to Headline Fund-Raiser With Jeffries in New York**\
-`The top Democrats will gather party donors on Sept. 10, just as Republicans converge in Texas for their unusual midterm convention.`\
-https://www.nytimes.com/2026/08/27/us/politics/obama-fundraiser-gop-convention.html
-
-**Canada Hires U.S. Scholars From Harvard and Other Top Universities**\
-`A crackdown on American academia by the Trump administration has handed Canadian universities a rare opportunity to lure some top researchers north.`\
-https://www.nytimes.com/2026/08/27/world/canada/canada-universities-hire-us-researchers.html
-
-**On Night of Deadly Air Canada Crash, Two LaGuardia Controllers Left Early**\
-`The two controllers are among a dozen that the Federal Aviation Administration has taken steps to fire as part of an inquiry into timecard fraud, according to people familiar with the matter.`\
-https://www.nytimes.com/2026/08/27/nyregion/air-canada-crash-lga-air-traffic-controllers.html
 
 **U.S. to Step Up Deportations to Haiti Despite Warning Not to Visit**\
 `(No description)`\
