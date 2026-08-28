@@ -1,3 +1,7 @@
+**See Moments After a Glacier Collapsed, Launching Deadly Flash Floods in Nepal**\
+`Exclusive videos verified by The New York Times show the clearest view yet of the avalanche in northern Nepal near Tibet that sent a wall of water and mud coursing through river valleys below.`\
+https://www.nytimes.com/2026/08/28/world/asia/himalayan-glacier-collapse-flood.html
+
 **New Exclusive Video Reveals Immediate Aftermath of Nepal Glacier Collapse**\
 `New footage exclusively obtained by The New York Times showed the aftermath of the moment a giant glacier broke away from the top of a ridge in the Himalayas, setting off a deadly flood.`\
 https://www.nytimes.com/video/world/asia/100000011119084/new-exclusive-video-reveals-immediate-aftermath-of-nepal-glacier-collapse.html

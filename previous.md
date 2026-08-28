@@ -1,3 +1,7 @@
+**See Moments After a Glacier Collapsed, Launching Deadly Flash Floods in Nepal**\
+`Exclusive videos verified by The New York Times show the clearest view yet of the avalanche in northern Nepal near Tibet that sent a wall of water and mud coursing through river valleys below.`\
+https://www.nytimes.com/2026/08/28/world/asia/himalayan-glacier-collapse-flood.html
+
 **New Exclusive Video Reveals Immediate Aftermath of Nepal Glacier Collapse**\
 `New footage exclusively obtained by The New York Times showed the aftermath of the moment a giant glacier broke away from the top of a ridge in the Himalayas, setting off a deadly flood.`\
 https://www.nytimes.com/video/world/asia/100000011119084/new-exclusive-video-reveals-immediate-aftermath-of-nepal-glacier-collapse.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/28/t-magazine/lake-michigan-coast-dunes.html
 **A Tomato and White Bean Stew for Summer**\
 `And more of the week’s most popular recipes.`\
 https://www.nytimes.com/2026/08/28/dining/a-tomato-and-white-bean-stew-for-summer.html
-
-**Five Science Fiction Movies to Stream Now**\
-`This month’s options include an adaptation of an early Stephen King novel, jungle dinosaur battles and atmospheric thrillers.`\
-https://www.nytimes.com/2026/08/28/movies/science-fiction-movies-streaming.html
 
