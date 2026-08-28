@@ -1,3 +1,11 @@
+**Read the Decision From Judge Alvin Hellerstein**\
+`The judge denied President Trump’s request to move his Manhattan criminal case to federal court, saying his arguments were “neither new nor legally sufficient.”`\
+https://www.nytimes.com/interactive/2026/08/28/nyregion/trump-hush-money-case-hellerstein-decision.html
+
+**Tank That Imploded at Washington Paper Plant, Killing 11, Was Known to Be Unsafe, Report Says**\
+`A chemical disaster in Washington in May involved a tank that had been deemed at risk of failure nearly a year before, according to federal investigators.`\
+https://www.nytimes.com/2026/08/28/us/longview-chemical-tank-warnings.html
+
 **Haakon VIII Is Norway’s New King After Father’s Death**\
 `King Haakon VIII ascended to the throne after his father, King Harald V, died on Friday. The late monarch remained popular despite several scandals involving other members of the royal family.`\
 https://www.nytimes.com/video/world/europe/100000011119054/norway-king-haakon-harald-father-death.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/08/28/podcasts/the-daily/lindsay-clancy-trial-postp
 **Six Months of War, and Trump’s Push for ‘Lake America’**\
 `Plus, the Friday news quiz.`\
 https://www.nytimes.com/2026/08/28/podcasts/the-headlines/six-months-of-war-and-trumps-push-for-lake-america.html
-
-**NYT Connections Answers for August 29, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, Aug. 29, 2026.`\
-https://www.nytimes.com/2026/08/28/crosswords/connections-companion-1175.html
-
-**NYT Strands Hints for August 29, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, Aug. 29, 2026.`\
-https://www.nytimes.com/2026/08/28/crosswords/strands-sidekick-909.html
 
 **Live Updates: Nepal Roughly Doubles Number of Missing to 1,900 Amid Desperate Search for Survivors**\
 `A spokeswoman for the disaster relief agency said the tally grew after some 900 people were reported missing from hydropower projects. Rescue efforts were complicated by fears of new possible flooding.`\

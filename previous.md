@@ -2,7 +2,7 @@
 `King Haakon VIII ascended to the throne after his father, King Harald V, died on Friday. The late monarch remained popular despite several scandals involving other members of the royal family.`\
 https://www.nytimes.com/video/world/europe/100000011119054/norway-king-haakon-harald-father-death.html
 
-**Judge Again Denies Trump Request to Move Criminal Case to Federal Court**\
+**Judge Again Denies Trump’s Request to Move Hush-Money Case to Federal Court**\
 `The ruling, from Judge Alvin K. Hellerstein, blocks President Trump’s quickest path to overturning his 2024 conviction for covering up hush-money payments to a porn star.`\
 https://www.nytimes.com/2026/08/28/nyregion/trump-hush-money-case.html
 
