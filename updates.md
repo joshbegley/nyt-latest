@@ -1,3 +1,7 @@
+**TK**\
+`TK`\
+https://static01.nyt.com/slideshow/2026/08/27/t-magazine/travel/tk.html
+
 **U.S. to Step Up Deportations to Haiti Despite Warning Not to Visit**\
 `(No description)`\
 https://www.nytimes.com/live/2026/08/27/us/trump-news

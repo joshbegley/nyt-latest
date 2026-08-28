@@ -1,3 +1,7 @@
+**TK**\
+`TK`\
+https://static01.nyt.com/slideshow/2026/08/27/t-magazine/travel/tk.html
+
 **Gwyneth Paltrow’s Hamptons Dinner for Sam Altman Postponed**\
 `The actress and wellness entrepreneur did not deny her plans to host an intimate gathering for Sam Altman. But it will have to wait.`\
 https://www.nytimes.com/2026/08/27/style/gwyneth-paltrows-sam-altman-dinner-postponed.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/08/27/world/canada/canada-universities-hire-us-rese
 **On Night of Deadly Air Canada Crash, Two LaGuardia Controllers Left Early**\
 `The two controllers are among a dozen that the Federal Aviation Administration has taken steps to fire as part of an inquiry into timecard fraud, according to people familiar with the matter.`\
 https://www.nytimes.com/2026/08/27/nyregion/air-canada-crash-lga-air-traffic-controllers.html
-
-**Trump Signs Executive Order to Rename Lake Ontario to Lake America**\
-`The president also reiterated his criticism that Canada “treats us very badly.” Trade talks between the nations collapsed last week.`\
-https://www.nytimes.com/2026/08/27/us/politics/trump-lake-america-executive-order.html
 
 **U.S. to Step Up Deportations to Haiti Despite Warning Not to Visit**\
 `(No description)`\
