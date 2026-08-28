@@ -1,3 +1,11 @@
+**Investors Expect Higher Rates After Fed Chairman’s Inflation Pledge**\
+`Kevin Warsh reiterated the Federal Reserve’s commitment to tackle rising prices, nudging up investor expectations of a rate increase.`\
+https://www.nytimes.com/2026/08/28/business/markets-stocks-bonds-warsh-jackson-hole.html
+
+**China Sees Opportunity in America’s Recent A.I. Security Scares**\
+`A leading Chinese A.I. start-up released its latest model and made the case that China’s embrace of open software is safer than Silicon Valley’s closed approach.`\
+https://www.nytimes.com/2026/08/28/business/china-artificial-intelligence-zai.html
+
 **The Home Robert Indiana Left Behind as Possible Museum Site to Be Sold**\
 `The foundation that Indiana created to protect his legacy said his plan became unfeasible and the proceeds would now be used for grants to artists.`\
 https://www.nytimes.com/2026/08/28/arts/design/robert-indiana-home-museum-sale.html
