@@ -1,3 +1,7 @@
+**$42 Million Abu Ghraib Jury Verdict Is Overturned on Appeal**\
+`A Fourth Circuit panel ordered the case to be dismissed, citing a new Supreme Court ruling limiting the ability of foreign citizens to sue in U.S. court.`\
+https://www.nytimes.com/2026/08/28/us/politics/abu-ghraib-verdict-overturned.html
+
 **The Best Outfits Are a Little Undone**\
 `Plus: Kusama’s polka dots and a tip on where to find the best vintage tennis gear.`\
 https://www.nytimes.com/2026/08/28/style/alia-shawkat-celebrity-stylist-vintage.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/08/28/technology/social-media-bans-meta.html
 **Mount Kailash, Sacred to 4 Faiths, Drew Pilgrims Lost in Nepal and Tibet Floods**\
 `The peak is revered by Hindus, Buddhists, Jains and those belonging to the pre-Buddhist Bon religion.`\
 https://www.nytimes.com/2026/08/28/world/asia/mount-kailash-nepal-floods.html
-
-**FAFSA Form for College Aid Will Be Less Stressful This Year, Officials Say**\
-`The college financial aid form has long been a stressor for high school seniors and their parents. Fixes have made it simpler and faster to complete, officials say.`\
-https://www.nytimes.com/2026/08/28/business/college-aid-fafsa.html
 
 **Live Updates: Nepal Roughly Doubles Number of Missing to 1,900 Amid Desperate Search for Survivors**\
 `A spokeswoman for the disaster relief agency said the tally grew after some 900 people were reported missing from hydropower projects. Rescue efforts were complicated by fears of new possible flooding.`\

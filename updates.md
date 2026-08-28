@@ -1,3 +1,7 @@
+**$42 Million Abu Ghraib Jury Verdict Is Overturned on Appeal**\
+`A Fourth Circuit panel ordered the case to be dismissed, citing a new Supreme Court ruling limiting the ability of foreign citizens to sue in U.S. court.`\
+https://www.nytimes.com/2026/08/28/us/politics/abu-ghraib-verdict-overturned.html
+
 **The Best Outfits Are a Little Undone**\
 `Plus: Kusama’s polka dots and a tip on where to find the best vintage tennis gear.`\
 https://www.nytimes.com/2026/08/28/style/alia-shawkat-celebrity-stylist-vintage.html

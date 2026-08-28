@@ -1,3 +1,11 @@
+**Oil Giant Chevron Is Said to Be in Talks to Expand in Venezuela**\
+`Chevron, the second largest U.S. oil company, is building on its wager to remain in Venezuela, where it already accounts for about a quarter of the country’s oil production.`\
+https://www.nytimes.com/2026/08/28/business/energy-environment/chevron-venezuela-oil-deal.html
+
+**Trump Creates a Space Academy and Honors the Artemis Astronauts**\
+`President Trump presented the Congressional Space Medal of Honor to the Artemis II crew, which took a journey around the moon.`\
+https://www.nytimes.com/2026/08/28/us/politics/trump-space-academy-artemis-astronauts.html
+
 **$42 Million Abu Ghraib Jury Verdict Is Overturned on Appeal**\
 `A Fourth Circuit panel ordered the case to be dismissed, citing a new Supreme Court ruling limiting the ability of foreign citizens to sue in U.S. court.`\
 https://www.nytimes.com/2026/08/28/us/politics/abu-ghraib-verdict-overturned.html
@@ -179,18 +187,10 @@ https://www.nytimes.com/2026/08/28/business/economy/sec-quarterly-reporting.html
 https://www.nytimes.com/interactive/polls/north-carolina-us-house-3-polls-2026.html
 
 **Fed Chairman Warsh Seeks to Calm Elevated Inflation Concerns**\
-`In a high-profile speech, Kevin M. Warsh said that the Federal Reserve was chiefly responsible for taming inflation. If price increases did not return to the central bank’s target quickly, “we have work to do,” he said.`\
+`In a high-profile speech, Kevin M. Warsh said the Federal Reserve was chiefly responsible for taming inflation. If price increases do not return to the central bank’s target quickly, “we have work to do,” he said.`\
 https://www.nytimes.com/2026/08/28/business/fed-kevin-warsh-speech-inflation.html
 
 **Why Countries Are Pushing Social Media Bans Despite Their Flaws**\
 `Proposals for curbing social media use among children have wide support, but critics say they are ineffective.`\
 https://www.nytimes.com/2026/08/28/technology/social-media-bans-meta.html
-
-**Mount Kailash, Sacred to 4 Faiths, Drew Pilgrims Lost in Nepal and Tibet Floods**\
-`The peak is revered by Hindus, Buddhists, Jains and those belonging to the pre-Buddhist Bon religion.`\
-https://www.nytimes.com/2026/08/28/world/asia/mount-kailash-nepal-floods.html
-
-**Live Updates: Nepal Roughly Doubles Number of Missing to 1,900 Amid Desperate Search for Survivors**\
-`A spokeswoman for the disaster relief agency said the tally grew after some 900 people were reported missing from hydropower projects. Rescue efforts were complicated by fears of new possible flooding.`\
-https://www.nytimes.com/live/2026/08/28/world/nepal-tibet-flash-floods
 
