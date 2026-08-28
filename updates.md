@@ -1,3 +1,19 @@
+**Roy Slaper, Unlikely ‘Legend’ of Denim, Dies at 54**\
+`After filling his apartment with industrial sewing machines, he began producing high-end jeans that made him famous with denim-heads in the days of lumberjack chic.`\
+https://www.nytimes.com/2026/08/28/arts/design/roy-slaper-dead.html
+
+**James Roche, Embattled Air Force Secretary, Dies at 86**\
+`A former executive in the weapons industry, he led the Air Force amid reports of sexual assault at its service academy and a multibillion-dollar procurement scandal.`\
+https://www.nytimes.com/2026/08/28/us/james-roche-dead.html
+
+**Federal Judge Blocks HUD Funding Changes**\
+`The department’s attempted overhaul of its grant program would “cut out more fair housing organizations than they include,” according to the ruling.`\
+https://www.nytimes.com/2026/08/28/realestate/hud-fair-housing-funding-lawsuit.html
+
+**Chevron Is in Talks to Expand in Venezuela, a Potential Win for Trump**\
+`President Trump’s administration has been pushing U.S. companies like Chevron to invest more in Venezuela’s oil industry.`\
+https://www.nytimes.com/2026/08/28/business/energy-environment/chevron-venezuela-oil-deal.html
+
 **How Bad Is America’s $40 Trillion Debt?**\
 `U.S. debt recently crossed $40 trillion. On “The Ezra Klein Show,” the financial journalist Robin Wigglesworth explains how we got here — and whether the number is cause for concern.`\
 https://www.nytimes.com/video/opinion/100000011115448/how-bad-is-americas-40-trillion-debt.html
