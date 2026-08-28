@@ -1,3 +1,11 @@
+**Narwhals Have Stunning Spiraled Tusks. That’s Not the Only Twist.**\
+`X-rays revealed that the tusks have an internal opposing twist, which may help explain how they grow so straight — the only tusks like them in nature.`\
+https://www.nytimes.com/2026/08/28/science/narwhals-tusk-spiral-twist.html
+
+**Home Robert Indiana Left Behind as Possible Museum Site to Be Sold**\
+`The foundation that Indiana created to protect his legacy said his plan became unfeasible and the proceeds would now be used for grants to artists.`\
+https://www.nytimes.com/2026/08/28/arts/design/robert-indiana-home-museum-sale.html
+
 **You Can Have My Walkman, Just Don’t Take My Mix Tape**\
 `These objects contain meaning.`\
 https://www.nytimes.com/interactive/2026/08/28/style/mix-tape-analog-music.html
