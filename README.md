@@ -1,3 +1,15 @@
+**She Filmed the Towers That Morning. 25 Years Later, She Finally Watched.**\
+`Thuc Nguyen filmed the World Trade Center attack from the fire escape of her Chinatown apartment. For many years, she avoided looking at the footage.`\
+https://www.nytimes.com/2026/08/28/nyregion/9-11-footage-25-years-unreleased.html
+
+**Bronx Woman in Psychosis Found Not Responsible for Killing Her 2 Sons**\
+`A judge found Dimone Fleming not responsible for the deaths of her children at a shelter in 2022. Doctors said she suffered from postpartum psychosis.`\
+https://www.nytimes.com/2026/08/28/nyregion/bronx-mother-postpartum-psychosis.html
+
+**NYT Spelling Bee Answers for August 28, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/08/28/crosswords/spelling-bee-forum.html
+
 **Harald V, Norway’s King as Tradition and Modernity Collided, Dies at 89**\
 `His 35-year reign opened an ancient monarchy to marriages with so-called commoners and to an incendiary association with Jeffrey Epstein.`\
 https://www.nytimes.com/2026/08/28/world/europe/king-harald-v-dead.html
@@ -181,18 +193,6 @@ https://www.nytimes.com/2026/08/27/us/politics/democrats-progressives-moskowitz-
 **Kansas Judge Dismisses Murder Charge Against Sheriff’s Deputy**\
 `The judge said prosecutors had failed to meet their burden in the case against a deputy charged in the 2025 jailhouse death of an inmate.`\
 https://www.nytimes.com/2026/08/27/us/kansas-deputy-murder-charge-dismissed.html
-
-**High School Sports in the Heat**\
-`High temperatures and new safety rules are transforming practice as a new school year begins.`\
-https://www.nytimes.com/2026/08/27/climate/high-school-sports-heat.html
-
-**It’s Bake Time**\
-`Our colleagues from NYT Cooking share a recipe reviewed by nearly 22,000 readers. And it still has five stars.`\
-https://www.nytimes.com/2026/08/27/world/bake-time-yayoi-kusama-nepal.html
-
-**Fired Journalists From Stars and Stripes Sue Pentagon**\
-`Three journalists dismissed from Stars and Stripes accused the government of violating their First Amendment rights, asking the courts to stop their termination.`\
-https://www.nytimes.com/2026/08/27/us/politics/stars-and-stripes-fired-journalists-lawsuit-pentagon.html
 
 **U.S. to Step Up Deportations to Haiti Despite Warning Not to Visit**\
 `(No description)`\
