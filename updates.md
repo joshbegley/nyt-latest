@@ -1,3 +1,15 @@
+**She Filmed the Towers That Morning. 25 Years Later, She Finally Watched.**\
+`Thuc Nguyen filmed the World Trade Center attack from the fire escape of her Chinatown apartment. For many years, she avoided looking at the footage.`\
+https://www.nytimes.com/2026/08/28/nyregion/9-11-footage-25-years-unreleased.html
+
+**Bronx Woman in Psychosis Found Not Responsible for Killing Her 2 Sons**\
+`A judge found Dimone Fleming not responsible for the deaths of her children at a shelter in 2022. Doctors said she suffered from postpartum psychosis.`\
+https://www.nytimes.com/2026/08/28/nyregion/bronx-mother-postpartum-psychosis.html
+
+**NYT Spelling Bee Answers for August 28, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/08/28/crosswords/spelling-bee-forum.html
+
 **Harald V, Norway’s King as Tradition and Modernity Collided, Dies at 89**\
 `His 35-year reign opened an ancient monarchy to marriages with so-called commoners and to an incendiary association with Jeffrey Epstein.`\
 https://www.nytimes.com/2026/08/28/world/europe/king-harald-v-dead.html
