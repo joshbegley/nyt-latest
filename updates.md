@@ -1,3 +1,11 @@
+**Roban el Tesoro de Villena en España**\
+`En cuestión de minutos, unos ladrones irrumpieron en el Museo de Villena y sustrajeron una colección invaluable de objetos de oro y plata.`\
+https://www.nytimes.com/es/2026/08/28/espanol/cultura/robo-tesoro-villena-edad-bronce-espana.html
+
+**Why Putin Is Fighting On, Even as His Problems Multiply**\
+`There is little sign that public exhaustion, economic headwinds or increased Ukrainian strikes are changing the Russian leader’s view that he will eventually achieve victory.`\
+https://www.nytimes.com/2026/08/28/world/europe/russia-ukraine-war-putin.html
+
 **Judge Throws Out Key 9/11 Confession as Tainted by Torture**\
 `Prosecutors argued the statements by the defendant, Khalid Shaikh Mohammed, were crucial evidence for the eventual death-penalty trial.`\
 https://www.nytimes.com/2026/08/28/us/politics/september11-confession-trial.html
