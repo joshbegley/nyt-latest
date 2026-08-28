@@ -1,3 +1,7 @@
+**Gwyneth Paltrow’s Hamptons Dinner for Sam Altman Postponed**\
+`The actress and wellness entrepreneur did not deny her plans to host an intimate gathering for Sam Altman. But it will have to wait.`\
+https://www.nytimes.com/2026/08/27/style/gwyneth-paltrows-sam-altman-dinner-postponed.html
+
 **Judge Once Again Bars Postal Service From Restricting Mail-In Vote**\
 `After reviewing the agency’s final plan to comply with President Trump’s demands, a federal judge barred the Postal Service from imposing new restrictions on mail-in voting.`\
 https://www.nytimes.com/2026/08/27/us/politics/judge-postal-service-mail-ballots.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/08/27/nyregion/air-canada-crash-lga-air-traffic-con
 **Trump Signs Executive Order to Rename Lake Ontario to Lake America**\
 `The president also reiterated his criticism that Canada “treats us very badly.” Trade talks between the nations collapsed last week.`\
 https://www.nytimes.com/2026/08/27/us/politics/trump-lake-america-executive-order.html
-
-**Dollar Tree and Dollar General Report Sales Gains as Shoppers Cut Costs**\
-`Dollar General and Dollar Tree each reported gains in sales and store traffic on Thursday as higher gas prices forced shoppers to pare back.`\
-https://www.nytimes.com/2026/08/27/business/dollar-general-dollar-tree.html
 
 **Trump Administration Live: U.S. to Step Up Deportations to Haiti Despite Warning Not to Visit**\
 `(No description)`\
