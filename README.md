@@ -1,6 +1,10 @@
+**Ina Garten Says You Can Either Get on Her Train or Get Out of the Way**\
+`At 78, the cookbook author and Food Network host knows what she likes, knows what she wants and isn’t stopping anytime soon.`\
+https://www.nytimes.com/2026/08/29/magazine/ina-garten-interview.html
+
 **‘Immense’ Devastation as Nepal Continues Search for 2,400 Missing in Floods**\
 `As rescue efforts entered their fourth day, the scale of destruction came into focus, signaling a daunting recovery for the vulnerable nation.`\
-https://www.nytimes.com/2026/08/29/world/asia/immense-devastation-as-nepal-continues-search-for-2400-missing-in-floods.html
+https://www.nytimes.com/2026/08/29/world/asia/nepal-flood-rescue.html
 
 **As Deadly Flash Flooding Batters Nepal, Some Fear ‘the Entire Himalayas Are Melting’**\
 `A glacier unleashed a deadly flood earlier this week. For local trekking guides and climbers, the mountains were already changing.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/29/crosswords/spelling-bee-forum.html
 ****\
 `Residents walked through a mud-covered village in Trishuli, Nepal.`\
 https://www.nytimes.com/video/embedded/world/asia/100000011121156/29vid-Nepal-embed.html
-
-**Todos amábamos a Dolly Parton, pero no muchos la entendimos**\
-`Escribir su propia historia fue la manera más radical y precisa en la que la cantante e ícono cultural pudo definirse a sí misma.`\
-https://www.nytimes.com/es/2026/08/29/espanol/opinion/dolly-parton-vida-memorias.html
 
