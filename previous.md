@@ -34,7 +34,7 @@ https://www.nytimes.com/2026/08/28/us/george-w-cave-dead.html
 `El gigante petrolero afianza su apuesta de permanecer en Venezuela, donde ya representa alrededor de una cuarta parte de la producción petrolera del país.`\
 https://www.nytimes.com/es/2026/08/28/espanol/negocios/venezuela-chevron-petroleo-trump.html
 
-**‘Lake America’? These Upstate New Yorkers Aren’t Letting Go of ‘Ontario’**\
+**‘Lake America’? These Upstate New Yorkers Aren’t Letting Go of ‘Ontario.’**\
 `President Trump on Thursday signed an order rechristening Lake Ontario as Lake America, but businesses around Niagara Falls say they won’t be changing their tune.`\
 https://www.nytimes.com/2026/08/28/nyregion/lake-america-ontario-trump-canada.html
 

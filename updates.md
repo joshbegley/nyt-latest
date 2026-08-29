@@ -1,3 +1,7 @@
+**‘Lake America’? These Upstate New Yorkers Aren’t Letting Go of ‘Ontario.’**\
+`President Trump on Thursday signed an order rechristening Lake Ontario as Lake America, but businesses around Niagara Falls say they won’t be changing their tune.`\
+https://www.nytimes.com/2026/08/28/nyregion/lake-america-ontario-trump-canada.html
+
 **Trump Says U.S. Has Deal for Control of Large Share of Venezuela’s Oil**\
 `The president said an agreement between the countries involved “a partnership with private business” and more than 65 billion barrels of reserves.`\
 https://www.nytimes.com/2026/08/28/business/trump-venezuela-oil-deal.html
