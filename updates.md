@@ -1,3 +1,7 @@
+**Soldiers in Niger Attack Presidential Palace and Airport, Shaking Junta**\
+`Renegade Nigerien soldiers attacked sites around the capital, the defense ministry said, including a key air base that hosts Russian mercenaries.`\
+https://www.nytimes.com/2026/08/29/world/africa/niger-special-forces-attack.html
+
 **Man Finds His Father’s Wedding Ring Decades After It Was Lost**\
 `Using a metal detector, Jeff Arnett honored a request from his father, who lost his band while washing his car more than 40 years ago.`\
 https://www.nytimes.com/2026/08/29/us/ohio-lost-found-wedding-ring.html

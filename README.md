@@ -1,3 +1,7 @@
+**Treasury Bars Some Reporters From G20 Finance Meeting**\
+`Specific reporters from The New York Times, The Wall Street Journal and Bloomberg were not granted credentials to cover the meeting of financial leaders next week in Asheville, N.C.`\
+https://www.nytimes.com/2026/08/29/business/reporters-denied-g20-meeting.html
+
 **Soldiers in Niger Attack Presidential Palace and Airport, Shaking Junta**\
 `Renegade Nigerien soldiers attacked sites around the capital, the defense ministry said, including a key air base that hosts Russian mercenaries.`\
 https://www.nytimes.com/2026/08/29/world/africa/niger-special-forces-attack.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/es/2026/08/29/espanol/la-guia-turistica-que-sobrevivio-a
 **Turkey and Israel Vie for Middle East Influence as Tensions Spike**\
 `Israel’s strike on a Syrian base to pre-empt the feared deployment of Turkish forces was part of a growing competition in the Middle East and beyond.`\
 https://www.nytimes.com/2026/08/29/world/middleeast/turkey-israel-tensions-region.html
-
-**Carney Has Canadians’ Support on Trump. Now Comes the Hard Part.**\
-`The U.S.-Canada trade war has galvanized Canadians behind their prime minister’s decision to walk away from negotiations. What happens when the time comes for talks to restart?`\
-https://www.nytimes.com/2026/08/29/world/canada/carney-trump-tariffs-trade.html
 
