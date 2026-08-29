@@ -1,3 +1,7 @@
+**Trump Says U.S. Has Deal for Control of Large Share of Venezuela’s Oil**\
+`The president said an agreement between the countries involved “a partnership with private business” and more than 65 billion barrels of reserves.`\
+https://www.nytimes.com/2026/08/28/business/trump-venezuela-oil-deal.html
+
 **Critics Blast Metropolitan Museum’s Plan to Honor John Galliano**\
 `Galliano, a fashion industry giant championed by Anna Wintour, was found guilty of a hate crime for his antisemitic outbursts in 2011.`\
 https://www.nytimes.com/2026/08/28/style/galliano-met-gala-critics.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/embedded/business/100000011119925/Biz-Novo-Comebac
 **Benjamin Alire Sáenz, First Latino Writer to Win PEN/Faulkner, Dies at 71**\
 `A former Catholic priest, he later became an acclaimed author, writing more than two dozen works about life in the U.S.-Mexican borderlands.`\
 https://www.nytimes.com/2026/08/28/obituaries/benjamin-alire-saenz-dead.html
-
-**Narwhals Have Stunning Spiraled Tusks. That’s Not the Only Twist.**\
-`X-rays revealed that the tusks have an internal opposing twist, which may help explain how they grow so straight — the only tusks like them in nature.`\
-https://www.nytimes.com/2026/08/28/science/narwhals-tusk-spiral-twist.html
 
