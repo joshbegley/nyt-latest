@@ -1,3 +1,19 @@
+**Icelanders Are Voting on E.U. Membership Talks. Here’s What to Know.**\
+`The Nordic nation is holding a referendum on Saturday on whether to start membership talks with the European Union. Voters are divided.`\
+https://www.nytimes.com/2026/08/29/world/europe/iceland-eu-referendum-what-to-know.html
+
+**Quote of the Day: In House Race, 2 With Jets Ties Give Fans Certain Win at Last**\
+`Quotation of the Day for Saturday, August 29, 2026.`\
+https://www.nytimes.com/2026/08/29/pageoneplus/quote-of-the-day-in-house-race-2-with-jets-ties-give-fans-certain-win-at-last.html
+
+**Modi Is Hedging Against Trump, One Deal at a Time**\
+`In a year of globe-trotting, the Indian prime minister has secured deals around the world as the United States becomes less dependable.`\
+https://www.nytimes.com/2026/08/29/world/asia/modi-india-deals-trump.html
+
+**Why Iceland and Others Might Want In, Not Out, of the E.U. Club**\
+`A few years ago, some feared the European Union was going out of style. Now Iceland is mulling membership alongside a long list of candidates.`\
+https://www.nytimes.com/2026/08/29/world/europe/iceland-eu-membership-europe.html
+
 **Neck Topper**\
 `You’ll have to use your noodle to outwit Rafael Musa and Kate Chin Park today.`\
 https://www.nytimes.com/2026/08/28/crosswords/daily-puzzle-2026-08-29.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/es/2026/08/28/espanol/estados-unidos/accidente-avion-eme
 **The Battle Over Mail-In Voting**\
 `Readers react to the Supreme Court ruling on the president’s move to restrict mail-in ballots. Also: How to deal with more data centers.`\
 https://www.nytimes.com/2026/08/28/opinion/trump-mail-voting.html
-
-**Yogurt Cake**\
-`This Turkish yogurt cake, adapted from the cookbook “Claudia Roden’s Mediterranean,” is similar to a lemon-scented cheesecake, but it’s lighter and has a fresher, tangier flavor.`\
-https://www.nytimes.com/video/dining/100000011119586/yogurt-cake.html
-
-**Sweet and Salty Frozen Grapes**\
-`This snack draws on the South Asian and Mexican culinary traditions of serving ice-cold fruit seasoned with spices and salt.`\
-https://www.nytimes.com/video/dining/100000011116835/sweet-and-salty-frozen-grapes.html
-
-**Shake and Bake Pork Chops**\
-`This homemade version of the nostalgic seasoned bread crumbs from the supermarket yields pork chops that cook up almost as easy and fast — and even juicier.`\
-https://www.nytimes.com/video/dining/100000011116753/shake-and-bake-pork-chops.html
-
-**Read the Decision From Judge Alvin Hellerstein**\
-`The judge denied President Trump’s request to move his Manhattan criminal case to federal court, saying his arguments were “neither new nor legally sufficient.”`\
-https://www.nytimes.com/interactive/2026/08/28/nyregion/trump-hush-money-case-hellerstein-decision.html
 
