@@ -1,3 +1,7 @@
+**Israeli Settlers Attack Palestinians, Drawing Sharp Rebukes**\
+`The ferocity of Saturday’s assault prompted condemnations from Benjamin Netanyahu and other officials.`\
+https://www.nytimes.com/2026/08/29/world/middleeast/israel-settlers-west-bank-attacks-netanyahu-rebuke.html
+
 **‘A New Form of U.S. Colonialism’: Venezuelans Bristle at U.S. Oil Takeover**\
 `A deal giving the U.S. majority control of vast Venezuelan reserves strikes at the heart of national identity.`\
 https://www.nytimes.com/2026/08/29/world/americas/venezuela-oil-us-takeover.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/29/technology/meta-states-settlement.html
 **Olivia Rodrigo, Prince: Songs to Know This Week**\
 `Olivia Rodrigo name-checks “The Handmaid’s Tale,” another Prince song escapes the vault and Dawn Richard brings the club to church.`\
 https://www.nytimes.com/2026/08/29/arts/music/olivia-rodrigo-prince-new-songs.html
-
-**What Ina Garten Thinks of the Tradwife Trend**\
-`When it comes to how women want to live, Ina Garten says, “Do exactly what feels right to you.”`\
-https://www.nytimes.com/video/podcasts/100000011114260/what-ina-garten-thinks-of-the-tradwife-trend.html
 
