@@ -1,4 +1,8 @@
-**Truck With 40,000 Pounds of Pabst Blue Ribbon Is Stolen**\
+**Russian Attack on a Weapons Depot Kills Dozens in Ukraine**\
+`A deadly Russian strike on a weapons depot on Friday killed at least 37 people near Kyiv, prompting an investigation into arms storage in civilian areas.`\
+https://www.nytimes.com/video/world/europe/100000011121384/russia-ukraine-strike-kyiv-weapon-depot.html
+
+**40,000 Pounds of Pabst Blue Ribbon Beer Are Stolen in California**\
 `The company responded to the theft by setting a deadline for the return of the product. “P.S., this is real and we are deadly serious,” it said on social media.`\
 https://www.nytimes.com/2026/08/29/business/pabst-beer-truck-stolen-california.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/29/science/nasa-roman-telescope-origins.html
 **Mount Everest Base Camp Is Melting. Human Urine Is a Contributor.**\
 `More than 6,000 liters are produced daily by thousands of climbers and guides, according to a study.`\
 https://www.nytimes.com/2026/08/29/science/everest-base-camp-urine.html
-
-**When Older Adults Choose Life Among the Young**\
-`Several options, including on college campuses, offer communities focused on interactions with people belonging to different age groups.`\
-https://www.nytimes.com/2026/08/29/realestate/intergenerational-living-communities.html
 
