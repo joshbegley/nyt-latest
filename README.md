@@ -1,3 +1,7 @@
+**Neck Topper**\
+`You’ll have to use your noodle to outwit Rafael Musa and Kate Chin Park today.`\
+https://www.nytimes.com/2026/08/28/crosswords/daily-puzzle-2026-08-29.html
+
 **Judge Rules Trump Unlawfully Targeted Stanford Students Who Criticized Israel**\
 `The ruling was a win for Stanford’s student newspaper, The Stanford Daily, and it followed another court victory for students targeted by the Trump administration last year.`\
 https://www.nytimes.com/2026/08/28/us/politics/trump-stanford-students-deport-constitution.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/dining/100000011116753/shake-and-bake-pork-chops.h
 **Read the Decision From Judge Alvin Hellerstein**\
 `The judge denied President Trump’s request to move his Manhattan criminal case to federal court, saying his arguments were “neither new nor legally sufficient.”`\
 https://www.nytimes.com/interactive/2026/08/28/nyregion/trump-hush-money-case-hellerstein-decision.html
-
-**Tank That Imploded at Washington Paper Plant, Killing 11, Was Known to Be Unsafe, Report Says**\
-`A chemical disaster in Washington in May involved a tank that had been deemed at risk of failure nearly a year before, according to federal investigators.`\
-https://www.nytimes.com/2026/08/28/us/longview-chemical-tank-warnings.html
 
