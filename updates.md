@@ -1,3 +1,55 @@
+**The Best Suede Sneakers, at a Range of Prices**\
+`A perfect marriage of an elevated material with a sporty shape, any of these pairs could become your signature shoe.`\
+https://www.nytimes.com/2026/08/29/t-magazine/suede-sneakers-shoes.html
+
+**The Best Sea Pools for Saltwater Swimming**\
+`Carved into the rocks and replenished by the tides, these picturesque coastal wonders provide bracing saltwater and wide open views — no sharks allowed.`\
+https://www.nytimes.com/2026/08/29/t-magazine/sea-saltwater-swimming-pools-ocean-hotels.html
+
+**Remembering Moritz de Hadeln at the Venice Film Festival**\
+`Moritz de Hadeln’s legacy is one of bringing film to the masses and celebrating the power of cinema.`\
+https://www.nytimes.com/2026/08/29/movies/venice-film-festival-moritz-de-hadeln.html
+
+**With Shoppers Wary of Illness, Farmers Destroy Millions of Heads of Lettuce**\
+`After a drop in demand driven by a nationwide outbreak of cyclosporiasis, California growers are plowing lettuce back into the soil and laying off workers.`\
+https://www.nytimes.com/2026/08/29/us/salinas-california-taylor-farms-lettuce-cyclospora.html
+
+**How Cape Cod Became a Destination for Shark Tourism**\
+`As great white sharks have moved into Massachusetts waters, the Cape has changed to make room for them.`\
+https://www.nytimes.com/2026/08/29/realestate/cape-cod-shark-tourism.html
+
+**Book Review: ‘Agrippa,’ by Robert Harris**\
+`Robert Harris’s new novel, “Agrippa,” follows a statesman who witnesses the transformation of a republic into an empire.`\
+https://www.nytimes.com/2026/08/29/books/review/robert-harris-agrippa.html
+
+**What Saoirse Ronan Learned in the Director’s Chair**\
+`The actress, 32, will make her directorial debut with the Irish short film “Paper Plane” at the Venice Film Festival.`\
+https://www.nytimes.com/2026/08/29/movies/saoirse-ronan-paper-plane-venice.html
+
+**The Delight of San Francisco’s Dahlias**\
+`One hundred years ago, dahlias became the city’s official flower. They have gained new popularity as an antidote to the modern world.`\
+https://www.nytimes.com/2026/08/29/us/san-francisco-dahlias.html
+
+**Book Review: ‘Under Story,’ by Chloe Benjamin**\
+`In “Under Story,” a grieving woman makes a discovery that could help her recover what she thought she had lost forever.`\
+https://www.nytimes.com/2026/08/29/books/review/under-story-chloe-benjamin.html
+
+**At the Venice Film Festival, 6 Must-See Documentaries**\
+`A new section includes highly anticipated titles like Alex Gibney’s four-hour Elon Musk documentary and an Oasis concert film.`\
+https://www.nytimes.com/2026/08/29/movies/documentaries-venice-film-festival.html
+
+**Political Campaigns Are Quietly Paying Influencers to Support Candidates**\
+`Their videos have proliferated on social media, but the payments are frequently hidden from viewers.`\
+https://www.nytimes.com/2026/08/29/us/politics/campaigns-paid-influencers.html
+
+**Injuries Derailed Their Seasons. The Recovery Was Good Content.**\
+`On social media, it’s now common for athletes of all levels to share regular dispatches from the sidelines.`\
+https://www.nytimes.com/2026/08/29/well/move/injury-recovery-social-media.html
+
+**Book Review: ‘Defending the Music,’ by Michael Steinberg**\
+`“The eloquence and depth of his prose remain for me the gold standard,” John Adams writes of Michael Steinberg, who excelled at his craft in the 1960s and ’70s.`\
+https://www.nytimes.com/2026/08/29/books/review/defending-the-music-michael-steinberg.html
+
 **‘Por favor, ama a mi hijo como lo amo yo’**\
 `Las sorprendentes maneras de cómo trato de llevar la relación con la nueva esposa de mi exmarido.`\
 https://www.nytimes.com/es/2026/08/29/espanol/estilos-de-vida/modern-love-madrastra-amor-hijo.html

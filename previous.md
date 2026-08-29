@@ -1,3 +1,55 @@
+**The Best Suede Sneakers, at a Range of Prices**\
+`A perfect marriage of an elevated material with a sporty shape, any of these pairs could become your signature shoe.`\
+https://www.nytimes.com/2026/08/29/t-magazine/suede-sneakers-shoes.html
+
+**The Best Sea Pools for Saltwater Swimming**\
+`Carved into the rocks and replenished by the tides, these picturesque coastal wonders provide bracing saltwater and wide open views — no sharks allowed.`\
+https://www.nytimes.com/2026/08/29/t-magazine/sea-saltwater-swimming-pools-ocean-hotels.html
+
+**Remembering Moritz de Hadeln at the Venice Film Festival**\
+`Moritz de Hadeln’s legacy is one of bringing film to the masses and celebrating the power of cinema.`\
+https://www.nytimes.com/2026/08/29/movies/venice-film-festival-moritz-de-hadeln.html
+
+**With Shoppers Wary of Illness, Farmers Destroy Millions of Heads of Lettuce**\
+`After a drop in demand driven by a nationwide outbreak of cyclosporiasis, California growers are plowing lettuce back into the soil and laying off workers.`\
+https://www.nytimes.com/2026/08/29/us/salinas-california-taylor-farms-lettuce-cyclospora.html
+
+**How Cape Cod Became a Destination for Shark Tourism**\
+`As great white sharks have moved into Massachusetts waters, the Cape has changed to make room for them.`\
+https://www.nytimes.com/2026/08/29/realestate/cape-cod-shark-tourism.html
+
+**Book Review: ‘Agrippa,’ by Robert Harris**\
+`Robert Harris’s new novel, “Agrippa,” follows a statesman who witnesses the transformation of a republic into an empire.`\
+https://www.nytimes.com/2026/08/29/books/review/robert-harris-agrippa.html
+
+**What Saoirse Ronan Learned in the Director’s Chair**\
+`The actress, 32, will make her directorial debut with the Irish short film “Paper Plane” at the Venice Film Festival.`\
+https://www.nytimes.com/2026/08/29/movies/saoirse-ronan-paper-plane-venice.html
+
+**The Delight of San Francisco’s Dahlias**\
+`One hundred years ago, dahlias became the city’s official flower. They have gained new popularity as an antidote to the modern world.`\
+https://www.nytimes.com/2026/08/29/us/san-francisco-dahlias.html
+
+**Book Review: ‘Under Story,’ by Chloe Benjamin**\
+`In “Under Story,” a grieving woman makes a discovery that could help her recover what she thought she had lost forever.`\
+https://www.nytimes.com/2026/08/29/books/review/under-story-chloe-benjamin.html
+
+**At the Venice Film Festival, 6 Must-See Documentaries**\
+`A new section includes highly anticipated titles like Alex Gibney’s four-hour Elon Musk documentary and an Oasis concert film.`\
+https://www.nytimes.com/2026/08/29/movies/documentaries-venice-film-festival.html
+
+**Political Campaigns Are Quietly Paying Influencers to Support Candidates**\
+`Their videos have proliferated on social media, but the payments are frequently hidden from viewers.`\
+https://www.nytimes.com/2026/08/29/us/politics/campaigns-paid-influencers.html
+
+**Injuries Derailed Their Seasons. The Recovery Was Good Content.**\
+`On social media, it’s now common for athletes of all levels to share regular dispatches from the sidelines.`\
+https://www.nytimes.com/2026/08/29/well/move/injury-recovery-social-media.html
+
+**Book Review: ‘Defending the Music,’ by Michael Steinberg**\
+`“The eloquence and depth of his prose remain for me the gold standard,” John Adams writes of Michael Steinberg, who excelled at his craft in the 1960s and ’70s.`\
+https://www.nytimes.com/2026/08/29/books/review/defending-the-music-michael-steinberg.html
+
 **‘Por favor, ama a mi hijo como lo amo yo’**\
 `Las sorprendentes maneras de cómo trato de llevar la relación con la nueva esposa de mi exmarido.`\
 https://www.nytimes.com/es/2026/08/29/espanol/estilos-de-vida/modern-love-madrastra-amor-hijo.html
@@ -145,56 +197,4 @@ https://www.nytimes.com/2026/08/28/us/politics/hegseth-blocks-army-promotions.ht
 **What the Heck Is Happening in the Bond Market?**\
 `The U.S. Treasury market has been acting a little strange lately. Robin Wigglesworth, a financial journalist at The Financial Times, helps break down the factors contributing to recent volatility.`\
 https://www.nytimes.com/video/opinion/100000011115446/what-the-heck-is-happening-in-the-bond-market.html
-
-**California Sues Trump Administration Over Offshore Wind Cancellation**\
-`The state is asking a court to reverse a Trump administration agreement and reinstate a planned offshore wind farm.`\
-https://www.nytimes.com/2026/08/28/us/politics/california-trump-offshore-wind-lawsuit.html
-
-**Milo Yiannopoulos, a Right-Wing Provocateur, Is Arrested by ICE**\
-`Mr. Yiannopoulos, a prominent early supporter of President Trump, was detained at the New Orleans airport. The Trump administration publicized his arrest and shared a mug shot.`\
-https://www.nytimes.com/2026/08/28/us/politics/milo-yiannopoulos-arrested-ice.html
-
-**A Melting Glacier in Nepal Was a Time Bomb. There Are More to Come.**\
-`A geologist reflects on the disaster and explains why rapid warming will make deadly glacial floods far more common.`\
-https://www.nytimes.com/2026/08/28/climate/climate-forward-nepal-disaster.html
-
-**It’s Trump’s Capital Now, but Voters Aren’t Living in It**\
-`His obsession with remaking Washington might hurt his party politically.`\
-https://www.nytimes.com/2026/08/28/us/politics/trump-washington-dc-capital-voters.html
-
-**See Moments After a Glacier Collapsed, Launching Deadly Flash Floods in Nepal**\
-`Exclusive videos verified by The New York Times show the clearest view yet of the avalanche in northern Nepal near Tibet that sent a wall of water and mud coursing through river valleys below.`\
-https://www.nytimes.com/2026/08/28/world/asia/himalayan-glacier-collapse-flood.html
-
-**New Exclusive Video Reveals Immediate Aftermath of Nepal Glacier Collapse**\
-`New footage exclusively obtained by The New York Times showed the aftermath of the moment a giant glacier broke away from the top of a ridge in the Himalayas, setting off a deadly flood.`\
-https://www.nytimes.com/video/world/asia/100000011119084/new-exclusive-video-reveals-immediate-aftermath-of-nepal-glacier-collapse.html
-
-**Trump Administration Appeals Ruling Halting Mail-In Voting Rules**\
-`The Postal Service appealed an emergency decision from Thursday that blocked it from changing its procedures for mail-in voting ahead of the upcoming midterm elections.`\
-https://www.nytimes.com/2026/08/28/us/politics/trump-appeal-mail-ballot.html
-
-**Roban el Tesoro de Villena en España**\
-`En cuestión de minutos, unos ladrones irrumpieron en el Museo de Villena y sustrajeron una colección invaluable de objetos de oro y plata.`\
-https://www.nytimes.com/es/2026/08/28/espanol/cultura/robo-tesoro-villena-edad-bronce-espana.html
-
-**Why Putin Is Fighting On, Even as His Problems Multiply**\
-`There is little sign that public exhaustion, economic headwinds or increased Ukrainian strikes are changing the Russian leader’s view that he will eventually achieve victory.`\
-https://www.nytimes.com/2026/08/28/world/europe/russia-ukraine-war-putin.html
-
-**Trump Administration Looks to Give a Swath of Yosemite Park to Developer**\
-`The proposed land swap would allow easy access to the crown jewel of the national park system. Democrats and former Park Service officials are incensed.`\
-https://www.nytimes.com/2026/08/28/us/trump-administration-yosemite-private-developer.html
-
-**‘The Frontier of Algorithmic Fashion’**\
-`Private equity and Big Tech have infiltrated the fashion world. How did it happen, and how can consumers shop more intentionally?`\
-https://www.nytimes.com/video/opinion/100000011117306/the-frontier-of-algorithmic-fashion.html
-
-**Trump Administration Asks Supreme Court to Uphold Ban on Transgender Troops**\
-`President Trump issued an executive order barring transgender service members from the military as part of a broader attack on transgender rights.`\
-https://www.nytimes.com/2026/08/28/us/politics/trump-supreme-court-transgender-troops.html
-
-**The Local: Michael Che on First Avenue**\
-`And, of course, pickles at the State Fair.`\
-https://www.nytimes.com/2026/08/28/us/michael-che-first-ave.html
 
