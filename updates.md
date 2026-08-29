@@ -1,3 +1,7 @@
+**Neck Topper**\
+`You’ll have to use your noodle to outwit Rafael Musa and Kate Chin Park today.`\
+https://www.nytimes.com/2026/08/28/crosswords/daily-puzzle-2026-08-29.html
+
 **Judge Rules Trump Unlawfully Targeted Stanford Students Who Criticized Israel**\
 `The ruling was a win for Stanford’s student newspaper, The Stanford Daily, and it followed another court victory for students targeted by the Trump administration last year.`\
 https://www.nytimes.com/2026/08/28/us/politics/trump-stanford-students-deport-constitution.html
