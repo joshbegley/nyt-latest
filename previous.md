@@ -6,8 +6,8 @@ https://www.nytimes.com/2026/08/29/us/alaska-governor-candidates.html
 `Some labels have sued A.I. music generators like Suno. Others have partnered with them. At least one has done both.`\
 https://www.nytimes.com/2026/08/29/business/dealbook/ai-generated-music.html
 
-**37 Killed Near Kyiv as Russian Drone Blitz Exposes Air Defense Gap**\
-`The strike, on a warehouse near Ukraine’s capital, came after days of attacks that strained air defenses and struck fear in civilians.`\
+**37 Killed After Russian Strike on Weapons Depot as Ukraine Blames Negligence**\
+`The depot, which was in a civilian area near Kyiv, “definitely shouldn’t have been there,” President Volodymyr Zelensky said.`\
 https://www.nytimes.com/2026/08/29/world/europe/russia-ukraine-strike-kyiv-drones.html
 
 **¿Ya cerraste tus ‘círculos sociales’ esta semana?**\

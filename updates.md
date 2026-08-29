@@ -1,3 +1,7 @@
+**37 Killed After Russian Strike on Weapons Depot as Ukraine Blames Negligence**\
+`The depot, which was in a civilian area near Kyiv, “definitely shouldn’t have been there,” President Volodymyr Zelensky said.`\
+https://www.nytimes.com/2026/08/29/world/europe/russia-ukraine-strike-kyiv-drones.html
+
 **One Democrat to Face Three Republicans for Alaska Governor**\
 `The second-place finisher in a primary where the top four advance to the November ballot said he would drop out of the race so voters could coalesce behind a single Democratic candidate.`\
 https://www.nytimes.com/2026/08/29/us/alaska-governor-candidates.html
