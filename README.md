@@ -1,3 +1,7 @@
+**Fast Forward**\
+`How do we balance our desire for modern conveniences with our nostalgia for the uncomplicated felicity of our pre-internet past?`\
+https://www.nytimes.com/2026/08/29/briefing/fast-forward.html
+
 **Ina Garten Says You Can Either Get on Her Train or Get Out of the Way**\
 `At 78, the cookbook author and Food Network host knows what she likes, knows what she wants and isn’t stopping anytime soon.`\
 https://www.nytimes.com/2026/08/29/magazine/ina-garten-interview.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/29/insider/us-open-tennis-illustration.html
 **NYT Spelling Bee Answers for August 29, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/08/29/crosswords/spelling-bee-forum.html
-
-****\
-`Residents walked through a mud-covered village in Trishuli, Nepal.`\
-https://www.nytimes.com/video/embedded/world/asia/100000011121156/29vid-Nepal-embed.html
 
