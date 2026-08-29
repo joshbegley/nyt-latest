@@ -1,3 +1,7 @@
+**Reckoning With the Rights and Wrongs of Wokeness**\
+`Readers react to a column by Bret Stephens calling for restitution for those hurt by the movement’s excesses.`\
+https://www.nytimes.com/2026/08/29/opinion/wokeism-restitution.html
+
 **My Estranged Husband Is a Hoarder. Can I Force Him to Get Help?**\
 `We think the house would most likely be condemned if county inspectors ever got inside.`\
 https://www.nytimes.com/2026/08/29/magazine/estranged-husband-hoarder-ethics.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/29/us/politics/campaigns-paid-influencers.html
 **Injuries Derailed Their Seasons. The Recovery Was Good Content.**\
 `On social media, it’s now common for athletes of all levels to share regular dispatches from the sidelines.`\
 https://www.nytimes.com/2026/08/29/well/move/injury-recovery-social-media.html
-
-**Book Review: ‘Defending the Music,’ by Michael Steinberg**\
-`“The eloquence and depth of his prose remain for me the gold standard,” John Adams writes of Michael Steinberg, who excelled at his craft in the 1960s and ’70s.`\
-https://www.nytimes.com/2026/08/29/books/review/defending-the-music-michael-steinberg.html
 
