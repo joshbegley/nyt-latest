@@ -1,3 +1,7 @@
+**Rescuers in Nepal Bore Through Mud and Tunnels to Reach 900 Missing Workers**\
+`Footage released by the Nepal Army showed teams pulling people out of the tunnels caked in mud. But each passing day dims hopes for those trapped inside.`\
+https://www.nytimes.com/2026/08/29/world/asia/nepal-flood-hydropower-tunnels-rescue-missing-workers.html
+
 **Baby Goats From a Traveling Petting Zoo Test Positive for Rabies**\
 `Farm Adventures of Harmony, N.C., owned the goats, state health officials said. It was unclear how many people might have been exposed to them since late July.`\
 https://www.nytimes.com/2026/08/29/us/rabies-goats-petting-zoo-north-carolina.html

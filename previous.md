@@ -1,3 +1,7 @@
+**Rescuers in Nepal Bore Through Mud and Tunnels to Reach 900 Missing Workers**\
+`Footage released by the Nepal Army showed teams pulling people out of the tunnels caked in mud. But each passing day dims hopes for those trapped inside.`\
+https://www.nytimes.com/2026/08/29/world/asia/nepal-flood-hydropower-tunnels-rescue-missing-workers.html
+
 **Milo Yiannopoulos, Right-Wing Agitator, Deported Home to U.K.**\
 `Mr. Yiannopoulos, an early supporter of President Trump and vocal supporter of mass deportations, was himself sent back to his home country, part of a long fall from right-wing grace.`\
 https://www.nytimes.com/2026/08/29/us/politics/milo-yiannopoulos-deported.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/29/business/she-popularized-economics-then-she-w
 **How a California Bill Sparked a MAGA-Sphere Uproar**\
 `A privacy measure for immigration aid workers became a free speech cause for backers of Nick Shirley, a right-wing YouTube star. Democrats say the furor is fueled by misinformation.`\
 https://www.nytimes.com/2026/08/29/us/stop-nick-shirley-immigration-shield-california.html
-
-**Ina Garten Says You Can Either Get on Her Train or Get Out of the Way**\
-`Ina Garten grew up in a home filled with negativity and pressure before evolving into a hospitality powerhouse. Lulu Garcia-Navarro speaks with the Food Network host about when to listen to your inner voice and when to shut it down.`\
-https://www.nytimes.com/video/podcasts/100000011112188/ina-garten-says-you-can-either-get-on-her-train-or-get-out-of-the-way.html
 
