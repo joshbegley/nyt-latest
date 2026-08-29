@@ -1,3 +1,7 @@
+**Napa County Winery Worker Charged With Starting Pickett Fire That Damaged Grape Harvests**\
+`The Pickett fire burned nearly 7,000 acres in California wine country last year, causing millions of dollars in losses.`\
+https://www.nytimes.com/2026/08/29/us/napa-county-pickett-fire-california-worker-charged.html
+
 **Russian Attack on a Weapons Depot Kills Dozens in Ukraine**\
 `A deadly Russian strike on a weapons depot on Friday killed at least 37 people near Kyiv, prompting an investigation into arms storage in civilian areas.`\
 https://www.nytimes.com/video/world/europe/100000011121384/russia-ukraine-strike-kyiv-weapon-depot.html
