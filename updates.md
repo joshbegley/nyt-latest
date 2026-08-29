@@ -1,3 +1,23 @@
+**My Estranged Husband Is a Hoarder. Can I Force Him to Get Help?**\
+`We think the house would most likely be condemned if county inspectors ever got inside.`\
+https://www.nytimes.com/2026/08/29/magazine/estranged-husband-hoarder-ethics.html
+
+**NYT Connections Answers for August 30, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Aug. 30, 2026.`\
+https://www.nytimes.com/2026/08/29/crosswords/connections-companion-1176.html
+
+**Today’s Wordle Hints for August 30, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Aug. 30, 2026.`\
+https://www.nytimes.com/2026/08/29/crosswords/wordle-review-1898.html
+
+**Elbows and Chin Up: A Whirlwind Week in the U.S.-Canada Trade War**\
+`After trade talks collapsed, Mark Carney rallied the nation, Canadian businesses stood defiant, and President Trump moved to rename Lake Ontario.`\
+https://www.nytimes.com/2026/08/29/world/canada/carney-trump-trade-war-tariffs-canada-us.html
+
+**NYT Strands Hints for August 30, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Aug. 30, 2026`\
+https://www.nytimes.com/2026/08/29/crosswords/strands-sidekick-910.html
+
 **Fast Forward**\
 `How do we balance our desire for modern conveniences with our nostalgia for the uncomplicated felicity of our pre-internet past?`\
 https://www.nytimes.com/2026/08/29/briefing/fast-forward.html

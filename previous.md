@@ -1,3 +1,23 @@
+**My Estranged Husband Is a Hoarder. Can I Force Him to Get Help?**\
+`We think the house would most likely be condemned if county inspectors ever got inside.`\
+https://www.nytimes.com/2026/08/29/magazine/estranged-husband-hoarder-ethics.html
+
+**NYT Connections Answers for August 30, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Aug. 30, 2026.`\
+https://www.nytimes.com/2026/08/29/crosswords/connections-companion-1176.html
+
+**Today’s Wordle Hints for August 30, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Aug. 30, 2026.`\
+https://www.nytimes.com/2026/08/29/crosswords/wordle-review-1898.html
+
+**Elbows and Chin Up: A Whirlwind Week in the U.S.-Canada Trade War**\
+`After trade talks collapsed, Mark Carney rallied the nation, Canadian businesses stood defiant, and President Trump moved to rename Lake Ontario.`\
+https://www.nytimes.com/2026/08/29/world/canada/carney-trump-trade-war-tariffs-canada-us.html
+
+**NYT Strands Hints for August 30, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Aug. 30, 2026`\
+https://www.nytimes.com/2026/08/29/crosswords/strands-sidekick-910.html
+
 **Fast Forward**\
 `How do we balance our desire for modern conveniences with our nostalgia for the uncomplicated felicity of our pre-internet past?`\
 https://www.nytimes.com/2026/08/29/briefing/fast-forward.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/08/29/well/move/injury-recovery-social-media.html
 **Book Review: ‘Defending the Music,’ by Michael Steinberg**\
 `“The eloquence and depth of his prose remain for me the gold standard,” John Adams writes of Michael Steinberg, who excelled at his craft in the 1960s and ’70s.`\
 https://www.nytimes.com/2026/08/29/books/review/defending-the-music-michael-steinberg.html
-
-**‘Por favor, ama a mi hijo como lo amo yo’**\
-`Las sorprendentes maneras de cómo trato de llevar la relación con la nueva esposa de mi exmarido.`\
-https://www.nytimes.com/es/2026/08/29/espanol/estilos-de-vida/modern-love-madrastra-amor-hijo.html
-
-**Putin redobla la presión sobre Ucrania mientras la economía rusa se resiente**\
-`Hay pocos indicios de que el agotamiento público, las adversidades económicas o el aumento de los ataques ucranianos estén cambiando la perspectiva del líder ruso de que al final logrará la victoria.`\
-https://www.nytimes.com/es/2026/08/29/espanol/mundo/putin-presion-ucrania-economia-rusa.html
-
-**En Islandia, los homicidios abundan (pero solo en la ficción)**\
-`La nación nórdica prácticamente no tiene homicidios, y sin embargo la novela negra es su género literario favorito. Eso significa que los escritores enfrentan un reto: lograr que el asesinato resulte creíble.`\
-https://www.nytimes.com/es/2026/08/29/espanol/cultura/islandia-libros-novelas-crimen.html
-
-**How a Young Artist Went Wild for a U.S. Open Preview**\
-`Zazie Weldgen poured a lot of ecological research into a tennis illustration in the newspaper this weekend.`\
-https://www.nytimes.com/2026/08/29/insider/us-open-tennis-illustration.html
-
-**NYT Spelling Bee Answers for August 29, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/08/29/crosswords/spelling-bee-forum.html
 
