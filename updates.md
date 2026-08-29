@@ -1,3 +1,11 @@
+**Russian Attack on a Weapons Depot Kills Dozens in Ukraine**\
+`A deadly Russian strike on a weapons depot on Friday killed at least 37 people near Kyiv, prompting an investigation into arms storage in civilian areas.`\
+https://www.nytimes.com/video/world/europe/100000011121384/russia-ukraine-strike-kyiv-weapon-depot.html
+
+**40,000 Pounds of Pabst Blue Ribbon Beer Are Stolen in California**\
+`The company responded to the theft by setting a deadline for the return of the product. “P.S., this is real and we are deadly serious,” it said on social media.`\
+https://www.nytimes.com/2026/08/29/business/pabst-beer-truck-stolen-california.html
+
 **Truck With 40,000 Pounds of Pabst Blue Ribbon Is Stolen**\
 `The company responded to the theft by setting a deadline for the return of the product. “P.S., this is real and we are deadly serious,” it said on social media.`\
 https://www.nytimes.com/2026/08/29/business/pabst-beer-truck-stolen-california.html
