@@ -1,3 +1,7 @@
+**Judge Rules Trump Unlawfully Targeted Stanford Students Who Criticized Israel**\
+`The ruling was a win for Stanford’s student newspaper, The Stanford Daily, and it followed another court victory for students targeted by the Trump administration last year.`\
+https://www.nytimes.com/2026/08/28/us/politics/trump-stanford-students-deport-constitution.html
+
 **Walmart to Pay $50 Million to Settle Opioid Lawsuit, US Says**\
 `The resolution is part of an effort to hold retailers and pharmacists accountable for what the government says were their roles in the opioid epidemic.`\
 https://www.nytimes.com/2026/08/28/us/walmart-opioid-lawsuit-settlement.html
