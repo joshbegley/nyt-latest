@@ -1,3 +1,7 @@
+**Judge Rules Trump Unlawfully Targeted Stanford Students Who Criticized Israel**\
+`The ruling was a win for Stanford’s student newspaper, The Stanford Daily, and it followed another court victory for students targeted by the Trump administration last year.`\
+https://www.nytimes.com/2026/08/28/us/politics/trump-stanford-students-deport-constitution.html
+
 **Walmart to Pay $50 Million to Settle Opioid Lawsuit, US Says**\
 `The resolution is part of an effort to hold retailers and pharmacists accountable for what the government says were their roles in the opioid epidemic.`\
 https://www.nytimes.com/2026/08/28/us/walmart-opioid-lawsuit-settlement.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/08/28/nyregion/trump-hush-money-case-he
 **Tank That Imploded at Washington Paper Plant, Killing 11, Was Known to Be Unsafe, Report Says**\
 `A chemical disaster in Washington in May involved a tank that had been deemed at risk of failure nearly a year before, according to federal investigators.`\
 https://www.nytimes.com/2026/08/28/us/longview-chemical-tank-warnings.html
-
-**Haakon VIII Is Norway’s New King After Father’s Death**\
-`King Haakon VIII ascended to the throne after his father, King Harald V, died on Friday. The late monarch remained popular despite several scandals involving other members of the royal family.`\
-https://www.nytimes.com/video/world/europe/100000011119054/norway-king-haakon-harald-father-death.html
 
