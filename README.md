@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/08/29/world/europe/russia-ukraine-strike-kyiv-drone
 `Es bueno para la salud ejercitar el músculo de la amistad.`\
 https://www.nytimes.com/es/2026/08/29/espanol/vida-social-amigos.html
 
-**This Himalayan Tragedy Won’t Be the Last**\
+**Mountains Are Coming Undone**\
 `The burning of fossil fuels is pulling down the world’s highest peaks.`\
 https://www.nytimes.com/2026/08/29/opinion/nepal-flood-glacier-melt-climate-change.html
 
