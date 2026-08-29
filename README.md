@@ -1,5 +1,5 @@
 **An ICE Shooting, an Extradition Showdown and the Federal Case That Stalled**\
-`Federal prosecutors planned to charge an immigration agent with serious felonies in connection with a shooting in Minneapolis. Then the agent walked free.`\
+`Federal prosecutors planned to charge an immigration agent arrested in connection with a shooting in Minneapolis. Then the agent walked free.`\
 https://www.nytimes.com/2026/08/29/us/christian-castro-ice-agent-minnesota-texas.html
 
 **Relative of Afghans Who Helped U.S. Military Is Deported to Africa**\
