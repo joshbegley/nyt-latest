@@ -1,3 +1,23 @@
+**This Himalayan Tragedy Won’t Be the Last**\
+`The burning of fossil fuels is pulling down the world’s highest peaks.`\
+https://www.nytimes.com/2026/08/29/opinion/nepal-flood-glacier-melt-climate-change.html
+
+**Goodbye, Harry and Meghan. Turns Out We Didn’t Need Actual Royals.**\
+`With their departure, can America please shake off its obsession with royalty?`\
+https://www.nytimes.com/2026/08/29/opinion/prince-harry-meghan-markle-america.html
+
+**Dolly Parton Was So Fake She Was Real**\
+`Dolly Parton was utterly real about her unrealness. She played with the over-the-top details.`\
+https://www.nytimes.com/2026/08/29/opinion/dolly-parton-style-branding-personality.html
+
+**Democrats Have an Identity Politics Problem. Just Not the One You Think.**\
+`Instead of rallying around their candidates, Democrats are falling out among themselves.`\
+https://www.nytimes.com/2026/08/29/opinion/democrats-primaries-identity-politics.html
+
+**Sílvia Orriols’s Movement Used to Fight Fascism. Now Catalan Nationalism Fights Globalism.**\
+`Sílvia Orriols is transforming Catalan nationalism.`\
+https://www.nytimes.com/2026/08/29/opinion/silvia-orriols-catalonia-nationalism.html
+
 **Reckoning With the Rights and Wrongs of Wokeness**\
 `Readers react to a column by Bret Stephens calling for restitution for those hurt by the movement’s excesses.`\
 https://www.nytimes.com/2026/08/29/opinion/wokeism-restitution.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/08/29/books/review/robert-harris-agrippa.html
 **What Saoirse Ronan Learned in the Director’s Chair**\
 `The actress, 32, will make her directorial debut with the Irish short film “Paper Plane” at the Venice Film Festival.`\
 https://www.nytimes.com/2026/08/29/movies/saoirse-ronan-paper-plane-venice.html
-
-**The Delight of San Francisco’s Dahlias**\
-`One hundred years ago, dahlias became the city’s official flower. They have gained new popularity as an antidote to the modern world.`\
-https://www.nytimes.com/2026/08/29/us/san-francisco-dahlias.html
-
-**Book Review: ‘Under Story,’ by Chloe Benjamin**\
-`In “Under Story,” a grieving woman makes a discovery that could help her recover what she thought she had lost forever.`\
-https://www.nytimes.com/2026/08/29/books/review/under-story-chloe-benjamin.html
-
-**At the Venice Film Festival, 6 Must-See Documentaries**\
-`A new section includes highly anticipated titles like Alex Gibney’s four-hour Elon Musk documentary and an Oasis concert film.`\
-https://www.nytimes.com/2026/08/29/movies/documentaries-venice-film-festival.html
-
-**Political Campaigns Are Quietly Paying Influencers to Support Candidates**\
-`Their videos have proliferated on social media, but the payments are frequently hidden from viewers.`\
-https://www.nytimes.com/2026/08/29/us/politics/campaigns-paid-influencers.html
-
-**Injuries Derailed Their Seasons. The Recovery Was Good Content.**\
-`On social media, it’s now common for athletes of all levels to share regular dispatches from the sidelines.`\
-https://www.nytimes.com/2026/08/29/well/move/injury-recovery-social-media.html
 

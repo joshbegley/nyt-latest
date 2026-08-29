@@ -1,3 +1,23 @@
+**This Himalayan Tragedy Won’t Be the Last**\
+`The burning of fossil fuels is pulling down the world’s highest peaks.`\
+https://www.nytimes.com/2026/08/29/opinion/nepal-flood-glacier-melt-climate-change.html
+
+**Goodbye, Harry and Meghan. Turns Out We Didn’t Need Actual Royals.**\
+`With their departure, can America please shake off its obsession with royalty?`\
+https://www.nytimes.com/2026/08/29/opinion/prince-harry-meghan-markle-america.html
+
+**Dolly Parton Was So Fake She Was Real**\
+`Dolly Parton was utterly real about her unrealness. She played with the over-the-top details.`\
+https://www.nytimes.com/2026/08/29/opinion/dolly-parton-style-branding-personality.html
+
+**Democrats Have an Identity Politics Problem. Just Not the One You Think.**\
+`Instead of rallying around their candidates, Democrats are falling out among themselves.`\
+https://www.nytimes.com/2026/08/29/opinion/democrats-primaries-identity-politics.html
+
+**Sílvia Orriols’s Movement Used to Fight Fascism. Now Catalan Nationalism Fights Globalism.**\
+`Sílvia Orriols is transforming Catalan nationalism.`\
+https://www.nytimes.com/2026/08/29/opinion/silvia-orriols-catalonia-nationalism.html
+
 **Reckoning With the Rights and Wrongs of Wokeness**\
 `Readers react to a column by Bret Stephens calling for restitution for those hurt by the movement’s excesses.`\
 https://www.nytimes.com/2026/08/29/opinion/wokeism-restitution.html
