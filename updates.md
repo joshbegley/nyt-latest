@@ -1,3 +1,11 @@
+**Trump dice que EE. UU. llegó a un acuerdo para controlar gran parte del petróleo de Venezuela**\
+`El presidente de EE. UU. dijo que un acuerdo entre los países implicaba ‘una asociación con el sector privado’ y más de 65 millardos de barriles de reservas.`\
+https://www.nytimes.com/es/2026/08/28/espanol/negocios/venezuela-petroleo-trump-acuerdo.html
+
+**Nepal’s Hydropower Industry Was Booming. Now 900 Workers Are Missing.**\
+`Videos show rescuers pulling people out of hydropower tunnels, as hundreds of workers remain missing after a deadly flood.`\
+https://www.nytimes.com/2026/08/28/world/asia/nepals-hydropower-industry-was-booming-now-900-workers-are-missing.html
+
 **‘Lake America’? These Upstate New Yorkers Aren’t Letting Go of ‘Ontario.’**\
 `President Trump on Thursday signed an order rechristening Lake Ontario as Lake America, but businesses around Niagara Falls say they won’t be changing their tune.`\
 https://www.nytimes.com/2026/08/28/nyregion/lake-america-ontario-trump-canada.html
