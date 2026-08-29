@@ -1,3 +1,7 @@
+**Reckoning With the Rights and Wrongs of Wokeness**\
+`Readers react to a column by Bret Stephens calling for restitution for those hurt by the movement’s excesses.`\
+https://www.nytimes.com/2026/08/29/opinion/wokeism-restitution.html
+
 **My Estranged Husband Is a Hoarder. Can I Force Him to Get Help?**\
 `We think the house would most likely be condemned if county inspectors ever got inside.`\
 https://www.nytimes.com/2026/08/29/magazine/estranged-husband-hoarder-ethics.html
