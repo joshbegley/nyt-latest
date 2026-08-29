@@ -1,4 +1,8 @@
-**Rescuers in Nepal Bore Through Mud and Tunnels to Reach 900 Missing Workers**\
+**Thieves Smash Museum Case for Diamond Necklace Worth Millions in Vienna**\
+`The theft of the precious object, once owned by an Egyptian queen and later sold to satisfy her creditors, was the latest in a string of high-profile museum losses.`\
+https://www.nytimes.com/2026/08/29/world/europe/diamond-necklace-theft-vienna.html
+
+**Nepal Rescuers Bore Through Tunnels to Try to Reach 900 Workers Missing After Floods**\
 `Footage released by the Nepal Army showed teams pulling people out of the tunnels caked in mud. But each passing day dims hopes for those trapped inside.`\
 https://www.nytimes.com/2026/08/29/world/asia/nepal-flood-hydropower-tunnels-rescue-missing-workers.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/podcasts/100000011114202/ina-garten-on-martha-stew
 **“The Invisible Hand of Maria Edgeworth”: An Economist, Erased**\
 `Maria Edgeworth sneaked economic theory into her best-selling novels. Two centuries later, a new book finally gives her the credit she deserves.`\
 https://www.nytimes.com/2026/08/29/business/she-popularized-economics-then-she-was-erased-from-history-why.html
-
-**How a California Bill Sparked a MAGA-Sphere Uproar**\
-`A privacy measure for immigration aid workers became a free speech cause for backers of Nick Shirley, a right-wing YouTube star. Democrats say the furor is fueled by misinformation.`\
-https://www.nytimes.com/2026/08/29/us/stop-nick-shirley-immigration-shield-california.html
 

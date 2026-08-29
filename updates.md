@@ -1,3 +1,11 @@
+**Thieves Smash Museum Case for Diamond Necklace Worth Millions in Vienna**\
+`The theft of the precious object, once owned by an Egyptian queen and later sold to satisfy her creditors, was the latest in a string of high-profile museum losses.`\
+https://www.nytimes.com/2026/08/29/world/europe/diamond-necklace-theft-vienna.html
+
+**Nepal Rescuers Bore Through Tunnels to Try to Reach 900 Workers Missing After Floods**\
+`Footage released by the Nepal Army showed teams pulling people out of the tunnels caked in mud. But each passing day dims hopes for those trapped inside.`\
+https://www.nytimes.com/2026/08/29/world/asia/nepal-flood-hydropower-tunnels-rescue-missing-workers.html
+
 **Rescuers in Nepal Bore Through Mud and Tunnels to Reach 900 Missing Workers**\
 `Footage released by the Nepal Army showed teams pulling people out of the tunnels caked in mud. But each passing day dims hopes for those trapped inside.`\
 https://www.nytimes.com/2026/08/29/world/asia/nepal-flood-hydropower-tunnels-rescue-missing-workers.html
