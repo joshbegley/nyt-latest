@@ -1,3 +1,7 @@
+**Trump Is in Open Revolt Against the Constitution**\
+`The mail-in voting fiasco is the latest proof that we have another reconstruction ahead of us.`\
+https://www.nytimes.com/2026/08/29/opinion/trump-mail-in-voting-constitution.html
+
 **A Clever Vegetarian Take on a Beloved Hawaiian Snack**\
 `Tofu musubi are fun to make, easy to transport and a joy to eat.`\
 https://www.nytimes.com/2026/08/29/dining/a-clever-vegetarian-take-on-a-beloved-hawaiian-snack.html
