@@ -1,3 +1,11 @@
+**En fotos y video: la avalancha que causó la inundación en Nepal y el Tíbet**\
+`Videos exclusivos verificados por el Times muestran la vista más clara hasta ahora de la avalancha en el Himalaya que hizo que un muro de agua y lodo recorriera los valles fluviales situados más abajo.`\
+https://www.nytimes.com/es/2026/08/29/espanol/mundo/avalancha-nepal-tibet-fotos-video.html
+
+**El-Sayed Apologizes for March Comment About Michigan Synagogue Attack**\
+`Dr. Abdul El-Sayed, the Democratic Senate nominee in Michigan, faced criticism from Jewish Democrats after remarking, “hurt people hurt people.”`\
+https://www.nytimes.com/2026/08/29/us/politics/el-sayed-apology-jewish-democrats.html
+
 **An ICE Shooting, an Extradition Showdown and the Federal Case That Stalled**\
 `Federal prosecutors planned to charge an immigration agent arrested in connection with a shooting in Minneapolis. Then the agent walked free.`\
 https://www.nytimes.com/2026/08/29/us/christian-castro-ice-agent-minnesota-texas.html
