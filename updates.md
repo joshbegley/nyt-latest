@@ -1,3 +1,7 @@
+**Warsh, After Talking Tough on Inflation, Faces a ‘No-Win Situation’ on Rates**\
+`Kevin M. Warsh, the chairman of the Federal Reserve, must soon decide whether to raise interest rates if inflation does not ease, even if it draws President Trump’s ire.`\
+https://www.nytimes.com/2026/08/29/business/kevin-warsh-inflation-rates-fed.html
+
 **Nepal Rescuers Bore Through Tunnels to Try to Reach 900 Workers Missing After Floods**\
 `The Nepal Army, which is leading rescue efforts, turned to the trapped workers more than a day after the flood, according to army officials, industry groups and private rescuers.`\
 https://www.nytimes.com/2026/08/29/world/asia/nepal-flood-hydropower-tunnels-rescue-missing-workers.html
