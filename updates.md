@@ -1,3 +1,15 @@
+**Thievery or Innovation? The Music Industry Grapples With A.I.**\
+`Some labels have sued A.I. music generators like Suno. Others have partnered with them. At least one has done both.`\
+https://www.nytimes.com/2026/08/29/business/dealbook/ai-generated-music.html
+
+**27 Killed Near Kyiv as Russian Drone Blitz Exposes Air Defense Gap**\
+`The strike, on a warehouse near Ukraine’s capital, came after days of attacks that strained air defenses and struck fear in civilians.`\
+https://www.nytimes.com/2026/08/29/world/europe/russia-ukraine-strike-kyiv-drones.html
+
+**¿Ya cerraste tus ‘círculos sociales’ esta semana?**\
+`Es bueno para la salud ejercitar el músculo de la amistad.`\
+https://www.nytimes.com/es/2026/08/29/espanol/vida-social-amigos.html
+
 **This Himalayan Tragedy Won’t Be the Last**\
 `The burning of fossil fuels is pulling down the world’s highest peaks.`\
 https://www.nytimes.com/2026/08/29/opinion/nepal-flood-glacier-melt-climate-change.html
