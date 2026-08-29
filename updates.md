@@ -1,3 +1,7 @@
+**Trump Says U.S. Has Deal for Control of Large Share of Venezuela’s Oil**\
+`The president said an agreement between the countries covered more than 65 billion barrels of reserves. A U.S. official said it would involve a partnership with a private company.`\
+https://www.nytimes.com/2026/08/28/business/trump-venezuela-oil-deal.html
+
 **Neck Topper**\
 `You’ll have to use your noodle to outwit Rafael Musa and Kate Chin Park today.`\
 https://www.nytimes.com/2026/08/28/crosswords/daily-puzzle-2026-08-29.html
