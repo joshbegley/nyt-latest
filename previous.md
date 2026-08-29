@@ -1,3 +1,11 @@
+**A Clever Vegetarian Take on a Beloved Hawaiian Snack**\
+`Tofu musubi are fun to make, easy to transport and a joy to eat.`\
+https://www.nytimes.com/2026/08/29/dining/a-clever-vegetarian-take-on-a-beloved-hawaiian-snack.html
+
+**Teleprompter Operator Who Bet on Trump Speeches Is Ordered to Pay Fine**\
+`Gabriel Perez had access to the president’s speeches before they were delivered and was accused of placing unlawful wagers on words that would be spoken.`\
+https://www.nytimes.com/2026/08/29/us/politics/teleprompter-trump-speech-kalshi-perez-bet.html
+
 **One Democrat to Face Three Republicans for Alaska Governor**\
 `The second-place finisher in a primary where the top four advance to the November ballot said he would drop out of the race so voters could coalesce behind a single Democratic candidate.`\
 https://www.nytimes.com/2026/08/29/us/alaska-governor-candidates.html
@@ -150,7 +158,7 @@ https://www.nytimes.com/video/podcasts/100000011112188/ina-garten-says-you-can-e
 `Senator Jon Ossoff, the youngest sitting senator and the only Democrat seeking re-election this year in a state President Trump won in 2024, hasn’t moderated his message in his critical race.`\
 https://www.nytimes.com/2026/08/29/us/politics/georgia-senate-ossoff-collins-trump.html
 
-**How a Canceled Spy Satellite Became NASA’s New Window Into the Universe**\
+**How the Nancy Grace Roman Telescope, NASA’s New Window Into the Universe, Came to Be**\
 `The Nancy Grace Roman Space Telescope, scheduled to launch on Sunday, will study dark energy and discover a multitude of planets.`\
 https://www.nytimes.com/2026/08/29/science/nasa-roman-telescope-origins.html
 
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/08/29/movies/minneapolis-ice-crackdown-documentary.
 **How to Save Money as a Wedding Guest**\
 `Weddings can cost guests more than $1,000 a pop, but savvy attendees are finding clever hacks to save on lodging, travel, attire and more.`\
 https://www.nytimes.com/2026/08/29/style/wedding-guest-budget-cut-costs.html
-
-**The Best Suede Sneakers, at a Range of Prices**\
-`A perfect marriage of an elevated material with a sporty shape, any of these pairs could become your signature shoe.`\
-https://www.nytimes.com/2026/08/29/t-magazine/suede-sneakers-shoes.html
-
-**The Best Sea Pools for Saltwater Swimming**\
-`Carved into the rocks and replenished by the tides, these picturesque coastal wonders provide bracing saltwater and wide open views — no sharks allowed.`\
-https://www.nytimes.com/2026/08/29/t-magazine/sea-saltwater-swimming-pools-ocean-hotels.html
 

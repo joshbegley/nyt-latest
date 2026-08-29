@@ -1,3 +1,15 @@
+**A Clever Vegetarian Take on a Beloved Hawaiian Snack**\
+`Tofu musubi are fun to make, easy to transport and a joy to eat.`\
+https://www.nytimes.com/2026/08/29/dining/a-clever-vegetarian-take-on-a-beloved-hawaiian-snack.html
+
+**Teleprompter Operator Who Bet on Trump Speeches Is Ordered to Pay Fine**\
+`Gabriel Perez had access to the president’s speeches before they were delivered and was accused of placing unlawful wagers on words that would be spoken.`\
+https://www.nytimes.com/2026/08/29/us/politics/teleprompter-trump-speech-kalshi-perez-bet.html
+
+**How the Nancy Grace Roman Telescope, NASA’s New Window Into the Universe, Came to Be**\
+`The Nancy Grace Roman Space Telescope, scheduled to launch on Sunday, will study dark energy and discover a multitude of planets.`\
+https://www.nytimes.com/2026/08/29/science/nasa-roman-telescope-origins.html
+
 **Search Continues for 2,400 Missing in Nepal Floods Amid ‘Immense’ Devastation**\
 `As rescue efforts entered their fourth day, the scale of destruction came into focus, signaling a daunting recovery for the vulnerable nation.`\
 https://www.nytimes.com/2026/08/29/world/asia/nepal-flood-rescue.html
