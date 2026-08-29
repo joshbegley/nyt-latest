@@ -1,3 +1,7 @@
+****\
+`Residents walked through a mud-covered village in Trishuli, Nepal.`\
+https://www.nytimes.com/video/embedded/world/asia/100000011121156/29vid-Nepal-embed.html
+
 **Todos amábamos a Dolly Parton, pero no muchos la entendimos**\
 `Escribir su propia historia fue la manera más radical y precisa en la que la cantante e ícono cultural pudo definirse a sí misma.`\
 https://www.nytimes.com/es/2026/08/29/espanol/opinion/dolly-parton-vida-memorias.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/28/us/politics/trump-space-academy-artemis-astro
 **$42 Million Abu Ghraib Jury Verdict Is Overturned on Appeal**\
 `A Fourth Circuit panel ordered the case to be dismissed, citing a new Supreme Court ruling limiting the ability of foreign citizens to sue in U.S. court.`\
 https://www.nytimes.com/2026/08/28/us/politics/abu-ghraib-verdict-overturned.html
-
-**The Best Outfits Are a Little Undone**\
-`Plus: Kusama’s polka dots and a tip on where to find the best vintage tennis gear.`\
-https://www.nytimes.com/2026/08/28/style/alia-shawkat-celebrity-stylist-vintage.html
 

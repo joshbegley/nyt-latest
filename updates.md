@@ -1,3 +1,7 @@
+****\
+`Residents walked through a mud-covered village in Trishuli, Nepal.`\
+https://www.nytimes.com/video/embedded/world/asia/100000011121156/29vid-Nepal-embed.html
+
 **Todos amábamos a Dolly Parton, pero no muchos la entendimos**\
 `Escribir su propia historia fue la manera más radical y precisa en la que la cantante e ícono cultural pudo definirse a sí misma.`\
 https://www.nytimes.com/es/2026/08/29/espanol/opinion/dolly-parton-vida-memorias.html
