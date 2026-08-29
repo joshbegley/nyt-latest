@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/08/29/world/europe/diamond-necklace-theft-vienna.html
 
 **Nepal Rescuers Bore Through Tunnels to Try to Reach 900 Workers Missing After Floods**\
-`Footage released by the Nepal Army showed teams pulling people out of the tunnels caked in mud. But each passing day dims hopes for those trapped inside.`\
+`The Nepal Army, which is leading rescue efforts, turned to the trapped workers more than a day after the flood, according to army officials, industry groups and private rescuers.`\
 https://www.nytimes.com/2026/08/29/world/asia/nepal-flood-hydropower-tunnels-rescue-missing-workers.html
 
 **Milo Yiannopoulos, Right-Wing Agitator, Deported Home to U.K.**\
