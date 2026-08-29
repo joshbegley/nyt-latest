@@ -86,7 +86,7 @@ https://www.nytimes.com/2026/08/29/pageoneplus/corrections-aug-29-2026.html
 `The loss of power-generating capacity has raised questions about an ambitious expansion of renewable energy in one of the world’s most hazard-prone mountain regions.`\
 https://www.nytimes.com/2026/08/29/business/nepal-hydropower-flood.html
 
-**Dolly Parton inspired Their Wigs and Makeup, and Had Their Back, Too.**\
+**For LGBTQ Fans, Dolly Parton Inspired Their Wigs and Makeup, and Had Their Back Too**\
 `Dolly Parton was an advocate for her L.G.B.T.Q. fans. She also understood them, a meaningful bond in places where such recognition was hard to find.`\
 https://www.nytimes.com/2026/08/29/us/dolly-parton-drag-queens-lgbtq.html
 

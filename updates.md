@@ -1,3 +1,7 @@
+**For LGBTQ Fans, Dolly Parton Inspired Their Wigs and Makeup, and Had Their Back Too**\
+`Dolly Parton was an advocate for her L.G.B.T.Q. fans. She also understood them, a meaningful bond in places where such recognition was hard to find.`\
+https://www.nytimes.com/2026/08/29/us/dolly-parton-drag-queens-lgbtq.html
+
 **37 Killed After Russian Strike on Weapons Depot as Ukraine Blames Negligence**\
 `The depot, which was in a civilian area near Kyiv, “definitely shouldn’t have been there,” President Volodymyr Zelensky said.`\
 https://www.nytimes.com/2026/08/29/world/europe/russia-ukraine-strike-kyiv-drones.html
