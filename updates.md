@@ -1,3 +1,7 @@
+**Trump Says U.S. Has Deal for Control of Large Share of Venezuela’s Oil**\
+`The president said an agreement between the countries involved “a partnership with private business” and more than 65 billion barrels of reserves.`\
+https://www.nytimes.com/2026/08/28/business/trump-venezuela-oil-deal.html
+
 **Critics Blast Metropolitan Museum’s Plan to Honor John Galliano**\
 `Galliano, a fashion industry giant championed by Anna Wintour, was found guilty of a hate crime for his antisemitic outbursts in 2011.`\
 https://www.nytimes.com/2026/08/28/style/galliano-met-gala-critics.html
