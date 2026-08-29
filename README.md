@@ -194,7 +194,3 @@ https://www.nytimes.com/2026/08/29/t-magazine/suede-sneakers-shoes.html
 `Carved into the rocks and replenished by the tides, these picturesque coastal wonders provide bracing saltwater and wide open views — no sharks allowed.`\
 https://www.nytimes.com/2026/08/29/t-magazine/sea-saltwater-swimming-pools-ocean-hotels.html
 
-**Remembering Moritz de Hadeln at the Venice Film Festival**\
-`Moritz de Hadeln’s legacy is one of bringing film to the masses and celebrating the power of cinema.`\
-https://www.nytimes.com/2026/08/29/movies/venice-film-festival-moritz-de-hadeln.html
-
