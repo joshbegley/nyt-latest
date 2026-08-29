@@ -2,7 +2,7 @@
 `Mr. Yiannopoulos, an early supporter of President Trump and vocal supporter of mass deportations, was himself sent back to his home country, part of a long fall from right-wing grace.`\
 https://www.nytimes.com/2026/08/29/us/politics/milo-yiannopoulos-deported.html
 
-**Baby Goats From Traveling Petting Zoo Test Positive for Rabies**\
+**Baby Goats From a Traveling Petting Zoo Test Positive for Rabies**\
 `Farm Adventures of Harmony, N.C., owned the goats, state health officials said. It was unclear how many people might have been exposed to them since late July.`\
 https://www.nytimes.com/2026/08/29/us/rabies-goats-petting-zoo-north-carolina.html
 
