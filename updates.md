@@ -1,3 +1,7 @@
+**Trump’s Venezuelan Oil Deal Relies on a Powerful and Divisive Partner**\
+`The administration will work with a private Venezuelan oil company that has close ties to the country’s government.`\
+https://www.nytimes.com/2026/08/29/business/energy-environment/venezuela-alejandro-betancourt-oil-trump.html
+
 **Treasury Bars Some Reporters From G20 Finance Meeting**\
 `Specific reporters from The New York Times, The Wall Street Journal and Bloomberg were not granted credentials to cover the meeting of financial leaders next week in Asheville, N.C.`\
 https://www.nytimes.com/2026/08/29/business/reporters-denied-g20-meeting.html

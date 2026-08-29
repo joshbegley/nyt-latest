@@ -1,3 +1,7 @@
+**Trump’s Venezuelan Oil Deal Relies on a Powerful and Divisive Partner**\
+`The administration will work with a private Venezuelan oil company that has close ties to the country’s government.`\
+https://www.nytimes.com/2026/08/29/business/energy-environment/venezuela-alejandro-betancourt-oil-trump.html
+
 **Treasury Bars Some Reporters From G20 Finance Meeting**\
 `Specific reporters from The New York Times, The Wall Street Journal and Bloomberg were not granted credentials to cover the meeting of financial leaders next week in Asheville, N.C.`\
 https://www.nytimes.com/2026/08/29/business/reporters-denied-g20-meeting.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/29/us/dolly-parton-drag-queens-lgbtq.html
 **La guía turística que sobrevivió al 11-S**\
 `Christina Stanton ofrece un recorrido muy específico y sumamente personal por el sitio del World Trade Center para recordar a los visitantes lo que ocurrió hace 25 años.`\
 https://www.nytimes.com/es/2026/08/29/espanol/la-guia-turistica-que-sobrevivio-al-11-s.html
-
-**Turkey and Israel Vie for Middle East Influence as Tensions Spike**\
-`Israel’s strike on a Syrian base to pre-empt the feared deployment of Turkish forces was part of a growing competition in the Middle East and beyond.`\
-https://www.nytimes.com/2026/08/29/world/middleeast/turkey-israel-tensions-region.html
 
