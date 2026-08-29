@@ -1,3 +1,15 @@
+**Man Finds His Father’s Wedding Ring Decades After It Was Lost**\
+`Using a metal detector, Jeff Arnett honored a request from his father, who lost his band while washing his car more than 40 years ago.`\
+https://www.nytimes.com/2026/08/29/us/ohio-lost-found-wedding-ring.html
+
+**Written in the Stars**\
+`Daniel Grinberg’s latest puzzle lands grandly, in a big bang.`\
+https://www.nytimes.com/2026/08/29/crosswords/daily-puzzle-2026-08-30.html
+
+**India’s ‘Cockroaches’ Are Fighting Back**\
+`Inside India’s viral political movement.`\
+https://www.nytimes.com/2026/08/29/opinion/india-gen-z-cockroach-movement.html
+
 **Israeli Settlers Attack Palestinians, Drawing Sharp Rebukes**\
 `The ferocity of Saturday’s assault prompted condemnations from Benjamin Netanyahu and other officials.`\
 https://www.nytimes.com/2026/08/29/world/middleeast/israel-settlers-west-bank-attacks-netanyahu-rebuke.html

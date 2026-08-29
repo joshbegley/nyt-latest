@@ -1,3 +1,11 @@
+**Man Finds His Father’s Wedding Ring Decades After It Was Lost**\
+`Using a metal detector, Jeff Arnett honored a request from his father, who lost his band while washing his car more than 40 years ago.`\
+https://www.nytimes.com/2026/08/29/us/ohio-lost-found-wedding-ring.html
+
+**Written in the Stars**\
+`Daniel Grinberg’s latest puzzle lands grandly, in a big bang.`\
+https://www.nytimes.com/2026/08/29/crosswords/daily-puzzle-2026-08-30.html
+
 **Israeli Settlers Attack Palestinians, Drawing Sharp Rebukes**\
 `The ferocity of Saturday’s assault prompted condemnations from Benjamin Netanyahu and other officials.`\
 https://www.nytimes.com/2026/08/29/world/middleeast/israel-settlers-west-bank-attacks-netanyahu-rebuke.html
@@ -10,7 +18,7 @@ https://www.nytimes.com/2026/08/29/world/americas/venezuela-oil-us-takeover.html
 `With a career commemorated by Guinness World Records, he started as an apprentice in 1942 and worked on a panoply of propeller-driven and jet aircraft until he retired in 2022.`\
 https://www.nytimes.com/2026/08/29/us/azriel-al-blackman-dead.html
 
-**India’s Gen Z Cockroach Movement Was a Joke — Until It Wasn’t**\
+**India’s ‘Cockroaches’ Are Fighting Back**\
 `Inside India’s viral political movement.`\
 https://www.nytimes.com/2026/08/29/opinion/india-gen-z-cockroach-movement.html
 
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/08/29/world/canada/carney-trump-tariffs-trade.html
 **Tupac Shakur Murder Trial: Takeaways From Week 2**\
 `The jury heard recordings of Duane Keith Davis discussing the shooting; the defense said there was no physical evidence tying him to Las Vegas the night of the crime.`\
 https://www.nytimes.com/2026/08/29/arts/music/tupac-shakur-trial-murder-week-2.html
-
-**How Meta’s $17.1 Billion Social Media Settlement Came Together**\
-`State attorneys general spent months in negotiations. Then, as its legal losses mounted, the social media giant’s new top lawyer brought a huge settlement to the table.`\
-https://www.nytimes.com/2026/08/29/technology/meta-states-settlement.html
-
-**Olivia Rodrigo, Prince: Songs to Know This Week**\
-`Olivia Rodrigo name-checks “The Handmaid’s Tale,” another Prince song escapes the vault and Dawn Richard brings the club to church.`\
-https://www.nytimes.com/2026/08/29/arts/music/olivia-rodrigo-prince-new-songs.html
 
