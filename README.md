@@ -1,3 +1,7 @@
+**Trump Is in Open Revolt Against the Constitution**\
+`The mail-in voting fiasco is the latest proof that we have another reconstruction ahead of us.`\
+https://www.nytimes.com/2026/08/29/opinion/trump-mail-in-voting-constitution.html
+
 **A Clever Vegetarian Take on a Beloved Hawaiian Snack**\
 `Tofu musubi are fun to make, easy to transport and a joy to eat.`\
 https://www.nytimes.com/2026/08/29/dining/a-clever-vegetarian-take-on-a-beloved-hawaiian-snack.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/29/arts/television/love-island-usa-brinity-trini
 **Venice Film Festival: A Street-Level View of the Minneapolis ICE Crackdown**\
 `The filmmakers of “They’re Here” were on the ground during the Trump administration’s violent immigration crackdown.`\
 https://www.nytimes.com/2026/08/29/movies/minneapolis-ice-crackdown-documentary.html
-
-**How to Save Money as a Wedding Guest**\
-`Weddings can cost guests more than $1,000 a pop, but savvy attendees are finding clever hacks to save on lodging, travel, attire and more.`\
-https://www.nytimes.com/2026/08/29/style/wedding-guest-budget-cut-costs.html
 
