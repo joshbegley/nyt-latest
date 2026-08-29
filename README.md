@@ -1,3 +1,7 @@
+**Walmart to Pay $50 Million to Settle Opioid Lawsuit, US Says**\
+`The resolution is part of an effort to hold retailers and pharmacists accountable for what the government says were their roles in the opioid epidemic.`\
+https://www.nytimes.com/2026/08/28/us/walmart-opioid-lawsuit-settlement.html
+
 **Trump dice que EE. UU. llegó a un acuerdo para controlar gran parte del petróleo de Venezuela**\
 `El presidente de EE. UU. dijo que un acuerdo entre los países implicaba ‘una asociación con el sector privado’ y más de 65 millardos de barriles de reservas.`\
 https://www.nytimes.com/es/2026/08/28/espanol/negocios/venezuela-petroleo-trump-acuerdo.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/28/us/longview-chemical-tank-warnings.html
 **Haakon VIII Is Norway’s New King After Father’s Death**\
 `King Haakon VIII ascended to the throne after his father, King Harald V, died on Friday. The late monarch remained popular despite several scandals involving other members of the royal family.`\
 https://www.nytimes.com/video/world/europe/100000011119054/norway-king-haakon-harald-father-death.html
-
-**Judge Again Denies Trump’s Request to Move Hush-Money Case to Federal Court**\
-`The ruling, from Judge Alvin K. Hellerstein, blocks President Trump’s quickest path to overturning his 2024 conviction for covering up hush-money payments to a porn star.`\
-https://www.nytimes.com/2026/08/28/nyregion/trump-hush-money-case.html
 
