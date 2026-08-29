@@ -1,3 +1,7 @@
+**Warsh, After Talking Tough on Inflation, Faces a ‘No-Win Situation’ on Rates**\
+`Kevin M. Warsh, the chairman of the Federal Reserve, must soon decide whether to raise interest rates if inflation does not ease, even if it draws President Trump’s ire.`\
+https://www.nytimes.com/2026/08/29/business/kevin-warsh-inflation-rates-fed.html
+
 **Thieves Smash Museum Case for Diamond Necklace Worth Millions in Vienna**\
 `The theft of the precious object, once owned by an Egyptian queen and later sold to satisfy her creditors, was the latest in a string of high-profile museum losses.`\
 https://www.nytimes.com/2026/08/29/world/europe/diamond-necklace-theft-vienna.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/29/us/politics/trump-economy-inflation.html
 **Ina Garten on Martha Stewart: ‘There’s No Antipathy’**\
 `Ina vs. Martha? You don’t have to choose. “We’ve each taken what’s in the world and made it our own,” Ina Garten told “The Interview.”`\
 https://www.nytimes.com/video/podcasts/100000011114202/ina-garten-on-martha-stewart-theres-no-antipathy.html
-
-**“The Invisible Hand of Maria Edgeworth”: An Economist, Erased**\
-`Maria Edgeworth sneaked economic theory into her best-selling novels. Two centuries later, a new book finally gives her the credit she deserves.`\
-https://www.nytimes.com/2026/08/29/business/she-popularized-economics-then-she-was-erased-from-history-why.html
 
