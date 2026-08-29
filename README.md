@@ -66,7 +66,7 @@ https://www.nytimes.com/2026/08/29/briefing/fast-forward.html
 `At 78, the cookbook author and Food Network host knows what she likes, knows what she wants and isn’t stopping anytime soon.`\
 https://www.nytimes.com/2026/08/29/magazine/ina-garten-interview.html
 
-**‘Immense’ Devastation as Nepal Continues Search for 2,400 Missing in Floods**\
+**Search Continues for 2,400 Missing in Nepal Floods Amid ‘Immense’ Devastation**\
 `As rescue efforts entered their fourth day, the scale of destruction came into focus, signaling a daunting recovery for the vulnerable nation.`\
 https://www.nytimes.com/2026/08/29/world/asia/nepal-flood-rescue.html
 
