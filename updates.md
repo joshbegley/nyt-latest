@@ -1,3 +1,15 @@
+**‘Por favor, ama a mi hijo como lo amo yo’**\
+`Las sorprendentes maneras de cómo trato de llevar la relación con la nueva esposa de mi exmarido.`\
+https://www.nytimes.com/es/2026/08/29/espanol/estilos-de-vida/modern-love-madrastra-amor-hijo.html
+
+**Putin redobla la presión sobre Ucrania mientras la economía rusa se resiente**\
+`Hay pocos indicios de que el agotamiento público, las adversidades económicas o el aumento de los ataques ucranianos estén cambiando la perspectiva del líder ruso de que al final logrará la victoria.`\
+https://www.nytimes.com/es/2026/08/29/espanol/mundo/putin-presion-ucrania-economia-rusa.html
+
+**En Islandia, los homicidios abundan (pero solo en la ficción)**\
+`La nación nórdica prácticamente no tiene homicidios, y sin embargo la novela negra es su género literario favorito. Eso significa que los escritores enfrentan un reto: lograr que el asesinato resulte creíble.`\
+https://www.nytimes.com/es/2026/08/29/espanol/cultura/islandia-libros-novelas-crimen.html
+
 **How a Young Artist Went Wild for a U.S. Open Preview**\
 `Zazie Weldgen poured a lot of ecological research into a tennis illustration in the newspaper this weekend.`\
 https://www.nytimes.com/2026/08/29/insider/us-open-tennis-illustration.html

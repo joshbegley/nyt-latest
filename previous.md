@@ -1,3 +1,15 @@
+**‘Por favor, ama a mi hijo como lo amo yo’**\
+`Las sorprendentes maneras de cómo trato de llevar la relación con la nueva esposa de mi exmarido.`\
+https://www.nytimes.com/es/2026/08/29/espanol/estilos-de-vida/modern-love-madrastra-amor-hijo.html
+
+**Putin redobla la presión sobre Ucrania mientras la economía rusa se resiente**\
+`Hay pocos indicios de que el agotamiento público, las adversidades económicas o el aumento de los ataques ucranianos estén cambiando la perspectiva del líder ruso de que al final logrará la victoria.`\
+https://www.nytimes.com/es/2026/08/29/espanol/mundo/putin-presion-ucrania-economia-rusa.html
+
+**En Islandia, los homicidios abundan (pero solo en la ficción)**\
+`La nación nórdica prácticamente no tiene homicidios, y sin embargo la novela negra es su género literario favorito. Eso significa que los escritores enfrentan un reto: lograr que el asesinato resulte creíble.`\
+https://www.nytimes.com/es/2026/08/29/espanol/cultura/islandia-libros-novelas-crimen.html
+
 **How a Young Artist Went Wild for a U.S. Open Preview**\
 `Zazie Weldgen poured a lot of ecological research into a tennis illustration in the newspaper this weekend.`\
 https://www.nytimes.com/2026/08/29/insider/us-open-tennis-illustration.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/08/28/us/politics/trump-supreme-court-transgender-t
 **The Local: Michael Che on First Avenue**\
 `And, of course, pickles at the State Fair.`\
 https://www.nytimes.com/2026/08/28/us/michael-che-first-ave.html
-
-**Autopsy Shows Man Killed by National Guard in Memphis Was Shot in Back**\
-`The death of the man after a confrontation with National Guard troops is under investigation. An autopsy by a medical examiner shows that he was shot in the back and declared it a homicide.`\
-https://www.nytimes.com/2026/08/28/us/tyrin-johnson-national-guard-shooting-autopsy-memphis.html
-
-**La guerra de EE. UU. en Irán a 6 meses**\
-`El liderazgo iraní ve su propia supervivencia como la de la nación, y considera los sacrificios de los iraníes como un acto necesario de patriotismo.`\
-https://www.nytimes.com/es/2026/08/28/espanol/mundo/guerra-trump-iran.html
-
-**Chevron Is in Talks to Expand in Venezuela, a Potential Win for Trump**\
-`President Trump’s administration has been pushing U.S. companies like Chevron to invest more in Venezuela’s oil industry.`\
-https://www.nytimes.com/2026/08/28/business/energy-environment/chevron-venezuela-oil-deal.html
 
