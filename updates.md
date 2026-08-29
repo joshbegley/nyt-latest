@@ -1,3 +1,7 @@
+**Walmart to Pay $50 Million to Settle Opioid Lawsuit, US Says**\
+`The resolution is part of an effort to hold retailers and pharmacists accountable for what the government says were their roles in the opioid epidemic.`\
+https://www.nytimes.com/2026/08/28/us/walmart-opioid-lawsuit-settlement.html
+
 **Trump dice que EE. UU. llegó a un acuerdo para controlar gran parte del petróleo de Venezuela**\
 `El presidente de EE. UU. dijo que un acuerdo entre los países implicaba ‘una asociación con el sector privado’ y más de 65 millardos de barriles de reservas.`\
 https://www.nytimes.com/es/2026/08/28/espanol/negocios/venezuela-petroleo-trump-acuerdo.html
