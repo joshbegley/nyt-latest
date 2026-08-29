@@ -1,3 +1,7 @@
+**Mountains Are Coming Undone**\
+`The burning of fossil fuels is pulling down the world’s highest peaks.`\
+https://www.nytimes.com/2026/08/29/opinion/nepal-flood-glacier-melt-climate-change.html
+
 **Thievery or Innovation? The Music Industry Grapples With A.I.**\
 `Some labels have sued A.I. music generators like Suno. Others have partnered with them. At least one has done both.`\
 https://www.nytimes.com/2026/08/29/business/dealbook/ai-generated-music.html
