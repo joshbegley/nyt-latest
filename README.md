@@ -1,3 +1,11 @@
+**An ICE Shooting, an Extradition Showdown and the Federal Case That Stalled**\
+`Federal prosecutors planned to charge an immigration agent with serious felonies in connection with a shooting in Minneapolis. Then the agent walked free.`\
+https://www.nytimes.com/2026/08/29/us/christian-castro-ice-agent-minnesota-texas.html
+
+**Relative of Afghans Who Helped U.S. Military Is Deported to Africa**\
+`The Trump administration has deported thousands of immigrants to countries where they have no ties. Dozens were on the latest flight, to the Central African Republic.`\
+https://www.nytimes.com/2026/08/29/us/afghans-deported-us-central-african-republic.html
+
 **Trump Is in Open Revolt Against the Constitution**\
 `The mail-in voting fiasco is the latest proof that we have another reconstruction ahead of us.`\
 https://www.nytimes.com/2026/08/29/opinion/trump-mail-in-voting-constitution.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/video/us/politics/100000011096058/candidates-are-quietly
 **In This Part of the Venice Film Festival, Students Pick the Winners**\
 `The Venice Classics section offers students a chance to award a top price to remastered classics and documentaries about cinema.`\
 https://www.nytimes.com/2026/08/29/movies/venice-film-festival-student-jury.html
-
-**‘Brinity’ Won ‘Love Island USA.’ These Are Their Favorite Things.**\
-`Trinity Tatum and Bryce Alakai captured viewers’ hearts this summer. We spoke with them about what they’re loving and looking forward to.`\
-https://www.nytimes.com/2026/08/29/arts/television/love-island-usa-brinity-trinity-tatum-bryce-alakai.html
-
-**Venice Film Festival: A Street-Level View of the Minneapolis ICE Crackdown**\
-`The filmmakers of “They’re Here” were on the ground during the Trump administration’s violent immigration crackdown.`\
-https://www.nytimes.com/2026/08/29/movies/minneapolis-ice-crackdown-documentary.html
 
