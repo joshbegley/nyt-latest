@@ -1,3 +1,7 @@
+**Critics Blast Metropolitan Museum’s Plan to Honor John Galliano**\
+`Galliano, a fashion industry giant championed by Anna Wintour, was found guilty of a hate crime for his antisemitic outbursts in 2011.`\
+https://www.nytimes.com/2026/08/28/style/galliano-met-gala-critics.html
+
 **Police Make Surprise Discovery of Stolen Statue of Olympic Gymnast Sunisa Lee**\
 `The St. Paul, Minn., police were investigating a report of gunfire when they found a bronze bust of Sunisa Lee, the gold medal Olympian, that was stolen last year.`\
 https://www.nytimes.com/2026/08/28/us/suni-lee-minnesota-statue-recovered.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/28/obituaries/benjamin-alire-saenz-dead.html
 **Narwhals Have Stunning Spiraled Tusks. That’s Not the Only Twist.**\
 `X-rays revealed that the tusks have an internal opposing twist, which may help explain how they grow so straight — the only tusks like them in nature.`\
 https://www.nytimes.com/2026/08/28/science/narwhals-tusk-spiral-twist.html
-
-**You Can Have My Walkman, Just Don’t Take My Mix Tape**\
-`These objects contain meaning.`\
-https://www.nytimes.com/interactive/2026/08/28/style/mix-tape-analog-music.html
 

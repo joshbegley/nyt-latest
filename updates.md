@@ -1,3 +1,7 @@
+**Critics Blast Metropolitan Museum’s Plan to Honor John Galliano**\
+`Galliano, a fashion industry giant championed by Anna Wintour, was found guilty of a hate crime for his antisemitic outbursts in 2011.`\
+https://www.nytimes.com/2026/08/28/style/galliano-met-gala-critics.html
+
 **Police Make Surprise Discovery of Stolen Statue of Olympic Gymnast Sunisa Lee**\
 `The St. Paul, Minn., police were investigating a report of gunfire when they found a bronze bust of Sunisa Lee, the gold medal Olympian, that was stolen last year.`\
 https://www.nytimes.com/2026/08/28/us/suni-lee-minnesota-statue-recovered.html
