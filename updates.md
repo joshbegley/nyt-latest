@@ -1,3 +1,7 @@
+**Search Continues for 2,400 Missing in Nepal Floods Amid ‘Immense’ Devastation**\
+`As rescue efforts entered their fourth day, the scale of destruction came into focus, signaling a daunting recovery for the vulnerable nation.`\
+https://www.nytimes.com/2026/08/29/world/asia/nepal-flood-rescue.html
+
 **For LGBTQ Fans, Dolly Parton Inspired Their Wigs and Makeup, and Had Their Back Too**\
 `Dolly Parton was an advocate for her L.G.B.T.Q. fans. She also understood them, a meaningful bond in places where such recognition was hard to find.`\
 https://www.nytimes.com/2026/08/29/us/dolly-parton-drag-queens-lgbtq.html
