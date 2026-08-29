@@ -1,3 +1,11 @@
+**How a Young Artist Went Wild for a U.S. Open Preview**\
+`Zazie Weldgen poured a lot of ecological research into a tennis illustration in the newspaper this weekend.`\
+https://www.nytimes.com/2026/08/29/insider/us-open-tennis-illustration.html
+
+**NYT Spelling Bee Answers for August 29, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/08/29/crosswords/spelling-bee-forum.html
+
 ****\
 `Residents walked through a mud-covered village in Trishuli, Nepal.`\
 https://www.nytimes.com/video/embedded/world/asia/100000011121156/29vid-Nepal-embed.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/es/2026/08/28/espanol/mundo/guerra-trump-iran.html
 **Chevron Is in Talks to Expand in Venezuela, a Potential Win for Trump**\
 `President Trump’s administration has been pushing U.S. companies like Chevron to invest more in Venezuela’s oil industry.`\
 https://www.nytimes.com/2026/08/28/business/energy-environment/chevron-venezuela-oil-deal.html
-
-**Trump Creates a Space Academy and Honors the Artemis Astronauts**\
-`President Trump presented the Congressional Space Medal of Honor to the Artemis II crew, which took a journey around the moon.`\
-https://www.nytimes.com/2026/08/28/us/politics/trump-space-academy-artemis-astronauts.html
-
-**$42 Million Abu Ghraib Jury Verdict Is Overturned on Appeal**\
-`A Fourth Circuit panel ordered the case to be dismissed, citing a new Supreme Court ruling limiting the ability of foreign citizens to sue in U.S. court.`\
-https://www.nytimes.com/2026/08/28/us/politics/abu-ghraib-verdict-overturned.html
 

@@ -1,3 +1,11 @@
+**How a Young Artist Went Wild for a U.S. Open Preview**\
+`Zazie Weldgen poured a lot of ecological research into a tennis illustration in the newspaper this weekend.`\
+https://www.nytimes.com/2026/08/29/insider/us-open-tennis-illustration.html
+
+**NYT Spelling Bee Answers for August 29, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/08/29/crosswords/spelling-bee-forum.html
+
 ****\
 `Residents walked through a mud-covered village in Trishuli, Nepal.`\
 https://www.nytimes.com/video/embedded/world/asia/100000011121156/29vid-Nepal-embed.html
