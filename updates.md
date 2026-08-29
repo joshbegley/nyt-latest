@@ -1,3 +1,7 @@
+**One Democrat to Face Three Republicans for Alaska Governor**\
+`The second-place finisher in a primary where the top four advance to the November ballot said he would drop out of the race so voters could coalesce behind a single Democratic candidate.`\
+https://www.nytimes.com/2026/08/29/us/alaska-governor-candidates.html
+
 **Mountains Are Coming Undone**\
 `The burning of fossil fuels is pulling down the world’s highest peaks.`\
 https://www.nytimes.com/2026/08/29/opinion/nepal-flood-glacier-melt-climate-change.html

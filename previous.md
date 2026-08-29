@@ -1,3 +1,7 @@
+**One Democrat to Face Three Republicans for Alaska Governor**\
+`The second-place finisher in a primary where the top four advance to the November ballot said he would drop out of the race so voters could coalesce behind a single Democratic candidate.`\
+https://www.nytimes.com/2026/08/29/us/alaska-governor-candidates.html
+
 **Thievery or Innovation? The Music Industry Grapples With A.I.**\
 `Some labels have sued A.I. music generators like Suno. Others have partnered with them. At least one has done both.`\
 https://www.nytimes.com/2026/08/29/business/dealbook/ai-generated-music.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/29/t-magazine/sea-saltwater-swimming-pools-ocean
 **Remembering Moritz de Hadeln at the Venice Film Festival**\
 `Moritz de Hadeln’s legacy is one of bringing film to the masses and celebrating the power of cinema.`\
 https://www.nytimes.com/2026/08/29/movies/venice-film-festival-moritz-de-hadeln.html
-
-**With Shoppers Wary of Illness, Farmers Destroy Millions of Heads of Lettuce**\
-`After a drop in demand driven by a nationwide outbreak of cyclosporiasis, California growers are plowing lettuce back into the soil and laying off workers.`\
-https://www.nytimes.com/2026/08/29/us/salinas-california-taylor-farms-lettuce-cyclospora.html
 
