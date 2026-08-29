@@ -1,3 +1,19 @@
+**‘A New Form of U.S. Colonialism’: Venezuelans Bristle at U.S. Oil Takeover**\
+`A deal giving the U.S. majority control of vast Venezuelan reserves strikes at the heart of national identity.`\
+https://www.nytimes.com/2026/08/29/world/americas/venezuela-oil-us-takeover.html
+
+**Azriel Blackman, Airline Mechanic for 80 Years, Dies at 100**\
+`With a career commemorated by Guinness World Records, he started as an apprentice in 1942 and worked on a panoply of propeller-driven and jet aircraft until he retired in 2022.`\
+https://www.nytimes.com/2026/08/29/us/azriel-al-blackman-dead.html
+
+**India’s Gen Z Cockroach Movement Was a Joke — Until It Wasn’t**\
+`Inside India’s viral political movement.`\
+https://www.nytimes.com/2026/08/29/opinion/india-gen-z-cockroach-movement.html
+
+**India’s Gen Z Cockroach Movement Was a Joke — Until It Wasn’t**\
+`Inside India’s viral political movement.`\
+https://www.nytimes.com/video/opinion/100000011101919/indias-gen-z-cockroach-movement-was-a-joke-until-it-wasnt.html
+
 **Warsh, After Talking Tough on Inflation, Faces a ‘No-Win Situation’ on Rates**\
 `Kevin M. Warsh, the chairman of the Federal Reserve, must soon decide whether to raise interest rates if inflation does not ease, even if it draws President Trump’s ire.`\
 https://www.nytimes.com/2026/08/29/business/kevin-warsh-inflation-rates-fed.html

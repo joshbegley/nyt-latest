@@ -1,19 +1,3 @@
-**‘A New Form of U.S. Colonialism’: Venezuelans Bristle at U.S. Oil Takeover**\
-`A deal giving the U.S. majority control of vast Venezuelan reserves strikes at the heart of national identity.`\
-https://www.nytimes.com/2026/08/29/world/americas/venezuela-oil-us-takeover.html
-
-**Azriel Blackman, Airline Mechanic for 80 Years, Dies at 100**\
-`With a career commemorated by Guinness World Records, he started as an apprentice in 1942 and worked on a panoply of propeller-driven and jet aircraft until he retired in 2022.`\
-https://www.nytimes.com/2026/08/29/us/azriel-al-blackman-dead.html
-
-**India’s Gen Z Cockroach Movement Was a Joke — Until It Wasn’t**\
-`Inside India’s viral political movement.`\
-https://www.nytimes.com/2026/08/29/opinion/india-gen-z-cockroach-movement.html
-
-**India’s Gen Z Cockroach Movement Was a Joke — Until It Wasn’t**\
-`Inside India’s viral political movement.`\
-https://www.nytimes.com/video/opinion/100000011101919/indias-gen-z-cockroach-movement-was-a-joke-until-it-wasnt.html
-
 **Warsh, After Talking Tough on Inflation, Faces a ‘No-Win Situation’ on Rates**\
 `Kevin M. Warsh, the chairman of the Federal Reserve, must soon decide whether to raise interest rates if inflation does not ease, even if it draws President Trump’s ire.`\
 https://www.nytimes.com/2026/08/29/business/kevin-warsh-inflation-rates-fed.html
@@ -193,4 +177,20 @@ https://www.nytimes.com/2026/08/29/arts/music/olivia-rodrigo-prince-new-songs.ht
 **What Ina Garten Thinks of the Tradwife Trend**\
 `When it comes to how women want to live, Ina Garten says, “Do exactly what feels right to you.”`\
 https://www.nytimes.com/video/podcasts/100000011114260/what-ina-garten-thinks-of-the-tradwife-trend.html
+
+**Why Ina Garten Has No Time for Negative People**\
+`The hospitality powerhouse has lessons for us all, including when to listen to your inner voice and when to shut it down.`\
+https://www.nytimes.com/video/podcasts/100000011114252/why-ina-garten-has-no-time-for-negative-people.html
+
+**How Ina Garten Broke Free of Her Past**\
+`On “The Interview,” the cookbook author and host reflects on her difficult childhood, and how it shaped her life’s work.`\
+https://www.nytimes.com/video/podcasts/100000011114245/how-ina-garten-broke-free-of-her-past.html
+
+**High Debt and Rising Prices Catch Up to Trump, as Midterms Near**\
+`To win in 2024, the president promised an economic course correction. Almost two years later, his agenda has made that fight even harder.`\
+https://www.nytimes.com/2026/08/29/us/politics/trump-economy-inflation.html
+
+**Ina Garten on Martha Stewart: ‘There’s No Antipathy’**\
+`Ina vs. Martha? You don’t have to choose. “We’ve each taken what’s in the world and made it our own,” Ina Garten told “The Interview.”`\
+https://www.nytimes.com/video/podcasts/100000011114202/ina-garten-on-martha-stewart-theres-no-antipathy.html
 
