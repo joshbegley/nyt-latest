@@ -122,13 +122,13 @@ https://www.nytimes.com/video/podcasts/100000011114260/what-ina-garten-thinks-of
 `The hospitality powerhouse has lessons for us all, including when to listen to your inner voice and when to shut it down.`\
 https://www.nytimes.com/video/podcasts/100000011114252/why-ina-garten-has-no-time-for-negative-people.html
 
-**High Debt and Rising Prices Catch Up to Trump, as Midterms Near**\
-`To win in 2024, the president promised an economic course correction. Almost two years later, his agenda has made that fight even harder.`\
-https://www.nytimes.com/2026/08/29/us/politics/trump-economy-inflation.html
-
 **How Ina Garten Broke Free of Her Past**\
 `On “The Interview,” the cookbook author and host reflects on her difficult childhood, and how it shaped her life’s work.`\
 https://www.nytimes.com/video/podcasts/100000011114245/how-ina-garten-broke-free-of-her-past.html
+
+**High Debt and Rising Prices Catch Up to Trump, as Midterms Near**\
+`To win in 2024, the president promised an economic course correction. Almost two years later, his agenda has made that fight even harder.`\
+https://www.nytimes.com/2026/08/29/us/politics/trump-economy-inflation.html
 
 **Ina Garten on Martha Stewart: ‘There’s No Antipathy’**\
 `Ina vs. Martha? You don’t have to choose. “We’ve each taken what’s in the world and made it our own,” Ina Garten told “The Interview.”`\
