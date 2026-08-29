@@ -1,3 +1,15 @@
+**Thievery or Innovation? The Music Industry Grapples With A.I.**\
+`Some labels have sued A.I. music generators like Suno. Others have partnered with them. At least one has done both.`\
+https://www.nytimes.com/2026/08/29/business/dealbook/ai-generated-music.html
+
+**27 Killed Near Kyiv as Russian Drone Blitz Exposes Air Defense Gap**\
+`The strike, on a warehouse near Ukraine’s capital, came after days of attacks that strained air defenses and struck fear in civilians.`\
+https://www.nytimes.com/2026/08/29/world/europe/russia-ukraine-strike-kyiv-drones.html
+
+**¿Ya cerraste tus ‘círculos sociales’ esta semana?**\
+`Es bueno para la salud ejercitar el músculo de la amistad.`\
+https://www.nytimes.com/es/2026/08/29/espanol/vida-social-amigos.html
+
 **This Himalayan Tragedy Won’t Be the Last**\
 `The burning of fossil fuels is pulling down the world’s highest peaks.`\
 https://www.nytimes.com/2026/08/29/opinion/nepal-flood-glacier-melt-climate-change.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/08/29/movies/venice-film-festival-moritz-de-hadeln.
 **With Shoppers Wary of Illness, Farmers Destroy Millions of Heads of Lettuce**\
 `After a drop in demand driven by a nationwide outbreak of cyclosporiasis, California growers are plowing lettuce back into the soil and laying off workers.`\
 https://www.nytimes.com/2026/08/29/us/salinas-california-taylor-farms-lettuce-cyclospora.html
-
-**How Cape Cod Became a Destination for Shark Tourism**\
-`As great white sharks have moved into Massachusetts waters, the Cape has changed to make room for them.`\
-https://www.nytimes.com/2026/08/29/realestate/cape-cod-shark-tourism.html
-
-**Book Review: ‘Agrippa,’ by Robert Harris**\
-`Robert Harris’s new novel, “Agrippa,” follows a statesman who witnesses the transformation of a republic into an empire.`\
-https://www.nytimes.com/2026/08/29/books/review/robert-harris-agrippa.html
-
-**What Saoirse Ronan Learned in the Director’s Chair**\
-`The actress, 32, will make her directorial debut with the Irish short film “Paper Plane” at the Venice Film Festival.`\
-https://www.nytimes.com/2026/08/29/movies/saoirse-ronan-paper-plane-venice.html
 
