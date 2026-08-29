@@ -1,3 +1,11 @@
+**El telescopio Roman promete una nueva era de exploración cósmica**\
+`El próximo lanzamiento de la NASA ofrece la posibilidad de trazar un panorama del universo tan amplio y profundo que se necesitarían más de medio millón de televisores para mostrar una sola imagen.`\
+https://www.nytimes.com/es/2026/08/29/espanol/ciencia-y-tecnologia/nasa-telescopio-exploracion-espacial.html
+
+**Una relación sin conflictos está condenada a fracasar, dice una experta en resolverlos**\
+`Priya Parker, facilitadora en resolución de conflictos, dice que organizaciones, familias y grupos de amigos, a menudo se desmoronan porque tienen miedo de pelear.`\
+https://www.nytimes.com/es/2026/08/29/espanol/cultura/entrevista-priya-parker-relaciones-conflicto.html
+
 **Icelanders Are Voting on E.U. Membership Talks. Here’s What to Know.**\
 `The Nordic nation is holding a referendum on Saturday on whether to start membership talks with the European Union. Voters are divided.`\
 https://www.nytimes.com/2026/08/29/world/europe/iceland-eu-referendum-what-to-know.html
