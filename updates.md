@@ -1,3 +1,19 @@
+**Icelanders Are Voting on E.U. Membership Talks. Here’s What to Know.**\
+`The Nordic nation is holding a referendum on Saturday on whether to start membership talks with the European Union. Voters are divided.`\
+https://www.nytimes.com/2026/08/29/world/europe/iceland-eu-referendum-what-to-know.html
+
+**Quote of the Day: In House Race, 2 With Jets Ties Give Fans Certain Win at Last**\
+`Quotation of the Day for Saturday, August 29, 2026.`\
+https://www.nytimes.com/2026/08/29/pageoneplus/quote-of-the-day-in-house-race-2-with-jets-ties-give-fans-certain-win-at-last.html
+
+**Modi Is Hedging Against Trump, One Deal at a Time**\
+`In a year of globe-trotting, the Indian prime minister has secured deals around the world as the United States becomes less dependable.`\
+https://www.nytimes.com/2026/08/29/world/asia/modi-india-deals-trump.html
+
+**Why Iceland and Others Might Want In, Not Out, of the E.U. Club**\
+`A few years ago, some feared the European Union was going out of style. Now Iceland is mulling membership alongside a long list of candidates.`\
+https://www.nytimes.com/2026/08/29/world/europe/iceland-eu-membership-europe.html
+
 **Trump Says U.S. Has Deal for Control of Large Share of Venezuela’s Oil**\
 `The president said an agreement between the countries covered more than 65 billion barrels of reserves. A U.S. official said it would involve a partnership with a private company.`\
 https://www.nytimes.com/2026/08/28/business/trump-venezuela-oil-deal.html
