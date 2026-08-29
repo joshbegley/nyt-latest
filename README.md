@@ -1,3 +1,7 @@
+**Nepal’s Hydropower Industry Was Booming. Now 900 Workers Are Missing.**\
+`Videos show rescuers pulling people out of hydropower tunnels, as hundreds of workers remain missing after a deadly flood.`\
+https://www.nytimes.com/2026/08/28/world/asia/nepals-hydropower-industry-was-booming-now-900-workers-are-missing.html
+
 **Trump Says U.S. Has Deal for Control of Large Share of Venezuela’s Oil**\
 `The president said an agreement between the countries involved “a partnership with private business” and more than 65 billion barrels of reserves.`\
 https://www.nytimes.com/2026/08/28/business/trump-venezuela-oil-deal.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/28/nyregion/trump-hush-money-case.html
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/business/100000011119925/Biz-Novo-Comeback-Video.html
-
-**Benjamin Alire Sáenz, First Latino Writer to Win PEN/Faulkner, Dies at 71**\
-`A former Catholic priest, he later became an acclaimed author, writing more than two dozen works about life in the U.S.-Mexican borderlands.`\
-https://www.nytimes.com/2026/08/28/obituaries/benjamin-alire-saenz-dead.html
 
