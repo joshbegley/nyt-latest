@@ -1,3 +1,7 @@
+**Truck With 40,000 Pounds of Pabst Blue Ribbon Is Stolen**\
+`The company responded to the theft by setting a deadline for the return of the product. “P.S., this is real and we are deadly serious,” it said on social media.`\
+https://www.nytimes.com/2026/08/29/business/pabst-beer-truck-stolen-california.html
+
 **En fotos y video: la avalancha que causó la inundación en Nepal y el Tíbet**\
 `Videos exclusivos verificados por el Times muestran la vista más clara hasta ahora de la avalancha en el Himalaya que hizo que un muro de agua y lodo recorriera los valles fluviales situados más abajo.`\
 https://www.nytimes.com/es/2026/08/29/espanol/mundo/avalancha-nepal-tibet-fotos-video.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/29/science/everest-base-camp-urine.html
 **When Older Adults Choose Life Among the Young**\
 `Several options, including on college campuses, offer communities focused on interactions with people belonging to different age groups.`\
 https://www.nytimes.com/2026/08/29/realestate/intergenerational-living-communities.html
-
-**How Trump’s Deportation Agenda Spreads Overseas**\
-`Our White House correspondent Zolan Kanno-Youngs explains how so-called third-country deportations are sending immigrants to countries across the globe.`\
-https://www.nytimes.com/video/us/politics/100000011104736/how-trumps-deportation-agenda-spreads-overseas.html
 
