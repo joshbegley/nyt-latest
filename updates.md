@@ -1,3 +1,7 @@
+**Israeli Settlers Attack Palestinians, Drawing Sharp Rebukes**\
+`The intensity of Saturday’s assault prompted condemnations from Prime Minister Benjamin Netanyahu of Israel and other officials.`\
+https://www.nytimes.com/2026/08/29/world/middleeast/israel-settlers-west-bank-attacks-netanyahu-rebuke.html
+
 **Trump’s Venezuelan Oil Deal Relies on a Powerful and Divisive Partner**\
 `The administration will work with a private Venezuelan oil company that has close ties to the country’s government.`\
 https://www.nytimes.com/2026/08/29/business/energy-environment/venezuela-alejandro-betancourt-oil-trump.html

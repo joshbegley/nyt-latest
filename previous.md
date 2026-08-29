@@ -19,7 +19,7 @@ https://www.nytimes.com/2026/08/29/us/ohio-lost-found-wedding-ring.html
 https://www.nytimes.com/2026/08/29/crosswords/daily-puzzle-2026-08-30.html
 
 **Israeli Settlers Attack Palestinians, Drawing Sharp Rebukes**\
-`The ferocity of Saturday’s assault prompted condemnations from Benjamin Netanyahu and other officials.`\
+`The intensity of Saturday’s assault prompted condemnations from Prime Minister Benjamin Netanyahu of Israel and other officials.`\
 https://www.nytimes.com/2026/08/29/world/middleeast/israel-settlers-west-bank-attacks-netanyahu-rebuke.html
 
 **‘A New Form of U.S. Colonialism’: Venezuelans Bristle at U.S. Oil Takeover**\
