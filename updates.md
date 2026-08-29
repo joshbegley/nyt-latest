@@ -1,3 +1,15 @@
+**Milo Yiannopoulos, Right-Wing Agitator, Deported Home to U.K.**\
+`Mr. Yiannopoulos, an early supporter of President Trump and vocal supporter of mass deportations, was himself sent back to his home country, part of a long fall from right-wing grace.`\
+https://www.nytimes.com/2026/08/29/us/politics/milo-yiannopoulos-deported.html
+
+**Baby Goats From Traveling Petting Zoo Test Positive for Rabies**\
+`Farm Adventures of Harmony, N.C., owned the goats, state health officials said. It was unclear how many people might have been exposed to them since late July.`\
+https://www.nytimes.com/2026/08/29/us/rabies-goats-petting-zoo-north-carolina.html
+
+**40,000 Pounds of Pabst Blue Ribbon Beer Reported Stolen in California**\
+`The company responded to the theft by setting a deadline for the return of the product. “P.S., this is real and we are deadly serious,” it said on social media.`\
+https://www.nytimes.com/2026/08/29/business/pabst-beer-truck-stolen-california.html
+
 **Napa County Winery Worker Charged With Starting Pickett Fire That Damaged Grape Harvests**\
 `The Pickett fire burned nearly 7,000 acres in California wine country last year, causing millions of dollars in losses.`\
 https://www.nytimes.com/2026/08/29/us/napa-county-pickett-fire-california-worker-charged.html

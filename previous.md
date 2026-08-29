@@ -1,3 +1,11 @@
+**Milo Yiannopoulos, Right-Wing Agitator, Deported Home to U.K.**\
+`Mr. Yiannopoulos, an early supporter of President Trump and vocal supporter of mass deportations, was himself sent back to his home country, part of a long fall from right-wing grace.`\
+https://www.nytimes.com/2026/08/29/us/politics/milo-yiannopoulos-deported.html
+
+**Baby Goats From Traveling Petting Zoo Test Positive for Rabies**\
+`Farm Adventures of Harmony, N.C., owned the goats, state health officials said. It was unclear how many people might have been exposed to them since late July.`\
+https://www.nytimes.com/2026/08/29/us/rabies-goats-petting-zoo-north-carolina.html
+
 **Napa County Winery Worker Charged With Starting Pickett Fire That Damaged Grape Harvests**\
 `The Pickett fire burned nearly 7,000 acres in California wine country last year, causing millions of dollars in losses.`\
 https://www.nytimes.com/2026/08/29/us/napa-county-pickett-fire-california-worker-charged.html
@@ -6,7 +14,7 @@ https://www.nytimes.com/2026/08/29/us/napa-county-pickett-fire-california-worker
 `A deadly Russian strike on a weapons depot on Friday killed at least 37 people near Kyiv, prompting an investigation into arms storage in civilian areas.`\
 https://www.nytimes.com/video/world/europe/100000011121384/russia-ukraine-strike-kyiv-weapon-depot.html
 
-**40,000 Pounds of Pabst Blue Ribbon Beer Are Stolen in California**\
+**40,000 Pounds of Pabst Blue Ribbon Beer Reported Stolen in California**\
 `The company responded to the theft by setting a deadline for the return of the product. “P.S., this is real and we are deadly serious,” it said on social media.`\
 https://www.nytimes.com/2026/08/29/business/pabst-beer-truck-stolen-california.html
 
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/08/29/us/stop-nick-shirley-immigration-shield-calif
 **Ina Garten Says You Can Either Get on Her Train or Get Out of the Way**\
 `Ina Garten grew up in a home filled with negativity and pressure before evolving into a hospitality powerhouse. Lulu Garcia-Navarro speaks with the Food Network host about when to listen to your inner voice and when to shut it down.`\
 https://www.nytimes.com/video/podcasts/100000011112188/ina-garten-says-you-can-either-get-on-her-train-or-get-out-of-the-way.html
-
-**In Georgia, Jon Ossoff Courts Broad Appeal With an Anti-Trump Script for Senate Race**\
-`Senator Jon Ossoff, the youngest sitting senator and the only Democrat seeking re-election this year in a state President Trump won in 2024, hasn’t moderated his message in his critical race.`\
-https://www.nytimes.com/2026/08/29/us/politics/georgia-senate-ossoff-collins-trump.html
-
-**How the Nancy Grace Roman Telescope, NASA’s New Window Into the Universe, Came to Be**\
-`The Nancy Grace Roman Space Telescope, scheduled to launch on Sunday, will study dark energy and discover a multitude of planets.`\
-https://www.nytimes.com/2026/08/29/science/nasa-roman-telescope-origins.html
 
