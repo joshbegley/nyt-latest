@@ -1,3 +1,7 @@
+**Todos amábamos a Dolly Parton, pero no muchos la entendimos**\
+`Escribir su propia historia fue la manera más radical y precisa en la que la cantante e ícono cultural pudo definirse a sí misma.`\
+https://www.nytimes.com/es/2026/08/29/espanol/opinion/dolly-parton-vida-memorias.html
+
 **El telescopio Roman promete una nueva era de exploración cósmica**\
 `El próximo lanzamiento de la NASA ofrece la posibilidad de trazar un panorama del universo tan amplio y profundo que se necesitarían más de medio millón de televisores para mostrar una sola imagen.`\
 https://www.nytimes.com/es/2026/08/29/espanol/ciencia-y-tecnologia/nasa-telescopio-exploracion-espacial.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/28/us/politics/abu-ghraib-verdict-overturned.htm
 **The Best Outfits Are a Little Undone**\
 `Plus: Kusama’s polka dots and a tip on where to find the best vintage tennis gear.`\
 https://www.nytimes.com/2026/08/28/style/alia-shawkat-celebrity-stylist-vintage.html
-
-**Las personas exitosas tienen un hábito en común**\
-`Tener éxito e iniciativa no significa hacerlo sin ayuda.`\
-https://www.nytimes.com/es/2026/08/28/espanol/opinion/habitos-exito.html
 
