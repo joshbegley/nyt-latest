@@ -1,3 +1,11 @@
+**¿El Zodiaco mató a la Dalia Negra? Este escritor de novela negra cree que sí**\
+`El novelista Michael Connelly sabe que se juega su reputación con el pódcast “Killer in the Code”. Pero, pese al escepticismo de sus críticos, considera que las pruebas son “completamente convincentes”.`\
+https://www.nytimes.com/es/2026/08/30/espanol/cultura/zodiaco-dalia-negra-asesino.html
+
+**Más espectáculos en menos lugares: así es como las residencias tomaron la industria musical**\
+`La más reciente toma del Madison Square Garden por parte de Harry Styles es parte de una tendencia que, según algunos, transfiere a los fans el costo de salir de gira.`\
+https://www.nytimes.com/es/2026/08/30/espanol/cultura/harry-styles-conciertos-residencias-madison.html
+
 **Is the U.S. Open More Valuable to New York Than the Knicks?**\
 `It’s complicated. But the answer is: Maybe.`\
 https://www.nytimes.com/2026/08/30/nyregion/us-open-economic-impact-new-york-city.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/es/2026/08/29/espanol/vida-social-amigos.html
 **Mountains Are Coming Undone**\
 `The burning of fossil fuels is pulling down the world’s highest peaks.`\
 https://www.nytimes.com/2026/08/29/opinion/nepal-flood-glacier-melt-climate-change.html
-
-**Goodbye, Harry and Meghan. Turns Out We Didn’t Need Actual Royals.**\
-`With their departure, can America please shake off its obsession with royalty?`\
-https://www.nytimes.com/2026/08/29/opinion/prince-harry-meghan-markle-america.html
-
-**Dolly Parton Was So Fake She Was Real**\
-`Dolly Parton was utterly real about her unrealness. She played with the over-the-top details.`\
-https://www.nytimes.com/2026/08/29/opinion/dolly-parton-style-branding-personality.html
 
