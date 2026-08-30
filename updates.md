@@ -1,3 +1,11 @@
+**This Corn-Jalapeño Pasta Is a Favorite in My House**\
+`And four more speedy dinners that hold on to summer.`\
+https://www.nytimes.com/2026/08/30/dining/this-corn-jalapeno-pasta-is-a-favorite-in-my-house.html
+
+**ICE’s ‘Arbitrary, Cruel and Costly’ Treatment of Haitians**\
+`Readers react to the crackdown on Haitians in Ohio, who are being forced to wear G.P. S. ankle monitors. Also: Democrats rebranding; Trump’s Lake Ontario effect.`\
+https://www.nytimes.com/2026/08/30/opinion/ice-ohio-hatians.html
+
 **NASA’s Nancy Grace Roman Telescope’s Roman Telescope Leaves Earth to Chart the Stars**\
 `Astronomers will use data collected by Roman’s wide, deep gaze to study the dark universe and hunt for new worlds.`\
 https://www.nytimes.com/2026/08/30/science/spacex-roman-telescope-launch.html

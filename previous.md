@@ -1,3 +1,11 @@
+**This Corn-Jalapeño Pasta Is a Favorite in My House**\
+`And four more speedy dinners that hold on to summer.`\
+https://www.nytimes.com/2026/08/30/dining/this-corn-jalapeno-pasta-is-a-favorite-in-my-house.html
+
+**ICE’s ‘Arbitrary, Cruel and Costly’ Treatment of Haitians**\
+`Readers react to the crackdown on Haitians in Ohio, who are being forced to wear G.P. S. ankle monitors. Also: Democrats rebranding; Trump’s Lake Ontario effect.`\
+https://www.nytimes.com/2026/08/30/opinion/ice-ohio-hatians.html
+
 **Tennis’s Lost Shot**\
 `As the U.S. Open kicks off, we’re exploring a tennis technique that has quietly gone extinct.`\
 https://www.nytimes.com/2026/08/30/briefing/tenniss-lost-shot.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/30/opinion/women-men-gender-quit.html
 **The People of Hirosaki, Japan, Try to Move a Castle by Hand**\
 `In Japan, the ancient tradition of hikiya involves moving buildings with ropes and rollers. About 4,000 people teamed up to try it on Hirosaki Castle.`\
 https://www.nytimes.com/2026/08/30/world/asia/japan-hirosaki-castle-moving.html
-
-**Expedia se enfrenta a familias cubanas por tierras expropiadas hace décadas**\
-`Se ha iniciado un juicio en un tribunal federal contra la empresa de viajes. Decenas de demandas similares se han presentado desde que el presidente Trump abrió la puerta a este tipo de litigios.`\
-https://www.nytimes.com/es/2026/08/30/espanol/america-latina/expedia-demanda-terrenos-cuba.html
-
-**In Scotland, Luxury Hotel Gleneagles Offers a Posh Summer Camp for Grown-Ups**\
-`It’s the mix of lush adventures by day and elegant dinners by night that makes the luxury hotel Gleneagles, outside Edinburgh, so tempting.`\
-https://www.nytimes.com/2026/08/30/travel/scotland-summer-resort-gleneagles.html
 
