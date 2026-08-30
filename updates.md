@@ -1,3 +1,11 @@
+**Así es como Meta llegó a un acuerdo judicial de 17,1 millardos de dólares**\
+`El acuerdo, uno de los convenios más grandes entre una empresa y un grupo de estados, implicó meses de negociaciones y una serie de derrotas legales para el gigante de las redes sociales.`\
+https://www.nytimes.com/es/2026/08/30/espanol/negocios/meta-acuerdo-demanda-mark-zuckerberg.html
+
+**Women Don’t Quit. We Should.**\
+`Women are eager disciples of the “Never give up” dogma. But if we treat persevering and quitting as opposites, we lose.`\
+https://www.nytimes.com/2026/08/30/opinion/women-men-gender-quit.html
+
 **The People of Hirosaki, Japan, Try to Move a Castle by Hand**\
 `In Japan, the ancient tradition of hikiya involves moving buildings with ropes and rollers. About 4,000 people teamed up to try it on Hirosaki Castle.`\
 https://www.nytimes.com/2026/08/30/world/asia/japan-hirosaki-castle-moving.html
