@@ -1,3 +1,15 @@
+**Why the United States Can’t Quit Its Wars**\
+`The country’s longest war came to an end exactly five years ago. Today it offers lessons for policymakers seeking to avoid an endless war in Iran.`\
+https://www.nytimes.com/2026/08/30/us/politics/us-wars-iran-afghanistan.html
+
+**‘Freedom Fuel’ Touts Cheap Gas. A Lawsuit Says the Dealer Didn’t Pay for It.**\
+`A lawsuit claims that a New Jersey-based company failed to pay for nearly $4 million worth of gas, some of which was sold to gas stations promoted by President Trump.`\
+https://www.nytimes.com/2026/08/30/us/freedom-fuel-gas-lawsuit-trump-mansfield-krsm.html
+
+**Dolly Parton Heard a Voice**\
+`She said it was a co-author on some of her biggest songs.`\
+https://www.nytimes.com/2026/08/30/briefing/dolly-parton-god-voice-song.html
+
 **SpaceX Launches NASA’s Roman Telescope**\
 `SpaceX launched the Nancy Grace Roman Space Telescope on a Falcon Heavy rocket on Sunday.`\
 https://www.nytimes.com/video/embedded/science/space/100000011121940/spacex-launches-nasas-roman-telescope.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/08/30/nyregion/mohamed-coulibaly-scam-mali-nfl.html
 **New York Is Relying on Office Conversions to Address Its Housing Crisis**\
 `A New York Times analysis shows that the pace of office-to-residential conversions like the former Pfizer building, where two steel columns buckled in July, has quickened sharply.`\
 https://www.nytimes.com/2026/08/30/nyregion/nyc-conversions-analysis-pfizer.html
-
-**NYT Spelling Bee Answers for August 30, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/08/30/crosswords/spelling-bee-forum.html
-
-**China Says 261 Foreigners From 23 Countries Are Missing in Tibet Flood**\
-`The disclosure offered one of the clearest pictures yet of the disaster on the Chinese side of the border, where authorities have released few details.`\
-https://www.nytimes.com/2026/08/30/world/asia/tibet-nepal-flood-death-toll-china.html
-
-**Watch Volunteers Pull a 400-Year-Old Castle by Hand**\
-`Adults and children have been using their hands to move Hirosaki Castle in Aomori Prefecture, Japan. The ancient method is known as hikiya.`\
-https://www.nytimes.com/video/world/asia/100000011115965/japan-hirosaki-castle-hikiya.html
 
