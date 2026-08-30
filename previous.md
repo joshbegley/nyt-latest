@@ -1,3 +1,19 @@
+**In Scotland, Luxury Hotel Gleneagles Offers a Posh Summer Camp for Grown-Ups**\
+`It’s the mix of lush adventures by day and elegant dinners by night that makes the luxury hotel Gleneagles, outside Edinburgh, so tempting.`\
+https://www.nytimes.com/2026/08/30/travel/scotland-summer-resort-gleneagles.html
+
+**Expedia Faces Off With Cuban Families Over Land Seized Decades Ago**\
+`A trial involving claims against the travel company has opened in federal court. Dozens of such lawsuits have been filed since President Trump opened the door to them.`\
+https://www.nytimes.com/2026/08/30/world/americas/cuba-expedia-lawsuit.html
+
+**The 10 p.m. Dinner Is a Spanish Tradition. Are People Giving It Up?**\
+`There are signs that Spaniards are eating earlier in the evening. Experts say it could make for a healthier country, but not everyone is ready to part with the custom.`\
+https://www.nytimes.com/2026/08/30/world/europe/spain-late-dinner-time.html
+
+**Quote of the Day: When Russians Want a Fancy Car, They Order It From Thieves in Canada**\
+`Quotation of the Day for Sunday, August 30, 2026.`\
+https://www.nytimes.com/2026/08/30/pageoneplus/quote-of-the-day-when-russians-want-a-fancy-car-they-order-it-from-thieves-in-canada.html
+
 **Nepal Flood Survivors Return to Devastated Towns**\
 `Our correspondent Anupreeta Das visited Bidur, Nepal, days after floods devastated the region. Residents sifted through thick mud to salvage what remained of their homes.`\
 https://www.nytimes.com/video/world/asia/100000011120032/nepal-flood-survivors-return-to-devastated-towns.html
@@ -177,20 +193,4 @@ https://www.nytimes.com/2026/08/29/world/asia/nepal-flood-rescue.html
 **As Deadly Flash Flooding Batters Nepal, Some Fear ‘the Entire Himalayas Are Melting’**\
 `A glacier unleashed a deadly flood earlier this week. For local trekking guides and climbers, the mountains were already changing.`\
 https://www.nytimes.com/2026/08/29/travel/flash-flood-nepal-global-warming-himalayas.html
-
-**Fact-Checking Senate Races in Georgia, Alaska and Texas**\
-`Candidates’ attacks are focused on illegal immigration, faith and stock trading.`\
-https://www.nytimes.com/2026/08/29/us/politics/midterms-senate-race-georgia-alaska-texas-fact-check.html
-
-**Corrections: Aug. 29, 2026**\
-`Corrections that appeared in print on Saturday, Aug. 29, 2026.`\
-https://www.nytimes.com/2026/08/29/pageoneplus/corrections-aug-29-2026.html
-
-**Catastrophic Flood Exposes the Risks of Nepal’s Hydropower Bet**\
-`The loss of power-generating capacity has raised questions about an ambitious expansion of renewable energy in one of the world’s most hazard-prone mountain regions.`\
-https://www.nytimes.com/2026/08/29/business/nepal-hydropower-flood.html
-
-**For LGBTQ Fans, Dolly Parton Inspired Their Wigs and Makeup, and Had Their Back Too**\
-`Dolly Parton was an advocate for her L.G.B.T.Q. fans. She also understood them, a meaningful bond in places where such recognition was hard to find.`\
-https://www.nytimes.com/2026/08/29/us/dolly-parton-drag-queens-lgbtq.html
 
