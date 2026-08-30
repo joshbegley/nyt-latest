@@ -1,3 +1,7 @@
+**Iceland Votes to Steer Clear of European Union Talks**\
+`After a divisive debate, Icelanders rejected a proposal to resume negotiations on joining the bloc. The referendum drew the highest voter turnout in almost two decades.`\
+https://www.nytimes.com/2026/08/30/world/europe/iceland-eu-referendum-talks.html
+
 **Dolly Parton’s Marriage to Carl Dean Was Fueled by Distance and Difference**\
 `Dolly Parton met Carl Dean outside a Nashville laundromat in 1964. For decades, she was as protective of her marriage as he was fiercely private.`\
 https://www.nytimes.com/2026/08/30/arts/music/dolly-parton-carl-dean-marriage-relationship.html
