@@ -67,7 +67,7 @@ https://www.nytimes.com/2026/08/30/opinion/ice-ohio-hatians.html
 https://www.nytimes.com/2026/08/30/briefing/tenniss-lost-shot.html
 
 **Iceland Votes to Steer Clear of European Union Talks**\
-`After a divisive national debate, Icelanders rejected a proposal to resume negotiations on joining the bloc, according to the national broadcaster.`\
+`After a divisive debate, Icelanders rejected a proposal to resume negotiations on joining the bloc. The referendum drew the highest voter turnout in almost two decades.`\
 https://www.nytimes.com/2026/08/30/world/europe/iceland-eu-referendum-talks.html
 
 **What Dolly Did for Tennessee Is What She Did for the World**\
