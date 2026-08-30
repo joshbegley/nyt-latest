@@ -1,3 +1,7 @@
+**Tennis’s Lost Shot**\
+`As the U.S. Open kicks off, we’re exploring a tennis technique that has quietly gone extinct.`\
+https://www.nytimes.com/2026/08/30/briefing/tenniss-lost-shot.html
+
 **Iceland Votes to Steer Clear of European Union Talks**\
 `After a divisive national debate, Icelanders rejected a proposal to resume negotiations on joining the bloc, according to the national broadcaster.`\
 https://www.nytimes.com/2026/08/30/world/europe/iceland-eu-referendum-talks.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/08/30/espanol/america-latina/expedia-demanda-ter
 **In Scotland, Luxury Hotel Gleneagles Offers a Posh Summer Camp for Grown-Ups**\
 `It’s the mix of lush adventures by day and elegant dinners by night that makes the luxury hotel Gleneagles, outside Edinburgh, so tempting.`\
 https://www.nytimes.com/2026/08/30/travel/scotland-summer-resort-gleneagles.html
-
-**Expedia Faces Off With Cuban Families Over Land Seized Decades Ago**\
-`A trial involving claims against the travel company has opened in federal court. Dozens of such lawsuits have been filed since President Trump opened the door to them.`\
-https://www.nytimes.com/2026/08/30/world/americas/cuba-expedia-lawsuit.html
 
