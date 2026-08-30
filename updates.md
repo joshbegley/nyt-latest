@@ -1,3 +1,7 @@
+**Before Nepal’s Floods, Hindu Pilgrims Sought the Divine at Mount Kailash**\
+`For many, the trek to Mount Kailash on the border of Nepal and Tibet is a once-in-a-lifetime trip to find spiritual awakening.`\
+https://www.nytimes.com/2026/08/30/us/nepal-floods-religious-tour.html
+
 **Climber Recounts Rescue From 6-Inch Ledge Atop California Mountain**\
 `Rob Martin was stranded for hours before rescuers reached him. He recalled thinking: “One wrong move now, and that’s it. I die.”`\
 https://www.nytimes.com/2026/08/30/us/sierra-nevada-climber-rescued-mountains.html

@@ -110,7 +110,7 @@ https://www.nytimes.com/2026/08/30/business/address-change-mortgage-scam.html
 `Los insectos, venerados en la cultura local, están desapareciendo por muchas razones, entre ellas el rápido desarrollo turístico.`\
 https://www.nytimes.com/es/2026/08/30/espanol/mundo/luciernagas-sagradas-bali-conservacion.html
 
-**Pilgrims to Flood-Stricken Nepal Sought the Divine at Sacred Mountain**\
+**Before Nepal’s Floods, Hindu Pilgrims Sought the Divine at Mount Kailash**\
 `For many, the trek to Mount Kailash on the border of Nepal and Tibet is a once-in-a-lifetime trip to find spiritual awakening.`\
 https://www.nytimes.com/2026/08/30/us/nepal-floods-religious-tour.html
 
