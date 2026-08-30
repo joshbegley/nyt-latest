@@ -1,3 +1,7 @@
+**Ferry Carrying Hundreds of Passengers Capsizes Off Coast of Cyprus**\
+`Local authorities said 267 people were aboard the catamaran-type vessel when it began taking on water shortly after its departure from Kyrenia.`\
+https://www.nytimes.com/2026/08/30/world/europe/cyprus-ferry-capsizes-turkey.html
+
 **Melting Himalayas**\
 `Scientists are still working out the precise cause of the disaster in Nepal, but one thing seems certain: The risk of such events is increasing.`\
 https://www.nytimes.com/2026/08/30/world/nepal-tibet-flood-glacier-nasa.html

@@ -1,3 +1,11 @@
+**U.S. Attacks Island in Strait of Hormuz, in First Strike on Iran in a Month**\
+`The strikes, against what the military said were launchers for sea mines, appeared to be limited rather than the renewal of larger-scale bombing.`\
+https://www.nytimes.com/2026/08/30/admin/us-attacks-iran-strait-of-hormuz.html
+
+**15 People May Be Missing at Grand Canyon After Flash Flood**\
+`At least 62 people were evacuated on Saturday after flooding destroyed nearly all the footbridges across Bright Angel Creek in Arizona and cut off hikers’ access, the National Park Service said.`\
+https://www.nytimes.com/2026/08/30/us/grand-canyon-flash-flood-people-missing.html
+
 **Melting Himalayas**\
 `Scientists are still working out the precise cause of the disaster in Nepal, but one thing seems certain: The risk of such events is increasing.`\
 https://www.nytimes.com/2026/08/30/world/nepal-tibet-flood-glacier-nasa.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/30/business/forward-deployed-ai.html
 **Ed Markey Defends Transgender Athletes in Massachusetts Senate Race**\
 `Senator Ed Markey of Massachusetts has emerged as a vocal defender of transgender rights as he tries to fend off a primary challenge from Representative Seth Moulton.`\
 https://www.nytimes.com/2026/08/30/us/politics/ed-markey-seth-moulton-transgender-athletes-massachusetts.html
-
-**NASA’s Nancy Grace Roman Telescope Leaves Earth to Chart the Stars**\
-`Astronomers will use data collected by Roman’s wide, deep gaze to study the dark universe and hunt for new worlds.`\
-https://www.nytimes.com/2026/08/30/science/spacex-roman-telescope-launch.html
-
-**For the Venice Film Festival, an Island Setting for Almost a Century**\
-`Once a year, the tiny island of Lido is transformed into a rich field of artistic expression for the festival.`\
-https://www.nytimes.com/2026/08/30/movies/venice-film-festival-lido.html
 
