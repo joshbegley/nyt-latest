@@ -1,3 +1,15 @@
+**Why the United States Can’t Quit Its Wars**\
+`The country’s longest war came to an end exactly five years ago. Today it offers lessons for policymakers seeking to avoid an endless war in Iran.`\
+https://www.nytimes.com/2026/08/30/us/politics/us-wars-iran-afghanistan.html
+
+**‘Freedom Fuel’ Touts Cheap Gas. A Lawsuit Says the Dealer Didn’t Pay for It.**\
+`A lawsuit claims that a New Jersey-based company failed to pay for nearly $4 million worth of gas, some of which was sold to gas stations promoted by President Trump.`\
+https://www.nytimes.com/2026/08/30/us/freedom-fuel-gas-lawsuit-trump-mansfield-krsm.html
+
+**Dolly Parton Heard a Voice**\
+`She said it was a co-author on some of her biggest songs.`\
+https://www.nytimes.com/2026/08/30/briefing/dolly-parton-god-voice-song.html
+
 **SpaceX Launches NASA’s Roman Telescope**\
 `SpaceX launched the Nancy Grace Roman Space Telescope on a Falcon Heavy rocket on Sunday.`\
 https://www.nytimes.com/video/embedded/science/space/100000011121940/spacex-launches-nasas-roman-telescope.html
