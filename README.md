@@ -134,7 +134,7 @@ https://www.nytimes.com/es/2026/08/30/espanol/mundo/luciernagas-sagradas-bali-co
 `For many, the trek to Mount Kailash on the border of Nepal and Tibet is a once-in-a-lifetime trip to find spiritual awakening.`\
 https://www.nytimes.com/2026/08/30/us/nepal-floods-religious-tour.html
 
-**Dolly Parton Was Shaped by a Small Rural Church. They’re Fading Away.**\
+**Dolly Parton and the ‘Pretty Darn Good’ Southern Church**\
 `For many Americans, Ms. Parton represented an idealized style of faith: one centered in small rural congregations that prize community over ideology.`\
 https://www.nytimes.com/2026/08/30/us/dolly-parton-southern-christianity.html
 
