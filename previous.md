@@ -1,3 +1,19 @@
+**What Dolly Did for Tennessee Is What She Did for the World**\
+`This is what she did for the written word. And medicine. And …`\
+https://www.nytimes.com/2026/08/30/opinion/dolly-parton-tennessee.html
+
+**How Not to Announce a Measles Death**\
+`Josh Shapiro announced two measles deaths. Things went downhill fast.`\
+https://www.nytimes.com/2026/08/30/opinion/measles-deaths-pennsylvania-shapiro.html
+
+**NYT Connections Answers for August 31, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Aug. 31, 2026.`\
+https://www.nytimes.com/2026/08/30/crosswords/connections-companion-1177.html
+
+**Who Will Rule the 2026 U.S. Open?**\
+`The players, the rivalries and the dramas to follow at this year’s tournament.`\
+https://www.nytimes.com/2026/08/30/podcasts/the-daily/who-will-rule-the-2026-us-open.html
+
 **How a ’70s Improv Book Became Silicon Valley’s Required Reading**\
 `It can be useful to see reality as malleable.`\
 https://www.nytimes.com/2026/08/30/opinion/silicon-valley-theater-improv.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/08/30/world/americas/cuba-expedia-lawsuit.html
 **The 10 p.m. Dinner Is a Spanish Tradition. Are People Giving It Up?**\
 `There are signs that Spaniards are eating earlier in the evening. Experts say it could make for a healthier country, but not everyone is ready to part with the custom.`\
 https://www.nytimes.com/2026/08/30/world/europe/spain-late-dinner-time.html
-
-**Quote of the Day: When Russians Want a Fancy Car, They Order It From Thieves in Canada**\
-`Quotation of the Day for Sunday, August 30, 2026.`\
-https://www.nytimes.com/2026/08/30/pageoneplus/quote-of-the-day-when-russians-want-a-fancy-car-they-order-it-from-thieves-in-canada.html
-
-**Nepal Flood Survivors Return to Devastated Towns**\
-`Our correspondent Anupreeta Das visited Bidur, Nepal, days after floods devastated the region. Residents sifted through thick mud to salvage what remained of their homes.`\
-https://www.nytimes.com/video/world/asia/100000011120032/nepal-flood-survivors-return-to-devastated-towns.html
-
-**Trump’s Venezuelan Oil Deal Relies on a Powerful and Divisive Partner**\
-`The administration will work with a private Venezuelan oil company that has close ties to the country’s government.`\
-https://www.nytimes.com/2026/08/29/business/energy-environment/venezuela-alejandro-betancourt-oil-trump.html
-
-**Treasury Bars Some Reporters From G20 Finance Meeting**\
-`Specific reporters from The New York Times, The Wall Street Journal and Bloomberg were not granted credentials to cover the meeting of financial leaders next week in Asheville, N.C.`\
-https://www.nytimes.com/2026/08/29/business/reporters-denied-g20-meeting.html
 

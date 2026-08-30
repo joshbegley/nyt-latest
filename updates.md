@@ -1,3 +1,19 @@
+**What Dolly Did for Tennessee Is What She Did for the World**\
+`This is what she did for the written word. And medicine. And …`\
+https://www.nytimes.com/2026/08/30/opinion/dolly-parton-tennessee.html
+
+**How Not to Announce a Measles Death**\
+`Josh Shapiro announced two measles deaths. Things went downhill fast.`\
+https://www.nytimes.com/2026/08/30/opinion/measles-deaths-pennsylvania-shapiro.html
+
+**NYT Connections Answers for August 31, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Aug. 31, 2026.`\
+https://www.nytimes.com/2026/08/30/crosswords/connections-companion-1177.html
+
+**Who Will Rule the 2026 U.S. Open?**\
+`The players, the rivalries and the dramas to follow at this year’s tournament.`\
+https://www.nytimes.com/2026/08/30/podcasts/the-daily/who-will-rule-the-2026-us-open.html
+
 **How a ’70s Improv Book Became Silicon Valley’s Required Reading**\
 `It can be useful to see reality as malleable.`\
 https://www.nytimes.com/2026/08/30/opinion/silicon-valley-theater-improv.html
