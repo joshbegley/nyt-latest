@@ -2,8 +2,8 @@
 `This crossword by Christopher Youngs calls for a toast.`\
 https://www.nytimes.com/2026/08/30/crosswords/daily-puzzle-2026-08-31.html
 
-**U.S. Attacks Island in Strait of Hormuz, in First Strike on Iran in a Month**\
-`The strikes, against what the military said were launchers for sea mines, appeared to be limited rather than the renewal of larger-scale bombing.`\
+**U.S. Attacks Island in Strait of Hormuz; Iran Retaliates With Missile Fire**\
+`The exchange on Sunday was the first known military action between the two nations in a month, raising the risk of a renewed round of fighting.`\
 https://www.nytimes.com/2026/08/30/admin/us-attacks-iran-strait-of-hormuz.html
 
 **15 People May Be Missing at Grand Canyon After Flash Flood**\
