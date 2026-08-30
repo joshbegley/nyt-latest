@@ -1,3 +1,15 @@
+**More Than 22,000 Ancient Artifacts Seized in Florida**\
+`The items include Egyptian statues and ancient Greek and Roman coins that date back 1,000 to 5,000 years, officials said.`\
+https://www.nytimes.com/2026/08/30/us/ancient-artifacts-seized-florida.html
+
+**Cleanup of Rotting Food at L.A. Warehouse Took Too Long, Residents Say**\
+`The stench has enveloped a neighborhood next to a food warehouse that burned in a June fire, prompting legislative action, lawsuits and thousands of complaints.`\
+https://www.nytimes.com/2026/08/30/us/los-angeles-warehouse-fire-boyle-heights-rotting-food.html
+
+**Several Dead After Ferry Capsizes Off Coast of Cyprus**\
+`A ferry carrying 267 people sank off the northern coast of Cyprus on Sunday, leaving several people dead and prompting a search and rescue effort.`\
+https://www.nytimes.com/video/world/europe/100000011122013/cyprus-turkey-ferry-capsize-boat.html
+
 **‘Nuevo colonialismo’: los venezolanos reaccionan ante el control petrolero de Trump**\
 `Un acuerdo que le otorga a EE. UU. el control mayoritario de las vastas reservas venezolanas atenta contra el corazón de la identidad nacional.`\
 https://www.nytimes.com/es/2026/08/30/espanol/america-latina/venezuela-petroleo-trump.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/08/30/arts/music/sarah-davachi-the-will-of-tongues.
 **This Governor Could Lose His Primary. A Bridge May Be to Blame.**\
 `The closure of a crucial Rhode Island bridge for safety reasons in 2023, and the traffic nightmare that followed, have dogged Gov. Dan McKee in the Democratic primary.`\
 https://www.nytimes.com/2026/08/30/us/dan-mckee-rhode-island-bridge.html
-
-**Venice Film Festival: Ellen Burstyn to Recieve a Lifetime Achievement Award**\
-`The actress will receive a Golden Lion for her decades on stages and screens large and small at the Venice Film Festival.`\
-https://www.nytimes.com/2026/08/30/movies/ellen-burstyn-venice-film-festival.html
-
-**How Trump’s Policy Agenda Runs Through One Federal Court, in Texas**\
-`For years, conservative litigants flocked to Judge Reed O’Connor’s district. Now, North Texas has become a favorite destination of the Justice Department.`\
-https://www.nytimes.com/2026/08/30/us/politics/texas-judge-trump-agenda.html
-
-**Far Right Is Poised to Win in a German State, but Fight Over Power Won’t End There**\
-`State and federal leaders are trying to avoid sharing sensitive intelligence with the Alternative for Germany should it take power in a state’s elections next week.`\
-https://www.nytimes.com/2026/08/30/world/europe/germany-afd-saxony-anhalt.html
 
