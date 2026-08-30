@@ -1,3 +1,7 @@
+**The 10 P.M. Dinner Is a Spanish Tradition. Are People Giving It Up?**\
+`There are signs that Spaniards are eating earlier in the evening. Experts say it could make for a healthier country, but not everyone is ready to part with the custom.`\
+https://www.nytimes.com/2026/08/30/world/europe/spain-late-dinner-time.html
+
 **What Dolly Did for Tennessee Is What She Did for the World**\
 `This is what she did for the written word. And medicine. And …`\
 https://www.nytimes.com/2026/08/30/opinion/dolly-parton-tennessee.html

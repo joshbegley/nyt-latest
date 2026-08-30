@@ -194,7 +194,7 @@ https://www.nytimes.com/2026/08/30/travel/scotland-summer-resort-gleneagles.html
 `A trial involving claims against the travel company has opened in federal court. Dozens of such lawsuits have been filed since President Trump opened the door to them.`\
 https://www.nytimes.com/2026/08/30/world/americas/cuba-expedia-lawsuit.html
 
-**The 10 p.m. Dinner Is a Spanish Tradition. Are People Giving It Up?**\
+**The 10 P.M. Dinner Is a Spanish Tradition. Are People Giving It Up?**\
 `There are signs that Spaniards are eating earlier in the evening. Experts say it could make for a healthier country, but not everyone is ready to part with the custom.`\
 https://www.nytimes.com/2026/08/30/world/europe/spain-late-dinner-time.html
 
