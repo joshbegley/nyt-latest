@@ -1,3 +1,19 @@
+**How a ’70s Improv Book Became Silicon Valley’s Required Reading**\
+`It can be useful to see reality as malleable.`\
+https://www.nytimes.com/2026/08/30/opinion/silicon-valley-theater-improv.html
+
+**Today’s Wordle Hints for August 31, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Aug. 31, 2026.`\
+https://www.nytimes.com/2026/08/30/crosswords/wordle-review-1899.html
+
+**The World Is a Room With a Piano Waiting to Be Played**\
+`Like any life, mine has had its pain, yet from the outset it seems to have been graced by unbelievable people and events. An anthology of miracles.`\
+https://www.nytimes.com/2026/08/30/opinion/wonder-awe-aging.html
+
+**NYT Strands Hints for August 31, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Aug. 31, 2026.`\
+https://www.nytimes.com/2026/08/30/crosswords/strands-sidekick-911.html
+
 **Long Lines for Gas in Iran Show War and U.S. Blockade Squeezing Supply**\
 `The government is struggling to meet a shortfall in fuel and is wary that higher prices at the pump could stir unrest.`\
 https://www.nytimes.com/2026/08/30/world/middleeast/iran-fuel-supplies-blockade.html
