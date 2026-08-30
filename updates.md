@@ -1,3 +1,7 @@
+**Ferry Carrying Hundreds Capsizes Off the Coast of Cyprus**\
+`Local authorities said 267 people were aboard the catamaran-type vessel when it began taking on water shortly after its departure from Kyrenia.`\
+https://www.nytimes.com/2026/08/30/world/europe/cyprus-ferry-capsizes-turkey.html
+
 **Nepal Turns to Mass Burials, as Thousands Remain Missing from Floods**\
 `Only a fraction of the over 2,500 missing are turning up among the dead, underscoring a bleak reality: The death toll is likely to keep rising for days to come.`\
 https://www.nytimes.com/2026/08/30/world/asia/nepal-floods-mass-burials-missing.html
