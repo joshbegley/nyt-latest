@@ -1,3 +1,7 @@
+**Climber Recounts Rescue From 6-Inch Ledge Atop California Mountain**\
+`Rob Martin was stranded for hours before rescuers reached him. He recalled thinking: “One wrong move now, and that’s it. I die.”`\
+https://www.nytimes.com/2026/08/30/us/sierra-nevada-climber-rescued-mountains.html
+
 **A Very Melissa Watermelon Salad**\
 `Summer’s juiciest tomatoes and watermelon team up with — what else? — anchovy bread crumbs for this elegant but easy dish.`\
 https://www.nytimes.com/2026/08/30/dining/a-very-melissa-watermelon-salad.html
