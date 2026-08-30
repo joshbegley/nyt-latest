@@ -1,3 +1,19 @@
+**How a ’70s Improv Book Became Silicon Valley’s Required Reading**\
+`It can be useful to see reality as malleable.`\
+https://www.nytimes.com/2026/08/30/opinion/silicon-valley-theater-improv.html
+
+**Today’s Wordle Hints for August 31, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Aug. 31, 2026.`\
+https://www.nytimes.com/2026/08/30/crosswords/wordle-review-1899.html
+
+**The World Is a Room With a Piano Waiting to Be Played**\
+`Like any life, mine has had its pain, yet from the outset it seems to have been graced by unbelievable people and events. An anthology of miracles.`\
+https://www.nytimes.com/2026/08/30/opinion/wonder-awe-aging.html
+
+**NYT Strands Hints for August 31, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Aug. 31, 2026.`\
+https://www.nytimes.com/2026/08/30/crosswords/strands-sidekick-911.html
+
 **Long Lines for Gas in Iran Show War and U.S. Blockade Squeezing Supply**\
 `The government is struggling to meet a shortfall in fuel and is wary that higher prices at the pump could stir unrest.`\
 https://www.nytimes.com/2026/08/30/world/middleeast/iran-fuel-supplies-blockade.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/08/29/business/energy-environment/venezuela-alejand
 **Treasury Bars Some Reporters From G20 Finance Meeting**\
 `Specific reporters from The New York Times, The Wall Street Journal and Bloomberg were not granted credentials to cover the meeting of financial leaders next week in Asheville, N.C.`\
 https://www.nytimes.com/2026/08/29/business/reporters-denied-g20-meeting.html
-
-**Soldiers in Niger Attack Presidential Palace and Airport, Shaking Junta**\
-`Renegade Nigerien soldiers attacked sites around the capital, the defense ministry said, including a key air base that hosts Russian mercenaries.`\
-https://www.nytimes.com/2026/08/29/world/africa/niger-special-forces-attack.html
-
-**Man Finds His Father’s Wedding Ring Decades After It Was Lost**\
-`Using a metal detector, Jeff Arnett honored a request from his father, who lost his band while washing his car more than 40 years ago.`\
-https://www.nytimes.com/2026/08/29/us/ohio-lost-found-wedding-ring.html
-
-**Written in the Stars**\
-`Daniel Grinberg’s latest puzzle lands grandly, in a big bang.`\
-https://www.nytimes.com/2026/08/29/crosswords/daily-puzzle-2026-08-30.html
-
-**Israeli Settlers Attack Palestinians, Drawing Sharp Rebukes**\
-`The intensity of Saturday’s assault prompted condemnations from Prime Minister Benjamin Netanyahu of Israel and other officials.`\
-https://www.nytimes.com/2026/08/29/world/middleeast/israel-settlers-west-bank-attacks-netanyahu-rebuke.html
 
