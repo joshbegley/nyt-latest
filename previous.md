@@ -94,7 +94,7 @@ https://www.nytimes.com/2026/08/30/business/forward-deployed-ai.html
 `Senator Ed Markey of Massachusetts has emerged as a vocal defender of transgender rights as he tries to fend off a primary challenge from Representative Seth Moulton.`\
 https://www.nytimes.com/2026/08/30/us/politics/ed-markey-seth-moulton-transgender-athletes-massachusetts.html
 
-**Watch SpaceX Launch NASA’s Roman Telescope to Chart the Stars**\
+**NASA’s Nancy Grace Roman Telescope’s Roman Telescope Leaves Earth to Chart the Stars**\
 `Astronomers will use data collected by Roman’s wide, deep gaze to study the dark universe and hunt for new worlds.`\
 https://www.nytimes.com/2026/08/30/science/spacex-roman-telescope-launch.html
 

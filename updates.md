@@ -1,3 +1,7 @@
+**NASA’s Nancy Grace Roman Telescope’s Roman Telescope Leaves Earth to Chart the Stars**\
+`Astronomers will use data collected by Roman’s wide, deep gaze to study the dark universe and hunt for new worlds.`\
+https://www.nytimes.com/2026/08/30/science/spacex-roman-telescope-launch.html
+
 **Tennis’s Lost Shot**\
 `As the U.S. Open kicks off, we’re exploring a tennis technique that has quietly gone extinct.`\
 https://www.nytimes.com/2026/08/30/briefing/tenniss-lost-shot.html
