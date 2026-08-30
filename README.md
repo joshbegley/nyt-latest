@@ -1,3 +1,7 @@
+**Long Lines for Gas in Iran Show War and U.S. Blockade Squeezing Supply**\
+`The government is struggling to meet a shortfall in fuel and is wary that higher prices at the pump could stir unrest.`\
+https://www.nytimes.com/2026/08/30/world/middleeast/iran-fuel-supplies-blockade.html
+
 **Corrections: Aug. 30, 2026**\
 `Corrections that appeared in print on Sunday, Aug. 30, 2026.`\
 https://www.nytimes.com/2026/08/30/pageoneplus/corrections-aug-30-2026.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/29/crosswords/daily-puzzle-2026-08-30.html
 **Israeli Settlers Attack Palestinians, Drawing Sharp Rebukes**\
 `The intensity of Saturday’s assault prompted condemnations from Prime Minister Benjamin Netanyahu of Israel and other officials.`\
 https://www.nytimes.com/2026/08/29/world/middleeast/israel-settlers-west-bank-attacks-netanyahu-rebuke.html
-
-**‘A New Form of U.S. Colonialism’: Venezuelans Bristle at U.S. Oil Takeover**\
-`A deal giving the U.S. majority control of vast Venezuelan reserves strikes at the heart of national identity.`\
-https://www.nytimes.com/2026/08/29/world/americas/venezuela-oil-us-takeover.html
 
