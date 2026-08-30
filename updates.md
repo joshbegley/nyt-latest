@@ -1,3 +1,27 @@
+**Is the U.S. Open More Valuable to New York Than the Knicks?**\
+`It’s complicated. But the answer is: Maybe.`\
+https://www.nytimes.com/2026/08/30/nyregion/us-open-economic-impact-new-york-city.html
+
+**El saqueo al arte mexicano**\
+`La disputa por las obras de la Colección Gelman —dónde deberían permanecer y quién puede tener acceso a ellas— es, en realidad, una batalla por el patrimonio cultural de México.`\
+https://www.nytimes.com/es/2026/08/30/espanol/opinion/mexico-arte-frida-kahlo-patrimonio-cultural.html
+
+**‘She Told Me She Had One Vacancy That Met My Criterion’**\
+`A friendly handoff on a hot day, a curious question on the F train and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://www.nytimes.com/2026/08/30/nyregion/metropolitan-diary.html
+
+**He Partied With Athletes and Was Called a Fraud. Then He Was Found Dead.**\
+`Mohamed Coulibaly rose from poverty to a life of private jets and parties with N.F.L. stars who invested in his businesses — until the money stopped flowing. The 23-year-old died this summer.`\
+https://www.nytimes.com/2026/08/30/nyregion/mohamed-coulibaly-scam-mali-nfl.html
+
+**New York Is Relying on Office Conversions to Address Its Housing Crisis**\
+`A New York Times analysis shows that the pace of office-to-residential conversions like the former Pfizer building, where two steel columns buckled in July, has quickened sharply.`\
+https://www.nytimes.com/2026/08/30/nyregion/nyc-conversions-analysis-pfizer.html
+
+**NYT Spelling Bee Answers for August 30, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/08/30/crosswords/spelling-bee-forum.html
+
 **China Says 261 Foreigners From 23 Countries Are Missing in Tibet Flood**\
 `The disclosure offered one of the clearest pictures yet of the disaster on the Chinese side of the border, where authorities have released few details.`\
 https://www.nytimes.com/2026/08/30/world/asia/tibet-nepal-flood-death-toll-china.html
