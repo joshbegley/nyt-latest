@@ -1,3 +1,7 @@
+**Nepal Turns to Mass Burials, as Thousands Remain Missing from Floods**\
+`Only a fraction of the over 2,500 missing are turning up among the dead, underscoring a bleak reality: The death toll is likely to keep rising for days to come.`\
+https://www.nytimes.com/2026/08/30/world/asia/nepal-floods-mass-burials-missing.html
+
 **More Than 22,000 Ancient Artifacts Seized in Florida**\
 `The items include Egyptian statues and ancient Greek and Roman coins that date back 1,000 to 5,000 years, officials said.`\
 https://www.nytimes.com/2026/08/30/us/ancient-artifacts-seized-florida.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/30/magazine/greg-chism-youtube-bad-baby.html
 **Sarah Davachi’s Music: A Manifesto for Listening Closely**\
 `Sarah Davachi’s “The Will of Tongues” is a collection of music that refuses extremes and requires undivided attention.`\
 https://www.nytimes.com/2026/08/30/arts/music/sarah-davachi-the-will-of-tongues.html
-
-**This Governor Could Lose His Primary. A Bridge May Be to Blame.**\
-`The closure of a crucial Rhode Island bridge for safety reasons in 2023, and the traffic nightmare that followed, have dogged Gov. Dan McKee in the Democratic primary.`\
-https://www.nytimes.com/2026/08/30/us/dan-mckee-rhode-island-bridge.html
 
