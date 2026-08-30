@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Aug. 31, 2026**\
+`This crossword by Christopher Youngs calls for a toast.`\
+https://www.nytimes.com/2026/08/30/crosswords/daily-puzzle-2026-08-31.html
+
 **U.S. Attacks Island in Strait of Hormuz, in First Strike on Iran in a Month**\
 `The strikes, against what the military said were launchers for sea mines, appeared to be limited rather than the renewal of larger-scale bombing.`\
 https://www.nytimes.com/2026/08/30/admin/us-attacks-iran-strait-of-hormuz.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/30/us/politics/mail-voting-trump-midterms-suprem
 **Help Wanted: ‘Forward-Deployed’ Humans for the A.I. Era**\
 `Start-ups are using the military-derived term to glorify customer-facing work as clients seek people to help set up artificial intelligence tools.`\
 https://www.nytimes.com/2026/08/30/business/forward-deployed-ai.html
-
-**Ed Markey Defends Transgender Athletes in Massachusetts Senate Race**\
-`Senator Ed Markey of Massachusetts has emerged as a vocal defender of transgender rights as he tries to fend off a primary challenge from Representative Seth Moulton.`\
-https://www.nytimes.com/2026/08/30/us/politics/ed-markey-seth-moulton-transgender-athletes-massachusetts.html
 
