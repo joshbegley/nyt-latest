@@ -1,3 +1,7 @@
+**Nepal Turns to Mass Burials, as Thousands Remain Missing from Floods**\
+`Only a fraction of the over 2,500 missing are turning up among the dead, underscoring a bleak reality: The death toll is likely to keep rising for days to come.`\
+https://www.nytimes.com/2026/08/30/world/asia/nepal-floods-mass-burials-missing.html
+
 **Iceland Votes to Steer Clear of European Union Talks**\
 `After divisive debate, Icelanders rejected a proposal to resume negotiations on joining the bloc in a referendum with the highest voter turnout in almost two decades.`\
 https://www.nytimes.com/2026/08/30/world/europe/iceland-eu-referendum-talks.html
