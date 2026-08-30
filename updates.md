@@ -1,3 +1,11 @@
+**U.S. Attacks Island in Strait of Hormuz, in First Strike on Iran in a Month**\
+`The strikes, against what the military said were launchers for sea mines, appeared to be limited rather than the renewal of larger-scale bombing.`\
+https://www.nytimes.com/2026/08/30/admin/us-attacks-iran-strait-of-hormuz.html
+
+**15 People May Be Missing at Grand Canyon After Flash Flood**\
+`At least 62 people were evacuated on Saturday after flooding destroyed nearly all the footbridges across Bright Angel Creek in Arizona and cut off hikers’ access, the National Park Service said.`\
+https://www.nytimes.com/2026/08/30/us/grand-canyon-flash-flood-people-missing.html
+
 **Ferry Carrying Hundreds of Passengers Capsizes Off Coast of Cyprus**\
 `Local authorities said 267 people were aboard the catamaran-type vessel when it began taking on water shortly after its departure from Kyrenia.`\
 https://www.nytimes.com/2026/08/30/world/europe/cyprus-ferry-capsizes-turkey.html
