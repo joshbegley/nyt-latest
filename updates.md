@@ -1,3 +1,7 @@
+**Iceland Votes to Steer Clear of European Union Talks**\
+`After a divisive national debate, Icelanders rejected a proposal to resume negotiations on joining the bloc, according to the national broadcaster.`\
+https://www.nytimes.com/2026/08/30/world/europe/iceland-eu-referendum-talks.html
+
 **The 10 P.M. Dinner Is a Spanish Tradition. Are People Giving It Up?**\
 `There are signs that Spaniards are eating earlier in the evening. Experts say it could make for a healthier country, but not everyone is ready to part with the custom.`\
 https://www.nytimes.com/2026/08/30/world/europe/spain-late-dinner-time.html

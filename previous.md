@@ -1,3 +1,7 @@
+**Iceland Votes to Steer Clear of European Union Talks**\
+`After a divisive national debate, Icelanders rejected a proposal to resume negotiations on joining the bloc, according to the national broadcaster.`\
+https://www.nytimes.com/2026/08/30/world/europe/iceland-eu-referendum-talks.html
+
 **What Dolly Did for Tennessee Is What She Did for the World**\
 `This is what she did for the written word. And medicine. And …`\
 https://www.nytimes.com/2026/08/30/opinion/dolly-parton-tennessee.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/30/travel/scotland-summer-resort-gleneagles.html
 **Expedia Faces Off With Cuban Families Over Land Seized Decades Ago**\
 `A trial involving claims against the travel company has opened in federal court. Dozens of such lawsuits have been filed since President Trump opened the door to them.`\
 https://www.nytimes.com/2026/08/30/world/americas/cuba-expedia-lawsuit.html
-
-**The 10 P.M. Dinner Is a Spanish Tradition. Are People Giving It Up?**\
-`There are signs that Spaniards are eating earlier in the evening. Experts say it could make for a healthier country, but not everyone is ready to part with the custom.`\
-https://www.nytimes.com/2026/08/30/world/europe/spain-late-dinner-time.html
 
