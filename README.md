@@ -1,3 +1,7 @@
+**A Very Melissa Watermelon Salad**\
+`Summer’s juiciest tomatoes and watermelon team up with — what else? — anchovy bread crumbs for this elegant but easy dish.`\
+https://www.nytimes.com/2026/08/30/dining/a-very-melissa-watermelon-salad.html
+
 **U.A.E. To Review Banque Misr, Targeted by Iran Sanctions**\
 `The Treasury Department accused Banque Misr’s branches in the United Arab Emirates of helping Iran. The Emirati central bank promised an examination.`\
 https://www.nytimes.com/2026/08/30/world/middleeast/uae-banque-misr-treasury-iran.html
@@ -122,8 +126,8 @@ https://www.nytimes.com/2026/08/30/business/the-case-of-the-truly-incorrigible-c
 `A full-length Barbie novel with mature concerns — even Barbie has job troubles, it seems — is allowing women to bring their girlhood passions into adulthood.`\
 https://www.nytimes.com/2026/08/30/style/barbie-novel-alex-aster.html
 
-**Postal Service Rule Could Bar Millions From Voting By Mail**\
-`A judge temporarily blocked the agency from refusing to deliver ballots in noncompliant states, which could disproportionately affect Democrats and many battleground elections.`\
+**Postal Service Rule Could Bar Millions From Voting by Mail**\
+`A judge temporarily blocked the agency from implementing a strict new rule governing mail voting. The policy could disproportionately affect Democrats and many battleground elections.`\
 https://www.nytimes.com/2026/08/30/us/politics/mail-voting-trump-midterms-supreme-court.html
 
 **Help Wanted: ‘Forward-Deployed’ Humans for the A.I. Era**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/30/nyregion/us-open-economic-impact-new-york-cit
 **El saqueo al arte mexicano**\
 `La disputa por las obras de la Colección Gelman —dónde deberían permanecer y quién puede tener acceso a ellas— es, en realidad, una batalla por el patrimonio cultural de México.`\
 https://www.nytimes.com/es/2026/08/30/espanol/opinion/mexico-arte-frida-kahlo-patrimonio-cultural.html
-
-**‘She Told Me She Had One Vacancy That Met My Criterion’**\
-`A friendly handoff on a hot day, a curious question on the F train and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://www.nytimes.com/2026/08/30/nyregion/metropolitan-diary.html
 
