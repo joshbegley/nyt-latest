@@ -1,3 +1,11 @@
+**‘Nuevo colonialismo’: los venezolanos reaccionan ante el control petrolero de Trump**\
+`Un acuerdo que le otorga a EE. UU. el control mayoritario de las vastas reservas venezolanas atenta contra el corazón de la identidad nacional.`\
+https://www.nytimes.com/es/2026/08/30/espanol/america-latina/venezuela-petroleo-trump.html
+
+**Dolly Parton and the ‘Pretty Darn Good’ Southern Church**\
+`For many Americans, Ms. Parton represented an idealized style of faith: one centered in small rural congregations that prize community over ideology.`\
+https://www.nytimes.com/2026/08/30/us/dolly-parton-southern-christianity.html
+
 **Hunt Underway After Deadly Shooting at Swiss Rave**\
 `One reveler was killed and five were injured early Sunday at a dance party at a horseracing track in Switzerland’s north.`\
 https://www.nytimes.com/2026/08/30/world/europe/switzerland-rave-shooting.html
