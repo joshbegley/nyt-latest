@@ -1,3 +1,7 @@
+**The People of Hirosaki, Japan, Try to Move a Castle by Hand**\
+`In Japan, the ancient tradition of hikiya involves moving buildings with ropes and rollers. About 4,000 people teamed up to try it on Hirosaki Castle.`\
+https://www.nytimes.com/2026/08/30/world/asia/japan-hirosaki-castle-moving.html
+
 **Expedia se enfrenta a familias cubanas por tierras expropiadas hace décadas**\
 `Se ha iniciado un juicio en un tribunal federal contra la empresa de viajes. Decenas de demandas similares se han presentado desde que el presidente Trump abrió la puerta a este tipo de litigios.`\
 https://www.nytimes.com/es/2026/08/30/espanol/america-latina/expedia-demanda-terrenos-cuba.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/29/briefing/fast-forward.html
 **Ina Garten Says You Can Either Get on Her Train or Get Out of the Way**\
 `At 78, the cookbook author and Food Network host knows what she likes, knows what she wants and isn’t stopping anytime soon.`\
 https://www.nytimes.com/2026/08/29/magazine/ina-garten-interview.html
-
-**Search Continues for 2,400 Missing in Nepal Floods Amid ‘Immense’ Devastation**\
-`As rescue efforts entered their fourth day, the scale of destruction came into focus, signaling a daunting recovery for the vulnerable nation.`\
-https://www.nytimes.com/2026/08/29/world/asia/nepal-flood-rescue.html
 
