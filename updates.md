@@ -1,3 +1,43 @@
+**Long Lines for Gas in Iran Show War and U.S. Blockade Squeezing Supply**\
+`The government is struggling to meet a shortfall in fuel and is wary that higher prices at the pump could stir unrest.`\
+https://www.nytimes.com/2026/08/30/world/middleeast/iran-fuel-supplies-blockade.html
+
+**Corrections: Aug. 30, 2026**\
+`Corrections that appeared in print on Sunday, Aug. 30, 2026.`\
+https://www.nytimes.com/2026/08/30/pageoneplus/corrections-aug-30-2026.html
+
+**Son conservadoras y quieren ser madres trabajadoras. A la machosfera no le parece**\
+`En un centro conservador para mujeres líderes, las becarias contaron historias sobre sus vidas. Una de ellas dijo que un compañero de clase le había dicho: “No sé si las mujeres deberían ser abogadas”.`\
+https://www.nytimes.com/es/2026/08/30/espanol/estados-unidos/mujeres-conservadoras-trabajo.html
+
+**Book Review: ‘The Disappearers,’ by Marlon James**\
+`Marlon James’s story of gay experience and murderous homophobia in Jamaica is a maximalist’s banquet — and the Booker Prize winner’s finest book yet.`\
+https://www.nytimes.com/2026/08/30/books/review/the-disappearers-marlon-james.html
+
+**A Mortgage Servicer Sent a Letter About an Address Change. Was It Deed Theft?**\
+`A letter arrived in the mail from PNC Bank about an address change on a mortgage account. Was a deed theft scheme in process?`\
+https://www.nytimes.com/2026/08/30/business/address-change-mortgage-scam.html
+
+**En Bali, una misión para salvar el resplandor sagrado de las luciérnagas**\
+`Los insectos, venerados en la cultura local, están desapareciendo por muchas razones, entre ellas el rápido desarrollo turístico.`\
+https://www.nytimes.com/es/2026/08/30/espanol/mundo/luciernagas-sagradas-bali-conservacion.html
+
+**Pilgrims to Flood-Stricken Nepal Sought the Divine at Sacred Mountain**\
+`For many, the trek to Mount Kailash on the border of Nepal and Tibet is a once-in-a-lifetime trip to find spiritual awakening.`\
+https://www.nytimes.com/2026/08/30/us/nepal-floods-religious-tour.html
+
+**Dolly Parton Was Shaped by a Small Rural Church. They’re Fading Away.**\
+`For many Americans, Ms. Parton represented an idealized style of faith: one centered in small rural congregations that prize community over ideology.`\
+https://www.nytimes.com/2026/08/30/us/dolly-parton-southern-christianity.html
+
+**Deportees Sent to Liberia Recount Harrowing Details of U.S. Expulsion and Treatment by ICE**\
+`Ten deportees said they experienced or witnessed what they called abusive or violent treatment by ICE. They spent months in detention, they said, before being sent to nations where they had no ties.`\
+https://www.nytimes.com/2026/08/30/world/africa/us-deportation-flight-ice-detention-liberia.html
+
+**The Case of the Truly Incorrigible Cubicle Yakker**\
+`Plus: Is it normal to video-interview for a job while the hiring panel’s cameras are all off?`\
+https://www.nytimes.com/2026/08/30/business/the-case-of-the-truly-incorrigible-cubicle-yakker.html
+
 **Barbie for Grown-Ups**\
 `A full-length Barbie novel with mature concerns — even Barbie has job troubles, it seems — is allowing women to bring their girlhood passions into adulthood.`\
 https://www.nytimes.com/2026/08/30/style/barbie-novel-alex-aster.html

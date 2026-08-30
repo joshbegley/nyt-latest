@@ -1,3 +1,43 @@
+**Long Lines for Gas in Iran Show War and U.S. Blockade Squeezing Supply**\
+`The government is struggling to meet a shortfall in fuel and is wary that higher prices at the pump could stir unrest.`\
+https://www.nytimes.com/2026/08/30/world/middleeast/iran-fuel-supplies-blockade.html
+
+**Corrections: Aug. 30, 2026**\
+`Corrections that appeared in print on Sunday, Aug. 30, 2026.`\
+https://www.nytimes.com/2026/08/30/pageoneplus/corrections-aug-30-2026.html
+
+**Son conservadoras y quieren ser madres trabajadoras. A la machosfera no le parece**\
+`En un centro conservador para mujeres líderes, las becarias contaron historias sobre sus vidas. Una de ellas dijo que un compañero de clase le había dicho: “No sé si las mujeres deberían ser abogadas”.`\
+https://www.nytimes.com/es/2026/08/30/espanol/estados-unidos/mujeres-conservadoras-trabajo.html
+
+**Book Review: ‘The Disappearers,’ by Marlon James**\
+`Marlon James’s story of gay experience and murderous homophobia in Jamaica is a maximalist’s banquet — and the Booker Prize winner’s finest book yet.`\
+https://www.nytimes.com/2026/08/30/books/review/the-disappearers-marlon-james.html
+
+**A Mortgage Servicer Sent a Letter About an Address Change. Was It Deed Theft?**\
+`A letter arrived in the mail from PNC Bank about an address change on a mortgage account. Was a deed theft scheme in process?`\
+https://www.nytimes.com/2026/08/30/business/address-change-mortgage-scam.html
+
+**En Bali, una misión para salvar el resplandor sagrado de las luciérnagas**\
+`Los insectos, venerados en la cultura local, están desapareciendo por muchas razones, entre ellas el rápido desarrollo turístico.`\
+https://www.nytimes.com/es/2026/08/30/espanol/mundo/luciernagas-sagradas-bali-conservacion.html
+
+**Pilgrims to Flood-Stricken Nepal Sought the Divine at Sacred Mountain**\
+`For many, the trek to Mount Kailash on the border of Nepal and Tibet is a once-in-a-lifetime trip to find spiritual awakening.`\
+https://www.nytimes.com/2026/08/30/us/nepal-floods-religious-tour.html
+
+**Dolly Parton Was Shaped by a Small Rural Church. They’re Fading Away.**\
+`For many Americans, Ms. Parton represented an idealized style of faith: one centered in small rural congregations that prize community over ideology.`\
+https://www.nytimes.com/2026/08/30/us/dolly-parton-southern-christianity.html
+
+**Deportees Sent to Liberia Recount Harrowing Details of U.S. Expulsion and Treatment by ICE**\
+`Ten deportees said they experienced or witnessed what they called abusive or violent treatment by ICE. They spent months in detention, they said, before being sent to nations where they had no ties.`\
+https://www.nytimes.com/2026/08/30/world/africa/us-deportation-flight-ice-detention-liberia.html
+
+**The Case of the Truly Incorrigible Cubicle Yakker**\
+`Plus: Is it normal to video-interview for a job while the hiring panel’s cameras are all off?`\
+https://www.nytimes.com/2026/08/30/business/the-case-of-the-truly-incorrigible-cubicle-yakker.html
+
 **Barbie for Grown-Ups**\
 `A full-length Barbie novel with mature concerns — even Barbie has job troubles, it seems — is allowing women to bring their girlhood passions into adulthood.`\
 https://www.nytimes.com/2026/08/30/style/barbie-novel-alex-aster.html
@@ -157,44 +197,4 @@ https://www.nytimes.com/2026/08/29/crosswords/daily-puzzle-2026-08-30.html
 **Israeli Settlers Attack Palestinians, Drawing Sharp Rebukes**\
 `The intensity of Saturday’s assault prompted condemnations from Prime Minister Benjamin Netanyahu of Israel and other officials.`\
 https://www.nytimes.com/2026/08/29/world/middleeast/israel-settlers-west-bank-attacks-netanyahu-rebuke.html
-
-**‘A New Form of U.S. Colonialism’: Venezuelans Bristle at U.S. Oil Takeover**\
-`A deal giving the U.S. majority control of vast Venezuelan reserves strikes at the heart of national identity.`\
-https://www.nytimes.com/2026/08/29/world/americas/venezuela-oil-us-takeover.html
-
-**Azriel Blackman, Airline Mechanic for 80 Years, Dies at 100**\
-`With a career commemorated by Guinness World Records, he started as an apprentice in 1942 and worked on a panoply of propeller-driven and jet aircraft until he retired in 2022.`\
-https://www.nytimes.com/2026/08/29/us/azriel-al-blackman-dead.html
-
-**India’s ‘Cockroaches’ Are Fighting Back**\
-`Inside India’s viral political movement.`\
-https://www.nytimes.com/2026/08/29/opinion/india-gen-z-cockroach-movement.html
-
-**India’s Gen Z Cockroach Movement Was a Joke — Until It Wasn’t**\
-`Inside India’s viral political movement.`\
-https://www.nytimes.com/video/opinion/100000011101919/indias-gen-z-cockroach-movement-was-a-joke-until-it-wasnt.html
-
-**Warsh, After Talking Tough on Inflation, Faces a ‘No-Win Situation’ on Rates**\
-`Kevin M. Warsh, the chairman of the Federal Reserve, must soon decide whether to raise interest rates if inflation does not ease, even if it draws President Trump’s ire.`\
-https://www.nytimes.com/2026/08/29/business/kevin-warsh-inflation-rates-fed.html
-
-**Thieves Smash Museum Case for Diamond Necklace Worth Millions in Vienna**\
-`The theft of the precious object, once owned by an Egyptian queen and later sold to satisfy her creditors, was the latest in a string of high-profile museum losses.`\
-https://www.nytimes.com/2026/08/29/world/europe/diamond-necklace-theft-vienna.html
-
-**Nepal Rescuers Bore Through Tunnels to Try to Reach 900 Workers Missing After Floods**\
-`The Nepal Army, which is leading rescue efforts, turned to the trapped workers more than a day after the flood, according to army officials, industry groups and private rescuers.`\
-https://www.nytimes.com/2026/08/29/world/asia/nepal-flood-hydropower-tunnels-rescue-missing-workers.html
-
-**Milo Yiannopoulos, Right-Wing Agitator, Deported Home to U.K.**\
-`Mr. Yiannopoulos, an early supporter of President Trump and vocal supporter of mass deportations, was himself sent back to his home country, part of a long fall from right-wing grace.`\
-https://www.nytimes.com/2026/08/29/us/politics/milo-yiannopoulos-deported.html
-
-**Baby Goats From a Traveling Petting Zoo Test Positive for Rabies**\
-`Farm Adventures of Harmony, N.C., owned the goats, state health officials said. It was unclear how many people might have been exposed to them since late July.`\
-https://www.nytimes.com/2026/08/29/us/rabies-goats-petting-zoo-north-carolina.html
-
-**Napa County Winery Worker Charged With Starting Pickett Fire That Damaged Grape Harvests**\
-`The Pickett fire burned nearly 7,000 acres in California wine country last year, causing millions of dollars in losses.`\
-https://www.nytimes.com/2026/08/29/us/napa-county-pickett-fire-california-worker-charged.html
 
