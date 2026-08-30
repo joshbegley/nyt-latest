@@ -1,3 +1,7 @@
+**U.S. Attacks Island in Strait of Hormuz; Iran Retaliates With Missile Fire**\
+`The exchange on Sunday was the first known military action between the two nations in a month, raising the risk of a renewed round of fighting.`\
+https://www.nytimes.com/2026/08/30/admin/us-attacks-iran-strait-of-hormuz.html
+
 **NYT Crossword Answers for Aug. 31, 2026**\
 `This crossword by Christopher Youngs calls for a toast.`\
 https://www.nytimes.com/2026/08/30/crosswords/daily-puzzle-2026-08-31.html
