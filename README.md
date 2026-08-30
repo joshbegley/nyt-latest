@@ -1,3 +1,7 @@
+**Google Maps Changes Lake Ontario to Lake America Following Trump’s Executive Order**\
+`Users in the United States will see the new label, following President Trump’s executive order last week.`\
+https://www.nytimes.com/2026/08/30/world/canada/lake-ontario-america-google-maps.html
+
 **See Nepali Rescue Workers Testing Aid Delivery by Drone**\
 `Some survivors of the deadly flood and landslide have no access to food. Officials and volunteers are testing how drones can help.`\
 https://www.nytimes.com/2026/08/30/world/asia/nepal-floods-aid-drone.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/world/asia/100000011115965/japan-hirosaki-castle-h
 **Así es como Meta llegó a un acuerdo judicial de 17,1 millardos de dólares**\
 `El acuerdo, uno de los convenios más grandes entre una empresa y un grupo de estados, implicó meses de negociaciones y una serie de derrotas legales para el gigante de las redes sociales.`\
 https://www.nytimes.com/es/2026/08/30/espanol/negocios/meta-acuerdo-demanda-mark-zuckerberg.html
-
-**Women Don’t Quit. We Should.**\
-`Women are eager disciples of the “Never give up” dogma. But if we treat persevering and quitting as opposites, we lose.`\
-https://www.nytimes.com/2026/08/30/opinion/women-men-gender-quit.html
 

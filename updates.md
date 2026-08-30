@@ -1,3 +1,7 @@
+**See Nepali Rescue Workers Testing Aid Delivery by Drone**\
+`Some survivors of the deadly flood and landslide have no access to food. Officials and volunteers are testing how drones can help.`\
+https://www.nytimes.com/2026/08/30/world/asia/nepal-floods-aid-drone.html
+
 **This Corn-Jalapeño Pasta Is a Favorite in My House**\
 `And four more speedy dinners that hold on to summer.`\
 https://www.nytimes.com/2026/08/30/dining/this-corn-jalapeno-pasta-is-a-favorite-in-my-house.html

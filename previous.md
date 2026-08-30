@@ -1,3 +1,7 @@
+**See Nepali Rescue Workers Testing Aid Delivery by Drone**\
+`Some survivors of the deadly flood and landslide have no access to food. Officials and volunteers are testing how drones can help.`\
+https://www.nytimes.com/2026/08/30/world/asia/nepal-floods-aid-drone.html
+
 **This Corn-Jalapeño Pasta Is a Favorite in My House**\
 `And four more speedy dinners that hold on to summer.`\
 https://www.nytimes.com/2026/08/30/dining/this-corn-jalapeno-pasta-is-a-favorite-in-my-house.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/08/30/espanol/negocios/meta-acuerdo-demanda-mark
 **Women Don’t Quit. We Should.**\
 `Women are eager disciples of the “Never give up” dogma. But if we treat persevering and quitting as opposites, we lose.`\
 https://www.nytimes.com/2026/08/30/opinion/women-men-gender-quit.html
-
-**The People of Hirosaki, Japan, Try to Move a Castle by Hand**\
-`In Japan, the ancient tradition of hikiya involves moving buildings with ropes and rollers. About 4,000 people teamed up to try it on Hirosaki Castle.`\
-https://www.nytimes.com/2026/08/30/world/asia/japan-hirosaki-castle-moving.html
 
