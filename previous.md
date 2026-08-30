@@ -1,3 +1,7 @@
+**China Says 261 Foreigners From 23 Countries Are Missing in Tibet Flood**\
+`The disclosure offered one of the clearest pictures yet of the disaster on the Chinese side of the border, where authorities have released few details.`\
+https://www.nytimes.com/2026/08/30/world/asia/tibet-nepal-flood-death-toll-china.html
+
 **Watch Volunteers Pull a 400-Year-Old Castle by Hand**\
 `Adults and children have been using their hands to move Hirosaki Castle in Aomori Prefecture, Japan. The ancient method is known as hikiya.`\
 https://www.nytimes.com/video/world/asia/100000011115965/japan-hirosaki-castle-hikiya.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/29/crosswords/connections-companion-1176.html
 **Today’s Wordle Hints for August 30, 2026**\
 `Scroll down for hints and conversation about the puzzle for Sunday, Aug. 30, 2026.`\
 https://www.nytimes.com/2026/08/29/crosswords/wordle-review-1898.html
-
-**Elbows and Chin Up: A Whirlwind Week in the U.S.-Canada Trade War**\
-`After trade talks collapsed, Mark Carney rallied the nation, Canadian businesses stood defiant, and President Trump moved to rename Lake Ontario.`\
-https://www.nytimes.com/2026/08/29/world/canada/carney-trump-trade-war-tariffs-canada-us.html
 

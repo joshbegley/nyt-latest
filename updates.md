@@ -1,3 +1,7 @@
+**China Says 261 Foreigners From 23 Countries Are Missing in Tibet Flood**\
+`The disclosure offered one of the clearest pictures yet of the disaster on the Chinese side of the border, where authorities have released few details.`\
+https://www.nytimes.com/2026/08/30/world/asia/tibet-nepal-flood-death-toll-china.html
+
 **Watch Volunteers Pull a 400-Year-Old Castle by Hand**\
 `Adults and children have been using their hands to move Hirosaki Castle in Aomori Prefecture, Japan. The ancient method is known as hikiya.`\
 https://www.nytimes.com/video/world/asia/100000011115965/japan-hirosaki-castle-hikiya.html
