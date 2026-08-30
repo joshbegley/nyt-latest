@@ -1,3 +1,7 @@
+**SpaceX Launches NASA’s Roman Telescope**\
+`SpaceX launched the Nancy Grace Roman Space Telescope on a Falcon Heavy rocket on Sunday.`\
+https://www.nytimes.com/video/embedded/science/space/100000011121940/spacex-launches-nasas-roman-telescope.html
+
 **Google Maps Changes Lake Ontario to Lake America Following Trump’s Executive Order**\
 `Users in the United States will see the new label, following President Trump’s executive order last week.`\
 https://www.nytimes.com/2026/08/30/world/canada/lake-ontario-america-google-maps.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/30/world/asia/tibet-nepal-flood-death-toll-china
 **Watch Volunteers Pull a 400-Year-Old Castle by Hand**\
 `Adults and children have been using their hands to move Hirosaki Castle in Aomori Prefecture, Japan. The ancient method is known as hikiya.`\
 https://www.nytimes.com/video/world/asia/100000011115965/japan-hirosaki-castle-hikiya.html
-
-**Así es como Meta llegó a un acuerdo judicial de 17,1 millardos de dólares**\
-`El acuerdo, uno de los convenios más grandes entre una empresa y un grupo de estados, implicó meses de negociaciones y una serie de derrotas legales para el gigante de las redes sociales.`\
-https://www.nytimes.com/es/2026/08/30/espanol/negocios/meta-acuerdo-demanda-mark-zuckerberg.html
 

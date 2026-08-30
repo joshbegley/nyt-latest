@@ -1,3 +1,7 @@
+**SpaceX Launches NASA’s Roman Telescope**\
+`SpaceX launched the Nancy Grace Roman Space Telescope on a Falcon Heavy rocket on Sunday.`\
+https://www.nytimes.com/video/embedded/science/space/100000011121940/spacex-launches-nasas-roman-telescope.html
+
 **Google Maps Changes Lake Ontario to Lake America Following Trump’s Executive Order**\
 `Users in the United States will see the new label, following President Trump’s executive order last week.`\
 https://www.nytimes.com/2026/08/30/world/canada/lake-ontario-america-google-maps.html
