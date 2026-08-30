@@ -1,3 +1,11 @@
+**When a Bear Cub Decides Your Boot Is an Appetizer**\
+`In Alaska, a cub taste-tested the footwear of a photographer, who got a rare close-up. The cub may have found it to be meh, or even revolting, judging by its reaction.`\
+https://www.nytimes.com/2026/08/30/us/baby-bear-shoe-photographer-alaska.html
+
+**Curious Bear Cub Nibbles on Photographer’s Boot**\
+`A photographer in Alaska caught the moment a bear cub nibbled on his boot.`\
+https://www.nytimes.com/video/us/100000011122014/grizzly-bear-cub-photographer-shoe.html
+
 **Nepal Turns to Mass Burials, as Thousands Remain Missing from Floods**\
 `Only a fraction of the over 2,500 missing are turning up among the dead, underscoring a bleak reality: The death toll is likely to keep rising for days to come.`\
 https://www.nytimes.com/2026/08/30/world/asia/nepal-floods-mass-burials-missing.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/30/movies/venice-film-festival-lido.html
 **Venice Film Festival: Wim Wenders Talks About Architecture and More**\
 `The director talks about his documentary on Peter Zumthor, the Pritzker Prize-winning Swiss architect, which is premiering at the Venice Film Festival.`\
 https://www.nytimes.com/2026/08/30/movies/wim-wenders-peter-zumthor-venice-film.html
-
-**He Was a Top Lawn Care Influencer on YouTube. Then Everything Went Haywire.**\
-`Many people think Greg Chism is a freak — or worse. He says he was just following the incentives of the platform.`\
-https://www.nytimes.com/2026/08/30/magazine/greg-chism-youtube-bad-baby.html
-
-**Sarah Davachi’s Music: A Manifesto for Listening Closely**\
-`Sarah Davachi’s “The Will of Tongues” is a collection of music that refuses extremes and requires undivided attention.`\
-https://www.nytimes.com/2026/08/30/arts/music/sarah-davachi-the-will-of-tongues.html
 
