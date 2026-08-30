@@ -1,3 +1,63 @@
+**Barbie for Grown-Ups**\
+`A full-length Barbie novel with mature concerns — even Barbie has job troubles, it seems — is allowing women to bring their girlhood passions into adulthood.`\
+https://www.nytimes.com/2026/08/30/style/barbie-novel-alex-aster.html
+
+**Postal Service Rule Could Bar Millions From Voting By Mail**\
+`A judge temporarily blocked the agency from refusing to deliver ballots in noncompliant states, which could disproportionately affect Democrats and many battleground elections.`\
+https://www.nytimes.com/2026/08/30/us/politics/mail-voting-trump-midterms-supreme-court.html
+
+**Help Wanted: ‘Forward-Deployed’ Humans for the A.I. Era**\
+`Start-ups are using the military-derived term to glorify customer-facing work as clients seek people to help set up artificial intelligence tools.`\
+https://www.nytimes.com/2026/08/30/business/forward-deployed-ai.html
+
+**Ed Markey Defends Transgender Athletes in Massachusetts Senate Race**\
+`Senator Ed Markey of Massachusetts has emerged as a vocal defender of transgender rights as he tries to fend off a primary challenge from Representative Seth Moulton.`\
+https://www.nytimes.com/2026/08/30/us/politics/ed-markey-seth-moulton-transgender-athletes-massachusetts.html
+
+**Watch SpaceX Launch NASA’s Roman Telescope to Chart the Stars**\
+`Astronomers will use data collected by Roman’s wide, deep gaze to study the dark universe and hunt for new worlds.`\
+https://www.nytimes.com/2026/08/30/science/spacex-roman-telescope-launch.html
+
+**For the Venice Film Festival, an Island Setting for Almost a Century**\
+`Once a year, the tiny island of Lido is transformed into a rich field of artistic expression for the festival.`\
+https://www.nytimes.com/2026/08/30/movies/venice-film-festival-lido.html
+
+**Venice Film Festival: Wim Wenders Talks About Architecture and More**\
+`The director talks about his documentary on Peter Zumthor, the Pritzker Prize-winning Swiss architect, which is premiering at the Venice Film Festival.`\
+https://www.nytimes.com/2026/08/30/movies/wim-wenders-peter-zumthor-venice-film.html
+
+**He Was a Top Lawn Care Influencer on YouTube. Then Everything Went Haywire.**\
+`Many people think Greg Chism is a freak — or worse. He says he was just following the incentives of the platform.`\
+https://www.nytimes.com/2026/08/30/magazine/greg-chism-youtube-bad-baby.html
+
+**Sarah Davachi’s Music: A Manifesto for Listening Closely**\
+`Sarah Davachi’s “The Will of Tongues” is a collection of music that refuses extremes and requires undivided attention.`\
+https://www.nytimes.com/2026/08/30/arts/music/sarah-davachi-the-will-of-tongues.html
+
+**Venice Film Festival: Ellen Burstyn to Recieve a Lifetime Achievement Award**\
+`The actress will receive a Golden Lion for her decades on stages and screens large and small at the Venice Film Festival.`\
+https://www.nytimes.com/2026/08/30/movies/ellen-burstyn-venice-film-festival.html
+
+**This Governor Could Lose His Primary. A Bridge May Be to Blame.**\
+`The closure of a crucial Rhode Island bridge for safety reasons in 2023, and the traffic nightmare that followed, have dogged Gov. Dan McKee in the Democratic primary.`\
+https://www.nytimes.com/2026/08/30/us/dan-mckee-rhode-island-bridge.html
+
+**How Trump’s Policy Agenda Runs Through One Federal Court, in Texas**\
+`For years, conservative litigants flocked to Judge Reed O’Connor’s district. Now, North Texas has become a favorite destination of the Justice Department.`\
+https://www.nytimes.com/2026/08/30/us/politics/texas-judge-trump-agenda.html
+
+**Far Right Is Poised to Win in a German State, but Fight Over Power Won’t End There**\
+`State and federal leaders are trying to avoid sharing sensitive intelligence with the Alternative for Germany should it take power in a state’s elections next week.`\
+https://www.nytimes.com/2026/08/30/world/europe/germany-afd-saxony-anhalt.html
+
+**Pennsylvania Gambling Addicts Hope that ‘Skill Games’ Will Go Bust**\
+`The machines, which enjoyed legal protection until a recent court ruling, could go dark in October.`\
+https://www.nytimes.com/2026/08/30/business/skill-games-pennsylvania-gambling.html
+
+**How Marlon James Confronted ‘the Story I Was Not Allowed to Live’**\
+`With “The Disappearers,” the Booker Prize-winning author has written his most personal novel yet.`\
+https://www.nytimes.com/2026/08/30/books/review/marlon-james-interview-the-disappearers.html
+
 **¿El Zodiaco mató a la Dalia Negra? Este escritor de novela negra cree que sí**\
 `El novelista Michael Connelly sabe que se juega su reputación con el pódcast “Killer in the Code”. Pero, pese al escepticismo de sus críticos, considera que las pruebas son “completamente convincentes”.`\
 https://www.nytimes.com/es/2026/08/30/espanol/cultura/zodiaco-dalia-negra-asesino.html
