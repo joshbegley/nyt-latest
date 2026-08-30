@@ -1,3 +1,7 @@
+**Tennis’s Lost Shot**\
+`As the U.S. Open kicks off, we’re exploring a tennis technique that has quietly gone extinct.`\
+https://www.nytimes.com/2026/08/30/briefing/tenniss-lost-shot.html
+
 **Iceland Votes to Steer Clear of European Union Talks**\
 `After a divisive national debate, Icelanders rejected a proposal to resume negotiations on joining the bloc, according to the national broadcaster.`\
 https://www.nytimes.com/2026/08/30/world/europe/iceland-eu-referendum-talks.html
