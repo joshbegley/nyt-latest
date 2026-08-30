@@ -1,3 +1,7 @@
+**Google Maps Changes Lake Ontario to Lake America Following Trump’s Executive Order**\
+`Users in the United States will see the new label, following President Trump’s executive order last week.`\
+https://www.nytimes.com/2026/08/30/world/canada/lake-ontario-america-google-maps.html
+
 **See Nepali Rescue Workers Testing Aid Delivery by Drone**\
 `Some survivors of the deadly flood and landslide have no access to food. Officials and volunteers are testing how drones can help.`\
 https://www.nytimes.com/2026/08/30/world/asia/nepal-floods-aid-drone.html
