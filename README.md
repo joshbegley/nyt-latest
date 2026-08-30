@@ -1,4 +1,4 @@
-**Stranded Climber Recalls: One Wrong Move Now, and That’s It. I Die.**\
+**Climber Recounts Rescue From 6-Inch Ledge Atop California Mountain**\
 `Rob Martin was stranded for hours before rescuers reached him. He recalled thinking: “One wrong move now, and that’s it. I die.”`\
 https://www.nytimes.com/2026/08/30/us/sierra-nevada-climber-rescued-mountains.html
 
