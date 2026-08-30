@@ -1,3 +1,7 @@
+**Hunt Underway After Deadly Shooting at Swiss Rave**\
+`One reveler was killed and five were injured early Sunday at a dance party at a horseracing track in Switzerland’s north.`\
+https://www.nytimes.com/2026/08/30/world/europe/switzerland-rave-shooting.html
+
 **Iceland Votes to Steer Clear of European Union Talks**\
 `After a divisive debate, Icelanders rejected a proposal to resume negotiations on joining the bloc. The referendum drew the highest voter turnout in almost two decades.`\
 https://www.nytimes.com/2026/08/30/world/europe/iceland-eu-referendum-talks.html

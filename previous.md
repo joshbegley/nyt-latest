@@ -11,7 +11,7 @@ https://www.nytimes.com/2026/08/30/us/politics/trump-venezuela-oil-us-reserves.h
 https://www.nytimes.com/2026/08/30/nyregion/manholes-sewers-nyc.html
 
 **Hunt Underway After Deadly Shooting at Swiss Rave**\
-`One reveler was killed, and five were injured early Sunday at a dance party at a horseracing track in Switzerland’s north.`\
+`One reveler was killed and five were injured early Sunday at a dance party at a horseracing track in Switzerland’s north.`\
 https://www.nytimes.com/2026/08/30/world/europe/switzerland-rave-shooting.html
 
 **Climber Recounts Rescue From 6-Inch Ledge Atop California Mountain**\
