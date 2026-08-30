@@ -1,3 +1,7 @@
+**Trump Says Venezuelan Oil Will Refill U.S. Stockpiles, but It’s Not So Simple**\
+`New projects can take years to produce meaningful amounts of oil, and that’s especially true in Venezuela, where infrastructure is in disrepair.`\
+https://www.nytimes.com/2026/08/30/us/politics/trump-venezuela-oil-us-reserves.html
+
 **People Keep Sneaking Into New York City Sewers. No One Knows Why.**\
 `A recent spate of subterranean exploring has piqued the curiosity of New Yorkers — and concerned officials who warn of danger underground.`\
 https://www.nytimes.com/2026/08/30/nyregion/manholes-sewers-nyc.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/30/business/skill-games-pennsylvania-gambling.ht
 **How Marlon James Confronted ‘the Story I Was Not Allowed to Live’**\
 `With “The Disappearers,” the Booker Prize-winning author has written his most personal novel yet.`\
 https://www.nytimes.com/2026/08/30/books/review/marlon-james-interview-the-disappearers.html
-
-**¿El Zodiaco mató a la Dalia Negra? Este escritor de novela negra cree que sí**\
-`El novelista Michael Connelly sabe que se juega su reputación con el pódcast “Killer in the Code”. Pero, pese al escepticismo de sus críticos, considera que las pruebas son “completamente convincentes”.`\
-https://www.nytimes.com/es/2026/08/30/espanol/cultura/zodiaco-dalia-negra-asesino.html
 

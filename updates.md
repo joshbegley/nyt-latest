@@ -1,3 +1,7 @@
+**Trump Says Venezuelan Oil Will Refill U.S. Stockpiles, but It’s Not So Simple**\
+`New projects can take years to produce meaningful amounts of oil, and that’s especially true in Venezuela, where infrastructure is in disrepair.`\
+https://www.nytimes.com/2026/08/30/us/politics/trump-venezuela-oil-us-reserves.html
+
 **Hunt Underway After Deadly Shooting at Swiss Rave**\
 `One reveler was killed, and five were injured early Sunday at a dance party at a horseracing track in Switzerland’s north.`\
 https://www.nytimes.com/2026/08/30/world/europe/switzerland-rave-shooting.html
