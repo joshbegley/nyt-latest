@@ -114,13 +114,13 @@ https://www.nytimes.com/2026/08/30/magazine/greg-chism-youtube-bad-baby.html
 `Sarah Davachi’s “The Will of Tongues” is a collection of music that refuses extremes and requires undivided attention.`\
 https://www.nytimes.com/2026/08/30/arts/music/sarah-davachi-the-will-of-tongues.html
 
-**Venice Film Festival: Ellen Burstyn to Recieve a Lifetime Achievement Award**\
-`The actress will receive a Golden Lion for her decades on stages and screens large and small at the Venice Film Festival.`\
-https://www.nytimes.com/2026/08/30/movies/ellen-burstyn-venice-film-festival.html
-
 **This Governor Could Lose His Primary. A Bridge May Be to Blame.**\
 `The closure of a crucial Rhode Island bridge for safety reasons in 2023, and the traffic nightmare that followed, have dogged Gov. Dan McKee in the Democratic primary.`\
 https://www.nytimes.com/2026/08/30/us/dan-mckee-rhode-island-bridge.html
+
+**Venice Film Festival: Ellen Burstyn to Recieve a Lifetime Achievement Award**\
+`The actress will receive a Golden Lion for her decades on stages and screens large and small at the Venice Film Festival.`\
+https://www.nytimes.com/2026/08/30/movies/ellen-burstyn-venice-film-festival.html
 
 **How Trump’s Policy Agenda Runs Through One Federal Court, in Texas**\
 `For years, conservative litigants flocked to Judge Reed O’Connor’s district. Now, North Texas has become a favorite destination of the Justice Department.`\
