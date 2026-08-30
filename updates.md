@@ -1,3 +1,15 @@
+**People Keep Sneaking Into New York City Sewers. No One Knows Why.**\
+`A recent spate of subterranean exploring has piqued the curiosity of New Yorkers — and concerned officials who warn of danger underground.`\
+https://www.nytimes.com/2026/08/30/nyregion/manholes-sewers-nyc.html
+
+**Shooting at Swiss Rave Leaves One Reveler Dead and Five Wounded**\
+`A hunt was underway for the person or people who attacked the victims, who were all Swiss citizens.`\
+https://www.nytimes.com/2026/08/30/world/europe/switzerland-rave-shooting.html
+
+**NASA’s Nancy Grace Roman Telescope Leaves Earth to Chart the Stars**\
+`Astronomers will use data collected by Roman’s wide, deep gaze to study the dark universe and hunt for new worlds.`\
+https://www.nytimes.com/2026/08/30/science/spacex-roman-telescope-launch.html
+
 **Before Nepal’s Floods, Hindu Pilgrims Sought the Divine at Mount Kailash**\
 `For many, the trek to Mount Kailash on the border of Nepal and Tibet is a once-in-a-lifetime trip to find spiritual awakening.`\
 https://www.nytimes.com/2026/08/30/us/nepal-floods-religious-tour.html

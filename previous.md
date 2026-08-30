@@ -1,3 +1,11 @@
+**People Keep Sneaking Into New York City Sewers. No One Knows Why.**\
+`A recent spate of subterranean exploring has piqued the curiosity of New Yorkers — and concerned officials who warn of danger underground.`\
+https://www.nytimes.com/2026/08/30/nyregion/manholes-sewers-nyc.html
+
+**Shooting at Swiss Rave Leaves One Reveler Dead and Five Wounded**\
+`A hunt was underway for the person or people who attacked the victims, who were all Swiss citizens.`\
+https://www.nytimes.com/2026/08/30/world/europe/switzerland-rave-shooting.html
+
 **Climber Recounts Rescue From 6-Inch Ledge Atop California Mountain**\
 `Rob Martin was stranded for hours before rescuers reached him. He recalled thinking: “One wrong move now, and that’s it. I die.”`\
 https://www.nytimes.com/2026/08/30/us/sierra-nevada-climber-rescued-mountains.html
@@ -142,7 +150,7 @@ https://www.nytimes.com/2026/08/30/business/forward-deployed-ai.html
 `Senator Ed Markey of Massachusetts has emerged as a vocal defender of transgender rights as he tries to fend off a primary challenge from Representative Seth Moulton.`\
 https://www.nytimes.com/2026/08/30/us/politics/ed-markey-seth-moulton-transgender-athletes-massachusetts.html
 
-**NASA’s Nancy Grace Roman Telescope’s Roman Telescope Leaves Earth to Chart the Stars**\
+**NASA’s Nancy Grace Roman Telescope Leaves Earth to Chart the Stars**\
 `Astronomers will use data collected by Roman’s wide, deep gaze to study the dark universe and hunt for new worlds.`\
 https://www.nytimes.com/2026/08/30/science/spacex-roman-telescope-launch.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/30/books/review/marlon-james-interview-the-disap
 **¿El Zodiaco mató a la Dalia Negra? Este escritor de novela negra cree que sí**\
 `El novelista Michael Connelly sabe que se juega su reputación con el pódcast “Killer in the Code”. Pero, pese al escepticismo de sus críticos, considera que las pruebas son “completamente convincentes”.`\
 https://www.nytimes.com/es/2026/08/30/espanol/cultura/zodiaco-dalia-negra-asesino.html
-
-**Más espectáculos en menos lugares: así es como las residencias tomaron la industria musical**\
-`La más reciente toma del Madison Square Garden por parte de Harry Styles es parte de una tendencia que, según algunos, transfiere a los fans el costo de salir de gira.`\
-https://www.nytimes.com/es/2026/08/30/espanol/cultura/harry-styles-conciertos-residencias-madison.html
-
-**Is the U.S. Open More Valuable to New York Than the Knicks?**\
-`It’s complicated. But the answer is: Maybe.`\
-https://www.nytimes.com/2026/08/30/nyregion/us-open-economic-impact-new-york-city.html
 
