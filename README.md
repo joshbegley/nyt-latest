@@ -1,3 +1,63 @@
+**Barbie for Grown-Ups**\
+`A full-length Barbie novel with mature concerns — even Barbie has job troubles, it seems — is allowing women to bring their girlhood passions into adulthood.`\
+https://www.nytimes.com/2026/08/30/style/barbie-novel-alex-aster.html
+
+**Postal Service Rule Could Bar Millions From Voting By Mail**\
+`A judge temporarily blocked the agency from refusing to deliver ballots in noncompliant states, which could disproportionately affect Democrats and many battleground elections.`\
+https://www.nytimes.com/2026/08/30/us/politics/mail-voting-trump-midterms-supreme-court.html
+
+**Help Wanted: ‘Forward-Deployed’ Humans for the A.I. Era**\
+`Start-ups are using the military-derived term to glorify customer-facing work as clients seek people to help set up artificial intelligence tools.`\
+https://www.nytimes.com/2026/08/30/business/forward-deployed-ai.html
+
+**Ed Markey Defends Transgender Athletes in Massachusetts Senate Race**\
+`Senator Ed Markey of Massachusetts has emerged as a vocal defender of transgender rights as he tries to fend off a primary challenge from Representative Seth Moulton.`\
+https://www.nytimes.com/2026/08/30/us/politics/ed-markey-seth-moulton-transgender-athletes-massachusetts.html
+
+**Watch SpaceX Launch NASA’s Roman Telescope to Chart the Stars**\
+`Astronomers will use data collected by Roman’s wide, deep gaze to study the dark universe and hunt for new worlds.`\
+https://www.nytimes.com/2026/08/30/science/spacex-roman-telescope-launch.html
+
+**For the Venice Film Festival, an Island Setting for Almost a Century**\
+`Once a year, the tiny island of Lido is transformed into a rich field of artistic expression for the festival.`\
+https://www.nytimes.com/2026/08/30/movies/venice-film-festival-lido.html
+
+**Venice Film Festival: Wim Wenders Talks About Architecture and More**\
+`The director talks about his documentary on Peter Zumthor, the Pritzker Prize-winning Swiss architect, which is premiering at the Venice Film Festival.`\
+https://www.nytimes.com/2026/08/30/movies/wim-wenders-peter-zumthor-venice-film.html
+
+**He Was a Top Lawn Care Influencer on YouTube. Then Everything Went Haywire.**\
+`Many people think Greg Chism is a freak — or worse. He says he was just following the incentives of the platform.`\
+https://www.nytimes.com/2026/08/30/magazine/greg-chism-youtube-bad-baby.html
+
+**Sarah Davachi’s Music: A Manifesto for Listening Closely**\
+`Sarah Davachi’s “The Will of Tongues” is a collection of music that refuses extremes and requires undivided attention.`\
+https://www.nytimes.com/2026/08/30/arts/music/sarah-davachi-the-will-of-tongues.html
+
+**Venice Film Festival: Ellen Burstyn to Recieve a Lifetime Achievement Award**\
+`The actress will receive a Golden Lion for her decades on stages and screens large and small at the Venice Film Festival.`\
+https://www.nytimes.com/2026/08/30/movies/ellen-burstyn-venice-film-festival.html
+
+**This Governor Could Lose His Primary. A Bridge May Be to Blame.**\
+`The closure of a crucial Rhode Island bridge for safety reasons in 2023, and the traffic nightmare that followed, have dogged Gov. Dan McKee in the Democratic primary.`\
+https://www.nytimes.com/2026/08/30/us/dan-mckee-rhode-island-bridge.html
+
+**How Trump’s Policy Agenda Runs Through One Federal Court, in Texas**\
+`For years, conservative litigants flocked to Judge Reed O’Connor’s district. Now, North Texas has become a favorite destination of the Justice Department.`\
+https://www.nytimes.com/2026/08/30/us/politics/texas-judge-trump-agenda.html
+
+**Far Right Is Poised to Win in a German State, but Fight Over Power Won’t End There**\
+`State and federal leaders are trying to avoid sharing sensitive intelligence with the Alternative for Germany should it take power in a state’s elections next week.`\
+https://www.nytimes.com/2026/08/30/world/europe/germany-afd-saxony-anhalt.html
+
+**Pennsylvania Gambling Addicts Hope that ‘Skill Games’ Will Go Bust**\
+`The machines, which enjoyed legal protection until a recent court ruling, could go dark in October.`\
+https://www.nytimes.com/2026/08/30/business/skill-games-pennsylvania-gambling.html
+
+**How Marlon James Confronted ‘the Story I Was Not Allowed to Live’**\
+`With “The Disappearers,” the Booker Prize-winning author has written his most personal novel yet.`\
+https://www.nytimes.com/2026/08/30/books/review/marlon-james-interview-the-disappearers.html
+
 **¿El Zodiaco mató a la Dalia Negra? Este escritor de novela negra cree que sí**\
 `El novelista Michael Connelly sabe que se juega su reputación con el pódcast “Killer in the Code”. Pero, pese al escepticismo de sus críticos, considera que las pruebas son “completamente convincentes”.`\
 https://www.nytimes.com/es/2026/08/30/espanol/cultura/zodiaco-dalia-negra-asesino.html
@@ -137,60 +197,4 @@ https://www.nytimes.com/2026/08/29/us/rabies-goats-petting-zoo-north-carolina.ht
 **Napa County Winery Worker Charged With Starting Pickett Fire That Damaged Grape Harvests**\
 `The Pickett fire burned nearly 7,000 acres in California wine country last year, causing millions of dollars in losses.`\
 https://www.nytimes.com/2026/08/29/us/napa-county-pickett-fire-california-worker-charged.html
-
-**Russian Attack on a Weapons Depot Kills Dozens in Ukraine**\
-`A deadly Russian strike on a weapons depot on Friday killed at least 37 people near Kyiv, prompting an investigation into arms storage in civilian areas.`\
-https://www.nytimes.com/video/world/europe/100000011121384/russia-ukraine-strike-kyiv-weapon-depot.html
-
-**40,000 Pounds of Pabst Blue Ribbon Beer Reported Stolen in California**\
-`The company responded to the theft by setting a deadline for the return of the product. “P.S., this is real and we are deadly serious,” it said on social media.`\
-https://www.nytimes.com/2026/08/29/business/pabst-beer-truck-stolen-california.html
-
-**En fotos y video: la avalancha que causó la inundación en Nepal y el Tíbet**\
-`Videos exclusivos verificados por el Times muestran la vista más clara hasta ahora de la avalancha en el Himalaya que hizo que un muro de agua y lodo recorriera los valles fluviales situados más abajo.`\
-https://www.nytimes.com/es/2026/08/29/espanol/mundo/avalancha-nepal-tibet-fotos-video.html
-
-**El-Sayed Apologizes for March Comment About Michigan Synagogue Attack**\
-`Dr. Abdul El-Sayed, the Democratic Senate nominee in Michigan, faced criticism from Jewish Democrats after remarking, “hurt people hurt people.”`\
-https://www.nytimes.com/2026/08/29/us/politics/el-sayed-apology-jewish-democrats.html
-
-**An ICE Shooting, an Extradition Showdown and the Federal Case That Stalled**\
-`Federal prosecutors planned to charge an immigration agent arrested in connection with a shooting in Minneapolis. Then the agent walked free.`\
-https://www.nytimes.com/2026/08/29/us/christian-castro-ice-agent-minnesota-texas.html
-
-**Relative of Afghans Who Helped U.S. Military Is Deported to Africa**\
-`The Trump administration has deported thousands of immigrants to countries where they have no ties. Dozens were on the latest flight, to the Central African Republic.`\
-https://www.nytimes.com/2026/08/29/us/afghans-deported-us-central-african-republic.html
-
-**Trump Is in Open Revolt Against the Constitution**\
-`The mail-in voting fiasco is the latest proof that we have another reconstruction ahead of us.`\
-https://www.nytimes.com/2026/08/29/opinion/trump-mail-in-voting-constitution.html
-
-**A Clever Vegetarian Take on a Beloved Hawaiian Snack**\
-`Tofu musubi are fun to make, easy to transport and a joy to eat.`\
-https://www.nytimes.com/2026/08/29/dining/a-clever-vegetarian-take-on-a-beloved-hawaiian-snack.html
-
-**Teleprompter Operator Who Bet on Trump Speeches Is Ordered to Pay Fine**\
-`Gabriel Perez had access to the president’s speeches before they were delivered and was accused of placing unlawful wagers on words that would be spoken.`\
-https://www.nytimes.com/2026/08/29/us/politics/teleprompter-trump-speech-kalshi-perez-bet.html
-
-**One Democrat to Face Three Republicans for Alaska Governor**\
-`The second-place finisher in a primary where the top four advance to the November ballot said he would drop out of the race so voters could coalesce behind a single Democratic candidate.`\
-https://www.nytimes.com/2026/08/29/us/alaska-governor-candidates.html
-
-**Thievery or Innovation? The Music Industry Grapples With A.I.**\
-`Some labels have sued A.I. music generators like Suno. Others have partnered with them. At least one has done both.`\
-https://www.nytimes.com/2026/08/29/business/dealbook/ai-generated-music.html
-
-**37 Killed After Russian Strike on Weapons Depot as Ukraine Blames Negligence**\
-`The depot, which was in a civilian area near Kyiv, “definitely shouldn’t have been there,” President Volodymyr Zelensky said.`\
-https://www.nytimes.com/2026/08/29/world/europe/russia-ukraine-strike-kyiv-drones.html
-
-**¿Ya cerraste tus ‘círculos sociales’ esta semana?**\
-`Es bueno para la salud ejercitar el músculo de la amistad.`\
-https://www.nytimes.com/es/2026/08/29/espanol/vida-social-amigos.html
-
-**Mountains Are Coming Undone**\
-`The burning of fossil fuels is pulling down the world’s highest peaks.`\
-https://www.nytimes.com/2026/08/29/opinion/nepal-flood-glacier-melt-climate-change.html
 
