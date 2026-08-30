@@ -1,3 +1,7 @@
+**Dolly Parton’s Marriage to Carl Dean Was Fueled by Distance and Difference**\
+`Dolly Parton met Carl Dean outside a Nashville laundromat in 1964. For decades, she was as protective of her marriage as he was fiercely private.`\
+https://www.nytimes.com/2026/08/30/arts/music/dolly-parton-carl-dean-marriage-relationship.html
+
 **Trump Says Venezuelan Oil Will Refill U.S. Stockpiles, but It’s Not So Simple**\
 `New projects can take years to produce meaningful amounts of oil, and that’s especially true in Venezuela, where infrastructure is in disrepair.`\
 https://www.nytimes.com/2026/08/30/us/politics/trump-venezuela-oil-us-reserves.html
