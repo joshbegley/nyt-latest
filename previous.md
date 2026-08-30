@@ -1,3 +1,7 @@
+**Expedia se enfrenta a familias cubanas por tierras expropiadas hace décadas**\
+`Se ha iniciado un juicio en un tribunal federal contra la empresa de viajes. Decenas de demandas similares se han presentado desde que el presidente Trump abrió la puerta a este tipo de litigios.`\
+https://www.nytimes.com/es/2026/08/30/espanol/america-latina/expedia-demanda-terrenos-cuba.html
+
 **In Scotland, Luxury Hotel Gleneagles Offers a Posh Summer Camp for Grown-Ups**\
 `It’s the mix of lush adventures by day and elegant dinners by night that makes the luxury hotel Gleneagles, outside Edinburgh, so tempting.`\
 https://www.nytimes.com/2026/08/30/travel/scotland-summer-resort-gleneagles.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/29/magazine/ina-garten-interview.html
 **Search Continues for 2,400 Missing in Nepal Floods Amid ‘Immense’ Devastation**\
 `As rescue efforts entered their fourth day, the scale of destruction came into focus, signaling a daunting recovery for the vulnerable nation.`\
 https://www.nytimes.com/2026/08/29/world/asia/nepal-flood-rescue.html
-
-**As Deadly Flash Flooding Batters Nepal, Some Fear ‘the Entire Himalayas Are Melting’**\
-`A glacier unleashed a deadly flood earlier this week. For local trekking guides and climbers, the mountains were already changing.`\
-https://www.nytimes.com/2026/08/29/travel/flash-flood-nepal-global-warming-himalayas.html
 
