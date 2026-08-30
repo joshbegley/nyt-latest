@@ -1,3 +1,7 @@
+**Hunt Underway After Deadly Shooting at Swiss Rave**\
+`One reveler was killed, and five were injured early Sunday at a dance party at a horseracing track in Switzerland’s north.`\
+https://www.nytimes.com/2026/08/30/world/europe/switzerland-rave-shooting.html
+
 **People Keep Sneaking Into New York City Sewers. No One Knows Why.**\
 `A recent spate of subterranean exploring has piqued the curiosity of New Yorkers — and concerned officials who warn of danger underground.`\
 https://www.nytimes.com/2026/08/30/nyregion/manholes-sewers-nyc.html
