@@ -1,3 +1,7 @@
+**U.A.E. To Review Banque Misr, Targeted by Iran Sanctions**\
+`The Treasury Department accused Banque Misr’s branches in the United Arab Emirates of helping Iran. The Emirati central bank promised an examination.`\
+https://www.nytimes.com/2026/08/30/world/middleeast/uae-banque-misr-treasury-iran.html
+
 **Ferry Carrying Hundreds of Passengers Capsizes Off Coast of Cyprus**\
 `Local authorities said 267 people were aboard the catamaran-type vessel when it began taking on water shortly after its departure from Kyrenia.`\
 https://www.nytimes.com/2026/08/30/world/europe/cyprus-ferry-capsizes-turkey.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/08/30/espanol/opinion/mexico-arte-frida-kahlo-pa
 **‘She Told Me She Had One Vacancy That Met My Criterion’**\
 `A friendly handoff on a hot day, a curious question on the F train and more reader tales of New York City in this week’s Metropolitan Diary.`\
 https://www.nytimes.com/2026/08/30/nyregion/metropolitan-diary.html
-
-**After Fraud Accusations, a Young Entrepreneur’s Rise Ends in Tragedy**\
-`Mohamed Coulibaly rose from poverty to a life of private jets and parties with N.F.L. stars who invested in his businesses — until the money stopped flowing. The 23-year-old died this summer.`\
-https://www.nytimes.com/2026/08/30/nyregion/mohamed-coulibaly-scam-mali-nfl.html
 
