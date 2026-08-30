@@ -1,3 +1,7 @@
+**Stranded Climber Recalls: One Wrong Move Now, and That’s It. I Die.**\
+`Rob Martin was stranded for hours before rescuers reached him. He recalled thinking: “One wrong move now, and that’s it. I die.”`\
+https://www.nytimes.com/2026/08/30/us/sierra-nevada-climber-rescued-mountains.html
+
 **A Very Melissa Watermelon Salad**\
 `Summer’s juiciest tomatoes and watermelon team up with — what else? — anchovy bread crumbs for this elegant but easy dish.`\
 https://www.nytimes.com/2026/08/30/dining/a-very-melissa-watermelon-salad.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/08/30/espanol/cultura/harry-styles-conciertos-re
 **Is the U.S. Open More Valuable to New York Than the Knicks?**\
 `It’s complicated. But the answer is: Maybe.`\
 https://www.nytimes.com/2026/08/30/nyregion/us-open-economic-impact-new-york-city.html
-
-**El saqueo al arte mexicano**\
-`La disputa por las obras de la Colección Gelman —dónde deberían permanecer y quién puede tener acceso a ellas— es, en realidad, una batalla por el patrimonio cultural de México.`\
-https://www.nytimes.com/es/2026/08/30/espanol/opinion/mexico-arte-frida-kahlo-patrimonio-cultural.html
 

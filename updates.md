@@ -1,3 +1,11 @@
+**A Very Melissa Watermelon Salad**\
+`Summer’s juiciest tomatoes and watermelon team up with — what else? — anchovy bread crumbs for this elegant but easy dish.`\
+https://www.nytimes.com/2026/08/30/dining/a-very-melissa-watermelon-salad.html
+
+**Postal Service Rule Could Bar Millions From Voting by Mail**\
+`A judge temporarily blocked the agency from implementing a strict new rule governing mail voting. The policy could disproportionately affect Democrats and many battleground elections.`\
+https://www.nytimes.com/2026/08/30/us/politics/mail-voting-trump-midterms-supreme-court.html
+
 **U.A.E. To Review Banque Misr, Targeted by Iran Sanctions**\
 `The Treasury Department accused Banque Misr’s branches in the United Arab Emirates of helping Iran. The Emirati central bank promised an examination.`\
 https://www.nytimes.com/2026/08/30/world/middleeast/uae-banque-misr-treasury-iran.html
