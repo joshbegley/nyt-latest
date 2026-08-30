@@ -1,3 +1,7 @@
+**Watch Volunteers Pull a 400-Year-Old Castle by Hand**\
+`Adults and children have been using their hands to move Hirosaki Castle in Aomori Prefecture, Japan. The ancient method is known as hikiya.`\
+https://www.nytimes.com/video/world/asia/100000011115965/japan-hirosaki-castle-hikiya.html
+
 **Así es como Meta llegó a un acuerdo judicial de 17,1 millardos de dólares**\
 `El acuerdo, uno de los convenios más grandes entre una empresa y un grupo de estados, implicó meses de negociaciones y una serie de derrotas legales para el gigante de las redes sociales.`\
 https://www.nytimes.com/es/2026/08/30/espanol/negocios/meta-acuerdo-demanda-mark-zuckerberg.html

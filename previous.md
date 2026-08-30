@@ -1,3 +1,7 @@
+**Watch Volunteers Pull a 400-Year-Old Castle by Hand**\
+`Adults and children have been using their hands to move Hirosaki Castle in Aomori Prefecture, Japan. The ancient method is known as hikiya.`\
+https://www.nytimes.com/video/world/asia/100000011115965/japan-hirosaki-castle-hikiya.html
+
 **Así es como Meta llegó a un acuerdo judicial de 17,1 millardos de dólares**\
 `El acuerdo, uno de los convenios más grandes entre una empresa y un grupo de estados, implicó meses de negociaciones y una serie de derrotas legales para el gigante de las redes sociales.`\
 https://www.nytimes.com/es/2026/08/30/espanol/negocios/meta-acuerdo-demanda-mark-zuckerberg.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/29/crosswords/wordle-review-1898.html
 **Elbows and Chin Up: A Whirlwind Week in the U.S.-Canada Trade War**\
 `After trade talks collapsed, Mark Carney rallied the nation, Canadian businesses stood defiant, and President Trump moved to rename Lake Ontario.`\
 https://www.nytimes.com/2026/08/29/world/canada/carney-trump-trade-war-tariffs-canada-us.html
-
-**NYT Strands Hints for August 30, 2026**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Aug. 30, 2026`\
-https://www.nytimes.com/2026/08/29/crosswords/strands-sidekick-910.html
 
