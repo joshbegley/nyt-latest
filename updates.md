@@ -1,3 +1,7 @@
+**Melting Himalayas**\
+`Scientists are still working out the precise cause of the disaster in Nepal, but one thing seems certain: The risk of such events is increasing.`\
+https://www.nytimes.com/2026/08/30/world/nepal-tibet-flood-glacier-nasa.html
+
 **When a Bear Cub Decides Your Boot Is an Appetizer**\
 `In Alaska, a cub taste-tested the footwear of a photographer, who got a rare close-up. The cub may have found it to be meh, or even revolting, judging by its reaction.`\
 https://www.nytimes.com/2026/08/30/us/baby-bear-shoe-photographer-alaska.html
