@@ -1,3 +1,7 @@
+**Ferry Carrying Hundreds of Passengers Capsizes Off Coast of Cyprus**\
+`Local authorities said 267 people were aboard the catamaran-type vessel when it began taking on water shortly after its departure from Kyrenia.`\
+https://www.nytimes.com/2026/08/30/world/europe/cyprus-ferry-capsizes-turkey.html
+
 **Why the United States Can’t Quit Its Wars**\
 `The country’s longest war came to an end exactly five years ago. Today it offers lessons for policymakers seeking to avoid an endless war in Iran.`\
 https://www.nytimes.com/2026/08/30/us/politics/us-wars-iran-afghanistan.html
@@ -190,11 +194,7 @@ https://www.nytimes.com/es/2026/08/30/espanol/opinion/mexico-arte-frida-kahlo-pa
 `A friendly handoff on a hot day, a curious question on the F train and more reader tales of New York City in this week’s Metropolitan Diary.`\
 https://www.nytimes.com/2026/08/30/nyregion/metropolitan-diary.html
 
-**He Partied With Athletes and Was Called a Fraud. Then He Was Found Dead.**\
+**After Fraud Accusations, a Young Entrepreneur’s Rise Ends in Tragedy**\
 `Mohamed Coulibaly rose from poverty to a life of private jets and parties with N.F.L. stars who invested in his businesses — until the money stopped flowing. The 23-year-old died this summer.`\
 https://www.nytimes.com/2026/08/30/nyregion/mohamed-coulibaly-scam-mali-nfl.html
-
-**New York Is Relying on Office Conversions to Address Its Housing Crisis**\
-`A New York Times analysis shows that the pace of office-to-residential conversions like the former Pfizer building, where two steel columns buckled in July, has quickened sharply.`\
-https://www.nytimes.com/2026/08/30/nyregion/nyc-conversions-analysis-pfizer.html
 
