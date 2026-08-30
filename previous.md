@@ -1,3 +1,7 @@
+**Nepal Flood Survivors Return to Devastated Towns**\
+`Our correspondent Anupreeta Das visited Bidur, Nepal, days after floods devastated the region. Residents sifted through thick mud to salvage what remained of their homes.`\
+https://www.nytimes.com/video/world/asia/100000011120032/nepal-flood-survivors-return-to-devastated-towns.html
+
 **Trump’s Venezuelan Oil Deal Relies on a Powerful and Divisive Partner**\
 `The administration will work with a private Venezuelan oil company that has close ties to the country’s government.`\
 https://www.nytimes.com/2026/08/29/business/energy-environment/venezuela-alejandro-betancourt-oil-trump.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/29/business/nepal-hydropower-flood.html
 **For LGBTQ Fans, Dolly Parton Inspired Their Wigs and Makeup, and Had Their Back Too**\
 `Dolly Parton was an advocate for her L.G.B.T.Q. fans. She also understood them, a meaningful bond in places where such recognition was hard to find.`\
 https://www.nytimes.com/2026/08/29/us/dolly-parton-drag-queens-lgbtq.html
-
-**La guía turística que sobrevivió al 11-S**\
-`Christina Stanton ofrece un recorrido muy específico y sumamente personal por el sitio del World Trade Center para recordar a los visitantes lo que ocurrió hace 25 años.`\
-https://www.nytimes.com/es/2026/08/29/espanol/la-guia-turistica-que-sobrevivio-al-11-s.html
 

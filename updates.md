@@ -1,3 +1,7 @@
+**Nepal Flood Survivors Return to Devastated Towns**\
+`Our correspondent Anupreeta Das visited Bidur, Nepal, days after floods devastated the region. Residents sifted through thick mud to salvage what remained of their homes.`\
+https://www.nytimes.com/video/world/asia/100000011120032/nepal-flood-survivors-return-to-devastated-towns.html
+
 **Trump’s Venezuelan Oil Deal Relies on a Powerful and Divisive Partner**\
 `The administration will work with a private Venezuelan oil company that has close ties to the country’s government.`\
 https://www.nytimes.com/2026/08/29/business/energy-environment/venezuela-alejandro-betancourt-oil-trump.html
