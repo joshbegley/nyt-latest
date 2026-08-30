@@ -1,3 +1,7 @@
+**Iceland Votes to Steer Clear of European Union Talks**\
+`After divisive debate, Icelanders rejected a proposal to resume negotiations on joining the bloc in a referendum with the highest voter turnout in almost two decades.`\
+https://www.nytimes.com/2026/08/30/world/europe/iceland-eu-referendum-talks.html
+
 **More Than 22,000 Ancient Artifacts Seized in Florida**\
 `The items include Egyptian statues and ancient Greek and Roman coins that date back 1,000 to 5,000 years, officials said.`\
 https://www.nytimes.com/2026/08/30/us/ancient-artifacts-seized-florida.html
