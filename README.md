@@ -1,3 +1,7 @@
+**¿La cena tardía en España está desapareciendo?**\
+`Hay indicios de que los españoles están cenando más temprano. Los expertos dicen que podría hacer del país uno más saludable, pero no todos están listos para abandonar la costumbre.`\
+https://www.nytimes.com/es/2026/08/31/espanol/mundo/espana-cena-hora.html
+
 **NYT Spelling Bee Answers for August 31, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/08/31/crosswords/spelling-bee-forum.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/30/opinion/wonder-awe-aging.html
 **NYT Strands Hints for August 31, 2026**\
 `Scroll down for hints and conversation about the puzzle for Monday, Aug. 31, 2026.`\
 https://www.nytimes.com/2026/08/30/crosswords/strands-sidekick-911.html
-
-**Long Lines for Gas in Iran Show War and U.S. Blockade Squeezing Supply**\
-`The government is struggling to meet a shortfall in fuel and is wary that higher prices at the pump could stir unrest.`\
-https://www.nytimes.com/2026/08/30/world/middleeast/iran-fuel-supplies-blockade.html
 

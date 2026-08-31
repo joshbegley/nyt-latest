@@ -42,6 +42,10 @@ https://www.nytimes.com/2026/08/30/arts/television/lanterns-recap-season-1-episo
 `A search and rescue helicopter near Bright Angel campground inside the park on Saturday.`\
 https://www.nytimes.com/video/embedded/arts/dance/100000011122589/15-people-may-be-missing-at-the-grand-canyon-after-flash-flood.html
 
+**A Deadly Flash Flood Hits Grand Canyon**\
+`There was a deadly flash flood in Grand Canyon National Park. Dozens of people were evacuated, and parts of the park closed as rescuers searched for missing people.`\
+https://www.nytimes.com/video/us/100000011122385/after-flash-flood-15-people-are-unaccounted-for-at-grand-canyon.html
+
 **NYT Crossword Answers for Aug. 31, 2026**\
 `This crossword by Christopher Youngs calls for a toast.`\
 https://www.nytimes.com/2026/08/30/crosswords/daily-puzzle-2026-08-31.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/30/crosswords/strands-sidekick-911.html
 **Long Lines for Gas in Iran Show War and U.S. Blockade Squeezing Supply**\
 `The government is struggling to meet a shortfall in fuel and is wary that higher prices at the pump could stir unrest.`\
 https://www.nytimes.com/2026/08/30/world/middleeast/iran-fuel-supplies-blockade.html
-
-**Corrections: Aug. 30, 2026**\
-`Corrections that appeared in print on Sunday, Aug. 30, 2026.`\
-https://www.nytimes.com/2026/08/30/pageoneplus/corrections-aug-30-2026.html
 

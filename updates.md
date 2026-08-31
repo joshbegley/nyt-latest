@@ -1,3 +1,7 @@
+**A Deadly Flash Flood Hits Grand Canyon**\
+`There was a deadly flash flood in Grand Canyon National Park. Dozens of people were evacuated, and parts of the park closed as rescuers searched for missing people.`\
+https://www.nytimes.com/video/us/100000011122385/after-flash-flood-15-people-are-unaccounted-for-at-grand-canyon.html
+
 **NYT Spelling Bee Answers for August 31, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/08/31/crosswords/spelling-bee-forum.html
