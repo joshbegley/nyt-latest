@@ -1,3 +1,11 @@
+**Expedia Fights Off Claim for Damages by Cuban Exile Families**\
+`A jury in Florida found that in their suit against the travel booking company, the plaintiffs had failed to prove ownership over tourism properties in Cuba.`\
+https://www.nytimes.com/2026/08/31/world/americas/expedia-cuba-exiles-suit.html
+
+**JD Vance Called Michigan Senate Candidate Abdul El-Sayed ‘Evil’ in Speech**\
+`Vice President JD Vance also told Dr. Abdul El-Sayed, Michigan’s Democratic Senate nominee, to “keep my wife’s name out of your mouth.”`\
+https://www.nytimes.com/2026/08/31/us/politics/vance-el-sayed-michigan-speech.html
+
 **Phantom Island Mysteriously Appears, Then Vanishes on B.C. Reservoir**\
 `Officials first thought it was just an A.I. ruse, until they checked satellite images of northern British Columbia. The mystery deepened, and on Monday the island was located.`\
 https://www.nytimes.com/2026/08/31/world/canada/missing-island-canada-williston-reservoir.html

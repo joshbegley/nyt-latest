@@ -1,3 +1,7 @@
+**Two Dead and More Than a Dozen Missing in Grand Canyon Flood**\
+`Officials confirmed a second death on Monday after flash floods hit the Grand Canyon National Park.`\
+https://www.nytimes.com/video/us/100000011123621/grand-canyon-flash-flood-deaths.html
+
 **Expedia Fights Off Claim for Damages by Cuban Exile Families**\
 `A jury in Florida found that in their suit against the travel booking company, the plaintiffs had failed to prove ownership over tourism properties in Cuba.`\
 https://www.nytimes.com/2026/08/31/world/americas/expedia-cuba-exiles-suit.html
