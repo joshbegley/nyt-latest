@@ -1,3 +1,11 @@
+**Private Equity Wants to Invest in College Sports. Some Schools Are Wary.**\
+`As desperate as many athletic programs are for money, they are proceeding cautiously when it comes to deals with private equity.`\
+https://www.nytimes.com/2026/08/31/business/private-equity-college-sports.html
+
+**‘We Are Shattered’: Survivors Recall Chaos as Ferry Sank Near Cyprus**\
+`The vessel capsized in rough seas, leaving its passengers struggling to escape. Eight were killed and 20 are still missing.`\
+https://www.nytimes.com/2026/08/31/world/europe/cyprus-ferry-turkey.html
+
 **Ukrainian Drone Mastermind, Fired by Kyiv, Will Advise Italy’s Defense Chief**\
 `The appointment of Mykhailo Fedorov, a Ukrainian former defense minister, showed how other militaries are racing to adapt to battlefield changes accelerated by the war in Ukraine.`\
 https://www.nytimes.com/2026/08/31/world/europe/italy-ukraine-fedorov-adviser.html

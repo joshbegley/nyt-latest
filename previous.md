@@ -1,3 +1,7 @@
+**Private Equity Wants to Invest in College Sports. Some Schools Are Wary.**\
+`As desperate as many athletic programs are for money, they are proceeding cautiously when it comes to deals with private equity.`\
+https://www.nytimes.com/2026/08/31/business/private-equity-college-sports.html
+
 **Ukrainian Drone Mastermind, Fired by Kyiv, Will Advise Italy’s Defense Chief**\
 `The appointment of Mykhailo Fedorov, a Ukrainian former defense minister, showed how other militaries are racing to adapt to battlefield changes accelerated by the war in Ukraine.`\
 https://www.nytimes.com/2026/08/31/world/europe/italy-ukraine-fedorov-adviser.html
@@ -58,8 +62,8 @@ https://www.nytimes.com/2026/08/31/world/asia/putin-xi-modi-sco.html
 `Phantom Ranch, the only lodge within the Grand Canyon, has drawn adventurers and dignitaries, including Theodore Roosevelt, for more than a century.`\
 https://www.nytimes.com/2026/08/31/us/grand-canyon-flooding-phantom-ranch.html
 
-**Survivors of Cyprus Ferry Sinking Describe a Harrowing Escape**\
-`“My daughter slipped away from my hands,” one survivor told a Turkish news channel.`\
+**‘We Are Shattered’: Survivors Recall Chaos as Ferry Sank Near Cyprus**\
+`The vessel capsized in rough seas, leaving its passengers struggling to escape. Eight were killed and 20 are still missing.`\
 https://www.nytimes.com/2026/08/31/world/europe/cyprus-ferry-turkey.html
 
 **Dark Money**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/31/travel/labor-day-america-250.html
 **This Fall, Fashion Goes Oversize**\
 `High-contrast men’s wear mixes matte black with bold colors, and extrabulky layers with slim-cut silhouettes.`\
 https://www.nytimes.com/2026/08/31/t-magazine/mens-fashion-layers-oversize.html
-
-**Gene-Editing Technology Offers New Ways to Create the Dogs of Our Dreams**\
-`Technologies like CRISPR are giving us new ways to create the dogs of our dreams — and a reason to reckon with our past mistakes.`\
-https://www.nytimes.com/2026/08/31/science/dog-breeding-gene-editing-crispr.html
 

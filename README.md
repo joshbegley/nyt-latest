@@ -22,7 +22,7 @@ https://www.nytimes.com/2026/08/31/travel/grand-canyon-reopen-floods-what-to-kno
 `La reanudación de los ataques fue el indicio más reciente de que la guerra que comenzó hace seis meses parece estar lejos de terminar.`\
 https://www.nytimes.com/es/2026/08/31/espanol/mundo/iran-estados-unidos-guerra-bombardeo.html
 
-**Warring Cartels Target Women in Mexico**\
+**‘The Nest of Snakes’: Warring Cartels Target Women in Mexico**\
 `A two-year war between rival Sinaloa Cartel factions is driving a surge in killings and disappearances targeting women.`\
 https://www.nytimes.com/2026/08/31/world/americas/warring-cartels-target-women-in-mexico.html
 
