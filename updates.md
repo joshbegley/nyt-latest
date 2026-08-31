@@ -1,3 +1,7 @@
+**China Is the Star at a Summit With the Leaders of Russia, India and Iran**\
+`The two-day conference of the 10-nation Shanghai Cooperation Organization in Kyrgyzstan shows the limits of U.S. economic warfare.`\
+https://www.nytimes.com/2026/08/31/world/asia/putin-xi-modi-sco.html
+
 **Luxury Berkshires Hotel Could Become a Single-Family Home**\
 `The future of Wheatleigh, a Gilded Age mansion and luxury hotel in the Berkshires on the market for $14.5 million, depends on who buys it — and when.`\
 https://www.nytimes.com/2026/08/31/realestate/wheatleigh-gilded-age-hotel-tanglewood.html

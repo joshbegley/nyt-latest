@@ -1,3 +1,7 @@
+**Lionel Messi’s Retirement From Soccer Sparks Heartbreak Across Argentina**\
+`Lionel Messi’s retirement from the national soccer team, though widely expected, sparked fears of a diminished squad, and heartbreak over the departure of a national icon.`\
+https://www.nytimes.com/2026/08/31/world/americas/lionel-messi-retirement-soccer-argentina.html
+
 **Luxury Berkshires Hotel Could Become a Single-Family Home**\
 `The future of Wheatleigh, a Gilded Age mansion and luxury hotel in the Berkshires on the market for $14.5 million, depends on who buys it — and when.`\
 https://www.nytimes.com/2026/08/31/realestate/wheatleigh-gilded-age-hotel-tanglewood.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/31/opinion/democrats-wokeness-republicans.html
 **Lindsay Clancy Murder Trial: Jury Deliberations Expected to Continue**\
 `Jurors resumed discussion of the high-profile case on Monday, after deliberating last week for about 10 hours over two days.`\
 https://www.nytimes.com/2026/08/31/us/lindsay-clancy-murder-trial-jury-deliberations.html
-
-**Why the Times/Siena Poll Isn’t Hanging Up the Phone**\
-`Reader mailbag: The traditional use of phones in Times/Siena surveys is far from perfect, but its strengths shouldn’t be overlooked.`\
-https://www.nytimes.com/2026/08/31/upshot/times-siena-phone-polling.html
 
