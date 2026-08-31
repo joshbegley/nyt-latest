@@ -1,3 +1,11 @@
+**Trump Mocks Data-Center Opponents as Wanting to Stay ‘Backwards and Poor’**\
+`The giant computing sites that power A.I. are increasingly opposed by communities across the country, a signal of voters’ concern about a changing economy.`\
+https://www.nytimes.com/2026/08/31/us/politics/trump-data-centers.html
+
+**Army Secretary Daniel Driscoll Resigns as U.S. Military Grapples With Two Wars**\
+`The resignation of Daniel P. Driscoll, the secretary of the Army, had been expected but comes at a tumultuous time for the service.`\
+https://www.nytimes.com/2026/08/31/us/politics/army-secretary-daniel-driscoll-resign.html
+
 **Army’s Top Civilian Leader Resigns as It Grapples With Two Wars**\
 `The resignation of Daniel P. Driscoll, the secretary of the Army, had been expected but comes at a tumultuous time for the service.`\
 https://www.nytimes.com/2026/08/31/us/politics/armys-top-civilian-leader-resigns-as-it-grapples-with-two-wars.html
