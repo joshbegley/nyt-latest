@@ -1,3 +1,7 @@
+**A Principal Saved 900 Students Before His School Was Washed Away in Nepal**\
+`Rajendra Dawadi had less than 15 minutes to act on a warning of approaching floodwaters. His swift evacuation plan saved hundreds of lives.`\
+https://www.nytimes.com/2026/08/31/world/asia/nepal-floods-teacher.html
+
 **After Floods, Grand Canyon Opens on a Limited Basis. What to Know.**\
 `As the search for missing visitors continues, the National Park has shut down hotels and much of its terrain, but visitors can still enter.`\
 https://www.nytimes.com/2026/08/31/travel/grand-canyon-reopen-floods-what-to-know.html

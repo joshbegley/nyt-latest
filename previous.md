@@ -18,7 +18,7 @@ https://www.nytimes.com/2026/08/31/science/ai-consciousness-agents-email.html
 `Los psicólogos dijeron que los cambios eran una victoria simbólica, pero advirtieron que su eficacia podría ser limitada.`\
 https://www.nytimes.com/es/2026/08/31/espanol/meta-acuerdo-salud-mental-jovenes.html
 
-**A Principal Saved 900 Children Before His School Was Washed Away in Nepal**\
+**A Principal Saved 900 Students Before His School Was Washed Away in Nepal**\
 `Rajendra Dawadi had less than 15 minutes to act on a warning of approaching floodwaters. His swift evacuation plan saved hundreds of lives.`\
 https://www.nytimes.com/2026/08/31/world/asia/nepal-floods-teacher.html
 
