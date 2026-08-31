@@ -1,3 +1,15 @@
+**DOJ Issues Grand Jury Subpoena to James Comey Confidant Daniel Richman**\
+`The subpoena of Daniel C. Richman is the latest move in a persistent campaign to go after James B. Comey, one of President Trump’s most reviled political adversaries who has already been indicted twice.`\
+https://www.nytimes.com/2026/08/31/us/justice-department-subpoena-james-comey-richman-trump.html
+
+**Audit Revenue Has Plummeted Under Trump, Watchdog Finds**\
+`The I.R.S. lost roughly a quarter of its employees since President Trump took office, hampering the agency’s ability to conduct audits.`\
+https://www.nytimes.com/2026/08/31/business/irs-audit-revenue.html
+
+**Designer John Galliano Withdraws From Met Exhibition After Backlash**\
+`The designer, John Galliano, pulled out from an exhibition at the Metropolitan Museum of Art after furor mounted over the museum’s choice to honor him. In 2011, Mr. Galliano was convicted of an antisemitic hate crime by a French court.`\
+https://www.nytimes.com/video/arts/100000011123146/john-galliano-met-museum-gala-designer.html
+
 **What Cigarettes Can Teach Us About Teens and Social Media**\
 `In light of the changes Meta announced it would make for teen accounts, the “Hard Fork” co-hosts Kevin Roose and Casey Newton discuss whether the updates will result in better mental health for young people.`\
 https://www.nytimes.com/video/podcasts/100000011124024/what-cigarettes-can-teach-us-about-teens-and-social-media.html
@@ -177,16 +189,4 @@ https://www.nytimes.com/2026/08/31/world/europe/ukraine-kyiv-drones-russia-siren
 **U.S. Start-Up and Saudi Arabia Form Data Center Partnership**\
 `Together AI, which serves open-source artificial intelligence models, announced a deal to use compute from Humain in Saudi Arabia, where it can bypass U.S. backlash over data centers.`\
 https://www.nytimes.com/2026/08/31/business/dealbook/together-ai-humain-saudi-arabia-data-center.html
-
-**The Navy’s Supply Chain Struggle, and Trump’s Unusual Oil Deal in Venezuela**\
-`Plus, a groundbreaking new space telescope.`\
-https://www.nytimes.com/2026/08/31/podcasts/the-headlines/navy-supply-chain-iran-strikes-trump-oil-venezuela.html
-
-**How Flock Cameras Took Over America**\
-`Flock’s nationwide A.I. camera network tracks millions of vehicles. Privacy advocates argue that this subjects the public to unregulated mass surveillance.`\
-https://www.nytimes.com/2026/08/31/podcasts/the-daily/flock-cameras-surveillance-america.html
-
-**Today’s Wordle Hints for September 1, 2026**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, Sept. 1, 2026.`\
-https://www.nytimes.com/2026/08/31/crosswords/wordle-review-1900.html
 
