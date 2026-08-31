@@ -1,3 +1,7 @@
+**15 People May Be Missing at the Grand Canyon After Flash Flood**\
+`A search and rescue helicopter near Bright Angel campground inside the park on Sunday.`\
+https://www.nytimes.com/video/embedded/arts/dance/100000011122589/15-people-may-be-missing-at-the-grand-canyon-after-flash-flood.html
+
 **15 People May Be Missing at Grand Canyon After Flash Flood**\
 `At least 62 people were evacuated on Saturday after flooding destroyed footbridges and damaged a campground and cabins near Bright Angel Creek in Arizona.`\
 https://www.nytimes.com/2026/08/30/us/grand-canyon-flash-flood-people-missing.html
