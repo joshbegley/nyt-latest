@@ -1,3 +1,7 @@
+**Pedro Sánchez dice que 5000 migrantes siguen en Ceuta, España**\
+`Su continua presencia ha agitado al territorio español en África y ha aumentado la presión sobre las políticas de inmigración del gobierno español.`\
+https://www.nytimes.com/es/2026/08/31/espanol/mundo/espana-sanchez-migrantes-ceuta.html
+
 **Qué esperar esta temporada de influenza**\
 `Los médicos tienen la esperanza de que el otoño y el invierno sean más tranquilos que en 2025.`\
 https://www.nytimes.com/es/2026/08/31/espanol/estilos-de-vida/gripe-influenza-covid-vacunas.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/31/podcasts/us-open-novak-djokovic.html
 **A $480,000-a-Year Pill Reflects a New Normal for Cancer Drugs**\
 `Rasonque, the new pancreatic cancer treatment from Revolution Medicines, illustrates the huge inflation in cancer drug prices over the past two decades.`\
 https://www.nytimes.com/2026/08/31/business/pancreatic-cancer-drug-prices.html
-
-**At the Tupac Trial, Old Rumors Still Trail Sean Combs**\
-`Duane Davis, who is charged in the murder of the rapper Tupac Shakur, repeatedly accused Mr. Combs of being behind it. He now says he was lying.`\
-https://www.nytimes.com/2026/08/31/arts/music/tupac-shakur-trial-sean-combs.html
 
