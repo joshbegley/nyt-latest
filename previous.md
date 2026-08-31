@@ -1,3 +1,27 @@
+**U.S. Start-Up Partners With Saudi Arabia for Data Center**\
+`Together AI, which serves open-source artificial intelligence models, announced a deal to use compute from Humain in Saudi Arabia, where it can bypass U.S. backlash over data centers.`\
+https://www.nytimes.com/2026/08/31/business/dealbook/together-ai-humain-saudi-arabia-data-center.html
+
+**The Navy’s Supply Chain Struggle, and Trump’s Unusual Oil Deal in Venezuela**\
+`Plus, a groundbreaking new space telescope.`\
+https://www.nytimes.com/2026/08/31/podcasts/the-headlines/navy-supply-chain-iran-strikes-trump-oil-venezuela.html
+
+**How Flock Cameras Took Over America**\
+`Flock’s nationwide A.I. camera network tracks millions of vehicles. Privacy advocates argue that this subjects the public to unregulated mass surveillance.`\
+https://www.nytimes.com/2026/08/31/podcasts/the-daily/flock-cameras-surveillance-america.html
+
+**Today’s Wordle Hints for September 1, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Sept. 1, 2026.`\
+https://www.nytimes.com/2026/08/31/crosswords/wordle-review-1900.html
+
+**NYT Strands Hints for September 1, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Sept. 1, 2026.`\
+https://www.nytimes.com/2026/08/31/crosswords/strands-sidekick-912.html
+
+**NYT Connections Answers for September 1, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Sept. 1, 2026.`\
+https://www.nytimes.com/2026/08/31/crosswords/connections-companion-1178.html
+
 **South Korea’s Unification Church Leader Gets 2 Years in Prison for Corruption**\
 `Han Hak-ja, the widow and successor of the conservative church’s founder, was convicted of financial dealings related to the former president and first lady, who are also imprisoned.`\
 https://www.nytimes.com/2026/08/31/world/asia/south-korea-unification-church-leader-prison.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/es/2026/08/31/espanol/ciencia-y-tecnologia/nepal-calenta
 **Maps: Tracking Hurricane Karina**\
 `See the likely path and wind arrival times for Karina`\
 https://www.nytimes.com/interactive/2026/08/31/weather/karina-map-path-tracker.html
-
-**Nepal Turns Forest Into Mass Grave for Unidentified Flood Victims**\
-`A forest in Nepal has become a mass grave for unidentified victims after a glacier snapped off and unleashed a deadly torrent of floodwaters.`\
-https://www.nytimes.com/video/world/asia/100000011122668/nepal-flood-mass-burial.html
-
-**¿La cena tardía en España está desapareciendo?**\
-`Hay indicios de que los españoles están cenando más temprano. Los expertos dicen que podría hacer del país uno más saludable, pero no todos están listos para abandonar la costumbre.`\
-https://www.nytimes.com/es/2026/08/31/espanol/mundo/espana-cena-hora.html
-
-**NYT Spelling Bee Answers for August 31, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/08/31/crosswords/spelling-bee-forum.html
-
-**A Developer Wants to Knock Down a Big Tree. Neighbors Are Rebelling.**\
-`The standoff in a New Jersey suburb has tapped grievances that seem to spread far beyond the tree’s 98-foot canopy.`\
-https://www.nytimes.com/2026/08/31/nyregion/maplewood-nj-tree-removal.html
-
-**By Fighting Union Pay Bonus, Mamdani Wins Rare Praise From Conservatives**\
-`A lawsuit filed by the Mamdani administration to block $10,000 bonuses for teachers’ aides has put the mayor at odds with their union.`\
-https://www.nytimes.com/2026/08/31/nyregion/mamdani-uft-paraprofessionals-budget.html
-
-**Putin Is Coming for Russian Literature**\
-`The Kremlin is redefining what it means to be a writer in Russia.`\
-https://www.nytimes.com/2026/08/31/opinion/russia-putin-writers-literature.html
 

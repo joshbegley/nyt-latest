@@ -1,3 +1,27 @@
+**U.S. Start-Up Partners With Saudi Arabia for Data Center**\
+`Together AI, which serves open-source artificial intelligence models, announced a deal to use compute from Humain in Saudi Arabia, where it can bypass U.S. backlash over data centers.`\
+https://www.nytimes.com/2026/08/31/business/dealbook/together-ai-humain-saudi-arabia-data-center.html
+
+**The Navy’s Supply Chain Struggle, and Trump’s Unusual Oil Deal in Venezuela**\
+`Plus, a groundbreaking new space telescope.`\
+https://www.nytimes.com/2026/08/31/podcasts/the-headlines/navy-supply-chain-iran-strikes-trump-oil-venezuela.html
+
+**How Flock Cameras Took Over America**\
+`Flock’s nationwide A.I. camera network tracks millions of vehicles. Privacy advocates argue that this subjects the public to unregulated mass surveillance.`\
+https://www.nytimes.com/2026/08/31/podcasts/the-daily/flock-cameras-surveillance-america.html
+
+**Today’s Wordle Hints for September 1, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Sept. 1, 2026.`\
+https://www.nytimes.com/2026/08/31/crosswords/wordle-review-1900.html
+
+**NYT Strands Hints for September 1, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Sept. 1, 2026.`\
+https://www.nytimes.com/2026/08/31/crosswords/strands-sidekick-912.html
+
+**NYT Connections Answers for September 1, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Sept. 1, 2026.`\
+https://www.nytimes.com/2026/08/31/crosswords/connections-companion-1178.html
+
 **South Korea’s Unification Church Leader Gets 2 Years in Prison for Corruption**\
 `Han Hak-ja, the widow and successor of the conservative church’s founder, was convicted of financial dealings related to the former president and first lady, who are also imprisoned.`\
 https://www.nytimes.com/2026/08/31/world/asia/south-korea-unification-church-leader-prison.html
