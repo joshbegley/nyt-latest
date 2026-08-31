@@ -1,3 +1,7 @@
+**Republican Candidate in Key House Race Bet on Her Own Campaign**\
+`The trading platform Kalshi issued a three-year suspension to the candidate, Laurie Buckhout, and fined her nearly $2,600. Ms. Buckhout said she had made a “dumb mistake.”`\
+https://www.nytimes.com/2026/08/31/us/politics/house-candidate-kalshi-gambling.html
+
 **Édouard Balladur, Embattled French Prime Minister, Dies at 97**\
 `His time in office coincided with France’s fraught role in the 1994 Rwandan genocide and the corruption scandal known as the Karachi affair.`\
 https://www.nytimes.com/2026/08/31/world/europe/edouard-balladur-dead.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/08/31/style/john-galliano-met-gala-canceled.html
 **Spanish Leader Says 5,000 Migrants Are Still in Ceuta, Weeks After Border Surge**\
 `Their continued presence has roiled the Spanish territory in Africa and heaped pressure on Prime Minister Pedro Sánchez.`\
 https://www.nytimes.com/2026/08/31/world/europe/ceuta-migrants-pedro-sanchez-north-africa.html
-
-**Why Larak Island Is Strategically Important for Iran**\
-`The roughly 30-square-mile island serves as a foothold for Iran’s military to advance its control over shipping through the Strait of Hormuz.`\
-https://www.nytimes.com/2026/08/31/world/middleeast/larak-island-iran-us-strikes.html
 
