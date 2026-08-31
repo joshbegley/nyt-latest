@@ -1,3 +1,7 @@
+**Teen Charged With Murder After Livestreaming San Diego Mosque Shooting**\
+`The authorities said the 17-year-old from North Carolina had recorded the attack, which killed three people in May. “She ran with the pack — she shared in the kill,” the district attorney said.`\
+https://www.nytimes.com/2026/08/31/us/san-diego-mosque-shooting-livestream-murder-charge.html
+
 **Hochul Pardons Purple Heart Veteran Who Had Self-Deported to South Korea**\
 `Sae Joon Park, who had earned a Purple Heart, was swept up in President Trump’s immigration crackdown last year. It’s not clear if the pardon will allow him to return to the United States.`\
 https://www.nytimes.com/2026/08/31/nyregion/hochul-clemency-park-veteran.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/quiz/2026/08/31/bookreview/education-quotes-quiz.html
 **This Roasted Salmon and Broccoli Bowl Will Ease You Into Fall**\
 `The crowning touch is the anchovy lemon dressing that brings it all together.`\
 https://www.nytimes.com/2026/08/31/dining/this-roasted-salmon-and-broccoli-bowl-will-ease-you-into-fall.html
-
-**After Floods, Grand Canyon Opens on a Limited Basis. What to Know.**\
-`As the search for missing visitors continues, the National Park has shut down hotels and much of its terrain, but people can still enter.`\
-https://www.nytimes.com/2026/08/31/travel/grand-canyon-reopen-floods-what-to-know.html
 
