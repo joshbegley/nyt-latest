@@ -1,4 +1,4 @@
-**J.D. Vance Called Michigan Senate Candidate Abdul El-Sayed ‘Evil’ in Speech**\
+**JD Vance Called Michigan Senate Candidate Abdul El-Sayed ‘Evil’ in Speech**\
 `The vice president also told Dr. El-Sayed, Michigan’s Democratic Senate nominee, to “keep my wife’s name out of your mouth.”`\
 https://www.nytimes.com/2026/08/31/us/politics/vance-el-sayed-michigan-speech.html
 
