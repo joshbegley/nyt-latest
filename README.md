@@ -1,3 +1,7 @@
+**What Cigarettes Can Teach Us About Teens and Social Media**\
+`In light of the changes Meta announced it would make for teen accounts, the “Hard Fork” co-hosts Kevin Roose and Casey Newton discuss whether the updates will result in better mental health for young people.`\
+https://www.nytimes.com/video/podcasts/100000011124024/what-cigarettes-can-teach-us-about-teens-and-social-media.html
+
 **Before Nepal Flood Washed School Away, Principal Saved 900 Students**\
 `A school principal acted swiftly after being warned about the flood waters in Nepal and saved about 900 students. Rescue efforts continued after the flood last Wednesday, which killed more than 900 people.`\
 https://www.nytimes.com/video/world/asia/100000011123064/nepal-flood-principal-rescue-students.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/08/31/podcasts/the-daily/flock-cameras-surveillance
 **Today’s Wordle Hints for September 1, 2026**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, Sept. 1, 2026.`\
 https://www.nytimes.com/2026/08/31/crosswords/wordle-review-1900.html
-
-**NYT Strands Hints for September 1, 2026**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, Sept. 1, 2026.`\
-https://www.nytimes.com/2026/08/31/crosswords/strands-sidekick-912.html
 
