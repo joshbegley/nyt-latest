@@ -1,3 +1,11 @@
+**U.S. Strikes May Have Targeted a New Type of Iranian Naval Mine**\
+`The U.S. military said its attacks against Iran were in response to a threat to the Strait of Hormuz.`\
+https://www.nytimes.com/2026/08/31/us/politics/us-strikes-iran-new-naval-mine.html
+
+**Designer John Galliano Withdraws From Met Exhibition After Backlash**\
+`The designer John Galliano pulled out from an exhibition at the Metropolitan Museum of Art after furor mounted over the museum’s choice to honor him. In 2011, Mr. Galliano was convicted of an antisemitic hate crime by a French court.`\
+https://www.nytimes.com/video/arts/100000011123146/john-galliano-met-museum-gala-designer.html
+
 **Teen Charged With Murder After Livestreaming San Diego Mosque Shooting**\
 `The authorities said the 17-year-old from North Carolina had recorded the attack, which killed three people in May. “She ran with the pack — she shared in the kill,” the district attorney said.`\
 https://www.nytimes.com/2026/08/31/us/san-diego-mosque-shooting-livestream-murder-charge.html

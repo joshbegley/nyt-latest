@@ -1,3 +1,11 @@
+**Mel Gibson Apologizes After Mocking Sign Language Interpreter Onstage**\
+`The actor waved his hands in what seemed to be a derisive gesture while appearing at a fan event in Toronto over the weekend.`\
+https://www.nytimes.com/2026/08/31/movies/mel-gibson-sign-language-apology.html
+
+**Jurors Begin Deliberating at Tupac Shakur Murder Trial**\
+`Duane Keith Davis is accused of orchestrating the drive-by shooting of the rapper in Las Vegas in 1996. He has pleaded not guilty.`\
+https://www.nytimes.com/2026/08/31/arts/music/tupac-shakur-murder-trial-jury-deliberations.html
+
 **U.S. Strikes May Have Targeted a New Type of Iranian Naval Mine**\
 `The U.S. military said its attacks against Iran were in response to a threat to the Strait of Hormuz.`\
 https://www.nytimes.com/2026/08/31/us/politics/us-strikes-iran-new-naval-mine.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/08/31/business/kalshi-bans-george-santos.html
 **Private Equity Wants to Invest in College Sports. Some Schools Are Wary.**\
 `As desperate as many athletic programs are for money, they are proceeding cautiously when it comes to deals with private equity.`\
 https://www.nytimes.com/2026/08/31/business/private-equity-college-sports.html
-
-**Ukrainian Drone Mastermind, Fired by Kyiv, Will Advise Italy’s Defense Chief**\
-`The appointment of Mykhailo Fedorov, a Ukrainian former defense minister, showed how other militaries are racing to adapt to battlefield changes accelerated by the war in Ukraine.`\
-https://www.nytimes.com/2026/08/31/world/europe/italy-ukraine-fedorov-adviser.html
-
-**Can You Match These Quotations to the Correct Book?**\
-`Some lines stick in your mind long after you’ve finished reading. Try this short quiz to see how many you recognize from popular authors.`\
-https://www.nytimes.com/quiz/2026/08/31/bookreview/education-quotes-quiz.html
 
