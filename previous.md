@@ -1,3 +1,7 @@
+**Mapa: la trayectoria del huracán Karina en vivo**\
+`Consulta la trayectoria probable y las horas de llegada de los vientos de Karina.`\
+https://www.nytimes.com/es/interactive/2026/08/31/espanol/karina-mapa-trayectoria.html
+
 **Mujeres y niñas son blanco de guerra del narco en Sinaloa**\
 `Un enfrentamiento de dos años entre facciones rivales del Cártel de Sinaloa está provocando un aumento de asesinatos y desapariciones dirigidos contra las mujeres.`\
 https://www.nytimes.com/es/2026/08/31/espanol/america-latina/mexico-carteles-narco-mujeres.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/100000011112041/midterm-races-are-drowning-in-d
 **A Half-Price Luxury E.V. Comes With a Big Asterisk**\
 `The Polestar 4 is a solid car, and current incentives make it a bargain. But the company, a Chinese-owned brand, is being forced from the U.S. market.`\
 https://www.nytimes.com/2026/08/31/business/polestar-discounts-ev-china.html
-
-**After a Fatal Fire, a Shaky Recovery at Housing Complex**\
-`The Nob Hill apartments in Syracuse, N.Y., went downhill after the complex was bought by a private equity group. Now, some tenants face eviction.`\
-https://www.nytimes.com/2026/08/31/nyregion/after-a-fatal-fire-a-shaky-recovery-at-housing-complex.html
 
