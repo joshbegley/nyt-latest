@@ -55,7 +55,7 @@ https://www.nytimes.com/2026/08/31/us/politics/house-candidate-kalshi-gambling.h
 https://www.nytimes.com/2026/08/31/world/europe/edouard-balladur-dead.html
 
 **FTC and 22 States Sue Amazon Over Advertising Practices**\
-`Regulators say the e-commerce giant forced millions of advertisers to pay more than they should have. The company denies the claims.`\
+`Regulators say the e-commerce giant forced more than a million advertisers to pay more than they should have. The company denies the claims.`\
 https://www.nytimes.com/2026/08/31/technology/ftc-amazon-lawsuit-ad-prices.html
 
 **Antes de las inundaciones en Nepal, los peregrinos buscaban lo divino en una montaña sagrada**\

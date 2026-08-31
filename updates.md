@@ -1,3 +1,7 @@
+**FTC and 22 States Sue Amazon Over Advertising Practices**\
+`Regulators say the e-commerce giant forced more than a million advertisers to pay more than they should have. The company denies the claims.`\
+https://www.nytimes.com/2026/08/31/technology/ftc-amazon-lawsuit-ad-prices.html
+
 **Mel Gibson Apologizes After Mocking Sign Language Interpreter Onstage**\
 `The actor waved his hands in what seemed to be a derisive gesture while appearing at a fan event in Toronto over the weekend.`\
 https://www.nytimes.com/2026/08/31/movies/mel-gibson-sign-language-apology.html
