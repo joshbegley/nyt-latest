@@ -1,3 +1,7 @@
+**John Galliano Bows Out of Met Museum Show After Criticism Mounts**\
+`Donors, politicians and Jewish leaders questioned the Met’s decision to honor Galliano, a fashion designer who was found guilty of a hate crime for his antisemitic outbursts.`\
+https://www.nytimes.com/2026/08/31/style/john-galliano-met-gala-canceled.html
+
 **Study A.I. Consciousness? The Bots Would Like a Word With You.**\
 `Given access to email, A.I. agents have started reaching out to the philosophers and researchers exploring deep questions about them.`\
 https://www.nytimes.com/2026/08/31/science/ai-consciousness-agents-email.html
