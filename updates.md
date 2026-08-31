@@ -1,3 +1,7 @@
+**Woman Stabs 2, Killing One, in Times Square and Is Shot Dead by Police**\
+`The police fired at the knife-wielding woman after trying to use less lethal force, officials said.`\
+https://www.nytimes.com/2026/08/31/nyregion/times-square-subway-stabbing-nypd-shooting.html
+
 **Supreme Court Allows White House Ballroom Construction to Continue**\
 `Also, a principal helped save 900 children in Nepal. Here’s the latest at the end of Monday.`\
 https://www.nytimes.com/2026/08/31/briefing/supreme-court-trump-ballroom-met-gala.html

@@ -1,3 +1,7 @@
+**Woman Stabs 2, Killing One, in Times Square and Is Shot Dead by Police**\
+`The police fired at the knife-wielding woman after trying to use less lethal force, officials said.`\
+https://www.nytimes.com/2026/08/31/nyregion/times-square-subway-stabbing-nypd-shooting.html
+
 **Supreme Court Allows White House Ballroom Construction to Continue**\
 `Also, a principal helped save 900 children in Nepal. Here’s the latest at the end of Monday.`\
 https://www.nytimes.com/2026/08/31/briefing/supreme-court-trump-ballroom-met-gala.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/es/2026/08/31/espanol/america-latina/mexico-carteles-nar
 **Senate Primary in Massachusetts Is a Generational Fight, With a Twist**\
 `In Massachusetts, the octogenarian senator Ed Markey faces a challenge from a much younger centrist, Representative Seth Moulton.`\
 https://www.nytimes.com/2026/08/31/us/markey-moulton-massachusetts-primary-democrats-age.html
-
-**Kalshi Permanently Bars George Santos From the Platform**\
-`The prediction market said it had barred George Santos, the former congressman from New York, and fined him $71,356 over evidence he engaged in insider trading.`\
-https://www.nytimes.com/2026/08/31/business/kalshi-bans-george-santos.html
 

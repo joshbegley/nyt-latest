@@ -1,3 +1,11 @@
+**Smithsonian to Put Latino Museum in Existing Building It Controls**\
+`Its board voted to house the museum in the institution’s Arts and Industries Building on the National Mall, rather than build on a site owned by the National Park Service.`\
+https://www.nytimes.com/2026/08/31/arts/design/smithsonian-latino-museum-arts-industries.html
+
+**Phantom Island Mysteriously Appears, Then Vanishes on B.C. Reservoir**\
+`Officials first thought it was just an A.I. ruse, until they checked satellite images of northern British Columbia. It was there, until it was not.`\
+https://www.nytimes.com/2026/08/31/world/canada/missing-island-canada-williston-reservoir.html
+
 **Woman Stabs 2, Killing One, in Times Square and Is Shot Dead by Police**\
 `The police fired at the knife-wielding woman after trying to use less lethal force, officials said.`\
 https://www.nytimes.com/2026/08/31/nyregion/times-square-subway-stabbing-nypd-shooting.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/08/31/weather/texas-rain-gulf-eduardo.html
 **Mapa: la trayectoria del huracán Karina en vivo**\
 `Consulta la trayectoria probable y las horas de llegada de los vientos de Karina.`\
 https://www.nytimes.com/es/interactive/2026/08/31/espanol/karina-mapa-trayectoria.html
-
-**Mujeres y niñas son blanco de guerra del narco en Sinaloa**\
-`Un enfrentamiento de dos años entre facciones rivales del Cártel de Sinaloa está provocando un aumento de asesinatos y desapariciones dirigidos contra las mujeres.`\
-https://www.nytimes.com/es/2026/08/31/espanol/america-latina/mexico-carteles-narco-mujeres.html
-
-**Senate Primary in Massachusetts Is a Generational Fight, With a Twist**\
-`In Massachusetts, the octogenarian senator Ed Markey faces a challenge from a much younger centrist, Representative Seth Moulton.`\
-https://www.nytimes.com/2026/08/31/us/markey-moulton-massachusetts-primary-democrats-age.html
 
