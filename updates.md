@@ -1,3 +1,19 @@
+**NYT Crossword Answers for Aug. 31, 2026**\
+`This crossword by Christopher Youngs calls for a toast.`\
+https://www.nytimes.com/2026/08/30/crosswords/daily-puzzle-2026-08-31.html
+
+**U.S. Attacks Island in Strait of Hormuz; Iran Retaliates With Missile Fire**\
+`The exchange on Sunday was the first known military action between the two nations in a month, raising the risk of a renewed round of fighting.`\
+https://www.nytimes.com/2026/08/30/admin/us-attacks-iran-strait-of-hormuz.html
+
+**15 People May Be Missing at Grand Canyon After Flash Flood**\
+`At least 62 people were evacuated on Saturday after flooding destroyed nearly all the footbridges across Bright Angel Creek in Arizona and cut off hikers’ access, the National Park Service said.`\
+https://www.nytimes.com/2026/08/30/us/grand-canyon-flash-flood-people-missing.html
+
+**Melting Himalayas**\
+`Scientists are still working out the precise cause of the disaster in Nepal, but one thing seems certain: The risk of such events is increasing.`\
+https://www.nytimes.com/2026/08/30/world/nepal-tibet-flood-glacier-nasa.html
+
 **Ed Markey Defends Transgender Athletes in Massachusetts Senate Race**\
 `Senator Ed Markey of Massachusetts has emerged as a vocal defender of transgender rights as he tries to fend off a primary challenge from Representative Seth Moulton.`\
 https://www.nytimes.com/2026/08/30/us/politics/ed-markey-seth-moulton-transgender-athletes-massachusetts.html

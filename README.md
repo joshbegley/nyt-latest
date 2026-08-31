@@ -1,19 +1,3 @@
-**NYT Crossword Answers for Aug. 31, 2026**\
-`This crossword by Christopher Youngs calls for a toast.`\
-https://www.nytimes.com/2026/08/30/crosswords/daily-puzzle-2026-08-31.html
-
-**U.S. Attacks Island in Strait of Hormuz; Iran Retaliates With Missile Fire**\
-`The exchange on Sunday was the first known military action between the two nations in a month, raising the risk of a renewed round of fighting.`\
-https://www.nytimes.com/2026/08/30/admin/us-attacks-iran-strait-of-hormuz.html
-
-**15 People May Be Missing at Grand Canyon After Flash Flood**\
-`At least 62 people were evacuated on Saturday after flooding destroyed nearly all the footbridges across Bright Angel Creek in Arizona and cut off hikers’ access, the National Park Service said.`\
-https://www.nytimes.com/2026/08/30/us/grand-canyon-flash-flood-people-missing.html
-
-**Melting Himalayas**\
-`Scientists are still working out the precise cause of the disaster in Nepal, but one thing seems certain: The risk of such events is increasing.`\
-https://www.nytimes.com/2026/08/30/world/nepal-tibet-flood-glacier-nasa.html
-
 **When a Bear Cub Decides Your Boot Is an Appetizer**\
 `In Alaska, a cub taste-tested the footwear of a photographer, who got a rare close-up. The cub may have found it to be meh, or even revolting, judging by its reaction.`\
 https://www.nytimes.com/2026/08/30/us/baby-bear-shoe-photographer-alaska.html
@@ -197,4 +181,20 @@ https://www.nytimes.com/2026/08/30/us/politics/mail-voting-trump-midterms-suprem
 **Help Wanted: ‘Forward-Deployed’ Humans for the A.I. Era**\
 `Start-ups are using the military-derived term to glorify customer-facing work as clients seek people to help set up artificial intelligence tools.`\
 https://www.nytimes.com/2026/08/30/business/forward-deployed-ai.html
+
+**Ed Markey Defends Transgender Athletes in Massachusetts Senate Race**\
+`Senator Ed Markey of Massachusetts has emerged as a vocal defender of transgender rights as he tries to fend off a primary challenge from Representative Seth Moulton.`\
+https://www.nytimes.com/2026/08/30/us/politics/ed-markey-seth-moulton-transgender-athletes-massachusetts.html
+
+**NASA’s Nancy Grace Roman Telescope Leaves Earth to Chart the Stars**\
+`Astronomers will use data collected by Roman’s wide, deep gaze to study the dark universe and hunt for new worlds.`\
+https://www.nytimes.com/2026/08/30/science/spacex-roman-telescope-launch.html
+
+**For the Venice Film Festival, an Island Setting for Almost a Century**\
+`Once a year, the tiny island of Lido is transformed into a rich field of artistic expression for the festival.`\
+https://www.nytimes.com/2026/08/30/movies/venice-film-festival-lido.html
+
+**Venice Film Festival: Wim Wenders Talks About Architecture and More**\
+`The director talks about his documentary on Peter Zumthor, the Pritzker Prize-winning Swiss architect, which is premiering at the Venice Film Festival.`\
+https://www.nytimes.com/2026/08/30/movies/wim-wenders-peter-zumthor-venice-film.html
 
