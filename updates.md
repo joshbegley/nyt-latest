@@ -1,3 +1,15 @@
+**Édouard Balladur, Embattled French Prime Minister, Dies at 97**\
+`His time in office coincided with France’s fraught role in the 1994 Rwandan genocide and the corruption scandal known as the Karachi affair.`\
+https://www.nytimes.com/2026/08/31/world/europe/edouard-balladur-dead.html
+
+**FTC and 22 States Sue Amazon Over Advertising Practices**\
+`Regulators say the e-commerce giant forced millions of advertisers to pay more than they should have. The company denies the claims.`\
+https://www.nytimes.com/2026/08/31/technology/ftc-amazon-lawsuit-ad-prices.html
+
+**Antes de las inundaciones en Nepal, los peregrinos buscaban lo divino en una montaña sagrada**\
+`Para muchos, la caminata al monte Kailash en la frontera entre Nepal y el Tíbet es un viaje único en la vida para encontrar el despertar espiritual.`\
+https://www.nytimes.com/es/2026/08/31/espanol/mundo/nepal-inundacion-peregrinos-desaparecidos.html
+
 **110 Trucking Schools Closed for English-Language Lapses**\
 `Transportation Secretary Sean Duffy, who has targeted truckers in the country illegally, said the schools certified drivers later found to lack proficiency.`\
 https://www.nytimes.com/2026/08/31/us/politics/truck-driving-schools-closed-english-language.html
