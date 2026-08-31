@@ -1,3 +1,15 @@
+**Coral Reefs Are Running Out of Time to Recover, Research Find**\
+`Rising sea temperatures mean reefs don’t have enough time to bounce back between intense heat waves, a new report warns.`\
+https://www.nytimes.com/2026/08/31/climate/coral-reef-recovery-time.html
+
+**No Corrections: Aug. 31, 2026**\
+`No corrections appeared in print on Monday, Aug. 31, 2026.`\
+https://www.nytimes.com/2026/08/31/corrections/no-corrections-aug-31-2026.html
+
+**Quote of the Day: Tiny, With Enviable Smiles Per Gallon**\
+`Quotation of the Day for Monday, August 31, 2026.`\
+https://www.nytimes.com/2026/08/31/pageoneplus/quote-of-the-day-tiny-with-enviable-smiles-per-gallon.html
+
 **Su movimiento luchaba contra el fascismo. Ahora, contra el globalismo**\
 `Sílvia Orriols está transformando el nacionalismo catalán.`\
 https://www.nytimes.com/es/2026/08/30/espanol/opinion/espana-nacionalismo-catalan-orriols-globalismo.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/es/2026/08/30/espanol/mundo/luciernagas-sagradas-bali-co
 **Before Nepal’s Floods, Hindu Pilgrims Sought the Divine at Mount Kailash**\
 `For many, the trek to Mount Kailash on the border of Nepal and Tibet is a once-in-a-lifetime trip to find spiritual awakening.`\
 https://www.nytimes.com/2026/08/30/us/nepal-floods-religious-tour.html
-
-**Dolly Parton and the ‘Pretty Darn Good’ Southern Church**\
-`For many Americans, Ms. Parton represented an idealized style of faith: one centered in small rural congregations that prize community over ideology.`\
-https://www.nytimes.com/2026/08/30/us/dolly-parton-southern-christianity.html
-
-**Deportees Sent to Liberia Recount Harrowing Details of U.S. Expulsion and Treatment by ICE**\
-`Ten deportees said they experienced or witnessed what they called abusive or violent treatment by ICE. They spent months in detention, they said, before being sent to nations where they had no ties.`\
-https://www.nytimes.com/2026/08/30/world/africa/us-deportation-flight-ice-detention-liberia.html
-
-**The Case of the Truly Incorrigible Cubicle Yakker**\
-`Plus: Is it normal to video-interview for a job while the hiring panel’s cameras are all off?`\
-https://www.nytimes.com/2026/08/30/business/the-case-of-the-truly-incorrigible-cubicle-yakker.html
 
