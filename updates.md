@@ -1,3 +1,7 @@
+**¿La cena tardía en España está desapareciendo?**\
+`Hay indicios de que los españoles están cenando más temprano. Los expertos dicen que podría hacer del país uno más saludable, pero no todos están listos para abandonar la costumbre.`\
+https://www.nytimes.com/es/2026/08/31/espanol/mundo/espana-cena-hora.html
+
 **A Deadly Flash Flood Hits Grand Canyon**\
 `There was a deadly flash flood in Grand Canyon National Park. Dozens of people were evacuated, and parts of the park closed as rescuers searched for missing people.`\
 https://www.nytimes.com/video/us/100000011122385/after-flash-flood-15-people-are-unaccounted-for-at-grand-canyon.html
