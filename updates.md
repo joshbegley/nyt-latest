@@ -1,3 +1,7 @@
+**One Dead and 15 Potentially Missing at Grand Canyon After Flash Flood**\
+`At least 62 people were evacuated on Saturday after flooding destroyed footbridges and damaged a campground and cabins near Bright Angel Creek in Arizona, the National Park Service said.`\
+https://www.nytimes.com/2026/08/30/us/grand-canyon-flash-flood-people-missing.html
+
 **Su movimiento luchaba contra el fascismo. Ahora, contra el globalismo**\
 `Sílvia Orriols está transformando el nacionalismo catalán.`\
 https://www.nytimes.com/es/2026/08/30/espanol/opinion/espana-nacionalismo-catalan-orriols-globalismo.html
