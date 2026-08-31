@@ -107,7 +107,7 @@ https://www.nytimes.com/2026/08/31/world/asia/china-nepal-tibet-flood-himalayas-
 https://www.nytimes.com/2026/08/31/business/oil-prices-iran-war.html
 
 **G20 Finance Officials Gather in U.S. as Iran War Grips Global Economy**\
-`The meeting, which China and Russia are attending, is  focused on the ongoing economic shock from the war in Iran, which has driven up oil prices globally.`\
+`The meeting, which China and Russia are attending, is focused on the ongoing economic shock from the war in Iran, which has driven up oil prices globally.`\
 https://www.nytimes.com/2026/08/31/business/g20-finance-iran-bessent.html
 
 **Democrats Have a Trump Card for Attacks On Wokeness**\
