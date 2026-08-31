@@ -1,3 +1,15 @@
+**EE. UU. e Irán intercambian ataques otra vez**\
+`La reanudación de los ataques fue el indicio más reciente de que la guerra que comenzó hace seis meses parece estar lejos de terminar.`\
+https://www.nytimes.com/es/2026/08/31/espanol/mundo/iran-estados-unidos-guerra-bombardeo.html
+
+**Warring Cartels Target Women in Mexico**\
+`A two-year war between rival Sinaloa Cartel factions is driving a surge in killings and disappearances targeting women.`\
+https://www.nytimes.com/2026/08/31/world/americas/warring-cartels-target-women-in-mexico.html
+
+**U.S. Start-Up and Saudi Arabia Form Data Center Partnership**\
+`Together AI, which serves open-source artificial intelligence models, announced a deal to use compute from Humain in Saudi Arabia, where it can bypass U.S. backlash over data centers.`\
+https://www.nytimes.com/2026/08/31/business/dealbook/together-ai-humain-saudi-arabia-data-center.html
+
 **Why the Times/Siena Poll Isn’t Hanging Up the Phone**\
 `The traditional use of phones in Times/Siena surveys is far from perfect, but its strengths shouldn’t be overlooked.`\
 https://www.nytimes.com/2026/08/31/upshot/times-siena-phone-polling.html
