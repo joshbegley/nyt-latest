@@ -1,3 +1,7 @@
+**Ukrainian Drone Mastermind, Fired by Kyiv, Will Advise Italy’s Defense Chief**\
+`The appointment of Mykhailo Fedorov, a Ukrainian former defense minister, showed how other militaries are racing to adapt to battlefield changes accelerated by the war in Ukraine.`\
+https://www.nytimes.com/2026/08/31/world/europe/italy-ukraine-fedorov-adviser.html
+
 **Can You Match These Quotations to the Correct Book?**\
 `Some lines stick in your mind long after you’ve finished reading. Try this short quiz to see how many you recognize from popular authors.`\
 https://www.nytimes.com/quiz/2026/08/31/bookreview/education-quotes-quiz.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/31/t-magazine/mens-fashion-layers-oversize.html
 **Gene-Editing Technology Offers New Ways to Create the Dogs of Our Dreams**\
 `Technologies like CRISPR are giving us new ways to create the dogs of our dreams — and a reason to reckon with our past mistakes.`\
 https://www.nytimes.com/2026/08/31/science/dog-breeding-gene-editing-crispr.html
-
-**Foodborne Illnesses Can Lead to Long-Term Gut Issues**\
-`The cyclospora outbreak may result in a surge in cases of post-infection irritable bowel syndrome.`\
-https://www.nytimes.com/2026/08/31/well/eat/cyclospora-ibs-food-poisoning.html
 

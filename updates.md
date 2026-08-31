@@ -1,3 +1,7 @@
+**Ukrainian Drone Mastermind, Fired by Kyiv, Will Advise Italy’s Defense Chief**\
+`The appointment of Mykhailo Fedorov, a Ukrainian former defense minister, showed how other militaries are racing to adapt to battlefield changes accelerated by the war in Ukraine.`\
+https://www.nytimes.com/2026/08/31/world/europe/italy-ukraine-fedorov-adviser.html
+
 **Can You Match These Quotations to the Correct Book?**\
 `Some lines stick in your mind long after you’ve finished reading. Try this short quiz to see how many you recognize from popular authors.`\
 https://www.nytimes.com/quiz/2026/08/31/bookreview/education-quotes-quiz.html
