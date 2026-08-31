@@ -6,7 +6,7 @@ https://www.nytimes.com/2026/08/31/nyregion/hochul-clemency-park-veteran.html
 `The country is seeking urgent help from a special U.N. climate fund, but the program lacks money because the United States and others have been reluctant to contribute.`\
 https://www.nytimes.com/2026/08/31/climate/nepal-disaster-cost-climate.html
 
-**Bessent Claims Canada Is Too Small to Fight a Trade War**\
+**Bessent Claims Canada Is Too Small to Fight a Trade War With the U.S.**\
 `At gathering of G20 finance ministers, the Treasury secretary accused Canada’s prime minister of starting a “political shouting match” over U.S. trade policies.`\
 https://www.nytimes.com/2026/08/31/us/politics/canada-bessent-carney-trade.html
 

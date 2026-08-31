@@ -1,3 +1,23 @@
+**Hochul Pardons Purple Heart Veteran Who Had Self-Deported to South Korea**\
+`Sae Joon Park, who had earned a Purple Heart, was swept up in President Trump’s immigration crackdown last year. It’s not clear if the pardon will allow him to return to the United States.`\
+https://www.nytimes.com/2026/08/31/nyregion/hochul-clemency-park-veteran.html
+
+**Nepal Puts Cost of Disaster at $5 Billion, Blaming Climate Change**\
+`The country is seeking urgent help from a special U.N. climate fund, but the program lacks money because the United States and others have been reluctant to contribute.`\
+https://www.nytimes.com/2026/08/31/climate/nepal-disaster-cost-climate.html
+
+**Bessent Claims Canada Is Too Small to Fight a Trade War**\
+`At gathering of G20 finance ministers, the Treasury secretary accused Canada’s prime minister of starting a “political shouting match” over U.S. trade policies.`\
+https://www.nytimes.com/2026/08/31/us/politics/canada-bessent-carney-trade.html
+
+**Mother Recalls How She Lost Her Child in Cyprus Ferry Accident**\
+`A mother lost her two children after a ferry capsized near Cyprus. In total eight people were killed and 20 are still missing.`\
+https://www.nytimes.com/video/world/europe/100000011123417/cyprus-ferry-accident-mother-children.html
+
+**Your Iran Questions, Answered**\
+`Today, we hand the mic over to reporters covering diplomacy, the White House, the Middle East and more.`\
+https://www.nytimes.com/2026/08/31/world/iran-war-john-galliano.html
+
 **El director de una escuela salvó a 900 estudiantes de las inundaciones en Nepal**\
 `Rajendra Dawadi tuvo menos de 15 minutos para actuar ante una alerta por la crecida de las aguas. Su rápido plan de evacuación salvó cientos de vidas.`\
 https://www.nytimes.com/es/2026/08/31/espanol/mundo/nepal-inundacion-director-escuela-salva-estudiantes.html
@@ -169,24 +189,4 @@ https://www.nytimes.com/2026/08/31/dining/this-roasted-salmon-and-broccoli-bowl-
 **After Floods, Grand Canyon Opens on a Limited Basis. What to Know.**\
 `As the search for missing visitors continues, the National Park has shut down hotels and much of its terrain, but people can still enter.`\
 https://www.nytimes.com/2026/08/31/travel/grand-canyon-reopen-floods-what-to-know.html
-
-**EE. UU. e Irán intercambian ataques otra vez**\
-`La reanudación de los ataques fue el indicio más reciente de que la guerra que comenzó hace seis meses parece estar lejos de terminar.`\
-https://www.nytimes.com/es/2026/08/31/espanol/mundo/iran-estados-unidos-guerra-bombardeo.html
-
-**‘The Nest of Snakes’: Warring Cartels Target Women in Mexico**\
-`A two-year war between rival Sinaloa Cartel factions is driving a surge in killings and disappearances targeting women.`\
-https://www.nytimes.com/2026/08/31/world/americas/warring-cartels-target-women-in-mexico.html
-
-**Study A.I. Consciousness? The Bots Would Like a Word With You.**\
-`Given access to email, A.I. agents have started reaching out to the philosophers and researchers exploring deep questions about them.`\
-https://www.nytimes.com/2026/08/31/science/ai-consciousness-agents-email.html
-
-**¿Los cambios de Meta beneficiarán la salud mental de los usuarios jóvenes?**\
-`Los psicólogos dijeron que los cambios eran una victoria simbólica, pero advirtieron que su eficacia podría ser limitada.`\
-https://www.nytimes.com/es/2026/08/31/espanol/meta-acuerdo-salud-mental-jovenes.html
-
-**A Principal Saved 900 Students Before His School Was Washed Away in Nepal**\
-`Rajendra Dawadi had less than 15 minutes to act on a warning of approaching floodwaters. His swift evacuation plan saved hundreds of lives.`\
-https://www.nytimes.com/2026/08/31/world/asia/nepal-floods-teacher.html
 
