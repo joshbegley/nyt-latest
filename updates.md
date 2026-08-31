@@ -1,3 +1,19 @@
+**Before Nepal Flood Washed School Away, Principal Saved 900 Students**\
+`A school principal acted swiftly after being warned about the flood waters in Nepal and saved about 900 students. Rescue efforts continued after the flood last Wednesday, which killed more than 900 people.`\
+https://www.nytimes.com/video/world/asia/100000011123064/nepal-flood-principal-rescue-students.html
+
+**Israel and Greece Reach $3.5 Billion Defense Deal**\
+`Despite the growing diplomatic isolation of the government, the agreement makes clear that the Israeli defense industry is still finding considerable demand abroad.`\
+https://www.nytimes.com/2026/08/31/world/middleeast/israel-greece-defense-deal.html
+
+**What to Know About the Grand Canyon Flooding**\
+`The bodies of at least two people were found and more than a dozen were missing. Further storms could hinder rescue efforts on Monday.`\
+https://www.nytimes.com/2026/08/31/us/grand-canyon-flash-floods.html
+
+**The Local: Crop art royalty**\
+`Plus, an independent food critic tells us her favorite new fair foods.`\
+https://www.nytimes.com/2026/08/31/briefing/state-fair-crop-art.html
+
 **The Hypebeasts of the Fringe Festival**\
 `From Hannah Reilly to Amanda Knox to clowns, who are the hype beasts of this year’s Fringe Festival? Our chief theater critic, Helen Shaw, went to Edinburgh to find out.`\
 https://www.nytimes.com/video/theater/100000011066016/the-hypebeasts-of-the-fringe-festival-edinburgh-theater.html
