@@ -1,3 +1,11 @@
+**Death Toll Rises in Grand Canyon Flood as Search Efforts Continue**\
+`Officials announced a second death and said more than a dozen people remain unaccounted for following heavy rain.`\
+https://www.nytimes.com/2026/08/31/us/grand-canyon-floods.html
+
+**Should Children Be Allowed to Be Actors?**\
+`Readers, including a former child actor and a casting director, respond to an Opinion guest essay by Alison Pill.`\
+https://www.nytimes.com/2026/08/31/opinion/letters/child-actors.html
+
 **Tropical Storm Edouard Could Form Near Texas on Monday**\
 `A cluster of thunderstorms that could become Tropical Storm Edouard threatens to bring heavy rain to Southeast Texas and western Louisiana.`\
 https://www.nytimes.com/2026/08/31/weather/texas-rain-gulf-eduardo.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/31/us/politics/postal-service-mail-ballots-delay
 **Americans Hate Data Centers. Why?**\
 `Three fourths of Americans oppose data centers. Why?`\
 https://www.nytimes.com/2026/08/31/opinion/data-centers-ai-populism.html
-
-**Three Great Documentaries to Stream**\
-`This month’s picks explore an anarchic New Jersey school, an apartment hidden in a mall and the very nature of true-crime documentaries.`\
-https://www.nytimes.com/2026/08/31/movies/three-great-documentaries-to-stream.html
-
-**Midterm Races Are Drowning in Dark Money**\
-`Dark money is flooding the 2026 midterm elections, allowing donors to spend heavily on ads without revealing their identities. Shane Goldmacher, a New York Times political correspondent, explains how donors are able to hide their involvement.`\
-https://www.nytimes.com/video/us/100000011112041/midterm-races-are-drowning-in-dark-money.html
 
