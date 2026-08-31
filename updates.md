@@ -1,3 +1,7 @@
+**Summit With Russia, India and Iran Shows Leverage Wars Have Given Xi of China**\
+`A two-day conference of the 10-nation Shanghai Cooperation Organization in Kyrgyzstan shows the limits of U.S. economic warfare.`\
+https://www.nytimes.com/2026/08/31/world/asia/putin-xi-modi-sco.html
+
 **Day Cares Will Get Funds to Open in Time for School, Mamdani Says**\
 `Mr. Mamdani and Kamar Samuels, the chancellor of the city’s schools, made the announcement after some providers told The New York Times they had no money to open on the first day of school.`\
 https://www.nytimes.com/2026/08/31/nyregion/day-care-funding-nyc-mamdani.html
