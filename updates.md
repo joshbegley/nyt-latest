@@ -1,3 +1,7 @@
+**Nepal Turns Forest Into Mass Grave for Unidentified Flood Victims**\
+`A forest in Nepal has become a mass grave for unidentified victims after a glacier snapped off and unleashed a deadly torrent of floodwaters.`\
+https://www.nytimes.com/video/world/asia/100000011122668/nepal-flood-mass-burial.html
+
 **¿La cena tardía en España está desapareciendo?**\
 `Hay indicios de que los españoles están cenando más temprano. Los expertos dicen que podría hacer del país uno más saludable, pero no todos están listos para abandonar la costumbre.`\
 https://www.nytimes.com/es/2026/08/31/espanol/mundo/espana-cena-hora.html

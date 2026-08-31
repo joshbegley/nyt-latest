@@ -1,3 +1,7 @@
+**Nepal Turns Forest Into Mass Grave for Unidentified Flood Victims**\
+`A forest in Nepal has become a mass grave for unidentified victims after a glacier snapped off and unleashed a deadly torrent of floodwaters.`\
+https://www.nytimes.com/video/world/asia/100000011122668/nepal-flood-mass-burial.html
+
 **¿La cena tardía en España está desapareciendo?**\
 `Hay indicios de que los españoles están cenando más temprano. Los expertos dicen que podría hacer del país uno más saludable, pero no todos están listos para abandonar la costumbre.`\
 https://www.nytimes.com/es/2026/08/31/espanol/mundo/espana-cena-hora.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/30/crosswords/wordle-review-1899.html
 **The World Is a Room With a Piano Waiting to Be Played**\
 `Like any life, mine has had its pain, yet from the outset it seems to have been graced by unbelievable people and events. An anthology of miracles.`\
 https://www.nytimes.com/2026/08/30/opinion/wonder-awe-aging.html
-
-**NYT Strands Hints for August 31, 2026**\
-`Scroll down for hints and conversation about the puzzle for Monday, Aug. 31, 2026.`\
-https://www.nytimes.com/2026/08/30/crosswords/strands-sidekick-911.html
 
