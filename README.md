@@ -1,3 +1,11 @@
+**U.S. and Iran Exchange Strikes Overnight After Monthlong Calm**\
+`The renewed attacks were the latest sign that the war that began six months ago appears far from over.`\
+https://www.nytimes.com/2026/08/31/world/middleeast/us-iran-uae-jordan-attacks.html
+
+**Nonstop Russian Drones Make for Dangerous New Phase of War in Kyiv**\
+`The nearly constant air raids, a shift from years of largely overnight attacks, have left residents exhausted and on edge.`\
+https://www.nytimes.com/2026/08/31/world/europe/ukraine-kyiv-drones-russia-sirens.html
+
 **U.S. Start-Up Partners With Saudi Arabia for Data Center**\
 `Together AI, which serves open-source artificial intelligence models, announced a deal to use compute from Humain in Saudi Arabia, where it can bypass U.S. backlash over data centers.`\
 https://www.nytimes.com/2026/08/31/business/dealbook/together-ai-humain-saudi-arabia-data-center.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/31/business/pennsylvanias-ai-gold-rush-meets-sec
 **Leader of DOJ’s Civil Rights Unit Spars With Harvard, the Left and Her Colleagues**\
 `Harmeet Dhillon, who leads the Justice Department’s civil rights unit, has extracted flashy agreements and personnel moves from big universities and sought to force states to turn over confidential voter data.`\
 https://www.nytimes.com/2026/08/31/us/politics/harmeet-dhillon-doj-trump.html
-
-**En tiempos de crisis climática, algunos temen que ‘todo el Himalaya se está derritiendo’**\
-`Un glaciar provocó una inundación mortal a principios de esta semana. Para los guías de senderismo y alpinistas locales, las montañas ya venían cambiando.`\
-https://www.nytimes.com/es/2026/08/31/espanol/ciencia-y-tecnologia/nepal-calentamiento-global-himalayas.html
-
-**Maps: Tracking Hurricane Karina**\
-`See the likely path and wind arrival times for Karina`\
-https://www.nytimes.com/interactive/2026/08/31/weather/karina-map-path-tracker.html
 
