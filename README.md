@@ -1,3 +1,19 @@
+**110 Trucking Schools Closed for English-Language Lapses**\
+`Transportation Secretary Sean Duffy, who has targeted truckers in the country illegally, said the schools certified drivers later found to lack proficiency.`\
+https://www.nytimes.com/2026/08/31/us/politics/truck-driving-schools-closed-english-language.html
+
+**Lemon Pesto Pasta**\
+`Also known as pesto alla Genovese, lemon pesto is a delicious variation that adds a jolt of brightness. Used in Italy as both a pasta sauce or spread for crostini, its preparation is similar to classic pesto, but the addition of the lemon zest and juice gives it a unique flavor and color.`\
+https://www.nytimes.com/video/dining/100000011120279/lemon-pesto-pasta.html
+
+**Green Goddess Chicken Salad Sandwiches**\
+`Avocado forms the base of creamy green goddess dressing in this everyday chicken salad recipe. Made with lots of green herbs, capers and scallions, it’s tangy, vinegary and luxuriously creamy without the addition of any dairy or mayonnaise.`\
+https://www.nytimes.com/video/dining/100000011120389/green-goddess-chicken-salad-sandwiches.html
+
+**Crispy Wonton Chicken Salad**\
+`This dynamic chicken salad, starring crispy strips of fried wonton wrappers, draws inspiration from the wonton chicken salad at the soup and salad buffet chain Sweet Tomatoes, as well as the American Chinese chicken salads that pervaded chain-restaurant menus throughout the 1990s and early 2000s.`\
+https://www.nytimes.com/video/dining/100000011120421/crispy-wonton-chicken-salad.html
+
 **DOJ Issues Grand Jury Subpoena to James Comey Confidant Daniel Richman**\
 `The subpoena of Daniel C. Richman is the latest move in a persistent campaign to go after James B. Comey, one of President Trump’s most reviled political adversaries who has already been indicted twice.`\
 https://www.nytimes.com/2026/08/31/us/justice-department-subpoena-james-comey-richman-trump.html
@@ -173,20 +189,4 @@ https://www.nytimes.com/2026/08/31/us/grand-canyon-flooding-phantom-ranch.html
 **‘We Are Shattered’: Survivors Recall Chaos as Ferry Sank Near Cyprus**\
 `The vessel capsized in rough seas, leaving its passengers struggling to escape. Eight were killed and 20 are still missing.`\
 https://www.nytimes.com/2026/08/31/world/europe/cyprus-ferry-turkey.html
-
-**Dark Money**\
-`We look at campaign financing — as well as Iran, Nepal and coral reefs.`\
-https://www.nytimes.com/2026/08/31/briefing/dark-money.html
-
-**U.S. and Iran Exchange Strikes Overnight After Monthlong Calm**\
-`The renewed attacks were the latest sign that the war that began six months ago appears far from over.`\
-https://www.nytimes.com/2026/08/31/world/middleeast/us-iran-uae-jordan-attacks.html
-
-**Nonstop Russian Drones Make for Dangerous New Phase of War in Kyiv**\
-`The nearly constant air raids, a shift from years of largely overnight attacks, have left residents exhausted and on edge.`\
-https://www.nytimes.com/2026/08/31/world/europe/ukraine-kyiv-drones-russia-sirens.html
-
-**U.S. Start-Up and Saudi Arabia Form Data Center Partnership**\
-`Together AI, which serves open-source artificial intelligence models, announced a deal to use compute from Humain in Saudi Arabia, where it can bypass U.S. backlash over data centers.`\
-https://www.nytimes.com/2026/08/31/business/dealbook/together-ai-humain-saudi-arabia-data-center.html
 
