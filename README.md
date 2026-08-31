@@ -1,3 +1,15 @@
+**NYT Spelling Bee Answers for August 31, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/08/31/crosswords/spelling-bee-forum.html
+
+**A Developer Wants to Knock Down a Big Tree. Neighbors Are Rebelling.**\
+`The standoff in a New Jersey suburb has tapped grievances that seem to spread far beyond the tree’s 98-foot canopy.`\
+https://www.nytimes.com/2026/08/31/nyregion/maplewood-nj-tree-removal.html
+
+**By Fighting Union Pay Bonus, Mamdani Wins Rare Praise From Conservatives**\
+`A lawsuit filed by the Mamdani administration to block $10,000 bonuses for teachers’ aides has put the mayor at odds with their union.`\
+https://www.nytimes.com/2026/08/31/nyregion/mamdani-uft-paraprofessionals-budget.html
+
 **Putin Is Coming for Russian Literature**\
 `The Kremlin is redefining what it means to be a writer in Russia.`\
 https://www.nytimes.com/2026/08/31/opinion/russia-putin-writers-literature.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/08/30/world/middleeast/iran-fuel-supplies-blockade.
 **Corrections: Aug. 30, 2026**\
 `Corrections that appeared in print on Sunday, Aug. 30, 2026.`\
 https://www.nytimes.com/2026/08/30/pageoneplus/corrections-aug-30-2026.html
-
-**Son conservadoras y quieren ser madres trabajadoras. A la machosfera no le parece**\
-`En un centro conservador para mujeres líderes, las becarias contaron historias sobre sus vidas. Una de ellas dijo que un compañero de clase le había dicho: “No sé si las mujeres deberían ser abogadas”.`\
-https://www.nytimes.com/es/2026/08/30/espanol/estados-unidos/mujeres-conservadoras-trabajo.html
-
-**Book Review: ‘The Disappearers,’ by Marlon James**\
-`Marlon James’s story of gay experience and murderous homophobia in Jamaica is a maximalist’s banquet — and the Booker Prize winner’s finest book yet.`\
-https://www.nytimes.com/2026/08/30/books/review/the-disappearers-marlon-james.html
-
-**A Mortgage Servicer Sent a Letter About an Address Change. Was It Deed Theft?**\
-`A letter arrived in the mail from PNC Bank about an address change on a mortgage account. Was a deed theft scheme in process?`\
-https://www.nytimes.com/2026/08/30/business/address-change-mortgage-scam.html
 
