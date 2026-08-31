@@ -1,3 +1,7 @@
+**15 People May Be Missing at the Grand Canyon After Flash Flood**\
+`A search and rescue helicopter near Bright Angel campground inside the park on Sunday.`\
+https://www.nytimes.com/video/embedded/arts/dance/100000011122589/15-people-may-be-missing-at-the-grand-canyon-after-flash-flood.html
+
 **NYT Crossword Answers for Aug. 31, 2026**\
 `This crossword by Christopher Youngs calls for a toast.`\
 https://www.nytimes.com/2026/08/30/crosswords/daily-puzzle-2026-08-31.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/30/style/barbie-novel-alex-aster.html
 **Postal Service Rule Could Bar Millions From Voting by Mail**\
 `A judge temporarily blocked the agency from implementing a strict new rule governing mail voting. The policy could disproportionately affect Democrats and many battleground elections.`\
 https://www.nytimes.com/2026/08/30/us/politics/mail-voting-trump-midterms-supreme-court.html
-
-**Help Wanted: ‘Forward-Deployed’ Humans for the A.I. Era**\
-`Start-ups are using the military-derived term to glorify customer-facing work as clients seek people to help set up artificial intelligence tools.`\
-https://www.nytimes.com/2026/08/30/business/forward-deployed-ai.html
 
