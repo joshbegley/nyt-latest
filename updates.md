@@ -1,3 +1,7 @@
+**En tiempos de crisis climática, algunos temen que ‘todo el Himalaya se está derritiendo’**\
+`Un glaciar provocó una inundación mortal a principios de esta semana. Para los guías de senderismo y alpinistas locales, las montañas ya venían cambiando.`\
+https://www.nytimes.com/es/2026/08/31/espanol/ciencia-y-tecnologia/nepal-calentamiento-global-himalayas.html
+
 **Nepal Turns to Mass Burials as Thousands Remain Missing from Floods**\
 `Only a fraction of the over 4,200 missing in Nepal are turning up among the dead, underscoring a bleak reality: The death toll is likely to keep rising for days to come.`\
 https://www.nytimes.com/2026/08/30/world/asia/nepal-floods-mass-burials-missing.html

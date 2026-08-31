@@ -1,3 +1,71 @@
+**Food-Borne Illnesses Can Lead to Long Term Gut Issues**\
+`The cyclospora outbreak may result in a surge in cases of post-infection irritable bowel syndrome.`\
+https://www.nytimes.com/2026/08/31/well/eat/cyclospora-ibs-food-poisoning.html
+
+**Completing Our Summer Reading Bucket List**\
+`The New York Times Books team put together a Summer Reading Bucket List to help you get out of your literary comfort zone. As summer approaches its end, our team reflects on how they achieved their summer reading goals.`\
+https://www.nytimes.com/video/books/100000011099289/completing-our-summer-reading-bucket-list.html
+
+**This Marine Died in the Iraq War. His Mother Asks, ‘What Was It For?’**\
+`Travis Fuller was from my hometown. I went back and talked with his family about how they made sense of his death, 25 years after Sept. 11.`\
+https://www.nytimes.com/2026/08/31/us/politics/iraq-war-marine-death.html
+
+**‘The Least Transparent Midterm’: How Dark Money Is Washing Over the 2026 Election**\
+`At least $1 billion from anonymous donors is flowing into the midterm elections. Dark money is not new, but it now permeates nearly every major contest.`\
+https://www.nytimes.com/2026/08/31/us/politics/the-least-transparent-midterm-how-dark-money-is-washing-over-the-2026-election.html
+
+**Our Democracy Is at Stake. Stop Waiting for a Savior.**\
+`The greatest power we have is our own.`\
+https://www.nytimes.com/2026/08/31/opinion/democracy-trump-congress-midterms.html
+
+**Book Review: ‘The Castle,’ by Jon Ronson**\
+`The journalist Jon Ronson finds metaphor and meaning in the story of one man’s baronial fantasia and others like him who are living unmoored from reality.`\
+https://www.nytimes.com/2026/08/31/books/review/the-castle-jon-ronson.html
+
+**Word of the Day: symposium**\
+`This word has appeared in 56 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/08/31/learning/word-of-the-day-symposium.html
+
+**Wagner Moura’s 5 Favorite Places in Salvador, Brazil**\
+`The Oscar-nominated star of “The Secret Agent,” “Narcos” and the new Netflix thriller “The Last House” shares the places he loves in his vibrant hometown.`\
+https://www.nytimes.com/2026/08/31/travel/wagner-moura-brazil-salvador.html
+
+**Pageant Brings Its D.I.Y. Dance Spirit to MoMA**\
+`A residency at MoMA showed that Pageant, a Brooklyn performance space where experimental dance thrives, is really the sum of its artist parts.`\
+https://www.nytimes.com/2026/08/31/arts/dance/pageant-experimental-dance-moma.html
+
+**Chinese Cars Could Be Huge in U.S., and That’s the Problem, Officials Say**\
+`The Times test-drove a stunning crossover from Geely that would cost under half of what its rivals charge. Two senators and many experts point to security and economic concerns as reasons for a ban.`\
+https://www.nytimes.com/2026/08/31/business/chinese-cars-us-sales-ban.html
+
+**How Bad Will This Year’s Flu Season Be?**\
+`Doctors are hopeful for a quieter fall and winter than in 2025.`\
+https://www.nytimes.com/2026/08/31/well/flu-season-explainer-vaccination.html
+
+**These Generals Fought for Israel. Now They See ‘Jewish Terrorism’ as the Threat.**\
+`A growing number of former Israeli generals, intelligence officials and prime ministers are accusing settlers in the West Bank of committing ethnic cleansing with government support. “Once a society behaves this way,” one said, “that society is doomed.”`\
+https://www.nytimes.com/2026/08/31/world/middleeast/west-bank-israel.html
+
+**Do D.E.I. Bike Paths Exist? The Trump Administration Says Yes.**\
+`The administration has revoked funding for bike paths, and encouraged removing some. A cycling advocate said it is playing on the idea of “that dork on a bike.”`\
+https://www.nytimes.com/2026/08/31/us/politics/trump-bike-lanes-funding-dei.html
+
+**He Warned That the End of History Could Be Rough. Maybe Now People Will Listen.**\
+`Francis Fukuyama’s famous take on the post-Cold War world was widely misunderstood. In a new memoir, he tries to set the record straight.`\
+https://www.nytimes.com/2026/08/31/books/review/francis-fukuyama-in-the-realm-of-the-last-man-end-of-history.html
+
+**Is My Red Lipstick Out of Date?**\
+`A reader is wondering whether she needs a makeover.`\
+https://www.nytimes.com/2026/08/31/fashion/red-lipstick-fashion-identity.html
+
+**Pennsylvania’s A.I. Gold Rush Meets Second Thoughts**\
+`Amid a backlash, Gov. Josh Shapiro is pumping the brakes on enormous data centers. But in a region scarred by the collapse of the steel industry, some welcome billions in construction.`\
+https://www.nytimes.com/2026/08/31/business/pennsylvanias-ai-gold-rush-meets-second-thoughts.html
+
+**Leader of DOJ’s Civil Rights Unit Spars With Harvard, the Left and Her Colleagues**\
+`Harmeet Dhillon, who leads the Justice Department’s civil rights unit, has extracted flashy agreements and personnel moves from big universities and sought to force states to turn over confidential voter data.`\
+https://www.nytimes.com/2026/08/31/us/politics/harmeet-dhillon-doj-trump.html
+
 **En tiempos de crisis climática, algunos temen que ‘todo el Himalaya se está derritiendo’**\
 `Un glaciar provocó una inundación mortal a principios de esta semana. Para los guías de senderismo y alpinistas locales, las montañas ya venían cambiando.`\
 https://www.nytimes.com/es/2026/08/31/espanol/ciencia-y-tecnologia/nepal-calentamiento-global-himalayas.html
@@ -129,72 +197,4 @@ https://www.nytimes.com/2026/08/30/us/sierra-nevada-climber-rescued-mountains.ht
 **A Very Melissa Watermelon Salad**\
 `Summer’s juiciest tomatoes and watermelon team up with — what else? — anchovy bread crumbs for this elegant but easy dish.`\
 https://www.nytimes.com/2026/08/30/dining/a-very-melissa-watermelon-salad.html
-
-**U.A.E. To Review Banque Misr, Targeted by Iran Sanctions**\
-`The Treasury Department accused Banque Misr’s branches in the United Arab Emirates of helping Iran. The Emirati central bank promised an examination.`\
-https://www.nytimes.com/2026/08/30/world/middleeast/uae-banque-misr-treasury-iran.html
-
-**Ferry Carrying Hundreds of Passengers Capsizes Off Coast of Cyprus**\
-`Local authorities said 267 people were aboard the catamaran-type vessel when it began taking on water shortly after its departure from Kyrenia.`\
-https://www.nytimes.com/2026/08/30/world/europe/cyprus-ferry-capsizes-turkey.html
-
-**Why the United States Can’t Quit Its Wars**\
-`The country’s longest war came to an end exactly five years ago. Today it offers lessons for policymakers seeking to avoid an endless war in Iran.`\
-https://www.nytimes.com/2026/08/30/us/politics/us-wars-iran-afghanistan.html
-
-**‘Freedom Fuel’ Touts Cheap Gas. A Lawsuit Says the Dealer Didn’t Pay for It.**\
-`A lawsuit claims that a New Jersey-based company failed to pay for nearly $4 million worth of gas, some of which was sold to gas stations promoted by President Trump.`\
-https://www.nytimes.com/2026/08/30/us/freedom-fuel-gas-lawsuit-trump-mansfield-krsm.html
-
-**Dolly Parton Heard a Voice**\
-`She said it was a co-author on some of her biggest songs.`\
-https://www.nytimes.com/2026/08/30/briefing/dolly-parton-god-voice-song.html
-
-**SpaceX Launches NASA’s Roman Telescope**\
-`SpaceX launched the Nancy Grace Roman Space Telescope on a Falcon Heavy rocket on Sunday.`\
-https://www.nytimes.com/video/embedded/science/space/100000011121940/spacex-launches-nasas-roman-telescope.html
-
-**Google Maps Changes Lake Ontario to Lake America Following Trump’s Executive Order**\
-`Users in the United States will see the new label, following President Trump’s executive order last week.`\
-https://www.nytimes.com/2026/08/30/world/canada/lake-ontario-america-google-maps.html
-
-**See Nepali Rescue Workers Testing Aid Delivery by Drone**\
-`Some survivors of the deadly flood and landslide have no access to food. Officials and volunteers are testing how drones can help.`\
-https://www.nytimes.com/2026/08/30/world/asia/nepal-floods-aid-drone.html
-
-**This Corn-Jalapeño Pasta Is a Favorite in My House**\
-`And four more speedy dinners that hold on to summer.`\
-https://www.nytimes.com/2026/08/30/dining/this-corn-jalapeno-pasta-is-a-favorite-in-my-house.html
-
-**ICE’s ‘Arbitrary, Cruel and Costly’ Treatment of Haitians**\
-`Readers react to the crackdown on Haitians in Ohio, who are being forced to wear G.P. S. ankle monitors. Also: Democrats rebranding; Trump’s Lake Ontario effect.`\
-https://www.nytimes.com/2026/08/30/opinion/ice-ohio-hatians.html
-
-**Tennis’s Lost Shot**\
-`As the U.S. Open kicks off, we’re exploring a tennis technique that has quietly gone extinct.`\
-https://www.nytimes.com/2026/08/30/briefing/tenniss-lost-shot.html
-
-**Iceland Votes to Steer Clear of European Union Talks**\
-`After divisive debate, Icelanders rejected a proposal to resume negotiations on joining the bloc in a referendum with the highest voter turnout in almost two decades.`\
-https://www.nytimes.com/2026/08/30/world/europe/iceland-eu-referendum-talks.html
-
-**What Dolly Did for Tennessee Is What She Did for the World**\
-`This is what she did for the written word. And medicine. And …`\
-https://www.nytimes.com/2026/08/30/opinion/dolly-parton-tennessee.html
-
-**How Not to Announce a Measles Death**\
-`Josh Shapiro announced two measles deaths. Things went downhill fast.`\
-https://www.nytimes.com/2026/08/30/opinion/measles-deaths-pennsylvania-shapiro.html
-
-**NYT Connections Answers for August 31, 2026**\
-`Scroll down for hints and conversation about the puzzle for Monday, Aug. 31, 2026.`\
-https://www.nytimes.com/2026/08/30/crosswords/connections-companion-1177.html
-
-**Who Will Rule the 2026 U.S. Open?**\
-`The players, the rivalries and the dramas to follow at this year’s tournament.`\
-https://www.nytimes.com/2026/08/30/podcasts/the-daily/who-will-rule-the-2026-us-open.html
-
-**How a ’70s Improv Book Became Silicon Valley’s Required Reading**\
-`It can be useful to see reality as malleable.`\
-https://www.nytimes.com/2026/08/30/opinion/silicon-valley-theater-improv.html
 
