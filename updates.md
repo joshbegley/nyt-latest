@@ -1,3 +1,15 @@
+**The Hypebeasts of the Fringe Festival**\
+`From Hannah Reilly to Amanda Knox to clowns, who are the hype beasts of this year’s Fringe Festival? Our chief theater critic, Helen Shaw, went to Edinburgh to find out.`\
+https://www.nytimes.com/video/theater/100000011066016/the-hypebeasts-of-the-fringe-festival-edinburgh-theater.html
+
+**Messi se retira de la selección argentina**\
+`El retiro de Lionel Messi de la selección nacional de fútbol, aunque se esperaba, desató temores de un equipo disminuido y el desconsuelo por la partida de un ícono nacional.`\
+https://www.nytimes.com/es/2026/08/31/espanol/america-latina/messi-retira-seleccion-argentina.html
+
+**Meta Does the Bare Minimum for Teen Safety**\
+`On the heels of a string of court cases and a recent settlement, Meta has announced enhanced protections for teens and is reportedly taking out a full-page ad calling on other social media companies to join it.`\
+https://www.nytimes.com/video/podcasts/100000011123958/meta-does-the-bare-minimum-for-teen-safety.html
+
 **Summit With Russia, India and Iran Shows Leverage Wars Have Given Xi of China**\
 `A two-day conference of the 10-nation Shanghai Cooperation Organization in Kyrgyzstan shows the limits of U.S. economic warfare.`\
 https://www.nytimes.com/2026/08/31/world/asia/putin-xi-modi-sco.html
