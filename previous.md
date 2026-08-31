@@ -1,3 +1,15 @@
+**Mujeres y niñas son blanco de guerra del narco en Sinaloa**\
+`Un enfrentamiento de dos años entre facciones rivales del Cártel de Sinaloa está provocando un aumento de asesinatos y desapariciones dirigidos contra las mujeres.`\
+https://www.nytimes.com/es/2026/08/31/espanol/america-latina/mexico-carteles-narco-mujeres.html
+
+**Senate Primary in Massachusetts Is a Generational Fight, With a Twist**\
+`In Massachusetts, the octogenarian senator Ed Markey faces a challenge from a much younger centrist, Representative Seth Moulton.`\
+https://www.nytimes.com/2026/08/31/us/markey-moulton-massachusetts-primary-democrats-age.html
+
+**Kalshi Permanently Bars George Santos From the Platform**\
+`The prediction market said it had barred George Santos, the former congressman from New York, and fined him $71,356 over evidence he engaged in insider trading.`\
+https://www.nytimes.com/2026/08/31/business/kalshi-bans-george-santos.html
+
 **Private Equity Wants to Invest in College Sports. Some Schools Are Wary.**\
 `As desperate as many athletic programs are for money, they are proceeding cautiously when it comes to deals with private equity.`\
 https://www.nytimes.com/2026/08/31/business/private-equity-college-sports.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/08/31/business/polestar-discounts-ev-china.html
 **After a Fatal Fire, a Shaky Recovery at Housing Complex**\
 `The Nob Hill apartments in Syracuse, N.Y., went downhill after the complex was bought by a private equity group. Now, some tenants face eviction.`\
 https://www.nytimes.com/2026/08/31/nyregion/after-a-fatal-fire-a-shaky-recovery-at-housing-complex.html
-
-**‘I Work, I Sleep, I Eat, I Ferret’: Notes From an Obsessive Subculture**\
-`At the largest annual ferret show in the United States, a shrinking community fights to survive.`\
-https://www.nytimes.com/2026/08/31/us/ferret-buckeye-bash.html
-
-**Too Late to Celebrate America’s 250th? Nah, There’s Still Time.**\
-`The Labor Day weekend might be your last, best chance to celebrate the United States’ semiquincentennial. Here’s what’s on offer.`\
-https://www.nytimes.com/2026/08/31/travel/labor-day-america-250.html
-
-**This Fall, Fashion Goes Oversize**\
-`High-contrast men’s wear mixes matte black with bold colors, and extrabulky layers with slim-cut silhouettes.`\
-https://www.nytimes.com/2026/08/31/t-magazine/mens-fashion-layers-oversize.html
 

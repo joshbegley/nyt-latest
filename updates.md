@@ -1,3 +1,15 @@
+**Mujeres y niñas son blanco de guerra del narco en Sinaloa**\
+`Un enfrentamiento de dos años entre facciones rivales del Cártel de Sinaloa está provocando un aumento de asesinatos y desapariciones dirigidos contra las mujeres.`\
+https://www.nytimes.com/es/2026/08/31/espanol/america-latina/mexico-carteles-narco-mujeres.html
+
+**Senate Primary in Massachusetts Is a Generational Fight, With a Twist**\
+`In Massachusetts, the octogenarian senator Ed Markey faces a challenge from a much younger centrist, Representative Seth Moulton.`\
+https://www.nytimes.com/2026/08/31/us/markey-moulton-massachusetts-primary-democrats-age.html
+
+**Kalshi Permanently Bars George Santos From the Platform**\
+`The prediction market said it had barred George Santos, the former congressman from New York, and fined him $71,356 over evidence he engaged in insider trading.`\
+https://www.nytimes.com/2026/08/31/business/kalshi-bans-george-santos.html
+
 **‘The Nest of Snakes’: Warring Cartels Target Women in Mexico**\
 `A two-year war between rival Sinaloa Cartel factions is driving a surge in killings and disappearances targeting women.`\
 https://www.nytimes.com/2026/08/31/world/americas/warring-cartels-target-women-in-mexico.html
