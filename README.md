@@ -1,3 +1,7 @@
+**Can You Match These Quotations to the Correct Book?**\
+`Some lines stick in your mind long after you’ve finished reading. Try this short quiz to see how many you recognize from popular authors.`\
+https://www.nytimes.com/quiz/2026/08/31/bookreview/education-quotes-quiz.html
+
 **This Roasted Salmon and Broccoli Bowl Will Ease You Into Fall**\
 `The crowning touch is the anchovy lemon dressing that brings it all together.`\
 https://www.nytimes.com/2026/08/31/dining/this-roasted-salmon-and-broccoli-bowl-will-ease-you-into-fall.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/31/science/dog-breeding-gene-editing-crispr.html
 **Foodborne Illnesses Can Lead to Long-Term Gut Issues**\
 `The cyclospora outbreak may result in a surge in cases of post-infection irritable bowel syndrome.`\
 https://www.nytimes.com/2026/08/31/well/eat/cyclospora-ibs-food-poisoning.html
-
-**Completing Our Summer Reading Bucket List**\
-`The New York Times Books team put together a Summer Reading Bucket List to help you get out of your literary comfort zone. As summer approaches its end, our team reflects on how they achieved their summer reading goals.`\
-https://www.nytimes.com/video/books/100000011099289/completing-our-summer-reading-bucket-list.html
 
