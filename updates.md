@@ -1,3 +1,11 @@
+**Death Toll Rises in Grand Canyon Flood as Search Efforts Continue**\
+`Officials announced a second death and said more than a dozen people remain unaccounted for following heavy rain.`\
+https://www.nytimes.com/2026/08/31/us/grand-canyon-floods.html
+
+**Should Children Be Allowed to Be Actors?**\
+`Readers, including a former child actor and a casting director, respond to an Opinion guest essay by Alison Pill.`\
+https://www.nytimes.com/2026/08/31/opinion/letters/child-actors.html
+
 **Tropical Storm Edouard Could Form Near Texas on Monday**\
 `A cluster of thunderstorms that could become Tropical Storm Edouard threatens to bring heavy rain to Southeast Texas and western Louisiana.`\
 https://www.nytimes.com/2026/08/31/weather/texas-rain-gulf-eduardo.html
