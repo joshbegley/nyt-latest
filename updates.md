@@ -1,3 +1,11 @@
+**El director de una escuela salvó a 900 estudiantes de las inundaciones en Nepal**\
+`Rajendra Dawadi tuvo menos de 15 minutos para actuar ante una alerta por la crecida de las aguas. Su rápido plan de evacuación salvó cientos de vidas.`\
+https://www.nytimes.com/es/2026/08/31/espanol/mundo/nepal-inundacion-director-escuela-salva-estudiantes.html
+
+**Supreme Court Allows Trump’s White House Ballroom Construction**\
+`Lower-court rulings would have blocked construction of the 90,000-square-foot ballroom after finding that the Trump administration should have first sought approval from Congress.`\
+https://www.nytimes.com/2026/08/31/us/politics/supreme-court-trump-ballroom.html
+
 **What to Know About Hiking in Areas Prone to Flash Floods**\
 `Canyons, small streams and dry creek beds in the West can be deceptively dangerous, trapping hikers when rainfall upstream causes rapidly rising water.`\
 https://www.nytimes.com/2026/08/31/travel/flash-floods-hiking-what-to-know.html
