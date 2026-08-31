@@ -1,5 +1,9 @@
+**Expedia Fights Off Claim for Damages by Cuban Exile Families**\
+`A jury in Florida found that in their suit against the travel booking company, the plaintiffs had failed to prove ownership over tourism properties in Cuba.`\
+https://www.nytimes.com/2026/08/31/world/americas/expedia-cuba-exiles-suit.html
+
 **JD Vance Called Michigan Senate Candidate Abdul El-Sayed ‘Evil’ in Speech**\
-`The vice president also told Dr. El-Sayed, Michigan’s Democratic Senate nominee, to “keep my wife’s name out of your mouth.”`\
+`Vice President JD Vance also told Dr. Abdul El-Sayed, Michigan’s Democratic Senate nominee, to “keep my wife’s name out of your mouth.”`\
 https://www.nytimes.com/2026/08/31/us/politics/vance-el-sayed-michigan-speech.html
 
 **C.D.C. Director Challenges Pennsylvania’s Report of Two Measles Deaths**\
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/08/31/arts/music/daisy-chain-fields-olivia-rodrigo.
 **Pedro Sánchez dice que 5000 migrantes siguen en Ceuta, España**\
 `Su continua presencia ha agitado al territorio español en África y ha aumentado la presión sobre las políticas de inmigración del gobierno español.`\
 https://www.nytimes.com/es/2026/08/31/espanol/mundo/espana-sanchez-migrantes-ceuta.html
-
-**Qué esperar esta temporada de influenza**\
-`Los médicos tienen la esperanza de que el otoño y el invierno sean más tranquilos que en 2025.`\
-https://www.nytimes.com/es/2026/08/31/espanol/estilos-de-vida/gripe-influenza-covid-vacunas.html
 
