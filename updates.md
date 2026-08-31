@@ -1,3 +1,7 @@
+**Army’s Top Civilian Leader Resigns as It Grapples With Two Wars**\
+`The resignation of Daniel P. Driscoll, the secretary of the Army, had been expected but comes at a tumultuous time for the service.`\
+https://www.nytimes.com/2026/08/31/us/politics/armys-top-civilian-leader-resigns-as-it-grapples-with-two-wars.html
+
 **How El-Sayed Could Dispatch His Hasan Piker Problem**\
 `Republicans hold their trolls close. For Democrats, it’s more complicated.`\
 https://www.nytimes.com/2026/08/31/opinion/el-sayed-hasan-piker.html

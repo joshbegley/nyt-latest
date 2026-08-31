@@ -1,6 +1,10 @@
+**Trump Mocks Data-Center Opponents as Wanting to Stay ‘Backwards and Poor’**\
+`The giant computing sites that power A.I. are increasingly opposed by communities across the country, a signal of voters’ concern about a changing economy.`\
+https://www.nytimes.com/2026/08/31/us/politics/trump-data-centers.html
+
 **Army’s Top Civilian Leader Resigns as It Grapples With Two Wars**\
 `The resignation of Daniel P. Driscoll, the secretary of the Army, had been expected but comes at a tumultuous time for the service.`\
-https://www.nytimes.com/2026/08/31/us/politics/armys-top-civilian-leader-resigns-as-it-grapples-with-two-wars.html
+https://www.nytimes.com/2026/08/31/us/politics/army-secretary-daniel-driscoll-resign.html
 
 **How El-Sayed Could Dispatch His Hasan Piker Problem**\
 `Republicans hold their trolls close. For Democrats, it’s more complicated.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/31/realestate/wheatleigh-gilded-age-hotel-tangle
 **Ella Langley’s ‘Choosin’ Texas’ Breaks Record With 20th Week at No. 1**\
 `The singer-songwriter set the record for a non-holiday song, topping the Hot 100 in a week that saw country hits dominate and Dolly Parton’s return.`\
 https://www.nytimes.com/2026/08/31/arts/music/ella-langley-choosin-texas-record.html
-
-**Rescue Trucks at LaGuardia and J.F.K. Get Trackers After Fatal Crash**\
-`Investigators said a missing piece of equipment on a fire truck played a role in March’s deadly collision with an Air Canada Express jet at LaGuardia.`\
-https://www.nytimes.com/2026/08/31/nyregion/rescue-trucks-at-laguardia-and-jfk-get-trackers-after-fatal-crash.html
 

@@ -1,3 +1,7 @@
+**Army’s Top Civilian Leader Resigns as It Grapples With Two Wars**\
+`The resignation of Daniel P. Driscoll, the secretary of the Army, had been expected but comes at a tumultuous time for the service.`\
+https://www.nytimes.com/2026/08/31/us/politics/armys-top-civilian-leader-resigns-as-it-grapples-with-two-wars.html
+
 **How El-Sayed Could Dispatch His Hasan Piker Problem**\
 `Republicans hold their trolls close. For Democrats, it’s more complicated.`\
 https://www.nytimes.com/2026/08/31/opinion/el-sayed-hasan-piker.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/31/arts/music/ella-langley-choosin-texas-record.
 **Rescue Trucks at LaGuardia and J.F.K. Get Trackers After Fatal Crash**\
 `Investigators said a missing piece of equipment on a fire truck played a role in March’s deadly collision with an Air Canada Express jet at LaGuardia.`\
 https://www.nytimes.com/2026/08/31/nyregion/rescue-trucks-at-laguardia-and-jfk-get-trackers-after-fatal-crash.html
-
-**At the U.S. Open Gala With Orlando Bloom, Lindsey Vonn and More**\
-`Katie Couric, Orlando Bloom, Lindsey Vonn and Vera Wang celebrated the tournament’s opening night in Queens with a charity dinner and matches featuring two titans of tennis.`\
-https://www.nytimes.com/2026/08/31/style/us-open-orlando-bloom-vera-wang.html
 
