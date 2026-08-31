@@ -1,3 +1,7 @@
+**Lionel Messi’s Retirement From Soccer Sparks Heartbreak Across Argentina**\
+`Lionel Messi’s retirement from the national soccer team, though widely expected, sparked fears of a diminished squad, and heartbreak over the departure of a national icon.`\
+https://www.nytimes.com/2026/08/31/world/americas/lionel-messi-retirement-soccer-argentina.html
+
 **China Is the Star at a Summit With the Leaders of Russia, India and Iran**\
 `The two-day conference of the 10-nation Shanghai Cooperation Organization in Kyrgyzstan shows the limits of U.S. economic warfare.`\
 https://www.nytimes.com/2026/08/31/world/asia/putin-xi-modi-sco.html
