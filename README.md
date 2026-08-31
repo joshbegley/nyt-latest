@@ -59,7 +59,7 @@ https://www.nytimes.com/es/2026/08/31/espanol/cultura/rachel-cusk-natalie-portma
 https://www.nytimes.com/2026/08/31/world/asia/china-nepal-tibet-flood-himalayas-risk.html
 
 **Global Oil Price Rises to $90 a Barrel After U.S. and Iran Trade Attacks**\
-`The first attacks in a month jolted energy markets. The average U.S. gasoline price remained 37 percent higher since the war began.`\
+`Oil/Stocks/Gas hed`\
 https://www.nytimes.com/2026/08/31/business/oil-prices-iran-war.html
 
 **G20 Finance Officials Gather in U.S. as Iran War Grips Global Economy**\
