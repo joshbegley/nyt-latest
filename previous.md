@@ -1,3 +1,7 @@
+**Olivia Rodrigo’s Daisy Chain Fields: A New Feminist Music Festival Takes Shape**\
+`At the first Daisy Chain Fields festival, the 23-year-old pop star presented a cross-generational vision of female empowerment. (With Taco Bell activations, too.)`\
+https://www.nytimes.com/2026/08/31/arts/music/daisy-chain-fields-olivia-rodrigo.html
+
 **Pedro Sánchez dice que 5000 migrantes siguen en Ceuta, España**\
 `Su continua presencia ha agitado al territorio español en África y ha aumentado la presión sobre las políticas de inmigración del gobierno español.`\
 https://www.nytimes.com/es/2026/08/31/espanol/mundo/espana-sanchez-migrantes-ceuta.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/31/realestate/a-nashville-home-with-an-eclectic-
 **US Open Day 1: Can Djokovic Take Much More of This?**\
 `The greatest men’s player of all time succumbed to his first Grand Slam round one defeat since 2006.`\
 https://www.nytimes.com/2026/08/31/podcasts/us-open-novak-djokovic.html
-
-**A $480,000-a-Year Pill Reflects a New Normal for Cancer Drugs**\
-`Rasonque, the new pancreatic cancer treatment from Revolution Medicines, illustrates the huge inflation in cancer drug prices over the past two decades.`\
-https://www.nytimes.com/2026/08/31/business/pancreatic-cancer-drug-prices.html
 

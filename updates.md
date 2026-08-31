@@ -1,3 +1,7 @@
+**Olivia Rodrigo’s Daisy Chain Fields: A New Feminist Music Festival Takes Shape**\
+`At the first Daisy Chain Fields festival, the 23-year-old pop star presented a cross-generational vision of female empowerment. (With Taco Bell activations, too.)`\
+https://www.nytimes.com/2026/08/31/arts/music/daisy-chain-fields-olivia-rodrigo.html
+
 **Pedro Sánchez dice que 5000 migrantes siguen en Ceuta, España**\
 `Su continua presencia ha agitado al territorio español en África y ha aumentado la presión sobre las políticas de inmigración del gobierno español.`\
 https://www.nytimes.com/es/2026/08/31/espanol/mundo/espana-sanchez-migrantes-ceuta.html
