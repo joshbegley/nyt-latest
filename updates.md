@@ -1,3 +1,15 @@
+**Luxury Berkshires Hotel Could Become a Single-Family Home**\
+`The future of Wheatleigh, a Gilded Age mansion and luxury hotel in the Berkshires on the market for $14.5 million, depends on who buys it — and when.`\
+https://www.nytimes.com/2026/08/31/realestate/wheatleigh-gilded-age-hotel-tanglewood.html
+
+**Ella Langley’s ‘Choosin’ Texas’ Breaks Record With 20th Week at No. 1**\
+`The singer-songwriter set the record for a non-holiday song, topping the Hot 100 in a week that saw country hits dominate and Dolly Parton’s return.`\
+https://www.nytimes.com/2026/08/31/arts/music/ella-langley-choosin-texas-record.html
+
+**After Floods, Grand Canyon Opens on a Limited Basis. What to Know.**\
+`As the search for missing visitors continues, the National Park has shut down hotels and much of its terrain, but people can still enter.`\
+https://www.nytimes.com/2026/08/31/travel/grand-canyon-reopen-floods-what-to-know.html
+
 **Rescue Trucks at LaGuardia and J.F.K. Get Trackers After Fatal Crash**\
 `Investigators said a missing piece of equipment on a fire truck played a role in March’s deadly collision with an Air Canada Express jet at LaGuardia.`\
 https://www.nytimes.com/2026/08/31/nyregion/rescue-trucks-at-laguardia-and-jfk-get-trackers-after-fatal-crash.html
