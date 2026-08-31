@@ -1,3 +1,7 @@
+**‘The Nest of Snakes’: Warring Cartels Target Women in Mexico**\
+`A two-year war between rival Sinaloa Cartel factions is driving a surge in killings and disappearances targeting women.`\
+https://www.nytimes.com/2026/08/31/world/americas/warring-cartels-target-women-in-mexico.html
+
 **Private Equity Wants to Invest in College Sports. Some Schools Are Wary.**\
 `As desperate as many athletic programs are for money, they are proceeding cautiously when it comes to deals with private equity.`\
 https://www.nytimes.com/2026/08/31/business/private-equity-college-sports.html
