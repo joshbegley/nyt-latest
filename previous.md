@@ -1,3 +1,7 @@
+**Maps: Tracking Hurricane Karina**\
+`See the likely path and wind arrival times for Karina`\
+https://www.nytimes.com/interactive/2026/08/31/weather/karina-map-path-tracker.html
+
 **Nepal Turns Forest Into Mass Grave for Unidentified Flood Victims**\
 `A forest in Nepal has become a mass grave for unidentified victims after a glacier snapped off and unleashed a deadly torrent of floodwaters.`\
 https://www.nytimes.com/video/world/asia/100000011122668/nepal-flood-mass-burial.html
@@ -79,7 +83,7 @@ https://www.nytimes.com/2026/08/30/us/baby-bear-shoe-photographer-alaska.html
 https://www.nytimes.com/video/us/100000011122014/grizzly-bear-cub-photographer-shoe.html
 
 **Nepal Turns to Mass Burials, as Thousands Remain Missing from Floods**\
-`Only a fraction of the over 2,500 missing are turning up among the dead, underscoring a bleak reality: The death toll is likely to keep rising for days to come.`\
+`Only a fraction of the over 4,200 missing in Nepal are turning up among the dead, underscoring a bleak reality: The death toll is likely to keep rising for days to come.`\
 https://www.nytimes.com/2026/08/30/world/asia/nepal-floods-mass-burials-missing.html
 
 **More Than 22,000 Ancient Artifacts Seized in Florida**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/30/opinion/silicon-valley-theater-improv.html
 **Today’s Wordle Hints for August 31, 2026**\
 `Scroll down for hints and conversation about the puzzle for Monday, Aug. 31, 2026.`\
 https://www.nytimes.com/2026/08/30/crosswords/wordle-review-1899.html
-
-**The World Is a Room With a Piano Waiting to Be Played**\
-`Like any life, mine has had its pain, yet from the outset it seems to have been graced by unbelievable people and events. An anthology of miracles.`\
-https://www.nytimes.com/2026/08/30/opinion/wonder-awe-aging.html
 
