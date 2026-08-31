@@ -1,3 +1,15 @@
+**NYT Spelling Bee Answers for August 31, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/08/31/crosswords/spelling-bee-forum.html
+
+**A Developer Wants to Knock Down a Big Tree. Neighbors Are Rebelling.**\
+`The standoff in a New Jersey suburb has tapped grievances that seem to spread far beyond the tree’s 98-foot canopy.`\
+https://www.nytimes.com/2026/08/31/nyregion/maplewood-nj-tree-removal.html
+
+**By Fighting Union Pay Bonus, Mamdani Wins Rare Praise From Conservatives**\
+`A lawsuit filed by the Mamdani administration to block $10,000 bonuses for teachers’ aides has put the mayor at odds with their union.`\
+https://www.nytimes.com/2026/08/31/nyregion/mamdani-uft-paraprofessionals-budget.html
+
 **Putin Is Coming for Russian Literature**\
 `The Kremlin is redefining what it means to be a writer in Russia.`\
 https://www.nytimes.com/2026/08/31/opinion/russia-putin-writers-literature.html
