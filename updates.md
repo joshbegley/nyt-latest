@@ -1,3 +1,19 @@
+**Ed Markey Defends Transgender Athletes in Massachusetts Senate Race**\
+`Senator Ed Markey of Massachusetts has emerged as a vocal defender of transgender rights as he tries to fend off a primary challenge from Representative Seth Moulton.`\
+https://www.nytimes.com/2026/08/30/us/politics/ed-markey-seth-moulton-transgender-athletes-massachusetts.html
+
+**NASA’s Nancy Grace Roman Telescope Leaves Earth to Chart the Stars**\
+`Astronomers will use data collected by Roman’s wide, deep gaze to study the dark universe and hunt for new worlds.`\
+https://www.nytimes.com/2026/08/30/science/spacex-roman-telescope-launch.html
+
+**For the Venice Film Festival, an Island Setting for Almost a Century**\
+`Once a year, the tiny island of Lido is transformed into a rich field of artistic expression for the festival.`\
+https://www.nytimes.com/2026/08/30/movies/venice-film-festival-lido.html
+
+**Venice Film Festival: Wim Wenders Talks About Architecture and More**\
+`The director talks about his documentary on Peter Zumthor, the Pritzker Prize-winning Swiss architect, which is premiering at the Venice Film Festival.`\
+https://www.nytimes.com/2026/08/30/movies/wim-wenders-peter-zumthor-venice-film.html
+
 **NYT Crossword Answers for Aug. 31, 2026**\
 `This crossword by Christopher Youngs calls for a toast.`\
 https://www.nytimes.com/2026/08/30/crosswords/daily-puzzle-2026-08-31.html
