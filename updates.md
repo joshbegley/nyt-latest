@@ -1,3 +1,7 @@
+**Teen Charged With Murder After Livestreaming San Diego Mosque Shooting**\
+`The authorities said the 17-year-old from North Carolina had recorded the attack, which killed three people in May. “She ran with the pack — she shared in the kill,” the district attorney said.`\
+https://www.nytimes.com/2026/08/31/us/san-diego-mosque-shooting-livestream-murder-charge.html
+
 **Bessent Claims Canada Is Too Small to Fight a Trade War With the U.S.**\
 `At gathering of G20 finance ministers, the Treasury secretary accused Canada’s prime minister of starting a “political shouting match” over U.S. trade policies.`\
 https://www.nytimes.com/2026/08/31/us/politics/canada-bessent-carney-trade.html
