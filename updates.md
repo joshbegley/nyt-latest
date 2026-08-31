@@ -1,3 +1,11 @@
+**After Floods, Grand Canyon Opens on a Limited Basis. What to Know.**\
+`As the search for missing visitors continues, the National Park has shut down hotels and much of its terrain, but visitors can still enter.`\
+https://www.nytimes.com/2026/08/31/travel/grand-canyon-reopen-floods-what-to-know.html
+
+**G20 Finance Officials Gather in U.S. as Iran War Grips Global Economy**\
+`The meeting, which China and Russia are attending, is  focused on the ongoing economic shock from the war in Iran, which has driven up oil prices globally.`\
+https://www.nytimes.com/2026/08/31/business/g20-finance-iran-bessent.html
+
 **EE. UU. e Irán intercambian ataques otra vez**\
 `La reanudación de los ataques fue el indicio más reciente de que la guerra que comenzó hace seis meses parece estar lejos de terminar.`\
 https://www.nytimes.com/es/2026/08/31/espanol/mundo/iran-estados-unidos-guerra-bombardeo.html

@@ -1,3 +1,7 @@
+**After Floods, Grand Canyon Opens on a Limited Basis. What to Know.**\
+`As the search for missing visitors continues, the National Park has shut down hotels and much of its terrain, but visitors can still enter.`\
+https://www.nytimes.com/2026/08/31/travel/grand-canyon-reopen-floods-what-to-know.html
+
 **EE. UU. e Irán intercambian ataques otra vez**\
 `La reanudación de los ataques fue el indicio más reciente de que la guerra que comenzó hace seis meses parece estar lejos de terminar.`\
 https://www.nytimes.com/es/2026/08/31/espanol/mundo/iran-estados-unidos-guerra-bombardeo.html
@@ -103,7 +107,7 @@ https://www.nytimes.com/2026/08/31/world/asia/china-nepal-tibet-flood-himalayas-
 https://www.nytimes.com/2026/08/31/business/oil-prices-iran-war.html
 
 **G20 Finance Officials Gather in U.S. as Iran War Grips Global Economy**\
-`The meeting is expected to focus on the ongoing economic shock from the war in Iran, which has driven up oil prices globally.`\
+`The meeting, which China and Russia are attending, is  focused on the ongoing economic shock from the war in Iran, which has driven up oil prices globally.`\
 https://www.nytimes.com/2026/08/31/business/g20-finance-iran-bessent.html
 
 **Democrats Have a Trump Card for Attacks On Wokeness**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/books/100000011099289/completing-our-summer-readin
 **This Marine Died in the Iraq War. His Mother Asks, ‘What Was It For?’**\
 `Travis Fuller was from my hometown. I went back and talked with his family about how they made sense of his death, 25 years after Sept. 11.`\
 https://www.nytimes.com/2026/08/31/us/politics/iraq-war-marine-death.html
-
-**‘The Least Transparent Midterm’: How Dark Money Is Washing Over the 2026 Election**\
-`At least $1 billion from anonymous donors is flowing into the midterm elections. Dark money is not new, but it now permeates nearly every major contest.`\
-https://www.nytimes.com/2026/08/31/us/politics/the-least-transparent-midterm-how-dark-money-is-washing-over-the-2026-election.html
 
