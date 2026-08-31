@@ -1,3 +1,11 @@
+**Day Cares Will Get Funds to Open in Time for School, Mamdani Says**\
+`Mr. Mamdani and Kamar Samuels, the chancellor of the city’s schools, made the announcement after some providers told The New York Times they had no money to open on the first day of school.`\
+https://www.nytimes.com/2026/08/31/nyregion/day-care-funding-nyc-mamdani.html
+
+**Death Toll Rises in Grand Canyon Flood as Search Efforts Continue**\
+`Officials announced a second death and said that more than a dozen people remain unaccounted for after heavy rain.`\
+https://www.nytimes.com/2026/08/31/us/grand-canyon-floods.html
+
 **Lionel Messi’s Retirement From Soccer Sparks Heartbreak Across Argentina**\
 `Lionel Messi’s retirement from the national soccer team, though widely expected, sparked fears of a diminished squad, and heartbreak over the departure of a national icon.`\
 https://www.nytimes.com/2026/08/31/world/americas/lionel-messi-retirement-soccer-argentina.html

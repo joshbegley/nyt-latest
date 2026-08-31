@@ -1,3 +1,7 @@
+**Day Cares Will Get Funds to Open in Time for School, Mamdani Says**\
+`Mr. Mamdani and Kamar Samuels, the chancellor of the city’s schools, made the announcement after some providers told The New York Times they had no money to open on the first day of school.`\
+https://www.nytimes.com/2026/08/31/nyregion/day-care-funding-nyc-mamdani.html
+
 **Lionel Messi’s Retirement From Soccer Sparks Heartbreak Across Argentina**\
 `Lionel Messi’s retirement from the national soccer team, though widely expected, sparked fears of a diminished squad, and heartbreak over the departure of a national icon.`\
 https://www.nytimes.com/2026/08/31/world/americas/lionel-messi-retirement-soccer-argentina.html
@@ -31,7 +35,7 @@ https://www.nytimes.com/es/2026/08/31/espanol/mundo/espana-sanchez-migrantes-ceu
 https://www.nytimes.com/es/2026/08/31/espanol/estilos-de-vida/gripe-influenza-covid-vacunas.html
 
 **Death Toll Rises in Grand Canyon Flood as Search Efforts Continue**\
-`Officials announced a second death and said more than a dozen people remain unaccounted for following heavy rain.`\
+`Officials announced a second death and said that more than a dozen people remain unaccounted for after heavy rain.`\
 https://www.nytimes.com/2026/08/31/us/grand-canyon-floods.html
 
 **Should Children Be Allowed to Be Actors?**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/31/business/g20-finance-iran-bessent.html
 **Democrats Have a Trump Card for Attacks On Wokeness**\
 `The party that capitulated to Trump has the most to answer for`\
 https://www.nytimes.com/2026/08/31/opinion/democrats-wokeness-republicans.html
-
-**Lindsay Clancy Murder Trial: Jury Deliberations Expected to Continue**\
-`Jurors resumed discussion of the high-profile case on Monday, after deliberating last week for about 10 hours over two days.`\
-https://www.nytimes.com/2026/08/31/us/lindsay-clancy-murder-trial-jury-deliberations.html
 
