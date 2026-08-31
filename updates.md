@@ -1,3 +1,7 @@
+**Scott Brown Was a GOP Star. Will It Matter in the New Hampshire Senate Race?**\
+`Scott Brown is chasing the political limelight again with a seemingly improvised Senate campaign.`\
+https://www.nytimes.com/2026/08/31/us/politics/new-hampshire-senate-scott-brown.html
+
 **Mansour Abbas Recruits Yoav Segalovitz to Join Raam Party in Israeli Election**\
 `Mansour Abbas has recruited a Jewish lawmaker best known for reducing the crime rate in Arab cities. Could that be enough to get Mr. Abbas a seat in the next government?`\
 https://www.nytimes.com/2026/08/31/world/middleeast/israel-raam-recruits-zionist.html

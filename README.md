@@ -1,3 +1,11 @@
+**J.D. Vance Called Michigan Senate Candidate Abdul El-Sayed ‘Evil’ in Speech**\
+`The vice president also told Dr. El-Sayed, Michigan’s Democratic Senate nominee, to “keep my wife’s name out of your mouth.”`\
+https://www.nytimes.com/2026/08/31/us/politics/vance-el-sayed-michigan-speech.html
+
+**C.D.C. Director Challenges Pennsylvania’s Report of Two Measles Deaths**\
+`Questioning a state’s investigation is highly unusual for the public health agency, but reflects tensions between the Trump administration and many states over health issues.`\
+https://www.nytimes.com/2026/08/31/health/measles-deaths-pennsylvania-schwartz-kennedy-shapiro.html
+
 **Scott Brown Was a GOP Star. Will It Matter in the New Hampshire Senate Race?**\
 `Scott Brown is chasing the political limelight again with a seemingly improvised Senate campaign.`\
 https://www.nytimes.com/2026/08/31/us/politics/new-hampshire-senate-scott-brown.html
@@ -14,7 +22,7 @@ https://www.nytimes.com/2026/08/31/arts/design/smithsonian-latino-museum-arts-in
 `Officials first thought it was just an A.I. ruse, until they checked satellite images of northern British Columbia. It was there, until it was not.`\
 https://www.nytimes.com/2026/08/31/world/canada/missing-island-canada-williston-reservoir.html
 
-**Woman Stabs 2, Killing One, in Times Square and Is Shot Dead by Police**\
+**Woman Stabs 2, Killing One, in Times Square and Is Shot Dead by N.Y.P.D.**\
 `The police fired at the knife-wielding woman after trying to use less lethal force, officials said.`\
 https://www.nytimes.com/2026/08/31/nyregion/times-square-subway-stabbing-nypd-shooting.html
 
@@ -181,12 +189,4 @@ https://www.nytimes.com/es/2026/08/31/espanol/mundo/espana-sanchez-migrantes-ceu
 **Qué esperar esta temporada de influenza**\
 `Los médicos tienen la esperanza de que el otoño y el invierno sean más tranquilos que en 2025.`\
 https://www.nytimes.com/es/2026/08/31/espanol/estilos-de-vida/gripe-influenza-covid-vacunas.html
-
-**Death Toll Rises in Grand Canyon Flood as Search Continues**\
-`Officials announced a second death and said that more than a dozen people remain unaccounted for after heavy rain.`\
-https://www.nytimes.com/2026/08/31/us/grand-canyon-floods.html
-
-**Should Children Be Allowed to Be Actors?**\
-`Readers, including a former child actor and a casting director, respond to an Opinion guest essay by Alison Pill.`\
-https://www.nytimes.com/2026/08/31/opinion/letters/child-actors.html
 
