@@ -1,5 +1,9 @@
+**‘Lanterns’ Season 1, Episode 3 Recap: Parents and Guardians**\
+`This week offered an in-depth look at how John Stewart got to be next in line to wear the Green Lantern ring. It wasn’t an easy road.`\
+https://www.nytimes.com/2026/08/30/arts/television/lanterns-recap-season-1-episode-3.html
+
 ****\
-`A search and rescue helicopter near Bright Angel campground inside the park on Sunday.`\
+`A search and rescue helicopter near Bright Angel campground inside the park on Saturday.`\
 https://www.nytimes.com/video/embedded/arts/dance/100000011122589/15-people-may-be-missing-at-the-grand-canyon-after-flash-flood.html
 
 **NYT Crossword Answers for Aug. 31, 2026**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/30/business/the-case-of-the-truly-incorrigible-c
 **Barbie for Grown-Ups**\
 `A full-length Barbie novel with mature concerns — even Barbie has job troubles, it seems — is allowing women to bring their girlhood passions into adulthood.`\
 https://www.nytimes.com/2026/08/30/style/barbie-novel-alex-aster.html
-
-**Postal Service Rule Could Bar Millions From Voting by Mail**\
-`A judge temporarily blocked the agency from implementing a strict new rule governing mail voting. The policy could disproportionately affect Democrats and many battleground elections.`\
-https://www.nytimes.com/2026/08/30/us/politics/mail-voting-trump-midterms-supreme-court.html
 
