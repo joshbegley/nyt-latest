@@ -1,3 +1,7 @@
+**EE. UU. e Irán intercambian ataques otra vez**\
+`La reanudación de los ataques fue el indicio más reciente de que la guerra que comenzó hace seis meses parece estar lejos de terminar.`\
+https://www.nytimes.com/es/2026/08/31/espanol/mundo/iran-estados-unidos-guerra-bombardeo.html
+
 **Warring Cartels Target Women in Mexico**\
 `A two-year war between rival Sinaloa Cartel factions is driving a surge in killings and disappearances targeting women.`\
 https://www.nytimes.com/2026/08/31/world/americas/warring-cartels-target-women-in-mexico.html
@@ -54,7 +58,7 @@ https://www.nytimes.com/2026/08/31/world/middleeast/us-iran-uae-jordan-attacks.h
 `The nearly constant air raids, a shift from years of largely overnight attacks, have left residents exhausted and on edge.`\
 https://www.nytimes.com/2026/08/31/world/europe/ukraine-kyiv-drones-russia-sirens.html
 
-**U.S. Start-Up and Saudi Arabia Team Up for Data Center**\
+**U.S. Start-Up and Saudi Arabia Form Data Center Partnership**\
 `Together AI, which serves open-source artificial intelligence models, announced a deal to use compute from Humain in Saudi Arabia, where it can bypass U.S. backlash over data centers.`\
 https://www.nytimes.com/2026/08/31/business/dealbook/together-ai-humain-saudi-arabia-data-center.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/31/us/politics/iraq-war-marine-death.html
 **‘The Least Transparent Midterm’: How Dark Money Is Washing Over the 2026 Election**\
 `At least $1 billion from anonymous donors is flowing into the midterm elections. Dark money is not new, but it now permeates nearly every major contest.`\
 https://www.nytimes.com/2026/08/31/us/politics/the-least-transparent-midterm-how-dark-money-is-washing-over-the-2026-election.html
-
-**Our Democracy Is at Stake. Stop Waiting for a Savior.**\
-`The greatest power we have is our own.`\
-https://www.nytimes.com/2026/08/31/opinion/democracy-trump-congress-midterms.html
 
