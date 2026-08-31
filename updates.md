@@ -1,3 +1,11 @@
+**Mel Gibson Apologizes After Mocking Sign Language Interpreter Onstage**\
+`The actor waved his hands in what seemed to be a derisive gesture while appearing at a fan event in Toronto over the weekend.`\
+https://www.nytimes.com/2026/08/31/movies/mel-gibson-sign-language-apology.html
+
+**Jurors Begin Deliberating at Tupac Shakur Murder Trial**\
+`Duane Keith Davis is accused of orchestrating the drive-by shooting of the rapper in Las Vegas in 1996. He has pleaded not guilty.`\
+https://www.nytimes.com/2026/08/31/arts/music/tupac-shakur-murder-trial-jury-deliberations.html
+
 **U.S. Strikes May Have Targeted a New Type of Iranian Naval Mine**\
 `The U.S. military said its attacks against Iran were in response to a threat to the Strait of Hormuz.`\
 https://www.nytimes.com/2026/08/31/us/politics/us-strikes-iran-new-naval-mine.html
