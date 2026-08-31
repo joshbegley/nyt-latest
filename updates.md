@@ -1,3 +1,7 @@
+**Foodborne Illnesses Can Lead to Long-Term Gut Issues**\
+`The cyclospora outbreak may result in a surge in cases of post-infection irritable bowel syndrome.`\
+https://www.nytimes.com/2026/08/31/well/eat/cyclospora-ibs-food-poisoning.html
+
 **What Is Phantom Ranch? Inside the Grand Canyon Lodge Hit by Flash Flooding**\
 `Phantom Ranch, the only lodge within the Grand Canyon, has drawn adventurers and dignitaries, including Theodore Roosevelt, for more than a century.`\
 https://www.nytimes.com/2026/08/31/us/grand-canyon-flooding-phantom-ranch.html

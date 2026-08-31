@@ -142,7 +142,7 @@ https://www.nytimes.com/2026/08/31/t-magazine/mens-fashion-layers-oversize.html
 `Technologies like CRISPR are giving us new ways to create the dogs of our dreams — and a reason to reckon with our past mistakes.`\
 https://www.nytimes.com/2026/08/31/science/dog-breeding-gene-editing-crispr.html
 
-**Food-Borne Illnesses Can Lead to Long Term Gut Issues**\
+**Foodborne Illnesses Can Lead to Long-Term Gut Issues**\
 `The cyclospora outbreak may result in a surge in cases of post-infection irritable bowel syndrome.`\
 https://www.nytimes.com/2026/08/31/well/eat/cyclospora-ibs-food-poisoning.html
 
