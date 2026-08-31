@@ -1,3 +1,7 @@
+**Tropical Storm Edouard Could Form Near Texas on Monday**\
+`A cluster of thunderstorms that could become Tropical Storm Edouard threatens to bring heavy rain to Southeast Texas and western Louisiana.`\
+https://www.nytimes.com/2026/08/31/weather/texas-rain-gulf-eduardo.html
+
 **Mapa: la trayectoria del huracán Karina en vivo**\
 `Consulta la trayectoria probable y las horas de llegada de los vientos de Karina.`\
 https://www.nytimes.com/es/interactive/2026/08/31/espanol/karina-mapa-trayectoria.html

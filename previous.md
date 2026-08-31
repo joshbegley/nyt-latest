@@ -1,3 +1,7 @@
+**Tropical Storm Edouard Could Form Near Texas on Monday**\
+`A cluster of thunderstorms that could become Tropical Storm Edouard threatens to bring heavy rain to Southeast Texas and western Louisiana.`\
+https://www.nytimes.com/2026/08/31/weather/texas-rain-gulf-eduardo.html
+
 **Mapa: la trayectoria del huracán Karina en vivo**\
 `Consulta la trayectoria probable y las horas de llegada de los vientos de Karina.`\
 https://www.nytimes.com/es/interactive/2026/08/31/espanol/karina-mapa-trayectoria.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/31/movies/three-great-documentaries-to-stream.ht
 **Midterm Races Are Drowning in Dark Money**\
 `Dark money is flooding the 2026 midterm elections, allowing donors to spend heavily on ads without revealing their identities. Shane Goldmacher, a New York Times political correspondent, explains how donors are able to hide their involvement.`\
 https://www.nytimes.com/video/us/100000011112041/midterm-races-are-drowning-in-dark-money.html
-
-**A Half-Price Luxury E.V. Comes With a Big Asterisk**\
-`The Polestar 4 is a solid car, and current incentives make it a bargain. But the company, a Chinese-owned brand, is being forced from the U.S. market.`\
-https://www.nytimes.com/2026/08/31/business/polestar-discounts-ev-china.html
 
