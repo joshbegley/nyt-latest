@@ -1,3 +1,7 @@
+**Qué esperar esta temporada de influenza**\
+`Los médicos tienen la esperanza de que el otoño y el invierno sean más tranquilos que en 2025.`\
+https://www.nytimes.com/es/2026/08/31/espanol/estilos-de-vida/gripe-influenza-covid-vacunas.html
+
 **Death Toll Rises in Grand Canyon Flood as Search Efforts Continue**\
 `Officials announced a second death and said more than a dozen people remain unaccounted for following heavy rain.`\
 https://www.nytimes.com/2026/08/31/us/grand-canyon-floods.html
