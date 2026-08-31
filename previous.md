@@ -1,3 +1,7 @@
+**Supreme Court Allows White House Ballroom Construction to Continue**\
+`Also, a principal helped save 900 children in Nepal. Here’s the latest at the end of Monday.`\
+https://www.nytimes.com/2026/08/31/briefing/supreme-court-trump-ballroom-met-gala.html
+
 **Mel Gibson Apologizes After Mocking Sign Language Interpreter Onstage**\
 `The actor waved his hands in what seemed to be a derisive gesture while appearing at a fan event in Toronto over the weekend.`\
 https://www.nytimes.com/2026/08/31/movies/mel-gibson-sign-language-apology.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/08/31/us/markey-moulton-massachusetts-primary-democ
 **Kalshi Permanently Bars George Santos From the Platform**\
 `The prediction market said it had barred George Santos, the former congressman from New York, and fined him $71,356 over evidence he engaged in insider trading.`\
 https://www.nytimes.com/2026/08/31/business/kalshi-bans-george-santos.html
-
-**Private Equity Wants to Invest in College Sports. Some Schools Are Wary.**\
-`As desperate as many athletic programs are for money, they are proceeding cautiously when it comes to deals with private equity.`\
-https://www.nytimes.com/2026/08/31/business/private-equity-college-sports.html
 

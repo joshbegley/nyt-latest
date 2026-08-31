@@ -1,3 +1,7 @@
+**Supreme Court Allows White House Ballroom Construction to Continue**\
+`Also, a principal helped save 900 children in Nepal. Here’s the latest at the end of Monday.`\
+https://www.nytimes.com/2026/08/31/briefing/supreme-court-trump-ballroom-met-gala.html
+
 **FTC and 22 States Sue Amazon Over Advertising Practices**\
 `Regulators say the e-commerce giant forced more than a million advertisers to pay more than they should have. The company denies the claims.`\
 https://www.nytimes.com/2026/08/31/technology/ftc-amazon-lawsuit-ad-prices.html
