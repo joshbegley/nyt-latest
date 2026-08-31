@@ -19,7 +19,7 @@ https://www.nytimes.com/2026/08/31/world/middleeast/israel-raam-recruits-zionist
 https://www.nytimes.com/2026/08/31/arts/design/smithsonian-latino-museum-arts-industries.html
 
 **Phantom Island Mysteriously Appears, Then Vanishes on B.C. Reservoir**\
-`Officials first thought it was just an A.I. ruse, until they checked satellite images of northern British Columbia. It was there, until it was not.`\
+`Officials first thought it was just an A.I. ruse, until they checked satellite images of northern British Columbia. The mystery deepened, and on Monday the island was located.`\
 https://www.nytimes.com/2026/08/31/world/canada/missing-island-canada-williston-reservoir.html
 
 **Woman Stabs 2, Killing One, in Times Square and Is Shot Dead by N.Y.P.D.**\

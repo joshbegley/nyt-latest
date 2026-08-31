@@ -1,3 +1,7 @@
+**Phantom Island Mysteriously Appears, Then Vanishes on B.C. Reservoir**\
+`Officials first thought it was just an A.I. ruse, until they checked satellite images of northern British Columbia. The mystery deepened, and on Monday the island was located.`\
+https://www.nytimes.com/2026/08/31/world/canada/missing-island-canada-williston-reservoir.html
+
 **JD Vance Called Michigan Senate Candidate Abdul El-Sayed ‘Evil’ in Speech**\
 `The vice president also told Dr. El-Sayed, Michigan’s Democratic Senate nominee, to “keep my wife’s name out of your mouth.”`\
 https://www.nytimes.com/2026/08/31/us/politics/vance-el-sayed-michigan-speech.html
