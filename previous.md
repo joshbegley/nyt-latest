@@ -7,7 +7,7 @@ https://www.nytimes.com/2026/08/30/crosswords/daily-puzzle-2026-08-31.html
 https://www.nytimes.com/2026/08/30/admin/us-attacks-iran-strait-of-hormuz.html
 
 **15 People May Be Missing at Grand Canyon After Flash Flood**\
-`At least 62 people were evacuated on Saturday after flooding destroyed nearly all the footbridges across Bright Angel Creek in Arizona and cut off hikers’ access, the National Park Service said.`\
+`At least 62 people were evacuated on Saturday after flooding destroyed footbridges and damaged a campground and cabins near Bright Angel Creek in Arizona.`\
 https://www.nytimes.com/2026/08/30/us/grand-canyon-flash-flood-people-missing.html
 
 **Melting Himalayas**\

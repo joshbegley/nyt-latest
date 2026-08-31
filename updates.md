@@ -1,3 +1,7 @@
+**15 People May Be Missing at Grand Canyon After Flash Flood**\
+`At least 62 people were evacuated on Saturday after flooding destroyed footbridges and damaged a campground and cabins near Bright Angel Creek in Arizona.`\
+https://www.nytimes.com/2026/08/30/us/grand-canyon-flash-flood-people-missing.html
+
 **NYT Crossword Answers for Aug. 31, 2026**\
 `This crossword by Christopher Youngs calls for a toast.`\
 https://www.nytimes.com/2026/08/30/crosswords/daily-puzzle-2026-08-31.html
