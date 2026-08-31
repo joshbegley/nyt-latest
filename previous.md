@@ -194,7 +194,3 @@ https://www.nytimes.com/2026/08/31/business/pancreatic-cancer-drug-prices.html
 `Duane Davis, who is charged in the murder of the rapper Tupac Shakur, repeatedly accused Mr. Combs of being behind it. He now says he was lying.`\
 https://www.nytimes.com/2026/08/31/arts/music/tupac-shakur-trial-sean-combs.html
 
-**More Mail Ballots Are Arriving Late This Year, and They’re Getting Tossed**\
-`State officials say they worry about the Postal Service’s ability to deliver votes this fall. They are urging voters to mail their ballots early or use drop boxes so their votes count.`\
-https://www.nytimes.com/2026/08/31/us/politics/postal-service-mail-ballots-delays-midterms-voting.html
-
