@@ -83,7 +83,7 @@ https://www.nytimes.com/2026/08/30/us/baby-bear-shoe-photographer-alaska.html
 https://www.nytimes.com/video/us/100000011122014/grizzly-bear-cub-photographer-shoe.html
 
 **Nepal Turns to Mass Burials, as Thousands Remain Missing from Floods**\
-`Only a fraction of the over 2,500 missing are turning up among the dead, underscoring a bleak reality: The death toll is likely to keep rising for days to come.`\
+`Only a fraction of the over 4,200 missing in Nepal are turning up among the dead, underscoring a bleak reality: The death toll is likely to keep rising for days to come.`\
 https://www.nytimes.com/2026/08/30/world/asia/nepal-floods-mass-burials-missing.html
 
 **More Than 22,000 Ancient Artifacts Seized in Florida**\
