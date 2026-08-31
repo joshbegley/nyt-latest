@@ -1,3 +1,7 @@
+**U.S. Strikes May Have Targeted a New Type of Iranian Naval Mine**\
+`The U.S. military said its attacks against Iran were in response to a threat to the Strait of Hormuz.`\
+https://www.nytimes.com/2026/08/31/us/politics/us-strikes-iran-new-naval-mine.html
+
 **Teen Charged With Murder After Livestreaming San Diego Mosque Shooting**\
 `The authorities said the 17-year-old from North Carolina had recorded the attack, which killed three people in May. “She ran with the pack — she shared in the kill,” the district attorney said.`\
 https://www.nytimes.com/2026/08/31/us/san-diego-mosque-shooting-livestream-murder-charge.html
@@ -75,7 +79,7 @@ https://www.nytimes.com/2026/08/31/us/justice-department-subpoena-james-comey-ri
 https://www.nytimes.com/2026/08/31/business/irs-audit-revenue.html
 
 **Designer John Galliano Withdraws From Met Exhibition After Backlash**\
-`The designer, John Galliano, pulled out from an exhibition at the Metropolitan Museum of Art after furor mounted over the museum’s choice to honor him. In 2011, Mr. Galliano was convicted of an antisemitic hate crime by a French court.`\
+`The designer John Galliano pulled out from an exhibition at the Metropolitan Museum of Art after furor mounted over the museum’s choice to honor him. In 2011, Mr. Galliano was convicted of an antisemitic hate crime by a French court.`\
 https://www.nytimes.com/video/arts/100000011123146/john-galliano-met-museum-gala-designer.html
 
 **What Cigarettes Can Teach Us About Teens and Social Media**\
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/08/31/world/europe/italy-ukraine-fedorov-adviser.ht
 **Can You Match These Quotations to the Correct Book?**\
 `Some lines stick in your mind long after you’ve finished reading. Try this short quiz to see how many you recognize from popular authors.`\
 https://www.nytimes.com/quiz/2026/08/31/bookreview/education-quotes-quiz.html
-
-**This Roasted Salmon and Broccoli Bowl Will Ease You Into Fall**\
-`The crowning touch is the anchovy lemon dressing that brings it all together.`\
-https://www.nytimes.com/2026/08/31/dining/this-roasted-salmon-and-broccoli-bowl-will-ease-you-into-fall.html
 
