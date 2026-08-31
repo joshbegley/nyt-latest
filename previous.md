@@ -1,4 +1,8 @@
-**Republican Candidate in Key House Race Bet on Her Own Campaign**\
+**What to Know About Hiking in Areas Prone to Flash Floods**\
+`Canyons, small streams and dry creek beds in the West can be deceptively dangerous, trapping hikers when rainfall upstream causes rapidly rising water.`\
+https://www.nytimes.com/2026/08/31/travel/flash-floods-hiking-what-to-know.html
+
+**Kalshi Suspends Republican House Candidate for Betting on Her Own Race**\
 `The trading platform Kalshi issued a three-year suspension to the candidate, Laurie Buckhout, and fined her nearly $2,600. Ms. Buckhout said she had made a “dumb mistake.”`\
 https://www.nytimes.com/2026/08/31/us/politics/house-candidate-kalshi-gambling.html
 
@@ -110,7 +114,7 @@ https://www.nytimes.com/es/2026/08/31/espanol/mundo/espana-sanchez-migrantes-ceu
 `Los médicos tienen la esperanza de que el otoño y el invierno sean más tranquilos que en 2025.`\
 https://www.nytimes.com/es/2026/08/31/espanol/estilos-de-vida/gripe-influenza-covid-vacunas.html
 
-**Death Toll Rises in Grand Canyon Flood as Search Efforts Continue**\
+**Death Toll Rises in Grand Canyon Flood as Search Continues**\
 `Officials announced a second death and said that more than a dozen people remain unaccounted for after heavy rain.`\
 https://www.nytimes.com/2026/08/31/us/grand-canyon-floods.html
 
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/08/31/world/europe/switzerland-shooting-rave-suspec
 **John Galliano Bows Out of Met Museum Show After Criticism Mounts**\
 `Donors, politicians and Jewish leaders questioned the Met’s decision to honor Galliano, a fashion designer who was found guilty of a hate crime for his antisemitic outbursts.`\
 https://www.nytimes.com/2026/08/31/style/john-galliano-met-gala-canceled.html
-
-**Spanish Leader Says 5,000 Migrants Are Still in Ceuta, Weeks After Border Surge**\
-`Their continued presence has roiled the Spanish territory in Africa and heaped pressure on Prime Minister Pedro Sánchez.`\
-https://www.nytimes.com/2026/08/31/world/europe/ceuta-migrants-pedro-sanchez-north-africa.html
 

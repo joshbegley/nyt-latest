@@ -1,3 +1,15 @@
+**What to Know About Hiking in Areas Prone to Flash Floods**\
+`Canyons, small streams and dry creek beds in the West can be deceptively dangerous, trapping hikers when rainfall upstream causes rapidly rising water.`\
+https://www.nytimes.com/2026/08/31/travel/flash-floods-hiking-what-to-know.html
+
+**Kalshi Suspends Republican House Candidate for Betting on Her Own Race**\
+`The trading platform Kalshi issued a three-year suspension to the candidate, Laurie Buckhout, and fined her nearly $2,600. Ms. Buckhout said she had made a “dumb mistake.”`\
+https://www.nytimes.com/2026/08/31/us/politics/house-candidate-kalshi-gambling.html
+
+**Death Toll Rises in Grand Canyon Flood as Search Continues**\
+`Officials announced a second death and said that more than a dozen people remain unaccounted for after heavy rain.`\
+https://www.nytimes.com/2026/08/31/us/grand-canyon-floods.html
+
 **Republican Candidate in Key House Race Bet on Her Own Campaign**\
 `The trading platform Kalshi issued a three-year suspension to the candidate, Laurie Buckhout, and fined her nearly $2,600. Ms. Buckhout said she had made a “dumb mistake.”`\
 https://www.nytimes.com/2026/08/31/us/politics/house-candidate-kalshi-gambling.html
