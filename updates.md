@@ -1,3 +1,11 @@
+**Man Arrested in Switzerland After Deadly Shooting at Rave**\
+`The suspect, a 43-year-old Swiss citizen, was taken into custody early on Monday, the police said.`\
+https://www.nytimes.com/2026/08/31/world/europe/switzerland-shooting-rave-suspect-arrest.html
+
+**Metropolitan Museum Faces Further Criticism Over John Galliano Exhibition**\
+`Donors, politicians and Jewish leaders questioned the Met’s decision to honor Galliano, a fashion designer who was found guilty of a hate crime for his antisemitic outbursts.`\
+https://www.nytimes.com/2026/08/31/style/john-galliano-met-gala-canceled.html
+
 **Spanish Leader Says 5,000 Migrants Are Still in Ceuta, Weeks After Border Surge**\
 `Their continued presence has roiled the Spanish territory in Africa and heaped pressure on Prime Minister Pedro Sánchez.`\
 https://www.nytimes.com/2026/08/31/world/europe/ceuta-migrants-pedro-sanchez-north-africa.html

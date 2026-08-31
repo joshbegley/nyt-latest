@@ -114,13 +114,13 @@ https://www.nytimes.com/2026/08/31/realestate/a-nashville-home-with-an-eclectic-
 `The greatest men’s player of all time succumbed to his first Grand Slam round one defeat since 2006.`\
 https://www.nytimes.com/2026/08/31/podcasts/us-open-novak-djokovic.html
 
-**At the Tupac Trial, Old Rumors Still Trail Sean Combs**\
-`Duane Davis, who is charged in the murder of the rapper Tupac Shakur, repeatedly accused Mr. Combs of being behind it. He now says he was lying.`\
-https://www.nytimes.com/2026/08/31/arts/music/tupac-shakur-trial-sean-combs.html
-
 **A $480,000-a-Year Pill Reflects a New Normal for Cancer Drugs**\
 `Rasonque, the new pancreatic cancer treatment from Revolution Medicines, illustrates the huge inflation in cancer drug prices over the past two decades.`\
 https://www.nytimes.com/2026/08/31/business/pancreatic-cancer-drug-prices.html
+
+**At the Tupac Trial, Old Rumors Still Trail Sean Combs**\
+`Duane Davis, who is charged in the murder of the rapper Tupac Shakur, repeatedly accused Mr. Combs of being behind it. He now says he was lying.`\
+https://www.nytimes.com/2026/08/31/arts/music/tupac-shakur-trial-sean-combs.html
 
 **More Mail Ballots Are Arriving Late This Year, and They’re Getting Tossed**\
 `State officials say they worry about the Postal Service’s ability to deliver votes this fall. They are urging voters to mail their ballots early or use drop boxes so their votes count.`\
