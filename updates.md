@@ -1,3 +1,7 @@
+**Survivors of Cyprus Ferry Sinking Describe a Harrowing Escape**\
+`“My daughter slipped away from my hands,” one survivor told a Turkish news channel.`\
+https://www.nytimes.com/2026/08/31/world/europe/cyprus-ferry-turkey.html
+
 **Dark Money**\
 `We look at campaign financing — as well as Iran, Nepal and coral reefs.`\
 https://www.nytimes.com/2026/08/31/briefing/dark-money.html
