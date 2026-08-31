@@ -1,3 +1,7 @@
+**Antes de las inundaciones en Nepal, los peregrinos buscaban lo divino en una montaña sagrada**\
+`Para muchos, la caminata al monte Kailash en la frontera entre Nepal y el Tíbet es un viaje único en la vida para encontrar el despertar espiritual.`\
+https://www.nytimes.com/es/2026/08/31/espanol/mundo/nepal-inundacion-peregrinos-desaparecidos.html
+
 **110 Trucking Schools Closed for English-Language Lapses**\
 `Transportation Secretary Sean Duffy, who has targeted truckers in the country illegally, said the schools certified drivers later found to lack proficiency.`\
 https://www.nytimes.com/2026/08/31/us/politics/truck-driving-schools-closed-english-language.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/08/31/world/asia/putin-xi-modi-sco.html
 **What Is Phantom Ranch? Inside the Grand Canyon Lodge Hit by Flash Flooding**\
 `Phantom Ranch, the only lodge within the Grand Canyon, has drawn adventurers and dignitaries, including Theodore Roosevelt, for more than a century.`\
 https://www.nytimes.com/2026/08/31/us/grand-canyon-flooding-phantom-ranch.html
-
-**‘We Are Shattered’: Survivors Recall Chaos as Ferry Sank Near Cyprus**\
-`The vessel capsized in rough seas, leaving its passengers struggling to escape. Eight were killed and 20 are still missing.`\
-https://www.nytimes.com/2026/08/31/world/europe/cyprus-ferry-turkey.html
 

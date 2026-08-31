@@ -1,3 +1,19 @@
+**110 Trucking Schools Closed for English-Language Lapses**\
+`Transportation Secretary Sean Duffy, who has targeted truckers in the country illegally, said the schools certified drivers later found to lack proficiency.`\
+https://www.nytimes.com/2026/08/31/us/politics/truck-driving-schools-closed-english-language.html
+
+**Lemon Pesto Pasta**\
+`Also known as pesto alla Genovese, lemon pesto is a delicious variation that adds a jolt of brightness. Used in Italy as both a pasta sauce or spread for crostini, its preparation is similar to classic pesto, but the addition of the lemon zest and juice gives it a unique flavor and color.`\
+https://www.nytimes.com/video/dining/100000011120279/lemon-pesto-pasta.html
+
+**Green Goddess Chicken Salad Sandwiches**\
+`Avocado forms the base of creamy green goddess dressing in this everyday chicken salad recipe. Made with lots of green herbs, capers and scallions, it’s tangy, vinegary and luxuriously creamy without the addition of any dairy or mayonnaise.`\
+https://www.nytimes.com/video/dining/100000011120389/green-goddess-chicken-salad-sandwiches.html
+
+**Crispy Wonton Chicken Salad**\
+`This dynamic chicken salad, starring crispy strips of fried wonton wrappers, draws inspiration from the wonton chicken salad at the soup and salad buffet chain Sweet Tomatoes, as well as the American Chinese chicken salads that pervaded chain-restaurant menus throughout the 1990s and early 2000s.`\
+https://www.nytimes.com/video/dining/100000011120421/crispy-wonton-chicken-salad.html
+
 **DOJ Issues Grand Jury Subpoena to James Comey Confidant Daniel Richman**\
 `The subpoena of Daniel C. Richman is the latest move in a persistent campaign to go after James B. Comey, one of President Trump’s most reviled political adversaries who has already been indicted twice.`\
 https://www.nytimes.com/2026/08/31/us/justice-department-subpoena-james-comey-richman-trump.html
