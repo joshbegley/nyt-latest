@@ -1,5 +1,9 @@
+**Man Arrested in Switzerland After Deadly Shooting at Rave**\
+`The suspect, a 43-year-old Swiss citizen, was taken into custody early on Monday, the police said.`\
+https://www.nytimes.com/2026/08/31/world/europe/switzerland-shooting-rave-suspect-arrest.html
+
 **Metropolitan Museum Faces Further Criticism Over John Galliano Exhibition**\
-`Donors, politicians and Jewish leaders questioned the Met’s decision to honor Galliano, who was found guilty of a hate crime for his antisemitic outbursts in 2011.`\
+`Donors, politicians and Jewish leaders questioned the Met’s decision to honor Galliano, a fashion designer who was found guilty of a hate crime for his antisemitic outbursts.`\
 https://www.nytimes.com/2026/08/31/style/john-galliano-met-gala-canceled.html
 
 **Spanish Leader Says 5,000 Migrants Are Still in Ceuta, Weeks After Border Surge**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/31/travel/wagner-moura-brazil-salvador.html
 **Pageant Brings Its D.I.Y. Dance Spirit to MoMA**\
 `A residency at MoMA showed that Pageant, a Brooklyn performance space where experimental dance thrives, is really the sum of its artist parts.`\
 https://www.nytimes.com/2026/08/31/arts/dance/pageant-experimental-dance-moma.html
-
-**Chinese Cars Could Be Huge in U.S., and That’s the Problem, Officials Say**\
-`The Times test-drove a stunning crossover from Geely that would cost under half of what its rivals charge. Two senators and many experts point to security and economic concerns as reasons for a ban.`\
-https://www.nytimes.com/2026/08/31/business/chinese-cars-us-sales-ban.html
 
