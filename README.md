@@ -1,3 +1,11 @@
+**Rescue Trucks at LaGuardia and J.F.K. Get Trackers After Fatal Crash**\
+`Investigators said a missing piece of equipment on a fire truck played a role in March’s deadly collision with an Air Canada Express jet at LaGuardia.`\
+https://www.nytimes.com/2026/08/31/nyregion/rescue-trucks-at-laguardia-and-jfk-get-trackers-after-fatal-crash.html
+
+**At the U.S. Open Gala With Orlando Bloom, Lindsey Vonn and More**\
+`Katie Couric, Orlando Bloom, Lindsey Vonn and Vera Wang celebrated the tournament’s opening night in Queens with a charity dinner and matches featuring two titans of tennis.`\
+https://www.nytimes.com/2026/08/31/style/us-open-orlando-bloom-vera-wang.html
+
 **Olivia Rodrigo’s Daisy Chain Fields: A New Feminist Music Festival Takes Shape**\
 `At the first Daisy Chain Fields festival, the 23-year-old pop star presented a cross-generational vision of female empowerment. (With Taco Bell activations, too.)`\
 https://www.nytimes.com/2026/08/31/arts/music/daisy-chain-fields-olivia-rodrigo.html
@@ -175,7 +183,7 @@ https://www.nytimes.com/2026/08/31/opinion/democrats-wokeness-republicans.html
 https://www.nytimes.com/2026/08/31/us/lindsay-clancy-murder-trial-jury-deliberations.html
 
 **Why the Times/Siena Poll Isn’t Hanging Up the Phone**\
-`The traditional use of phones in Times/Siena surveys is far from perfect, but its strengths shouldn’t be overlooked.`\
+`Reader mailbag: The traditional use of phones in Times/Siena surveys is far from perfect, but its strengths shouldn’t be overlooked.`\
 https://www.nytimes.com/2026/08/31/upshot/times-siena-phone-polling.html
 
 **The U.S. Open Can’t Go On Like This**\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/08/31/opinion/us-open-prices.html
 **How a Court Officer Lives on $155,000 on Staten Island**\
 `Fred Jacobs qualified for his pension in 2021, but he keeps working, grabbing overtime shifts to help pay for his mortgage and other costs.`\
 https://www.nytimes.com/interactive/2026/08/31/nyregion/nyc-budgeting-affordability-jacobs.html
-
-**A Nashville Home With an Eclectic Mix of Personal Inspirations**\
-`New Yorkers swapped a Brooklyn townhouse for a sprawling Tennessee home, furnishing it with vintage finds, family heirlooms and their own designs.`\
-https://www.nytimes.com/2026/08/31/realestate/a-nashville-home-with-an-eclectic-mix-of-personal-inspirations.html
-
-**US Open Day 1: Can Djokovic Take Much More of This?**\
-`The greatest men’s player of all time succumbed to his first Grand Slam round one defeat since 2006.`\
-https://www.nytimes.com/2026/08/31/podcasts/us-open-novak-djokovic.html
 

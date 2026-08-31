@@ -1,3 +1,7 @@
+**China Is the Star at a Summit With the Leaders of Russia, India and Iran**\
+`The two-day summit of the 10-nation Shanghai Cooperation Organization in Kyrgyzstan shows the limits of U.S. economic warfare.`\
+https://www.nytimes.com/2026/08/31/world/asia/putin-xi-modi-sco.html
+
 **Olivia Rodrigo’s Daisy Chain Fields: A New Feminist Music Festival Takes Shape**\
 `At the first Daisy Chain Fields festival, the 23-year-old pop star presented a cross-generational vision of female empowerment. (With Taco Bell activations, too.)`\
 https://www.nytimes.com/2026/08/31/arts/music/daisy-chain-fields-olivia-rodrigo.html
