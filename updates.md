@@ -1,3 +1,11 @@
+**South Korea’s Unification Church Leader Gets 2 Years in Prison for Corruption**\
+`Han Hak-ja, the widow and successor of the conservative church’s founder, was convicted of financial dealings related to the former president and first lady, who are also imprisoned.`\
+https://www.nytimes.com/2026/08/31/world/asia/south-korea-unification-church-leader-prison.html
+
+**For Nepal’s Young Leader, Flood Recovery Will Be a Herculean Task**\
+`Prime Minister Balendra Shah, 36, rose to power this year on the back of youth anger with graft and mismanagement. His fledgling government now faces a huge test.`\
+https://www.nytimes.com/2026/08/31/world/asia/nepal-floods-balen-shah-gen-z.html
+
 **Rachel Cusk intentó caricaturizar a Natalie Portman. Solo se caricaturizó a sí misma**\
 `Las similitudes entre la protagonista de la nueva novela de Cusk y la actriz Natalie Portman han convertido la obra en el centro de críticas y especulaciones.`\
 https://www.nytimes.com/es/2026/08/31/espanol/cultura/rachel-cusk-natalie-portman-libro-critica.html
