@@ -106,7 +106,7 @@ https://www.nytimes.com/2026/08/31/opinion/democrats-wokeness-republicans.html
 `Jurors resumed discussion of the high-profile case on Monday, after deliberating last week for about 10 hours over two days.`\
 https://www.nytimes.com/2026/08/31/us/lindsay-clancy-murder-trial-jury-deliberations.html
 
-**Why We’re Not Hanging Up on Phone Polling**\
+**Why the Times/Siena Poll Isn’t Hanging Up the Phone**\
 `The traditional use of phones in Times/Siena surveys is far from perfect, but its strengths shouldn’t be overlooked.`\
 https://www.nytimes.com/2026/08/31/upshot/times-siena-phone-polling.html
 

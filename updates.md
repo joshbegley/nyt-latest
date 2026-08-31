@@ -1,3 +1,7 @@
+**Why the Times/Siena Poll Isn’t Hanging Up the Phone**\
+`The traditional use of phones in Times/Siena surveys is far from perfect, but its strengths shouldn’t be overlooked.`\
+https://www.nytimes.com/2026/08/31/upshot/times-siena-phone-polling.html
+
 **John Galliano Bows Out of Met Museum Show After Criticism Mounts**\
 `Donors, politicians and Jewish leaders questioned the Met’s decision to honor Galliano, a fashion designer who was found guilty of a hate crime for his antisemitic outbursts.`\
 https://www.nytimes.com/2026/08/31/style/john-galliano-met-gala-canceled.html
