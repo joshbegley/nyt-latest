@@ -1,3 +1,7 @@
+**Wartime Presidents of Russia and Iran Rally With Chinese and Indian Leaders**\
+`The two-day summit of the 10-nation Shanghai Cooperation Organization in Kyrgyzstan shows the limits of U.S. economic warfare.`\
+https://www.nytimes.com/2026/08/31/world/asia/putin-xi-modi-sco.html
+
 **What Is Phantom Ranch? Inside the Grand Canyon Lodge Hit by Flash Flooding**\
 `Phantom Ranch, the only lodge within the Grand Canyon, has drawn adventurers and dignitaries, including Theodore Roosevelt, for more than a century.`\
 https://www.nytimes.com/2026/08/31/us/grand-canyon-flooding-phantom-ranch.html
@@ -43,7 +47,7 @@ https://www.nytimes.com/2026/08/31/crosswords/strands-sidekick-912.html
 https://www.nytimes.com/2026/08/31/crosswords/connections-companion-1178.html
 
 **South Korea’s Unification Church Leader Gets 2 Years in Prison for Corruption**\
-`Han Hak-ja, the widow and successor of the conservative church’s founder, was convicted of financial dealings related to the former president and first lady, who are also imprisoned.`\
+`Han Hak-ja, the widow and successor of the conservative church’s founder, was convicted of financial dealings related to a former president and first lady, who are also imprisoned.`\
 https://www.nytimes.com/2026/08/31/world/asia/south-korea-unification-church-leader-prison.html
 
 **For Nepal’s Young Leader, Flood Recovery Will Be a Herculean Task**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/31/world/middleeast/west-bank-israel.html
 **Do D.E.I. Bike Paths Exist? The Trump Administration Says Yes.**\
 `The administration has revoked funding for bike paths, and encouraged removing some. A cycling advocate said it is playing on the idea of “that dork on a bike.”`\
 https://www.nytimes.com/2026/08/31/us/politics/trump-bike-lanes-funding-dei.html
-
-**He Warned That the End of History Could Be Rough. Maybe Now People Will Listen.**\
-`Francis Fukuyama’s famous take on the post-Cold War world was widely misunderstood. In a new memoir, he tries to set the record straight.`\
-https://www.nytimes.com/2026/08/31/books/review/francis-fukuyama-in-the-realm-of-the-last-man-end-of-history.html
 
