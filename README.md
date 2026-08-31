@@ -94,7 +94,7 @@ https://www.nytimes.com/2026/08/31/world/europe/ceuta-migrants-pedro-sanchez-nor
 `The roughly 30-square-mile island serves as a foothold for Iran’s military to advance its control over shipping through the Strait of Hormuz.`\
 https://www.nytimes.com/2026/08/31/world/middleeast/larak-island-iran-us-strikes.html
 
-**Wartime Presidents of Russia and Iran Rally With Chinese and Indian Leaders**\
+**China Is the Star at a Summit With the Leaders of Russia, India and Iran**\
 `The two-day summit of the 10-nation Shanghai Cooperation Organization in Kyrgyzstan shows the limits of U.S. economic warfare.`\
 https://www.nytimes.com/2026/08/31/world/asia/putin-xi-modi-sco.html
 
