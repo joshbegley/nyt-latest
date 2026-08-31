@@ -1,3 +1,7 @@
+**Metropolitan Museum Faces Further Criticism Over John Galliano Exhibition**\
+`Donors, politicians and Jewish leaders questioned the Met’s decision to honor Galliano, who was found guilty of a hate crime for his antisemitic outbursts in 2011.`\
+https://www.nytimes.com/2026/08/31/style/john-galliano-met-gala-canceled.html
+
 **Spanish Leader Says 5,000 Migrants Are Still in Ceuta, Weeks After Border Surge**\
 `Their continued presence has roiled the Spanish territory in Africa and heaped pressure on Prime Minister Pedro Sánchez.`\
 https://www.nytimes.com/2026/08/31/world/europe/ceuta-migrants-pedro-sanchez-north-africa.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/31/arts/dance/pageant-experimental-dance-moma.ht
 **Chinese Cars Could Be Huge in U.S., and That’s the Problem, Officials Say**\
 `The Times test-drove a stunning crossover from Geely that would cost under half of what its rivals charge. Two senators and many experts point to security and economic concerns as reasons for a ban.`\
 https://www.nytimes.com/2026/08/31/business/chinese-cars-us-sales-ban.html
-
-**How Bad Will This Year’s Flu Season Be?**\
-`Doctors are hopeful for a quieter fall and winter than in 2025.`\
-https://www.nytimes.com/2026/08/31/well/flu-season-explainer-vaccination.html
 
