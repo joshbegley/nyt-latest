@@ -2,7 +2,7 @@
 `The subpoena of Daniel C. Richman is the latest move in a persistent campaign to go after James B. Comey, one of President Trump’s most reviled political adversaries who has already been indicted twice.`\
 https://www.nytimes.com/2026/08/31/us/justice-department-subpoena-james-comey-richman-trump.html
 
-**Audit Revenue Has Plummeted Under Trump, Watchdog Finds**\
+**IRS Audit Revenue Has Plummeted Under Trump, Watchdog Finds**\
 `The I.R.S. lost roughly a quarter of its employees since President Trump took office, hampering the agency’s ability to conduct audits.`\
 https://www.nytimes.com/2026/08/31/business/irs-audit-revenue.html
 
