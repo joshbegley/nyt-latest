@@ -1,3 +1,7 @@
+**Su movimiento luchaba contra el fascismo. Ahora, contra el globalismo**\
+`Sílvia Orriols está transformando el nacionalismo catalán.`\
+https://www.nytimes.com/es/2026/08/30/espanol/opinion/espana-nacionalismo-catalan-orriols-globalismo.html
+
 **‘Lanterns’ Season 1, Episode 3 Recap: Parents and Guardians**\
 `This week offered an in-depth look at how John Stewart got to be next in line to wear the Green Lantern ring. It wasn’t an easy road.`\
 https://www.nytimes.com/2026/08/30/arts/television/lanterns-recap-season-1-episode-3.html
