@@ -1,3 +1,15 @@
+**Coral Reefs Are Running Out of Time to Recover, Research Find**\
+`Rising sea temperatures mean reefs don’t have enough time to bounce back between intense heat waves, a new report warns.`\
+https://www.nytimes.com/2026/08/31/climate/coral-reef-recovery-time.html
+
+**No Corrections: Aug. 31, 2026**\
+`No corrections appeared in print on Monday, Aug. 31, 2026.`\
+https://www.nytimes.com/2026/08/31/corrections/no-corrections-aug-31-2026.html
+
+**Quote of the Day: Tiny, With Enviable Smiles Per Gallon**\
+`Quotation of the Day for Monday, August 31, 2026.`\
+https://www.nytimes.com/2026/08/31/pageoneplus/quote-of-the-day-tiny-with-enviable-smiles-per-gallon.html
+
 **One Dead and 15 Potentially Missing at Grand Canyon After Flash Flood**\
 `At least 62 people were evacuated on Saturday after flooding destroyed footbridges and damaged a campground and cabins near Bright Angel Creek in Arizona, the National Park Service said.`\
 https://www.nytimes.com/2026/08/30/us/grand-canyon-flash-flood-people-missing.html
