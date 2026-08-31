@@ -1,3 +1,7 @@
+**What Is Phantom Ranch? Inside the Grand Canyon Lodge Hit by Flash Flooding**\
+`Phantom Ranch, the only lodge within the Grand Canyon, has drawn adventurers and dignitaries, including Theodore Roosevelt, for more than a century.`\
+https://www.nytimes.com/2026/08/31/us/grand-canyon-flooding-phantom-ranch.html
+
 **Survivors of Cyprus Ferry Sinking Describe a Harrowing Escape**\
 `“My daughter slipped away from my hands,” one survivor told a Turkish news channel.`\
 https://www.nytimes.com/2026/08/31/world/europe/cyprus-ferry-turkey.html

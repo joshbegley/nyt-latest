@@ -1,3 +1,7 @@
+**What Is Phantom Ranch? Inside the Grand Canyon Lodge Hit by Flash Flooding**\
+`Phantom Ranch, the only lodge within the Grand Canyon, has drawn adventurers and dignitaries, including Theodore Roosevelt, for more than a century.`\
+https://www.nytimes.com/2026/08/31/us/grand-canyon-flooding-phantom-ranch.html
+
 **Survivors of Cyprus Ferry Sinking Describe a Harrowing Escape**\
 `“My daughter slipped away from my hands,” one survivor told a Turkish news channel.`\
 https://www.nytimes.com/2026/08/31/world/europe/cyprus-ferry-turkey.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/31/us/politics/trump-bike-lanes-funding-dei.html
 **He Warned That the End of History Could Be Rough. Maybe Now People Will Listen.**\
 `Francis Fukuyama’s famous take on the post-Cold War world was widely misunderstood. In a new memoir, he tries to set the record straight.`\
 https://www.nytimes.com/2026/08/31/books/review/francis-fukuyama-in-the-realm-of-the-last-man-end-of-history.html
-
-**Is My Red Lipstick Out of Date?**\
-`A reader is wondering whether she needs a makeover.`\
-https://www.nytimes.com/2026/08/31/fashion/red-lipstick-fashion-identity.html
 
