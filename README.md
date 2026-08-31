@@ -1,3 +1,7 @@
+**El director de una escuela salvó a 900 estudiantes de las inundaciones en Nepal**\
+`Rajendra Dawadi tuvo menos de 15 minutos para actuar ante una alerta por la crecida de las aguas. Su rápido plan de evacuación salvó cientos de vidas.`\
+https://www.nytimes.com/es/2026/08/31/espanol/mundo/nepal-inundacion-director-escuela-salva-estudiantes.html
+
 **Supreme Court Allows Trump’s White House Ballroom Construction**\
 `Lower-court rulings would have blocked construction of the 90,000-square-foot ballroom after finding that the Trump administration should have first sought approval from Congress.`\
 https://www.nytimes.com/2026/08/31/us/politics/supreme-court-trump-ballroom.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/es/2026/08/31/espanol/meta-acuerdo-salud-mental-jovenes.
 **A Principal Saved 900 Students Before His School Was Washed Away in Nepal**\
 `Rajendra Dawadi had less than 15 minutes to act on a warning of approaching floodwaters. His swift evacuation plan saved hundreds of lives.`\
 https://www.nytimes.com/2026/08/31/world/asia/nepal-floods-teacher.html
-
-**Man Arrested in Switzerland After Deadly Shooting at Rave**\
-`The suspect, a 43-year-old Swiss citizen, was taken into custody early on Monday, the police said.`\
-https://www.nytimes.com/2026/08/31/world/europe/switzerland-shooting-rave-suspect-arrest.html
 
