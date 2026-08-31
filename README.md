@@ -62,8 +62,8 @@ https://www.nytimes.com/2026/08/31/world/asia/putin-xi-modi-sco.html
 `Phantom Ranch, the only lodge within the Grand Canyon, has drawn adventurers and dignitaries, including Theodore Roosevelt, for more than a century.`\
 https://www.nytimes.com/2026/08/31/us/grand-canyon-flooding-phantom-ranch.html
 
-**Survivors of Cyprus Ferry Sinking Describe a Harrowing Escape**\
-`“My daughter slipped away from my hands,” one survivor told a Turkish news channel.`\
+**‘We Are Shattered’: Survivors Recall Chaos as Ferry Sank Near Cyprus**\
+`The vessel capsized in rough seas, leaving its passengers struggling to escape. Eight were killed and 20 are still missing.`\
 https://www.nytimes.com/2026/08/31/world/europe/cyprus-ferry-turkey.html
 
 **Dark Money**\
