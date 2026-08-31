@@ -1,3 +1,7 @@
+**Qué esperar esta temporada de influenza**\
+`Los médicos tienen la esperanza de que el otoño y el invierno sean más tranquilos que en 2025.`\
+https://www.nytimes.com/es/2026/08/31/espanol/estilos-de-vida/gripe-influenza-covid-vacunas.html
+
 **Death Toll Rises in Grand Canyon Flood as Search Efforts Continue**\
 `Officials announced a second death and said more than a dozen people remain unaccounted for following heavy rain.`\
 https://www.nytimes.com/2026/08/31/us/grand-canyon-floods.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/31/arts/music/tupac-shakur-trial-sean-combs.html
 **More Mail Ballots Are Arriving Late This Year, and They’re Getting Tossed**\
 `State officials say they worry about the Postal Service’s ability to deliver votes this fall. They are urging voters to mail their ballots early or use drop boxes so their votes count.`\
 https://www.nytimes.com/2026/08/31/us/politics/postal-service-mail-ballots-delays-midterms-voting.html
-
-**Americans Hate Data Centers. Why?**\
-`Three fourths of Americans oppose data centers. Why?`\
-https://www.nytimes.com/2026/08/31/opinion/data-centers-ai-populism.html
 
