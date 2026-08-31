@@ -1,3 +1,11 @@
+**Can You Match These Quotations to the Correct Book?**\
+`Some lines stick in your mind long after you’ve finished reading. Try this short quiz to see how many you recognize from popular authors.`\
+https://www.nytimes.com/quiz/2026/08/31/bookreview/education-quotes-quiz.html
+
+**This Roasted Salmon and Broccoli Bowl Will Ease You Into Fall**\
+`The crowning touch is the anchovy lemon dressing that brings it all together.`\
+https://www.nytimes.com/2026/08/31/dining/this-roasted-salmon-and-broccoli-bowl-will-ease-you-into-fall.html
+
 **G20 Finance Officials Gather in U.S. as Iran War Grips Global Economy**\
 `The meeting, which China and Russia are attending, is focused on the ongoing economic shock from the war in Iran, which has driven up oil prices globally.`\
 https://www.nytimes.com/2026/08/31/business/g20-finance-iran-bessent.html

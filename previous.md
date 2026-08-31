@@ -1,3 +1,11 @@
+**Can You Match These Quotations to the Correct Book?**\
+`Some lines stick in your mind long after you’ve finished reading. Try this short quiz to see how many you recognize from popular authors.`\
+https://www.nytimes.com/quiz/2026/08/31/bookreview/education-quotes-quiz.html
+
+**This Roasted Salmon and Broccoli Bowl Will Ease You Into Fall**\
+`The crowning touch is the anchovy lemon dressing that brings it all together.`\
+https://www.nytimes.com/2026/08/31/dining/this-roasted-salmon-and-broccoli-bowl-will-ease-you-into-fall.html
+
 **After Floods, Grand Canyon Opens on a Limited Basis. What to Know.**\
 `As the search for missing visitors continues, the National Park has shut down hotels and much of its terrain, but visitors can still enter.`\
 https://www.nytimes.com/2026/08/31/travel/grand-canyon-reopen-floods-what-to-know.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/31/science/dog-breeding-gene-editing-crispr.html
 **Foodborne Illnesses Can Lead to Long-Term Gut Issues**\
 `The cyclospora outbreak may result in a surge in cases of post-infection irritable bowel syndrome.`\
 https://www.nytimes.com/2026/08/31/well/eat/cyclospora-ibs-food-poisoning.html
-
-**Completing Our Summer Reading Bucket List**\
-`The New York Times Books team put together a Summer Reading Bucket List to help you get out of your literary comfort zone. As summer approaches its end, our team reflects on how they achieved their summer reading goals.`\
-https://www.nytimes.com/video/books/100000011099289/completing-our-summer-reading-bucket-list.html
-
-**This Marine Died in the Iraq War. His Mother Asks, ‘What Was It For?’**\
-`Travis Fuller was from my hometown. I went back and talked with his family about how they made sense of his death, 25 years after Sept. 11.`\
-https://www.nytimes.com/2026/08/31/us/politics/iraq-war-marine-death.html
 
