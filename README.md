@@ -1,3 +1,7 @@
+**A Principal Saved 900 Children Before His School Was Washed Away in Nepal**\
+`Rajendra Dawadi had less than 15 minutes to act on a warning of approaching floodwaters. His swift evacuation plan saved hundreds of lives.`\
+https://www.nytimes.com/2026/08/31/world/asia/nepal-floods-teacher.html
+
 **Man Arrested in Switzerland After Deadly Shooting at Rave**\
 `The suspect, a 43-year-old Swiss citizen, was taken into custody early on Monday, the police said.`\
 https://www.nytimes.com/2026/08/31/world/europe/switzerland-shooting-rave-suspect-arrest.html
@@ -86,13 +90,13 @@ https://www.nytimes.com/2026/08/31/business/oil-prices-iran-war.html
 `The meeting is expected to focus on the ongoing economic shock from the war in Iran, which has driven up oil prices globally.`\
 https://www.nytimes.com/2026/08/31/business/g20-finance-iran-bessent.html
 
-**Lindsay Clancy Murder Trial: Jury Deliberations Expected to Continue**\
-`Jurors have already discussed the high-profile case for about 10 hours over two days.`\
-https://www.nytimes.com/2026/08/31/us/lindsay-clancy-murder-trial-jury-deliberations.html
-
 **Democrats Have a Trump Card for Attacks On Wokeness**\
 `The party that capitulated to Trump has the most to answer for`\
 https://www.nytimes.com/2026/08/31/opinion/democrats-wokeness-republicans.html
+
+**Lindsay Clancy Murder Trial: Jury Deliberations Expected to Continue**\
+`Jurors resumed discussion of the high-profile case on Monday, after deliberating last week for about 10 hours over two days.`\
+https://www.nytimes.com/2026/08/31/us/lindsay-clancy-murder-trial-jury-deliberations.html
 
 **Why We’re Not Hanging Up on Phone Polling**\
 `The traditional use of phones in Times/Siena surveys is far from perfect, but its strengths shouldn’t be overlooked.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/31/learning/word-of-the-day-symposium.html
 **Wagner Moura’s 5 Favorite Places in Salvador, Brazil**\
 `The Oscar-nominated star of “The Secret Agent,” “Narcos” and the new Netflix thriller “The Last House” shares the places he loves in his vibrant hometown.`\
 https://www.nytimes.com/2026/08/31/travel/wagner-moura-brazil-salvador.html
-
-**Pageant Brings Its D.I.Y. Dance Spirit to MoMA**\
-`A residency at MoMA showed that Pageant, a Brooklyn performance space where experimental dance thrives, is really the sum of its artist parts.`\
-https://www.nytimes.com/2026/08/31/arts/dance/pageant-experimental-dance-moma.html
 
