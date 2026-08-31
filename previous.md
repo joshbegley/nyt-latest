@@ -1,3 +1,11 @@
+**Putin Is Coming for Russian Literature**\
+`The Kremlin is redefining what it means to be a writer in Russia.`\
+https://www.nytimes.com/2026/08/31/opinion/russia-putin-writers-literature.html
+
+**‘Earle Meets World’ and 8 More Shows to Watch on TV This Week**\
+`The influencer Alix Earle leads a new reality show, and two Sept. 11 documentaries air.`\
+https://www.nytimes.com/2026/08/31/arts/television/earle-meets-world-what-to-watch-on-tv-this-week.html
+
 **Coral Reefs Are Running Out of Time to Recover, Research Find**\
 `Rising sea temperatures mean reefs don’t have enough time to bounce back between intense heat waves, a new report warns.`\
 https://www.nytimes.com/2026/08/31/climate/coral-reef-recovery-time.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/30/books/review/the-disappearers-marlon-james.ht
 **A Mortgage Servicer Sent a Letter About an Address Change. Was It Deed Theft?**\
 `A letter arrived in the mail from PNC Bank about an address change on a mortgage account. Was a deed theft scheme in process?`\
 https://www.nytimes.com/2026/08/30/business/address-change-mortgage-scam.html
-
-**En Bali, una misión para salvar el resplandor sagrado de las luciérnagas**\
-`Los insectos, venerados en la cultura local, están desapareciendo por muchas razones, entre ellas el rápido desarrollo turístico.`\
-https://www.nytimes.com/es/2026/08/30/espanol/mundo/luciernagas-sagradas-bali-conservacion.html
-
-**Before Nepal’s Floods, Hindu Pilgrims Sought the Divine at Mount Kailash**\
-`For many, the trek to Mount Kailash on the border of Nepal and Tibet is a once-in-a-lifetime trip to find spiritual awakening.`\
-https://www.nytimes.com/2026/08/30/us/nepal-floods-religious-tour.html
 

@@ -1,3 +1,11 @@
+**Putin Is Coming for Russian Literature**\
+`The Kremlin is redefining what it means to be a writer in Russia.`\
+https://www.nytimes.com/2026/08/31/opinion/russia-putin-writers-literature.html
+
+**‘Earle Meets World’ and 8 More Shows to Watch on TV This Week**\
+`The influencer Alix Earle leads a new reality show, and two Sept. 11 documentaries air.`\
+https://www.nytimes.com/2026/08/31/arts/television/earle-meets-world-what-to-watch-on-tv-this-week.html
+
 **Coral Reefs Are Running Out of Time to Recover, Research Find**\
 `Rising sea temperatures mean reefs don’t have enough time to bounce back between intense heat waves, a new report warns.`\
 https://www.nytimes.com/2026/08/31/climate/coral-reef-recovery-time.html
