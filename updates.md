@@ -1,3 +1,15 @@
+**Mansour Abbas Recruits Yoav Segalovitz to Join Raam Party in Israeli Election**\
+`Mansour Abbas has recruited a Jewish lawmaker best known for reducing the crime rate in Arab cities. Could that be enough to get Mr. Abbas a seat in the next government?`\
+https://www.nytimes.com/2026/08/31/world/middleeast/israel-raam-recruits-zionist.html
+
+**Smithsonian to Put Latino Museum in Existing Building It Controls**\
+`Its board voted to house the museum in the institution’s Arts and Industries Building on the National Mall, rather than build on a site owned by the National Park Service.`\
+https://www.nytimes.com/2026/08/31/arts/design/smithsonian-latino-museum-arts-industries.html
+
+**Phantom Island Mysteriously Appears, Then Vanishes on B.C. Reservoir**\
+`Officials first thought it was just an A.I. ruse, until they checked satellite images of northern British Columbia. It was there, until it was not.`\
+https://www.nytimes.com/2026/08/31/world/canada/missing-island-canada-williston-reservoir.html
+
 **Woman Stabs 2, Killing One, in Times Square and Is Shot Dead by Police**\
 `The police fired at the knife-wielding woman after trying to use less lethal force, officials said.`\
 https://www.nytimes.com/2026/08/31/nyregion/times-square-subway-stabbing-nypd-shooting.html
