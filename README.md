@@ -1,3 +1,11 @@
+**Study A.I. Consciousness? The Bots Would Like a Word With You.**\
+`Given access to email, A.I. agents have started reaching out to the philosophers and researchers exploring deep questions about them.`\
+https://www.nytimes.com/2026/08/31/science/ai-consciousness-agents-email.html
+
+**¿Los cambios de Meta beneficiarán la salud mental de los usuarios jóvenes?**\
+`Los psicólogos dijeron que los cambios eran una victoria simbólica, pero advirtieron que su eficacia podría ser limitada.`\
+https://www.nytimes.com/es/2026/08/31/espanol/meta-acuerdo-salud-mental-jovenes.html
+
 **A Principal Saved 900 Children Before His School Was Washed Away in Nepal**\
 `Rajendra Dawadi had less than 15 minutes to act on a warning of approaching floodwaters. His swift evacuation plan saved hundreds of lives.`\
 https://www.nytimes.com/2026/08/31/world/asia/nepal-floods-teacher.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/31/opinion/democracy-trump-congress-midterms.htm
 **Book Review: ‘The Castle,’ by Jon Ronson**\
 `The journalist Jon Ronson finds metaphor and meaning in the story of one man’s baronial fantasia and others like him who are living unmoored from reality.`\
 https://www.nytimes.com/2026/08/31/books/review/the-castle-jon-ronson.html
-
-**Word of the Day: symposium**\
-`This word has appeared in 56 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/08/31/learning/word-of-the-day-symposium.html
-
-**Wagner Moura’s 5 Favorite Places in Salvador, Brazil**\
-`The Oscar-nominated star of “The Secret Agent,” “Narcos” and the new Netflix thriller “The Last House” shares the places he loves in his vibrant hometown.`\
-https://www.nytimes.com/2026/08/31/travel/wagner-moura-brazil-salvador.html
 
