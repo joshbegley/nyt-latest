@@ -1,3 +1,7 @@
+**Supreme Court Allows Trump’s White House Ballroom Construction**\
+`Lower-court rulings would have blocked construction of the 90,000-square-foot ballroom after finding that the Trump administration should have first sought approval from Congress.`\
+https://www.nytimes.com/2026/08/31/us/politics/supreme-court-trump-ballroom.html
+
 **What to Know About Hiking in Areas Prone to Flash Floods**\
 `Canyons, small streams and dry creek beds in the West can be deceptively dangerous, trapping hikers when rainfall upstream causes rapidly rising water.`\
 https://www.nytimes.com/2026/08/31/travel/flash-floods-hiking-what-to-know.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/08/31/world/asia/nepal-floods-teacher.html
 **Man Arrested in Switzerland After Deadly Shooting at Rave**\
 `The suspect, a 43-year-old Swiss citizen, was taken into custody early on Monday, the police said.`\
 https://www.nytimes.com/2026/08/31/world/europe/switzerland-shooting-rave-suspect-arrest.html
-
-**John Galliano Bows Out of Met Museum Show After Criticism Mounts**\
-`Donors, politicians and Jewish leaders questioned the Met’s decision to honor Galliano, a fashion designer who was found guilty of a hate crime for his antisemitic outbursts.`\
-https://www.nytimes.com/2026/08/31/style/john-galliano-met-gala-canceled.html
 
