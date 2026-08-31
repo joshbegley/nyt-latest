@@ -1,3 +1,7 @@
+****\
+`A search and rescue helicopter near Bright Angel campground inside the park on Sunday.`\
+https://www.nytimes.com/video/embedded/arts/dance/100000011122589/15-people-may-be-missing-at-the-grand-canyon-after-flash-flood.html
+
 **15 People May Be Missing at the Grand Canyon After Flash Flood**\
 `A search and rescue helicopter near Bright Angel campground inside the park on Sunday.`\
 https://www.nytimes.com/video/embedded/arts/dance/100000011122589/15-people-may-be-missing-at-the-grand-canyon-after-flash-flood.html
