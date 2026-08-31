@@ -1,3 +1,11 @@
+**Rachel Cusk intentó caricaturizar a Natalie Portman. Solo se caricaturizó a sí misma**\
+`Las similitudes entre la protagonista de la nueva novela de Cusk y la actriz Natalie Portman han convertido la obra en el centro de críticas y especulaciones.`\
+https://www.nytimes.com/es/2026/08/31/espanol/cultura/rachel-cusk-natalie-portman-libro-critica.html
+
+**China Prepared for One Kind of Himalayan Flood. Then a Different Disaster Struck.**\
+`After a glacial flood last year, Chinese officials strengthened defenses at a border crossing with Nepal. But last week’s “cascade of hazards” overwhelmed them.`\
+https://www.nytimes.com/2026/08/31/world/asia/china-nepal-tibet-flood-himalayas-risk.html
+
 **G20 Finance Officials Gather in U.S. as Iran War Grips Global Economy**\
 `The meeting is expected to focus on the ongoing economic shock from the war in Iran, which has driven up oil prices globally.`\
 https://www.nytimes.com/2026/08/31/business/g20-finance-iran-bessent.html

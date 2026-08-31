@@ -1,3 +1,11 @@
+**South Korea’s Unification Church Leader Gets 2 Years in Prison for Corruption**\
+`Han Hak-ja, the widow and successor of the conservative church’s founder, was convicted of financial dealings related to the former president and first lady, who are also imprisoned.`\
+https://www.nytimes.com/2026/08/31/world/asia/south-korea-unification-church-leader-prison.html
+
+**For Nepal’s Young Leader, Flood Recovery Will Be a Herculean Task**\
+`Prime Minister Balendra Shah, 36, rose to power this year on the back of youth anger with graft and mismanagement. His fledgling government now faces a huge test.`\
+https://www.nytimes.com/2026/08/31/world/asia/nepal-floods-balen-shah-gen-z.html
+
 **Rachel Cusk intentó caricaturizar a Natalie Portman. Solo se caricaturizó a sí misma**\
 `Las similitudes entre la protagonista de la nueva novela de Cusk y la actriz Natalie Portman han convertido la obra en el centro de críticas y especulaciones.`\
 https://www.nytimes.com/es/2026/08/31/espanol/cultura/rachel-cusk-natalie-portman-libro-critica.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/31/nyregion/mamdani-uft-paraprofessionals-budget
 **Putin Is Coming for Russian Literature**\
 `The Kremlin is redefining what it means to be a writer in Russia.`\
 https://www.nytimes.com/2026/08/31/opinion/russia-putin-writers-literature.html
-
-**‘Earle Meets World’ and 8 More Shows to Watch on TV This Week**\
-`The influencer Alix Earle leads a new reality show, and two Sept. 11 documentaries air.`\
-https://www.nytimes.com/2026/08/31/arts/television/earle-meets-world-what-to-watch-on-tv-this-week.html
-
-**Coral Reefs Are Running Out of Time to Recover, Research Find**\
-`Rising sea temperatures mean reefs don’t have enough time to bounce back between intense heat waves, a new report warns.`\
-https://www.nytimes.com/2026/08/31/climate/coral-reef-recovery-time.html
 

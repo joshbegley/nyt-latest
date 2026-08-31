@@ -1,3 +1,11 @@
+**Rachel Cusk intentó caricaturizar a Natalie Portman. Solo se caricaturizó a sí misma**\
+`Las similitudes entre la protagonista de la nueva novela de Cusk y la actriz Natalie Portman han convertido la obra en el centro de críticas y especulaciones.`\
+https://www.nytimes.com/es/2026/08/31/espanol/cultura/rachel-cusk-natalie-portman-libro-critica.html
+
+**China Prepared for One Kind of Himalayan Flood. Then a Different Disaster Struck.**\
+`After a glacial flood last year, Chinese officials strengthened defenses at a border crossing with Nepal. But last week’s “cascade of hazards” overwhelmed them.`\
+https://www.nytimes.com/2026/08/31/world/asia/china-nepal-tibet-flood-himalayas-risk.html
+
 **Global Oil Price Rises to $90 a Barrel After U.S. and Iran Trade Attacks**\
 `The first attacks in a month jolted energy markets. The average U.S. gasoline price remained 37 percent higher since the war began.`\
 https://www.nytimes.com/2026/08/31/business/oil-prices-iran-war.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/31/arts/television/earle-meets-world-what-to-wat
 **Coral Reefs Are Running Out of Time to Recover, Research Find**\
 `Rising sea temperatures mean reefs don’t have enough time to bounce back between intense heat waves, a new report warns.`\
 https://www.nytimes.com/2026/08/31/climate/coral-reef-recovery-time.html
-
-**No Corrections: Aug. 31, 2026**\
-`No corrections appeared in print on Monday, Aug. 31, 2026.`\
-https://www.nytimes.com/2026/08/31/corrections/no-corrections-aug-31-2026.html
-
-**Quote of the Day: Tiny, With Enviable Smiles Per Gallon**\
-`Quotation of the Day for Monday, August 31, 2026.`\
-https://www.nytimes.com/2026/08/31/pageoneplus/quote-of-the-day-tiny-with-enviable-smiles-per-gallon.html
 
