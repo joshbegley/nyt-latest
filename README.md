@@ -1,6 +1,6 @@
 **Spanish Leader Says 5,000 Migrants Are Still in Ceuta, Weeks After Border Surge**\
 `Their continued presence has roiled the Spanish territory in Africa and heaped pressure on Prime Minister Pedro Sánchez.`\
-https://www.nytimes.com/2026/08/31/world/europe/ceuta-migrants-5000.html
+https://www.nytimes.com/2026/08/31/world/europe/ceuta-migrants-pedro-sanchez-north-africa.html
 
 **Why Larak Island Is Strategically Important for Iran**\
 `The roughly 30-square-mile island serves as a foothold for Iran’s military to advance its control over shipping through the Strait of Hormuz.`\

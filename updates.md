@@ -1,3 +1,7 @@
+**Spanish Leader Says 5,000 Migrants Are Still in Ceuta, Weeks After Border Surge**\
+`Their continued presence has roiled the Spanish territory in Africa and heaped pressure on Prime Minister Pedro Sánchez.`\
+https://www.nytimes.com/2026/08/31/world/europe/ceuta-migrants-5000.html
+
 **Global Oil Price Rises to $90 a Barrel After U.S. and Iran Trade Attacks**\
 `The first attacks in a month jolted energy markets. The average U.S. gasoline price remained 37 percent higher since the war began.`\
 https://www.nytimes.com/2026/08/31/business/oil-prices-iran-war.html

@@ -1,3 +1,7 @@
+**Spanish Leader Says 5,000 Migrants Are Still in Ceuta, Weeks After Border Surge**\
+`Their continued presence has roiled the Spanish territory in Africa and heaped pressure on Prime Minister Pedro Sánchez.`\
+https://www.nytimes.com/2026/08/31/world/europe/ceuta-migrants-5000.html
+
 **Why Larak Island Is Strategically Important for Iran**\
 `The roughly 30-square-mile island serves as a foothold for Iran’s military to advance its control over shipping through the Strait of Hormuz.`\
 https://www.nytimes.com/2026/08/31/world/middleeast/larak-island-iran-us-strikes.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/31/business/chinese-cars-us-sales-ban.html
 **How Bad Will This Year’s Flu Season Be?**\
 `Doctors are hopeful for a quieter fall and winter than in 2025.`\
 https://www.nytimes.com/2026/08/31/well/flu-season-explainer-vaccination.html
-
-**These Generals Fought for Israel. Now They See ‘Jewish Terrorism’ as the Threat.**\
-`A growing number of former Israeli generals, intelligence officials and prime ministers are accusing settlers in the West Bank of committing ethnic cleansing with government support. “Once a society behaves this way,” one said, “that society is doomed.”`\
-https://www.nytimes.com/2026/08/31/world/middleeast/west-bank-israel.html
 
