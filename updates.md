@@ -1,3 +1,15 @@
+**J.D. Vance Called Michigan Senate Candidate Abdul El-Sayed ‘Evil’ in Speech**\
+`The vice president also told Dr. El-Sayed, Michigan’s Democratic Senate nominee, to “keep my wife’s name out of your mouth.”`\
+https://www.nytimes.com/2026/08/31/us/politics/vance-el-sayed-michigan-speech.html
+
+**C.D.C. Director Challenges Pennsylvania’s Report of Two Measles Deaths**\
+`Questioning a state’s investigation is highly unusual for the public health agency, but reflects tensions between the Trump administration and many states over health issues.`\
+https://www.nytimes.com/2026/08/31/health/measles-deaths-pennsylvania-schwartz-kennedy-shapiro.html
+
+**Woman Stabs 2, Killing One, in Times Square and Is Shot Dead by N.Y.P.D.**\
+`The police fired at the knife-wielding woman after trying to use less lethal force, officials said.`\
+https://www.nytimes.com/2026/08/31/nyregion/times-square-subway-stabbing-nypd-shooting.html
+
 **Scott Brown Was a GOP Star. Will It Matter in the New Hampshire Senate Race?**\
 `Scott Brown is chasing the political limelight again with a seemingly improvised Senate campaign.`\
 https://www.nytimes.com/2026/08/31/us/politics/new-hampshire-senate-scott-brown.html
