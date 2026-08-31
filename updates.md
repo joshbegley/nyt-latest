@@ -1,3 +1,11 @@
+**U.S. and Iran Exchange Strikes Overnight After Monthlong Calm**\
+`The renewed attacks were the latest sign that the war that began six months ago appears far from over.`\
+https://www.nytimes.com/2026/08/31/world/middleeast/us-iran-uae-jordan-attacks.html
+
+**Nonstop Russian Drones Make for Dangerous New Phase of War in Kyiv**\
+`The nearly constant air raids, a shift from years of largely overnight attacks, have left residents exhausted and on edge.`\
+https://www.nytimes.com/2026/08/31/world/europe/ukraine-kyiv-drones-russia-sirens.html
+
 **U.S. Start-Up Partners With Saudi Arabia for Data Center**\
 `Together AI, which serves open-source artificial intelligence models, announced a deal to use compute from Humain in Saudi Arabia, where it can bypass U.S. backlash over data centers.`\
 https://www.nytimes.com/2026/08/31/business/dealbook/together-ai-humain-saudi-arabia-data-center.html
