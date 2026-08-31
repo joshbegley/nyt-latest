@@ -1,3 +1,15 @@
+**Rescue Trucks at LaGuardia and J.F.K. Get Trackers After Fatal Crash**\
+`Investigators said a missing piece of equipment on a fire truck played a role in March’s deadly collision with an Air Canada Express jet at LaGuardia.`\
+https://www.nytimes.com/2026/08/31/nyregion/rescue-trucks-at-laguardia-and-jfk-get-trackers-after-fatal-crash.html
+
+**At the U.S. Open Gala With Orlando Bloom, Lindsey Vonn and More**\
+`Katie Couric, Orlando Bloom, Lindsey Vonn and Vera Wang celebrated the tournament’s opening night in Queens with a charity dinner and matches featuring two titans of tennis.`\
+https://www.nytimes.com/2026/08/31/style/us-open-orlando-bloom-vera-wang.html
+
+**Why the Times/Siena Poll Isn’t Hanging Up the Phone**\
+`Reader mailbag: The traditional use of phones in Times/Siena surveys is far from perfect, but its strengths shouldn’t be overlooked.`\
+https://www.nytimes.com/2026/08/31/upshot/times-siena-phone-polling.html
+
 **China Is the Star at a Summit With the Leaders of Russia, India and Iran**\
 `The two-day summit of the 10-nation Shanghai Cooperation Organization in Kyrgyzstan shows the limits of U.S. economic warfare.`\
 https://www.nytimes.com/2026/08/31/world/asia/putin-xi-modi-sco.html
