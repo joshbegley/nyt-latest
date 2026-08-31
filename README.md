@@ -1,3 +1,7 @@
+**Su movimiento luchaba contra el fascismo. Ahora, contra el globalismo**\
+`Sílvia Orriols está transformando el nacionalismo catalán.`\
+https://www.nytimes.com/es/2026/08/30/espanol/opinion/espana-nacionalismo-catalan-orriols-globalismo.html
+
 **‘Lanterns’ Season 1, Episode 3 Recap: Parents and Guardians**\
 `This week offered an in-depth look at how John Stewart got to be next in line to wear the Green Lantern ring. It wasn’t an easy road.`\
 https://www.nytimes.com/2026/08/30/arts/television/lanterns-recap-season-1-episode-3.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/30/world/africa/us-deportation-flight-ice-detent
 **The Case of the Truly Incorrigible Cubicle Yakker**\
 `Plus: Is it normal to video-interview for a job while the hiring panel’s cameras are all off?`\
 https://www.nytimes.com/2026/08/30/business/the-case-of-the-truly-incorrigible-cubicle-yakker.html
-
-**Barbie for Grown-Ups**\
-`A full-length Barbie novel with mature concerns — even Barbie has job troubles, it seems — is allowing women to bring their girlhood passions into adulthood.`\
-https://www.nytimes.com/2026/08/30/style/barbie-novel-alex-aster.html
 

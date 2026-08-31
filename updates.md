@@ -1,3 +1,11 @@
+**‘Lanterns’ Season 1, Episode 3 Recap: Parents and Guardians**\
+`This week offered an in-depth look at how John Stewart got to be next in line to wear the Green Lantern ring. It wasn’t an easy road.`\
+https://www.nytimes.com/2026/08/30/arts/television/lanterns-recap-season-1-episode-3.html
+
+****\
+`A search and rescue helicopter near Bright Angel campground inside the park on Saturday.`\
+https://www.nytimes.com/video/embedded/arts/dance/100000011122589/15-people-may-be-missing-at-the-grand-canyon-after-flash-flood.html
+
 ****\
 `A search and rescue helicopter near Bright Angel campground inside the park on Sunday.`\
 https://www.nytimes.com/video/embedded/arts/dance/100000011122589/15-people-may-be-missing-at-the-grand-canyon-after-flash-flood.html
