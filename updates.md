@@ -1,3 +1,11 @@
+**A Principal Saved 900 Children Before His School Was Washed Away in Nepal**\
+`Rajendra Dawadi had less than 15 minutes to act on a warning of approaching floodwaters. His swift evacuation plan saved hundreds of lives.`\
+https://www.nytimes.com/2026/08/31/world/asia/nepal-floods-teacher.html
+
+**Lindsay Clancy Murder Trial: Jury Deliberations Expected to Continue**\
+`Jurors resumed discussion of the high-profile case on Monday, after deliberating last week for about 10 hours over two days.`\
+https://www.nytimes.com/2026/08/31/us/lindsay-clancy-murder-trial-jury-deliberations.html
+
 **Man Arrested in Switzerland After Deadly Shooting at Rave**\
 `The suspect, a 43-year-old Swiss citizen, was taken into custody early on Monday, the police said.`\
 https://www.nytimes.com/2026/08/31/world/europe/switzerland-shooting-rave-suspect-arrest.html
