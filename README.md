@@ -1,3 +1,7 @@
+**Ella Langley’s ‘Choosin’ Texas’ Breaks Record With 20th Week at No. 1**\
+`The singer-songwriter set the record for a non-holiday song, topping the Hot 100 in a week that saw country hits dominate and Dolly Parton’s return.`\
+https://www.nytimes.com/2026/08/31/arts/music/ella-langley-choosin-texas-record.html
+
 **Rescue Trucks at LaGuardia and J.F.K. Get Trackers After Fatal Crash**\
 `Investigators said a missing piece of equipment on a fire truck played a role in March’s deadly collision with an Air Canada Express jet at LaGuardia.`\
 https://www.nytimes.com/2026/08/31/nyregion/rescue-trucks-at-laguardia-and-jfk-get-trackers-after-fatal-crash.html
@@ -63,7 +67,7 @@ https://www.nytimes.com/quiz/2026/08/31/bookreview/education-quotes-quiz.html
 https://www.nytimes.com/2026/08/31/dining/this-roasted-salmon-and-broccoli-bowl-will-ease-you-into-fall.html
 
 **After Floods, Grand Canyon Opens on a Limited Basis. What to Know.**\
-`As the search for missing visitors continues, the National Park has shut down hotels and much of its terrain, but visitors can still enter.`\
+`As the search for missing visitors continues, the National Park has shut down hotels and much of its terrain, but people can still enter.`\
 https://www.nytimes.com/2026/08/31/travel/grand-canyon-reopen-floods-what-to-know.html
 
 **EE. UU. e Irán intercambian ataques otra vez**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/31/upshot/times-siena-phone-polling.html
 **The U.S. Open Can’t Go On Like This**\
 `It’s the most lucrative tennis tournament in the world. Hmm.`\
 https://www.nytimes.com/2026/08/31/opinion/us-open-prices.html
-
-**How a Court Officer Lives on $155,000 on Staten Island**\
-`Fred Jacobs qualified for his pension in 2021, but he keeps working, grabbing overtime shifts to help pay for his mortgage and other costs.`\
-https://www.nytimes.com/interactive/2026/08/31/nyregion/nyc-budgeting-affordability-jacobs.html
 
