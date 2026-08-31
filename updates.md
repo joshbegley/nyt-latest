@@ -1,3 +1,7 @@
+**Nepal Turns to Mass Burials as Thousands Remain Missing from Floods**\
+`Only a fraction of the over 4,200 missing in Nepal are turning up among the dead, underscoring a bleak reality: The death toll is likely to keep rising for days to come.`\
+https://www.nytimes.com/2026/08/30/world/asia/nepal-floods-mass-burials-missing.html
+
 **Maps: Tracking Hurricane Karina**\
 `See the likely path and wind arrival times for Karina`\
 https://www.nytimes.com/interactive/2026/08/31/weather/karina-map-path-tracker.html
