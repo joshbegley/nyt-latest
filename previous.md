@@ -1,3 +1,7 @@
+**Dark Money**\
+`We look at campaign financing — as well as Iran, Nepal and coral reefs.`\
+https://www.nytimes.com/2026/08/31/briefing/dark-money.html
+
 **U.S. and Iran Exchange Strikes Overnight After Monthlong Calm**\
 `The renewed attacks were the latest sign that the war that began six months ago appears far from over.`\
 https://www.nytimes.com/2026/08/31/world/middleeast/us-iran-uae-jordan-attacks.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/31/fashion/red-lipstick-fashion-identity.html
 **Pennsylvania’s A.I. Gold Rush Meets Second Thoughts**\
 `Amid a backlash, Gov. Josh Shapiro is pumping the brakes on enormous data centers. But in a region scarred by the collapse of the steel industry, some welcome billions in construction.`\
 https://www.nytimes.com/2026/08/31/business/pennsylvanias-ai-gold-rush-meets-second-thoughts.html
-
-**Leader of DOJ’s Civil Rights Unit Spars With Harvard, the Left and Her Colleagues**\
-`Harmeet Dhillon, who leads the Justice Department’s civil rights unit, has extracted flashy agreements and personnel moves from big universities and sought to force states to turn over confidential voter data.`\
-https://www.nytimes.com/2026/08/31/us/politics/harmeet-dhillon-doj-trump.html
 

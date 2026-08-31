@@ -1,3 +1,7 @@
+**Survivors of Cyprus Ferry Sinking Describe a Harrowing Escape**\
+`“My daughter slipped away from my hands,” one survivor told a Turkish news channel.`\
+https://www.nytimes.com/2026/08/31/world/europe/cyprus-ferry-turkey.html
+
 **Dark Money**\
 `We look at campaign financing — as well as Iran, Nepal and coral reefs.`\
 https://www.nytimes.com/2026/08/31/briefing/dark-money.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/31/books/review/francis-fukuyama-in-the-realm-of
 **Is My Red Lipstick Out of Date?**\
 `A reader is wondering whether she needs a makeover.`\
 https://www.nytimes.com/2026/08/31/fashion/red-lipstick-fashion-identity.html
-
-**Pennsylvania’s A.I. Gold Rush Meets Second Thoughts**\
-`Amid a backlash, Gov. Josh Shapiro is pumping the brakes on enormous data centers. But in a region scarred by the collapse of the steel industry, some welcome billions in construction.`\
-https://www.nytimes.com/2026/08/31/business/pennsylvanias-ai-gold-rush-meets-second-thoughts.html
 

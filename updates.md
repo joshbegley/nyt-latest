@@ -1,3 +1,7 @@
+**Dark Money**\
+`We look at campaign financing — as well as Iran, Nepal and coral reefs.`\
+https://www.nytimes.com/2026/08/31/briefing/dark-money.html
+
 **U.S. and Iran Exchange Strikes Overnight After Monthlong Calm**\
 `The renewed attacks were the latest sign that the war that began six months ago appears far from over.`\
 https://www.nytimes.com/2026/08/31/world/middleeast/us-iran-uae-jordan-attacks.html
