@@ -1,3 +1,7 @@
+**Luxury Berkshires Hotel Could Become a Single-Family Home**\
+`The future of Wheatleigh, a Gilded Age mansion and luxury hotel in the Berkshires on the market for $14.5 million, depends on who buys it — and when.`\
+https://www.nytimes.com/2026/08/31/realestate/wheatleigh-gilded-age-hotel-tanglewood.html
+
 **Ella Langley’s ‘Choosin’ Texas’ Breaks Record With 20th Week at No. 1**\
 `The singer-songwriter set the record for a non-holiday song, topping the Hot 100 in a week that saw country hits dominate and Dolly Parton’s return.`\
 https://www.nytimes.com/2026/08/31/arts/music/ella-langley-choosin-texas-record.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/31/us/lindsay-clancy-murder-trial-jury-deliberat
 **Why the Times/Siena Poll Isn’t Hanging Up the Phone**\
 `Reader mailbag: The traditional use of phones in Times/Siena surveys is far from perfect, but its strengths shouldn’t be overlooked.`\
 https://www.nytimes.com/2026/08/31/upshot/times-siena-phone-polling.html
-
-**The U.S. Open Can’t Go On Like This**\
-`It’s the most lucrative tennis tournament in the world. Hmm.`\
-https://www.nytimes.com/2026/08/31/opinion/us-open-prices.html
 
