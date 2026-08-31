@@ -1,3 +1,7 @@
+**En tiempos de crisis climática, algunos temen que ‘todo el Himalaya se está derritiendo’**\
+`Un glaciar provocó una inundación mortal a principios de esta semana. Para los guías de senderismo y alpinistas locales, las montañas ya venían cambiando.`\
+https://www.nytimes.com/es/2026/08/31/espanol/ciencia-y-tecnologia/nepal-calentamiento-global-himalayas.html
+
 **Maps: Tracking Hurricane Karina**\
 `See the likely path and wind arrival times for Karina`\
 https://www.nytimes.com/interactive/2026/08/31/weather/karina-map-path-tracker.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/30/podcasts/the-daily/who-will-rule-the-2026-us-
 **How a ’70s Improv Book Became Silicon Valley’s Required Reading**\
 `It can be useful to see reality as malleable.`\
 https://www.nytimes.com/2026/08/30/opinion/silicon-valley-theater-improv.html
-
-**Today’s Wordle Hints for August 31, 2026**\
-`Scroll down for hints and conversation about the puzzle for Monday, Aug. 31, 2026.`\
-https://www.nytimes.com/2026/08/30/crosswords/wordle-review-1899.html
 
