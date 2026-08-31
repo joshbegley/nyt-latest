@@ -1,3 +1,7 @@
+**Mansour Abbas Recruits Yoav Segalovitz to Join Raam Party in Israeli Election**\
+`Mansour Abbas has recruited a Jewish lawmaker best known for reducing the crime rate in Arab cities. Could that be enough to get Mr. Abbas a seat in the next government?`\
+https://www.nytimes.com/2026/08/31/world/middleeast/israel-raam-recruits-zionist.html
+
 **Smithsonian to Put Latino Museum in Existing Building It Controls**\
 `Its board voted to house the museum in the institution’s Arts and Industries Building on the National Mall, rather than build on a site owned by the National Park Service.`\
 https://www.nytimes.com/2026/08/31/arts/design/smithsonian-latino-museum-arts-industries.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/08/31/opinion/letters/child-actors.html
 **Tropical Storm Edouard Could Form Near Texas on Monday**\
 `A cluster of thunderstorms that could become Tropical Storm Edouard threatens to bring heavy rain to Southeast Texas and western Louisiana.`\
 https://www.nytimes.com/2026/08/31/weather/texas-rain-gulf-eduardo.html
-
-**Mapa: la trayectoria del huracán Karina en vivo**\
-`Consulta la trayectoria probable y las horas de llegada de los vientos de Karina.`\
-https://www.nytimes.com/es/interactive/2026/08/31/espanol/karina-mapa-trayectoria.html
 
