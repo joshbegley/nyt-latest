@@ -111,7 +111,7 @@ https://www.nytimes.com/2026/08/31/world/europe/ceuta-migrants-pedro-sanchez-nor
 https://www.nytimes.com/2026/08/31/world/middleeast/larak-island-iran-us-strikes.html
 
 **China Is the Star at a Summit With the Leaders of Russia, India and Iran**\
-`The two-day summit of the 10-nation Shanghai Cooperation Organization in Kyrgyzstan shows the limits of U.S. economic warfare.`\
+`The two-day conference of the 10-nation Shanghai Cooperation Organization in Kyrgyzstan shows the limits of U.S. economic warfare.`\
 https://www.nytimes.com/2026/08/31/world/asia/putin-xi-modi-sco.html
 
 **What Is Phantom Ranch? Inside the Grand Canyon Lodge Hit by Flash Flooding**\
