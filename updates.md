@@ -1,3 +1,7 @@
+**G20 Finance Officials Gather in U.S. as Iran War Grips Global Economy**\
+`The meeting, which China and Russia are attending, is focused on the ongoing economic shock from the war in Iran, which has driven up oil prices globally.`\
+https://www.nytimes.com/2026/08/31/business/g20-finance-iran-bessent.html
+
 **A Principal Saved 900 Students Before His School Was Washed Away in Nepal**\
 `Rajendra Dawadi had less than 15 minutes to act on a warning of approaching floodwaters. His swift evacuation plan saved hundreds of lives.`\
 https://www.nytimes.com/2026/08/31/world/asia/nepal-floods-teacher.html
