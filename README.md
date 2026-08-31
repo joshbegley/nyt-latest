@@ -1,3 +1,7 @@
+**Mujeres y niñas son blanco de guerra del narco en Sinaloa**\
+`Un enfrentamiento de dos años entre facciones rivales del Cártel de Sinaloa está provocando un aumento de asesinatos y desapariciones dirigidos contra las mujeres.`\
+https://www.nytimes.com/es/2026/08/31/espanol/america-latina/mexico-carteles-narco-mujeres.html
+
 **Senate Primary in Massachusetts Is a Generational Fight, With a Twist**\
 `In Massachusetts, the octogenarian senator Ed Markey faces a challenge from a much younger centrist, Representative Seth Moulton.`\
 https://www.nytimes.com/2026/08/31/us/markey-moulton-massachusetts-primary-democrats-age.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/31/business/polestar-discounts-ev-china.html
 **After a Fatal Fire, a Shaky Recovery at Housing Complex**\
 `The Nob Hill apartments in Syracuse, N.Y., went downhill after the complex was bought by a private equity group. Now, some tenants face eviction.`\
 https://www.nytimes.com/2026/08/31/nyregion/after-a-fatal-fire-a-shaky-recovery-at-housing-complex.html
-
-**‘I Work, I Sleep, I Eat, I Ferret’: Notes From an Obsessive Subculture**\
-`At the largest annual ferret show in the United States, a shrinking community fights to survive.`\
-https://www.nytimes.com/2026/08/31/us/ferret-buckeye-bash.html
 
