@@ -4,7 +4,7 @@ https://www.nytimes.com/2026/08/31/business/oil-prices-iran-war.html
 
 **G20 Finance Officials Gather in U.S. as Iran War Grips Global Economy**\
 `The meeting is expected to focus on the ongoing economic shock from the war in Iran, which has driven up oil prices globally.`\
-https://www.nytimes.com/2026/08/31/business/g20-finance-officials-gather-in-us-as-iran-war-grips-global-economy.html
+https://www.nytimes.com/2026/08/31/business/g20-finance-iran-bessent.html
 
 **Lindsay Clancy Murder Trial: Jury Deliberations Expected to Continue**\
 `Jurors have already discussed the high-profile case for about 10 hours over two days.`\

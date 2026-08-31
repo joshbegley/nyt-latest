@@ -1,3 +1,7 @@
+**G20 Finance Officials Gather in U.S. as Iran War Grips Global Economy**\
+`The meeting is expected to focus on the ongoing economic shock from the war in Iran, which has driven up oil prices globally.`\
+https://www.nytimes.com/2026/08/31/business/g20-finance-iran-bessent.html
+
 **Global Oil Price Rises to $90 a Barrel After U.S. and Iran Trade Attacks**\
 `The first attacks in a month jolted energy markets. The average U.S. gasoline price remained 37 percent higher since the war began.`\
 https://www.nytimes.com/2026/08/31/business/oil-prices-iran-war.html
