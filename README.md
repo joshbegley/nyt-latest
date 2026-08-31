@@ -1,3 +1,7 @@
+**The Hypebeasts of the Fringe Festival**\
+`From Hannah Reilly to Amanda Knox to clowns, who are the hype beasts of this year’s Fringe Festival? Our chief theater critic, Helen Shaw, went to Edinburgh to find out.`\
+https://www.nytimes.com/video/theater/100000011066016/the-hypebeasts-of-the-fringe-festival-edinburgh-theater.html
+
 **Messi se retira de la selección argentina**\
 `El retiro de Lionel Messi de la selección nacional de fútbol, aunque se esperaba, desató temores de un equipo disminuido y el desconsuelo por la partida de un ícono nacional.`\
 https://www.nytimes.com/es/2026/08/31/espanol/america-latina/messi-retira-seleccion-argentina.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/08/31/world/asia/nepal-floods-balen-shah-gen-z.html
 **Rachel Cusk intentó caricaturizar a Natalie Portman. Solo se caricaturizó a sí misma**\
 `Las similitudes entre la protagonista de la nueva novela de Cusk y la actriz Natalie Portman han convertido la obra en el centro de críticas y especulaciones.`\
 https://www.nytimes.com/es/2026/08/31/espanol/cultura/rachel-cusk-natalie-portman-libro-critica.html
-
-**China Prepared for One Kind of Himalayan Flood. Then a Different Disaster Struck.**\
-`After a glacial flood last year, Chinese officials strengthened defenses at a border crossing with Nepal. But last week’s “cascade of hazards” overwhelmed them.`\
-https://www.nytimes.com/2026/08/31/world/asia/china-nepal-tibet-flood-himalayas-risk.html
 
