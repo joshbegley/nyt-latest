@@ -1,3 +1,11 @@
+**Édouard Balladur, Embattled French Prime Minister, Dies at 97**\
+`His time in office coincided with France’s fraught role in the 1994 Rwandan genocide and the corruption scandal known as the Karachi affair.`\
+https://www.nytimes.com/2026/08/31/world/europe/edouard-balladur-dead.html
+
+**FTC and 22 States Sue Amazon Over Advertising Practices**\
+`Regulators say the e-commerce giant forced millions of advertisers to pay more than they should have. The company denies the claims.`\
+https://www.nytimes.com/2026/08/31/technology/ftc-amazon-lawsuit-ad-prices.html
+
 **Antes de las inundaciones en Nepal, los peregrinos buscaban lo divino en una montaña sagrada**\
 `Para muchos, la caminata al monte Kailash en la frontera entre Nepal y el Tíbet es un viaje único en la vida para encontrar el despertar espiritual.`\
 https://www.nytimes.com/es/2026/08/31/espanol/mundo/nepal-inundacion-peregrinos-desaparecidos.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/08/31/world/europe/ceuta-migrants-pedro-sanchez-nor
 **Why Larak Island Is Strategically Important for Iran**\
 `The roughly 30-square-mile island serves as a foothold for Iran’s military to advance its control over shipping through the Strait of Hormuz.`\
 https://www.nytimes.com/2026/08/31/world/middleeast/larak-island-iran-us-strikes.html
-
-**Summit With Russia, India and Iran Shows Leverage Wars Have Given Xi of China**\
-`A two-day conference of the 10-nation Shanghai Cooperation Organization in Kyrgyzstan shows the limits of U.S. economic warfare.`\
-https://www.nytimes.com/2026/08/31/world/asia/putin-xi-modi-sco.html
-
-**What Is Phantom Ranch? Inside the Grand Canyon Lodge Hit by Flash Flooding**\
-`Phantom Ranch, the only lodge within the Grand Canyon, has drawn adventurers and dignitaries, including Theodore Roosevelt, for more than a century.`\
-https://www.nytimes.com/2026/08/31/us/grand-canyon-flooding-phantom-ranch.html
 
