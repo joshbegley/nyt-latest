@@ -1,3 +1,15 @@
+**Wartime Presidents of Russia and Iran Rally With Chinese and Indian Leaders**\
+`The two-day summit of the 10-nation Shanghai Cooperation Organization in Kyrgyzstan shows the limits of U.S. economic warfare.`\
+https://www.nytimes.com/2026/08/31/world/asia/putin-xi-modi-sco.html
+
+**South Korea’s Unification Church Leader Gets 2 Years in Prison for Corruption**\
+`Han Hak-ja, the widow and successor of the conservative church’s founder, was convicted of financial dealings related to a former president and first lady, who are also imprisoned.`\
+https://www.nytimes.com/2026/08/31/world/asia/south-korea-unification-church-leader-prison.html
+
+**Global Oil Price Rises to $90 a Barrel After U.S. and Iran Trade Attacks**\
+`Oil/Stocks/Gas hed`\
+https://www.nytimes.com/2026/08/31/business/oil-prices-iran-war.html
+
 **Foodborne Illnesses Can Lead to Long-Term Gut Issues**\
 `The cyclospora outbreak may result in a surge in cases of post-infection irritable bowel syndrome.`\
 https://www.nytimes.com/2026/08/31/well/eat/cyclospora-ibs-food-poisoning.html

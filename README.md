@@ -1,3 +1,7 @@
+**Why Larak Island Is Strategically Important for Iran**\
+`The roughly 30-square-mile island serves as a foothold for Iran’s military to advance its control over shipping through the Strait of Hormuz.`\
+https://www.nytimes.com/2026/08/31/world/middleeast/larak-island-iran-us-strikes.html
+
 **Wartime Presidents of Russia and Iran Rally With Chinese and Indian Leaders**\
 `The two-day summit of the 10-nation Shanghai Cooperation Organization in Kyrgyzstan shows the limits of U.S. economic warfare.`\
 https://www.nytimes.com/2026/08/31/world/asia/putin-xi-modi-sco.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/31/well/flu-season-explainer-vaccination.html
 **These Generals Fought for Israel. Now They See ‘Jewish Terrorism’ as the Threat.**\
 `A growing number of former Israeli generals, intelligence officials and prime ministers are accusing settlers in the West Bank of committing ethnic cleansing with government support. “Once a society behaves this way,” one said, “that society is doomed.”`\
 https://www.nytimes.com/2026/08/31/world/middleeast/west-bank-israel.html
-
-**Do D.E.I. Bike Paths Exist? The Trump Administration Says Yes.**\
-`The administration has revoked funding for bike paths, and encouraged removing some. A cycling advocate said it is playing on the idea of “that dork on a bike.”`\
-https://www.nytimes.com/2026/08/31/us/politics/trump-bike-lanes-funding-dei.html
 
