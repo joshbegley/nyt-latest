@@ -1,3 +1,7 @@
+**Duane Davis Is Convicted of Orchestrating Tupac Shakur’s Murder**\
+`Duane Keith Davis, 63, was convicted of first-degree murder after he went on an interview tour discussing his role in the 1996 drive-by shooting.`\
+https://www.nytimes.com/2026/08/31/arts/music/guilty-convicted.html
+
 **Duane Keith Davis Found Guilty in Tupac Shakur’s Murder**\
 `A jury found Duane Keith Davis guilty on Monday for orchestrating the 1996 murder of Tupac Shakur. He is the first and only person to be charged in the case that went unresolved for nearly 30 years.`\
 https://www.nytimes.com/video/us/100000011124855/tupac-trial-duane-davis-verdict-guilty.html
@@ -62,9 +66,9 @@ https://www.nytimes.com/2026/08/31/us/wendell-berry-dead.html
 `The new round values the prediction market at $21 billion, up from $15 billion. Mr. Trump’s firm, 1789 Capital, will invest around $300 million.`\
 https://www.nytimes.com/2026/08/31/business/polymarket-funding-trump.html
 
-**Tupac Shakur Murder Trial Updates: Man Found Guilty of Orchestrating Rap Star’s Killing**\
-`A jury convicted Duane Keith Davis, 63, in the 1996 drive-by shooting that killed Mr. Shakur, a rapper at the height of his popularity. Prosecutors cited portions of Mr. Davis’s disavowed memoir.`\
-https://www.nytimes.com/live/2026/08/31/arts/tupac-murder-trial-verdict-duane-davis
+**Here’s the latest.**\
+`(No description)`\
+https://www.nytimes.com/2026/08/31/arts/music/heres-the-latest.html
 
 **Trump Renews Push for Federal Film Tax Credit**\
 `Proponents say a federal program could bring back Hollywood jobs that have gone overseas because of cheap labor and large incentives.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/08/31/espanol/mundo/nepal-inundacion-peregrinos-
 **110 Trucking Schools Closed for English-Language Lapses**\
 `Transportation Secretary Sean Duffy, who has targeted truckers in the country illegally, said the schools certified drivers later found to lack proficiency.`\
 https://www.nytimes.com/2026/08/31/us/politics/truck-driving-schools-closed-english-language.html
-
-**Lemon Pesto Pasta**\
-`Also known as pesto alla Genovese, lemon pesto is a delicious variation that adds a jolt of brightness. Used in Italy as both a pasta sauce or spread for crostini, its preparation is similar to classic pesto, but the addition of the lemon zest and juice gives it a unique flavor and color.`\
-https://www.nytimes.com/video/dining/100000011120279/lemon-pesto-pasta.html
 

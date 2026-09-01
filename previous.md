@@ -1,3 +1,7 @@
+**Duane Keith Davis Found Guilty in Tupac Shakur’s Murder**\
+`A jury found Duane Keith Davis guilty on Monday for orchestrating the 1996 murder of Tupac Shakur. He is the first and only person to be charged in the case that went unresolved for nearly 30 years.`\
+https://www.nytimes.com/video/us/100000011124855/tupac-trial-duane-davis-verdict-guilty.html
+
 **El Met suspende la exposición de Galliano ante las críticas y la presión política**\
 `Donantes, políticos y líderes judíos cuestionaron la decisión del Met de homenajear a Galliano, un diseñador de moda que fue declarado culpable de un delito de odio por sus exabruptos antisemitas.`\
 https://www.nytimes.com/es/2026/08/31/espanol/cultura/john-galliano-exposicion-met.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/31/us/politics/truck-driving-schools-closed-engl
 **Lemon Pesto Pasta**\
 `Also known as pesto alla Genovese, lemon pesto is a delicious variation that adds a jolt of brightness. Used in Italy as both a pasta sauce or spread for crostini, its preparation is similar to classic pesto, but the addition of the lemon zest and juice gives it a unique flavor and color.`\
 https://www.nytimes.com/video/dining/100000011120279/lemon-pesto-pasta.html
-
-**Green Goddess Chicken Salad Sandwiches**\
-`Avocado forms the base of creamy green goddess dressing in this everyday chicken salad recipe. Made with lots of green herbs, capers and scallions, it’s tangy, vinegary and luxuriously creamy without the addition of any dairy or mayonnaise.`\
-https://www.nytimes.com/video/dining/100000011120389/green-goddess-chicken-salad-sandwiches.html
 
