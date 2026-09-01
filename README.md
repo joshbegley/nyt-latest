@@ -1,3 +1,7 @@
+**Tractor Protest in Copenhagen Over Fertilizer Restrictions**\
+`Farmers drove tractors into Copenhagen to protest stricter limits on fertilizer use. They said these restrictions could cut yields and make their farms unprofitable.`\
+https://www.nytimes.com/video/world/europe/100000011125816/protest-fertilizer-restrictions-copenhagen-denmark.html
+
 **China y EE. UU. muestran formas enfrentadas de poder mundial**\
 `Mientras Xi Jinping se reunía con los líderes de Rusia e Irán, Europa desafió al gobierno de Trump en el G20, lo que ofreció una visión en pantalla dividida de un mundo cambiante.`\
 https://www.nytimes.com/es/2026/09/01/espanol/mundo/estados-unidos-china-g20-poder.html
@@ -27,7 +31,7 @@ https://www.nytimes.com/2026/09/01/opinion/supreme-court-trump-ballroom.html
 https://www.nytimes.com/2026/09/01/business/energy-environment/venezuela-oil-trump-deal.html
 
 **U.S. Launches Strikes in Iran Targeting IRGC**\
-`U.S. Central Command did not say precisely what it was trying to destroy in Iran, but it said the attacks were aimed at Iran’s Islamic Revolutionary Guards Corps. The two sides had exchanged fire on Sunday.`\
+`U.S. Central Command did not say precisely what it was trying to destroy in Iran, but it said the attacks were aimed at Iran’s Islamic Revolutionary Guards Corps.`\
 https://www.nytimes.com/2026/09/01/us/politics/us-launches-air-strikes-iran.html
 
 **These Ukrainian Children Go to School Underground. They’re the Lucky Ones.**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusett
 **Massachusetts Treasurer Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Massachusetts primary election.`\
 https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-treasurer-primary.html
-
-**Map: 3.6-Magnitude Earthquake Shakes Texas**\
-`View the location of the quake’s epicenter and shake area.`\
-https://www.nytimes.com/interactive/2026/09/01/us/quake-tracker-texas.html
 
