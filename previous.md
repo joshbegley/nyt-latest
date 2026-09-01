@@ -1,5 +1,5 @@
-**Who is Duane Keith Davis, the former gang leader convicted in Shakur’s death?**\
-`Mr. Davis, who goes by Keffe D, long said he was in a Cadillac with the shooter in 1996. Then he began to recant his accounts.`\
+**Who Is Duane Keith Davis, the Former Gang Leader Convicted in Tupac Shakur’s Death?**\
+`Duane Keith Davis, once a high-ranking member of the South Side Compton Crips, long said he was in a Cadillac with the shooter in 1996. Then he began to recant his accounts.`\
 https://www.nytimes.com/2026/08/31/arts/music/duane-davis-keffe-d-tupac-murder.html
 
 **Woman Shot Dead After Stabbing 2 People in Times Square**\
