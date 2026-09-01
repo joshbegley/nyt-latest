@@ -1,3 +1,7 @@
+**The Voice of Looney Tunes on Corporate Greed**\
+`How a Warner Bros. merger almost turned “Coyote vs. Acme” into a tax write-off.`\
+https://www.nytimes.com/2026/09/01/podcasts/looney-tunes-corporate-greed.html
+
 **Juan Tamariz, el maestro irreverente de la magia de cerca, muere a los 83 años**\
 `Un mago para los magos, era un filósofo del oficio. No quería engañar a la gente; quería compartir su asombro ante lo inexplicable.`\
 https://www.nytimes.com/es/2026/09/01/espanol/juan-tamariz-mago-muere.html
