@@ -1,3 +1,7 @@
+**US Open Day 2: Alcaraz Shows Tennis What It’s Been Missing**\
+`The reigning champion made his long-awaited return from a wrist injury on Monday.`\
+https://www.nytimes.com/2026/09/01/podcasts/us-open-alcaraz-tennis.html
+
 **The Voice of Looney Tunes on Corporate Greed**\
 `How a Warner Bros. merger almost turned “Coyote vs. Acme” into a tax write-off.`\
 https://www.nytimes.com/2026/09/01/podcasts/looney-tunes-corporate-greed.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/01/crosswords/spelling-bee-forum.html
 **Vance Defends Approach to Antisemitism in Remarks to Jewish Conservatives**\
 `In private remarks, Vice President JD Vance explained why he engages with some influencers accused of antisemitism. He also urged the audience to help articulate why a strong relationship with Israel is in America’s interest.`\
 https://www.nytimes.com/2026/09/01/us/politics/vance-republican-jewish-committee.html
-
-**A New World Order Is Coming. We Aren’t Ready.**\
-`We must be honest about the seriousness of the situation we’re in.`\
-https://www.nytimes.com/2026/09/01/opinion/world-order-international-relations.html
 

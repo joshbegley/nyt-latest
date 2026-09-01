@@ -1,3 +1,7 @@
+**US Open Day 2: Alcaraz Shows Tennis What It’s Been Missing**\
+`The reigning champion made his long-awaited return from a wrist injury on Monday.`\
+https://www.nytimes.com/2026/09/01/podcasts/us-open-alcaraz-tennis.html
+
 **The Voice of Looney Tunes on Corporate Greed**\
 `How a Warner Bros. merger almost turned “Coyote vs. Acme” into a tax write-off.`\
 https://www.nytimes.com/2026/09/01/podcasts/looney-tunes-corporate-greed.html
