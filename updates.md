@@ -1,3 +1,7 @@
+**Global Bond Sell-Off Puts Investors on Edge**\
+`Government borrowing costs are hitting multi-decade highs around the world, reflecting anxiety about debt levels, deficits and inflation.`\
+https://www.nytimes.com/2026/09/01/business/bond-yields-debt.html
+
 **Punishment and Silence: China Pulls Out the Disaster Playbook in Tibet**\
 `While journalists can report freely on grief and anger in Nepal, China’s official media have presented a sanitized disaster aftermath in Tibet.`\
 https://www.nytimes.com/2026/09/01/world/asia/china-tibet-floods-nepal-censorship.html
