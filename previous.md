@@ -1,3 +1,7 @@
+**El secretario del Ejército de EE. UU. renuncia**\
+`La renuncia de Daniel P. Driscoll se esperaba, pero ocurre mientras la institución se enfrenta a su periodo de mayor actividad desde las guerras de Irak y Afganistán.`\
+https://www.nytimes.com/es/2026/09/01/espanol/estados-unidos/secretario-ejercito-renuncia.html
+
 **Sliman Mansour, Artist Who Depicted Palestinian Struggle, Dies at 79**\
 `His idealized images of heroic Palestinian women, men and children made their way into hundreds of homes as inspirational posters.`\
 https://www.nytimes.com/2026/09/01/arts/sliman-mansour-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/01/opinion/head-start-education-funding.html
 **Kandinsky Work Returned to Jewish Heirs by a German Museum to Be Sold**\
 `Christie’s expects the major painting, “The Colorful Life,” to draw bids exceeding $30 million when it comes up at auction in October.`\
 https://www.nytimes.com/2026/09/01/arts/design/kandinsky-art-jewish-heirs-auction.html
-
-**How to Save Your Vegetable Seeds to Plant Again**\
-`As summer winds down, here’s how you can give next year’s garden a well-deserved head start.`\
-https://www.nytimes.com/2026/09/01/realestate/seed-saving-how-to.html
 
