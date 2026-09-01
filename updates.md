@@ -1,3 +1,7 @@
+**A Data Center Backlash**\
+`Today we visit Pennsylvania, where there’s a high-stakes clash over A.I. jobs and the environment.`\
+https://www.nytimes.com/2026/09/01/climate/climate-forward-data-center-backlash.html
+
 **A Disputed Supreme Court Ruling on Trump’s Ballroom**\
 `Readers respond to the decision to allow the Trump administration to continue building the White House ballroom. Also: Regulating marijuana to protect children.`\
 https://www.nytimes.com/2026/09/01/opinion/supreme-court-trump-ballroom.html
