@@ -1,3 +1,7 @@
+**A Busy Hurricane Season Just Got Even Busier in the Pacific**\
+`Three storms, spurred on by El Niño, are inching closer to Hawaii. Could one of them even affect California this weekend?`\
+https://www.nytimes.com/2026/09/01/weather/california-hawaii-hurricanes-karina-lowell-marie.html
+
 **Restaurant Review: Cleo in New York**\
 `The West Village critic’s pick rubs its bird with a warming Lebanese spice blend — and don’t forget the crinkle-cut fries.`\
 https://www.nytimes.com/2026/09/01/dining/restaurant-review-cleo-nyc.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/01/briefing/today-in-short.html
 **At G20 Summit, Scott Bessent Says U.S. Has Support for Economic War Against Iran**\
 `The Treasury secretary is also facing pushback on the Trump administration’s trade policies at the global gathering.`\
 https://www.nytimes.com/2026/09/01/business/economy/bessent-iran-g20.html
-
-**Ada Yonath, Chemist and First Israeli Woman to Receive a Nobel, Dies at 87**\
-`Her mapping of the ribosome, which led to new designs for antibiotics, faced years of derision, as many scientists saw it as a dead-end effort.`\
-https://www.nytimes.com/2026/09/01/science/ada-yonath-dead.html
 
