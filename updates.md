@@ -1,3 +1,7 @@
+**A New World Order Is Coming. We Aren’t Ready.**\
+`We must be honest about the seriousness of the situation we’re in.`\
+https://www.nytimes.com/2026/09/01/opinion/world-order-international-relations.html
+
 **The Ritual of Coffin Making in a City Hit by Ebola**\
 `While several coffin makers in Bunia said they were providing a public service, the virus has put them at the center of a debate around safe burials.`\
 https://www.nytimes.com/2026/09/01/world/africa/congo-ebola-coffins.html

@@ -1,3 +1,7 @@
+**Vance Defends Approach to Antisemitism in Remarks to Jewish Conservatives**\
+`In private remarks, Vice President JD Vance explained why he engages with some influencers accused of antisemitism. He also urged the audience to help articulate why a strong relationship with Israel is in America’s interest.`\
+https://www.nytimes.com/2026/09/01/us/politics/vance-republican-jewish-committee.html
+
 **A New World Order Is Coming. We Aren’t Ready.**\
 `We must be honest about the seriousness of the situation we’re in.`\
 https://www.nytimes.com/2026/09/01/opinion/world-order-international-relations.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/08/31/espanol/mundo/nepal-inundacion-director-es
 **Supreme Court Allows Trump’s White House Ballroom Construction**\
 `Lower-court rulings would have blocked construction of the 90,000-square-foot ballroom after finding that the Trump administration should have first sought approval from Congress.`\
 https://www.nytimes.com/2026/08/31/us/politics/supreme-court-trump-ballroom.html
-
-**What to Know About Hiking in Areas Prone to Flash Floods**\
-`Canyons, small streams and dry creek beds in the West can be deceptively dangerous, trapping hikers when rainfall upstream causes rapidly rising water.`\
-https://www.nytimes.com/2026/08/31/travel/flash-floods-hiking-what-to-know.html
 
