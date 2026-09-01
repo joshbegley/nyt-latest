@@ -1,3 +1,11 @@
+**Familias de exiliados cubanos pierden la demanda contra Expedia**\
+`Un jurado en Florida determinó que, en su demanda contra la empresa de reservas de viajes, quienes reclamaban no habían logrado demostrar la titularidad de propiedades turísticas en Cuba.`\
+https://www.nytimes.com/es/2026/08/31/espanol/america-latina/expedia-gana-demanda-cuba.html
+
+**How Dansaekhwa Has Shaped Frieze Seoul**\
+`The traditional South Korean style will be on full display at the fair, as will be many others that grew alongside it.`\
+https://www.nytimes.com/2026/08/31/arts/design/dansaekhwa-examples-frieze-seoul.html
+
 **Tupac Shakur Was at His Cultural Peak When He Was Killed**\
 `Shortly before he was murdered in 1996, the rapper had released “All Eyez on Me,” a landmark album that turned him into a superstar.`\
 https://www.nytimes.com/2026/08/31/arts/music/tupac-shakur-murder.html
@@ -18,7 +26,7 @@ https://www.nytimes.com/2026/08/31/us/wendell-berry-dead.html
 `The new round values the prediction market at $21 billion, up from $15 billion. Mr. Trump’s firm, 1789 Capital, will invest around $300 million.`\
 https://www.nytimes.com/2026/08/31/business/polymarket-funding-trump.html
 
-**Tupac Shakur Murder Trial Updates: Jury Reaches Verdict in Rap Star’s Killing**\
+**Tupac Shakur Murder Trial Updates: Man Found Guilty in Rap Star’s Killing**\
 `Duane Keith Davis was charged with orchestrating the 1996 drive-by shooting that killed Mr. Shakur, a rapper at the height of his popularity. Prosecutors cited portions of Mr. Davis’s disavowed memoir.`\
 https://www.nytimes.com/live/2026/08/31/arts/tupac-murder-trial-verdict-duane-davis
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/31/world/middleeast/israel-greece-defense-deal.h
 **What to Know About the Grand Canyon Flooding**\
 `The bodies of at least two people were found and more than a dozen were missing. Further storms could hinder rescue efforts on Monday.`\
 https://www.nytimes.com/2026/08/31/us/grand-canyon-flash-floods.html
-
-**The Local: Crop art royalty**\
-`Plus, an independent food critic tells us her favorite new fair foods.`\
-https://www.nytimes.com/2026/08/31/briefing/state-fair-crop-art.html
-
-**The Hypebeasts of the Fringe Festival**\
-`From Hannah Reilly to Amanda Knox to clowns, who are the hype beasts of this year’s Fringe Festival? Our chief theater critic, Helen Shaw, went to Edinburgh to find out.`\
-https://www.nytimes.com/video/theater/100000011066016/the-hypebeasts-of-the-fringe-festival-edinburgh-theater.html
 

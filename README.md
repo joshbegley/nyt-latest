@@ -1,3 +1,11 @@
+**Is Seoul’s Art Week Turning Into South Korea’s Art Month?**\
+`An insider’s guide to getting out of the convention center, with must-see shows, neighborhoods and side trips.`\
+https://www.nytimes.com/2026/08/31/arts/design/frieze-seoul-kiaf-south-korea-art-week.html
+
+**Geoffroy Pithon Is a French Artist Who Is Over ‘Quiet Luxury’**\
+`It’s all about patterns and vivid colors for Geoffroy Pithon, who’s showing his work at Frieze Seoul for the first time.`\
+https://www.nytimes.com/2026/08/31/arts/design/geoffrey-pithon-frieze-seoul.html
+
 **Familias de exiliados cubanos pierden la demanda contra Expedia**\
 `Un jurado en Florida determinó que, en su demanda contra la empresa de reservas de viajes, quienes reclamaban no habían logrado demostrar la titularidad de propiedades turísticas en Cuba.`\
 https://www.nytimes.com/es/2026/08/31/espanol/america-latina/expedia-gana-demanda-cuba.html
@@ -83,7 +91,7 @@ https://www.nytimes.com/2026/08/31/arts/design/smithsonian-latino-museum-arts-in
 https://www.nytimes.com/2026/08/31/world/canada/missing-island-canada-williston-reservoir.html
 
 **Woman Stabs 2, Killing One, in Times Square and Is Shot Dead by N.Y.P.D.**\
-`The police fired at the knife-wielding woman after trying to use less lethal force, officials said.`\
+`The police fired at the woman, who was holding two knives, after trying to use less lethal force, officials said. A woman, 32, was killed, and a man, 68, is in stable condition.`\
 https://www.nytimes.com/2026/08/31/nyregion/times-square-subway-stabbing-nypd-shooting.html
 
 **Supreme Court Allows White House Ballroom Construction to Continue**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/podcasts/100000011124024/what-cigarettes-can-teach
 **Before Nepal Flood Washed School Away, Principal Saved 900 Students**\
 `A school principal acted swiftly after being warned about the flood waters in Nepal and saved about 900 students. Rescue efforts continued after the flood last Wednesday, which killed more than 900 people.`\
 https://www.nytimes.com/video/world/asia/100000011123064/nepal-flood-principal-rescue-students.html
-
-**Israel and Greece Reach $3.5 Billion Defense Deal**\
-`Despite the growing diplomatic isolation of the government, the agreement makes clear that the Israeli defense industry is still finding considerable demand abroad.`\
-https://www.nytimes.com/2026/08/31/world/middleeast/israel-greece-defense-deal.html
-
-**What to Know About the Grand Canyon Flooding**\
-`The bodies of at least two people were found and more than a dozen were missing. Further storms could hinder rescue efforts on Monday.`\
-https://www.nytimes.com/2026/08/31/us/grand-canyon-flash-floods.html
 

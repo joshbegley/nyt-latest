@@ -1,3 +1,15 @@
+**Familias de exiliados cubanos pierden la demanda contra Expedia**\
+`Un jurado en Florida determinó que, en su demanda contra la empresa de reservas de viajes, quienes reclamaban no habían logrado demostrar la titularidad de propiedades turísticas en Cuba.`\
+https://www.nytimes.com/es/2026/08/31/espanol/america-latina/expedia-gana-demanda-cuba.html
+
+**How Dansaekhwa Has Shaped Frieze Seoul**\
+`The traditional South Korean style will be on full display at the fair, as will be many others that grew alongside it.`\
+https://www.nytimes.com/2026/08/31/arts/design/dansaekhwa-examples-frieze-seoul.html
+
+**Tupac Shakur Murder Trial Updates: Man Found Guilty in Rap Star’s Killing**\
+`Duane Keith Davis was charged with orchestrating the 1996 drive-by shooting that killed Mr. Shakur, a rapper at the height of his popularity. Prosecutors cited portions of Mr. Davis’s disavowed memoir.`\
+https://www.nytimes.com/live/2026/08/31/arts/tupac-murder-trial-verdict-duane-davis
+
 **Tupac Shakur Was at His Cultural Peak When He Was Killed**\
 `Shortly before he was murdered in 1996, the rapper had released “All Eyez on Me,” a landmark album that turned him into a superstar.`\
 https://www.nytimes.com/2026/08/31/arts/music/tupac-shakur-murder.html
