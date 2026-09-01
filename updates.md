@@ -1,3 +1,11 @@
+**Respuestas a tus preguntas sobre Irán**\
+`En esta ocasión le damos la palabra a reporteros que cubren diplomacia, la Casa Blanca, Medio Oriente y más.`\
+https://www.nytimes.com/es/2026/09/01/espanol/mundo/respuestas-preguntas-iran.html
+
+**U.S. Sanctions on Iran Cut Off Students From Tests Needed for Study Abroad**\
+`The latest measures have forced the cancellation of English proficiency and graduate exams, isolating many Iranians most eager to foster ties with the world.`\
+https://www.nytimes.com/2026/09/01/world/middleeast/iran-study-abroad-sanctions.html
+
 **Submit Your Story to Missed Connections**\
 `We want to know about your class crushes, your friend crushes and the meet-cutes you have on campus.`\
 https://www.nytimes.com/2026/09/01/briefing/submit-your-story-to-missed-connections.html
