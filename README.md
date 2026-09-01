@@ -1,5 +1,5 @@
-**Ex-Girlfriend of Texas Oil Tycoon Seeks Settlement After Breakup**\
-`Oona O. Sperr, a New York interior designer, believes her longtime partner, the billionaire Sid Bass, owes her after he walked back promises of financial support.`\
+**Ex-Girlfriend of Thrice-Married Billionaire Sues Over ‘Broken Promises’**\
+`Oona O. Sperr, a New York interior designer, believes her longtime partner, the Texas oil tycoon Sid Bass, owes her after he walked back offers of financial support.`\
 https://www.nytimes.com/2026/09/01/nyregion/sid-bass-divorce-settlement.html
 
 **EE. UU. quiere extraer más petróleo de Venezuela. Esto es lo que hay que saber**\

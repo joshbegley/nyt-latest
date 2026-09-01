@@ -1,3 +1,7 @@
+**Tropical Storm Edouard Grows Stronger as it Nears Texas and Louisiana Coastline**\
+`The storm made  landfall near the Texas and Louisiana state line on Tuesday afternoon.`\
+https://www.nytimes.com/2026/09/01/weather/tropical-storm-edouard-texas-louisiana.html
+
 **Ex-Girlfriend of Texas Oil Tycoon Seeks Settlement After Breakup**\
 `Oona O. Sperr, a New York interior designer, believes her longtime partner, the billionaire Sid Bass, owes her after he walked back promises of financial support.`\
 https://www.nytimes.com/2026/09/01/nyregion/sid-bass-divorce-settlement.html
