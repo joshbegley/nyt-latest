@@ -1,3 +1,7 @@
+**Whistle-Blower Says USPS Is Secretly Proceeding on Trump’s Mail Voting Plan Before Midterms**\
+`A report detailed “grave concerns” that a new system being rushed into use by the U.S. Postal Service could imperil millions of mail ballots ahead of the midterm elections.`\
+https://www.nytimes.com/2026/09/01/us/politics/whistle-blower-voting-by-mail.html
+
 **Keir Starmer, Former UK Prime Minister, Says He Will Resign From Parliament**\
 `Keir Starmer, who was pushed out of Downing Street by his party, said he would quit his parliamentary seat to focus on international affairs and defense.`\
 https://www.nytimes.com/2026/09/01/world/europe/keir-starmer-uk-prime-minister-resigns-mp.html
