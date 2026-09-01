@@ -1,3 +1,19 @@
+**Tupac Shakur Was at His Cultural Peak When He Was Killed**\
+`Shortly before he was murdered in 1996, the rapper had released “All Eyez on Me,” a landmark album that turned him into a superstar.`\
+https://www.nytimes.com/2026/08/31/arts/music/tupac-shakur-murder.html
+
+**Dansaekhwa Is a Style That Came to Define Korean Art**\
+`The soothing tones of Dansaekhwa have dominated art circles on the peninsula for years. But it originated in tumultuous times.`\
+https://www.nytimes.com/2026/08/31/arts/design/dansaekhwa-korean-art.html
+
+**Cubism Exhibition at Centre Pompidou Hanwha in Seoul**\
+`In a partnership with the Pompidou Center in Paris, a new institution showcases modern art from Europe and Asia.`\
+https://www.nytimes.com/2026/08/31/arts/cubism-pompidou-hanwha-seoul.html
+
+**Wendell Berry, Writer Who Extolled America’s Agrarian Past, Dies at 92**\
+`A Kentucky farmer, he railed against agribusiness and championed small family farms and the environment, winning widespread acclaim.`\
+https://www.nytimes.com/2026/08/31/us/wendell-berry-dead.html
+
 **Donald Trump Jr.’s Firm Leads $1 Billion Funding Round for Polymarket**\
 `The new round values the prediction market at $21 billion, up from $15 billion. Mr. Trump’s firm, 1789 Capital, will invest around $300 million.`\
 https://www.nytimes.com/2026/08/31/business/polymarket-funding-trump.html
