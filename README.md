@@ -1,3 +1,7 @@
+**Tupac Shakur Murder Trial Updates: Jury Reaches Verdict in Rap Star’s Killing**\
+`Duane Keith Davis was charged with orchestrating the 1996 drive-by shooting that killed Mr. Shakur, a rapper at the height of his popularity. Prosecutors cited portions of Mr. Davis’s disavowed memoir.`\
+https://www.nytimes.com/live/2026/08/31/arts/tupac-murder-trial-verdict-duane-davis
+
 **Trump Renews Push for Federal Film Tax Credit**\
 `Proponents say a federal program could bring back Hollywood jobs that have gone overseas because of cheap labor and large incentives.`\
 https://www.nytimes.com/2026/08/31/movies/hollywood-federal-tax-credit-trump.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/31/nyregion/day-care-funding-nyc-mamdani.html
 **Lionel Messi’s Retirement From Soccer Sparks Heartbreak Across Argentina**\
 `Lionel Messi’s retirement from the national soccer team, though widely expected, sparked fears of a diminished squad, and heartbreak over the departure of a national icon.`\
 https://www.nytimes.com/2026/08/31/world/americas/lionel-messi-retirement-soccer-argentina.html
-
-**Luxury Berkshires Hotel Could Become a Single-Family Home**\
-`The future of Wheatleigh, a Gilded Age mansion and luxury hotel in the Berkshires on the market for $14.5 million, depends on who buys it — and when.`\
-https://www.nytimes.com/2026/08/31/realestate/wheatleigh-gilded-age-hotel-tanglewood.html
 

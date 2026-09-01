@@ -1,3 +1,7 @@
+**Trump Renews Push for Federal Film Tax Credit**\
+`Proponents say a federal program could bring back Hollywood jobs that have gone overseas because of cheap labor and large incentives.`\
+https://www.nytimes.com/2026/08/31/movies/hollywood-federal-tax-credit-trump.html
+
 **Trump Mocks Data-Center Opponents as Wanting to Stay ‘Backwards and Poor’**\
 `The giant computing sites that power A.I. are increasingly opposed by communities across the country, a signal of voters’ concern about a changing economy.`\
 https://www.nytimes.com/2026/08/31/us/politics/trump-data-centers.html

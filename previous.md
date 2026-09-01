@@ -1,3 +1,7 @@
+**Trump Renews Push for Federal Film Tax Credit**\
+`Proponents say a federal program could bring back Hollywood jobs that have gone overseas because of cheap labor and large incentives.`\
+https://www.nytimes.com/2026/08/31/movies/hollywood-federal-tax-credit-trump.html
+
 **Trump Mocks Data-Center Opponents as Wanting to Stay ‘Backwards and Poor’**\
 `The giant computing sites that power A.I. are increasingly opposed by communities across the country, a signal of voters’ concern about a changing economy.`\
 https://www.nytimes.com/2026/08/31/us/politics/trump-data-centers.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/08/31/world/americas/lionel-messi-retirement-soccer
 **Luxury Berkshires Hotel Could Become a Single-Family Home**\
 `The future of Wheatleigh, a Gilded Age mansion and luxury hotel in the Berkshires on the market for $14.5 million, depends on who buys it — and when.`\
 https://www.nytimes.com/2026/08/31/realestate/wheatleigh-gilded-age-hotel-tanglewood.html
-
-**Ella Langley’s ‘Choosin’ Texas’ Breaks Record With 20th Week at No. 1**\
-`The singer-songwriter set the record for a non-holiday song, topping the Hot 100 in a week that saw country hits dominate and Dolly Parton’s return.`\
-https://www.nytimes.com/2026/08/31/arts/music/ella-langley-choosin-texas-record.html
 
