@@ -1,3 +1,39 @@
+**Book Review: ‘53 Days,’ by Timothy W. Ryback**\
+`In “53 Days,” the historian Timothy W. Ryback shows how the Nazis used democratic means to destroy German democracy.`\
+https://www.nytimes.com/2026/09/01/books/review/53-days-timothy-ryback.html
+
+**Word of the Day: omnivorous**\
+`This word has appeared in 25 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/09/01/learning/word-of-the-day-omnivorous.html
+
+**The Political Power of Christian Kitsch**\
+`Precious Moments figurines and Christian romance novels aren’t overtly political, but they shape how Christian women see themselves and the world.`\
+https://www.nytimes.com/2026/09/01/opinion/christian-women-voting-culture.html
+
+**Adult Swim 25th Anniversary: 6 Defining Animated Shows**\
+`For 25 years, it’s been an outpost for unhinged mayhem. These six signature shows helped turn low-budget TV into a surreal comedy powerhouse.`\
+https://www.nytimes.com/2026/09/01/arts/television/adult-swim-anniversary-best-shows.html
+
+**Can Ancient Ruins Be Protected From Wildfires? Greece Is Trying.**\
+`As blazes surge across Europe, the country is making a trade-off to protect its heritage by fireproofing sites at the risk of spoiling the surrounding landscape.`\
+https://www.nytimes.com/2026/09/01/world/europe/greece-wildfires-ancient-sites.html
+
+**A Factory in Rural Ireland Is at the Center of a Dispute Over Russia**\
+`Alumina processed at a refinery in County Limerick may be feeding Russia’s war in Ukraine, an investigation suggested. There is little agreement on what to do about it.`\
+https://www.nytimes.com/2026/09/01/world/europe/ireland-alumina-aughinish-plant-russia.html
+
+**Book Review: ‘American Scoundrel,’ by Kai Bird**\
+`“American Scoundrel” traces the career of Roy Cohn, whose smash-mouth politics continue to shape our own.`\
+https://www.nytimes.com/2026/09/01/books/review/american-scoundrel-kai-bird-susan-goldmark.html
+
+**At 70, Yo-Yo Ma Is Modeling a Way to Be in the World Today**\
+`With a global audience, Ma models a way of being that goes against the grain of cynicism, polarization and isolation. It’s up to us to pay attention.`\
+https://www.nytimes.com/2026/09/01/arts/music/yo-yo-ma-profile.html
+
+**How the Supreme Court Locks Away Its Own History**\
+`After Justice Scalia died, the justices held private negotiations about locking away their papers. We may not see the ultimate record of the Roberts court for decades.`\
+https://www.nytimes.com/2026/09/01/us/politics/supreme-court-internal-records-sealed.html
+
 **Algunas infecciones transmitidas por la comida pueden causar problemas intestinales por meses**\
 `El brote de Cyclospora podría resultar en un aumento de casos de síndrome del intestino irritable posinfeccioso.`\
 https://www.nytimes.com/es/2026/09/01/espanol/ciclospora-infecciones-problemas-intestinales.html
@@ -161,40 +197,4 @@ https://www.nytimes.com/2026/08/31/world/americas/expedia-cuba-exiles-suit.html
 **JD Vance Called Michigan Senate Candidate Abdul El-Sayed ‘Evil’ in Speech**\
 `Vice President JD Vance also told Dr. Abdul El-Sayed, Michigan’s Democratic Senate nominee, to “keep my wife’s name out of your mouth.”`\
 https://www.nytimes.com/2026/08/31/us/politics/vance-el-sayed-michigan-speech.html
-
-**C.D.C. Director Challenges Pennsylvania’s Report of Two Measles Deaths**\
-`Questioning a state’s investigation is highly unusual for the public health agency, but reflects tensions between the Trump administration and many states over health issues.`\
-https://www.nytimes.com/2026/08/31/health/measles-deaths-pennsylvania-schwartz-kennedy-shapiro.html
-
-**Scott Brown Was a GOP Star. Will It Matter in the New Hampshire Senate Race?**\
-`Scott Brown is chasing the political limelight again with a seemingly improvised Senate campaign.`\
-https://www.nytimes.com/2026/08/31/us/politics/new-hampshire-senate-scott-brown.html
-
-**Mansour Abbas Recruits Yoav Segalovitz to Join Raam Party in Israeli Election**\
-`Mansour Abbas has recruited a Jewish lawmaker best known for reducing the crime rate in Arab cities. Could that be enough to get Mr. Abbas a seat in the next government?`\
-https://www.nytimes.com/2026/08/31/world/middleeast/israel-raam-recruits-zionist.html
-
-**Smithsonian to Put Latino Museum in Existing Building It Controls**\
-`Its board voted to house the museum in the institution’s Arts and Industries Building on the National Mall, rather than build on a site owned by the National Park Service.`\
-https://www.nytimes.com/2026/08/31/arts/design/smithsonian-latino-museum-arts-industries.html
-
-**Phantom Island Mysteriously Appears, Then Vanishes on B.C. Reservoir**\
-`Officials first thought it was just an A.I. ruse, until they checked satellite images of northern British Columbia. The mystery deepened, and on Monday the island was located.`\
-https://www.nytimes.com/2026/08/31/world/canada/missing-island-canada-williston-reservoir.html
-
-**Woman Stabs 2, Killing One, in Times Square and Is Shot Dead by N.Y.P.D.**\
-`The police fired at the woman, who was holding two knives, after trying to use less lethal force, officials said. A woman, 32, was killed, and a man, 68, is in stable condition.`\
-https://www.nytimes.com/2026/08/31/nyregion/times-square-subway-stabbing-nypd-shooting.html
-
-**Supreme Court Allows White House Ballroom Construction to Continue**\
-`Also, a principal helped save 900 children in Nepal. Here’s the latest at the end of Monday.`\
-https://www.nytimes.com/2026/08/31/briefing/supreme-court-trump-ballroom-met-gala.html
-
-**Mel Gibson Apologizes After Mocking Sign Language Interpreter Onstage**\
-`The actor waved his hands in what seemed to be a derisive gesture while appearing at a fan event in Toronto over the weekend.`\
-https://www.nytimes.com/2026/08/31/movies/mel-gibson-sign-language-apology.html
-
-**Closing Arguments at Tupac Shakur Murder Trial Focused on Suspect’s Statements**\
-`Duane Keith Davis was accused of orchestrating the drive-by shooting of the rapper in Las Vegas in 1996.`\
-https://www.nytimes.com/2026/08/31/arts/music/tupac-shakur-murder-trial-jury-deliberations.html
 

@@ -1,3 +1,11 @@
+**Algunas infecciones transmitidas por la comida pueden causar problemas intestinales por meses**\
+`El brote de Cyclospora podría resultar en un aumento de casos de síndrome del intestino irritable posinfeccioso.`\
+https://www.nytimes.com/es/2026/09/01/espanol/ciclospora-infecciones-problemas-intestinales.html
+
+**China or the U.S.? Two Meetings Offer Competing Showcases of Global Power.**\
+`As Xi Jinping gathered with the leaders of Russia and Iran, Europe challenged the Trump administration at the G20, offering a split-screen view of a changing world.`\
+https://www.nytimes.com/2026/09/01/world/asia/g20-meeting-china-trump-bishkek.html
+
 **La recuperación de las lesiones de algunos atletas es buen contenido para sus redes sociales**\
 `El regreso tras una lesión se ha convertido en otra experiencia que los deportistas empaquetan, pulen y comparten en línea.`\
 https://www.nytimes.com/es/2026/09/01/espanol/recuperacion-lesiones-redes-sociales.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/08/31/movies/mel-gibson-sign-language-apology.html
 **Closing Arguments at Tupac Shakur Murder Trial Focused on Suspect’s Statements**\
 `Duane Keith Davis was accused of orchestrating the drive-by shooting of the rapper in Las Vegas in 1996.`\
 https://www.nytimes.com/2026/08/31/arts/music/tupac-shakur-murder-trial-jury-deliberations.html
-
-**U.S. Strikes May Have Targeted a New Type of Iranian Naval Mine**\
-`The U.S. military said its attacks against Iran were in response to a threat to the Strait of Hormuz.`\
-https://www.nytimes.com/2026/08/31/us/politics/us-strikes-iran-new-naval-mine.html
-
-**Teen Charged With Murder After Livestreaming San Diego Mosque Shooting**\
-`The authorities said the 17-year-old from North Carolina had recorded the attack, which killed three people in May. “She ran with the pack — she shared in the kill,” the district attorney said.`\
-https://www.nytimes.com/2026/08/31/us/san-diego-mosque-shooting-livestream-murder-charge.html
 
