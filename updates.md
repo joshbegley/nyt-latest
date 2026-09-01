@@ -1,3 +1,11 @@
+**He Made a Bag to Match Your Jeans**\
+`Gen Z is still in love with the purses Reed Krakoff made for Coach in the 1990s. Can he get them to covet a bag from the Gap?`\
+https://www.nytimes.com/2026/09/01/style/reed-krakoff-gap-bags-coach.html
+
+**Street Style Look of the Week: Vintage Men’s Wear That Gets ‘More Respect’**\
+`We intercepted a couple in Copenhagen en route to a party celebrating vintage dress. For one of them, it was a brand-new experience.`\
+https://www.nytimes.com/2026/09/01/style/street-style-look-vintage-mens-wear.html
+
 **Whistle-Blower Says USPS Is Secretly Proceeding on Trump’s Mail Voting Plan Before Midterms**\
 `A report detailed “grave concerns” that a new system being rushed into use by the U.S. Postal Service could imperil millions of mail ballots ahead of the midterm elections.`\
 https://www.nytimes.com/2026/09/01/us/politics/whistle-blower-voting-by-mail.html
