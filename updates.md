@@ -1,3 +1,11 @@
+**A Busy Hurricane Season Just Got Even Busier in the Pacific**\
+`Three storms, spurred on by El Niño, are inching closer to Hawaii. Could one of them even affect California this weekend?`\
+https://www.nytimes.com/2026/09/01/weather/california-hawaii-hurricanes-karina-lowell-marie.html
+
+**Restaurant Review: Cleo in New York**\
+`The West Village critic’s pick rubs its bird with a warming Lebanese spice blend — and don’t forget the crinkle-cut fries.`\
+https://www.nytimes.com/2026/09/01/dining/restaurant-review-cleo-nyc.html
+
 **Introducing Our New, Bite-Size Daily Lesson Plans**\
 `Every school day you’ll find a new lesson idea, that can be used as a quick warm-up or extended over a full class period. Over each week, we’ll target ELA, social studies, STEM, the arts and media literacy.`\
 https://www.nytimes.com/2026/09/01/learning/introducing-our-new-bite-size-daily-lesson-plans.html
