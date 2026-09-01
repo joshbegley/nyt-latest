@@ -1,3 +1,7 @@
+**Did the Met Just Cancel the Wrong Fashionista?**\
+`With John Galliano, Anna Wintour cannot seem to separate the man from his work.`\
+https://www.nytimes.com/2026/09/01/opinion/met-gala-anna-wintour-john-galliano.html
+
 **Talking With Giorgia Meloni**\
 `In an interview, Italy’s hard-right leader reveals how pragmatism is reshaping her vision for Europe.`\
 https://www.nytimes.com/2026/09/01/world/giorgia-meloni-interview-bonds-iran.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/01/world/asia/nepal-floods-tibet-aid-relief-how-
 **How THC Edibles Can Affect Your Driving**\
 `The study, one of the first to examine how edibles affect driving, tested impairment after various doses of cannabis gummies.`\
 https://www.nytimes.com/2026/09/01/well/thc-gummies-edibles-driving.html
-
-**Today, In Short**\
-`Olivia Rodrigo. “Love Island USA.” And sharks.`\
-https://www.nytimes.com/2026/09/01/briefing/today-in-short.html
 

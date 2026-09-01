@@ -1,3 +1,7 @@
+**Did the Met Just Cancel the Wrong Fashionista?**\
+`With John Galliano, Anna Wintour cannot seem to separate the man from his work.`\
+https://www.nytimes.com/2026/09/01/opinion/met-gala-anna-wintour-john-galliano.html
+
 **Talking With Giorgia Meloni**\
 `In an interview, Italy’s hard-right leader reveals how pragmatism is reshaping her vision for Europe.`\
 https://www.nytimes.com/2026/09/01/world/giorgia-meloni-interview-bonds-iran.html
