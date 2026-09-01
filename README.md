@@ -1,3 +1,11 @@
+**Cubism Exhibition at Centre Pompidou Hanwha in Seoul**\
+`In a partnership with the Pompidou Center in Paris, a new institution showcases modern art from Europe and Asia.`\
+https://www.nytimes.com/2026/08/31/arts/cubism-pompidou-hanwha-seoul.html
+
+**Wendell Berry, Writer Who Extolled America’s Agrarian Past, Dies at 92**\
+`A Kentucky farmer, he railed against agribusiness and championed small family farms and the environment, winning widespread acclaim.`\
+https://www.nytimes.com/2026/08/31/us/wendell-berry-dead.html
+
 **Donald Trump Jr.’s Firm Leads $1 Billion Funding Round for Polymarket**\
 `The new round values the prediction market at $21 billion, up from $15 billion. Mr. Trump’s firm, 1789 Capital, will invest around $300 million.`\
 https://www.nytimes.com/2026/08/31/business/polymarket-funding-trump.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/video/theater/100000011066016/the-hypebeasts-of-the-frin
 **Messi se retira de la selección argentina**\
 `El retiro de Lionel Messi de la selección nacional de fútbol, aunque se esperaba, desató temores de un equipo disminuido y el desconsuelo por la partida de un ícono nacional.`\
 https://www.nytimes.com/es/2026/08/31/espanol/america-latina/messi-retira-seleccion-argentina.html
-
-**Meta Does the Bare Minimum for Teen Safety**\
-`On the heels of a string of court cases and a recent settlement, Meta has announced enhanced protections for teens and is reportedly taking out a full-page ad calling on other social media companies to join it.`\
-https://www.nytimes.com/video/podcasts/100000011123958/meta-does-the-bare-minimum-for-teen-safety.html
-
-**Day Cares Will Get Funds to Open in Time for School, Mamdani Says**\
-`Mr. Mamdani and Kamar Samuels, the chancellor of the city’s schools, made the announcement after some providers told The New York Times they had no money to open on the first day of school.`\
-https://www.nytimes.com/2026/08/31/nyregion/day-care-funding-nyc-mamdani.html
 
