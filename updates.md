@@ -1,3 +1,11 @@
+**EE. UU. quiere extraer más petróleo de Venezuela. Esto es lo que hay que saber**\
+`El acuerdo del gobierno de Trump con una petrolera privada para aumentar la producción de petróleo en el país sudamericano podría tardar muchos años en rendir frutos.`\
+https://www.nytimes.com/es/2026/09/01/espanol/negocios/venezuela-estados-unidos-petroleo-reservas.html
+
+**U.S. Strikes Iran Over Strait of Hormuz Mines, Trump Says**\
+`U.S. Central Command did not say precisely what it was trying to destroy in Iran, but it said the attacks were aimed at Iran’s Islamic Revolutionary Guards Corps.`\
+https://www.nytimes.com/2026/09/01/us/politics/us-launches-air-strikes-iran.html
+
 **Nepal’s Economy Has Few Ways to Absorb the Cost of Flood Damage**\
 `The country’s government estimates that the recent catastrophic floods caused $5 billion in damage. That’s one-tenth of Nepal’s entire economy.`\
 https://www.nytimes.com/2026/09/01/world/asia/nepal-floods-economy.html
