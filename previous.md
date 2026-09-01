@@ -1,8 +1,12 @@
+**Submit Your Story to Missed Connections**\
+`We want to know about your class crushes, your friend crushes and the meet-cutes you have on campus.`\
+https://www.nytimes.com/2026/09/01/briefing/submit-your-story-to-missed-connections.html
+
 **Global Bond Sell-Off Puts Investors on Edge**\
 `Government borrowing costs are hitting multi-decade highs around the world, reflecting anxiety about debt levels, deficits and inflation.`\
 https://www.nytimes.com/2026/09/01/business/bond-yields-debt.html
 
-**Punishment and Silence: China Pulls Out the Disaster Playbook in Tibet**\
+**China Censors and Punishes to Shape Narrative on Floods in Tibet, a Contrast to Nepal**\
 `While journalists can report freely on grief and anger in Nepal, China’s official media have presented a sanitized disaster aftermath in Tibet.`\
 https://www.nytimes.com/2026/09/01/world/asia/china-tibet-floods-nepal-censorship.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/01/world/europe/greece-wildfires-ancient-sites.h
 **A Factory in Rural Ireland Is at the Center of a Dispute Over Russia**\
 `Alumina processed at a refinery in County Limerick may be feeding Russia’s war in Ukraine, an investigation suggested. There is little agreement on what to do about it.`\
 https://www.nytimes.com/2026/09/01/world/europe/ireland-alumina-aughinish-plant-russia.html
-
-**Book Review: ‘American Scoundrel,’ by Kai Bird**\
-`“American Scoundrel” traces the career of Roy Cohn, whose smash-mouth politics continue to shape our own.`\
-https://www.nytimes.com/2026/09/01/books/review/american-scoundrel-kai-bird-susan-goldmark.html
 
