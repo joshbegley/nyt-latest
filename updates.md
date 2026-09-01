@@ -1,3 +1,7 @@
+**Talking With Giorgia Meloni**\
+`In an interview, Italy’s hard-right leader reveals how pragmatism is reshaping her vision for Europe.`\
+https://www.nytimes.com/2026/09/01/world/giorgia-meloni-interview-bonds-iran.html
+
 **A Busy Hurricane Season Just Got Even Busier in the Pacific**\
 `Three storms, spurred on by El Niño, are inching closer to Hawaii. Could one of them even affect California this weekend?`\
 https://www.nytimes.com/2026/09/01/weather/california-hawaii-hurricanes-karina-lowell-marie.html
