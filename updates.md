@@ -1,3 +1,31 @@
+**Was John Galliano Ever Really Canceled? Not by the Fashion Crowd.**\
+`This may be the end of the Costume Institute’s John Galliano exhibition, but it’s not likely to be the end of his career.`\
+https://www.nytimes.com/2026/09/01/style/john-galliano-dior-margiela-met.html
+
+**Kirbee’s Brings Texas BBQ Smoke and Green Spaghetti to Brooklyn**\
+`Faux opens with George McNally at the helm, Evelyn Bar & Kitchen debuts from the longtime manager of the Full Shilling and more restaurant news.`\
+https://www.nytimes.com/2026/09/01/dining/nyc-restaurant-news.html
+
+**U.S. Will ‘Economically Asphyxiate’ Iranian Regime, Bessent Says**\
+`Speaking on the sidelines of the G20 summit, U.S. Treasury Secretary Scott Bessent expressed optimism that the European Union, Britain and the United Arab Emirates were prepared to join the U.S. in suffocating Iran’s economy.`\
+https://www.nytimes.com/video/us/politics/100000011125462/us-will-economically-asphyxiate-iranian-regime-bessent-says.html
+
+**Map Apps Are All Handling ‘Lake America’ Differently**\
+`Navigation companies face a new dilemma after President Trump ordered Lake Ontario to be renamed Lake America.`\
+https://www.nytimes.com/2026/09/01/us/lake-ontario-america-name-apple-maps-mapquest.html
+
+**Husband and 12 Men in Britain Are Accused of Woman’s Yearslong Drugging and Rape**\
+`Prosecutors said that the man, in his 60s, drugged and abused his wife while she was unconscious, alongside a dozen other men aged 28 to 73.`\
+https://www.nytimes.com/2026/09/01/world/europe/manchester-uk-trial-husband-rape-abuse.html
+
+**The Genius of Yayoi Kusama in Three Works**\
+`Marking the artist’s death, and ahead of a retrospective at Amsterdam’s Stedelijk Museum, a critic chooses epic works that highlight Kusama’s creative range and impact.`\
+https://www.nytimes.com/interactive/2026/09/01/arts/yayoi-kusama-art-pieces.html
+
+**Cancel the Met Gala Instead**\
+`The Met shouldn’t have canceled the Galliano exhibition.`\
+https://www.nytimes.com/2026/09/01/opinion/culture/john-galliano-met-exhibition.html
+
 **The Met Shouldn’t Have Canceled the Galliano Exhibition**\
 `Cancel the Met Gala instead.`\
 https://www.nytimes.com/2026/09/01/opinion/culture/john-galliano-met-exhibition.html

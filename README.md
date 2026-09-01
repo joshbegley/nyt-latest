@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/09/01/dining/nyc-restaurant-news.html
 `Speaking on the sidelines of the G20 summit, U.S. Treasury Secretary Scott Bessent expressed optimism that the European Union, Britain and the United Arab Emirates were prepared to join the U.S. in suffocating Iran’s economy.`\
 https://www.nytimes.com/video/us/politics/100000011125462/us-will-economically-asphyxiate-iranian-regime-bessent-says.html
 
-**Map Apps Are All Handling ‘Lake America’ Differently**\
+**Map Apps Are Handling Trump’s Renaming of Lake Ontario to Lake America Differently**\
 `Navigation companies face a new dilemma after President Trump ordered Lake Ontario to be renamed Lake America.`\
 https://www.nytimes.com/2026/09/01/us/lake-ontario-america-name-apple-maps-mapquest.html
 
