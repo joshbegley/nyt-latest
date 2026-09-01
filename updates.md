@@ -1,3 +1,7 @@
+**Ex-Girlfriend of Texas Oil Tycoon Seeks Settlement After Breakup**\
+`Oona O. Sperr, a New York interior designer, believes her longtime partner, the billionaire Sid Bass, owes her after he walked back promises of financial support.`\
+https://www.nytimes.com/2026/09/01/nyregion/sid-bass-divorce-settlement.html
+
 **EE. UU. quiere extraer más petróleo de Venezuela. Esto es lo que hay que saber**\
 `El acuerdo del gobierno de Trump con una petrolera privada para aumentar la producción de petróleo en el país sudamericano podría tardar muchos años en rendir frutos.`\
 https://www.nytimes.com/es/2026/09/01/espanol/negocios/venezuela-estados-unidos-petroleo-reservas.html

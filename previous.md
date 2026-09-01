@@ -1,3 +1,7 @@
+**Ex-Girlfriend of Texas Oil Tycoon Seeks Settlement After Breakup**\
+`Oona O. Sperr, a New York interior designer, believes her longtime partner, the billionaire Sid Bass, owes her after he walked back promises of financial support.`\
+https://www.nytimes.com/2026/09/01/nyregion/sid-bass-divorce-settlement.html
+
 **EE. UU. quiere extraer más petróleo de Venezuela. Esto es lo que hay que saber**\
 `El acuerdo del gobierno de Trump con una petrolera privada para aumentar la producción de petróleo en el país sudamericano podría tardar muchos años en rendir frutos.`\
 https://www.nytimes.com/es/2026/09/01/espanol/negocios/venezuela-estados-unidos-petroleo-reservas.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusett
 **Massachusetts Second Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Massachusetts primary election.`\
 https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-us-house-2-primary.html
-
-**Massachusetts Seventh Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Massachusetts primary election.`\
-https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-us-house-7-primary.html
 
