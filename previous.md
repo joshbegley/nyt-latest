@@ -1,3 +1,7 @@
+**Despite Duane Davis’s Conviction in Tupac Murder Trial, Some Still Seek Closure**\
+`When a man was found guilty of orchestrating the murder of Tupac Shakur, it brought catharsis to many who knew the rapper. But questions remain even after the trial.`\
+https://www.nytimes.com/2026/09/01/arts/music/tupac-murder-duane-davis-keffe-d.html
+
 **Justice Department Sues Kansas City Schools Over Gender Policy**\
 `In the first such lawsuit, the Trump administration accused the district of hiding students’ gender transition from their parents against federal law.`\
 https://www.nytimes.com/2026/09/01/us/politics/transgender-kansas-doj-lawsuit.html
@@ -191,10 +195,6 @@ https://www.nytimes.com/2026/09/01/style/john-galliano-dior-margiela-met.html
 https://www.nytimes.com/2026/09/01/dining/nyc-restaurant-news.html
 
 **U.S. Will ‘Economically Asphyxiate’ Iranian Regime, Bessent Says**\
-`Speaking on the sidelines of the G20 summit, U.S. Treasury Secretary Scott Bessent expressed optimism that the European Union, Britain and the United Arab Emirates were prepared to join the U.S. in suffocating Iran’s economy.`\
+`Speaking on the sidelines of the G20 meeting, U.S. Treasury Secretary Scott Bessent expressed optimism that the European Union, Britain and the United Arab Emirates were prepared to join the U.S. in suffocating Iran’s economy.`\
 https://www.nytimes.com/video/us/politics/100000011125462/us-will-economically-asphyxiate-iranian-regime-bessent-says.html
-
-**Map Apps Are Handling Trump’s Renaming of Lake Ontario to Lake America Differently**\
-`Navigation companies face a new dilemma after President Trump ordered Lake Ontario to be renamed Lake America.`\
-https://www.nytimes.com/2026/09/01/us/lake-ontario-america-name-apple-maps-mapquest.html
 

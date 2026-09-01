@@ -1,3 +1,7 @@
+**Joint Chiefs Chairman Says Military Has ‘No Plans’ to Send Troops to the Polls**\
+`Gen. Dan Caine, President Trump’s top military adviser, appeared to renounce the possibility of the military interfering in the 2026 midterms.`\
+https://www.nytimes.com/2026/09/01/us/politics/caine-military-elections.html
+
 **Despite Duane Davis’s Conviction in Tupac Murder Trial, Some Still Seek Closure**\
 `When a man was found guilty of orchestrating the murder of Tupac Shakur, it brought catharsis to many who knew the rapper. But questions remain even after the trial.`\
 https://www.nytimes.com/2026/09/01/arts/music/tupac-murder-duane-davis-keffe-d.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/01/style/john-galliano-dior-margiela-met.html
 **Kirbee’s Brings Texas BBQ Smoke and Green Spaghetti to Brooklyn**\
 `Faux opens with George McNally at the helm, Evelyn Bar & Kitchen debuts from the longtime manager of the Full Shilling and more restaurant news.`\
 https://www.nytimes.com/2026/09/01/dining/nyc-restaurant-news.html
-
-**U.S. Will ‘Economically Asphyxiate’ Iranian Regime, Bessent Says**\
-`Speaking on the sidelines of the G20 meeting, U.S. Treasury Secretary Scott Bessent expressed optimism that the European Union, Britain and the United Arab Emirates were prepared to join the U.S. in suffocating Iran’s economy.`\
-https://www.nytimes.com/video/us/politics/100000011125462/us-will-economically-asphyxiate-iranian-regime-bessent-says.html
 

@@ -1,3 +1,11 @@
+**Despite Duane Davis’s Conviction in Tupac Murder Trial, Some Still Seek Closure**\
+`When a man was found guilty of orchestrating the murder of Tupac Shakur, it brought catharsis to many who knew the rapper. But questions remain even after the trial.`\
+https://www.nytimes.com/2026/09/01/arts/music/tupac-murder-duane-davis-keffe-d.html
+
+**U.S. Will ‘Economically Asphyxiate’ Iranian Regime, Bessent Says**\
+`Speaking on the sidelines of the G20 meeting, U.S. Treasury Secretary Scott Bessent expressed optimism that the European Union, Britain and the United Arab Emirates were prepared to join the U.S. in suffocating Iran’s economy.`\
+https://www.nytimes.com/video/us/politics/100000011125462/us-will-economically-asphyxiate-iranian-regime-bessent-says.html
+
 **At G20 Summit, Some U.S. Allies Push Back on Trump’s Economic Approach**\
 `At a summit meant to showcase President Trump’s economic policies as a model for the world, Europeans complained about tariffs and the war with Iran.`\
 https://www.nytimes.com/2026/09/01/world/europe/g20-bessent-trump-allies.html
