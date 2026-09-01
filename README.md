@@ -1,3 +1,7 @@
+**Submit Your Outfits to Fit Check**\
+`We want to know what you’re wearing to class, parties and everything in between. Send us your best looks.`\
+https://www.nytimes.com/2026/09/01/briefing/submit-your-outfits-to-fit-check.html
+
 **He Made a Bag to Match Your Jeans**\
 `Gen Z is still in love with the purses Reed Krakoff made for Coach in the 1990s. Can he get them to covet a bag from the Gap?`\
 https://www.nytimes.com/2026/09/01/style/reed-krakoff-gap-bags-coach.html
@@ -19,7 +23,7 @@ https://www.nytimes.com/es/2026/09/01/espanol/mundo/respuestas-preguntas-iran.ht
 https://www.nytimes.com/2026/09/01/briefing/submit-your-story-to-missed-connections.html
 
 **Global Bond Sell-Off Puts Investors on Edge**\
-`Government borrowing costs are hitting multi-decade highs around the world, reflecting anxiety about debt levels, deficits and inflation.`\
+`Government borrowing costs are hitting multidecade highs around the world, reflecting anxiety about debt levels, deficits and inflation.`\
 https://www.nytimes.com/2026/09/01/business/bond-yields-debt.html
 
 **China Censors and Punishes to Shape Narrative on Floods in Tibet, a Contrast to Nepal**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/01/magazine/maha-cancer-treatment-doctors-cps.ht
 **Book Review: ‘53 Days,’ by Timothy W. Ryback**\
 `In “53 Days,” the historian Timothy W. Ryback shows how the Nazis used democratic means to destroy German democracy.`\
 https://www.nytimes.com/2026/09/01/books/review/53-days-timothy-ryback.html
-
-**Word of the Day: omnivorous**\
-`This word has appeared in 25 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/09/01/learning/word-of-the-day-omnivorous.html
 
