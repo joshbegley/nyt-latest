@@ -1,5 +1,13 @@
 **The Met Shouldn’t Have Canceled the Galliano Exhibition**\
 `Cancel the Met Gala instead.`\
+https://www.nytimes.com/2026/09/01/opinion/culture/john-galliano-met-exhibition.html
+
+**At G20 Summit, Scott Bessent Says U.S. Has Support for Economic War Against Iran**\
+`The Treasury secretary is also facing pushback on the Trump administration’s trade policies at the global gathering.`\
+https://www.nytimes.com/2026/09/01/business/economy/bessent-iran-g20.html
+
+**The Met Shouldn’t Have Canceled the Galliano Exhibition**\
+`Cancel the Met Gala instead.`\
 https://www.nytimes.com/2026/09/01/opinion/culture/the-met-handled-the-galliano-fiasco-all-wrong-anna-wintour-met-gala-costume-institute-antisemitism.html
 
 **Tiroteo en Times Square: esto es lo que pasó**\

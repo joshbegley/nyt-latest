@@ -1,6 +1,6 @@
 **The Met Shouldn’t Have Canceled the Galliano Exhibition**\
 `Cancel the Met Gala instead.`\
-https://www.nytimes.com/2026/09/01/opinion/culture/the-met-handled-the-galliano-fiasco-all-wrong-anna-wintour-met-gala-costume-institute-antisemitism.html
+https://www.nytimes.com/2026/09/01/opinion/culture/john-galliano-met-exhibition.html
 
 **Tiroteo en Times Square: esto es lo que pasó**\
 `La policía le disparó a la mujer después de intentar usar fuerza menos letal, según los funcionarios. Una mujer, de 32 años, murió, y un hombre, de 68, se encuentra estable.`\
@@ -22,7 +22,7 @@ https://www.nytimes.com/2026/09/01/well/thc-gummies-edibles-driving.html
 `Olivia Rodrigo. “Love Island USA.” And sharks.`\
 https://www.nytimes.com/2026/09/01/briefing/today-in-short.html
 
-**Treasury Secretary Scott Bessent Says US Has Support for Economic War Against Iran**\
+**At G20 Summit, Scott Bessent Says U.S. Has Support for Economic War Against Iran**\
 `The Treasury secretary is also facing pushback on the Trump administration’s trade policies at the global gathering.`\
 https://www.nytimes.com/2026/09/01/business/economy/bessent-iran-g20.html
 

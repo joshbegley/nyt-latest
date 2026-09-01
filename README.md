@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011125529/01vid-bessent-assets-41494.html
+
 **The Met Shouldn’t Have Canceled the Galliano Exhibition**\
 `Cancel the Met Gala instead.`\
 https://www.nytimes.com/2026/09/01/opinion/culture/john-galliano-met-exhibition.html
@@ -10,7 +14,7 @@ https://www.nytimes.com/es/2026/09/01/espanol/estados-unidos/tiroteo-times-squar
 `To protect its waters from overexposure to nitrates, Denmark is proposing a crackdown on fertilizer use. Farmers aren’t happy.`\
 https://www.nytimes.com/2026/09/01/world/europe/denmark-farmers-protest-fertilizer.html
 
-**How to Help Nepal Flood Victims**\
+**How to Help Nepal Flash Flood Victims**\
 `More than 1,000 people have been killed in a Himalayan landslide and flooding, and thousands more are missing. Here’s how you can help.`\
 https://www.nytimes.com/2026/09/01/world/asia/nepal-floods-tibet-aid-relief-how-donate.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/01/briefing/a-fashion-disaster.html
 **Whistle-Blower Says USPS Is Secretly Proceeding on Trump’s Mail Voting Plan Before Midterms**\
 `A report detailed “grave concerns” that a new system being rushed into use by the U.S. Postal Service could imperil millions of mail ballots ahead of the midterm elections.`\
 https://www.nytimes.com/2026/09/01/us/politics/whistle-blower-voting-by-mail.html
-
-**How a Teenager Found Undiagnosed Brain Injuries in the Military**\
-`New York Times reporting found that rescue-boat crews in the Coast Guard showed signs of brain injuries from rough seas. A victim’s daughter helped bring the issue to light.`\
-https://www.nytimes.com/2026/09/01/podcasts/the-daily/brain-injuries-coast-guard.html
 
