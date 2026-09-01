@@ -1,3 +1,7 @@
+**Tras luchar por Israel, ahora ven el ‘terrorismo judío’ como la amenaza**\
+`Un número cada vez más grande de exgenerales, funcionarios de inteligencia y primeros ministros israelíes acusan a los colonos en Cisjordania de cometer una limpieza étnica con el apoyo del gobierno.`\
+https://www.nytimes.com/es/2026/09/01/espanol/mundo/generales-israel-terrorismo-judio.html
+
 **Mapa: la trayectoria de la tormenta tropical Edouard en vivo**\
 `Consulta la trayectoria probable y las horas de llegada de los vientos de Edouard.`\
 https://www.nytimes.com/es/interactive/2026/09/01/espanol/edouard-mapa-trayectoria.html
