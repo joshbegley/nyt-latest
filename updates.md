@@ -1,3 +1,11 @@
+**Justice Department Sues Kansas City Schools Over Gender Policy**\
+`In the first such lawsuit, the Trump administration accused the district of hiding students’ gender transition from their parents against federal law.`\
+https://www.nytimes.com/2026/09/01/us/politics/transgender-kansas-doj-lawsuit.html
+
+**A Nearly 200-Year-Old Museum Known for Its T. Rex Faces Extinction**\
+`The Academy of Natural Sciences in Philadelphia, which is affiliated with Drexel University, cited attendance struggles and higher costs in its decision to close.`\
+https://www.nytimes.com/2026/09/01/us/science-museum-drexel-philadelphia-closing.html
+
 **Former President Joe Biden Will Attend Sept. 11 Ceremony in New York**\
 `Mr. Biden will join three other living presidents at the event. President Trump has decided to skip the ceremony and is expected to appear at the Pentagon on the 25th anniversary of the attacks.`\
 https://www.nytimes.com/2026/09/01/us/politics/biden-sept-11-ceremony.html

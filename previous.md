@@ -1,3 +1,11 @@
+**Justice Department Sues Kansas City Schools Over Gender Policy**\
+`In the first such lawsuit, the Trump administration accused the district of hiding students’ gender transition from their parents against federal law.`\
+https://www.nytimes.com/2026/09/01/us/politics/transgender-kansas-doj-lawsuit.html
+
+**A Nearly 200-Year-Old Museum Known for Its T. Rex Faces Extinction**\
+`The Academy of Natural Sciences in Philadelphia, which is affiliated with Drexel University, cited attendance struggles and higher costs in its decision to close.`\
+https://www.nytimes.com/2026/09/01/us/science-museum-drexel-philadelphia-closing.html
+
 **Former President Joe Biden Will Attend Sept. 11 Ceremony in New York**\
 `Mr. Biden will join three other living presidents at the event. President Trump has decided to skip the ceremony and is expected to appear at the Pentagon on the 25th anniversary of the attacks.`\
 https://www.nytimes.com/2026/09/01/us/politics/biden-sept-11-ceremony.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/us/politics/100000011125462/us-will-economically-a
 **Map Apps Are Handling Trump’s Renaming of Lake Ontario to Lake America Differently**\
 `Navigation companies face a new dilemma after President Trump ordered Lake Ontario to be renamed Lake America.`\
 https://www.nytimes.com/2026/09/01/us/lake-ontario-america-name-apple-maps-mapquest.html
-
-**Husband and 12 Men in Britain Are Accused of Woman’s Yearslong Drugging and Rape**\
-`Prosecutors said that the man, in his 60s, drugged and abused his wife while she was unconscious, alongside a dozen other men aged 28 to 73.`\
-https://www.nytimes.com/2026/09/01/world/europe/manchester-uk-trial-husband-rape-abuse.html
-
-**The Genius of Yayoi Kusama in Three Works**\
-`Marking the artist’s death, and ahead of a retrospective at Amsterdam’s Stedelijk Museum, a critic chooses epic works that highlight Kusama’s creative range and impact.`\
-https://www.nytimes.com/interactive/2026/09/01/arts/yayoi-kusama-art-pieces.html
 
