@@ -1,3 +1,11 @@
+**U.S. Launches Airstrikes on Iran for 2nd Time in Three Days**\
+`U.S. Central Command did not say precisely what it was trying to destroy in Iran, but it said the attacks were aimed at Iran’s Islamic Revolutionary Guards Corps.`\
+https://www.nytimes.com/2026/09/01/us/politics/us-launches-air-strikes-iran.html
+
+**These Ukrainian Children Go to School Underground. They’re the Lucky Ones.**\
+`In a frontline city, parents don’t see schools built below ground as apocalyptic. Instead, they offer relief from worry about the threat of Russian strikes.`\
+https://www.nytimes.com/2026/09/01/world/europe/ukraine-underground-schools.html
+
 **Was John Galliano Ever Really Canceled? Not by the Fashion Crowd.**\
 `This may be the end of the Costume Institute’s John Galliano exhibition, but it’s not likely to be the end of his career.`\
 https://www.nytimes.com/2026/09/01/style/john-galliano-dior-margiela-met.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/01/world/middleeast/israel-gaza-hamas-leader.htm
 **Scientists Hunting Dark Matter Found Something Strange**\
 `A lone signal from an experiment in South Dakota doesn’t fit the profile of any other known particles, physicists say.`\
 https://www.nytimes.com/2026/09/01/science/dark-matter.html
-
-**Satsuki Katayama, the Woman at the Center of Japan’s Currency Fight**\
-`Japan’s finance minister, Satsuki Katayama, is under pressure to strengthen the yen while balancing competing demands from the prime minister and Washington.`\
-https://www.nytimes.com/2026/09/01/business/japan-finance-minister-yen.html
-
-**In College? We Want to Hear From You**\
-`Tell us what’s happening on your campus at one of the links below.`\
-https://www.nytimes.com/2026/09/01/briefing/in-college-we-want-to-hear-from-you.html
 

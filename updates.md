@@ -1,3 +1,7 @@
+**Map Apps Are Handling Trump’s Renaming of Lake Ontario to Lake America Differently**\
+`Navigation companies face a new dilemma after President Trump ordered Lake Ontario to be renamed Lake America.`\
+https://www.nytimes.com/2026/09/01/us/lake-ontario-america-name-apple-maps-mapquest.html
+
 **Was John Galliano Ever Really Canceled? Not by the Fashion Crowd.**\
 `This may be the end of the Costume Institute’s John Galliano exhibition, but it’s not likely to be the end of his career.`\
 https://www.nytimes.com/2026/09/01/style/john-galliano-dior-margiela-met.html
