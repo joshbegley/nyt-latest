@@ -1,3 +1,15 @@
+**China y EE. UU. muestran formas enfrentadas de poder mundial**\
+`Mientras Xi Jinping se reunía con los líderes de Rusia e Irán, Europa desafió al gobierno de Trump en el G20, lo que ofreció una visión en pantalla dividida de un mundo cambiante.`\
+https://www.nytimes.com/es/2026/09/01/espanol/mundo/estados-unidos-china-g20-poder.html
+
+**House Votes to Avert Government Shutdown Before Midterm Elections**\
+`Lawmakers sent the legislation to President Trump in an overwhelming vote, reflecting bipartisan enthusiasm around punting a messy spending fight until after the midterms.`\
+https://www.nytimes.com/2026/09/01/us/politics/house-vote-government-shutdown.html
+
+**Best Movies and Shows Streaming in September 2026: ‘Brothers,’ ‘MobLand’ and More**\
+`A Ryan Reynolds and Kenneth Branagh movie, a “Reacher” spinoff and a “LEGO Star Wars” are among this month’s highlights.`\
+https://www.nytimes.com/2026/09/01/arts/television/movies-tv-shows-september-2026-streaming.html
+
 **A Daisy Chain Fields Soundtrack**\
 `Hear tracks performed by Chappell Roan, Bikini Kill, Doechii and, of course, Olivia Rodrigo.`\
 https://www.nytimes.com/2026/09/01/arts/music/a-daisy-chain-fields-soundtrack.html
