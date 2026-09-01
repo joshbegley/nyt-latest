@@ -1,3 +1,7 @@
+**Have You Felt Any Impact From Trump’s ‘Big Beautiful Bill’? Tell Us How.**\
+`To help us report upcoming stories, we want to hear whether President Trump’s signature domestic legislation has had any effect on your household budget.`\
+https://www.nytimes.com/2026/09/01/us/trump-big-beautiful-bill-effects.html
+
 **U.S. Launches New Attacks on Iran**\
 `Also, borrowing costs rise around the world. Here’s the latest at the end of Tuesday.`\
 https://www.nytimes.com/2026/09/01/briefing/us-iran-strikes-global-bonds.html
