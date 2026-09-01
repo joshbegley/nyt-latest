@@ -1,3 +1,11 @@
+**In College? We Want to Hear From You**\
+`Tell us what’s happening on your campus at one of the links below.`\
+https://www.nytimes.com/2026/09/01/briefing/in-college-we-want-to-hear-from-you.html
+
+**New York Climate ‘Superfund’ Law Falls in Court**\
+`The court said the measure, which required energy companies to pay $75 billion to the state, conflicted with federal law.`\
+https://www.nytimes.com/2026/09/01/climate/new-york-climate-superfund-law.html
+
 **What’s Your Side Hustle?**\
 `We want to know how you make money and pay the bills outside class. Send us your side hustles.`\
 https://www.nytimes.com/2026/09/01/briefing/whats-your-side-hustle.html

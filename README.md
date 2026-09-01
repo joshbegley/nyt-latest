@@ -1,3 +1,7 @@
+**Satsuki Katayama, the Woman at the Center of Japan’s Currency Fight**\
+`Japan’s finance minister, Satsuki Katayama, is under pressure to strengthen the yen while balancing competing demands from the prime minister and Washington.`\
+https://www.nytimes.com/2026/09/01/business/japan-finance-minister-yen.html
+
 **In College? We Want to Hear From You**\
 `Tell us what’s happening on your campus at one of the links below.`\
 https://www.nytimes.com/2026/09/01/briefing/in-college-we-want-to-hear-from-you.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/01/technology/apple-tim-cook-john-ternus.html
 **Juan Tamariz, Master Magician of Misdirection and Joy, Dies at 83**\
 `A magician’s magician, he was a philosopher of the craft. He didn’t just want to fool people; he wanted to share in their awe of the inexplicable.`\
 https://www.nytimes.com/2026/09/01/world/europe/juan-tamariz-dead.html
-
-**6 Beaches With Refreshingly Cool Water**\
-`In this sweltering summer, a cool dip might be just what you need. Here are beaches where the water will help you beat the heat.`\
-https://www.nytimes.com/2026/09/01/travel/cool-water-beaches-labor-day.html
 
