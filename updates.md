@@ -1,3 +1,15 @@
+**What to Know About Venezuelan Energy Following Trump’s Oil Deal**\
+`The Trump administration’s deal with a private oil company to increase oil production in the South American country could take many years to come to fruition.`\
+https://www.nytimes.com/2026/09/01/business/energy-environment/venezuela-oil-trump-deal.html
+
+**U.S. Launches Airstrikes on Iran for 2nd Time in Three Days**\
+`U.S. Central Command did not say precisely what it was trying to destroy in Iran, but it said the attacks were aimed at Iran’s Islamic Revolutionary Guards Corps.`\
+https://www.nytimes.com/2026/09/01/us/politics/us-launches-air-strikes-iran.html
+
+**These Ukrainian Children Go to School Underground. They’re the Lucky Ones.**\
+`In a frontline city, parents don’t see schools built below ground as apocalyptic. Instead, they offer relief from worry about the threat of Russian strikes.`\
+https://www.nytimes.com/2026/09/01/world/europe/ukraine-underground-schools.html
+
 **Map Apps Are Handling Trump’s Renaming of Lake Ontario to Lake America Differently**\
 `Navigation companies face a new dilemma after President Trump ordered Lake Ontario to be renamed Lake America.`\
 https://www.nytimes.com/2026/09/01/us/lake-ontario-america-name-apple-maps-mapquest.html
