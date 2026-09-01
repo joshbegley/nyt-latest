@@ -1,3 +1,7 @@
+**Woman Shot Dead After Stabbing 2 People in Times Square**\
+`The New York City police shot and killed a woman in Times Square on Monday after she stabbed two people, one fatally. It was not immediately clear how seriously injured the other victim was.`\
+https://www.nytimes.com/video/us/100000011124569/woman-shot-dead-after-stabbing-2-people-in-times-square.html
+
 **Is Seoul’s Art Week Turning Into South Korea’s Art Month?**\
 `An insider’s guide to getting out of the convention center, with must-see shows, neighborhoods and side trips.`\
 https://www.nytimes.com/2026/08/31/arts/design/frieze-seoul-kiaf-south-korea-art-week.html

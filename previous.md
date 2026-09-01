@@ -1,3 +1,7 @@
+**Woman Shot Dead After Stabbing 2 People in Times Square**\
+`The New York City police shot and killed a woman in Times Square on Monday after she stabbed two people, one fatally. It was not immediately clear how seriously injured the other victim was.`\
+https://www.nytimes.com/video/us/100000011124569/woman-shot-dead-after-stabbing-2-people-in-times-square.html
+
 **Is Seoul’s Art Week Turning Into South Korea’s Art Month?**\
 `An insider’s guide to getting out of the convention center, with must-see shows, neighborhoods and side trips.`\
 https://www.nytimes.com/2026/08/31/arts/design/frieze-seoul-kiaf-south-korea-art-week.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/arts/100000011123146/john-galliano-met-museum-gala
 **What Cigarettes Can Teach Us About Teens and Social Media**\
 `In light of the changes Meta announced it would make for teen accounts, the “Hard Fork” co-hosts Kevin Roose and Casey Newton discuss whether the updates will result in better mental health for young people.`\
 https://www.nytimes.com/video/podcasts/100000011124024/what-cigarettes-can-teach-us-about-teens-and-social-media.html
-
-**Before Nepal Flood Washed School Away, Principal Saved 900 Students**\
-`A school principal acted swiftly after being warned about the flood waters in Nepal and saved about 900 students. Rescue efforts continued after the flood last Wednesday, which killed more than 900 people.`\
-https://www.nytimes.com/video/world/asia/100000011123064/nepal-flood-principal-rescue-students.html
 
