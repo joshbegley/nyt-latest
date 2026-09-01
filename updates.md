@@ -1,3 +1,11 @@
+**Who Is Duane ‘Keffe D’ Davis, Convicted in Tupac Shakur Murder Trial?**\
+`Duane Keith Davis, once a high-ranking member of the South Side Compton Crips, long said he was in a Cadillac with the shooter in 1996. Then he began to recant his accounts.`\
+https://www.nytimes.com/2026/08/31/arts/music/duane-davis-keffe-d-tupac-murder.html
+
+**Woman Shot Dead After Stabbing 2 People in Times Square**\
+`The New York City police shot and killed a woman in Times Square on Monday after she stabbed two people, one fatally.`\
+https://www.nytimes.com/video/us/100000011124569/woman-shot-dead-after-stabbing-2-people-in-times-square.html
+
 **Who Is Duane Keith Davis, the Former Gang Leader Convicted in Tupac Shakur’s Death?**\
 `Duane Keith Davis, once a high-ranking member of the South Side Compton Crips, long said he was in a Cadillac with the shooter in 1996. Then he began to recant his accounts.`\
 https://www.nytimes.com/2026/08/31/arts/music/duane-davis-keffe-d-tupac-murder.html
