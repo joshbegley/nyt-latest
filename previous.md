@@ -1,3 +1,7 @@
+**Former President Joe Biden Will Attend Sept. 11 Ceremony in New York**\
+`Mr. Biden will join three other living presidents at the event. President Trump has decided to skip the ceremony and is expected to appear at the Pentagon on the 25th anniversary of the attacks.`\
+https://www.nytimes.com/2026/09/01/us/politics/biden-sept-11-ceremony.html
+
 **Video Shows Moments Surrounding Times Square Shooting**\
 `Footage from a witness showed two people, Erin Piacenti, 32, and Tak Kam, 68, after a stabbing in Times Square on Monday. Ms. Piacenti, who had just returned from maternity leave, was declared dead at the hospital.`\
 https://www.nytimes.com/video/nyregion/100000011125826/times-square-stabbing-victims.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/01/world/europe/manchester-uk-trial-husband-rape
 **The Genius of Yayoi Kusama in Three Works**\
 `Marking the artist’s death, and ahead of a retrospective at Amsterdam’s Stedelijk Museum, a critic chooses epic works that highlight Kusama’s creative range and impact.`\
 https://www.nytimes.com/interactive/2026/09/01/arts/yayoi-kusama-art-pieces.html
-
-**Nepali Rescuers Press On With Search for Trapped Workers in Tunnels**\
-`Rescue teams in Nepal continued trying to reach hundreds of workers believed trapped inside hydropower plant tunnels.`\
-https://www.nytimes.com/video/world/asia/100000011125332/nepal-flash-floods-rescue-hydropower-plants.html
 

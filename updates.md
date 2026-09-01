@@ -1,3 +1,7 @@
+**Former President Joe Biden Will Attend Sept. 11 Ceremony in New York**\
+`Mr. Biden will join three other living presidents at the event. President Trump has decided to skip the ceremony and is expected to appear at the Pentagon on the 25th anniversary of the attacks.`\
+https://www.nytimes.com/2026/09/01/us/politics/biden-sept-11-ceremony.html
+
 **Video Shows Moments Surrounding Times Square Shooting**\
 `Footage from a witness showed two people, Erin Piacenti, 32, and Tak Kam, 68, after a stabbing in Times Square on Monday. Ms. Piacenti, who had just returned from maternity leave, was declared dead at the hospital.`\
 https://www.nytimes.com/video/nyregion/100000011125826/times-square-stabbing-victims.html
