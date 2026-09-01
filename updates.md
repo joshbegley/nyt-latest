@@ -1,3 +1,15 @@
+**The Met Shouldn’t Have Canceled the Galliano Exhibition**\
+`Cancel the Met Gala instead.`\
+https://www.nytimes.com/2026/09/01/opinion/culture/the-met-handled-the-galliano-fiasco-all-wrong-anna-wintour-met-gala-costume-institute-antisemitism.html
+
+**Tiroteo en Times Square: esto es lo que pasó**\
+`La policía le disparó a la mujer después de intentar usar fuerza menos letal, según los funcionarios. Una mujer, de 32 años, murió, y un hombre, de 68, se encuentra estable.`\
+https://www.nytimes.com/es/2026/09/01/espanol/estados-unidos/tiroteo-times-square.html
+
+**Tractors Clog Copenhagen as Farmers Protest Fertilizer Restrictions**\
+`To protect its waters from overexposure to nitrates, Denmark is proposing a crackdown on fertilizer use. Farmers aren’t happy.`\
+https://www.nytimes.com/2026/09/01/world/europe/denmark-farmers-protest-fertilizer.html
+
 **How to Help Nepal Flood Victims**\
 `More than 1,000 people have been killed in a Himalayan landslide and flooding, and thousands more are missing. Here’s how you can help.`\
 https://www.nytimes.com/2026/09/01/world/asia/nepal-floods-tibet-aid-relief-how-donate.html
