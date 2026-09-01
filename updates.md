@@ -1,3 +1,7 @@
+**Hegseth Targets 7 More Officers as His Frustrated Army Secretary Quits**\
+`The defense secretary’s cuts, which have hit about 10 percent of the military’s top officers, are dividing the Pentagon, officials said.`\
+https://www.nytimes.com/2026/09/01/us/hegseth-purge-army-officers.html
+
 **Have You Felt Any Impact From Trump’s ‘Big Beautiful Bill’? Tell Us How.**\
 `To help us report upcoming stories, we want to hear whether President Trump’s signature domestic legislation has had any effect on your household budget.`\
 https://www.nytimes.com/2026/09/01/us/trump-big-beautiful-bill-effects.html
