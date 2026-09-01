@@ -1,4 +1,8 @@
-**As Families Mourn, Police Seek Answers in Fatal Times Square Incident**\
+**Israeli Authorities Charge 12 Guards in Beating Death of Palestinian Prisoner**\
+`The rare prosecution comes amid widespread reports from rights groups about mistreatment in Israeli detention centers, where, activists say, scores of Palestinians have died since October 2023.`\
+https://www.nytimes.com/2026/09/01/world/middleeast/israel-guards-palestinian-prisoner.html
+
+**Woman Killed in Times Square Stabbing Identified as Bank of America VP**\
 `The New York Police Department made public the names of some of the people involved in a seemingly random knife attack on a crowded Manhattan street, but questions remained.`\
 https://www.nytimes.com/2026/09/01/nyregion/victims-stabbing-times-square-nyc.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusett
 **Massachusetts Attorney General Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Massachusetts primary election.`\
 https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-attorney-general-primary.html
-
-**Massachusetts Auditor Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Massachusetts primary election.`\
-https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-auditor-primary.html
 

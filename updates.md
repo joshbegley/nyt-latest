@@ -1,3 +1,11 @@
+**Israeli Authorities Charge 12 Guards in Beating Death of Palestinian Prisoner**\
+`The rare prosecution comes amid widespread reports from rights groups about mistreatment in Israeli detention centers, where, activists say, scores of Palestinians have died since October 2023.`\
+https://www.nytimes.com/2026/09/01/world/middleeast/israel-guards-palestinian-prisoner.html
+
+**Woman Killed in Times Square Stabbing Identified as Bank of America VP**\
+`The New York Police Department made public the names of some of the people involved in a seemingly random knife attack on a crowded Manhattan street, but questions remained.`\
+https://www.nytimes.com/2026/09/01/nyregion/victims-stabbing-times-square-nyc.html
+
 **Tropical Storm Edouard Makes Landfall Near Texas-Louisiana Border**\
 `The storm made landfall near the Texas and Louisiana state line on Tuesday afternoon.`\
 https://www.nytimes.com/2026/09/01/weather/tropical-storm-edouard-texas-louisiana.html
