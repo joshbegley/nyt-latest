@@ -1,3 +1,7 @@
+**The Best Movies and TV Shows Coming to Disney+, MGM+, Apple TV, Peacock and More in September**\
+`A Ryan Reynolds and Kenneth Branagh movie, a “Reacher” spinoff and a “LEGO Star Wars” are among this month’s highlights.`\
+https://www.nytimes.com/2026/09/01/arts/television/movies-tv-shows-september-2026-streaming.html
+
 **Two More Oil Tankers Are Attacked in the Strait of Hormuz**\
 `The ships were hit near Oman on Monday, the latest attacks on vessels in the Persian Gulf. Oil prices rose more than 2 percent.`\
 https://www.nytimes.com/2026/09/01/business/ships-oil-hormuz-iran-war.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/01/style/reed-krakoff-gap-bags-coach.html
 **Street Style Look of the Week: Vintage Men’s Wear That Gets ‘More Respect’**\
 `We intercepted a couple in Copenhagen en route to a party celebrating vintage dress. For one of them, it was a brand-new experience.`\
 https://www.nytimes.com/2026/09/01/style/street-style-look-vintage-mens-wear.html
-
-**Keir Starmer, Former UK Prime Minister, Says He Will Resign From Parliament**\
-`Keir Starmer, who left Downing Street in July after pressure from his own party, said he would quit his parliamentary seat to focus on a role in international affairs and defense.`\
-https://www.nytimes.com/2026/09/01/world/europe/keir-starmer-uk-prime-minister-resigns-mp.html
 
