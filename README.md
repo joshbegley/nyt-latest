@@ -1,3 +1,7 @@
+**A Mess at the Met**\
+`Plus: Unflashy tennis style and a cult-favorite fashion movie back on the big screen.`\
+https://www.nytimes.com/2026/09/01/style/galliano-met-us-open.html
+
 **Weeks After Failed Drone Attack, Germany Points Finger at Russia**\
 `The country said Moscow was behind an explosive-laden drone found near a Ukrainian plane at a German airport last month. Russia did not immediately comment.`\
 https://www.nytimes.com/2026/09/01/world/europe/germany-russia-drone-airport.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/09/01/espanol/mundo/respuestas-preguntas-iran.ht
 **Submit Your Story to Missed Connections**\
 `We want to know about your class crushes, your friend crushes and the meet-cutes you have on campus.`\
 https://www.nytimes.com/2026/09/01/briefing/submit-your-story-to-missed-connections.html
-
-**Bond Sell-Off Threatens to Squeeze Borrowers Around the World**\
-`Government yields are hitting multi-decade highs, reflecting anxiety about debt levels, deficits and inflation. The effects will extend to mortgages, business loans and other types of credit.`\
-https://www.nytimes.com/2026/09/01/business/bond-yields-debt.html
 
