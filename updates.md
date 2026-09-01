@@ -1,3 +1,7 @@
+**Closing Arguments at Tupac Shakur Murder Trial Focused on Suspect’s Statements**\
+`Duane Keith Davis was accused of orchestrating the drive-by shooting of the rapper in Las Vegas in 1996.`\
+https://www.nytimes.com/2026/08/31/arts/music/tupac-shakur-murder-trial-jury-deliberations.html
+
 **Woman Shot Dead After Stabbing 2 People in Times Square**\
 `The New York City police shot and killed a woman in Times Square on Monday after she stabbed two people, one fatally. It was not immediately clear how seriously injured the other victim was.`\
 https://www.nytimes.com/video/us/100000011124569/woman-shot-dead-after-stabbing-2-people-in-times-square.html

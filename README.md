@@ -1,3 +1,7 @@
+**Who is Duane Keith Davis, the former gang leader convicted in Shakur’s death?**\
+`Mr. Davis, who goes by Keffe D, long said he was in a Cadillac with the shooter in 1996. Then he began to recant his accounts.`\
+https://www.nytimes.com/2026/08/31/arts/music/duane-davis-keffe-d-tupac-murder.html
+
 **Woman Shot Dead After Stabbing 2 People in Times Square**\
 `The New York City police shot and killed a woman in Times Square on Monday after she stabbed two people, one fatally. It was not immediately clear how seriously injured the other victim was.`\
 https://www.nytimes.com/video/us/100000011124569/woman-shot-dead-after-stabbing-2-people-in-times-square.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/31/business/irs-audit-revenue.html
 **Designer John Galliano Withdraws From Met Exhibition After Backlash**\
 `The designer John Galliano pulled out from an exhibition at the Metropolitan Museum of Art after furor mounted over the museum’s choice to honor him. In 2011, Mr. Galliano was convicted of an antisemitic hate crime by a French court.`\
 https://www.nytimes.com/video/arts/100000011123146/john-galliano-met-museum-gala-designer.html
-
-**What Cigarettes Can Teach Us About Teens and Social Media**\
-`In light of the changes Meta announced it would make for teen accounts, the “Hard Fork” co-hosts Kevin Roose and Casey Newton discuss whether the updates will result in better mental health for young people.`\
-https://www.nytimes.com/video/podcasts/100000011124024/what-cigarettes-can-teach-us-about-teens-and-social-media.html
 
