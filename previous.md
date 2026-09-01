@@ -1,3 +1,15 @@
+**U.S.S. Abraham Lincoln to Dock in Thailand on Wednesday, Pattaya Mayor Says**\
+`The U.S.S. Abraham Lincoln became an emblem of the strains of the war on the U.S. military. Now its crew will have some rest.`\
+https://www.nytimes.com/2026/09/01/world/asia/uss-lincoln-pattaya-thailand.html
+
+**Mapa: la trayectoria de la tormenta tropical Marie en vivo**\
+`Consulta la trayectoria probable y las horas de llegada de los vientos de Marie.`\
+https://www.nytimes.com/es/interactive/2026/09/01/espanol/marie-mapa-trayectoria.html
+
+**Maps: Tracking Tropical Storm Marie**\
+`See the likely path and wind arrival times for Marie`\
+https://www.nytimes.com/interactive/2026/09/01/weather/marie-map-path-tracker.html
+
 **US Open Day 2: Alcaraz Shows Tennis What It’s Been Missing**\
 `The reigning champion made his long-awaited return from a wrist injury on Monday.`\
 https://www.nytimes.com/2026/09/01/podcasts/us-open-alcaraz-tennis.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/interactive/2026/09/01/weather/edouard-map-path-tracker.
 **Consider the Bollard, Stubborn Sidewalk Cop of the Post-9/11 City**\
 `A symbol of the hardening of America’s urban landscapes — and also a decent perch for a quick slice of pizza.`\
 https://www.nytimes.com/2026/09/01/nyregion/consider-the-bollard-stubborn-sidewalk-cop-of-the-post-9-11-city.html
-
-**Esta obra maestra es la novela de la década, o quizá del siglo**\
-`La historia de Marlon James sobre la experiencia gay y la homofobia asesina en Jamaica es un festín maximalista, y el mejor libro hasta ahora del ganador del Premio Booker.`\
-https://www.nytimes.com/es/2026/09/01/espanol/cultura/disappearers-novela-marlon-james.html
-
-**NYT Spelling Bee Answers for September 1, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/09/01/crosswords/spelling-bee-forum.html
-
-**Vance Defends Approach to Antisemitism in Remarks to Jewish Conservatives**\
-`In private remarks, Vice President JD Vance explained why he engages with some influencers accused of antisemitism. He also urged the audience to help articulate why a strong relationship with Israel is in America’s interest.`\
-https://www.nytimes.com/2026/09/01/us/politics/vance-republican-jewish-committee.html
 

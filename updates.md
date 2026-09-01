@@ -1,3 +1,15 @@
+**U.S.S. Abraham Lincoln to Dock in Thailand on Wednesday, Pattaya Mayor Says**\
+`The U.S.S. Abraham Lincoln became an emblem of the strains of the war on the U.S. military. Now its crew will have some rest.`\
+https://www.nytimes.com/2026/09/01/world/asia/uss-lincoln-pattaya-thailand.html
+
+**Mapa: la trayectoria de la tormenta tropical Marie en vivo**\
+`Consulta la trayectoria probable y las horas de llegada de los vientos de Marie.`\
+https://www.nytimes.com/es/interactive/2026/09/01/espanol/marie-mapa-trayectoria.html
+
+**Maps: Tracking Tropical Storm Marie**\
+`See the likely path and wind arrival times for Marie`\
+https://www.nytimes.com/interactive/2026/09/01/weather/marie-map-path-tracker.html
+
 **US Open Day 2: Alcaraz Shows Tennis What It’s Been Missing**\
 `The reigning champion made his long-awaited return from a wrist injury on Monday.`\
 https://www.nytimes.com/2026/09/01/podcasts/us-open-alcaraz-tennis.html
