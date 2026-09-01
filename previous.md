@@ -1,3 +1,7 @@
+**Nepal’s Economy Has Few Ways to Absorb the Cost of Flood Damage**\
+`The country’s government estimates that the recent catastrophic floods caused $5 billion in damage. That’s one-tenth of the Nepal’s entire economy.`\
+https://www.nytimes.com/2026/09/01/world/asia/nepal-floods-economy.html
+
 **Tractor Protest in Copenhagen Over Fertilizer Restrictions**\
 `Farmers drove tractors into Copenhagen to protest stricter limits on fertilizer use. They said these restrictions could cut yields and make their farms unprofitable.`\
 https://www.nytimes.com/video/world/europe/100000011125816/protest-fertilizer-restrictions-copenhagen-denmark.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusett
 **Massachusetts Fifth Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Massachusetts primary election.`\
 https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-us-house-5-primary.html
-
-**Massachusetts Treasurer Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Massachusetts primary election.`\
-https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-treasurer-primary.html
 
