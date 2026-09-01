@@ -106,8 +106,8 @@ https://www.nytimes.com/2026/08/31/briefing/supreme-court-trump-ballroom-met-gal
 `The actor waved his hands in what seemed to be a derisive gesture while appearing at a fan event in Toronto over the weekend.`\
 https://www.nytimes.com/2026/08/31/movies/mel-gibson-sign-language-apology.html
 
-**Jurors Begin Deliberating at Tupac Shakur Murder Trial**\
-`Duane Keith Davis is accused of orchestrating the drive-by shooting of the rapper in Las Vegas in 1996. He has pleaded not guilty.`\
+**Closing Arguments at Tupac Shakur Murder Trial Focused on Suspect’s Statements**\
+`Duane Keith Davis was accused of orchestrating the drive-by shooting of the rapper in Las Vegas in 1996.`\
 https://www.nytimes.com/2026/08/31/arts/music/tupac-shakur-murder-trial-jury-deliberations.html
 
 **U.S. Strikes May Have Targeted a New Type of Iranian Naval Mine**\
