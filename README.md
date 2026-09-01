@@ -1,3 +1,7 @@
+**Respuestas a tus preguntas sobre Irán**\
+`En esta ocasión le damos la palabra a reporteros que cubren diplomacia, la Casa Blanca, Medio Oriente y más.`\
+https://www.nytimes.com/es/2026/09/01/espanol/mundo/respuestas-preguntas-iran.html
+
 **Submit Your Story to Missed Connections**\
 `We want to know about your class crushes, your friend crushes and the meet-cutes you have on campus.`\
 https://www.nytimes.com/2026/09/01/briefing/submit-your-story-to-missed-connections.html
@@ -86,7 +90,7 @@ https://www.nytimes.com/2026/09/01/arts/television/furious-season-finale.html
 `When the Prichards were ready to downsize, building an accessory dwelling unit and charging rent on their house felt like the most practical option.`\
 https://www.nytimes.com/2026/09/01/realestate/jackson-hole-adu.html
 
-**U.S. Sanctions on Iran Cut Off Students from Tests Needed for Study Abroad**\
+**U.S. Sanctions on Iran Cut Off Students From Tests Needed for Study Abroad**\
 `The latest measures have forced the cancellation of English proficiency and graduate exams, isolating many Iranians most eager to foster ties with the world.`\
 https://www.nytimes.com/2026/09/01/world/middleeast/iran-study-abroad-sanctions.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/01/arts/television/adult-swim-anniversary-best-s
 **Can Ancient Ruins Be Protected From Wildfires? Greece Is Trying.**\
 `As blazes surge across Europe, the country is making a trade-off to protect its heritage by fireproofing sites at the risk of spoiling the surrounding landscape.`\
 https://www.nytimes.com/2026/09/01/world/europe/greece-wildfires-ancient-sites.html
-
-**A Factory in Rural Ireland Is at the Center of a Dispute Over Russia**\
-`Alumina processed at a refinery in County Limerick may be feeding Russia’s war in Ukraine, an investigation suggested. There is little agreement on what to do about it.`\
-https://www.nytimes.com/2026/09/01/world/europe/ireland-alumina-aughinish-plant-russia.html
 
