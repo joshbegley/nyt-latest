@@ -114,8 +114,8 @@ https://www.nytimes.com/2026/08/31/opinion/el-sayed-hasan-piker.html
 `In their broadest assault yet against the charges, lawyers for the defendants pointed to the unusual investigative tactics the administration deployed to make the case against them.`\
 https://www.nytimes.com/2026/08/31/us/politics/minnesota-church-protest-immigration.html
 
-**Two Dead and More Than a Dozen Missing in Grand Canyon Flood**\
-`Officials confirmed a second death on Monday after flash floods hit the Grand Canyon National Park.`\
+**Two Dead in Grand Canyon Flood**\
+`Officials said search efforts continued as they confirmed a second death on Monday after flash floods hit the Grand Canyon National Park.`\
 https://www.nytimes.com/video/us/100000011123621/grand-canyon-flash-flood-deaths.html
 
 **Expedia Fights Off Claim for Damages by Cuban Exile Families**\
