@@ -1,3 +1,7 @@
+**Who is Duane Keith Davis, the former gang leader convicted in Shakur’s death?**\
+`Mr. Davis, who goes by Keffe D, long said he was in a Cadillac with the shooter in 1996. Then he began to recant his accounts.`\
+https://www.nytimes.com/2026/08/31/arts/music/duane-davis-keffe-d-tupac-murder.html
+
 **Closing Arguments at Tupac Shakur Murder Trial Focused on Suspect’s Statements**\
 `Duane Keith Davis was accused of orchestrating the drive-by shooting of the rapper in Las Vegas in 1996.`\
 https://www.nytimes.com/2026/08/31/arts/music/tupac-shakur-murder-trial-jury-deliberations.html
