@@ -1,3 +1,11 @@
+**U.S. Launches New Attacks on Iran**\
+`Also, borrowing costs rise around the world. Here’s the latest at the end of Tuesday.`\
+https://www.nytimes.com/2026/09/01/briefing/us-iran-strikes-global-bonds.html
+
+**How Monsoon Season Supercharged the Deadly Grand Canyon Flooding**\
+`Floods are common across the Southwest this time of year, when even a little bit of rain can quickly become dangerous.`\
+https://www.nytimes.com/2026/09/01/weather/grand-canyon-flooding-monsoon-el-nino.html
+
 **Jason Isbell and Others Say Suno’s A.I. Imitates Their Voices**\
 `Jason Isbell and three others filed a lawsuit against Suno, accusing the company of training its model on their songs. The suit will test a legal strategy not based on copyright but unlawful imitation.`\
 https://www.nytimes.com/2026/09/01/arts/music/jason-isbell-suno-ai-lawsuit.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/01/arts/ethiopian-artifacts-toledo-museum-proven
 **Who Is Ahead in North Carolina's 7th Congressional District?**\
 `Track the latest polls in North Carolina's 7th Congressional District.`\
 https://www.nytimes.com/interactive/polls/north-carolina-us-house-7-polls-2026.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/us/politics/100000011125529/01vid-bessent-assets-41494.html
-
-**Cancel the Met Gala Instead**\
-`The Met shouldn’t have canceled the Galliano exhibition.`\
-https://www.nytimes.com/2026/09/01/opinion/culture/john-galliano-met-exhibition.html
 

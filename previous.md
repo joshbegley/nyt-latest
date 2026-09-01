@@ -1,3 +1,11 @@
+**Jason Isbell and Others Say Suno’s A.I. Imitates Their Voices**\
+`Jason Isbell and three others filed a lawsuit against Suno, accusing the company of training its model on their songs. The suit will test a legal strategy not based on copyright but unlawful imitation.`\
+https://www.nytimes.com/2026/09/01/arts/music/jason-isbell-suno-ai-lawsuit.html
+
+**On Trump’s Ballroom, Chief Justice Finds Himself in an Unusual Spot: In Dissent**\
+`Chief Justice John G. Roberts Jr. has been in the majority in divided cases more times than any other chief since 1953. But not this time.`\
+https://www.nytimes.com/2026/09/01/us/politics/supreme-court-ballroom-chief-roberts.html
+
 **Hochul Accuses Trump of Betraying 9/11 Victims by ‘Defunding the Police’**\
 `Gov. Kathy Hochul and Mayor Zohran Mamdani called on President Trump to free up $87 million in federal funds to pay for bomb squads and other counterterrorism measures in New York.`\
 https://www.nytimes.com/2026/09/01/nyregion/hochul-counterterrorism-funds-trump.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/embedded/us/politics/100000011125529/01vid-bessent
 **Cancel the Met Gala Instead**\
 `The Met shouldn’t have canceled the Galliano exhibition.`\
 https://www.nytimes.com/2026/09/01/opinion/culture/john-galliano-met-exhibition.html
-
-**Tiroteo en Times Square: esto es lo que pasó**\
-`La policía le disparó a la mujer después de intentar usar fuerza menos letal, según los funcionarios. Una mujer, de 32 años, murió, y un hombre, de 68, se encuentra estable.`\
-https://www.nytimes.com/es/2026/09/01/espanol/estados-unidos/tiroteo-times-square.html
-
-**Tractors Clog Copenhagen as Farmers Protest Fertilizer Restrictions**\
-`To protect its waters from overexposure to nitrates, Denmark is proposing a crackdown on fertilizer use. Farmers aren’t happy.`\
-https://www.nytimes.com/2026/09/01/world/europe/denmark-farmers-protest-fertilizer.html
 
