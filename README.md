@@ -1,3 +1,7 @@
+**Talking With Giorgia Meloni**\
+`In an interview, Italy’s hard-right leader reveals how pragmatism is reshaping her vision for Europe.`\
+https://www.nytimes.com/2026/09/01/world/giorgia-meloni-interview-bonds-iran.html
+
 **A Busy Hurricane Season Just Got Even Busier in the Pacific**\
 `Three storms, spurred on by El Niño, are inching closer to Hawaii. Could one of them even affect California this weekend?`\
 https://www.nytimes.com/2026/09/01/weather/california-hawaii-hurricanes-karina-lowell-marie.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/01/well/thc-gummies-edibles-driving.html
 **Today, In Short**\
 `Olivia Rodrigo. “Love Island USA.” And sharks.`\
 https://www.nytimes.com/2026/09/01/briefing/today-in-short.html
-
-**At G20 Summit, Scott Bessent Says U.S. Has Support for Economic War Against Iran**\
-`The Treasury secretary is also facing pushback on the Trump administration’s trade policies at the global gathering.`\
-https://www.nytimes.com/2026/09/01/business/economy/bessent-iran-g20.html
 
