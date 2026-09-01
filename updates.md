@@ -1,3 +1,7 @@
+**Two Dead in Grand Canyon Flood**\
+`Officials said search efforts continued as they confirmed a second death on Monday after flash floods hit the Grand Canyon National Park.`\
+https://www.nytimes.com/video/us/100000011123621/grand-canyon-flash-flood-deaths.html
+
 **Vance Defends Approach to Antisemitism in Remarks to Jewish Conservatives**\
 `In private remarks, Vice President JD Vance explained why he engages with some influencers accused of antisemitism. He also urged the audience to help articulate why a strong relationship with Israel is in America’s interest.`\
 https://www.nytimes.com/2026/09/01/us/politics/vance-republican-jewish-committee.html
