@@ -1,3 +1,7 @@
+**California Lawmakers Pass Ban on Shock Gloves**\
+`The California Legislature moved quickly to approve the legislation in an attempt to stop ICE agents from using the gloves.  Local law enforcement agencies have come out against the bill.`\
+https://www.nytimes.com/2026/08/31/us/california-taser-gloves.html
+
 **Duane Davis Is Convicted of Orchestrating Tupac Shakur’s Murder**\
 `Duane Keith Davis, 63, was found guilty of first-degree murder after he went on an interview tour discussing his role in the 1996 drive-by shooting.`\
 https://www.nytimes.com/2026/08/31/arts/music/tupac-shakur-murder-duane-davis-guilty-convicted.html

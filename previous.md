@@ -1,3 +1,7 @@
+**California Lawmakers Pass Ban on Shock Gloves**\
+`The California Legislature moved quickly to approve the legislation in an attempt to stop ICE agents from using the gloves.  Local law enforcement agencies have come out against the bill.`\
+https://www.nytimes.com/2026/08/31/us/california-taser-gloves.html
+
 **Duane Davis Is Convicted of Orchestrating Tupac Shakur’s Murder**\
 `Duane Keith Davis, 63, was found guilty of first-degree murder after he went on an interview tour discussing his role in the 1996 drive-by shooting.`\
 https://www.nytimes.com/2026/08/31/arts/music/tupac-shakur-murder-duane-davis-guilty-convicted.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/31/technology/ftc-amazon-lawsuit-ad-prices.html
 **Antes de las inundaciones en Nepal, los peregrinos buscaban lo divino en una montaña sagrada**\
 `Para muchos, la caminata al monte Kailash en la frontera entre Nepal y el Tíbet es un viaje único en la vida para encontrar el despertar espiritual.`\
 https://www.nytimes.com/es/2026/08/31/espanol/mundo/nepal-inundacion-peregrinos-desaparecidos.html
-
-**110 Trucking Schools Closed for English-Language Lapses**\
-`Transportation Secretary Sean Duffy, who has targeted truckers in the country illegally, said the schools certified drivers later found to lack proficiency.`\
-https://www.nytimes.com/2026/08/31/us/politics/truck-driving-schools-closed-english-language.html
 
