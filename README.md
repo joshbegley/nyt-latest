@@ -42,8 +42,8 @@ https://www.nytimes.com/interactive/polls/north-carolina-us-house-7-polls-2026.h
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000011125529/01vid-bessent-assets-41494.html
 
-**The Met Shouldn’t Have Canceled the Galliano Exhibition**\
-`Cancel the Met Gala instead.`\
+**Cancel the Met Gala Instead**\
+`The Met shouldn’t have canceled the Galliano exhibition.`\
 https://www.nytimes.com/2026/09/01/opinion/culture/john-galliano-met-exhibition.html
 
 **Tiroteo en Times Square: esto es lo que pasó**\
