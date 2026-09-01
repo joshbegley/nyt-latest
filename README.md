@@ -1,3 +1,15 @@
+**El Met suspende la exposición de Galliano ante las críticas y la presión política**\
+`Donantes, políticos y líderes judíos cuestionaron la decisión del Met de homenajear a Galliano, un diseñador de moda que fue declarado culpable de un delito de odio por sus exabruptos antisemitas.`\
+https://www.nytimes.com/es/2026/08/31/espanol/cultura/john-galliano-exposicion-met.html
+
+**NYT Crossword Answers for Sept. 1, 2026**\
+`Paul Hudes and Margot Kohn make their New York Times Crossword debut(s).`\
+https://www.nytimes.com/2026/08/31/crosswords/daily-puzzle-2026-09-01.html
+
+**How the Pentagon Is Getting Into the Venezuelan Oil Business Under Trump**\
+`The Defense Department’s Office of Strategic Capital, founded by the Biden administration to give loans to bolster the U.S. defense industry, is helping lead President Trump’s oil deal.`\
+https://www.nytimes.com/2026/08/31/us/politics/pentagon-venezuela-oil.html
+
 **Shein’s Lackluster Debut Shows a Fast-Fashion Model Left Behind**\
 `Squeezed by new trade rules, shrinking market share and labor concerns, Shein’s share decline in Hong Kong on Tuesday is a sign investors have moved on.`\
 https://www.nytimes.com/2026/08/31/business/shein-ipo-china.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/video/dining/100000011120279/lemon-pesto-pasta.html
 **Green Goddess Chicken Salad Sandwiches**\
 `Avocado forms the base of creamy green goddess dressing in this everyday chicken salad recipe. Made with lots of green herbs, capers and scallions, it’s tangy, vinegary and luxuriously creamy without the addition of any dairy or mayonnaise.`\
 https://www.nytimes.com/video/dining/100000011120389/green-goddess-chicken-salad-sandwiches.html
-
-**Crispy Wonton Chicken Salad**\
-`This dynamic chicken salad, starring crispy strips of fried wonton wrappers, draws inspiration from the wonton chicken salad at the soup and salad buffet chain Sweet Tomatoes, as well as the American Chinese chicken salads that pervaded chain-restaurant menus throughout the 1990s and early 2000s.`\
-https://www.nytimes.com/video/dining/100000011120421/crispy-wonton-chicken-salad.html
-
-**DOJ Issues Grand Jury Subpoena to James Comey Confidant Daniel Richman**\
-`The subpoena of Daniel C. Richman is the latest move in a persistent campaign to go after James B. Comey, one of President Trump’s most reviled political adversaries who has already been indicted twice.`\
-https://www.nytimes.com/2026/08/31/us/justice-department-subpoena-james-comey-richman-trump.html
-
-**IRS Audit Revenue Has Plummeted Under Trump, Watchdog Finds**\
-`The I.R.S. lost roughly a quarter of its employees since President Trump took office, hampering the agency’s ability to conduct audits.`\
-https://www.nytimes.com/2026/08/31/business/irs-audit-revenue.html
 
