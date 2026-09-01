@@ -1,4 +1,8 @@
 **Duane Davis Is Convicted of Orchestrating Tupac Shakur’s Murder**\
+`Duane Keith Davis, 63, was found guilty of first-degree murder after he went on an interview tour discussing his role in the 1996 drive-by shooting.`\
+https://www.nytimes.com/2026/08/31/arts/music/tupac-shakur-murder-duane-davis-guilty-convicted.html
+
+**Duane Davis Is Convicted of Orchestrating Tupac Shakur’s Murder**\
 `Duane Keith Davis, 63, was convicted of first-degree murder after he went on an interview tour discussing his role in the 1996 drive-by shooting.`\
 https://www.nytimes.com/2026/08/31/arts/music/guilty-convicted.html
 
