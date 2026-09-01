@@ -1,3 +1,11 @@
+**Bessent Tries to Marshal Allies Against Iran at G20**\
+`The Treasury secretary is also facing pushback on the Trump administration’s trade policies at the global gathering.`\
+https://www.nytimes.com/2026/09/01/business/economy/bessent-iran-g20.html
+
+**Ada Yonath, Chemist and First Israeli Woman to Receive a Nobel, Dies at 87**\
+`Her mapping of the ribosome, which led to new designs for antibiotics, faced years of derision, as many scientists saw it as a dead-end effort.`\
+https://www.nytimes.com/2026/09/01/science/ada-yonath-dead.html
+
 **Massachusetts Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Massachusetts primary elections.`\
 https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-primary.html

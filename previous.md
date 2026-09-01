@@ -1,3 +1,11 @@
+**Bessent Tries to Marshal Allies Against Iran at G20**\
+`The Treasury secretary is also facing pushback on the Trump administration’s trade policies at the global gathering.`\
+https://www.nytimes.com/2026/09/01/business/economy/bessent-iran-g20.html
+
+**Ada Yonath, Chemist and First Israeli Woman to Receive a Nobel, Dies at 87**\
+`Her mapping of the ribosome, which led to new designs for antibiotics, faced years of derision, as many scientists saw it as a dead-end effort.`\
+https://www.nytimes.com/2026/09/01/science/ada-yonath-dead.html
+
 **Massachusetts Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Massachusetts primary elections.`\
 https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-primary.html
@@ -18,29 +26,9 @@ https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusett
 `Get live results and maps from the 2026 Massachusetts primary election.`\
 https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-us-house-8-primary.html
 
-**Map: 3.6-Magnitude Earthquake Shakes Texas**\
-`View the location of the quake’s epicenter and shake area.`\
-https://www.nytimes.com/interactive/2026/09/01/us/quake-tracker-texas.html
-
-**Massachusetts Fifth Congressional District Primary 2026: Live Election Results**\
+**Massachusetts Secretary of State Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Massachusetts primary election.`\
-https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-us-house-5-primary.html
-
-**Massachusetts Third Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Massachusetts primary election.`\
-https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-us-house-3-primary.html
-
-**Massachusetts Auditor Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Massachusetts primary election.`\
-https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-auditor-primary.html
-
-**Massachusetts Attorney General Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Massachusetts primary election.`\
-https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-attorney-general-primary.html
-
-**Massachusetts Seventh Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Massachusetts primary election.`\
-https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-us-house-7-primary.html
+https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-secretary-of-state-primary.html
 
 **Massachusetts First Congressional District Primary 2026: Live Election Results, Neal vs. Whalen**\
 `Get live results and maps from the 2026 Massachusetts primary election.`\
@@ -50,25 +38,45 @@ https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusett
 `Get live results and maps from the 2026 Massachusetts primary election.`\
 https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-us-house-9-primary.html
 
-**Massachusetts Fourth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Massachusetts primary election.`\
-https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-us-house-4-primary.html
-
 **Massachusetts Lieutenant Governor Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Massachusetts primary election.`\
 https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-lieutenant-governor-primary.html
 
-**Massachusetts Secretary of State Primary 2026: Live Election Results**\
+**Massachusetts Attorney General Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Massachusetts primary election.`\
-https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-secretary-of-state-primary.html
+https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-attorney-general-primary.html
+
+**Massachusetts Auditor Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Massachusetts primary election.`\
+https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-auditor-primary.html
+
+**Massachusetts Fourth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Massachusetts primary election.`\
+https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-us-house-4-primary.html
 
 **Massachusetts Second Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Massachusetts primary election.`\
 https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-us-house-2-primary.html
 
+**Massachusetts Seventh Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Massachusetts primary election.`\
+https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-us-house-7-primary.html
+
+**Massachusetts Third Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Massachusetts primary election.`\
+https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-us-house-3-primary.html
+
+**Massachusetts Fifth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Massachusetts primary election.`\
+https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-us-house-5-primary.html
+
 **Massachusetts Treasurer Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Massachusetts primary election.`\
 https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-treasurer-primary.html
+
+**Map: 3.6-Magnitude Earthquake Shakes Texas**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/09/01/us/quake-tracker-texas.html
 
 **El secretario del Ejército de EE. UU. renuncia**\
 `La renuncia de Daniel P. Driscoll se esperaba, pero ocurre mientras la institución se enfrenta a su periodo de mayor actividad desde las guerras de Irak y Afganistán.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/01/world/asia/uss-lincoln-pattaya-thailand.html
 **Mapa: la trayectoria de la tormenta tropical Marie en vivo**\
 `Consulta la trayectoria probable y las horas de llegada de los vientos de Marie.`\
 https://www.nytimes.com/es/interactive/2026/09/01/espanol/marie-mapa-trayectoria.html
-
-**Maps: Tracking Tropical Storm Marie**\
-`See the likely path and wind arrival times for Marie`\
-https://www.nytimes.com/interactive/2026/09/01/weather/marie-map-path-tracker.html
-
-**US Open Day 2: Alcaraz Shows Tennis What It’s Been Missing**\
-`The reigning champion made his long-awaited return from a wrist injury on Monday.`\
-https://www.nytimes.com/2026/09/01/podcasts/us-open-alcaraz-tennis.html
 
