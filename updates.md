@@ -1,3 +1,7 @@
+**Sliman Mansour, Artist Who Depicted Palestinian Struggle, Dies at 79**\
+`His idealized images of heroic Palestinian women, men and children made their way into hundreds of homes as inspirational posters.`\
+https://www.nytimes.com/2026/09/01/arts/sliman-mansour-dead.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000011125476/01vid-bessent-strait-7423.html
