@@ -1,3 +1,15 @@
+**Husband and 12 Men in Britain Are Accused of Woman’s Yearslong Drugging and Rape**\
+`Prosecutors said that the man, in his 60s, drugged and abused his wife while she was unconscious, alongside a dozen other men aged 28 to 73.`\
+https://www.nytimes.com/2026/09/01/world/europe/manchester-uk-trial-husband-rape-abuse.html
+
+**The Genius of Yayoi Kusama in Three Works**\
+`Marking the artist’s death, and ahead of a retrospective at Amsterdam’s Stedelijk Museum, a critic chooses epic works that highlight Kusama’s creative range and impact.`\
+https://www.nytimes.com/interactive/2026/09/01/arts/yayoi-kusama-art-pieces.html
+
+**Cancel the Met Gala Instead**\
+`The Met shouldn’t have canceled the Galliano exhibition.`\
+https://www.nytimes.com/2026/09/01/opinion/culture/john-galliano-met-exhibition.html
+
 **Nepali Rescuers Press On With Search for Trapped Workers in Tunnels**\
 `Rescue teams in Nepal continued trying to reach hundreds of workers believed trapped inside hydropower plant tunnels.`\
 https://www.nytimes.com/video/world/asia/100000011125332/nepal-flash-floods-rescue-hydropower-plants.html
