@@ -1,3 +1,11 @@
+**Can a Museum Accept Artifacts With Slim Records? Toledo Has a Plan.**\
+`Curators from Ethiopia and the Toledo Museum will study a prized, but thinly documented, trove of antiquities to decide which must be returned because of questionable provenance.`\
+https://www.nytimes.com/2026/09/01/arts/ethiopian-artifacts-toledo-museum-provenance.html
+
+**Who Is Ahead in North Carolina's 7th Congressional District?**\
+`Track the latest polls in North Carolina's 7th Congressional District.`\
+https://www.nytimes.com/interactive/polls/north-carolina-us-house-7-polls-2026.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000011125529/01vid-bessent-assets-41494.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/01/business/bond-yields-debt.html
 **China Censors and Punishes to Shape Narrative on Floods in Tibet, a Contrast to Nepal**\
 `While journalists can report freely on grief and anger in Nepal, China’s official media have presented a sanitized disaster aftermath in Tibet.`\
 https://www.nytimes.com/2026/09/01/world/asia/china-tibet-floods-nepal-censorship.html
-
-**A Fashion Disaster**\
-`We explain the scandal over John Galliano and the Met Gala.`\
-https://www.nytimes.com/2026/09/01/briefing/a-fashion-disaster.html
-
-**Whistle-Blower Says USPS Is Secretly Proceeding on Trump’s Mail Voting Plan Before Midterms**\
-`A report detailed “grave concerns” that a new system being rushed into use by the U.S. Postal Service could imperil millions of mail ballots ahead of the midterm elections.`\
-https://www.nytimes.com/2026/09/01/us/politics/whistle-blower-voting-by-mail.html
 

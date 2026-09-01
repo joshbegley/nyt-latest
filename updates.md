@@ -1,3 +1,11 @@
+**Can a Museum Accept Artifacts With Slim Records? Toledo Has a Plan.**\
+`Curators from Ethiopia and the Toledo Museum will study a prized, but thinly documented, trove of antiquities to decide which must be returned because of questionable provenance.`\
+https://www.nytimes.com/2026/09/01/arts/ethiopian-artifacts-toledo-museum-provenance.html
+
+**Who Is Ahead in North Carolina's 7th Congressional District?**\
+`Track the latest polls in North Carolina's 7th Congressional District.`\
+https://www.nytimes.com/interactive/polls/north-carolina-us-house-7-polls-2026.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000011125529/01vid-bessent-assets-41494.html
