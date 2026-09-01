@@ -1,3 +1,7 @@
+**La recuperación de las lesiones de algunos atletas es buen contenido para sus redes sociales**\
+`El regreso tras una lesión se ha convertido en otra experiencia que los deportistas empaquetan, pulen y comparten en línea.`\
+https://www.nytimes.com/es/2026/09/01/espanol/recuperacion-lesiones-redes-sociales.html
+
 **Tras luchar por Israel, ahora ven el ‘terrorismo judío’ como la amenaza**\
 `Un número cada vez más grande de exgenerales, funcionarios de inteligencia y primeros ministros israelíes acusan a los colonos en Cisjordania de cometer una limpieza étnica con el apoyo del gobierno.`\
 https://www.nytimes.com/es/2026/09/01/espanol/mundo/generales-israel-terrorismo-judio.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/31/us/politics/us-strikes-iran-new-naval-mine.ht
 **Teen Charged With Murder After Livestreaming San Diego Mosque Shooting**\
 `The authorities said the 17-year-old from North Carolina had recorded the attack, which killed three people in May. “She ran with the pack — she shared in the kill,” the district attorney said.`\
 https://www.nytimes.com/2026/08/31/us/san-diego-mosque-shooting-livestream-murder-charge.html
-
-**Hochul Pardons Purple Heart Veteran Who Had Self-Deported to South Korea**\
-`Sae Joon Park, who had earned a Purple Heart, was swept up in President Trump’s immigration crackdown last year. It’s not clear if the pardon will allow him to return to the United States.`\
-https://www.nytimes.com/2026/08/31/nyregion/hochul-clemency-park-veteran.html
 
