@@ -1,3 +1,15 @@
+**The Ritual of Coffin Making in a City Hit by Ebola**\
+`While several coffin makers in Bunia said they were providing a public service, the virus has put them at the center of a debate around safe burials.`\
+https://www.nytimes.com/2026/09/01/world/africa/congo-ebola-coffins.html
+
+**Quote of the Day: Hidden Gusher of Money Is Upending the Midterms**\
+`Quotation of the Day for Tuesday, September 01, 2026.`\
+https://www.nytimes.com/2026/09/01/pageoneplus/quote-of-the-day-hidden-gusher-of-money-is-upending-the-midterms.html
+
+**Entre guerras y sanciones, Irán y Rusia miran hacia China**\
+`Una conferencia de dos días de la Organización de Cooperación de Shanghái, conformada por 10 naciones, en Kirguistán, muestra los límites de la guerra económica de EE. UU.`\
+https://www.nytimes.com/es/2026/09/01/espanol/mundo/cumbre-kirguistan-china-iran-rusia.html
+
 **California Lawmakers Pass Ban on Shock Gloves**\
 `The California Legislature moved quickly to approve the legislation in an attempt to stop ICE agents from using the gloves.  Local law enforcement agencies have come out against the bill.`\
 https://www.nytimes.com/2026/08/31/us/california-taser-gloves.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/08/31/travel/flash-floods-hiking-what-to-know.html
 **Kalshi Suspends Republican House Candidate for Betting on Her Own Race**\
 `The trading platform Kalshi issued a three-year suspension to the candidate, Laurie Buckhout, and fined her nearly $2,600. Ms. Buckhout said she had made a “dumb mistake.”`\
 https://www.nytimes.com/2026/08/31/us/politics/house-candidate-kalshi-gambling.html
-
-**Édouard Balladur, Embattled French Prime Minister, Dies at 97**\
-`His time in office coincided with France’s fraught role in the 1994 Rwandan genocide and the corruption scandal known as the Karachi affair.`\
-https://www.nytimes.com/2026/08/31/world/europe/edouard-balladur-dead.html
-
-**FTC and 22 States Sue Amazon Over Advertising Practices**\
-`Regulators say the e-commerce giant forced more than a million advertisers to pay more than they should have. The company denies the claims.`\
-https://www.nytimes.com/2026/08/31/technology/ftc-amazon-lawsuit-ad-prices.html
-
-**Antes de las inundaciones en Nepal, los peregrinos buscaban lo divino en una montaña sagrada**\
-`Para muchos, la caminata al monte Kailash en la frontera entre Nepal y el Tíbet es un viaje único en la vida para encontrar el despertar espiritual.`\
-https://www.nytimes.com/es/2026/08/31/espanol/mundo/nepal-inundacion-peregrinos-desaparecidos.html
 
