@@ -1,3 +1,11 @@
+**He Made a Bag to Match Your Jeans**\
+`Gen Z is still in love with the purses Reed Krakoff made for Coach in the 1990s. Can he get them to covet a bag from the Gap?`\
+https://www.nytimes.com/2026/09/01/style/reed-krakoff-gap-bags-coach.html
+
+**Street Style Look of the Week: Vintage Men’s Wear That Gets ‘More Respect’**\
+`We intercepted a couple in Copenhagen en route to a party celebrating vintage dress. For one of them, it was a brand-new experience.`\
+https://www.nytimes.com/2026/09/01/style/street-style-look-vintage-mens-wear.html
+
 **Keir Starmer, Former UK Prime Minister, Says He Will Resign From Parliament**\
 `Keir Starmer, who was pushed out of Downing Street by his party, said he would quit his parliamentary seat to focus on international affairs and defense.`\
 https://www.nytimes.com/2026/09/01/world/europe/keir-starmer-uk-prime-minister-resigns-mp.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/09/01/books/review/53-days-timothy-ryback.html
 **Word of the Day: omnivorous**\
 `This word has appeared in 25 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/09/01/learning/word-of-the-day-omnivorous.html
-
-**The Political Power of Christian Kitsch**\
-`Precious Moments figurines and Christian romance novels aren’t overtly political, but they shape how Christian women see themselves and the world.`\
-https://www.nytimes.com/2026/09/01/opinion/christian-women-voting-culture.html
-
-**Adult Swim 25th Anniversary: 6 Defining Animated Shows**\
-`For 25 years, it’s been an outpost for unhinged mayhem. These six signature shows helped turn low-budget TV into a surreal comedy powerhouse.`\
-https://www.nytimes.com/2026/09/01/arts/television/adult-swim-anniversary-best-shows.html
 
