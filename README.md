@@ -1,3 +1,7 @@
+**Scientists Hunting Dark Matter Found Something Strange**\
+`A lone signal from an experiment in South Dakota doesn’t fit the profile of any other known particles, physicists say.`\
+https://www.nytimes.com/2026/09/01/science/dark-matter.html
+
 **Satsuki Katayama, the Woman at the Center of Japan’s Currency Fight**\
 `Japan’s finance minister, Satsuki Katayama, is under pressure to strengthen the yen while balancing competing demands from the prime minister and Washington.`\
 https://www.nytimes.com/2026/09/01/business/japan-finance-minister-yen.html
@@ -46,8 +50,8 @@ https://www.nytimes.com/es/2026/09/01/espanol/mundo/respuestas-preguntas-iran.ht
 `We want to know about your class crushes, your friend crushes and the meet-cutes you have on campus.`\
 https://www.nytimes.com/2026/09/01/briefing/submit-your-story-to-missed-connections.html
 
-**Global Bond Sell-Off Puts Investors on Edge**\
-`Government borrowing costs are hitting multidecade highs around the world, reflecting anxiety about debt levels, deficits and inflation.`\
+**Bond Sell-Off Threatens to Squeeze Borrowers Around the World**\
+`Government yields are hitting multi-decade highs, reflecting anxiety about debt levels, deficits and inflation. The effects will extend to mortgages, business loans and other types of credit.`\
 https://www.nytimes.com/2026/09/01/business/bond-yields-debt.html
 
 **China Censors and Punishes to Shape Narrative on Floods in Tibet, a Contrast to Nepal**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/01/opinion/democrats-populism-big-tent.html
 **John Ternus Replaces Tim Cook as Apple CEO**\
 `Big technology and management changes are greeting John Ternus, whose long-serving predecessor, Tim Cook, will stay on as executive chair.`\
 https://www.nytimes.com/2026/09/01/technology/apple-tim-cook-john-ternus.html
-
-**Juan Tamariz, Master Magician of Misdirection and Joy, Dies at 83**\
-`A magician’s magician, he was a philosopher of the craft. He didn’t just want to fool people; he wanted to share in their awe of the inexplicable.`\
-https://www.nytimes.com/2026/09/01/world/europe/juan-tamariz-dead.html
 
