@@ -1,3 +1,7 @@
+**Juan Tamariz, el maestro irreverente de la magia de cerca, muere a los 83 años**\
+`Un mago para los magos, era un filósofo del oficio. No quería engañar a la gente; quería compartir su asombro ante lo inexplicable.`\
+https://www.nytimes.com/es/2026/09/01/espanol/juan-tamariz-mago-muere.html
+
 **Lindsay Clancy Murder Trial: Jury to Begin Fourth Day of Deliberations**\
 `Jurors have spent about 17 hours discussing the case over three days. They have several options for a verdict, ranging from not guilty to first-degree murder.`\
 https://www.nytimes.com/2026/09/01/us/lindsay-clancy-murder-trial-jury-deliberations.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/01/opinion/world-order-international-relations.h
 **The Ritual of Coffin Making in a City Hit by Ebola**\
 `While several coffin makers in Bunia said they were providing a public service, the virus has put them at the center of a debate around safe burials.`\
 https://www.nytimes.com/2026/09/01/world/africa/congo-ebola-coffins.html
-
-**Quote of the Day: Hidden Gusher of Money Is Upending the Midterms**\
-`Quotation of the Day for Tuesday, September 01, 2026.`\
-https://www.nytimes.com/2026/09/01/pageoneplus/quote-of-the-day-hidden-gusher-of-money-is-upending-the-midterms.html
 

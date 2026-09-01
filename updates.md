@@ -1,3 +1,7 @@
+**Juan Tamariz, el maestro irreverente de la magia de cerca, muere a los 83 años**\
+`Un mago para los magos, era un filósofo del oficio. No quería engañar a la gente; quería compartir su asombro ante lo inexplicable.`\
+https://www.nytimes.com/es/2026/09/01/espanol/juan-tamariz-mago-muere.html
+
 **Lindsay Clancy Murder Trial: Jury to Begin Fourth Day of Deliberations**\
 `Jurors have spent about 17 hours discussing the case over three days. They have several options for a verdict, ranging from not guilty to first-degree murder.`\
 https://www.nytimes.com/2026/09/01/us/lindsay-clancy-murder-trial-jury-deliberations.html
