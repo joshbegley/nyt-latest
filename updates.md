@@ -1,3 +1,15 @@
+**Lancaster Coroner Investigating Death of Child With Measles**\
+`It was not yet clear whether the case was one of the two deaths announced by Pennsylvania state health officials last week, or if it represents an additional death.`\
+https://www.nytimes.com/2026/09/01/well/measles-pennsylvania-lancaster-coroner.html
+
+**Ozempic Maker Novo Nordisk’s Investors Are Nervously Looking Into the Future**\
+`Novo Nordisk’s chief executive, Mike Doustdar, is a year into a corporate turnaround. He says investors are still underestimating the promise of the company’s drugs.`\
+https://www.nytimes.com/2026/09/01/business/novo-nordisk-ozempic-wegovy-glp1s-stocks.html
+
+**Israeli Operation in Gaza Kills 4, Palestinian Officials Say**\
+`Israel’s defense minister said the operation resulted in the capture of a senior Hamas member. Hamas said Israel sent covert operatives into Gaza City.`\
+https://www.nytimes.com/2026/09/01/world/middleeast/israel-gaza-hamas-leader.html
+
 **Scientists Hunting Dark Matter Found Something Strange**\
 `A lone signal from an experiment in South Dakota doesn’t fit the profile of any other known particles, physicists say.`\
 https://www.nytimes.com/2026/09/01/science/dark-matter.html
