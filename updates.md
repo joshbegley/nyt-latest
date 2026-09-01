@@ -1,3 +1,7 @@
+**Shein’s Lackluster Debut Shows a Fast-Fashion Model Left Behind**\
+`Squeezed by new trade rules, shrinking market share and labor concerns, Shein’s share decline in Hong Kong on Tuesday is a sign investors have moved on.`\
+https://www.nytimes.com/2026/08/31/business/shein-ipo-china.html
+
 **Who Is Duane ‘Keffe D’ Davis, Convicted in Tupac Shakur Murder Trial?**\
 `Duane Keith Davis, once a high-ranking member of the South Side Compton Crips, long said he was in a Cadillac with the shooter in 1996. Then he began to recant his accounts.`\
 https://www.nytimes.com/2026/08/31/arts/music/duane-davis-keffe-d-tupac-murder.html
