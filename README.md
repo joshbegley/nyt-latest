@@ -1,3 +1,7 @@
+**Tras luchar por Israel, ahora ven el ‘terrorismo judío’ como la amenaza**\
+`Un número cada vez más grande de exgenerales, funcionarios de inteligencia y primeros ministros israelíes acusan a los colonos en Cisjordania de cometer una limpieza étnica con el apoyo del gobierno.`\
+https://www.nytimes.com/es/2026/09/01/espanol/mundo/generales-israel-terrorismo-judio.html
+
 **Mapa: la trayectoria de la tormenta tropical Edouard en vivo**\
 `Consulta la trayectoria probable y las horas de llegada de los vientos de Edouard.`\
 https://www.nytimes.com/es/interactive/2026/09/01/espanol/edouard-mapa-trayectoria.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/08/31/us/san-diego-mosque-shooting-livestream-murde
 **Hochul Pardons Purple Heart Veteran Who Had Self-Deported to South Korea**\
 `Sae Joon Park, who had earned a Purple Heart, was swept up in President Trump’s immigration crackdown last year. It’s not clear if the pardon will allow him to return to the United States.`\
 https://www.nytimes.com/2026/08/31/nyregion/hochul-clemency-park-veteran.html
-
-**Nepal Puts Cost of Disaster at $5 Billion, Blaming Climate Change**\
-`The country is seeking urgent help from a special U.N. climate fund, but the program lacks money because the United States and others have been reluctant to contribute.`\
-https://www.nytimes.com/2026/08/31/climate/nepal-disaster-cost-climate.html
 
