@@ -1,3 +1,35 @@
+**Introducing Our New, Bite-Size Daily Lesson Plans**\
+`Every school day you’ll find a new lesson idea, that can be used as a quick warm-up or extended over a full class period. Over each week, we’ll target ELA, social studies, STEM, the arts and media literacy.`\
+https://www.nytimes.com/2026/09/01/learning/introducing-our-new-bite-size-daily-lesson-plans.html
+
+**An Ethical Dilemma on Parenting: A Life Skills Lesson Plan**\
+`What advice would you give this person? Why?`\
+https://www.nytimes.com/2026/09/01/learning/an-ethical-dilemma-about-parenting.html
+
+**Memes and Teens: A Media Literacy Lesson Plan**\
+`How is internet “brain rot” culture affecting you?`\
+https://www.nytimes.com/2026/09/01/learning/memes-and-teens.html
+
+**Heat and the Human Body: A Science Lesson Plan**\
+`What happens to you during extreme heat waves? How does your body try to protect itself?`\
+https://www.nytimes.com/2026/09/01/learning/heat-and-the-human-body.html
+
+**American History Quiz: Social Studies Lesson Plan**\
+`Can you drag and drop these 25 events into chronological order — before getting three wrong answers?`\
+https://www.nytimes.com/2026/09/01/learning/the-american-history-flashback-quiz.html
+
+**Making Reading Fun: An ELA Lesson Plan**\
+`What enjoyable memories do you have of reading or being read to? What could schools do to make working with written texts more engaging?`\
+https://www.nytimes.com/2026/09/01/learning/making-reading-fun.html
+
+**Jerome Smith, Freedom Rider Who Challenged Robert Kennedy, Dies at 87**\
+`He castigated Robert F. Kennedy for failing to protect civil rights activists, forcing the attorney general to reckon with the depth of Black anger.`\
+https://www.nytimes.com/2026/09/01/us/jerome-smith-dead.html
+
+**U.S. Announces Thousands of Arrests in New York Immigration Operation**\
+`Homeland Security Secretary Markwayne Mullin did not say whether all those who were arrested had criminal records, but Gov. Kathy Hochul said she doubted it.`\
+https://www.nytimes.com/2026/09/01/nyregion/immigration-arrests-new-york.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/opinion/editorials/100000011125592/05opdocs-rooster-cine.html
@@ -165,36 +197,4 @@ https://www.nytimes.com/2026/09/01/science/ada-yonath-dead.html
 **Massachusetts Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Massachusetts primary elections.`\
 https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-primary.html
-
-**Massachusetts U.S. Senate Primary 2026: Live Election Results, Markey vs. Moulton**\
-`Get live results and maps from the 2026 Massachusetts primary election.`\
-https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-us-senate-primary.html
-
-**Massachusetts Governor Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Massachusetts primary election.`\
-https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-governor-primary.html
-
-**Massachusetts Sixth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Massachusetts primary election.`\
-https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-us-house-6-primary.html
-
-**Massachusetts Eighth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Massachusetts primary election.`\
-https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-us-house-8-primary.html
-
-**Massachusetts Secretary of State Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Massachusetts primary election.`\
-https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-secretary-of-state-primary.html
-
-**Massachusetts First Congressional District Primary 2026: Live Election Results, Neal vs. Whalen**\
-`Get live results and maps from the 2026 Massachusetts primary election.`\
-https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-us-house-1-primary.html
-
-**Massachusetts Ninth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Massachusetts primary election.`\
-https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-us-house-9-primary.html
-
-**Massachusetts Lieutenant Governor Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Massachusetts primary election.`\
-https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-lieutenant-governor-primary.html
 

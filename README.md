@@ -1,3 +1,7 @@
+**Restaurant Review: Cleo in New York**\
+`The West Village critic’s pick rubs its bird with a warming Lebanese spice blend — and don’t forget the crinkle-cut fries.`\
+https://www.nytimes.com/2026/09/01/dining/restaurant-review-cleo-nyc.html
+
 **Introducing Our New, Bite-Size Daily Lesson Plans**\
 `Every school day you’ll find a new lesson idea, that can be used as a quick warm-up or extended over a full class period. Over each week, we’ll target ELA, social studies, STEM, the arts and media literacy.`\
 https://www.nytimes.com/2026/09/01/learning/introducing-our-new-bite-size-daily-lesson-plans.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/01/business/economy/bessent-iran-g20.html
 **Ada Yonath, Chemist and First Israeli Woman to Receive a Nobel, Dies at 87**\
 `Her mapping of the ribosome, which led to new designs for antibiotics, faced years of derision, as many scientists saw it as a dead-end effort.`\
 https://www.nytimes.com/2026/09/01/science/ada-yonath-dead.html
-
-**Massachusetts Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Massachusetts primary elections.`\
-https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-primary.html
 
