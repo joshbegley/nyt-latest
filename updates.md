@@ -1,3 +1,15 @@
+**El Met suspende la exposición de Galliano ante las críticas y la presión política**\
+`Donantes, políticos y líderes judíos cuestionaron la decisión del Met de homenajear a Galliano, un diseñador de moda que fue declarado culpable de un delito de odio por sus exabruptos antisemitas.`\
+https://www.nytimes.com/es/2026/08/31/espanol/cultura/john-galliano-exposicion-met.html
+
+**NYT Crossword Answers for Sept. 1, 2026**\
+`Paul Hudes and Margot Kohn make their New York Times Crossword debut(s).`\
+https://www.nytimes.com/2026/08/31/crosswords/daily-puzzle-2026-09-01.html
+
+**How the Pentagon Is Getting Into the Venezuelan Oil Business Under Trump**\
+`The Defense Department’s Office of Strategic Capital, founded by the Biden administration to give loans to bolster the U.S. defense industry, is helping lead President Trump’s oil deal.`\
+https://www.nytimes.com/2026/08/31/us/politics/pentagon-venezuela-oil.html
+
 **Shein’s Lackluster Debut Shows a Fast-Fashion Model Left Behind**\
 `Squeezed by new trade rules, shrinking market share and labor concerns, Shein’s share decline in Hong Kong on Tuesday is a sign investors have moved on.`\
 https://www.nytimes.com/2026/08/31/business/shein-ipo-china.html
