@@ -1,3 +1,19 @@
+**Was John Galliano Ever Really Canceled? Not by the Fashion Crowd.**\
+`This may be the end of the Costume Institute’s John Galliano exhibition, but it’s not likely to be the end of his career.`\
+https://www.nytimes.com/2026/09/01/style/john-galliano-dior-margiela-met.html
+
+**Kirbee’s Brings Texas BBQ Smoke and Green Spaghetti to Brooklyn**\
+`Faux opens with George McNally at the helm, Evelyn Bar & Kitchen debuts from the longtime manager of the Full Shilling and more restaurant news.`\
+https://www.nytimes.com/2026/09/01/dining/nyc-restaurant-news.html
+
+**U.S. Will ‘Economically Asphyxiate’ Iranian Regime, Bessent Says**\
+`Speaking on the sidelines of the G20 summit, U.S. Treasury Secretary Scott Bessent expressed optimism that the European Union, Britain and the United Arab Emirates were prepared to join the U.S. in suffocating Iran’s economy.`\
+https://www.nytimes.com/video/us/politics/100000011125462/us-will-economically-asphyxiate-iranian-regime-bessent-says.html
+
+**Map Apps Are All Handling ‘Lake America’ Differently**\
+`Navigation companies face a new dilemma after President Trump ordered Lake Ontario to be renamed Lake America.`\
+https://www.nytimes.com/2026/09/01/us/lake-ontario-america-name-apple-maps-mapquest.html
+
 **Husband and 12 Men in Britain Are Accused of Woman’s Yearslong Drugging and Rape**\
 `Prosecutors said that the man, in his 60s, drugged and abused his wife while she was unconscious, alongside a dozen other men aged 28 to 73.`\
 https://www.nytimes.com/2026/09/01/world/europe/manchester-uk-trial-husband-rape-abuse.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/09/01/business/japan-finance-minister-yen.html
 **In College? We Want to Hear From You**\
 `Tell us what’s happening on your campus at one of the links below.`\
 https://www.nytimes.com/2026/09/01/briefing/in-college-we-want-to-hear-from-you.html
-
-**New York Climate ‘Superfund’ Law Falls in Court**\
-`The court said the measure, which required energy companies to pay $75 billion to the state, conflicted with federal law.`\
-https://www.nytimes.com/2026/09/01/climate/new-york-climate-superfund-law.html
-
-**What’s Your Side Hustle?**\
-`We want to know how you make money and pay the bills outside class. Send us your side hustles.`\
-https://www.nytimes.com/2026/09/01/briefing/whats-your-side-hustle.html
-
-**Send Your Meals to Dining Hall**\
-`We want to know what you’re eating at the dining hall and cooking for yourself. Send us your best (or worst) meals.`\
-https://www.nytimes.com/2026/09/01/briefing/send-your-meals-to-dining-hall.html
-
-**Submit Your Questions to Office Hours**\
-`Have a burning question about the news? Or are you still confused after a lecture? We’ll try to help.`\
-https://www.nytimes.com/2026/09/01/briefing/submit-your-questions-to-office-hours.html
 
