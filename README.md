@@ -1,3 +1,7 @@
+**Some Allies Are Pushing Back on Trump’s Economic Approach**\
+`At a summit meant to showcase President Trump’s economic policies as a model for the world, Europeans complained about tariffs and the war with Iran.`\
+https://www.nytimes.com/2026/09/01/world/europe/g20-bessent-trump-allies.html
+
 **House Censures Republican Accused of Sexually Harassing Two Aides**\
 `Representative Chuck Edwards received a formal rebuke on the floor after a speech in which he apologized for his conduct but said it did not constitute harassment.`\
 https://www.nytimes.com/2026/09/01/us/politics/house-censure-chuck-edwards.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/world/asia/100000011125332/nepal-flash-floods-resc
 **Best Movies and Shows Streaming in September 2026: ‘Brothers,’ ‘MobLand’ and More**\
 `A Ryan Reynolds and Kenneth Branagh movie, a “Reacher” spinoff and a “LEGO Star Wars” are among this month’s highlights.`\
 https://www.nytimes.com/2026/09/01/arts/television/movies-tv-shows-september-2026-streaming.html
-
-**Two More Oil Tankers Are Attacked in the Strait of Hormuz**\
-`The ships were hit near Oman on Monday, the latest attacks on vessels in the Persian Gulf. Oil prices rose more than 2 percent.`\
-https://www.nytimes.com/2026/09/01/business/ships-oil-hormuz-iran-war.html
 
