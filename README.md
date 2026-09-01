@@ -2,7 +2,7 @@
 `The rare prosecution comes amid widespread reports from rights groups about mistreatment in Israeli detention centers, where, activists say, scores of Palestinians have died since October 2023.`\
 https://www.nytimes.com/2026/09/01/world/middleeast/israel-guards-palestinian-prisoner.html
 
-**As Families Mourn, Police Seek Answers in Fatal Times Square Incident**\
+**Woman Killed in Times Square Stabbing Identified as Bank of America VP**\
 `The New York Police Department made public the names of some of the people involved in a seemingly random knife attack on a crowded Manhattan street, but questions remained.`\
 https://www.nytimes.com/2026/09/01/nyregion/victims-stabbing-times-square-nyc.html
 
