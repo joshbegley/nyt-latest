@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011125476/01vid-bessent-strait-7423.html
+
 **Lancaster Coroner Investigating Death of Child With Measles**\
 `It was not yet clear whether the case was one of the two deaths announced by Pennsylvania state health officials last week, or if it represents an additional death.`\
 https://www.nytimes.com/2026/09/01/well/measles-pennsylvania-lancaster-coroner.html
@@ -51,7 +55,7 @@ https://www.nytimes.com/2026/09/01/style/reed-krakoff-gap-bags-coach.html
 https://www.nytimes.com/2026/09/01/style/street-style-look-vintage-mens-wear.html
 
 **Keir Starmer, Former UK Prime Minister, Says He Will Resign From Parliament**\
-`Keir Starmer, who was pushed out of Downing Street by his party, said he would quit his parliamentary seat to focus on international affairs and defense.`\
+`Keir Starmer, who left Downing Street in July after pressure from his own party, said he would quit his parliamentary seat to focus on a role in international affairs and defense.`\
 https://www.nytimes.com/2026/09/01/world/europe/keir-starmer-uk-prime-minister-resigns-mp.html
 
 **Respuestas a tus preguntas sobre Irán**\
@@ -122,8 +126,8 @@ https://www.nytimes.com/2026/09/01/podcasts/looney-tunes-corporate-greed.html
 `Un mago para los magos, era un filósofo del oficio. No quería engañar a la gente; quería compartir su asombro ante lo inexplicable.`\
 https://www.nytimes.com/es/2026/09/01/espanol/juan-tamariz-mago-muere.html
 
-**Lindsay Clancy Murder Trial: Jury Begins Fourth Day of Deliberations**\
-`Entering Tuesday, jurors had spent about 17 hours discussing the case over three days. They have several options for a verdict, ranging from not guilty to first-degree murder.`\
+**Lindsay Clancy Murder Trial: Jury Struggling to Reach a Verdict**\
+`Jurors sent a note after about 18 hours of deliberations saying they were deadlocked. The judge sent them back to keep deliberating.`\
 https://www.nytimes.com/2026/09/01/us/lindsay-clancy-murder-trial-jury-deliberations.html
 
 **Rusia quiere definir qué es un escritor**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/01/realestate/seed-saving-how-to.html
 **Lupita Nyong’o and Others to See in Off Broadway Plays This September**\
 `The fall season kicks off with a jam-packed month of riches, including experiments in docu-theater and performances by Lupita Nyong’o and Victoria Clark.`\
 https://www.nytimes.com/2026/09/01/theater/lupita-nyongo-slam-frank-off-broadway-september.html
-
-**36 Fun Things to Do in N.Y.C. in September**\
-`Fall brings Balanchine’s “Jewels,” as well as a chance to relive a roller-skating heyday, revel in Caribbean joy, and see Ed Sheeran and Chelsea Handler.`\
-https://www.nytimes.com/2026/09/01/arts/fun-things-to-do-nyc-september.html
 

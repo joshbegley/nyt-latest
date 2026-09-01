@@ -1,3 +1,15 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011125476/01vid-bessent-strait-7423.html
+
+**Keir Starmer, Former UK Prime Minister, Says He Will Resign From Parliament**\
+`Keir Starmer, who left Downing Street in July after pressure from his own party, said he would quit his parliamentary seat to focus on a role in international affairs and defense.`\
+https://www.nytimes.com/2026/09/01/world/europe/keir-starmer-uk-prime-minister-resigns-mp.html
+
+**Lindsay Clancy Murder Trial: Jury Struggling to Reach a Verdict**\
+`Jurors sent a note after about 18 hours of deliberations saying they were deadlocked. The judge sent them back to keep deliberating.`\
+https://www.nytimes.com/2026/09/01/us/lindsay-clancy-murder-trial-jury-deliberations.html
+
 **Lancaster Coroner Investigating Death of Child With Measles**\
 `It was not yet clear whether the case was one of the two deaths announced by Pennsylvania state health officials last week, or if it represents an additional death.`\
 https://www.nytimes.com/2026/09/01/well/measles-pennsylvania-lancaster-coroner.html
