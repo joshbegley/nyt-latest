@@ -1,8 +1,12 @@
+**A Disputed Supreme Court Ruling on Trump’s Ballroom**\
+`Readers respond to the decision to allow the Trump administration to continue building the White House ballroom. Also: Regulating marijuana to protect children.`\
+https://www.nytimes.com/2026/09/01/opinion/supreme-court-trump-ballroom.html
+
 **What to Know About Venezuelan Energy Following Trump’s Oil Deal**\
 `The Trump administration’s deal with a private oil company to increase oil production in the South American country could take many years to come to fruition.`\
 https://www.nytimes.com/2026/09/01/business/energy-environment/venezuela-oil-trump-deal.html
 
-**U.S. Launches Airstrikes on Iran for 2nd Time in Three Days**\
+**U.S. Launches Strikes in Iran Targeting IRGC**\
 `U.S. Central Command did not say precisely what it was trying to destroy in Iran, but it said the attacks were aimed at Iran’s Islamic Revolutionary Guards Corps.`\
 https://www.nytimes.com/2026/09/01/us/politics/us-launches-air-strikes-iran.html
 
@@ -55,7 +59,7 @@ https://www.nytimes.com/2026/09/01/weather/tropical-storm-edouard-texas-louisian
 https://www.nytimes.com/2026/09/01/style/galliano-met-us-open.html
 
 **Weeks After Failed Drone Attack, Germany Points Finger at Russia**\
-`The country said Moscow was behind an explosive-laden drone found near a Ukrainian plane at a German airport last month. Russia did not immediately comment.`\
+`The country said Moscow was behind an explosive-laden drone found near a Ukrainian plane at a German airport last month. Russia said Germany had provided no evidence.`\
 https://www.nytimes.com/2026/09/01/world/europe/germany-russia-drone-airport.html
 
 **Can a Museum Accept Artifacts With Slim Records? Toledo Has a Plan.**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/01/well/measles-pennsylvania-lancaster-coroner.h
 **Ozempic Maker Novo Nordisk’s Investors Are Nervously Looking Into the Future**\
 `Novo Nordisk’s chief executive, Mike Doustdar, is a year into a corporate turnaround. He says investors are still underestimating the promise of the company’s drugs.`\
 https://www.nytimes.com/2026/09/01/business/novo-nordisk-ozempic-wegovy-glp1s-stocks.html
-
-**Israeli Operation in Gaza Kills 4, Palestinian Officials Say**\
-`Israel’s defense minister said the operation resulted in the capture of a senior Hamas member. Hamas said Israel sent covert operatives into Gaza City.`\
-https://www.nytimes.com/2026/09/01/world/middleeast/israel-gaza-hamas-leader.html
 

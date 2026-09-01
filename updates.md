@@ -1,3 +1,15 @@
+**A Disputed Supreme Court Ruling on Trump’s Ballroom**\
+`Readers respond to the decision to allow the Trump administration to continue building the White House ballroom. Also: Regulating marijuana to protect children.`\
+https://www.nytimes.com/2026/09/01/opinion/supreme-court-trump-ballroom.html
+
+**U.S. Launches Strikes in Iran Targeting IRGC**\
+`U.S. Central Command did not say precisely what it was trying to destroy in Iran, but it said the attacks were aimed at Iran’s Islamic Revolutionary Guards Corps.`\
+https://www.nytimes.com/2026/09/01/us/politics/us-launches-air-strikes-iran.html
+
+**Weeks After Failed Drone Attack, Germany Points Finger at Russia**\
+`The country said Moscow was behind an explosive-laden drone found near a Ukrainian plane at a German airport last month. Russia said Germany had provided no evidence.`\
+https://www.nytimes.com/2026/09/01/world/europe/germany-russia-drone-airport.html
+
 **What to Know About Venezuelan Energy Following Trump’s Oil Deal**\
 `The Trump administration’s deal with a private oil company to increase oil production in the South American country could take many years to come to fruition.`\
 https://www.nytimes.com/2026/09/01/business/energy-environment/venezuela-oil-trump-deal.html
