@@ -1,3 +1,19 @@
+**What’s Your Side Hustle?**\
+`We want to know how you make money and pay the bills outside class. Send us your side hustles.`\
+https://www.nytimes.com/2026/09/01/briefing/whats-your-side-hustle.html
+
+**Send Your Meals to Dining Hall**\
+`We want to know what you’re eating at the dining hall and cooking for yourself. Send us your best (or worst) meals.`\
+https://www.nytimes.com/2026/09/01/briefing/send-your-meals-to-dining-hall.html
+
+**Submit Your Questions to Office Hours**\
+`Have a burning question about the news? Or are you still confused after a lecture? We’ll try to help.`\
+https://www.nytimes.com/2026/09/01/briefing/submit-your-questions-to-office-hours.html
+
+**Submit Your Outfits to Fit Check**\
+`We want to know what you’re wearing to class, parties and everything in between. Send us your best looks.`\
+https://www.nytimes.com/2026/09/01/briefing/submit-your-outfits-to-fit-check.html
+
 **He Made a Bag to Match Your Jeans**\
 `Gen Z is still in love with the purses Reed Krakoff made for Coach in the 1990s. Can he get them to covet a bag from the Gap?`\
 https://www.nytimes.com/2026/09/01/style/reed-krakoff-gap-bags-coach.html
@@ -19,7 +35,7 @@ https://www.nytimes.com/es/2026/09/01/espanol/mundo/respuestas-preguntas-iran.ht
 https://www.nytimes.com/2026/09/01/briefing/submit-your-story-to-missed-connections.html
 
 **Global Bond Sell-Off Puts Investors on Edge**\
-`Government borrowing costs are hitting multi-decade highs around the world, reflecting anxiety about debt levels, deficits and inflation.`\
+`Government borrowing costs are hitting multidecade highs around the world, reflecting anxiety about debt levels, deficits and inflation.`\
 https://www.nytimes.com/2026/09/01/business/bond-yields-debt.html
 
 **China Censors and Punishes to Shape Narrative on Floods in Tibet, a Contrast to Nepal**\
@@ -177,20 +193,4 @@ https://www.nytimes.com/2026/09/01/books/review/deliciously-twisted-new-thriller
 **How the Supreme Court Locks Away Its Own History**\
 `Supreme Court justices could keep the court’s internal working papers hidden for decades. Our investigative reporter Jodi Kantor explains why those records matter — and what sealing them away means for our understanding of key decisions by the nation’s highest court.`\
 https://www.nytimes.com/video/us/100000011097291/how-the-supreme-court-locks-away-its-own-history.html
-
-**What’s the Best Way to Remove Blackheads?**\
-`We asked dermatologists if it’s really that bad to get rid of them yourself.`\
-https://www.nytimes.com/2026/09/01/well/blackhead-removal-treatment.html
-
-**Why MAHA Rallied for a Mother Seeking Alternative Treatments for Her Son’s Cancer**\
-`Dayna Mooney chose alternative remedies over the recommendations of her son’s doctors. Was that her right as a parent or a threat to his care?`\
-https://www.nytimes.com/2026/09/01/magazine/maha-cancer-treatment-doctors-cps.html
-
-**Book Review: ‘53 Days,’ by Timothy W. Ryback**\
-`In “53 Days,” the historian Timothy W. Ryback shows how the Nazis used democratic means to destroy German democracy.`\
-https://www.nytimes.com/2026/09/01/books/review/53-days-timothy-ryback.html
-
-**Word of the Day: omnivorous**\
-`This word has appeared in 25 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/09/01/learning/word-of-the-day-omnivorous.html
 

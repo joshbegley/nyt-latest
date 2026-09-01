@@ -1,3 +1,23 @@
+**What’s Your Side Hustle?**\
+`We want to know how you make money and pay the bills outside class. Send us your side hustles.`\
+https://www.nytimes.com/2026/09/01/briefing/whats-your-side-hustle.html
+
+**Send Your Meals to Dining Hall**\
+`We want to know what you’re eating at the dining hall and cooking for yourself. Send us your best (or worst) meals.`\
+https://www.nytimes.com/2026/09/01/briefing/send-your-meals-to-dining-hall.html
+
+**Submit Your Questions to Office Hours**\
+`Have a burning question about the news? Or are you still confused after a lecture? We’ll try to help.`\
+https://www.nytimes.com/2026/09/01/briefing/submit-your-questions-to-office-hours.html
+
+**Submit Your Outfits to Fit Check**\
+`We want to know what you’re wearing to class, parties and everything in between. Send us your best looks.`\
+https://www.nytimes.com/2026/09/01/briefing/submit-your-outfits-to-fit-check.html
+
+**Global Bond Sell-Off Puts Investors on Edge**\
+`Government borrowing costs are hitting multidecade highs around the world, reflecting anxiety about debt levels, deficits and inflation.`\
+https://www.nytimes.com/2026/09/01/business/bond-yields-debt.html
+
 **Lindsay Clancy Murder Trial: Jury Begins Fourth Day of Deliberations**\
 `Entering Tuesday, jurors had spent about 17 hours discussing the case over three days. They have several options for a verdict, ranging from not guilty to first-degree murder.`\
 https://www.nytimes.com/2026/09/01/us/lindsay-clancy-murder-trial-jury-deliberations.html
