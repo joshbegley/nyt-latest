@@ -1,3 +1,7 @@
+**Have You Felt Any Impact From Trump’s ‘Big Beautiful Bill’? Tell Us How.**\
+`To help us report upcoming stories, we want to hear whether President Trump’s signature domestic legislation has had any effect on your household budget.`\
+https://www.nytimes.com/2026/09/01/us/trump-big-beautiful-bill-effects.html
+
 **U.S. Launches New Attacks on Iran**\
 `Also, borrowing costs rise around the world. Here’s the latest at the end of Tuesday.`\
 https://www.nytimes.com/2026/09/01/briefing/us-iran-strikes-global-bonds.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/01/world/europe/germany-russia-drone-airport.htm
 **Can a Museum Accept Artifacts With Slim Records? Toledo Has a Plan.**\
 `Curators from Ethiopia and the Toledo Museum will study a prized, but thinly documented, trove of antiquities to decide which must be returned because of questionable provenance.`\
 https://www.nytimes.com/2026/09/01/arts/ethiopian-artifacts-toledo-museum-provenance.html
-
-**Who Is Ahead in North Carolina's 7th Congressional District?**\
-`Track the latest polls in North Carolina's 7th Congressional District.`\
-https://www.nytimes.com/interactive/polls/north-carolina-us-house-7-polls-2026.html
 
