@@ -1,3 +1,7 @@
+**Haitian Student, Despondent Over Ankle Monitor, Dies in Apparent Suicide**\
+`The 20-year-old was fitted with a tracking device under a Trump administrative initiative targeting Haitians in Springfield, Ohio.`\
+https://www.nytimes.com/2026/09/01/us/haiti-ankle-monitor-immigration-suicide.html
+
 **Hegseth Targets 7 More Officers as His Frustrated Army Secretary Quits**\
 `The defense secretary’s cuts, which have hit about 10 percent of the military’s top officers, are dividing the Pentagon, officials said.`\
 https://www.nytimes.com/2026/09/01/us/hegseth-purge-army-officers.html

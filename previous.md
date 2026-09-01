@@ -1,3 +1,7 @@
+**Haitian Student, Despondent Over Ankle Monitor, Dies in Apparent Suicide**\
+`The 20-year-old was fitted with a tracking device under a Trump administrative initiative targeting Haitians in Springfield, Ohio.`\
+https://www.nytimes.com/2026/09/01/us/haiti-ankle-monitor-immigration-suicide.html
+
 **Hegseth Targets 7 More Officers as His Frustrated Army Secretary Quits**\
 `The defense secretary’s cuts, which have hit about 10 percent of the military’s top officers, are dividing the Pentagon, officials said.`\
 https://www.nytimes.com/2026/09/01/us/hegseth-purge-army-officers.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/01/weather/tropical-storm-edouard-texas-louisian
 **John Galliano Exhibit Implosion Causes a Mess at the Met**\
 `Plus: Unflashy tennis style and a cult-favorite fashion movie back on the big screen.`\
 https://www.nytimes.com/2026/09/01/style/galliano-met-us-open.html
-
-**Weeks After Failed Drone Attack, Germany Points Finger at Russia**\
-`The country said Moscow was behind an explosive-laden drone found near a Ukrainian plane at a German airport last month. Russia said Germany had provided no evidence.`\
-https://www.nytimes.com/2026/09/01/world/europe/germany-russia-drone-airport.html
 
