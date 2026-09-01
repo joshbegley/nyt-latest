@@ -1,3 +1,7 @@
+**Vance Defends Approach to Antisemitism in Remarks to Jewish Conservatives**\
+`In private remarks, Vice President JD Vance explained why he engages with some influencers accused of antisemitism. He also urged the audience to help articulate why a strong relationship with Israel is in America’s interest.`\
+https://www.nytimes.com/2026/09/01/us/politics/vance-republican-jewish-committee.html
+
 **A New World Order Is Coming. We Aren’t Ready.**\
 `We must be honest about the seriousness of the situation we’re in.`\
 https://www.nytimes.com/2026/09/01/opinion/world-order-international-relations.html
