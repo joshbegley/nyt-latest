@@ -1,3 +1,7 @@
+**What to Know About Venezuelan Energy Following Trump’s Oil Deal**\
+`The Trump administration’s deal with a private oil company to increase oil production in the South American country could take many years to come to fruition.`\
+https://www.nytimes.com/2026/09/01/business/energy-environment/venezuela-oil-trump-deal.html
+
 **U.S. Launches Airstrikes on Iran for 2nd Time in Three Days**\
 `U.S. Central Command did not say precisely what it was trying to destroy in Iran, but it said the attacks were aimed at Iran’s Islamic Revolutionary Guards Corps.`\
 https://www.nytimes.com/2026/09/01/us/politics/us-launches-air-strikes-iran.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/01/business/novo-nordisk-ozempic-wegovy-glp1s-st
 **Israeli Operation in Gaza Kills 4, Palestinian Officials Say**\
 `Israel’s defense minister said the operation resulted in the capture of a senior Hamas member. Hamas said Israel sent covert operatives into Gaza City.`\
 https://www.nytimes.com/2026/09/01/world/middleeast/israel-gaza-hamas-leader.html
-
-**Scientists Hunting Dark Matter Found Something Strange**\
-`A lone signal from an experiment in South Dakota doesn’t fit the profile of any other known particles, physicists say.`\
-https://www.nytimes.com/2026/09/01/science/dark-matter.html
 
