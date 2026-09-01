@@ -1,3 +1,7 @@
+**At G20 Summit, Some U.S. Allies Push Back on Trump’s Economic Approach**\
+`At a summit meant to showcase President Trump’s economic policies as a model for the world, Europeans complained about tariffs and the war with Iran.`\
+https://www.nytimes.com/2026/09/01/world/europe/g20-bessent-trump-allies.html
+
 **Justice Department Sues Kansas City Schools Over Gender Policy**\
 `In the first such lawsuit, the Trump administration accused the district of hiding students’ gender transition from their parents against federal law.`\
 https://www.nytimes.com/2026/09/01/us/politics/transgender-kansas-doj-lawsuit.html

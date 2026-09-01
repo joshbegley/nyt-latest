@@ -14,7 +14,7 @@ https://www.nytimes.com/2026/09/01/us/politics/biden-sept-11-ceremony.html
 `Footage from a witness showed two people, Erin Piacenti, 32, and Tak Kam, 68, after a stabbing in Times Square on Monday. Ms. Piacenti, who had just returned from maternity leave, was declared dead at the hospital.`\
 https://www.nytimes.com/video/nyregion/100000011125826/times-square-stabbing-victims.html
 
-**Some Allies Are Pushing Back on Trump’s Economic Approach**\
+**At G20 Summit, Some U.S. Allies Push Back on Trump’s Economic Approach**\
 `At a summit meant to showcase President Trump’s economic policies as a model for the world, Europeans complained about tariffs and the war with Iran.`\
 https://www.nytimes.com/2026/09/01/world/europe/g20-bessent-trump-allies.html
 
