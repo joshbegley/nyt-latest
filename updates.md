@@ -1,3 +1,11 @@
+**Mapa: la trayectoria de la tormenta tropical Edouard en vivo**\
+`Consulta la trayectoria probable y las horas de llegada de los vientos de Edouard.`\
+https://www.nytimes.com/es/interactive/2026/09/01/espanol/edouard-mapa-trayectoria.html
+
+**Maps: Tracking Tropical Storm Edouard**\
+`See the likely path and wind arrival times for Edouard`\
+https://www.nytimes.com/interactive/2026/09/01/weather/edouard-map-path-tracker.html
+
 **Consider the Bollard, Stubborn Sidewalk Cop of the Post-9/11 City**\
 `A symbol of the hardening of America’s urban landscapes — and also a decent perch for a quick slice of pizza.`\
 https://www.nytimes.com/2026/09/01/nyregion/consider-the-bollard-stubborn-sidewalk-cop-of-the-post-9-11-city.html
