@@ -1,3 +1,7 @@
+**Shooting at Tucson Gay Bar That Killed 2 Investigated as Hate Crime**\
+`Two men were fatally shot in the bar’s parking lot early Monday morning. The suspected gunman, who also died, was carrying a list of other L.G.B.T.Q.-friendly businesses, the police said.`\
+https://www.nytimes.com/2026/09/01/us/tucson-gay-bar-shooting.html
+
 **Haitian Student, Despondent Over Ankle Monitor, Dies in Apparent Suicide**\
 `The 20-year-old was fitted with a tracking device under a Trump administrative initiative targeting Haitians in Springfield, Ohio.`\
 https://www.nytimes.com/2026/09/01/us/haiti-ankle-monitor-immigration-suicide.html

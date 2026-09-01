@@ -1,3 +1,7 @@
+**House Censures Republican Accused of Sexually Harassing Two Aides**\
+`Representative Chuck Edwards received a formal rebuke on the floor after a speech in which he apologized for his conduct but said it did not constitute harassment.`\
+https://www.nytimes.com/2026/09/01/us/politics/house-censure-chuck-edwards.html
+
 **Shooting at Tucson Gay Bar That Killed 2 Investigated as Hate Crime**\
 `Two men were fatally shot in the bar’s parking lot early Monday morning. The suspected gunman, who also died, was carrying a list of other L.G.B.T.Q.-friendly businesses, the police said.`\
 https://www.nytimes.com/2026/09/01/us/tucson-gay-bar-shooting.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/01/arts/television/movies-tv-shows-september-202
 **Two More Oil Tankers Are Attacked in the Strait of Hormuz**\
 `The ships were hit near Oman on Monday, the latest attacks on vessels in the Persian Gulf. Oil prices rose more than 2 percent.`\
 https://www.nytimes.com/2026/09/01/business/ships-oil-hormuz-iran-war.html
-
-**Tropical Storm Edouard Makes Landfall Near Texas-Louisiana Border**\
-`The storm made landfall near the Texas and Louisiana state line on Tuesday afternoon.`\
-https://www.nytimes.com/2026/09/01/weather/tropical-storm-edouard-texas-louisiana.html
 
