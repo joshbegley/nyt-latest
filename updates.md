@@ -1,3 +1,19 @@
+**How to Help Nepal Flood Victims**\
+`More than 1,000 people have been killed in a Himalayan landslide and flooding, and thousands more are missing. Here’s how you can help.`\
+https://www.nytimes.com/2026/09/01/world/asia/nepal-floods-tibet-aid-relief-how-donate.html
+
+**How THC Edibles Could Affect Your Driving**\
+`A new study tested drivers’ impairment after taking different doses of cannabis gummies.`\
+https://www.nytimes.com/2026/09/01/well/thc-gummies-edibles-driving.html
+
+**Today, In Short**\
+`Olivia Rodrigo. “Love Island USA.” And sharks.`\
+https://www.nytimes.com/2026/09/01/briefing/today-in-short.html
+
+**Treasury Secretary Scott Bessent Says US Has Support for Economic War Against Iran**\
+`The Treasury secretary is also facing pushback on the Trump administration’s trade policies at the global gathering.`\
+https://www.nytimes.com/2026/09/01/business/economy/bessent-iran-g20.html
+
 **Bessent Tries to Marshal Allies Against Iran at G20**\
 `The Treasury secretary is also facing pushback on the Trump administration’s trade policies at the global gathering.`\
 https://www.nytimes.com/2026/09/01/business/economy/bessent-iran-g20.html

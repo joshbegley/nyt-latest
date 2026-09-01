@@ -1,4 +1,16 @@
-**Bessent Tries to Marshal Allies Against Iran at G20**\
+**How to Help Nepal Flood Victims**\
+`More than 1,000 people have been killed in a Himalayan landslide and flooding, and thousands more are missing. Here’s how you can help.`\
+https://www.nytimes.com/2026/09/01/world/asia/nepal-floods-tibet-aid-relief-how-donate.html
+
+**How THC Edibles Could Affect Your Driving**\
+`A new study tested drivers’ impairment after taking different doses of cannabis gummies.`\
+https://www.nytimes.com/2026/09/01/well/thc-gummies-edibles-driving.html
+
+**Today, In Short**\
+`Olivia Rodrigo. “Love Island USA.” And sharks.`\
+https://www.nytimes.com/2026/09/01/briefing/today-in-short.html
+
+**Treasury Secretary Scott Bessent Says US Has Support for Economic War Against Iran**\
 `The Treasury secretary is also facing pushback on the Trump administration’s trade policies at the global gathering.`\
 https://www.nytimes.com/2026/09/01/business/economy/bessent-iran-g20.html
 
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/09/01/crosswords/wordle-review-1901.html
 **NYT Strands Hints for September 2, 2026**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, Sept. 2, 2026.`\
 https://www.nytimes.com/2026/09/01/crosswords/strands-sidekick-913.html
-
-**NYT Connections Answers for September 2, 2026**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, Sept. 2, 2026.`\
-https://www.nytimes.com/2026/09/01/crosswords/connections-companion-1179.html
-
-**U.S.S. Abraham Lincoln to Dock in Thailand on Wednesday, Pattaya Mayor Says**\
-`The U.S.S. Abraham Lincoln became an emblem of the strains of the war on the U.S. military. Now its crew will have some rest.`\
-https://www.nytimes.com/2026/09/01/world/asia/uss-lincoln-pattaya-thailand.html
-
-**Mapa: la trayectoria de la tormenta tropical Marie en vivo**\
-`Consulta la trayectoria probable y las horas de llegada de los vientos de Marie.`\
-https://www.nytimes.com/es/interactive/2026/09/01/espanol/marie-mapa-trayectoria.html
 
