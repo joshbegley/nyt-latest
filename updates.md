@@ -1,3 +1,7 @@
+**Lindsay Clancy Murder Trial: Jury Begins Fourth Day of Deliberations**\
+`Entering Tuesday, jurors had spent about 17 hours discussing the case over three days. They have several options for a verdict, ranging from not guilty to first-degree murder.`\
+https://www.nytimes.com/2026/09/01/us/lindsay-clancy-murder-trial-jury-deliberations.html
+
 **He Made a Bag to Match Your Jeans**\
 `Gen Z is still in love with the purses Reed Krakoff made for Coach in the 1990s. Can he get them to covet a bag from the Gap?`\
 https://www.nytimes.com/2026/09/01/style/reed-krakoff-gap-bags-coach.html
