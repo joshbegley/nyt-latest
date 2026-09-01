@@ -1,3 +1,11 @@
+**Jerome Smith, Freedom Rider Who Challenged Robert Kennedy, Dies at 87**\
+`He castigated Robert F. Kennedy for failing to protect civil rights activists, forcing the attorney general to reckon with the depth of Black anger.`\
+https://www.nytimes.com/2026/09/01/us/jerome-smith-dead.html
+
+**U.S. Announces Thousands of Arrests in New York Immigration Operation**\
+`Homeland Security Secretary Markwayne Mullin did not say whether all those who were arrested had criminal records, but Gov. Kathy Hochul said she doubted it.`\
+https://www.nytimes.com/2026/09/01/nyregion/immigration-arrests-new-york.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/opinion/editorials/100000011125592/05opdocs-rooster-cine.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusett
 **Massachusetts First Congressional District Primary 2026: Live Election Results, Neal vs. Whalen**\
 `Get live results and maps from the 2026 Massachusetts primary election.`\
 https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-us-house-1-primary.html
-
-**Massachusetts Ninth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Massachusetts primary election.`\
-https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-us-house-9-primary.html
-
-**Massachusetts Lieutenant Governor Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Massachusetts primary election.`\
-https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-lieutenant-governor-primary.html
 

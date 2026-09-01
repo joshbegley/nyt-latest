@@ -1,3 +1,11 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/opinion/editorials/100000011125592/05opdocs-rooster-cine.html
+
+**Carney Tells Trump Officials to ‘Stop Throwing Shade’ Over Canada-U.S. Trade Talks**\
+`Amid a trade war, Canada’s Liberals swept three special votes and new polling suggested strong support for Prime Minister Mark Carney and his retaliatory tariffs against the U.S.`\
+https://www.nytimes.com/2026/09/01/world/canada/carney-trump-trade-war.html
+
 **Israeli Authorities Charge 12 Guards in Beating Death of Palestinian Prisoner**\
 `The rare prosecution comes amid widespread reports from rights groups about mistreatment in Israeli detention centers, where, activists say, scores of Palestinians have died since October 2023.`\
 https://www.nytimes.com/2026/09/01/world/middleeast/israel-guards-palestinian-prisoner.html
