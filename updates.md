@@ -1,3 +1,27 @@
+**Whistle-Blower Says Trump Officials Are Defying Court Orders on Voting by Mail**\
+`A report detailed “grave concerns” that a new system being rushed into use by the U.S. Postal Service could imperil millions of mail ballots ahead of the midterm elections.`\
+https://www.nytimes.com/2026/09/01/us/politics/whistle-blower-voting-by-mail.html
+
+**How a Teenager Found Undiagnosed Brain Injuries in the Military**\
+`New York Times reporting found that rescue-boat crews in the Coast Guard showed signs of brain injuries from rough seas. A victim’s daughter helped bring the issue to light.`\
+https://www.nytimes.com/2026/09/01/podcasts/the-daily/brain-injuries-coast-guard.html
+
+**The Supreme Court’s Secret Documents, and an Unusual Order From the C.D.C. Director**\
+`Plus, a conviction in the Tupac Shakur murder trial.`\
+https://www.nytimes.com/2026/09/01/podcasts/the-headlines/supreme-court-secret-documents-cdc-director-tupac-trial.html
+
+**Today’s Wordle Hints for September 2, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Sept. 2, 2026.`\
+https://www.nytimes.com/2026/09/01/crosswords/wordle-review-1901.html
+
+**NYT Strands Hints for September 2, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Sept. 2, 2026.`\
+https://www.nytimes.com/2026/09/01/crosswords/strands-sidekick-913.html
+
+**NYT Connections Answers for September 2, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Sept. 2, 2026.`\
+https://www.nytimes.com/2026/09/01/crosswords/connections-companion-1179.html
+
 **U.S.S. Abraham Lincoln to Dock in Thailand on Wednesday, Pattaya Mayor Says**\
 `The U.S.S. Abraham Lincoln became an emblem of the strains of the war on the U.S. military. Now its crew will have some rest.`\
 https://www.nytimes.com/2026/09/01/world/asia/uss-lincoln-pattaya-thailand.html

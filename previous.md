@@ -1,3 +1,27 @@
+**Whistle-Blower Says Trump Officials Are Defying Court Orders on Voting by Mail**\
+`A report detailed “grave concerns” that a new system being rushed into use by the U.S. Postal Service could imperil millions of mail ballots ahead of the midterm elections.`\
+https://www.nytimes.com/2026/09/01/us/politics/whistle-blower-voting-by-mail.html
+
+**How a Teenager Found Undiagnosed Brain Injuries in the Military**\
+`New York Times reporting found that rescue-boat crews in the Coast Guard showed signs of brain injuries from rough seas. A victim’s daughter helped bring the issue to light.`\
+https://www.nytimes.com/2026/09/01/podcasts/the-daily/brain-injuries-coast-guard.html
+
+**The Supreme Court’s Secret Documents, and an Unusual Order From the C.D.C. Director**\
+`Plus, a conviction in the Tupac Shakur murder trial.`\
+https://www.nytimes.com/2026/09/01/podcasts/the-headlines/supreme-court-secret-documents-cdc-director-tupac-trial.html
+
+**Today’s Wordle Hints for September 2, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Sept. 2, 2026.`\
+https://www.nytimes.com/2026/09/01/crosswords/wordle-review-1901.html
+
+**NYT Strands Hints for September 2, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Sept. 2, 2026.`\
+https://www.nytimes.com/2026/09/01/crosswords/strands-sidekick-913.html
+
+**NYT Connections Answers for September 2, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Sept. 2, 2026.`\
+https://www.nytimes.com/2026/09/01/crosswords/connections-companion-1179.html
+
 **U.S.S. Abraham Lincoln to Dock in Thailand on Wednesday, Pattaya Mayor Says**\
 `The U.S.S. Abraham Lincoln became an emblem of the strains of the war on the U.S. military. Now its crew will have some rest.`\
 https://www.nytimes.com/2026/09/01/world/asia/uss-lincoln-pattaya-thailand.html
@@ -169,28 +193,4 @@ https://www.nytimes.com/2026/09/01/us/politics/supreme-court-internal-records-se
 **Algunas infecciones transmitidas por la comida pueden causar problemas intestinales por meses**\
 `El brote de Cyclospora podría resultar en un aumento de casos de síndrome del intestino irritable posinfeccioso.`\
 https://www.nytimes.com/es/2026/09/01/espanol/ciclospora-infecciones-problemas-intestinales.html
-
-**China or the U.S.? Two Meetings Offer Competing Showcases of Global Power.**\
-`As Xi Jinping gathered with the leaders of Russia and Iran, Europe challenged the Trump administration at the G20, offering a split-screen view of a changing world.`\
-https://www.nytimes.com/2026/09/01/world/asia/g20-meeting-china-trump-bishkek.html
-
-**La recuperación de las lesiones de algunos atletas es buen contenido para sus redes sociales**\
-`El regreso tras una lesión se ha convertido en otra experiencia que los deportistas empaquetan, pulen y comparten en línea.`\
-https://www.nytimes.com/es/2026/09/01/espanol/recuperacion-lesiones-redes-sociales.html
-
-**Tras luchar por Israel, ahora ven el ‘terrorismo judío’ como la amenaza**\
-`Un número cada vez más grande de exgenerales, funcionarios de inteligencia y primeros ministros israelíes acusan a los colonos en Cisjordania de cometer una limpieza étnica con el apoyo del gobierno.`\
-https://www.nytimes.com/es/2026/09/01/espanol/mundo/generales-israel-terrorismo-judio.html
-
-**Mapa: la trayectoria de la tormenta tropical Edouard en vivo**\
-`Consulta la trayectoria probable y las horas de llegada de los vientos de Edouard.`\
-https://www.nytimes.com/es/interactive/2026/09/01/espanol/edouard-mapa-trayectoria.html
-
-**Maps: Tracking Tropical Storm Edouard**\
-`See the likely path and wind arrival times for Edouard`\
-https://www.nytimes.com/interactive/2026/09/01/weather/edouard-map-path-tracker.html
-
-**Consider the Bollard, Stubborn Sidewalk Cop of the Post-9/11 City**\
-`A symbol of the hardening of America’s urban landscapes — and also a decent perch for a quick slice of pizza.`\
-https://www.nytimes.com/2026/09/01/nyregion/consider-the-bollard-stubborn-sidewalk-cop-of-the-post-9-11-city.html
 
