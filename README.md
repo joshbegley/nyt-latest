@@ -1,5 +1,5 @@
 **As Families Mourn, Police Seek Answers in Fatal Times Square Incident**\
-`The New York Police Department made public the names of some of the people involved in a seemingly random stabbing on a crowded Manhattan street, but questions remained.`\
+`The New York Police Department made public the names of some of the people involved in a seemingly random knife attack on a crowded Manhattan street, but questions remained.`\
 https://www.nytimes.com/2026/09/01/nyregion/victims-stabbing-times-square-nyc.html
 
 **Canada’s Carney Ties Resuming Trade Talks to Trump Administration Insults**\
