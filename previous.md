@@ -1,3 +1,7 @@
+**Nepali Rescuers Press On With Search for Trapped Workers in Tunnels**\
+`Rescue teams in Nepal continued trying to reach hundreds of workers believed trapped inside hydropower plant tunnels.`\
+https://www.nytimes.com/video/world/asia/100000011125332/nepal-flash-floods-rescue-hydropower-plants.html
+
 **The Best Movies and TV Shows Coming to Disney+, MGM+, Apple TV, Peacock and More in September**\
 `A Ryan Reynolds and Kenneth Branagh movie, a “Reacher” spinoff and a “LEGO Star Wars” are among this month’s highlights.`\
 https://www.nytimes.com/2026/09/01/arts/television/movies-tv-shows-september-2026-streaming.html
@@ -10,7 +14,7 @@ https://www.nytimes.com/2026/09/01/business/ships-oil-hormuz-iran-war.html
 `The storm was expected to bring heavy rain to Texas and Louisiana on Tuesday.`\
 https://www.nytimes.com/2026/09/01/weather/tropical-storm-edouard-texas-louisiana.html
 
-**A Mess at the Met**\
+**John Galliano Exhibit Implosion Causes a Mess at the Met**\
 `Plus: Unflashy tennis style and a cult-favorite fashion movie back on the big screen.`\
 https://www.nytimes.com/2026/09/01/style/galliano-met-us-open.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/01/briefing/submit-your-outfits-to-fit-check.htm
 **He Made a Bag to Match Your Jeans**\
 `Gen Z is still in love with the purses Reed Krakoff made for Coach in the 1990s. Can he get them to covet a bag from the Gap?`\
 https://www.nytimes.com/2026/09/01/style/reed-krakoff-gap-bags-coach.html
-
-**Street Style Look of the Week: Vintage Men’s Wear That Gets ‘More Respect’**\
-`We intercepted a couple in Copenhagen en route to a party celebrating vintage dress. For one of them, it was a brand-new experience.`\
-https://www.nytimes.com/2026/09/01/style/street-style-look-vintage-mens-wear.html
 

@@ -1,3 +1,11 @@
+**Nepali Rescuers Press On With Search for Trapped Workers in Tunnels**\
+`Rescue teams in Nepal continued trying to reach hundreds of workers believed trapped inside hydropower plant tunnels.`\
+https://www.nytimes.com/video/world/asia/100000011125332/nepal-flash-floods-rescue-hydropower-plants.html
+
+**John Galliano Exhibit Implosion Causes a Mess at the Met**\
+`Plus: Unflashy tennis style and a cult-favorite fashion movie back on the big screen.`\
+https://www.nytimes.com/2026/09/01/style/galliano-met-us-open.html
+
 **Tropical Storm Edouard Grows Stronger as it Nears Texas and Louisiana Coastline**\
 `The storm was expected to bring heavy rain to Texas and Louisiana on Tuesday.`\
 https://www.nytimes.com/2026/09/01/weather/tropical-storm-edouard-texas-louisiana.html
