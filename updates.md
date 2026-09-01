@@ -1,3 +1,11 @@
+**Punishment and Silence: China Pulls Out the Disaster Playbook in Tibet**\
+`While journalists can report freely on grief and anger in Nepal, China’s official media have presented a sanitized disaster aftermath in Tibet.`\
+https://www.nytimes.com/2026/09/01/world/asia/china-tibet-floods-nepal-censorship.html
+
+**A Fashion Disaster**\
+`We explain the scandal over John Galliano and the Met Gala.`\
+https://www.nytimes.com/2026/09/01/briefing/a-fashion-disaster.html
+
 **Whistle-Blower Says Trump Officials Are Defying Court Orders on Voting by Mail**\
 `A report detailed “grave concerns” that a new system being rushed into use by the U.S. Postal Service could imperil millions of mail ballots ahead of the midterm elections.`\
 https://www.nytimes.com/2026/09/01/us/politics/whistle-blower-voting-by-mail.html

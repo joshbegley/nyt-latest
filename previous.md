@@ -1,3 +1,11 @@
+**Punishment and Silence: China Pulls Out the Disaster Playbook in Tibet**\
+`While journalists can report freely on grief and anger in Nepal, China’s official media have presented a sanitized disaster aftermath in Tibet.`\
+https://www.nytimes.com/2026/09/01/world/asia/china-tibet-floods-nepal-censorship.html
+
+**A Fashion Disaster**\
+`We explain the scandal over John Galliano and the Met Gala.`\
+https://www.nytimes.com/2026/09/01/briefing/a-fashion-disaster.html
+
 **Whistle-Blower Says Trump Officials Are Defying Court Orders on Voting by Mail**\
 `A report detailed “grave concerns” that a new system being rushed into use by the U.S. Postal Service could imperil millions of mail ballots ahead of the midterm elections.`\
 https://www.nytimes.com/2026/09/01/us/politics/whistle-blower-voting-by-mail.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/09/01/books/review/american-scoundrel-kai-bird-susa
 **At 70, Yo-Yo Ma Is Modeling a Way to Be in the World Today**\
 `With a global audience, Ma models a way of being that goes against the grain of cynicism, polarization and isolation. It’s up to us to pay attention.`\
 https://www.nytimes.com/2026/09/01/arts/music/yo-yo-ma-profile.html
-
-**How the Supreme Court Locks Away Its Own History**\
-`After Justice Scalia died, the justices held private negotiations about locking away their papers. We may not see the ultimate record of the Roberts court for decades.`\
-https://www.nytimes.com/2026/09/01/us/politics/supreme-court-internal-records-sealed.html
-
-**Algunas infecciones transmitidas por la comida pueden causar problemas intestinales por meses**\
-`El brote de Cyclospora podría resultar en un aumento de casos de síndrome del intestino irritable posinfeccioso.`\
-https://www.nytimes.com/es/2026/09/01/espanol/ciclospora-infecciones-problemas-intestinales.html
 
