@@ -1,3 +1,7 @@
+**La recuperación de las lesiones de algunos atletas es buen contenido para sus redes sociales**\
+`El regreso tras una lesión se ha convertido en otra experiencia que los deportistas empaquetan, pulen y comparten en línea.`\
+https://www.nytimes.com/es/2026/09/01/espanol/recuperacion-lesiones-redes-sociales.html
+
 **Tras luchar por Israel, ahora ven el ‘terrorismo judío’ como la amenaza**\
 `Un número cada vez más grande de exgenerales, funcionarios de inteligencia y primeros ministros israelíes acusan a los colonos en Cisjordania de cometer una limpieza étnica con el apoyo del gobierno.`\
 https://www.nytimes.com/es/2026/09/01/espanol/mundo/generales-israel-terrorismo-judio.html
