@@ -1,3 +1,19 @@
+**Is Seoul’s Art Week Turning Into South Korea’s Art Month?**\
+`An insider’s guide to getting out of the convention center, with must-see shows, neighborhoods and side trips.`\
+https://www.nytimes.com/2026/08/31/arts/design/frieze-seoul-kiaf-south-korea-art-week.html
+
+**Geoffroy Pithon Is a French Artist Who Is Over ‘Quiet Luxury’**\
+`It’s all about patterns and vivid colors for Geoffroy Pithon, who’s showing his work at Frieze Seoul for the first time.`\
+https://www.nytimes.com/2026/08/31/arts/design/geoffrey-pithon-frieze-seoul.html
+
+**Tupac Shakur Murder Trial Updates: Man Found Guilty of Orchestrating Rap Star’s Killing**\
+`A jury convicted Duane Keith Davis, 63, in the 1996 drive-by shooting that killed Mr. Shakur, a rapper at the height of his popularity. Prosecutors cited portions of Mr. Davis’s disavowed memoir.`\
+https://www.nytimes.com/live/2026/08/31/arts/tupac-murder-trial-verdict-duane-davis
+
+**Woman Stabs 2, Killing One, in Times Square and Is Shot Dead by N.Y.P.D.**\
+`The police fired at the woman, who was holding two knives, after trying to use less lethal force, officials said. A woman, 32, was killed, and a man, 68, is in stable condition.`\
+https://www.nytimes.com/2026/08/31/nyregion/times-square-subway-stabbing-nypd-shooting.html
+
 **Familias de exiliados cubanos pierden la demanda contra Expedia**\
 `Un jurado en Florida determinó que, en su demanda contra la empresa de reservas de viajes, quienes reclamaban no habían logrado demostrar la titularidad de propiedades turísticas en Cuba.`\
 https://www.nytimes.com/es/2026/08/31/espanol/america-latina/expedia-gana-demanda-cuba.html
