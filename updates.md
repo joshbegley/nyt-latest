@@ -1,3 +1,7 @@
+**Tropical Storm Edouard Makes Landfall Near Texas-Louisiana Border**\
+`The storm made landfall near the Texas and Louisiana state line on Tuesday afternoon.`\
+https://www.nytimes.com/2026/09/01/weather/tropical-storm-edouard-texas-louisiana.html
+
 **As Families Mourn, Police Seek Answers in Fatal Times Square Incident**\
 `The New York Police Department made public the names of some of the people involved in a seemingly random knife attack on a crowded Manhattan street, but questions remained.`\
 https://www.nytimes.com/2026/09/01/nyregion/victims-stabbing-times-square-nyc.html

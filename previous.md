@@ -98,8 +98,8 @@ https://www.nytimes.com/2026/09/01/arts/television/movies-tv-shows-september-202
 `The ships were hit near Oman on Monday, the latest attacks on vessels in the Persian Gulf. Oil prices rose more than 2 percent.`\
 https://www.nytimes.com/2026/09/01/business/ships-oil-hormuz-iran-war.html
 
-**Tropical Storm Edouard Grows Stronger as it Nears Texas and Louisiana Coastline**\
-`The storm made  landfall near the Texas and Louisiana state line on Tuesday afternoon.`\
+**Tropical Storm Edouard Makes Landfall Near Texas-Louisiana Border**\
+`The storm made landfall near the Texas and Louisiana state line on Tuesday afternoon.`\
 https://www.nytimes.com/2026/09/01/weather/tropical-storm-edouard-texas-louisiana.html
 
 **John Galliano Exhibit Implosion Causes a Mess at the Met**\
