@@ -1,3 +1,11 @@
+**The Met Shouldn’t Have Canceled the Galliano Exhibition**\
+`Cancel the Met Gala instead.`\
+https://www.nytimes.com/2026/09/01/opinion/culture/the-met-handled-the-galliano-fiasco-all-wrong-anna-wintour-met-gala-costume-institute-antisemitism.html
+
+**Tiroteo en Times Square: esto es lo que pasó**\
+`La policía le disparó a la mujer después de intentar usar fuerza menos letal, según los funcionarios. Una mujer, de 32 años, murió, y un hombre, de 68, se encuentra estable.`\
+https://www.nytimes.com/es/2026/09/01/espanol/estados-unidos/tiroteo-times-square.html
+
 **Tractors Clog Copenhagen as Farmers Protest Fertilizer Restrictions**\
 `To protect its waters from overexposure to nitrates, Denmark is proposing a crackdown on fertilizer use. Farmers aren’t happy.`\
 https://www.nytimes.com/2026/09/01/world/europe/denmark-farmers-protest-fertilizer.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/01/us/politics/whistle-blower-voting-by-mail.htm
 **How a Teenager Found Undiagnosed Brain Injuries in the Military**\
 `New York Times reporting found that rescue-boat crews in the Coast Guard showed signs of brain injuries from rough seas. A victim’s daughter helped bring the issue to light.`\
 https://www.nytimes.com/2026/09/01/podcasts/the-daily/brain-injuries-coast-guard.html
-
-**The Supreme Court’s Secret Documents, and an Unusual Order From the C.D.C. Director**\
-`Plus, a conviction in the Tupac Shakur murder trial.`\
-https://www.nytimes.com/2026/09/01/podcasts/the-headlines/supreme-court-secret-documents-cdc-director-tupac-trial.html
-
-**Today’s Wordle Hints for September 2, 2026**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, Sept. 2, 2026.`\
-https://www.nytimes.com/2026/09/01/crosswords/wordle-review-1901.html
 
