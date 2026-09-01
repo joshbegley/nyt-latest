@@ -1,3 +1,11 @@
+**Tupac Shakur Was at His Cultural Peak When He Was Killed**\
+`Shortly before he was murdered in 1996, the rapper had released “All Eyez on Me,” a landmark album that turned him into a superstar.`\
+https://www.nytimes.com/2026/08/31/arts/music/tupac-shakur-murder.html
+
+**Dansaekhwa Is a Style That Came to Define Korean Art**\
+`The soothing tones of Dansaekhwa have dominated art circles on the peninsula for years. But it originated in tumultuous times.`\
+https://www.nytimes.com/2026/08/31/arts/design/dansaekhwa-korean-art.html
+
 **Cubism Exhibition at Centre Pompidou Hanwha in Seoul**\
 `In a partnership with the Pompidou Center in Paris, a new institution showcases modern art from Europe and Asia.`\
 https://www.nytimes.com/2026/08/31/arts/cubism-pompidou-hanwha-seoul.html
@@ -189,8 +197,4 @@ https://www.nytimes.com/2026/08/31/briefing/state-fair-crop-art.html
 **The Hypebeasts of the Fringe Festival**\
 `From Hannah Reilly to Amanda Knox to clowns, who are the hype beasts of this year’s Fringe Festival? Our chief theater critic, Helen Shaw, went to Edinburgh to find out.`\
 https://www.nytimes.com/video/theater/100000011066016/the-hypebeasts-of-the-fringe-festival-edinburgh-theater.html
-
-**Messi se retira de la selección argentina**\
-`El retiro de Lionel Messi de la selección nacional de fútbol, aunque se esperaba, desató temores de un equipo disminuido y el desconsuelo por la partida de un ícono nacional.`\
-https://www.nytimes.com/es/2026/08/31/espanol/america-latina/messi-retira-seleccion-argentina.html
 
