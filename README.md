@@ -55,7 +55,7 @@ https://www.nytimes.com/2026/09/01/style/reed-krakoff-gap-bags-coach.html
 https://www.nytimes.com/2026/09/01/style/street-style-look-vintage-mens-wear.html
 
 **Keir Starmer, Former UK Prime Minister, Says He Will Resign From Parliament**\
-`Keir Starmer, who was pushed out of Downing Street by his party, said he would quit his parliamentary seat to focus on international affairs and defense.`\
+`Keir Starmer, who left Downing Street in July after pressure from his own party, said he would quit his parliamentary seat to focus on a role in international affairs and defense.`\
 https://www.nytimes.com/2026/09/01/world/europe/keir-starmer-uk-prime-minister-resigns-mp.html
 
 **Respuestas a tus preguntas sobre Irán**\
@@ -126,8 +126,8 @@ https://www.nytimes.com/2026/09/01/podcasts/looney-tunes-corporate-greed.html
 `Un mago para los magos, era un filósofo del oficio. No quería engañar a la gente; quería compartir su asombro ante lo inexplicable.`\
 https://www.nytimes.com/es/2026/09/01/espanol/juan-tamariz-mago-muere.html
 
-**Lindsay Clancy Murder Trial: Jury Begins Fourth Day of Deliberations**\
-`Entering Tuesday, jurors had spent about 17 hours discussing the case over three days. They have several options for a verdict, ranging from not guilty to first-degree murder.`\
+**Lindsay Clancy Murder Trial: Jury Struggling to Reach a Verdict**\
+`Jurors sent a note after about 18 hours of deliberations saying they were deadlocked. The judge sent them back to keep deliberating.`\
 https://www.nytimes.com/2026/09/01/us/lindsay-clancy-murder-trial-jury-deliberations.html
 
 **Rusia quiere definir qué es un escritor**\
