@@ -1,3 +1,15 @@
+**The Best Movies and TV Shows Coming to Disney+, MGM+, Apple TV, Peacock and More in September**\
+`A Ryan Reynolds and Kenneth Branagh movie, a “Reacher” spinoff and a “LEGO Star Wars” are among this month’s highlights.`\
+https://www.nytimes.com/2026/09/01/arts/television/movies-tv-shows-september-2026-streaming.html
+
+**Two More Oil Tankers Are Attacked in the Strait of Hormuz**\
+`The ships were hit near Oman on Monday, the latest attacks on vessels in the Persian Gulf. Oil prices rose more than 2 percent.`\
+https://www.nytimes.com/2026/09/01/business/ships-oil-hormuz-iran-war.html
+
+**Tropical Storm Edouard Grows Stronger as it Nears Gulf Coast**\
+`The storm was expected to bring heavy rain to Texas and Louisiana on Tuesday.`\
+https://www.nytimes.com/2026/09/01/weather/tropical-storm-edouard-texas-louisiana.html
+
 **A Mess at the Met**\
 `Plus: Unflashy tennis style and a cult-favorite fashion movie back on the big screen.`\
 https://www.nytimes.com/2026/09/01/style/galliano-met-us-open.html
