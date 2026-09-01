@@ -1,3 +1,7 @@
+**EE. UU. quiere extraer más petróleo de Venezuela. Esto es lo que hay que saber**\
+`El acuerdo del gobierno de Trump con una petrolera privada para aumentar la producción de petróleo en el país sudamericano podría tardar muchos años en rendir frutos.`\
+https://www.nytimes.com/es/2026/09/01/espanol/negocios/venezuela-estados-unidos-petroleo-reservas.html
+
 **Has La Mama Made the Next Stylish, Practical It Bag?**\
 `Tired of designer totes that didn’t fit their multifaceted lives, Kate Aubrey and Kyra Griffin took matters into their own hands.`\
 https://www.nytimes.com/2026/09/01/t-magazine/la-mama-bag-tote.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusett
 **Massachusetts Seventh Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Massachusetts primary election.`\
 https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-us-house-7-primary.html
-
-**Massachusetts Third Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Massachusetts primary election.`\
-https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-us-house-3-primary.html
 
