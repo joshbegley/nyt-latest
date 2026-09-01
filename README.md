@@ -1,3 +1,11 @@
+**In College? We Want to Hear From You**\
+`Tell us what’s happening on your campus at one of the links below.`\
+https://www.nytimes.com/2026/09/01/briefing/in-college-we-want-to-hear-from-you.html
+
+**New York Climate ‘Superfund’ Law Falls in Court**\
+`The court said the measure, which required energy companies to pay $75 billion to the state, conflicted with federal law.`\
+https://www.nytimes.com/2026/09/01/climate/new-york-climate-superfund-law.html
+
 **What’s Your Side Hustle?**\
 `We want to know how you make money and pay the bills outside class. Send us your side hustles.`\
 https://www.nytimes.com/2026/09/01/briefing/whats-your-side-hustle.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/09/01/world/europe/juan-tamariz-dead.html
 **6 Beaches With Refreshingly Cool Water**\
 `In this sweltering summer, a cool dip might be just what you need. Here are beaches where the water will help you beat the heat.`\
 https://www.nytimes.com/2026/09/01/travel/cool-water-beaches-labor-day.html
-
-**Deliciously Twisted New Thrillers**\
-`Our columnist on three of the month’s best new releases.`\
-https://www.nytimes.com/2026/09/01/books/review/deliciously-twisted-new-thrillers.html
-
-**How the Supreme Court Locks Away Its Own History**\
-`Supreme Court justices could keep the court’s internal working papers hidden for decades. Our investigative reporter Jodi Kantor explains why those records matter — and what sealing them away means for our understanding of key decisions by the nation’s highest court.`\
-https://www.nytimes.com/video/us/100000011097291/how-the-supreme-court-locks-away-its-own-history.html
 
