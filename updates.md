@@ -1,3 +1,7 @@
+**Keir Starmer, Former UK Prime Minister, Says He Will Resign From Parliament**\
+`Keir Starmer, who was pushed out of Downing Street by his party, said he would quit his parliamentary seat to focus on international affairs and defense.`\
+https://www.nytimes.com/2026/09/01/world/europe/keir-starmer-uk-prime-minister-resigns-mp.html
+
 **Respuestas a tus preguntas sobre Irán**\
 `En esta ocasión le damos la palabra a reporteros que cubren diplomacia, la Casa Blanca, Medio Oriente y más.`\
 https://www.nytimes.com/es/2026/09/01/espanol/mundo/respuestas-preguntas-iran.html

@@ -1,3 +1,7 @@
+**Keir Starmer, Former UK Prime Minister, Says He Will Resign From Parliament**\
+`Keir Starmer, who was pushed out of Downing Street by his party, said he would quit his parliamentary seat to focus on international affairs and defense.`\
+https://www.nytimes.com/2026/09/01/world/europe/keir-starmer-uk-prime-minister-resigns-mp.html
+
 **Respuestas a tus preguntas sobre Irán**\
 `En esta ocasión le damos la palabra a reporteros que cubren diplomacia, la Casa Blanca, Medio Oriente y más.`\
 https://www.nytimes.com/es/2026/09/01/espanol/mundo/respuestas-preguntas-iran.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/01/opinion/christian-women-voting-culture.html
 **Adult Swim 25th Anniversary: 6 Defining Animated Shows**\
 `For 25 years, it’s been an outpost for unhinged mayhem. These six signature shows helped turn low-budget TV into a surreal comedy powerhouse.`\
 https://www.nytimes.com/2026/09/01/arts/television/adult-swim-anniversary-best-shows.html
-
-**Can Ancient Ruins Be Protected From Wildfires? Greece Is Trying.**\
-`As blazes surge across Europe, the country is making a trade-off to protect its heritage by fireproofing sites at the risk of spoiling the surrounding landscape.`\
-https://www.nytimes.com/2026/09/01/world/europe/greece-wildfires-ancient-sites.html
 
