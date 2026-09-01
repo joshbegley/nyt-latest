@@ -38,7 +38,7 @@ https://www.nytimes.com/2026/09/01/opinion/supreme-court-trump-ballroom.html
 `The Trump administration’s deal with a private oil company to increase oil production in the South American country could take many years to come to fruition.`\
 https://www.nytimes.com/2026/09/01/business/energy-environment/venezuela-oil-trump-deal.html
 
-**U.S. Launches Strikes in Iran Targeting IRGC**\
+**U.S. Strikes Iran Over Strait of Hormuz Mines, Trump Says**\
 `U.S. Central Command did not say precisely what it was trying to destroy in Iran, but it said the attacks were aimed at Iran’s Islamic Revolutionary Guards Corps.`\
 https://www.nytimes.com/2026/09/01/us/politics/us-launches-air-strikes-iran.html
 
