@@ -34,8 +34,8 @@ https://www.nytimes.com/2026/08/31/us/wendell-berry-dead.html
 `The new round values the prediction market at $21 billion, up from $15 billion. Mr. Trump’s firm, 1789 Capital, will invest around $300 million.`\
 https://www.nytimes.com/2026/08/31/business/polymarket-funding-trump.html
 
-**Tupac Shakur Murder Trial Updates: Man Found Guilty in Rap Star’s Killing**\
-`Duane Keith Davis was charged with orchestrating the 1996 drive-by shooting that killed Mr. Shakur, a rapper at the height of his popularity. Prosecutors cited portions of Mr. Davis’s disavowed memoir.`\
+**Tupac Shakur Murder Trial Updates: Man Found Guilty of Orchestrating Rap Star’s Killing**\
+`A jury convicted Duane Keith Davis, 63, in the 1996 drive-by shooting that killed Mr. Shakur, a rapper at the height of his popularity. Prosecutors cited portions of Mr. Davis’s disavowed memoir.`\
 https://www.nytimes.com/live/2026/08/31/arts/tupac-murder-trial-verdict-duane-davis
 
 **Trump Renews Push for Federal Film Tax Credit**\
