@@ -1,3 +1,75 @@
+**Massachusetts Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Massachusetts primary elections.`\
+https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-primary.html
+
+**Massachusetts U.S. Senate Primary 2026: Live Election Results, Markey vs. Moulton**\
+`Get live results and maps from the 2026 Massachusetts primary election.`\
+https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-us-senate-primary.html
+
+**Massachusetts Governor Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Massachusetts primary election.`\
+https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-governor-primary.html
+
+**Massachusetts Sixth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Massachusetts primary election.`\
+https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-us-house-6-primary.html
+
+**Massachusetts Eighth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Massachusetts primary election.`\
+https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-us-house-8-primary.html
+
+**Map: 3.6-Magnitude Earthquake Shakes Texas**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/09/01/us/quake-tracker-texas.html
+
+**Massachusetts Fifth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Massachusetts primary election.`\
+https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-us-house-5-primary.html
+
+**Massachusetts Third Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Massachusetts primary election.`\
+https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-us-house-3-primary.html
+
+**Massachusetts Auditor Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Massachusetts primary election.`\
+https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-auditor-primary.html
+
+**Massachusetts Attorney General Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Massachusetts primary election.`\
+https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-attorney-general-primary.html
+
+**Massachusetts Seventh Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Massachusetts primary election.`\
+https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-us-house-7-primary.html
+
+**Massachusetts First Congressional District Primary 2026: Live Election Results, Neal vs. Whalen**\
+`Get live results and maps from the 2026 Massachusetts primary election.`\
+https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-us-house-1-primary.html
+
+**Massachusetts Ninth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Massachusetts primary election.`\
+https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-us-house-9-primary.html
+
+**Massachusetts Fourth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Massachusetts primary election.`\
+https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-us-house-4-primary.html
+
+**Massachusetts Lieutenant Governor Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Massachusetts primary election.`\
+https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-lieutenant-governor-primary.html
+
+**Massachusetts Secretary of State Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Massachusetts primary election.`\
+https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-secretary-of-state-primary.html
+
+**Massachusetts Second Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Massachusetts primary election.`\
+https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-us-house-2-primary.html
+
+**Massachusetts Treasurer Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Massachusetts primary election.`\
+https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-treasurer-primary.html
+
 **El secretario del Ejército de EE. UU. renuncia**\
 `La renuncia de Daniel P. Driscoll se esperaba, pero ocurre mientras la institución se enfrenta a su periodo de mayor actividad desde las guerras de Irak y Afganistán.`\
 https://www.nytimes.com/es/2026/09/01/espanol/estados-unidos/secretario-ejercito-renuncia.html
@@ -125,76 +197,4 @@ https://www.nytimes.com/interactive/2026/09/01/weather/marie-map-path-tracker.ht
 **US Open Day 2: Alcaraz Shows Tennis What It’s Been Missing**\
 `The reigning champion made his long-awaited return from a wrist injury on Monday.`\
 https://www.nytimes.com/2026/09/01/podcasts/us-open-alcaraz-tennis.html
-
-**The Voice of Looney Tunes on Corporate Greed**\
-`How a Warner Bros. merger almost turned “Coyote vs. Acme” into a tax write-off.`\
-https://www.nytimes.com/2026/09/01/podcasts/looney-tunes-corporate-greed.html
-
-**Juan Tamariz, el maestro irreverente de la magia de cerca, muere a los 83 años**\
-`Un mago para los magos, era un filósofo del oficio. No quería engañar a la gente; quería compartir su asombro ante lo inexplicable.`\
-https://www.nytimes.com/es/2026/09/01/espanol/juan-tamariz-mago-muere.html
-
-**Lindsay Clancy Murder Trial: Jury Struggling to Reach a Verdict**\
-`Jurors sent a note after about 18 hours of deliberations saying they were deadlocked. The judge sent them back to keep deliberating.`\
-https://www.nytimes.com/2026/09/01/us/lindsay-clancy-murder-trial-jury-deliberations.html
-
-**Rusia quiere definir qué es un escritor**\
-`Este mes entran en vigor nuevas normas profesionales en Rusia que dictan lo que significa ser escritor.`\
-https://www.nytimes.com/es/2026/09/01/espanol/opinion/rusia-putin-censura-escritores.html
-
-**Corrections: Sept. 1, 2026**\
-`Corrections that appeared in print on Tuesday, Sept. 1, 2026.`\
-https://www.nytimes.com/2026/09/01/pageoneplus/corrections-sept-1-2026.html
-
-**The Bidet Episode**\
-`We talk to Wirecutter’s expert about the best one for every bum.`\
-https://www.nytimes.com/2026/09/01/podcasts/the-bidet-episode.html
-
-**‘Furious’ Is a Story of Complex Women and Ineffable Emotions**\
-`The Hulu crime drama, which just finished its first season, is Elizabeth Meriwether’s latest story of complicated women and ineffable emotions.`\
-https://www.nytimes.com/2026/09/01/arts/television/furious-season-finale.html
-
-**In Jackson, Wyoming, a Couple Built an A.D.U. and Moved In**\
-`When the Prichards were ready to downsize, building an accessory dwelling unit and charging rent on their house felt like the most practical option.`\
-https://www.nytimes.com/2026/09/01/realestate/jackson-hole-adu.html
-
-**U.S. Sanctions on Iran Cut Off Students From Tests Needed for Study Abroad**\
-`The latest measures have forced the cancellation of English proficiency and graduate exams, isolating many Iranians most eager to foster ties with the world.`\
-https://www.nytimes.com/2026/09/01/world/middleeast/iran-study-abroad-sanctions.html
-
-**What Motivates the Sewer Explorers?**\
-`People are lifting manhole covers and going underground. No one is sure why.`\
-https://www.nytimes.com/2026/09/01/nyregion/what-motivates-the-sewer-explorers.html
-
-**What to Watch in the Massachusetts Primary Election**\
-`Senator Edward Markey, who began his congressional career in 1976, faces a challenge from Representative Seth Moulton.`\
-https://www.nytimes.com/2026/09/01/us/politics/massachusetts-election-what-to-watch.html
-
-**Solve a “Saturday Night Live” Themed Crossword Puzzle**\
-`Rachel Dratch, the comedian and writer who was a cast member on “Saturday Night Live,” co-constructed this puzzle.`\
-https://www.nytimes.com/2026/09/01/crosswords/special-saturday-night-live-crossword.html
-
-**The U.S. Military Must Learn to Say No to Trump**\
-`How senior leaders of the armed forces dodge accountability.`\
-https://www.nytimes.com/2026/09/01/opinion/air-force-military-trump.html
-
-**John Boorman Reflects on Why ‘Exorcist II’ Bombed in 1977**\
-`The filmmaker John Boorman speaks candidly in a new documentary that aims to reassess the notorious failure. (For one, it wasn’t really scary.)`\
-https://www.nytimes.com/2026/09/01/movies/exorcist-ii-john-boorman-documentary.html
-
-**Markey Leads Moulton in Polls of Senate Primary in Massachusetts**\
-`Senator Ed Markey had double digit leads in every poll of the Democratic primary for Senate in August after Seth Moulton briefly narrowed the gap this spring.`\
-https://www.nytimes.com/2026/09/01/us/elections/massachusetts-senate-primary-polls-markey-moulton.html
-
-**The U.S. Open Is Now a Food Festival With a Side of Tennis**\
-`Between Honey Deuces, Salt Hank’s and premium dining, you could almost forget there are matches happening at the Billie Jean King National Tennis Center.`\
-https://www.nytimes.com/2026/09/01/dining/us-open-food-festival.html
-
-**Trump Wants to Break America’s Promise to Poor Children**\
-`Trump’s proposed rollback of Head Start standards will harm poor children and benefit no one.`\
-https://www.nytimes.com/2026/09/01/opinion/head-start-education-funding.html
-
-**Kandinsky Work Returned to Jewish Heirs by a German Museum to Be Sold**\
-`Christie’s expects the major painting, “The Colorful Life,” to draw bids exceeding $30 million when it comes up at auction in October.`\
-https://www.nytimes.com/2026/09/01/arts/design/kandinsky-art-jewish-heirs-auction.html
 
