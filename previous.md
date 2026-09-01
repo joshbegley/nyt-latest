@@ -1,5 +1,9 @@
-**Ex-Girlfriend of Texas Oil Tycoon Seeks Settlement After Breakup**\
-`Oona O. Sperr, a New York interior designer, believes her longtime partner, the billionaire Sid Bass, owes her after he walked back promises of financial support.`\
+**Canada’s Carney Ties Resuming Trade Talks to Trump Administration Insults**\
+`Amid a trade war, Canada’s Liberals swept three special votes and new polling suggested strong support for Prime Minister Mark Carney and his retaliatory tariffs against the U.S.`\
+https://www.nytimes.com/2026/09/01/world/canada/carney-trump-trade-war.html
+
+**Ex-Girlfriend of Thrice-Married Billionaire Sues Over ‘Broken Promises’**\
+`Oona O. Sperr, a New York interior designer, believes her longtime partner, the Texas oil tycoon Sid Bass, owes her after he walked back offers of financial support.`\
 https://www.nytimes.com/2026/09/01/nyregion/sid-bass-divorce-settlement.html
 
 **EE. UU. quiere extraer más petróleo de Venezuela. Esto es lo que hay que saber**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusett
 **Massachusetts Fourth Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Massachusetts primary election.`\
 https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-us-house-4-primary.html
-
-**Massachusetts Second Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Massachusetts primary election.`\
-https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-us-house-2-primary.html
 

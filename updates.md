@@ -1,3 +1,11 @@
+**Canada’s Carney Ties Resuming Trade Talks to Trump Administration Insults**\
+`Amid a trade war, Canada’s Liberals swept three special votes and new polling suggested strong support for Prime Minister Mark Carney and his retaliatory tariffs against the U.S.`\
+https://www.nytimes.com/2026/09/01/world/canada/carney-trump-trade-war.html
+
+**Ex-Girlfriend of Thrice-Married Billionaire Sues Over ‘Broken Promises’**\
+`Oona O. Sperr, a New York interior designer, believes her longtime partner, the Texas oil tycoon Sid Bass, owes her after he walked back offers of financial support.`\
+https://www.nytimes.com/2026/09/01/nyregion/sid-bass-divorce-settlement.html
+
 **Tropical Storm Edouard Grows Stronger as it Nears Texas and Louisiana Coastline**\
 `The storm made  landfall near the Texas and Louisiana state line on Tuesday afternoon.`\
 https://www.nytimes.com/2026/09/01/weather/tropical-storm-edouard-texas-louisiana.html
