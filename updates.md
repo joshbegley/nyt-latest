@@ -1,3 +1,7 @@
+**House Censures Republican Accused of Sexually Harassing Two Aides**\
+`Representative Chuck Edwards received a formal rebuke on the floor after a speech in which he apologized for his conduct but said it did not constitute harassment.`\
+https://www.nytimes.com/2026/09/01/us/politics/house-censure-chuck-edwards.html
+
 **Shooting at Tucson Gay Bar That Killed 2 Investigated as Hate Crime**\
 `Two men were fatally shot in the bar’s parking lot early Monday morning. The suspected gunman, who also died, was carrying a list of other L.G.B.T.Q.-friendly businesses, the police said.`\
 https://www.nytimes.com/2026/09/01/us/tucson-gay-bar-shooting.html
