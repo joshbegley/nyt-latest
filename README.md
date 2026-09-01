@@ -1,3 +1,7 @@
+**Tractors Clog Copenhagen as Farmers Protest Fertilizer Restrictions**\
+`To protect its waters from overexposure to nitrates, Denmark is proposing a crackdown on fertilizer use. Farmers aren’t happy.`\
+https://www.nytimes.com/2026/09/01/world/europe/denmark-farmers-protest-fertilizer.html
+
 **How to Help Nepal Flood Victims**\
 `More than 1,000 people have been killed in a Himalayan landslide and flooding, and thousands more are missing. Here’s how you can help.`\
 https://www.nytimes.com/2026/09/01/world/asia/nepal-floods-tibet-aid-relief-how-donate.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/01/podcasts/the-headlines/supreme-court-secret-d
 **Today’s Wordle Hints for September 2, 2026**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, Sept. 2, 2026.`\
 https://www.nytimes.com/2026/09/01/crosswords/wordle-review-1901.html
-
-**NYT Strands Hints for September 2, 2026**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, Sept. 2, 2026.`\
-https://www.nytimes.com/2026/09/01/crosswords/strands-sidekick-913.html
 
