@@ -1,3 +1,15 @@
+**Consider the Bollard, Stubborn Sidewalk Cop of the Post-9/11 City**\
+`A symbol of the hardening of America’s urban landscapes — and also a decent perch for a quick slice of pizza.`\
+https://www.nytimes.com/2026/09/01/nyregion/consider-the-bollard-stubborn-sidewalk-cop-of-the-post-9-11-city.html
+
+**Esta obra maestra es la novela de la década, o quizá del siglo**\
+`La historia de Marlon James sobre la experiencia gay y la homofobia asesina en Jamaica es un festín maximalista, y el mejor libro hasta ahora del ganador del Premio Booker.`\
+https://www.nytimes.com/es/2026/09/01/espanol/cultura/disappearers-novela-marlon-james.html
+
+**NYT Spelling Bee Answers for September 1, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/09/01/crosswords/spelling-bee-forum.html
+
 **Vance Defends Approach to Antisemitism in Remarks to Jewish Conservatives**\
 `In private remarks, Vice President JD Vance explained why he engages with some influencers accused of antisemitism. He also urged the audience to help articulate why a strong relationship with Israel is in America’s interest.`\
 https://www.nytimes.com/2026/09/01/us/politics/vance-republican-jewish-committee.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/08/31/us/politics/canada-bessent-carney-trade.html
 **Mother Recalls How She Lost Her Child in Cyprus Ferry Accident**\
 `A mother lost her two children after a ferry capsized near Cyprus. In total eight people were killed and 20 are still missing.`\
 https://www.nytimes.com/video/world/europe/100000011123417/cyprus-ferry-accident-mother-children.html
-
-**Your Iran Questions, Answered**\
-`Today, we hand the mic over to reporters covering diplomacy, the White House, the Middle East and more.`\
-https://www.nytimes.com/2026/08/31/world/iran-war-john-galliano.html
-
-**El director de una escuela salvó a 900 estudiantes de las inundaciones en Nepal**\
-`Rajendra Dawadi tuvo menos de 15 minutos para actuar ante una alerta por la crecida de las aguas. Su rápido plan de evacuación salvó cientos de vidas.`\
-https://www.nytimes.com/es/2026/08/31/espanol/mundo/nepal-inundacion-director-escuela-salva-estudiantes.html
-
-**Supreme Court Allows Trump’s White House Ballroom Construction**\
-`Lower-court rulings would have blocked construction of the 90,000-square-foot ballroom after finding that the Trump administration should have first sought approval from Congress.`\
-https://www.nytimes.com/2026/08/31/us/politics/supreme-court-trump-ballroom.html
 

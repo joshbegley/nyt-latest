@@ -1,3 +1,15 @@
+**Consider the Bollard, Stubborn Sidewalk Cop of the Post-9/11 City**\
+`A symbol of the hardening of America’s urban landscapes — and also a decent perch for a quick slice of pizza.`\
+https://www.nytimes.com/2026/09/01/nyregion/consider-the-bollard-stubborn-sidewalk-cop-of-the-post-9-11-city.html
+
+**Esta obra maestra es la novela de la década, o quizá del siglo**\
+`La historia de Marlon James sobre la experiencia gay y la homofobia asesina en Jamaica es un festín maximalista, y el mejor libro hasta ahora del ganador del Premio Booker.`\
+https://www.nytimes.com/es/2026/09/01/espanol/cultura/disappearers-novela-marlon-james.html
+
+**NYT Spelling Bee Answers for September 1, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/09/01/crosswords/spelling-bee-forum.html
+
 **Two Dead in Grand Canyon Flood**\
 `Officials said search efforts continued as they confirmed a second death on Monday after flash floods hit the Grand Canyon National Park.`\
 https://www.nytimes.com/video/us/100000011123621/grand-canyon-flash-flood-deaths.html
