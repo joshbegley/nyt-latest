@@ -1,3 +1,11 @@
+**A Daisy Chain Fields Soundtrack**\
+`Hear tracks performed by Chappell Roan, Bikini Kill, Doechii and, of course, Olivia Rodrigo.`\
+https://www.nytimes.com/2026/09/01/arts/music/a-daisy-chain-fields-soundtrack.html
+
+**Apple tiene un nuevo CEO, de Tim Cook a John Ternus**\
+`John Ternus sustituye a Tim Cook como director ejecutivo de Apple en medio de cambios tecnológicos y de gestión importantes. Cook se mantendrá como presidente ejecutivo.`\
+https://www.nytimes.com/es/2026/09/01/espanol/negocios/apple-nuevo-ceo-quien-es.html
+
 **A Data Center Backlash**\
 `Today we visit Pennsylvania, where there’s a high-stakes clash over A.I. jobs and the environment.`\
 https://www.nytimes.com/2026/09/01/climate/climate-forward-data-center-backlash.html
@@ -11,7 +19,7 @@ https://www.nytimes.com/2026/09/01/opinion/supreme-court-trump-ballroom.html
 https://www.nytimes.com/2026/09/01/business/energy-environment/venezuela-oil-trump-deal.html
 
 **U.S. Launches Strikes in Iran Targeting IRGC**\
-`U.S. Central Command did not say precisely what it was trying to destroy in Iran, but it said the attacks were aimed at Iran’s Islamic Revolutionary Guards Corps.`\
+`U.S. Central Command did not say precisely what it was trying to destroy in Iran, but it said the attacks were aimed at Iran’s Islamic Revolutionary Guards Corps. The two sides had exchanged fire on Sunday.`\
 https://www.nytimes.com/2026/09/01/us/politics/us-launches-air-strikes-iran.html
 
 **These Ukrainian Children Go to School Underground. They’re the Lucky Ones.**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/es/2026/09/01/espanol/estados-unidos/secretario-ejercito
 **Sliman Mansour, Artist Who Depicted Palestinian Struggle, Dies at 79**\
 `His idealized images of heroic Palestinian women, men and children made their way into hundreds of homes as inspirational posters.`\
 https://www.nytimes.com/2026/09/01/arts/sliman-mansour-dead.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/us/politics/100000011125476/01vid-bessent-strait-7423.html
-
-**Lancaster Coroner Investigating Death of Child With Measles**\
-`It was not yet clear whether the case was one of the two deaths announced by Pennsylvania state health officials last week, or if it represents an additional death.`\
-https://www.nytimes.com/2026/09/01/well/measles-pennsylvania-lancaster-coroner.html
 

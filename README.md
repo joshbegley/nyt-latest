@@ -1,3 +1,11 @@
+**China y EE. UU. muestran formas enfrentadas de poder mundial**\
+`Mientras Xi Jinping se reunía con los líderes de Rusia e Irán, Europa desafió al gobierno de Trump en el G20, lo que ofreció una visión en pantalla dividida de un mundo cambiante.`\
+https://www.nytimes.com/es/2026/09/01/espanol/mundo/estados-unidos-china-g20-poder.html
+
+**House Votes to Avert Government Shutdown Before Midterm Elections**\
+`Lawmakers sent the legislation to President Trump in an overwhelming vote, reflecting bipartisan enthusiasm around punting a messy spending fight until after the midterms.`\
+https://www.nytimes.com/2026/09/01/us/politics/house-vote-government-shutdown.html
+
 **A Daisy Chain Fields Soundtrack**\
 `Hear tracks performed by Chappell Roan, Bikini Kill, Doechii and, of course, Olivia Rodrigo.`\
 https://www.nytimes.com/2026/09/01/arts/music/a-daisy-chain-fields-soundtrack.html
@@ -54,7 +62,7 @@ https://www.nytimes.com/interactive/2026/09/01/arts/yayoi-kusama-art-pieces.html
 `Rescue teams in Nepal continued trying to reach hundreds of workers believed trapped inside hydropower plant tunnels.`\
 https://www.nytimes.com/video/world/asia/100000011125332/nepal-flash-floods-rescue-hydropower-plants.html
 
-**The Best Movies and TV Shows Coming to Disney+, MGM+, Apple TV, Peacock and More in September**\
+**Best Movies and Shows Streaming in September 2026: ‘Brothers,’ ‘MobLand’ and More**\
 `A Ryan Reynolds and Kenneth Branagh movie, a “Reacher” spinoff and a “LEGO Star Wars” are among this month’s highlights.`\
 https://www.nytimes.com/2026/09/01/arts/television/movies-tv-shows-september-2026-streaming.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusett
 **Map: 3.6-Magnitude Earthquake Shakes Texas**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/09/01/us/quake-tracker-texas.html
-
-**El secretario del Ejército de EE. UU. renuncia**\
-`La renuncia de Daniel P. Driscoll se esperaba, pero ocurre mientras la institución se enfrenta a su periodo de mayor actividad desde las guerras de Irak y Afganistán.`\
-https://www.nytimes.com/es/2026/09/01/espanol/estados-unidos/secretario-ejercito-renuncia.html
-
-**Sliman Mansour, Artist Who Depicted Palestinian Struggle, Dies at 79**\
-`His idealized images of heroic Palestinian women, men and children made their way into hundreds of homes as inspirational posters.`\
-https://www.nytimes.com/2026/09/01/arts/sliman-mansour-dead.html
 

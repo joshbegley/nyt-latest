@@ -1,3 +1,15 @@
+**A Daisy Chain Fields Soundtrack**\
+`Hear tracks performed by Chappell Roan, Bikini Kill, Doechii and, of course, Olivia Rodrigo.`\
+https://www.nytimes.com/2026/09/01/arts/music/a-daisy-chain-fields-soundtrack.html
+
+**Apple tiene un nuevo CEO, de Tim Cook a John Ternus**\
+`John Ternus sustituye a Tim Cook como director ejecutivo de Apple en medio de cambios tecnológicos y de gestión importantes. Cook se mantendrá como presidente ejecutivo.`\
+https://www.nytimes.com/es/2026/09/01/espanol/negocios/apple-nuevo-ceo-quien-es.html
+
+**U.S. Launches Strikes in Iran Targeting IRGC**\
+`U.S. Central Command did not say precisely what it was trying to destroy in Iran, but it said the attacks were aimed at Iran’s Islamic Revolutionary Guards Corps. The two sides had exchanged fire on Sunday.`\
+https://www.nytimes.com/2026/09/01/us/politics/us-launches-air-strikes-iran.html
+
 **A Data Center Backlash**\
 `Today we visit Pennsylvania, where there’s a high-stakes clash over A.I. jobs and the environment.`\
 https://www.nytimes.com/2026/09/01/climate/climate-forward-data-center-backlash.html
