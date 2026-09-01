@@ -1,3 +1,11 @@
+**Tractor Protest in Copenhagen Over Fertilizer Restrictions**\
+`Farmers drove tractors into Copenhagen to protest stricter limits on fertilizer use. They said these restrictions could cut yields and make their farms unprofitable.`\
+https://www.nytimes.com/video/world/europe/100000011125816/protest-fertilizer-restrictions-copenhagen-denmark.html
+
+**U.S. Launches Strikes in Iran Targeting IRGC**\
+`U.S. Central Command did not say precisely what it was trying to destroy in Iran, but it said the attacks were aimed at Iran’s Islamic Revolutionary Guards Corps.`\
+https://www.nytimes.com/2026/09/01/us/politics/us-launches-air-strikes-iran.html
+
 **China y EE. UU. muestran formas enfrentadas de poder mundial**\
 `Mientras Xi Jinping se reunía con los líderes de Rusia e Irán, Europa desafió al gobierno de Trump en el G20, lo que ofreció una visión en pantalla dividida de un mundo cambiante.`\
 https://www.nytimes.com/es/2026/09/01/espanol/mundo/estados-unidos-china-g20-poder.html
