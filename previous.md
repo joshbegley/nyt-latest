@@ -1,3 +1,11 @@
+**A Mess at the Met**\
+`Plus: Unflashy tennis style and a cult-favorite fashion movie back on the big screen.`\
+https://www.nytimes.com/2026/09/01/style/galliano-met-us-open.html
+
+**Weeks After Failed Drone Attack, Germany Points Finger at Russia**\
+`The country said Moscow was behind an explosive-laden drone found near a Ukrainian plane at a German airport last month. Russia did not immediately comment.`\
+https://www.nytimes.com/2026/09/01/world/europe/germany-russia-drone-airport.html
+
 **Can a Museum Accept Artifacts With Slim Records? Toledo Has a Plan.**\
 `Curators from Ethiopia and the Toledo Museum will study a prized, but thinly documented, trove of antiquities to decide which must be returned because of questionable provenance.`\
 https://www.nytimes.com/2026/09/01/arts/ethiopian-artifacts-toledo-museum-provenance.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/es/2026/09/01/espanol/mundo/respuestas-preguntas-iran.ht
 **Submit Your Story to Missed Connections**\
 `We want to know about your class crushes, your friend crushes and the meet-cutes you have on campus.`\
 https://www.nytimes.com/2026/09/01/briefing/submit-your-story-to-missed-connections.html
-
-**Bond Sell-Off Threatens to Squeeze Borrowers Around the World**\
-`Government yields are hitting multi-decade highs, reflecting anxiety about debt levels, deficits and inflation. The effects will extend to mortgages, business loans and other types of credit.`\
-https://www.nytimes.com/2026/09/01/business/bond-yields-debt.html
-
-**China Censors and Punishes to Shape Narrative on Floods in Tibet, a Contrast to Nepal**\
-`While journalists can report freely on grief and anger in Nepal, China’s official media have presented a sanitized disaster aftermath in Tibet.`\
-https://www.nytimes.com/2026/09/01/world/asia/china-tibet-floods-nepal-censorship.html
 

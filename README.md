@@ -1,3 +1,11 @@
+**Two More Oil Tankers Are Attacked in the Strait of Hormuz**\
+`The ships were hit near Oman on Monday, the latest attacks on vessels in the Persian Gulf. Oil prices rose more than 2 percent.`\
+https://www.nytimes.com/2026/09/01/business/ships-oil-hormuz-iran-war.html
+
+**Tropical Storm Edouard Grows Stronger as it Nears Gulf Coast**\
+`The storm was expected to bring heavy rain to Texas and Louisiana on Tuesday.`\
+https://www.nytimes.com/2026/09/01/weather/tropical-storm-edouard-texas-louisiana.html
+
 **A Mess at the Met**\
 `Plus: Unflashy tennis style and a cult-favorite fashion movie back on the big screen.`\
 https://www.nytimes.com/2026/09/01/style/galliano-met-us-open.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/01/style/street-style-look-vintage-mens-wear.htm
 **Keir Starmer, Former UK Prime Minister, Says He Will Resign From Parliament**\
 `Keir Starmer, who left Downing Street in July after pressure from his own party, said he would quit his parliamentary seat to focus on a role in international affairs and defense.`\
 https://www.nytimes.com/2026/09/01/world/europe/keir-starmer-uk-prime-minister-resigns-mp.html
-
-**Respuestas a tus preguntas sobre Irán**\
-`En esta ocasión le damos la palabra a reporteros que cubren diplomacia, la Casa Blanca, Medio Oriente y más.`\
-https://www.nytimes.com/es/2026/09/01/espanol/mundo/respuestas-preguntas-iran.html
-
-**Submit Your Story to Missed Connections**\
-`We want to know about your class crushes, your friend crushes and the meet-cutes you have on campus.`\
-https://www.nytimes.com/2026/09/01/briefing/submit-your-story-to-missed-connections.html
 
