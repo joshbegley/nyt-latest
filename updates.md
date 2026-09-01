@@ -1,3 +1,7 @@
+**How THC Edibles Can Affect Your Driving**\
+`The study, one of the first to examine how edibles affect driving, tested impairment after various doses of cannabis gummies.`\
+https://www.nytimes.com/2026/09/01/well/thc-gummies-edibles-driving.html
+
 **Canada’s Carney Ties Resuming Trade Talks to Trump Administration Insults**\
 `Amid a trade war, Canada’s Liberals swept three special votes and new polling suggested strong support for Prime Minister Mark Carney and his retaliatory tariffs against the U.S.`\
 https://www.nytimes.com/2026/09/01/world/canada/carney-trump-trade-war.html

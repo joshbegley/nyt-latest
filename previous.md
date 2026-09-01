@@ -134,8 +134,8 @@ https://www.nytimes.com/2026/09/01/world/europe/denmark-farmers-protest-fertiliz
 `More than 1,000 people have been killed in a Himalayan landslide and flooding, and thousands more are missing. Here’s how you can help.`\
 https://www.nytimes.com/2026/09/01/world/asia/nepal-floods-tibet-aid-relief-how-donate.html
 
-**How THC Edibles Could Affect Your Driving**\
-`A new study tested drivers’ impairment after taking different doses of cannabis gummies.`\
+**How THC Edibles Can Affect Your Driving**\
+`The study, one of the first to examine how edibles affect driving, tested impairment after various doses of cannabis gummies.`\
 https://www.nytimes.com/2026/09/01/well/thc-gummies-edibles-driving.html
 
 **Today, In Short**\
