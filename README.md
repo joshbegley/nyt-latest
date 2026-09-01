@@ -1,3 +1,7 @@
+**Hegseth Targets 7 More Officers as His Frustrated Army Secretary Quits**\
+`The defense secretary’s cuts, which have hit about 10 percent of the military’s top officers, are dividing the Pentagon, officials said.`\
+https://www.nytimes.com/2026/09/01/us/hegseth-purge-army-officers.html
+
 **Have You Felt Any Impact From Trump’s ‘Big Beautiful Bill’? Tell Us How.**\
 `To help us report upcoming stories, we want to hear whether President Trump’s signature domestic legislation has had any effect on your household budget.`\
 https://www.nytimes.com/2026/09/01/us/trump-big-beautiful-bill-effects.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/01/style/galliano-met-us-open.html
 **Weeks After Failed Drone Attack, Germany Points Finger at Russia**\
 `The country said Moscow was behind an explosive-laden drone found near a Ukrainian plane at a German airport last month. Russia said Germany had provided no evidence.`\
 https://www.nytimes.com/2026/09/01/world/europe/germany-russia-drone-airport.html
-
-**Can a Museum Accept Artifacts With Slim Records? Toledo Has a Plan.**\
-`Curators from Ethiopia and the Toledo Museum will study a prized, but thinly documented, trove of antiquities to decide which must be returned because of questionable provenance.`\
-https://www.nytimes.com/2026/09/01/arts/ethiopian-artifacts-toledo-museum-provenance.html
 
