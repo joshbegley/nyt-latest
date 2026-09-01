@@ -1,3 +1,15 @@
+**The Ritual of Coffin Making in a City Hit by Ebola**\
+`While several coffin makers in Bunia said they were providing a public service, the virus has put them at the center of a debate around safe burials.`\
+https://www.nytimes.com/2026/09/01/world/africa/congo-ebola-coffins.html
+
+**Quote of the Day: Hidden Gusher of Money Is Upending the Midterms**\
+`Quotation of the Day for Tuesday, September 01, 2026.`\
+https://www.nytimes.com/2026/09/01/pageoneplus/quote-of-the-day-hidden-gusher-of-money-is-upending-the-midterms.html
+
+**Entre guerras y sanciones, Irán y Rusia miran hacia China**\
+`Una conferencia de dos días de la Organización de Cooperación de Shanghái, conformada por 10 naciones, en Kirguistán, muestra los límites de la guerra económica de EE. UU.`\
+https://www.nytimes.com/es/2026/09/01/espanol/mundo/cumbre-kirguistan-china-iran-rusia.html
+
 **California Lawmakers Pass Ban on Shock Gloves**\
 `The California Legislature moved quickly to approve the legislation in an attempt to stop ICE agents from using the gloves.  Local law enforcement agencies have come out against the bill.`\
 https://www.nytimes.com/2026/08/31/us/california-taser-gloves.html
