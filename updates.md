@@ -1,3 +1,11 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011125529/01vid-bessent-assets-41494.html
+
+**How to Help Nepal Flash Flood Victims**\
+`More than 1,000 people have been killed in a Himalayan landslide and flooding, and thousands more are missing. Here’s how you can help.`\
+https://www.nytimes.com/2026/09/01/world/asia/nepal-floods-tibet-aid-relief-how-donate.html
+
 **The Met Shouldn’t Have Canceled the Galliano Exhibition**\
 `Cancel the Met Gala instead.`\
 https://www.nytimes.com/2026/09/01/opinion/culture/john-galliano-met-exhibition.html
