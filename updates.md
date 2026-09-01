@@ -1,3 +1,7 @@
+**As Families Mourn, Police Seek Answers in Fatal Times Square Incident**\
+`The New York Police Department made public the names of some of the people involved in a seemingly random knife attack on a crowded Manhattan street, but questions remained.`\
+https://www.nytimes.com/2026/09/01/nyregion/victims-stabbing-times-square-nyc.html
+
 **How THC Edibles Can Affect Your Driving**\
 `The study, one of the first to examine how edibles affect driving, tested impairment after various doses of cannabis gummies.`\
 https://www.nytimes.com/2026/09/01/well/thc-gummies-edibles-driving.html

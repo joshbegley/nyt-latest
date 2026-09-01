@@ -1,3 +1,7 @@
+**As Families Mourn, Police Seek Answers in Fatal Times Square Incident**\
+`The New York Police Department made public the names of some of the people involved in a seemingly random knife attack on a crowded Manhattan street, but questions remained.`\
+https://www.nytimes.com/2026/09/01/nyregion/victims-stabbing-times-square-nyc.html
+
 **Canada’s Carney Ties Resuming Trade Talks to Trump Administration Insults**\
 `Amid a trade war, Canada’s Liberals swept three special votes and new polling suggested strong support for Prime Minister Mark Carney and his retaliatory tariffs against the U.S.`\
 https://www.nytimes.com/2026/09/01/world/canada/carney-trump-trade-war.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusett
 **Massachusetts Auditor Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Massachusetts primary election.`\
 https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-auditor-primary.html
-
-**Massachusetts Fourth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Massachusetts primary election.`\
-https://www.nytimes.com/interactive/2026/09/01/us/elections/results-massachusetts-us-house-4-primary.html
 
