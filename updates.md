@@ -1,3 +1,15 @@
+**The Met Shouldn’t Have Canceled the Galliano Exhibition**\
+`Cancel the Met Gala instead.`\
+https://www.nytimes.com/2026/09/01/opinion/culture/john-galliano-met-exhibition.html
+
+**Submit Your Outfits to Fit Check**\
+`We want to know what you’re wearing to class, parties and everything in between. Send us your best looks.`\
+https://www.nytimes.com/2026/09/01/briefing/submit-your-outfits-to-fit-check.html
+
+**He Made a Bag to Match Your Jeans**\
+`Gen Z is still in love with the purses Reed Krakoff made for Coach in the 1990s. Can he get them to covet a bag from the Gap?`\
+https://www.nytimes.com/2026/09/01/style/reed-krakoff-gap-bags-coach.html
+
 **Husband and 12 Men in Britain Are Accused of Woman’s Yearslong Drugging and Rape**\
 `Prosecutors said that the man, in his 60s, drugged and abused his wife while she was unconscious, alongside a dozen other men aged 28 to 73.`\
 https://www.nytimes.com/2026/09/01/world/europe/manchester-uk-trial-husband-rape-abuse.html

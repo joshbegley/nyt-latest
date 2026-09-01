@@ -1,11 +1,3 @@
-**Husband and 12 Men in Britain Are Accused of Woman’s Yearslong Drugging and Rape**\
-`Prosecutors said that the man, in his 60s, drugged and abused his wife while she was unconscious, alongside a dozen other men aged 28 to 73.`\
-https://www.nytimes.com/2026/09/01/world/europe/manchester-uk-trial-husband-rape-abuse.html
-
-**The Genius of Yayoi Kusama in Three Works**\
-`Marking the artist’s death, and ahead of a retrospective at Amsterdam’s Stedelijk Museum, a critic chooses epic works that highlight Kusama’s creative range and impact.`\
-https://www.nytimes.com/interactive/2026/09/01/arts/yayoi-kusama-art-pieces.html
-
 **Nepali Rescuers Press On With Search for Trapped Workers in Tunnels**\
 `Rescue teams in Nepal continued trying to reach hundreds of workers believed trapped inside hydropower plant tunnels.`\
 https://www.nytimes.com/video/world/asia/100000011125332/nepal-flash-floods-rescue-hydropower-plants.html
@@ -42,8 +34,8 @@ https://www.nytimes.com/interactive/polls/north-carolina-us-house-7-polls-2026.h
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000011125529/01vid-bessent-assets-41494.html
 
-**Cancel the Met Gala Instead**\
-`The Met shouldn’t have canceled the Galliano exhibition.`\
+**The Met Shouldn’t Have Canceled the Galliano Exhibition**\
+`Cancel the Met Gala instead.`\
 https://www.nytimes.com/2026/09/01/opinion/culture/john-galliano-met-exhibition.html
 
 **Tiroteo en Times Square: esto es lo que pasó**\
@@ -197,4 +189,12 @@ https://www.nytimes.com/2026/09/01/briefing/send-your-meals-to-dining-hall.html
 **Submit Your Questions to Office Hours**\
 `Have a burning question about the news? Or are you still confused after a lecture? We’ll try to help.`\
 https://www.nytimes.com/2026/09/01/briefing/submit-your-questions-to-office-hours.html
+
+**Submit Your Outfits to Fit Check**\
+`We want to know what you’re wearing to class, parties and everything in between. Send us your best looks.`\
+https://www.nytimes.com/2026/09/01/briefing/submit-your-outfits-to-fit-check.html
+
+**He Made a Bag to Match Your Jeans**\
+`Gen Z is still in love with the purses Reed Krakoff made for Coach in the 1990s. Can he get them to covet a bag from the Gap?`\
+https://www.nytimes.com/2026/09/01/style/reed-krakoff-gap-bags-coach.html
 
