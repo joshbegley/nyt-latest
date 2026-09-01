@@ -1,3 +1,11 @@
+**Hochul Accuses Trump of Betraying 9/11 Victims by ‘Defunding the Police’**\
+`Gov. Kathy Hochul and Mayor Zohran Mamdani called on President Trump to free up $87 million in federal funds to pay for bomb squads and other counterterrorism measures in New York.`\
+https://www.nytimes.com/2026/09/01/nyregion/hochul-counterterrorism-funds-trump.html
+
+**Officer Charged in Shooting of College Athlete Who Knocked at Wrong Door**\
+`Prosecutors said the police officer from Upper Pottsgrove, Pa., committed manslaughter when he fired on the student, who was returning from a night out at bars. A homeowner had reported a burglary in progress.`\
+https://www.nytimes.com/2026/09/01/us/officer-charged-shooting-baseball-player-wrong-door.html
+
 **Did the Met Just Cancel the Wrong Fashionista?**\
 `With John Galliano, Anna Wintour cannot seem to separate the man from his work.`\
 https://www.nytimes.com/2026/09/01/opinion/met-gala-anna-wintour-john-galliano.html
@@ -6,7 +14,7 @@ https://www.nytimes.com/2026/09/01/opinion/met-gala-anna-wintour-john-galliano.h
 `In an interview, Italy’s hard-right leader reveals how pragmatism is reshaping her vision for Europe.`\
 https://www.nytimes.com/2026/09/01/world/giorgia-meloni-interview-bonds-iran.html
 
-**A Busy Hurricane Season Just Got Even Busier in the Pacific**\
+**A Busy Hurricane Season Just Got Even Busier Between California and Hawaii**\
 `Three storms, spurred on by El Niño, are inching closer to Hawaii. Could one of them even affect California this weekend?`\
 https://www.nytimes.com/2026/09/01/weather/california-hawaii-hurricanes-karina-lowell-marie.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/es/2026/09/01/espanol/estados-unidos/tiroteo-times-squar
 **Tractors Clog Copenhagen as Farmers Protest Fertilizer Restrictions**\
 `To protect its waters from overexposure to nitrates, Denmark is proposing a crackdown on fertilizer use. Farmers aren’t happy.`\
 https://www.nytimes.com/2026/09/01/world/europe/denmark-farmers-protest-fertilizer.html
-
-**How to Help Nepal Flash Flood Victims**\
-`More than 1,000 people have been killed in a Himalayan landslide and flooding, and thousands more are missing. Here’s how you can help.`\
-https://www.nytimes.com/2026/09/01/world/asia/nepal-floods-tibet-aid-relief-how-donate.html
-
-**How THC Edibles Can Affect Your Driving**\
-`The study, one of the first to examine how edibles affect driving, tested impairment after various doses of cannabis gummies.`\
-https://www.nytimes.com/2026/09/01/well/thc-gummies-edibles-driving.html
 

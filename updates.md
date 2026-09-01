@@ -1,3 +1,15 @@
+**Hochul Accuses Trump of Betraying 9/11 Victims by ‘Defunding the Police’**\
+`Gov. Kathy Hochul and Mayor Zohran Mamdani called on President Trump to free up $87 million in federal funds to pay for bomb squads and other counterterrorism measures in New York.`\
+https://www.nytimes.com/2026/09/01/nyregion/hochul-counterterrorism-funds-trump.html
+
+**Officer Charged in Shooting of College Athlete Who Knocked at Wrong Door**\
+`Prosecutors said the police officer from Upper Pottsgrove, Pa., committed manslaughter when he fired on the student, who was returning from a night out at bars. A homeowner had reported a burglary in progress.`\
+https://www.nytimes.com/2026/09/01/us/officer-charged-shooting-baseball-player-wrong-door.html
+
+**A Busy Hurricane Season Just Got Even Busier Between California and Hawaii**\
+`Three storms, spurred on by El Niño, are inching closer to Hawaii. Could one of them even affect California this weekend?`\
+https://www.nytimes.com/2026/09/01/weather/california-hawaii-hurricanes-karina-lowell-marie.html
+
 **Did the Met Just Cancel the Wrong Fashionista?**\
 `With John Galliano, Anna Wintour cannot seem to separate the man from his work.`\
 https://www.nytimes.com/2026/09/01/opinion/met-gala-anna-wintour-john-galliano.html
