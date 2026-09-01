@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011125476/01vid-bessent-strait-7423.html
+
 **Lancaster Coroner Investigating Death of Child With Measles**\
 `It was not yet clear whether the case was one of the two deaths announced by Pennsylvania state health officials last week, or if it represents an additional death.`\
 https://www.nytimes.com/2026/09/01/well/measles-pennsylvania-lancaster-coroner.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/01/realestate/seed-saving-how-to.html
 **Lupita Nyong’o and Others to See in Off Broadway Plays This September**\
 `The fall season kicks off with a jam-packed month of riches, including experiments in docu-theater and performances by Lupita Nyong’o and Victoria Clark.`\
 https://www.nytimes.com/2026/09/01/theater/lupita-nyongo-slam-frank-off-broadway-september.html
-
-**36 Fun Things to Do in N.Y.C. in September**\
-`Fall brings Balanchine’s “Jewels,” as well as a chance to relive a roller-skating heyday, revel in Caribbean joy, and see Ed Sheeran and Chelsea Handler.`\
-https://www.nytimes.com/2026/09/01/arts/fun-things-to-do-nyc-september.html
 
