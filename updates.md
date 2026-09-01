@@ -1,3 +1,7 @@
+**Some Allies Are Pushing Back on Trump’s Economic Approach**\
+`At a summit meant to showcase President Trump’s economic policies as a model for the world, Europeans complained about tariffs and the war with Iran.`\
+https://www.nytimes.com/2026/09/01/world/europe/g20-bessent-trump-allies.html
+
 **House Censures Republican Accused of Sexually Harassing Two Aides**\
 `Representative Chuck Edwards received a formal rebuke on the floor after a speech in which he apologized for his conduct but said it did not constitute harassment.`\
 https://www.nytimes.com/2026/09/01/us/politics/house-censure-chuck-edwards.html

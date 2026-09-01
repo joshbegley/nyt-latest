@@ -1,3 +1,7 @@
+**Video Shows Moments Surrounding Times Square Shooting**\
+`Footage from a witness showed two people, Erin Piacenti, 32, and Tak Kam, 68, after a stabbing in Times Square on Monday. Ms. Piacenti, who had just returned from maternity leave, was declared dead at the hospital.`\
+https://www.nytimes.com/video/nyregion/100000011125826/times-square-stabbing-victims.html
+
 **Some Allies Are Pushing Back on Trump’s Economic Approach**\
 `At a summit meant to showcase President Trump’s economic policies as a model for the world, Europeans complained about tariffs and the war with Iran.`\
 https://www.nytimes.com/2026/09/01/world/europe/g20-bessent-trump-allies.html
@@ -159,7 +163,7 @@ https://www.nytimes.com/2026/09/01/opinion/supreme-court-trump-ballroom.html
 https://www.nytimes.com/2026/09/01/business/energy-environment/venezuela-oil-trump-deal.html
 
 **U.S. Strikes Iran Over Strait of Hormuz Mines, Trump Says**\
-`U.S. Central Command did not say precisely what it was trying to destroy in Iran, but it said the attacks were aimed at Iran’s Islamic Revolutionary Guards Corps.`\
+`The renewed hostilities underscore how a durable solution to the conflict remains far-off.`\
 https://www.nytimes.com/2026/09/01/us/politics/us-launches-air-strikes-iran.html
 
 **These Ukrainian Children Go to School Underground. They’re the Lucky Ones.**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/09/01/arts/yayoi-kusama-art-pieces.html
 **Nepali Rescuers Press On With Search for Trapped Workers in Tunnels**\
 `Rescue teams in Nepal continued trying to reach hundreds of workers believed trapped inside hydropower plant tunnels.`\
 https://www.nytimes.com/video/world/asia/100000011125332/nepal-flash-floods-rescue-hydropower-plants.html
-
-**Best Movies and Shows Streaming in September 2026: ‘Brothers,’ ‘MobLand’ and More**\
-`A Ryan Reynolds and Kenneth Branagh movie, a “Reacher” spinoff and a “LEGO Star Wars” are among this month’s highlights.`\
-https://www.nytimes.com/2026/09/01/arts/television/movies-tv-shows-september-2026-streaming.html
 
