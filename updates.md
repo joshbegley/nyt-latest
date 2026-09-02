@@ -1,3 +1,7 @@
+**US Open Day 3: Top Seed Zverev Survives, Gauff Impresses**\
+`The men’s top seed came back from the brink in the first round in New York.`\
+https://www.nytimes.com/2026/09/02/podcasts/us-open-zverev-gauff.html
+
 **Netanyahu’s Israel Is Looking for a Fight in Every Direction**\
 `The Israeli leader, facing a tough re-election contest, may need a security crisis to rally voters behind him and hold on to his job.`\
 https://www.nytimes.com/2026/09/02/world/middleeast/netanyahu-israel-election.html

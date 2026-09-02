@@ -1,3 +1,7 @@
+**US Open Day 3: Top Seed Zverev Survives, Gauff Impresses**\
+`The men’s top seed came back from the brink in the first round in New York.`\
+https://www.nytimes.com/2026/09/02/podcasts/us-open-zverev-gauff.html
+
 **Netanyahu’s Israel Is Looking for a Fight in Every Direction**\
 `The Israeli leader, facing a tough re-election contest, may need a security crisis to rally voters behind him and hold on to his job.`\
 https://www.nytimes.com/2026/09/02/world/middleeast/netanyahu-israel-election.html
@@ -86,13 +90,13 @@ https://www.nytimes.com/2026/09/02/opinion/steve-hilton-california-trump.html
 `Katy Perry’s sci-fi concert film from Paris shines brightest during simple, back-to-basics pop moments.`\
 https://www.nytimes.com/2026/09/02/movies/katy-perry-the-lifetimes-tour-live-from-paris-review.html
 
-**‘The Runner’ Review: Neither Fast Nor Furious Enough**\
-`Gal Gadot limps ahead as a desperate single mother in a thin race-against-time thriller.`\
-https://www.nytimes.com/2026/09/02/movies/runner-review.html
-
 **After the Earthquake, They Used A.I. to Mobilize Aid**\
 `As volunteers struggled to get supplies to quake victims in Colombia, a few tech workers built an app to map and organize the sprawling relief effort.`\
 https://www.nytimes.com/2026/09/02/world/americas/colombia-earthquake-ai-aid-app.html
+
+**‘The Runner’ Review: Neither Fast Nor Furious Enough**\
+`Gal Gadot limps ahead as a desperate single mother in a thin race-against-time thriller.`\
+https://www.nytimes.com/2026/09/02/movies/runner-review.html
 
 **I Need an IV Drip to Recover From My IV Drip**\
 `Wellness clinics are shooting people up with vitamins, but is the point to actually feel better — or the opposite?`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/es/2026/09/02/espanol/mundo/fabrica-alumina-irlanda-rusi
 **El creador de la inyección de Ozempic ahora apuesta por las pastillas**\
 `Mike Doustdar, director ejecutivo de Novo Nordisk, inició un cambio de rumbo empresarial hace un año, y dice que los inversionistas aún subestiman el potencial de sus medicamentos.`\
 https://www.nytimes.com/es/2026/09/02/espanol/negocios/ozempic-adelgazar-inyeccion-pastilla.html
-
-**¿Cuál es la mejor manera de eliminar los puntos negros?**\
-`Esto es lo que los dermatólogos recomiendan para deshacerte de esas impurezas en tu piel.`\
-https://www.nytimes.com/es/2026/09/02/espanol/puntos-negros-como-eliminarlos-dermatologos.html
 
