@@ -1,3 +1,7 @@
+**Woman Who Killed Husband Decades Ago Is Sentenced for Killing Wife**\
+`A woman in California will face 36 years to life in prison after previously serving time for a stabbing death in 2000.`\
+https://www.nytimes.com/2026/09/02/us/yolanda-marodi-wife-killed-california-sentenced.html
+
 **Trump’s Fantasy-Reality Problem Is Deepening**\
 `The president’s unusual relationship to the objective world leaves him dangerously unable to pivot, shift gears or change course.`\
 https://www.nytimes.com/2026/09/02/opinion/trump-fantasty-reality-politics.html
