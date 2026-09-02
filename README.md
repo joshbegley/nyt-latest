@@ -50,8 +50,8 @@ https://www.nytimes.com/2026/09/02/us/politics/trump-iran-strait-of-hormuz.html
 `A building in Nepal has been nicknamed “the miracle green house” because it remained standing during last week’s disastrous flooding and kept its residents safe.`\
 https://www.nytimes.com/video/world/asia/100000011127677/miracle-green-house-nepal-floods.html
 
-**Judge in Clancy Case Questions Jurors Individually**\
-`The reason for a brief discussion before deliberations was unclear. A woman was charged the previous day with intimidating a participant in the trial.`\
+**Lindsay Clancy Murder Case: Woman Charged After Filming at the Courthouse**\
+`Her lawyer said she had been trying to get an image of the defendant. Prosecutors charged her with intimidation, as jury deliberations entered their fifth day.`\
 https://www.nytimes.com/2026/09/02/us/lindsay-clancy-trial-judge-questions-jurors.html
 
 **Patients and Doctors, Shaken by the Clancy Trial, Seek Extra Help**\
