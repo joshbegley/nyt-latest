@@ -1,3 +1,7 @@
+**States Sue Over Move to End to Federal Funds for Transgender Youth for Transition Care**\
+`The Trump administration wants to bar Medicaid and the Children’s Health Insurance Program from paying for gender-transition medication and surgery for transgender adolescents.`\
+https://www.nytimes.com/2026/09/02/us/politics/youth-gender-transition-lawsuit-federal-money.html
+
 **2 Police Officers Among the Injured in Minneapolis Shooting**\
 `Their conditions were not immediately known. The authorities urged people to avoid the area of downtown where the shooting occurred.`\
 https://www.nytimes.com/2026/09/02/us/shooting-minneapolis-downtown.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/02/style/ariana-grande-tour-jonathan-bailey.html
 **Kennedy Center Remove Landmark ‘Blue’ Sculpture From Grounds**\
 `The Kennedy Center removed a sculpture called “Blue,” by Joel Shapiro, from its grounds on Wednesday. The work was targeted for removal after President Trump took over the center, documents obtained by The New York Times show.`\
 https://www.nytimes.com/video/us/100000011128157/kennedy-center-blue-sculpture.html
-
-**How New York Times Reporters Traced Dark Money in Politics**\
-`About $1 billion in anonymous contributions is coursing through midterm races across the country. Figuring out where the funds are coming from is no easy task.`\
-https://www.nytimes.com/2026/09/02/insider/how-reporters-trace-dark-money-in-politics.html
 
