@@ -1,3 +1,7 @@
+**Hong Kong Pro-Democracy Activist Joshua Wong Pleads Guilty to Collusion**\
+`The pro-democracy dissident was accused of urging Western politicians like Nancy Pelosi and Marco Rubio to pressure Hong Kong by imposing sanctions on the city.`\
+https://www.nytimes.com/2026/09/02/world/asia/hong-kong-joshua-wong-activist-guilty.html
+
 **Se acerca un nuevo orden mundial, y no estamos preparados**\
 `Debemos ser honestos sobre la gravedad del momento que estamos viviendo.`\
 https://www.nytimes.com/es/2026/09/02/espanol/opinion/trump-estados-unidos-nuevo-orden-mundial.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/01/weather/california-hawaii-hurricanes-karina-l
 **Restaurant Review: Cleo in New York**\
 `The West Village critic’s pick rubs its bird with a warming Lebanese spice blend — and don’t forget the crinkle-cut fries.`\
 https://www.nytimes.com/2026/09/01/dining/restaurant-review-cleo-nyc.html
-
-**Introducing Our New, Bite-Size Daily Lesson Plans**\
-`Every school day you’ll find a new lesson idea, that can be used as a quick warm-up or extended over a full class period. Over each week, we’ll target ELA, social studies, STEM, the arts and media literacy.`\
-https://www.nytimes.com/2026/09/01/learning/introducing-our-new-bite-size-daily-lesson-plans.html
 

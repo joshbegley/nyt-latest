@@ -1,3 +1,11 @@
+**U.S.S. Abraham Lincoln Docks in Thailand, Giving Weary Crew a Break**\
+`Thousands of sailors and Marines serve on the U.S.S. Abraham Lincoln, which came into the spotlight because of a tough deployment in the war in Iran.`\
+https://www.nytimes.com/2026/09/02/world/asia/uss-lincoln-arrives-thailand.html
+
+**Las tasas de la deuda de EE. UU. suben: lo que debes saber**\
+`Tensión geopolítica, gasto desbocado en inteligencia artificial y un rojo fiscal creciente empujan al alza los rendimientos y afectan la economía mundial`\
+https://www.nytimes.com/es/2026/09/02/espanol/negocios/deuda-estados-unidos-dolares-bonos.html
+
 **Hong Kong Pro-Democracy Activist Joshua Wong Pleads Guilty to Collusion**\
 `The pro-democracy dissident was accused of urging Western politicians like Nancy Pelosi and Marco Rubio to pressure Hong Kong by imposing sanctions on the city.`\
 https://www.nytimes.com/2026/09/02/world/asia/hong-kong-joshua-wong-activist-guilty.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/01/opinion/met-gala-anna-wintour-john-galliano.h
 **Talking With Giorgia Meloni**\
 `In an interview, Italy’s hard-right leader reveals how pragmatism is reshaping her vision for Europe.`\
 https://www.nytimes.com/2026/09/01/world/giorgia-meloni-interview-bonds-iran.html
-
-**A Busy Hurricane Season Just Got Even Busier Between California and Hawaii**\
-`Three storms, spurred on by El Niño, are inching closer to Hawaii. Could one of them even affect California this weekend?`\
-https://www.nytimes.com/2026/09/01/weather/california-hawaii-hurricanes-karina-lowell-marie.html
-
-**Restaurant Review: Cleo in New York**\
-`The West Village critic’s pick rubs its bird with a warming Lebanese spice blend — and don’t forget the crinkle-cut fries.`\
-https://www.nytimes.com/2026/09/01/dining/restaurant-review-cleo-nyc.html
 

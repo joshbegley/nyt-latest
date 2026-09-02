@@ -1,3 +1,7 @@
+**Hong Kong Pro-Democracy Activist Joshua Wong Pleads Guilty to Collusion**\
+`The pro-democracy dissident was accused of urging Western politicians like Nancy Pelosi and Marco Rubio to pressure Hong Kong by imposing sanctions on the city.`\
+https://www.nytimes.com/2026/09/02/world/asia/hong-kong-joshua-wong-activist-guilty.html
+
 **Se acerca un nuevo orden mundial, y no estamos preparados**\
 `Debemos ser honestos sobre la gravedad del momento que estamos viviendo.`\
 https://www.nytimes.com/es/2026/09/02/espanol/opinion/trump-estados-unidos-nuevo-orden-mundial.html
