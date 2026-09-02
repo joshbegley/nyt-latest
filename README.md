@@ -11,7 +11,7 @@ https://www.nytimes.com/2026/09/01/us/politics/trump-navy-secretary-hung-cao.htm
 https://www.nytimes.com/2026/09/01/world/americas/honduran-court-clears-former-president-pardoned-by-trump.html
 
 **Kennedy Center Will Remove Outdoor ‘Blue’ Sculpture**\
-`The towering artwork had been targeted for elimination after President Trump’s takeover of the center last year.`\
+`The towering artwork was targeted for elimination after President Trump’s takeover of the center last year.`\
 https://www.nytimes.com/2026/09/01/arts/design/kennedy-center-sculpture-removal-blue.html
 
 **Mike Minogue Wins G.O.P. Nomination for Massachusetts Governor**\

@@ -1,3 +1,15 @@
+**A.I. Is Largely to Be Banned in N.Y.C. Elementary and Middle Schools**\
+`A new policy to be announced by the Department of Education bars younger students from using A.I., but stops short of a moratorium.`\
+https://www.nytimes.com/2026/09/01/nyregion/ai-ban-schools-nyc.html
+
+**Trump to Nominate Hung Cao as Navy Secretary**\
+`The announcement came amid a purge of leadership at the Pentagon and a stalling war effort against Iran.`\
+https://www.nytimes.com/2026/09/01/us/politics/trump-navy-secretary-hung-cao.html
+
+**Couple in Florida Kept 4 Children Inside Truck for Years, Prosecutors Say**\
+`Two boys and two girls were kept in a semi truck cab for six years, the authorities said, and the two girls, both under 11 years old, were repeatedly sexually abused.`\
+https://www.nytimes.com/2026/09/01/us/florida-child-abuse-charges-truck-captive.html
+
 **Ed Markey Wins Massachusetts Democratic Senate Primary, Defeating Younger Challenger**\
 `The oldest senator in Massachusetts history used a progressive message to beat Representative Seth Moulton, 47, defying calls for generational change.`\
 https://www.nytimes.com/2026/09/01/us/politics/massachusetts-senate-democratic-primary.html
