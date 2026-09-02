@@ -1,5 +1,29 @@
+**The Fight for the West Bank**\
+`We speak to a Palestinian American whose home has been encircled by extremist settlers.`\
+https://www.nytimes.com/2026/09/02/podcasts/the-daily/the-fight-for-the-west-bank.html
+
+**Russia’s New Push to Torment Kyiv, and a Whistle-Blower’s Warning on Mail-In Voting**\
+`Plus, hiking 2,190 miles at age 91.`\
+https://www.nytimes.com/2026/09/02/podcasts/the-headlines/russia-kyiv-strikes-whistleblower-warning-mail-voting.html
+
+**Employer Health Costs Are Expected to Spike in 2027**\
+`A new U.S. survey anticipates an average increase of 11 percent unless benefits are cut, the highest rate in decades. Other findings also predict a sharp rise.`\
+https://www.nytimes.com/2026/09/02/business/health-insurance-increases.html
+
+**Today’s Wordle Hints for September 3, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Sept. 3, 2026.`\
+https://www.nytimes.com/2026/09/02/crosswords/wordle-review-1902.html
+
+**NYT Connections Answers for September 3, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Sept. 3, 2026.`\
+https://www.nytimes.com/2026/09/02/crosswords/connections-companion-1180.html
+
+**NYT Strands Hints for September 3, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Sept. 3, 2026.`\
+https://www.nytimes.com/2026/09/02/crosswords/strands-sidekick-914.html
+
 **U.S.S. Lincoln Docks in Thailand After Nine Months at Sea**\
-`Thousands of sailors and Marines from the U.S.S. Abraham Lincoln will get a few days of rest and recovery in Thailand after a strenuous nine-month deployment in the war in Iran.`\
+`Thousands of sailors and Marines from the U.S.S. Abraham Lincoln will get a few days of rest and relaxation in Thailand after a strenuous nine-month deployment in the war in Iran.`\
 https://www.nytimes.com/video/world/asia/100000011127424/uss-lincoln-arrives-thailand.html
 
 **Gary Glitter Pleads Not Guilty to Child Sexual Abuse Charges**\
@@ -169,28 +193,4 @@ https://www.nytimes.com/2026/09/02/fashion/mytheresa-ecommerce-jewelry.html
 **Jewelry Is More Than Just a Pretty Bauble**\
 `Appreciation of the category’s cultural and personal resonance has been growing in recent years.`\
 https://www.nytimes.com/2026/09/02/fashion/jewelry-cultural-resonance.html
-
-**A Parisian Designer Has Spent Years Making Distinctive Gems**\
-`The Parisian jeweler Marc Auclert uses one-of-a-kind elements such as Roman intaglios and pre-Columbian amulets in his creations.`\
-https://www.nytimes.com/2026/09/02/fashion/jewelry-marc-auclert-paris.html
-
-**Idaho’s Love Affair With Star Garnets**\
-`Rockhounds have been finding this unusual garnet in the northern part of the state for generations.`\
-https://www.nytimes.com/2026/09/02/fashion/jewelry-star-garnets-idaho.html
-
-**At Mellerio. Jewels at the Tips of Your Fingers**\
-`Mellerio, a Paris-based jeweler, reached back to the 1950s when looking for new ways to add some shine to its customers’ fingernails.`\
-https://www.nytimes.com/2026/09/02/fashion/nail-jewelry-mellerio-paris.html
-
-**Do Regular Guys Really Like Jewelry?**\
-`There’s no question that some athletes and actors now revel in gems, but what about the average man? We ask a few specialists for their thoughts.`\
-https://www.nytimes.com/2026/09/02/fashion/do-regular-guys-really-like-jewelry.html
-
-**The Swedes Who Dared to Stand Out**\
-`The Swedish fashion brand Acne Studios broke out three decades ago with one pair of jeans, kicking off a wave of Scandi fashion that hasn’t stopped.`\
-https://www.nytimes.com/2026/09/02/style/acne-studios-jonny-johansson-sweden.html
-
-**How the Delhi Metro Became a Leading Transit System**\
-`This year, the Indian capital’s subway system passed New York’s in length.`\
-https://www.nytimes.com/2026/09/02/headway/india-delhi-metro-public-transit.html
 
