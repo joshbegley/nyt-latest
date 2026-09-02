@@ -1,3 +1,7 @@
+**Inside Trump’s Second Term**\
+`We talk to Jonathan Swan about how foreign leaders use leverage, strength and personal dynamics to manage the president.`\
+https://www.nytimes.com/2026/09/02/world/trump-regime-change-strike-wedding.html
+
 **Jonathan Franzen’s “The Corrections” Is 25 Years Old. Its First Paragraph Still Feels New.**\
 `Jonathan Franzen’s 2001 novel was celebrated for its canny portrayal of American life. It’s also a stunning act of literary creation.`\
 https://www.nytimes.com/interactive/2026/09/02/books/jonathan-franzen-the-corrections.html
