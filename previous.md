@@ -54,7 +54,7 @@ https://www.nytimes.com/video/world/asia/100000011127424/uss-lincoln-arrives-tha
 `Accusations against the glam rock singer relate to incidents that are said to have occurred between 1978 and 1981.`\
 https://www.nytimes.com/2026/09/02/arts/music/gary-glitter-court.html
 
-**Bus Crash in Egypt Kills at Least 16**\
+**Bus Crash in Egypt Kills at Least 22**\
 `The vehicle overturned in an area of the Sinai Peninsula that is popular with tourists. Another 28 people were injured, officials said.`\
 https://www.nytimes.com/2026/09/02/world/africa/bus-crash-egypt-sinai.html
 

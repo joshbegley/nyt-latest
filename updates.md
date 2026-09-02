@@ -1,3 +1,7 @@
+**Bus Crash in Egypt Kills at Least 22**\
+`The vehicle overturned in an area of the Sinai Peninsula that is popular with tourists. Another 28 people were injured, officials said.`\
+https://www.nytimes.com/2026/09/02/world/africa/bus-crash-egypt-sinai.html
+
 **In Egypt, Xi Challenges America’s Influence in the Middle East**\
 `China’s leader, Xi Jinping, is seeking to deepen ties with a longtime U.S. security partner and to project a larger role for Beijing in a region rocked by war.`\
 https://www.nytimes.com/2026/09/02/world/asia/china-egypt-xi-jinping-el-sisi.html
