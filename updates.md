@@ -1,3 +1,7 @@
+**Kennedy Center Will Remove Outdoor ‘Blue’ Sculpture**\
+`The towering artwork was targeted for elimination after President Trump’s takeover of the center last year.`\
+https://www.nytimes.com/2026/09/01/arts/design/kennedy-center-sculpture-removal-blue.html
+
 **A.I. Is Largely to Be Banned in N.Y.C. Elementary and Middle Schools**\
 `A new policy to be announced by the Department of Education bars younger students from using A.I., but stops short of a moratorium.`\
 https://www.nytimes.com/2026/09/01/nyregion/ai-ban-schools-nyc.html
