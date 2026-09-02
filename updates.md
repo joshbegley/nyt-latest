@@ -1,3 +1,11 @@
+**The Local: How tariffs will affect your shopping**\
+`Plus, Sweet Martha on how she got her start, without a cookie recipe.`\
+https://www.nytimes.com/2026/09/02/briefing/tariffs-sweet-marthas.html
+
+**King Charles III to View Bayeux Tapestry at the British Museum**\
+`The monarch was invited to see the historic embroidery days before a major British Museum exhibition, almost 40 years after seeing it in France with Diana.`\
+https://www.nytimes.com/2026/09/02/arts/design/bayeux-tapestry-king-charles.html
+
 **Trump insta de nuevo al pueblo de Irán a ‘levantarse y luchar’**\
 `En una publicación en redes sociales, el presidente Trump también desestimó las negociaciones estancadas con Irán en medio de la reanudación de los ataques.`\
 https://www.nytimes.com/es/2026/09/02/espanol/estados-unidos/trump-iran-estrecho-de-ormuz.html
