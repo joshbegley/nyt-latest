@@ -1,3 +1,7 @@
+**Patagonia Sues Trump Over Utah National Monument**\
+`The outdoor apparel maker joined environmental and Native American groups in challenging President Trump’s reduction of Bears Ears National Monument.`\
+https://www.nytimes.com/2026/09/02/climate/patagonia-bears-ears-lawsuit.html
+
 **La expansión de Chevron en Venezuela amplía la influencia de EE. UU. en el país**\
 `El gigante energético estadounidense, que permaneció en el país después de que otras empresas occidentales se marcharan, invertirá 7 millardos de dólares en Venezuela para aumentar a más del doble su producción allí.`\
 https://www.nytimes.com/es/2026/09/02/espanol/negocios/chevron-venezuela-petroleo-trump.html
@@ -23,7 +27,7 @@ https://www.nytimes.com/2026/09/02/briefing/today-in-short.html
 https://www.nytimes.com/2026/09/02/dining/a-technique-for-always-crispy-fish.html
 
 **Wondering How Nuts Trump’s Tariffs Are? Consider Aluminum.**\
-`Canada is better at making aluminum than we are. Let’s just use theirs and make something else.`\
+`Canada is better at making aluminum than we are. Let’s just import it and make something else.`\
 https://www.nytimes.com/2026/09/02/opinion/trump-aluminum-tariffs-canada.html
 
 **Tras el terremoto en Colombia, la IA sirvió para entregar ayuda**\
@@ -62,7 +66,7 @@ https://www.nytimes.com/video/world/asia/100000011127677/miracle-green-house-nep
 `Her lawyer said she had been trying to get an image of the defendant. Prosecutors charged her with intimidation, as jury deliberations entered their fifth day.`\
 https://www.nytimes.com/2026/09/02/us/lindsay-clancy-trial-judge-questions-jurors.html
 
-**Patients and Doctors, Shaken by the Clancy Trial, Seek Extra Help**\
+**Lindsay Clancy’s Trial Prompts Patients and Doctors to Rethink Postpartum Care**\
 `Requests for advice from women with maternal mental health conditions, as well as health providers who care for them, have surged.`\
 https://www.nytimes.com/2026/09/02/well/doctors-patients-postpartum-mental-health-clancy-trial.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/02/us/los-angeles-jail-inmate-beating.html
 **A Serene Library in a Clinton Hill Townhouse**\
 `Melissa Lee designed her library and office as a calm space away from her home above.`\
 https://www.nytimes.com/2026/09/02/realestate/melissa-lee-design-finds.html
-
-**Do Active Shooter Drills Help? Two Asian Nations Grapple With Gun Violence.**\
-`After school shootings, Thailand and the Philippines are taking different approaches to the drills, which are common practice in the United States.`\
-https://www.nytimes.com/2026/09/02/world/asia/thailand-philippines-active-shooter-drills.html
 
