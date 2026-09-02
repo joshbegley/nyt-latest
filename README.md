@@ -1,3 +1,11 @@
+**In Egypt, Xi Challenges America’s Influence in the Middle East**\
+`China’s leader, Xi Jinping, is seeking to deepen ties with a longtime U.S. security partner and to project a larger role for Beijing in a region rocked by war.`\
+https://www.nytimes.com/2026/09/02/world/asia/china-egypt-xi-jinping-el-sisi.html
+
+**U.S. and Iran Survey the Damage After a Night of Intense Strikes**\
+`The American military said its barrage was retaliation against recent attacks on U.S. forces and marine traffic. Iranian officials said a wedding was hit and civilians killed.`\
+https://www.nytimes.com/2026/09/02/world/middleeast/us-iran-strikes.html
+
 **The Word Is Bond**\
 `We explain what is happening in the bond market.`\
 https://www.nytimes.com/2026/09/02/briefing/the-word-is-bond.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/09/02/opinion/indian-identity-princeton.html
 **Book Review: ‘The Everest Mystery,’ by Julie Summers and Jochen Hemmleb**\
 `“The Everest Mystery” takes on the enduring puzzle of two climbers’ fates — and pays tribute to the often-overlooked Sandy Irvine.`\
 https://www.nytimes.com/2026/09/02/books/review/the-everest-mystery-julie-summers-and-jochen-hemmleb-.html
-
-**Inside the Fight Against a Flesh-Eating Fly in Mexico**\
-`For the first time in a year, the U.S.-Mexico border partly reopened to cattle imports following a screwworm infestation across the region. The battle against the flesh-eating fly has only just begun deep in Mexico.`\
-https://www.nytimes.com/2026/09/02/world/americas/screwworm-facility-mexico.html
-
-**Billionaires Sent Montana Prices Soaring. Can Democrats Capitalize?**\
-`For years, Democrats have failed to harness the anger of Montanans contending with out-of-state wealth driving up costs. This year, a smokejumper thinks he can succeed.`\
-https://www.nytimes.com/2026/09/02/us/politics/montana-house-sam-forstag-billionaires.html
 

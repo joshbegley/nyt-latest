@@ -1,3 +1,11 @@
+**The Word Is Bond**\
+`We explain what is happening in the bond market.`\
+https://www.nytimes.com/2026/09/02/briefing/the-word-is-bond.html
+
+**Chevron Expansion in Venezuela Extends U.S. Influence Over Oil Riches**\
+`The U.S. energy giant, which stayed in the country after other Western companies left, will invest $7 billion in the country to more than double its production there.`\
+https://www.nytimes.com/2026/09/02/business/energy-environment/chevron-venezuela-oil-trump.html
+
 **Status of Iran’s Nuclear Program Is Unclear, U.N. Watchdog Says**\
 `As the war sputters on, an internal report from the International Atomic Energy Agency said Iran’s refusal to grant access to its inspectors was an urgent concern.`\
 https://www.nytimes.com/2026/09/02/world/middleeast/iran-nuclear-program-iaea.html
@@ -154,7 +162,7 @@ https://www.nytimes.com/2026/09/02/t-magazine/neutral-mens-fall-fashion.html
 `Studios may think that stories drew moviegoers, but it was the people behind hits like “The Odyssey” and “Obsession” that drew patrons again and again.`\
 https://www.nytimes.com/2026/09/02/movies/summer-box-office-the-odyssey-obsession.html
 
-**This Is the Best Book Our Fantasy Columnist Has Read This Year**\
+**This Is the Best Book Our Fantasy Columnist Has Read All Year**\
 `She was so immersed in “The Unmagical Life of Briar Jones” that she forgot to eat dinner.`\
 https://www.nytimes.com/2026/09/02/books/review/new-fantasy-books.html
 
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/09/02/world/americas/screwworm-facility-mexico.html
 **Billionaires Sent Montana Prices Soaring. Can Democrats Capitalize?**\
 `For years, Democrats have failed to harness the anger of Montanans contending with out-of-state wealth driving up costs. This year, a smokejumper thinks he can succeed.`\
 https://www.nytimes.com/2026/09/02/us/politics/montana-house-sam-forstag-billionaires.html
-
-**Haruomi Hosono, Architect of Japanese Pop, Pushes West**\
-`After recent endorsements from Vampire Weekend and Harry Styles, Haruomi Hosono, 79, returns to the U.S. with a new album and tour.`\
-https://www.nytimes.com/2026/09/02/arts/music/an-architect-of-japanese-pop-pushes-west.html
-
-**Tokyo’s Kuramae District Is a Haven for Artist Studios**\
-`The Kuramae district in Japan’s largest city was once filled with warehouses. Now, it’s a haven for artist studios and craftspeople.`\
-https://www.nytimes.com/2026/09/02/fashion/jewelry-kuramae-tokyo.html
 

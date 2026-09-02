@@ -1,3 +1,15 @@
+**The Word Is Bond**\
+`We explain what is happening in the bond market.`\
+https://www.nytimes.com/2026/09/02/briefing/the-word-is-bond.html
+
+**Chevron Expansion in Venezuela Extends U.S. Influence Over Oil Riches**\
+`The U.S. energy giant, which stayed in the country after other Western companies left, will invest $7 billion in the country to more than double its production there.`\
+https://www.nytimes.com/2026/09/02/business/energy-environment/chevron-venezuela-oil-trump.html
+
+**This Is the Best Book Our Fantasy Columnist Has Read All Year**\
+`She was so immersed in “The Unmagical Life of Briar Jones” that she forgot to eat dinner.`\
+https://www.nytimes.com/2026/09/02/books/review/new-fantasy-books.html
+
 **Status of Iran’s Nuclear Program Is Unclear, U.N. Watchdog Says**\
 `As the war sputters on, an internal report from the International Atomic Energy Agency said Iran’s refusal to grant access to its inspectors was an urgent concern.`\
 https://www.nytimes.com/2026/09/02/world/middleeast/iran-nuclear-program-iaea.html
