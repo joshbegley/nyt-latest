@@ -1,3 +1,19 @@
+**Cassandra Wilson, Star Jazz Singer, Dies at 70**\
+`With a low and smoky voice, she conjured the blues tradition of her native Mississippi in both her own songs and in covers.`\
+https://www.nytimes.com/2026/09/02/arts/music/cassandra-wilson-dead.html
+
+**Man Is Rescued From Inside Garbage Truck in San Francisco**\
+`The city’s Fire Department said it received a call just after 4 a.m. on Wednesday reporting that a person was stuck in the vehicle after it collected trash from a dumpster.`\
+https://www.nytimes.com/2026/09/02/us/man-trapped-garbage-truck-san-francisco.html
+
+**Man Rescued From Inside Garbage Truck**\
+`Firefighters in San Francisco on Wednesday morning rescued a man who had become trapped inside a garbage truck, the authorities said.`\
+https://www.nytimes.com/video/us/100000011129087/man-rescued-from-inside-garbage-truck.html
+
+**El USS Lincoln llega a Tailandia en su camino de regreso a casa**\
+`La tripulación del portaaviones tiene permiso de bajar unos días a tierra para despejar la mente tras meses de penurias.`\
+https://www.nytimes.com/es/2026/09/02/espanol/mundo/uss-abraham-lincoln-portaaviones-tailandia.html
+
 **Inside Trump’s Second Term**\
 `We talk to Jonathan Swan about how foreign leaders use leverage, strength and personal dynamics to manage the president.`\
 https://www.nytimes.com/2026/09/02/world/trump-regime-change-strike-wedding.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/09/02/dining/a-technique-for-always-crispy-fish.htm
 **Wondering How Nuts Trump’s Tariffs Are? Consider Aluminum.**\
 `Canada is better at making aluminum than we are. Let’s just import it and make something else.`\
 https://www.nytimes.com/2026/09/02/opinion/trump-aluminum-tariffs-canada.html
-
-**Tras el terremoto en Colombia, la IA sirvió para entregar ayuda**\
-`Mientras los voluntarios batallaban para llevar suministros a las víctimas del terremoto en Colombia, unos cuantos trabajadores tecnológicos crearon una aplicación para mapear y organizar el vasto esfuerzo de socorro.`\
-https://www.nytimes.com/es/2026/09/02/espanol/america-latina/terremoto-colombia-ayuda-ia.html
-
-**In a Big Win, Google Won’t Have to Break Up Its Ad Tech Business, Court Rules**\
-`In a long-awaited decision, a federal judge said Google must change its ad tech business to address antitrust issues, but did not disclose the measures.`\
-https://www.nytimes.com/2026/09/02/technology/google-ad-tech-remedies.html
-
-**Can Sports-Betting Sites Predict the Midterms?**\
-`What’s the role of prediction markets when it comes to the midterms? For the pollster Kristen Soltis Anderson, their lack of transparency on who is betting — and why — makes them hard to trust.`\
-https://www.nytimes.com/video/opinion/100000011093696/can-sports-betting-sites-predict-the-midterms.html
-
-**What A.O.C.’s Egg Freezing Says About Politics**\
-`Alexandria Ocasio-Cortez and Karoline Leavitt may have very different politics, says Kristen Soltis Anderson, but they’re both publicly navigating similar realities: being young women in the public eye and navigating career ambition alongside questions of fertility and family.`\
-https://www.nytimes.com/video/opinion/100000011090296/what-aocs-egg-freezing-says-about-politics.html
 
