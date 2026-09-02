@@ -1,5 +1,9 @@
 **Our Smoky, Sweaty, Itchy, No Escape, Very Long Summer**\
 `Did some of the season’s dependable pleasures — sunshine, lake vacations, time spent outdoors — feel newly in limbo this year? Blame climate change.`\
+https://www.nytimes.com/interactive/2026/09/02/climate/heat-wave-wildfire-smoke-summer.html
+
+**Our Smoky, Sweaty, Itchy, No Escape, Very Long Summer**\
+`Did some of the season’s dependable pleasures — sunshine, lake vacations, time spent outdoors — feel newly in limbo this year? Blame climate change.`\
 https://www.nytimes.com/interactive/2026/08/31/climate/heat-wave-wildfire-smoke-summer.html
 
 ****\
