@@ -1,3 +1,7 @@
+**Una fábrica en Irlanda queda atrapada en la guerra económica contra Rusia**\
+`La alúmina procesada en una refinería en el condado rual de Limerick podría estar alimentando la guerra de Rusia en Ucrania, según sugirió una investigación. Existe poco consenso sobre qué hacer al respecto.`\
+https://www.nytimes.com/es/2026/09/02/espanol/mundo/fabrica-alumina-irlanda-rusia.html
+
 **El creador de la inyección de Ozempic ahora apuesta por las pastillas**\
 `Mike Doustdar, director ejecutivo de Novo Nordisk, inició un cambio de rumbo empresarial hace un año, y dice que los inversionistas aún subestiman el potencial de sus medicamentos.`\
 https://www.nytimes.com/es/2026/09/02/espanol/negocios/ozempic-adelgazar-inyeccion-pastilla.html
