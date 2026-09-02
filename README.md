@@ -1,3 +1,15 @@
+**Judge Lets Case Against Suspect in Charlie Kirk Killing Go to Trial**\
+`The judge said that there was enough evidence to try the man accused of assassinating the conservative activist last year and that prosecutors could seek the death penalty.`\
+https://www.nytimes.com/2026/09/01/us/charlie-kirk-shooting.html
+
+**Putin Pledges Increased Strikes in Ukraine and Support for Iran**\
+`The Russian president promised continued retaliation against the Ukrainians and “full solidarity” with Iran.`\
+https://www.nytimes.com/2026/09/01/world/europe/putin-ukraine-iran.html
+
+**Bill Simmons’s Co-Hosts Are Tired of His A.I. Antics**\
+`The founder of The Ringer is taking flak for using artificial intelligence to conjure opinions from the deceased film critic Roger Ebert. Ads from OpenAI have recently run on the show.`\
+https://www.nytimes.com/2026/09/01/business/media/bill-simmons-chat-gpt-open-ai-roger-ebert.html
+
 **Times Square Police Shooting Was Justified but Put Others at Risk, Experts Say**\
 `Officers who stood around a woman wielding two kitchen knives, and then opened fire without clearing the area, risked harming themselves or passers-by, the experts said.`\
 https://www.nytimes.com/2026/09/01/nyregion/times-square-shooting-stabbing-nypd.html
@@ -5,10 +17,6 @@ https://www.nytimes.com/2026/09/01/nyregion/times-square-shooting-stabbing-nypd.
 **Federal Judge Dismisses Lawsuit Against Lizzo and Her Touring Company**\
 `The singer, who has faced several lawsuits asserting harassment, discrimination and a hostile work environment, has repeatedly denied wrongdoing.`\
 https://www.nytimes.com/2026/09/01/us/lizzo-lawsuit-dismissed-stylist-federal-judge.html
-
-**Judge Lets Case Against Suspect in Charlie Kirk Killing Go to Trial**\
-`The judge said that there was enough evidence to try the man accused of assassinating the conservative activist last year and that prosecutors could seek the death penalty.`\
-https://www.nytimes.com/2026/09/01/us/charlie-kirk-shooting.html
 
 **Joint Chiefs Chairman Says Military Has ‘No Plans’ to Send Troops to the Polls**\
 `Gen. Dan Caine, President Trump’s top military adviser, appeared to renounce the possibility of the military interfering in the 2026 midterms.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/01/climate/climate-forward-data-center-backlash.
 **A Disputed Supreme Court Ruling on Trump’s Ballroom**\
 `Readers respond to the decision to allow the Trump administration to continue building the White House ballroom. Also: Regulating marijuana to protect children.`\
 https://www.nytimes.com/2026/09/01/opinion/supreme-court-trump-ballroom.html
-
-**What to Know About Venezuelan Energy Following Trump’s Oil Deal**\
-`The Trump administration’s deal with a private oil company to increase oil production in the South American country could take many years to come to fruition.`\
-https://www.nytimes.com/2026/09/01/business/energy-environment/venezuela-oil-trump-deal.html
-
-**U.S. Strikes Iran Over Strait of Hormuz Mines, Trump Says**\
-`The renewed hostilities underscore how a durable solution to the conflict remains far-off.`\
-https://www.nytimes.com/2026/09/01/us/politics/us-launches-air-strikes-iran.html
 
