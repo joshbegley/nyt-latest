@@ -147,7 +147,7 @@ https://www.nytimes.com/2026/09/02/us/lindsay-clancy-trial-judge-questions-juror
 https://www.nytimes.com/2026/09/02/well/doctors-patients-postpartum-mental-health-clancy-trial.html
 
 **King Charles III to View Bayeux Tapestry at the British Museum**\
-`The monarch was invited to see the historic embroidery before a major British Museum exhibition, almost 40 years after seeing it in France with Diana.`\
+`The monarch was invited to see the historic embroidery days before a major British Museum exhibition, almost 40 years after seeing it in France with Diana.`\
 https://www.nytimes.com/2026/09/02/arts/design/bayeux-tapestry-king-charles.html
 
 **Why Does My Divorced Father Keep Reaching Out to My Mother’s Relatives?**\
