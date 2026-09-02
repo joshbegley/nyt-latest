@@ -1,3 +1,7 @@
+**U.S. Missile Strike Kills Several at a Wedding, Iran Says**\
+`A U.S. missile strike hit a wedding in southern Iran, videos verified by The New York Times show. The U.S. military said it had not targeted civilians in its wave of attacks, and Iran said it had retaliated with strikes of its own on U.S. forces in the region.`\
+https://www.nytimes.com/video/world/middleeast/100000011127718/iran-war-us-missile-strikes-wedding.html
+
 **Uber Lays Off 10% of Employees in Sweeping Reorganization**\
 `The layoffs affect about 3,300 workers, as Chief Executive Dara Khosrowshahi bets on a “leaner organization.”`\
 https://www.nytimes.com/2026/09/02/technology/uber-layoffs.html
