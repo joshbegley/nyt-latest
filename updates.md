@@ -1,3 +1,19 @@
+**Eala-Mania Hits the U.S. Open, and There’s Joy in Little Manila**\
+`The young Filipino star Alex Eala has charmed the tennis world and united her far-flung compatriots.`\
+https://www.nytimes.com/2026/09/02/nyregion/alex-eala-us-open-philippines-little-manila.html
+
+**The Yankees’ Post-9/11 World Series Run: ‘We Wanted to Win for the City’**\
+`George W. Bush, Billy Crystal, Tino Martinez and others describe how baseball and a thrilling postseason became a rallying cry for the country.`\
+https://www.nytimes.com/interactive/2026/09/02/magazine/yankees-world-series-9-11.html
+
+**Trump Administration Launches Hunt For Noncitizen Voter Fraud Before Midterms**\
+`Voter fraud is exceedingly rare, but President Trump has fixated on rooting it out this year, claiming without evidence that tens of thousands of noncitizens are registered to vote.`\
+https://www.nytimes.com/2026/09/02/us/politics/trump-election-voter-fraud.html
+
+**Trump Returns to a Familiar Playbook as the War With Iran Flares Up Again**\
+`The United States seems increasingly bogged down in Iran after six months of conflict, despite President Trump’s declarations of military dominance.`\
+https://www.nytimes.com/2026/09/02/us/politics/trump-iran-strait-of-hormuz.html
+
 **Jay Leno’s Classic Car Bill Passes in California Legislature**\
 `The bipartisan bill, backed by Mr. Leno, the comedian and car collector, would exempt some older vehicles from having to meet California’s stringent emissions rules.`\
 https://www.nytimes.com/2026/09/02/us/jay-leno-law-classic-cars-emissions.html

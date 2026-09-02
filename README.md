@@ -1,8 +1,16 @@
+**Southwest to Open Premium Airport Lounges Across the Country**\
+`The airline said that lounges in Baltimore, Honolulu, Nashville and Austin, Texas, would debut starting late next year, and that seven more were in the works.`\
+https://www.nytimes.com/2026/09/02/travel/southwest-airport-lounges.html
+
+**Read the document**\
+`PDF version of Scents and the City.`\
+https://www.nytimes.com/interactive/2026/09/02/us/nyc-smell-map.html
+
 **Eala-Mania Hits the U.S. Open, and There’s Joy in Little Manila**\
 `The young Filipino star Alex Eala has charmed the tennis world and united her far-flung compatriots.`\
 https://www.nytimes.com/2026/09/02/nyregion/alex-eala-us-open-philippines-little-manila.html
 
-**The Yankees’ Post-9/11 World Series Run: ‘We Wanted to Win for the City’**\
+**The Yankees’ Post-9/11 World Series Run**\
 `George W. Bush, Billy Crystal, Tino Martinez and others describe how baseball and a thrilling postseason became a rallying cry for the country.`\
 https://www.nytimes.com/interactive/2026/09/02/magazine/yankees-world-series-9-11.html
 
@@ -86,7 +94,7 @@ https://www.nytimes.com/2026/09/02/opinion/john-galliano-met-museum.html
 `La obra de arte “Blue”, añadida al campus en 2019, fue seleccionada para su eliminación después de que el presidente Trump tomara control del centro.`\
 https://www.nytimes.com/es/2026/09/02/espanol/cultura/trump-centro-kennedy-escultura.html
 
-**Leading Medical Groups Release New Vaccine Guidelines**\
+**A Guide to Covid, Flu and R.S.V. Vaccines This Fall**\
 `The organizations issued their own recommendations on flu, Covid-19 and R.S.V. immunizations, citing a lack of strong guidance from the federal government.`\
 https://www.nytimes.com/2026/09/02/well/covid-flu-vaccines-rsv.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/02/us/politics/trump-iran-strait-of-hormuz.html
 **The ‘Miracle House’ That Survived Nepal’s Floods**\
 `A building in Nepal has been nicknamed “the miracle green house” because it remained standing during last week’s disastrous flooding and kept its residents safe.`\
 https://www.nytimes.com/video/world/asia/100000011127677/miracle-green-house-nepal-floods.html
-
-**Lindsay Clancy Trial: Deadlocked Jury Deliberates for 5th Day**\
-`After roughly 28 hours of debate, jurors told the judge for a second time that they couldn’t reach unanimous agreement. He sent them back for one last try.`\
-https://www.nytimes.com/2026/09/02/us/lindsay-clancy-trial-judge-questions-jurors.html
-
-**Lindsay Clancy’s Trial Prompts Patients and Doctors to Rethink Postpartum Care**\
-`Requests for advice from women with maternal mental health conditions, as well as health providers who care for them, have surged.`\
-https://www.nytimes.com/2026/09/02/well/doctors-patients-postpartum-mental-health-clancy-trial.html
 
