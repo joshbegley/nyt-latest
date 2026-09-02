@@ -1,3 +1,7 @@
+**How the Met’s Galliano Show Fell Apart**\
+`Anna Wintour put her full power and prestige behind a designer convicted of an antisemitic hate crime. Behind the scenes, influential New Yorkers revolted.`\
+https://www.nytimes.com/2026/09/02/style/how-galliano-show-metropolitan-museum-fell-apart.html
+
 **Patrick Gleeson, Who Made Synthesizers Part of Jazz, Dies at 91**\
 `He abandoned a job teaching college English in the 1960s to become a pioneer of the instrument, playing onstage with Herbie Hancock’s jazz band.`\
 https://www.nytimes.com/2026/09/02/arts/music/patrick-gleeson-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/02/crosswords/connections-companion-1180.html
 **NYT Strands Hints for September 3, 2026**\
 `Scroll down for hints and conversation about the puzzle for Thursday, Sept. 3, 2026.`\
 https://www.nytimes.com/2026/09/02/crosswords/strands-sidekick-914.html
-
-**U.S.S. Lincoln Docks in Thailand After Nine Months at Sea**\
-`Thousands of sailors and Marines from the U.S.S. Abraham Lincoln will get a few days of rest and relaxation in Thailand after a strenuous nine-month deployment in the war in Iran.`\
-https://www.nytimes.com/video/world/asia/100000011127424/uss-lincoln-arrives-thailand.html
 
