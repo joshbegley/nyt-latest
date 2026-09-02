@@ -1,3 +1,7 @@
+**Ed Markey Wins Massachusetts Democratic Senate Primary, Defeating Younger Challenger**\
+`The oldest senator in Massachusetts history used a progressive message to beat Representative Seth Moulton, 47, defying calls for generational change.`\
+https://www.nytimes.com/2026/09/01/us/politics/massachusetts-senate-democratic-primary.html
+
 **Honduran Court Clears Ex-President Juan Orlando Hernández**\
 `President Trump’s decision set Juan Orlando Hernández free in December. On Tuesday, a court dismissed money laundering and fraud charges against him, effectively making him a free man.`\
 https://www.nytimes.com/2026/09/01/world/americas/honduran-court-clears-former-president-pardoned-by-trump.html
