@@ -1,3 +1,7 @@
+**El creador de la inyección de Ozempic ahora apuesta por las pastillas**\
+`Mike Doustdar, director ejecutivo de Novo Nordisk, inició un cambio de rumbo empresarial hace un año, y dice que los inversionistas aún subestiman el potencial de sus medicamentos.`\
+https://www.nytimes.com/es/2026/09/02/espanol/negocios/ozempic-adelgazar-inyeccion-pastilla.html
+
 **¿Cuál es la mejor manera de eliminar los puntos negros?**\
 `Esto es lo que los dermatólogos recomiendan para deshacerte de esas impurezas en tu piel.`\
 https://www.nytimes.com/es/2026/09/02/espanol/puntos-negros-como-eliminarlos-dermatologos.html
