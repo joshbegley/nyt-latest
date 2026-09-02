@@ -1,3 +1,7 @@
+**Investors Still on Edge Over War, Debt and Inflation**\
+`U.S. and Iranian forces traded attacks again, pushing oil prices higher, stocks lower and making bond investors nervous.`\
+https://www.nytimes.com/2026/09/02/business/oil-bond-yields-iran.html
+
 **Bus Crash in Egypt Kills at Least 22**\
 `The vehicle overturned in an area of the Sinai Peninsula that is popular with tourists. Another 28 people were injured, officials said.`\
 https://www.nytimes.com/2026/09/02/world/africa/bus-crash-egypt-sinai.html
