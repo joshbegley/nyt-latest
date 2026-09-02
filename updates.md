@@ -1,3 +1,15 @@
+**Egypt Bus Crash Kills at Least 22 People, Injures Dozens More**\
+`A bus overturned while traveling between popular resort towns in Egypt on Wednesday, killing at least 22 people, according to the country’s health ministry. It was not immediately clear what caused the crash.`\
+https://www.nytimes.com/video/world/africa/100000011128018/egypt-sinai-bus-crash.html
+
+**Tiny Love Stories: ‘The Hot Neighbor’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/09/02/style/tiny-modern-love-stories-the-hot-neighbor.html
+
+**In Danny Boyle’s ‘Ink,’ Tabloid Scandals Sell and the Public Is Buying**\
+`The film, which opened the Venice Film Festival on Wednesday, portrays the rise of the British tabloid The Sun in the Boyle’s trademark rollicking style.`\
+https://www.nytimes.com/2026/09/02/movies/danny-boyle-ink-venice-film-festival.html
+
 **Trump’s Tactics to Lower Beef Prices and Appease Ranchers Fall Short**\
 `The Agriculture Department offered new initiatives for ranchers after President Trump said he would import more beef. The moves aren’t a quick fix.`\
 https://www.nytimes.com/2026/09/02/business/trump-ranchers-beef-prices-cattle-supply.html
