@@ -1,3 +1,11 @@
+**Patagonia Sues Trump Over Reduction of Bears Ears National Monument in Utah**\
+`The outdoor apparel maker joined environmental and Native American groups in challenging President Trump’s reduction of Bears Ears National Monument.`\
+https://www.nytimes.com/2026/09/02/climate/patagonia-bears-ears-lawsuit-trump.html
+
+**Lindsay Clancy Trial: Deadlocked Jury Deliberates for 5th Day**\
+`Her lawyer said she had been trying to get an image of the defendant. Prosecutors charged her with intimidation, as jury deliberations entered their fifth day.`\
+https://www.nytimes.com/2026/09/02/us/lindsay-clancy-trial-judge-questions-jurors.html
+
 **Patagonia Sues Trump Over Utah National Monument**\
 `The outdoor apparel maker joined environmental and Native American groups in challenging President Trump’s reduction of Bears Ears National Monument.`\
 https://www.nytimes.com/2026/09/02/climate/patagonia-bears-ears-lawsuit.html
