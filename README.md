@@ -1,3 +1,7 @@
+**Massachusetts Gov. Maura Healey Wins Democratic Nomination**\
+`Maura Healey, a former state attorney general seeking a second term, has been an outspoken critic of President Trump.`\
+https://www.nytimes.com/2026/09/01/us/elections/democrat-maura-healy-massachusetts-governor.html
+
 **Senator Ed Markey, 80, Turns Back Younger Challenger in Massachusetts**\
 `The oldest senator in Massachusetts history used a progressive message to beat Representative Seth Moulton, 47, defying calls for generational change.`\
 https://www.nytimes.com/2026/09/01/us/politics/massachusetts-senate-democratic-primary.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/01/us/politics/house-vote-government-shutdown.ht
 **A Daisy Chain Fields Soundtrack**\
 `Hear tracks performed by Chappell Roan, Bikini Kill, Doechii and, of course, Olivia Rodrigo.`\
 https://www.nytimes.com/2026/09/01/arts/music/a-daisy-chain-fields-soundtrack.html
-
-**Apple tiene un nuevo CEO, de Tim Cook a John Ternus**\
-`John Ternus sustituye a Tim Cook como director ejecutivo de Apple en medio de cambios tecnológicos y de gestión importantes. Cook se mantendrá como presidente ejecutivo.`\
-https://www.nytimes.com/es/2026/09/01/espanol/negocios/apple-nuevo-ceo-quien-es.html
 
