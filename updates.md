@@ -1,3 +1,7 @@
+**Attacks in Black Sea Threaten to Strangle Global Grain Supply**\
+`Strikes on ports and vessels by both Russia and Ukraine have left farmers facing ruin and could cause another worldwide food shock.`\
+https://www.nytimes.com/2026/09/02/world/europe/russia-ukraine-port-attacks-farmers-grain.html
+
 **Selling My Grandparents’ Home Is Like Losing Them Again**\
 `A plot of land was the last thing connecting us to my grandparents.`\
 https://www.nytimes.com/2026/09/02/opinion/labor-day-memory-grief.html
