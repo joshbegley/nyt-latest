@@ -1,3 +1,31 @@
+**The Fight for the West Bank**\
+`We speak to a Palestinian American whose home has been encircled by extremist settlers.`\
+https://www.nytimes.com/2026/09/02/podcasts/the-daily/the-fight-for-the-west-bank.html
+
+**Russia’s New Push to Torment Kyiv, and a Whistle-Blower’s Warning on Mail-In Voting**\
+`Plus, hiking 2,190 miles at age 91.`\
+https://www.nytimes.com/2026/09/02/podcasts/the-headlines/russia-kyiv-strikes-whistleblower-warning-mail-voting.html
+
+**Employer Health Costs Are Expected to Spike in 2027**\
+`A new U.S. survey anticipates an average increase of 11 percent unless benefits are cut, the highest rate in decades. Other findings also predict a sharp rise.`\
+https://www.nytimes.com/2026/09/02/business/health-insurance-increases.html
+
+**Today’s Wordle Hints for September 3, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Sept. 3, 2026.`\
+https://www.nytimes.com/2026/09/02/crosswords/wordle-review-1902.html
+
+**NYT Connections Answers for September 3, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Sept. 3, 2026.`\
+https://www.nytimes.com/2026/09/02/crosswords/connections-companion-1180.html
+
+**NYT Strands Hints for September 3, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Sept. 3, 2026.`\
+https://www.nytimes.com/2026/09/02/crosswords/strands-sidekick-914.html
+
+**U.S.S. Lincoln Docks in Thailand After Nine Months at Sea**\
+`Thousands of sailors and Marines from the U.S.S. Abraham Lincoln will get a few days of rest and relaxation in Thailand after a strenuous nine-month deployment in the war in Iran.`\
+https://www.nytimes.com/video/world/asia/100000011127424/uss-lincoln-arrives-thailand.html
+
 **U.S.S. Lincoln Docks in Thailand After Nine Months at Sea**\
 `Thousands of sailors and Marines from the U.S.S. Abraham Lincoln will get a few days of rest and recovery in Thailand after a strenuous nine-month deployment in the war in Iran.`\
 https://www.nytimes.com/video/world/asia/100000011127424/uss-lincoln-arrives-thailand.html
