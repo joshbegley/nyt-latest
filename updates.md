@@ -1,3 +1,11 @@
+**Kennedy Center Will Remove Outdoor ‘Blue’ Sculpture**\
+`The towering artwork had been targeted for elimination after President Trump’s takeover of the center last year.`\
+https://www.nytimes.com/2026/09/01/arts/design/kennedy-center-sculpture-removal-blue.html
+
+**Mike Minogue Wins G.O.P. Nomination for Massachusetts Governor**\
+`Mr. Minogue, who for years ran a medical device company, will face Gov. Maura Healey, a Democrat seeking a second term, in the November election.`\
+https://www.nytimes.com/2026/09/01/us/elections/massachusetts-republican-govenor-primary.html
+
 **Massachusetts Gov. Maura Healey Wins Democratic Nomination**\
 `Maura Healey, a former state attorney general seeking a second term, has been an outspoken critic of President Trump.`\
 https://www.nytimes.com/2026/09/01/us/elections/democrat-maura-healy-massachusetts-governor.html
