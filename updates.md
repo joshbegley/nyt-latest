@@ -1,3 +1,11 @@
+**Jonathan Franzen’s “The Corrections” Is 25 Years Old. Its First Paragraph Still Feels New.**\
+`Jonathan Franzen’s 2001 novel was celebrated for its canny portrayal of American life. It’s also a stunning act of literary creation.`\
+https://www.nytimes.com/interactive/2026/09/02/books/jonathan-franzen-the-corrections.html
+
+**The Filipino Star at the U.S. Open Igniting a Neighborhood in Queens**\
+`The 21-year-old sensation Alex Eala has charmed the tennis world and united her far-flung compatriots.`\
+https://www.nytimes.com/2026/09/02/nyregion/alex-eala-us-open-philippines-little-manila.html
+
 **USPS Is Building a Mail-In Ballot Screening System Despite Legal Battles Over Trump Order**\
 `Election officials warn that the creation of a new online portal for states to upload voter information is already fueling confusion and could ultimately disenfranchise voters.`\
 https://www.nytimes.com/2026/09/02/us/politics/postal-service-ballot-screening-system.html

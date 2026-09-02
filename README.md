@@ -1,3 +1,7 @@
+**Inside Trump’s Second Term**\
+`We talk to Jonathan Swan about how foreign leaders use leverage, strength and personal dynamics to manage the president.`\
+https://www.nytimes.com/2026/09/02/world/trump-regime-change-strike-wedding.html
+
 **Jonathan Franzen’s “The Corrections” Is 25 Years Old. Its First Paragraph Still Feels New.**\
 `Jonathan Franzen’s 2001 novel was celebrated for its canny portrayal of American life. It’s also a stunning act of literary creation.`\
 https://www.nytimes.com/interactive/2026/09/02/books/jonathan-franzen-the-corrections.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/02/technology/google-ad-tech-remedies.html
 **Can Sports-Betting Sites Predict the Midterms?**\
 `What’s the role of prediction markets when it comes to the midterms? For the pollster Kristen Soltis Anderson, their lack of transparency on who is betting — and why — makes them hard to trust.`\
 https://www.nytimes.com/video/opinion/100000011093696/can-sports-betting-sites-predict-the-midterms.html
-
-**What A.O.C.’s Egg Freezing Says About Politics**\
-`Alexandria Ocasio-Cortez and Karoline Leavitt may have very different politics, says Kristen Soltis Anderson, but they’re both publicly navigating similar realities: being young women in the public eye and navigating career ambition alongside questions of fertility and family.`\
-https://www.nytimes.com/video/opinion/100000011090296/what-aocs-egg-freezing-says-about-politics.html
 
