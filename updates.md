@@ -1,3 +1,23 @@
+**Who Owns Reggaeton’s Beat? A Judge Throws Out One Claim.**\
+`A copyright suit against stars including Bad Bunny and Daddy Yankee came from the producers behind a trio of songs foundational to the genre.`\
+https://www.nytimes.com/2026/09/02/arts/music/reggaeton-lawsuit-bad-bunny.html
+
+**Southwest to Open Premium Airport Lounges Across the Country**\
+`The airline said that lounges in Baltimore, Honolulu, Nashville and Austin, Texas, would debut starting late next year, and that seven more were in the works.`\
+https://www.nytimes.com/2026/09/02/travel/southwest-airport-lounges.html
+
+**Read the document**\
+`PDF version of Scents and the City.`\
+https://www.nytimes.com/interactive/2026/09/02/us/nyc-smell-map.html
+
+**The Yankees’ Post-9/11 World Series Run**\
+`George W. Bush, Billy Crystal, Tino Martinez and others describe how baseball and a thrilling postseason became a rallying cry for the country.`\
+https://www.nytimes.com/interactive/2026/09/02/magazine/yankees-world-series-9-11.html
+
+**A Guide to Covid, Flu and R.S.V. Vaccines This Fall**\
+`The organizations issued their own recommendations on flu, Covid-19 and R.S.V. immunizations, citing a lack of strong guidance from the federal government.`\
+https://www.nytimes.com/2026/09/02/well/covid-flu-vaccines-rsv.html
+
 **Eala-Mania Hits the U.S. Open, and There’s Joy in Little Manila**\
 `The young Filipino star Alex Eala has charmed the tennis world and united her far-flung compatriots.`\
 https://www.nytimes.com/2026/09/02/nyregion/alex-eala-us-open-philippines-little-manila.html
