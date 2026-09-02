@@ -1,15 +1,3 @@
-**Times Square Police Shooting Was Justified but Put Others at Risk, Experts Say**\
-`Officers who stood around a woman wielding two kitchen knives, and then opened fire without clearing the area, risked harming themselves or passers-by, the experts said.`\
-https://www.nytimes.com/2026/09/01/nyregion/times-square-shooting-stabbing-nypd.html
-
-**Federal Judge Dismisses Lawsuit Against Lizzo and Her Touring Company**\
-`The singer, who has faced several lawsuits asserting harassment, discrimination and a hostile work environment, has repeatedly denied wrongdoing.`\
-https://www.nytimes.com/2026/09/01/us/lizzo-lawsuit-dismissed-stylist-federal-judge.html
-
-**Judge Lets Case Against Suspect in Charlie Kirk Killing Go to Trial**\
-`The judge said that there was enough evidence to try the man accused of assassinating the conservative activist last year and that prosecutors could seek the death penalty.`\
-https://www.nytimes.com/2026/09/01/us/charlie-kirk-shooting.html
-
 **Joint Chiefs Chairman Says Military Has ‘No Plans’ to Send Troops to the Polls**\
 `Gen. Dan Caine, President Trump’s top military adviser, appeared to renounce the possibility of the military interfering in the 2026 midterms.`\
 https://www.nytimes.com/2026/09/01/us/politics/caine-military-elections.html
@@ -197,4 +185,16 @@ https://www.nytimes.com/2026/09/01/business/energy-environment/venezuela-oil-tru
 **U.S. Strikes Iran Over Strait of Hormuz Mines, Trump Says**\
 `The renewed hostilities underscore how a durable solution to the conflict remains far-off.`\
 https://www.nytimes.com/2026/09/01/us/politics/us-launches-air-strikes-iran.html
+
+**These Ukrainian Children Go to School Underground. They’re the Lucky Ones.**\
+`In a frontline city, parents don’t see schools built below ground as apocalyptic. Instead, they offer relief from worry about the threat of Russian strikes.`\
+https://www.nytimes.com/2026/09/01/world/europe/ukraine-underground-schools.html
+
+**Was John Galliano Ever Really Canceled? Not by the Fashion Crowd.**\
+`This may be the end of the Costume Institute’s John Galliano exhibition, but it’s not likely to be the end of his career.`\
+https://www.nytimes.com/2026/09/01/style/john-galliano-dior-margiela-met.html
+
+**Kirbee’s Brings Texas BBQ Smoke and Green Spaghetti to Brooklyn**\
+`Faux opens with George McNally at the helm, Evelyn Bar & Kitchen debuts from the longtime manager of the Full Shilling and more restaurant news.`\
+https://www.nytimes.com/2026/09/01/dining/nyc-restaurant-news.html
 
