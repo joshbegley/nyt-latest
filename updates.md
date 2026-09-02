@@ -1,3 +1,19 @@
+**Federal Judge Declines to Break Up Google’s Ad Technology Business**\
+`In a long awaited ruling, the judge said Google must make some changes to its ad tech business to handle antitrust issues, but did not disclose the measures publicly.`\
+https://www.nytimes.com/2026/09/02/technology/google-ad-tech-remedies.html
+
+**Can Sports-Betting Sites Predict the Midterms?**\
+`What’s the role of prediction markets when it comes to the midterms? For the pollster Kristen Soltis Anderson, their lack of transparency on who is betting — and why — makes them hard to trust.`\
+https://www.nytimes.com/video/opinion/100000011093696/can-sports-betting-sites-predict-the-midterms.html
+
+**What A.O.C.’s Egg Freezing Says About Politics**\
+`Alexandria Ocasio-Cortez and Karoline Leavitt may have very different politics, says Kristen Soltis Anderson, but they’re both publicly navigating similar realities: being young women in the public eye and navigating career ambition alongside questions of fertility and family.`\
+https://www.nytimes.com/video/opinion/100000011090296/what-aocs-egg-freezing-says-about-politics.html
+
+**Trump’s ‘Lightning Speed’ Outpaces the Courts**\
+`In his breakneck construction of a grand ballroom and in many other initiatives, critics say, the president has tried to outrun judicial review.`\
+https://www.nytimes.com/2026/09/02/us/politics/trump-courts-ballroom.html
+
 **Pollution on Glaciers Could Be Fueling Himalayan Disasters**\
 `Darkened by soot from vehicles and factories, the region’s glaciers are absorbing more heat and melting at dangerous rates.`\
 https://www.nytimes.com/2026/09/02/climate/pollution-soot-glaciers-melting-himalayas.html
