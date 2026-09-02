@@ -1,3 +1,11 @@
+**The Good List: 6 Things to Add Joy to Your Day**\
+`Your birthday crossword, nearby pianos and the lone katydid.`\
+https://www.nytimes.com/2026/09/02/briefing/2-the-good-list-katydid-pianos.html
+
+**Ask Us Anything About Our Midterm Reporting**\
+`Send us questions about our political coverage, polling and election results reporting. New York Times journalists will answer.`\
+https://www.nytimes.com/2026/09/02/insider/ask-us-anything-about-our-midterm-reporting.html
+
 **Noise and Motion Monitors in Their Homes? These Tenants Say No.**\
 `The public housing authority in Concord, N.H., installed monitoring devices in 300 homes. Tenants are now suing to remove the Minut sensors.`\
 https://www.nytimes.com/2026/09/02/technology/noise-monitors-public-housing.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/02/style/divorce-estranged-family-relationships.
 **The ‘Miracle House’ That Survived Nepal’s Floods**\
 `People are coming to take photos of the green-painted house, which kept the Pyakurel family safe as the area all around them was destroyed by rampaging floodwaters.`\
 https://www.nytimes.com/2026/09/02/world/asia/nepal-flood-miracle-house-dhunge-bazaar.html
-
-**In Egypt, Xi Challenges America’s Influence in the Middle East**\
-`China’s leader, Xi Jinping, is seeking to deepen ties with a longtime U.S. security partner and to project a larger role for Beijing in a region rocked by war.`\
-https://www.nytimes.com/2026/09/02/world/asia/china-egypt-xi-jinping-el-sisi.html
-
-**U.S. and Iran Survey the Damage After a Night of Intense Strikes**\
-`The American military said its barrage was retaliation against recent attacks on U.S. forces and marine traffic. Iranian officials said a wedding was hit and civilians killed.`\
-https://www.nytimes.com/2026/09/02/world/middleeast/us-iran-strikes.html
 

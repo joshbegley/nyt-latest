@@ -1,3 +1,11 @@
+**The Good List: 6 Things to Add Joy to Your Day**\
+`Your birthday crossword, nearby pianos and the lone katydid.`\
+https://www.nytimes.com/2026/09/02/briefing/2-the-good-list-katydid-pianos.html
+
+**Ask Us Anything About Our Midterm Reporting**\
+`Send us questions about our political coverage, polling and election results reporting. New York Times journalists will answer.`\
+https://www.nytimes.com/2026/09/02/insider/ask-us-anything-about-our-midterm-reporting.html
+
 **Noise and Motion Monitors in Their Homes? These Tenants Say No.**\
 `The public housing authority in Concord, N.H., installed monitoring devices in 300 homes. Tenants are now suing to remove the Minut sensors.`\
 https://www.nytimes.com/2026/09/02/technology/noise-monitors-public-housing.html
