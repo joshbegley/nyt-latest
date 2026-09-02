@@ -1,3 +1,11 @@
+**Ariana Grande Steps Back From Spotlight After Tour Ends: What to Know**\
+`As the singer wrapped up her Eternal Sunshine world tour this week, she was set to take a break after a whirlwind couple of years.`\
+https://www.nytimes.com/2026/09/02/style/ariana-grande-tour-jonathan-bailey.html
+
+**In Nepal and Tibet, Pollution on Glaciers Could Fuel More Flood Disasters**\
+`Darkened by soot from vehicles and factories, the region’s glaciers are absorbing more heat and melting at dangerous rates.`\
+https://www.nytimes.com/2026/09/02/climate/pollution-soot-glaciers-melting-himalayas.html
+
 **Kennedy Center Remove Landmark ‘Blue’ Sculpture From Grounds**\
 `The Kennedy Center removed a sculpture called “Blue,” by Joel Shapiro, from its grounds on Wednesday. The work was targeted for removal after President Trump took over the center, documents obtained by The New York Times show.`\
 https://www.nytimes.com/video/us/100000011128157/kennedy-center-blue-sculpture.html
