@@ -1,3 +1,15 @@
+**Your Guide to Covid, Flu and R.S.V. Vaccines This Fall**\
+`Major medical groups released new recommendations on who should get the shots, citing a lack of strong guidance from the federal government.`\
+https://www.nytimes.com/2026/09/02/well/covid-flu-vaccines-rsv.html
+
+**What Is ‘Narrative Art?’ The Lucas Museum Finally Shows Us Its Vision.**\
+`After several delays, George Lucas’s legacy project is finally ready to open. There’s less “Star Wars” than you might expect.`\
+https://www.nytimes.com/2026/09/02/arts/design/george-lucas-museum-narrative-art-opening.html
+
+**In Danny Boyle’s ‘Ink,’ Tabloid Scandals Sell and the Public Is Buying**\
+`The film, which opened the Venice Film Festival on Wednesday, portrays the rise of the British tabloid The Sun in the Boyle’s trademark rollicking style.`\
+https://www.nytimes.com/2026/09/02/arts/danny-boyle-ink-venice-film-festival.html
+
 **Tell Us How You Observe Yom Kippur**\
 `Yom Kippur, which starts this year on Sept. 20, is one of the most widely observed Jewish holidays. If you are Jewish, we want to know how you experience it.`\
 https://www.nytimes.com/2026/09/02/us/observe-yom-kippur.html
