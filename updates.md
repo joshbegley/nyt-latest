@@ -1,3 +1,19 @@
+**¿Cuál es la mejor manera de eliminar los puntos negros?**\
+`Esto es lo que los dermatólogos recomiendan para deshacerte de esas impurezas en tu piel.`\
+https://www.nytimes.com/es/2026/09/02/espanol/puntos-negros-como-eliminarlos-dermatologos.html
+
+**It’s a Great Time to Be Rich in New York City**\
+`For pretty much everyone else, the picture is bleak. Income inequality is as entrenched as ever, according to a new report by New York City’s comptroller.`\
+https://www.nytimes.com/2026/09/02/nyregion/new-york-income-inequality.html
+
+**How Our Madrid Bureau Chief Covers a Country in Transition**\
+`In Spain, Jason Horowitz is seeking to capture stories that reflect the country’s new momentum.`\
+https://www.nytimes.com/2026/09/02/insider/madrid-bureau-chief.html
+
+**NYT Spelling Bee Answers for September 2, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/09/02/crosswords/spelling-bee-forum.html
+
 **U.S.S. Abraham Lincoln Docks in Thailand, Giving Weary Crew a Break**\
 `Thousands of sailors and Marines serve on the U.S.S. Abraham Lincoln, which came into the spotlight because of a tough deployment in the war in Iran.`\
 https://www.nytimes.com/2026/09/02/world/asia/uss-lincoln-arrives-thailand.html
