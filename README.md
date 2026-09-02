@@ -1,3 +1,7 @@
+**Former Biden White House Aide Wins Massachusetts Democratic House Primary**\
+`Dan Koh, who ran with the endorsement of former President Joseph R. Biden Jr., topped a crowded field to secure the nomination in the safely Democratic Sixth Congressional District.`\
+https://www.nytimes.com/2026/09/01/us/politics/massachusetts-democratic-primary-6th-district.html
+
 **‘Don’t Worry About Me’: Attacker’s Father Thought She Had Turned a Corner**\
 `Pamela Cisneros was killed by the police in Times Square after she stabbed two people, one fatally. Her father said she had stopped going with him to her mental health appointments.`\
 https://www.nytimes.com/2026/09/01/nyregion/times-square-stabbing-suspect.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/01/world/middleeast/israel-guards-palestinian-pr
 **Woman Killed in Times Square Stabbing Identified as Bank of America VP**\
 `The New York Police Department made public the names of some of the people involved in a seemingly random knife attack on a crowded Manhattan street, but questions remained.`\
 https://www.nytimes.com/2026/09/01/nyregion/victims-stabbing-times-square-nyc.html
-
-**Carney Tells Trump Officials to ‘Stop Throwing Shade’ Over Canada-U.S. Trade Talks**\
-`Amid a trade war, Canada’s Liberals swept three special votes and new polling suggested strong support for Prime Minister Mark Carney and his retaliatory tariffs against the U.S.`\
-https://www.nytimes.com/2026/09/01/world/canada/carney-trump-trade-war.html
 

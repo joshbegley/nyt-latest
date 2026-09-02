@@ -1,3 +1,7 @@
+**Judge Lets Case Against Tyler Robinson, Charlie Kirk Shooting Suspect, Go to Trial**\
+`The judge said prosecutors had presented enough evidence to try the man accused of killing the conservative activist last year, who pleaded not guilty.`\
+https://www.nytimes.com/2026/09/01/us/charlie-kirk-shooting.html
+
 **A.I. Is to Be Banned in N.Y.C. Elementary and Middle Schools**\
 `A new policy to be announced by the Department of Education bars younger students from using A.I., but stops short of a moratorium.`\
 https://www.nytimes.com/2026/09/01/nyregion/ai-ban-schools-nyc.html
