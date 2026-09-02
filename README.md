@@ -1,3 +1,7 @@
+**A Mayor’s Wife Is Injured as ICE Chases Another Driver, Officials Say**\
+`A driver fled after being stopped by federal immigration agents, who then pursued the individual on a New Jersey highway, the police officials said.`\
+https://www.nytimes.com/2026/09/02/nyregion/ice-chase-new-jersey-crash.html
+
 **Our Smoky, Sweaty, Itchy, No Escape, Very Long Summer**\
 `Did some of the season’s dependable pleasures — sunshine, lake vacations, time spent outdoors — feel newly in limbo this year? Blame climate change.`\
 https://www.nytimes.com/interactive/2026/09/02/climate/heat-wave-wildfire-smoke-summer.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/embedded/business/100000011128330/Biz-Uber-London-
 **The Mysterious and Lonely Final Decade of Yayoi Kusama’s Life**\
 `The Japanese artist spent the last seven years in isolation and declining health. Still, it was the most prolific chapter of her career.`\
 https://www.nytimes.com/2026/09/02/arts/design/yayoi-kusama-final-years.html
-
-**Una corte de Honduras absuelve al expresidente Juan Orlando Hernández**\
-`El indulto del presidente Trump permitió la liberación de Hernández en diciembre. El martes, un tribunal desestimó los cargos de fraude y lavado de dinero en su contra, lo que lo convierte en un hombre libre.`\
-https://www.nytimes.com/es/2026/09/02/espanol/america-latina/honduras-juan-orlando-hernandez-libre.html
 
