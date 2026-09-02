@@ -1,3 +1,11 @@
+**‘Don’t Worry About Me’: Attacker’s Father Thought She Had Turned a Corner**\
+`Pamela Cisneros was killed by the police in Times Square after she stabbed two people, one fatally. Her father said she had stopped going with him to her mental health appointments.`\
+https://www.nytimes.com/2026/09/01/nyregion/times-square-stabbing-suspect.html
+
+**NYT Crossword Answers for Sept. 2, 2026**\
+`Mac Motz makes his New York Times Crossword debut.`\
+https://www.nytimes.com/2026/09/01/crosswords/daily-puzzle-2026-09-02.html
+
 **A Plan to Eradicate the Deer on Catalina Island Will Proceed, Organizers Say**\
 `After a judge issued a tentative ruling on a legal challenge Tuesday, the Catalina Island Conservancy said that it would begin the first phase of its plan to kill nearly all of the 2,000 deer on the California island.`\
 https://www.nytimes.com/2026/09/01/us/catalina-island-deer.html
