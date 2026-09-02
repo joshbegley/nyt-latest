@@ -1,3 +1,11 @@
+**Pollution on Glaciers Could Be Fueling Himalayan Disasters**\
+`Darkened by soot from vehicles and factories, the region’s glaciers are absorbing more heat and melting at dangerous rates.`\
+https://www.nytimes.com/2026/09/02/climate/pollution-soot-glaciers-melting-himalayas.html
+
+**Trump’s ‘Lightning Speed’ Threatens to Outpace the Courts**\
+`In his breakneck construction of a grand ballroom and in many other initiatives, critics say, the president has tried to outrun judicial review.`\
+https://www.nytimes.com/2026/09/02/us/politics/trump-courts-ballroom.html
+
 **Trump Returns to a Familiar Playbook as the War With Iran Flares Up Again**\
 `President Trump called on Iranians to “rise up and fight” on Tuesday as the United States seems increasingly bogged down after six months of conflict.`\
 https://www.nytimes.com/2026/09/02/us/politics/trump-iran-strait-of-hormuz.html
@@ -7,7 +15,7 @@ https://www.nytimes.com/2026/09/02/us/politics/trump-iran-strait-of-hormuz.html
 https://www.nytimes.com/video/world/asia/100000011127677/miracle-green-house-nepal-floods.html
 
 **Judge in Clancy Case Questions Jurors Individually**\
-`The reason for the 10-minute sidebar at the start of court on Wednesday was unclear. A woman was charged the previous day with intimidating a participant in the trial.`\
+`The reason for a brief discussion before deliberations was unclear. A woman was charged the previous day with intimidating a participant in the trial.`\
 https://www.nytimes.com/2026/09/02/us/lindsay-clancy-trial-judge-questions-jurors.html
 
 **Patients and Doctors, Shaken by the Clancy Trial, Seek Extra Help**\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/09/02/world/americas/colombia-earthquake-ai-aid-app
 **‘The Runner’ Review: Neither Fast Nor Furious Enough**\
 `Gal Gadot limps ahead as a desperate single mother in a thin race-against-time thriller.`\
 https://www.nytimes.com/2026/09/02/movies/runner-review.html
-
-**I Need an IV Drip to Recover From My IV Drip**\
-`Wellness clinics are shooting people up with vitamins, but is the point to actually feel better — or the opposite?`\
-https://www.nytimes.com/2026/09/02/magazine/iv-drip-vitamin-wellness.html
-
-**This Fall, Earth-Toned Men’s Wear Steps Into the Light**\
-`Soft tailoring and easy outerwear that’s warmed up with shades of slate, rust and ocher.`\
-https://www.nytimes.com/2026/09/02/t-magazine/neutral-mens-fall-fashion.html
 

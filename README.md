@@ -1,3 +1,11 @@
+**Can Sports-Betting Sites Predict the Midterms?**\
+`What’s the role of prediction markets when it comes to the midterms? For the pollster Kristen Soltis Anderson, their lack of transparency on who is betting — and why — makes them hard to trust.`\
+https://www.nytimes.com/video/opinion/100000011093696/can-sports-betting-sites-predict-the-midterms.html
+
+**What A.O.C.’s Egg Freezing Says About Politics**\
+`Alexandria Ocasio-Cortez and Karoline Leavitt may have very different politics, says Kristen Soltis Anderson, but they’re both publicly navigating similar realities: being young women in the public eye and navigating career ambition alongside questions of fertility and family.`\
+https://www.nytimes.com/video/opinion/100000011090296/what-aocs-egg-freezing-says-about-politics.html
+
 **Pollution on Glaciers Could Be Fueling Himalayan Disasters**\
 `Darkened by soot from vehicles and factories, the region’s glaciers are absorbing more heat and melting at dangerous rates.`\
 https://www.nytimes.com/2026/09/02/climate/pollution-soot-glaciers-melting-himalayas.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/09/02/opinion/steve-hilton-california-trump.html
 **‘Katy Perry: The Lifetimes Tour’ Review: Back to Space She Goes**\
 `Katy Perry’s sci-fi concert film from Paris shines brightest during simple, back-to-basics pop moments.`\
 https://www.nytimes.com/2026/09/02/movies/katy-perry-the-lifetimes-tour-live-from-paris-review.html
-
-**After the Earthquake, They Used A.I. to Mobilize Aid**\
-`As volunteers struggled to get supplies to quake victims in Colombia, a few tech workers built an app to map and organize the sprawling relief effort.`\
-https://www.nytimes.com/2026/09/02/world/americas/colombia-earthquake-ai-aid-app.html
-
-**‘The Runner’ Review: Neither Fast Nor Furious Enough**\
-`Gal Gadot limps ahead as a desperate single mother in a thin race-against-time thriller.`\
-https://www.nytimes.com/2026/09/02/movies/runner-review.html
 

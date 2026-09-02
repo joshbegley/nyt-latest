@@ -1,3 +1,15 @@
+**Pollution on Glaciers Could Be Fueling Himalayan Disasters**\
+`Darkened by soot from vehicles and factories, the region’s glaciers are absorbing more heat and melting at dangerous rates.`\
+https://www.nytimes.com/2026/09/02/climate/pollution-soot-glaciers-melting-himalayas.html
+
+**Trump’s ‘Lightning Speed’ Threatens to Outpace the Courts**\
+`In his breakneck construction of a grand ballroom and in many other initiatives, critics say, the president has tried to outrun judicial review.`\
+https://www.nytimes.com/2026/09/02/us/politics/trump-courts-ballroom.html
+
+**Judge in Clancy Case Questions Jurors Individually**\
+`The reason for a brief discussion before deliberations was unclear. A woman was charged the previous day with intimidating a participant in the trial.`\
+https://www.nytimes.com/2026/09/02/us/lindsay-clancy-trial-judge-questions-jurors.html
+
 **Trump Returns to a Familiar Playbook as the War With Iran Flares Up Again**\
 `President Trump called on Iranians to “rise up and fight” on Tuesday as the United States seems increasingly bogged down after six months of conflict.`\
 https://www.nytimes.com/2026/09/02/us/politics/trump-iran-strait-of-hormuz.html
