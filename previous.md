@@ -1,3 +1,7 @@
+**Postal Service Is Building Ballot Screening System Despite Ongoing Court Fight**\
+`Election officials warn that the creation of a new online portal for states to upload voter information is already fueling confusion and could ultimately disenfranchise voters.`\
+https://www.nytimes.com/2026/09/02/us/politics/postal-service-ballot-screening-system.html
+
 **Paul S. Russell, an Innovator in Transplant Medicine, Dies at 101**\
 `In his over 70 years at Massachusetts General Hospital, he led the way in turning new findings in medical science into successes in clinical practice.`\
 https://www.nytimes.com/2026/09/02/obituaries/paul-russell-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/opinion/100000011090296/what-aocs-egg-freezing-say
 **In Nepal and Tibet, Pollution on Glaciers Could Fuel More Flood Disasters**\
 `Darkened by soot from vehicles and factories, the region’s glaciers are absorbing more heat and melting at dangerous rates.`\
 https://www.nytimes.com/2026/09/02/climate/pollution-soot-glaciers-melting-himalayas.html
-
-**Trump’s Speed on the White House Ballroom Threatens to Outpace the Courts**\
-`In his breakneck construction of a grand ballroom and in many other initiatives, critics say, the president has tried to outrun judicial review.`\
-https://www.nytimes.com/2026/09/02/us/politics/trump-courts-ballroom.html
 

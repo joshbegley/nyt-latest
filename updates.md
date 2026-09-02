@@ -1,3 +1,7 @@
+**Postal Service Is Building Ballot Screening System Despite Ongoing Court Fight**\
+`Election officials warn that the creation of a new online portal for states to upload voter information is already fueling confusion and could ultimately disenfranchise voters.`\
+https://www.nytimes.com/2026/09/02/us/politics/postal-service-ballot-screening-system.html
+
 **Paul S. Russell, an Innovator in Transplant Medicine, Dies at 101**\
 `In his over 70 years at Massachusetts General Hospital, he led the way in turning new findings in medical science into successes in clinical practice.`\
 https://www.nytimes.com/2026/09/02/obituaries/paul-russell-dead.html
