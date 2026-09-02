@@ -1,3 +1,7 @@
+**Gary Glitter Pleads Not Guilty to Child Sexual Abuse Charges**\
+`Accusations against the glam rock singer relate to incidents that are said to have occurred between 1978 and 1981.`\
+https://www.nytimes.com/2026/09/02/arts/music/gary-glitter-court.html
+
 **Bus Crash in Egypt Kills at Least 16**\
 `The vehicle overturned in an area of the Sinai Peninsula that is popular with tourists. Another 28 people were injured, officials said.`\
 https://www.nytimes.com/2026/09/02/world/africa/bus-crash-egypt-sinai.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/02/headway/india-delhi-metro-public-transit.html
 **Critically Endangered Parrots Enjoy Baby Boom After Mating Frenzy**\
 `There are now 325 kakapos in New Zealand, the largest population of the giant, flightless parrot species in decades, conservationists said.`\
 https://www.nytimes.com/2026/09/02/world/australia/kakapo-parrot-new-zealand.html
-
-**Una fábrica en Irlanda queda atrapada en la guerra económica contra Rusia**\
-`La alúmina procesada en una refinería en el condado rual de Limerick podría estar alimentando la guerra de Rusia en Ucrania, según sugirió una investigación. Existe poco consenso sobre qué hacer al respecto.`\
-https://www.nytimes.com/es/2026/09/02/espanol/mundo/fabrica-alumina-irlanda-rusia.html
 
