@@ -1,3 +1,7 @@
+**A Mayor’s Wife Is Injured as ICE Chases Another Driver, Officials Say**\
+`A driver fled after being stopped by federal immigration agents, who then pursued the individual on a New Jersey highway, the police officials said.`\
+https://www.nytimes.com/2026/09/02/nyregion/ice-chase-new-jersey-crash.html
+
 **Our Smoky, Sweaty, Itchy, No Escape, Very Long Summer**\
 `Did some of the season’s dependable pleasures — sunshine, lake vacations, time spent outdoors — feel newly in limbo this year? Blame climate change.`\
 https://www.nytimes.com/interactive/2026/09/02/climate/heat-wave-wildfire-smoke-summer.html
