@@ -1,3 +1,7 @@
+**Eala-Mania Hits the U.S. Open, and There’s Joy in Little Manila**\
+`The young Filipino star Alex Eala has charmed the tennis world and united her far-flung compatriots.`\
+https://www.nytimes.com/2026/09/02/nyregion/alex-eala-us-open-philippines-little-manila.html
+
 **The Yankees’ Post-9/11 World Series Run: ‘We Wanted to Win for the City’**\
 `George W. Bush, Billy Crystal, Tino Martinez and others describe how baseball and a thrilling postseason became a rallying cry for the country.`\
 https://www.nytimes.com/interactive/2026/09/02/magazine/yankees-world-series-9-11.html
@@ -39,7 +43,7 @@ https://www.nytimes.com/es/2026/09/02/espanol/mundo/nepal-inundaciones-casa-mila
 https://www.nytimes.com/2026/09/02/sports/womens-professional-leagues.html
 
 **Trump Administration Launches Hunt For Noncitizen Voter Fraud Before Midterms**\
-`The practice is exceedingly rare, but President Trump has fixated on rooting it out this year, claiming without evidence that tens of thousands of noncitizens are registered to vote.`\
+`Voter fraud is exceedingly rare, but President Trump has fixated on rooting it out this year, claiming without evidence that tens of thousands of noncitizens are registered to vote.`\
 https://www.nytimes.com/2026/09/02/us/politics/trump-election-voter-fraud.html
 
 **The Local: How tariffs will affect your shopping**\
@@ -179,7 +183,7 @@ https://www.nytimes.com/2026/09/02/climate/pollution-soot-glaciers-melting-himal
 https://www.nytimes.com/2026/09/02/us/politics/trump-courts-ballroom.html
 
 **Trump Returns to a Familiar Playbook as the War With Iran Flares Up Again**\
-`President Trump called on Iranians to “rise up and fight” on Tuesday as the United States seems increasingly bogged down after six months of conflict.`\
+`The United States seems increasingly bogged down in Iran after six months of conflict, despite President Trump’s declarations of military dominance.`\
 https://www.nytimes.com/2026/09/02/us/politics/trump-iran-strait-of-hormuz.html
 
 **The ‘Miracle House’ That Survived Nepal’s Floods**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/02/us/lindsay-clancy-trial-judge-questions-juror
 **Lindsay Clancy’s Trial Prompts Patients and Doctors to Rethink Postpartum Care**\
 `Requests for advice from women with maternal mental health conditions, as well as health providers who care for them, have surged.`\
 https://www.nytimes.com/2026/09/02/well/doctors-patients-postpartum-mental-health-clancy-trial.html
-
-**King Charles III to View Bayeux Tapestry at the British Museum**\
-`The monarch was invited to see the historic embroidery days before a major British Museum exhibition, almost 40 years after seeing it in France with Diana.`\
-https://www.nytimes.com/2026/09/02/arts/design/bayeux-tapestry-king-charles.html
 
