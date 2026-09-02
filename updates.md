@@ -1,3 +1,19 @@
+**The Mysterious and Lonely Final Decade of Yayoi Kusama’s Life**\
+`The Japanese artist spent the last seven years in isolation and declining health. Still, it was the most prolific chapter of her career.`\
+https://www.nytimes.com/2026/09/02/arts/design/yayoi-kusama-final-years.html
+
+**Una corte de Honduras absuelve al expresidente Juan Orlando Hernández**\
+`El indulto del presidente Trump permitió la liberación de Hernández en diciembre. El martes, un tribunal desestimó los cargos de fraude y lavado de dinero en su contra, lo que lo convierte en un hombre libre.`\
+https://www.nytimes.com/es/2026/09/02/espanol/america-latina/honduras-juan-orlando-hernandez-libre.html
+
+**In a Big Win, Google Won’t Have to Break Up Its Ad Tech Business, Court Rules**\
+`In a long awaited decision, the judge said Google must make some changes to its ad tech business to handle antitrust issues, but did not disclose the measures publicly.`\
+https://www.nytimes.com/2026/09/02/technology/google-ad-tech-remedies.html
+
+**Lindsay Clancy Murder Case: Woman Charged After Filming at the Courthouse**\
+`Her lawyer said she had been trying to get an image of the defendant. Prosecutors charged her with intimidation, as jury deliberations entered their fifth day.`\
+https://www.nytimes.com/2026/09/02/us/lindsay-clancy-trial-judge-questions-jurors.html
+
 **Google Won’t Have to Break Up Its Ad Tech Business, Court Rules**\
 `In a long awaited ruling, the judge said Google must make some changes to its ad tech business to handle antitrust issues, but did not disclose the measures publicly.`\
 https://www.nytimes.com/2026/09/02/technology/google-ad-tech-remedies.html

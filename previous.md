@@ -1,3 +1,11 @@
+**The Mysterious and Lonely Final Decade of Yayoi Kusama’s Life**\
+`The Japanese artist spent the last seven years in isolation and declining health. Still, it was the most prolific chapter of her career.`\
+https://www.nytimes.com/2026/09/02/arts/design/yayoi-kusama-final-years.html
+
+**Una corte de Honduras absuelve al expresidente Juan Orlando Hernández**\
+`El indulto del presidente Trump permitió la liberación de Hernández en diciembre. El martes, un tribunal desestimó los cargos de fraude y lavado de dinero en su contra, lo que lo convierte en un hombre libre.`\
+https://www.nytimes.com/es/2026/09/02/espanol/america-latina/honduras-juan-orlando-hernandez-libre.html
+
 **Today, In Short**\
 `Puppies. Gap. And Barbie.`\
 https://www.nytimes.com/2026/09/02/briefing/today-in-short.html
@@ -14,8 +22,8 @@ https://www.nytimes.com/2026/09/02/opinion/trump-aluminum-tariffs-canada.html
 `Mientras los voluntarios batallaban para llevar suministros a las víctimas del terremoto en Colombia, unos cuantos trabajadores tecnológicos crearon una aplicación para mapear y organizar el vasto esfuerzo de socorro.`\
 https://www.nytimes.com/es/2026/09/02/espanol/america-latina/terremoto-colombia-ayuda-ia.html
 
-**Google Won’t Have to Break Up Its Ad Tech Business, Court Rules**\
-`In a long awaited ruling, the judge said Google must make some changes to its ad tech business to handle antitrust issues, but did not disclose the measures publicly.`\
+**In a Big Win, Google Won’t Have to Break Up Its Ad Tech Business, Court Rules**\
+`In a long awaited decision, the judge said Google must make some changes to its ad tech business to handle antitrust issues, but did not disclose the measures publicly.`\
 https://www.nytimes.com/2026/09/02/technology/google-ad-tech-remedies.html
 
 **Can Sports-Betting Sites Predict the Midterms?**\
@@ -42,8 +50,8 @@ https://www.nytimes.com/2026/09/02/us/politics/trump-iran-strait-of-hormuz.html
 `A building in Nepal has been nicknamed “the miracle green house” because it remained standing during last week’s disastrous flooding and kept its residents safe.`\
 https://www.nytimes.com/video/world/asia/100000011127677/miracle-green-house-nepal-floods.html
 
-**Judge in Clancy Case Questions Jurors Individually**\
-`The reason for a brief discussion before deliberations was unclear. A woman was charged the previous day with intimidating a participant in the trial.`\
+**Lindsay Clancy Murder Case: Woman Charged After Filming at the Courthouse**\
+`Her lawyer said she had been trying to get an image of the defendant. Prosecutors charged her with intimidation, as jury deliberations entered their fifth day.`\
 https://www.nytimes.com/2026/09/02/us/lindsay-clancy-trial-judge-questions-jurors.html
 
 **Patients and Doctors, Shaken by the Clancy Trial, Seek Extra Help**\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/09/02/business/media/saturday-evening-post-stop-pri
 **What We Know About the Deadly Events in Times Square**\
 `Pamela Cisneros, 49, was shot dead by the police after she stabbed two people, one fatally. She had a documented history of mental health problems.`\
 https://www.nytimes.com/2026/09/02/nyregion/what-we-know-about-the-deadly-events-in-times-square.html
-
-**Get to Know Your Phone’s Built-In Emergency Kit**\
-`In times of natural disasters and other dangers, special features tucked away on your iPhone or Android device could help make a difference.`\
-https://www.nytimes.com/2026/09/02/technology/personaltech/iphone-android-emergency-features.html
-
-**An East Coast Summer Vacation, All by Public Transportation**\
-`A self-described transit romantic set out to visit prime summer destinations using only public transportation. Would getting there really be half the fun?`\
-https://www.nytimes.com/2026/09/02/travel/long-island-new-england-trip-train-bus-ferry.html
 
