@@ -1,3 +1,7 @@
+**A.I. Is Largely to Be Banned in N.Y.C. Elementary and Middle Schools**\
+`A new policy to be announced by the Department of Education bars younger students from using A.I., but stops short of a moratorium.`\
+https://www.nytimes.com/2026/09/01/nyregion/ai-ban-schools-nyc.html
+
 **Trump to Nominate Hung Cao as Navy Secretary**\
 `The announcement came amid a purge of leadership at the Pentagon and a stalling war effort against Iran.`\
 https://www.nytimes.com/2026/09/01/us/politics/trump-navy-secretary-hung-cao.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/09/01/espanol/negocios/venezuela-estados-unidos-
 **Has La Mama Made the Next Stylish, Practical It Bag?**\
 `Tired of designer totes that didn’t fit their multifaceted lives, Kate Aubrey and Kyra Griffin took matters into their own hands.`\
 https://www.nytimes.com/2026/09/01/t-magazine/la-mama-bag-tote.html
-
-**Nepal’s Economy Has Few Ways to Absorb the Cost of Flood Damage**\
-`The country’s government estimates that the recent catastrophic floods caused $5 billion in damage. That’s one-tenth of Nepal’s entire economy.`\
-https://www.nytimes.com/2026/09/01/world/asia/nepal-floods-economy.html
 
