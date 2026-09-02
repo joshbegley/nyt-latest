@@ -1,3 +1,23 @@
+**Today, In Short**\
+`Puppies. Gap. And Barbie.`\
+https://www.nytimes.com/2026/09/02/briefing/today-in-short.html
+
+**A Technique for Always-Crispy Fish**\
+`Ali Slagle’s crispy salmon with lentil salsa verde is satisfying, surprising and speedy.`\
+https://www.nytimes.com/2026/09/02/dining/a-technique-for-always-crispy-fish.html
+
+**Wondering How Nuts Trump’s Tariffs Are? Consider Aluminum.**\
+`Canada is better at making aluminum than we are. Let’s just use theirs and make something else.`\
+https://www.nytimes.com/2026/09/02/opinion/trump-aluminum-tariffs-canada.html
+
+**Tras el terremoto en Colombia, la IA sirvió para entregar ayuda**\
+`Mientras los voluntarios batallaban para llevar suministros a las víctimas del terremoto en Colombia, unos cuantos trabajadores tecnológicos crearon una aplicación para mapear y organizar el vasto esfuerzo de socorro.`\
+https://www.nytimes.com/es/2026/09/02/espanol/america-latina/terremoto-colombia-ayuda-ia.html
+
+**Trump’s Speed on the White House Ballroom Threatens to Outpace the Courts**\
+`In his breakneck construction of a grand ballroom and in many other initiatives, critics say, the president has tried to outrun judicial review.`\
+https://www.nytimes.com/2026/09/02/us/politics/trump-courts-ballroom.html
+
 **Federal Judge Declines to Break Up Google’s Ad Technology Business**\
 `In a long awaited ruling, the judge said Google must make some changes to its ad tech business to handle antitrust issues, but did not disclose the measures publicly.`\
 https://www.nytimes.com/2026/09/02/technology/google-ad-tech-remedies.html

@@ -14,7 +14,7 @@ https://www.nytimes.com/2026/09/02/opinion/trump-aluminum-tariffs-canada.html
 `Mientras los voluntarios batallaban para llevar suministros a las víctimas del terremoto en Colombia, unos cuantos trabajadores tecnológicos crearon una aplicación para mapear y organizar el vasto esfuerzo de socorro.`\
 https://www.nytimes.com/es/2026/09/02/espanol/america-latina/terremoto-colombia-ayuda-ia.html
 
-**Federal Judge Declines to Break Up Google’s Ad Technology Business**\
+**Google Won’t Have to Break Up Its Ad Tech Business, Court Rules**\
 `In a long awaited ruling, the judge said Google must make some changes to its ad tech business to handle antitrust issues, but did not disclose the measures publicly.`\
 https://www.nytimes.com/2026/09/02/technology/google-ad-tech-remedies.html
 
