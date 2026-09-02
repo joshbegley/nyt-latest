@@ -1,3 +1,7 @@
+**Jay Leno’s Classic Car Bill Passes in California Legislature**\
+`The bipartisan bill, backed by Mr. Leno, the comedian and car collector, would exempt some older vehicles from having to meet California’s stringent emissions rules.`\
+https://www.nytimes.com/2026/09/02/us/jay-leno-law-classic-cars-emissions.html
+
 **The Good List: 6 Things to Add Joy to Your Day**\
 `Your birthday crossword, nearby pianos and the lone katydid.`\
 https://www.nytimes.com/2026/09/02/briefing/2-the-good-list-katydid-pianos.html
@@ -30,7 +34,7 @@ https://www.nytimes.com/es/2026/09/02/espanol/mundo/nepal-inundaciones-casa-mila
 `Money is flowing into start-ups in softball, baseball, volleyball and basketball, and TV viewership is following.`\
 https://www.nytimes.com/2026/09/02/sports/womens-professional-leagues.html
 
-**Trump Administration Launches Blitz to Find Elusive Voter Fraud Ahead of Midterms**\
+**Trump Administration Launches Hunt For Noncitizen Voter Fraud Before Midterms**\
 `The practice is exceedingly rare, but President Trump has fixated on rooting it out this year, claiming without evidence that tens of thousands of noncitizens are registered to vote.`\
 https://www.nytimes.com/2026/09/02/us/politics/trump-election-voter-fraud.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/02/arts/design/bayeux-tapestry-king-charles.html
 **Why Does My Divorced Father Keep Reaching Out to My Mother’s Relatives?**\
 `A long-divorced father’s wish to stay in the lives of his ex-wife’s family is a source of embarrassment for his middle-aged child.`\
 https://www.nytimes.com/2026/09/02/style/divorce-estranged-family-relationships.html
-
-**The ‘Miracle House’ That Survived Nepal’s Floods**\
-`People are coming to take photos of the green-painted house, which kept the Pyakurel family safe as the area all around them was destroyed by rampaging floodwaters.`\
-https://www.nytimes.com/2026/09/02/world/asia/nepal-flood-miracle-house-dhunge-bazaar.html
 
