@@ -1,3 +1,7 @@
+**Markets Waver as Investors Assess War, Debt and Inflation**\
+`U.S. and Iranian forces traded attacks again, pushing oil prices higher as bond yields remained elevated.`\
+https://www.nytimes.com/2026/09/02/business/oil-bond-yields-iran.html
+
 **The Fight for the West Bank**\
 `We speak to a Palestinian American whose home has been encircled by extremist settlers.`\
 https://www.nytimes.com/2026/09/02/podcasts/the-daily/the-fight-for-the-west-bank.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/02/fashion/jewelry-kuramae-tokyo.html
 **A Luxury Digital Retailer Brings Shopping to You**\
 `Mytheresa believes that selling fine jewelry online depends less on technology than on personal relationships.`\
 https://www.nytimes.com/2026/09/02/fashion/mytheresa-ecommerce-jewelry.html
-
-**Jewelry Is More Than Just a Pretty Bauble**\
-`Appreciation of the category’s cultural and personal resonance has been growing in recent years.`\
-https://www.nytimes.com/2026/09/02/fashion/jewelry-cultural-resonance.html
 
