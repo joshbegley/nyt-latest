@@ -1,3 +1,7 @@
+**Status of Iran’s Nuclear Program Is Unclear, U.N. Watchdog Says**\
+`As the war sputters on, an internal report from the International Atomic Energy Agency said Iran’s refusal to grant access to its inspectors was an urgent concern.`\
+https://www.nytimes.com/2026/09/02/world/middleeast/iran-nuclear-program-iaea.html
+
 **Markets Waver as Investors Assess War, Debt and Inflation**\
 `U.S. and Iranian forces traded attacks again, pushing oil prices higher as bond yields remained elevated.`\
 https://www.nytimes.com/2026/09/02/business/oil-bond-yields-iran.html

@@ -1,3 +1,7 @@
+**Status of Iran’s Nuclear Program Is Unclear, U.N. Watchdog Says**\
+`As the war sputters on, an internal report from the International Atomic Energy Agency said Iran’s refusal to grant access to its inspectors was an urgent concern.`\
+https://www.nytimes.com/2026/09/02/world/middleeast/iran-nuclear-program-iaea.html
+
 **Markets Waver as Investors Assess War, Debt and Inflation**\
 `U.S. and Iranian forces traded attacks again, pushing oil prices higher as bond yields remained elevated.`\
 https://www.nytimes.com/2026/09/02/business/oil-bond-yields-iran.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/02/arts/music/an-architect-of-japanese-pop-pushe
 **Tokyo’s Kuramae District Is a Haven for Artist Studios**\
 `The Kuramae district in Japan’s largest city was once filled with warehouses. Now, it’s a haven for artist studios and craftspeople.`\
 https://www.nytimes.com/2026/09/02/fashion/jewelry-kuramae-tokyo.html
-
-**A Luxury Digital Retailer Brings Shopping to You**\
-`Mytheresa believes that selling fine jewelry online depends less on technology than on personal relationships.`\
-https://www.nytimes.com/2026/09/02/fashion/mytheresa-ecommerce-jewelry.html
 
