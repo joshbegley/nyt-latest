@@ -1,3 +1,11 @@
+**Senator Ed Markey, 80, Turns Back Younger Challenger in Massachusetts**\
+`The oldest senator in Massachusetts history used a progressive message to beat Representative Seth Moulton, 47, defying calls for generational change.`\
+https://www.nytimes.com/2026/09/01/us/politics/massachusetts-senate-democratic-primary.html
+
+**Couple in Florida Kept 4 Children Inside Truck for Years, Prosecutors Say**\
+`Two boys and two girls were kept in a semi truck cab for six years, the authorities said, and the two girls, both under 11 years old, were repeatedly sexual abused.`\
+https://www.nytimes.com/2026/09/01/us/florida-child-abuse-charges-truck-captive.html
+
 **Judge Lets Case Against Tyler Robinson, Charlie Kirk Shooting Suspect, Go to Trial**\
 `The judge said that there was enough evidence to try the man accused of assassinating the conservative activist last year and that prosecutors could seek the death penalty.`\
 https://www.nytimes.com/2026/09/01/us/charlie-kirk-shooting.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/01/arts/music/a-daisy-chain-fields-soundtrack.ht
 **Apple tiene un nuevo CEO, de Tim Cook a John Ternus**\
 `John Ternus sustituye a Tim Cook como director ejecutivo de Apple en medio de cambios tecnológicos y de gestión importantes. Cook se mantendrá como presidente ejecutivo.`\
 https://www.nytimes.com/es/2026/09/01/espanol/negocios/apple-nuevo-ceo-quien-es.html
-
-**A Data Center Backlash**\
-`Today we visit Pennsylvania, where there’s a high-stakes clash over A.I. jobs and the environment.`\
-https://www.nytimes.com/2026/09/01/climate/climate-forward-data-center-backlash.html
-
-**A Disputed Supreme Court Ruling on Trump’s Ballroom**\
-`Readers respond to the decision to allow the Trump administration to continue building the White House ballroom. Also: Regulating marijuana to protect children.`\
-https://www.nytimes.com/2026/09/01/opinion/supreme-court-trump-ballroom.html
 
