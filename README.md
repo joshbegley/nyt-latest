@@ -1,3 +1,11 @@
+**Egypt Bus Crash Kills at Least 22 People, Injures Dozens More**\
+`A bus overturned while traveling between popular resort towns in Egypt on Wednesday, killing at least 22 people, according to the country’s health ministry. It was not immediately clear what caused the crash.`\
+https://www.nytimes.com/video/world/africa/100000011128018/egypt-sinai-bus-crash.html
+
+**Tiny Love Stories: ‘The Hot Neighbor’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/09/02/style/tiny-modern-love-stories-the-hot-neighbor.html
+
 **Trump’s Tactics to Lower Beef Prices and Appease Ranchers Fall Short**\
 `The Agriculture Department offered new initiatives for ranchers after President Trump said he would import more beef. The moves aren’t a quick fix.`\
 https://www.nytimes.com/2026/09/02/business/trump-ranchers-beef-prices-cattle-supply.html
@@ -20,7 +28,7 @@ https://www.nytimes.com/2026/09/02/arts/design/george-lucas-museum-narrative-art
 
 **In Danny Boyle’s ‘Ink,’ Tabloid Scandals Sell and the Public Is Buying**\
 `The film, which opened the Venice Film Festival on Wednesday, portrays the rise of the British tabloid The Sun in the Boyle’s trademark rollicking style.`\
-https://www.nytimes.com/2026/09/02/arts/danny-boyle-ink-venice-film-festival.html
+https://www.nytimes.com/2026/09/02/movies/danny-boyle-ink-venice-film-festival.html
 
 **Tell Us How You Observe Yom Kippur**\
 `Yom Kippur, which starts this year on Sept. 20, is one of the most widely observed Jewish holidays. If you are Jewish, we want to know how you experience it.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/world/asia/100000011127424/uss-lincoln-arrives-tha
 **Gary Glitter Pleads Not Guilty to Child Sexual Abuse Charges**\
 `Accusations against the glam rock singer relate to incidents that are said to have occurred between 1978 and 1981.`\
 https://www.nytimes.com/2026/09/02/arts/music/gary-glitter-court.html
-
-**Bus Crash in Egypt Kills at Least 22**\
-`The vehicle overturned in an area of the Sinai Peninsula that is popular with tourists. Another 28 people were injured, officials said.`\
-https://www.nytimes.com/2026/09/02/world/africa/bus-crash-egypt-sinai.html
-
-**US Open Day 3: Top Seed Zverev Survives, Gauff Impresses**\
-`The men’s top seed came back from the brink in the first round in New York.`\
-https://www.nytimes.com/2026/09/02/podcasts/us-open-zverev-gauff.html
 

@@ -1,3 +1,7 @@
+**Trump’s Tactics to Lower Beef Prices and Appease Ranchers Fall Short**\
+`The Agriculture Department offered new initiatives for ranchers after President Trump said he would import more beef. The moves aren’t a quick fix.`\
+https://www.nytimes.com/2026/09/02/business/trump-ranchers-beef-prices-cattle-supply.html
+
 **John Galliano and the Uproar at the Met**\
 `Readers discuss whether the museum should have canceled an exhibition because of the designer’s past offensive remarks. Also: Dark money in politics.`\
 https://www.nytimes.com/2026/09/02/opinion/john-galliano-met-museum.html

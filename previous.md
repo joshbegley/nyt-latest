@@ -1,3 +1,7 @@
+**Trump’s Tactics to Lower Beef Prices and Appease Ranchers Fall Short**\
+`The Agriculture Department offered new initiatives for ranchers after President Trump said he would import more beef. The moves aren’t a quick fix.`\
+https://www.nytimes.com/2026/09/02/business/trump-ranchers-beef-prices-cattle-supply.html
+
 **John Galliano and the Uproar at the Met**\
 `Readers discuss whether the museum should have canceled an exhibition because of the designer’s past offensive remarks. Also: Dark money in politics.`\
 https://www.nytimes.com/2026/09/02/opinion/john-galliano-met-museum.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/02/world/africa/bus-crash-egypt-sinai.html
 **US Open Day 3: Top Seed Zverev Survives, Gauff Impresses**\
 `The men’s top seed came back from the brink in the first round in New York.`\
 https://www.nytimes.com/2026/09/02/podcasts/us-open-zverev-gauff.html
-
-**Netanyahu’s Israel Is Looking for a Fight in Every Direction**\
-`The Israeli leader, facing a tough re-election contest, may need a security crisis to rally voters behind him and hold on to his job.`\
-https://www.nytimes.com/2026/09/02/world/middleeast/netanyahu-israel-election.html
 
