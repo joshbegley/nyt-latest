@@ -1,3 +1,7 @@
+**A Plan to Eradicate the Deer on Catalina Island Will Proceed, Organizers Say**\
+`After a judge issued a tentative ruling on a legal challenge Tuesday, the Catalina Island Conservancy said that it would begin the first phase of its plan to kill nearly all of the 2,000 deer on the California island.`\
+https://www.nytimes.com/2026/09/01/us/catalina-island-deer.html
+
 **Kennedy Center Will Remove Outdoor ‘Blue’ Sculpture**\
 `The towering artwork was targeted for elimination after President Trump’s takeover of the center last year.`\
 https://www.nytimes.com/2026/09/01/arts/design/kennedy-center-sculpture-removal-blue.html
