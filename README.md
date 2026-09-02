@@ -1,3 +1,11 @@
+**Six Takeaways From the Massachusetts Primaries**\
+`Senator Ed Markey, 80, trounced a younger challenger who had made an argument for generational change. Two other longtime Democratic lawmakers hung on, too.`\
+https://www.nytimes.com/2026/09/01/us/politics/massachusetts-primary-election-results-takeaways.html
+
+**Longtime Democratic Congressman Defeats Progressive Rival in Massachusetts**\
+`Representative Stephen Lynch, 71, a centrist, beat Patrick Roath, 39, in a primary that reflected the party’s generational and ideological divides.`\
+https://www.nytimes.com/2026/09/01/us/politics/massachusetts-democratic-primary-lynch-roath.html
+
 **Deadly Flash Floods in Nepal Most Likely Caused by Weakened Bedrock**\
 `As the planet warms, glacier meltwater and a thawing permafrost could have contributed to destabilizing the rock.`\
 https://www.nytimes.com/interactive/2026/09/01/world/asia/nepal-flash-floods-landslide.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/01/learning/the-american-history-flashback-quiz.
 **Making Reading Fun: An ELA Lesson Plan**\
 `What enjoyable memories do you have of reading or being read to? What could schools do to make working with written texts more engaging?`\
 https://www.nytimes.com/2026/09/01/learning/making-reading-fun.html
-
-**Jerome Smith, Freedom Rider Who Challenged Robert Kennedy, Dies at 87**\
-`He castigated Robert F. Kennedy for failing to protect civil rights activists, forcing the attorney general to reckon with the depth of Black anger.`\
-https://www.nytimes.com/2026/09/01/us/jerome-smith-dead.html
-
-**U.S. Announces Thousands of Arrests in New York Immigration Operation**\
-`Homeland Security Secretary Markwayne Mullin did not say whether all those who were arrested had criminal records, but Gov. Kathy Hochul said she doubted it.`\
-https://www.nytimes.com/2026/09/01/nyregion/immigration-arrests-new-york.html
 
