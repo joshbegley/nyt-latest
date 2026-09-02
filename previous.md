@@ -1,4 +1,12 @@
-**Your Guide to Covid, Flu and R.S.V. Vaccines This Fall**\
+**John Galliano and the Uproar at the Met**\
+`Readers discuss whether the museum should have canceled an exhibition because of the designer’s past offensive remarks. Also: Dark money in politics.`\
+https://www.nytimes.com/2026/09/02/opinion/john-galliano-met-museum.html
+
+**El Centro Kennedy comienza a retirar una escultura sin previo aviso**\
+`La obra de arte “Blue”, añadida al campus en 2019, fue seleccionada para su eliminación después de que el presidente Trump tomara control del centro.`\
+https://www.nytimes.com/es/2026/09/02/espanol/cultura/trump-centro-kennedy-escultura.html
+
+**A Guide to Covid, Flu and R.S.V. Vaccines This Fall**\
 `Major medical groups released new recommendations on who should get the shots, citing a lack of strong guidance from the federal government.`\
 https://www.nytimes.com/2026/09/02/well/covid-flu-vaccines-rsv.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/02/podcasts/us-open-zverev-gauff.html
 **Netanyahu’s Israel Is Looking for a Fight in Every Direction**\
 `The Israeli leader, facing a tough re-election contest, may need a security crisis to rally voters behind him and hold on to his job.`\
 https://www.nytimes.com/2026/09/02/world/middleeast/netanyahu-israel-election.html
-
-**La lucha para erradicar al gusano barrenador en México**\
-`Por primera vez en un año, la frontera entre Estados Unidos y México reabrió parcialmente a las importaciones de ganado tras una infestación del gusano barrenador en toda la región. La batalla acaba de empezar en el interior de México.`\
-https://www.nytimes.com/es/2026/09/02/espanol/america-latina/mexico-gusano-barrenador.html
-
-**Attacks in Black Sea Threaten to Strangle Global Grain Supply**\
-`Strikes on ports and vessels by both Russia and Ukraine have left farmers facing ruin and could cause another worldwide food shock.`\
-https://www.nytimes.com/2026/09/02/world/europe/russia-ukraine-port-attacks-farmers-grain.html
 

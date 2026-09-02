@@ -1,3 +1,15 @@
+**John Galliano and the Uproar at the Met**\
+`Readers discuss whether the museum should have canceled an exhibition because of the designer’s past offensive remarks. Also: Dark money in politics.`\
+https://www.nytimes.com/2026/09/02/opinion/john-galliano-met-museum.html
+
+**El Centro Kennedy comienza a retirar una escultura sin previo aviso**\
+`La obra de arte “Blue”, añadida al campus en 2019, fue seleccionada para su eliminación después de que el presidente Trump tomara control del centro.`\
+https://www.nytimes.com/es/2026/09/02/espanol/cultura/trump-centro-kennedy-escultura.html
+
+**A Guide to Covid, Flu and R.S.V. Vaccines This Fall**\
+`Major medical groups released new recommendations on who should get the shots, citing a lack of strong guidance from the federal government.`\
+https://www.nytimes.com/2026/09/02/well/covid-flu-vaccines-rsv.html
+
 **Your Guide to Covid, Flu and R.S.V. Vaccines This Fall**\
 `Major medical groups released new recommendations on who should get the shots, citing a lack of strong guidance from the federal government.`\
 https://www.nytimes.com/2026/09/02/well/covid-flu-vaccines-rsv.html
