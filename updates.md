@@ -1,3 +1,11 @@
+**In the Midterms, Will the Nepo-Baby Attack Work?**\
+`A New Hampshire senator’s daughter is running for office, and finds her name being used against her.`\
+https://www.nytimes.com/2026/09/02/us/politics/midterms-nepo-baby-shaheen.html
+
+**States Sue Over Move to End to Federal Funds for Transgender Youth for Transition Care**\
+`The Trump administration wants to bar Medicaid and the Children’s Health Insurance Program from paying for gender-transition medication and surgery for transgender adolescents.`\
+https://www.nytimes.com/2026/09/02/us/politics/youth-gender-transition-lawsuit-federal-money.html
+
 **2 Police Officers Among the Injured in Minneapolis Shooting**\
 `Their conditions were not immediately known. The authorities urged people to avoid the area of downtown where the shooting occurred.`\
 https://www.nytimes.com/2026/09/02/us/shooting-minneapolis-downtown.html
