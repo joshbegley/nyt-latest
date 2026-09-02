@@ -1,3 +1,19 @@
+**U.N. Says World Will Miss Its 1.5 Degree Climate Target**\
+`It proposed a new goal of limiting the “overshoot” of rising temperatures and eventually figuring out how to undo the temperature gains, a highly uncertain path.`\
+https://www.nytimes.com/2026/09/02/climate/united-nations-climate-target-overshoot.html
+
+**Quote of the Day: They’re Snuggly, Willful and a Little Kooky. So Are Their Pets.**\
+`Quotation of the Day for Wednesday, September 02, 2026.`\
+https://www.nytimes.com/2026/09/02/pageoneplus/quote-of-the-day-theyre-snuggly-willful-and-a-little-kooky-so-are-their-pets.html
+
+**The Navy’s Logistical Nightmare in the Iran War**\
+`Amid a crew morale crisis, the military has replaced the U.S.S. Abraham Lincoln in the Middle East with another aircraft carrier. Our Pentagon reporter John Ismay, a Navy veteran, explains how the challenges to supply ships in the area will most likely remain the same.`\
+https://www.nytimes.com/video/us/politics/100000011111838/the-navys-logistical-nightmare-in-the-iran-war.html
+
+**Inside Supplying U.S. Warships During the Iran War**\
+`Iranian attacks have upended the Navy’s supply chain in the Middle East, causing a strain on the aircraft carriers, destroyers and amphibious ships that are being kept in the region indefinitely.`\
+https://www.nytimes.com/interactive/2026/09/02/us/iran-war-us-navy-carriers-supply.html
+
 **Six Takeaways From the Massachusetts Primaries**\
 `Senator Ed Markey, 80, trounced a younger challenger who had made an argument for generational change. Two other longtime Democratic lawmakers hung on, too.`\
 https://www.nytimes.com/2026/09/01/us/politics/massachusetts-primary-election-results-takeaways.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/09/01/learning/introducing-our-new-bite-size-daily-
 **An Ethical Dilemma on Parenting: A Life Skills Lesson Plan**\
 `What advice would you give this person? Why?`\
 https://www.nytimes.com/2026/09/01/learning/an-ethical-dilemma-about-parenting.html
-
-**Memes and Teens: A Media Literacy Lesson Plan**\
-`How is internet “brain rot” culture affecting you?`\
-https://www.nytimes.com/2026/09/01/learning/memes-and-teens.html
-
-**Heat and the Human Body: A Science Lesson Plan**\
-`What happens to you during extreme heat waves? How does your body try to protect itself?`\
-https://www.nytimes.com/2026/09/01/learning/heat-and-the-human-body.html
-
-**American History Quiz: Social Studies Lesson Plan**\
-`Can you drag and drop these 25 events into chronological order — before getting three wrong answers?`\
-https://www.nytimes.com/2026/09/01/learning/the-american-history-flashback-quiz.html
-
-**Making Reading Fun: An ELA Lesson Plan**\
-`What enjoyable memories do you have of reading or being read to? What could schools do to make working with written texts more engaging?`\
-https://www.nytimes.com/2026/09/01/learning/making-reading-fun.html
 
