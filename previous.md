@@ -22,10 +22,6 @@ https://www.nytimes.com/2026/09/02/arts/music/reggaeton-lawsuit-bad-bunny.html
 `The airline said that lounges in Baltimore, Honolulu, Nashville and Austin, Texas, would debut starting late next year, and that seven more were in the works.`\
 https://www.nytimes.com/2026/09/02/travel/southwest-airport-lounges.html
 
-**Read the document**\
-`PDF version of Scents and the City.`\
-https://www.nytimes.com/interactive/2026/09/02/us/nyc-smell-map.html
-
 **The Filipino Star at the U.S. Open Igniting a Neighborhood in Queens**\
 `The 21-year-old sensation Alex Eala has charmed the tennis world and united her far-flung compatriots.`\
 https://www.nytimes.com/2026/09/02/nyregion/alex-eala-us-open-philippines-little-manila.html
@@ -115,7 +111,7 @@ https://www.nytimes.com/2026/09/02/opinion/john-galliano-met-museum.html
 https://www.nytimes.com/es/2026/09/02/espanol/cultura/trump-centro-kennedy-escultura.html
 
 **A Guide to Covid, Flu and R.S.V. Vaccines This Fall**\
-`The organizations issued their own recommendations on flu, Covid-19 and R.S.V. immunizations, citing a lack of strong guidance from the federal government.`\
+`Leading health organizations joined forces to issue the recommendations, citing a lack of strong guidance from the federal government.`\
 https://www.nytimes.com/2026/09/02/well/covid-flu-vaccines-rsv.html
 
 **What Is ‘Narrative Art?’ The Lucas Museum Finally Shows Us Its Vision.**\
@@ -197,4 +193,8 @@ https://www.nytimes.com/2026/09/02/technology/google-ad-tech-remedies.html
 **Can Sports-Betting Sites Predict the Midterms?**\
 `What’s the role of prediction markets when it comes to the midterms? For the pollster Kristen Soltis Anderson, their lack of transparency on who is betting — and why — makes them hard to trust.`\
 https://www.nytimes.com/video/opinion/100000011093696/can-sports-betting-sites-predict-the-midterms.html
+
+**What A.O.C.’s Egg Freezing Says About Politics**\
+`Alexandria Ocasio-Cortez and Karoline Leavitt may have very different politics, says Kristen Soltis Anderson, but they’re both publicly navigating similar realities: being young women in the public eye and navigating career ambition alongside questions of fertility and family.`\
+https://www.nytimes.com/video/opinion/100000011090296/what-aocs-egg-freezing-says-about-politics.html
 

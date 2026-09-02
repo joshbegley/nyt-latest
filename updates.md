@@ -1,3 +1,11 @@
+**A Guide to Covid, Flu and R.S.V. Vaccines This Fall**\
+`Leading health organizations joined forces to issue the recommendations, citing a lack of strong guidance from the federal government.`\
+https://www.nytimes.com/2026/09/02/well/covid-flu-vaccines-rsv.html
+
+**What A.O.C.’s Egg Freezing Says About Politics**\
+`Alexandria Ocasio-Cortez and Karoline Leavitt may have very different politics, says Kristen Soltis Anderson, but they’re both publicly navigating similar realities: being young women in the public eye and navigating career ambition alongside questions of fertility and family.`\
+https://www.nytimes.com/video/opinion/100000011090296/what-aocs-egg-freezing-says-about-politics.html
+
 **Inside Trump’s Second Term**\
 `We talk to Jonathan Swan about how foreign leaders use leverage, strength and personal dynamics to manage the president.`\
 https://www.nytimes.com/2026/09/02/world/trump-regime-change-strike-wedding.html
