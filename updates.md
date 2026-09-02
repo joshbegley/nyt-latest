@@ -1,3 +1,11 @@
+**Honduran Court Clears Ex-President Juan Orlando Hernández**\
+`President Trump’s decision set Juan Orlando Hernández free in December. On Tuesday, a court dismissed money laundering and fraud charges against him, effectively making him a free man.`\
+https://www.nytimes.com/2026/09/01/world/americas/honduran-court-clears-former-president-pardoned-by-trump.html
+
+**Judge Lets Case Against Tyler Robinson, Charlie Kirk Shooting Suspect, Go to Trial**\
+`The judge also allowed prosecutors to seek the death penalty against the man, who is accused of assassinating the conservative activist last year.`\
+https://www.nytimes.com/2026/09/01/us/charlie-kirk-shooting.html
+
 **Kennedy Center Will Remove Outdoor ‘Blue’ Sculpture**\
 `The towering artwork had been targeted for elimination after President Trump’s takeover of the center last year.`\
 https://www.nytimes.com/2026/09/01/arts/design/kennedy-center-sculpture-removal-blue.html

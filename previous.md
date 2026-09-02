@@ -1,3 +1,7 @@
+**Honduran Court Clears Ex-President Juan Orlando Hernández**\
+`President Trump’s decision set Juan Orlando Hernández free in December. On Tuesday, a court dismissed money laundering and fraud charges against him, effectively making him a free man.`\
+https://www.nytimes.com/2026/09/01/world/americas/honduran-court-clears-former-president-pardoned-by-trump.html
+
 **Kennedy Center Will Remove Outdoor ‘Blue’ Sculpture**\
 `The towering artwork had been targeted for elimination after President Trump’s takeover of the center last year.`\
 https://www.nytimes.com/2026/09/01/arts/design/kennedy-center-sculpture-removal-blue.html
@@ -19,7 +23,7 @@ https://www.nytimes.com/2026/09/01/us/politics/massachusetts-senate-democratic-p
 https://www.nytimes.com/2026/09/01/us/florida-child-abuse-charges-truck-captive.html
 
 **Judge Lets Case Against Tyler Robinson, Charlie Kirk Shooting Suspect, Go to Trial**\
-`The judge said that there was enough evidence to try the man accused of assassinating the conservative activist last year and that prosecutors could seek the death penalty.`\
+`The judge also allowed prosecutors to seek the death penalty against the man, who is accused of assassinating the conservative activist last year.`\
 https://www.nytimes.com/2026/09/01/us/charlie-kirk-shooting.html
 
 **Putin Pledges Increased Strikes in Ukraine and Support for Iran**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/01/world/asia/nepal-floods-economy.html
 **Tractor Protest in Copenhagen Over Fertilizer Restrictions**\
 `Farmers drove tractors into Copenhagen to protest stricter limits on fertilizer use. They said these restrictions could cut yields and make their farms unprofitable.`\
 https://www.nytimes.com/video/world/europe/100000011125816/protest-fertilizer-restrictions-copenhagen-denmark.html
-
-**China y EE. UU. muestran formas enfrentadas de poder mundial**\
-`Mientras Xi Jinping se reunía con los líderes de Rusia e Irán, Europa desafió al gobierno de Trump en el G20, lo que ofreció una visión en pantalla dividida de un mundo cambiante.`\
-https://www.nytimes.com/es/2026/09/01/espanol/mundo/estados-unidos-china-g20-poder.html
 
