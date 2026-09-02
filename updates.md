@@ -1,3 +1,7 @@
+**King Charles III to View Bayeux Tapestry at the British Museum**\
+`The monarch was invited to see the historic embroidery before a major British Museum exhibition, almost 40 years after seeing it in France with Diana.`\
+https://www.nytimes.com/2026/09/02/arts/design/bayeux-tapestry-king-charles.html
+
 **Why Does My Divorced Father Keep Reaching Out to My Mother’s Relatives?**\
 `A long-divorced father’s wish to stay in the lives of his ex-wife’s family is a source of embarrassment for his middle-aged child.`\
 https://www.nytimes.com/2026/09/02/style/divorce-estranged-family-relationships.html
