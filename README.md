@@ -1,3 +1,7 @@
+**2 Police Officers Among the Injured in Minneapolis Shooting**\
+`Their conditions were not immediately known. The authorities urged people to avoid the area of downtown where the shooting occurred.`\
+https://www.nytimes.com/2026/09/02/us/shooting-minneapolis-downtown.html
+
 **Woman Who Killed Husband Decades Ago Is Sentenced for Killing Wife**\
 `A woman in California will face 36 years to life in prison after previously serving time for a stabbing death in 2000.`\
 https://www.nytimes.com/2026/09/02/us/yolanda-marodi-wife-killed-california-sentenced.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/100000011128157/kennedy-center-blue-sculpture.h
 **How New York Times Reporters Traced Dark Money in Politics**\
 `About $1 billion in anonymous contributions is coursing through midterm races across the country. Figuring out where the funds are coming from is no easy task.`\
 https://www.nytimes.com/2026/09/02/insider/how-reporters-trace-dark-money-in-politics.html
-
-**U.S. Missile Strike Kills Several at a Wedding, Iran Says**\
-`A U.S. missile strike hit a wedding in southern Iran, videos verified by The New York Times show. The U.S. military said it had not targeted civilians in its wave of attacks, and Iran said it had retaliated with strikes of its own on U.S. forces in the region.`\
-https://www.nytimes.com/video/world/middleeast/100000011127718/iran-war-us-missile-strikes-wedding.html
 
