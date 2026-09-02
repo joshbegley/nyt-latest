@@ -1,3 +1,7 @@
+**A Plan to Eradicate the Deer on Catalina Island Will Proceed, Organizers Say**\
+`After a judge issued a tentative ruling on a legal challenge Tuesday, the Catalina Island Conservancy said that it would begin the first phase of its plan to kill nearly all of the 2,000 deer on the California island.`\
+https://www.nytimes.com/2026/09/01/us/catalina-island-deer.html
+
 **A.I. Is Largely to Be Banned in N.Y.C. Elementary and Middle Schools**\
 `A new policy to be announced by the Department of Education bars younger students from using A.I., but stops short of a moratorium.`\
 https://www.nytimes.com/2026/09/01/nyregion/ai-ban-schools-nyc.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/01/nyregion/sid-bass-divorce-settlement.html
 **EE. UU. quiere extraer más petróleo de Venezuela. Esto es lo que hay que saber**\
 `El acuerdo del gobierno de Trump con una petrolera privada para aumentar la producción de petróleo en el país sudamericano podría tardar muchos años en rendir frutos.`\
 https://www.nytimes.com/es/2026/09/01/espanol/negocios/venezuela-estados-unidos-petroleo-reservas.html
-
-**Has La Mama Made the Next Stylish, Practical It Bag?**\
-`Tired of designer totes that didn’t fit their multifaceted lives, Kate Aubrey and Kyra Griffin took matters into their own hands.`\
-https://www.nytimes.com/2026/09/01/t-magazine/la-mama-bag-tote.html
 
