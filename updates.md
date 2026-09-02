@@ -1,3 +1,11 @@
+**In Egypt, Xi Challenges America’s Influence in the Middle East**\
+`China’s leader, Xi Jinping, is seeking to deepen ties with a longtime U.S. security partner and to project a larger role for Beijing in a region rocked by war.`\
+https://www.nytimes.com/2026/09/02/world/asia/china-egypt-xi-jinping-el-sisi.html
+
+**U.S. and Iran Survey the Damage After a Night of Intense Strikes**\
+`The American military said its barrage was retaliation against recent attacks on U.S. forces and marine traffic. Iranian officials said a wedding was hit and civilians killed.`\
+https://www.nytimes.com/2026/09/02/world/middleeast/us-iran-strikes.html
+
 **The Word Is Bond**\
 `We explain what is happening in the bond market.`\
 https://www.nytimes.com/2026/09/02/briefing/the-word-is-bond.html
