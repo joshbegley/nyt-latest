@@ -1,3 +1,7 @@
+**Former Biden White House Aide Wins Massachusetts Democratic House Primary**\
+`Dan Koh, who ran with the endorsement of former President Joseph R. Biden Jr., topped a crowded field to secure the nomination in the safely Democratic Sixth Congressional District.`\
+https://www.nytimes.com/2026/09/01/us/politics/massachusetts-democratic-primary-6th-district.html
+
 **Judge Lets Case Against Tyler Robinson, Charlie Kirk Shooting Suspect, Go to Trial**\
 `The judge said prosecutors had presented enough evidence to try the man accused of killing the conservative activist last year, who pleaded not guilty.`\
 https://www.nytimes.com/2026/09/01/us/charlie-kirk-shooting.html
