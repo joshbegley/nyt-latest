@@ -1,3 +1,19 @@
+**Today, In Short**\
+`Puppies. Gap. And Barbie.`\
+https://www.nytimes.com/2026/09/02/briefing/today-in-short.html
+
+**A Technique for Always-Crispy Fish**\
+`Ali Slagle’s crispy salmon with lentil salsa verde is satisfying, surprising and speedy.`\
+https://www.nytimes.com/2026/09/02/dining/a-technique-for-always-crispy-fish.html
+
+**Wondering How Nuts Trump’s Tariffs Are? Consider Aluminum.**\
+`Canada is better at making aluminum than we are. Let’s just use theirs and make something else.`\
+https://www.nytimes.com/2026/09/02/opinion/trump-aluminum-tariffs-canada.html
+
+**Tras el terremoto en Colombia, la IA sirvió para entregar ayuda**\
+`Mientras los voluntarios batallaban para llevar suministros a las víctimas del terremoto en Colombia, unos cuantos trabajadores tecnológicos crearon una aplicación para mapear y organizar el vasto esfuerzo de socorro.`\
+https://www.nytimes.com/es/2026/09/02/espanol/america-latina/terremoto-colombia-ayuda-ia.html
+
 **Federal Judge Declines to Break Up Google’s Ad Technology Business**\
 `In a long awaited ruling, the judge said Google must make some changes to its ad tech business to handle antitrust issues, but did not disclose the measures publicly.`\
 https://www.nytimes.com/2026/09/02/technology/google-ad-tech-remedies.html
@@ -14,7 +30,7 @@ https://www.nytimes.com/video/opinion/100000011090296/what-aocs-egg-freezing-say
 `Darkened by soot from vehicles and factories, the region’s glaciers are absorbing more heat and melting at dangerous rates.`\
 https://www.nytimes.com/2026/09/02/climate/pollution-soot-glaciers-melting-himalayas.html
 
-**Trump’s ‘Lightning Speed’ Outpaces the Courts**\
+**Trump’s Speed on the White House Ballroom Threatens to Outpace the Courts**\
 `In his breakneck construction of a grand ballroom and in many other initiatives, critics say, the president has tried to outrun judicial review.`\
 https://www.nytimes.com/2026/09/02/us/politics/trump-courts-ballroom.html
 
@@ -177,20 +193,4 @@ https://www.nytimes.com/2026/09/02/technology/personaltech/iphone-android-emerge
 **An East Coast Summer Vacation, All by Public Transportation**\
 `A self-described transit romantic set out to visit prime summer destinations using only public transportation. Would getting there really be half the fun?`\
 https://www.nytimes.com/2026/09/02/travel/long-island-new-england-trip-train-bus-ferry.html
-
-**In 24 Hours, My Whole Life Changed**\
-`Two pieces of news rapidly rewrote Blake Martin’s idea of his future.`\
-https://www.nytimes.com/2026/09/02/podcasts/in-24-hours-my-whole-life-changed.html
-
-**My Home Is Besieged By Israeli Settlers. This Flag Is My Only Protection.**\
-`As Israeli settlers encroach on his home, one Palestinian American man has hoisted the American flag.`\
-https://www.nytimes.com/2026/09/02/opinion/israel-settlers-palestine-america.html
-
-**Which $1.3 Million Home Would You Choose?**\
-`A 1930 Craftsman in Denver, a 1916 Colonial Revival in Detroit and a 1931 brick cottage in Charleston, S.C., are this week’s options.`\
-https://www.nytimes.com/2026/09/02/realestate/million-dollar-homes-for-sale-charleston-denver-detroit.html
-
-**Is Steve Hilton the Future of Trumpism?**\
-`Steve Hilton wants to ‘Make California Golden Again.’`\
-https://www.nytimes.com/2026/09/02/opinion/steve-hilton-california-trump.html
 
