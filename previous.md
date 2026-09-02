@@ -1,3 +1,7 @@
+**Trump Administration Launches Blitz to Find Elusive Voter Fraud Ahead of Midterms**\
+`The practice is exceedingly rare, but President Trump has fixated on rooting it out this year, claiming without evidence that tens of thousands of noncitizens are registered to vote.`\
+https://www.nytimes.com/2026/09/02/us/politics/trump-election-voter-fraud.html
+
 **The Local: How tariffs will affect your shopping**\
 `Plus, Sweet Martha on how she got her start, without a cookie recipe.`\
 https://www.nytimes.com/2026/09/02/briefing/tariffs-sweet-marthas.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/02/podcasts/the-daily/the-fight-for-the-west-ban
 **Russia’s New Push to Torment Kyiv, and a Whistle-Blower’s Warning on Mail-In Voting**\
 `Plus, hiking 2,190 miles at age 91.`\
 https://www.nytimes.com/2026/09/02/podcasts/the-headlines/russia-kyiv-strikes-whistleblower-warning-mail-voting.html
-
-**Employer Health Costs Are Expected to Spike in 2027**\
-`A new U.S. survey anticipates an average increase of 11 percent unless benefits are cut, the highest rate in decades. Other findings also predict a sharp rise.`\
-https://www.nytimes.com/2026/09/02/business/health-insurance-increases.html
 

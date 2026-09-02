@@ -1,3 +1,7 @@
+**Trump Administration Launches Blitz to Find Elusive Voter Fraud Ahead of Midterms**\
+`The practice is exceedingly rare, but President Trump has fixated on rooting it out this year, claiming without evidence that tens of thousands of noncitizens are registered to vote.`\
+https://www.nytimes.com/2026/09/02/us/politics/trump-election-voter-fraud.html
+
 **The Local: How tariffs will affect your shopping**\
 `Plus, Sweet Martha on how she got her start, without a cookie recipe.`\
 https://www.nytimes.com/2026/09/02/briefing/tariffs-sweet-marthas.html
