@@ -1,3 +1,7 @@
+**Google Won’t Have to Break Up Its Ad Tech Business, Court Rules**\
+`In a long awaited ruling, the judge said Google must make some changes to its ad tech business to handle antitrust issues, but did not disclose the measures publicly.`\
+https://www.nytimes.com/2026/09/02/technology/google-ad-tech-remedies.html
+
 **Today, In Short**\
 `Puppies. Gap. And Barbie.`\
 https://www.nytimes.com/2026/09/02/briefing/today-in-short.html
