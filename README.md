@@ -1,3 +1,7 @@
+**Federal Judge Declines to Break Up Google’s Ad Technology Business**\
+`In a long awaited ruling, the judge said Google must make some changes to its ad tech business to handle antitrust issues, but did not disclose the measures publicly.`\
+https://www.nytimes.com/2026/09/02/technology/google-ad-tech-remedies.html
+
 **Can Sports-Betting Sites Predict the Midterms?**\
 `What’s the role of prediction markets when it comes to the midterms? For the pollster Kristen Soltis Anderson, their lack of transparency on who is betting — and why — makes them hard to trust.`\
 https://www.nytimes.com/video/opinion/100000011093696/can-sports-betting-sites-predict-the-midterms.html
@@ -10,7 +14,7 @@ https://www.nytimes.com/video/opinion/100000011090296/what-aocs-egg-freezing-say
 `Darkened by soot from vehicles and factories, the region’s glaciers are absorbing more heat and melting at dangerous rates.`\
 https://www.nytimes.com/2026/09/02/climate/pollution-soot-glaciers-melting-himalayas.html
 
-**Trump’s ‘Lightning Speed’ Threatens to Outpace the Courts**\
+**Trump’s ‘Lightning Speed’ Outpaces the Courts**\
 `In his breakneck construction of a grand ballroom and in many other initiatives, critics say, the president has tried to outrun judicial review.`\
 https://www.nytimes.com/2026/09/02/us/politics/trump-courts-ballroom.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/02/realestate/million-dollar-homes-for-sale-char
 **Is Steve Hilton the Future of Trumpism?**\
 `Steve Hilton wants to ‘Make California Golden Again.’`\
 https://www.nytimes.com/2026/09/02/opinion/steve-hilton-california-trump.html
-
-**‘Katy Perry: The Lifetimes Tour’ Review: Back to Space She Goes**\
-`Katy Perry’s sci-fi concert film from Paris shines brightest during simple, back-to-basics pop moments.`\
-https://www.nytimes.com/2026/09/02/movies/katy-perry-the-lifetimes-tour-live-from-paris-review.html
 
