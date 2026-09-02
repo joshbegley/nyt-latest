@@ -1,3 +1,7 @@
+**Why Does My Divorced Father Keep Reaching Out to My Mother’s Relatives?**\
+`A long-divorced father’s wish to stay in the lives of his ex-wife’s family is a source of embarrassment for his middle-aged child.`\
+https://www.nytimes.com/2026/09/02/style/divorce-estranged-family-relationships.html
+
 **The ‘Miracle House’ That Survived Nepal’s Floods**\
 `People are coming to take photos of the green-painted house, which kept the Pyakurel family safe as the area all around them was destroyed by rampaging floodwaters.`\
 https://www.nytimes.com/2026/09/02/world/asia/nepal-flood-miracle-house-dhunge-bazaar.html
