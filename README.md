@@ -1,3 +1,7 @@
+**King Charles III to View Bayeux Tapestry at the British Museum**\
+`The monarch was invited to see the historic embroidery before a major British Museum exhibition, almost 40 years after seeing it in France with Diana.`\
+https://www.nytimes.com/2026/09/02/arts/design/bayeux-tapestry-king-charles.html
+
 **Why Does My Divorced Father Keep Reaching Out to My Mother’s Relatives?**\
 `A long-divorced father’s wish to stay in the lives of his ex-wife’s family is a source of embarrassment for his middle-aged child.`\
 https://www.nytimes.com/2026/09/02/style/divorce-estranged-family-relationships.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/02/style/maybe-leanne-morgan-can-heal-america.ht
 **Book Review: ‘Profits, Prophets, Coaches, and Kings,’ by Jared Diamond**\
 `In “Profits, Prophets, Coaches, and Kings,” Jared Diamond considers the impact leaders might have had on the course of their civilizations.`\
 https://www.nytimes.com/2026/09/02/books/review/profits-prophets-coaches-and-kings-jared-diamond.html
-
-**Word of the Day: trajectory**\
-`This word has appeared in 675 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/09/02/learning/word-of-the-day-trajectory.html
 
