@@ -1,3 +1,15 @@
+**Kennedy Center Remove Landmark ‘Blue’ Sculpture From Grounds**\
+`The Kennedy Center removed a sculpture called “Blue,” by Joel Shapiro, from its grounds on Wednesday. The work was targeted for removal after President Trump took over the center, documents obtained by The New York Times show.`\
+https://www.nytimes.com/video/us/100000011128157/kennedy-center-blue-sculpture.html
+
+**How New York Times Reporters Traced Dark Money in Politics**\
+`About $1 billion in anonymous contributions is coursing through midterm races across the country. Figuring out where the funds are coming from is no easy task.`\
+https://www.nytimes.com/2026/09/02/insider/how-reporters-trace-dark-money-in-politics.html
+
+**In a Big Win, Google Won’t Have to Break Up Its Ad Tech Business, Court Rules**\
+`In a long-awaited decision, a federal judge said Google must change its ad tech business to address antitrust issues, but did not disclose the measures.`\
+https://www.nytimes.com/2026/09/02/technology/google-ad-tech-remedies.html
+
 **U.S. Missile Strike Kills Several at a Wedding, Iran Says**\
 `A U.S. missile strike hit a wedding in southern Iran, videos verified by The New York Times show. The U.S. military said it had not targeted civilians in its wave of attacks, and Iran said it had retaliated with strikes of its own on U.S. forces in the region.`\
 https://www.nytimes.com/video/world/middleeast/100000011127718/iran-war-us-missile-strikes-wedding.html

@@ -1,3 +1,7 @@
+**Ariana Grande Steps Back From Spotlight After Tour Ends: What to Know**\
+`As the singer wrapped up her Eternal Sunshine world tour this week, she was set to take a break after a whirlwind couple of years.`\
+https://www.nytimes.com/2026/09/02/style/ariana-grande-tour-jonathan-bailey.html
+
 **Kennedy Center Remove Landmark ‘Blue’ Sculpture From Grounds**\
 `The Kennedy Center removed a sculpture called “Blue,” by Joel Shapiro, from its grounds on Wednesday. The work was targeted for removal after President Trump took over the center, documents obtained by The New York Times show.`\
 https://www.nytimes.com/video/us/100000011128157/kennedy-center-blue-sculpture.html
@@ -66,7 +70,7 @@ https://www.nytimes.com/video/opinion/100000011093696/can-sports-betting-sites-p
 `Alexandria Ocasio-Cortez and Karoline Leavitt may have very different politics, says Kristen Soltis Anderson, but they’re both publicly navigating similar realities: being young women in the public eye and navigating career ambition alongside questions of fertility and family.`\
 https://www.nytimes.com/video/opinion/100000011090296/what-aocs-egg-freezing-says-about-politics.html
 
-**Pollution on Glaciers Could Be Fueling Himalayan Disasters**\
+**In Nepal and Tibet, Pollution on Glaciers Could Fuel More Flood Disasters**\
 `Darkened by soot from vehicles and factories, the region’s glaciers are absorbing more heat and melting at dangerous rates.`\
 https://www.nytimes.com/2026/09/02/climate/pollution-soot-glaciers-melting-himalayas.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/02/business/bond-rates-retirement-401k.html
 **Dale ‘Grey Beard’ Sanders Becomes Oldest Person to Hike Appalachian Trail, at 91**\
 `This week, Dale “Grey Beard” Sanders became the oldest person to complete the roughly 2,190-mile trail.`\
 https://www.nytimes.com/2026/09/02/well/move/dale-sanders-grey-beard-appalachian-trail-record.html
-
-**Corrections: Sept. 2, 2026**\
-`Corrections that appeared in print on Wednesday, Sept. 2, 2026.`\
-https://www.nytimes.com/2026/09/02/pageoneplus/corrections-sept-2-2026.html
 
