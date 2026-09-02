@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/09/01/crosswords/daily-puzzle-2026-09-02.html
 `After a judge issued a tentative ruling on a legal challenge Tuesday, the Catalina Island Conservancy said that it would begin the first phase of its plan to kill nearly all of the 2,000 deer on the California island.`\
 https://www.nytimes.com/2026/09/01/us/catalina-island-deer.html
 
-**A.I. Is Largely to Be Banned in N.Y.C. Elementary and Middle Schools**\
+**A.I. Is to Be Banned in N.Y.C. Elementary and Middle Schools**\
 `A new policy to be announced by the Department of Education bars younger students from using A.I., but stops short of a moratorium.`\
 https://www.nytimes.com/2026/09/01/nyregion/ai-ban-schools-nyc.html
 
