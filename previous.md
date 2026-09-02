@@ -1,3 +1,7 @@
+**Bus Crash in Egypt Kills at Least 16**\
+`The vehicle overturned in an area of the Sinai Peninsula that is popular with tourists. Another 28 people were injured, officials said.`\
+https://www.nytimes.com/2026/09/02/world/africa/bus-crash-egypt-sinai.html
+
 **US Open Day 3: Top Seed Zverev Survives, Gauff Impresses**\
 `The men’s top seed came back from the brink in the first round in New York.`\
 https://www.nytimes.com/2026/09/02/podcasts/us-open-zverev-gauff.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/02/world/australia/kakapo-parrot-new-zealand.htm
 **Una fábrica en Irlanda queda atrapada en la guerra económica contra Rusia**\
 `La alúmina procesada en una refinería en el condado rual de Limerick podría estar alimentando la guerra de Rusia en Ucrania, según sugirió una investigación. Existe poco consenso sobre qué hacer al respecto.`\
 https://www.nytimes.com/es/2026/09/02/espanol/mundo/fabrica-alumina-irlanda-rusia.html
-
-**El creador de la inyección de Ozempic ahora apuesta por las pastillas**\
-`Mike Doustdar, director ejecutivo de Novo Nordisk, inició un cambio de rumbo empresarial hace un año, y dice que los inversionistas aún subestiman el potencial de sus medicamentos.`\
-https://www.nytimes.com/es/2026/09/02/espanol/negocios/ozempic-adelgazar-inyeccion-pastilla.html
 

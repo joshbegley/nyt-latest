@@ -1,3 +1,7 @@
+**Bus Crash in Egypt Kills at Least 16**\
+`The vehicle overturned in an area of the Sinai Peninsula that is popular with tourists. Another 28 people were injured, officials said.`\
+https://www.nytimes.com/2026/09/02/world/africa/bus-crash-egypt-sinai.html
+
 **US Open Day 3: Top Seed Zverev Survives, Gauff Impresses**\
 `The men’s top seed came back from the brink in the first round in New York.`\
 https://www.nytimes.com/2026/09/02/podcasts/us-open-zverev-gauff.html
