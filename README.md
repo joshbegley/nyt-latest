@@ -1,3 +1,7 @@
+**La expansión de Chevron en Venezuela amplía la influencia de EE. UU. en el país**\
+`El gigante energético estadounidense, que permaneció en el país después de que otras empresas occidentales se marcharan, invertirá 7 millardos de dólares en Venezuela para aumentar a más del doble su producción allí.`\
+https://www.nytimes.com/es/2026/09/02/espanol/negocios/chevron-venezuela-petroleo-trump.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/business/100000011128330/Biz-Uber-London-Video.html
@@ -27,7 +31,7 @@ https://www.nytimes.com/2026/09/02/opinion/trump-aluminum-tariffs-canada.html
 https://www.nytimes.com/es/2026/09/02/espanol/america-latina/terremoto-colombia-ayuda-ia.html
 
 **In a Big Win, Google Won’t Have to Break Up Its Ad Tech Business, Court Rules**\
-`In a long awaited decision, the judge said Google must make some changes to its ad tech business to handle antitrust issues, but did not disclose the measures publicly.`\
+`In a long-awaited decision, the judge said Google must make some changes to its ad tech business to handle antitrust issues, but did not disclose the measures publicly.`\
 https://www.nytimes.com/2026/09/02/technology/google-ad-tech-remedies.html
 
 **Can Sports-Betting Sites Predict the Midterms?**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/02/realestate/melissa-lee-design-finds.html
 **Do Active Shooter Drills Help? Two Asian Nations Grapple With Gun Violence.**\
 `After school shootings, Thailand and the Philippines are taking different approaches to the drills, which are common practice in the United States.`\
 https://www.nytimes.com/2026/09/02/world/asia/thailand-philippines-active-shooter-drills.html
-
-**Saturday Evening Post Will Stop Printing After 205 Years**\
-`The magazine, famous for publishing Jack London stories and Norman Rockwell art, will continue online.`\
-https://www.nytimes.com/2026/09/02/business/media/saturday-evening-post-stop-printing.html
 
