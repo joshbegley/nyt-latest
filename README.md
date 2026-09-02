@@ -1,3 +1,19 @@
+**¿Cuál es la mejor manera de eliminar los puntos negros?**\
+`Esto es lo que los dermatólogos recomiendan para deshacerte de esas impurezas en tu piel.`\
+https://www.nytimes.com/es/2026/09/02/espanol/puntos-negros-como-eliminarlos-dermatologos.html
+
+**It’s a Great Time to Be Rich in New York City**\
+`For pretty much everyone else, the picture is bleak. Income inequality is as entrenched as ever, according to a new report by New York City’s comptroller.`\
+https://www.nytimes.com/2026/09/02/nyregion/new-york-income-inequality.html
+
+**How Our Madrid Bureau Chief Covers a Country in Transition**\
+`In Spain, Jason Horowitz is seeking to capture stories that reflect the country’s new momentum.`\
+https://www.nytimes.com/2026/09/02/insider/madrid-bureau-chief.html
+
+**NYT Spelling Bee Answers for September 2, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/09/02/crosswords/spelling-bee-forum.html
+
 **U.S.S. Abraham Lincoln Docks in Thailand, Giving Weary Crew a Break**\
 `Thousands of sailors and Marines serve on the U.S.S. Abraham Lincoln, which came into the spotlight because of a tough deployment in the war in Iran.`\
 https://www.nytimes.com/2026/09/02/world/asia/uss-lincoln-arrives-thailand.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/09/01/arts/music/jason-isbell-suno-ai-lawsuit.html
 **On Trump’s Ballroom, Chief Justice Finds Himself in an Unusual Spot: In Dissent**\
 `Chief Justice John G. Roberts Jr. has been in the majority in divided cases more times than any other chief since 1953. But not this time.`\
 https://www.nytimes.com/2026/09/01/us/politics/supreme-court-ballroom-chief-roberts.html
-
-**Hochul Accuses Trump of Betraying 9/11 Victims by ‘Defunding the Police’**\
-`Gov. Kathy Hochul and Mayor Zohran Mamdani called on President Trump to free up $87 million in federal funds to pay for bomb squads and other counterterrorism measures in New York.`\
-https://www.nytimes.com/2026/09/01/nyregion/hochul-counterterrorism-funds-trump.html
-
-**Officer Charged in Shooting of College Athlete Who Knocked at Wrong Door**\
-`Prosecutors said the police officer from Upper Pottsgrove, Pa., committed manslaughter when he fired on the student, who was returning from a night out at bars. A homeowner had reported a burglary in progress.`\
-https://www.nytimes.com/2026/09/01/us/officer-charged-shooting-baseball-player-wrong-door.html
-
-**Did the Met Just Cancel the Wrong Fashionista?**\
-`With John Galliano, Anna Wintour cannot seem to separate the man from his work.`\
-https://www.nytimes.com/2026/09/01/opinion/met-gala-anna-wintour-john-galliano.html
-
-**Talking With Giorgia Meloni**\
-`In an interview, Italy’s hard-right leader reveals how pragmatism is reshaping her vision for Europe.`\
-https://www.nytimes.com/2026/09/01/world/giorgia-meloni-interview-bonds-iran.html
 
