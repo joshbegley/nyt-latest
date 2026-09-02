@@ -14,8 +14,8 @@ https://www.nytimes.com/2026/09/02/us/politics/midterms-nepo-baby-shaheen.html
 `The Trump administration wants to bar Medicaid and the Children’s Health Insurance Program from paying for gender-transition medication and surgery for transgender adolescents.`\
 https://www.nytimes.com/2026/09/02/us/politics/youth-gender-transition-lawsuit-federal-money.html
 
-**2 Police Officers Among Multiple People Injured in Minneapolis Shooting**\
-`Their conditions were not immediately known. The authorities urged people to avoid the area of downtown where the shooting occurred.`\
+**2 Police Officers Among 7 Shot in Minneapolis**\
+`A hospital official said one person died, but the victim’s identity was unknown. Residents were warned to stay away from the downtown apartment building where the violence erupted.`\
 https://www.nytimes.com/2026/09/02/us/shooting-minneapolis-downtown.html
 
 **Woman Who Killed Husband Decades Ago Is Sentenced for Killing Wife**\

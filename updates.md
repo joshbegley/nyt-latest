@@ -1,3 +1,7 @@
+**2 Police Officers Among 7 Shot in Minneapolis**\
+`A hospital official said one person died, but the victim’s identity was unknown. Residents were warned to stay away from the downtown apartment building where the violence erupted.`\
+https://www.nytimes.com/2026/09/02/us/shooting-minneapolis-downtown.html
+
 **Uber and Wayve to Start Testing Robotaxis in London**\
 `Uber and the British start-up Wayve are the latest to start testing autonomous cars in one of the world’s largest markets for ride-hailing services.`\
 https://www.nytimes.com/2026/09/02/business/uber-wayve-london.html
