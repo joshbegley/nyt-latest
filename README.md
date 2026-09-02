@@ -1,3 +1,11 @@
+**Our Smoky, Sweaty, Itchy, No Escape, Very Long Summer**\
+`Did some of the season’s dependable pleasures — sunshine, lake vacations, time spent outdoors — feel newly in limbo this year? Blame climate change.`\
+https://www.nytimes.com/interactive/2026/08/31/climate/heat-wave-wildfire-smoke-summer.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/business/100000011129550/Wheels-Rivian-Video.html
+
 **El padre de la atacante de Times Square pensó que su hija ya había superado lo peor**\
 `Pamela Cisneros murió a manos de la policía en Times Square luego de apuñalar a dos personas, una de ellas mortalmente. Su padre dijo que había dejado de ir con él a sus citas de salud mental.`\
 https://www.nytimes.com/es/2026/09/02/espanol/estados-unidos/times-square-sospechosa-quien-es.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/02/arts/design/yayoi-kusama-final-years.html
 **Una corte de Honduras absuelve al expresidente Juan Orlando Hernández**\
 `El indulto del presidente Trump permitió la liberación de Hernández en diciembre. El martes, un tribunal desestimó los cargos de fraude y lavado de dinero en su contra, lo que lo convierte en un hombre libre.`\
 https://www.nytimes.com/es/2026/09/02/espanol/america-latina/honduras-juan-orlando-hernandez-libre.html
-
-**Today, In Short**\
-`Puppies. Gap. And Barbie.`\
-https://www.nytimes.com/2026/09/02/briefing/today-in-short.html
-
-**A Technique for Always-Crispy Fish**\
-`Ali Slagle’s crispy salmon with lentil salsa verde is satisfying, surprising and speedy.`\
-https://www.nytimes.com/2026/09/02/dining/a-technique-for-always-crispy-fish.html
 
