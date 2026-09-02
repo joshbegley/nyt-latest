@@ -159,7 +159,7 @@ https://www.nytimes.com/2026/09/02/us/politics/trump-election-voter-fraud.html
 https://www.nytimes.com/2026/09/02/briefing/tariffs-sweet-marthas.html
 
 **Trump insta de nuevo al pueblo de Irán a ‘levantarse y luchar’**\
-`En una publicación en redes sociales, el presidente Trump también desestimó las negociaciones estancadas con Irán en medio de la reanudación de los ataques.`\
+`EE. UU. parece estar cada vez más estancado en Irán después de seis meses de conflicto, a pesar de las declaraciones de dominio militar del presidente Trump.`\
 https://www.nytimes.com/es/2026/09/02/espanol/estados-unidos/trump-iran-estrecho-de-ormuz.html
 
 **Judge Lacked Power to Vacate Bowe Bergdahl’s Conviction, Court Finds**\
