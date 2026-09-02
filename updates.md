@@ -1,3 +1,7 @@
+**Se acerca un nuevo orden mundial, y no estamos preparados**\
+`Debemos ser honestos sobre la gravedad del momento que estamos viviendo.`\
+https://www.nytimes.com/es/2026/09/02/espanol/opinion/trump-estados-unidos-nuevo-orden-mundial.html
+
 **U.N. Says World Will Miss Its 1.5 Degree Climate Target**\
 `It proposed a new goal of limiting the “overshoot” of rising temperatures and eventually figuring out how to undo the temperature gains, a highly uncertain path.`\
 https://www.nytimes.com/2026/09/02/climate/united-nations-climate-target-overshoot.html
