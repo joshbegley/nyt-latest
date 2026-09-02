@@ -1,3 +1,7 @@
+**Noise and Motion Monitors in Their Homes? These Tenants Say No.**\
+`The public housing authority in Concord, N.H., installed monitoring devices in 300 homes. Tenants are now suing to remove the Minut sensors.`\
+https://www.nytimes.com/2026/09/02/technology/noise-monitors-public-housing.html
+
 **With More Women’s Sports Leagues Comes More Women’s Coaches**\
 `More and more are running teams, but they have not kept pace with the explosion of women’s sports.`\
 https://www.nytimes.com/2026/09/02/sports/female-coaches-women-leagues.html
