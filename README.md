@@ -1,3 +1,7 @@
+**Critically Endangered Parrots Enjoy Baby Boom After Mating Frenzy**\
+`There are now 325 kakapos in New Zealand, the largest population of the giant, flightless parrot species in decades, conservationists said.`\
+https://www.nytimes.com/2026/09/02/world/australia/kakapo-parrot-new-zealand.html
+
 **Una fábrica en Irlanda queda atrapada en la guerra económica contra Rusia**\
 `La alúmina procesada en una refinería en el condado rual de Limerick podría estar alimentando la guerra de Rusia en Ucrania, según sugirió una investigación. Existe poco consenso sobre qué hacer al respecto.`\
 https://www.nytimes.com/es/2026/09/02/espanol/mundo/fabrica-alumina-irlanda-rusia.html
@@ -38,7 +42,7 @@ https://www.nytimes.com/2026/09/02/world/asia/hong-kong-joshua-wong-activist-gui
 `Debemos ser honestos sobre la gravedad del momento que estamos viviendo.`\
 https://www.nytimes.com/es/2026/09/02/espanol/opinion/trump-estados-unidos-nuevo-orden-mundial.html
 
-**U.N. Says World Will Miss Its 1.5 Degree Climate Target**\
+**U.N. Says World Will Miss Its 1.5-Degree Climate Target**\
 `It proposed a new goal of limiting the “overshoot” of rising temperatures and eventually figuring out how to undo the temperature gains, a highly uncertain path.`\
 https://www.nytimes.com/2026/09/02/climate/united-nations-climate-target-overshoot.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/01/us/trump-big-beautiful-bill-effects.html
 **U.S. Launches New Attacks on Iran**\
 `Also, borrowing costs rise around the world. Here’s the latest at the end of Tuesday.`\
 https://www.nytimes.com/2026/09/01/briefing/us-iran-strikes-global-bonds.html
-
-**How Monsoon Season Supercharged the Deadly Grand Canyon Flooding**\
-`Floods are common across the Southwest this time of year, when even a little bit of rain can quickly become dangerous.`\
-https://www.nytimes.com/2026/09/01/weather/grand-canyon-flooding-monsoon-el-nino.html
 
