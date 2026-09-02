@@ -1,3 +1,11 @@
+**Six Takeaways From the Massachusetts Primaries**\
+`Senator Ed Markey, 80, trounced a younger challenger who had made an argument for generational change. Two other longtime Democratic lawmakers hung on, too.`\
+https://www.nytimes.com/2026/09/01/us/politics/massachusetts-primary-election-results-takeaways.html
+
+**Longtime Democratic Congressman Defeats Progressive Rival in Massachusetts**\
+`Representative Stephen Lynch, 71, a centrist, beat Patrick Roath, 39, in a primary that reflected the party’s generational and ideological divides.`\
+https://www.nytimes.com/2026/09/01/us/politics/massachusetts-democratic-primary-lynch-roath.html
+
 **Deadly Flash Floods in Nepal Most Likely Caused by Weakened Bedrock**\
 `As the planet warms, glacier meltwater and a thawing permafrost could have contributed to destabilizing the rock.`\
 https://www.nytimes.com/interactive/2026/09/01/world/asia/nepal-flash-floods-landslide.html
