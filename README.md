@@ -1,3 +1,7 @@
+**El creador de la inyección de Ozempic ahora apuesta por las pastillas**\
+`Mike Doustdar, director ejecutivo de Novo Nordisk, inició un cambio de rumbo empresarial hace un año, y dice que los inversionistas aún subestiman el potencial de sus medicamentos.`\
+https://www.nytimes.com/es/2026/09/02/espanol/negocios/ozempic-adelgazar-inyeccion-pastilla.html
+
 **¿Cuál es la mejor manera de eliminar los puntos negros?**\
 `Esto es lo que los dermatólogos recomiendan para deshacerte de esas impurezas en tu piel.`\
 https://www.nytimes.com/es/2026/09/02/espanol/puntos-negros-como-eliminarlos-dermatologos.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/01/weather/grand-canyon-flooding-monsoon-el-nino
 **Jason Isbell and Others Say Suno’s A.I. Imitates Their Voices**\
 `Jason Isbell and three others filed a lawsuit against Suno, accusing the company of training its model on their songs. The suit will test a legal strategy not based on copyright but unlawful imitation.`\
 https://www.nytimes.com/2026/09/01/arts/music/jason-isbell-suno-ai-lawsuit.html
-
-**On Trump’s Ballroom, Chief Justice Finds Himself in an Unusual Spot: In Dissent**\
-`Chief Justice John G. Roberts Jr. has been in the majority in divided cases more times than any other chief since 1953. But not this time.`\
-https://www.nytimes.com/2026/09/01/us/politics/supreme-court-ballroom-chief-roberts.html
 
