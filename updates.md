@@ -1,3 +1,11 @@
+**Senator Ed Markey, 80, Turns Back Younger Challenger in Massachusetts**\
+`The oldest senator in Massachusetts history used a progressive message to beat Representative Seth Moulton, 47, defying calls for generational change.`\
+https://www.nytimes.com/2026/09/01/us/politics/massachusetts-senate-democratic-primary.html
+
+**Couple in Florida Kept 4 Children Inside Truck for Years, Prosecutors Say**\
+`Two boys and two girls were kept in a semi truck cab for six years, the authorities said, and the two girls, both under 11 years old, were repeatedly sexual abused.`\
+https://www.nytimes.com/2026/09/01/us/florida-child-abuse-charges-truck-captive.html
+
 **Judge Lets Case Against Tyler Robinson, Charlie Kirk Shooting Suspect, Go to Trial**\
 `The judge said that there was enough evidence to try the man accused of assassinating the conservative activist last year and that prosecutors could seek the death penalty.`\
 https://www.nytimes.com/2026/09/01/us/charlie-kirk-shooting.html
