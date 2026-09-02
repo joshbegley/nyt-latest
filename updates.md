@@ -1,3 +1,7 @@
+**USPS Is Building a Mail-In Ballot Screening System Despite Legal Battles Over Trump Order**\
+`Election officials warn that the creation of a new online portal for states to upload voter information is already fueling confusion and could ultimately disenfranchise voters.`\
+https://www.nytimes.com/2026/09/02/us/politics/postal-service-ballot-screening-system.html
+
 **Postal Service Is Building Ballot Screening System Despite Ongoing Court Fight**\
 `Election officials warn that the creation of a new online portal for states to upload voter information is already fueling confusion and could ultimately disenfranchise voters.`\
 https://www.nytimes.com/2026/09/02/us/politics/postal-service-ballot-screening-system.html

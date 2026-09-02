@@ -1,3 +1,7 @@
+**Jonathan Franzen’s “The Corrections” Is 25 Years Old. Its First Paragraph Still Feels New.**\
+`Jonathan Franzen’s 2001 novel was celebrated for its canny portrayal of American life. It’s also a stunning act of literary creation.`\
+https://www.nytimes.com/interactive/2026/09/02/books/jonathan-franzen-the-corrections.html
+
 **USPS Is Building a Mail-In Ballot Screening System Despite Legal Battles Over Trump Order**\
 `Election officials warn that the creation of a new online portal for states to upload voter information is already fueling confusion and could ultimately disenfranchise voters.`\
 https://www.nytimes.com/2026/09/02/us/politics/postal-service-ballot-screening-system.html
@@ -18,8 +22,8 @@ https://www.nytimes.com/2026/09/02/travel/southwest-airport-lounges.html
 `PDF version of Scents and the City.`\
 https://www.nytimes.com/interactive/2026/09/02/us/nyc-smell-map.html
 
-**Eala-Mania Hits the U.S. Open, and There’s Joy in Little Manila**\
-`The young Filipino star Alex Eala has charmed the tennis world and united her far-flung compatriots.`\
+**The Filipino Star at the U.S. Open Igniting a Neighborhood in Queens**\
+`The 21-year-old sensation Alex Eala has charmed the tennis world and united her far-flung compatriots.`\
 https://www.nytimes.com/2026/09/02/nyregion/alex-eala-us-open-philippines-little-manila.html
 
 **The Yankees’ Post-9/11 World Series Run**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/opinion/100000011093696/can-sports-betting-sites-p
 **What A.O.C.’s Egg Freezing Says About Politics**\
 `Alexandria Ocasio-Cortez and Karoline Leavitt may have very different politics, says Kristen Soltis Anderson, but they’re both publicly navigating similar realities: being young women in the public eye and navigating career ambition alongside questions of fertility and family.`\
 https://www.nytimes.com/video/opinion/100000011090296/what-aocs-egg-freezing-says-about-politics.html
-
-**In Nepal and Tibet, Pollution on Glaciers Could Fuel More Flood Disasters**\
-`Darkened by soot from vehicles and factories, the region’s glaciers are absorbing more heat and melting at dangerous rates.`\
-https://www.nytimes.com/2026/09/02/climate/pollution-soot-glaciers-melting-himalayas.html
 
