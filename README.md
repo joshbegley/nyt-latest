@@ -1,3 +1,7 @@
+**In the Midterms, Will the Nepo-Baby Attack Work?**\
+`A New Hampshire senator’s daughter is running for office, and finds her name being used against her.`\
+https://www.nytimes.com/2026/09/02/us/politics/midterms-nepo-baby-shaheen.html
+
 **States Sue Over Move to End to Federal Funds for Transgender Youth for Transition Care**\
 `The Trump administration wants to bar Medicaid and the Children’s Health Insurance Program from paying for gender-transition medication and surgery for transgender adolescents.`\
 https://www.nytimes.com/2026/09/02/us/politics/youth-gender-transition-lawsuit-federal-money.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/02/us/observe-yom-kippur.html
 **Ariana Grande Steps Back From Spotlight After Tour Ends: What to Know**\
 `As the singer wrapped up her Eternal Sunshine world tour this week, she was set to take a break after a whirlwind couple of years.`\
 https://www.nytimes.com/2026/09/02/style/ariana-grande-tour-jonathan-bailey.html
-
-**Kennedy Center Remove Landmark ‘Blue’ Sculpture From Grounds**\
-`The Kennedy Center removed a sculpture called “Blue,” by Joel Shapiro, from its grounds on Wednesday. The work was targeted for removal after President Trump took over the center, documents obtained by The New York Times show.`\
-https://www.nytimes.com/video/us/100000011128157/kennedy-center-blue-sculpture.html
 
