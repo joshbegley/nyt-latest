@@ -1,3 +1,7 @@
+**Who Owns Reggaeton’s Beat? A Judge Throws Out One Claim.**\
+`A copyright suit against stars including Bad Bunny and Daddy Yankee came from the producers behind a trio of songs foundational to the genre.`\
+https://www.nytimes.com/2026/09/02/arts/music/reggaeton-lawsuit-bad-bunny.html
+
 **Southwest to Open Premium Airport Lounges Across the Country**\
 `The airline said that lounges in Baltimore, Honolulu, Nashville and Austin, Texas, would debut starting late next year, and that seven more were in the works.`\
 https://www.nytimes.com/2026/09/02/travel/southwest-airport-lounges.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/02/us/politics/trump-courts-ballroom.html
 **Trump Returns to a Familiar Playbook as the War With Iran Flares Up Again**\
 `The United States seems increasingly bogged down in Iran after six months of conflict, despite President Trump’s declarations of military dominance.`\
 https://www.nytimes.com/2026/09/02/us/politics/trump-iran-strait-of-hormuz.html
-
-**The ‘Miracle House’ That Survived Nepal’s Floods**\
-`A building in Nepal has been nicknamed “the miracle green house” because it remained standing during last week’s disastrous flooding and kept its residents safe.`\
-https://www.nytimes.com/video/world/asia/100000011127677/miracle-green-house-nepal-floods.html
 
