@@ -1,3 +1,7 @@
+**Judge Blocks Trump’s Second Try to Restrict Birthright Citizenship**\
+`The ruling raised concerns that babies already defined as citizens by the Supreme Court could have their citizenship revoked under an order the president signed in August.`\
+https://www.nytimes.com/2026/09/02/us/politics/judge-trump-birthright-citizenship.html
+
 **Uber and Wayve to Start Testing Robotaxis in London**\
 `Uber and the British start-up Wayve are the latest to start testing autonomous cars in one of the world’s largest markets for ride-hailing services.`\
 https://www.nytimes.com/2026/09/02/business/uber-wayve-london.html
@@ -79,7 +83,7 @@ https://www.nytimes.com/es/2026/09/02/espanol/mundo/uss-abraham-lincoln-portaavi
 https://www.nytimes.com/2026/09/02/world/trump-regime-change-strike-wedding.html
 
 **Jonathan Franzen’s “The Corrections” Is 25 Years Old. Its First Paragraph Still Feels New.**\
-`Jonathan Franzen’s 2001 novel was celebrated for its canny portrayal of American life. It’s also a stunning act of literary creation.`\
+`Jonathan Franzen’s 2001 novel was celebrated for its canny portrayal of American life. It’s also a remarkable act of literary creation.`\
 https://www.nytimes.com/interactive/2026/09/02/books/jonathan-franzen-the-corrections.html
 
 **USPS Is Building a Mail-In Ballot Screening System Despite Legal Battles Over Trump Order**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/02/well/covid-flu-vaccines-rsv.html
 **What Is ‘Narrative Art?’ The Lucas Museum Finally Shows Us Its Vision.**\
 `After several delays, George Lucas’s legacy project is finally ready to open. There’s less “Star Wars” than you might expect.`\
 https://www.nytimes.com/2026/09/02/arts/design/george-lucas-museum-narrative-art-opening.html
-
-**In Danny Boyle’s ‘Ink,’ Tabloid Scandals Sell and the Public Is Buying**\
-`The film, which opened the Venice Film Festival on Wednesday, portrays the rise of the British tabloid The Sun in Boyle’s trademark rollicking style.`\
-https://www.nytimes.com/2026/09/02/movies/danny-boyle-ink-venice-film-festival.html
 
