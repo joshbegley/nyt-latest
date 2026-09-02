@@ -1,3 +1,11 @@
+**‘Don’t Worry About Me’: Attacker’s Father Thought She Had Turned a Corner**\
+`Pamela Cisneros was killed by the police in Times Square after she stabbed two people, one fatally. Her father said she had stopped going with him to her mental health appointments.`\
+https://www.nytimes.com/2026/09/01/nyregion/times-square-stabbing-suspect.html
+
+**NYT Crossword Answers for Sept. 2, 2026**\
+`Mac Motz makes his New York Times Crossword debut.`\
+https://www.nytimes.com/2026/09/01/crosswords/daily-puzzle-2026-09-02.html
+
 **A Plan to Eradicate the Deer on Catalina Island Will Proceed, Organizers Say**\
 `After a judge issued a tentative ruling on a legal challenge Tuesday, the Catalina Island Conservancy said that it would begin the first phase of its plan to kill nearly all of the 2,000 deer on the California island.`\
 https://www.nytimes.com/2026/09/01/us/catalina-island-deer.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/01/nyregion/victims-stabbing-times-square-nyc.ht
 **Carney Tells Trump Officials to ‘Stop Throwing Shade’ Over Canada-U.S. Trade Talks**\
 `Amid a trade war, Canada’s Liberals swept three special votes and new polling suggested strong support for Prime Minister Mark Carney and his retaliatory tariffs against the U.S.`\
 https://www.nytimes.com/2026/09/01/world/canada/carney-trump-trade-war.html
-
-**Ex-Girlfriend of Thrice-Married Billionaire Sues Over ‘Broken Promises’**\
-`Oona O. Sperr, a New York interior designer, believes her longtime partner, the Texas oil tycoon Sid Bass, owes her after he walked back offers of financial support.`\
-https://www.nytimes.com/2026/09/01/nyregion/sid-bass-divorce-settlement.html
-
-**EE. UU. quiere extraer más petróleo de Venezuela. Esto es lo que hay que saber**\
-`El acuerdo del gobierno de Trump con una petrolera privada para aumentar la producción de petróleo en el país sudamericano podría tardar muchos años en rendir frutos.`\
-https://www.nytimes.com/es/2026/09/01/espanol/negocios/venezuela-estados-unidos-petroleo-reservas.html
 
