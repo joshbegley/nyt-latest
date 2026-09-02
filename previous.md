@@ -1,3 +1,7 @@
+**¿Qué propició el ataque a dos transeúntes en Times Square?**\
+`Una mujer apuñaló a dos personas en uno de los sitios más turísticos de Nueva York. Las autoridades tratan de entender qué detonó el ataque.`\
+https://www.nytimes.com/es/2026/09/02/espanol/estados-unidos/ataque-times-square-victimas-motivo.html
+
 **A Mayor’s Wife Is Injured as ICE Chases Another Driver, Officials Say**\
 `A driver fled after being stopped by federal immigration agents, who then pursued the individual on a New Jersey highway, the police officials said.`\
 https://www.nytimes.com/2026/09/02/nyregion/ice-chase-new-jersey-crash.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/09/02/espanol/negocios/chevron-venezuela-petrole
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/business/100000011128330/Biz-Uber-London-Video.html
-
-**The Mysterious and Lonely Final Decade of Yayoi Kusama’s Life**\
-`The Japanese artist spent the last seven years in isolation and declining health. Still, it was the most prolific chapter of her career.`\
-https://www.nytimes.com/2026/09/02/arts/design/yayoi-kusama-final-years.html
 
