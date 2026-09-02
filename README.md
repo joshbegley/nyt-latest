@@ -1,3 +1,7 @@
+**Attacks in Black Sea Threaten to Strangle Global Grain Supply**\
+`Strikes on ports and vessels by both Russia and Ukraine have left farmers facing ruin and could cause another worldwide food shock.`\
+https://www.nytimes.com/2026/09/02/world/europe/russia-ukraine-port-attacks-farmers-grain.html
+
 **Selling My Grandparents’ Home Is Like Losing Them Again**\
 `A plot of land was the last thing connecting us to my grandparents.`\
 https://www.nytimes.com/2026/09/02/opinion/labor-day-memory-grief.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/02/nyregion/new-york-income-inequality.html
 **How Our Madrid Bureau Chief Covers a Country in Transition**\
 `In Spain, Jason Horowitz is seeking to capture stories that reflect the country’s new momentum.`\
 https://www.nytimes.com/2026/09/02/insider/madrid-bureau-chief.html
-
-**NYT Spelling Bee Answers for September 2, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/09/02/crosswords/spelling-bee-forum.html
 
