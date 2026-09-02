@@ -1,3 +1,11 @@
+**Patrick Gleeson, Who Made Synthesizers Part of Jazz, Dies at 91**\
+`He abandoned a job teaching college English in the 1960s to become a pioneer of the instrument, playing onstage with Herbie Hancock’s jazz band.`\
+https://www.nytimes.com/2026/09/02/arts/music/patrick-gleeson-dead.html
+
+**In Danny Boyle’s ‘Ink,’ Tabloid Scandals Sell and the Public Is Buying**\
+`The film, which opened the Venice Film Festival on Wednesday, portrays the rise of the British tabloid The Sun in Boyle’s trademark rollicking style.`\
+https://www.nytimes.com/2026/09/02/movies/danny-boyle-ink-venice-film-festival.html
+
 **Egypt Bus Crash Kills at Least 22 People, Injures Dozens More**\
 `A bus overturned while traveling between popular resort towns in Egypt on Wednesday, killing at least 22 people, according to the country’s health ministry. It was not immediately clear what caused the crash.`\
 https://www.nytimes.com/video/world/africa/100000011128018/egypt-sinai-bus-crash.html

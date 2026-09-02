@@ -1,3 +1,7 @@
+**Patrick Gleeson, Who Made Synthesizers Part of Jazz, Dies at 91**\
+`He abandoned a job teaching college English in the 1960s to become a pioneer of the instrument, playing onstage with Herbie Hancock’s jazz band.`\
+https://www.nytimes.com/2026/09/02/arts/music/patrick-gleeson-dead.html
+
 **Egypt Bus Crash Kills at Least 22 People, Injures Dozens More**\
 `A bus overturned while traveling between popular resort towns in Egypt on Wednesday, killing at least 22 people, according to the country’s health ministry. It was not immediately clear what caused the crash.`\
 https://www.nytimes.com/video/world/africa/100000011128018/egypt-sinai-bus-crash.html
@@ -27,7 +31,7 @@ https://www.nytimes.com/2026/09/02/well/covid-flu-vaccines-rsv.html
 https://www.nytimes.com/2026/09/02/arts/design/george-lucas-museum-narrative-art-opening.html
 
 **In Danny Boyle’s ‘Ink,’ Tabloid Scandals Sell and the Public Is Buying**\
-`The film, which opened the Venice Film Festival on Wednesday, portrays the rise of the British tabloid The Sun in the Boyle’s trademark rollicking style.`\
+`The film, which opened the Venice Film Festival on Wednesday, portrays the rise of the British tabloid The Sun in Boyle’s trademark rollicking style.`\
 https://www.nytimes.com/2026/09/02/movies/danny-boyle-ink-venice-film-festival.html
 
 **Tell Us How You Observe Yom Kippur**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/02/crosswords/strands-sidekick-914.html
 **U.S.S. Lincoln Docks in Thailand After Nine Months at Sea**\
 `Thousands of sailors and Marines from the U.S.S. Abraham Lincoln will get a few days of rest and relaxation in Thailand after a strenuous nine-month deployment in the war in Iran.`\
 https://www.nytimes.com/video/world/asia/100000011127424/uss-lincoln-arrives-thailand.html
-
-**Gary Glitter Pleads Not Guilty to Child Sexual Abuse Charges**\
-`Accusations against the glam rock singer relate to incidents that are said to have occurred between 1978 and 1981.`\
-https://www.nytimes.com/2026/09/02/arts/music/gary-glitter-court.html
 
