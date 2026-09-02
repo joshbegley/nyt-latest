@@ -1,3 +1,7 @@
+**The ‘Miracle House’ That Survived Nepal’s Floods**\
+`People are coming to take photos of the green-painted house, which kept the Pyakurel family safe as the area all around them was destroyed by rampaging floodwaters.`\
+https://www.nytimes.com/2026/09/02/world/asia/nepal-flood-miracle-house-dhunge-bazaar.html
+
 **In Egypt, Xi Challenges America’s Influence in the Middle East**\
 `China’s leader, Xi Jinping, is seeking to deepen ties with a longtime U.S. security partner and to project a larger role for Beijing in a region rocked by war.`\
 https://www.nytimes.com/2026/09/02/world/asia/china-egypt-xi-jinping-el-sisi.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/02/learning/word-of-the-day-trajectory.html
 **I Went to Princeton to Become a So-So Indian**\
 `I realized that in this country Indians were not supposed to be happy or to pursue happiness. We were supposed to suffer and to pursue suffering.`\
 https://www.nytimes.com/2026/09/02/opinion/indian-identity-princeton.html
-
-**Book Review: ‘The Everest Mystery,’ by Julie Summers and Jochen Hemmleb**\
-`“The Everest Mystery” takes on the enduring puzzle of two climbers’ fates — and pays tribute to the often-overlooked Sandy Irvine.`\
-https://www.nytimes.com/2026/09/02/books/review/the-everest-mystery-julie-summers-and-jochen-hemmleb-.html
 

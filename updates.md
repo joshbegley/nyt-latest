@@ -1,3 +1,7 @@
+**The ‘Miracle House’ That Survived Nepal’s Floods**\
+`People are coming to take photos of the green-painted house, which kept the Pyakurel family safe as the area all around them was destroyed by rampaging floodwaters.`\
+https://www.nytimes.com/2026/09/02/world/asia/nepal-flood-miracle-house-dhunge-bazaar.html
+
 **Investors Still on Edge Over War, Debt and Inflation**\
 `U.S. and Iranian forces traded attacks again, pushing oil prices higher, stocks lower and making bond investors nervous.`\
 https://www.nytimes.com/2026/09/02/business/oil-bond-yields-iran.html
