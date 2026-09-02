@@ -1,3 +1,7 @@
+**U.S.S. Lincoln Docks in Thailand After Nine Months at Sea**\
+`Thousands of sailors and Marines from the U.S.S. Abraham Lincoln will get a few days of rest and recovery in Thailand after a strenuous nine-month deployment in the war in Iran.`\
+https://www.nytimes.com/video/world/asia/100000011127424/uss-lincoln-arrives-thailand.html
+
 **Gary Glitter Pleads Not Guilty to Child Sexual Abuse Charges**\
 `Accusations against the glam rock singer relate to incidents that are said to have occurred between 1978 and 1981.`\
 https://www.nytimes.com/2026/09/02/arts/music/gary-glitter-court.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/02/style/acne-studios-jonny-johansson-sweden.htm
 **How the Delhi Metro Became a Leading Transit System**\
 `This year, the Indian capital’s subway system passed New York’s in length.`\
 https://www.nytimes.com/2026/09/02/headway/india-delhi-metro-public-transit.html
-
-**Critically Endangered Parrots Enjoy Baby Boom After Mating Frenzy**\
-`There are now 325 kakapos in New Zealand, the largest population of the giant, flightless parrot species in decades, conservationists said.`\
-https://www.nytimes.com/2026/09/02/world/australia/kakapo-parrot-new-zealand.html
 
