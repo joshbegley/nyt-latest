@@ -1,4 +1,4 @@
-**Judge Lets Case Against Suspect in Charlie Kirk Killing Go to Trial**\
+**Judge Lets Case Against Tyler Robinson, Charlie Kirk Shooting Suspect, Go to Trial**\
 `The judge said that there was enough evidence to try the man accused of assassinating the conservative activist last year and that prosecutors could seek the death penalty.`\
 https://www.nytimes.com/2026/09/01/us/charlie-kirk-shooting.html
 
