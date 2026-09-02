@@ -1,3 +1,11 @@
+**Kennedy Center Remove Landmark ‘Blue’ Sculpture From Grounds**\
+`The Kennedy Center removed a sculpture called “Blue,” by Joel Shapiro, from its grounds on Wednesday. The work was targeted for removal after President Trump took over the center, documents obtained by The New York Times show.`\
+https://www.nytimes.com/video/us/100000011128157/kennedy-center-blue-sculpture.html
+
+**How New York Times Reporters Traced Dark Money in Politics**\
+`About $1 billion in anonymous contributions is coursing through midterm races across the country. Figuring out where the funds are coming from is no easy task.`\
+https://www.nytimes.com/2026/09/02/insider/how-reporters-trace-dark-money-in-politics.html
+
 **U.S. Missile Strike Kills Several at a Wedding, Iran Says**\
 `A U.S. missile strike hit a wedding in southern Iran, videos verified by The New York Times show. The U.S. military said it had not targeted civilians in its wave of attacks, and Iran said it had retaliated with strikes of its own on U.S. forces in the region.`\
 https://www.nytimes.com/video/world/middleeast/100000011127718/iran-war-us-missile-strikes-wedding.html
@@ -47,7 +55,7 @@ https://www.nytimes.com/2026/09/02/opinion/trump-aluminum-tariffs-canada.html
 https://www.nytimes.com/es/2026/09/02/espanol/america-latina/terremoto-colombia-ayuda-ia.html
 
 **In a Big Win, Google Won’t Have to Break Up Its Ad Tech Business, Court Rules**\
-`In a long-awaited decision, the judge said Google must make some changes to its ad tech business to handle antitrust issues, but did not disclose the measures publicly.`\
+`In a long-awaited decision, a federal judge said Google must change its ad tech business to address antitrust issues, but did not disclose the measures.`\
 https://www.nytimes.com/2026/09/02/technology/google-ad-tech-remedies.html
 
 **Can Sports-Betting Sites Predict the Midterms?**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/02/well/move/dale-sanders-grey-beard-appalachian
 **Corrections: Sept. 2, 2026**\
 `Corrections that appeared in print on Wednesday, Sept. 2, 2026.`\
 https://www.nytimes.com/2026/09/02/pageoneplus/corrections-sept-2-2026.html
-
-**FiveThirtyEight’s Podcast Hosts Reunite for a New Show**\
-`Nate Silver, Clare Malone and Galen Druke will host “Still Counting,” a nonpartisan politics show — on a decidedly partisan podcast network.`\
-https://www.nytimes.com/2026/09/02/business/media/fivethirtyeight-podcast-hosts-still-counting.html
-
-**Who Approves Trump’s Washington Makeover Projects?**\
-`The Supreme Court gave a green light to the new White House ballroom, but several of the president’s other Washington projects remain stalled.`\
-https://www.nytimes.com/2026/09/02/us/politics/trump-washington-renovation-projects-approval.html
 
