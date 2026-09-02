@@ -1,3 +1,7 @@
+**How the Met’s Galliano Show Fell Apart**\
+`Anna Wintour put her full power and prestige behind a designer convicted of an antisemitic hate crime. Behind the scenes, influential New Yorkers revolted.`\
+https://www.nytimes.com/2026/09/02/style/how-galliano-show-metropolitan-museum-fell-apart.html
+
 **Patrick Gleeson, Who Made Synthesizers Part of Jazz, Dies at 91**\
 `He abandoned a job teaching college English in the 1960s to become a pioneer of the instrument, playing onstage with Herbie Hancock’s jazz band.`\
 https://www.nytimes.com/2026/09/02/arts/music/patrick-gleeson-dead.html

@@ -1,6 +1,14 @@
+**Trump insta de nuevo al pueblo de Irán a ‘levantarse y luchar’**\
+`En una publicación en redes sociales, el presidente Trump también desestimó las negociaciones estancadas con Irán en medio de la reanudación de los ataques.`\
+https://www.nytimes.com/es/2026/09/02/espanol/estados-unidos/trump-iran-estrecho-de-ormuz.html
+
+**Judge Lacked Power to Vacate Bowe Bergdahl’s Conviction, Court Finds**\
+`The ruling effectively reinstates Mr. Bergdahl’s punishment, including his dishonorable discharge, for walking off a base in Afghanistan in 2009, prompting an extensive search-and-rescue mission.`\
+https://www.nytimes.com/2026/09/02/us/bowe-bergdahl-conviction-army-sergeant-afghanistan.html
+
 **How the Met’s Galliano Show Fell Apart**\
 `Anna Wintour put her full power and prestige behind a designer convicted of an antisemitic hate crime. Behind the scenes, influential New Yorkers revolted.`\
-https://www.nytimes.com/2026/09/02/style/how-galliano-show-metropolitan-museum-fell-apart.html
+https://www.nytimes.com/2026/09/02/style/john-galliano-met-exhibition-cancel-anna-wintour.html
 
 **Patrick Gleeson, Who Made Synthesizers Part of Jazz, Dies at 91**\
 `He abandoned a job teaching college English in the 1960s to become a pioneer of the instrument, playing onstage with Herbie Hancock’s jazz band.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/02/business/health-insurance-increases.html
 **Today’s Wordle Hints for September 3, 2026**\
 `Scroll down for hints and conversation about the puzzle for Thursday, Sept. 3, 2026.`\
 https://www.nytimes.com/2026/09/02/crosswords/wordle-review-1902.html
-
-**NYT Connections Answers for September 3, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, Sept. 3, 2026.`\
-https://www.nytimes.com/2026/09/02/crosswords/connections-companion-1180.html
-
-**NYT Strands Hints for September 3, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, Sept. 3, 2026.`\
-https://www.nytimes.com/2026/09/02/crosswords/strands-sidekick-914.html
 
