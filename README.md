@@ -1,3 +1,7 @@
+**Una fábrica en Irlanda queda atrapada en la guerra económica contra Rusia**\
+`La alúmina procesada en una refinería en el condado rual de Limerick podría estar alimentando la guerra de Rusia en Ucrania, según sugirió una investigación. Existe poco consenso sobre qué hacer al respecto.`\
+https://www.nytimes.com/es/2026/09/02/espanol/mundo/fabrica-alumina-irlanda-rusia.html
+
 **El creador de la inyección de Ozempic ahora apuesta por las pastillas**\
 `Mike Doustdar, director ejecutivo de Novo Nordisk, inició un cambio de rumbo empresarial hace un año, y dice que los inversionistas aún subestiman el potencial de sus medicamentos.`\
 https://www.nytimes.com/es/2026/09/02/espanol/negocios/ozempic-adelgazar-inyeccion-pastilla.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/01/briefing/us-iran-strikes-global-bonds.html
 **How Monsoon Season Supercharged the Deadly Grand Canyon Flooding**\
 `Floods are common across the Southwest this time of year, when even a little bit of rain can quickly become dangerous.`\
 https://www.nytimes.com/2026/09/01/weather/grand-canyon-flooding-monsoon-el-nino.html
-
-**Jason Isbell and Others Say Suno’s A.I. Imitates Their Voices**\
-`Jason Isbell and three others filed a lawsuit against Suno, accusing the company of training its model on their songs. The suit will test a legal strategy not based on copyright but unlawful imitation.`\
-https://www.nytimes.com/2026/09/01/arts/music/jason-isbell-suno-ai-lawsuit.html
 
