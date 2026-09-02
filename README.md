@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/business/100000011128330/Biz-Uber-London-Video.html
+
 **The Mysterious and Lonely Final Decade of Yayoi Kusama’s Life**\
 `The Japanese artist spent the last seven years in isolation and declining health. Still, it was the most prolific chapter of her career.`\
 https://www.nytimes.com/2026/09/02/arts/design/yayoi-kusama-final-years.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/02/world/asia/thailand-philippines-active-shoote
 **Saturday Evening Post Will Stop Printing After 205 Years**\
 `The magazine, famous for publishing Jack London stories and Norman Rockwell art, will continue online.`\
 https://www.nytimes.com/2026/09/02/business/media/saturday-evening-post-stop-printing.html
-
-**What We Know About the Deadly Events in Times Square**\
-`Pamela Cisneros, 49, was shot dead by the police after she stabbed two people, one fatally. She had a documented history of mental health problems.`\
-https://www.nytimes.com/2026/09/02/nyregion/what-we-know-about-the-deadly-events-in-times-square.html
 
