@@ -1,3 +1,7 @@
+**The Yankees’ Post-9/11 World Series Run: ‘We Wanted to Win for the City’**\
+`George W. Bush, Billy Crystal, Tino Martinez and others describe how baseball and a thrilling postseason became a rallying cry for the country.`\
+https://www.nytimes.com/interactive/2026/09/02/magazine/yankees-world-series-9-11.html
+
 **Jay Leno’s Classic Car Bill Passes in California Legislature**\
 `The bipartisan bill, backed by Mr. Leno, the comedian and car collector, would exempt some older vehicles from having to meet California’s stringent emissions rules.`\
 https://www.nytimes.com/2026/09/02/us/jay-leno-law-classic-cars-emissions.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/02/well/doctors-patients-postpartum-mental-healt
 **King Charles III to View Bayeux Tapestry at the British Museum**\
 `The monarch was invited to see the historic embroidery days before a major British Museum exhibition, almost 40 years after seeing it in France with Diana.`\
 https://www.nytimes.com/2026/09/02/arts/design/bayeux-tapestry-king-charles.html
-
-**Why Does My Divorced Father Keep Reaching Out to My Mother’s Relatives?**\
-`A long-divorced father’s wish to stay in the lives of his ex-wife’s family is a source of embarrassment for his middle-aged child.`\
-https://www.nytimes.com/2026/09/02/style/divorce-estranged-family-relationships.html
 

@@ -1,3 +1,11 @@
+**Jay Leno’s Classic Car Bill Passes in California Legislature**\
+`The bipartisan bill, backed by Mr. Leno, the comedian and car collector, would exempt some older vehicles from having to meet California’s stringent emissions rules.`\
+https://www.nytimes.com/2026/09/02/us/jay-leno-law-classic-cars-emissions.html
+
+**Trump Administration Launches Hunt For Noncitizen Voter Fraud Before Midterms**\
+`The practice is exceedingly rare, but President Trump has fixated on rooting it out this year, claiming without evidence that tens of thousands of noncitizens are registered to vote.`\
+https://www.nytimes.com/2026/09/02/us/politics/trump-election-voter-fraud.html
+
 **The Good List: 6 Things to Add Joy to Your Day**\
 `Your birthday crossword, nearby pianos and the lone katydid.`\
 https://www.nytimes.com/2026/09/02/briefing/2-the-good-list-katydid-pianos.html
