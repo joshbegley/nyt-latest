@@ -1,3 +1,7 @@
+**Missouri Voters Appear to Recall City Councilman Over Data Center Support**\
+`Initial results showed that residents of Independence, Mo., voted overwhelmingly to recall an official who backed billions of dollars in tax breaks for a data center.`\
+https://www.nytimes.com/2026/09/01/technology/data-center-recall-vote-independence.html
+
 **Former Biden White House Aide Wins Massachusetts Democratic House Primary**\
 `Dan Koh, who ran with the endorsement of former President Joseph R. Biden Jr., topped a crowded field to secure the nomination in the safely Democratic Sixth Congressional District.`\
 https://www.nytimes.com/2026/09/01/us/politics/massachusetts-democratic-primary-6th-district.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/embedded/opinion/editorials/100000011125592/05opdo
 **Israeli Authorities Charge 12 Guards in Beating Death of Palestinian Prisoner**\
 `The rare prosecution comes amid widespread reports from rights groups about mistreatment in Israeli detention centers, where, activists say, scores of Palestinians have died since October 2023.`\
 https://www.nytimes.com/2026/09/01/world/middleeast/israel-guards-palestinian-prisoner.html
-
-**Woman Killed in Times Square Stabbing Identified as Bank of America VP**\
-`The New York Police Department made public the names of some of the people involved in a seemingly random knife attack on a crowded Manhattan street, but questions remained.`\
-https://www.nytimes.com/2026/09/01/nyregion/victims-stabbing-times-square-nyc.html
 

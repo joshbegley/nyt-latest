@@ -1,3 +1,7 @@
+**Missouri Voters Appear to Recall City Councilman Over Data Center Support**\
+`Initial results showed that residents of Independence, Mo., voted overwhelmingly to recall an official who backed billions of dollars in tax breaks for a data center.`\
+https://www.nytimes.com/2026/09/01/technology/data-center-recall-vote-independence.html
+
 **Former Biden White House Aide Wins Massachusetts Democratic House Primary**\
 `Dan Koh, who ran with the endorsement of former President Joseph R. Biden Jr., topped a crowded field to secure the nomination in the safely Democratic Sixth Congressional District.`\
 https://www.nytimes.com/2026/09/01/us/politics/massachusetts-democratic-primary-6th-district.html
