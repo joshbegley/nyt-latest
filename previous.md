@@ -1,3 +1,7 @@
+**In Small Iranian Town, a U.S. Attack Turns a Wedding Into a Tragedy**\
+`The bomb that hit the residential area was American, according to a weapons expert and a visual analysis by The Times. It killed five people and wounded 67 others, the Iranian authorities said.`\
+https://www.nytimes.com/2026/09/02/video/iran-us-attack-wedding.html
+
 **Judge Blocks Trump’s Second Try to Restrict Birthright Citizenship**\
 `The ruling raised concerns that babies already defined as citizens by the Supreme Court could have their citizenship revoked under an order the president signed in August.`\
 https://www.nytimes.com/2026/09/02/us/politics/judge-trump-birthright-citizenship.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/09/02/espanol/cultura/trump-centro-kennedy-escul
 **A Guide to Covid, Flu and R.S.V. Vaccines This Fall**\
 `Leading health organizations joined forces to issue the recommendations, citing a lack of strong guidance from the federal government.`\
 https://www.nytimes.com/2026/09/02/well/covid-flu-vaccines-rsv.html
-
-**What Is ‘Narrative Art?’ The Lucas Museum Finally Shows Us Its Vision.**\
-`After several delays, George Lucas’s legacy project is finally ready to open. There’s less “Star Wars” than you might expect.`\
-https://www.nytimes.com/2026/09/02/arts/design/george-lucas-museum-narrative-art-opening.html
 

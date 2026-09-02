@@ -1,3 +1,7 @@
+**In Small Iranian Town, a U.S. Attack Turns a Wedding Into a Tragedy**\
+`The bomb that hit the residential area was American, according to a weapons expert and a visual analysis by The Times. It killed five people and wounded 67 others, the Iranian authorities said.`\
+https://www.nytimes.com/2026/09/02/video/iran-us-attack-wedding.html
+
 **Judge Blocks Trump’s Second Try to Restrict Birthright Citizenship**\
 `The ruling raised concerns that babies already defined as citizens by the Supreme Court could have their citizenship revoked under an order the president signed in August.`\
 https://www.nytimes.com/2026/09/02/us/politics/judge-trump-birthright-citizenship.html
