@@ -1,3 +1,7 @@
+**Tell Us How You Observe Yom Kippur**\
+`Yom Kippur, which starts this year on Sept. 20, is one of the most widely observed Jewish holidays. If you are Jewish, we want to know how you experience it.`\
+https://www.nytimes.com/2026/09/02/us/observe-yom-kippur.html
+
 **Ariana Grande Steps Back From Spotlight After Tour Ends: What to Know**\
 `As the singer wrapped up her Eternal Sunshine world tour this week, she was set to take a break after a whirlwind couple of years.`\
 https://www.nytimes.com/2026/09/02/style/ariana-grande-tour-jonathan-bailey.html

@@ -1,3 +1,15 @@
+**Your Guide to Covid, Flu and R.S.V. Vaccines This Fall**\
+`Major medical groups released new recommendations on who should get the shots, citing a lack of strong guidance from the federal government.`\
+https://www.nytimes.com/2026/09/02/well/covid-flu-vaccines-rsv.html
+
+**What Is ‘Narrative Art?’ The Lucas Museum Finally Shows Us Its Vision.**\
+`After several delays, George Lucas’s legacy project is finally ready to open. There’s less “Star Wars” than you might expect.`\
+https://www.nytimes.com/2026/09/02/arts/design/george-lucas-museum-narrative-art-opening.html
+
+**In Danny Boyle’s ‘Ink,’ Tabloid Scandals Sell and the Public Is Buying**\
+`The film, which opened the Venice Film Festival on Wednesday, portrays the rise of the British tabloid The Sun in the Boyle’s trademark rollicking style.`\
+https://www.nytimes.com/2026/09/02/arts/danny-boyle-ink-venice-film-festival.html
+
 **Tell Us How You Observe Yom Kippur**\
 `Yom Kippur, which starts this year on Sept. 20, is one of the most widely observed Jewish holidays. If you are Jewish, we want to know how you experience it.`\
 https://www.nytimes.com/2026/09/02/us/observe-yom-kippur.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/es/2026/09/02/espanol/america-latina/mexico-gusano-barre
 **Attacks in Black Sea Threaten to Strangle Global Grain Supply**\
 `Strikes on ports and vessels by both Russia and Ukraine have left farmers facing ruin and could cause another worldwide food shock.`\
 https://www.nytimes.com/2026/09/02/world/europe/russia-ukraine-port-attacks-farmers-grain.html
-
-**Selling My Grandparents’ Home Is Like Losing Them Again**\
-`A plot of land was the last thing connecting us to my grandparents.`\
-https://www.nytimes.com/2026/09/02/opinion/labor-day-memory-grief.html
-
-**‘Ted Lasso’ Season 4, Episode 5 Recap: Romantic Reversals**\
-`Pursued become pursuers, and everyone ends up unhappy.`\
-https://www.nytimes.com/2026/09/02/arts/television/ted-lasso-season-4-episode-5-recap.html
-
-**Global Bond Rates Are Rising. What Should You Do Now?**\
-`If you own bonds, they may be in a broad fund that hasn’t lost much money. And that fund may do much better in the next several years.`\
-https://www.nytimes.com/2026/09/02/business/bond-rates-retirement-401k.html
 
