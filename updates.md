@@ -1,3 +1,11 @@
+**Uber Lays Off 10% of Employees in Sweeping Reorganization**\
+`The layoffs affect about 3,300 workers, as Chief Executive Dara Khosrowshahi bets on a “leaner organization.”`\
+https://www.nytimes.com/2026/09/02/technology/uber-layoffs.html
+
+**My Teenage Daughter’s Friend Has a Drinking Problem. Should I Tell Her Parents?**\
+`If it were my daughter, I would want to know. But I worry about blowing up this girl’s home life.`\
+https://www.nytimes.com/2026/09/02/magazine/teenage-daughter-friend-drinking-ethics.html
+
 **Patagonia Sues Trump Over Reduction of Bears Ears National Monument in Utah**\
 `The outdoor apparel maker joined environmental and Native American groups in challenging President Trump’s reduction of Bears Ears National Monument.`\
 https://www.nytimes.com/2026/09/02/climate/patagonia-bears-ears-lawsuit-trump.html

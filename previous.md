@@ -1,3 +1,11 @@
+**Uber Lays Off 10% of Employees in Sweeping Reorganization**\
+`The layoffs affect about 3,300 workers, as Chief Executive Dara Khosrowshahi bets on a “leaner organization.”`\
+https://www.nytimes.com/2026/09/02/technology/uber-layoffs.html
+
+**My Teenage Daughter’s Friend Has a Drinking Problem. Should I Tell Her Parents?**\
+`If it were my daughter, I would want to know. But I worry about blowing up this girl’s home life.`\
+https://www.nytimes.com/2026/09/02/magazine/teenage-daughter-friend-drinking-ethics.html
+
 **Patagonia Sues Trump Over Reduction of Bears Ears National Monument in Utah**\
 `The outdoor apparel maker joined environmental and Native American groups in challenging President Trump’s reduction of Bears Ears National Monument.`\
 https://www.nytimes.com/2026/09/02/climate/patagonia-bears-ears-lawsuit-trump.html
@@ -189,8 +197,4 @@ https://www.nytimes.com/2026/09/02/us/politics/trump-washington-renovation-proje
 **Deaths of 2 Men in Los Angeles Police Custody Set Off Investigations**\
 `Mayor Karen Bass questioned police training to handle mental health crises after the city released graphic video footage of officers’ actions.`\
 https://www.nytimes.com/2026/09/02/us/los-angeles-jail-inmate-beating.html
-
-**A Serene Library in a Clinton Hill Townhouse**\
-`Melissa Lee designed her library and office as a calm space away from her home above.`\
-https://www.nytimes.com/2026/09/02/realestate/melissa-lee-design-finds.html
 
