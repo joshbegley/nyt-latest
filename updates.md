@@ -1,3 +1,11 @@
+**Netanyahu’s Israel Is Looking for a Fight in Every Direction**\
+`The Israeli leader, facing a tough re-election contest, may need a security crisis to rally voters behind him and hold on to his job.`\
+https://www.nytimes.com/2026/09/02/world/middleeast/netanyahu-israel-election.html
+
+**La lucha para erradicar al gusano barrenador en México**\
+`Por primera vez en un año, la frontera entre Estados Unidos y México reabrió parcialmente a las importaciones de ganado tras una infestación del gusano barrenador en toda la región. La batalla acaba de empezar en el interior de México.`\
+https://www.nytimes.com/es/2026/09/02/espanol/america-latina/mexico-gusano-barrenador.html
+
 **Attacks in Black Sea Threaten to Strangle Global Grain Supply**\
 `Strikes on ports and vessels by both Russia and Ukraine have left farmers facing ruin and could cause another worldwide food shock.`\
 https://www.nytimes.com/2026/09/02/world/europe/russia-ukraine-port-attacks-farmers-grain.html
