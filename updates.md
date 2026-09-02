@@ -1,3 +1,11 @@
+**Deadly Flash Floods in Nepal Most Likely Caused by Weakened Bedrock**\
+`As the planet warms, glacier meltwater and a thawing permafrost could have contributed to destabilizing the rock.`\
+https://www.nytimes.com/interactive/2026/09/01/world/asia/nepal-flash-floods-landslide.html
+
+**Officials in Mississippi City Fire Police Chief Over Racist Texts**\
+`Mississippi Today, Verite News and The Times had revealed the chief’s texts as his officers were under scrutiny for the fatal shooting of a Black toddler.`\
+https://www.nytimes.com/2026/09/01/us/mississippi-police-chief-fired-over-racist-texts.html
+
 **Missouri Voters Appear to Recall City Councilman Over Data Center Support**\
 `Initial results showed that residents of Independence, Mo., voted overwhelmingly to recall an official who backed billions of dollars in tax breaks for a data center.`\
 https://www.nytimes.com/2026/09/01/technology/data-center-recall-vote-independence.html
