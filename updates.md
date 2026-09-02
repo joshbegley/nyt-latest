@@ -1,3 +1,11 @@
+**Trump Administration Hunts for Elusive Noncitizen Voters**\
+`Also, George Lucas’s legacy project is finally ready for its close-up. Here’s the latest at the end of Wednesday.`\
+https://www.nytimes.com/2026/09/02/briefing/dhs-voter-fraud-google-monopoly.html
+
+**Judge Pushes Lindsay Clancy Jury to Try to Reach a Verdict**\
+`A judge asked deadlocked jurors in the Lindsay Clancy murder trial to try again to reach a verdict. Failure to do so would result in a hung jury, with neither a conviction or an acquittal.`\
+https://www.nytimes.com/video/us/100000011129011/lindsay-clancy-jury-deadlock.html
+
 **¿Qué propició el ataque a dos transeúntes en Times Square?**\
 `Una mujer apuñaló a dos personas en uno de los sitios más turísticos de Nueva York. Las autoridades tratan de entender qué detonó el ataque.`\
 https://www.nytimes.com/es/2026/09/02/espanol/estados-unidos/ataque-times-square-victimas-motivo.html

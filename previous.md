@@ -1,3 +1,11 @@
+**Trump Administration Hunts for Elusive Noncitizen Voters**\
+`Also, George Lucas’s legacy project is finally ready for its close-up. Here’s the latest at the end of Wednesday.`\
+https://www.nytimes.com/2026/09/02/briefing/dhs-voter-fraud-google-monopoly.html
+
+**Judge Pushes Lindsay Clancy Jury to Try to Reach a Verdict**\
+`A judge asked deadlocked jurors in the Lindsay Clancy murder trial to try again to reach a verdict. Failure to do so would result in a hung jury, with neither a conviction or an acquittal.`\
+https://www.nytimes.com/video/us/100000011129011/lindsay-clancy-jury-deadlock.html
+
 **¿Qué propició el ataque a dos transeúntes en Times Square?**\
 `Una mujer apuñaló a dos personas en uno de los sitios más turísticos de Nueva York. Las autoridades tratan de entender qué detonó el ataque.`\
 https://www.nytimes.com/es/2026/09/02/espanol/estados-unidos/ataque-times-square-victimas-motivo.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/02/magazine/teenage-daughter-friend-drinking-eth
 **Patagonia Sues Trump Over Reduction of Bears Ears National Monument in Utah**\
 `The outdoor apparel maker joined environmental and Native American groups in challenging President Trump’s reduction of Bears Ears National Monument.`\
 https://www.nytimes.com/2026/09/02/climate/patagonia-bears-ears-lawsuit-trump.html
-
-**La expansión de Chevron en Venezuela amplía la influencia de EE. UU. en el país**\
-`El gigante energético estadounidense, que permaneció en el país después de que otras empresas occidentales se marcharan, invertirá 7 millardos de dólares en Venezuela para aumentar a más del doble su producción allí.`\
-https://www.nytimes.com/es/2026/09/02/espanol/negocios/chevron-venezuela-petroleo-trump.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/business/100000011128330/Biz-Uber-London-Video.html
 
