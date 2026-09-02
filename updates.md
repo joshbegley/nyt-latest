@@ -1,3 +1,7 @@
+**A.I. Is to Be Banned in N.Y.C. Elementary and Middle Schools**\
+`A new policy to be announced by the Department of Education bars younger students from using A.I., but stops short of a moratorium.`\
+https://www.nytimes.com/2026/09/01/nyregion/ai-ban-schools-nyc.html
+
 **‘Don’t Worry About Me’: Attacker’s Father Thought She Had Turned a Corner**\
 `Pamela Cisneros was killed by the police in Times Square after she stabbed two people, one fatally. Her father said she had stopped going with him to her mental health appointments.`\
 https://www.nytimes.com/2026/09/01/nyregion/times-square-stabbing-suspect.html

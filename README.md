@@ -43,7 +43,7 @@ https://www.nytimes.com/2026/09/01/us/politics/massachusetts-senate-democratic-p
 https://www.nytimes.com/2026/09/01/us/florida-child-abuse-charges-truck-captive.html
 
 **Judge Lets Case Against Tyler Robinson, Charlie Kirk Shooting Suspect, Go to Trial**\
-`The judge also allowed prosecutors to seek the death penalty against the man, who is accused of assassinating the conservative activist last year.`\
+`The judge said prosecutors had presented enough evidence to try the man accused of killing the conservative activist last year, who pleaded not guilty.`\
 https://www.nytimes.com/2026/09/01/us/charlie-kirk-shooting.html
 
 **Putin Pledges Increased Strikes in Ukraine and Support for Iran**\
