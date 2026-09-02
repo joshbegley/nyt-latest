@@ -1,3 +1,11 @@
+**La ‘casa milagrosa’ que sobrevivió a las inundaciones de Nepal**\
+`La gente acude a tomar fotos de la casa pintada de verde, la cual mantuvo a salvo a la familia Pyakurel mientras la zona a su alrededor era destruida por las violentas aguas de la inundación.`\
+https://www.nytimes.com/es/2026/09/02/espanol/mundo/nepal-inundaciones-casa-milagrosa.html
+
+**Women’s Sports Leagues Have Exploded Around the Nation**\
+`Money is flowing into start-ups in softball, baseball, volleyball and basketball, and TV viewership is following.`\
+https://www.nytimes.com/2026/09/02/sports/womens-professional-leagues.html
+
 **Trump Administration Launches Blitz to Find Elusive Voter Fraud Ahead of Midterms**\
 `The practice is exceedingly rare, but President Trump has fixated on rooting it out this year, claiming without evidence that tens of thousands of noncitizens are registered to vote.`\
 https://www.nytimes.com/2026/09/02/us/politics/trump-election-voter-fraud.html

@@ -1,3 +1,11 @@
+**La ‘casa milagrosa’ que sobrevivió a las inundaciones de Nepal**\
+`La gente acude a tomar fotos de la casa pintada de verde, la cual mantuvo a salvo a la familia Pyakurel mientras la zona a su alrededor era destruida por las violentas aguas de la inundación.`\
+https://www.nytimes.com/es/2026/09/02/espanol/mundo/nepal-inundaciones-casa-milagrosa.html
+
+**Women’s Sports Leagues Have Exploded Around the Nation**\
+`Money is flowing into start-ups in softball, baseball, volleyball and basketball, and TV viewership is following.`\
+https://www.nytimes.com/2026/09/02/sports/womens-professional-leagues.html
+
 **Trump Administration Launches Blitz to Find Elusive Voter Fraud Ahead of Midterms**\
 `The practice is exceedingly rare, but President Trump has fixated on rooting it out this year, claiming without evidence that tens of thousands of noncitizens are registered to vote.`\
 https://www.nytimes.com/2026/09/02/us/politics/trump-election-voter-fraud.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/02/world/middleeast/iran-nuclear-program-iaea.ht
 **Investors Still on Edge Over War, Debt and Inflation**\
 `U.S. and Iranian forces traded attacks again, pushing oil prices higher, stocks lower and making bond investors nervous.`\
 https://www.nytimes.com/2026/09/02/business/oil-bond-yields-iran.html
-
-**The Fight for the West Bank**\
-`We speak to a Palestinian American whose home has been encircled by extremist settlers.`\
-https://www.nytimes.com/2026/09/02/podcasts/the-daily/the-fight-for-the-west-bank.html
-
-**Russia’s New Push to Torment Kyiv, and a Whistle-Blower’s Warning on Mail-In Voting**\
-`Plus, hiking 2,190 miles at age 91.`\
-https://www.nytimes.com/2026/09/02/podcasts/the-headlines/russia-kyiv-strikes-whistleblower-warning-mail-voting.html
 
