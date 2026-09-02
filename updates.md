@@ -1,3 +1,19 @@
+**Justice Dept. Sides With OpenAI in New York Times Copyright Suit**\
+`The department argued in a court filing that OpenAI legally used articles by The New York Times to develop A.I., adding that national security depended on American tech dominance.`\
+https://www.nytimes.com/2026/09/02/technology/justice-department-openai-copyright-suit.html
+
+**As Trump Throws a Midterm Party, Some Vulnerable Republicans Send Regrets**\
+`Many members of Congress in the most competitive re-election races are skipping the chance to share a pep rally stage with President Trump.`\
+https://www.nytimes.com/2026/09/02/us/politics/trump-midterm-convention-republicans.html
+
+**Leading Medical Groups Release New Vaccine Guidelines**\
+`The organizations issued their own recommendations on flu, Covid-19 and R.S.V. immunizations, citing a lack of strong guidance from the federal government.`\
+https://www.nytimes.com/2026/09/02/well/covid-flu-vaccines-rsv.html
+
+**Lindsay Clancy Trial: Deadlocked Jury Deliberates for 5th Day**\
+`After roughly 28 hours of debate, jurors told the judge for a second time that they couldn’t reach unanimous agreement. He sent them back for one last try.`\
+https://www.nytimes.com/2026/09/02/us/lindsay-clancy-trial-judge-questions-jurors.html
+
 **La ‘casa milagrosa’ que sobrevivió a las inundaciones de Nepal**\
 `La gente acude a tomar fotos de la casa pintada de verde, la cual mantuvo a salvo a la familia Pyakurel mientras la zona a su alrededor era destruida por las violentas aguas de la inundación.`\
 https://www.nytimes.com/es/2026/09/02/espanol/mundo/nepal-inundaciones-casa-milagrosa.html

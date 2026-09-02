@@ -1,3 +1,7 @@
+**With More Women’s Sports Leagues Comes More Women’s Coaches**\
+`More and more are running teams, but they have not kept pace with the explosion of women’s sports.`\
+https://www.nytimes.com/2026/09/02/sports/female-coaches-women-leagues.html
+
 **Justice Dept. Sides With OpenAI in New York Times Copyright Suit**\
 `The department argued in a court filing that OpenAI legally used articles by The New York Times to develop A.I., adding that national security depended on American tech dominance.`\
 https://www.nytimes.com/2026/09/02/technology/justice-department-openai-copyright-suit.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/02/world/middleeast/us-iran-strikes.html
 **The Word Is Bond**\
 `We explain what is happening in the bond market.`\
 https://www.nytimes.com/2026/09/02/briefing/the-word-is-bond.html
-
-**Chevron Expansion in Venezuela Extends U.S. Influence Over Oil Riches**\
-`The U.S. energy giant, which stayed in the country after other Western companies left, will invest $7 billion in the country to more than double its production there.`\
-https://www.nytimes.com/2026/09/02/business/energy-environment/chevron-venezuela-oil-trump.html
 

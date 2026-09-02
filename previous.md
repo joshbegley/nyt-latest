@@ -1,3 +1,11 @@
+**Justice Dept. Sides With OpenAI in New York Times Copyright Suit**\
+`The department argued in a court filing that OpenAI legally used articles by The New York Times to develop A.I., adding that national security depended on American tech dominance.`\
+https://www.nytimes.com/2026/09/02/technology/justice-department-openai-copyright-suit.html
+
+**As Trump Throws a Midterm Party, Some Vulnerable Republicans Send Regrets**\
+`Many members of Congress in the most competitive re-election races are skipping the chance to share a pep rally stage with President Trump.`\
+https://www.nytimes.com/2026/09/02/us/politics/trump-midterm-convention-republicans.html
+
 **La ‘casa milagrosa’ que sobrevivió a las inundaciones de Nepal**\
 `La gente acude a tomar fotos de la casa pintada de verde, la cual mantuvo a salvo a la familia Pyakurel mientras la zona a su alrededor era destruida por las violentas aguas de la inundación.`\
 https://www.nytimes.com/es/2026/09/02/espanol/mundo/nepal-inundaciones-casa-milagrosa.html
@@ -50,8 +58,8 @@ https://www.nytimes.com/2026/09/02/opinion/john-galliano-met-museum.html
 `La obra de arte “Blue”, añadida al campus en 2019, fue seleccionada para su eliminación después de que el presidente Trump tomara control del centro.`\
 https://www.nytimes.com/es/2026/09/02/espanol/cultura/trump-centro-kennedy-escultura.html
 
-**A Guide to Covid, Flu and R.S.V. Vaccines This Fall**\
-`Major medical groups released new recommendations on who should get the shots, citing a lack of strong guidance from the federal government.`\
+**Leading Medical Groups Release New Vaccine Guidelines**\
+`The organizations issued their own recommendations on flu, Covid-19 and R.S.V. immunizations, citing a lack of strong guidance from the federal government.`\
 https://www.nytimes.com/2026/09/02/well/covid-flu-vaccines-rsv.html
 
 **What Is ‘Narrative Art?’ The Lucas Museum Finally Shows Us Its Vision.**\
@@ -155,7 +163,7 @@ https://www.nytimes.com/2026/09/02/us/politics/trump-iran-strait-of-hormuz.html
 https://www.nytimes.com/video/world/asia/100000011127677/miracle-green-house-nepal-floods.html
 
 **Lindsay Clancy Trial: Deadlocked Jury Deliberates for 5th Day**\
-`Her lawyer said she had been trying to get an image of the defendant. Prosecutors charged her with intimidation, as jury deliberations entered their fifth day.`\
+`After roughly 28 hours of debate, jurors told the judge for a second time that they couldn’t reach unanimous agreement. He sent them back for one last try.`\
 https://www.nytimes.com/2026/09/02/us/lindsay-clancy-trial-judge-questions-jurors.html
 
 **Lindsay Clancy’s Trial Prompts Patients and Doctors to Rethink Postpartum Care**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/02/briefing/the-word-is-bond.html
 **Chevron Expansion in Venezuela Extends U.S. Influence Over Oil Riches**\
 `The U.S. energy giant, which stayed in the country after other Western companies left, will invest $7 billion in the country to more than double its production there.`\
 https://www.nytimes.com/2026/09/02/business/energy-environment/chevron-venezuela-oil-trump.html
-
-**Status of Iran’s Nuclear Program Is Unclear, U.N. Watchdog Says**\
-`As the war sputters on, an internal report from the International Atomic Energy Agency said Iran’s refusal to grant access to its inspectors was an urgent concern.`\
-https://www.nytimes.com/2026/09/02/world/middleeast/iran-nuclear-program-iaea.html
-
-**Investors Still on Edge Over War, Debt and Inflation**\
-`U.S. and Iranian forces traded attacks again, pushing oil prices higher, stocks lower and making bond investors nervous.`\
-https://www.nytimes.com/2026/09/02/business/oil-bond-yields-iran.html
 
