@@ -1,3 +1,11 @@
+**Kennedy Center Will Remove Outdoor ‘Blue’ Sculpture**\
+`The towering artwork had been targeted for elimination after President Trump’s takeover of the center last year.`\
+https://www.nytimes.com/2026/09/01/arts/design/kennedy-center-sculpture-removal-blue.html
+
+**Mike Minogue Wins G.O.P. Nomination for Massachusetts Governor**\
+`Mr. Minogue, who for years ran a medical device company, will face Gov. Maura Healey, a Democrat seeking a second term, in the November election.`\
+https://www.nytimes.com/2026/09/01/us/elections/massachusetts-republican-govenor-primary.html
+
 **Massachusetts Gov. Maura Healey Wins Democratic Nomination**\
 `Maura Healey, a former state attorney general seeking a second term, has been an outspoken critic of President Trump.`\
 https://www.nytimes.com/2026/09/01/us/elections/democrat-maura-healy-massachusetts-governor.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/world/europe/100000011125816/protest-fertilizer-re
 **China y EE. UU. muestran formas enfrentadas de poder mundial**\
 `Mientras Xi Jinping se reunía con los líderes de Rusia e Irán, Europa desafió al gobierno de Trump en el G20, lo que ofreció una visión en pantalla dividida de un mundo cambiante.`\
 https://www.nytimes.com/es/2026/09/01/espanol/mundo/estados-unidos-china-g20-poder.html
-
-**House Votes to Avert Government Shutdown Before Midterm Elections**\
-`Lawmakers sent the legislation to President Trump in an overwhelming vote, reflecting bipartisan enthusiasm around punting a messy spending fight until after the midterms.`\
-https://www.nytimes.com/2026/09/01/us/politics/house-vote-government-shutdown.html
-
-**A Daisy Chain Fields Soundtrack**\
-`Hear tracks performed by Chappell Roan, Bikini Kill, Doechii and, of course, Olivia Rodrigo.`\
-https://www.nytimes.com/2026/09/01/arts/music/a-daisy-chain-fields-soundtrack.html
 

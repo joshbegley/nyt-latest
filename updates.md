@@ -1,3 +1,7 @@
+**Massachusetts Gov. Maura Healey Wins Democratic Nomination**\
+`Maura Healey, a former state attorney general seeking a second term, has been an outspoken critic of President Trump.`\
+https://www.nytimes.com/2026/09/01/us/elections/democrat-maura-healy-massachusetts-governor.html
+
 **Senator Ed Markey, 80, Turns Back Younger Challenger in Massachusetts**\
 `The oldest senator in Massachusetts history used a progressive message to beat Representative Seth Moulton, 47, defying calls for generational change.`\
 https://www.nytimes.com/2026/09/01/us/politics/massachusetts-senate-democratic-primary.html
