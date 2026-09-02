@@ -1,3 +1,11 @@
+**Uber and Wayve to Start Testing Robotaxis in London**\
+`Uber and the British start-up Wayve are the latest to start testing autonomous cars in one of the world’s largest markets for ride-hailing services.`\
+https://www.nytimes.com/2026/09/02/business/uber-wayve-london.html
+
+**Trump Ended My American Dream**\
+`America has closed its doors to too many students and entrepreneurs.`\
+https://www.nytimes.com/2026/09/02/opinion/american-dream-business-immigration.html
+
 **In the Midterms, Will the Nepo-Baby Attack Work?**\
 `A New Hampshire senator’s daughter is running for office, and finds her name being used against her.`\
 https://www.nytimes.com/2026/09/02/us/politics/midterms-nepo-baby-shaheen.html
@@ -6,7 +14,7 @@ https://www.nytimes.com/2026/09/02/us/politics/midterms-nepo-baby-shaheen.html
 `The Trump administration wants to bar Medicaid and the Children’s Health Insurance Program from paying for gender-transition medication and surgery for transgender adolescents.`\
 https://www.nytimes.com/2026/09/02/us/politics/youth-gender-transition-lawsuit-federal-money.html
 
-**2 Police Officers Among the Injured in Minneapolis Shooting**\
+**2 Police Officers Among Multiple People Injured in Minneapolis Shooting**\
 `Their conditions were not immediately known. The authorities urged people to avoid the area of downtown where the shooting occurred.`\
 https://www.nytimes.com/2026/09/02/us/shooting-minneapolis-downtown.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/02/arts/design/george-lucas-museum-narrative-art
 **In Danny Boyle’s ‘Ink,’ Tabloid Scandals Sell and the Public Is Buying**\
 `The film, which opened the Venice Film Festival on Wednesday, portrays the rise of the British tabloid The Sun in Boyle’s trademark rollicking style.`\
 https://www.nytimes.com/2026/09/02/movies/danny-boyle-ink-venice-film-festival.html
-
-**Tell Us How You Observe Yom Kippur**\
-`Yom Kippur, which starts this year on Sept. 20, is one of the most widely observed Jewish holidays. If you are Jewish, we want to know how you experience it.`\
-https://www.nytimes.com/2026/09/02/us/observe-yom-kippur.html
-
-**Ariana Grande Steps Back From Spotlight After Tour Ends: What to Know**\
-`As the singer wrapped up her Eternal Sunshine world tour this week, she was set to take a break after a whirlwind couple of years.`\
-https://www.nytimes.com/2026/09/02/style/ariana-grande-tour-jonathan-bailey.html
 

@@ -1,3 +1,15 @@
+**Uber and Wayve to Start Testing Robotaxis in London**\
+`Uber and the British start-up Wayve are the latest to start testing autonomous cars in one of the world’s largest markets for ride-hailing services.`\
+https://www.nytimes.com/2026/09/02/business/uber-wayve-london.html
+
+**Trump Ended My American Dream**\
+`America has closed its doors to too many students and entrepreneurs.`\
+https://www.nytimes.com/2026/09/02/opinion/american-dream-business-immigration.html
+
+**2 Police Officers Among Multiple People Injured in Minneapolis Shooting**\
+`Their conditions were not immediately known. The authorities urged people to avoid the area of downtown where the shooting occurred.`\
+https://www.nytimes.com/2026/09/02/us/shooting-minneapolis-downtown.html
+
 **In the Midterms, Will the Nepo-Baby Attack Work?**\
 `A New Hampshire senator’s daughter is running for office, and finds her name being used against her.`\
 https://www.nytimes.com/2026/09/02/us/politics/midterms-nepo-baby-shaheen.html
