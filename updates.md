@@ -1,3 +1,11 @@
+**Paul S. Russell, an Innovator in Transplant Medicine, Dies at 101**\
+`In his over 70 years at Massachusetts General Hospital, he led the way in turning new findings in medical science into successes in clinical practice.`\
+https://www.nytimes.com/2026/09/02/obituaries/paul-russell-dead.html
+
+**Trump Administration Launches Hunt For Noncitizen Voter Fraud Before Midterms**\
+`Election fraud is exceedingly rare, but President Trump has fixated on rooting it out this year, claiming without evidence that tens of thousands of noncitizens are registered to vote.`\
+https://www.nytimes.com/2026/09/02/us/politics/trump-election-voter-fraud.html
+
 **Who Owns Reggaeton’s Beat? A Judge Throws Out One Claim.**\
 `A copyright suit against stars including Bad Bunny and Daddy Yankee came from the producers behind a trio of songs foundational to the genre.`\
 https://www.nytimes.com/2026/09/02/arts/music/reggaeton-lawsuit-bad-bunny.html

@@ -1,3 +1,7 @@
+**Paul S. Russell, an Innovator in Transplant Medicine, Dies at 101**\
+`In his over 70 years at Massachusetts General Hospital, he led the way in turning new findings in medical science into successes in clinical practice.`\
+https://www.nytimes.com/2026/09/02/obituaries/paul-russell-dead.html
+
 **Who Owns Reggaeton’s Beat? A Judge Throws Out One Claim.**\
 `A copyright suit against stars including Bad Bunny and Daddy Yankee came from the producers behind a trio of songs foundational to the genre.`\
 https://www.nytimes.com/2026/09/02/arts/music/reggaeton-lawsuit-bad-bunny.html
@@ -55,7 +59,7 @@ https://www.nytimes.com/es/2026/09/02/espanol/mundo/nepal-inundaciones-casa-mila
 https://www.nytimes.com/2026/09/02/sports/womens-professional-leagues.html
 
 **Trump Administration Launches Hunt For Noncitizen Voter Fraud Before Midterms**\
-`Voter fraud is exceedingly rare, but President Trump has fixated on rooting it out this year, claiming without evidence that tens of thousands of noncitizens are registered to vote.`\
+`Election fraud is exceedingly rare, but President Trump has fixated on rooting it out this year, claiming without evidence that tens of thousands of noncitizens are registered to vote.`\
 https://www.nytimes.com/2026/09/02/us/politics/trump-election-voter-fraud.html
 
 **The Local: How tariffs will affect your shopping**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/02/climate/pollution-soot-glaciers-melting-himal
 **Trump’s Speed on the White House Ballroom Threatens to Outpace the Courts**\
 `In his breakneck construction of a grand ballroom and in many other initiatives, critics say, the president has tried to outrun judicial review.`\
 https://www.nytimes.com/2026/09/02/us/politics/trump-courts-ballroom.html
-
-**Trump Returns to a Familiar Playbook as the War With Iran Flares Up Again**\
-`The United States seems increasingly bogged down in Iran after six months of conflict, despite President Trump’s declarations of military dominance.`\
-https://www.nytimes.com/2026/09/02/us/politics/trump-iran-strait-of-hormuz.html
 
