@@ -1,3 +1,7 @@
+**El padre de la atacante de Times Square pensó que su hija ya había superado lo peor**\
+`Pamela Cisneros murió a manos de la policía en Times Square luego de apuñalar a dos personas, una de ellas mortalmente. Su padre dijo que había dejado de ir con él a sus citas de salud mental.`\
+https://www.nytimes.com/es/2026/09/02/espanol/estados-unidos/times-square-sospechosa-quien-es.html
+
 **Cassandra Wilson, Star Jazz Singer, Dies at 70**\
 `With a low and smoky voice, she conjured the blues tradition of her native Mississippi in both her own songs and in covers.`\
 https://www.nytimes.com/2026/09/02/arts/music/cassandra-wilson-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/02/briefing/today-in-short.html
 **A Technique for Always-Crispy Fish**\
 `Ali Slagle’s crispy salmon with lentil salsa verde is satisfying, surprising and speedy.`\
 https://www.nytimes.com/2026/09/02/dining/a-technique-for-always-crispy-fish.html
-
-**Wondering How Nuts Trump’s Tariffs Are? Consider Aluminum.**\
-`Canada is better at making aluminum than we are. Let’s just import it and make something else.`\
-https://www.nytimes.com/2026/09/02/opinion/trump-aluminum-tariffs-canada.html
 

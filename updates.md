@@ -1,3 +1,19 @@
+**Cassandra Wilson, Star Jazz Singer, Dies at 70**\
+`With a low and smoky voice, she conjured the blues tradition of her native Mississippi in both her own songs and in covers.`\
+https://www.nytimes.com/2026/09/02/arts/music/cassandra-wilson-dead.html
+
+**Man Is Rescued From Inside Garbage Truck in San Francisco**\
+`The city’s Fire Department said it received a call just after 4 a.m. on Wednesday reporting that a person was stuck in the vehicle after it collected trash from a dumpster.`\
+https://www.nytimes.com/2026/09/02/us/man-trapped-garbage-truck-san-francisco.html
+
+**Man Rescued From Inside Garbage Truck**\
+`Firefighters in San Francisco on Wednesday morning rescued a man who had become trapped inside a garbage truck, the authorities said.`\
+https://www.nytimes.com/video/us/100000011129087/man-rescued-from-inside-garbage-truck.html
+
+**El USS Lincoln llega a Tailandia en su camino de regreso a casa**\
+`La tripulación del portaaviones tiene permiso de bajar unos días a tierra para despejar la mente tras meses de penurias.`\
+https://www.nytimes.com/es/2026/09/02/espanol/mundo/uss-abraham-lincoln-portaaviones-tailandia.html
+
 **A Guide to Covid, Flu and R.S.V. Vaccines This Fall**\
 `Leading health organizations joined forces to issue the recommendations, citing a lack of strong guidance from the federal government.`\
 https://www.nytimes.com/2026/09/02/well/covid-flu-vaccines-rsv.html
