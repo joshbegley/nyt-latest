@@ -1,3 +1,7 @@
+**Markets Waver as Investors Assess War, Debt and Inflation**\
+`U.S. and Iranian forces traded attacks again, pushing oil prices higher as bond yields remained elevated.`\
+https://www.nytimes.com/2026/09/02/business/oil-bond-yields-iran.html
+
 **The Fight for the West Bank**\
 `We speak to a Palestinian American whose home has been encircled by extremist settlers.`\
 https://www.nytimes.com/2026/09/02/podcasts/the-daily/the-fight-for-the-west-bank.html
