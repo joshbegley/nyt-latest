@@ -1,3 +1,11 @@
+**Trump’s Fantasy-Reality Problem Is Deepening**\
+`The president’s unusual relationship to the objective world leaves him dangerously unable to pivot, shift gears or change course.`\
+https://www.nytimes.com/2026/09/02/opinion/trump-fantasty-reality-politics.html
+
+**A Hurricane Will Not Hit California. Here’s What to Expect Instead.**\
+`Tropical Storm Marie has caused a frenzy in Southern California this week. Forecasters said it will almost certainly stay far offshore.`\
+https://www.nytimes.com/2026/09/02/weather/hurricane-marie-tropical-storm-la-california.html
+
 **Trump Administration Hunts for Elusive Noncitizen Voters**\
 `Also, George Lucas’s legacy project is finally ready for its close-up. Here’s the latest at the end of Wednesday.`\
 https://www.nytimes.com/2026/09/02/briefing/dhs-voter-fraud-google-monopoly.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/world/middleeast/100000011127718/iran-war-us-missi
 **Uber Lays Off 10% of Employees in Sweeping Reorganization**\
 `The layoffs affect about 3,300 workers, as Chief Executive Dara Khosrowshahi bets on a “leaner organization.”`\
 https://www.nytimes.com/2026/09/02/technology/uber-layoffs.html
-
-**My Teenage Daughter’s Friend Has a Drinking Problem. Should I Tell Her Parents?**\
-`If it were my daughter, I would want to know. But I worry about blowing up this girl’s home life.`\
-https://www.nytimes.com/2026/09/02/magazine/teenage-daughter-friend-drinking-ethics.html
-
-**Patagonia Sues Trump Over Reduction of Bears Ears National Monument in Utah**\
-`The outdoor apparel maker joined environmental and Native American groups in challenging President Trump’s reduction of Bears Ears National Monument.`\
-https://www.nytimes.com/2026/09/02/climate/patagonia-bears-ears-lawsuit-trump.html
 
