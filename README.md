@@ -1,3 +1,11 @@
+**Trump Returns to a Familiar Playbook as the War With Iran Flares Up Again**\
+`President Trump called on Iranians to “rise up and fight” on Tuesday as the United States seems increasingly bogged down after six months of conflict.`\
+https://www.nytimes.com/2026/09/02/us/politics/trump-iran-strait-of-hormuz.html
+
+**The ‘Miracle House’ That Survived Nepal’s Floods**\
+`A building in Nepal has been nicknamed “the miracle green house” because it remained standing during last week’s disastrous flooding and kept its residents safe.`\
+https://www.nytimes.com/video/world/asia/100000011127677/miracle-green-house-nepal-floods.html
+
 **Judge in Clancy Case Questions Jurors Individually**\
 `The reason for the 10-minute sidebar at the start of court on Wednesday was unclear. A woman was charged the previous day with intimidating a participant in the trial.`\
 https://www.nytimes.com/2026/09/02/us/lindsay-clancy-trial-judge-questions-jurors.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/09/02/magazine/iv-drip-vitamin-wellness.html
 **This Fall, Earth-Toned Men’s Wear Steps Into the Light**\
 `Soft tailoring and easy outerwear that’s warmed up with shades of slate, rust and ocher.`\
 https://www.nytimes.com/2026/09/02/t-magazine/neutral-mens-fall-fashion.html
-
-**Summer Box Office Lessons From ‘The Odyssey,’ ‘Obsession’ and More Hits**\
-`Studios may think that stories drew moviegoers, but it was the people behind hits like “The Odyssey” and “Obsession” that drew patrons again and again.`\
-https://www.nytimes.com/2026/09/02/movies/summer-box-office-the-odyssey-obsession.html
-
-**This Is the Best Book Our Fantasy Columnist Has Read All Year**\
-`She was so immersed in “The Unmagical Life of Briar Jones” that she forgot to eat dinner.`\
-https://www.nytimes.com/2026/09/02/books/review/new-fantasy-books.html
 
