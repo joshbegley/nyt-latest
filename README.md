@@ -1,3 +1,7 @@
+**Trump to Nominate Hung Cao as Navy Secretary**\
+`The announcement came amid a purge of leadership at the Pentagon and a stalling war effort against Iran.`\
+https://www.nytimes.com/2026/09/01/us/politics/trump-navy-secretary-hung-cao.html
+
 **Honduran Court Clears Ex-President Juan Orlando Hernández**\
 `President Trump’s decision set Juan Orlando Hernández free in December. On Tuesday, a court dismissed money laundering and fraud charges against him, effectively making him a free man.`\
 https://www.nytimes.com/2026/09/01/world/americas/honduran-court-clears-former-president-pardoned-by-trump.html
@@ -19,7 +23,7 @@ https://www.nytimes.com/2026/09/01/us/elections/democrat-maura-healy-massachuset
 https://www.nytimes.com/2026/09/01/us/politics/massachusetts-senate-democratic-primary.html
 
 **Couple in Florida Kept 4 Children Inside Truck for Years, Prosecutors Say**\
-`Two boys and two girls were kept in a semi truck cab for six years, the authorities said, and the two girls, both under 11 years old, were repeatedly sexual abused.`\
+`Two boys and two girls were kept in a semi truck cab for six years, the authorities said, and the two girls, both under 11 years old, were repeatedly sexually abused.`\
 https://www.nytimes.com/2026/09/01/us/florida-child-abuse-charges-truck-captive.html
 
 **Judge Lets Case Against Tyler Robinson, Charlie Kirk Shooting Suspect, Go to Trial**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/01/t-magazine/la-mama-bag-tote.html
 **Nepal’s Economy Has Few Ways to Absorb the Cost of Flood Damage**\
 `The country’s government estimates that the recent catastrophic floods caused $5 billion in damage. That’s one-tenth of Nepal’s entire economy.`\
 https://www.nytimes.com/2026/09/01/world/asia/nepal-floods-economy.html
-
-**Tractor Protest in Copenhagen Over Fertilizer Restrictions**\
-`Farmers drove tractors into Copenhagen to protest stricter limits on fertilizer use. They said these restrictions could cut yields and make their farms unprofitable.`\
-https://www.nytimes.com/video/world/europe/100000011125816/protest-fertilizer-restrictions-copenhagen-denmark.html
 
