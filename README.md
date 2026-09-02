@@ -1,3 +1,7 @@
+**Noise and Motion Monitors in Their Homes? These Tenants Say No.**\
+`The public housing authority in Concord, N.H., installed monitoring devices in 300 homes. Tenants are now suing to remove the Minut sensors.`\
+https://www.nytimes.com/2026/09/02/technology/noise-monitors-public-housing.html
+
 **With More Women’s Sports Leagues Comes More Women’s Coaches**\
 `More and more are running teams, but they have not kept pace with the explosion of women’s sports.`\
 https://www.nytimes.com/2026/09/02/sports/female-coaches-women-leagues.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/02/world/asia/china-egypt-xi-jinping-el-sisi.htm
 **U.S. and Iran Survey the Damage After a Night of Intense Strikes**\
 `The American military said its barrage was retaliation against recent attacks on U.S. forces and marine traffic. Iranian officials said a wedding was hit and civilians killed.`\
 https://www.nytimes.com/2026/09/02/world/middleeast/us-iran-strikes.html
-
-**The Word Is Bond**\
-`We explain what is happening in the bond market.`\
-https://www.nytimes.com/2026/09/02/briefing/the-word-is-bond.html
 
