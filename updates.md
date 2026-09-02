@@ -1,3 +1,11 @@
+**Judge Blocks Trump’s Second Try to Restrict Birthright Citizenship**\
+`The ruling raised concerns that babies already defined as citizens by the Supreme Court could have their citizenship revoked under an order the president signed in August.`\
+https://www.nytimes.com/2026/09/02/us/politics/judge-trump-birthright-citizenship.html
+
+**Jonathan Franzen’s “The Corrections” Is 25 Years Old. Its First Paragraph Still Feels New.**\
+`Jonathan Franzen’s 2001 novel was celebrated for its canny portrayal of American life. It’s also a remarkable act of literary creation.`\
+https://www.nytimes.com/interactive/2026/09/02/books/jonathan-franzen-the-corrections.html
+
 **2 Police Officers Among 7 Shot in Minneapolis**\
 `A hospital official said one person died, but the victim’s identity was unknown. Residents were warned to stay away from the downtown apartment building where the violence erupted.`\
 https://www.nytimes.com/2026/09/02/us/shooting-minneapolis-downtown.html
