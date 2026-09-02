@@ -1,3 +1,7 @@
+**Se acerca un nuevo orden mundial, y no estamos preparados**\
+`Debemos ser honestos sobre la gravedad del momento que estamos viviendo.`\
+https://www.nytimes.com/es/2026/09/02/espanol/opinion/trump-estados-unidos-nuevo-orden-mundial.html
+
 **U.N. Says World Will Miss Its 1.5 Degree Climate Target**\
 `It proposed a new goal of limiting the “overshoot” of rising temperatures and eventually figuring out how to undo the temperature gains, a highly uncertain path.`\
 https://www.nytimes.com/2026/09/02/climate/united-nations-climate-target-overshoot.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/01/dining/restaurant-review-cleo-nyc.html
 **Introducing Our New, Bite-Size Daily Lesson Plans**\
 `Every school day you’ll find a new lesson idea, that can be used as a quick warm-up or extended over a full class period. Over each week, we’ll target ELA, social studies, STEM, the arts and media literacy.`\
 https://www.nytimes.com/2026/09/01/learning/introducing-our-new-bite-size-daily-lesson-plans.html
-
-**An Ethical Dilemma on Parenting: A Life Skills Lesson Plan**\
-`What advice would you give this person? Why?`\
-https://www.nytimes.com/2026/09/01/learning/an-ethical-dilemma-about-parenting.html
 
