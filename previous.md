@@ -1,3 +1,11 @@
+**Judge in Clancy Case Questions Jurors Individually**\
+`The reason for the 10-minute sidebar at the start of court on Wednesday was unclear. A woman was charged the previous day with intimidating a participant in the trial.`\
+https://www.nytimes.com/2026/09/02/us/lindsay-clancy-trial-judge-questions-jurors.html
+
+**Patients and Doctors, Shaken by the Clancy Trial, Seek Extra Help**\
+`Requests for advice from women with maternal mental health conditions, as well as health providers who care for them, have surged.`\
+https://www.nytimes.com/2026/09/02/well/doctors-patients-postpartum-mental-health-clancy-trial.html
+
 **King Charles III to View Bayeux Tapestry at the British Museum**\
 `The monarch was invited to see the historic embroidery before a major British Museum exhibition, almost 40 years after seeing it in France with Diana.`\
 https://www.nytimes.com/2026/09/02/arts/design/bayeux-tapestry-king-charles.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/09/02/movies/summer-box-office-the-odyssey-obsessio
 **This Is the Best Book Our Fantasy Columnist Has Read All Year**\
 `She was so immersed in “The Unmagical Life of Briar Jones” that she forgot to eat dinner.`\
 https://www.nytimes.com/2026/09/02/books/review/new-fantasy-books.html
-
-**Leanne Morgan, the 60-Year-Old Breakout Comedy Star**\
-`The homey Southern comic is a red-state phenomenon with blue-state celebrity, big tours, a Netflix series and Judd Apatow’s adoration. How did she get here?`\
-https://www.nytimes.com/2026/09/02/style/maybe-leanne-morgan-can-heal-america.html
-
-**Book Review: ‘Profits, Prophets, Coaches, and Kings,’ by Jared Diamond**\
-`In “Profits, Prophets, Coaches, and Kings,” Jared Diamond considers the impact leaders might have had on the course of their civilizations.`\
-https://www.nytimes.com/2026/09/02/books/review/profits-prophets-coaches-and-kings-jared-diamond.html
 

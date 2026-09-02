@@ -1,3 +1,11 @@
+**Judge in Clancy Case Questions Jurors Individually**\
+`The reason for the 10-minute sidebar at the start of court on Wednesday was unclear. A woman was charged the previous day with intimidating a participant in the trial.`\
+https://www.nytimes.com/2026/09/02/us/lindsay-clancy-trial-judge-questions-jurors.html
+
+**Patients and Doctors, Shaken by the Clancy Trial, Seek Extra Help**\
+`Requests for advice from women with maternal mental health conditions, as well as health providers who care for them, have surged.`\
+https://www.nytimes.com/2026/09/02/well/doctors-patients-postpartum-mental-health-clancy-trial.html
+
 **King Charles III to View Bayeux Tapestry at the British Museum**\
 `The monarch was invited to see the historic embroidery before a major British Museum exhibition, almost 40 years after seeing it in France with Diana.`\
 https://www.nytimes.com/2026/09/02/arts/design/bayeux-tapestry-king-charles.html
