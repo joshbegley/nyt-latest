@@ -1,6 +1,6 @@
-**Patagonia Sues Trump Over Utah National Monument**\
+**Patagonia Sues Trump Over Reduction of Bears Ears National Monument in Utah**\
 `The outdoor apparel maker joined environmental and Native American groups in challenging President Trump’s reduction of Bears Ears National Monument.`\
-https://www.nytimes.com/2026/09/02/climate/patagonia-bears-ears-lawsuit.html
+https://www.nytimes.com/2026/09/02/climate/patagonia-bears-ears-lawsuit-trump.html
 
 **La expansión de Chevron en Venezuela amplía la influencia de EE. UU. en el país**\
 `El gigante energético estadounidense, que permaneció en el país después de que otras empresas occidentales se marcharan, invertirá 7 millardos de dólares en Venezuela para aumentar a más del doble su producción allí.`\
@@ -62,7 +62,7 @@ https://www.nytimes.com/2026/09/02/us/politics/trump-iran-strait-of-hormuz.html
 `A building in Nepal has been nicknamed “the miracle green house” because it remained standing during last week’s disastrous flooding and kept its residents safe.`\
 https://www.nytimes.com/video/world/asia/100000011127677/miracle-green-house-nepal-floods.html
 
-**Lindsay Clancy Murder Case: Woman Charged After Filming at the Courthouse**\
+**Lindsay Clancy Trial: Deadlocked Jury Deliberates for 5th Day**\
 `Her lawyer said she had been trying to get an image of the defendant. Prosecutors charged her with intimidation, as jury deliberations entered their fifth day.`\
 https://www.nytimes.com/2026/09/02/us/lindsay-clancy-trial-judge-questions-jurors.html
 

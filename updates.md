@@ -1,3 +1,23 @@
+**Patagonia Sues Trump Over Utah National Monument**\
+`The outdoor apparel maker joined environmental and Native American groups in challenging President Trump’s reduction of Bears Ears National Monument.`\
+https://www.nytimes.com/2026/09/02/climate/patagonia-bears-ears-lawsuit.html
+
+**La expansión de Chevron en Venezuela amplía la influencia de EE. UU. en el país**\
+`El gigante energético estadounidense, que permaneció en el país después de que otras empresas occidentales se marcharan, invertirá 7 millardos de dólares en Venezuela para aumentar a más del doble su producción allí.`\
+https://www.nytimes.com/es/2026/09/02/espanol/negocios/chevron-venezuela-petroleo-trump.html
+
+**Wondering How Nuts Trump’s Tariffs Are? Consider Aluminum.**\
+`Canada is better at making aluminum than we are. Let’s just import it and make something else.`\
+https://www.nytimes.com/2026/09/02/opinion/trump-aluminum-tariffs-canada.html
+
+**In a Big Win, Google Won’t Have to Break Up Its Ad Tech Business, Court Rules**\
+`In a long-awaited decision, the judge said Google must make some changes to its ad tech business to handle antitrust issues, but did not disclose the measures publicly.`\
+https://www.nytimes.com/2026/09/02/technology/google-ad-tech-remedies.html
+
+**Lindsay Clancy’s Trial Prompts Patients and Doctors to Rethink Postpartum Care**\
+`Requests for advice from women with maternal mental health conditions, as well as health providers who care for them, have surged.`\
+https://www.nytimes.com/2026/09/02/well/doctors-patients-postpartum-mental-health-clancy-trial.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/business/100000011128330/Biz-Uber-London-Video.html
