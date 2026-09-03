@@ -1,3 +1,7 @@
+**Plans Announced to Break Ground on Trump’s Triumphal Arch Before Final Approval**\
+`Doug Burgum, the interior secretary, announced plans to start work on the site of the 250-foot-tall triumphal arch. Final approval of the project is still pending.`\
+https://www.nytimes.com/2026/09/03/us/politics/trump-triumphal-arch-plans-approval.html
+
 **In a First, a Pig Kidney Kept a Patient Alive Until He Got a Human One**\
 `Tim Andrews was the first patient to receive a genetically modified pig kidney as a “bridge” to a human organ transplant.`\
 https://www.nytimes.com/2026/09/03/well/pig-kidney-bridge-transplant.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/03/us/burning-man-gen-z-millennials-attendance.h
 **Amelia Dimoldenberg Closes ‘Chicken Shop Date’**\
 `The popular online blind date show, set at a fried chicken shop in London, became a celebrity magnet in recent months.`\
 https://www.nytimes.com/2026/09/03/style/amelia-dimoldenberg-chicken-shop-date.html
-
-**Why a Doctor Told Gloria Steinem: ‘You Must Promise Me Two Things’**\
-`Gloria Steinem got to be who she was because of a pre-Roe abortion.`\
-https://www.nytimes.com/2026/09/03/opinion/gloria-steinem-feminism-abortion.html
 
