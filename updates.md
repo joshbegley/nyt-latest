@@ -1,3 +1,7 @@
+**A Hurricane Will Not Hit California. Here’s What to Expect Instead.**\
+`Marie has caused a frenzy in Southern California this week. Forecasters said it will almost certainly stay far offshore.`\
+https://www.nytimes.com/2026/09/02/weather/hurricane-marie-tropical-storm-la-california.html
+
 **Who Is Ahead in Texas's 35th Congressional District?**\
 `Track the latest polls in Texas's 35th Congressional District.`\
 https://www.nytimes.com/interactive/polls/texas-us-house-35-polls-2026.html
