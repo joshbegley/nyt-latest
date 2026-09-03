@@ -1,3 +1,7 @@
+**El-Sayed Wants to Mend Ties With Jewish Democrats, but Some Are Still Not Impressed**\
+`Lingering concerns about the Senate nominee in Michigan could make it harder for him to assemble a winning coalition.`\
+https://www.nytimes.com/2026/09/02/us/politics/el-sayed-michigan-jewish-democrats.html
+
 **2 People Are Killed and 2 Officers Are Hurt in Minneapolis Shooting**\
 `The authorities said the suspect was also dead. Residents were warned to stay away from the downtown apartment building where the violence erupted.`\
 https://www.nytimes.com/2026/09/02/us/shooting-minneapolis-downtown.html
