@@ -83,7 +83,7 @@ https://www.nytimes.com/2026/09/03/us/texas-killing-fields-cold-case-manslaughte
 https://www.nytimes.com/2026/09/03/us/politics/trump-supreme-court-mail-ballots.html
 
 **Volkswagen Plans to Cut 50,000 Jobs**\
-`Facing growing competition from China and rapidly advancing technology, the German auto giant said Thursday its board had approved a “comprehensive” overhaul.`\
+`Facing growing competition from China and rapidly advancing technology, the German auto giant said its board had approved a “comprehensive” overhaul.`\
 https://www.nytimes.com/2026/09/03/business/volkswagen-job-cuts.html
 
 **Dutch Central Bank Cuts Gold Reserves in U.S., Citing ‘Geopolitical Unrest’**\
@@ -194,7 +194,7 @@ https://www.nytimes.com/2026/09/03/us/gloria-steinem-death-hillary-clinton-megha
 `In a never-before-seen interview with The New York Times, Gloria Steinem, the feminist icon, discusses marriage, her career and why she got an abortion in her twenties.`\
 https://www.nytimes.com/video/obituaries/100000011131297/gloria-steinem-obituary-last-word.html
 
-**In Utah, a Latter-day Saints Temple Opens Its Doors to Nonmembers**\
-`A public open house in 2027 will grant nonmembers of the Latter-day Saints rare access to the interior of the iconic Salt Lake Temple.`\
-https://www.nytimes.com/2026/09/03/travel/salt-lake-latter-day-saints-mormon-temple.html
+**Trump Administration Live Updates: Vance Says ‘I Don’t Know’ if Iran War Will Be Over by Midterms**\
+`(No description)`\
+https://www.nytimes.com/live/2026/09/03/us/trump-news
 

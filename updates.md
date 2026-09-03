@@ -1,3 +1,11 @@
+**Volkswagen Plans to Cut 50,000 Jobs**\
+`Facing growing competition from China and rapidly advancing technology, the German auto giant said its board had approved a “comprehensive” overhaul.`\
+https://www.nytimes.com/2026/09/03/business/volkswagen-job-cuts.html
+
+**Trump Administration Live Updates: Vance Says ‘I Don’t Know’ if Iran War Will Be Over by Midterms**\
+`(No description)`\
+https://www.nytimes.com/live/2026/09/03/us/trump-news
+
 **Rogers Stadium in Toronto Is Severely Damaged in Thunderstorm**\
 `The music venue, which opened in 2025, was built specifically for large concerts. The fate of its next show, featuring AC/DC, is unclear.`\
 https://www.nytimes.com/2026/09/03/world/canada/toronto-rogers-stadium-thunderstorm-damage.html
