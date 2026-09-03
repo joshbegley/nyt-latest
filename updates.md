@@ -1,3 +1,15 @@
+**Read the Whistle-Blower’s Complaint Following ICE’s Hiring Surge**\
+`The New York Times obtained this whistle-blower complaint via a public records request to the Office of Inspector General in the Department of Homeland Security.`\
+https://www.nytimes.com/interactive/2026/09/03/us/ice-recruits-whistleblower-complaint.html
+
+**Pedro Sánchez cuestiona el control fronterizo de Marruecos ante la oleada de migrantes en Ceuta**\
+`El presidente del gobierno de España dijo que el papel de las autoridades marroquíes en momentos clave debía ser ‘aclarado’. Pero rechazó cualquier sugerencia de que hubieran planeado la crisis.`\
+https://www.nytimes.com/es/2026/09/03/espanol/mundo/espana-marruecos-ceuta-sanchez.html
+
+**Hillary Clinton, Meghan Markle, Lena Dunham and Others Pay Tribute to Gloria Steinem**\
+`After Ms. Steinem’s death at 92, celebrities and politicians reflected on her decades of activism for women’s rights and equality.`\
+https://www.nytimes.com/2026/09/03/us/gloria-steinem-death-hillary-clinton-meghan-markle.html
+
 **Judge Presses for Clarity in Lawsuit Over Mail-In Voting Rules**\
 `Judge Indira Talwani said the Postal Service appeared to be carrying out a haphazard “experiment” with a new rule that could lead to “major disenfranchisement.”`\
 https://www.nytimes.com/2026/09/03/us/politics/mail-ballots-usps-restraining-order.html
