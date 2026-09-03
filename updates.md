@@ -1,3 +1,11 @@
+**Lindsay Clancy Murder Trial Recap: What to Know Before It’s Over**\
+`A quick rundown of why she is on trial for murder and what’s at stake.`\
+https://www.nytimes.com/2026/09/03/us/lindsay-clancy-trial-murder-recap.html
+
+**Gloria Steinem, Personification of the Feminist Movement, Dies at 92**\
+`She challenged sexist assumptions, helping women develop a sense of self-worth and gain a measure of equality at work, at home and in society at large.`\
+https://www.nytimes.com/2026/09/03/us/politics/gloria-steinem-dead.html
+
 **Who Is Ahead in the U.S. Senate Race in Tennessee? Latest 2026 Polls**\
 `Track the latest polls in the Tennessee U.S. Senate election.`\
 https://www.nytimes.com/interactive/polls/tennessee-us-senate-election-polls-2026.html

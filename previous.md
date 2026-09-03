@@ -1,3 +1,7 @@
+**Lindsay Clancy Murder Trial Recap: What to Know Before It’s Over**\
+`A quick rundown of why she is on trial for murder and what’s at stake.`\
+https://www.nytimes.com/2026/09/03/us/lindsay-clancy-trial-murder-recap.html
+
 **Who Is Ahead in the U.S. Senate Race in Tennessee? Latest 2026 Polls**\
 `Track the latest polls in the Tennessee U.S. Senate election.`\
 https://www.nytimes.com/interactive/polls/tennessee-us-senate-election-polls-2026.html
@@ -62,7 +66,7 @@ https://www.nytimes.com/2026/09/03/style/gloria-steinem-style-feminism.html
 `We look at the department during his tenure.`\
 https://www.nytimes.com/2026/09/03/briefing/pete-hegseths-military.html
 
-**Gloria Steinem, Personification of the Women’s Movement, Dies at 92**\
+**Gloria Steinem, Personification of the Feminist Movement, Dies at 92**\
 `She challenged sexist assumptions, helping women develop a sense of self-worth and gain a measure of equality at work, at home and in society at large.`\
 https://www.nytimes.com/2026/09/03/us/politics/gloria-steinem-dead.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/03/world/americas/haiti-election-gangs.html
 **Is Magnesium Better for Sleep Than Melatonin?**\
 `The supplement is rising in popularity among those hunting for better sleep. We asked experts whether the science justifies the hype.`\
 https://www.nytimes.com/2026/09/03/well/eat/magnesium-versus-melatonin-sleep.html
-
-**‘Chronovisor’ Review: A Late-Night Occult Mystery**\
-`This enchanting debut feature, about an academic who becomes fixated on an invention by an Italian priest, builds to an eerie climax.`\
-https://www.nytimes.com/2026/09/03/movies/chronovisor-review.html
 
