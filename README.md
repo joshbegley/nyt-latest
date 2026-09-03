@@ -1,3 +1,7 @@
+**Los Angeles District Bans Most A.I. for Students**\
+`New York City announced a similar plan. The Los Angeles moratorium appears to go further with strict limits even for older students.`\
+https://www.nytimes.com/2026/09/03/us/lausd-schools-ban-ai-artificial-intelligence.html
+
 **Thousands in Spain Protest Over Migration Crisis in Ceuta**\
 `Protesters in Spain on Wednesday demonstrated against the government’s response to a migrant surge in Ceuta. Spain’s prime minister on Thursday defended Morocco against claims that it had perhaps enabled the crisis.`\
 https://www.nytimes.com/video/world/europe/100000011130400/spain-migrants-protests-ceuta.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/09/03/movies/brailled-it-review.html
 **Nvidia Buys Hugging Face in $12.9 Billion Deal**\
 `The acquisition of the start-up is an indication of Nvidia’s growing role as Silicon Valley’s central banker and its emphasis on open-source technology.`\
 https://www.nytimes.com/2026/09/03/technology/nvidia-hugging-face.html
-
-**Oil Jumps for Fourth Straight Day and Diesel Nears Record High**\
-`This week’s renewed strikes by the United States and Iran strain the flow of energy and diminish expectations the disruption will end soon.`\
-https://www.nytimes.com/2026/09/03/business/oil-diesel-prices-iran-war.html
 
