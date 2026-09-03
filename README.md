@@ -1,3 +1,7 @@
+**The Start-Up That Helps People Die**\
+`Medical aid in dying is now legal in New York. A team of clinical professionals decided to create a practice to help their clients die on their own terms.`\
+https://www.nytimes.com/2026/09/03/nyregion/assisted-suicide-quietus-new-york.html
+
 **Through the Hands of Strangers, Missing Iranian Artists Put on a Show in L.A.**\
 `Isolated by war, they nevertheless are taking part in an exhibition at The Brick, paired with local artists who interpreted and realized their work.`\
 https://www.nytimes.com/2026/09/03/arts/design/iranian-artists-los-angeles-the-brick.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/09/03/podcasts/us-open-alcaraz.html
 **Amantes y cineastas, su película revelación casi fue el final**\
 `Javier Calvo y Javier Ambrossi, alias Los Javis, son figuras muy conocidas en España, en parte por su relación. Pero todo cambió tras su triunfo en Cannes con ‘La bola negra’.`\
 https://www.nytimes.com/es/2026/09/03/espanol/cultura/javis-bola-negra-netflix.html
-
-**¿El magnesio funciona mejor que la melatonina para dormir?**\
-`El suplemento está ganando popularidad entre quienes buscan dormir mejor. Le preguntamos a los expertos si la ciencia justifica el entusiasmo.`\
-https://www.nytimes.com/es/2026/09/03/espanol/magnesio-melatonina-para-dormir.html
 
