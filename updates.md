@@ -1,3 +1,15 @@
+**Amantes y cineastas, su película revelación casi fue el final**\
+`Javier Calvo y Javier Ambrossi, alias Los Javis, son figuras muy conocidas en España, en parte por su relación. Pero todo cambió tras su triunfo en Cannes con ‘La bola negra’.`\
+https://www.nytimes.com/es/2026/09/03/espanol/cultura/javis-bola-negra-netflix.html
+
+**¿El magnesio funciona mejor que la melatonina para dormir?**\
+`El suplemento está ganando popularidad entre quienes buscan dormir mejor. Le preguntamos a los expertos si la ciencia justifica el entusiasmo.`\
+https://www.nytimes.com/es/2026/09/03/espanol/magnesio-melatonina-para-dormir.html
+
+**For Russia and Ukraine, an Escalating Spiral With No End in Sight**\
+`Each side is using missiles and drones to try to pound the other into giving up, breeding ceaseless human suffering. But there is no sign that either country’s determination will weaken.`\
+https://www.nytimes.com/2026/09/03/world/europe/russia-ukraine-escalation.html
+
 **Who’s the Snowflake Now?**\
 `Marco Rubio is taking the wrong approach to free speech.`\
 https://www.nytimes.com/2026/09/03/opinion/trump-rubio-free-speech-judges.html

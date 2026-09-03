@@ -1,3 +1,15 @@
+**Amantes y cineastas, su película revelación casi fue el final**\
+`Javier Calvo y Javier Ambrossi, alias Los Javis, son figuras muy conocidas en España, en parte por su relación. Pero todo cambió tras su triunfo en Cannes con ‘La bola negra’.`\
+https://www.nytimes.com/es/2026/09/03/espanol/cultura/javis-bola-negra-netflix.html
+
+**¿El magnesio funciona mejor que la melatonina para dormir?**\
+`El suplemento está ganando popularidad entre quienes buscan dormir mejor. Le preguntamos a los expertos si la ciencia justifica el entusiasmo.`\
+https://www.nytimes.com/es/2026/09/03/espanol/magnesio-melatonina-para-dormir.html
+
+**For Russia and Ukraine, an Escalating Spiral With No End in Sight**\
+`Each side is using missiles and drones to try to pound the other into giving up, breeding ceaseless human suffering. But there is no sign that either country’s determination will weaken.`\
+https://www.nytimes.com/2026/09/03/world/europe/russia-ukraine-escalation.html
+
 **Who’s the Snowflake Now?**\
 `Marco Rubio is taking the wrong approach to free speech.`\
 https://www.nytimes.com/2026/09/03/opinion/trump-rubio-free-speech-judges.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/09/03/books/review/lizzo-favorite-books.html
 **How Far Can $375,000 Go for a First-Time Buyer in a Philadelphia Suburb?**\
 `Two- and three-bedroom single-family homes, townhouses and condos in nearby New Jersey towns were considered.`\
 https://www.nytimes.com/quiz/2026/09/03/realestate/philadelphia-suburb-condo-townhouse-single-family-hunt.html
-
-**An Early Look at the Lucas Museum of Narrative Art**\
-`The Lucas Museum of Narrative Art opened to the press for a first look at the filmmaker George Lucas’s legacy project. It is set to open to the public on Sept. 22.`\
-https://www.nytimes.com/video/arts/100000011130072/george-lucas-museum-narrative-art-la.html
-
-**El gobierno de Trump lanza una cacería contra un fraude electoral que nadie encuentra**\
-`El fraude electoral es extremadamente raro, pero el presidente Trump se ha obsesionado este año con erradicarlo, afirmando sin evidencia que decenas de miles de personas no ciudadanas están registradas para votar.`\
-https://www.nytimes.com/es/2026/09/03/espanol/estados-unidos/trump-medidas-fraude-electoral.html
-
-**¿Qué tan absurdos son los aranceles de Trump? Hablemos del aluminio**\
-`Canadá es mejor que Estados Unidos para fabricar aluminio. Sería mejor importarlo y enfocarse en hacer otras cosas.`\
-https://www.nytimes.com/es/2026/09/03/espanol/opinion/aranceles-trump-aluminio-canada.html
 
