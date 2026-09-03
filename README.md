@@ -62,8 +62,8 @@ https://www.nytimes.com/2026/09/02/us/shooting-minneapolis-downtown.html
 `A woman in California will face 36 years to life in prison after previously serving time for a stabbing death in 2000.`\
 https://www.nytimes.com/2026/09/02/us/yolanda-marodi-wife-killed-california-sentenced.html
 
-**Trump’s Fantasy-Reality Problem Is Deepening**\
-`The president’s unusual relationship to the objective world leaves him dangerously unable to pivot, shift gears or change course.`\
+**The President Can’t Handle the Truth**\
+`Trump’s fantasy-reality problem is deepening.`\
 https://www.nytimes.com/2026/09/02/opinion/trump-fantasty-reality-politics.html
 
 **A Hurricane Will Not Hit California. Here’s What to Expect Instead.**\

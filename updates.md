@@ -1,3 +1,7 @@
+**Homeland Security Secretary’s Plane Makes Emergency Landing**\
+`The landing was the latest close call over Washington’s congested airspace to involve a senior government official.`\
+https://www.nytimes.com/2026/09/02/us/politics/homeland-security-mullin-plane-emergency-landing.html
+
 **D.S.A. Chapter Endorses Nithya Raman for Mayor of Los Angeles**\
 `Ms. Raman, a member of the D.S.A. chapter, is challenging Mayor Karen Bass as democratic socialists have surged nationally.`\
 https://www.nytimes.com/2026/09/02/us/nithya-raman-dsa-la-mayor.html
