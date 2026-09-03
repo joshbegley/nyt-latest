@@ -1,3 +1,11 @@
+**D.S.A. Chapter Endorses Nithya Raman for Mayor of Los Angeles**\
+`Ms. Raman, a member of the D.S.A. chapter, is challenging Mayor Karen Bass as democratic socialists have surged nationally.`\
+https://www.nytimes.com/2026/09/02/us/nithya-raman-dsa-la-mayor.html
+
+**‘Below Deck’ Star Nathan Gallagher Wanted on Arrest Warrant for Assault**\
+`A warrant was out for the arrest of Gallagher, who was convicted of assaulting and choking his former partner and castmate.`\
+https://www.nytimes.com/2026/09/02/style/below-deck-nathan-gallagher-australia.html
+
 **White House Plans $250,000 Renovation of 2-Lane Bowling Alley**\
 `A White House spokesman said the alley renovations included fixing broken lights. The project comes as the president has sought a broad overhaul of the White House and its surroundings.`\
 https://www.nytimes.com/2026/09/02/us/politics/white-house-bowling-alley-renovation.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/02/us/bowe-bergdahl-conviction-army-sergeant-afg
 **How the Met’s Galliano Show Fell Apart**\
 `Anna Wintour put her full power and prestige behind a designer convicted of an antisemitic hate crime. Behind the scenes, influential New Yorkers revolted.`\
 https://www.nytimes.com/2026/09/02/style/john-galliano-met-exhibition-cancel-anna-wintour.html
-
-**Patrick Gleeson, Who Made Synthesizers Part of Jazz, Dies at 91**\
-`He abandoned a job teaching college English in the 1960s to become a pioneer of the instrument, playing onstage with Herbie Hancock’s jazz band.`\
-https://www.nytimes.com/2026/09/02/arts/music/patrick-gleeson-dead.html
-
-**Egypt Bus Crash Kills at Least 22 People, Injures Dozens More**\
-`A bus overturned while traveling between popular resort towns in Egypt on Wednesday, killing at least 22 people, according to the country’s health ministry. It was not immediately clear what caused the crash.`\
-https://www.nytimes.com/video/world/africa/100000011128018/egypt-sinai-bus-crash.html
 

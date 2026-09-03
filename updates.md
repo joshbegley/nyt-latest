@@ -1,3 +1,11 @@
+**D.S.A. Chapter Endorses Nithya Raman for Mayor of Los Angeles**\
+`Ms. Raman, a member of the D.S.A. chapter, is challenging Mayor Karen Bass as democratic socialists have surged nationally.`\
+https://www.nytimes.com/2026/09/02/us/nithya-raman-dsa-la-mayor.html
+
+**‘Below Deck’ Star Nathan Gallagher Wanted on Arrest Warrant for Assault**\
+`A warrant was out for the arrest of Gallagher, who was convicted of assaulting and choking his former partner and castmate.`\
+https://www.nytimes.com/2026/09/02/style/below-deck-nathan-gallagher-australia.html
+
 **White House Plans $250,000 Renovation of 2-Lane Bowling Alley**\
 `A White House spokesman said the alley renovations included fixing broken lights. The project comes as the president has sought a broad overhaul of the White House and its surroundings.`\
 https://www.nytimes.com/2026/09/02/us/politics/white-house-bowling-alley-renovation.html
