@@ -1,3 +1,7 @@
+**El gobierno de Trump lanza una cacería contra un fraude electoral que nadie encuentra**\
+`El fraude electoral es extremadamente raro, pero el presidente Trump se ha obsesionado este año con erradicarlo, afirmando sin evidencia que decenas de miles de personas no ciudadanas están registradas para votar.`\
+https://www.nytimes.com/es/2026/09/03/espanol/estados-unidos/trump-medidas-fraude-electoral.html
+
 **¿Qué tan absurdos son los aranceles de Trump? Hablemos del aluminio**\
 `Canadá es mejor que Estados Unidos para fabricar aluminio. Sería mejor importarlo y enfocarse en hacer otras cosas.`\
 https://www.nytimes.com/es/2026/09/03/espanol/opinion/aranceles-trump-aluminio-canada.html
