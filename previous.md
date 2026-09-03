@@ -1,3 +1,15 @@
+**In Utah, a Latter-day Saints Temple Opens Its Doors to Nonmembers**\
+`A public open house in 2027 will grant nonmembers of the Latter-day Saints rare access to the interior of the iconic Salt Lake Temple.`\
+https://www.nytimes.com/2026/09/03/travel/salt-lake-latter-day-saints-mormon-temple.html
+
+**Burning Man Draws an Older, Wealthier Crowd, Data Shows**\
+`Last year, just 1 in ten festivalgoers were in their 20s, according to researchers. A decade ago, the same group represented nearly 30 percent of attendees.`\
+https://www.nytimes.com/2026/09/03/us/burning-man-gen-z-millennials-attendance.html
+
+**Amelia Dimoldenberg Closes ‘Chicken Shop Date’**\
+`The popular online blind date show, set at a fried chicken shop in London, became a celebrity magnet in recent months.`\
+https://www.nytimes.com/2026/09/03/style/amelia-dimoldenberg-chicken-shop-date.html
+
 **Gloria Steinem Died With Unfinished Business**\
 `Gloria Steinem got to be who she was because of a pre-Roe abortion.`\
 https://www.nytimes.com/2026/09/03/opinion/gloria-steinem-feminism-abortion.html
@@ -19,7 +31,7 @@ https://www.nytimes.com/2026/09/03/us/minneapolis-shooting-attacker-eviction.htm
 https://www.nytimes.com/2026/09/03/dining/how-to-cook-for-your-friends-at-an-airbnb.html
 
 **Bessent Blames Ukraine for High Energy Prices**\
-`After meeting with Russia’s finance minister, the Treasury secretary said Ukraine’s attacks on Russian oil infrastructure were contributing to a global energy shock.`\
+`After meeting with Russia’s finance minister, the Treasury secretary said Ukraine’s attacks on Russian oil infrastructure were contributing to a global energy shock driven mainly by the US war with Iran.`\
 https://www.nytimes.com/2026/09/03/business/bessent-energy-prices-ukraine.html
 
 **Israel Is Expected to Release Lebanese Prisoners, in Rare Sign of Progress**\
@@ -177,16 +189,4 @@ https://www.nytimes.com/2026/09/03/business/economy/us-trade-defecit-july.html
 **Gloria Steinem: A Life in Pictures**\
 `Steinem was one of the faces of the modern women’s rights movement.`\
 https://www.nytimes.com/2026/09/03/style/gloria-steinem-photos.html
-
-**Rate Rise in Play as Fed Officials Await Inflation Data**\
-`Christopher J. Waller, a Federal Reserve governor, sounded optimistic about inflation’s trajectory but indicated he would support higher rates if progress does not continue.`\
-https://www.nytimes.com/2026/09/03/business/interest-rates-inflation-federal-reserve.html
-
-**Feminist Leader Gloria Steinem Dies at 92**\
-`Gloria Steinem, the feminist icon and co-founder of Ms. magazine, died on Wednesday at her home in New York City. She was 92.`\
-https://www.nytimes.com/video/us/100000011111650/feminist-leader-gloria-steinem-dies-at-92.html
-
-**‘Brailled It’ Review: A Matter of Perspective**\
-`This experimental documentary follows three students as they compete in an annual Braille tournament in Los Angeles.`\
-https://www.nytimes.com/2026/09/03/movies/brailled-it-review.html
 

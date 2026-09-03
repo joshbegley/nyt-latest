@@ -1,3 +1,19 @@
+**In Utah, a Latter-day Saints Temple Opens Its Doors to Nonmembers**\
+`A public open house in 2027 will grant nonmembers of the Latter-day Saints rare access to the interior of the iconic Salt Lake Temple.`\
+https://www.nytimes.com/2026/09/03/travel/salt-lake-latter-day-saints-mormon-temple.html
+
+**Burning Man Draws an Older, Wealthier Crowd, Data Shows**\
+`Last year, just 1 in ten festivalgoers were in their 20s, according to researchers. A decade ago, the same group represented nearly 30 percent of attendees.`\
+https://www.nytimes.com/2026/09/03/us/burning-man-gen-z-millennials-attendance.html
+
+**Amelia Dimoldenberg Closes ‘Chicken Shop Date’**\
+`The popular online blind date show, set at a fried chicken shop in London, became a celebrity magnet in recent months.`\
+https://www.nytimes.com/2026/09/03/style/amelia-dimoldenberg-chicken-shop-date.html
+
+**Bessent Blames Ukraine for High Energy Prices**\
+`After meeting with Russia’s finance minister, the Treasury secretary said Ukraine’s attacks on Russian oil infrastructure were contributing to a global energy shock driven mainly by the US war with Iran.`\
+https://www.nytimes.com/2026/09/03/business/bessent-energy-prices-ukraine.html
+
 **Gloria Steinem Died With Unfinished Business**\
 `Gloria Steinem got to be who she was because of a pre-Roe abortion.`\
 https://www.nytimes.com/2026/09/03/opinion/gloria-steinem-feminism-abortion.html
