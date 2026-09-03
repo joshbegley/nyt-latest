@@ -1,3 +1,11 @@
+**Trump Administration Renews Push to Strip Schools of Tax-Exempt Status**\
+`The Treasury Department released rules that would upend how schools qualify for tax-exempt status, a new front in the president’s campaign against higher education.`\
+https://www.nytimes.com/2026/09/03/business/economy/trump-irs-college-nonprofits.html
+
+**“Electra/Persona”: Cate Blanchett and Nina Hoss Fuse Bergman and Greek Tragedy Into One**\
+`In “Electra/Persona” at the National Theater in London, the actresses turn a spotlight on performance and the slipperiness of identity.`\
+https://www.nytimes.com/2026/09/03/theater/electra-persona-national-theatre-cate-blanchett-nina-hoss-review.html
+
 **China Boycotts a Top Art Festival Over Taiwan Exhibition**\
 `China said the Gwangju Biennale in South Korea was misrepresenting Taiwan as an independent nation. Beijing claims it as its own.`\
 https://www.nytimes.com/2026/09/03/world/asia/china-taiwan-gwangju-biennale.html
