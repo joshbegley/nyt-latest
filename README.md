@@ -1,3 +1,7 @@
+**A Woman Whose Case Resembles Clancy’s Just Won a Retrial**\
+`The highest court in Massachusetts overturned Latarsha Sanders’s 2022 murder conviction after the trial judge excluded her medical records from the evidence.`\
+https://www.nytimes.com/2026/09/03/us/lindsay-clancy-latarsha-sanders-retrial.html
+
 **Ejercicios y hábitos para reforzar el equilibrio y envejecer bien**\
 `Mantenerse en pie no es una sola habilidad, sino más bien varios sistemas físicos, sensoriales y cognitivos que trabajan juntos. Aquí algunos consejos para ejercitarlos.`\
 https://www.nytimes.com/es/2026/09/03/espanol/equilibrio-ejercicios-envejecimiento.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/video/obituaries/100000003009467/the-last-word-gloria-st
 **NYT Connections Answers for September 4, 2026**\
 `Scroll down for hints and conversation about the puzzle for Friday, Sept. 4, 2026.`\
 https://www.nytimes.com/2026/09/03/crosswords/connections-companion-1181.html
-
-**A.I. Is Outsmarting Its Creators**\
-`When OpenAI’s agents went rogue in July, they demonstrated ingenuity and drive beyond what many experts had imagined.`\
-https://www.nytimes.com/2026/09/03/podcasts/the-daily/ai-openai-hugging-face-rogue-model.html
 
