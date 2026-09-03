@@ -1,3 +1,7 @@
+**Schools Aiding Minority Students Could Lose Tax-Exempt Status**\
+`Also, Gloria Steinem died at 92. Here’s the latest at the end of Thursday.`\
+https://www.nytimes.com/2026/09/03/briefing/colleges-tax-exemption-gloria-steinem.html
+
 **Art Gallery Shows to See in September**\
 `This week in Newly Reviewed, Will Heinrich covers a show that displays the power of community, Morgan O’Hara’s obsessive documentation and Noah Jemisin’s phantasms.`\
 https://www.nytimes.com/2026/09/03/arts/art-gallery-shows-to-see-in-september.html
@@ -19,7 +23,7 @@ https://www.nytimes.com/2026/09/03/us/texas-killing-fields-cold-case-manslaughte
 https://www.nytimes.com/2026/09/03/us/politics/trump-supreme-court-mail-ballots.html
 
 **Volkswagen Plans to Cut 50,000 Jobs**\
-`Facing growing competition from China and rapidly advancing technology, the German auto giant said Thursday its board had approved a “comprehensive” restructuring.`\
+`Facing growing competition from China and rapidly advancing technology, the German auto giant said Thursday its board had approved a “comprehensive” overhaul.`\
 https://www.nytimes.com/2026/09/03/business/volkswagen-job-cuts.html
 
 **Dutch Central Bank Cuts Gold Reserves in U.S., Citing ‘Geopolitical Unrest’**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/09/03/espanol/equilibrio-ejercicios-envejecimien
 **Is Letting Only Seniors Vote by Mail Unconstitutional?**\
 `Federal appeals courts have split on the question, making Supreme Court review likely.`\
 https://www.nytimes.com/2026/09/03/us/politics/the-docket-senior-mail-ballot.html
-
-**‘We Can Understand Parts of Her Story’: Moms React to Clancy’s Experience**\
-`Some moms are outraged and called for Lindsay Clancy’s conviction. Others watched with compassion, recognizing their own struggles with postpartum.`\
-https://www.nytimes.com/2026/09/03/us/lindsay-clancy-mothers-reactions.html
 
