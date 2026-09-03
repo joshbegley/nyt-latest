@@ -1,3 +1,15 @@
+**Israeli Military Kills Two Palestinians in Nighttime Village Raid**\
+`Al Mughayir, in the Israeli-occupied West Bank, has become a focal point for rising settler violence, with the latest deadly episode starting in a dispute over livestock.`\
+https://www.nytimes.com/2026/09/03/world/middleeast/west-bank-israel-palestinians-shooting.html
+
+**Muere Gloria Steinem, ícono del feminismo**\
+`Desafió los prejuicios sexistas y ayudó a las mujeres a desarrollar su sentido de autoestima y a obtener avances en la igualdad en el trabajo, en el hogar y en la sociedad en general.`\
+https://www.nytimes.com/es/2026/09/03/espanol/cultura/muere-gloria-steinem.html
+
+**Scientists Find More Than 1,000 DNA Variants Linked to Personality Traits**\
+`More than one million genomes helped identify DNA variants linked to extroversion, agreeableness, neuroticism and more. Researchers measured how those traits influenced how people lived.`\
+https://www.nytimes.com/2026/09/03/science/genes-personality-traits.html
+
 **The Serpent**\
 `Animated VPP1`\
 http://brandedplaylist.nytimes.com/video/embedded/t-brand/100000011130666/the-serpent.html
