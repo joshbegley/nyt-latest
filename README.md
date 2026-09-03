@@ -1,3 +1,15 @@
+**China Boycotts Top Art Festival Over Taiwan Exhibition**\
+`China said the Gwangju Biennale in South Korea was misrepresenting Taiwan as an independent nation. Beijing claims it as its own.`\
+https://www.nytimes.com/2026/09/03/world/asia/china-taiwan-gwangju-biennale.html
+
+**U.S. Trade Gap Ballooned in July**\
+`The trade deficit bounced back up last month as spending on data centers to feed the A.I. boom drove up imports.`\
+https://www.nytimes.com/2026/09/03/business/economy/us-trade-defecit-july.html
+
+**Gloria Steinem: A Life in Pictures**\
+`Steinem was one of the faces of the modern women’s rights movement.`\
+https://www.nytimes.com/2026/09/03/style/gloria-steinem-photos.html
+
 **Rate Rise in Play as Fed Officials Await Inflation Data**\
 `Christopher J. Waller, a Federal Reserve governor, sounded optimistic about inflation’s trajectory but indicated he would support higher rates if progress does not continue.`\
 https://www.nytimes.com/2026/09/03/business/interest-rates-inflation-federal-reserve.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/09/03/movies/onslaught-review.html
 **‘Mayday’ Review: Frenemies, a Cold War Story**\
 `Ryan Reynolds and Kenneth Branagh keep this “Top Gun”-inspired action comedy aloft.`\
 https://www.nytimes.com/2026/09/03/movies/mayday-review-frenemies-a-cold-war-story.html
-
-**‘Give It a Shot’ Review: Birth Control for Men**\
-`There’s a new birth control method — and this documentary asks men to take the title of the film seriously.`\
-https://www.nytimes.com/2026/09/03/movies/give-it-a-shot-review.html
-
-**Traveling During Labor Day Weekend? Here’s What to Know.**\
-`The T.S.A. expects to screen 17 million passengers over the holiday week. Here’s a look at gas prices, possible weather snags and how to stay safe on the road.`\
-https://www.nytimes.com/2026/09/03/travel/labor-day-travel-what-to-know.html
-
-**Philadelphia High School Football Coaches Learn to Tackle Emotions**\
-`A training program for coaches in Philadelphia seeks to help players deal with trauma off the field.`\
-https://www.nytimes.com/2026/09/03/headway/youth-football-mental-health.html
 
