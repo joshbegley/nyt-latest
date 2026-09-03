@@ -1,3 +1,7 @@
+**Homeland Security Secretary’s Plane Makes Emergency Landing**\
+`The landing was the latest close call over Washington’s congested airspace to involve a senior government official.`\
+https://www.nytimes.com/2026/09/02/us/politics/homeland-security-mullin-plane-emergency-landing.html
+
 **D.S.A. Chapter Endorses Nithya Raman for Mayor of Los Angeles**\
 `Ms. Raman, a member of the D.S.A. chapter, is challenging Mayor Karen Bass as democratic socialists have surged nationally.`\
 https://www.nytimes.com/2026/09/02/us/nithya-raman-dsa-la-mayor.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/09/02/espanol/estados-unidos/trump-iran-estrecho
 **Judge Lacked Power to Vacate Bowe Bergdahl’s Conviction, Court Finds**\
 `The ruling effectively reinstates Mr. Bergdahl’s punishment, including his dishonorable discharge, for walking off a base in Afghanistan in 2009, prompting an extensive search-and-rescue mission.`\
 https://www.nytimes.com/2026/09/02/us/bowe-bergdahl-conviction-army-sergeant-afghanistan.html
-
-**How the Met’s Galliano Show Fell Apart**\
-`Anna Wintour put her full power and prestige behind a designer convicted of an antisemitic hate crime. Behind the scenes, influential New Yorkers revolted.`\
-https://www.nytimes.com/2026/09/02/style/john-galliano-met-exhibition-cancel-anna-wintour.html
 
