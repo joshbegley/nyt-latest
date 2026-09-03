@@ -1,3 +1,15 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011131731/Vance-SOT-iran-war-before-midterms.html
+
+**How to Use The Learning Network**\
+`Since 1998, The Learning Network has been helping people teach and learn with The New York Times. Here’s how to use our features.`\
+https://www.nytimes.com/2026/09/03/learning/how-to-use-the-learning-network.html
+
+**Judge Suggests Trump Mail-In Voting Rules Could Cause ‘Major Disenfrachisement’**\
+`Judge Indira Talwani said the Postal Service appeared to be trying a haphazard “experiment” with a new rule that could result in valid ballots being tossed.`\
+https://www.nytimes.com/2026/09/03/us/politics/mail-ballots-usps-restraining-order.html
+
 **Trump’s Foreign Wars Are Breaking His Anti-Immigrant Coalition**\
 `President Trump’s foreign adventurism will drive immigrants to the United States. And his anti-immigrant base knows it.`\
 https://www.nytimes.com/2026/09/03/opinion/politics/trump-immigration-iran.html
