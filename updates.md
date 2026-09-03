@@ -1,3 +1,19 @@
+**China Boycotts Top Art Festival Over Taiwan Exhibition**\
+`China said the Gwangju Biennale in South Korea was misrepresenting Taiwan as an independent nation. Beijing claims it as its own.`\
+https://www.nytimes.com/2026/09/03/world/asia/china-taiwan-gwangju-biennale.html
+
+**U.S. Trade Gap Ballooned in July**\
+`The trade deficit bounced back up last month as spending on data centers to feed the A.I. boom drove up imports.`\
+https://www.nytimes.com/2026/09/03/business/economy/us-trade-defecit-july.html
+
+**Gloria Steinem: A Life in Pictures**\
+`Steinem was one of the faces of the modern women’s rights movement.`\
+https://www.nytimes.com/2026/09/03/style/gloria-steinem-photos.html
+
+**Rate Rise in Play as Fed Officials Await Inflation Data**\
+`Christopher J. Waller, a Federal Reserve governor, sounded optimistic about inflation’s trajectory but indicated he would support higher rates if progress does not continue.`\
+https://www.nytimes.com/2026/09/03/business/interest-rates-inflation-federal-reserve.html
+
 **Rate Rise in Play as Fed Officials Await Inflation Data**\
 `Christopher J. Waller, a Federal Reserve governor, sounded optimistic about inflation’s trajectory but indicated he would support higher rates if progress does not continue.`\
 https://www.nytimes.com/2026/09/03/business/rate-rise-in-play-as-fed-officials-await-inflation-data.html
