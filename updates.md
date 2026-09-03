@@ -1,3 +1,7 @@
+**A New Exhibition at the Jack Shainman Gallery Highlights Gordon Parks’s Creative Community**\
+`Plus: the Southern grape exciting chefs, a new stay inside a converted 1930s L.A. church and more recommendations from T Magazine.`\
+https://www.nytimes.com/2026/09/03/t-magazine/gordon-parks-exhibition-jack-shainman-gallery.html
+
 **A Woman Whose Case Resembles Clancy’s Just Won a Retrial**\
 `The highest court in Massachusetts overturned Latarsha Sanders’s 2022 murder conviction after the trial judge excluded her medical records from the evidence.`\
 https://www.nytimes.com/2026/09/03/us/lindsay-clancy-latarsha-sanders-retrial.html

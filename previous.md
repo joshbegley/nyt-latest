@@ -1,3 +1,7 @@
+**A New Exhibition at the Jack Shainman Gallery Highlights Gordon Parks’s Creative Community**\
+`Plus: the Southern grape exciting chefs, a new stay inside a converted 1930s L.A. church and more recommendations from T Magazine.`\
+https://www.nytimes.com/2026/09/03/t-magazine/gordon-parks-exhibition-jack-shainman-gallery.html
+
 **A Woman Whose Case Resembles Clancy’s Just Won a Retrial**\
 `The highest court in Massachusetts overturned Latarsha Sanders’s 2022 murder conviction after the trial judge excluded her medical records from the evidence.`\
 https://www.nytimes.com/2026/09/03/us/lindsay-clancy-latarsha-sanders-retrial.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/09/03/us/politics/gloria-steinem-dead.html
 **In Her Words: Gloria Steinem**\
 `In a never-before-seen 2008 interview with The New York Times, Ms. Steinem reflected on her career as a writer, organizer and fund-raiser.`\
 https://www.nytimes.com/video/obituaries/100000003009467/the-last-word-gloria-steinem-obituary.html
-
-**NYT Connections Answers for September 4, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, Sept. 4, 2026.`\
-https://www.nytimes.com/2026/09/03/crosswords/connections-companion-1181.html
 
