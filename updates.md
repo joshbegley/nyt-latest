@@ -1,3 +1,7 @@
+**Trump insta de nuevo al pueblo de Irán a ‘levantarse y luchar’**\
+`EE. UU. parece estar cada vez más estancado en Irán después de seis meses de conflicto, a pesar de las declaraciones de dominio militar del presidente Trump.`\
+https://www.nytimes.com/es/2026/09/02/espanol/estados-unidos/trump-iran-estrecho-de-ormuz.html
+
 **In Small Iranian Town, a U.S. Attack Turns a Wedding Into a Tragedy**\
 `The bomb that hit the residential area was American, according to a weapons expert and a visual analysis by The Times. It killed five people and wounded 67 others, the Iranian authorities said.`\
 https://www.nytimes.com/2026/09/02/video/iran-us-attack-wedding.html
