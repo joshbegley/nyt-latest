@@ -1,3 +1,7 @@
+**After Trump Rift, Musk Begins Spending to Boost Republicans**\
+`Elon Musk plans to spend at least $100 million in more than a dozen competitive House and Senate races. The tech billionaire helped Donald Trump to victory in 2024.`\
+https://www.nytimes.com/2026/09/03/us/elon-musk-republican-spending.html
+
 **Israeli Military Kills Two Palestinians in Nighttime Village Raid**\
 `Al Mughayir, in the Israeli-occupied West Bank, has become a focal point for rising settler violence, with the latest deadly episode starting in a dispute over livestock.`\
 https://www.nytimes.com/2026/09/03/world/middleeast/west-bank-israel-palestinians-shooting.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/09/03/magazine/family-private-language-vocabulary-f
 **Where the Rich Get Richer and Everyone Else Just Gets By**\
 `A report from the city comptroller found that in New York City, the wealthy have become wealthier since the pandemic. The middle class has stagnated.`\
 https://www.nytimes.com/2026/09/03/nyregion/where-the-rich-get-richer-and-everyone-else-just-gets-by.html
-
-**College Presidents, Don’t Be Fooled by Linda McMahon**\
-`Her open letter to American universities is a trap.`\
-https://www.nytimes.com/2026/09/03/opinion/trump-mcmahon-harvard-compact.html
 
