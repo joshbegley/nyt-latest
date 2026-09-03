@@ -1,3 +1,31 @@
+**Gloria Steinem, Personification of the Women’s Movement, Dies at 92**\
+`She challenged sexist assumptions, helping women develop a sense of self-worth and gain a measure of equality at work, at home and in society at large.`\
+https://www.nytimes.com/2026/09/03/us/politics/gloria-steinem-dead.html
+
+**In Her Words: Gloria Steinem**\
+`In a never-before-seen 2008 interview with The New York Times, Ms. Steinem reflected on her career as a writer, organizer and fund-raiser.`\
+https://www.nytimes.com/video/obituaries/100000003009467/the-last-word-gloria-steinem-obituary.html
+
+**NYT Connections Answers for September 4, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Sept. 4, 2026.`\
+https://www.nytimes.com/2026/09/03/crosswords/connections-companion-1181.html
+
+**A.I. Is Outsmarting Its Creators**\
+`When OpenAI’s agents went rogue in July, they demonstrated ingenuity and drive beyond what many experts had imagined.`\
+https://www.nytimes.com/2026/09/03/podcasts/the-daily/ai-openai-hugging-face-rogue-model.html
+
+**U.S. Attack Hits Iranian Wedding, and Influencers Are Being Quietly Paid to Talk Politics**\
+`Plus, the N.B.A.’s biggest punishment ever.`\
+https://www.nytimes.com/2026/09/03/podcasts/the-headlines/us-iran-wedding-attack-influencers-politics.html
+
+**Today’s Wordle Hints for September 4, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Sept. 4, 2026.`\
+https://www.nytimes.com/2026/09/03/crosswords/wordle-review-1903.html
+
+**NYT Strands Hints for September 4, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Sept. 4, 2026.`\
+https://www.nytimes.com/2026/09/03/crosswords/strands-sidekick-915.html
+
 **US Open Day 4: Is Alcaraz Already in Title Form?**\
 `The reigning champion put on a scintillating display in the night match at Flushing Meadows.`\
 https://www.nytimes.com/2026/09/03/podcasts/us-open-alcaraz.html
@@ -169,32 +197,4 @@ https://www.nytimes.com/2026/09/03/books/thriller-books-succession-industry.html
 **Mundane Amtrak Data Becomes an Ensemble Performance in Train Jazz**\
 `Train Jazz captures and maps the choreography of the Amtrak network into a seven-instrument jazz ensemble, now playing on an internet-connected device near you.`\
 https://www.nytimes.com/2026/09/03/arts/music/jazz-train-amtrak-josh-wolk.html
-
-**The New Jet-Powered Drones That Are Breeding Anxiety in Ukraine**\
-`These Russian drones are more destructive, faster and harder to shoot down than the propeller-driven models Russia has used throughout the war.`\
-https://www.nytimes.com/2026/09/03/world/europe/ukraine-russia-jet-powered-drones.html
-
-**Word of the Day: fetid**\
-`This word has appeared in 20 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/09/03/learning/word-of-the-day-fetid.html
-
-**ICE Skipped Basic Checks in Rush for Recruits, Whistle-Blower Says**\
-`An official who oversaw the vetting of ICE recruits cited an “unprecedented lowering of standards” amid a hiring surge.`\
-https://www.nytimes.com/2026/09/03/us/ice-recruits-national-security-risk-whistleblower.html
-
-**How to Train Balance as You Age**\
-`Staying sure-footed gets harder the older you are. But there are a few strategies that can help.`\
-https://www.nytimes.com/2026/09/03/well/move/slackliner-gymnast-balance-aging.html
-
-**Is Your City Prepared for Climate Disaster?**\
-`A new report ranks the world’s large cities on how well they have adapted to face climate risk.`\
-https://www.nytimes.com/2026/09/03/realestate/is-your-city-prepared-for-climate-disaster.html
-
-**Why the Courts Struggle to Tame Big Tech**\
-`After finding antitrust violations, federal courts have been reluctant to impose harsh sanctions. They fear meddling in markets where technology is racing ahead.`\
-https://www.nytimes.com/2026/09/03/business/google-antitrust-ad-tech-remedies-analysis.html
-
-**Lizzo Wants to Write a Great American Novel**\
-`But first, she’s publishing a children’s book, “Lil Lizzo Meets Sasha B. Flootin,’” because “I wanted to inspire young people to fall in love with music.”`\
-https://www.nytimes.com/2026/09/03/books/review/lizzo-favorite-books.html
 
