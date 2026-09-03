@@ -1,3 +1,19 @@
+**¿Qué tan absurdos son los aranceles de Trump? Hablemos del aluminio**\
+`Canadá es mejor que Estados Unidos para fabricar aluminio. Sería mejor importarlo y enfocarse en hacer otras cosas.`\
+https://www.nytimes.com/es/2026/09/03/espanol/opinion/aranceles-trump-aluminio-canada.html
+
+**Religious Leaders Apologize for Appearing With Hindu Far-Right Group**\
+`Progressive faith leaders said invitations to a breakfast and an event at Madison Square Garden did not say they were tied to the Hindu nationalist group R.S.S.`\
+https://www.nytimes.com/2026/09/03/us/religious-leaders-rss-apology.html
+
+**Subway Explosion in 2024 Revealed ‘Systemwide Failures,’ Audit Finds**\
+`A report from the Metropolitan Transportation Authority’s inspector general said the electrical explosion, in a Brooklyn substation, had uncovered serious gaps in oversight.`\
+https://www.nytimes.com/2026/09/03/nyregion/nyc-mta-subway-explosion-2024.html
+
+**NYT Spelling Bee Answers for September 3, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/09/03/crosswords/spelling-bee-forum.html
+
 **MAGA Is Feeding a Separatist Surge in Canada**\
 `Drawing inspiration from MAGA, separatists in Alberta are pushing for a break away from Canada.`\
 https://www.nytimes.com/2026/09/03/opinion/canada-alberta-separatists-trump-maga.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/09/02/arts/music/reggaeton-lawsuit-bad-bunny.html
 **Southwest to Open Premium Airport Lounges Across the Country**\
 `The airline said that lounges in Baltimore, Honolulu, Nashville and Austin, Texas, would debut starting late next year, and that seven more were in the works.`\
 https://www.nytimes.com/2026/09/02/travel/southwest-airport-lounges.html
-
-**The Filipino Star at the U.S. Open Igniting a Neighborhood in Queens**\
-`The 21-year-old sensation Alex Eala has charmed the tennis world and united her far-flung compatriots.`\
-https://www.nytimes.com/2026/09/02/nyregion/alex-eala-us-open-philippines-little-manila.html
-
-**The Yankees’ Post-9/11 World Series Run**\
-`George W. Bush, Billy Crystal, Tino Martinez and others describe how baseball and a thrilling postseason became a rallying cry for the country.`\
-https://www.nytimes.com/interactive/2026/09/02/magazine/yankees-world-series-9-11.html
-
-**Jay Leno’s Classic Car Bill Passes in California Legislature**\
-`The bipartisan bill, backed by Mr. Leno, the comedian and car collector, would exempt some older vehicles from having to meet California’s stringent emissions rules.`\
-https://www.nytimes.com/2026/09/02/us/jay-leno-law-classic-cars-emissions.html
-
-**The Good List: 6 Things to Add Joy to Your Day**\
-`Your birthday crossword, nearby pianos and the lone katydid.`\
-https://www.nytimes.com/2026/09/02/briefing/2-the-good-list-katydid-pianos.html
 
