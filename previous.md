@@ -1,3 +1,19 @@
+**Trump Puts Tariffs of Up to 100% on Foreign-Made Drones**\
+`In addition, the F.C.C. is weighing stiff restrictions on common drone technology such as thermal imaging and aerosol spraying.`\
+https://www.nytimes.com/2026/09/03/business/trump-drone-tariffs.html
+
+**Quote of the Day: Home Survives Nepal’s Floods, and in Turn, Rescues a Family**\
+`Quotation of the Day for Thursday, September 3, 2026.`\
+https://www.nytimes.com/2026/09/03/pageoneplus/quote-of-the-day-home-survives-nepals-floods-and-in-turn-rescues-a-family.html
+
+**Keeping the Cookout Going**\
+`Black barbecues have long offered a joyful, safe space for attendees. A new generation is determined to keep the fires burning.`\
+https://www.nytimes.com/2026/09/03/style/black-cookout-joy-tradition.html
+
+**Syrians Want Justice for Assad-Era Killings and Torture**\
+`Hundreds of thousands were killed and tortured. But prosecuting everyone involved in atrocities could be impractical and risk renewed civil strife.`\
+https://www.nytimes.com/2026/09/03/world/middleeast/syria-justice-abuse-assad.html
+
 **Who Is Ahead in Texas's 35th Congressional District?**\
 `Track the latest polls in Texas's 35th Congressional District.`\
 https://www.nytimes.com/interactive/polls/texas-us-house-35-polls-2026.html
@@ -74,7 +90,7 @@ https://www.nytimes.com/2026/09/02/us/politics/midterms-nepo-baby-shaheen.html
 `The Trump administration wants to bar Medicaid and the Children’s Health Insurance Program from paying for gender-transition medication and surgery for transgender adolescents.`\
 https://www.nytimes.com/2026/09/02/us/politics/youth-gender-transition-lawsuit-federal-money.html
 
-**2 People Are Killed and 2 Officers Are Hurt in Minneapolis Shooting**\
+**2 Killed and 2 Officers Shot at Minneapolis Apartment Building**\
 `The authorities said the suspect was also dead. Residents were warned to stay away from the downtown apartment building where the violence erupted.`\
 https://www.nytimes.com/2026/09/02/us/shooting-minneapolis-downtown.html
 
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/09/02/insider/ask-us-anything-about-our-midterm-rep
 **Noise and Motion Monitors in Their Homes? These Tenants Say No.**\
 `The public housing authority in Concord, N.H., installed monitoring devices in 300 homes. Tenants are now suing to remove the Minut sensors.`\
 https://www.nytimes.com/2026/09/02/technology/noise-monitors-public-housing.html
-
-**With More Women’s Sports Leagues Comes More Women’s Coaches**\
-`More and more are running teams, but they have not kept pace with the explosion of women’s sports.`\
-https://www.nytimes.com/2026/09/02/sports/female-coaches-women-leagues.html
-
-**Justice Dept. Sides With OpenAI in New York Times Copyright Suit**\
-`The department argued in a court filing that OpenAI legally used articles by The New York Times to develop A.I., adding that national security depended on American tech dominance.`\
-https://www.nytimes.com/2026/09/02/technology/justice-department-openai-copyright-suit.html
-
-**As Trump Throws a Midterm Party, Some Vulnerable Republicans Send Regrets**\
-`Many members of Congress in the most competitive re-election races are skipping the chance to share a pep rally stage with President Trump.`\
-https://www.nytimes.com/2026/09/02/us/politics/trump-midterm-convention-republicans.html
-
-**La ‘casa milagrosa’ que sobrevivió a las inundaciones de Nepal**\
-`La gente acude a tomar fotos de la casa pintada de verde, la cual mantuvo a salvo a la familia Pyakurel mientras la zona a su alrededor era destruida por las violentas aguas de la inundación.`\
-https://www.nytimes.com/es/2026/09/02/espanol/mundo/nepal-inundaciones-casa-milagrosa.html
 

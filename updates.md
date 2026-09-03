@@ -1,3 +1,23 @@
+**Trump Puts Tariffs of Up to 100% on Foreign-Made Drones**\
+`In addition, the F.C.C. is weighing stiff restrictions on common drone technology such as thermal imaging and aerosol spraying.`\
+https://www.nytimes.com/2026/09/03/business/trump-drone-tariffs.html
+
+**Quote of the Day: Home Survives Nepal’s Floods, and in Turn, Rescues a Family**\
+`Quotation of the Day for Thursday, September 3, 2026.`\
+https://www.nytimes.com/2026/09/03/pageoneplus/quote-of-the-day-home-survives-nepals-floods-and-in-turn-rescues-a-family.html
+
+**Keeping the Cookout Going**\
+`Black barbecues have long offered a joyful, safe space for attendees. A new generation is determined to keep the fires burning.`\
+https://www.nytimes.com/2026/09/03/style/black-cookout-joy-tradition.html
+
+**Syrians Want Justice for Assad-Era Killings and Torture**\
+`Hundreds of thousands were killed and tortured. But prosecuting everyone involved in atrocities could be impractical and risk renewed civil strife.`\
+https://www.nytimes.com/2026/09/03/world/middleeast/syria-justice-abuse-assad.html
+
+**2 Killed and 2 Officers Shot at Minneapolis Apartment Building**\
+`The authorities said the suspect was also dead. Residents were warned to stay away from the downtown apartment building where the violence erupted.`\
+https://www.nytimes.com/2026/09/02/us/shooting-minneapolis-downtown.html
+
 **A Hurricane Will Not Hit California. Here’s What to Expect Instead.**\
 `Marie has caused a frenzy in Southern California this week. Forecasters said it will almost certainly stay far offshore.`\
 https://www.nytimes.com/2026/09/02/weather/hurricane-marie-tropical-storm-la-california.html
