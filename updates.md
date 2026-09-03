@@ -1,3 +1,7 @@
+**Carla Jeffery, Actress in Disney’s ‘Zombies’ Films, Dies at 33**\
+`Ms. Jeffery also appeared in several Disney and Nickelodeon series and had a recurring role on “Curb Your Enthusiasm.”`\
+https://www.nytimes.com/2026/09/02/arts/television/carla-jeffery-dead.html
+
 **El gobierno de Trump lanza una cacería contra un fraude electoral que nadie encuentra**\
 `El fraude electoral es extremadamente raro, pero el presidente Trump se ha obsesionado este año con erradicarlo, afirmando sin evidencia que decenas de miles de personas no ciudadanas están registradas para votar.`\
 https://www.nytimes.com/es/2026/09/03/espanol/estados-unidos/trump-medidas-fraude-electoral.html

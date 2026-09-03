@@ -59,7 +59,7 @@ https://www.nytimes.com/2026/09/02/podcasts/the-nba-brings-the-hammer-on-kawhi-l
 https://www.nytimes.com/2026/09/02/crosswords/daily-puzzle-2026-09-03.html
 
 **Carla Jeffery, Actress in Disney’s ‘Zombies’ Films, Dies at 33**\
-`Ms. Jeffery also had a series of roles on other Disney and Nickelodeon series, as well as a season on “Curb Your Enthusiasm.”`\
+`Ms. Jeffery also appeared in several Disney and Nickelodeon series and had a recurring role on “Curb Your Enthusiasm.”`\
 https://www.nytimes.com/2026/09/02/arts/television/carla-jeffery-dead.html
 
 **Homeland Security Secretary’s Plane Makes Emergency Landing**\
