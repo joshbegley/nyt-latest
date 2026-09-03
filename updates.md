@@ -1,3 +1,19 @@
+**Haiti intenta celebrar elecciones a pesar de la guerra de pandillas**\
+`Las elecciones de Haití están programadas para el 13 de diciembre, pero la violencia extrema podría retrasarlas. Comunidades enteras corren el riesgo de quedar aisladas de la votación.`\
+https://www.nytimes.com/es/2026/09/03/espanol/america-latina/haiti-elecciones-pandillas.html
+
+**Today, In Short**\
+`Ariana Grande. Box office hits. And coconut cake.`\
+https://www.nytimes.com/2026/09/03/briefing/today-in-short.html
+
+**‘This Is Incredible. Sooo Flavorful and Light and Hearty’**\
+`Chile chicken and bean guisado, a reader favorite from our Weeknight 100.`\
+https://www.nytimes.com/2026/09/03/dining/this-is-incredible-sooo-flavorful-and-light-and-hearty.html
+
+**The Clancy Children: A ‘Girly Girl,’ a ‘Paw Patrol’ Fan and a Happy Baby**\
+`Trial testimony and photo exhibits told the story of Cora, Dawson and Callan.`\
+https://www.nytimes.com/2026/09/03/us/cora-dawson-callan-clancy-children.html
+
 **Lindsay Clancy Was a Nurse Who ‘Always Wanted to Be a Mother’**\
 `Witness testimony at Ms. Clancy’s trial detailed her life as a labor and delivery nurse with a growing family.`\
 https://www.nytimes.com/2026/09/03/us/who-is-lindsay-clancy.html
