@@ -87,7 +87,7 @@ https://www.nytimes.com/2026/09/02/us/yolanda-marodi-wife-killed-california-sent
 https://www.nytimes.com/2026/09/02/opinion/trump-fantasty-reality-politics.html
 
 **A Hurricane Will Not Hit California. Here’s What to Expect Instead.**\
-`Tropical Storm Marie has caused a frenzy in Southern California this week. Forecasters said it will almost certainly stay far offshore.`\
+`Marie has caused a frenzy in Southern California this week. Forecasters said it will almost certainly stay far offshore.`\
 https://www.nytimes.com/2026/09/02/weather/hurricane-marie-tropical-storm-la-california.html
 
 **Trump Administration Hunts for Elusive Noncitizen Voters**\
