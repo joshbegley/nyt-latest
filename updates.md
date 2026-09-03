@@ -1,3 +1,19 @@
+**Tesla Begins Offering Rides in a Car Without a Steering Wheel**\
+`The new Cybercab embodies Elon Musk’s vision of cars that drive themselves, but it is not clear when the vehicle will be widely available.`\
+https://www.nytimes.com/2026/09/03/business/tesla-cybercab-robotaxi-rides.html
+
+**Read the Missouri Supreme Court decision**\
+`The Missouri Supreme Court cleared the way for the state’s voters to decide in November whether to keep new congressional district boundaries redrawn to benefit Republicans.`\
+https://www.nytimes.com/interactive/2026/09/03/us/missouri-supreme-court-redistricting.html
+
+**Slava Veder, Whose Camera Captured a Defining Vietnam Homecoming, Dies at 99**\
+`His Pulitzer-winning photograph, “Burst of Joy,” documented an Air Force pilot’s reunion with his family after five years as a prisoner of war in Vietnam.`\
+https://www.nytimes.com/2026/09/03/us/slava-veder-dead.html
+
+**Judge Suggests Trump Mail-In Voting Rules Could Cause ‘Major Disenfranchisement’**\
+`Judge Indira Talwani said the Postal Service appeared to be trying a haphazard “experiment” with a new rule that could result in valid ballots being tossed.`\
+https://www.nytimes.com/2026/09/03/us/politics/mail-ballots-usps-restraining-order.html
+
 **Proposal for White House Visitor Screening Center Advances**\
 `A federal panel again paved the way for one of President Trump’s construction projects, even as it heard opposition to another proposal to fence in a park north of the White House.`\
 https://www.nytimes.com/2026/09/03/us/politics/trump-white-house-visitor-center-planning-commission.html
