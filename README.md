@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011131828/03visualUploader-11308.html
+
 **Las sanciones de EE. UU. afectan a los iraníes que buscan estudiar en el extranjero**\
 `Las medidas más recientes han obligado a cancelar exámenes de dominio del inglés y de posgrado, aislando a muchos de los iraníes más deseosos de fomentar vínculos con el mundo.`\
 https://www.nytimes.com/es/2026/09/03/espanol/mundo/iran-estudios-extranjero-sanciones.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/03/us/who-is-lindsay-clancy.html
 **Why Sinister ‘Cat in the Hat’ Videos Are Prompting Police Warnings**\
 `Grainy, threatening footage of the Dr. Seuss character, seemingly made with A.I., have terrorized schoolchildren and set off investigations in several countries.`\
 https://www.nytimes.com/2026/09/03/us/cat-in-the-hat-ai-social-media-trend.html
-
-**Rival Ukrainian Intelligence Units Open Fire Against Each Other in Kyiv**\
-`President Volodymyr Zelensky described the shootout on the streets of the Ukrainian capital as an “absolutely shameful event” and ordered an investigation.`\
-https://www.nytimes.com/2026/09/03/world/europe/rival-ukrainian-intelligence-units-open-fire-against-each-other-in-kyiv.html
 

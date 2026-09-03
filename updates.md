@@ -1,3 +1,7 @@
+**Las sanciones de EE. UU. afectan a los iraníes que buscan estudiar en el extranjero**\
+`Las medidas más recientes han obligado a cancelar exámenes de dominio del inglés y de posgrado, aislando a muchos de los iraníes más deseosos de fomentar vínculos con el mundo.`\
+https://www.nytimes.com/es/2026/09/03/espanol/mundo/iran-estudios-extranjero-sanciones.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000011131731/Vance-SOT-iran-war-before-midterms.html
