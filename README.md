@@ -1,3 +1,7 @@
+**Volkswagen Plans to Cut 50,000 Jobs**\
+`Facing growing competition from China and rapidly advancing technology, the German auto giant said Thursday its board had approved a “comprehensive” restructuring.`\
+https://www.nytimes.com/2026/09/03/business/volkswagen-job-cuts.html
+
 **Dutch Central Bank Cuts Gold Reserves in U.S., Citing ‘Geopolitical Unrest’**\
 `The Netherlands moved some 90 tons of gold out of the Federal Reserve Bank in New York, the second European nation this year to announce it had decreased or eliminated U.S. gold holdings.`\
 https://www.nytimes.com/2026/09/03/world/europe/netherlands-gold-reserves-us.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/03/arts/design/iranian-artists-los-angeles-the-b
 **Clancy’s Lawyer, Kevin Reddington, Became a Hero to Her Supporters**\
 `The themes present in Lindsay Clancy’s trial are not unfamiliar to Mr. Reddington, a veteran defense lawyer.`\
 https://www.nytimes.com/2026/09/03/us/clancy-lawyer-kevin-reddington.html
-
-**Spain’s Leader Questions Morocco Border Control During Ceuta Migrant Surge**\
-`Prime Minister Pedro Sánchez of Spain said the role of Moroccan authorities at key moments needed to be “clarified.” But he rejected any suggestion they had planned the crisis.`\
-https://www.nytimes.com/2026/09/03/world/europe/spain-morocco-ceuta-sanchez.html
 

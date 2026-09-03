@@ -6,7 +6,7 @@ https://www.nytimes.com/2026/09/03/world/europe/netherlands-gold-reserves-us.htm
 `With high stakes and plenty of stars, the tournament is about to get really interesting.`\
 https://www.nytimes.com/2026/09/03/nyregion/summer-in-the-city-us-open.html
 
-**Mortgage Rates Climb to Highest Level Since July 2025**\
+**Mortgage Rates Hit 6.71%, Their Highest Level Since July 2025**\
 `Higher costs for home loans have put a squeeze on the housing market, adding pressure to consumers already struggling with elevated inflation.`\
 https://www.nytimes.com/2026/09/03/business/mortgage-rates-housing.html
 

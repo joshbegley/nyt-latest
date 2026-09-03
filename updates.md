@@ -1,3 +1,7 @@
+**Mortgage Rates Hit 6.71%, Their Highest Level Since July 2025**\
+`Higher costs for home loans have put a squeeze on the housing market, adding pressure to consumers already struggling with elevated inflation.`\
+https://www.nytimes.com/2026/09/03/business/mortgage-rates-housing.html
+
 **Dutch Central Bank Cuts Gold Reserves in U.S., Citing ‘Geopolitical Unrest’**\
 `The Netherlands moved some 90 tons of gold out of the Federal Reserve Bank in New York, the second European nation this year to announce it had decreased or eliminated U.S. gold holdings.`\
 https://www.nytimes.com/2026/09/03/world/europe/netherlands-gold-reserves-us.html
