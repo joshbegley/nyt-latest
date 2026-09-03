@@ -1,3 +1,15 @@
+**As Midterms Loom, Democrats Feud Over Defections**\
+`The fight has highlighted party divisions and raised questions about how Democrats will run the House should they win the majority.`\
+https://www.nytimes.com/2026/09/02/us/politics/democrats-defections-internal-feud-midterms.html
+
+**Strawberry Eton Mess**\
+`Eton mess is a classic British dessert made of a mixture of fresh fruit, cream and crushed baked meringue.`\
+https://www.nytimes.com/video/dining/100000011125959/strawberry-eton-mess.html
+
+**2 Police Officers Among 7 Victims in Minneapolis Shooting Near Loring Park**\
+`A city official said the suspect was also dead. Residents were warned to stay away from the downtown apartment building where the violence erupted.`\
+https://www.nytimes.com/2026/09/02/us/shooting-minneapolis-downtown.html
+
 **Trump insta de nuevo al pueblo de Irán a ‘levantarse y luchar’**\
 `EE. UU. parece estar cada vez más estancado en Irán después de seis meses de conflicto, a pesar de las declaraciones de dominio militar del presidente Trump.`\
 https://www.nytimes.com/es/2026/09/02/espanol/estados-unidos/trump-iran-estrecho-de-ormuz.html
