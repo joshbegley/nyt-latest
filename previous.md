@@ -1,3 +1,11 @@
+**Who Is Ahead in the U.S. Senate Race in Tennessee? Latest 2026 Polls**\
+`Track the latest polls in the Tennessee U.S. Senate election.`\
+https://www.nytimes.com/interactive/polls/tennessee-us-senate-election-polls-2026.html
+
+**Lindsay Clancy Trial Live Updates: Jury Tries to Break Deadlock**\
+`Jurors in the closely watched triple-murder case began a sixth day of deliberations after twice telling a judge they could not reach a verdict.`\
+https://www.nytimes.com/live/2026/09/03/us/lindsay-clancy-trial-deadlock
+
 **Trump Administration Renews Push to Strip Schools of Tax-Exempt Status**\
 `The Treasury Department released rules that would upend how schools qualify for tax-exempt status, a new front in the president’s campaign against higher education.`\
 https://www.nytimes.com/2026/09/03/business/economy/trump-irs-college-nonprofits.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/03/well/eat/magnesium-versus-melatonin-sleep.htm
 **‘Chronovisor’ Review: A Late-Night Occult Mystery**\
 `This enchanting debut feature, about an academic who becomes fixated on an invention by an Italian priest, builds to an eerie climax.`\
 https://www.nytimes.com/2026/09/03/movies/chronovisor-review.html
-
-**‘The Sun Never Sets’ Review: Could She Do Better?**\
-`Dakota Fanning plays a woman in Alaska who must choose between her older boyfriend and her ex.`\
-https://www.nytimes.com/2026/09/03/movies/the-sun-never-sets-review.html
-
-**‘Onslaught’ Review: Too Much and Not Enough**\
-`A gory tribute to B-movies from the 1980s tries and fails to say something about forever wars.`\
-https://www.nytimes.com/2026/09/03/movies/onslaught-review.html
 

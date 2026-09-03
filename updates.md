@@ -1,3 +1,11 @@
+**Who Is Ahead in the U.S. Senate Race in Tennessee? Latest 2026 Polls**\
+`Track the latest polls in the Tennessee U.S. Senate election.`\
+https://www.nytimes.com/interactive/polls/tennessee-us-senate-election-polls-2026.html
+
+**Lindsay Clancy Trial Live Updates: Jury Tries to Break Deadlock**\
+`Jurors in the closely watched triple-murder case began a sixth day of deliberations after twice telling a judge they could not reach a verdict.`\
+https://www.nytimes.com/live/2026/09/03/us/lindsay-clancy-trial-deadlock
+
 **Trump Administration Renews Push to Strip Schools of Tax-Exempt Status**\
 `The Treasury Department released rules that would upend how schools qualify for tax-exempt status, a new front in the president’s campaign against higher education.`\
 https://www.nytimes.com/2026/09/03/business/economy/trump-irs-college-nonprofits.html
