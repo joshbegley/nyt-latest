@@ -1,3 +1,11 @@
+**Through the Hands of Strangers, Missing Iranian Artists Put on a Show in L.A.**\
+`Isolated by war, they nevertheless are taking part in an exhibition at The Brick, paired with local artists who interpreted and realized their work.`\
+https://www.nytimes.com/2026/09/03/arts/design/iranian-artists-los-angeles-the-brick.html
+
+**Clancy’s Lawyer, Kevin Reddington, Became a Hero to Her Supporters**\
+`The themes present in Lindsay Clancy’s trial are not unfamiliar to Mr. Reddington, a veteran defense lawyer.`\
+https://www.nytimes.com/2026/09/03/us/clancy-lawyer-kevin-reddington.html
+
 **Spain’s Leader Questions Morocco Border Control During Ceuta Migrant Surge**\
 `Prime Minister Pedro Sánchez of Spain said the role of Moroccan authorities at key moments needed to be “clarified.” But he rejected any suggestion they had planned the crisis.`\
 https://www.nytimes.com/2026/09/03/world/europe/spain-morocco-ceuta-sanchez.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/es/2026/09/03/espanol/cultura/javis-bola-negra-netflix.h
 **¿El magnesio funciona mejor que la melatonina para dormir?**\
 `El suplemento está ganando popularidad entre quienes buscan dormir mejor. Le preguntamos a los expertos si la ciencia justifica el entusiasmo.`\
 https://www.nytimes.com/es/2026/09/03/espanol/magnesio-melatonina-para-dormir.html
-
-**For Russia and Ukraine, an Escalating Spiral With No End in Sight**\
-`Each side is using missiles and drones to try to pound the other into giving up, breeding ceaseless human suffering. But there is no sign that either country’s determination will weaken.`\
-https://www.nytimes.com/2026/09/03/world/europe/russia-ukraine-escalation.html
-
-**Who’s the Snowflake Now?**\
-`Marco Rubio is taking the wrong approach to free speech.`\
-https://www.nytimes.com/2026/09/03/opinion/trump-rubio-free-speech-judges.html
 

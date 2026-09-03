@@ -1,3 +1,11 @@
+**Spain’s Leader Questions Morocco Border Control During Ceuta Migrant Surge**\
+`Prime Minister Pedro Sánchez of Spain said the role of Moroccan authorities at key moments needed to be “clarified.” But he rejected any suggestion they had planned the crisis.`\
+https://www.nytimes.com/2026/09/03/world/europe/spain-morocco-ceuta-sanchez.html
+
+**Rival Ukrainian Intelligence Units Open Fire Against Each Other in Kyiv**\
+`President Volodymyr Zelensky described the shootout on the streets of the Ukrainian capital as an “absolutely shameful event” and ordered an investigation.`\
+https://www.nytimes.com/2026/09/03/world/europe/rival-ukrainian-intelligence-units-open-fire-against-each-other-in-kyiv.html
+
 **Lindsay Clancy Trial Draws Range of Spectators to Courtroom**\
 `Many came to support women who have experienced postpartum mental illness.`\
 https://www.nytimes.com/2026/09/03/us/lindsay-clancy-courtroom.html
