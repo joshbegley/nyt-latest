@@ -1,3 +1,7 @@
+**Los Angeles District Bans Most A.I. for Students**\
+`New York City announced a similar plan. The Los Angeles moratorium appears to go further with strict limits even for older students.`\
+https://www.nytimes.com/2026/09/03/us/lausd-schools-ban-ai-artificial-intelligence.html
+
 **Thousands in Spain Protest Over Migration Crisis in Ceuta**\
 `Protesters in Spain on Wednesday demonstrated against the government’s response to a migrant surge in Ceuta. Spain’s prime minister on Thursday defended Morocco against claims that it had perhaps enabled the crisis.`\
 https://www.nytimes.com/video/world/europe/100000011130400/spain-migrants-protests-ceuta.html
