@@ -1,3 +1,7 @@
+**Where To Find Fast-Disappearing Prune Danishes and More Reader Questions**\
+`Plus train-appropriate sushi near Penn Station and a restaurant actually dedicated to Italian-style aperitivo hour.`\
+https://www.nytimes.com/2026/09/03/dining/reader-questions.html
+
 **New Yorkers: Share Your Thoughts About Israel, Gaza and Jewish Identity**\
 `The New York Times is looking to talk to Jewish New Yorkers about whether their views on Israel and the Israeli-Palestinian conflict have changed.`\
 https://www.nytimes.com/2026/09/03/nyregion/jewish-new-yorkers-israel-gaza.html
@@ -26,7 +30,7 @@ https://www.nytimes.com/2026/09/03/learning/how-to-use-the-learning-network.html
 `President Trump’s foreign adventurism will drive immigrants to the United States. And his anti-immigrant base knows it.`\
 https://www.nytimes.com/2026/09/03/opinion/politics/trump-immigration-iran.html
 
-**Read the Whistle-Blower’s Complaint Following ICE’s Hiring Surge**\
+**Read the Whistle-Blower’s Complaint Filed Amid ICE’s Hiring Surge**\
 `The New York Times obtained this whistle-blower complaint via a public records request to the Office of Inspector General in the Department of Homeland Security.`\
 https://www.nytimes.com/interactive/2026/09/03/us/ice-recruits-whistleblower-complaint.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/03/briefing/today-in-short.html
 **‘This Is Incredible. Sooo Flavorful and Light and Hearty’**\
 `Chile chicken and bean guisado, a reader favorite from our Weeknight 100.`\
 https://www.nytimes.com/2026/09/03/dining/this-is-incredible-sooo-flavorful-and-light-and-hearty.html
-
-**The Clancy Children: A ‘Girly Girl,’ a ‘Paw Patrol’ Fan and a Happy Baby**\
-`Trial testimony and photo exhibits told the story of Cora, Dawson and Callan.`\
-https://www.nytimes.com/2026/09/03/us/cora-dawson-callan-clancy-children.html
 
