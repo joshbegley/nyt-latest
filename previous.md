@@ -1,3 +1,11 @@
+**Hurricane Lowell Is Getting Closer to Hawaii, but How Close Is Still Uncertain**\
+`The Category 4 storm has been moving well south of the islands this week. It is expected to turn north sometime this weekend.`\
+https://www.nytimes.com/live/2026/09/03/weather/hurricane-lowell-hawaii-karina
+
+**Norway Seizes Russian Research Ship in the High Arctic**\
+`Empowered by an international court order, Norway captured the vessel as part of a global effort to seize Russian assets. The Russians called it “piracy.”`\
+https://www.nytimes.com/2026/09/03/world/europe/norway-russian-research-ship-arctic.html
+
 **Where To Find Fast-Disappearing Prune Danishes and More Reader Questions**\
 `Plus train-appropriate sushi near Penn Station and a restaurant actually dedicated to Italian-style aperitivo hour.`\
 https://www.nytimes.com/2026/09/03/dining/reader-questions.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/es/2026/09/03/espanol/cultura/muere-carla-jeffery-disney
 **Haiti intenta celebrar elecciones a pesar de la guerra de pandillas**\
 `Las elecciones de Haití están programadas para el 13 de diciembre, pero la violencia extrema podría retrasarlas. Comunidades enteras corren el riesgo de quedar aisladas de la votación.`\
 https://www.nytimes.com/es/2026/09/03/espanol/america-latina/haiti-elecciones-pandillas.html
-
-**Today, In Short**\
-`Ariana Grande. Box office hits. And coconut cake.`\
-https://www.nytimes.com/2026/09/03/briefing/today-in-short.html
-
-**‘This Is Incredible. Sooo Flavorful and Light and Hearty’**\
-`Chile chicken and bean guisado, a reader favorite from our Weeknight 100.`\
-https://www.nytimes.com/2026/09/03/dining/this-is-incredible-sooo-flavorful-and-light-and-hearty.html
 

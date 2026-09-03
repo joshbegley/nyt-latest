@@ -1,3 +1,7 @@
+**Clancy Defense Lawyer Says He Asked Judge to Dismiss Holdout Juror**\
+`Lindsay Clancy’s lawyer, Kevin Reddington, said in open court that the juror “refuses to listen to the law” about reasonable doubt.`\
+https://www.nytimes.com/2026/09/03/us/lindsay-clancy-trial-holdout-juror.html
+
 **Hurricane Lowell Is Getting Closer to Hawaii, but How Close Is Still Uncertain**\
 `The Category 4 storm has been moving well south of the islands this week. It is expected to turn north sometime this weekend.`\
 https://www.nytimes.com/live/2026/09/03/weather/hurricane-lowell-hawaii-karina
@@ -102,7 +106,7 @@ https://www.nytimes.com/2026/09/03/us/burning-man-gen-z-millennials-attendance.h
 `The popular online blind date show, set at a fried chicken shop in London, became a celebrity magnet in recent months.`\
 https://www.nytimes.com/2026/09/03/style/amelia-dimoldenberg-chicken-shop-date.html
 
-**What Happened When Gloria Steinem Was 22, Pregnant and Fleeing Her Old Life**\
+**Why a Doctor Told Gloria Steinem: ‘You Must Promise Me Two Things’**\
 `Gloria Steinem got to be who she was because of a pre-Roe abortion.`\
 https://www.nytimes.com/2026/09/03/opinion/gloria-steinem-feminism-abortion.html
 
@@ -123,7 +127,7 @@ https://www.nytimes.com/2026/09/03/us/minneapolis-shooting-attacker-eviction.htm
 https://www.nytimes.com/2026/09/03/dining/how-to-cook-for-your-friends-at-an-airbnb.html
 
 **Bessent Blames Ukraine for High Energy Prices**\
-`After meeting with Russia’s finance minister, the Treasury secretary said Ukraine’s attacks on Russian oil infrastructure were contributing to a global energy shock driven mainly by the US war with Iran.`\
+`After meeting with Russia’s finance minister, the Treasury secretary said Ukraine’s attacks on Russian oil infrastructure were contributing to a global energy shock driven mainly by the U.S. war with Iran.`\
 https://www.nytimes.com/2026/09/03/business/bessent-energy-prices-ukraine.html
 
 **Israel Is Expected to Release Lebanese Prisoners, in Rare Sign of Progress**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/03/theater/public-record-musical-new-york.html
 **Muere Carla Jeffery, actriz de las películas de Disney ‘Zombies’**\
 `Jeffery también apareció en varias series de Nickelodeon, como “¡Buena suerte, Charlie!”, y tuvo un papel recurrente en el programa de HBO “Curb Your Enthusiasm”.`\
 https://www.nytimes.com/es/2026/09/03/espanol/cultura/muere-carla-jeffery-disney.html
-
-**Haiti intenta celebrar elecciones a pesar de la guerra de pandillas**\
-`Las elecciones de Haití están programadas para el 13 de diciembre, pero la violencia extrema podría retrasarlas. Comunidades enteras corren el riesgo de quedar aisladas de la votación.`\
-https://www.nytimes.com/es/2026/09/03/espanol/america-latina/haiti-elecciones-pandillas.html
 
