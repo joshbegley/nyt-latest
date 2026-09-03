@@ -1,3 +1,11 @@
+**Thousands in Spain Protest Over Migration Crisis in Ceuta**\
+`Protesters in Spain on Wednesday demonstrated against the government’s response to a migrant surge in Ceuta. Spain’s prime minister on Thursday defended Morocco against claims that it had perhaps enabled the crisis.`\
+https://www.nytimes.com/video/world/europe/100000011130400/spain-migrants-protests-ceuta.html
+
+**Attacker in Minneapolis Shooting Had Threatened Residents, Records Show**\
+`The gunman, who fatally shot two people and wounded several others at an apartment building where he lived, was facing eviction.`\
+https://www.nytimes.com/2026/09/03/us/minneapolis-shooting-attacker-eviction.html
+
 **How to Cook for Your Friends at an Airbnb**\
 `If you’re skipping town this Labor Day weekend, or if you’re planning a cozy escape with friends or family this fall, here’s what you might want to cook up.`\
 https://www.nytimes.com/2026/09/03/dining/how-to-cook-for-your-friends-at-an-airbnb.html
@@ -14,7 +22,7 @@ https://www.nytimes.com/2026/09/03/world/middleeast/israel-lebanon-prisoners-rel
 `The charges marked a rare instance of President Trump’s Justice Department accusing a federal agent of breaking the law while on the job.`\
 https://www.nytimes.com/2026/09/03/us/federal-prosecution-minnesota-ice-shooting.html
 
-**So It’s Gonna Be Ohio? This Tiny Village Is Ready for Taylor Swift and Travis Kelce.**\
+**Travis Kelce’s New Ohio Home Has Neighbors Buzzing With Excitement About Taylor Swift**\
 `The wealthy enclave of Bratenahl, Ohio, has been aflutter after learning that Travis Kelce purchased a Lake Erie mansion.`\
 https://www.nytimes.com/2026/09/03/us/bratenahl-ohio-taylor-swift-travis-kelce.html
 
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/09/03/technology/nvidia-hugging-face.html
 **Oil Jumps for Fourth Straight Day and Diesel Nears Record High**\
 `This week’s renewed strikes by the United States and Iran strain the flow of energy and diminish expectations the disruption will end soon.`\
 https://www.nytimes.com/2026/09/03/business/oil-diesel-prices-iran-war.html
-
-**Gloria Steinem Came to New York to Be a Writer. She Became a Movement.**\
-`Her 1983 book “Outrageous Acts and Everyday Rebellions” is a master class in grit, empathy, curiosity and hustle.`\
-https://www.nytimes.com/2026/09/03/books/review/gloria-steinem-writing-appraisal.html
-
-**Vietnam Sentences 11 to Death Penalty in Drug Trafficking Case**\
-`The authorities said they uncovered the network after four flight attendants arriving from Paris were found with narcotics hidden in toothpaste tubes.`\
-https://www.nytimes.com/2026/09/03/world/asia/vietnam-death-penalty-drug-trafficking.html
 

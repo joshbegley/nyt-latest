@@ -1,3 +1,15 @@
+**Thousands in Spain Protest Over Migration Crisis in Ceuta**\
+`Protesters in Spain on Wednesday demonstrated against the government’s response to a migrant surge in Ceuta. Spain’s prime minister on Thursday defended Morocco against claims that it had perhaps enabled the crisis.`\
+https://www.nytimes.com/video/world/europe/100000011130400/spain-migrants-protests-ceuta.html
+
+**Attacker in Minneapolis Shooting Had Threatened Residents, Records Show**\
+`The gunman, who fatally shot two people and wounded several others at an apartment building where he lived, was facing eviction.`\
+https://www.nytimes.com/2026/09/03/us/minneapolis-shooting-attacker-eviction.html
+
+**Travis Kelce’s New Ohio Home Has Neighbors Buzzing With Excitement About Taylor Swift**\
+`The wealthy enclave of Bratenahl, Ohio, has been aflutter after learning that Travis Kelce purchased a Lake Erie mansion.`\
+https://www.nytimes.com/2026/09/03/us/bratenahl-ohio-taylor-swift-travis-kelce.html
+
 **How to Cook for Your Friends at an Airbnb**\
 `If you’re skipping town this Labor Day weekend, or if you’re planning a cozy escape with friends or family this fall, here’s what you might want to cook up.`\
 https://www.nytimes.com/2026/09/03/dining/how-to-cook-for-your-friends-at-an-airbnb.html
