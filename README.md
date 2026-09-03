@@ -1,3 +1,11 @@
+**Israel Is Expected to Release Lebanese Prisoners, in Rare Sign of Progress**\
+`The move would come amid struggling talks between Israel and Lebanon aimed at disarming Hezbollah and ending Israel’s invasion.`\
+https://www.nytimes.com/2026/09/03/world/middleeast/israel-lebanon-prisoners-release.html
+
+**Federal Prosecutors Charge ICE Agent With Lying About Minnesota Shooting**\
+`The charges marked a rare instance of President Trump’s Justice Department accusing a federal agent of breaking the law while on the job.`\
+https://www.nytimes.com/2026/09/03/us/federal-prosecution-minnesota-ice-shooting.html
+
 **So It’s Gonna Be Ohio? This Tiny Village Is Ready for Taylor Swift and Travis Kelce.**\
 `The wealthy enclave of Bratenahl, Ohio, has been aflutter after learning that Travis Kelce purchased a Lake Erie mansion.`\
 https://www.nytimes.com/2026/09/03/us/bratenahl-ohio-taylor-swift-travis-kelce.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/09/03/theater/electra-persona-national-theatre-cate
 **Gloria Steinem’s Glamour Was a Means to an End**\
 `The glasses, the hairdo, the bell bottoms and hip-slung belts were all wrapped up in her feminist cause.`\
 https://www.nytimes.com/2026/09/03/style/gloria-steinem-style-feminism.html
-
-**Pete Hegseth’s Military**\
-`We look at the department during his tenure.`\
-https://www.nytimes.com/2026/09/03/briefing/pete-hegseths-military.html
-
-**Gloria Steinem, Personification of the Feminist Movement, Dies at 92**\
-`She challenged sexist assumptions, helping women develop a sense of self-worth and gain a measure of equality at work, at home and in society at large.`\
-https://www.nytimes.com/2026/09/03/us/politics/gloria-steinem-dead.html
 
