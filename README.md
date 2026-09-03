@@ -90,10 +90,6 @@ https://www.nytimes.com/interactive/2026/09/03/us/ice-recruits-whistleblower-com
 `El presidente del gobierno de España dijo que el papel de las autoridades marroquíes en momentos clave debía ser ‘aclarado’. Pero rechazó cualquier sugerencia de que hubieran planeado la crisis.`\
 https://www.nytimes.com/es/2026/09/03/espanol/mundo/espana-marruecos-ceuta-sanchez.html
 
-**Judge Suggests Trump Mail-In Voting Rules Could Cause ‘Major Disenfranchisement’**\
-`Judge Indira Talwani said the Postal Service appeared to be trying a haphazard “experiment” with a new rule that could result in valid ballots being tossed.`\
-https://www.nytimes.com/2026/09/03/us/politics/mail-ballots-usps-restraining-order.html
-
 **Man Is Sentenced in Explosion of Hyperbaric Chamber That Killed a 5-Year-Old**\
 `The former safety manager of a Michigan alternative health care center will spend at least 19 months in jail in connection with the January 2025 death.`\
 https://www.nytimes.com/2026/09/03/us/hyperbaric-chamber-child-death-michigan-sentencing.html
@@ -197,4 +193,8 @@ https://www.nytimes.com/es/2026/09/03/espanol/equilibrio-ejercicios-envejecimien
 **Is Letting Only Seniors Vote by Mail Unconstitutional?**\
 `Federal appeals courts have split on the question, making Supreme Court review likely.`\
 https://www.nytimes.com/2026/09/03/us/politics/the-docket-senior-mail-ballot.html
+
+**Trump Administration Live Updates: Vance Says ‘I Don’t Know’ if Iran War Will Be Over by Midterms**\
+`(No description)`\
+https://www.nytimes.com/live/2026/09/03/us/trump-news
 
