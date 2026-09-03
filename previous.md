@@ -1,3 +1,7 @@
+**Man Is Sentenced in Explosion of Hyperbaric Chamber That Killed a 5-Year-Old**\
+`The former safety manager of a Michigan alternative health care center will spend at least 19 months in jail in connection with the January 2025 death.`\
+https://www.nytimes.com/2026/09/03/us/hyperbaric-chamber-child-death-michigan-sentencing.html
+
 **El ICE omitió verificaciones básicas en su prisa por reclutar agentes, según un denunciante**\
 `Un funcionario que supervisó la evaluación de reclutas del ICE citó una “reducción de estándares sin precedentes” en medio de un aumento de contrataciones.`\
 https://www.nytimes.com/es/2026/09/03/espanol/estados-unidos/ice.html
@@ -10,7 +14,7 @@ https://www.nytimes.com/2026/09/03/arts/music/gene-bertoncini-dead.html
 `Readers connect the Nepal disaster to the effects of climate change. Also: Afghan girls’ schools; a bad deal in Yosemite; helping farmers; saving wild horses.`\
 https://www.nytimes.com/2026/09/03/opinion/nepal-climate.html
 
-**Maria Bartiromo Leaves Fox News**\
+**Maria Bartiromo Is Out at Fox News**\
 `The host, who appeared on Fox Business and Fox News, had been with the network for more than 12 years.`\
 https://www.nytimes.com/2026/09/03/business/media/fox-news-maria-bartiromo.html
 
@@ -189,10 +193,6 @@ https://www.nytimes.com/es/2026/09/03/espanol/cultura/muere-gloria-steinem.html
 **Scientists Find More Than 1,000 DNA Variants Linked to Personality Traits**\
 `More than one million genomes helped identify DNA variants linked to extroversion, agreeableness, neuroticism and more. Researchers measured how those traits influenced how people lived.`\
 https://www.nytimes.com/2026/09/03/science/genes-personality-traits.html
-
-**The Serpent**\
-`Animated VPP1`\
-http://brandedplaylist.nytimes.com/video/embedded/t-brand/100000011130666/the-serpent.html
 
 **Lindsay Clancy Trial Live Updates: Jury Tries to Break Deadlock**\
 `Jurors in the closely watched triple-murder case began a sixth day of deliberations after twice telling a judge they could not reach a verdict.`\

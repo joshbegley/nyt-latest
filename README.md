@@ -1,3 +1,7 @@
+**Judge Presses for Clarity in Lawsuit Over Mail-In Voting Rules**\
+`Judge Indira Talwani said the Postal Service appeared to be carrying out a haphazard “experiment” with a new rule that could lead to “major disenfranchisement.”`\
+https://www.nytimes.com/2026/09/03/us/politics/mail-ballots-usps-restraining-order.html
+
 **Man Is Sentenced in Explosion of Hyperbaric Chamber That Killed a 5-Year-Old**\
 `The former safety manager of a Michigan alternative health care center will spend at least 19 months in jail in connection with the January 2025 death.`\
 https://www.nytimes.com/2026/09/03/us/hyperbaric-chamber-child-death-michigan-sentencing.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/09/03/world/middleeast/west-bank-israel-palestinian
 **Muere Gloria Steinem, ícono del feminismo**\
 `Desafió los prejuicios sexistas y ayudó a las mujeres a desarrollar su sentido de autoestima y a obtener avances en la igualdad en el trabajo, en el hogar y en la sociedad en general.`\
 https://www.nytimes.com/es/2026/09/03/espanol/cultura/muere-gloria-steinem.html
-
-**Scientists Find More Than 1,000 DNA Variants Linked to Personality Traits**\
-`More than one million genomes helped identify DNA variants linked to extroversion, agreeableness, neuroticism and more. Researchers measured how those traits influenced how people lived.`\
-https://www.nytimes.com/2026/09/03/science/genes-personality-traits.html
 
 **Lindsay Clancy Trial Live Updates: Jury Tries to Break Deadlock**\
 `Jurors in the closely watched triple-murder case began a sixth day of deliberations after twice telling a judge they could not reach a verdict.`\
