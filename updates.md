@@ -1,3 +1,15 @@
+**Rival Ukrainian Intelligence Units Open Fire Against Each Other in Kyiv**\
+`President Volodymyr Zelensky described the shootout on the streets of the Ukrainian capital as an “absolutely shameful event” and ordered an investigation.`\
+https://www.nytimes.com/2026/09/03/todayspaper/rival-ukrainian-intelligence-units-open-fire-against-each-other-in-kyiv.html
+
+**The Athletic Says Dianna Russini’s Relationship With Mike Vrabel Violated Its Standards**\
+`The New York Times-owned publication said the relationship between its former reporter Dianna Russini and Mike Vrabel of the Patriots gave the appearance of a conflict of interest.`\
+https://www.nytimes.com/2026/09/03/business/athletic-russini-vrabel-relationship.html
+
+**It’s OK to Admit It. The State of the World Is Terrifying.**\
+`Exit, Trump. Enter, what?`\
+https://www.nytimes.com/2026/09/03/opinion/trump-trumpism-civics-education.html
+
 **How Courts Have Dealt With Postpartum Psychosis Cases**\
 `Defendants who claim to have had postpartum psychosis must meet a state’s definition of insanity to be found not guilty. The definitions of insanity vary.`\
 https://www.nytimes.com/2026/09/03/us/legal-outcomes-postpartum-psychosis-diagnosis.html

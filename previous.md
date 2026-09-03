@@ -1,3 +1,11 @@
+**Rival Ukrainian Intelligence Units Open Fire Against Each Other in Kyiv**\
+`President Volodymyr Zelensky described the shootout on the streets of the Ukrainian capital as an “absolutely shameful event” and ordered an investigation.`\
+https://www.nytimes.com/2026/09/03/todayspaper/rival-ukrainian-intelligence-units-open-fire-against-each-other-in-kyiv.html
+
+**The Athletic Says Dianna Russini’s Relationship With Mike Vrabel Violated Its Standards**\
+`The New York Times-owned publication said the relationship between its former reporter Dianna Russini and Mike Vrabel of the Patriots gave the appearance of a conflict of interest.`\
+https://www.nytimes.com/2026/09/03/business/athletic-russini-vrabel-relationship.html
+
 **How Courts Have Dealt With Postpartum Psychosis Cases**\
 `Defendants who claim to have had postpartum psychosis must meet a state’s definition of insanity to be found not guilty. The definitions of insanity vary.`\
 https://www.nytimes.com/2026/09/03/us/legal-outcomes-postpartum-psychosis-diagnosis.html
@@ -142,8 +150,8 @@ https://www.nytimes.com/2026/09/03/world/europe/russia-ukraine-escalation.html
 `Marco Rubio is taking the wrong approach to free speech.`\
 https://www.nytimes.com/2026/09/03/opinion/trump-rubio-free-speech-judges.html
 
-**Exit, Trump. Enter, What?**\
-`It’s OK to admit it. The state of the world is terrifying.`\
+**It’s OK to Admit It. The State of the World Is Terrifying.**\
+`Exit, Trump. Enter, what?`\
 https://www.nytimes.com/2026/09/03/opinion/trump-trumpism-civics-education.html
 
 **Can the Lindsay Clancy Jury Break Its Deadlock?**\
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/09/03/style/us-open-fashion-outfits.html
 **What Did Jurassic Forests Sound Like? Like This.**\
 `Scientists spent over a decade reconstructing the calls of nine species of ancient insects to create the first accurate Jurassic soundscape.`\
 https://www.nytimes.com/2026/09/03/science/what-did-jurassic-forests-sound-like-like-this.html
-
-**Many Italians Long Resisted Air-Conditioning. Then Europe Got Hotter.**\
-`Amid record-breaking temperatures on the continent, households and businesses in Italy are increasingly installing cooling units.`\
-https://www.nytimes.com/2026/09/03/world/europe/italy-air-conditioning-heat.html
-
-**How Families Develop Their Own Private Language**\
-`“Familects” emerge out of in-jokes and mispronunciations, but they reveal something about how all language evolves.`\
-https://www.nytimes.com/2026/09/03/magazine/family-private-language-vocabulary-familect.html
 
