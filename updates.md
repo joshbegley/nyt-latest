@@ -1,3 +1,19 @@
+**In a First, a Pig Kidney Kept a Patient Alive Until He Got a Human One**\
+`Tim Andrews was the first patient to receive a genetically modified pig kidney as a “bridge” to a human organ transplant.`\
+https://www.nytimes.com/2026/09/03/well/pig-kidney-bridge-transplant.html
+
+**Holdout Juror Throws the Clancy Murder Case Into Disarray**\
+`The five-week case looked set to end, until the jury sent a note saying that a member refused to recognize the proper definition of reasonable doubt. The defense lawyer said an inquiry was planned for Friday morning.`\
+https://www.nytimes.com/2026/09/03/us/holdout-juror-lindsay-clancy-trial.html
+
+**Cold Peanut Ginger Noodles**\
+`A combination of crunchy peanut butter and sesame oil gives the dressing an earthy nuttiness, which contrasts with the heat of chile crisp and tanginess of lime juice. But the real draw is a sprinkling of chopped crystallized ginger, which adds sweet-spicy chewiness amid the cold noodles and cucumbers.`\
+https://www.nytimes.com/video/dining/100000011126279/cold-peanut-ginger-noodles.html
+
+**Candidate Accused of Plotting to Plant Drugs on His Opponent**\
+`The narrow winner of the Republican primary for a Missouri House seat faces a federal charge.`\
+https://www.nytimes.com/2026/09/03/us/republican-primary-campaign-missouri-cocaine.html
+
 **Tesla Begins Offering Rides in a Car Without a Steering Wheel**\
 `The new Cybercab embodies Elon Musk’s vision of cars that drive themselves, but it is not clear when the vehicle will be widely available.`\
 https://www.nytimes.com/2026/09/03/business/tesla-cybercab-robotaxi-rides.html
