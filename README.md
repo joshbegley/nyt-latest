@@ -1,3 +1,15 @@
+**Dutch Central Bank Cuts Gold Reserves in U.S., Citing ‘Geopolitical Unrest’**\
+`The Netherlands moved some 90 tons of gold out of the Federal Reserve Bank in New York, the second European nation this year to announce it had decreased or eliminated U.S. gold holdings.`\
+https://www.nytimes.com/2026/09/03/world/europe/netherlands-gold-reserves-us.html
+
+**Summer in the City: The U.S. Open Is in Full Swing**\
+`With high stakes and plenty of stars, the tournament is about to get really interesting.`\
+https://www.nytimes.com/2026/09/03/nyregion/summer-in-the-city-us-open.html
+
+**Mortgage Rates Climb to Highest Level Since July 2025**\
+`Higher costs for home loans have put a squeeze on the housing market, adding pressure to consumers already struggling with elevated inflation.`\
+https://www.nytimes.com/2026/09/03/business/mortgage-rates-housing.html
+
 **Clancy Defense Lawyer Says He Asked Judge to Dismiss Holdout Juror**\
 `Lindsay Clancy’s lawyer, Kevin Reddington, said in open court that the juror “refuses to listen to the law” about reasonable doubt.`\
 https://www.nytimes.com/2026/09/03/us/lindsay-clancy-trial-holdout-juror.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/09/03/us/clancy-lawyer-kevin-reddington.html
 **Spain’s Leader Questions Morocco Border Control During Ceuta Migrant Surge**\
 `Prime Minister Pedro Sánchez of Spain said the role of Moroccan authorities at key moments needed to be “clarified.” But he rejected any suggestion they had planned the crisis.`\
 https://www.nytimes.com/2026/09/03/world/europe/spain-morocco-ceuta-sanchez.html
-
-**Lindsay Clancy Trial Draws Range of Spectators to Courtroom**\
-`Many came to support women who have experienced postpartum mental illness.`\
-https://www.nytimes.com/2026/09/03/us/lindsay-clancy-courtroom.html
-
-**The Show That Makes New Yorkers the Stars of Their Own City**\
-`The cast of 100 in “Public Record,” almost all amateurs, spotlights people who open their hearts and share their stories for five nights at the Delacorte Theater.`\
-https://www.nytimes.com/2026/09/03/theater/public-record-musical-new-york.html
-
-**Muere Carla Jeffery, actriz de las películas de Disney ‘Zombies’**\
-`Jeffery también apareció en varias series de Nickelodeon, como “¡Buena suerte, Charlie!”, y tuvo un papel recurrente en el programa de HBO “Curb Your Enthusiasm”.`\
-https://www.nytimes.com/es/2026/09/03/espanol/cultura/muere-carla-jeffery-disney.html
 

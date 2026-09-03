@@ -1,3 +1,15 @@
+**Clancy Defense Lawyer Says He Asked Judge to Dismiss Holdout Juror**\
+`Lindsay Clancy’s lawyer, Kevin Reddington, said in open court that the juror “refuses to listen to the law” about reasonable doubt.`\
+https://www.nytimes.com/2026/09/03/us/lindsay-clancy-trial-holdout-juror.html
+
+**Why a Doctor Told Gloria Steinem: ‘You Must Promise Me Two Things’**\
+`Gloria Steinem got to be who she was because of a pre-Roe abortion.`\
+https://www.nytimes.com/2026/09/03/opinion/gloria-steinem-feminism-abortion.html
+
+**Bessent Blames Ukraine for High Energy Prices**\
+`After meeting with Russia’s finance minister, the Treasury secretary said Ukraine’s attacks on Russian oil infrastructure were contributing to a global energy shock driven mainly by the U.S. war with Iran.`\
+https://www.nytimes.com/2026/09/03/business/bessent-energy-prices-ukraine.html
+
 **Hurricane Lowell Is Getting Closer to Hawaii, but How Close Is Still Uncertain**\
 `The Category 4 storm has been moving well south of the islands this week. It is expected to turn north sometime this weekend.`\
 https://www.nytimes.com/live/2026/09/03/weather/hurricane-lowell-hawaii-karina
