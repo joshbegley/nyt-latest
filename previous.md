@@ -1,8 +1,16 @@
+**Rate Rise in Play as Fed Officials Await Inflation Data**\
+`Christopher J. Waller, a Federal Reserve governor, sounded optimistic about inflation’s trajectory but indicated he would support higher rates if progress does not continue.`\
+https://www.nytimes.com/2026/09/03/business/rate-rise-in-play-as-fed-officials-await-inflation-data.html
+
+**Feminist Leader Gloria Steinem Dies at 92**\
+`Gloria Steinem, the feminist icon and co-founder of Ms. magazine, died on Wednesday at her home in New York City. She was 92.`\
+https://www.nytimes.com/video/us/100000011111650/feminist-leader-gloria-steinem-dies-at-92.html
+
 **‘Brailled It’ Review: A Matter of Perspective**\
 `This experimental documentary follows three students as they compete in an annual Braille tournament in Los Angeles.`\
 https://www.nytimes.com/2026/09/03/movies/brailled-it-review.html
 
-**Nvidia Extends A.I. Spending Spree With $12.9 Billion Deal for Hugging Face**\
+**Nvidia Buys Hugging Face in $12.9 Billion Deal**\
 `The acquisition of the start-up is an indication of Nvidia’s growing role as Silicon Valley’s central banker and its emphasis on open-source technology.`\
 https://www.nytimes.com/2026/09/03/technology/nvidia-hugging-face.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/03/travel/labor-day-travel-what-to-know.html
 **Philadelphia High School Football Coaches Learn to Tackle Emotions**\
 `A training program for coaches in Philadelphia seeks to help players deal with trauma off the field.`\
 https://www.nytimes.com/2026/09/03/headway/youth-football-mental-health.html
-
-**In Northern Italy, Two Old Homes Reimagined by One Designer**\
-`With both her apartment in Brescia, Italy — a repurposed rectory — and country house near Lake Iseo, Paola Moretti sought to bring out the buildings’ souls.`\
-https://www.nytimes.com/2026/09/03/t-magazine/in-northern-italy-two-old-homes-reimagined-by-one-designer.html
-
-**House Tour | Paola Moretti**\
-`The interior designer shows off her two very different homes: a pared-down mountain house and a city apartment in a converted church rectory.`\
-https://www.nytimes.com/video/t-magazine/100000011120778/house-tour-paola-moretti.html
 

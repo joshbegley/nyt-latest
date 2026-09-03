@@ -1,3 +1,15 @@
+**Rate Rise in Play as Fed Officials Await Inflation Data**\
+`Christopher J. Waller, a Federal Reserve governor, sounded optimistic about inflation’s trajectory but indicated he would support higher rates if progress does not continue.`\
+https://www.nytimes.com/2026/09/03/business/rate-rise-in-play-as-fed-officials-await-inflation-data.html
+
+**Feminist Leader Gloria Steinem Dies at 92**\
+`Gloria Steinem, the feminist icon and co-founder of Ms. magazine, died on Wednesday at her home in New York City. She was 92.`\
+https://www.nytimes.com/video/us/100000011111650/feminist-leader-gloria-steinem-dies-at-92.html
+
+**Nvidia Buys Hugging Face in $12.9 Billion Deal**\
+`The acquisition of the start-up is an indication of Nvidia’s growing role as Silicon Valley’s central banker and its emphasis on open-source technology.`\
+https://www.nytimes.com/2026/09/03/technology/nvidia-hugging-face.html
+
 **‘Brailled It’ Review: A Matter of Perspective**\
 `This experimental documentary follows three students as they compete in an annual Braille tournament in Los Angeles.`\
 https://www.nytimes.com/2026/09/03/movies/brailled-it-review.html
