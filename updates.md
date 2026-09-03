@@ -1,3 +1,7 @@
+**Pete Hegseth’s Military**\
+`We look at the department during his tenure.`\
+https://www.nytimes.com/2026/09/03/briefing/pete-hegseths-military.html
+
 **Gloria Steinem, Personification of the Women’s Movement, Dies at 92**\
 `She challenged sexist assumptions, helping women develop a sense of self-worth and gain a measure of equality at work, at home and in society at large.`\
 https://www.nytimes.com/2026/09/03/us/politics/gloria-steinem-dead.html
