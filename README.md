@@ -1,3 +1,11 @@
+**Burning Man Draws an Older, Wealthier Crowd, Data Shows**\
+`Last year, just 1 in ten festivalgoers were in their 20s, according to researchers. A decade ago, the same group represented nearly 30 percent of attendees.`\
+https://www.nytimes.com/2026/09/03/us/burning-man-gen-z-millennials-attendance.html
+
+**Amelia Dimoldenberg Closes ‘Chicken Shop Date’**\
+`The popular online blind date show, set at a fried chicken shop in London, became a celebrity magnet in recent months.`\
+https://www.nytimes.com/2026/09/03/style/amelia-dimoldenberg-chicken-shop-date.html
+
 **Gloria Steinem Died With Unfinished Business**\
 `Gloria Steinem got to be who she was because of a pre-Roe abortion.`\
 https://www.nytimes.com/2026/09/03/opinion/gloria-steinem-feminism-abortion.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/09/03/style/gloria-steinem-photos.html
 **Rate Rise in Play as Fed Officials Await Inflation Data**\
 `Christopher J. Waller, a Federal Reserve governor, sounded optimistic about inflation’s trajectory but indicated he would support higher rates if progress does not continue.`\
 https://www.nytimes.com/2026/09/03/business/interest-rates-inflation-federal-reserve.html
-
-**Feminist Leader Gloria Steinem Dies at 92**\
-`Gloria Steinem, the feminist icon and co-founder of Ms. magazine, died on Wednesday at her home in New York City. She was 92.`\
-https://www.nytimes.com/video/us/100000011111650/feminist-leader-gloria-steinem-dies-at-92.html
-
-**‘Brailled It’ Review: A Matter of Perspective**\
-`This experimental documentary follows three students as they compete in an annual Braille tournament in Los Angeles.`\
-https://www.nytimes.com/2026/09/03/movies/brailled-it-review.html
 

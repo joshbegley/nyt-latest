@@ -1,3 +1,7 @@
+**Gloria Steinem Died With Unfinished Business**\
+`Gloria Steinem got to be who she was because of a pre-Roe abortion.`\
+https://www.nytimes.com/2026/09/03/opinion/gloria-steinem-feminism-abortion.html
+
 **Los Angeles District Bans Most A.I. for Students**\
 `New York City announced a similar plan. The Los Angeles moratorium appears to go further with strict limits even for older students.`\
 https://www.nytimes.com/2026/09/03/us/lausd-schools-ban-ai-artificial-intelligence.html
