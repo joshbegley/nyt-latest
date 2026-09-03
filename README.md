@@ -103,7 +103,7 @@ https://www.nytimes.com/2026/09/03/business/athletic-russini-vrabel-relationship
 https://www.nytimes.com/2026/09/03/us/legal-outcomes-postpartum-psychosis-diagnosis.html
 
 **After Trump Rift, Musk Begins Spending to Boost Republicans**\
-`Elon Musk plans to spend at least $100 million in more than a dozen competitive House and Senate races. The tech billionaire helped Donald Trump to victory in 2024.`\
+`Mr. Musk plans to spend at least $100 million in more than a dozen competitive House and Senate races. The tech billionaire helped Donald Trump to victory in 2024.`\
 https://www.nytimes.com/2026/09/03/us/elon-musk-republican-spending.html
 
 **Israeli Military Kills Two Palestinian Youths in Village Raid, Residents Say**\

@@ -1,3 +1,15 @@
+**Israel Is Expected to Release Lebanese Prisoners, in Rare Sign of Progress**\
+`The move would come amid struggling talks between Israel and Lebanon aimed at disarming Hezbollah and ending Israel’s invasion.`\
+https://www.nytimes.com/2026/09/03/world/middleeast/israel-lebanon-prisoners-release.html
+
+**Federal Prosecutors Charge ICE Agent With Lying About Minnesota Shooting**\
+`The charges marked a rare instance of President Trump’s Justice Department accusing a federal agent of breaking the law while on the job.`\
+https://www.nytimes.com/2026/09/03/us/federal-prosecution-minnesota-ice-shooting.html
+
+**So It’s Gonna Be Ohio? This Tiny Village Is Ready for Taylor Swift and Travis Kelce.**\
+`The wealthy enclave of Bratenahl, Ohio, has been aflutter after learning that Travis Kelce purchased a Lake Erie mansion.`\
+https://www.nytimes.com/2026/09/03/us/bratenahl-ohio-taylor-swift-travis-kelce.html
+
 **A New Exhibition at the Jack Shainman Gallery Highlights Gordon Parks’s Creative Community**\
 `Plus: the Southern grape exciting chefs, a new stay inside a converted 1930s L.A. church and more recommendations from T Magazine.`\
 https://www.nytimes.com/2026/09/03/t-magazine/gordon-parks-exhibition-jack-shainman-gallery.html
@@ -126,7 +138,7 @@ https://www.nytimes.com/interactive/polls/tennessee-us-senate-election-polls-202
 `Jurors in the closely watched triple-murder case began a sixth day of deliberations after twice telling a judge they could not reach a verdict.`\
 https://www.nytimes.com/live/2026/09/03/us/lindsay-clancy-trial-deadlock
 
-**Trump Moves to Strip Tax Exemption From Schools That Aid Minority Students**\
+**Schools Giving Aid to Minority Students Could Lose Tax Exemptions Under Trump’s New Rules**\
 `The Treasury Department released rules that would prevent schools with race-based programs from qualifying for tax-exempt status, a threat to both higher education and other private schools.`\
 https://www.nytimes.com/2026/09/03/business/economy/trump-irs-college-nonprofits.html
 
@@ -177,16 +189,4 @@ https://www.nytimes.com/2026/09/03/theater/electra-persona-national-theatre-cate
 **Gloria Steinem’s Glamour Was a Means to an End**\
 `The glasses, the hairdo, the bell bottoms and hip-slung belts were all wrapped up in her feminist cause.`\
 https://www.nytimes.com/2026/09/03/style/gloria-steinem-style-feminism.html
-
-**Pete Hegseth’s Military**\
-`We look at the department during his tenure.`\
-https://www.nytimes.com/2026/09/03/briefing/pete-hegseths-military.html
-
-**Gloria Steinem, Personification of the Feminist Movement, Dies at 92**\
-`She challenged sexist assumptions, helping women develop a sense of self-worth and gain a measure of equality at work, at home and in society at large.`\
-https://www.nytimes.com/2026/09/03/us/politics/gloria-steinem-dead.html
-
-**In Her Words: Gloria Steinem**\
-`In a never-before-seen 2008 interview with The New York Times, Ms. Steinem reflected on her career as a writer, organizer and fund-raiser.`\
-https://www.nytimes.com/video/obituaries/100000003009467/the-last-word-gloria-steinem-obituary.html
 

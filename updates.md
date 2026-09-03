@@ -1,3 +1,19 @@
+**Israel Is Expected to Release Lebanese Prisoners, in Rare Sign of Progress**\
+`The move would come amid struggling talks between Israel and Lebanon aimed at disarming Hezbollah and ending Israel’s invasion.`\
+https://www.nytimes.com/2026/09/03/world/middleeast/israel-lebanon-prisoners-release.html
+
+**Federal Prosecutors Charge ICE Agent With Lying About Minnesota Shooting**\
+`The charges marked a rare instance of President Trump’s Justice Department accusing a federal agent of breaking the law while on the job.`\
+https://www.nytimes.com/2026/09/03/us/federal-prosecution-minnesota-ice-shooting.html
+
+**So It’s Gonna Be Ohio? This Tiny Village Is Ready for Taylor Swift and Travis Kelce.**\
+`The wealthy enclave of Bratenahl, Ohio, has been aflutter after learning that Travis Kelce purchased a Lake Erie mansion.`\
+https://www.nytimes.com/2026/09/03/us/bratenahl-ohio-taylor-swift-travis-kelce.html
+
+**Schools Giving Aid to Minority Students Could Lose Tax Exemptions Under Trump’s New Rules**\
+`The Treasury Department released rules that would prevent schools with race-based programs from qualifying for tax-exempt status, a threat to both higher education and other private schools.`\
+https://www.nytimes.com/2026/09/03/business/economy/trump-irs-college-nonprofits.html
+
 **A New Exhibition at the Jack Shainman Gallery Highlights Gordon Parks’s Creative Community**\
 `Plus: the Southern grape exciting chefs, a new stay inside a converted 1930s L.A. church and more recommendations from T Magazine.`\
 https://www.nytimes.com/2026/09/03/t-magazine/gordon-parks-exhibition-jack-shainman-gallery.html
