@@ -1,3 +1,11 @@
+**Steinem’s Home, Where Feminism Flourished, Will Remain a Gathering Place**\
+`Following Ms. Steinem’s death on Wednesday, her foundation said her Upper East Side home would become a permanent space for organizing and activism.`\
+https://www.nytimes.com/2026/09/03/nyregion/gloria-steinem-home-new-york.html
+
+**Trump Administration Live Updates: Vance Says ‘I Don’t Know’ if Iran War Will Be Over by Midterms**\
+`(No description)`\
+https://www.nytimes.com/live/2026/09/03/us/trump-news
+
 **Schools Aiding Minority Students Could Lose Tax-Exempt Status**\
 `Also, Gloria Steinem died at 92. Here’s the latest at the end of Thursday.`\
 https://www.nytimes.com/2026/09/03/briefing/colleges-tax-exemption-gloria-steinem.html

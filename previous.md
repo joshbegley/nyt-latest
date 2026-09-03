@@ -1,3 +1,7 @@
+**Steinem’s Home, Where Feminism Flourished, Will Remain a Gathering Place**\
+`Following Ms. Steinem’s death on Wednesday, her foundation said her Upper East Side home would become a permanent space for organizing and activism.`\
+https://www.nytimes.com/2026/09/03/nyregion/gloria-steinem-home-new-york.html
+
 **Schools Aiding Minority Students Could Lose Tax-Exempt Status**\
 `Also, Gloria Steinem died at 92. Here’s the latest at the end of Thursday.`\
 https://www.nytimes.com/2026/09/03/briefing/colleges-tax-exemption-gloria-steinem.html
@@ -89,10 +93,6 @@ https://www.nytimes.com/interactive/2026/09/03/us/ice-recruits-whistleblower-com
 **Pedro Sánchez cuestiona el control fronterizo de Marruecos ante la oleada de migrantes en Ceuta**\
 `El presidente del gobierno de España dijo que el papel de las autoridades marroquíes en momentos clave debía ser ‘aclarado’. Pero rechazó cualquier sugerencia de que hubieran planeado la crisis.`\
 https://www.nytimes.com/es/2026/09/03/espanol/mundo/espana-marruecos-ceuta-sanchez.html
-
-**Judge Suggests Trump Mail-In Voting Rules Could Cause ‘Major Disenfranchisement’**\
-`Judge Indira Talwani said the Postal Service appeared to be trying a haphazard “experiment” with a new rule that could result in valid ballots being tossed.`\
-https://www.nytimes.com/2026/09/03/us/politics/mail-ballots-usps-restraining-order.html
 
 **Man Is Sentenced in Explosion of Hyperbaric Chamber That Killed a 5-Year-Old**\
 `The former safety manager of a Michigan alternative health care center will spend at least 19 months in jail in connection with the January 2025 death.`\
@@ -194,7 +194,7 @@ https://www.nytimes.com/2026/09/03/us/lindsay-clancy-latarsha-sanders-retrial.ht
 `Mantenerse en pie no es una sola habilidad, sino más bien varios sistemas físicos, sensoriales y cognitivos que trabajan juntos. Aquí algunos consejos para ejercitarlos.`\
 https://www.nytimes.com/es/2026/09/03/espanol/equilibrio-ejercicios-envejecimiento.html
 
-**Is Letting Only Seniors Vote by Mail Unconstitutional?**\
-`Federal appeals courts have split on the question, making Supreme Court review likely.`\
-https://www.nytimes.com/2026/09/03/us/politics/the-docket-senior-mail-ballot.html
+**Trump Administration Live Updates: Vance Says ‘I Don’t Know’ if Iran War Will Be Over by Midterms**\
+`(No description)`\
+https://www.nytimes.com/live/2026/09/03/us/trump-news
 
