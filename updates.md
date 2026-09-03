@@ -1,3 +1,15 @@
+**Trump Taps Head of Army Corps of Engineers as Acting Army Secretary**\
+`The move came days after the resignation of Daniel P. Driscoll, who had clashed with Defense Secretary Pete Hegseth over the purge of top generals in the Army.`\
+https://www.nytimes.com/2026/09/03/us/politics/trump-acting-army-secretary.html
+
+**Trump to Break Ground on Arch Before Getting Approval**\
+`Doug Burgum, the interior secretary, announced plans to start work on the site of the 250-foot-tall triumphal arch. Final approval of the project is still pending.`\
+https://www.nytimes.com/2026/09/03/us/politics/trump-triumphal-arch-plans-approval.html
+
+**Missouri Supreme Court Delivers Win for Democrats in Redistricting Case**\
+`The court said a map redrawn to benefit Republicans could not be used in November and said voters should decide on the new boundaries. The state attorney general vowed to appeal the decision.`\
+https://www.nytimes.com/2026/09/03/us/missouri-supreme-court-redistricting-referendum.html
+
 **Volkswagen Plans to Cut 50,000 Jobs**\
 `Facing growing competition from China and rapidly advancing technology, the German auto giant said its board had approved a “comprehensive” overhaul.`\
 https://www.nytimes.com/2026/09/03/business/volkswagen-job-cuts.html

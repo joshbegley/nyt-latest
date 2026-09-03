@@ -1,3 +1,7 @@
+**Trump Taps Head of Army Corps of Engineers as Acting Army Secretary**\
+`The move came days after the resignation of Daniel P. Driscoll, who had clashed with Defense Secretary Pete Hegseth over the purge of top generals in the Army.`\
+https://www.nytimes.com/2026/09/03/us/politics/trump-acting-army-secretary.html
+
 **These Offbeat Wall Mirrors Do More Than Reflect**\
 `A roundup of colorful, intricate and otherwise unconventional pieces that will add personality to any room.`\
 https://www.nytimes.com/2026/09/03/t-magazine/best-decorative-mirrors.html
@@ -6,7 +10,7 @@ https://www.nytimes.com/2026/09/03/t-magazine/best-decorative-mirrors.html
 `The music venue, which opened in 2025, was built specifically for large concerts. The fate of its next show, featuring AC/DC, is unclear.`\
 https://www.nytimes.com/2026/09/03/world/canada/toronto-rogers-stadium-thunderstorm-damage.html
 
-**Plans Announced to Break Ground on Trump’s Triumphal Arch Before Final Approval**\
+**Trump to Break Ground on Arch Before Getting Approval**\
 `Doug Burgum, the interior secretary, announced plans to start work on the site of the 250-foot-tall triumphal arch. Final approval of the project is still pending.`\
 https://www.nytimes.com/2026/09/03/us/politics/trump-triumphal-arch-plans-approval.html
 
@@ -43,7 +47,7 @@ https://www.nytimes.com/2026/09/03/us/slava-veder-dead.html
 https://www.nytimes.com/2026/09/03/us/politics/trump-white-house-visitor-center-planning-commission.html
 
 **Missouri Supreme Court Delivers Win for Democrats in Redistricting Case**\
-`The court said a map redrawn to benefit Republicans could not be used in November. Voters will decide whether the new boundaries ever take effect.`\
+`The court said a map redrawn to benefit Republicans could not be used in November and said voters should decide on the new boundaries. The state attorney general vowed to appeal the decision.`\
 https://www.nytimes.com/2026/09/03/us/missouri-supreme-court-redistricting-referendum.html
 
 **New York Opens Inquiry Into Police Shooting of Pamela Cisneros After Times Square Stabbing**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/03/us/gloria-steinem-death-hillary-clinton-megha
 **Gloria Steinem on Marriage and Why She Got an Abortion at 22**\
 `In a never-before-seen interview with The New York Times, Gloria Steinem, the feminist icon, discusses marriage, her career and why she got an abortion in her twenties.`\
 https://www.nytimes.com/video/obituaries/100000011131297/gloria-steinem-obituary-last-word.html
-
-**Trump Administration Live Updates: Vance Says ‘I Don’t Know’ if Iran War Will Be Over by Midterms**\
-`(No description)`\
-https://www.nytimes.com/live/2026/09/03/us/trump-news
 
