@@ -1,3 +1,7 @@
+**An Early Look at the Lucas Museum of Narrative Art**\
+`The Lucas Museum of Narrative Art opened to the press for a first look at the filmmaker George Lucas’s legacy project. It is set to open to the public on Sept. 22.`\
+https://www.nytimes.com/video/arts/100000011130072/george-lucas-museum-narrative-art-la.html
+
 **El gobierno de Trump lanza una cacería contra un fraude electoral que nadie encuentra**\
 `El fraude electoral es extremadamente raro, pero el presidente Trump se ha obsesionado este año con erradicarlo, afirmando sin evidencia que decenas de miles de personas no ciudadanas están registradas para votar.`\
 https://www.nytimes.com/es/2026/09/03/espanol/estados-unidos/trump-medidas-fraude-electoral.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/02/us/politics/postal-service-ballot-screening-s
 **Paul S. Russell, an Innovator in Transplant Medicine, Dies at 101**\
 `In his over 70 years at Massachusetts General Hospital, he led the way in turning new findings in medical science into successes in clinical practice.`\
 https://www.nytimes.com/2026/09/02/obituaries/paul-russell-dead.html
-
-**Who Owns Reggaeton’s Beat? A Judge Throws Out One Claim.**\
-`A copyright suit against stars including Bad Bunny and Daddy Yankee came from the producers behind a trio of songs foundational to the genre.`\
-https://www.nytimes.com/2026/09/02/arts/music/reggaeton-lawsuit-bad-bunny.html
 

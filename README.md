@@ -1,3 +1,131 @@
+**‘Cocoon — One Summer of Girlhood’ Review: Patriotic Sacrifices**\
+`The animated film is inspired by the real-life events of the Himeyuri Corps, who were mobilized, and then abandoned, in Okinawa, Japan, during World War II.`\
+https://www.nytimes.com/2026/09/03/movies/cocoon-one-summer-of-girlhood-review.html
+
+**Homes for Sale in New York and New Jersey**\
+`This week’s properties are in Hamptons Bay, N.Y., and Manahawkin, N.J.`\
+https://www.nytimes.com/2026/09/03/realestate/housing-market-near-nyc.html
+
+**Which Investors Will Get Rich From Anthropic’s IPO?**\
+`When Anthropic goes public in a blockbuster offering, which investors will profit? The answer says a lot about how much start-up investing has changed over the years.`\
+https://www.nytimes.com/2026/09/03/technology/anthropic-ipo-investors-winners.html
+
+**The Black Polar Bears of Martha’s Vineyard**\
+`For 80 summers, vacationers on the island have waded into bracing water to satisfy a desire for fellowship and light cardio.`\
+https://www.nytimes.com/2026/09/03/style/polar-bears-marthas-vineyard.html
+
+**Homes for Sale in Manhattan and the Bronx**\
+`This week’s properties are in the financial district, Lenox Hill and Wakefield.`\
+https://www.nytimes.com/2026/09/03/realestate/housing-market-nyc.html
+
+**How Do You Run for Office in a Gang War?**\
+`Haitian election officials have set elections for Dec. 13, but many experts say extreme violence is likely to cause a postponement. Again.`\
+https://www.nytimes.com/2026/09/03/world/americas/haiti-election-gangs.html
+
+**Is Magnesium Better for Sleep Than Melatonin?**\
+`The supplement is rising in popularity among those hunting for better sleep. We asked experts whether the science justifies the hype.`\
+https://www.nytimes.com/2026/09/03/well/eat/magnesium-versus-melatonin-sleep.html
+
+**‘Chronovisor’ Review: A Late-Night Occult Mystery**\
+`This enchanting debut feature, about an academic who becomes fixated on an invention by an Italian priest, builds to an eerie climax.`\
+https://www.nytimes.com/2026/09/03/movies/chronovisor-review.html
+
+**‘The Sun Never Sets’ Review: Could She Do Better?**\
+`Dakota Fanning plays a woman in Alaska who must choose between her older boyfriend and her ex.`\
+https://www.nytimes.com/2026/09/03/movies/the-sun-never-sets-review.html
+
+**‘Onslaught’ Review: Too Much and Not Enough**\
+`A gory tribute to B-movies from the 1980s tries and fails to say something about forever wars.`\
+https://www.nytimes.com/2026/09/03/movies/onslaught-review.html
+
+**‘Mayday’ Review: Frenemies, a Cold War Story**\
+`Ryan Reynolds and Kenneth Branagh keep this “Top Gun”-inspired action comedy aloft.`\
+https://www.nytimes.com/2026/09/03/movies/mayday-review-frenemies-a-cold-war-story.html
+
+**‘Give It a Shot’ Review: Birth Control for Men**\
+`There’s a new birth control method — and this documentary asks men to take the title of the film seriously.`\
+https://www.nytimes.com/2026/09/03/movies/give-it-a-shot-review.html
+
+**Traveling During Labor Day Weekend? Here’s What to Know.**\
+`The T.S.A. expects to screen 17 million passengers over the holiday week. Here’s a look at gas prices, possible weather snags and how to stay safe on the road.`\
+https://www.nytimes.com/2026/09/03/travel/labor-day-travel-what-to-know.html
+
+**Philadelphia High School Football Coaches Learn to Tackle Emotions**\
+`A training program for coaches in Philadelphia seeks to help players deal with trauma off the field.`\
+https://www.nytimes.com/2026/09/03/headway/youth-football-mental-health.html
+
+**In Northern Italy, Two Old Homes Reimagined by One Designer**\
+`With both her apartment in Brescia, Italy — a repurposed rectory — and country house near Lake Iseo, Paola Moretti sought to bring out the buildings’ souls.`\
+https://www.nytimes.com/2026/09/03/t-magazine/in-northern-italy-two-old-homes-reimagined-by-one-designer.html
+
+**House Tour | Paola Moretti**\
+`The interior designer shows off her two very different homes: a pared-down mountain house and a city apartment in a converted church rectory.`\
+https://www.nytimes.com/video/t-magazine/100000011120778/house-tour-paola-moretti.html
+
+**Reading Jonathan Franzen’s ‘The Corrections,’ 25 Years Later**\
+`Jonathan Franzen’s novel, which put a Midwestern family under the microscope, came out a week before 9/11. Why are we still talking about it?`\
+https://www.nytimes.com/2026/09/03/books/review/the-corrections-jonathan-franzen-25th-anniversary.html
+
+**Gorgeous Make-Ahead Rosh Hashana Short Ribs, Courtesy of a Reader**\
+`This recipe not only tastes better with time, but also allows the cook to relax.`\
+https://www.nytimes.com/2026/09/03/dining/rosh-hashana-short-ribs-reader-recipe.html
+
+**What Ground Zero Should Have Been**\
+`25 years on, some regrets.`\
+https://www.nytimes.com/2026/09/03/opinion/ground-zero-world-trade-center-rebuilding.html
+
+**How a Blanket of Dough Becomes an Ethereal Pastry**\
+`Generations of women from a single Portuguese village have kept this delicate tradition alive.`\
+https://www.nytimes.com/interactive/2026/09/03/dining/pastry-portugal-pastel-tentugal-tradition.html
+
+**For Los Javis, Their Breakthrough ‘La Bola Negra’ Was Almost the End**\
+`Javier Calvo and Javier Ambrossi, a.k.a. Los Javis, are household names in Spain, in part for their relationship. But everything changed after their Cannes triumph “La Bola Negra.”`\
+https://www.nytimes.com/2026/09/03/movies/los-javis-la-bola-negra.html
+
+**Chain Saws and Joy: A Sculptor’s Evolution**\
+`Leilah Babirye, who emigrated to the United States from Uganda amid threats against L.G.B.T. people, puts queer life and belonging at the center of her art.`\
+https://www.nytimes.com/2026/09/03/arts/design/leilah-babirye-exhibit-boston.html
+
+**Best Thriller Books for Fans of ‘Succession’ and ‘Industry’**\
+`The best-selling author Linwood Barclay recommends his favorite thrillers set in the corporate world.`\
+https://www.nytimes.com/2026/09/03/books/thriller-books-succession-industry.html
+
+**Mundane Amtrak Data Becomes an Ensemble Performance in Train Jazz**\
+`Train Jazz captures and maps the choreography of the Amtrak network into a seven-instrument jazz ensemble, now playing on an internet-connected device near you.`\
+https://www.nytimes.com/2026/09/03/arts/music/jazz-train-amtrak-josh-wolk.html
+
+**The New Jet-Powered Drones That Are Breeding Anxiety in Ukraine**\
+`These Russian drones are more destructive, faster and harder to shoot down than the propeller-driven models Russia has used throughout the war.`\
+https://www.nytimes.com/2026/09/03/world/europe/ukraine-russia-jet-powered-drones.html
+
+**Word of the Day: fetid**\
+`This word has appeared in 20 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/09/03/learning/word-of-the-day-fetid.html
+
+**ICE Skipped Basic Checks in Rush for Recruits, Whistle-Blower Says**\
+`An official who oversaw the vetting of ICE recruits cited an “unprecedented lowering of standards” amid a hiring surge.`\
+https://www.nytimes.com/2026/09/03/us/ice-recruits-national-security-risk-whistleblower.html
+
+**How to Train Balance as You Age**\
+`Staying sure-footed gets harder the older you are. But there are a few strategies that can help.`\
+https://www.nytimes.com/2026/09/03/well/move/slackliner-gymnast-balance-aging.html
+
+**Is Your City Prepared for Climate Disaster?**\
+`A new report ranks the world’s large cities on how well they have adapted to face climate risk.`\
+https://www.nytimes.com/2026/09/03/realestate/is-your-city-prepared-for-climate-disaster.html
+
+**Why the Courts Struggle to Tame Big Tech**\
+`After finding antitrust violations, federal courts have been reluctant to impose harsh sanctions. They fear meddling in markets where technology is racing ahead.`\
+https://www.nytimes.com/2026/09/03/business/google-antitrust-ad-tech-remedies-analysis.html
+
+**Lizzo Wants to Write a Great American Novel**\
+`But first, she’s publishing a children’s book, “Lil Lizzo Meets Sasha B. Flootin,’” because “I wanted to inspire young people to fall in love with music.”`\
+https://www.nytimes.com/2026/09/03/books/review/lizzo-favorite-books.html
+
+**How Far Can $375,000 Go for a First-Time Buyer in a Philadelphia Suburb?**\
+`Two- and three-bedroom single-family homes, townhouses and condos in nearby New Jersey towns were considered.`\
+https://www.nytimes.com/quiz/2026/09/03/realestate/philadelphia-suburb-condo-townhouse-single-family-hunt.html
+
 **An Early Look at the Lucas Museum of Narrative Art**\
 `The Lucas Museum of Narrative Art opened to the press for a first look at the filmmaker George Lucas’s legacy project. It is set to open to the public on Sept. 22.`\
 https://www.nytimes.com/video/arts/100000011130072/george-lucas-museum-narrative-art-la.html
@@ -69,132 +197,4 @@ https://www.nytimes.com/2026/09/02/arts/television/carla-jeffery-dead.html
 **Homeland Security Secretary’s Plane Makes Emergency Landing**\
 `The landing was the latest close call over Washington’s congested airspace to involve a senior government official.`\
 https://www.nytimes.com/2026/09/02/us/politics/homeland-security-mullin-plane-emergency-landing.html
-
-**D.S.A. Chapter Endorses Nithya Raman for Mayor of Los Angeles**\
-`Ms. Raman, a member of the D.S.A. chapter, is challenging Mayor Karen Bass as democratic socialists have surged nationally.`\
-https://www.nytimes.com/2026/09/02/us/nithya-raman-dsa-la-mayor.html
-
-**‘Below Deck’ Star Nathan Gallagher Wanted on Arrest Warrant for Assault**\
-`A warrant was out for the arrest of Gallagher, who was convicted of assaulting and choking his former partner and castmate.`\
-https://www.nytimes.com/2026/09/02/style/below-deck-nathan-gallagher-australia.html
-
-**White House Plans $250,000 Renovation of 2-Lane Bowling Alley**\
-`A White House spokesman said the alley renovations included fixing broken lights. The project comes as the president has sought a broad overhaul of the White House and its surroundings.`\
-https://www.nytimes.com/2026/09/02/us/politics/white-house-bowling-alley-renovation.html
-
-**Texas Is Drenched by Storm’s Remnants, and More Flooding Is Possible**\
-`As Tropical Storm Edouard crawled inland, heavy rain lashed southeastern Texas, with some areas receiving well over a foot. Forecasters warned that rains could persist into Thursday.`\
-https://www.nytimes.com/2026/09/02/weather/edouard-flooding-texas-rain.html
-
-**El-Sayed Wants to Mend Ties With Jewish Democrats, but Some Are Still Not Impressed**\
-`Lingering concerns about the Senate nominee in Michigan could make it harder for him to assemble a winning coalition.`\
-https://www.nytimes.com/2026/09/02/us/politics/el-sayed-michigan-jewish-democrats.html
-
-**As Midterms Loom, Democrats Feud Over Defections**\
-`The fight has highlighted party divisions and raised questions about how Democrats will run the House should they win the majority.`\
-https://www.nytimes.com/2026/09/02/us/politics/democrats-defections-internal-feud-midterms.html
-
-**Strawberry Eton Mess**\
-`Eton mess is a classic British dessert made of a mixture of fresh fruit, cream and crushed baked meringue.`\
-https://www.nytimes.com/video/dining/100000011125959/strawberry-eton-mess.html
-
-**In Small Iranian Town, a U.S. Attack Turns a Wedding Into a Tragedy**\
-`The bomb that hit the residential area was American, according to a weapons expert and a visual analysis by The Times. It killed five people and wounded 67 others, the Iranian authorities said.`\
-https://www.nytimes.com/2026/09/02/video/iran-us-attack-wedding.html
-
-**Judge Blocks Trump’s Second Try to Restrict Birthright Citizenship**\
-`The ruling raised concerns that babies already defined as citizens by the Supreme Court could have their citizenship revoked under an order the president signed in August.`\
-https://www.nytimes.com/2026/09/02/us/politics/judge-trump-birthright-citizenship.html
-
-**Uber and Wayve to Start Testing Robotaxis in London**\
-`Uber and the British start-up Wayve are the latest to start testing autonomous cars in one of the world’s largest markets for ride-hailing services.`\
-https://www.nytimes.com/2026/09/02/business/uber-wayve-london.html
-
-**Trump Ended My American Dream**\
-`America has closed its doors to too many students and entrepreneurs.`\
-https://www.nytimes.com/2026/09/02/opinion/american-dream-business-immigration.html
-
-**In the Midterms, Will the Nepo-Baby Attack Work?**\
-`A New Hampshire senator’s daughter is running for office, and finds her name being used against her.`\
-https://www.nytimes.com/2026/09/02/us/politics/midterms-nepo-baby-shaheen.html
-
-**States Sue Over Move to End to Federal Funds for Transgender Youth for Transition Care**\
-`The Trump administration wants to bar Medicaid and the Children’s Health Insurance Program from paying for gender-transition medication and surgery for transgender adolescents.`\
-https://www.nytimes.com/2026/09/02/us/politics/youth-gender-transition-lawsuit-federal-money.html
-
-**2 Killed and 2 Officers Shot at Minneapolis Apartment Building**\
-`The authorities said the suspect was also dead. Residents were warned to stay away from the downtown apartment building where the violence erupted.`\
-https://www.nytimes.com/2026/09/02/us/shooting-minneapolis-downtown.html
-
-**Woman Who Killed Husband Decades Ago Is Sentenced for Killing Wife**\
-`A woman in California will face 36 years to life in prison after previously serving time for a stabbing death in 2000.`\
-https://www.nytimes.com/2026/09/02/us/yolanda-marodi-wife-killed-california-sentenced.html
-
-**The President Can’t Handle the Truth**\
-`Trump’s fantasy-reality problem is deepening.`\
-https://www.nytimes.com/2026/09/02/opinion/trump-fantasty-reality-politics.html
-
-**A Hurricane Will Not Hit California. Here’s What to Expect Instead.**\
-`Marie has caused a frenzy in Southern California this week. Forecasters said it will almost certainly stay far offshore.`\
-https://www.nytimes.com/2026/09/02/weather/hurricane-marie-tropical-storm-la-california.html
-
-**Trump Administration Hunts for Elusive Noncitizen Voters**\
-`Also, George Lucas’s legacy project is finally ready for its close-up. Here’s the latest at the end of Wednesday.`\
-https://www.nytimes.com/2026/09/02/briefing/dhs-voter-fraud-google-monopoly.html
-
-**Judge Pushes Lindsay Clancy Jury to Try to Reach a Verdict**\
-`A judge asked deadlocked jurors in the Lindsay Clancy murder trial to try again to reach a verdict. Failure to do so would result in a hung jury, with neither a conviction or an acquittal.`\
-https://www.nytimes.com/video/us/100000011129011/lindsay-clancy-jury-deadlock.html
-
-**¿Qué propició el ataque a dos transeúntes en Times Square?**\
-`Una mujer apuñaló a dos personas en uno de los sitios más turísticos de Nueva York. Las autoridades tratan de entender qué detonó el ataque.`\
-https://www.nytimes.com/es/2026/09/02/espanol/estados-unidos/ataque-times-square-victimas-motivo.html
-
-**A Mayor’s Wife Is Injured as ICE Chases Another Driver, Officials Say**\
-`A driver fled after being stopped by federal immigration agents, who then pursued the individual on a New Jersey highway, the police officials said.`\
-https://www.nytimes.com/2026/09/02/nyregion/ice-chase-new-jersey-crash.html
-
-**Our Smoky, Sweaty, Itchy, No Escape, Very Long Summer**\
-`Did some of the season’s dependable pleasures — sunshine, lake vacations, time spent outdoors — feel newly in limbo this year? Blame climate change.`\
-https://www.nytimes.com/interactive/2026/09/02/climate/heat-wave-wildfire-smoke-summer.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/business/100000011129550/Wheels-Rivian-Video.html
-
-**El padre de la atacante de Times Square pensó que su hija ya había superado lo peor**\
-`Pamela Cisneros murió a manos de la policía en Times Square luego de apuñalar a dos personas, una de ellas mortalmente. Su padre dijo que había dejado de ir con él a sus citas de salud mental.`\
-https://www.nytimes.com/es/2026/09/02/espanol/estados-unidos/times-square-sospechosa-quien-es.html
-
-**Cassandra Wilson, Star Jazz Singer, Dies at 70**\
-`With a low and smoky voice, she conjured the blues tradition of her native Mississippi in both her own songs and in covers.`\
-https://www.nytimes.com/2026/09/02/arts/music/cassandra-wilson-dead.html
-
-**Man Is Rescued From Inside Garbage Truck in San Francisco**\
-`The city’s Fire Department said it received a call just after 4 a.m. on Wednesday reporting that a person was stuck in the vehicle after it collected trash from a dumpster.`\
-https://www.nytimes.com/2026/09/02/us/man-trapped-garbage-truck-san-francisco.html
-
-**Man Rescued From Inside Garbage Truck**\
-`Firefighters in San Francisco on Wednesday morning rescued a man who had become trapped inside a garbage truck, the authorities said.`\
-https://www.nytimes.com/video/us/100000011129087/man-rescued-from-inside-garbage-truck.html
-
-**El USS Lincoln llega a Tailandia en su camino de regreso a casa**\
-`La tripulación del portaaviones tiene permiso de bajar unos días a tierra para despejar la mente tras meses de penurias.`\
-https://www.nytimes.com/es/2026/09/02/espanol/mundo/uss-abraham-lincoln-portaaviones-tailandia.html
-
-**Inside Trump’s Second Term**\
-`We talk to Jonathan Swan about how foreign leaders use leverage, strength and personal dynamics to manage the president.`\
-https://www.nytimes.com/2026/09/02/world/trump-regime-change-strike-wedding.html
-
-**Jonathan Franzen’s “The Corrections” Is 25 Years Old. Its First Paragraph Still Feels New.**\
-`Jonathan Franzen’s 2001 novel was celebrated for its canny portrayal of American life. It’s also a remarkable act of literary creation.`\
-https://www.nytimes.com/interactive/2026/09/02/books/jonathan-franzen-the-corrections.html
-
-**USPS Is Building a Mail-In Ballot Screening System Despite Legal Battles Over Trump Order**\
-`Election officials warn that the creation of a new online portal for states to upload voter information is already fueling confusion and could ultimately disenfranchise voters.`\
-https://www.nytimes.com/2026/09/02/us/politics/postal-service-ballot-screening-system.html
-
-**Paul S. Russell, an Innovator in Transplant Medicine, Dies at 101**\
-`In his over 70 years at Massachusetts General Hospital, he led the way in turning new findings in medical science into successes in clinical practice.`\
-https://www.nytimes.com/2026/09/02/obituaries/paul-russell-dead.html
 

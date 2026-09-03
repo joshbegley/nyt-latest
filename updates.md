@@ -1,3 +1,7 @@
+**An Early Look at the Lucas Museum of Narrative Art**\
+`The Lucas Museum of Narrative Art opened to the press for a first look at the filmmaker George Lucas’s legacy project. It is set to open to the public on Sept. 22.`\
+https://www.nytimes.com/video/arts/100000011130072/george-lucas-museum-narrative-art-la.html
+
 **Carla Jeffery, Actress in Disney’s ‘Zombies’ Films, Dies at 33**\
 `Ms. Jeffery also appeared in several Disney and Nickelodeon series and had a recurring role on “Curb Your Enthusiasm.”`\
 https://www.nytimes.com/2026/09/02/arts/television/carla-jeffery-dead.html
