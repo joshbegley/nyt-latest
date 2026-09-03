@@ -190,7 +190,3 @@ https://www.nytimes.com/2026/09/03/nyregion/where-the-rich-get-richer-and-everyo
 `Her open letter to American universities is a trap.`\
 https://www.nytimes.com/2026/09/03/opinion/trump-mcmahon-harvard-compact.html
 
-**‘Cocoon — One Summer of Girlhood’ Review: Patriotic Sacrifices**\
-`The animated film is inspired by the real-life events of the Himeyuri Corps, who were mobilized, and then abandoned, in Okinawa, Japan, during World War II.`\
-https://www.nytimes.com/2026/09/03/movies/cocoon-one-summer-of-girlhood-review.html
-
