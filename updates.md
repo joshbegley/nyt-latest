@@ -1,3 +1,15 @@
+**Art Gallery Shows to See in September**\
+`This week in Newly Reviewed, Will Heinrich covers a show that displays the power of community, Morgan O’Hara’s obsessive documentation and Noah Jemisin’s phantasms.`\
+https://www.nytimes.com/2026/09/03/arts/art-gallery-shows-to-see-in-september.html
+
+**The Joke That Started a Political Movement**\
+`“For more than a decade, the people in India were scared of questioning the government. Now, finally, people are no longer scared,” Abhijeet Dipke, a 30-year-old Indian university graduate whose viral X post led to the creation of the Cockroach Janta Party, tells Opinion Video.`\
+https://www.nytimes.com/video/opinion/100000011101922/the-joke-that-started-a-political-movement.html
+
+**Mayor Magic**\
+`We look at how some mayors have managed to hold onto voter trust, and what national leaders could learn from their success.`\
+https://www.nytimes.com/2026/09/03/world/mayors-mamdani-burnham-gloria-steinem.html
+
 **42 Years Later, Jury Finds Texas Man Guilty in Killing of Teen Girl**\
 `Prosecutors said the man provided the drugs used to kill a teen in 1984. Her remains were found in an area that came to be known as the Texas Killing Fields.`\
 https://www.nytimes.com/2026/09/03/us/texas-killing-fields-cold-case-manslaughter.html
