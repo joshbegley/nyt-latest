@@ -1,3 +1,11 @@
+**In a First, a Pig Kidney Kept a Patient Alive Until He Got a Human One**\
+`Tim Andrews was the first patient to receive a genetically modified pig kidney as a “bridge” to a human organ transplant.`\
+https://www.nytimes.com/2026/09/03/well/pig-kidney-bridge-transplant.html
+
+**Holdout Juror Throws the Clancy Murder Case Into Disarray**\
+`The five-week case looked set to end, until the jury sent a note saying that a member refused to recognize the proper definition of reasonable doubt. The defense lawyer said an inquiry was planned for Friday morning.`\
+https://www.nytimes.com/2026/09/03/us/holdout-juror-lindsay-clancy-trial.html
+
 **Cold Peanut Ginger Noodles**\
 `A combination of crunchy peanut butter and sesame oil gives the dressing an earthy nuttiness, which contrasts with the heat of chile crisp and tanginess of lime juice. But the real draw is a sprinkling of chopped crystallized ginger, which adds sweet-spicy chewiness amid the cold noodles and cucumbers.`\
 https://www.nytimes.com/video/dining/100000011126279/cold-peanut-ginger-noodles.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/03/style/amelia-dimoldenberg-chicken-shop-date.h
 **Why a Doctor Told Gloria Steinem: ‘You Must Promise Me Two Things’**\
 `Gloria Steinem got to be who she was because of a pre-Roe abortion.`\
 https://www.nytimes.com/2026/09/03/opinion/gloria-steinem-feminism-abortion.html
-
-**Los Angeles District Bans Most A.I. for Students**\
-`New York City announced a similar plan. The Los Angeles moratorium appears to go further with strict limits even for older students.`\
-https://www.nytimes.com/2026/09/03/us/lausd-schools-ban-ai-artificial-intelligence.html
-
-**Thousands in Spain Protest Over Migration Crisis in Ceuta**\
-`Protesters in Spain on Wednesday demonstrated against the government’s response to a migrant surge in Ceuta. Spain’s prime minister on Thursday defended Morocco against claims that it had perhaps enabled the crisis.`\
-https://www.nytimes.com/video/world/europe/100000011130400/spain-migrants-protests-ceuta.html
 
