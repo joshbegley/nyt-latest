@@ -1,3 +1,7 @@
+**42 Years Later, Jury Finds Texas Man Guilty in Killing of Teen Girl**\
+`Prosecutors said the man provided the drugs used to kill a teen in 1984. Her remains were found in an area that came to be known as the Texas Killing Fields.`\
+https://www.nytimes.com/2026/09/03/us/texas-killing-fields-cold-case-manslaughter.html
+
 **Trump Administration Asks Supreme Court to Allow Mail Voting Limits**\
 `The justices have been asked to weigh in again on the Trump administration’s efforts to restrict mail voting — this time on whether the plans violate the Constitution.`\
 https://www.nytimes.com/2026/09/03/us/politics/trump-supreme-court-mail-ballots.html
@@ -26,7 +30,7 @@ https://www.nytimes.com/2026/09/03/us/lindsay-clancy-trial-holdout-juror.html
 `The Category 4 storm has been moving well south of the islands this week. It is expected to turn north sometime this weekend.`\
 https://www.nytimes.com/live/2026/09/03/weather/hurricane-lowell-hawaii-karina
 
-**Norway Seizes Russian Research Ship in the High Arctic**\
+**Norway Seizes Russian Ship, Testing Moscow in the High Arctic**\
 `Empowered by an international court order, Norway captured the vessel as part of a global effort to seize Russian assets. The Russians called it “piracy.”`\
 https://www.nytimes.com/2026/09/03/world/europe/norway-russian-research-ship-arctic.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/03/business/leon-black-sues-congressional-panel-
 **The Start-Up That Helps People Die**\
 `Medical aid in dying is now legal in New York. A team of clinical professionals decided to create a practice to help their clients die on their own terms.`\
 https://www.nytimes.com/2026/09/03/nyregion/assisted-suicide-quietus-new-york.html
-
-**Through the Hands of Strangers, Missing Iranian Artists Put on a Show in L.A.**\
-`Isolated by war, they nevertheless are taking part in an exhibition at The Brick, paired with local artists who interpreted and realized their work.`\
-https://www.nytimes.com/2026/09/03/arts/design/iranian-artists-los-angeles-the-brick.html
 
