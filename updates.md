@@ -1,3 +1,11 @@
+**Missouri Supreme Court Delivers Win for Democrats in Redistricting Case**\
+`The court said a map redrawn to benefit Republicans could not be used in November. Voters will decide whether the new boundaries ever take effect.`\
+https://www.nytimes.com/2026/09/03/us/missouri-supreme-court-redistricting-referendum.html
+
+**New York Opens Inquiry Into Police Shooting of Pamela Cisneros After Times Square Stabbing**\
+`Pamela Cisneros was shot after stabbing two people, one fatally, on Monday. Under state law, Attorney General Letitia James must investigate all fatal shootings involving the police.`\
+https://www.nytimes.com/2026/09/03/nyregion/times-square-stabbing-pamela-cisneros.html
+
 **JD Vance Says He Wouldn’t Call Iran Conflict a War**\
 `In the first White House press briefing since Karoline Leavitt left as press secretary, the vice president suggested that when the conflict would end was up to Tehran.`\
 https://www.nytimes.com/2026/09/03/us/politics/vance-iran-press-briefing.html
