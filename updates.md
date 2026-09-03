@@ -1,3 +1,11 @@
+**Trump Administration Asks Supreme Court to Allow Mail Voting Limits**\
+`The justices have been asked to weigh in again on the Trump administration’s efforts to restrict mail voting — this time on whether the plans violate the Constitution.`\
+https://www.nytimes.com/2026/09/03/us/politics/trump-supreme-court-mail-ballots.html
+
+**Volkswagen Plans to Cut 50,000 Jobs**\
+`Facing growing competition from China and rapidly advancing technology, the German auto giant said Thursday its board had approved a “comprehensive” restructuring.`\
+https://www.nytimes.com/2026/09/03/business/volkswagen-job-cuts.html
+
 **Mortgage Rates Hit 6.71%, Their Highest Level Since July 2025**\
 `Higher costs for home loans have put a squeeze on the housing market, adding pressure to consumers already struggling with elevated inflation.`\
 https://www.nytimes.com/2026/09/03/business/mortgage-rates-housing.html
