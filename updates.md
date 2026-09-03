@@ -1,3 +1,11 @@
+**Through the Hands of Strangers, Missing Iranian Artists Put on a Show in L.A.**\
+`Isolated by war, they nevertheless are taking part in an exhibition at The Brick, paired with local artists who interpreted and realized their work.`\
+https://www.nytimes.com/2026/09/03/arts/design/iranian-artists-los-angeles-the-brick.html
+
+**Clancy’s Lawyer, Kevin Reddington, Became a Hero to Her Supporters**\
+`The themes present in Lindsay Clancy’s trial are not unfamiliar to Mr. Reddington, a veteran defense lawyer.`\
+https://www.nytimes.com/2026/09/03/us/clancy-lawyer-kevin-reddington.html
+
 **Spain’s Leader Questions Morocco Border Control During Ceuta Migrant Surge**\
 `Prime Minister Pedro Sánchez of Spain said the role of Moroccan authorities at key moments needed to be “clarified.” But he rejected any suggestion they had planned the crisis.`\
 https://www.nytimes.com/2026/09/03/world/europe/spain-morocco-ceuta-sanchez.html
