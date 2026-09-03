@@ -1,3 +1,7 @@
+**Shooting in Minneapolis Kills at Least 2 and Injures 2 Police Officers**\
+`A city official said the suspect was also dead. Residents were warned to stay away from the downtown apartment building where the violence erupted.`\
+https://www.nytimes.com/2026/09/02/us/shooting-minneapolis-downtown.html
+
 **As Midterms Loom, Democrats Feud Over Defections**\
 `The fight has highlighted party divisions and raised questions about how Democrats will run the House should they win the majority.`\
 https://www.nytimes.com/2026/09/02/us/politics/democrats-defections-internal-feud-midterms.html
