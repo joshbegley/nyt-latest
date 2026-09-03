@@ -1,3 +1,7 @@
+**El-Sayed Wants to Mend Ties With Jewish Democrats, but Some Are Still Not Impressed**\
+`Lingering concerns about the Senate nominee in Michigan could make it harder for him to assemble a winning coalition.`\
+https://www.nytimes.com/2026/09/02/us/politics/el-sayed-michigan-jewish-democrats.html
+
 **As Midterms Loom, Democrats Feud Over Defections**\
 `The fight has highlighted party divisions and raised questions about how Democrats will run the House should they win the majority.`\
 https://www.nytimes.com/2026/09/02/us/politics/democrats-defections-internal-feud-midterms.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/02/style/tiny-modern-love-stories-the-hot-neighb
 **Trump’s Tactics to Lower Beef Prices and Appease Ranchers Fall Short**\
 `The Agriculture Department offered new initiatives for ranchers after President Trump said he would import more beef. The moves aren’t a quick fix.`\
 https://www.nytimes.com/2026/09/02/business/trump-ranchers-beef-prices-cattle-supply.html
-
-**John Galliano and the Uproar at the Met**\
-`Readers discuss whether the museum should have canceled an exhibition because of the designer’s past offensive remarks. Also: Dark money in politics.`\
-https://www.nytimes.com/2026/09/02/opinion/john-galliano-met-museum.html
 
