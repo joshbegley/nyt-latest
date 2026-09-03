@@ -1,3 +1,7 @@
+**Pete Hegseth’s Military**\
+`We look at the department during his tenure.`\
+https://www.nytimes.com/2026/09/03/briefing/pete-hegseths-military.html
+
 **Gloria Steinem, Personification of the Women’s Movement, Dies at 92**\
 `She challenged sexist assumptions, helping women develop a sense of self-worth and gain a measure of equality at work, at home and in society at large.`\
 https://www.nytimes.com/2026/09/03/us/politics/gloria-steinem-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/03/arts/design/leilah-babirye-exhibit-boston.htm
 **Best Thriller Books for Fans of ‘Succession’ and ‘Industry’**\
 `The best-selling author Linwood Barclay recommends his favorite thrillers set in the corporate world.`\
 https://www.nytimes.com/2026/09/03/books/thriller-books-succession-industry.html
-
-**Mundane Amtrak Data Becomes an Ensemble Performance in Train Jazz**\
-`Train Jazz captures and maps the choreography of the Amtrak network into a seven-instrument jazz ensemble, now playing on an internet-connected device near you.`\
-https://www.nytimes.com/2026/09/03/arts/music/jazz-train-amtrak-josh-wolk.html
 
