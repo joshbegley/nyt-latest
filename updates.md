@@ -1,3 +1,11 @@
+**A Woman Whose Case Resembles Clancy’s Just Won a Retrial**\
+`The highest court in Massachusetts overturned Latarsha Sanders’s 2022 murder conviction after the trial judge excluded her medical records from the evidence.`\
+https://www.nytimes.com/2026/09/03/us/lindsay-clancy-latarsha-sanders-retrial.html
+
+**Ejercicios y hábitos para reforzar el equilibrio y envejecer bien**\
+`Mantenerse en pie no es una sola habilidad, sino más bien varios sistemas físicos, sensoriales y cognitivos que trabajan juntos. Aquí algunos consejos para ejercitarlos.`\
+https://www.nytimes.com/es/2026/09/03/espanol/equilibrio-ejercicios-envejecimiento.html
+
 **Is Letting Only Seniors Vote by Mail Unconstitutional?**\
 `Federal appeals courts have split on the question, making Supreme Court review likely.`\
 https://www.nytimes.com/2026/09/03/us/politics/the-docket-senior-mail-ballot.html
