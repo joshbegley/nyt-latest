@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Sept. 03, 2026**\
+`Zhou Zhang’s puzzle is a whole thing.`\
+https://www.nytimes.com/2026/09/02/crosswords/daily-puzzle-2026-09-03.html
+
 **Carla Jeffery, Actress in Disney’s ‘Zombies’ Films, Dies at 33**\
 `Ms. Jeffery also had a series of roles on other Disney and Nickelodeon series, as well as a season on “Curb Your Enthusiasm.”`\
 https://www.nytimes.com/2026/09/02/arts/television/carla-jeffery-dead.html

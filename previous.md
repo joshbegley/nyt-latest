@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Sept. 03, 2026**\
+`Zhou Zhang’s puzzle is a whole thing.`\
+https://www.nytimes.com/2026/09/02/crosswords/daily-puzzle-2026-09-03.html
+
 **Carla Jeffery, Actress in Disney’s ‘Zombies’ Films, Dies at 33**\
 `Ms. Jeffery also had a series of roles on other Disney and Nickelodeon series, as well as a season on “Curb Your Enthusiasm.”`\
 https://www.nytimes.com/2026/09/02/arts/television/carla-jeffery-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/02/us/politics/trump-election-voter-fraud.html
 **The Local: How tariffs will affect your shopping**\
 `Plus, Sweet Martha on how she got her start, without a cookie recipe.`\
 https://www.nytimes.com/2026/09/02/briefing/tariffs-sweet-marthas.html
-
-**Trump insta de nuevo al pueblo de Irán a ‘levantarse y luchar’**\
-`EE. UU. parece estar cada vez más estancado en Irán después de seis meses de conflicto, a pesar de las declaraciones de dominio militar del presidente Trump.`\
-https://www.nytimes.com/es/2026/09/02/espanol/estados-unidos/trump-iran-estrecho-de-ormuz.html
 
