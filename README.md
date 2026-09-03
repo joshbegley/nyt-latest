@@ -1,3 +1,7 @@
+**As Midterms Loom, Democrats Feud Over Defections**\
+`The fight has highlighted party divisions and raised questions about how Democrats will run the House should they win the majority.`\
+https://www.nytimes.com/2026/09/02/us/politics/democrats-defections-internal-feud-midterms.html
+
 **Strawberry Eton Mess**\
 `Eton mess is a classic British dessert made of a mixture of fresh fruit, cream and crushed baked meringue.`\
 https://www.nytimes.com/video/dining/100000011125959/strawberry-eton-mess.html
@@ -26,8 +30,8 @@ https://www.nytimes.com/2026/09/02/us/politics/midterms-nepo-baby-shaheen.html
 `The Trump administration wants to bar Medicaid and the Children’s Health Insurance Program from paying for gender-transition medication and surgery for transgender adolescents.`\
 https://www.nytimes.com/2026/09/02/us/politics/youth-gender-transition-lawsuit-federal-money.html
 
-**2 Police Officers Among 7 Shot in Minneapolis**\
-`A hospital official said one person died, but the victim’s identity was unknown. Residents were warned to stay away from the downtown apartment building where the violence erupted.`\
+**2 Police Officers Among 7 Victims in Minneapolis Shooting Near Loring Park**\
+`A city official said the suspect was also dead. Residents were warned to stay away from the downtown apartment building where the violence erupted.`\
 https://www.nytimes.com/2026/09/02/us/shooting-minneapolis-downtown.html
 
 **Woman Who Killed Husband Decades Ago Is Sentenced for Killing Wife**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/02/business/trump-ranchers-beef-prices-cattle-su
 **John Galliano and the Uproar at the Met**\
 `Readers discuss whether the museum should have canceled an exhibition because of the designer’s past offensive remarks. Also: Dark money in politics.`\
 https://www.nytimes.com/2026/09/02/opinion/john-galliano-met-museum.html
-
-**El Centro Kennedy comienza a retirar una escultura sin previo aviso**\
-`La obra de arte “Blue”, añadida al campus en 2019, fue seleccionada para su eliminación después de que el presidente Trump tomara control del centro.`\
-https://www.nytimes.com/es/2026/09/02/espanol/cultura/trump-centro-kennedy-escultura.html
 
