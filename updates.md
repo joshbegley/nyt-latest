@@ -1,3 +1,15 @@
+**Who Is Ahead in Texas's 35th Congressional District?**\
+`Track the latest polls in Texas's 35th Congressional District.`\
+https://www.nytimes.com/interactive/polls/texas-us-house-35-polls-2026.html
+
+**Two Dead in Minneapolis Shooting**\
+`A gunman killed two people and injured several others, including two police officers, on Wednesday in Minneapolis.`\
+https://www.nytimes.com/video/us/100000011129938/minneapolis-shooting.html
+
+**The NBA Drops the Hammer on Kawhi Leonard and the Clippers**\
+`Why league investigators didn’t believe the richest owner in American sports.`\
+https://www.nytimes.com/2026/09/02/podcasts/the-nba-brings-the-hammer-on-kawhi-leonard-and-the-clippers.html
+
 **NYT Crossword Answers for Sept. 03, 2026**\
 `Zhou Zhang’s puzzle is a whole thing.`\
 https://www.nytimes.com/2026/09/02/crosswords/daily-puzzle-2026-09-03.html
