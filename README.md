@@ -1,3 +1,7 @@
+**Steinem’s Home, Where Feminism Flourished, Will Remain a Gathering Place**\
+`Following Ms. Steinem’s death on Wednesday, her foundation said her Upper East Side home would become a permanent space for organizing and activism.`\
+https://www.nytimes.com/2026/09/03/nyregion/gloria-steinem-home-new-york.html
+
 **Schools Aiding Minority Students Could Lose Tax-Exempt Status**\
 `Also, Gloria Steinem died at 92. Here’s the latest at the end of Thursday.`\
 https://www.nytimes.com/2026/09/03/briefing/colleges-tax-exemption-gloria-steinem.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/09/03/us/lindsay-clancy-latarsha-sanders-retrial.ht
 **Ejercicios y hábitos para reforzar el equilibrio y envejecer bien**\
 `Mantenerse en pie no es una sola habilidad, sino más bien varios sistemas físicos, sensoriales y cognitivos que trabajan juntos. Aquí algunos consejos para ejercitarlos.`\
 https://www.nytimes.com/es/2026/09/03/espanol/equilibrio-ejercicios-envejecimiento.html
-
-**Is Letting Only Seniors Vote by Mail Unconstitutional?**\
-`Federal appeals courts have split on the question, making Supreme Court review likely.`\
-https://www.nytimes.com/2026/09/03/us/politics/the-docket-senior-mail-ballot.html
 
 **Trump Administration Live Updates: Vance Says ‘I Don’t Know’ if Iran War Will Be Over by Midterms**\
 `(No description)`\
