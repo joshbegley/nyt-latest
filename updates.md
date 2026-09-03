@@ -1,3 +1,11 @@
+**“Electra/Persona”: Cate Blanchett and Nina Hoss Fuse Bergman and Greek Tragedy Into One**\
+`In “Electra/Persona” at the National Theater in London, the actresses turn a spotlight on performance and the slipperiness of identity.`\
+https://www.nytimes.com/2026/09/03/arts/electra-persona-national-theatre-cate-blanchett-nina-hoss-review.html
+
+**Can the Lindsay Clancy Jury Break Its Deadlock?**\
+`In general, juries that have repeatedly reported an impasse are unlikely to reach consensus. But sometimes, those asked by a judge to try harder do return a verdict.`\
+https://www.nytimes.com/2026/09/03/us/lindsay-clancy-trial-hung-jury.html
+
 **Gloria Steinem’s Glamour Was a Means to an End**\
 `The glasses, the hairdo, the bell bottoms and hip-slung belts were all wrapped up in her feminist cause.`\
 https://www.nytimes.com/2026/09/03/style/gloria-steinem-style-feminism.html
