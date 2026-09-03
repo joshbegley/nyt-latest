@@ -1,3 +1,11 @@
+**Read the Whistle-Blower’s Complaint Following ICE’s Hiring Surge**\
+`The New York Times obtained this whistle-blower complaint via a public records request to the Office of Inspector General in the Department of Homeland Security.`\
+https://www.nytimes.com/interactive/2026/09/03/us/ice-recruits-whistleblower-complaint.html
+
+**Pedro Sánchez cuestiona el control fronterizo de Marruecos ante la oleada de migrantes en Ceuta**\
+`El presidente del gobierno de España dijo que el papel de las autoridades marroquíes en momentos clave debía ser ‘aclarado’. Pero rechazó cualquier sugerencia de que hubieran planeado la crisis.`\
+https://www.nytimes.com/es/2026/09/03/espanol/mundo/espana-marruecos-ceuta-sanchez.html
+
 **Judge Presses for Clarity in Lawsuit Over Mail-In Voting Rules**\
 `Judge Indira Talwani said the Postal Service appeared to be carrying out a haphazard “experiment” with a new rule that could lead to “major disenfranchisement.”`\
 https://www.nytimes.com/2026/09/03/us/politics/mail-ballots-usps-restraining-order.html
@@ -34,7 +42,7 @@ https://www.nytimes.com/2026/09/03/books/review/new-recommended-books.html
 `We invite teenagers to tell a story about a meaningful life experience in just 100 words. Contest dates: Sept. 16-Oct. 28, 2026.`\
 https://www.nytimes.com/2026/09/03/learning/tiny-memoir-contest-for-students-write-a-100-word-personal-narrative.html
 
-**Hillary Clinton, Lena Dunham and Others Celebrate Gloria Steinem**\
+**Hillary Clinton, Meghan Markle, Lena Dunham and Others Pay Tribute to Gloria Steinem**\
 `After Ms. Steinem’s death at 92, celebrities and politicians reflected on her decades of activism for women’s rights and equality.`\
 https://www.nytimes.com/2026/09/03/us/gloria-steinem-death-hillary-clinton-meghan-markle.html
 
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/09/03/us/legal-outcomes-postpartum-psychosis-diagno
 **After Trump Rift, Musk Begins Spending to Boost Republicans**\
 `Mr. Musk plans to spend at least $100 million in more than a dozen competitive House and Senate races. The tech billionaire helped Donald Trump to victory in 2024.`\
 https://www.nytimes.com/2026/09/03/us/elon-musk-republican-spending.html
-
-**Israeli Military Kills Two Palestinian Youths in Village Raid, Residents Say**\
-`Al Mughayir, in the Israeli-occupied West Bank, has become a focal point for rising settler violence, with the latest deadly episode starting in a dispute over livestock.`\
-https://www.nytimes.com/2026/09/03/world/middleeast/west-bank-israel-palestinians-shooting.html
-
-**Muere Gloria Steinem, ícono del feminismo**\
-`Desafió los prejuicios sexistas y ayudó a las mujeres a desarrollar su sentido de autoestima y a obtener avances en la igualdad en el trabajo, en el hogar y en la sociedad en general.`\
-https://www.nytimes.com/es/2026/09/03/espanol/cultura/muere-gloria-steinem.html
 
 **Lindsay Clancy Trial Live Updates: Jury Tries to Break Deadlock**\
 `Jurors in the closely watched triple-murder case began a sixth day of deliberations after twice telling a judge they could not reach a verdict.`\

@@ -1,3 +1,7 @@
+**Judge Presses for Clarity in Lawsuit Over Mail-In Voting Rules**\
+`Judge Indira Talwani said the Postal Service appeared to be carrying out a haphazard “experiment” with a new rule that could lead to “major disenfranchisement.”`\
+https://www.nytimes.com/2026/09/03/us/politics/mail-ballots-usps-restraining-order.html
+
 **Man Is Sentenced in Explosion of Hyperbaric Chamber That Killed a 5-Year-Old**\
 `The former safety manager of a Michigan alternative health care center will spend at least 19 months in jail in connection with the January 2025 death.`\
 https://www.nytimes.com/2026/09/03/us/hyperbaric-chamber-child-death-michigan-sentencing.html
