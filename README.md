@@ -1,3 +1,7 @@
+**The NBA Brings the Hammer on Kawhi Leonard and the Clippers**\
+`Why league investigators didn’t believe the richest owner in American sports.`\
+https://www.nytimes.com/2026/09/02/podcasts/the-nba-brings-the-hammer-on-kawhi-leonard-and-the-clippers.html
+
 **NYT Crossword Answers for Sept. 03, 2026**\
 `Zhou Zhang’s puzzle is a whole thing.`\
 https://www.nytimes.com/2026/09/02/crosswords/daily-puzzle-2026-09-03.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/02/sports/womens-professional-leagues.html
 **Trump Administration Launches Hunt For Noncitizen Voter Fraud Before Midterms**\
 `Election fraud is exceedingly rare, but President Trump has fixated on rooting it out this year, claiming without evidence that tens of thousands of noncitizens are registered to vote.`\
 https://www.nytimes.com/2026/09/02/us/politics/trump-election-voter-fraud.html
-
-**The Local: How tariffs will affect your shopping**\
-`Plus, Sweet Martha on how she got her start, without a cookie recipe.`\
-https://www.nytimes.com/2026/09/02/briefing/tariffs-sweet-marthas.html
 
