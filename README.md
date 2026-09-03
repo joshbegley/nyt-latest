@@ -1,3 +1,19 @@
+**El ICE omitió verificaciones básicas en su prisa por reclutar agentes, según un denunciante**\
+`Un funcionario que supervisó la evaluación de reclutas del ICE citó una “reducción de estándares sin precedentes” en medio de un aumento de contrataciones.`\
+https://www.nytimes.com/es/2026/09/03/espanol/estados-unidos/ice.html
+
+**Gene Bertoncini, Jazz Guitarist Who Dazzled With Subtlety, Dies at 89**\
+`He performed at the highest level for decades, sensitively backing singers like Tony Bennett and Lena Horne when not leading his own innovative groups.`\
+https://www.nytimes.com/2026/09/03/arts/music/gene-bertoncini-dead.html
+
+**A Deadly and Costly Climate Crisis in Nepal**\
+`Readers connect the Nepal disaster to the effects of climate change. Also: Afghan girls’ schools; a bad deal in Yosemite; helping farmers; saving wild horses.`\
+https://www.nytimes.com/2026/09/03/opinion/nepal-climate.html
+
+**Maria Bartiromo Leaves Fox News**\
+`The host, who appeared on Fox Business and Fox News, had been with the network for more than 12 years.`\
+https://www.nytimes.com/2026/09/03/business/media/fox-news-maria-bartiromo.html
+
 **Cleaner Air, Smarter Toddlers**\
 `New research links climate policies to improved early-childhood development.`\
 https://www.nytimes.com/2026/09/03/climate/cleaner-air-smarter-toddlers.html
@@ -177,18 +193,6 @@ https://www.nytimes.com/2026/09/03/science/genes-personality-traits.html
 **The Serpent**\
 `Animated VPP1`\
 http://brandedplaylist.nytimes.com/video/embedded/t-brand/100000011130666/the-serpent.html
-
-**Watch Live: Lindsay Clancy Trial**\
-`Lindsay Clancy was charged with murder for strangling her three children before attempting suicide.`\
-https://www.nytimes.com/video/embedded/us/100000011119445/lindsay-clancy-trial-verdict.html
-
-**Lindsay Clancy Murder Trial Recap: What to Know Before It’s Over**\
-`A quick rundown of why she is on trial for murder and what’s at stake.`\
-https://www.nytimes.com/2026/09/03/us/lindsay-clancy-trial-murder-recap.html
-
-**Who Is Ahead in the U.S. Senate Race in Tennessee? Latest 2026 Polls**\
-`Track the latest polls in the Tennessee U.S. Senate election.`\
-https://www.nytimes.com/interactive/polls/tennessee-us-senate-election-polls-2026.html
 
 **Lindsay Clancy Trial Live Updates: Jury Tries to Break Deadlock**\
 `Jurors in the closely watched triple-murder case began a sixth day of deliberations after twice telling a judge they could not reach a verdict.`\
