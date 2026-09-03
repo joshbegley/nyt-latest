@@ -1,3 +1,7 @@
+**White House Plans $250,000 Renovation of 2-Lane Bowling Alley**\
+`A White House spokesman said the alley renovations included fixing broken lights. The project comes as the president has sought a broad overhaul of the White House and its surroundings.`\
+https://www.nytimes.com/2026/09/02/us/politics/white-house-bowling-alley-renovation.html
+
 **Texas Is Drenched by Storm’s Remnants, and More Flooding Is Possible**\
 `As Tropical Storm Edouard crawled inland, heavy rain lashed southeastern Texas, with some areas receiving well over a foot. Forecasters warned that rains could persist into Thursday.`\
 https://www.nytimes.com/2026/09/02/weather/edouard-flooding-texas-rain.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/02/arts/music/patrick-gleeson-dead.html
 **Egypt Bus Crash Kills at Least 22 People, Injures Dozens More**\
 `A bus overturned while traveling between popular resort towns in Egypt on Wednesday, killing at least 22 people, according to the country’s health ministry. It was not immediately clear what caused the crash.`\
 https://www.nytimes.com/video/world/africa/100000011128018/egypt-sinai-bus-crash.html
-
-**Tiny Love Stories: ‘The Hot Neighbor’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://www.nytimes.com/2026/09/02/style/tiny-modern-love-stories-the-hot-neighbor.html
 
