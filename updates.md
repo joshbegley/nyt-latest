@@ -1,3 +1,15 @@
+**Dutch Central Bank Cuts Gold Reserves in U.S., Citing ‘Geopolitical Unrest’**\
+`The Netherlands moved some 90 tons of gold out of the Federal Reserve Bank in New York, the second European nation this year to announce it had decreased or eliminated U.S. gold holdings.`\
+https://www.nytimes.com/2026/09/03/world/europe/netherlands-gold-reserves-us.html
+
+**Summer in the City: The U.S. Open Is in Full Swing**\
+`With high stakes and plenty of stars, the tournament is about to get really interesting.`\
+https://www.nytimes.com/2026/09/03/nyregion/summer-in-the-city-us-open.html
+
+**Mortgage Rates Climb to Highest Level Since July 2025**\
+`Higher costs for home loans have put a squeeze on the housing market, adding pressure to consumers already struggling with elevated inflation.`\
+https://www.nytimes.com/2026/09/03/business/mortgage-rates-housing.html
+
 **Clancy Defense Lawyer Says He Asked Judge to Dismiss Holdout Juror**\
 `Lindsay Clancy’s lawyer, Kevin Reddington, said in open court that the juror “refuses to listen to the law” about reasonable doubt.`\
 https://www.nytimes.com/2026/09/03/us/lindsay-clancy-trial-holdout-juror.html
