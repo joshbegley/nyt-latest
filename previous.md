@@ -1,3 +1,23 @@
+**NYT Connections Answers for September 4, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Sept. 4, 2026.`\
+https://www.nytimes.com/2026/09/03/crosswords/connections-companion-1181.html
+
+**A.I. Is Outsmarting Its Creators**\
+`When OpenAI’s agents went rogue in July, they demonstrated ingenuity and drive beyond what many experts had imagined.`\
+https://www.nytimes.com/2026/09/03/podcasts/the-daily/ai-openai-hugging-face-rogue-model.html
+
+**U.S. Attack Hits Iranian Wedding, and Influencers Are Being Quietly Paid to Talk Politics**\
+`Plus, the N.B.A.’s biggest punishment ever.`\
+https://www.nytimes.com/2026/09/03/podcasts/the-headlines/us-iran-wedding-attack-influencers-politics.html
+
+**Today’s Wordle Hints for September 4, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Sept. 4, 2026.`\
+https://www.nytimes.com/2026/09/03/crosswords/wordle-review-1903.html
+
+**NYT Strands Hints for September 4, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Sept. 4, 2026.`\
+https://www.nytimes.com/2026/09/03/crosswords/strands-sidekick-915.html
+
 **US Open Day 4: Is Alcaraz Already in Title Form?**\
 `The reigning champion put on a scintillating display in the night match at Flushing Meadows.`\
 https://www.nytimes.com/2026/09/03/podcasts/us-open-alcaraz.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/09/03/world/europe/ukraine-russia-jet-powered-drone
 **Word of the Day: fetid**\
 `This word has appeared in 20 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/09/03/learning/word-of-the-day-fetid.html
-
-**ICE Skipped Basic Checks in Rush for Recruits, Whistle-Blower Says**\
-`An official who oversaw the vetting of ICE recruits cited an “unprecedented lowering of standards” amid a hiring surge.`\
-https://www.nytimes.com/2026/09/03/us/ice-recruits-national-security-risk-whistleblower.html
-
-**How to Train Balance as You Age**\
-`Staying sure-footed gets harder the older you are. But there are a few strategies that can help.`\
-https://www.nytimes.com/2026/09/03/well/move/slackliner-gymnast-balance-aging.html
-
-**Is Your City Prepared for Climate Disaster?**\
-`A new report ranks the world’s large cities on how well they have adapted to face climate risk.`\
-https://www.nytimes.com/2026/09/03/realestate/is-your-city-prepared-for-climate-disaster.html
-
-**Why the Courts Struggle to Tame Big Tech**\
-`After finding antitrust violations, federal courts have been reluctant to impose harsh sanctions. They fear meddling in markets where technology is racing ahead.`\
-https://www.nytimes.com/2026/09/03/business/google-antitrust-ad-tech-remedies-analysis.html
-
-**Lizzo Wants to Write a Great American Novel**\
-`But first, she’s publishing a children’s book, “Lil Lizzo Meets Sasha B. Flootin,’” because “I wanted to inspire young people to fall in love with music.”`\
-https://www.nytimes.com/2026/09/03/books/review/lizzo-favorite-books.html
 
