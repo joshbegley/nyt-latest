@@ -1,3 +1,11 @@
+**How to Cook for Your Friends at an Airbnb**\
+`If you’re skipping town this Labor Day weekend, or if you’re planning a cozy escape with friends or family this fall, here’s what you might want to cook up.`\
+https://www.nytimes.com/2026/09/03/dining/how-to-cook-for-your-friends-at-an-airbnb.html
+
+**Bessent Blames Ukraine for High Energy Prices**\
+`After meeting with Russia’s finance minister, the Treasury secretary said Ukraine’s attacks on Russian oil infrastructure were contributing to a global energy shock.`\
+https://www.nytimes.com/2026/09/03/business/bessent-energy-prices-ukraine.html
+
 **After Trump Rift, Musk Begins Spending to Boost Republicans**\
 `Mr. Musk plans to spend at least $100 million in more than a dozen competitive House and Senate races. The tech billionaire helped Donald Trump to victory in 2024.`\
 https://www.nytimes.com/2026/09/03/us/elon-musk-republican-spending.html

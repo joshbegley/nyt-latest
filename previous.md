@@ -1,3 +1,11 @@
+**How to Cook for Your Friends at an Airbnb**\
+`If you’re skipping town this Labor Day weekend, or if you’re planning a cozy escape with friends or family this fall, here’s what you might want to cook up.`\
+https://www.nytimes.com/2026/09/03/dining/how-to-cook-for-your-friends-at-an-airbnb.html
+
+**Bessent Blames Ukraine for High Energy Prices**\
+`After meeting with Russia’s finance minister, the Treasury secretary said Ukraine’s attacks on Russian oil infrastructure were contributing to a global energy shock.`\
+https://www.nytimes.com/2026/09/03/business/bessent-energy-prices-ukraine.html
+
 **Israel Is Expected to Release Lebanese Prisoners, in Rare Sign of Progress**\
 `The move would come amid struggling talks between Israel and Lebanon aimed at disarming Hezbollah and ending Israel’s invasion.`\
 https://www.nytimes.com/2026/09/03/world/middleeast/israel-lebanon-prisoners-release.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/09/03/books/review/gloria-steinem-writing-appraisal
 **Vietnam Sentences 11 to Death Penalty in Drug Trafficking Case**\
 `The authorities said they uncovered the network after four flight attendants arriving from Paris were found with narcotics hidden in toothpaste tubes.`\
 https://www.nytimes.com/2026/09/03/world/asia/vietnam-death-penalty-drug-trafficking.html
-
-**“Electra/Persona”: Cate Blanchett and Nina Hoss Fuse Bergman and Greek Tragedy Into One**\
-`In “Electra/Persona” at the National Theater in London, the actresses turn a spotlight on performance and the slipperiness of identity.`\
-https://www.nytimes.com/2026/09/03/theater/electra-persona-national-theatre-cate-blanchett-nina-hoss-review.html
-
-**Gloria Steinem’s Glamour Was a Means to an End**\
-`The glasses, the hairdo, the bell bottoms and hip-slung belts were all wrapped up in her feminist cause.`\
-https://www.nytimes.com/2026/09/03/style/gloria-steinem-style-feminism.html
 

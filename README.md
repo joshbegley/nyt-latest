@@ -14,7 +14,7 @@ https://www.nytimes.com/2026/09/03/world/middleeast/israel-lebanon-prisoners-rel
 `The charges marked a rare instance of President Trump’s Justice Department accusing a federal agent of breaking the law while on the job.`\
 https://www.nytimes.com/2026/09/03/us/federal-prosecution-minnesota-ice-shooting.html
 
-**So It’s Gonna Be Ohio? This Tiny Village Is Ready for Taylor Swift and Travis Kelce.**\
+**Travis Kelce’s New Ohio Home Has Neighbors Buzzing With Excitement About Taylor Swift**\
 `The wealthy enclave of Bratenahl, Ohio, has been aflutter after learning that Travis Kelce purchased a Lake Erie mansion.`\
 https://www.nytimes.com/2026/09/03/us/bratenahl-ohio-taylor-swift-travis-kelce.html
 
