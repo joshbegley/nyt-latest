@@ -1,3 +1,11 @@
+**These Offbeat Wall Mirrors Do More Than Reflect**\
+`A roundup of colorful, intricate and otherwise unconventional pieces that will add personality to any room.`\
+https://www.nytimes.com/2026/09/03/t-magazine/best-decorative-mirrors.html
+
+**Rogers Stadium in Toronto Is Severely Damaged in Thunderstorms**\
+`The music venue, which opened in 2025, was built specifically for large concerts. The fate of its next show, featuring AC/DC, is unclear.`\
+https://www.nytimes.com/2026/09/03/world/canada/toronto-rogers-stadium-thunderstorm-damage.html
+
 **Plans Announced to Break Ground on Trump’s Triumphal Arch Before Final Approval**\
 `Doug Burgum, the interior secretary, announced plans to start work on the site of the 250-foot-tall triumphal arch. Final approval of the project is still pending.`\
 https://www.nytimes.com/2026/09/03/us/politics/trump-triumphal-arch-plans-approval.html
