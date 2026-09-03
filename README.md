@@ -194,7 +194,3 @@ https://www.nytimes.com/2026/09/03/realestate/housing-market-nyc.html
 `Haitian election officials have set elections for Dec. 13, but many experts say extreme violence is likely to cause a postponement. Again.`\
 https://www.nytimes.com/2026/09/03/world/americas/haiti-election-gangs.html
 
-**Is Magnesium Better for Sleep Than Melatonin?**\
-`The supplement is rising in popularity among those hunting for better sleep. We asked experts whether the science justifies the hype.`\
-https://www.nytimes.com/2026/09/03/well/eat/magnesium-versus-melatonin-sleep.html
-

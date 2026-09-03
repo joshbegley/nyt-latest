@@ -1,3 +1,7 @@
+**Trump Administration Moves to Strip Schools That Aid Minority Students**\
+`The Treasury Department released rules that would prevent schools with race-based programs from qualifying for tax-exempt status, a threat to both higher education and other private schools.`\
+https://www.nytimes.com/2026/09/03/business/economy/trump-irs-college-nonprofits.html
+
 **Lindsay Clancy Murder Trial Recap: What to Know Before It’s Over**\
 `A quick rundown of why she is on trial for murder and what’s at stake.`\
 https://www.nytimes.com/2026/09/03/us/lindsay-clancy-trial-murder-recap.html
