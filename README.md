@@ -1,3 +1,7 @@
+**The Athletic Says Russini’s Relationship With a Coach Violated Its Standards**\
+`The New York Times-owned publication said the relationship between its former reporter Dianna Russini and Mike Vrabel of the Patriots gave the appearance of a conflict of interest.`\
+https://www.nytimes.com/2026/09/03/business/athletic-russini-vrabel-relationship.html
+
 **How Courts Have Dealt With Postpartum Psychosis Cases**\
 `Defendants who claim to have had postpartum psychosis must meet a state’s definition of insanity to be found not guilty. The definitions of insanity vary.`\
 https://www.nytimes.com/2026/09/03/us/legal-outcomes-postpartum-psychosis-diagnosis.html
@@ -142,8 +146,8 @@ https://www.nytimes.com/2026/09/03/world/europe/russia-ukraine-escalation.html
 `Marco Rubio is taking the wrong approach to free speech.`\
 https://www.nytimes.com/2026/09/03/opinion/trump-rubio-free-speech-judges.html
 
-**Exit, Trump. Enter, What?**\
-`It’s OK to admit it. The state of the world is terrifying.`\
+**It’s OK to Admit It. The State of the World Is Terrifying.**\
+`Exit, Trump. Enter, what?`\
 https://www.nytimes.com/2026/09/03/opinion/trump-trumpism-civics-education.html
 
 **Can the Lindsay Clancy Jury Break Its Deadlock?**\
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/09/03/science/what-did-jurassic-forests-sound-like-
 **Many Italians Long Resisted Air-Conditioning. Then Europe Got Hotter.**\
 `Amid record-breaking temperatures on the continent, households and businesses in Italy are increasingly installing cooling units.`\
 https://www.nytimes.com/2026/09/03/world/europe/italy-air-conditioning-heat.html
-
-**How Families Develop Their Own Private Language**\
-`“Familects” emerge out of in-jokes and mispronunciations, but they reveal something about how all language evolves.`\
-https://www.nytimes.com/2026/09/03/magazine/family-private-language-vocabulary-familect.html
 

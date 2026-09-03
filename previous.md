@@ -1,8 +1,12 @@
+**How Courts Have Dealt With Postpartum Psychosis Cases**\
+`Defendants who claim to have had postpartum psychosis must meet a state’s definition of insanity to be found not guilty. The definitions of insanity vary.`\
+https://www.nytimes.com/2026/09/03/us/legal-outcomes-postpartum-psychosis-diagnosis.html
+
 **After Trump Rift, Musk Begins Spending to Boost Republicans**\
 `Elon Musk plans to spend at least $100 million in more than a dozen competitive House and Senate races. The tech billionaire helped Donald Trump to victory in 2024.`\
 https://www.nytimes.com/2026/09/03/us/elon-musk-republican-spending.html
 
-**Israeli Military Kills Two Palestinians in Nighttime Village Raid**\
+**Israeli Military Kills Two Palestinian Youths in Village Raid, Residents Say**\
 `Al Mughayir, in the Israeli-occupied West Bank, has become a focal point for rising settler violence, with the latest deadly episode starting in a dispute over livestock.`\
 https://www.nytimes.com/2026/09/03/world/middleeast/west-bank-israel-palestinians-shooting.html
 
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/09/03/world/europe/italy-air-conditioning-heat.html
 **How Families Develop Their Own Private Language**\
 `“Familects” emerge out of in-jokes and mispronunciations, but they reveal something about how all language evolves.`\
 https://www.nytimes.com/2026/09/03/magazine/family-private-language-vocabulary-familect.html
-
-**Where the Rich Get Richer and Everyone Else Just Gets By**\
-`A report from the city comptroller found that in New York City, the wealthy have become wealthier since the pandemic. The middle class has stagnated.`\
-https://www.nytimes.com/2026/09/03/nyregion/where-the-rich-get-richer-and-everyone-else-just-gets-by.html
 
