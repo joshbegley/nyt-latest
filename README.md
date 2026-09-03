@@ -1,3 +1,7 @@
+**Carla Jeffery, Actress in Disney’s ‘Zombies’ Films, Dies at 33**\
+`Ms. Jeffery also had a series of roles on other Disney and Nickelodeon series, as well as a season on “Curb Your Enthusiasm.”`\
+https://www.nytimes.com/2026/09/02/arts/television/carla-jeffery-dead.html
+
 **Homeland Security Secretary’s Plane Makes Emergency Landing**\
 `The landing was the latest close call over Washington’s congested airspace to involve a senior government official.`\
 https://www.nytimes.com/2026/09/02/us/politics/homeland-security-mullin-plane-emergency-landing.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/02/briefing/tariffs-sweet-marthas.html
 **Trump insta de nuevo al pueblo de Irán a ‘levantarse y luchar’**\
 `EE. UU. parece estar cada vez más estancado en Irán después de seis meses de conflicto, a pesar de las declaraciones de dominio militar del presidente Trump.`\
 https://www.nytimes.com/es/2026/09/02/espanol/estados-unidos/trump-iran-estrecho-de-ormuz.html
-
-**Judge Lacked Power to Vacate Bowe Bergdahl’s Conviction, Court Finds**\
-`The ruling effectively reinstates Mr. Bergdahl’s punishment, including his dishonorable discharge, for walking off a base in Afghanistan in 2009, prompting an extensive search-and-rescue mission.`\
-https://www.nytimes.com/2026/09/02/us/bowe-bergdahl-conviction-army-sergeant-afghanistan.html
 
