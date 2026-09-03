@@ -1,3 +1,7 @@
+**Strawberry Eton Mess**\
+`Eton mess is a classic British dessert made of a mixture of fresh fruit, cream and crushed baked meringue.`\
+https://www.nytimes.com/video/dining/100000011125959/strawberry-eton-mess.html
+
 **In Small Iranian Town, a U.S. Attack Turns a Wedding Into a Tragedy**\
 `The bomb that hit the residential area was American, according to a weapons expert and a visual analysis by The Times. It killed five people and wounded 67 others, the Iranian authorities said.`\
 https://www.nytimes.com/2026/09/02/video/iran-us-attack-wedding.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/02/opinion/john-galliano-met-museum.html
 **El Centro Kennedy comienza a retirar una escultura sin previo aviso**\
 `La obra de arte “Blue”, añadida al campus en 2019, fue seleccionada para su eliminación después de que el presidente Trump tomara control del centro.`\
 https://www.nytimes.com/es/2026/09/02/espanol/cultura/trump-centro-kennedy-escultura.html
-
-**A Guide to Covid, Flu and R.S.V. Vaccines This Fall**\
-`Leading health organizations joined forces to issue the recommendations, citing a lack of strong guidance from the federal government.`\
-https://www.nytimes.com/2026/09/02/well/covid-flu-vaccines-rsv.html
 
