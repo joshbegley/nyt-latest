@@ -1,3 +1,7 @@
+**Trump Administration Asks Supreme Court to Allow Mail Voting Limits**\
+`The justices have been asked to weigh in again on the Trump administration’s efforts to restrict mail voting — this time on whether the plans violate the Constitution.`\
+https://www.nytimes.com/2026/09/03/us/politics/trump-supreme-court-mail-ballots.html
+
 **Volkswagen Plans to Cut 50,000 Jobs**\
 `Facing growing competition from China and rapidly advancing technology, the German auto giant said Thursday its board had approved a “comprehensive” restructuring.`\
 https://www.nytimes.com/2026/09/03/business/volkswagen-job-cuts.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/03/nyregion/assisted-suicide-quietus-new-york.ht
 **Through the Hands of Strangers, Missing Iranian Artists Put on a Show in L.A.**\
 `Isolated by war, they nevertheless are taking part in an exhibition at The Brick, paired with local artists who interpreted and realized their work.`\
 https://www.nytimes.com/2026/09/03/arts/design/iranian-artists-los-angeles-the-brick.html
-
-**Clancy’s Lawyer, Kevin Reddington, Became a Hero to Her Supporters**\
-`The themes present in Lindsay Clancy’s trial are not unfamiliar to Mr. Reddington, a veteran defense lawyer.`\
-https://www.nytimes.com/2026/09/03/us/clancy-lawyer-kevin-reddington.html
 
