@@ -1,4 +1,8 @@
-**The Athletic Says Russini’s Relationship With a Coach Violated Its Standards**\
+**Rival Ukrainian Intelligence Units Open Fire Against Each Other in Kyiv**\
+`President Volodymyr Zelensky described the shootout on the streets of the Ukrainian capital as an “absolutely shameful event” and ordered an investigation.`\
+https://www.nytimes.com/2026/09/03/todayspaper/rival-ukrainian-intelligence-units-open-fire-against-each-other-in-kyiv.html
+
+**The Athletic Says Dianna Russini’s Relationship With Mike Vrabel Violated Its Standards**\
 `The New York Times-owned publication said the relationship between its former reporter Dianna Russini and Mike Vrabel of the Patriots gave the appearance of a conflict of interest.`\
 https://www.nytimes.com/2026/09/03/business/athletic-russini-vrabel-relationship.html
 
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/09/03/style/us-open-fashion-outfits.html
 **What Did Jurassic Forests Sound Like? Like This.**\
 `Scientists spent over a decade reconstructing the calls of nine species of ancient insects to create the first accurate Jurassic soundscape.`\
 https://www.nytimes.com/2026/09/03/science/what-did-jurassic-forests-sound-like-like-this.html
-
-**Many Italians Long Resisted Air-Conditioning. Then Europe Got Hotter.**\
-`Amid record-breaking temperatures on the continent, households and businesses in Italy are increasingly installing cooling units.`\
-https://www.nytimes.com/2026/09/03/world/europe/italy-air-conditioning-heat.html
 
