@@ -1,3 +1,15 @@
+**Today, In Short**\
+`Ariana Grande. Box office hits. And coconut cake.`\
+https://www.nytimes.com/2026/09/03/briefing/today-in-short.html
+
+**‘This Is Incredible. Sooo Flavorful and Light and Hearty’**\
+`Chile chicken and bean guisado, a reader favorite from our Weeknight 100.`\
+https://www.nytimes.com/2026/09/03/dining/this-is-incredible-sooo-flavorful-and-light-and-hearty.html
+
+**The Clancy Children: A ‘Girly Girl,’ a ‘Paw Patrol’ Fan and a Happy Baby**\
+`Trial testimony and photo exhibits told the story of Cora, Dawson and Callan.`\
+https://www.nytimes.com/2026/09/03/us/cora-dawson-callan-clancy-children.html
+
 **Lindsay Clancy Was a Nurse Who ‘Always Wanted to Be a Mother’**\
 `Witness testimony at Ms. Clancy’s trial detailed her life as a labor and delivery nurse with a growing family.`\
 https://www.nytimes.com/2026/09/03/us/who-is-lindsay-clancy.html
@@ -177,16 +189,4 @@ https://www.nytimes.com/2026/09/03/t-magazine/guitarricadelafuente-la-bola-negra
 **Trump’s D.C. Makeover Projects Are ‘Only an Idea,’ Until They’re Much More**\
 `A proposed garden of heroes is following a familiar path in which facts on the ground move faster than anyone can keep up.`\
 https://www.nytimes.com/2026/09/03/upshot/trump-dc-mall-garden-heroes.html
-
-**Corrections: Sept. 3, 2026**\
-`Corrections that appeared in print on Thursday, Sept. 3, 2026.`\
-https://www.nytimes.com/2026/09/03/pageoneplus/corrections-sept-3-2026.html
-
-**Lake Ontario Is One of Many Bodies of Water Caught in a Naming Fight**\
-`President Trump’s bid to call it ‘Lake America’ stands out in a world full of contested place names, which often represent deeper political or territorial disputes.`\
-https://www.nytimes.com/2026/09/03/world/americas/lake-ontario-bodies-of-water-naming-disputes-south-china-sea.html
-
-**36 Hours in Midcoast Maine: Things to Do and See**\
-`Working harbors and painterly landscapes meet storied restaurants, a rich literary tradition and a thriving arts scene on this low-key stretch of Maine’s coastline.`\
-https://www.nytimes.com/interactive/2026/09/03/travel/things-to-do-midcoast-maine.html
 

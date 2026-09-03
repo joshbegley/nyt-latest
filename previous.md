@@ -1,3 +1,11 @@
+**Lindsay Clancy Was a Nurse Who ‘Always Wanted to Be a Mother’**\
+`Witness testimony at Ms. Clancy’s trial detailed her life as a labor and delivery nurse with a growing family.`\
+https://www.nytimes.com/2026/09/03/us/who-is-lindsay-clancy.html
+
+**Why Sinister ‘Cat in the Hat’ Videos Are Prompting Police Warnings**\
+`Grainy, threatening footage of the Dr. Seuss character, seemingly made with A.I., have terrorized schoolchildren and set off investigations in several countries.`\
+https://www.nytimes.com/2026/09/03/us/cat-in-the-hat-ai-social-media-trend.html
+
 **Rival Ukrainian Intelligence Units Open Fire Against Each Other in Kyiv**\
 `President Volodymyr Zelensky described the shootout on the streets of the Ukrainian capital as an “absolutely shameful event” and ordered an investigation.`\
 https://www.nytimes.com/2026/09/03/todayspaper/rival-ukrainian-intelligence-units-open-fire-against-each-other-in-kyiv.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/09/03/world/americas/lake-ontario-bodies-of-water-n
 **36 Hours in Midcoast Maine: Things to Do and See**\
 `Working harbors and painterly landscapes meet storied restaurants, a rich literary tradition and a thriving arts scene on this low-key stretch of Maine’s coastline.`\
 https://www.nytimes.com/interactive/2026/09/03/travel/things-to-do-midcoast-maine.html
-
-**The Best Fashion From the U.S. Open: Naomi Osaka, Carlos Alcaraz and More**\
-`The tournament has become a sweat-stained fashion week for players, spectators and celebrities.`\
-https://www.nytimes.com/2026/09/03/style/us-open-fashion-outfits.html
-
-**What Did Jurassic Forests Sound Like? Like This.**\
-`Scientists spent over a decade reconstructing the calls of nine species of ancient insects to create the first accurate Jurassic soundscape.`\
-https://www.nytimes.com/2026/09/03/science/what-did-jurassic-forests-sound-like-like-this.html
 

@@ -1,3 +1,11 @@
+**Lindsay Clancy Was a Nurse Who ‘Always Wanted to Be a Mother’**\
+`Witness testimony at Ms. Clancy’s trial detailed her life as a labor and delivery nurse with a growing family.`\
+https://www.nytimes.com/2026/09/03/us/who-is-lindsay-clancy.html
+
+**Why Sinister ‘Cat in the Hat’ Videos Are Prompting Police Warnings**\
+`Grainy, threatening footage of the Dr. Seuss character, seemingly made with A.I., have terrorized schoolchildren and set off investigations in several countries.`\
+https://www.nytimes.com/2026/09/03/us/cat-in-the-hat-ai-social-media-trend.html
+
 **Rival Ukrainian Intelligence Units Open Fire Against Each Other in Kyiv**\
 `President Volodymyr Zelensky described the shootout on the streets of the Ukrainian capital as an “absolutely shameful event” and ordered an investigation.`\
 https://www.nytimes.com/2026/09/03/todayspaper/rival-ukrainian-intelligence-units-open-fire-against-each-other-in-kyiv.html
