@@ -1,3 +1,11 @@
+**The Joke That Started a Political Movement**\
+`“For more than a decade, the people in India were scared of questioning the government. Now, finally, people are no longer scared,” Abhijeet Dipke, a 30-year-old Indian university graduate whose viral X post led to the creation of the Cockroach Janta Party, tells Opinion Video.`\
+https://www.nytimes.com/video/opinion/100000011101922/the-joke-that-started-a-political-movement.html
+
+**Mayor Magic**\
+`We look at how some mayors have managed to hold onto voter trust, and what national leaders could learn from their success.`\
+https://www.nytimes.com/2026/09/03/world/mayors-mamdani-burnham-gloria-steinem.html
+
 **42 Years Later, Jury Finds Texas Man Guilty in Killing of Teen Girl**\
 `Prosecutors said the man provided the drugs used to kill a teen in 1984. Her remains were found in an area that came to be known as the Texas Killing Fields.`\
 https://www.nytimes.com/2026/09/03/us/texas-killing-fields-cold-case-manslaughter.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/03/us/lindsay-clancy-mothers-reactions.html
 **‘By Any Means’ Review: Bending the Law to Enforce It**\
 `Yahya Abdul-Mateen II and Mark Wahlberg do the F.B.I.’s dirty work in a civil rights picture caught between earnestness and exploitation.`\
 https://www.nytimes.com/2026/09/03/movies/by-any-means-review.html
-
-**Leon Black Sues Congressional Panel Investigating Epstein**\
-`The billionaire skipped a deposition on Thursday and filed a lawsuit seeking to block a House committee’s subpoenas demanding nondisclosure agreements he may have made with women.`\
-https://www.nytimes.com/2026/09/03/business/leon-black-sues-congressional-panel-investigating-epstein.html
-
-**The Start-Up That Helps People Die**\
-`Medical aid in dying is now legal in New York. A team of clinical professionals decided to create a practice to help their clients die on their own terms.`\
-https://www.nytimes.com/2026/09/03/nyregion/assisted-suicide-quietus-new-york.html
 

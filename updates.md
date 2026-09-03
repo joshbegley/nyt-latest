@@ -1,3 +1,11 @@
+**42 Years Later, Jury Finds Texas Man Guilty in Killing of Teen Girl**\
+`Prosecutors said the man provided the drugs used to kill a teen in 1984. Her remains were found in an area that came to be known as the Texas Killing Fields.`\
+https://www.nytimes.com/2026/09/03/us/texas-killing-fields-cold-case-manslaughter.html
+
+**Norway Seizes Russian Ship, Testing Moscow in the High Arctic**\
+`Empowered by an international court order, Norway captured the vessel as part of a global effort to seize Russian assets. The Russians called it “piracy.”`\
+https://www.nytimes.com/2026/09/03/world/europe/norway-russian-research-ship-arctic.html
+
 **Trump Administration Asks Supreme Court to Allow Mail Voting Limits**\
 `The justices have been asked to weigh in again on the Trump administration’s efforts to restrict mail voting — this time on whether the plans violate the Constitution.`\
 https://www.nytimes.com/2026/09/03/us/politics/trump-supreme-court-mail-ballots.html
