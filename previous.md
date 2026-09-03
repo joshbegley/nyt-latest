@@ -1,3 +1,11 @@
+**The Show That Makes New Yorkers the Stars of Their Own City**\
+`The cast of 100 in “Public Record,” almost all amateurs, spotlights people who open their hearts and share their stories for five nights at the Delacorte Theater.`\
+https://www.nytimes.com/2026/09/03/theater/public-record-musical-new-york.html
+
+**Muere Carla Jeffery, actriz de las películas de Disney ‘Zombies’**\
+`Jeffery también apareció en varias series de Nickelodeon, como “¡Buena suerte, Charlie!”, y tuvo un papel recurrente en el programa de HBO “Curb Your Enthusiasm”.`\
+https://www.nytimes.com/es/2026/09/03/espanol/cultura/muere-carla-jeffery-disney.html
+
 **Haiti intenta celebrar elecciones a pesar de la guerra de pandillas**\
 `Las elecciones de Haití están programadas para el 13 de diciembre, pero la violencia extrema podría retrasarlas. Comunidades enteras corren el riesgo de quedar aisladas de la votación.`\
 https://www.nytimes.com/es/2026/09/03/espanol/america-latina/haiti-elecciones-pandillas.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/09/03/opinion/trump-trumpism-civics-education.html
 **Can the Lindsay Clancy Jury Break Its Deadlock?**\
 `In general, juries that have repeatedly reported an impasse are unlikely to reach consensus. But sometimes, those asked by a judge to try harder do return a verdict.`\
 https://www.nytimes.com/2026/09/03/us/lindsay-clancy-trial-hung-jury.html
-
-**Para salvar mi hogar, izo la bandera de EE. UU.**\
-`Mientras los colonos israelíes invaden su hogar, un palestinoestadounidense ha desplegado la bandera blanca, azul y roja.`\
-https://www.nytimes.com/es/2026/09/03/espanol/opinion/israel-palestina-cisjordania-eeuu.html
-
-**How ‘La Bola Negra’ Gave Guitarricadelafuente ‘a Desire to Live’**\
-`The Barcelona, Spain-based musician Guitarricadelafuente makes his acting debut.`\
-https://www.nytimes.com/2026/09/03/t-magazine/guitarricadelafuente-la-bola-negra.html
 
