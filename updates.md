@@ -1,3 +1,15 @@
+**Tiny Memoir Contest for Students: Write a 100-Word Personal Narrative**\
+`We invite teenagers to tell a story about a meaningful life experience in just 100 words. Contest dates: Sept. 16-Oct. 28, 2026.`\
+https://www.nytimes.com/2026/09/03/learning/tiny-memoir-contest-for-students-write-a-100-word-personal-narrative.html
+
+**Hillary Clinton, Lena Dunham and Others Celebrate Gloria Steinem**\
+`After Ms. Steinem’s death at 92, celebrities and politicians reflected on her decades of activism for women’s rights and equality.`\
+https://www.nytimes.com/2026/09/03/us/gloria-steinem-death-hillary-clinton-meghan-markle.html
+
+**Gloria Steinem on Marriage and Why She Got an Abortion at 22**\
+`In a never-before-seen interview with The New York Times, Gloria Steinem, the feminist icon, discusses marriage, her career and why she got an abortion in her twenties.`\
+https://www.nytimes.com/video/obituaries/100000011131297/gloria-steinem-obituary-last-word.html
+
 **In Utah, a Latter-day Saints Temple Opens Its Doors to Nonmembers**\
 `A public open house in 2027 will grant nonmembers of the Latter-day Saints rare access to the interior of the iconic Salt Lake Temple.`\
 https://www.nytimes.com/2026/09/03/travel/salt-lake-latter-day-saints-mormon-temple.html

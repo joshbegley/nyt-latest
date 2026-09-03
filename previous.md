@@ -1,3 +1,15 @@
+**Tiny Memoir Contest for Students: Write a 100-Word Personal Narrative**\
+`We invite teenagers to tell a story about a meaningful life experience in just 100 words. Contest dates: Sept. 16-Oct. 28, 2026.`\
+https://www.nytimes.com/2026/09/03/learning/tiny-memoir-contest-for-students-write-a-100-word-personal-narrative.html
+
+**Hillary Clinton, Lena Dunham and Others Celebrate Gloria Steinem**\
+`After Ms. Steinem’s death at 92, celebrities and politicians reflected on her decades of activism for women’s rights and equality.`\
+https://www.nytimes.com/2026/09/03/us/gloria-steinem-death-hillary-clinton-meghan-markle.html
+
+**Gloria Steinem on Marriage and Why She Got an Abortion at 22**\
+`In a never-before-seen interview with The New York Times, Gloria Steinem, the feminist icon, discusses marriage, her career and why she got an abortion in her twenties.`\
+https://www.nytimes.com/video/obituaries/100000011131297/gloria-steinem-obituary-last-word.html
+
 **In Utah, a Latter-day Saints Temple Opens Its Doors to Nonmembers**\
 `A public open house in 2027 will grant nonmembers of the Latter-day Saints rare access to the interior of the iconic Salt Lake Temple.`\
 https://www.nytimes.com/2026/09/03/travel/salt-lake-latter-day-saints-mormon-temple.html
@@ -177,16 +189,4 @@ https://www.nytimes.com/live/2026/09/03/us/lindsay-clancy-trial-deadlock
 **Schools Giving Aid to Minority Students Could Lose Tax Exemptions Under Trump’s New Rules**\
 `The Treasury Department released rules that would prevent schools with race-based programs from qualifying for tax-exempt status, a threat to both higher education and other private schools.`\
 https://www.nytimes.com/2026/09/03/business/economy/trump-irs-college-nonprofits.html
-
-**China Boycotts a Top Art Festival Over Taiwan Exhibition**\
-`China said the Gwangju Biennale in South Korea was misrepresenting Taiwan as an independent nation. Beijing claims it as its own.`\
-https://www.nytimes.com/2026/09/03/world/asia/china-taiwan-gwangju-biennale.html
-
-**U.S. Trade Gap Ballooned in July**\
-`The trade deficit bounced back up last month as spending on data centers to feed the A.I. boom drove up imports.`\
-https://www.nytimes.com/2026/09/03/business/economy/us-trade-defecit-july.html
-
-**Gloria Steinem: A Life in Pictures**\
-`Steinem was one of the faces of the modern women’s rights movement.`\
-https://www.nytimes.com/2026/09/03/style/gloria-steinem-photos.html
 

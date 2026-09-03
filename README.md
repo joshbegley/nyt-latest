@@ -1,3 +1,7 @@
+**Books Our Editors Loved This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://www.nytimes.com/2026/09/03/books/review/new-recommended-books.html
+
 **Tiny Memoir Contest for Students: Write a 100-Word Personal Narrative**\
 `We invite teenagers to tell a story about a meaningful life experience in just 100 words. Contest dates: Sept. 16-Oct. 28, 2026.`\
 https://www.nytimes.com/2026/09/03/learning/tiny-memoir-contest-for-students-write-a-100-word-personal-narrative.html
@@ -22,7 +26,7 @@ https://www.nytimes.com/2026/09/03/us/burning-man-gen-z-millennials-attendance.h
 `The popular online blind date show, set at a fried chicken shop in London, became a celebrity magnet in recent months.`\
 https://www.nytimes.com/2026/09/03/style/amelia-dimoldenberg-chicken-shop-date.html
 
-**Gloria Steinem Died With Unfinished Business**\
+**What Happened When Gloria Steinem Was 22, Pregnant and Fleeing Her Old Life**\
 `Gloria Steinem got to be who she was because of a pre-Roe abortion.`\
 https://www.nytimes.com/2026/09/03/opinion/gloria-steinem-feminism-abortion.html
 
@@ -185,8 +189,4 @@ https://www.nytimes.com/interactive/polls/tennessee-us-senate-election-polls-202
 **Lindsay Clancy Trial Live Updates: Jury Tries to Break Deadlock**\
 `Jurors in the closely watched triple-murder case began a sixth day of deliberations after twice telling a judge they could not reach a verdict.`\
 https://www.nytimes.com/live/2026/09/03/us/lindsay-clancy-trial-deadlock
-
-**Schools Giving Aid to Minority Students Could Lose Tax Exemptions Under Trump’s New Rules**\
-`The Treasury Department released rules that would prevent schools with race-based programs from qualifying for tax-exempt status, a threat to both higher education and other private schools.`\
-https://www.nytimes.com/2026/09/03/business/economy/trump-irs-college-nonprofits.html
 
