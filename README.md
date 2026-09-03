@@ -1,3 +1,63 @@
+**Who’s the Snowflake Now?**\
+`Marco Rubio is taking the wrong approach to free speech.`\
+https://www.nytimes.com/2026/09/03/opinion/trump-rubio-free-speech-judges.html
+
+**Exit, Trump. Enter, What?**\
+`It’s OK to admit it. The state of the world is terrifying.`\
+https://www.nytimes.com/2026/09/03/opinion/trump-trumpism-civics-education.html
+
+**Can the Lindsay Clancy Jury Break Its Deadlock?**\
+`In general, juries that have repeatedly report an impasse are unlikely to reach consensus. But sometimes, those asked by a judge to try harder do return a verdict.`\
+https://www.nytimes.com/2026/09/03/us/lindsay-clancy-trial-hung-jury.html
+
+**Para salvar mi hogar, izo la bandera de EE. UU.**\
+`Mientras los colonos israelíes invaden su hogar, un palestinoestadounidense ha desplegado la bandera blanca, azul y roja.`\
+https://www.nytimes.com/es/2026/09/03/espanol/opinion/israel-palestina-cisjordania-eeuu.html
+
+**How ‘La Bola Negra’ Gave Guitarricadelafuente ‘a Desire to Live’**\
+`The Barcelona, Spain-based musician Guitarricadelafuente makes his acting debut.`\
+https://www.nytimes.com/2026/09/03/t-magazine/guitarricadelafuente-la-bola-negra.html
+
+**Trump’s D.C. Makeover Projects Are ‘Only an Idea,’ Until They’re Much More**\
+`A proposed garden of heroes is following a familiar path in which facts on the ground move faster than anyone can keep up.`\
+https://www.nytimes.com/2026/09/03/upshot/trump-dc-mall-garden-heroes.html
+
+**Corrections: Sept. 3, 2026**\
+`Corrections that appeared in print on Thursday, Sept. 3, 2026.`\
+https://www.nytimes.com/2026/09/03/pageoneplus/corrections-sept-3-2026.html
+
+**Lake Ontario Is One of Many Bodies of Water Caught in a Naming Fight**\
+`President Trump’s bid to call it ‘Lake America’ stands out in a world full of contested place names, which often represent deeper political or territorial disputes.`\
+https://www.nytimes.com/2026/09/03/world/americas/lake-ontario-bodies-of-water-naming-disputes-south-china-sea.html
+
+**36 Hours in Midcoast Maine: Things to Do and See**\
+`Working harbors and painterly landscapes meet storied restaurants, a rich literary tradition and a thriving arts scene on this low-key stretch of Maine’s coastline.`\
+https://www.nytimes.com/interactive/2026/09/03/travel/things-to-do-midcoast-maine.html
+
+**The Best Fashion From the U.S. Open: Naomi Osaka, Carlos Alcaraz and More**\
+`The tournament has become a sweat-stained fashion week for players, spectators and celebrities.`\
+https://www.nytimes.com/2026/09/03/style/us-open-fashion-outfits.html
+
+**What Did Jurassic Forests Sound Like? Like This.**\
+`Scientists spent over a decade reconstructing the calls of nine species of ancient insects to create the first accurate Jurassic soundscape.`\
+https://www.nytimes.com/2026/09/03/science/what-did-jurassic-forests-sound-like-like-this.html
+
+**Many Italians Long Resisted Air-Conditioning. Then Europe Got Hotter.**\
+`Amid record-breaking temperatures on the continent, households and businesses in Italy are increasingly installing cooling units.`\
+https://www.nytimes.com/2026/09/03/world/europe/italy-air-conditioning-heat.html
+
+**How Families Develop Their Own Private Language**\
+`“Familects” emerge out of in-jokes and mispronunciations, but they reveal something about how all language evolves.`\
+https://www.nytimes.com/2026/09/03/magazine/family-private-language-vocabulary-familect.html
+
+**Where the Rich Get Richer and Everyone Else Just Gets By**\
+`A report from the city comptroller found that in New York City, the wealthy have become wealthier since the pandemic. The middle class has stagnated.`\
+https://www.nytimes.com/2026/09/03/nyregion/where-the-rich-get-richer-and-everyone-else-just-gets-by.html
+
+**College Presidents, Don’t Be Fooled by Linda McMahon**\
+`Her open letter to American universities is a trap.`\
+https://www.nytimes.com/2026/09/03/opinion/trump-mcmahon-harvard-compact.html
+
 **‘Cocoon — One Summer of Girlhood’ Review: Patriotic Sacrifices**\
 `The animated film is inspired by the real-life events of the Himeyuri Corps, who were mobilized, and then abandoned, in Okinawa, Japan, during World War II.`\
 https://www.nytimes.com/2026/09/03/movies/cocoon-one-summer-of-girlhood-review.html
@@ -137,64 +197,4 @@ https://www.nytimes.com/es/2026/09/03/espanol/estados-unidos/trump-medidas-fraud
 **¿Qué tan absurdos son los aranceles de Trump? Hablemos del aluminio**\
 `Canadá es mejor que Estados Unidos para fabricar aluminio. Sería mejor importarlo y enfocarse en hacer otras cosas.`\
 https://www.nytimes.com/es/2026/09/03/espanol/opinion/aranceles-trump-aluminio-canada.html
-
-**Religious Leaders Apologize for Appearing With Hindu Far-Right Group**\
-`Progressive faith leaders said invitations to a breakfast and an event at Madison Square Garden did not say they were tied to the Hindu nationalist group R.S.S.`\
-https://www.nytimes.com/2026/09/03/us/religious-leaders-rss-apology.html
-
-**Subway Explosion in 2024 Revealed ‘Systemwide Failures,’ Audit Finds**\
-`A report from the Metropolitan Transportation Authority’s inspector general said the electrical explosion, in a Brooklyn substation, had uncovered serious gaps in oversight.`\
-https://www.nytimes.com/2026/09/03/nyregion/nyc-mta-subway-explosion-2024.html
-
-**NYT Spelling Bee Answers for September 3, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/09/03/crosswords/spelling-bee-forum.html
-
-**MAGA Is Feeding a Separatist Surge in Canada**\
-`Drawing inspiration from MAGA, separatists in Alberta are pushing for a break away from Canada.`\
-https://www.nytimes.com/2026/09/03/opinion/canada-alberta-separatists-trump-maga.html
-
-**Emily Wilson, crítica de la película ‘La odisea’, retraducirá el poema**\
-`Wilson, quien fue la primera mujer en traducir el relato homérico al inglés, causó una tormenta cuando criticó la exitosa película de Christopher Nolan.`\
-https://www.nytimes.com/es/2026/09/03/espanol/cultura/emily-wilson-odisea-traductora.html
-
-**Trump Puts Tariffs of Up to 100% on Foreign-Made Drones**\
-`In addition, the F.C.C. is weighing stiff restrictions on common drone technology such as thermal imaging and aerosol spraying.`\
-https://www.nytimes.com/2026/09/03/business/trump-drone-tariffs.html
-
-**Quote of the Day: Home Survives Nepal’s Floods, and in Turn, Rescues a Family**\
-`Quotation of the Day for Thursday, September 3, 2026.`\
-https://www.nytimes.com/2026/09/03/pageoneplus/quote-of-the-day-home-survives-nepals-floods-and-in-turn-rescues-a-family.html
-
-**Keeping the Cookout Going**\
-`Black barbecues have long offered a joyful, safe space for attendees. A new generation is determined to keep the fires burning.`\
-https://www.nytimes.com/2026/09/03/style/black-cookout-joy-tradition.html
-
-**Syrians Want Justice for Assad-Era Killings and Torture**\
-`Hundreds of thousands were killed and tortured. But prosecuting everyone involved in atrocities could be impractical and risk renewed civil strife.`\
-https://www.nytimes.com/2026/09/03/world/middleeast/syria-justice-abuse-assad.html
-
-**Who Is Ahead in Texas's 35th Congressional District?**\
-`Track the latest polls in Texas's 35th Congressional District.`\
-https://www.nytimes.com/interactive/polls/texas-us-house-35-polls-2026.html
-
-**Two Dead in Minneapolis Shooting**\
-`A gunman killed two people and injured several others, including two police officers, on Wednesday in Minneapolis.`\
-https://www.nytimes.com/video/us/100000011129938/minneapolis-shooting.html
-
-**The NBA Drops the Hammer on Kawhi Leonard and the Clippers**\
-`Why league investigators didn’t believe the richest owner in American sports.`\
-https://www.nytimes.com/2026/09/02/podcasts/the-nba-brings-the-hammer-on-kawhi-leonard-and-the-clippers.html
-
-**NYT Crossword Answers for Sept. 03, 2026**\
-`Zhou Zhang’s puzzle is a whole thing.`\
-https://www.nytimes.com/2026/09/02/crosswords/daily-puzzle-2026-09-03.html
-
-**Carla Jeffery, Actress in Disney’s ‘Zombies’ Films, Dies at 33**\
-`Ms. Jeffery also appeared in several Disney and Nickelodeon series and had a recurring role on “Curb Your Enthusiasm.”`\
-https://www.nytimes.com/2026/09/02/arts/television/carla-jeffery-dead.html
-
-**Homeland Security Secretary’s Plane Makes Emergency Landing**\
-`The landing was the latest close call over Washington’s congested airspace to involve a senior government official.`\
-https://www.nytimes.com/2026/09/02/us/politics/homeland-security-mullin-plane-emergency-landing.html
 
