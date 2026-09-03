@@ -1,3 +1,19 @@
+**‘We Can Understand Parts of Her Story’: Moms React to Clancy’s Experience**\
+`Some moms are outraged and called for Lindsay Clancy’s conviction. Others watched with compassion, recognizing their own struggles with postpartum.`\
+https://www.nytimes.com/2026/09/03/us/lindsay-clancy-mothers-reactions.html
+
+**‘By Any Means’ Review: Bending the Law to Enforce It**\
+`Yahya Abdul-Mateen II and Mark Wahlberg do the F.B.I.’s dirty work in a civil rights picture caught between earnestness and exploitation.`\
+https://www.nytimes.com/2026/09/03/movies/by-any-means-review.html
+
+**Leon Black Sues Congressional Panel Investigating Epstein**\
+`The billionaire skipped a deposition on Thursday and filed a lawsuit seeking to block a House committee’s subpoenas demanding nondisclosure agreements he may have made with women.`\
+https://www.nytimes.com/2026/09/03/business/leon-black-sues-congressional-panel-investigating-epstein.html
+
+**The Start-Up That Helps People Die**\
+`Medical aid in dying is now legal in New York. A team of clinical professionals decided to create a practice to help their clients die on their own terms.`\
+https://www.nytimes.com/2026/09/03/nyregion/assisted-suicide-quietus-new-york.html
+
 **Through the Hands of Strangers, Missing Iranian Artists Put on a Show in L.A.**\
 `Isolated by war, they nevertheless are taking part in an exhibition at The Brick, paired with local artists who interpreted and realized their work.`\
 https://www.nytimes.com/2026/09/03/arts/design/iranian-artists-los-angeles-the-brick.html
