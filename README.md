@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011131731/Vance-SOT-iran-war-before-midterms.html
+
 **How to Use The Learning Network**\
 `Since 1998, The Learning Network has been helping people teach and learn with The New York Times. Here’s how to use our features.`\
 https://www.nytimes.com/2026/09/03/learning/how-to-use-the-learning-network.html
@@ -14,8 +18,8 @@ https://www.nytimes.com/interactive/2026/09/03/us/ice-recruits-whistleblower-com
 `El presidente del gobierno de España dijo que el papel de las autoridades marroquíes en momentos clave debía ser ‘aclarado’. Pero rechazó cualquier sugerencia de que hubieran planeado la crisis.`\
 https://www.nytimes.com/es/2026/09/03/espanol/mundo/espana-marruecos-ceuta-sanchez.html
 
-**Judge Presses for Clarity in Lawsuit Over Mail-In Voting Rules**\
-`Judge Indira Talwani said the Postal Service appeared to be carrying out a haphazard “experiment” with a new rule that could lead to “major disenfranchisement.”`\
+**Judge Suggests Trump Mail-In Voting Rules Could Cause ‘Major Disenfrachisement’**\
+`Judge Indira Talwani said the Postal Service appeared to be trying a haphazard “experiment” with a new rule that could result in valid ballots being tossed.`\
 https://www.nytimes.com/2026/09/03/us/politics/mail-ballots-usps-restraining-order.html
 
 **Man Is Sentenced in Explosion of Hyperbaric Chamber That Killed a 5-Year-Old**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/03/world/europe/rival-ukrainian-intelligence-uni
 **The Athletic Says Dianna Russini’s Relationship With Mike Vrabel Violated Its Standards**\
 `The New York Times-owned publication said the relationship between its former reporter Dianna Russini and Mike Vrabel of the Patriots gave the appearance of a conflict of interest.`\
 https://www.nytimes.com/2026/09/03/business/athletic-russini-vrabel-relationship.html
-
-**How Courts Have Dealt With Postpartum Psychosis Cases**\
-`Defendants who claim to have had postpartum psychosis must meet a state’s definition of insanity to be found not guilty. The definitions of insanity vary.`\
-https://www.nytimes.com/2026/09/03/us/legal-outcomes-postpartum-psychosis-diagnosis.html
 
