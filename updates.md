@@ -1,3 +1,11 @@
+**MAGA Is Feeding a Separatist Surge in Canada**\
+`Drawing inspiration from MAGA, separatists in Alberta are pushing for a break away from Canada.`\
+https://www.nytimes.com/2026/09/03/opinion/canada-alberta-separatists-trump-maga.html
+
+**Emily Wilson, crítica de la película ‘La odisea’, retraducirá el poema**\
+`Wilson, quien fue la primera mujer en traducir el relato homérico al inglés, causó una tormenta cuando criticó la exitosa película de Christopher Nolan.`\
+https://www.nytimes.com/es/2026/09/03/espanol/cultura/emily-wilson-odisea-traductora.html
+
 **Trump Puts Tariffs of Up to 100% on Foreign-Made Drones**\
 `In addition, the F.C.C. is weighing stiff restrictions on common drone technology such as thermal imaging and aerosol spraying.`\
 https://www.nytimes.com/2026/09/03/business/trump-drone-tariffs.html
