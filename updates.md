@@ -1,3 +1,11 @@
+**Carla Jeffery, Actress in Disney’s ‘Zombies’ Films, Dies at 33**\
+`Ms. Jeffery also had a series of roles on other Disney and Nickelodeon series, as well as a season on “Curb Your Enthusiasm.”`\
+https://www.nytimes.com/2026/09/02/arts/television/carla-jeffery-dead.html
+
+**The President Can’t Handle the Truth**\
+`Trump’s fantasy-reality problem is deepening.`\
+https://www.nytimes.com/2026/09/02/opinion/trump-fantasty-reality-politics.html
+
 **Homeland Security Secretary’s Plane Makes Emergency Landing**\
 `The landing was the latest close call over Washington’s congested airspace to involve a senior government official.`\
 https://www.nytimes.com/2026/09/02/us/politics/homeland-security-mullin-plane-emergency-landing.html
