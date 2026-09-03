@@ -1,3 +1,7 @@
+**Gloria Steinem’s Glamour Was a Means to an End**\
+`The glasses, the hairdo, the bell bottoms and hip-slung belts were all wrapped up in her feminist cause.`\
+https://www.nytimes.com/2026/09/03/style/gloria-steinem-style-feminism.html
+
 **Pete Hegseth’s Military**\
 `We look at the department during his tenure.`\
 https://www.nytimes.com/2026/09/03/briefing/pete-hegseths-military.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/03/movies/los-javis-la-bola-negra.html
 **Chain Saws and Joy: A Sculptor’s Evolution**\
 `Leilah Babirye, who emigrated to the United States from Uganda amid threats against L.G.B.T. people, puts queer life and belonging at the center of her art.`\
 https://www.nytimes.com/2026/09/03/arts/design/leilah-babirye-exhibit-boston.html
-
-**Best Thriller Books for Fans of ‘Succession’ and ‘Industry’**\
-`The best-selling author Linwood Barclay recommends his favorite thrillers set in the corporate world.`\
-https://www.nytimes.com/2026/09/03/books/thriller-books-succession-industry.html
 

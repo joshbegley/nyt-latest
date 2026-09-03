@@ -1,3 +1,7 @@
+**Gloria Steinem’s Glamour Was a Means to an End**\
+`The glasses, the hairdo, the bell bottoms and hip-slung belts were all wrapped up in her feminist cause.`\
+https://www.nytimes.com/2026/09/03/style/gloria-steinem-style-feminism.html
+
 **Pete Hegseth’s Military**\
 `We look at the department during his tenure.`\
 https://www.nytimes.com/2026/09/03/briefing/pete-hegseths-military.html

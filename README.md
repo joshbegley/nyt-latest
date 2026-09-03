@@ -1,3 +1,7 @@
+**“Electra/Persona”: Cate Blanchett and Nina Hoss Fuse Bergman and Greek Tragedy Into One**\
+`In “Electra/Persona” at the National Theater in London, the actresses turn a spotlight on performance and the slipperiness of identity.`\
+https://www.nytimes.com/2026/09/03/arts/electra-persona-national-theatre-cate-blanchett-nina-hoss-review.html
+
 **Gloria Steinem’s Glamour Was a Means to an End**\
 `The glasses, the hairdo, the bell bottoms and hip-slung belts were all wrapped up in her feminist cause.`\
 https://www.nytimes.com/2026/09/03/style/gloria-steinem-style-feminism.html
@@ -59,7 +63,7 @@ https://www.nytimes.com/2026/09/03/opinion/trump-rubio-free-speech-judges.html
 https://www.nytimes.com/2026/09/03/opinion/trump-trumpism-civics-education.html
 
 **Can the Lindsay Clancy Jury Break Its Deadlock?**\
-`In general, juries that have repeatedly report an impasse are unlikely to reach consensus. But sometimes, those asked by a judge to try harder do return a verdict.`\
+`In general, juries that have repeatedly reported an impasse are unlikely to reach consensus. But sometimes, those asked by a judge to try harder do return a verdict.`\
 https://www.nytimes.com/2026/09/03/us/lindsay-clancy-trial-hung-jury.html
 
 **Para salvar mi hogar, izo la bandera de EE. UU.**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/09/03/dining/pastry-portugal-pastel-ten
 **For Los Javis, Their Breakthrough ‘La Bola Negra’ Was Almost the End**\
 `Javier Calvo and Javier Ambrossi, a.k.a. Los Javis, are household names in Spain, in part for their relationship. But everything changed after their Cannes triumph “La Bola Negra.”`\
 https://www.nytimes.com/2026/09/03/movies/los-javis-la-bola-negra.html
-
-**Chain Saws and Joy: A Sculptor’s Evolution**\
-`Leilah Babirye, who emigrated to the United States from Uganda amid threats against L.G.B.T. people, puts queer life and belonging at the center of her art.`\
-https://www.nytimes.com/2026/09/03/arts/design/leilah-babirye-exhibit-boston.html
 
