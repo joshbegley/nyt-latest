@@ -1,3 +1,7 @@
+**Haiti intenta celebrar elecciones a pesar de la guerra de pandillas**\
+`Las elecciones de Haití están programadas para el 13 de diciembre, pero la violencia extrema podría retrasarlas. Comunidades enteras corren el riesgo de quedar aisladas de la votación.`\
+https://www.nytimes.com/es/2026/09/03/espanol/america-latina/haiti-elecciones-pandillas.html
+
 **Today, In Short**\
 `Ariana Grande. Box office hits. And coconut cake.`\
 https://www.nytimes.com/2026/09/03/briefing/today-in-short.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/es/2026/09/03/espanol/opinion/israel-palestina-cisjordan
 **How ‘La Bola Negra’ Gave Guitarricadelafuente ‘a Desire to Live’**\
 `The Barcelona, Spain-based musician Guitarricadelafuente makes his acting debut.`\
 https://www.nytimes.com/2026/09/03/t-magazine/guitarricadelafuente-la-bola-negra.html
-
-**Trump’s D.C. Makeover Projects Are ‘Only an Idea,’ Until They’re Much More**\
-`A proposed garden of heroes is following a familiar path in which facts on the ground move faster than anyone can keep up.`\
-https://www.nytimes.com/2026/09/03/upshot/trump-dc-mall-garden-heroes.html
 
