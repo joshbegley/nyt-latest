@@ -1,3 +1,15 @@
+**Israeli Military Kills Two Palestinians in Nighttime Village Raid**\
+`Al Mughayir, in the Israeli-occupied West Bank, has become a focal point for rising settler violence, with the latest deadly episode starting in a dispute over livestock.`\
+https://www.nytimes.com/2026/09/03/world/middleeast/west-bank-israel-palestinians-shooting.html
+
+**Muere Gloria Steinem, ícono del feminismo**\
+`Desafió los prejuicios sexistas y ayudó a las mujeres a desarrollar su sentido de autoestima y a obtener avances en la igualdad en el trabajo, en el hogar y en la sociedad en general.`\
+https://www.nytimes.com/es/2026/09/03/espanol/cultura/muere-gloria-steinem.html
+
+**Scientists Find More Than 1,000 DNA Variants Linked to Personality Traits**\
+`More than one million genomes helped identify DNA variants linked to extroversion, agreeableness, neuroticism and more. Researchers measured how those traits influenced how people lived.`\
+https://www.nytimes.com/2026/09/03/science/genes-personality-traits.html
+
 **The Serpent**\
 `Animated VPP1`\
 http://brandedplaylist.nytimes.com/video/embedded/t-brand/100000011130666/the-serpent.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/09/03/opinion/trump-mcmahon-harvard-compact.html
 **‘Cocoon — One Summer of Girlhood’ Review: Patriotic Sacrifices**\
 `The animated film is inspired by the real-life events of the Himeyuri Corps, who were mobilized, and then abandoned, in Okinawa, Japan, during World War II.`\
 https://www.nytimes.com/2026/09/03/movies/cocoon-one-summer-of-girlhood-review.html
-
-**Homes for Sale in New York and New Jersey**\
-`This week’s properties are in Hamptons Bay, N.Y., and Manahawkin, N.J.`\
-https://www.nytimes.com/2026/09/03/realestate/housing-market-near-nyc.html
-
-**Which Investors Will Get Rich From Anthropic’s IPO?**\
-`When Anthropic goes public in a blockbuster offering, which investors will profit? The answer says a lot about how much start-up investing has changed over the years.`\
-https://www.nytimes.com/2026/09/03/technology/anthropic-ipo-investors-winners.html
-
-**The Black Polar Bears of Martha’s Vineyard**\
-`For 80 summers, vacationers on the island have waded into bracing water to satisfy a desire for fellowship and light cardio.`\
-https://www.nytimes.com/2026/09/03/style/polar-bears-marthas-vineyard.html
 

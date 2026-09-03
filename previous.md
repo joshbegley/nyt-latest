@@ -1,3 +1,11 @@
+**The Serpent**\
+`Animated VPP1`\
+http://brandedplaylist.nytimes.com/video/embedded/t-brand/100000011130666/the-serpent.html
+
+**Watch Live: Lindsay Clancy Trial**\
+`Lindsay Clancy was charged with murder for strangling her three children before attempting suicide.`\
+https://www.nytimes.com/video/embedded/us/100000011119445/lindsay-clancy-trial-verdict.html
+
 **Lindsay Clancy Murder Trial Recap: What to Know Before It’s Over**\
 `A quick rundown of why she is on trial for murder and what’s at stake.`\
 https://www.nytimes.com/2026/09/03/us/lindsay-clancy-trial-murder-recap.html
@@ -10,7 +18,7 @@ https://www.nytimes.com/interactive/polls/tennessee-us-senate-election-polls-202
 `Jurors in the closely watched triple-murder case began a sixth day of deliberations after twice telling a judge they could not reach a verdict.`\
 https://www.nytimes.com/live/2026/09/03/us/lindsay-clancy-trial-deadlock
 
-**Trump Administration Moves to Strip Schools That Aid Minority Students**\
+**Trump Moves to Strip Tax Exemption From Schools That Aid Minority Students**\
 `The Treasury Department released rules that would prevent schools with race-based programs from qualifying for tax-exempt status, a threat to both higher education and other private schools.`\
 https://www.nytimes.com/2026/09/03/business/economy/trump-irs-college-nonprofits.html
 
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/09/03/technology/anthropic-ipo-investors-winners.ht
 **The Black Polar Bears of Martha’s Vineyard**\
 `For 80 summers, vacationers on the island have waded into bracing water to satisfy a desire for fellowship and light cardio.`\
 https://www.nytimes.com/2026/09/03/style/polar-bears-marthas-vineyard.html
-
-**Homes for Sale in Manhattan and the Bronx**\
-`This week’s properties are in the financial district, Lenox Hill and Wakefield.`\
-https://www.nytimes.com/2026/09/03/realestate/housing-market-nyc.html
-
-**How Do You Run for Office in a Gang War?**\
-`Haitian election officials have set elections for Dec. 13, but many experts say extreme violence is likely to cause a postponement. Again.`\
-https://www.nytimes.com/2026/09/03/world/americas/haiti-election-gangs.html
 
