@@ -1,3 +1,7 @@
+**Proposal for White House Visitor Screening Center Advances**\
+`A federal panel again paved the way for one of President Trump’s construction projects, even as it heard opposition to another proposal to fence in a park north of the White House.`\
+https://www.nytimes.com/2026/09/03/us/politics/trump-white-house-visitor-center-planning-commission.html
+
 **Missouri Supreme Court Delivers Win for Democrats in Redistricting Case**\
 `The court said a map redrawn to benefit Republicans could not be used in November. Voters will decide whether the new boundaries ever take effect.`\
 https://www.nytimes.com/2026/09/03/us/missouri-supreme-court-redistricting-referendum.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/09/03/world/middleeast/israel-lebanon-prisoners-rel
 **Federal Prosecutors Charge ICE Agent With Lying About Minnesota Shooting**\
 `The charges are a rare instance of President Trump’s Justice Department accusing a federal agent of breaking the law while on the job.`\
 https://www.nytimes.com/2026/09/03/us/federal-prosecution-minnesota-ice-shooting.html
-
-**Travis Kelce’s New Ohio Home Has Neighbors Buzzing With Excitement About Taylor Swift**\
-`The wealthy enclave of Bratenahl, Ohio, has been aflutter after learning that Travis Kelce purchased a Lake Erie mansion.`\
-https://www.nytimes.com/2026/09/03/us/bratenahl-ohio-taylor-swift-travis-kelce.html
 
 **Trump Administration Live Updates: Vance Says ‘I Don’t Know’ if Iran War Will Be Over by Midterms**\
 `(No description)`\
