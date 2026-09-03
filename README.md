@@ -192,7 +192,7 @@ https://www.nytimes.com/2026/09/03/headway/youth-football-mental-health.html
 
 **In Northern Italy, Two Old Homes Reimagined by One Designer**\
 `With both her apartment in Brescia, Italy — a repurposed rectory — and country house near Lake Iseo, Paola Moretti sought to bring out the buildings’ souls.`\
-https://www.nytimes.com/2026/09/03/t-magazine/in-northern-italy-two-old-homes-reimagined-by-one-designer.html
+https://www.nytimes.com/2026/09/03/t-magazine/paola-moretti-italian-homes.html
 
 **House Tour | Paola Moretti**\
 `The interior designer shows off her two very different homes: a pared-down mountain house and a city apartment in a converted church rectory.`\

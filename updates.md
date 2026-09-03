@@ -1,3 +1,11 @@
+**‘Brailled It’ Review: A Matter of Perspective**\
+`This experimental documentary follows three students as they compete in an annual Braille tournament in Los Angeles.`\
+https://www.nytimes.com/2026/09/03/movies/brailled-it-review.html
+
+**Nvidia Extends A.I. Spending Spree With $12.9 Billion Deal for Hugging Face**\
+`The acquisition of the start-up is an indication of Nvidia’s growing role as Silicon Valley’s central banker and its emphasis on open-source technology.`\
+https://www.nytimes.com/2026/09/03/technology/nvidia-hugging-face.html
+
 **Oil Jumps for Fourth Straight Day and Diesel Nears Record High**\
 `This week’s renewed strikes by the United States and Iran strain the flow of energy and diminish expectations the disruption will end soon.`\
 https://www.nytimes.com/2026/09/03/business/oil-diesel-prices-iran-war.html
