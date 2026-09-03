@@ -1,3 +1,11 @@
+**Missouri Supreme Court Delivers Win for Democrats in Redistricting Case**\
+`The court said a map redrawn to benefit Republicans could not be used in November. Voters will decide whether the new boundaries ever take effect.`\
+https://www.nytimes.com/2026/09/03/us/missouri-supreme-court-redistricting-referendum.html
+
+**New York Opens Inquiry Into Police Shooting of Pamela Cisneros After Times Square Stabbing**\
+`Pamela Cisneros was shot after stabbing two people, one fatally, on Monday. Under state law, Attorney General Letitia James must investigate all fatal shootings involving the police.`\
+https://www.nytimes.com/2026/09/03/nyregion/times-square-stabbing-pamela-cisneros.html
+
 **JD Vance Says He Wouldn’t Call Iran Conflict a War**\
 `In the first White House press briefing since Karoline Leavitt left as press secretary, the vice president suggested that when the conflict would end was up to Tehran.`\
 https://www.nytimes.com/2026/09/03/us/politics/vance-iran-press-briefing.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/09/03/us/federal-prosecution-minnesota-ice-shooting
 **Travis Kelce’s New Ohio Home Has Neighbors Buzzing With Excitement About Taylor Swift**\
 `The wealthy enclave of Bratenahl, Ohio, has been aflutter after learning that Travis Kelce purchased a Lake Erie mansion.`\
 https://www.nytimes.com/2026/09/03/us/bratenahl-ohio-taylor-swift-travis-kelce.html
-
-**A New Exhibition at the Jack Shainman Gallery Highlights Gordon Parks’s Creative Community**\
-`Plus: the Southern grape exciting chefs, a new stay inside a converted 1930s L.A. church and more recommendations from T Magazine.`\
-https://www.nytimes.com/2026/09/03/t-magazine/gordon-parks-exhibition-jack-shainman-gallery.html
-
-**A Woman Whose Case Resembles Clancy’s Just Won a Retrial**\
-`The highest court in Massachusetts overturned Latarsha Sanders’s 2022 murder conviction after the trial judge excluded her medical records from the evidence.`\
-https://www.nytimes.com/2026/09/03/us/lindsay-clancy-latarsha-sanders-retrial.html
 
 **Trump Administration Live Updates: Vance Says ‘I Don’t Know’ if Iran War Will Be Over by Midterms**\
 `(No description)`\

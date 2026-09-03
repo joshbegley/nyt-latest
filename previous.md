@@ -1,3 +1,7 @@
+**JD Vance Says He Wouldn’t Call Iran Conflict a War**\
+`In the first White House press briefing since Karoline Leavitt left as press secretary, the vice president suggested that when the conflict would end was up to Tehran.`\
+https://www.nytimes.com/2026/09/03/us/politics/vance-iran-press-briefing.html
+
 **Steinem’s Home, Where Feminism Flourished, Will Remain a Gathering Place**\
 `Following Ms. Steinem’s death on Wednesday, her foundation said her Upper East Side home would become a permanent space for organizing and activism.`\
 https://www.nytimes.com/2026/09/03/nyregion/gloria-steinem-home-new-york.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/09/03/t-magazine/gordon-parks-exhibition-jack-shain
 **A Woman Whose Case Resembles Clancy’s Just Won a Retrial**\
 `The highest court in Massachusetts overturned Latarsha Sanders’s 2022 murder conviction after the trial judge excluded her medical records from the evidence.`\
 https://www.nytimes.com/2026/09/03/us/lindsay-clancy-latarsha-sanders-retrial.html
-
-**Ejercicios y hábitos para reforzar el equilibrio y envejecer bien**\
-`Mantenerse en pie no es una sola habilidad, sino más bien varios sistemas físicos, sensoriales y cognitivos que trabajan juntos. Aquí algunos consejos para ejercitarlos.`\
-https://www.nytimes.com/es/2026/09/03/espanol/equilibrio-ejercicios-envejecimiento.html
 
 **Trump Administration Live Updates: Vance Says ‘I Don’t Know’ if Iran War Will Be Over by Midterms**\
 `(No description)`\
