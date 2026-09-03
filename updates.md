@@ -1,3 +1,19 @@
+**¿Qué tan absurdos son los aranceles de Trump? Hablemos del aluminio**\
+`Canadá es mejor que Estados Unidos para fabricar aluminio. Sería mejor importarlo y enfocarse en hacer otras cosas.`\
+https://www.nytimes.com/es/2026/09/03/espanol/opinion/aranceles-trump-aluminio-canada.html
+
+**Religious Leaders Apologize for Appearing With Hindu Far-Right Group**\
+`Progressive faith leaders said invitations to a breakfast and an event at Madison Square Garden did not say they were tied to the Hindu nationalist group R.S.S.`\
+https://www.nytimes.com/2026/09/03/us/religious-leaders-rss-apology.html
+
+**Subway Explosion in 2024 Revealed ‘Systemwide Failures,’ Audit Finds**\
+`A report from the Metropolitan Transportation Authority’s inspector general said the electrical explosion, in a Brooklyn substation, had uncovered serious gaps in oversight.`\
+https://www.nytimes.com/2026/09/03/nyregion/nyc-mta-subway-explosion-2024.html
+
+**NYT Spelling Bee Answers for September 3, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/09/03/crosswords/spelling-bee-forum.html
+
 **MAGA Is Feeding a Separatist Surge in Canada**\
 `Drawing inspiration from MAGA, separatists in Alberta are pushing for a break away from Canada.`\
 https://www.nytimes.com/2026/09/03/opinion/canada-alberta-separatists-trump-maga.html
