@@ -1,3 +1,7 @@
+**Rogers Stadium in Toronto Is Severely Damaged in Thunderstorm**\
+`The music venue, which opened in 2025, was built specifically for large concerts. The fate of its next show, featuring AC/DC, is unclear.`\
+https://www.nytimes.com/2026/09/03/world/canada/toronto-rogers-stadium-thunderstorm-damage.html
+
 **These Offbeat Wall Mirrors Do More Than Reflect**\
 `A roundup of colorful, intricate and otherwise unconventional pieces that will add personality to any room.`\
 https://www.nytimes.com/2026/09/03/t-magazine/best-decorative-mirrors.html
