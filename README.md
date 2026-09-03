@@ -1,3 +1,15 @@
+**Tesla Begins Offering Rides in a Car Without a Steering Wheel**\
+`The new Cybercab embodies Elon Musk’s vision of cars that drive themselves, but it is not clear when the vehicle will be widely available.`\
+https://www.nytimes.com/2026/09/03/business/tesla-cybercab-robotaxi-rides.html
+
+**Read the Missouri Supreme Court decision**\
+`The Missouri Supreme Court cleared the way for the state’s voters to decide in November whether to keep new congressional district boundaries redrawn to benefit Republicans.`\
+https://www.nytimes.com/interactive/2026/09/03/us/missouri-supreme-court-redistricting.html
+
+**Slava Veder, Whose Camera Captured a Defining Vietnam Homecoming, Dies at 99**\
+`His Pulitzer-winning photograph, “Burst of Joy,” documented an Air Force pilot’s reunion with his family after five years as a prisoner of war in Vietnam.`\
+https://www.nytimes.com/2026/09/03/us/slava-veder-dead.html
+
 **Proposal for White House Visitor Screening Center Advances**\
 `A federal panel again paved the way for one of President Trump’s construction projects, even as it heard opposition to another proposal to fence in a park north of the White House.`\
 https://www.nytimes.com/2026/09/03/us/politics/trump-white-house-visitor-center-planning-commission.html
@@ -110,6 +122,10 @@ https://www.nytimes.com/interactive/2026/09/03/us/ice-recruits-whistleblower-com
 `El presidente del gobierno de España dijo que el papel de las autoridades marroquíes en momentos clave debía ser ‘aclarado’. Pero rechazó cualquier sugerencia de que hubieran planeado la crisis.`\
 https://www.nytimes.com/es/2026/09/03/espanol/mundo/espana-marruecos-ceuta-sanchez.html
 
+**Judge Suggests Trump Mail-In Voting Rules Could Cause ‘Major Disenfranchisement’**\
+`Judge Indira Talwani said the Postal Service appeared to be trying a haphazard “experiment” with a new rule that could result in valid ballots being tossed.`\
+https://www.nytimes.com/2026/09/03/us/politics/mail-ballots-usps-restraining-order.html
+
 **Man Is Sentenced in Explosion of Hyperbaric Chamber That Killed a 5-Year-Old**\
 `The former safety manager of a Michigan alternative health care center will spend at least 19 months in jail in connection with the January 2025 death.`\
 https://www.nytimes.com/2026/09/03/us/hyperbaric-chamber-child-death-michigan-sentencing.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/09/03/us/minneapolis-shooting-attacker-eviction.htm
 **How to Cook for Your Friends at an Airbnb**\
 `If you’re skipping town this Labor Day weekend, or if you’re planning a cozy escape with friends or family this fall, here’s what you might want to cook up.`\
 https://www.nytimes.com/2026/09/03/dining/how-to-cook-for-your-friends-at-an-airbnb.html
-
-**Bessent Blames Ukraine for High Energy Prices**\
-`After meeting with Russia’s finance minister, the Treasury secretary said Ukraine’s attacks on Russian oil infrastructure were contributing to a global energy shock driven mainly by the U.S. war with Iran.`\
-https://www.nytimes.com/2026/09/03/business/bessent-energy-prices-ukraine.html
-
-**Israel Is Expected to Release Lebanese Prisoners, in Rare Sign of Progress**\
-`The move would come amid struggling talks between Israel and Lebanon aimed at disarming Hezbollah and ending Israel’s invasion.`\
-https://www.nytimes.com/2026/09/03/world/middleeast/israel-lebanon-prisoners-release.html
-
-**Federal Prosecutors Charge ICE Agent With Lying About Minnesota Shooting**\
-`The charges are a rare instance of President Trump’s Justice Department accusing a federal agent of breaking the law while on the job.`\
-https://www.nytimes.com/2026/09/03/us/federal-prosecution-minnesota-ice-shooting.html
-
-**Trump Administration Live Updates: Vance Says ‘I Don’t Know’ if Iran War Will Be Over by Midterms**\
-`(No description)`\
-https://www.nytimes.com/live/2026/09/03/us/trump-news
 

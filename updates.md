@@ -1,3 +1,7 @@
+**Proposal for White House Visitor Screening Center Advances**\
+`A federal panel again paved the way for one of President Trump’s construction projects, even as it heard opposition to another proposal to fence in a park north of the White House.`\
+https://www.nytimes.com/2026/09/03/us/politics/trump-white-house-visitor-center-planning-commission.html
+
 **Missouri Supreme Court Delivers Win for Democrats in Redistricting Case**\
 `The court said a map redrawn to benefit Republicans could not be used in November. Voters will decide whether the new boundaries ever take effect.`\
 https://www.nytimes.com/2026/09/03/us/missouri-supreme-court-redistricting-referendum.html
