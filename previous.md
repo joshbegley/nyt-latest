@@ -1,3 +1,7 @@
+**Trump’s Foreign Wars Are Breaking His Anti-Immigrant Coalition**\
+`President Trump’s foreign adventurism will drive immigrants to the United States. And his anti-immigrant base knows it.`\
+https://www.nytimes.com/2026/09/03/opinion/politics/trump-immigration-iran.html
+
 **Read the Whistle-Blower’s Complaint Following ICE’s Hiring Surge**\
 `The New York Times obtained this whistle-blower complaint via a public records request to the Office of Inspector General in the Department of Homeland Security.`\
 https://www.nytimes.com/interactive/2026/09/03/us/ice-recruits-whistleblower-complaint.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/03/us/legal-outcomes-postpartum-psychosis-diagno
 **After Trump Rift, Musk Begins Spending to Boost Republicans**\
 `Mr. Musk plans to spend at least $100 million in more than a dozen competitive House and Senate races. The tech billionaire helped Donald Trump to victory in 2024.`\
 https://www.nytimes.com/2026/09/03/us/elon-musk-republican-spending.html
-
-**Lindsay Clancy Trial Live Updates: Jury Tries to Break Deadlock**\
-`Jurors in the closely watched triple-murder case began a sixth day of deliberations after twice telling a judge they could not reach a verdict.`\
-https://www.nytimes.com/live/2026/09/03/us/lindsay-clancy-trial-deadlock
 

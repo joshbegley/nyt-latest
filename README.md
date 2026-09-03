@@ -1,3 +1,7 @@
+**How to Use The Learning Network**\
+`Since 1998, The Learning Network has been helping people teach and learn with The New York Times. Here’s how to use our features.`\
+https://www.nytimes.com/2026/09/03/learning/how-to-use-the-learning-network.html
+
 **Trump’s Foreign Wars Are Breaking His Anti-Immigrant Coalition**\
 `President Trump’s foreign adventurism will drive immigrants to the United States. And his anti-immigrant base knows it.`\
 https://www.nytimes.com/2026/09/03/opinion/politics/trump-immigration-iran.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/03/business/athletic-russini-vrabel-relationship
 **How Courts Have Dealt With Postpartum Psychosis Cases**\
 `Defendants who claim to have had postpartum psychosis must meet a state’s definition of insanity to be found not guilty. The definitions of insanity vary.`\
 https://www.nytimes.com/2026/09/03/us/legal-outcomes-postpartum-psychosis-diagnosis.html
-
-**After Trump Rift, Musk Begins Spending to Boost Republicans**\
-`Mr. Musk plans to spend at least $100 million in more than a dozen competitive House and Senate races. The tech billionaire helped Donald Trump to victory in 2024.`\
-https://www.nytimes.com/2026/09/03/us/elon-musk-republican-spending.html
 
