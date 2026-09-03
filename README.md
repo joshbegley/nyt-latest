@@ -1,3 +1,7 @@
+**US Open Day 4: Is Alcaraz Already in Title Form?**\
+`The reigning champion put on a scintillating display in the night match at Flushing Meadows.`\
+https://www.nytimes.com/2026/09/03/podcasts/us-open-alcaraz.html
+
 **Amantes y cineastas, su película revelación casi fue el final**\
 `Javier Calvo y Javier Ambrossi, alias Los Javis, son figuras muy conocidas en España, en parte por su relación. Pero todo cambió tras su triunfo en Cannes con ‘La bola negra’.`\
 https://www.nytimes.com/es/2026/09/03/espanol/cultura/javis-bola-negra-netflix.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/03/business/google-antitrust-ad-tech-remedies-an
 **Lizzo Wants to Write a Great American Novel**\
 `But first, she’s publishing a children’s book, “Lil Lizzo Meets Sasha B. Flootin,’” because “I wanted to inspire young people to fall in love with music.”`\
 https://www.nytimes.com/2026/09/03/books/review/lizzo-favorite-books.html
-
-**How Far Can $375,000 Go for a First-Time Buyer in a Philadelphia Suburb?**\
-`Two- and three-bedroom single-family homes, townhouses and condos in nearby New Jersey towns were considered.`\
-https://www.nytimes.com/quiz/2026/09/03/realestate/philadelphia-suburb-condo-townhouse-single-family-hunt.html
 
