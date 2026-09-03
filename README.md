@@ -1,3 +1,15 @@
+**‘We Can Understand Parts of Her Story’: Moms React to Clancy’s Experience**\
+`Some moms are outraged and called for Lindsay Clancy’s conviction. Others watched with compassion, recognizing their own struggles with postpartum.`\
+https://www.nytimes.com/2026/09/03/us/lindsay-clancy-mothers-reactions.html
+
+**‘By Any Means’ Review: Bending the Law to Enforce It**\
+`Yahya Abdul-Mateen II and Mark Wahlberg do the F.B.I.’s dirty work in a civil rights picture caught between earnestness and exploitation.`\
+https://www.nytimes.com/2026/09/03/movies/by-any-means-review.html
+
+**Leon Black Sues Congressional Panel Investigating Epstein**\
+`The billionaire skipped a deposition on Thursday and filed a lawsuit seeking to block a House committee’s subpoenas demanding nondisclosure agreements he may have made with women.`\
+https://www.nytimes.com/2026/09/03/business/leon-black-sues-congressional-panel-investigating-epstein.html
+
 **The Start-Up That Helps People Die**\
 `Medical aid in dying is now legal in New York. A team of clinical professionals decided to create a practice to help their clients die on their own terms.`\
 https://www.nytimes.com/2026/09/03/nyregion/assisted-suicide-quietus-new-york.html
@@ -177,16 +189,4 @@ https://www.nytimes.com/2026/09/03/podcasts/the-headlines/us-iran-wedding-attack
 **Today’s Wordle Hints for September 4, 2026**\
 `Scroll down for hints and conversation about the puzzle for Friday, Sept. 4, 2026.`\
 https://www.nytimes.com/2026/09/03/crosswords/wordle-review-1903.html
-
-**NYT Strands Hints for September 4, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, Sept. 4, 2026.`\
-https://www.nytimes.com/2026/09/03/crosswords/strands-sidekick-915.html
-
-**US Open Day 4: Is Alcaraz Already in Title Form?**\
-`The reigning champion put on a scintillating display in the night match at Flushing Meadows.`\
-https://www.nytimes.com/2026/09/03/podcasts/us-open-alcaraz.html
-
-**Amantes y cineastas, su película revelación casi fue el final**\
-`Javier Calvo y Javier Ambrossi, alias Los Javis, son figuras muy conocidas en España, en parte por su relación. Pero todo cambió tras su triunfo en Cannes con ‘La bola negra’.`\
-https://www.nytimes.com/es/2026/09/03/espanol/cultura/javis-bola-negra-netflix.html
 
