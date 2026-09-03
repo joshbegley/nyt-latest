@@ -1,3 +1,7 @@
+**Is Letting Only Seniors Vote by Mail Unconstitutional?**\
+`Federal appeals courts have split on the question, making Supreme Court review likely.`\
+https://www.nytimes.com/2026/09/03/us/politics/the-docket-senior-mail-ballot.html
+
 **‘We Can Understand Parts of Her Story’: Moms React to Clancy’s Experience**\
 `Some moms are outraged and called for Lindsay Clancy’s conviction. Others watched with compassion, recognizing their own struggles with postpartum.`\
 https://www.nytimes.com/2026/09/03/us/lindsay-clancy-mothers-reactions.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/09/03/podcasts/the-daily/ai-openai-hugging-face-rog
 **U.S. Attack Hits Iranian Wedding, and Influencers Are Being Quietly Paid to Talk Politics**\
 `Plus, the N.B.A.’s biggest punishment ever.`\
 https://www.nytimes.com/2026/09/03/podcasts/the-headlines/us-iran-wedding-attack-influencers-politics.html
-
-**Today’s Wordle Hints for September 4, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, Sept. 4, 2026.`\
-https://www.nytimes.com/2026/09/03/crosswords/wordle-review-1903.html
 

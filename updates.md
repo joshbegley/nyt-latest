@@ -1,3 +1,7 @@
+**Is Letting Only Seniors Vote by Mail Unconstitutional?**\
+`Federal appeals courts have split on the question, making Supreme Court review likely.`\
+https://www.nytimes.com/2026/09/03/us/politics/the-docket-senior-mail-ballot.html
+
 **‘We Can Understand Parts of Her Story’: Moms React to Clancy’s Experience**\
 `Some moms are outraged and called for Lindsay Clancy’s conviction. Others watched with compassion, recognizing their own struggles with postpartum.`\
 https://www.nytimes.com/2026/09/03/us/lindsay-clancy-mothers-reactions.html

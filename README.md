@@ -1,3 +1,7 @@
+**Ejercicios y hábitos para reforzar el equilibrio y envejecer bien**\
+`Mantenerse en pie no es una sola habilidad, sino más bien varios sistemas físicos, sensoriales y cognitivos que trabajan juntos. Aquí algunos consejos para ejercitarlos.`\
+https://www.nytimes.com/es/2026/09/03/espanol/equilibrio-ejercicios-envejecimiento.html
+
 **Is Letting Only Seniors Vote by Mail Unconstitutional?**\
 `Federal appeals courts have split on the question, making Supreme Court review likely.`\
 https://www.nytimes.com/2026/09/03/us/politics/the-docket-senior-mail-ballot.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/09/03/crosswords/connections-companion-1181.html
 **A.I. Is Outsmarting Its Creators**\
 `When OpenAI’s agents went rogue in July, they demonstrated ingenuity and drive beyond what many experts had imagined.`\
 https://www.nytimes.com/2026/09/03/podcasts/the-daily/ai-openai-hugging-face-rogue-model.html
-
-**U.S. Attack Hits Iranian Wedding, and Influencers Are Being Quietly Paid to Talk Politics**\
-`Plus, the N.B.A.’s biggest punishment ever.`\
-https://www.nytimes.com/2026/09/03/podcasts/the-headlines/us-iran-wedding-attack-influencers-politics.html
 
