@@ -1,3 +1,7 @@
+**Art Gallery Shows to See in September**\
+`This week in Newly Reviewed, Will Heinrich covers a show that displays the power of community, Morgan O’Hara’s obsessive documentation and Noah Jemisin’s phantasms.`\
+https://www.nytimes.com/2026/09/03/arts/art-gallery-shows-to-see-in-september.html
+
 **The Joke That Started a Political Movement**\
 `“For more than a decade, the people in India were scared of questioning the government. Now, finally, people are no longer scared,” Abhijeet Dipke, a 30-year-old Indian university graduate whose viral X post led to the creation of the Cockroach Janta Party, tells Opinion Video.`\
 https://www.nytimes.com/video/opinion/100000011101922/the-joke-that-started-a-political-movement.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/03/us/politics/the-docket-senior-mail-ballot.htm
 **‘We Can Understand Parts of Her Story’: Moms React to Clancy’s Experience**\
 `Some moms are outraged and called for Lindsay Clancy’s conviction. Others watched with compassion, recognizing their own struggles with postpartum.`\
 https://www.nytimes.com/2026/09/03/us/lindsay-clancy-mothers-reactions.html
-
-**‘By Any Means’ Review: Bending the Law to Enforce It**\
-`Yahya Abdul-Mateen II and Mark Wahlberg do the F.B.I.’s dirty work in a civil rights picture caught between earnestness and exploitation.`\
-https://www.nytimes.com/2026/09/03/movies/by-any-means-review.html
 
