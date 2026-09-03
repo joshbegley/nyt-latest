@@ -1,3 +1,11 @@
+**Gloria Steinem, Personification of the Women’s Movement, Dies at 92**\
+`She challenged sexist assumptions, helping women develop a sense of self-worth and gain a measure of equality at work, at home and in society at large.`\
+https://www.nytimes.com/2026/09/03/us/politics/gloria-steinem-dead.html
+
+**In Her Words: Gloria Steinem**\
+`In a never-before-seen 2008 interview with The New York Times, Ms. Steinem reflected on her career as a writer, organizer and fund-raiser.`\
+https://www.nytimes.com/video/obituaries/100000003009467/the-last-word-gloria-steinem-obituary.html
+
 **NYT Connections Answers for September 4, 2026**\
 `Scroll down for hints and conversation about the puzzle for Friday, Sept. 4, 2026.`\
 https://www.nytimes.com/2026/09/03/crosswords/connections-companion-1181.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/03/books/thriller-books-succession-industry.html
 **Mundane Amtrak Data Becomes an Ensemble Performance in Train Jazz**\
 `Train Jazz captures and maps the choreography of the Amtrak network into a seven-instrument jazz ensemble, now playing on an internet-connected device near you.`\
 https://www.nytimes.com/2026/09/03/arts/music/jazz-train-amtrak-josh-wolk.html
-
-**The New Jet-Powered Drones That Are Breeding Anxiety in Ukraine**\
-`These Russian drones are more destructive, faster and harder to shoot down than the propeller-driven models Russia has used throughout the war.`\
-https://www.nytimes.com/2026/09/03/world/europe/ukraine-russia-jet-powered-drones.html
-
-**Word of the Day: fetid**\
-`This word has appeared in 20 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/09/03/learning/word-of-the-day-fetid.html
 

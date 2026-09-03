@@ -1,3 +1,11 @@
+**Gloria Steinem, Personification of the Women’s Movement, Dies at 92**\
+`She challenged sexist assumptions, helping women develop a sense of self-worth and gain a measure of equality at work, at home and in society at large.`\
+https://www.nytimes.com/2026/09/03/us/politics/gloria-steinem-dead.html
+
+**In Her Words: Gloria Steinem**\
+`In a never-before-seen 2008 interview with The New York Times, Ms. Steinem reflected on her career as a writer, organizer and fund-raiser.`\
+https://www.nytimes.com/video/obituaries/100000003009467/the-last-word-gloria-steinem-obituary.html
+
 **NYT Connections Answers for September 4, 2026**\
 `Scroll down for hints and conversation about the puzzle for Friday, Sept. 4, 2026.`\
 https://www.nytimes.com/2026/09/03/crosswords/connections-companion-1181.html
