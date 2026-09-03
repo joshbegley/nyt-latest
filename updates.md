@@ -1,3 +1,7 @@
+**Vietnam Sentences 11 to Death Penalty in Drug Trafficking Case**\
+`The authorities said they uncovered the network after four flight attendants arriving from Paris were found with narcotics hidden in toothpaste tubes.`\
+https://www.nytimes.com/2026/09/03/world/asia/vietnam-death-penalty-drug-trafficking.html
+
 **“Electra/Persona”: Cate Blanchett and Nina Hoss Fuse Bergman and Greek Tragedy Into One**\
 `In “Electra/Persona” at the National Theater in London, the actresses turn a spotlight on performance and the slipperiness of identity.`\
 https://www.nytimes.com/2026/09/03/arts/electra-persona-national-theatre-cate-blanchett-nina-hoss-review.html
