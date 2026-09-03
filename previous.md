@@ -1,3 +1,7 @@
+**Lindsay Clancy Trial Draws Range of Spectators to Courtroom**\
+`Many came to support women who have experienced postpartum mental illness.`\
+https://www.nytimes.com/2026/09/03/us/lindsay-clancy-courtroom.html
+
 **The Show That Makes New Yorkers the Stars of Their Own City**\
 `The cast of 100 in “Public Record,” almost all amateurs, spotlights people who open their hearts and share their stories for five nights at the Delacorte Theater.`\
 https://www.nytimes.com/2026/09/03/theater/public-record-musical-new-york.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/09/03/opinion/trump-rubio-free-speech-judges.html
 **It’s OK to Admit It. The State of the World Is Terrifying.**\
 `Exit, Trump. Enter, what?`\
 https://www.nytimes.com/2026/09/03/opinion/trump-trumpism-civics-education.html
-
-**Can the Lindsay Clancy Jury Break Its Deadlock?**\
-`In general, juries that have repeatedly reported an impasse are unlikely to reach consensus. But sometimes, those asked by a judge to try harder do return a verdict.`\
-https://www.nytimes.com/2026/09/03/us/lindsay-clancy-trial-hung-jury.html
 
