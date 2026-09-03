@@ -1,3 +1,11 @@
+**White House Plans $250,000 Renovation of 2-Lane Bowling Alley**\
+`A White House spokesman said the alley renovations included fixing broken lights. The project comes as the president has sought a broad overhaul of the White House and its surroundings.`\
+https://www.nytimes.com/2026/09/02/us/politics/white-house-bowling-alley-renovation.html
+
+**Texas Is Drenched by Storm’s Remnants, and More Flooding Is Possible**\
+`As Tropical Storm Edouard crawled inland, heavy rain lashed southeastern Texas, with some areas receiving well over a foot. Forecasters warned that rains could persist into Thursday.`\
+https://www.nytimes.com/2026/09/02/weather/edouard-flooding-texas-rain.html
+
 **El-Sayed Wants to Mend Ties With Jewish Democrats, but Some Are Still Not Impressed**\
 `Lingering concerns about the Senate nominee in Michigan could make it harder for him to assemble a winning coalition.`\
 https://www.nytimes.com/2026/09/02/us/politics/el-sayed-michigan-jewish-democrats.html
