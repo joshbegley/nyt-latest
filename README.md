@@ -1,4 +1,4 @@
-**China Boycotts Top Art Festival Over Taiwan Exhibition**\
+**China Boycotts a Top Art Festival Over Taiwan Exhibition**\
 `China said the Gwangju Biennale in South Korea was misrepresenting Taiwan as an independent nation. Beijing claims it as its own.`\
 https://www.nytimes.com/2026/09/03/world/asia/china-taiwan-gwangju-biennale.html
 
