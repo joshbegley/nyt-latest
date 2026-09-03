@@ -1,3 +1,7 @@
+**El gobierno de Trump lanza una cacería contra un fraude electoral que nadie encuentra**\
+`El fraude electoral es extremadamente raro, pero el presidente Trump se ha obsesionado este año con erradicarlo, afirmando sin evidencia que decenas de miles de personas no ciudadanas están registradas para votar.`\
+https://www.nytimes.com/es/2026/09/03/espanol/estados-unidos/trump-medidas-fraude-electoral.html
+
 **¿Qué tan absurdos son los aranceles de Trump? Hablemos del aluminio**\
 `Canadá es mejor que Estados Unidos para fabricar aluminio. Sería mejor importarlo y enfocarse en hacer otras cosas.`\
 https://www.nytimes.com/es/2026/09/03/espanol/opinion/aranceles-trump-aluminio-canada.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/02/obituaries/paul-russell-dead.html
 **Who Owns Reggaeton’s Beat? A Judge Throws Out One Claim.**\
 `A copyright suit against stars including Bad Bunny and Daddy Yankee came from the producers behind a trio of songs foundational to the genre.`\
 https://www.nytimes.com/2026/09/02/arts/music/reggaeton-lawsuit-bad-bunny.html
-
-**Southwest to Open Premium Airport Lounges Across the Country**\
-`The airline said that lounges in Baltimore, Honolulu, Nashville and Austin, Texas, would debut starting late next year, and that seven more were in the works.`\
-https://www.nytimes.com/2026/09/02/travel/southwest-airport-lounges.html
 
