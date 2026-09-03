@@ -1,3 +1,11 @@
+**Oil Jumps for Fourth Straight Day and Diesel Nears Record High**\
+`This week’s renewed strikes by the United States and Iran strain the flow of energy and diminish expectations the disruption will end soon.`\
+https://www.nytimes.com/2026/09/03/business/oil-diesel-prices-iran-war.html
+
+**Gloria Steinem Came to New York to Be a Writer. She Became a Movement.**\
+`Her 1983 book “Outrageous Acts and Everyday Rebellions” is a master class in grit, empathy, curiosity and hustle.`\
+https://www.nytimes.com/2026/09/03/books/review/gloria-steinem-writing-appraisal.html
+
 **Vietnam Sentences 11 to Death Penalty in Drug Trafficking Case**\
 `The authorities said they uncovered the network after four flight attendants arriving from Paris were found with narcotics hidden in toothpaste tubes.`\
 https://www.nytimes.com/2026/09/03/world/asia/vietnam-death-penalty-drug-trafficking.html

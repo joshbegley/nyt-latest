@@ -1,3 +1,11 @@
+**‘Brailled It’ Review: A Matter of Perspective**\
+`This experimental documentary follows three students as they compete in an annual Braille tournament in Los Angeles.`\
+https://www.nytimes.com/2026/09/03/movies/brailled-it-review.html
+
+**Nvidia Extends A.I. Spending Spree With $12.9 Billion Deal for Hugging Face**\
+`The acquisition of the start-up is an indication of Nvidia’s growing role as Silicon Valley’s central banker and its emphasis on open-source technology.`\
+https://www.nytimes.com/2026/09/03/technology/nvidia-hugging-face.html
+
 **Oil Jumps for Fourth Straight Day and Diesel Nears Record High**\
 `This week’s renewed strikes by the United States and Iran strain the flow of energy and diminish expectations the disruption will end soon.`\
 https://www.nytimes.com/2026/09/03/business/oil-diesel-prices-iran-war.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/03/t-magazine/in-northern-italy-two-old-homes-re
 **House Tour | Paola Moretti**\
 `The interior designer shows off her two very different homes: a pared-down mountain house and a city apartment in a converted church rectory.`\
 https://www.nytimes.com/video/t-magazine/100000011120778/house-tour-paola-moretti.html
-
-**Reading Jonathan Franzen’s ‘The Corrections,’ 25 Years Later**\
-`Jonathan Franzen’s novel, which put a Midwestern family under the microscope, came out a week before 9/11. Why are we still talking about it?`\
-https://www.nytimes.com/2026/09/03/books/review/the-corrections-jonathan-franzen-25th-anniversary.html
-
-**Gorgeous Make-Ahead Rosh Hashana Short Ribs, Courtesy of a Reader**\
-`This recipe not only tastes better with time, but also allows the cook to relax.`\
-https://www.nytimes.com/2026/09/03/dining/rosh-hashana-short-ribs-reader-recipe.html
 
