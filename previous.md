@@ -1,3 +1,7 @@
+**Cleaner Air, Smarter Toddlers**\
+`New research links climate policies to improved early-childhood development.`\
+https://www.nytimes.com/2026/09/03/climate/cleaner-air-smarter-toddlers.html
+
 **Books Our Editors Loved This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://www.nytimes.com/2026/09/03/books/review/new-recommended-books.html
@@ -19,7 +23,7 @@ https://www.nytimes.com/video/obituaries/100000011131297/gloria-steinem-obituary
 https://www.nytimes.com/2026/09/03/travel/salt-lake-latter-day-saints-mormon-temple.html
 
 **Burning Man Draws an Older, Wealthier Crowd, Data Shows**\
-`Last year, just 1 in ten festivalgoers were in their 20s, according to researchers. A decade ago, the same group represented nearly 30 percent of attendees.`\
+`Last year, just one in ten festivalgoers was in their 20s, according to researchers. A decade ago, the same group represented nearly 30 percent of attendees.`\
 https://www.nytimes.com/2026/09/03/us/burning-man-gen-z-millennials-attendance.html
 
 **Amelia Dimoldenberg Closes ‘Chicken Shop Date’**\
@@ -55,7 +59,7 @@ https://www.nytimes.com/2026/09/03/business/bessent-energy-prices-ukraine.html
 https://www.nytimes.com/2026/09/03/world/middleeast/israel-lebanon-prisoners-release.html
 
 **Federal Prosecutors Charge ICE Agent With Lying About Minnesota Shooting**\
-`The charges marked a rare instance of President Trump’s Justice Department accusing a federal agent of breaking the law while on the job.`\
+`The charges are a rare instance of President Trump’s Justice Department accusing a federal agent of breaking the law while on the job.`\
 https://www.nytimes.com/2026/09/03/us/federal-prosecution-minnesota-ice-shooting.html
 
 **Travis Kelce’s New Ohio Home Has Neighbors Buzzing With Excitement About Taylor Swift**\
