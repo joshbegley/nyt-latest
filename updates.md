@@ -1,3 +1,23 @@
+**Where To Find Fast-Disappearing Prune Danishes and More Reader Questions**\
+`Plus train-appropriate sushi near Penn Station and a restaurant actually dedicated to Italian-style aperitivo hour.`\
+https://www.nytimes.com/2026/09/03/dining/reader-questions.html
+
+**New Yorkers: Share Your Thoughts About Israel, Gaza and Jewish Identity**\
+`The New York Times is looking to talk to Jewish New Yorkers about whether their views on Israel and the Israeli-Palestinian conflict have changed.`\
+https://www.nytimes.com/2026/09/03/nyregion/jewish-new-yorkers-israel-gaza.html
+
+**Psilocybin May Prevent Nerve Damage Caused by Chemotherapy, Study Finds**\
+`The preliminary research was conducted in mice, but scientists were optimistic the results would apply to humans. Clinical trials begin this month.`\
+https://www.nytimes.com/2026/09/03/health/psilocybin-cancer-nerve-damage.html
+
+**Read the Whistle-Blower’s Complaint Filed Amid ICE’s Hiring Surge**\
+`The New York Times obtained this whistle-blower complaint via a public records request to the Office of Inspector General in the Department of Homeland Security.`\
+https://www.nytimes.com/interactive/2026/09/03/us/ice-recruits-whistleblower-complaint.html
+
+**Judge Suggests Trump Mail-In Voting Rules Could Cause ‘Major Disenfranchisement’**\
+`Judge Indira Talwani said the Postal Service appeared to be trying a haphazard “experiment” with a new rule that could result in valid ballots being tossed.`\
+https://www.nytimes.com/2026/09/03/us/politics/mail-ballots-usps-restraining-order.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000011131828/03visualUploader-11308.html
