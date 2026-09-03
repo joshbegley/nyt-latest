@@ -10,7 +10,7 @@ https://www.nytimes.com/interactive/polls/tennessee-us-senate-election-polls-202
 `Jurors in the closely watched triple-murder case began a sixth day of deliberations after twice telling a judge they could not reach a verdict.`\
 https://www.nytimes.com/live/2026/09/03/us/lindsay-clancy-trial-deadlock
 
-**Trump Administration Moves to Strip Schools That Aid Minority Students**\
+**Trump Moves to Strip Tax Exemption From Schools That Aid Minority Students**\
 `The Treasury Department released rules that would prevent schools with race-based programs from qualifying for tax-exempt status, a threat to both higher education and other private schools.`\
 https://www.nytimes.com/2026/09/03/business/economy/trump-irs-college-nonprofits.html
 
