@@ -1,6 +1,6 @@
 **Rate Rise in Play as Fed Officials Await Inflation Data**\
 `Christopher J. Waller, a Federal Reserve governor, sounded optimistic about inflation’s trajectory but indicated he would support higher rates if progress does not continue.`\
-https://www.nytimes.com/2026/09/03/business/rate-rise-in-play-as-fed-officials-await-inflation-data.html
+https://www.nytimes.com/2026/09/03/business/interest-rates-inflation-federal-reserve.html
 
 **Feminist Leader Gloria Steinem Dies at 92**\
 `Gloria Steinem, the feminist icon and co-founder of Ms. magazine, died on Wednesday at her home in New York City. She was 92.`\
