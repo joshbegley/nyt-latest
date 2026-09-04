@@ -1,3 +1,67 @@
+**Wineries Are Offering Bingo, Picnics, Jewelry … and Sometimes Wine**\
+`With slumping sales and fewer tourists, California winemakers have turned to special events and classes to woo customers — even those who don’t drink.`\
+https://www.nytimes.com/2026/09/04/dining/drinks/wineries-bingo-picnics-jewelry.html
+
+**Sandra Bullock, Nicole Kidman and the Other ‘Practical Magic 2’ Stars on the Unlikely Sequel**\
+`Sandra Bullock, Nicole Kidman, Joey King and Maisie Williams on the unlikely sequel, embracing their witchiness and their hopes for a third film.`\
+https://www.nytimes.com/2026/09/04/movies/practical-magic-sandra-bullock-nicole-kidman.html
+
+**Plumbing the Shipwrecks of an Infamous Pirate Cove**\
+`For the marine archaeologist Sean Kingsley, the most honest history can be found on the seafloor.`\
+https://www.nytimes.com/2026/09/04/science/archaeology-shipwrecks-pirates-kingsley.html
+
+**Word of the Day: avalanche**\
+`This word has appeared in 226 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/09/04/learning/word-of-the-day-avalanche.html
+
+**‘Come From Away’ Comes Home**\
+`“Come From Away,” a musical about ​a small Newfoundland town that embraced nearly 7,000 travelers ​when their planes were grounded after the Sept. 11 attacks, is playing all over the world​, including in the town where it’s set. Our theater reporter​, Michael Paulson​, ​went to see the town and the show.`\
+https://www.nytimes.com/video/theater/100000011077905/come-from-away-comes-home.html
+
+**F1: Kimi Antonelli Leads in Points, but Lando Norris Is Closing**\
+`The rapid climb of Norris is a reminder how Max Verstappen came from far behind last year to almost snatch the title.`\
+https://www.nytimes.com/2026/09/04/sports/f1-kimi-antonelli-championship-lando-norris.html
+
+**Remember Filmstrips? These Dedicated Souls Are Racing to Save Them**\
+`One of the 20th century’s biggest media formats was often thrown out in the rush to embrace VHS. But preservationists say visual history is being lost.`\
+https://www.nytimes.com/2026/09/04/movies/filmstrips-archives.html
+
+**How ‘Come From Away’ Became a Lasting 9/11 Story**\
+`“Come From Away,” about a remote Newfoundland community that embraced grounded travelers, is playing all over the world — even in the town where it takes place.`\
+https://www.nytimes.com/2026/09/04/theater/come-from-away-musical-gander-canada.html
+
+**Krasner & Pollock, Lichtenstein and RM Make Art’s New Season Pop This Fall**\
+`Look for a wide-ranging survey of Black abstraction at MoMA PS1, Taryn Simon’s photographic explorations in the Guggenheim Museum rotunda, Eric Carle’s colorful collages and much more.`\
+https://www.nytimes.com/2026/09/04/arts/design/krasner-pollock-lichtenstein-fall-art.html
+
+**Book Review: ‘The Ghost of the Mountains,’ by Kulbhushansingh Suryawanshi**\
+`In “The Ghost of the Mountains,” Kulbhushansingh Suryawanshi proves there is no substitute for old-fashioned field study.`\
+https://www.nytimes.com/2026/09/04/books/review/the-ghost-of-the-mountains-kulbhushansingh-suryawanshi.html
+
+**The Search for New Cures Is Broken**\
+`It is too hard for medical researchers to launch clinical trials.`\
+https://www.nytimes.com/2026/09/04/opinion/clinical-trials-drugs-science.html
+
+**Behind on 2030 Climate Goals, States Are Cutting or Even Scrapping Them**\
+`Ambitious aims have given way to political anxiety over rising costs for consumers.`\
+https://www.nytimes.com/2026/09/04/upshot/states-carbon-emissions-goals.html
+
+**The Brains of F1 Drivers Are Indeed Strange**\
+`They are moving too fast for the normal mind to keep up, but elite drivers have more densely packed brain cells where it counts and use their minds more efficiently.`\
+https://www.nytimes.com/2026/09/04/sports/f1-brains-drivers-racing.html
+
+**Are Lamps Objectively Better Than Overhead Lighting?**\
+`A ruling on a home décor dispute.`\
+https://www.nytimes.com/quiz/2026/09/04/magazine/home-lighting-hodgman-quiz.html
+
+**The New York Times News Quiz, September 4, 2026**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://www.nytimes.com/quiz/2026/09/04/briefing/weekly-news-quiz.html
+
+**Inside the Nepal Tunnel Rescue Operation**\
+`Two men have been freed after nine days trapped in a tunnel at the Upper Trishuli 3A hydropower plant. Rescuers are searching for dozens more.`\
+https://www.nytimes.com/2026/09/04/world/asia/nepal-flood-tunnel-rescue-operation.html
+
 **Bringing Explosive Life to ‘Coyote vs. Acme’**\
 `The director Dave Green explains how he brought cartoons to life in “Coyote vs. Acme.”`\
 https://www.nytimes.com/video/movies/100000011088054/coyote-vs-acme-anatomy-of-a-scene.html
