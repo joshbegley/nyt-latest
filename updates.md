@@ -1,3 +1,7 @@
+**Trump administration Moves to Drop Protections for More Wetlands**\
+`The proposed rule could strip federal protections from most U.S. wetlands, many of which help feed drinking water systems.`\
+https://www.nytimes.com/2026/09/04/climate/epa-wetlands-water-protections.html
+
 **Quiet on the Court! As U.S. Open Grows, the Crowd Gets Rowdier.**\
 `Are social media influencers ruining the Open? Or are they just the latest evolution of New York’s famously boisterous tennis tournament?`\
 https://www.nytimes.com/2026/09/04/nyregion/us-open-social-media-influencers.html
