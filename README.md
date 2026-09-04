@@ -1,3 +1,11 @@
+**The U.S. Wants the Oil From These 17 Venezuelan Fields**\
+`A private oil company has struck a deal with the Trump administration to develop 17 areas in Venezuela, an effort that experts say will take years and billions of dollars.`\
+https://www.nytimes.com/2026/09/04/business/energy-environment/venezuela-oil-fields-betancourt-trump.html
+
+**How Gloria Steinem and Ms. Magazine Transformed the Publishing Industry**\
+`The late feminist icon insisted that women were not a niche audience — and proved it in 1971 with the start of an influential publication owned and operated by them.`\
+https://www.nytimes.com/2026/09/04/business/media/gloria-steinem-ms-magazine.html
+
 **Today, In Short**\
 `Alix Earle. Pastries. And our new era.`\
 https://www.nytimes.com/2026/09/04/briefing/today-in-short.html
@@ -178,15 +186,7 @@ https://www.nytimes.com/es/2026/09/04/espanol/america-latina/alejandro-betancour
 `En un video publicado en redes sociales, el presidente colombiano calificó a la operación como un “golpe letal”.`\
 https://www.nytimes.com/es/2026/09/04/espanol/america-latina/espriella-posa-cadaveres-colombia.html
 
-**Clancy Trial Verdict May Hinge on a Single Holdout Juror**\
-`The jury has been deadlocked since at least Tuesday on whether to hold Lindsay Clancy legally responsible for the strangling deaths of her three children.`\
-https://www.nytimes.com/2026/09/04/us/lindsay-clancy-trial-holdout-juror-judge-inquiry.html
-
-**How to Set New Goals This Fall**\
-`Harness that back-to-school energy to set some new goals.`\
-https://www.nytimes.com/2026/09/04/well/september-goals-fresh-start.html
-
 **2 Trapped Workers Are Rescued After 9 Days in Nepal Tunnel**\
-`“Everybody’s sense of hope was waning,” said one survivor’s relative. Rescuers were searching for dozens of others inside the tunnel at a hydropower plant damaged by last week’s deadly floods.`\
+`“Everybody’s sense of hope was waning,” said one survivor’s relative. Rescuers were searching for dozens of others inside the tunnel at a hydropower project damaged by last week’s deadly floods.`\
 https://www.nytimes.com/live/2026/09/04/world/nepal-flash-floods-rescue-tunnels
 
