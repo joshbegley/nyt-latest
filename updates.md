@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Sept. 4, 2026**\
+`Julian Xiao opens our solving weekend.`\
+https://www.nytimes.com/2026/09/03/crosswords/daily-puzzle-2026-09-04.html
+
 **Former Labor Secretary Stoked Dysfunction and Toxicity, Department Report Finds**\
 `Lori Chavez-DeRemer spent Labor Department funds on personal travel and tolerated harassment in the agency, its inspector general found.`\
 https://www.nytimes.com/2026/09/03/business/economy/labor-secretary-chavez-deremer-report.html
