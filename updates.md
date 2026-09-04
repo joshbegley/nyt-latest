@@ -1,3 +1,7 @@
+**Judge Ends Federal Oversight of Teamsters**\
+`The union and federal prosecutors agreed that organized crime groups had been rooted out of union operations, the judge wrote.`\
+https://www.nytimes.com/2026/09/03/us/politics/judge-ends-federal-oversight-of-teamsters.html
+
 **NYT Crossword Answers for Sept. 4, 2026**\
 `Julian Xiao opens our solving weekend.`\
 https://www.nytimes.com/2026/09/03/crosswords/daily-puzzle-2026-09-04.html
