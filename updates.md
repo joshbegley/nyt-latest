@@ -1,3 +1,7 @@
+**Live Updates: U.S. Hiring Jumps, an Encouraging Sign for the Economy**\
+`Employers added 162,000 jobs in August, and the unemployment rate held steady at 4.1 percent.`\
+https://www.nytimes.com/live/2026/09/04/business/jobs-report-economy
+
 **Lindsay Clancy’s Lawyer Wants a Juror Removed. The Bar Will Be High.**\
 `Judges approach complaints about jurors with caution, mindful that in the event of a conviction, a removal could be grounds for an appeal.`\
 https://www.nytimes.com/2026/09/04/us/lindsay-clancy-process-removing-juror.html
