@@ -1,3 +1,7 @@
+**What to Know About Trump’s Efforts to Block Mail-in Ballots**\
+`We sort through the proposed changes and court challenges, less than two months from Election Day.`\
+https://www.nytimes.com/2026/09/04/us/politics/trump-mail-in-ballots-voting-midterms-elections.html
+
 **On Emma Prempeh’s Canvases, Countries Collide**\
 `The artist Emma Prempeh discusses her multifaceted sense of home and the freedom she’s found with a brush.`\
 https://www.nytimes.com/2026/09/04/t-magazine/emma-prempeh-painting.html

@@ -1,3 +1,7 @@
+**What to Know About Trump’s Efforts to Block Mail-in Ballots**\
+`We sort through the proposed changes and court challenges, less than two months from Election Day.`\
+https://www.nytimes.com/2026/09/04/us/politics/trump-mail-in-ballots-voting-midterms-elections.html
+
 **On Emma Prempeh’s Canvases, Countries Collide**\
 `The artist Emma Prempeh discusses her multifaceted sense of home and the freedom she’s found with a brush.`\
 https://www.nytimes.com/2026/09/04/t-magazine/emma-prempeh-painting.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/09/04/us/politics/gloria-steinem-feminism-manospher
 **How to Define the ‘Reasonable’ in Reasonable Doubt**\
 `“Beyond a reasonable doubt” is the highest burden of proof within the American legal system. Still, there is some wiggle room.`\
 https://www.nytimes.com/2026/09/04/us/lindsay-clancy-trial-reasonable-doubt.html
-
-**‘It Was Insulting’: When Steinem Said Young Women Backed Sanders to Chase Men**\
-`During the 2016 presidential campaign, Gloria Steinem was asked about the young women supporting Bernie Sanders over Hillary Clinton. Her answer created a brief hullabaloo.`\
-https://www.nytimes.com/2026/09/04/us/politics/gloria-steinem-clinton-sanders-2016.html
 
 **U.S. Hiring Jumps, an Encouraging Sign for the Economy**\
 `Employers added 162,000 jobs in August, and the unemployment rate held steady at 4.1 percent. But wage growth is not keeping up with rising inflation.`\
