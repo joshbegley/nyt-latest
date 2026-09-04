@@ -1,3 +1,7 @@
+**Survivors Pulled From Tunnel After Nepal’s Deadly Floods**\
+`At least two people were pulled out alive from inside a hydropower project nine days after Nepal’s deadly floods, officials said.`\
+https://www.nytimes.com/video/world/asia/100000011132878/nepal-floods-rescue-tunnels.html
+
 **U.S. Diesel Prices Set New High**\
 `Because of the war in Iran, the cost has climbed past the record it reached in 2022 after Russia’s full-scale invasion of Ukraine.`\
 https://www.nytimes.com/2026/09/04/business/diesel-price-record-oil-iran.html

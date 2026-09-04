@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/09/04/business/diesel-price-record-oil-iran.html
 
 **Survivors Pulled From Tunnel After Nepal’s Deadly Floods**\
-`At least two people were pulled out alive from inside a hydropower project nine days after Nepal’s deadly floods.`\
+`At least two people were pulled out alive from inside a hydropower project nine days after Nepal’s deadly floods, officials said.`\
 https://www.nytimes.com/video/world/asia/100000011132878/nepal-floods-rescue-tunnels.html
 
 **¿Viajas el fin de semana del Día del Trabajo? Esto es lo que debes saber**\

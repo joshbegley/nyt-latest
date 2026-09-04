@@ -1,3 +1,7 @@
+**Reseña de ‘Coyote vs. Acme’: los explosivos siguen fallando**\
+`La película rescata a la perfección el tono de los “Looney Tunes” para contar una nueva historia.`\
+https://www.nytimes.com/es/2026/09/04/espanol/cultura/coyote-vs-acme.html
+
 **U.S. Diesel Prices Set New High**\
 `Because of the war in Iran, the cost has climbed past the record it reached in 2022 after Russia’s full-scale invasion of Ukraine.`\
 https://www.nytimes.com/2026/09/04/business/diesel-price-record-oil-iran.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/03/arts/art-gallery-shows-to-see-in-september.ht
 **The Joke That Started a Political Movement**\
 `“For more than a decade, the people in India were scared of questioning the government. Now, finally, people are no longer scared,” Abhijeet Dipke, a 30-year-old Indian university graduate whose viral X post led to the creation of the Cockroach Janta Party, tells Opinion Video.`\
 https://www.nytimes.com/video/opinion/100000011101922/the-joke-that-started-a-political-movement.html
-
-**Mayor Magic**\
-`We look at how some mayors have managed to hold onto voter trust, and what national leaders could learn from their success.`\
-https://www.nytimes.com/2026/09/03/world/mayors-mamdani-burnham-gloria-steinem.html
 
