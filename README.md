@@ -1,3 +1,15 @@
+**Dale Caldwell, New Jersey’s Lt. Governor, Is Said to be Under Investigation for Ethics Violations**\
+`An outside law firm has begun an investigation into Dale Caldwell, according to two Democrats familiar with the inquiry. He also serves as secretary of state.`\
+https://www.nytimes.com/2026/09/04/nyregion/new-jersey-dale-caldwell-ethics-investigation.html
+
+**Postal Service Internal Watchdog Opens Inquiry After Whistle-Blower’s Complaint**\
+`The Trump administration’s effort to screen mail-in ballots for the midterms is facing numerous challenges.`\
+https://www.nytimes.com/2026/09/04/us/politics/postal-service-internal-watchdog-inquiry.html
+
+**North Carolina Adds New Restrictions to Vote-by-Mail Program**\
+`The changes are almost certain to cause some votes to be tossed. They come at a time when President Trump is promoting false claims of widespread fraud in mail voting.`\
+https://www.nytimes.com/2026/09/04/us/politics/north-carolina-adds-new-restrictions-to-vote-by-mail-program.html
+
 **Labor Day Weekend Kicks Off With More Hot and Stormy Weather Across the U.S.**\
 `Millions of people were under heat warnings across the Midwest.`\
 https://www.nytimes.com/2026/09/04/weather/us-heat-storms-rain-labor-day-forecast.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/video/t-magazine/100000011120851/an-italian-designers-co
 **Who Is Ahead in Florida's 16th Congressional District?**\
 `Track the latest polls in Florida's 16th Congressional District.`\
 https://www.nytimes.com/interactive/polls/florida-us-house-16-polls-2026.html
-
-**Tumbler Ridge Shooting Survivors File 30 Lawsuits Against OpenAI**\
-`The survivors contend that the company should have notified the police when it shut down the shooter’s disturbing ChatGPT account eight months before the February attack in British Columbia.`\
-https://www.nytimes.com/2026/09/04/world/canada/openai-lawsuits-tumbler-ridge-shooting.html
-
-**Six-Week-Old Infant Died From Measles, Lancaster Coroner Says**\
-`The ruling casts doubt on statements from the federal health secretary, Robert F. Kennedy Jr., who speculated that measles deaths reported by the state may have been “fabricated.”`\
-https://www.nytimes.com/2026/09/04/well/measles-infant-pennsylvania-death.html
-
-**Can a Fashion Designer be a Genius?**\
-`Parsing the nuances of decadence, provocation and brilliance.`\
-https://www.nytimes.com/2026/09/04/style/galliano-john-genius.html
 

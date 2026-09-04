@@ -1,3 +1,23 @@
+**Labor Day Weekend Kicks Off With More Hot and Stormy Weather Across the U.S.**\
+`Millions of people were under heat warnings across the Midwest.`\
+https://www.nytimes.com/2026/09/04/weather/us-heat-storms-rain-labor-day-forecast.html
+
+**Severe Storms Lead to Flooding From Maryland to Michigan**\
+`Severe storms swept through the Mid-Atlantic and areas around the Great Lakes ahead of the Labor Day weekend.`\
+https://www.nytimes.com/video/weather/100000011134220/storms-midwest-mid-atlantic-abor-day-weekend.html
+
+**Trump’s Latest Clemency Grants Benefit Drug Offenders, Union Boss**\
+`The president issued pardons or commutations to 30 people on Thursday, continuing his unorthodox and unpredictable use of clemency power.`\
+https://www.nytimes.com/2026/09/04/us/politics/trump-pardons-drug-offenders-union-boss.html
+
+**The Heart Drug Pelacarsen Fails, Shocking Novartis and Cardiologists**\
+`Doctors were hopeful the drug, which was being tested in a large clinical trial by Novartis, was going to be a powerful new tool to fight heart disease.`\
+https://www.nytimes.com/2026/09/04/science/heart-drug-fails-novartis-pelacarsen.html
+
+**9 Days After Flood, 2 Men Are Pulled Alive From Mud-Filled Tunnels in Nepal**\
+`One of two workers rescued from a hydroelectric plant said he had recited prayers over and over while trapped deep underground. “How many days has it been?” he asked.`\
+https://www.nytimes.com/2026/09/04/world/asia/nepal-flood-tunnel-rescue.html
+
 **Another Heart Drug Fails, Shocking Cardiologists**\
 `Doctors were hopeful the drug, which was being tested in a large clinical trial by Novartis, was going to be a powerful new tool to fight heart disease.`\
 https://www.nytimes.com/2026/09/04/science/heart-drug-fails-novartis-pelacarsen.html

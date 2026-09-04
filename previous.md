@@ -1,4 +1,16 @@
-**Another Heart Drug Fails, Shocking Cardiologists**\
+**Labor Day Weekend Kicks Off With More Hot and Stormy Weather Across the U.S.**\
+`Millions of people were under heat warnings across the Midwest.`\
+https://www.nytimes.com/2026/09/04/weather/us-heat-storms-rain-labor-day-forecast.html
+
+**Severe Storms Lead to Flooding From Maryland to Michigan**\
+`Severe storms swept through the Mid-Atlantic and areas around the Great Lakes ahead of the Labor Day weekend.`\
+https://www.nytimes.com/video/weather/100000011134220/storms-midwest-mid-atlantic-abor-day-weekend.html
+
+**Trump’s Latest Clemency Grants Benefit Drug Offenders, Union Boss**\
+`The president issued pardons or commutations to 30 people on Thursday, continuing his unorthodox and unpredictable use of clemency power.`\
+https://www.nytimes.com/2026/09/04/us/politics/trump-pardons-drug-offenders-union-boss.html
+
+**The Heart Drug Pelacarsen Fails, Shocking Novartis and Cardiologists**\
 `Doctors were hopeful the drug, which was being tested in a large clinical trial by Novartis, was going to be a powerful new tool to fight heart disease.`\
 https://www.nytimes.com/2026/09/04/science/heart-drug-fails-novartis-pelacarsen.html
 
@@ -110,7 +122,7 @@ https://www.nytimes.com/es/2026/09/04/espanol/lindsay-clancy-juicio-que-paso.htm
 `Critics of ballot-marking devices have claimed that hackers could manipulate digital codes on ballots. Election experts say the systems are safe to use.`\
 https://www.nytimes.com/2026/09/04/us/politics/mullin-homeland-security-ballot-devices.html
 
-**9 Days After Flood, Two Men Are Pulled Alive From Mud-Filled Tunnels in Nepal**\
+**9 Days After Flood, 2 Men Are Pulled Alive From Mud-Filled Tunnels in Nepal**\
 `One of two workers rescued from a hydroelectric plant said he had recited prayers over and over while trapped deep underground. “How many days has it been?” he asked.`\
 https://www.nytimes.com/2026/09/04/world/asia/nepal-flood-tunnel-rescue.html
 
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/09/04/well/measles-infant-pennsylvania-death.html
 **Can a Fashion Designer be a Genius?**\
 `Parsing the nuances of decadence, provocation and brilliance.`\
 https://www.nytimes.com/2026/09/04/style/galliano-john-genius.html
-
-**M.T.A. Employee Struck and Killed While Working on the Subway Tracks**\
-`The employee was a construction flagger who notified trains that other transit workers were on the tracks. She was hit near the 161st Street-Yankee Stadium station in the Bronx on Thursday night.`\
-https://www.nytimes.com/2026/09/04/nyregion/mta-worker-death.html
-
-**ICE Agent Charged With Six Counts of Lying About Minnesota Shooting**\
-`The federal indictment against Christian Castro marked a rare instance of the Trump administration seeking to hold an immigration agent accountable for actions taken while on duty.`\
-https://www.nytimes.com/2026/09/04/us/christian-castro-ice-agent-charges-minnesota-shooting.html
-
-**U.S. Hiring Jumps, an Encouraging Sign for the Economy**\
-`Employers added 162,000 jobs in August, and the unemployment rate held steady at 4.1 percent. But wage growth is not keeping up with rising inflation.`\
-https://www.nytimes.com/live/2026/09/04/business/jobs-report-economy
 
