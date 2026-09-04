@@ -1,3 +1,11 @@
+**Who Is Ahead in Florida's 16th Congressional District?**\
+`Track the latest polls in Florida's 16th Congressional District.`\
+https://www.nytimes.com/interactive/polls/florida-us-house-16-polls-2026.html
+
+**Tumbler Ridge Shooting Survivors File 30 Lawsuits Against OpenAI**\
+`The survivors contend that the company should have notified the police when it shut down the shooter’s disturbing ChatGPT account eight months before the February attack in British Columbia.`\
+https://www.nytimes.com/2026/09/04/world/canada/openai-lawsuits-tumbler-ridge-shooting.html
+
 **Six-Week-Old Infant Died From Measles, Lancaster Coroner Says**\
 `The baby had a rare genetic disorder that can make children more vulnerable to respiratory infections, the coroner said.`\
 https://www.nytimes.com/2026/09/04/well/measles-infant-pennsylvania-death.html
