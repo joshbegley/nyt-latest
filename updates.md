@@ -1,3 +1,7 @@
+**Lindsay Clancy Trial Live Updates: Judge Plans to Declare Mistrial as Jury Remains Deadlocked**\
+`Lawyers argued early Friday over how the court should respond to a note from the foreperson regarding the juror, who the lead defense lawyer said was the lone obstacle to a “not guilty” verdict.`\
+https://www.nytimes.com/live/2026/09/04/us/lindsay-clancy-trial-deadlock
+
 **A More Confident Iran Emerges After Six Months of War With the U.S.**\
 `New intelligence reports have assessed that Iran now has a far better understanding of its capabilities and the limits of U.S. power.`\
 https://www.nytimes.com/2026/09/04/us/politics/iran-war-intelligence-reports.html

@@ -94,7 +94,7 @@ https://www.nytimes.com/2026/09/04/us/lindsay-clancy-process-removing-juror.html
 `The recent capture of a strategic ridge has further entrenched the Israeli occupation of Lebanese territory, as efforts to broker lasting peace have floundered.`\
 https://www.nytimes.com/2026/09/04/world/middleeast/israel-captures-ridge-occupation-katz.html
 
-**Lindsay Clancy Trial Live Updates: Court Assembles Again After Judge Declines to Remove Holdout**\
+**Lindsay Clancy Trial Live Updates: Judge Plans to Declare Mistrial as Jury Remains Deadlocked**\
 `Lawyers argued early Friday over how the court should respond to a note from the foreperson regarding the juror, who the lead defense lawyer said was the lone obstacle to a “not guilty” verdict.`\
 https://www.nytimes.com/live/2026/09/04/us/lindsay-clancy-trial-deadlock
 
