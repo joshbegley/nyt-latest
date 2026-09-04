@@ -1,3 +1,11 @@
+**The A.I. Mob That Attacked Hugging Face + METR’s Ajeya Cotra**\
+`This is probably the most important thing to have happened in A.I. this year.`\
+https://www.nytimes.com/2026/09/04/podcasts/hugging-face-hack-reports.html
+
+**Families Mourn Nepal Flood Victims**\
+`With thousands still missing in Nepal’s floods, hundreds of families have turned to symbolic cremations to honor their loved ones. Our South Asia bureau chief, Mujib Mashal, witnessed one of the ceremonies.`\
+https://www.nytimes.com/video/world/asia/100000011130555/families-mourn-nepal-flood-victims.html
+
 **Build First, Ask Later**\
 `We look at President Trump’s building spree in Washington.`\
 https://www.nytimes.com/2026/09/04/briefing/build-first-ask-later.html

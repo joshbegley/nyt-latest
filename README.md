@@ -1,3 +1,7 @@
+**U.N. to Vote on African Proposal for a New World Map**\
+`The Equal Earth projection shows countries’ true size relative to one another, unlike the centuries-old Mercator map, which critics say makes Africa look smaller than it is.`\
+https://www.nytimes.com/2026/09/04/world/africa/world-map-projection-africa.html
+
 **The A.I. Mob That Attacked Hugging Face + METR’s Ajeya Cotra**\
 `This is probably the most important thing to have happened in A.I. this year.`\
 https://www.nytimes.com/2026/09/04/podcasts/hugging-face-hack-reports.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/09/04/movies/barbara-forever-barbara-hammer-lesbian
 **Charles de Gaulle Is Conquering France’s Box Office**\
 `An epic historical film about Charles de Gaulle has become an unexpected hit, introducing him to a new generation.`\
 https://www.nytimes.com/2026/09/04/movies/charles-de-gaulle-biopic-film-france.html
-
-**‘I Don’t Want to Die This Way’: Stranded for 15 Hours at Sea**\
-`Two longtime friends rented jet skis for an hourlong excursion. They ended up fighting for their lives.`\
-https://www.nytimes.com/2026/09/04/us/jetski-stranded-sea.html
 
