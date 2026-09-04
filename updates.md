@@ -1,3 +1,11 @@
+**A More Confident Iran Emerges After Six Months of War With the U.S.**\
+`New intelligence reports have assessed that Iran now has a far better understanding of its capabilities and the limits of U.S. power.`\
+https://www.nytimes.com/2026/09/04/us/politics/iran-war-intelligence-reports.html
+
+**Lindsay Clancy Trial Live Updates: Court Assembles Again After Judge Declines to Remove Holdout**\
+`Lawyers argued early Friday over how the court should respond to a note from the foreperson regarding the juror, who the lead defense lawyer said was the lone obstacle to a “not guilty” verdict.`\
+https://www.nytimes.com/live/2026/09/04/us/lindsay-clancy-trial-deadlock
+
 **The U.S. Wants the Oil From These 17 Venezuelan Fields**\
 `A private oil company has struck a deal with the Trump administration to develop 17 areas in Venezuela, an effort that experts say will take years and billions of dollars.`\
 https://www.nytimes.com/2026/09/04/business/energy-environment/venezuela-oil-fields-betancourt-trump.html
