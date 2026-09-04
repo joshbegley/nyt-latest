@@ -1,3 +1,7 @@
+**A Hotel Had the Perfect Chairs. How Do I Get Them at Home?**\
+`The story behind a pair of seats at New York’s Fifth Avenue Hotel.`\
+https://www.nytimes.com/2026/09/04/t-magazine/fifth-avenue-hotel-martin-brudnizki-slipper-chairs.html
+
 **Trump Threatens to Halt Some Trade Unless the Fed Cuts Rates**\
 `The president said he could halt trade between the United States and countries with which it has a trade deficit if the central bank doesn’t do his bidding.`\
 https://www.nytimes.com/2026/09/04/business/economy/trump-trade-threats-fed-rate-cuts.html

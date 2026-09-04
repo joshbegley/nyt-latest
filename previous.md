@@ -1,3 +1,7 @@
+**A Hotel Had the Perfect Chairs. How Do I Get Them at Home?**\
+`The story behind a pair of seats at New York’s Fifth Avenue Hotel.`\
+https://www.nytimes.com/2026/09/04/t-magazine/fifth-avenue-hotel-martin-brudnizki-slipper-chairs.html
+
 **Trump Threatens to Halt Some Trade Unless the Fed Cuts Rates**\
 `The president said he could halt trade between the United States and countries with which it has a trade deficit if the central bank doesn’t do his bidding.`\
 https://www.nytimes.com/2026/09/04/business/economy/trump-trade-threats-fed-rate-cuts.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/09/04/crosswords/strands-sidekick-916.html
 **Today’s Wordle Hints for Sept. 5, 2026**\
 `Scroll down for hints and conversation about the puzzle for Saturday, Sept. 5, 2026.`\
 https://www.nytimes.com/2026/09/04/crosswords/wordle-review-1904.html
-
-**Live Updates: U.S. Hiring Jumps, an Encouraging Sign for the Economy**\
-`Employers added 162,000 jobs in August, and the unemployment rate held steady at 4.1 percent. But wage growth is not keeping up with rising inflation.`\
-https://www.nytimes.com/live/2026/09/04/business/jobs-report-economy
 
 **US Open Day 5: Is Coco Gauff Now the Women’s Favorite?**\
 `The fourth seed and former champion is in ominous form in New York.`\
