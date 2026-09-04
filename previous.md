@@ -1,3 +1,19 @@
+**School Is Starting Late. That’s Good for N.Y.C. Summer Camps.**\
+`Some parents are at loose ends about how to occupy their children in the extra week before school starts Sept. 10 — and some camps are benefiting from their bind.`\
+https://www.nytimes.com/2026/09/04/nyregion/nyc-school-summer-camp.html
+
+**To Find Honest Talk About Drugs, Go to a Music Festival**\
+`A reporter and photographer camped out at a four-day rave to see harm reduction policy carried out in real time.`\
+https://www.nytimes.com/2026/09/04/insider/music-festival-journalism.html
+
+**NYT Spelling Bee Answers for September 4, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/09/04/crosswords/spelling-bee-forum.html
+
+**Is This the Real Alix Earle?**\
+`In a new reality series, Earle drops her influencer persona and also addresses her fallout with Alex Cooper. Kind of.`\
+https://www.nytimes.com/2026/09/04/style/alix-earle-meets-world.html
+
 **Tributes Pour In Outside Gloria Steinem’s Manhattan Home**\
 `People paid tribute outside the Manhattan home of Gloria Steinem, the feminist icon who died on Wednesday, placing flowers and remembering her impact on the women’s movement.`\
 https://www.nytimes.com/video/obituaries/100000011132670/gloria-steinem-tributes.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/09/03/us/politics/trump-supreme-court-mail-ballots.
 **Volkswagen Plans to Cut 50,000 Jobs**\
 `Facing growing competition from China and rapidly advancing technology, the German auto giant said its board had approved a “comprehensive” overhaul.`\
 https://www.nytimes.com/2026/09/03/business/volkswagen-job-cuts.html
-
-**Dutch Central Bank Cuts Gold Reserves in U.S., Citing ‘Geopolitical Unrest’**\
-`The Netherlands moved some 90 tons of gold out of the Federal Reserve Bank in New York, the second European nation this year to announce it had decreased or eliminated U.S. gold holdings.`\
-https://www.nytimes.com/2026/09/03/world/europe/netherlands-gold-reserves-us.html
-
-**Summer in the City: The U.S. Open Is in Full Swing**\
-`With high stakes and plenty of stars, the tournament is about to get really interesting.`\
-https://www.nytimes.com/2026/09/03/nyregion/summer-in-the-city-us-open.html
-
-**Mortgage Rates Hit 6.71%, Their Highest Level Since July 2025**\
-`Higher costs for home loans have put a squeeze on the housing market, adding pressure to consumers already struggling with elevated inflation.`\
-https://www.nytimes.com/2026/09/03/business/mortgage-rates-housing.html
-
-**Clancy Defense Lawyer Says He Asked Judge to Dismiss Holdout Juror**\
-`Lindsay Clancy’s lawyer, Kevin Reddington, said in open court that the juror “refuses to listen to the law” about reasonable doubt.`\
-https://www.nytimes.com/2026/09/03/us/lindsay-clancy-trial-holdout-juror.html
 

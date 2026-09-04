@@ -1,3 +1,19 @@
+**School Is Starting Late. That’s Good for N.Y.C. Summer Camps.**\
+`Some parents are at loose ends about how to occupy their children in the extra week before school starts Sept. 10 — and some camps are benefiting from their bind.`\
+https://www.nytimes.com/2026/09/04/nyregion/nyc-school-summer-camp.html
+
+**To Find Honest Talk About Drugs, Go to a Music Festival**\
+`A reporter and photographer camped out at a four-day rave to see harm reduction policy carried out in real time.`\
+https://www.nytimes.com/2026/09/04/insider/music-festival-journalism.html
+
+**NYT Spelling Bee Answers for September 4, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/09/04/crosswords/spelling-bee-forum.html
+
+**Is This the Real Alix Earle?**\
+`In a new reality series, Earle drops her influencer persona and also addresses her fallout with Alex Cooper. Kind of.`\
+https://www.nytimes.com/2026/09/04/style/alix-earle-meets-world.html
+
 **Tributes Pour In Outside Gloria Steinem’s Manhattan Home**\
 `People paid tribute outside the Manhattan home of Gloria Steinem, the feminist icon who died on Wednesday, placing flowers and remembering her impact on the women’s movement.`\
 https://www.nytimes.com/video/obituaries/100000011132670/gloria-steinem-tributes.html
