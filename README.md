@@ -66,7 +66,7 @@ https://www.nytimes.com/2026/09/04/crosswords/strands-sidekick-916.html
 `Scroll down for hints and conversation about the puzzle for Saturday, Sept. 5, 2026.`\
 https://www.nytimes.com/2026/09/04/crosswords/wordle-review-1904.html
 
-**Live Updates: U.S. Hiring Strengthens, an Encouraging Sign for the Economy**\
+**Live Updates: U.S. Hiring Jumps, an Encouraging Sign for the Economy**\
 `Employers added 162,000 jobs in August, and the unemployment rate held steady at 4.1 percent.`\
 https://www.nytimes.com/live/2026/09/04/business/jobs-report-economy
 

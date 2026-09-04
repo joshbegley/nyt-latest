@@ -1,3 +1,11 @@
+**Lindsay Clancy’s Lawyer Wants a Juror Removed. The Bar Will Be High.**\
+`Judges approach complaints about jurors with caution, mindful that in the event of a conviction, a removal could be grounds for an appeal.`\
+https://www.nytimes.com/2026/09/04/us/lindsay-clancy-process-removing-juror.html
+
+**Live Updates: U.S. Hiring Strengthens, an Encouraging Sign for the Economy**\
+`Employers added 162,000 jobs in August, and the unemployment rate held steady at 4.1 percent.`\
+https://www.nytimes.com/live/2026/09/04/business/jobs-report-economy
+
 **Israel Says It Is Cementing Its Foothold in Southern Lebanon**\
 `The recent capture of a strategic ridge has further entrenched the Israeli occupation of Lebanese territory, as efforts to broker lasting peace have floundered.`\
 https://www.nytimes.com/2026/09/04/world/middleeast/israel-captures-ridge-occupation-katz.html
