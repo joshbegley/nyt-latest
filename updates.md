@@ -1,3 +1,7 @@
+**Quiet on the Court! As U.S. Open Grows, the Crowd Gets Rowdier.**\
+`Are social media influencers ruining the Open? Or are they just the latest evolution of New York’s famously boisterous tennis tournament?`\
+https://www.nytimes.com/2026/09/04/nyregion/us-open-social-media-influencers.html
+
 **Caramelized Corn and Asparagus Pasta**\
 `This summery pasta features caramelized corn, crisp-tender asparagus and earthy turmeric, which provides the dish’s sunny hue.`\
 https://www.nytimes.com/video/dining/100000011125839/caramelized-corn-and-asparagus-pasta.html
