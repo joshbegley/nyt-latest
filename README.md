@@ -1,3 +1,11 @@
+**C.D.C. Says No Deaths This Year Attributed to Measles**\
+`The agency’s weekly update escalates a political fight after Pennsylvania said two deaths had been caused by the virus.`\
+https://www.nytimes.com/2026/09/04/us/politics/cdc-measles-deaths.html
+
+**Clancy Murder Case Ends in a Mistrial**\
+`Lindsay Clancy’s murder case ended in a mistrial because of a hung jury on Friday. The charges against her for strangling her three young children in 2023 remain. The prosecution will now decide whether to try Clancy again.`\
+https://www.nytimes.com/video/us/100000011134188/lindsay-clancy-murder-case-mistrial-hung-jury.html
+
 **Judge Once Again Blocks Mail-In Ballot Rules**\
 `The ruling arrived before the Supreme Court could decide whether to intervene but appeared certain to set off yet another round of appeals.`\
 https://www.nytimes.com/2026/09/04/us/politics/judge-blocks-trump-mail-ballots.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/09/04/us/christian-castro-ice-agent-charges-minneso
 **How Gloria Steinem Changed Our Lives**\
 `Readers mourn the loss of the feminist icon.`\
 https://www.nytimes.com/2026/09/04/opinion/letters/gloria-steinem.html
-
-**Read the Instructions on Reasonable Doubt as Delivered to Jurors in the Lindsay Clancy Trial**\
-`Instructions on the concept of reasonable doubt, authored by the Massachusetts Supreme Judicial Court in 2015.`\
-https://www.nytimes.com/interactive/2026/09/04/us/reasonable-doubt-definition-lindsay-clancy-trial.html
-
-**Noruega incauta un barco ruso en el Ártico y pone a prueba a Moscú**\
-`Facultada por una orden judicial internacional, Noruega capturó la embarcación como parte de un esfuerzo global para incautar activos rusos. Rusia lo llamó “piratería”.`\
-https://www.nytimes.com/es/2026/09/04/espanol/mundo/barco-rusia-noruega.html
 
 **U.S. Hiring Jumps, an Encouraging Sign for the Economy**\
 `Employers added 162,000 jobs in August, and the unemployment rate held steady at 4.1 percent. But wage growth is not keeping up with rising inflation.`\
