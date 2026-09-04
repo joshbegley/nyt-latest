@@ -1,3 +1,7 @@
+**Hideki Shirakawa, Who Helped Turn a Lab Error Into a Nobel, Dies at 90**\
+`The Japanese chemist played a key role in the discovery of electricity-conducting plastics, largely by accident.`\
+https://www.nytimes.com/2026/09/04/science/hideki-shirakawa-dead.html
+
 **A Hotel Had the Perfect Chairs. How Do I Get Them at Home?**\
 `The story behind a pair of seats at New York’s Fifth Avenue Hotel.`\
 https://www.nytimes.com/2026/09/04/t-magazine/fifth-avenue-hotel-martin-brudnizki-slipper-chairs.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/09/04/crosswords/wordle-review-1904.html
 **US Open Day 5: Is Coco Gauff Now the Women’s Favorite?**\
 `The fourth seed and former champion is in ominous form in New York.`\
 https://www.nytimes.com/2026/09/04/podcasts/us-open-coco-gauff.html
-
-**Rusia y Ucrania escalan sus ataques**\
-`Cada bando usa misiles y drones para someter al otro, lo que lleva a un sufrimiento humano incesante. No hay indicios de que la determinación de ninguno de los países vaya a debilitarse.`\
-https://www.nytimes.com/es/2026/09/04/espanol/mundo/rusia-ucrania-escalan-ataques.html
 
 **2 Trapped Workers Are Rescued After 9 Days in Nepal Tunnel**\
 `“Everybody’s sense of hope was waning,” said one survivor’s relative. Rescuers were searching for dozens of others inside the tunnel at a hydropower project damaged by last week’s deadly floods.`\

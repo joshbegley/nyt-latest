@@ -1,3 +1,7 @@
+**Hideki Shirakawa, Who Helped Turn a Lab Error Into a Nobel, Dies at 90**\
+`The Japanese chemist played a key role in the discovery of electricity-conducting plastics, largely by accident.`\
+https://www.nytimes.com/2026/09/04/science/hideki-shirakawa-dead.html
+
 **A Hotel Had the Perfect Chairs. How Do I Get Them at Home?**\
 `The story behind a pair of seats at New York’s Fifth Avenue Hotel.`\
 https://www.nytimes.com/2026/09/04/t-magazine/fifth-avenue-hotel-martin-brudnizki-slipper-chairs.html
