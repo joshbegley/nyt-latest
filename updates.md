@@ -1,3 +1,23 @@
+**How Gloria Steinem Changed Our Lives**\
+`Readers mourn the loss of the feminist icon.`\
+https://www.nytimes.com/2026/09/04/opinion/letters/gloria-steinem.html
+
+**Read the Instructions on Reasonable Doubt as Delivered to Jurors in the Lindsay Clancy Trial**\
+`Instructions on the concept of reasonable doubt, authored by the Massachusetts Supreme Judicial Court in 2015.`\
+https://www.nytimes.com/interactive/2026/09/04/us/reasonable-doubt-definition-lindsay-clancy-trial.html
+
+**Noruega incauta un barco ruso en el Ártico y pone a prueba a Moscú**\
+`Facultada por una orden judicial internacional, Noruega capturó la embarcación como parte de un esfuerzo global para incautar activos rusos. Rusia lo llamó “piratería”.`\
+https://www.nytimes.com/es/2026/09/04/espanol/mundo/barco-rusia-noruega.html
+
+**Lindsay Clancy Trial Live Updates: After Judge States Intent to Declare Mistrial, Defense Mounts Final Appeal**\
+`The judge’s decision came after jurors sent another note saying they had not been able to reach a verdict. The judge gave the defense an hour to request a stay.`\
+https://www.nytimes.com/live/2026/09/04/us/lindsay-clancy-trial-deadlock
+
+**Live Updates: U.S. Hiring Jumps, an Encouraging Sign for the Economy**\
+`Employers added 162,000 jobs in August, and the unemployment rate held steady at 4.1 percent. But wage growth is not keeping up with rising inflation.`\
+https://www.nytimes.com/live/2026/09/04/business/jobs-report-economy
+
 **In a Last-Ditch Effort, Clancy Lawyer Takes His Case to a Higher Court**\
 `In an attempt to fend off a mistrial, Lindsay Clancy’s lawyer convinced the trial judge to give him an hour to craft an appeal to a higher court.`\
 https://www.nytimes.com/2026/09/04/us/lindsay-clancy-mistrial-emergency-appeal.html
