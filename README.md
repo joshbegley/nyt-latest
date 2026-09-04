@@ -1,4 +1,4 @@
-**Live Updates: 2 Are Found Alive in Nepal Tunnel 9 Days After Deadly Flood**\
+**Live Updates: 2 Are Rescued From Nepal Tunnel 9 Days After Deadly Flood**\
 `Rescuers were racing on Friday to find more survivors among dozens of people believed to be trapped in a tunnel at a hydropower project, officials said. It was not clear how many were still alive.`\
 https://www.nytimes.com/live/2026/09/04/world/nepal-flash-floods-rescue-tunnels
 
