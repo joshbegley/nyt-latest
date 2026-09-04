@@ -1,3 +1,35 @@
+**The Intertwined Legacies of Gloria Steinem and Dolly Parton**\
+`Our writer discusses why, to her, the two icons are inescapably connected.`\
+https://www.nytimes.com/2026/09/04/podcasts/the-daily/gloria-steinem-dolly-parton-legacies.html
+
+**A Surge of Russian Sabotage Attacks in Europe, and Musk’s Political War Chest**\
+`Plus, your Friday news quiz.`\
+https://www.nytimes.com/2026/09/04/podcasts/the-headlines/russia-sabotage-attacks-elon-musk.html
+
+**NYT Connections Answers for September 5, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Sept. 5, 2026.`\
+https://www.nytimes.com/2026/09/04/crosswords/connections-companion-1182.html
+
+**NYT Strands Hints for September 5, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Sept. 5, 2026.`\
+https://www.nytimes.com/2026/09/04/crosswords/strands-sidekick-916.html
+
+**Today’s Wordle Hints for Sept. 5, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Sept. 5, 2026.`\
+https://www.nytimes.com/2026/09/04/crosswords/wordle-review-1904.html
+
+**Live Updates: Jobs Data to Offer Clues on Economy’s Health**\
+`Hiring and unemployment numbers will clarify the view of an economy generating strong growth and persistent inflation.`\
+https://www.nytimes.com/live/2026/09/04/business/jobs-report-economy
+
+**US Open Day 5: Is Coco Gauff Now the Women’s Favorite?**\
+`The fourth seed and former champion is in ominous form in New York.`\
+https://www.nytimes.com/2026/09/04/podcasts/us-open-coco-gauff.html
+
+**Rusia y Ucrania escalan sus ataques**\
+`Cada bando usa misiles y drones para someter al otro, lo que lleva a un sufrimiento humano incesante. No hay indicios de que la determinación de ninguno de los países vaya a debilitarse.`\
+https://www.nytimes.com/es/2026/09/04/espanol/mundo/rusia-ucrania-escalan-ataques.html
+
 **Los esfuerzos antimigrantes de Trump presentan fisuras. ¿Qué sigue?**\
 `Las políticas de migración de Trump no tienen la intención de eliminar la mano de obra migrante sino despojar a esa mano de obra del poder de negociación y de sus derechos, explica la autora.`\
 https://www.nytimes.com/es/2026/09/04/espanol/opinion/trump-antimigracion-derechos.html
@@ -153,44 +185,4 @@ https://www.nytimes.com/2026/09/04/magazine/climate-change-disaster-rebuilding.h
 **Eoin Colfer’s Artemis Fowl Turns 25**\
 `Artemis Fowl, celebrating his 25th anniversary, is one for the ages.`\
 https://www.nytimes.com/2026/09/04/books/review/artemis-fowl-25th-anniversary-eoin-colfer.html
-
-**Notre Dame’s Jersey Patch Deal With SoFi Divides Alumni and Fans**\
-`Alumni have varying opinions about the school’s deal with the personal finance company SoFi to advertise on Notre Dame athletic uniforms.`\
-https://www.nytimes.com/2026/09/04/business/notre-dame-sofi-jersey-patch.html
-
-**Reasons to Have Faith in Fashion**\
-`Textile waste. An obsession with thinness. Too many men at the top. At a time when the industry can be dispiriting, designers and others talk about what makes them optimistic.`\
-https://www.nytimes.com/2026/09/04/t-magazine/fashion-industry-optimism.html
-
-**Why the Sunflower Suddenly Looks Fresh Again**\
-`Long considered commonplace and overly cheerful, the bloom is once more enchanting designers.`\
-https://www.nytimes.com/2026/09/04/t-magazine/sunflower-arrangement-design.html
-
-**Inside Mamdani’s Private Army of Public Influencers**\
-`Zohran Mamdani is seen as a social media wizard. Some of his popularity stems from an influencer operation run by the mayor’s office.`\
-https://www.nytimes.com/2026/09/04/nyregion/mamdani-influencers-emilia-rowland.html
-
-**‘Choosin’ Texas’ Is a Southern Hit. Just Don’t Call Texas Southern.**\
-`Ella Langley’s hit has become an anthem in Austin, a singalong in Nashville and a case study in how the Texas brand travels.`\
-https://www.nytimes.com/2026/09/04/us/choosin-texas-southern-ella-langley.html
-
-**Wineries Are Offering Bingo, Picnics, Jewelry … and Sometimes Wine**\
-`With slumping sales and fewer tourists, California winemakers have turned to special events and classes to woo customers — even those who don’t drink.`\
-https://www.nytimes.com/2026/09/04/dining/drinks/wineries-bingo-picnics-jewelry.html
-
-**Sandra Bullock, Nicole Kidman and the Other ‘Practical Magic 2’ Stars on the Unlikely Sequel**\
-`Sandra Bullock, Nicole Kidman, Joey King and Maisie Williams on the unlikely sequel, embracing their witchiness and their hopes for a third film.`\
-https://www.nytimes.com/2026/09/04/movies/practical-magic-sandra-bullock-nicole-kidman.html
-
-**Plumbing the Shipwrecks of an Infamous Pirate Cove**\
-`For the marine archaeologist Sean Kingsley, the most honest history can be found on the seafloor.`\
-https://www.nytimes.com/2026/09/04/science/archaeology-shipwrecks-pirates-kingsley.html
-
-**Word of the Day: avalanche**\
-`This word has appeared in 226 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/09/04/learning/word-of-the-day-avalanche.html
-
-**‘Come From Away’ Comes Home**\
-`“Come From Away,” a musical about ​a small Newfoundland town that embraced nearly 7,000 travelers ​when their planes were grounded after the Sept. 11 attacks, is playing all over the world​, including in the town where it’s set. Our theater reporter​, Michael Paulson​, ​went to see the town and the show.`\
-https://www.nytimes.com/video/theater/100000011077905/come-from-away-comes-home.html
 

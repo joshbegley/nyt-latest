@@ -1,3 +1,35 @@
+**The Intertwined Legacies of Gloria Steinem and Dolly Parton**\
+`Our writer discusses why, to her, the two icons are inescapably connected.`\
+https://www.nytimes.com/2026/09/04/podcasts/the-daily/gloria-steinem-dolly-parton-legacies.html
+
+**A Surge of Russian Sabotage Attacks in Europe, and Musk’s Political War Chest**\
+`Plus, your Friday news quiz.`\
+https://www.nytimes.com/2026/09/04/podcasts/the-headlines/russia-sabotage-attacks-elon-musk.html
+
+**NYT Connections Answers for September 5, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Sept. 5, 2026.`\
+https://www.nytimes.com/2026/09/04/crosswords/connections-companion-1182.html
+
+**NYT Strands Hints for September 5, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Sept. 5, 2026.`\
+https://www.nytimes.com/2026/09/04/crosswords/strands-sidekick-916.html
+
+**Today’s Wordle Hints for Sept. 5, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Sept. 5, 2026.`\
+https://www.nytimes.com/2026/09/04/crosswords/wordle-review-1904.html
+
+**Live Updates: Jobs Data to Offer Clues on Economy’s Health**\
+`Hiring and unemployment numbers will clarify the view of an economy generating strong growth and persistent inflation.`\
+https://www.nytimes.com/live/2026/09/04/business/jobs-report-economy
+
+**US Open Day 5: Is Coco Gauff Now the Women’s Favorite?**\
+`The fourth seed and former champion is in ominous form in New York.`\
+https://www.nytimes.com/2026/09/04/podcasts/us-open-coco-gauff.html
+
+**Rusia y Ucrania escalan sus ataques**\
+`Cada bando usa misiles y drones para someter al otro, lo que lleva a un sufrimiento humano incesante. No hay indicios de que la determinación de ninguno de los países vaya a debilitarse.`\
+https://www.nytimes.com/es/2026/09/04/espanol/mundo/rusia-ucrania-escalan-ataques.html
+
 **Los esfuerzos antimigrantes de Trump presentan fisuras. ¿Qué sigue?**\
 `Las políticas de migración de Trump no tienen la intención de eliminar la mano de obra migrante sino despojar a esa mano de obra del poder de negociación y de sus derechos, explica la autora.`\
 https://www.nytimes.com/es/2026/09/04/espanol/opinion/trump-antimigracion-derechos.html
