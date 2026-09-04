@@ -1,3 +1,19 @@
+**Judge Orders Trump Officials to Divulge Names of Those Who Set Up $1.8 Billion Fund**\
+`The plan to create a fund that could have funneled taxpayer money to the president’s allies drew repeated scrutiny, including a rare rebuke from Senate Republicans.`\
+https://www.nytimes.com/2026/09/04/us/politics/trump-administration-fund-compensation-jan-6.html
+
+**F.B.I. Investigates Sale of Millions of Stolen Driver’s Licenses**\
+`The blog Krebs on Security reported on an identity theft service trying to sell scans of licenses and other documents belonging to people in Canada and the United States.`\
+https://www.nytimes.com/2026/09/04/us/nexus-identity-theft-data-breach-fbi.html
+
+**Prosecutors Won’t Try to Reinstate Key 9/11 Confession Taken After Torture**\
+`The military’s lawyers said they feared an appeal could delay the trial of the man accused of masterminding the attacks, which is scheduled to start in mid-2028.`\
+https://www.nytimes.com/2026/09/04/us/politics/guantanamo-confession-torture-911.html
+
+**Trump Plans to Use Qatari Jet for Another Overseas Flight Despite Security Concerns**\
+`The president intends to travel to Ireland on the plane, the first time he will have used it overseas since questions were raised about its defensive capabilities.`\
+https://www.nytimes.com/2026/09/04/us/politics/trump-qatar-jet-flight-ireland.html
+
 **Netanyahu Posts A.I. Video Pairing Mamdani With Iranian Ruler**\
 `The video shows fictitious scenes of Mayor Zohran Mamdani on the phone, celebrating with Ayatollah Mojtaba Khamenei and others, at the prospect of Mr. Netanyahu losing re-election.`\
 https://www.nytimes.com/2026/09/04/world/middleeast/netanyahu-ai-video-mamdani.html

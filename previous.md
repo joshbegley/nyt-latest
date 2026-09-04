@@ -1,3 +1,15 @@
+**Judge Orders Trump Officials to Divulge Names of Those Who Set Up $1.8 Billion Fund**\
+`The plan to create a fund that could have funneled taxpayer money to the president’s allies drew repeated scrutiny, including a rare rebuke from Senate Republicans.`\
+https://www.nytimes.com/2026/09/04/us/politics/trump-administration-fund-compensation-jan-6.html
+
+**F.B.I. Investigates Sale of Millions of Stolen Driver’s Licenses**\
+`The blog Krebs on Security reported on an identity theft service trying to sell scans of licenses and other documents belonging to people in Canada and the United States.`\
+https://www.nytimes.com/2026/09/04/us/nexus-identity-theft-data-breach-fbi.html
+
+**Prosecutors Won’t Try to Reinstate Key 9/11 Confession Taken After Torture**\
+`The military’s lawyers said they feared an appeal could delay the trial of the man accused of masterminding the attacks, which is scheduled to start in mid-2028.`\
+https://www.nytimes.com/2026/09/04/us/politics/guantanamo-confession-torture-911.html
+
 **Netanyahu Posts A.I. Video Pairing Mamdani With Iranian Ruler**\
 `The video shows fictitious scenes of Mayor Zohran Mamdani on the phone, celebrating with Ayatollah Mojtaba Khamenei and others, at the prospect of Mr. Netanyahu losing re-election.`\
 https://www.nytimes.com/2026/09/04/world/middleeast/netanyahu-ai-video-mamdani.html
@@ -147,7 +159,7 @@ https://www.nytimes.com/2026/09/04/business/economy/trump-trade-threats-fed-rate
 https://www.nytimes.com/video/world/americas/100000011133003/argentina-falklands-trump-uk.html
 
 **Trump Plans to Use Qatari Jet for Another Overseas Flight Despite Security Concerns**\
-`The president plans to travel to Ireland on the plane, the first time he will have used it overseas since questions were raised about its defensive capabilities.`\
+`The president intends to travel to Ireland on the plane, the first time he will have used it overseas since questions were raised about its defensive capabilities.`\
 https://www.nytimes.com/2026/09/04/us/politics/trump-qatar-jet-flight-ireland.html
 
 **Gloria Steinem Stayed Positive, Even as the Manosphere Took Hold**\
@@ -181,18 +193,6 @@ https://www.nytimes.com/2026/09/04/business/media/gloria-steinem-ms-magazine.htm
 **Today, In Short**\
 `Alix Earle. Pastries. And our new era.`\
 https://www.nytimes.com/2026/09/04/briefing/today-in-short.html
-
-**Creamy Tuscan Chicken Begs for Crusty Bread**\
-`And more of the week’s most popular recipes.`\
-https://www.nytimes.com/2026/09/04/dining/creamy-tuscan-chicken-begs-for-crusty-bread.html
-
-**The World’s First Bugs Had Way More Legs**\
-`Meet the earliest known insects. Shaking hands with them will take a while.`\
-https://www.nytimes.com/2026/09/04/science/the-worlds-first-bugs-had-way-more-legs.html
-
-**‘Facing El Chapo’ and More Action Movies to Stream Now**\
-`This month’s picks include a high-stakes El Chapo drama, and films starring Jason Statham, Alan Ritchson, Dave Bautista and Jason Momoa.`\
-https://www.nytimes.com/2026/09/04/movies/action-movies-streaming.html
 
 **U.S. Hiring Jumps, an Encouraging Sign for the Economy**\
 `Employers added 162,000 jobs in August, and the unemployment rate held steady at 4.1 percent. But wage growth is not keeping up with rising inflation.`\
