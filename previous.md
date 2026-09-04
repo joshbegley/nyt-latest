@@ -1,3 +1,7 @@
+**Live Updates: 2 Are Rescued From Nepal Tunnel 9 Days After Deadly Flood**\
+`Rescuers were racing on Friday to find more survivors among dozens of people believed to be trapped in a tunnel at a hydropower project, officials said. It was not clear how many were still alive.`\
+https://www.nytimes.com/live/2026/09/04/world/nepal-flash-floods-rescue-tunnels
+
 **Así son las escuelas secretas para niñas en el Afganistán de los talibanes**\
 `Con la ayuda de maestros y padres que resisten las rígidas leyes del grupo religioso, decenas de chicas aspiran a una vida mejor. Reporteros del Times nos comparten lo que vieron en las aulas.`\
 https://www.nytimes.com/es/2026/09/04/espanol/mundo/ninas-afganistan-escuelas-clandestinas-talibanes.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/03/us/lindsay-clancy-trial-holdout-juror.html
 **Hurricane Lowell Is Getting Closer to Hawaii, but How Close Is Still Uncertain**\
 `The Category 4 storm has been moving well south of the islands this week. It is expected to turn north sometime this weekend.`\
 https://www.nytimes.com/live/2026/09/03/weather/hurricane-lowell-hawaii-karina
-
-**Norway Seizes Russian Ship, Testing Moscow in the High Arctic**\
-`Empowered by an international court order, Norway captured the vessel as part of a global effort to seize Russian assets. The Russians called it “piracy.”`\
-https://www.nytimes.com/2026/09/03/world/europe/norway-russian-research-ship-arctic.html
 

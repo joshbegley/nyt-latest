@@ -1,3 +1,7 @@
+**Live Updates: 2 Are Rescued From Nepal Tunnel 9 Days After Deadly Flood**\
+`Rescuers were racing on Friday to find more survivors among dozens of people believed to be trapped in a tunnel at a hydropower project, officials said. It was not clear how many were still alive.`\
+https://www.nytimes.com/live/2026/09/04/world/nepal-flash-floods-rescue-tunnels
+
 **Así son las escuelas secretas para niñas en el Afganistán de los talibanes**\
 `Con la ayuda de maestros y padres que resisten las rígidas leyes del grupo religioso, decenas de chicas aspiran a una vida mejor. Reporteros del Times nos comparten lo que vieron en las aulas.`\
 https://www.nytimes.com/es/2026/09/04/espanol/mundo/ninas-afganistan-escuelas-clandestinas-talibanes.html

@@ -1,3 +1,7 @@
+**Tributes Pour In Outside Gloria Steinem’s Manhattan Home**\
+`People paid tribute outside the Manhattan home of Gloria Steinem, the feminist icon who died on Wednesday, placing flowers and remembering her impact on the women’s movement.`\
+https://www.nytimes.com/video/obituaries/100000011132670/gloria-steinem-tributes.html
+
 **Live Updates: 2 Are Rescued From Nepal Tunnel 9 Days After Deadly Flood**\
 `Rescuers were racing on Friday to find more survivors among dozens of people believed to be trapped in a tunnel at a hydropower project, officials said. It was not clear how many were still alive.`\
 https://www.nytimes.com/live/2026/09/04/world/nepal-flash-floods-rescue-tunnels
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/03/business/mortgage-rates-housing.html
 **Clancy Defense Lawyer Says He Asked Judge to Dismiss Holdout Juror**\
 `Lindsay Clancy’s lawyer, Kevin Reddington, said in open court that the juror “refuses to listen to the law” about reasonable doubt.`\
 https://www.nytimes.com/2026/09/03/us/lindsay-clancy-trial-holdout-juror.html
-
-**Hurricane Lowell Is Getting Closer to Hawaii, but How Close Is Still Uncertain**\
-`The Category 4 storm has been moving well south of the islands this week. It is expected to turn north sometime this weekend.`\
-https://www.nytimes.com/live/2026/09/03/weather/hurricane-lowell-hawaii-karina
 
