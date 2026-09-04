@@ -1,3 +1,7 @@
+**Lindsay Clancy Murder Trial: Read Kevin Reddington’s Request for an Emergency Stay**\
+`The judge in the Lindsay Clancy murder case said that he will declare a mistrial, but gave the defense an hour to request a stay of his planned decision from a higher court.`\
+https://www.nytimes.com/interactive/2026/09/04/us/lindsay-clancy-emergency-stay-petition.html
+
 **Hurricane Lowell Is Following a Familiar Path Near Hawaii**\
 `Experts and residents were closely watching the storm on Friday, looking for signs of its final path. “It’s too close for comfort,” one said.`\
 https://www.nytimes.com/2026/09/04/weather/hurricane-lowell-hawaii-iniki.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/09/04/business/tesla-cybercab-nhtsa-investigation.h
 **The Pros and Cons of Paying Off Your Mortgage Early**\
 `Homeowners who make extra payments can save thousands of dollars in interest. But, financial experts say, paying down other debt, with higher interest rates, may be a better option.`\
 https://www.nytimes.com/2026/09/04/your-money/paying-off-mortgage-early-pros-cons.html
-
-**Lindsay Clancy’s Lawyer Wants a Juror Removed. The Bar Will Be High.**\
-`Judges approach complaints about jurors with caution, mindful that in the event of a conviction, a removal could be grounds for an appeal.`\
-https://www.nytimes.com/2026/09/04/us/lindsay-clancy-process-removing-juror.html
 
 **Live Updates: U.S. Hiring Jumps, an Encouraging Sign for the Economy**\
 `Employers added 162,000 jobs in August, and the unemployment rate held steady at 4.1 percent. But wage growth is not keeping up with rising inflation.`\

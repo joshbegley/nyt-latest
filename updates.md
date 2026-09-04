@@ -1,3 +1,7 @@
+**Lindsay Clancy Murder Trial: Read Kevin Reddington’s Request for an Emergency Stay**\
+`The judge in the Lindsay Clancy murder case said that he will declare a mistrial, but gave the defense an hour to request a stay of his planned decision from a higher court.`\
+https://www.nytimes.com/interactive/2026/09/04/us/lindsay-clancy-emergency-stay-petition.html
+
 **Hurricane Lowell Is Following a Familiar Path Near Hawaii**\
 `Experts and residents were closely watching the storm on Friday, looking for signs of its final path. “It’s too close for comfort,” one said.`\
 https://www.nytimes.com/2026/09/04/weather/hurricane-lowell-hawaii-iniki.html
