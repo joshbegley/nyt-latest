@@ -1,3 +1,11 @@
+**How to Define the ‘Reasonable’ in Reasonable Doubt**\
+`“Beyond a reasonable doubt” is the highest burden of proof within the American legal system. Still, there is some wiggle room.`\
+https://www.nytimes.com/2026/09/04/us/lindsay-clancy-trial-reasonable-doubt.html
+
+**When the World’s Best-Known Feminist Was Accused of Insulting Women**\
+`During the 2016 presidential campaign, Gloria Steinem was asked about the young women supporting Bernie Sanders over Hillary Clinton. Her answer created a brief hullabaloo.`\
+https://www.nytimes.com/2026/09/04/us/politics/gloria-steinem-clinton-sanders-2016.html
+
 **Trump Administration Moves to Drop Protections for More Wetlands**\
 `The proposed rule could strip federal protections from most U.S. wetlands, many of which help feed drinking water systems.`\
 https://www.nytimes.com/2026/09/04/climate/epa-wetlands-water-protections.html
@@ -99,7 +107,7 @@ https://www.nytimes.com/2026/09/04/us/lindsay-clancy-process-removing-juror.html
 https://www.nytimes.com/2026/09/04/world/middleeast/israel-captures-ridge-occupation-katz.html
 
 **Lindsay Clancy Trial Live Updates: Judge Plans to Declare Mistrial as Jury Remains Deadlocked**\
-`Lawyers argued early Friday over how the court should respond to a note from the foreperson regarding the juror, who the lead defense lawyer said was the lone obstacle to a “not guilty” verdict.`\
+`Jurors sent another note to the court saying they had not been able to reach a verdict. The judge gave the defense an hour to request a stay of the mistrial.`\
 https://www.nytimes.com/live/2026/09/04/us/lindsay-clancy-trial-deadlock
 
 **‘The Headlines’ News Quiz: Sept. 4, 2026**\
@@ -177,14 +185,6 @@ https://www.nytimes.com/es/2026/09/04/espanol/opinion/trump-antimigracion-derech
 **Nigel Farage to Speak at Reform UK Conference Amid Scrutiny Over Party Finances**\
 `Advisers to the Reform U.K. leader Nigel Farage were captured on film apparently arranging contributions from a man posing as a foreign donor.`\
 https://www.nytimes.com/2026/09/04/world/europe/farage-reform-uk-conference-donations.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/world/asia/100000011132980/04vid-nepal-floods-ru02-61303.html
-
-**Mark Walter, the Dodgers and Your Money**\
-`Behind the Dodgers’ soaring value: a billionaire, his entities and your nest egg.`\
-https://www.nytimes.com/2026/09/04/podcasts/mark-walter-the-dodgers-and-your-money.html
 
 **2 Trapped Workers Are Rescued After 9 Days in Nepal Tunnel**\
 `“Everybody’s sense of hope was waning,” said one survivor’s relative. Rescuers were searching for dozens of others inside the tunnel at a hydropower project damaged by last week’s deadly floods.`\

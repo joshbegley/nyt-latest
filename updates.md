@@ -1,3 +1,7 @@
+**Trump Administration Moves to Drop Protections for More Wetlands**\
+`The proposed rule could strip federal protections from most U.S. wetlands, many of which help feed drinking water systems.`\
+https://www.nytimes.com/2026/09/04/climate/epa-wetlands-water-protections.html
+
 **Lindsay Clancy Trial Live Updates: Judge Plans to Declare Mistrial as Jury Remains Deadlocked**\
 `Lawyers argued early Friday over how the court should respond to a note from the foreperson regarding the juror, who the lead defense lawyer said was the lone obstacle to a “not guilty” verdict.`\
 https://www.nytimes.com/live/2026/09/04/us/lindsay-clancy-trial-deadlock

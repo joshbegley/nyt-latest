@@ -1,3 +1,7 @@
+**Trump Administration Moves to Drop Protections for More Wetlands**\
+`The proposed rule could strip federal protections from most U.S. wetlands, many of which help feed drinking water systems.`\
+https://www.nytimes.com/2026/09/04/climate/epa-wetlands-water-protections.html
+
 **A More Confident Iran Emerges After Six Months of War With the U.S.**\
 `New intelligence reports have assessed that Iran now has a far better understanding of its capabilities and the limits of U.S. power.`\
 https://www.nytimes.com/2026/09/04/us/politics/iran-war-intelligence-reports.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/video/embedded/world/asia/100000011132980/04vid-nepal-fl
 **Mark Walter, the Dodgers and Your Money**\
 `Behind the Dodgers’ soaring value: a billionaire, his entities and your nest egg.`\
 https://www.nytimes.com/2026/09/04/podcasts/mark-walter-the-dodgers-and-your-money.html
-
-**Detrás de las investigaciones sobre el empresario petrolero venezolano asociado con Trump**\
-`Alejandro Betancourt ha sido objeto de múltiples investigaciones. Ahora es el socio sin igual del gobierno de Estados Unidos en el intento del presidente Trump de controlar los recursos petroleros venezolanos.`\
-https://www.nytimes.com/es/2026/09/04/espanol/america-latina/alejandro-betancourt-petroleo-venezuela-trump.html
 
 **2 Trapped Workers Are Rescued After 9 Days in Nepal Tunnel**\
 `“Everybody’s sense of hope was waning,” said one survivor’s relative. Rescuers were searching for dozens of others inside the tunnel at a hydropower project damaged by last week’s deadly floods.`\
