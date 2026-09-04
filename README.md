@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/09/04/briefing/build-first-ask-later.html
 
 **Families Mourn Nepal Flood Victims**\
-`With thousands still missing in Nepal’s floods, some families have turned to symbolic cremations to honor their loved ones. Our South Asia bureau chief, Mujib Mashal, witnessed one of the ceremonies.`\
+`With thousands still missing in Nepal’s floods, hundreds of families have turned to symbolic cremations to honor their loved ones. Our South Asia bureau chief, Mujib Mashal, witnessed one of the ceremonies.`\
 https://www.nytimes.com/video/world/asia/100000011130555/families-mourn-nepal-flood-victims.html
 
 **Families Turn to Symbolic Cremation After Nepal Floods**\

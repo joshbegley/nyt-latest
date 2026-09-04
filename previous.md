@@ -1,3 +1,7 @@
+**Build First, Ask Later**\
+`We look at President Trump’s building spree in Washington.`\
+https://www.nytimes.com/2026/09/04/briefing/build-first-ask-later.html
+
 **Families Mourn Nepal Flood Victims**\
 `With thousands still missing in Nepal’s floods, some families have turned to symbolic cremations to honor their loved ones. Our South Asia bureau chief, Mujib Mashal, witnessed one of the ceremonies.`\
 https://www.nytimes.com/video/world/asia/100000011130555/families-mourn-nepal-flood-victims.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/09/04/us/jetski-stranded-sea.html
 **A Paralympian Takes His Shot Despite Republicans’ Home Court Advantage**\
 `Josh Turek is trying to turn deep-red Iowa blue as he runs for the U.S. Senate.`\
 https://www.nytimes.com/2026/09/04/us/politics/josh-turek-iowa-senate-race.html
-
-**It’s Time for a Big Ol’ Fall Book Preview**\
-`From horror to history to literary fiction, the Book Review editors discuss 31 titles that deserve a look.`\
-https://www.nytimes.com/2026/09/04/podcasts/fall-books.html
 
