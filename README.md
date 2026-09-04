@@ -1,3 +1,7 @@
+**Judge Ends Federal Oversight of Teamsters**\
+`The union and federal prosecutors agreed that organized crime groups had been rooted out of union operations, the judge wrote.`\
+https://www.nytimes.com/2026/09/03/us/politics/judge-ends-federal-oversight-of-teamsters.html
+
 **NYT Crossword Answers for Sept. 4, 2026**\
 `Julian Xiao opens our solving weekend.`\
 https://www.nytimes.com/2026/09/03/crosswords/daily-puzzle-2026-09-04.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/03/us/politics/mail-ballots-usps-restraining-ord
 **Man Is Sentenced in Explosion of Hyperbaric Chamber That Killed a 5-Year-Old**\
 `The former safety manager of a Michigan alternative health care center will spend at least 19 months in jail in connection with the January 2025 death.`\
 https://www.nytimes.com/2026/09/03/us/hyperbaric-chamber-child-death-michigan-sentencing.html
-
-**El ICE omitió verificaciones básicas en su prisa por reclutar agentes, según un denunciante**\
-`Un funcionario que supervisó la evaluación de reclutas del ICE citó una “reducción de estándares sin precedentes” en medio de un aumento de contrataciones.`\
-https://www.nytimes.com/es/2026/09/03/espanol/estados-unidos/ice.html
 
