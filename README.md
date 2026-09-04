@@ -1,3 +1,7 @@
+**¿Viajas el fin de semana del Día del Trabajo? Esto es lo que debes saber**\
+`La TSA espera revisar a 17 millones de pasajeros durante la semana festiva. Aquí tienes un vistazo a los precios de la gasolina, posibles contratiempos climáticos y cómo mantenerte seguro en la carretera.`\
+https://www.nytimes.com/es/2026/09/04/espanol/estados-unidos/viajes-dia-trabajo.html
+
 **School Is Starting Late. That’s Good for N.Y.C. Summer Camps.**\
 `Some parents are at loose ends about how to occupy their children in the extra week before school starts Sept. 10 — and some camps are benefiting from their bind.`\
 https://www.nytimes.com/2026/09/04/nyregion/nyc-school-summer-camp.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/03/us/texas-killing-fields-cold-case-manslaughte
 **Trump Administration Asks Supreme Court to Allow Mail Voting Limits**\
 `The justices have been asked to weigh in again on the Trump administration’s efforts to restrict mail voting — this time on whether the plans violate the Constitution.`\
 https://www.nytimes.com/2026/09/03/us/politics/trump-supreme-court-mail-ballots.html
-
-**Volkswagen Plans to Cut 50,000 Jobs**\
-`Facing growing competition from China and rapidly advancing technology, the German auto giant said its board had approved a “comprehensive” overhaul.`\
-https://www.nytimes.com/2026/09/03/business/volkswagen-job-cuts.html
 
