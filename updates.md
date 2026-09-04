@@ -1,3 +1,7 @@
+**Trump Taps Army Engineering Official as Acting Secretary**\
+`The move came days after the resignation of Daniel P. Driscoll, who had clashed with Defense Secretary Pete Hegseth over the purge of top generals in the Army.`\
+https://www.nytimes.com/2026/09/03/us/politics/trump-acting-army-secretary.html
+
 **Trump Taps Head of Army Corps of Engineers as Acting Army Secretary**\
 `The move came days after the resignation of Daniel P. Driscoll, who had clashed with Defense Secretary Pete Hegseth over the purge of top generals in the Army.`\
 https://www.nytimes.com/2026/09/03/us/politics/trump-acting-army-secretary.html
