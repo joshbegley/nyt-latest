@@ -1,3 +1,11 @@
+**U.N. Endorses Map That Accurately Shows the Size of Africa**\
+`The U.N. General Assembly has endorsed the Equal Earth projection, a new map that more accurately depicts the size of Africa. Critics of the old map said that it made northern countries appear larger, reinforcing a colonial worldview.`\
+https://www.nytimes.com/video/world/africa/100000011134039/un-endorses-map-that-accurately-shows-the-size-of-africa.html
+
+**Supreme Court Sides With Republicans in TV Ad Fight**\
+`Republican groups had asked the court to clear the way for political parties to pay the same low-cost ad rates as candidates, a move that could undercut a Democratic advantage in the midterms.`\
+https://www.nytimes.com/2026/09/04/us/politics/supreme-court-republicans-ads.html
+
 **Trump Administration Issues Subpoenas For Voter Data in Nevada**\
 `The request comes as the government has escalated efforts to prove President Trump’s false claims of widespread voter fraud.`\
 https://www.nytimes.com/2026/09/04/us/politics/trump-nevada-voter-data-subpoena.html
