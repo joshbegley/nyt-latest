@@ -1,3 +1,7 @@
+**ICE Agent Charged With Six Counts of Lying About Minnesota Shooting**\
+`The federal indictment against Christian Castro marked a rare instance of the Trump administration seeking to hold an immigration agent accountable for actions taken while on duty.`\
+https://www.nytimes.com/2026/09/04/us/christian-castro-ice-agent-charges-minnesota-shooting.html
+
 **How Gloria Steinem Changed Our Lives**\
 `Readers mourn the loss of the feminist icon.`\
 https://www.nytimes.com/2026/09/04/opinion/letters/gloria-steinem.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/09/04/world/asia/nepal-symbolic-cremation-floods.ht
 **Haze From Indonesian Wildfires Blankets Parts of Malaysia, Philippines**\
 `A powerful El Niño is fanning what could be Indonesia’s worst fire season in years, one that is also raising fears of a regional health crisis.`\
 https://www.nytimes.com/2026/09/04/world/asia/malaysia-philippines-haze-indonesia-singapore-wildfires.html
-
-**Haze From Indonesia’s Wildfires Spreads Across Southeast Asia**\
-`Toxic haze from Indonesia’s wildfires is spreading across Southeast Asia, with air pollution reaching unhealthy levels.`\
-https://www.nytimes.com/video/world/asia/100000011132815/indonesia-wildfire-haze-smoke-southeast-asia.html
 
 **Live Updates: U.S. Hiring Jumps, an Encouraging Sign for the Economy**\
 `Employers added 162,000 jobs in August, and the unemployment rate held steady at 4.1 percent. But wage growth is not keeping up with rising inflation.`\

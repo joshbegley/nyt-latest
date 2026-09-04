@@ -1,3 +1,7 @@
+**ICE Agent Charged With Six Counts of Lying About Minnesota Shooting**\
+`The federal indictment against Christian Castro marked a rare instance of the Trump administration seeking to hold an immigration agent accountable for actions taken while on duty.`\
+https://www.nytimes.com/2026/09/04/us/christian-castro-ice-agent-charges-minnesota-shooting.html
+
 **How Gloria Steinem Changed Our Lives**\
 `Readers mourn the loss of the feminist icon.`\
 https://www.nytimes.com/2026/09/04/opinion/letters/gloria-steinem.html
