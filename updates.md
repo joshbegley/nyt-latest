@@ -1,3 +1,11 @@
+**Lindsay Clancy’s Murder Trial Ended With a Hung Jury. What Now?**\
+`Ms. Clancy still faces murder charges for killing her three children. She is likely to remain in a hospital, and prosecutors may decide to retry her.`\
+https://www.nytimes.com/2026/09/04/us/lindsay-clancy-murder-hung-jury-what-next.html
+
+**The Lindsay Clancy Jury Had an Impossible Task**\
+`Postpartum psychosis is misunderstood and a poor fit for the justice system.`\
+https://www.nytimes.com/2026/09/04/opinion/lindsay-clancy-trial.html
+
 **The Local: Follow the Ice**\
 `Plus, we talk to the man in the rotating refrigerator.`\
 https://www.nytimes.com/2026/09/04/us/the-local-follow-the-ice.html

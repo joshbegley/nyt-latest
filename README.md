@@ -127,7 +127,7 @@ https://www.nytimes.com/2026/09/04/us/politics/iran-war-intelligence-reports.htm
 https://www.nytimes.com/2026/09/04/business/energy-environment/venezuela-oil-fields-betancourt-trump.html
 
 **How Gloria Steinem and Ms. Magazine Transformed the Publishing Industry**\
-`The late feminist icon insisted that women were not a niche audience — and proved it in 1971 with the start of an influential publication owned and operated by them.`\
+`The feminist icon insisted that women were not a niche audience — and proved it in 1971 with the start of an influential publication owned and operated by them.`\
 https://www.nytimes.com/2026/09/04/business/media/gloria-steinem-ms-magazine.html
 
 **Today, In Short**\
