@@ -1,3 +1,7 @@
+**Former Staff Members Threaten to Expose Fetterman’s Internal Messages**\
+`The former aides started a social media account they said would publicize Senator John Fetterman’s communications, following a report detailing the Democrat’s disdain for doing his job.`\
+https://www.nytimes.com/2026/09/04/us/politics/john-fetterman-former-staff.html
+
 **U.N. Endorses Map That Accurately Shows the Size of Africa**\
 `The U.N. General Assembly has endorsed the Equal Earth projection, a new map that more accurately depicts the size of Africa. Critics of the old map said that it made northern countries appear larger, reinforcing a colonial worldview.`\
 https://www.nytimes.com/video/world/africa/100000011134039/un-endorses-map-that-accurately-shows-the-size-of-africa.html

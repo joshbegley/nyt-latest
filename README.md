@@ -1,3 +1,7 @@
+**Netanyahu Posts A.I. Video Pairing Mamdani With Iranian Ruler**\
+`The video shows fictitious scenes of Mayor Zohran Mamdani on the phone, celebrating with Ayatollah Mojtaba Khamenei and others, at the prospect of Mr. Netanyahu losing re-election.`\
+https://www.nytimes.com/2026/09/04/world/middleeast/netanyahu-ai-video-mamdani.html
+
 **Former Staff Members Threaten to Expose Fetterman’s Internal Messages**\
 `The former aides started a social media account they said would publicize Senator John Fetterman’s communications, following a report detailing the Democrat’s disdain for doing his job.`\
 https://www.nytimes.com/2026/09/04/us/politics/john-fetterman-former-staff.html
@@ -154,7 +158,7 @@ https://www.nytimes.com/2026/09/04/us/politics/gloria-steinem-feminism-manospher
 `“Beyond a reasonable doubt” is the highest burden of proof within the American legal system. Still, there is some wiggle room.`\
 https://www.nytimes.com/2026/09/04/us/lindsay-clancy-trial-reasonable-doubt.html
 
-**When the World’s Best-Known Feminist Was Accused of Insulting Women**\
+**‘It Was Insulting’: When Steinem Said Young Women Backed Sanders to Chase Men**\
 `During the 2016 presidential campaign, Gloria Steinem was asked about the young women supporting Bernie Sanders over Hillary Clinton. Her answer created a brief hullabaloo.`\
 https://www.nytimes.com/2026/09/04/us/politics/gloria-steinem-clinton-sanders-2016.html
 
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/09/04/science/the-worlds-first-bugs-had-way-more-le
 **‘Facing El Chapo’ and More Action Movies to Stream Now**\
 `This month’s picks include a high-stakes El Chapo drama, and films starring Jason Statham, Alan Ritchson, Dave Bautista and Jason Momoa.`\
 https://www.nytimes.com/2026/09/04/movies/action-movies-streaming.html
-
-**Pick Your Favorite Home Under $1.2 Million in Montenegro**\
-`A seaside villa, a penthouse with views of the Adriatic and a contemporary hillside house are this week’s options.`\
-https://www.nytimes.com/2026/09/04/realestate/homes-montenegro.html
 
 **U.S. Hiring Jumps, an Encouraging Sign for the Economy**\
 `Employers added 162,000 jobs in August, and the unemployment rate held steady at 4.1 percent. But wage growth is not keeping up with rising inflation.`\
