@@ -126,7 +126,7 @@ https://www.nytimes.com/2026/09/04/us/lindsay-clancy-trial-reasonable-doubt.html
 `During the 2016 presidential campaign, Gloria Steinem was asked about the young women supporting Bernie Sanders over Hillary Clinton. Her answer created a brief hullabaloo.`\
 https://www.nytimes.com/2026/09/04/us/politics/gloria-steinem-clinton-sanders-2016.html
 
-**Trump Administration Moves to Drop Protections for More Wetlands**\
+**Trump administration Moves to Drop Protections for More Wetlands**\
 `The proposed rule could strip federal protections from most U.S. wetlands, many of which help feed drinking water systems.`\
 https://www.nytimes.com/2026/09/04/climate/epa-wetlands-water-protections.html
 
