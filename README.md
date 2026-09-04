@@ -1,10 +1,14 @@
+**An Attempt at Donating a Kidney Led Her to a Diagnosis**\
+`The woman’s strange symptoms limited her for years, until she underwent testing to be a living donor.`\
+https://www.nytimes.com/2026/09/04/well/systemic-mastocytosis-mast-cells-alaphylaxis.html
+
 **Tesla’s Cybercab Is Being Investigated by Federal Regulators**\
 `The National Highway Traffic Safety Administration said it would examine whether the company’s new self-driving taxi, which has no steering wheel, meets federal auto regulations.`\
 https://www.nytimes.com/2026/09/04/business/tesla-cybercab-nhtsa-investigation.html
 
 **The Pros and Cons of Paying Off Your Mortgage Early**\
 `Homeowners who make extra payments can save thousands of dollars in interest. But, financial experts say, paying down other debt, with higher interest rates, may be a better option.`\
-https://www.nytimes.com/2026/09/04/your-money/the-pros-and-cons-of-paying-off-your-mortgage-early.html
+https://www.nytimes.com/2026/09/04/your-money/paying-off-mortgage-early-pros-cons.html
 
 **Lindsay Clancy’s Lawyer Wants a Juror Removed. The Bar Will Be High.**\
 `Judges approach complaints about jurors with caution, mindful that in the event of a conviction, a removal could be grounds for an appeal.`\
@@ -14,8 +18,8 @@ https://www.nytimes.com/2026/09/04/us/lindsay-clancy-process-removing-juror.html
 `The recent capture of a strategic ridge has further entrenched the Israeli occupation of Lebanese territory, as efforts to broker lasting peace have floundered.`\
 https://www.nytimes.com/2026/09/04/world/middleeast/israel-captures-ridge-occupation-katz.html
 
-**Lindsay Clancy Trial Live Updates: Holdout Juror Draws Scrutiny as Deadlock Drags On**\
-`The judge in the high-profile murder case is considering a note from the foreperson regarding the juror, who appears to be the lone obstacle to a unanimous verdict.`\
+**Lindsay Clancy Trial Live Updates: Judge Declines to Remove Holdout Juror**\
+`Lawyers argued over how the court should respond to a note from the foreperson regarding the juror, who appears to be the lone obstacle to an acquittal on first-degree murder charges.`\
 https://www.nytimes.com/live/2026/09/04/us/lindsay-clancy-trial-deadlock
 
 **‘The Headlines’ News Quiz: Sept. 4, 2026**\
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/09/04/world/europe/ukraine-russia-talks-kyrylo-buda
 **Alejandro Betancourt, Trump’s Partner in Venezuelan Oil Deal, Has Faced Investigations**\
 `Alejandro Betancourt has been targeted by multiple investigations. Now he’s the U.S. government’s unrivaled partner in President Trump’s bid to control Venezuelan oil resources.`\
 https://www.nytimes.com/2026/09/04/world/americas/venezuela-oil-trump-alejandro-betancourt.html
-
-**Bringing Explosive Life to ‘Coyote vs. Acme’**\
-`The director Dave Green narrates a scene from the film in which a perturbed Wile E. Coyote lawyers up.`\
-https://www.nytimes.com/2026/09/04/movies/coyote-vs-acme-scene.html
 
 **Live Updates: 2 Trapped Workers Are Rescued After 9 Days in Nepal Tunnel**\
 `“Everybody’s sense of hope was waning,” said one survivor’s relative. Rescuers were searching for dozens of others inside the tunnel at a hydropower plant damaged by last week’s deadly floods.`\
