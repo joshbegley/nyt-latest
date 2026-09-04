@@ -1,3 +1,7 @@
+**Families Mourn Nepal Flood Victims**\
+`With thousands still missing in Nepal’s floods, some families have turned to symbolic cremations to honor their loved ones. Our South Asia bureau chief, Mujib Mashal, witnessed one of the ceremonies.`\
+https://www.nytimes.com/video/world/asia/100000011130555/families-mourn-nepal-flood-victims.html
+
 **Families Turn to Symbolic Cremation After Nepal Floods**\
 `Thousands are missing, and some families have lost hope of recovering their bodies. To carry out his sacred duty, a son lights the funeral pyre for a straw effigy of his father.`\
 https://www.nytimes.com/2026/09/04/world/asia/nepal-symbolic-cremation-floods.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/09/04/us/politics/josh-turek-iowa-senate-race.html
 **It’s Time for a Big Ol’ Fall Book Preview**\
 `From horror to history to literary fiction, the Book Review editors discuss 31 titles that deserve a look.`\
 https://www.nytimes.com/2026/09/04/podcasts/fall-books.html
-
-**Book Review: ‘Body Language,’ by Meg Howrey**\
-`Meg Howrey’s novel “Body Language” doesn’t skimp on the kind of absurd humor that thrives in a crucible.`\
-https://www.nytimes.com/2026/09/04/books/review/body-language-meg-howrey.html
 
