@@ -1,3 +1,23 @@
+**EE. UU. quiere el petróleo de estos 17 campos en Venezuela**\
+`Una empresa petrolera privada llegó a un acuerdo con el gobierno de Trump para desarrollar 17 áreas en Venezuela, un esfuerzo que los expertos dicen que tomará años y millardos de dólares.`\
+https://www.nytimes.com/es/2026/09/04/espanol/america-latina/venezuela-petroleo-mapas-trump.html
+
+**Fake Republican Midterm Convention Website Redirects Visitors to Epstein Files**\
+`A spoof of the G.O.P. convention site tricked people for weeks, before redirecting them to the Justice Department’s library of Epstein files.`\
+https://www.nytimes.com/2026/09/04/us/politics/republican-midterm-convention-epstein-files.html
+
+**Why Lindsay Clancy’s Case Ended in a Mistrial**\
+`Ellen Barry joins Natalie Kitroeff on “The Call” from the scene of the Lindsay Clancy case, where the judge just declared a mistrial after a hung jury failed to reach a consensus.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011134579/why-lindsay-clancys-case-ended-in-a-mistrial.html
+
+**Where Will Lindsay Clancy Go Now?**\
+`At first she will return to the hospital, where she will continue to be treated for mental illness. She may be confined much longer.`\
+https://www.nytimes.com/2026/09/04/us/lindsay-clancy-treatment-mental-illness.html
+
+**Former John Fetterman Aides Threaten to Expose Senator’s Internal Messages**\
+`The former aides started a social media account they said would publicize Senator John Fetterman’s communications, following a report detailing the Democrat’s disdain for doing his job.`\
+https://www.nytimes.com/2026/09/04/us/politics/john-fetterman-former-staff.html
+
 **Judge Orders Trump Officials to Divulge Names of Those Who Set Up $1.8 Billion Fund**\
 `The plan to create a fund that could have funneled taxpayer money to the president’s allies drew repeated scrutiny, including a rare rebuke from Senate Republicans.`\
 https://www.nytimes.com/2026/09/04/us/politics/trump-administration-fund-compensation-jan-6.html

@@ -62,8 +62,8 @@ https://www.nytimes.com/2026/09/04/world/asia/nepal-flood-tunnel-rescue.html
 `In a legal deposition, the doctor, Theresa Long, compared immunizing service members against Covid to Nazi doctors experimenting on concentration camp prisoners.`\
 https://www.nytimes.com/2026/09/04/us/politics/military-covid-vaccine-deaths.html
 
-**Quiet on the Court! As U.S. Open Grows, the Crowd Gets Rowdier.**\
-`Are social media influencers ruining the Open? Or are they just the latest evolution of New York’s famously boisterous tennis tournament?`\
+**Influencers, Noise and Weed: Has the U.S. Open Become a ‘Zoo’?**\
+`As the Open grows ever more popular, tennis fans wonder if “the people’s tournament” has become too rowdy.`\
 https://www.nytimes.com/2026/09/04/nyregion/us-open-social-media-influencers.html
 
 **Caramelized Corn and Asparagus Pasta**\
