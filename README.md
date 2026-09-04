@@ -1,3 +1,15 @@
+**Grand Theft Porter: Thieves Steal 800 Barrels of Guinness in Britain**\
+`The police said they were investigating the theft of about $155,000 worth of the famously creamy Irish stout from an industrial park in northwestern Britain.`\
+https://www.nytimes.com/2026/09/04/world/europe/guinness-theft-uk.html
+
+**Russian Drone Strikes Office of Ukraine’s Intelligence Chief**\
+`The attack came as the American envoys Steve Witkoff and Jared Kushner were said to be planning imminent visits to Kyiv and to Moscow.`\
+https://www.nytimes.com/2026/09/04/world/europe/russia-drone-attack-kyiv-security-service.html
+
+**Photo of Road Runner Snagged by Coyote Shows That Cartoons Were a Lie**\
+`Here’s some bad news: Sometimes the coyote does win.`\
+https://www.nytimes.com/2026/09/04/us/road-runner-coyote-photograph.html
+
 **Argentina intensifica su reclamo sobre las Malvinas. Esto es lo que debes saber**\
 `El presidente Javier Milei ha intensificado el reclamo de Argentina sobre el territorio británico, mientras que el presidente Donald Trump ha planteado dudas sobre la prolongada neutralidad de EE. UU. en la disputa.`\
 https://www.nytimes.com/es/2026/09/04/espanol/america-latina/argentina-malvinas-milei-trump.html
@@ -173,18 +185,6 @@ https://www.nytimes.com/2026/09/04/books/review/wendell-berry-appreciation.html
 **Corrections: Sept. 4, 2026**\
 `Corrections that appeared in print on Friday, Sept. 4, 2026.`\
 https://www.nytimes.com/2026/09/04/pageoneplus/corrections-sept-4-2026.html
-
-**The Bond Markets Are Pushing Up Rates. Will Central Banks Follow?**\
-`Around the world, rising bond yields reflect shifting expectations on how fast policymakers will raise interest rates.`\
-https://www.nytimes.com/2026/09/04/business/bond-yields-rates-central-banks.html
-
-**Cassandra Wilson Led Jazz Into the Future With Warmth and Creative Conviction**\
-`With a self-possessed vision, the vocalist married her easy and intimate tone to jazz, blues and folk experiments, opening the door to a new postmodernism.`\
-https://www.nytimes.com/2026/09/04/arts/music/cassandra-wilson-vocal-style-jazz.html
-
-**Satellite Images Contradict Border Agency on Construction in Big Bend**\
-`Customs and Border Protection claimed that construction on a border security project in Big Bend National Park in Texas was limited to “survey and design” work. Visual Investigations’ satellite specialist Christoph Koettl tracked the activity and found evidence of patrol roads and vehicle barriers already being built.`\
-https://www.nytimes.com/video/us/100000011128810/big-bend-construction-border-wall.html
 
 **2 Trapped Workers Are Rescued After 9 Days in Nepal Tunnel**\
 `“Everybody’s sense of hope was waning,” said one survivor’s relative. Rescuers were searching for dozens of others inside the tunnel at a hydropower plant damaged by last week’s deadly floods.`\
