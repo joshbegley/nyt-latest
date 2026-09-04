@@ -1,3 +1,11 @@
+**N.Y.P.D. Fatally Shoots Man With Knife on Brooklyn Bridge**\
+`The shooting, on Friday morning, happened days after the police shot and killed a woman in Times Square who had stabbed two people.`\
+https://www.nytimes.com/2026/09/04/nyregion/nypd-shooting-brooklyn-bridge.html
+
+**She Was Hobbled by Fatigue Before an Accidental Diagnosis**\
+`The woman’s symptoms limited her for years until she underwent testing to be a kidney donor.`\
+https://www.nytimes.com/2026/09/04/well/systemic-mastocytosis-mast-cells-alaphylaxis.html
+
 **An Attempt at Donating a Kidney Led Her to a Diagnosis**\
 `The woman’s strange symptoms limited her for years, until she underwent testing to be a living donor.`\
 https://www.nytimes.com/2026/09/04/well/systemic-mastocytosis-mast-cells-alaphylaxis.html

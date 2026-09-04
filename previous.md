@@ -1,5 +1,9 @@
-**An Attempt at Donating a Kidney Led Her to a Diagnosis**\
-`The woman’s strange symptoms limited her for years, until she underwent testing to be a living donor.`\
+**N.Y.P.D. Fatally Shoots Man With Knife on Brooklyn Bridge**\
+`The shooting, on Friday morning, happened days after the police shot and killed a woman in Times Square who had stabbed two people.`\
+https://www.nytimes.com/2026/09/04/nyregion/nypd-shooting-brooklyn-bridge.html
+
+**She Was Hobbled by Fatigue Before an Accidental Diagnosis**\
+`The woman’s symptoms limited her for years until she underwent testing to be a kidney donor.`\
 https://www.nytimes.com/2026/09/04/well/systemic-mastocytosis-mast-cells-alaphylaxis.html
 
 **Tesla’s Cybercab Is Being Investigated by Federal Regulators**\
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/09/04/movies/new-movies-this-week-critics.html
 **After Fighting Russia Fiercely, He Wants to Forge Ukraine’s Path to Peace**\
 `Kyrylo Budanov, a decorated soldier and former military spy chief, advocates a negotiated settlement. Talks are expected to resume this month.`\
 https://www.nytimes.com/2026/09/04/world/europe/ukraine-russia-talks-kyrylo-budanov.html
-
-**Alejandro Betancourt, Trump’s Partner in Venezuelan Oil Deal, Has Faced Investigations**\
-`Alejandro Betancourt has been targeted by multiple investigations. Now he’s the U.S. government’s unrivaled partner in President Trump’s bid to control Venezuelan oil resources.`\
-https://www.nytimes.com/2026/09/04/world/americas/venezuela-oil-trump-alejandro-betancourt.html
 
 **Live Updates: 2 Trapped Workers Are Rescued After 9 Days in Nepal Tunnel**\
 `“Everybody’s sense of hope was waning,” said one survivor’s relative. Rescuers were searching for dozens of others inside the tunnel at a hydropower plant damaged by last week’s deadly floods.`\
