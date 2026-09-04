@@ -1,3 +1,31 @@
+**The U.S. Wants the Oil From These 17 Venezuelan Fields**\
+`A private oil company has struck a deal with the Trump administration to develop 17 areas in Venezuela, an effort that experts say will take years and billions of dollars.`\
+https://www.nytimes.com/2026/09/04/business/energy-environment/venezuela-oil-fields-betancourt-trump.html
+
+**How Gloria Steinem and Ms. Magazine Transformed the Publishing Industry**\
+`The late feminist icon insisted that women were not a niche audience — and proved it in 1971 with the start of an influential publication owned and operated by them.`\
+https://www.nytimes.com/2026/09/04/business/media/gloria-steinem-ms-magazine.html
+
+**Today, In Short**\
+`Alix Earle. Pastries. And our new era.`\
+https://www.nytimes.com/2026/09/04/briefing/today-in-short.html
+
+**Creamy Tuscan Chicken Begs for Crusty Bread**\
+`And more of the week’s most popular recipes.`\
+https://www.nytimes.com/2026/09/04/dining/creamy-tuscan-chicken-begs-for-crusty-bread.html
+
+**The World’s First Bugs Had Way More Legs**\
+`Meet the earliest known insects. Shaking hands with them will take a while.`\
+https://www.nytimes.com/2026/09/04/science/the-worlds-first-bugs-had-way-more-legs.html
+
+**‘Facing El Chapo’ and More Action Movies to Stream Now**\
+`This month’s picks include a high-stakes El Chapo drama, and films starring Jason Statham, Alan Ritchson, Dave Bautista and Jason Momoa.`\
+https://www.nytimes.com/2026/09/04/movies/action-movies-streaming.html
+
+**2 Trapped Workers Are Rescued After 9 Days in Nepal Tunnel**\
+`“Everybody’s sense of hope was waning,” said one survivor’s relative. Rescuers were searching for dozens of others inside the tunnel at a hydropower project damaged by last week’s deadly floods.`\
+https://www.nytimes.com/live/2026/09/04/world/nepal-flash-floods-rescue-tunnels
+
 **Pick Your Favorite Home Under $1.2 Million in Montenegro**\
 `A seaside villa, a penthouse with views of the Adriatic and a contemporary hillside house are this week’s options.`\
 https://www.nytimes.com/2026/09/04/realestate/homes-montenegro.html

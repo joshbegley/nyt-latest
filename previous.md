@@ -1,3 +1,27 @@
+**The U.S. Wants the Oil From These 17 Venezuelan Fields**\
+`A private oil company has struck a deal with the Trump administration to develop 17 areas in Venezuela, an effort that experts say will take years and billions of dollars.`\
+https://www.nytimes.com/2026/09/04/business/energy-environment/venezuela-oil-fields-betancourt-trump.html
+
+**How Gloria Steinem and Ms. Magazine Transformed the Publishing Industry**\
+`The late feminist icon insisted that women were not a niche audience — and proved it in 1971 with the start of an influential publication owned and operated by them.`\
+https://www.nytimes.com/2026/09/04/business/media/gloria-steinem-ms-magazine.html
+
+**Today, In Short**\
+`Alix Earle. Pastries. And our new era.`\
+https://www.nytimes.com/2026/09/04/briefing/today-in-short.html
+
+**Creamy Tuscan Chicken Begs for Crusty Bread**\
+`And more of the week’s most popular recipes.`\
+https://www.nytimes.com/2026/09/04/dining/creamy-tuscan-chicken-begs-for-crusty-bread.html
+
+**The World’s First Bugs Had Way More Legs**\
+`Meet the earliest known insects. Shaking hands with them will take a while.`\
+https://www.nytimes.com/2026/09/04/science/the-worlds-first-bugs-had-way-more-legs.html
+
+**‘Facing El Chapo’ and More Action Movies to Stream Now**\
+`This month’s picks include a high-stakes El Chapo drama, and films starring Jason Statham, Alan Ritchson, Dave Bautista and Jason Momoa.`\
+https://www.nytimes.com/2026/09/04/movies/action-movies-streaming.html
+
 **Pick Your Favorite Home Under $1.2 Million in Montenegro**\
 `A seaside villa, a penthouse with views of the Adriatic and a contemporary hillside house are this week’s options.`\
 https://www.nytimes.com/2026/09/04/realestate/homes-montenegro.html
@@ -162,31 +186,7 @@ https://www.nytimes.com/es/2026/09/04/espanol/america-latina/alejandro-betancour
 `En un video publicado en redes sociales, el presidente colombiano calificó a la operación como un “golpe letal”.`\
 https://www.nytimes.com/es/2026/09/04/espanol/america-latina/espriella-posa-cadaveres-colombia.html
 
-**Clancy Trial Verdict May Hinge on a Single Holdout Juror**\
-`The jury has been deadlocked since at least Tuesday on whether to hold Lindsay Clancy legally responsible for the strangling deaths of her three children.`\
-https://www.nytimes.com/2026/09/04/us/lindsay-clancy-trial-holdout-juror-judge-inquiry.html
-
-**How to Set New Goals This Fall**\
-`Harness that back-to-school energy to set some new goals.`\
-https://www.nytimes.com/2026/09/04/well/september-goals-fresh-start.html
-
-**Ucrania se adapta a dar clases bajo tierra**\
-`En Ucrania, hay 74 escuelas totalmente subterráneas, un duro indicador de la naturaleza prolongada de la guerra y de una campaña de bombardeos aéreos rusos.`\
-https://www.nytimes.com/es/2026/09/04/espanol/mundo/guerra-ucrania-escuelas-subterraneas.html
-
-**What Gloria Steinem Can Teach Us**\
-`Steinem has died at the end of a decade that undid some of what she struggled for.`\
-https://www.nytimes.com/2026/09/04/opinion/gloria-steinem-feminism.html
-
-**In Battle to Use ‘Ms.,’ Gloria Steinem Had to Fight The New York Times**\
-`In the 1970s, Ms. Steinem confronted the newspaper’s executive editor about the honorific in an exchange of letters, pressing it to use the alternative to Miss or Mrs.`\
-https://www.nytimes.com/2026/09/04/arts/gloria-steinem-ms-new-york-times-abe-rosenthal.html
-
-**So, You Want to Start Composting**\
-`Our expert shares clever ways to make collecting kitchen scraps simple and odor-free.`\
-https://www.nytimes.com/2026/09/04/podcasts/so-you-want-to-start-composting.html
-
 **2 Trapped Workers Are Rescued After 9 Days in Nepal Tunnel**\
-`“Everybody’s sense of hope was waning,” said one survivor’s relative. Rescuers were searching for dozens of others inside the tunnel at a hydropower plant damaged by last week’s deadly floods.`\
+`“Everybody’s sense of hope was waning,” said one survivor’s relative. Rescuers were searching for dozens of others inside the tunnel at a hydropower project damaged by last week’s deadly floods.`\
 https://www.nytimes.com/live/2026/09/04/world/nepal-flash-floods-rescue-tunnels
 
