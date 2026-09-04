@@ -1,3 +1,11 @@
+**Argentina’s President Escalates Falklands Dispute With Britain**\
+`President Javier Milei of Argentina has elevated tensions with Britain over an offshore oil project near the Falkland Islands, a British territory that his country claims as Argentine. President Trump recently raised questions about U.S. neutrality on the dispute.`\
+https://www.nytimes.com/video/world/americas/100000011133003/argentina-falklands-trump-uk.html
+
+**Lindsay Clancy Trial Live Updates: After Judge States Intent to Declare a Mistrial, Defense Mounts Final Appeal**\
+`The judge’s decision came after jurors sent another note saying they had not been able to reach a verdict. The judge gave the defense an hour to request a stay.`\
+https://www.nytimes.com/live/2026/09/04/us/lindsay-clancy-trial-deadlock
+
 **Trump Plans to Use Qatari Jet for Another Overseas Flight Despite Security Concerns**\
 `The president plans to travel to Ireland on the plane, the first time he will have used it overseas since questions were raised about its defensive capabilities.`\
 https://www.nytimes.com/2026/09/04/us/politics/trump-qatar-jet-flight-ireland.html

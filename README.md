@@ -1,3 +1,7 @@
+**Trump Threatens to Halt Some Trade Unless the Fed Cuts Rates**\
+`The president said he could halt trade between the United States and countries with which it has a trade deficit if the central bank doesn’t do his bidding.`\
+https://www.nytimes.com/2026/09/04/business/economy/trump-trade-threats-fed-rate-cuts.html
+
 **Argentina’s President Escalates Falklands Dispute With Britain**\
 `President Javier Milei of Argentina has elevated tensions with Britain over an offshore oil project near the Falkland Islands, a British territory that his country claims as Argentine. President Trump recently raised questions about U.S. neutrality on the dispute.`\
 https://www.nytimes.com/video/world/americas/100000011133003/argentina-falklands-trump-uk.html
