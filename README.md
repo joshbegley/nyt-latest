@@ -1,3 +1,11 @@
+**Why the Hugging Face Hack Should Make You Worry More About A.I.**\
+`The attack by an aggressive “collective” of OpenAI agents shows the danger of artificial intelligence systems that organize themselves.`\
+https://www.nytimes.com/2026/09/03/technology/openai-hugging-face-hacking.html
+
+**How OpenAI Limited the Probe of Its Bots’ Hack of Hugging Face**\
+`A nonprofit’s study of how OpenAI’s A.I. agents were able to break into Hugging Face’s infrastructure wasn’t allowed to look at the incident’s full scope.`\
+https://www.nytimes.com/2026/09/03/technology/openai-hugging-face-hack.html
+
 **Trump Taps Army Engineering Official as Acting Secretary**\
 `The move came days after the resignation of Daniel P. Driscoll, who had clashed with Defense Secretary Pete Hegseth over the purge of top generals in the Army.`\
 https://www.nytimes.com/2026/09/03/us/politics/trump-acting-army-secretary.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/03/books/review/new-recommended-books.html
 **Tiny Memoir Contest for Students: Write a 100-Word Personal Narrative**\
 `We invite teenagers to tell a story about a meaningful life experience in just 100 words. Contest dates: Sept. 16-Oct. 28, 2026.`\
 https://www.nytimes.com/2026/09/03/learning/tiny-memoir-contest-for-students-write-a-100-word-personal-narrative.html
-
-**Hillary Clinton, Meghan Markle, Lena Dunham and Others Pay Tribute to Gloria Steinem**\
-`After Ms. Steinem’s death at 92, celebrities and politicians reflected on her decades of activism for women’s rights and equality.`\
-https://www.nytimes.com/2026/09/03/us/gloria-steinem-death-hillary-clinton-meghan-markle.html
-
-**Gloria Steinem on Marriage and Why She Got an Abortion at 22**\
-`In a never-before-seen interview with The New York Times, Gloria Steinem, the feminist icon, discusses marriage, her career and why she got an abortion in her twenties.`\
-https://www.nytimes.com/video/obituaries/100000011131297/gloria-steinem-obituary-last-word.html
 
