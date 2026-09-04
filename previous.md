@@ -142,7 +142,7 @@ https://www.nytimes.com/2026/09/04/us/politics/putin-zelensky-kushner-witkoff-ta
 `Companies like AT&T are increasingly using cheap, freely available artificial intelligence models over expensive ones from Anthropic and OpenAI.`\
 https://www.nytimes.com/2026/09/04/technology/open-source-ai-anthropic-openai.html
 
-**‘A Win for Meta’: A Debate on the Big Social Media Ruling**\
+**‘Wrongheaded and Perilous’: 3 Writers on the Big Meta Ruling**\
 `Unpacking the Meta ruling — how big is it, really?`\
 https://www.nytimes.com/2026/09/04/opinion/a-win-for-meta-a-debate-on-the-big-social-media-ruling.html
 
