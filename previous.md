@@ -1,3 +1,7 @@
+**Argentina Is Ramping Up Its Claim to the Falklands. Here’s What to Know.**\
+`President Javier Milei has dialed up Argentina’s claim over the British territory, while President Trump has raised questions about longstanding U.S. neutrality on the dispute.`\
+https://www.nytimes.com/article/falkland-islands-trump-uk-argentina-malvinas.html
+
 **Judge Ends Federal Oversight of Teamsters**\
 `The union and federal prosecutors agreed that organized crime groups had been rooted out of union operations, the judge wrote.`\
 https://www.nytimes.com/2026/09/03/us/politics/judge-ends-federal-oversight-of-teamsters.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/09/03/espanol/mundo/espana-marruecos-ceuta-sanch
 **Judge Suggests Trump Mail-In Voting Rules Could Cause ‘Major Disenfranchisement’**\
 `Judge Indira Talwani said the Postal Service appeared to be trying a haphazard “experiment” with a new rule that could result in valid ballots being tossed.`\
 https://www.nytimes.com/2026/09/03/us/politics/mail-ballots-usps-restraining-order.html
-
-**Man Is Sentenced in Explosion of Hyperbaric Chamber That Killed a 5-Year-Old**\
-`The former safety manager of a Michigan alternative health care center will spend at least 19 months in jail in connection with the January 2025 death.`\
-https://www.nytimes.com/2026/09/03/us/hyperbaric-chamber-child-death-michigan-sentencing.html
 

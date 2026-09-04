@@ -1,3 +1,7 @@
+**Argentina Is Ramping Up Its Claim to the Falklands. Here’s What to Know.**\
+`President Javier Milei has dialed up Argentina’s claim over the British territory, while President Trump has raised questions about longstanding U.S. neutrality on the dispute.`\
+https://www.nytimes.com/article/falkland-islands-trump-uk-argentina-malvinas.html
+
 **Judge Ends Federal Oversight of Teamsters**\
 `The union and federal prosecutors agreed that organized crime groups had been rooted out of union operations, the judge wrote.`\
 https://www.nytimes.com/2026/09/03/us/politics/judge-ends-federal-oversight-of-teamsters.html
