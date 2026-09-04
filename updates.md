@@ -1,3 +1,11 @@
+**The Local: Follow the Ice**\
+`Plus, we talk to the man in the rotating refrigerator.`\
+https://www.nytimes.com/2026/09/04/us/the-local-follow-the-ice.html
+
+**Broken Egg Salad**\
+`This dish has all the elements of a classic egg salad — eggs, mayonnaise and mustard — with one radical change: The cooked eggs are simply torn into deliciously irregular chunks of whites and yolks in a more laid-back approach.`\
+https://www.nytimes.com/video/dining/100000011125926/broken-egg-salad.html
+
 **‘Wrongheaded and Perilous’: 3 Writers on the Big Meta Ruling**\
 `Unpacking the Meta ruling — how big is it, really?`\
 https://www.nytimes.com/2026/09/04/opinion/a-win-for-meta-a-debate-on-the-big-social-media-ruling.html
