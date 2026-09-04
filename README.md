@@ -1,4 +1,8 @@
-**In Complex Cases, Consensus Can Be Hard to Reach**\
+**Judge Declares a Mistrial in Lindsay Clancy’s Murder Case**\
+`Also, regulators scrutinize steering-wheel-free cars. Here’s the latest at the end of Friday.`\
+https://www.nytimes.com/2026/09/04/briefing/mistrial-lindsay-clancy-jobs-report.html
+
+**In Complex Cases Like Lindsay Clancy’s, a Unanimous Verdict Can Be Hard to Reach**\
 `Hung juries are not common, but the murder trial of Lindsay Clancy was emotionally wrenching and uniquely complicated.`\
 https://www.nytimes.com/2026/09/04/us/lindsay-clancy-trial-unanimous-verdicts.html
 
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/09/04/us/politics/pentagon-nih-biodefense-agreement
 **Hideki Shirakawa, Who Helped Turn a Lab Error Into a Nobel, Dies at 90**\
 `The Japanese chemist played a key role in the discovery of electricity-conducting plastics, largely by accident.`\
 https://www.nytimes.com/2026/09/04/science/hideki-shirakawa-dead.html
-
-**A Hotel Had the Perfect Chairs. How Do I Get Them at Home?**\
-`The story behind a pair of seats at New York’s Fifth Avenue Hotel.`\
-https://www.nytimes.com/2026/09/04/t-magazine/fifth-avenue-hotel-martin-brudnizki-slipper-chairs.html
 
 **U.S. Hiring Jumps, an Encouraging Sign for the Economy**\
 `Employers added 162,000 jobs in August, and the unemployment rate held steady at 4.1 percent. But wage growth is not keeping up with rising inflation.`\

@@ -1,3 +1,15 @@
+**In Complex Cases, Consensus Can Be Hard to Reach**\
+`Hung juries are not common, but the murder trial of Lindsay Clancy was emotionally wrenching and uniquely complicated.`\
+https://www.nytimes.com/2026/09/04/us/lindsay-clancy-trial-unanimous-verdicts.html
+
+**What Happens to Lindsay Clancy Now?**\
+`Ellen Barry joins Natalie Kitroeff on “The Call” to share what’s next in the Lindsay Clancy case after the judge declared a mistrial.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011134873/what-happens-to-lindsay-clancy-now.html
+
+**Mount Sinai Agrees to Pay a Fine Over Adolescent Gender-Transition Care**\
+`The Manhattan hospital became the latest in the United States to strike a deal with the Trump administration to stop providing the treatment.`\
+https://www.nytimes.com/2026/09/04/nyregion/adolescent-trans-care-mount-sinai-trump.html
+
 **Hope Fading for Survivors 9 Days After Devastating Flood in Nepal**\
 `Manjita Payari’s uncle and cousin were in Timure when the village near the Nepal-China border was inundated with a wall of mud. After days of searching, many families like hers have begun performing symbolic cremations for lost family members.`\
 https://www.nytimes.com/video/world/asia/100000011131744/nepal-flood-rescue-missing-people.html
@@ -181,18 +193,6 @@ https://www.nytimes.com/2026/09/04/science/hideki-shirakawa-dead.html
 **A Hotel Had the Perfect Chairs. How Do I Get Them at Home?**\
 `The story behind a pair of seats at New York’s Fifth Avenue Hotel.`\
 https://www.nytimes.com/2026/09/04/t-magazine/fifth-avenue-hotel-martin-brudnizki-slipper-chairs.html
-
-**Trump Threatens to Halt Some Trade Unless the Fed Cuts Rates**\
-`The president said he could halt trade between the United States and countries with which it has a trade deficit if the central bank doesn’t do his bidding.`\
-https://www.nytimes.com/2026/09/04/business/economy/trump-trade-threats-fed-rate-cuts.html
-
-**Argentina’s President Escalates Falklands Dispute With Britain**\
-`President Javier Milei of Argentina has elevated tensions with Britain over an offshore oil project near the Falkland Islands, a British territory that his country claims as Argentine. President Trump recently raised questions about U.S. neutrality on the dispute.`\
-https://www.nytimes.com/video/world/americas/100000011133003/argentina-falklands-trump-uk.html
-
-**Trump Plans to Use Qatari Jet for Another Overseas Flight Despite Security Concerns**\
-`The president intends to travel to Ireland on the plane, the first time he will have used it overseas since questions were raised about its defensive capabilities.`\
-https://www.nytimes.com/2026/09/04/us/politics/trump-qatar-jet-flight-ireland.html
 
 **U.S. Hiring Jumps, an Encouraging Sign for the Economy**\
 `Employers added 162,000 jobs in August, and the unemployment rate held steady at 4.1 percent. But wage growth is not keeping up with rising inflation.`\

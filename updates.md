@@ -1,3 +1,15 @@
+**In Complex Cases, Consensus Can Be Hard to Reach**\
+`Hung juries are not common, but the murder trial of Lindsay Clancy was emotionally wrenching and uniquely complicated.`\
+https://www.nytimes.com/2026/09/04/us/lindsay-clancy-trial-unanimous-verdicts.html
+
+**What Happens to Lindsay Clancy Now?**\
+`Ellen Barry joins Natalie Kitroeff on “The Call” to share what’s next in the Lindsay Clancy case after the judge declared a mistrial.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011134873/what-happens-to-lindsay-clancy-now.html
+
+**Mount Sinai Agrees to Pay a Fine Over Adolescent Gender-Transition Care**\
+`The Manhattan hospital became the latest in the United States to strike a deal with the Trump administration to stop providing the treatment.`\
+https://www.nytimes.com/2026/09/04/nyregion/adolescent-trans-care-mount-sinai-trump.html
+
 **Hope Fading for Survivors 9 Days After Devastating Flood in Nepal**\
 `Manjita Payari’s uncle and cousin were in Timure when the village near the Nepal-China border was inundated with a wall of mud. After days of searching, many families like hers have begun performing symbolic cremations for lost family members.`\
 https://www.nytimes.com/video/world/asia/100000011131744/nepal-flood-rescue-missing-people.html
