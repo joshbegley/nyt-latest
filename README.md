@@ -1,3 +1,11 @@
+**How Gloria Steinem Changed Our Lives**\
+`Readers mourn the loss of the feminist icon.`\
+https://www.nytimes.com/2026/09/04/opinion/letters/gloria-steinem.html
+
+**Read the Instructions on Reasonable Doubt as Delivered to Jurors in the Lindsay Clancy Trial**\
+`Instructions on the concept of reasonable doubt, authored by the Massachusetts Supreme Judicial Court in 2015.`\
+https://www.nytimes.com/interactive/2026/09/04/us/reasonable-doubt-definition-lindsay-clancy-trial.html
+
 **Noruega incauta un barco ruso en el Ártico y pone a prueba a Moscú**\
 `Facultada por una orden judicial internacional, Noruega capturó la embarcación como parte de un esfuerzo global para incautar activos rusos. Rusia lo llamó “piratería”.`\
 https://www.nytimes.com/es/2026/09/04/espanol/mundo/barco-rusia-noruega.html
@@ -182,17 +190,9 @@ https://www.nytimes.com/2026/09/04/world/asia/malaysia-philippines-haze-indonesi
 `Toxic haze from Indonesia’s wildfires is spreading across Southeast Asia, with air pollution reaching unhealthy levels.`\
 https://www.nytimes.com/video/world/asia/100000011132815/indonesia-wildfire-haze-smoke-southeast-asia.html
 
-**The Intertwined Legacies of Gloria Steinem and Dolly Parton**\
-`Our writer discusses why, to her, the two icons are inescapably connected.`\
-https://www.nytimes.com/2026/09/04/podcasts/the-daily/gloria-steinem-dolly-parton-legacies.html
-
-**A Surge of Russian Sabotage Attacks in Europe, and Musk’s Political War Chest**\
-`Plus, your Friday news quiz.`\
-https://www.nytimes.com/2026/09/04/podcasts/the-headlines/russia-sabotage-attacks-elon-musk.html
-
-**NYT Connections Answers for September 5, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, Sept. 5, 2026.`\
-https://www.nytimes.com/2026/09/04/crosswords/connections-companion-1182.html
+**Live Updates: U.S. Hiring Jumps, an Encouraging Sign for the Economy**\
+`Employers added 162,000 jobs in August, and the unemployment rate held steady at 4.1 percent. But wage growth is not keeping up with rising inflation.`\
+https://www.nytimes.com/live/2026/09/04/business/jobs-report-economy
 
 **2 Trapped Workers Are Rescued After 9 Days in Nepal Tunnel**\
 `“Everybody’s sense of hope was waning,” said one survivor’s relative. Rescuers were searching for dozens of others inside the tunnel at a hydropower project damaged by last week’s deadly floods.`\
