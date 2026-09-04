@@ -1,3 +1,7 @@
+**Tesla’s Cybercab Is Being Investigated by Federal Regulators**\
+`The National Highway Traffic Safety Administration said it would examine whether the company’s new self-driving taxi, which has no steering wheel, meets federal auto regulations.`\
+https://www.nytimes.com/2026/09/04/business/tesla-cybercab-nhtsa-investigation.html
+
 **Lindsay Clancy Trial Live Updates: Holdout Juror Draws Scrutiny as Deadlock Drags On**\
 `The judge in the high-profile murder case is considering a note from the foreperson regarding the juror, who appears to be the lone obstacle to a unanimous verdict.`\
 https://www.nytimes.com/live/2026/09/04/us/lindsay-clancy-trial-deadlock
