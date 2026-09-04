@@ -2,7 +2,7 @@
 `One of two workers rescued from a hydroelectric plant said he had recited prayers over and over while trapped deep underground. “How many days has it been?” he asked.`\
 https://www.nytimes.com/2026/09/04/world/asia/nepal-flood-tunnel-rescue.html
 
-**Kennedy Hires Army Doctor Who Opposed Covid Shots to Investigate if They Killed 2,500 Troops**\
+**RFK Jr. Hires Army Doctor Who Opposed Covid Shots to Investigate if They Killed 2,500 Troops**\
 `In a legal deposition, the doctor, Theresa Long, compared immunizing service members against Covid to Nazi doctors experimenting on concentration camp prisoners.`\
 https://www.nytimes.com/2026/09/04/us/politics/military-covid-vaccine-deaths.html
 
@@ -22,7 +22,7 @@ https://www.nytimes.com/2026/09/04/us/clancy-prosecutor-timothy-cruz.html
 `Ms. Clancy still faces murder charges for killing her three children. She is likely to remain in a hospital, and prosecutors may decide to retry her.`\
 https://www.nytimes.com/2026/09/04/us/lindsay-clancy-murder-hung-jury-what-next.html
 
-**The Lindsay Clancy Jury Had an Impossible Task**\
+**What Lindsay Clancy’s Trial Tells Us About Ourselves**\
 `Postpartum psychosis is misunderstood and a poor fit for the justice system.`\
 https://www.nytimes.com/2026/09/04/opinion/lindsay-clancy-trial.html
 
