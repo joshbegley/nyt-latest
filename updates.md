@@ -1,3 +1,15 @@
+**An Attempt at Donating a Kidney Led Her to a Diagnosis**\
+`The woman’s strange symptoms limited her for years, until she underwent testing to be a living donor.`\
+https://www.nytimes.com/2026/09/04/well/systemic-mastocytosis-mast-cells-alaphylaxis.html
+
+**The Pros and Cons of Paying Off Your Mortgage Early**\
+`Homeowners who make extra payments can save thousands of dollars in interest. But, financial experts say, paying down other debt, with higher interest rates, may be a better option.`\
+https://www.nytimes.com/2026/09/04/your-money/paying-off-mortgage-early-pros-cons.html
+
+**Lindsay Clancy Trial Live Updates: Judge Declines to Remove Holdout Juror**\
+`Lawyers argued over how the court should respond to a note from the foreperson regarding the juror, who appears to be the lone obstacle to an acquittal on first-degree murder charges.`\
+https://www.nytimes.com/live/2026/09/04/us/lindsay-clancy-trial-deadlock
+
 **Tesla’s Cybercab Is Being Investigated by Federal Regulators**\
 `The National Highway Traffic Safety Administration said it would examine whether the company’s new self-driving taxi, which has no steering wheel, meets federal auto regulations.`\
 https://www.nytimes.com/2026/09/04/business/tesla-cybercab-nhtsa-investigation.html
