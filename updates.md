@@ -1,3 +1,11 @@
+**Former Labor Secretary Stoked Dysfunction and Toxicity, Department Report Finds**\
+`Lori Chavez-DeRemer spent Labor Department funds on personal travel and tolerated harassment in the agency, its inspector general found.`\
+https://www.nytimes.com/2026/09/03/business/economy/labor-secretary-chavez-deremer-report.html
+
+**Israel Says It Cleared Tunnels to Strategic Hezbollah Fortress in Lebanon**\
+`The operation, which began in June and is ongoing, came as fighting between the U.S. and Iran flared anew.`\
+https://www.nytimes.com/2026/09/03/world/middleeast/israeli-hezbollah-lebanon.html
+
 **Pablo Torre on the Largest Punishment in N.B.A. History**\
 `Pablo Torre’s groundbreaking investigation into the Clippers revealed that the owner Steve Ballmer funneled millions of dollars in secret to player Kawhi Leonard to avoid league salary cap rules. Now the Clippers are facing the largest punishment in N.B.A. history. Torre joins Natalie Kitroeff on “The Call” to unpack what happens next.`\
 https://www.nytimes.com/video/sports/basketball/100000011132330/pablo-torre-on-the-largest-punishment-in-nba-history.html
