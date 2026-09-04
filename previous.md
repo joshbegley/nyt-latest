@@ -1,3 +1,11 @@
+**9 Days After Flood, Two Men Are Pulled Alive From Mud-Filled Tunnels in Nepal**\
+`One of two workers rescued from a hydroelectric plant said he had recited prayers over and over while trapped deep underground. “How many days has it been?” he asked.`\
+https://www.nytimes.com/2026/09/04/world/asia/nepal-flood-tunnel-rescue.html
+
+**Kennedy Hires Army Doctor Who Opposed Covid Shots to Investigate if They Killed 2,500 Troops**\
+`In a legal deposition, the doctor, Theresa Long, compared immunizing service members against Covid to Nazi doctors experimenting on concentration camp prisoners.`\
+https://www.nytimes.com/2026/09/04/us/politics/military-covid-vaccine-deaths.html
+
 **Quiet on the Court! As U.S. Open Grows, the Crowd Gets Rowdier.**\
 `Are social media influencers ruining the Open? Or are they just the latest evolution of New York’s famously boisterous tennis tournament?`\
 https://www.nytimes.com/2026/09/04/nyregion/us-open-social-media-influencers.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/09/04/world/europe/russia-drone-attack-kyiv-securit
 **Photo of Road Runner Snagged by Coyote Shows That Cartoons Were a Lie**\
 `Here’s some bad news: Sometimes the coyote does win.`\
 https://www.nytimes.com/2026/09/04/us/road-runner-coyote-photograph.html
-
-**Argentina intensifica su reclamo sobre las Malvinas. Esto es lo que debes saber**\
-`El presidente Javier Milei ha intensificado el reclamo de Argentina sobre el territorio británico, mientras que el presidente Donald Trump ha planteado dudas sobre la prolongada neutralidad de EE. UU. en la disputa.`\
-https://www.nytimes.com/es/2026/09/04/espanol/america-latina/argentina-malvinas-milei-trump.html
-
-**U.A.E. Pardons Egyptian Dissident Sentenced to 10 Years in Prison**\
-`Abdulrahman al-Qaradawi was extradited from Lebanon to the Emirates, a close U.S. ally, after criticizing its government, in a case that alarmed human rights experts.`\
-https://www.nytimes.com/2026/09/04/world/middleeast/lebanon-uae-pardon-egypt-dissident.html
 
 **U.S. Hiring Jumps, an Encouraging Sign for the Economy**\
 `Employers added 162,000 jobs in August, and the unemployment rate held steady at 4.1 percent. But wage growth is not keeping up with rising inflation.`\

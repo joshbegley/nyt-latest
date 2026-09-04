@@ -1,3 +1,11 @@
+**9 Days After Flood, Two Men Are Pulled Alive From Mud-Filled Tunnels in Nepal**\
+`One of two workers rescued from a hydroelectric plant said he had recited prayers over and over while trapped deep underground. “How many days has it been?” he asked.`\
+https://www.nytimes.com/2026/09/04/world/asia/nepal-flood-tunnel-rescue.html
+
+**Kennedy Hires Army Doctor Who Opposed Covid Shots to Investigate if They Killed 2,500 Troops**\
+`In a legal deposition, the doctor, Theresa Long, compared immunizing service members against Covid to Nazi doctors experimenting on concentration camp prisoners.`\
+https://www.nytimes.com/2026/09/04/us/politics/military-covid-vaccine-deaths.html
+
 **Trump administration Moves to Drop Protections for More Wetlands**\
 `The proposed rule could strip federal protections from most U.S. wetlands, many of which help feed drinking water systems.`\
 https://www.nytimes.com/2026/09/04/climate/epa-wetlands-water-protections.html
