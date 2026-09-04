@@ -1,4 +1,4 @@
-**Lindsay Clancy Murder Trial: Read Kevin Reddington’s Request for an Emergency Stay**\
+**Lindsay Clancy Murder Trial: Read Kevin Reddington’s Emergency Petition**\
 `The judge in the Lindsay Clancy murder case said that he will declare a mistrial, but gave the defense an hour to request a stay of his planned decision from a higher court.`\
 https://www.nytimes.com/interactive/2026/09/04/us/lindsay-clancy-emergency-stay-petition.html
 
@@ -190,7 +190,7 @@ https://www.nytimes.com/2026/09/04/business/tesla-cybercab-nhtsa-investigation.h
 `Homeowners who make extra payments can save thousands of dollars in interest. But, financial experts say, paying down other debt, with higher interest rates, may be a better option.`\
 https://www.nytimes.com/2026/09/04/your-money/paying-off-mortgage-early-pros-cons.html
 
-**Live Updates: U.S. Hiring Jumps, an Encouraging Sign for the Economy**\
+**U.S. Hiring Jumps, an Encouraging Sign for the Economy**\
 `Employers added 162,000 jobs in August, and the unemployment rate held steady at 4.1 percent. But wage growth is not keeping up with rising inflation.`\
 https://www.nytimes.com/live/2026/09/04/business/jobs-report-economy
 
