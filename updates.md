@@ -1,3 +1,7 @@
+**Lindsay Clancy Trial Live Updates: Holdout Juror Draws Scrutiny as Deadlock Drags On**\
+`A defense lawyer said the judge in the high-profile murder case would hold an inquiry regarding the juror, who appears to be the lone obstacle to a unanimous verdict.`\
+https://www.nytimes.com/live/2026/09/04/us/lindsay-clancy-trial-deadlock
+
 **‘The Headlines’ News Quiz: Sept. 4, 2026**\
 `Following the news? Will Jarvis has some questions for you.`\
 https://www.nytimes.com/2026/09/04/podcasts/the-headlines/the-headlines-news-quiz-sept-4-2026.html

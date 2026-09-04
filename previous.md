@@ -1,3 +1,7 @@
+**Lindsay Clancy Trial Live Updates: Holdout Juror Draws Scrutiny as Deadlock Drags On**\
+`A defense lawyer said the judge in the high-profile murder case would hold an inquiry regarding the juror, who appears to be the lone obstacle to a unanimous verdict.`\
+https://www.nytimes.com/live/2026/09/04/us/lindsay-clancy-trial-deadlock
+
 **‘The Headlines’ News Quiz: Sept. 4, 2026**\
 `Following the news? Will Jarvis has some questions for you.`\
 https://www.nytimes.com/2026/09/04/podcasts/the-headlines/the-headlines-news-quiz-sept-4-2026.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/09/04/well/brca-gene-test-breast-cancer.html
 **Germany’s Far Right, Edging Close to Power, Remains Close to Extremists**\
 `The Alternative for Germany party has tried to soften its hard-line image but is still privately working with extremists. It could win a state election on Sunday.`\
 https://www.nytimes.com/2026/09/04/world/europe/germany-afd-extremists.html
-
-**No Dogs Were Hurt in the Real Love Story Behind ‘Colin From Accounts’**\
-`Patrick Brammall and Harriet Dyer met in a cafe, not a vet clinic. But the line between their lives and their characters’ is “pretty porous.”`\
-https://www.nytimes.com/2026/09/04/arts/television/colin-from-accounts-patrick-brammall-harriet-dyer.html
 
