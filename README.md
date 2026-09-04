@@ -1,3 +1,11 @@
+**Why Lindsay Clancy’s Case Ended in a Mistrial**\
+`Ellen Barry joins Natalie Kitroeff on “The Call” from the scene of the Lindsay Clancy case, where the judge just declared a mistrial after a hung jury failed to reach a consensus.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011134579/why-lindsay-clancys-case-ended-in-a-mistrial.html
+
+**Where Will Lindsay Clancy Go Now?**\
+`At first she will return to the hospital, where she will continue to be treated for mental illness. She may be confined much longer.`\
+https://www.nytimes.com/2026/09/04/us/lindsay-clancy-treatment-mental-illness.html
+
 **Judge Orders Trump Officials to Divulge Names of Those Who Set Up $1.8 Billion Fund**\
 `The plan to create a fund that could have funneled taxpayer money to the president’s allies drew repeated scrutiny, including a rare rebuke from Senate Republicans.`\
 https://www.nytimes.com/2026/09/04/us/politics/trump-administration-fund-compensation-jan-6.html
@@ -14,7 +22,7 @@ https://www.nytimes.com/2026/09/04/us/politics/guantanamo-confession-torture-911
 `The video shows fictitious scenes of Mayor Zohran Mamdani on the phone, celebrating with Ayatollah Mojtaba Khamenei and others, at the prospect of Mr. Netanyahu losing re-election.`\
 https://www.nytimes.com/2026/09/04/world/middleeast/netanyahu-ai-video-mamdani.html
 
-**Former Staff Members Threaten to Expose Fetterman’s Internal Messages**\
+**Former John Fetterman Aides Threaten to Expose Senator’s Internal Messages**\
 `The former aides started a social media account they said would publicize Senator John Fetterman’s communications, following a report detailing the Democrat’s disdain for doing his job.`\
 https://www.nytimes.com/2026/09/04/us/politics/john-fetterman-former-staff.html
 
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/09/04/us/politics/iran-war-intelligence-reports.htm
 **The U.S. Wants the Oil From These 17 Venezuelan Fields**\
 `A private oil company has struck a deal with the Trump administration to develop 17 areas in Venezuela, an effort that experts say will take years and billions of dollars.`\
 https://www.nytimes.com/2026/09/04/business/energy-environment/venezuela-oil-fields-betancourt-trump.html
-
-**How Gloria Steinem and Ms. Magazine Transformed the Publishing Industry**\
-`The feminist icon insisted that women were not a niche audience — and proved it in 1971 with the start of an influential publication owned and operated by them.`\
-https://www.nytimes.com/2026/09/04/business/media/gloria-steinem-ms-magazine.html
-
-**Today, In Short**\
-`Alix Earle. Pastries. And our new era.`\
-https://www.nytimes.com/2026/09/04/briefing/today-in-short.html
 
 **U.S. Hiring Jumps, an Encouraging Sign for the Economy**\
 `Employers added 162,000 jobs in August, and the unemployment rate held steady at 4.1 percent. But wage growth is not keeping up with rising inflation.`\
