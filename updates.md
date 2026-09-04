@@ -1,3 +1,7 @@
+**Lindsay Clancy Trial Live Updates: Holdout Juror Draws Scrutiny as Deadlock Drags On**\
+`The judge in the high-profile murder case is considering a note from the foreperson regarding the juror, who appears to be the lone obstacle to a unanimous verdict.`\
+https://www.nytimes.com/live/2026/09/04/us/lindsay-clancy-trial-deadlock
+
 **The Pros and Cons of Paying Off Your Mortgage Early**\
 `Homeowners who make extra payments can save thousands of dollars in interest. But, financial experts say, paying down other debt, with higher interest rates, may be a better option.`\
 https://www.nytimes.com/2026/09/04/your-money/the-pros-and-cons-of-paying-off-your-mortgage-early.html
