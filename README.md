@@ -1,3 +1,7 @@
+**Judge Once Again Blocks Mail-In Ballot Rules**\
+`The ruling arrived before the Supreme Court could decide whether to intervene but appeared certain to set off yet another round of appeals.`\
+https://www.nytimes.com/2026/09/04/us/politics/judge-blocks-trump-mail-ballots.html
+
 **Trump Says He Will Spend Some of His War Chest on Republicans**\
 `President Trump said he intends to hold some money back, even as Republican candidates ask for financial support.`\
 https://www.nytimes.com/2026/09/04/us/politics/trump-campaign-funds.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/interactive/2026/09/04/us/reasonable-doubt-definition-li
 **Noruega incauta un barco ruso en el Ártico y pone a prueba a Moscú**\
 `Facultada por una orden judicial internacional, Noruega capturó la embarcación como parte de un esfuerzo global para incautar activos rusos. Rusia lo llamó “piratería”.`\
 https://www.nytimes.com/es/2026/09/04/espanol/mundo/barco-rusia-noruega.html
-
-**In a Last-Ditch Effort, Clancy Lawyer Takes His Case to a Higher Court**\
-`In an attempt to fend off a mistrial, Lindsay Clancy’s lawyer convinced the trial judge to give him an hour to craft an appeal to a higher court.`\
-https://www.nytimes.com/2026/09/04/us/lindsay-clancy-mistrial-emergency-appeal.html
 
 **U.S. Hiring Jumps, an Encouraging Sign for the Economy**\
 `Employers added 162,000 jobs in August, and the unemployment rate held steady at 4.1 percent. But wage growth is not keeping up with rising inflation.`\

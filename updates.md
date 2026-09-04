@@ -1,3 +1,19 @@
+**Trump Says He Will Spend Some of His War Chest on Republicans**\
+`President Trump said he intends to hold some money back, even as Republican candidates ask for financial support.`\
+https://www.nytimes.com/2026/09/04/us/politics/trump-campaign-funds.html
+
+**The Tetris Company Denounces Trump White House Clone of Tetris**\
+`Responding to Build the Wall, an apparent copy of the retro video game, the Tetris Company said “we take copyright infringement very seriously.”`\
+https://www.nytimes.com/2026/09/04/us/politics/white-house-tetris-clone.html
+
+**Judge Declares a Mistrial in Lindsay Clancy’s Murder Case**\
+`Also, regulators scrutinize steering-wheel-free cars. Here’s the latest at the end of Friday.`\
+https://www.nytimes.com/2026/09/04/briefing/mistrial-lindsay-clancy-jobs-report.html
+
+**In Complex Cases Like Lindsay Clancy’s, a Unanimous Verdict Can Be Hard to Reach**\
+`Hung juries are not common, but the murder trial of Lindsay Clancy was emotionally wrenching and uniquely complicated.`\
+https://www.nytimes.com/2026/09/04/us/lindsay-clancy-trial-unanimous-verdicts.html
+
 **In Complex Cases, Consensus Can Be Hard to Reach**\
 `Hung juries are not common, but the murder trial of Lindsay Clancy was emotionally wrenching and uniquely complicated.`\
 https://www.nytimes.com/2026/09/04/us/lindsay-clancy-trial-unanimous-verdicts.html
