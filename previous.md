@@ -1,3 +1,31 @@
+**Pick Your Favorite Home Under $1.2 Million in Montenegro**\
+`A seaside villa, a penthouse with views of the Adriatic and a contemporary hillside house are this week’s options.`\
+https://www.nytimes.com/2026/09/04/realestate/homes-montenegro.html
+
+**Kushner and Witkoff to Go to Russia and Ukraine to Revive Peace Talks**\
+`Jared Kushner and Steve Witkoff’s trip to meet with the countries’ presidents comes at a precarious moment in the Ukraine conflict.`\
+https://www.nytimes.com/2026/09/04/us/politics/putin-zelensky-kushner-witkoff-talks.html
+
+**Corporate America Is Getting Hooked on Open-Source A.I.**\
+`Companies like AT&T are increasingly using cheap, freely available artificial intelligence models over expensive ones from Anthropic and OpenAI.`\
+https://www.nytimes.com/2026/09/04/technology/open-source-ai-anthropic-openai.html
+
+**‘A Win for Meta’: A Debate on the Big Social Media Ruling**\
+`Unpacking the Meta ruling — how big is it, really?`\
+https://www.nytimes.com/2026/09/04/opinion/a-win-for-meta-a-debate-on-the-big-social-media-ruling.html
+
+**Grand Theft Porter: Thieves Steal 800 Barrels of Guinness in Britain**\
+`The police said they were investigating the theft of about $155,000 worth of the famously creamy Irish stout from an industrial park in northwestern England.`\
+https://www.nytimes.com/2026/09/04/world/europe/guinness-theft-uk.html
+
+**Russian Drone Strikes Office of Ukraine’s Intelligence Chief**\
+`The attack came as the American envoys Steve Witkoff and Jared Kushner were said to be planning imminent visits to Kyiv and to Moscow.`\
+https://www.nytimes.com/2026/09/04/world/europe/russia-drone-attack-kyiv-security-service.html
+
+**Photo of Road Runner Snagged by Coyote Shows That Cartoons Were a Lie**\
+`Here’s some bad news: Sometimes the coyote does win.`\
+https://www.nytimes.com/2026/09/04/us/road-runner-coyote-photograph.html
+
 **Argentina intensifica su reclamo sobre las Malvinas. Esto es lo que debes saber**\
 `El presidente Javier Milei ha intensificado el reclamo de Argentina sobre el territorio británico, mientras que el presidente Donald Trump ha planteado dudas sobre la prolongada neutralidad de EE. UU. en la disputa.`\
 https://www.nytimes.com/es/2026/09/04/espanol/america-latina/argentina-malvinas-milei-trump.html
@@ -157,34 +185,6 @@ https://www.nytimes.com/2026/09/04/arts/gloria-steinem-ms-new-york-times-abe-ros
 **So, You Want to Start Composting**\
 `Our expert shares clever ways to make collecting kitchen scraps simple and odor-free.`\
 https://www.nytimes.com/2026/09/04/podcasts/so-you-want-to-start-composting.html
-
-**North Carolina Set to Mail The Fall’s First Ballots As Trump Tries to Restrict Them**\
-`A federal judge has temporarily blocked a Postal Service rule that could impede millions of mail voters. The Trump administration has asked the Supreme Court to weigh in.`\
-https://www.nytimes.com/2026/09/04/us/politics/north-carolina-mails-first-ballots-of-fall-as-trump-tries-to-restrict-them.html
-
-**Colombia’s De La Espriella Poses With Bodies in a Video Posted Online**\
-`In Colombia, as in the United States and El Salvador, leaders are increasingly using images of captured or killed enemies to project power.`\
-https://www.nytimes.com/2026/09/04/world/americas/colombia-de-la-espriella-bodies.html
-
-**Barbara Kingsolver Remembers Wendell Berry**\
-`Barbara Kingsolver remembers the man she counted among her most important literary mentors.`\
-https://www.nytimes.com/2026/09/04/books/review/wendell-berry-appreciation.html
-
-**Corrections: Sept. 4, 2026**\
-`Corrections that appeared in print on Friday, Sept. 4, 2026.`\
-https://www.nytimes.com/2026/09/04/pageoneplus/corrections-sept-4-2026.html
-
-**The Bond Markets Are Pushing Up Rates. Will Central Banks Follow?**\
-`Around the world, rising bond yields reflect shifting expectations on how fast policymakers will raise interest rates.`\
-https://www.nytimes.com/2026/09/04/business/bond-yields-rates-central-banks.html
-
-**Cassandra Wilson Led Jazz Into the Future With Warmth and Creative Conviction**\
-`With a self-possessed vision, the vocalist married her easy and intimate tone to jazz, blues and folk experiments, opening the door to a new postmodernism.`\
-https://www.nytimes.com/2026/09/04/arts/music/cassandra-wilson-vocal-style-jazz.html
-
-**Satellite Images Contradict Border Agency on Construction in Big Bend**\
-`Customs and Border Protection claimed that construction on a border security project in Big Bend National Park in Texas was limited to “survey and design” work. Visual Investigations’ satellite specialist Christoph Koettl tracked the activity and found evidence of patrol roads and vehicle barriers already being built.`\
-https://www.nytimes.com/video/us/100000011128810/big-bend-construction-border-wall.html
 
 **2 Trapped Workers Are Rescued After 9 Days in Nepal Tunnel**\
 `“Everybody’s sense of hope was waning,” said one survivor’s relative. Rescuers were searching for dozens of others inside the tunnel at a hydropower plant damaged by last week’s deadly floods.`\

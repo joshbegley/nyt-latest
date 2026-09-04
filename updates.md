@@ -1,3 +1,31 @@
+**Pick Your Favorite Home Under $1.2 Million in Montenegro**\
+`A seaside villa, a penthouse with views of the Adriatic and a contemporary hillside house are this week’s options.`\
+https://www.nytimes.com/2026/09/04/realestate/homes-montenegro.html
+
+**Kushner and Witkoff to Go to Russia and Ukraine to Revive Peace Talks**\
+`Jared Kushner and Steve Witkoff’s trip to meet with the countries’ presidents comes at a precarious moment in the Ukraine conflict.`\
+https://www.nytimes.com/2026/09/04/us/politics/putin-zelensky-kushner-witkoff-talks.html
+
+**Corporate America Is Getting Hooked on Open-Source A.I.**\
+`Companies like AT&T are increasingly using cheap, freely available artificial intelligence models over expensive ones from Anthropic and OpenAI.`\
+https://www.nytimes.com/2026/09/04/technology/open-source-ai-anthropic-openai.html
+
+**‘A Win for Meta’: A Debate on the Big Social Media Ruling**\
+`Unpacking the Meta ruling — how big is it, really?`\
+https://www.nytimes.com/2026/09/04/opinion/a-win-for-meta-a-debate-on-the-big-social-media-ruling.html
+
+**Grand Theft Porter: Thieves Steal 800 Barrels of Guinness in Britain**\
+`The police said they were investigating the theft of about $155,000 worth of the famously creamy Irish stout from an industrial park in northwestern England.`\
+https://www.nytimes.com/2026/09/04/world/europe/guinness-theft-uk.html
+
+**Russian Drone Strikes Office of Ukraine’s Intelligence Chief**\
+`The attack came as the American envoys Steve Witkoff and Jared Kushner were said to be planning imminent visits to Kyiv and to Moscow.`\
+https://www.nytimes.com/2026/09/04/world/europe/russia-drone-attack-kyiv-security-service.html
+
+**Photo of Road Runner Snagged by Coyote Shows That Cartoons Were a Lie**\
+`Here’s some bad news: Sometimes the coyote does win.`\
+https://www.nytimes.com/2026/09/04/us/road-runner-coyote-photograph.html
+
 **Gloria Steinem Found Community and Clout Over the Dinner Table**\
 `Neither a home cook nor an enthusiastic eater, she used the dinner table as a place to forge relationships and foster change.`\
 https://www.nytimes.com/2026/09/04/dining/gloria-steinem-dinners-food.html
