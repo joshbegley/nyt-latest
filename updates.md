@@ -1,3 +1,7 @@
+**Pablo Torre on the Largest Punishment in N.B.A. History**\
+`Pablo Torre’s groundbreaking investigation into the Clippers revealed that the owner Steve Ballmer funneled millions of dollars in secret to player Kawhi Leonard to avoid league salary cap rules. Now the Clippers are facing the largest punishment in N.B.A. history. Torre joins Natalie Kitroeff on “The Call” to unpack what happens next.`\
+https://www.nytimes.com/video/sports/basketball/100000011132330/pablo-torre-on-the-largest-punishment-in-nba-history.html
+
 **Pablo Torre: We’re in a ‘Dysmorphic’ Era in Sports**\
 `Pablo Torre joins Natalie Kitroeff on “The Call” to talk about how his bombshell investigation into the Clippers and Steve Ballmer has resulted in the largest punishment in N.B.A. history.`\
 https://www.nytimes.com/video/sports/basketball/100000011132515/pablo-torre-were-in-a-dysmorphic-era-in-sports.html
