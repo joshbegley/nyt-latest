@@ -1,3 +1,7 @@
+**In a Last-Ditch Effort, Clancy Lawyer Takes His Case to a Higher Court**\
+`In an attempt to fend off a mistrial, Lindsay Clancy’s lawyer convinced the trial judge to give him an hour to craft an appeal to a higher court.`\
+https://www.nytimes.com/2026/09/04/us/lindsay-clancy-mistrial-emergency-appeal.html
+
 **Pentagon Agreement With N.I.H. on Biodefense Draws Alarm From Democrats**\
 `Under a new partnership, the Defense Department would play a larger role in biodefense and pandemic preparedness. Democrats warned it could allow a Pentagon cash grab.`\
 https://www.nytimes.com/2026/09/04/us/politics/pentagon-nih-biodefense-agreement.html
