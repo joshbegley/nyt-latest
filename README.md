@@ -1,3 +1,11 @@
+**U.S. Diesel Prices Set New High**\
+`Because of the war in Iran, the cost has climbed past the record it reached in 2022 after Russia’s full-scale invasion of Ukraine.`\
+https://www.nytimes.com/2026/09/04/business/diesel-price-record-oil-iran.html
+
+**Survivors Pulled From Tunnel After Nepal’s Deadly Floods**\
+`At least two people were pulled out alive from inside a hydropower project nine days after Nepal’s deadly floods.`\
+https://www.nytimes.com/video/world/asia/100000011132878/survivors-pulled-from-tunnel-after-nepals-deadly-floods.html
+
 **¿Viajas el fin de semana del Día del Trabajo? Esto es lo que debes saber**\
 `La TSA espera revisar a 17 millones de pasajeros durante la semana festiva. Aquí tienes un vistazo a los precios de la gasolina, posibles contratiempos climáticos y cómo mantenerte seguro en la carretera.`\
 https://www.nytimes.com/es/2026/09/04/espanol/estados-unidos/viajes-dia-trabajo.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/opinion/100000011101922/the-joke-that-started-a-po
 **Mayor Magic**\
 `We look at how some mayors have managed to hold onto voter trust, and what national leaders could learn from their success.`\
 https://www.nytimes.com/2026/09/03/world/mayors-mamdani-burnham-gloria-steinem.html
-
-**42 Years Later, Jury Finds Texas Man Guilty in Killing of Teen Girl**\
-`Prosecutors said the man provided the drugs used to kill a teen in 1984. Her remains were found in an area that came to be known as the Texas Killing Fields.`\
-https://www.nytimes.com/2026/09/03/us/texas-killing-fields-cold-case-manslaughter.html
-
-**Trump Administration Asks Supreme Court to Allow Mail Voting Limits**\
-`The justices have been asked to weigh in again on the Trump administration’s efforts to restrict mail voting — this time on whether the plans violate the Constitution.`\
-https://www.nytimes.com/2026/09/03/us/politics/trump-supreme-court-mail-ballots.html
 
