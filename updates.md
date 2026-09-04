@@ -1,3 +1,15 @@
+**Trump Administration Issues Subpoenas For Voter Data in Nevada**\
+`The request comes as the government has escalated efforts to prove President Trump’s false claims of widespread voter fraud.`\
+https://www.nytimes.com/2026/09/04/us/politics/trump-nevada-voter-data-subpoena.html
+
+**Caso Lindsay Clancy: el juez declara juicio nulo**\
+`Tras semanas de audiencias, un juez declaró nulo el juicio. Es posible que haya otro juicio, un acuerdo de culpabilidad o un proceso de internamiento civil para Clancy.`\
+https://www.nytimes.com/es/2026/09/04/espanol/lindsay-clancy-juicio-que-paso.html
+
+**Homeland Security Dept. Asks for Inquiries Into Voting Machines**\
+`Critics of ballot-marking devices have claimed that hackers could manipulate digital codes on ballots. Election experts say the systems are safe to use.`\
+https://www.nytimes.com/2026/09/04/us/politics/mullin-homeland-security-ballot-devices.html
+
 **RFK Jr. Hires Army Doctor Who Opposed Covid Shots to Investigate if They Killed 2,500 Troops**\
 `In a legal deposition, the doctor, Theresa Long, compared immunizing service members against Covid to Nazi doctors experimenting on concentration camp prisoners.`\
 https://www.nytimes.com/2026/09/04/us/politics/military-covid-vaccine-deaths.html

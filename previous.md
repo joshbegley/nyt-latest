@@ -1,3 +1,15 @@
+**Trump Administration Issues Subpoenas For Voter Data in Nevada**\
+`The request comes as the government has escalated efforts to prove President Trump’s false claims of widespread voter fraud.`\
+https://www.nytimes.com/2026/09/04/us/politics/trump-nevada-voter-data-subpoena.html
+
+**Caso Lindsay Clancy: el juez declara juicio nulo**\
+`Tras semanas de audiencias, un juez declaró nulo el juicio. Es posible que haya otro juicio, un acuerdo de culpabilidad o un proceso de internamiento civil para Clancy.`\
+https://www.nytimes.com/es/2026/09/04/espanol/lindsay-clancy-juicio-que-paso.html
+
+**Homeland Security Dept. Asks for Inquiries Into Voting Machines**\
+`Critics of ballot-marking devices have claimed that hackers could manipulate digital codes on ballots. Election experts say the systems are safe to use.`\
+https://www.nytimes.com/2026/09/04/us/politics/mullin-homeland-security-ballot-devices.html
+
 **9 Days After Flood, Two Men Are Pulled Alive From Mud-Filled Tunnels in Nepal**\
 `One of two workers rescued from a hydroelectric plant said he had recited prayers over and over while trapped deep underground. “How many days has it been?” he asked.`\
 https://www.nytimes.com/2026/09/04/world/asia/nepal-flood-tunnel-rescue.html
@@ -181,18 +193,6 @@ https://www.nytimes.com/2026/09/04/technology/open-source-ai-anthropic-openai.ht
 **‘Wrongheaded and Perilous’: 3 Writers on the Big Meta Ruling**\
 `Unpacking the Meta ruling — how big is it, really?`\
 https://www.nytimes.com/2026/09/04/opinion/a-win-for-meta-a-debate-on-the-big-social-media-ruling.html
-
-**Grand Theft Porter: Thieves Steal 800 Barrels of Guinness in Britain**\
-`The police said they were investigating the theft of about $155,000 worth of the famously creamy Irish stout from an industrial park in northwestern England.`\
-https://www.nytimes.com/2026/09/04/world/europe/guinness-theft-uk.html
-
-**Russian Drone Strikes Office of Ukraine’s Intelligence Chief**\
-`The attack came as the American envoys Steve Witkoff and Jared Kushner were said to be planning imminent visits to Kyiv and to Moscow.`\
-https://www.nytimes.com/2026/09/04/world/europe/russia-drone-attack-kyiv-security-service.html
-
-**Photo of Road Runner Snagged by Coyote Shows That Cartoons Were a Lie**\
-`Here’s some bad news: Sometimes the coyote does win.`\
-https://www.nytimes.com/2026/09/04/us/road-runner-coyote-photograph.html
 
 **U.S. Hiring Jumps, an Encouraging Sign for the Economy**\
 `Employers added 162,000 jobs in August, and the unemployment rate held steady at 4.1 percent. But wage growth is not keeping up with rising inflation.`\
