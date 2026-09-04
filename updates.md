@@ -1,3 +1,7 @@
+**M.T.A. Worker Struck and Killed While Working on the Subway Tracks**\
+`The employee was a construction flagger who notified trains that other transit workers were on the tracks. She was hit near the 161st Street-Yankee Stadium station in the Bronx on Thursday night.`\
+https://www.nytimes.com/2026/09/04/nyregion/mta-worker-death.html
+
 **ICE Agent Charged With Six Counts of Lying About Minnesota Shooting**\
 `The federal indictment against Christian Castro marked a rare instance of the Trump administration seeking to hold an immigration agent accountable for actions taken while on duty.`\
 https://www.nytimes.com/2026/09/04/us/christian-castro-ice-agent-charges-minnesota-shooting.html
