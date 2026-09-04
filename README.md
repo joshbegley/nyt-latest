@@ -1,3 +1,31 @@
+**Quote of the Day: Thermometer Overrides Italians’ Defiance of A.C.**\
+`Quotation of the Day for Friday, September 4, 2026.`\
+https://www.nytimes.com/2026/09/04/pageoneplus/quote-of-the-day-thermometer-overrides-italians-defiance-of-ac.html
+
+**We Kept Looking for Reasons to Break Up**\
+`And then I laughed during “My Big Fat Greek Wedding,” and that became the reason.`\
+https://www.nytimes.com/2026/09/04/style/we-kept-looking-for-reasons-to-break-up.html
+
+**After a Frightening Shark Encounter, Their Feelings Became Clear**\
+`Kelleigh Whelan and Justin Holland bonded over technology and a shared love of adventure, building a life together in Miami and Tampa.`\
+https://www.nytimes.com/2026/09/04/style/kelleigh-whelan-justin-holland-wedding.html
+
+**Married by Their Dads**\
+`When Sam Gardenswartz and Josh Schwartz were fixed up, they discovered rabbinical connections, past and present.`\
+https://www.nytimes.com/2026/09/04/style/sam-gardenswartz-josh-schwartz-wedding.html
+
+**Third Time Was the Charm for a Founder of Meet Cutes NYC**\
+`Aaron Feinberg, who is popular on social media for documenting people’s love stories, can now put that advice into practice with Ali Parsons.`\
+https://www.nytimes.com/2026/09/04/style/aaron-feinberg-ali-parsons-wedding.html
+
+**Through Grief, Their Friendship Deepened Into Love**\
+`Julie Koontz and Ryan Seenanan formed an immediate friendship after meeting at work seven years ago. When her husband died, he helped her “through the darkest stretch of my life.”`\
+https://www.nytimes.com/2026/09/04/style/julie-koontz-ryan-seenanan-wedding.html
+
+**She Gets to Call Him ‘Husband’ Now**\
+`Chanel Pettaway and Ramahn Herbert had known each other professionally since 2010, but their relationship took a romantic turn with a kiss in his music studio.`\
+https://www.nytimes.com/2026/09/04/style/chanel-pettaway-ramahn-herbert-wedding.html
+
 **The Battle to be Australia’s Best Pie**\
 `A hot meat pie from any roadside bakery is a staple on a long Australian road trip, but what does it take to be crowned a winner?`\
 https://www.nytimes.com/2026/09/03/world/australia/australia-meat-pie-competition.html
@@ -169,32 +197,4 @@ https://www.nytimes.com/2026/09/03/nyregion/jewish-new-yorkers-israel-gaza.html
 **Psilocybin May Prevent Nerve Damage Caused by Chemotherapy, Study Finds**\
 `The preliminary research was conducted in mice, but scientists were optimistic the results would apply to humans. Clinical trials begin this month.`\
 https://www.nytimes.com/2026/09/03/health/psilocybin-cancer-nerve-damage.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/us/politics/100000011131828/03visualUploader-11308.html
-
-**Las sanciones de EE. UU. afectan a los iraníes que buscan estudiar en el extranjero**\
-`Las medidas más recientes han obligado a cancelar exámenes de dominio del inglés y de posgrado, aislando a muchos de los iraníes más deseosos de fomentar vínculos con el mundo.`\
-https://www.nytimes.com/es/2026/09/03/espanol/mundo/iran-estudios-extranjero-sanciones.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/us/politics/100000011131731/Vance-SOT-iran-war-before-midterms.html
-
-**How to Use The Learning Network**\
-`Since 1998, The Learning Network has been helping people teach and learn with The New York Times. Here’s how to use our features.`\
-https://www.nytimes.com/2026/09/03/learning/how-to-use-the-learning-network.html
-
-**Trump’s Foreign Wars Are Breaking His Anti-Immigrant Coalition**\
-`President Trump’s foreign adventurism will drive immigrants to the United States. And his anti-immigrant base knows it.`\
-https://www.nytimes.com/2026/09/03/opinion/politics/trump-immigration-iran.html
-
-**Read the Whistle-Blower’s Complaint Filed Amid ICE’s Hiring Surge**\
-`The New York Times obtained this whistle-blower complaint via a public records request to the Office of Inspector General in the Department of Homeland Security.`\
-https://www.nytimes.com/interactive/2026/09/03/us/ice-recruits-whistleblower-complaint.html
-
-**Pedro Sánchez cuestiona el control fronterizo de Marruecos ante la oleada de migrantes en Ceuta**\
-`El presidente del gobierno de España dijo que el papel de las autoridades marroquíes en momentos clave debía ser ‘aclarado’. Pero rechazó cualquier sugerencia de que hubieran planeado la crisis.`\
-https://www.nytimes.com/es/2026/09/03/espanol/mundo/espana-marruecos-ceuta-sanchez.html
 
