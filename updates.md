@@ -1,3 +1,7 @@
+**Workers Rescued From Tunnel in Nepal 9 Days After Flood**\
+`Rescuers pulled out two people as the search continued for hundreds missing after the flooding catastrophe last week.`\
+https://www.nytimes.com/2026/09/04/world/asia/nepal-floods-rescue-tunnel-worker.html
+
 **Quote of the Day: Thermometer Overrides Italians’ Defiance of A.C.**\
 `Quotation of the Day for Friday, September 4, 2026.`\
 https://www.nytimes.com/2026/09/04/pageoneplus/quote-of-the-day-thermometer-overrides-italians-defiance-of-ac.html

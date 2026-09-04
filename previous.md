@@ -1,3 +1,7 @@
+**Workers Rescued From Tunnel in Nepal 9 Days After Flood**\
+`Rescuers pulled out two people as the search continued for hundreds missing after the flooding catastrophe last week.`\
+https://www.nytimes.com/2026/09/04/world/asia/nepal-floods-rescue-tunnel-worker.html
+
 **Quote of the Day: Thermometer Overrides Italians’ Defiance of A.C.**\
 `Quotation of the Day for Friday, September 4, 2026.`\
 https://www.nytimes.com/2026/09/04/pageoneplus/quote-of-the-day-thermometer-overrides-italians-defiance-of-ac.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/03/dining/reader-questions.html
 **New Yorkers: Share Your Thoughts About Israel, Gaza and Jewish Identity**\
 `The New York Times is looking to talk to Jewish New Yorkers about whether their views on Israel and the Israeli-Palestinian conflict have changed.`\
 https://www.nytimes.com/2026/09/03/nyregion/jewish-new-yorkers-israel-gaza.html
-
-**Psilocybin May Prevent Nerve Damage Caused by Chemotherapy, Study Finds**\
-`The preliminary research was conducted in mice, but scientists were optimistic the results would apply to humans. Clinical trials begin this month.`\
-https://www.nytimes.com/2026/09/03/health/psilocybin-cancer-nerve-damage.html
 
