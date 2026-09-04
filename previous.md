@@ -1,3 +1,7 @@
+**Argentina intensifica su reclamo sobre las Malvinas. Esto es lo que debes saber**\
+`El presidente Javier Milei ha intensificado el reclamo de Argentina sobre el territorio británico, mientras que el presidente Donald Trump ha planteado dudas sobre la prolongada neutralidad de EE. UU. en la disputa.`\
+https://www.nytimes.com/es/2026/09/04/espanol/america-latina/argentina-malvinas-milei-trump.html
+
 **U.A.E. Pardons Egyptian Dissident Sentenced to 10 Years in Prison**\
 `Abdulrahman al-Qaradawi was extradited from Lebanon to the Emirates, a close U.S. ally, after criticizing its government, in a case that alarmed human rights experts.`\
 https://www.nytimes.com/2026/09/04/world/middleeast/lebanon-uae-pardon-egypt-dissident.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/09/04/arts/music/cassandra-wilson-vocal-style-jazz.
 **Satellite Images Contradict Border Agency on Construction in Big Bend**\
 `Customs and Border Protection claimed that construction on a border security project in Big Bend National Park in Texas was limited to “survey and design” work. Visual Investigations’ satellite specialist Christoph Koettl tracked the activity and found evidence of patrol roads and vehicle barriers already being built.`\
 https://www.nytimes.com/video/us/100000011128810/big-bend-construction-border-wall.html
-
-**The Risk of Russian Sabotage in Europe: A Fight That Spirals Out of Control**\
-`Europe’s options are limited in responding to an unnerving series of plots and provocations. But the odds of unpredictable consequences are rising.`\
-https://www.nytimes.com/2026/09/04/world/europe/russia-europe-nato-sabotage.html
 
 **Live Updates: 2 Trapped Workers Are Rescued After 9 Days in Nepal Tunnel**\
 `“Everybody’s sense of hope was waning,” said one survivor’s relative. Rescuers were searching for dozens of others inside the tunnel at a hydropower plant damaged by last week’s deadly floods.`\

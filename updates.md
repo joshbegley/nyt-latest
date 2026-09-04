@@ -1,3 +1,7 @@
+**Argentina intensifica su reclamo sobre las Malvinas. Esto es lo que debes saber**\
+`El presidente Javier Milei ha intensificado el reclamo de Argentina sobre el territorio británico, mientras que el presidente Donald Trump ha planteado dudas sobre la prolongada neutralidad de EE. UU. en la disputa.`\
+https://www.nytimes.com/es/2026/09/04/espanol/america-latina/argentina-malvinas-milei-trump.html
+
 **U.A.E. Pardons Egyptian Dissident Sentenced to 10 Years in Prison**\
 `Abdulrahman al-Qaradawi was extradited from Lebanon to the Emirates, a close U.S. ally, after criticizing its government, in a case that alarmed human rights experts.`\
 https://www.nytimes.com/2026/09/04/world/middleeast/lebanon-uae-pardon-egypt-dissident.html
