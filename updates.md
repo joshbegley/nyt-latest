@@ -1,3 +1,7 @@
+**Reseña de ‘Coyote vs. Acme’: los explosivos siguen fallando**\
+`La película rescata a la perfección el tono de los “Looney Tunes” para contar una nueva historia.`\
+https://www.nytimes.com/es/2026/09/04/espanol/cultura/coyote-vs-acme.html
+
 **Survivors Pulled From Tunnel After Nepal’s Deadly Floods**\
 `At least two people were pulled out alive from inside a hydropower project nine days after Nepal’s deadly floods, officials said.`\
 https://www.nytimes.com/video/world/asia/100000011132878/nepal-floods-rescue-tunnels.html
