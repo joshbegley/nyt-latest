@@ -1,3 +1,11 @@
+**Gloria Steinem Found Community and Clout Over the Dinner Table**\
+`Neither a home cook nor an enthusiastic eater, she used the dinner table as a place to forge relationships and foster change.`\
+https://www.nytimes.com/2026/09/04/dining/gloria-steinem-dinners-food.html
+
+**2 Trapped Workers Are Rescued After 9 Days in Nepal Tunnel**\
+`“Everybody’s sense of hope was waning,” said one survivor’s relative. Rescuers were searching for dozens of others inside the tunnel at a hydropower plant damaged by last week’s deadly floods.`\
+https://www.nytimes.com/live/2026/09/04/world/nepal-flash-floods-rescue-tunnels
+
 **Argentina intensifica su reclamo sobre las Malvinas. Esto es lo que debes saber**\
 `El presidente Javier Milei ha intensificado el reclamo de Argentina sobre el territorio británico, mientras que el presidente Donald Trump ha planteado dudas sobre la prolongada neutralidad de EE. UU. en la disputa.`\
 https://www.nytimes.com/es/2026/09/04/espanol/america-latina/argentina-malvinas-milei-trump.html
