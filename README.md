@@ -1,3 +1,7 @@
+**Lindsay Clancy’s Lawyer Wants a Juror Removed. The Bar Will Be High.**\
+`Judges approach complaints about jurors with caution, mindful that in the event of a conviction, a removal could be grounds for an appeal.`\
+https://www.nytimes.com/2026/09/04/us/lindsay-clancy-process-removing-juror.html
+
 **Israel Says It Is Cementing Its Foothold in Southern Lebanon**\
 `The recent capture of a strategic ridge has further entrenched the Israeli occupation of Lebanese territory, as efforts to broker lasting peace have floundered.`\
 https://www.nytimes.com/2026/09/04/world/middleeast/israel-captures-ridge-occupation-katz.html
