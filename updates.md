@@ -1,3 +1,7 @@
+**Judge Once Again Blocks Mail-In Ballot Rules**\
+`The ruling arrived before the Supreme Court could decide whether to intervene but appeared certain to set off yet another round of appeals.`\
+https://www.nytimes.com/2026/09/04/us/politics/judge-blocks-trump-mail-ballots.html
+
 **Trump Says He Will Spend Some of His War Chest on Republicans**\
 `President Trump said he intends to hold some money back, even as Republican candidates ask for financial support.`\
 https://www.nytimes.com/2026/09/04/us/politics/trump-campaign-funds.html
