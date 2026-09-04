@@ -1,3 +1,19 @@
+**Families Mourn Nepal Flood Victims**\
+`With thousands still missing in Nepal’s floods, some families have turned to symbolic cremations to honor their loved ones. Our South Asia bureau chief, Mujib Mashal, witnessed one of the ceremonies.`\
+https://www.nytimes.com/video/world/asia/100000011130555/families-mourn-nepal-flood-victims.html
+
+**Families Turn to Symbolic Cremation After Nepal Floods**\
+`Thousands are missing, and some families have lost hope of recovering their bodies. To carry out his sacred duty, a son lights the funeral pyre for a straw effigy of his father.`\
+https://www.nytimes.com/2026/09/04/world/asia/nepal-symbolic-cremation-floods.html
+
+**Haze From Indonesian Wildfires Blankets Parts of Malaysia, Philippines**\
+`A powerful El Niño is fanning what could be Indonesia’s worst fire season in years, one that is also raising fears of a regional health crisis.`\
+https://www.nytimes.com/2026/09/04/world/asia/malaysia-philippines-haze-indonesia-singapore-wildfires.html
+
+**Haze From Indonesia’s Wildfires Spreads Across Southeast Asia**\
+`Toxic haze from Indonesia’s wildfires is spreading across Southeast Asia, with air pollution reaching unhealthy levels.`\
+https://www.nytimes.com/video/world/asia/100000011132815/indonesia-wildfire-haze-smoke-southeast-asia.html
+
 **The Intertwined Legacies of Gloria Steinem and Dolly Parton**\
 `Our writer discusses why, to her, the two icons are inescapably connected.`\
 https://www.nytimes.com/2026/09/04/podcasts/the-daily/gloria-steinem-dolly-parton-legacies.html
@@ -169,20 +185,4 @@ https://www.nytimes.com/2026/09/04/us/politics/josh-turek-iowa-senate-race.html
 **It’s Time for a Big Ol’ Fall Book Preview**\
 `From horror to history to literary fiction, the Book Review editors discuss 31 titles that deserve a look.`\
 https://www.nytimes.com/2026/09/04/podcasts/fall-books.html
-
-**Book Review: ‘Body Language,’ by Meg Howrey**\
-`Meg Howrey’s novel “Body Language” doesn’t skimp on the kind of absurd humor that thrives in a crucible.`\
-https://www.nytimes.com/2026/09/04/books/review/body-language-meg-howrey.html
-
-**This $4.5 Million Berkshires Property Has a Condition: Farmers Only**\
-`Two farmers are ready to retire after 40 years of running Windy Hill, a local landmark in the Berkshires. But selling the property? It’s complicated.`\
-https://www.nytimes.com/2026/09/04/realestate/berkshires-massachusetts-farm-fire-sale.html
-
-**Why Rebuilding After Climate Disasters Is No Longer Enough**\
-`But every crisis is an opportunity.`\
-https://www.nytimes.com/2026/09/04/magazine/climate-change-disaster-rebuilding.html
-
-**Eoin Colfer’s Artemis Fowl Turns 25**\
-`Artemis Fowl, celebrating his 25th anniversary, is one for the ages.`\
-https://www.nytimes.com/2026/09/04/books/review/artemis-fowl-25th-anniversary-eoin-colfer.html
 

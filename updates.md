@@ -1,3 +1,19 @@
+**Families Mourn Nepal Flood Victims**\
+`With thousands still missing in Nepal’s floods, some families have turned to symbolic cremations to honor their loved ones. Our South Asia bureau chief, Mujib Mashal, witnessed one of the ceremonies.`\
+https://www.nytimes.com/video/world/asia/100000011130555/families-mourn-nepal-flood-victims.html
+
+**Families Turn to Symbolic Cremation After Nepal Floods**\
+`Thousands are missing, and some families have lost hope of recovering their bodies. To carry out his sacred duty, a son lights the funeral pyre for a straw effigy of his father.`\
+https://www.nytimes.com/2026/09/04/world/asia/nepal-symbolic-cremation-floods.html
+
+**Haze From Indonesian Wildfires Blankets Parts of Malaysia, Philippines**\
+`A powerful El Niño is fanning what could be Indonesia’s worst fire season in years, one that is also raising fears of a regional health crisis.`\
+https://www.nytimes.com/2026/09/04/world/asia/malaysia-philippines-haze-indonesia-singapore-wildfires.html
+
+**Haze From Indonesia’s Wildfires Spreads Across Southeast Asia**\
+`Toxic haze from Indonesia’s wildfires is spreading across Southeast Asia, with air pollution reaching unhealthy levels.`\
+https://www.nytimes.com/video/world/asia/100000011132815/indonesia-wildfire-haze-smoke-southeast-asia.html
+
 **The Intertwined Legacies of Gloria Steinem and Dolly Parton**\
 `Our writer discusses why, to her, the two icons are inescapably connected.`\
 https://www.nytimes.com/2026/09/04/podcasts/the-daily/gloria-steinem-dolly-parton-legacies.html
