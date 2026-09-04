@@ -1,3 +1,11 @@
+**Hope Fading for Survivors 9 Days After Devastating Flood in Nepal**\
+`Manjita Payari’s uncle and cousin were in Timure when the village near the Nepal-China border was inundated with a wall of mud. After days of searching, many families like hers have begun performing symbolic cremations for lost family members.`\
+https://www.nytimes.com/video/world/asia/100000011131744/nepal-flood-rescue-missing-people.html
+
+**Ambassador Who Removed Kehinde Wiley Work Described It as a Lesbian Picnic**\
+`Trump officials recently removed a painting from the U.S. Embassy in the Dominican Republic without explaining why. An interview by Ambassador Leah Campos shed some light.`\
+https://www.nytimes.com/2026/09/04/arts/design/trump-administration-kehinde-wiley-embassy-lesbian-picnic.html
+
 **What to Know About Trump’s Efforts to Block Mail-in Ballots**\
 `We sort through the proposed changes and court challenges, less than two months from Election Day.`\
 https://www.nytimes.com/2026/09/04/us/politics/trump-mail-in-ballots-voting-midterms-elections.html
@@ -131,7 +139,7 @@ https://www.nytimes.com/interactive/polls/florida-us-house-16-polls-2026.html
 https://www.nytimes.com/2026/09/04/world/canada/openai-lawsuits-tumbler-ridge-shooting.html
 
 **Six-Week-Old Infant Died From Measles, Lancaster Coroner Says**\
-`The baby had a rare genetic disorder that can make children more vulnerable to respiratory infections, the coroner said.`\
+`The ruling casts doubt on statements from the federal health secretary, Robert F. Kennedy Jr., who speculated that measles deaths reported by the state may have been “fabricated.”`\
 https://www.nytimes.com/2026/09/04/well/measles-infant-pennsylvania-death.html
 
 **Can a Fashion Designer be a Genius?**\
@@ -185,14 +193,6 @@ https://www.nytimes.com/video/world/americas/100000011133003/argentina-falklands
 **Trump Plans to Use Qatari Jet for Another Overseas Flight Despite Security Concerns**\
 `The president intends to travel to Ireland on the plane, the first time he will have used it overseas since questions were raised about its defensive capabilities.`\
 https://www.nytimes.com/2026/09/04/us/politics/trump-qatar-jet-flight-ireland.html
-
-**Gloria Steinem Stayed Positive, Even as the Manosphere Took Hold**\
-`The feminist icon thought many women would carry on her legacy. But at an unsteady time for feminism, how will the movement carry on?`\
-https://www.nytimes.com/2026/09/04/us/politics/gloria-steinem-feminism-manosphere.html
-
-**How to Define the ‘Reasonable’ in Reasonable Doubt**\
-`“Beyond a reasonable doubt” is the highest burden of proof within the American legal system. Still, there is some wiggle room.`\
-https://www.nytimes.com/2026/09/04/us/lindsay-clancy-trial-reasonable-doubt.html
 
 **U.S. Hiring Jumps, an Encouraging Sign for the Economy**\
 `Employers added 162,000 jobs in August, and the unemployment rate held steady at 4.1 percent. But wage growth is not keeping up with rising inflation.`\

@@ -1,3 +1,15 @@
+**Hope Fading for Survivors 9 Days After Devastating Flood in Nepal**\
+`Manjita Payari’s uncle and cousin were in Timure when the village near the Nepal-China border was inundated with a wall of mud. After days of searching, many families like hers have begun performing symbolic cremations for lost family members.`\
+https://www.nytimes.com/video/world/asia/100000011131744/nepal-flood-rescue-missing-people.html
+
+**Ambassador Who Removed Kehinde Wiley Work Described It as a Lesbian Picnic**\
+`Trump officials recently removed a painting from the U.S. Embassy in the Dominican Republic without explaining why. An interview by Ambassador Leah Campos shed some light.`\
+https://www.nytimes.com/2026/09/04/arts/design/trump-administration-kehinde-wiley-embassy-lesbian-picnic.html
+
+**Six-Week-Old Infant Died From Measles, Lancaster Coroner Says**\
+`The ruling casts doubt on statements from the federal health secretary, Robert F. Kennedy Jr., who speculated that measles deaths reported by the state may have been “fabricated.”`\
+https://www.nytimes.com/2026/09/04/well/measles-infant-pennsylvania-death.html
+
 **What to Know About Trump’s Efforts to Block Mail-in Ballots**\
 `We sort through the proposed changes and court challenges, less than two months from Election Day.`\
 https://www.nytimes.com/2026/09/04/us/politics/trump-mail-in-ballots-voting-midterms-elections.html
