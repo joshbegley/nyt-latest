@@ -74,7 +74,7 @@ https://www.nytimes.com/2026/09/03/nyregion/times-square-stabbing-pamela-cisnero
 `In the first White House press briefing since Karoline Leavitt left as press secretary, the vice president suggested that when the conflict would end was up to Tehran.`\
 https://www.nytimes.com/2026/09/03/us/politics/vance-iran-press-briefing.html
 
-**Steinem’s Home, Where Feminism Flourished, Will Remain a Gathering Place**\
+**Steinem’s N.Y.C. Brownstone Will Continue to Be a Sanctuary for Feminism**\
 `Following Ms. Steinem’s death on Wednesday, her foundation said her Upper East Side home would become a permanent space for organizing and activism.`\
 https://www.nytimes.com/2026/09/03/nyregion/gloria-steinem-home-new-york.html
 
