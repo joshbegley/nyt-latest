@@ -1,3 +1,11 @@
+**EE. UU. quiere el petróleo de estos 17 campos en Venezuela**\
+`Una empresa petrolera privada llegó a un acuerdo con el gobierno de Trump para desarrollar 17 áreas en Venezuela, un esfuerzo que los expertos dicen que tomará años y millardos de dólares.`\
+https://www.nytimes.com/es/2026/09/04/espanol/america-latina/venezuela-petroleo-mapas-trump.html
+
+**Fake Republican Midterm Convention Website Redirects Visitors to Epstein Files**\
+`A spoof of the G.O.P. convention site tricked people for weeks, before redirecting them to the Justice Department’s library of Epstein files.`\
+https://www.nytimes.com/2026/09/04/us/politics/republican-midterm-convention-epstein-files.html
+
 **Why Lindsay Clancy’s Case Ended in a Mistrial**\
 `Ellen Barry joins Natalie Kitroeff on “The Call” from the scene of the Lindsay Clancy case, where the judge just declared a mistrial after a hung jury failed to reach a consensus.`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011134579/why-lindsay-clancys-case-ended-in-a-mistrial.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/09/04/us/politics/gloria-steinem-clinton-sanders-20
 **Trump administration Moves to Drop Protections for More Wetlands**\
 `The proposed rule could strip federal protections from most U.S. wetlands, many of which help feed drinking water systems.`\
 https://www.nytimes.com/2026/09/04/climate/epa-wetlands-water-protections.html
-
-**A More Confident Iran Emerges After Six Months of War With the U.S.**\
-`New intelligence reports have assessed that Iran now has a far better understanding of its capabilities and the limits of U.S. power.`\
-https://www.nytimes.com/2026/09/04/us/politics/iran-war-intelligence-reports.html
-
-**The U.S. Wants the Oil From These 17 Venezuelan Fields**\
-`A private oil company has struck a deal with the Trump administration to develop 17 areas in Venezuela, an effort that experts say will take years and billions of dollars.`\
-https://www.nytimes.com/2026/09/04/business/energy-environment/venezuela-oil-fields-betancourt-trump.html
 
 **U.S. Hiring Jumps, an Encouraging Sign for the Economy**\
 `Employers added 162,000 jobs in August, and the unemployment rate held steady at 4.1 percent. But wage growth is not keeping up with rising inflation.`\
