@@ -1,3 +1,7 @@
+**Así son las escuelas secretas para niñas en el Afganistán de los talibanes**\
+`Con la ayuda de maestros y padres que resisten las rígidas leyes del grupo religioso, decenas de chicas aspiran a una vida mejor. Reporteros del Times nos comparten lo que vieron en las aulas.`\
+https://www.nytimes.com/es/2026/09/04/espanol/mundo/ninas-afganistan-escuelas-clandestinas-talibanes.html
+
 **Workers Rescued From Tunnel in Nepal 9 Days After Flood**\
 `Rescuers pulled out two survivors as the search continued for hundreds missing inside hydropower projects that were buried in the flooding catastrophe last week.`\
 https://www.nytimes.com/2026/09/04/world/asia/nepal-floods-rescue-tunnel-worker.html
