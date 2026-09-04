@@ -1,3 +1,7 @@
+**Philippines’ Vice President Faces Arrest Over Assassination Threats**\
+`A court issued a warrant for Sara Duterte, who is accused of having threatened President Ferdinand R. Marcos Jr. and two of his relatives.`\
+https://www.nytimes.com/2026/09/04/world/asia/sara-duterte-arrest-warrant-philippines.html
+
 **U.N. to Vote on African Proposal for a New World Map**\
 `The Equal Earth projection shows countries’ true size relative to one another, unlike the centuries-old Mercator map, which critics say makes Africa look smaller than it is.`\
 https://www.nytimes.com/2026/09/04/world/africa/world-map-projection-africa.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/09/04/arts/television/colin-from-accounts-patrick-b
 **A Pioneer of Lesbian Cinema Gets a Documentary Worthy of Her**\
 `“Barbara Forever” takes an unconventional approach to the life and work of the unconventional director Barbara Hammer.`\
 https://www.nytimes.com/2026/09/04/movies/barbara-forever-barbara-hammer-lesbian-cinema.html
-
-**Charles de Gaulle Is Conquering France’s Box Office**\
-`An epic historical film about Charles de Gaulle has become an unexpected hit, introducing him to a new generation.`\
-https://www.nytimes.com/2026/09/04/movies/charles-de-gaulle-biopic-film-france.html
 
