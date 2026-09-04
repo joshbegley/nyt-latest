@@ -1,3 +1,7 @@
+**A More Confident Iran Emerges After Six Months of War With the U.S.**\
+`New intelligence reports have assessed that Iran now has a far better understanding of its capabilities and the limits of U.S. power.`\
+https://www.nytimes.com/2026/09/04/us/politics/iran-war-intelligence-reports.html
+
 **The U.S. Wants the Oil From These 17 Venezuelan Fields**\
 `A private oil company has struck a deal with the Trump administration to develop 17 areas in Venezuela, an effort that experts say will take years and billions of dollars.`\
 https://www.nytimes.com/2026/09/04/business/energy-environment/venezuela-oil-fields-betancourt-trump.html
@@ -90,8 +94,8 @@ https://www.nytimes.com/2026/09/04/us/lindsay-clancy-process-removing-juror.html
 `The recent capture of a strategic ridge has further entrenched the Israeli occupation of Lebanese territory, as efforts to broker lasting peace have floundered.`\
 https://www.nytimes.com/2026/09/04/world/middleeast/israel-captures-ridge-occupation-katz.html
 
-**Lindsay Clancy Trial Live Updates: Judge Declines to Remove Holdout Juror**\
-`Lawyers argued over how the court should respond to a note from the foreperson regarding the juror, who the lead defense lawyer said is the lone obstacle to a “not guilty” verdict.`\
+**Lindsay Clancy Trial Live Updates: Court Assembles Again After Judge Declines to Remove Holdout**\
+`Lawyers argued early Friday over how the court should respond to a note from the foreperson regarding the juror, who the lead defense lawyer said was the lone obstacle to a “not guilty” verdict.`\
 https://www.nytimes.com/live/2026/09/04/us/lindsay-clancy-trial-deadlock
 
 **‘The Headlines’ News Quiz: Sept. 4, 2026**\
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/09/04/podcasts/mark-walter-the-dodgers-and-your-mon
 **Detrás de las investigaciones sobre el empresario petrolero venezolano asociado con Trump**\
 `Alejandro Betancourt ha sido objeto de múltiples investigaciones. Ahora es el socio sin igual del gobierno de Estados Unidos en el intento del presidente Trump de controlar los recursos petroleros venezolanos.`\
 https://www.nytimes.com/es/2026/09/04/espanol/america-latina/alejandro-betancourt-petroleo-venezuela-trump.html
-
-**De la Espriella posa con cadáveres en una demostración de fuerza en Colombia**\
-`En un video publicado en redes sociales, el presidente colombiano calificó a la operación como un “golpe letal”.`\
-https://www.nytimes.com/es/2026/09/04/espanol/america-latina/espriella-posa-cadaveres-colombia.html
 
 **2 Trapped Workers Are Rescued After 9 Days in Nepal Tunnel**\
 `“Everybody’s sense of hope was waning,” said one survivor’s relative. Rescuers were searching for dozens of others inside the tunnel at a hydropower project damaged by last week’s deadly floods.`\
