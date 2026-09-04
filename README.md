@@ -1,3 +1,7 @@
+**Tesla’s Cybercab Is Being Investigated by Federal Regulators**\
+`The National Highway Traffic Safety Administration said it would examine whether the company’s new self-driving taxi, which has no steering wheel, meets federal auto regulations.`\
+https://www.nytimes.com/2026/09/04/business/tesla-cybercab-nhtsa-investigation.html
+
 **The Pros and Cons of Paying Off Your Mortgage Early**\
 `Homeowners who make extra payments can save thousands of dollars in interest. But, financial experts say, paying down other debt, with higher interest rates, may be a better option.`\
 https://www.nytimes.com/2026/09/04/your-money/the-pros-and-cons-of-paying-off-your-mortgage-early.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/09/04/world/americas/venezuela-oil-trump-alejandro-
 **Bringing Explosive Life to ‘Coyote vs. Acme’**\
 `The director Dave Green narrates a scene from the film in which a perturbed Wile E. Coyote lawyers up.`\
 https://www.nytimes.com/2026/09/04/movies/coyote-vs-acme-scene.html
-
-**Medical Aid in Dying Comes to New York**\
-`A group run by doctors is helping terminally ill patients fulfill the legal requirements to die on their own terms.`\
-https://www.nytimes.com/2026/09/04/nyregion/medical-aid-in-dying-comes-to-new-york.html
 
 **Live Updates: 2 Trapped Workers Are Rescued After 9 Days in Nepal Tunnel**\
 `“Everybody’s sense of hope was waning,” said one survivor’s relative. Rescuers were searching for dozens of others inside the tunnel at a hydropower plant damaged by last week’s deadly floods.`\
