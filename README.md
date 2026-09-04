@@ -1,3 +1,7 @@
+**M.T.A. Worker Struck and Killed While Working on the Subway Tracks**\
+`The employee was a construction flagger who notified trains that other transit workers were on the tracks. She was hit near the 161st Street-Yankee Stadium station in the Bronx on Thursday night.`\
+https://www.nytimes.com/2026/09/04/nyregion/mta-worker-death.html
+
 **ICE Agent Charged With Six Counts of Lying About Minnesota Shooting**\
 `The federal indictment against Christian Castro marked a rare instance of the Trump administration seeking to hold an immigration agent accountable for actions taken while on duty.`\
 https://www.nytimes.com/2026/09/04/us/christian-castro-ice-agent-charges-minnesota-shooting.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/video/world/asia/100000011130555/families-mourn-nepal-fl
 **Families Turn to Symbolic Cremation After Nepal Floods**\
 `Thousands are missing, and some families have lost hope of recovering their bodies. To carry out his sacred duty, a son lights the funeral pyre for a straw effigy of his father.`\
 https://www.nytimes.com/2026/09/04/world/asia/nepal-symbolic-cremation-floods.html
-
-**Haze From Indonesian Wildfires Blankets Parts of Malaysia, Philippines**\
-`A powerful El Niño is fanning what could be Indonesia’s worst fire season in years, one that is also raising fears of a regional health crisis.`\
-https://www.nytimes.com/2026/09/04/world/asia/malaysia-philippines-haze-indonesia-singapore-wildfires.html
 
 **Live Updates: U.S. Hiring Jumps, an Encouraging Sign for the Economy**\
 `Employers added 162,000 jobs in August, and the unemployment rate held steady at 4.1 percent. But wage growth is not keeping up with rising inflation.`\
