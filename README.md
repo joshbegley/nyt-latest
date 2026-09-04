@@ -1,3 +1,11 @@
+**U.N. Endorses Map That Accurately Shows the Size of Africa**\
+`The U.N. General Assembly has endorsed the Equal Earth projection, a new map that more accurately depicts the size of Africa. Critics of the old map said that it made northern countries appear larger, reinforcing a colonial worldview.`\
+https://www.nytimes.com/video/world/africa/100000011134039/un-endorses-map-that-accurately-shows-the-size-of-africa.html
+
+**Supreme Court Sides With Republicans in TV Ad Fight**\
+`Republican groups had asked the court to clear the way for political parties to pay the same low-cost ad rates as candidates, a move that could undercut a Democratic advantage in the midterms.`\
+https://www.nytimes.com/2026/09/04/us/politics/supreme-court-republicans-ads.html
+
 **Trump Administration Issues Subpoenas For Voter Data in Nevada**\
 `The request comes as the government has escalated efforts to prove President Trump’s false claims of widespread voter fraud.`\
 https://www.nytimes.com/2026/09/04/us/politics/trump-nevada-voter-data-subpoena.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/09/04/realestate/homes-montenegro.html
 **Kushner and Witkoff to Go to Russia and Ukraine to Revive Peace Talks**\
 `Jared Kushner and Steve Witkoff’s trip to meet with the countries’ presidents comes at a precarious moment in the Ukraine conflict.`\
 https://www.nytimes.com/2026/09/04/us/politics/putin-zelensky-kushner-witkoff-talks.html
-
-**Corporate America Is Getting Hooked on Open-Source A.I.**\
-`Companies like AT&T are increasingly using cheap, freely available artificial intelligence models over expensive ones from Anthropic and OpenAI.`\
-https://www.nytimes.com/2026/09/04/technology/open-source-ai-anthropic-openai.html
-
-**‘Wrongheaded and Perilous’: 3 Writers on the Big Meta Ruling**\
-`Unpacking the Meta ruling — how big is it, really?`\
-https://www.nytimes.com/2026/09/04/opinion/a-win-for-meta-a-debate-on-the-big-social-media-ruling.html
 
 **U.S. Hiring Jumps, an Encouraging Sign for the Economy**\
 `Employers added 162,000 jobs in August, and the unemployment rate held steady at 4.1 percent. But wage growth is not keeping up with rising inflation.`\
