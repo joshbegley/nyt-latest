@@ -1,3 +1,11 @@
+**Netanyahu Posts A.I. Video Pairing Mamdani With Iranian Ruler**\
+`The video shows fictitious scenes of Mayor Zohran Mamdani on the phone, celebrating with Ayatollah Mojtaba Khamenei and others, at the prospect of Mr. Netanyahu losing re-election.`\
+https://www.nytimes.com/2026/09/04/world/middleeast/netanyahu-ai-video-mamdani.html
+
+**‘It Was Insulting’: When Steinem Said Young Women Backed Sanders to Chase Men**\
+`During the 2016 presidential campaign, Gloria Steinem was asked about the young women supporting Bernie Sanders over Hillary Clinton. Her answer created a brief hullabaloo.`\
+https://www.nytimes.com/2026/09/04/us/politics/gloria-steinem-clinton-sanders-2016.html
+
 **Former Staff Members Threaten to Expose Fetterman’s Internal Messages**\
 `The former aides started a social media account they said would publicize Senator John Fetterman’s communications, following a report detailing the Democrat’s disdain for doing his job.`\
 https://www.nytimes.com/2026/09/04/us/politics/john-fetterman-former-staff.html
