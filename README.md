@@ -1,3 +1,7 @@
+**The A.I. Mob That Attacked Hugging Face + METR’s Ajeya Cotra**\
+`This is probably the most important thing to have happened in A.I. this year.`\
+https://www.nytimes.com/2026/09/04/podcasts/hugging-face-hack-reports.html
+
 **Build First, Ask Later**\
 `We look at President Trump’s building spree in Washington.`\
 https://www.nytimes.com/2026/09/04/briefing/build-first-ask-later.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/09/04/movies/charles-de-gaulle-biopic-film-france.h
 **‘I Don’t Want to Die This Way’: Stranded for 15 Hours at Sea**\
 `Two longtime friends rented jet skis for an hourlong excursion. They ended up fighting for their lives.`\
 https://www.nytimes.com/2026/09/04/us/jetski-stranded-sea.html
-
-**A Paralympian Takes His Shot Despite Republicans’ Home Court Advantage**\
-`Josh Turek is trying to turn deep-red Iowa blue as he runs for the U.S. Senate.`\
-https://www.nytimes.com/2026/09/04/us/politics/josh-turek-iowa-senate-race.html
 
