@@ -1,3 +1,11 @@
+**Who Is Ahead in Florida's 16th Congressional District?**\
+`Track the latest polls in Florida's 16th Congressional District.`\
+https://www.nytimes.com/interactive/polls/florida-us-house-16-polls-2026.html
+
+**Tumbler Ridge Shooting Survivors File 30 Lawsuits Against OpenAI**\
+`The survivors contend that the company should have notified the police when it shut down the shooter’s disturbing ChatGPT account eight months before the February attack in British Columbia.`\
+https://www.nytimes.com/2026/09/04/world/canada/openai-lawsuits-tumbler-ridge-shooting.html
+
 **Six-Week-Old Infant Died From Measles, Lancaster Coroner Says**\
 `The baby had a rare genetic disorder that can make children more vulnerable to respiratory infections, the coroner said.`\
 https://www.nytimes.com/2026/09/04/well/measles-infant-pennsylvania-death.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/09/04/world/asia/sara-duterte-arrest-warrant-philip
 **U.N. to Vote on African Proposal for a New World Map**\
 `The Equal Earth projection shows countries’ true size relative to one another, unlike the centuries-old Mercator map, which critics say makes Africa look smaller than it is.`\
 https://www.nytimes.com/2026/09/04/world/africa/world-map-projection-africa.html
-
-**The A.I. Mob That Attacked Hugging Face + METR’s Ajeya Cotra**\
-`This is probably the most important thing to have happened in A.I. this year.`\
-https://www.nytimes.com/2026/09/04/podcasts/hugging-face-hack-reports.html
-
-**Build First, Ask Later**\
-`We look at President Trump’s building spree in Washington.`\
-https://www.nytimes.com/2026/09/04/briefing/build-first-ask-later.html
 
 **Live Updates: U.S. Hiring Jumps, an Encouraging Sign for the Economy**\
 `Employers added 162,000 jobs in August, and the unemployment rate held steady at 4.1 percent. But wage growth is not keeping up with rising inflation.`\

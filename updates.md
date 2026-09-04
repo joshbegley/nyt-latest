@@ -1,3 +1,11 @@
+**Six-Week-Old Infant Died From Measles, Lancaster Coroner Says**\
+`The baby had a rare genetic disorder that can make children more vulnerable to respiratory infections, the coroner said.`\
+https://www.nytimes.com/2026/09/04/well/measles-infant-pennsylvania-death.html
+
+**Can a Fashion Designer be a Genius?**\
+`Parsing the nuances of decadence, provocation and brilliance.`\
+https://www.nytimes.com/2026/09/04/style/galliano-john-genius.html
+
 **M.T.A. Worker Struck and Killed While Working on the Subway Tracks**\
 `The employee was a construction flagger who notified trains that other transit workers were on the tracks. She was hit near the 161st Street-Yankee Stadium station in the Bronx on Thursday night.`\
 https://www.nytimes.com/2026/09/04/nyregion/mta-worker-death.html

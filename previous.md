@@ -1,3 +1,11 @@
+**Six-Week-Old Infant Died From Measles, Lancaster Coroner Says**\
+`The baby had a rare genetic disorder that can make children more vulnerable to respiratory infections, the coroner said.`\
+https://www.nytimes.com/2026/09/04/well/measles-infant-pennsylvania-death.html
+
+**Can a Fashion Designer be a Genius?**\
+`Parsing the nuances of decadence, provocation and brilliance.`\
+https://www.nytimes.com/2026/09/04/style/galliano-john-genius.html
+
 **M.T.A. Worker Struck and Killed While Working on the Subway Tracks**\
 `The employee was a construction flagger who notified trains that other transit workers were on the tracks. She was hit near the 161st Street-Yankee Stadium station in the Bronx on Thursday night.`\
 https://www.nytimes.com/2026/09/04/nyregion/mta-worker-death.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/09/04/podcasts/hugging-face-hack-reports.html
 **Build First, Ask Later**\
 `We look at President Trump’s building spree in Washington.`\
 https://www.nytimes.com/2026/09/04/briefing/build-first-ask-later.html
-
-**Families Mourn Nepal Flood Victims**\
-`With thousands still missing in Nepal’s floods, hundreds of families have turned to symbolic cremations to honor their loved ones. Our South Asia bureau chief, Mujib Mashal, witnessed one of the ceremonies.`\
-https://www.nytimes.com/video/world/asia/100000011130555/families-mourn-nepal-flood-victims.html
-
-**Families Turn to Symbolic Cremation After Nepal Floods**\
-`Thousands are missing, and some families have lost hope of recovering their bodies. To carry out his sacred duty, a son lights the funeral pyre for a straw effigy of his father.`\
-https://www.nytimes.com/2026/09/04/world/asia/nepal-symbolic-cremation-floods.html
 
 **Live Updates: U.S. Hiring Jumps, an Encouraging Sign for the Economy**\
 `Employers added 162,000 jobs in August, and the unemployment rate held steady at 4.1 percent. But wage growth is not keeping up with rising inflation.`\
