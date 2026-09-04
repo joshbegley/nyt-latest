@@ -11,7 +11,7 @@ https://www.nytimes.com/2026/09/04/us/lindsay-clancy-process-removing-juror.html
 https://www.nytimes.com/2026/09/04/world/middleeast/israel-captures-ridge-occupation-katz.html
 
 **Lindsay Clancy Trial Live Updates: Holdout Juror Draws Scrutiny as Deadlock Drags On**\
-`A defense lawyer said the judge in the high-profile murder case would hold an inquiry regarding the juror, who appears to be the lone obstacle to a unanimous verdict.`\
+`The judge in the high-profile murder case is considering a note from the foreperson regarding the juror, who appears to be the lone obstacle to a unanimous verdict.`\
 https://www.nytimes.com/live/2026/09/04/us/lindsay-clancy-trial-deadlock
 
 **‘The Headlines’ News Quiz: Sept. 4, 2026**\
