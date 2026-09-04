@@ -1,3 +1,11 @@
+**Lindsay Clancy’s Murder Trial Ended With a Hung Jury. What Now?**\
+`Ms. Clancy still faces murder charges for killing her three children. She is likely to remain in a hospital, and prosecutors may decide to retry her.`\
+https://www.nytimes.com/2026/09/04/us/lindsay-clancy-murder-hung-jury-what-next.html
+
+**The Lindsay Clancy Jury Had an Impossible Task**\
+`Postpartum psychosis is misunderstood and a poor fit for the justice system.`\
+https://www.nytimes.com/2026/09/04/opinion/lindsay-clancy-trial.html
+
 **The Local: Follow the Ice**\
 `Plus, we talk to the man in the rotating refrigerator.`\
 https://www.nytimes.com/2026/09/04/us/the-local-follow-the-ice.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/09/04/world/middleeast/yemen-houthis-red-sea-strait
 **N.Y.P.D. Fatally Shoots Man With Knife on Brooklyn Bridge**\
 `The shooting, on Friday morning, happened days after the police shot and killed a woman in Times Square who had stabbed two people.`\
 https://www.nytimes.com/2026/09/04/nyregion/nypd-shooting-brooklyn-bridge.html
-
-**She Was Hobbled by Fatigue Before an Accidental Diagnosis**\
-`The woman’s symptoms limited her for years until she underwent testing to be a kidney donor.`\
-https://www.nytimes.com/2026/09/04/well/systemic-mastocytosis-mast-cells-alaphylaxis.html
-
-**Tesla’s Cybercab Is Being Investigated by Federal Regulators**\
-`The National Highway Traffic Safety Administration said it would examine whether the company’s new self-driving taxi, which has no steering wheel, meets federal auto regulations.`\
-https://www.nytimes.com/2026/09/04/business/tesla-cybercab-nhtsa-investigation.html
 
 **U.S. Hiring Jumps, an Encouraging Sign for the Economy**\
 `Employers added 162,000 jobs in August, and the unemployment rate held steady at 4.1 percent. But wage growth is not keeping up with rising inflation.`\
