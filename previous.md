@@ -1,3 +1,7 @@
+**Something Alarming Is About to Happen in Germany**\
+`The government is seemingly incapable of stopping the far right.`\
+https://www.nytimes.com/2026/09/04/opinion/afd-germany-saxony-anhalt.html
+
 **Workers Rescued From Tunnel in Nepal 9 Days After Flood**\
 `Rescuers pulled out two people as the search continued for hundreds missing after the flooding catastrophe last week.`\
 https://www.nytimes.com/2026/09/04/world/asia/nepal-floods-rescue-tunnel-worker.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/03/world/europe/norway-russian-research-ship-arc
 **Where To Find Fast-Disappearing Prune Danishes and More Reader Questions**\
 `Plus train-appropriate sushi near Penn Station and a restaurant actually dedicated to Italian-style aperitivo hour.`\
 https://www.nytimes.com/2026/09/03/dining/reader-questions.html
-
-**New Yorkers: Share Your Thoughts About Israel, Gaza and Jewish Identity**\
-`The New York Times is looking to talk to Jewish New Yorkers about whether their views on Israel and the Israeli-Palestinian conflict have changed.`\
-https://www.nytimes.com/2026/09/03/nyregion/jewish-new-yorkers-israel-gaza.html
 
