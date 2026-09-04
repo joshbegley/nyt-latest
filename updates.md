@@ -1,3 +1,19 @@
+**Los esfuerzos antimigrantes de Trump presentan fisuras. ¿Qué sigue?**\
+`Las políticas de migración de Trump no tienen la intención de eliminar la mano de obra migrante sino despojar a esa mano de obra del poder de negociación y de sus derechos, explica la autora.`\
+https://www.nytimes.com/es/2026/09/04/espanol/opinion/trump-antimigracion-derechos.html
+
+**Nigel Farage to Speak at Reform UK Conference Amid Scrutiny Over Party Finances**\
+`Advisers to the Reform U.K. leader Nigel Farage were captured on film apparently arranging contributions from a man posing as a foreign donor.`\
+https://www.nytimes.com/2026/09/04/world/europe/farage-reform-uk-conference-donations.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/asia/100000011132980/04vid-nepal-floods-ru02-61303.html
+
+**Clancy Trial Verdict May Hinge on a Single Holdout Juror**\
+`The jury has been deadlocked since at least Tuesday on whether to hold Lindsay Clancy legally responsible for the strangling deaths of her three children.`\
+https://www.nytimes.com/2026/09/04/us/lindsay-clancy-trial-holdout-juror-judge-inquiry.html
+
 **Mark Walter, the Dodgers and Your Money**\
 `Behind the Dodgers’ soaring value: a billionaire, his entities and your nest egg.`\
 https://www.nytimes.com/2026/09/04/podcasts/mark-walter-the-dodgers-and-your-money.html

@@ -1,3 +1,15 @@
+**Live Updates: Jobs Data to Offer Clues on Economy’s Health**\
+`Hiring and unemployment numbers will clarify the view of an economy generating strong growth and persistent inflation.`\
+https://www.nytimes.com/live/2026/09/04/business/jobs-report-economy
+
+**US Open Day 5: Is Coco Gauff Now the Women’s Favorite?**\
+`The fourth seed and former champion is in ominous form in New York.`\
+https://www.nytimes.com/2026/09/04/podcasts/us-open-coco-gauff.html
+
+**Rusia y Ucrania escalan sus ataques**\
+`Cada bando usa misiles y drones para someter al otro, lo que lleva a un sufrimiento humano incesante. No hay indicios de que la determinación de ninguno de los países vaya a debilitarse.`\
+https://www.nytimes.com/es/2026/09/04/espanol/mundo/rusia-ucrania-escalan-ataques.html
+
 **Los esfuerzos antimigrantes de Trump presentan fisuras. ¿Qué sigue?**\
 `Las políticas de migración de Trump no tienen la intención de eliminar la mano de obra migrante sino despojar a esa mano de obra del poder de negociación y de sus derechos, explica la autora.`\
 https://www.nytimes.com/es/2026/09/04/espanol/opinion/trump-antimigracion-derechos.html
@@ -173,24 +185,4 @@ https://www.nytimes.com/2026/09/04/nyregion/mamdani-influencers-emilia-rowland.h
 **‘Choosin’ Texas’ Is a Southern Hit. Just Don’t Call Texas Southern.**\
 `Ella Langley’s hit has become an anthem in Austin, a singalong in Nashville and a case study in how the Texas brand travels.`\
 https://www.nytimes.com/2026/09/04/us/choosin-texas-southern-ella-langley.html
-
-**Wineries Are Offering Bingo, Picnics, Jewelry … and Sometimes Wine**\
-`With slumping sales and fewer tourists, California winemakers have turned to special events and classes to woo customers — even those who don’t drink.`\
-https://www.nytimes.com/2026/09/04/dining/drinks/wineries-bingo-picnics-jewelry.html
-
-**Sandra Bullock, Nicole Kidman and the Other ‘Practical Magic 2’ Stars on the Unlikely Sequel**\
-`Sandra Bullock, Nicole Kidman, Joey King and Maisie Williams on the unlikely sequel, embracing their witchiness and their hopes for a third film.`\
-https://www.nytimes.com/2026/09/04/movies/practical-magic-sandra-bullock-nicole-kidman.html
-
-**Plumbing the Shipwrecks of an Infamous Pirate Cove**\
-`For the marine archaeologist Sean Kingsley, the most honest history can be found on the seafloor.`\
-https://www.nytimes.com/2026/09/04/science/archaeology-shipwrecks-pirates-kingsley.html
-
-**Word of the Day: avalanche**\
-`This word has appeared in 226 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/09/04/learning/word-of-the-day-avalanche.html
-
-**‘Come From Away’ Comes Home**\
-`“Come From Away,” a musical about ​a small Newfoundland town that embraced nearly 7,000 travelers ​when their planes were grounded after the Sept. 11 attacks, is playing all over the world​, including in the town where it’s set. Our theater reporter​, Michael Paulson​, ​went to see the town and the show.`\
-https://www.nytimes.com/video/theater/100000011077905/come-from-away-comes-home.html
 

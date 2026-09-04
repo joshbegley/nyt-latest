@@ -1,3 +1,15 @@
+**Los esfuerzos antimigrantes de Trump presentan fisuras. ¿Qué sigue?**\
+`Las políticas de migración de Trump no tienen la intención de eliminar la mano de obra migrante sino despojar a esa mano de obra del poder de negociación y de sus derechos, explica la autora.`\
+https://www.nytimes.com/es/2026/09/04/espanol/opinion/trump-antimigracion-derechos.html
+
+**Nigel Farage to Speak at Reform UK Conference Amid Scrutiny Over Party Finances**\
+`Advisers to the Reform U.K. leader Nigel Farage were captured on film apparently arranging contributions from a man posing as a foreign donor.`\
+https://www.nytimes.com/2026/09/04/world/europe/farage-reform-uk-conference-donations.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/asia/100000011132980/04vid-nepal-floods-ru02-61303.html
+
 **Mark Walter, the Dodgers and Your Money**\
 `Behind the Dodgers’ soaring value: a billionaire, his entities and your nest egg.`\
 https://www.nytimes.com/2026/09/04/podcasts/mark-walter-the-dodgers-and-your-money.html
@@ -12,7 +24,7 @@ https://www.nytimes.com/es/2026/09/04/espanol/america-latina/espriella-posa-cada
 
 **Clancy Trial Verdict May Hinge on a Single Holdout Juror**\
 `The jury has been deadlocked since at least Tuesday on whether to hold Lindsay Clancy legally responsible for the strangling deaths of her three children.`\
-https://www.nytimes.com/2026/09/04/us/judge-in-clancy-trial-to-hold-inquiry-into-holdout-juror.html
+https://www.nytimes.com/2026/09/04/us/lindsay-clancy-trial-holdout-juror-judge-inquiry.html
 
 **How to Set New Goals This Fall**\
 `Harness that back-to-school energy to set some new goals.`\
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/09/04/learning/word-of-the-day-avalanche.html
 **‘Come From Away’ Comes Home**\
 `“Come From Away,” a musical about ​a small Newfoundland town that embraced nearly 7,000 travelers ​when their planes were grounded after the Sept. 11 attacks, is playing all over the world​, including in the town where it’s set. Our theater reporter​, Michael Paulson​, ​went to see the town and the show.`\
 https://www.nytimes.com/video/theater/100000011077905/come-from-away-comes-home.html
-
-**F1: Kimi Antonelli Leads in Points, but Lando Norris Is Closing**\
-`The rapid climb of Norris is a reminder how Max Verstappen came from far behind last year to almost snatch the title.`\
-https://www.nytimes.com/2026/09/04/sports/f1-kimi-antonelli-championship-lando-norris.html
-
-**Remember Filmstrips? These Dedicated Souls Are Racing to Save Them**\
-`One of the 20th century’s biggest media formats was often thrown out in the rush to embrace VHS. But preservationists say visual history is being lost.`\
-https://www.nytimes.com/2026/09/04/movies/filmstrips-archives.html
-
-**How ‘Come From Away’ Became a Lasting 9/11 Story**\
-`“Come From Away,” about a remote Newfoundland community that embraced grounded travelers, is playing all over the world — even in the town where it takes place.`\
-https://www.nytimes.com/2026/09/04/theater/come-from-away-musical-gander-canada.html
 
