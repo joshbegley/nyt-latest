@@ -1,3 +1,15 @@
+**Dale Caldwell, New Jersey’s Lt. Governor, Is Said to be Under Investigation for Ethics Violations**\
+`An outside law firm has begun an investigation into Dale Caldwell, according to two Democrats familiar with the inquiry. He also serves as secretary of state.`\
+https://www.nytimes.com/2026/09/04/nyregion/new-jersey-dale-caldwell-ethics-investigation.html
+
+**Postal Service Internal Watchdog Opens Inquiry After Whistle-Blower’s Complaint**\
+`The Trump administration’s effort to screen mail-in ballots for the midterms is facing numerous challenges.`\
+https://www.nytimes.com/2026/09/04/us/politics/postal-service-internal-watchdog-inquiry.html
+
+**North Carolina Adds New Restrictions to Vote-by-Mail Program**\
+`The changes are almost certain to cause some votes to be tossed. They come at a time when President Trump is promoting false claims of widespread fraud in mail voting.`\
+https://www.nytimes.com/2026/09/04/us/politics/north-carolina-adds-new-restrictions-to-vote-by-mail-program.html
+
 **Labor Day Weekend Kicks Off With More Hot and Stormy Weather Across the U.S.**\
 `Millions of people were under heat warnings across the Midwest.`\
 https://www.nytimes.com/2026/09/04/weather/us-heat-storms-rain-labor-day-forecast.html
