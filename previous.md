@@ -1,3 +1,7 @@
+**F.C.C. Asks Court to Toss ABC Suit Over Broadcast Licenses**\
+`The network sued the agency last month to stop it from taking steps that could force ABC stations off the air. The F.C.C. said the lawsuit was premature.`\
+https://www.nytimes.com/2026/09/03/business/media/fcc-disney-abc-broadcast-licenses.html
+
 **Why the Hugging Face Hack Should Make You Worry More About A.I.**\
 `The attack by an aggressive “collective” of OpenAI agents shows the danger of artificial intelligence systems that organize themselves.`\
 https://www.nytimes.com/2026/09/03/technology/openai-hugging-face-hacking.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/03/climate/cleaner-air-smarter-toddlers.html
 **Books Our Editors Loved This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://www.nytimes.com/2026/09/03/books/review/new-recommended-books.html
-
-**Tiny Memoir Contest for Students: Write a 100-Word Personal Narrative**\
-`We invite teenagers to tell a story about a meaningful life experience in just 100 words. Contest dates: Sept. 16-Oct. 28, 2026.`\
-https://www.nytimes.com/2026/09/03/learning/tiny-memoir-contest-for-students-write-a-100-word-personal-narrative.html
 

@@ -1,3 +1,7 @@
+**Pablo Torre: We’re in a ‘Dysmorphic’ Era in Sports**\
+`Pablo Torre joins Natalie Kitroeff on “The Call” to talk about how his bombshell investigation into the Clippers and Steve Ballmer has resulted in the largest punishment in N.B.A. history.`\
+https://www.nytimes.com/video/sports/basketball/100000011132515/pablo-torre-were-in-a-dysmorphic-era-in-sports.html
+
 **F.C.C. Asks Court to Toss ABC Suit Over Broadcast Licenses**\
 `The network sued the agency last month to stop it from taking steps that could force ABC stations off the air. The F.C.C. said the lawsuit was premature.`\
 https://www.nytimes.com/2026/09/03/business/media/fcc-disney-abc-broadcast-licenses.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/03/business/media/fox-news-maria-bartiromo.html
 **Cleaner Air, Smarter Toddlers**\
 `New research links climate policies to improved early-childhood development.`\
 https://www.nytimes.com/2026/09/03/climate/cleaner-air-smarter-toddlers.html
-
-**Books Our Editors Loved This Week**\
-`Reading recommendations from critics and editors at The New York Times.`\
-https://www.nytimes.com/2026/09/03/books/review/new-recommended-books.html
 

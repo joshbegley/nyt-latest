@@ -1,3 +1,7 @@
+**F.C.C. Asks Court to Toss ABC Suit Over Broadcast Licenses**\
+`The network sued the agency last month to stop it from taking steps that could force ABC stations off the air. The F.C.C. said the lawsuit was premature.`\
+https://www.nytimes.com/2026/09/03/business/media/fcc-disney-abc-broadcast-licenses.html
+
 **Why the Hugging Face Hack Should Make You Worry More About A.I.**\
 `The attack by an aggressive “collective” of OpenAI agents shows the danger of artificial intelligence systems that organize themselves.`\
 https://www.nytimes.com/2026/09/03/technology/openai-hugging-face-hacking.html
