@@ -1,3 +1,31 @@
+**Quote of the Day: Thermometer Overrides Italians’ Defiance of A.C.**\
+`Quotation of the Day for Friday, September 4, 2026.`\
+https://www.nytimes.com/2026/09/04/pageoneplus/quote-of-the-day-thermometer-overrides-italians-defiance-of-ac.html
+
+**We Kept Looking for Reasons to Break Up**\
+`And then I laughed during “My Big Fat Greek Wedding,” and that became the reason.`\
+https://www.nytimes.com/2026/09/04/style/we-kept-looking-for-reasons-to-break-up.html
+
+**After a Frightening Shark Encounter, Their Feelings Became Clear**\
+`Kelleigh Whelan and Justin Holland bonded over technology and a shared love of adventure, building a life together in Miami and Tampa.`\
+https://www.nytimes.com/2026/09/04/style/kelleigh-whelan-justin-holland-wedding.html
+
+**Married by Their Dads**\
+`When Sam Gardenswartz and Josh Schwartz were fixed up, they discovered rabbinical connections, past and present.`\
+https://www.nytimes.com/2026/09/04/style/sam-gardenswartz-josh-schwartz-wedding.html
+
+**Third Time Was the Charm for a Founder of Meet Cutes NYC**\
+`Aaron Feinberg, who is popular on social media for documenting people’s love stories, can now put that advice into practice with Ali Parsons.`\
+https://www.nytimes.com/2026/09/04/style/aaron-feinberg-ali-parsons-wedding.html
+
+**Through Grief, Their Friendship Deepened Into Love**\
+`Julie Koontz and Ryan Seenanan formed an immediate friendship after meeting at work seven years ago. When her husband died, he helped her “through the darkest stretch of my life.”`\
+https://www.nytimes.com/2026/09/04/style/julie-koontz-ryan-seenanan-wedding.html
+
+**She Gets to Call Him ‘Husband’ Now**\
+`Chanel Pettaway and Ramahn Herbert had known each other professionally since 2010, but their relationship took a romantic turn with a kiss in his music studio.`\
+https://www.nytimes.com/2026/09/04/style/chanel-pettaway-ramahn-herbert-wedding.html
+
 **The Battle to be Australia’s Best Pie**\
 `A hot meat pie from any roadside bakery is a staple on a long Australian road trip, but what does it take to be crowned a winner?`\
 https://www.nytimes.com/2026/09/03/world/australia/australia-meat-pie-competition.html
