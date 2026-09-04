@@ -18,8 +18,8 @@ https://www.nytimes.com/2026/09/04/style/alix-earle-meets-world.html
 `People paid tribute outside the Manhattan home of Gloria Steinem, the feminist icon who died on Wednesday, placing flowers and remembering her impact on the women’s movement.`\
 https://www.nytimes.com/video/obituaries/100000011132670/gloria-steinem-tributes.html
 
-**Live Updates: 2 Are Rescued From Nepal Tunnel 9 Days After Deadly Flood**\
-`Rescuers were racing on Friday to find more survivors among dozens of people believed to be trapped in a tunnel at a hydropower project, officials said. It was not clear how many were still alive.`\
+**Live Updates: Rescuers Search Nepal Tunnel for Survivors After Finding 2 Alive**\
+`Dozens of other people were believed to be trapped in a tunnel at a hydropower project since last week’s deadly flood, officials said. It was not clear how many were still alive.`\
 https://www.nytimes.com/live/2026/09/04/world/nepal-flash-floods-rescue-tunnels
 
 **Así son las escuelas secretas para niñas en el Afganistán de los talibanes**\
