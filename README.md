@@ -1,3 +1,7 @@
+**‘The Headlines’ News Quiz: Sept. 4, 2026**\
+`Following the news? Will Jarvis has some questions for you.`\
+https://www.nytimes.com/2026/09/04/podcasts/the-headlines/the-headlines-news-quiz-sept-4-2026.html
+
 **Philippines’ Vice President Faces Arrest Over Assassination Threats**\
 `A court issued a warrant for Sara Duterte, who is accused of having threatened President Ferdinand R. Marcos Jr. and two of his relatives.`\
 https://www.nytimes.com/2026/09/04/world/asia/sara-duterte-arrest-warrant-philippines.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/09/04/world/europe/germany-afd-extremists.html
 **No Dogs Were Hurt in the Real Love Story Behind ‘Colin From Accounts’**\
 `Patrick Brammall and Harriet Dyer met in a cafe, not a vet clinic. But the line between their lives and their characters’ is “pretty porous.”`\
 https://www.nytimes.com/2026/09/04/arts/television/colin-from-accounts-patrick-brammall-harriet-dyer.html
-
-**A Pioneer of Lesbian Cinema Gets a Documentary Worthy of Her**\
-`“Barbara Forever” takes an unconventional approach to the life and work of the unconventional director Barbara Hammer.`\
-https://www.nytimes.com/2026/09/04/movies/barbara-forever-barbara-hammer-lesbian-cinema.html
 
