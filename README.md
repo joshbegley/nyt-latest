@@ -1,3 +1,11 @@
+**Trump Plans to Use Qatari Jet for Another Overseas Flight Despite Security Concerns**\
+`The president plans to travel to Ireland on the plane, the first time he will have used it overseas since questions were raised about its defensive capabilities.`\
+https://www.nytimes.com/2026/09/04/us/politics/trump-qatar-jet-flight-ireland.html
+
+**Gloria Steinem Stayed Positive, Even as the Manosphere Took Hold**\
+`The feminist icon thought many women would carry on her legacy. But at an unsteady time for feminism, how will the movement carry on?`\
+https://www.nytimes.com/2026/09/04/us/politics/gloria-steinem-feminism-manosphere.html
+
 **How to Define the ‘Reasonable’ in Reasonable Doubt**\
 `“Beyond a reasonable doubt” is the highest burden of proof within the American legal system. Still, there is some wiggle room.`\
 https://www.nytimes.com/2026/09/04/us/lindsay-clancy-trial-reasonable-doubt.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/09/04/podcasts/us-open-coco-gauff.html
 **Rusia y Ucrania escalan sus ataques**\
 `Cada bando usa misiles y drones para someter al otro, lo que lleva a un sufrimiento humano incesante. No hay indicios de que la determinación de ninguno de los países vaya a debilitarse.`\
 https://www.nytimes.com/es/2026/09/04/espanol/mundo/rusia-ucrania-escalan-ataques.html
-
-**Los esfuerzos antimigrantes de Trump presentan fisuras. ¿Qué sigue?**\
-`Las políticas de migración de Trump no tienen la intención de eliminar la mano de obra migrante sino despojar a esa mano de obra del poder de negociación y de sus derechos, explica la autora.`\
-https://www.nytimes.com/es/2026/09/04/espanol/opinion/trump-antimigracion-derechos.html
-
-**Nigel Farage to Speak at Reform UK Conference Amid Scrutiny Over Party Finances**\
-`Advisers to the Reform U.K. leader Nigel Farage were captured on film apparently arranging contributions from a man posing as a foreign donor.`\
-https://www.nytimes.com/2026/09/04/world/europe/farage-reform-uk-conference-donations.html
 
 **2 Trapped Workers Are Rescued After 9 Days in Nepal Tunnel**\
 `“Everybody’s sense of hope was waning,” said one survivor’s relative. Rescuers were searching for dozens of others inside the tunnel at a hydropower project damaged by last week’s deadly floods.`\

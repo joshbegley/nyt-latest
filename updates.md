@@ -1,3 +1,15 @@
+**How to Define the ‘Reasonable’ in Reasonable Doubt**\
+`“Beyond a reasonable doubt” is the highest burden of proof within the American legal system. Still, there is some wiggle room.`\
+https://www.nytimes.com/2026/09/04/us/lindsay-clancy-trial-reasonable-doubt.html
+
+**When the World’s Best-Known Feminist Was Accused of Insulting Women**\
+`During the 2016 presidential campaign, Gloria Steinem was asked about the young women supporting Bernie Sanders over Hillary Clinton. Her answer created a brief hullabaloo.`\
+https://www.nytimes.com/2026/09/04/us/politics/gloria-steinem-clinton-sanders-2016.html
+
+**Lindsay Clancy Trial Live Updates: Judge Plans to Declare Mistrial as Jury Remains Deadlocked**\
+`Jurors sent another note to the court saying they had not been able to reach a verdict. The judge gave the defense an hour to request a stay of the mistrial.`\
+https://www.nytimes.com/live/2026/09/04/us/lindsay-clancy-trial-deadlock
+
 **Trump Administration Moves to Drop Protections for More Wetlands**\
 `The proposed rule could strip federal protections from most U.S. wetlands, many of which help feed drinking water systems.`\
 https://www.nytimes.com/2026/09/04/climate/epa-wetlands-water-protections.html
