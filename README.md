@@ -1,3 +1,23 @@
+**The Intertwined Legacies of Gloria Steinem and Dolly Parton**\
+`Our writer discusses why, to her, the two icons are inescapably connected.`\
+https://www.nytimes.com/2026/09/04/podcasts/the-daily/gloria-steinem-dolly-parton-legacies.html
+
+**A Surge of Russian Sabotage Attacks in Europe, and Musk’s Political War Chest**\
+`Plus, your Friday news quiz.`\
+https://www.nytimes.com/2026/09/04/podcasts/the-headlines/russia-sabotage-attacks-elon-musk.html
+
+**NYT Connections Answers for September 5, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Sept. 5, 2026.`\
+https://www.nytimes.com/2026/09/04/crosswords/connections-companion-1182.html
+
+**NYT Strands Hints for September 5, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Sept. 5, 2026.`\
+https://www.nytimes.com/2026/09/04/crosswords/strands-sidekick-916.html
+
+**Today’s Wordle Hints for Sept. 5, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Sept. 5, 2026.`\
+https://www.nytimes.com/2026/09/04/crosswords/wordle-review-1904.html
+
 **Live Updates: Jobs Data to Offer Clues on Economy’s Health**\
 `Hiring and unemployment numbers will clarify the view of an economy generating strong growth and persistent inflation.`\
 https://www.nytimes.com/live/2026/09/04/business/jobs-report-economy
@@ -165,24 +185,4 @@ https://www.nytimes.com/2026/09/04/magazine/climate-change-disaster-rebuilding.h
 **Eoin Colfer’s Artemis Fowl Turns 25**\
 `Artemis Fowl, celebrating his 25th anniversary, is one for the ages.`\
 https://www.nytimes.com/2026/09/04/books/review/artemis-fowl-25th-anniversary-eoin-colfer.html
-
-**Notre Dame’s Jersey Patch Deal With SoFi Divides Alumni and Fans**\
-`Alumni have varying opinions about the school’s deal with the personal finance company SoFi to advertise on Notre Dame athletic uniforms.`\
-https://www.nytimes.com/2026/09/04/business/notre-dame-sofi-jersey-patch.html
-
-**Reasons to Have Faith in Fashion**\
-`Textile waste. An obsession with thinness. Too many men at the top. At a time when the industry can be dispiriting, designers and others talk about what makes them optimistic.`\
-https://www.nytimes.com/2026/09/04/t-magazine/fashion-industry-optimism.html
-
-**Why the Sunflower Suddenly Looks Fresh Again**\
-`Long considered commonplace and overly cheerful, the bloom is once more enchanting designers.`\
-https://www.nytimes.com/2026/09/04/t-magazine/sunflower-arrangement-design.html
-
-**Inside Mamdani’s Private Army of Public Influencers**\
-`Zohran Mamdani is seen as a social media wizard. Some of his popularity stems from an influencer operation run by the mayor’s office.`\
-https://www.nytimes.com/2026/09/04/nyregion/mamdani-influencers-emilia-rowland.html
-
-**‘Choosin’ Texas’ Is a Southern Hit. Just Don’t Call Texas Southern.**\
-`Ella Langley’s hit has become an anthem in Austin, a singalong in Nashville and a case study in how the Texas brand travels.`\
-https://www.nytimes.com/2026/09/04/us/choosin-texas-southern-ella-langley.html
 
