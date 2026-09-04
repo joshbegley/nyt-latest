@@ -1,3 +1,11 @@
+**Former Labor Secretary Stoked Dysfunction and Toxicity, Department Report Finds**\
+`Lori Chavez-DeRemer spent Labor Department funds on personal travel and tolerated harassment in the agency, its inspector general found.`\
+https://www.nytimes.com/2026/09/03/business/economy/labor-secretary-chavez-deremer-report.html
+
+**Israel Says It Cleared Tunnels to Strategic Hezbollah Fortress in Lebanon**\
+`The operation, which began in June and is ongoing, came as fighting between the U.S. and Iran flared anew.`\
+https://www.nytimes.com/2026/09/03/world/middleeast/israeli-hezbollah-lebanon.html
+
 **Pablo Torre on the Largest Punishment in N.B.A. History**\
 `Pablo Torre’s groundbreaking investigation into the Clippers revealed that the owner Steve Ballmer funneled millions of dollars in secret to player Kawhi Leonard to avoid league salary cap rules. Now the Clippers are facing the largest punishment in N.B.A. history. Torre joins Natalie Kitroeff on “The Call” to unpack what happens next.`\
 https://www.nytimes.com/video/sports/basketball/100000011132330/pablo-torre-on-the-largest-punishment-in-nba-history.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/es/2026/09/03/espanol/estados-unidos/ice.html
 **Gene Bertoncini, Jazz Guitarist Who Dazzled With Subtlety, Dies at 89**\
 `He performed at the highest level for decades, sensitively backing singers like Tony Bennett and Lena Horne when not leading his own innovative groups.`\
 https://www.nytimes.com/2026/09/03/arts/music/gene-bertoncini-dead.html
-
-**A Deadly and Costly Climate Crisis in Nepal**\
-`Readers connect the Nepal disaster to the effects of climate change. Also: Afghan girls’ schools; a bad deal in Yosemite; helping farmers; saving wild horses.`\
-https://www.nytimes.com/2026/09/03/opinion/nepal-climate.html
-
-**Maria Bartiromo Is Out at Fox News**\
-`The host, who appeared on Fox Business and Fox News, had been with the network for more than 12 years.`\
-https://www.nytimes.com/2026/09/03/business/media/fox-news-maria-bartiromo.html
 
