@@ -1,3 +1,7 @@
+**The Battle to be Australia’s Best Pie**\
+`A hot meat pie from any roadside bakery is a staple on a long Australian road trip, but what does it take to be crowned a winner?`\
+https://www.nytimes.com/2026/09/03/world/australia/australia-meat-pie-competition.html
+
 **Argentina Is Ramping Up Its Claim to the Falklands. Here’s What to Know.**\
 `President Javier Milei has dialed up Argentina’s claim over the British territory, while President Trump has raised questions about longstanding U.S. neutrality on the dispute.`\
 https://www.nytimes.com/article/falkland-islands-trump-uk-argentina-malvinas.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/09/03/us/ice-recruits-whistleblower-com
 **Pedro Sánchez cuestiona el control fronterizo de Marruecos ante la oleada de migrantes en Ceuta**\
 `El presidente del gobierno de España dijo que el papel de las autoridades marroquíes en momentos clave debía ser ‘aclarado’. Pero rechazó cualquier sugerencia de que hubieran planeado la crisis.`\
 https://www.nytimes.com/es/2026/09/03/espanol/mundo/espana-marruecos-ceuta-sanchez.html
-
-**Judge Suggests Trump Mail-In Voting Rules Could Cause ‘Major Disenfranchisement’**\
-`Judge Indira Talwani said the Postal Service appeared to be trying a haphazard “experiment” with a new rule that could result in valid ballots being tossed.`\
-https://www.nytimes.com/2026/09/03/us/politics/mail-ballots-usps-restraining-order.html
 

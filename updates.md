@@ -1,3 +1,7 @@
+**The Battle to be Australia’s Best Pie**\
+`A hot meat pie from any roadside bakery is a staple on a long Australian road trip, but what does it take to be crowned a winner?`\
+https://www.nytimes.com/2026/09/03/world/australia/australia-meat-pie-competition.html
+
 **Argentina Is Ramping Up Its Claim to the Falklands. Here’s What to Know.**\
 `President Javier Milei has dialed up Argentina’s claim over the British territory, while President Trump has raised questions about longstanding U.S. neutrality on the dispute.`\
 https://www.nytimes.com/article/falkland-islands-trump-uk-argentina-malvinas.html
