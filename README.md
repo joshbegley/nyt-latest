@@ -1,3 +1,7 @@
+**Así son las escuelas secretas para niñas en el Afganistán de los talibanes**\
+`Con la ayuda de maestros y padres que resisten las rígidas leyes del grupo religioso, decenas de chicas aspiran a una vida mejor. Reporteros del Times nos comparten lo que vieron en las aulas.`\
+https://www.nytimes.com/es/2026/09/04/espanol/mundo/ninas-afganistan-escuelas-clandestinas-talibanes.html
+
 **Something Alarming Is About to Happen in Germany**\
 `The government is seemingly incapable of stopping the far right.`\
 https://www.nytimes.com/2026/09/04/opinion/afd-germany-saxony-anhalt.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/live/2026/09/03/weather/hurricane-lowell-hawaii-karina
 **Norway Seizes Russian Ship, Testing Moscow in the High Arctic**\
 `Empowered by an international court order, Norway captured the vessel as part of a global effort to seize Russian assets. The Russians called it “piracy.”`\
 https://www.nytimes.com/2026/09/03/world/europe/norway-russian-research-ship-arctic.html
-
-**Where To Find Fast-Disappearing Prune Danishes and More Reader Questions**\
-`Plus train-appropriate sushi near Penn Station and a restaurant actually dedicated to Italian-style aperitivo hour.`\
-https://www.nytimes.com/2026/09/03/dining/reader-questions.html
 
