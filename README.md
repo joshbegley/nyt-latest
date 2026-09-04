@@ -1,3 +1,11 @@
+**U.A.E. Pardons Egyptian Dissident Sentenced to 10 Years in Prison**\
+`Abdulrahman al-Qaradawi was extradited from Lebanon to the Emirates, a close U.S. ally, after criticizing its government, in a case that alarmed human rights experts.`\
+https://www.nytimes.com/2026/09/04/world/middleeast/lebanon-uae-pardon-egypt-dissident.html
+
+**Gloria Steinem Found Community and Clout in Breaking Bread**\
+`Neither a home cook nor an enthusiastic eater, she used the dinner table as a place to forge relationships and foster change.`\
+https://www.nytimes.com/2026/09/04/dining/gloria-steinem-dinners-food.html
+
 **Yemen’s Houthis Push Toward Red Sea Strait as Ground Fighting Escalates**\
 `The Houthis, an Iran-backed militia, appear to be trying to gain control of a port city near the Bab al-Mandab Strait, a key choke point for global trade.`\
 https://www.nytimes.com/2026/09/04/world/middleeast/yemen-houthis-red-sea-strait.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/video/us/100000011128810/big-bend-construction-border-wa
 **The Risk of Russian Sabotage in Europe: A Fight That Spirals Out of Control**\
 `Europe’s options are limited in responding to an unnerving series of plots and provocations. But the odds of unpredictable consequences are rising.`\
 https://www.nytimes.com/2026/09/04/world/europe/russia-europe-nato-sabotage.html
-
-**This Is the Real Point of College**\
-`It’s all about the practice of freedom.`\
-https://www.nytimes.com/2026/09/04/opinion/college-freshman-education.html
-
-**7 New Movies Our Critics Are Talking About This Week**\
-`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
-https://www.nytimes.com/2026/09/04/movies/new-movies-this-week-critics.html
 
 **Live Updates: 2 Trapped Workers Are Rescued After 9 Days in Nepal Tunnel**\
 `“Everybody’s sense of hope was waning,” said one survivor’s relative. Rescuers were searching for dozens of others inside the tunnel at a hydropower plant damaged by last week’s deadly floods.`\
