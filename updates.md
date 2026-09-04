@@ -1,3 +1,11 @@
+**Why the Hugging Face Hack Should Make You Worry More About A.I.**\
+`The attack by an aggressive “collective” of OpenAI agents shows the danger of artificial intelligence systems that organize themselves.`\
+https://www.nytimes.com/2026/09/03/technology/openai-hugging-face-hacking.html
+
+**How OpenAI Limited the Probe of Its Bots’ Hack of Hugging Face**\
+`A nonprofit’s study of how OpenAI’s A.I. agents were able to break into Hugging Face’s infrastructure wasn’t allowed to look at the incident’s full scope.`\
+https://www.nytimes.com/2026/09/03/technology/openai-hugging-face-hack.html
+
 **Trump Taps Army Engineering Official as Acting Secretary**\
 `The move came days after the resignation of Daniel P. Driscoll, who had clashed with Defense Secretary Pete Hegseth over the purge of top generals in the Army.`\
 https://www.nytimes.com/2026/09/03/us/politics/trump-acting-army-secretary.html
