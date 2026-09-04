@@ -67,7 +67,7 @@ https://www.nytimes.com/2026/09/04/crosswords/strands-sidekick-916.html
 https://www.nytimes.com/2026/09/04/crosswords/wordle-review-1904.html
 
 **Live Updates: U.S. Hiring Jumps, an Encouraging Sign for the Economy**\
-`Employers added 162,000 jobs in August, and the unemployment rate held steady at 4.1 percent.`\
+`Employers added 162,000 jobs in August, and the unemployment rate held steady at 4.1 percent. But wage growth is not keeping up with rising inflation.`\
 https://www.nytimes.com/live/2026/09/04/business/jobs-report-economy
 
 **US Open Day 5: Is Coco Gauff Now the Women’s Favorite?**\

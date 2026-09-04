@@ -1,4 +1,8 @@
 **Live Updates: U.S. Hiring Jumps, an Encouraging Sign for the Economy**\
+`Employers added 162,000 jobs in August, and the unemployment rate held steady at 4.1 percent. But wage growth is not keeping up with rising inflation.`\
+https://www.nytimes.com/live/2026/09/04/business/jobs-report-economy
+
+**Live Updates: U.S. Hiring Jumps, an Encouraging Sign for the Economy**\
 `Employers added 162,000 jobs in August, and the unemployment rate held steady at 4.1 percent.`\
 https://www.nytimes.com/live/2026/09/04/business/jobs-report-economy
 
