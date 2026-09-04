@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/09/04/opinion/afd-germany-saxony-anhalt.html
 
 **Workers Rescued From Tunnel in Nepal 9 Days After Flood**\
-`Rescuers pulled out two people as the search continued for hundreds missing after the flooding catastrophe last week.`\
+`Rescuers pulled out two survivors as the search continued for hundreds missing inside hydropower projects that were buried in the flooding catastrophe last week.`\
 https://www.nytimes.com/2026/09/04/world/asia/nepal-floods-rescue-tunnel-worker.html
 
 **Quote of the Day: Thermometer Overrides Italians’ Defiance of A.C.**\
