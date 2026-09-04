@@ -1,3 +1,11 @@
+**The Local: Follow the Ice**\
+`Plus, we talk to the man in the rotating refrigerator.`\
+https://www.nytimes.com/2026/09/04/us/the-local-follow-the-ice.html
+
+**Broken Egg Salad**\
+`This dish has all the elements of a classic egg salad — eggs, mayonnaise and mustard — with one radical change: The cooked eggs are simply torn into deliciously irregular chunks of whites and yolks in a more laid-back approach.`\
+https://www.nytimes.com/video/dining/100000011125926/broken-egg-salad.html
+
 **Lindsay Clancy Murder Trial: Read Kevin Reddington’s Emergency Petition**\
 `The judge in the Lindsay Clancy murder case said that he will declare a mistrial, but gave the defense an hour to request a stay of his planned decision from a higher court.`\
 https://www.nytimes.com/interactive/2026/09/04/us/lindsay-clancy-emergency-stay-petition.html
@@ -186,15 +194,7 @@ https://www.nytimes.com/2026/09/04/well/systemic-mastocytosis-mast-cells-alaphyl
 `The National Highway Traffic Safety Administration said it would examine whether the company’s new self-driving taxi, which has no steering wheel, meets federal auto regulations.`\
 https://www.nytimes.com/2026/09/04/business/tesla-cybercab-nhtsa-investigation.html
 
-**The Pros and Cons of Paying Off Your Mortgage Early**\
-`Homeowners who make extra payments can save thousands of dollars in interest. But, financial experts say, paying down other debt, with higher interest rates, may be a better option.`\
-https://www.nytimes.com/2026/09/04/your-money/paying-off-mortgage-early-pros-cons.html
-
 **U.S. Hiring Jumps, an Encouraging Sign for the Economy**\
 `Employers added 162,000 jobs in August, and the unemployment rate held steady at 4.1 percent. But wage growth is not keeping up with rising inflation.`\
 https://www.nytimes.com/live/2026/09/04/business/jobs-report-economy
-
-**2 Trapped Workers Are Rescued After 9 Days in Nepal Tunnel**\
-`“Everybody’s sense of hope was waning,” said one survivor’s relative. Rescuers were searching for dozens of others inside the tunnel at a hydropower project damaged by last week’s deadly floods.`\
-https://www.nytimes.com/live/2026/09/04/world/nepal-flash-floods-rescue-tunnels
 
