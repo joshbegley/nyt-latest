@@ -1,3 +1,7 @@
+**Noruega incauta un barco ruso en el Ártico y pone a prueba a Moscú**\
+`Facultada por una orden judicial internacional, Noruega capturó la embarcación como parte de un esfuerzo global para incautar activos rusos. Rusia lo llamó “piratería”.`\
+https://www.nytimes.com/es/2026/09/04/espanol/mundo/barco-rusia-noruega.html
+
 **In a Last-Ditch Effort, Clancy Lawyer Takes His Case to a Higher Court**\
 `In an attempt to fend off a mistrial, Lindsay Clancy’s lawyer convinced the trial judge to give him an hour to craft an appeal to a higher court.`\
 https://www.nytimes.com/2026/09/04/us/lindsay-clancy-mistrial-emergency-appeal.html
@@ -138,7 +142,7 @@ https://www.nytimes.com/2026/09/04/us/lindsay-clancy-process-removing-juror.html
 `The recent capture of a strategic ridge has further entrenched the Israeli occupation of Lebanese territory, as efforts to broker lasting peace have floundered.`\
 https://www.nytimes.com/2026/09/04/world/middleeast/israel-captures-ridge-occupation-katz.html
 
-**Lindsay Clancy Trial Live Updates: After Judge States Intent to Declare a Mistrial, Defense Mounts Final Appeal**\
+**Lindsay Clancy Trial Live Updates: After Judge States Intent to Declare Mistrial, Defense Mounts Final Appeal**\
 `The judge’s decision came after jurors sent another note saying they had not been able to reach a verdict. The judge gave the defense an hour to request a stay.`\
 https://www.nytimes.com/live/2026/09/04/us/lindsay-clancy-trial-deadlock
 
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/09/04/podcasts/the-headlines/russia-sabotage-attack
 **NYT Connections Answers for September 5, 2026**\
 `Scroll down for hints and conversation about the puzzle for Saturday, Sept. 5, 2026.`\
 https://www.nytimes.com/2026/09/04/crosswords/connections-companion-1182.html
-
-**NYT Strands Hints for September 5, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, Sept. 5, 2026.`\
-https://www.nytimes.com/2026/09/04/crosswords/strands-sidekick-916.html
 
 **2 Trapped Workers Are Rescued After 9 Days in Nepal Tunnel**\
 `“Everybody’s sense of hope was waning,” said one survivor’s relative. Rescuers were searching for dozens of others inside the tunnel at a hydropower project damaged by last week’s deadly floods.`\
