@@ -1,3 +1,11 @@
+**U.S. Diesel Prices Set New High**\
+`Because of the war in Iran, the cost has climbed past the record it reached in 2022 after Russia’s full-scale invasion of Ukraine.`\
+https://www.nytimes.com/2026/09/04/business/diesel-price-record-oil-iran.html
+
+**Survivors Pulled From Tunnel After Nepal’s Deadly Floods**\
+`At least two people were pulled out alive from inside a hydropower project nine days after Nepal’s deadly floods.`\
+https://www.nytimes.com/video/world/asia/100000011132878/nepal-floods-rescue-tunnels.html
+
 **¿Viajas el fin de semana del Día del Trabajo? Esto es lo que debes saber**\
 `La TSA espera revisar a 17 millones de pasajeros durante la semana festiva. Aquí tienes un vistazo a los precios de la gasolina, posibles contratiempos climáticos y cómo mantenerte seguro en la carretera.`\
 https://www.nytimes.com/es/2026/09/04/espanol/estados-unidos/viajes-dia-trabajo.html
