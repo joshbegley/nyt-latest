@@ -1,3 +1,19 @@
+**Flashback: Your Weekly History Quiz, Sept. 5, 2026**\
+`Can you sort 8 historical events?`\
+https://www.nytimes.com/interactive/2026/09/04/upshot/flashback.html
+
+**Judge in Lindsay Clancy Trial Gives Defense Time to Appeal**\
+`Kevin Reddington, Lindsay Clancy’s lawyer, asked the judge for extra time to appeal to a higher court to avoid a mistrial.`\
+https://www.nytimes.com/video/us/100000011133807/lindsay-clancy-mistrial-appeal.html
+
+**Timothy Carney, Diplomat Who Went Places Others Avoided, Dies at 82**\
+`Insisting on seeing things for himself, even in hostile terrain, Mr. Carney opposed the closing of the U.S. embassy in Khartoum while Osama Bin Laden established himself there.`\
+https://www.nytimes.com/2026/09/04/obituaries/timothy-carney-dead.html
+
+**An Italian Designer’s Country and City Homes**\
+`The Italian interior designer Paola Moretti shows off her two very different homes: a pared-down mountain house and a city apartment in a converted church rectory.`\
+https://www.nytimes.com/video/t-magazine/100000011120851/an-italian-designers-country-and-city-homes.html
+
 **Who Is Ahead in Florida's 16th Congressional District?**\
 `Track the latest polls in Florida's 16th Congressional District.`\
 https://www.nytimes.com/interactive/polls/florida-us-house-16-polls-2026.html
@@ -173,22 +189,6 @@ https://www.nytimes.com/2026/09/04/us/lindsay-clancy-process-removing-juror.html
 **Israel Says It Is Cementing Its Foothold in Southern Lebanon**\
 `The recent capture of a strategic ridge has further entrenched the Israeli occupation of Lebanese territory, as efforts to broker lasting peace have floundered.`\
 https://www.nytimes.com/2026/09/04/world/middleeast/israel-captures-ridge-occupation-katz.html
-
-**Lindsay Clancy Trial Live Updates: After Judge States Intent to Declare Mistrial, Defense Mounts Final Appeal**\
-`The judge’s decision came after jurors sent another note saying they had not been able to reach a verdict. The judge gave the defense an hour to request a stay.`\
-https://www.nytimes.com/live/2026/09/04/us/lindsay-clancy-trial-deadlock
-
-**‘The Headlines’ News Quiz: Sept. 4, 2026**\
-`Following the news? Will Jarvis has some questions for you.`\
-https://www.nytimes.com/2026/09/04/podcasts/the-headlines/the-headlines-news-quiz-sept-4-2026.html
-
-**Philippines’ Vice President Faces Arrest Over Assassination Threats**\
-`A court issued a warrant for Sara Duterte, who is accused of having threatened President Ferdinand R. Marcos Jr. and two of his relatives.`\
-https://www.nytimes.com/2026/09/04/world/asia/sara-duterte-arrest-warrant-philippines.html
-
-**U.N. to Vote on African Proposal for a New World Map**\
-`The Equal Earth projection shows countries’ true size relative to one another, unlike the centuries-old Mercator map, which critics say makes Africa look smaller than it is.`\
-https://www.nytimes.com/2026/09/04/world/africa/world-map-projection-africa.html
 
 **Live Updates: U.S. Hiring Jumps, an Encouraging Sign for the Economy**\
 `Employers added 162,000 jobs in August, and the unemployment rate held steady at 4.1 percent. But wage growth is not keeping up with rising inflation.`\

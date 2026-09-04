@@ -1,3 +1,19 @@
+**Flashback: Your Weekly History Quiz, Sept. 5, 2026**\
+`Can you sort 8 historical events?`\
+https://www.nytimes.com/interactive/2026/09/04/upshot/flashback.html
+
+**Judge in Lindsay Clancy Trial Gives Defense Time to Appeal**\
+`Kevin Reddington, Lindsay Clancy’s lawyer, asked the judge for extra time to appeal to a higher court to avoid a mistrial.`\
+https://www.nytimes.com/video/us/100000011133807/lindsay-clancy-mistrial-appeal.html
+
+**Timothy Carney, Diplomat Who Went Places Others Avoided, Dies at 82**\
+`Insisting on seeing things for himself, even in hostile terrain, Mr. Carney opposed the closing of the U.S. embassy in Khartoum while Osama Bin Laden established himself there.`\
+https://www.nytimes.com/2026/09/04/obituaries/timothy-carney-dead.html
+
+**An Italian Designer’s Country and City Homes**\
+`The Italian interior designer Paola Moretti shows off her two very different homes: a pared-down mountain house and a city apartment in a converted church rectory.`\
+https://www.nytimes.com/video/t-magazine/100000011120851/an-italian-designers-country-and-city-homes.html
+
 **Who Is Ahead in Florida's 16th Congressional District?**\
 `Track the latest polls in Florida's 16th Congressional District.`\
 https://www.nytimes.com/interactive/polls/florida-us-house-16-polls-2026.html
