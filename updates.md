@@ -1,3 +1,11 @@
+**Yemen’s Houthis Push Toward Red Sea Strait as Ground Fighting Escalates**\
+`The Houthis, an Iran-backed militia, appear to be trying to gain control of a port city near the Bab al-Mandab Strait, a key choke point for global trade.`\
+https://www.nytimes.com/2026/09/04/world/middleeast/yemen-houthis-red-sea-strait.html
+
+**Lindsay Clancy Trial Live Updates: Judge Declines to Remove Holdout Juror**\
+`Lawyers argued over how the court should respond to a note from the foreperson regarding the juror, who the lead defense lawyer said is the lone obstacle to a “not guilty” verdict.`\
+https://www.nytimes.com/live/2026/09/04/us/lindsay-clancy-trial-deadlock
+
 **N.Y.P.D. Fatally Shoots Man With Knife on Brooklyn Bridge**\
 `The shooting, on Friday morning, happened days after the police shot and killed a woman in Times Square who had stabbed two people.`\
 https://www.nytimes.com/2026/09/04/nyregion/nypd-shooting-brooklyn-bridge.html

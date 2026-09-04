@@ -1,3 +1,7 @@
+**Yemen’s Houthis Push Toward Red Sea Strait as Ground Fighting Escalates**\
+`The Houthis, an Iran-backed militia, appear to be trying to gain control of a port city near the Bab al-Mandab Strait, a key choke point for global trade.`\
+https://www.nytimes.com/2026/09/04/world/middleeast/yemen-houthis-red-sea-strait.html
+
 **N.Y.P.D. Fatally Shoots Man With Knife on Brooklyn Bridge**\
 `The shooting, on Friday morning, happened days after the police shot and killed a woman in Times Square who had stabbed two people.`\
 https://www.nytimes.com/2026/09/04/nyregion/nypd-shooting-brooklyn-bridge.html
@@ -23,7 +27,7 @@ https://www.nytimes.com/2026/09/04/us/lindsay-clancy-process-removing-juror.html
 https://www.nytimes.com/2026/09/04/world/middleeast/israel-captures-ridge-occupation-katz.html
 
 **Lindsay Clancy Trial Live Updates: Judge Declines to Remove Holdout Juror**\
-`Lawyers argued over how the court should respond to a note from the foreperson regarding the juror, who appears to be the lone obstacle to an acquittal on first-degree murder charges.`\
+`Lawyers argued over how the court should respond to a note from the foreperson regarding the juror, who the lead defense lawyer said is the lone obstacle to a “not guilty” verdict.`\
 https://www.nytimes.com/live/2026/09/04/us/lindsay-clancy-trial-deadlock
 
 **‘The Headlines’ News Quiz: Sept. 4, 2026**\
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/09/04/opinion/college-freshman-education.html
 **7 New Movies Our Critics Are Talking About This Week**\
 `Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
 https://www.nytimes.com/2026/09/04/movies/new-movies-this-week-critics.html
-
-**After Fighting Russia Fiercely, He Wants to Forge Ukraine’s Path to Peace**\
-`Kyrylo Budanov, a decorated soldier and former military spy chief, advocates a negotiated settlement. Talks are expected to resume this month.`\
-https://www.nytimes.com/2026/09/04/world/europe/ukraine-russia-talks-kyrylo-budanov.html
 
 **Live Updates: 2 Trapped Workers Are Rescued After 9 Days in Nepal Tunnel**\
 `“Everybody’s sense of hope was waning,” said one survivor’s relative. Rescuers were searching for dozens of others inside the tunnel at a hydropower plant damaged by last week’s deadly floods.`\
