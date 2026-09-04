@@ -1,3 +1,7 @@
+**Hurricane Lowell Is Following a Familiar Path Near Hawaii**\
+`Experts and residents were closely watching the storm on Friday, looking for signs of its final path. “It’s too close for comfort,” one said.`\
+https://www.nytimes.com/2026/09/04/weather/hurricane-lowell-hawaii-iniki.html
+
 **Flashback: Your Weekly History Quiz, Sept. 5, 2026**\
 `Can you sort 8 historical events?`\
 https://www.nytimes.com/interactive/2026/09/04/upshot/flashback.html

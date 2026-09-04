@@ -1,3 +1,7 @@
+**Hurricane Lowell Is Following a Familiar Path Near Hawaii**\
+`Experts and residents were closely watching the storm on Friday, looking for signs of its final path. “It’s too close for comfort,” one said.`\
+https://www.nytimes.com/2026/09/04/weather/hurricane-lowell-hawaii-iniki.html
+
 **Flashback: Your Weekly History Quiz, Sept. 5, 2026**\
 `Can you sort 8 historical events?`\
 https://www.nytimes.com/interactive/2026/09/04/upshot/flashback.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/09/04/your-money/paying-off-mortgage-early-pros-con
 **Lindsay Clancy’s Lawyer Wants a Juror Removed. The Bar Will Be High.**\
 `Judges approach complaints about jurors with caution, mindful that in the event of a conviction, a removal could be grounds for an appeal.`\
 https://www.nytimes.com/2026/09/04/us/lindsay-clancy-process-removing-juror.html
-
-**Israel Says It Is Cementing Its Foothold in Southern Lebanon**\
-`The recent capture of a strategic ridge has further entrenched the Israeli occupation of Lebanese territory, as efforts to broker lasting peace have floundered.`\
-https://www.nytimes.com/2026/09/04/world/middleeast/israel-captures-ridge-occupation-katz.html
 
 **Live Updates: U.S. Hiring Jumps, an Encouraging Sign for the Economy**\
 `Employers added 162,000 jobs in August, and the unemployment rate held steady at 4.1 percent. But wage growth is not keeping up with rising inflation.`\
