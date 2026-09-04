@@ -1,3 +1,15 @@
+**Another Heart Drug Fails, Shocking Cardiologists**\
+`Doctors were hopeful the drug, which was being tested in a large clinical trial by Novartis, was going to be a powerful new tool to fight heart disease.`\
+https://www.nytimes.com/2026/09/04/science/heart-drug-fails-novartis-pelacarsen.html
+
+**Judge Once Again Blocks Trump Administration’s Plans to Restrict Mail-In Ballots**\
+`The ruling arrived before the Supreme Court could decide whether to intervene but appeared certain to set off yet another round of appeals.`\
+https://www.nytimes.com/2026/09/04/us/politics/judge-blocks-trump-mail-ballots.html
+
+**Hope Fading for Survivors 9 Days After Devastating Flood in Nepal**\
+`Manjita Pariyar’s uncle and cousin were in Timure when the village near the Nepal-China border was inundated with a wall of mud. After days of searching, many families like hers have begun performing symbolic cremations for lost family members.`\
+https://www.nytimes.com/video/world/asia/100000011131744/nepal-flood-rescue-missing-people.html
+
 **C.D.C. Says No Deaths This Year Attributed to Measles**\
 `The agency’s weekly update escalates a political fight after Pennsylvania said two deaths had been caused by the virus.`\
 https://www.nytimes.com/2026/09/04/us/politics/cdc-measles-deaths.html

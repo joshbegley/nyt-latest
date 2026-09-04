@@ -1,4 +1,4 @@
-**Another Heart Drug Fails, Shocking Cardiologists**\
+**The Heart Drug Pelacarsen Fails, Shocking Novartis and Cardiologists**\
 `Doctors were hopeful the drug, which was being tested in a large clinical trial by Novartis, was going to be a powerful new tool to fight heart disease.`\
 https://www.nytimes.com/2026/09/04/science/heart-drug-fails-novartis-pelacarsen.html
 
@@ -110,7 +110,7 @@ https://www.nytimes.com/es/2026/09/04/espanol/lindsay-clancy-juicio-que-paso.htm
 `Critics of ballot-marking devices have claimed that hackers could manipulate digital codes on ballots. Election experts say the systems are safe to use.`\
 https://www.nytimes.com/2026/09/04/us/politics/mullin-homeland-security-ballot-devices.html
 
-**9 Days After Flood, Two Men Are Pulled Alive From Mud-Filled Tunnels in Nepal**\
+**9 Days After Flood, 2 Men Are Pulled Alive From Mud-Filled Tunnels in Nepal**\
 `One of two workers rescued from a hydroelectric plant said he had recited prayers over and over while trapped deep underground. “How many days has it been?” he asked.`\
 https://www.nytimes.com/2026/09/04/world/asia/nepal-flood-tunnel-rescue.html
 
