@@ -1,3 +1,7 @@
+**Pentagon Agreement With N.I.H. on Biodefense Draws Alarm From Democrats**\
+`Under a new partnership, the Defense Department would play a larger role in biodefense and pandemic preparedness. Democrats warned it could allow a Pentagon cash grab.`\
+https://www.nytimes.com/2026/09/04/us/politics/pentagon-nih-biodefense-agreement.html
+
 **Hideki Shirakawa, Who Helped Turn a Lab Error Into a Nobel, Dies at 90**\
 `The Japanese chemist played a key role in the discovery of electricity-conducting plastics, largely by accident.`\
 https://www.nytimes.com/2026/09/04/science/hideki-shirakawa-dead.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/09/04/crosswords/strands-sidekick-916.html
 **Today’s Wordle Hints for Sept. 5, 2026**\
 `Scroll down for hints and conversation about the puzzle for Saturday, Sept. 5, 2026.`\
 https://www.nytimes.com/2026/09/04/crosswords/wordle-review-1904.html
-
-**US Open Day 5: Is Coco Gauff Now the Women’s Favorite?**\
-`The fourth seed and former champion is in ominous form in New York.`\
-https://www.nytimes.com/2026/09/04/podcasts/us-open-coco-gauff.html
 
 **2 Trapped Workers Are Rescued After 9 Days in Nepal Tunnel**\
 `“Everybody’s sense of hope was waning,” said one survivor’s relative. Rescuers were searching for dozens of others inside the tunnel at a hydropower project damaged by last week’s deadly floods.`\

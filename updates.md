@@ -1,3 +1,7 @@
+**Pentagon Agreement With N.I.H. on Biodefense Draws Alarm From Democrats**\
+`Under a new partnership, the Defense Department would play a larger role in biodefense and pandemic preparedness. Democrats warned it could allow a Pentagon cash grab.`\
+https://www.nytimes.com/2026/09/04/us/politics/pentagon-nih-biodefense-agreement.html
+
 **Hideki Shirakawa, Who Helped Turn a Lab Error Into a Nobel, Dies at 90**\
 `The Japanese chemist played a key role in the discovery of electricity-conducting plastics, largely by accident.`\
 https://www.nytimes.com/2026/09/04/science/hideki-shirakawa-dead.html

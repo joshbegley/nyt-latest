@@ -190,10 +190,6 @@ https://www.nytimes.com/2026/09/04/crosswords/connections-companion-1182.html
 `Scroll down for hints and conversation about the puzzle for Saturday, Sept. 5, 2026.`\
 https://www.nytimes.com/2026/09/04/crosswords/strands-sidekick-916.html
 
-**Today’s Wordle Hints for Sept. 5, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, Sept. 5, 2026.`\
-https://www.nytimes.com/2026/09/04/crosswords/wordle-review-1904.html
-
 **2 Trapped Workers Are Rescued After 9 Days in Nepal Tunnel**\
 `“Everybody’s sense of hope was waning,” said one survivor’s relative. Rescuers were searching for dozens of others inside the tunnel at a hydropower project damaged by last week’s deadly floods.`\
 https://www.nytimes.com/live/2026/09/04/world/nepal-flash-floods-rescue-tunnels
