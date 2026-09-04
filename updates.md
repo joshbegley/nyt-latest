@@ -1,3 +1,15 @@
+**Mark Walter, the Dodgers and Your Money**\
+`Behind the Dodgers’ soaring value: a billionaire, his entities and your nest egg.`\
+https://www.nytimes.com/2026/09/04/podcasts/mark-walter-the-dodgers-and-your-money.html
+
+**Detrás de las investigaciones sobre el empresario petrolero venezolano asociado con Trump**\
+`Alejandro Betancourt ha sido objeto de múltiples investigaciones. Ahora es el socio sin igual del gobierno de Estados Unidos en el intento del presidente Trump de controlar los recursos petroleros venezolanos.`\
+https://www.nytimes.com/es/2026/09/04/espanol/america-latina/alejandro-betancourt-petroleo-venezuela-trump.html
+
+**De la Espriella posa con cadáveres en una demostración de fuerza en Colombia**\
+`En un video publicado en redes sociales, el presidente colombiano calificó a la operación como un “golpe letal”.`\
+https://www.nytimes.com/es/2026/09/04/espanol/america-latina/espriella-posa-cadaveres-colombia.html
+
 **Clancy Trial Verdict May Hinge on a Single Holdout Juror**\
 `The jury has been deadlocked since at least Tuesday on whether to hold Lindsay Clancy legally responsible for the strangling deaths of her three children.`\
 https://www.nytimes.com/2026/09/04/us/judge-in-clancy-trial-to-hold-inquiry-into-holdout-juror.html

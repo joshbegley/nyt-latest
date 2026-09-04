@@ -1,3 +1,15 @@
+**Mark Walter, the Dodgers and Your Money**\
+`Behind the Dodgers’ soaring value: a billionaire, his entities and your nest egg.`\
+https://www.nytimes.com/2026/09/04/podcasts/mark-walter-the-dodgers-and-your-money.html
+
+**Detrás de las investigaciones sobre el empresario petrolero venezolano asociado con Trump**\
+`Alejandro Betancourt ha sido objeto de múltiples investigaciones. Ahora es el socio sin igual del gobierno de Estados Unidos en el intento del presidente Trump de controlar los recursos petroleros venezolanos.`\
+https://www.nytimes.com/es/2026/09/04/espanol/america-latina/alejandro-betancourt-petroleo-venezuela-trump.html
+
+**De la Espriella posa con cadáveres en una demostración de fuerza en Colombia**\
+`En un video publicado en redes sociales, el presidente colombiano calificó a la operación como un “golpe letal”.`\
+https://www.nytimes.com/es/2026/09/04/espanol/america-latina/espriella-posa-cadaveres-colombia.html
+
 **Clancy Trial Verdict May Hinge on a Single Holdout Juror**\
 `The jury has been deadlocked since at least Tuesday on whether to hold Lindsay Clancy legally responsible for the strangling deaths of her three children.`\
 https://www.nytimes.com/2026/09/04/us/judge-in-clancy-trial-to-hold-inquiry-into-holdout-juror.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/09/04/movies/filmstrips-archives.html
 **How ‘Come From Away’ Became a Lasting 9/11 Story**\
 `“Come From Away,” about a remote Newfoundland community that embraced grounded travelers, is playing all over the world — even in the town where it takes place.`\
 https://www.nytimes.com/2026/09/04/theater/come-from-away-musical-gander-canada.html
-
-**Krasner & Pollock, Lichtenstein and RM Make Art’s New Season Pop This Fall**\
-`Look for a wide-ranging survey of Black abstraction at MoMA PS1, Taryn Simon’s photographic explorations in the Guggenheim Museum rotunda, Eric Carle’s colorful collages and much more.`\
-https://www.nytimes.com/2026/09/04/arts/design/krasner-pollock-lichtenstein-fall-art.html
-
-**Book Review: ‘The Ghost of the Mountains,’ by Kulbhushansingh Suryawanshi**\
-`In “The Ghost of the Mountains,” Kulbhushansingh Suryawanshi proves there is no substitute for old-fashioned field study.`\
-https://www.nytimes.com/2026/09/04/books/review/the-ghost-of-the-mountains-kulbhushansingh-suryawanshi.html
-
-**The Search for New Cures Is Broken**\
-`It is too hard for medical researchers to launch clinical trials.`\
-https://www.nytimes.com/2026/09/04/opinion/clinical-trials-drugs-science.html
 
