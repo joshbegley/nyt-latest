@@ -1,3 +1,7 @@
+**Bringing Explosive Life to ‘Coyote vs. Acme’**\
+`The director Dave Green explains how he brought cartoons to life in “Coyote vs. Acme.”`\
+https://www.nytimes.com/video/movies/100000011088054/coyote-vs-acme-anatomy-of-a-scene.html
+
 **Reseña de ‘Coyote vs. Acme’: los explosivos siguen fallando**\
 `La película rescata a la perfección el tono de los “Looney Tunes” para contar una nueva historia.`\
 https://www.nytimes.com/es/2026/09/04/espanol/cultura/coyote-vs-acme.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/03/briefing/colleges-tax-exemption-gloria-steine
 **Art Gallery Shows to See in September**\
 `This week in Newly Reviewed, Will Heinrich covers a show that displays the power of community, Morgan O’Hara’s obsessive documentation and Noah Jemisin’s phantasms.`\
 https://www.nytimes.com/2026/09/03/arts/art-gallery-shows-to-see-in-september.html
-
-**The Joke That Started a Political Movement**\
-`“For more than a decade, the people in India were scared of questioning the government. Now, finally, people are no longer scared,” Abhijeet Dipke, a 30-year-old Indian university graduate whose viral X post led to the creation of the Cockroach Janta Party, tells Opinion Video.`\
-https://www.nytimes.com/video/opinion/100000011101922/the-joke-that-started-a-political-movement.html
 

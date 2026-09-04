@@ -1,3 +1,67 @@
+**Wineries Are Offering Bingo, Picnics, Jewelry … and Sometimes Wine**\
+`With slumping sales and fewer tourists, California winemakers have turned to special events and classes to woo customers — even those who don’t drink.`\
+https://www.nytimes.com/2026/09/04/dining/drinks/wineries-bingo-picnics-jewelry.html
+
+**Sandra Bullock, Nicole Kidman and the Other ‘Practical Magic 2’ Stars on the Unlikely Sequel**\
+`Sandra Bullock, Nicole Kidman, Joey King and Maisie Williams on the unlikely sequel, embracing their witchiness and their hopes for a third film.`\
+https://www.nytimes.com/2026/09/04/movies/practical-magic-sandra-bullock-nicole-kidman.html
+
+**Plumbing the Shipwrecks of an Infamous Pirate Cove**\
+`For the marine archaeologist Sean Kingsley, the most honest history can be found on the seafloor.`\
+https://www.nytimes.com/2026/09/04/science/archaeology-shipwrecks-pirates-kingsley.html
+
+**Word of the Day: avalanche**\
+`This word has appeared in 226 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/09/04/learning/word-of-the-day-avalanche.html
+
+**‘Come From Away’ Comes Home**\
+`“Come From Away,” a musical about ​a small Newfoundland town that embraced nearly 7,000 travelers ​when their planes were grounded after the Sept. 11 attacks, is playing all over the world​, including in the town where it’s set. Our theater reporter​, Michael Paulson​, ​went to see the town and the show.`\
+https://www.nytimes.com/video/theater/100000011077905/come-from-away-comes-home.html
+
+**F1: Kimi Antonelli Leads in Points, but Lando Norris Is Closing**\
+`The rapid climb of Norris is a reminder how Max Verstappen came from far behind last year to almost snatch the title.`\
+https://www.nytimes.com/2026/09/04/sports/f1-kimi-antonelli-championship-lando-norris.html
+
+**Remember Filmstrips? These Dedicated Souls Are Racing to Save Them**\
+`One of the 20th century’s biggest media formats was often thrown out in the rush to embrace VHS. But preservationists say visual history is being lost.`\
+https://www.nytimes.com/2026/09/04/movies/filmstrips-archives.html
+
+**How ‘Come From Away’ Became a Lasting 9/11 Story**\
+`“Come From Away,” about a remote Newfoundland community that embraced grounded travelers, is playing all over the world — even in the town where it takes place.`\
+https://www.nytimes.com/2026/09/04/theater/come-from-away-musical-gander-canada.html
+
+**Krasner & Pollock, Lichtenstein and RM Make Art’s New Season Pop This Fall**\
+`Look for a wide-ranging survey of Black abstraction at MoMA PS1, Taryn Simon’s photographic explorations in the Guggenheim Museum rotunda, Eric Carle’s colorful collages and much more.`\
+https://www.nytimes.com/2026/09/04/arts/design/krasner-pollock-lichtenstein-fall-art.html
+
+**Book Review: ‘The Ghost of the Mountains,’ by Kulbhushansingh Suryawanshi**\
+`In “The Ghost of the Mountains,” Kulbhushansingh Suryawanshi proves there is no substitute for old-fashioned field study.`\
+https://www.nytimes.com/2026/09/04/books/review/the-ghost-of-the-mountains-kulbhushansingh-suryawanshi.html
+
+**The Search for New Cures Is Broken**\
+`It is too hard for medical researchers to launch clinical trials.`\
+https://www.nytimes.com/2026/09/04/opinion/clinical-trials-drugs-science.html
+
+**Behind on 2030 Climate Goals, States Are Cutting or Even Scrapping Them**\
+`Ambitious aims have given way to political anxiety over rising costs for consumers.`\
+https://www.nytimes.com/2026/09/04/upshot/states-carbon-emissions-goals.html
+
+**The Brains of F1 Drivers Are Indeed Strange**\
+`They are moving too fast for the normal mind to keep up, but elite drivers have more densely packed brain cells where it counts and use their minds more efficiently.`\
+https://www.nytimes.com/2026/09/04/sports/f1-brains-drivers-racing.html
+
+**Are Lamps Objectively Better Than Overhead Lighting?**\
+`A ruling on a home décor dispute.`\
+https://www.nytimes.com/quiz/2026/09/04/magazine/home-lighting-hodgman-quiz.html
+
+**The New York Times News Quiz, September 4, 2026**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://www.nytimes.com/quiz/2026/09/04/briefing/weekly-news-quiz.html
+
+**Inside the Nepal Tunnel Rescue Operation**\
+`Two men have been freed after nine days trapped in a tunnel at the Upper Trishuli 3A hydropower plant. Rescuers are searching for dozens more.`\
+https://www.nytimes.com/2026/09/04/world/asia/nepal-flood-tunnel-rescue-operation.html
+
 **Bringing Explosive Life to ‘Coyote vs. Acme’**\
 `The director Dave Green explains how he brought cartoons to life in “Coyote vs. Acme.”`\
 https://www.nytimes.com/video/movies/100000011088054/coyote-vs-acme-anatomy-of-a-scene.html
@@ -133,68 +197,4 @@ https://www.nytimes.com/2026/09/03/us/politics/trump-acting-army-secretary.html
 **These Offbeat Wall Mirrors Do More Than Reflect**\
 `A roundup of colorful, intricate and otherwise unconventional pieces that will add personality to any room.`\
 https://www.nytimes.com/2026/09/03/t-magazine/best-decorative-mirrors.html
-
-**Rogers Stadium in Toronto Is Severely Damaged in Thunderstorm**\
-`The music venue, which opened in 2025, was built specifically for large concerts. The fate of its next show, featuring AC/DC, is unclear.`\
-https://www.nytimes.com/2026/09/03/world/canada/toronto-rogers-stadium-thunderstorm-damage.html
-
-**Trump to Break Ground on Arch Before Getting Approval**\
-`Doug Burgum, the interior secretary, announced plans to start work on the site of the 250-foot-tall triumphal arch. Final approval of the project is still pending.`\
-https://www.nytimes.com/2026/09/03/us/politics/trump-triumphal-arch-plans-approval.html
-
-**In a First, a Pig Kidney Kept a Patient Alive Until He Got a Human One**\
-`Tim Andrews was the first patient to receive a genetically modified pig kidney as a “bridge” to a human organ transplant.`\
-https://www.nytimes.com/2026/09/03/well/pig-kidney-bridge-transplant.html
-
-**Holdout Juror Throws the Clancy Murder Case Into Disarray**\
-`The five-week case looked set to end, until the jury sent a note saying that a member refused to recognize the proper definition of reasonable doubt. The defense lawyer said an inquiry was planned for Friday morning.`\
-https://www.nytimes.com/2026/09/03/us/holdout-juror-lindsay-clancy-trial.html
-
-**Cold Peanut Ginger Noodles**\
-`A combination of crunchy peanut butter and sesame oil gives the dressing an earthy nuttiness, which contrasts with the heat of chile crisp and tanginess of lime juice. But the real draw is a sprinkling of chopped crystallized ginger, which adds sweet-spicy chewiness amid the cold noodles and cucumbers.`\
-https://www.nytimes.com/video/dining/100000011126279/cold-peanut-ginger-noodles.html
-
-**Candidate Accused of Plotting to Plant Drugs on His Opponent**\
-`The narrow winner of the Republican primary for a Missouri House seat faces a federal charge.`\
-https://www.nytimes.com/2026/09/03/us/republican-primary-campaign-missouri-cocaine.html
-
-**Tesla Begins Offering Rides in a Car Without a Steering Wheel**\
-`The new Cybercab embodies Elon Musk’s vision of cars that drive themselves, but it is not clear when the vehicle will be widely available.`\
-https://www.nytimes.com/2026/09/03/business/tesla-cybercab-robotaxi-rides.html
-
-**Read the Missouri Supreme Court decision**\
-`The Missouri Supreme Court cleared the way for the state’s voters to decide in November whether to keep new congressional district boundaries redrawn to benefit Republicans.`\
-https://www.nytimes.com/interactive/2026/09/03/us/missouri-supreme-court-redistricting.html
-
-**Slava Veder, Whose Camera Captured a Defining Vietnam Homecoming, Dies at 99**\
-`His Pulitzer-winning photograph, “Burst of Joy,” documented an Air Force pilot’s reunion with his family after five years as a prisoner of war in Vietnam.`\
-https://www.nytimes.com/2026/09/03/us/slava-veder-dead.html
-
-**Proposal for White House Visitor Screening Center Advances**\
-`A federal panel again paved the way for one of President Trump’s construction projects, even as it heard opposition to another proposal to fence in a park north of the White House.`\
-https://www.nytimes.com/2026/09/03/us/politics/trump-white-house-visitor-center-planning-commission.html
-
-**Missouri Supreme Court Delivers Win for Democrats in Redistricting Case**\
-`The court said a map redrawn to benefit Republicans could not be used in November and said voters should decide on the new boundaries. The state attorney general vowed to appeal the decision.`\
-https://www.nytimes.com/2026/09/03/us/missouri-supreme-court-redistricting-referendum.html
-
-**New York Opens Inquiry Into Police Shooting of Pamela Cisneros After Times Square Stabbing**\
-`Pamela Cisneros was shot after stabbing two people, one fatally, on Monday. Under state law, Attorney General Letitia James must investigate all fatal shootings involving the police.`\
-https://www.nytimes.com/2026/09/03/nyregion/times-square-stabbing-pamela-cisneros.html
-
-**JD Vance Says He Wouldn’t Call Iran Conflict a War**\
-`In the first White House press briefing since Karoline Leavitt left as press secretary, the vice president suggested that when the conflict would end was up to Tehran.`\
-https://www.nytimes.com/2026/09/03/us/politics/vance-iran-press-briefing.html
-
-**Steinem’s N.Y.C. Brownstone Will Continue to Be a Sanctuary for Feminism**\
-`Following Ms. Steinem’s death on Wednesday, her foundation said her Upper East Side home would become a permanent space for organizing and activism.`\
-https://www.nytimes.com/2026/09/03/nyregion/gloria-steinem-home-new-york.html
-
-**Schools Aiding Minority Students Could Lose Tax-Exempt Status**\
-`Also, Gloria Steinem died at 92. Here’s the latest at the end of Thursday.`\
-https://www.nytimes.com/2026/09/03/briefing/colleges-tax-exemption-gloria-steinem.html
-
-**Art Gallery Shows to See in September**\
-`This week in Newly Reviewed, Will Heinrich covers a show that displays the power of community, Morgan O’Hara’s obsessive documentation and Noah Jemisin’s phantasms.`\
-https://www.nytimes.com/2026/09/03/arts/art-gallery-shows-to-see-in-september.html
 
