@@ -1,3 +1,7 @@
+**‘The Headlines’ News Quiz: Sept. 4, 2026**\
+`Following the news? Will Jarvis has some questions for you.`\
+https://www.nytimes.com/2026/09/04/podcasts/the-headlines/the-headlines-news-quiz-sept-4-2026.html
+
 **Philippines’ Vice President Faces Arrest Over Assassination Threats**\
 `A court issued a warrant for Sara Duterte, who is accused of having threatened President Ferdinand R. Marcos Jr. and two of his relatives.`\
 https://www.nytimes.com/2026/09/04/world/asia/sara-duterte-arrest-warrant-philippines.html
