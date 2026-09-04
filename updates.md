@@ -1,3 +1,15 @@
+**RFK Jr. Hires Army Doctor Who Opposed Covid Shots to Investigate if They Killed 2,500 Troops**\
+`In a legal deposition, the doctor, Theresa Long, compared immunizing service members against Covid to Nazi doctors experimenting on concentration camp prisoners.`\
+https://www.nytimes.com/2026/09/04/us/politics/military-covid-vaccine-deaths.html
+
+**What Lindsay Clancy’s Trial Tells Us About Ourselves**\
+`Postpartum psychosis is misunderstood and a poor fit for the justice system.`\
+https://www.nytimes.com/2026/09/04/opinion/lindsay-clancy-trial.html
+
+**M.T.A. Employee Struck and Killed While Working on the Subway Tracks**\
+`The employee was a construction flagger who notified trains that other transit workers were on the tracks. She was hit near the 161st Street-Yankee Stadium station in the Bronx on Thursday night.`\
+https://www.nytimes.com/2026/09/04/nyregion/mta-worker-death.html
+
 **9 Days After Flood, Two Men Are Pulled Alive From Mud-Filled Tunnels in Nepal**\
 `One of two workers rescued from a hydroelectric plant said he had recited prayers over and over while trapped deep underground. “How many days has it been?” he asked.`\
 https://www.nytimes.com/2026/09/04/world/asia/nepal-flood-tunnel-rescue.html
