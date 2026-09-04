@@ -1,3 +1,7 @@
+**How Gloria Steinem and Ms. Magazine Transformed the Publishing Industry**\
+`The feminist icon insisted that women were not a niche audience — and proved it in 1971 with the start of an influential publication owned and operated by them.`\
+https://www.nytimes.com/2026/09/04/business/media/gloria-steinem-ms-magazine.html
+
 **Lindsay Clancy’s Murder Trial Ended With a Hung Jury. What Now?**\
 `Ms. Clancy still faces murder charges for killing her three children. She is likely to remain in a hospital, and prosecutors may decide to retry her.`\
 https://www.nytimes.com/2026/09/04/us/lindsay-clancy-murder-hung-jury-what-next.html
