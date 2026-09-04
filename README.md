@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Sept. 4, 2026**\
+`Julian Xiao opens our solving weekend.`\
+https://www.nytimes.com/2026/09/03/crosswords/daily-puzzle-2026-09-04.html
+
 **Former Labor Secretary Stoked Dysfunction and Toxicity, Department Report Finds**\
 `Lori Chavez-DeRemer spent Labor Department funds on personal travel and tolerated harassment in the agency, its inspector general found.`\
 https://www.nytimes.com/2026/09/03/business/economy/labor-secretary-chavez-deremer-report.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/03/us/hyperbaric-chamber-child-death-michigan-se
 **El ICE omitió verificaciones básicas en su prisa por reclutar agentes, según un denunciante**\
 `Un funcionario que supervisó la evaluación de reclutas del ICE citó una “reducción de estándares sin precedentes” en medio de un aumento de contrataciones.`\
 https://www.nytimes.com/es/2026/09/03/espanol/estados-unidos/ice.html
-
-**Gene Bertoncini, Jazz Guitarist Who Dazzled With Subtlety, Dies at 89**\
-`He performed at the highest level for decades, sensitively backing singers like Tony Bennett and Lena Horne when not leading his own innovative groups.`\
-https://www.nytimes.com/2026/09/03/arts/music/gene-bertoncini-dead.html
 
