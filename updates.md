@@ -1,3 +1,7 @@
+**Israel Says It Is Cementing Its Foothold in Southern Lebanon**\
+`The recent capture of a strategic ridge has further entrenched the Israeli occupation of Lebanese territory, as efforts to broker lasting peace have floundered.`\
+https://www.nytimes.com/2026/09/04/world/middleeast/israel-captures-ridge-occupation-katz.html
+
 **Lindsay Clancy Trial Live Updates: Holdout Juror Draws Scrutiny as Deadlock Drags On**\
 `A defense lawyer said the judge in the high-profile murder case would hold an inquiry regarding the juror, who appears to be the lone obstacle to a unanimous verdict.`\
 https://www.nytimes.com/live/2026/09/04/us/lindsay-clancy-trial-deadlock

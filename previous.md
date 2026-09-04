@@ -1,3 +1,7 @@
+**Israel Says It Is Cementing Its Foothold in Southern Lebanon**\
+`The recent capture of a strategic ridge has further entrenched the Israeli occupation of Lebanese territory, as efforts to broker lasting peace have floundered.`\
+https://www.nytimes.com/2026/09/04/world/middleeast/israel-captures-ridge-occupation-katz.html
+
 **Lindsay Clancy Trial Live Updates: Holdout Juror Draws Scrutiny as Deadlock Drags On**\
 `A defense lawyer said the judge in the high-profile murder case would hold an inquiry regarding the juror, who appears to be the lone obstacle to a unanimous verdict.`\
 https://www.nytimes.com/live/2026/09/04/us/lindsay-clancy-trial-deadlock
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/09/04/opinion/gaza-hamas-palestinians.html
 **Alix Earle Reveals She Has a Breast Cancer Genetic Mutation. Should You Get Tested Too?**\
 `Genetic testing can reveal mutations in BRCA genes and others associated with increased cancer risk, but it isn’t recommended for everyone.`\
 https://www.nytimes.com/2026/09/04/well/brca-gene-test-breast-cancer.html
-
-**Germany’s Far Right, Edging Close to Power, Remains Close to Extremists**\
-`The Alternative for Germany party has tried to soften its hard-line image but is still privately working with extremists. It could win a state election on Sunday.`\
-https://www.nytimes.com/2026/09/04/world/europe/germany-afd-extremists.html
 
