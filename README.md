@@ -1,4 +1,4 @@
-**Lindsay Clancy Murder Trial: Read Kevin Reddington’s Request for an Emergency Stay**\
+**Lindsay Clancy Murder Trial: Read Kevin Reddington’s Emergency Petition**\
 `The judge in the Lindsay Clancy murder case said that he will declare a mistrial, but gave the defense an hour to request a stay of his planned decision from a higher court.`\
 https://www.nytimes.com/interactive/2026/09/04/us/lindsay-clancy-emergency-stay-petition.html
 
