@@ -1,3 +1,7 @@
+**Another Heart Drug Fails, Shocking Cardiologists**\
+`Doctors were hopeful the drug, which was being tested in a large clinical trial by Novartis, was going to be a powerful new tool to fight heart disease.`\
+https://www.nytimes.com/2026/09/04/science/heart-drug-fails-novartis-pelacarsen.html
+
 **C.D.C. Says No Deaths This Year Attributed to Measles**\
 `The agency’s weekly update escalates a political fight after Pennsylvania said two deaths had been caused by the virus.`\
 https://www.nytimes.com/2026/09/04/us/politics/cdc-measles-deaths.html
@@ -6,7 +10,7 @@ https://www.nytimes.com/2026/09/04/us/politics/cdc-measles-deaths.html
 `Lindsay Clancy’s murder case ended in a mistrial because of a hung jury on Friday. The charges against her for strangling her three young children in 2023 remain. The prosecution will now decide whether to try Clancy again.`\
 https://www.nytimes.com/video/us/100000011134188/lindsay-clancy-murder-case-mistrial-hung-jury.html
 
-**Judge Once Again Blocks Mail-In Ballot Rules**\
+**Judge Once Again Blocks Trump Administration’s Plans to Restrict Mail-In Ballots**\
 `The ruling arrived before the Supreme Court could decide whether to intervene but appeared certain to set off yet another round of appeals.`\
 https://www.nytimes.com/2026/09/04/us/politics/judge-blocks-trump-mail-ballots.html
 
@@ -35,7 +39,7 @@ https://www.nytimes.com/video/podcasts/the-daily/100000011134873/what-happens-to
 https://www.nytimes.com/2026/09/04/nyregion/adolescent-trans-care-mount-sinai-trump.html
 
 **Hope Fading for Survivors 9 Days After Devastating Flood in Nepal**\
-`Manjita Payari’s uncle and cousin were in Timure when the village near the Nepal-China border was inundated with a wall of mud. After days of searching, many families like hers have begun performing symbolic cremations for lost family members.`\
+`Manjita Pariyar’s uncle and cousin were in Timure when the village near the Nepal-China border was inundated with a wall of mud. After days of searching, many families like hers have begun performing symbolic cremations for lost family members.`\
 https://www.nytimes.com/video/world/asia/100000011131744/nepal-flood-rescue-missing-people.html
 
 **Ambassador Who Removed Kehinde Wiley Work Described It as a Lesbian Picnic**\
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/09/04/nyregion/mta-worker-death.html
 **ICE Agent Charged With Six Counts of Lying About Minnesota Shooting**\
 `The federal indictment against Christian Castro marked a rare instance of the Trump administration seeking to hold an immigration agent accountable for actions taken while on duty.`\
 https://www.nytimes.com/2026/09/04/us/christian-castro-ice-agent-charges-minnesota-shooting.html
-
-**How Gloria Steinem Changed Our Lives**\
-`Readers mourn the loss of the feminist icon.`\
-https://www.nytimes.com/2026/09/04/opinion/letters/gloria-steinem.html
 
 **U.S. Hiring Jumps, an Encouraging Sign for the Economy**\
 `Employers added 162,000 jobs in August, and the unemployment rate held steady at 4.1 percent. But wage growth is not keeping up with rising inflation.`\
