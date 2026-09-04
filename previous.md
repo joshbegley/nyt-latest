@@ -1,3 +1,7 @@
+**The Pros and Cons of Paying Off Your Mortgage Early**\
+`Homeowners who make extra payments can save thousands of dollars in interest. But, financial experts say, paying down other debt, with higher interest rates, may be a better option.`\
+https://www.nytimes.com/2026/09/04/your-money/the-pros-and-cons-of-paying-off-your-mortgage-early.html
+
 **Lindsay Clancy’s Lawyer Wants a Juror Removed. The Bar Will Be High.**\
 `Judges approach complaints about jurors with caution, mindful that in the event of a conviction, a removal could be grounds for an appeal.`\
 https://www.nytimes.com/2026/09/04/us/lindsay-clancy-process-removing-juror.html
@@ -182,11 +186,7 @@ https://www.nytimes.com/2026/09/04/movies/coyote-vs-acme-scene.html
 `A group run by doctors is helping terminally ill patients fulfill the legal requirements to die on their own terms.`\
 https://www.nytimes.com/2026/09/04/nyregion/medical-aid-in-dying-comes-to-new-york.html
 
-**To Save Gaza, Resist Hamas**\
-`If Western supporters of the Palestinians want to help Gaza, denounce Hamas.`\
-https://www.nytimes.com/2026/09/04/opinion/gaza-hamas-palestinians.html
-
-**Alix Earle Reveals She Has a Breast Cancer Genetic Mutation. Should You Get Tested Too?**\
-`Genetic testing can reveal mutations in BRCA genes and others associated with increased cancer risk, but it isn’t recommended for everyone.`\
-https://www.nytimes.com/2026/09/04/well/brca-gene-test-breast-cancer.html
+**Live Updates: 2 Trapped Workers Are Rescued After 9 Days in Nepal Tunnel**\
+`“Everybody’s sense of hope was waning,” said one survivor’s relative. Rescuers were searching for dozens of others inside the tunnel at a hydropower plant damaged by last week’s deadly floods.`\
+https://www.nytimes.com/live/2026/09/04/world/nepal-flash-floods-rescue-tunnels
 

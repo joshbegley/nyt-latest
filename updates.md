@@ -1,3 +1,11 @@
+**The Pros and Cons of Paying Off Your Mortgage Early**\
+`Homeowners who make extra payments can save thousands of dollars in interest. But, financial experts say, paying down other debt, with higher interest rates, may be a better option.`\
+https://www.nytimes.com/2026/09/04/your-money/the-pros-and-cons-of-paying-off-your-mortgage-early.html
+
+**Live Updates: 2 Trapped Workers Are Rescued After 9 Days in Nepal Tunnel**\
+`“Everybody’s sense of hope was waning,” said one survivor’s relative. Rescuers were searching for dozens of others inside the tunnel at a hydropower plant damaged by last week’s deadly floods.`\
+https://www.nytimes.com/live/2026/09/04/world/nepal-flash-floods-rescue-tunnels
+
 **Live Updates: U.S. Hiring Jumps, an Encouraging Sign for the Economy**\
 `Employers added 162,000 jobs in August, and the unemployment rate held steady at 4.1 percent. But wage growth is not keeping up with rising inflation.`\
 https://www.nytimes.com/live/2026/09/04/business/jobs-report-economy
