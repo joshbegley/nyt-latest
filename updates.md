@@ -1,3 +1,11 @@
+**Pablo Torre: We’re in a ‘Dysmorphic’ Era in Sports**\
+`Pablo Torre joins Natalie Kitroeff on “The Call” to talk about how his bombshell investigation into the Clippers and Steve Ballmer has resulted in the largest punishment in N.B.A. history.`\
+https://www.nytimes.com/video/sports/basketball/100000011132515/pablo-torre-were-in-a-dysmorphic-era-in-sports.html
+
+**Steinem’s N.Y.C. Brownstone Will Continue to Be a Sanctuary for Feminism**\
+`Following Ms. Steinem’s death on Wednesday, her foundation said her Upper East Side home would become a permanent space for organizing and activism.`\
+https://www.nytimes.com/2026/09/03/nyregion/gloria-steinem-home-new-york.html
+
 **F.C.C. Asks Court to Toss ABC Suit Over Broadcast Licenses**\
 `The network sued the agency last month to stop it from taking steps that could force ABC stations off the air. The F.C.C. said the lawsuit was premature.`\
 https://www.nytimes.com/2026/09/03/business/media/fcc-disney-abc-broadcast-licenses.html

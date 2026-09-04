@@ -1,3 +1,7 @@
+**Pablo Torre: We’re in a ‘Dysmorphic’ Era in Sports**\
+`Pablo Torre joins Natalie Kitroeff on “The Call” to talk about how his bombshell investigation into the Clippers and Steve Ballmer has resulted in the largest punishment in N.B.A. history.`\
+https://www.nytimes.com/video/sports/basketball/100000011132515/pablo-torre-were-in-a-dysmorphic-era-in-sports.html
+
 **F.C.C. Asks Court to Toss ABC Suit Over Broadcast Licenses**\
 `The network sued the agency last month to stop it from taking steps that could force ABC stations off the air. The F.C.C. said the lawsuit was premature.`\
 https://www.nytimes.com/2026/09/03/business/media/fcc-disney-abc-broadcast-licenses.html
@@ -70,7 +74,7 @@ https://www.nytimes.com/2026/09/03/nyregion/times-square-stabbing-pamela-cisnero
 `In the first White House press briefing since Karoline Leavitt left as press secretary, the vice president suggested that when the conflict would end was up to Tehran.`\
 https://www.nytimes.com/2026/09/03/us/politics/vance-iran-press-briefing.html
 
-**Steinem’s Home, Where Feminism Flourished, Will Remain a Gathering Place**\
+**Steinem’s N.Y.C. Brownstone Will Continue to Be a Sanctuary for Feminism**\
 `Following Ms. Steinem’s death on Wednesday, her foundation said her Upper East Side home would become a permanent space for organizing and activism.`\
 https://www.nytimes.com/2026/09/03/nyregion/gloria-steinem-home-new-york.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/03/business/media/fox-news-maria-bartiromo.html
 **Cleaner Air, Smarter Toddlers**\
 `New research links climate policies to improved early-childhood development.`\
 https://www.nytimes.com/2026/09/03/climate/cleaner-air-smarter-toddlers.html
-
-**Books Our Editors Loved This Week**\
-`Reading recommendations from critics and editors at The New York Times.`\
-https://www.nytimes.com/2026/09/03/books/review/new-recommended-books.html
 
