@@ -1,3 +1,11 @@
+**Caramelized Corn and Asparagus Pasta**\
+`This summery pasta features caramelized corn, crisp-tender asparagus and earthy turmeric, which provides the dish’s sunny hue.`\
+https://www.nytimes.com/video/dining/100000011125839/caramelized-corn-and-asparagus-pasta.html
+
+**Timothy Cruz, the Clancy Prosecutor, Often Takes a Conservative Approach**\
+`His choice to bring first-degree murder charges fits with his reputation for tough-on-crime tactics.`\
+https://www.nytimes.com/2026/09/04/us/clancy-prosecutor-timothy-cruz.html
+
 **How Gloria Steinem and Ms. Magazine Transformed the Publishing Industry**\
 `The feminist icon insisted that women were not a niche audience — and proved it in 1971 with the start of an influential publication owned and operated by them.`\
 https://www.nytimes.com/2026/09/04/business/media/gloria-steinem-ms-magazine.html

@@ -1,3 +1,11 @@
+**Caramelized Corn and Asparagus Pasta**\
+`This summery pasta features caramelized corn, crisp-tender asparagus and earthy turmeric, which provides the dish’s sunny hue.`\
+https://www.nytimes.com/video/dining/100000011125839/caramelized-corn-and-asparagus-pasta.html
+
+**Timothy Cruz, the Clancy Prosecutor, Often Takes a Conservative Approach**\
+`His choice to bring first-degree murder charges fits with his reputation for tough-on-crime tactics.`\
+https://www.nytimes.com/2026/09/04/us/clancy-prosecutor-timothy-cruz.html
+
 **Lindsay Clancy’s Murder Trial Ended With a Hung Jury. What Now?**\
 `Ms. Clancy still faces murder charges for killing her three children. She is likely to remain in a hospital, and prosecutors may decide to retry her.`\
 https://www.nytimes.com/2026/09/04/us/lindsay-clancy-murder-hung-jury-what-next.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/09/04/world/middleeast/lebanon-uae-pardon-egypt-dis
 **Gloria Steinem Found Community and Clout Over the Dinner Table**\
 `Neither a home cook nor an enthusiastic eater, she used the dinner table as a place to forge relationships and foster change.`\
 https://www.nytimes.com/2026/09/04/dining/gloria-steinem-dinners-food.html
-
-**Yemen’s Houthis Push Toward Red Sea Strait as Ground Fighting Escalates**\
-`The Houthis, an Iran-backed militia, appear to be trying to gain control of a port city near the Bab al-Mandab Strait, a key choke point for global trade.`\
-https://www.nytimes.com/2026/09/04/world/middleeast/yemen-houthis-red-sea-strait.html
-
-**N.Y.P.D. Fatally Shoots Man With Knife on Brooklyn Bridge**\
-`The shooting, on Friday morning, happened days after the police shot and killed a woman in Times Square who had stabbed two people.`\
-https://www.nytimes.com/2026/09/04/nyregion/nypd-shooting-brooklyn-bridge.html
 
 **U.S. Hiring Jumps, an Encouraging Sign for the Economy**\
 `Employers added 162,000 jobs in August, and the unemployment rate held steady at 4.1 percent. But wage growth is not keeping up with rising inflation.`\
