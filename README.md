@@ -6,7 +6,7 @@ https://www.nytimes.com/es/2026/09/04/espanol/america-latina/argentina-malvinas-
 `Abdulrahman al-Qaradawi was extradited from Lebanon to the Emirates, a close U.S. ally, after criticizing its government, in a case that alarmed human rights experts.`\
 https://www.nytimes.com/2026/09/04/world/middleeast/lebanon-uae-pardon-egypt-dissident.html
 
-**Gloria Steinem Found Community and Clout in Breaking Bread**\
+**Gloria Steinem Found Community and Clout Over the Dinner Table**\
 `Neither a home cook nor an enthusiastic eater, she used the dinner table as a place to forge relationships and foster change.`\
 https://www.nytimes.com/2026/09/04/dining/gloria-steinem-dinners-food.html
 
@@ -186,7 +186,7 @@ https://www.nytimes.com/2026/09/04/arts/music/cassandra-wilson-vocal-style-jazz.
 `Customs and Border Protection claimed that construction on a border security project in Big Bend National Park in Texas was limited to “survey and design” work. Visual Investigations’ satellite specialist Christoph Koettl tracked the activity and found evidence of patrol roads and vehicle barriers already being built.`\
 https://www.nytimes.com/video/us/100000011128810/big-bend-construction-border-wall.html
 
-**Live Updates: 2 Trapped Workers Are Rescued After 9 Days in Nepal Tunnel**\
+**2 Trapped Workers Are Rescued After 9 Days in Nepal Tunnel**\
 `“Everybody’s sense of hope was waning,” said one survivor’s relative. Rescuers were searching for dozens of others inside the tunnel at a hydropower plant damaged by last week’s deadly floods.`\
 https://www.nytimes.com/live/2026/09/04/world/nepal-flash-floods-rescue-tunnels
 
