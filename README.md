@@ -1,3 +1,7 @@
+**On Emma Prempeh’s Canvases, Countries Collide**\
+`The artist Emma Prempeh discusses her multifaceted sense of home and the freedom she’s found with a brush.`\
+https://www.nytimes.com/2026/09/04/t-magazine/emma-prempeh-painting.html
+
 **EE. UU. quiere el petróleo de estos 17 campos en Venezuela**\
 `Una empresa petrolera privada llegó a un acuerdo con el gobierno de Trump para desarrollar 17 áreas en Venezuela, un esfuerzo que los expertos dicen que tomará años y millardos de dólares.`\
 https://www.nytimes.com/es/2026/09/04/espanol/america-latina/venezuela-petroleo-mapas-trump.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/09/04/us/lindsay-clancy-trial-reasonable-doubt.html
 **‘It Was Insulting’: When Steinem Said Young Women Backed Sanders to Chase Men**\
 `During the 2016 presidential campaign, Gloria Steinem was asked about the young women supporting Bernie Sanders over Hillary Clinton. Her answer created a brief hullabaloo.`\
 https://www.nytimes.com/2026/09/04/us/politics/gloria-steinem-clinton-sanders-2016.html
-
-**Trump administration Moves to Drop Protections for More Wetlands**\
-`The proposed rule could strip federal protections from most U.S. wetlands, many of which help feed drinking water systems.`\
-https://www.nytimes.com/2026/09/04/climate/epa-wetlands-water-protections.html
 
 **U.S. Hiring Jumps, an Encouraging Sign for the Economy**\
 `Employers added 162,000 jobs in August, and the unemployment rate held steady at 4.1 percent. But wage growth is not keeping up with rising inflation.`\
