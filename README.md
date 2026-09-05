@@ -10,8 +10,8 @@ https://www.nytimes.com/2026/09/05/us/politics/missouri-supreme-court-voting-map
 `Aprovecha esa energía del regreso a clases para ponerte algunas metas nuevas.`\
 https://www.nytimes.com/es/2026/09/05/espanol/regreso-clases.html
 
-**Iran’s State Media Says U.S. Missiles Hit Iranian Oil Tanker Near Kharg**\
-`The United States military has not confirmed an attack. The reports came after a barrage of U.S. strikes in retaliation for Iranian attacks on ships and American forces.`\
+**U.S. Strikes Three Iranian ‘Shadow Network’ Oil Tankers, Military Says**\
+`The U.S. military said it retaliated after Iran launched missiles at two warships. The strikes came days after the two sides exchanged some of their most intense fire in weeks.`\
 https://www.nytimes.com/2026/09/05/world/middleeast/iran-us-kharg-oil-tanker-attack.html
 
 **The Purest American Culture Lives on at Local Festivals**\
