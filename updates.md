@@ -1,3 +1,7 @@
+**Missouri Asks Supreme Court to Allow Voting Map Benefiting Republicans**\
+`Missouri’s Supreme Court said a map redrawn to help Republicans could not be used in November and said voters should decide on the new boundaries.`\
+https://www.nytimes.com/2026/09/05/us/politics/missouri-supreme-court-voting-map.html
+
 **Putin Orders Pause in Kyiv Strikes Ahead of Visit by U.S. Envoys**\
 `Steve Witkoff, President Trump’s special envoy, and Jared Kushner, his son-in-law, arrived in Moscow to meet with the Russian leader. They plan to visit Kyiv next, in an effort to revive peace talks.`\
 https://www.nytimes.com/2026/09/05/world/europe/russia-ukraine-witkoff-kushner-moscow.html

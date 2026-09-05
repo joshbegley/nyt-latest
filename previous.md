@@ -1,3 +1,7 @@
+**Missouri Asks Supreme Court to Allow Voting Map Benefiting Republicans**\
+`Missouri’s Supreme Court said a map redrawn to help Republicans could not be used in November and said voters should decide on the new boundaries.`\
+https://www.nytimes.com/2026/09/05/us/politics/missouri-supreme-court-voting-map.html
+
 **Septiembre es el nuevo enero**\
 `Aprovecha esa energía del regreso a clases para ponerte algunas metas nuevas.`\
 https://www.nytimes.com/es/2026/09/05/espanol/regreso-clases.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/05/business/economy/california-forever-shipyard-
 **33 Albums and Shows We’re Looking Forward to This Fall**\
 `Some of pop’s highest-wattage stars (Charli XCX! Sombr!) hit the road, and artists including Riley Green, Miranda Lambert and Victoria Monét prepare anticipated new releases.`\
 https://www.nytimes.com/2026/09/05/arts/music/new-albums-and-tours-fall-preview.html
-
-**Inside the D.O.J.’s Investigation of Fauci and Other Virus Scientists**\
-`As Dr. Anthony Fauci has faced public scrutiny from congressional Republicans, the D.O.J. has pursued a quieter and more expansive effort against a wider circle of researchers.`\
-https://www.nytimes.com/2026/09/05/health/fauci-morens-covid-prosecutions.html
 
