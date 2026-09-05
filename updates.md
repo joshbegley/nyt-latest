@@ -1,3 +1,7 @@
+**Bakes for Your Late-Summer Harvest**\
+`Put your abundant crops toward zucchini bread, blueberry muffins, tomato cobbler and more.`\
+https://www.nytimes.com/2026/09/05/dining/bakes-for-your-late-summer-harvest.html
+
 **Missouri Asks Supreme Court to Allow Voting Map Benefiting Republicans**\
 `Missouri’s Supreme Court said a map redrawn to help Republicans could not be used in November and said voters should decide on the new boundaries.`\
 https://www.nytimes.com/2026/09/05/us/politics/missouri-supreme-court-voting-map.html

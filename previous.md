@@ -1,3 +1,7 @@
+**Bakes for Your Late-Summer Harvest**\
+`Put your abundant crops toward zucchini bread, blueberry muffins, tomato cobbler and more.`\
+https://www.nytimes.com/2026/09/05/dining/bakes-for-your-late-summer-harvest.html
+
 **Missouri Asks Supreme Court to Allow Voting Map Benefiting Republicans**\
 `Missouri’s Supreme Court said a map redrawn to help Republicans could not be used in November and said voters should decide on the new boundaries.`\
 https://www.nytimes.com/2026/09/05/us/politics/missouri-supreme-court-voting-map.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/05/books/review/the-living-realm-jordan-tannahil
 **California Forever’s Ambitious Plan Faces Another Setback**\
 `A legislative setback for a manufacturing and housing proposal shows how hard it remains to build in the largest state — and why a backlash against billionaires could make it even harder.`\
 https://www.nytimes.com/2026/09/05/business/economy/california-forever-shipyard-newsom.html
-
-**33 Albums and Shows We’re Looking Forward to This Fall**\
-`Some of pop’s highest-wattage stars (Charli XCX! Sombr!) hit the road, and artists including Riley Green, Miranda Lambert and Victoria Monét prepare anticipated new releases.`\
-https://www.nytimes.com/2026/09/05/arts/music/new-albums-and-tours-fall-preview.html
 
