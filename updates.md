@@ -1,3 +1,11 @@
+**Is Work Starting for Trump’s Arch? It Depends Who’s Asking.**\
+`The Justice Department told a court the government would only conduct archaeological excavation, a day after a Trump official announced the project was in motion.`\
+https://www.nytimes.com/2026/09/05/us/politics/trump-arch-justice-department.html
+
+**The Family Had Held Her Funeral, but She Was Clinging to Life**\
+`A rescue from a mostly buried house gave new hope to a town devastated by floods in Nepal. Earlier Saturday, another survivor had been pulled from a tunnel.`\
+https://www.nytimes.com/2026/09/05/world/asia/nepal-floods-chinese-worker-rescue.html
+
 **Looking Back on the Summer of High MAGA in Trump's Washington**\
 `Racecars, crypto, billionaires, troops, sequins and a bloody cage fight.`\
 https://www.nytimes.com/2026/09/05/us/politics/trump-maga-dc.html
