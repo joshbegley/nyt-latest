@@ -1,3 +1,7 @@
+**Putin Meets Witkoff and Kushner in Moscow to Discuss Ukraine War**\
+`President Vladimir V. Putin ordered a pause in strikes on Ukraine’s capital, Kyiv, ahead of the meeting with President Trump’s envoys: his son-in-law Jared Kushner and the businessman Steve Witkoff.`\
+https://www.nytimes.com/2026/09/05/world/europe/russia-ukraine-witkoff-kushner-moscow.html
+
 **¿Hay restos alienígenas en la Luna?**\
 `Unos investigadores buscan explorar la posibilidad de que partículas microscópicas desprendidas por civilizaciones extraterrestres se hayan acumulado en la superficie lunar, convirtiéndola en un archivo de tecnología extraterrestre.`\
 https://www.nytimes.com/es/2026/09/05/espanol/ciencia-y-tecnologia/restos-alienigenas-luna.html

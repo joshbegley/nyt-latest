@@ -70,8 +70,8 @@ https://www.nytimes.com/2026/09/05/opinion/ai-silicon-valley.html
 `A deadly campaign of Russian and Ukrainian airstrikes has escalated since the last U.S.-brokered negotiations stalled in February.`\
 https://www.nytimes.com/2026/09/05/world/europe/ukraine-russia-talks-wtk.html
 
-**Putin Orders Pause in Kyiv Strikes Ahead of Visit by U.S. Envoys**\
-`Steve Witkoff, President Trump’s special envoy, and Jared Kushner, his son-in-law, arrived in Moscow to meet with the Russian leader. They head to Kyiv next, in an effort to revive peace talks.`\
+**Putin Meets Witkoff and Kushner in Moscow to Discuss Ukraine War**\
+`President Vladimir V. Putin ordered a pause in strikes on Ukraine’s capital, Kyiv, ahead of the meeting with President Trump’s envoys: his son-in-law Jared Kushner and the businessman Steve Witkoff.`\
 https://www.nytimes.com/2026/09/05/world/europe/russia-ukraine-witkoff-kushner-moscow.html
 
 **Nepal Floods Buried a House. The Woman Inside Was Still Alive.**\
