@@ -1,3 +1,7 @@
+**Former Kentucky Governor Is Arrested Amid Child Support Battle**\
+`Matthew Bevin, the former Republican governor, was held in contempt for failing to abide by court orders to file financial disclosure documents, a lawyer said.`\
+https://www.nytimes.com/2026/09/04/us/politics/kentucky-governor-arrested-matt-bevin.html
+
 **The C.D.C. Is Waging a Political Fight Over Measles Deaths**\
 `After Pennsylvania reported two measles deaths, the C.D.C. took the highly unusual step of challenging the state. Our reporter Apoorva Mandavilli explains how this tension between the Trump administration and states over health issues is creating confusion for Americans.`\
 https://www.nytimes.com/video/us/100000011126903/the-cdc-is-waging-a-political-fight-over-measles-deaths.html
