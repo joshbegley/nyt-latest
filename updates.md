@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/asia/100000011135191/05vid-pattaya-embed-76297.html
+
 **NYT Crossword Answers for Sept. 5, 2026**\
 `Fritz Juhnke gives us plenty to chew on in this challenging puzzle.`\
 https://www.nytimes.com/2026/09/04/crosswords/daily-puzzle-2026-09-05.html

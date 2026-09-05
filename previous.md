@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/asia/100000011135191/05vid-pattaya-embed-76297.html
+
 **NYT Crossword Answers for Sept. 5, 2026**\
 `Fritz Juhnke gives us plenty to chew on in this challenging puzzle.`\
 https://www.nytimes.com/2026/09/04/crosswords/daily-puzzle-2026-09-05.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/04/us/the-local-follow-the-ice.html
 **Broken Egg Salad**\
 `This dish has all the elements of a classic egg salad — eggs, mayonnaise and mustard — with one radical change: The cooked eggs are simply torn into deliciously irregular chunks of whites and yolks in a more laid-back approach.`\
 https://www.nytimes.com/video/dining/100000011125926/broken-egg-salad.html
-
-**Lindsay Clancy Murder Trial: Read Kevin Reddington’s Emergency Petition**\
-`The judge in the Lindsay Clancy murder case said that he will declare a mistrial, but gave the defense an hour to request a stay of his planned decision from a higher court.`\
-https://www.nytimes.com/interactive/2026/09/04/us/lindsay-clancy-emergency-stay-petition.html
 
