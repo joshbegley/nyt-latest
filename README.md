@@ -1,3 +1,7 @@
+**Septiembre es el nuevo enero**\
+`Aprovecha esa energía del regreso a clases para ponerte algunas metas nuevas.`\
+https://www.nytimes.com/es/2026/09/05/espanol/regreso-clases.html
+
 **Iran’s State Media Says U.S. Missiles Hit Iranian Oil Tanker Near Kharg**\
 `The United States military has not confirmed an attack. The reports came after a barrage of U.S. strikes in retaliation for Iranian attacks on ships and American forces.`\
 https://www.nytimes.com/2026/09/05/world/middleeast/iran-us-kharg-oil-tanker-attack.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/05/arts/music/new-albums-and-tours-fall-preview.
 **Inside the D.O.J.’s Investigation of Fauci and Other Virus Scientists**\
 `As Dr. Anthony Fauci has faced public scrutiny from congressional Republicans, the D.O.J. has pursued a quieter and more expansive effort against a wider circle of researchers.`\
 https://www.nytimes.com/2026/09/05/health/fauci-morens-covid-prosecutions.html
-
-**Marian Anderson’s Ambition Was Always Clear: To Be a ‘Fine Artist’**\
-`Anderson’s importance as a barrier breaker in classical music has sometimes overshadowed the power of her artistry.`\
-https://www.nytimes.com/2026/09/05/arts/music/marian-anderson-classical-singer.html
 
