@@ -1,3 +1,7 @@
+**E. Coli Illnesses Linked to Frozen Blueberries Are Up to 17, F.D.A. Says**\
+`The affected frozen fruit products, which were distributed to 19 states and to retailers like Walmart and Publix, were recalled starting in July.`\
+https://www.nytimes.com/2026/09/05/health/frozen-blueberries-recall-e-coli.html
+
 **Protesters Demonstrate Against Germany’s Far-Right Party**\
 `Ahead of the election in the German state of Saxony-Anhalt on Sunday, protesters demonstrated against the AfD, the far-right party. Surveys suggest the AfD could be the first far-right party to win a state election since World War II.`\
 https://www.nytimes.com/video/world/europe/100000011135519/germany-afd-saxony-anhalt-protesters.html
