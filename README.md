@@ -1,3 +1,7 @@
+**Iran’s State Media Says U.S. Missiles Hit Iranian Oil Tanker Near Kharg**\
+`The United States military has not confirmed an attack. The reports came after a barrage of U.S. strikes in retaliation for Iranian attacks on ships and American forces.`\
+https://www.nytimes.com/2026/09/05/world/middleeast/iran-us-kharg-oil-tanker-attack.html
+
 **The Purest American Culture Lives on at Local Festivals**\
 `Turning hyperlocal traditions into public spectacle is a U.S. pastime.`\
 https://www.nytimes.com/2026/09/05/opinion/unique-american-local-festivals.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/05/health/fauci-morens-covid-prosecutions.html
 **Marian Anderson’s Ambition Was Always Clear: To Be a ‘Fine Artist’**\
 `Anderson’s importance as a barrier breaker in classical music has sometimes overshadowed the power of her artistry.`\
 https://www.nytimes.com/2026/09/05/arts/music/marian-anderson-classical-singer.html
-
-**Exercises to Build Rotational Strength as You Age**\
-`Twisting movements are a part of everyday life. These exercises can help you do them with ease and control.`\
-https://www.nytimes.com/2026/09/05/well/move/rotational-strength-power-exercises.html
 
