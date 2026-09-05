@@ -1,3 +1,7 @@
+**¿Hay restos alienígenas en la Luna?**\
+`Unos investigadores buscan explorar la posibilidad de que partículas microscópicas desprendidas por civilizaciones extraterrestres se hayan acumulado en la superficie lunar, convirtiéndola en un archivo de tecnología extraterrestre.`\
+https://www.nytimes.com/es/2026/09/05/espanol/ciencia-y-tecnologia/restos-alienigenas-luna.html
+
 **Trump Officials Draft Plan to Pay At-Home Parents, Using Funds for Working Ones**\
 `The proposed benefit, a top policy priority for Vice President JD Vance, would apply only to married couples and tap a fund intended to provide federal child care subsidies to working parents.`\
 https://www.nytimes.com/2026/09/05/us/politics/stay-at-home-parents-subsidies.html

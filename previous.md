@@ -1,3 +1,7 @@
+**¿Hay restos alienígenas en la Luna?**\
+`Unos investigadores buscan explorar la posibilidad de que partículas microscópicas desprendidas por civilizaciones extraterrestres se hayan acumulado en la superficie lunar, convirtiéndola en un archivo de tecnología extraterrestre.`\
+https://www.nytimes.com/es/2026/09/05/espanol/ciencia-y-tecnologia/restos-alienigenas-luna.html
+
 **Trump Officials Draft Plan to Pay At-Home Parents, Using Funds for Working Ones**\
 `The proposed benefit, a top policy priority for Vice President JD Vance, would apply only to married couples and tap a fund intended to provide federal child care subsidies to working parents.`\
 https://www.nytimes.com/2026/09/05/us/politics/stay-at-home-parents-subsidies.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/05/world/europe/russia-war-mobilization-draft.ht
 **3 Drugs Older People May Be Overusing**\
 `Not all older people need these medications, and they can carry increased risks.`\
 https://www.nytimes.com/2026/09/05/well/older-people-drugs-overuse.html
-
-**What to Do With Europe’s ‘Zombie Churches’? These Artists Have Some Ideas.**\
-`As the continent’s ties to Christianity fade, churches are being abandoned. But some see a chance to transform them into communal spaces like care centers or venues for the arts.`\
-https://www.nytimes.com/2026/09/05/arts/europe-empty-churches.html
 
