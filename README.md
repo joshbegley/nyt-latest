@@ -1,3 +1,11 @@
+**The Fall of James Orr, the Man Called Farage’s Brain**\
+`James Orr, who has ties to Peter Thiel and JD Vance, was suspended from Reform U.K. after he was filmed apparently arranging contributions from a man posing as a foreign donor.`\
+https://www.nytimes.com/2026/09/05/world/europe/reform-uk-james-orr-expose.html
+
+**Una rutina para desarrollar tu fuerza rotacional**\
+`Los movimientos de torsión son parte de la vida cotidiana. Estos ejercicios pueden ayudarte a hacerlos con facilidad y control.`\
+https://www.nytimes.com/es/2026/09/05/espanol/ejercicios-fuerza-rotacional.html
+
 **Por qué el hackeo a Hugging Face debería preocuparte más**\
 `El ataque de un “colectivo” agresivo de agentes de OpenAI muestra el peligro de los sistemas de IA capaces de organizarse entre ellos.`\
 https://www.nytimes.com/es/2026/09/05/espanol/negocios/hackeo-hugging-face-riesgo-ia.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/05/us/elections/appeals-court-voter-data.html
 **German Far-Right Surges, in Threat to Postwar Taboo on Extremists in Power**\
 `Sunday’s vote in the state of Saxony-Anhalt could produce the strongest showing in the history of the Alternative for Germany party, and potentially a far-right government in the statehouse.`\
 https://www.nytimes.com/2026/09/05/world/europe/germany-afd-saxony-anhalt.html
-
-**Quote of the Day: Steinem Focused on Wins Despite Recent Blows**\
-`Quotation of the Day for Saturday, September 5, 2026.`\
-https://www.nytimes.com/2026/09/05/pageoneplus/quote-of-the-day-steinem-focused-on-wins-despite-recent-blows.html
-
-****\
-`Volunteer officers stood guard in downtown Pattaya.`\
-https://www.nytimes.com/video/embedded/world/asia/100000011135195/05vid-pattaya-volunteers-88157.html
 
