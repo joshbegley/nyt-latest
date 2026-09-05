@@ -1,4 +1,8 @@
 ****\
+`Volunteer officers stood guard in downtown Pattaya.`\
+https://www.nytimes.com/video/embedded/world/asia/100000011135195/05vid-pattaya-volunteers-88157.html
+
+****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/asia/100000011135191/05vid-pattaya-embed-76297.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/04/opinion/lindsay-clancy-trial.html
 **The Local: Follow the Ice**\
 `Plus, we talk to the man in the rotating refrigerator.`\
 https://www.nytimes.com/2026/09/04/us/the-local-follow-the-ice.html
-
-**Broken Egg Salad**\
-`This dish has all the elements of a classic egg salad — eggs, mayonnaise and mustard — with one radical change: The cooked eggs are simply torn into deliciously irregular chunks of whites and yolks in a more laid-back approach.`\
-https://www.nytimes.com/video/dining/100000011125926/broken-egg-salad.html
 
