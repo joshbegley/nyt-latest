@@ -1,3 +1,7 @@
+**Judge Will Not Block Pentagon Move to Fire Stars and Stripes Journalists**\
+`A judge appeared skeptical of the journalists’ arguments that they were fired for coverage of worsening conditions on a Navy warship.`\
+https://www.nytimes.com/2026/09/04/us/politics/stars-and-stripes-journalists-fired.html
+
 **Dale Caldwell, New Jersey’s Lt. Governor, Is Said to be Under Investigation for Ethics Violations**\
 `An outside law firm has begun an investigation into Dale Caldwell, according to two Democrats familiar with the inquiry. He also serves as secretary of state.`\
 https://www.nytimes.com/2026/09/04/nyregion/new-jersey-dale-caldwell-ethics-investigation.html

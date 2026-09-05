@@ -1,3 +1,7 @@
+**Judge Will Not Block Pentagon Move to Fire Stars and Stripes Journalists**\
+`A judge appeared skeptical of the journalists’ arguments that they were fired for coverage of worsening conditions on a Navy warship.`\
+https://www.nytimes.com/2026/09/04/us/politics/stars-and-stripes-journalists-fired.html
+
 **Dale Caldwell, New Jersey’s Lt. Governor, Is Said to be Under Investigation for Ethics Violations**\
 `An outside law firm has begun an investigation into Dale Caldwell, according to two Democrats familiar with the inquiry. He also serves as secretary of state.`\
 https://www.nytimes.com/2026/09/04/nyregion/new-jersey-dale-caldwell-ethics-investigation.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/04/obituaries/timothy-carney-dead.html
 **An Italian Designer’s Country and City Homes**\
 `The Italian interior designer Paola Moretti shows off her two very different homes: a pared-down mountain house and a city apartment in a converted church rectory.`\
 https://www.nytimes.com/video/t-magazine/100000011120851/an-italian-designers-country-and-city-homes.html
-
-**Who Is Ahead in Florida's 16th Congressional District?**\
-`Track the latest polls in Florida's 16th Congressional District.`\
-https://www.nytimes.com/interactive/polls/florida-us-house-16-polls-2026.html
 
