@@ -1,3 +1,7 @@
+**Ossoff and Talarico to Share Fund-Raising Event in Hollywood**\
+`The event with the Georgia and Texas Democrats will be hosted by Shonda Rhimes.`\
+https://www.nytimes.com/2026/09/05/us/politics/ossoff-talarico-rhimes-fundraiser.html
+
 **U.S. Strikes Three Iranian ‘Shadow Network’ Oil Tankers, Military Says**\
 `The U.S. military said it retaliated after Iran launched missiles at two warships. The strikes came days after the two sides exchanged some of their most intense fire in weeks.`\
 https://www.nytimes.com/2026/09/05/world/middleeast/iran-us-kharg-oil-tanker-attack.html

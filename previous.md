@@ -1,3 +1,7 @@
+**Ossoff and Talarico to Share Fund-Raising Event in Hollywood**\
+`The event with the Georgia and Texas Democrats will be hosted by Shonda Rhimes.`\
+https://www.nytimes.com/2026/09/05/us/politics/ossoff-talarico-rhimes-fundraiser.html
+
 **Bakes for Your Late-Summer Harvest**\
 `Put your abundant crops toward zucchini bread, blueberry muffins, tomato cobbler and more.`\
 https://www.nytimes.com/2026/09/05/dining/bakes-for-your-late-summer-harvest.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/05/books/review/harlan-coben-plot-twist-writing-
 **Book Review: ‘The Living Realm,’ by Jordan Tannahill**\
 `In “The Living Realm,” an expat in Germany is visited by phantoms.`\
 https://www.nytimes.com/2026/09/05/books/review/the-living-realm-jordan-tannahill.html
-
-**California Forever’s Ambitious Plan Faces Another Setback**\
-`A legislative setback for a manufacturing and housing proposal shows how hard it remains to build in the largest state — and why a backlash against billionaires could make it even harder.`\
-https://www.nytimes.com/2026/09/05/business/economy/california-forever-shipyard-newsom.html
 
