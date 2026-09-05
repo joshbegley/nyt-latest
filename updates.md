@@ -1,3 +1,11 @@
+**Here Is Where Ukraine Peace Talks Stand, as a New Round Approaches**\
+`A deadly campaign of Russian and Ukrainian airstrikes has escalated since the last U.S.-brokered negotiations stalled in February.`\
+https://www.nytimes.com/2026/09/05/world/europe/ukraine-russia-talks-wtk.html
+
+**Trump Envoys Arrive in Moscow for Talks on Ukraine War**\
+`Steve Witkoff, President Trump’s special envoy, and Jared Kushner, his son-in-law, plan to visit Kyiv next, in an effort to revive peace negotiations between Russia and Ukraine.`\
+https://www.nytimes.com/2026/09/05/world/europe/russia-ukraine-witkoff-kushner-moscow.html
+
 **Chinese Worker Rescued From Tunnel in Nepal 10 Days After Floods**\
 `The improbable rescue came a day after two other workers were recovered from a buried tunnel.`\
 https://www.nytimes.com/2026/09/05/world/asia/nepal-floods-chinese-worker-rescue.html
