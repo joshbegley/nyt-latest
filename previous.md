@@ -1,3 +1,11 @@
+**A Hard Decision for the Hard-Nosed Prosecutor in Clancy Triple-Murder Case**\
+`After a mistrial, Timothy Cruz must decide whether to retry Lindsay Clancy on first-degree murder charges, downgrade the charges or drop the case.`\
+https://www.nytimes.com/2026/09/05/us/timothy-cruz-lindsay-clancy-retrial-decision.html
+
+**Trump’s Super PAC Will Spend $10 Million on Texas Senate Race**\
+`A financial filing announcing the TV and digital ad buy is the first general election spending by MAGA Inc. The group intends to boost the Republican nominee, Ken Paxton.`\
+https://www.nytimes.com/2026/09/05/us/politics/trump-maga-inc-super-pac.html
+
 **¿Hay restos alienígenas en la Luna?**\
 `Unos investigadores buscan explorar la posibilidad de que partículas microscópicas desprendidas por civilizaciones extraterrestres se hayan acumulado en la superficie lunar, convirtiéndola en un archivo de tecnología extraterrestre.`\
 https://www.nytimes.com/es/2026/09/05/espanol/ciencia-y-tecnologia/restos-alienigenas-luna.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/05/realestate/apartment-rentals-leaky-windows.ht
 **In Red States, Law-and-Order Republicans Turn Against Flock Cameras**\
 `The governors of Texas and Florida have taken steps to curtail the use of license-plate readers, even as the police say they help with solving crime.`\
 https://www.nytimes.com/2026/09/05/us/red-states-republicans-flock-cameras.html
-
-**Putin Denies a Draft Is Coming, but Some Russian Men Are Taking No Chances**\
-`As the fear of a possible mobilization becomes a fixture of daily life across Russia, many men are deciding whether to flee, hide or sit tight.`\
-https://www.nytimes.com/2026/09/05/world/europe/russia-war-mobilization-draft.html
-
-**3 Drugs Older People May Be Overusing**\
-`Not all older people need these medications, and they can carry increased risks.`\
-https://www.nytimes.com/2026/09/05/well/older-people-drugs-overuse.html
 

@@ -1,3 +1,11 @@
+**A Hard Decision for the Hard-Nosed Prosecutor in Clancy Triple-Murder Case**\
+`After a mistrial, Timothy Cruz must decide whether to retry Lindsay Clancy on first-degree murder charges, downgrade the charges or drop the case.`\
+https://www.nytimes.com/2026/09/05/us/timothy-cruz-lindsay-clancy-retrial-decision.html
+
+**Trump’s Super PAC Will Spend $10 Million on Texas Senate Race**\
+`A financial filing announcing the TV and digital ad buy is the first general election spending by MAGA Inc. The group intends to boost the Republican nominee, Ken Paxton.`\
+https://www.nytimes.com/2026/09/05/us/politics/trump-maga-inc-super-pac.html
+
 **Putin Meets Witkoff and Kushner in Moscow to Discuss Ukraine War**\
 `President Vladimir V. Putin ordered a pause in strikes on Ukraine’s capital, Kyiv, ahead of the meeting with President Trump’s envoys: his son-in-law Jared Kushner and the businessman Steve Witkoff.`\
 https://www.nytimes.com/2026/09/05/world/europe/russia-ukraine-witkoff-kushner-moscow.html
