@@ -1,3 +1,11 @@
+**Latimore, R&B Singer Known for ‘Let’s Straighten It Out,’ Dies at 86**\
+`The Blues Hall of Famer became a sensation in 1974 with his hit song “Let’s Straighten It Out.”`\
+https://www.nytimes.com/2026/09/05/arts/music/latimore-dead.html
+
+**New York City Supports Push to Reopen Columbia Pathway to the Public**\
+`Community members and students sued the school last year to reopen the gates, which were closed during protests against Israel’s war in Gaza.`\
+https://www.nytimes.com/2026/09/05/nyregion/columbia-university-college-walk.html
+
 **A Hard Decision for the Hard-Nosed Prosecutor in Clancy Triple-Murder Case**\
 `After a mistrial, Timothy Cruz must decide whether to retry Lindsay Clancy on first-degree murder charges, downgrade the charges or drop the case.`\
 https://www.nytimes.com/2026/09/05/us/timothy-cruz-lindsay-clancy-retrial-decision.html
