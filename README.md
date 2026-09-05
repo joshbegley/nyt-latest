@@ -1,3 +1,7 @@
+**Appeals Court Maintains Block on Federal Voter Identification Tool**\
+`A federal appeals court panel declined to let Homeland Security reopen access to a voter-screening tool that incorporated Social Security data.`\
+https://www.nytimes.com/2026/09/05/us/elections/appeals-court-voter-data.html
+
 **German Far-Right Surges, in Threat to Postwar Taboo on Extremists in Power**\
 `Sunday’s vote in the state of Saxony-Anhalt could produce the strongest showing in the history of the Alternative for Germany party, and potentially a far-right government in the statehouse.`\
 https://www.nytimes.com/2026/09/05/world/europe/germany-afd-saxony-anhalt.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/dining/100000011125839/caramelized-corn-and-aspara
 **Timothy Cruz, the Clancy Prosecutor, Often Takes a Conservative Approach**\
 `His choice to bring first-degree murder charges fits with his reputation for tough-on-crime tactics.`\
 https://www.nytimes.com/2026/09/04/us/clancy-prosecutor-timothy-cruz.html
-
-**Lindsay Clancy’s Murder Trial Ended With a Hung Jury. What Now?**\
-`Ms. Clancy still faces murder charges for killing her three children. She is likely to remain in a hospital, and prosecutors may decide to retry her.`\
-https://www.nytimes.com/2026/09/04/us/lindsay-clancy-murder-hung-jury-what-next.html
 
