@@ -1,3 +1,7 @@
+**Appeals Court Maintains Block on Federal Voter Identification Tool**\
+`A federal appeals court panel declined to let Homeland Security reopen access to a voter-screening tool that incorporated Social Security data.`\
+https://www.nytimes.com/2026/09/05/us/elections/appeals-court-voter-data.html
+
 ****\
 `Sailors and Marines of the U.S.S. Abraham Lincoln enjoyed time off in the Thai beach town of Pattaya after more than nine months at sea.`\
 https://www.nytimes.com/video/embedded/world/asia/100000011135191/05vid-pattaya-embed-76297.html
