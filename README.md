@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Sept. 5, 2026**\
+`Fritz Juhnke gives us plenty to chew on in this challenging puzzle.`\
+https://www.nytimes.com/2026/09/04/crosswords/daily-puzzle-2026-09-05.html
+
 **Former Kentucky Governor Is Arrested Amid Child Support Battle**\
 `Matthew Bevin, the former Republican governor, was held in contempt for failing to abide by court orders to file financial disclosure documents, a lawyer said.`\
 https://www.nytimes.com/2026/09/04/us/politics/kentucky-governor-arrested-matt-bevin.html
@@ -10,8 +14,8 @@ https://www.nytimes.com/video/us/100000011126903/the-cdc-is-waging-a-political-f
 `Filings made Friday in The New York Times’s closely watched lawsuit against OpenAI and Microsoft included a range of copyright law and cultural references.`\
 https://www.nytimes.com/2026/09/04/technology/openai-microsoft-new-york-times-lawsuit.html
 
-**Pentagon Subjects Roughly 50 Members of the Joint Staff to Polygraph Tests in Expanded Leak Hunt**\
-`The aggressive effort comes in the wake of news reports about the military’s diminished stocks of crucial munitions as the U.S. fights Iran.`\
+**In Major Leak Hunt, Pentagon Gives Polygraph Tests to Joint Staff Members**\
+`About 50 people were tested, an unparalleled inquiry that comes in the wake of news reports about the war with Iran and the U.S. military’s diminished stocks of munitions.`\
 https://www.nytimes.com/2026/09/04/us/politics/pentagon-staff-polygraph-tests.html
 
 **Judge Will Not Block Pentagon Move to Fire Stars and Stripes Journalists**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/dining/100000011125926/broken-egg-salad.html
 **Lindsay Clancy Murder Trial: Read Kevin Reddington’s Emergency Petition**\
 `The judge in the Lindsay Clancy murder case said that he will declare a mistrial, but gave the defense an hour to request a stay of his planned decision from a higher court.`\
 https://www.nytimes.com/interactive/2026/09/04/us/lindsay-clancy-emergency-stay-petition.html
-
-**Hurricane Lowell Is Following a Familiar Path Near Hawaii**\
-`Experts and residents were closely watching the storm on Friday, looking for signs of its final path. “It’s too close for comfort,” one said.`\
-https://www.nytimes.com/2026/09/04/weather/hurricane-lowell-hawaii-iniki.html
 
