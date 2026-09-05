@@ -1,4 +1,8 @@
 ****\
+`Sailors and Marines of the U.S.S. Abraham Lincoln enjoyed time off in the beach town of Pattaya after more than nine months at sea.`\
+https://www.nytimes.com/video/embedded/world/asia/100000011135191/05vid-pattaya-embed-76297.html
+
+****\
 `Volunteer officers stood guard in downtown Pattaya.`\
 https://www.nytimes.com/video/embedded/world/asia/100000011135195/05vid-pattaya-volunteers-88157.html
 
