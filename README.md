@@ -1,3 +1,23 @@
+**The Purest American Culture Lives on at Local Festivals**\
+`Turning hyperlocal traditions into public spectacle is a U.S. pastime.`\
+https://www.nytimes.com/2026/09/05/opinion/unique-american-local-festivals.html
+
+**Summer Has Gotten Much Hotter. See How Bad It Is Where You Live.**\
+`The notion of enduring the summer rather than embracing it has spread far beyond the Sun Belt.`\
+https://www.nytimes.com/interactive/2026/09/05/opinion/editorials/extreme-heat-summer.html
+
+**Trump’s Empire of Extraction Will Backfire**\
+`A hazy privatization process will not bring democratic change in Venezuela closer. It will push it further away.`\
+https://www.nytimes.com/2026/09/05/opinion/trump-venezuela-oil-delcy-betancourt.html
+
+**Not So Supreme, Mr. Roberts**\
+`Courting authoritarianism with a rapacious Trump.`\
+https://www.nytimes.com/2026/09/05/opinion/not-so-supreme-mr-roberts.html
+
+**How Scared Should We Be of A.I. Right Now?**\
+`The dark and distressing way that Silicon Valley talks about A.I. can be traced to a philosophy that influenced many tech executives.`\
+https://www.nytimes.com/2026/09/05/opinion/ai-silicon-valley.html
+
 **Here Is Where Ukraine Peace Talks Stand, as a New Round Approaches**\
 `A deadly campaign of Russian and Ukrainian airstrikes has escalated since the last U.S.-brokered negotiations stalled in February.`\
 https://www.nytimes.com/2026/09/05/world/europe/ukraine-russia-talks-wtk.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/09/05/arts/music/marian-anderson-classical-singer.h
 **Exercises to Build Rotational Strength as You Age**\
 `Twisting movements are a part of everyday life. These exercises can help you do them with ease and control.`\
 https://www.nytimes.com/2026/09/05/well/move/rotational-strength-power-exercises.html
-
-**Denée Benton Wants to Come Back as ‘a Detached, Chaotic Gemini’**\
-`“I feel like that’s what Steve Lacy gives,” the “Gilded Age” actor says. She’s a fan of his new album, as well as Zora Neale Hurston and nude beaches.`\
-https://www.nytimes.com/2026/09/05/arts/television/denee-benton-the-gilded-age.html
-
-**Can Art Revitalize a Small Mountain Town in North Carolina?**\
-`In North Carolina’s Lost Provinces, residents see the arts as a pathway to sustainability and maintaining community.`\
-https://www.nytimes.com/2026/09/05/arts/design/lost-province-center-lansing-north-carolina.html
-
-**A Glitz-Free Place Named for Trump? Welcome to the Golan Heights.**\
-`The bare-bones village of prefab homes has none of the gilded Trump aesthetic, and the Israelis there are weary of being seen as a gauge of their country’s roller-coaster view of the president.`\
-https://www.nytimes.com/2026/09/05/world/middleeast/israel-golan-trump-heights.html
-
-**How Naomi Osaka Became the Fashion Queen of the Tennis Court**\
-`At the U.S. Open she is playing a whole new style game.`\
-https://www.nytimes.com/2026/09/05/style/naomi-osaka-fashion-us-open.html
-
-**The Generation That’s Never Had to Say ‘Hello?’**\
-`Now that there’s rarely any mystery to who’s calling, Gen Z has adopted a range of custom phone greetings — including no greeting at all.`\
-https://www.nytimes.com/2026/09/05/style/gen-z-alpha-phone-greetings-etiquette.html
 
