@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Sept. 6, 2026**\
+`Catch a few double features in John Kugelman’s illustrated crossword.`\
+https://www.nytimes.com/2026/09/05/crosswords/daily-puzzle-2026-09-06.html
+
 **E. Coli Illnesses Linked to Frozen Blueberries Are Up to 17, F.D.A. Says**\
 `The affected frozen fruit products, which were distributed to 19 states and to retailers like Walmart and Publix, were recalled starting in July.`\
 https://www.nytimes.com/2026/09/05/health/frozen-blueberries-recall-e-coli.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/05/arts/television/silo-season-3-finale.html
 **Authors Wrangle With Publishers Over $1.5 Billion Anthropic A.I. Settlement**\
 `The tech giant must pay $3,000 per pirated book that it used to train its chatbot. Many authors fear they could lose funds to others in the book business.`\
 https://www.nytimes.com/2026/09/05/books/anthropic-settlement-ai-copyright-books.html
-
-**Gallup Polls Show Democrats Outnumber Republicans Ahead of 2026 Midterm Elections**\
-`Data from Gallup shows that Democrats and Democratic-leaning independents have their largest advantage over Republicans since 2008.`\
-https://www.nytimes.com/2026/09/05/us/politics/democrats-republicans-voters-gallup-midterms.html
 
