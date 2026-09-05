@@ -1,3 +1,31 @@
+**Chinese Worker Rescued From Tunnel in Nepal 10 Days After Floods**\
+`The improbable rescue came a day after two other workers were recovered from a buried tunnel.`\
+https://www.nytimes.com/2026/09/05/world/asia/nepal-floods-chinese-worker-rescue.html
+
+**Following Stolen Cars From Canada to Russia**\
+`How two investigative reporters for The Times learned where many of the luxury cars stolen to order in Canada are actually going, and why.`\
+https://www.nytimes.com/2026/09/05/world/canada/stolen-cars-canada-russia-trade-war-tariffs.html
+
+**My Husband Read My Journal and Now He’s Furious. Was I in the Wrong?**\
+`I had kept a log of the fights we had, to help sort through my emotions.`\
+https://www.nytimes.com/2026/09/05/magazine/husband-journal-therapy-ethics.html
+
+**NYT Connections Answers for September 6, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Sept. 6, 2026.`\
+https://www.nytimes.com/2026/09/05/crosswords/connections-companion-1183.html
+
+**NYT Strands Hints for September 6, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Sept. 6, 2026.`\
+https://www.nytimes.com/2026/09/05/crosswords/strands-sidekick-917.html
+
+**Today’s Wordle Hints for September 6, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Sept. 6, 2026.`\
+https://www.nytimes.com/2026/09/05/crosswords/wordle-review-1905.html
+
+**Scenic Route**\
+`The season’s new releases give us a cultural road map, but the most rewarding reading, listening and watching comes from the detours.`\
+https://www.nytimes.com/2026/09/05/briefing/scenic-route.html
+
 **The Fall of James Orr, the Man Called Farage’s Brain**\
 `James Orr, who has ties to Peter Thiel and JD Vance, was suspended from Reform U.K. after he was filmed apparently arranging contributions from a man posing as a foreign donor.`\
 https://www.nytimes.com/2026/09/05/world/europe/reform-uk-james-orr-expose.html

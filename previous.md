@@ -1,3 +1,31 @@
+**Chinese Worker Rescued From Tunnel in Nepal 10 Days After Floods**\
+`The improbable rescue came a day after two other workers were recovered from a buried tunnel.`\
+https://www.nytimes.com/2026/09/05/world/asia/nepal-floods-chinese-worker-rescue.html
+
+**Following Stolen Cars From Canada to Russia**\
+`How two investigative reporters for The Times learned where many of the luxury cars stolen to order in Canada are actually going, and why.`\
+https://www.nytimes.com/2026/09/05/world/canada/stolen-cars-canada-russia-trade-war-tariffs.html
+
+**My Husband Read My Journal and Now He’s Furious. Was I in the Wrong?**\
+`I had kept a log of the fights we had, to help sort through my emotions.`\
+https://www.nytimes.com/2026/09/05/magazine/husband-journal-therapy-ethics.html
+
+**NYT Connections Answers for September 6, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Sept. 6, 2026.`\
+https://www.nytimes.com/2026/09/05/crosswords/connections-companion-1183.html
+
+**NYT Strands Hints for September 6, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Sept. 6, 2026.`\
+https://www.nytimes.com/2026/09/05/crosswords/strands-sidekick-917.html
+
+**Today’s Wordle Hints for September 6, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Sept. 6, 2026.`\
+https://www.nytimes.com/2026/09/05/crosswords/wordle-review-1905.html
+
+**Scenic Route**\
+`The season’s new releases give us a cultural road map, but the most rewarding reading, listening and watching comes from the detours.`\
+https://www.nytimes.com/2026/09/05/briefing/scenic-route.html
+
 **The Fall of James Orr, the Man Called Farage’s Brain**\
 `James Orr, who has ties to Peter Thiel and JD Vance, was suspended from Reform U.K. after he was filmed apparently arranging contributions from a man posing as a foreign donor.`\
 https://www.nytimes.com/2026/09/05/world/europe/reform-uk-james-orr-expose.html
@@ -169,32 +197,4 @@ https://www.nytimes.com/2026/09/05/world/asia/museum-britain-naga-human-remains.
 **Trump revitaliza a los separatistas en Canadá**\
 `Inspirados en el movimiento MAGA, los separatistas de Alberta están presionando para separarse de Canadá.`\
 https://www.nytimes.com/es/2026/09/05/espanol/opinion/canada-trump-separatistas-alberta.html
-
-**Cuando la vida de un destacado ‘Youtuber’ del cuidado del césped se salió de control**\
-`Muchos creen que Greg Chism es raro, o algo peor. Él dice que solo seguía los incentivos de la plataforma.`\
-https://www.nytimes.com/es/2026/09/05/espanol/youtuber-falsa-acusacion-bad-baby.html
-
-**How the Host of ‘Inside Edition’ Made the News Cycle Work for Her**\
-`Eva Pilgrim can make time for a full day of tapings, Pilates, and taking her daughter to school, too.`\
-https://www.nytimes.com/interactive/2026/09/05/nyregion/routine-eva-pilgrim.html
-
-**Consejos para viajar durante el embarazo**\
-`Puede ser difícil anticipar cómo los viajes podrían afectar un embarazo. Investigar un poco y hacer preparativos sencillos pueden hacer que todo transcurra sin contratiempos.`\
-https://www.nytimes.com/es/2026/09/05/espanol/estilos-de-vida/viajar-embarazo-consejos.html
-
-**The Ice Cream Queen of the Bronx**\
-`Rina Bajana, 32, spends seven hours a day driving a Mister Softee truck in New York City. Her customers make her feel like a celebrity.`\
-https://www.nytimes.com/2026/09/05/nyregion/mister-softee-ice-cream.html
-
-**NYT Spelling Bee Answers for September 5, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/09/05/crosswords/spelling-bee-forum.html
-
-**Appeals Court Maintains Block on Federal Voter Identification Tool**\
-`A federal appeals court panel declined to let Homeland Security reopen access to a voter-screening tool that incorporated Social Security data.`\
-https://www.nytimes.com/2026/09/05/us/elections/appeals-court-voter-data.html
-
-**German Far-Right Surges, in Threat to Postwar Taboo on Extremists in Power**\
-`Sunday’s vote in the state of Saxony-Anhalt could produce the strongest showing in the history of the Alternative for Germany party, and potentially a far-right government in the statehouse.`\
-https://www.nytimes.com/2026/09/05/world/europe/germany-afd-saxony-anhalt.html
 
