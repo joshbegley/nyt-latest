@@ -1,4 +1,4 @@
-**A Sympathetic Plaintiff and Well-Crafted Defense Dominated Clancy Trial**\
+**A Sympathetic Defendant and Well-Crafted Defense Dominated Clancy Trial**\
 `The defense lawyer for Lindsay Clancy showed empathy for his client in showcasing her mental health problems. That may have made all the difference.`\
 https://www.nytimes.com/2026/09/05/us/lindsay-clancy-trial-defense-prosecutor-tactics.html
 
