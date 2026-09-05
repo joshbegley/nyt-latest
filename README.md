@@ -1,3 +1,7 @@
+**Trump Officials Draft Plan to Pay At-Home Parents, Using Funds for Working Ones**\
+`The proposed move, a top policy priority for Vice President JD Vance, would apply only to married couples and tap a fund intended to provide federal child care subsidies to working parents.`\
+https://www.nytimes.com/2026/09/05/us/politics/stay-at-home-parents-subsidies.html
+
 **Elecciones intermedias en EE. UU.: cada vez más estadounidenses se identifican como demócratas**\
 `Los datos de Gallup muestran que los demócratas y los independientes con inclinaciones demócratas tienen su mayor ventaja sobre los republicanos desde 2008.`\
 https://www.nytimes.com/es/2026/09/05/espanol/estados-unidos/elecciones-intermedias-encuestas-democratas.html
@@ -39,7 +43,7 @@ https://www.nytimes.com/es/2026/09/05/espanol/regreso-clases.html
 https://www.nytimes.com/2026/09/05/world/middleeast/iran-us-kharg-oil-tanker-attack.html
 
 **The Purest American Culture Lives on at Local Festivals**\
-`Turning hyperlocal traditions into public spectacle is a U.S. pastime.`\
+`Turning local traditions into public spectacle is a U.S. pastime.`\
 https://www.nytimes.com/2026/09/05/opinion/unique-american-local-festivals.html
 
 **Summer Has Gotten Much Hotter. See How Bad It Is Where You Live.**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/05/well/older-people-drugs-overuse.html
 **What to Do With Europe’s ‘Zombie Churches’? These Artists Have Some Ideas.**\
 `As the continent’s ties to Christianity fade, churches are being abandoned. But some see a chance to transform them into communal spaces like care centers or venues for the arts.`\
 https://www.nytimes.com/2026/09/05/arts/europe-empty-churches.html
-
-**The Latest Wealth Flex: Big Trees**\
-`More than ever, rich property owners are spending huge sums on full-grown oaks, palms and baobabs. They don’t have the time or patience to watch them grow.`\
-https://www.nytimes.com/2026/09/05/style/the-latest-wealth-flex-big-trees.html
 
