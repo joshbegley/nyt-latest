@@ -1,3 +1,7 @@
+**Is Work Starting for Trump’s Arch? It Depends Who’s Asking.**\
+`The Justice Department told a court the government would only conduct archaeological excavation, a day after a Trump official announced the project was in motion.`\
+https://www.nytimes.com/2026/09/05/us/politics/trump-arch-justice-department.html
+
 **Huckabee Condemns ‘Terrorist’ Attacks on Palestinians in West Bank Town Hall**\
 `Mike Huckabee, the U.S. ambassador to Israel, made a rare trip to meet with Palestinians after international backlash over attacks by Israeli settlers.`\
 https://www.nytimes.com/2026/09/05/world/middleeast/huckabee-west-bank-settler-attacks.html
@@ -54,8 +58,8 @@ https://www.nytimes.com/2026/09/05/world/europe/ukraine-russia-talks-wtk.html
 `Steve Witkoff, President Trump’s special envoy, and Jared Kushner, his son-in-law, arrived in Moscow to meet with the Russian leader. They head to Kyiv next, in an effort to revive peace talks.`\
 https://www.nytimes.com/2026/09/05/world/europe/russia-ukraine-witkoff-kushner-moscow.html
 
-**Two Survivors Rescued in Nepal 10 Days After Floods**\
-`The improbable rescues came a day after two others were recovered from a buried tunnel.`\
+**The Family Had Held Her Funeral, but She Was Clinging to Life**\
+`A rescue from a mostly buried house gave new hope to a town devastated by floods in Nepal. Earlier Saturday, another survivor had been pulled from a tunnel.`\
 https://www.nytimes.com/2026/09/05/world/asia/nepal-floods-chinese-worker-rescue.html
 
 **Following Stolen Cars From Canada to Russia**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/05/t-magazine/fall-knits-tweed-mens-fashion.html
 **Kenyans Made a Living Writing College Essays. Then A.I. Arrived.**\
 `Thousands of Kenyans made a living writing essays for overseas students. With A.I., the work has dried up, a warning for online gig work that has been a global lifeline.`\
 https://www.nytimes.com/2026/09/05/technology/kenya-college-essays-ai.html
-
-**Book Review: ‘All the Presidents’ Wars,’ by Peter Bergen**\
-`In “All the Presidents’ Wars,” the journalist Peter Bergen traces the many missteps of U.S. military action in the Middle East.`\
-https://www.nytimes.com/2026/09/05/books/review/all-the-presidents-wars-peter-bergen.html
 
