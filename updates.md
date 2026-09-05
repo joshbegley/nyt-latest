@@ -1,3 +1,11 @@
+**Elecciones intermedias en EE. UU.: cada vez más estadounidenses se identifican como demócratas**\
+`Los datos de Gallup muestran que los demócratas y los independientes con inclinaciones demócratas tienen su mayor ventaja sobre los republicanos desde 2008.`\
+https://www.nytimes.com/es/2026/09/05/espanol/estados-unidos/elecciones-intermedias-encuestas-democratas.html
+
+**Nepal Floods Buried a House. The Woman Inside Was Still Alive.**\
+`A rescue from a mostly buried house gave new hope to a town devastated by floods in Nepal. Earlier Saturday, another survivor had been pulled from a tunnel.`\
+https://www.nytimes.com/2026/09/05/world/asia/nepal-floods-chinese-worker-rescue.html
+
 **Pierre Damas Bel Should Still Be Alive**\
 `The price of unprotected status can be very high.`\
 https://www.nytimes.com/2026/09/05/opinion/columnists/pierre-damas-bel-haiti-trump.html
