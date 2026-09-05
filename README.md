@@ -11,7 +11,7 @@ https://www.nytimes.com/2026/09/05/pageoneplus/quote-of-the-day-steinem-focused-
 https://www.nytimes.com/video/embedded/world/asia/100000011135195/05vid-pattaya-volunteers-88157.html
 
 ****\
-`Sailors and Marines of the U.S.S. Abraham Lincoln enjoyed time off in the beach town of Pattaya after more than nine months at sea.`\
+`Sailors and Marines of the U.S.S. Abraham Lincoln enjoyed time off in the Thai beach town of Pattaya after more than nine months at sea.`\
 https://www.nytimes.com/video/embedded/world/asia/100000011135191/05vid-pattaya-embed-76297.html
 
 **NYT Crossword Answers for Sept. 5, 2026**\
