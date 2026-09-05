@@ -1,3 +1,7 @@
+**Protesters Demonstrate Against Germany’s Far-Right Party**\
+`Ahead of the election in the German state of Saxony-Anhalt on Sunday, protesters demonstrated against the AfD, the far-right party. Surveys suggest the AfD could be the first far-right party to win a state election since World War II.`\
+https://www.nytimes.com/video/world/europe/100000011135519/germany-afd-saxony-anhalt-protesters.html
+
 **Robin Morgan, Voice of Radical Feminism, Dies at 85**\
 `She edited the landmark 1970 anthology “Sisterhood Is Powerful,” led Ms. magazine and helped build the institutions of the modern feminist movement.`\
 https://www.nytimes.com/2026/09/05/us/robin-morgan-dead.html
