@@ -1,3 +1,19 @@
+**How the Host of ‘Inside Edition’ Made the News Cycle Work for Her**\
+`Eva Pilgrim can make time for a full day of tapings, Pilates, and taking her daughter to school, too.`\
+https://www.nytimes.com/interactive/2026/09/05/nyregion/routine-eva-pilgrim.html
+
+**Consejos para viajar durante el embarazo**\
+`Puede ser difícil anticipar cómo los viajes podrían afectar un embarazo. Investigar un poco y hacer preparativos sencillos pueden hacer que todo transcurra sin contratiempos.`\
+https://www.nytimes.com/es/2026/09/05/espanol/estilos-de-vida/viajar-embarazo-consejos.html
+
+**The Ice Cream Queen of the Bronx**\
+`Rina Bajana, 32, spends seven hours a day driving a Mister Softee truck in New York City. Her customers make her feel like a celebrity.`\
+https://www.nytimes.com/2026/09/05/nyregion/mister-softee-ice-cream.html
+
+**NYT Spelling Bee Answers for September 5, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/09/05/crosswords/spelling-bee-forum.html
+
 **Appeals Court Maintains Block on Federal Voter Identification Tool**\
 `A federal appeals court panel declined to let Homeland Security reopen access to a voter-screening tool that incorporated Social Security data.`\
 https://www.nytimes.com/2026/09/05/us/elections/appeals-court-voter-data.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/09/04/us/politics/mullin-homeland-security-ballot-d
 **9 Days After Flood, 2 Men Are Pulled Alive From Mud-Filled Tunnels in Nepal**\
 `One of two workers rescued from a hydroelectric plant said he had recited prayers over and over while trapped deep underground. “How many days has it been?” he asked.`\
 https://www.nytimes.com/2026/09/04/world/asia/nepal-flood-tunnel-rescue.html
-
-**RFK Jr. Hires Army Doctor Who Opposed Covid Shots to Investigate if They Killed 2,500 Troops**\
-`In a legal deposition, the doctor, Theresa Long, compared immunizing service members against Covid to Nazi doctors experimenting on concentration camp prisoners.`\
-https://www.nytimes.com/2026/09/04/us/politics/military-covid-vaccine-deaths.html
-
-**Influencers, Noise and Weed: Has the U.S. Open Become a ‘Zoo’?**\
-`As the Open grows ever more popular, tennis fans wonder if “the people’s tournament” has become too rowdy.`\
-https://www.nytimes.com/2026/09/04/nyregion/us-open-social-media-influencers.html
-
-**Caramelized Corn and Asparagus Pasta**\
-`This summery pasta features caramelized corn, crisp-tender asparagus and earthy turmeric, which provides the dish’s sunny hue.`\
-https://www.nytimes.com/video/dining/100000011125839/caramelized-corn-and-asparagus-pasta.html
-
-**Timothy Cruz, the Clancy Prosecutor, Often Takes a Conservative Approach**\
-`His choice to bring first-degree murder charges fits with his reputation for tough-on-crime tactics.`\
-https://www.nytimes.com/2026/09/04/us/clancy-prosecutor-timothy-cruz.html
 

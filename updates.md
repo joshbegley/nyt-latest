@@ -1,3 +1,19 @@
+**How the Host of ‘Inside Edition’ Made the News Cycle Work for Her**\
+`Eva Pilgrim can make time for a full day of tapings, Pilates, and taking her daughter to school, too.`\
+https://www.nytimes.com/interactive/2026/09/05/nyregion/routine-eva-pilgrim.html
+
+**Consejos para viajar durante el embarazo**\
+`Puede ser difícil anticipar cómo los viajes podrían afectar un embarazo. Investigar un poco y hacer preparativos sencillos pueden hacer que todo transcurra sin contratiempos.`\
+https://www.nytimes.com/es/2026/09/05/espanol/estilos-de-vida/viajar-embarazo-consejos.html
+
+**The Ice Cream Queen of the Bronx**\
+`Rina Bajana, 32, spends seven hours a day driving a Mister Softee truck in New York City. Her customers make her feel like a celebrity.`\
+https://www.nytimes.com/2026/09/05/nyregion/mister-softee-ice-cream.html
+
+**NYT Spelling Bee Answers for September 5, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/09/05/crosswords/spelling-bee-forum.html
+
 **Appeals Court Maintains Block on Federal Voter Identification Tool**\
 `A federal appeals court panel declined to let Homeland Security reopen access to a voter-screening tool that incorporated Social Security data.`\
 https://www.nytimes.com/2026/09/05/us/elections/appeals-court-voter-data.html
