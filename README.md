@@ -1,3 +1,11 @@
+**Latimore, R&B Singer Known for ‘Let’s Straighten It Out,’ Dies at 86**\
+`The Blues Hall of Famer became a sensation in 1974 with his hit song “Let’s Straighten It Out.”`\
+https://www.nytimes.com/2026/09/05/arts/music/latimore-dead.html
+
+**New York City Supports Push to Reopen Columbia Pathway to the Public**\
+`Community members and students sued the school last year to reopen the gates, which were closed during protests against Israel’s war in Gaza.`\
+https://www.nytimes.com/2026/09/05/nyregion/columbia-university-college-walk.html
+
 **A Hard Decision for the Hard-Nosed Prosecutor in Clancy Triple-Murder Case**\
 `After a mistrial, Timothy Cruz must decide whether to retry Lindsay Clancy on first-degree murder charges, downgrade the charges or drop the case.`\
 https://www.nytimes.com/2026/09/05/us/timothy-cruz-lindsay-clancy-retrial-decision.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/05/world/africa/sudan-chemical-weapons-war.html
 **Is There Alien Debris on the Moon? Some Scientists Plan to Find Out.**\
 `Researchers want to explore the idea that microscopic particles shed by alien civilizations have accumulated on the lunar surface, making it an archive of extraterrestrial technology.`\
 https://www.nytimes.com/2026/09/05/science/space/is-there-alien-debris-on-the-moon-some-scientists-plan-to-find-out.html
-
-**Is Your Landlord Required to Fix a Leaky Window?**\
-`The issue can lead to mold and structural damage. But the law offers ways to address such situations.`\
-https://www.nytimes.com/2026/09/05/realestate/apartment-rentals-leaky-windows.html
-
-**In Red States, Law-and-Order Republicans Turn Against Flock Cameras**\
-`The governors of Texas and Florida have taken steps to curtail the use of license-plate readers, even as the police say they help with solving crime.`\
-https://www.nytimes.com/2026/09/05/us/red-states-republicans-flock-cameras.html
 
