@@ -1,3 +1,11 @@
+**German Far-Right Surges, in Threat to Postwar Taboo on Extremists in Power**\
+`Sunday’s vote in the state of Saxony-Anhalt could produce the strongest showing in the history of the Alternative for Germany party, and potentially a far-right government in the statehouse.`\
+https://www.nytimes.com/2026/09/05/world/europe/germany-afd-saxony-anhalt.html
+
+**Quote of the Day: Steinem Focused on Wins Despite Recent Blows**\
+`Quotation of the Day for Saturday, September 5, 2026.`\
+https://www.nytimes.com/2026/09/05/pageoneplus/quote-of-the-day-steinem-focused-on-wins-despite-recent-blows.html
+
 ****\
 `Volunteer officers stood guard in downtown Pattaya.`\
 https://www.nytimes.com/video/embedded/world/asia/100000011135195/05vid-pattaya-volunteers-88157.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/04/us/clancy-prosecutor-timothy-cruz.html
 **Lindsay Clancy’s Murder Trial Ended With a Hung Jury. What Now?**\
 `Ms. Clancy still faces murder charges for killing her three children. She is likely to remain in a hospital, and prosecutors may decide to retry her.`\
 https://www.nytimes.com/2026/09/04/us/lindsay-clancy-murder-hung-jury-what-next.html
-
-**What Lindsay Clancy’s Trial Tells Us About Ourselves**\
-`Postpartum psychosis is misunderstood and a poor fit for the justice system.`\
-https://www.nytimes.com/2026/09/04/opinion/lindsay-clancy-trial.html
-
-**The Local: Follow the Ice**\
-`Plus, we talk to the man in the rotating refrigerator.`\
-https://www.nytimes.com/2026/09/04/us/the-local-follow-the-ice.html
 
