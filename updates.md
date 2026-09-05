@@ -1,3 +1,23 @@
+**The Purest American Culture Lives on at Local Festivals**\
+`Turning hyperlocal traditions into public spectacle is a U.S. pastime.`\
+https://www.nytimes.com/2026/09/05/opinion/unique-american-local-festivals.html
+
+**Summer Has Gotten Much Hotter. See How Bad It Is Where You Live.**\
+`The notion of enduring the summer rather than embracing it has spread far beyond the Sun Belt.`\
+https://www.nytimes.com/interactive/2026/09/05/opinion/editorials/extreme-heat-summer.html
+
+**Trump’s Empire of Extraction Will Backfire**\
+`A hazy privatization process will not bring democratic change in Venezuela closer. It will push it further away.`\
+https://www.nytimes.com/2026/09/05/opinion/trump-venezuela-oil-delcy-betancourt.html
+
+**Not So Supreme, Mr. Roberts**\
+`Courting authoritarianism with a rapacious Trump.`\
+https://www.nytimes.com/2026/09/05/opinion/not-so-supreme-mr-roberts.html
+
+**How Scared Should We Be of A.I. Right Now?**\
+`The dark and distressing way that Silicon Valley talks about A.I. can be traced to a philosophy that influenced many tech executives.`\
+https://www.nytimes.com/2026/09/05/opinion/ai-silicon-valley.html
+
 **Here Is Where Ukraine Peace Talks Stand, as a New Round Approaches**\
 `A deadly campaign of Russian and Ukrainian airstrikes has escalated since the last U.S.-brokered negotiations stalled in February.`\
 https://www.nytimes.com/2026/09/05/world/europe/ukraine-russia-talks-wtk.html
