@@ -1,3 +1,7 @@
+**Elecciones intermedias en EE. UU.: cada vez más estadounidenses se identifican como demócratas**\
+`Los datos de Gallup muestran que los demócratas y los independientes con inclinaciones demócratas tienen su mayor ventaja sobre los republicanos desde 2008.`\
+https://www.nytimes.com/es/2026/09/05/espanol/estados-unidos/elecciones-intermedias-encuestas-democratas.html
+
 **Pierre Damas Bel Should Still Be Alive**\
 `The price of unprotected status can be very high.`\
 https://www.nytimes.com/2026/09/05/opinion/columnists/pierre-damas-bel-haiti-trump.html
@@ -62,7 +66,7 @@ https://www.nytimes.com/2026/09/05/world/europe/ukraine-russia-talks-wtk.html
 `Steve Witkoff, President Trump’s special envoy, and Jared Kushner, his son-in-law, arrived in Moscow to meet with the Russian leader. They head to Kyiv next, in an effort to revive peace talks.`\
 https://www.nytimes.com/2026/09/05/world/europe/russia-ukraine-witkoff-kushner-moscow.html
 
-**The Family Had Held Her Funeral, but She Was Clinging to Life**\
+**Nepal Floods Buried a House. The Woman Inside Was Still Alive.**\
 `A rescue from a mostly buried house gave new hope to a town devastated by floods in Nepal. Earlier Saturday, another survivor had been pulled from a tunnel.`\
 https://www.nytimes.com/2026/09/05/world/asia/nepal-floods-chinese-worker-rescue.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/05/arts/europe-empty-churches.html
 **The Latest Wealth Flex: Big Trees**\
 `More than ever, rich property owners are spending huge sums on full-grown oaks, palms and baobabs. They don’t have the time or patience to watch them grow.`\
 https://www.nytimes.com/2026/09/05/style/the-latest-wealth-flex-big-trees.html
-
-**How to Dress for a Fall Beach Day**\
-`When the sea air turns crisp, try woolly shearlings, cozy knits and nubby tweeds.`\
-https://www.nytimes.com/2026/09/05/t-magazine/fall-knits-tweed-mens-fashion.html
 
