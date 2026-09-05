@@ -1,3 +1,7 @@
+**Looking Back on the Summer of High MAGA in Trump's Washington**\
+`Racecars, crypto, billionaires, troops, sequins and a bloody cage fight.`\
+https://www.nytimes.com/2026/09/05/us/politics/trump-maga-dc.html
+
 **Huckabee Condemns ‘Terrorist’ Attacks on Palestinians in West Bank Town Hall**\
 `Mike Huckabee, the U.S. ambassador to Israel, made a rare trip to meet with Palestinians after international backlash over attacks by Israeli settlers.`\
 https://www.nytimes.com/2026/09/05/world/middleeast/huckabee-west-bank-settler-attacks.html

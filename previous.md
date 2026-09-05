@@ -148,7 +148,7 @@ https://www.nytimes.com/es/2026/09/05/espanol/ciencia-y-tecnologia/perros-hipoal
 
 **Looking Back on the Summer of High MAGA in Trump's Washington**\
 `Racecars, crypto, billionaires, troops, sequins and a bloody cage fight.`\
-https://www.nytimes.com/2026/09/05/us/politics/looking-back-on-the-summer-of-high-maga-in-trumps-washington.html
+https://www.nytimes.com/2026/09/05/us/politics/trump-maga-dc.html
 
 **What the War in Iran Has Cost One Gold Star Family**\
 `First Lt. Tyler James Feehan, who was 25, had been deployed to an air base in Jordan when enemy missiles and drones lit up the sky. He is among the 18 Americans who have died since the war began.`\
