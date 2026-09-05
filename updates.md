@@ -1,3 +1,7 @@
+****\
+`Sailors and Marines of the U.S.S. Abraham Lincoln enjoyed time off in the Thai beach town of Pattaya after more than nine months at sea.`\
+https://www.nytimes.com/video/embedded/world/asia/100000011135191/05vid-pattaya-embed-76297.html
+
 **German Far-Right Surges, in Threat to Postwar Taboo on Extremists in Power**\
 `Sunday’s vote in the state of Saxony-Anhalt could produce the strongest showing in the history of the Alternative for Germany party, and potentially a far-right government in the statehouse.`\
 https://www.nytimes.com/2026/09/05/world/europe/germany-afd-saxony-anhalt.html
