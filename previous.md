@@ -30,8 +30,8 @@ https://www.nytimes.com/2026/09/05/opinion/ai-silicon-valley.html
 `A deadly campaign of Russian and Ukrainian airstrikes has escalated since the last U.S.-brokered negotiations stalled in February.`\
 https://www.nytimes.com/2026/09/05/world/europe/ukraine-russia-talks-wtk.html
 
-**Trump Envoys Arrive in Moscow for Talks on Ukraine War**\
-`Steve Witkoff, President Trump’s special envoy, and Jared Kushner, his son-in-law, plan to visit Kyiv next, in an effort to revive peace negotiations between Russia and Ukraine.`\
+**Putin Orders Pause in Kyiv Strikes Ahead of Visit by U.S. Envoys**\
+`Steve Witkoff, President Trump’s special envoy, and Jared Kushner, his son-in-law, arrived in Moscow to meet with the Russian leader. They plan to visit Kyiv next, in an effort to revive peace talks.`\
 https://www.nytimes.com/2026/09/05/world/europe/russia-ukraine-witkoff-kushner-moscow.html
 
 **Two Survivors Rescued in Nepal 10 Days After Floods**\
