@@ -1,3 +1,7 @@
+**Two Survivors Rescued in Nepal 10 Days After Floods**\
+`The improbable rescues came a day after two others were recovered from a buried tunnel.`\
+https://www.nytimes.com/2026/09/05/world/asia/nepal-floods-chinese-worker-rescue.html
+
 **Putin Denies a Draft Is Coming, but Some Russian Men Are Taking No Chances**\
 `As the fear of a possible mobilization becomes a fixture of daily life across Russia, many men are deciding whether to flee, hide or sit tight.`\
 https://www.nytimes.com/2026/09/05/world/europe/russia-war-mobilization-draft.html
