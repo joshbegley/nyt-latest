@@ -1,3 +1,11 @@
+**Unruly Passenger Is Restrained With Duct Tape During a Flight**\
+`The passenger on an American Airlines flight began to shout vulgarities and then became violent on Thursday, the authorities said. That’s when two passengers stepped in.`\
+https://www.nytimes.com/2026/09/05/us/american-airlines-passenger-duct-tape.html
+
+**Disruptive Passenger Restrained With Duct Tape on Flight**\
+`An unruly man on an American Airlines flight was restrained with duct tape and zip ties, the authorities said. The plane, which was headed to New Jersey from Texas, was diverted to Baltimore.`\
+https://www.nytimes.com/video/us/100000011135578/disruptive-passenger-restrained-with-duct-tape-on-flight.html
+
 **Latimore, R&B Singer Known for ‘Let’s Straighten It Out,’ Dies at 86**\
 `The Blues Hall of Famer became a sensation in 1974 with his hit song “Let’s Straighten It Out.”`\
 https://www.nytimes.com/2026/09/05/arts/music/latimore-dead.html

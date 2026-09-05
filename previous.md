@@ -1,3 +1,11 @@
+**Unruly Passenger Is Restrained With Duct Tape During a Flight**\
+`The passenger on an American Airlines flight began to shout vulgarities and then became violent on Thursday, the authorities said. That’s when two passengers stepped in.`\
+https://www.nytimes.com/2026/09/05/us/american-airlines-passenger-duct-tape.html
+
+**Disruptive Passenger Restrained With Duct Tape on Flight**\
+`An unruly man on an American Airlines flight was restrained with duct tape and zip ties, the authorities said. The plane, which was headed to New Jersey from Texas, was diverted to Baltimore.`\
+https://www.nytimes.com/video/us/100000011135578/disruptive-passenger-restrained-with-duct-tape-on-flight.html
+
 **Latimore, R&B Singer Known for ‘Let’s Straighten It Out,’ Dies at 86**\
 `The Blues Hall of Famer became a sensation in 1974 with his hit song “Let’s Straighten It Out.”`\
 https://www.nytimes.com/2026/09/05/arts/music/latimore-dead.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/05/us/politics/trump-maga-dc.html
 **What the War in Iran Has Cost One Gold Star Family**\
 `First Lt. Tyler James Feehan, who was 25, had been deployed to an air base in Jordan when enemy missiles and drones lit up the sky. He is among the 18 Americans who have died since the war began.`\
 https://www.nytimes.com/2026/09/05/us/politics/feehans-iran-war-family.html
-
-**Secret Dossier Adds to Evidence of Chemical Weapons in Sudan**\
-`The documents bolster allegations that the Sudanese military developed and used toxic bombs to gain an edge in the country’s devastating civil war.`\
-https://www.nytimes.com/2026/09/05/world/africa/sudan-chemical-weapons-war.html
-
-**Is There Alien Debris on the Moon? Some Scientists Plan to Find Out.**\
-`Researchers want to explore the idea that microscopic particles shed by alien civilizations have accumulated on the lunar surface, making it an archive of extraterrestrial technology.`\
-https://www.nytimes.com/2026/09/05/science/space/is-there-alien-debris-on-the-moon-some-scientists-plan-to-find-out.html
 
