@@ -1,3 +1,7 @@
+**Cuando la vida de un destacado ‘Youtuber’ del cuidado del césped se salió de control**\
+`Muchos creen que Greg Chism es raro, o algo peor. Él dice que solo seguía los incentivos de la plataforma.`\
+https://www.nytimes.com/es/2026/09/05/espanol/youtuber-falsa-acusacion-bad-baby.html
+
 **How the Host of ‘Inside Edition’ Made the News Cycle Work for Her**\
 `Eva Pilgrim can make time for a full day of tapings, Pilates, and taking her daughter to school, too.`\
 https://www.nytimes.com/interactive/2026/09/05/nyregion/routine-eva-pilgrim.html

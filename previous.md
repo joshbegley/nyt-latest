@@ -1,3 +1,7 @@
+**Cuando la vida de un destacado ‘Youtuber’ del cuidado del césped se salió de control**\
+`Muchos creen que Greg Chism es raro, o algo peor. Él dice que solo seguía los incentivos de la plataforma.`\
+https://www.nytimes.com/es/2026/09/05/espanol/youtuber-falsa-acusacion-bad-baby.html
+
 **How the Host of ‘Inside Edition’ Made the News Cycle Work for Her**\
 `Eva Pilgrim can make time for a full day of tapings, Pilates, and taking her daughter to school, too.`\
 https://www.nytimes.com/interactive/2026/09/05/nyregion/routine-eva-pilgrim.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/09/04/espanol/lindsay-clancy-juicio-que-paso.htm
 **Homeland Security Dept. Asks for Inquiries Into Voting Machines**\
 `Critics of ballot-marking devices have claimed that hackers could manipulate digital codes on ballots. Election experts say the systems are safe to use.`\
 https://www.nytimes.com/2026/09/04/us/politics/mullin-homeland-security-ballot-devices.html
-
-**9 Days After Flood, 2 Men Are Pulled Alive From Mud-Filled Tunnels in Nepal**\
-`One of two workers rescued from a hydroelectric plant said he had recited prayers over and over while trapped deep underground. “How many days has it been?” he asked.`\
-https://www.nytimes.com/2026/09/04/world/asia/nepal-flood-tunnel-rescue.html
 
