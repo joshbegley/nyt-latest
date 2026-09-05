@@ -1,3 +1,7 @@
+**U.S. Strikes Three Iranian ‘Shadow Network’ Oil Tankers, Military Says**\
+`The U.S. military said it retaliated after Iran launched missiles at two warships. The strikes came days after the two sides exchanged some of their most intense fire in weeks.`\
+https://www.nytimes.com/2026/09/05/world/middleeast/iran-us-kharg-oil-tanker-attack.html
+
 **Putin Orders Pause in Kyiv Strikes Ahead of Visit by U.S. Envoys**\
 `Steve Witkoff, President Trump’s special envoy, and Jared Kushner, his son-in-law, arrived in Moscow to meet with the Russian leader. They head to Kyiv next, in an effort to revive peace talks.`\
 https://www.nytimes.com/2026/09/05/world/europe/russia-ukraine-witkoff-kushner-moscow.html
