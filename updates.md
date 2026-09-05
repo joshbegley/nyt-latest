@@ -1,3 +1,159 @@
+**Por qué el hackeo a Hugging Face debería preocuparte más**\
+`El ataque de un “colectivo” agresivo de agentes de OpenAI muestra el peligro de los sistemas de IA capaces de organizarse entre ellos.`\
+https://www.nytimes.com/es/2026/09/05/espanol/negocios/hackeo-hugging-face-riesgo-ia.html
+
+**Irán está más confiado después de 6 meses de guerra con EE. UU.**\
+`Nuevos informes de inteligencia estadounidense han evaluado que Irán ahora tiene una mejor comprensión de sus capacidades y de los límites del poder de EE. UU.`\
+https://www.nytimes.com/es/2026/09/05/espanol/estados-unidos/iran-guerra.html
+
+**Miley Returns Without the Cyrus, and 8 Other Songs to Hear Now**\
+`Miley Cyrus wants to dance, underscores revels in hyperpop jump cuts, the producer Dahi enlists Kendrick Lamar and more.`\
+https://www.nytimes.com/2026/09/05/arts/music/miley-cyrus-underscores-dahi-new-music.html
+
+**What Will Happen to Lindsay Clancy in the Long Term?**\
+`Even as a jury failed to reach a verdict in Lindsay Clancy’s murder trial, her future is unlikely to include freedom, at least for a long time. But Americans have been divided over the goal of her confinement.`\
+https://www.nytimes.com/2026/09/05/us/lindsay-clancy-psychiatric-hospital.html
+
+**What Led to Maria Bartiromo’s Downfall at Fox News**\
+`The network this week took Maria Bartiromo off the air, pulling one of the last hosts whose coverage of Dominion Voting Systems drew an expensive defamation lawsuit.`\
+https://www.nytimes.com/2026/09/05/business/media/maria-bartiromo-fox-news.html
+
+**After Months at War, Brief Solace in a Party Town Far From Home**\
+`A stopover in Thailand was welcome relief for thousands of troops aboard the U.S.S. Abraham Lincoln from a grueling deployment. But it was not a complete salve.`\
+https://www.nytimes.com/2026/09/05/world/asia/uss-abraham-lincoln-thailand-pattaya.html
+
+**No cumplí con el matrimonio que prometí**\
+`Mi esposo cargaba él solo con todo nuestro mundo.`\
+https://www.nytimes.com/es/2026/09/05/espanol/modern-love-promesas-matrimonio.html
+
+**Will a Turnaround Plan Revive Volkswagen or Merely Delay Its Demise?**\
+`The beleaguered auto giant reached a deal with unions to cut tens of thousands of jobs and slash production. Is it enough to revive an iconic German company?`\
+https://www.nytimes.com/2026/09/05/business/volkswagen-jobs-layoffs-restructuring-future.html
+
+**Corrections: Sept. 5, 2026**\
+`Corrections that appeared in print on Saturday, Sept. 5, 2026.`\
+https://www.nytimes.com/2026/09/05/pageoneplus/corrections-sept-5-2026.html
+
+**He Fought to Cancel His Own Student Loans. Will His Kids Have Them Now?**\
+`Jed Shafer once sounded the alarm about a shambolic federal loan forgiveness program. Eight years later, it’s his sons who need some money for college.`\
+https://www.nytimes.com/2026/09/05/your-money/college-student-loans-pslf.html
+
+**How ‘Silo’ Keeps Getting Bigger**\
+`By the Season 3 finale, which arrived Friday, what started as an insular tale had morphed into a saga spanning several silos, a few centuries and multiple TV genres.`\
+https://www.nytimes.com/2026/09/05/arts/television/silo-season-3-finale.html
+
+**Authors Wrangle With Publishers Over $1.5 Billion Anthropic A.I. Settlement**\
+`The tech giant must pay $3,000 per pirated book that it used to train its chatbot. Many authors fear they could lose funds to others in the book business.`\
+https://www.nytimes.com/2026/09/05/books/anthropic-settlement-ai-copyright-books.html
+
+**Gallup Polls Show Democrats Outnumber Republicans Ahead of 2026 Midterm Elections**\
+`Data from Gallup shows that Democrats and Democratic-leaning independents have their largest advantage over Republicans since 2008.`\
+https://www.nytimes.com/2026/09/05/us/politics/democrats-republicans-voters-gallup-midterms.html
+
+**Así son los primeros perros hipoalergénicos editados genéticamente con CRISPR**\
+`Tecnologías como CRISPR nos brindan nuevas formas de crear los perros de nuestros sueños, así como una razón para reflexionar sobre errores del pasado.`\
+https://www.nytimes.com/es/2026/09/05/espanol/ciencia-y-tecnologia/perros-hipoalergenicos-edicion-genes.html
+
+**Looking Back on the Summer of High MAGA in Trump's Washington**\
+`Racecars, crypto, billionaires, troops, sequins and a bloody cage fight.`\
+https://www.nytimes.com/2026/09/05/us/politics/looking-back-on-the-summer-of-high-maga-in-trumps-washington.html
+
+**What the War in Iran Has Cost One Gold Star Family**\
+`First Lt. Tyler James Feehan, who was 25, had been deployed to an air base in Jordan when enemy missiles and drones lit up the sky. He is among the 18 Americans who have died since the war began.`\
+https://www.nytimes.com/2026/09/05/us/politics/feehans-iran-war-family.html
+
+**Secret Dossier Adds to Evidence of Chemical Weapons in Sudan**\
+`The documents bolster allegations that the Sudanese military developed and used toxic bombs to gain an edge in the country’s devastating civil war.`\
+https://www.nytimes.com/2026/09/05/world/africa/sudan-chemical-weapons-war.html
+
+**Is There Alien Debris on the Moon? Some Scientists Plan to Find Out.**\
+`Researchers want to explore the idea that microscopic particles shed by alien civilizations have accumulated on the lunar surface, making it an archive of extraterrestrial technology.`\
+https://www.nytimes.com/2026/09/05/science/space/is-there-alien-debris-on-the-moon-some-scientists-plan-to-find-out.html
+
+**Is Your Landlord Required to Fix a Leaky Window?**\
+`The issue can lead to mold and structural damage. But the law offers ways to address such situations.`\
+https://www.nytimes.com/2026/09/05/realestate/apartment-rentals-leaky-windows.html
+
+**In Red States, Law-and-Order Republicans Turn Against Flock Cameras**\
+`The governors of Texas and Florida have taken steps to curtail the use of license-plate readers, even as the police say they help with solving crime.`\
+https://www.nytimes.com/2026/09/05/us/red-states-republicans-flock-cameras.html
+
+**Flee, Hide or Sit Tight? Russians Are on Edge Over Rumors of a Draft.**\
+`The Kremlin has denied that a mass mobilization is being prepared, but some military-age men are taking no chances.`\
+https://www.nytimes.com/2026/09/05/world/europe/russia-war-mobilization-draft.html
+
+**3 Drugs Older People May Be Overusing**\
+`Not all older people need these medications, and they can carry increased risks.`\
+https://www.nytimes.com/2026/09/05/well/older-people-drugs-overuse.html
+
+**What to Do With Europe’s ‘Zombie Churches’? These Artists Have Some Ideas.**\
+`As the continent’s ties to Christianity fade, churches are being abandoned. But some see a chance to transform them into communal spaces like care centers or venues for the arts.`\
+https://www.nytimes.com/2026/09/05/arts/europe-empty-churches.html
+
+**The Latest Wealth Flex: Big Trees**\
+`More than ever, rich property owners are spending huge sums on full-grown oaks, palms and baobabs. They don’t have the time or patience to watch them grow.`\
+https://www.nytimes.com/2026/09/05/style/the-latest-wealth-flex-big-trees.html
+
+**How to Dress for a Fall Beach Day**\
+`When the sea air turns crisp, try woolly shearlings, cozy knits and nubby tweeds.`\
+https://www.nytimes.com/2026/09/05/t-magazine/fall-knits-tweed-mens-fashion.html
+
+**Kenyans Made a Living Writing College Essays. Then A.I. Arrived.**\
+`Thousands of Kenyans made a living writing essays for overseas students. With A.I., the work has dried up, a warning for online gig work that has been a global lifeline.`\
+https://www.nytimes.com/2026/09/05/technology/kenya-college-essays-ai.html
+
+**Book Review: ‘All the Presidents’ Wars,’ by Peter Bergen**\
+`In “All the Presidents’ Wars,” the journalist Peter Bergen traces the many missteps of U.S. military action in the Middle East.`\
+https://www.nytimes.com/2026/09/05/books/review/all-the-presidents-wars-peter-bergen.html
+
+**Harlan Coben’s New Book Is a Tough-Talking Writing Guide**\
+`Even a very successful thriller writer fights self-doubt. His new tough-talking writing guide doubles as a memoir that explains why, and how to beat it.`\
+https://www.nytimes.com/2026/09/05/books/review/harlan-coben-plot-twist-writing-guide.html
+
+**Book Review: ‘The Living Realm,’ by Jordan Tannahill**\
+`In “The Living Realm,” an expat in Germany is visited by phantoms.`\
+https://www.nytimes.com/2026/09/05/books/review/the-living-realm-jordan-tannahill.html
+
+**California Forever’s Ambitious Plan Faces Another Setback**\
+`A legislative setback for a manufacturing and housing proposal shows how hard it remains to build in the largest state — and why a backlash against billionaires could make it even harder.`\
+https://www.nytimes.com/2026/09/05/business/economy/california-forever-shipyard-newsom.html
+
+**33 Albums and Shows We’re Looking Forward to This Fall**\
+`Some of pop’s highest-wattage stars (Charli XCX! Sombr!) hit the road, and artists including Riley Green, Miranda Lambert and Victoria Monét prepare anticipated new releases.`\
+https://www.nytimes.com/2026/09/05/arts/music/new-albums-and-tours-fall-preview.html
+
+**Inside the D.O.J.’s Investigation of Fauci and Other Virus Scientists**\
+`As Dr. Anthony Fauci has faced public scrutiny from congressional Republicans, the D.O.J. has pursued a quieter and more expansive effort against a wider circle of researchers.`\
+https://www.nytimes.com/2026/09/05/health/fauci-morens-covid-prosecutions.html
+
+**Marian Anderson’s Ambition Was Always Clear: To Be a ‘Fine Artist’**\
+`Anderson’s importance as a barrier breaker in classical music has sometimes overshadowed the power of her artistry.`\
+https://www.nytimes.com/2026/09/05/arts/music/marian-anderson-classical-singer.html
+
+**Exercises to Build Rotational Strength as You Age**\
+`Twisting movements are a part of everyday life. These exercises can help you do them with ease and control.`\
+https://www.nytimes.com/2026/09/05/well/move/rotational-strength-power-exercises.html
+
+**Denée Benton Wants to Come Back as ‘a Detached, Chaotic Gemini’**\
+`“I feel like that’s what Steve Lacy gives,” the “Gilded Age” actor says. She’s a fan of his new album, as well as Zora Neale Hurston and nude beaches.`\
+https://www.nytimes.com/2026/09/05/arts/television/denee-benton-the-gilded-age.html
+
+**Can Art Revitalize a Small Mountain Town in North Carolina?**\
+`In North Carolina’s Lost Provinces, residents see the arts as a pathway to sustainability and maintaining community.`\
+https://www.nytimes.com/2026/09/05/arts/design/lost-province-center-lansing-north-carolina.html
+
+**A Glitz-Free Place Named for Trump? Welcome to the Golan Heights.**\
+`The bare-bones village of prefab homes has none of the gilded Trump aesthetic, and the Israelis there are weary of being seen as a gauge of their country’s roller-coaster view of the president.`\
+https://www.nytimes.com/2026/09/05/world/middleeast/israel-golan-trump-heights.html
+
+**How Naomi Osaka Became the Fashion Queen of the Tennis Court**\
+`At the U.S. Open she is playing a whole new style game.`\
+https://www.nytimes.com/2026/09/05/style/naomi-osaka-fashion-us-open.html
+
+**The Generation That’s Never Had to Say ‘Hello?’**\
+`Now that there’s rarely any mystery to who’s calling, Gen Z has adopted a range of custom phone greetings — including no greeting at all.`\
+https://www.nytimes.com/2026/09/05/style/gen-z-alpha-phone-greetings-etiquette.html
+
 **English Museum to Repatriate Colonial-Era Human Remains**\
 `The skeletal remains will go back to the Indigenous Naga people of the Indian subcontinent, six years after formal repatriation efforts began.`\
 https://www.nytimes.com/2026/09/05/world/asia/museum-britain-naga-human-remains.html
