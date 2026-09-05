@@ -1,10 +1,14 @@
+**Robin Morgan, Voice of Radical Feminism, Dies at 85**\
+`She edited the landmark 1970 anthology “Sisterhood Is Powerful,” led Ms. magazine and helped build the institutions of the modern feminist movement.`\
+https://www.nytimes.com/2026/09/05/us/robin-morgan-dead.html
+
 **Unruly Passenger Is Restrained With Duct Tape During a Flight**\
 `The passenger on an American Airlines flight began to shout vulgarities and then became violent on Thursday, the authorities said. That’s when two passengers stepped in.`\
 https://www.nytimes.com/2026/09/05/us/american-airlines-passenger-duct-tape.html
 
 **Disruptive Passenger Restrained With Duct Tape on Flight**\
 `An unruly man on an American Airlines flight was restrained with duct tape and zip ties, the authorities said. The plane, which was headed to New Jersey from Texas, was diverted to Baltimore.`\
-https://www.nytimes.com/video/us/100000011135578/disruptive-passenger-restrained-with-duct-tape-on-flight.html
+https://www.nytimes.com/video/us/100000011135578/american-airlines-passenger-duct-tape-restrained.html
 
 **Latimore, R&B Singer Known for ‘Let’s Straighten It Out,’ Dies at 86**\
 `The Blues Hall of Famer became a sensation in 1974 with his hit song “Let’s Straighten It Out.”`\
@@ -14,7 +18,7 @@ https://www.nytimes.com/2026/09/05/arts/music/latimore-dead.html
 `Community members and students sued the school last year to reopen the gates, which were closed during protests against Israel’s war in Gaza.`\
 https://www.nytimes.com/2026/09/05/nyregion/columbia-university-college-walk.html
 
-**A Hard Decision for the Hard-Nosed Prosecutor in Clancy Triple-Murder Case**\
+**Will Lindsay Clancy Be Retried? The Decision Now Facing Prosecutor Timothy Cruz.**\
 `After a mistrial, Timothy Cruz must decide whether to retry Lindsay Clancy on first-degree murder charges, downgrade the charges or drop the case.`\
 https://www.nytimes.com/2026/09/05/us/timothy-cruz-lindsay-clancy-retrial-decision.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/09/05/espanol/ciencia-y-tecnologia/perros-hipoal
 **Looking Back on the Summer of High MAGA in Trump's Washington**\
 `Racecars, crypto, billionaires, troops, sequins and a bloody cage fight.`\
 https://www.nytimes.com/2026/09/05/us/politics/trump-maga-dc.html
-
-**What the War in Iran Has Cost One Gold Star Family**\
-`First Lt. Tyler James Feehan, who was 25, had been deployed to an air base in Jordan when enemy missiles and drones lit up the sky. He is among the 18 Americans who have died since the war began.`\
-https://www.nytimes.com/2026/09/05/us/politics/feehans-iran-war-family.html
 

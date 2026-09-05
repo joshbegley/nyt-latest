@@ -1,3 +1,15 @@
+**Robin Morgan, Voice of Radical Feminism, Dies at 85**\
+`She edited the landmark 1970 anthology “Sisterhood Is Powerful,” led Ms. magazine and helped build the institutions of the modern feminist movement.`\
+https://www.nytimes.com/2026/09/05/us/robin-morgan-dead.html
+
+**Disruptive Passenger Restrained With Duct Tape on Flight**\
+`An unruly man on an American Airlines flight was restrained with duct tape and zip ties, the authorities said. The plane, which was headed to New Jersey from Texas, was diverted to Baltimore.`\
+https://www.nytimes.com/video/us/100000011135578/american-airlines-passenger-duct-tape-restrained.html
+
+**Will Lindsay Clancy Be Retried? The Decision Now Facing Prosecutor Timothy Cruz.**\
+`After a mistrial, Timothy Cruz must decide whether to retry Lindsay Clancy on first-degree murder charges, downgrade the charges or drop the case.`\
+https://www.nytimes.com/2026/09/05/us/timothy-cruz-lindsay-clancy-retrial-decision.html
+
 **Unruly Passenger Is Restrained With Duct Tape During a Flight**\
 `The passenger on an American Airlines flight began to shout vulgarities and then became violent on Thursday, the authorities said. That’s when two passengers stepped in.`\
 https://www.nytimes.com/2026/09/05/us/american-airlines-passenger-duct-tape.html
