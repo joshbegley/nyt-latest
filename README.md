@@ -1,3 +1,7 @@
+**Trump revitaliza a los separatistas en Canadá**\
+`Inspirados en el movimiento MAGA, los separatistas de Alberta están presionando para separarse de Canadá.`\
+https://www.nytimes.com/es/2026/09/05/espanol/opinion/canada-trump-separatistas-alberta.html
+
 **Cuando la vida de un destacado ‘Youtuber’ del cuidado del césped se salió de control**\
 `Muchos creen que Greg Chism es raro, o algo peor. Él dice que solo seguía los incentivos de la plataforma.`\
 https://www.nytimes.com/es/2026/09/05/espanol/youtuber-falsa-acusacion-bad-baby.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/04/us/politics/trump-nevada-voter-data-subpoena.
 **Caso Lindsay Clancy: el juez declara juicio nulo**\
 `Tras semanas de audiencias, un juez declaró nulo el juicio. Es posible que haya otro juicio, un acuerdo de culpabilidad o un proceso de internamiento civil para Clancy.`\
 https://www.nytimes.com/es/2026/09/04/espanol/lindsay-clancy-juicio-que-paso.html
-
-**Homeland Security Dept. Asks for Inquiries Into Voting Machines**\
-`Critics of ballot-marking devices have claimed that hackers could manipulate digital codes on ballots. Election experts say the systems are safe to use.`\
-https://www.nytimes.com/2026/09/04/us/politics/mullin-homeland-security-ballot-devices.html
 
