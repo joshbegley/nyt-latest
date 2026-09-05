@@ -1,3 +1,7 @@
+**English Museum to Repatriate Colonial-Era Human Remains**\
+`The skeletal remains will go back to the Indigenous Naga people of the Indian subcontinent, six years after formal repatriation efforts began.`\
+https://www.nytimes.com/2026/09/05/world/asia/museum-britain-naga-human-remains.html
+
 **Trump revitaliza a los separatistas en Canadá**\
 `Inspirados en el movimiento MAGA, los separatistas de Alberta están presionando para separarse de Canadá.`\
 https://www.nytimes.com/es/2026/09/05/espanol/opinion/canada-trump-separatistas-alberta.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/04/us/politics/supreme-court-republicans-ads.htm
 **Trump Administration Issues Subpoenas For Voter Data in Nevada**\
 `The request comes as the government has escalated efforts to prove President Trump’s false claims of widespread voter fraud.`\
 https://www.nytimes.com/2026/09/04/us/politics/trump-nevada-voter-data-subpoena.html
-
-**Caso Lindsay Clancy: el juez declara juicio nulo**\
-`Tras semanas de audiencias, un juez declaró nulo el juicio. Es posible que haya otro juicio, un acuerdo de culpabilidad o un proceso de internamiento civil para Clancy.`\
-https://www.nytimes.com/es/2026/09/04/espanol/lindsay-clancy-juicio-que-paso.html
 

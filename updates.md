@@ -1,3 +1,7 @@
+**English Museum to Repatriate Colonial-Era Human Remains**\
+`The skeletal remains will go back to the Indigenous Naga people of the Indian subcontinent, six years after formal repatriation efforts began.`\
+https://www.nytimes.com/2026/09/05/world/asia/museum-britain-naga-human-remains.html
+
 **Trump revitaliza a los separatistas en Canadá**\
 `Inspirados en el movimiento MAGA, los separatistas de Alberta están presionando para separarse de Canadá.`\
 https://www.nytimes.com/es/2026/09/05/espanol/opinion/canada-trump-separatistas-alberta.html
