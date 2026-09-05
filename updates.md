@@ -1,3 +1,7 @@
+**Trump revitaliza a los separatistas en Canadá**\
+`Inspirados en el movimiento MAGA, los separatistas de Alberta están presionando para separarse de Canadá.`\
+https://www.nytimes.com/es/2026/09/05/espanol/opinion/canada-trump-separatistas-alberta.html
+
 **Cuando la vida de un destacado ‘Youtuber’ del cuidado del césped se salió de control**\
 `Muchos creen que Greg Chism es raro, o algo peor. Él dice que solo seguía los incentivos de la plataforma.`\
 https://www.nytimes.com/es/2026/09/05/espanol/youtuber-falsa-acusacion-bad-baby.html
