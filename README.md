@@ -1,3 +1,7 @@
+**Here Is Where Ukraine Peace Talks Stand, as a New Round Approaches**\
+`A deadly campaign of Russian and Ukrainian airstrikes has escalated since the last U.S.-brokered negotiations stalled in February.`\
+https://www.nytimes.com/2026/09/05/world/europe/ukraine-russia-talks-wtk.html
+
 **Trump Envoys Arrive in Moscow for Talks on Ukraine War**\
 `Steve Witkoff, President Trump’s special envoy, and Jared Kushner, his son-in-law, plan to visit Kyiv next, in an effort to revive peace negotiations between Russia and Ukraine.`\
 https://www.nytimes.com/2026/09/05/world/europe/russia-ukraine-witkoff-kushner-moscow.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/05/style/naomi-osaka-fashion-us-open.html
 **The Generation That’s Never Had to Say ‘Hello?’**\
 `Now that there’s rarely any mystery to who’s calling, Gen Z has adopted a range of custom phone greetings — including no greeting at all.`\
 https://www.nytimes.com/2026/09/05/style/gen-z-alpha-phone-greetings-etiquette.html
-
-**English Museum to Repatriate Colonial-Era Human Remains**\
-`The skeletal remains will go back to the Indigenous Naga people of the Indian subcontinent, six years after formal repatriation efforts began.`\
-https://www.nytimes.com/2026/09/05/world/asia/museum-britain-naga-human-remains.html
 
