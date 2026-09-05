@@ -1,3 +1,11 @@
+**Huckabee Condemns ‘Terrorist’ Attacks on Palestinians in West Bank Town Hall**\
+`Mike Huckabee, the U.S. ambassador to Israel, made a rare trip to meet with Palestinians after international backlash over attacks by Israeli settlers.`\
+https://www.nytimes.com/2026/09/05/world/middleeast/huckabee-west-bank-settler-attacks.html
+
+**Superfast Noodles and Fancy-Feeling Beans**\
+`Or more formally: cream cheese ramen and garlicky ricotta-bean toasts, both from Kevin Pang.`\
+https://www.nytimes.com/2026/09/05/dining/superfast-noodles-and-fancy-feeling-beans.html
+
 **Ossoff and Talarico to Share Fund-Raising Event in Hollywood**\
 `The event with the Georgia and Texas Democrats will be hosted by Shonda Rhimes.`\
 https://www.nytimes.com/2026/09/05/us/politics/ossoff-talarico-rhimes-fundraiser.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/05/technology/kenya-college-essays-ai.html
 **Book Review: ‘All the Presidents’ Wars,’ by Peter Bergen**\
 `In “All the Presidents’ Wars,” the journalist Peter Bergen traces the many missteps of U.S. military action in the Middle East.`\
 https://www.nytimes.com/2026/09/05/books/review/all-the-presidents-wars-peter-bergen.html
-
-**Harlan Coben’s New Book Is a Tough-Talking Writing Guide**\
-`Even a very successful thriller writer fights self-doubt. His new tough-talking writing guide doubles as a memoir that explains why, and how to beat it.`\
-https://www.nytimes.com/2026/09/05/books/review/harlan-coben-plot-twist-writing-guide.html
-
-**Book Review: ‘The Living Realm,’ by Jordan Tannahill**\
-`In “The Living Realm,” an expat in Germany is visited by phantoms.`\
-https://www.nytimes.com/2026/09/05/books/review/the-living-realm-jordan-tannahill.html
 

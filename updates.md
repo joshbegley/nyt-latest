@@ -1,3 +1,11 @@
+**Huckabee Condemns ‘Terrorist’ Attacks on Palestinians in West Bank Town Hall**\
+`Mike Huckabee, the U.S. ambassador to Israel, made a rare trip to meet with Palestinians after international backlash over attacks by Israeli settlers.`\
+https://www.nytimes.com/2026/09/05/world/middleeast/huckabee-west-bank-settler-attacks.html
+
+**Superfast Noodles and Fancy-Feeling Beans**\
+`Or more formally: cream cheese ramen and garlicky ricotta-bean toasts, both from Kevin Pang.`\
+https://www.nytimes.com/2026/09/05/dining/superfast-noodles-and-fancy-feeling-beans.html
+
 **Ossoff and Talarico to Share Fund-Raising Event in Hollywood**\
 `The event with the Georgia and Texas Democrats will be hosted by Shonda Rhimes.`\
 https://www.nytimes.com/2026/09/05/us/politics/ossoff-talarico-rhimes-fundraiser.html
