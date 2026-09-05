@@ -1,3 +1,11 @@
+**NYT Crossword Answers for Sept. 5, 2026**\
+`Fritz Juhnke gives us plenty to chew on in this challenging puzzle.`\
+https://www.nytimes.com/2026/09/04/crosswords/daily-puzzle-2026-09-05.html
+
+**In Major Leak Hunt, Pentagon Gives Polygraph Tests to Joint Staff Members**\
+`About 50 people were tested, an unparalleled inquiry that comes in the wake of news reports about the war with Iran and the U.S. military’s diminished stocks of munitions.`\
+https://www.nytimes.com/2026/09/04/us/politics/pentagon-staff-polygraph-tests.html
+
 **Former Kentucky Governor Is Arrested Amid Child Support Battle**\
 `Matthew Bevin, the former Republican governor, was held in contempt for failing to abide by court orders to file financial disclosure documents, a lawyer said.`\
 https://www.nytimes.com/2026/09/04/us/politics/kentucky-governor-arrested-matt-bevin.html
