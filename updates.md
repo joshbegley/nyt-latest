@@ -1,4 +1,8 @@
 **Trump Officials Draft Plan to Pay At-Home Parents, Using Funds for Working Ones**\
+`The proposed benefit, a top policy priority for Vice President JD Vance, would apply only to married couples and tap a fund intended to provide federal child care subsidies to working parents.`\
+https://www.nytimes.com/2026/09/05/us/politics/stay-at-home-parents-subsidies.html
+
+**Trump Officials Draft Plan to Pay At-Home Parents, Using Funds for Working Ones**\
 `The proposed move, a top policy priority for Vice President JD Vance, would apply only to married couples and tap a fund intended to provide federal child care subsidies to working parents.`\
 https://www.nytimes.com/2026/09/05/us/politics/stay-at-home-parents-subsidies.html
 
