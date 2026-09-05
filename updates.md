@@ -1,3 +1,11 @@
+**Court Filings In A.I. Suit Invoke Copyright Law, Culture and Sports**\
+`Filings made Friday in The New York Times’s closely watched lawsuit against OpenAI and Microsoft included a range of copyright law and cultural references.`\
+https://www.nytimes.com/2026/09/04/technology/openai-microsoft-new-york-times-lawsuit.html
+
+**Pentagon Subjects Roughly 50 Members of the Joint Staff to Polygraph Tests in Expanded Leak Hunt**\
+`The aggressive effort comes in the wake of news reports about the military’s diminished stocks of crucial munitions as the U.S. fights Iran.`\
+https://www.nytimes.com/2026/09/04/us/politics/pentagon-staff-polygraph-tests.html
+
 **Judge Will Not Block Pentagon Move to Fire Stars and Stripes Journalists**\
 `A judge appeared skeptical of the journalists’ arguments that they were fired for coverage of worsening conditions on a Navy warship.`\
 https://www.nytimes.com/2026/09/04/us/politics/stars-and-stripes-journalists-fired.html

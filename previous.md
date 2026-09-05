@@ -1,3 +1,11 @@
+**Court Filings In A.I. Suit Invoke Copyright Law, Culture and Sports**\
+`Filings made Friday in The New York Times’s closely watched lawsuit against OpenAI and Microsoft included a range of copyright law and cultural references.`\
+https://www.nytimes.com/2026/09/04/technology/openai-microsoft-new-york-times-lawsuit.html
+
+**Pentagon Subjects Roughly 50 Members of the Joint Staff to Polygraph Tests in Expanded Leak Hunt**\
+`The aggressive effort comes in the wake of news reports about the military’s diminished stocks of crucial munitions as the U.S. fights Iran.`\
+https://www.nytimes.com/2026/09/04/us/politics/pentagon-staff-polygraph-tests.html
+
 **Judge Will Not Block Pentagon Move to Fire Stars and Stripes Journalists**\
 `A judge appeared skeptical of the journalists’ arguments that they were fired for coverage of worsening conditions on a Navy warship.`\
 https://www.nytimes.com/2026/09/04/us/politics/stars-and-stripes-journalists-fired.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/interactive/2026/09/04/upshot/flashback.html
 **Judge in Lindsay Clancy Trial Gives Defense Time to Appeal**\
 `Kevin Reddington, Lindsay Clancy’s lawyer, asked the judge for extra time to appeal to a higher court to avoid a mistrial.`\
 https://www.nytimes.com/video/us/100000011133807/lindsay-clancy-mistrial-appeal.html
-
-**Timothy Carney, Diplomat Who Went Places Others Avoided, Dies at 82**\
-`Insisting on seeing things for himself, even in hostile terrain, Mr. Carney opposed the closing of the U.S. embassy in Khartoum while Osama Bin Laden established himself there.`\
-https://www.nytimes.com/2026/09/04/obituaries/timothy-carney-dead.html
-
-**An Italian Designer’s Country and City Homes**\
-`The Italian interior designer Paola Moretti shows off her two very different homes: a pared-down mountain house and a city apartment in a converted church rectory.`\
-https://www.nytimes.com/video/t-magazine/100000011120851/an-italian-designers-country-and-city-homes.html
 
