@@ -1,3 +1,7 @@
+**Pierre Damas Bel Should Still Be Alive**\
+`The price of unprotected status can be very high.`\
+https://www.nytimes.com/2026/09/05/opinion/columnists/pierre-damas-bel-haiti-trump.html
+
 **Is Work Starting for Trump’s Arch? It Depends Who’s Asking.**\
 `The Justice Department told a court the government would only conduct archaeological excavation, a day after a Trump official announced the project was in motion.`\
 https://www.nytimes.com/2026/09/05/us/politics/trump-arch-justice-department.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/05/style/the-latest-wealth-flex-big-trees.html
 **How to Dress for a Fall Beach Day**\
 `When the sea air turns crisp, try woolly shearlings, cozy knits and nubby tweeds.`\
 https://www.nytimes.com/2026/09/05/t-magazine/fall-knits-tweed-mens-fashion.html
-
-**Kenyans Made a Living Writing College Essays. Then A.I. Arrived.**\
-`Thousands of Kenyans made a living writing essays for overseas students. With A.I., the work has dried up, a warning for online gig work that has been a global lifeline.`\
-https://www.nytimes.com/2026/09/05/technology/kenya-college-essays-ai.html
 

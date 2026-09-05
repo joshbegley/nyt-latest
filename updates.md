@@ -1,3 +1,7 @@
+**Pierre Damas Bel Should Still Be Alive**\
+`The price of unprotected status can be very high.`\
+https://www.nytimes.com/2026/09/05/opinion/columnists/pierre-damas-bel-haiti-trump.html
+
 **Is Work Starting for Trump’s Arch? It Depends Who’s Asking.**\
 `The Justice Department told a court the government would only conduct archaeological excavation, a day after a Trump official announced the project was in motion.`\
 https://www.nytimes.com/2026/09/05/us/politics/trump-arch-justice-department.html
