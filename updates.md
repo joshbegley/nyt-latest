@@ -1,3 +1,7 @@
+**Pierre Damas Bel Should Not Be Dead**\
+`Pierre Damas Bel should still be alive.`\
+https://www.nytimes.com/2026/09/05/opinion/columnists/pierre-damas-bel-haiti-trump.html
+
 **Elecciones intermedias en EE. UU.: cada vez más estadounidenses se identifican como demócratas**\
 `Los datos de Gallup muestran que los demócratas y los independientes con inclinaciones demócratas tienen su mayor ventaja sobre los republicanos desde 2008.`\
 https://www.nytimes.com/es/2026/09/05/espanol/estados-unidos/elecciones-intermedias-encuestas-democratas.html

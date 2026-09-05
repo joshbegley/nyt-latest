@@ -2,8 +2,8 @@
 `Los datos de Gallup muestran que los demócratas y los independientes con inclinaciones demócratas tienen su mayor ventaja sobre los republicanos desde 2008.`\
 https://www.nytimes.com/es/2026/09/05/espanol/estados-unidos/elecciones-intermedias-encuestas-democratas.html
 
-**Pierre Damas Bel Should Still Be Alive**\
-`The price of unprotected status can be very high.`\
+**Pierre Damas Bel Should Not Be Dead**\
+`Pierre Damas Bel should still be alive.`\
 https://www.nytimes.com/2026/09/05/opinion/columnists/pierre-damas-bel-haiti-trump.html
 
 **Is Work Starting for Trump’s Arch? It Depends Who’s Asking.**\
