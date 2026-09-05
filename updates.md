@@ -1,3 +1,7 @@
+**The C.D.C. Is Waging a Political Fight Over Measles Deaths**\
+`After Pennsylvania reported two measles deaths, the C.D.C. took the highly unusual step of challenging the state. Our reporter Apoorva Mandavilli explains how this tension between the Trump administration and states over health issues is creating confusion for Americans.`\
+https://www.nytimes.com/video/us/100000011126903/the-cdc-is-waging-a-political-fight-over-measles-deaths.html
+
 **Court Filings In A.I. Suit Invoke Copyright Law, Culture and Sports**\
 `Filings made Friday in The New York Times’s closely watched lawsuit against OpenAI and Microsoft included a range of copyright law and cultural references.`\
 https://www.nytimes.com/2026/09/04/technology/openai-microsoft-new-york-times-lawsuit.html
