@@ -150,8 +150,8 @@ https://www.nytimes.com/2026/09/05/realestate/apartment-rentals-leaky-windows.ht
 `The governors of Texas and Florida have taken steps to curtail the use of license-plate readers, even as the police say they help with solving crime.`\
 https://www.nytimes.com/2026/09/05/us/red-states-republicans-flock-cameras.html
 
-**Flee, Hide or Sit Tight? Russians Are on Edge Over Rumors of a Draft.**\
-`The Kremlin has denied that a mass mobilization is being prepared, but some military-age men are taking no chances.`\
+**Putin Denies a Draft Is Coming, but Some Russian Men Are Taking No Chances**\
+`As the fear of a possible mobilization becomes a fixture of daily life across Russia, many men are deciding whether to flee, hide or sit tight.`\
 https://www.nytimes.com/2026/09/05/world/europe/russia-war-mobilization-draft.html
 
 **3 Drugs Older People May Be Overusing**\
