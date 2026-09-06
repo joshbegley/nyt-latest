@@ -1,3 +1,7 @@
+**The Best Movies and TV Shows Coming to Netflix in September**\
+`A revival of “A Different World” and a feature-length “Call My Agent!” film are among the highlights.`\
+https://www.nytimes.com/2026/09/06/arts/television/netflix-new-shows-movies.html
+
 **It’s Not Just the West Bank Settlers. It’s Israel.**\
 `Settler violence is reaching new heights.`\
 https://www.nytimes.com/2026/09/06/opinion/israel-west-bank-settlers-violence.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/09/05/espanol/ejercicios-fuerza-rotacional.html
 **Por qué el hackeo a Hugging Face debería preocuparte más**\
 `El ataque de un “colectivo” agresivo de agentes de OpenAI muestra el peligro de los sistemas de IA capaces de organizarse entre ellos.`\
 https://www.nytimes.com/es/2026/09/05/espanol/negocios/hackeo-hugging-face-riesgo-ia.html
-
-**Irán está más confiado después de 6 meses de guerra con EE. UU.**\
-`Nuevos informes de inteligencia estadounidense han evaluado que Irán ahora tiene una mejor comprensión de sus capacidades y de los límites del poder de EE. UU.`\
-https://www.nytimes.com/es/2026/09/05/espanol/estados-unidos/iran-guerra.html
 
