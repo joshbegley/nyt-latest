@@ -1,3 +1,7 @@
+**Un expediente secreto refuerza la acusación de que Sudán usó armas químicas**\
+`Fotografías, videos, documentos y comunicaciones interceptadas retratan a una unidad militar sudanesa secreta que, según se describe, produjo municiones a base de cloro.`\
+https://www.nytimes.com/es/2026/09/06/espanol/mundo/sudan-armas-quimicas.html
+
 **¿A qué sonaban los bosques jurásicos?**\
 `Científicos pasaron más de una década reconstruyendo los llamados de nueve especies de insectos antiguos para crear el primer paisaje sonoro preciso del Jurásico.`\
 https://www.nytimes.com/es/2026/09/06/espanol/ciencia-y-tecnologia/bosques-jurasicos-sonidos.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/05/world/europe/ukraine-russia-talks-wtk.html
 **Putin Meets Witkoff and Kushner in Moscow to Discuss Ukraine War**\
 `President Vladimir V. Putin ordered a pause in strikes on Ukraine’s capital, Kyiv, ahead of the meeting with President Trump’s envoys: his son-in-law Jared Kushner and the businessman Steve Witkoff.`\
 https://www.nytimes.com/2026/09/05/world/europe/russia-ukraine-witkoff-kushner-moscow.html
-
-**Nepal Floods Buried a House. The Woman Inside Was Still Alive.**\
-`A rescue from a mostly buried house gave new hope to a town devastated by floods in Nepal. Earlier Saturday, another survivor had been pulled from a tunnel.`\
-https://www.nytimes.com/2026/09/05/world/asia/nepal-floods-chinese-worker-rescue.html
 
