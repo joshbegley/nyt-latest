@@ -1,3 +1,27 @@
+**¿A qué sonaban los bosques jurásicos?**\
+`Científicos pasaron más de una década reconstruyendo los llamados de nueve especies de insectos antiguos para crear el primer paisaje sonoro preciso del Jurásico.`\
+https://www.nytimes.com/es/2026/09/06/espanol/ciencia-y-tecnologia/bosques-jurasicos-sonidos.html
+
+**La exhibición de hurones más grande de EE. UU. une a los amantes de estos ‘animalitos raros’**\
+`Los aficionados a este escurridizo mamífero se reunieron para celebrar las mejores cualidades de una de las mascotas que causa más discordia.`\
+https://www.nytimes.com/es/2026/09/06/espanol/hurones-concurso.html
+
+**‘One Day, for No Particular Reason, I Decided to Wear a Tie’**\
+`A Brooklyn butcher’s gift, a Bronx high school student’s advice and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://www.nytimes.com/2026/09/06/nyregion/metropolitan-diary.html
+
+**NYT Spelling Bee Answers for September 6, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/09/06/crosswords/spelling-bee-forum.html
+
+**13 Hours, 5 Boroughs, Lots of Boats: Cruising New York City by Ferry**\
+`We spent a day bouncing around the city on the expanded NYC Ferry system — making stops at beaches, festivals, beloved bars and more — for just $15.`\
+https://www.nytimes.com/2026/09/06/nyregion/nyc-ferry-tour.html
+
+**See What New York City’s Murals Tell Us About 9/11, 25 Years Later**\
+`They commanded us to never forget, even as they faded over time. Or was that the point all along?`\
+https://www.nytimes.com/2026/09/06/nyregion/september-11-murals-today.html
+
 **Woman Rescued From Buried House 10 Days After Nepal Floods**\
 `Chandika Shrestha was rescued on Saturday from a mostly buried house in Betrawati, Nepal.`\
 https://www.nytimes.com/video/world/asia/100000011136063/nepal-floods-woman-rescue.html

@@ -1,3 +1,27 @@
+**¿A qué sonaban los bosques jurásicos?**\
+`Científicos pasaron más de una década reconstruyendo los llamados de nueve especies de insectos antiguos para crear el primer paisaje sonoro preciso del Jurásico.`\
+https://www.nytimes.com/es/2026/09/06/espanol/ciencia-y-tecnologia/bosques-jurasicos-sonidos.html
+
+**La exhibición de hurones más grande de EE. UU. une a los amantes de estos ‘animalitos raros’**\
+`Los aficionados a este escurridizo mamífero se reunieron para celebrar las mejores cualidades de una de las mascotas que causa más discordia.`\
+https://www.nytimes.com/es/2026/09/06/espanol/hurones-concurso.html
+
+**‘One Day, for No Particular Reason, I Decided to Wear a Tie’**\
+`A Brooklyn butcher’s gift, a Bronx high school student’s advice and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://www.nytimes.com/2026/09/06/nyregion/metropolitan-diary.html
+
+**NYT Spelling Bee Answers for September 6, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/09/06/crosswords/spelling-bee-forum.html
+
+**13 Hours, 5 Boroughs, Lots of Boats: Cruising New York City by Ferry**\
+`We spent a day bouncing around the city on the expanded NYC Ferry system — making stops at beaches, festivals, beloved bars and more — for just $15.`\
+https://www.nytimes.com/2026/09/06/nyregion/nyc-ferry-tour.html
+
+**See What New York City’s Murals Tell Us About 9/11, 25 Years Later**\
+`They commanded us to never forget, even as they faded over time. Or was that the point all along?`\
+https://www.nytimes.com/2026/09/06/nyregion/september-11-murals-today.html
+
 **Woman Rescued From Buried House 10 Days After Nepal Floods**\
 `Chandika Shrestha was rescued on Saturday from a mostly buried house in Betrawati, Nepal.`\
 https://www.nytimes.com/video/world/asia/100000011136063/nepal-floods-woman-rescue.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/09/05/world/europe/russia-ukraine-witkoff-kushner-m
 **Nepal Floods Buried a House. The Woman Inside Was Still Alive.**\
 `A rescue from a mostly buried house gave new hope to a town devastated by floods in Nepal. Earlier Saturday, another survivor had been pulled from a tunnel.`\
 https://www.nytimes.com/2026/09/05/world/asia/nepal-floods-chinese-worker-rescue.html
-
-**Following Stolen Cars From Canada to Russia**\
-`How two investigative reporters for The Times learned where many of the luxury cars stolen to order in Canada are actually going, and why.`\
-https://www.nytimes.com/2026/09/05/world/canada/stolen-cars-canada-russia-trade-war-tariffs.html
-
-**My Husband Read My Journal and Now He’s Furious. Was I in the Wrong?**\
-`I had kept a log of the fights we had, to help sort through my emotions.`\
-https://www.nytimes.com/2026/09/05/magazine/husband-journal-therapy-ethics.html
-
-**NYT Connections Answers for September 6, 2026**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Sept. 6, 2026.`\
-https://www.nytimes.com/2026/09/05/crosswords/connections-companion-1183.html
-
-**NYT Strands Hints for September 6, 2026**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Sept. 6, 2026.`\
-https://www.nytimes.com/2026/09/05/crosswords/strands-sidekick-917.html
-
-**Today’s Wordle Hints for September 6, 2026**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Sept. 6, 2026.`\
-https://www.nytimes.com/2026/09/05/crosswords/wordle-review-1905.html
-
-**Scenic Route**\
-`The season’s new releases give us a cultural road map, but the most rewarding reading, listening and watching comes from the detours.`\
-https://www.nytimes.com/2026/09/05/briefing/scenic-route.html
 
