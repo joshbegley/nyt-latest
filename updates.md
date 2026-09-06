@@ -1,3 +1,7 @@
+**Oil Prices Rise Slightly After U.S. and Iran Trade Strikes**\
+`Brent crude, the global benchmark for oil, was up about 1 percent as trading resumed on Sunday, while the national average price of gas was nearly $4.15 a gallon.`\
+https://www.nytimes.com/2026/09/06/business/oil-gas-prices-iran-war.html
+
 **10-Minute Challenge: Angel Oak**\
 `We’d like you to look at this tree for 10 minutes, uninterrupted.`\
 https://www.nytimes.com/interactive/2026/09/06/upshot/10-minute-challenge-angel-oak.html

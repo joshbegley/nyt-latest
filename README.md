@@ -1,3 +1,7 @@
+**Fatal Cargo Crash in Miami Echoed One That Killed 5 in 1997**\
+`Both crashes highlighted Miami’s role as a cargo hub to the Caribbean and Latin America.`\
+https://www.nytimes.com/2026/09/06/us/1997-miami-cargo-plane-crash-fine-air.html
+
 **Oil Prices Rise Slightly After U.S. and Iran Trade Strikes**\
 `Brent crude, the global benchmark for oil, was up about 1 percent as trading resumed on Sunday, while the national average price of gas was nearly $4.15 a gallon.`\
 https://www.nytimes.com/2026/09/06/business/oil-gas-prices-iran-war.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/06/business/9-11-museum-elizabeth-hillman.html
 **Book Review: ‘Living With Freddie,’ by Anna Heyward**\
 `In “Living With Freddie,” Anna Heyward recalls the pet who taught her “to be human.”`\
 https://www.nytimes.com/2026/09/06/books/review/living-with-freddie-anna-heyward.html
-
-**The Battle to Save General Donahue From Hegseth’s Army Purge**\
-`Gen. Christopher T. Donahue’s vision for fighting future wars won him powerful supporters around the world. Could they save his career?`\
-https://www.nytimes.com/2026/09/06/us/politics/hegseth-army-general-donahue.html
 
