@@ -1,3 +1,11 @@
+**El Pentágono aplica el polígrafo a personal por filtraciones a la prensa**\
+`Unas 50 personas fueron sometidas a las pruebas en una investigación sin precedentes que surge tras las noticias sobre la guerra con Irán y las reservas de municiones disminuidas del ejército estadounidense.`\
+https://www.nytimes.com/es/2026/09/06/espanol/estados-unidos/pentagono-filtraciones-prensa-poligrafo.html
+
+**Cargo Plane Crashes at Miami Airport, Striking Vehicles**\
+`Officials said 5 others were injured. Flights were halted for hours at Miami International Airport after the Boeing 767-300 cargo plane overran its landing.`\
+https://www.nytimes.com/2026/09/06/us/plane-crash-amazon-miami-airport.html
+
 **Giuliani Says Mamdani Should Skip 9/11 Memorial**\
 `During an anti-Muslim diatribe, the former mayor called for Mr. Mamdani to skip the ceremonies. The mayor has said he is going.`\
 https://www.nytimes.com/2026/09/06/nyregion/mamdani-911-memorial-rudy-giuliani.html

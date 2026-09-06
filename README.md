@@ -1,3 +1,7 @@
+**Man Arrested After Pushing Toward Democratic Candidate for Ohio Governor**\
+`A spokeswoman for the campaign of Amy Acton, the Democratic nominee, said “multiple people” were injured when an “armed individual” lunged at her during a county fair.`\
+https://www.nytimes.com/2026/09/06/us/politics/amy-acton-governor-candidate-ohio-arrest-incident.html
+
 **El Pentágono aplica el polígrafo a personal por filtraciones a la prensa**\
 `Unas 50 personas fueron sometidas a las pruebas en una investigación sin precedentes que surge tras las noticias sobre la guerra con Irán y las reservas de municiones disminuidas del ejército estadounidense.`\
 https://www.nytimes.com/es/2026/09/06/espanol/estados-unidos/pentagono-filtraciones-prensa-poligrafo.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/06/us/politics/pappas-sununu-new-hampshire-senat
 **For Fired DeSantis Campaign Staff Member, a Second Chance at State Dept.**\
 `The hiring of Nate Hochman, who lost his job amid an uproar over a video containing a Nazi symbol, underscores the administration’s willingness to overlook past transgressions.`\
 https://www.nytimes.com/2026/09/06/us/politics/nate-hochman-state-dept.html
-
-**How a Blacklisted Chinese Tech Giant Kept Buying America’s Best A.I. Chips**\
-`Washington imposed sanctions on Inspur because of its work with the Chinese military. But the company’s subsidiary kept shipping Nvidia’s best chips to feed China’s leading A.I. firms.`\
-https://www.nytimes.com/2026/09/06/technology/ai-chips-china-blacklist.html
 
