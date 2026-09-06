@@ -1,3 +1,11 @@
+**Giuliani Says Mamdani Should Skip 9/11 Memorial**\
+`During an anti-Muslim diatribe, the former mayor called for Mr. Mamdani to skip the ceremonies. The mayor has said he is going.`\
+https://www.nytimes.com/2026/09/06/nyregion/mamdani-911-memorial-rudy-giuliani.html
+
+**Germany’s Far Right Just Misses Majority in Crucial State Election**\
+`The Alternative for Germany, or AfD, trounced its rivals but was left unsure if it will be able to govern in Saxony-Anhalt. The result shocked Germany.`\
+https://www.nytimes.com/2026/09/06/world/europe/germany-afd-election-saxony-anhalt.html
+
 **What to Know About Amazon Air Cargo Carrier Involved in Miami Crash**\
 `Amazon’s cargo carrier contracts out its flights and is a key part of its worldwide shipping operation. The plane that crashed in Miami on Sunday was operated by 21 Air.`\
 https://www.nytimes.com/2026/09/06/us/amazon-air-21-cargo-airline.html

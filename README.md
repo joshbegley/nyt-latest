@@ -1,3 +1,7 @@
+**El Pentágono aplica el polígrafo a personal por filtraciones a la prensa**\
+`Unas 50 personas fueron sometidas a las pruebas en una investigación sin precedentes que surge tras las noticias sobre la guerra con Irán y las reservas de municiones disminuidas del ejército estadounidense.`\
+https://www.nytimes.com/es/2026/09/06/espanol/estados-unidos/pentagono-filtraciones-prensa-poligrafo.html
+
 **Giuliani Says Mamdani Should Skip 9/11 Memorial**\
 `During an anti-Muslim diatribe, the former mayor called for Mr. Mamdani to skip the ceremonies. The mayor has said he is going.`\
 https://www.nytimes.com/2026/09/06/nyregion/mamdani-911-memorial-rudy-giuliani.html
@@ -51,7 +55,7 @@ https://www.nytimes.com/interactive/2026/09/06/nyregion/9-11-memorial-pools-clea
 https://www.nytimes.com/live/2026/09/06/us/miami-plane-crash
 
 **Cargo Plane Crashes at Miami Airport, Striking Vehicles**\
-`Officials said there were “multiple patients” but their injuries were not immediately known. Flights were halted at Miami International Airport after the Boeing 767-300 cargo plane overran its landing.`\
+`Officials said 5 others were injured. Flights were halted for hours at Miami International Airport after the Boeing 767-300 cargo plane overran its landing.`\
 https://www.nytimes.com/2026/09/06/us/plane-crash-amazon-miami-airport.html
 
 **Haitians Deported From U.S. Are Left Broke and Stranded**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/06/us/politics/nate-hochman-state-dept.html
 **How a Blacklisted Chinese Tech Giant Kept Buying America’s Best A.I. Chips**\
 `Washington imposed sanctions on Inspur because of its work with the Chinese military. But the company’s subsidiary kept shipping Nvidia’s best chips to feed China’s leading A.I. firms.`\
 https://www.nytimes.com/2026/09/06/technology/ai-chips-china-blacklist.html
-
-**The 92-Year-Old Mathematician and the Teenage Apprentice**\
-`Joan Birman thought her major discoveries were behind her. Then came an email from a young neighbor — a girl who knew little but wanted to learn.`\
-https://www.nytimes.com/2026/09/06/science/92-year-old-mathematician-apprentice.html
 
