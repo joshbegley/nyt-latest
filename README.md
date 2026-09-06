@@ -1,3 +1,7 @@
+**Far-Right German Party Projected to Finish First in Key Race, but Without Majority**\
+`A far-right party, known as the AfD, is projected to finish first in the German state of Saxony-Anhalt but lacked a majority that would make it the first far-right party to govern part of the coutnry since the Nazi era. If the results hold, the party could still assume power,`\
+https://www.nytimes.com/video/world/europe/100000011136442/germany-afd-state-race-saxony-anhalt.html
+
 **AfD Victory in Saxony-Anhalt Sends a Signal to Europe**\
 `A vote in eastern Germany has given fresh momentum to hard-right parties hoping to win elections across Europe next year, analysts said.`\
 https://www.nytimes.com/2026/09/06/world/europe/afd-germany-europe-far-right-saxony-anhalt.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/06/world/canada/trump-tariffs-canada-bees-honey.
 **Trump’s War on Mail-In Ballots Has Voters Baffled. That May Be the Point.**\
 `From Oregon to Florida, officials are at once reassuring voters that their ballots are safe and encouraging them to use drop boxes or vote in person.`\
 https://www.nytimes.com/2026/09/06/us/elections/trump-mail-in-voting-confusion.html
-
-**New Hampshire Democrats Sound an Alarm: ‘We’re Losing’**\
-`The state has not elected a Republican to the Senate since 2010. But Chris Pappas, the likely Democratic nominee, anticipates a tough race against a well-known opponent, John E. Sununu.`\
-https://www.nytimes.com/2026/09/06/us/politics/pappas-sununu-new-hampshire-senate.html
 
