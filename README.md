@@ -1,3 +1,23 @@
+**In Germany, Ulrich Siegmund Is Bringing the AfD to the Cusp of Power**\
+`Ulrich Siegmund, 35, once sold air fresheners. Now his far-right party is the favorite to win a state election in eastern Germany on Sunday.`\
+https://www.nytimes.com/2026/09/06/world/europe/afd-germany-election-ulrich-siegmund.html
+
+**‘Go Get Your Kicks’: The Europeans Obsessed With a U.S. Highway**\
+`As Route 66 turns 100, tourists in search of Americana try to keep war, inflation and politics in the rearview.`\
+https://www.nytimes.com/2026/09/06/business/route-66-highway-centennial.html
+
+**Elections in Germany Could Produce First Far-Right State Government Since Nazi Era: What to Know**\
+`Elections in Saxony-Anhalt, in the country’s east, could result in an outright majority for the Alternative for Germany party.`\
+https://www.nytimes.com/2026/09/06/world/europe/germany-election-afd-saxony-anhalt.html
+
+**China’s New Graduates, Facing a Dire Job Market, Must Also Contend With A.I.**\
+`A record 12.7 million young people are looking for jobs as the country embraces artificial intelligence — and as the technology begins to upend the work force.`\
+https://www.nytimes.com/2026/09/06/world/asia/chinas-new-graduates-ai-challenges.html
+
+**His Parties Fill a Tall Order**\
+`Tyler Bergantino, who is 6-foot-9, created the Tall Tour event series, celebrating people’s exceptional height in a world that doesn’t always allow the legroom.`\
+https://www.nytimes.com/2026/09/06/style/tyler-bergantino-tall-tour-events.html
+
 **No Corrections: Sept. 6, 2026**\
 `No corrections appeared in print on Sunday, Sept. 6, 2026.`\
 https://www.nytimes.com/2026/09/06/corrections/no-corrections-sept-6-2026.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/es/2026/09/05/espanol/estados-unidos/iran-guerra.html
 **Miley Returns Without the Cyrus, and 8 Other Songs to Hear Now**\
 `Miley Cyrus wants to dance, underscores revels in hyperpop jump cuts, the producer Dahi enlists Kendrick Lamar and more.`\
 https://www.nytimes.com/2026/09/05/arts/music/miley-cyrus-underscores-dahi-new-music.html
-
-**What Will Happen to Lindsay Clancy in the Long Term?**\
-`Even as a jury failed to reach a verdict in Lindsay Clancy’s murder trial, her future is unlikely to include freedom, at least for a long time. But Americans have been divided over the goal of her confinement.`\
-https://www.nytimes.com/2026/09/05/us/lindsay-clancy-psychiatric-hospital.html
-
-**What Led to Maria Bartiromo’s Downfall at Fox News**\
-`The network this week took Maria Bartiromo off the air, pulling one of the last hosts whose coverage of Dominion Voting Systems drew an expensive defamation lawsuit.`\
-https://www.nytimes.com/2026/09/05/business/media/maria-bartiromo-fox-news.html
-
-**After Months at War, Brief Solace in a Party Town Far From Home**\
-`A stopover in Thailand was welcome relief for thousands of troops aboard the U.S.S. Abraham Lincoln from a grueling deployment. But it was not a complete salve.`\
-https://www.nytimes.com/2026/09/05/world/asia/uss-abraham-lincoln-thailand-pattaya.html
-
-**No cumplí con el matrimonio que prometí**\
-`Mi esposo cargaba él solo con todo nuestro mundo.`\
-https://www.nytimes.com/es/2026/09/05/espanol/modern-love-promesas-matrimonio.html
-
-**Will a Turnaround Plan Revive Volkswagen or Merely Delay Its Demise?**\
-`The beleaguered auto giant reached a deal with unions to cut tens of thousands of jobs and slash production. Is it enough to revive an iconic German company?`\
-https://www.nytimes.com/2026/09/05/business/volkswagen-jobs-layoffs-restructuring-future.html
 

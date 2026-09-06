@@ -1,3 +1,11 @@
+**No Corrections: Sept. 6, 2026**\
+`No corrections appeared in print on Sunday, Sept. 6, 2026.`\
+https://www.nytimes.com/2026/09/06/corrections/no-corrections-sept-6-2026.html
+
+**Quote of the Day: Teaching Future Generations About Sept. 11**\
+`Quotation of the Day for Sunday, September 6, 2026.`\
+https://www.nytimes.com/2026/09/06/pageoneplus/quote-of-the-day-teaching-future-generations-about-sept-11.html
+
 **U.S. Military Sinks Boats Said to Aid Drug Smuggling Near Ecuador**\
 `Unlike dozens of similar strikes, no one was killed after people suspected of drug smuggling were removed from what the U.S. military described as a floating refueling station.`\
 https://www.nytimes.com/2026/09/05/us/politics/us-military-sinks-boats-near-ecuador.html

@@ -1,3 +1,11 @@
+**No Corrections: Sept. 6, 2026**\
+`No corrections appeared in print on Sunday, Sept. 6, 2026.`\
+https://www.nytimes.com/2026/09/06/corrections/no-corrections-sept-6-2026.html
+
+**Quote of the Day: Teaching Future Generations About Sept. 11**\
+`Quotation of the Day for Sunday, September 6, 2026.`\
+https://www.nytimes.com/2026/09/06/pageoneplus/quote-of-the-day-teaching-future-generations-about-sept-11.html
+
 **U.S. Military Sinks Boats Said to Aid Drug Smuggling Near Ecuador**\
 `Unlike dozens of similar strikes, no one was killed after people suspected of drug smuggling were removed from what the U.S. military described as a floating refueling station.`\
 https://www.nytimes.com/2026/09/05/us/politics/us-military-sinks-boats-near-ecuador.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/es/2026/09/05/espanol/modern-love-promesas-matrimonio.ht
 **Will a Turnaround Plan Revive Volkswagen or Merely Delay Its Demise?**\
 `The beleaguered auto giant reached a deal with unions to cut tens of thousands of jobs and slash production. Is it enough to revive an iconic German company?`\
 https://www.nytimes.com/2026/09/05/business/volkswagen-jobs-layoffs-restructuring-future.html
-
-**Corrections: Sept. 5, 2026**\
-`Corrections that appeared in print on Saturday, Sept. 5, 2026.`\
-https://www.nytimes.com/2026/09/05/pageoneplus/corrections-sept-5-2026.html
-
-**He Fought to Cancel His Own Student Loans. Will His Kids Have Them Now?**\
-`Jed Shafer once sounded the alarm about a shambolic federal loan forgiveness program. Eight years later, it’s his sons who need some money for college.`\
-https://www.nytimes.com/2026/09/05/your-money/college-student-loans-pslf.html
 
