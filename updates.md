@@ -1,3 +1,15 @@
+**As Midterms Approach, Republicans Find There Is No Escape From Trump**\
+`The president’s strategy, message and spending have left the G.O.P. in a difficult spot as lawmakers try to outrun his sagging approval ratings.`\
+https://www.nytimes.com/2026/09/06/us/politics/trump-miderm-elections-republicans.html
+
+**Trump Envoys Expected to Make First Visit to Kyiv**\
+`Steve Witkoff and Jared Kushner met with President Vladimir V. Putin of Russia in Moscow on Saturday in an effort to revive peace talks.`\
+https://www.nytimes.com/2026/09/06/world/europe/ukraine-zelensky-witkoff-kushner-russia-putin.html
+
+**Where Belief Is Believable**\
+`A dispatch from a mountaintop feast in Greece.`\
+https://www.nytimes.com/2026/09/06/briefing/where-belief-is-believable.html
+
 **Esta startup ayuda a la gente a morir**\
 `La asistencia médica para morir ahora es legal en Nueva York. Un equipo de profesionales clínicos creó un consultorio para ayudar a sus pacientes a morir en sus propios términos.`\
 https://www.nytimes.com/es/2026/09/06/espanol/startup-ayuda-morir.html
