@@ -1,3 +1,7 @@
+**Live Updates: Cargo Plane Overruns Runway at Miami Airport, Striking Vehicles**\
+`The plane was part of Amazon’s cargo fleet and was flying from Puerto Rico.`\
+https://www.nytimes.com/live/2026/09/06/us/miami-plane-crash
+
 **Cargo Plane Crashes at Miami Airport, Striking Vehicles**\
 `Officials said there were “multiple patients” but their injuries were not immediately known. Flights were halted at Miami International Airport after the Boeing 767-300 cargo plane overran its landing.`\
 https://www.nytimes.com/2026/09/06/us/plane-crash-amazon-miami-airport.html
