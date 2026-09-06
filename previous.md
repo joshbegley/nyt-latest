@@ -1,3 +1,11 @@
+**For Trump’s Former Fixer, a Tortured Path From ‘Rat’ to Reconciliation**\
+`The president has made peace with Michael D. Cohen, his onetime lawyer who turned against him. But contrary to Mr. Trump’s claims, Mr. Cohen has not recanted the testimony that helped convict his former boss.`\
+https://www.nytimes.com/2026/09/06/us/politics/michael-cohen-donald-trump-interview.html
+
+**Who Cleans the 9/11 Memorial Pools?**\
+`Jim Maroon has been doing his job for 14 years. He knows it’s a big responsibility.`\
+https://www.nytimes.com/interactive/2026/09/06/nyregion/9-11-memorial-pools-cleaning.html
+
 **Live Updates: Cargo Plane Overruns Runway at Miami Airport, Striking Vehicles**\
 `The plane was part of Amazon’s cargo fleet and was flying from Puerto Rico.`\
 https://www.nytimes.com/live/2026/09/06/us/miami-plane-crash
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/06/world/europe/ukraine-war-weapons-fraud-corrup
 **Chef Andy Baraghani Prepares to Open Ditto, His First Restaurant**\
 `Ditto, the first venture by the chef and food writer Andy Baraghani, promises to be the kind of dining establishment New Yorkers need right now.`\
 https://www.nytimes.com/2026/09/06/style/andy-baraghani-ditto-nyc-restaurant.html
-
-**Durante años, los kenianos hicieron las tareas de estudiantes universitarios. Luego llegó la IA**\
-`Miles de kenianos se ganaban la vida escribiendo ensayos para estudiantes en el extranjero. Con la IA, el trabajo se ha agotado: es una advertencia para el trabajo por encargo en línea que ha sido un salvavidas mundial.`\
-https://www.nytimes.com/es/2026/09/06/espanol/negocios/ia-gig-work-redaccion-kenia.html
-
-**Un expediente secreto refuerza la acusación de que Sudán usó armas químicas**\
-`Fotografías, videos, documentos y comunicaciones interceptadas retratan a una unidad militar sudanesa secreta que, según se describe, produjo municiones a base de cloro.`\
-https://www.nytimes.com/es/2026/09/06/espanol/mundo/sudan-armas-quimicas.html
 

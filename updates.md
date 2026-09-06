@@ -1,3 +1,11 @@
+**For Trump’s Former Fixer, a Tortured Path From ‘Rat’ to Reconciliation**\
+`The president has made peace with Michael D. Cohen, his onetime lawyer who turned against him. But contrary to Mr. Trump’s claims, Mr. Cohen has not recanted the testimony that helped convict his former boss.`\
+https://www.nytimes.com/2026/09/06/us/politics/michael-cohen-donald-trump-interview.html
+
+**Who Cleans the 9/11 Memorial Pools?**\
+`Jim Maroon has been doing his job for 14 years. He knows it’s a big responsibility.`\
+https://www.nytimes.com/interactive/2026/09/06/nyregion/9-11-memorial-pools-cleaning.html
+
 **Live Updates: Cargo Plane Overruns Runway at Miami Airport, Striking Vehicles**\
 `The plane was part of Amazon’s cargo fleet and was flying from Puerto Rico.`\
 https://www.nytimes.com/live/2026/09/06/us/miami-plane-crash
