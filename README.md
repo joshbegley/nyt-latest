@@ -1,3 +1,7 @@
+**Trump Administration Again Asks Supreme Court to Allow Mail Voting Restrictions**\
+`The filing puts the legality of the president’s push to impose limits on mail voting squarely before the justices even as states begin sending out ballots.`\
+https://www.nytimes.com/2026/09/06/us/politics/trump-administration-again-asks-supreme-court-to-allow-mail-voting-restrictions.html
+
 **OPEC Plus to Keep Oil Production Steady**\
 `The decision on Sunday by the cartel of oil-producing nations and some of its allies came after the resumption of U.S. and Iranian military strikes in the Persian Gulf.`\
 https://www.nytimes.com/2026/09/06/business/opec-iran-war-oil-production.html
@@ -54,7 +58,7 @@ https://www.nytimes.com/2026/09/06/crosswords/strands-sidekick-918.html
 `The president’s strategy, message and spending have left the G.O.P. in a difficult spot as lawmakers try to outrun his sagging approval ratings.`\
 https://www.nytimes.com/2026/09/06/us/politics/trump-miderm-elections-republicans.html
 
-**Trump Envoys Make First Visit to Kyiv**\
+**U.S. Envoys Witkoff and Kushner Arrive in Kyiv After Talks With Putin**\
 `Steve Witkoff and Jared Kushner were meeting on Sunday with Volodymyr Zelensky in Ukraine, a day after talks with Vladimir V. Putin in Moscow.`\
 https://www.nytimes.com/2026/09/06/world/europe/ukraine-zelensky-witkoff-kushner-russia-putin.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/world/asia/100000011136063/nepal-floods-woman-resc
 **Un estudio de proteínas cerebrales genera optimismo sobre los tratamientos para el autismo**\
 `El estudio podría llevar a tratamientos que ayuden a las personas con autismo grave causado por diferentes mutaciones genéticas y a sus familias.`\
 https://www.nytimes.com/es/2026/09/06/espanol/ciencia-y-tecnologia/estudio-proteinas-cerebrales-tratamiento-autismo.html
-
-**Hay más de 1000 marcadores genéticos vinculados a la personalidad, según unos científicos**\
-`El equipo de investigación escaneó aproximadamente 10 millones de variantes genéticas en todo el genoma para poder mapear los “cinco grandes rasgos” de personalidad.`\
-https://www.nytimes.com/es/2026/09/06/espanol/ciencia-y-tecnologia/genetica-rasgos-personalidad.html
 
