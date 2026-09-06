@@ -1,3 +1,7 @@
+**La OPEP Plus mantendrá estable la producción de petróleo**\
+`Por primera vez desde abril, la OPEP y algunos de sus aliados, incluida Rusia, decidieron no aumentar la producción.`\
+https://www.nytimes.com/es/2026/09/06/espanol/negocios/precio-petroleo-opep.html
+
 **In the Shadow of a Tragic Death, Jacob’s Pillow Looks to Move Forward**\
 `A year after a longtime staff member was killed at the celebrated dance center in Western Massachusetts, the recovery continues.`\
 https://www.nytimes.com/2026/09/06/arts/dance/jacobs-pillow-kat-sirico-accident.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/09/06/espanol/hurones-concurso.html
 **‘One Day, for No Particular Reason, I Decided to Wear a Tie’**\
 `A Brooklyn butcher’s gift, a Bronx high school student’s advice and more reader tales of New York City in this week’s Metropolitan Diary.`\
 https://www.nytimes.com/2026/09/06/nyregion/metropolitan-diary.html
-
-**NYT Spelling Bee Answers for September 6, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/09/06/crosswords/spelling-bee-forum.html
 
