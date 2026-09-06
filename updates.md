@@ -1,3 +1,7 @@
+**Trump Envoys Make First Visit to Kyiv**\
+`Steve Witkoff and Jared Kushner met with President Vladimir V. Putin of Russia in Moscow on Saturday in an effort to revive peace talks.`\
+https://www.nytimes.com/2026/09/06/world/europe/ukraine-zelensky-witkoff-kushner-russia-putin.html
+
 **Pete Hegseth Is a Wrecking Ball**\
 `We are already paying a high price for the defense secretary’s purges and whims.`\
 https://www.nytimes.com/2026/09/06/opinion/hegseth-national-security-military-generals.html
