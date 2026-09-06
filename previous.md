@@ -1,3 +1,7 @@
+**OPEC Plus to Keep Oil Production Steady**\
+`The decision on Sunday by the cartel of oil-producing nations and some of its allies came after the resumption of U.S. and Iranian military strikes in the Persian Gulf.`\
+https://www.nytimes.com/2026/09/06/business/opec-iran-war-oil-production.html
+
 **The Most Popular Recipes From The Weeknight 100**\
 `Tomato basil chicken breasts, a cheeseburger soup, coconutty shrimp noodles and so much more.`\
 https://www.nytimes.com/2026/09/06/dining/the-most-popular-recipes-from-the-weeknight-100.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/09/06/espanol/ciencia-y-tecnologia/estudio-prote
 **Hay más de 1000 marcadores genéticos vinculados a la personalidad, según unos científicos**\
 `El equipo de investigación escaneó aproximadamente 10 millones de variantes genéticas en todo el genoma para poder mapear los “cinco grandes rasgos” de personalidad.`\
 https://www.nytimes.com/es/2026/09/06/espanol/ciencia-y-tecnologia/genetica-rasgos-personalidad.html
-
-**The Best Movies and TV Shows Coming to Netflix in September**\
-`A revival of “A Different World” and a feature-length “Call My Agent!” film are among the highlights.`\
-https://www.nytimes.com/2026/09/06/arts/television/netflix-new-shows-movies.html
 

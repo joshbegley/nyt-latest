@@ -1,3 +1,7 @@
+**OPEC Plus to Keep Oil Production Steady**\
+`The decision on Sunday by the cartel of oil-producing nations and some of its allies came after the resumption of U.S. and Iranian military strikes in the Persian Gulf.`\
+https://www.nytimes.com/2026/09/06/business/opec-iran-war-oil-production.html
+
 **The Most Popular Recipes From The Weeknight 100**\
 `Tomato basil chicken breasts, a cheeseburger soup, coconutty shrimp noodles and so much more.`\
 https://www.nytimes.com/2026/09/06/dining/the-most-popular-recipes-from-the-weeknight-100.html
