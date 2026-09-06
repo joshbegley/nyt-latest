@@ -1,3 +1,7 @@
+**What to Know About Amazon Air Cargo Carrier Involved in Miami Crash**\
+`Amazon’s cargo carrier contracts out its flights and is a key part of its worldwide shipping operation. The plane that crashed in Miami on Sunday was operated by 21 Air.`\
+https://www.nytimes.com/2026/09/06/us/amazon-air-21-cargo-airline.html
+
 **Fatal Cargo Crash in Miami Echoed One That Killed 5 in 1997**\
 `Both crashes highlighted Miami’s role as a cargo hub to the Caribbean and Latin America.`\
 https://www.nytimes.com/2026/09/06/us/1997-miami-cargo-plane-crash-fine-air.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/06/style/flash-floods-wildfires-extreme-weather-
 **The C.E.O. Teaching Future Generations About 9/11**\
 `Elizabeth Hillman, chief of the 9/11 Memorial & Museum since 2022, says the stories of that day “remain compelling, and they’re still unfolding.”`\
 https://www.nytimes.com/2026/09/06/business/9-11-museum-elizabeth-hillman.html
-
-**Book Review: ‘Living With Freddie,’ by Anna Heyward**\
-`In “Living With Freddie,” Anna Heyward recalls the pet who taught her “to be human.”`\
-https://www.nytimes.com/2026/09/06/books/review/living-with-freddie-anna-heyward.html
 
