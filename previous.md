@@ -14,7 +14,7 @@ https://www.nytimes.com/live/2026/09/06/world/germany-election
 `The filing puts the legality of the president’s push to impose limits on mail voting squarely before the justices even as states begin sending out ballots.`\
 https://www.nytimes.com/2026/09/06/us/politics/trump-administration-again-asks-supreme-court-to-allow-mail-voting-restrictions.html
 
-**OPEC Plus to Keep Oil Production Steady**\
+**OPEC Plus Holds Oil Production Steady as U.S.-Iran Strikes Resume**\
 `The decision on Sunday by the cartel of oil-producing nations and some of its allies came after the resumption of U.S. and Iranian military strikes in the Persian Gulf.`\
 https://www.nytimes.com/2026/09/06/business/opec-iran-war-oil-production.html
 
@@ -103,7 +103,7 @@ https://www.nytimes.com/2026/09/06/us/highland-park-united-methodist-church-dall
 https://www.nytimes.com/2026/09/06/business/iran-us-strait-of-hormuz-shipping.html
 
 **1960s ‘Wave House’ Is on the Market Following Years of Renovations**\
-`Two architects bought a Jules Gregory house for $630,000 in 2015 and spent years on renovations. It is now listed for $1.65 million.`\
+`Two architects bought a Jules Gregory house for $630,000 in 2015 and spent years on renovations. It is now listed for $2.6 million.`\
 https://www.nytimes.com/2026/09/06/realestate/modernist-wave-house-jules-gregory.html
 
 **A Bad Year for Bees Gets Worse as Trump’s Tariffs Hit Canada’s Honey Belt**\

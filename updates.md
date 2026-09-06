@@ -1,3 +1,11 @@
+**OPEC Plus Holds Oil Production Steady as U.S.-Iran Strikes Resume**\
+`The decision on Sunday by the cartel of oil-producing nations and some of its allies came after the resumption of U.S. and Iranian military strikes in the Persian Gulf.`\
+https://www.nytimes.com/2026/09/06/business/opec-iran-war-oil-production.html
+
+**1960s ‘Wave House’ Is on the Market Following Years of Renovations**\
+`Two architects bought a Jules Gregory house for $630,000 in 2015 and spent years on renovations. It is now listed for $2.6 million.`\
+https://www.nytimes.com/2026/09/06/realestate/modernist-wave-house-jules-gregory.html
+
 **Live Updates: Germany’s Far Right Eyes Breakthrough in Regional Election**\
 `Victory for the Alternative for Germany party in a vote in the eastern state of Saxony-Anhalt would propel a far-right party into power for the first time since World War II.`\
 https://www.nytimes.com/live/2026/09/06/world/germany-election

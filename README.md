@@ -12,7 +12,7 @@ https://www.nytimes.com/live/2026/09/06/world/germany-election
 
 **Trump Administration Again Asks Supreme Court to Allow Mail Voting Restrictions**\
 `The filing puts the legality of the president’s push to impose limits on mail voting squarely before the justices even as states begin sending out ballots.`\
-https://www.nytimes.com/2026/09/06/us/politics/trump-administration-again-asks-supreme-court-to-allow-mail-voting-restrictions.html
+https://www.nytimes.com/2026/09/06/us/politics/trump-mail-in-voting-supreme-court.html
 
 **OPEC Plus Holds Oil Production Steady as U.S.-Iran Strikes Resume**\
 `The decision on Sunday by the cartel of oil-producing nations and some of its allies came after the resumption of U.S. and Iranian military strikes in the Persian Gulf.`\
