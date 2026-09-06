@@ -1,3 +1,7 @@
+**Fatal Cargo Crash in Miami Echoed One That Killed 5 in 1997**\
+`Both crashes highlighted Miami’s role as a cargo hub to the Caribbean and Latin America.`\
+https://www.nytimes.com/2026/09/06/us/1997-miami-cargo-plane-crash-fine-air.html
+
 **Oil Prices Rise Slightly After U.S. and Iran Trade Strikes**\
 `Brent crude, the global benchmark for oil, was up about 1 percent as trading resumed on Sunday, while the national average price of gas was nearly $4.15 a gallon.`\
 https://www.nytimes.com/2026/09/06/business/oil-gas-prices-iran-war.html
