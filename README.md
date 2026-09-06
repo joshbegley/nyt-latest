@@ -1,3 +1,7 @@
+**Bummer Time**\
+`If you thought this summer felt a little bit off, you’re not alone.`\
+https://www.nytimes.com/2026/09/06/briefing/summer-heat-wave.html
+
 **‘Furious’ Is the First Thriller Made for a Post-Epstein World**\
 `“Furious,” the new police procedural on Hulu, turns out to be the perfect thriller for a post-Epstein world.`\
 https://www.nytimes.com/2026/09/06/opinion/furious-tv-show-epstein.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/06/opinion/israel-west-bank-settlers-violence.ht
 **In Germany, Ulrich Siegmund Is Bringing the AfD to the Cusp of Power**\
 `Ulrich Siegmund, 35, once sold air fresheners. Now his far-right party is the favorite to win a state election in eastern Germany on Sunday.`\
 https://www.nytimes.com/2026/09/06/world/europe/afd-germany-election-ulrich-siegmund.html
-
-**‘Go Get Your Kicks’: The Europeans Obsessed With a U.S. Highway**\
-`As Route 66 turns 100, tourists in search of Americana try to keep war, inflation and politics in the rearview.`\
-https://www.nytimes.com/2026/09/06/business/route-66-highway-centennial.html
 
