@@ -1,3 +1,7 @@
+**Bummer Time**\
+`If you thought this summer felt a little bit off, you’re not alone.`\
+https://www.nytimes.com/2026/09/06/briefing/summer-heat-wave.html
+
 **‘Furious’ Is the First Thriller Made for a Post-Epstein World**\
 `“Furious,” the new police procedural on Hulu, turns out to be the perfect thriller for a post-Epstein world.`\
 https://www.nytimes.com/2026/09/06/opinion/furious-tv-show-epstein.html
