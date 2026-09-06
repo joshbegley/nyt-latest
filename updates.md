@@ -1,3 +1,11 @@
+**Edward Field, Bohemian New York Poet, Dies at 102**\
+`His colloquial language, emotionality and gay topics brought him widespread praise, a Guggenheim Foundation fellowship and other literary honors.`\
+https://www.nytimes.com/2026/09/06/obituaries/edward-field-dead.html
+
+**Far-Right German Party Projected to Finish First in Key Race, but Without Majority**\
+`A far-right party, known as the AfD, is projected to finish first in the German state of Saxony-Anhalt but lacked a majority that would make it the first far-right party to govern part of the coutnry since the Nazi era. If the results hold, the party could still assume power,`\
+https://www.nytimes.com/video/world/europe/100000011136442/germany-afd-state-race-saxony-anhalt.html
+
 **AfD Victory in Saxony-Anhalt Sends a Signal to Europe**\
 `A vote in eastern Germany has given fresh momentum to hard-right parties hoping to win elections across Europe next year, analysts said.`\
 https://www.nytimes.com/2026/09/06/world/europe/afd-germany-europe-far-right-saxony-anhalt.html
