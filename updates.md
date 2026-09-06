@@ -1,3 +1,11 @@
+**A Mini Rosh Hashana Menu**\
+`Outfitted with pistachio snacking cake, roast chicken and challah.`\
+https://www.nytimes.com/2026/09/06/dining/a-mini-rosh-hashana-menu.html
+
+**“It Ends,” “Exit 8” and the New Horror of Monotony**\
+`In movies like “It Ends” and “Exit 8,” the scares come from reliving the same thing over and over again.`\
+https://www.nytimes.com/2026/09/06/movies/it-ends-trapped-horror-films.html
+
 **Trump Administration Again Asks Supreme Court to Allow Mail Voting Restrictions**\
 `The filing puts the legality of the president’s push to impose limits on mail voting squarely before the justices even as states begin sending out ballots.`\
 https://www.nytimes.com/2026/09/06/us/politics/trump-administration-again-asks-supreme-court-to-allow-mail-voting-restrictions.html
