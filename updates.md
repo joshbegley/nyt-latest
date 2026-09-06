@@ -1,3 +1,7 @@
+**Un expediente secreto refuerza la acusación de que Sudán usó armas químicas**\
+`Fotografías, videos, documentos y comunicaciones interceptadas retratan a una unidad militar sudanesa secreta que, según se describe, produjo municiones a base de cloro.`\
+https://www.nytimes.com/es/2026/09/06/espanol/mundo/sudan-armas-quimicas.html
+
 **¿A qué sonaban los bosques jurásicos?**\
 `Científicos pasaron más de una década reconstruyendo los llamados de nueve especies de insectos antiguos para crear el primer paisaje sonoro preciso del Jurásico.`\
 https://www.nytimes.com/es/2026/09/06/espanol/ciencia-y-tecnologia/bosques-jurasicos-sonidos.html
