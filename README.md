@@ -1,3 +1,7 @@
+**AfD Victory in Saxony-Anhalt Sends a Signal to Europe**\
+`A vote in eastern Germany has given fresh momentum to hard-right parties hoping to win elections across Europe next year, analysts said.`\
+https://www.nytimes.com/2026/09/06/world/europe/afd-germany-europe-far-right-saxony-anhalt.html
+
 **Man Arrested After Pushing Toward Democratic Candidate for Ohio Governor**\
 `A spokeswoman for the campaign of Amy Acton, the Democratic nominee, said “multiple people” were injured when an “armed individual” lunged at her during a county fair.`\
 https://www.nytimes.com/2026/09/06/us/politics/amy-acton-governor-candidate-ohio-arrest-incident.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/06/us/elections/trump-mail-in-voting-confusion.h
 **New Hampshire Democrats Sound an Alarm: ‘We’re Losing’**\
 `The state has not elected a Republican to the Senate since 2010. But Chris Pappas, the likely Democratic nominee, anticipates a tough race against a well-known opponent, John E. Sununu.`\
 https://www.nytimes.com/2026/09/06/us/politics/pappas-sununu-new-hampshire-senate.html
-
-**For Fired DeSantis Campaign Staff Member, a Second Chance at State Dept.**\
-`The hiring of Nate Hochman, who lost his job amid an uproar over a video containing a Nazi symbol, underscores the administration’s willingness to overlook past transgressions.`\
-https://www.nytimes.com/2026/09/06/us/politics/nate-hochman-state-dept.html
 
