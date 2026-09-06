@@ -1,3 +1,7 @@
+**Haitians Deported From U.S. Are Left Broke and Stranded**\
+`Hundreds have been deported to Haiti in recent weeks, and some say they have been left with no money, no protection from gangs and no place to go.`\
+https://www.nytimes.com/2026/09/06/world/americas/haiti-deportees.html
+
 **La OPEP Plus mantendrá estable la producción de petróleo**\
 `Por primera vez desde abril, la OPEP y algunos de sus aliados, incluida Rusia, decidieron no aumentar la producción.`\
 https://www.nytimes.com/es/2026/09/06/espanol/negocios/precio-petroleo-opep.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/09/06/espanol/ciencia-y-tecnologia/bosques-juras
 **La exhibición de hurones más grande de EE. UU. une a los amantes de estos ‘animalitos raros’**\
 `Los aficionados a este escurridizo mamífero se reunieron para celebrar las mejores cualidades de una de las mascotas que causa más discordia.`\
 https://www.nytimes.com/es/2026/09/06/espanol/hurones-concurso.html
-
-**‘One Day, for No Particular Reason, I Decided to Wear a Tie’**\
-`A Brooklyn butcher’s gift, a Bronx high school student’s advice and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://www.nytimes.com/2026/09/06/nyregion/metropolitan-diary.html
 
