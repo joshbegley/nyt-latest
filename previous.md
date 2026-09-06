@@ -43,7 +43,7 @@ https://www.nytimes.com/2026/09/06/dining/a-mini-rosh-hashana-menu.html
 https://www.nytimes.com/2026/09/06/movies/it-ends-trapped-horror-films.html
 
 **Live Updates: Germany’s Far Right Tops Key State Race, but Falls Short of Power**\
-`Near-final results showed that the Alternative for Germany party finished first in the eastern state of Saxony-Anhalt. But it was not on track to win a majority, which would have put a far-right party into power for the first time since World War II.`\
+`The Alternative for Germany party is projected to finish first in the eastern state of Saxony-Anhalt. But lacking a majority, without the help of other parties it cannot become the first far-right party to govern a state since 1945.`\
 https://www.nytimes.com/live/2026/09/06/world/germany-election
 
 **Trump Administration Again Asks Supreme Court to Allow Mail Voting Restrictions**\
