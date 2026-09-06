@@ -146,13 +146,13 @@ https://www.nytimes.com/2026/09/06/style/flash-floods-wildfires-extreme-weather-
 `Elizabeth Hillman, chief of the 9/11 Memorial & Museum since 2022, says the stories of that day “remain compelling, and they’re still unfolding.”`\
 https://www.nytimes.com/2026/09/06/business/9-11-museum-elizabeth-hillman.html
 
-**The Battle to Save General Donahue From Hegseth’s Army Purge**\
-`Gen. Christopher T. Donahue’s vision for fighting future wars won him powerful supporters around the world. Could they save his career?`\
-https://www.nytimes.com/2026/09/06/us/politics/hegseth-army-general-donahue.html
-
 **Book Review: ‘Living With Freddie,’ by Anna Heyward**\
 `In “Living With Freddie,” Anna Heyward recalls the pet who taught her “to be human.”`\
 https://www.nytimes.com/2026/09/06/books/review/living-with-freddie-anna-heyward.html
+
+**The Battle to Save General Donahue From Hegseth’s Army Purge**\
+`Gen. Christopher T. Donahue’s vision for fighting future wars won him powerful supporters around the world. Could they save his career?`\
+https://www.nytimes.com/2026/09/06/us/politics/hegseth-army-general-donahue.html
 
 **CCRCs Are Expanding Retirement Home Care to Seniors’ Own Homes**\
 `Continuing care retirement communities are widening their scope to help retirees age in place, with measured supports and a way to cap the soaring costs of aging.`\
