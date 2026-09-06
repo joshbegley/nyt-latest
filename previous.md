@@ -1,5 +1,5 @@
 **Cargo Plane Crashes at Miami Airport, Striking Vehicles**\
-`Officials said there were “multiple patients” but their injuries were not immediately known. Thick smoke was visible from the Boeing 767-300 cargo plane at Miami International Airport, video showed.`\
+`Officials said there were “multiple patients” but their injuries were not immediately known. Flights were halted at Miami International Airport after the Boeing 767-300 cargo plane overran its landing.`\
 https://www.nytimes.com/2026/09/06/us/plane-crash-amazon-miami-airport.html
 
 **Haitians Deported From U.S. Are Left Broke and Stranded**\
