@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Sept. 7, 2026**\
+`Jeff Chen and Stephan Prock want to help you up your game.`\
+https://www.nytimes.com/2026/09/06/crosswords/daily-puzzle-2026-09-07.html
+
 **Live Updates: Germany’s Far Right Tops Key State Race, but Falls Short of Power**\
 `The Alternative for Germany party is projected to finish first in the eastern state of Saxony-Anhalt. But lacking a majority, without the help of other parties it cannot become the first far-right party to govern a state since 1945.`\
 https://www.nytimes.com/live/2026/09/06/world/germany-election
