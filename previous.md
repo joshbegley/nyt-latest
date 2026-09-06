@@ -1,3 +1,11 @@
+**When A.I. Starts Scheming**\
+`An unreleased model escaped human control and formed a swarm of A.I. agents. It was the kind breach that could cause chaos next time.`\
+https://www.nytimes.com/2026/09/06/world/ai-hugging-face-afd-germany-election.html
+
+**Niels Refsgaard, Who Transformed the American Table, Dies at 91**\
+`As a designer for Dansk, he created dishware that reflected the casual dining style of the late 1960s and 70s, when fine china became an anachronism.`\
+https://www.nytimes.com/2026/09/06/obituaries/niels-refsgaard-dead.html
+
 **For Trump’s Former Fixer, a Tortured Path From ‘Rat’ to Reconciliation**\
 `The president has made peace with Michael D. Cohen, his onetime lawyer who turned against him. But contrary to Mr. Trump’s claims, Mr. Cohen has not recanted the testimony that helped convict his former boss.`\
 https://www.nytimes.com/2026/09/06/us/politics/michael-cohen-donald-trump-interview.html
@@ -7,7 +15,7 @@ https://www.nytimes.com/2026/09/06/us/politics/michael-cohen-donald-trump-interv
 https://www.nytimes.com/interactive/2026/09/06/nyregion/9-11-memorial-pools-cleaning.html
 
 **Live Updates: Cargo Plane Overruns Runway at Miami Airport, Striking Vehicles**\
-`The plane was part of Amazon’s cargo fleet and was flying from Puerto Rico.`\
+`The plane was part of Amazon’s cargo fleet and was flying from Puerto Rico. Flights out of Miami Airport are grounded, with incoming flights diverted to other airfields.`\
 https://www.nytimes.com/live/2026/09/06/us/miami-plane-crash
 
 **Cargo Plane Crashes at Miami Airport, Striking Vehicles**\
@@ -34,8 +42,8 @@ https://www.nytimes.com/2026/09/06/dining/a-mini-rosh-hashana-menu.html
 `In movies like “It Ends” and “Exit 8,” the scares come from reliving the same thing over and over again.`\
 https://www.nytimes.com/2026/09/06/movies/it-ends-trapped-horror-films.html
 
-**Live Updates: Germany’s Far Right Has Big Lead in Key Election, Exit Polls Show**\
-`The Alternative for Germany party was projected to finish first in the eastern state of Saxony-Anhalt. But it was not clear whether it would win a majority — which would propel a far-right party into power for the first time since World War II.`\
+**Live Updates: Germany’s Far Right Tops Key State Race, but Falls Short of Power**\
+`Near-final results showed that the Alternative for Germany party finished first in the eastern state of Saxony-Anhalt. But it was not on track to win a majority, which would have put a far-right party into power for the first time since World War II.`\
 https://www.nytimes.com/live/2026/09/06/world/germany-election
 
 **Trump Administration Again Asks Supreme Court to Allow Mail Voting Restrictions**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/06/business/victorias-secret-pink.html
 **Book Review: ‘Tower Hill,’ by Alan Taylor**\
 `In “Tower Hill,” the Pulitzer Prize-winning scholar Alan Taylor pulls apart the twisted logic of a Virginia slave owner and his descendants.`\
 https://www.nytimes.com/2026/09/06/books/review/tower-hill-alan-taylor.html
-
-**In Ukraine, Fraud and Waste Are Rewarded With More Weapons Contracts**\
-`Secret military audits reveal a military procurement system riddled with mismanagement. In 2024 alone, Ukraine lost $1.2 billion to fraud and waste.`\
-https://www.nytimes.com/2026/09/06/world/europe/ukraine-war-weapons-fraud-corruption.html
-
-**Chef Andy Baraghani Prepares to Open Ditto, His First Restaurant**\
-`Ditto, the first venture by the chef and food writer Andy Baraghani, promises to be the kind of dining establishment New Yorkers need right now.`\
-https://www.nytimes.com/2026/09/06/style/andy-baraghani-ditto-nyc-restaurant.html
 

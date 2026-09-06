@@ -1,3 +1,19 @@
+**When A.I. Starts Scheming**\
+`An unreleased model escaped human control and formed a swarm of A.I. agents. It was the kind breach that could cause chaos next time.`\
+https://www.nytimes.com/2026/09/06/world/ai-hugging-face-afd-germany-election.html
+
+**Niels Refsgaard, Who Transformed the American Table, Dies at 91**\
+`As a designer for Dansk, he created dishware that reflected the casual dining style of the late 1960s and 70s, when fine china became an anachronism.`\
+https://www.nytimes.com/2026/09/06/obituaries/niels-refsgaard-dead.html
+
+**Live Updates: Cargo Plane Overruns Runway at Miami Airport, Striking Vehicles**\
+`The plane was part of Amazon’s cargo fleet and was flying from Puerto Rico. Flights out of Miami Airport are grounded, with incoming flights diverted to other airfields.`\
+https://www.nytimes.com/live/2026/09/06/us/miami-plane-crash
+
+**Live Updates: Germany’s Far Right Tops Key State Race, but Falls Short of Power**\
+`Near-final results showed that the Alternative for Germany party finished first in the eastern state of Saxony-Anhalt. But it was not on track to win a majority, which would have put a far-right party into power for the first time since World War II.`\
+https://www.nytimes.com/live/2026/09/06/world/germany-election
+
 **For Trump’s Former Fixer, a Tortured Path From ‘Rat’ to Reconciliation**\
 `The president has made peace with Michael D. Cohen, his onetime lawyer who turned against him. But contrary to Mr. Trump’s claims, Mr. Cohen has not recanted the testimony that helped convict his former boss.`\
 https://www.nytimes.com/2026/09/06/us/politics/michael-cohen-donald-trump-interview.html
