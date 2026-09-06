@@ -1,3 +1,11 @@
+**10-Minute Challenge: Angel Oak**\
+`We’d like you to look at this tree for 10 minutes, uninterrupted.`\
+https://www.nytimes.com/interactive/2026/09/06/upshot/10-minute-challenge-angel-oak.html
+
+**Trump Envoys Visit Kyiv to Revive Russia-Ukraine Peace Talks**\
+`President Trump’s envoys, Steve Witkoff and Jared Kushner, met with President Volodymyr Zelensky of Ukraine in Kyiv on Sunday. The meeting was part of an effort to revive peace talks between Russia and Ukraine.`\
+https://www.nytimes.com/video/world/europe/100000011136458/ukraine-zelensky-witkoff-kushner-russia-putin.html
+
 **NYT Crossword Answers for Sept. 7, 2026**\
 `Jeff Chen and Stephan Prock want to help you up your game.`\
 https://www.nytimes.com/2026/09/06/crosswords/daily-puzzle-2026-09-07.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/06/us/politics/hegseth-army-general-donahue.html
 **CCRCs Are Expanding Retirement Home Care to Seniors’ Own Homes**\
 `Continuing care retirement communities are widening their scope to help retirees age in place, with measured supports and a way to cap the soaring costs of aging.`\
 https://www.nytimes.com/2026/09/06/business/retirement-long-term-care.html
-
-**Book Review: ‘Switzy,’ by Emma Cline**\
-`In an impressive change of pace, Emma Cline’s new novel gets inside the head of a stoic businessman with dementia.`\
-https://www.nytimes.com/2026/09/06/books/review/switzy-emma-cline.html
-
-**How Victoria’s Secret Is Reviving Its Pink Brand**\
-`After Pink’s sales slipped in recent years, Victoria Secret’s new chief executive is focused on making women feel bold and flirty.`\
-https://www.nytimes.com/2026/09/06/business/victorias-secret-pink.html
 
