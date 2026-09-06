@@ -1,3 +1,11 @@
+**We Can’t Know Our A.I. Future if We Don’t Study It**\
+`Just as A.I. is poised to change the world, we’re losing our best ways of studying what that change will look like.`\
+https://www.nytimes.com/2026/09/06/opinion/ai-social-sciences.html
+
+**NYT Strands Hints for September 7, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Sept. 7, 2026.`\
+https://www.nytimes.com/2026/09/06/crosswords/strands-sidekick-918.html
+
 **As Midterms Approach, Republicans Find There Is No Escape From Trump**\
 `The president’s strategy, message and spending have left the G.O.P. in a difficult spot as lawmakers try to outrun his sagging approval ratings.`\
 https://www.nytimes.com/2026/09/06/us/politics/trump-miderm-elections-republicans.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/05/us/politics/us-military-sinks-boats-near-ecua
 **A Sympathetic Defendant and Well-Crafted Defense Dominated Clancy Trial**\
 `The defense lawyer for Lindsay Clancy showed empathy for his client in showcasing her mental health problems. That may have made all the difference.`\
 https://www.nytimes.com/2026/09/05/us/lindsay-clancy-trial-defense-prosecutor-tactics.html
-
-**NYT Crossword Answers for Sept. 6, 2026**\
-`Catch a few double features in John Kugelman’s illustrated crossword.`\
-https://www.nytimes.com/2026/09/05/crosswords/daily-puzzle-2026-09-06.html
-
-**E. Coli Illnesses Linked to Frozen Blueberries Are Up to 17, F.D.A. Says**\
-`The affected frozen fruit products, which were distributed to 19 states and to retailers like Walmart and Publix, were recalled starting in July.`\
-https://www.nytimes.com/2026/09/05/health/frozen-blueberries-recall-e-coli.html
 

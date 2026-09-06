@@ -1,3 +1,11 @@
+**We Can’t Know Our A.I. Future if We Don’t Study It**\
+`Just as A.I. is poised to change the world, we’re losing our best ways of studying what that change will look like.`\
+https://www.nytimes.com/2026/09/06/opinion/ai-social-sciences.html
+
+**NYT Strands Hints for September 7, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Sept. 7, 2026.`\
+https://www.nytimes.com/2026/09/06/crosswords/strands-sidekick-918.html
+
 **As Midterms Approach, Republicans Find There Is No Escape From Trump**\
 `The president’s strategy, message and spending have left the G.O.P. in a difficult spot as lawmakers try to outrun his sagging approval ratings.`\
 https://www.nytimes.com/2026/09/06/us/politics/trump-miderm-elections-republicans.html
