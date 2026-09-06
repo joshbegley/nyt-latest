@@ -1,3 +1,7 @@
+**Oil Prices Rise Slightly After U.S. and Iran Trade Strikes**\
+`Brent crude, the global benchmark for oil, was up about 1 percent as trading resumed on Sunday, while the national average price of gas was nearly $4.15 a gallon.`\
+https://www.nytimes.com/2026/09/06/business/oil-gas-prices-iran-war.html
+
 **10-Minute Challenge: Angel Oak**\
 `We’d like you to look at this tree for 10 minutes, uninterrupted.`\
 https://www.nytimes.com/interactive/2026/09/06/upshot/10-minute-challenge-angel-oak.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/06/books/review/living-with-freddie-anna-heyward
 **The Battle to Save General Donahue From Hegseth’s Army Purge**\
 `Gen. Christopher T. Donahue’s vision for fighting future wars won him powerful supporters around the world. Could they save his career?`\
 https://www.nytimes.com/2026/09/06/us/politics/hegseth-army-general-donahue.html
-
-**CCRCs Are Expanding Retirement Home Care to Seniors’ Own Homes**\
-`Continuing care retirement communities are widening their scope to help retirees age in place, with measured supports and a way to cap the soaring costs of aging.`\
-https://www.nytimes.com/2026/09/06/business/retirement-long-term-care.html
 
