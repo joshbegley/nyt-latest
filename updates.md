@@ -1,3 +1,11 @@
+**Trump Administration Again Asks Supreme Court to Allow Mail Voting Restrictions**\
+`The filing puts the legality of the president’s push to impose limits on mail voting squarely before the justices even as states begin sending out ballots.`\
+https://www.nytimes.com/2026/09/06/us/politics/trump-administration-again-asks-supreme-court-to-allow-mail-voting-restrictions.html
+
+**U.S. Envoys Witkoff and Kushner Arrive in Kyiv After Talks With Putin**\
+`Steve Witkoff and Jared Kushner were meeting on Sunday with Volodymyr Zelensky in Ukraine, a day after talks with Vladimir V. Putin in Moscow.`\
+https://www.nytimes.com/2026/09/06/world/europe/ukraine-zelensky-witkoff-kushner-russia-putin.html
+
 **OPEC Plus to Keep Oil Production Steady**\
 `The decision on Sunday by the cartel of oil-producing nations and some of its allies came after the resumption of U.S. and Iranian military strikes in the Persian Gulf.`\
 https://www.nytimes.com/2026/09/06/business/opec-iran-war-oil-production.html
