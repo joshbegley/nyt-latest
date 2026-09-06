@@ -1,3 +1,11 @@
+**Un estudio de proteínas cerebrales genera optimismo sobre los tratamientos para el autismo**\
+`El estudio podría llevar a tratamientos que ayuden a las personas con autismo grave causado por diferentes mutaciones genéticas y a sus familias.`\
+https://www.nytimes.com/es/2026/09/06/espanol/ciencia-y-tecnologia/estudio-proteinas-cerebrales-tratamiento-autismo.html
+
+**Hay más de 1000 marcadores genéticos vinculados a la personalidad, según unos científicos**\
+`El equipo de investigación escaneó aproximadamente 10 millones de variantes genéticas en todo el genoma para poder mapear los “cinco grandes rasgos” de personalidad.`\
+https://www.nytimes.com/es/2026/09/06/espanol/ciencia-y-tecnologia/genetica-rasgos-personalidad.html
+
 **The Best Movies and TV Shows Coming to Netflix in September**\
 `A revival of “A Different World” and a feature-length “Call My Agent!” film are among the highlights.`\
 https://www.nytimes.com/2026/09/06/arts/television/netflix-new-shows-movies.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/05/briefing/scenic-route.html
 **The Fall of James Orr, the Man Called Farage’s Brain**\
 `James Orr, who has ties to Peter Thiel and JD Vance, was suspended from Reform U.K. after he was filmed apparently arranging contributions from a man posing as a foreign donor.`\
 https://www.nytimes.com/2026/09/05/world/europe/reform-uk-james-orr-expose.html
-
-**Una rutina para desarrollar tu fuerza rotacional**\
-`Los movimientos de torsión son parte de la vida cotidiana. Estos ejercicios pueden ayudarte a hacerlos con facilidad y control.`\
-https://www.nytimes.com/es/2026/09/05/espanol/ejercicios-fuerza-rotacional.html
-
-**Por qué el hackeo a Hugging Face debería preocuparte más**\
-`El ataque de un “colectivo” agresivo de agentes de OpenAI muestra el peligro de los sistemas de IA capaces de organizarse entre ellos.`\
-https://www.nytimes.com/es/2026/09/05/espanol/negocios/hackeo-hugging-face-riesgo-ia.html
 
