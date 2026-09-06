@@ -1,3 +1,7 @@
+**Live Updates: Cargo Plane Overruns Runway at Miami Airport, Striking Vehicles**\
+`The plane was part of Amazon’s cargo fleet and was flying from Puerto Rico.`\
+https://www.nytimes.com/live/2026/09/06/us/miami-plane-crash
+
 **Cargo Plane Crashes at Miami Airport, Striking Vehicles**\
 `Officials said there were “multiple patients” but their injuries were not immediately known. Flights were halted at Miami International Airport after the Boeing 767-300 cargo plane overran its landing.`\
 https://www.nytimes.com/2026/09/06/us/plane-crash-amazon-miami-airport.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/09/06/espanol/negocios/ia-gig-work-redaccion-ken
 **Un expediente secreto refuerza la acusación de que Sudán usó armas químicas**\
 `Fotografías, videos, documentos y comunicaciones interceptadas retratan a una unidad militar sudanesa secreta que, según se describe, produjo municiones a base de cloro.`\
 https://www.nytimes.com/es/2026/09/06/espanol/mundo/sudan-armas-quimicas.html
-
-**¿A qué sonaban los bosques jurásicos?**\
-`Científicos pasaron más de una década reconstruyendo los llamados de nueve especies de insectos antiguos para crear el primer paisaje sonoro preciso del Jurásico.`\
-https://www.nytimes.com/es/2026/09/06/espanol/ciencia-y-tecnologia/bosques-jurasicos-sonidos.html
 
