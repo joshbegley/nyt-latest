@@ -14,8 +14,8 @@ https://www.nytimes.com/2026/09/06/us/politics/michael-cohen-donald-trump-interv
 `Jim Maroon has been doing his job for 14 years. He knows it’s a big responsibility.`\
 https://www.nytimes.com/interactive/2026/09/06/nyregion/9-11-memorial-pools-cleaning.html
 
-**Live Updates: Cargo Plane Overruns Runway at Miami Airport, Striking Vehicles**\
-`The plane was part of Amazon’s cargo fleet and was flying from Puerto Rico. Flights out of Miami Airport are grounded, with incoming flights diverted to other airfields.`\
+**Live Updates: 5 Killed and Multiple People Injured as Cargo Plane Overruns Runway at Miami Airport**\
+`The plane was part of Amazon’s cargo fleet and was flying from Puerto Rico.`\
 https://www.nytimes.com/live/2026/09/06/us/miami-plane-crash
 
 **Cargo Plane Crashes at Miami Airport, Striking Vehicles**\

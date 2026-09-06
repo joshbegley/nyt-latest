@@ -1,3 +1,7 @@
+**Live Updates: 5 Killed and Multiple People Injured as Cargo Plane Overruns Runway at Miami Airport**\
+`The plane was part of Amazon’s cargo fleet and was flying from Puerto Rico.`\
+https://www.nytimes.com/live/2026/09/06/us/miami-plane-crash
+
 **When A.I. Starts Scheming**\
 `An unreleased model escaped human control and formed a swarm of A.I. agents. It was the kind breach that could cause chaos next time.`\
 https://www.nytimes.com/2026/09/06/world/ai-hugging-face-afd-germany-election.html
