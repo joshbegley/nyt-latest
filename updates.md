@@ -1,3 +1,7 @@
+**The One Thing That Could Make Tennis Even Better**\
+`Tennis is not a prissy sport. Nothing makes the drama of it more visible than a smashed racket.`\
+https://www.nytimes.com/2026/09/06/opinion/tennis-smashed-racket-us-open.html
+
 **La OPEP Plus mantendrá estable la producción de petróleo**\
 `Por primera vez desde abril, la OPEP y algunos de sus aliados, incluida Rusia, decidieron no aumentar la producción.`\
 https://www.nytimes.com/es/2026/09/06/espanol/negocios/precio-petroleo-opep.html

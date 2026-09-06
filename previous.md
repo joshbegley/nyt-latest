@@ -50,7 +50,7 @@ https://www.nytimes.com/2026/09/06/opinion/hegseth-national-security-military-ge
 `She has become the world’s most unknown famous artist.`\
 https://www.nytimes.com/2026/09/06/opinion/yayoi-kusama-art-tokyo.html
 
-**Let Tennis Players Smash Their Rackets**\
+**The One Thing That Could Make Tennis Even Better**\
 `Tennis is not a prissy sport. Nothing makes the drama of it more visible than a smashed racket.`\
 https://www.nytimes.com/2026/09/06/opinion/tennis-smashed-racket-us-open.html
 
