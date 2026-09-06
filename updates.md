@@ -1,3 +1,11 @@
+**The Most Popular Recipes From The Weeknight 100**\
+`Tomato basil chicken breasts, a cheeseburger soup, coconutty shrimp noodles and so much more.`\
+https://www.nytimes.com/2026/09/06/dining/the-most-popular-recipes-from-the-weeknight-100.html
+
+**Fires Can Destroy, or Save, America’s Great Forests**\
+`Responses to an article about the impact of bigger fires on America’s great forests. Also: The college admissions essay; shameful deportations; the U.S. Open versus the Knicks.`\
+https://www.nytimes.com/2026/09/06/opinion/letters/fires-forests-college-essay-deportations.html
+
 **Trump Envoys Make First Visit to Kyiv**\
 `Steve Witkoff and Jared Kushner were meeting on Sunday with Volodymyr Zelensky in Ukraine, a day after talks with Vladimir V. Putin in Moscow.`\
 https://www.nytimes.com/2026/09/06/world/europe/ukraine-zelensky-witkoff-kushner-russia-putin.html

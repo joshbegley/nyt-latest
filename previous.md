@@ -1,3 +1,11 @@
+**The Most Popular Recipes From The Weeknight 100**\
+`Tomato basil chicken breasts, a cheeseburger soup, coconutty shrimp noodles and so much more.`\
+https://www.nytimes.com/2026/09/06/dining/the-most-popular-recipes-from-the-weeknight-100.html
+
+**Fires Can Destroy, or Save, America’s Great Forests**\
+`Responses to an article about the impact of bigger fires on America’s great forests. Also: The college admissions essay; shameful deportations; the U.S. Open versus the Knicks.`\
+https://www.nytimes.com/2026/09/06/opinion/letters/fires-forests-college-essay-deportations.html
+
 **Bummer Time**\
 `If you thought this summer felt a little bit off, you’re not alone.`\
 https://www.nytimes.com/2026/09/06/briefing/summer-heat-wave.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/es/2026/09/06/espanol/ciencia-y-tecnologia/genetica-rasg
 **The Best Movies and TV Shows Coming to Netflix in September**\
 `A revival of “A Different World” and a feature-length “Call My Agent!” film are among the highlights.`\
 https://www.nytimes.com/2026/09/06/arts/television/netflix-new-shows-movies.html
-
-**It’s Not Just the West Bank Settlers. It’s Israel.**\
-`Settler violence is reaching new heights.`\
-https://www.nytimes.com/2026/09/06/opinion/israel-west-bank-settlers-violence.html
-
-**In Germany, Ulrich Siegmund Is Bringing the AfD to the Cusp of Power**\
-`Ulrich Siegmund, 35, once sold air fresheners. Now his far-right party is the favorite to win a state election in eastern Germany on Sunday.`\
-https://www.nytimes.com/2026/09/06/world/europe/afd-germany-election-ulrich-siegmund.html
 
