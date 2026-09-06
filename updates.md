@@ -1,3 +1,23 @@
+**In Germany, Ulrich Siegmund Is Bringing the AfD to the Cusp of Power**\
+`Ulrich Siegmund, 35, once sold air fresheners. Now his far-right party is the favorite to win a state election in eastern Germany on Sunday.`\
+https://www.nytimes.com/2026/09/06/world/europe/afd-germany-election-ulrich-siegmund.html
+
+**‘Go Get Your Kicks’: The Europeans Obsessed With a U.S. Highway**\
+`As Route 66 turns 100, tourists in search of Americana try to keep war, inflation and politics in the rearview.`\
+https://www.nytimes.com/2026/09/06/business/route-66-highway-centennial.html
+
+**Elections in Germany Could Produce First Far-Right State Government Since Nazi Era: What to Know**\
+`Elections in Saxony-Anhalt, in the country’s east, could result in an outright majority for the Alternative for Germany party.`\
+https://www.nytimes.com/2026/09/06/world/europe/germany-election-afd-saxony-anhalt.html
+
+**China’s New Graduates, Facing a Dire Job Market, Must Also Contend With A.I.**\
+`A record 12.7 million young people are looking for jobs as the country embraces artificial intelligence — and as the technology begins to upend the work force.`\
+https://www.nytimes.com/2026/09/06/world/asia/chinas-new-graduates-ai-challenges.html
+
+**His Parties Fill a Tall Order**\
+`Tyler Bergantino, who is 6-foot-9, created the Tall Tour event series, celebrating people’s exceptional height in a world that doesn’t always allow the legroom.`\
+https://www.nytimes.com/2026/09/06/style/tyler-bergantino-tall-tour-events.html
+
 **No Corrections: Sept. 6, 2026**\
 `No corrections appeared in print on Sunday, Sept. 6, 2026.`\
 https://www.nytimes.com/2026/09/06/corrections/no-corrections-sept-6-2026.html
