@@ -1,3 +1,95 @@
+**Esta startup ayuda a la gente a morir**\
+`La asistencia médica para morir ahora es legal en Nueva York. Un equipo de profesionales clínicos creó un consultorio para ayudar a sus pacientes a morir en sus propios términos.`\
+https://www.nytimes.com/es/2026/09/06/espanol/startup-ayuda-morir.html
+
+**Las estrellas de ‘Hechizo de amor’ han recuperado sus poderes**\
+`Sandra Bullock, Nicole Kidman, Joey King y Maisie Williams hablan sobre la inesperada secuela, cómo aceptan su lado mágico y sus esperanzas de una tercera película.`\
+https://www.nytimes.com/es/2026/09/06/espanol/cultura/hechizo-amor-practical-magic.html
+
+**What Secret Audits Tell Us About How Ukraine’s Military Is Spending Its Money**\
+`The documents amount to an autopsy of the weapons-contracting process.`\
+https://www.nytimes.com/2026/09/06/world/europe/ukraine-military-audits-spending-weapons.html
+
+**How a Memphis Gambling Raid Became a Sweeping Immigration Operation**\
+`More than 120 people were arrested at a Memphis cantina, in one of the biggest immigration operations in Tennessee this year.`\
+https://www.nytimes.com/2026/09/06/us/memphis-cantina-gambling-raid-immigration.html
+
+**Why the United Methodist Church Is Suing a Thriving Texas Congregation**\
+`The fight reflects a larger American phenomenon: Churchgoers increasingly want decisions to be made at the local level, not by a national denomination.`\
+https://www.nytimes.com/2026/09/06/us/highland-park-united-methodist-church-dallas.html
+
+**Iran’s Attacks Keep the Strait of Hormuz in a Lethal Stalemate**\
+`The U.S. military is helping oil get out of the Persian Gulf on tankers, but Iran is still attacking the ships and scaring operators away.`\
+https://www.nytimes.com/2026/09/06/business/iran-us-strait-of-hormuz-shipping.html
+
+**1960s ‘Wave House’ Is on the Market Following Years of Renovations**\
+`Two architects bought a Jules Gregory house for $630,000 in 2015 and spent years on renovations. It is now listed for $1.65 million.`\
+https://www.nytimes.com/2026/09/06/realestate/modernist-wave-house-jules-gregory.html
+
+**A Bad Year for Bees Gets Worse as Trump’s Tariffs Hit Canada’s Honey Belt**\
+`Alberta produces 40 percent of Canada’s honey. This year, rain and President Trump’s trade war have combined to threaten the industry.`\
+https://www.nytimes.com/2026/09/06/world/canada/a-bad-year-for-bees-gets-worse-as-trumps-tariffs-hit-canadas-honey-belt.html
+
+**Trump’s War on Mail-In Ballots Has Voters Baffled. That May Be the Point.**\
+`From Oregon to Florida, officials are at once reassuring voters that their ballots are safe and encouraging them to use drop boxes or vote in person.`\
+https://www.nytimes.com/2026/09/06/us/elections/trump-mail-in-voting-confusion.html
+
+**New Hampshire Democrats Sound an Alarm: ‘We’re Losing’**\
+`The state has not elected a Republican to the Senate since 2010. But Chris Pappas, the likely Democratic nominee, anticipates a tough race against a well-known opponent, John E. Sununu.`\
+https://www.nytimes.com/2026/09/06/us/politics/pappas-sununu-new-hampshire-senate.html
+
+**For Fired DeSantis Campaign Staff Member, a Second Chance at State Dept.**\
+`The hiring of Nate Hochman, who lost his job amid an uproar over a video containing a Nazi symbol, underscores the administration’s willingness to overlook past transgressions.`\
+https://www.nytimes.com/2026/09/06/us/politics/nate-hochman-state-dept.html
+
+**How a Blacklisted Chinese Tech Giant Kept Buying America’s Best A.I. Chips**\
+`Washington imposed sanctions on Inspur because of its work with the Chinese military. But the company’s subsidiary kept shipping Nvidia’s best chips to feed China’s leading A.I. firms.`\
+https://www.nytimes.com/2026/09/06/technology/ai-chips-china-blacklist.html
+
+**The 92-Year-Old Mathematician and the Teenage Apprentice**\
+`Joan Birman thought her major discoveries were behind her. Then came an email from a young neighbor — a girl who knew little but wanted to learn.`\
+https://www.nytimes.com/2026/09/06/science/92-year-old-mathematician-apprentice.html
+
+**Saying ‘I Do’ Amid Heat, Hail and Fires**\
+`Extreme weather and other wedding-day crises can require ingenuity and sometimes the kindness of strangers.`\
+https://www.nytimes.com/2026/09/06/style/flash-floods-wildfires-extreme-weather-wedding.html
+
+**The C.E.O. Teaching Future Generations About 9/11**\
+`Elizabeth Hillman, chief of the 9/11 Memorial & Museum since 2022, says the stories of that day “remain compelling, and they’re still unfolding.”`\
+https://www.nytimes.com/2026/09/06/business/9-11-museum-elizabeth-hillman.html
+
+**Book Review: ‘Living With Freddie,’ by Anna Heyward**\
+`In “Living With Freddie,” Anna Heyward recalls the pet who taught her “to be human.”`\
+https://www.nytimes.com/2026/09/06/books/review/living-with-freddie-anna-heyward.html
+
+**The Battle to Save General Donahue From Hegseth’s Army Purge**\
+`Gen. Christopher T. Donahue’s vision for fighting future wars won him powerful supporters around the world. Could they save his career?`\
+https://www.nytimes.com/2026/09/06/us/politics/hegseth-army-general-donahue.html
+
+**CCRCs Are Expanding Retirement Home Care to Seniors’ Own Homes**\
+`Continuing care retirement communities are widening their scope to help retirees age in place, with measured supports and a way to cap the soaring costs of aging.`\
+https://www.nytimes.com/2026/09/06/business/retirement-long-term-care.html
+
+**Book Review: ‘Switzy,’ by Emma Cline**\
+`In an impressive change of pace, Emma Cline’s new novel gets inside the head of a stoic businessman with dementia.`\
+https://www.nytimes.com/2026/09/06/books/review/switzy-emma-cline.html
+
+**How Victoria’s Secret Is Reviving Its Pink Brand**\
+`After Pink’s sales slipped in recent years, Victoria Secret’s new chief executive is focused on making women feel bold and flirty.`\
+https://www.nytimes.com/2026/09/06/business/victorias-secret-pink.html
+
+**Book Review: ‘Tower Hill,’ by Alan Taylor**\
+`In “Tower Hill,” the Pulitzer Prize-winning scholar Alan Taylor pulls apart the twisted logic of a Virginia slave owner and his descendants.`\
+https://www.nytimes.com/2026/09/06/books/review/tower-hill-alan-taylor.html
+
+**In Ukraine, Fraud and Waste Are Rewarded With More Weapons Contracts**\
+`Secret military audits reveal a military procurement system riddled with mismanagement. In 2024 alone, Ukraine lost $1.2 billion to fraud and waste.`\
+https://www.nytimes.com/2026/09/06/world/europe/ukraine-war-weapons-fraud-corruption.html
+
+**Chef Andy Baraghani Prepares to Open Ditto, His First Restaurant**\
+`Ditto, the first venture by the chef and food writer Andy Baraghani, promises to be the kind of dining establishment New Yorkers need right now.`\
+https://www.nytimes.com/2026/09/06/style/andy-baraghani-ditto-nyc-restaurant.html
+
 **Durante años, los kenianos hicieron las tareas de estudiantes universitarios. Luego llegó la IA**\
 `Miles de kenianos se ganaban la vida escribiendo ensayos para estudiantes en el extranjero. Con la IA, el trabajo se ha agotado: es una advertencia para el trabajo por encargo en línea que ha sido un salvavidas mundial.`\
 https://www.nytimes.com/es/2026/09/06/espanol/negocios/ia-gig-work-redaccion-kenia.html
@@ -105,96 +197,4 @@ https://www.nytimes.com/2026/09/05/us/robin-morgan-dead.html
 **Unruly Passenger Is Restrained With Duct Tape During a Flight**\
 `The passenger on an American Airlines flight began to shout vulgarities and then became violent on Thursday, the authorities said. That’s when two passengers stepped in.`\
 https://www.nytimes.com/2026/09/05/us/american-airlines-passenger-duct-tape.html
-
-**Disruptive Passenger Restrained With Duct Tape on Flight**\
-`An unruly man on an American Airlines flight was restrained with duct tape and zip ties, the authorities said. The plane, which was headed to New Jersey from Texas, was diverted to Baltimore.`\
-https://www.nytimes.com/video/us/100000011135578/american-airlines-passenger-duct-tape-restrained.html
-
-**Latimore, R&B Singer Known for ‘Let’s Straighten It Out,’ Dies at 86**\
-`The Blues Hall of Famer became a sensation in 1974 with his hit song “Let’s Straighten It Out.”`\
-https://www.nytimes.com/2026/09/05/arts/music/latimore-dead.html
-
-**New York City Supports Push to Reopen Columbia Pathway to the Public**\
-`Community members and students sued the school last year to reopen the gates, which were closed during protests against Israel’s war in Gaza.`\
-https://www.nytimes.com/2026/09/05/nyregion/columbia-university-college-walk.html
-
-**Will Lindsay Clancy Be Retried? The Decision Now Facing Prosecutor Timothy Cruz.**\
-`After a mistrial, Timothy Cruz must decide whether to retry Lindsay Clancy on first-degree murder charges, downgrade the charges or drop the case.`\
-https://www.nytimes.com/2026/09/05/us/timothy-cruz-lindsay-clancy-retrial-decision.html
-
-**Trump’s Super PAC Will Spend $10 Million on Texas Senate Race**\
-`A financial filing announcing the TV and digital ad buy is the first general election spending by MAGA Inc. The group intends to boost the Republican nominee, Ken Paxton.`\
-https://www.nytimes.com/2026/09/05/us/politics/trump-maga-inc-super-pac.html
-
-**¿Hay restos alienígenas en la Luna?**\
-`Unos investigadores buscan explorar la posibilidad de que partículas microscópicas desprendidas por civilizaciones extraterrestres se hayan acumulado en la superficie lunar, convirtiéndola en un archivo de tecnología extraterrestre.`\
-https://www.nytimes.com/es/2026/09/05/espanol/ciencia-y-tecnologia/restos-alienigenas-luna.html
-
-**Trump Officials Draft Plan to Pay At-Home Parents, Using Funds for Working Ones**\
-`The proposed benefit, a top policy priority for Vice President JD Vance, would apply only to married couples and tap a fund intended to provide federal child care subsidies to working parents.`\
-https://www.nytimes.com/2026/09/05/us/politics/stay-at-home-parents-subsidies.html
-
-**Elecciones intermedias en EE. UU.: cada vez más estadounidenses se identifican como demócratas**\
-`Los datos de Gallup muestran que los demócratas y los independientes con inclinaciones demócratas tienen su mayor ventaja sobre los republicanos desde 2008.`\
-https://www.nytimes.com/es/2026/09/05/espanol/estados-unidos/elecciones-intermedias-encuestas-democratas.html
-
-**Pierre Damas Bel Should Not Be Dead**\
-`Pierre Damas Bel should still be alive.`\
-https://www.nytimes.com/2026/09/05/opinion/columnists/pierre-damas-bel-haiti-trump.html
-
-**Is Work Starting for Trump’s Arch? It Depends Who’s Asking.**\
-`The Justice Department told a court the government would only conduct archaeological excavation, a day after a Trump official announced the project was in motion.`\
-https://www.nytimes.com/2026/09/05/us/politics/trump-arch-justice-department.html
-
-**Huckabee Condemns ‘Terrorist’ Attacks on Palestinians in West Bank Town Hall**\
-`Mike Huckabee, the U.S. ambassador to Israel, made a rare trip to meet with Palestinians after international backlash over attacks by Israeli settlers.`\
-https://www.nytimes.com/2026/09/05/world/middleeast/huckabee-west-bank-settler-attacks.html
-
-**Superfast Noodles and Fancy-Feeling Beans**\
-`Or more formally: cream cheese ramen and garlicky ricotta-bean toasts, both from Kevin Pang.`\
-https://www.nytimes.com/2026/09/05/dining/superfast-noodles-and-fancy-feeling-beans.html
-
-**Ossoff and Talarico to Share Fund-Raising Event in Hollywood**\
-`The event with the Georgia and Texas Democrats will be hosted by Shonda Rhimes.`\
-https://www.nytimes.com/2026/09/05/us/politics/ossoff-talarico-rhimes-fundraiser.html
-
-**Bakes for Your Late-Summer Harvest**\
-`Put your abundant crops toward zucchini bread, blueberry muffins, tomato cobbler and more.`\
-https://www.nytimes.com/2026/09/05/dining/bakes-for-your-late-summer-harvest.html
-
-**Missouri Asks Supreme Court to Allow Voting Map Benefiting Republicans**\
-`Missouri’s Supreme Court said a map redrawn to help Republicans could not be used in November and said voters should decide on the new boundaries.`\
-https://www.nytimes.com/2026/09/05/us/politics/missouri-supreme-court-voting-map.html
-
-**Septiembre es el nuevo enero**\
-`Aprovecha esa energía del regreso a clases para ponerte algunas metas nuevas.`\
-https://www.nytimes.com/es/2026/09/05/espanol/regreso-clases.html
-
-**U.S. Strikes Three Iranian ‘Shadow Network’ Oil Tankers, Military Says**\
-`The U.S. military said it retaliated after Iran launched missiles at two warships. The strikes came days after the two sides exchanged some of their most intense fire in weeks.`\
-https://www.nytimes.com/2026/09/05/world/middleeast/iran-us-kharg-oil-tanker-attack.html
-
-**The Purest American Culture Lives on at Local Festivals**\
-`Turning local traditions into public spectacle is a U.S. pastime.`\
-https://www.nytimes.com/2026/09/05/opinion/unique-american-local-festivals.html
-
-**Summer Has Gotten Much Hotter. See How Bad It Is Where You Live.**\
-`The notion of enduring the summer rather than embracing it has spread far beyond the Sun Belt.`\
-https://www.nytimes.com/interactive/2026/09/05/opinion/editorials/extreme-heat-summer.html
-
-**Trump’s Empire of Extraction Will Backfire**\
-`A hazy privatization process will not bring democratic change in Venezuela closer. It will push it further away.`\
-https://www.nytimes.com/2026/09/05/opinion/trump-venezuela-oil-delcy-betancourt.html
-
-**Not So Supreme, Mr. Roberts**\
-`Courting authoritarianism with a rapacious Trump.`\
-https://www.nytimes.com/2026/09/05/opinion/not-so-supreme-mr-roberts.html
-
-**How Scared Should We Be of A.I. Right Now?**\
-`The dark and distressing way that Silicon Valley talks about A.I. can be traced to a philosophy that influenced many tech executives.`\
-https://www.nytimes.com/2026/09/05/opinion/ai-silicon-valley.html
-
-**Here Is Where Ukraine Peace Talks Stand, as a New Round Approaches**\
-`A deadly campaign of Russian and Ukrainian airstrikes has escalated since the last U.S.-brokered negotiations stalled in February.`\
-https://www.nytimes.com/2026/09/05/world/europe/ukraine-russia-talks-wtk.html
 
