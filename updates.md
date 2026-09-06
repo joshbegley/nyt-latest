@@ -1,3 +1,11 @@
+**AfD Victory in Saxony-Anhalt Sends a Signal to Europe**\
+`A vote in eastern Germany has given fresh momentum to hard-right parties hoping to win elections across Europe next year, analysts said.`\
+https://www.nytimes.com/2026/09/06/world/europe/afd-germany-europe-far-right-saxony-anhalt.html
+
+**Man Arrested After Pushing Toward Democratic Candidate for Ohio Governor**\
+`A spokeswoman for the campaign of Amy Acton, the Democratic nominee, said “multiple people” were injured when an “armed individual” lunged at her during a county fair.`\
+https://www.nytimes.com/2026/09/06/us/politics/amy-acton-governor-candidate-ohio-arrest-incident.html
+
 **El Pentágono aplica el polígrafo a personal por filtraciones a la prensa**\
 `Unas 50 personas fueron sometidas a las pruebas en una investigación sin precedentes que surge tras las noticias sobre la guerra con Irán y las reservas de municiones disminuidas del ejército estadounidense.`\
 https://www.nytimes.com/es/2026/09/06/espanol/estados-unidos/pentagono-filtraciones-prensa-poligrafo.html
