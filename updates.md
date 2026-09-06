@@ -1,3 +1,7 @@
+**It’s Not Just the West Bank Settlers. It’s Israel.**\
+`Settler violence is reaching new heights.`\
+https://www.nytimes.com/2026/09/06/opinion/israel-west-bank-settlers-violence.html
+
 **In Germany, Ulrich Siegmund Is Bringing the AfD to the Cusp of Power**\
 `Ulrich Siegmund, 35, once sold air fresheners. Now his far-right party is the favorite to win a state election in eastern Germany on Sunday.`\
 https://www.nytimes.com/2026/09/06/world/europe/afd-germany-election-ulrich-siegmund.html
