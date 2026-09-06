@@ -1,3 +1,11 @@
+**Cargo Plane Overruns Runway at Miami Airport, Striking Vehicles**\
+`Officials said there were “multiple patients” but their injuries were not immediately known. Thick smoke was visible from the Boeing 767-300 cargo plane at Miami International Airport, video showed.`\
+https://www.nytimes.com/2026/09/06/us/plane-crash-amazon-miami-airport.html
+
+**Haitians Deported From U.S. Are Left Broke and Stranded**\
+`Hundreds have been deported to Haiti in recent weeks, and some say they have been left with no money, no protection from gangs and no place to go.`\
+https://www.nytimes.com/2026/09/06/world/americas/haiti-deportees.html
+
 **The One Thing That Could Make Tennis Even Better**\
 `Tennis is not a prissy sport. Nothing makes the drama of it more visible than a smashed racket.`\
 https://www.nytimes.com/2026/09/06/opinion/tennis-smashed-racket-us-open.html

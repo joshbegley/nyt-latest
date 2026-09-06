@@ -1,3 +1,11 @@
+**Cargo Plane Overruns Runway at Miami Airport, Striking Vehicles**\
+`Officials said there were “multiple patients” but their injuries were not immediately known. Thick smoke was visible from the Boeing 767-300 cargo plane at Miami International Airport, video showed.`\
+https://www.nytimes.com/2026/09/06/us/plane-crash-amazon-miami-airport.html
+
+**Haitians Deported From U.S. Are Left Broke and Stranded**\
+`Hundreds have been deported to Haiti in recent weeks, and some say they have been left with no money, no protection from gangs and no place to go.`\
+https://www.nytimes.com/2026/09/06/world/americas/haiti-deportees.html
+
 **La OPEP Plus mantendrá estable la producción de petróleo**\
 `Por primera vez desde abril, la OPEP y algunos de sus aliados, incluida Rusia, decidieron no aumentar la producción.`\
 https://www.nytimes.com/es/2026/09/06/espanol/negocios/precio-petroleo-opep.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/es/2026/09/06/espanol/mundo/sudan-armas-quimicas.html
 **¿A qué sonaban los bosques jurásicos?**\
 `Científicos pasaron más de una década reconstruyendo los llamados de nueve especies de insectos antiguos para crear el primer paisaje sonoro preciso del Jurásico.`\
 https://www.nytimes.com/es/2026/09/06/espanol/ciencia-y-tecnologia/bosques-jurasicos-sonidos.html
-
-**La exhibición de hurones más grande de EE. UU. une a los amantes de estos ‘animalitos raros’**\
-`Los aficionados a este escurridizo mamífero se reunieron para celebrar las mejores cualidades de una de las mascotas que causa más discordia.`\
-https://www.nytimes.com/es/2026/09/06/espanol/hurones-concurso.html
-
-**‘One Day, for No Particular Reason, I Decided to Wear a Tie’**\
-`A Brooklyn butcher’s gift, a Bronx high school student’s advice and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://www.nytimes.com/2026/09/06/nyregion/metropolitan-diary.html
 
