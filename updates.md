@@ -1,3 +1,7 @@
+**U.S. Military Sinks Boats Said to Aid Drug Smuggling Near Ecuador**\
+`Unlike dozens of similar strikes, no one was killed after people suspected of drug smuggling were removed from what the U.S. military described as a floating refueling station.`\
+https://www.nytimes.com/2026/09/05/us/politics/us-military-sinks-boats-near-ecuador.html
+
 **A Sympathetic Defendant and Well-Crafted Defense Dominated Clancy Trial**\
 `The defense lawyer for Lindsay Clancy showed empathy for his client in showcasing her mental health problems. That may have made all the difference.`\
 https://www.nytimes.com/2026/09/05/us/lindsay-clancy-trial-defense-prosecutor-tactics.html
