@@ -34,7 +34,7 @@ https://www.nytimes.com/2026/09/06/crosswords/strands-sidekick-918.html
 `The president’s strategy, message and spending have left the G.O.P. in a difficult spot as lawmakers try to outrun his sagging approval ratings.`\
 https://www.nytimes.com/2026/09/06/us/politics/trump-miderm-elections-republicans.html
 
-**Trump Envoys Expected to Make First Visit to Kyiv**\
+**Trump Envoys Make First Visit to Kyiv**\
 `Steve Witkoff and Jared Kushner met with President Vladimir V. Putin of Russia in Moscow on Saturday in an effort to revive peace talks.`\
 https://www.nytimes.com/2026/09/06/world/europe/ukraine-zelensky-witkoff-kushner-russia-putin.html
 

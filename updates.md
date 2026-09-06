@@ -1,3 +1,27 @@
+**Pete Hegseth Is a Wrecking Ball**\
+`We are already paying a high price for the defense secretary’s purges and whims.`\
+https://www.nytimes.com/2026/09/06/opinion/hegseth-national-security-military-generals.html
+
+**Yayoi Kusama’s Fame Eclipsed Her Art**\
+`She has become the world’s most unknown famous artist.`\
+https://www.nytimes.com/2026/09/06/opinion/yayoi-kusama-art-tokyo.html
+
+**Let Tennis Players Smash Their Rackets**\
+`Tennis is not a prissy sport. Nothing makes the drama of it more visible than a smashed racket.`\
+https://www.nytimes.com/2026/09/06/opinion/tennis-smashed-racket-us-open.html
+
+**Classical Music Is in Crisis. Gustavo Dudamel Is Here to Save It.**\
+`The charismatic conductor is taking on the New York Philharmonic and a challenge: making the art form feel relevant to more Americans.`\
+https://www.nytimes.com/2026/09/06/podcasts/the-daily/classical-music-is-in-crisis-gustavo-dudamel-is-here-to-save-it.html
+
+**NYT Connections Answers for September 7, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Sept. 7, 2026.`\
+https://www.nytimes.com/2026/09/06/crosswords/connections-companion-1184.html
+
+**Today’s Wordle Hints for September 7, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Sept. 7, 2026.`\
+https://www.nytimes.com/2026/09/06/crosswords/wordle-review-1906.html
+
 **We Can’t Know Our A.I. Future if We Don’t Study It**\
 `Just as A.I. is poised to change the world, we’re losing our best ways of studying what that change will look like.`\
 https://www.nytimes.com/2026/09/06/opinion/ai-social-sciences.html

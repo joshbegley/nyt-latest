@@ -1,3 +1,27 @@
+**Pete Hegseth Is a Wrecking Ball**\
+`We are already paying a high price for the defense secretary’s purges and whims.`\
+https://www.nytimes.com/2026/09/06/opinion/hegseth-national-security-military-generals.html
+
+**Yayoi Kusama’s Fame Eclipsed Her Art**\
+`She has become the world’s most unknown famous artist.`\
+https://www.nytimes.com/2026/09/06/opinion/yayoi-kusama-art-tokyo.html
+
+**Let Tennis Players Smash Their Rackets**\
+`Tennis is not a prissy sport. Nothing makes the drama of it more visible than a smashed racket.`\
+https://www.nytimes.com/2026/09/06/opinion/tennis-smashed-racket-us-open.html
+
+**Classical Music Is in Crisis. Gustavo Dudamel Is Here to Save It.**\
+`The charismatic conductor is taking on the New York Philharmonic and a challenge: making the art form feel relevant to more Americans.`\
+https://www.nytimes.com/2026/09/06/podcasts/the-daily/classical-music-is-in-crisis-gustavo-dudamel-is-here-to-save-it.html
+
+**NYT Connections Answers for September 7, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Sept. 7, 2026.`\
+https://www.nytimes.com/2026/09/06/crosswords/connections-companion-1184.html
+
+**Today’s Wordle Hints for September 7, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Sept. 7, 2026.`\
+https://www.nytimes.com/2026/09/06/crosswords/wordle-review-1906.html
+
 **We Can’t Know Our A.I. Future if We Don’t Study It**\
 `Just as A.I. is poised to change the world, we’re losing our best ways of studying what that change will look like.`\
 https://www.nytimes.com/2026/09/06/opinion/ai-social-sciences.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/09/06/business/route-66-highway-centennial.html
 **Elections in Germany Could Produce First Far-Right State Government Since Nazi Era: What to Know**\
 `Elections in Saxony-Anhalt, in the country’s east, could result in an outright majority for the Alternative for Germany party.`\
 https://www.nytimes.com/2026/09/06/world/europe/germany-election-afd-saxony-anhalt.html
-
-**China’s New Graduates, Facing a Dire Job Market, Must Also Contend With A.I.**\
-`A record 12.7 million young people are looking for jobs as the country embraces artificial intelligence — and as the technology begins to upend the work force.`\
-https://www.nytimes.com/2026/09/06/world/asia/chinas-new-graduates-ai-challenges.html
-
-**His Parties Fill a Tall Order**\
-`Tyler Bergantino, who is 6-foot-9, created the Tall Tour event series, celebrating people’s exceptional height in a world that doesn’t always allow the legroom.`\
-https://www.nytimes.com/2026/09/06/style/tyler-bergantino-tall-tour-events.html
-
-**No Corrections: Sept. 6, 2026**\
-`No corrections appeared in print on Sunday, Sept. 6, 2026.`\
-https://www.nytimes.com/2026/09/06/corrections/no-corrections-sept-6-2026.html
-
-**Quote of the Day: Teaching Future Generations About Sept. 11**\
-`Quotation of the Day for Sunday, September 6, 2026.`\
-https://www.nytimes.com/2026/09/06/pageoneplus/quote-of-the-day-teaching-future-generations-about-sept-11.html
-
-**U.S. Military Sinks Boats Said to Aid Drug Smuggling Near Ecuador**\
-`Unlike dozens of similar strikes, no one was killed after people suspected of drug smuggling were removed from what the U.S. military described as a floating refueling station.`\
-https://www.nytimes.com/2026/09/05/us/politics/us-military-sinks-boats-near-ecuador.html
-
-**A Sympathetic Defendant and Well-Crafted Defense Dominated Clancy Trial**\
-`The defense lawyer for Lindsay Clancy showed empathy for his client in showcasing her mental health problems. That may have made all the difference.`\
-https://www.nytimes.com/2026/09/05/us/lindsay-clancy-trial-defense-prosecutor-tactics.html
 
