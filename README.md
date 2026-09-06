@@ -1,3 +1,7 @@
+**It’s Not Just the West Bank Settlers. It’s Israel.**\
+`Settler violence is reaching new heights.`\
+https://www.nytimes.com/2026/09/06/opinion/israel-west-bank-settlers-violence.html
+
 **In Germany, Ulrich Siegmund Is Bringing the AfD to the Cusp of Power**\
 `Ulrich Siegmund, 35, once sold air fresheners. Now his far-right party is the favorite to win a state election in eastern Germany on Sunday.`\
 https://www.nytimes.com/2026/09/06/world/europe/afd-germany-election-ulrich-siegmund.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/09/05/espanol/negocios/hackeo-hugging-face-riesg
 **Irán está más confiado después de 6 meses de guerra con EE. UU.**\
 `Nuevos informes de inteligencia estadounidense han evaluado que Irán ahora tiene una mejor comprensión de sus capacidades y de los límites del poder de EE. UU.`\
 https://www.nytimes.com/es/2026/09/05/espanol/estados-unidos/iran-guerra.html
-
-**Miley Returns Without the Cyrus, and 8 Other Songs to Hear Now**\
-`Miley Cyrus wants to dance, underscores revels in hyperpop jump cuts, the producer Dahi enlists Kendrick Lamar and more.`\
-https://www.nytimes.com/2026/09/05/arts/music/miley-cyrus-underscores-dahi-new-music.html
 
