@@ -1,3 +1,7 @@
+**Live Updates: Germany’s Far Right Has Big Lead in Key Election, Exit Polls Show**\
+`The Alternative for Germany party was projected to finish first in the eastern state of Saxony-Anhalt. But it was not clear whether it would win a majority — which would propel a far-right party into power for the first time since World War II.`\
+https://www.nytimes.com/live/2026/09/06/world/germany-election
+
 **Live Updates: Germany’s Far Right Leads Regional Election, Exit Polls Show**\
 `The Alternative for Germany party was projected to finish first in the eastern state of Saxony-Anhalt. But it was not clear whether it would win a majority — which would propel a far-right party into power for the first time since World War II.`\
 https://www.nytimes.com/live/2026/09/06/world/germany-election
