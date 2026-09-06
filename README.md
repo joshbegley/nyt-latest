@@ -1,3 +1,15 @@
+**As Midterms Approach, Republicans Find There Is No Escape From Trump**\
+`The president’s strategy, message and spending have left the G.O.P. in a difficult spot as lawmakers try to outrun his sagging approval ratings.`\
+https://www.nytimes.com/2026/09/06/us/politics/trump-miderm-elections-republicans.html
+
+**Trump Envoys Expected to Make First Visit to Kyiv**\
+`Steve Witkoff and Jared Kushner met with President Vladimir V. Putin of Russia in Moscow on Saturday in an effort to revive peace talks.`\
+https://www.nytimes.com/2026/09/06/world/europe/ukraine-zelensky-witkoff-kushner-russia-putin.html
+
+**Where Belief Is Believable**\
+`A dispatch from a mountaintop feast in Greece.`\
+https://www.nytimes.com/2026/09/06/briefing/where-belief-is-believable.html
+
 **Esta startup ayuda a la gente a morir**\
 `La asistencia médica para morir ahora es legal en Nueva York. Un equipo de profesionales clínicos creó un consultorio para ayudar a sus pacientes a morir en sus propios términos.`\
 https://www.nytimes.com/es/2026/09/06/espanol/startup-ayuda-morir.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/09/05/crosswords/daily-puzzle-2026-09-06.html
 **E. Coli Illnesses Linked to Frozen Blueberries Are Up to 17, F.D.A. Says**\
 `The affected frozen fruit products, which were distributed to 19 states and to retailers like Walmart and Publix, were recalled starting in July.`\
 https://www.nytimes.com/2026/09/05/health/frozen-blueberries-recall-e-coli.html
-
-**Protesters Demonstrate Against Germany’s Far-Right Party**\
-`Ahead of the election in the German state of Saxony-Anhalt on Sunday, protesters demonstrated against the AfD, the far-right party. Surveys suggest the AfD could be the first far-right party to win a state election since World War II.`\
-https://www.nytimes.com/video/world/europe/100000011135519/germany-afd-saxony-anhalt-protesters.html
-
-**Robin Morgan, Voice of Radical Feminism, Dies at 85**\
-`She edited the landmark 1970 anthology “Sisterhood Is Powerful,” led Ms. magazine and helped build the institutions of the modern feminist movement.`\
-https://www.nytimes.com/2026/09/05/us/robin-morgan-dead.html
-
-**Unruly Passenger Is Restrained With Duct Tape During a Flight**\
-`The passenger on an American Airlines flight began to shout vulgarities and then became violent on Thursday, the authorities said. That’s when two passengers stepped in.`\
-https://www.nytimes.com/2026/09/05/us/american-airlines-passenger-duct-tape.html
 
