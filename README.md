@@ -1,3 +1,7 @@
+**In the Shadow of a Tragic Death, Jacob’s Pillow Looks to Move Forward**\
+`A year after a longtime staff member was killed at the celebrated dance center in Western Massachusetts, the recovery continues.`\
+https://www.nytimes.com/2026/09/06/arts/dance/jacobs-pillow-kat-sirico-accident.html
+
 **A Mini Rosh Hashana Menu**\
 `Outfitted with pistachio snacking cake, roast chicken and challah.`\
 https://www.nytimes.com/2026/09/06/dining/a-mini-rosh-hashana-menu.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/06/nyregion/metropolitan-diary.html
 **NYT Spelling Bee Answers for September 6, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/09/06/crosswords/spelling-bee-forum.html
-
-**13 Hours, 5 Boroughs, Lots of Boats: Cruising New York City by Ferry**\
-`We spent a day bouncing around the city on the expanded NYC Ferry system — making stops at beaches, festivals, beloved bars and more — for just $15.`\
-https://www.nytimes.com/2026/09/06/nyregion/nyc-ferry-tour.html
 
