@@ -1,3 +1,7 @@
+**Trump Envoys Make First Visit to Kyiv**\
+`Steve Witkoff and Jared Kushner were meeting on Sunday with Volodymyr Zelensky in Ukraine, a day after talks with Vladimir V. Putin in Moscow.`\
+https://www.nytimes.com/2026/09/06/world/europe/ukraine-zelensky-witkoff-kushner-russia-putin.html
+
 **Bummer Time**\
 `If you thought this summer felt a little bit off, you’re not alone.`\
 https://www.nytimes.com/2026/09/06/briefing/summer-heat-wave.html
