@@ -1,3 +1,7 @@
+**Woman Rescued From Buried House 10 Days After Nepal Floods**\
+`Chandika Shrestha was rescued on Saturday from a mostly buried house in Betrawati, Nepal.`\
+https://www.nytimes.com/video/world/asia/100000011136063/nepal-floods-woman-rescue.html
+
 **Un estudio de proteínas cerebrales genera optimismo sobre los tratamientos para el autismo**\
 `El estudio podría llevar a tratamientos que ayuden a las personas con autismo grave causado por diferentes mutaciones genéticas y a sus familias.`\
 https://www.nytimes.com/es/2026/09/06/espanol/ciencia-y-tecnologia/estudio-proteinas-cerebrales-tratamiento-autismo.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/05/crosswords/wordle-review-1905.html
 **Scenic Route**\
 `The season’s new releases give us a cultural road map, but the most rewarding reading, listening and watching comes from the detours.`\
 https://www.nytimes.com/2026/09/05/briefing/scenic-route.html
-
-**The Fall of James Orr, the Man Called Farage’s Brain**\
-`James Orr, who has ties to Peter Thiel and JD Vance, was suspended from Reform U.K. after he was filmed apparently arranging contributions from a man posing as a foreign donor.`\
-https://www.nytimes.com/2026/09/05/world/europe/reform-uk-james-orr-expose.html
 

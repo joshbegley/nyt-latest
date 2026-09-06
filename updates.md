@@ -1,3 +1,7 @@
+**Woman Rescued From Buried House 10 Days After Nepal Floods**\
+`Chandika Shrestha was rescued on Saturday from a mostly buried house in Betrawati, Nepal.`\
+https://www.nytimes.com/video/world/asia/100000011136063/nepal-floods-woman-rescue.html
+
 **Un estudio de proteínas cerebrales genera optimismo sobre los tratamientos para el autismo**\
 `El estudio podría llevar a tratamientos que ayuden a las personas con autismo grave causado por diferentes mutaciones genéticas y a sus familias.`\
 https://www.nytimes.com/es/2026/09/06/espanol/ciencia-y-tecnologia/estudio-proteinas-cerebrales-tratamiento-autismo.html
