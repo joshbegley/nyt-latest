@@ -1,3 +1,11 @@
+**Live Updates: Germany’s Far Right Eyes Breakthrough in Regional Election**\
+`Victory for the Alternative for Germany party in a vote in the eastern state of Saxony-Anhalt would propel a far-right party into power for the first time since World War II.`\
+https://www.nytimes.com/live/2026/09/06/world/germany-election
+
+**A Bad Year for Bees Gets Worse as Trump’s Tariffs Hit Canada’s Honey Belt**\
+`Alberta produces 40 percent of Canada’s honey. This year, rain and President Trump’s trade war have combined to threaten the industry.`\
+https://www.nytimes.com/2026/09/06/world/canada/trump-tariffs-canada-bees-honey.html
+
 **A Mini Rosh Hashana Menu**\
 `Outfitted with pistachio snacking cake, roast chicken and challah.`\
 https://www.nytimes.com/2026/09/06/dining/a-mini-rosh-hashana-menu.html

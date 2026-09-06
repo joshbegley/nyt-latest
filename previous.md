@@ -6,6 +6,10 @@ https://www.nytimes.com/2026/09/06/dining/a-mini-rosh-hashana-menu.html
 `In movies like “It Ends” and “Exit 8,” the scares come from reliving the same thing over and over again.`\
 https://www.nytimes.com/2026/09/06/movies/it-ends-trapped-horror-films.html
 
+**Live Updates: Germany’s Far Right Eyes Breakthrough in Regional Election**\
+`Victory for the Alternative for Germany party in a vote in the eastern state of Saxony-Anhalt would propel a far-right party into power for the first time since World War II.`\
+https://www.nytimes.com/live/2026/09/06/world/germany-election
+
 **Trump Administration Again Asks Supreme Court to Allow Mail Voting Restrictions**\
 `The filing puts the legality of the president’s push to impose limits on mail voting squarely before the justices even as states begin sending out ballots.`\
 https://www.nytimes.com/2026/09/06/us/politics/trump-administration-again-asks-supreme-court-to-allow-mail-voting-restrictions.html
@@ -104,7 +108,7 @@ https://www.nytimes.com/2026/09/06/realestate/modernist-wave-house-jules-gregory
 
 **A Bad Year for Bees Gets Worse as Trump’s Tariffs Hit Canada’s Honey Belt**\
 `Alberta produces 40 percent of Canada’s honey. This year, rain and President Trump’s trade war have combined to threaten the industry.`\
-https://www.nytimes.com/2026/09/06/world/canada/a-bad-year-for-bees-gets-worse-as-trumps-tariffs-hit-canadas-honey-belt.html
+https://www.nytimes.com/2026/09/06/world/canada/trump-tariffs-canada-bees-honey.html
 
 **Trump’s War on Mail-In Ballots Has Voters Baffled. That May Be the Point.**\
 `From Oregon to Florida, officials are at once reassuring voters that their ballots are safe and encouraging them to use drop boxes or vote in person.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/06/crosswords/spelling-bee-forum.html
 **13 Hours, 5 Boroughs, Lots of Boats: Cruising New York City by Ferry**\
 `We spent a day bouncing around the city on the expanded NYC Ferry system — making stops at beaches, festivals, beloved bars and more — for just $15.`\
 https://www.nytimes.com/2026/09/06/nyregion/nyc-ferry-tour.html
-
-**See What New York City’s Murals Tell Us About 9/11, 25 Years Later**\
-`They commanded us to never forget, even as they faded over time. Or was that the point all along?`\
-https://www.nytimes.com/2026/09/06/nyregion/september-11-murals-today.html
 
