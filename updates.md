@@ -1,3 +1,11 @@
+**10-Minute Challenge: Angel Oak**\
+`We’d like you to look at this tree for 10 minutes, uninterrupted.`\
+https://www.nytimes.com/interactive/2026/09/06/upshot/10-minute-challenge-angel-oak.html
+
+**Trump Envoys Visit Kyiv to Revive Russia-Ukraine Peace Talks**\
+`President Trump’s envoys, Steve Witkoff and Jared Kushner, met with President Volodymyr Zelensky of Ukraine in Kyiv on Sunday. The meeting was part of an effort to revive peace talks between Russia and Ukraine.`\
+https://www.nytimes.com/video/world/europe/100000011136458/ukraine-zelensky-witkoff-kushner-russia-putin.html
+
 **NYT Crossword Answers for Sept. 7, 2026**\
 `Jeff Chen and Stephan Prock want to help you up your game.`\
 https://www.nytimes.com/2026/09/06/crosswords/daily-puzzle-2026-09-07.html
