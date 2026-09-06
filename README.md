@@ -1,3 +1,7 @@
+**Edward Field, Bohemian New York Poet, Dies at 102**\
+`His colloquial language, emotionality and gay topics brought him widespread praise, a Guggenheim Foundation fellowship and other literary honors.`\
+https://www.nytimes.com/2026/09/06/obituaries/edward-field-dead.html
+
 **Far-Right German Party Projected to Finish First in Key Race, but Without Majority**\
 `A far-right party, known as the AfD, is projected to finish first in the German state of Saxony-Anhalt but lacked a majority that would make it the first far-right party to govern part of the coutnry since the Nazi era. If the results hold, the party could still assume power,`\
 https://www.nytimes.com/video/world/europe/100000011136442/germany-afd-state-race-saxony-anhalt.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/06/realestate/modernist-wave-house-jules-gregory
 **A Bad Year for Bees Gets Worse as Trump’s Tariffs Hit Canada’s Honey Belt**\
 `Alberta produces 40 percent of Canada’s honey. This year, rain and President Trump’s trade war have combined to threaten the industry.`\
 https://www.nytimes.com/2026/09/06/world/canada/trump-tariffs-canada-bees-honey.html
-
-**Trump’s War on Mail-In Ballots Has Voters Baffled. That May Be the Point.**\
-`From Oregon to Florida, officials are at once reassuring voters that their ballots are safe and encouraging them to use drop boxes or vote in person.`\
-https://www.nytimes.com/2026/09/06/us/elections/trump-mail-in-voting-confusion.html
 
