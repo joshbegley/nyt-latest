@@ -1,3 +1,7 @@
+**‘Furious’ Is the First Thriller Made for a Post-Epstein World**\
+`“Furious,” the new police procedural on Hulu, turns out to be the perfect thriller for a post-Epstein world.`\
+https://www.nytimes.com/2026/09/06/opinion/furious-tv-show-epstein.html
+
 **Trump Envoys Make First Visit to Kyiv**\
 `Steve Witkoff and Jared Kushner met with President Vladimir V. Putin of Russia in Moscow on Saturday in an effort to revive peace talks.`\
 https://www.nytimes.com/2026/09/06/world/europe/ukraine-zelensky-witkoff-kushner-russia-putin.html

@@ -1,3 +1,7 @@
+**‘Furious’ Is the First Thriller Made for a Post-Epstein World**\
+`“Furious,” the new police procedural on Hulu, turns out to be the perfect thriller for a post-Epstein world.`\
+https://www.nytimes.com/2026/09/06/opinion/furious-tv-show-epstein.html
+
 **Pete Hegseth Is a Wrecking Ball**\
 `We are already paying a high price for the defense secretary’s purges and whims.`\
 https://www.nytimes.com/2026/09/06/opinion/hegseth-national-security-military-generals.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/06/world/europe/afd-germany-election-ulrich-sieg
 **‘Go Get Your Kicks’: The Europeans Obsessed With a U.S. Highway**\
 `As Route 66 turns 100, tourists in search of Americana try to keep war, inflation and politics in the rearview.`\
 https://www.nytimes.com/2026/09/06/business/route-66-highway-centennial.html
-
-**Elections in Germany Could Produce First Far-Right State Government Since Nazi Era: What to Know**\
-`Elections in Saxony-Anhalt, in the country’s east, could result in an outright majority for the Alternative for Germany party.`\
-https://www.nytimes.com/2026/09/06/world/europe/germany-election-afd-saxony-anhalt.html
 
