@@ -1,3 +1,7 @@
+**Durante años, los kenianos hicieron las tareas de estudiantes universitarios. Luego llegó la IA**\
+`Miles de kenianos se ganaban la vida escribiendo ensayos para estudiantes en el extranjero. Con la IA, el trabajo se ha agotado: es una advertencia para el trabajo por encargo en línea que ha sido un salvavidas mundial.`\
+https://www.nytimes.com/es/2026/09/06/espanol/negocios/ia-gig-work-redaccion-kenia.html
+
 **Un expediente secreto refuerza la acusación de que Sudán usó armas químicas**\
 `Fotografías, videos, documentos y comunicaciones interceptadas retratan a una unidad militar sudanesa secreta que, según se describe, produjo municiones a base de cloro.`\
 https://www.nytimes.com/es/2026/09/06/espanol/mundo/sudan-armas-quimicas.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/05/opinion/ai-silicon-valley.html
 **Here Is Where Ukraine Peace Talks Stand, as a New Round Approaches**\
 `A deadly campaign of Russian and Ukrainian airstrikes has escalated since the last U.S.-brokered negotiations stalled in February.`\
 https://www.nytimes.com/2026/09/05/world/europe/ukraine-russia-talks-wtk.html
-
-**Putin Meets Witkoff and Kushner in Moscow to Discuss Ukraine War**\
-`President Vladimir V. Putin ordered a pause in strikes on Ukraine’s capital, Kyiv, ahead of the meeting with President Trump’s envoys: his son-in-law Jared Kushner and the businessman Steve Witkoff.`\
-https://www.nytimes.com/2026/09/05/world/europe/russia-ukraine-witkoff-kushner-moscow.html
 
