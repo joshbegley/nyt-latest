@@ -1,3 +1,11 @@
+**In the Shadow of a Tragic Death, Jacob’s Pillow Looks to Move Forward**\
+`A year after a longtime staff member was killed at the celebrated dance center in Western Massachusetts, the recovery continues.`\
+https://www.nytimes.com/2026/09/06/arts/dance/jacobs-pillow-kat-sirico-accident.html
+
+**Trump Administration Again Asks Supreme Court to Allow Mail Voting Restrictions**\
+`The filing puts the legality of the president’s push to impose limits on mail voting squarely before the justices even as states begin sending out ballots.`\
+https://www.nytimes.com/2026/09/06/us/politics/trump-mail-in-voting-supreme-court.html
+
 **OPEC Plus Holds Oil Production Steady as U.S.-Iran Strikes Resume**\
 `The decision on Sunday by the cartel of oil-producing nations and some of its allies came after the resumption of U.S. and Iranian military strikes in the Persian Gulf.`\
 https://www.nytimes.com/2026/09/06/business/opec-iran-war-oil-production.html
