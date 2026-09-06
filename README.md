@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Sept. 7, 2026**\
+`Jeff Chen and Stephan Prock want to help you up your game.`\
+https://www.nytimes.com/2026/09/06/crosswords/daily-puzzle-2026-09-07.html
+
 **When A.I. Starts Scheming**\
 `An unreleased model escaped human control and formed a swarm of A.I. agents. It was the kind breach that could cause chaos next time.`\
 https://www.nytimes.com/2026/09/06/world/ai-hugging-face-afd-germany-election.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/06/books/review/switzy-emma-cline.html
 **How Victoria’s Secret Is Reviving Its Pink Brand**\
 `After Pink’s sales slipped in recent years, Victoria Secret’s new chief executive is focused on making women feel bold and flirty.`\
 https://www.nytimes.com/2026/09/06/business/victorias-secret-pink.html
-
-**Book Review: ‘Tower Hill,’ by Alan Taylor**\
-`In “Tower Hill,” the Pulitzer Prize-winning scholar Alan Taylor pulls apart the twisted logic of a Virginia slave owner and his descendants.`\
-https://www.nytimes.com/2026/09/06/books/review/tower-hill-alan-taylor.html
 
