@@ -1,3 +1,7 @@
+**Live Updates: Germany’s Far Right Leads Regional Election, Exit Polls Show**\
+`The Alternative for Germany party was projected to finish first in the eastern state of Saxony-Anhalt. But it was not clear whether it would win a majority — which would propel a far-right party into power for the first time since World War II.`\
+https://www.nytimes.com/live/2026/09/06/world/germany-election
+
 **In the Shadow of a Tragic Death, Jacob’s Pillow Looks to Move Forward**\
 `A year after a longtime staff member was killed at the celebrated dance center in Western Massachusetts, the recovery continues.`\
 https://www.nytimes.com/2026/09/06/arts/dance/jacobs-pillow-kat-sirico-accident.html

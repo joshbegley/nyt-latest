@@ -10,8 +10,8 @@ https://www.nytimes.com/2026/09/06/dining/a-mini-rosh-hashana-menu.html
 `In movies like “It Ends” and “Exit 8,” the scares come from reliving the same thing over and over again.`\
 https://www.nytimes.com/2026/09/06/movies/it-ends-trapped-horror-films.html
 
-**Live Updates: Germany’s Far Right Eyes Breakthrough in Regional Election**\
-`Victory for the Alternative for Germany party in a vote in the eastern state of Saxony-Anhalt would propel a far-right party into power for the first time since World War II.`\
+**Live Updates: Germany’s Far Right Leads Regional Election, Exit Polls Show**\
+`The Alternative for Germany party was projected to finish first in the eastern state of Saxony-Anhalt. But it was not clear whether it would win a majority — which would propel a far-right party into power for the first time since World War II.`\
 https://www.nytimes.com/live/2026/09/06/world/germany-election
 
 **Trump Administration Again Asks Supreme Court to Allow Mail Voting Restrictions**\
