@@ -1,3 +1,15 @@
+**Un estudio de proteínas cerebrales genera optimismo sobre los tratamientos para el autismo**\
+`El estudio podría llevar a tratamientos que ayuden a las personas con autismo grave causado por diferentes mutaciones genéticas y a sus familias.`\
+https://www.nytimes.com/es/2026/09/06/espanol/ciencia-y-tecnologia/estudio-proteinas-cerebrales-tratamiento-autismo.html
+
+**Hay más de 1000 marcadores genéticos vinculados a la personalidad, según unos científicos**\
+`El equipo de investigación escaneó aproximadamente 10 millones de variantes genéticas en todo el genoma para poder mapear los “cinco grandes rasgos” de personalidad.`\
+https://www.nytimes.com/es/2026/09/06/espanol/ciencia-y-tecnologia/genetica-rasgos-personalidad.html
+
+**The Best Movies and TV Shows Coming to Netflix in September**\
+`A revival of “A Different World” and a feature-length “Call My Agent!” film are among the highlights.`\
+https://www.nytimes.com/2026/09/06/arts/television/netflix-new-shows-movies.html
+
 **It’s Not Just the West Bank Settlers. It’s Israel.**\
 `Settler violence is reaching new heights.`\
 https://www.nytimes.com/2026/09/06/opinion/israel-west-bank-settlers-violence.html
