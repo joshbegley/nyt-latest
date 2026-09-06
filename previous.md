@@ -87,7 +87,7 @@ https://www.nytimes.com/2026/09/06/crosswords/strands-sidekick-918.html
 https://www.nytimes.com/2026/09/06/us/politics/trump-miderm-elections-republicans.html
 
 **U.S. Envoys Witkoff and Kushner Arrive in Kyiv After Talks With Putin**\
-`Steve Witkoff and Jared Kushner were meeting on Sunday with Volodymyr Zelensky in Ukraine, a day after talks with Vladimir V. Putin in Moscow.`\
+`Steve Witkoff and Jared Kushner met on Sunday with Volodymyr Zelensky in Kyiv, a day after talks with Vladimir V. Putin in Moscow.`\
 https://www.nytimes.com/2026/09/06/world/europe/ukraine-zelensky-witkoff-kushner-russia-putin.html
 
 **Where Belief Is Believable**\

@@ -1,3 +1,7 @@
+**U.S. Envoys Witkoff and Kushner Arrive in Kyiv After Talks With Putin**\
+`Steve Witkoff and Jared Kushner met on Sunday with Volodymyr Zelensky in Kyiv, a day after talks with Vladimir V. Putin in Moscow.`\
+https://www.nytimes.com/2026/09/06/world/europe/ukraine-zelensky-witkoff-kushner-russia-putin.html
+
 **Cargo Plane Overruns Runway at Miami Airport, Striking Vehicles**\
 `Officials said there were “multiple patients” but their injuries were not immediately known. Thick smoke was visible from the Boeing 767-300 cargo plane at Miami International Airport, video showed.`\
 https://www.nytimes.com/2026/09/06/us/plane-crash-amazon-miami-airport.html
