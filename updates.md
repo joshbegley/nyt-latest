@@ -1,3 +1,7 @@
+**Germany’s ‘Firewall’ Against the Far Right Is Being Tested as Never Before**\
+`A blowout win by the far-right Alternative for Germany party in a state election has revealed a split among voters about whether to uphold a decades-old strategy for sidelining extremists.`\
+https://www.nytimes.com/2026/09/07/world/europe/germany-afd-election-saxony-anhalt-election.html
+
 **How ‘Hypermilers’ Are Trying to Beat High Gas Prices**\
 `Gas prices have risen sharply since the start of the Iran war. Some drivers are using special techniques to maximize their miles per gallon and save at the pump.`\
 https://www.nytimes.com/2026/09/07/us/hypermile-car-gas-prices.html

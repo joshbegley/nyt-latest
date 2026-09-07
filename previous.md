@@ -6,7 +6,7 @@ https://www.nytimes.com/2026/09/07/weather/hurricane-lowell-hawaii-tornadoes.htm
 `Keith Meyers spent years photographing the waterfronts in and around New York City. The twin towers became a constant backdrop.`\
 https://www.nytimes.com/2026/09/07/nyregion/twin-towers-photographs.html
 
-**Germany’s ‘Firewall’ Against the Far Right Is Being Tested Like Never Before**\
+**Germany’s ‘Firewall’ Against the Far Right Is Being Tested as Never Before**\
 `A blowout win by the far-right Alternative for Germany party in a state election has revealed a split among voters about whether to uphold a decades-old strategy for sidelining extremists.`\
 https://www.nytimes.com/2026/09/07/world/europe/germany-afd-election-saxony-anhalt-election.html
 
