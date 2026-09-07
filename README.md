@@ -1,3 +1,7 @@
+**Caribbean Revelers Celebrate at Parade, Even as Many Are Missing**\
+`At the annual West Indian American Day Parade in Brooklyn, many Haitian New Yorkers targeted by an immigration crackdown skipped the festivities.`\
+https://www.nytimes.com/2026/09/07/nyregion/west-indian-american-parade-haitians.html
+
 **Thousands of Serbs Mourn Ratko Mladic, the ‘Butcher of Bosnia’**\
 `Thousands of Serbs gathered for the funeral of Ratko Mladic, the “butcher of Bosnia,” who died on Aug. 27 while serving a life sentence for genocide and crimes against humanity. Although the government insisted the funeral was a private event, state-controlled media lavished praise on the war criminal.`\
 https://www.nytimes.com/video/world/europe/100000011137262/serbia-ratko-mladic-funeral.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/09/07/business/media/summer-movies-box-
 **Fact-Checking Midterm Ads Referring to Jeffrey Epstein**\
 `Candidates have traded attacks on votes to releasing the Epstein files and political donations from those with links to Jeffrey Epstein.`\
 https://www.nytimes.com/2026/09/07/us/politics/fact-check-midterm-ads-jeffrey-epstein-files.html
-
-**‘Fauda’ Braves Oct. 7, and Audiences’ Attitudes Toward Israel**\
-`The new season of the Israeli hit depicts the Hamas attacks and aftermath. It arrives as Israel’s artists face resistance overseas precisely because of how the country responded to Oct. 7.`\
-https://www.nytimes.com/2026/09/07/arts/television/fauda-netflix-oct-7.html
 
