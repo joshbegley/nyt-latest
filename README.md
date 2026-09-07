@@ -1,3 +1,23 @@
+**After Victory in German State, Far Right Needs Help to Take Power**\
+`The Alternative for Germany, or AfD, does not have a straightforward path to governing Saxony-Anhalt, but a small populist party could clear the way.`\
+https://www.nytimes.com/2026/09/07/world/europe/germany-afd-elections-bsw.html
+
+**Mamdani to Create Workers’ Rights Office in Effort to Boost Union Power**\
+`The Office of Worker Power, designed to support labor organizing and strengthen worker protections, comes as the mayor works to win over the city’s business community.`\
+https://www.nytimes.com/2026/09/07/nyregion/mamdani-to-create-workers-rights-office-in-effort-to-boost-union-power.html
+
+**NYT Connections Answers for September 8, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Sept. 8, 2026.`\
+https://www.nytimes.com/2026/09/07/crosswords/connections-companion-1185.html
+
+**NYT Strands Hints for September 8, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Sept. 8, 2026.`\
+https://www.nytimes.com/2026/09/07/crosswords/strands-sidekick-919.html
+
+**Today’s Wordle Hints for September 8, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Sept. 8, 2026.`\
+https://www.nytimes.com/2026/09/07/crosswords/wordle-review-1907.html
+
 **Virtual Taekwondo Takes the Contact Out of a Combat Sport**\
 `The contactless version of the Korean martial art is making its debut at this year’s Asian Games. Critics say it’s a glorified video game.`\
 https://www.nytimes.com/2026/09/07/sports/virtual-taekwondo-asian-games.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/09/07/garden/hirshhorn-museum-sculpture-garden-hiro
 **In Finland, a Velvety Bed for Old Souls**\
 `Tom Simons spent years on the island of Molandet, near Helsinki, before he was inspired to create a garden from moss and lichen.`\
 https://www.nytimes.com/2026/09/07/garden/in-finland-a-velvety-bed-for-old-souls.html
-
-**With a Gerrymander Vanquished, Wisconsin Democrats Aim for Control**\
-`The swing state of Wisconsin had one of the most undemocratic State Assembly maps in the country. Now Democrats have a chance to take control of the legislature.`\
-https://www.nytimes.com/2026/09/07/us/politics/wisconsin-legislature-democrats.html
-
-**How Ancient Farmers Used Floral Designs to Track Goods**\
-`A Mesopotamian culture’s decorated ceramics show some early roots of math, researchers argued.`\
-https://www.nytimes.com/2026/09/07/science/botanical-decorations-halafian-mesopotamia.html
-
-**In Peru, the Trump Administration Sees the Limits of Its Anti-China Push**\
-`As Secretary of State Marco Rubio travels this week to Peru, its growing economic ties to China have raised tensions with the U.S., but show no signs of reversing course.`\
-https://www.nytimes.com/2026/09/07/world/americas/peru-trump-china-economy.html
-
-**Book Review: ‘Taipei Story,’ by R.F. Kuang**\
-`“Taipei Story,” R.F. Kuang’s seventh book in eight years, is about an American student in Taiwan.`\
-https://www.nytimes.com/2026/09/07/books/review/taipei-story-rf-kuang.html
-
-**La búsqueda de nuevos medicamentos contra el cáncer en EE. UU. no funciona**\
-`Ya no es la ciencia lo que frena posibles curas, sino nuestra capacidad para probar nuevos medicamentos en ensayos clínicos.`\
-https://www.nytimes.com/es/2026/09/07/espanol/opinion/busqueda-medicamentos-cancer.html
 
