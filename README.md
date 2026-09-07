@@ -1,3 +1,7 @@
+**The Microplastics Epidemic in Indonesia**\
+`Tiny fragments of plastic are in the air, land and water in the country, where the burning of trash is common.`\
+https://www.nytimes.com/interactive/2026/09/07/world/asia/indonesia-jakarta-landfill-fire-microplastics.html
+
 **Kauai Braces for Heavy Rain and Wind as Hurricane Lowell Approaches**\
 `As the hurricane moved closer, the Hawaiian island of Kauai’s annual marathon was canceled. Some residents went ahead with their holiday weekend plans.`\
 https://www.nytimes.com/2026/09/07/weather/kauai-preparations-hurricane-lowell.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/06/opinion/ai-social-sciences.html
 **NYT Strands Hints for September 7, 2026**\
 `Scroll down for hints and conversation about the puzzle for Monday, Sept. 7, 2026.`\
 https://www.nytimes.com/2026/09/06/crosswords/strands-sidekick-918.html
-
-**As Midterms Approach, Republicans Find There Is No Escape From Trump**\
-`The president’s strategy, message and spending have left the G.O.P. in a difficult spot as lawmakers try to outrun his sagging approval ratings.`\
-https://www.nytimes.com/2026/09/06/us/politics/trump-miderm-elections-republicans.html
 
