@@ -1,3 +1,7 @@
+**Kauai Braces for Heavy Rain and Wind as Hurricane Lowell Approaches**\
+`As the hurricane moved closer, the Hawaiian island of Kauai’s annual marathon was canceled. Some residents went ahead with their holiday weekend plans.`\
+https://www.nytimes.com/2026/09/07/weather/kauai-preparations-hurricane-lowell.html
+
 **No Corrections: Sept. 7, 2026**\
 `No corrections appeared in print on Monday, Sept. 7, 2026.`\
 https://www.nytimes.com/2026/09/07/corrections/no-corrections-sept-7-2026.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/06/crosswords/strands-sidekick-918.html
 **As Midterms Approach, Republicans Find There Is No Escape From Trump**\
 `The president’s strategy, message and spending have left the G.O.P. in a difficult spot as lawmakers try to outrun his sagging approval ratings.`\
 https://www.nytimes.com/2026/09/06/us/politics/trump-miderm-elections-republicans.html
-
-**U.S. Envoys Witkoff and Kushner Arrive in Kyiv After Talks With Putin**\
-`Steve Witkoff and Jared Kushner met on Sunday with Volodymyr Zelensky in Kyiv, a day after talks with Vladimir V. Putin in Moscow.`\
-https://www.nytimes.com/2026/09/06/world/europe/ukraine-zelensky-witkoff-kushner-russia-putin.html
 
