@@ -1,3 +1,7 @@
+**Student Housing Building Collapses in New Delhi**\
+`Several people died and many were feared trapped after a five-story building with rentals for university students collapsed in New Delhi.`\
+https://www.nytimes.com/video/world/asia/100000011136831/student-housing-building-collapses-in-new-delhi.html
+
 **Thousand of Serbs Gather to Mourn Ratko Mladic, the ‘Butcher of Bosnia’**\
 `The government insisted the funeral was a private affair, even as government ministers attended and state-controlled news media lavished praise on the convicted war criminal.`\
 https://www.nytimes.com/2026/09/07/world/europe/ratko-mladic-funeral-serbia.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/07/us/california-black-bears.html
 **A Holiday Home Nestled into the Lush Mountains of Costa Rica**\
 `A home was divided into five pavilion-like structures to soften its footprint amid the monkeys, toucans and macaws.`\
 https://www.nytimes.com/2026/09/07/realestate/a-holiday-home-nestled-into-the-lush-mountains-of-costa-rica.html
-
-**Thanks to ‘Practical Magic,’ Alice Hoffman Is Sticking With Witches**\
-`The author behind the cult-classic movie is back with a new series about the power of female friendship — and witches.`\
-https://www.nytimes.com/2026/09/07/books/review/alice-hoffman-practical-magic-witches-cambridge.html
 
