@@ -1,3 +1,79 @@
+**How Bedouine’s Family Heirlooms Inspired an Album**\
+`The musician Bedouine was reluctant to inherit dozens of heirlooms. Then, they inspired an album.`\
+https://www.nytimes.com/2026/09/07/t-magazine/bedouine-family-heirlooms-collection.html
+
+**She Fell for New York the Second Time Around**\
+`A newcomer caught in the city during the pandemic fled as soon as her lease was up. But the city had a magnetism that pulled her back in.`\
+https://www.nytimes.com/2026/09/07/realestate/she-fell-for-new-york-the-second-time-around.html
+
+**Reece Weaver of ‘Dallas Cowboys Cheerleaders’ Makes Her Broadway Debut**\
+`Reece Weaver, a breakout star of the Dallas Cowboys Cheerleaders, gives Broadway a whirl.`\
+https://www.nytimes.com/2026/09/07/style/reece-weaver-dcc-chicago-roxie-hart.html
+
+**These Plants Have a Protein-Packed Diet, Too**\
+`For many plant enthusiasts, carnivorous horticulture has become a gorgeous, and slightly gory, fascination.`\
+https://www.nytimes.com/2026/09/07/style/carnivorous-houseplants-venus-flytrap-pitcher-plant.html
+
+**Is there a Right Length for Men’s Pants?**\
+`A reader is confused by the variety of hemlines he sees on trousers.`\
+https://www.nytimes.com/2026/09/07/fashion/mens-pants-length.html
+
+**Andre Agassi Hated Tennis. Can He Have More Fun Playing Pickleball?**\
+`After years of relative quiet, the public is meeting “Andre 2.0” — a pickleball booster, an open book and a guy eager to build a less tortured relationship with competition.`\
+https://www.nytimes.com/2026/09/07/magazine/andre-agassi-pickleball-tennis.html
+
+**Bears in Los Angeles Are Getting Their Close-Ups, Ready or Not**\
+`California has 60,000 black bears, and they are venturing far from their usual habitat in search of food and shelter. It’s the humans who have to adapt.`\
+https://www.nytimes.com/2026/09/07/us/california-black-bears.html
+
+**A Holiday Home Nestled into the Lush Mountains of Costa Rica**\
+`A home was divided into five pavilion-like structures to soften its footprint amid the monkeys, toucans and macaws.`\
+https://www.nytimes.com/2026/09/07/realestate/a-holiday-home-nestled-into-the-lush-mountains-of-costa-rica.html
+
+**Thanks to ‘Practical Magic,’ Alice Hoffman Is Sticking With Witches**\
+`The author behind the cult-classic movie is back with a new series about the power of female friendship — and witches.`\
+https://www.nytimes.com/2026/09/07/books/review/alice-hoffman-practical-magic-witches-cambridge.html
+
+**Art’s New Season: Retrospectives and Resistance**\
+`Holland Cotter’s highlights include a panoptic view of Roy Lichtenstein, storytelling surprises of the Lucas Museum of Narrative Art, and activism from Colombia to South Asia to New York.`\
+https://www.nytimes.com/2026/09/07/arts/design/new-art-exhibitions-holland-cotter.html
+
+**25 Global Art Openings Worth Making an Excursion For**\
+`Our critic Jason Farago awaits Brancusi at MoMA, a K-pop icon’s collection in San Francisco, Sofia Coppola at the Château de Versailles — and new art centers in New York.`\
+https://www.nytimes.com/2026/09/07/arts/design/new-art-exhibitions-jason-farago.html
+
+**The Joyous Big Walk Emerged From Pandemic Lockdowns**\
+`The puzzle game Big Walk, by the Australian studio behind Untitled Goose Game, explores the ways we connect with one another.`\
+https://www.nytimes.com/2026/09/07/arts/big-walk-house-house.html
+
+**In San Francisco, the Artist Joset Medina’s Walls Have Boundary Issues**\
+`Joset Medina’s entire apartment is his canvas in the evolving project that he calls the “Unrestrained Garden.”`\
+https://www.nytimes.com/2026/09/07/arts/design/this-san-francisco-artists-walls-have-boundary-issues.html
+
+**A Japanese Polymath Transforms a Modernist Icon**\
+`Hiroshi Sugimoto’s redesign of the Hirshhorn Museum’s sculpture garden was a heavy lift that will finally see the light.`\
+https://www.nytimes.com/2026/09/07/garden/hirshhorn-museum-sculpture-garden-hiroshi-sugimoto.html
+
+**In Finland, a Velvety Bed for Old Souls**\
+`Tom Simons spent years on the island of Molandet, near Helsinki, before he was inspired to create a garden from moss and lichen.`\
+https://www.nytimes.com/2026/09/07/garden/in-finland-a-velvety-bed-for-old-souls.html
+
+**With a Gerrymander Vanquished, Wisconsin Democrats Aim for Control**\
+`The swing state of Wisconsin had one of the most undemocratic State Assembly maps in the country. Now Democrats have a chance to take control of the legislature.`\
+https://www.nytimes.com/2026/09/07/us/politics/wisconsin-legislature-democrats.html
+
+**How Ancient Farmers Used Floral Designs to Track Goods**\
+`A Mesopotamian culture’s decorated ceramics show some early roots of math, researchers argued.`\
+https://www.nytimes.com/2026/09/07/science/botanical-decorations-halafian-mesopotamia.html
+
+**In Peru, the Trump Administration Sees the Limits of Its Anti-China Push**\
+`As Secretary of State Marco Rubio travels this week to Peru, its growing economic ties to China have raised tensions with the U.S., but show no signs of reversing course.`\
+https://www.nytimes.com/2026/09/07/world/americas/peru-trump-china-economy.html
+
+**Book Review: ‘Taipei Story,’ by R.F. Kuang**\
+`“Taipei Story,” R.F. Kuang’s seventh book in eight years, is about an American student in Taiwan.`\
+https://www.nytimes.com/2026/09/07/books/review/taipei-story-rf-kuang.html
+
 **Far-Right German Party Projected to Finish First in Key Race, but Without Majority**\
 `A far-right party, known as the AfD, is projected to finish first in the German state of Saxony-Anhalt but lacked a majority that would make it the first far-right party to govern part of the coutnry since the Nazi era. If the results hold, the party could still assume power.`\
 https://www.nytimes.com/video/world/europe/100000011136442/germany-afd-state-race-saxony-anhalt.html

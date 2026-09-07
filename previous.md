@@ -1,3 +1,79 @@
+**How Bedouine’s Family Heirlooms Inspired an Album**\
+`The musician Bedouine was reluctant to inherit dozens of heirlooms. Then, they inspired an album.`\
+https://www.nytimes.com/2026/09/07/t-magazine/bedouine-family-heirlooms-collection.html
+
+**She Fell for New York the Second Time Around**\
+`A newcomer caught in the city during the pandemic fled as soon as her lease was up. But the city had a magnetism that pulled her back in.`\
+https://www.nytimes.com/2026/09/07/realestate/she-fell-for-new-york-the-second-time-around.html
+
+**Reece Weaver of ‘Dallas Cowboys Cheerleaders’ Makes Her Broadway Debut**\
+`Reece Weaver, a breakout star of the Dallas Cowboys Cheerleaders, gives Broadway a whirl.`\
+https://www.nytimes.com/2026/09/07/style/reece-weaver-dcc-chicago-roxie-hart.html
+
+**These Plants Have a Protein-Packed Diet, Too**\
+`For many plant enthusiasts, carnivorous horticulture has become a gorgeous, and slightly gory, fascination.`\
+https://www.nytimes.com/2026/09/07/style/carnivorous-houseplants-venus-flytrap-pitcher-plant.html
+
+**Is there a Right Length for Men’s Pants?**\
+`A reader is confused by the variety of hemlines he sees on trousers.`\
+https://www.nytimes.com/2026/09/07/fashion/mens-pants-length.html
+
+**Andre Agassi Hated Tennis. Can He Have More Fun Playing Pickleball?**\
+`After years of relative quiet, the public is meeting “Andre 2.0” — a pickleball booster, an open book and a guy eager to build a less tortured relationship with competition.`\
+https://www.nytimes.com/2026/09/07/magazine/andre-agassi-pickleball-tennis.html
+
+**Bears in Los Angeles Are Getting Their Close-Ups, Ready or Not**\
+`California has 60,000 black bears, and they are venturing far from their usual habitat in search of food and shelter. It’s the humans who have to adapt.`\
+https://www.nytimes.com/2026/09/07/us/california-black-bears.html
+
+**A Holiday Home Nestled into the Lush Mountains of Costa Rica**\
+`A home was divided into five pavilion-like structures to soften its footprint amid the monkeys, toucans and macaws.`\
+https://www.nytimes.com/2026/09/07/realestate/a-holiday-home-nestled-into-the-lush-mountains-of-costa-rica.html
+
+**Thanks to ‘Practical Magic,’ Alice Hoffman Is Sticking With Witches**\
+`The author behind the cult-classic movie is back with a new series about the power of female friendship — and witches.`\
+https://www.nytimes.com/2026/09/07/books/review/alice-hoffman-practical-magic-witches-cambridge.html
+
+**Art’s New Season: Retrospectives and Resistance**\
+`Holland Cotter’s highlights include a panoptic view of Roy Lichtenstein, storytelling surprises of the Lucas Museum of Narrative Art, and activism from Colombia to South Asia to New York.`\
+https://www.nytimes.com/2026/09/07/arts/design/new-art-exhibitions-holland-cotter.html
+
+**25 Global Art Openings Worth Making an Excursion For**\
+`Our critic Jason Farago awaits Brancusi at MoMA, a K-pop icon’s collection in San Francisco, Sofia Coppola at the Château de Versailles — and new art centers in New York.`\
+https://www.nytimes.com/2026/09/07/arts/design/new-art-exhibitions-jason-farago.html
+
+**The Joyous Big Walk Emerged From Pandemic Lockdowns**\
+`The puzzle game Big Walk, by the Australian studio behind Untitled Goose Game, explores the ways we connect with one another.`\
+https://www.nytimes.com/2026/09/07/arts/big-walk-house-house.html
+
+**In San Francisco, the Artist Joset Medina’s Walls Have Boundary Issues**\
+`Joset Medina’s entire apartment is his canvas in the evolving project that he calls the “Unrestrained Garden.”`\
+https://www.nytimes.com/2026/09/07/arts/design/this-san-francisco-artists-walls-have-boundary-issues.html
+
+**A Japanese Polymath Transforms a Modernist Icon**\
+`Hiroshi Sugimoto’s redesign of the Hirshhorn Museum’s sculpture garden was a heavy lift that will finally see the light.`\
+https://www.nytimes.com/2026/09/07/garden/hirshhorn-museum-sculpture-garden-hiroshi-sugimoto.html
+
+**In Finland, a Velvety Bed for Old Souls**\
+`Tom Simons spent years on the island of Molandet, near Helsinki, before he was inspired to create a garden from moss and lichen.`\
+https://www.nytimes.com/2026/09/07/garden/in-finland-a-velvety-bed-for-old-souls.html
+
+**With a Gerrymander Vanquished, Wisconsin Democrats Aim for Control**\
+`The swing state of Wisconsin had one of the most undemocratic State Assembly maps in the country. Now Democrats have a chance to take control of the legislature.`\
+https://www.nytimes.com/2026/09/07/us/politics/wisconsin-legislature-democrats.html
+
+**How Ancient Farmers Used Floral Designs to Track Goods**\
+`A Mesopotamian culture’s decorated ceramics show some early roots of math, researchers argued.`\
+https://www.nytimes.com/2026/09/07/science/botanical-decorations-halafian-mesopotamia.html
+
+**In Peru, the Trump Administration Sees the Limits of Its Anti-China Push**\
+`As Secretary of State Marco Rubio travels this week to Peru, its growing economic ties to China have raised tensions with the U.S., but show no signs of reversing course.`\
+https://www.nytimes.com/2026/09/07/world/americas/peru-trump-china-economy.html
+
+**Book Review: ‘Taipei Story,’ by R.F. Kuang**\
+`“Taipei Story,” R.F. Kuang’s seventh book in eight years, is about an American student in Taiwan.`\
+https://www.nytimes.com/2026/09/07/books/review/taipei-story-rf-kuang.html
+
 **La búsqueda de nuevos medicamentos contra el cáncer en EE. UU. no funciona**\
 `Ya no es la ciencia lo que frena posibles curas, sino nuestra capacidad para probar nuevos medicamentos en ensayos clínicos.`\
 https://www.nytimes.com/es/2026/09/07/espanol/opinion/busqueda-medicamentos-cancer.html
@@ -121,80 +197,4 @@ https://www.nytimes.com/2026/09/06/business/oil-gas-prices-iran-war.html
 **10-Minute Challenge: Angel Oak**\
 `We’d like you to look at this tree for 10 minutes, uninterrupted.`\
 https://www.nytimes.com/interactive/2026/09/06/upshot/10-minute-challenge-angel-oak.html
-
-**Trump Envoys Visit Kyiv to Revive Russia-Ukraine Peace Talks**\
-`President Trump’s envoys, Steve Witkoff and Jared Kushner, met with President Volodymyr Zelensky of Ukraine in Kyiv on Sunday. The meeting was part of an effort to revive peace talks between Russia and Ukraine.`\
-https://www.nytimes.com/video/world/europe/100000011136458/ukraine-zelensky-witkoff-kushner-russia-putin.html
-
-**NYT Crossword Answers for Sept. 7, 2026**\
-`Jeff Chen and Stephan Prock want to help you up your game.`\
-https://www.nytimes.com/2026/09/06/crosswords/daily-puzzle-2026-09-07.html
-
-**When A.I. Starts Scheming**\
-`An unreleased model escaped human control and formed a swarm of A.I. agents. It was the kind of breach that could cause chaos next time.`\
-https://www.nytimes.com/2026/09/06/world/ai-hugging-face-afd-germany-election.html
-
-**Niels Refsgaard, Who Transformed the American Table, Dies at 91**\
-`As a designer for Dansk, he created dishware that reflected the casual dining style of the late 1960s and 70s, when fine china became an anachronism.`\
-https://www.nytimes.com/2026/09/06/obituaries/niels-refsgaard-dead.html
-
-**For Trump’s Former Fixer, a Tortured Path From ‘Rat’ to Reconciliation**\
-`The president has made peace with Michael D. Cohen, his onetime lawyer who turned against him. But contrary to Mr. Trump’s claims, Mr. Cohen has not recanted the testimony that helped convict his former boss.`\
-https://www.nytimes.com/2026/09/06/us/politics/michael-cohen-donald-trump-interview.html
-
-**Who Cleans the 9/11 Memorial Pools?**\
-`Jim Maroon has been doing his job for 14 years. He knows it’s a big responsibility.`\
-https://www.nytimes.com/interactive/2026/09/06/nyregion/9-11-memorial-pools-cleaning.html
-
-**5 Killed and 5 Injured as Cargo Plane Overruns Runway at Miami Airport**\
-`The plane was part of Amazon’s cargo fleet and was flying from Puerto Rico. It struck several vehicles as it ran off the runway, local officials said.`\
-https://www.nytimes.com/live/2026/09/06/us/miami-plane-crash
-
-**Cargo Plane Crashes at Miami Airport, Striking Vehicles**\
-`Officials said 5 others were injured. Flights were halted for hours at Miami International Airport after the Boeing 767-300 cargo plane overran its landing.`\
-https://www.nytimes.com/2026/09/06/us/plane-crash-amazon-miami-airport.html
-
-**Haitians Deported From U.S. Are Left Broke and Stranded**\
-`Hundreds have been deported to Haiti in recent weeks, and some say they have been left with no money, no protection from gangs and no place to go.`\
-https://www.nytimes.com/2026/09/06/world/americas/haiti-deportees.html
-
-**La OPEP Plus mantendrá estable la producción de petróleo**\
-`Por primera vez desde abril, la OPEP y algunos de sus aliados, incluida Rusia, decidieron no aumentar la producción.`\
-https://www.nytimes.com/es/2026/09/06/espanol/negocios/precio-petroleo-opep.html
-
-**In the Shadow of a Tragic Death, Jacob’s Pillow Looks to Move Forward**\
-`A year after a longtime staff member was killed at the celebrated dance center in Western Massachusetts, the recovery continues.`\
-https://www.nytimes.com/2026/09/06/arts/dance/jacobs-pillow-kat-sirico-accident.html
-
-**A Mini Rosh Hashana Menu**\
-`Outfitted with pistachio snacking cake, roast chicken and challah.`\
-https://www.nytimes.com/2026/09/06/dining/a-mini-rosh-hashana-menu.html
-
-**“It Ends,” “Exit 8” and the New Horror of Monotony**\
-`In movies like “It Ends” and “Exit 8,” the scares come from reliving the same thing over and over again.`\
-https://www.nytimes.com/2026/09/06/movies/it-ends-trapped-horror-films.html
-
-**Germany’s Far Right Tops Key State Race, but Falls Short of Power**\
-`The Alternative for Germany party is projected to finish first in the eastern state of Saxony-Anhalt. But lacking a majority, without the help of other parties it cannot become the first far-right party to govern a state since 1945.`\
-https://www.nytimes.com/live/2026/09/06/world/germany-election
-
-**Trump Administration Again Asks Supreme Court to Allow Mail Voting Restrictions**\
-`The filing puts the legality of the president’s push to impose limits on mail voting squarely before the justices even as states begin sending out ballots.`\
-https://www.nytimes.com/2026/09/06/us/politics/trump-mail-in-voting-supreme-court.html
-
-**OPEC Plus Holds Oil Production Steady as U.S.-Iran Strikes Resume**\
-`The decision on Sunday by the cartel of oil-producing nations and some of its allies came after the resumption of U.S. and Iranian military strikes in the Persian Gulf.`\
-https://www.nytimes.com/2026/09/06/business/opec-iran-war-oil-production.html
-
-**The Most Popular Recipes From The Weeknight 100**\
-`Tomato basil chicken breasts, a cheeseburger soup, coconutty shrimp noodles and so much more.`\
-https://www.nytimes.com/2026/09/06/dining/the-most-popular-recipes-from-the-weeknight-100.html
-
-**Fires Can Destroy, or Save, America’s Great Forests**\
-`Responses to an article about the impact of bigger fires on America’s great forests. Also: The college admissions essay; shameful deportations; the U.S. Open versus the Knicks.`\
-https://www.nytimes.com/2026/09/06/opinion/letters/fires-forests-college-essay-deportations.html
-
-**Bummer Time**\
-`If you thought this summer felt a little bit off, you’re not alone.`\
-https://www.nytimes.com/2026/09/06/briefing/summer-heat-wave.html
 
