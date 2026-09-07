@@ -1,3 +1,7 @@
+**5 Races to Watch This Fall for Answers to the Biggest Midterm Questions**\
+`From Iowa to Michigan to Texas, key contests will offer clues about voters’ views of President Trump, progressive ideas, the war with Iran and more.`\
+https://www.nytimes.com/2026/09/07/us/politics/midterms-key-races-to-watch.html
+
 **El triunfo de la extrema derecha en Alemania sacude a Europa**\
 `Una votación en el este de Alemania da un nuevo impulso a los partidos de extrema derecha que esperan ganar elecciones en toda Europa el próximo año, según analistas.`\
 https://www.nytimes.com/es/2026/09/07/espanol/mundo/alemania-extrema-derecha.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/07/us/politics/jefferson-county-trump-transgende
 **Noël Godin, Prankster Who Threw Pies at the Powerful, Dies at 80**\
 `Splattering figures like Bill Gates, Jean-Luc Godard and Bernard-Henri Lévy, he perfected the art of using whipped cream as a form of protest.`\
 https://www.nytimes.com/2026/09/07/world/europe/noel-godin-dead.html
-
-**Exploring Lake Superior’s Wildest Shore**\
-`A road trip along the North Shore of Lake Superior, from Duluth, Minn., to Pukaskwa National Park in Ontario, Canada, packed multiple adventures into a week.`\
-https://www.nytimes.com/2026/09/07/travel/ontario-lake-superior-canada-minnesota.html
 

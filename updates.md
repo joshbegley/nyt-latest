@@ -1,3 +1,7 @@
+**5 Races to Watch This Fall for Answers to the Biggest Midterm Questions**\
+`From Iowa to Michigan to Texas, key contests will offer clues about voters’ views of President Trump, progressive ideas, the war with Iran and more.`\
+https://www.nytimes.com/2026/09/07/us/politics/midterms-key-races-to-watch.html
+
 **El triunfo de la extrema derecha en Alemania sacude a Europa**\
 `Una votación en el este de Alemania da un nuevo impulso a los partidos de extrema derecha que esperan ganar elecciones en toda Europa el próximo año, según analistas.`\
 https://www.nytimes.com/es/2026/09/07/espanol/mundo/alemania-extrema-derecha.html
