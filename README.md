@@ -1,3 +1,7 @@
+**Officials Search for Answers After Fatal Miami Airport Cargo Plane Crash**\
+`The cargo plane, operated for Amazon, plowed into a public road and crashed into vehicles, killing five people and disrupting more than 200 flights over Labor Day weekend.`\
+https://www.nytimes.com/2026/09/07/us/miami-airport-plane-crash.html
+
 **WYouth, New Magazine for Teens, Debuts With Justin and Hailey Bieber Cover**\
 `Sara Moonves managed to save and expand W, a fashion and culture magazine. Her next bet is on “Little W.”`\
 https://www.nytimes.com/2026/09/07/style/wyouth-teen-magazine-gen-z.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/07/arts/television/sterling-point-off-campus.htm
 **Does ‘Ferritin Face’ Mean You Have an Iron Deficiency? Here’s How to Tell.**\
 `Almost one in three adults in the United States are deficient in iron, but the diagnosis is often missed by doctors.`\
 https://www.nytimes.com/2026/09/07/well/iron-deficiency-ferritin-face.html
-
-**How a Colorado School District Is Fighting Trump’s Anti-Transgender Push**\
-`Jefferson County, Colo., is one of the few public school systems to sue the Trump administration over demands that it revoke transgender protections or face funding cuts.`\
-https://www.nytimes.com/2026/09/07/us/politics/jefferson-county-trump-transgender-lawsuit.html
 

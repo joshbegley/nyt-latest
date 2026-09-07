@@ -78,7 +78,7 @@ https://www.nytimes.com/2026/09/07/world/middleeast/israel-lebanon-strikes-hezbo
 `The Alternative for Germany, or AfD, does not have a straightforward path to governing Saxony-Anhalt, but a small populist party could clear the way.`\
 https://www.nytimes.com/2026/09/07/world/europe/germany-afd-elections-bsw.html
 
-**Mamdani to Create Workers’ Rights Office in Effort to Boost Union Power**\
+**Mamdani Creates Workers’ Rights Office in Effort to Boost Union Power**\
 `The Office of Worker Power, designed to support labor organizing and strengthen worker protections, comes as the mayor works to win over the city’s business community.`\
 https://www.nytimes.com/2026/09/07/nyregion/mamdani-to-create-workers-rights-office-in-effort-to-boost-union-power.html
 

@@ -1,3 +1,7 @@
+**Mamdani Creates Workers’ Rights Office in Effort to Boost Union Power**\
+`The Office of Worker Power, designed to support labor organizing and strengthen worker protections, comes as the mayor works to win over the city’s business community.`\
+https://www.nytimes.com/2026/09/07/nyregion/mamdani-to-create-workers-rights-office-in-effort-to-boost-union-power.html
+
 **WYouth, New Magazine for Teens, Debuts With Justin and Hailey Bieber Cover**\
 `Sara Moonves managed to save and expand W, a fashion and culture magazine. Her next bet is on “Little W.”`\
 https://www.nytimes.com/2026/09/07/style/wyouth-teen-magazine-gen-z.html
