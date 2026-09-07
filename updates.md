@@ -1,3 +1,7 @@
+**Armed Man Arrested After Charging Toward Democratic Candidate for Ohio Governor**\
+`The authorities are charging the man, who they said did not draw his weapons, with misdemeanor assault.`\
+https://www.nytimes.com/2026/09/06/us/politics/amy-acton-governor-candidate-ohio-arrest-incident.html
+
 **Vacationers Scramble After Miami Plane Crash Snarls Travel**\
 `Security lines and restaurants were largely empty as passengers digested the news and tried to frantically to rearrange travel.`\
 https://www.nytimes.com/2026/09/06/us/miami-plane-crash-travel-delays.html

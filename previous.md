@@ -22,8 +22,8 @@ https://www.nytimes.com/video/world/europe/100000011136442/germany-afd-state-rac
 `A vote in eastern Germany has given fresh momentum to hard-right parties hoping to win elections across Europe next year, analysts said.`\
 https://www.nytimes.com/2026/09/06/world/europe/afd-germany-europe-far-right-saxony-anhalt.html
 
-**Man Arrested After Pushing Toward Democratic Candidate for Ohio Governor**\
-`A spokeswoman for the campaign of Amy Acton, the Democratic nominee, said “multiple people” were injured when an “armed individual” lunged at her during a county fair.`\
+**Armed Man Arrested After Charging Toward Democratic Candidate for Ohio Governor**\
+`The authorities are charging the man, who they said did not draw his weapons, with misdemeanor assault.`\
 https://www.nytimes.com/2026/09/06/us/politics/amy-acton-governor-candidate-ohio-arrest-incident.html
 
 **El Pentágono aplica el polígrafo a personal por filtraciones a la prensa**\
