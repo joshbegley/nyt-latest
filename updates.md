@@ -1,3 +1,7 @@
+**The Microplastics Epidemic in Indonesia**\
+`Tiny fragments of plastic are in the air, land and water in the country, where the burning of trash is common.`\
+https://www.nytimes.com/interactive/2026/09/07/world/asia/indonesia-jakarta-landfill-fire-microplastics.html
+
 **Kauai Braces for Heavy Rain and Wind as Hurricane Lowell Approaches**\
 `As the hurricane moved closer, the Hawaiian island of Kauai’s annual marathon was canceled. Some residents went ahead with their holiday weekend plans.`\
 https://www.nytimes.com/2026/09/07/weather/kauai-preparations-hurricane-lowell.html

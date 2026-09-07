@@ -1,3 +1,7 @@
+**Indonesia’s Growing Microplastics Problem**\
+`Microplastics are usually consumed through food and water, but more recently, they are making their way into Indonesia’s air and rain. Sui-Lee Wee, our Asia business correspondent, traveled to Jakarta, the capital, to find out why.`\
+https://www.nytimes.com/video/world/asia/100000010538018/indonesia-microplastics-rain-air-jakarta.html
+
 **The Microplastics Epidemic in Indonesia**\
 `Tiny fragments of plastic are in the air, land and water in the country, where the burning of trash is common.`\
 https://www.nytimes.com/interactive/2026/09/07/world/asia/indonesia-jakarta-landfill-fire-microplastics.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/06/crosswords/wordle-review-1906.html
 **We Can’t Know Our A.I. Future if We Don’t Study It**\
 `Just as A.I. is poised to change the world, we’re losing our best ways of studying what that change will look like.`\
 https://www.nytimes.com/2026/09/06/opinion/ai-social-sciences.html
-
-**NYT Strands Hints for September 7, 2026**\
-`Scroll down for hints and conversation about the puzzle for Monday, Sept. 7, 2026.`\
-https://www.nytimes.com/2026/09/06/crosswords/strands-sidekick-918.html
 
