@@ -1,3 +1,11 @@
+**‘Lanterns’ Season 1, Episode 4 Recap: Best Frenemies**\
+`John and Hal seem to be realizing, very reluctantly, that they might actually need each other.`\
+https://www.nytimes.com/2026/09/06/arts/television/lanterns-recap-season-1-episode-4.html
+
+**Armed Man Arrested After Charging Toward Democratic Candidate for Ohio Governor**\
+`The authorities are charging the man, who they said had two pistols and a Taser on him but did not draw his weapons, with misdemeanor assault.`\
+https://www.nytimes.com/2026/09/06/us/politics/amy-acton-governor-candidate-ohio-arrest-incident.html
+
 **Armed Man Arrested After Charging Toward Democratic Candidate for Ohio Governor**\
 `The authorities are charging the man, who they said did not draw his weapons, with misdemeanor assault.`\
 https://www.nytimes.com/2026/09/06/us/politics/amy-acton-governor-candidate-ohio-arrest-incident.html

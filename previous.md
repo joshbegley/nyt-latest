@@ -1,3 +1,7 @@
+**‘Lanterns’ Season 1, Episode 4 Recap: Best Frenemies**\
+`John and Hal seem to be realizing, very reluctantly, that they might actually need each other.`\
+https://www.nytimes.com/2026/09/06/arts/television/lanterns-recap-season-1-episode-4.html
+
 **Vacationers Scramble After Miami Plane Crash Snarls Travel**\
 `Security lines and restaurants were largely empty as passengers digested the news and tried to frantically to rearrange travel.`\
 https://www.nytimes.com/2026/09/06/us/miami-plane-crash-travel-delays.html
@@ -23,7 +27,7 @@ https://www.nytimes.com/video/world/europe/100000011136442/germany-afd-state-rac
 https://www.nytimes.com/2026/09/06/world/europe/afd-germany-europe-far-right-saxony-anhalt.html
 
 **Armed Man Arrested After Charging Toward Democratic Candidate for Ohio Governor**\
-`The authorities are charging the man, who they said did not draw his weapons, with misdemeanor assault.`\
+`The authorities are charging the man, who they said had two pistols and a Taser on him but did not draw his weapons, with misdemeanor assault.`\
 https://www.nytimes.com/2026/09/06/us/politics/amy-acton-governor-candidate-ohio-arrest-incident.html
 
 **El Pentágono aplica el polígrafo a personal por filtraciones a la prensa**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/06/world/europe/ukraine-military-audits-spending
 **How a Memphis Gambling Raid Became a Sweeping Immigration Operation**\
 `More than 120 people were arrested at a Memphis cantina, in one of the biggest immigration operations in Tennessee this year.`\
 https://www.nytimes.com/2026/09/06/us/memphis-cantina-gambling-raid-immigration.html
-
-**Why the United Methodist Church Is Suing a Thriving Texas Congregation**\
-`The fight reflects a larger American phenomenon: Churchgoers increasingly want decisions to be made at the local level, not by a national denomination.`\
-https://www.nytimes.com/2026/09/06/us/highland-park-united-methodist-church-dallas.html
 
