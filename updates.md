@@ -1,3 +1,11 @@
+**Two Fatal NYPD Shootings in One Week. What Happens Next?**\
+`In police shootings in Times Square and at the Brooklyn Bridge,   officers had to make split-second decisions in confronting emotionally disturbed people who were violent or threatening violence.`\
+https://www.nytimes.com/2026/09/06/nyregion/nypd-brooklyn-bridge-times-square-shooting.html
+
+**5 Killed and 5 Injured as Cargo Plane Overruns Runway at Miami Airport**\
+`The plane was part of Amazon’s cargo fleet and was flying from Puerto Rico. It struck several vehicles as it ran off the runway, local officials said.`\
+https://www.nytimes.com/live/2026/09/06/us/miami-plane-crash
+
 **What to Know About Cargo Plane That Overran Its Runway, Killing 5 in Miami**\
 `The plane, which was operating as part of Amazon’s cargo fleet, flew from Puerto Rico to Miami. It crashed into several vehicles after overrunning the runway.`\
 https://www.nytimes.com/2026/09/06/us/miami-plane-crash-what-we-know.html
