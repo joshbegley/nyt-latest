@@ -1,3 +1,7 @@
+**Thousand of Serbs Gather to Mourn Ratko Mladic, the ‘Butcher of Bosnia’**\
+`The government insisted the funeral was a private affair, even as government ministers attended and state-controlled news media lavished praise on the convicted war criminal.`\
+https://www.nytimes.com/2026/09/07/world/europe/ratko-mladic-funeral-serbia.html
+
 **Trump Posts Map Suggesting New Mexico Be Renamed as ‘New America’**\
 `The suggestion, posted on social media, appeared to be the latest in the president’s efforts to alter geographic names.`\
 https://www.nytimes.com/2026/09/07/us/politics/trump-rename-new-mexico.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/07/realestate/a-holiday-home-nestled-into-the-lu
 **Thanks to ‘Practical Magic,’ Alice Hoffman Is Sticking With Witches**\
 `The author behind the cult-classic movie is back with a new series about the power of female friendship — and witches.`\
 https://www.nytimes.com/2026/09/07/books/review/alice-hoffman-practical-magic-witches-cambridge.html
-
-**Art’s New Season: Retrospectives and Resistance**\
-`Holland Cotter’s highlights include a panoptic view of Roy Lichtenstein, storytelling surprises of the Lucas Museum of Narrative Art, and activism from Colombia to South Asia to New York.`\
-https://www.nytimes.com/2026/09/07/arts/design/new-art-exhibitions-holland-cotter.html
 
