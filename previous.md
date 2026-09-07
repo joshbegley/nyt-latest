@@ -1,3 +1,7 @@
+**Vacationers Scramble After Miami Plane Crash Snarls Travel**\
+`Security lines and restaurants were largely empty as passengers digested the news and tried to frantically to rearrange travel.`\
+https://www.nytimes.com/2026/09/06/us/miami-plane-crash-travel-delays.html
+
 **Two Fatal NYPD Shootings in One Week. What Happens Next?**\
 `Two police shootings last week underscored the challenge police officers face in confronting emotionally disturbed people who are violent or threatening violence.`\
 https://www.nytimes.com/2026/09/06/nyregion/nypd-brooklyn-bridge-times-square-shooting.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/06/us/memphis-cantina-gambling-raid-immigration.
 **Why the United Methodist Church Is Suing a Thriving Texas Congregation**\
 `The fight reflects a larger American phenomenon: Churchgoers increasingly want decisions to be made at the local level, not by a national denomination.`\
 https://www.nytimes.com/2026/09/06/us/highland-park-united-methodist-church-dallas.html
-
-**Iran’s Attacks Keep the Strait of Hormuz in a Lethal Stalemate**\
-`The U.S. military is helping oil get out of the Persian Gulf on tankers, but Iran is still attacking the ships and scaring operators away.`\
-https://www.nytimes.com/2026/09/06/business/iran-us-strait-of-hormuz-shipping.html
 

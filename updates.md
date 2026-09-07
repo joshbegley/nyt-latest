@@ -1,3 +1,7 @@
+**Vacationers Scramble After Miami Plane Crash Snarls Travel**\
+`Security lines and restaurants were largely empty as passengers digested the news and tried to frantically to rearrange travel.`\
+https://www.nytimes.com/2026/09/06/us/miami-plane-crash-travel-delays.html
+
 **Two Fatal NYPD Shootings in One Week. What Happens Next?**\
 `Two police shootings last week underscored the challenge police officers face in confronting emotionally disturbed people who are violent or threatening violence.`\
 https://www.nytimes.com/2026/09/06/nyregion/nypd-brooklyn-bridge-times-square-shooting.html
