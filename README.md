@@ -90,7 +90,7 @@ https://www.nytimes.com/es/2026/09/07/espanol/suero-intravenoso-beneficios.html
 `Roy Cooper’s durable lead in a crucial Senate race is causing jitters.`\
 https://www.nytimes.com/2026/09/07/opinion/roy-cooper-senate-carolina.html
 
-**As Gas Prices Soar, These Drivers Squeeze Every Mile From Every Gallon**\
+**How ‘Hypermilers’ Are Trying to Beat High Gas Prices**\
 `Gas prices have risen sharply since the start of the Iran war. Some drivers are using special techniques to maximize their miles per gallon and save at the pump.`\
 https://www.nytimes.com/2026/09/07/us/hypermile-car-gas-prices.html
 

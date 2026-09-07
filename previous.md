@@ -1,3 +1,7 @@
+**Why Hurricane Lowell Could Produce Rare Tornadoes Across Hawaii**\
+`As Hurricane Lowell approaches Hawaii’s western islands, forecasters warned that tornadoes were possible near Kauai and Niihau.`\
+https://www.nytimes.com/2026/09/07/weather/hurricane-lowell-hawaii-tornadoes.html
+
 **For a Photographer, the Towers Were an Ever-Present Focal Point**\
 `Keith Meyers spent years photographing the waterfronts in and around New York City. The twin towers became a constant backdrop.`\
 https://www.nytimes.com/2026/09/07/nyregion/twin-towers-photographs.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/07/style/reece-weaver-dcc-chicago-roxie-hart.htm
 **These Plants Have a Protein-Packed Diet, Too**\
 `For many plant enthusiasts, carnivorous horticulture has become a gorgeous, and slightly gory, fascination.`\
 https://www.nytimes.com/2026/09/07/style/carnivorous-houseplants-venus-flytrap-pitcher-plant.html
-
-**Is there a Right Length for Men’s Pants?**\
-`A reader is confused by the variety of hemlines he sees on trousers.`\
-https://www.nytimes.com/2026/09/07/fashion/mens-pants-length.html
 

@@ -1,3 +1,7 @@
+**Why Hurricane Lowell Could Produce Rare Tornadoes Across Hawaii**\
+`As Hurricane Lowell approaches Hawaii’s western islands, forecasters warned that tornadoes were possible near Kauai and Niihau.`\
+https://www.nytimes.com/2026/09/07/weather/hurricane-lowell-hawaii-tornadoes.html
+
 **Thousands of Serbs Gather to Mourn Ratko Mladic, the ‘Butcher of Bosnia’**\
 `The government insisted the funeral was a private affair, even as government ministers attended and state-controlled news media lavished praise on the convicted war criminal.`\
 https://www.nytimes.com/2026/09/07/world/europe/ratko-mladic-funeral-serbia.html
