@@ -1,3 +1,7 @@
+**Six Advantages for Democrats in the Midterms … and Six Advantages for Republicans**\
+`President Trump’s low approval ratings along with historical trends point to a clear Democratic advantage in November. But Republicans also see some reasons for optimism.`\
+https://www.nytimes.com/interactive/2026/09/07/us/politics/midterm-elections-advantages.html
+
 **Un juez en Argentina ordena devolver una pintura saqueada por los nazis**\
 `La pintura del siglo XVIII “Retrato de una dama” fue robada por un alto mando nazi en la década de 1940. El año pasado, apareció en un anuncio inmobiliario en Argentina.`\
 https://www.nytimes.com/es/2026/09/07/espanol/mundo/nazis-argentina-robo-pintura.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/07/opinion/gloria-steinem-aging-feminism.html
 **Necesito un suero intravenoso para recuperarme de mi suero intravenoso**\
 `Las clínicas de bienestar están inyectando vitaminas a la gente, pero, ¿el objetivo de verdad es que se sientan mejor?`\
 https://www.nytimes.com/es/2026/09/07/espanol/suero-intravenoso-beneficios.html
-
-**Is Roy Cooper Winning in North Carolina? Not if You Ask His Aides.**\
-`Roy Cooper’s durable lead in a crucial Senate race is causing jitters.`\
-https://www.nytimes.com/2026/09/07/opinion/roy-cooper-senate-carolina.html
 
