@@ -1,3 +1,19 @@
+**Thousands of Serbs Mourn Ratko Mladic, the ‘Butcher of Bosnia’**\
+`Thousands of Serbs gathered for the funeral of Ratko Mladic, the “butcher of Bosnia,” who died on Aug. 27 while serving a life sentence for genocide and crimes against humanity. Although the government insisted the funeral was a private event, state-controlled media lavished praise on the war criminal.`\
+https://www.nytimes.com/video/world/europe/100000011137262/serbia-ratko-mladic-funeral.html
+
+**Nepal Flood Victims Remembered During Candlelight Vigil**\
+`During a national day of mourning in Nepal, candlelight vigils were held to honor the victims of the flash food disaster.`\
+https://www.nytimes.com/video/world/asia/100000011137285/candlelight-vigils-nepal-flood-victims.html
+
+**Trump plantea que Nuevo México se llame ahora‘Nueva América’**\
+`Cualquier cambio propuesto tendría que originarse dentro del estado, una posibilidad que los líderes demócratas de Nuevo México rechazaron enérgicamente el domingo.`\
+https://www.nytimes.com/es/2026/09/07/espanol/trump-nuevo-mexico-nueva-america.html
+
+**Ousted Kennedy Center Chairman Buys Dismantled ‘Blue’ Sculpture**\
+`David Rubenstein purchased the sculpture, which was removed from the center last week, from the artist’s foundation. He will display it at the National Gallery of Art.`\
+https://www.nytimes.com/2026/09/07/arts/design/blue-sculpture-kennedy-center-rubenstein.html
+
 **Los haitianos deportados de EE. UU. se quedan sin dinero y a la deriva**\
 `Cientos de personas han sido deportadas a Haití en las últimas semanas, y algunas dicen que las han dejado sin un centavo, sin protección contra las pandillas y sin un lugar adonde ir.`\
 https://www.nytimes.com/es/2026/09/07/espanol/america-latina/haiti-deportados.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/09/07/us/politics/fact-check-midterm-ads-jeffrey-ep
 **‘Fauda’ Braves Oct. 7, and Audiences’ Attitudes Toward Israel**\
 `The new season of the Israeli hit depicts the Hamas attacks and aftermath. It arrives as Israel’s artists face resistance overseas precisely because of how the country responded to Oct. 7.`\
 https://www.nytimes.com/2026/09/07/arts/television/fauda-netflix-oct-7.html
-
-**Canada’s Retaliatory Tariffs Set to Take Effect as Trump Threatens to Escalate**\
-`New Canadian levies of up to 50 percent are expected to begin Tuesday, even as Washington warns of a new round of American tariffs.`\
-https://www.nytimes.com/2026/09/07/world/canada/tariffs-trade-war-carney-trump.html
-
-**As War Grinds On, Trump Relishes Renovation Projects**\
-`President Trump is basking in the momentum of the various projects he has spurred around downtown Washington.`\
-https://www.nytimes.com/2026/09/07/us/politics/trump-dc-makeover-projects.html
-
-**How a City Council Member Lives on $148,500 in Queens**\
-`Tiffany Cabán, a chair of the council’s progressive caucus, had her student loans forgiven a few months ago, giving a boost to her personal budget.`\
-https://www.nytimes.com/interactive/2026/09/07/nyregion/nyc-budgeting-affordability-caban.html
-
-**Social Media in China Is Getting Really Dark**\
-`The Chinese Communist Party has spent years trying to make “positive energy” the dominant mood of the country’s internet. It’s no longer working.`\
-https://www.nytimes.com/2026/09/07/business/china-social-media-pessimism.html
 

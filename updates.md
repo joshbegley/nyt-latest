@@ -1,3 +1,19 @@
+**Thousands of Serbs Mourn Ratko Mladic, the ‘Butcher of Bosnia’**\
+`Thousands of Serbs gathered for the funeral of Ratko Mladic, the “butcher of Bosnia,” who died on Aug. 27 while serving a life sentence for genocide and crimes against humanity. Although the government insisted the funeral was a private event, state-controlled media lavished praise on the war criminal.`\
+https://www.nytimes.com/video/world/europe/100000011137262/serbia-ratko-mladic-funeral.html
+
+**Nepal Flood Victims Remembered During Candlelight Vigil**\
+`During a national day of mourning in Nepal, candlelight vigils were held to honor the victims of the flash food disaster.`\
+https://www.nytimes.com/video/world/asia/100000011137285/candlelight-vigils-nepal-flood-victims.html
+
+**Trump plantea que Nuevo México se llame ahora‘Nueva América’**\
+`Cualquier cambio propuesto tendría que originarse dentro del estado, una posibilidad que los líderes demócratas de Nuevo México rechazaron enérgicamente el domingo.`\
+https://www.nytimes.com/es/2026/09/07/espanol/trump-nuevo-mexico-nueva-america.html
+
+**Ousted Kennedy Center Chairman Buys Dismantled ‘Blue’ Sculpture**\
+`David Rubenstein purchased the sculpture, which was removed from the center last week, from the artist’s foundation. He will display it at the National Gallery of Art.`\
+https://www.nytimes.com/2026/09/07/arts/design/blue-sculpture-kennedy-center-rubenstein.html
+
 **Los haitianos deportados de EE. UU. se quedan sin dinero y a la deriva**\
 `Cientos de personas han sido deportadas a Haití en las últimas semanas, y algunas dicen que las han dejado sin un centavo, sin protección contra las pandillas y sin un lugar adonde ir.`\
 https://www.nytimes.com/es/2026/09/07/espanol/america-latina/haiti-deportados.html
