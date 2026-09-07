@@ -1,3 +1,7 @@
+**Nazi-Looted Painting in Real Estate Listing Must Be Returned**\
+`The 18th-century painting “Portrait of a Lady” was stolen by a high-ranking Nazi in the 1940s. Last year, it surfaced in a real estate listing in Argentina.`\
+https://www.nytimes.com/2026/09/07/world/americas/looted-painting-nazis-argentina.html
+
 **Philippines Lawmaker, Cousin of Marcos, Charged With Taking Kickbacks**\
 `A cousin of President Ferdinand Marcos Jr. was charged with plundering public funds meant for flood control in the Southeast Asian country. He has denied wrongdoing.`\
 https://www.nytimes.com/2026/09/07/world/asia/philippines-romualdez-arrest-kickbacks.html
@@ -126,8 +130,8 @@ https://www.nytimes.com/es/2026/09/07/espanol/america-latina/peru-china-economia
 `Si los aliados occidentales de los palestinos quieren ayudar a Gaza, deben denunciar a Hamás.`\
 https://www.nytimes.com/es/2026/09/07/espanol/opinion/gaza-hamas-palestinos.html
 
-**I Already Miss Gloria Steinem**\
-`One of her contributions to feminism was helping to kill the killjoy thing.`\
+**Gloria Steinem Knew How to Live**\
+`I miss her already.`\
 https://www.nytimes.com/2026/09/07/opinion/gloria-steinem-aging-feminism.html
 
 **Necesito un suero intravenoso para recuperarme de mi suero intravenoso**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/07/opinion/birth-of-the-pill-play.html
 **Dolly Parton’s Former California Retreat Returns to the Market**\
 `The miniature compound, near Santa Barbara, is listed for $1.995 million. And Travis Kelce bought a lakeside mansion in his home state.`\
 https://www.nytimes.com/2026/09/07/realestate/real-estate-sales-listings-dolly-parton-travis-kelce-taylor-swift-amanda-seyfried.html
-
-**Erika Kirk: What I’ve Learned About Grief**\
-`It is there, always, but so is the beautiful gift of life.`\
-https://www.nytimes.com/2026/09/07/opinion/erika-kirk-grief-faith.html
 
