@@ -1,3 +1,7 @@
+**La batalla para salvar a un general innovador de los despidos del secretario de Defensa de EE. UU.**\
+`La visión del general Christopher Donahue para librar las guerras del futuro le hizo ganar poderosos partidarios en todo el mundo. ¿Podrían salvar su carrera?`\
+https://www.nytimes.com/es/2026/09/07/espanol/estados-unidos/general-donahue-secretario-defensa-hegseth.html
+
 **AfD’s Election Win Tests Germany’s Strategy Against Far Right**\
 `The Alternative for Germany, a far-right party known as AfD, won the Saxony-Anhalt state election in a landslide. The “firewall” strategy that Germany’s political parties have maintained against the far right now faces a major test.`\
 https://www.nytimes.com/video/world/europe/100000011137008/germany-afd-election-far-right.html
