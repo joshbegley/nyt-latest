@@ -1,3 +1,11 @@
+**Germany’s ‘Firewall’ Against the Far Right Is Being Tested Like Never Before**\
+`A blowout win by the far-right Alternative for Germany party in a state election has revealed a split among voters about whether to uphold a decades-old strategy for sidelining extremists.`\
+https://www.nytimes.com/2026/09/07/world/europe/germany-afd-election-saxony-anhalt-election.html
+
+**How to Stop Cheating in the A.I. Era**\
+`Readers respond to a guest essay about how to address the root cause of cheating with A.I. Also: A dating app for disabled people.`\
+https://www.nytimes.com/2026/09/07/opinion/letters/stop-cheating-ai.html
+
 **Student Housing Building Collapses in New Delhi**\
 `Several people died and many were feared trapped after a five-story building with rentals for university students collapsed in New Delhi.`\
 https://www.nytimes.com/video/world/asia/100000011136831/student-housing-building-collapses-in-new-delhi.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/07/fashion/mens-pants-length.html
 **Andre Agassi Hated Tennis. Can He Have More Fun Playing Pickleball?**\
 `After years of relative quiet, the public is meeting “Andre 2.0” — a pickleball booster, an open book and a guy eager to build a less tortured relationship with competition.`\
 https://www.nytimes.com/2026/09/07/magazine/andre-agassi-pickleball-tennis.html
-
-**Bears in Los Angeles Are Getting Their Close-Ups, Ready or Not**\
-`California has 60,000 black bears, and they are venturing far from their usual habitat in search of food and shelter. It’s the humans who have to adapt.`\
-https://www.nytimes.com/2026/09/07/us/california-black-bears.html
-
-**A Holiday Home Nestled into the Lush Mountains of Costa Rica**\
-`A home was divided into five pavilion-like structures to soften its footprint amid the monkeys, toucans and macaws.`\
-https://www.nytimes.com/2026/09/07/realestate/a-holiday-home-nestled-into-the-lush-mountains-of-costa-rica.html
 
