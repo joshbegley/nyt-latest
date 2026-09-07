@@ -1,3 +1,7 @@
+**La búsqueda de nuevos medicamentos contra el cáncer en EE. UU. no funciona**\
+`Ya no es la ciencia lo que frena posibles curas, sino nuestra capacidad para probar nuevos medicamentos en ensayos clínicos.`\
+https://www.nytimes.com/es/2026/09/07/espanol/opinion/busqueda-medicamentos-cancer.html
+
 **US Open Day 8: Alcaraz vs. America**\
 `Americans Ben Shelton, Frances Tiafoe and Alex Michelsen stand between Carlos Alcaraz and a place in the US Open final.`\
 https://www.nytimes.com/2026/09/07/podcasts/us-open-alcaraz-tennis.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/06/opinion/letters/fires-forests-college-essay-d
 **Bummer Time**\
 `If you thought this summer felt a little bit off, you’re not alone.`\
 https://www.nytimes.com/2026/09/06/briefing/summer-heat-wave.html
-
-**‘Furious’ Is the First Thriller Made for a Post-Epstein World**\
-`“Furious,” the new police procedural on Hulu, turns out to be the perfect thriller for a post-Epstein world.`\
-https://www.nytimes.com/2026/09/06/opinion/furious-tv-show-epstein.html
 
