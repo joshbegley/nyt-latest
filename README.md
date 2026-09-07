@@ -1,3 +1,11 @@
+**Britain Set to Target Israeli West Bank Settlements With Trade Ban**\
+`The expected move will be announced on Tuesday, officials said, and underscored Israel’s mounting isolation over its policies toward Palestinians following the war in Gaza.`\
+https://www.nytimes.com/2026/09/07/world/middleeast/britain-sanctions-israeli-settlers.html
+
+**Jean-François Leroy, Champion of Photography at Its Rawest, Dies at 69**\
+`His photojournalism festival, Visa Pour l’Image, brought to wide attention images of war and suffering. The French president called him “a great defender of reality.”`\
+https://www.nytimes.com/2026/09/07/arts/design/jean-francois-leroy-dead.html
+
 **La batalla para salvar a un general innovador de los despidos del secretario de Defensa de EE. UU.**\
 `La visión del general Christopher Donahue para librar las guerras del futuro le hizo ganar poderosos partidarios en todo el mundo. ¿Podrían salvar su carrera?`\
 https://www.nytimes.com/es/2026/09/07/espanol/estados-unidos/general-donahue-secretario-defensa-hegseth.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/07/business/china-social-media-pessimism.html
 **Early Data Indicates an A.I.-Generated Drug Could Slow Aging**\
 `Artificial intelligence was used to help develop a drug candidate, rentosertib, for a rare lung condition. Its maker says the drug also seems to reduce the biological hallmarks of age.`\
 https://www.nytimes.com/2026/09/07/science/ai-generated-drug-longevity.html
-
-**Somewhere, Roy Cohn Is Smiling**\
-`Trump needed only one teacher.`\
-https://www.nytimes.com/2026/09/07/opinion/roy-cohn-kai-bird-trump.html
-
-**Why Did Trump Order Up 660 Million Pounds of Mystery Meat?**\
-`On second thought, I’m not that hungry.`\
-https://www.nytimes.com/2026/09/07/opinion/trump-meat-import.html
 
