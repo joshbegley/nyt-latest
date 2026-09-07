@@ -1,3 +1,7 @@
+**Six Advantages for Democrats in the Midterms … and Six Advantages for Republicans**\
+`President Trump’s low approval ratings along with historical trends point to a clear Democratic advantage in November. But Republicans also see some reasons for optimism.`\
+https://www.nytimes.com/interactive/2026/09/07/us/politics/midterm-elections-advantages.html
+
 **Un juez en Argentina ordena devolver una pintura saqueada por los nazis**\
 `La pintura del siglo XVIII “Retrato de una dama” fue robada por un alto mando nazi en la década de 1940. El año pasado, apareció en un anuncio inmobiliario en Argentina.`\
 https://www.nytimes.com/es/2026/09/07/espanol/mundo/nazis-argentina-robo-pintura.html
