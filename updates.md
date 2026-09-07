@@ -1,3 +1,11 @@
+**Why Labor’s Share of Wealth Is Shrinking**\
+`Workers’ share of our national income is declining rapidly but we’re not sure why.`\
+https://www.nytimes.com/2026/09/07/opinion/labor-capitol-workers-income.html
+
+**‘The Real Housewives of New York City’ and 10 More Shows to Watch on TV This Week**\
+`The franchise returns for its 16th season after an 18-month hiatus. And documentaries remember 9/11 on its 25th anniversary.`\
+https://www.nytimes.com/2026/09/07/arts/television/the-real-housewives-of-new-york-city-and-10-more-shows-to-watch-on-tv-this-week.html
+
 **Indonesia’s Growing Microplastics Problem**\
 `Microplastics are usually consumed through food and water, but more recently, they are making their way into Indonesia’s air and rain. Sui-Lee Wee, our Asia business correspondent, traveled to Jakarta, the capital, to find out why.`\
 https://www.nytimes.com/video/world/asia/100000010538018/indonesia-microplastics-rain-air-jakarta.html
