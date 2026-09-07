@@ -1,3 +1,7 @@
+**Peanut Butter-Miso Cookies**\
+`These cookies were the result of a happy accident. When the peanut butter ran out, similarly creamy white miso stepped in, and the other ingredients were tweaked to offset the miso’s savory character. What came out of the oven was salty and sweet, crunchy and chewy.`\
+https://www.nytimes.com/video/dining/100000011126154/peanut-butter-miso-cookies.html
+
 **Edward Field, Bohemian New York Poet, Dies at 102**\
 `His colloquial language, emotionality and gay topics brought him widespread praise, a Guggenheim Foundation fellowship and other literary honors.`\
 https://www.nytimes.com/2026/09/06/obituaries/edward-field-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/06/business/iran-us-strait-of-hormuz-shipping.ht
 **1960s ‘Wave House’ Is on the Market Following Years of Renovations**\
 `Two architects bought a Jules Gregory house for $630,000 in 2015 and spent years on renovations. It is now listed for $2.6 million.`\
 https://www.nytimes.com/2026/09/06/realestate/modernist-wave-house-jules-gregory.html
-
-**A Bad Year for Bees Gets Worse as Trump’s Tariffs Hit Canada’s Honey Belt**\
-`Alberta produces 40 percent of Canada’s honey. This year, rain and President Trump’s trade war have combined to threaten the industry.`\
-https://www.nytimes.com/2026/09/06/world/canada/trump-tariffs-canada-bees-honey.html
 

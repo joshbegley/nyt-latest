@@ -1,3 +1,7 @@
+**Peanut Butter-Miso Cookies**\
+`These cookies were the result of a happy accident. When the peanut butter ran out, similarly creamy white miso stepped in, and the other ingredients were tweaked to offset the miso’s savory character. What came out of the oven was salty and sweet, crunchy and chewy.`\
+https://www.nytimes.com/video/dining/100000011126154/peanut-butter-miso-cookies.html
+
 **Edward Field, Bohemian New York Poet, Dies at 102**\
 `His colloquial language, emotionality and gay topics brought him widespread praise, a Guggenheim Foundation fellowship and other literary honors.`\
 https://www.nytimes.com/2026/09/06/obituaries/edward-field-dead.html
