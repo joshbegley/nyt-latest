@@ -1,3 +1,7 @@
+**El triunfo de la extrema derecha en Alemania sacude a Europa**\
+`Una votación en el este de Alemania da un nuevo impulso a los partidos de extrema derecha que esperan ganar elecciones en toda Europa el próximo año, según analistas.`\
+https://www.nytimes.com/es/2026/09/07/espanol/mundo/alemania-extrema-derecha.html
+
 **Why Amy Klobuchar Wants to Run a State Beleaguered by Trump**\
 `The senator opted to run for governor, having concluded that many Minnesotans lost faith in state government under fellow Democrats. But some wonder: Would she be a fighter in the role, or a conciliator?`\
 https://www.nytimes.com/2026/09/07/us/amy-klobuchar-governor-minnesota.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/07/world/europe/noel-godin-dead.html
 **Exploring Lake Superior’s Wildest Shore**\
 `A road trip along the North Shore of Lake Superior, from Duluth, Minn., to Pukaskwa National Park in Ontario, Canada, packed multiple adventures into a week.`\
 https://www.nytimes.com/2026/09/07/travel/ontario-lake-superior-canada-minnesota.html
-
-**There’s Something Better Than Happiness**\
-`We ought to make it a point not to stay in our happy place for too long.`\
-https://www.nytimes.com/2026/09/07/opinion/happiness-research-joy-mental-health.html
 
