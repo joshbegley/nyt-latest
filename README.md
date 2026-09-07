@@ -1,3 +1,11 @@
+**Why Amy Klobuchar Wants to Run a State Beleaguered by Trump**\
+`The senator opted to run for governor, having concluded that many Minnesotans lost faith in state government under fellow Democrats. But some wonder: Would she be a fighter in the role, or a conciliator?`\
+https://www.nytimes.com/2026/09/07/us/amy-klobuchar-governor-minnesota.html
+
+**The Film Industry Is Worried About Survival. France Wants to Save the Day.**\
+`An A-list gathering in the French Riviera aimed to serve as a rallying cry for a sector threatened by YouTube, TikTok and artificial intelligence.`\
+https://www.nytimes.com/2026/09/07/movies/france-south-korea-film-industry-hollywood.html
+
 **Sardines and Beans Add Delicious Protein to This Greek Salad**\
 `It’s the perfect no-cook meal to beckon back-to-school season.`\
 https://www.nytimes.com/2026/09/07/dining/sardines-and-beans-add-delicious-protein-to-this-greek-salad.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/07/travel/ontario-lake-superior-canada-minnesota
 **There’s Something Better Than Happiness**\
 `We ought to make it a point not to stay in our happy place for too long.`\
 https://www.nytimes.com/2026/09/07/opinion/happiness-research-joy-mental-health.html
-
-**Neighbors Rally After a Manhattan Preschool’s Corn Stalks Are Vandalized**\
-`The students at Mis Amiguitos preschool may never know why someone ripped their corn stalks from an Upper East Side sidewalk. But they turned it into an opportunity.`\
-https://www.nytimes.com/2026/09/07/nyregion/upper-east-side-corn-vandalism.html
-
-**How Bedouine’s Family Heirlooms Inspired an Album**\
-`The musician Bedouine was reluctant to inherit dozens of heirlooms. Then, they inspired an album.`\
-https://www.nytimes.com/2026/09/07/t-magazine/bedouine-family-heirlooms-collection.html
 
