@@ -1,3 +1,7 @@
+**Los límites de la campaña anti-China de EE. UU. se dejan ver en Perú**\
+`El país sudamericano se ha convertido en un campo de pruebas del gobierno del presidente Trump para frenar la influencia de Pekín en el hemisferio occidental, pero sin mayores resultados.`\
+https://www.nytimes.com/es/2026/09/07/espanol/america-latina/peru-china-economia-trump.html
+
 **Para que Gaza se recupere, hay que expulsar a Hamás**\
 `Si los aliados occidentales de los palestinos quieren ayudar a Gaza, deben denunciar a Hamás.`\
 https://www.nytimes.com/es/2026/09/07/espanol/opinion/gaza-hamas-palestinos.html

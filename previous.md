@@ -1,3 +1,7 @@
+**Los límites de la campaña anti-China de EE. UU. se dejan ver en Perú**\
+`El país sudamericano se ha convertido en un campo de pruebas del gobierno del presidente Trump para frenar la influencia de Pekín en el hemisferio occidental, pero sin mayores resultados.`\
+https://www.nytimes.com/es/2026/09/07/espanol/america-latina/peru-china-economia-trump.html
+
 **Para que Gaza se recupere, hay que expulsar a Hamás**\
 `Si los aliados occidentales de los palestinos quieren ayudar a Gaza, deben denunciar a Hamás.`\
 https://www.nytimes.com/es/2026/09/07/espanol/opinion/gaza-hamas-palestinos.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/07/podcasts/us-open-alcaraz-tennis.html
 **‘No quiero morir así’: 15 horas a la deriva en el mar**\
 `Dos amigos alquilaron unas motos acuáticas para un paseo de una hora. Terminaron luchando por sus vidas.`\
 https://www.nytimes.com/es/2026/09/07/espanol/estados-unidos/moto-acuatica-rescate-oceano.html
-
-**3 fármacos comunes que los adultos mayores podrían estar usando en exceso**\
-`Aunque se usan ampliamente, no todas las personas mayores necesitan estos medicamentos, y pueden conllevar mayores riesgos.`\
-https://www.nytimes.com/es/2026/09/07/espanol/farmacos-adultos-mayores-exceso.html
 
