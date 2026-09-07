@@ -1,3 +1,11 @@
+**Virtual Taekwondo Takes the Contact Out of a Combat Sport**\
+`The contactless version of the Korean martial art is making its debut at this year’s Asian Games. Critics say it’s a glorified video game.`\
+https://www.nytimes.com/2026/09/07/sports/virtual-taekwondo-asian-games.html
+
+**Virtual Taekwondo to Make Debut at Asian Games**\
+`Virtual Taekwondo will make its debut at this year’s Asian Games. Taekwondo’s governing body hailed the virtual competition as a new frontier for the martial art.`\
+https://www.nytimes.com/video/world/asia/100000011055093/virtual-taekwondo-asian-games-e-sports.html
+
 **Los límites de la campaña anti-China de EE. UU. se dejan ver en Perú**\
 `El país sudamericano se ha convertido en un campo de pruebas del gobierno del presidente Trump para frenar la influencia de Pekín en el hemisferio occidental, pero sin mayores resultados.`\
 https://www.nytimes.com/es/2026/09/07/espanol/america-latina/peru-china-economia-trump.html
