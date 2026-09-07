@@ -1,3 +1,11 @@
+**Why Amy Klobuchar Wants to Run a State Beleaguered by Trump**\
+`The senator opted to run for governor, having concluded that many Minnesotans lost faith in state government under fellow Democrats. But some wonder: Would she be a fighter in the role, or a conciliator?`\
+https://www.nytimes.com/2026/09/07/us/amy-klobuchar-governor-minnesota.html
+
+**The Film Industry Is Worried About Survival. France Wants to Save the Day.**\
+`An A-list gathering in the French Riviera aimed to serve as a rallying cry for a sector threatened by YouTube, TikTok and artificial intelligence.`\
+https://www.nytimes.com/2026/09/07/movies/france-south-korea-film-industry-hollywood.html
+
 **Israel Launches Deadly Strikes in Lebanon as Military Campaign Intensifies**\
 `The bombardment killed 11 people, Lebanese officials said, after days of attacks that have spurred worries that Israel is looking to push deeper into Lebanese territory.`\
 https://www.nytimes.com/2026/09/07/world/middleeast/israel-lebanon-strikes-hezbollah.html
