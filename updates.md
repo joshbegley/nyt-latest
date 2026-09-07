@@ -1,3 +1,7 @@
+**Cargo Plane Overruns Runway and Crashes at Miami Airport**\
+`A plane that was part of Amazon’s cargo fleet overran a runway and hit several vehicles at Miami International Airport on Sunday, killing at least five people, officials said.`\
+https://www.nytimes.com/video/us/100000011136738/miami-amazon-cargo-plane-crash.html
+
 **Two Fatal NYPD Shootings in One Week. What Happens Next?**\
 `In police shootings in Times Square and at the Brooklyn Bridge,   officers had to make split-second decisions in confronting emotionally disturbed people who were violent or threatening violence.`\
 https://www.nytimes.com/2026/09/06/nyregion/nypd-brooklyn-bridge-times-square-shooting.html

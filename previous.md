@@ -1,3 +1,7 @@
+**Cargo Plane Overruns Runway and Crashes at Miami Airport**\
+`A plane that was part of Amazon’s cargo fleet overran a runway and hit several vehicles at Miami International Airport on Sunday, killing at least five people, officials said.`\
+https://www.nytimes.com/video/us/100000011136738/miami-amazon-cargo-plane-crash.html
+
 **What to Know About Cargo Plane That Overran Its Runway, Killing 5 in Miami**\
 `The plane, which was operating as part of Amazon’s cargo fleet, flew from Puerto Rico to Miami. It crashed into several vehicles after overrunning the runway.`\
 https://www.nytimes.com/2026/09/06/us/miami-plane-crash-what-we-know.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/06/briefing/where-belief-is-believable.html
 **Esta startup ayuda a la gente a morir**\
 `La asistencia médica para morir ahora es legal en Nueva York. Un equipo de profesionales clínicos creó un consultorio para ayudar a sus pacientes a morir en sus propios términos.`\
 https://www.nytimes.com/es/2026/09/06/espanol/startup-ayuda-morir.html
-
-**Las estrellas de ‘Hechizo de amor’ han recuperado sus poderes**\
-`Sandra Bullock, Nicole Kidman, Joey King y Maisie Williams hablan sobre la inesperada secuela, cómo aceptan su lado mágico y sus esperanzas de una tercera película.`\
-https://www.nytimes.com/es/2026/09/06/espanol/cultura/hechizo-amor-practical-magic.html
 
