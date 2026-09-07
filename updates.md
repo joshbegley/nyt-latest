@@ -1,3 +1,7 @@
+**Containing Germany’s Far Right**\
+`The AfD victory in a state election is forcing a rethink of the country’s postwar strategy to safeguard democracy.`\
+https://www.nytimes.com/2026/09/07/world/germany-election-afd-indonesia-microplastics.html
+
 **Caribbean Revelers Celebrate at Parade, Even as Many Are Missing**\
 `At the annual West Indian American Day Parade in Brooklyn, many Haitian New Yorkers targeted by an immigration crackdown were absent from the festivities.`\
 https://www.nytimes.com/2026/09/07/nyregion/west-indian-american-parade-haitians.html
