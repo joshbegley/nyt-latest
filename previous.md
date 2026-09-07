@@ -1,3 +1,7 @@
+**WYouth, New Magazine for Teens, Debuts With Justin and Hailey Bieber Cover**\
+`Sara Moonves managed to save and expand W, a fashion and culture magazine. Her next bet is on “Little W.”`\
+https://www.nytimes.com/2026/09/07/style/wyouth-teen-magazine-gen-z.html
+
 **5 Races to Watch This Fall for Answers to the Biggest Midterm Questions**\
 `From Iowa to Michigan to Texas, key contests will offer clues about voters’ views of President Trump, progressive ideas, the war with Iran and more.`\
 https://www.nytimes.com/2026/09/07/us/politics/midterms-key-races-to-watch.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/07/well/iron-deficiency-ferritin-face.html
 **How a Colorado School District Is Fighting Trump’s Anti-Transgender Push**\
 `Jefferson County, Colo., is one of the few public school systems to sue the Trump administration over demands that it revoke transgender protections or face funding cuts.`\
 https://www.nytimes.com/2026/09/07/us/politics/jefferson-county-trump-transgender-lawsuit.html
-
-**Noël Godin, Prankster Who Threw Pies at the Powerful, Dies at 80**\
-`Splattering figures like Bill Gates, Jean-Luc Godard and Bernard-Henri Lévy, he perfected the art of using whipped cream as a form of protest.`\
-https://www.nytimes.com/2026/09/07/world/europe/noel-godin-dead.html
 

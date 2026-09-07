@@ -1,3 +1,7 @@
+**WYouth, New Magazine for Teens, Debuts With Justin and Hailey Bieber Cover**\
+`Sara Moonves managed to save and expand W, a fashion and culture magazine. Her next bet is on “Little W.”`\
+https://www.nytimes.com/2026/09/07/style/wyouth-teen-magazine-gen-z.html
+
 **5 Races to Watch This Fall for Answers to the Biggest Midterm Questions**\
 `From Iowa to Michigan to Texas, key contests will offer clues about voters’ views of President Trump, progressive ideas, the war with Iran and more.`\
 https://www.nytimes.com/2026/09/07/us/politics/midterms-key-races-to-watch.html
