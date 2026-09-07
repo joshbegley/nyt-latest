@@ -1,3 +1,23 @@
+**After Victory in German State, Far Right Needs Help to Take Power**\
+`The Alternative for Germany, or AfD, does not have a straightforward path to governing Saxony-Anhalt, but a small populist party could clear the way.`\
+https://www.nytimes.com/2026/09/07/world/europe/germany-afd-elections-bsw.html
+
+**Mamdani to Create Workers’ Rights Office in Effort to Boost Union Power**\
+`The Office of Worker Power, designed to support labor organizing and strengthen worker protections, comes as the mayor works to win over the city’s business community.`\
+https://www.nytimes.com/2026/09/07/nyregion/mamdani-to-create-workers-rights-office-in-effort-to-boost-union-power.html
+
+**NYT Connections Answers for September 8, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Sept. 8, 2026.`\
+https://www.nytimes.com/2026/09/07/crosswords/connections-companion-1185.html
+
+**NYT Strands Hints for September 8, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Sept. 8, 2026.`\
+https://www.nytimes.com/2026/09/07/crosswords/strands-sidekick-919.html
+
+**Today’s Wordle Hints for September 8, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Sept. 8, 2026.`\
+https://www.nytimes.com/2026/09/07/crosswords/wordle-review-1907.html
+
 **Virtual Taekwondo Takes the Contact Out of a Combat Sport**\
 `The contactless version of the Korean martial art is making its debut at this year’s Asian Games. Critics say it’s a glorified video game.`\
 https://www.nytimes.com/2026/09/07/sports/virtual-taekwondo-asian-games.html
