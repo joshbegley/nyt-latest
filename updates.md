@@ -1,3 +1,7 @@
+**How ‘Hypermilers’ Are Trying to Beat High Gas Prices**\
+`Gas prices have risen sharply since the start of the Iran war. Some drivers are using special techniques to maximize their miles per gallon and save at the pump.`\
+https://www.nytimes.com/2026/09/07/us/hypermile-car-gas-prices.html
+
 **Why Hurricane Lowell Could Produce Rare Tornadoes Across Hawaii**\
 `As Hurricane Lowell approaches Hawaii’s western islands, forecasters warned that tornadoes were possible near Kauai and Niihau.`\
 https://www.nytimes.com/2026/09/07/weather/hurricane-lowell-hawaii-tornadoes.html
