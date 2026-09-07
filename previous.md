@@ -51,7 +51,7 @@ https://www.nytimes.com/2026/09/07/world/europe/ukraine-russia-witkoff-kushner-t
 https://www.nytimes.com/2026/09/07/briefing/happy-labor-day.html
 
 **Israel Launches Deadly Strikes in Lebanon as Military Campaign Intensifies**\
-`The bombardment killed nine people, Lebanese officials said, after days of attacks that have spurred worries that Israel is looking to push deeper into Lebanese territory.`\
+`The bombardment killed 11 people, Lebanese officials said, after days of attacks that have spurred worries that Israel is looking to push deeper into Lebanese territory.`\
 https://www.nytimes.com/2026/09/07/world/middleeast/israel-lebanon-strikes-hezbollah.html
 
 **After Victory in German State, Far Right Needs Help to Take Power**\

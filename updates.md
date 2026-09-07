@@ -1,3 +1,7 @@
+**Israel Launches Deadly Strikes in Lebanon as Military Campaign Intensifies**\
+`The bombardment killed 11 people, Lebanese officials said, after days of attacks that have spurred worries that Israel is looking to push deeper into Lebanese territory.`\
+https://www.nytimes.com/2026/09/07/world/middleeast/israel-lebanon-strikes-hezbollah.html
+
 **Sardines and Beans Add Delicious Protein to This Greek Salad**\
 `It’s the perfect no-cook meal to beckon back-to-school season.`\
 https://www.nytimes.com/2026/09/07/dining/sardines-and-beans-add-delicious-protein-to-this-greek-salad.html
