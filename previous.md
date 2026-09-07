@@ -1,3 +1,7 @@
+**Los haitianos deportados de EE. UU. se quedan sin dinero y a la deriva**\
+`Cientos de personas han sido deportadas a Haití en las últimas semanas, y algunas dicen que las han dejado sin un centavo, sin protección contra las pandillas y sin un lugar adonde ir.`\
+https://www.nytimes.com/es/2026/09/07/espanol/america-latina/haiti-deportados.html
+
 **Britain Set to Target Israeli West Bank Settlements With Trade Ban**\
 `The expected move will be announced on Tuesday, officials said, and underscored Israel’s mounting isolation over its policies toward Palestinians following the war in Gaza.`\
 https://www.nytimes.com/2026/09/07/world/middleeast/britain-sanctions-israeli-settlers.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/09/07/nyregion/nyc-budgeting-affordabil
 **Social Media in China Is Getting Really Dark**\
 `The Chinese Communist Party has spent years trying to make “positive energy” the dominant mood of the country’s internet. It’s no longer working.`\
 https://www.nytimes.com/2026/09/07/business/china-social-media-pessimism.html
-
-**Early Data Indicates an A.I.-Generated Drug Could Slow Aging**\
-`Artificial intelligence was used to help develop a drug candidate, rentosertib, for a rare lung condition. Its maker says the drug also seems to reduce the biological hallmarks of age.`\
-https://www.nytimes.com/2026/09/07/science/ai-generated-drug-longevity.html
 

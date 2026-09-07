@@ -1,3 +1,7 @@
+**Los haitianos deportados de EE. UU. se quedan sin dinero y a la deriva**\
+`Cientos de personas han sido deportadas a Haití en las últimas semanas, y algunas dicen que las han dejado sin un centavo, sin protección contra las pandillas y sin un lugar adonde ir.`\
+https://www.nytimes.com/es/2026/09/07/espanol/america-latina/haiti-deportados.html
+
 **Britain Set to Target Israeli West Bank Settlements With Trade Ban**\
 `The expected move will be announced on Tuesday, officials said, and underscored Israel’s mounting isolation over its policies toward Palestinians following the war in Gaza.`\
 https://www.nytimes.com/2026/09/07/world/middleeast/britain-sanctions-israeli-settlers.html
