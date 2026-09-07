@@ -1,3 +1,11 @@
+**9/11 Shaped Their Lives, Even Though They’re Too Young to Remember It.**\
+`They have no memory of the buildings missing from the skyline or airports without security lines. But they have strong feelings about how to regard the legacy of the attacks.`\
+https://www.nytimes.com/2026/09/07/nyregion/born-after-9-11-young-adults.html
+
+**NYT Spelling Bee Answers September 7, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/09/07/crosswords/spelling-bee-forum.html
+
 **Germany’s Far Right Tops Key State Race, but Falls Short of Power**\
 `The Alternative for Germany party is projected to finish first in the eastern state of Saxony-Anhalt. But lacking a majority, without the help of other parties it cannot become the first far-right party to govern a state since 1945.`\
 https://www.nytimes.com/live/2026/09/06/world/germany-election
