@@ -1,3 +1,7 @@
+**Israeli Strikes in Lebanon Kill 9 as Bombardment Intensifies**\
+`Israel has stepped up its attacks targeting Hezbollah after capturing a strategic ridge last week, spurring worries that it will prolong its occupation of Lebanese territory.`\
+https://www.nytimes.com/2026/09/07/world/middleeast/israel-lebanon-strikes-hezbollah.html
+
 **After Victory in German State, Far Right Needs Help to Take Power**\
 `The Alternative for Germany, or AfD, does not have a straightforward path to governing Saxony-Anhalt, but a small populist party could clear the way.`\
 https://www.nytimes.com/2026/09/07/world/europe/germany-afd-elections-bsw.html
