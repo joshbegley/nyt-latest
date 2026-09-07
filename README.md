@@ -1,3 +1,7 @@
+**Containing Germany’s Far Right**\
+`The AfD victory in a state election is forcing a rethink of the country’s postwar strategy to safeguard democracy.`\
+https://www.nytimes.com/2026/09/07/world/germany-election-afd-indonesia-microplastics.html
+
 **Caribbean Revelers Celebrate at Parade, Even as Many Are Missing**\
 `At the annual West Indian American Day Parade in Brooklyn, many Haitian New Yorkers targeted by an immigration crackdown were absent from the festivities.`\
 https://www.nytimes.com/2026/09/07/nyregion/west-indian-american-parade-haitians.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/07/us/hypermile-car-gas-prices.html
 **Hollywood’s Box Office Boom Comes With 248 Million Missing Tickets**\
 `Strong box office sales this summer have Hollywood celebrating. But a closer look at the numbers offers a sobering reality check.`\
 https://www.nytimes.com/interactive/2026/09/07/business/media/summer-movies-box-office.html
-
-**Fact-Checking Midterm Ads Referring to Jeffrey Epstein**\
-`Candidates have traded attacks on votes to releasing the Epstein files and political donations from those with links to Jeffrey Epstein.`\
-https://www.nytimes.com/2026/09/07/us/politics/fact-check-midterm-ads-jeffrey-epstein-files.html
 
