@@ -46,8 +46,8 @@ https://www.nytimes.com/2026/09/07/briefing/happy-labor-day.html
 `The bombardment killed nine people, Lebanese officials said, after days of attacks that have spurred worries that Israel is looking to push deeper into Lebanese territory.`\
 https://www.nytimes.com/2026/09/07/world/middleeast/israel-lebanon-strikes-hezbollah.html
 
-**After Victory in German State, Far Right Needs Help to Take Power**\
-`The Alternative for Germany, or AfD, does not have a straightforward path to governing Saxony-Anhalt, but a small populist party could clear the way.`\
+**A Minor Party Could Help the Far Right Take Power in This German State**\
+`Despite an election win, the Alternative for Germany, or AfD, does not have a straightforward path to governing Saxony-Anhalt. But a populist party could clear the way.`\
 https://www.nytimes.com/2026/09/07/world/europe/germany-afd-elections-bsw.html
 
 **Mamdani to Create Workers’ Rights Office in Effort to Boost Union Power**\

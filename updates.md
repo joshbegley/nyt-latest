@@ -1,3 +1,7 @@
+**A Minor Party Could Help the Far Right Take Power in This German State**\
+`Despite an election win, the Alternative for Germany, or AfD, does not have a straightforward path to governing Saxony-Anhalt. But a populist party could clear the way.`\
+https://www.nytimes.com/2026/09/07/world/europe/germany-afd-elections-bsw.html
+
 **Un avión de carga de Amazon se despista en Miami: lo que hay que saber**\
 `El avión operaba como parte de la flota de carga de Amazon y había volado desde Puerto Rico. El incidente obligó al aeropuerto a cerrar todas las pistas en pleno fin de semana del Día del Trabajo.`\
 https://www.nytimes.com/es/2026/09/07/espanol/estados-unidos/miami-avion-amazon.html
