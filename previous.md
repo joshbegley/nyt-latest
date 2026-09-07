@@ -1,3 +1,7 @@
+**Two Fatal NYPD Shootings in One Week. What Happens Next?**\
+`Two police shootings last week underscored the challenge police officers face in confronting emotionally disturbed people who are violent or threatening violence.`\
+https://www.nytimes.com/2026/09/06/nyregion/nypd-brooklyn-bridge-times-square-shooting.html
+
 **Peanut Butter-Miso Cookies**\
 `These cookies were the result of a happy accident. When the peanut butter ran out, similarly creamy white miso stepped in, and the other ingredients were tweaked to offset the miso’s savory character. What came out of the oven was salty and sweet, crunchy and chewy.`\
 https://www.nytimes.com/video/dining/100000011126154/peanut-butter-miso-cookies.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/06/us/highland-park-united-methodist-church-dall
 **Iran’s Attacks Keep the Strait of Hormuz in a Lethal Stalemate**\
 `The U.S. military is helping oil get out of the Persian Gulf on tankers, but Iran is still attacking the ships and scaring operators away.`\
 https://www.nytimes.com/2026/09/06/business/iran-us-strait-of-hormuz-shipping.html
-
-**1960s ‘Wave House’ Is on the Market Following Years of Renovations**\
-`Two architects bought a Jules Gregory house for $630,000 in 2015 and spent years on renovations. It is now listed for $2.6 million.`\
-https://www.nytimes.com/2026/09/06/realestate/modernist-wave-house-jules-gregory.html
 

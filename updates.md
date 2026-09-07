@@ -1,3 +1,7 @@
+**Two Fatal NYPD Shootings in One Week. What Happens Next?**\
+`Two police shootings last week underscored the challenge police officers face in confronting emotionally disturbed people who are violent or threatening violence.`\
+https://www.nytimes.com/2026/09/06/nyregion/nypd-brooklyn-bridge-times-square-shooting.html
+
 **Peanut Butter-Miso Cookies**\
 `These cookies were the result of a happy accident. When the peanut butter ran out, similarly creamy white miso stepped in, and the other ingredients were tweaked to offset the miso’s savory character. What came out of the oven was salty and sweet, crunchy and chewy.`\
 https://www.nytimes.com/video/dining/100000011126154/peanut-butter-miso-cookies.html
