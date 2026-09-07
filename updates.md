@@ -1,3 +1,15 @@
+**Germany’s ‘Firewall’ Against the Far Right Is Being Tested Like Never Before**\
+`A blowout win by the far-right Alternative for Germany party in a state election has revealed a split among voters about whether to uphold a decades-old strategy for sidelining extremists.`\
+https://www.nytimes.com/2026/09/07/world/europe/germany-afd-election-saxony-anhalt-election.html
+
+**How to Stop Cheating in the A.I. Era**\
+`Readers respond to a guest essay about how to address the root cause of cheating with A.I. Also: A dating app for disabled people.`\
+https://www.nytimes.com/2026/09/07/opinion/letters/stop-cheating-ai.html
+
+**Israel Launches Deadly Strikes in Lebanon as Military Campaign Intensifies**\
+`The bombardment killed nine people, Lebanese officials said, after days of attacks that have spurred worries that Israel is looking to push deeper into Lebanese territory.`\
+https://www.nytimes.com/2026/09/07/world/middleeast/israel-lebanon-strikes-hezbollah.html
+
 **Student Housing Building Collapses in New Delhi**\
 `Several people died and many were feared trapped after a five-story building with rentals for university students collapsed in New Delhi.`\
 https://www.nytimes.com/video/world/asia/100000011136831/student-housing-building-collapses-in-new-delhi.html

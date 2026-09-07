@@ -1,3 +1,7 @@
+**For a Photographer, the Towers Were an Ever-Present Focal Point**\
+`Keith Meyers spent years photographing the waterfronts in and around New York City. The twin towers became a constant backdrop.`\
+https://www.nytimes.com/2026/09/07/nyregion/twin-towers-photographs.html
+
 **Germany’s ‘Firewall’ Against the Far Right Is Being Tested Like Never Before**\
 `A blowout win by the far-right Alternative for Germany party in a state election has revealed a split among voters about whether to uphold a decades-old strategy for sidelining extremists.`\
 https://www.nytimes.com/2026/09/07/world/europe/germany-afd-election-saxony-anhalt-election.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/07/style/carnivorous-houseplants-venus-flytrap-p
 **Is there a Right Length for Men’s Pants?**\
 `A reader is confused by the variety of hemlines he sees on trousers.`\
 https://www.nytimes.com/2026/09/07/fashion/mens-pants-length.html
-
-**Andre Agassi Hated Tennis. Can He Have More Fun Playing Pickleball?**\
-`After years of relative quiet, the public is meeting “Andre 2.0” — a pickleball booster, an open book and a guy eager to build a less tortured relationship with competition.`\
-https://www.nytimes.com/2026/09/07/magazine/andre-agassi-pickleball-tennis.html
 
