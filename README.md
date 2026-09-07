@@ -2,7 +2,7 @@
 `Officials provided updates on Sunday’s Amazon cargo plane crash at Miami International airport. The plane crashed into vehicles, killing five people and injuring five others, officials said.`\
 https://www.nytimes.com/video/us/100000011137674/miami-plane-crash-update.html
 
-**Six Advantages for Democrats in the Midterms … and Six Advantages for Republicans**\
+**The Sprint to the Midterms Is On. Here's What Gives Democrats — and Republicans — Hope.**\
 `President Trump’s low approval ratings along with historical trends point to a clear Democratic advantage in November. But Republicans also see some reasons for optimism.`\
 https://www.nytimes.com/interactive/2026/09/07/us/politics/midterm-elections-advantages.html
 
