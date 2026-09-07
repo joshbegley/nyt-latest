@@ -1,3 +1,7 @@
+**Elizabeth Holmes Documentary ‘You Can See Everything’ Upends Telluride**\
+`The comic Nathan Fielder and the filmmaker Lance Oppenheim teamed up to interview the convicted executive for “You Can See Everything.”`\
+https://www.nytimes.com/2026/09/07/movies/elizabeth-holmes-documentary-nathan-fielder-a24.html
+
 **Officials Search for Answers After Fatal Miami Airport Cargo Plane Crash**\
 `The cargo plane, operated for Amazon, plowed into a public road and crashed into vehicles, killing five people and disrupting more than 200 flights over Labor Day weekend.`\
 https://www.nytimes.com/2026/09/07/us/miami-airport-plane-crash.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/07/business/rivian-r2-review.html
 **The Summer When TV Started to Portray Female Friendship Accurately**\
 `The creators of “Sterling Point” and “Off Campus” sought to depict relationships that were far different from the soapy rivalries of earlier young adult shows.`\
 https://www.nytimes.com/2026/09/07/arts/television/sterling-point-off-campus.html
-
-**Does ‘Ferritin Face’ Mean You Have an Iron Deficiency? Here’s How to Tell.**\
-`Almost one in three adults in the United States are deficient in iron, but the diagnosis is often missed by doctors.`\
-https://www.nytimes.com/2026/09/07/well/iron-deficiency-ferritin-face.html
 
