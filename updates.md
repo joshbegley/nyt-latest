@@ -1,3 +1,11 @@
+**The Sprint to the Midterms Is On. Here's What Gives Democrats — and Republicans — Hope.**\
+`President Trump’s low approval ratings along with historical trends point to a clear Democratic advantage in November. But Republicans also see some reasons for optimism.`\
+https://www.nytimes.com/interactive/2026/09/07/us/politics/midterm-elections-advantages.html
+
+**Officials Search for Answers After Fatal Miami Airport Cargo Plane Crash**\
+`A cargo plane, operated for Amazon, plowed into two vehicles on Sunday, leaving five more injured and disrupting Labor Day weekend travel for thousands.`\
+https://www.nytimes.com/2026/09/07/us/miami-airport-plane-crash.html
+
 **Officials Continue Investigation Into Fatal Miami Plane Crash**\
 `Officials provided updates on Sunday’s Amazon cargo plane crash at Miami International airport. The plane crashed into vehicles, killing five people and injuring five others, officials said.`\
 https://www.nytimes.com/video/us/100000011137674/miami-plane-crash-update.html
