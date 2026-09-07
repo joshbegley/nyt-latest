@@ -1,3 +1,7 @@
+**Rob Reiner Wins Posthumous Emmy for ‘The Bear’**\
+`Reiner, who with his wife was found stabbed to death in Los Angeles last year, appeared in several episodes of the show’s fourth season.`\
+https://www.nytimes.com/2026/09/06/arts/television/rob-reiner-emmy-the-bear.html
+
 **‘Lanterns’ Season 1, Episode 4 Recap: Best Frenemies**\
 `John and Hal seem to be realizing, very reluctantly, that they might actually need each other.`\
 https://www.nytimes.com/2026/09/06/arts/television/lanterns-recap-season-1-episode-4.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/09/06/espanol/cultura/hechizo-amor-practical-mag
 **What Secret Audits Tell Us About How Ukraine’s Military Is Spending Its Money**\
 `The documents amount to an autopsy of the weapons-contracting process.`\
 https://www.nytimes.com/2026/09/06/world/europe/ukraine-military-audits-spending-weapons.html
-
-**How a Memphis Gambling Raid Became a Sweeping Immigration Operation**\
-`More than 120 people were arrested at a Memphis cantina, in one of the biggest immigration operations in Tennessee this year.`\
-https://www.nytimes.com/2026/09/06/us/memphis-cantina-gambling-raid-immigration.html
 
