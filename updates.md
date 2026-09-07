@@ -1,3 +1,7 @@
+**Trump Posts Map Suggesting New Mexico Be Renamed as ‘New America’**\
+`The suggestion, posted on social media, appeared to be the latest in the president’s efforts to alter geographic names.`\
+https://www.nytimes.com/2026/09/07/us/politics/trump-rename-new-mexico.html
+
 **Building Housing Students Collapses in New Delhi, Killing at Least 7**\
 `Rescue crews were working to find people trapped in the wreckage of the building, which collapsed on Sunday.`\
 https://www.nytimes.com/2026/09/07/world/asia/india-delhi-building-collapse-satya-niketan.html
