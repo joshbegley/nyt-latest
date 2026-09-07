@@ -1,3 +1,7 @@
+**Hurricane Lowell Could Produce Rare Tornadoes Across Hawaii**\
+`As Hurricane Lowell approaches Hawaii’s western islands, forecasters warned that tornadoes were possible near Kauai and Niihau.`\
+https://www.nytimes.com/2026/09/07/weather/hurricane-lowell-hawaii-tornadoes.html
+
 **Nazi-Looted Painting in Real Estate Listing Must Be Returned**\
 `The 18th-century painting “Portrait of a Lady” was stolen by a high-ranking Nazi in the 1940s. Last year, it surfaced in a real estate listing in Argentina.`\
 https://www.nytimes.com/2026/09/07/world/americas/looted-painting-nazis-argentina.html

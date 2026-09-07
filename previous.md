@@ -50,7 +50,7 @@ https://www.nytimes.com/2026/09/07/us/trump-tariffs-iran-congress-colorado.html
 `El avión operaba como parte de la flota de carga de Amazon y había volado desde Puerto Rico. El incidente obligó al aeropuerto a cerrar todas las pistas en pleno fin de semana del Día del Trabajo.`\
 https://www.nytimes.com/es/2026/09/07/espanol/estados-unidos/miami-avion-amazon.html
 
-**Why Hurricane Lowell Could Produce Rare Tornadoes Across Hawaii**\
+**Hurricane Lowell Could Produce Rare Tornadoes Across Hawaii**\
 `As Hurricane Lowell approaches Hawaii’s western islands, forecasters warned that tornadoes were possible near Kauai and Niihau.`\
 https://www.nytimes.com/2026/09/07/weather/hurricane-lowell-hawaii-tornadoes.html
 
