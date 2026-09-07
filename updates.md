@@ -1,3 +1,11 @@
+**Britain Set to Target Israeli West Bank Settlements With Trade Ban**\
+`The expected move will be announced on Tuesday, officials said, and underscored Israel’s mounting isolation over its policies toward Palestinians following the war in Gaza.`\
+https://www.nytimes.com/2026/09/07/world/middleeast/britain-sanctions-israeli-settlers.html
+
+**Jean-François Leroy, Champion of Photography at Its Rawest, Dies at 69**\
+`His photojournalism festival, Visa Pour l’Image, brought to wide attention images of war and suffering. The French president called him “a great defender of reality.”`\
+https://www.nytimes.com/2026/09/07/arts/design/jean-francois-leroy-dead.html
+
 **La batalla para salvar a un general innovador de los despidos del secretario de Defensa de EE. UU.**\
 `La visión del general Christopher Donahue para librar las guerras del futuro le hizo ganar poderosos partidarios en todo el mundo. ¿Podrían salvar su carrera?`\
 https://www.nytimes.com/es/2026/09/07/espanol/estados-unidos/general-donahue-secretario-defensa-hegseth.html
