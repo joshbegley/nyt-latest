@@ -1,3 +1,7 @@
+**Far-Right German Party Projected to Finish First in Key Race, but Without Majority**\
+`A far-right party, known as the AfD, is projected to finish first in the German state of Saxony-Anhalt but lacked a majority that would make it the first far-right party to govern part of the coutnry since the Nazi era. If the results hold, the party could still assume power.`\
+https://www.nytimes.com/video/world/europe/100000011136442/germany-afd-state-race-saxony-anhalt.html
+
 **La búsqueda de nuevos medicamentos contra el cáncer en EE. UU. no funciona**\
 `Ya no es la ciencia lo que frena posibles curas, sino nuestra capacidad para probar nuevos medicamentos en ensayos clínicos.`\
 https://www.nytimes.com/es/2026/09/07/espanol/opinion/busqueda-medicamentos-cancer.html
