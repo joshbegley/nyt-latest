@@ -1,3 +1,11 @@
+**Trump’s Trade War Is Shaping the Fight for Congress**\
+`In Colorado and across the country, higher costs, tariffs and cheap beef imports are affecting voters who will help determine which party controls the House next year.`\
+https://www.nytimes.com/2026/09/07/us/trump-tariffs-iran-congress-colorado.html
+
+**After Victory in German State, Far Right Needs Help to Take Power**\
+`The Alternative for Germany, or AfD, does not have a straightforward path to governing Saxony-Anhalt, but a small populist party could clear the way.`\
+https://www.nytimes.com/2026/09/07/world/europe/germany-afd-elections-bsw.html
+
 **A Minor Party Could Help the Far Right Take Power in This German State**\
 `Despite an election win, the Alternative for Germany, or AfD, does not have a straightforward path to governing Saxony-Anhalt. But a populist party could clear the way.`\
 https://www.nytimes.com/2026/09/07/world/europe/germany-afd-elections-bsw.html

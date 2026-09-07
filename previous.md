@@ -1,3 +1,7 @@
+**Trump’s Trade War Is Shaping the Fight for Congress**\
+`In Colorado and across the country, higher costs, tariffs and cheap beef imports are affecting voters who will help determine which party controls the House next year.`\
+https://www.nytimes.com/2026/09/07/us/trump-tariffs-iran-congress-colorado.html
+
 **Un avión de carga de Amazon se despista en Miami: lo que hay que saber**\
 `El avión operaba como parte de la flota de carga de Amazon y había volado desde Puerto Rico. El incidente obligó al aeropuerto a cerrar todas las pistas en pleno fin de semana del Día del Trabajo.`\
 https://www.nytimes.com/es/2026/09/07/espanol/estados-unidos/miami-avion-amazon.html
@@ -46,8 +50,8 @@ https://www.nytimes.com/2026/09/07/briefing/happy-labor-day.html
 `The bombardment killed nine people, Lebanese officials said, after days of attacks that have spurred worries that Israel is looking to push deeper into Lebanese territory.`\
 https://www.nytimes.com/2026/09/07/world/middleeast/israel-lebanon-strikes-hezbollah.html
 
-**A Minor Party Could Help the Far Right Take Power in This German State**\
-`Despite an election win, the Alternative for Germany, or AfD, does not have a straightforward path to governing Saxony-Anhalt. But a populist party could clear the way.`\
+**After Victory in German State, Far Right Needs Help to Take Power**\
+`The Alternative for Germany, or AfD, does not have a straightforward path to governing Saxony-Anhalt, but a small populist party could clear the way.`\
 https://www.nytimes.com/2026/09/07/world/europe/germany-afd-elections-bsw.html
 
 **Mamdani to Create Workers’ Rights Office in Effort to Boost Union Power**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/07/t-magazine/bedouine-family-heirlooms-collecti
 **She Fell for New York the Second Time Around**\
 `A newcomer caught in the city during the pandemic fled as soon as her lease was up. But the city had a magnetism that pulled her back in.`\
 https://www.nytimes.com/2026/09/07/realestate/she-fell-for-new-york-the-second-time-around.html
-
-**Reece Weaver of ‘Dallas Cowboys Cheerleaders’ Makes Her Broadway Debut**\
-`Reece Weaver, a breakout star of the Dallas Cowboys Cheerleaders, gives Broadway a whirl.`\
-https://www.nytimes.com/2026/09/07/style/reece-weaver-dcc-chicago-roxie-hart.html
 
