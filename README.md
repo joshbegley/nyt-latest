@@ -15,7 +15,7 @@ https://www.nytimes.com/2026/09/06/arts/television/lanterns-recap-season-1-episo
 https://www.nytimes.com/2026/09/06/us/miami-plane-crash-travel-delays.html
 
 **Two Fatal NYPD Shootings in One Week. What Happens Next?**\
-`Two police shootings last week underscored the challenge police officers face in confronting emotionally disturbed people who are violent or threatening violence.`\
+`In police shootings in Times Square and at the Brooklyn Bridge,   officers had to make split-second decisions in confronting emotionally disturbed people who were violent or threatening violence.`\
 https://www.nytimes.com/2026/09/06/nyregion/nypd-brooklyn-bridge-times-square-shooting.html
 
 **Peanut Butter-Miso Cookies**\
@@ -90,7 +90,7 @@ https://www.nytimes.com/2026/09/06/us/politics/michael-cohen-donald-trump-interv
 `Jim Maroon has been doing his job for 14 years. He knows it’s a big responsibility.`\
 https://www.nytimes.com/interactive/2026/09/06/nyregion/9-11-memorial-pools-cleaning.html
 
-**Live Updates: 5 Killed and 5 Injured as Cargo Plane Overruns Runway at Miami Airport**\
+**5 Killed and 5 Injured as Cargo Plane Overruns Runway at Miami Airport**\
 `The plane was part of Amazon’s cargo fleet and was flying from Puerto Rico. It struck several vehicles as it ran off the runway, local officials said.`\
 https://www.nytimes.com/live/2026/09/06/us/miami-plane-crash
 

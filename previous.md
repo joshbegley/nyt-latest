@@ -1,3 +1,7 @@
+**What to Know About Cargo Plane That Overran Its Runway, Killing 5 in Miami**\
+`The plane, which was operating as part of Amazon’s cargo fleet, flew from Puerto Rico to Miami. It crashed into several vehicles after overrunning the runway.`\
+https://www.nytimes.com/2026/09/06/us/miami-plane-crash-what-we-know.html
+
 **Rob Reiner Wins Posthumous Emmy for ‘The Bear’**\
 `Reiner, who with his wife was found stabbed to death in Los Angeles last year, appeared in several episodes of the show’s fourth season.`\
 https://www.nytimes.com/2026/09/06/arts/television/rob-reiner-emmy-the-bear.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/09/06/espanol/startup-ayuda-morir.html
 **Las estrellas de ‘Hechizo de amor’ han recuperado sus poderes**\
 `Sandra Bullock, Nicole Kidman, Joey King y Maisie Williams hablan sobre la inesperada secuela, cómo aceptan su lado mágico y sus esperanzas de una tercera película.`\
 https://www.nytimes.com/es/2026/09/06/espanol/cultura/hechizo-amor-practical-magic.html
-
-**What Secret Audits Tell Us About How Ukraine’s Military Is Spending Its Money**\
-`The documents amount to an autopsy of the weapons-contracting process.`\
-https://www.nytimes.com/2026/09/06/world/europe/ukraine-military-audits-spending-weapons.html
 
