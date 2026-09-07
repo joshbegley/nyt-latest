@@ -1,3 +1,7 @@
+**El triunfo de la extrema derecha en Alemania sacude a Europa**\
+`Una votación en el este de Alemania da un nuevo impulso a los partidos de extrema derecha que esperan ganar elecciones en toda Europa el próximo año, según analistas.`\
+https://www.nytimes.com/es/2026/09/07/espanol/mundo/alemania-extrema-derecha.html
+
 **Why Amy Klobuchar Wants to Run a State Beleaguered by Trump**\
 `The senator opted to run for governor, having concluded that many Minnesotans lost faith in state government under fellow Democrats. But some wonder: Would she be a fighter in the role, or a conciliator?`\
 https://www.nytimes.com/2026/09/07/us/amy-klobuchar-governor-minnesota.html
