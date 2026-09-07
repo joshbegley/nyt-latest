@@ -1,3 +1,7 @@
+**Trump pesa sobre los republicanos ante las elecciones intermedias**\
+`La estrategia, el mensaje y los gastos del presidente han dejado al Partido Republicano en una situación difícil mientras los legisladores intentan escapar de sus bajos índices de aprobación.`\
+https://www.nytimes.com/es/2026/09/07/espanol/estados-unidos/trump-elecciones-intermedias-republicanos.html
+
 **Containing Germany’s Far Right**\
 `The AfD victory in a state election is forcing a rethink of the country’s postwar strategy to safeguard democracy.`\
 https://www.nytimes.com/2026/09/07/world/germany-election-afd-indonesia-microplastics.html
