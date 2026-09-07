@@ -1,3 +1,7 @@
+**Un juez en Argentina ordena devolver una pintura saqueada por los nazis**\
+`La pintura del siglo XVIII “Retrato de una dama” fue robada por un alto mando nazi en la década de 1940. El año pasado, apareció en un anuncio inmobiliario en Argentina.`\
+https://www.nytimes.com/es/2026/09/07/espanol/mundo/nazis-argentina-robo-pintura.html
+
 **Trump pesa sobre los republicanos ante las elecciones intermedias**\
 `La estrategia, el mensaje y los gastos del presidente han dejado al Partido Republicano en una situación difícil mientras los legisladores intentan escapar de sus bajos índices de aprobación.`\
 https://www.nytimes.com/es/2026/09/07/espanol/estados-unidos/trump-elecciones-intermedias-republicanos.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/09/07/espanol/suero-intravenoso-beneficios.html
 **Is Roy Cooper Winning in North Carolina? Not if You Ask His Aides.**\
 `Roy Cooper’s durable lead in a crucial Senate race is causing jitters.`\
 https://www.nytimes.com/2026/09/07/opinion/roy-cooper-senate-carolina.html
-
-**How ‘Hypermilers’ Are Trying to Beat High Gas Prices**\
-`Gas prices have risen sharply since the start of the Iran war. Some drivers are using special techniques to maximize their miles per gallon and save at the pump.`\
-https://www.nytimes.com/2026/09/07/us/hypermile-car-gas-prices.html
 
