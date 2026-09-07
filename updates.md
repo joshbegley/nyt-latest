@@ -1,3 +1,11 @@
+**‘No quiero morir así’: 15 horas a la deriva en el mar**\
+`Dos amigos alquilaron unas motos acuáticas para un paseo de una hora. Terminaron luchando por sus vidas.`\
+https://www.nytimes.com/es/2026/09/07/espanol/estados-unidos/moto-acuatica-rescate-oceano.html
+
+**3 fármacos comunes que los adultos mayores podrían estar usando en exceso**\
+`Aunque se usan ampliamente, no todas las personas mayores necesitan estos medicamentos, y pueden conllevar mayores riesgos.`\
+https://www.nytimes.com/es/2026/09/07/espanol/farmacos-adultos-mayores-exceso.html
+
 **9/11 Shaped Their Lives, Even Though They’re Too Young to Remember It.**\
 `They have no memory of the buildings missing from the skyline or airports without security lines. But they have strong feelings about how to regard the legacy of the attacks.`\
 https://www.nytimes.com/2026/09/07/nyregion/born-after-9-11-young-adults.html

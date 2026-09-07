@@ -1,3 +1,11 @@
+**‘No quiero morir así’: 15 horas a la deriva en el mar**\
+`Dos amigos alquilaron unas motos acuáticas para un paseo de una hora. Terminaron luchando por sus vidas.`\
+https://www.nytimes.com/es/2026/09/07/espanol/estados-unidos/moto-acuatica-rescate-oceano.html
+
+**3 fármacos comunes que los adultos mayores podrían estar usando en exceso**\
+`Aunque se usan ampliamente, no todas las personas mayores necesitan estos medicamentos, y pueden conllevar mayores riesgos.`\
+https://www.nytimes.com/es/2026/09/07/espanol/farmacos-adultos-mayores-exceso.html
+
 **9/11 Shaped Their Lives, Even Though They’re Too Young to Remember It.**\
 `They have no memory of the buildings missing from the skyline or airports without security lines. But they have strong feelings about how to regard the legacy of the attacks.`\
 https://www.nytimes.com/2026/09/07/nyregion/born-after-9-11-young-adults.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/06/opinion/furious-tv-show-epstein.html
 **Pete Hegseth Is a Wrecking Ball**\
 `We are already paying a high price for the defense secretary’s purges and whims.`\
 https://www.nytimes.com/2026/09/06/opinion/hegseth-national-security-military-generals.html
-
-**Yayoi Kusama’s Fame Eclipsed Her Art**\
-`She has become the world’s most unknown famous artist.`\
-https://www.nytimes.com/2026/09/06/opinion/yayoi-kusama-art-tokyo.html
-
-**The One Thing That Could Make Tennis Even Better**\
-`Tennis is not a prissy sport. Nothing makes the drama of it more visible than a smashed racket.`\
-https://www.nytimes.com/2026/09/06/opinion/tennis-smashed-racket-us-open.html
 
