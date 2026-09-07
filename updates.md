@@ -1,3 +1,7 @@
+**Germany’s Far Right Tops Key State Race, but Falls Short of Power**\
+`The Alternative for Germany party is projected to finish first in the eastern state of Saxony-Anhalt. But lacking a majority, without the help of other parties it cannot become the first far-right party to govern a state since 1945.`\
+https://www.nytimes.com/live/2026/09/06/world/germany-election
+
 **Why Labor’s Share of Wealth Is Shrinking**\
 `Workers’ share of our national income is declining rapidly but we’re not sure why.`\
 https://www.nytimes.com/2026/09/07/opinion/labor-capitol-workers-income.html
