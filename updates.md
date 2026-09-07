@@ -1,3 +1,11 @@
+**Elizabeth Holmes Documentary ‘You Can See Everything’ Upends Telluride**\
+`The comic Nathan Fielder and the filmmaker Lance Oppenheim teamed up to interview the convicted executive for “You Can See Everything.”`\
+https://www.nytimes.com/2026/09/07/movies/elizabeth-holmes-documentary-nathan-fielder-a24.html
+
+**Officials Search for Answers After Fatal Miami Airport Cargo Plane Crash**\
+`The cargo plane, operated for Amazon, plowed into a public road and crashed into vehicles, killing five people and disrupting more than 200 flights over Labor Day weekend.`\
+https://www.nytimes.com/2026/09/07/us/miami-airport-plane-crash.html
+
 **Mamdani Creates Workers’ Rights Office in Effort to Boost Union Power**\
 `The Office of Worker Power, designed to support labor organizing and strengthen worker protections, comes as the mayor works to win over the city’s business community.`\
 https://www.nytimes.com/2026/09/07/nyregion/mamdani-to-create-workers-rights-office-in-effort-to-boost-union-power.html

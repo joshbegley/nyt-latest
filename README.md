@@ -1,3 +1,11 @@
+**Philippines Lawmaker, Cousin of Marcos, Charged With Taking Kickbacks**\
+`A cousin of President Ferdinand Marcos Jr. was charged with plundering public funds meant for flood control in the Southeast Asian country. He has denied wrongdoing.`\
+https://www.nytimes.com/2026/09/07/world/asia/philippines-romualdez-arrest-kickbacks.html
+
+**Israeli Strikes Kill at Least 11 in Southern Lebanon**\
+`The Israeli military has ramped up attacks on Hezbollah targets after claiming it captured a strategic ridge six miles north of its border with Lebanon.`\
+https://www.nytimes.com/video/world/middleeast/100000011137035/lebanon-israel-hezbollah-strikes.html
+
 **Elizabeth Holmes Documentary ‘You Can See Everything’ Upends Telluride**\
 `The comic Nathan Fielder and the filmmaker Lance Oppenheim teamed up to interview the convicted executive for “You Can See Everything.”`\
 https://www.nytimes.com/2026/09/07/movies/elizabeth-holmes-documentary-nathan-fielder-a24.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/07/realestate/real-estate-sales-listings-dolly-p
 **Erika Kirk: What I’ve Learned About Grief**\
 `It is there, always, but so is the beautiful gift of life.`\
 https://www.nytimes.com/2026/09/07/opinion/erika-kirk-grief-faith.html
-
-**Rivian R2 Review: A Tidier (in Size and Price) SUV Is Ready for the Suburbs**\
-`The electric automaker’s new R2 takes what works from its bigger, costlier brother and adds a host of features with the mass market in mind.`\
-https://www.nytimes.com/2026/09/07/business/rivian-r2-review.html
-
-**The Summer When TV Started to Portray Female Friendship Accurately**\
-`The creators of “Sterling Point” and “Off Campus” sought to depict relationships that were far different from the soapy rivalries of earlier young adult shows.`\
-https://www.nytimes.com/2026/09/07/arts/television/sterling-point-off-campus.html
 
