@@ -1,3 +1,11 @@
+**Student Housing Building Collapses in New Delhi**\
+`Several people died and many were feared trapped after a five-story building with rentals for university students collapsed in New Delhi.`\
+https://www.nytimes.com/video/world/asia/100000011136831/student-housing-building-collapses-in-new-delhi.html
+
+**Thousand of Serbs Gather to Mourn Ratko Mladic, the ‘Butcher of Bosnia’**\
+`The government insisted the funeral was a private affair, even as government ministers attended and state-controlled news media lavished praise on the convicted war criminal.`\
+https://www.nytimes.com/2026/09/07/world/europe/ratko-mladic-funeral-serbia.html
+
 **Trump Posts Map Suggesting New Mexico Be Renamed as ‘New America’**\
 `The suggestion, posted on social media, appeared to be the latest in the president’s efforts to alter geographic names.`\
 https://www.nytimes.com/2026/09/07/us/politics/trump-rename-new-mexico.html
