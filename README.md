@@ -1,3 +1,11 @@
+**Virtual Taekwondo Takes the Contact Out of a Combat Sport**\
+`The contactless version of the Korean martial art is making its debut at this year’s Asian Games. Critics say it’s a glorified video game.`\
+https://www.nytimes.com/2026/09/07/sports/virtual-taekwondo-asian-games.html
+
+**Virtual Taekwondo to Make Debut at Asian Games**\
+`Virtual Taekwondo will make its debut at this year’s Asian Games. Taekwondo’s governing body hailed the virtual competition as a new frontier for the martial art.`\
+https://www.nytimes.com/video/world/asia/100000011055093/virtual-taekwondo-asian-games-e-sports.html
+
 **Los límites de la campaña anti-China de EE. UU. se dejan ver en Perú**\
 `El país sudamericano se ha convertido en un campo de pruebas del gobierno del presidente Trump para frenar la influencia de Pekín en el hemisferio occidental, pero sin mayores resultados.`\
 https://www.nytimes.com/es/2026/09/07/espanol/america-latina/peru-china-economia-trump.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/07/books/review/taipei-story-rf-kuang.html
 **La búsqueda de nuevos medicamentos contra el cáncer en EE. UU. no funciona**\
 `Ya no es la ciencia lo que frena posibles curas, sino nuestra capacidad para probar nuevos medicamentos en ensayos clínicos.`\
 https://www.nytimes.com/es/2026/09/07/espanol/opinion/busqueda-medicamentos-cancer.html
-
-**US Open Day 8: Alcaraz vs. America**\
-`Americans Ben Shelton, Frances Tiafoe and Alex Michelsen stand between Carlos Alcaraz and a place in the US Open final.`\
-https://www.nytimes.com/2026/09/07/podcasts/us-open-alcaraz-tennis.html
-
-**‘No quiero morir así’: 15 horas a la deriva en el mar**\
-`Dos amigos alquilaron unas motos acuáticas para un paseo de una hora. Terminaron luchando por sus vidas.`\
-https://www.nytimes.com/es/2026/09/07/espanol/estados-unidos/moto-acuatica-rescate-oceano.html
 
