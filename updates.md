@@ -1,3 +1,7 @@
+**Caribbean Revelers Celebrate at Parade, Even as Many Are Missing**\
+`At the annual West Indian American Day Parade in Brooklyn, many Haitian New Yorkers targeted by an immigration crackdown skipped the festivities.`\
+https://www.nytimes.com/2026/09/07/nyregion/west-indian-american-parade-haitians.html
+
 **Trump plantea que Nuevo México se llame ahora ‘Nueva América’**\
 `Cualquier cambio propuesto tendría que originarse dentro del estado, una posibilidad que los líderes demócratas de Nuevo México rechazaron enérgicamente el domingo.`\
 https://www.nytimes.com/es/2026/09/07/espanol/trump-nuevo-mexico-nueva-america.html
