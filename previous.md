@@ -1,3 +1,11 @@
+**AfD’s Election Win Tests Germany’s Strategy Against Far Right**\
+`The Alternative for Germany, a far-right party known as AfD, won the Saxony-Anhalt state election in a landslide. The “firewall” strategy that Germany’s political parties have maintained against the far right now faces a major test.`\
+https://www.nytimes.com/video/world/europe/100000011137008/germany-afd-election-far-right.html
+
+**Canadá implementa aranceles de represalia**\
+`Se espera que los nuevos gravámenes canadienses de hasta el 50 por ciento comiencen el martes, aun cuando Washington advierte sobre una nueva ronda de aranceles estadounidenses.`\
+https://www.nytimes.com/es/2026/09/07/espanol/mundo/canada-aranceles-trump.html
+
 **Nazi-Looted Painting in Real Estate Listing Must Be Returned**\
 `The 18th-century painting “Portrait of a Lady” was stolen by a high-ranking Nazi in the 1940s. Last year, it surfaced in a real estate listing in Argentina.`\
 https://www.nytimes.com/2026/09/07/world/americas/looted-painting-nazis-argentina.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/07/opinion/trump-meat-import.html
 **There Is Still a Void at Ground Zero. Here’s How We Fill It.**\
 `At 25 years, the World Trade Center is an undeniable feat of urban redevelopment. Now we can make it a real neighborhood.`\
 https://www.nytimes.com/2026/09/07/arts/design/911-world-trade-center-development-neighborhood.html
-
-**The Puerto Rican Women I Left Out of My History of the Pill**\
-`I wrote a book about the history of the pill. I never expected to be a character in a play telling the story of what I left out.`\
-https://www.nytimes.com/2026/09/07/opinion/birth-of-the-pill-play.html
-
-**Dolly Parton’s Former California Retreat Returns to the Market**\
-`The miniature compound, near Santa Barbara, is listed for $1.995 million. And Travis Kelce bought a lakeside mansion in his home state.`\
-https://www.nytimes.com/2026/09/07/realestate/real-estate-sales-listings-dolly-parton-travis-kelce-taylor-swift-amanda-seyfried.html
 

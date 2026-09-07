@@ -1,3 +1,11 @@
+**AfD’s Election Win Tests Germany’s Strategy Against Far Right**\
+`The Alternative for Germany, a far-right party known as AfD, won the Saxony-Anhalt state election in a landslide. The “firewall” strategy that Germany’s political parties have maintained against the far right now faces a major test.`\
+https://www.nytimes.com/video/world/europe/100000011137008/germany-afd-election-far-right.html
+
+**Canadá implementa aranceles de represalia**\
+`Se espera que los nuevos gravámenes canadienses de hasta el 50 por ciento comiencen el martes, aun cuando Washington advierte sobre una nueva ronda de aranceles estadounidenses.`\
+https://www.nytimes.com/es/2026/09/07/espanol/mundo/canada-aranceles-trump.html
+
 **Hurricane Lowell Could Produce Rare Tornadoes Across Hawaii**\
 `As Hurricane Lowell approaches Hawaii’s western islands, forecasters warned that tornadoes were possible near Kauai and Niihau.`\
 https://www.nytimes.com/2026/09/07/weather/hurricane-lowell-hawaii-tornadoes.html
