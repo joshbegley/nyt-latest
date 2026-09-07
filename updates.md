@@ -1,3 +1,7 @@
+**Kauai Braces for Heavy Rain and Wind as Hurricane Lowell Approaches**\
+`As the hurricane moved closer, the Hawaiian island of Kauai’s annual marathon was canceled. Some residents went ahead with their holiday weekend plans.`\
+https://www.nytimes.com/2026/09/07/weather/kauai-preparations-hurricane-lowell.html
+
 **No Corrections: Sept. 7, 2026**\
 `No corrections appeared in print on Monday, Sept. 7, 2026.`\
 https://www.nytimes.com/2026/09/07/corrections/no-corrections-sept-7-2026.html
