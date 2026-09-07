@@ -1,3 +1,111 @@
+**Para que Gaza se recupere, hay que expulsar a Hamás**\
+`Si los aliados occidentales de los palestinos quieren ayudar a Gaza, deben denunciar a Hamás.`\
+https://www.nytimes.com/es/2026/09/07/espanol/opinion/gaza-hamas-palestinos.html
+
+**I Already Miss Gloria Steinem**\
+`One of her contributions to feminism was helping to kill the killjoy thing.`\
+https://www.nytimes.com/2026/09/07/opinion/gloria-steinem-aging-feminism.html
+
+**Necesito un suero intravenoso para recuperarme de mi suero intravenoso**\
+`Las clínicas de bienestar están inyectando vitaminas a la gente, pero, ¿el objetivo de verdad es que se sientan mejor?`\
+https://www.nytimes.com/es/2026/09/07/espanol/suero-intravenoso-beneficios.html
+
+**Is Roy Cooper Winning in North Carolina? Not if You Ask His Aides.**\
+`Roy Cooper’s durable lead in a crucial Senate race is causing jitters.`\
+https://www.nytimes.com/2026/09/07/opinion/roy-cooper-senate-carolina.html
+
+**As Gas Prices Soar, These Drivers Squeeze Every Mile From Every Gallon**\
+`Gas prices have risen sharply since the start of the Iran war. Some drivers are using special techniques to maximize their miles per gallon and save at the pump.`\
+https://www.nytimes.com/2026/09/07/us/hypermile-car-gas-prices.html
+
+**Hollywood’s Box Office Boom Comes With 248 Million Missing Tickets**\
+`Strong box office sales this summer have Hollywood celebrating. But a closer look at the numbers offers a sobering reality check.`\
+https://www.nytimes.com/interactive/2026/09/07/business/media/summer-movies-box-office.html
+
+**Fact-Checking Midterm Ads Referring to Jeffrey Epstein**\
+`Candidates have traded attacks on votes to releasing the Epstein files and political donations from those with links to Jeffrey Epstein.`\
+https://www.nytimes.com/2026/09/07/us/politics/fact-check-midterm-ads-jeffrey-epstein-files.html
+
+**‘Fauda’ Braves Oct. 7, and Audiences’ Attitudes Toward Israel**\
+`The new season of the Israeli hit depicts the Hamas attacks and aftermath. It arrives as Israel’s artists face resistance overseas precisely because of how the country responded to Oct. 7.`\
+https://www.nytimes.com/2026/09/07/arts/television/fauda-netflix-oct-7.html
+
+**Canada’s Retaliatory Tariffs Set to Take Effect as Trump Threatens to Escalate**\
+`New Canadian levies of up to 50 percent are expected to begin Tuesday, even as Washington warns of a new round of American tariffs.`\
+https://www.nytimes.com/2026/09/07/world/canada/tariffs-trade-war-carney-trump.html
+
+**As War Grinds On, Trump Relishes Renovation Projects**\
+`President Trump is basking in the momentum of the various projects he has spurred around downtown Washington.`\
+https://www.nytimes.com/2026/09/07/us/politics/trump-dc-makeover-projects.html
+
+**How a City Council Member Lives on $148,500 in Queens**\
+`Tiffany Cabán, a chair of the council’s progressive caucus, had her student loans forgiven a few months ago, giving a boost to her personal budget.`\
+https://www.nytimes.com/interactive/2026/09/07/nyregion/nyc-budgeting-affordability-caban.html
+
+**Social Media in China Is Getting Really Dark**\
+`The Chinese Communist Party has spent years trying to make “positive energy” the dominant mood of the country’s internet. It’s no longer working.`\
+https://www.nytimes.com/2026/09/07/business/china-social-media-pessimism.html
+
+**Early Data Indicates an A.I.-Generated Drug Could Slow Aging**\
+`Artificial intelligence was used to help develop a drug candidate, rentosertib, for a rare lung condition. Its maker says the drug also seems to reduce the biological hallmarks of age.`\
+https://www.nytimes.com/2026/09/07/science/ai-generated-drug-longevity.html
+
+**Somewhere, Roy Cohn Is Smiling**\
+`Trump needed only one teacher.`\
+https://www.nytimes.com/2026/09/07/opinion/roy-cohn-kai-bird-trump.html
+
+**Why Did Trump Order Up 660 Million Pounds of Mystery Meat?**\
+`On second thought, I’m not that hungry.`\
+https://www.nytimes.com/2026/09/07/opinion/trump-meat-import.html
+
+**There Is Still a Void at Ground Zero. Here’s How We Fill It.**\
+`At 25 years, the World Trade Center is an undeniable feat of urban redevelopment. Now we can make it a real neighborhood.`\
+https://www.nytimes.com/2026/09/07/arts/design/911-world-trade-center-development-neighborhood.html
+
+**The Puerto Rican Women I Left Out of My History of the Pill**\
+`I wrote a book about the history of the pill. I never expected to be a character in a play telling the story of what I left out.`\
+https://www.nytimes.com/2026/09/07/opinion/birth-of-the-pill-play.html
+
+**Dolly Parton’s Former California Retreat Returns to the Market**\
+`The miniature compound, near Santa Barbara, is listed for $1.995 million. And Travis Kelce bought a lakeside mansion in his home state.`\
+https://www.nytimes.com/2026/09/07/realestate/real-estate-sales-listings-dolly-parton-travis-kelce-taylor-swift-amanda-seyfried.html
+
+**Erika Kirk: What I’ve Learned About Grief**\
+`It is there, always, but so is the beautiful gift of life.`\
+https://www.nytimes.com/2026/09/07/opinion/erika-kirk-grief-faith.html
+
+**Rivian R2 Review: A Tidier (in Size and Price) SUV Is Ready for the Suburbs**\
+`The electric automaker’s new R2 takes what works from its bigger, costlier brother and adds a host of features with the mass market in mind.`\
+https://www.nytimes.com/2026/09/07/business/rivian-r2-review.html
+
+**The Summer When TV Started to Portray Female Friendship Accurately**\
+`The creators of “Sterling Point” and “Off Campus” sought to depict relationships that were far different from the soapy rivalries of earlier young adult shows.`\
+https://www.nytimes.com/2026/09/07/arts/television/sterling-point-off-campus.html
+
+**Does ‘Ferritin Face’ Mean You Have an Iron Deficiency? Here’s How to Tell.**\
+`Almost one in three adults in the United States are deficient in iron, but the diagnosis is often missed by doctors.`\
+https://www.nytimes.com/2026/09/07/well/iron-deficiency-ferritin-face.html
+
+**How a Colorado School District Is Fighting Trump’s Anti-Transgender Push**\
+`Jefferson County, Colo., is one of the few public school systems to sue the Trump administration over demands that it revoke transgender protections or face funding cuts.`\
+https://www.nytimes.com/2026/09/07/us/politics/jefferson-county-trump-transgender-lawsuit.html
+
+**Noël Godin, Prankster Who Threw Pies at the Powerful, Dies at 80**\
+`Splattering figures like Bill Gates, Jean-Luc Godard and Bernard-Henri Lévy, he perfected the art of using whipped cream as a form of protest.`\
+https://www.nytimes.com/2026/09/07/world/europe/noel-godin-dead.html
+
+**Exploring Lake Superior’s Wildest Shore**\
+`A road trip along the North Shore of Lake Superior, from Duluth, Minn., to Pukaskwa National Park in Ontario, Canada, packed multiple adventures into a week.`\
+https://www.nytimes.com/2026/09/07/travel/ontario-lake-superior-canada-minnesota.html
+
+**There’s Something Better Than Happiness**\
+`We ought to make it a point not to stay in our happy place for too long.`\
+https://www.nytimes.com/2026/09/07/opinion/happiness-research-joy-mental-health.html
+
+**Neighbors Rally After a Manhattan Preschool’s Corn Stalks Are Vandalized**\
+`The students at Mis Amiguitos preschool may never know why someone ripped their corn stalks from an Upper East Side sidewalk. But they turned it into an opportunity.`\
+https://www.nytimes.com/2026/09/07/nyregion/upper-east-side-corn-vandalism.html
+
 **How Bedouine’s Family Heirlooms Inspired an Album**\
 `The musician Bedouine was reluctant to inherit dozens of heirlooms. Then, they inspired an album.`\
 https://www.nytimes.com/2026/09/07/t-magazine/bedouine-family-heirlooms-collection.html
@@ -89,112 +197,4 @@ https://www.nytimes.com/es/2026/09/07/espanol/estados-unidos/moto-acuatica-resca
 **3 fármacos comunes que los adultos mayores podrían estar usando en exceso**\
 `Aunque se usan ampliamente, no todas las personas mayores necesitan estos medicamentos, y pueden conllevar mayores riesgos.`\
 https://www.nytimes.com/es/2026/09/07/espanol/farmacos-adultos-mayores-exceso.html
-
-**9/11 Shaped Their Lives, Even Though They’re Too Young to Remember It.**\
-`They have no memory of the buildings missing from the skyline or airports without security lines. But they have strong feelings about how to regard the legacy of the attacks.`\
-https://www.nytimes.com/2026/09/07/nyregion/born-after-9-11-young-adults.html
-
-**NYT Spelling Bee Answers September 7, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/09/07/crosswords/spelling-bee-forum.html
-
-**‘The Real Housewives of New York City’ and 10 More Shows to Watch on TV This Week**\
-`The franchise returns for its 16th season after an 18-month hiatus. And documentaries remember 9/11 on its 25th anniversary.`\
-https://www.nytimes.com/2026/09/07/arts/television/the-real-housewives-of-new-york-city-and-10-more-shows-to-watch-on-tv-this-week.html
-
-**Why Labor’s Share of Wealth Is Shrinking**\
-`Workers’ share of our national income is declining rapidly but we’re not sure why.`\
-https://www.nytimes.com/2026/09/07/opinion/labor-capitol-workers-income.html
-
-**Indonesia’s Growing Microplastics Problem**\
-`Microplastics are usually consumed through food and water, but more recently, they are making their way into Indonesia’s air and rain. Sui-Lee Wee, our Asia business correspondent, traveled to Jakarta, the capital, to find out why.`\
-https://www.nytimes.com/video/world/asia/100000010538018/indonesia-microplastics-rain-air-jakarta.html
-
-**The Microplastics Epidemic in Indonesia**\
-`Tiny fragments of plastic are in the air, land and water in the country, where the burning of trash is common.`\
-https://www.nytimes.com/interactive/2026/09/07/world/asia/indonesia-jakarta-landfill-fire-microplastics.html
-
-**Kauai Braces for Heavy Rain and Wind as Hurricane Lowell Approaches**\
-`As the hurricane moved closer, the Hawaiian island of Kauai’s annual marathon was canceled. Some residents went ahead with their holiday weekend plans.`\
-https://www.nytimes.com/2026/09/07/weather/kauai-preparations-hurricane-lowell.html
-
-**No Corrections: Sept. 7, 2026**\
-`No corrections appeared in print on Monday, Sept. 7, 2026.`\
-https://www.nytimes.com/2026/09/07/corrections/no-corrections-sept-7-2026.html
-
-**Quote of the Day: He Fiercely Fought Russia. Now He Wants to Work for Peace.**\
-`Quotation of the Day for Monday, September 7, 2026.`\
-https://www.nytimes.com/2026/09/07/pageoneplus/quote-of-the-day-he-fiercely-fought-russia-now-he-wants-to-work-for-peace.html
-
-**Cargo Plane Overruns Runway and Crashes at Miami Airport**\
-`A plane that was part of Amazon’s cargo fleet overran a runway and hit several vehicles at Miami International Airport on Sunday, killing at least five people, officials said.`\
-https://www.nytimes.com/video/us/100000011136738/miami-amazon-cargo-plane-crash.html
-
-**What to Know About Cargo Plane That Overran Its Runway, Killing 5 in Miami**\
-`The plane, which was operating as part of Amazon’s cargo fleet, flew from Puerto Rico to Miami. It crashed into several vehicles after overrunning the runway.`\
-https://www.nytimes.com/2026/09/06/us/miami-plane-crash-what-we-know.html
-
-**Rob Reiner Wins Posthumous Emmy for ‘The Bear’**\
-`Reiner, who with his wife was found stabbed to death in Los Angeles last year, appeared in several episodes of the show’s fourth season.`\
-https://www.nytimes.com/2026/09/06/arts/television/rob-reiner-emmy-the-bear.html
-
-**‘Lanterns’ Season 1, Episode 4 Recap: Best Frenemies**\
-`John and Hal seem to be realizing, very reluctantly, that they might actually need each other.`\
-https://www.nytimes.com/2026/09/06/arts/television/lanterns-recap-season-1-episode-4.html
-
-**Vacationers Scramble After Miami Plane Crash Snarls Travel**\
-`Security lines and restaurants were largely empty as passengers digested the news and tried to frantically to rearrange travel.`\
-https://www.nytimes.com/2026/09/06/us/miami-plane-crash-travel-delays.html
-
-**Two Fatal NYPD Shootings in One Week. What Happens Next?**\
-`In police shootings in Times Square and at the Brooklyn Bridge,   officers had to make split-second decisions in confronting emotionally disturbed people who were violent or threatening violence.`\
-https://www.nytimes.com/2026/09/06/nyregion/nypd-brooklyn-bridge-times-square-shooting.html
-
-**Peanut Butter-Miso Cookies**\
-`These cookies were the result of a happy accident. When the peanut butter ran out, similarly creamy white miso stepped in, and the other ingredients were tweaked to offset the miso’s savory character. What came out of the oven was salty and sweet, crunchy and chewy.`\
-https://www.nytimes.com/video/dining/100000011126154/peanut-butter-miso-cookies.html
-
-**Edward Field, Bohemian New York Poet, Dies at 102**\
-`His colloquial language, emotionality and gay topics brought him widespread praise, a Guggenheim Foundation fellowship and other literary honors.`\
-https://www.nytimes.com/2026/09/06/obituaries/edward-field-dead.html
-
-**Far-Right German Party Projected to Finish First in Key Race, but Without Majority**\
-`A far-right party, known as the AfD, is projected to finish first in the German state of Saxony-Anhalt but lacked a majority that would make it the first far-right party to govern part of the coutnry since the Nazi era. If the results hold, the party could still assume power.`\
-https://www.nytimes.com/video/world/europe/100000011136442/germany-afd-state-race-saxony-anhalt.html
-
-**AfD Victory in Saxony-Anhalt Sends a Signal to Europe**\
-`A vote in eastern Germany has given fresh momentum to hard-right parties hoping to win elections across Europe next year, analysts said.`\
-https://www.nytimes.com/2026/09/06/world/europe/afd-germany-europe-far-right-saxony-anhalt.html
-
-**Armed Man Arrested After Charging Toward Democratic Candidate for Ohio Governor**\
-`The authorities are charging the man, who they said had two pistols and a Taser on him but did not draw his weapons, with misdemeanor assault.`\
-https://www.nytimes.com/2026/09/06/us/politics/amy-acton-governor-candidate-ohio-arrest-incident.html
-
-**El Pentágono aplica el polígrafo a personal por filtraciones a la prensa**\
-`Unas 50 personas fueron sometidas a las pruebas en una investigación sin precedentes que surge tras las noticias sobre la guerra con Irán y las reservas de municiones disminuidas del ejército estadounidense.`\
-https://www.nytimes.com/es/2026/09/06/espanol/estados-unidos/pentagono-filtraciones-prensa-poligrafo.html
-
-**Giuliani Says Mamdani Should Skip 9/11 Memorial**\
-`During an anti-Muslim diatribe, the former mayor called for Mr. Mamdani to skip the ceremonies. The mayor has said he is going.`\
-https://www.nytimes.com/2026/09/06/nyregion/mamdani-911-memorial-rudy-giuliani.html
-
-**Germany’s Far Right Just Misses Majority in Crucial State Election**\
-`The Alternative for Germany, or AfD, trounced its rivals but was left unsure if it will be able to govern in Saxony-Anhalt. The result shocked Germany.`\
-https://www.nytimes.com/2026/09/06/world/europe/germany-afd-election-saxony-anhalt.html
-
-**What to Know About Amazon Air Cargo Carrier Involved in Miami Crash**\
-`Amazon’s cargo carrier contracts out its flights and is a key part of its worldwide shipping operation. The plane that crashed in Miami on Sunday was operated by 21 Air.`\
-https://www.nytimes.com/2026/09/06/us/amazon-air-21-cargo-airline.html
-
-**Fatal Cargo Crash in Miami Echoed One That Killed 5 in 1997**\
-`Both crashes highlighted Miami’s role as a cargo hub to the Caribbean and Latin America.`\
-https://www.nytimes.com/2026/09/06/us/1997-miami-cargo-plane-crash-fine-air.html
-
-**Oil Prices Rise Slightly After U.S. and Iran Trade Strikes**\
-`Brent crude, the global benchmark for oil, was up about 1 percent as trading resumed on Sunday, while the national average price of gas was nearly $4.15 a gallon.`\
-https://www.nytimes.com/2026/09/06/business/oil-gas-prices-iran-war.html
-
-**10-Minute Challenge: Angel Oak**\
-`We’d like you to look at this tree for 10 minutes, uninterrupted.`\
-https://www.nytimes.com/interactive/2026/09/06/upshot/10-minute-challenge-angel-oak.html
 
