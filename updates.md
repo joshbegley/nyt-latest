@@ -1,3 +1,7 @@
+**Trump plantea que Nuevo México se llame ahora ‘Nueva América’**\
+`Cualquier cambio propuesto tendría que originarse dentro del estado, una posibilidad que los líderes demócratas de Nuevo México rechazaron enérgicamente el domingo.`\
+https://www.nytimes.com/es/2026/09/07/espanol/trump-nuevo-mexico-nueva-america.html
+
 **Thousands of Serbs Mourn Ratko Mladic, the ‘Butcher of Bosnia’**\
 `Thousands of Serbs gathered for the funeral of Ratko Mladic, the “butcher of Bosnia,” who died on Aug. 27 while serving a life sentence for genocide and crimes against humanity. Although the government insisted the funeral was a private event, state-controlled media lavished praise on the war criminal.`\
 https://www.nytimes.com/video/world/europe/100000011137262/serbia-ratko-mladic-funeral.html

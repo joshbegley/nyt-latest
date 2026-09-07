@@ -6,7 +6,7 @@ https://www.nytimes.com/video/world/europe/100000011137262/serbia-ratko-mladic-f
 `During a national day of mourning in Nepal, candlelight vigils were held to honor the victims of the flash food disaster.`\
 https://www.nytimes.com/video/world/asia/100000011137285/candlelight-vigils-nepal-flood-victims.html
 
-**Trump plantea que Nuevo México se llame ahora‘Nueva América’**\
+**Trump plantea que Nuevo México se llame ahora ‘Nueva América’**\
 `Cualquier cambio propuesto tendría que originarse dentro del estado, una posibilidad que los líderes demócratas de Nuevo México rechazaron enérgicamente el domingo.`\
 https://www.nytimes.com/es/2026/09/07/espanol/trump-nuevo-mexico-nueva-america.html
 
