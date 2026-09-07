@@ -1,3 +1,19 @@
+**Nazi-Looted Painting in Real Estate Listing Must Be Returned**\
+`The 18th-century painting “Portrait of a Lady” was stolen by a high-ranking Nazi in the 1940s. Last year, it surfaced in a real estate listing in Argentina.`\
+https://www.nytimes.com/2026/09/07/world/americas/looted-painting-nazis-argentina.html
+
+**Philippines Lawmaker, Cousin of Marcos, Charged With Taking Kickbacks**\
+`A cousin of President Ferdinand Marcos Jr. was charged with plundering public funds meant for flood control in the Southeast Asian country. He has denied wrongdoing.`\
+https://www.nytimes.com/2026/09/07/world/asia/philippines-romualdez-arrest-kickbacks.html
+
+**Israeli Strikes Kill at Least 11 in Southern Lebanon**\
+`The Israeli military has ramped up attacks on Hezbollah targets after claiming it captured a strategic ridge six miles north of its border with Lebanon.`\
+https://www.nytimes.com/video/world/middleeast/100000011137035/lebanon-israel-hezbollah-strikes.html
+
+**Gloria Steinem Knew How to Live**\
+`I miss her already.`\
+https://www.nytimes.com/2026/09/07/opinion/gloria-steinem-aging-feminism.html
+
 **Elizabeth Holmes Documentary ‘You Can See Everything’ Upends Telluride**\
 `The comic Nathan Fielder and the filmmaker Lance Oppenheim teamed up to interview the convicted executive for “You Can See Everything.”`\
 https://www.nytimes.com/2026/09/07/movies/elizabeth-holmes-documentary-nathan-fielder-a24.html
