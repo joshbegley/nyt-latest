@@ -1,3 +1,7 @@
+**Un avión de carga de Amazon se despista en Miami: lo que hay que saber**\
+`El avión operaba como parte de la flota de carga de Amazon y había volado desde Puerto Rico. El incidente obligó al aeropuerto a cerrar todas las pistas en pleno fin de semana del Día del Trabajo.`\
+https://www.nytimes.com/es/2026/09/07/espanol/estados-unidos/miami-avion-amazon.html
+
 **Why Hurricane Lowell Could Produce Rare Tornadoes Across Hawaii**\
 `As Hurricane Lowell approaches Hawaii’s western islands, forecasters warned that tornadoes were possible near Kauai and Niihau.`\
 https://www.nytimes.com/2026/09/07/weather/hurricane-lowell-hawaii-tornadoes.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/07/realestate/she-fell-for-new-york-the-second-t
 **Reece Weaver of ‘Dallas Cowboys Cheerleaders’ Makes Her Broadway Debut**\
 `Reece Weaver, a breakout star of the Dallas Cowboys Cheerleaders, gives Broadway a whirl.`\
 https://www.nytimes.com/2026/09/07/style/reece-weaver-dcc-chicago-roxie-hart.html
-
-**These Plants Have a Protein-Packed Diet, Too**\
-`For many plant enthusiasts, carnivorous horticulture has become a gorgeous, and slightly gory, fascination.`\
-https://www.nytimes.com/2026/09/07/style/carnivorous-houseplants-venus-flytrap-pitcher-plant.html
 

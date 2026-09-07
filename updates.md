@@ -1,3 +1,7 @@
+**Un avión de carga de Amazon se despista en Miami: lo que hay que saber**\
+`El avión operaba como parte de la flota de carga de Amazon y había volado desde Puerto Rico. El incidente obligó al aeropuerto a cerrar todas las pistas en pleno fin de semana del Día del Trabajo.`\
+https://www.nytimes.com/es/2026/09/07/espanol/estados-unidos/miami-avion-amazon.html
+
 **Germany’s ‘Firewall’ Against the Far Right Is Being Tested as Never Before**\
 `A blowout win by the far-right Alternative for Germany party in a state election has revealed a split among voters about whether to uphold a decades-old strategy for sidelining extremists.`\
 https://www.nytimes.com/2026/09/07/world/europe/germany-afd-election-saxony-anhalt-election.html
