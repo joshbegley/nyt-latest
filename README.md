@@ -1,3 +1,7 @@
+**Trump Floats Renaming New Mexico as ‘New America,’ Prompting Pushback**\
+`The suggestion, posted on social media, appeared to be the latest in the president’s efforts to alter geographic names.`\
+https://www.nytimes.com/2026/09/07/us/politics/trump-rename-new-mexico.html
+
 **Building Housing Students Collapses in New Delhi, Killing at Least 7**\
 `Rescue crews were working to find people trapped in the wreckage of the building, which collapsed on Sunday.`\
 https://www.nytimes.com/2026/09/07/world/asia/india-delhi-building-collapse-satya-niketan.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/07/books/review/alice-hoffman-practical-magic-wi
 **Art’s New Season: Retrospectives and Resistance**\
 `Holland Cotter’s highlights include a panoptic view of Roy Lichtenstein, storytelling surprises of the Lucas Museum of Narrative Art, and activism from Colombia to South Asia to New York.`\
 https://www.nytimes.com/2026/09/07/arts/design/new-art-exhibitions-holland-cotter.html
-
-**25 Global Art Openings Worth Making an Excursion For**\
-`Our critic Jason Farago awaits Brancusi at MoMA, a K-pop icon’s collection in San Francisco, Sofia Coppola at the Château de Versailles — and new art centers in New York.`\
-https://www.nytimes.com/2026/09/07/arts/design/new-art-exhibitions-jason-farago.html
 
