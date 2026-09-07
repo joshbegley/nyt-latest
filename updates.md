@@ -1,3 +1,7 @@
+**Sardines and Beans Add Delicious Protein to This Greek Salad**\
+`It’s the perfect no-cook meal to beckon back-to-school season.`\
+https://www.nytimes.com/2026/09/07/dining/sardines-and-beans-add-delicious-protein-to-this-greek-salad.html
+
 **Trump’s Trade War Is Shaping the Fight for Congress**\
 `In Colorado and across the country, higher costs, tariffs and cheap beef imports are affecting voters who will help determine which party controls the House next year.`\
 https://www.nytimes.com/2026/09/07/us/trump-tariffs-iran-congress-colorado.html

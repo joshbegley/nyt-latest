@@ -1,3 +1,7 @@
+**Sardines and Beans Add Delicious Protein to This Greek Salad**\
+`It’s the perfect no-cook meal to beckon back-to-school season.`\
+https://www.nytimes.com/2026/09/07/dining/sardines-and-beans-add-delicious-protein-to-this-greek-salad.html
+
 **Trump’s Trade War Is Shaping the Fight for Congress**\
 `In Colorado and across the country, higher costs, tariffs and cheap beef imports are affecting voters who will help determine which party controls the House next year.`\
 https://www.nytimes.com/2026/09/07/us/trump-tariffs-iran-congress-colorado.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/07/nyregion/upper-east-side-corn-vandalism.html
 **How Bedouine’s Family Heirlooms Inspired an Album**\
 `The musician Bedouine was reluctant to inherit dozens of heirlooms. Then, they inspired an album.`\
 https://www.nytimes.com/2026/09/07/t-magazine/bedouine-family-heirlooms-collection.html
-
-**She Fell for New York the Second Time Around**\
-`A newcomer caught in the city during the pandemic fled as soon as her lease was up. But the city had a magnetism that pulled her back in.`\
-https://www.nytimes.com/2026/09/07/realestate/she-fell-for-new-york-the-second-time-around.html
 
