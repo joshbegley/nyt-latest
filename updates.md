@@ -1,3 +1,15 @@
+**Building Housing Students Collapses in New Delhi, Killing at Least 7**\
+`Rescue crews were working to find people trapped in the wreckage of the building, which collapsed on Sunday.`\
+https://www.nytimes.com/2026/09/07/world/asia/india-delhi-building-collapse-satya-niketan.html
+
+**They Went to Ukraine on the ‘Peace Express.’ Detours Are Likely Ahead.**\
+`The Trump administration had let the peace process enter such a freeze that a trip to Kyiv was just an initial step. Any new talks will happen alongside escalating fighting.`\
+https://www.nytimes.com/2026/09/07/world/europe/ukraine-russia-witkoff-kushner-trump.html
+
+**Happy Labor Day!**\
+`We’re loading up the grill.`\
+https://www.nytimes.com/2026/09/07/briefing/happy-labor-day.html
+
 **Israeli Strikes in Lebanon Kill 9 as Bombardment Intensifies**\
 `Israel has stepped up its attacks targeting Hezbollah after capturing a strategic ridge last week, spurring worries that it will prolong its occupation of Lebanese territory.`\
 https://www.nytimes.com/2026/09/07/world/middleeast/israel-lebanon-strikes-hezbollah.html

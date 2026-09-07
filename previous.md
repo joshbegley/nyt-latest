@@ -1,3 +1,15 @@
+**Building Housing Students Collapses in New Delhi, Killing at Least 7**\
+`Rescue crews were working to find people trapped in the wreckage of the building, which collapsed on Sunday.`\
+https://www.nytimes.com/2026/09/07/world/asia/india-delhi-building-collapse-satya-niketan.html
+
+**They Went to Ukraine on the ‘Peace Express.’ Detours Are Likely Ahead.**\
+`The Trump administration had let the peace process enter such a freeze that a trip to Kyiv was just an initial step. Any new talks will happen alongside escalating fighting.`\
+https://www.nytimes.com/2026/09/07/world/europe/ukraine-russia-witkoff-kushner-trump.html
+
+**Happy Labor Day!**\
+`We’re loading up the grill.`\
+https://www.nytimes.com/2026/09/07/briefing/happy-labor-day.html
+
 **Israeli Strikes in Lebanon Kill 9 as Bombardment Intensifies**\
 `Israel has stepped up its attacks targeting Hezbollah after capturing a strategic ridge last week, spurring worries that it will prolong its occupation of Lebanese territory.`\
 https://www.nytimes.com/2026/09/07/world/middleeast/israel-lebanon-strikes-hezbollah.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/09/07/arts/design/new-art-exhibitions-holland-cotte
 **25 Global Art Openings Worth Making an Excursion For**\
 `Our critic Jason Farago awaits Brancusi at MoMA, a K-pop icon’s collection in San Francisco, Sofia Coppola at the Château de Versailles — and new art centers in New York.`\
 https://www.nytimes.com/2026/09/07/arts/design/new-art-exhibitions-jason-farago.html
-
-**The Joyous Big Walk Emerged From Pandemic Lockdowns**\
-`The puzzle game Big Walk, by the Australian studio behind Untitled Goose Game, explores the ways we connect with one another.`\
-https://www.nytimes.com/2026/09/07/arts/big-walk-house-house.html
-
-**In San Francisco, the Artist Joset Medina’s Walls Have Boundary Issues**\
-`Joset Medina’s entire apartment is his canvas in the evolving project that he calls the “Unrestrained Garden.”`\
-https://www.nytimes.com/2026/09/07/arts/design/this-san-francisco-artists-walls-have-boundary-issues.html
-
-**A Japanese Polymath Transforms a Modernist Icon**\
-`Hiroshi Sugimoto’s redesign of the Hirshhorn Museum’s sculpture garden was a heavy lift that will finally see the light.`\
-https://www.nytimes.com/2026/09/07/garden/hirshhorn-museum-sculpture-garden-hiroshi-sugimoto.html
 
