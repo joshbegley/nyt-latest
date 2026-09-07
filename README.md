@@ -1,3 +1,11 @@
+**9/11 Shaped Their Lives, Even Though They’re Too Young to Remember It.**\
+`They have no memory of the buildings missing from the skyline or airports without security lines. But they have strong feelings about how to regard the legacy of the attacks.`\
+https://www.nytimes.com/2026/09/07/nyregion/born-after-9-11-young-adults.html
+
+**NYT Spelling Bee Answers September 7, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/09/07/crosswords/spelling-bee-forum.html
+
 **Why Labor’s Share of Wealth Is Shrinking**\
 `Workers’ share of our national income is declining rapidly but we’re not sure why.`\
 https://www.nytimes.com/2026/09/07/opinion/labor-capitol-workers-income.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/06/opinion/yayoi-kusama-art-tokyo.html
 **The One Thing That Could Make Tennis Even Better**\
 `Tennis is not a prissy sport. Nothing makes the drama of it more visible than a smashed racket.`\
 https://www.nytimes.com/2026/09/06/opinion/tennis-smashed-racket-us-open.html
-
-**Classical Music Is in Crisis. Gustavo Dudamel Is Here to Save It.**\
-`The charismatic conductor is taking on the New York Philharmonic and a challenge: making the art form feel relevant to more Americans.`\
-https://www.nytimes.com/2026/09/06/podcasts/the-daily/classical-music-is-in-crisis-gustavo-dudamel-is-here-to-save-it.html
-
-**NYT Connections Answers for September 7, 2026**\
-`Scroll down for hints and conversation about the puzzle for Monday, Sept. 7, 2026.`\
-https://www.nytimes.com/2026/09/06/crosswords/connections-companion-1184.html
 
