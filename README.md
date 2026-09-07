@@ -1,3 +1,7 @@
+**Trump pesa sobre los republicanos ante las elecciones intermedias**\
+`La estrategia, el mensaje y los gastos del presidente han dejado al Partido Republicano en una situación difícil mientras los legisladores intentan escapar de sus bajos índices de aprobación.`\
+https://www.nytimes.com/es/2026/09/07/espanol/estados-unidos/trump-elecciones-intermedias-republicanos.html
+
 **Containing Germany’s Far Right**\
 `The AfD victory in a state election is forcing a rethink of the country’s postwar strategy to safeguard democracy.`\
 https://www.nytimes.com/2026/09/07/world/germany-election-afd-indonesia-microplastics.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/07/opinion/roy-cooper-senate-carolina.html
 **How ‘Hypermilers’ Are Trying to Beat High Gas Prices**\
 `Gas prices have risen sharply since the start of the Iran war. Some drivers are using special techniques to maximize their miles per gallon and save at the pump.`\
 https://www.nytimes.com/2026/09/07/us/hypermile-car-gas-prices.html
-
-**Hollywood’s Box Office Boom Comes With 248 Million Missing Tickets**\
-`Strong box office sales this summer have Hollywood celebrating. But a closer look at the numbers offers a sobering reality check.`\
-https://www.nytimes.com/interactive/2026/09/07/business/media/summer-movies-box-office.html
 
