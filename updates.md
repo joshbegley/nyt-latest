@@ -1,3 +1,11 @@
+**Meta Introduces Muse, an A.I. Agent That Can Send Your Emails and Book Your Travel**\
+`Muse, Meta’s new A.I. agent, acts as a personal digital assistant that connects to Facebook and Instagram, as well as third-party apps such as Spotify and OpenTable.`\
+https://www.nytimes.com/2026/09/08/technology/meta-muse-ai-agent.html
+
+**Man Indicted on Hate Crime Charges in Attacks Near Manhattan Synagogues**\
+`Raul Morales stabbed two men on the Upper West Side in July while yelling “Allahu akbar,” prosecutors said. Both men survived.`\
+https://www.nytimes.com/2026/09/08/nyregion/nyc-central-park-stabbing-hate-crime.html
+
 **25 Years After 9/11, Life Has Proved Stronger Than Death**\
 `Memories of life in the shadow of ground zero.`\
 https://www.nytimes.com/2026/09/08/opinion/911-twin-towers-life-death.html
