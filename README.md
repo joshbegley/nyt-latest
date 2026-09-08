@@ -1,3 +1,11 @@
+**What Is Navier-Stokes?**\
+`OpenAI announced today that it had solved the problem, one of seven “Millennium Problems” seen as among the most important in higher mathematics.`\
+https://www.nytimes.com/2026/09/08/science/what-is-navier-stokes.html
+
+**OpenAI Says It Has Cracked One of Math’s ‘Millennium Problems’**\
+`The company’s announcement is the most dramatic sign yet that artificial intelligence is fundamentally transforming the field of higher mathematics.`\
+https://www.nytimes.com/2026/09/08/science/openai-proof-millennium-problem.html
+
 **Four-Hour Elon Musk Documentary by Alex Gibney Has Venice Premiere**\
 `Much of what Alex Gibney’s documentary presents isn’t new. But in piecing it all together, he wants the viewer to take Musk seriously as a threat to democracy.`\
 https://www.nytimes.com/2026/09/08/movies/elon-musk-film-alex-gibney-venice-film-festival.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/08/business/oil-prices-iran-war.html
 **Nothing Compares to Her: A Dance Love Letter to Sinead O’Connor**\
 `The choreographer Sonya Tayeh’s “The Surge” is a dance response to themes in O’Connor’s life: spirituality, identity and what Tayeh calls jrage, or joy and rage.`\
 https://www.nytimes.com/2026/09/08/arts/dance/sinead-oconnor-sonya-tayeh-the-surge-joyce-theater.html
-
-**‘Don’t Let Me Disappear’: The 100-Day Scramble to Free Lue Yang**\
-`Lue Yang, who was convicted in a home invasion as a teenager, was facing deportation to Laos. With a plane on the tarmac, he wondered whether an appeal would be heard.`\
-https://www.nytimes.com/2026/09/08/us/politics/hmong-refugee-deportation-michigan-laos.html
-
-**¿Por qué Trump pidió 300 millones de kilogramos de carne misteriosa?**\
-`Si los consumidores estadounidenses supieran de dónde viene esa carne, tal vez no querrían comerla.`\
-https://www.nytimes.com/es/2026/09/08/espanol/opinion/argentina-calidad-carne-trump.html
 
