@@ -1,3 +1,7 @@
+**Kevin Reacts to OpenAI’s Recent Cybersecurity Incident**\
+`Several weeks after OpenAI’s chatbots attacked the company Hugging Face, the “Hard Fork” co-hosts Kevin Roose and Casey Newton reflect on the incident and what it means for A.I. development more broadly.`\
+https://www.nytimes.com/video/podcasts/100000011140232/kevin-reacts-to-openais-recent-cybersecurity-incident.html
+
 **Before October 7 Attack, Netanyahu Was Warned, Report Says. He Denies It.**\
 `Prime Minister Benjamin Netanyahu’s office denied the report in Haaretz that the Emirati president had warned him Hamas was planning a major operation against Israel.`\
 https://www.nytimes.com/2026/09/08/world/middleeast/israel-netanyahu-2023-hamas-attack.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/08/us/politics/paxton-whistleblower-talarico-ad.
 **Canadá impone nuevos aranceles a productos de EE. UU.**\
 `Los aranceles son una represalia contra los recientes aranceles del presidente Trump, lo que genera preocupaciones sobre tensiones mayores.`\
 https://www.nytimes.com/es/2026/09/08/espanol/estados-unidos/canada-aranceles-trump.html
-
-**Which Senate Candidates Are Skipping Trump’s Republican Convention?**\
-`For G.O.P. candidates in the most competitive races, deciding whether to appear with President Trump can be tricky. Some are going, while others are staying away.`\
-https://www.nytimes.com/2026/09/08/us/politics/republican-senate-candidates-trump-convention.html
 
