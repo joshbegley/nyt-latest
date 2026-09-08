@@ -1,3 +1,11 @@
+**Supermarket Manager Rescues Toddler From Traffic**\
+`A supermarket in Puebla, Mexico, honored a manager for a dramatic, last-second rescue of a toddler running toward a busy road.`\
+https://www.nytimes.com/video/world/americas/100000011138476/supermarket-toddler-traffic-rescue-mexico.html
+
+**On This Day | Sept. 8**\
+`In 1974, President Gerald R. Ford granted former President Richard M. Nixon an unconditional pardon for any crimes he may have committed while in office.`\
+https://www.nytimes.com/2026/09/08/learning/on-this-day-sept-8.html
+
 **Corrections: Sept. 8, 2026**\
 `Corrections that appeared in print on Tuesday, Sept. 8, 2026.`\
 https://www.nytimes.com/2026/09/08/pageoneplus/corrections-sept-8-2026.html
@@ -18,7 +26,7 @@ https://www.nytimes.com/2026/09/08/business/dealbook/oil-inflation-markets.html
 `Track the latest polls in Georgia's 7th Congressional District.`\
 https://www.nytimes.com/interactive/polls/georgia-us-house-7-polls-2026.html
 
-**Canadian Jet Maker Is Target in Trump’s Trade War**\
+**Bombardier, a Canadian Jet Maker, Is One Target in Trump’s Trade War**\
 `Montreal-based Bombardier has been embroiled in U.S. trade disputes before. President Trump threatened to bar the company from selling in the United States.`\
 https://www.nytimes.com/2026/09/08/business/bombardier-trump-canada-us-sales-planes.html
 
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/09/08/crosswords/intergenerational-star-trek-fandom
 **We’ve Forgotten the Most Important Lessons of 9/11**\
 `The world has lost track of the truth about Al Qaeda.`\
 https://www.nytimes.com/2026/09/08/opinion/september-11-al-qaeda-attacks.html
-
-**Key App Developers Have Yet to Embrace Apple’s New Siri A.I.**\
-`For the company’s new artificial intelligence system to take off, it will need plenty of support from the makers of popular apps on Apple’s phones.`\
-https://www.nytimes.com/2026/09/08/technology/apple-siri-ai.html
-
-**Why Stocks Are Defying Gravity and What Could Bring Them Down**\
-`Investors are focused on strong corporate earnings and A.I., while looking past the war in Iran. But rising interest rates are an increasing risk to the rally.`\
-https://www.nytimes.com/2026/09/08/business/stock-market-interest-rates.html
 

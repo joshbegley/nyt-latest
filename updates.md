@@ -1,3 +1,15 @@
+**Supermarket Manager Rescues Toddler From Traffic**\
+`A supermarket in Puebla, Mexico, honored a manager for a dramatic, last-second rescue of a toddler running toward a busy road.`\
+https://www.nytimes.com/video/world/americas/100000011138476/supermarket-toddler-traffic-rescue-mexico.html
+
+**On This Day | Sept. 8**\
+`In 1974, President Gerald R. Ford granted former President Richard M. Nixon an unconditional pardon for any crimes he may have committed while in office.`\
+https://www.nytimes.com/2026/09/08/learning/on-this-day-sept-8.html
+
+**Bombardier, a Canadian Jet Maker, Is One Target in Trump’s Trade War**\
+`Montreal-based Bombardier has been embroiled in U.S. trade disputes before. President Trump threatened to bar the company from selling in the United States.`\
+https://www.nytimes.com/2026/09/08/business/bombardier-trump-canada-us-sales-planes.html
+
 **Corrections: Sept. 8, 2026**\
 `Corrections that appeared in print on Tuesday, Sept. 8, 2026.`\
 https://www.nytimes.com/2026/09/08/pageoneplus/corrections-sept-8-2026.html
