@@ -1,3 +1,11 @@
+**Smithsonian Leader Is Resigning After Clashes With Trump**\
+`Also, OpenAI says it solved one of math’s “Millennium Problems.” Here’s the latest at the end of Tuesday.`\
+https://www.nytimes.com/2026/09/08/briefing/smithsonian-leader-resign-openai-math-problem.html
+
+**2 Women Who Killed Transgender Man Are Sentenced to Life in Prison**\
+`The women had pleaded guilty to all charges in connection with the death of Sam Nordquist, 24, who was held hostage in a motel for weeks and tortured.`\
+https://www.nytimes.com/2026/09/08/nyregion/sam-nordquist-transgender-man-murder-life-prison-sentencing.html
+
 **Musk Targets Transgender Issues in Key Midterm Senate Races**\
 `A political group for the world’s richest man, who is ramping up a midterm spending blitz, began running attack ads against Democrats in Texas, Ohio and Iowa.`\
 https://www.nytimes.com/2026/09/08/us/politics/elon-musk-transgender-midterms-democrats.html
@@ -5,10 +13,6 @@ https://www.nytimes.com/2026/09/08/us/politics/elon-musk-transgender-midterms-de
 **Justice Kavanaugh Blocks Missouri Voting Map Benefiting Republicans**\
 `Missouri’s Supreme Court blocked election officials from using a new congressional map, saying voters must first approve the district lines in a statewide referendum.`\
 https://www.nytimes.com/2026/09/08/us/politics/supreme-court-missouri-congressional-map.html
-
-**Smithsonian Leader Is Resigning After Clashes With Trump**\
-`Also, OpenAI says it solved one of math’s “Millennium Problems.” Here’s the latest at the end of Tuesday.`\
-https://www.nytimes.com/2026/09/08/briefing/smithsonian-leader-resign-openai-math-problem.html
 
 **Trump Claims He Visited Ground Zero ‘Right After’ 9/11**\
 `During an event honoring victims who died on Sept. 11, 2001, President Trump tried to position himself close to the recovery efforts shortly after the attack. But first responders who were at ground zero and a biographer dispute his claims.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/08/world/canada/carney-tariffs-trade.html
 **Trump’s Mail Voting Plan Is Coming to a Head. Here’s What to Know.**\
 `The administration’s plan to screen mail-in ballots remains blocked as the Supreme Court considers challenges to new U.S. Postal Service ballot rules.`\
 https://www.nytimes.com/2026/09/08/us/politics/trump-mail-voting-what-to-know-supreme-court.html
-
-**This Electronic Musician Believes It’s Not a Meal Without Potatoes**\
-`“A really good, creative, interesting potato gets my heart thumping” says the New York-based artist Eartheater.`\
-https://www.nytimes.com/2026/09/08/dining/musician-eartheater.html
 
