@@ -1,3 +1,11 @@
+**Trump Administration Asks Supreme Court to Allow Voter-Screening Tool**\
+`Voting rights organizations had challenged a Trump administration overhaul of a government database, arguing it could be used to disenfranchise eligible voters.`\
+https://www.nytimes.com/2026/09/08/us/politics/trump-supreme-court-dhs-citizenship.html
+
+**TSA PreCheck Now Unlocks Access to Visit Airports Without a Plane Ticket**\
+`At more than a dozen U.S. airports, T.S.A. PreCheck members can now apply to enter the secure area, even if they’re just going to meet someone on a flight.`\
+https://www.nytimes.com/2026/09/08/travel/tsa-precheck-airports-security-non-flyers.html
+
 **T.S.A. Opens Door for Some to Meet Mom at the Airport Gate**\
 `At more than a dozen U.S. airports, T.S.A. PreCheck members can now apply to enter the secure area, even if they’re just going to meet someone on a flight.`\
 https://www.nytimes.com/2026/09/08/travel/tsa-precheck-airports-security-non-flyers.html

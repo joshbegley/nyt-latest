@@ -1,3 +1,7 @@
+**Thousands in Michigan Got a Driver’s License With Someone Else’s Face on It**\
+`About 8,200 people who applied for an enhanced driver’s license received cards in the mail with a stock image of a smiling man in the lower-right-hand corner.`\
+https://www.nytimes.com/2026/09/08/us/michigan-enhanced-ids-misprints.html
+
 **Trump Administration Asks Supreme Court to Allow Voter-Screening Tool**\
 `Voting rights organizations had challenged a Trump administration overhaul of a government database, arguing it could be used to disenfranchise eligible voters.`\
 https://www.nytimes.com/2026/09/08/us/politics/trump-supreme-court-dhs-citizenship.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/08/theater/small-mouth-sounds-downstate-broadway
 **Who Is Ahead in the Lexington, Ky., Mayor Race? Latest 2026 Polls**\
 `Track the latest polls in the Lexington, Ky., mayoral election.`\
 https://www.nytimes.com/interactive/polls/lexington-kentucky-mayor-election-polls-2026.html
-
-**Supermarket Manager Rescues Toddler From Traffic**\
-`A supermarket in Puebla, Mexico, honored a manager for a dramatic, last-second rescue of a toddler running toward a busy road.`\
-https://www.nytimes.com/video/world/americas/100000011138476/supermarket-toddler-traffic-rescue-mexico.html
 
