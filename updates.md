@@ -1,3 +1,19 @@
+**After Causing Delays for 9/11 Health Claims, Social Security Pledges to Do Its Job**\
+`Lawyers say the Social Security Administration has for months not provided basic data to complete compensation claims for those sick and dying after exposure to debris from the Sept. 11 attacks.`\
+https://www.nytimes.com/2026/09/08/us/politics/9-11-fund-health-claims-social-security.html
+
+**El choque aéreo en Miami y las zonas de amortiguación en las pistas**\
+`Una tecnología que utiliza concreto triturable ha sido reconocida por salvar la vida de casi 500 pasajeros al ayudar a detener aviones que se salieron de la pista al aterrizar.`\
+https://www.nytimes.com/es/2026/09/08/espanol/estados-unidos/avion-amazon-miami.html
+
+**Influencers Didn’t Ruin the U.S. Open. They Just Made It More Boring.**\
+`Plus: a red carpet winner, and your thoughts on who counts as a fashion genius.`\
+https://www.nytimes.com/2026/09/08/style/us-open-tennis-influencers-style.html
+
+**Trump Media Launches MAGA-Friendly Truth Social ETFs**\
+`The seven exchange-traded funds, like the God Bless America fund, are investing in companies aligned with President Trump’s worldview.`\
+https://www.nytimes.com/2026/09/08/business/trump-media-truth-social-etf.html
+
 **Pritzker, Eyeing 2028, to Help Midterm Democrats With a $20 Million Group**\
 `JB Pritzker, the billionaire governor of Illinois, is continuing to expand his national footprint, this time by using a new group to target Republicans in battleground races.`\
 https://www.nytimes.com/2026/09/08/us/politics/jb-pritzker-2028-brandon-herrera-max-miller.html

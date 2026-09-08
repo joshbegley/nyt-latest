@@ -1,8 +1,16 @@
+**After Causing Delays for 9/11 Health Claims, Social Security Pledges to Do Its Job**\
+`Lawyers say the Social Security Administration has for months not provided basic data to complete compensation claims for those sick and dying after exposure to debris from the Sept. 11 attacks.`\
+https://www.nytimes.com/2026/09/08/us/politics/9-11-fund-health-claims-social-security.html
+
+**El choque aéreo en Miami y las zonas de amortiguación en las pistas**\
+`Una tecnología que utiliza concreto triturable ha sido reconocida por salvar la vida de casi 500 pasajeros al ayudar a detener aviones que se salieron de la pista al aterrizar.`\
+https://www.nytimes.com/es/2026/09/08/espanol/estados-unidos/avion-amazon-miami.html
+
 **Pritzker, Eyeing 2028, to Help Midterm Democrats With a $20 Million Group**\
 `JB Pritzker, the billionaire governor of Illinois, is continuing to expand his national footprint, this time by using a new group to target Republicans in battleground races.`\
 https://www.nytimes.com/2026/09/08/us/politics/jb-pritzker-2028-brandon-herrera-max-miller.html
 
-**Influencers Didn’t Ruin the U.S. Open. They Just Made it More Boring**\
+**Influencers Didn’t Ruin the U.S. Open. They Just Made It More Boring.**\
 `Plus: a red carpet winner, and your thoughts on who counts as a fashion genius.`\
 https://www.nytimes.com/2026/09/08/style/us-open-tennis-influencers-style.html
 
@@ -22,7 +30,7 @@ https://www.nytimes.com/2026/09/08/science/openai-proof-millennium-problem.html
 `Much of what Alex Gibney’s documentary presents isn’t new. But in piecing it all together, he wants the viewer to take Musk seriously as a threat to democracy.`\
 https://www.nytimes.com/2026/09/08/movies/elon-musk-film-alex-gibney-venice-film-festival.html
 
-**Trump Media Launches MAGA-Friendly Investment Funds**\
+**Trump Media Launches MAGA-Friendly Truth Social ETFs**\
 `The seven exchange-traded funds, like the God Bless America fund, are investing in companies aligned with President Trump’s worldview.`\
 https://www.nytimes.com/2026/09/08/business/trump-media-truth-social-etf.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/interactive/polls/georgia-us-house-7-polls-2026.html
 **Bombardier, a Canadian Jet Maker, Is One Target in Trump’s Trade War**\
 `The Montreal-based company’s share price dropped after President Trump threatened to bar it from selling in the United States.`\
 https://www.nytimes.com/2026/09/08/business/bombardier-trump-canada-us-sales-planes.html
-
-**¿Se puede contener a la extrema derecha alemana?**\
-`La victoria del AfD en unas elecciones estatales está obligando a repensar la estrategia de posguerra del país para salvaguardar la democracia.`\
-https://www.nytimes.com/es/2026/09/08/espanol/mundo/alemania-elecciones-derecha-afd.html
-
-**Do You Know These Classic Novels and Their Modern Film Versions?**\
-`Did you skip the book and watch the movie instead? Test your memory of both with this short quiz.`\
-https://www.nytimes.com/quiz/2026/09/08/bookreview/classic-book-adaptations.html
 
