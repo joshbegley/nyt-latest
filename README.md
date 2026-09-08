@@ -1,3 +1,7 @@
+**Amazon Plane Crash Starts Debate About Requiring a Buffer for Runways**\
+`A technology involving crushable concrete has been credited with saving nearly 500 passenger lives by helping halt planes that overshot their landings.`\
+https://www.nytimes.com/2026/09/07/us/miami-crash-emas-buffer-runways.html
+
 **Officials Continue Investigation Into Fatal Miami Plane Crash**\
 `Officials provided updates on Sunday’s Amazon cargo plane crash at Miami International airport. The plane crashed into vehicles, killing five people and injuring five others, officials said.`\
 https://www.nytimes.com/video/us/100000011137674/miami-plane-crash-update.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/09/07/espanol/america-latina/peru-china-economia
 **Para que Gaza se recupere, hay que expulsar a Hamás**\
 `Si los aliados occidentales de los palestinos quieren ayudar a Gaza, deben denunciar a Hamás.`\
 https://www.nytimes.com/es/2026/09/07/espanol/opinion/gaza-hamas-palestinos.html
-
-**Gloria Steinem Knew How to Live**\
-`I miss her already.`\
-https://www.nytimes.com/2026/09/07/opinion/gloria-steinem-aging-feminism.html
 
