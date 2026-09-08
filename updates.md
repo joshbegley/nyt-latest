@@ -1,3 +1,7 @@
+**Is Russia Losing the War in Ukraine? No.**\
+`After more than 50 months of this war, the next few could be decisive.`\
+https://www.nytimes.com/2026/09/08/opinion/ukraine-war-defenses-putin.html
+
 **French A.I. Start-Up Mistral Raises $3.5 Billion as Part of Strategy Shift**\
 `Mistral is trying to keep pace with American and Chinese rivals while offering customers a European alternative for artificial intelligence.`\
 https://www.nytimes.com/2026/09/08/business/mistral-ai-fund-raising.html
