@@ -1,3 +1,7 @@
+**Democracy Is on the Ballot in Both America’s and Israel’s Elections**\
+`Israel and the United States each hold elections one week apart in the fall. The fate of their democracies lies in the balance.`\
+https://www.nytimes.com/2026/09/08/opinion/israel-us-elections-midterms-netanyahu-trump.html
+
 **‘I’m Here Looking for My Mam-daddy’**\
 `Inside a singles mixer for the New York City chapter of the Democratic Socialists of America, where its sweaty members were looking for love. If only they could hear one another.`\
 https://www.nytimes.com/2026/09/08/style/dsa-nyc-socialist-singles-mixer.html
@@ -86,7 +90,7 @@ https://www.nytimes.com/2026/09/08/us/american-bar-association-dei-standards-end
 `Mayor Zohran Mamdani said city leaders “lied” about the air quality being safe around the World Trade Center site after the Sept. 11 attacks.`\
 https://www.nytimes.com/video/us/100000011138639/mamdani-911-attack-air-quality-nyc.html
 
-**At 9/11 Tribute, Trump Claims Firefighters Carried Him to Safety**\
+**At 9/11 Tribute, Trump Adds New Claim To His Disputed Role After Attack**\
 `President Trump has long sought to position himself close to the Sept. 11 recovery effort and has made a series of questionable and provocative statements to burnish his political brand.`\
 https://www.nytimes.com/2026/09/08/us/politics/trump-sept-11-firefighters.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/08/science/what-is-navier-stokes.html
 **OpenAI Says It Has Cracked One of Math’s ‘Millennium Problems’**\
 `The company’s announcement is the most dramatic sign yet that artificial intelligence is fundamentally transforming the field of higher mathematics.`\
 https://www.nytimes.com/2026/09/08/science/openai-proof-millennium-problem.html
-
-**Four-Hour Elon Musk Documentary by Alex Gibney Has Venice Premiere**\
-`Much of what Alex Gibney’s documentary presents isn’t new. But in piecing it all together, he wants the viewer to take Musk seriously as a threat to democracy.`\
-https://www.nytimes.com/2026/09/08/movies/elon-musk-film-alex-gibney-venice-film-festival.html
 

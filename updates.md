@@ -1,3 +1,7 @@
+**‘I’m Here Looking for My Mam-daddy’**\
+`Inside a singles mixer for the New York City chapter of the Democratic Socialists of America, where its sweaty members were looking for love. If only they could hear one another.`\
+https://www.nytimes.com/2026/09/08/style/dsa-nyc-socialist-singles-mixer.html
+
 **Jon Small, Director and Early Billy Joel Collaborator, Dies at 79**\
 `They were in two bands together before Mr. Joel became famous, and briefly fell out over Mr. Joel’s affair with Mr. Small’s wife. Mr. Small later found success as a director of music videos and concert films.`\
 https://www.nytimes.com/2026/09/08/arts/music/jon-small-dead.html
