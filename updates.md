@@ -1,3 +1,11 @@
+**Venezuela no ha sido salvada, ha sido vendida**\
+`Un proceso opaco de privatización petrolera no facilitará la transición democrática en el país sudamericano. La hará aún más difícil.`\
+https://www.nytimes.com/es/2026/09/08/espanol/opinion/venezuela-petroleo-trump-democracia.html
+
+**The 25th Anniversary of 9/11**\
+`What do you know about what happened that day? What can reading first-person accounts by young people at the time help you understand?`\
+https://www.nytimes.com/2026/09/08/learning/lesson-plans/the-25th-anniversary-of-9-11.html
+
 **U.S. Reading Scores Plummet on Global Exam**\
 `Students in Singapore and parts of China had the highest scores on the test known as PISA. Scores for American students were near a 25-year low.`\
 https://www.nytimes.com/2026/09/08/us/us-reading-test-scores-pisa.html
