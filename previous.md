@@ -1,3 +1,7 @@
+**Latest Polls on Missouri Amendment 3 to Prohibit Abortion and Gender Transition for Minors**\
+`Track the latest polls on Missouri's Amendment 3 which would prohibit abortion and gender transition for minors.`\
+https://www.nytimes.com/interactive/polls/missouri-amendment-3-abortion-gender-transition-polls-2026.html
+
 **Lindsay Clancy’s Ex-Husband Complains of ‘Relentless’ Harassment**\
 `Patrick Clancy’s lawyer said that he would seek help from the authorities in response to conspiracy theorists who have accused him killing his children and framing Ms. Clancy.`\
 https://www.nytimes.com/2026/09/08/us/patrick-clancy-harrassment-legal-action.html
@@ -99,7 +103,7 @@ https://www.nytimes.com/2026/09/08/briefing/us-canada-trade-war.html
 https://www.nytimes.com/2026/09/08/world/europe/paris-eiffel-tower-closed-strike-hindu-temple.html
 
 **UK Imposes Sanctions on Israeli Settlements in West Bank, Accuses Settlers of Ethnic Cleansing**\
-`The U.K. said Israel had “turned a blind eye” to violence against  Palestinians by extremist settlers, as it and other countries announced a ban on trade with illegal settlements.`\
+`The U.K. said Israel had “turned a blind eye” to violence against Palestinians by extremist settlers, as it and other countries announced a ban on trade with illegal settlements.`\
 https://www.nytimes.com/2026/09/08/world/europe/uk-sanctions-israel-west-bank-settlements.html
 
 **Why the Pentagon Is Doing Polygraphs, and Officials Prepare to Release Huge Set of 9/11 Documents**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/08/us/abdul-el-sayed-michigan-jews.html
 **How to Finally Find a Bra You Won’t Hate**\
 `Our expert explains what to look for and which bras are worth buying.`\
 https://www.nytimes.com/2026/09/08/podcasts/how-to-finally-find-a-bra-you-wont-hate.html
-
-**Lil Durk’s Murder-for-Hire Trial: What to Know**\
-`The Chicago rapper pleaded not guilty to five counts including stalking and plotting what prosecutors say was a revenge killing.`\
-https://www.nytimes.com/2026/09/08/arts/music/lil-durk-trial.html
 

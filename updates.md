@@ -1,3 +1,11 @@
+**Latest Polls on Missouri Amendment 3 to Prohibit Abortion and Gender Transition for Minors**\
+`Track the latest polls on Missouri's Amendment 3 which would prohibit abortion and gender transition for minors.`\
+https://www.nytimes.com/interactive/polls/missouri-amendment-3-abortion-gender-transition-polls-2026.html
+
+**UK Imposes Sanctions on Israeli Settlements in West Bank, Accuses Settlers of Ethnic Cleansing**\
+`The U.K. said Israel had “turned a blind eye” to violence against Palestinians by extremist settlers, as it and other countries announced a ban on trade with illegal settlements.`\
+https://www.nytimes.com/2026/09/08/world/europe/uk-sanctions-israel-west-bank-settlements.html
+
 **Lindsay Clancy’s Ex-Husband Complains of ‘Relentless’ Harassment**\
 `Patrick Clancy’s lawyer said that he would seek help from the authorities in response to conspiracy theorists who have accused him killing his children and framing Ms. Clancy.`\
 https://www.nytimes.com/2026/09/08/us/patrick-clancy-harrassment-legal-action.html
