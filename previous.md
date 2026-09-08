@@ -1,3 +1,159 @@
+**Cómo saber si tienes deficiencia de hierro**\
+`Es la carencia nutricional número uno a nivel mundial, y también una de las que más se pasan por alto. Esto hay que saber sobre el diagnóstico.`\
+https://www.nytimes.com/es/2026/09/08/espanol/hierro-deficiencia-cansancio-ojeras.html
+
+**Are Dashcam Videos Catching Bad Guys or Creating More Influencers?**\
+`Dash cams were made for safety — but they’ve inadvertently created a whole new entertainment genre.`\
+https://www.nytimes.com/2026/09/08/magazine/dash-cam-surveillance-videos.html
+
+**Russia Bombards Kyiv Soon After Witkoff, Kushner Leave**\
+`Russia agreed not to bomb Ukraine’s capital during Steve Witkoff and Jared Kushner’s visit there. The respite was short-lived.`\
+https://www.nytimes.com/2026/09/08/world/europe/russia-ukraine-kyiv-attacks.html
+
+**Apple to Make First Big Change to iPhones in Years**\
+`Fans of the company’s products widely believe it will unveil a folding smartphone at its annual launch event on Wednesday.`\
+https://www.nytimes.com/2026/09/08/technology/apple-iphone-event.html
+
+**A.I. Models Built a Computer Worm That Could Rapidly Hack WeChat Accounts**\
+`The attack, discovered by A.I. researchers, could have compromised hundreds of millions of devices within hours, experts said.`\
+https://www.nytimes.com/2026/09/08/us/politics/calif-ai-worm-wechat-hack.html
+
+**Can William Lawrence, a Progressive, Flip a Key Michigan House Seat?**\
+`William Lawrence, a progressive challenging a first-term Republican, is trying to rewrite the playbook for Democrats running in swing districts.`\
+https://www.nytimes.com/2026/09/08/us/politics/lawrence-barrett-michigan-house-seat.html
+
+**The Democratic Party Is Afraid of Its Own Voters**\
+`Less than two years after a catastrophic election, the Democratic brand remains unpopular, and the party is still in the grip of a divisive identity crisis.`\
+https://www.nytimes.com/2026/09/08/opinion/democrats-midterms.html
+
+**A.I. Listings Are So Widespread Even Zillow Is Concerned**\
+`Listing sites are littered with homes with fake fireplaces, improved views and virtual landscaping, raising false advertising concerns.`\
+https://www.nytimes.com/2026/09/08/realestate/ai-real-estate-listings-legislation.html
+
+**Hay algo mejor que la felicidad**\
+`No deberíamos quedarnos demasiado tiempo en nuestro lugar feliz.`\
+https://www.nytimes.com/es/2026/09/08/espanol/opinion/felicidad-que-es.html
+
+**Near the Border, Americans Fear Losing Ties With Canadians**\
+`Americans in border regions have had symbiotic relationships with Canadians, but the trade war is testing their bonds.`\
+https://www.nytimes.com/2026/09/08/us/canada-tariffs-us-relationship.html
+
+**Rubio to Push Colombia’s New Leader to Tackle Cocaine Trade**\
+`Targeting traffickers will be at the top of the agenda as Secretary of State Marco Rubio visits Colombia, according to people familiar with his plans.`\
+https://www.nytimes.com/2026/09/08/world/americas/rubio-colombia-cocaine.html
+
+**No Luxury Spared: New High-End Cruise Ships Set Sail**\
+`The latest batch of yacht-like vessels sailing in Europe, the Caribbean and beyond offer personalized experiences, great food and spacious suites.`\
+https://www.nytimes.com/2026/09/08/travel/new-luxury-cruise-ships.html
+
+**Michigan Rabbis Press El-Sayed to Change Tone and Stance on Israel**\
+`A coalition of Jewish leaders is launching a petition drive aimed at the Democratic Senate nominee, a fresh indicator of frictions in a key battleground.`\
+https://www.nytimes.com/2026/09/08/us/abdul-el-sayed-michigan-jews.html
+
+**How to Finally Find a Bra You Won’t Hate**\
+`Our expert explains what to look for and which bras are worth buying.`\
+https://www.nytimes.com/2026/09/08/podcasts/how-to-finally-find-a-bra-you-wont-hate.html
+
+**Lil Durk’s Murder-for-Hire Trial: What to Know**\
+`The Chicago rapper pleaded not guilty to five counts including stalking and plotting what prosecutors say was a revenge killing.`\
+https://www.nytimes.com/2026/09/08/arts/music/lil-durks-murder-for-hire-trial-what-to-know.html
+
+**What to Watch in Tuesday’s New Hampshire Primary Elections**\
+`Voters will nominate candidates for one of the most high-stakes Senate races in the country. And a Democratic House primary has emerged as a test of the party’s establishment.`\
+https://www.nytimes.com/2026/09/08/us/politics/new-hampshire-primaries-what-to-watch.html
+
+**A Place Where Memories of the 9/11 Victims Have Faded Away**\
+`Relatives who traveled to the U.S. Navy base in Guantánamo Bay left memory stones and messages for those killed in the attacks 25 years ago.`\
+https://www.nytimes.com/2026/09/08/us/politics/sept11-victims-memorial.html
+
+**‘Star Trek’’s Intergenerational Fan Base Shares More Than Just Quotes**\
+`After 60 years, the series gives families a chance to pass down not only shared language but values, too.`\
+https://www.nytimes.com/2026/09/08/crosswords/intergenerational-star-trek-fandom.html
+
+**We’ve Forgotten the Most Important Lessons of 9/11**\
+`The world has lost track of the truth about Al Qaeda.`\
+https://www.nytimes.com/2026/09/08/opinion/september-11-al-qaeda-attacks.html
+
+**Key App Developers Have Yet to Embrace Apple’s New Siri A.I.**\
+`For the company’s new artificial intelligence system to take off, it will need plenty of support from the makers of popular apps on Apple’s phones.`\
+https://www.nytimes.com/2026/09/08/technology/apple-siri-ai.html
+
+**Why Stocks Are Defying Gravity and What Could Bring Them Down**\
+`Investors are focused on strong corporate earnings and A.I., while looking past the war in Iran. But rising interest rates are an increasing risk to the rally.`\
+https://www.nytimes.com/2026/09/08/business/stock-market-interest-rates.html
+
+**Restaurant Review: Somssi in New York**\
+`Somssi in Greenwich Village, from the owners of Atomix, offers a freewheeling global menu with minimum polish or pretense.`\
+https://www.nytimes.com/2026/09/08/dining/restaurant-review-somssi-nyc.html
+
+**What ‘Hyperpolitics’ Explains About This Era**\
+`The political historian Anton Jäger on his theory of “hyperpolitics.”`\
+https://www.nytimes.com/2026/09/08/opinion/ezra-klein-podcast-anton-jager.html
+
+**How Was Your Summer?**\
+`What were the highs and lows of the season for you?`\
+https://www.nytimes.com/2026/09/08/learning/how-was-your-summer.html
+
+**Roger Marshall Sued 700 Patients for Debts; 81 Were Arrested. Now He’s a Senator.**\
+`Patients sued by Senator Roger Marshall of Kansas were routinely charged 18 percent interest, The Times found. Some had bank accounts garnished.`\
+https://www.nytimes.com/2026/09/08/us/politics/roger-marshall-obgyn-doctor-debts.html
+
+**How Madison Humphrey Makes Her Elaborate Wedding Parodies**\
+`Madison Humphrey, a TikTok creator known for her elaborate parody videos, is ready to take over a McDonald’s or find Jet Skis at a moment’s notice.`\
+https://www.nytimes.com/2026/09/08/style/madison-humphrey-tiktok-mcdonalds.html
+
+**A Newer Kind of Gene Editing Promises to Edit ‘Nurture’ Over ‘Nature’**\
+`Traditional gene editing rewrites DNA. But a new approach, called epigenome editing, aims to treat the molecular scars we collect throughout our lives.`\
+https://www.nytimes.com/2026/09/08/science/epigenetic-editing.html
+
+**The Absurd, Unending Quest to Floodproof the New York City Subway**\
+`In an era of heavy rain, a transit system with 47,000 openings is bound to leak.`\
+https://www.nytimes.com/2026/09/08/magazine/new-york-city-subway-mta-flooding.html
+
+**Word of the Day: tertiary**\
+`This word has appeared in 10 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/09/08/learning/word-of-the-day-tertiary.html
+
+**Book Review: ‘The Pirate Queen,’ by Ariel Lawhon**\
+`In a new novel, the author Ariel Lawhon revives a 16th-century sea captain previously pushed to the margins.`\
+https://www.nytimes.com/2026/09/08/books/review/the-pirate-queen-ariel-lawhon.html
+
+**Book Review: ‘Money to Burn,’ by William D. Cohan**\
+`In “Money to Burn,” William D. Cohan charts the rise and fall of the Wall Street billionaire Leon Black.`\
+https://www.nytimes.com/2026/09/08/books/review/money-to-burn-william-d-cohan.html
+
+**Emily St. John Mandel’s Latest Protagonist Has Haunted Eyes and a Strong Jaw**\
+`The author describes the main character of her new novel, “Exit Party,” to a forensic sketch artist.`\
+https://www.nytimes.com/2026/09/08/t-magazine/emily-st-john-mandel-exit-party-sketch.html
+
+**The Rip-Off Concert Tickets That Were Somehow Worth It**\
+`This summer, I discovered how experiencing joy as a group makes life so much better.`\
+https://www.nytimes.com/2026/09/08/opinion/concert-tickets-noah-kahan.html
+
+**How Safe Are Tattoos?**\
+`We asked experts about the risks.`\
+https://www.nytimes.com/2026/09/08/well/tattoo-aftercare-cancer-risk-safety-advice.html
+
+**How the World’s Longest-Running Musical Finally Made It to Broadway**\
+`“The Fantasticks” ran for decades in Greenwich Village. Now, in time for its Broadway debut, it gets a gender makeover.`\
+https://www.nytimes.com/2026/09/08/theater/fantasticks-broadway-longest-running-musical.html
+
+**‘Yellowface’ Author R.F. Kuang’s 5 Favorite Places in Taipei**\
+`The experiences Ms. Kuang had during a summer spent studying Mandarin in the Taiwanese capital helped her shape her newest novel, “Taipei Story.”`\
+https://www.nytimes.com/2026/09/08/travel/rf-kuang-taipei-things-to-do.html
+
+**In Cabo San Lucas, a Desert Oasis Gets a Refresh Decades Later**\
+`How Margie Ruddick reimagined the garden she designed for a ‘martini modern’ house in Cabo San Lucas.`\
+https://www.nytimes.com/2026/09/08/garden/cabo-san-lucas-garden-margie-ruddick.html
+
+**The 25 Most Influential Fashion Photographs**\
+`Two photographers, a fashion designer, a stylist, a creative director, an editor and a supermodel debate the images that have had an indelible impact on how we dress.`\
+https://www.nytimes.com/2026/09/08/t-magazine/top-fashion-photographs.html
+
+**In Corsica, Separatists Bomb Vacation Homes to Send a Message**\
+`A majority of Corsicans support more autonomy from France. Some are going to extremes to make it known.`\
+https://www.nytimes.com/2026/09/08/realestate/corsica-separatists-vacation-home-bombings.html
+
 **Sinead O’Connor and Oscar Wilde Ballets and More Dance This Fall**\
 `Also this season, the return of Balanchine’s “Pithoprakta” at New York City Ballet, a choreographer guides audiences on a nature hike, and reflections on this American moment.`\
 https://www.nytimes.com/2026/09/08/arts/dance/fall-dance-performances-festivals.html
@@ -37,164 +193,4 @@ https://www.nytimes.com/video/opinion/100000011126417/what-hyperpolitics-explain
 **US Open Day 9: Comeback Queen**\
 `Olympic Gold medalist Qinwen Zheng won a set from 0-5 down for a second match in a row to knock out Iga Swiatek.`\
 https://www.nytimes.com/2026/09/08/podcasts/us-open-zheng-tennis.html
-
-**Chinese Ship Takes Arctic Shortcut: Smart Business? Or a Political Flex?**\
-`Melting ice is opening a trade route through the Arctic. China has begun the first regular service, part of its polar ambitions.`\
-https://www.nytimes.com/2026/09/08/world/europe/china-arctic-shipping-trade-route.html
-
-**Thieves Steal Three Artworks From Renoir Museum in France**\
-`Almost a year after the brazen Louvre heist, thieves targeted a Renoir museum that was formerly his last home in the south of France.`\
-https://www.nytimes.com/2026/09/08/arts/renoir-museum-artworks-theft-france.html
-
-**China’s Surging Exports Loom Over Trump’s Talks With Xi**\
-`China’s exports grew by a quarter in the month of August, weeks before its leader, Xi Jinping, is set to meet with President Trump in Washington.`\
-https://www.nytimes.com/2026/09/08/business/china-exports-xi-trump-talks.html
-
-**Venezuela no ha sido salvada, ha sido vendida**\
-`Un proceso opaco de privatización petrolera no facilitará la transición democrática en el país sudamericano. La hará aún más difícil.`\
-https://www.nytimes.com/es/2026/09/08/espanol/opinion/venezuela-petroleo-trump-democracia.html
-
-**The 25th Anniversary of 9/11**\
-`What do you know about what happened that day? What can reading first-person accounts by young people at the time help you understand?`\
-https://www.nytimes.com/2026/09/08/learning/lesson-plans/the-25th-anniversary-of-9-11.html
-
-**U.S. Reading Scores Plummet on Global Exam**\
-`Students in Singapore and parts of China had the highest scores on the test known as PISA. Scores for American students were near a 25-year low.`\
-https://www.nytimes.com/2026/09/08/us/us-reading-test-scores-pisa.html
-
-**A los 92 años, una matemática encontró una aprendiz y un problema por resolver**\
-`Joan Birman pensaba que sus grandes descubrimientos eran cosa del pasado. Un correo inesperado inició una colaboración que produjo uno de los resultados más importantes de su carrera.`\
-https://www.nytimes.com/es/2026/09/08/espanol/ciencia-y-tecnologia/problema-matematico-sin-resolver.html
-
-**Mientras la guerra se estanca, Trump construye en Washington**\
-`El presidente saborea el impulso de las diversas obras que ha promovido en el centro de Washington.`\
-https://www.nytimes.com/es/2026/09/08/espanol/estados-unidos/trump-aprobacion-guerras-casa-blanca.html
-
-**To Avoid Waste, This Food Pantry Recast Itself to Look Like Trader Joe’s**\
-`As more people turn to food pantries amid rising grocery costs and benefits cuts, social service organizations are exploring new ways to meet their needs.`\
-https://www.nytimes.com/2026/09/08/nyregion/newark-food-pantry.html
-
-**NYT Spelling Bee Answers for September 8, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/09/08/crosswords/spelling-bee-forum.html
-
-**9/11’s Dust and Ash Coated Their Childhood. Is It Still Making Them Ill?**\
-`Much of the research on exposure to the World Trade Center residue has focused on emergency workers, but people there when they were young say their health is at risk, too.`\
-https://www.nytimes.com/2026/09/08/nyregion/9-11-children-health.html
-
-**Don’t Have an Official N.Y.C. Trash Bin? Now It’ll Cost You.**\
-`Residential buildings with fewer than 10 units are required to put out their trash in official “NYC Bins” as part of the city’s efforts to deter rats. Owners who don’t comply will be fined.`\
-https://www.nytimes.com/2026/09/08/nyregion/nyc-trash-bins-fines.html
-
-**Houthi Strikes on Southern Saudi Arabia Injure Dozens, Saudi Officials Say**\
-`The Houthi-run news agency in Yemen said the militia would issue a statement about a “large-scale” military operation in Saudi Arabia.`\
-https://www.nytimes.com/2026/09/08/world/middleeast/saudi-arabia-yemen-energy-attack.html
-
-**French A.I. Start-Up Mistral Raises $3.5 Billion as Part of Strategy Shift**\
-`Mistral is trying to keep pace with American and Chinese rivals while offering customers a European alternative for artificial intelligence.`\
-https://www.nytimes.com/2026/09/08/business/mistral-ai-fund-raising.html
-
-**Is Russia Losing the War in Ukraine? No.**\
-`After more than 50 months of this war, the next few could be decisive.`\
-https://www.nytimes.com/2026/09/08/opinion/ukraine-war-defenses-putin.html
-
-**Canada Imposes New Tariffs on U.S. Goods, as Trade War Intensifies**\
-`The duties are a retaliation against President Trump’s recent tariffs, raising concerns about further escalation.`\
-https://www.nytimes.com/2026/09/08/business/canada-tariffs-trump.html
-
-**Quote of the Day: It’s Not the Heat, but the Humidity That Cuts Short a Wrigley Showcase**\
-`Quotation of the Day for Tuesday, September 8, 2026.`\
-https://www.nytimes.com/2026/09/08/pageoneplus/quote-of-the-day-its-not-the-heat-but-the-humidity-that-cuts-short-a-wrigley-showcase.html
-
-**Online Posts Show Families’ Grief for Flood Victims on Tibet’s Side of China-Nepal Border**\
-`The authorities have not released an official list of those missing in the Tibet flood, creating an information void that people have tried to fill.`\
-https://www.nytimes.com/2026/09/08/world/asia/china-nepal-border-flood-tibet-victims-messages.html
-
-**NYT Crossword Answers for Sept. 8, 2026**\
-`Sunny Maharjan makes his New York Times Crossword debut.`\
-https://www.nytimes.com/2026/09/07/crosswords/daily-puzzle-2026-09-08.html
-
-**After 9/11, Documents Suggest New Yorkers Were Misled About Air Quality**\
-`The Mamdani administration is releasing more than 170,000 pages of documents related to the air quality around the World Trade Center site in the months after the Sept. 11 attacks.`\
-https://www.nytimes.com/2026/09/07/nyregion/sept-11-air-quality-cancer.html
-
-**Miami Plane Crash Starts Debate About Requiring a Buffer for Runways**\
-`A technology involving crushable concrete has been credited with saving nearly 500 passenger lives by helping halt planes that overshot their landings.`\
-https://www.nytimes.com/2026/09/07/us/miami-crash-emas-buffer-runways.html
-
-**Officials Continue Investigation Into Fatal Miami Plane Crash**\
-`Officials provided updates on Sunday’s Amazon cargo plane crash at Miami International airport. The plane crashed into vehicles, killing five people and injuring five others, officials said.`\
-https://www.nytimes.com/video/us/100000011137674/miami-plane-crash-update.html
-
-**The Case for Why Democrats Will Win the Midterms. And the Case for Republicans, Too.**\
-`President Trump’s low approval ratings along with historical trends point to a clear Democratic advantage in November. But Republicans also see some reasons for optimism.`\
-https://www.nytimes.com/interactive/2026/09/07/us/politics/midterm-elections-advantages.html
-
-**Un juez en Argentina ordena devolver una pintura saqueada por los nazis**\
-`La pintura del siglo XVIII “Retrato de una dama” fue robada por un alto mando nazi en la década de 1940. El año pasado, apareció en un anuncio inmobiliario en Argentina.`\
-https://www.nytimes.com/es/2026/09/07/espanol/mundo/nazis-argentina-robo-pintura.html
-
-**Trump pesa sobre los republicanos ante las elecciones intermedias**\
-`La estrategia, el mensaje y los gastos del presidente han dejado al Partido Republicano en una situación difícil mientras los legisladores intentan escapar de sus bajos índices de aprobación.`\
-https://www.nytimes.com/es/2026/09/07/espanol/estados-unidos/trump-elecciones-intermedias-republicanos.html
-
-**Containing Germany’s Far Right**\
-`The AfD victory in a state election is forcing a rethink of the country’s postwar strategy to safeguard democracy.`\
-https://www.nytimes.com/2026/09/07/world/germany-election-afd-indonesia-microplastics.html
-
-**Caribbean Revelers Celebrate at Parade, Even as Many Are Missing**\
-`At the annual West Indian American Day Parade in Brooklyn, many Haitian New Yorkers targeted by an immigration crackdown were absent from the festivities.`\
-https://www.nytimes.com/2026/09/07/nyregion/west-indian-american-parade-haitians.html
-
-**Thousands of Serbs Mourn Ratko Mladic, the ‘Butcher of Bosnia’**\
-`Thousands of Serbs gathered for the funeral of Ratko Mladic, the “butcher of Bosnia,” who died on Aug. 27 while serving a life sentence for genocide and crimes against humanity. Although the government insisted the funeral was a private event, state-controlled media lavished praise on the war criminal.`\
-https://www.nytimes.com/video/world/europe/100000011137262/serbia-ratko-mladic-funeral.html
-
-**Nepal Flood Victims Remembered During Candlelight Vigil**\
-`During a national day of mourning in Nepal, candlelight vigils were held to honor the victims of the flash food disaster.`\
-https://www.nytimes.com/video/world/asia/100000011137285/candlelight-vigils-nepal-flood-victims.html
-
-**Trump plantea que Nuevo México se llame ahora ‘Nueva América’**\
-`Cualquier cambio propuesto tendría que originarse dentro del estado, una posibilidad que los líderes demócratas de Nuevo México rechazaron enérgicamente el domingo.`\
-https://www.nytimes.com/es/2026/09/07/espanol/trump-nuevo-mexico-nueva-america.html
-
-**Ousted Kennedy Center Chairman Buys Dismantled ‘Blue’ Sculpture**\
-`David Rubenstein purchased the sculpture, which was removed from the center last week, from the artist’s foundation. He will display it at the National Gallery of Art.`\
-https://www.nytimes.com/2026/09/07/arts/design/blue-sculpture-kennedy-center-rubenstein.html
-
-**Los haitianos deportados de EE. UU. se quedan sin dinero y a la deriva**\
-`Cientos de personas han sido deportadas a Haití en las últimas semanas, y algunas dicen que las han dejado sin un centavo, sin protección contra las pandillas y sin un lugar adonde ir.`\
-https://www.nytimes.com/es/2026/09/07/espanol/america-latina/haiti-deportados.html
-
-**Britain Set to Target Israeli West Bank Settlements With Trade Ban**\
-`The expected move will be announced on Tuesday, officials said, and underscored Israel’s mounting isolation over its policies toward Palestinians following the war in Gaza.`\
-https://www.nytimes.com/2026/09/07/world/middleeast/britain-sanctions-israeli-settlers.html
-
-**Jean-François Leroy, Champion of Photography at Its Rawest, Dies at 69**\
-`His photojournalism festival, Visa Pour l’Image, brought to wide attention images of war and suffering. The French president called him “a great defender of reality.”`\
-https://www.nytimes.com/2026/09/07/arts/design/jean-francois-leroy-dead.html
-
-**La batalla para salvar a un general innovador de los despidos del secretario de Defensa de EE. UU.**\
-`La visión del general Christopher Donahue para librar las guerras del futuro le hizo ganar poderosos partidarios en todo el mundo. ¿Podrían salvar su carrera?`\
-https://www.nytimes.com/es/2026/09/07/espanol/estados-unidos/general-donahue-secretario-defensa-hegseth.html
-
-**AfD’s Election Win Tests Germany’s Strategy Against Far Right**\
-`The Alternative for Germany, a far-right party known as AfD, won the Saxony-Anhalt state election in a landslide. The “firewall” strategy that Germany’s political parties have maintained against the far right now faces a major test.`\
-https://www.nytimes.com/video/world/europe/100000011137008/germany-afd-election-far-right.html
-
-**Canadá implementa aranceles de represalia**\
-`Se espera que los nuevos gravámenes canadienses de hasta el 50 por ciento comiencen el martes, aun cuando Washington advierte sobre una nueva ronda de aranceles estadounidenses.`\
-https://www.nytimes.com/es/2026/09/07/espanol/mundo/canada-aranceles-trump.html
-
-**Nazi-Looted Painting in Real Estate Listing Must Be Returned**\
-`The 18th-century painting “Portrait of a Lady” was stolen by a high-ranking Nazi in the 1940s. Last year, it surfaced in a real estate listing in Argentina.`\
-https://www.nytimes.com/2026/09/07/world/americas/looted-painting-nazis-argentina.html
-
-**Philippines Lawmaker, Cousin of Marcos, Charged With Taking Kickbacks**\
-`A cousin of President Ferdinand Marcos Jr. was charged with plundering public funds meant for flood control in the Southeast Asian country. He has denied wrongdoing.`\
-https://www.nytimes.com/2026/09/07/world/asia/philippines-romualdez-arrest-kickbacks.html
-
-**Israeli Strikes Kill at Least 11 in Southern Lebanon**\
-`The Israeli military has ramped up attacks on Hezbollah targets after claiming it captured a strategic ridge six miles north of its border with Lebanon.`\
-https://www.nytimes.com/video/world/middleeast/100000011137035/lebanon-israel-hezbollah-strikes.html
 
