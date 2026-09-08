@@ -1,3 +1,7 @@
+**N.Y.C. Leaders ‘Lied’ About Air Quality After 9/11, Mamdani Says**\
+`Mayor Zohran Mamdani said city leaders “lied” about the air quality being safe around the World Trade Center site after the Sept. 11 attacks.`\
+https://www.nytimes.com/video/us/100000011138639/mamdani-911-attack-air-quality-nyc.html
+
 **At 9/11 Tribute, Trump Claims Firefighters Carried Him to Safety**\
 `President Trump has long sought to position himself close to the Sept. 11 recovery effort and has made a series of questionable and provocative statements to burnish his political brand.`\
 https://www.nytimes.com/2026/09/08/us/politics/trump-sept-11-firefighters.html
