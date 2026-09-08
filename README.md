@@ -1,3 +1,15 @@
+**Nothing Compares to Her: A Dance Love Letter to Sinead O’Connor**\
+`The choreographer Sonya Tayeh’s “The Surge” is a dance response to themes in O’Connor’s life: spirituality, identity and what Tayeh calls jrage, or joy and rage.`\
+https://www.nytimes.com/2026/09/08/arts/dance/sinead-oconnor-sonya-tayeh-the-surge-joyce-theater.html
+
+**‘Don’t Let Me Disappear’: The 100-Day Scramble to Free Lue Yang**\
+`Lue Yang, who was convicted in a home invasion as a teenager, was facing deportation to Laos. With a plane on the tarmac, he wondered whether an appeal would be heard.`\
+https://www.nytimes.com/2026/09/08/us/politics/hmong-refugee-deportation-michigan-laos.html
+
+**¿Por qué Trump pidió 300 millones de kilogramos de carne misteriosa?**\
+`Si los consumidores estadounidenses supieran de dónde viene esa carne, tal vez no querrían comerla.`\
+https://www.nytimes.com/es/2026/09/08/espanol/opinion/argentina-calidad-carne-trump.html
+
 **Andre Agassi odiaba el tenis. ¿Podrá divertirse con el pickleball?**\
 `A los 55 años, el excampeón vuelve a competir en un deporte que se juega en una cancha más corta y accesible, donde la potencia importa menos y explora una nueva oportunidad para disfrutar.`\
 https://www.nytimes.com/es/2026/09/08/espanol/deportes/andre-agassi-pickleball.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/09/08/books/review/the-pirate-queen-ariel-lawhon.ht
 **Book Review: ‘Money to Burn,’ by William D. Cohan**\
 `In “Money to Burn,” William D. Cohan charts the rise and fall of the Wall Street billionaire Leon Black.`\
 https://www.nytimes.com/2026/09/08/books/review/money-to-burn-william-d-cohan.html
-
-**Emily St. John Mandel’s Latest Protagonist Has Haunted Eyes and a Strong Jaw**\
-`The author describes the main character of her new novel, “Exit Party,” to a forensic sketch artist.`\
-https://www.nytimes.com/2026/09/08/t-magazine/emily-st-john-mandel-exit-party-sketch.html
-
-**The Rip-Off Concert Tickets That Were Somehow Worth It**\
-`This summer, I discovered how experiencing joy as a group makes life so much better.`\
-https://www.nytimes.com/2026/09/08/opinion/concert-tickets-noah-kahan.html
-
-**How Safe Are Tattoos?**\
-`We asked experts about the risks.`\
-https://www.nytimes.com/2026/09/08/well/tattoo-aftercare-cancer-risk-safety-advice.html
 
