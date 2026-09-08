@@ -1,3 +1,11 @@
+**Which Republican Senate Candidates Are Skipping Trump’s Convention?**\
+`For G.O.P. candidates in the most competitive races, deciding whether to appear with President Trump can be tricky. Some are going, while others are staying away.`\
+https://www.nytimes.com/2026/09/08/us/politics/republican-senate-candidates-trump-convention.html
+
+**El inquietante documental en el que Elizabeth Holmes intenta limpiar su nombre**\
+`En el documental “You Can See Everything”, presentado por sorpresa en Telluride, Elizabeth Holmes colabora con Nathan Fielder en un intento por cambiar su narrativa sobre el colapso de Theranos.`\
+https://www.nytimes.com/es/2026/09/08/espanol/cultura/elizabeth-holmes-documental-nathan-fielder.html
+
 **New Hampshire Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 New Hampshire primary elections.`\
 https://www.nytimes.com/interactive/2026/09/08/us/elections/results-new-hampshire-primary.html

@@ -1,4 +1,8 @@
-**Which Republican Senate Candidates Are Skipping Trump’s Convention?**\
+**Canadá impone nuevos aranceles a productos de EE. UU.**\
+`Los aranceles son una represalia contra los recientes aranceles del presidente Trump, lo que genera preocupaciones sobre tensiones mayores.`\
+https://www.nytimes.com/es/2026/09/08/espanol/estados-unidos/canada-aranceles-trump.html
+
+**Which Senate Candidates Are Skipping Trump’s Republican Convention?**\
 `For G.O.P. candidates in the most competitive races, deciding whether to appear with President Trump can be tricky. Some are going, while others are staying away.`\
 https://www.nytimes.com/2026/09/08/us/politics/republican-senate-candidates-trump-convention.html
 
@@ -26,7 +30,7 @@ https://www.nytimes.com/interactive/2026/09/08/us/elections/results-new-hampshir
 `Get live results and maps from the 2026 New Hampshire primary election.`\
 https://www.nytimes.com/interactive/2026/09/08/us/elections/results-new-hampshire-us-house-1-primary.html
 
-**Hurricane Lowell’s Bands Bring Rain, Fierce Wind and Outages on Kauai**\
+**Hurricane Lowell Brings Rain, Fierce Wind and Power Outages on Hawaii’s Kauai**\
 `The storm began to pull away from Hawaii early on Tuesday, but the threat of flash floods and landslides from lingering hurricane conditions remained.`\
 https://www.nytimes.com/2026/09/08/us/hurricane-lowell-kauai-hawaii-power.html
 
@@ -189,12 +193,4 @@ https://www.nytimes.com/2026/09/08/crosswords/wordle-review-1908.html
 **AfD’s Far Right Win Puts New Pressure on Germany’s Leader Merz**\
 `Antipathy to Chancellor Friedrich Merz was a reason the far right surged in a state election. Though he does not face a national election until 2029, his leadership is under increasing scrutiny.`\
 https://www.nytimes.com/2026/09/08/world/europe/germany-merz-pressure-afd.html
-
-**Australian Social Media Users Could Get Power to Switch Off Algorithms**\
-`Technology companies have been “running real-time, unregulated product testing on Australians” for too long, communications minister says.`\
-https://www.nytimes.com/2026/09/08/world/australia/social-media-law-algorithms-digital-duty-care.html
-
-**Rubio visitará Colombia. ¿Cuál es su agenda con De la Espriella?**\
-`Perseguir a los narcotraficantes encabezará la agenda durante la visita del secretario de Estado estadounidense a Colombia, según personas familiarizadas con sus planes.`\
-https://www.nytimes.com/es/2026/09/08/espanol/america-latina/rubio-colombia-cocaina.html
 

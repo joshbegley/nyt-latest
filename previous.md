@@ -1,3 +1,15 @@
+**Which Republican Senate Candidates Are Skipping Trump’s Convention?**\
+`For G.O.P. candidates in the most competitive races, deciding whether to appear with President Trump can be tricky. Some are going, while others are staying away.`\
+https://www.nytimes.com/2026/09/08/us/politics/republican-senate-candidates-trump-convention.html
+
+**El inquietante documental en el que Elizabeth Holmes intenta limpiar su nombre**\
+`En el documental “You Can See Everything”, presentado por sorpresa en Telluride, Elizabeth Holmes colabora con Nathan Fielder en un intento por cambiar su narrativa sobre el colapso de Theranos.`\
+https://www.nytimes.com/es/2026/09/08/espanol/cultura/elizabeth-holmes-documental-nathan-fielder.html
+
+**New Hampshire Second Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New Hampshire primary election.`\
+https://www.nytimes.com/interactive/2026/09/08/us/elections/results-new-hampshire-us-house-2-primary.html
+
 **New Hampshire Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 New Hampshire primary elections.`\
 https://www.nytimes.com/interactive/2026/09/08/us/elections/results-new-hampshire-primary.html
@@ -17,10 +29,6 @@ https://www.nytimes.com/interactive/2026/09/08/us/elections/results-new-hampshir
 **Hurricane Lowell’s Bands Bring Rain, Fierce Wind and Outages on Kauai**\
 `The storm began to pull away from Hawaii early on Tuesday, but the threat of flash floods and landslides from lingering hurricane conditions remained.`\
 https://www.nytimes.com/2026/09/08/us/hurricane-lowell-kauai-hawaii-power.html
-
-**New Hampshire Second Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 New Hampshire primary election.`\
-https://www.nytimes.com/interactive/2026/09/08/us/elections/results-new-hampshire-us-house-2-primary.html
 
 **Iceland Summons U.S. Ambassador Over Provocative Trump Map**\
 `After voting against talks to join the European Union, Iceland is reacting forcefully to a slight against its sovereignty.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/08/world/australia/social-media-law-algorithms-d
 **Rubio visitará Colombia. ¿Cuál es su agenda con De la Espriella?**\
 `Perseguir a los narcotraficantes encabezará la agenda durante la visita del secretario de Estado estadounidense a Colombia, según personas familiarizadas con sus planes.`\
 https://www.nytimes.com/es/2026/09/08/espanol/america-latina/rubio-colombia-cocaina.html
-
-**Reimagining Josephine Baker, on the Most Opulent Stage in Paris**\
-`Amid the red velvet and gold leaf of the Palais Garnier, an experimental tribute strips away cabaret nostalgia to honor a complex American hero and a French icon.`\
-https://www.nytimes.com/2026/09/08/arts/music/josephine-baker-paris-opera.html
-
-**Cómo saber si tienes deficiencia de hierro**\
-`Es la carencia nutricional número uno a nivel mundial, y también una de las que más se pasan por alto. Esto hay que saber sobre el diagnóstico.`\
-https://www.nytimes.com/es/2026/09/08/espanol/hierro-deficiencia-cansancio-ojeras.html
 
