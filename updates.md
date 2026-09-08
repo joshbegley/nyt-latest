@@ -1,3 +1,11 @@
+**Books to Match Your Mood**\
+`MJ Franklin of The New York Times Book Review recommends books based on your mood.`\
+https://www.nytimes.com/video/books/100000011054884/books-to-match-your-mood.html
+
+**Lonnie G. Bunch III, Departing Smithsonian Secretary, Faced ‘Mounting Pressure Campaign’**\
+`Under Lonnie G. Bunch III’s leadership, President Trump accused the Smithsonian of liberal, anti-American bias. Supporters say he was dedicated to nonpartisan scholarship.`\
+https://www.nytimes.com/2026/09/08/arts/design/smithsonian-lonnie-bunch-depature-reaction.html
+
 **Trump Cannot Pardon Lindsay Clancy, but Her Lawyer Asked Anyway**\
 `President Trump does not have the power to wipe away the state murder charges Ms. Clancy faces. Her lawyer’s spokesman said the comments were “a statement to the country.”`\
 https://www.nytimes.com/2026/09/08/us/lindsay-clancy-lawyer-trump-pardon-murder.html
