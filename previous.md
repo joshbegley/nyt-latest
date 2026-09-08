@@ -1,3 +1,7 @@
+**Paxton Aide Turned Whistle-Blower Appears in Ad Endorsing His Rival, Talarico**\
+`David Maxwell was among the staffers in the Texas attorney general’s office who accused Ken Paxton of abusing the power of his office, allegations that led to his impeachment. Mr. Paxton was acquitted.`\
+https://www.nytimes.com/2026/09/08/us/politics/paxton-whistleblower-talarico-ad.html
+
 **Canadá impone nuevos aranceles a productos de EE. UU.**\
 `Los aranceles son una represalia contra los recientes aranceles del presidente Trump, lo que genera preocupaciones sobre tensiones mayores.`\
 https://www.nytimes.com/es/2026/09/08/espanol/estados-unidos/canada-aranceles-trump.html
