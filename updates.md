@@ -1,3 +1,11 @@
+**Andre Agassi odiaba el tenis. ¿Podrá divertirse con el pickleball?**\
+`A los 55 años, el excampeón vuelve a competir en un deporte que se juega en una cancha más corta y accesible, donde la potencia importa menos y explora una nueva oportunidad para disfrutar.`\
+https://www.nytimes.com/es/2026/09/08/espanol/deportes/andre-agassi-pickleball.html
+
+**Top Mathematician Announces New Institute for A.I. Safety**\
+`Jacob Tsimerman, a recent recipient of the Fields Medal, believes that higher mathematics can help curb the dangers of runaway artificial intelligence.`\
+https://www.nytimes.com/2026/09/08/science/jacob-tsimerman-math-ai-safety.html
+
 **Russia Strikes Kyiv After Trump Envoys Leave**\
 `Russia launched a wave of deadly overnight strikes on Ukraine’s capital hours after President Trump’s envoys left. The envoys had visited Moscow and Kyiv over the weekend in a bid to restart stalled peace talks.`\
 https://www.nytimes.com/video/world/europe/100000011138269/russia-strikes-kyiv-trump-envoys.html
