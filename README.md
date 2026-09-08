@@ -1,3 +1,7 @@
+**Watch Live: Trump Delivers Remarks at the Ellipse**\
+`President Trump hosts first responders and New York Fire Department officials at the Ellipse for an event commemorating Sept. 11.`\
+https://www.nytimes.com/video/embedded/us/politics/100000011138594/watch-live-trump-delivers-remarks-at-the-ellipse.html
+
 **Latest Polls on North Carolina's Voter ID Amendment**\
 `Track the latest polls on North Carolina's voter ID amendment.`\
 https://www.nytimes.com/interactive/polls/north-carolina-voter-id-amendment-polls-2026.html
@@ -6,7 +10,7 @@ https://www.nytimes.com/interactive/polls/north-carolina-voter-id-amendment-poll
 `It’s the most widely planted red grape in the world and the most popular red varietal wine in the U.S., so why has it fallen out of favor?`\
 https://www.nytimes.com/2026/09/08/dining/drinks/cabernet-sauvignon-red-wine.html
 
-**Live Updates: Trump to Honor 9/11 Emergency Personnel**\
+**Live Updates: Trump Honors 9/11 Emergency Personnel**\
 `(No description)`\
 https://www.nytimes.com/live/2026/09/08/us/trump-news-sept-11
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/09/08/espanol/opinion/felicidad-que-es.html
 **Near the Border, Americans Fear Losing Ties With Canadians**\
 `Americans in border regions have had symbiotic relationships with Canadians, but the trade war is testing their bonds.`\
 https://www.nytimes.com/2026/09/08/us/canada-tariffs-us-relationship.html
-
-**Rubio to Push Colombia’s New Leader to Tackle Cocaine Trade**\
-`Targeting traffickers will be at the top of the agenda as Secretary of State Marco Rubio visits Colombia, according to people familiar with his plans.`\
-https://www.nytimes.com/2026/09/08/world/americas/rubio-colombia-cocaine.html
 
