@@ -1,3 +1,7 @@
+**American Bar Association Ends D.E.I. Standards Under Trump Pressure**\
+`The group that accredits law schools voted to eliminate a requirement that the schools show a commitment to diversity and inclusion.`\
+https://www.nytimes.com/2026/09/08/us/american-bar-association-dei-standards-end.html
+
 **N.Y.C. Leaders ‘Lied’ About Air Quality After 9/11, Mamdani Says**\
 `Mayor Zohran Mamdani said city leaders “lied” about the air quality being safe around the World Trade Center site after the Sept. 11 attacks.`\
 https://www.nytimes.com/video/us/100000011138639/mamdani-911-attack-air-quality-nyc.html
