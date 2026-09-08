@@ -1,3 +1,19 @@
+**Standing Up for Cabernet Sauvignon**\
+`It’s the most widely planted red grape in the world and the most popular red varietal wine in the U.S., so why has it fallen out of favor?`\
+https://www.nytimes.com/2026/09/08/dining/drinks/cabernet-sauvignon-red-wine.html
+
+**Live Updates: Trump to Honor 9/11 Emergency Personnel**\
+`(No description)`\
+https://www.nytimes.com/live/2026/09/08/us/trump-news-sept-11
+
+**Lindsay Clancy’s Ex-Husband Complains of ‘Relentless’ Harassment**\
+`Patrick Clancy’s lawyer said that he would seek help from the authorities in response to conspiracy theorists who have accused him of killing his children and framing Ms. Clancy.`\
+https://www.nytimes.com/2026/09/08/us/patrick-clancy-harrassment-legal-action.html
+
+**Bombardier, a Canadian Jet Maker, Is One Target in Trump’s Trade War**\
+`The Montreal-based manufacturer has been embroiled in U.S. trade disputes before. President Trump threatened to bar the company from selling in the United States.`\
+https://www.nytimes.com/2026/09/08/business/bombardier-trump-canada-us-sales-planes.html
+
 **Latest Polls on Missouri Amendment 3 to Prohibit Abortion and Gender Transition for Minors**\
 `Track the latest polls on Missouri's Amendment 3 which would prohibit abortion and gender transition for minors.`\
 https://www.nytimes.com/interactive/polls/missouri-amendment-3-abortion-gender-transition-polls-2026.html

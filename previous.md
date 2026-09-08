@@ -1,9 +1,17 @@
+**Standing Up for Cabernet Sauvignon**\
+`It’s the most widely planted red grape in the world and the most popular red varietal wine in the U.S., so why has it fallen out of favor?`\
+https://www.nytimes.com/2026/09/08/dining/drinks/cabernet-sauvignon-red-wine.html
+
+**Live Updates: Trump to Honor 9/11 Emergency Personnel**\
+`(No description)`\
+https://www.nytimes.com/live/2026/09/08/us/trump-news-sept-11
+
 **Latest Polls on Missouri Amendment 3 to Prohibit Abortion and Gender Transition for Minors**\
 `Track the latest polls on Missouri's Amendment 3 which would prohibit abortion and gender transition for minors.`\
 https://www.nytimes.com/interactive/polls/missouri-amendment-3-abortion-gender-transition-polls-2026.html
 
 **Lindsay Clancy’s Ex-Husband Complains of ‘Relentless’ Harassment**\
-`Patrick Clancy’s lawyer said that he would seek help from the authorities in response to conspiracy theorists who have accused him killing his children and framing Ms. Clancy.`\
+`Patrick Clancy’s lawyer said that he would seek help from the authorities in response to conspiracy theorists who have accused him of killing his children and framing Ms. Clancy.`\
 https://www.nytimes.com/2026/09/08/us/patrick-clancy-harrassment-legal-action.html
 
 **Read the House’s Report on Brain Injury in Navy Pilots**\
@@ -51,7 +59,7 @@ https://www.nytimes.com/2026/09/08/business/dealbook/oil-inflation-markets.html
 https://www.nytimes.com/interactive/polls/georgia-us-house-7-polls-2026.html
 
 **Bombardier, a Canadian Jet Maker, Is One Target in Trump’s Trade War**\
-`Montreal-based Bombardier has been embroiled in U.S. trade disputes before. President Trump threatened to bar the company from selling in the United States.`\
+`The Montreal-based manufacturer has been embroiled in U.S. trade disputes before. President Trump threatened to bar the company from selling in the United States.`\
 https://www.nytimes.com/2026/09/08/business/bombardier-trump-canada-us-sales-planes.html
 
 **¿Se puede contener a la extrema derecha alemana?**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/08/world/americas/rubio-colombia-cocaine.html
 **No Luxury Spared: New High-End Cruise Ships Set Sail**\
 `The latest batch of yacht-like vessels sailing in Europe, the Caribbean and beyond offer personalized experiences, great food and spacious suites.`\
 https://www.nytimes.com/2026/09/08/travel/new-luxury-cruise-ships.html
-
-**Michigan Rabbis Press El-Sayed to Change Tone and Stance on Israel**\
-`A coalition of Jewish leaders is launching a petition drive aimed at the Democratic Senate nominee, a fresh indicator of frictions in a key battleground.`\
-https://www.nytimes.com/2026/09/08/us/abdul-el-sayed-michigan-jews.html
-
-**How to Finally Find a Bra You Won’t Hate**\
-`Our expert explains what to look for and which bras are worth buying.`\
-https://www.nytimes.com/2026/09/08/podcasts/how-to-finally-find-a-bra-you-wont-hate.html
 
