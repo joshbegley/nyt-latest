@@ -1,3 +1,11 @@
+**French A.I. Start-Up Mistral Raises $3.5 Billion as Part of Strategy Shift**\
+`Mistral is trying to keep pace with American and Chinese rivals while offering customers a European alternative for artificial intelligence.`\
+https://www.nytimes.com/2026/09/08/business/mistral-ai-fund-raising.html
+
+**Ukraine’s Defenses Are Dwindling. Putin Will Make the Most of It.**\
+`After more than 50 months of this war, the next few could be decisive.`\
+https://www.nytimes.com/2026/09/08/opinion/ukraine-war-defenses-putin.html
+
 **Canada Imposes New Tariffs on U.S. Goods, as Trade War Intensifies**\
 `The duties are a retaliation against President Trump’s recent tariffs, raising concerns about further escalation.`\
 https://www.nytimes.com/2026/09/08/business/canada-tariffs-trump.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/07/world/europe/germany-afd-elections-bsw.html
 **Mamdani Creates Workers’ Rights Office in Effort to Boost Union Power**\
 `The Office of Worker Power, designed to support labor organizing and strengthen worker protections, comes as the mayor works to win over the city’s business community.`\
 https://www.nytimes.com/2026/09/07/nyregion/mamdani-to-create-workers-rights-office-in-effort-to-boost-union-power.html
-
-**NYT Connections Answers for September 8, 2026**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, Sept. 8, 2026.`\
-https://www.nytimes.com/2026/09/07/crosswords/connections-companion-1185.html
-
-**NYT Strands Hints for September 8, 2026**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, Sept. 8, 2026.`\
-https://www.nytimes.com/2026/09/07/crosswords/strands-sidekick-919.html
 

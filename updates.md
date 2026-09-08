@@ -1,3 +1,11 @@
+**French A.I. Start-Up Mistral Raises $3.5 Billion as Part of Strategy Shift**\
+`Mistral is trying to keep pace with American and Chinese rivals while offering customers a European alternative for artificial intelligence.`\
+https://www.nytimes.com/2026/09/08/business/mistral-ai-fund-raising.html
+
+**Ukraine’s Defenses Are Dwindling. Putin Will Make the Most of It.**\
+`After more than 50 months of this war, the next few could be decisive.`\
+https://www.nytimes.com/2026/09/08/opinion/ukraine-war-defenses-putin.html
+
 **Canada Imposes New Tariffs on U.S. Goods, as Trade War Intensifies**\
 `The duties are a retaliation against President Trump’s recent tariffs, raising concerns about further escalation.`\
 https://www.nytimes.com/2026/09/08/business/canada-tariffs-trump.html
