@@ -1,3 +1,7 @@
+**Who Is Ahead in the Lexington, Ky., Mayor Race? Latest 2026 Polls**\
+`Track the latest polls in the Lexington, Ky., mayoral election.`\
+https://www.nytimes.com/interactive/polls/lexington-kentucky-mayor-election-polls-2026.html
+
 **Supermarket Manager Rescues Toddler From Traffic**\
 `A supermarket in Puebla, Mexico, honored a manager for a dramatic, last-second rescue of a toddler running toward a busy road.`\
 https://www.nytimes.com/video/world/americas/100000011138476/supermarket-toddler-traffic-rescue-mexico.html
