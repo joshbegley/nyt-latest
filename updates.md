@@ -1,3 +1,19 @@
+**Lindsay Clancy’s Ex-Husband Complains of ‘Relentless’ Harassment**\
+`Patrick Clancy’s lawyer said that he would seek help from the authorities in response to conspiracy theorists who have accused him killing his children and framing Ms. Clancy.`\
+https://www.nytimes.com/2026/09/08/us/patrick-clancy-harrassment-legal-action.html
+
+**Read the House’s Report on Brain Injury in Navy Pilots**\
+`An investigation by the House Oversight Committee found that the Navy barely responded to repeated observations of potential brain injuries and mental health problems in its pilots.`\
+https://www.nytimes.com/interactive/2026/09/08/us/navy-brain-injury-house-report.html
+
+**Julia Roberts Will Return to Broadway in ‘Small Mouth Sounds’**\
+`The all-star cast also includes Paul Rudd, Sarah Paulson, Greta Lee, Martin Freeman and Isaac Powell. Also coming: a new production of “Downstate.”`\
+https://www.nytimes.com/2026/09/08/theater/small-mouth-sounds-downstate-broadway.html
+
+**Navy Failed to Protect Pilots From Brain Injury, House Report Says**\
+`A scathing report issued by the House Oversight Committee blamed the Navy for repeatedly failing to act, and recommended that Congress pass legislation to study and treat aviators.`\
+https://www.nytimes.com/2026/09/08/us/navy-pilots-brain-injuries.html
+
 **Who Is Ahead in the Lexington, Ky., Mayor Race? Latest 2026 Polls**\
 `Track the latest polls in the Lexington, Ky., mayoral election.`\
 https://www.nytimes.com/interactive/polls/lexington-kentucky-mayor-election-polls-2026.html
