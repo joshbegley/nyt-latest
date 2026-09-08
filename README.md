@@ -2,7 +2,7 @@
 `Readers continue offering tributes to the feminist icon, who died last week. Also: Reducing gun violence; curbing A.I. in schools.`\
 https://www.nytimes.com/2026/09/08/opinion/gloria-steinem.html
 
-**What Is Navier-Stokes?**\
+**What Is Navier-Stokes, the ‘Millennium’ Math Problem OpenAI Claims to Have Solved?**\
 `OpenAI announced today that it had solved the problem, one of seven “Millennium Problems” seen as among the most important in higher mathematics.`\
 https://www.nytimes.com/2026/09/08/science/what-is-navier-stokes.html
 
