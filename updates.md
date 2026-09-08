@@ -1,3 +1,11 @@
+**Corrections: Sept. 8, 2026**\
+`Corrections that appeared in print on Tuesday, Sept. 8, 2026.`\
+https://www.nytimes.com/2026/09/08/pageoneplus/corrections-sept-8-2026.html
+
+**Canadian Jet Maker Is Target in Trump’s Trade War**\
+`Montreal-based Bombardier has been embroiled in U.S. trade disputes before. President Trump threatened to bar the company from selling in the United States.`\
+https://www.nytimes.com/2026/09/08/business/bombardier-trump-canada-us-sales-planes.html
+
 **Street Style Look of the Week: Summer Basics**\
 `For Mollie Levy, a marketing executive in New York, being comfortable is part of her lifestyle, whether she’s dressing up or down.`\
 https://www.nytimes.com/2026/09/08/style/street-style-look.html
