@@ -1,3 +1,7 @@
+**Hurricane Lowell Wreaks Havoc in Kauai**\
+`Hurricane Lowell flooded roads and knocked out power for thousands in Kauai, Hawaii. About 90 percent of the island was out of power as emergency crews cleared downed trees and power lines.`\
+https://www.nytimes.com/video/us/100000011139959/hurricane-lowell-kauai-flood-power-outage.html
+
 **Does It Matter If We Anthropomorphize A.I.?**\
 `If a tiger mauls your face, the important question isn’t “Is it conscious?” It’s “Why did it maul my face?” The “Hard Fork” co-hosts Casey Newton and Kevin Roose discuss that whether you believe A.I. is conscious or not, the consequences of autonomous agents are mounting.`\
 https://www.nytimes.com/video/podcasts/100000011140184/does-it-matter-if-we-anthropomorphize-ai.html

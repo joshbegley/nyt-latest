@@ -1,3 +1,7 @@
+**Before October 7 Attack, Netanyahu Was Warned, Report Says. He Denies It.**\
+`Prime Minister Benjamin Netanyahu’s office denied the report in Haaretz that the Emirati president had warned him Hamas was planning a major operation against Israel.`\
+https://www.nytimes.com/2026/09/08/world/middleeast/israel-netanyahu-2023-hamas-attack.html
+
 **Hurricane Lowell Wreaks Havoc in Kauai**\
 `Hurricane Lowell flooded roads and knocked out power for thousands in Kauai, Hawaii. About 90 percent of the island was out of power as emergency crews cleared downed trees and power lines.`\
 https://www.nytimes.com/video/us/100000011139959/hurricane-lowell-kauai-flood-power-outage.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/09/08/espanol/estados-unidos/canada-aranceles-tr
 **Which Senate Candidates Are Skipping Trump’s Republican Convention?**\
 `For G.O.P. candidates in the most competitive races, deciding whether to appear with President Trump can be tricky. Some are going, while others are staying away.`\
 https://www.nytimes.com/2026/09/08/us/politics/republican-senate-candidates-trump-convention.html
-
-**El inquietante documental en el que Elizabeth Holmes intenta limpiar su nombre**\
-`En el documental “You Can See Everything”, presentado por sorpresa en Telluride, Elizabeth Holmes colabora con Nathan Fielder en un intento por cambiar su narrativa sobre el colapso de Theranos.`\
-https://www.nytimes.com/es/2026/09/08/espanol/cultura/elizabeth-holmes-documental-nathan-fielder.html
 
