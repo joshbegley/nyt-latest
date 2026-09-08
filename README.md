@@ -1,3 +1,11 @@
+**The Musician Eartheater Believes It’s Not a Meal Without Potatoes**\
+`“A really good, creative, interesting potato gets my heart thumping.”`\
+https://www.nytimes.com/2026/09/08/dining/musician-eartheater.html
+
+**Apple lanza el primer gran cambio a los iPhone en años**\
+`Los seguidores de la empresa creen que el miércoles Apple revelará un teléfono inteligente plegable que pondrá a prueba su capacidad para llevar productos y tecnologías de nicho al público general.`\
+https://www.nytimes.com/es/2026/09/08/espanol/negocios/apple-iphone-plegable.html
+
 **Introducing: Extra Credit**\
 `Our newsletter that helps college students get ahead — both inside and outside of class.`\
 https://www.nytimes.com/2026/09/08/briefing/introducing-extra-credit.html
@@ -10,7 +18,7 @@ https://www.nytimes.com/2026/09/08/climate/nuclear-plant-iowa-loan.html
 `The housecleaning puts the new government more in line with how European allies relate to Moscow, tempering cozy ties developed under Viktor Orban’s administration.`\
 https://www.nytimes.com/2026/09/08/world/europe/hungary-russia-diplomats-expulsion.html
 
-**Smithsonian Secretary Lonnie Bunch Is Resigning**\
+**Smithsonian’s Secretary to Resign as Trump Tries to Rule the Institution**\
 `In the face of escalating White House attacks about how museums present American history, Lonnie G. Bunch III has announced his decision to depart.`\
 https://www.nytimes.com/2026/09/08/arts/design/smithsonian-secretary-lonnie-bunch-resigns.html
 
@@ -78,7 +86,7 @@ https://www.nytimes.com/interactive/polls/north-carolina-voter-id-amendment-poll
 `It’s the most widely planted red grape in the world and the most popular red varietal wine in the U.S., so why has it fallen out of favor?`\
 https://www.nytimes.com/2026/09/08/dining/drinks/cabernet-sauvignon-red-wine.html
 
-**Live Updates: Trump Honors 9/11 Emergency Personnel**\
+**Trump Honors 9/11 Emergency Personnel in Washington**\
 `President Trump awarded the Presidential Medal of Freedom posthumously to a volunteer firefighter who saved numerous people. He also added to a disputed account of his actions that day.`\
 https://www.nytimes.com/live/2026/09/08/us/trump-news-sept-11
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/08/world/europe/paris-eiffel-tower-closed-strike
 **UK Imposes Sanctions on Israeli Settlements in West Bank, Accuses Settlers of Ethnic Cleansing**\
 `Britain said Israel had “turned a blind eye” to violence against Palestinians by extremist settlers, as it joined allies in announcing a ban on trade with illegal settlements.`\
 https://www.nytimes.com/2026/09/08/world/europe/uk-sanctions-israel-west-bank-settlements.html
-
-**Why the Pentagon Is Doing Polygraphs, and Officials Prepare to Release Huge Set of 9/11 Documents**\
-`Plus, could crushable concrete stop the next plane crash?`\
-https://www.nytimes.com/2026/09/08/podcasts/the-headlines/pentagon-polygraphs-9-11-documents-crushable-concrete.html
-
-**‘Buy Now, Pay Later’: A New Wave of Consumer Debt**\
-`Americans are increasingly using the loan model for everyday essentials.`\
-https://www.nytimes.com/2026/09/08/podcasts/the-daily/consumer-debt-financing-apps.html
 
