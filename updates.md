@@ -1,3 +1,7 @@
+**At 9/11 Tribute, Trump Claims Firefighters Carried Him to Safety**\
+`President Trump has long sought to position himself close to the Sept. 11 recovery effort and has made a series of questionable and provocative statements to burnish his political brand.`\
+https://www.nytimes.com/2026/09/08/us/politics/trump-sept-11-firefighters.html
+
 **Woman Pleads Guilty to Drugging and Killing 3 Men She Met on the Street**\
 `In 2023 and 2024, Tabitha Bundrick lured men, sometimes with promises of sex, to vacant apartments or their homes, before drugging and robbing them, leaving them to die, Manhattan prosecutors said.`\
 https://www.nytimes.com/2026/09/08/nyregion/murder-robbery-guilty-plea-nyc-woman.html
