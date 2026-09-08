@@ -1,3 +1,19 @@
+**Does It Matter If We Anthropomorphize A.I.?**\
+`If a tiger mauls your face, the important question isn’t “Is it conscious?” It’s “Why did it maul my face?” The “Hard Fork” co-hosts Casey Newton and Kevin Roose discuss that whether you believe A.I. is conscious or not, the consequences of autonomous agents are mounting.`\
+https://www.nytimes.com/video/podcasts/100000011140184/does-it-matter-if-we-anthropomorphize-ai.html
+
+**Politics News Site NOTUS Rebrands as The Washington Sun**\
+`A trademark dispute scuttled its plans to relaunch as The Washington Star, so the site chose a different name.`\
+https://www.nytimes.com/2026/09/08/business/media/notus-washington-sun-rebrand.html
+
+**The Life That Rose From the Ashes of Ground Zero**\
+`25 years after 9/11, life has proved stronger than death.`\
+https://www.nytimes.com/2026/09/08/opinion/911-twin-towers-life-death.html
+
+**Lonnie G. Bunch III, Departing Smithsonian Secretary, Faced ‘Mounting Pressure Campaign’**\
+`Under Lonnie G. Bunch III’s leadership, President Trump accused the Smithsonian of liberal, anti-American bias. Supporters say he was dedicated to nonpartisan scholarship.`\
+https://www.nytimes.com/2026/09/08/arts/design/smithsonian-lonnie-bunch-departure-reaction.html
+
 **National Guardsman Charged With Pointing Gun at Another Soldier on D.C. Patrol**\
 `The office of Jeanine Pirro, the U.S. attorney in Washington, charged Zion Mitchell with two felonies.`\
 https://www.nytimes.com/2026/09/08/us/politics/national-guardsman-gun-soldier-dc-patrol.html
