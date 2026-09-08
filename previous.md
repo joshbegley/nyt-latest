@@ -1,3 +1,7 @@
+**Did A.I. Agents Consider Humans in OpenAI Attack?**\
+`This week on “Hard Fork,” the co-hosts Kevin Roose and Casey Newton talk with Ajeya Cotra, one of the investigators behind a new report that details how OpenAI’s chatbots attacked the company Hugging Face and how the agents failed to consider how humans would react.`\
+https://www.nytimes.com/video/podcasts/100000011139463/did-ai-agents-consider-humans-in-openai-attack.html
+
 **Eat Your Rival: Carnegie Deli Will Reopen Where Stage Deli Once Was**\
 `Amphora takes a wine-forward approach, Ferg’s represents Alabama and more restaurant news.`\
 https://www.nytimes.com/2026/09/08/dining/nyc-restaurant-news.html
@@ -47,7 +51,7 @@ https://www.nytimes.com/2026/09/08/movies/elon-musk-film-alex-gibney-venice-film
 https://www.nytimes.com/2026/09/08/business/trump-media-truth-social-etf.html
 
 **Trump’s Latest Makeover Target? Space Force Uniforms.**\
-`The president designed a provocative new look for the next-gen Space Force ’fit.`\
+`The president shared a provocative new look for the next-gen Space Force ’fit.`\
 https://www.nytimes.com/2026/09/08/style/trump-space-force-uniforms-starship-troopers.html
 
 **At the Stratford Festival, Forgiveness Is a Power Move**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/08/pageoneplus/corrections-sept-8-2026.html
 **Street Style Look of the Week: Summer Basics**\
 `For Mollie Levy, a marketing executive in New York, being comfortable is part of her lifestyle, whether she’s dressing up or down.`\
 https://www.nytimes.com/2026/09/08/style/street-style-look.html
-
-**‘On This Day’ Lesson Plan Ideas**\
-`Each day, we feature a historic New York Times article alongside a scan of that day’s printed newspaper front page. Here are five teaching ideas to make these primary sources come alive for students.`\
-https://www.nytimes.com/2026/09/08/learning/lesson-plans/teach-with-on-this-day-ways-to-learn-with-175-years-of-the-new-york-times.html
 
