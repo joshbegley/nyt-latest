@@ -98,7 +98,7 @@ https://www.nytimes.com/2026/09/08/us/american-bar-association-dei-standards-end
 `Mayor Zohran Mamdani said city leaders “lied” about the air quality being safe around the World Trade Center site after the Sept. 11 attacks.`\
 https://www.nytimes.com/video/us/100000011138639/mamdani-911-attack-air-quality-nyc.html
 
-**At 9/11 Tribute, Trump Adds New Claim To His Disputed Role After Attack**\
+**At 9/11 Tribute, Trump Adds New Claim to His Disputed Role After Attack**\
 `President Trump has long sought to position himself close to the Sept. 11 recovery effort and has made a series of questionable and provocative statements to burnish his political brand.`\
 https://www.nytimes.com/2026/09/08/us/politics/trump-sept-11-firefighters.html
 
