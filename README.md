@@ -1,3 +1,7 @@
+**Books to Match Your Mood**\
+`MJ Franklin of The New York Times Book Review recommends books based on your mood.`\
+https://www.nytimes.com/video/books/100000011054884/books-to-match-your-mood.html
+
 **Trump Cannot Pardon Lindsay Clancy, but Her Lawyer Asked Anyway**\
 `President Trump does not have the power to wipe away the state murder charges Ms. Clancy faces. Her lawyer’s spokesman said the comments were “a statement to the country.”`\
 https://www.nytimes.com/2026/09/08/us/lindsay-clancy-lawyer-trump-pardon-murder.html
@@ -18,7 +22,7 @@ https://www.nytimes.com/2026/09/08/opinion/911-twin-towers-life-death.html
 `Se trata del hurto de arte de alto perfil más reciente de Europa, cuyos sitios culturales han estado luchando por mantener sus preciados objetos a salvo.`\
 https://www.nytimes.com/es/2026/09/08/espanol/cultura/robo-museo-renoir.html
 
-**Departing Smithsonian Secretary Faced ‘Mounting Pressure Campaign’**\
+**Lonnie G. Bunch III, Departing Smithsonian Secretary, Faced ‘Mounting Pressure Campaign’**\
 `Under Lonnie G. Bunch III’s leadership, President Trump accused the Smithsonian of liberal, anti-American bias. Supporters say he was dedicated to nonpartisan scholarship.`\
 https://www.nytimes.com/2026/09/08/arts/design/smithsonian-lonnie-bunch-depature-reaction.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/polls/north-carolina-voter-id-amendment-poll
 **Standing Up for Cabernet Sauvignon**\
 `It’s the most widely planted red grape in the world and the most popular red varietal wine in the U.S., so why has it fallen out of favor?`\
 https://www.nytimes.com/2026/09/08/dining/drinks/cabernet-sauvignon-red-wine.html
-
-**Trump Honors 9/11 Emergency Personnel in Washington**\
-`President Trump awarded the Presidential Medal of Freedom posthumously to a volunteer firefighter who saved numerous people. He also added to a disputed account of his actions that day.`\
-https://www.nytimes.com/live/2026/09/08/us/trump-news-sept-11
 
