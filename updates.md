@@ -1,3 +1,11 @@
+**Kevin Reacts to OpenAI’s Recent Cybersecurity Incident**\
+`Several weeks after OpenAI’s chatbots attacked the company Hugging Face, the “Hard Fork” co-hosts Kevin Roose and Casey Newton reflect on the incident and what it means for A.I. development more broadly.`\
+https://www.nytimes.com/video/podcasts/100000011140232/kevin-reacts-to-openais-recent-cybersecurity-incident.html
+
+**Before October 7 Attack, Netanyahu Was Warned, Report Says. He Denies It.**\
+`Prime Minister Benjamin Netanyahu’s office denied the report in Haaretz that the Emirati president had warned him Hamas was planning a major operation against Israel.`\
+https://www.nytimes.com/2026/09/08/world/middleeast/israel-netanyahu-2023-hamas-attack.html
+
 **Hurricane Lowell Wreaks Havoc in Kauai**\
 `Hurricane Lowell flooded roads and knocked out power for thousands in Kauai, Hawaii. About 90 percent of the island was out of power as emergency crews cleared downed trees and power lines.`\
 https://www.nytimes.com/video/us/100000011139959/hurricane-lowell-kauai-flood-power-outage.html
