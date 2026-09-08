@@ -1,3 +1,7 @@
+**Mamdani Accuses Former N.Y.C. Leaders of Lying About 9/11 Air Quality**\
+`Mayor Zohran Mamdani said that New Yorkers had gotten sick “because the leaders they trusted lied.” On Tuesday, he released 170,000 pages of records related to the aftermath of the attacks.`\
+https://www.nytimes.com/2026/09/08/nyregion/mamdani-air-quality-liars.html
+
 **Smithsonian Leader Is Resigning After Clashes With Trump**\
 `Also, OpenAI says it solved one of math’s “Millennium Problems.” Here’s the latest at the end of Tuesday.`\
 https://www.nytimes.com/2026/09/08/briefing/smithsonian-leader-resign-openai-math-problem.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/08/theater/stratford-festival-tempest-antoni-cim
 **Carney Says Retaliation Against U.S. Tariffs Was Unavoidable**\
 `In a video address, the prime minister said the United States was seeking “dependency, not a true economic partnership” from Canada.`\
 https://www.nytimes.com/2026/09/08/world/canada/carney-tariffs-trade.html
-
-**Trump’s Mail Voting Plan Is Coming to a Head. Here’s What to Know.**\
-`The administration’s plan to screen mail-in ballots remains blocked as the Supreme Court considers challenges to new U.S. Postal Service ballot rules.`\
-https://www.nytimes.com/2026/09/08/us/politics/trump-mail-voting-what-to-know-supreme-court.html
 
