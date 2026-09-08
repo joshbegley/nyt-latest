@@ -1,3 +1,7 @@
+**A Between-Seasons Playlist**\
+`Hear a Robyn remix, new Sharp Pins and one perfect song from Haruomi Hosono.`\
+https://www.nytimes.com/2026/09/08/arts/music/amplifier-playlist-haruomi-hosono-robyn.html
+
 **Trump Awards Medal of Freedom to Welles Crowther, the ‘Man in the Red Bandanna’**\
 `Welles Remy Crowther, an equity trader and volunteer firefighter, is credited with saving 18 people at the World Trade Center on Sept. 11 before being killed.`\
 https://www.nytimes.com/2026/09/08/us/politics/trump-welles-crowther-sept-11-red-bandanna.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/08/learning/lesson-plans/teach-with-on-this-day-
 **The Economic Fallout From a Potential Return to $100 Oil**\
 `Brent crude, the international benchmark for oil, is spiking again, reviving fears of inflation.`\
 https://www.nytimes.com/2026/09/08/business/dealbook/oil-inflation-markets.html
-
-**Who is Ahead in Georgia's 7th Congressional District?**\
-`Track the latest polls in Georgia's 7th Congressional District.`\
-https://www.nytimes.com/interactive/polls/georgia-us-house-7-polls-2026.html
 
