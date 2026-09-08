@@ -1,3 +1,7 @@
+**Amazon Plane Crash Starts Debate About Requiring a Buffer for Runways**\
+`A technology involving crushable concrete has been credited with saving nearly 500 passenger lives by helping halt planes that overshot their landings.`\
+https://www.nytimes.com/2026/09/07/us/miami-crash-emas-buffer-runways.html
+
 **The Case for Why Democrats Will Win the Midterms. And the Case for Republicans, Too.**\
 `President Trump’s low approval ratings along with historical trends point to a clear Democratic advantage in November. But Republicans also see some reasons for optimism.`\
 https://www.nytimes.com/interactive/2026/09/07/us/politics/midterm-elections-advantages.html
