@@ -1,3 +1,19 @@
+**Smithsonian Leader Is Resigning After Clashes With Trump**\
+`Also, OpenAI says it solved one of math’s “Millennium Problems.” Here’s the latest at the end of Tuesday.`\
+https://www.nytimes.com/2026/09/08/briefing/smithsonian-leader-resign-openai-math-problem.html
+
+**Trump Claims He Visited Ground Zero ‘Right After’ 9/11**\
+`During an event honoring victims who died on Sept. 11, 2001, President Trump tried to position himself close to the recovery efforts shortly after the attack. But first responders who were at ground zero and a biographer dispute his claims.`\
+https://www.nytimes.com/video/us/politics/100000011139844/trump-sept-11-terrorist-attacks-new-york.html
+
+**Is Trump a ‘Tuning Fork for the Future’?**\
+`Is Trump an aberration or a “tuning fork for the future” of politics? The political historian Anton Jäger discusses on “The Ezra Klein Show.”`\
+https://www.nytimes.com/video/opinion/100000011126421/is-trump-a-tuning-fork-for-the-future.html
+
+**The ‘Hyperpoliticization’ of American Politics**\
+`Anton Jäger argues on “The Ezra Klein Show” that we’re in a distinct era of “hyperpolitics” — where politics feels volatile, ubiquitous and intense, but is not securely attached to institutions and structures.`\
+https://www.nytimes.com/video/opinion/100000011126420/the-hyperpoliticization-of-american-politics.html
+
 **Canada’s Carney Doubles Down on Pivot Away from the United States**\
 `With tariffs on U.S. goods in effect and high-profile international engagements coming up, the Canadian leader keeps moving toward his goal.`\
 https://www.nytimes.com/2026/09/08/world/canada/carney-trump-canada-us-trade-war.html

@@ -1,3 +1,19 @@
+**Smithsonian Leader Is Resigning After Clashes With Trump**\
+`Also, OpenAI says it solved one of math’s “Millennium Problems.” Here’s the latest at the end of Tuesday.`\
+https://www.nytimes.com/2026/09/08/briefing/smithsonian-leader-resign-openai-math-problem.html
+
+**Trump Claims He Visited Ground Zero ‘Right After’ 9/11**\
+`During an event honoring victims who died on Sept. 11, 2001, President Trump tried to position himself close to the recovery efforts shortly after the attack. But first responders who were at ground zero and a biographer dispute his claims.`\
+https://www.nytimes.com/video/us/politics/100000011139844/trump-sept-11-terrorist-attacks-new-york.html
+
+**Is Trump a ‘Tuning Fork for the Future’?**\
+`Is Trump an aberration or a “tuning fork for the future” of politics? The political historian Anton Jäger discusses on “The Ezra Klein Show.”`\
+https://www.nytimes.com/video/opinion/100000011126421/is-trump-a-tuning-fork-for-the-future.html
+
+**The ‘Hyperpoliticization’ of American Politics**\
+`Anton Jäger argues on “The Ezra Klein Show” that we’re in a distinct era of “hyperpolitics” — where politics feels volatile, ubiquitous and intense, but is not securely attached to institutions and structures.`\
+https://www.nytimes.com/video/opinion/100000011126420/the-hyperpoliticization-of-american-politics.html
+
 **Canada’s Carney Doubles Down on Pivot Away from the United States**\
 `With tariffs on U.S. goods in effect and high-profile international engagements coming up, the Canadian leader keeps moving toward his goal.`\
 https://www.nytimes.com/2026/09/08/world/canada/carney-trump-canada-us-trade-war.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/es/2026/09/08/espanol/negocios/apple-iphone-plegable.htm
 **Introducing: Extra Credit**\
 `Our newsletter that helps college students get ahead — both inside and outside of class.`\
 https://www.nytimes.com/2026/09/08/briefing/introducing-extra-credit.html
-
-**U.S. to Loan $1.9 Billion to Restart a Shuttered Nuclear Plant in Iowa**\
-`No company in the United States has ever restarted a reactor that was seemingly closed for good, but there are now three major efforts underway to do so.`\
-https://www.nytimes.com/2026/09/08/climate/nuclear-plant-iowa-loan.html
-
-**Hungary Expels 10 Russian Diplomats, Signaling a Shift**\
-`The housecleaning puts the new government more in line with how European allies relate to Moscow, tempering cozy ties developed under Viktor Orban’s administration.`\
-https://www.nytimes.com/2026/09/08/world/europe/hungary-russia-diplomats-expulsion.html
-
-**Smithsonian’s Secretary to Resign as Trump Tries to Rule the Institution**\
-`In the face of escalating White House attacks about how museums present American history, Lonnie G. Bunch III has announced his decision to depart.`\
-https://www.nytimes.com/2026/09/08/arts/design/smithsonian-secretary-lonnie-bunch-resigns.html
-
-**Paxton Aide Turned Whistle-Blower Appears in Ad Endorsing His Rival, Talarico**\
-`David Maxwell was among the staffers in the Texas attorney general’s office who accused Ken Paxton of abusing the power of his office, allegations that led to his impeachment. Mr. Paxton was acquitted.`\
-https://www.nytimes.com/2026/09/08/us/politics/paxton-whistleblower-talarico-ad.html
 
