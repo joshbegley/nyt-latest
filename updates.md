@@ -1,3 +1,11 @@
+**Trump’s Latest Makeover Target? Space Force Uniforms.**\
+`The president designed a provocative new look for the next-gen Space Force ’fit.`\
+https://www.nytimes.com/2026/09/08/style/trump-space-force-uniforms-starship-troopers.html
+
+**At the Stratford Festival, Forgiveness Is a Power Move**\
+`For his final year as artistic director, Antoni Cimolino directs “The Tempest,” and like Prospero, he understands how to wield acts of kindness.`\
+https://www.nytimes.com/2026/09/08/theater/stratford-festival-tempest-antoni-cimolino.html
+
 **Carney Says Retaliation Against U.S. Tariffs Was Unavoidable**\
 `In a video address, the prime minister said the United States was seeking “dependency, not a true economic partnership” from Canada.`\
 https://www.nytimes.com/2026/09/08/world/canada/carney-tariffs-trade.html
