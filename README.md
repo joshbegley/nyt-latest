@@ -51,7 +51,7 @@ https://www.nytimes.com/2026/09/08/movies/elon-musk-film-alex-gibney-venice-film
 https://www.nytimes.com/2026/09/08/business/trump-media-truth-social-etf.html
 
 **Trump’s Latest Makeover Target? Space Force Uniforms.**\
-`The president designed a provocative new look for the next-gen Space Force ’fit.`\
+`The president shared a provocative new look for the next-gen Space Force ’fit.`\
 https://www.nytimes.com/2026/09/08/style/trump-space-force-uniforms-starship-troopers.html
 
 **At the Stratford Festival, Forgiveness Is a Power Move**\
