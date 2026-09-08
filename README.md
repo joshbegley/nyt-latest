@@ -1,3 +1,7 @@
+**Tropical Storm Brings Big Waves to Southern California’s Coasts**\
+`Big waves driven by a deteriorating tropical storm crashed along the Southern California coast over the holiday weekend.`\
+https://www.nytimes.com/video/weather/100000011139392/hurricane-marie-southern-california-waves.html
+
 **Chinese Threat Requires a Broader Spying Mission, C.I.A. Deputy Director Says**\
 `China’s economic competition with the United States makes Chinese companies a legitimate target, the agency’s deputy director, Michael Ellis, said at a conference.`\
 https://www.nytimes.com/2026/09/08/us/politics/cia-deputy-director-china.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/08/style/us-open-tennis-influencers-style.html
 **Keep Lighting the Torches That Gloria Steinem Lit**\
 `Readers continue offering tributes to the feminist icon, who died last week. Also: Reducing gun violence; curbing A.I. in schools.`\
 https://www.nytimes.com/2026/09/08/opinion/gloria-steinem.html
-
-**What Is Navier-Stokes, the ‘Millennium’ Math Problem OpenAI Claims to Have Solved?**\
-`OpenAI announced today that it had solved the problem, one of seven “Millennium Problems” seen as among the most important in higher mathematics.`\
-https://www.nytimes.com/2026/09/08/science/what-is-navier-stokes.html
 
