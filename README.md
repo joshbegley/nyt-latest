@@ -1,3 +1,7 @@
+**Trump Awards Medal of Freedom to Welles Crowther, the ‘Man in the Red Bandanna’**\
+`Welles Remy Crowther, an equity trader and volunteer firefighter, is credited with saving 18 people at the World Trade Center on Sept. 11 before being killed.`\
+https://www.nytimes.com/2026/09/08/us/politics/trump-welles-crowther-sept-11-red-bandanna.html
+
 **After Causing Delays for 9/11 Health Claims, Social Security Pledges to Do Its Job**\
 `Lawyers say the Social Security Administration has for months not provided basic data to complete compensation claims for those sick and dying after exposure to debris from the Sept. 11 attacks.`\
 https://www.nytimes.com/2026/09/08/us/politics/9-11-fund-health-claims-social-security.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/08/business/dealbook/oil-inflation-markets.html
 **Who is Ahead in Georgia's 7th Congressional District?**\
 `Track the latest polls in Georgia's 7th Congressional District.`\
 https://www.nytimes.com/interactive/polls/georgia-us-house-7-polls-2026.html
-
-**Bombardier, a Canadian Jet Maker, Is One Target in Trump’s Trade War**\
-`The Montreal-based company’s share price dropped after President Trump threatened to bar it from selling in the United States.`\
-https://www.nytimes.com/2026/09/08/business/bombardier-trump-canada-us-sales-planes.html
 
