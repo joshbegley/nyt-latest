@@ -1,5 +1,9 @@
-**The Musician Eartheater Believes It’s Not a Meal Without Potatoes**\
-`“A really good, creative, interesting potato gets my heart thumping.”`\
+**Trump’s Mail Voting Plan Is Coming to a Head. Here’s What to Know.**\
+`The administration’s plan to screen mail-in ballots remains blocked as the Supreme Court considers challenges to new U.S. Postal Service ballot rules.`\
+https://www.nytimes.com/2026/09/08/us/politics/trump-mail-voting-what-to-know-supreme-court.html
+
+**This Electronic Musician Believes It’s Not a Meal Without Potatoes**\
+`“A really good, creative, interesting potato gets my heart thumping” says the New York-based artist Eartheater.`\
 https://www.nytimes.com/2026/09/08/dining/musician-eartheater.html
 
 **Apple lanza el primer gran cambio a los iPhone en años**\
@@ -70,7 +74,7 @@ https://www.nytimes.com/2026/09/08/world/europe/iceland-summon-ambassador-trump-
 `A year after the Trump administration laid out its plan to improve the health of American children, we examine where those efforts stand.`\
 https://www.nytimes.com/2026/09/08/well/rfk-jr-maha-report-childrens-health.html
 
-**‘Pitchforks Are Going to Come Out’: PAC Aims to Spur Action on A.I.**\
+**‘Democrats Are Behind’: PAC Wants Party to Catch Up on A.I.**\
 `The group is starting with more than $10 million and says it intends to support midterm House candidates in swing states.`\
 https://www.nytimes.com/2026/09/08/us/politics/democrats-ai-pac.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/08/briefing/us-canada-trade-war.html
 **Eiffel Tower Workers Strike, Saying Women Were Excluded From Hindu Group’s Visit**\
 `The tower was closed on Monday, after the workers’ union said female staff had been asked to leave their stations for a visit from a group known as BAPS.`\
 https://www.nytimes.com/2026/09/08/world/europe/paris-eiffel-tower-closed-strike-hindu-temple.html
-
-**UK Imposes Sanctions on Israeli Settlements in West Bank, Accuses Settlers of Ethnic Cleansing**\
-`Britain said Israel had “turned a blind eye” to violence against Palestinians by extremist settlers, as it joined allies in announcing a ban on trade with illegal settlements.`\
-https://www.nytimes.com/2026/09/08/world/europe/uk-sanctions-israel-west-bank-settlements.html
 

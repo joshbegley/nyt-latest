@@ -1,3 +1,15 @@
+**Trump’s Mail Voting Plan Is Coming to a Head. Here’s What to Know.**\
+`The administration’s plan to screen mail-in ballots remains blocked as the Supreme Court considers challenges to new U.S. Postal Service ballot rules.`\
+https://www.nytimes.com/2026/09/08/us/politics/trump-mail-voting-what-to-know-supreme-court.html
+
+**This Electronic Musician Believes It’s Not a Meal Without Potatoes**\
+`“A really good, creative, interesting potato gets my heart thumping” says the New York-based artist Eartheater.`\
+https://www.nytimes.com/2026/09/08/dining/musician-eartheater.html
+
+**‘Democrats Are Behind’: PAC Wants Party to Catch Up on A.I.**\
+`The group is starting with more than $10 million and says it intends to support midterm House candidates in swing states.`\
+https://www.nytimes.com/2026/09/08/us/politics/democrats-ai-pac.html
+
 **The Musician Eartheater Believes It’s Not a Meal Without Potatoes**\
 `“A really good, creative, interesting potato gets my heart thumping.”`\
 https://www.nytimes.com/2026/09/08/dining/musician-eartheater.html

@@ -147,7 +147,7 @@ https://www.nytimes.com/2026/09/08/business/dealbook/oil-inflation-markets.html
 https://www.nytimes.com/interactive/polls/georgia-us-house-7-polls-2026.html
 
 **Bombardier, a Canadian Jet Maker, Is One Target in Trump’s Trade War**\
-`The Montreal-based manufacturer has been embroiled in U.S. trade disputes before. President Trump threatened to bar the company from selling in the United States.`\
+`The Montreal-based company’s share price dropped after President Trump threatened to bar it from selling in the United States.`\
 https://www.nytimes.com/2026/09/08/business/bombardier-trump-canada-us-sales-planes.html
 
 **¿Se puede contener a la extrema derecha alemana?**\
