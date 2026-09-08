@@ -1,3 +1,7 @@
+**Oil Climbs Toward $100 a Barrel Following Houthi Attacks**\
+`Analysts said they expected the price of Brent crude, the international benchmark, to remain elevated for the rest of the year.`\
+https://www.nytimes.com/2026/09/08/business/oil-prices-iran-war.html
+
 **Nothing Compares to Her: A Dance Love Letter to Sinead O’Connor**\
 `The choreographer Sonya Tayeh’s “The Surge” is a dance response to themes in O’Connor’s life: spirituality, identity and what Tayeh calls jrage, or joy and rage.`\
 https://www.nytimes.com/2026/09/08/arts/dance/sinead-oconnor-sonya-tayeh-the-surge-joyce-theater.html
@@ -94,7 +98,7 @@ https://www.nytimes.com/2026/09/08/us/politics/calif-ai-worm-wechat-hack.html
 `William Lawrence, a progressive challenging a first-term Republican, is trying to rewrite the playbook for Democrats running in swing districts.`\
 https://www.nytimes.com/2026/09/08/us/politics/lawrence-barrett-michigan-house-seat.html
 
-**The Democratic Party Is Afraid of Its Own Voters**\
+**Voters Have Spoken. Why Aren’t Democrats Listening?**\
 `Less than two years after a catastrophic election, the Democratic brand remains unpopular, and the party is still in the grip of a divisive identity crisis.`\
 https://www.nytimes.com/2026/09/08/opinion/democrats-midterms.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/08/learning/word-of-the-day-tertiary.html
 **Book Review: ‘The Pirate Queen,’ by Ariel Lawhon**\
 `In a new novel, the author Ariel Lawhon revives a 16th-century sea captain previously pushed to the margins.`\
 https://www.nytimes.com/2026/09/08/books/review/the-pirate-queen-ariel-lawhon.html
-
-**Book Review: ‘Money to Burn,’ by William D. Cohan**\
-`In “Money to Burn,” William D. Cohan charts the rise and fall of the Wall Street billionaire Leon Black.`\
-https://www.nytimes.com/2026/09/08/books/review/money-to-burn-william-d-cohan.html
 

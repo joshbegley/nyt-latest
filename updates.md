@@ -1,3 +1,11 @@
+**Oil Climbs Toward $100 a Barrel Following Houthi Attacks**\
+`Analysts said they expected the price of Brent crude, the international benchmark, to remain elevated for the rest of the year.`\
+https://www.nytimes.com/2026/09/08/business/oil-prices-iran-war.html
+
+**Voters Have Spoken. Why Aren’t Democrats Listening?**\
+`Less than two years after a catastrophic election, the Democratic brand remains unpopular, and the party is still in the grip of a divisive identity crisis.`\
+https://www.nytimes.com/2026/09/08/opinion/democrats-midterms.html
+
 **Nothing Compares to Her: A Dance Love Letter to Sinead O’Connor**\
 `The choreographer Sonya Tayeh’s “The Surge” is a dance response to themes in O’Connor’s life: spirituality, identity and what Tayeh calls jrage, or joy and rage.`\
 https://www.nytimes.com/2026/09/08/arts/dance/sinead-oconnor-sonya-tayeh-the-surge-joyce-theater.html
