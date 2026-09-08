@@ -1,3 +1,23 @@
+**Why the Pentagon Is Doing Polygraphs, and Officials Prepare to Release Huge Set of 9/11 Documents**\
+`Plus, could crushable concrete stop the next plane crash?`\
+https://www.nytimes.com/2026/09/08/podcasts/the-headlines/pentagon-polygraphs-9-11-documents-crushable-concrete.html
+
+**‘Buy Now, Pay Later’: A New Wave of Consumer Debt**\
+`Americans are increasingly using the loan model for everyday essentials.`\
+https://www.nytimes.com/2026/09/08/podcasts/the-daily/consumer-debt-financing-apps.html
+
+**NYT Connections Answers for September 9, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Sept. 9, 2026.`\
+https://www.nytimes.com/2026/09/08/crosswords/connections-companion-1186.html
+
+**NYT Strands Hints for September 9, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Sept. 9, 2026.`\
+https://www.nytimes.com/2026/09/08/crosswords/strands-sidekick-920.html
+
+**Today’s Wordle Hints for September 9, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Sept. 9, 2026.`\
+https://www.nytimes.com/2026/09/08/crosswords/wordle-review-1908.html
+
 **A Far-Right Win Puts New Pressure on Germany’s Leader**\
 `Chancellor Friedrich Merz was a drag on his conservative party in its disastrous loss to the far right in a state election. He has vowed better communication, but no policy changes.`\
 https://www.nytimes.com/2026/09/08/world/europe/germany-merz-pressure-afd.html
@@ -173,24 +193,4 @@ https://www.nytimes.com/2026/09/08/realestate/corsica-separatists-vacation-home-
 **Sinead O’Connor and Oscar Wilde Ballets and More Dance This Fall**\
 `Also this season, the return of Balanchine’s “Pithoprakta” at New York City Ballet, a choreographer guides audiences on a nature hike, and reflections on this American moment.`\
 https://www.nytimes.com/2026/09/08/arts/dance/fall-dance-performances-festivals.html
-
-**For People Who Live in Cemeteries, the Scariest Thing May Be the Puns**\
-`Occupants of “houses to die for” say the advantages go beyond quiet neighbors.`\
-https://www.nytimes.com/2026/09/08/realestate/homes-in-cemeteries.html
-
-**Dudamel in Command, a ‘Macbeth’ Opera and Steve Reich Coming This Fall**\
-`Also this season, the Berlin Philharmonic comes to Carnegie Hall, “Lincoln in the Bardo” arrives at the Metropolitan Opera and dueling “Toscas.”`\
-https://www.nytimes.com/2026/09/08/arts/music/fall-classical-performances-dudamel-macbeth.html
-
-**Seaweed Is Their Way of Life. A Company’s Sweeping Plan Threatens It.**\
-`As global demand for seaweed surges, a Canadian corporation’s bid for exclusive harvesting rights in the west of Ireland has upended a once-sleepy industry.`\
-https://www.nytimes.com/2026/09/08/world/europe/ireland-seaweed-harvesting.html
-
-**29 Nonfiction Books Coming This Fall**\
-`Memoirs, biographies, true crime, history and more.`\
-https://www.nytimes.com/2026/09/08/books/review/new-nonfiction-books-this-fall.html
-
-**35 Novels Coming This Fall**\
-`New fiction from Marlon James, Barbara Kingsolver, John Green, John Grisham and much more.`\
-https://www.nytimes.com/2026/09/08/books/review/new-novels-coming-this-fall.html
 

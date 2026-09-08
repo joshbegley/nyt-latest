@@ -1,3 +1,23 @@
+**Why the Pentagon Is Doing Polygraphs, and Officials Prepare to Release Huge Set of 9/11 Documents**\
+`Plus, could crushable concrete stop the next plane crash?`\
+https://www.nytimes.com/2026/09/08/podcasts/the-headlines/pentagon-polygraphs-9-11-documents-crushable-concrete.html
+
+**‘Buy Now, Pay Later’: A New Wave of Consumer Debt**\
+`Americans are increasingly using the loan model for everyday essentials.`\
+https://www.nytimes.com/2026/09/08/podcasts/the-daily/consumer-debt-financing-apps.html
+
+**NYT Connections Answers for September 9, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Sept. 9, 2026.`\
+https://www.nytimes.com/2026/09/08/crosswords/connections-companion-1186.html
+
+**NYT Strands Hints for September 9, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Sept. 9, 2026.`\
+https://www.nytimes.com/2026/09/08/crosswords/strands-sidekick-920.html
+
+**Today’s Wordle Hints for September 9, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Sept. 9, 2026.`\
+https://www.nytimes.com/2026/09/08/crosswords/wordle-review-1908.html
+
 **A Far-Right Win Puts New Pressure on Germany’s Leader**\
 `Chancellor Friedrich Merz was a drag on his conservative party in its disastrous loss to the far right in a state election. He has vowed better communication, but no policy changes.`\
 https://www.nytimes.com/2026/09/08/world/europe/germany-merz-pressure-afd.html
