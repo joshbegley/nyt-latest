@@ -1,3 +1,15 @@
+**Canada Imposes New Tariffs on U.S. Goods, as Trade War Intensifies**\
+`The duties are a retaliation against President Trump’s recent tariffs, raising concerns about further escalation.`\
+https://www.nytimes.com/2026/09/08/business/canada-tariffs-trump.html
+
+**Quote of the Day: It’s Not the Heat, but the Humidity That Cuts Short a Wrigley Showcase**\
+`Quotation of the Day for Tuesday, September 8, 2026.`\
+https://www.nytimes.com/2026/09/08/pageoneplus/quote-of-the-day-its-not-the-heat-but-the-humidity-that-cuts-short-a-wrigley-showcase.html
+
+**Online Posts Show Families’ Grief for Flood Victims on Tibet’s Side of China-Nepal Border**\
+`The authorities have not released an official list of those missing in the Tibet flood, creating an information void that people have tried to fill.`\
+https://www.nytimes.com/2026/09/08/world/asia/china-nepal-border-flood-tibet-victims-messages.html
+
 **After 9/11, Documents Suggest New Yorkers Were Misled About Air Quality**\
 `The Mamdani administration is releasing more than 170,000 pages of documents related to the air quality around the World Trade Center site in the months after the Sept. 11 attacks.`\
 https://www.nytimes.com/2026/09/07/nyregion/sept-11-air-quality-cancer.html
