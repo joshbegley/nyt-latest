@@ -1,3 +1,27 @@
+**The Musician Eartheater Believes It’s Not a Meal Without Potatoes**\
+`“A really good, creative, interesting potato gets my heart thumping.”`\
+https://www.nytimes.com/2026/09/08/dining/musician-eartheater.html
+
+**Apple lanza el primer gran cambio a los iPhone en años**\
+`Los seguidores de la empresa creen que el miércoles Apple revelará un teléfono inteligente plegable que pondrá a prueba su capacidad para llevar productos y tecnologías de nicho al público general.`\
+https://www.nytimes.com/es/2026/09/08/espanol/negocios/apple-iphone-plegable.html
+
+**Introducing: Extra Credit**\
+`Our newsletter that helps college students get ahead — both inside and outside of class.`\
+https://www.nytimes.com/2026/09/08/briefing/introducing-extra-credit.html
+
+**U.S. to Loan $1.9 Billion to Restart a Shuttered Nuclear Plant in Iowa**\
+`No company in the United States has ever restarted a reactor that was seemingly closed for good, but there are now three major efforts underway to do so.`\
+https://www.nytimes.com/2026/09/08/climate/nuclear-plant-iowa-loan.html
+
+**Smithsonian’s Secretary to Resign as Trump Tries to Rule the Institution**\
+`In the face of escalating White House attacks about how museums present American history, Lonnie G. Bunch III has announced his decision to depart.`\
+https://www.nytimes.com/2026/09/08/arts/design/smithsonian-secretary-lonnie-bunch-resigns.html
+
+**Trump Honors 9/11 Emergency Personnel in Washington**\
+`President Trump awarded the Presidential Medal of Freedom posthumously to a volunteer firefighter who saved numerous people. He also added to a disputed account of his actions that day.`\
+https://www.nytimes.com/live/2026/09/08/us/trump-news-sept-11
+
 **Hungary Expels 10 Russian Diplomats, Signaling a Shift**\
 `The housecleaning puts the new government more in line with how European allies relate to Moscow, tempering cozy ties developed under Viktor Orban’s administration.`\
 https://www.nytimes.com/2026/09/08/world/europe/hungary-russia-diplomats-expulsion.html
