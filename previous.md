@@ -1,8 +1,12 @@
+**Canada’s Carney Doubles Down on Pivot Away from the United States**\
+`With tariffs on U.S. goods in effect and high-profile international engagements coming up, the Canadian leader keeps moving toward his goal.`\
+https://www.nytimes.com/2026/09/08/world/canada/carney-trump-canada-us-trade-war.html
+
 **Kevin Reacts to OpenAI’s Recent Cybersecurity Incident**\
 `Several weeks after OpenAI’s chatbots attacked the company Hugging Face, the “Hard Fork” co-hosts Kevin Roose and Casey Newton reflect on the incident and what it means for A.I. development more broadly.`\
 https://www.nytimes.com/video/podcasts/100000011140232/kevin-reacts-to-openais-recent-cybersecurity-incident.html
 
-**Before October 7 Attack, Netanyahu Was Warned, Report Says. He Denies It.**\
+**Before Oct. 7 Attack, Netanyahu Was Warned, Report Says. He Denies It.**\
 `Prime Minister Benjamin Netanyahu’s office denied the report in Haaretz that the Emirati president had warned him Hamas was planning a major operation against Israel.`\
 https://www.nytimes.com/2026/09/08/world/middleeast/israel-netanyahu-2023-hamas-attack.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/08/arts/design/smithsonian-secretary-lonnie-bunc
 **Paxton Aide Turned Whistle-Blower Appears in Ad Endorsing His Rival, Talarico**\
 `David Maxwell was among the staffers in the Texas attorney general’s office who accused Ken Paxton of abusing the power of his office, allegations that led to his impeachment. Mr. Paxton was acquitted.`\
 https://www.nytimes.com/2026/09/08/us/politics/paxton-whistleblower-talarico-ad.html
-
-**Canadá impone nuevos aranceles a productos de EE. UU.**\
-`Los aranceles son una represalia contra los recientes aranceles del presidente Trump, lo que genera preocupaciones sobre tensiones mayores.`\
-https://www.nytimes.com/es/2026/09/08/espanol/estados-unidos/canada-aranceles-trump.html
 
