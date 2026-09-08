@@ -1,3 +1,7 @@
+**Russia Strikes Kyiv After Trump Envoys Leave**\
+`Russia launched a wave of deadly overnight strikes on Ukraine’s capital hours after President Trump’s envoys left. The envoys had visited Moscow and Kyiv over the weekend in a bid to restart stalled peace talks.`\
+https://www.nytimes.com/video/world/europe/100000011138269/russia-strikes-kyiv-trump-envoys.html
+
 **A Trade War**\
 `We look at escalating tensions between the United States and Canada.`\
 https://www.nytimes.com/2026/09/08/briefing/us-canada-trade-war.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/08/theater/fantasticks-broadway-longest-running-
 **‘Yellowface’ Author R.F. Kuang’s 5 Favorite Places in Taipei**\
 `The experiences Ms. Kuang had during a summer spent studying Mandarin in the Taiwanese capital helped her shape her newest novel, “Taipei Story.”`\
 https://www.nytimes.com/2026/09/08/travel/rf-kuang-taipei-things-to-do.html
-
-**In Cabo San Lucas, a Desert Oasis Gets a Refresh Decades Later**\
-`How Margie Ruddick reimagined the garden she designed for a ‘martini modern’ house in Cabo San Lucas.`\
-https://www.nytimes.com/2026/09/08/garden/cabo-san-lucas-garden-margie-ruddick.html
 

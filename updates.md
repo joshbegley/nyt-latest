@@ -1,3 +1,7 @@
+**A Trade War**\
+`We look at escalating tensions between the United States and Canada.`\
+https://www.nytimes.com/2026/09/08/briefing/us-canada-trade-war.html
+
 **Eiffel Tower Workers Strike, Saying Women Were Excluded From Hindu Group’s Visit**\
 `The tower was closed on Monday, after the workers’ union said female staff had been asked to leave their stations for a visit from a group known as BAPS.`\
 https://www.nytimes.com/2026/09/08/world/europe/paris-eiffel-tower-closed-strike-hindu-temple.html
