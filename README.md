@@ -1,3 +1,15 @@
+**Canada Imposes New Tariffs on U.S. Goods, as Trade War Intensifies**\
+`The duties are a retaliation against President Trump’s recent tariffs, raising concerns about further escalation.`\
+https://www.nytimes.com/2026/09/08/business/canada-tariffs-trump.html
+
+**Quote of the Day: It’s Not the Heat, but the Humidity That Cuts Short a Wrigley Showcase**\
+`Quotation of the Day for Tuesday, September 8, 2026.`\
+https://www.nytimes.com/2026/09/08/pageoneplus/quote-of-the-day-its-not-the-heat-but-the-humidity-that-cuts-short-a-wrigley-showcase.html
+
+**Online Posts Show Families’ Grief for Flood Victims on Tibet’s Side of China-Nepal Border**\
+`The authorities have not released an official list of those missing in the Tibet flood, creating an information void that people have tried to fill.`\
+https://www.nytimes.com/2026/09/08/world/asia/china-nepal-border-flood-tibet-victims-messages.html
+
 **NYT Crossword Answers for Sept. 8, 2026**\
 `Sunny Maharjan makes his New York Times Crossword debut.`\
 https://www.nytimes.com/2026/09/07/crosswords/daily-puzzle-2026-09-08.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/09/07/crosswords/connections-companion-1185.html
 **NYT Strands Hints for September 8, 2026**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, Sept. 8, 2026.`\
 https://www.nytimes.com/2026/09/07/crosswords/strands-sidekick-919.html
-
-**Today’s Wordle Hints for September 8, 2026**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, Sept. 8, 2026.`\
-https://www.nytimes.com/2026/09/07/crosswords/wordle-review-1907.html
-
-**Virtual Taekwondo Takes the Contact Out of a Combat Sport**\
-`The contactless version of the Korean martial art is making its debut at this year’s Asian Games. Critics say it’s a glorified video game.`\
-https://www.nytimes.com/2026/09/07/sports/virtual-taekwondo-asian-games.html
-
-**Virtual Taekwondo to Make Debut at Asian Games**\
-`Virtual Taekwondo will make its debut at this year’s Asian Games. Taekwondo’s governing body hailed the virtual competition as a new frontier for the martial art.`\
-https://www.nytimes.com/video/world/asia/100000011055093/virtual-taekwondo-asian-games-e-sports.html
 
