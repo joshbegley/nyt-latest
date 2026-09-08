@@ -1,3 +1,11 @@
+**Democracy Is on the Ballot in Both America’s and Israel’s Elections**\
+`Israel and the United States each hold elections one week apart in the fall. The fate of their democracies lies in the balance.`\
+https://www.nytimes.com/2026/09/08/opinion/israel-us-elections-midterms-netanyahu-trump.html
+
+**At 9/11 Tribute, Trump Adds New Claim To His Disputed Role After Attack**\
+`President Trump has long sought to position himself close to the Sept. 11 recovery effort and has made a series of questionable and provocative statements to burnish his political brand.`\
+https://www.nytimes.com/2026/09/08/us/politics/trump-sept-11-firefighters.html
+
 **‘I’m Here Looking for My Mam-daddy’**\
 `Inside a singles mixer for the New York City chapter of the Democratic Socialists of America, where its sweaty members were looking for love. If only they could hear one another.`\
 https://www.nytimes.com/2026/09/08/style/dsa-nyc-socialist-singles-mixer.html
