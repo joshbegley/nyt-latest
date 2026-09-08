@@ -1,8 +1,12 @@
+**El choque aéreo en Miami y las zonas de amortiguación en las pistas**\
+`Una tecnología que utiliza concreto triturable ha sido reconocida por salvar la vida de casi 500 pasajeros al ayudar a detener aviones que se salieron de la pista al aterrizar.`\
+https://www.nytimes.com/es/2026/09/08/espanol/estados-unidos/avion-amazon-miami.html
+
 **Pritzker, Eyeing 2028, to Help Midterm Democrats With a $20 Million Group**\
 `JB Pritzker, the billionaire governor of Illinois, is continuing to expand his national footprint, this time by using a new group to target Republicans in battleground races.`\
 https://www.nytimes.com/2026/09/08/us/politics/jb-pritzker-2028-brandon-herrera-max-miller.html
 
-**Influencers Didn’t Ruin the U.S. Open. They Just Made it More Boring**\
+**Influencers Didn’t Ruin the U.S. Open. They Just Made It More Boring.**\
 `Plus: a red carpet winner, and your thoughts on who counts as a fashion genius.`\
 https://www.nytimes.com/2026/09/08/style/us-open-tennis-influencers-style.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/08/business/bombardier-trump-canada-us-sales-pla
 **¿Se puede contener a la extrema derecha alemana?**\
 `La victoria del AfD en unas elecciones estatales está obligando a repensar la estrategia de posguerra del país para salvaguardar la democracia.`\
 https://www.nytimes.com/es/2026/09/08/espanol/mundo/alemania-elecciones-derecha-afd.html
-
-**Do You Know These Classic Novels and Their Modern Film Versions?**\
-`Did you skip the book and watch the movie instead? Test your memory of both with this short quiz.`\
-https://www.nytimes.com/quiz/2026/09/08/bookreview/classic-book-adaptations.html
 

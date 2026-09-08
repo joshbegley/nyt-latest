@@ -1,3 +1,15 @@
+**Pritzker, Eyeing 2028, to Help Midterm Democrats With a $20 Million Group**\
+`JB Pritzker, the billionaire governor of Illinois, is continuing to expand his national footprint, this time by using a new group to target Republicans in battleground races.`\
+https://www.nytimes.com/2026/09/08/us/politics/jb-pritzker-2028-brandon-herrera-max-miller.html
+
+**Influencers Didn’t Ruin the U.S. Open. They Just Made it More Boring**\
+`Plus: a red carpet winner, and your thoughts on who counts as a fashion genius.`\
+https://www.nytimes.com/2026/09/08/style/us-open-tennis-influencers-style.html
+
+**Patrick Clancy Plans Legal Action Against ‘Relentless’ Harassment and Conspiracy Theories**\
+`Patrick Clancy’s lawyer said that he would seek help from the authorities in response to conspiracy theorists who have accused him killing his children and framing Ms. Clancy.`\
+https://www.nytimes.com/2026/09/08/us/patrick-clancy-harrassment-legal-action.html
+
 **What Is Navier-Stokes, the ‘Millennium’ Math Problem OpenAI Claims to Have Solved?**\
 `OpenAI announced today that it had solved the problem, one of seven “Millennium Problems” seen as among the most important in higher mathematics.`\
 https://www.nytimes.com/2026/09/08/science/what-is-navier-stokes.html
