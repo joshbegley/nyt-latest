@@ -1,3 +1,7 @@
+**Who Is Ahead in the Lexington, Ky., Mayor Race? Latest 2026 Polls**\
+`Track the latest polls in the Lexington, Ky., mayoral election.`\
+https://www.nytimes.com/interactive/polls/lexington-kentucky-mayor-election-polls-2026.html
+
 **Supermarket Manager Rescues Toddler From Traffic**\
 `A supermarket in Puebla, Mexico, honored a manager for a dramatic, last-second rescue of a toddler running toward a busy road.`\
 https://www.nytimes.com/video/world/americas/100000011138476/supermarket-toddler-traffic-rescue-mexico.html
@@ -79,7 +83,7 @@ https://www.nytimes.com/2026/09/08/briefing/us-canada-trade-war.html
 https://www.nytimes.com/2026/09/08/world/europe/paris-eiffel-tower-closed-strike-hindu-temple.html
 
 **UK Imposes Sanctions on Israeli Settlements in West Bank, Accuses Settlers of Ethnic Cleansing**\
-`Ed Miliband, the U.K. foreign secretary, said Britain believes there is ethnic cleansing of Palestinians in areas of the West Bank, and will ban goods from illegal settlements.`\
+`The U.K. said Israel had “turned a blind eye” to violence against  Palestinians by extremist settlers, as it and other countries announced a ban on trade with illegal settlements.`\
 https://www.nytimes.com/2026/09/08/world/europe/uk-sanctions-israel-west-bank-settlements.html
 
 **Why the Pentagon Is Doing Polygraphs, and Officials Prepare to Release Huge Set of 9/11 Documents**\

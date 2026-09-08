@@ -1,3 +1,11 @@
+**Who Is Ahead in the Lexington, Ky., Mayor Race? Latest 2026 Polls**\
+`Track the latest polls in the Lexington, Ky., mayoral election.`\
+https://www.nytimes.com/interactive/polls/lexington-kentucky-mayor-election-polls-2026.html
+
+**UK Imposes Sanctions on Israeli Settlements in West Bank, Accuses Settlers of Ethnic Cleansing**\
+`The U.K. said Israel had “turned a blind eye” to violence against  Palestinians by extremist settlers, as it and other countries announced a ban on trade with illegal settlements.`\
+https://www.nytimes.com/2026/09/08/world/europe/uk-sanctions-israel-west-bank-settlements.html
+
 **Supermarket Manager Rescues Toddler From Traffic**\
 `A supermarket in Puebla, Mexico, honored a manager for a dramatic, last-second rescue of a toddler running toward a busy road.`\
 https://www.nytimes.com/video/world/americas/100000011138476/supermarket-toddler-traffic-rescue-mexico.html
