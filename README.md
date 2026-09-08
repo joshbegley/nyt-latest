@@ -42,8 +42,8 @@ https://www.nytimes.com/2026/09/08/nyregion/sam-nordquist-transgender-man-murder
 `A political group for the world’s richest man, who is ramping up a midterm spending blitz, began running attack ads against Democrats in Texas, Ohio and Iowa.`\
 https://www.nytimes.com/2026/09/08/us/politics/elon-musk-transgender-midterms-democrats.html
 
-**Justice Kavanaugh Blocks Missouri Voting Map Benefiting Republicans**\
-`Missouri’s Supreme Court blocked election officials from using a new congressional map, saying voters must first approve the district lines in a statewide referendum.`\
+**Diverging Court Rulings Leave Missouri’s Congressional Map Unclear**\
+`After losing in two courts and winning in another, Missouri officials said they planned to forge ahead with using a congressional map that was redrawn to benefit Republicans.`\
 https://www.nytimes.com/2026/09/08/us/politics/supreme-court-missouri-congressional-map.html
 
 **Trump Claims He Visited Ground Zero ‘Right After’ 9/11**\

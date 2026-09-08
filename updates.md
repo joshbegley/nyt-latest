@@ -1,3 +1,11 @@
+**U.S. Hits 5 Iranian Oil Tankers, Citing Attempted Strikes on Warship**\
+`Iran said it had retaliated by launching missiles at Jordan, raising the specter of still more fighting.`\
+https://www.nytimes.com/2026/09/08/world/middleeast/us-strikes-iran-tankers.html
+
+**At 9/11 Tribute, Trump Adds New Claim to His Disputed Role After Attack**\
+`President Trump has long sought to position himself close to the Sept. 11 recovery effort and has made a series of questionable and provocative statements to burnish his political brand.`\
+https://www.nytimes.com/2026/09/08/us/politics/trump-sept-11-firefighters.html
+
 **Tropical Storm Brings Big Waves to Southern California’s Coasts**\
 `Big waves driven by a deteriorating tropical storm crashed along the Southern California coast over the holiday weekend.`\
 https://www.nytimes.com/video/weather/100000011139392/hurricane-marie-southern-california-waves.html
