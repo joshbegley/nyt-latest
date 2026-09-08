@@ -1,3 +1,7 @@
+**US Open Day 9: Comeback Queen**\
+`Olympic Gold medalist Qinwen Zheng won a set from 0-5 down for a second match in a row to knock out Iga Swiatek.`\
+https://www.nytimes.com/2026/09/08/podcasts/us-open-zheng-tennis.html
+
 **Chinese Ship Takes Arctic Shortcut: Smart Business? Or a Political Flex?**\
 `Melting ice is opening a trade route through the Arctic. China has begun the first regular service, part of its polar ambitions.`\
 https://www.nytimes.com/2026/09/08/world/europe/china-arctic-shipping-trade-route.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/07/dining/sardines-and-beans-add-delicious-prote
 **Trump’s Trade War Is Shaping the Fight for Congress**\
 `In Colorado and across the country, higher costs, tariffs and cheap beef imports are affecting voters who will help determine which party controls the House next year.`\
 https://www.nytimes.com/2026/09/07/us/trump-tariffs-iran-congress-colorado.html
-
-**Un avión de carga de Amazon se despista en Miami: lo que hay que saber**\
-`El avión operaba como parte de la flota de carga de Amazon y había volado desde Puerto Rico. El incidente obligó al aeropuerto a cerrar todas las pistas en pleno fin de semana del Día del Trabajo.`\
-https://www.nytimes.com/es/2026/09/07/espanol/estados-unidos/miami-avion-amazon.html
 

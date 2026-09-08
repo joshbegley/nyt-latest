@@ -1,3 +1,7 @@
+**Chinese Ship Takes Arctic Shortcut: Smart Business? Or a Political Flex?**\
+`Melting ice is opening a trade route through the Arctic. China has begun the first regular service, part of its polar ambitions.`\
+https://www.nytimes.com/2026/09/08/world/europe/china-arctic-shipping-trade-route.html
+
 **Thieves Steal Three Artworks From Renoir Museum in France**\
 `Almost a year after the brazen Louvre heist, thieves targeted a Renoir museum that was formerly his last home in the south of France.`\
 https://www.nytimes.com/2026/09/08/arts/renoir-museum-artworks-theft-france.html

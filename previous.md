@@ -1,3 +1,7 @@
+**Chinese Ship Takes Arctic Shortcut: Smart Business? Or a Political Flex?**\
+`Melting ice is opening a trade route through the Arctic. China has begun the first regular service, part of its polar ambitions.`\
+https://www.nytimes.com/2026/09/08/world/europe/china-arctic-shipping-trade-route.html
+
 **Thieves Steal Three Artworks From Renoir Museum in France**\
 `Almost a year after the brazen Louvre heist, thieves targeted a Renoir museum that was formerly his last home in the south of France.`\
 https://www.nytimes.com/2026/09/08/arts/renoir-museum-artworks-theft-france.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/07/us/trump-tariffs-iran-congress-colorado.html
 **Un avión de carga de Amazon se despista en Miami: lo que hay que saber**\
 `El avión operaba como parte de la flota de carga de Amazon y había volado desde Puerto Rico. El incidente obligó al aeropuerto a cerrar todas las pistas en pleno fin de semana del Día del Trabajo.`\
 https://www.nytimes.com/es/2026/09/07/espanol/estados-unidos/miami-avion-amazon.html
-
-**Hurricane Lowell Could Produce Rare Tornadoes Across Hawaii**\
-`As Hurricane Lowell approaches Hawaii’s western islands, forecasters warned that tornadoes were possible near Kauai and Niihau.`\
-https://www.nytimes.com/2026/09/07/weather/hurricane-lowell-hawaii-tornadoes.html
 
