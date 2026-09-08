@@ -1,3 +1,11 @@
+**Eiffel Tower Workers Strike, Saying Women Were Excluded From Hindu Group’s Visit**\
+`The tower was closed on Monday, after the workers’ union said female staff had been asked to leave their stations for a visit from a group known as BAPS.`\
+https://www.nytimes.com/2026/09/08/world/europe/paris-eiffel-tower-closed-strike-hindu-temple.html
+
+**UK Set to Impose Sanctions on Israeli Settlements in West Bank**\
+`A longtime ally of Israel, the U.K. has condemned plans to expand the settlements, which are widely considered illegal under international law.`\
+https://www.nytimes.com/2026/09/08/world/europe/uk-sanctions-israel-west-bank-settlements.html
+
 **Why the Pentagon Is Doing Polygraphs, and Officials Prepare to Release Huge Set of 9/11 Documents**\
 `Plus, could crushable concrete stop the next plane crash?`\
 https://www.nytimes.com/2026/09/08/podcasts/the-headlines/pentagon-polygraphs-9-11-documents-crushable-concrete.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/09/08/garden/cabo-san-lucas-garden-margie-ruddick.h
 **The 25 Most Influential Fashion Photographs**\
 `Two photographers, a fashion designer, a stylist, a creative director, an editor and a supermodel debate the images that have had an indelible impact on how we dress.`\
 https://www.nytimes.com/2026/09/08/t-magazine/top-fashion-photographs.html
-
-**In Corsica, Separatists Bomb Vacation Homes to Send a Message**\
-`A majority of Corsicans support more autonomy from France. Some are going to extremes to make it known.`\
-https://www.nytimes.com/2026/09/08/realestate/corsica-separatists-vacation-home-bombings.html
-
-**Sinead O’Connor and Oscar Wilde Ballets and More Dance This Fall**\
-`Also this season, the return of Balanchine’s “Pithoprakta” at New York City Ballet, a choreographer guides audiences on a nature hike, and reflections on this American moment.`\
-https://www.nytimes.com/2026/09/08/arts/dance/fall-dance-performances-festivals.html
 

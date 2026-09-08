@@ -1,3 +1,11 @@
+**Eiffel Tower Workers Strike, Saying Women Were Excluded From Hindu Group’s Visit**\
+`The tower was closed on Monday, after the workers’ union said female staff had been asked to leave their stations for a visit from a group known as BAPS.`\
+https://www.nytimes.com/2026/09/08/world/europe/paris-eiffel-tower-closed-strike-hindu-temple.html
+
+**UK Set to Impose Sanctions on Israeli Settlements in West Bank**\
+`A longtime ally of Israel, the U.K. has condemned plans to expand the settlements, which are widely considered illegal under international law.`\
+https://www.nytimes.com/2026/09/08/world/europe/uk-sanctions-israel-west-bank-settlements.html
+
 **Why the Pentagon Is Doing Polygraphs, and Officials Prepare to Release Huge Set of 9/11 Documents**\
 `Plus, could crushable concrete stop the next plane crash?`\
 https://www.nytimes.com/2026/09/08/podcasts/the-headlines/pentagon-polygraphs-9-11-documents-crushable-concrete.html

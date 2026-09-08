@@ -1,3 +1,7 @@
+**A Trade War**\
+`We look at escalating tensions between the United States and Canada.`\
+https://www.nytimes.com/2026/09/08/briefing/us-canada-trade-war.html
+
 **Eiffel Tower Workers Strike, Saying Women Were Excluded From Hindu Group’s Visit**\
 `The tower was closed on Monday, after the workers’ union said female staff had been asked to leave their stations for a visit from a group known as BAPS.`\
 https://www.nytimes.com/2026/09/08/world/europe/paris-eiffel-tower-closed-strike-hindu-temple.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/08/travel/rf-kuang-taipei-things-to-do.html
 **In Cabo San Lucas, a Desert Oasis Gets a Refresh Decades Later**\
 `How Margie Ruddick reimagined the garden she designed for a ‘martini modern’ house in Cabo San Lucas.`\
 https://www.nytimes.com/2026/09/08/garden/cabo-san-lucas-garden-margie-ruddick.html
-
-**The 25 Most Influential Fashion Photographs**\
-`Two photographers, a fashion designer, a stylist, a creative director, an editor and a supermodel debate the images that have had an indelible impact on how we dress.`\
-https://www.nytimes.com/2026/09/08/t-magazine/top-fashion-photographs.html
 
