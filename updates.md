@@ -1,3 +1,15 @@
+**Canadá impone nuevos aranceles a productos de EE. UU.**\
+`Los aranceles son una represalia contra los recientes aranceles del presidente Trump, lo que genera preocupaciones sobre tensiones mayores.`\
+https://www.nytimes.com/es/2026/09/08/espanol/estados-unidos/canada-aranceles-trump.html
+
+**Which Senate Candidates Are Skipping Trump’s Republican Convention?**\
+`For G.O.P. candidates in the most competitive races, deciding whether to appear with President Trump can be tricky. Some are going, while others are staying away.`\
+https://www.nytimes.com/2026/09/08/us/politics/republican-senate-candidates-trump-convention.html
+
+**Hurricane Lowell Brings Rain, Fierce Wind and Power Outages on Hawaii’s Kauai**\
+`The storm began to pull away from Hawaii early on Tuesday, but the threat of flash floods and landslides from lingering hurricane conditions remained.`\
+https://www.nytimes.com/2026/09/08/us/hurricane-lowell-kauai-hawaii-power.html
+
 **Which Republican Senate Candidates Are Skipping Trump’s Convention?**\
 `For G.O.P. candidates in the most competitive races, deciding whether to appear with President Trump can be tricky. Some are going, while others are staying away.`\
 https://www.nytimes.com/2026/09/08/us/politics/republican-senate-candidates-trump-convention.html
