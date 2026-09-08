@@ -1,3 +1,7 @@
+**Keep Lighting the Torches That Gloria Steinem Lit**\
+`Readers continue offering tributes to the feminist icon, who died last week. Also: Reducing gun violence; curbing A.I. in schools.`\
+https://www.nytimes.com/2026/09/08/opinion/gloria-steinem.html
+
 **What Is Navier-Stokes?**\
 `OpenAI announced today that it had solved the problem, one of seven “Millennium Problems” seen as among the most important in higher mathematics.`\
 https://www.nytimes.com/2026/09/08/science/what-is-navier-stokes.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/08/business/media/60-minutes-nick-bilton-bari-we
 **Oil Climbs Toward $100 a Barrel Following Houthi Attacks**\
 `Analysts said they expected the price of Brent crude, the international benchmark, to remain elevated for the rest of the year.`\
 https://www.nytimes.com/2026/09/08/business/oil-prices-iran-war.html
-
-**Nothing Compares to Her: A Dance Love Letter to Sinead O’Connor**\
-`The choreographer Sonya Tayeh’s “The Surge” is a dance response to themes in O’Connor’s life: spirituality, identity and what Tayeh calls jrage, or joy and rage.`\
-https://www.nytimes.com/2026/09/08/arts/dance/sinead-oconnor-sonya-tayeh-the-surge-joyce-theater.html
 
