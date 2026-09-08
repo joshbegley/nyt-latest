@@ -1,3 +1,7 @@
+**¿Se puede contener a la extrema derecha alemana?**\
+`La victoria del AfD en unas elecciones estatales está obligando a repensar la estrategia de posguerra del país para salvaguardar la democracia.`\
+https://www.nytimes.com/es/2026/09/08/espanol/mundo/alemania-elecciones-derecha-afd.html
+
 **Do You Know These Classic Novels and Their Modern Film Versions?**\
 `Did you skip the book and watch the movie instead? Test your memory of both with this short quiz.`\
 https://www.nytimes.com/quiz/2026/09/08/bookreview/classic-book-adaptations.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/08/style/madison-humphrey-tiktok-mcdonalds.html
 **A Newer Kind of Gene Editing Promises to Edit ‘Nurture’ Over ‘Nature’**\
 `Traditional gene editing rewrites DNA. But a new approach, called epigenome editing, aims to treat the molecular scars we collect throughout our lives.`\
 https://www.nytimes.com/2026/09/08/science/epigenetic-editing.html
-
-**The Absurd, Unending Quest to Floodproof the New York City Subway**\
-`In an era of heavy rain, a transit system with 47,000 openings is bound to leak.`\
-https://www.nytimes.com/2026/09/08/magazine/new-york-city-subway-mta-flooding.html
 
