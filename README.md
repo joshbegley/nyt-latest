@@ -175,7 +175,7 @@ https://www.nytimes.com/interactive/2026/09/08/us/elections/results-new-hampshir
 https://www.nytimes.com/interactive/2026/09/08/us/elections/results-new-hampshire-us-house-1-primary.html
 
 **Hurricane Lowell Brings Rain, Fierce Wind and Power Outages on Hawaii’s Kauai**\
-`The storm began to pull away from Hawaii early on Tuesday, but the threat of flash floods and landslides from lingering hurricane conditions remained.`\
+`The core of the storm passed to the west of the islands early on Tuesday after knocking out electricity for most of Kauai.`\
 https://www.nytimes.com/2026/09/08/weather/hurricane-lowell-kauai-hawaii-power.html
 
 **Iceland Summons U.S. Ambassador Over Provocative Trump Map**\
