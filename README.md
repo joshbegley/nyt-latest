@@ -1,3 +1,7 @@
+**Iceland Summons U.S. Ambassador Over Provocative Trump Map**\
+`After voting against talks to join the European Union, Iceland is reacting forcefully to a slight against its sovereignty.`\
+https://www.nytimes.com/2026/09/08/world/europe/iceland-summon-ambassador-trump-map-greenland.html
+
 **RFK Jr. Promised Children’s Health Reforms. Here’s How He Did.**\
 `A year after the Trump administration laid out its plan to improve the health of American children, we examine where those efforts stand.`\
 https://www.nytimes.com/2026/09/08/well/rfk-jr-maha-report-childrens-health.html
@@ -19,7 +23,7 @@ https://www.nytimes.com/interactive/polls/north-carolina-voter-id-amendment-poll
 https://www.nytimes.com/2026/09/08/dining/drinks/cabernet-sauvignon-red-wine.html
 
 **Live Updates: Trump Honors 9/11 Emergency Personnel**\
-`(No description)`\
+`President Trump presented the family members of one victim with the Presidential Medal of Freedom, and added to a disputed account of his actions in the aftermath of the attacks.`\
 https://www.nytimes.com/live/2026/09/08/us/trump-news-sept-11
 
 **Latest Polls on Missouri Amendment 3 to Prohibit Abortion and Gender Transition for Minors**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/08/us/politics/lawrence-barrett-michigan-house-s
 **Voters Have Spoken. Why Aren’t Democrats Listening?**\
 `Less than two years after a catastrophic election, the Democratic brand remains unpopular, and the party is still in the grip of a divisive identity crisis.`\
 https://www.nytimes.com/2026/09/08/opinion/democrats-midterms.html
-
-**A.I. Listings Are So Widespread Even Zillow Is Concerned**\
-`Listing sites are littered with homes with fake fireplaces, improved views and virtual landscaping, raising false advertising concerns.`\
-https://www.nytimes.com/2026/09/08/realestate/ai-real-estate-listings-legislation.html
 

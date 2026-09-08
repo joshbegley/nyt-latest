@@ -1,3 +1,7 @@
+**Live Updates: Trump Honors 9/11 Emergency Personnel**\
+`(No description)`\
+https://www.nytimes.com/live/2026/09/08/us/trump-news-sept-11
+
 **RFK Jr. Promised Children’s Health Reforms. Here’s How He Did.**\
 `A year after the Trump administration laid out its plan to improve the health of American children, we examine where those efforts stand.`\
 https://www.nytimes.com/2026/09/08/well/rfk-jr-maha-report-childrens-health.html
