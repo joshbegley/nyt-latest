@@ -1,3 +1,7 @@
+**Trump’s Latest Makeover Target? Space Force Uniforms.**\
+`The president designed a provocative new look for the next-gen Space Force ’fit.`\
+https://www.nytimes.com/2026/09/08/style/trump-space-force-uniforms-starship-troopers.html
+
 **At the Stratford Festival, Forgiveness Is a Power Move**\
 `For his final year as artistic director, Antoni Cimolino directs “The Tempest,” and like Prospero, he understands how to wield acts of kindness.`\
 https://www.nytimes.com/2026/09/08/theater/stratford-festival-tempest-antoni-cimolino.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/09/08/espanol/deportes/andre-agassi-pickleball.h
 **Top Mathematician Announces New Institute for A.I. Safety**\
 `Jacob Tsimerman, a recent recipient of the Fields Medal, believes that higher mathematics can help curb the dangers of runaway artificial intelligence.`\
 https://www.nytimes.com/2026/09/08/science/jacob-tsimerman-math-ai-safety.html
-
-**Russia Strikes Kyiv After Trump Envoys Leave**\
-`Russia launched a wave of deadly overnight strikes on Ukraine’s capital hours after President Trump’s envoys left. The envoys had visited Moscow and Kyiv over the weekend in a bid to restart stalled peace talks.`\
-https://www.nytimes.com/video/world/europe/100000011138269/russia-strikes-kyiv-trump-envoys.html
 
