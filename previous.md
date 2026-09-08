@@ -1,3 +1,11 @@
+**Rubio visitará Colombia. ¿Cuál es su agenda con De la Espriella?**\
+`Perseguir a los narcotraficantes encabezará la agenda durante la visita del secretario de Estado estadounidense a Colombia, según personas familiarizadas con sus planes.`\
+https://www.nytimes.com/es/2026/09/08/espanol/america-latina/rubio-colombia-cocaina.html
+
+**Reimagining Josephine Baker, on the Most Opulent Stage in Paris**\
+`Amid the red velvet and gold leaf of the Palais Garnier, an experimental tribute strips away cabaret nostalgia to honor a complex American hero and a French icon.`\
+https://www.nytimes.com/2026/09/08/arts/music/josephine-baker-paris-opera.html
+
 **Cómo saber si tienes deficiencia de hierro**\
 `Es la carencia nutricional número uno a nivel mundial, y también una de las que más se pasan por alto. Esto hay que saber sobre el diagnóstico.`\
 https://www.nytimes.com/es/2026/09/08/espanol/hierro-deficiencia-cansancio-ojeras.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/09/08/opinion/gen-z-tiktok-ig-reels.html
 **Read the “Nonnegotiable” petition**\
 `A coalition of Michigan rabbis and Jewish leaders is launching a petition drive aimed at Dr. Abdul El-Sayed, the Democratic Senate nominee.`\
 https://www.nytimes.com/interactive/2026/09/08/us/politics/nonnegotiable-petition.html
-
-**What ‘Hyperpolitics’ Explains About This Era**\
-`The political historian Anton Jäger on his theory of “hyperpolitics.”`\
-https://www.nytimes.com/video/opinion/100000011126417/what-hyperpolitics-explains-about-this-era.html
-
-**US Open Day 9: Comeback Queen**\
-`Olympic Gold medalist Qinwen Zheng won a set from 0-5 down for a second match in a row to knock out Iga Swiatek.`\
-https://www.nytimes.com/2026/09/08/podcasts/us-open-zheng-tennis.html
 

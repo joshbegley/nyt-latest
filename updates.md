@@ -1,3 +1,11 @@
+**Rubio visitará Colombia. ¿Cuál es su agenda con De la Espriella?**\
+`Perseguir a los narcotraficantes encabezará la agenda durante la visita del secretario de Estado estadounidense a Colombia, según personas familiarizadas con sus planes.`\
+https://www.nytimes.com/es/2026/09/08/espanol/america-latina/rubio-colombia-cocaina.html
+
+**Reimagining Josephine Baker, on the Most Opulent Stage in Paris**\
+`Amid the red velvet and gold leaf of the Palais Garnier, an experimental tribute strips away cabaret nostalgia to honor a complex American hero and a French icon.`\
+https://www.nytimes.com/2026/09/08/arts/music/josephine-baker-paris-opera.html
+
 **Cómo saber si tienes deficiencia de hierro**\
 `Es la carencia nutricional número uno a nivel mundial, y también una de las que más se pasan por alto. Esto hay que saber sobre el diagnóstico.`\
 https://www.nytimes.com/es/2026/09/08/espanol/hierro-deficiencia-cansancio-ojeras.html
