@@ -1,3 +1,7 @@
+**25 Years After 9/11, Life Has Proved Stronger Than Death**\
+`Memories of life in the shadow of ground zero.`\
+https://www.nytimes.com/2026/09/08/opinion/911-twin-towers-life-death.html
+
 **El Museo Renoir sufre un robo en Francia**\
 `Se trata del hurto de arte de alto perfil más reciente de Europa, cuyos sitios culturales han estado luchando por mantener sus preciados objetos a salvo.`\
 https://www.nytimes.com/es/2026/09/08/espanol/cultura/robo-museo-renoir.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/08/us/patrick-clancy-harrassment-legal-action.ht
 **Read the House’s Report on Brain Injury in Navy Pilots**\
 `An investigation by the House Oversight Committee found that the Navy barely responded to repeated observations of potential brain injuries and mental health problems in its pilots.`\
 https://www.nytimes.com/interactive/2026/09/08/us/navy-brain-injury-house-report.html
-
-**Navy Failed to Protect Pilots From Brain Injury, House Report Says**\
-`A scathing report issued by the House Oversight Committee blamed the Navy for repeatedly failing to act, and recommended that Congress pass legislation to study and treat aviators.`\
-https://www.nytimes.com/2026/09/08/us/navy-pilots-brain-injuries.html
 

@@ -1,3 +1,11 @@
+**Meta Introduces Muse, an A.I. Agent That Can Send Your Emails and Book Your Travel**\
+`Muse, Meta’s new A.I. agent, acts as a personal digital assistant that connects to Facebook and Instagram, as well as third-party apps such as Spotify and OpenTable.`\
+https://www.nytimes.com/2026/09/08/technology/meta-muse-ai-agent.html
+
+**Man Indicted on Hate Crime Charges in Attacks Near Manhattan Synagogues**\
+`Raul Morales stabbed two men on the Upper West Side in July while yelling “Allahu akbar,” prosecutors said. Both men survived.`\
+https://www.nytimes.com/2026/09/08/nyregion/nyc-central-park-stabbing-hate-crime.html
+
 **25 Years After 9/11, Life Has Proved Stronger Than Death**\
 `Memories of life in the shadow of ground zero.`\
 https://www.nytimes.com/2026/09/08/opinion/911-twin-towers-life-death.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/live/2026/09/08/us/trump-news-sept-11
 **Latest Polls on Missouri Amendment 3 to Prohibit Abortion and Gender Transition for Minors**\
 `Track the latest polls on Missouri's Amendment 3 which would prohibit abortion and gender transition for minors.`\
 https://www.nytimes.com/interactive/polls/missouri-amendment-3-abortion-gender-transition-polls-2026.html
-
-**Patrick Clancy Plans Legal Action Against ‘Relentless’ Harassment and Conspiracy Theories**\
-`Patrick Clancy’s lawyer said that he would seek help from the authorities in response to conspiracy theorists who have accused him killing his children and framing Ms. Clancy.`\
-https://www.nytimes.com/2026/09/08/us/patrick-clancy-harrassment-legal-action.html
-
-**Read the House’s Report on Brain Injury in Navy Pilots**\
-`An investigation by the House Oversight Committee found that the Navy barely responded to repeated observations of potential brain injuries and mental health problems in its pilots.`\
-https://www.nytimes.com/interactive/2026/09/08/us/navy-brain-injury-house-report.html
 
