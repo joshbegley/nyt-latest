@@ -1,3 +1,11 @@
+**Venezuela no ha sido salvada, ha sido vendida**\
+`Un proceso opaco de privatización petrolera no facilitará la transición democrática en el país sudamericano. La hará aún más difícil.`\
+https://www.nytimes.com/es/2026/09/08/espanol/opinion/venezuela-petroleo-trump-democracia.html
+
+**The 25th Anniversary of 9/11**\
+`What do you know about what happened that day? What can reading first-person accounts by young people at the time help you understand?`\
+https://www.nytimes.com/2026/09/08/learning/lesson-plans/the-25th-anniversary-of-9-11.html
+
 **U.S. Reading Scores Plummet on Global Exam**\
 `Students in Singapore and parts of China had the highest scores on the test known as PISA. Scores for American students were near a 25-year low.`\
 https://www.nytimes.com/2026/09/08/us/us-reading-test-scores-pisa.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/07/nyregion/twin-towers-photographs.html
 **Germany’s ‘Firewall’ Against the Far Right Is Being Tested as Never Before**\
 `A blowout win by the far-right Alternative for Germany party in a state election has revealed a split among voters about whether to uphold a decades-old strategy for sidelining extremists.`\
 https://www.nytimes.com/2026/09/07/world/europe/germany-afd-election-saxony-anhalt-election.html
-
-**How to Stop Cheating in the A.I. Era**\
-`Readers respond to a guest essay about how to address the root cause of cheating with A.I. Also: A dating app for disabled people.`\
-https://www.nytimes.com/2026/09/07/opinion/letters/stop-cheating-ai.html
-
-**Student Housing Building Collapses in New Delhi**\
-`Several people died and many were feared trapped after a five-story building with rentals for university students collapsed in New Delhi.`\
-https://www.nytimes.com/video/world/asia/100000011136831/student-housing-building-collapses-in-new-delhi.html
 
