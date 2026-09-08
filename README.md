@@ -1,3 +1,7 @@
+**‘Pitchforks Are Going to Come Out’: PAC Aims to Spur Action on A.I.**\
+`The group is starting with more than $10 million and says it intends to support midterm House candidates in swing states.`\
+https://www.nytimes.com/2026/09/08/us/politics/democrats-ai-pac.html
+
 **Watch Live: Trump Delivers Remarks at the Ellipse**\
 `President Trump hosts first responders and New York Fire Department officials at the Ellipse for an event commemorating Sept. 11.`\
 https://www.nytimes.com/video/embedded/us/politics/100000011138594/watch-live-trump-delivers-remarks-at-the-ellipse.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/08/realestate/ai-real-estate-listings-legislatio
 **Hay algo mejor que la felicidad**\
 `No deberíamos quedarnos demasiado tiempo en nuestro lugar feliz.`\
 https://www.nytimes.com/es/2026/09/08/espanol/opinion/felicidad-que-es.html
-
-**Near the Border, Americans Fear Losing Ties With Canadians**\
-`Americans in border regions have had symbiotic relationships with Canadians, but the trade war is testing their bonds.`\
-https://www.nytimes.com/2026/09/08/us/canada-tariffs-us-relationship.html
 

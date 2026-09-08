@@ -1,3 +1,11 @@
+**Watch Live: Trump Delivers Remarks at the Ellipse**\
+`President Trump hosts first responders and New York Fire Department officials at the Ellipse for an event commemorating Sept. 11.`\
+https://www.nytimes.com/video/embedded/us/politics/100000011138594/watch-live-trump-delivers-remarks-at-the-ellipse.html
+
+**Live Updates: Trump Honors 9/11 Emergency Personnel**\
+`President Trump opened his remarks by talking about Iran and crime levels in Washington.`\
+https://www.nytimes.com/live/2026/09/08/us/trump-news-sept-11
+
 **Latest Polls on North Carolina's Voter ID Amendment**\
 `Track the latest polls on North Carolina's voter ID amendment.`\
 https://www.nytimes.com/interactive/polls/north-carolina-voter-id-amendment-polls-2026.html
