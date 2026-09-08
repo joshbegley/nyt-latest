@@ -1,3 +1,23 @@
+**To Avoid Waste, This Food Pantry Recast Itself to Look Like Trader Joe’s**\
+`As more people turn to food pantries amid rising grocery costs and benefits cuts, social service organizations are exploring new ways to meet their needs.`\
+https://www.nytimes.com/2026/09/08/nyregion/newark-food-pantry.html
+
+**NYT Spelling Bee Answers for September 8, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/09/08/crosswords/spelling-bee-forum.html
+
+**9/11’s Dust and Ash Coated Their Childhood. Is It Still Making Them Ill?**\
+`Much of the research on exposure to the World Trade Center residue has focused on emergency workers, but people there when they were young say their health is at risk, too.`\
+https://www.nytimes.com/2026/09/08/nyregion/9-11-children-health.html
+
+**Don’t Have an Official N.Y.C. Trash Bin? Now It’ll Cost You.**\
+`Residential buildings with fewer than 10 units are required to put out their trash in official “NYC Bins” as part of the city’s efforts to deter rats. Owners who don’t comply will be fined.`\
+https://www.nytimes.com/2026/09/08/nyregion/nyc-trash-bins-fines.html
+
+**Houthi Strikes on Southern Saudi Arabia Injure Dozens, Saudi Officials Say**\
+`The Houthi-run news agency in Yemen said the militia would issue a statement about a “large-scale” military operation in Saudi Arabia.`\
+https://www.nytimes.com/2026/09/08/world/middleeast/saudi-arabia-yemen-energy-attack.html
+
 **French A.I. Start-Up Mistral Raises $3.5 Billion as Part of Strategy Shift**\
 `Mistral is trying to keep pace with American and Chinese rivals while offering customers a European alternative for artificial intelligence.`\
 https://www.nytimes.com/2026/09/08/business/mistral-ai-fund-raising.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/09/07/us/politics/trump-rename-new-mexico.html
 **Building Housing Students Collapses in New Delhi, Killing at Least 7**\
 `Rescue crews were working to find people trapped in the wreckage of the building, which collapsed on Sunday.`\
 https://www.nytimes.com/2026/09/07/world/asia/india-delhi-building-collapse-satya-niketan.html
-
-**They Went to Ukraine on the ‘Peace Express.’ Detours Are Likely Ahead.**\
-`The Trump administration had let the peace process enter such a freeze that a trip to Kyiv was just an initial step. Any new talks will happen alongside escalating fighting.`\
-https://www.nytimes.com/2026/09/07/world/europe/ukraine-russia-witkoff-kushner-trump.html
-
-**Happy Labor Day!**\
-`We’re loading up the grill.`\
-https://www.nytimes.com/2026/09/07/briefing/happy-labor-day.html
-
-**Israel Launches Deadly Strikes in Lebanon as Military Campaign Intensifies**\
-`The bombardment killed 11 people, Lebanese officials said, after days of attacks that have spurred worries that Israel is looking to push deeper into Lebanese territory.`\
-https://www.nytimes.com/2026/09/07/world/middleeast/israel-lebanon-strikes-hezbollah.html
-
-**After Victory in German State, Far Right Needs Help to Take Power**\
-`The Alternative for Germany, or AfD, does not have a straightforward path to governing Saxony-Anhalt, but a small populist party could clear the way.`\
-https://www.nytimes.com/2026/09/07/world/europe/germany-afd-elections-bsw.html
-
-**Mamdani Creates Workers’ Rights Office in Effort to Boost Union Power**\
-`The Office of Worker Power, designed to support labor organizing and strengthen worker protections, comes as the mayor works to win over the city’s business community.`\
-https://www.nytimes.com/2026/09/07/nyregion/mamdani-to-create-workers-rights-office-in-effort-to-boost-union-power.html
 
