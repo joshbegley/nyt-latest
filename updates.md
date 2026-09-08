@@ -1,3 +1,7 @@
+**Trump Cannot Pardon Lindsay Clancy, but Her Lawyer Asked Anyway**\
+`President Trump does not have the power to wipe away the state murder charges Ms. Clancy faces. Her lawyer’s spokesman said the comments were “a statement to the country.”`\
+https://www.nytimes.com/2026/09/08/us/lindsay-clancy-lawyer-trump-pardon-murder.html
+
 **Meta Introduces Muse, an A.I. Agent That Can Send Your Emails and Book Your Travel**\
 `Muse, Meta’s new A.I. agent, acts as a personal digital assistant that connects to Facebook and Instagram, as well as third-party apps such as Spotify and OpenTable.`\
 https://www.nytimes.com/2026/09/08/technology/meta-muse-ai-agent.html

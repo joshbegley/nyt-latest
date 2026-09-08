@@ -1,3 +1,7 @@
+**Trump Cannot Pardon Lindsay Clancy, but Her Lawyer Asked Anyway**\
+`President Trump does not have the power to wipe away the state murder charges Ms. Clancy faces. Her lawyer’s spokesman said the comments were “a statement to the country.”`\
+https://www.nytimes.com/2026/09/08/us/lindsay-clancy-lawyer-trump-pardon-murder.html
+
 **Meta Introduces Muse, an A.I. Agent That Can Send Your Emails and Book Your Travel**\
 `Muse, Meta’s new A.I. agent, acts as a personal digital assistant that connects to Facebook and Instagram, as well as third-party apps such as Spotify and OpenTable.`\
 https://www.nytimes.com/2026/09/08/technology/meta-muse-ai-agent.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/08/dining/drinks/cabernet-sauvignon-red-wine.htm
 **Trump Honors 9/11 Emergency Personnel in Washington**\
 `President Trump awarded the Presidential Medal of Freedom posthumously to a volunteer firefighter who saved numerous people. He also added to a disputed account of his actions that day.`\
 https://www.nytimes.com/live/2026/09/08/us/trump-news-sept-11
-
-**Latest Polls on Missouri Amendment 3 to Prohibit Abortion and Gender Transition for Minors**\
-`Track the latest polls on Missouri's Amendment 3 which would prohibit abortion and gender transition for minors.`\
-https://www.nytimes.com/interactive/polls/missouri-amendment-3-abortion-gender-transition-polls-2026.html
 
