@@ -1,3 +1,31 @@
+**New Hampshire Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New Hampshire primary elections.`\
+https://www.nytimes.com/interactive/2026/09/08/us/elections/results-new-hampshire-primary.html
+
+**New Hampshire Governor Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New Hampshire primary election.`\
+https://www.nytimes.com/interactive/2026/09/08/us/elections/results-new-hampshire-governor-primary.html
+
+**New Hampshire U.S. Senate Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New Hampshire primary election.`\
+https://www.nytimes.com/interactive/2026/09/08/us/elections/results-new-hampshire-us-senate-primary.html
+
+**New Hampshire First Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New Hampshire primary election.`\
+https://www.nytimes.com/interactive/2026/09/08/us/elections/results-new-hampshire-us-house-1-primary.html
+
+**Hurricane Lowell’s Bands Bring Rain, Fierce Wind and Outages on Kauai**\
+`The storm began to pull away from Hawaii early on Tuesday, but the threat of flash floods and landslides from lingering hurricane conditions remained.`\
+https://www.nytimes.com/2026/09/08/us/hurricane-lowell-kauai-hawaii-power.html
+
+**New Hampshire Second Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New Hampshire primary election.`\
+https://www.nytimes.com/interactive/2026/09/08/us/elections/results-new-hampshire-us-house-2-primary.html
+
+**Iceland Summons U.S. Ambassador Over Provocative Trump Map**\
+`After voting against talks to join the European Union, Iceland is reacting forcefully to a slight against its sovereignty.`\
+https://www.nytimes.com/2026/09/08/world/europe/iceland-summon-ambassador-trump-map-greenland.html
+
 **RFK Jr. Promised Children’s Health Reforms. Here’s How He Did.**\
 `A year after the Trump administration laid out its plan to improve the health of American children, we examine where those efforts stand.`\
 https://www.nytimes.com/2026/09/08/well/rfk-jr-maha-report-childrens-health.html
@@ -19,7 +47,7 @@ https://www.nytimes.com/interactive/polls/north-carolina-voter-id-amendment-poll
 https://www.nytimes.com/2026/09/08/dining/drinks/cabernet-sauvignon-red-wine.html
 
 **Live Updates: Trump Honors 9/11 Emergency Personnel**\
-`(No description)`\
+`President Trump presented the family members of one victim with the Presidential Medal of Freedom, and added to a disputed account of his actions in the aftermath of the attacks.`\
 https://www.nytimes.com/live/2026/09/08/us/trump-news-sept-11
 
 **Latest Polls on Missouri Amendment 3 to Prohibit Abortion and Gender Transition for Minors**\
@@ -169,32 +197,4 @@ https://www.nytimes.com/2026/09/08/arts/music/josephine-baker-paris-opera.html
 **Cómo saber si tienes deficiencia de hierro**\
 `Es la carencia nutricional número uno a nivel mundial, y también una de las que más se pasan por alto. Esto hay que saber sobre el diagnóstico.`\
 https://www.nytimes.com/es/2026/09/08/espanol/hierro-deficiencia-cansancio-ojeras.html
-
-**Are Dashcam Videos Catching Bad Guys or Creating More Influencers?**\
-`Dash cams were made for safety — but they’ve inadvertently created a whole new entertainment genre.`\
-https://www.nytimes.com/2026/09/08/magazine/dash-cam-surveillance-videos.html
-
-**Russia Bombards Kyiv Soon After Witkoff, Kushner Leave**\
-`Russia agreed not to bomb Ukraine’s capital during Steve Witkoff and Jared Kushner’s visit there. The respite was short-lived.`\
-https://www.nytimes.com/2026/09/08/world/europe/russia-ukraine-kyiv-attacks.html
-
-**Apple Expected to Unveil a Folding iPhone at Annual Launch Event**\
-`Fans of the company’s products widely believe it will unveil a folding smartphone at its annual launch event on Wednesday.`\
-https://www.nytimes.com/2026/09/08/technology/apple-iphone-event.html
-
-**A.I. Models Built a Computer Worm That Could Rapidly Hack WeChat Accounts**\
-`The attack, discovered by A.I. researchers, could have compromised hundreds of millions of devices within hours, experts said.`\
-https://www.nytimes.com/2026/09/08/us/politics/calif-ai-worm-wechat-hack.html
-
-**Can William Lawrence, a Progressive, Flip a Key Michigan House Seat?**\
-`William Lawrence, a progressive challenging a first-term Republican, is trying to rewrite the playbook for Democrats running in swing districts.`\
-https://www.nytimes.com/2026/09/08/us/politics/lawrence-barrett-michigan-house-seat.html
-
-**Voters Have Spoken. Why Aren’t Democrats Listening?**\
-`Less than two years after a catastrophic election, the Democratic brand remains unpopular, and the party is still in the grip of a divisive identity crisis.`\
-https://www.nytimes.com/2026/09/08/opinion/democrats-midterms.html
-
-**A.I. Listings Are So Widespread Even Zillow Is Concerned**\
-`Listing sites are littered with homes with fake fireplaces, improved views and virtual landscaping, raising false advertising concerns.`\
-https://www.nytimes.com/2026/09/08/realestate/ai-real-estate-listings-legislation.html
 

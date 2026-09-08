@@ -1,3 +1,35 @@
+**New Hampshire Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New Hampshire primary elections.`\
+https://www.nytimes.com/interactive/2026/09/08/us/elections/results-new-hampshire-primary.html
+
+**New Hampshire Governor Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New Hampshire primary election.`\
+https://www.nytimes.com/interactive/2026/09/08/us/elections/results-new-hampshire-governor-primary.html
+
+**New Hampshire U.S. Senate Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New Hampshire primary election.`\
+https://www.nytimes.com/interactive/2026/09/08/us/elections/results-new-hampshire-us-senate-primary.html
+
+**New Hampshire First Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New Hampshire primary election.`\
+https://www.nytimes.com/interactive/2026/09/08/us/elections/results-new-hampshire-us-house-1-primary.html
+
+**Hurricane Lowell’s Bands Bring Rain, Fierce Wind and Outages on Kauai**\
+`The storm began to pull away from Hawaii early on Tuesday, but the threat of flash floods and landslides from lingering hurricane conditions remained.`\
+https://www.nytimes.com/2026/09/08/us/hurricane-lowell-kauai-hawaii-power.html
+
+**New Hampshire Second Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New Hampshire primary election.`\
+https://www.nytimes.com/interactive/2026/09/08/us/elections/results-new-hampshire-us-house-2-primary.html
+
+**Iceland Summons U.S. Ambassador Over Provocative Trump Map**\
+`After voting against talks to join the European Union, Iceland is reacting forcefully to a slight against its sovereignty.`\
+https://www.nytimes.com/2026/09/08/world/europe/iceland-summon-ambassador-trump-map-greenland.html
+
+**Live Updates: Trump Honors 9/11 Emergency Personnel**\
+`President Trump presented the family members of one victim with the Presidential Medal of Freedom, and added to a disputed account of his actions in the aftermath of the attacks.`\
+https://www.nytimes.com/live/2026/09/08/us/trump-news-sept-11
+
 **Live Updates: Trump Honors 9/11 Emergency Personnel**\
 `(No description)`\
 https://www.nytimes.com/live/2026/09/08/us/trump-news-sept-11
