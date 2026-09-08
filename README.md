@@ -1,3 +1,7 @@
+**Street Style Look of the Week: Summer Basics**\
+`For Mollie Levy, a marketing executive in New York, being comfortable is part of her lifestyle, whether she’s dressing up or down.`\
+https://www.nytimes.com/2026/09/08/style/street-style-look.html
+
 **‘On This Day’ Lesson Plan Ideas**\
 `Each day, we feature a historic New York Times article alongside a scan of that day’s printed newspaper front page. Here are five teaching ideas to make these primary sources come alive for students.`\
 https://www.nytimes.com/2026/09/08/learning/lesson-plans/teach-with-on-this-day-ways-to-learn-with-175-years-of-the-new-york-times.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/08/business/stock-market-interest-rates.html
 **Restaurant Review: Somssi in New York**\
 `Somssi in Greenwich Village, from the owners of Atomix, offers a freewheeling global menu with minimum polish or pretense.`\
 https://www.nytimes.com/2026/09/08/dining/restaurant-review-somssi-nyc.html
-
-**What ‘Hyperpolitics’ Explains About This Era**\
-`The political historian Anton Jäger on his theory of “hyperpolitics.”`\
-https://www.nytimes.com/2026/09/08/opinion/ezra-klein-podcast-anton-jager.html
 
