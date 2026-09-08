@@ -1,3 +1,11 @@
+**Hungary Expels 10 Russian Diplomats, Signaling a Shift**\
+`The housecleaning puts the new government more in line with how European allies relate to Moscow, tempering cozy ties developed under Viktor Orban’s administration.`\
+https://www.nytimes.com/2026/09/08/world/europe/hungary-russia-diplomats-expulsion.html
+
+**Smithsonian Secretary Lonnie Bunch Is Resigning**\
+`In the face of escalating White House attacks about how museums present American history, Lonnie G. Bunch III has announced his decision to depart.`\
+https://www.nytimes.com/2026/09/08/arts/design/smithsonian-secretary-lonnie-bunch-resigns.html
+
 **Paxton Aide Turned Whistle-Blower Appears in Ad Endorsing His Rival, Talarico**\
 `David Maxwell was among the staffers in the Texas attorney general’s office who accused Ken Paxton of abusing the power of his office, allegations that led to his impeachment. Mr. Paxton was acquitted.`\
 https://www.nytimes.com/2026/09/08/us/politics/paxton-whistleblower-talarico-ad.html
@@ -63,7 +71,7 @@ https://www.nytimes.com/interactive/polls/north-carolina-voter-id-amendment-poll
 https://www.nytimes.com/2026/09/08/dining/drinks/cabernet-sauvignon-red-wine.html
 
 **Live Updates: Trump Honors 9/11 Emergency Personnel**\
-`President Trump presented the family members of one victim with the Presidential Medal of Freedom, and added to a disputed account of his actions in the aftermath of the attacks.`\
+`President Trump awarded the Presidential Medal of Freedom posthumously to a volunteer firefighter who saved numerous people. He also added to a disputed account of his actions that day.`\
 https://www.nytimes.com/live/2026/09/08/us/trump-news-sept-11
 
 **Latest Polls on Missouri Amendment 3 to Prohibit Abortion and Gender Transition for Minors**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/08/crosswords/connections-companion-1186.html
 **NYT Strands Hints for September 9, 2026**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, Sept. 9, 2026.`\
 https://www.nytimes.com/2026/09/08/crosswords/strands-sidekick-920.html
-
-**Today’s Wordle Hints for September 9, 2026**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, Sept. 9, 2026.`\
-https://www.nytimes.com/2026/09/08/crosswords/wordle-review-1908.html
-
-**AfD’s Far Right Win Puts New Pressure on Germany’s Leader Merz**\
-`Antipathy to Chancellor Friedrich Merz was a reason the far right surged in a state election. Though he does not face a national election until 2029, his leadership is under increasing scrutiny.`\
-https://www.nytimes.com/2026/09/08/world/europe/germany-merz-pressure-afd.html
 

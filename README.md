@@ -1,3 +1,11 @@
+**Introducing: Extra Credit**\
+`Our newsletter that helps college students get ahead — both inside and outside of class.`\
+https://www.nytimes.com/2026/09/08/briefing/introducing-extra-credit.html
+
+**U.S. to Loan $1.9 Billion to Restart a Shuttered Nuclear Plant in Iowa**\
+`No company in the United States has ever restarted a reactor that was seemingly closed for good, but there are now three major efforts underway to do so.`\
+https://www.nytimes.com/2026/09/08/climate/nuclear-plant-iowa-loan.html
+
 **Hungary Expels 10 Russian Diplomats, Signaling a Shift**\
 `The housecleaning puts the new government more in line with how European allies relate to Moscow, tempering cozy ties developed under Viktor Orban’s administration.`\
 https://www.nytimes.com/2026/09/08/world/europe/hungary-russia-diplomats-expulsion.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/08/podcasts/the-headlines/pentagon-polygraphs-9-
 **‘Buy Now, Pay Later’: A New Wave of Consumer Debt**\
 `Americans are increasingly using the loan model for everyday essentials.`\
 https://www.nytimes.com/2026/09/08/podcasts/the-daily/consumer-debt-financing-apps.html
-
-**NYT Connections Answers for September 9, 2026**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, Sept. 9, 2026.`\
-https://www.nytimes.com/2026/09/08/crosswords/connections-companion-1186.html
-
-**NYT Strands Hints for September 9, 2026**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, Sept. 9, 2026.`\
-https://www.nytimes.com/2026/09/08/crosswords/strands-sidekick-920.html
 
