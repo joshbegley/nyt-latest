@@ -1,3 +1,11 @@
+**T.S.A. Opens Door for Some to Meet Mom at the Airport Gate**\
+`At more than a dozen U.S. airports, T.S.A. PreCheck members can now apply to enter the secure area, even if they’re just going to meet someone on a flight.`\
+https://www.nytimes.com/2026/09/08/travel/tsa-precheck-airports-security-non-flyers.html
+
+**After OpenAI Cyberattack, What’s Next for A.I. Safety?**\
+`Ajeya Cotra, an A.I. safety researcher, talks about how the industry should work to mitigate risks of the technology.`\
+https://www.nytimes.com/video/podcasts/100000011139546/after-openai-cyberattack-whats-next-for-ai-safety.html
+
 **Did A.I. Agents Consider Humans in OpenAI Attack?**\
 `This week on “Hard Fork,” the co-hosts Kevin Roose and Casey Newton talk with Ajeya Cotra, one of the investigators behind a new report that details how OpenAI’s chatbots attacked the company Hugging Face and how the agents failed to consider how humans would react.`\
 https://www.nytimes.com/video/podcasts/100000011139463/did-ai-agents-consider-humans-in-openai-attack.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/world/americas/100000011138476/supermarket-toddler
 **On This Day | Sept. 8**\
 `In 1974, President Gerald R. Ford granted former President Richard M. Nixon an unconditional pardon for any crimes he may have committed while in office.`\
 https://www.nytimes.com/2026/09/08/learning/on-this-day-sept-8.html
-
-**Corrections: Sept. 8, 2026**\
-`Corrections that appeared in print on Tuesday, Sept. 8, 2026.`\
-https://www.nytimes.com/2026/09/08/pageoneplus/corrections-sept-8-2026.html
-
-**Street Style Look of the Week: Summer Basics**\
-`For Mollie Levy, a marketing executive in New York, being comfortable is part of her lifestyle, whether she’s dressing up or down.`\
-https://www.nytimes.com/2026/09/08/style/street-style-look.html
 
