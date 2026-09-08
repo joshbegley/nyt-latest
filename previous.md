@@ -1,3 +1,11 @@
+**Musk Targets Transgender Issues in Key Midterm Senate Races**\
+`A political group for the world’s richest man, who is ramping up a midterm spending blitz, began running attack ads against Democrats in Texas, Ohio and Iowa.`\
+https://www.nytimes.com/2026/09/08/us/politics/elon-musk-transgender-midterms-democrats.html
+
+**Justice Kavanaugh Blocks Missouri Voting Map Benefiting Republicans**\
+`Missouri’s Supreme Court blocked election officials from using a new congressional map, saying voters must first approve the district lines in a statewide referendum.`\
+https://www.nytimes.com/2026/09/08/us/politics/supreme-court-missouri-congressional-map.html
+
 **Smithsonian Leader Is Resigning After Clashes With Trump**\
 `Also, OpenAI says it solved one of math’s “Millennium Problems.” Here’s the latest at the end of Tuesday.`\
 https://www.nytimes.com/2026/09/08/briefing/smithsonian-leader-resign-openai-math-problem.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/08/us/politics/trump-mail-voting-what-to-know-su
 **This Electronic Musician Believes It’s Not a Meal Without Potatoes**\
 `“A really good, creative, interesting potato gets my heart thumping” says the New York-based artist Eartheater.`\
 https://www.nytimes.com/2026/09/08/dining/musician-eartheater.html
-
-**Apple lanza el primer gran cambio a los iPhone en años**\
-`Los seguidores de la empresa creen que el miércoles Apple revelará un teléfono inteligente plegable que pondrá a prueba su capacidad para llevar productos y tecnologías de nicho al público general.`\
-https://www.nytimes.com/es/2026/09/08/espanol/negocios/apple-iphone-plegable.html
-
-**Introducing: Extra Credit**\
-`Our newsletter that helps college students get ahead — both inside and outside of class.`\
-https://www.nytimes.com/2026/09/08/briefing/introducing-extra-credit.html
 
