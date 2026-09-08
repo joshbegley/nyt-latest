@@ -1,3 +1,7 @@
+**Woman Pleads Guilty to Drugging and Killing 3 Men She Met on the Street**\
+`In 2023 and 2024, Tabitha Bundrick lured men, sometimes with promises of sex, to vacant apartments or their homes, before drugging and robbing them, leaving them to die, Manhattan prosecutors said.`\
+https://www.nytimes.com/2026/09/08/nyregion/murder-robbery-guilty-plea-nyc-woman.html
+
 **Restaurant Review: Lonnies in NYC**\
 `Lonnies, the new Boerum Hill spot from the Inga’s Bar team, is brand-new and thriving.`\
 https://www.nytimes.com/2026/09/08/dining/restaurant-review-lonnies-nyc.html

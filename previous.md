@@ -1,3 +1,7 @@
+**Woman Pleads Guilty to Drugging and Killing 3 Men She Met on the Street**\
+`In 2023 and 2024, Tabitha Bundrick lured men, sometimes with promises of sex, to vacant apartments or their homes, before drugging and robbing them, leaving them to die, Manhattan prosecutors said.`\
+https://www.nytimes.com/2026/09/08/nyregion/murder-robbery-guilty-plea-nyc-woman.html
+
 **Restaurant Review: Lonnies in NYC**\
 `Lonnies, the new Boerum Hill spot from the Inga’s Bar team, is brand-new and thriving.`\
 https://www.nytimes.com/2026/09/08/dining/restaurant-review-lonnies-nyc.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/08/world/europe/iceland-summon-ambassador-trump-
 **RFK Jr. Promised Children’s Health Reforms. Here’s How He Did.**\
 `A year after the Trump administration laid out its plan to improve the health of American children, we examine where those efforts stand.`\
 https://www.nytimes.com/2026/09/08/well/rfk-jr-maha-report-childrens-health.html
-
-**‘Democrats Are Behind’: PAC Wants Party to Catch Up on A.I.**\
-`The group is starting with more than $10 million and says it intends to support midterm House candidates in swing states.`\
-https://www.nytimes.com/2026/09/08/us/politics/democrats-ai-pac.html
 
