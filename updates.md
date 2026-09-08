@@ -1,3 +1,11 @@
+**Canadian Jet Maker Is Target in Trump’s Trade War**\
+`Bombardier has been embroiled in U.S. trade disputes before. President Trump threatened to bar the company from selling in the United States.`\
+https://www.nytimes.com/2026/09/08/business/bombardier-trump-canada-us-sales-planes.html
+
+**¿Se puede contener a la extrema derecha alemana?**\
+`La victoria del AfD en unas elecciones estatales está obligando a repensar la estrategia de posguerra del país para salvaguardar la democracia.`\
+https://www.nytimes.com/es/2026/09/08/espanol/mundo/alemania-elecciones-derecha-afd.html
+
 **Do You Know These Classic Novels and Their Modern Film Versions?**\
 `Did you skip the book and watch the movie instead? Test your memory of both with this short quiz.`\
 https://www.nytimes.com/quiz/2026/09/08/bookreview/classic-book-adaptations.html
