@@ -1,3 +1,11 @@
+**Do You Know These Classic Novels and Their Modern Film Versions?**\
+`Did you skip the book and watch the movie instead? Test your memory of both with this short quiz.`\
+https://www.nytimes.com/quiz/2026/09/08/bookreview/classic-book-adaptations.html
+
+**‘60 Minutes’ Prepares for a High-Pressure Premiere After Its Turbulent Shake-Up**\
+`Nick Bilton, the new executive producer, has begun to put his stamp on the show. Up first: an exclusive interview with an officer who was aboard the F-15 fighter shot down over Iran.`\
+https://www.nytimes.com/2026/09/08/business/media/60-minutes-nick-bilton-bari-weiss.html
+
 **Oil Climbs Toward $100 a Barrel Following Houthi Attacks**\
 `Analysts said they expected the price of Brent crude, the international benchmark, to remain elevated for the rest of the year.`\
 https://www.nytimes.com/2026/09/08/business/oil-prices-iran-war.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/09/08/science/epigenetic-editing.html
 **The Absurd, Unending Quest to Floodproof the New York City Subway**\
 `In an era of heavy rain, a transit system with 47,000 openings is bound to leak.`\
 https://www.nytimes.com/2026/09/08/magazine/new-york-city-subway-mta-flooding.html
-
-**Word of the Day: tertiary**\
-`This word has appeared in 10 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/09/08/learning/word-of-the-day-tertiary.html
-
-**Book Review: ‘The Pirate Queen,’ by Ariel Lawhon**\
-`In a new novel, the author Ariel Lawhon revives a 16th-century sea captain previously pushed to the margins.`\
-https://www.nytimes.com/2026/09/08/books/review/the-pirate-queen-ariel-lawhon.html
 
