@@ -1,6 +1,6 @@
 **Thieves Steal Three Artworks From Renoir Museum in France**\
 `Almost a year after the brazen Louvre heist, thieves targeted a Renoir museum that was formerly his last home in the south of France.`\
-https://www.nytimes.com/2026/09/08/arts/renior-museum-artworks-stolen-france.html
+https://www.nytimes.com/2026/09/08/arts/renoir-museum-artworks-theft-france.html
 
 **China’s Surging Exports Loom Over Trump’s Talks With Xi**\
 `China’s exports grew by a quarter in the month of August, weeks before its leader, Xi Jinping, is set to meet with President Trump in Washington.`\
