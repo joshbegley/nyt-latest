@@ -1,3 +1,11 @@
+**The Economic Fallout From a Potential Return to $100 Oil**\
+`Brent crude, the international benchmark for oil, is spiking again, reviving fears of inflation.`\
+https://www.nytimes.com/2026/09/08/business/dealbook/oil-inflation-markets.html
+
+**Who is Ahead in Georgia's 7th Congressional District?**\
+`Track the latest polls in Georgia's 7th Congressional District.`\
+https://www.nytimes.com/interactive/polls/georgia-us-house-7-polls-2026.html
+
 **Canadian Jet Maker Is Target in Trump’s Trade War**\
 `Bombardier has been embroiled in U.S. trade disputes before. President Trump threatened to bar the company from selling in the United States.`\
 https://www.nytimes.com/2026/09/08/business/bombardier-trump-canada-us-sales-planes.html

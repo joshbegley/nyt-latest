@@ -1,3 +1,11 @@
+**The Economic Fallout From a Potential Return to $100 Oil**\
+`Brent crude, the international benchmark for oil, is spiking again, reviving fears of inflation.`\
+https://www.nytimes.com/2026/09/08/business/dealbook/oil-inflation-markets.html
+
+**Who is Ahead in Georgia's 7th Congressional District?**\
+`Track the latest polls in Georgia's 7th Congressional District.`\
+https://www.nytimes.com/interactive/polls/georgia-us-house-7-polls-2026.html
+
 **Canadian Jet Maker Is Target in Trump’s Trade War**\
 `Bombardier has been embroiled in U.S. trade disputes before. President Trump threatened to bar the company from selling in the United States.`\
 https://www.nytimes.com/2026/09/08/business/bombardier-trump-canada-us-sales-planes.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/09/08/opinion/ezra-klein-podcast-anton-jager.html
 **How Was Your Summer?**\
 `What were the highs and lows of the season for you?`\
 https://www.nytimes.com/2026/09/08/learning/how-was-your-summer.html
-
-**Roger Marshall Sued 700 Patients for Debts; 81 Were Arrested. Now He’s a Senator.**\
-`Patients sued by Senator Roger Marshall of Kansas were routinely charged 18 percent interest, The Times found. Some had bank accounts garnished.`\
-https://www.nytimes.com/2026/09/08/us/politics/roger-marshall-obgyn-doctor-debts.html
-
-**How Madison Humphrey Makes Her Elaborate Wedding Parodies**\
-`Madison Humphrey, a TikTok creator known for her elaborate parody videos, is ready to take over a McDonald’s or find Jet Skis at a moment’s notice.`\
-https://www.nytimes.com/2026/09/08/style/madison-humphrey-tiktok-mcdonalds.html
 
