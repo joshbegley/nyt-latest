@@ -139,7 +139,7 @@ https://www.nytimes.com/live/2026/09/08/us/trump-news-sept-11
 https://www.nytimes.com/interactive/polls/missouri-amendment-3-abortion-gender-transition-polls-2026.html
 
 **Patrick Clancy Plans Legal Action Against ‘Relentless’ Harassment and Conspiracy Theories**\
-`Patrick Clancy’s lawyer said that he would seek help from the authorities in response to conspiracy theorists who have accused him of killing his children and framing Ms. Clancy.`\
+`Patrick Clancy’s lawyer said that he would seek help from the authorities in response to conspiracy theorists who have accused him killing his children and framing Ms. Clancy.`\
 https://www.nytimes.com/2026/09/08/us/patrick-clancy-harrassment-legal-action.html
 
 **Read the House’s Report on Brain Injury in Navy Pilots**\
