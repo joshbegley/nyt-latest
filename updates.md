@@ -1,3 +1,11 @@
+**A los 92 años, una matemática encontró una aprendiz y un problema por resolver**\
+`Joan Birman pensaba que sus grandes descubrimientos eran cosa del pasado. Un correo inesperado inició una colaboración que produjo uno de los resultados más importantes de su carrera.`\
+https://www.nytimes.com/es/2026/09/08/espanol/ciencia-y-tecnologia/problema-matematico-sin-resolver.html
+
+**Mientras la guerra se estanca, Trump construye en Washington**\
+`El presidente saborea el impulso de las diversas obras que ha promovido en el centro de Washington.`\
+https://www.nytimes.com/es/2026/09/08/espanol/estados-unidos/trump-aprobacion-guerras-casa-blanca.html
+
 **To Avoid Waste, This Food Pantry Recast Itself to Look Like Trader Joe’s**\
 `As more people turn to food pantries amid rising grocery costs and benefits cuts, social service organizations are exploring new ways to meet their needs.`\
 https://www.nytimes.com/2026/09/08/nyregion/newark-food-pantry.html

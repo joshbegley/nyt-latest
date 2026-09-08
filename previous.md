@@ -1,3 +1,11 @@
+**A los 92 años, una matemática encontró una aprendiz y un problema por resolver**\
+`Joan Birman pensaba que sus grandes descubrimientos eran cosa del pasado. Un correo inesperado inició una colaboración que produjo uno de los resultados más importantes de su carrera.`\
+https://www.nytimes.com/es/2026/09/08/espanol/ciencia-y-tecnologia/problema-matematico-sin-resolver.html
+
+**Mientras la guerra se estanca, Trump construye en Washington**\
+`El presidente saborea el impulso de las diversas obras que ha promovido en el centro de Washington.`\
+https://www.nytimes.com/es/2026/09/08/espanol/estados-unidos/trump-aprobacion-guerras-casa-blanca.html
+
 **To Avoid Waste, This Food Pantry Recast Itself to Look Like Trader Joe’s**\
 `As more people turn to food pantries amid rising grocery costs and benefits cuts, social service organizations are exploring new ways to meet their needs.`\
 https://www.nytimes.com/2026/09/08/nyregion/newark-food-pantry.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/world/asia/100000011136831/student-housing-buildin
 **Thousands of Serbs Gather to Mourn Ratko Mladic, the ‘Butcher of Bosnia’**\
 `The government insisted the funeral was a private affair, even as government ministers attended and state-controlled news media lavished praise on the convicted war criminal.`\
 https://www.nytimes.com/2026/09/07/world/europe/ratko-mladic-funeral-serbia.html
-
-**Trump Posts Map Suggesting New Mexico Be Renamed as ‘New America’**\
-`The suggestion, posted on social media, appeared to be the latest in the president’s efforts to alter geographic names.`\
-https://www.nytimes.com/2026/09/07/us/politics/trump-rename-new-mexico.html
-
-**Building Housing Students Collapses in New Delhi, Killing at Least 7**\
-`Rescue crews were working to find people trapped in the wreckage of the building, which collapsed on Sunday.`\
-https://www.nytimes.com/2026/09/07/world/asia/india-delhi-building-collapse-satya-niketan.html
 
