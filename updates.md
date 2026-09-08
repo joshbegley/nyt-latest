@@ -1,3 +1,11 @@
+**A Between-Seasons Playlist**\
+`Hear a Robyn remix, new Sharp Pins and one perfect song from Haruomi Hosono.`\
+https://www.nytimes.com/2026/09/08/arts/music/amplifier-playlist-haruomi-hosono-robyn.html
+
+**Trump Awards Medal of Freedom to Welles Crowther, the ‘Man in the Red Bandanna’**\
+`Welles Remy Crowther, an equity trader and volunteer firefighter, is credited with saving 18 people at the World Trade Center on Sept. 11 before being killed.`\
+https://www.nytimes.com/2026/09/08/us/politics/trump-welles-crowther-sept-11-red-bandanna.html
+
 **After Causing Delays for 9/11 Health Claims, Social Security Pledges to Do Its Job**\
 `Lawyers say the Social Security Administration has for months not provided basic data to complete compensation claims for those sick and dying after exposure to debris from the Sept. 11 attacks.`\
 https://www.nytimes.com/2026/09/08/us/politics/9-11-fund-health-claims-social-security.html
