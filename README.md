@@ -1,3 +1,19 @@
+**Lindsay Clancy’s Ex-Husband Complains of ‘Relentless’ Harassment**\
+`Patrick Clancy’s lawyer said that he would seek help from the authorities in response to conspiracy theorists who have accused him killing his children and framing Ms. Clancy.`\
+https://www.nytimes.com/2026/09/08/us/patrick-clancy-harrassment-legal-action.html
+
+**Read the House’s Report on Brain Injury in Navy Pilots**\
+`An investigation by the House Oversight Committee found that the Navy barely responded to repeated observations of potential brain injuries and mental health problems in its pilots.`\
+https://www.nytimes.com/interactive/2026/09/08/us/navy-brain-injury-house-report.html
+
+**Julia Roberts Will Return to Broadway in ‘Small Mouth Sounds’**\
+`The all-star cast also includes Paul Rudd, Sarah Paulson, Greta Lee, Martin Freeman and Isaac Powell. Also coming: a new production of “Downstate.”`\
+https://www.nytimes.com/2026/09/08/theater/small-mouth-sounds-downstate-broadway.html
+
+**Navy Failed to Protect Pilots From Brain Injury, House Report Says**\
+`A scathing report issued by the House Oversight Committee blamed the Navy for repeatedly failing to act, and recommended that Congress pass legislation to study and treat aviators.`\
+https://www.nytimes.com/2026/09/08/us/navy-pilots-brain-injuries.html
+
 **Who Is Ahead in the Lexington, Ky., Mayor Race? Latest 2026 Polls**\
 `Track the latest polls in the Lexington, Ky., mayoral election.`\
 https://www.nytimes.com/interactive/polls/lexington-kentucky-mayor-election-polls-2026.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/09/08/podcasts/how-to-finally-find-a-bra-you-wont-h
 **Lil Durk’s Murder-for-Hire Trial: What to Know**\
 `The Chicago rapper pleaded not guilty to five counts including stalking and plotting what prosecutors say was a revenge killing.`\
 https://www.nytimes.com/2026/09/08/arts/music/lil-durk-trial.html
-
-**What to Watch in Tuesday’s New Hampshire Primary Elections**\
-`Voters will nominate candidates for one of the most high-stakes Senate races in the country. And a Democratic House primary has emerged as a test of the party’s establishment.`\
-https://www.nytimes.com/2026/09/08/us/politics/new-hampshire-primaries-what-to-watch.html
-
-**A Place Where Memories of the 9/11 Victims Have Faded Away**\
-`Relatives who traveled to the U.S. Navy base in Guantánamo Bay left memory stones and messages for those killed in the attacks 25 years ago.`\
-https://www.nytimes.com/2026/09/08/us/politics/sept11-victims-memorial.html
-
-**‘Star Trek’’s Intergenerational Fan Base Shares More Than Just Quotes**\
-`After 60 years, the series gives families a chance to pass down not only shared language but values, too.`\
-https://www.nytimes.com/2026/09/08/crosswords/intergenerational-star-trek-fandom.html
-
-**We’ve Forgotten the Most Important Lessons of 9/11**\
-`The world has lost track of the truth about Al Qaeda.`\
-https://www.nytimes.com/2026/09/08/opinion/september-11-al-qaeda-attacks.html
 
