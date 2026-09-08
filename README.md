@@ -1,3 +1,7 @@
+**Four-Hour Elon Musk Documentary by Alex Gibney Has Venice Premiere**\
+`Much of what Alex Gibney’s documentary presents isn’t new. But in piecing it all together, he wants the viewer to take Musk seriously as a threat to democracy.`\
+https://www.nytimes.com/2026/09/08/movies/elon-musk-film-alex-gibney-venice-film-festival.html
+
 **Trump Media Launches MAGA-Friendly Investment Funds**\
 `The seven exchange-traded funds, like the God Bless America fund, are investing in companies aligned with President Trump’s worldview.`\
 https://www.nytimes.com/2026/09/08/business/trump-media-truth-social-etf.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/08/us/politics/hmong-refugee-deportation-michiga
 **¿Por qué Trump pidió 300 millones de kilogramos de carne misteriosa?**\
 `Si los consumidores estadounidenses supieran de dónde viene esa carne, tal vez no querrían comerla.`\
 https://www.nytimes.com/es/2026/09/08/espanol/opinion/argentina-calidad-carne-trump.html
-
-**Andre Agassi odiaba el tenis. ¿Podrá divertirse con el pickleball?**\
-`A los 55 años, el excampeón vuelve a competir en un deporte que se juega en una cancha más corta y accesible, donde la potencia importa menos y explora una nueva oportunidad para disfrutar.`\
-https://www.nytimes.com/es/2026/09/08/espanol/deportes/andre-agassi-pickleball.html
 
