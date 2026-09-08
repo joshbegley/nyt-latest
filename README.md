@@ -1,3 +1,7 @@
+**Politics News Site NOTUS Rebrands as The Washington Sun**\
+`A trademark dispute scuttled its plans to relaunch as The Washington Star, so the site chose a different name.`\
+https://www.nytimes.com/2026/09/08/business/media/notus-washington-sun-rebrand.html
+
 **National Guardsman Charged With Pointing Gun at Another Soldier on D.C. Patrol**\
 `The office of Jeanine Pirro, the U.S. attorney in Washington, charged Zion Mitchell with two felonies.`\
 https://www.nytimes.com/2026/09/08/us/politics/national-guardsman-gun-soldier-dc-patrol.html
@@ -50,8 +54,8 @@ https://www.nytimes.com/2026/09/08/technology/meta-muse-ai-agent.html
 `Raul Morales stabbed two men on the Upper West Side in July while yelling “Allahu akbar,” prosecutors said. Both men survived.`\
 https://www.nytimes.com/2026/09/08/nyregion/nyc-central-park-stabbing-hate-crime.html
 
-**25 Years After 9/11, Life Has Proved Stronger Than Death**\
-`Memories of life in the shadow of ground zero.`\
+**The Life That Rose From the Ashes of Ground Zero**\
+`25 years after 9/11, life has proved stronger than death.`\
 https://www.nytimes.com/2026/09/08/opinion/911-twin-towers-life-death.html
 
 **El Museo Renoir sufre un robo en Francia**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/09/08/us/elections/results-new-hampshir
 **New Hampshire Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 New Hampshire primary elections.`\
 https://www.nytimes.com/interactive/2026/09/08/us/elections/results-new-hampshire-primary.html
-
-**New Hampshire Governor Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 New Hampshire primary election.`\
-https://www.nytimes.com/interactive/2026/09/08/us/elections/results-new-hampshire-governor-primary.html
 

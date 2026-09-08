@@ -1,3 +1,11 @@
+**National Guardsman Charged With Pointing Gun at Another Soldier on D.C. Patrol**\
+`The office of Jeanine Pirro, the U.S. attorney in Washington, charged Zion Mitchell with two felonies.`\
+https://www.nytimes.com/2026/09/08/us/politics/national-guardsman-gun-soldier-dc-patrol.html
+
+**Impunity in the West Bank**\
+`Former Israeli military officers warn that settler violence in the West Bank is destroying Israel’s democratic values from within.`\
+https://www.nytimes.com/2026/09/08/world/israel-west-bank-canada-us-trade.html
+
 **American Bar Association Ends D.E.I. Standards Under Trump Pressure**\
 `The group that accredits law schools voted to eliminate a requirement that the schools show a commitment to diversity and inclusion.`\
 https://www.nytimes.com/2026/09/08/us/american-bar-association-dei-standards-end.html
