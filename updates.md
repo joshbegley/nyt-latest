@@ -1,3 +1,7 @@
+**Bombardier, a Canadian Jet Maker, Is One Target in Trump’s Trade War**\
+`The Montreal-based company’s share price dropped after President Trump threatened to bar it from selling in the United States.`\
+https://www.nytimes.com/2026/09/08/business/bombardier-trump-canada-us-sales-planes.html
+
 **Trump’s Mail Voting Plan Is Coming to a Head. Here’s What to Know.**\
 `The administration’s plan to screen mail-in ballots remains blocked as the Supreme Court considers challenges to new U.S. Postal Service ballot rules.`\
 https://www.nytimes.com/2026/09/08/us/politics/trump-mail-voting-what-to-know-supreme-court.html

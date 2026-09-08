@@ -1,3 +1,7 @@
+**Carney Says Retaliation Against U.S. Tariffs Was Unavoidable**\
+`In a video address, the prime minister said the United States was seeking “dependency, not a true economic partnership” from Canada.`\
+https://www.nytimes.com/2026/09/08/world/canada/carney-tariffs-trade.html
+
 **Trump’s Mail Voting Plan Is Coming to a Head. Here’s What to Know.**\
 `The administration’s plan to screen mail-in ballots remains blocked as the Supreme Court considers challenges to new U.S. Postal Service ballot rules.`\
 https://www.nytimes.com/2026/09/08/us/politics/trump-mail-voting-what-to-know-supreme-court.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/world/europe/100000011138269/russia-strikes-kyiv-t
 **A Trade War**\
 `We look at escalating tensions between the United States and Canada.`\
 https://www.nytimes.com/2026/09/08/briefing/us-canada-trade-war.html
-
-**Eiffel Tower Workers Strike, Saying Women Were Excluded From Hindu Group’s Visit**\
-`The tower was closed on Monday, after the workers’ union said female staff had been asked to leave their stations for a visit from a group known as BAPS.`\
-https://www.nytimes.com/2026/09/08/world/europe/paris-eiffel-tower-closed-strike-hindu-temple.html
 
