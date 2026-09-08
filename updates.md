@@ -1,3 +1,23 @@
+**To Avoid Waste, This Food Pantry Recast Itself to Look Like Trader Joe’s**\
+`As more people turn to food pantries amid rising grocery costs and benefits cuts, social service organizations are exploring new ways to meet their needs.`\
+https://www.nytimes.com/2026/09/08/nyregion/newark-food-pantry.html
+
+**NYT Spelling Bee Answers for September 8, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/09/08/crosswords/spelling-bee-forum.html
+
+**9/11’s Dust and Ash Coated Their Childhood. Is It Still Making Them Ill?**\
+`Much of the research on exposure to the World Trade Center residue has focused on emergency workers, but people there when they were young say their health is at risk, too.`\
+https://www.nytimes.com/2026/09/08/nyregion/9-11-children-health.html
+
+**Don’t Have an Official N.Y.C. Trash Bin? Now It’ll Cost You.**\
+`Residential buildings with fewer than 10 units are required to put out their trash in official “NYC Bins” as part of the city’s efforts to deter rats. Owners who don’t comply will be fined.`\
+https://www.nytimes.com/2026/09/08/nyregion/nyc-trash-bins-fines.html
+
+**Houthi Strikes on Southern Saudi Arabia Injure Dozens, Saudi Officials Say**\
+`The Houthi-run news agency in Yemen said the militia would issue a statement about a “large-scale” military operation in Saudi Arabia.`\
+https://www.nytimes.com/2026/09/08/world/middleeast/saudi-arabia-yemen-energy-attack.html
+
 **Is Russia Losing the War in Ukraine? No.**\
 `After more than 50 months of this war, the next few could be decisive.`\
 https://www.nytimes.com/2026/09/08/opinion/ukraine-war-defenses-putin.html
