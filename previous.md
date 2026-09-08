@@ -62,8 +62,8 @@ https://www.nytimes.com/2026/09/08/briefing/us-canada-trade-war.html
 `The tower was closed on Monday, after the workers’ union said female staff had been asked to leave their stations for a visit from a group known as BAPS.`\
 https://www.nytimes.com/2026/09/08/world/europe/paris-eiffel-tower-closed-strike-hindu-temple.html
 
-**UK Set to Impose Sanctions on Israeli Settlements in West Bank**\
-`A longtime ally of Israel, the U.K. has condemned plans to expand the settlements, which are widely considered illegal under international law.`\
+**UK Imposes Sanctions on Israeli Settlements in West Bank, Accuses Settlers of Ethnic Cleansing**\
+`Ed Miliband, the U.K. foreign secretary, said Britain believes there is ethnic cleansing of Palestinians in areas of the West Bank, and will ban goods from illegal settlements.`\
 https://www.nytimes.com/2026/09/08/world/europe/uk-sanctions-israel-west-bank-settlements.html
 
 **Why the Pentagon Is Doing Polygraphs, and Officials Prepare to Release Huge Set of 9/11 Documents**\
@@ -160,7 +160,7 @@ https://www.nytimes.com/2026/09/08/podcasts/how-to-finally-find-a-bra-you-wont-h
 
 **Lil Durk’s Murder-for-Hire Trial: What to Know**\
 `The Chicago rapper pleaded not guilty to five counts including stalking and plotting what prosecutors say was a revenge killing.`\
-https://www.nytimes.com/2026/09/08/arts/music/lil-durks-murder-for-hire-trial-what-to-know.html
+https://www.nytimes.com/2026/09/08/arts/music/lil-durk-trial.html
 
 **What to Watch in Tuesday’s New Hampshire Primary Elections**\
 `Voters will nominate candidates for one of the most high-stakes Senate races in the country. And a Democratic House primary has emerged as a test of the party’s establishment.`\

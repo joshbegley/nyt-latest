@@ -86,8 +86,8 @@ https://www.nytimes.com/2026/09/08/crosswords/strands-sidekick-920.html
 `Scroll down for hints and conversation about the puzzle for Wednesday, Sept. 9, 2026.`\
 https://www.nytimes.com/2026/09/08/crosswords/wordle-review-1908.html
 
-**A Far-Right Win Puts New Pressure on Germany’s Leader**\
-`Chancellor Friedrich Merz was a drag on his conservative party in its disastrous loss to the far right in a state election. He has vowed better communication, but no policy changes.`\
+**AfD’s Far Right Win Puts New Pressure on Germany’s Leader Merz**\
+`Antipathy to Chancellor Friedrich Merz was a reason the far right surged in a state election. Though he does not face a national election until 2029, his leadership is under increasing scrutiny.`\
 https://www.nytimes.com/2026/09/08/world/europe/germany-merz-pressure-afd.html
 
 **Australian Social Media Users Could Get Power to Switch Off Algorithms**\

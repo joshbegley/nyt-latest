@@ -1,3 +1,11 @@
+**UK Imposes Sanctions on Israeli Settlements in West Bank, Accuses Settlers of Ethnic Cleansing**\
+`Ed Miliband, the U.K. foreign secretary, said Britain believes there is ethnic cleansing of Palestinians in areas of the West Bank, and will ban goods from illegal settlements.`\
+https://www.nytimes.com/2026/09/08/world/europe/uk-sanctions-israel-west-bank-settlements.html
+
+**Lil Durk’s Murder-for-Hire Trial: What to Know**\
+`The Chicago rapper pleaded not guilty to five counts including stalking and plotting what prosecutors say was a revenge killing.`\
+https://www.nytimes.com/2026/09/08/arts/music/lil-durk-trial.html
+
 **‘On This Day’ Lesson Plan Ideas**\
 `Each day, we feature a historic New York Times article alongside a scan of that day’s printed newspaper front page. Here are five teaching ideas to make these primary sources come alive for students.`\
 https://www.nytimes.com/2026/09/08/learning/lesson-plans/teach-with-on-this-day-ways-to-learn-with-175-years-of-the-new-york-times.html
