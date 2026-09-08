@@ -1,3 +1,7 @@
+**Eat Your Rival: Carnegie Deli Will Reopen Where Stage Deli Once Was**\
+`Amphora takes a wine-forward approach, Ferg’s represents Alabama and more restaurant news.`\
+https://www.nytimes.com/2026/09/08/dining/nyc-restaurant-news.html
+
 **A Between-Seasons Playlist**\
 `Hear a Robyn remix, new Sharp Pins and one perfect song from Haruomi Hosono.`\
 https://www.nytimes.com/2026/09/08/arts/music/amplifier-playlist-haruomi-hosono-robyn.html
