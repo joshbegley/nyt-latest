@@ -42,7 +42,7 @@ https://www.nytimes.com/2026/09/08/nyregion/sam-nordquist-transgender-man-murder
 `A political group for the world’s richest man, who is ramping up a midterm spending blitz, began running attack ads against Democrats in Texas, Ohio and Iowa.`\
 https://www.nytimes.com/2026/09/08/us/politics/elon-musk-transgender-midterms-democrats.html
 
-**Diverging Court Rulings Leave Missouri’s Congressional Map Unclear**\
+**Dueling Court Rulings Leave Missouri’s Congressional Races in Chaos**\
 `After losing in two courts and winning in another, Missouri officials said they planned to forge ahead with using a congressional map that was redrawn to benefit Republicans.`\
 https://www.nytimes.com/2026/09/08/us/politics/supreme-court-missouri-congressional-map.html
 

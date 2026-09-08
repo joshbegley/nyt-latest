@@ -1,3 +1,7 @@
+**Diverging Court Rulings Leave Missouri’s Congressional Map Unclear**\
+`After losing in two courts and winning in another, Missouri officials said they planned to forge ahead with using a congressional map that was redrawn to benefit Republicans.`\
+https://www.nytimes.com/2026/09/08/us/politics/supreme-court-missouri-congressional-map.html
+
 **U.S. Hits 5 Iranian Oil Tankers, Citing Attempted Strikes on Warship**\
 `Iran said it had retaliated by launching missiles at Jordan, raising the specter of still more fighting.`\
 https://www.nytimes.com/2026/09/08/world/middleeast/us-strikes-iran-tankers.html
