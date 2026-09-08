@@ -62,8 +62,8 @@ https://www.nytimes.com/2026/09/08/briefing/us-canada-trade-war.html
 `The tower was closed on Monday, after the workers’ union said female staff had been asked to leave their stations for a visit from a group known as BAPS.`\
 https://www.nytimes.com/2026/09/08/world/europe/paris-eiffel-tower-closed-strike-hindu-temple.html
 
-**UK Set to Impose Sanctions on Israeli Settlements in West Bank**\
-`A longtime ally of Israel, the U.K. has condemned plans to expand the settlements, which are widely considered illegal under international law.`\
+**UK Imposes Sanctions on Israeli Settlements in West Bank, Accuses Settlers of Ethnic Cleansing**\
+`Ed Miliband, the U.K. foreign secretary, said Britain believes there is ethnic cleansing of Palestinians in areas of the West Bank, and will ban goods from illegal settlements.`\
 https://www.nytimes.com/2026/09/08/world/europe/uk-sanctions-israel-west-bank-settlements.html
 
 **Why the Pentagon Is Doing Polygraphs, and Officials Prepare to Release Huge Set of 9/11 Documents**\
