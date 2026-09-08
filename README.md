@@ -11,7 +11,7 @@ https://www.nytimes.com/interactive/polls/north-carolina-voter-id-amendment-poll
 https://www.nytimes.com/2026/09/08/dining/drinks/cabernet-sauvignon-red-wine.html
 
 **Live Updates: Trump Honors 9/11 Emergency Personnel**\
-`(No description)`\
+`President Trump opened his remarks by talking about Iran and crime levels in Washington.`\
 https://www.nytimes.com/live/2026/09/08/us/trump-news-sept-11
 
 **Latest Polls on Missouri Amendment 3 to Prohibit Abortion and Gender Transition for Minors**\
