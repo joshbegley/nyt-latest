@@ -1,3 +1,7 @@
+**Canadian Jet Maker Is Target in Trump’s Trade War**\
+`Bombardier has been embroiled in U.S. trade disputes before. President Trump threatened to bar the company from selling in the United States.`\
+https://www.nytimes.com/2026/09/08/business/bombardier-trump-canada-us-sales-planes.html
+
 **¿Se puede contener a la extrema derecha alemana?**\
 `La victoria del AfD en unas elecciones estatales está obligando a repensar la estrategia de posguerra del país para salvaguardar la democracia.`\
 https://www.nytimes.com/es/2026/09/08/espanol/mundo/alemania-elecciones-derecha-afd.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/08/us/politics/roger-marshall-obgyn-doctor-debts
 **How Madison Humphrey Makes Her Elaborate Wedding Parodies**\
 `Madison Humphrey, a TikTok creator known for her elaborate parody videos, is ready to take over a McDonald’s or find Jet Skis at a moment’s notice.`\
 https://www.nytimes.com/2026/09/08/style/madison-humphrey-tiktok-mcdonalds.html
-
-**A Newer Kind of Gene Editing Promises to Edit ‘Nurture’ Over ‘Nature’**\
-`Traditional gene editing rewrites DNA. But a new approach, called epigenome editing, aims to treat the molecular scars we collect throughout our lives.`\
-https://www.nytimes.com/2026/09/08/science/epigenetic-editing.html
 
