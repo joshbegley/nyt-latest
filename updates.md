@@ -1,3 +1,7 @@
+**‘On This Day’ Lesson Plan Ideas**\
+`Each day, we feature a historic New York Times article alongside a scan of that day’s printed newspaper front page. Here are five teaching ideas to make these primary sources come alive for students.`\
+https://www.nytimes.com/2026/09/08/learning/lesson-plans/teach-with-on-this-day-ways-to-learn-with-175-years-of-the-new-york-times.html
+
 **The Economic Fallout From a Potential Return to $100 Oil**\
 `Brent crude, the international benchmark for oil, is spiking again, reviving fears of inflation.`\
 https://www.nytimes.com/2026/09/08/business/dealbook/oil-inflation-markets.html

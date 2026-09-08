@@ -160,7 +160,7 @@ https://www.nytimes.com/2026/09/08/podcasts/how-to-finally-find-a-bra-you-wont-h
 
 **Lil Durk’s Murder-for-Hire Trial: What to Know**\
 `The Chicago rapper pleaded not guilty to five counts including stalking and plotting what prosecutors say was a revenge killing.`\
-https://www.nytimes.com/2026/09/08/arts/music/lil-durks-murder-for-hire-trial-what-to-know.html
+https://www.nytimes.com/2026/09/08/arts/music/lil-durk-trial.html
 
 **What to Watch in Tuesday’s New Hampshire Primary Elections**\
 `Voters will nominate candidates for one of the most high-stakes Senate races in the country. And a Democratic House primary has emerged as a test of the party’s establishment.`\
