@@ -1,3 +1,7 @@
+**RFK Jr. Promised Children’s Health Reforms. Here’s How He Did.**\
+`A year after the Trump administration laid out its plan to improve the health of American children, we examine where those efforts stand.`\
+https://www.nytimes.com/2026/09/08/well/rfk-jr-maha-report-childrens-health.html
+
 **‘Pitchforks Are Going to Come Out’: PAC Aims to Spur Action on A.I.**\
 `The group is starting with more than $10 million and says it intends to support midterm House candidates in swing states.`\
 https://www.nytimes.com/2026/09/08/us/politics/democrats-ai-pac.html
@@ -14,15 +18,15 @@ https://www.nytimes.com/interactive/polls/north-carolina-voter-id-amendment-poll
 `It’s the most widely planted red grape in the world and the most popular red varietal wine in the U.S., so why has it fallen out of favor?`\
 https://www.nytimes.com/2026/09/08/dining/drinks/cabernet-sauvignon-red-wine.html
 
-**Live Updates: Trump Honors 9/11 Emergency Personnel**\
-`President Trump opened his remarks by talking about Iran and crime levels in Washington.`\
+**Live Updates: Trump to Honor 9/11 Emergency Personnel**\
+`(No description)`\
 https://www.nytimes.com/live/2026/09/08/us/trump-news-sept-11
 
 **Latest Polls on Missouri Amendment 3 to Prohibit Abortion and Gender Transition for Minors**\
 `Track the latest polls on Missouri's Amendment 3 which would prohibit abortion and gender transition for minors.`\
 https://www.nytimes.com/interactive/polls/missouri-amendment-3-abortion-gender-transition-polls-2026.html
 
-**Lindsay Clancy’s Ex-Husband Complains of ‘Relentless’ Harassment**\
+**Patrick Clancy Plans Legal Action Against ‘Relentless’ Harassment and Conspiracy Theories**\
 `Patrick Clancy’s lawyer said that he would seek help from the authorities in response to conspiracy theorists who have accused him of killing his children and framing Ms. Clancy.`\
 https://www.nytimes.com/2026/09/08/us/patrick-clancy-harrassment-legal-action.html
 
@@ -123,7 +127,7 @@ https://www.nytimes.com/2026/09/08/briefing/us-canada-trade-war.html
 https://www.nytimes.com/2026/09/08/world/europe/paris-eiffel-tower-closed-strike-hindu-temple.html
 
 **UK Imposes Sanctions on Israeli Settlements in West Bank, Accuses Settlers of Ethnic Cleansing**\
-`The U.K. said Israel had “turned a blind eye” to violence against Palestinians by extremist settlers, as it and other countries announced a ban on trade with illegal settlements.`\
+`Britain said Israel had “turned a blind eye” to violence against Palestinians by extremist settlers, as it joined allies in announcing a ban on trade with illegal settlements.`\
 https://www.nytimes.com/2026/09/08/world/europe/uk-sanctions-israel-west-bank-settlements.html
 
 **Why the Pentagon Is Doing Polygraphs, and Officials Prepare to Release Huge Set of 9/11 Documents**\
@@ -174,7 +178,7 @@ https://www.nytimes.com/2026/09/08/magazine/dash-cam-surveillance-videos.html
 `Russia agreed not to bomb Ukraine’s capital during Steve Witkoff and Jared Kushner’s visit there. The respite was short-lived.`\
 https://www.nytimes.com/2026/09/08/world/europe/russia-ukraine-kyiv-attacks.html
 
-**Apple to Make First Big Change to iPhones in Years**\
+**Apple Expected to Unveil a Folding iPhone at Annual Launch Event**\
 `Fans of the company’s products widely believe it will unveil a folding smartphone at its annual launch event on Wednesday.`\
 https://www.nytimes.com/2026/09/08/technology/apple-iphone-event.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/08/opinion/democrats-midterms.html
 **A.I. Listings Are So Widespread Even Zillow Is Concerned**\
 `Listing sites are littered with homes with fake fireplaces, improved views and virtual landscaping, raising false advertising concerns.`\
 https://www.nytimes.com/2026/09/08/realestate/ai-real-estate-listings-legislation.html
-
-**Hay algo mejor que la felicidad**\
-`No deberíamos quedarnos demasiado tiempo en nuestro lugar feliz.`\
-https://www.nytimes.com/es/2026/09/08/espanol/opinion/felicidad-que-es.html
 

@@ -18,7 +18,7 @@ https://www.nytimes.com/interactive/polls/north-carolina-voter-id-amendment-poll
 `It’s the most widely planted red grape in the world and the most popular red varietal wine in the U.S., so why has it fallen out of favor?`\
 https://www.nytimes.com/2026/09/08/dining/drinks/cabernet-sauvignon-red-wine.html
 
-**Live Updates: Trump to Honor 9/11 Emergency Personnel**\
+**Live Updates: Trump Honors 9/11 Emergency Personnel**\
 `(No description)`\
 https://www.nytimes.com/live/2026/09/08/us/trump-news-sept-11
 
