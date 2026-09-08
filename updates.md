@@ -1,3 +1,11 @@
+**A Far-Right Win Puts New Pressure on Germany’s Leader**\
+`Chancellor Friedrich Merz was a drag on his conservative party in its disastrous loss to the far right in a state election. He has vowed better communication, but no policy changes.`\
+https://www.nytimes.com/2026/09/08/world/europe/germany-merz-pressure-afd.html
+
+**Australian Social Media Users Could Get Power to Switch Off Algorithms**\
+`Technology companies have been “running real-time, unregulated product testing on Australians” for too long, communications minister says.`\
+https://www.nytimes.com/2026/09/08/world/australia/social-media-law-algorithms-digital-duty-care.html
+
 **Rubio visitará Colombia. ¿Cuál es su agenda con De la Espriella?**\
 `Perseguir a los narcotraficantes encabezará la agenda durante la visita del secretario de Estado estadounidense a Colombia, según personas familiarizadas con sus planes.`\
 https://www.nytimes.com/es/2026/09/08/espanol/america-latina/rubio-colombia-cocaina.html
