@@ -1,3 +1,7 @@
+**After 9/11, Documents Suggest New Yorkers Were Misled About Air Quality**\
+`New York City officials are making public more than 170,000 pages of documents related to the air quality around the World Trade Center site in the months after the Sept. 11 attacks.`\
+https://www.nytimes.com/2026/09/07/nyregion/sept-11-air-quality-cancer.html
+
 **Amazon Plane Crash Starts Debate About Requiring a Buffer for Runways**\
 `A technology involving crushable concrete has been credited with saving nearly 500 passenger lives by helping halt planes that overshot their landings.`\
 https://www.nytimes.com/2026/09/07/us/miami-crash-emas-buffer-runways.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/world/asia/100000011055093/virtual-taekwondo-asian
 **Los límites de la campaña anti-China de EE. UU. se dejan ver en Perú**\
 `El país sudamericano se ha convertido en un campo de pruebas del gobierno del presidente Trump para frenar la influencia de Pekín en el hemisferio occidental, pero sin mayores resultados.`\
 https://www.nytimes.com/es/2026/09/07/espanol/america-latina/peru-china-economia-trump.html
-
-**Para que Gaza se recupere, hay que expulsar a Hamás**\
-`Si los aliados occidentales de los palestinos quieren ayudar a Gaza, deben denunciar a Hamás.`\
-https://www.nytimes.com/es/2026/09/07/espanol/opinion/gaza-hamas-palestinos.html
 
