@@ -1,3 +1,7 @@
+**Russia Strikes Kyiv After Trump Envoys Leave**\
+`Russia launched a wave of deadly overnight strikes on Ukraine’s capital hours after President Trump’s envoys left. The envoys had visited Moscow and Kyiv over the weekend in a bid to restart stalled peace talks.`\
+https://www.nytimes.com/video/world/europe/100000011138269/russia-strikes-kyiv-trump-envoys.html
+
 **A Trade War**\
 `We look at escalating tensions between the United States and Canada.`\
 https://www.nytimes.com/2026/09/08/briefing/us-canada-trade-war.html
