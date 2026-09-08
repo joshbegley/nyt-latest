@@ -96,7 +96,7 @@ https://www.nytimes.com/interactive/2026/09/08/us/elections/results-new-hampshir
 
 **Hurricane Lowell Brings Rain, Fierce Wind and Power Outages on Hawaii’s Kauai**\
 `The storm began to pull away from Hawaii early on Tuesday, but the threat of flash floods and landslides from lingering hurricane conditions remained.`\
-https://www.nytimes.com/2026/09/08/us/hurricane-lowell-kauai-hawaii-power.html
+https://www.nytimes.com/2026/09/08/weather/hurricane-lowell-kauai-hawaii-power.html
 
 **Iceland Summons U.S. Ambassador Over Provocative Trump Map**\
 `After voting against talks to join the European Union, Iceland is reacting forcefully to a slight against its sovereignty.`\
