@@ -1,3 +1,15 @@
+**Restaurant Review: Lonnies in NYC**\
+`Lonnies, the new Boerum Hill spot from the Inga’s Bar team, is brand-new and thriving.`\
+https://www.nytimes.com/2026/09/08/dining/restaurant-review-lonnies-nyc.html
+
+**California’s Ambitious Plan for Textile Waste**\
+`A recycling law coming into force now could change fashion.`\
+https://www.nytimes.com/2026/09/08/climate/californias-fast-fashion-textile-waste.html
+
+**Hurricane Lowell Brings Rain, Fierce Wind and Power Outages on Hawaii’s Kauai**\
+`The core of the storm passed to the west of the islands early on Tuesday after knocking out electricity for most of Kauai.`\
+https://www.nytimes.com/2026/09/08/weather/hurricane-lowell-kauai-hawaii-power.html
+
 **Southern California Is Hot and Steamy Again**\
 `Temperatures soared across the region on Tuesday. The muggy weather will get worse before it gets better.`\
 https://www.nytimes.com/2026/09/08/weather/southern-california-heat-wave-la.html

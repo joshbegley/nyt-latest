@@ -1,3 +1,11 @@
+**Restaurant Review: Lonnies in NYC**\
+`Lonnies, the new Boerum Hill spot from the Inga’s Bar team, is brand-new and thriving.`\
+https://www.nytimes.com/2026/09/08/dining/restaurant-review-lonnies-nyc.html
+
+**California’s Ambitious Plan for Textile Waste**\
+`A recycling law coming into force now could change fashion.`\
+https://www.nytimes.com/2026/09/08/climate/californias-fast-fashion-textile-waste.html
+
 **Southern California Is Hot and Steamy Again**\
 `Temperatures soared across the region on Tuesday. The muggy weather will get worse before it gets better.`\
 https://www.nytimes.com/2026/09/08/weather/southern-california-heat-wave-la.html
@@ -175,7 +183,7 @@ https://www.nytimes.com/interactive/2026/09/08/us/elections/results-new-hampshir
 https://www.nytimes.com/interactive/2026/09/08/us/elections/results-new-hampshire-us-house-1-primary.html
 
 **Hurricane Lowell Brings Rain, Fierce Wind and Power Outages on Hawaii’s Kauai**\
-`The storm began to pull away from Hawaii early on Tuesday, but the threat of flash floods and landslides from lingering hurricane conditions remained.`\
+`The core of the storm passed to the west of the islands early on Tuesday after knocking out electricity for most of Kauai.`\
 https://www.nytimes.com/2026/09/08/weather/hurricane-lowell-kauai-hawaii-power.html
 
 **Iceland Summons U.S. Ambassador Over Provocative Trump Map**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/08/well/rfk-jr-maha-report-childrens-health.html
 **‘Democrats Are Behind’: PAC Wants Party to Catch Up on A.I.**\
 `The group is starting with more than $10 million and says it intends to support midterm House candidates in swing states.`\
 https://www.nytimes.com/2026/09/08/us/politics/democrats-ai-pac.html
-
-**Watch Live: Trump Delivers Remarks at the Ellipse**\
-`President Trump hosts first responders and New York Fire Department officials at the Ellipse for an event commemorating Sept. 11.`\
-https://www.nytimes.com/video/embedded/us/politics/100000011138594/watch-live-trump-delivers-remarks-at-the-ellipse.html
-
-**Latest Polls on North Carolina's Voter ID Amendment**\
-`Track the latest polls on North Carolina's voter ID amendment.`\
-https://www.nytimes.com/interactive/polls/north-carolina-voter-id-amendment-polls-2026.html
 
