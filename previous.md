@@ -1,3 +1,15 @@
+**El Museo Renoir sufre un robo en Francia**\
+`Se trata del hurto de arte de alto perfil más reciente de Europa, cuyos sitios culturales han estado luchando por mantener sus preciados objetos a salvo.`\
+https://www.nytimes.com/es/2026/09/08/espanol/cultura/robo-museo-renoir.html
+
+**Departing Smithsonian Secretary Faced ‘Mounting Pressure Campaign’**\
+`Under Lonnie G. Bunch III’s leadership, President Trump accused the Smithsonian of liberal, anti-American bias. Supporters say he was dedicated to nonpartisan scholarship.`\
+https://www.nytimes.com/2026/09/08/arts/design/smithsonian-lonnie-bunch-depature-reaction.html
+
+**Thousands in Michigan Got a Driver’s License With Someone Else’s Face on It**\
+`About 8,200 people who applied for an enhanced driver’s license received cards in the mail with a stock image of a smiling man in the lower-right-hand corner.`\
+https://www.nytimes.com/2026/09/08/us/michigan-enhanced-ids-misprints.html
+
 **Trump Administration Asks Supreme Court to Allow Voter-Screening Tool**\
 `Voting rights organizations had challenged a Trump administration overhaul of a government database, arguing it could be used to disenfranchise eligible voters.`\
 https://www.nytimes.com/2026/09/08/us/politics/trump-supreme-court-dhs-citizenship.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/interactive/2026/09/08/us/navy-brain-injury-house-report
 **Navy Failed to Protect Pilots From Brain Injury, House Report Says**\
 `A scathing report issued by the House Oversight Committee blamed the Navy for repeatedly failing to act, and recommended that Congress pass legislation to study and treat aviators.`\
 https://www.nytimes.com/2026/09/08/us/navy-pilots-brain-injuries.html
-
-**Julia Roberts Will Return to Broadway in ‘Small Mouth Sounds’**\
-`The all-star cast also includes Paul Rudd, Sarah Paulson, Greta Lee, Martin Freeman and Isaac Powell. Also coming: a new production of “Downstate.”`\
-https://www.nytimes.com/2026/09/08/theater/small-mouth-sounds-downstate-broadway.html
-
-**Who Is Ahead in the Lexington, Ky., Mayor Race? Latest 2026 Polls**\
-`Track the latest polls in the Lexington, Ky., mayoral election.`\
-https://www.nytimes.com/interactive/polls/lexington-kentucky-mayor-election-polls-2026.html
-
-**Supermarket Manager Rescues Toddler From Traffic**\
-`A supermarket in Puebla, Mexico, honored a manager for a dramatic, last-second rescue of a toddler running toward a busy road.`\
-https://www.nytimes.com/video/world/americas/100000011138476/supermarket-toddler-traffic-rescue-mexico.html
 
