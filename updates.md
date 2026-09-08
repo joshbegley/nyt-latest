@@ -1,3 +1,7 @@
+**After 9/11, Documents Suggest New Yorkers Were Misled About Air Quality**\
+`New York City officials are making public more than 170,000 pages of documents related to the air quality around the World Trade Center site in the months after the Sept. 11 attacks.`\
+https://www.nytimes.com/2026/09/07/nyregion/sept-11-air-quality-cancer.html
+
 **Amazon Plane Crash Starts Debate About Requiring a Buffer for Runways**\
 `A technology involving crushable concrete has been credited with saving nearly 500 passenger lives by helping halt planes that overshot their landings.`\
 https://www.nytimes.com/2026/09/07/us/miami-crash-emas-buffer-runways.html
