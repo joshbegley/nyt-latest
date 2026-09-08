@@ -22,7 +22,7 @@ https://www.nytimes.com/live/2026/09/08/us/trump-news-sept-11
 `Track the latest polls on Missouri's Amendment 3 which would prohibit abortion and gender transition for minors.`\
 https://www.nytimes.com/interactive/polls/missouri-amendment-3-abortion-gender-transition-polls-2026.html
 
-**Lindsay Clancy’s Ex-Husband Complains of ‘Relentless’ Harassment**\
+**Patrick Clancy Plans Legal Action Against ‘Relentless’ Harassment and Conspiracy Theories**\
 `Patrick Clancy’s lawyer said that he would seek help from the authorities in response to conspiracy theorists who have accused him of killing his children and framing Ms. Clancy.`\
 https://www.nytimes.com/2026/09/08/us/patrick-clancy-harrassment-legal-action.html
 
@@ -123,7 +123,7 @@ https://www.nytimes.com/2026/09/08/briefing/us-canada-trade-war.html
 https://www.nytimes.com/2026/09/08/world/europe/paris-eiffel-tower-closed-strike-hindu-temple.html
 
 **UK Imposes Sanctions on Israeli Settlements in West Bank, Accuses Settlers of Ethnic Cleansing**\
-`The U.K. said Israel had “turned a blind eye” to violence against Palestinians by extremist settlers, as it and other countries announced a ban on trade with illegal settlements.`\
+`Britain said Israel had “turned a blind eye” to violence against Palestinians by extremist settlers, as it joined allies in announcing a ban on trade with illegal settlements.`\
 https://www.nytimes.com/2026/09/08/world/europe/uk-sanctions-israel-west-bank-settlements.html
 
 **Why the Pentagon Is Doing Polygraphs, and Officials Prepare to Release Huge Set of 9/11 Documents**\
