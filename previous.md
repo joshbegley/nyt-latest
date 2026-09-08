@@ -1,3 +1,43 @@
+**Sinead O’Connor and Oscar Wilde Ballets and More Dance This Fall**\
+`Also this season, the return of Balanchine’s “Pithoprakta” at New York City Ballet, a choreographer guides audiences on a nature hike, and reflections on this American moment.`\
+https://www.nytimes.com/2026/09/08/arts/dance/fall-dance-performances-festivals.html
+
+**For People Who Live in Cemeteries, the Scariest Thing May Be the Puns**\
+`Occupants of “houses to die for” say the advantages go beyond quiet neighbors.`\
+https://www.nytimes.com/2026/09/08/realestate/homes-in-cemeteries.html
+
+**Dudamel in Command, a ‘Macbeth’ Opera and Steve Reich Coming This Fall**\
+`Also this season, the Berlin Philharmonic comes to Carnegie Hall, “Lincoln in the Bardo” arrives at the Metropolitan Opera and dueling “Toscas.”`\
+https://www.nytimes.com/2026/09/08/arts/music/fall-classical-performances-dudamel-macbeth.html
+
+**Seaweed Is Their Way of Life. A Company’s Sweeping Plan Threatens It.**\
+`As global demand for seaweed surges, a Canadian corporation’s bid for exclusive harvesting rights in the west of Ireland has upended a once-sleepy industry.`\
+https://www.nytimes.com/2026/09/08/world/europe/ireland-seaweed-harvesting.html
+
+**29 Nonfiction Books Coming This Fall**\
+`Memoirs, biographies, true crime, history and more.`\
+https://www.nytimes.com/2026/09/08/books/review/new-nonfiction-books-this-fall.html
+
+**35 Novels Coming This Fall**\
+`New fiction from Marlon James, Barbara Kingsolver, John Green, John Grisham and much more.`\
+https://www.nytimes.com/2026/09/08/books/review/new-novels-coming-this-fall.html
+
+**Why Gen Z Loves Brain Rot**\
+`Maybe consuming meaningless content is the only way to be free online.`\
+https://www.nytimes.com/2026/09/08/opinion/gen-z-tiktok-ig-reels.html
+
+**Read the “Nonnegotiable” petition**\
+`A coalition of Michigan rabbis and Jewish leaders is launching a petition drive aimed at Dr. Abdul El-Sayed, the Democratic Senate nominee.`\
+https://www.nytimes.com/interactive/2026/09/08/us/politics/nonnegotiable-petition.html
+
+**What ‘Hyperpolitics’ Explains About This Era**\
+`The political historian Anton Jäger on his theory of “hyperpolitics.”`\
+https://www.nytimes.com/video/opinion/100000011126417/what-hyperpolitics-explains-about-this-era.html
+
+**US Open Day 9: Comeback Queen**\
+`Olympic Gold medalist Qinwen Zheng won a set from 0-5 down for a second match in a row to knock out Iga Swiatek.`\
+https://www.nytimes.com/2026/09/08/podcasts/us-open-zheng-tennis.html
+
 **Chinese Ship Takes Arctic Shortcut: Smart Business? Or a Political Flex?**\
 `Melting ice is opening a trade route through the Arctic. China has begun the first regular service, part of its polar ambitions.`\
 https://www.nytimes.com/2026/09/08/world/europe/china-arctic-shipping-trade-route.html
@@ -157,44 +197,4 @@ https://www.nytimes.com/2026/09/07/world/asia/philippines-romualdez-arrest-kickb
 **Israeli Strikes Kill at Least 11 in Southern Lebanon**\
 `The Israeli military has ramped up attacks on Hezbollah targets after claiming it captured a strategic ridge six miles north of its border with Lebanon.`\
 https://www.nytimes.com/video/world/middleeast/100000011137035/lebanon-israel-hezbollah-strikes.html
-
-**Elizabeth Holmes Documentary ‘You Can See Everything’ Upends Telluride**\
-`The comic Nathan Fielder and the filmmaker Lance Oppenheim teamed up to interview the convicted executive for “You Can See Everything.”`\
-https://www.nytimes.com/2026/09/07/movies/elizabeth-holmes-documentary-nathan-fielder-a24.html
-
-**Officials Search for Answers After Fatal Miami Airport Cargo Plane Crash**\
-`A cargo plane, operated for Amazon, plowed into two vehicles on Sunday, leaving five more injured and disrupting Labor Day weekend travel for thousands.`\
-https://www.nytimes.com/2026/09/07/us/miami-airport-plane-crash.html
-
-**WYouth, New Magazine for Teens, Debuts With Justin and Hailey Bieber Cover**\
-`Sara Moonves managed to save and expand W, a fashion and culture magazine. Her next bet is on “Little W.”`\
-https://www.nytimes.com/2026/09/07/style/wyouth-teen-magazine-gen-z.html
-
-**5 Races to Watch This Fall for Answers to the Biggest Midterm Questions**\
-`From Iowa to Michigan to Texas, key contests will offer clues about voters’ views of President Trump, progressive ideas, the war with Iran and more.`\
-https://www.nytimes.com/2026/09/07/us/politics/midterms-key-races-to-watch.html
-
-**El triunfo de la extrema derecha en Alemania sacude a Europa**\
-`Una votación en el este de Alemania da un nuevo impulso a los partidos de extrema derecha que esperan ganar elecciones en toda Europa el próximo año, según analistas.`\
-https://www.nytimes.com/es/2026/09/07/espanol/mundo/alemania-extrema-derecha.html
-
-**Why Amy Klobuchar Wants to Run a State Beleaguered by Trump**\
-`The senator opted to run for governor, having concluded that many Minnesotans lost faith in state government under fellow Democrats. But some wonder: Would she be a fighter in the role, or a conciliator?`\
-https://www.nytimes.com/2026/09/07/us/amy-klobuchar-governor-minnesota.html
-
-**The Film Industry Is Worried About Survival. France Wants to Save the Day.**\
-`An A-list gathering in the French Riviera aimed to serve as a rallying cry for a sector threatened by YouTube, TikTok and artificial intelligence.`\
-https://www.nytimes.com/2026/09/07/movies/france-south-korea-film-industry-hollywood.html
-
-**Sardines and Beans Add Delicious Protein to This Greek Salad**\
-`It’s the perfect no-cook meal to beckon back-to-school season.`\
-https://www.nytimes.com/2026/09/07/dining/sardines-and-beans-add-delicious-protein-to-this-greek-salad.html
-
-**Trump’s Trade War Is Shaping the Fight for Congress**\
-`In Colorado and across the country, higher costs, tariffs and cheap beef imports are affecting voters who will help determine which party controls the House next year.`\
-https://www.nytimes.com/2026/09/07/us/trump-tariffs-iran-congress-colorado.html
-
-**Un avión de carga de Amazon se despista en Miami: lo que hay que saber**\
-`El avión operaba como parte de la flota de carga de Amazon y había volado desde Puerto Rico. El incidente obligó al aeropuerto a cerrar todas las pistas en pleno fin de semana del Día del Trabajo.`\
-https://www.nytimes.com/es/2026/09/07/espanol/estados-unidos/miami-avion-amazon.html
 
