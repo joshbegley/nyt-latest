@@ -1,3 +1,7 @@
+**U.S. Strikes Iranian Oil Tankers, Drawing Threat of Reprisal**\
+`American forces were said to have hit multiple vessels in response to Iranian attempts to hit a U.S. warship.`\
+https://www.nytimes.com/2026/09/08/world/middleeast/us-strikes-iran-tankers.html
+
 **Mamdani Accuses Former N.Y.C. Leaders of Lying About 9/11 Air Quality**\
 `Mayor Zohran Mamdani said that New Yorkers had gotten sick “because the leaders they trusted lied.” On Tuesday, he released 170,000 pages of records related to the aftermath of the attacks.`\
 https://www.nytimes.com/2026/09/08/nyregion/mamdani-air-quality-liars.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/08/style/trump-space-force-uniforms-starship-tro
 **At the Stratford Festival, Forgiveness Is a Power Move**\
 `For his final year as artistic director, Antoni Cimolino directs “The Tempest,” and like Prospero, he understands how to wield acts of kindness.`\
 https://www.nytimes.com/2026/09/08/theater/stratford-festival-tempest-antoni-cimolino.html
-
-**Carney Says Retaliation Against U.S. Tariffs Was Unavoidable**\
-`In a video address, the prime minister said the United States was seeking “dependency, not a true economic partnership” from Canada.`\
-https://www.nytimes.com/2026/09/08/world/canada/carney-tariffs-trade.html
 

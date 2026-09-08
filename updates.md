@@ -1,3 +1,7 @@
+**U.S. Strikes Iranian Oil Tankers, Drawing Threat of Reprisal**\
+`American forces were said to have hit multiple vessels in response to Iranian attempts to hit a U.S. warship.`\
+https://www.nytimes.com/2026/09/08/world/middleeast/us-strikes-iran-tankers.html
+
 **Mamdani Accuses Former N.Y.C. Leaders of Lying About 9/11 Air Quality**\
 `Mayor Zohran Mamdani said that New Yorkers had gotten sick “because the leaders they trusted lied.” On Tuesday, he released 170,000 pages of records related to the aftermath of the attacks.`\
 https://www.nytimes.com/2026/09/08/nyregion/mamdani-air-quality-liars.html
