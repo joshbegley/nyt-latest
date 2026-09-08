@@ -1,3 +1,7 @@
+**Does It Matter If We Anthropomorphize A.I.?**\
+`If a tiger mauls your face, the important question isn’t “Is it conscious?” It’s “Why did it maul my face?” The “Hard Fork” co-hosts Casey Newton and Kevin Roose discuss that whether you believe A.I. is conscious or not, the consequences of autonomous agents are mounting.`\
+https://www.nytimes.com/video/podcasts/100000011140184/does-it-matter-if-we-anthropomorphize-ai.html
+
 **Politics News Site NOTUS Rebrands as The Washington Sun**\
 `A trademark dispute scuttled its plans to relaunch as The Washington Star, so the site chose a different name.`\
 https://www.nytimes.com/2026/09/08/business/media/notus-washington-sun-rebrand.html
@@ -64,7 +68,7 @@ https://www.nytimes.com/es/2026/09/08/espanol/cultura/robo-museo-renoir.html
 
 **Lonnie G. Bunch III, Departing Smithsonian Secretary, Faced ‘Mounting Pressure Campaign’**\
 `Under Lonnie G. Bunch III’s leadership, President Trump accused the Smithsonian of liberal, anti-American bias. Supporters say he was dedicated to nonpartisan scholarship.`\
-https://www.nytimes.com/2026/09/08/arts/design/smithsonian-lonnie-bunch-depature-reaction.html
+https://www.nytimes.com/2026/09/08/arts/design/smithsonian-lonnie-bunch-departure-reaction.html
 
 **Thousands in Michigan Got a Driver’s License With Someone Else’s Face on It**\
 `About 8,200 people who applied for an enhanced driver’s license received cards in the mail with a stock image of a smiling man in the lower-right-hand corner.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/09/08/espanol/cultura/elizabeth-holmes-documenta
 **New Hampshire Second Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 New Hampshire primary election.`\
 https://www.nytimes.com/interactive/2026/09/08/us/elections/results-new-hampshire-us-house-2-primary.html
-
-**New Hampshire Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 New Hampshire primary elections.`\
-https://www.nytimes.com/interactive/2026/09/08/us/elections/results-new-hampshire-primary.html
 
