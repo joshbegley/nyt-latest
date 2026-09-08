@@ -1,3 +1,7 @@
+**Latest Polls on North Carolina's Voter ID Amendment**\
+`Track the latest polls on North Carolina's voter ID amendment.`\
+https://www.nytimes.com/interactive/polls/north-carolina-voter-id-amendment-polls-2026.html
+
 **Standing Up for Cabernet Sauvignon**\
 `It’s the most widely planted red grape in the world and the most popular red varietal wine in the U.S., so why has it fallen out of favor?`\
 https://www.nytimes.com/2026/09/08/dining/drinks/cabernet-sauvignon-red-wine.html

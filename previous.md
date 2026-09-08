@@ -1,3 +1,7 @@
+**Latest Polls on North Carolina's Voter ID Amendment**\
+`Track the latest polls on North Carolina's voter ID amendment.`\
+https://www.nytimes.com/interactive/polls/north-carolina-voter-id-amendment-polls-2026.html
+
 **Standing Up for Cabernet Sauvignon**\
 `It’s the most widely planted red grape in the world and the most popular red varietal wine in the U.S., so why has it fallen out of favor?`\
 https://www.nytimes.com/2026/09/08/dining/drinks/cabernet-sauvignon-red-wine.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/08/us/canada-tariffs-us-relationship.html
 **Rubio to Push Colombia’s New Leader to Tackle Cocaine Trade**\
 `Targeting traffickers will be at the top of the agenda as Secretary of State Marco Rubio visits Colombia, according to people familiar with his plans.`\
 https://www.nytimes.com/2026/09/08/world/americas/rubio-colombia-cocaine.html
-
-**No Luxury Spared: New High-End Cruise Ships Set Sail**\
-`The latest batch of yacht-like vessels sailing in Europe, the Caribbean and beyond offer personalized experiences, great food and spacious suites.`\
-https://www.nytimes.com/2026/09/08/travel/new-luxury-cruise-ships.html
 
