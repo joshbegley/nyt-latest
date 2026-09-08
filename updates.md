@@ -1,3 +1,11 @@
+**Jon Small, Director and Early Billy Joel Collaborator, Dies at 79**\
+`They were in two bands together before Mr. Joel became famous, and briefly fell out over Mr. Joel’s affair with Mr. Small’s wife. Mr. Small later found success as a director of music videos and concert films.`\
+https://www.nytimes.com/2026/09/08/arts/music/jon-small-dead.html
+
+**What to Know About the 9/11 Air Quality Documents**\
+`The release on Tuesday included more than 170,000 pages of air quality reports, contamination records and correspondence among city officials in the months after Sept. 11.`\
+https://www.nytimes.com/2026/09/08/nyregion/what-to-know-sept-11-air-quality-documents.html
+
 **U.S. Strikes Iranian Oil Tankers, Drawing Threat of Reprisal**\
 `American forces were said to have hit multiple vessels in response to Iranian attempts to hit a U.S. warship.`\
 https://www.nytimes.com/2026/09/08/world/middleeast/us-strikes-iran-tankers.html
