@@ -1,3 +1,11 @@
+**Mamdani Accuses Former N.Y.C. Leaders of Lying About 9/11 Air Quality**\
+`Mayor Zohran Mamdani said that New Yorkers had gotten sick “because the leaders they trusted lied.” On Tuesday, he released 170,000 pages of records related to the aftermath of the attacks.`\
+https://www.nytimes.com/2026/09/08/nyregion/mamdani-air-quality-liars.html
+
+**2 Women Who Killed Transgender Man Are Sentenced to Life in Prison**\
+`The women had pleaded guilty to all charges in connection with the death of Sam Nordquist, 24, who was held hostage in a motel for weeks and tortured.`\
+https://www.nytimes.com/2026/09/08/nyregion/sam-nordquist-transgender-man-murder-life-prison-sentencing.html
+
 **Musk Targets Transgender Issues in Key Midterm Senate Races**\
 `A political group for the world’s richest man, who is ramping up a midterm spending blitz, began running attack ads against Democrats in Texas, Ohio and Iowa.`\
 https://www.nytimes.com/2026/09/08/us/politics/elon-musk-transgender-midterms-democrats.html
