@@ -1,3 +1,7 @@
+**Southern California Is Hot and Steamy Again**\
+`Temperatures soared across the region on Tuesday. The muggy weather will get worse before it gets better.`\
+https://www.nytimes.com/2026/09/08/weather/southern-california-heat-wave-la.html
+
 **Books to Match Your Mood**\
 `MJ Franklin of The New York Times Book Review recommends books based on your mood.`\
 https://www.nytimes.com/video/books/100000011054884/books-to-match-your-mood.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/embedded/us/politics/100000011138594/watch-live-tr
 **Latest Polls on North Carolina's Voter ID Amendment**\
 `Track the latest polls on North Carolina's voter ID amendment.`\
 https://www.nytimes.com/interactive/polls/north-carolina-voter-id-amendment-polls-2026.html
-
-**Standing Up for Cabernet Sauvignon**\
-`It’s the most widely planted red grape in the world and the most popular red varietal wine in the U.S., so why has it fallen out of favor?`\
-https://www.nytimes.com/2026/09/08/dining/drinks/cabernet-sauvignon-red-wine.html
 

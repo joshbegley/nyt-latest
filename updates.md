@@ -1,3 +1,7 @@
+**Southern California Is Hot and Steamy Again**\
+`Temperatures soared across the region on Tuesday. The muggy weather will get worse before it gets better.`\
+https://www.nytimes.com/2026/09/08/weather/southern-california-heat-wave-la.html
+
 **Books to Match Your Mood**\
 `MJ Franklin of The New York Times Book Review recommends books based on your mood.`\
 https://www.nytimes.com/video/books/100000011054884/books-to-match-your-mood.html
