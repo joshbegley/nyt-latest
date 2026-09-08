@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Sept. 8, 2026**\
+`Sunny Maharjan makes his New York Times Crossword debut.`\
+https://www.nytimes.com/2026/09/07/crosswords/daily-puzzle-2026-09-08.html
+
 **After 9/11, Documents Suggest New Yorkers Were Misled About Air Quality**\
 `New York City officials are making public more than 170,000 pages of documents related to the air quality around the World Trade Center site in the months after the Sept. 11 attacks.`\
 https://www.nytimes.com/2026/09/07/nyregion/sept-11-air-quality-cancer.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/07/sports/virtual-taekwondo-asian-games.html
 **Virtual Taekwondo to Make Debut at Asian Games**\
 `Virtual Taekwondo will make its debut at this year’s Asian Games. Taekwondo’s governing body hailed the virtual competition as a new frontier for the martial art.`\
 https://www.nytimes.com/video/world/asia/100000011055093/virtual-taekwondo-asian-games-e-sports.html
-
-**Los límites de la campaña anti-China de EE. UU. se dejan ver en Perú**\
-`El país sudamericano se ha convertido en un campo de pruebas del gobierno del presidente Trump para frenar la influencia de Pekín en el hemisferio occidental, pero sin mayores resultados.`\
-https://www.nytimes.com/es/2026/09/07/espanol/america-latina/peru-china-economia-trump.html
 

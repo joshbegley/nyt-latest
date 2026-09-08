@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Sept. 8, 2026**\
+`Sunny Maharjan makes his New York Times Crossword debut.`\
+https://www.nytimes.com/2026/09/07/crosswords/daily-puzzle-2026-09-08.html
+
 **After 9/11, Documents Suggest New Yorkers Were Misled About Air Quality**\
 `New York City officials are making public more than 170,000 pages of documents related to the air quality around the World Trade Center site in the months after the Sept. 11 attacks.`\
 https://www.nytimes.com/2026/09/07/nyregion/sept-11-air-quality-cancer.html
