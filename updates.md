@@ -1,3 +1,11 @@
+**Do You Know These Classic Novels and Their Modern Film Versions?**\
+`Did you skip the book and watch the movie instead? Test your memory of both with this short quiz.`\
+https://www.nytimes.com/quiz/2026/09/08/bookreview/classic-book-adaptations.html
+
+**‘60 Minutes’ Prepares for a High-Pressure Premiere After Its Turbulent Shake-Up**\
+`Nick Bilton, the new executive producer, has begun to put his stamp on the show. Up first: an exclusive interview with an officer who was aboard the F-15 fighter shot down over Iran.`\
+https://www.nytimes.com/2026/09/08/business/media/60-minutes-nick-bilton-bari-weiss.html
+
 **Oil Climbs Toward $100 a Barrel Following Houthi Attacks**\
 `Analysts said they expected the price of Brent crude, the international benchmark, to remain elevated for the rest of the year.`\
 https://www.nytimes.com/2026/09/08/business/oil-prices-iran-war.html
