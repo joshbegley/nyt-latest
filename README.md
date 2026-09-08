@@ -1,3 +1,7 @@
+**At the Stratford Festival, Forgiveness Is a Power Move**\
+`For his final year as artistic director, Antoni Cimolino directs “The Tempest,” and like Prospero, he understands how to wield acts of kindness.`\
+https://www.nytimes.com/2026/09/08/theater/stratford-festival-tempest-antoni-cimolino.html
+
 **Carney Says Retaliation Against U.S. Tariffs Was Unavoidable**\
 `In a video address, the prime minister said the United States was seeking “dependency, not a true economic partnership” from Canada.`\
 https://www.nytimes.com/2026/09/08/world/canada/carney-tariffs-trade.html
@@ -110,13 +114,13 @@ https://www.nytimes.com/2026/09/08/us/patrick-clancy-harrassment-legal-action.ht
 `An investigation by the House Oversight Committee found that the Navy barely responded to repeated observations of potential brain injuries and mental health problems in its pilots.`\
 https://www.nytimes.com/interactive/2026/09/08/us/navy-brain-injury-house-report.html
 
-**Julia Roberts Will Return to Broadway in ‘Small Mouth Sounds’**\
-`The all-star cast also includes Paul Rudd, Sarah Paulson, Greta Lee, Martin Freeman and Isaac Powell. Also coming: a new production of “Downstate.”`\
-https://www.nytimes.com/2026/09/08/theater/small-mouth-sounds-downstate-broadway.html
-
 **Navy Failed to Protect Pilots From Brain Injury, House Report Says**\
 `A scathing report issued by the House Oversight Committee blamed the Navy for repeatedly failing to act, and recommended that Congress pass legislation to study and treat aviators.`\
 https://www.nytimes.com/2026/09/08/us/navy-pilots-brain-injuries.html
+
+**Julia Roberts Will Return to Broadway in ‘Small Mouth Sounds’**\
+`The all-star cast also includes Paul Rudd, Sarah Paulson, Greta Lee, Martin Freeman and Isaac Powell. Also coming: a new production of “Downstate.”`\
+https://www.nytimes.com/2026/09/08/theater/small-mouth-sounds-downstate-broadway.html
 
 **Who Is Ahead in the Lexington, Ky., Mayor Race? Latest 2026 Polls**\
 `Track the latest polls in the Lexington, Ky., mayoral election.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/08/science/jacob-tsimerman-math-ai-safety.html
 **Russia Strikes Kyiv After Trump Envoys Leave**\
 `Russia launched a wave of deadly overnight strikes on Ukraine’s capital hours after President Trump’s envoys left. The envoys had visited Moscow and Kyiv over the weekend in a bid to restart stalled peace talks.`\
 https://www.nytimes.com/video/world/europe/100000011138269/russia-strikes-kyiv-trump-envoys.html
-
-**A Trade War**\
-`We look at escalating tensions between the United States and Canada.`\
-https://www.nytimes.com/2026/09/08/briefing/us-canada-trade-war.html
 

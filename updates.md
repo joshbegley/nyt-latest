@@ -1,3 +1,7 @@
+**Carney Says Retaliation Against U.S. Tariffs Was Unavoidable**\
+`In a video address, the prime minister said the United States was seeking “dependency, not a true economic partnership” from Canada.`\
+https://www.nytimes.com/2026/09/08/world/canada/carney-tariffs-trade.html
+
 **Bombardier, a Canadian Jet Maker, Is One Target in Trump’s Trade War**\
 `The Montreal-based company’s share price dropped after President Trump threatened to bar it from selling in the United States.`\
 https://www.nytimes.com/2026/09/08/business/bombardier-trump-canada-us-sales-planes.html
