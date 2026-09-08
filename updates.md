@@ -1,3 +1,11 @@
+**Street Style Look of the Week: Summer Basics**\
+`For Mollie Levy, a marketing executive in New York, being comfortable is part of her lifestyle, whether she’s dressing up or down.`\
+https://www.nytimes.com/2026/09/08/style/street-style-look.html
+
+**AfD’s Far Right Win Puts New Pressure on Germany’s Leader Merz**\
+`Antipathy to Chancellor Friedrich Merz was a reason the far right surged in a state election. Though he does not face a national election until 2029, his leadership is under increasing scrutiny.`\
+https://www.nytimes.com/2026/09/08/world/europe/germany-merz-pressure-afd.html
+
 **UK Imposes Sanctions on Israeli Settlements in West Bank, Accuses Settlers of Ethnic Cleansing**\
 `Ed Miliband, the U.K. foreign secretary, said Britain believes there is ethnic cleansing of Palestinians in areas of the West Bank, and will ban goods from illegal settlements.`\
 https://www.nytimes.com/2026/09/08/world/europe/uk-sanctions-israel-west-bank-settlements.html

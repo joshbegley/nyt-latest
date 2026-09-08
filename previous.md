@@ -1,3 +1,7 @@
+**Street Style Look of the Week: Summer Basics**\
+`For Mollie Levy, a marketing executive in New York, being comfortable is part of her lifestyle, whether she’s dressing up or down.`\
+https://www.nytimes.com/2026/09/08/style/street-style-look.html
+
 **‘On This Day’ Lesson Plan Ideas**\
 `Each day, we feature a historic New York Times article alongside a scan of that day’s printed newspaper front page. Here are five teaching ideas to make these primary sources come alive for students.`\
 https://www.nytimes.com/2026/09/08/learning/lesson-plans/teach-with-on-this-day-ways-to-learn-with-175-years-of-the-new-york-times.html
@@ -86,8 +90,8 @@ https://www.nytimes.com/2026/09/08/crosswords/strands-sidekick-920.html
 `Scroll down for hints and conversation about the puzzle for Wednesday, Sept. 9, 2026.`\
 https://www.nytimes.com/2026/09/08/crosswords/wordle-review-1908.html
 
-**A Far-Right Win Puts New Pressure on Germany’s Leader**\
-`Chancellor Friedrich Merz was a drag on his conservative party in its disastrous loss to the far right in a state election. He has vowed better communication, but no policy changes.`\
+**AfD’s Far Right Win Puts New Pressure on Germany’s Leader Merz**\
+`Antipathy to Chancellor Friedrich Merz was a reason the far right surged in a state election. Though he does not face a national election until 2029, his leadership is under increasing scrutiny.`\
 https://www.nytimes.com/2026/09/08/world/europe/germany-merz-pressure-afd.html
 
 **Australian Social Media Users Could Get Power to Switch Off Algorithms**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/08/business/stock-market-interest-rates.html
 **Restaurant Review: Somssi in New York**\
 `Somssi in Greenwich Village, from the owners of Atomix, offers a freewheeling global menu with minimum polish or pretense.`\
 https://www.nytimes.com/2026/09/08/dining/restaurant-review-somssi-nyc.html
-
-**What ‘Hyperpolitics’ Explains About This Era**\
-`The political historian Anton Jäger on his theory of “hyperpolitics.”`\
-https://www.nytimes.com/2026/09/08/opinion/ezra-klein-podcast-anton-jager.html
 
