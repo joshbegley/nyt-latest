@@ -1,3 +1,7 @@
+**U.S. Reading Scores Plummet on Global Exam**\
+`Students in Singapore and parts of China had the highest scores on the test known as PISA. Scores for American students were near a 25-year low.`\
+https://www.nytimes.com/2026/09/08/us/us-reading-test-scores-pisa.html
+
 **A los 92 años, una matemática encontró una aprendiz y un problema por resolver**\
 `Joan Birman pensaba que sus grandes descubrimientos eran cosa del pasado. Un correo inesperado inició una colaboración que produjo uno de los resultados más importantes de su carrera.`\
 https://www.nytimes.com/es/2026/09/08/espanol/ciencia-y-tecnologia/problema-matematico-sin-resolver.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/07/opinion/letters/stop-cheating-ai.html
 **Student Housing Building Collapses in New Delhi**\
 `Several people died and many were feared trapped after a five-story building with rentals for university students collapsed in New Delhi.`\
 https://www.nytimes.com/video/world/asia/100000011136831/student-housing-building-collapses-in-new-delhi.html
-
-**Thousands of Serbs Gather to Mourn Ratko Mladic, the ‘Butcher of Bosnia’**\
-`The government insisted the funeral was a private affair, even as government ministers attended and state-controlled news media lavished praise on the convicted war criminal.`\
-https://www.nytimes.com/2026/09/07/world/europe/ratko-mladic-funeral-serbia.html
 
