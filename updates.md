@@ -1,3 +1,11 @@
+**After 9/11, Documents Suggest New Yorkers Were Misled About Air Quality**\
+`The Mamdani administration is releasing more than 170,000 pages of documents related to the air quality around the World Trade Center site in the months after the Sept. 11 attacks.`\
+https://www.nytimes.com/2026/09/07/nyregion/sept-11-air-quality-cancer.html
+
+**Miami Plane Crash Starts Debate About Requiring a Buffer for Runways**\
+`A technology involving crushable concrete has been credited with saving nearly 500 passenger lives by helping halt planes that overshot their landings.`\
+https://www.nytimes.com/2026/09/07/us/miami-crash-emas-buffer-runways.html
+
 **NYT Crossword Answers for Sept. 8, 2026**\
 `Sunny Maharjan makes his New York Times Crossword debut.`\
 https://www.nytimes.com/2026/09/07/crosswords/daily-puzzle-2026-09-08.html
