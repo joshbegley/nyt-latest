@@ -1,3 +1,7 @@
+**U.S. Reading Scores Plummet on Global Exam**\
+`Students in Singapore and parts of China had the highest scores on the test known as PISA. Scores for American students were near a 25-year low.`\
+https://www.nytimes.com/2026/09/08/us/us-reading-test-scores-pisa.html
+
 **A los 92 años, una matemática encontró una aprendiz y un problema por resolver**\
 `Joan Birman pensaba que sus grandes descubrimientos eran cosa del pasado. Un correo inesperado inició una colaboración que produjo uno de los resultados más importantes de su carrera.`\
 https://www.nytimes.com/es/2026/09/08/espanol/ciencia-y-tecnologia/problema-matematico-sin-resolver.html
