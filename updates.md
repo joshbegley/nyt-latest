@@ -1,3 +1,7 @@
+**China’s Surging Exports Loom Over Trump’s Talks With Xi**\
+`China’s exports grew by a quarter in the month of August, weeks before its leader, Xi Jinping, is set to meet with President Trump in Washington.`\
+https://www.nytimes.com/2026/09/08/business/china-exports-xi-trump-talks.html
+
 **Venezuela no ha sido salvada, ha sido vendida**\
 `Un proceso opaco de privatización petrolera no facilitará la transición democrática en el país sudamericano. La hará aún más difícil.`\
 https://www.nytimes.com/es/2026/09/08/espanol/opinion/venezuela-petroleo-trump-democracia.html

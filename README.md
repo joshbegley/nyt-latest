@@ -1,3 +1,7 @@
+**Thieves Steal Three Artworks From Renoir Museum in France**\
+`Almost a year after the brazen Louvre heist, thieves targeted a Renoir museum that was formerly his last home in the south of France.`\
+https://www.nytimes.com/2026/09/08/arts/renior-museum-artworks-stolen-france.html
+
 **China’s Surging Exports Loom Over Trump’s Talks With Xi**\
 `China’s exports grew by a quarter in the month of August, weeks before its leader, Xi Jinping, is set to meet with President Trump in Washington.`\
 https://www.nytimes.com/2026/09/08/business/china-exports-xi-trump-talks.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/09/07/espanol/estados-unidos/miami-avion-amazon.
 **Hurricane Lowell Could Produce Rare Tornadoes Across Hawaii**\
 `As Hurricane Lowell approaches Hawaii’s western islands, forecasters warned that tornadoes were possible near Kauai and Niihau.`\
 https://www.nytimes.com/2026/09/07/weather/hurricane-lowell-hawaii-tornadoes.html
-
-**For a Photographer, the Towers Were an Ever-Present Focal Point**\
-`Keith Meyers spent years photographing the waterfronts in and around New York City. The twin towers became a constant backdrop.`\
-https://www.nytimes.com/2026/09/07/nyregion/twin-towers-photographs.html
 

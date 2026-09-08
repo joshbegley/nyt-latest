@@ -1,3 +1,7 @@
+**China’s Surging Exports Loom Over Trump’s Talks With Xi**\
+`China’s exports grew by a quarter in the month of August, weeks before its leader, Xi Jinping, is set to meet with President Trump in Washington.`\
+https://www.nytimes.com/2026/09/08/business/china-exports-xi-trump-talks.html
+
 **Venezuela no ha sido salvada, ha sido vendida**\
 `Un proceso opaco de privatización petrolera no facilitará la transición democrática en el país sudamericano. La hará aún más difícil.`\
 https://www.nytimes.com/es/2026/09/08/espanol/opinion/venezuela-petroleo-trump-democracia.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/07/weather/hurricane-lowell-hawaii-tornadoes.htm
 **For a Photographer, the Towers Were an Ever-Present Focal Point**\
 `Keith Meyers spent years photographing the waterfronts in and around New York City. The twin towers became a constant backdrop.`\
 https://www.nytimes.com/2026/09/07/nyregion/twin-towers-photographs.html
-
-**Germany’s ‘Firewall’ Against the Far Right Is Being Tested as Never Before**\
-`A blowout win by the far-right Alternative for Germany party in a state election has revealed a split among voters about whether to uphold a decades-old strategy for sidelining extremists.`\
-https://www.nytimes.com/2026/09/07/world/europe/germany-afd-election-saxony-anhalt-election.html
 
