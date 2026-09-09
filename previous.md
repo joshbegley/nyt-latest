@@ -1,3 +1,7 @@
+**How Can I Persuade My Daughter to Forgive Me for Outing Her?**\
+`A reader revealed her adult child’s gender transition to her father after learning that he was ill. Ten years later, she is anguished that she may never again see her daughter.`\
+https://www.nytimes.com/2026/09/09/style/lgbt-outing-family-estrangement.html
+
 **Read the document**\
 `The Missouri Supreme Court has called in Secretary of State Denny Hoskins for a contempt hearing for not following its order on which congressional map to use in November.`\
 https://www.nytimes.com/interactive/2026/09/09/us/Missouri-Supreme-Court-order.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/09/world/africa/ebola-congo-truck-driver.html
 **Word of the Day: parlance**\
 `This word has appeared in 105 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/09/09/learning/word-of-the-day-parlance.html
-
-**Should Professors Teach More? Some Colleges Are Trying to Make Them.**\
-`Schools and entire states are creating new rules forcing professors to teach more hours and show up at the office. At one university, professors quit in response.`\
-https://www.nytimes.com/2026/09/09/us/university-professors-teaching-research-quit.html
 

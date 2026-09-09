@@ -1,3 +1,7 @@
+**How Can I Persuade My Daughter to Forgive Me for Outing Her?**\
+`A reader revealed her adult child’s gender transition to her father after learning that he was ill. Ten years later, she is anguished that she may never again see her daughter.`\
+https://www.nytimes.com/2026/09/09/style/lgbt-outing-family-estrangement.html
+
 **JD Vance Doesn’t Want to Help Married Parents. He Wants to Hurt Single Mothers.**\
 `Redistributing money from single working parents to married ones is not a pro-family policy.`\
 https://www.nytimes.com/2026/09/09/opinion/trump-vance-single-parents-married-family.html
