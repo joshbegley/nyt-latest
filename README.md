@@ -1,3 +1,23 @@
+**Travelers Face More Delays After Major Disruption at British Airports**\
+`An air traffic control problem caused more than 1,000 flight cancellations on Tuesday, and airlines warned that the effects could linger.`\
+https://www.nytimes.com/2026/09/09/world/europe/uk-air-traffic-control-flight-delays-london.html
+
+**China inicia servicio de carga a través del Ártico**\
+`El deshielo está abriendo una ruta comercial a través del Ártico, en un pasaje que conecta Asia con Europa. China ha iniciado el primer servicio regular, como parte de sus ambiciones polares.`\
+https://www.nytimes.com/es/2026/09/09/espanol/mundo/china-ruta-comercial-deshielo.html
+
+**NYT Spelling Bee Answers for September 9, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/09/09/crosswords/spelling-bee-forum.html
+
+**He’s Seen Images of 9/11 From Just About Every Angle. Except This One.**\
+`The 9/11 completist community wants to know and see everything. The Holy Grail? Pictures from inside the twin towers.`\
+https://www.nytimes.com/2026/09/09/nyregion/911-disposable-camera.html
+
+**State Senate Approved Jessica Ramos’s Travel Claims Despite Red Flags**\
+`Senate officials approved reimbursements for the senator, a Queens Democrat, despite receipts showing the expenses had been charged to her campaign.`\
+https://www.nytimes.com/2026/09/09/nyregion/ny-senate-ramos-double-billing.html
+
 **La batalla por el voto por correo en EE. UU. entra en su fase decisiva**\
 `El plan del gobierno para revisar las boletas por correo sigue bloqueado mientras la Corte Suprema evalúa las impugnaciones a las nuevas reglas sobre boletas del Servicio Postal del país.`\
 https://www.nytimes.com/es/2026/09/09/espanol/estados-unidos/batalla-voto-correo-ee-uu-trump.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/video/us/100000011139959/hurricane-lowell-kauai-flood-po
 **Does It Matter If We Anthropomorphize A.I.?**\
 `If a tiger mauls your face, the important question isn’t “Is it conscious?” It’s “Why did it maul my face?” The “Hard Fork” co-hosts Casey Newton and Kevin Roose discuss that whether you believe A.I. is conscious or not, the consequences of autonomous agents are mounting.`\
 https://www.nytimes.com/video/podcasts/100000011140184/does-it-matter-if-we-anthropomorphize-ai.html
-
-**Politics News Site NOTUS Rebrands as The Washington Sun**\
-`A trademark dispute scuttled its plans to relaunch as The Washington Star, so the site chose a different name.`\
-https://www.nytimes.com/2026/09/08/business/media/notus-washington-sun-rebrand.html
-
-**National Guardsman Charged With Pointing Gun at Another Soldier on D.C. Patrol**\
-`The office of Jeanine Pirro, the U.S. attorney in Washington, charged Zion Mitchell with two felonies.`\
-https://www.nytimes.com/2026/09/08/us/politics/national-guardsman-gun-soldier-dc-patrol.html
-
-**Impunity in the West Bank**\
-`Former Israeli military officers warn that settler violence in the West Bank is destroying Israel’s democratic values from within.`\
-https://www.nytimes.com/2026/09/08/world/israel-west-bank-canada-us-trade.html
-
-**American Bar Association Ends D.E.I. Standards Under Trump Pressure**\
-`The group that accredits law schools voted to eliminate a requirement that the schools show a commitment to diversity and inclusion.`\
-https://www.nytimes.com/2026/09/08/us/american-bar-association-dei-standards-end.html
-
-**N.Y.C. Leaders ‘Lied’ About Air Quality After 9/11, Mamdani Says**\
-`Mayor Zohran Mamdani said city leaders “lied” about the air quality being safe around the World Trade Center site after the Sept. 11 attacks.`\
-https://www.nytimes.com/video/us/100000011138639/mamdani-911-attack-air-quality-nyc.html
 
