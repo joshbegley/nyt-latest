@@ -1,3 +1,7 @@
+**Missouri Supreme Court Sets Contempt Hearing in Fight Over House Map**\
+`Amid conflicting rulings, Missouri’s highest court ordered the secretary of state to respond to claims that he violated an order on redistricting.`\
+https://www.nytimes.com/2026/09/09/us/missouri-redistricting-congress-contempt.html
+
 **How Can I Persuade My Daughter to Forgive Me for Outing Her?**\
 `A reader revealed her adult child’s gender transition to her father after learning that he was ill. Ten years later, she is anguished that she may never again see her daughter.`\
 https://www.nytimes.com/2026/09/09/style/lgbt-outing-family-estrangement.html
@@ -90,8 +94,8 @@ https://www.nytimes.com/es/2026/09/09/espanol/ejercicios-mobilidad-envejecer.htm
 `My father died on 9/11, and a nation united behind my family, as well as others. We desperately need that sense of togetherness today.`\
 https://www.nytimes.com/2026/09/09/opinion/911-flight-93-america-nation.html
 
-**How Roy Cohn Shaped Trump — and America**\
-`A new book reveals how the lawyer’s legacy lives on decades after his death.`\
+**Roy Cohn: ‘The Evil Forrest Gump of the 20th Century’**\
+`A new book reveals how the infamous lawyer helped shape Donald Trump.`\
 https://www.nytimes.com/2026/09/09/opinion/roy-cohn-american-scoundrel-trump.html
 
 **In England — Yes, England — Tea and Cantaloupe Grow as the Climate Warms**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/09/realestate/design-advice-kitchen-stools.html
 **How a Driver’s Sudden Death Triggered Ebola Panic in Congo**\
 `When a truck driver unexpectedly collapsed and died in a remote village, frontline medical staff scrambled to safely isolate his body, triggering a standoff.`\
 https://www.nytimes.com/2026/09/09/world/africa/ebola-congo-truck-driver.html
-
-**Word of the Day: parlance**\
-`This word has appeared in 105 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/09/09/learning/word-of-the-day-parlance.html
 

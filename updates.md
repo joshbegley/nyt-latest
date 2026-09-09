@@ -1,3 +1,11 @@
+**Missouri Supreme Court Sets Contempt Hearing in Fight Over House Map**\
+`Amid conflicting rulings, Missouri’s highest court ordered the secretary of state to respond to claims that he violated an order on redistricting.`\
+https://www.nytimes.com/2026/09/09/us/missouri-redistricting-congress-contempt.html
+
+**Roy Cohn: ‘The Evil Forrest Gump of the 20th Century’**\
+`A new book reveals how the infamous lawyer helped shape Donald Trump.`\
+https://www.nytimes.com/2026/09/09/opinion/roy-cohn-american-scoundrel-trump.html
+
 **How Can I Persuade My Daughter to Forgive Me for Outing Her?**\
 `A reader revealed her adult child’s gender transition to her father after learning that he was ill. Ten years later, she is anguished that she may never again see her daughter.`\
 https://www.nytimes.com/2026/09/09/style/lgbt-outing-family-estrangement.html
