@@ -1,3 +1,35 @@
+**Grilled Corn and Avocado Salad With Feta Dressing**\
+`This lively salad of corn, scallions, jalapeño and avocado tossed with a tangy buttermilk-feta dressing is like summer on a plate.`\
+https://www.nytimes.com/video/dining/100000011140090/grilled-corn-and-avocado-salad-with-feta-dressing.html
+
+**Blueberry Poppy Seed Brunch Cake**\
+`This recipe was brought to The Times in a 1990 article by Marian Burros about the 34th Pillsbury Bake-Off, the Super Bowl of baking contests.`\
+https://www.nytimes.com/video/dining/100000011139984/blueberry-poppy-seed-brunch-cake.html
+
+**Summer Pasta With Zucchini, Ricotta and Basil**\
+`This summer pasta is simple and fresh, ideally made with vegetables straight from the garden or market.`\
+https://www.nytimes.com/video/dining/100000011139951/summer-pasta-with-zucchini-ricotta-and-basil.html
+
+**Pesto Beans**\
+`Part quick and rustic bean stew and part deconstructed pesto, this pesto-inspired one-pan meal requires no blender and minimal slicing.`\
+https://www.nytimes.com/video/dining/100000011139925/pesto-beans.html
+
+**Cumin Tomato Salad With Jammy Eggs**\
+`Inspired by the delightful Indian egg curry, this egg salad recipe omits traditional mayonnaise in favor of a looser, brighter mix of fresh tomatoes, cilantro and sizzled spices.`\
+https://www.nytimes.com/video/dining/100000011139846/cumin-tomato-salad-with-jammy-eggs.html
+
+**Live Updates: Republicans Prepare for a Midterm Pageant Heavy on Trump**\
+`The president will speak on both nights of the gathering, a convention in name only that he pushed for. But with his approval ratings sagging, it’s unclear whether the event will help Republicans in tough races.`\
+https://www.nytimes.com/live/2026/09/09/us/rnc-trump-midterm-convention-updates
+
+**Scientists Discover the Earliest Evidence of Drug Use in Really Old Teeth**\
+`A hunter-gatherer who lived in Indonesia as early as 25,000 years ago may have regularly sucked on betel nuts to release their psychoactive properties.`\
+https://www.nytimes.com/2026/09/09/science/scientists-discover-the-earliest-evidence-of-drug-use-in-really-old-teeth.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/interactive/2026/09/09/travel/things-to-do-stockholm.html
+
 **Toxic PFAS Cleanups at Military Sites Face Decades of Delay**\
 `The Pentagon has again postponed PFAS cleanups at hundreds of military sites, in some cases up to 19 years, prompting bipartisan anger in Congress.`\
 https://www.nytimes.com/2026/09/09/climate/pfas-military-bases-cleanup-delays.html
@@ -157,40 +189,4 @@ https://www.nytimes.com/2026/09/09/world/americas/us-boat-strikes-south-america.
 **5 hombres cubanos perdieron la vida a causa de un avión de carga en Miami**\
 `Días después de que un avión de carga de Amazon se estrelló contra una camioneta en el Aeropuerto Internacional de Miami y dejó cinco muertos, comenzaron a conocerse los perfiles de las víctimas.`\
 https://www.nytimes.com/es/2026/09/09/espanol/estados-unidos/mueren-cubanos-miami-avion.html
-
-**New Accuser Sues Foundations With Ties to Cesar Chavez**\
-`The lawsuit, the first of its kind since revelations against the union leader emerged this year, accuses two foundations of failing to prevent “abusive, rogue and inappropriate” behavior.`\
-https://www.nytimes.com/2026/09/09/us/cesar-chavez-lawsuit.html
-
-**Missouri Supreme Court Sets Contempt Hearing in Fight Over House Map**\
-`Amid conflicting rulings, Missouri’s highest court ordered the secretary of state to respond to claims that he violated an order on redistricting.`\
-https://www.nytimes.com/2026/09/09/us/missouri-redistricting-congress-contempt.html
-
-**How Can I Persuade My Daughter to Forgive Me for Outing Her?**\
-`A reader revealed her adult child’s gender transition to her father after learning that he was ill. Ten years later, she is anguished that she may never again see her daughter.`\
-https://www.nytimes.com/2026/09/09/style/lgbt-outing-family-estrangement.html
-
-**Read the document**\
-`The Missouri Supreme Court has called in Secretary of State Denny Hoskins for a contempt hearing for not following its order on which congressional map to use in November.`\
-https://www.nytimes.com/interactive/2026/09/09/us/Missouri-Supreme-Court-order.html
-
-**Sinkhole at Nicolas Cage’s Malibu Home Forces Evacuations**\
-`A sinkhole opened under the driveway of a beachfront home owned by the actor Nicolas Cage in Malibu, Calif., forcing local officials to order the evacuation of dozens of properties.`\
-https://www.nytimes.com/video/us/100000011141041/nicolas-cage-sinkhole-malibu-california.html
-
-**Measuring the Cost of Trump’s Multiple Wars**\
-`Voters and some Republican lawmakers are growing weary of President Trump’s trade battles and the economic fallout from fighting in the Middle East.`\
-https://www.nytimes.com/2026/09/09/business/dealbook/trump-costs-wars.html
-
-**Clay, an A.I. Sales Tool Provider, Raises $115 Million**\
-`The round was led by Wellington Management, a firm known for investing in start-ups on the path toward potential initial public offerings.`\
-https://www.nytimes.com/2026/09/09/business/dealbook/clay-ai-fundraising.html
-
-**A New Drug Lifts the Fog of Sleepiness for Those With Narcolepsy**\
-`The first-of-its-kind drug offers a reprieve for people who live with the debilitating sleep disorder.`\
-https://www.nytimes.com/2026/09/09/science/narcolepsy-drug-orzeyful-neuroscience.html
-
-**Scientists Who Study Sleep and Narcolepsy Win Prestigious Lasker Award**\
-`Two researchers who study the debilitating sleep disorder have won a prestigious Lasker Award. Their research in animals laid the groundwork for a new drug that addresses the conditions’s root cause.`\
-https://www.nytimes.com/2026/09/09/science/narcolepsy-sleep-lasker-award-researchers.html
 

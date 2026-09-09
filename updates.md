@@ -1,3 +1,7 @@
+**Toxic PFAS Cleanups at Military Sites Face Decades of Delay**\
+`The Pentagon has again postponed PFAS cleanups at hundreds of military sites, in some cases up to 19 years, prompting bipartisan anger in Congress.`\
+https://www.nytimes.com/2026/09/09/climate/pfas-military-bases-cleanup-delays.html
+
 **Police Expand Investigation Into Reform U.K. After Undercover Sting**\
 `The Metropolitan Police are investigating Nigel Farage’s right-wing populist party after footage appeared to show party officials arranging secret contributions from a foreign donor.`\
 https://www.nytimes.com/2026/09/09/world/europe/reform-uk-investigation-nigel-farage.html
