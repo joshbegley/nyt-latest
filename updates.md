@@ -1,3 +1,11 @@
+**How Trump’s Mail Voting Plan Would Work**\
+`The plan, which two dozen states have challenged as unconstitutional, puts in place new requirements about who can receive mail ballots.`\
+https://www.nytimes.com/2026/09/09/us/politics/trump-mail-in-voting-ballots-usps.html
+
+**More Flights Are Canceled as Major U.K. Air Traffic Disruption Persists**\
+`More than 2,000 flights were disrupted over two days after a technical failure in Britain’s air traffic control system affected several airports.`\
+https://www.nytimes.com/video/world/europe/100000011141527/canceled-flights-uk-air-traffic-disruption.html
+
 **Joseph Rice, Lowcountry Lawyer Who Took On Big Tobacco, Dies at 72**\
 `He challenged tobacco companies as well as the opioid industry, securing multibillion-dollar settlements that also benefited public health.`\
 https://www.nytimes.com/2026/09/09/us/joe-rice-dead.html
