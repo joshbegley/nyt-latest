@@ -47,7 +47,7 @@ https://www.nytimes.com/2026/09/08/arts/music/jon-small-dead.html
 https://www.nytimes.com/2026/09/08/nyregion/what-to-know-sept-11-air-quality-documents.html
 
 **U.S. Hits 5 Iranian Oil Tankers, Citing Attempted Strikes on Warship**\
-`Iran said it had retaliated by launching missiles at Jordan, raising the specter of still more fighting.`\
+`Iran retaliated by launching missiles at Jordan, raising the specter of still more fighting.`\
 https://www.nytimes.com/2026/09/08/world/middleeast/us-strikes-iran-tankers.html
 
 **Mamdani Accuses Former N.Y.C. Leaders of Lying About 9/11 Air Quality**\
