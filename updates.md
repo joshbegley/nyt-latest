@@ -1,3 +1,7 @@
+**Saudi Arabia Runs Out of Easy Routes for Oil to Bypass Iran War**\
+`Saudi Arabia’s oil exports are plummeting as oil prices surpass $100 a barrel.`\
+https://www.nytimes.com/2026/09/09/business/saudi-arabia-houthis-red-sea-oil-shipping.html
+
 **‘Ferris Bueller Gone Bad’: 22-Year-Old Pleads Guilty in Giant Bitcoin Heist**\
 `Malone Lam, a Singaporean citizen, admitted to stealing cryptocurrency valued at more than $245 million in one of the largest such heists in U.S. history.`\
 https://www.nytimes.com/2026/09/09/us/bitcoin-crypto-heist-malone-lam.html
