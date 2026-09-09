@@ -1,3 +1,7 @@
+**¿Qué es el problema de Navier-Stokes que OpenAI dijo haber resuelto?**\
+`La empresa anunció que había resuelto uno de los siete “problemas del milenio”, considerados entre los más importantes de las matemáticas avanzadas. Te explicamos de qué se trata.`\
+https://www.nytimes.com/es/2026/09/09/espanol/ciencia-y-tecnologia/problema-matematico-openai-que-es.html
+
 **The Theme Park at the Heart of France’s Culture War**\
 `The Puy du Fou is the one of France’s most visited theme parks. Its founder says it gives the French a “founding narrative,” but critics say it peddles “far-right propaganda.”`\
 https://www.nytimes.com/2026/09/09/world/europe/theme-park-france-right-culture-war.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/books/100000011054884/books-to-match-your-mood.htm
 **Trump Cannot Pardon Lindsay Clancy, but Her Lawyer Asked Anyway**\
 `President Trump does not have the power to wipe away the state murder charges Ms. Clancy faces. Her lawyer’s spokesman said the comments were “a statement to the country.”`\
 https://www.nytimes.com/2026/09/08/us/lindsay-clancy-lawyer-trump-pardon-murder.html
-
-**Meta Introduces Muse, an A.I. Agent That Can Send Your Emails and Book Your Travel**\
-`Muse, Meta’s new A.I. agent, acts as a personal digital assistant that connects to Facebook and Instagram, as well as third-party apps such as Spotify and OpenTable.`\
-https://www.nytimes.com/2026/09/08/technology/meta-muse-ai-agent.html
 
