@@ -1,3 +1,7 @@
+**King Harald V’s Funeral Draws Thousands of Mourners**\
+`Thousands of mourners gathered in Oslo for the funeral of King Harald V on Wednesday. Royal families and heads of state attended the ceremony. Harald, who died in August, was 89.`\
+https://www.nytimes.com/video/world/europe/100000011141711/norway-king-harald-funeral.html
+
 **Yemen Tilts Toward Full-Scale War as Saudi-Houthi Clashes Escalate**\
 `With its oil-export routes once again under threat, Saudi Arabia is stepping up its military campaign against an old antagonist.`\
 https://www.nytimes.com/2026/09/09/world/middleeast/saudi-yemen-strilkes.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island
 **Providence, Rhode Island, Mayor Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Rhode Island primary election.`\
 https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-mayor-providence-primary.html
-
-**Rhode Island Treasurer Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Rhode Island primary election.`\
-https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-treasurer-primary.html
 
