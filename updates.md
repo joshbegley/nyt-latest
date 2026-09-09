@@ -1,3 +1,11 @@
+**Fetterman to Praise Trump in Convention Video**\
+`Senator John Fetterman, who has become alienated from his own party, was expected to make a surprise virtual appearance, breaking with Democrats’ midterm message.`\
+https://www.nytimes.com/2026/09/09/us/politics/fetterman-to-praise-trump-in-convention-video.html
+
+**Brothers Seeking Pardons for Sex Trafficking Hire a Former Trump Lawyer**\
+`Documents appear to show payments were made to the lawyer Alan M. Dershowitz to pursue “executive clemency and judicial reversal” for Tal, Oren and Alon Alexander.`\
+https://www.nytimes.com/2026/09/09/realestate/dershowitz-alexander-brothers-pardon.html
+
 **Trump’s Census Overhaul Would Exclude Some Immigrants and Remove Questions on Race**\
 `The proposals for 2030 are among significant changes that would upend a process for helping allot congressional seats and shape policies that address disparities.`\
 https://www.nytimes.com/2026/09/09/us/politics/trump-census-immigrants-race.html

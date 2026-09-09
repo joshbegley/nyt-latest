@@ -1,3 +1,11 @@
+**Fetterman to Praise Trump in Convention Video**\
+`Senator John Fetterman, who has become alienated from his own party, was expected to make a surprise virtual appearance, breaking with Democrats’ midterm message.`\
+https://www.nytimes.com/2026/09/09/us/politics/fetterman-to-praise-trump-in-convention-video.html
+
+**Brothers Seeking Pardons for Sex Trafficking Hire a Former Trump Lawyer**\
+`Documents appear to show payments were made to the lawyer Alan M. Dershowitz to pursue “executive clemency and judicial reversal” for Tal, Oren and Alon Alexander.`\
+https://www.nytimes.com/2026/09/09/realestate/dershowitz-alexander-brothers-pardon.html
+
 **Trump’s Census Overhaul Would Exclude Some Immigrants and Remove Questions on Race**\
 `The proposals for 2030 are among significant changes that would upend a process for helping allot congressional seats and shape policies that address disparities.`\
 https://www.nytimes.com/2026/09/09/us/politics/trump-census-immigrants-race.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/09/09/technology/apple-iphone-duo-foldable-phone.ht
 **14 Killed in Weapons Depot Blast in Northwest Syria**\
 `Officials said they had not determined the cause of the explosion. Years of fighting have left Syria littered with weapons and ordnance left over from the civil war.`\
 https://www.nytimes.com/2026/09/09/world/middleeast/syria-weapons-depot-blast.html
-
-**Why Trump’s Republican Midterm ‘Convention’ Isn’t a Real Convention**\
-`No nominations or formal party business will be happening, as they would at a traditional presidential convention. But the made-for-TV speeches will look much the same.`\
-https://www.nytimes.com/2026/09/09/us/politics/trump-republican-midterm-convention-gop-party.html
-
-**Grilled Corn and Avocado Salad With Feta Dressing**\
-`This lively salad of corn, scallions, jalapeño and avocado tossed with a tangy buttermilk-feta dressing is like summer on a plate.`\
-https://www.nytimes.com/video/dining/100000011140090/grilled-corn-and-avocado-salad-with-feta-dressing.html
 
 **Live Updates: Republicans Open a Midterm Convention Heavy on Trump**\
 `The president will speak on both nights of the gathering in Dallas. But with his approval ratings sagging, it’s unclear whether the event will help Republicans in tough races.`\
