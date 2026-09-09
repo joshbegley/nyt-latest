@@ -1,3 +1,7 @@
+**Trump’s Super PAC Is Tied to Mystery Group Spending $25 Million on Midterms**\
+`The recently created Republican group is pumping cash into half a dozen key midterm races, with the largest amounts going toward Senate contests in New Hampshire and Alaska.`\
+https://www.nytimes.com/2026/09/09/us/politics/trump-midterms-maga-inc-spending.html
+
 **Germany’s Right Turn**\
 `We take stock of the AfD’s success.`\
 https://www.nytimes.com/2026/09/09/briefing/germanys-right-turn.html

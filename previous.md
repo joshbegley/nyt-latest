@@ -1,3 +1,7 @@
+**Trump’s Super PAC Is Tied to Mystery Group Spending $25 Million on Midterms**\
+`The recently created Republican group is pumping cash into half a dozen key midterm races, with the largest amounts going toward Senate contests in New Hampshire and Alaska.`\
+https://www.nytimes.com/2026/09/09/us/politics/trump-midterms-maga-inc-spending.html
+
 **Germany’s Right Turn**\
 `We take stock of the AfD’s success.`\
 https://www.nytimes.com/2026/09/09/briefing/germanys-right-turn.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/09/fashion/watches-vacheron-constantin-homo-fabe
 **California, an Environmental Bastion, Warms to Nuclear Energy**\
 `The state is considering extending the life of its last nuclear power plant, Diablo Canyon, and allowing construction of new reactors to help meet its clean energy goals.`\
 https://www.nytimes.com/2026/09/09/business/energy-environment/california-diablo-canyon-nuclear-energy.html
-
-**Dolly Parton’s Musical, ‘Inter Alia’ and More on Broadway, and Off, This Fall**\
-`On New York stages this season come the new musicals “Galileo” and “Wanted,” a “Shuffle Along” reunion with Audra McDonald, and Tom Hiddleston in “Much Ado About Nothing.”`\
-https://www.nytimes.com/2026/09/09/theater/julia-louis-dreyfus-john-legend-broadway-off-broadway-fall-theater.html
 
