@@ -1,3 +1,27 @@
+**The Establishment Pulls Through: Five Takeaways from the New Hampshire Primaries**\
+`The U.S. Senate race will feature familiar faces: former Senator John E. Sununu and Chris Pappas, a four-term congressman. Stefany Shaheen, a senator’s daughter, eked out a win in a House primary.`\
+https://www.nytimes.com/2026/09/09/us/politics/new-hampshire-primaries-takeaways.html
+
+**Why Trump Is Gathering Republicans in Texas, and Iran Targets U.S. Warships**\
+`Plus, the fake images flooding real estate listings.`\
+https://www.nytimes.com/2026/09/09/podcasts/the-headlines/trump-republicans-texas-iran-us-warships.html
+
+**Trump’s War on Mail-In Voting**\
+`President Trump has long made unfounded claims that fraud is rampant among mail votes.`\
+https://www.nytimes.com/2026/09/09/podcasts/the-daily/trumps-war-on-mail-in-voting.html
+
+**NYT Connections Answers for September 10, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Sept. 10, 2026.`\
+https://www.nytimes.com/2026/09/09/crosswords/connections-companion-1187.html
+
+**NYT Strands Hints for September 10, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Sept. 10, 2026.`\
+https://www.nytimes.com/2026/09/09/crosswords/strands-sidekick-921.html
+
+**Today’s Wordle Hints for September 10, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Sept. 10, 2026.`\
+https://www.nytimes.com/2026/09/09/crosswords/wordle-review-1909.html
+
 **The Unanswered Questions in the N.B.A.’s Kawhi Leonard Ruling**\
 `Pablo on where the investigation goes next.`\
 https://www.nytimes.com/2026/09/09/podcasts/unanswered-questions-nba-kawhi-leonard-ruling.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/09/09/fashion/camp-watches-justin-jakobson-californ
 **Jaeger-LeCoultre Now Has 6 Fragrances to Its Name**\
 `Jaeger-LeCoultre, which now has six fragrances to its name, says you would be surprised.`\
 https://www.nytimes.com/2026/09/09/fashion/watches-perfume-jaeger-lecoultre-switzerland.html
-
-**Wei Koh Adds the Watch Brand Legare to His Résumé**\
-`Wei Koh, a publisher, documentary host and industry expert, has added Legare to his long list of responsibilities.`\
-https://www.nytimes.com/2026/09/09/fashion/watches-wei-koh-legare.html
-
-**In Eastern Europe, a Public Clock Unlike Any Other**\
-`The four faces on the Sarajevo Clock Tower are said to be the last using Turkish time, a remnant of the Ottoman Empire.`\
-https://www.nytimes.com/2026/09/09/fashion/sarajevo-clock-tower-lunar-time-bosnia-and-herzegovina.html
-
-**The Rolex Oyster at 100**\
-`The design’s Perpetual iteration is a simple time-only model but it has spawned a series of variations.`\
-https://www.nytimes.com/2026/09/09/fashion/watches-rolex-oyster-100.html
-
-**She’s Shaping the Look of Pop Culture**\
-`Claire Sullivan makes custom creations for Addison Rae, Rosalía, Clairo and more. During New York Fashion Week, she will introduce her first collection of ready-to-wear.`\
-https://www.nytimes.com/2026/09/09/style/claire-sullivan-fashion-design-pop-culture.html
-
-**A Storied Swiss Brand Makes a Comeback. Again.**\
-`After its 2015 revival, Angelus weathered criticism for its wide, avant-garde watches. Now, the company has pulled off a striking — and lauded — pivot.`\
-https://www.nytimes.com/2026/09/09/fashion/watches-angelus-switzerland.html
-
-**How Amazon’s Zoox Is Taking On Waymo in San Francisco**\
-`The Amazon-owned driverless car company is a distant second to Waymo. Its pitch to riders? Wine pop-ups, festival sponsorships and a car built to be filmed.`\
-https://www.nytimes.com/2026/09/09/technology/zoox-waymo-san-francisco.html
 
