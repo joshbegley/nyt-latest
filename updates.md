@@ -1,3 +1,7 @@
+**Fetterman Praises Trump in Convention Video**\
+`Senator John Fetterman, who has become alienated from his own party, made a surprise virtual appearance, breaking with Democrats’ midterm message.`\
+https://www.nytimes.com/2026/09/09/us/politics/john-fetterman-trump-republican-convention.html
+
 **Fetterman to Praise Trump in Convention Video**\
 `Senator John Fetterman, who has become alienated from his own party, was expected to make a surprise virtual appearance, breaking with Democrats’ midterm message.`\
 https://www.nytimes.com/2026/09/09/us/politics/john-fetterman-trump-republican-convention.html
