@@ -1,3 +1,7 @@
+**New Accuser Sues Foundations With Ties to Cesar Chavez**\
+`The lawsuit, the first of its kind since revelations against the union leader emerged this year, accuses two foundations of failing to prevent “abusive, rogue and inappropriate” behavior.`\
+https://www.nytimes.com/2026/09/09/us/cesar-chavez-lawsuit.html
+
 **Missouri Supreme Court Sets Contempt Hearing in Fight Over House Map**\
 `Amid conflicting rulings, Missouri’s highest court ordered the secretary of state to respond to claims that he violated an order on redistricting.`\
 https://www.nytimes.com/2026/09/09/us/missouri-redistricting-congress-contempt.html
