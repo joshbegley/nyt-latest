@@ -1,3 +1,7 @@
+**Sinkhole Opens at Beachfront Malibu Home, Forcing Evacuations**\
+`The expanding sinkhole formed under the driveway of a home that the actor Nicolas Cage bought in 2024. Dozens of homes were evacuated.`\
+https://www.nytimes.com/2026/09/09/us/malibu-sinkhole-nicolas-cage-house.html
+
 **Jimmy Kimmel Weighs in on Trump’s New Look**\
 `Back from his summer vacation, the late night host wondered, “Is it possible to have a midlife crisis at 80 years old?”`\
 https://www.nytimes.com/2026/09/09/arts/television/jimmy-kimmel-trump-new-hair.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/100000011138639/mamdani-911-attack-air-quality-
 **At 9/11 Tribute, Trump Adds New Claim to His Disputed Role After Attack**\
 `President Trump has long sought to position himself close to the Sept. 11 recovery effort and has made a series of questionable and provocative statements to burnish his political brand.`\
 https://www.nytimes.com/2026/09/08/us/politics/trump-sept-11-firefighters.html
-
-**Woman Pleads Guilty to Drugging and Killing 3 Men She Met on the Street**\
-`In 2023 and 2024, Tabitha Bundrick lured men, sometimes with promises of sex, to vacant apartments or their homes, before drugging and robbing them, leaving them to die, Manhattan prosecutors said.`\
-https://www.nytimes.com/2026/09/08/nyregion/murder-robbery-guilty-plea-nyc-woman.html
 

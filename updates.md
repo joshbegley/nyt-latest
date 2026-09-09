@@ -1,3 +1,7 @@
+**Sinkhole Opens at Beachfront Malibu Home, Forcing Evacuations**\
+`The expanding sinkhole formed under the driveway of a home that the actor Nicolas Cage bought in 2024. Dozens of homes were evacuated.`\
+https://www.nytimes.com/2026/09/09/us/malibu-sinkhole-nicolas-cage-house.html
+
 **Jimmy Kimmel Weighs in on Trump’s New Look**\
 `Back from his summer vacation, the late night host wondered, “Is it possible to have a midlife crisis at 80 years old?”`\
 https://www.nytimes.com/2026/09/09/arts/television/jimmy-kimmel-trump-new-hair.html
