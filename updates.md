@@ -1,3 +1,11 @@
+**Trump’s Census Overhaul Would Exclude Some Immigrants and Remove Questions on Race**\
+`The proposals for 2030 are among significant changes that would upend a process for helping allot congressional seats and shape policies that address disparities.`\
+https://www.nytimes.com/2026/09/09/us/politics/trump-census-immigrants-race.html
+
+**How Much Does Trump Care Who Wins the Midterms?**\
+`President Trump’s convention has kicked off in Dallas, so we asked Maggie Haberman to help make sense of his midterm strategy.`\
+https://www.nytimes.com/2026/09/09/us/politics/trump-midterm-strategy.html
+
 **States File 2 Lawsuits Over Trump’s Cuts to Endangered Species Act**\
 `Two lawsuits seek to reverse the Trump administration’s moves to open the habitats of imperiled wildlife to commercial activities.`\
 https://www.nytimes.com/2026/09/09/climate/lawsuit-trump-endangered-species-act.html
