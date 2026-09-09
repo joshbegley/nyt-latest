@@ -1,3 +1,7 @@
+**Iran’s Strikes on Base in Jordan Caused Limited Damage, U.S. Officials Say**\
+`The latest round of fighting may result in reports of traumatic brain injuries among American service members, officials warned.`\
+https://www.nytimes.com/2026/09/09/us/politics/iran-strikes-jordan-base.html
+
 **Un video muestra al gerente de un supermercado que salva a una niña en Puebla**\
 `Luis Cruz corrió hacia una calle transitada para apartar a una niña del camino de una camioneta que se aproximaba. El video del rescate lo ha convertido en una sensación local.`\
 https://www.nytimes.com/es/2026/09/09/espanol/video-nina-atropellada-puebla.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/09/09/dining/quick-fresh-tomato-sauce.html
 **Should You Get a DEXA Scan at Menopause? What to Know About Bone Density Tests.**\
 `Some doctors and influencers say women shouldn’t wait until their 60s for a DEXA scan. Here’s what to consider before getting one.`\
 https://www.nytimes.com/2026/09/09/well/live/dexa-scan-bone-density-menopause.html
-
-**Federal Trial Against Huawei Begins After 8 Years**\
-`The Chinese telecommunications giant has been accused of stealing intellectual property from six companies, including Motorola Solutions and T-Mobile.`\
-https://www.nytimes.com/2026/09/09/nyregion/federal-trial-against-huawei-is-underway.html
 
