@@ -1,6 +1,6 @@
 **Fetterman to Praise Trump in Convention Video**\
 `Senator John Fetterman, who has become alienated from his own party, was expected to make a surprise virtual appearance, breaking with Democrats’ midterm message.`\
-https://www.nytimes.com/2026/09/09/us/politics/fetterman-to-praise-trump-in-convention-video.html
+https://www.nytimes.com/2026/09/09/us/politics/john-fetterman-trump-republican-convention.html
 
 **Brothers Seeking Pardons for Sex Trafficking Hire a Former Trump Lawyer**\
 `Documents appear to show payments were made to the lawyer Alan M. Dershowitz to pursue “executive clemency and judicial reversal” for Tal, Oren and Alon Alexander.`\
@@ -190,7 +190,7 @@ https://www.nytimes.com/2026/09/09/technology/apple-iphone-duo-foldable-phone.ht
 `Officials said they had not determined the cause of the explosion. Years of fighting have left Syria littered with weapons and ordnance left over from the civil war.`\
 https://www.nytimes.com/2026/09/09/world/middleeast/syria-weapons-depot-blast.html
 
-**Live Updates: Republicans Open a Midterm Convention Heavy on Trump**\
-`The president will speak on both nights of the gathering in Dallas. But with his approval ratings sagging, it’s unclear whether the event will help Republicans in tough races.`\
+**Live Updates: A Surprise Fetterman Video Jolts Trump’s Midterm Convention**\
+`The video appearance by Senator John Fetterman, a Pennsylvania Democrat, alienated from his own party, could fuel speculation about his political future. Mr. Trump is scheduled to speak later tonight in Dallas.`\
 https://www.nytimes.com/live/2026/09/09/us/rnc-trump-midterm-convention-updates
 
