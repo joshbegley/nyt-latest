@@ -1,3 +1,7 @@
+**14 Killed in Weapons Depot Blast in Northwest Syria**\
+`Officials said they had not determined the cause of the explosion. Years of fighting have left Syria littered with weapons and ordnance left over from the civil war.`\
+https://www.nytimes.com/2026/09/09/world/middleeast/syria-weapons-depot-blast.html
+
 **Live Updates: Republicans Prepare for a Midterm Pageant Heavy on Trump**\
 `The president will speak on both nights of a gathering billed as a midterm convention. But with his approval ratings sagging, it’s unclear whether the event will help Republicans in tough races.`\
 https://www.nytimes.com/live/2026/09/09/us/rnc-trump-midterm-convention-updates
