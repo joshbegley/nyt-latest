@@ -1,3 +1,19 @@
+**‘Ferris Bueller Gone Bad’: 22-Year-Old Pleads Guilty in Giant Bitcoin Heist**\
+`Malone Lam, a Singaporean citizen, admitted to stealing cryptocurrency valued at more than $245 million in one of the largest such heists in U.S. history.`\
+https://www.nytimes.com/2026/09/09/us/bitcoin-crypto-heist-malone-lam.html
+
+**Dallas Protests Planned as Trump, Republicans Gather for RNC Convention**\
+`City officials erected barricades, mapped out street closures and coordinated with federal agencies as protesters planned anti-Trump marches and demonstrations near the convention venue.`\
+https://www.nytimes.com/2026/09/09/us/republican-convention-protests-dallas.html
+
+**What to Wear on Campus This Fall**\
+`The host of The Fashions explains. And we share what you’re wearing.`\
+https://www.nytimes.com/2026/09/09/briefing/what-to-wear-on-campus-this-fall.html
+
+**U.S. Takes Aim at New Target in Deadly Boat Strike Campaign**\
+`U.S. military officials in the past two weeks have sunk six large fishing vessels accused of providing fuel to fast boats carrying drugs from South America.`\
+https://www.nytimes.com/2026/09/09/world/americas/us-boat-strikes-south-america.html
+
 **Quick! Fresh Tomato Sauce!**\
 `The name of this five-star recipe is actually “quick fresh tomato sauce,” but I do need to make this right now, while the tomatoes are still so good.`\
 https://www.nytimes.com/2026/09/09/dining/quick-fresh-tomato-sauce.html

@@ -1,3 +1,15 @@
+**‘Ferris Bueller Gone Bad’: 22-Year-Old Pleads Guilty in Giant Bitcoin Heist**\
+`Malone Lam, a Singaporean citizen, admitted to stealing cryptocurrency valued at more than $245 million in one of the largest such heists in U.S. history.`\
+https://www.nytimes.com/2026/09/09/us/bitcoin-crypto-heist-malone-lam.html
+
+**Dallas Protests Planned as Trump, Republicans Gather for RNC Convention**\
+`City officials erected barricades, mapped out street closures and coordinated with federal agencies as protesters planned anti-Trump marches and demonstrations near the convention venue.`\
+https://www.nytimes.com/2026/09/09/us/republican-convention-protests-dallas.html
+
+**What to Wear on Campus This Fall**\
+`The host of The Fashions explains. And we share what you’re wearing.`\
+https://www.nytimes.com/2026/09/09/briefing/what-to-wear-on-campus-this-fall.html
+
 **Quick! Fresh Tomato Sauce!**\
 `The name of this five-star recipe is actually “quick fresh tomato sauce,” but I do need to make this right now, while the tomatoes are still so good.`\
 https://www.nytimes.com/2026/09/09/dining/quick-fresh-tomato-sauce.html
@@ -50,7 +62,7 @@ https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island
 `Get live results and maps from the 2026 Rhode Island primary elections.`\
 https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-primary.html
 
-**Escalating Boat Strikes Campaign, U.S. Targets ‘Refueling’ Vessels**\
+**U.S. Takes Aim at New Target in Deadly Boat Strike Campaign**\
 `U.S. military officials in the past two weeks have sunk six large fishing vessels accused of providing fuel to fast boats carrying drugs from South America.`\
 https://www.nytimes.com/2026/09/09/world/americas/us-boat-strikes-south-america.html
 
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/09/09/arts/television/ted-lasso-season-4-episode-6-
 **Corrections: Sept. 9, 2026**\
 `Corrections that appeared in print on Wednesday, Sept. 9, 2026.`\
 https://www.nytimes.com/2026/09/09/pageoneplus/corrections-sept-9-2026.html
-
-**How A.I. Tokens Work**\
-`As large language models become more advanced, they use ever more resources. Who will foot the bill?`\
-https://www.nytimes.com/interactive/2026/09/09/technology/ai-token-cost.html
-
-**This Tiny Anti-Establishment Party May Put Germany’s Far Right in Power**\
-`Germany’s far right won a state election but fell short of a majority. Its path to power depends on a small populist group that defies traditional labels.`\
-https://www.nytimes.com/2026/09/09/world/europe/afd-bsw-sahra-wagenknecht.html
-
-**Will Trump’s Midterm Convention Help or Hurt Republicans? 5 Things to Watch.**\
-`At an unusual gathering in Dallas, some of the party’s top candidates will be forced to decide just how tightly to tether themselves to an unpopular president.`\
-https://www.nytimes.com/2026/09/09/us/politics/trump-republican-midterm-convention.html
 
