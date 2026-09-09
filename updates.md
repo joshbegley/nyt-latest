@@ -1,3 +1,15 @@
+**Irán parece dispuesto a intensificar la lucha con EE. UU.**\
+`El gobierno iraní está adoptando un enfoque cada vez más agresivo a medida que enfrenta una amenaza económica creciente y teme que su control sobre el estrecho de Ormuz se esté debilitando, dicen los analistas.`\
+https://www.nytimes.com/es/2026/09/09/espanol/mundo/iran-guerra-eeuu-ormuz.html
+
+**Treasury Plans $6 Billion in Debt Repurchases to Battle Rising Yields**\
+`Bond yields rose after the announcement, suggesting investors were underwhelmed by the size of the purchases.`\
+https://www.nytimes.com/2026/09/09/business/economy/treasury-repurchase-bessent.html
+
+**17 Most Stylish Looks from the Venice Film Festival**\
+`The name of the game is elegance, ease and low-key flair. Sunglasses never hurt.`\
+https://www.nytimes.com/2026/09/09/style/venice-film-festival-best-dressed.html
+
 **Do I Have to Leave All My Stepchildren Equal Shares of the Inheritance?**\
 `We spent time with my oldest and youngest stepchildren’s families, but rarely saw the middle son.`\
 https://www.nytimes.com/2026/09/09/magazine/stepchildren-inheritance-ethics.html

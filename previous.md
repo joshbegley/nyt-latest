@@ -1,3 +1,15 @@
+**Irán parece dispuesto a intensificar la lucha con EE. UU.**\
+`El gobierno iraní está adoptando un enfoque cada vez más agresivo a medida que enfrenta una amenaza económica creciente y teme que su control sobre el estrecho de Ormuz se esté debilitando, dicen los analistas.`\
+https://www.nytimes.com/es/2026/09/09/espanol/mundo/iran-guerra-eeuu-ormuz.html
+
+**Treasury Plans $6 Billion in Debt Repurchases to Battle Rising Yields**\
+`Bond yields rose after the announcement, suggesting investors were underwhelmed by the size of the purchases.`\
+https://www.nytimes.com/2026/09/09/business/economy/treasury-repurchase-bessent.html
+
+**17 Most Stylish Looks from the Venice Film Festival**\
+`The name of the game is elegance, ease and low-key flair. Sunglasses never hurt.`\
+https://www.nytimes.com/2026/09/09/style/venice-film-festival-best-dressed.html
+
 **Do I Have to Leave All My Stepchildren Equal Shares of the Inheritance?**\
 `We spent time with my oldest and youngest stepchildren’s families, but rarely saw the middle son.`\
 https://www.nytimes.com/2026/09/09/magazine/stepchildren-inheritance-ethics.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/09/09/opinion/roy-cohn-american-scoundrel-trump.htm
 **In England — Yes, England — Tea and Cantaloupe Grow as the Climate Warms**\
 `As British farmers confront intense heat waves tied to climate change, some are cultivating new crops rarely grown in their country.`\
 https://www.nytimes.com/2026/09/09/world/europe/england-climate-tea-cantaloupe.html
-
-**Trump Is Orchestrating the Republican Midterm Convention Like One of His Rallies**\
-`The Republican Party is holding a midterm convention in Dallas this week. But as our White House correspondent, Maggie Haberman explains, despite President Trump’s unpopularity in polls, this event is shaping up to be a rally focusing on his achievements.`\
-https://www.nytimes.com/video/us/100000011126751/trump-is-orchestrating-the-republican-midterm-convention-like-one-of-his-rallies.html
-
-**JD Vance Doesn’t Want to Help Married Parents. He Wants to Hurt Single Mothers.**\
-`Redistributing money from single working parents to married ones is not a pro-family policy.`\
-https://www.nytimes.com/2026/09/09/opinion/trump-vance-single-parents-married-family.html
-
-**What Does 9/11 Mean to You?**\
-`This year is the 25th anniversary of the attacks. How has that day shaped you and your generation, even if you weren’t born yet when they occurred?`\
-https://www.nytimes.com/2026/09/09/learning/what-does-9-11-mean-to-you.html
 

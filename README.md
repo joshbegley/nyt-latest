@@ -1,3 +1,7 @@
+**Tiny Love Stories: ‘A Year of Nakedness Between Us’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/09/09/style/tiny-modern-love-stories-a-year-of-nakedness-between-us.html
+
 **Irán parece dispuesto a intensificar la lucha con EE. UU.**\
 `El gobierno iraní está adoptando un enfoque cada vez más agresivo a medida que enfrenta una amenaza económica creciente y teme que su control sobre el estrecho de Ormuz se esté debilitando, dicen los analistas.`\
 https://www.nytimes.com/es/2026/09/09/espanol/mundo/iran-guerra-eeuu-ormuz.html
@@ -14,8 +18,8 @@ https://www.nytimes.com/2026/09/09/style/venice-film-festival-best-dressed.html
 `We spent time with my oldest and youngest stepchildren’s families, but rarely saw the middle son.`\
 https://www.nytimes.com/2026/09/09/magazine/stepchildren-inheritance-ethics.html
 
-**Saudi Arabia Runs Out of Easy Routes for Oil to Bypass Iran War**\
-`Saudi Arabia’s oil exports are plummeting as oil prices surpass $100 a barrel.`\
+**Saudi Oil Exports Plunge as Spread of War Shuts Off Shipping Routes**\
+`With few good options for safely shipping oil, Saudi Arabia’s exports have plunged to a 13-year low.`\
 https://www.nytimes.com/2026/09/09/business/saudi-arabia-houthis-red-sea-oil-shipping.html
 
 **‘Ferris Bueller Gone Bad’: 22-Year-Old Pleads Guilty in Giant Bitcoin Heist**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/09/opinion/911-flight-93-america-nation.html
 **Roy Cohn: ‘The Evil Forrest Gump of the 20th Century’**\
 `A new book reveals how the infamous lawyer helped shape Donald Trump.`\
 https://www.nytimes.com/2026/09/09/opinion/roy-cohn-american-scoundrel-trump.html
-
-**In England — Yes, England — Tea and Cantaloupe Grow as the Climate Warms**\
-`As British farmers confront intense heat waves tied to climate change, some are cultivating new crops rarely grown in their country.`\
-https://www.nytimes.com/2026/09/09/world/europe/england-climate-tea-cantaloupe.html
 
