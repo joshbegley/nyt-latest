@@ -1,3 +1,15 @@
+**‘S.N.L.’ Season 52: Jalen Brunson Will Host First Episode**\
+`The New York Knicks star will kick off the 52nd season of “Saturday Night Live” on Sept. 26. Other hosts include Shane Gillis and Dakota Johnson.`\
+https://www.nytimes.com/2026/09/09/arts/television/saturday-night-live-jalen-brunson.html
+
+**Tate Brothers Must Remain in U.S. Jail Until Extradition Case Is Decided**\
+`A judge in Miami declined to release Andrew and Tristan Tate from custody while they fight extradition to Britain.`\
+https://www.nytimes.com/2026/09/09/us/tristan-andrew-tate-brothers-flight-risk.html
+
+**Bond Market Rebuffs Treasury’s $6 Billion Plan to Reduce Borrowing Costs**\
+`The 10-year yield rose to its highest level in three years, suggesting investors were underwhelmed by the details of a move to buy back government bonds.`\
+https://www.nytimes.com/2026/09/09/business/economy/treasury-repurchase-bessent.html
+
 **EE. UU. dirige ataques a barcos en la costa de Ecuador**\
 `En las últimas dos semanas, oficiales militares estadounidenses han hundido seis barcos pesqueros grandes acusados de proveer combustible a lanchas rápidas que transportan drogas desde Sudamérica.`\
 https://www.nytimes.com/es/2026/09/09/espanol/america-latina/ecuador-eeuu-ataque-maritimo.html
