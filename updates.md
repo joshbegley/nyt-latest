@@ -1,3 +1,11 @@
+**Anthropic Researchers Raise Alarm Over A.I. Acceleration**\
+`Their warnings echo concerns that other artificial intelligence experts have voiced in recent months, as calls increase for a slowdown in the pace of development.`\
+https://www.nytimes.com/2026/09/09/technology/anthropic-researchers-raise-alarm.html
+
+**Why Israel Reacted With Fury to U.K. Sanctions on West Bank Settlements**\
+`The fierce retaliation of Prime Minister Benjamin Netanyahu’s government to the new restrictions is a reflection of his tough re-election fight, analysts say.`\
+https://www.nytimes.com/2026/09/09/world/middleeast/israel-uk-west-bank-sanctions.html
+
 **How Trump’s Mail Voting Plan Would Work**\
 `The plan, which two dozen states have challenged as unconstitutional, puts in place new requirements about who can receive mail ballots.`\
 https://www.nytimes.com/2026/09/09/us/politics/trump-mail-in-voting-ballots-usps.html
