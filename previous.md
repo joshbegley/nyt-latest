@@ -1,3 +1,11 @@
+**Escalating Boat Strikes Campaign, U.S. Targets ‘Refueling’ Vessels**\
+`U.S. military officials in the past two weeks have sunk six large fishing vessels accused of providing fuel to fast boats carrying drugs from South America.`\
+https://www.nytimes.com/2026/09/09/world/americas/us-boat-strikes-south-america.html
+
+**5 hombres cubanos perdieron la vida a causa de un avión de carga en Miami**\
+`Días después de que un avión de carga de Amazon se estrelló contra una camioneta en el Aeropuerto Internacional de Miami y dejó cinco muertos, comenzaron a conocerse los perfiles de las víctimas.`\
+https://www.nytimes.com/es/2026/09/09/espanol/estados-unidos/mueren-cubanos-miami-avion.html
+
 **New Accuser Sues Foundations With Ties to Cesar Chavez**\
 `The lawsuit, the first of its kind since revelations against the union leader emerged this year, accuses two foundations of failing to prevent “abusive, rogue and inappropriate” behavior.`\
 https://www.nytimes.com/2026/09/09/us/cesar-chavez-lawsuit.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/09/arts/dance/bill-t-jones-world-trade-center-9-
 **A.I. Music Giant Suno Tries to Play Nice With Record Labels**\
 `Suno has drawn copyright lawsuits from the majors. Now it is releasing a version of its A.I. music generator trained in partnership with Warner Music.`\
 https://www.nytimes.com/2026/09/09/arts/music/suno-new-ai-model-warner-music.html
-
-**The Decade That Ruined Everything**\
-`We are suffering the consequences of the conservative revolution that began in the 1980s.`\
-https://www.nytimes.com/2026/09/09/opinion/80s-reagan-revolution-deregulation.html
-
-**Should My Kitchen Stools Match My Dining Chairs?**\
-`When your dining room is also your kitchen, the seating arrangements can do double duty too.`\
-https://www.nytimes.com/2026/09/09/realestate/design-advice-kitchen-stools.html
 
