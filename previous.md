@@ -1,3 +1,7 @@
+**Video Shows Grocery Store Manager Saving Toddler From Oncoming Traffic**\
+`Luis Cruz dashed into a busy street in Puebla, Mexico, to pull a girl out of the path of an approaching S.U.V. Footage of the rescue has made him a local sensation.`\
+https://www.nytimes.com/2026/09/09/world/americas/video-mexico-toddler-traffic-rescue.html
+
 **Anthropic Researchers Raise Alarm Over A.I. Acceleration**\
 `Their warnings echo concerns that other artificial intelligence experts have voiced in recent months, as calls increase for a slowdown in the pace of development.`\
 https://www.nytimes.com/2026/09/09/technology/anthropic-researchers-raise-alarm.html
@@ -162,9 +166,9 @@ https://www.nytimes.com/2026/09/09/business/dealbook/clay-ai-fundraising.html
 `The two researchers have won a prestigious Lasker Award. Their findings laid the groundwork for a new drug that addresses the sleep disorder’s root cause.`\
 https://www.nytimes.com/2026/09/09/science/narcolepsy-sleep-lasker-award-researchers.html
 
-**A ‘Transformative’ Narcolepsy Drug Opens New Opportunities in Neuroscience**\
-`A first-of-its-kind drug for the sleep disorder offers a new treatment for people who live with the debilitating fog of sleepiness.`\
-https://www.nytimes.com/2026/09/09/science/a-transformative-narcolepsy-drug-opens-new-opportunities-in-neuroscience.html
+**A New Drug Lifts the Fog of Sleepiness for Those With Narcolepsy**\
+`The first-of-its-kind drug offers a reprieve for people who live with the debilitating sleep disorder.`\
+https://www.nytimes.com/2026/09/09/science/narcolepsy-drug-orzeyful-neuroscience.html
 
 **Thousands Gather for Funeral of Norway’s King Harald**\
 `Royal families and heads of state, including President Volodymyr Zelensky of Ukraine, attended the funeral of King Harald V in Oslo.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/09/world/asia/singapore-minister-salary.html
 **US Open Day 10: Shelton Shocks Alcaraz in Latest Finish Ever**\
 `Ben Shelton set up an all-American US Open semifinal after a shock five-set win over Carlos Alcaraz in the early hours.`\
 https://www.nytimes.com/2026/09/09/podcasts/us-open-shelton-alcaraz-tennis.html
-
-**The Establishment Pulls Through: Five Takeaways from the New Hampshire Primaries**\
-`The U.S. Senate race will feature familiar faces: former Senator John E. Sununu and Chris Pappas, a four-term congressman. Stefany Shaheen, a senator’s daughter, eked out a win in a House primary.`\
-https://www.nytimes.com/2026/09/09/us/politics/new-hampshire-primaries-takeaways.html
 

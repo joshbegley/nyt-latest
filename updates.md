@@ -1,3 +1,11 @@
+**Video Shows Grocery Store Manager Saving Toddler From Oncoming Traffic**\
+`Luis Cruz dashed into a busy street in Puebla, Mexico, to pull a girl out of the path of an approaching S.U.V. Footage of the rescue has made him a local sensation.`\
+https://www.nytimes.com/2026/09/09/world/americas/video-mexico-toddler-traffic-rescue.html
+
+**A New Drug Lifts the Fog of Sleepiness for Those With Narcolepsy**\
+`The first-of-its-kind drug offers a reprieve for people who live with the debilitating sleep disorder.`\
+https://www.nytimes.com/2026/09/09/science/narcolepsy-drug-orzeyful-neuroscience.html
+
 **Anthropic Researchers Raise Alarm Over A.I. Acceleration**\
 `Their warnings echo concerns that other artificial intelligence experts have voiced in recent months, as calls increase for a slowdown in the pace of development.`\
 https://www.nytimes.com/2026/09/09/technology/anthropic-researchers-raise-alarm.html

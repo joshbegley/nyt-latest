@@ -1,3 +1,11 @@
+**EE. UU. dirige ataques a barcos en la costa de Ecuador**\
+`En las últimas dos semanas, oficiales militares estadounidenses han hundido seis barcos pesqueros grandes acusados de proveer combustible a lanchas rápidas que transportan drogas desde Sudamérica.`\
+https://www.nytimes.com/es/2026/09/09/espanol/america-latina/ecuador-eeuu-ataque-maritimo.html
+
+**Trump’s Midterm Pitch Clouded by Iran War and Canada Tariffs**\
+`A worsening trade war and a spike in oil prices could create new economic risks as the president prepares to rally Republicans for the midterms.`\
+https://www.nytimes.com/2026/09/09/business/canada-iran-war-trump-midterms.html
+
 **Video Shows Grocery Store Manager Saving Toddler From Oncoming Traffic**\
 `Luis Cruz dashed into a busy street in Puebla, Mexico, to pull a girl out of the path of an approaching S.U.V. Footage of the rescue has made him a local sensation.`\
 https://www.nytimes.com/2026/09/09/world/americas/video-mexico-toddler-traffic-rescue.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/09/09/us/politics/trump-midterms-maga-inc-spending.
 **Germany’s Right Turn**\
 `We take stock of the AfD’s success.`\
 https://www.nytimes.com/2026/09/09/briefing/germanys-right-turn.html
-
-**Singapore’s Prime Minister Gets a Big Raise**\
-`Singapore’s prime minister, Lawrence Wong, got the bump as part of a longstanding policy to pay high salaries to public servants in order to attract top talent and prevent corruption.`\
-https://www.nytimes.com/2026/09/09/world/asia/singapore-minister-salary.html
-
-**US Open Day 10: Shelton Shocks Alcaraz in Latest Finish Ever**\
-`Ben Shelton set up an all-American US Open semifinal after a shock five-set win over Carlos Alcaraz in the early hours.`\
-https://www.nytimes.com/2026/09/09/podcasts/us-open-shelton-alcaraz-tennis.html
 
