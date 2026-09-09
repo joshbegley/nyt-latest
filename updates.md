@@ -1,3 +1,7 @@
+**Live Updates: Republicans Prepare for a Midterm Pageant Heavy on Trump**\
+`The president will speak on both nights of a gathering billed as a midterm convention. But with his approval ratings sagging, it’s unclear whether the event will help Republicans in tough races.`\
+https://www.nytimes.com/live/2026/09/09/us/rnc-trump-midterm-convention-updates
+
 **Why Trump’s Republican Midterm ‘Convention’ Isn’t a Real Convention**\
 `No nominations or formal party business will be happening, as they would at a traditional presidential convention. But the made-for-TV speeches will look much the same.`\
 https://www.nytimes.com/2026/09/09/us/politics/trump-republican-midterm-convention-gop-party.html

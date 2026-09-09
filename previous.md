@@ -23,7 +23,7 @@ https://www.nytimes.com/video/dining/100000011139925/pesto-beans.html
 https://www.nytimes.com/video/dining/100000011139846/cumin-tomato-salad-with-jammy-eggs.html
 
 **Live Updates: Republicans Prepare for a Midterm Pageant Heavy on Trump**\
-`The president will speak on both nights of the gathering, a convention in name only that he pushed for. But with his approval ratings sagging, it’s unclear whether the event will help Republicans in tough races.`\
+`The president will speak on both nights of a gathering billed as a midterm convention. But with his approval ratings sagging, it’s unclear whether the event will help Republicans in tough races.`\
 https://www.nytimes.com/live/2026/09/09/us/rnc-trump-midterm-convention-updates
 
 **Scientists Discover the Earliest Evidence of Drug Use in Really Old Teeth**\
