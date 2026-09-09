@@ -1,6 +1,6 @@
 **14 Killed in Weapons Depot Blast in Northwest Syria**\
 `Officials said they had not determined the cause of the explosion. Years of fighting have left Syria littered with weapons and ordnance left over from the civil war.`\
-https://www.nytimes.com/2026/09/09/world/middleeast/14-killed-in-weapons-depot-blast-in-northwest-syria.html
+https://www.nytimes.com/2026/09/09/world/middleeast/syria-weapons-depot-blast.html
 
 **Why Trump’s Republican Midterm ‘Convention’ Isn’t a Real Convention**\
 `No nominations or formal party business will be happening, as they would at a traditional presidential convention. But the made-for-TV speeches will look much the same.`\
