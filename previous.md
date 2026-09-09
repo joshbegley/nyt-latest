@@ -1,3 +1,11 @@
+**King Harald V’s Funeral Draws Thousands of Mourners**\
+`Thousands of mourners gathered in Oslo for the funeral of King Harald V on Wednesday. Royal families and heads of state attended the ceremony. Harald, who died in August, was 89.`\
+https://www.nytimes.com/video/world/europe/100000011141711/norway-king-harald-funeral.html
+
+**Yemen Tilts Toward Full-Scale War as Saudi-Houthi Clashes Escalate**\
+`With its oil-export routes once again under threat, Saudi Arabia is stepping up its military campaign against an old antagonist.`\
+https://www.nytimes.com/2026/09/09/world/middleeast/saudi-yemen-strilkes.html
+
 **60 Posts in 10 Hours: How Trump’s Social Media Reflects His Version of Reality**\
 `With an assist from A.I., President Trump offers a window into how he wants to be seen — and, critics say, a barometer of his mental state.`\
 https://www.nytimes.com/2026/09/09/us/politics/trump-social-media-ai-reality.html
@@ -42,8 +50,8 @@ https://www.nytimes.com/video/dining/100000011139925/pesto-beans.html
 `Inspired by the delightful Indian egg curry, this egg salad recipe omits traditional mayonnaise in favor of a looser, brighter mix of fresh tomatoes, cilantro and sizzled spices.`\
 https://www.nytimes.com/video/dining/100000011139846/cumin-tomato-salad-with-jammy-eggs.html
 
-**Live Updates: Republicans Prepare for a Midterm Pageant Heavy on Trump**\
-`The president will speak on both nights of a gathering in Dallas billed as a midterm convention. But with his approval ratings sagging, it’s unclear whether the event will help Republicans in tough races.`\
+**Live Updates: Republicans Prepare for a Midterm Convention Heavy on Trump**\
+`The president will speak both nights of the gathering in Dallas. But with his approval ratings sagging, it’s unclear whether the event will help Republicans in tough races.`\
 https://www.nytimes.com/live/2026/09/09/us/rnc-trump-midterm-convention-updates
 
 **Scientists Discover the Earliest Evidence of Drug Use in Really Old Teeth**\
@@ -181,12 +189,4 @@ https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island
 **Providence, Rhode Island, Mayor Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Rhode Island primary election.`\
 https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-mayor-providence-primary.html
-
-**Rhode Island Treasurer Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Rhode Island primary election.`\
-https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-treasurer-primary.html
-
-**Rhode Island First Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Rhode Island primary election.`\
-https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-us-house-1-primary.html
 

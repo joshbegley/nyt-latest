@@ -186,7 +186,3 @@ https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island
 `Get live results and maps from the 2026 Rhode Island primary election.`\
 https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-us-house-2-primary.html
 
-**Providence, Rhode Island, Mayor Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Rhode Island primary election.`\
-https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-mayor-providence-primary.html
-
