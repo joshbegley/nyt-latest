@@ -1,3 +1,7 @@
+**Jimmy Kimmel Weighs in on Trump’s New Look**\
+`Back from his summer vacation, the late night host wondered, “Is it possible to have a midlife crisis at 80 years old?”`\
+https://www.nytimes.com/2026/09/09/arts/television/jimmy-kimmel-trump-new-hair.html
+
 **Nepal’s Flood Relief Workers Feel the Pain of Trump’s Cuts to U.S.A.I.D.**\
 `The agency played an important role in responding to earlier disasters like the 2015 earthquake. But the U.S. and other countries have pulled back, Nepali officials and humanitarian groups say.`\
 https://www.nytimes.com/2026/09/09/world/asia/nepal-floods-usaid-trump-relief.html
