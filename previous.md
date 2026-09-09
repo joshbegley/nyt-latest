@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Sept. 9, 2026**\
+`Cast off your worries with a crossword by Dario Salvucci.`\
+https://www.nytimes.com/2026/09/08/crosswords/daily-puzzle-2026-09-09.html
+
 **Trump’s Ability to Channel Voter Concerns Is Tested as Republicans Gather in Dallas**\
 `As Republicans face down tough midterm elections, President Trump has appeared out of step with the party on Iran, the economy and other issues.`\
 https://www.nytimes.com/2026/09/08/us/politics/trump-republicans-midterms-voters.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/08/us/michigan-enhanced-ids-misprints.html
 **Trump Administration Asks Supreme Court to Allow Voter-Screening Tool**\
 `Voting rights organizations had challenged a Trump administration overhaul of a government database, arguing it could be used to disenfranchise eligible voters.`\
 https://www.nytimes.com/2026/09/08/us/politics/trump-supreme-court-dhs-citizenship.html
-
-**TSA PreCheck Now Unlocks Access to Visit Airports Without a Plane Ticket**\
-`At more than a dozen U.S. airports, T.S.A. PreCheck members can now apply to enter the secure area, even if they’re just going to meet someone on a flight.`\
-https://www.nytimes.com/2026/09/08/travel/tsa-precheck-airports-security-non-flyers.html
 

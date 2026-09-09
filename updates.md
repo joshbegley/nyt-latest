@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Sept. 9, 2026**\
+`Cast off your worries with a crossword by Dario Salvucci.`\
+https://www.nytimes.com/2026/09/08/crosswords/daily-puzzle-2026-09-09.html
+
 **Trump’s Ability to Channel Voter Concerns Is Tested as Republicans Gather in Dallas**\
 `As Republicans face down tough midterm elections, President Trump has appeared out of step with the party on Iran, the economy and other issues.`\
 https://www.nytimes.com/2026/09/08/us/politics/trump-republicans-midterms-voters.html
