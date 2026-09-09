@@ -1,3 +1,7 @@
+**Toxic PFAS Cleanups at Military Sites Face Decades of Delay**\
+`The Pentagon has again postponed PFAS cleanups at hundreds of military sites, in some cases up to 19 years, prompting bipartisan anger in Congress.`\
+https://www.nytimes.com/2026/09/09/climate/pfas-military-bases-cleanup-delays.html
+
 **Police Expand Investigation Into Reform U.K. After Undercover Sting**\
 `The Metropolitan Police are investigating Nigel Farage’s right-wing populist party after footage appeared to show party officials arranging secret contributions from a foreign donor.`\
 https://www.nytimes.com/2026/09/09/world/europe/reform-uk-investigation-nigel-farage.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/09/science/narcolepsy-drug-orzeyful-neuroscience
 **Scientists Who Study Sleep and Narcolepsy Win Prestigious Lasker Award**\
 `Two researchers who study the debilitating sleep disorder have won a prestigious Lasker Award. Their research in animals laid the groundwork for a new drug that addresses the conditions’s root cause.`\
 https://www.nytimes.com/2026/09/09/science/narcolepsy-sleep-lasker-award-researchers.html
-
-**Thousands Gather for Funeral of Norway’s King Harald**\
-`Royal families and heads of state, including President Volodymyr Zelensky of Ukraine, attended the funeral of King Harald V in Oslo.`\
-https://www.nytimes.com/2026/09/09/world/europe/norway-king-harald-funeral.html
 

@@ -1,3 +1,7 @@
+**Police Expand Investigation Into Reform U.K. After Undercover Sting**\
+`The Metropolitan Police are investigating Nigel Farage’s right-wing populist party after footage appeared to show party officials arranging secret contributions from a foreign donor.`\
+https://www.nytimes.com/2026/09/09/world/europe/reform-uk-investigation-nigel-farage.html
+
 **‘S.N.L.’ Season 52: Jalen Brunson Will Host First Episode**\
 `The New York Knicks star will kick off the 52nd season of “Saturday Night Live” on Sept. 26. Other hosts include Shane Gillis and Dakota Johnson.`\
 https://www.nytimes.com/2026/09/09/arts/television/saturday-night-live-jalen-brunson.html
