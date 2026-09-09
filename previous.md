@@ -1,3 +1,11 @@
+**Un video muestra al gerente de un supermercado que salva a una niña en Puebla**\
+`Luis Cruz corrió hacia una calle transitada para apartar a una niña del camino de una camioneta que se aproximaba. El video del rescate lo ha convertido en una sensación local.`\
+https://www.nytimes.com/es/2026/09/09/espanol/video-nina-atropellada-puebla.html
+
+**The Local: Tackling heat in very different ways**\
+`Plus, an interview with Amy Klobuchar.`\
+https://www.nytimes.com/2026/09/09/briefing/heat-island-effect.html
+
 **Apple Launches Its First Foldable iPhone**\
 `Apple introduced the iPhone Duo, the company’s first device that opens and closes like a book, at the company’s annual product event on Wednesday.`\
 https://www.nytimes.com/video/technology/personaltech/100000011141460/apple-iphone-duo-foldable-phone.html
@@ -55,7 +63,7 @@ https://www.nytimes.com/video/dining/100000011139925/pesto-beans.html
 https://www.nytimes.com/video/dining/100000011139846/cumin-tomato-salad-with-jammy-eggs.html
 
 **Live Updates: Republicans Prepare for a Midterm Convention Heavy on Trump**\
-`The president will speak both nights of the gathering in Dallas. But with his approval ratings sagging, it’s unclear whether the event will help Republicans in tough races.`\
+`The president will speak on both nights of the gathering in Dallas. But with his approval ratings sagging, it’s unclear whether the event will help Republicans in tough races.`\
 https://www.nytimes.com/live/2026/09/09/us/rnc-trump-midterm-convention-updates
 
 **Scientists Discover the Earliest Evidence of Drug Use in Really Old Teeth**\
@@ -174,15 +182,7 @@ https://www.nytimes.com/2026/09/09/dining/quick-fresh-tomato-sauce.html
 `Some doctors and influencers say women shouldn’t wait until their 60s for a DEXA scan. Here’s what to consider before getting one.`\
 https://www.nytimes.com/2026/09/09/well/live/dexa-scan-bone-density-menopause.html
 
-**Federal Trial Against Huawei Is Underway**\
+**Federal Trial Against Huawei Begins After 8 Years**\
 `The Chinese telecommunications giant has been accused of stealing intellectual property from six companies, including Motorola Solutions and T-Mobile.`\
 https://www.nytimes.com/2026/09/09/nyregion/federal-trial-against-huawei-is-underway.html
-
-**Rhode Island Lieutenant Governor Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Rhode Island primary election.`\
-https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-lieutenant-governor-primary.html
-
-**Rhode Island Attorney General Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Rhode Island primary election.`\
-https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-attorney-general-primary.html
 
