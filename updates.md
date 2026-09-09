@@ -1,3 +1,19 @@
+**New Mexico’s Name Is Older Than the U.S. Trump Still Wants to Change It.**\
+`President Trump has no authority to change the state’s name, but his suggestion has constituted fighting words to proud New Mexicans.`\
+https://www.nytimes.com/2026/09/09/us/new-america-trump-reaction-new-mexico.html
+
+**Lucien Smith, Art-World Star Whose Career Abruptly Turned, Dies at 37**\
+`A phenom in his 20s, he became poster child for Zombie Formalism before abandoning the gallery frenzy for Montauk.`\
+https://www.nytimes.com/2026/09/09/obituaries/lucien-smith-dead.html
+
+**Emergency Slide Accidentally Deploys on New Air Force One**\
+`The mishap happened while the Qatari-donated jet was parked on the tarmac at Joint Base Andrews. It delayed President Trump’s departure to a Republican convention in Dallas.`\
+https://www.nytimes.com/2026/09/09/us/politics/emergency-slide-air-force-one-trump.html
+
+**The Local: Tackling heat and talking to Klobuchar**\
+`Plus, an interview with Amy Klobuchar.`\
+https://www.nytimes.com/2026/09/09/briefing/heat-island-effect.html
+
 **Los salvadoreños mantendrán sus protecciones contra la deportación de EE. UU. por ahora**\
 `Estaba previsto que el Estatus de Protección Temporal para El Salvador expirara el miércoles. El gobierno de Trump dijo que haría un anuncio sobre el futuro del programa “en el momento adecuado”.`\
 https://www.nytimes.com/es/2026/09/09/espanol/estados-unidos/tps-el-salvador-trump.html

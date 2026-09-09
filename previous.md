@@ -1,3 +1,15 @@
+**New Mexico’s Name Is Older Than the U.S. Trump Still Wants to Change It.**\
+`President Trump has no authority to change the state’s name, but his suggestion has constituted fighting words to proud New Mexicans.`\
+https://www.nytimes.com/2026/09/09/us/new-america-trump-reaction-new-mexico.html
+
+**Lucien Smith, Art-World Star Whose Career Abruptly Turned, Dies at 37**\
+`A phenom in his 20s, he became poster child for Zombie Formalism before abandoning the gallery frenzy for Montauk.`\
+https://www.nytimes.com/2026/09/09/obituaries/lucien-smith-dead.html
+
+**Emergency Slide Accidentally Deploys on New Air Force One**\
+`The mishap happened while the Qatari-donated jet was parked on the tarmac at Joint Base Andrews. It delayed President Trump’s departure to a Republican convention in Dallas.`\
+https://www.nytimes.com/2026/09/09/us/politics/emergency-slide-air-force-one-trump.html
+
 **Los salvadoreños mantendrán sus protecciones contra la deportación de EE. UU. por ahora**\
 `Estaba previsto que el Estatus de Protección Temporal para El Salvador expirara el miércoles. El gobierno de Trump dijo que haría un anuncio sobre el futuro del programa “en el momento adecuado”.`\
 https://www.nytimes.com/es/2026/09/09/espanol/estados-unidos/tps-el-salvador-trump.html
@@ -26,7 +38,7 @@ https://www.nytimes.com/2026/09/09/us/politics/iran-strikes-jordan-base.html
 `Luis Cruz corrió hacia una calle transitada para apartar a una niña del camino de una camioneta que se aproximaba. El video del rescate lo ha convertido en una sensación local.`\
 https://www.nytimes.com/es/2026/09/09/espanol/video-nina-atropellada-puebla.html
 
-**The Local: Tackling heat in very different ways**\
+**The Local: Tackling heat and talking to Klobuchar**\
 `Plus, an interview with Amy Klobuchar.`\
 https://www.nytimes.com/2026/09/09/briefing/heat-island-effect.html
 
@@ -173,16 +185,4 @@ https://www.nytimes.com/es/2026/09/09/espanol/mundo/iran-guerra-eeuu-ormuz.html
 **Bond Market Rebuffs Treasury’s $6 Billion Plan to Reduce Borrowing Costs**\
 `The 10-year yield rose to its highest level in three years, suggesting investors were underwhelmed by the details of a move to buy back government bonds.`\
 https://www.nytimes.com/2026/09/09/business/economy/treasury-repurchase-bessent.html
-
-**17 Most Stylish Looks from the Venice Film Festival**\
-`The name of the game is elegance, ease and low-key flair. Sunglasses never hurt.`\
-https://www.nytimes.com/2026/09/09/style/venice-film-festival-best-dressed.html
-
-**Do I Have to Leave All My Stepchildren Equal Shares of the Inheritance?**\
-`We spent time with my oldest and youngest stepchildren’s families, but rarely saw the middle son.`\
-https://www.nytimes.com/2026/09/09/magazine/stepchildren-inheritance-ethics.html
-
-**Saudi Oil Exports Plunge as Spread of War Shuts Off Shipping Routes**\
-`With few good options for safely shipping oil, Saudi Arabia’s exports have fallen to a 13-year low.`\
-https://www.nytimes.com/2026/09/09/business/saudi-arabia-houthis-red-sea-oil-shipping.html
 
