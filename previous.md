@@ -1,4 +1,4 @@
-**Travelers Face More Delays After Major Disruption at British Airports**\
+**Travelers Face More Flight Delays After Major Air Traffic Disruption at UK Airports**\
 `An air traffic control problem caused more than 1,000 flight cancellations on Tuesday, and airlines warned that the effects could linger.`\
 https://www.nytimes.com/2026/09/09/world/europe/uk-air-traffic-control-flight-delays-london.html
 
