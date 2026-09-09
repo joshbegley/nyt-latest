@@ -1,3 +1,7 @@
+**The Theme Park at the Heart of France’s Culture War**\
+`The Puy du Fou is one of France’s most visited theme parks. Its founder says it gives the French a “founding narrative,” but critics say it peddles “far-right propaganda.”`\
+https://www.nytimes.com/2026/09/09/world/europe/theme-park-france-right-culture-war.html
+
 **¿Cuán seguros son los tatuajes?**\
 `El proceso para hacerte un tatuaje puede provocar algunas reacciones en tu cuerpo. Esto es lo que saben los expertos sobre el riesgo.`\
 https://www.nytimes.com/es/2026/09/09/espanol/tatuajes-riesgos.html
