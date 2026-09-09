@@ -1,3 +1,15 @@
+**‘Tomatoes Turn Me On’**\
+`The chef and cookbook author Carla Lalli joins Anna Martin, the host of “Modern Love,” to talk about owning her cravings after her divorce.`\
+https://www.nytimes.com/video/podcasts/100000011139283/tomatoes-turn-me-on.html
+
+**Salvadorans to Keep Temporary Protected Status for Now, Trump Officials Say**\
+`Temporary Protected Status for El Salvador was set to expire on Wednesday. The Trump administration said it would make an announcement about the program’s future at the “appropriate time.”`\
+https://www.nytimes.com/2026/09/09/us/tps-el-salvador-immigrants-trump.html
+
+**Tiny Love Stories: ‘A Year of Nakedness Between Us’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/09/09/style/tiny-modern-love-stories-a-year-of-nakedness-between-us.html
+
 **Irán parece dispuesto a intensificar la lucha con EE. UU.**\
 `El gobierno iraní está adoptando un enfoque cada vez más agresivo a medida que enfrenta una amenaza económica creciente y teme que su control sobre el estrecho de Ormuz se esté debilitando, dicen los analistas.`\
 https://www.nytimes.com/es/2026/09/09/espanol/mundo/iran-guerra-eeuu-ormuz.html
@@ -14,8 +26,8 @@ https://www.nytimes.com/2026/09/09/style/venice-film-festival-best-dressed.html
 `We spent time with my oldest and youngest stepchildren’s families, but rarely saw the middle son.`\
 https://www.nytimes.com/2026/09/09/magazine/stepchildren-inheritance-ethics.html
 
-**Saudi Arabia Runs Out of Easy Routes for Oil to Bypass Iran War**\
-`Saudi Arabia’s oil exports are plummeting as oil prices surpass $100 a barrel.`\
+**Saudi Oil Exports Plunge as Spread of War Shuts Off Shipping Routes**\
+`With few good options for safely shipping oil, Saudi Arabia’s exports have plunged to a 13-year low.`\
 https://www.nytimes.com/2026/09/09/business/saudi-arabia-houthis-red-sea-oil-shipping.html
 
 **‘Ferris Bueller Gone Bad’: 22-Year-Old Pleads Guilty in Giant Bitcoin Heist**\
@@ -185,16 +197,4 @@ https://www.nytimes.com/es/2026/09/09/espanol/ice-migrantes-nebraska-gobernador-
 **Una serie de ejercicios para levantarte del piso con comodidad**\
 `Levantarse del piso con comodidad también requiere fuerza y movilidad en varias partes del cuerpo. A medida que envejeces, hay músculos que requieren fortalecerse. Aquí está una rutina para lograrlo.`\
 https://www.nytimes.com/es/2026/09/09/espanol/ejercicios-mobilidad-envejecer.html
-
-**My Dad Died on Flight 93. I Miss the Way America Responded.**\
-`My father died on 9/11, and a nation united behind my family, as well as others. We desperately need that sense of togetherness today.`\
-https://www.nytimes.com/2026/09/09/opinion/911-flight-93-america-nation.html
-
-**Roy Cohn: ‘The Evil Forrest Gump of the 20th Century’**\
-`A new book reveals how the infamous lawyer helped shape Donald Trump.`\
-https://www.nytimes.com/2026/09/09/opinion/roy-cohn-american-scoundrel-trump.html
-
-**In England — Yes, England — Tea and Cantaloupe Grow as the Climate Warms**\
-`As British farmers confront intense heat waves tied to climate change, some are cultivating new crops rarely grown in their country.`\
-https://www.nytimes.com/2026/09/09/world/europe/england-climate-tea-cantaloupe.html
 
