@@ -1,3 +1,11 @@
+**Trump’s Census Overhaul Would Exclude Some Immigrants and Remove Questions on Race**\
+`The proposals for 2030 are among significant changes that would upend a process for helping allot congressional seats and shape policies that address disparities.`\
+https://www.nytimes.com/2026/09/09/us/politics/trump-census-immigrants-race.html
+
+**How Much Does Trump Care Who Wins the Midterms?**\
+`President Trump’s convention has kicked off in Dallas, so we asked Maggie Haberman to help make sense of his midterm strategy.`\
+https://www.nytimes.com/2026/09/09/us/politics/trump-midterm-strategy.html
+
 **States File 2 Lawsuits Over Trump’s Cuts to Endangered Species Act**\
 `Two lawsuits seek to reverse the Trump administration’s moves to open the habitats of imperiled wildlife to commercial activities.`\
 https://www.nytimes.com/2026/09/09/climate/lawsuit-trump-endangered-species-act.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/09/09/us/politics/trump-republican-midterm-conventi
 **Grilled Corn and Avocado Salad With Feta Dressing**\
 `This lively salad of corn, scallions, jalapeño and avocado tossed with a tangy buttermilk-feta dressing is like summer on a plate.`\
 https://www.nytimes.com/video/dining/100000011140090/grilled-corn-and-avocado-salad-with-feta-dressing.html
-
-**Blueberry Poppy Seed Brunch Cake**\
-`This recipe was brought to The Times in a 1990 article by Marian Burros about the 34th Pillsbury Bake-Off, the Super Bowl of baking contests.`\
-https://www.nytimes.com/video/dining/100000011139984/blueberry-poppy-seed-brunch-cake.html
-
-**Summer Pasta With Zucchini, Ricotta and Basil**\
-`This summer pasta is simple and fresh, ideally made with vegetables straight from the garden or market.`\
-https://www.nytimes.com/video/dining/100000011139951/summer-pasta-with-zucchini-ricotta-and-basil.html
 
 **Live Updates: Republicans Open a Midterm Convention Heavy on Trump**\
 `The president will speak on both nights of the gathering in Dallas. But with his approval ratings sagging, it’s unclear whether the event will help Republicans in tough races.`\

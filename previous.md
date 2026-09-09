@@ -1,3 +1,7 @@
+**States File 2 Lawsuits Over Trump’s Cuts to Endangered Species Act**\
+`Two lawsuits seek to reverse the Trump administration’s moves to open the habitats of imperiled wildlife to commercial activities.`\
+https://www.nytimes.com/2026/09/09/climate/lawsuit-trump-endangered-species-act.html
+
 **Is Trumpism the New McCarthyism?**\
 `In the 1950s, McCarthyism created a climate of fear and suspicion in American politics. The Times Opinion columnist Carlos Lozada and the historian Nicole Hemmer argue that, over 70 years later, McCarthyism is still a part of our politics today. Will Trumpism’s influence last as long?`\
 https://www.nytimes.com/video/opinion/100000011142512/is-trumpism-the-new-mccarthyism.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/video/dining/100000011139984/blueberry-poppy-seed-brunch
 **Summer Pasta With Zucchini, Ricotta and Basil**\
 `This summer pasta is simple and fresh, ideally made with vegetables straight from the garden or market.`\
 https://www.nytimes.com/video/dining/100000011139951/summer-pasta-with-zucchini-ricotta-and-basil.html
-
-**Pesto Beans**\
-`Part quick and rustic bean stew and part deconstructed pesto, this pesto-inspired one-pan meal requires no blender and minimal slicing.`\
-https://www.nytimes.com/video/dining/100000011139925/pesto-beans.html
 
 **Live Updates: Republicans Open a Midterm Convention Heavy on Trump**\
 `The president will speak on both nights of the gathering in Dallas. But with his approval ratings sagging, it’s unclear whether the event will help Republicans in tough races.`\
