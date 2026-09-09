@@ -1,3 +1,7 @@
+**Do I Have to Leave All My Stepchildren Equal Shares of the Inheritance?**\
+`We spent time with my oldest and youngest stepchildren’s families, but rarely saw the middle son.`\
+https://www.nytimes.com/2026/09/09/magazine/stepchildren-inheritance-ethics.html
+
 **Saudi Arabia Runs Out of Easy Routes for Oil to Bypass Iran War**\
 `Saudi Arabia’s oil exports are plummeting as oil prices surpass $100 a barrel.`\
 https://www.nytimes.com/2026/09/09/business/saudi-arabia-houthis-red-sea-oil-shipping.html

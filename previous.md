@@ -1,3 +1,7 @@
+**Do I Have to Leave All My Stepchildren Equal Shares of the Inheritance?**\
+`We spent time with my oldest and youngest stepchildren’s families, but rarely saw the middle son.`\
+https://www.nytimes.com/2026/09/09/magazine/stepchildren-inheritance-ethics.html
+
 **Saudi Arabia Runs Out of Easy Routes for Oil to Bypass Iran War**\
 `Saudi Arabia’s oil exports are plummeting as oil prices surpass $100 a barrel.`\
 https://www.nytimes.com/2026/09/09/business/saudi-arabia-houthis-red-sea-oil-shipping.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/09/opinion/trump-vance-single-parents-married-fa
 **What Does 9/11 Mean to You?**\
 `This year is the 25th anniversary of the attacks. How has that day shaped you and your generation, even if you weren’t born yet when they occurred?`\
 https://www.nytimes.com/2026/09/09/learning/what-does-9-11-mean-to-you.html
-
-**‘Ted Lasso’ Season 4, Episode 6 Recap: Boat Party**\
-`The team does New Year’s Eve.`\
-https://www.nytimes.com/2026/09/09/arts/television/ted-lasso-season-4-episode-6-recap.html
 
