@@ -1,3 +1,155 @@
+**Una serie de ejercicios para levantarte del piso con comodidad**\
+`Levantarse del piso con comodidad también requiere fuerza y movilidad en varias partes del cuerpo. A medida que envejeces, hay músculos que requieren fortalecerse. Aquí está una rutina para lograrlo.`\
+https://www.nytimes.com/es/2026/09/09/espanol/ejercicios-mobilidad-envejecer.html
+
+**My Dad Died on Flight 93. I Miss the Way America Responded.**\
+`My father died on 9/11, and a nation united behind my family, as well as others. We desperately need that sense of togetherness today.`\
+https://www.nytimes.com/2026/09/09/opinion/911-flight-93-america-nation.html
+
+**How Roy Cohn Shaped Trump — and America**\
+`A new book reveals how the lawyer’s legacy lives on decades after his death.`\
+https://www.nytimes.com/2026/09/09/opinion/roy-cohn-american-scoundrel-trump.html
+
+**In England — Yes, England — Tea and Cantaloupe Grow as the Climate Warms**\
+`As British farmers confront intense heat waves tied to climate change, some are cultivating new crops rarely grown in their country.`\
+https://www.nytimes.com/2026/09/09/world/europe/england-climate-tea-cantaloupe.html
+
+**Trump Is Orchestrating the Republican Midterm Convention Like One of His Rallies**\
+`The Republican Party is holding a midterm convention in Dallas this week. But as our White House correspondent, Maggie Haberman explains, despite President Trump’s unpopularity in polls, this event is shaping up to be a rally focusing on his achievements.`\
+https://www.nytimes.com/video/us/100000011126751/trump-is-orchestrating-the-republican-midterm-convention-like-one-of-his-rallies.html
+
+**The Trump Administration’s Latest War on Vulnerable Children**\
+`Redistributing money from single working parents to married ones is not a pro-family policy.`\
+https://www.nytimes.com/2026/09/09/opinion/trump-vance-single-parents-married-family.html
+
+**What Does 9/11 Mean to You?**\
+`This year is the 25th anniversary of the attacks. How has that day shaped you and your generation, even if you weren’t born yet when they occurred?`\
+https://www.nytimes.com/2026/09/09/learning/what-does-9-11-mean-to-you.html
+
+**‘Ted Lasso’ Season 4, Episode 6 Recap: Boat Party**\
+`The team does New Year’s Eve.`\
+https://www.nytimes.com/2026/09/09/arts/television/ted-lasso-season-4-episode-6-recap.html
+
+**Corrections: Sept. 9, 2026**\
+`Corrections that appeared in print on Wednesday, Sept. 9, 2026.`\
+https://www.nytimes.com/2026/09/09/pageoneplus/corrections-sept-9-2026.html
+
+**How A.I. Tokens Work**\
+`As large language models become more advanced, they use ever more resources. Who will foot the bill?`\
+https://www.nytimes.com/interactive/2026/09/09/technology/ai-token-cost.html
+
+**This Tiny Anti-Establishment Party May Put Germany’s Far Right in Power**\
+`Germany’s far right won a state election but fell short of a majority. Its path to power depends on a small populist group that defies traditional labels.`\
+https://www.nytimes.com/2026/09/09/world/europe/afd-bsw-sahra-wagenknecht.html
+
+**Will Trump’s Midterm Convention Help or Hurt Republicans? 5 Things to Watch.**\
+`At an unusual gathering in Dallas, some of the party’s top candidates will be forced to decide just how tightly to tether themselves to an unpopular president.`\
+https://www.nytimes.com/2026/09/09/us/politics/trump-republican-midterm-convention.html
+
+**Why Major Studios Are Sitting Out This Fall’s Film Festivals**\
+`The major studios and their A-list stars are AWOL this season for a variety of reasons, forcing the festivals to scramble.`\
+https://www.nytimes.com/2026/09/09/movies/film-festivals-studios-telluride.html
+
+**Film and TV Portrayals of A.I. Go Beyond Science Fiction**\
+`Plots involving some kind of artificial intelligence are even part of soap operas. Here’s how they’ve evolved over the decades.`\
+https://www.nytimes.com/2026/09/09/movies/ai-tv-movies-robots-science-fiction.html
+
+**Conoce el kit de emergencias integrado en tu celular**\
+`En tiempos de desastres naturales y otros peligros, las funciones especiales escondidas en tu dispositivo iPhone o Android podrían marcar la diferencia.`\
+https://www.nytimes.com/es/2026/09/09/espanol/negocios/funciones-emergencia-telefono-inteligente.html
+
+**Israel’s Election Campaign Is Heating Up. Here’s Who’s Running.**\
+`The contest is shaping up to be a referendum on Prime Minister Benjamin Netanyahu. It is considered the most consequential in Israel’s history.`\
+https://www.nytimes.com/2026/09/09/world/middleeast/israels-election-campaign-is-heating-up-heres-whos-running.html
+
+**Which $375,000 Home Would You Pick?**\
+`This week’s properties are in Brunswick, Ga., Columbus, Ind., and San Antonio.`\
+https://www.nytimes.com/2026/09/09/realestate/which-375000-home-would-you-pick.html
+
+**Carla Lalli Latest Book Explores Feeding Your Feelings After Divorce**\
+`The chef and cookbook author Carla Lalli became single for the first time in 24 years. She started to follow her own cravings.`\
+https://www.nytimes.com/2026/09/09/podcasts/carla-lalli-food-is-a-feeling-divorce.html
+
+**Ukraine’s Unexpected $27 Billion Budget Gap Rattles Europe**\
+`An unexpected request from President Volodymyr Zelensky offered a stark reminder that the cost of the war will rise, challenging Europe.`\
+https://www.nytimes.com/2026/09/09/world/europe/ukraine-says-it-needs-27-billion-more-europe-wants-to-know-why.html
+
+**The Lethal Dust of 9/11**\
+`Mayor Zohran Mamdani released documents showing that officials knew the air around the Trade Center site was toxic, even as New Yorkers were told it was safe.`\
+https://www.nytimes.com/2026/09/09/nyregion/the-lethal-dust-of-9-11.html
+
+**Texas Republicans Are Turning Against Data Centers. Will It Matter in November?**\
+`The industry’s rapid expansion has scrambled traditional political alliances and forced G.O.P. leaders to respond to a backlash from some of their most reliable rural voters.`\
+https://www.nytimes.com/2026/09/09/us/texas-republicans-data-center-anger.html
+
+**The Young Women at the Heart of American Landscape Art**\
+`Once dismissed as exercises in dainty femininity, the handiwork of schoolgirls is now celebrated for anticipating the art of the Hudson River School and beyond.`\
+https://www.nytimes.com/2026/09/09/arts/design/young-women-artists-american-landscape.html
+
+**Book Review: ‘Call It Evil,’ by Susan Neiman**\
+`In a new book, Susan Neiman argues that by defining evil in terms of individual monstrousness we fail to perceive its widespread hold on our culture.`\
+https://www.nytimes.com/2026/09/09/books/review/call-it-evil-susan-neiman.html
+
+**Bill T. Jones’s Dance That Didn’t Happen at the World Trade Center Plaza**\
+`Twenty-five years after 9/11 caused the cancellation of a Bill T. Jones group performance, he debuts a work in response.`\
+https://www.nytimes.com/2026/09/09/arts/dance/bill-t-jones-world-trade-center-9-11.html
+
+**A.I. Music Giant Suno Tries to Play Nice With Record Labels**\
+`Suno has drawn copyright lawsuits from the majors. Now it is releasing a version of its A.I. music generator trained in partnership with Warner Music.`\
+https://www.nytimes.com/2026/09/09/arts/music/suno-new-ai-model-warner-music.html
+
+**The Decade That Ruined Everything**\
+`We are suffering the consequences of the conservative revolution that began in the 1980s.`\
+https://www.nytimes.com/2026/09/09/opinion/80s-reagan-revolution-deregulation.html
+
+**Should My Kitchen Stools Match My Dining Chairs?**\
+`When your dining room is also your kitchen, the seating arrangements can do double duty too.`\
+https://www.nytimes.com/2026/09/09/realestate/design-advice-kitchen-stools.html
+
+**How a Driver’s Sudden Death Triggered Ebola Panic in Congo**\
+`When a truck driver unexpectedly collapsed and died in a remote village, frontline medical staff scrambled to safely isolate his body, triggering a standoff.`\
+https://www.nytimes.com/2026/09/09/world/africa/ebola-congo-truck-driver.html
+
+**Word of the Day: parlance**\
+`This word has appeared in 105 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/09/09/learning/word-of-the-day-parlance.html
+
+**Should Professors Teach More? Some Colleges Are Trying to Make Them.**\
+`Schools and entire states are creating new rules forcing professors to teach more hours and show up at the office. At one university, professors quit in response.`\
+https://www.nytimes.com/2026/09/09/us/university-professors-teaching-research-quit.html
+
+**The Long Road to Rebuilding  Lahaina After the 2023 Wildfire**\
+`Hawaii’s housing crisis was at a breaking point even before the fire. Since then, displaced families have struggled to rebuild their lives.`\
+https://www.nytimes.com/2026/09/09/magazine/maui-wildfire-hawaii-housing.html
+
+**Making Coffins in Ebola’s Epicenter**\
+`A coffin maker in the Democratic Republic of Congo has seen a significant increase in the number of coffins needed in Bunia since the latest Ebola outbreak began in May.`\
+https://www.nytimes.com/video/world/africa/100000011104028/making-coffins-in-ebolas-epicenter.html
+
+**Sara Bareilles Confronted Grief, and Found Herself**\
+`Her new album, “Good Grief,” mourns friends including her Broadway co-star Gavin Creel, and her musical adaptation of the Meg Wolitzer novel “The Interestings” is about finding a different kind of fulfillment in a creative life than you’d once imagined, which Bareilles knows something about.`\
+https://www.nytimes.com/2026/09/09/arts/sara-bareilles-good-grief-interestings.html
+
+**Festivals Celebrate Italy’s Fall Harvest**\
+`Here are five culinary celebrations to work into your autumn itinerary.`\
+https://www.nytimes.com/2026/09/09/travel/italian-fall-food-festivals.html
+
+**Our Favorite Chukka Boots for Fall**\
+`In suede or supple leather, lace-ups to freshen up your fall look.`\
+https://www.nytimes.com/2026/09/09/t-magazine/chukka-lace-up-boots.html
+
+**‘Liberation,’ ‘Purpose’ and 39 More Shows to See in the U.S. This Fall**\
+`This season is rich with sharp productions, like Bess Wohl’s and Branden Jacobs-Jenkins’s Pulitzer winners, Cole Escola’s “Oh, Mary!” and the hip-hop musical “Mexodus.”`\
+https://www.nytimes.com/2026/09/09/theater/liberation-purpose-oh-mary-mexodus-shows-in-us-2026.html
+
+**Vacheron Constantin Had Artisans Shrink Work to Watch Dials**\
+`Vacheron Constantin worked with a glass blower, embroiderer and others for its Tribute to the Animal Kingdom collection.`\
+https://www.nytimes.com/2026/09/09/fashion/watches-vacheron-constantin-homo-faber-venice.html
+
+**California, an Environmental Bastion, Warms to Nuclear Energy**\
+`The state is considering extending the life of its last nuclear power plant, Diablo Canyon, and allowing construction of new reactors to help meet its clean energy goals.`\
+https://www.nytimes.com/2026/09/09/business/energy-environment/california-diablo-canyon-nuclear-energy.html
+
 **Dolly Parton’s Musical, ‘Inter Alia’ and More on Broadway, and Off, This Fall**\
 `On New York stages this season come the new musicals “Galileo” and “Wanted,” a “Shuffle Along” reunion with Audra McDonald, and Tom Hiddleston in “Much Ado About Nothing.”`\
 https://www.nytimes.com/2026/09/09/theater/julia-louis-dreyfus-john-legend-broadway-off-broadway-fall-theater.html
@@ -45,156 +197,4 @@ https://www.nytimes.com/2026/09/09/us/jim-pillen-ice-nebraska-undocumented-worke
 **Anoma Considered Its Watch Case as Sculpture**\
 `A French artisan spent five hours grinding the steel for each Anoma A1 Prehistoric.`\
 https://www.nytimes.com/2026/09/09/fashion/watches-anoma-a1-prehistoric.html
-
-**A Watch That Captures Its Designer’s Understanding of Time**\
-`Michael Friedman says he has known for years what theory of time he wanted to base the first Pattern Recognition timepiece on.`\
-https://www.nytimes.com/2026/09/09/fashion/watches-michael-friedman-pattern-recognition.html
-
-**A 20-Minute Workout for Aging Well**\
-`These exercises can help you get up off the floor more comfortably, an important skill as you get older.`\
-https://www.nytimes.com/2026/09/09/well/move/aging-mobility-balance-workout.html
-
-**It Was Time for This Late Bloomer to Cultivate Her Garden**\
-`A landscape designer collaborated with family members on a weekend house in Spain where building and garden seem to ‘melt into each other.’`\
-https://www.nytimes.com/2026/09/09/garden/spain-landscape-house-underground.html
-
-**Justin Vivian Bond, Cabaret Chanteuse, Left New York for Paris. New York Called Her Back.**\
-`Justin Vivian Bond, a cabaret performer and MacArthur “genius,” left New York to move to Paris. Now she’s back at Joe’s Pub to tell us all about it.`\
-https://www.nytimes.com/2026/09/09/style/justin-vivian-bond-paris-new-york-cabaret.html
-
-**Tippet Rise: Where Music and Art Meet Postcard Mountain Views**\
-`Tippet Rise Art Center in Montana offers concerts in surroundings that make you feel as if you’re listening inside the land rather than around it.`\
-https://www.nytimes.com/2026/09/09/arts/music/tippet-rise-art-center-montana.html
-
-**In Australia, Watch Fans Talk Timepieces**\
-`Since its establishment in 1975, the Melbourne horology society has been meeting once a month to share watches and to talk about their passion.`\
-https://www.nytimes.com/2026/09/09/fashion/watches-australian-antiquarian-horological-society-melbourne.html
-
-**In Brooklyn, a Landscape Designer Turned a Gray Roof Into a Green Roof**\
-`The Brooklyn garage’s rooftop was a flat, empty surface. Then Julie Farris made it bloom.`\
-https://www.nytimes.com/2026/09/09/garden/green-roof-garage.html
-
-**This Times Reporter Wants to Hear Your College Gossip**\
-`Matt Yan, who writes the Extra Credit newsletter at The New York Times, is covering the news on campus and off.`\
-https://www.nytimes.com/2026/09/09/insider/new-york-times-extra-credit-newsletter.html
-
-**Why This Small Dutch Town Is Teaching ‘Adolescence’ in School**\
-`The Netflix series is seen as a way to kindle debate about gender roles and to confront online bullying.`\
-https://www.nytimes.com/2026/09/09/world/europe/netherlands-adolescence-manophere-education.html
-
-**Europe Unites to Pressure Israel, Breaking With U.S.**\
-`Britain once followed in France’s slipstream when it came to pressuring Israel. Under new leadership, it is spearheading opposition to Israeli settlements, risking American anger.`\
-https://www.nytimes.com/2026/09/09/world/europe/britain-france-israel-settlements-trade.html
-
-**How Roy Cohn Shaped Trump — and America**\
-`A new book reveals how the lawyer’s legacy lives on decades after his death.`\
-https://www.nytimes.com/video/opinion/100000011131120/how-roy-cohn-shaped-trump-and-america.html
-
-**Para un fotógrafo, las Torres Gemelas eran un punto focal siempre presente**\
-`Keith Meyers pasó años fotografiando las zonas costeras de la ciudad de Nueva York y sus alrededores. Las Torres Gemelas se convirtieron en un telón de fondo constante.`\
-https://www.nytimes.com/es/2026/09/09/espanol/estados-unidos/fotos-torres-gemelas-9-11.html
-
-**West Bank Residents Respond to New Sanctions**\
-`Britain, Canada and France on Tuesday announced sanctions on Israeli settlements in the occupied West Bank, drawing responses from both Israelis and Palestinians.`\
-https://www.nytimes.com/video/world/middleeast/100000011140725/israel-west-bank-settlements-sanctions.html
-
-**Un pasajero indisciplinado es inmovilizado con cinta adhesiva durante un vuelo**\
-`El pasajero de un vuelo de American Airlines comenzó a gritar vulgaridades y luego se puso violento el jueves pasado, dijeron las autoridades. Fue entonces cuando dos pasajeros intervinieron.`\
-https://www.nytimes.com/es/2026/09/09/espanol/estados-unidos/avion-pasajero-delta-mala-conducta-cinta.html
-
-**Lesson Plan | Space Origami**\
-`What is a bloom pattern? What real-life applications might it offer?`\
-https://www.nytimes.com/2026/09/09/learning/space-origami.html
-
-**Frustrated Travelers Stranded After Air Traffic Control Glitch in Britain**\
-`Travelers were stranded at Heathrow and Gatwick airports after Britain’s air traffic control system had a technical issue that caused the cancellation of more than 1,000 flights.`\
-https://www.nytimes.com/video/world/europe/100000011140812/uk-flight-delays-london-heathrow-gatwick.html
-
-**Oil Hits $100 a Barrel as Turmoil Intensifies in Middle East**\
-`The cost of crude has risen 40 percent since the start of the war in Iran, pushing up the price of gasoline, diesel and other refined fuels.`\
-https://www.nytimes.com/2026/09/09/business/brent-oil-100-barrel-iran-war.html
-
-**Travelers Face More Flight Delays After Major Air Traffic Disruption at UK Airports**\
-`An air traffic control problem caused more than 1,000 flight cancellations on Tuesday, and airlines warned that the effects could linger.`\
-https://www.nytimes.com/2026/09/09/world/europe/uk-air-traffic-control-flight-delays-london.html
-
-**China inicia servicio de carga a través del Ártico**\
-`El deshielo está abriendo una ruta comercial a través del Ártico, en un pasaje que conecta Asia con Europa. China ha iniciado el primer servicio regular, como parte de sus ambiciones polares.`\
-https://www.nytimes.com/es/2026/09/09/espanol/mundo/china-ruta-comercial-deshielo.html
-
-**NYT Spelling Bee Answers for September 9, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/09/09/crosswords/spelling-bee-forum.html
-
-**He’s Seen Images of 9/11 From Just About Every Angle. Except This One.**\
-`The 9/11 completist community wants to know and see everything. The Holy Grail? Pictures from inside the twin towers.`\
-https://www.nytimes.com/2026/09/09/nyregion/911-disposable-camera.html
-
-**State Senate Approved Jessica Ramos’s Travel Claims Despite Red Flags**\
-`Senate officials approved reimbursements for the senator, a Queens Democrat, despite receipts showing the expenses had been charged to her campaign.`\
-https://www.nytimes.com/2026/09/09/nyregion/ny-senate-ramos-double-billing.html
-
-**La batalla por el voto por correo en EE. UU. entra en su fase decisiva**\
-`El plan del gobierno para revisar las boletas por correo sigue bloqueado mientras la Corte Suprema evalúa las impugnaciones a las nuevas reglas sobre boletas del Servicio Postal del país.`\
-https://www.nytimes.com/es/2026/09/09/espanol/estados-unidos/batalla-voto-correo-ee-uu-trump.html
-
-**Sinkhole Opens at Beachfront Malibu Home, Forcing Evacuations**\
-`The expanding sinkhole formed under the driveway of a home that the actor Nicolas Cage bought in 2024. Dozens of homes were evacuated.`\
-https://www.nytimes.com/2026/09/09/us/malibu-sinkhole-nicolas-cage-house.html
-
-**Jimmy Kimmel Weighs in on Trump’s New Look**\
-`Back from his summer vacation, the late night host wondered, “Is it possible to have a midlife crisis at 80 years old?”`\
-https://www.nytimes.com/2026/09/09/arts/television/jimmy-kimmel-trump-new-hair.html
-
-**Nepal’s Flood Relief Workers Feel the Pain of Trump’s Cuts to U.S.A.I.D.**\
-`The agency played an important role in responding to earlier disasters like the 2015 earthquake. But the U.S. and other countries have pulled back, Nepali officials and humanitarian groups say.`\
-https://www.nytimes.com/2026/09/09/world/asia/nepal-floods-usaid-trump-relief.html
-
-**¿Cuán seguros son los tatuajes?**\
-`El proceso para hacerte un tatuaje puede provocar algunas reacciones en tu cuerpo. Esto es lo que saben los expertos sobre el riesgo.`\
-https://www.nytimes.com/es/2026/09/09/espanol/tatuajes-riesgos.html
-
-**Amazon Cargo Jet Pilots Appeared to Try Aborting Landing, N.T.S.B. Investigation Indicates**\
-`The sequence of events detailed by National Transportation Safety Board investigators showed that the pilots lost crucial seconds before the plane ran off the runway in Miami.`\
-https://www.nytimes.com/2026/09/09/us/politics/dc-miami-crash-ntsb.html
-
-**Stefany Shaheen, Daughter of Democratic Senator, Wins House Primary in New Hampshire**\
-`Ms. Shaheen, a biotech entrepreneur and former city councilor, fended off a rival who attacked her family connections.`\
-https://www.nytimes.com/2026/09/09/us/new-hampshire-primary-shaheen-sullivan.html
-
-**¿Qué es el problema de Navier-Stokes que OpenAI dijo haber resuelto?**\
-`La empresa anunció que había resuelto uno de los siete “problemas del milenio”, considerados entre los más importantes de las matemáticas avanzadas. Te explicamos de qué se trata.`\
-https://www.nytimes.com/es/2026/09/09/espanol/ciencia-y-tecnologia/problema-matematico-openai-que-es.html
-
-**The Theme Park at the Heart of France’s Culture War**\
-`The Puy du Fou is one of France’s most visited theme parks. Its founder says it gives the French a “founding narrative,” but critics say it peddles “far-right propaganda.”`\
-https://www.nytimes.com/2026/09/09/world/europe/theme-park-france-right-culture-war.html
-
-**Quote of the Day: Public Misled on Air Quality Following 9/11**\
-`Quotation of the Day for Wednesday, September 09, 2026.`\
-https://www.nytimes.com/2026/09/09/pageoneplus/quote-of-the-day-public-misled-on-air-quality-following-9-11.html
-
-**Iran Signals Readiness to Escalate War With U.S. Amid Rising Economic Pressure**\
-`The Iranian government is taking an increasingly aggressive approach as it confronts a growing economic threat and worries that its grip on the Strait of Hormuz is slipping, analysts say.`\
-https://www.nytimes.com/2026/09/09/world/middleeast/iran-war-us-aggression-hormuz.html
-
-**On This Day | Sept. 9**\
-`In 1971, prisoners at Attica Correctional Facility in New York seized part of the prison and took guards hostage, demanding better conditions and political reforms. The uprising left 43 people dead, including 39 during the violent retaking, while subsequent investigations exposed prisoner abuse and official misconduct.`\
-https://www.nytimes.com/2026/09/09/learning/on-this-day-sept-9.html
-
-**Court Halts New York Harbor Gas Pipeline Backed by Trump**\
-`The ruling centered on the granting of a water permit by New Jersey regulators, a decision the court described as “arbitrary and capricious.”`\
-https://www.nytimes.com/2026/09/08/nyregion/natural-gas-pipeline-ny-nj.html
-
-**Three Jurors in Clancy Trial Describe Frustration With Holdout**\
-`The three jurors, who voted to acquit Lindsay Clancy of murder, described the tense deliberations in an interview with a Boston TV station.`\
-https://www.nytimes.com/2026/09/08/us/jurors-lindsay-clancy-trial.html
-
-**NYT Crossword Answers for Sept. 9, 2026**\
-`Cast off your worries with a crossword by Dario Salvucci.`\
-https://www.nytimes.com/2026/09/08/crosswords/daily-puzzle-2026-09-09.html
-
-**Trump’s Ability to Channel Voter Concerns Is Tested as Republicans Gather in Dallas**\
-`As Republicans face down tough midterm elections, President Trump has appeared out of step with the party on Iran, the economy and other issues.`\
-https://www.nytimes.com/2026/09/08/us/politics/trump-republicans-midterms-voters.html
 
