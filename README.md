@@ -1,3 +1,11 @@
+**Amazon Cargo Jet Pilots Appeared to Try Aborting Landing, N.T.S.B. Investigation Indicates**\
+`The sequence of events detailed by National Transportation Safety Board investigators showed that the pilots lost crucial seconds before the plane ran off the runway in Miami.`\
+https://www.nytimes.com/2026/09/09/us/politics/dc-miami-crash-ntsb.html
+
+**Stefany Shaheen, Daughter of Democratic Senator, Wins House Primary in New Hampshire**\
+`Ms. Shaheen, a biotech entrepreneur and former city councilor, fended off a rival who attacked her family connections.`\
+https://www.nytimes.com/2026/09/09/us/new-hampshire-primary-shaheen-sullivan.html
+
 **¿Qué es el problema de Navier-Stokes que OpenAI dijo haber resuelto?**\
 `La empresa anunció que había resuelto uno de los siete “problemas del milenio”, considerados entre los más importantes de las matemáticas avanzadas. Te explicamos de qué se trata.`\
 https://www.nytimes.com/es/2026/09/09/espanol/ciencia-y-tecnologia/problema-matematico-openai-que-es.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/08/climate/californias-fast-fashion-textile-wast
 **Southern California Is Hot and Steamy Again**\
 `Temperatures soared across the region on Tuesday. The muggy weather will get worse before it gets better.`\
 https://www.nytimes.com/2026/09/08/weather/southern-california-heat-wave-la.html
-
-**Books to Match Your Mood**\
-`MJ Franklin of The New York Times Book Review recommends books based on your mood.`\
-https://www.nytimes.com/video/books/100000011054884/books-to-match-your-mood.html
-
-**Trump Cannot Pardon Lindsay Clancy, but Her Lawyer Asked Anyway**\
-`President Trump does not have the power to wipe away the state murder charges Ms. Clancy faces. Her lawyer’s spokesman said the comments were “a statement to the country.”`\
-https://www.nytimes.com/2026/09/08/us/lindsay-clancy-lawyer-trump-pardon-murder.html
 
