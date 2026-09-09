@@ -1,3 +1,19 @@
+**Lawmakers Question N.Y.C. Tech Official About 911 System Breakdown**\
+`Lisa Gelobter, who runs the agency responsible for the technology behind the city’s 911 system, was asked why officials had kept quiet about an outage that affected nearly 1,700 calls.`\
+https://www.nytimes.com/2026/09/09/nyregion/nyc-city-council-911-breakdown.html
+
+**Republicans Gather in Texas for an Unusual Convention**\
+`Also, Apple unveils a foldable iPhone. Here’s the latest at the end of Wednesday.`\
+https://www.nytimes.com/2026/09/09/briefing/texas-convention-apple-foldable-iphone.html
+
+**Trump Is Sabotaging the Midterms. The Supreme Court Must Stop Him.**\
+`The country has built a system in which Americans can have confidence. President Trump is trying to wreck it.`\
+https://www.nytimes.com/2026/09/09/opinion/mail-voting-chaos-trump-supreme-court.html
+
+**A Hostile Trump Reopens Old Wounds in the U.S.-Canada Relationship**\
+`President Trump is not the first American president to feud with Canada. But today’s crisis might be the worst.`\
+https://www.nytimes.com/2026/09/09/us/politics/trump-canada-tariffs.html
+
 **U.S. Designates Ecuador’s Los Tiguerones Gang as Terrorist Group**\
 `The sanctions on Los Tiguerones imposed by Secretary of State Marco Rubio are an increasingly common U.S. tactic, though they will likely not hurt the gang’s finances.`\
 https://www.nytimes.com/2026/09/09/world/americas/ecuador-los-tiguerones-terrorist.html
