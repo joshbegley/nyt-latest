@@ -1,3 +1,7 @@
+**Un gobernador respalda a Trump pero contrata a trabajadores indocumentados**\
+`La empresa familiar del gobernador Jim Pillen es uno de los mayores productores porcinos de Estados Unidos. En su campaña por la reelección, se ha alineado con la agenda antinmigrante del presidente Trump, a pesar de que sus granjas han contratado a trabajadores indocumentados.`\
+https://www.nytimes.com/es/2026/09/09/espanol/ice-migrantes-nebraska-gobernador-trump.html
+
 **Una serie de ejercicios para levantarte del piso con comodidad**\
 `Levantarse del piso con comodidad también requiere fuerza y movilidad en varias partes del cuerpo. A medida que envejeces, hay músculos que requieren fortalecerse. Aquí está una rutina para lograrlo.`\
 https://www.nytimes.com/es/2026/09/09/espanol/ejercicios-mobilidad-envejecer.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/09/technology/zoox-waymo-san-francisco.html
 **As He Backs ICE Crackdown, Nebraska Governor Employs Undocumented Workers**\
 `Gov. Jim Pillen’s family business is one of the nation’s largest pork producers. As he seeks re-election, he has aligned himself with President Trump’s anti-immigrant agenda even though his farms have taken on undocumented laborers.`\
 https://www.nytimes.com/2026/09/09/us/jim-pillen-ice-nebraska-undocumented-workers.html
-
-**Anoma Considered Its Watch Case as Sculpture**\
-`A French artisan spent five hours grinding the steel for each Anoma A1 Prehistoric.`\
-https://www.nytimes.com/2026/09/09/fashion/watches-anoma-a1-prehistoric.html
 
