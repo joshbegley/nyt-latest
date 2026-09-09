@@ -1,3 +1,7 @@
+**Why Trump’s Republican Midterm ‘Convention’ Isn’t a Real Convention**\
+`No nominations or formal party business will be happening, as they would at a traditional presidential convention. But the made-for-TV speeches will look much the same.`\
+https://www.nytimes.com/2026/09/09/us/politics/trump-republican-midterm-convention-gop-party.html
+
 **Grilled Corn and Avocado Salad With Feta Dressing**\
 `This lively salad of corn, scallions, jalapeño and avocado tossed with a tangy buttermilk-feta dressing is like summer on a plate.`\
 https://www.nytimes.com/video/dining/100000011140090/grilled-corn-and-avocado-salad-with-feta-dressing.html
@@ -115,7 +119,7 @@ https://www.nytimes.com/2026/09/09/style/venice-film-festival-best-dressed.html
 https://www.nytimes.com/2026/09/09/magazine/stepchildren-inheritance-ethics.html
 
 **Saudi Oil Exports Plunge as Spread of War Shuts Off Shipping Routes**\
-`With few good options for safely shipping oil, Saudi Arabia’s exports have plunged to a 13-year low.`\
+`With few good options for safely shipping oil, Saudi Arabia’s exports have fallen to a 13-year low.`\
 https://www.nytimes.com/2026/09/09/business/saudi-arabia-houthis-red-sea-oil-shipping.html
 
 **‘Ferris Bueller Gone Bad’: 22-Year-Old Pleads Guilty in Giant Bitcoin Heist**\
@@ -185,8 +189,4 @@ https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island
 **U.S. Takes Aim at New Target in Deadly Boat Strike Campaign**\
 `U.S. military officials in the past two weeks have sunk six large fishing vessels accused of providing fuel to fast boats carrying drugs from South America.`\
 https://www.nytimes.com/2026/09/09/world/americas/us-boat-strikes-south-america.html
-
-**5 hombres cubanos perdieron la vida a causa de un avión de carga en Miami**\
-`Días después de que un avión de carga de Amazon se estrelló contra una camioneta en el Aeropuerto Internacional de Miami y dejó cinco muertos, comenzaron a conocerse los perfiles de las víctimas.`\
-https://www.nytimes.com/es/2026/09/09/espanol/estados-unidos/mueren-cubanos-miami-avion.html
 
