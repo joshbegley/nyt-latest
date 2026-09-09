@@ -1,3 +1,23 @@
+**The Data Center Conundrum**\
+`Let’s learn from Nordic Countries: If America actually supported workers, we’d have a better shot at embracing technological change.`\
+https://www.nytimes.com/2026/09/09/opinion/data-center-ai-resistance.html
+
+**I Worked on Safety at OpenAI. The Fix Isn’t Hard.**\
+`Even without government regulation, private companies can act on their own to address A.I. safety concerns.`\
+https://www.nytimes.com/2026/09/09/opinion/openai-ai-companies-safety-regulation.html
+
+**Apple presenta el iPhone Duo, un celular plegable de 1999 dólares**\
+`La empresa debuta en el mercado de las dobles pantallas con un producto de alta gama.`\
+https://www.nytimes.com/es/2026/09/09/espanol/negocios/apple-iphone-duo-precio-cuando-sale.html
+
+**Why Are Some Gen Z College Students Leaving Campus After 2 Weeks?**\
+`Dozens of videos on social media feature freshmen moving out early in the first semester.`\
+https://www.nytimes.com/2026/09/09/style/gen-z-college-students-quit.html
+
+**The Local: Tackling heat and talking to Klobuchar**\
+`Plus, the State Fair by the numbers.`\
+https://www.nytimes.com/2026/09/09/briefing/heat-island-effect.html
+
 **Trump Administration Accuses Berkeley Law School of Racial Discrimination**\
 `The Justice and Education Departments said the school had penalized white and Asian applicants, the latest in a series of investigations into admissions at elite universities.`\
 https://www.nytimes.com/2026/09/09/us/doj-california-berkeley.html
