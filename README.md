@@ -1,3 +1,19 @@
+**Lawmakers Question N.Y.C. Tech Official About 911 System Breakdown**\
+`Lisa Gelobter, who runs the agency responsible for the technology behind the city’s 911 system, was asked why officials had kept quiet about an outage that affected nearly 1,700 calls.`\
+https://www.nytimes.com/2026/09/09/nyregion/nyc-city-council-911-breakdown.html
+
+**Republicans Gather in Texas for an Unusual Convention**\
+`Also, Apple unveils a foldable iPhone. Here’s the latest at the end of Wednesday.`\
+https://www.nytimes.com/2026/09/09/briefing/texas-convention-apple-foldable-iphone.html
+
+**Trump Is Sabotaging the Midterms. The Supreme Court Must Stop Him.**\
+`The country has built a system in which Americans can have confidence. President Trump is trying to wreck it.`\
+https://www.nytimes.com/2026/09/09/opinion/mail-voting-chaos-trump-supreme-court.html
+
+**A Hostile Trump Reopens Old Wounds in the U.S.-Canada Relationship**\
+`President Trump is not the first American president to feud with Canada. But today’s crisis might be the worst.`\
+https://www.nytimes.com/2026/09/09/us/politics/trump-canada-tariffs.html
+
 **Trump’s Midterm Convention May Struggle for Ratings Against the NFL Kickoff**\
 `Many major TV networks are sticking with regular programming as the Republicans convene in Dallas. Fox News, NewsNation and C-SPAN will carry more of the proceedings.`\
 https://www.nytimes.com/2026/09/09/us/politics/trump-rnc-convention-nfl-ratings.html
@@ -173,20 +189,4 @@ https://www.nytimes.com/live/2026/09/09/us/rnc-trump-midterm-convention-updates
 **Scientists Discover the Earliest Evidence of Drug Use in Really Old Teeth**\
 `A hunter-gatherer who lived in Indonesia as early as 25,000 years ago may have regularly sucked on betel nuts to release their psychoactive properties.`\
 https://www.nytimes.com/2026/09/09/science/scientists-discover-the-earliest-evidence-of-drug-use-in-really-old-teeth.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/interactive/2026/09/09/travel/things-to-do-stockholm.html
-
-**Toxic PFAS Cleanups at Military Sites Face Decades of Delay**\
-`The Pentagon has again postponed PFAS cleanups at hundreds of military sites, in some cases up to 19 years, prompting bipartisan anger in Congress.`\
-https://www.nytimes.com/2026/09/09/climate/pfas-military-bases-cleanup-delays.html
-
-**Police Expand Investigation Into Reform U.K. After Undercover Sting**\
-`The Metropolitan Police are investigating Nigel Farage’s right-wing populist party after footage appeared to show party officials arranging secret contributions from a foreign donor.`\
-https://www.nytimes.com/2026/09/09/world/europe/reform-uk-investigation-nigel-farage.html
-
-**‘S.N.L.’ Season 52: Jalen Brunson Will Host First Episode**\
-`The New York Knicks star will kick off the 52nd season of “Saturday Night Live” on Sept. 26. Other hosts include Shane Gillis and Dakota Johnson.`\
-https://www.nytimes.com/2026/09/09/arts/television/saturday-night-live-jalen-brunson.html
 

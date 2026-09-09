@@ -1,3 +1,7 @@
+**U.S. Designates Ecuador’s Los Tiguerones Gang as Terrorist Group**\
+`The sanctions on Los Tiguerones imposed by Secretary of State Marco Rubio are an increasingly common U.S. tactic, though they will likely not hurt the gang’s finances.`\
+https://www.nytimes.com/2026/09/09/world/americas/ecuador-los-tiguerones-terrorist.html
+
 **Trump’s Midterm Convention May Struggle for Ratings Against the NFL Kickoff**\
 `Many major TV networks are sticking with regular programming as the Republicans convene in Dallas. Fox News, NewsNation and C-SPAN will carry more of the proceedings.`\
 https://www.nytimes.com/2026/09/09/us/politics/trump-rnc-convention-nfl-ratings.html

@@ -47,7 +47,7 @@ https://www.nytimes.com/2026/09/09/us/doj-california-berkeley.html
 https://www.nytimes.com/2026/09/09/world/10int-theworld-web-ai-education.html
 
 **U.S. Designates Ecuador’s Los Tiguerones Gang as Terrorist Group**\
-`The sanctions that will now be imposed on Los Tiguerones are an increasingly common U.S. tactic, though they unlikely to hurt the gang financially.`\
+`The sanctions on Los Tiguerones imposed by Secretary of State Marco Rubio are an increasingly common U.S. tactic, though they will likely not hurt the gang’s finances.`\
 https://www.nytimes.com/2026/09/09/world/americas/ecuador-los-tiguerones-terrorist.html
 
 **James Talarico Counters Trump’s Midterm Convention With Food Drive**\
