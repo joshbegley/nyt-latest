@@ -1,3 +1,27 @@
+**The Establishment Pulls Through: Five Takeaways from the New Hampshire Primaries**\
+`The U.S. Senate race will feature familiar faces: former Senator John E. Sununu and Chris Pappas, a four-term congressman. Stefany Shaheen, a senator’s daughter, eked out a win in a House primary.`\
+https://www.nytimes.com/2026/09/09/us/politics/new-hampshire-primaries-takeaways.html
+
+**Why Trump Is Gathering Republicans in Texas, and Iran Targets U.S. Warships**\
+`Plus, the fake images flooding real estate listings.`\
+https://www.nytimes.com/2026/09/09/podcasts/the-headlines/trump-republicans-texas-iran-us-warships.html
+
+**Trump’s War on Mail-In Voting**\
+`President Trump has long made unfounded claims that fraud is rampant among mail votes.`\
+https://www.nytimes.com/2026/09/09/podcasts/the-daily/trumps-war-on-mail-in-voting.html
+
+**NYT Connections Answers for September 10, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Sept. 10, 2026.`\
+https://www.nytimes.com/2026/09/09/crosswords/connections-companion-1187.html
+
+**NYT Strands Hints for September 10, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Sept. 10, 2026.`\
+https://www.nytimes.com/2026/09/09/crosswords/strands-sidekick-921.html
+
+**Today’s Wordle Hints for September 10, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Sept. 10, 2026.`\
+https://www.nytimes.com/2026/09/09/crosswords/wordle-review-1909.html
+
 **The Unanswered Questions in the N.B.A.’s Kawhi Leonard Ruling**\
 `Pablo on where the investigation goes next.`\
 https://www.nytimes.com/2026/09/09/podcasts/unanswered-questions-nba-kawhi-leonard-ruling.html
