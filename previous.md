@@ -1,3 +1,7 @@
+**La batalla por el voto por correo en EE. UU. entra en su fase decisiva**\
+`El plan del gobierno para revisar las boletas por correo sigue bloqueado mientras la Corte Suprema evalúa las impugnaciones a las nuevas reglas sobre boletas del Servicio Postal del país.`\
+https://www.nytimes.com/es/2026/09/09/espanol/estados-unidos/batalla-voto-correo-ee-uu-trump.html
+
 **Sinkhole Opens at Beachfront Malibu Home, Forcing Evacuations**\
 `The expanding sinkhole formed under the driveway of a home that the actor Nicolas Cage bought in 2024. Dozens of homes were evacuated.`\
 https://www.nytimes.com/2026/09/09/us/malibu-sinkhole-nicolas-cage-house.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/08/us/american-bar-association-dei-standards-end
 **N.Y.C. Leaders ‘Lied’ About Air Quality After 9/11, Mamdani Says**\
 `Mayor Zohran Mamdani said city leaders “lied” about the air quality being safe around the World Trade Center site after the Sept. 11 attacks.`\
 https://www.nytimes.com/video/us/100000011138639/mamdani-911-attack-air-quality-nyc.html
-
-**At 9/11 Tribute, Trump Adds New Claim to His Disputed Role After Attack**\
-`President Trump has long sought to position himself close to the Sept. 11 recovery effort and has made a series of questionable and provocative statements to burnish his political brand.`\
-https://www.nytimes.com/2026/09/08/us/politics/trump-sept-11-firefighters.html
 

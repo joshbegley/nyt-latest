@@ -1,3 +1,7 @@
+**La batalla por el voto por correo en EE. UU. entra en su fase decisiva**\
+`El plan del gobierno para revisar las boletas por correo sigue bloqueado mientras la Corte Suprema evalúa las impugnaciones a las nuevas reglas sobre boletas del Servicio Postal del país.`\
+https://www.nytimes.com/es/2026/09/09/espanol/estados-unidos/batalla-voto-correo-ee-uu-trump.html
+
 **Sinkhole Opens at Beachfront Malibu Home, Forcing Evacuations**\
 `The expanding sinkhole formed under the driveway of a home that the actor Nicolas Cage bought in 2024. Dozens of homes were evacuated.`\
 https://www.nytimes.com/2026/09/09/us/malibu-sinkhole-nicolas-cage-house.html
