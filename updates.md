@@ -1,3 +1,15 @@
+**Elecciones en Israel: lo que hay que saber**\
+`¿Será esta la elección en la que finalmente pierda Netanyahu tras casi dos décadas en el poder?`\
+https://www.nytimes.com/es/2026/09/09/espanol/mundo/israel-elecciones-netanyahu.html
+
+**Los pilotos del avión que chocó en Miami habrían intentado abortar el aterrizaje**\
+`La secuencia de eventos detallada por los investigadores de la Junta Nacional de Seguridad en el Transporte mostró que los pilotos perdieron segundos cruciales antes de que el avión se saliera de la pista.`\
+https://www.nytimes.com/es/2026/09/09/espanol/estados-unidos/avion-choque-miami-aterrizaje.html
+
+**Does Learning to Write Still Matter in the Age of A.I.?**\
+`It’s a question that educators, writers and students are asking themselves. What do you think?`\
+https://www.nytimes.com/2026/09/09/learning/does-learning-to-write-still-matter-in-the-age-of-ai.html
+
 **The Data Center Conundrum**\
 `Let’s learn from Nordic Countries: If America actually supported workers, we’d have a better shot at embracing technological change.`\
 https://www.nytimes.com/2026/09/09/opinion/data-center-ai-resistance.html

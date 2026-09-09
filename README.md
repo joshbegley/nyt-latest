@@ -1,3 +1,11 @@
+**Lesson Plan: What It Means to Write in the Age of A.I.**\
+`In this three-part lesson, we invite students to explore why we write and discuss why it still matters amid the rise of artificial intelligence.`\
+https://www.nytimes.com/2026/09/09/learning/lesson-plans/lesson-plan-what-it-means-to-write-in-the-age-of-ai.html
+
+**Educators, How Are You Teaching With and About A.I.?**\
+`We want to hear about the strategies, assignments and lesson plans that have — and haven’t — been successful for you and your students.`\
+https://www.nytimes.com/2026/09/09/learning/educators-how-are-you-teaching-with-and-about-ai.html
+
 **Elecciones en Israel: lo que hay que saber**\
 `¿Será esta la elección en la que finalmente pierda Netanyahu tras casi dos décadas en el poder?`\
 https://www.nytimes.com/es/2026/09/09/espanol/mundo/israel-elecciones-netanyahu.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/09/09/arts/television/saturday-night-live-jalen-bru
 **Tate Brothers Must Remain in U.S. Jail Until Extradition Case Is Decided**\
 `A judge in Miami declined to release Andrew and Tristan Tate from custody while they fight extradition to Britain.`\
 https://www.nytimes.com/2026/09/09/us/tristan-andrew-tate-brothers-flight-risk.html
-
-**EE. UU. dirige ataques a barcos en la costa de Ecuador**\
-`En las últimas dos semanas, oficiales militares estadounidenses han hundido seis barcos pesqueros grandes acusados de proveer combustible a lanchas rápidas que transportan drogas desde Sudamérica.`\
-https://www.nytimes.com/es/2026/09/09/espanol/america-latina/ecuador-eeuu-ataque-maritimo.html
-
-**Trump’s Midterm Pitch Clouded by Iran War and Canada Tariffs**\
-`A worsening trade war and a spike in oil prices could create new economic risks as the president prepares to rally Republicans for the midterms.`\
-https://www.nytimes.com/2026/09/09/business/canada-iran-war-trump-midterms.html
 

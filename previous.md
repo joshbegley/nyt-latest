@@ -1,3 +1,15 @@
+**Elecciones en Israel: lo que hay que saber**\
+`¿Será esta la elección en la que finalmente pierda Netanyahu tras casi dos décadas en el poder?`\
+https://www.nytimes.com/es/2026/09/09/espanol/mundo/israel-elecciones-netanyahu.html
+
+**Los pilotos del avión que chocó en Miami habrían intentado abortar el aterrizaje**\
+`La secuencia de eventos detallada por los investigadores de la Junta Nacional de Seguridad en el Transporte mostró que los pilotos perdieron segundos cruciales antes de que el avión se saliera de la pista.`\
+https://www.nytimes.com/es/2026/09/09/espanol/estados-unidos/avion-choque-miami-aterrizaje.html
+
+**Does Learning to Write Still Matter in the Age of A.I.?**\
+`It’s a question that educators, writers and students are asking themselves. What do you think?`\
+https://www.nytimes.com/2026/09/09/learning/does-learning-to-write-still-matter-in-the-age-of-ai.html
+
 **The Data Center Conundrum**\
 `Let’s learn from Nordic Countries: If America actually supported workers, we’d have a better shot at embracing technological change.`\
 https://www.nytimes.com/2026/09/09/opinion/data-center-ai-resistance.html
@@ -177,16 +189,4 @@ https://www.nytimes.com/es/2026/09/09/espanol/america-latina/ecuador-eeuu-ataque
 **Trump’s Midterm Pitch Clouded by Iran War and Canada Tariffs**\
 `A worsening trade war and a spike in oil prices could create new economic risks as the president prepares to rally Republicans for the midterms.`\
 https://www.nytimes.com/2026/09/09/business/canada-iran-war-trump-midterms.html
-
-**Video Shows Grocery Store Manager Saving Toddler From Oncoming Traffic**\
-`Luis Cruz dashed into a busy street in Puebla, Mexico, to pull a girl out of the path of an approaching S.U.V. Footage of the rescue has made him a local sensation.`\
-https://www.nytimes.com/2026/09/09/world/americas/video-mexico-toddler-traffic-rescue.html
-
-**Anthropic Researchers Raise Alarm Over A.I. Acceleration, Warning of Threat to Humanity**\
-`Their warnings echo concerns that other artificial intelligence experts have voiced in recent months, as calls increase for a slowdown in the pace of development.`\
-https://www.nytimes.com/2026/09/09/technology/anthropic-researchers-raise-alarm.html
-
-**Why Israel Reacted With Fury to U.K. Sanctions on West Bank Settlements**\
-`The fierce retaliation of Prime Minister Benjamin Netanyahu’s government to the new restrictions is a reflection of his tough re-election fight, analysts say.`\
-https://www.nytimes.com/2026/09/09/world/middleeast/israel-uk-west-bank-sanctions.html
 
