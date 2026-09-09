@@ -50,8 +50,8 @@ https://www.nytimes.com/2026/09/09/world/europe/norway-king-harald-funeral.html
 `The money, listed as “cash gift for the holidays,” was detailed in financial disclosure forms released by the administration.`\
 https://www.nytimes.com/2026/09/09/us/politics/trump-natalie-harp-cash-gift-martin-harris.html
 
-**Trump’s Super PAC Is Tied to Mystery Group Spending $25 Million on Midterms**\
-`The recently created Republican group is pumping cash into half a dozen key midterm races, with the largest amounts going toward Senate contests in New Hampshire and Alaska.`\
+**Trump’s Super PAC Starts to Unload Its War Chest, With New Group Booking $47 Million**\
+`A recently created Republican group tied to the president’s super PAC is pumping cash into half a dozen key midterm races, with the largest amounts going toward Senate contests in Michigan and Ohio.`\
 https://www.nytimes.com/2026/09/09/us/politics/trump-midterms-maga-inc-spending.html
 
 **Germany’s Right Turn**\
