@@ -1,3 +1,7 @@
+**New Accuser Sues Foundations With Ties to Cesar Chavez**\
+`The lawsuit, the first of its kind since revelations against the union leader emerged this year, accuses two foundations of failing to prevent “abusive, rogue and inappropriate” behavior.`\
+https://www.nytimes.com/2026/09/09/us/cesar-chavez-lawsuit.html
+
 **Missouri Supreme Court Sets Contempt Hearing in Fight Over House Map**\
 `Amid conflicting rulings, Missouri’s highest court ordered the secretary of state to respond to claims that he violated an order on redistricting.`\
 https://www.nytimes.com/2026/09/09/us/missouri-redistricting-congress-contempt.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/09/opinion/80s-reagan-revolution-deregulation.ht
 **Should My Kitchen Stools Match My Dining Chairs?**\
 `When your dining room is also your kitchen, the seating arrangements can do double duty too.`\
 https://www.nytimes.com/2026/09/09/realestate/design-advice-kitchen-stools.html
-
-**How a Driver’s Sudden Death Triggered Ebola Panic in Congo**\
-`When a truck driver unexpectedly collapsed and died in a remote village, frontline medical staff scrambled to safely isolate his body, triggering a standoff.`\
-https://www.nytimes.com/2026/09/09/world/africa/ebola-congo-truck-driver.html
 
