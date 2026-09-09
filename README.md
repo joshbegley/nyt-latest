@@ -1,3 +1,7 @@
+**Canada and the Bully to Its South**\
+`Readers discuss the contrasts between the United States and Canada, and the renaming of Lake Ontario as Lake America. Also: Conquering “digital territory.”`\
+https://www.nytimes.com/2026/09/09/opinion/canada-united-states.html
+
 **‘Tomatoes Turn Me On’**\
 `The chef and cookbook author Carla Lalli joins Anna Martin, the host of “Modern Love,” to talk about owning her cravings after her divorce.`\
 https://www.nytimes.com/video/podcasts/100000011139283/tomatoes-turn-me-on.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/09/podcasts/unanswered-questions-nba-kawhi-leona
 **Un gobernador respalda a Trump pero contrata a trabajadores indocumentados**\
 `La empresa familiar del gobernador Jim Pillen es uno de los mayores productores porcinos de Estados Unidos. En su campaña por la reelección, se ha alineado con la agenda antinmigrante del presidente Trump, a pesar de que sus granjas han contratado a trabajadores indocumentados.`\
 https://www.nytimes.com/es/2026/09/09/espanol/ice-migrantes-nebraska-gobernador-trump.html
-
-**Una serie de ejercicios para levantarte del piso con comodidad**\
-`Levantarse del piso con comodidad también requiere fuerza y movilidad en varias partes del cuerpo. A medida que envejeces, hay músculos que requieren fortalecerse. Aquí está una rutina para lograrlo.`\
-https://www.nytimes.com/es/2026/09/09/espanol/ejercicios-mobilidad-envejecer.html
 
