@@ -1,3 +1,15 @@
+**How the Super Godzilla Monster El Niño Could Actually Affect Your Weather**\
+`Yes, El Niño is unusually powerful this time. But that’s not always a bad thing.`\
+https://www.nytimes.com/2026/09/09/weather/el-nino-weather-forecast-facts.html
+
+**Lucien Smith, Art-World Star Whose Career Abruptly Turned, Dies at 37**\
+`A phenom in his 20s, he became the poster child for Zombie Formalism before abandoning the gallery frenzy for Montauk.`\
+https://www.nytimes.com/2026/09/09/obituaries/lucien-smith-dead.html
+
+**Trump Is Delayed After Emergency Slide Deploys on New Air Force One**\
+`The mishap happened while the Qatari-donated jet was parked on the tarmac at Joint Base Andrews. It delayed President Trump’s departure to a Republican convention in Dallas.`\
+https://www.nytimes.com/2026/09/09/us/politics/emergency-slide-air-force-one-trump.html
+
 **New Mexico’s Name Is Older Than the U.S. Trump Still Wants to Change It.**\
 `President Trump has no authority to change the state’s name, but his suggestion has constituted fighting words to proud New Mexicans.`\
 https://www.nytimes.com/2026/09/09/us/new-america-trump-reaction-new-mexico.html

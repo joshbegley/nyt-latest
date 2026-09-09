@@ -1,12 +1,16 @@
+**How the Super Godzilla Monster El Niño Could Actually Affect Your Weather**\
+`Yes, El Niño is unusually powerful this time. But that’s not always a bad thing.`\
+https://www.nytimes.com/2026/09/09/weather/el-nino-weather-forecast-facts.html
+
 **New Mexico’s Name Is Older Than the U.S. Trump Still Wants to Change It.**\
 `President Trump has no authority to change the state’s name, but his suggestion has constituted fighting words to proud New Mexicans.`\
 https://www.nytimes.com/2026/09/09/us/new-america-trump-reaction-new-mexico.html
 
 **Lucien Smith, Art-World Star Whose Career Abruptly Turned, Dies at 37**\
-`A phenom in his 20s, he became poster child for Zombie Formalism before abandoning the gallery frenzy for Montauk.`\
+`A phenom in his 20s, he became the poster child for Zombie Formalism before abandoning the gallery frenzy for Montauk.`\
 https://www.nytimes.com/2026/09/09/obituaries/lucien-smith-dead.html
 
-**Emergency Slide Accidentally Deploys on New Air Force One**\
+**Trump Is Delayed After Emergency Slide Deploys on New Air Force One**\
 `The mishap happened while the Qatari-donated jet was parked on the tarmac at Joint Base Andrews. It delayed President Trump’s departure to a Republican convention in Dallas.`\
 https://www.nytimes.com/2026/09/09/us/politics/emergency-slide-air-force-one-trump.html
 
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/09/09/style/tiny-modern-love-stories-a-year-of-nake
 **Irán parece dispuesto a intensificar la lucha con EE. UU.**\
 `El gobierno iraní está adoptando un enfoque cada vez más agresivo a medida que enfrenta una amenaza económica creciente y teme que su control sobre el estrecho de Ormuz se esté debilitando, dicen los analistas.`\
 https://www.nytimes.com/es/2026/09/09/espanol/mundo/iran-guerra-eeuu-ormuz.html
-
-**Bond Market Rebuffs Treasury’s $6 Billion Plan to Reduce Borrowing Costs**\
-`The 10-year yield rose to its highest level in three years, suggesting investors were underwhelmed by the details of a move to buy back government bonds.`\
-https://www.nytimes.com/2026/09/09/business/economy/treasury-repurchase-bessent.html
 
