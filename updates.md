@@ -1,3 +1,23 @@
+**As Republicans Gather in Dallas, Talarico Offers a Different Show**\
+`The Democratic Senate candidate used a food drive to sharpen his economic message against Ken Paxton.`\
+https://www.nytimes.com/2026/09/09/us/politics/talarico-republican-midterm-convention-counterprogramming.html
+
+**Election Officials Grapple With Uncertainty as Supreme Court Considers Mail Ballot Plan**\
+`As they wait for word on whether the Trump administration’s new system to screen ballots can move forward, local officials say they are running out of time.`\
+https://www.nytimes.com/2026/09/09/us/politics/election-officials-confusion-mail-ballots.html
+
+**Misery at Heathrow: ‘Never Seen Chaos Like That’**\
+`Over 2,000 flights have been disrupted in the past two days, as an air-traffic control problem has stymied British airports.`\
+https://www.nytimes.com/2026/09/09/world/europe/heathrow-uk-flights-travel.html
+
+**Trump Is Delayed After Emergency Slide Deploys on New Air Force One**\
+`The mishap occurred while the Qatari-donated jet was parked on the tarmac at Joint Base Andrews. It delayed President Trump’s departure to a Republican convention in Dallas.`\
+https://www.nytimes.com/2026/09/09/us/politics/emergency-slide-air-force-one-trump.html
+
+**Live Updates: Republicans Open a Midterm Convention Heavy on Trump**\
+`The president will speak on both nights of the gathering in Dallas. But with his approval ratings sagging, it’s unclear whether the event will help Republicans in tough races.`\
+https://www.nytimes.com/live/2026/09/09/us/rnc-trump-midterm-convention-updates
+
 **How the Super Godzilla Monster El Niño Could Actually Affect Your Weather**\
 `Yes, El Niño is unusually powerful this time. But that’s not always a bad thing.`\
 https://www.nytimes.com/2026/09/09/weather/el-nino-weather-forecast-facts.html

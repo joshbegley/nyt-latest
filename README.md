@@ -1,3 +1,7 @@
+**U.S. Designates Ecuador’s Los Tiguerones Gang as Terrorist Group**\
+`The sanctions that will now be imposed on Los Tiguerones are an increasingly common U.S. tactic, though they unlikely to hurt the gang financially.`\
+https://www.nytimes.com/2026/09/09/world/americas/ecuador-los-tiguerones-terrorist.html
+
 **As Republicans Gather in Dallas, Talarico Offers a Different Show**\
 `The Democratic Senate candidate used a food drive to sharpen his economic message against Ken Paxton.`\
 https://www.nytimes.com/2026/09/09/us/politics/talarico-republican-midterm-convention-counterprogramming.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/interactive/2026/09/09/us/complaint-jane-doe-v-cesar-cha
 **Canada and the Bully to Its South**\
 `Readers discuss the contrasts between the United States and Canada, and the renaming of Lake Ontario as Lake America. Also: Conquering “digital territory.”`\
 https://www.nytimes.com/2026/09/09/opinion/canada-united-states.html
-
-**‘Tomatoes Turn Me On’**\
-`The chef and cookbook author Carla Lalli joins Anna Martin, the host of “Modern Love,” to talk about owning her cravings after her divorce.`\
-https://www.nytimes.com/video/podcasts/100000011139283/tomatoes-turn-me-on.html
 

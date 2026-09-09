@@ -1,3 +1,15 @@
+**As Republicans Gather in Dallas, Talarico Offers a Different Show**\
+`The Democratic Senate candidate used a food drive to sharpen his economic message against Ken Paxton.`\
+https://www.nytimes.com/2026/09/09/us/politics/talarico-republican-midterm-convention-counterprogramming.html
+
+**Election Officials Grapple With Uncertainty as Supreme Court Considers Mail Ballot Plan**\
+`As they wait for word on whether the Trump administration’s new system to screen ballots can move forward, local officials say they are running out of time.`\
+https://www.nytimes.com/2026/09/09/us/politics/election-officials-confusion-mail-ballots.html
+
+**Misery at Heathrow: ‘Never Seen Chaos Like That’**\
+`Over 2,000 flights have been disrupted in the past two days, as an air-traffic control problem has stymied British airports.`\
+https://www.nytimes.com/2026/09/09/world/europe/heathrow-uk-flights-travel.html
+
 **How the Super Godzilla Monster El Niño Could Actually Affect Your Weather**\
 `Yes, El Niño is unusually powerful this time. But that’s not always a bad thing.`\
 https://www.nytimes.com/2026/09/09/weather/el-nino-weather-forecast-facts.html
@@ -11,7 +23,7 @@ https://www.nytimes.com/2026/09/09/us/new-america-trump-reaction-new-mexico.html
 https://www.nytimes.com/2026/09/09/obituaries/lucien-smith-dead.html
 
 **Trump Is Delayed After Emergency Slide Deploys on New Air Force One**\
-`The mishap happened while the Qatari-donated jet was parked on the tarmac at Joint Base Andrews. It delayed President Trump’s departure to a Republican convention in Dallas.`\
+`The mishap occurred while the Qatari-donated jet was parked on the tarmac at Joint Base Andrews. It delayed President Trump’s departure to a Republican convention in Dallas.`\
 https://www.nytimes.com/2026/09/09/us/politics/emergency-slide-air-force-one-trump.html
 
 **Los salvadoreños mantendrán sus protecciones contra la deportación de EE. UU. por ahora**\
@@ -102,7 +114,7 @@ https://www.nytimes.com/video/dining/100000011139925/pesto-beans.html
 `Inspired by the delightful Indian egg curry, this egg salad recipe omits traditional mayonnaise in favor of a looser, brighter mix of fresh tomatoes, cilantro and sizzled spices.`\
 https://www.nytimes.com/video/dining/100000011139846/cumin-tomato-salad-with-jammy-eggs.html
 
-**Live Updates: Republicans Prepare for a Midterm Convention Heavy on Trump**\
+**Live Updates: Republicans Open a Midterm Convention Heavy on Trump**\
 `The president will speak on both nights of the gathering in Dallas. But with his approval ratings sagging, it’s unclear whether the event will help Republicans in tough races.`\
 https://www.nytimes.com/live/2026/09/09/us/rnc-trump-midterm-convention-updates
 
@@ -173,16 +185,4 @@ https://www.nytimes.com/2026/09/09/opinion/canada-united-states.html
 **‘Tomatoes Turn Me On’**\
 `The chef and cookbook author Carla Lalli joins Anna Martin, the host of “Modern Love,” to talk about owning her cravings after her divorce.`\
 https://www.nytimes.com/video/podcasts/100000011139283/tomatoes-turn-me-on.html
-
-**Salvadorans to Keep Temporary Protected Status for Now, Trump Officials Say**\
-`Temporary Protected Status for El Salvador was set to expire on Wednesday. The Trump administration said it would make an announcement about the program’s future at the “appropriate time.”`\
-https://www.nytimes.com/2026/09/09/us/tps-el-salvador-immigrants-trump.html
-
-**Tiny Love Stories: ‘A Year of Nakedness Between Us’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://www.nytimes.com/2026/09/09/style/tiny-modern-love-stories-a-year-of-nakedness-between-us.html
-
-**Irán parece dispuesto a intensificar la lucha con EE. UU.**\
-`El gobierno iraní está adoptando un enfoque cada vez más agresivo a medida que enfrenta una amenaza económica creciente y teme que su control sobre el estrecho de Ormuz se esté debilitando, dicen los analistas.`\
-https://www.nytimes.com/es/2026/09/09/espanol/mundo/iran-guerra-eeuu-ormuz.html
 
