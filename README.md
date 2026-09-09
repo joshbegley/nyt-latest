@@ -1,3 +1,7 @@
+**Measuring the Cost of Trump’s Multiple Wars**\
+`Voters and some Republican lawmakers are growing weary of President Trump’s trade battles and the economic fallout from fighting in the Middle East.`\
+https://www.nytimes.com/2026/09/09/business/dealbook/trump-costs-wars.html
+
 **Clay, an A.I. Sales Tool Provider, Raises $115 Million**\
 `The round was led by Wellington Management, a firm known for investing in start-ups on the path toward potential initial public offerings.`\
 https://www.nytimes.com/2026/09/09/business/dealbook/clay-ai-fundraising.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/09/magazine/maui-wildfire-hawaii-housing.html
 **Making Coffins in Ebola’s Epicenter**\
 `A coffin maker in the Democratic Republic of Congo has seen a significant increase in the number of coffins needed in Bunia since the latest Ebola outbreak began in May.`\
 https://www.nytimes.com/video/world/africa/100000011104028/making-coffins-in-ebolas-epicenter.html
-
-**Sara Bareilles Confronted Grief, and Found Herself**\
-`Her new album, “Good Grief,” mourns friends including her Broadway co-star Gavin Creel, and her musical adaptation of the Meg Wolitzer novel “The Interestings” is about finding a different kind of fulfillment in a creative life than you’d once imagined, which Bareilles knows something about.`\
-https://www.nytimes.com/2026/09/09/arts/sara-bareilles-good-grief-interestings.html
 
