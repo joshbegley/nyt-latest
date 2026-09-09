@@ -98,7 +98,7 @@ https://www.nytimes.com/2026/09/09/world/europe/england-climate-tea-cantaloupe.h
 `The Republican Party is holding a midterm convention in Dallas this week. But as our White House correspondent, Maggie Haberman explains, despite President Trump’s unpopularity in polls, this event is shaping up to be a rally focusing on his achievements.`\
 https://www.nytimes.com/video/us/100000011126751/trump-is-orchestrating-the-republican-midterm-convention-like-one-of-his-rallies.html
 
-**The Trump Administration’s Latest War on Vulnerable Children**\
+**JD Vance Doesn’t Want to Help Married Parents. He Wants to Hurt Single Mothers.**\
 `Redistributing money from single working parents to married ones is not a pro-family policy.`\
 https://www.nytimes.com/2026/09/09/opinion/trump-vance-single-parents-married-family.html
 

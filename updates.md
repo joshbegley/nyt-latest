@@ -1,3 +1,7 @@
+**JD Vance Doesn’t Want to Help Married Parents. He Wants to Hurt Single Mothers.**\
+`Redistributing money from single working parents to married ones is not a pro-family policy.`\
+https://www.nytimes.com/2026/09/09/opinion/trump-vance-single-parents-married-family.html
+
 **Read the document**\
 `The Missouri Supreme Court has called in Secretary of State Denny Hoskins for a contempt hearing for not following its order on which congressional map to use in November.`\
 https://www.nytimes.com/interactive/2026/09/09/us/Missouri-Supreme-Court-order.html
