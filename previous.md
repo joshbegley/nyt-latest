@@ -1,6 +1,42 @@
+**Quick! Fresh Tomato Sauce!**\
+`The name of this five-star recipe is actually “quick fresh tomato sauce,” but I do need to make this right now, while the tomatoes are still so good.`\
+https://www.nytimes.com/2026/09/09/dining/quick-fresh-tomato-sauce.html
+
+**Should You Get a DEXA Scan at Menopause? What to Know About Bone Density Tests.**\
+`Some doctors and influencers say women shouldn’t wait until their 60s for a DEXA scan. Here’s what to consider before getting one.`\
+https://www.nytimes.com/2026/09/09/well/live/dexa-scan-bone-density-menopause.html
+
 **Federal Trial Against Huawei Is Underway**\
 `The Chinese telecommunications giant has been accused of stealing intellectual property from six companies, including Motorola Solutions and T-Mobile.`\
 https://www.nytimes.com/2026/09/09/nyregion/federal-trial-against-huawei-is-underway.html
+
+**Rhode Island Lieutenant Governor Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Rhode Island primary election.`\
+https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-lieutenant-governor-primary.html
+
+**Rhode Island Attorney General Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Rhode Island primary election.`\
+https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-attorney-general-primary.html
+
+**Rhode Island Second Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Rhode Island primary election.`\
+https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-us-house-2-primary.html
+
+**Providence, Rhode Island, Mayor Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Rhode Island primary election.`\
+https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-mayor-providence-primary.html
+
+**Rhode Island Treasurer Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Rhode Island primary election.`\
+https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-treasurer-primary.html
+
+**Rhode Island First Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Rhode Island primary election.`\
+https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-us-house-1-primary.html
+
+**Rhode Island Secretary of State Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Rhode Island primary election.`\
+https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-secretary-of-state-primary.html
 
 **Rhode Island U.S. Senate Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Rhode Island primary election.`\
@@ -13,34 +49,6 @@ https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island
 **Rhode Island Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Rhode Island primary elections.`\
 https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-primary.html
-
-**Rhode Island Treasurer Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Rhode Island primary election.`\
-https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-treasurer-primary.html
-
-**Rhode Island Secretary of State Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Rhode Island primary election.`\
-https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-secretary-of-state-primary.html
-
-**Rhode Island First Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Rhode Island primary election.`\
-https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-us-house-1-primary.html
-
-**Rhode Island Second Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Rhode Island primary election.`\
-https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-us-house-2-primary.html
-
-**Rhode Island Lieutenant Governor Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Rhode Island primary election.`\
-https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-lieutenant-governor-primary.html
-
-**Providence, Rhode Island, Mayor Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Rhode Island primary election.`\
-https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-mayor-providence-primary.html
-
-**Rhode Island Attorney General Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Rhode Island primary election.`\
-https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-attorney-general-primary.html
 
 **Escalating Boat Strikes Campaign, U.S. Targets ‘Refueling’ Vessels**\
 `U.S. military officials in the past two weeks have sunk six large fishing vessels accused of providing fuel to fast boats carrying drugs from South America.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/09/world/europe/afd-bsw-sahra-wagenknecht.html
 **Will Trump’s Midterm Convention Help or Hurt Republicans? 5 Things to Watch.**\
 `At an unusual gathering in Dallas, some of the party’s top candidates will be forced to decide just how tightly to tether themselves to an unpopular president.`\
 https://www.nytimes.com/2026/09/09/us/politics/trump-republican-midterm-convention.html
-
-**Why Major Studios Are Sitting Out This Fall’s Film Festivals**\
-`The major studios and their A-list stars are AWOL this season for a variety of reasons, forcing the festivals to scramble.`\
-https://www.nytimes.com/2026/09/09/movies/film-festivals-studios-telluride.html
-
-**Film and TV Portrayals of A.I. Go Beyond Science Fiction**\
-`Plots involving some kind of artificial intelligence are even part of soap operas. Here’s how they’ve evolved over the decades.`\
-https://www.nytimes.com/2026/09/09/movies/ai-tv-movies-robots-science-fiction.html
 

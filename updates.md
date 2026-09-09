@@ -1,3 +1,11 @@
+**Quick! Fresh Tomato Sauce!**\
+`The name of this five-star recipe is actually “quick fresh tomato sauce,” but I do need to make this right now, while the tomatoes are still so good.`\
+https://www.nytimes.com/2026/09/09/dining/quick-fresh-tomato-sauce.html
+
+**Should You Get a DEXA Scan at Menopause? What to Know About Bone Density Tests.**\
+`Some doctors and influencers say women shouldn’t wait until their 60s for a DEXA scan. Here’s what to consider before getting one.`\
+https://www.nytimes.com/2026/09/09/well/live/dexa-scan-bone-density-menopause.html
+
 **Federal Trial Against Huawei Is Underway**\
 `The Chinese telecommunications giant has been accused of stealing intellectual property from six companies, including Motorola Solutions and T-Mobile.`\
 https://www.nytimes.com/2026/09/09/nyregion/federal-trial-against-huawei-is-underway.html
