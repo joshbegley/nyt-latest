@@ -1,3 +1,7 @@
+**Lesson Plan | Space Origami**\
+`What is a bloom pattern? What real-life applications might it offer?`\
+https://www.nytimes.com/2026/09/09/learning/space-origami.html
+
 **Frustrated Travelers Stranded After Air Traffic Control Glitch in Britain**\
 `Travelers were stranded at Heathrow and Gatwick airports after Britain’s air traffic control system had a technical issue that caused the cancellation of more than 1,000 flights.`\
 https://www.nytimes.com/video/world/europe/100000011140812/uk-flight-delays-london-heathrow-gatwick.html

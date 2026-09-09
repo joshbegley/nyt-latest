@@ -1,3 +1,7 @@
+**Lesson Plan | Space Origami**\
+`What is a bloom pattern? What real-life applications might it offer?`\
+https://www.nytimes.com/2026/09/09/learning/space-origami.html
+
 **Frustrated Travelers Stranded After Air Traffic Control Glitch in Britain**\
 `Travelers were stranded at Heathrow and Gatwick airports after Britain’s air traffic control system had a technical issue that caused the cancellation of more than 1,000 flights.`\
 https://www.nytimes.com/video/world/europe/100000011140812/uk-flight-delays-london-heathrow-gatwick.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/08/world/canada/carney-trump-canada-us-trade-war
 **Kevin Reacts to OpenAI’s Recent Cybersecurity Incident**\
 `Several weeks after OpenAI’s chatbots attacked the company Hugging Face, the “Hard Fork” co-hosts Kevin Roose and Casey Newton reflect on the incident and what it means for A.I. development more broadly.`\
 https://www.nytimes.com/video/podcasts/100000011140232/kevin-reacts-to-openais-recent-cybersecurity-incident.html
-
-**Before Oct. 7 Attack, Netanyahu Was Warned, Report Says. He Denies It.**\
-`Prime Minister Benjamin Netanyahu’s office denied the report in Haaretz that the Emirati president had warned him Hamas was planning a major operation against Israel.`\
-https://www.nytimes.com/2026/09/08/world/middleeast/israel-netanyahu-2023-hamas-attack.html
 
