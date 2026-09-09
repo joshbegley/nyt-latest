@@ -1,3 +1,11 @@
+**Anthropic Researchers Raise Alarm Over A.I. Acceleration**\
+`Their warnings echo concerns that other artificial intelligence experts have voiced in recent months, as calls increase for a slowdown in the pace of development.`\
+https://www.nytimes.com/2026/09/09/technology/anthropic-researchers-raise-alarm.html
+
+**Why Israel Reacted With Fury to U.K. Sanctions on West Bank Settlements**\
+`The fierce retaliation of Prime Minister Benjamin Netanyahu’s government to the new restrictions is a reflection of his tough re-election fight, analysts say.`\
+https://www.nytimes.com/2026/09/09/world/middleeast/israel-uk-west-bank-sanctions.html
+
 **How Trump’s Mail Voting Plan Would Work**\
 `The plan, which two dozen states have challenged as unconstitutional, puts in place new requirements about who can receive mail ballots.`\
 https://www.nytimes.com/2026/09/09/us/politics/trump-mail-in-voting-ballots-usps.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/09/09/podcasts/us-open-shelton-alcaraz-tennis.html
 **The Establishment Pulls Through: Five Takeaways from the New Hampshire Primaries**\
 `The U.S. Senate race will feature familiar faces: former Senator John E. Sununu and Chris Pappas, a four-term congressman. Stefany Shaheen, a senator’s daughter, eked out a win in a House primary.`\
 https://www.nytimes.com/2026/09/09/us/politics/new-hampshire-primaries-takeaways.html
-
-**Why Trump Is Gathering Republicans in Texas, and Iran Targets U.S. Warships**\
-`Plus, the fake images flooding real estate listings.`\
-https://www.nytimes.com/2026/09/09/podcasts/the-headlines/trump-republicans-texas-iran-us-warships.html
-
-**Trump’s War on Mail-In Voting**\
-`President Trump has long made unfounded claims that fraud is rampant among mail votes.`\
-https://www.nytimes.com/2026/09/09/podcasts/the-daily/trumps-war-on-mail-in-voting.html
 
