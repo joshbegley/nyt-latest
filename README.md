@@ -1,3 +1,7 @@
+**14 Killed in Weapons Depot Blast in Northwest Syria**\
+`Officials said they had not determined the cause of the explosion. Years of fighting have left Syria littered with weapons and ordnance left over from the civil war.`\
+https://www.nytimes.com/2026/09/09/world/middleeast/14-killed-in-weapons-depot-blast-in-northwest-syria.html
+
 **Why Trump’s Republican Midterm ‘Convention’ Isn’t a Real Convention**\
 `No nominations or formal party business will be happening, as they would at a traditional presidential convention. But the made-for-TV speeches will look much the same.`\
 https://www.nytimes.com/2026/09/09/us/politics/trump-republican-midterm-convention-gop-party.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island
 **Rhode Island Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Rhode Island primary elections.`\
 https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-primary.html
-
-**U.S. Takes Aim at New Target in Deadly Boat Strike Campaign**\
-`U.S. military officials in the past two weeks have sunk six large fishing vessels accused of providing fuel to fast boats carrying drugs from South America.`\
-https://www.nytimes.com/2026/09/09/world/americas/us-boat-strikes-south-america.html
 
