@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/09/09/us/new-america-trump-reaction-new-mexico.html
 `A phenom in his 20s, he became the poster child for Zombie Formalism before abandoning the gallery frenzy for Montauk.`\
 https://www.nytimes.com/2026/09/09/obituaries/lucien-smith-dead.html
 
-**Emergency Slide Accidentally Deploys on New Air Force One**\
+**Trump Is Delayed After Emergency Slide Deploys on New Air Force One**\
 `The mishap happened while the Qatari-donated jet was parked on the tarmac at Joint Base Andrews. It delayed President Trump’s departure to a Republican convention in Dallas.`\
 https://www.nytimes.com/2026/09/09/us/politics/emergency-slide-air-force-one-trump.html
 
