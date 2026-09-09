@@ -1,3 +1,7 @@
+**Court Halts New York Harbor Gas Pipeline Backed by Trump**\
+`The ruling centered on the granting of a water permit by New Jersey regulators, a decision the court described as “arbitrary and capricious.”`\
+https://www.nytimes.com/2026/09/08/nyregion/natural-gas-pipeline-ny-nj.html
+
 **Three Jurors in Clancy Trial Describe Frustration With Holdout**\
 `The three jurors, who voted to acquit Lindsay Clancy of murder, described the tense deliberations in an interview with a Boston TV station.`\
 https://www.nytimes.com/2026/09/08/us/jurors-lindsay-clancy-trial.html
