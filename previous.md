@@ -1,8 +1,12 @@
+**Hunter Biden’s ‘Laptop’ Crypto Coin Plummets Upon Launching**\
+`The president’s son portrayed his memecoin as a symbol of redemption. Critics denounced it as hypocrisy.`\
+https://www.nytimes.com/2026/09/09/us/politics/hunter-biden-crypto-coin-laptop.html
+
 **The Good List: 6 Things to Bring Joy to Your Day**\
 `Astronomical dawn, dahlia season and cute names for serious things.`\
 https://www.nytimes.com/2026/09/09/briefing/09-the-good-list-perfect-september.html
 
-**Trump’s Convention Offers an ‘Investor Experience’ and Pricey Tickets**\
+**Trump’s Convention Offers an Unusual Fund-Raising Opportunity for Republicans**\
 `Republicans are hoping to use the Dallas extravaganza as a fund-raising opportunity, with some local parties charging as much as $20,000 to be an “honorary delegate.”`\
 https://www.nytimes.com/2026/09/09/us/politics/trump-republican-midterm-convention-fundraising.html
 
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/09/09/us/bitcoin-crypto-heist-malone-lam.html
 **Dallas Protests Planned as Trump, Republicans Gather for RNC Convention**\
 `City officials erected barricades, mapped out street closures and coordinated with federal agencies as protesters planned anti-Trump marches and demonstrations near the convention venue.`\
 https://www.nytimes.com/2026/09/09/us/republican-convention-protests-dallas.html
-
-**What to Wear on Campus This Fall**\
-`The host of The Fashions explains. And we share what you’re wearing.`\
-https://www.nytimes.com/2026/09/09/briefing/what-to-wear-on-campus-this-fall.html
 
