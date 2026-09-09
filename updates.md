@@ -1,3 +1,11 @@
+**Brothers Plead Guilty to Bribing NYC Buildings Commissioner Under Mayor Adams**\
+`Joseph and Anthony Livreri said they bribed the commissioner, Eric Ulrich, in an attempt to leverage his influence in City Hall. The brothers were indicted in 2023 alongside Mr. Ulrich.`\
+https://www.nytimes.com/2026/09/09/nyregion/ulrich-buildings-commissioner-bribery-adams.html
+
+**5 Rules of Power From Roy Cohn and Donald Trump**\
+`The lawyer Roy Cohn showed Donald Trump that you can lie, take advantage of others and be loud — and that will only help you. On “The Opinions,” the historian Nicole Hemmer asks: Who else will take up the Cohn model?`\
+https://www.nytimes.com/video/opinion/100000011131124/5-rules-of-power-from-roy-cohn-and-donald-trump.html
+
 **Lawmakers Question N.Y.C. Tech Official About 911 System Breakdown**\
 `Lisa Gelobter, who runs the agency responsible for the technology behind the city’s 911 system, was asked why officials had kept quiet about an outage that affected nearly 1,700 calls.`\
 https://www.nytimes.com/2026/09/09/nyregion/nyc-city-council-911-breakdown.html
