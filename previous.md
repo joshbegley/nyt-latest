@@ -1,3 +1,7 @@
+**Trump’s Ability to Channel Voter Concerns Is Tested as Republicans Gather in Dallas**\
+`As Republicans face down tough midterm elections, President Trump has appeared out of step with the party on Iran, the economy and other issues.`\
+https://www.nytimes.com/2026/09/08/us/politics/trump-republicans-midterms-voters.html
+
 **They Fled Cuba for Better Lives. They Were Cut Short by a Cargo Plane.**\
 `Days after an Amazon cargo jet plowed into a van at Miami International Airport, killing five, portraits of the victims started to emerge.`\
 https://www.nytimes.com/2026/09/08/us/miami-plane-crash-amazon.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/08/us/politics/trump-supreme-court-dhs-citizensh
 **TSA PreCheck Now Unlocks Access to Visit Airports Without a Plane Ticket**\
 `At more than a dozen U.S. airports, T.S.A. PreCheck members can now apply to enter the secure area, even if they’re just going to meet someone on a flight.`\
 https://www.nytimes.com/2026/09/08/travel/tsa-precheck-airports-security-non-flyers.html
-
-**After OpenAI Cyberattack, What’s Next for A.I. Safety?**\
-`Ajeya Cotra, an A.I. safety researcher, talks about how the industry should work to mitigate risks of the technology.`\
-https://www.nytimes.com/video/podcasts/100000011139546/after-openai-cyberattack-whats-next-for-ai-safety.html
 

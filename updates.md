@@ -1,3 +1,7 @@
+**Trump’s Ability to Channel Voter Concerns Is Tested as Republicans Gather in Dallas**\
+`As Republicans face down tough midterm elections, President Trump has appeared out of step with the party on Iran, the economy and other issues.`\
+https://www.nytimes.com/2026/09/08/us/politics/trump-republicans-midterms-voters.html
+
 **They Fled Cuba for Better Lives. They Were Cut Short by a Cargo Plane.**\
 `Days after an Amazon cargo jet plowed into a van at Miami International Airport, killing five, portraits of the victims started to emerge.`\
 https://www.nytimes.com/2026/09/08/us/miami-plane-crash-amazon.html
