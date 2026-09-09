@@ -1,5 +1,5 @@
-**Fetterman Praises Trump in Video Broadcast at Republican Convention**\
-`The appearance of a Democrat lauding the policies of an administration that his party is claiming has made life harder for Americans was a stunning turn and a boon for President Trump.`\
+**Fetterman Praises Trump in Convention Video**\
+`Senator John Fetterman, who has become alienated from his own party, made a surprise virtual appearance, breaking with Democrats’ midterm message.`\
 https://www.nytimes.com/2026/09/09/us/politics/john-fetterman-trump-republican-convention.html
 
 **Brothers Seeking Pardons for Sex Trafficking Hire a Former Trump Lawyer**\
