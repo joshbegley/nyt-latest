@@ -1,3 +1,7 @@
+**Jimmy Kimmel Weighs in on Trump’s New Look**\
+`Back from his summer vacation, the late night host wondered, “Is it possible to have a midlife crisis at 80 years old?”`\
+https://www.nytimes.com/2026/09/09/arts/television/jimmy-kimmel-trump-new-hair.html
+
 **Nepal’s Flood Relief Workers Feel the Pain of Trump’s Cuts to U.S.A.I.D.**\
 `The agency played an important role in responding to earlier disasters like the 2015 earthquake. But the U.S. and other countries have pulled back, Nepali officials and humanitarian groups say.`\
 https://www.nytimes.com/2026/09/09/world/asia/nepal-floods-usaid-trump-relief.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/08/us/politics/trump-sept-11-firefighters.html
 **Woman Pleads Guilty to Drugging and Killing 3 Men She Met on the Street**\
 `In 2023 and 2024, Tabitha Bundrick lured men, sometimes with promises of sex, to vacant apartments or their homes, before drugging and robbing them, leaving them to die, Manhattan prosecutors said.`\
 https://www.nytimes.com/2026/09/08/nyregion/murder-robbery-guilty-plea-nyc-woman.html
-
-**Restaurant Review: Lonnies in NYC**\
-`Lonnies, the new Boerum Hill spot from the Inga’s Bar team, is brand-new and thriving.`\
-https://www.nytimes.com/2026/09/08/dining/restaurant-review-lonnies-nyc.html
 
