@@ -1,3 +1,11 @@
+**The Unanswered Questions in the N.B.A.’s Kawhi Leonard Ruling**\
+`Pablo on where the investigation goes next.`\
+https://www.nytimes.com/2026/09/09/podcasts/unanswered-questions-nba-kawhi-leonard-ruling.html
+
+**Un gobernador respalda a Trump pero contrata a trabajadores indocumentados**\
+`La empresa familiar del gobernador Jim Pillen es uno de los mayores productores porcinos de Estados Unidos. En su campaña por la reelección, se ha alineado con la agenda antinmigrante del presidente Trump, a pesar de que sus granjas han contratado a trabajadores indocumentados.`\
+https://www.nytimes.com/es/2026/09/09/espanol/ice-migrantes-nebraska-gobernador-trump.html
+
 **Una serie de ejercicios para levantarte del piso con comodidad**\
 `Levantarse del piso con comodidad también requiere fuerza y movilidad en varias partes del cuerpo. A medida que envejeces, hay músculos que requieren fortalecerse. Aquí está una rutina para lograrlo.`\
 https://www.nytimes.com/es/2026/09/09/espanol/ejercicios-mobilidad-envejecer.html
