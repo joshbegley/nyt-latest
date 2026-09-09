@@ -1,3 +1,7 @@
+**¿Cuán seguros son los tatuajes?**\
+`El proceso para hacerte un tatuaje puede provocar algunas reacciones en tu cuerpo. Esto es lo que saben los expertos sobre el riesgo.`\
+https://www.nytimes.com/es/2026/09/09/espanol/tatuajes-riesgos.html
+
 **Amazon Cargo Jet Pilots Appeared to Try Aborting Landing, N.T.S.B. Investigation Indicates**\
 `The sequence of events detailed by National Transportation Safety Board investigators showed that the pilots lost crucial seconds before the plane ran off the runway in Miami.`\
 https://www.nytimes.com/2026/09/09/us/politics/dc-miami-crash-ntsb.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/08/dining/restaurant-review-lonnies-nyc.html
 **California’s Ambitious Plan for Textile Waste**\
 `A recycling law coming into force now could change fashion.`\
 https://www.nytimes.com/2026/09/08/climate/californias-fast-fashion-textile-waste.html
-
-**Southern California Is Hot and Steamy Again**\
-`Temperatures soared across the region on Tuesday. The muggy weather will get worse before it gets better.`\
-https://www.nytimes.com/2026/09/08/weather/southern-california-heat-wave-la.html
 

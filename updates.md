@@ -1,3 +1,7 @@
+**¿Cuán seguros son los tatuajes?**\
+`El proceso para hacerte un tatuaje puede provocar algunas reacciones en tu cuerpo. Esto es lo que saben los expertos sobre el riesgo.`\
+https://www.nytimes.com/es/2026/09/09/espanol/tatuajes-riesgos.html
+
 **Amazon Cargo Jet Pilots Appeared to Try Aborting Landing, N.T.S.B. Investigation Indicates**\
 `The sequence of events detailed by National Transportation Safety Board investigators showed that the pilots lost crucial seconds before the plane ran off the runway in Miami.`\
 https://www.nytimes.com/2026/09/09/us/politics/dc-miami-crash-ntsb.html
