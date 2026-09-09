@@ -190,7 +190,7 @@ https://www.nytimes.com/2026/09/09/technology/apple-iphone-duo-foldable-phone.ht
 `Officials said they had not determined the cause of the explosion. Years of fighting have left Syria littered with weapons and ordnance left over from the civil war.`\
 https://www.nytimes.com/2026/09/09/world/middleeast/syria-weapons-depot-blast.html
 
-**Live Updates: A Surprise Fetterman Video to Jolt Trump’s Midterm Convention**\
-`Senator John Fetterman, a Pennsylvania Democrat, is expected to praise the president in a video appearance. Mr. Trump is scheduled to speak later tonight in Dallas.`\
+**Live Updates: A Surprise Fetterman Video Jolts Trump’s Midterm Convention**\
+`The video appearance by Senator John Fetterman, a Pennsylvania Democrat, alienated from his own party, could fuel speculation about his political future. Mr. Trump is scheduled to speak later tonight in Dallas.`\
 https://www.nytimes.com/live/2026/09/09/us/rnc-trump-midterm-convention-updates
 
