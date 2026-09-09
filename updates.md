@@ -1,3 +1,7 @@
+**Read the document**\
+`The Missouri Supreme Court has called in Secretary of State Denny Hoskins for a contempt hearing for not following its order on which congressional map to use in November.`\
+https://www.nytimes.com/interactive/2026/09/09/us/Missouri-Supreme-Court-order.html
+
 **Sinkhole at Nicolas Cage’s Malibu Home Forces Evacuations**\
 `A sinkhole opened under the driveway of a beachfront home owned by the actor Nicolas Cage in Malibu, Calif., forcing local officials to order the evacuation of dozens of properties.`\
 https://www.nytimes.com/video/us/100000011141041/nicolas-cage-sinkhole-malibu-california.html

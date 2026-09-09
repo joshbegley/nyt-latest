@@ -1,3 +1,7 @@
+**Read the document**\
+`The Missouri Supreme Court has called in Secretary of State Denny Hoskins for a contempt hearing for not following its order on which congressional map to use in November.`\
+https://www.nytimes.com/interactive/2026/09/09/us/Missouri-Supreme-Court-order.html
+
 **Sinkhole at Nicolas Cage’s Malibu Home Forces Evacuations**\
 `A sinkhole opened under the driveway of a beachfront home owned by the actor Nicolas Cage in Malibu, Calif., forcing local officials to order the evacuation of dozens of properties.`\
 https://www.nytimes.com/video/us/100000011141041/nicolas-cage-sinkhole-malibu-california.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/09/learning/word-of-the-day-parlance.html
 **Should Professors Teach More? Some Colleges Are Trying to Make Them.**\
 `Schools and entire states are creating new rules forcing professors to teach more hours and show up at the office. At one university, professors quit in response.`\
 https://www.nytimes.com/2026/09/09/us/university-professors-teaching-research-quit.html
-
-**The Long Road to Rebuilding  Lahaina After the 2023 Wildfire**\
-`Hawaii’s housing crisis was at a breaking point even before the fire. Since then, displaced families have struggled to rebuild their lives.`\
-https://www.nytimes.com/2026/09/09/magazine/maui-wildfire-hawaii-housing.html
 
