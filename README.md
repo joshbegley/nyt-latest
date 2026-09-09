@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/09/09/business/canada-iran-war-trump-midterms.html
 `Luis Cruz dashed into a busy street in Puebla, Mexico, to pull a girl out of the path of an approaching S.U.V. Footage of the rescue has made him a local sensation.`\
 https://www.nytimes.com/2026/09/09/world/americas/video-mexico-toddler-traffic-rescue.html
 
-**Anthropic Researchers Raise Alarm Over A.I. Acceleration**\
+**Anthropic Researchers Raise Alarm Over A.I. Acceleration, Warning of Threat to Humanity**\
 `Their warnings echo concerns that other artificial intelligence experts have voiced in recent months, as calls increase for a slowdown in the pace of development.`\
 https://www.nytimes.com/2026/09/09/technology/anthropic-researchers-raise-alarm.html
 
@@ -170,13 +170,13 @@ https://www.nytimes.com/2026/09/09/business/dealbook/trump-costs-wars.html
 `The round was led by Wellington Management, a firm known for investing in start-ups on the path toward potential initial public offerings.`\
 https://www.nytimes.com/2026/09/09/business/dealbook/clay-ai-fundraising.html
 
-**Scientists Who Study Sleep and Narcolepsy Win Prestigious Lasker Award**\
-`The two researchers have won a prestigious Lasker Award. Their findings laid the groundwork for a new drug that addresses the sleep disorder’s root cause.`\
-https://www.nytimes.com/2026/09/09/science/narcolepsy-sleep-lasker-award-researchers.html
-
 **A New Drug Lifts the Fog of Sleepiness for Those With Narcolepsy**\
 `The first-of-its-kind drug offers a reprieve for people who live with the debilitating sleep disorder.`\
 https://www.nytimes.com/2026/09/09/science/narcolepsy-drug-orzeyful-neuroscience.html
+
+**Scientists Who Study Sleep and Narcolepsy Win Prestigious Lasker Award**\
+`Two researchers who study the debilitating sleep disorder have won a prestigious Lasker Award. Their research in animals laid the groundwork for a new drug that addresses the conditions’s root cause.`\
+https://www.nytimes.com/2026/09/09/science/narcolepsy-sleep-lasker-award-researchers.html
 
 **Thousands Gather for Funeral of Norway’s King Harald**\
 `Royal families and heads of state, including President Volodymyr Zelensky of Ukraine, attended the funeral of King Harald V in Oslo.`\
