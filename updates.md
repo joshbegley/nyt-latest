@@ -1,3 +1,7 @@
+**Spain Declassifies Warning to Morocco About Migrant Crossing Plans**\
+`Spain’s intelligence service had alerted Morocco about social media calls for a border exodus into Ceuta, which led to more than 100 deaths and a political crisis in Spain.`\
+https://www.nytimes.com/2026/09/09/world/europe/spain-ceuta-migrants-report.html
+
 **William Anderson, Doctor and Civil Rights Leader in Georgia, Dies at 98**\
 `An osteopath in Albany, Ga., he drew national attention, and the involvement of the Rev. Dr. Martin Luther King Jr., for his efforts to end segregation.`\
 https://www.nytimes.com/2026/09/09/us/william-anderson-dead.html

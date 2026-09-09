@@ -1,3 +1,7 @@
+**60 Posts in 10 Hours: How Trump’s Social Media Reflects His Version of Reality**\
+`With an assist from A.I., President Trump offers a window into how he wants to be seen — and, critics say, a barometer of his mental state.`\
+https://www.nytimes.com/2026/09/09/us/politics/trump-social-media-ai-reality.html
+
 **Spain Declassifies Warning to Morocco About Migrant Crossing Plans**\
 `Spain’s intelligence service had alerted Morocco about social media calls for a border exodus into Ceuta, which led to more than 100 deaths and a political crisis in Spain.`\
 https://www.nytimes.com/2026/09/09/world/europe/spain-ceuta-migrants-report.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island
 **Rhode Island First Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Rhode Island primary election.`\
 https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-us-house-1-primary.html
-
-**Rhode Island Secretary of State Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Rhode Island primary election.`\
-https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-secretary-of-state-primary.html
 
