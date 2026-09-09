@@ -1,3 +1,7 @@
+**How Roy Cohn Shaped Trump — and America**\
+`A new book reveals how the lawyer’s legacy lives on decades after his death.`\
+https://www.nytimes.com/video/opinion/100000011131120/how-roy-cohn-shaped-trump-and-america.html
+
 **Para un fotógrafo, las Torres Gemelas eran un punto focal siempre presente**\
 `Keith Meyers pasó años fotografiando las zonas costeras de la ciudad de Nueva York y sus alrededores. Las Torres Gemelas se convirtieron en un telón de fondo constante.`\
 https://www.nytimes.com/es/2026/09/09/espanol/estados-unidos/fotos-torres-gemelas-9-11.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/08/us/politics/supreme-court-missouri-congressio
 **Trump Claims He Visited Ground Zero ‘Right After’ 9/11**\
 `During an event honoring victims who died on Sept. 11, 2001, President Trump tried to position himself close to the recovery efforts shortly after the attack. But first responders who were at ground zero and a biographer dispute his claims.`\
 https://www.nytimes.com/video/us/politics/100000011139844/trump-sept-11-terrorist-attacks-new-york.html
-
-**Is Trump a ‘Tuning Fork for the Future’?**\
-`Is Trump an aberration or a “tuning fork for the future” of politics? The political historian Anton Jäger discusses on “The Ezra Klein Show.”`\
-https://www.nytimes.com/video/opinion/100000011126421/is-trump-a-tuning-fork-for-the-future.html
 

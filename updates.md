@@ -1,3 +1,7 @@
+**How Roy Cohn Shaped Trump — and America**\
+`A new book reveals how the lawyer’s legacy lives on decades after his death.`\
+https://www.nytimes.com/video/opinion/100000011131120/how-roy-cohn-shaped-trump-and-america.html
+
 **Para un fotógrafo, las Torres Gemelas eran un punto focal siempre presente**\
 `Keith Meyers pasó años fotografiando las zonas costeras de la ciudad de Nueva York y sus alrededores. Las Torres Gemelas se convirtieron en un telón de fondo constante.`\
 https://www.nytimes.com/es/2026/09/09/espanol/estados-unidos/fotos-torres-gemelas-9-11.html

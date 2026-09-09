@@ -1,3 +1,91 @@
+**Dolly Parton’s Musical, ‘Inter Alia’ and More on Broadway, and Off, This Fall**\
+`On New York stages this season come the new musicals “Galileo” and “Wanted,” a “Shuffle Along” reunion with Audra McDonald, and Tom Hiddleston in “Much Ado About Nothing.”`\
+https://www.nytimes.com/2026/09/09/theater/julia-louis-dreyfus-john-legend-broadway-off-broadway-fall-theater.html
+
+**Book Review: ‘Is This It,’ by Steven Hyden**\
+`Steven Hyden considers the cultural shifts of the past 25 years in a new book about the band.`\
+https://www.nytimes.com/2026/09/09/books/review/steven-hyden-is-this-it.html
+
+**Camp Watches Has Personal Associations For Its Founder**\
+`The name Camp Watches, for example, honors the Michigan camp that Justin Jakobson attended as a boy.`\
+https://www.nytimes.com/2026/09/09/fashion/camp-watches-justin-jakobson-california.html
+
+**Jaeger-LeCoultre Now Has 6 Fragrances to Its Name**\
+`Jaeger-LeCoultre, which now has six fragrances to its name, says you would be surprised.`\
+https://www.nytimes.com/2026/09/09/fashion/watches-perfume-jaeger-lecoultre-switzerland.html
+
+**Wei Koh Adds the Watch Brand Legare to His Résumé**\
+`Wei Koh, a publisher, documentary host and industry expert, has added Legare to his long list of responsibilities.`\
+https://www.nytimes.com/2026/09/09/fashion/watches-wei-koh-legare.html
+
+**In Eastern Europe, a Public Clock Unlike Any Other**\
+`The four faces on the Sarajevo Clock Tower are said to be the last using Turkish time, a remnant of the Ottoman Empire.`\
+https://www.nytimes.com/2026/09/09/fashion/sarajevo-clock-tower-lunar-time-bosnia-and-herzegovina.html
+
+**The Rolex Oyster at 100**\
+`The design’s Perpetual iteration is a simple time-only model but it has spawned a series of variations.`\
+https://www.nytimes.com/2026/09/09/fashion/watches-rolex-oyster-100.html
+
+**She’s Shaping the Look of Pop Culture**\
+`Claire Sullivan makes custom creations for Addison Rae, Rosalía, Clairo and more. During New York Fashion Week, she will introduce her first collection of ready-to-wear.`\
+https://www.nytimes.com/2026/09/09/style/claire-sullivan-fashion-design-pop-culture.html
+
+**A Storied Swiss Brand Makes a Comeback. Again.**\
+`After its 2015 revival, Angelus weathered criticism for its wide, avant-garde watches. Now, the company has pulled off a striking — and lauded — pivot.`\
+https://www.nytimes.com/2026/09/09/fashion/watches-angelus-switzerland.html
+
+**How Amazon’s Zoox Is Taking On Waymo in San Francisco**\
+`The Amazon-owned driverless car company is a distant second to Waymo. Its pitch to riders? Wine pop-ups, festival sponsorships and a car built to be filmed.`\
+https://www.nytimes.com/2026/09/09/technology/zoox-waymo-san-francisco.html
+
+**As He Backs ICE Crackdown, Nebraska Governor Employs Undocumented Workers**\
+`Gov. Jim Pillen’s family business is one of the nation’s largest pork producers. As he seeks re-election, he has aligned himself with President Trump’s anti-immigrant agenda even though his farms have taken on undocumented laborers.`\
+https://www.nytimes.com/2026/09/09/us/jim-pillen-ice-nebraska-undocumented-workers.html
+
+**Anoma Considered Its Watch Case as Sculpture**\
+`A French artisan spent five hours grinding the steel for each Anoma A1 Prehistoric.`\
+https://www.nytimes.com/2026/09/09/fashion/watches-anoma-a1-prehistoric.html
+
+**A Watch That Captures Its Designer’s Understanding of Time**\
+`Michael Friedman says he has known for years what theory of time he wanted to base the first Pattern Recognition timepiece on.`\
+https://www.nytimes.com/2026/09/09/fashion/watches-michael-friedman-pattern-recognition.html
+
+**A 20-Minute Workout for Aging Well**\
+`These exercises can help you get up off the floor more comfortably, an important skill as you get older.`\
+https://www.nytimes.com/2026/09/09/well/move/aging-mobility-balance-workout.html
+
+**It Was Time for This Late Bloomer to Cultivate Her Garden**\
+`A landscape designer collaborated with family members on a weekend house in Spain where building and garden seem to ‘melt into each other.’`\
+https://www.nytimes.com/2026/09/09/garden/spain-landscape-house-underground.html
+
+**Justin Vivian Bond, Cabaret Chanteuse, Left New York for Paris. New York Called Her Back.**\
+`Justin Vivian Bond, a cabaret performer and MacArthur “genius,” left New York to move to Paris. Now she’s back at Joe’s Pub to tell us all about it.`\
+https://www.nytimes.com/2026/09/09/style/justin-vivian-bond-paris-new-york-cabaret.html
+
+**Tippet Rise: Where Music and Art Meet Postcard Mountain Views**\
+`Tippet Rise Art Center in Montana offers concerts in surroundings that make you feel as if you’re listening inside the land rather than around it.`\
+https://www.nytimes.com/2026/09/09/arts/music/tippet-rise-art-center-montana.html
+
+**In Australia, Watch Fans Talk Timepieces**\
+`Since its establishment in 1975, the Melbourne horology society has been meeting once a month to share watches and to talk about their passion.`\
+https://www.nytimes.com/2026/09/09/fashion/watches-australian-antiquarian-horological-society-melbourne.html
+
+**In Brooklyn, a Landscape Designer Turned a Gray Roof Into a Green Roof**\
+`The Brooklyn garage’s rooftop was a flat, empty surface. Then Julie Farris made it bloom.`\
+https://www.nytimes.com/2026/09/09/garden/green-roof-garage.html
+
+**This Times Reporter Wants to Hear Your College Gossip**\
+`Matt Yan, who writes the Extra Credit newsletter at The New York Times, is covering the news on campus and off.`\
+https://www.nytimes.com/2026/09/09/insider/new-york-times-extra-credit-newsletter.html
+
+**Why This Small Dutch Town Is Teaching ‘Adolescence’ in School**\
+`The Netflix series is seen as a way to kindle debate about gender roles and to confront online bullying.`\
+https://www.nytimes.com/2026/09/09/world/europe/netherlands-adolescence-manophere-education.html
+
+**Europe Unites to Pressure Israel, Breaking With U.S.**\
+`Britain once followed in France’s slipstream when it came to pressuring Israel. Under new leadership, it is spearheading opposition to Israeli settlements, risking American anger.`\
+https://www.nytimes.com/2026/09/09/world/europe/britain-france-israel-settlements-trade.html
+
 **How Roy Cohn Shaped Trump — and America**\
 `A new book reveals how the lawyer’s legacy lives on decades after his death.`\
 https://www.nytimes.com/video/opinion/100000011131120/how-roy-cohn-shaped-trump-and-america.html
@@ -109,92 +197,4 @@ https://www.nytimes.com/2026/09/08/crosswords/daily-puzzle-2026-09-09.html
 **Trump’s Ability to Channel Voter Concerns Is Tested as Republicans Gather in Dallas**\
 `As Republicans face down tough midterm elections, President Trump has appeared out of step with the party on Iran, the economy and other issues.`\
 https://www.nytimes.com/2026/09/08/us/politics/trump-republicans-midterms-voters.html
-
-**They Fled Cuba for Better Lives. They Were Cut Short by a Cargo Plane.**\
-`Days after an Amazon cargo jet plowed into a van at Miami International Airport, killing five, portraits of the victims started to emerge.`\
-https://www.nytimes.com/2026/09/08/us/miami-plane-crash-amazon.html
-
-**Watch (and Hear) Emma Cline’s Buzzy New Novel Become an Audiobook**\
-`We followed the audiobook production of Emma Cline’s Booker Prize nominee “Switzy” from start to finish to show you how it’s done.`\
-https://www.nytimes.com/interactive/2026/09/08/books/audiobook-production-studio-emma-cline.html
-
-**Russian Citizen Extradited to U.S. in Sprawling Bank Fraud Scheme**\
-`Sergei Anatolyevich Filimonov is accused of taking part in a scheme that used fake bank websites to steal the login credentials of more than 5,000 people.`\
-https://www.nytimes.com/2026/09/08/us/bank-fraud-scheme-charges-georgia.html
-
-**Meta lanza agente de IA que puede enviar tus correos electrónicos y reservar tus viajes**\
-`Muse, el nuevo agente de IA de Meta, actúa como un asistente digital personal que se conecta a Facebook e Instagram, así como a aplicaciones de terceros como Spotify y OpenTable.`\
-https://www.nytimes.com/es/2026/09/08/espanol/negocios/whatsapp-facebook-chatbot-ia-muse.html
-
-**Tung Chee-hwa, Who Led Hong Kong After Its Return to China, Dies at 89**\
-`As the first leader of the former British colony after its handover, he balanced the demands of Beijing and Hong Kongers, making it clear that Beijing was now in charge.`\
-https://www.nytimes.com/2026/09/08/world/asia/tung-chee-hwa-dead.html
-
-**OpenAI dice haber resuelto uno de los ‘problemas matemáticos del milenio’**\
-`El anuncio de la empresa es la señal más contundente hasta ahora de que la inteligencia artificial está transformando de manera fundamental el campo de las matemáticas avanzadas.`\
-https://www.nytimes.com/es/2026/09/08/espanol/ciencia-y-tecnologia/openai-problema-matematico-milenio.html
-
-**Anthony DiLorenzo, a Trump-Backed Auto Executive, Wins House Primary in New Hampshire**\
-`Anthony DiLorenzo, an automotive executive who ran with the president’s endorsement, will be the Republican nominee in the First Congressional District.`\
-https://www.nytimes.com/2026/09/08/us/politics/new-hampshire-primary-dilorenzo-noveletsky.html
-
-**John E. Sununu Wins Republican Senate Primary in New Hampshire**\
-`The general election race to replace Jeanne Shaheen, a Democrat, could help determine control of the U.S. Senate.`\
-https://www.nytimes.com/2026/09/08/us/politics/new-hampshire-republican-senate-primary.html
-
-**Chris Pappas Defeats Progressive Challenger in New Hampshire Senate Primary**\
-`Mr. Pappas, a moderate Democrat who has served four terms in the House, will face former Senator John E. Sununu, the Republican nominee, in November.`\
-https://www.nytimes.com/2026/09/08/us/politics/new-hampshire-senate-pappas-manzur.html
-
-**Tropical Storm Brings Big Waves to Southern California’s Coasts**\
-`Big waves driven by a deteriorating tropical storm crashed along the Southern California coast over the holiday weekend.`\
-https://www.nytimes.com/video/weather/100000011139392/hurricane-marie-southern-california-waves.html
-
-**Chinese Threat Requires a Broader Spying Mission, C.I.A. Deputy Director Says**\
-`China’s economic competition with the United States makes Chinese companies a legitimate target, the agency’s deputy director, Michael Ellis, said at a conference.`\
-https://www.nytimes.com/2026/09/08/us/politics/cia-deputy-director-china.html
-
-**Democracy Is on the Ballot in Both America’s and Israel’s Elections**\
-`Israel and the United States each hold elections one week apart in the fall. The fate of their democracies lies in the balance.`\
-https://www.nytimes.com/2026/09/08/opinion/israel-us-elections-midterms-netanyahu-trump.html
-
-**‘I’m Here Looking for My Mam-daddy’**\
-`Inside a singles mixer for the New York City chapter of the Democratic Socialists of America, where its sweaty members were looking for love. If only they could hear one another.`\
-https://www.nytimes.com/2026/09/08/style/dsa-nyc-socialist-singles-mixer.html
-
-**Jon Small, Director and Early Billy Joel Collaborator, Dies at 79**\
-`They were in two bands together before Mr. Joel became famous, and briefly fell out over Mr. Joel’s affair with Mr. Small’s wife. Mr. Small later found success as a director of music videos and concert films.`\
-https://www.nytimes.com/2026/09/08/arts/music/jon-small-dead.html
-
-**What to Know About the 9/11 Air Quality Documents**\
-`The release on Tuesday included more than 170,000 pages of air quality reports, contamination records and correspondence among city officials in the months after Sept. 11.`\
-https://www.nytimes.com/2026/09/08/nyregion/what-to-know-sept-11-air-quality-documents.html
-
-**U.S. Hits 5 Iranian Oil Tankers, Citing Attempted Strikes on Warship**\
-`Iran retaliated by launching missiles at Jordan, raising the specter of still more fighting.`\
-https://www.nytimes.com/2026/09/08/world/middleeast/us-strikes-iran-tankers.html
-
-**Mamdani Accuses Former N.Y.C. Leaders of Lying About 9/11 Air Quality**\
-`Mayor Zohran Mamdani said that New Yorkers had gotten sick “because the leaders they trusted lied.” On Tuesday, he released 170,000 pages of records related to the aftermath of the attacks.`\
-https://www.nytimes.com/2026/09/08/nyregion/mamdani-air-quality-liars.html
-
-**Smithsonian Leader Is Resigning After Clashes With Trump**\
-`Also, OpenAI says it solved one of math’s “Millennium Problems.” Here’s the latest at the end of Tuesday.`\
-https://www.nytimes.com/2026/09/08/briefing/smithsonian-leader-resign-openai-math-problem.html
-
-**2 Women Who Killed Transgender Man Are Sentenced to Life in Prison**\
-`The women had pleaded guilty to all charges in connection with the death of Sam Nordquist, 24, who was held hostage in a motel for weeks and tortured.`\
-https://www.nytimes.com/2026/09/08/nyregion/sam-nordquist-transgender-man-murder-life-prison-sentencing.html
-
-**Musk Targets Transgender Issues in Key Midterm Senate Races**\
-`A political group for the world’s richest man, who is ramping up a midterm spending blitz, began running attack ads against Democrats in Texas, Ohio and Iowa.`\
-https://www.nytimes.com/2026/09/08/us/politics/elon-musk-transgender-midterms-democrats.html
-
-**Dueling Court Rulings Leave Missouri’s Congressional Races in Chaos**\
-`After losing in two courts and winning in another, Missouri officials said they planned to forge ahead with using a congressional map that was redrawn to benefit Republicans.`\
-https://www.nytimes.com/2026/09/08/us/politics/supreme-court-missouri-congressional-map.html
-
-**Trump Claims He Visited Ground Zero ‘Right After’ 9/11**\
-`During an event honoring victims who died on Sept. 11, 2001, President Trump tried to position himself close to the recovery efforts shortly after the attack. But first responders who were at ground zero and a biographer dispute his claims.`\
-https://www.nytimes.com/video/us/politics/100000011139844/trump-sept-11-terrorist-attacks-new-york.html
 
