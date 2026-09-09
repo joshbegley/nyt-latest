@@ -1,3 +1,7 @@
+**William Anderson, Doctor and Civil Rights Leader in Georgia, Dies at 98**\
+`An osteopath in Albany, Ga., he drew national attention, and the involvement of the Rev. Dr. Martin Luther King Jr., for his efforts to end segregation.`\
+https://www.nytimes.com/2026/09/09/us/william-anderson-dead.html
+
 **Apple Unveils the iPhone Duo, a Foldable Phone That Costs $1,999**\
 `At the company’s annual September product event, Apple also demonstrated its work on artificial intelligence and other new devices.`\
 https://www.nytimes.com/2026/09/09/technology/apple-iphone-duo-foldable-phone.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island
 **Rhode Island U.S. Senate Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Rhode Island primary election.`\
 https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-us-senate-primary.html
-
-**Rhode Island Governor Primary 2026: Live Election Results, McKee vs. Foulkes**\
-`Get live results and maps from the 2026 Rhode Island primary election.`\
-https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-governor-primary.html
 
