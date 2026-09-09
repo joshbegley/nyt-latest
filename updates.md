@@ -1,3 +1,19 @@
+**The Theme Park at the Heart of France’s Culture War**\
+`The Puy du Fou is the one of France’s most visited theme parks. Its founder says it gives the French a “founding narrative,” but critics say it peddles “far-right propaganda.”`\
+https://www.nytimes.com/2026/09/09/world/europe/theme-park-france-right-culture-war.html
+
+**Quote of the Day: Public Misled on Air Quality Following 9/11**\
+`Quotation of the Day for Wednesday, September 09, 2026.`\
+https://www.nytimes.com/2026/09/09/pageoneplus/quote-of-the-day-public-misled-on-air-quality-following-9-11.html
+
+**Iran Signals Readiness to Escalate War With U.S. Amid Rising Economic Pressure**\
+`The Iranian government is taking an increasingly aggressive approach as it confronts a growing economic threat and worries that its grip on the Strait of Hormuz is slipping, analysts say.`\
+https://www.nytimes.com/2026/09/09/world/middleeast/iran-war-us-aggression-hormuz.html
+
+**On This Day | Sept. 9**\
+`In 1971, prisoners at Attica Correctional Facility in New York seized part of the prison and took guards hostage, demanding better conditions and political reforms. The uprising left 43 people dead, including 39 during the violent retaking, while subsequent investigations exposed prisoner abuse and official misconduct.`\
+https://www.nytimes.com/2026/09/09/learning/on-this-day-sept-9.html
+
 **Court Halts New York Harbor Gas Pipeline Backed by Trump**\
 `The ruling centered on the granting of a water permit by New Jersey regulators, a decision the court described as “arbitrary and capricious.”`\
 https://www.nytimes.com/2026/09/08/nyregion/natural-gas-pipeline-ny-nj.html
