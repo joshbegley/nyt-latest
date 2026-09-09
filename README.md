@@ -1,3 +1,7 @@
+**Court Halts New York Harbor Gas Pipeline Backed by Trump**\
+`The ruling centered on the granting of a water permit by New Jersey regulators, a decision the court described as “arbitrary and capricious.”`\
+https://www.nytimes.com/2026/09/08/nyregion/natural-gas-pipeline-ny-nj.html
+
 **Three Jurors in Clancy Trial Describe Frustration With Holdout**\
 `The three jurors, who voted to acquit Lindsay Clancy of murder, described the tense deliberations in an interview with a Boston TV station.`\
 https://www.nytimes.com/2026/09/08/us/jurors-lindsay-clancy-trial.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/09/08/espanol/cultura/robo-museo-renoir.html
 **Lonnie G. Bunch III, Departing Smithsonian Secretary, Faced ‘Mounting Pressure Campaign’**\
 `Under Lonnie G. Bunch III’s leadership, President Trump accused the Smithsonian of liberal, anti-American bias. Supporters say he was dedicated to nonpartisan scholarship.`\
 https://www.nytimes.com/2026/09/08/arts/design/smithsonian-lonnie-bunch-departure-reaction.html
-
-**Thousands in Michigan Got a Driver’s License With Someone Else’s Face on It**\
-`About 8,200 people who applied for an enhanced driver’s license received cards in the mail with a stock image of a smiling man in the lower-right-hand corner.`\
-https://www.nytimes.com/2026/09/08/us/michigan-enhanced-ids-misprints.html
 
