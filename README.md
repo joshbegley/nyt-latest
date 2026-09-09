@@ -1,3 +1,11 @@
+**‘S.N.L.’ Season 52: Jalen Brunson Will Host First Episode**\
+`The New York Knicks star will kick off the 52nd season of “Saturday Night Live” on Sept. 26. Other hosts include Shane Gillis and Dakota Johnson.`\
+https://www.nytimes.com/2026/09/09/arts/television/saturday-night-live-jalen-brunson.html
+
+**Tate Brothers Must Remain in U.S. Jail Until Extradition Case Is Decided**\
+`A judge in Miami declined to release Andrew and Tristan Tate from custody while they fight extradition to Britain.`\
+https://www.nytimes.com/2026/09/09/us/tristan-andrew-tate-brothers-flight-risk.html
+
 **EE. UU. dirige ataques a barcos en la costa de Ecuador**\
 `En las últimas dos semanas, oficiales militares estadounidenses han hundido seis barcos pesqueros grandes acusados de proveer combustible a lanchas rápidas que transportan drogas desde Sudamérica.`\
 https://www.nytimes.com/es/2026/09/09/espanol/america-latina/ecuador-eeuu-ataque-maritimo.html
@@ -54,8 +62,8 @@ https://www.nytimes.com/2026/09/09/style/tiny-modern-love-stories-a-year-of-nake
 `El gobierno iraní está adoptando un enfoque cada vez más agresivo a medida que enfrenta una amenaza económica creciente y teme que su control sobre el estrecho de Ormuz se esté debilitando, dicen los analistas.`\
 https://www.nytimes.com/es/2026/09/09/espanol/mundo/iran-guerra-eeuu-ormuz.html
 
-**Treasury Plans $6 Billion in Debt Repurchases to Battle Rising Yields**\
-`Bond yields rose after the announcement, suggesting investors were underwhelmed by the size of the purchases.`\
+**Bond Market Rebuffs Treasury’s $6 Billion Plan to Reduce Borrowing Costs**\
+`The 10-year yield rose to its highest level in three years, suggesting investors were underwhelmed by the details of a move to buy back government bonds.`\
 https://www.nytimes.com/2026/09/09/business/economy/treasury-repurchase-bessent.html
 
 **17 Most Stylish Looks from the Venice Film Festival**\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/09/09/world/europe/norway-king-harald-funeral.html
 **Trump Doled Out $45,000 Cash Gifts to Natalie Harp and Other Aides Last Year**\
 `The money, listed as “cash gift for the holidays,” was detailed in financial disclosure forms released by the administration.`\
 https://www.nytimes.com/2026/09/09/us/politics/trump-natalie-harp-cash-gift-martin-harris.html
-
-**Trump’s Super PAC Starts to Unload Its War Chest, With New Group Booking $47 Million**\
-`A recently created Republican group tied to the president’s super PAC is pumping cash into half a dozen key midterm races, with the largest amounts going toward Senate contests in Michigan and Ohio.`\
-https://www.nytimes.com/2026/09/09/us/politics/trump-midterms-maga-inc-spending.html
-
-**Germany’s Right Turn**\
-`We take stock of the AfD’s success.`\
-https://www.nytimes.com/2026/09/09/briefing/germanys-right-turn.html
 
