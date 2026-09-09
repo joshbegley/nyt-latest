@@ -194,7 +194,3 @@ https://www.nytimes.com/2026/09/09/crosswords/strands-sidekick-921.html
 `Scroll down for hints and conversation about the puzzle for Thursday, Sept. 10, 2026.`\
 https://www.nytimes.com/2026/09/09/crosswords/wordle-review-1909.html
 
-**The Unanswered Questions in the N.B.A.’s Kawhi Leonard Ruling**\
-`Pablo on where the investigation goes next.`\
-https://www.nytimes.com/2026/09/09/podcasts/unanswered-questions-nba-kawhi-leonard-ruling.html
-
