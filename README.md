@@ -1,3 +1,27 @@
+**Meta lanza agente de IA que puede enviar tus correos electrónicos y reservar tus viajes**\
+`Muse, el nuevo agente de IA de Meta, actúa como un asistente digital personal que se conecta a Facebook e Instagram, así como a aplicaciones de terceros como Spotify y OpenTable.`\
+https://www.nytimes.com/es/2026/09/08/espanol/negocios/whatsapp-facebook-chatbot-ia-muse.html
+
+**Tung Chee-hwa, Who Led Hong Kong After Its Return to China, Dies at 89**\
+`As the first leader of the former British colony after its handover, he balanced the demands of Beijing and Hong Kongers, making it clear that Beijing was now in charge.`\
+https://www.nytimes.com/2026/09/08/world/asia/tung-chee-hwa-dead.html
+
+**OpenAI dice haber resuelto uno de los ‘problemas matemáticos del milenio’**\
+`El anuncio de la empresa es la señal más contundente hasta ahora de que la inteligencia artificial está transformando de manera fundamental el campo de las matemáticas avanzadas.`\
+https://www.nytimes.com/es/2026/09/08/espanol/ciencia-y-tecnologia/openai-problema-matematico-milenio.html
+
+**Anthony DiLorenzo, a Trump-Backed Auto Executive, Wins House Primary in New Hampshire**\
+`Anthony DiLorenzo, an automotive executive who ran with the president’s endorsement, will be the Republican nominee in the First Congressional District.`\
+https://www.nytimes.com/2026/09/08/us/politics/new-hampshire-primary-dilorenzo-noveletsky.html
+
+**John E. Sununu Wins Republican Senate Primary in New Hampshire**\
+`The general election race to replace Jeanne Shaheen, a Democrat, could help determine control of the U.S. Senate.`\
+https://www.nytimes.com/2026/09/08/us/politics/new-hampshire-republican-senate-primary.html
+
+**Chris Pappas Defeats Progressive Challenger in New Hampshire Senate Primary**\
+`Mr. Pappas, a moderate Democrat who has served four terms in the House, will face former Senator John E. Sununu, the Republican nominee, in November.`\
+https://www.nytimes.com/2026/09/08/us/politics/new-hampshire-senate-pappas-manzur.html
+
 **Tropical Storm Brings Big Waves to Southern California’s Coasts**\
 `Big waves driven by a deteriorating tropical storm crashed along the Southern California coast over the holiday weekend.`\
 https://www.nytimes.com/video/weather/100000011139392/hurricane-marie-southern-california-waves.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/09/08/dining/nyc-restaurant-news.html
 **A Between-Seasons Playlist**\
 `Hear a Robyn remix, new Sharp Pins and one perfect song from Haruomi Hosono.`\
 https://www.nytimes.com/2026/09/08/arts/music/amplifier-playlist-haruomi-hosono-robyn.html
-
-**Trump Awards Medal of Freedom to Welles Crowther, the ‘Man in the Red Bandanna’**\
-`Welles Remy Crowther, an equity trader and volunteer firefighter, is credited with saving 18 people at the World Trade Center on Sept. 11 before being killed.`\
-https://www.nytimes.com/2026/09/08/us/politics/trump-welles-crowther-sept-11-red-bandanna.html
-
-**After Causing Delays for 9/11 Health Claims, Social Security Pledges to Do Its Job**\
-`Lawyers say the Social Security Administration has for months not provided basic data to complete compensation claims for those sick and dying after exposure to debris from the Sept. 11 attacks.`\
-https://www.nytimes.com/2026/09/08/us/politics/9-11-fund-health-claims-social-security.html
-
-**El choque aéreo en Miami y las zonas de amortiguación en las pistas**\
-`Una tecnología que utiliza concreto triturable ha sido reconocida por salvar la vida de casi 500 pasajeros al ayudar a detener aviones que se salieron de la pista al aterrizar.`\
-https://www.nytimes.com/es/2026/09/08/espanol/estados-unidos/avion-amazon-miami.html
-
-**Pritzker, Eyeing 2028, to Help Midterm Democrats With a $20 Million Group**\
-`JB Pritzker, the billionaire governor of Illinois, is continuing to expand his national footprint, this time by using a new group to target Republicans in battleground races.`\
-https://www.nytimes.com/2026/09/08/us/politics/jb-pritzker-2028-brandon-herrera-max-miller.html
-
-**Influencers Didn’t Ruin the U.S. Open. They Just Made It More Boring.**\
-`Plus: a red carpet winner, and your thoughts on who counts as a fashion genius.`\
-https://www.nytimes.com/2026/09/08/style/us-open-tennis-influencers-style.html
-
-**Keep Lighting the Torches That Gloria Steinem Lit**\
-`Readers continue offering tributes to the feminist icon, who died last week. Also: Reducing gun violence; curbing A.I. in schools.`\
-https://www.nytimes.com/2026/09/08/opinion/gloria-steinem.html
 
