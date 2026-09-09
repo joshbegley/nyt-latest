@@ -1,3 +1,7 @@
+**Los salvadoreños mantendrán sus protecciones contra la deportación de EE. UU. por ahora**\
+`Estaba previsto que el Estatus de Protección Temporal para El Salvador expirara el miércoles. El gobierno de Trump dijo que haría un anuncio sobre el futuro del programa “en el momento adecuado”.`\
+https://www.nytimes.com/es/2026/09/09/espanol/estados-unidos/tps-el-salvador-trump.html
+
 **Lost at the U.S. Open? Find the Super-Cheerful People in Straw Hats.**\
 `No matter the problem, the U.S. Open ambassadors are here to help.`\
 https://www.nytimes.com/2026/09/09/nyregion/tennis-us-open-ambassadors.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/09/09/magazine/stepchildren-inheritance-ethics.html
 **Saudi Oil Exports Plunge as Spread of War Shuts Off Shipping Routes**\
 `With few good options for safely shipping oil, Saudi Arabia’s exports have fallen to a 13-year low.`\
 https://www.nytimes.com/2026/09/09/business/saudi-arabia-houthis-red-sea-oil-shipping.html
-
-**‘Ferris Bueller Gone Bad’: 22-Year-Old Pleads Guilty in Giant Bitcoin Heist**\
-`Malone Lam, a Singaporean citizen, admitted to stealing cryptocurrency valued at more than $245 million in one of the largest such heists in U.S. history.`\
-https://www.nytimes.com/2026/09/09/us/bitcoin-crypto-heist-malone-lam.html
 
