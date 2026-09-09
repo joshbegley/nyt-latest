@@ -1,3 +1,7 @@
+**¿Qué es el problema de Navier-Stokes que OpenAI dijo haber resuelto?**\
+`La empresa anunció que había resuelto uno de los siete “problemas del milenio”, considerados entre los más importantes de las matemáticas avanzadas. Te explicamos de qué se trata.`\
+https://www.nytimes.com/es/2026/09/09/espanol/ciencia-y-tecnologia/problema-matematico-openai-que-es.html
+
 **The Theme Park at the Heart of France’s Culture War**\
 `The Puy du Fou is the one of France’s most visited theme parks. Its founder says it gives the French a “founding narrative,” but critics say it peddles “far-right propaganda.”`\
 https://www.nytimes.com/2026/09/09/world/europe/theme-park-france-right-culture-war.html
