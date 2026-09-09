@@ -1,3 +1,7 @@
+**Is Trumpism the New McCarthyism?**\
+`In the 1950s, McCarthyism created a climate of fear and suspicion in American politics. The Times Opinion columnist Carlos Lozada and the historian Nicole Hemmer argue that, over 70 years later, McCarthyism is still a part of our politics today. Will Trumpism’s influence last as long?`\
+https://www.nytimes.com/video/opinion/100000011142512/is-trumpism-the-new-mccarthyism.html
+
 **Brothers Plead Guilty to Bribing NYC Buildings Commissioner Under Mayor Adams**\
 `Joseph and Anthony Livreri said they bribed the commissioner, Eric Ulrich, in an attempt to leverage his influence in City Hall. The brothers were indicted in 2023 alongside Mr. Ulrich.`\
 https://www.nytimes.com/2026/09/09/nyregion/ulrich-buildings-commissioner-bribery-adams.html

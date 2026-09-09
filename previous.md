@@ -1,3 +1,7 @@
+**Is Trumpism the New McCarthyism?**\
+`In the 1950s, McCarthyism created a climate of fear and suspicion in American politics. The Times Opinion columnist Carlos Lozada and the historian Nicole Hemmer argue that, over 70 years later, McCarthyism is still a part of our politics today. Will Trumpism’s influence last as long?`\
+https://www.nytimes.com/video/opinion/100000011142512/is-trumpism-the-new-mccarthyism.html
+
 **Brothers Plead Guilty to Bribing NYC Buildings Commissioner Under Mayor Adams**\
 `Joseph and Anthony Livreri said they bribed the commissioner, Eric Ulrich, in an attempt to leverage his influence in City Hall. The brothers were indicted in 2023 alongside Mr. Ulrich.`\
 https://www.nytimes.com/2026/09/09/nyregion/ulrich-buildings-commissioner-bribery-adams.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/video/dining/100000011139951/summer-pasta-with-zucchini-
 **Pesto Beans**\
 `Part quick and rustic bean stew and part deconstructed pesto, this pesto-inspired one-pan meal requires no blender and minimal slicing.`\
 https://www.nytimes.com/video/dining/100000011139925/pesto-beans.html
-
-**Cumin Tomato Salad With Jammy Eggs**\
-`Inspired by the delightful Indian egg curry, this egg salad recipe omits traditional mayonnaise in favor of a looser, brighter mix of fresh tomatoes, cilantro and sizzled spices.`\
-https://www.nytimes.com/video/dining/100000011139846/cumin-tomato-salad-with-jammy-eggs.html
 
 **Live Updates: Republicans Open a Midterm Convention Heavy on Trump**\
 `The president will speak on both nights of the gathering in Dallas. But with his approval ratings sagging, it’s unclear whether the event will help Republicans in tough races.`\
