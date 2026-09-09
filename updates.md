@@ -1,3 +1,23 @@
+**Travelers Face More Delays After Major Disruption at British Airports**\
+`An air traffic control problem caused more than 1,000 flight cancellations on Tuesday, and airlines warned that the effects could linger.`\
+https://www.nytimes.com/2026/09/09/world/europe/uk-air-traffic-control-flight-delays-london.html
+
+**China inicia servicio de carga a través del Ártico**\
+`El deshielo está abriendo una ruta comercial a través del Ártico, en un pasaje que conecta Asia con Europa. China ha iniciado el primer servicio regular, como parte de sus ambiciones polares.`\
+https://www.nytimes.com/es/2026/09/09/espanol/mundo/china-ruta-comercial-deshielo.html
+
+**NYT Spelling Bee Answers for September 9, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/09/09/crosswords/spelling-bee-forum.html
+
+**He’s Seen Images of 9/11 From Just About Every Angle. Except This One.**\
+`The 9/11 completist community wants to know and see everything. The Holy Grail? Pictures from inside the twin towers.`\
+https://www.nytimes.com/2026/09/09/nyregion/911-disposable-camera.html
+
+**State Senate Approved Jessica Ramos’s Travel Claims Despite Red Flags**\
+`Senate officials approved reimbursements for the senator, a Queens Democrat, despite receipts showing the expenses had been charged to her campaign.`\
+https://www.nytimes.com/2026/09/09/nyregion/ny-senate-ramos-double-billing.html
+
 **La batalla por el voto por correo en EE. UU. entra en su fase decisiva**\
 `El plan del gobierno para revisar las boletas por correo sigue bloqueado mientras la Corte Suprema evalúa las impugnaciones a las nuevas reglas sobre boletas del Servicio Postal del país.`\
 https://www.nytimes.com/es/2026/09/09/espanol/estados-unidos/batalla-voto-correo-ee-uu-trump.html
