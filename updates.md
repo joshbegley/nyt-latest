@@ -1,3 +1,11 @@
+**Para un fotógrafo, las Torres Gemelas eran un punto focal siempre presente**\
+`Keith Meyers pasó años fotografiando las zonas costeras de la ciudad de Nueva York y sus alrededores. Las Torres Gemelas se convirtieron en un telón de fondo constante.`\
+https://www.nytimes.com/es/2026/09/09/espanol/estados-unidos/fotos-torres-gemelas-9-11.html
+
+**West Bank Residents Respond to New Sanctions**\
+`Britain, Canada and France on Tuesday announced sanctions on Israeli settlements in the occupied West Bank, drawing responses from both Israelis and Palestinians.`\
+https://www.nytimes.com/video/world/middleeast/100000011140725/israel-west-bank-settlements-sanctions.html
+
 **Un pasajero indisciplinado es inmovilizado con cinta adhesiva durante un vuelo**\
 `El pasajero de un vuelo de American Airlines comenzó a gritar vulgaridades y luego se puso violento el jueves pasado, dijeron las autoridades. Fue entonces cuando dos pasajeros intervinieron.`\
 https://www.nytimes.com/es/2026/09/09/espanol/estados-unidos/avion-pasajero-delta-mala-conducta-cinta.html
