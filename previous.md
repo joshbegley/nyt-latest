@@ -1,3 +1,7 @@
+**Oil Hits $100 a Barrel as Turmoil Intensifies in Middle East**\
+`The cost of crude has risen 40 percent since the start of the war in Iran, pushing up the price of gasoline, diesel and other refined fuels.`\
+https://www.nytimes.com/2026/09/09/business/brent-oil-100-barrel-iran-war.html
+
 **Travelers Face More Flight Delays After Major Air Traffic Disruption at UK Airports**\
 `An air traffic control problem caused more than 1,000 flight cancellations on Tuesday, and airlines warned that the effects could linger.`\
 https://www.nytimes.com/2026/09/09/world/europe/uk-air-traffic-control-flight-delays-london.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/08/world/middleeast/israel-netanyahu-2023-hamas-
 **Hurricane Lowell Wreaks Havoc in Kauai**\
 `Hurricane Lowell flooded roads and knocked out power for thousands in Kauai, Hawaii. About 90 percent of the island was out of power as emergency crews cleared downed trees and power lines.`\
 https://www.nytimes.com/video/us/100000011139959/hurricane-lowell-kauai-flood-power-outage.html
-
-**Does It Matter If We Anthropomorphize A.I.?**\
-`If a tiger mauls your face, the important question isn’t “Is it conscious?” It’s “Why did it maul my face?” The “Hard Fork” co-hosts Casey Newton and Kevin Roose discuss that whether you believe A.I. is conscious or not, the consequences of autonomous agents are mounting.`\
-https://www.nytimes.com/video/podcasts/100000011140184/does-it-matter-if-we-anthropomorphize-ai.html
 

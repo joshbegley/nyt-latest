@@ -1,3 +1,7 @@
+**Oil Hits $100 a Barrel as Turmoil Intensifies in Middle East**\
+`The cost of crude has risen 40 percent since the start of the war in Iran, pushing up the price of gasoline, diesel and other refined fuels.`\
+https://www.nytimes.com/2026/09/09/business/brent-oil-100-barrel-iran-war.html
+
 **Travelers Face More Flight Delays After Major Air Traffic Disruption at UK Airports**\
 `An air traffic control problem caused more than 1,000 flight cancellations on Tuesday, and airlines warned that the effects could linger.`\
 https://www.nytimes.com/2026/09/09/world/europe/uk-air-traffic-control-flight-delays-london.html
