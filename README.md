@@ -1,3 +1,7 @@
+**Clay, an A.I. Sales Tool Provider, Raises $115 Million**\
+`The round was led by Wellington Management, a firm known for investing in start-ups on the path toward potential initial public offerings.`\
+https://www.nytimes.com/2026/09/09/business/dealbook/clay-ai-fundraising.html
+
 **Scientists Who Study Sleep and Narcolepsy Win Prestigious Lasker Award**\
 `The two researchers have won a prestigious Lasker Award. Their findings laid the groundwork for a new drug that addresses the sleep disorder’s root cause.`\
 https://www.nytimes.com/2026/09/09/science/these-scientists-untangled-what-causes-narcolepsy.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/world/africa/100000011104028/making-coffins-in-ebo
 **Sara Bareilles Confronted Grief, and Found Herself**\
 `Her new album, “Good Grief,” mourns friends including her Broadway co-star Gavin Creel, and her musical adaptation of the Meg Wolitzer novel “The Interestings” is about finding a different kind of fulfillment in a creative life than you’d once imagined, which Bareilles knows something about.`\
 https://www.nytimes.com/2026/09/09/arts/sara-bareilles-good-grief-interestings.html
-
-**Festivals Celebrate Italy’s Fall Harvest**\
-`Here are five culinary celebrations to work into your autumn itinerary.`\
-https://www.nytimes.com/2026/09/09/travel/italian-fall-food-festivals.html
 
