@@ -1,5 +1,13 @@
+**New Mexico’s Name Is Older Than the U.S. Trump Still Wants to Change It.**\
+`President Trump has no authority to change the state’s name, but his suggestion has constituted fighting words to proud New Mexicans.`\
+https://www.nytimes.com/2026/09/09/us/new-america-trump-reaction-new-mexico.html
+
+**Lucien Smith, Art-World Star Whose Career Abruptly Turned, Dies at 37**\
+`A phenom in his 20s, he became poster child for Zombie Formalism before abandoning the gallery frenzy for Montauk.`\
+https://www.nytimes.com/2026/09/09/obituaries/lucien-smith-dead.html
+
 **Emergency Slide Accidentally Deploys on New Air Force One**\
-`The mistake happened while the Qatari-donated jet was parked on the tarmac at Joint Base Andrews. It delayed President Trump’s departure to a Republican convention in Dallas.`\
+`The mishap happened while the Qatari-donated jet was parked on the tarmac at Joint Base Andrews. It delayed President Trump’s departure to a Republican convention in Dallas.`\
 https://www.nytimes.com/2026/09/09/us/politics/emergency-slide-air-force-one-trump.html
 
 **Los salvadoreños mantendrán sus protecciones contra la deportación de EE. UU. por ahora**\
@@ -177,12 +185,4 @@ https://www.nytimes.com/es/2026/09/09/espanol/mundo/iran-guerra-eeuu-ormuz.html
 **Bond Market Rebuffs Treasury’s $6 Billion Plan to Reduce Borrowing Costs**\
 `The 10-year yield rose to its highest level in three years, suggesting investors were underwhelmed by the details of a move to buy back government bonds.`\
 https://www.nytimes.com/2026/09/09/business/economy/treasury-repurchase-bessent.html
-
-**17 Most Stylish Looks from the Venice Film Festival**\
-`The name of the game is elegance, ease and low-key flair. Sunglasses never hurt.`\
-https://www.nytimes.com/2026/09/09/style/venice-film-festival-best-dressed.html
-
-**Do I Have to Leave All My Stepchildren Equal Shares of the Inheritance?**\
-`We spent time with my oldest and youngest stepchildren’s families, but rarely saw the middle son.`\
-https://www.nytimes.com/2026/09/09/magazine/stepchildren-inheritance-ethics.html
 
