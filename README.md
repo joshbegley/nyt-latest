@@ -1,3 +1,7 @@
+**Apple Unveils the iPhone Duo, a Foldable Phone That Costs $1,999**\
+`At the company’s annual September product event, Apple also demonstrated its work on artificial intelligence and other new devices.`\
+https://www.nytimes.com/2026/09/09/technology/apple-iphone-duo-foldable-phone.html
+
 **14 Killed in Weapons Depot Blast in Northwest Syria**\
 `Officials said they had not determined the cause of the explosion. Years of fighting have left Syria littered with weapons and ordnance left over from the civil war.`\
 https://www.nytimes.com/2026/09/09/world/middleeast/syria-weapons-depot-blast.html
@@ -27,7 +31,7 @@ https://www.nytimes.com/video/dining/100000011139925/pesto-beans.html
 https://www.nytimes.com/video/dining/100000011139846/cumin-tomato-salad-with-jammy-eggs.html
 
 **Live Updates: Republicans Prepare for a Midterm Pageant Heavy on Trump**\
-`The president will speak on both nights of a gathering billed as a midterm convention. But with his approval ratings sagging, it’s unclear whether the event will help Republicans in tough races.`\
+`The president will speak on both nights of a gathering in Dallas billed as a midterm convention. But with his approval ratings sagging, it’s unclear whether the event will help Republicans in tough races.`\
 https://www.nytimes.com/live/2026/09/09/us/rnc-trump-midterm-convention-updates
 
 **Scientists Discover the Earliest Evidence of Drug Use in Really Old Teeth**\
@@ -185,8 +189,4 @@ https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island
 **Rhode Island Governor Primary 2026: Live Election Results, McKee vs. Foulkes**\
 `Get live results and maps from the 2026 Rhode Island primary election.`\
 https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-governor-primary.html
-
-**Rhode Island Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Rhode Island primary elections.`\
-https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-primary.html
 
