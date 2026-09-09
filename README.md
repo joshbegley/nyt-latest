@@ -1,3 +1,7 @@
+**On This Day | Sept. 9**\
+`In 1971, prisoners at Attica Correctional Facility in New York seized part of the prison and took guards hostage, demanding better conditions and political reforms. The uprising left 43 people dead, including 39 during the violent retaking, while subsequent investigations exposed prisoner abuse and official misconduct.`\
+https://www.nytimes.com/2026/09/09/learning/on-this-day-sept-9.html
+
 **Court Halts New York Harbor Gas Pipeline Backed by Trump**\
 `The ruling centered on the granting of a water permit by New Jersey regulators, a decision the court described as “arbitrary and capricious.”`\
 https://www.nytimes.com/2026/09/08/nyregion/natural-gas-pipeline-ny-nj.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/08/opinion/911-twin-towers-life-death.html
 **El Museo Renoir sufre un robo en Francia**\
 `Se trata del hurto de arte de alto perfil más reciente de Europa, cuyos sitios culturales han estado luchando por mantener sus preciados objetos a salvo.`\
 https://www.nytimes.com/es/2026/09/08/espanol/cultura/robo-museo-renoir.html
-
-**Lonnie G. Bunch III, Departing Smithsonian Secretary, Faced ‘Mounting Pressure Campaign’**\
-`Under Lonnie G. Bunch III’s leadership, President Trump accused the Smithsonian of liberal, anti-American bias. Supporters say he was dedicated to nonpartisan scholarship.`\
-https://www.nytimes.com/2026/09/08/arts/design/smithsonian-lonnie-bunch-departure-reaction.html
 
