@@ -1,3 +1,7 @@
+**Police Expand Investigation Into Reform U.K. After Undercover Sting**\
+`The Metropolitan Police are investigating Nigel Farage’s right-wing populist party after footage appeared to show party officials arranging secret contributions from a foreign donor.`\
+https://www.nytimes.com/2026/09/09/world/europe/reform-uk-investigation-nigel-farage.html
+
 **‘S.N.L.’ Season 52: Jalen Brunson Will Host First Episode**\
 `The New York Knicks star will kick off the 52nd season of “Saturday Night Live” on Sept. 26. Other hosts include Shane Gillis and Dakota Johnson.`\
 https://www.nytimes.com/2026/09/09/arts/television/saturday-night-live-jalen-brunson.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/09/science/narcolepsy-sleep-lasker-award-researc
 **Thousands Gather for Funeral of Norway’s King Harald**\
 `Royal families and heads of state, including President Volodymyr Zelensky of Ukraine, attended the funeral of King Harald V in Oslo.`\
 https://www.nytimes.com/2026/09/09/world/europe/norway-king-harald-funeral.html
-
-**Trump Doled Out $45,000 Cash Gifts to Natalie Harp and Other Aides Last Year**\
-`The money, listed as “cash gift for the holidays,” was detailed in financial disclosure forms released by the administration.`\
-https://www.nytimes.com/2026/09/09/us/politics/trump-natalie-harp-cash-gift-martin-harris.html
 
