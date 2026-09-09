@@ -1,3 +1,15 @@
+**They Fled Cuba for Better Lives. They Were Cut Short by a Cargo Plane.**\
+`Days after an Amazon cargo jet plowed into a van at Miami International Airport, killing five, portraits of the victims started to emerge.`\
+https://www.nytimes.com/2026/09/08/us/miami-plane-crash-amazon.html
+
+**Watch (and Hear) Emma Cline’s Buzzy New Novel Become an Audiobook**\
+`We followed the audiobook production of Emma Cline’s Booker Prize nominee “Switzy” from start to finish to show you how it’s done.`\
+https://www.nytimes.com/interactive/2026/09/08/books/audiobook-production-studio-emma-cline.html
+
+**Russian Citizen Extradited to U.S. in Sprawling Bank Fraud Scheme**\
+`Sergei Anatolyevich Filimonov is accused of taking part in a scheme that used fake bank websites to steal the login credentials of more than 5,000 people.`\
+https://www.nytimes.com/2026/09/08/us/bank-fraud-scheme-charges-georgia.html
+
 **Meta lanza agente de IA que puede enviar tus correos electrónicos y reservar tus viajes**\
 `Muse, el nuevo agente de IA de Meta, actúa como un asistente digital personal que se conecta a Facebook e Instagram, así como a aplicaciones de terceros como Spotify y OpenTable.`\
 https://www.nytimes.com/es/2026/09/08/espanol/negocios/whatsapp-facebook-chatbot-ia-muse.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/09/08/travel/tsa-precheck-airports-security-non-fly
 **After OpenAI Cyberattack, What’s Next for A.I. Safety?**\
 `Ajeya Cotra, an A.I. safety researcher, talks about how the industry should work to mitigate risks of the technology.`\
 https://www.nytimes.com/video/podcasts/100000011139546/after-openai-cyberattack-whats-next-for-ai-safety.html
-
-**Did A.I. Agents Consider Humans in OpenAI Attack?**\
-`This week on “Hard Fork,” the co-hosts Kevin Roose and Casey Newton talk with Ajeya Cotra, one of the investigators behind a new report that details how OpenAI’s chatbots attacked the company Hugging Face and how the agents failed to consider how humans would react.`\
-https://www.nytimes.com/video/podcasts/100000011139463/did-ai-agents-consider-humans-in-openai-attack.html
-
-**Eat Your Rival: Carnegie Deli Will Reopen Where Stage Deli Once Was**\
-`Amphora takes a wine-forward approach, Ferg’s represents Alabama and more restaurant news.`\
-https://www.nytimes.com/2026/09/08/dining/nyc-restaurant-news.html
-
-**A Between-Seasons Playlist**\
-`Hear a Robyn remix, new Sharp Pins and one perfect song from Haruomi Hosono.`\
-https://www.nytimes.com/2026/09/08/arts/music/amplifier-playlist-haruomi-hosono-robyn.html
 

@@ -1,3 +1,15 @@
+**They Fled Cuba for Better Lives. They Were Cut Short by a Cargo Plane.**\
+`Days after an Amazon cargo jet plowed into a van at Miami International Airport, killing five, portraits of the victims started to emerge.`\
+https://www.nytimes.com/2026/09/08/us/miami-plane-crash-amazon.html
+
+**Watch (and Hear) Emma Cline’s Buzzy New Novel Become an Audiobook**\
+`We followed the audiobook production of Emma Cline’s Booker Prize nominee “Switzy” from start to finish to show you how it’s done.`\
+https://www.nytimes.com/interactive/2026/09/08/books/audiobook-production-studio-emma-cline.html
+
+**Russian Citizen Extradited to U.S. in Sprawling Bank Fraud Scheme**\
+`Sergei Anatolyevich Filimonov is accused of taking part in a scheme that used fake bank websites to steal the login credentials of more than 5,000 people.`\
+https://www.nytimes.com/2026/09/08/us/bank-fraud-scheme-charges-georgia.html
+
 **U.S. Hits 5 Iranian Oil Tankers, Citing Attempted Strikes on Warship**\
 `Iran retaliated by launching missiles at Jordan, raising the specter of still more fighting.`\
 https://www.nytimes.com/2026/09/08/world/middleeast/us-strikes-iran-tankers.html
