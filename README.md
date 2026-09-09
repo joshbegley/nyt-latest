@@ -1,3 +1,7 @@
+**Trump’s Midterm Convention May Struggle for Ratings Against the NFL Kickoff**\
+`Many major TV networks are sticking with regular programming as the Republicans convene in Dallas. Fox News, NewsNation and C-SPAN will carry more of the proceedings.`\
+https://www.nytimes.com/2026/09/09/us/politics/trump-rnc-convention-nfl-ratings.html
+
 **Lesson Plan: What It Means to Write in the Age of A.I.**\
 `In this three-part lesson, we invite students to explore why we write and discuss why it still matters amid the rise of artificial intelligence.`\
 https://www.nytimes.com/2026/09/09/learning/lesson-plans/lesson-plan-what-it-means-to-write-in-the-age-of-ai.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/09/09/world/europe/reform-uk-investigation-nigel-fa
 **‘S.N.L.’ Season 52: Jalen Brunson Will Host First Episode**\
 `The New York Knicks star will kick off the 52nd season of “Saturday Night Live” on Sept. 26. Other hosts include Shane Gillis and Dakota Johnson.`\
 https://www.nytimes.com/2026/09/09/arts/television/saturday-night-live-jalen-brunson.html
-
-**Tate Brothers Must Remain in U.S. Jail Until Extradition Case Is Decided**\
-`A judge in Miami declined to release Andrew and Tristan Tate from custody while they fight extradition to Britain.`\
-https://www.nytimes.com/2026/09/09/us/tristan-andrew-tate-brothers-flight-risk.html
 
