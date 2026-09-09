@@ -1,3 +1,11 @@
+**The Data Center Conundrum**\
+`Let’s learn from Nordic Countries: If America actually supported workers, we’d have a better shot at embracing technological change.`\
+https://www.nytimes.com/2026/09/09/opinion/data-center-ai-resistance.html
+
+**I Worked on Safety at OpenAI. The Fix Isn’t Hard.**\
+`Even without government regulation, private companies can act on their own to address A.I. safety concerns.`\
+https://www.nytimes.com/2026/09/09/opinion/openai-ai-companies-safety-regulation.html
+
 **Apple presenta el iPhone Duo, un celular plegable de 1999 dólares**\
 `La empresa debuta en el mercado de las dobles pantallas con un producto de alta gama.`\
 https://www.nytimes.com/es/2026/09/09/espanol/negocios/apple-iphone-duo-precio-cuando-sale.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/09/09/technology/anthropic-researchers-raise-alarm.
 **Why Israel Reacted With Fury to U.K. Sanctions on West Bank Settlements**\
 `The fierce retaliation of Prime Minister Benjamin Netanyahu’s government to the new restrictions is a reflection of his tough re-election fight, analysts say.`\
 https://www.nytimes.com/2026/09/09/world/middleeast/israel-uk-west-bank-sanctions.html
-
-**How Trump’s Mail Voting Plan Would Work**\
-`The plan, which two dozen states have challenged as unconstitutional, puts in place new requirements about who can receive mail ballots.`\
-https://www.nytimes.com/2026/09/09/us/politics/trump-mail-in-voting-ballots-usps.html
-
-**More Flights Are Canceled as Major U.K. Air Traffic Disruption Persists**\
-`More than 2,000 flights were disrupted over two days after a technical failure in Britain’s air traffic control system affected several airports.`\
-https://www.nytimes.com/video/world/europe/100000011141527/canceled-flights-uk-air-traffic-disruption.html
 
