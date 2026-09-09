@@ -1,3 +1,15 @@
+**William Anderson, Doctor and Civil Rights Leader in Georgia, Dies at 98**\
+`An osteopath in Albany, Ga., he drew national attention, and the involvement of the Rev. Dr. Martin Luther King Jr., for his efforts to end segregation.`\
+https://www.nytimes.com/2026/09/09/us/william-anderson-dead.html
+
+**Apple Unveils the iPhone Duo, a Foldable Phone That Costs $1,999**\
+`At the company’s annual September product event, Apple also demonstrated its work on artificial intelligence and other new devices.`\
+https://www.nytimes.com/2026/09/09/technology/apple-iphone-duo-foldable-phone.html
+
+**Live Updates: Republicans Prepare for a Midterm Pageant Heavy on Trump**\
+`The president will speak on both nights of a gathering in Dallas billed as a midterm convention. But with his approval ratings sagging, it’s unclear whether the event will help Republicans in tough races.`\
+https://www.nytimes.com/live/2026/09/09/us/rnc-trump-midterm-convention-updates
+
 **14 Killed in Weapons Depot Blast in Northwest Syria**\
 `Officials said they had not determined the cause of the explosion. Years of fighting have left Syria littered with weapons and ordnance left over from the civil war.`\
 https://www.nytimes.com/2026/09/09/world/middleeast/syria-weapons-depot-blast.html
