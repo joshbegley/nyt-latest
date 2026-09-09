@@ -1,3 +1,15 @@
+**Trump Administration Accuses Berkeley Law School of Racial Discrimination**\
+`The Justice and Education Departments said the school had penalized white and Asian applicants, the latest in a series of investigations into admissions at elite universities.`\
+https://www.nytimes.com/2026/09/09/us/doj-california-berkeley.html
+
+**Back to School, Now With A.I.**\
+`This year is shaping up to be a global experiment in education: Can students embrace tech innovation without losing critical thinking skills?`\
+https://www.nytimes.com/2026/09/09/world/10int-theworld-web-ai-education.html
+
+**James Talarico Counters Trump’s Midterm Convention With Food Drive**\
+`The Democratic Senate candidate used a food drive to sharpen his economic message against Ken Paxton.`\
+https://www.nytimes.com/2026/09/09/us/politics/talarico-republican-midterm-convention-counterprogramming.html
+
 **U.S. Designates Ecuador’s Los Tiguerones Gang as Terrorist Group**\
 `The sanctions that will now be imposed on Los Tiguerones are an increasingly common U.S. tactic, though they unlikely to hurt the gang financially.`\
 https://www.nytimes.com/2026/09/09/world/americas/ecuador-los-tiguerones-terrorist.html
