@@ -1,3 +1,7 @@
+**The Unanswered Questions in the N.B.A.’s Kawhi Leonard Ruling**\
+`Pablo on where the investigation goes next.`\
+https://www.nytimes.com/2026/09/09/podcasts/unanswered-questions-nba-kawhi-leonard-ruling.html
+
 **Un gobernador respalda a Trump pero contrata a trabajadores indocumentados**\
 `La empresa familiar del gobernador Jim Pillen es uno de los mayores productores porcinos de Estados Unidos. En su campaña por la reelección, se ha alineado con la agenda antinmigrante del presidente Trump, a pesar de que sus granjas han contratado a trabajadores indocumentados.`\
 https://www.nytimes.com/es/2026/09/09/espanol/ice-migrantes-nebraska-gobernador-trump.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/09/fashion/watches-angelus-switzerland.html
 **How Amazon’s Zoox Is Taking On Waymo in San Francisco**\
 `The Amazon-owned driverless car company is a distant second to Waymo. Its pitch to riders? Wine pop-ups, festival sponsorships and a car built to be filmed.`\
 https://www.nytimes.com/2026/09/09/technology/zoox-waymo-san-francisco.html
-
-**As He Backs ICE Crackdown, Nebraska Governor Employs Undocumented Workers**\
-`Gov. Jim Pillen’s family business is one of the nation’s largest pork producers. As he seeks re-election, he has aligned himself with President Trump’s anti-immigrant agenda even though his farms have taken on undocumented laborers.`\
-https://www.nytimes.com/2026/09/09/us/jim-pillen-ice-nebraska-undocumented-workers.html
 
