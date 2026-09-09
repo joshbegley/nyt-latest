@@ -1,3 +1,47 @@
+**Federal Trial Against Huawei Is Underway**\
+`The Chinese telecommunications giant has been accused of stealing intellectual property from six companies, including Motorola Solutions and T-Mobile.`\
+https://www.nytimes.com/2026/09/09/nyregion/federal-trial-against-huawei-is-underway.html
+
+**Rhode Island U.S. Senate Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Rhode Island primary election.`\
+https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-us-senate-primary.html
+
+**Rhode Island Governor Primary 2026: Live Election Results, McKee vs. Foulkes**\
+`Get live results and maps from the 2026 Rhode Island primary election.`\
+https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-governor-primary.html
+
+**Rhode Island Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Rhode Island primary elections.`\
+https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-primary.html
+
+**Rhode Island Treasurer Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Rhode Island primary election.`\
+https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-treasurer-primary.html
+
+**Rhode Island Secretary of State Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Rhode Island primary election.`\
+https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-secretary-of-state-primary.html
+
+**Rhode Island First Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Rhode Island primary election.`\
+https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-us-house-1-primary.html
+
+**Rhode Island Second Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Rhode Island primary election.`\
+https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-us-house-2-primary.html
+
+**Rhode Island Lieutenant Governor Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Rhode Island primary election.`\
+https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-lieutenant-governor-primary.html
+
+**Providence, Rhode Island, Mayor Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Rhode Island primary election.`\
+https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-mayor-providence-primary.html
+
+**Rhode Island Attorney General Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Rhode Island primary election.`\
+https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-attorney-general-primary.html
+
 **Escalating Boat Strikes Campaign, U.S. Targets ‘Refueling’ Vessels**\
 `U.S. military officials in the past two weeks have sunk six large fishing vessels accused of providing fuel to fast boats carrying drugs from South America.`\
 https://www.nytimes.com/2026/09/09/world/americas/us-boat-strikes-south-america.html
@@ -153,48 +197,4 @@ https://www.nytimes.com/2026/09/09/movies/film-festivals-studios-telluride.html
 **Film and TV Portrayals of A.I. Go Beyond Science Fiction**\
 `Plots involving some kind of artificial intelligence are even part of soap operas. Here’s how they’ve evolved over the decades.`\
 https://www.nytimes.com/2026/09/09/movies/ai-tv-movies-robots-science-fiction.html
-
-**Conoce el kit de emergencias integrado en tu celular**\
-`En tiempos de desastres naturales y otros peligros, las funciones especiales escondidas en tu dispositivo iPhone o Android podrían marcar la diferencia.`\
-https://www.nytimes.com/es/2026/09/09/espanol/negocios/funciones-emergencia-telefono-inteligente.html
-
-**Israel’s Election Campaign Is Heating Up. Here’s Who’s Running.**\
-`The contest is shaping up to be a referendum on Prime Minister Benjamin Netanyahu. It is considered the most consequential in Israel’s history.`\
-https://www.nytimes.com/2026/09/09/world/middleeast/israels-election-campaign-is-heating-up-heres-whos-running.html
-
-**Which $375,000 Home Would You Pick?**\
-`This week’s properties are in Brunswick, Ga., Columbus, Ind., and San Antonio.`\
-https://www.nytimes.com/2026/09/09/realestate/which-375000-home-would-you-pick.html
-
-**Carla Lalli Latest Book Explores Feeding Your Feelings After Divorce**\
-`The chef and cookbook author Carla Lalli became single for the first time in 24 years. She started to follow her own cravings.`\
-https://www.nytimes.com/2026/09/09/podcasts/carla-lalli-food-is-a-feeling-divorce.html
-
-**Ukraine’s Unexpected $27 Billion Budget Gap Rattles Europe**\
-`An unexpected request from President Volodymyr Zelensky offered a stark reminder that the cost of the war will rise, challenging Europe.`\
-https://www.nytimes.com/2026/09/09/world/europe/ukraine-says-it-needs-27-billion-more-europe-wants-to-know-why.html
-
-**The Lethal Dust of 9/11**\
-`Mayor Zohran Mamdani released documents showing that officials knew the air around the Trade Center site was toxic, even as New Yorkers were told it was safe.`\
-https://www.nytimes.com/2026/09/09/nyregion/the-lethal-dust-of-9-11.html
-
-**Texas Republicans Are Turning Against Data Centers. Will It Matter in November?**\
-`The industry’s rapid expansion has scrambled traditional political alliances and forced G.O.P. leaders to respond to a backlash from some of their most reliable rural voters.`\
-https://www.nytimes.com/2026/09/09/us/texas-republicans-data-center-anger.html
-
-**The Young Women at the Heart of American Landscape Art**\
-`Once dismissed as exercises in dainty femininity, the handiwork of schoolgirls is now celebrated for anticipating the art of the Hudson River School and beyond.`\
-https://www.nytimes.com/2026/09/09/arts/design/young-women-artists-american-landscape.html
-
-**Book Review: ‘Call It Evil,’ by Susan Neiman**\
-`In a new book, Susan Neiman argues that by defining evil in terms of individual monstrousness we fail to perceive its widespread hold on our culture.`\
-https://www.nytimes.com/2026/09/09/books/review/call-it-evil-susan-neiman.html
-
-**Bill T. Jones’s Dance That Didn’t Happen at the World Trade Center Plaza**\
-`Twenty-five years after 9/11 caused the cancellation of a Bill T. Jones group performance, he debuts a work in response.`\
-https://www.nytimes.com/2026/09/09/arts/dance/bill-t-jones-world-trade-center-9-11.html
-
-**A.I. Music Giant Suno Tries to Play Nice With Record Labels**\
-`Suno has drawn copyright lawsuits from the majors. Now it is releasing a version of its A.I. music generator trained in partnership with Warner Music.`\
-https://www.nytimes.com/2026/09/09/arts/music/suno-new-ai-model-warner-music.html
 
