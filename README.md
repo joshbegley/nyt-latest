@@ -1,6 +1,18 @@
+**Scientists Who Study Sleep and Narcolepsy Win Prestigious Lasker Award**\
+`The two researchers have won a prestigious Lasker Award. Their findings laid the groundwork for a new drug that addresses the sleep disorder’s root cause.`\
+https://www.nytimes.com/2026/09/09/science/these-scientists-untangled-what-causes-narcolepsy.html
+
+**A ‘Transformative’ Narcolepsy Drug Opens New Opportunities in Neuroscience**\
+`A first-of-its-kind drug for the sleep disorder offers a new treatment for people who live with the debilitating fog of sleepiness.`\
+https://www.nytimes.com/2026/09/09/science/a-transformative-narcolepsy-drug-opens-new-opportunities-in-neuroscience.html
+
+**Thousands Gather for Funeral of Norway’s King Harald**\
+`Royal families and heads of state, including President Volodymyr Zelensky of Ukraine, attended the funeral of King Harald V in Oslo.`\
+https://www.nytimes.com/2026/09/09/world/europe/norway-king-harald-funeral.html
+
 **Trump Doled Out $45,000 Cash Gifts to Natalie Harp and Other Aides Last Year**\
 `The money, listed as “cash gift for the holidays,” was detailed in financial disclosure forms released by the administration.`\
-https://www.nytimes.com/2026/09/09/us/politics/trump-doled-out-45000-cash-gifts-to-natalie-harp-and-other-aides-last-year.html
+https://www.nytimes.com/2026/09/09/us/politics/trump-natalie-harp-cash-gift-martin-harris.html
 
 **Trump’s Super PAC Is Tied to Mystery Group Spending $25 Million on Midterms**\
 `The recently created Republican group is pumping cash into half a dozen key midterm races, with the largest amounts going toward Senate contests in New Hampshire and Alaska.`\
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/09/09/arts/sara-bareilles-good-grief-interestings.h
 **Festivals Celebrate Italy’s Fall Harvest**\
 `Here are five culinary celebrations to work into your autumn itinerary.`\
 https://www.nytimes.com/2026/09/09/travel/italian-fall-food-festivals.html
-
-**Our Favorite Chukka Boots for Fall**\
-`In suede or supple leather, lace-ups to freshen up your fall look.`\
-https://www.nytimes.com/2026/09/09/t-magazine/chukka-lace-up-boots.html
-
-**‘Liberation,’ ‘Purpose’ and 39 More Shows to See in the U.S. This Fall**\
-`This season is rich with sharp productions, like Bess Wohl’s and Branden Jacobs-Jenkins’s Pulitzer winners, Cole Escola’s “Oh, Mary!” and the hip-hop musical “Mexodus.”`\
-https://www.nytimes.com/2026/09/09/theater/liberation-purpose-oh-mary-mexodus-shows-in-us-2026.html
-
-**Vacheron Constantin Had Artisans Shrink Work to Watch Dials**\
-`Vacheron Constantin worked with a glass blower, embroiderer and others for its Tribute to the Animal Kingdom collection.`\
-https://www.nytimes.com/2026/09/09/fashion/watches-vacheron-constantin-homo-faber-venice.html
 
