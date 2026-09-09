@@ -1,3 +1,51 @@
+**Federal Trial Against Huawei Is Underway**\
+`The Chinese telecommunications giant has been accused of stealing intellectual property from six companies, including Motorola Solutions and T-Mobile.`\
+https://www.nytimes.com/2026/09/09/nyregion/federal-trial-against-huawei-is-underway.html
+
+**Rhode Island U.S. Senate Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Rhode Island primary election.`\
+https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-us-senate-primary.html
+
+**Rhode Island Governor Primary 2026: Live Election Results, McKee vs. Foulkes**\
+`Get live results and maps from the 2026 Rhode Island primary election.`\
+https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-governor-primary.html
+
+**Rhode Island Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Rhode Island primary elections.`\
+https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-primary.html
+
+**Rhode Island Treasurer Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Rhode Island primary election.`\
+https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-treasurer-primary.html
+
+**Rhode Island Secretary of State Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Rhode Island primary election.`\
+https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-secretary-of-state-primary.html
+
+**Rhode Island First Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Rhode Island primary election.`\
+https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-us-house-1-primary.html
+
+**Rhode Island Second Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Rhode Island primary election.`\
+https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-us-house-2-primary.html
+
+**Rhode Island Lieutenant Governor Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Rhode Island primary election.`\
+https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-lieutenant-governor-primary.html
+
+**Providence, Rhode Island, Mayor Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Rhode Island primary election.`\
+https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-mayor-providence-primary.html
+
+**Rhode Island Attorney General Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Rhode Island primary election.`\
+https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-attorney-general-primary.html
+
+**Trump’s Super PAC Starts to Unload Its War Chest, With New Group Booking $47 Million**\
+`A recently created Republican group tied to the president’s super PAC is pumping cash into half a dozen key midterm races, with the largest amounts going toward Senate contests in Michigan and Ohio.`\
+https://www.nytimes.com/2026/09/09/us/politics/trump-midterms-maga-inc-spending.html
+
 **Escalating Boat Strikes Campaign, U.S. Targets ‘Refueling’ Vessels**\
 `U.S. military officials in the past two weeks have sunk six large fishing vessels accused of providing fuel to fast boats carrying drugs from South America.`\
 https://www.nytimes.com/2026/09/09/world/americas/us-boat-strikes-south-america.html
