@@ -1,3 +1,7 @@
+**Germany’s Right Turn**\
+`We take stock of the AfD’s success.`\
+https://www.nytimes.com/2026/09/09/briefing/germanys-right-turn.html
+
 **Singapore’s Prime Minister Gets a Big Raise**\
 `Singapore’s prime minister, Lawrence Wong, got the bump as part of a longstanding policy to pay high salaries to public servants in order to attract top talent and prevent corruption.`\
 https://www.nytimes.com/2026/09/09/world/asia/singapore-minister-salary.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/09/business/energy-environment/california-diablo
 **Dolly Parton’s Musical, ‘Inter Alia’ and More on Broadway, and Off, This Fall**\
 `On New York stages this season come the new musicals “Galileo” and “Wanted,” a “Shuffle Along” reunion with Audra McDonald, and Tom Hiddleston in “Much Ado About Nothing.”`\
 https://www.nytimes.com/2026/09/09/theater/julia-louis-dreyfus-john-legend-broadway-off-broadway-fall-theater.html
-
-**Book Review: ‘Is This It,’ by Steven Hyden**\
-`Steven Hyden considers the cultural shifts of the past 25 years in a new book about the band.`\
-https://www.nytimes.com/2026/09/09/books/review/steven-hyden-is-this-it.html
 
