@@ -1,3 +1,7 @@
+**Emergency Slide Is Accidentally Deployed on New Air Force One**\
+`A military aide accidentally deployed the emergency slide on the new Air Force One on Wednesday, according to a person familiar with the episode.`\
+https://www.nytimes.com/video/us/politics/100000011142824/trump-air-force-one-emergency-slide.html
+
 **Fetterman Appears in Video in Opening Night of Trump’s Convention**\
 `Senator John Fetterman, who has become alienated from his own party, made a surprise virtual appearance, breaking with Democrats’ midterm message,`\
 https://www.nytimes.com/2026/09/09/us/politics/john-fetterman-trump-republican-convention.html
