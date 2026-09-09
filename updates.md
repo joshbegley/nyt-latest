@@ -1,3 +1,7 @@
+**Joseph Rice, Lowcountry Lawyer Who Took On Big Tobacco, Dies at 72**\
+`He challenged tobacco companies as well as the opioid industry, securing multibillion-dollar settlements that also benefited public health.`\
+https://www.nytimes.com/2026/09/09/us/joe-rice-dead.html
+
 **Read the lawsuit against groups tied to Cesar Chavez**\
 `A woman claiming that Cesar Chavez raped her in the 1970s is accusing nonprofit groups affiliated with the Chavez family and the United Farm Workers of negligence, sexual harassment and violations of state civil rights laws. The person who filed the lawsuit anonymously is referred to in the court document as Jane Doe. The suit contains descriptions of sexual assault.`\
 https://www.nytimes.com/interactive/2026/09/09/us/complaint-jane-doe-v-cesar-chavez-foundation.html
