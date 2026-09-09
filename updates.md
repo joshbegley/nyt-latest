@@ -1,3 +1,7 @@
+**Frustrated Travelers Stranded After Air Traffic Control Glitch in Britain**\
+`Travelers were stranded at Heathrow and Gatwick airports after Britain’s air traffic control system had a technical issue that caused the cancellation of more than 1,000 flights.`\
+https://www.nytimes.com/video/world/europe/100000011140812/uk-flight-delays-london-heathrow-gatwick.html
+
 **Oil Hits $100 a Barrel as Turmoil Intensifies in Middle East**\
 `The cost of crude has risen 40 percent since the start of the war in Iran, pushing up the price of gasoline, diesel and other refined fuels.`\
 https://www.nytimes.com/2026/09/09/business/brent-oil-100-barrel-iran-war.html
