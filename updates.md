@@ -1,3 +1,7 @@
+**U.S. Designates Ecuador’s Los Tiguerones Gang as Terrorist Group**\
+`The sanctions that will now be imposed on Los Tiguerones are an increasingly common U.S. tactic, though they unlikely to hurt the gang financially.`\
+https://www.nytimes.com/2026/09/09/world/americas/ecuador-los-tiguerones-terrorist.html
+
 **As Republicans Gather in Dallas, Talarico Offers a Different Show**\
 `The Democratic Senate candidate used a food drive to sharpen his economic message against Ken Paxton.`\
 https://www.nytimes.com/2026/09/09/us/politics/talarico-republican-midterm-convention-counterprogramming.html

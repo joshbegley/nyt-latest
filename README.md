@@ -1,8 +1,16 @@
+**Trump Administration Accuses Berkeley Law School of Racial Discrimination**\
+`The Justice and Education Departments said the school had penalized white and Asian applicants, the latest in a series of investigations into admissions at elite universities.`\
+https://www.nytimes.com/2026/09/09/us/doj-california-berkeley.html
+
+**Back to School, Now With A.I.**\
+`This year is shaping up to be a global experiment in education: Can students embrace tech innovation without losing critical thinking skills?`\
+https://www.nytimes.com/2026/09/09/world/10int-theworld-web-ai-education.html
+
 **U.S. Designates Ecuador’s Los Tiguerones Gang as Terrorist Group**\
 `The sanctions that will now be imposed on Los Tiguerones are an increasingly common U.S. tactic, though they unlikely to hurt the gang financially.`\
 https://www.nytimes.com/2026/09/09/world/americas/ecuador-los-tiguerones-terrorist.html
 
-**As Republicans Gather in Dallas, Talarico Offers a Different Show**\
+**James Talarico Counters Trump’s Midterm Convention With Food Drive**\
 `The Democratic Senate candidate used a food drive to sharpen his economic message against Ken Paxton.`\
 https://www.nytimes.com/2026/09/09/us/politics/talarico-republican-midterm-convention-counterprogramming.html
 
@@ -177,12 +185,4 @@ https://www.nytimes.com/video/world/europe/100000011141527/canceled-flights-uk-a
 **Joseph Rice, Lowcountry Lawyer Who Took On Big Tobacco, Dies at 72**\
 `He challenged tobacco companies as well as the opioid industry, securing multibillion-dollar settlements that also benefited public health.`\
 https://www.nytimes.com/2026/09/09/us/joe-rice-dead.html
-
-**Read the lawsuit against groups tied to Cesar Chavez**\
-`A woman claiming that Cesar Chavez raped her in the 1970s is accusing nonprofit groups affiliated with the Chavez family and the United Farm Workers of negligence, sexual harassment and violations of state civil rights laws. The person who filed the lawsuit anonymously is referred to in the court document as Jane Doe. The suit contains descriptions of sexual assault.`\
-https://www.nytimes.com/interactive/2026/09/09/us/complaint-jane-doe-v-cesar-chavez-foundation.html
-
-**Canada and the Bully to Its South**\
-`Readers discuss the contrasts between the United States and Canada, and the renaming of Lake Ontario as Lake America. Also: Conquering “digital territory.”`\
-https://www.nytimes.com/2026/09/09/opinion/canada-united-states.html
 
