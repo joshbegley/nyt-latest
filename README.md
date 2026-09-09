@@ -1,3 +1,7 @@
+**Saudi Arabia Runs Out of Easy Routes for Oil to Bypass Iran War**\
+`Saudi Arabia’s oil exports are plummeting as oil prices surpass $100 a barrel.`\
+https://www.nytimes.com/2026/09/09/business/saudi-arabia-houthis-red-sea-oil-shipping.html
+
 **‘Ferris Bueller Gone Bad’: 22-Year-Old Pleads Guilty in Giant Bitcoin Heist**\
 `Malone Lam, a Singaporean citizen, admitted to stealing cryptocurrency valued at more than $245 million in one of the largest such heists in U.S. history.`\
 https://www.nytimes.com/2026/09/09/us/bitcoin-crypto-heist-malone-lam.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/09/learning/what-does-9-11-mean-to-you.html
 **‘Ted Lasso’ Season 4, Episode 6 Recap: Boat Party**\
 `The team does New Year’s Eve.`\
 https://www.nytimes.com/2026/09/09/arts/television/ted-lasso-season-4-episode-6-recap.html
-
-**Corrections: Sept. 9, 2026**\
-`Corrections that appeared in print on Wednesday, Sept. 9, 2026.`\
-https://www.nytimes.com/2026/09/09/pageoneplus/corrections-sept-9-2026.html
 
