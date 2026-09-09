@@ -1,3 +1,7 @@
+**Trump Doled Out $45,000 Cash Gifts to Natalie Harp and Other Aides Last Year**\
+`The money, listed as “cash gift for the holidays,” was detailed in financial disclosure forms released by the administration.`\
+https://www.nytimes.com/2026/09/09/us/politics/trump-doled-out-45000-cash-gifts-to-natalie-harp-and-other-aides-last-year.html
+
 **Trump’s Super PAC Is Tied to Mystery Group Spending $25 Million on Midterms**\
 `The recently created Republican group is pumping cash into half a dozen key midterm races, with the largest amounts going toward Senate contests in New Hampshire and Alaska.`\
 https://www.nytimes.com/2026/09/09/us/politics/trump-midterms-maga-inc-spending.html
