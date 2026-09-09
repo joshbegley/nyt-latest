@@ -1,5 +1,5 @@
-**Fetterman Praises Trump in Convention Video**\
-`Senator John Fetterman, who has become alienated from his own party, made a surprise virtual appearance, breaking with Democrats’ midterm message.`\
+**Fetterman Appears in Video in Opening Night of Trump’s Convention**\
+`Senator John Fetterman, who has become alienated from his own party, made a surprise virtual appearance, breaking with Democrats’ midterm message,`\
 https://www.nytimes.com/2026/09/09/us/politics/john-fetterman-trump-republican-convention.html
 
 **Brothers Seeking Pardons for Sex Trafficking Hire a Former Trump Lawyer**\
@@ -191,6 +191,6 @@ https://www.nytimes.com/2026/09/09/technology/apple-iphone-duo-foldable-phone.ht
 https://www.nytimes.com/2026/09/09/world/middleeast/syria-weapons-depot-blast.html
 
 **Live Updates: A Surprise Fetterman Video Jolts Trump’s Midterm Convention**\
-`The video appearance by Senator John Fetterman, a Pennsylvania Democrat, alienated from his own party, could fuel speculation about his political future. Mr. Trump is scheduled to speak later tonight in Dallas.`\
+`The video appearance by Senator John Fetterman, a Pennsylvania Democrat alienated from his own party, could fuel speculation about his political future. Mr. Trump is scheduled to speak later tonight in Dallas.`\
 https://www.nytimes.com/live/2026/09/09/us/rnc-trump-midterm-convention-updates
 
