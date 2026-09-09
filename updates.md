@@ -1,3 +1,7 @@
+**U.S. Hits 5 Iranian Oil Tankers, Citing Attempted Strikes on Warship**\
+`Iran retaliated by launching missiles at Jordan, raising the specter of still more fighting.`\
+https://www.nytimes.com/2026/09/08/world/middleeast/us-strikes-iran-tankers.html
+
 **Meta lanza agente de IA que puede enviar tus correos electrónicos y reservar tus viajes**\
 `Muse, el nuevo agente de IA de Meta, actúa como un asistente digital personal que se conecta a Facebook e Instagram, así como a aplicaciones de terceros como Spotify y OpenTable.`\
 https://www.nytimes.com/es/2026/09/08/espanol/negocios/whatsapp-facebook-chatbot-ia-muse.html
