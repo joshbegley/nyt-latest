@@ -1,3 +1,11 @@
+**Singapore’s Prime Minister Gets a Big Raise**\
+`Singapore’s prime minister, Lawrence Wong, got the bump as part of a longstanding policy to pay high salaries to public servants in order to attract top talent and prevent corruption.`\
+https://www.nytimes.com/2026/09/09/world/asia/singapore-minister-salary.html
+
+**US Open Day 10: Shelton Shocks Alcaraz in Latest Finish Ever**\
+`Ben Shelton set up an all-American US Open semifinal after a shock five-set win over Carlos Alcaraz in the early hours.`\
+https://www.nytimes.com/2026/09/09/podcasts/us-open-shelton-alcaraz-tennis.html
+
 **The Establishment Pulls Through: Five Takeaways from the New Hampshire Primaries**\
 `The U.S. Senate race will feature familiar faces: former Senator John E. Sununu and Chris Pappas, a four-term congressman. Stefany Shaheen, a senator’s daughter, eked out a win in a House primary.`\
 https://www.nytimes.com/2026/09/09/us/politics/new-hampshire-primaries-takeaways.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/09/theater/julia-louis-dreyfus-john-legend-broad
 **Book Review: ‘Is This It,’ by Steven Hyden**\
 `Steven Hyden considers the cultural shifts of the past 25 years in a new book about the band.`\
 https://www.nytimes.com/2026/09/09/books/review/steven-hyden-is-this-it.html
-
-**Camp Watches Has Personal Associations For Its Founder**\
-`The name Camp Watches, for example, honors the Michigan camp that Justin Jakobson attended as a boy.`\
-https://www.nytimes.com/2026/09/09/fashion/camp-watches-justin-jakobson-california.html
-
-**Jaeger-LeCoultre Now Has 6 Fragrances to Its Name**\
-`Jaeger-LeCoultre, which now has six fragrances to its name, says you would be surprised.`\
-https://www.nytimes.com/2026/09/09/fashion/watches-perfume-jaeger-lecoultre-switzerland.html
 
