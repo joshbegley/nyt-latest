@@ -1,3 +1,7 @@
+**Un pasajero indisciplinado es inmovilizado con cinta adhesiva durante un vuelo**\
+`El pasajero de un vuelo de American Airlines comenzó a gritar vulgaridades y luego se puso violento el jueves pasado, dijeron las autoridades. Fue entonces cuando dos pasajeros intervinieron.`\
+https://www.nytimes.com/es/2026/09/09/espanol/estados-unidos/avion-pasajero-delta-mala-conducta-cinta.html
+
 **Lesson Plan | Space Origami**\
 `What is a bloom pattern? What real-life applications might it offer?`\
 https://www.nytimes.com/2026/09/09/learning/space-origami.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/opinion/100000011126420/the-hyperpoliticization-of
 **Canada’s Carney Doubles Down on Pivot Away from the United States**\
 `With tariffs on U.S. goods in effect and high-profile international engagements coming up, the Canadian leader keeps moving toward his goal.`\
 https://www.nytimes.com/2026/09/08/world/canada/carney-trump-canada-us-trade-war.html
-
-**Kevin Reacts to OpenAI’s Recent Cybersecurity Incident**\
-`Several weeks after OpenAI’s chatbots attacked the company Hugging Face, the “Hard Fork” co-hosts Kevin Roose and Casey Newton reflect on the incident and what it means for A.I. development more broadly.`\
-https://www.nytimes.com/video/podcasts/100000011140232/kevin-reacts-to-openais-recent-cybersecurity-incident.html
 

@@ -1,3 +1,11 @@
+**Para un fotógrafo, las Torres Gemelas eran un punto focal siempre presente**\
+`Keith Meyers pasó años fotografiando las zonas costeras de la ciudad de Nueva York y sus alrededores. Las Torres Gemelas se convirtieron en un telón de fondo constante.`\
+https://www.nytimes.com/es/2026/09/09/espanol/estados-unidos/fotos-torres-gemelas-9-11.html
+
+**West Bank Residents Respond to New Sanctions**\
+`Britain, Canada and France on Tuesday announced sanctions on Israeli settlements in the occupied West Bank, drawing responses from both Israelis and Palestinians.`\
+https://www.nytimes.com/video/world/middleeast/100000011140725/israel-west-bank-settlements-sanctions.html
+
 **Un pasajero indisciplinado es inmovilizado con cinta adhesiva durante un vuelo**\
 `El pasajero de un vuelo de American Airlines comenzó a gritar vulgaridades y luego se puso violento el jueves pasado, dijeron las autoridades. Fue entonces cuando dos pasajeros intervinieron.`\
 https://www.nytimes.com/es/2026/09/09/espanol/estados-unidos/avion-pasajero-delta-mala-conducta-cinta.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/us/politics/100000011139844/trump-sept-11-terroris
 **Is Trump a ‘Tuning Fork for the Future’?**\
 `Is Trump an aberration or a “tuning fork for the future” of politics? The political historian Anton Jäger discusses on “The Ezra Klein Show.”`\
 https://www.nytimes.com/video/opinion/100000011126421/is-trump-a-tuning-fork-for-the-future.html
-
-**The ‘Hyperpoliticization’ of American Politics**\
-`Anton Jäger argues on “The Ezra Klein Show” that we’re in a distinct era of “hyperpolitics” — where politics feels volatile, ubiquitous and intense, but is not securely attached to institutions and structures.`\
-https://www.nytimes.com/video/opinion/100000011126420/the-hyperpoliticization-of-american-politics.html
-
-**Canada’s Carney Doubles Down on Pivot Away from the United States**\
-`With tariffs on U.S. goods in effect and high-profile international engagements coming up, the Canadian leader keeps moving toward his goal.`\
-https://www.nytimes.com/2026/09/08/world/canada/carney-trump-canada-us-trade-war.html
 

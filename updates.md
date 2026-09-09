@@ -1,3 +1,7 @@
+**Un pasajero indisciplinado es inmovilizado con cinta adhesiva durante un vuelo**\
+`El pasajero de un vuelo de American Airlines comenzó a gritar vulgaridades y luego se puso violento el jueves pasado, dijeron las autoridades. Fue entonces cuando dos pasajeros intervinieron.`\
+https://www.nytimes.com/es/2026/09/09/espanol/estados-unidos/avion-pasajero-delta-mala-conducta-cinta.html
+
 **Lesson Plan | Space Origami**\
 `What is a bloom pattern? What real-life applications might it offer?`\
 https://www.nytimes.com/2026/09/09/learning/space-origami.html
