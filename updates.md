@@ -1,3 +1,7 @@
+**Three Jurors in Clancy Trial Describe Frustration With Holdout**\
+`The three jurors, who voted to acquit Lindsay Clancy of murder, described the tense deliberations in an interview with a Boston TV station.`\
+https://www.nytimes.com/2026/09/08/us/jurors-lindsay-clancy-trial.html
+
 **NYT Crossword Answers for Sept. 9, 2026**\
 `Cast off your worries with a crossword by Dario Salvucci.`\
 https://www.nytimes.com/2026/09/08/crosswords/daily-puzzle-2026-09-09.html
