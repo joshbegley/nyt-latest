@@ -1,3 +1,7 @@
+**Sinkhole at Nicolas Cage’s Malibu Home Forces Evacuations**\
+`A sinkhole opened under the driveway of a beachfront home owned by the actor Nicolas Cage in Malibu, Calif., forcing local officials to order the evacuation of dozens of properties.`\
+https://www.nytimes.com/video/us/100000011141041/nicolas-cage-sinkhole-malibu-california.html
+
 **Measuring the Cost of Trump’s Multiple Wars**\
 `Voters and some Republican lawmakers are growing weary of President Trump’s trade battles and the economic fallout from fighting in the Middle East.`\
 https://www.nytimes.com/2026/09/09/business/dealbook/trump-costs-wars.html
@@ -8,7 +12,7 @@ https://www.nytimes.com/2026/09/09/business/dealbook/clay-ai-fundraising.html
 
 **Scientists Who Study Sleep and Narcolepsy Win Prestigious Lasker Award**\
 `The two researchers have won a prestigious Lasker Award. Their findings laid the groundwork for a new drug that addresses the sleep disorder’s root cause.`\
-https://www.nytimes.com/2026/09/09/science/these-scientists-untangled-what-causes-narcolepsy.html
+https://www.nytimes.com/2026/09/09/science/narcolepsy-sleep-lasker-award-researchers.html
 
 **A ‘Transformative’ Narcolepsy Drug Opens New Opportunities in Neuroscience**\
 `A first-of-its-kind drug for the sleep disorder offers a new treatment for people who live with the debilitating fog of sleepiness.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/09/us/university-professors-teaching-research-qu
 **The Long Road to Rebuilding  Lahaina After the 2023 Wildfire**\
 `Hawaii’s housing crisis was at a breaking point even before the fire. Since then, displaced families have struggled to rebuild their lives.`\
 https://www.nytimes.com/2026/09/09/magazine/maui-wildfire-hawaii-housing.html
-
-**Making Coffins in Ebola’s Epicenter**\
-`A coffin maker in the Democratic Republic of Congo has seen a significant increase in the number of coffins needed in Bunia since the latest Ebola outbreak began in May.`\
-https://www.nytimes.com/video/world/africa/100000011104028/making-coffins-in-ebolas-epicenter.html
 

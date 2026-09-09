@@ -1,3 +1,7 @@
+**Measuring the Cost of Trump’s Multiple Wars**\
+`Voters and some Republican lawmakers are growing weary of President Trump’s trade battles and the economic fallout from fighting in the Middle East.`\
+https://www.nytimes.com/2026/09/09/business/dealbook/trump-costs-wars.html
+
 **Clay, an A.I. Sales Tool Provider, Raises $115 Million**\
 `The round was led by Wellington Management, a firm known for investing in start-ups on the path toward potential initial public offerings.`\
 https://www.nytimes.com/2026/09/09/business/dealbook/clay-ai-fundraising.html
