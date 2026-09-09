@@ -1,3 +1,7 @@
+**Canada and the Bully to Its South**\
+`Readers discuss the contrasts between the United States and Canada, and the renaming of Lake Ontario as Lake America. Also: Conquering “digital territory.”`\
+https://www.nytimes.com/2026/09/09/opinion/canada-united-states.html
+
 **‘Tomatoes Turn Me On’**\
 `The chef and cookbook author Carla Lalli joins Anna Martin, the host of “Modern Love,” to talk about owning her cravings after her divorce.`\
 https://www.nytimes.com/video/podcasts/100000011139283/tomatoes-turn-me-on.html

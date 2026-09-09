@@ -1,3 +1,7 @@
+**Read the lawsuit against groups tied to Cesar Chavez**\
+`A woman claiming that Cesar Chavez raped her in the 1970s is accusing nonprofit groups affiliated with the Chavez family and the United Farm Workers of negligence, sexual harassment and violations of state civil rights laws. The person who filed the lawsuit anonymously is referred to in the court document as Jane Doe. The suit contains descriptions of sexual assault.`\
+https://www.nytimes.com/interactive/2026/09/09/us/complaint-jane-doe-v-cesar-chavez-foundation.html
+
 **Canada and the Bully to Its South**\
 `Readers discuss the contrasts between the United States and Canada, and the renaming of Lake Ontario as Lake America. Also: Conquering “digital territory.”`\
 https://www.nytimes.com/2026/09/09/opinion/canada-united-states.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/09/crosswords/wordle-review-1909.html
 **The Unanswered Questions in the N.B.A.’s Kawhi Leonard Ruling**\
 `Pablo on where the investigation goes next.`\
 https://www.nytimes.com/2026/09/09/podcasts/unanswered-questions-nba-kawhi-leonard-ruling.html
-
-**Un gobernador respalda a Trump pero contrata a trabajadores indocumentados**\
-`La empresa familiar del gobernador Jim Pillen es uno de los mayores productores porcinos de Estados Unidos. En su campaña por la reelección, se ha alineado con la agenda antinmigrante del presidente Trump, a pesar de que sus granjas han contratado a trabajadores indocumentados.`\
-https://www.nytimes.com/es/2026/09/09/espanol/ice-migrantes-nebraska-gobernador-trump.html
 
