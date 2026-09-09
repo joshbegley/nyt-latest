@@ -1,3 +1,11 @@
+**The Good List: 6 Things to Bring Joy to Your Day**\
+`Astronomical dawn, dahlia season and cute names for serious things.`\
+https://www.nytimes.com/2026/09/09/briefing/09-the-good-list-perfect-september.html
+
+**Trump’s Convention Offers an ‘Investor Experience’ and Pricey Tickets**\
+`Republicans are hoping to use the Dallas extravaganza as a fund-raising opportunity, with some local parties charging as much as $20,000 to be an “honorary delegate.”`\
+https://www.nytimes.com/2026/09/09/us/politics/trump-republican-midterm-convention-fundraising.html
+
 **Iran’s Strikes on Base in Jordan Caused Limited Damage, U.S. Officials Say**\
 `The latest round of fighting may result in reports of traumatic brain injuries among American service members, officials warned.`\
 https://www.nytimes.com/2026/09/09/us/politics/iran-strikes-jordan-base.html
@@ -177,12 +185,4 @@ https://www.nytimes.com/2026/09/09/us/republican-convention-protests-dallas.html
 **What to Wear on Campus This Fall**\
 `The host of The Fashions explains. And we share what you’re wearing.`\
 https://www.nytimes.com/2026/09/09/briefing/what-to-wear-on-campus-this-fall.html
-
-**Quick! Fresh Tomato Sauce!**\
-`The name of this five-star recipe is actually “quick fresh tomato sauce,” but I do need to make this right now, while the tomatoes are still so good.`\
-https://www.nytimes.com/2026/09/09/dining/quick-fresh-tomato-sauce.html
-
-**Should You Get a DEXA Scan at Menopause? What to Know About Bone Density Tests.**\
-`Some doctors and influencers say women shouldn’t wait until their 60s for a DEXA scan. Here’s what to consider before getting one.`\
-https://www.nytimes.com/2026/09/09/well/live/dexa-scan-bone-density-menopause.html
 
