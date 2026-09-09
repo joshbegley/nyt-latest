@@ -1,3 +1,11 @@
+**Sinkhole at Nicolas Cage’s Malibu Home Forces Evacuations**\
+`A sinkhole opened under the driveway of a beachfront home owned by the actor Nicolas Cage in Malibu, Calif., forcing local officials to order the evacuation of dozens of properties.`\
+https://www.nytimes.com/video/us/100000011141041/nicolas-cage-sinkhole-malibu-california.html
+
+**Scientists Who Study Sleep and Narcolepsy Win Prestigious Lasker Award**\
+`The two researchers have won a prestigious Lasker Award. Their findings laid the groundwork for a new drug that addresses the sleep disorder’s root cause.`\
+https://www.nytimes.com/2026/09/09/science/narcolepsy-sleep-lasker-award-researchers.html
+
 **Measuring the Cost of Trump’s Multiple Wars**\
 `Voters and some Republican lawmakers are growing weary of President Trump’s trade battles and the economic fallout from fighting in the Middle East.`\
 https://www.nytimes.com/2026/09/09/business/dealbook/trump-costs-wars.html
