@@ -1,3 +1,11 @@
+**Los salvadoreños mantendrán sus protecciones contra la deportación de EE. UU. por ahora**\
+`Estaba previsto que el Estatus de Protección Temporal para El Salvador expirara el miércoles. El gobierno de Trump dijo que haría un anuncio sobre el futuro del programa “en el momento adecuado”.`\
+https://www.nytimes.com/es/2026/09/09/espanol/estados-unidos/tps-el-salvador-trump.html
+
+**Lost at the U.S. Open? Find the Super-Cheerful People in Straw Hats.**\
+`No matter the problem, the U.S. Open ambassadors are here to help.`\
+https://www.nytimes.com/2026/09/09/nyregion/tennis-us-open-ambassadors.html
+
 **Hunter Biden’s ‘Laptop’ Crypto Coin Plummets Upon Launching**\
 `The president’s son portrayed his memecoin as a symbol of redemption. Critics denounced it as hypocrisy.`\
 https://www.nytimes.com/2026/09/09/us/politics/hunter-biden-crypto-coin-laptop.html
