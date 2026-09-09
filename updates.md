@@ -1,3 +1,7 @@
+**Nepal’s Flood Relief Workers Feel the Pain of Trump’s Cuts to U.S.A.I.D.**\
+`The agency played an important role in responding to earlier disasters like the 2015 earthquake. But the U.S. and other countries have pulled back, Nepali officials and humanitarian groups say.`\
+https://www.nytimes.com/2026/09/09/world/asia/nepal-floods-usaid-trump-relief.html
+
 **The Theme Park at the Heart of France’s Culture War**\
 `The Puy du Fou is one of France’s most visited theme parks. Its founder says it gives the French a “founding narrative,” but critics say it peddles “far-right propaganda.”`\
 https://www.nytimes.com/2026/09/09/world/europe/theme-park-france-right-culture-war.html

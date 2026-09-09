@@ -1,3 +1,7 @@
+**Nepal’s Flood Relief Workers Feel the Pain of Trump’s Cuts to U.S.A.I.D.**\
+`The agency played an important role in responding to earlier disasters like the 2015 earthquake. But the U.S. and other countries have pulled back, Nepali officials and humanitarian groups say.`\
+https://www.nytimes.com/2026/09/09/world/asia/nepal-floods-usaid-trump-relief.html
+
 **¿Cuán seguros son los tatuajes?**\
 `El proceso para hacerte un tatuaje puede provocar algunas reacciones en tu cuerpo. Esto es lo que saben los expertos sobre el riesgo.`\
 https://www.nytimes.com/es/2026/09/09/espanol/tatuajes-riesgos.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/08/nyregion/murder-robbery-guilty-plea-nyc-woman
 **Restaurant Review: Lonnies in NYC**\
 `Lonnies, the new Boerum Hill spot from the Inga’s Bar team, is brand-new and thriving.`\
 https://www.nytimes.com/2026/09/08/dining/restaurant-review-lonnies-nyc.html
-
-**California’s Ambitious Plan for Textile Waste**\
-`A recycling law coming into force now could change fashion.`\
-https://www.nytimes.com/2026/09/08/climate/californias-fast-fashion-textile-waste.html
 
