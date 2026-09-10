@@ -1,3 +1,5 @@
+
+
 **Quote of the Day: A Refugee’s Detention by ICE Set a Clock Ticking**\
 `Quotation of the Day for Thursday, September 10, 2026.`\
 https://www.nytimes.com/2026/09/10/pageoneplus/quote-of-the-day-a-refugees-detention-by-ice-set-a-clock-ticking.html
