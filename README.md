@@ -182,10 +182,6 @@ https://www.nytimes.com/2026/09/09/us/politics/hunter-biden-crypto-coin-laptop.h
 `Astronomical dawn, dahlia season and cute names for serious things.`\
 https://www.nytimes.com/2026/09/09/briefing/09-the-good-list-perfect-september.html
 
-**Trump’s Convention Offers an Unusual Fund-Raising Opportunity for Republicans**\
-`Republicans are hoping to use the Dallas extravaganza as a fund-raising opportunity, with some local parties charging as much as $20,000 to be an “honorary delegate.”`\
-https://www.nytimes.com/2026/09/09/us/politics/trump-republican-midterm-convention-fundraising.html
-
 **Live Updates: Trump Addresses Republicans at Midterm Convention**\
 `(No description)`\
 https://www.nytimes.com/live/2026/09/09/us/rnc-trump-midterm-convention-updates

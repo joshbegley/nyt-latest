@@ -186,14 +186,6 @@ https://www.nytimes.com/2026/09/09/briefing/09-the-good-list-perfect-september.h
 `Republicans are hoping to use the Dallas extravaganza as a fund-raising opportunity, with some local parties charging as much as $20,000 to be an “honorary delegate.”`\
 https://www.nytimes.com/2026/09/09/us/politics/trump-republican-midterm-convention-fundraising.html
 
-**Iran’s Strikes on Base in Jordan Caused Limited Damage, U.S. Officials Say**\
-`The latest round of fighting may result in reports of traumatic brain injuries among American service members, officials warned.`\
-https://www.nytimes.com/2026/09/09/us/politics/iran-strikes-jordan-base.html
-
-**Un video muestra al gerente de un supermercado que salva a una niña en Puebla**\
-`Luis Cruz corrió hacia una calle transitada para apartar a una niña del camino de una camioneta que se aproximaba. El video del rescate lo ha convertido en una sensación local.`\
-https://www.nytimes.com/es/2026/09/09/espanol/video-nina-atropellada-puebla.html
-
 **Live Updates: Trump Addresses Republicans at Midterm Convention**\
 `(No description)`\
 https://www.nytimes.com/live/2026/09/09/us/rnc-trump-midterm-convention-updates
