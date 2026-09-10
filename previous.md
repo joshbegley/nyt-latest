@@ -178,11 +178,7 @@ https://www.nytimes.com/2026/09/09/nyregion/tennis-us-open-ambassadors.html
 `The president’s son portrayed his memecoin as a symbol of redemption. Critics denounced it as hypocrisy.`\
 https://www.nytimes.com/2026/09/09/us/politics/hunter-biden-crypto-coin-laptop.html
 
-**The Good List: 6 Things to Bring Joy to Your Day**\
-`Astronomical dawn, dahlia season and cute names for serious things.`\
-https://www.nytimes.com/2026/09/09/briefing/09-the-good-list-perfect-september.html
-
-**Live Updates: Trump Addresses Republicans at Midterm Convention**\
+**Live Updates: Trump Casts Midterms as Referendum on Himself at G.O.P. Convention**\
 `(No description)`\
 https://www.nytimes.com/live/2026/09/09/us/rnc-trump-midterm-convention-updates
 

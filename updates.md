@@ -1,3 +1,7 @@
+**Live Updates: Trump Casts Midterms as Referendum on Himself at G.O.P. Convention**\
+`(No description)`\
+https://www.nytimes.com/live/2026/09/09/us/rnc-trump-midterm-convention-updates
+
 **Live Updates: Trump Addresses Republicans at Midterm Convention**\
 `(No description)`\
 https://www.nytimes.com/live/2026/09/09/us/rnc-trump-midterm-convention-updates
