@@ -1,3 +1,7 @@
+**Back to School, Now With A.I.**\
+`This year is shaping up to be a global experiment in education: Can students embrace tech innovation without losing critical thinking skills?`\
+https://www.nytimes.com/2026/09/09/world/10int-theworld-web-ai-education.html
+
 **Republican Senate Candidates Avoid Tariffs and Iran War at Trump’s Convention**\
 `Four battleground Senate nominees who spoke sidestepped a pair of issues that have posed political challenges, focusing instead on Mr. Trump’s tax law and other topics.`\
 https://www.nytimes.com/2026/09/09/us/politics/republican-senate-candidates-trump-convention.html
