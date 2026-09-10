@@ -1,3 +1,7 @@
+**Helena Foulkes Defeats Rhode Island Gov. Dan McKee in Democratic Primary**\
+`Ms. Foulkes, a former CVS executive, had hammered Mr. McKee for his handling of a bridge closure that created traffic nightmares.`\
+https://www.nytimes.com/2026/09/09/us/rhode-island-governor-democrat-foulkes-mckee.html
+
 **A Flyover for 9/11 in Denver, With a United Jet and F-16s, Is Called Off**\
 `The company said the flyover was meant to be a “meaningful gesture to honor the memory of those lost within the pilot community.”`\
 https://www.nytimes.com/2026/09/09/us/united-airlines-9-11-denver-flyover.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/video/technology/personaltech/100000011141460/apple-ipho
 **King Harald V’s Funeral Draws Thousands of Mourners**\
 `Thousands of mourners gathered in Oslo for the funeral of King Harald V on Wednesday. Royal families and heads of state attended the ceremony. Harald, who died in August, was 89.`\
 https://www.nytimes.com/video/world/europe/100000011141711/norway-king-harald-funeral.html
-
-**Yemen Tilts Toward Full-Scale War as Saudi-Houthi Clashes Escalate**\
-`With its oil-export routes once again under threat, Saudi Arabia is stepping up its military campaign against an old antagonist.`\
-https://www.nytimes.com/2026/09/09/world/middleeast/saudi-yemen-strilkes.html
 
 **Live Updates: A Surprise Fetterman Video Jolts Trump’s Midterm Convention**\
 `The video appearance by Senator John Fetterman, a Pennsylvania Democrat alienated from his own party, could fuel speculation about his political future. Mr. Trump is scheduled to speak later tonight in Dallas.`\
