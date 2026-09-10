@@ -1,3 +1,19 @@
+**AOC Hits the Campaign Trail for Senate Candidate Angie Nixon in Florida**\
+`The progressive representative from New York spoke at a small event to help lift the underdog Senate candidate Angie Nixon.`\
+https://www.nytimes.com/2026/09/09/us/politics/angie-nixon-alexandria-ocasio-cortez-florida.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011143251/09vid-rnc-dallas-trump-clothing-55503.html
+
+**Brothers Seeking Pardons for Sex Trafficking Hire a Former Trump Lawyer**\
+`Documents appear to show payments were made to the lawyer Alan M. Dershowitz to pursue “executive clemency and judicial reversal” for Tal, Oren and Alon Alexander.`\
+https://www.nytimes.com/2026/09/09/nyregion/dershowitz-alexander-brothers-pardon.html
+
+**Live Updates: Trump Set to Address Republicans at Midterm Convention**\
+`(No description)`\
+https://www.nytimes.com/live/2026/09/09/us/rnc-trump-midterm-convention-updates
+
 **Watch Live: Trump Speaks at the G.O.P. Midterm Convention**\
 `President Trump delivers remarks at the Republican midterm convention in Dallas.`\
 https://www.nytimes.com/video/embedded/us/politics/100000011143237/watch-live-trump-speech-midterm.html

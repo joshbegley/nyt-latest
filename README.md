@@ -1,3 +1,7 @@
+**Fetterman’s Surprise GOP Convention Video Angers Democrats**\
+`Democrats in Pennsylvania reacted with a mix of annoyance and eye-rolling to Senator John Fetterman’s video appearance at Republicans’ midterm convention.`\
+https://www.nytimes.com/2026/09/09/us/politics/democrats-fetterman-trump-convention.html
+
 **AOC Hits the Campaign Trail for Senate Candidate Angie Nixon in Florida**\
 `The progressive representative from New York spoke at a small event to help lift the underdog Senate candidate Angie Nixon.`\
 https://www.nytimes.com/2026/09/09/us/politics/angie-nixon-alexandria-ocasio-cortez-florida.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/09/09/us/politics/iran-strikes-jordan-base.html
 **Un video muestra al gerente de un supermercado que salva a una niña en Puebla**\
 `Luis Cruz corrió hacia una calle transitada para apartar a una niña del camino de una camioneta que se aproximaba. El video del rescate lo ha convertido en una sensación local.`\
 https://www.nytimes.com/es/2026/09/09/espanol/video-nina-atropellada-puebla.html
-
-**The Local: Tackling heat and talking to Klobuchar**\
-`Plus, the State Fair by the numbers.`\
-https://www.nytimes.com/2026/09/09/briefing/heat-island-effect.html
 
 **Live Updates: Trump Set to Address Republicans at Midterm Convention**\
 `(No description)`\

@@ -1,3 +1,11 @@
+**AOC Hits the Campaign Trail for Senate Candidate Angie Nixon in Florida**\
+`The progressive representative from New York spoke at a small event to help lift the underdog Senate candidate Angie Nixon.`\
+https://www.nytimes.com/2026/09/09/us/politics/angie-nixon-alexandria-ocasio-cortez-florida.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011143251/09vid-rnc-dallas-trump-clothing-55503.html
+
 **Watch Live: Trump Speaks at the G.O.P. Midterm Convention**\
 `President Trump delivers remarks at the Republican midterm convention in Dallas.`\
 https://www.nytimes.com/video/embedded/us/politics/100000011143237/watch-live-trump-speech-midterm.html
@@ -32,7 +40,7 @@ https://www.nytimes.com/2026/09/09/us/politics/john-fetterman-trump-republican-c
 
 **Brothers Seeking Pardons for Sex Trafficking Hire a Former Trump Lawyer**\
 `Documents appear to show payments were made to the lawyer Alan M. Dershowitz to pursue “executive clemency and judicial reversal” for Tal, Oren and Alon Alexander.`\
-https://www.nytimes.com/2026/09/09/realestate/dershowitz-alexander-brothers-pardon.html
+https://www.nytimes.com/2026/09/09/nyregion/dershowitz-alexander-brothers-pardon.html
 
 **Trump’s Census Overhaul Would Exclude Some Immigrants and Remove Questions on Race**\
 `The proposals for 2030 are among significant changes that would upend a process for helping allot congressional seats and shape policies that address disparities.`\
@@ -186,11 +194,7 @@ https://www.nytimes.com/es/2026/09/09/espanol/video-nina-atropellada-puebla.html
 `Plus, the State Fair by the numbers.`\
 https://www.nytimes.com/2026/09/09/briefing/heat-island-effect.html
 
-**Apple Launches Its First Foldable iPhone**\
-`Apple introduced the iPhone Duo, the company’s first device that opens and closes like a book, at the company’s annual product event on Wednesday.`\
-https://www.nytimes.com/video/technology/personaltech/100000011141460/apple-iphone-duo-foldable-phone.html
-
-**Live Updates: Trump to Address Convention Soon After Surprise Fetterman Video**\
-`The video appearance by Senator John Fetterman, a Pennsylvania Democrat alienated from his own party, could fuel speculation about his political future. Mr. Trump is scheduled to close the first night of the gathering in Dallas.`\
+**Live Updates: Trump Set to Address Republicans at Midterm Convention**\
+`(No description)`\
 https://www.nytimes.com/live/2026/09/09/us/rnc-trump-midterm-convention-updates
 
