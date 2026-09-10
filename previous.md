@@ -1,9 +1,13 @@
+**Trump Takes No Position on Allies’ Sanctions Against Israeli Settlements**\
+`The president declined to say whether the United States opposed measures taken by Britain, Canada and France over violence against Palestinians in the West Bank.`\
+https://www.nytimes.com/2026/09/09/us/politics/trump-sanctions-israel-settlements-palestinians.html
+
 **Emergency Slide Is Accidentally Deployed on New Air Force One**\
 `A military aide accidentally deployed the emergency slide on the new Air Force One on Wednesday, according to a person familiar with the episode.`\
 https://www.nytimes.com/video/us/politics/100000011142824/trump-air-force-one-emergency-slide.html
 
-**Fetterman Appears in Video in Opening Night of Trump’s Convention**\
-`Senator John Fetterman, who has become alienated from his own party, made a surprise virtual appearance, breaking with Democrats’ midterm message,`\
+**Fetterman Makes a Surprise Cameo at Trump’s Convention**\
+`Senator John Fetterman, who has become alienated from his own party, appeared in a short video filmed in front of a steel mill, saying he is “always going to reject the extremes in socialism.”`\
 https://www.nytimes.com/2026/09/09/us/politics/john-fetterman-trump-republican-convention.html
 
 **Brothers Seeking Pardons for Sex Trafficking Hire a Former Trump Lawyer**\
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/09/09/world/europe/spain-ceuta-migrants-report.html
 **William Anderson, Doctor and Civil Rights Leader in Georgia, Dies at 98**\
 `An osteopath in Albany, Ga., he drew national attention, and the involvement of the Rev. Dr. Martin Luther King Jr., for his efforts to end segregation.`\
 https://www.nytimes.com/2026/09/09/us/william-anderson-dead.html
-
-**Apple Unveils the iPhone Duo, a Foldable Phone That Costs $1,999**\
-`At the company’s annual September product event, Apple also demonstrated its work on artificial intelligence and other new devices.`\
-https://www.nytimes.com/2026/09/09/technology/apple-iphone-duo-foldable-phone.html
 
 **Live Updates: A Surprise Fetterman Video Jolts Trump’s Midterm Convention**\
 `The video appearance by Senator John Fetterman, a Pennsylvania Democrat alienated from his own party, could fuel speculation about his political future. Mr. Trump is scheduled to speak later tonight in Dallas.`\
