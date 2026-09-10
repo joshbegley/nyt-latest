@@ -158,10 +158,6 @@ https://www.nytimes.com/2026/09/09/us/politics/talarico-republican-midterm-conve
 `As they wait for word on whether the Trump administration’s new system to screen ballots can move forward, local officials say they are running out of time.`\
 https://www.nytimes.com/2026/09/09/us/politics/election-officials-confusion-mail-ballots.html
 
-**Misery at Heathrow: ‘Never Seen Chaos Like That’**\
-`Over 2,000 flights have been disrupted in the past two days, as an air-traffic control problem has stymied British airports.`\
-https://www.nytimes.com/2026/09/09/world/europe/heathrow-uk-flights-travel.html
-
 **Live Updates: Trump Casts Midterms as Referendum on Himself at G.O.P. Convention**\
 `(No description)`\
 https://www.nytimes.com/live/2026/09/09/us/rnc-trump-midterm-convention-updates
