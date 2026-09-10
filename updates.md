@@ -1,3 +1,5 @@
+
+
 **Apple presenta el iPhone Duo, un celular plegable de 1999 dólares**\
 `La empresa debuta en el mercado de las dobles pantallas con un producto de alta gama.`\
 https://www.nytimes.com/es/2026/09/09/espanol/negocios/apple-iphone-duo-precio-cuando-sale.html
