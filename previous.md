@@ -1,3 +1,15 @@
+**August Ties for Hottest Month on Record**\
+`Sweltering summer temperatures put last month on par with July 2023 for global warmth, scientists said. More records could be broken in the months ahead.`\
+https://www.nytimes.com/2026/09/09/climate/august-hottest-month-global-warming.html
+
+**How Fighting Fires Became an All-of-Europe Project**\
+`The European Union isn’t known for firefighting expertise. But with the continent ablaze, Brussels is playing a growing role.`\
+https://www.nytimes.com/2026/09/09/world/europe/eu-fire-fighting.html
+
+**NYT Crossword Answers for Sept. 10, 2026**\
+`Blanking on the clues in Simeon Seigel’s puzzle?`\
+https://www.nytimes.com/2026/09/09/crosswords/daily-puzzle-2026-09-10.html
+
 **Fetterman’s Surprise GOP Convention Video Angers Democrats**\
 `Democrats in Pennsylvania reacted with a mix of annoyance and eye-rolling to Senator John Fetterman’s video appearance at Republicans’ midterm convention.`\
 https://www.nytimes.com/2026/09/09/us/politics/democrats-fetterman-trump-convention.html
@@ -149,26 +161,6 @@ https://www.nytimes.com/2026/09/09/us/politics/election-officials-confusion-mail
 **Misery at Heathrow: ‘Never Seen Chaos Like That’**\
 `Over 2,000 flights have been disrupted in the past two days, as an air-traffic control problem has stymied British airports.`\
 https://www.nytimes.com/2026/09/09/world/europe/heathrow-uk-flights-travel.html
-
-**How the Super Godzilla Monster El Niño Could Actually Affect Your Weather**\
-`Yes, El Niño is unusually powerful this time. But that’s not always a bad thing.`\
-https://www.nytimes.com/2026/09/09/weather/el-nino-weather-forecast-facts.html
-
-**New Mexico’s Name Is Older Than the U.S. Trump Still Wants to Change It.**\
-`President Trump has no authority to change the state’s name, but his suggestion has constituted fighting words to proud New Mexicans.`\
-https://www.nytimes.com/2026/09/09/us/new-america-trump-reaction-new-mexico.html
-
-**Lucien Smith, Art-World Star Whose Career Abruptly Turned, Dies at 37**\
-`A phenom in his 20s, he became the poster child for Zombie Formalism before abandoning the gallery frenzy for Montauk.`\
-https://www.nytimes.com/2026/09/09/obituaries/lucien-smith-dead.html
-
-**Trump Is Delayed After Emergency Slide Deploys on New Air Force One**\
-`The mishap occurred while the Qatari-donated jet was parked on the tarmac at Joint Base Andrews. It delayed President Trump’s departure to a Republican convention in Dallas.`\
-https://www.nytimes.com/2026/09/09/us/politics/emergency-slide-air-force-one-trump.html
-
-**Los salvadoreños mantendrán sus protecciones contra la deportación de EE. UU. por ahora**\
-`Estaba previsto que el Estatus de Protección Temporal para El Salvador expirara el miércoles. El gobierno de Trump dijo que haría un anuncio sobre el futuro del programa “en el momento adecuado”.`\
-https://www.nytimes.com/es/2026/09/09/espanol/estados-unidos/tps-el-salvador-trump.html
 
 **Live Updates: Trump Casts Midterms as Referendum on Himself at G.O.P. Convention**\
 `(No description)`\

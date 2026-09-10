@@ -1,3 +1,15 @@
+**August Ties for Hottest Month on Record**\
+`Sweltering summer temperatures put last month on par with July 2023 for global warmth, scientists said. More records could be broken in the months ahead.`\
+https://www.nytimes.com/2026/09/09/climate/august-hottest-month-global-warming.html
+
+**How Fighting Fires Became an All-of-Europe Project**\
+`The European Union isn’t known for firefighting expertise. But with the continent ablaze, Brussels is playing a growing role.`\
+https://www.nytimes.com/2026/09/09/world/europe/eu-fire-fighting.html
+
+**NYT Crossword Answers for Sept. 10, 2026**\
+`Blanking on the clues in Simeon Seigel’s puzzle?`\
+https://www.nytimes.com/2026/09/09/crosswords/daily-puzzle-2026-09-10.html
+
 **Live Updates: Trump Casts Midterms as Referendum on Himself at G.O.P. Convention**\
 `(No description)`\
 https://www.nytimes.com/live/2026/09/09/us/rnc-trump-midterm-convention-updates
