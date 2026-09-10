@@ -1,3 +1,5 @@
+
+
 **Iran’s Strikes on Base in Jordan Caused Limited Damage, U.S. Officials Say**\
 `The latest round of fighting may result in reports of traumatic brain injuries among American service members, officials warned.`\
 https://www.nytimes.com/2026/09/09/us/politics/iran-strikes-jordan-base.html
