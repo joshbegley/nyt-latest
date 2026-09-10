@@ -1,4 +1,8 @@
 **Live Updates: Trump Urges Republicans at Convention to ‘Pretend I’m on the Ballot’**\
+`The president promised a $5,000 payment to every adult citizen if Republicans keep control of Congress, but his sagging approval ratings could complicate his midterm message.`\
+https://www.nytimes.com/live/2026/09/09/us/rnc-trump-midterm-convention-updates
+
+**Live Updates: Trump Urges Republicans at Convention to ‘Pretend I’m on the Ballot’**\
 `(No description)`\
 https://www.nytimes.com/live/2026/09/09/us/rnc-trump-midterm-convention-updates
 

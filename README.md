@@ -150,7 +150,7 @@ https://www.nytimes.com/2026/09/09/us/doj-california-berkeley.html
 `This year is shaping up to be a global experiment in education: Can students embrace tech innovation without losing critical thinking skills?`\
 https://www.nytimes.com/2026/09/09/world/10int-theworld-web-ai-education.html
 
-**Live Updates: Trump Urges Republicans at Convention to ‘Pretend I’m on the Ballot’**\
-`The president promised a $5,000 payment to every adult citizen if Republicans keep control of Congress, but his sagging approval ratings could complicate his midterm message.`\
+**Live Updates: Trump Promises Americans $5,000, but Only if Republicans Win Midterms**\
+`The president vowed to pay a “dividend” to every adult citizen if Republicans keep control of Congress. But his sagging approval ratings could endanger his party’s chances in November.`\
 https://www.nytimes.com/live/2026/09/09/us/rnc-trump-midterm-convention-updates
 
