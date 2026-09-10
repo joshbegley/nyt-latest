@@ -1,3 +1,11 @@
+**Watch Live: Trump Speaks at the G.O.P. Midterm Convention**\
+`President Trump delivers remarks at the Republican midterm convention in Dallas.`\
+https://www.nytimes.com/video/embedded/us/politics/100000011143237/watch-live-trump-speech-midterm.html
+
+**Live Updates: Trump to Address Convention Soon After Surprise Fetterman Video**\
+`The video appearance by Senator John Fetterman, a Pennsylvania Democrat alienated from his own party, could fuel speculation about his political future. Mr. Trump is scheduled to close the first night of the gathering in Dallas.`\
+https://www.nytimes.com/live/2026/09/09/us/rnc-trump-midterm-convention-updates
+
 **Helena Foulkes Defeats Rhode Island Gov. Dan McKee in Democratic Primary**\
 `Ms. Foulkes, a former CVS executive, had hammered Mr. McKee for his handling of a bridge closure that created traffic nightmares.`\
 https://www.nytimes.com/2026/09/09/us/rhode-island-governor-democrat-foulkes-mckee.html
