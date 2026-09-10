@@ -1,3 +1,7 @@
+**Fetterman’s Surprise GOP Convention Video Angers Democrats**\
+`Democrats in Pennsylvania reacted with a mix of annoyance and eye-rolling to Senator John Fetterman’s video appearance at Republicans’ midterm convention.`\
+https://www.nytimes.com/2026/09/09/us/politics/democrats-fetterman-trump-convention.html
+
 **AOC Hits the Campaign Trail for Senate Candidate Angie Nixon in Florida**\
 `The progressive representative from New York spoke at a small event to help lift the underdog Senate candidate Angie Nixon.`\
 https://www.nytimes.com/2026/09/09/us/politics/angie-nixon-alexandria-ocasio-cortez-florida.html
