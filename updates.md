@@ -1,3 +1,7 @@
+**Republican Senate Candidates Avoid Tariffs and Iran War at Trump’s Convention**\
+`Four battleground Senate nominees who spoke sidestepped a pair of issues that have posed political challenges, focusing instead on Mr. Trump’s tax law and other topics.`\
+https://www.nytimes.com/2026/09/09/us/politics/republican-senate-candidates-trump-convention.html
+
 **Live Updates: Trump Floats $5,000 Checks to Americans if Republicans Win Midterms**\
 `The president offered a “dividend” to every adult citizen if Republicans keep control of Congress. But his sagging approval ratings could endanger his party’s chances in November.`\
 https://www.nytimes.com/live/2026/09/09/us/rnc-trump-midterm-convention-updates
