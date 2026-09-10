@@ -1,3 +1,7 @@
+**Anonymous Letter Set Investigation Into a Lieutenant Governor in Motion**\
+`The letter claimed that Dale Caldwell, New Jersey’s lieutenant governor, brought “uninvited female guests” to events. Mr. Caldwell said the complaint rested on “misinformation.”`\
+https://www.nytimes.com/2026/09/09/nyregion/new-jersey-dale-caldwell-lieutenant-governor-investigation.html
+
 **Fetterman Has a Surprise Cameo at Trump’s Convention**\
 `Senator John Fetterman, who has become alienated from his own party, appeared in a short video filmed in front of a steel mill, saying he is “always going to reject the extremes in socialism.”`\
 https://www.nytimes.com/2026/09/09/us/politics/john-fetterman-trump-republican-convention.html
