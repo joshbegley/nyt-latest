@@ -1,3 +1,183 @@
+**Back to School, Now With A.I.**\
+`This year is shaping up to be a global experiment in education: Can students embrace tech innovation without losing critical thinking skills?`\
+https://www.nytimes.com/2026/09/09/world/10int-theworld-web-ai-education.html
+
+**U.S. Designates Ecuador’s Los Tiguerones Gang as Terrorist Group**\
+`The sanctions on Los Tiguerones imposed by Secretary of State Marco Rubio are an increasingly common U.S. tactic, though they will likely not hurt the gang’s finances.`\
+https://www.nytimes.com/2026/09/09/world/americas/ecuador-los-tiguerones-terrorist.html
+
+**James Talarico Counters Trump’s Midterm Convention With Food Drive**\
+`The Democratic Senate candidate used a food drive to sharpen his economic message against Ken Paxton.`\
+https://www.nytimes.com/2026/09/09/us/politics/talarico-republican-midterm-convention-counterprogramming.html
+
+**Election Officials Grapple With Uncertainty as Supreme Court Considers Mail Ballot Plan**\
+`As they wait for word on whether the Trump administration’s new system to screen ballots can move forward, local officials say they are running out of time.`\
+https://www.nytimes.com/2026/09/09/us/politics/election-officials-confusion-mail-ballots.html
+
+**Misery at Heathrow: ‘Never Seen Chaos Like That’**\
+`Over 2,000 flights have been disrupted in the past two days, as an air-traffic control problem has stymied British airports.`\
+https://www.nytimes.com/2026/09/09/world/europe/heathrow-uk-flights-travel.html
+
+**How the Super Godzilla Monster El Niño Could Actually Affect Your Weather**\
+`Yes, El Niño is unusually powerful this time. But that’s not always a bad thing.`\
+https://www.nytimes.com/2026/09/09/weather/el-nino-weather-forecast-facts.html
+
+**New Mexico’s Name Is Older Than the U.S. Trump Still Wants to Change It.**\
+`President Trump has no authority to change the state’s name, but his suggestion has constituted fighting words to proud New Mexicans.`\
+https://www.nytimes.com/2026/09/09/us/new-america-trump-reaction-new-mexico.html
+
+**Lucien Smith, Art-World Star Whose Career Abruptly Turned, Dies at 37**\
+`A phenom in his 20s, he became the poster child for Zombie Formalism before abandoning the gallery frenzy for Montauk.`\
+https://www.nytimes.com/2026/09/09/obituaries/lucien-smith-dead.html
+
+**Trump Is Delayed After Emergency Slide Deploys on New Air Force One**\
+`The mishap occurred while the Qatari-donated jet was parked on the tarmac at Joint Base Andrews. It delayed President Trump’s departure to a Republican convention in Dallas.`\
+https://www.nytimes.com/2026/09/09/us/politics/emergency-slide-air-force-one-trump.html
+
+**Los salvadoreños mantendrán sus protecciones contra la deportación de EE. UU. por ahora**\
+`Estaba previsto que el Estatus de Protección Temporal para El Salvador expirara el miércoles. El gobierno de Trump dijo que haría un anuncio sobre el futuro del programa “en el momento adecuado”.`\
+https://www.nytimes.com/es/2026/09/09/espanol/estados-unidos/tps-el-salvador-trump.html
+
+**Lost at the U.S. Open? Find the Super-Cheerful People in Straw Hats.**\
+`No matter the problem, the U.S. Open ambassadors are here to help.`\
+https://www.nytimes.com/2026/09/09/nyregion/tennis-us-open-ambassadors.html
+
+**Hunter Biden’s ‘Laptop’ Crypto Coin Plummets Upon Launching**\
+`The president’s son portrayed his memecoin as a symbol of redemption. Critics denounced it as hypocrisy.`\
+https://www.nytimes.com/2026/09/09/us/politics/hunter-biden-crypto-coin-laptop.html
+
+**The Good List: 6 Things to Bring Joy to Your Day**\
+`Astronomical dawn, dahlia season and cute names for serious things.`\
+https://www.nytimes.com/2026/09/09/briefing/09-the-good-list-perfect-september.html
+
+**Trump’s Convention Offers an Unusual Fund-Raising Opportunity for Republicans**\
+`Republicans are hoping to use the Dallas extravaganza as a fund-raising opportunity, with some local parties charging as much as $20,000 to be an “honorary delegate.”`\
+https://www.nytimes.com/2026/09/09/us/politics/trump-republican-midterm-convention-fundraising.html
+
+**Iran’s Strikes on Base in Jordan Caused Limited Damage, U.S. Officials Say**\
+`The latest round of fighting may result in reports of traumatic brain injuries among American service members, officials warned.`\
+https://www.nytimes.com/2026/09/09/us/politics/iran-strikes-jordan-base.html
+
+**Un video muestra al gerente de un supermercado que salva a una niña en Puebla**\
+`Luis Cruz corrió hacia una calle transitada para apartar a una niña del camino de una camioneta que se aproximaba. El video del rescate lo ha convertido en una sensación local.`\
+https://www.nytimes.com/es/2026/09/09/espanol/video-nina-atropellada-puebla.html
+
+**The Local: Tackling heat and talking to Klobuchar**\
+`Plus, the State Fair by the numbers.`\
+https://www.nytimes.com/2026/09/09/briefing/heat-island-effect.html
+
+**Apple Launches Its First Foldable iPhone**\
+`Apple introduced the iPhone Duo, the company’s first device that opens and closes like a book, at the company’s annual product event on Wednesday.`\
+https://www.nytimes.com/video/technology/personaltech/100000011141460/apple-iphone-duo-foldable-phone.html
+
+**King Harald V’s Funeral Draws Thousands of Mourners**\
+`Thousands of mourners gathered in Oslo for the funeral of King Harald V on Wednesday. Royal families and heads of state attended the ceremony. Harald, who died in August, was 89.`\
+https://www.nytimes.com/video/world/europe/100000011141711/norway-king-harald-funeral.html
+
+**Yemen Tilts Toward Full-Scale War as Saudi-Houthi Clashes Escalate**\
+`With its oil-export routes once again under threat, Saudi Arabia is stepping up its military campaign against an old antagonist.`\
+https://www.nytimes.com/2026/09/09/world/middleeast/saudi-yemen-strilkes.html
+
+**60 Posts in 10 Hours: How Trump’s Social Media Reflects His Version of Reality**\
+`With an assist from A.I., President Trump offers a window into how he wants to be seen — and, critics say, a barometer of his mental state.`\
+https://www.nytimes.com/2026/09/09/us/politics/trump-social-media-ai-reality.html
+
+**Spain Declassifies Warning to Morocco About Migrant Crossing Plans**\
+`Spain’s intelligence service had alerted Morocco about social media calls for a border exodus into Ceuta, which led to more than 100 deaths and a political crisis in Spain.`\
+https://www.nytimes.com/2026/09/09/world/europe/spain-ceuta-migrants-report.html
+
+**William Anderson, Doctor and Civil Rights Leader in Georgia, Dies at 98**\
+`An osteopath in Albany, Ga., he drew national attention, and the involvement of the Rev. Dr. Martin Luther King Jr., for his efforts to end segregation.`\
+https://www.nytimes.com/2026/09/09/us/william-anderson-dead.html
+
+**Apple Unveils the iPhone Duo, a Foldable Phone That Costs $1,999**\
+`At the company’s annual September product event, Apple also demonstrated its work on artificial intelligence and other new devices.`\
+https://www.nytimes.com/2026/09/09/technology/apple-iphone-duo-foldable-phone.html
+
+**14 Killed in Weapons Depot Blast in Northwest Syria**\
+`Officials said they had not determined the cause of the explosion. Years of fighting have left Syria littered with weapons and ordnance left over from the civil war.`\
+https://www.nytimes.com/2026/09/09/world/middleeast/syria-weapons-depot-blast.html
+
+**Why Trump’s Republican Midterm ‘Convention’ Isn’t a Real Convention**\
+`No nominations or formal party business will be happening, as they would at a traditional presidential convention. But the made-for-TV speeches will look much the same.`\
+https://www.nytimes.com/2026/09/09/us/politics/trump-republican-midterm-convention-gop-party.html
+
+**Grilled Corn and Avocado Salad With Feta Dressing**\
+`This lively salad of corn, scallions, jalapeño and avocado tossed with a tangy buttermilk-feta dressing is like summer on a plate.`\
+https://www.nytimes.com/video/dining/100000011140090/grilled-corn-and-avocado-salad-with-feta-dressing.html
+
+**Blueberry Poppy Seed Brunch Cake**\
+`This recipe was brought to The Times in a 1990 article by Marian Burros about the 34th Pillsbury Bake-Off, the Super Bowl of baking contests.`\
+https://www.nytimes.com/video/dining/100000011139984/blueberry-poppy-seed-brunch-cake.html
+
+**Summer Pasta With Zucchini, Ricotta and Basil**\
+`This summer pasta is simple and fresh, ideally made with vegetables straight from the garden or market.`\
+https://www.nytimes.com/video/dining/100000011139951/summer-pasta-with-zucchini-ricotta-and-basil.html
+
+**Pesto Beans**\
+`Part quick and rustic bean stew and part deconstructed pesto, this pesto-inspired one-pan meal requires no blender and minimal slicing.`\
+https://www.nytimes.com/video/dining/100000011139925/pesto-beans.html
+
+**Cumin Tomato Salad With Jammy Eggs**\
+`Inspired by the delightful Indian egg curry, this egg salad recipe omits traditional mayonnaise in favor of a looser, brighter mix of fresh tomatoes, cilantro and sizzled spices.`\
+https://www.nytimes.com/video/dining/100000011139846/cumin-tomato-salad-with-jammy-eggs.html
+
+**Scientists Discover the Earliest Evidence of Drug Use in Really Old Teeth**\
+`A hunter-gatherer who lived in Indonesia as early as 25,000 years ago may have regularly sucked on betel nuts to release their psychoactive properties.`\
+https://www.nytimes.com/2026/09/09/science/scientists-discover-the-earliest-evidence-of-drug-use-in-really-old-teeth.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/interactive/2026/09/09/travel/things-to-do-stockholm.html
+
+**Toxic PFAS Cleanups at Military Sites Face Decades of Delay**\
+`The Pentagon has again postponed PFAS cleanups at hundreds of military sites, in some cases up to 19 years, prompting bipartisan anger in Congress.`\
+https://www.nytimes.com/2026/09/09/climate/pfas-military-bases-cleanup-delays.html
+
+**Police Expand Investigation Into Reform U.K. After Undercover Sting**\
+`The Metropolitan Police are investigating Nigel Farage’s right-wing populist party after footage appeared to show party officials arranging secret contributions from a foreign donor.`\
+https://www.nytimes.com/2026/09/09/world/europe/reform-uk-investigation-nigel-farage.html
+
+**‘S.N.L.’ Season 52: Jalen Brunson Will Host First Episode**\
+`The New York Knicks star will kick off the 52nd season of “Saturday Night Live” on Sept. 26. Other hosts include Shane Gillis and Dakota Johnson.`\
+https://www.nytimes.com/2026/09/09/arts/television/saturday-night-live-jalen-brunson.html
+
+**Tate Brothers Must Remain in U.S. Jail Until Extradition Case Is Decided**\
+`A judge in Miami declined to release Andrew and Tristan Tate from custody while they fight extradition to Britain.`\
+https://www.nytimes.com/2026/09/09/us/tristan-andrew-tate-brothers-flight-risk.html
+
+**EE. UU. dirige ataques a barcos en la costa de Ecuador**\
+`En las últimas dos semanas, oficiales militares estadounidenses han hundido seis barcos pesqueros grandes acusados de proveer combustible a lanchas rápidas que transportan drogas desde Sudamérica.`\
+https://www.nytimes.com/es/2026/09/09/espanol/america-latina/ecuador-eeuu-ataque-maritimo.html
+
+**Trump’s Midterm Pitch Clouded by Iran War and Canada Tariffs**\
+`A worsening trade war and a spike in oil prices could create new economic risks as the president prepares to rally Republicans for the midterms.`\
+https://www.nytimes.com/2026/09/09/business/canada-iran-war-trump-midterms.html
+
+**Video Shows Grocery Store Manager Saving Toddler From Oncoming Traffic**\
+`Luis Cruz dashed into a busy street in Puebla, Mexico, to pull a girl out of the path of an approaching S.U.V. Footage of the rescue has made him a local sensation.`\
+https://www.nytimes.com/2026/09/09/world/americas/video-mexico-toddler-traffic-rescue.html
+
+**Anthropic Researchers Raise Alarm Over A.I. Acceleration, Warning of Threat to Humanity**\
+`Their warnings echo concerns that other artificial intelligence experts have voiced in recent months, as calls increase for a slowdown in the pace of development.`\
+https://www.nytimes.com/2026/09/09/technology/anthropic-researchers-raise-alarm.html
+
+**Why Israel Reacted With Fury to U.K. Sanctions on West Bank Settlements**\
+`The fierce retaliation of Prime Minister Benjamin Netanyahu’s government to the new restrictions is a reflection of his tough re-election fight, analysts say.`\
+https://www.nytimes.com/2026/09/09/world/middleeast/israel-uk-west-bank-sanctions.html
+
+**How Trump’s Mail Voting Plan Would Work**\
+`The plan, which two dozen states have challenged as unconstitutional, puts in place new requirements about who can receive mail ballots.`\
+https://www.nytimes.com/2026/09/09/us/politics/trump-mail-in-voting-ballots-usps.html
+
+**More Flights Are Canceled as Major U.K. Air Traffic Disruption Persists**\
+`More than 2,000 flights were disrupted over two days after a technical failure in Britain’s air traffic control system affected several airports.`\
+https://www.nytimes.com/video/world/europe/100000011141527/canceled-flights-uk-air-traffic-disruption.html
+
+**Joseph Rice, Lowcountry Lawyer Who Took On Big Tobacco, Dies at 72**\
+`He challenged tobacco companies as well as the opioid industry, securing multibillion-dollar settlements that also benefited public health.`\
+https://www.nytimes.com/2026/09/09/us/joe-rice-dead.html
+
 **Republican Senate Candidates Avoid Tariffs and Iran War at Trump’s Convention**\
 `Four battleground Senate nominees who spoke sidestepped a pair of issues that have posed political challenges, focusing instead on Mr. Trump’s tax law and other topics.`\
 https://www.nytimes.com/2026/09/09/us/politics/republican-senate-candidates-trump-convention.html
