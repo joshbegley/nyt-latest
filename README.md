@@ -1,3 +1,19 @@
+**Helena Foulkes Defeats Rhode Island Gov. Dan McKee in Democratic Primary**\
+`Ms. Foulkes, a former CVS executive, had hammered Mr. McKee for his handling of a bridge closure that created traffic nightmares.`\
+https://www.nytimes.com/2026/09/09/us/rhode-island-governor-democrat-foulkes-mckee.html
+
+**A Flyover for 9/11 in Denver, With a United Jet and F-16s, Is Called Off**\
+`The company said the flyover was meant to be a “meaningful gesture to honor the memory of those lost within the pilot community.”`\
+https://www.nytimes.com/2026/09/09/us/united-airlines-9-11-denver-flyover.html
+
+**Justice Dept. Investigates Nvidia Deal With Groq**\
+`The Justice Department is examining whether the tech giant sought to sidestep antitrust scrutiny.`\
+https://www.nytimes.com/2026/09/09/business/nvidia-groq-antitrust.html
+
+**Anonymous Letter Set Investigation Into a Lieutenant Governor in Motion**\
+`The letter claimed that Dale Caldwell, New Jersey’s lieutenant governor, brought “uninvited female guests” to events. Mr. Caldwell said the complaint rested on “misinformation.”`\
+https://www.nytimes.com/2026/09/09/nyregion/new-jersey-dale-caldwell-lieutenant-governor-investigation.html
+
 **Trump Takes No Position on Allies’ Sanctions Against Israeli Settlements**\
 `The president declined to say whether the United States opposed measures taken by Britain, Canada and France over violence against Palestinians in the West Bank.`\
 https://www.nytimes.com/2026/09/09/us/politics/trump-sanctions-israel-settlements-palestinians.html
@@ -173,22 +189,6 @@ https://www.nytimes.com/video/technology/personaltech/100000011141460/apple-ipho
 **King Harald V’s Funeral Draws Thousands of Mourners**\
 `Thousands of mourners gathered in Oslo for the funeral of King Harald V on Wednesday. Royal families and heads of state attended the ceremony. Harald, who died in August, was 89.`\
 https://www.nytimes.com/video/world/europe/100000011141711/norway-king-harald-funeral.html
-
-**Yemen Tilts Toward Full-Scale War as Saudi-Houthi Clashes Escalate**\
-`With its oil-export routes once again under threat, Saudi Arabia is stepping up its military campaign against an old antagonist.`\
-https://www.nytimes.com/2026/09/09/world/middleeast/saudi-yemen-strilkes.html
-
-**60 Posts in 10 Hours: How Trump’s Social Media Reflects His Version of Reality**\
-`With an assist from A.I., President Trump offers a window into how he wants to be seen — and, critics say, a barometer of his mental state.`\
-https://www.nytimes.com/2026/09/09/us/politics/trump-social-media-ai-reality.html
-
-**Spain Declassifies Warning to Morocco About Migrant Crossing Plans**\
-`Spain’s intelligence service had alerted Morocco about social media calls for a border exodus into Ceuta, which led to more than 100 deaths and a political crisis in Spain.`\
-https://www.nytimes.com/2026/09/09/world/europe/spain-ceuta-migrants-report.html
-
-**William Anderson, Doctor and Civil Rights Leader in Georgia, Dies at 98**\
-`An osteopath in Albany, Ga., he drew national attention, and the involvement of the Rev. Dr. Martin Luther King Jr., for his efforts to end segregation.`\
-https://www.nytimes.com/2026/09/09/us/william-anderson-dead.html
 
 **Trump Floats $5,000 Checks to Americans if Republicans Win Midterms**\
 `The president offered a “dividend” to every adult citizen if Republicans keep control of Congress. But his sagging approval ratings could endanger his party’s chances in November.`\

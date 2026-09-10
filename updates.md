@@ -1,3 +1,107 @@
+**Apple presenta el iPhone Duo, un celular plegable de 1999 dólares**\
+`La empresa debuta en el mercado de las dobles pantallas con un producto de alta gama.`\
+https://www.nytimes.com/es/2026/09/09/espanol/negocios/apple-iphone-duo-precio-cuando-sale.html
+
+**Why Are Some Gen Z College Students Leaving Campus After 2 Weeks?**\
+`Dozens of videos on social media feature freshmen moving out early in the first semester.`\
+https://www.nytimes.com/2026/09/09/style/gen-z-college-students-quit.html
+
+**Trump Administration Accuses Berkeley Law School of Racial Discrimination**\
+`The Justice and Education Departments said the school had penalized white and Asian applicants, the latest in a series of investigations into admissions at elite universities.`\
+https://www.nytimes.com/2026/09/09/us/doj-california-berkeley.html
+
+**Back to School, Now With A.I.**\
+`This year is shaping up to be a global experiment in education: Can students embrace tech innovation without losing critical thinking skills?`\
+https://www.nytimes.com/2026/09/09/world/10int-theworld-web-ai-education.html
+
+**U.S. Designates Ecuador’s Los Tiguerones Gang as Terrorist Group**\
+`The sanctions on Los Tiguerones imposed by Secretary of State Marco Rubio are an increasingly common U.S. tactic, though they will likely not hurt the gang’s finances.`\
+https://www.nytimes.com/2026/09/09/world/americas/ecuador-los-tiguerones-terrorist.html
+
+**James Talarico Counters Trump’s Midterm Convention With Food Drive**\
+`The Democratic Senate candidate used a food drive to sharpen his economic message against Ken Paxton.`\
+https://www.nytimes.com/2026/09/09/us/politics/talarico-republican-midterm-convention-counterprogramming.html
+
+**Election Officials Grapple With Uncertainty as Supreme Court Considers Mail Ballot Plan**\
+`As they wait for word on whether the Trump administration’s new system to screen ballots can move forward, local officials say they are running out of time.`\
+https://www.nytimes.com/2026/09/09/us/politics/election-officials-confusion-mail-ballots.html
+
+**Misery at Heathrow: ‘Never Seen Chaos Like That’**\
+`Over 2,000 flights have been disrupted in the past two days, as an air-traffic control problem has stymied British airports.`\
+https://www.nytimes.com/2026/09/09/world/europe/heathrow-uk-flights-travel.html
+
+**How the Super Godzilla Monster El Niño Could Actually Affect Your Weather**\
+`Yes, El Niño is unusually powerful this time. But that’s not always a bad thing.`\
+https://www.nytimes.com/2026/09/09/weather/el-nino-weather-forecast-facts.html
+
+**New Mexico’s Name Is Older Than the U.S. Trump Still Wants to Change It.**\
+`President Trump has no authority to change the state’s name, but his suggestion has constituted fighting words to proud New Mexicans.`\
+https://www.nytimes.com/2026/09/09/us/new-america-trump-reaction-new-mexico.html
+
+**Lucien Smith, Art-World Star Whose Career Abruptly Turned, Dies at 37**\
+`A phenom in his 20s, he became the poster child for Zombie Formalism before abandoning the gallery frenzy for Montauk.`\
+https://www.nytimes.com/2026/09/09/obituaries/lucien-smith-dead.html
+
+**Trump Is Delayed After Emergency Slide Deploys on New Air Force One**\
+`The mishap occurred while the Qatari-donated jet was parked on the tarmac at Joint Base Andrews. It delayed President Trump’s departure to a Republican convention in Dallas.`\
+https://www.nytimes.com/2026/09/09/us/politics/emergency-slide-air-force-one-trump.html
+
+**Los salvadoreños mantendrán sus protecciones contra la deportación de EE. UU. por ahora**\
+`Estaba previsto que el Estatus de Protección Temporal para El Salvador expirara el miércoles. El gobierno de Trump dijo que haría un anuncio sobre el futuro del programa “en el momento adecuado”.`\
+https://www.nytimes.com/es/2026/09/09/espanol/estados-unidos/tps-el-salvador-trump.html
+
+**Lost at the U.S. Open? Find the Super-Cheerful People in Straw Hats.**\
+`No matter the problem, the U.S. Open ambassadors are here to help.`\
+https://www.nytimes.com/2026/09/09/nyregion/tennis-us-open-ambassadors.html
+
+**Hunter Biden’s ‘Laptop’ Crypto Coin Plummets Upon Launching**\
+`The president’s son portrayed his memecoin as a symbol of redemption. Critics denounced it as hypocrisy.`\
+https://www.nytimes.com/2026/09/09/us/politics/hunter-biden-crypto-coin-laptop.html
+
+**The Good List: 6 Things to Bring Joy to Your Day**\
+`Astronomical dawn, dahlia season and cute names for serious things.`\
+https://www.nytimes.com/2026/09/09/briefing/09-the-good-list-perfect-september.html
+
+**Trump’s Convention Offers an Unusual Fund-Raising Opportunity for Republicans**\
+`Republicans are hoping to use the Dallas extravaganza as a fund-raising opportunity, with some local parties charging as much as $20,000 to be an “honorary delegate.”`\
+https://www.nytimes.com/2026/09/09/us/politics/trump-republican-midterm-convention-fundraising.html
+
+**Iran’s Strikes on Base in Jordan Caused Limited Damage, U.S. Officials Say**\
+`The latest round of fighting may result in reports of traumatic brain injuries among American service members, officials warned.`\
+https://www.nytimes.com/2026/09/09/us/politics/iran-strikes-jordan-base.html
+
+**Un video muestra al gerente de un supermercado que salva a una niña en Puebla**\
+`Luis Cruz corrió hacia una calle transitada para apartar a una niña del camino de una camioneta que se aproximaba. El video del rescate lo ha convertido en una sensación local.`\
+https://www.nytimes.com/es/2026/09/09/espanol/video-nina-atropellada-puebla.html
+
+**The Local: Tackling heat and talking to Klobuchar**\
+`Plus, the State Fair by the numbers.`\
+https://www.nytimes.com/2026/09/09/briefing/heat-island-effect.html
+
+**Apple Launches Its First Foldable iPhone**\
+`Apple introduced the iPhone Duo, the company’s first device that opens and closes like a book, at the company’s annual product event on Wednesday.`\
+https://www.nytimes.com/video/technology/personaltech/100000011141460/apple-iphone-duo-foldable-phone.html
+
+**King Harald V’s Funeral Draws Thousands of Mourners**\
+`Thousands of mourners gathered in Oslo for the funeral of King Harald V on Wednesday. Royal families and heads of state attended the ceremony. Harald, who died in August, was 89.`\
+https://www.nytimes.com/video/world/europe/100000011141711/norway-king-harald-funeral.html
+
+**Yemen Tilts Toward Full-Scale War as Saudi-Houthi Clashes Escalate**\
+`With its oil-export routes once again under threat, Saudi Arabia is stepping up its military campaign against an old antagonist.`\
+https://www.nytimes.com/2026/09/09/world/middleeast/saudi-yemen-strilkes.html
+
+**60 Posts in 10 Hours: How Trump’s Social Media Reflects His Version of Reality**\
+`With an assist from A.I., President Trump offers a window into how he wants to be seen — and, critics say, a barometer of his mental state.`\
+https://www.nytimes.com/2026/09/09/us/politics/trump-social-media-ai-reality.html
+
+**Spain Declassifies Warning to Morocco About Migrant Crossing Plans**\
+`Spain’s intelligence service had alerted Morocco about social media calls for a border exodus into Ceuta, which led to more than 100 deaths and a political crisis in Spain.`\
+https://www.nytimes.com/2026/09/09/world/europe/spain-ceuta-migrants-report.html
+
+**William Anderson, Doctor and Civil Rights Leader in Georgia, Dies at 98**\
+`An osteopath in Albany, Ga., he drew national attention, and the involvement of the Rev. Dr. Martin Luther King Jr., for his efforts to end segregation.`\
+https://www.nytimes.com/2026/09/09/us/william-anderson-dead.html
+
 **Quote of the Day: A Refugee’s Detention by ICE Set a Clock Ticking**\
 `Quotation of the Day for Thursday, September 10, 2026.`\
 https://www.nytimes.com/2026/09/10/pageoneplus/quote-of-the-day-a-refugees-detention-by-ice-set-a-clock-ticking.html
