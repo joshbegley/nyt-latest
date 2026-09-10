@@ -1,3 +1,27 @@
+**Republican Senate Candidates Avoid Tariffs and Iran War at Trump’s Convention**\
+`Four battleground Senate nominees who spoke sidestepped a pair of issues that have posed political challenges, focusing instead on Mr. Trump’s tax law and other topics.`\
+https://www.nytimes.com/2026/09/09/us/politics/republican-senate-candidates-trump-convention.html
+
+**Fighting Wildfire Haze With an Airplane and Lots of Salt and Water**\
+`The authorities in Malaysian Borneo have been trying to seed clouds to counteract the effects of smoke wafting in from neighboring Indonesia.`\
+https://www.nytimes.com/2026/09/09/world/asia/indonesia-wildfires-malaysia-cloud-seeding.html
+
+**August Ties for Hottest Month on Record**\
+`Sweltering summer temperatures put last month on par with July 2023 for global warmth, scientists said. More records could be broken in the months ahead.`\
+https://www.nytimes.com/2026/09/09/climate/august-hottest-month-global-warming.html
+
+**How Fighting Fires Became an All-of-Europe Project**\
+`The European Union isn’t known for firefighting expertise. But with the continent ablaze, Brussels is playing a growing role.`\
+https://www.nytimes.com/2026/09/09/world/europe/eu-fire-fighting.html
+
+**NYT Crossword Answers for Sept. 10, 2026**\
+`Blanking on the clues in Simeon Seigel’s puzzle?`\
+https://www.nytimes.com/2026/09/09/crosswords/daily-puzzle-2026-09-10.html
+
+**Fetterman’s Surprise GOP Convention Video Angers Democrats**\
+`Democrats in Pennsylvania reacted with a mix of annoyance and eye-rolling to Senator John Fetterman’s video appearance at Republicans’ midterm convention.`\
+https://www.nytimes.com/2026/09/09/us/politics/democrats-fetterman-trump-convention.html
+
 **U.S. Designates Ecuador’s Los Tiguerones Gang as Terrorist Group**\
 `The sanctions on Los Tiguerones imposed by Secretary of State Marco Rubio are an increasingly common U.S. tactic, though they will likely not hurt the gang’s finances.`\
 https://www.nytimes.com/2026/09/09/world/americas/ecuador-los-tiguerones-terrorist.html
