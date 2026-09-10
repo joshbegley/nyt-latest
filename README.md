@@ -1,3 +1,7 @@
+**Anonymous Letter Set Investigation Into a Lieutenant Governor in Motion**\
+`The letter claimed that Dale Caldwell, New Jersey’s lieutenant governor, brought “uninvited female guests” to events. Mr. Caldwell said the complaint rested on “misinformation.”`\
+https://www.nytimes.com/2026/09/09/nyregion/new-jersey-dale-caldwell-lieutenant-governor-investigation.html
+
 **Trump Takes No Position on Allies’ Sanctions Against Israeli Settlements**\
 `The president declined to say whether the United States opposed measures taken by Britain, Canada and France over violence against Palestinians in the West Bank.`\
 https://www.nytimes.com/2026/09/09/us/politics/trump-sanctions-israel-settlements-palestinians.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/09/09/us/politics/trump-social-media-ai-reality.htm
 **Spain Declassifies Warning to Morocco About Migrant Crossing Plans**\
 `Spain’s intelligence service had alerted Morocco about social media calls for a border exodus into Ceuta, which led to more than 100 deaths and a political crisis in Spain.`\
 https://www.nytimes.com/2026/09/09/world/europe/spain-ceuta-migrants-report.html
-
-**William Anderson, Doctor and Civil Rights Leader in Georgia, Dies at 98**\
-`An osteopath in Albany, Ga., he drew national attention, and the involvement of the Rev. Dr. Martin Luther King Jr., for his efforts to end segregation.`\
-https://www.nytimes.com/2026/09/09/us/william-anderson-dead.html
 
 **Live Updates: A Surprise Fetterman Video Jolts Trump’s Midterm Convention**\
 `The video appearance by Senator John Fetterman, a Pennsylvania Democrat alienated from his own party, could fuel speculation about his political future. Mr. Trump is scheduled to speak later tonight in Dallas.`\

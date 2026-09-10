@@ -6,7 +6,7 @@ https://www.nytimes.com/2026/09/09/us/politics/trump-sanctions-israel-settlement
 `A military aide accidentally deployed the emergency slide on the new Air Force One on Wednesday, according to a person familiar with the episode.`\
 https://www.nytimes.com/video/us/politics/100000011142824/trump-air-force-one-emergency-slide.html
 
-**Fetterman Makes a Surprise Cameo at Trump’s Convention**\
+**Fetterman Has a Surprise Cameo at Trump’s Convention**\
 `Senator John Fetterman, who has become alienated from his own party, appeared in a short video filmed in front of a steel mill, saying he is “always going to reject the extremes in socialism.”`\
 https://www.nytimes.com/2026/09/09/us/politics/john-fetterman-trump-republican-convention.html
 

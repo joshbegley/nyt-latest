@@ -1,3 +1,7 @@
+**Fetterman Has a Surprise Cameo at Trump’s Convention**\
+`Senator John Fetterman, who has become alienated from his own party, appeared in a short video filmed in front of a steel mill, saying he is “always going to reject the extremes in socialism.”`\
+https://www.nytimes.com/2026/09/09/us/politics/john-fetterman-trump-republican-convention.html
+
 **Trump Takes No Position on Allies’ Sanctions Against Israeli Settlements**\
 `The president declined to say whether the United States opposed measures taken by Britain, Canada and France over violence against Palestinians in the West Bank.`\
 https://www.nytimes.com/2026/09/09/us/politics/trump-sanctions-israel-settlements-palestinians.html
