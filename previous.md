@@ -1,51 +1,3 @@
-**Fetterman’s Surprise GOP Convention Video Angers Democrats**\
-`Democrats in Pennsylvania reacted with a mix of annoyance and eye-rolling to Senator John Fetterman’s video appearance at Republicans’ midterm convention.`\
-https://www.nytimes.com/2026/09/09/us/politics/democrats-fetterman-trump-convention.html
-
-**AOC Hits the Campaign Trail for Senate Candidate Angie Nixon in Florida**\
-`The progressive representative from New York spoke at a small event to help lift the underdog Senate candidate Angie Nixon.`\
-https://www.nytimes.com/2026/09/09/us/politics/angie-nixon-alexandria-ocasio-cortez-florida.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/us/politics/100000011143251/09vid-rnc-dallas-trump-clothing-55503.html
-
-**Watch Live: Trump Speaks at the G.O.P. Midterm Convention**\
-`President Trump delivers remarks at the Republican midterm convention in Dallas.`\
-https://www.nytimes.com/video/embedded/us/politics/100000011143237/watch-live-trump-speech-midterm.html
-
-**Helena Foulkes Defeats Rhode Island Gov. Dan McKee in Democratic Primary**\
-`Ms. Foulkes, a former CVS executive, had hammered Mr. McKee for his handling of a bridge closure that created traffic nightmares.`\
-https://www.nytimes.com/2026/09/09/us/rhode-island-governor-democrat-foulkes-mckee.html
-
-**A Flyover for 9/11 in Denver, With a United Jet and F-16s, Is Called Off**\
-`The company said the flyover was meant to be a “meaningful gesture to honor the memory of those lost within the pilot community.”`\
-https://www.nytimes.com/2026/09/09/us/united-airlines-9-11-denver-flyover.html
-
-**Justice Dept. Investigates Nvidia Deal With Groq**\
-`The Justice Department is examining whether the tech giant sought to sidestep antitrust scrutiny.`\
-https://www.nytimes.com/2026/09/09/business/nvidia-groq-antitrust.html
-
-**Anonymous Letter Set Investigation Into a Lieutenant Governor in Motion**\
-`The letter claimed that Dale Caldwell, New Jersey’s lieutenant governor, brought “uninvited female guests” to events. Mr. Caldwell said the complaint rested on “misinformation.”`\
-https://www.nytimes.com/2026/09/09/nyregion/new-jersey-dale-caldwell-lieutenant-governor-investigation.html
-
-**Trump Takes No Position on Allies’ Sanctions Against Israeli Settlements**\
-`The president declined to say whether the United States opposed measures taken by Britain, Canada and France over violence against Palestinians in the West Bank.`\
-https://www.nytimes.com/2026/09/09/us/politics/trump-sanctions-israel-settlements-palestinians.html
-
-**Emergency Slide Is Accidentally Deployed on New Air Force One**\
-`A military aide accidentally deployed the emergency slide on the new Air Force One on Wednesday, according to a person familiar with the episode.`\
-https://www.nytimes.com/video/us/politics/100000011142824/trump-air-force-one-emergency-slide.html
-
-**Fetterman Has a Surprise Cameo at Trump’s Convention**\
-`Senator John Fetterman, who has become alienated from his own party, appeared in a short video filmed in front of a steel mill, saying he is “always going to reject the extremes in socialism.”`\
-https://www.nytimes.com/2026/09/09/us/politics/john-fetterman-trump-republican-convention.html
-
-**Brothers Seeking Pardons for Sex Trafficking Hire a Former Trump Lawyer**\
-`Documents appear to show payments were made to the lawyer Alan M. Dershowitz to pursue “executive clemency and judicial reversal” for Tal, Oren and Alon Alexander.`\
-https://www.nytimes.com/2026/09/09/nyregion/dershowitz-alexander-brothers-pardon.html
-
 **Trump’s Census Overhaul Would Exclude Some Immigrants and Remove Questions on Race**\
 `The proposals for 2030 are among significant changes that would upend a process for helping allot congressional seats and shape policies that address disparities.`\
 https://www.nytimes.com/2026/09/09/us/politics/trump-census-immigrants-race.html
@@ -173,6 +125,70 @@ https://www.nytimes.com/es/2026/09/09/espanol/estados-unidos/tps-el-salvador-tru
 **Lost at the U.S. Open? Find the Super-Cheerful People in Straw Hats.**\
 `No matter the problem, the U.S. Open ambassadors are here to help.`\
 https://www.nytimes.com/2026/09/09/nyregion/tennis-us-open-ambassadors.html
+
+**Hunter Biden’s ‘Laptop’ Crypto Coin Plummets Upon Launching**\
+`The president’s son portrayed his memecoin as a symbol of redemption. Critics denounced it as hypocrisy.`\
+https://www.nytimes.com/2026/09/09/us/politics/hunter-biden-crypto-coin-laptop.html
+
+**The Good List: 6 Things to Bring Joy to Your Day**\
+`Astronomical dawn, dahlia season and cute names for serious things.`\
+https://www.nytimes.com/2026/09/09/briefing/09-the-good-list-perfect-september.html
+
+**Trump’s Convention Offers an Unusual Fund-Raising Opportunity for Republicans**\
+`Republicans are hoping to use the Dallas extravaganza as a fund-raising opportunity, with some local parties charging as much as $20,000 to be an “honorary delegate.”`\
+https://www.nytimes.com/2026/09/09/us/politics/trump-republican-midterm-convention-fundraising.html
+
+**Iran’s Strikes on Base in Jordan Caused Limited Damage, U.S. Officials Say**\
+`The latest round of fighting may result in reports of traumatic brain injuries among American service members, officials warned.`\
+https://www.nytimes.com/2026/09/09/us/politics/iran-strikes-jordan-base.html
+
+**Un video muestra al gerente de un supermercado que salva a una niña en Puebla**\
+`Luis Cruz corrió hacia una calle transitada para apartar a una niña del camino de una camioneta que se aproximaba. El video del rescate lo ha convertido en una sensación local.`\
+https://www.nytimes.com/es/2026/09/09/espanol/video-nina-atropellada-puebla.html
+
+**The Local: Tackling heat and talking to Klobuchar**\
+`Plus, the State Fair by the numbers.`\
+https://www.nytimes.com/2026/09/09/briefing/heat-island-effect.html
+
+**Apple Launches Its First Foldable iPhone**\
+`Apple introduced the iPhone Duo, the company’s first device that opens and closes like a book, at the company’s annual product event on Wednesday.`\
+https://www.nytimes.com/video/technology/personaltech/100000011141460/apple-iphone-duo-foldable-phone.html
+
+**King Harald V’s Funeral Draws Thousands of Mourners**\
+`Thousands of mourners gathered in Oslo for the funeral of King Harald V on Wednesday. Royal families and heads of state attended the ceremony. Harald, who died in August, was 89.`\
+https://www.nytimes.com/video/world/europe/100000011141711/norway-king-harald-funeral.html
+
+**Yemen Tilts Toward Full-Scale War as Saudi-Houthi Clashes Escalate**\
+`With its oil-export routes once again under threat, Saudi Arabia is stepping up its military campaign against an old antagonist.`\
+https://www.nytimes.com/2026/09/09/world/middleeast/saudi-yemen-strilkes.html
+
+**60 Posts in 10 Hours: How Trump’s Social Media Reflects His Version of Reality**\
+`With an assist from A.I., President Trump offers a window into how he wants to be seen — and, critics say, a barometer of his mental state.`\
+https://www.nytimes.com/2026/09/09/us/politics/trump-social-media-ai-reality.html
+
+**Spain Declassifies Warning to Morocco About Migrant Crossing Plans**\
+`Spain’s intelligence service had alerted Morocco about social media calls for a border exodus into Ceuta, which led to more than 100 deaths and a political crisis in Spain.`\
+https://www.nytimes.com/2026/09/09/world/europe/spain-ceuta-migrants-report.html
+
+**William Anderson, Doctor and Civil Rights Leader in Georgia, Dies at 98**\
+`An osteopath in Albany, Ga., he drew national attention, and the involvement of the Rev. Dr. Martin Luther King Jr., for his efforts to end segregation.`\
+https://www.nytimes.com/2026/09/09/us/william-anderson-dead.html
+
+**Apple Unveils the iPhone Duo, a Foldable Phone That Costs $1,999**\
+`At the company’s annual September product event, Apple also demonstrated its work on artificial intelligence and other new devices.`\
+https://www.nytimes.com/2026/09/09/technology/apple-iphone-duo-foldable-phone.html
+
+**14 Killed in Weapons Depot Blast in Northwest Syria**\
+`Officials said they had not determined the cause of the explosion. Years of fighting have left Syria littered with weapons and ordnance left over from the civil war.`\
+https://www.nytimes.com/2026/09/09/world/middleeast/syria-weapons-depot-blast.html
+
+**Why Trump’s Republican Midterm ‘Convention’ Isn’t a Real Convention**\
+`No nominations or formal party business will be happening, as they would at a traditional presidential convention. But the made-for-TV speeches will look much the same.`\
+https://www.nytimes.com/2026/09/09/us/politics/trump-republican-midterm-convention-gop-party.html
+
+**Grilled Corn and Avocado Salad With Feta Dressing**\
+`This lively salad of corn, scallions, jalapeño and avocado tossed with a tangy buttermilk-feta dressing is like summer on a plate.`\
+https://www.nytimes.com/video/dining/100000011140090/grilled-corn-and-avocado-salad-with-feta-dressing.html
 
 **Trump Floats $5,000 Checks to Americans if Republicans Win Midterms**\
 `The president offered a “dividend” to every adult citizen if Republicans keep control of Congress. But his sagging approval ratings could endanger his party’s chances in November.`\

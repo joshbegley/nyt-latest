@@ -1,3 +1,67 @@
+**Hunter Biden’s ‘Laptop’ Crypto Coin Plummets Upon Launching**\
+`The president’s son portrayed his memecoin as a symbol of redemption. Critics denounced it as hypocrisy.`\
+https://www.nytimes.com/2026/09/09/us/politics/hunter-biden-crypto-coin-laptop.html
+
+**The Good List: 6 Things to Bring Joy to Your Day**\
+`Astronomical dawn, dahlia season and cute names for serious things.`\
+https://www.nytimes.com/2026/09/09/briefing/09-the-good-list-perfect-september.html
+
+**Trump’s Convention Offers an Unusual Fund-Raising Opportunity for Republicans**\
+`Republicans are hoping to use the Dallas extravaganza as a fund-raising opportunity, with some local parties charging as much as $20,000 to be an “honorary delegate.”`\
+https://www.nytimes.com/2026/09/09/us/politics/trump-republican-midterm-convention-fundraising.html
+
+**Iran’s Strikes on Base in Jordan Caused Limited Damage, U.S. Officials Say**\
+`The latest round of fighting may result in reports of traumatic brain injuries among American service members, officials warned.`\
+https://www.nytimes.com/2026/09/09/us/politics/iran-strikes-jordan-base.html
+
+**Un video muestra al gerente de un supermercado que salva a una niña en Puebla**\
+`Luis Cruz corrió hacia una calle transitada para apartar a una niña del camino de una camioneta que se aproximaba. El video del rescate lo ha convertido en una sensación local.`\
+https://www.nytimes.com/es/2026/09/09/espanol/video-nina-atropellada-puebla.html
+
+**The Local: Tackling heat and talking to Klobuchar**\
+`Plus, the State Fair by the numbers.`\
+https://www.nytimes.com/2026/09/09/briefing/heat-island-effect.html
+
+**Apple Launches Its First Foldable iPhone**\
+`Apple introduced the iPhone Duo, the company’s first device that opens and closes like a book, at the company’s annual product event on Wednesday.`\
+https://www.nytimes.com/video/technology/personaltech/100000011141460/apple-iphone-duo-foldable-phone.html
+
+**King Harald V’s Funeral Draws Thousands of Mourners**\
+`Thousands of mourners gathered in Oslo for the funeral of King Harald V on Wednesday. Royal families and heads of state attended the ceremony. Harald, who died in August, was 89.`\
+https://www.nytimes.com/video/world/europe/100000011141711/norway-king-harald-funeral.html
+
+**Yemen Tilts Toward Full-Scale War as Saudi-Houthi Clashes Escalate**\
+`With its oil-export routes once again under threat, Saudi Arabia is stepping up its military campaign against an old antagonist.`\
+https://www.nytimes.com/2026/09/09/world/middleeast/saudi-yemen-strilkes.html
+
+**60 Posts in 10 Hours: How Trump’s Social Media Reflects His Version of Reality**\
+`With an assist from A.I., President Trump offers a window into how he wants to be seen — and, critics say, a barometer of his mental state.`\
+https://www.nytimes.com/2026/09/09/us/politics/trump-social-media-ai-reality.html
+
+**Spain Declassifies Warning to Morocco About Migrant Crossing Plans**\
+`Spain’s intelligence service had alerted Morocco about social media calls for a border exodus into Ceuta, which led to more than 100 deaths and a political crisis in Spain.`\
+https://www.nytimes.com/2026/09/09/world/europe/spain-ceuta-migrants-report.html
+
+**William Anderson, Doctor and Civil Rights Leader in Georgia, Dies at 98**\
+`An osteopath in Albany, Ga., he drew national attention, and the involvement of the Rev. Dr. Martin Luther King Jr., for his efforts to end segregation.`\
+https://www.nytimes.com/2026/09/09/us/william-anderson-dead.html
+
+**Apple Unveils the iPhone Duo, a Foldable Phone That Costs $1,999**\
+`At the company’s annual September product event, Apple also demonstrated its work on artificial intelligence and other new devices.`\
+https://www.nytimes.com/2026/09/09/technology/apple-iphone-duo-foldable-phone.html
+
+**14 Killed in Weapons Depot Blast in Northwest Syria**\
+`Officials said they had not determined the cause of the explosion. Years of fighting have left Syria littered with weapons and ordnance left over from the civil war.`\
+https://www.nytimes.com/2026/09/09/world/middleeast/syria-weapons-depot-blast.html
+
+**Why Trump’s Republican Midterm ‘Convention’ Isn’t a Real Convention**\
+`No nominations or formal party business will be happening, as they would at a traditional presidential convention. But the made-for-TV speeches will look much the same.`\
+https://www.nytimes.com/2026/09/09/us/politics/trump-republican-midterm-convention-gop-party.html
+
+**Grilled Corn and Avocado Salad With Feta Dressing**\
+`This lively salad of corn, scallions, jalapeño and avocado tossed with a tangy buttermilk-feta dressing is like summer on a plate.`\
+https://www.nytimes.com/video/dining/100000011140090/grilled-corn-and-avocado-salad-with-feta-dressing.html
+
 **Fetterman’s Surprise GOP Convention Video Angers Democrats**\
 `Democrats in Pennsylvania reacted with a mix of annoyance and eye-rolling to Senator John Fetterman’s video appearance at Republicans’ midterm convention.`\
 https://www.nytimes.com/2026/09/09/us/politics/democrats-fetterman-trump-convention.html
