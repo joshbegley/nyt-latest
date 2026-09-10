@@ -1,3 +1,19 @@
+**Fetterman’s Surprise GOP Convention Video Angers Democrats**\
+`Democrats in Pennsylvania reacted with a mix of annoyance and eye-rolling to Senator John Fetterman’s video appearance at Republicans’ midterm convention.`\
+https://www.nytimes.com/2026/09/09/us/politics/democrats-fetterman-trump-convention.html
+
+**AOC Hits the Campaign Trail for Senate Candidate Angie Nixon in Florida**\
+`The progressive representative from New York spoke at a small event to help lift the underdog Senate candidate Angie Nixon.`\
+https://www.nytimes.com/2026/09/09/us/politics/angie-nixon-alexandria-ocasio-cortez-florida.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011143251/09vid-rnc-dallas-trump-clothing-55503.html
+
+**Watch Live: Trump Speaks at the G.O.P. Midterm Convention**\
+`President Trump delivers remarks at the Republican midterm convention in Dallas.`\
+https://www.nytimes.com/video/embedded/us/politics/100000011143237/watch-live-trump-speech-midterm.html
+
 **Helena Foulkes Defeats Rhode Island Gov. Dan McKee in Democratic Primary**\
 `Ms. Foulkes, a former CVS executive, had hammered Mr. McKee for his handling of a bridge closure that created traffic nightmares.`\
 https://www.nytimes.com/2026/09/09/us/rhode-island-governor-democrat-foulkes-mckee.html
