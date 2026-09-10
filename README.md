@@ -1,15 +1,3 @@
-**Trump’s Census Overhaul Would Exclude Some Immigrants and Remove Questions on Race**\
-`The proposals for 2030 are among significant changes that would upend a process for helping allot congressional seats and shape policies that address disparities.`\
-https://www.nytimes.com/2026/09/09/us/politics/trump-census-immigrants-race.html
-
-**How Much Does Trump Care Who Wins the Midterms?**\
-`President Trump’s convention has kicked off in Dallas, so we asked Maggie Haberman to help make sense of his midterm strategy.`\
-https://www.nytimes.com/2026/09/09/us/politics/trump-midterm-strategy.html
-
-**States File 2 Lawsuits Over Trump’s Cuts to Endangered Species Act**\
-`Two lawsuits seek to reverse the Trump administration’s moves to open the habitats of imperiled wildlife to commercial activities.`\
-https://www.nytimes.com/2026/09/09/climate/lawsuit-trump-endangered-species-act.html
-
 **Is Trumpism the New McCarthyism?**\
 `In the 1950s, McCarthyism created a climate of fear and suspicion in American politics. The Times Opinion columnist Carlos Lozada and the historian Nicole Hemmer argue that, over 70 years later, McCarthyism is still a part of our politics today. Will Trumpism’s influence last as long?`\
 https://www.nytimes.com/video/opinion/100000011142512/is-trumpism-the-new-mccarthyism.html
@@ -189,6 +177,18 @@ https://www.nytimes.com/2026/09/09/us/politics/trump-republican-midterm-conventi
 **Grilled Corn and Avocado Salad With Feta Dressing**\
 `This lively salad of corn, scallions, jalapeño and avocado tossed with a tangy buttermilk-feta dressing is like summer on a plate.`\
 https://www.nytimes.com/video/dining/100000011140090/grilled-corn-and-avocado-salad-with-feta-dressing.html
+
+**Blueberry Poppy Seed Brunch Cake**\
+`This recipe was brought to The Times in a 1990 article by Marian Burros about the 34th Pillsbury Bake-Off, the Super Bowl of baking contests.`\
+https://www.nytimes.com/video/dining/100000011139984/blueberry-poppy-seed-brunch-cake.html
+
+**Summer Pasta With Zucchini, Ricotta and Basil**\
+`This summer pasta is simple and fresh, ideally made with vegetables straight from the garden or market.`\
+https://www.nytimes.com/video/dining/100000011139951/summer-pasta-with-zucchini-ricotta-and-basil.html
+
+**Pesto Beans**\
+`Part quick and rustic bean stew and part deconstructed pesto, this pesto-inspired one-pan meal requires no blender and minimal slicing.`\
+https://www.nytimes.com/video/dining/100000011139925/pesto-beans.html
 
 **Trump Floats $5,000 Checks to Americans if Republicans Win Midterms**\
 `The president offered a “dividend” to every adult citizen if Republicans keep control of Congress. But his sagging approval ratings could endanger his party’s chances in November.`\
