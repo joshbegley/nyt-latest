@@ -1,3 +1,11 @@
+**Helena Foulkes Defeats Rhode Island Gov. Dan McKee in Democratic Primary**\
+`Ms. Foulkes, a former CVS executive, had hammered Mr. McKee for his handling of a bridge closure that created traffic nightmares.`\
+https://www.nytimes.com/2026/09/09/us/rhode-island-governor-democrat-foulkes-mckee.html
+
+**A Flyover for 9/11 in Denver, With a United Jet and F-16s, Is Called Off**\
+`The company said the flyover was meant to be a “meaningful gesture to honor the memory of those lost within the pilot community.”`\
+https://www.nytimes.com/2026/09/09/us/united-airlines-9-11-denver-flyover.html
+
 **Justice Dept. Investigates Nvidia Deal With Groq**\
 `The Justice Department is examining whether the tech giant sought to sidestep antitrust scrutiny.`\
 https://www.nytimes.com/2026/09/09/business/nvidia-groq-antitrust.html

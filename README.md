@@ -190,7 +190,7 @@ https://www.nytimes.com/video/technology/personaltech/100000011141460/apple-ipho
 `Thousands of mourners gathered in Oslo for the funeral of King Harald V on Wednesday. Royal families and heads of state attended the ceremony. Harald, who died in August, was 89.`\
 https://www.nytimes.com/video/world/europe/100000011141711/norway-king-harald-funeral.html
 
-**Live Updates: A Surprise Fetterman Video Jolts Trump’s Midterm Convention**\
-`The video appearance by Senator John Fetterman, a Pennsylvania Democrat alienated from his own party, could fuel speculation about his political future. Mr. Trump is scheduled to speak later tonight in Dallas.`\
+**Live Updates: Trump to Address Convention Soon After Surprise Fetterman Video**\
+`The video appearance by Senator John Fetterman, a Pennsylvania Democrat alienated from his own party, could fuel speculation about his political future. Mr. Trump is scheduled to close the first night of the gathering in Dallas.`\
 https://www.nytimes.com/live/2026/09/09/us/rnc-trump-midterm-convention-updates
 
