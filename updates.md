@@ -1,3 +1,67 @@
+**Is Trumpism the New McCarthyism?**\
+`In the 1950s, McCarthyism created a climate of fear and suspicion in American politics. The Times Opinion columnist Carlos Lozada and the historian Nicole Hemmer argue that, over 70 years later, McCarthyism is still a part of our politics today. Will Trumpism’s influence last as long?`\
+https://www.nytimes.com/video/opinion/100000011142512/is-trumpism-the-new-mccarthyism.html
+
+**Brothers Plead Guilty to Bribing NYC Buildings Commissioner Under Mayor Adams**\
+`Joseph and Anthony Livreri said they bribed the commissioner, Eric Ulrich, in an attempt to leverage his influence in City Hall. The brothers were indicted in 2023 alongside Mr. Ulrich.`\
+https://www.nytimes.com/2026/09/09/nyregion/ulrich-buildings-commissioner-bribery-adams.html
+
+**5 Rules of Power From Roy Cohn and Donald Trump**\
+`The lawyer Roy Cohn showed Donald Trump that you can lie, take advantage of others and be loud — and that will only help you. On “The Opinions,” the historian Nicole Hemmer asks: Who else will take up the Cohn model?`\
+https://www.nytimes.com/video/opinion/100000011131124/5-rules-of-power-from-roy-cohn-and-donald-trump.html
+
+**Lawmakers Question N.Y.C. Tech Official About 911 System Breakdown**\
+`Lisa Gelobter, who runs the agency responsible for the technology behind the city’s 911 system, was asked why officials had kept quiet about an outage that affected nearly 1,700 calls.`\
+https://www.nytimes.com/2026/09/09/nyregion/nyc-city-council-911-breakdown.html
+
+**Republicans Gather in Texas for an Unusual Convention**\
+`Also, Apple unveils a foldable iPhone. Here’s the latest at the end of Wednesday.`\
+https://www.nytimes.com/2026/09/09/briefing/texas-convention-apple-foldable-iphone.html
+
+**Trump Is Sabotaging the Midterms. The Supreme Court Must Stop Him.**\
+`The country has built a system in which Americans can have confidence. President Trump is trying to wreck it.`\
+https://www.nytimes.com/2026/09/09/opinion/mail-voting-chaos-trump-supreme-court.html
+
+**A Hostile Trump Reopens Old Wounds in the U.S.-Canada Relationship**\
+`President Trump is not the first American president to feud with Canada. But today’s crisis might be the worst.`\
+https://www.nytimes.com/2026/09/09/us/politics/trump-canada-tariffs.html
+
+**Trump’s Midterm Convention May Struggle for Ratings Against the NFL Kickoff**\
+`Many major TV networks are sticking with regular programming as the Republicans convene in Dallas. Fox News, NewsNation and C-SPAN will carry more of the proceedings.`\
+https://www.nytimes.com/2026/09/09/us/politics/trump-rnc-convention-nfl-ratings.html
+
+**Lesson Plan: What It Means to Write in the Age of A.I.**\
+`In this three-part lesson, we invite students to explore why we write and discuss why it still matters amid the rise of artificial intelligence.`\
+https://www.nytimes.com/2026/09/09/learning/lesson-plans/lesson-plan-what-it-means-to-write-in-the-age-of-ai.html
+
+**Educators, How Are You Teaching With and About A.I.?**\
+`We want to hear about the strategies, assignments and lesson plans that have — and haven’t — been successful for you and your students.`\
+https://www.nytimes.com/2026/09/09/learning/educators-how-are-you-teaching-with-and-about-ai.html
+
+**Elecciones en Israel: lo que hay que saber**\
+`¿Será esta la elección en la que finalmente pierda Netanyahu tras casi dos décadas en el poder?`\
+https://www.nytimes.com/es/2026/09/09/espanol/mundo/israel-elecciones-netanyahu.html
+
+**Los pilotos del avión que chocó en Miami habrían intentado abortar el aterrizaje**\
+`La secuencia de eventos detallada por los investigadores de la Junta Nacional de Seguridad en el Transporte mostró que los pilotos perdieron segundos cruciales antes de que el avión se saliera de la pista.`\
+https://www.nytimes.com/es/2026/09/09/espanol/estados-unidos/avion-choque-miami-aterrizaje.html
+
+**Does Learning to Write Still Matter in the Age of A.I.?**\
+`It’s a question that educators, writers and students are asking themselves. What do you think?`\
+https://www.nytimes.com/2026/09/09/learning/does-learning-to-write-still-matter-in-the-age-of-ai.html
+
+**The Data Center Conundrum**\
+`Let’s learn from Nordic Countries: If America actually supported workers, we’d have a better shot at embracing technological change.`\
+https://www.nytimes.com/2026/09/09/opinion/data-center-ai-resistance.html
+
+**I Worked on Safety at OpenAI. The Fix Isn’t Hard.**\
+`Even without government regulation, private companies can act on their own to address A.I. safety concerns.`\
+https://www.nytimes.com/2026/09/09/opinion/openai-ai-companies-safety-regulation.html
+
+**Apple presenta el iPhone Duo, un celular plegable de 1999 dólares**\
+`La empresa debuta en el mercado de las dobles pantallas con un producto de alta gama.`\
+https://www.nytimes.com/es/2026/09/09/espanol/negocios/apple-iphone-duo-precio-cuando-sale.html
+
 **Yemen Tilts Toward Full-Scale War as Saudi-Houthi Clashes Escalate**\
 `With its oil-export routes once again under threat, Saudi Arabia is stepping up its military campaign against an old antagonist.`\
 https://www.nytimes.com/2026/09/09/world/middleeast/saudi-yemen-strilkes.html
