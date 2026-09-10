@@ -1,19 +1,3 @@
-**Fetterman’s Surprise GOP Convention Video Angers Democrats**\
-`Democrats in Pennsylvania reacted with a mix of annoyance and eye-rolling to Senator John Fetterman’s video appearance at Republicans’ midterm convention.`\
-https://www.nytimes.com/2026/09/09/us/politics/democrats-fetterman-trump-convention.html
-
-**AOC Hits the Campaign Trail for Senate Candidate Angie Nixon in Florida**\
-`The progressive representative from New York spoke at a small event to help lift the underdog Senate candidate Angie Nixon.`\
-https://www.nytimes.com/2026/09/09/us/politics/angie-nixon-alexandria-ocasio-cortez-florida.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/us/politics/100000011143251/09vid-rnc-dallas-trump-clothing-55503.html
-
-**Watch Live: Trump Speaks at the G.O.P. Midterm Convention**\
-`President Trump delivers remarks at the Republican midterm convention in Dallas.`\
-https://www.nytimes.com/video/embedded/us/politics/100000011143237/watch-live-trump-speech-midterm.html
-
 **Helena Foulkes Defeats Rhode Island Gov. Dan McKee in Democratic Primary**\
 `Ms. Foulkes, a former CVS executive, had hammered Mr. McKee for his handling of a bridge closure that created traffic nightmares.`\
 https://www.nytimes.com/2026/09/09/us/rhode-island-governor-democrat-foulkes-mckee.html
@@ -173,6 +157,38 @@ https://www.nytimes.com/es/2026/09/09/espanol/estados-unidos/tps-el-salvador-tru
 **Lost at the U.S. Open? Find the Super-Cheerful People in Straw Hats.**\
 `No matter the problem, the U.S. Open ambassadors are here to help.`\
 https://www.nytimes.com/2026/09/09/nyregion/tennis-us-open-ambassadors.html
+
+**Hunter Biden’s ‘Laptop’ Crypto Coin Plummets Upon Launching**\
+`The president’s son portrayed his memecoin as a symbol of redemption. Critics denounced it as hypocrisy.`\
+https://www.nytimes.com/2026/09/09/us/politics/hunter-biden-crypto-coin-laptop.html
+
+**The Good List: 6 Things to Bring Joy to Your Day**\
+`Astronomical dawn, dahlia season and cute names for serious things.`\
+https://www.nytimes.com/2026/09/09/briefing/09-the-good-list-perfect-september.html
+
+**Trump’s Convention Offers an Unusual Fund-Raising Opportunity for Republicans**\
+`Republicans are hoping to use the Dallas extravaganza as a fund-raising opportunity, with some local parties charging as much as $20,000 to be an “honorary delegate.”`\
+https://www.nytimes.com/2026/09/09/us/politics/trump-republican-midterm-convention-fundraising.html
+
+**Iran’s Strikes on Base in Jordan Caused Limited Damage, U.S. Officials Say**\
+`The latest round of fighting may result in reports of traumatic brain injuries among American service members, officials warned.`\
+https://www.nytimes.com/2026/09/09/us/politics/iran-strikes-jordan-base.html
+
+**Un video muestra al gerente de un supermercado que salva a una niña en Puebla**\
+`Luis Cruz corrió hacia una calle transitada para apartar a una niña del camino de una camioneta que se aproximaba. El video del rescate lo ha convertido en una sensación local.`\
+https://www.nytimes.com/es/2026/09/09/espanol/video-nina-atropellada-puebla.html
+
+**The Local: Tackling heat and talking to Klobuchar**\
+`Plus, the State Fair by the numbers.`\
+https://www.nytimes.com/2026/09/09/briefing/heat-island-effect.html
+
+**Apple Launches Its First Foldable iPhone**\
+`Apple introduced the iPhone Duo, the company’s first device that opens and closes like a book, at the company’s annual product event on Wednesday.`\
+https://www.nytimes.com/video/technology/personaltech/100000011141460/apple-iphone-duo-foldable-phone.html
+
+**King Harald V’s Funeral Draws Thousands of Mourners**\
+`Thousands of mourners gathered in Oslo for the funeral of King Harald V on Wednesday. Royal families and heads of state attended the ceremony. Harald, who died in August, was 89.`\
+https://www.nytimes.com/video/world/europe/100000011141711/norway-king-harald-funeral.html
 
 **Trump Floats $5,000 Checks to Americans if Republicans Win Midterms**\
 `The president offered a “dividend” to every adult citizen if Republicans keep control of Congress. But his sagging approval ratings could endanger his party’s chances in November.`\
