@@ -1,3 +1,19 @@
+**Trump Takes No Position on Allies’ Sanctions Against Israeli Settlements**\
+`The president declined to say whether the United States opposed measures taken by Britain, Canada and France over violence against Palestinians in the West Bank.`\
+https://www.nytimes.com/2026/09/09/us/politics/trump-sanctions-israel-settlements-palestinians.html
+
+**Emergency Slide Is Accidentally Deployed on New Air Force One**\
+`A military aide accidentally deployed the emergency slide on the new Air Force One on Wednesday, according to a person familiar with the episode.`\
+https://www.nytimes.com/video/us/politics/100000011142824/trump-air-force-one-emergency-slide.html
+
+**Fetterman Has a Surprise Cameo at Trump’s Convention**\
+`Senator John Fetterman, who has become alienated from his own party, appeared in a short video filmed in front of a steel mill, saying he is “always going to reject the extremes in socialism.”`\
+https://www.nytimes.com/2026/09/09/us/politics/john-fetterman-trump-republican-convention.html
+
+**Brothers Seeking Pardons for Sex Trafficking Hire a Former Trump Lawyer**\
+`Documents appear to show payments were made to the lawyer Alan M. Dershowitz to pursue “executive clemency and judicial reversal” for Tal, Oren and Alon Alexander.`\
+https://www.nytimes.com/2026/09/09/nyregion/dershowitz-alexander-brothers-pardon.html
+
 **Hunter Biden’s ‘Laptop’ Crypto Coin Plummets Upon Launching**\
 `The president’s son portrayed his memecoin as a symbol of redemption. Critics denounced it as hypocrisy.`\
 https://www.nytimes.com/2026/09/09/us/politics/hunter-biden-crypto-coin-laptop.html
