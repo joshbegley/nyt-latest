@@ -1,3 +1,7 @@
+**Live Updates: Trump Promises Americans $5,000, but Only if Republicans Win Midterms**\
+`The president vowed to pay a “dividend” to every adult citizen if Republicans keep control of Congress. But his sagging approval ratings could endanger his party’s chances in November.`\
+https://www.nytimes.com/live/2026/09/09/us/rnc-trump-midterm-convention-updates
+
 **Live Updates: Trump Urges Republicans at Convention to ‘Pretend I’m on the Ballot’**\
 `The president promised a $5,000 payment to every adult citizen if Republicans keep control of Congress, but his sagging approval ratings could complicate his midterm message.`\
 https://www.nytimes.com/live/2026/09/09/us/rnc-trump-midterm-convention-updates
