@@ -1,3 +1,7 @@
+**Fighting Wildfire Haze With an Airplane and Lots of Salt and Water**\
+`The authorities in Malaysian Borneo have been trying to seed clouds to counteract the effects of smoke wafting in from neighboring Indonesia.`\
+https://www.nytimes.com/2026/09/09/world/asia/indonesia-wildfires-malaysia-cloud-seeding.html
+
 **August Ties for Hottest Month on Record**\
 `Sweltering summer temperatures put last month on par with July 2023 for global warmth, scientists said. More records could be broken in the months ahead.`\
 https://www.nytimes.com/2026/09/09/climate/august-hottest-month-global-warming.html
@@ -145,18 +149,6 @@ https://www.nytimes.com/2026/09/09/us/doj-california-berkeley.html
 **Back to School, Now With A.I.**\
 `This year is shaping up to be a global experiment in education: Can students embrace tech innovation without losing critical thinking skills?`\
 https://www.nytimes.com/2026/09/09/world/10int-theworld-web-ai-education.html
-
-**U.S. Designates Ecuador’s Los Tiguerones Gang as Terrorist Group**\
-`The sanctions on Los Tiguerones imposed by Secretary of State Marco Rubio are an increasingly common U.S. tactic, though they will likely not hurt the gang’s finances.`\
-https://www.nytimes.com/2026/09/09/world/americas/ecuador-los-tiguerones-terrorist.html
-
-**James Talarico Counters Trump’s Midterm Convention With Food Drive**\
-`The Democratic Senate candidate used a food drive to sharpen his economic message against Ken Paxton.`\
-https://www.nytimes.com/2026/09/09/us/politics/talarico-republican-midterm-convention-counterprogramming.html
-
-**Election Officials Grapple With Uncertainty as Supreme Court Considers Mail Ballot Plan**\
-`As they wait for word on whether the Trump administration’s new system to screen ballots can move forward, local officials say they are running out of time.`\
-https://www.nytimes.com/2026/09/09/us/politics/election-officials-confusion-mail-ballots.html
 
 **Trump Floats $5,000 Checks to Americans if Republicans Win Midterms**\
 `The president offered a “dividend” to every adult citizen if Republicans keep control of Congress. But his sagging approval ratings could endanger his party’s chances in November.`\
