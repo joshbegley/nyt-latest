@@ -1,23 +1,3 @@
-**Quote of the Day: A Refugee’s Detention by ICE Set a Clock Ticking**\
-`Quotation of the Day for Thursday, September 10, 2026.`\
-https://www.nytimes.com/2026/09/10/pageoneplus/quote-of-the-day-a-refugees-detention-by-ice-set-a-clock-ticking.html
-
-**On This Day | Sept. 10**\
-`In 1897, sheriff’s deputies fired on striking coal miners near Lattimer, Pa., killing more than a dozen workers in a major labor-rights confrontation.`\
-https://www.nytimes.com/2026/09/10/learning/on-this-day-sept-10.html
-
-**At Least 5 Dead, More Than 80 Missing After Ferry Fire in the Philippines**\
-`The June Aster was sailing from Manila to Coron, a popular tourist destination, when a fire broke out aboard the vessel.`\
-https://www.nytimes.com/2026/09/09/world/asia/philippines-ferry-fire-palawan.html
-
-**Republican Senate Candidates Avoid Tariffs and Iran War at Trump’s Convention**\
-`Four battleground Senate nominees who spoke sidestepped a pair of issues that have posed political challenges, focusing instead on Mr. Trump’s tax law and other topics.`\
-https://www.nytimes.com/2026/09/09/us/politics/republican-senate-candidates-trump-convention.html
-
-**Fighting Wildfire Haze With an Airplane and Lots of Salt and Water**\
-`The authorities in Malaysian Borneo have been trying to seed clouds to counteract the effects of smoke wafting in from neighboring Indonesia.`\
-https://www.nytimes.com/2026/09/09/world/asia/indonesia-wildfires-malaysia-cloud-seeding.html
-
 **August Ties for Hottest Month on Record**\
 `Sweltering summer temperatures put last month on par with July 2023 for global warmth, scientists said. More records could be broken in the months ahead.`\
 https://www.nytimes.com/2026/09/09/climate/august-hottest-month-global-warming.html
@@ -149,6 +129,30 @@ https://www.nytimes.com/2026/09/09/opinion/data-center-ai-resistance.html
 **I Worked on Safety at OpenAI. The Fix Isn’t Hard.**\
 `Even without government regulation, private companies can act on their own to address A.I. safety concerns.`\
 https://www.nytimes.com/2026/09/09/opinion/openai-ai-companies-safety-regulation.html
+
+**Apple presenta el iPhone Duo, un celular plegable de 1999 dólares**\
+`La empresa debuta en el mercado de las dobles pantallas con un producto de alta gama.`\
+https://www.nytimes.com/es/2026/09/09/espanol/negocios/apple-iphone-duo-precio-cuando-sale.html
+
+**Why Are Some Gen Z College Students Leaving Campus After 2 Weeks?**\
+`Dozens of videos on social media feature freshmen moving out early in the first semester.`\
+https://www.nytimes.com/2026/09/09/style/gen-z-college-students-quit.html
+
+**Trump Administration Accuses Berkeley Law School of Racial Discrimination**\
+`The Justice and Education Departments said the school had penalized white and Asian applicants, the latest in a series of investigations into admissions at elite universities.`\
+https://www.nytimes.com/2026/09/09/us/doj-california-berkeley.html
+
+**Back to School, Now With A.I.**\
+`This year is shaping up to be a global experiment in education: Can students embrace tech innovation without losing critical thinking skills?`\
+https://www.nytimes.com/2026/09/09/world/10int-theworld-web-ai-education.html
+
+**U.S. Designates Ecuador’s Los Tiguerones Gang as Terrorist Group**\
+`The sanctions on Los Tiguerones imposed by Secretary of State Marco Rubio are an increasingly common U.S. tactic, though they will likely not hurt the gang’s finances.`\
+https://www.nytimes.com/2026/09/09/world/americas/ecuador-los-tiguerones-terrorist.html
+
+**James Talarico Counters Trump’s Midterm Convention With Food Drive**\
+`The Democratic Senate candidate used a food drive to sharpen his economic message against Ken Paxton.`\
+https://www.nytimes.com/2026/09/09/us/politics/talarico-republican-midterm-convention-counterprogramming.html
 
 **Trump Floats $5,000 Checks to Americans if Republicans Win Midterms**\
 `The president offered a “dividend” to every adult citizen if Republicans keep control of Congress. But his sagging approval ratings could endanger his party’s chances in November.`\
