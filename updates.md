@@ -1,3 +1,7 @@
+**Live Updates: Trump Floats $5,000 Checks to Americans, but Only if Republicans Win Midterms**\
+`The president offered a “dividend” to every adult citizen if Republicans keep control of Congress. But his sagging approval ratings could endanger his party’s chances in November.`\
+https://www.nytimes.com/live/2026/09/09/us/rnc-trump-midterm-convention-updates
+
 **Live Updates: Trump Promises Americans $5,000, but Only if Republicans Win Midterms**\
 `The president vowed to pay a “dividend” to every adult citizen if Republicans keep control of Congress. But his sagging approval ratings could endanger his party’s chances in November.`\
 https://www.nytimes.com/live/2026/09/09/us/rnc-trump-midterm-convention-updates
