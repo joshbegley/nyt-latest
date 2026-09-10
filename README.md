@@ -1,3 +1,7 @@
+**Republican Senate Candidates Avoid Tariffs and Iran War at Trump’s Convention**\
+`Four battleground Senate nominees who spoke sidestepped a pair of issues that have posed political challenges, focusing instead on Mr. Trump’s tax law and other topics.`\
+https://www.nytimes.com/2026/09/09/us/politics/republican-senate-candidates-trump-convention.html
+
 **Fighting Wildfire Haze With an Airplane and Lots of Salt and Water**\
 `The authorities in Malaysian Borneo have been trying to seed clouds to counteract the effects of smoke wafting in from neighboring Indonesia.`\
 https://www.nytimes.com/2026/09/09/world/asia/indonesia-wildfires-malaysia-cloud-seeding.html
@@ -145,10 +149,6 @@ https://www.nytimes.com/2026/09/09/style/gen-z-college-students-quit.html
 **Trump Administration Accuses Berkeley Law School of Racial Discrimination**\
 `The Justice and Education Departments said the school had penalized white and Asian applicants, the latest in a series of investigations into admissions at elite universities.`\
 https://www.nytimes.com/2026/09/09/us/doj-california-berkeley.html
-
-**Back to School, Now With A.I.**\
-`This year is shaping up to be a global experiment in education: Can students embrace tech innovation without losing critical thinking skills?`\
-https://www.nytimes.com/2026/09/09/world/10int-theworld-web-ai-education.html
 
 **Live Updates: Trump Floats $5,000 Checks to Americans if Republicans Win Midterms**\
 `The president offered a “dividend” to every adult citizen if Republicans keep control of Congress. But his sagging approval ratings could endanger his party’s chances in November.`\
