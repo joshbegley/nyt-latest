@@ -1,3 +1,19 @@
+**Apple presenta el iPhone Duo, un celular plegable de 1999 dólares**\
+`La empresa debuta en el mercado de las dobles pantallas con un producto de alta gama.`\
+https://www.nytimes.com/es/2026/09/09/espanol/negocios/apple-iphone-duo-precio-cuando-sale.html
+
+**Why Are Some Gen Z College Students Leaving Campus After 2 Weeks?**\
+`Dozens of videos on social media feature freshmen moving out early in the first semester.`\
+https://www.nytimes.com/2026/09/09/style/gen-z-college-students-quit.html
+
+**Trump Administration Accuses Berkeley Law School of Racial Discrimination**\
+`The Justice and Education Departments said the school had penalized white and Asian applicants, the latest in a series of investigations into admissions at elite universities.`\
+https://www.nytimes.com/2026/09/09/us/doj-california-berkeley.html
+
+**Back to School, Now With A.I.**\
+`This year is shaping up to be a global experiment in education: Can students embrace tech innovation without losing critical thinking skills?`\
+https://www.nytimes.com/2026/09/09/world/10int-theworld-web-ai-education.html
+
 **Quote of the Day: A Refugee’s Detention by ICE Set a Clock Ticking**\
 `Quotation of the Day for Thursday, September 10, 2026.`\
 https://www.nytimes.com/2026/09/10/pageoneplus/quote-of-the-day-a-refugees-detention-by-ice-set-a-clock-ticking.html
