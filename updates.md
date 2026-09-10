@@ -1,3 +1,55 @@
+**Republican Senate Candidates Avoid Tariffs and Iran War at Trump’s Convention**\
+`Four battleground Senate nominees who spoke sidestepped a pair of issues that have posed political challenges, focusing instead on Mr. Trump’s tax law and other topics.`\
+https://www.nytimes.com/2026/09/09/us/politics/republican-senate-candidates-trump-convention.html
+
+**Fighting Wildfire Haze With an Airplane and Lots of Salt and Water**\
+`The authorities in Malaysian Borneo have been trying to seed clouds to counteract the effects of smoke wafting in from neighboring Indonesia.`\
+https://www.nytimes.com/2026/09/09/world/asia/indonesia-wildfires-malaysia-cloud-seeding.html
+
+**August Ties for Hottest Month on Record**\
+`Sweltering summer temperatures put last month on par with July 2023 for global warmth, scientists said. More records could be broken in the months ahead.`\
+https://www.nytimes.com/2026/09/09/climate/august-hottest-month-global-warming.html
+
+**How Fighting Fires Became an All-of-Europe Project**\
+`The European Union isn’t known for firefighting expertise. But with the continent ablaze, Brussels is playing a growing role.`\
+https://www.nytimes.com/2026/09/09/world/europe/eu-fire-fighting.html
+
+**NYT Crossword Answers for Sept. 10, 2026**\
+`Blanking on the clues in Simeon Seigel’s puzzle?`\
+https://www.nytimes.com/2026/09/09/crosswords/daily-puzzle-2026-09-10.html
+
+**Fetterman’s Surprise GOP Convention Video Angers Democrats**\
+`Democrats in Pennsylvania reacted with a mix of annoyance and eye-rolling to Senator John Fetterman’s video appearance at Republicans’ midterm convention.`\
+https://www.nytimes.com/2026/09/09/us/politics/democrats-fetterman-trump-convention.html
+
+**AOC Hits the Campaign Trail for Senate Candidate Angie Nixon in Florida**\
+`The progressive representative from New York spoke at a small event to help lift the underdog Senate candidate Angie Nixon.`\
+https://www.nytimes.com/2026/09/09/us/politics/angie-nixon-alexandria-ocasio-cortez-florida.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011143251/09vid-rnc-dallas-trump-clothing-55503.html
+
+**Watch Live: Trump Speaks at the G.O.P. Midterm Convention**\
+`President Trump delivers remarks at the Republican midterm convention in Dallas.`\
+https://www.nytimes.com/video/embedded/us/politics/100000011143237/watch-live-trump-speech-midterm.html
+
+**Helena Foulkes Defeats Rhode Island Gov. Dan McKee in Democratic Primary**\
+`Ms. Foulkes, a former CVS executive, had hammered Mr. McKee for his handling of a bridge closure that created traffic nightmares.`\
+https://www.nytimes.com/2026/09/09/us/rhode-island-governor-democrat-foulkes-mckee.html
+
+**A Flyover for 9/11 in Denver, With a United Jet and F-16s, Is Called Off**\
+`The company said the flyover was meant to be a “meaningful gesture to honor the memory of those lost within the pilot community.”`\
+https://www.nytimes.com/2026/09/09/us/united-airlines-9-11-denver-flyover.html
+
+**Justice Dept. Investigates Nvidia Deal With Groq**\
+`The Justice Department is examining whether the tech giant sought to sidestep antitrust scrutiny.`\
+https://www.nytimes.com/2026/09/09/business/nvidia-groq-antitrust.html
+
+**Anonymous Letter Set Investigation Into a Lieutenant Governor in Motion**\
+`The letter claimed that Dale Caldwell, New Jersey’s lieutenant governor, brought “uninvited female guests” to events. Mr. Caldwell said the complaint rested on “misinformation.”`\
+https://www.nytimes.com/2026/09/09/nyregion/new-jersey-dale-caldwell-lieutenant-governor-investigation.html
+
 **Apple presenta el iPhone Duo, un celular plegable de 1999 dólares**\
 `La empresa debuta en el mercado de las dobles pantallas con un producto de alta gama.`\
 https://www.nytimes.com/es/2026/09/09/espanol/negocios/apple-iphone-duo-precio-cuando-sale.html
