@@ -1,3 +1,107 @@
+**Yemen Tilts Toward Full-Scale War as Saudi-Houthi Clashes Escalate**\
+`With its oil-export routes once again under threat, Saudi Arabia is stepping up its military campaign against an old antagonist.`\
+https://www.nytimes.com/2026/09/09/world/middleeast/saudi-yemen-strilkes.html
+
+**60 Posts in 10 Hours: How Trump’s Social Media Reflects His Version of Reality**\
+`With an assist from A.I., President Trump offers a window into how he wants to be seen — and, critics say, a barometer of his mental state.`\
+https://www.nytimes.com/2026/09/09/us/politics/trump-social-media-ai-reality.html
+
+**Spain Declassifies Warning to Morocco About Migrant Crossing Plans**\
+`Spain’s intelligence service had alerted Morocco about social media calls for a border exodus into Ceuta, which led to more than 100 deaths and a political crisis in Spain.`\
+https://www.nytimes.com/2026/09/09/world/europe/spain-ceuta-migrants-report.html
+
+**William Anderson, Doctor and Civil Rights Leader in Georgia, Dies at 98**\
+`An osteopath in Albany, Ga., he drew national attention, and the involvement of the Rev. Dr. Martin Luther King Jr., for his efforts to end segregation.`\
+https://www.nytimes.com/2026/09/09/us/william-anderson-dead.html
+
+**Apple Unveils the iPhone Duo, a Foldable Phone That Costs $1,999**\
+`At the company’s annual September product event, Apple also demonstrated its work on artificial intelligence and other new devices.`\
+https://www.nytimes.com/2026/09/09/technology/apple-iphone-duo-foldable-phone.html
+
+**14 Killed in Weapons Depot Blast in Northwest Syria**\
+`Officials said they had not determined the cause of the explosion. Years of fighting have left Syria littered with weapons and ordnance left over from the civil war.`\
+https://www.nytimes.com/2026/09/09/world/middleeast/syria-weapons-depot-blast.html
+
+**Why Trump’s Republican Midterm ‘Convention’ Isn’t a Real Convention**\
+`No nominations or formal party business will be happening, as they would at a traditional presidential convention. But the made-for-TV speeches will look much the same.`\
+https://www.nytimes.com/2026/09/09/us/politics/trump-republican-midterm-convention-gop-party.html
+
+**Grilled Corn and Avocado Salad With Feta Dressing**\
+`This lively salad of corn, scallions, jalapeño and avocado tossed with a tangy buttermilk-feta dressing is like summer on a plate.`\
+https://www.nytimes.com/video/dining/100000011140090/grilled-corn-and-avocado-salad-with-feta-dressing.html
+
+**Blueberry Poppy Seed Brunch Cake**\
+`This recipe was brought to The Times in a 1990 article by Marian Burros about the 34th Pillsbury Bake-Off, the Super Bowl of baking contests.`\
+https://www.nytimes.com/video/dining/100000011139984/blueberry-poppy-seed-brunch-cake.html
+
+**Summer Pasta With Zucchini, Ricotta and Basil**\
+`This summer pasta is simple and fresh, ideally made with vegetables straight from the garden or market.`\
+https://www.nytimes.com/video/dining/100000011139951/summer-pasta-with-zucchini-ricotta-and-basil.html
+
+**Pesto Beans**\
+`Part quick and rustic bean stew and part deconstructed pesto, this pesto-inspired one-pan meal requires no blender and minimal slicing.`\
+https://www.nytimes.com/video/dining/100000011139925/pesto-beans.html
+
+**Cumin Tomato Salad With Jammy Eggs**\
+`Inspired by the delightful Indian egg curry, this egg salad recipe omits traditional mayonnaise in favor of a looser, brighter mix of fresh tomatoes, cilantro and sizzled spices.`\
+https://www.nytimes.com/video/dining/100000011139846/cumin-tomato-salad-with-jammy-eggs.html
+
+**Scientists Discover the Earliest Evidence of Drug Use in Really Old Teeth**\
+`A hunter-gatherer who lived in Indonesia as early as 25,000 years ago may have regularly sucked on betel nuts to release their psychoactive properties.`\
+https://www.nytimes.com/2026/09/09/science/scientists-discover-the-earliest-evidence-of-drug-use-in-really-old-teeth.html
+
+**36 Hours in Stockholm: Things to Do and See**\
+`The breezy Swedish capital beckons in late summer, with new swimming piers, forest art installations, rooftop bars and budget-friendly boat rides.`\
+https://www.nytimes.com/interactive/2026/09/10/travel/things-to-do-stockholm.html
+
+**Toxic PFAS Cleanups at Military Sites Face Decades of Delay**\
+`The Pentagon has again postponed PFAS cleanups at hundreds of military sites, in some cases up to 19 years, prompting bipartisan anger in Congress.`\
+https://www.nytimes.com/2026/09/09/climate/pfas-military-bases-cleanup-delays.html
+
+**Police Expand Investigation Into Reform U.K. After Undercover Sting**\
+`The Metropolitan Police are investigating Nigel Farage’s right-wing populist party after footage appeared to show party officials arranging secret contributions from a foreign donor.`\
+https://www.nytimes.com/2026/09/09/world/europe/reform-uk-investigation-nigel-farage.html
+
+**‘S.N.L.’ Season 52: Jalen Brunson Will Host First Episode**\
+`The New York Knicks star will kick off the 52nd season of “Saturday Night Live” on Sept. 26. Other hosts include Shane Gillis and Dakota Johnson.`\
+https://www.nytimes.com/2026/09/09/arts/television/saturday-night-live-jalen-brunson.html
+
+**Tate Brothers Must Remain in U.S. Jail Until Extradition Case Is Decided**\
+`A judge in Miami declined to release Andrew and Tristan Tate from custody while they fight extradition to Britain.`\
+https://www.nytimes.com/2026/09/09/us/tristan-andrew-tate-brothers-flight-risk.html
+
+**EE. UU. dirige ataques a barcos en la costa de Ecuador**\
+`En las últimas dos semanas, oficiales militares estadounidenses han hundido seis barcos pesqueros grandes acusados de proveer combustible a lanchas rápidas que transportan drogas desde Sudamérica.`\
+https://www.nytimes.com/es/2026/09/09/espanol/america-latina/ecuador-eeuu-ataque-maritimo.html
+
+**Trump’s Midterm Pitch Clouded by Iran War and Canada Tariffs**\
+`A worsening trade war and a spike in oil prices could create new economic risks as the president prepares to rally Republicans for the midterms.`\
+https://www.nytimes.com/2026/09/09/business/canada-iran-war-trump-midterms.html
+
+**Video Shows Grocery Store Manager Saving Toddler From Oncoming Traffic**\
+`Luis Cruz dashed into a busy street in Puebla, Mexico, to pull a girl out of the path of an approaching S.U.V. Footage of the rescue has made him a local sensation.`\
+https://www.nytimes.com/2026/09/09/world/americas/video-mexico-toddler-traffic-rescue.html
+
+**Anthropic Researchers Raise Alarm Over A.I. Acceleration, Warning of Threat to Humanity**\
+`Their warnings echo concerns that other artificial intelligence experts have voiced in recent months, as calls increase for a slowdown in the pace of development.`\
+https://www.nytimes.com/2026/09/09/technology/anthropic-researchers-raise-alarm.html
+
+**Why Israel Reacted With Fury to U.K. Sanctions on West Bank Settlements**\
+`The fierce retaliation of Prime Minister Benjamin Netanyahu’s government to the new restrictions is a reflection of his tough re-election fight, analysts say.`\
+https://www.nytimes.com/2026/09/09/world/middleeast/israel-uk-west-bank-sanctions.html
+
+**How Trump’s Mail Voting Plan Would Work**\
+`The plan, which two dozen states have challenged as unconstitutional, puts in place new requirements about who can receive mail ballots.`\
+https://www.nytimes.com/2026/09/09/us/politics/trump-mail-in-voting-ballots-usps.html
+
+**More Flights Are Canceled as Major U.K. Air Traffic Disruption Persists**\
+`More than 2,000 flights were disrupted over two days after a technical failure in Britain’s air traffic control system affected several airports.`\
+https://www.nytimes.com/video/world/europe/100000011141527/canceled-flights-uk-air-traffic-disruption.html
+
+**Joseph Rice, Lowcountry Lawyer Who Took On Big Tobacco, Dies at 72**\
+`He challenged tobacco companies as well as the opioid industry, securing multibillion-dollar settlements that also benefited public health.`\
+https://www.nytimes.com/2026/09/09/us/joe-rice-dead.html
+
 **Apple presenta el iPhone Duo, un celular plegable de 1999 dólares**\
 `La empresa debuta en el mercado de las dobles pantallas con un producto de alta gama.`\
 https://www.nytimes.com/es/2026/09/09/espanol/negocios/apple-iphone-duo-precio-cuando-sale.html
