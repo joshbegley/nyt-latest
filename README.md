@@ -1,3 +1,111 @@
+**Why Are Some Gen Z College Students Leaving Campus After 2 Weeks?**\
+`Dozens of videos on social media feature freshmen moving out early in the first semester.`\
+https://www.nytimes.com/2026/09/09/style/gen-z-college-students-quit.html
+
+**Trump Administration Accuses Berkeley Law School of Racial Discrimination**\
+`The Justice and Education Departments said the school had penalized white and Asian applicants, the latest in a series of investigations into admissions at elite universities.`\
+https://www.nytimes.com/2026/09/09/us/doj-california-berkeley.html
+
+**Back to School, Now With A.I.**\
+`This year is shaping up to be a global experiment in education: Can students embrace tech innovation without losing critical thinking skills?`\
+https://www.nytimes.com/2026/09/09/world/10int-theworld-web-ai-education.html
+
+**U.S. Designates Ecuador’s Los Tiguerones Gang as Terrorist Group**\
+`The sanctions on Los Tiguerones imposed by Secretary of State Marco Rubio are an increasingly common U.S. tactic, though they will likely not hurt the gang’s finances.`\
+https://www.nytimes.com/2026/09/09/world/americas/ecuador-los-tiguerones-terrorist.html
+
+**James Talarico Counters Trump’s Midterm Convention With Food Drive**\
+`The Democratic Senate candidate used a food drive to sharpen his economic message against Ken Paxton.`\
+https://www.nytimes.com/2026/09/09/us/politics/talarico-republican-midterm-convention-counterprogramming.html
+
+**Election Officials Grapple With Uncertainty as Supreme Court Considers Mail Ballot Plan**\
+`As they wait for word on whether the Trump administration’s new system to screen ballots can move forward, local officials say they are running out of time.`\
+https://www.nytimes.com/2026/09/09/us/politics/election-officials-confusion-mail-ballots.html
+
+**Misery at Heathrow: ‘Never Seen Chaos Like That’**\
+`Over 2,000 flights have been disrupted in the past two days, as an air-traffic control problem has stymied British airports.`\
+https://www.nytimes.com/2026/09/09/world/europe/heathrow-uk-flights-travel.html
+
+**How the Super Godzilla Monster El Niño Could Actually Affect Your Weather**\
+`Yes, El Niño is unusually powerful this time. But that’s not always a bad thing.`\
+https://www.nytimes.com/2026/09/09/weather/el-nino-weather-forecast-facts.html
+
+**New Mexico’s Name Is Older Than the U.S. Trump Still Wants to Change It.**\
+`President Trump has no authority to change the state’s name, but his suggestion has constituted fighting words to proud New Mexicans.`\
+https://www.nytimes.com/2026/09/09/us/new-america-trump-reaction-new-mexico.html
+
+**Lucien Smith, Art-World Star Whose Career Abruptly Turned, Dies at 37**\
+`A phenom in his 20s, he became the poster child for Zombie Formalism before abandoning the gallery frenzy for Montauk.`\
+https://www.nytimes.com/2026/09/09/obituaries/lucien-smith-dead.html
+
+**Trump Is Delayed After Emergency Slide Deploys on New Air Force One**\
+`The mishap occurred while the Qatari-donated jet was parked on the tarmac at Joint Base Andrews. It delayed President Trump’s departure to a Republican convention in Dallas.`\
+https://www.nytimes.com/2026/09/09/us/politics/emergency-slide-air-force-one-trump.html
+
+**Los salvadoreños mantendrán sus protecciones contra la deportación de EE. UU. por ahora**\
+`Estaba previsto que el Estatus de Protección Temporal para El Salvador expirara el miércoles. El gobierno de Trump dijo que haría un anuncio sobre el futuro del programa “en el momento adecuado”.`\
+https://www.nytimes.com/es/2026/09/09/espanol/estados-unidos/tps-el-salvador-trump.html
+
+**Lost at the U.S. Open? Find the Super-Cheerful People in Straw Hats.**\
+`No matter the problem, the U.S. Open ambassadors are here to help.`\
+https://www.nytimes.com/2026/09/09/nyregion/tennis-us-open-ambassadors.html
+
+**Hunter Biden’s ‘Laptop’ Crypto Coin Plummets Upon Launching**\
+`The president’s son portrayed his memecoin as a symbol of redemption. Critics denounced it as hypocrisy.`\
+https://www.nytimes.com/2026/09/09/us/politics/hunter-biden-crypto-coin-laptop.html
+
+**The Good List: 6 Things to Bring Joy to Your Day**\
+`Astronomical dawn, dahlia season and cute names for serious things.`\
+https://www.nytimes.com/2026/09/09/briefing/09-the-good-list-perfect-september.html
+
+**Trump’s Convention Offers an Unusual Fund-Raising Opportunity for Republicans**\
+`Republicans are hoping to use the Dallas extravaganza as a fund-raising opportunity, with some local parties charging as much as $20,000 to be an “honorary delegate.”`\
+https://www.nytimes.com/2026/09/09/us/politics/trump-republican-midterm-convention-fundraising.html
+
+**Iran’s Strikes on Base in Jordan Caused Limited Damage, U.S. Officials Say**\
+`The latest round of fighting may result in reports of traumatic brain injuries among American service members, officials warned.`\
+https://www.nytimes.com/2026/09/09/us/politics/iran-strikes-jordan-base.html
+
+**Un video muestra al gerente de un supermercado que salva a una niña en Puebla**\
+`Luis Cruz corrió hacia una calle transitada para apartar a una niña del camino de una camioneta que se aproximaba. El video del rescate lo ha convertido en una sensación local.`\
+https://www.nytimes.com/es/2026/09/09/espanol/video-nina-atropellada-puebla.html
+
+**The Local: Tackling heat and talking to Klobuchar**\
+`Plus, the State Fair by the numbers.`\
+https://www.nytimes.com/2026/09/09/briefing/heat-island-effect.html
+
+**Apple Launches Its First Foldable iPhone**\
+`Apple introduced the iPhone Duo, the company’s first device that opens and closes like a book, at the company’s annual product event on Wednesday.`\
+https://www.nytimes.com/video/technology/personaltech/100000011141460/apple-iphone-duo-foldable-phone.html
+
+**King Harald V’s Funeral Draws Thousands of Mourners**\
+`Thousands of mourners gathered in Oslo for the funeral of King Harald V on Wednesday. Royal families and heads of state attended the ceremony. Harald, who died in August, was 89.`\
+https://www.nytimes.com/video/world/europe/100000011141711/norway-king-harald-funeral.html
+
+**Yemen Tilts Toward Full-Scale War as Saudi-Houthi Clashes Escalate**\
+`With its oil-export routes once again under threat, Saudi Arabia is stepping up its military campaign against an old antagonist.`\
+https://www.nytimes.com/2026/09/09/world/middleeast/saudi-yemen-strilkes.html
+
+**60 Posts in 10 Hours: How Trump’s Social Media Reflects His Version of Reality**\
+`With an assist from A.I., President Trump offers a window into how he wants to be seen — and, critics say, a barometer of his mental state.`\
+https://www.nytimes.com/2026/09/09/us/politics/trump-social-media-ai-reality.html
+
+**Spain Declassifies Warning to Morocco About Migrant Crossing Plans**\
+`Spain’s intelligence service had alerted Morocco about social media calls for a border exodus into Ceuta, which led to more than 100 deaths and a political crisis in Spain.`\
+https://www.nytimes.com/2026/09/09/world/europe/spain-ceuta-migrants-report.html
+
+**William Anderson, Doctor and Civil Rights Leader in Georgia, Dies at 98**\
+`An osteopath in Albany, Ga., he drew national attention, and the involvement of the Rev. Dr. Martin Luther King Jr., for his efforts to end segregation.`\
+https://www.nytimes.com/2026/09/09/us/william-anderson-dead.html
+
+**Apple Unveils the iPhone Duo, a Foldable Phone That Costs $1,999**\
+`At the company’s annual September product event, Apple also demonstrated its work on artificial intelligence and other new devices.`\
+https://www.nytimes.com/2026/09/09/technology/apple-iphone-duo-foldable-phone.html
+
+**14 Killed in Weapons Depot Blast in Northwest Syria**\
+`Officials said they had not determined the cause of the explosion. Years of fighting have left Syria littered with weapons and ordnance left over from the civil war.`\
+https://www.nytimes.com/2026/09/09/world/middleeast/syria-weapons-depot-blast.html
+
 **Why Trump’s Republican Midterm ‘Convention’ Isn’t a Real Convention**\
 `No nominations or formal party business will be happening, as they would at a traditional presidential convention. But the made-for-TV speeches will look much the same.`\
 https://www.nytimes.com/2026/09/09/us/politics/trump-republican-midterm-convention-gop-party.html
@@ -81,112 +189,4 @@ https://www.nytimes.com/video/world/europe/100000011141527/canceled-flights-uk-a
 **Joseph Rice, Lowcountry Lawyer Who Took On Big Tobacco, Dies at 72**\
 `He challenged tobacco companies as well as the opioid industry, securing multibillion-dollar settlements that also benefited public health.`\
 https://www.nytimes.com/2026/09/09/us/joe-rice-dead.html
-
-**Read the lawsuit against groups tied to Cesar Chavez**\
-`A woman claiming that Cesar Chavez raped her in the 1970s is accusing nonprofit groups affiliated with the Chavez family and the United Farm Workers of negligence, sexual harassment and violations of state civil rights laws. The person who filed the lawsuit anonymously is referred to in the court document as Jane Doe. The suit contains descriptions of sexual assault.`\
-https://www.nytimes.com/interactive/2026/09/09/us/complaint-jane-doe-v-cesar-chavez-foundation.html
-
-**Canada and the Bully to Its South**\
-`Readers discuss the contrasts between the United States and Canada, and the renaming of Lake Ontario as Lake America. Also: Conquering “digital territory.”`\
-https://www.nytimes.com/2026/09/09/opinion/canada-united-states.html
-
-**‘Tomatoes Turn Me On’**\
-`The chef and cookbook author Carla Lalli joins Anna Martin, the host of “Modern Love,” to talk about owning her cravings after her divorce.`\
-https://www.nytimes.com/video/podcasts/100000011139283/tomatoes-turn-me-on.html
-
-**Salvadorans to Keep Temporary Protected Status for Now, Trump Officials Say**\
-`Temporary Protected Status for El Salvador was set to expire on Wednesday. The Trump administration said it would make an announcement about the program’s future at the “appropriate time.”`\
-https://www.nytimes.com/2026/09/09/us/tps-el-salvador-immigrants-trump.html
-
-**Tiny Love Stories: ‘A Year of Nakedness Between Us’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://www.nytimes.com/2026/09/09/style/tiny-modern-love-stories-a-year-of-nakedness-between-us.html
-
-**Irán parece dispuesto a intensificar la lucha con EE. UU.**\
-`El gobierno iraní está adoptando un enfoque cada vez más agresivo a medida que enfrenta una amenaza económica creciente y teme que su control sobre el estrecho de Ormuz se esté debilitando, dicen los analistas.`\
-https://www.nytimes.com/es/2026/09/09/espanol/mundo/iran-guerra-eeuu-ormuz.html
-
-**Bond Market Rebuffs Treasury’s $6 Billion Plan to Reduce Borrowing Costs**\
-`The 10-year yield rose to its highest level in three years, suggesting investors were underwhelmed by the details of a move to buy back government bonds.`\
-https://www.nytimes.com/2026/09/09/business/economy/treasury-repurchase-bessent.html
-
-**17 Most Stylish Looks from the Venice Film Festival**\
-`The name of the game is elegance, ease and low-key flair. Sunglasses never hurt.`\
-https://www.nytimes.com/2026/09/09/style/venice-film-festival-best-dressed.html
-
-**Do I Have to Leave All My Stepchildren Equal Shares of the Inheritance?**\
-`We spent time with my oldest and youngest stepchildren’s families, but rarely saw the middle son.`\
-https://www.nytimes.com/2026/09/09/magazine/stepchildren-inheritance-ethics.html
-
-**Saudi Oil Exports Plunge as Spread of War Shuts Off Shipping Routes**\
-`With few good options for safely shipping oil, Saudi Arabia’s exports have fallen to a 13-year low.`\
-https://www.nytimes.com/2026/09/09/business/saudi-arabia-houthis-red-sea-oil-shipping.html
-
-**‘Ferris Bueller Gone Bad’: 22-Year-Old Pleads Guilty in Giant Bitcoin Heist**\
-`Malone Lam, a Singaporean citizen, admitted to stealing cryptocurrency valued at more than $245 million in one of the largest such heists in U.S. history.`\
-https://www.nytimes.com/2026/09/09/us/bitcoin-crypto-heist-malone-lam.html
-
-**Dallas Protests Planned as Trump, Republicans Gather for RNC Convention**\
-`City officials erected barricades, mapped out street closures and coordinated with federal agencies as protesters planned anti-Trump marches and demonstrations near the convention venue.`\
-https://www.nytimes.com/2026/09/09/us/republican-convention-protests-dallas.html
-
-**What to Wear on Campus This Fall**\
-`The host of The Fashions explains. And we share what you’re wearing.`\
-https://www.nytimes.com/2026/09/09/briefing/what-to-wear-on-campus-this-fall.html
-
-**Quick! Fresh Tomato Sauce!**\
-`The name of this five-star recipe is actually “quick fresh tomato sauce,” but I do need to make this right now, while the tomatoes are still so good.`\
-https://www.nytimes.com/2026/09/09/dining/quick-fresh-tomato-sauce.html
-
-**Should You Get a DEXA Scan at Menopause? What to Know About Bone Density Tests.**\
-`Some doctors and influencers say women shouldn’t wait until their 60s for a DEXA scan. Here’s what to consider before getting one.`\
-https://www.nytimes.com/2026/09/09/well/live/dexa-scan-bone-density-menopause.html
-
-**Federal Trial Against Huawei Begins After 8 Years**\
-`The Chinese telecommunications giant has been accused of stealing intellectual property from six companies, including Motorola Solutions and T-Mobile.`\
-https://www.nytimes.com/2026/09/09/nyregion/federal-trial-against-huawei-is-underway.html
-
-**Rhode Island Lieutenant Governor Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Rhode Island primary election.`\
-https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-lieutenant-governor-primary.html
-
-**Rhode Island Attorney General Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Rhode Island primary election.`\
-https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-attorney-general-primary.html
-
-**Rhode Island Second Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Rhode Island primary election.`\
-https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-us-house-2-primary.html
-
-**Providence, Rhode Island, Mayor Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Rhode Island primary election.`\
-https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-mayor-providence-primary.html
-
-**Rhode Island Treasurer Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Rhode Island primary election.`\
-https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-treasurer-primary.html
-
-**Rhode Island First Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Rhode Island primary election.`\
-https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-us-house-1-primary.html
-
-**Rhode Island Secretary of State Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Rhode Island primary election.`\
-https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-secretary-of-state-primary.html
-
-**Rhode Island U.S. Senate Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Rhode Island primary election.`\
-https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-us-senate-primary.html
-
-**Rhode Island Governor Primary 2026: Live Election Results, McKee vs. Foulkes**\
-`Get live results and maps from the 2026 Rhode Island primary election.`\
-https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-governor-primary.html
-
-**Rhode Island Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Rhode Island primary elections.`\
-https://www.nytimes.com/interactive/2026/09/09/us/elections/results-rhode-island-primary.html
-
-**U.S. Takes Aim at New Target in Deadly Boat Strike Campaign**\
-`U.S. military officials in the past two weeks have sunk six large fishing vessels accused of providing fuel to fast boats carrying drugs from South America.`\
-https://www.nytimes.com/2026/09/09/world/americas/us-boat-strikes-south-america.html
 
