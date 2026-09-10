@@ -1,3 +1,7 @@
+**A Flyover for 9/11 in Denver, With a United Jet and F-16s, Is Called Off**\
+`The company said the flyover was meant to be a “meaningful gesture to honor the memory of those lost within the pilot community.”`\
+https://www.nytimes.com/2026/09/09/us/united-airlines-9-11-denver-flyover.html
+
 **Justice Dept. Investigates Nvidia Deal With Groq**\
 `The Justice Department is examining whether the tech giant sought to sidestep antitrust scrutiny.`\
 https://www.nytimes.com/2026/09/09/business/nvidia-groq-antitrust.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/video/world/europe/100000011141711/norway-king-harald-fu
 **Yemen Tilts Toward Full-Scale War as Saudi-Houthi Clashes Escalate**\
 `With its oil-export routes once again under threat, Saudi Arabia is stepping up its military campaign against an old antagonist.`\
 https://www.nytimes.com/2026/09/09/world/middleeast/saudi-yemen-strilkes.html
-
-**60 Posts in 10 Hours: How Trump’s Social Media Reflects His Version of Reality**\
-`With an assist from A.I., President Trump offers a window into how he wants to be seen — and, critics say, a barometer of his mental state.`\
-https://www.nytimes.com/2026/09/09/us/politics/trump-social-media-ai-reality.html
 
 **Live Updates: A Surprise Fetterman Video Jolts Trump’s Midterm Convention**\
 `The video appearance by Senator John Fetterman, a Pennsylvania Democrat alienated from his own party, could fuel speculation about his political future. Mr. Trump is scheduled to speak later tonight in Dallas.`\

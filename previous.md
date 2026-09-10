@@ -1,3 +1,7 @@
+**Justice Dept. Investigates Nvidia Deal With Groq**\
+`The Justice Department is examining whether the tech giant sought to sidestep antitrust scrutiny.`\
+https://www.nytimes.com/2026/09/09/business/nvidia-groq-antitrust.html
+
 **Anonymous Letter Set Investigation Into a Lieutenant Governor in Motion**\
 `The letter claimed that Dale Caldwell, New Jersey’s lieutenant governor, brought “uninvited female guests” to events. Mr. Caldwell said the complaint rested on “misinformation.”`\
 https://www.nytimes.com/2026/09/09/nyregion/new-jersey-dale-caldwell-lieutenant-governor-investigation.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/09/09/world/middleeast/saudi-yemen-strilkes.html
 **60 Posts in 10 Hours: How Trump’s Social Media Reflects His Version of Reality**\
 `With an assist from A.I., President Trump offers a window into how he wants to be seen — and, critics say, a barometer of his mental state.`\
 https://www.nytimes.com/2026/09/09/us/politics/trump-social-media-ai-reality.html
-
-**Spain Declassifies Warning to Morocco About Migrant Crossing Plans**\
-`Spain’s intelligence service had alerted Morocco about social media calls for a border exodus into Ceuta, which led to more than 100 deaths and a political crisis in Spain.`\
-https://www.nytimes.com/2026/09/09/world/europe/spain-ceuta-migrants-report.html
 
 **Live Updates: A Surprise Fetterman Video Jolts Trump’s Midterm Convention**\
 `The video appearance by Senator John Fetterman, a Pennsylvania Democrat alienated from his own party, could fuel speculation about his political future. Mr. Trump is scheduled to speak later tonight in Dallas.`\

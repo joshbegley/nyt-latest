@@ -1,3 +1,7 @@
+**Justice Dept. Investigates Nvidia Deal With Groq**\
+`The Justice Department is examining whether the tech giant sought to sidestep antitrust scrutiny.`\
+https://www.nytimes.com/2026/09/09/business/nvidia-groq-antitrust.html
+
 **Anonymous Letter Set Investigation Into a Lieutenant Governor in Motion**\
 `The letter claimed that Dale Caldwell, New Jersey’s lieutenant governor, brought “uninvited female guests” to events. Mr. Caldwell said the complaint rested on “misinformation.”`\
 https://www.nytimes.com/2026/09/09/nyregion/new-jersey-dale-caldwell-lieutenant-governor-investigation.html
