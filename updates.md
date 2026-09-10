@@ -1,3 +1,7 @@
+**Live Updates: Trump Urges Republicans at Convention to ‘Pretend I’m on the Ballot’**\
+`(No description)`\
+https://www.nytimes.com/live/2026/09/09/us/rnc-trump-midterm-convention-updates
+
 **Fighting Wildfire Haze With an Airplane and Lots of Salt and Water**\
 `The authorities in Malaysian Borneo have been trying to seed clouds to counteract the effects of smoke wafting in from neighboring Indonesia.`\
 https://www.nytimes.com/2026/09/09/world/asia/indonesia-wildfires-malaysia-cloud-seeding.html

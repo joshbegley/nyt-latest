@@ -150,11 +150,7 @@ https://www.nytimes.com/2026/09/09/us/doj-california-berkeley.html
 `This year is shaping up to be a global experiment in education: Can students embrace tech innovation without losing critical thinking skills?`\
 https://www.nytimes.com/2026/09/09/world/10int-theworld-web-ai-education.html
 
-**U.S. Designates Ecuador’s Los Tiguerones Gang as Terrorist Group**\
-`The sanctions on Los Tiguerones imposed by Secretary of State Marco Rubio are an increasingly common U.S. tactic, though they will likely not hurt the gang’s finances.`\
-https://www.nytimes.com/2026/09/09/world/americas/ecuador-los-tiguerones-terrorist.html
-
-**Live Updates: Trump Casts Midterms as Referendum on Himself at G.O.P. Convention**\
+**Live Updates: Trump Urges Republicans at Convention to ‘Pretend I’m on the Ballot’**\
 `(No description)`\
 https://www.nytimes.com/live/2026/09/09/us/rnc-trump-midterm-convention-updates
 
