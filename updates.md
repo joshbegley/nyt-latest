@@ -1,3 +1,7 @@
+**Live Updates: Trump Addresses Republicans at Midterm Convention**\
+`(No description)`\
+https://www.nytimes.com/live/2026/09/09/us/rnc-trump-midterm-convention-updates
+
 **Fetterman’s Surprise GOP Convention Video Angers Democrats**\
 `Democrats in Pennsylvania reacted with a mix of annoyance and eye-rolling to Senator John Fetterman’s video appearance at Republicans’ midterm convention.`\
 https://www.nytimes.com/2026/09/09/us/politics/democrats-fetterman-trump-convention.html

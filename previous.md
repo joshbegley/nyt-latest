@@ -194,7 +194,7 @@ https://www.nytimes.com/2026/09/09/us/politics/iran-strikes-jordan-base.html
 `Luis Cruz corrió hacia una calle transitada para apartar a una niña del camino de una camioneta que se aproximaba. El video del rescate lo ha convertido en una sensación local.`\
 https://www.nytimes.com/es/2026/09/09/espanol/video-nina-atropellada-puebla.html
 
-**Live Updates: Trump Set to Address Republicans at Midterm Convention**\
+**Live Updates: Trump Addresses Republicans at Midterm Convention**\
 `(No description)`\
 https://www.nytimes.com/live/2026/09/09/us/rnc-trump-midterm-convention-updates
 
