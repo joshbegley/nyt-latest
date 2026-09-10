@@ -166,10 +166,6 @@ https://www.nytimes.com/2026/09/09/obituaries/lucien-smith-dead.html
 `The mishap occurred while the Qatari-donated jet was parked on the tarmac at Joint Base Andrews. It delayed President Trump’s departure to a Republican convention in Dallas.`\
 https://www.nytimes.com/2026/09/09/us/politics/emergency-slide-air-force-one-trump.html
 
-**Los salvadoreños mantendrán sus protecciones contra la deportación de EE. UU. por ahora**\
-`Estaba previsto que el Estatus de Protección Temporal para El Salvador expirara el miércoles. El gobierno de Trump dijo que haría un anuncio sobre el futuro del programa “en el momento adecuado”.`\
-https://www.nytimes.com/es/2026/09/09/espanol/estados-unidos/tps-el-salvador-trump.html
-
 **Live Updates: Trump Casts Midterms as Referendum on Himself at G.O.P. Convention**\
 `(No description)`\
 https://www.nytimes.com/live/2026/09/09/us/rnc-trump-midterm-convention-updates
