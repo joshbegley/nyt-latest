@@ -1,3 +1,19 @@
+**Quote of the Day: A Refugee’s Detention by ICE Set a Clock Ticking**\
+`Quotation of the Day for Thursday, September 10, 2026.`\
+https://www.nytimes.com/2026/09/10/pageoneplus/quote-of-the-day-a-refugees-detention-by-ice-set-a-clock-ticking.html
+
+**On This Day | Sept. 10**\
+`In 1897, sheriff’s deputies fired on striking coal miners near Lattimer, Pa., killing more than a dozen workers in a major labor-rights confrontation.`\
+https://www.nytimes.com/2026/09/10/learning/on-this-day-sept-10.html
+
+**At Least 5 Dead, More Than 80 Missing After Ferry Fire in the Philippines**\
+`The June Aster was sailing from Manila to Coron, a popular tourist destination, when a fire broke out aboard the vessel.`\
+https://www.nytimes.com/2026/09/09/world/asia/philippines-ferry-fire-palawan.html
+
+**Republican Senate Candidates Avoid Tariffs and Iran War at Trump’s Convention**\
+`Four battleground Senate nominees who spoke sidestepped a pair of issues that have posed political challenges, focusing instead on Mr. Trump’s tax law and other topics.`\
+https://www.nytimes.com/2026/09/09/us/politics/republican-senate-candidates-trump-convention.html
+
 **Fighting Wildfire Haze With an Airplane and Lots of Salt and Water**\
 `The authorities in Malaysian Borneo have been trying to seed clouds to counteract the effects of smoke wafting in from neighboring Indonesia.`\
 https://www.nytimes.com/2026/09/09/world/asia/indonesia-wildfires-malaysia-cloud-seeding.html
