@@ -194,7 +194,7 @@ https://www.nytimes.com/es/2026/09/09/espanol/video-nina-atropellada-puebla.html
 `Plus, the State Fair by the numbers.`\
 https://www.nytimes.com/2026/09/09/briefing/heat-island-effect.html
 
-**Live Updates: Trump to Address Convention Soon After Surprise Fetterman Video**\
-`The video appearance by Senator John Fetterman, a Pennsylvania Democrat alienated from his own party, could fuel speculation about his political future. Mr. Trump is scheduled to close the first night of the gathering in Dallas.`\
+**Live Updates: Trump Set to Address Republicans at Midterm Convention**\
+`(No description)`\
 https://www.nytimes.com/live/2026/09/09/us/rnc-trump-midterm-convention-updates
 
