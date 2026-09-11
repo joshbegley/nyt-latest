@@ -1,3 +1,7 @@
+**Gulf Tankers Are Running Out of Ways to Export Oil: ‘These Waters Aren’t Safe’**\
+`Ship operators already faced severe risks in navigating the region, and now the danger is higher as Houthi militias assert control in the Red Sea.`\
+https://www.nytimes.com/2026/09/11/business/iran-war-hormuz-red-sea.html
+
 **The Only Factory Making Real Film for Hollywood**\
 `The Eastman Kodak Company is the only factory still manufacturing film used in major Hollywood productions like ‘The Odyssey’ as part of a broader effort to revive the medium. This is how it is made.`\
 https://www.nytimes.com/video/movies/100000011141856/hollywood-film-odyssey-eastman-kodak-company.html
