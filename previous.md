@@ -178,7 +178,3 @@ https://www.nytimes.com/2026/09/11/opinion/gloria-steinem-letty-cottin-pogrebin-
 `His livestreams were destination events for stars from LeBron to Mariah, but Cenat paused at his peak to immerse himself in the fasion industry.`\
 https://www.nytimes.com/2026/09/11/arts/kai-cenat-popcast-interview.html
 
-**8 New Movies Our Critics Are Talking About This Week**\
-`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
-https://www.nytimes.com/2026/09/11/movies/new-movies-this-week-critics.html
-
