@@ -1,3 +1,11 @@
+**A Tale of Two U.S. Opens: $20,000 vs. $100 (Yacht Not Included)**\
+`If money is no object, the luxury options are plentiful. But if you take the subway and don’t mind watching the match on a screen, a budget day at the finals is possible.`\
+https://www.nytimes.com/2026/09/11/nyregion/us-open-budget-luxury.html
+
+**New Yorkers’ Favorite Chinese Dumplings**\
+`We asked creative types to share their local picks, from fish shumai to vegetarian varieties.`\
+https://www.nytimes.com/2026/09/11/t-magazine/nyc-best-chinese-dumplings.html
+
 **25 Years After 9/11, a Nation Gathers to Remember**\
 `Solemn ceremonies at ground zero in New York, and across the United States, mourned the thousands of lives lost. President Trump paid tribute to the victims in a speech at the Pentagon.`\
 https://www.nytimes.com/live/2026/09/11/nyregion/9-11-anniversary-25th

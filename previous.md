@@ -1,3 +1,11 @@
+**A Tale of Two U.S. Opens: $20,000 vs. $100 (Yacht Not Included)**\
+`If money is no object, the luxury options are plentiful. But if you take the subway and don’t mind watching the match on a screen, a budget day at the finals is possible.`\
+https://www.nytimes.com/2026/09/11/nyregion/us-open-budget-luxury.html
+
+**New Yorkers’ Favorite Chinese Dumplings**\
+`We asked creative types to share their local picks, from fish shumai to vegetarian varieties.`\
+https://www.nytimes.com/2026/09/11/t-magazine/nyc-best-chinese-dumplings.html
+
 **Saudi Oil Exports Face Heightened Threats After Attacks on Pipeline**\
 `Ship operators already faced severe risks in navigating the region, and now the danger is higher as Houthi militias assert control in the Red Sea.`\
 https://www.nytimes.com/2026/09/11/business/iran-war-hormuz-red-sea.html
@@ -153,14 +161,6 @@ https://www.nytimes.com/2026/09/11/world/europe/emma-bonino-italian-campaigner-d
 **For a New York Governor Candidate, 9/11 Recalls a Personal Tragedy**\
 `Gov. Kathy Hochul and her Republican challenger, Bruce Blakeman, will observe the Sept. 11 anniversary at ground zero. For Mr. Blakeman, the grief will be personal.`\
 https://www.nytimes.com/2026/09/11/nyregion/blakeman-hochul-sept-11.html
-
-**Mercury Is Shrinking, and Faster Than We Thought**\
-`New estimates using the planet’s surface wrinkles show that our smallest planet is growing even smaller, at a faster clip than expected.`\
-https://www.nytimes.com/2026/09/11/science/space/mercury-shrinking-wrinkles.html
-
-**A Running Event Reveals Anxieties in Leimert Park, a Black L.A. Neighborhood**\
-`When a Latino running club tried to host an event at Leimert Park, the heart of the city’s Black community, a social media firestorm broke out.`\
-https://www.nytimes.com/2026/09/11/us/los-angeles-run-leimert-park.html
 
 **25 Years After 9/11, a Nation Gathers to Remember**\
 `Solemn ceremonies at ground zero in New York, and across the United States, mourned the thousands of lives lost. President Trump paid tribute to the victims in a speech at the Pentagon.`\
