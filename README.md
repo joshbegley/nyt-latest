@@ -1,3 +1,7 @@
+**‘I’ll Pray for You’: Giuliani and Mamdani Have an Exchange at the Memorial**\
+`The former mayor and the sitting mayor shared a few words at the 9/11 ceremony.`\
+https://www.nytimes.com/2026/09/11/nyregion/mamdani-9-11-ground-zero-giuliani.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/100000011147862/11vid-embed-Giuliani-Mamdani-62190.html
@@ -153,10 +157,6 @@ https://www.nytimes.com/2026/09/11/world/europe/horses-trafficked-europe-fake-pa
 **This Yogurt Cake Is Like a Lighter Lemon Cheesecake**\
 `And more of the week’s most popular recipes.`\
 https://www.nytimes.com/2026/09/11/dining/this-yogurt-cake-is-like-a-lighter-lemon-cheesecake.html
-
-**Are Our Expectations Too High for Democracy? Adam Przeworski Thinks So.**\
-`What is democracy, and is it in crisis?`\
-https://www.nytimes.com/2026/09/11/opinion/democracy-trump-crisis.html
 
 **Live Updates: 25 Years After 9/11, a Nation Gathers to Remember**\
 `Solemn ceremonies at ground zero in New York, and across the United States, mourned the thousands of lives lost. President Trump paid tribute to the victims in a speech at the Pentagon.`\

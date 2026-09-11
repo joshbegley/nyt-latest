@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/100000011147862/11vid-embed-Giuliani-Mamdani-62190.html
+
 **Jeff Koons Loves to Laugh**\
 `Beds with curved headboards and pasta with clams: These are a few of the artist Jeff Koons’s favorite things.`\
 https://www.nytimes.com/video/t-magazine/100000011117113/jeff-koons-loves-to-laugh.html
