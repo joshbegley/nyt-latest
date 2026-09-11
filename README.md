@@ -1,5 +1,9 @@
-**‘I’ll Pray for You’: Giuliani and Mamdani Have an Exchange at the Memorial**\
-`The former mayor and the sitting mayor shared a few words at the 9/11 ceremony.`\
+**Lurking in Trump’s 9/11 Tribute, a Defense of His War With Iran**\
+`The president appeared to embrace the idea that after 9/11, no risk can be tolerated, an echo of reasoning used by previous American officials in the “forever wars” that he has long denounced.`\
+https://www.nytimes.com/2026/09/11/us/politics/trump-9-11-speech-iran.html
+
+**Mamdani and Giuliani Shake Hands at Ground Zero on 9/11**\
+`The former mayor and the sitting mayor shared a few words at the anniversary ceremony on Friday.`\
 https://www.nytimes.com/2026/09/11/nyregion/mamdani-9-11-ground-zero-giuliani.html
 
 ****\
@@ -153,10 +157,6 @@ https://www.nytimes.com/2026/09/11/us/los-angeles-run-leimert-park.html
 **Police Uncover Scheme Using Fake Horse Passports to Traffic Animals**\
 `The police in Belgium, France, Ireland and the Netherlands say they suspect a fraud network of faking identities and duplicating microchips for hundreds of horses.`\
 https://www.nytimes.com/2026/09/11/world/europe/horses-trafficked-europe-fake-passports.html
-
-**This Yogurt Cake Is Like a Lighter Lemon Cheesecake**\
-`And more of the week’s most popular recipes.`\
-https://www.nytimes.com/2026/09/11/dining/this-yogurt-cake-is-like-a-lighter-lemon-cheesecake.html
 
 **Live Updates: 25 Years After 9/11, a Nation Gathers to Remember**\
 `Solemn ceremonies at ground zero in New York, and across the United States, mourned the thousands of lives lost. President Trump paid tribute to the victims in a speech at the Pentagon.`\

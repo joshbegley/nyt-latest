@@ -1,3 +1,7 @@
+**‘I’ll Pray for You’: Giuliani and Mamdani Have an Exchange at the Memorial**\
+`The former mayor and the sitting mayor shared a few words at the 9/11 ceremony.`\
+https://www.nytimes.com/2026/09/11/nyregion/mamdani-9-11-ground-zero-giuliani.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/100000011147862/11vid-embed-Giuliani-Mamdani-62190.html
