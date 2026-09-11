@@ -1,3 +1,7 @@
+**A Fun Run Reveals Anxieties in a Black L.A. Neighborhood**\
+`When a Latino running club tried to host an event at Leimert Park, the heart of the city’s Black community, a social media firestorm broke out.`\
+https://www.nytimes.com/2026/09/11/us/los-angeles-run-leimert-park.html
+
 **Horses Trafficked in Europe With Fake Animal Passports, Police Say**\
 `The police in Belgium, France, Ireland and the Netherlands say they suspect a fraud network of faking identities and duplicating microchips for hundreds of horses.`\
 https://www.nytimes.com/2026/09/11/world/europe/horses-trafficked-europe-fake-passports.html
