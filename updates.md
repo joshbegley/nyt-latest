@@ -1,3 +1,7 @@
+**Will Stark Warnings About AI Shape the Midterm Elections?**\
+`Stark warnings from A.I. researchers have reverberated across the country.`\
+https://www.nytimes.com/2026/09/11/us/politics/midterm-elections-trump-ai.html
+
 **Chaos, Confusion and Court Dockets: The Fight for Missouri’s House Map**\
 `After the U.S. Supreme Court blocked a congressional map used in the primary, election officials, candidates and voters are scrambling to adjust before November.`\
 https://www.nytimes.com/2026/09/11/us/missouri-congressional-redistricting-chaos.html
