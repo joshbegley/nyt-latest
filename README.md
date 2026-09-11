@@ -1,3 +1,11 @@
+**What Are Kalshi and Polymarket?**\
+`Prediction markets have taken off in popularity, drawing billions of dollars in trades. Some states have tried to ban them.`\
+https://www.nytimes.com/2026/09/11/us/kalshi-polymarket-prediction-markets.html
+
+**How Minnesota Became the Front Line in the Fight Over Prediction Markets**\
+`The state was the first to pass a law banning Kalshi and Polymarket. A lawsuit filed by a federal agency may set a precedent on who gets to regulate them.`\
+https://www.nytimes.com/2026/09/11/business/kalshi-polymarket-minnesota-prediction-markets.html
+
 **Trump’s ‘Midterm Convention’ Tried to Reach Die-Hard Republican Voters, but Lacked Oomph**\
 `The long, odd two-night TV production hoped to reach a select audience of die-hard voters (if football didn’t intercept them).`\
 https://www.nytimes.com/2026/09/11/arts/television/republican-midterm-convention-trump-notebook.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/video/us/politics/100000011133866/how-trump-is-using-the
 **Jay Maisel, Photographer of Miles Davis and Much More, Dies at 95**\
 `His moody portrait became the album cover for “Kind of Blue.” Mr. Maisel lived and worked in an old bank that he bought for $102,000 and sold for $55 million.`\
 https://www.nytimes.com/2026/09/11/arts/jay-maisel-dead.html
-
-**She Ran Out of a Tunnel on 9/11. Hours Later, She Gave Birth.**\
-`Janet Kask and her son, born on Sept. 11, look back on a day of earth-shattering personal and world events.`\
-https://www.nytimes.com/2026/09/11/nyregion/september-11-baby-born.html
-
-**How Our Photographer Took This 9/11 Photo**\
-`Our photographer Chang W. Lee describes how he took the picture of the north tower of the World Trade Center collapsing on Sept. 11, 2001.`\
-https://www.nytimes.com/video/us/100000011131512/how-our-photographer-took-this-9-11-photo.html
 
