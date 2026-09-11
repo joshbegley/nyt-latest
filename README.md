@@ -1,3 +1,7 @@
+**The Holdout Juror in the Clancy Case Is a Rorschach Test for America**\
+`The nation’s reaction to the 11-1 deadlock that resulted in a mistrial for Lindsay Clancy was, like the jury itself, fiercely and unbridgeably divided.`\
+https://www.nytimes.com/2026/09/11/us/lindsay-clancy-trial-holdout-juror.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/100000011147285/11vid-living-ex-presidents-911.html
@@ -157,14 +161,6 @@ https://www.nytimes.com/2026/09/11/style/diane-von-furstenberg-henry-zankov-show
 **Israel Destroys Underground Hezbollah Base in Southern Lebanon**\
 `The complex sat below Ali al-Taher ridge, a strategic hilltop that overlooks the region and that has seen intense fighting.`\
 https://www.nytimes.com/2026/09/11/world/middleeast/blast-lebanon-israel-hezbollah-base.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/us/100000011146481/11vid-sept-11-blog-23974.html
-
-**Houthis Seize a Key Red Sea Island, Threatening Yet Another Global Oil Route**\
-`The Iran-backed militia’s ground offensive has reached the Bab al-Mandab, a Red Sea strait that is a choke point for global trade.`\
-https://www.nytimes.com/2026/09/11/world/middleeast/yemen-houthis-bab-al-mandab.html
 
 **Live Updates: 25 Years After 9/11, a Nation Gathers to Remember**\
 `Solemn ceremonies at ground zero in New York, and across the United States, mourned the thousands of lives lost. President Trump paid tribute to the victims in a speech at the Pentagon.`\
