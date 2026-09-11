@@ -14,7 +14,7 @@ https://www.nytimes.com/2026/09/11/us/politics/cia-officer-gold-bars-plea-deal.h
 `The contractor said the pool’s new blue liner peeled and tore because of “human oversight” and a flawed plan that involved layering two incompatible chemicals, documents show.`\
 https://www.nytimes.com/2026/09/11/climate/reflecting-pool-contractor-trump.html
 
-**The Holdout Juror in the Clancy Case Is a Rorschach Test for America**\
+**Holdout Juror in Lindsay Clancy’s Mistrial Highlights a Divide in America**\
 `The nation’s reaction to the 11-1 deadlock that resulted in a mistrial for Lindsay Clancy was, like the jury itself, fiercely and unbridgeably divided.`\
 https://www.nytimes.com/2026/09/11/us/lindsay-clancy-trial-holdout-juror.html
 
@@ -75,7 +75,7 @@ https://www.nytimes.com/video/world/middleeast/100000011146480/houthis-press-on-
 https://www.nytimes.com/2026/09/11/style/caring-for-women-gala-pamela-anderson-simone-biles.html
 
 **Book Review: ‘Dressing the Queen,’ by Kate Strasdin**\
-`In “Dressing the Queen” the fashion historian Kate Strasdin looks at the makers who designed the image.`\
+`In a new book, the fashion historian Kate Strasdin looks at the makers who designed the monarch’s sartorial persona.`\
 https://www.nytimes.com/2026/09/11/books/review/dressing-the-queen-kate-strasdin.html
 
 **Trump dice que está cansado de la política en la convención republicana**\
