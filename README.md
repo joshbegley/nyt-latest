@@ -1,3 +1,7 @@
+**Trump’s ‘Profound Political Malpractice’**\
+`President Trump’s unpopularity is a threat to Republican candidates across the country. But that’s not stopping him from promising $5,000 checks to voters and telling them to pretend he’s on the ballot. The Opinion columnist Jamelle Bouie argues that these efforts to woo infrequent voters are not only harmful to the party but also “profound political malpractice.”`\
+https://www.nytimes.com/video/opinion/100000011126651/trumps-profound-political-malpractice.html
+
 **Women Special Operations Veterans Remember Their Battles**\
 `The only fraternal organization for women special operations veterans held a gala to mark the wars that began 25 years ago. It came as the Pentagon questions women’s roles in the military.`\
 https://www.nytimes.com/2026/09/11/us/politics/sept-11-women-special-operations-gala.html
@@ -169,10 +173,6 @@ https://www.nytimes.com/2026/09/11/well/eat/dietary-supplements-survey-findings.
 **Speakers at 9/11 Memorial Accuse Saudis of Role in the Attacks**\
 `Relatives of victims said past administrations had not held the kingdom accountable, and called for action from President Trump.`\
 https://www.nytimes.com/2026/09/11/nyregion/911-ceremony-speeches-nyc.html
-
-**At Lincoln Center, Dancers Perform a Ritual of Grief**\
-`Since 2011, the dance piece, “Table of Silence Project 9/11,” has become an annual rite of remembrance`\
-https://www.nytimes.com/2026/09/11/nyregion/911-performance-lincoln-center-nyc.html
 
 **25 Years After 9/11, a Nation Gathers to Remember**\
 `Solemn ceremonies at ground zero in New York, and across the United States, mourned the thousands of lives lost. President Trump paid tribute to the victims in a speech at the Pentagon.`\
