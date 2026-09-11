@@ -1,3 +1,15 @@
+**Jeff Koons Loves to Laugh**\
+`Beds with curved headboards and pasta with clams: These are a few of the artist Jeff Koons’s favorite things.`\
+https://www.nytimes.com/video/t-magazine/100000011117113/jeff-koons-loves-to-laugh.html
+
+**Toasting Moncler’s Luxe Outerwear With Cher and Julia Roberts**\
+`At the opening of the brand’s New York flagship store during fashion week, celebrities, athletes and even an influencer dog mingled.`\
+https://www.nytimes.com/2026/09/11/style/moncler-party-fashion-week.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/weather/100000011147715/11vid-NOAA-60922.html
+
 **Blast Shakes Southern Lebanon as Israel Detonates Hezbollah Base**\
 `A huge explosion lit up the sky with orange flashes in southern Lebanon on Thursday, as Israel said it had destroyed a tunnel complex created by the Iran-backed Hezbollah group below the strategic Ali al-Taher ridge.`\
 https://www.nytimes.com/video/world/middleeast/100000011146414/southern-lebanon-explosion-israel-hezbollah.html
