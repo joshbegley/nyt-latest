@@ -1,3 +1,15 @@
+**For a New York Governor Candidate, 9/11 Recalls a Personal Tragedy**\
+`Gov. Kathy Hochul and her Republican challenger, Bruce Blakeman, will observe the Sept. 11 anniversary at ground zero. For Mr. Blakeman, the grief will be personal.`\
+https://www.nytimes.com/2026/09/11/nyregion/blakeman-hochul-sept-11.html
+
+**Mercury Is Shrinking, and Faster Than We Thought**\
+`New estimates using the planet’s surface wrinkles show that our smallest planet is growing even smaller, at a faster clip than expected.`\
+https://www.nytimes.com/2026/09/11/science/space/mercury-shrinking-wrinkles.html
+
+**How Did a Heart Drug With So Much Promise Fall So Flat?**\
+`Cardiologists are struggling to figure out why a drug that should have prevented heart attacks didn’t work at all.`\
+https://www.nytimes.com/2026/09/11/science/heart-drug-failed-novartis.html
+
 **A Fun Run Reveals Anxieties in a Black L.A. Neighborhood**\
 `When a Latino running club tried to host an event at Leimert Park, the heart of the city’s Black community, a social media firestorm broke out.`\
 https://www.nytimes.com/2026/09/11/us/los-angeles-run-leimert-park.html

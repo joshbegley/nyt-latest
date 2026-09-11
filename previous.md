@@ -1,3 +1,11 @@
+**For a New York Governor Candidate, 9/11 Recalls a Personal Tragedy**\
+`Gov. Kathy Hochul and her Republican challenger, Bruce Blakeman, will observe the Sept. 11 anniversary at ground zero. For Mr. Blakeman, the grief will be personal.`\
+https://www.nytimes.com/2026/09/11/nyregion/blakeman-hochul-sept-11.html
+
+**Mercury Is Shrinking, and Faster Than We Thought**\
+`New estimates using the planet’s surface wrinkles show that our smallest planet is growing even smaller, at a faster clip than expected.`\
+https://www.nytimes.com/2026/09/11/science/space/mercury-shrinking-wrinkles.html
+
 **A Fun Run Reveals Anxieties in a Black L.A. Neighborhood**\
 `When a Latino running club tried to host an event at Leimert Park, the heart of the city’s Black community, a social media firestorm broke out.`\
 https://www.nytimes.com/2026/09/11/us/los-angeles-run-leimert-park.html
@@ -46,7 +54,7 @@ https://www.nytimes.com/2026/09/11/arts/television/republican-midterm-convention
 `After a memorial rose was stolen from a church in Midtown Manhattan, the church’s pastor saw an opportunity.`\
 https://www.nytimes.com/2026/09/11/nyregion/how-a-theft-from-a-9-11-memorial-turned-into-a-blessing-in-disguise.html
 
-**A Promising Heart Drug Failed. What Went So Wrong?**\
+**How Did a Heart Drug With So Much Promise Fall So Flat?**\
 `Cardiologists are struggling to figure out why a drug that should have prevented heart attacks didn’t work at all.`\
 https://www.nytimes.com/2026/09/11/science/heart-drug-failed-novartis.html
 
@@ -169,12 +177,4 @@ https://www.nytimes.com/2026/09/11/us/pickles-live-from-the-minnesota-state-fair
 **Corrections: Sept. 11, 2026**\
 `Corrections that appeared in print on Friday, Sept. 11, 2026.`\
 https://www.nytimes.com/2026/09/11/pageoneplus/corrections-sept-11-2026.html
-
-**Was Francis Fukuyama Right All Along?**\
-`The political scientist Francis Fukuyama looks back on his 1992 book, “The End of History and the Last Man,” and what it has predicted about the state of liberalism today.`\
-https://www.nytimes.com/2026/09/11/opinion/ezra-klein-podcast-francis-fukuyama.html
-
-**My 55 Year Friendship With Gloria Steinem**\
-`She was a tap-dancing candy bandit.`\
-https://www.nytimes.com/2026/09/11/opinion/gloria-steinem-letty-cottin-pogrebin-ms-magazine.html
 
