@@ -1,3 +1,7 @@
+**Fact-Checking Trump’s Attacks on Democratic Senate Candidates**\
+`The president attacked three Democrats running for Senate this week with inaccurate claims to portray them as too extreme.`\
+https://www.nytimes.com/2026/09/11/us/politics/trump-democats-senate-races-fact-check.html
+
 **Republicans Go All In on Trump**\
 `Shane Goldmacher, one of our national political correspondents, looks at the Republican candidates who spoke this week at their party’s unusual midterm convention, called a “Trumpapalooza.” Some other vulnerable candidates avoided it because of President Trump’s unpopularity.`\
 https://www.nytimes.com/video/us/elections/100000011144041/republicans-midterm-convention-trump.html
