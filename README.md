@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/100000011146814/SOT-Conoleezza-Rice-911.html
+
 **AARP Projects 2027 Social Security COLA at 3.6%**\
 `If the AARP’s projection holds, the cost-of-living adjustment would be the largest since 2023.`\
 https://www.nytimes.com/2026/09/11/business/economy/social-security-cola.html
@@ -185,12 +189,4 @@ https://www.nytimes.com/2026/09/11/business/bond-market-interest-rates.html
 **DNA From Cigarette Leads to Arrest in Unsolved Murder**\
 `An arrest in Washington State came about after a cigarette butt was flicked away during a traffic stop.`\
 https://www.nytimes.com/2026/09/11/us/cigarette-dna-murder-case.html
-
-**5 Children’s Movies to Stream Now**\
-`This month’s picks include sequels galore, among them installments of the “Super Mario” and “Star Wars” franchises.`\
-https://www.nytimes.com/2026/09/11/movies/kids-movies-streaming-now.html
-
-**How Trump Is Using the Postal Service to Intervene in Elections**\
-`Our politics reporter Reid Epstein explains how the Trump administration is using the Postal Service to intervene in mail-in voting in state elections.`\
-https://www.nytimes.com/video/us/politics/100000011133866/how-trump-is-using-the-postal-service-to-intervene-in-elections.html
 

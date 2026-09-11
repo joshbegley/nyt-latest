@@ -1,3 +1,7 @@
+**AARP Projects 2027 Social Security COLA at 3.6%**\
+`If the AARP’s projection holds, the cost-of-living adjustment would be the largest since 2023.`\
+https://www.nytimes.com/2026/09/11/business/economy/social-security-cola.html
+
 **What Are Kalshi and Polymarket?**\
 `Prediction markets have taken off in popularity, drawing billions of dollars in trades. Some states have tried to ban them.`\
 https://www.nytimes.com/2026/09/11/us/kalshi-polymarket-prediction-markets.html
