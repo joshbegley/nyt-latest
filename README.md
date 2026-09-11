@@ -78,12 +78,12 @@ https://www.nytimes.com/2026/09/11/crosswords/strands-sidekick-923.html
 `Scroll down for hints and conversation about the puzzle for Saturday, Sept. 12, 2026.`\
 https://www.nytimes.com/2026/09/11/crosswords/wordle-review-1911.html
 
-**Live Updates: Elevated Inflation Keeps Pressure on Fed to Raise Interest Rates**\
-`U.S. inflation showed little improvement in August, running at a 3.4 percent annual rate. Investors believe the Federal Reserve is very likely to raise rates at its meeting next week.`\
-https://www.nytimes.com/live/2026/09/11/business/inflation-cpi-report
+**Here’s what to know.**\
+`(No description)`\
+https://www.nytimes.com/2026/09/11/business/economy/inflation-cpi-august.html
 
 **Live Updates: 25 Years After 9/11, a Nation Gathers to Remember**\
-`Solemn ceremonies at ground zero in New York, and across the United States, are mourning the thousands of lives lost. President Trump is speaking at the Pentagon.`\
+`Solemn ceremonies at ground zero in New York, and across the United States, are mourning the thousands of lives lost. President Trump paid tribute to the victims in a speech at the Pentagon.`\
 https://www.nytimes.com/live/2026/09/11/nyregion/9-11-anniversary-25th
 
 **For China, a Mock A.I. Attack on WeChat Signals a Dangerous New Era**\
@@ -112,15 +112,15 @@ https://www.nytimes.com/2026/09/11/us/alaska-bering-sea-rescue-boy.html
 
 **How to End a Relationship Thoughtfully**\
 `If you’re tempted to ghost someone, try a “connected goodbye” instead.`\
-https://www.nytimes.com/2026/09/11/well/well-newsletter-connected-goodbye-priya-parker.html
-
-**What Years of Inflation Have Done to US Prices**\
-`Nearly every category of product costs more than it would have had prepandemic trends continued. And many product prices are still rising faster than they were before.`\
-https://www.nytimes.com/interactive/2026/09/11/business/economy/inflation-us-prices-gas-food-tariffs.html
+https://www.nytimes.com/2026/09/11/well/end-relationship-divorce-connected-goodbye-priya-parker.html
 
 **Think Trump Is Going Away? His Message This Week: Not a Chance.**\
 `A dispatch from Dallas 2026.`\
 https://www.nytimes.com/2026/09/11/opinion/trump-convention-republicans-dallas.html
+
+**What Years of Inflation Have Done to US Prices**\
+`Nearly every category of product costs more than it would have had prepandemic trends continued. And many product prices are still rising faster than they were before.`\
+https://www.nytimes.com/interactive/2026/09/11/business/economy/inflation-us-prices-gas-food-tariffs.html
 
 **Pickles! (Live From the Minnesota State Fair)**\
 `World-class pickle experts explain how to find a great one, and how to make your own safely at home.`\
