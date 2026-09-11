@@ -1,3 +1,11 @@
+**For the 25th Time, New York Marks the Shattering Loss of 9/11**\
+`At a ceremony in Lower Manhattan, elected officials and loved ones of those killed in the 2001 terror attacks gathered in solemn remembrance.`\
+https://www.nytimes.com/2026/09/11/nyregion/9-11-anniversary-ceremony-nyc.html
+
+**America Gathers to Remember, 25 Years After 9/11**\
+`Also, an Iranian-backed militia seized a key Red Sea island. Here’s the latest at the end of Friday.`\
+https://www.nytimes.com/2026/09/11/briefing/remembering-sept-11-bayeux-tapestry.html
+
 **Kai Cenat Explains What Makes a Great Livestreamer**\
 `In his new Popcast interview, Kai Cenat, the most-followed Twitch streamer in the world, discusses the qualities he looks for in an aspiring livestreamer.`\
 https://www.nytimes.com/video/podcasts/100000011139805/kai-cenat-explains-what-makes-a-great-livestreamer.html
