@@ -1,3 +1,7 @@
+**Court Strikes Down Trump Order to Keep an Aging Coal-Burning Plant Running**\
+`The aging Michigan power plant was set to retire. Then the Trump administration intervened in a way that overstepped its authority, a court ruled.`\
+https://www.nytimes.com/2026/09/11/climate/coal-plant-michigan-court.html
+
 **Remembering 9/11, and What Unites Us**\
 `Responses to “My Dad Died on Flight 93. The Nation Rallied,” an Opinion guest essay by Charlie Greene. Also: President Trump’s payout ploy; a reality map.`\
 https://www.nytimes.com/2026/09/11/opinion/sept11-25th-anniversary.html
@@ -157,10 +161,6 @@ https://www.nytimes.com/2026/09/11/science/heart-drug-failed-novartis.html
 **France Widens Sex-Trafficking Investigation Linked to Jeffrey Epstein**\
 `The lead prosecutor in Paris said investigators had identified 13 new potential victims of Mr. Epstein, the financier and sex offender, who was a part-time resident of the city.`\
 https://www.nytimes.com/2026/09/11/world/europe/france-paris-epstein-prosecutor.html
-
-**Influencers Invited to the Republican Midterm Convention Largely Avoided Talking About The Economy**\
-`Online media stars eager to promote President Trump and Republicans worked to find a message that would resonate with an audience that is struggling with an affordability crisis.`\
-https://www.nytimes.com/2026/09/11/us/politics/trump-republican-convention-influencers-message.html
 
 **Live Updates: 25 Years After 9/11, a Nation Gathers to Remember**\
 `Solemn ceremonies at ground zero in New York, and across the United States, mourned the thousands of lives lost. President Trump paid tribute to the victims in a speech at the Pentagon.`\
