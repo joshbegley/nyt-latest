@@ -1,3 +1,27 @@
+**Before High Holy Days, Jewish Institutions in New York Increase Security**\
+`Jewish leaders say they have spent millions on additional security protections in recent years amid a rise in antisemitic incidents.`\
+https://www.nytimes.com/2026/09/11/nyregion/high-holy-days-security-nyc.html
+
+**Isao Harimoto, Hiroshima Survivor and a Baseball Star in Japan, Dies at 86**\
+`A Korean-Japanese slugger known as Hit Machine, he was one of Japanese baseball’s greatest hitters in a career that lasted more than 20 years.`\
+https://www.nytimes.com/2026/09/11/sports/baseball/isao-harimoto-dead.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/100000011146976/911-Moment-of-Silence.html
+
+**Afghan Woman Deported in First Use of Obscure Terrorism Court**\
+`It remains unclear whether the administration would seek to use the court again after successfully obtaining an order from its chief judge to expel the woman.`\
+https://www.nytimes.com/2026/09/11/us/afghan-woman-deported-terrorism-court.html
+
+**Who Is Ahead in California's 34th Congressional District?**\
+`Track the latest polls in California's 34th Congressional District.`\
+https://www.nytimes.com/interactive/polls/california-us-house-34-polls-2026.html
+
+**Fake Animal Passports Were Key to Horse Trafficking Scheme, Police Say**\
+`The police in Belgium, France, Ireland and the Netherlands say they suspect a fraud network of faking identities and duplicating microchips for hundreds of horses.`\
+https://www.nytimes.com/2026/09/11/world/europe/horses-trafficked-europe-fake-passports.html
+
 **The Best Chanel Money Can’t Buy**\
 `Plus: Those Celine Reeboks and a new home for a beloved vintage shop.`\
 https://www.nytimes.com/2026/09/11/style/chanel-new-york-fashion-week.html
