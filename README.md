@@ -1,3 +1,7 @@
+**A Fun Run Reveals Anxieties in a Black L.A. Neighborhood**\
+`When a Latino running club tried to host an event at Leimert Park, the heart of the city’s Black community, a social media firestorm broke out.`\
+https://www.nytimes.com/2026/09/11/us/los-angeles-run-leimert-park.html
+
 **Horses Trafficked in Europe With Fake Animal Passports, Police Say**\
 `The police in Belgium, France, Ireland and the Netherlands say they suspect a fraud network of faking identities and duplicating microchips for hundreds of horses.`\
 https://www.nytimes.com/2026/09/11/world/europe/horses-trafficked-europe-fake-passports.html
@@ -173,8 +177,4 @@ https://www.nytimes.com/2026/09/11/opinion/ezra-klein-podcast-francis-fukuyama.h
 **My 55 Year Friendship With Gloria Steinem**\
 `She was a tap-dancing candy bandit.`\
 https://www.nytimes.com/2026/09/11/opinion/gloria-steinem-letty-cottin-pogrebin-ms-magazine.html
-
-**Kai Cenat Conquered Streaming. Then He Learned to Sew.**\
-`His livestreams were destination events for stars from LeBron to Mariah, but Cenat paused at his peak to immerse himself in the fasion industry.`\
-https://www.nytimes.com/2026/09/11/arts/kai-cenat-popcast-interview.html
 
