@@ -1,3 +1,7 @@
+**C.I.A. Releases Intelligence Sent to Clinton and Bush Ahead of 9/11 Attacks**\
+`The spy agency released dozens of intelligence documents it had sent to Presidents Bill Clinton and George W. Bush, outlining what was known about Al Qaeda.`\
+https://www.nytimes.com/2026/09/11/us/politics/cia-sept-11-intelligence.html
+
 **Emma Bonino, Italian Campaigner for Civil Rights, Dies at 78**\
 `In nearly five decades in politics, Ms. Bonino wielded outsize influence on Italian discourse, helping erode the political sway of the Catholic Church.`\
 https://www.nytimes.com/2026/09/11/world/europe/emma-bonino-italian-campaigner-dies.html
@@ -165,8 +169,4 @@ https://www.nytimes.com/2026/09/11/us/alaska-bering-sea-rescue-boy.html
 **How to End a Relationship Thoughtfully**\
 `If you’re tempted to ghost someone, try a “connected goodbye” instead.`\
 https://www.nytimes.com/2026/09/11/well/end-relationship-divorce-connected-goodbye-priya-parker.html
-
-**What Years of Inflation Have Done to US Prices**\
-`Nearly every category of product costs more than it would have had prepandemic trends continued. And many product prices are still rising faster than they were before.`\
-https://www.nytimes.com/interactive/2026/09/11/business/economy/inflation-us-prices-gas-food-tariffs.html
 

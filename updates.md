@@ -1,3 +1,11 @@
+**Emma Bonino, Italian Campaigner for Civil Rights, Dies at 78**\
+`In nearly five decades in politics, Ms. Bonino wielded outsize influence on Italian discourse, helping erode the political sway of the Catholic Church.`\
+https://www.nytimes.com/2026/09/11/world/europe/emma-bonino-italian-campaigner-dies.html
+
+**A Running Event Reveals Anxieties in Leimert Park, a Black L.A. Neighborhood**\
+`When a Latino running club tried to host an event at Leimert Park, the heart of the city’s Black community, a social media firestorm broke out.`\
+https://www.nytimes.com/2026/09/11/us/los-angeles-run-leimert-park.html
+
 **For a New York Governor Candidate, 9/11 Recalls a Personal Tragedy**\
 `Gov. Kathy Hochul and her Republican challenger, Bruce Blakeman, will observe the Sept. 11 anniversary at ground zero. For Mr. Blakeman, the grief will be personal.`\
 https://www.nytimes.com/2026/09/11/nyregion/blakeman-hochul-sept-11.html
