@@ -1,3 +1,7 @@
+**Why Kai Cenat Doesn’t Do Pay-to-Play Livestreams**\
+`The streamer Kai Cenat told “Popcast” he doesn’t take money to promote celebrities because it doesn’t feel genuine.`\
+https://www.nytimes.com/video/podcasts/100000011139796/why-kai-cenat-doesnt-do-pay-to-play-livestreams.html
+
 **A Tale of Two U.S. Opens: $20,000 vs. $100 (Yacht Not Included)**\
 `If money is no object, the luxury options are plentiful. But if you take the subway and don’t mind watching the match on a screen, a budget day at the finals is possible.`\
 https://www.nytimes.com/2026/09/11/nyregion/us-open-budget-luxury.html

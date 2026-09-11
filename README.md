@@ -1,3 +1,7 @@
+**Republicans Go All In on Trump**\
+`Shane Goldmacher, one of our national political correspondents, looks at the Republican candidates who spoke this week at their party’s unusual midterm convention, called a “Trumpapalooza.” Some other vulnerable candidates avoided it because of President Trump’s unpopularity.`\
+https://www.nytimes.com/video/us/elections/100000011144041/republicans-midterm-convention-trump.html
+
 **Why Kai Cenat Doesn’t Do Pay-to-Play Livestreams**\
 `The streamer Kai Cenat told “Popcast” he doesn’t take money to promote celebrities because it doesn’t feel genuine.`\
 https://www.nytimes.com/video/podcasts/100000011139796/why-kai-cenat-doesnt-do-pay-to-play-livestreams.html
@@ -18,7 +22,7 @@ https://www.nytimes.com/2026/09/11/business/iran-war-hormuz-red-sea.html
 `After devastating storms, wildfires, and heat waves, members of the Extreme Weather Survivors network learn to rely on one another.`\
 https://www.nytimes.com/interactive/2026/09/11/magazine/extreme-weather-survivors-group-climate-disasters.html
 
-**Lurking in Trump’s 9/11 Tribute, a Defense of His War With Iran**\
+**Trump Appears to Defend Iran War During 9/11 Anniversary Speech**\
 `The president appeared to embrace the idea that after 9/11, no risk can be tolerated, an echo of reasoning used by previous American officials in the “forever wars” that he has long denounced.`\
 https://www.nytimes.com/2026/09/11/us/politics/trump-9-11-speech-iran.html
 
@@ -157,10 +161,6 @@ https://www.nytimes.com/interactive/2026/09/11/upshot/flashback.html
 **C.I.A. Releases Intelligence Sent to Clinton and Bush on Al Qaeda Before 9/11 Attacks**\
 `The spy agency released dozens of intelligence documents it had sent to Presidents Bill Clinton and George W. Bush, outlining what was known about Al Qaeda.`\
 https://www.nytimes.com/2026/09/11/us/politics/cia-sept-11-intelligence.html
-
-**Emma Bonino, Italian Campaigner for Civil Rights, Dies at 78**\
-`In nearly five decades in politics, Ms. Bonino wielded outsize influence on Italian discourse, helping erode the political sway of the Catholic Church.`\
-https://www.nytimes.com/2026/09/11/world/europe/emma-bonino-italian-campaigner-dies.html
 
 **25 Years After 9/11, a Nation Gathers to Remember**\
 `Solemn ceremonies at ground zero in New York, and across the United States, mourned the thousands of lives lost. President Trump paid tribute to the victims in a speech at the Pentagon.`\

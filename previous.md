@@ -1,3 +1,7 @@
+**Why Kai Cenat Doesn’t Do Pay-to-Play Livestreams**\
+`The streamer Kai Cenat told “Popcast” he doesn’t take money to promote celebrities because it doesn’t feel genuine.`\
+https://www.nytimes.com/video/podcasts/100000011139796/why-kai-cenat-doesnt-do-pay-to-play-livestreams.html
+
 **A Tale of Two U.S. Opens: $20,000 vs. $100 (Yacht Not Included)**\
 `If money is no object, the luxury options are plentiful. But if you take the subway and don’t mind watching the match on a screen, a budget day at the finals is possible.`\
 https://www.nytimes.com/2026/09/11/nyregion/us-open-budget-luxury.html
@@ -157,10 +161,6 @@ https://www.nytimes.com/2026/09/11/us/politics/cia-sept-11-intelligence.html
 **Emma Bonino, Italian Campaigner for Civil Rights, Dies at 78**\
 `In nearly five decades in politics, Ms. Bonino wielded outsize influence on Italian discourse, helping erode the political sway of the Catholic Church.`\
 https://www.nytimes.com/2026/09/11/world/europe/emma-bonino-italian-campaigner-dies.html
-
-**For a New York Governor Candidate, 9/11 Recalls a Personal Tragedy**\
-`Gov. Kathy Hochul and her Republican challenger, Bruce Blakeman, will observe the Sept. 11 anniversary at ground zero. For Mr. Blakeman, the grief will be personal.`\
-https://www.nytimes.com/2026/09/11/nyregion/blakeman-hochul-sept-11.html
 
 **25 Years After 9/11, a Nation Gathers to Remember**\
 `Solemn ceremonies at ground zero in New York, and across the United States, mourned the thousands of lives lost. President Trump paid tribute to the victims in a speech at the Pentagon.`\
