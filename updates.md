@@ -1,3 +1,15 @@
+**Why the Houthis' Advances Threaten Global Shipping in the Red Sea**\
+`Maps showing how the swift advance of the Houthis tightens the group’s grip on a crucial choke point of global oil and cargo shipping.`\
+https://www.nytimes.com/interactive/2026/09/11/world/middleeast/houthis-yemen-red-sea-shipping-maps.html
+
+**How One Midtown Firehouse Commemorated the 25th Anniversary of 9/11**\
+`Family members reconnected at a firehouse that lost all 15 of the firefighters it sent out to respond after the twin towers were attacked.`\
+https://www.nytimes.com/2026/09/11/nyregion/engine-54-firehouse-911-nyc.html
+
+**Court Strikes Down Trump Order to Keep an Aging Coal-Burning Plant Running**\
+`The 64-year-old Michigan power plant was set to retire. Then the Trump administration intervened in a way that overstepped its authority, a court ruled.`\
+https://www.nytimes.com/2026/09/11/climate/coal-plant-michigan-court.html
+
 **La IA podría acabar con la humanidad. ¿Qué tan real es el riesgo?**\
 `Desde el colapso ecológico hasta asteroides asesinos, el mundo moderno está repleto de una multitud de riesgos existenciales. Tenemos una dificultad innata para sopesarlos.`\
 https://www.nytimes.com/es/2026/09/11/espanol/ciencia-y-tecnologia/inteligencia-artificial-futuro-humanidad-riesgos.html
