@@ -1,3 +1,11 @@
+**Why the Houthis' Advances Threaten Global Shipping in the Red Sea**\
+`Maps showing how the swift advance of the Houthis tightens the group’s grip on a crucial choke point of global oil and cargo shipping.`\
+https://www.nytimes.com/interactive/2026/09/11/world/middleeast/houthis-yemen-red-sea-shipping-maps.html
+
+**How One Midtown Firehouse Commemorated the 25th Anniversary of 9/11**\
+`Family members reconnected at a firehouse that lost all 15 of the firefighters it sent out to respond after the twin towers were attacked.`\
+https://www.nytimes.com/2026/09/11/nyregion/engine-54-firehouse-911-nyc.html
+
 **La IA podría acabar con la humanidad. ¿Qué tan real es el riesgo?**\
 `Desde el colapso ecológico hasta asteroides asesinos, el mundo moderno está repleto de una multitud de riesgos existenciales. Tenemos una dificultad innata para sopesarlos.`\
 https://www.nytimes.com/es/2026/09/11/espanol/ciencia-y-tecnologia/inteligencia-artificial-futuro-humanidad-riesgos.html
@@ -141,14 +149,6 @@ https://www.nytimes.com/video/embedded/us/100000011146814/SOT-Conoleezza-Rice-91
 **AARP Projects 2027 Social Security COLA at 3.6%**\
 `If the AARP’s projection holds, the cost-of-living adjustment would be the largest since 2023.`\
 https://www.nytimes.com/2026/09/11/business/economy/social-security-cola.html
-
-**What Are Kalshi and Polymarket?**\
-`Prediction markets have taken off in popularity, drawing billions of dollars in trades. Some states have tried to ban them.`\
-https://www.nytimes.com/2026/09/11/us/kalshi-polymarket-prediction-markets.html
-
-**How Minnesota Became the Front Line in the Fight Over Prediction Markets**\
-`The state was the first to pass a law banning Kalshi and Polymarket. A lawsuit filed by a federal agency may set a precedent on who gets to regulate them.`\
-https://www.nytimes.com/2026/09/11/business/kalshi-polymarket-minnesota-prediction-markets.html
 
 **Live Updates: 25 Years After 9/11, a Nation Gathers to Remember**\
 `Solemn ceremonies at ground zero in New York, and across the United States, mourned the thousands of lives lost. President Trump paid tribute to the victims in a speech at the Pentagon.`\
