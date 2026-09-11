@@ -1,3 +1,7 @@
+**How a Series of Climate Disasters Connected a Group of Strangers**\
+`After devastating storms, wildfires, and heat waves, members of the Extreme Weather Survivors network learn to rely on one another.`\
+https://www.nytimes.com/interactive/2026/09/11/magazine/extreme-weather-survivors-group-climate-disasters.html
+
 **Lurking in Trump’s 9/11 Tribute, a Defense of His War With Iran**\
 `The president appeared to embrace the idea that after 9/11, no risk can be tolerated, an echo of reasoning used by previous American officials in the “forever wars” that he has long denounced.`\
 https://www.nytimes.com/2026/09/11/us/politics/trump-9-11-speech-iran.html
@@ -153,10 +157,6 @@ https://www.nytimes.com/2026/09/11/science/space/mercury-shrinking-wrinkles.html
 **A Running Event Reveals Anxieties in Leimert Park, a Black L.A. Neighborhood**\
 `When a Latino running club tried to host an event at Leimert Park, the heart of the city’s Black community, a social media firestorm broke out.`\
 https://www.nytimes.com/2026/09/11/us/los-angeles-run-leimert-park.html
-
-**Police Uncover Scheme Using Fake Horse Passports to Traffic Animals**\
-`The police in Belgium, France, Ireland and the Netherlands say they suspect a fraud network of faking identities and duplicating microchips for hundreds of horses.`\
-https://www.nytimes.com/2026/09/11/world/europe/horses-trafficked-europe-fake-passports.html
 
 **Live Updates: 25 Years After 9/11, a Nation Gathers to Remember**\
 `Solemn ceremonies at ground zero in New York, and across the United States, mourned the thousands of lives lost. President Trump paid tribute to the victims in a speech at the Pentagon.`\
