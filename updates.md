@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/100000011146814/SOT-Conoleezza-Rice-911.html
+
 **AARP Projects 2027 Social Security COLA at 3.6%**\
 `If the AARP’s projection holds, the cost-of-living adjustment would be the largest since 2023.`\
 https://www.nytimes.com/2026/09/11/business/economy/social-security-cola.html
