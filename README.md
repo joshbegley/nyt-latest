@@ -1,3 +1,7 @@
+**Kai Cenat Explains What Makes a Great Livestreamer**\
+`In his new Popcast interview, Kai Cenat, the most-followed Twitch streamer in the world, discusses the qualities he looks for in an aspiring livestreamer.`\
+https://www.nytimes.com/video/podcasts/100000011139805/kai-cenat-explains-what-makes-a-great-livestreamer.html
+
 **Fact-Checking Trump’s Attacks on Democratic Senate Candidates**\
 `The president attacked three Democrats running for Senate this week with inaccurate claims to portray them as too extreme.`\
 https://www.nytimes.com/2026/09/11/us/politics/trump-democats-senate-races-fact-check.html
