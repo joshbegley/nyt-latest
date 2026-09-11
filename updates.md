@@ -1,3 +1,7 @@
+**Chaos, Confusion and Court Dockets: The Fight for Missouri’s House Map**\
+`After the U.S. Supreme Court blocked a congressional map used in the primary, election officials, candidates and voters are scrambling to adjust before November.`\
+https://www.nytimes.com/2026/09/11/us/missouri-congressional-redistricting-chaos.html
+
 **Nation Honors 9/11 Victims on 25th Anniversary**\
 `The nation marked 25 years since the Sept. 11 terror attacks on Friday with ceremonies to honor the thousands of lives lost.`\
 https://www.nytimes.com/video/us/100000011147139/nation-honors-9-11-victims-on-25th-anniversary.html
