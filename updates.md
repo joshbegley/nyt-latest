@@ -1,3 +1,7 @@
+**The Holdout Juror in the Clancy Case Is a Rorschach Test for America**\
+`The nation’s reaction to the 11-1 deadlock that resulted in a mistrial for Lindsay Clancy was, like the jury itself, fiercely and unbridgeably divided.`\
+https://www.nytimes.com/2026/09/11/us/lindsay-clancy-trial-holdout-juror.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/100000011147285/11vid-living-ex-presidents-911.html
