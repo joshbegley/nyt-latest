@@ -1,3 +1,7 @@
+**Colombia to Start Aerial Spraying of Coca Crops Despite Health Worries**\
+`The news comes days after Colombia’s president, Abelardo De La Espriella, and the U.S. secretary of state, Marco Rubio, discussed stronger measures against drug trafficking.`\
+https://www.nytimes.com/2026/09/11/world/americas/colombia-aerial-spraying-coca-crops.html
+
 **For the 25th Time, New York Marks the Shattering Loss of 9/11**\
 `At a ceremony in Lower Manhattan, elected officials and loved ones of those killed in the 2001 terror attacks gathered in solemn remembrance.`\
 https://www.nytimes.com/2026/09/11/nyregion/9-11-anniversary-ceremony-nyc.html

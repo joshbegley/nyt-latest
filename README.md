@@ -1,3 +1,11 @@
+**Nation Honors 9/11 Victims on 25th Anniversary**\
+`The nation marked 25 years since the Sept. 11 terror attacks on Friday with ceremonies to honor the thousands of lives lost.`\
+https://www.nytimes.com/video/us/100000011147139/nation-honors-9-11-victims-on-25th-anniversary.html
+
+**¿Quién habla por el mundo en desarrollo? China e India se disputarán el liderazgo**\
+`China ve al grupo de los BRICS como una vía para desafiar el poder de Estados Unidos. India quiere mantener al grupo lo suficientemente amplio para evitar tomar partido.`\
+https://www.nytimes.com/es/2026/09/11/espanol/mundo/brics-cumbre-china-india.html
+
 **Colombia to Start Aerial Spraying of Coca Crops Despite Health Worries**\
 `The news comes days after Colombia’s president, Abelardo De La Espriella, and the U.S. secretary of state, Marco Rubio, discussed stronger measures against drug trafficking.`\
 https://www.nytimes.com/2026/09/11/world/americas/colombia-aerial-spraying-coca-crops.html
@@ -165,14 +173,6 @@ https://www.nytimes.com/2026/09/11/style/caring-for-women-gala-pamela-anderson-s
 **Book Review: ‘Dressing the Queen,’ by Kate Strasdin**\
 `In a new book, the fashion historian Kate Strasdin looks at the makers who designed the monarch’s sartorial persona.`\
 https://www.nytimes.com/2026/09/11/books/review/dressing-the-queen-kate-strasdin.html
-
-**Trump dice que está cansado de la política en la convención republicana**\
-`El presidente dejó claro que quiere sacar adelante a su partido en unas elecciones intermedias difíciles. Solo que no se esforzará demasiado.`\
-https://www.nytimes.com/es/2026/09/11/espanol/estados-unidos/trump-politica-discurso-cansado.html
-
-**For the First Time, a Moment of Silence for Victims of 9/11-Related Illness**\
-`In the 25 years since the terror attacks, thousands of people have died from conditions that surfaced after their exposure to ground zero in New York.`\
-https://www.nytimes.com/2026/09/11/nyregion/911-illness-moment-of-silence.html
 
 **25 Years After 9/11, a Nation Gathers to Remember**\
 `Solemn ceremonies at ground zero in New York, and across the United States, mourned the thousands of lives lost. President Trump paid tribute to the victims in a speech at the Pentagon.`\
