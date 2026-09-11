@@ -1,4 +1,4 @@
-**Saudi Oil Exports Face New Threat After Attacks on Pipeline and Red Sea Shipping**\
+**Saudi Oil Exports Face Heightened Threats After Attacks on Pipeline**\
 `Ship operators already faced severe risks in navigating the region, and now the danger is higher as Houthi militias assert control in the Red Sea.`\
 https://www.nytimes.com/2026/09/11/business/iran-war-hormuz-red-sea.html
 
