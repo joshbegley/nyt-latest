@@ -114,8 +114,8 @@ https://www.nytimes.com/2026/09/11/crosswords/strands-sidekick-923.html
 `Scroll down for hints and conversation about the puzzle for Saturday, Sept. 12, 2026.`\
 https://www.nytimes.com/2026/09/11/crosswords/wordle-review-1911.html
 
-**Here’s what to know.**\
-`(No description)`\
+**Elevated Inflation Keeps Pressure on Fed to Raise Rates**\
+`The odds of a quarter-point rate increase at the Federal Reserve’s meeting next week surged to 90 percent after August’s Consumer Price Index report.`\
 https://www.nytimes.com/2026/09/11/business/economy/inflation-cpi-august.html
 
 **Live Updates: 25 Years After 9/11, a Nation Gathers to Remember**\
@@ -150,13 +150,13 @@ https://www.nytimes.com/2026/09/11/us/alaska-bering-sea-rescue-boy.html
 `If you’re tempted to ghost someone, try a “connected goodbye” instead.`\
 https://www.nytimes.com/2026/09/11/well/end-relationship-divorce-connected-goodbye-priya-parker.html
 
-**Think Trump Is Going Away? His Message This Week: Not a Chance.**\
-`A dispatch from Dallas 2026.`\
-https://www.nytimes.com/2026/09/11/opinion/trump-convention-republicans-dallas.html
-
 **What Years of Inflation Have Done to US Prices**\
 `Nearly every category of product costs more than it would have had prepandemic trends continued. And many product prices are still rising faster than they were before.`\
 https://www.nytimes.com/interactive/2026/09/11/business/economy/inflation-us-prices-gas-food-tariffs.html
+
+**Trump Made a Simple Argument: It’s All About Me, Me, Me**\
+`A dispatch from Dallas 2026.`\
+https://www.nytimes.com/2026/09/11/opinion/trump-convention-republicans-dallas.html
 
 **Pickles! (Live From the Minnesota State Fair)**\
 `World-class pickle experts explain how to find a great one, and how to make your own safely at home.`\
