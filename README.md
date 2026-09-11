@@ -1,3 +1,7 @@
+**Reflecting Pool Contractor Blames Its Own Repairs, Not Vandals, for Damage**\
+`The contractor said the pool’s new blue liner peeled and tore because of “human oversight” and a flawed plan that involved layering two incompatible chemicals, documents show.`\
+https://www.nytimes.com/2026/09/11/climate/reflecting-pool-contractor-trump.html
+
 **The Holdout Juror in the Clancy Case Is a Rorschach Test for America**\
 `The nation’s reaction to the 11-1 deadlock that resulted in a mistrial for Lindsay Clancy was, like the jury itself, fiercely and unbridgeably divided.`\
 https://www.nytimes.com/2026/09/11/us/lindsay-clancy-trial-holdout-juror.html
@@ -38,8 +42,8 @@ https://www.nytimes.com/interactive/polls/california-us-house-34-polls-2026.html
 `Plus: Those Celine Reeboks and a new home for a beloved vintage shop.`\
 https://www.nytimes.com/2026/09/11/style/chanel-new-york-fashion-week.html
 
-**Supplements Are More Popular Than Ever**\
-`A new survey found that 8 in 10 Americans were taking vitamins, protein powders or other supplements. But experts said many offer little to no benefit.`\
+**8 in 10 Americans Say They’re Taking Supplements. Do They Have Benefits?**\
+`A new survey found that 8 in 10 Americans were taking vitamins, protein powders or other supplements. But experts said there is little evidence for many of these products.`\
 https://www.nytimes.com/2026/09/11/well/eat/dietary-supplements-survey-findings.html
 
 **Speakers at 9/11 Memorial Accuse Saudis of Role in the Attacks**\
@@ -157,10 +161,6 @@ https://www.nytimes.com/2026/09/11/your-money/buying-used-cars.html
 **Can Diane von Furstenberg Get Beyond the Wrap Dress?**\
 `The brand is getting a reset under the designer Henry Zankov. Does it go far enough?`\
 https://www.nytimes.com/2026/09/11/style/diane-von-furstenberg-henry-zankov-show.html
-
-**Israel Destroys Underground Hezbollah Base in Southern Lebanon**\
-`The complex sat below Ali al-Taher ridge, a strategic hilltop that overlooks the region and that has seen intense fighting.`\
-https://www.nytimes.com/2026/09/11/world/middleeast/blast-lebanon-israel-hezbollah-base.html
 
 **Live Updates: 25 Years After 9/11, a Nation Gathers to Remember**\
 `Solemn ceremonies at ground zero in New York, and across the United States, mourned the thousands of lives lost. President Trump paid tribute to the victims in a speech at the Pentagon.`\
