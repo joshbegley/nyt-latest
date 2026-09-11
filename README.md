@@ -1,3 +1,7 @@
+**Houthis Press On to Control Strategic Red Sea Choke Point**\
+`The Iran-backed Houthi militia has seized a strategic Red Sea island, according to two Yemeni government officials, as part of its offensive to control a crucial choke point for global trade.`\
+https://www.nytimes.com/video/world/middleeast/100000011146480/houthis-press-on-to-control-strategic-red-sea-choke-point.html
+
 **Pamela Anderson, Simone Biles and Benicio Del Toro Walk Into an Auction …**\
 `Salma Hayek Pinault wore two gowns, Paris Hilton stepped into the D.J. booth and attendees spent big at Kering’s annual Caring for Women Dinner.`\
 https://www.nytimes.com/2026/09/11/style/caring-for-women-gala-pamela-anderson-simone-biles.html
@@ -18,7 +22,7 @@ https://www.nytimes.com/2026/09/11/nyregion/911-illness-moment-of-silence.html
 `Can you sort 8 historical events?`\
 https://www.nytimes.com/interactive/2026/09/11/upshot/flashback.html
 
-**C.I.A. Releases Intelligence Sent to Clinton and Bush Ahead of 9/11 Attacks**\
+**C.I.A. Releases Intelligence Sent to Clinton and Bush on Al Qaeda Before 9/11 Attacks**\
 `The spy agency released dozens of intelligence documents it had sent to Presidents Bill Clinton and George W. Bush, outlining what was known about Al Qaeda.`\
 https://www.nytimes.com/2026/09/11/us/politics/cia-sept-11-intelligence.html
 
@@ -161,8 +165,4 @@ https://www.nytimes.com/2026/09/11/business/economy/inflation-cpi-august.html
 **Live Updates: 25 Years After 9/11, a Nation Gathers to Remember**\
 `Solemn ceremonies at ground zero in New York, and across the United States, are mourning the thousands of lives lost. President Trump paid tribute to the victims in a speech at the Pentagon.`\
 https://www.nytimes.com/live/2026/09/11/nyregion/9-11-anniversary-25th
-
-**For China, a Mock A.I. Attack on WeChat Signals a Dangerous New Era**\
-`The demonstration of a potent cyberweapon has exposed China’s vulnerabilities and added to the urgency of A.I. safety talks between Beijing and Washington.`\
-https://www.nytimes.com/2026/09/11/world/asia/china-ai-attack-wechat.html
 
