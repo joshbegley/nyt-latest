@@ -1,3 +1,7 @@
+**Gulf Tankers Are Running Out of Ways to Export Oil: ‘These Waters Aren’t Safe’**\
+`Ship operators already faced severe risks in navigating the region, and now the danger is higher as Houthi militias assert control in the Red Sea.`\
+https://www.nytimes.com/2026/09/11/business/iran-war-hormuz-red-sea.html
+
 **How a Series of Climate Disasters Connected a Group of Strangers**\
 `After devastating storms, wildfires, and heat waves, members of the Extreme Weather Survivors network learn to rely on one another.`\
 https://www.nytimes.com/interactive/2026/09/11/magazine/extreme-weather-survivors-group-climate-disasters.html
