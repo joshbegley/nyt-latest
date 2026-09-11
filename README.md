@@ -1,3 +1,19 @@
+**Horses Trafficked in Europe With Fake Animal Passports, Police Say**\
+`The police in Belgium, France, Ireland and the Netherlands say they suspect a fraud network of faking identities and duplicating microchips for hundreds of horses.`\
+https://www.nytimes.com/2026/09/11/world/europe/horses-trafficked-europe-fake-passports.html
+
+**This Yogurt Cake Is Like a Lighter Lemon Cheesecake**\
+`And more of the week’s most popular recipes.`\
+https://www.nytimes.com/2026/09/11/dining/this-yogurt-cake-is-like-a-lighter-lemon-cheesecake.html
+
+**Are Our Expectations Too High for Democracy? Adam Przeworski Thinks So.**\
+`What is democracy, and is it in crisis?`\
+https://www.nytimes.com/2026/09/11/opinion/democracy-trump-crisis.html
+
+**Five Horror Movies to Stream Now**\
+`This month brings cool girl witches, bad boy cutthroats and sinister political agitators.`\
+https://www.nytimes.com/2026/09/11/movies/horror-movies-streaming.html
+
 **How to Get Organized**\
 `Plus, stories from your schools.`\
 https://www.nytimes.com/2026/09/11/briefing/how-to-get-organized.html
@@ -165,24 +181,4 @@ https://www.nytimes.com/2026/09/11/arts/kai-cenat-popcast-interview.html
 **8 New Movies Our Critics Are Talking About This Week**\
 `Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
 https://www.nytimes.com/2026/09/11/movies/new-movies-this-week-critics.html
-
-**Pick Your Favorite Home Along the Chilean Coast Under $1.3 Million**\
-`A Cachagüino-style house, a condominium with a pool and an A-frame home on the beach.`\
-https://www.nytimes.com/2026/09/11/realestate/homes-zapallar-chile.html
-
-**Trading Keggers for ‘Wellness Darties’**\
-`A new crop of college students is finding balance at daytime parties with yoga, saunas and cold plunges.`\
-https://www.nytimes.com/2026/09/11/style/wellness-darties-college-gen-z-tiktok.html
-
-**It Went From Sailors’ Quarters to Notoriety. They Aim to Make It a ‘Refuge.’**\
-`A 1930s Manhattan building designed by the same architects behind the Empire State Building is getting a renovation that incorporates its pasts as landing spot and then prison.`\
-https://www.nytimes.com/2026/09/11/realestate/manhattan-chelsea-renovation.html
-
-**The Best Books of the 21st Century: Taffy Brodesser-Akner on ‘The Corrections’**\
-`Why Jonathan Franzen’s portrait of an American family has such staying power.`\
-https://www.nytimes.com/2026/09/11/podcasts/the-best-books-of-the-21st-century-taffy-brodesser-akner-on-the-corrections.html
-
-**Consider Normandy for the Perfect Fall Weekend Biking Destination**\
-`On a ride through the French countryside from Dieppe to Bayeux, cyclists of all levels can explore beaches, cideries and historic towns.`\
-https://www.nytimes.com/2026/09/11/travel/biking-france-normandy-dieppe-bayeux.html
 

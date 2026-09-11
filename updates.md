@@ -1,3 +1,7 @@
+**How to Get Organized**\
+`Plus, stories from your schools.`\
+https://www.nytimes.com/2026/09/11/briefing/how-to-get-organized.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/100000011146814/SOT-Conoleezza-Rice-911.html

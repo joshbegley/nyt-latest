@@ -1,3 +1,7 @@
+**How to Get Organized**\
+`Plus, stories from your schools.`\
+https://www.nytimes.com/2026/09/11/briefing/how-to-get-organized.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/100000011146814/SOT-Conoleezza-Rice-911.html
@@ -181,12 +185,4 @@ https://www.nytimes.com/2026/09/11/podcasts/the-best-books-of-the-21st-century-t
 **Consider Normandy for the Perfect Fall Weekend Biking Destination**\
 `On a ride through the French countryside from Dieppe to Bayeux, cyclists of all levels can explore beaches, cideries and historic towns.`\
 https://www.nytimes.com/2026/09/11/travel/biking-france-normandy-dieppe-bayeux.html
-
-**How to Make Sense of Mayhem in the Bond Market**\
-`The stock market is easy to talk about. But bonds are a different story. Our columnist has some pointers to help make you a bond maven.`\
-https://www.nytimes.com/2026/09/11/business/bond-market-interest-rates.html
-
-**DNA From Cigarette Leads to Arrest in Unsolved Murder**\
-`An arrest in Washington State came about after a cigarette butt was flicked away during a traffic stop.`\
-https://www.nytimes.com/2026/09/11/us/cigarette-dna-murder-case.html
 
