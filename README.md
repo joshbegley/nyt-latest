@@ -1,7 +1,3 @@
-**The Only Factory Making Real Film for Hollywood**\
-`The Eastman Kodak Company is the only factory still manufacturing film used in major Hollywood productions like ‘The Odyssey’ as part of a broader effort to revive the medium. This is how it is made.`\
-https://www.nytimes.com/video/movies/100000011141856/hollywood-film-odyssey-eastman-kodak-company.html
-
 **How a Series of Climate Disasters Connected a Group of Strangers**\
 `After devastating storms, wildfires, and heat waves, members of the Extreme Weather Survivors network learn to rely on one another.`\
 https://www.nytimes.com/interactive/2026/09/11/magazine/extreme-weather-survivors-group-climate-disasters.html
