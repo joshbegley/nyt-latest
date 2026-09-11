@@ -1,3 +1,11 @@
+**Holdout Juror in Lindsay Clancy’s Mistrial Highlights a Divide in America**\
+`The nation’s reaction to the 11-1 deadlock that resulted in a mistrial for Lindsay Clancy was, like the jury itself, fiercely and unbridgeably divided.`\
+https://www.nytimes.com/2026/09/11/us/lindsay-clancy-trial-holdout-juror.html
+
+**Book Review: ‘Dressing the Queen,’ by Kate Strasdin**\
+`In a new book, the fashion historian Kate Strasdin looks at the makers who designed the monarch’s sartorial persona.`\
+https://www.nytimes.com/2026/09/11/books/review/dressing-the-queen-kate-strasdin.html
+
 **Court Strikes Down Trump Order to Keep an Aging Coal-Burning Plant Running**\
 `The aging Michigan power plant was set to retire. Then the Trump administration intervened in a way that overstepped its authority, a court ruled.`\
 https://www.nytimes.com/2026/09/11/climate/coal-plant-michigan-court.html

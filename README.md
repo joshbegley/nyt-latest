@@ -1,3 +1,7 @@
+**La IA podría acabar con la humanidad. ¿Qué tan real es el riesgo?**\
+`Desde el colapso ecológico hasta asteroides asesinos, el mundo moderno está repleto de una multitud de riesgos existenciales. Tenemos una dificultad innata para sopesarlos.`\
+https://www.nytimes.com/es/2026/09/11/espanol/ciencia-y-tecnologia/inteligencia-artificial-futuro-humanidad-riesgos.html
+
 **Court Strikes Down Trump Order to Keep an Aging Coal-Burning Plant Running**\
 `The aging Michigan power plant was set to retire. Then the Trump administration intervened in a way that overstepped its authority, a court ruled.`\
 https://www.nytimes.com/2026/09/11/climate/coal-plant-michigan-court.html
@@ -145,10 +149,6 @@ https://www.nytimes.com/2026/09/11/us/kalshi-polymarket-prediction-markets.html
 **How Minnesota Became the Front Line in the Fight Over Prediction Markets**\
 `The state was the first to pass a law banning Kalshi and Polymarket. A lawsuit filed by a federal agency may set a precedent on who gets to regulate them.`\
 https://www.nytimes.com/2026/09/11/business/kalshi-polymarket-minnesota-prediction-markets.html
-
-**Trump’s ‘Midterm Convention’ Tried to Reach Die-Hard Republican Voters, but Lacked Oomph**\
-`The long, odd two-night TV production hoped to reach a select audience of die-hard voters (if football didn’t intercept them).`\
-https://www.nytimes.com/2026/09/11/arts/television/republican-midterm-convention-trump-notebook.html
 
 **Live Updates: 25 Years After 9/11, a Nation Gathers to Remember**\
 `Solemn ceremonies at ground zero in New York, and across the United States, mourned the thousands of lives lost. President Trump paid tribute to the victims in a speech at the Pentagon.`\
