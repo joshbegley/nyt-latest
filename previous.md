@@ -1,3 +1,11 @@
+**Blast Shakes Southern Lebanon as Israel Detonates Hezbollah Base**\
+`A huge explosion lit up the sky with orange flashes in southern Lebanon on Thursday, as Israel said it had destroyed a tunnel complex created by the Iran-backed Hezbollah group below the strategic Ali al-Taher ridge.`\
+https://www.nytimes.com/video/world/middleeast/100000011146414/southern-lebanon-explosion-israel-hezbollah.html
+
+**The Local: Fall Kickoff**\
+`A book influencer shares her most anticipated fall reads. Plus, things to do this weekend that don’t involve curling up with a book.`\
+https://www.nytimes.com/2026/09/11/briefing/the-local-fall-kickoff.html
+
 **Why the Houthis' Advances Threaten Global Shipping in the Red Sea**\
 `Maps showing how the swift advance of the Houthis tightens the group’s grip on a crucial choke point of global oil and cargo shipping.`\
 https://www.nytimes.com/interactive/2026/09/11/world/middleeast/houthis-yemen-red-sea-shipping-maps.html
@@ -122,7 +130,7 @@ https://www.nytimes.com/2026/09/11/science/space/mercury-shrinking-wrinkles.html
 `When a Latino running club tried to host an event at Leimert Park, the heart of the city’s Black community, a social media firestorm broke out.`\
 https://www.nytimes.com/2026/09/11/us/los-angeles-run-leimert-park.html
 
-**Fake Horse Passports Were Key to Trafficking Scheme, Police Say**\
+**Police Uncover Scheme Using Fake Horse Passports to Traffic Animals**\
 `The police in Belgium, France, Ireland and the Netherlands say they suspect a fraud network of faking identities and duplicating microchips for hundreds of horses.`\
 https://www.nytimes.com/2026/09/11/world/europe/horses-trafficked-europe-fake-passports.html
 
@@ -145,10 +153,6 @@ https://www.nytimes.com/2026/09/11/briefing/how-to-get-organized.html
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/100000011146814/SOT-Conoleezza-Rice-911.html
-
-**AARP Projects 2027 Social Security COLA at 3.6%**\
-`If the AARP’s projection holds, the cost-of-living adjustment would be the largest since 2023.`\
-https://www.nytimes.com/2026/09/11/business/economy/social-security-cola.html
 
 **Live Updates: 25 Years After 9/11, a Nation Gathers to Remember**\
 `Solemn ceremonies at ground zero in New York, and across the United States, mourned the thousands of lives lost. President Trump paid tribute to the victims in a speech at the Pentagon.`\
