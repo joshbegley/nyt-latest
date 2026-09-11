@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/100000011147862/11vid-embed-Giuliani-Mamdani-62190.html
+
 **Jeff Koons Loves to Laugh**\
 `Beds with curved headboards and pasta with clams: These are a few of the artist Jeff Koons’s favorite things.`\
 https://www.nytimes.com/video/t-magazine/100000011117113/jeff-koons-loves-to-laugh.html
@@ -153,10 +157,6 @@ https://www.nytimes.com/2026/09/11/dining/this-yogurt-cake-is-like-a-lighter-lem
 **Are Our Expectations Too High for Democracy? Adam Przeworski Thinks So.**\
 `What is democracy, and is it in crisis?`\
 https://www.nytimes.com/2026/09/11/opinion/democracy-trump-crisis.html
-
-**Five Horror Movies to Stream Now**\
-`This month brings cool girl witches, bad boy cutthroats and sinister political agitators.`\
-https://www.nytimes.com/2026/09/11/movies/horror-movies-streaming.html
 
 **Live Updates: 25 Years After 9/11, a Nation Gathers to Remember**\
 `Solemn ceremonies at ground zero in New York, and across the United States, mourned the thousands of lives lost. President Trump paid tribute to the victims in a speech at the Pentagon.`\
