@@ -1,3 +1,11 @@
+**Women Special Operations Veterans Remember Their Battles**\
+`The only fraternal organization for women special operations veterans held a gala to mark the wars that began 25 years ago. It came as the Pentagon questions women’s roles in the military.`\
+https://www.nytimes.com/2026/09/11/us/politics/sept-11-women-special-operations-gala.html
+
+**New York Marks the 25th Anniversary of 9/11 at Ground Zero**\
+`At a ceremony in Lower Manhattan, elected officials and loved ones of those killed in the 2001 terror attacks gathered in solemn remembrance.`\
+https://www.nytimes.com/2026/09/11/nyregion/9-11-anniversary-ceremony-nyc.html
+
 **Will Stark Warnings About AI Shape the Midterm Elections?**\
 `Stark warnings from A.I. researchers have reverberated across the country.`\
 https://www.nytimes.com/2026/09/11/us/politics/midterm-elections-trump-ai.html
