@@ -1,3 +1,19 @@
+**Nashville Says Yes to Renaming Airport for Dolly Parton**\
+`A board voted unanimously to honor the country star, philanthropist and Tennessee native. If the effort clears all hurdles, fliers will be “departin’ from Parton.”`\
+https://www.nytimes.com/2026/09/11/travel/nashville-airport-dolly-parton.html
+
+**Muere a los 37 años Lucien Smith, estrella del mundo del arte**\
+`Fue un fenómeno antes de los 30 años y se convirtió en un símbolo del formalismo zombi antes de abandonar el frenesí de las galerías por Montauk.`\
+https://www.nytimes.com/es/2026/09/11/espanol/cultura/muere-lucien-smith-artista.html
+
+**Fake Horse Passports Were Key to Trafficking Scheme, Police Say**\
+`The police in Belgium, France, Ireland and the Netherlands say they suspect a fraud network of faking identities and duplicating microchips for hundreds of horses.`\
+https://www.nytimes.com/2026/09/11/world/europe/horses-trafficked-europe-fake-passports.html
+
+**Live Updates: 25 Years After 9/11, a Nation Gathers to Remember**\
+`Solemn ceremonies at ground zero in New York, and across the United States, mourned the thousands of lives lost. President Trump paid tribute to the victims in a speech at the Pentagon.`\
+https://www.nytimes.com/live/2026/09/11/nyregion/9-11-anniversary-25th
+
 **Before High Holy Days, Jewish Institutions in New York Increase Security**\
 `Jewish leaders say they have spent millions on additional security protections in recent years amid a rise in antisemitic incidents.`\
 https://www.nytimes.com/2026/09/11/nyregion/high-holy-days-security-nyc.html

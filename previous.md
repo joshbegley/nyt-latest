@@ -1,3 +1,11 @@
+**Nashville Says Yes to Renaming Airport for Dolly Parton**\
+`A board voted unanimously to honor the country star, philanthropist and Tennessee native. If the effort clears all hurdles, fliers will be “departin’ from Parton.”`\
+https://www.nytimes.com/2026/09/11/travel/nashville-airport-dolly-parton.html
+
+**Muere a los 37 años Lucien Smith, estrella del mundo del arte**\
+`Fue un fenómeno antes de los 30 años y se convirtió en un símbolo del formalismo zombi antes de abandonar el frenesí de las galerías por Montauk.`\
+https://www.nytimes.com/es/2026/09/11/espanol/cultura/muere-lucien-smith-artista.html
+
 **Before High Holy Days, Jewish Institutions in New York Increase Security**\
 `Jewish leaders say they have spent millions on additional security protections in recent years amid a rise in antisemitic incidents.`\
 https://www.nytimes.com/2026/09/11/nyregion/high-holy-days-security-nyc.html
@@ -78,7 +86,7 @@ https://www.nytimes.com/2026/09/11/science/space/mercury-shrinking-wrinkles.html
 `When a Latino running club tried to host an event at Leimert Park, the heart of the city’s Black community, a social media firestorm broke out.`\
 https://www.nytimes.com/2026/09/11/us/los-angeles-run-leimert-park.html
 
-**Fake Animal Passports Were Key to Horse Trafficking Scheme, Police Say**\
+**Fake Horse Passports Were Key to Trafficking Scheme, Police Say**\
 `The police in Belgium, France, Ireland and the Netherlands say they suspect a fraud network of faking identities and duplicating microchips for hundreds of horses.`\
 https://www.nytimes.com/2026/09/11/world/europe/horses-trafficked-europe-fake-passports.html
 
@@ -158,15 +166,7 @@ https://www.nytimes.com/2026/09/11/world/middleeast/yemen-houthis-bab-al-mandab.
 `As a rout in the bond market deepens, the pressure grows on Treasury Secretary Scott Bessent to restore calm.`\
 https://www.nytimes.com/2026/09/11/business/dealbook/bessent-bond-vigilantes.html
 
-**A Tireless Devotion to Flight 93 Heroes on Solemn Ground Near Shanksville**\
-`The passengers and crew on the United Airlines plane died for their country on Sept. 11. The workers at a memorial near the crash site in Pennsylvania have dedicated themselves to their story.`\
-https://www.nytimes.com/2026/09/11/us/shanksville-memorial.html
-
-**‘The Headlines’ News Quiz: Sept. 11, 2026**\
-`Following the news? Tracy Mumford has some questions for you.`\
-https://www.nytimes.com/2026/09/11/podcasts/the-headlines/the-headlines-news-quiz-sept-11-2026.html
-
 **Live Updates: 25 Years After 9/11, a Nation Gathers to Remember**\
-`Solemn ceremonies at ground zero in New York, and across the United States, are mourning the thousands of lives lost. President Trump paid tribute to the victims in a speech at the Pentagon.`\
+`Solemn ceremonies at ground zero in New York, and across the United States, mourned the thousands of lives lost. President Trump paid tribute to the victims in a speech at the Pentagon.`\
 https://www.nytimes.com/live/2026/09/11/nyregion/9-11-anniversary-25th
 
