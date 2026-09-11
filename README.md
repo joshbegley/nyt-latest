@@ -150,10 +150,6 @@ https://www.nytimes.com/2026/09/11/business/kalshi-polymarket-minnesota-predicti
 `The long, odd two-night TV production hoped to reach a select audience of die-hard voters (if football didn’t intercept them).`\
 https://www.nytimes.com/2026/09/11/arts/television/republican-midterm-convention-trump-notebook.html
 
-**How a Theft From a 9/11 Memorial Turned Into a ‘Blessing in Disguise’**\
-`After a memorial rose was stolen from a church in Midtown Manhattan, the church’s pastor saw an opportunity.`\
-https://www.nytimes.com/2026/09/11/nyregion/how-a-theft-from-a-9-11-memorial-turned-into-a-blessing-in-disguise.html
-
 **Live Updates: 25 Years After 9/11, a Nation Gathers to Remember**\
 `Solemn ceremonies at ground zero in New York, and across the United States, mourned the thousands of lives lost. President Trump paid tribute to the victims in a speech at the Pentagon.`\
 https://www.nytimes.com/live/2026/09/11/nyregion/9-11-anniversary-25th
