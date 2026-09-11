@@ -154,14 +154,6 @@ https://www.nytimes.com/2026/09/11/arts/television/republican-midterm-convention
 `After a memorial rose was stolen from a church in Midtown Manhattan, the church’s pastor saw an opportunity.`\
 https://www.nytimes.com/2026/09/11/nyregion/how-a-theft-from-a-9-11-memorial-turned-into-a-blessing-in-disguise.html
 
-**How Did a Heart Drug With So Much Promise Fall So Flat?**\
-`Cardiologists are struggling to figure out why a drug that should have prevented heart attacks didn’t work at all.`\
-https://www.nytimes.com/2026/09/11/science/heart-drug-failed-novartis.html
-
-**France Widens Sex-Trafficking Investigation Linked to Jeffrey Epstein**\
-`The lead prosecutor in Paris said investigators had identified 13 new potential victims of Mr. Epstein, the financier and sex offender, who was a part-time resident of the city.`\
-https://www.nytimes.com/2026/09/11/world/europe/france-paris-epstein-prosecutor.html
-
 **Live Updates: 25 Years After 9/11, a Nation Gathers to Remember**\
 `Solemn ceremonies at ground zero in New York, and across the United States, mourned the thousands of lives lost. President Trump paid tribute to the victims in a speech at the Pentagon.`\
 https://www.nytimes.com/live/2026/09/11/nyregion/9-11-anniversary-25th

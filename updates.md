@@ -1,3 +1,15 @@
+**Court Strikes Down Trump Order to Keep an Aging Coal-Burning Plant Running**\
+`The aging Michigan power plant was set to retire. Then the Trump administration intervened in a way that overstepped its authority, a court ruled.`\
+https://www.nytimes.com/2026/09/11/climate/coal-plant-michigan-court.html
+
+**Remembering 9/11, and What Unites Us**\
+`Responses to “My Dad Died on Flight 93. The Nation Rallied,” an Opinion guest essay by Charlie Greene. Also: President Trump’s payout ploy; a reality map.`\
+https://www.nytimes.com/2026/09/11/opinion/sept11-25th-anniversary.html
+
+**C.I.A. Officer Found With Gold Bars in Basement Reaches Tentative Plea Deal**\
+`David J. Rush was fired from the C.I.A. after the F.B.I. found 303 gold bars in his Virginia home. Officials have said he created a fake classified program to funnel himself millions of dollars.`\
+https://www.nytimes.com/2026/09/11/us/politics/cia-officer-gold-bars-plea-deal.html
+
 **Reflecting Pool Contractor Blames Its Own Repairs, Not Vandals, for Damage**\
 `The contractor said the pool’s new blue liner peeled and tore because of “human oversight” and a flawed plan that involved layering two incompatible chemicals, documents show.`\
 https://www.nytimes.com/2026/09/11/climate/reflecting-pool-contractor-trump.html

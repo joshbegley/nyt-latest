@@ -1,3 +1,15 @@
+**Court Strikes Down Trump Order to Keep an Aging Coal-Burning Plant Running**\
+`The aging Michigan power plant was set to retire. Then the Trump administration intervened in a way that overstepped its authority, a court ruled.`\
+https://www.nytimes.com/2026/09/11/climate/coal-plant-michigan-court.html
+
+**Remembering 9/11, and What Unites Us**\
+`Responses to “My Dad Died on Flight 93. The Nation Rallied,” an Opinion guest essay by Charlie Greene. Also: President Trump’s payout ploy; a reality map.`\
+https://www.nytimes.com/2026/09/11/opinion/sept11-25th-anniversary.html
+
+**C.I.A. Officer Found With Gold Bars in Basement Reaches Tentative Plea Deal**\
+`David J. Rush was fired from the C.I.A. after the F.B.I. found 303 gold bars in his Virginia home. Officials have said he created a fake classified program to funnel himself millions of dollars.`\
+https://www.nytimes.com/2026/09/11/us/politics/cia-officer-gold-bars-plea-deal.html
+
 **Reflecting Pool Contractor Blames Its Own Repairs, Not Vandals, for Damage**\
 `The contractor said the pool’s new blue liner peeled and tore because of “human oversight” and a flawed plan that involved layering two incompatible chemicals, documents show.`\
 https://www.nytimes.com/2026/09/11/climate/reflecting-pool-contractor-trump.html
@@ -149,18 +161,6 @@ https://www.nytimes.com/2026/09/11/science/heart-drug-failed-novartis.html
 **France Widens Sex-Trafficking Investigation Linked to Jeffrey Epstein**\
 `The lead prosecutor in Paris said investigators had identified 13 new potential victims of Mr. Epstein, the financier and sex offender, who was a part-time resident of the city.`\
 https://www.nytimes.com/2026/09/11/world/europe/france-paris-epstein-prosecutor.html
-
-**Influencers Invited to the Republican Midterm Convention Largely Avoided Talking About The Economy**\
-`Online media stars eager to promote President Trump and Republicans worked to find a message that would resonate with an audience that is struggling with an affordability crisis.`\
-https://www.nytimes.com/2026/09/11/us/politics/trump-republican-convention-influencers-message.html
-
-**Why Cheap Used Cars Are So Hard to Find**\
-`A three-year-old car was the sweet spot for buying used cars, since they have passed the peak of depreciation. But they now average about $33,000.`\
-https://www.nytimes.com/2026/09/11/your-money/buying-used-cars.html
-
-**Can Diane von Furstenberg Get Beyond the Wrap Dress?**\
-`The brand is getting a reset under the designer Henry Zankov. Does it go far enough?`\
-https://www.nytimes.com/2026/09/11/style/diane-von-furstenberg-henry-zankov-show.html
 
 **Live Updates: 25 Years After 9/11, a Nation Gathers to Remember**\
 `Solemn ceremonies at ground zero in New York, and across the United States, mourned the thousands of lives lost. President Trump paid tribute to the victims in a speech at the Pentagon.`\
