@@ -1,3 +1,7 @@
+**25 Years After 9/11, a Nation Gathers to Remember**\
+`Solemn ceremonies at ground zero in New York, and across the United States, mourned the thousands of lives lost. President Trump paid tribute to the victims in a speech at the Pentagon.`\
+https://www.nytimes.com/live/2026/09/11/nyregion/9-11-anniversary-25th
+
 **Saudi Oil Exports Face Heightened Threats After Attacks on Pipeline**\
 `Ship operators already faced severe risks in navigating the region, and now the danger is higher as Houthi militias assert control in the Red Sea.`\
 https://www.nytimes.com/2026/09/11/business/iran-war-hormuz-red-sea.html
