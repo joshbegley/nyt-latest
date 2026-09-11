@@ -1,3 +1,15 @@
+**The Best Chanel Money Can’t Buy**\
+`Plus: Those Celine Reeboks and a new home for a beloved vintage shop.`\
+https://www.nytimes.com/2026/09/11/style/chanel-new-york-fashion-week.html
+
+**Supplements Are More Popular Than Ever**\
+`A new survey found that 8 in 10 Americans were taking vitamins, protein powders or other supplements. But experts said many offer little to no benefit.`\
+https://www.nytimes.com/2026/09/11/well/eat/dietary-supplements-survey-findings.html
+
+**Speakers at 9/11 Memorial Accuse Saudis of Role in the Attacks**\
+`Relatives of victims said past administrations had not held the kingdom accountable, and called for action from President Trump.`\
+https://www.nytimes.com/2026/09/11/nyregion/911-ceremony-speeches-nyc.html
+
 **At Lincoln Center, Dancers Perform a Ritual of Grief**\
 `Since 2011, the dance piece, “Table of Silence Project 9/11,” has become an annual rite of remembrance`\
 https://www.nytimes.com/2026/09/11/nyregion/911-performance-lincoln-center-nyc.html
@@ -149,18 +161,6 @@ https://www.nytimes.com/2026/09/11/podcasts/the-headlines/jd-vance-iran-war-ai.h
 **The Lives That 9/11 Keeps Taking**\
 `On the eve of the 25th anniversary of the attacks, Mayor Zohran Mamdani released documents that, despite assurances from officials, reveal that it was not safe to return to ground zero.`\
 https://www.nytimes.com/2026/09/11/podcasts/the-daily/9-11-anniversary-mamdani-ground-zero.html
-
-**NYT Connections Answers for September 12, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, Sept. 12, 2026.`\
-https://www.nytimes.com/2026/09/11/crosswords/connections-companion-1189.html
-
-**NYT Strands Hints for September 12, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, Sept. 12, 2026.`\
-https://www.nytimes.com/2026/09/11/crosswords/strands-sidekick-923.html
-
-**Today's Wordle Hints for September 12, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, Sept. 12, 2026.`\
-https://www.nytimes.com/2026/09/11/crosswords/wordle-review-1911.html
 
 **Live Updates: 25 Years After 9/11, a Nation Gathers to Remember**\
 `Solemn ceremonies at ground zero in New York, and across the United States, are mourning the thousands of lives lost. President Trump paid tribute to the victims in a speech at the Pentagon.`\
