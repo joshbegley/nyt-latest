@@ -1,3 +1,15 @@
+**How a Series of Climate Disasters Connected a Group of Strangers**\
+`After devastating storms, wildfires, and heat waves, members of the Extreme Weather Survivors network learn to rely on one another.`\
+https://www.nytimes.com/interactive/2026/09/11/magazine/extreme-weather-survivors-group-climate-disasters.html
+
+**Lurking in Trump’s 9/11 Tribute, a Defense of His War With Iran**\
+`The president appeared to embrace the idea that after 9/11, no risk can be tolerated, an echo of reasoning used by previous American officials in the “forever wars” that he has long denounced.`\
+https://www.nytimes.com/2026/09/11/us/politics/trump-9-11-speech-iran.html
+
+**Mamdani and Giuliani Shake Hands at Ground Zero on 9/11**\
+`The former mayor and the sitting mayor shared a few words at the anniversary ceremony on Friday.`\
+https://www.nytimes.com/2026/09/11/nyregion/mamdani-9-11-ground-zero-giuliani.html
+
 **‘I’ll Pray for You’: Giuliani and Mamdani Have an Exchange at the Memorial**\
 `The former mayor and the sitting mayor shared a few words at the 9/11 ceremony.`\
 https://www.nytimes.com/2026/09/11/nyregion/mamdani-9-11-ground-zero-giuliani.html
