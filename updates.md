@@ -1,3 +1,23 @@
+**Houthis Press On to Control Strategic Red Sea Choke Point**\
+`The Iran-backed Houthi militia has seized a strategic Red Sea island, according to two Yemeni government officials, as part of its offensive to control a crucial choke point for global trade.`\
+https://www.nytimes.com/video/world/middleeast/100000011146480/houthis-press-on-to-control-strategic-red-sea-choke-point.html
+
+**Pamela Anderson, Simone Biles and Benicio Del Toro Walk Into an Auction …**\
+`Salma Hayek Pinault wore two gowns, Paris Hilton stepped into the D.J. booth and attendees spent big at Kering’s annual Caring for Women Dinner.`\
+https://www.nytimes.com/2026/09/11/style/caring-for-women-gala-pamela-anderson-simone-biles.html
+
+**Book Review: ‘Dressing the Queen,’ by Kate Strasdin**\
+`In “Dressing the Queen” the fashion historian Kate Strasdin looks at the makers who designed the image.`\
+https://www.nytimes.com/2026/09/11/books/review/dressing-the-queen-kate-strasdin.html
+
+**Trump dice que está cansado de la política en la convención republicana**\
+`El presidente dejó claro que quiere sacar adelante a su partido en unas elecciones intermedias difíciles. Solo que no se esforzará demasiado.`\
+https://www.nytimes.com/es/2026/09/11/espanol/estados-unidos/trump-politica-discurso-cansado.html
+
+**C.I.A. Releases Intelligence Sent to Clinton and Bush on Al Qaeda Before 9/11 Attacks**\
+`The spy agency released dozens of intelligence documents it had sent to Presidents Bill Clinton and George W. Bush, outlining what was known about Al Qaeda.`\
+https://www.nytimes.com/2026/09/11/us/politics/cia-sept-11-intelligence.html
+
 **For the First Time, a Moment of Silence for Victims of 9/11-Related Illness**\
 `In the 25 years since the terror attacks, thousands of people have died from conditions that surfaced after their exposure to ground zero in New York.`\
 https://www.nytimes.com/2026/09/11/nyregion/911-illness-moment-of-silence.html

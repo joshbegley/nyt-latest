@@ -1,3 +1,7 @@
+**At Lincoln Center, Dancers Perform a Ritual of Grief**\
+`Since 2011, the dance piece, “Table of Silence Project 9/11,” has become an annual rite of remembrance`\
+https://www.nytimes.com/2026/09/11/nyregion/911-performance-lincoln-center-nyc.html
+
 **Houthis Press On to Control Strategic Red Sea Choke Point**\
 `The Iran-backed Houthi militia has seized a strategic Red Sea island, according to two Yemeni government officials, as part of its offensive to control a crucial choke point for global trade.`\
 https://www.nytimes.com/video/world/middleeast/100000011146480/houthis-press-on-to-control-strategic-red-sea-choke-point.html
