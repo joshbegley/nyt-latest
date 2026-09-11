@@ -1,3 +1,27 @@
+**Horses Trafficked in Europe With Fake Animal Passports, Police Say**\
+`The police in Belgium, France, Ireland and the Netherlands say they suspect a fraud network of faking identities and duplicating microchips for hundreds of horses.`\
+https://www.nytimes.com/2026/09/11/world/europe/horses-trafficked-europe-fake-passports.html
+
+**This Yogurt Cake Is Like a Lighter Lemon Cheesecake**\
+`And more of the week’s most popular recipes.`\
+https://www.nytimes.com/2026/09/11/dining/this-yogurt-cake-is-like-a-lighter-lemon-cheesecake.html
+
+**Are Our Expectations Too High for Democracy? Adam Przeworski Thinks So.**\
+`What is democracy, and is it in crisis?`\
+https://www.nytimes.com/2026/09/11/opinion/democracy-trump-crisis.html
+
+**Five Horror Movies to Stream Now**\
+`This month brings cool girl witches, bad boy cutthroats and sinister political agitators.`\
+https://www.nytimes.com/2026/09/11/movies/horror-movies-streaming.html
+
+**Elevated Inflation Keeps Pressure on Fed to Raise Rates**\
+`The odds of a quarter-point rate increase at the Federal Reserve’s meeting next week surged to 90 percent after August’s Consumer Price Index report.`\
+https://www.nytimes.com/2026/09/11/business/economy/inflation-cpi-august.html
+
+**Trump Made a Simple Argument: It’s All About Me, Me, Me**\
+`A dispatch from Dallas 2026.`\
+https://www.nytimes.com/2026/09/11/opinion/trump-convention-republicans-dallas.html
+
 **How to Get Organized**\
 `Plus, stories from your schools.`\
 https://www.nytimes.com/2026/09/11/briefing/how-to-get-organized.html
