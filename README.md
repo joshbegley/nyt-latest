@@ -1,3 +1,7 @@
+**Chaos, Confusion and Court Dockets: The Fight for Missouri’s House Map**\
+`After the U.S. Supreme Court blocked a congressional map used in the primary, election officials, candidates and voters are scrambling to adjust before November.`\
+https://www.nytimes.com/2026/09/11/us/missouri-congressional-redistricting-chaos.html
+
 **Nation Honors 9/11 Victims on 25th Anniversary**\
 `The nation marked 25 years since the Sept. 11 terror attacks on Friday with ceremonies to honor the thousands of lives lost.`\
 https://www.nytimes.com/video/us/100000011147139/nation-honors-9-11-victims-on-25th-anniversary.html
@@ -169,10 +173,6 @@ https://www.nytimes.com/video/world/middleeast/100000011146480/houthis-press-on-
 **Pamela Anderson, Simone Biles and Benicio Del Toro Walk Into an Auction …**\
 `Salma Hayek Pinault wore two gowns, Paris Hilton stepped into the D.J. booth and attendees spent big at Kering’s annual Caring for Women Dinner.`\
 https://www.nytimes.com/2026/09/11/style/caring-for-women-gala-pamela-anderson-simone-biles.html
-
-**Book Review: ‘Dressing the Queen,’ by Kate Strasdin**\
-`In a new book, the fashion historian Kate Strasdin looks at the makers who designed the monarch’s sartorial persona.`\
-https://www.nytimes.com/2026/09/11/books/review/dressing-the-queen-kate-strasdin.html
 
 **25 Years After 9/11, a Nation Gathers to Remember**\
 `Solemn ceremonies at ground zero in New York, and across the United States, mourned the thousands of lives lost. President Trump paid tribute to the victims in a speech at the Pentagon.`\
