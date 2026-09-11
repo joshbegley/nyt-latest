@@ -1,3 +1,11 @@
+**Before High Holy Days, Jewish Institutions in New York Increase Security**\
+`Jewish leaders say they have spent millions on additional security protections in recent years amid a rise in antisemitic incidents.`\
+https://www.nytimes.com/2026/09/11/nyregion/high-holy-days-security-nyc.html
+
+**Isao Harimoto, Hiroshima Survivor and a Baseball Star in Japan, Dies at 86**\
+`A Korean-Japanese slugger known as Hit Machine, he was one of Japanese baseball’s greatest hitters in a career that lasted more than 20 years.`\
+https://www.nytimes.com/2026/09/11/sports/baseball/isao-harimoto-dead.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/100000011146976/911-Moment-of-Silence.html
@@ -70,7 +78,7 @@ https://www.nytimes.com/2026/09/11/science/space/mercury-shrinking-wrinkles.html
 `When a Latino running club tried to host an event at Leimert Park, the heart of the city’s Black community, a social media firestorm broke out.`\
 https://www.nytimes.com/2026/09/11/us/los-angeles-run-leimert-park.html
 
-**Horses Trafficked in Europe With Fake Animal Passports, Police Say**\
+**Fake Animal Passports Were Key to Horse Trafficking Scheme, Police Say**\
 `The police in Belgium, France, Ireland and the Netherlands say they suspect a fraud network of faking identities and duplicating microchips for hundreds of horses.`\
 https://www.nytimes.com/2026/09/11/world/europe/horses-trafficked-europe-fake-passports.html
 
@@ -157,14 +165,6 @@ https://www.nytimes.com/2026/09/11/us/shanksville-memorial.html
 **‘The Headlines’ News Quiz: Sept. 11, 2026**\
 `Following the news? Tracy Mumford has some questions for you.`\
 https://www.nytimes.com/2026/09/11/podcasts/the-headlines/the-headlines-news-quiz-sept-11-2026.html
-
-**Lose Yourself in Yayoi Kusama’s Last Show**\
-`A landmark retrospective by the late Japanese artist invites visitors to surrender individual identity and step into an infinite cosmos.`\
-https://www.nytimes.com/2026/09/11/arts/design/yayoi-kusama-retrospective-stedelijk-museum.html
-
-**Twenty-Five Years**\
-`We look back at Sept. 11, 2001.`\
-https://www.nytimes.com/2026/09/11/briefing/twenty-five-years.html
 
 **Live Updates: 25 Years After 9/11, a Nation Gathers to Remember**\
 `Solemn ceremonies at ground zero in New York, and across the United States, are mourning the thousands of lives lost. President Trump paid tribute to the victims in a speech at the Pentagon.`\
