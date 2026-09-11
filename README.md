@@ -1,3 +1,15 @@
+**Pamela Anderson, Simone Biles and Benicio Del Toro Walk Into an Auction …**\
+`Salma Hayek Pinault wore two gowns, Paris Hilton stepped into the D.J. booth and attendees spent big at Kering’s annual Caring for Women Dinner.`\
+https://www.nytimes.com/2026/09/11/style/caring-for-women-gala-pamela-anderson-simone-biles.html
+
+**Book Review: ‘Dressing the Queen,’ by Kate Strasdin**\
+`In “Dressing the Queen” the fashion historian Kate Strasdin looks at the makers who designed the image.`\
+https://www.nytimes.com/2026/09/11/books/review/dressing-the-queen-kate-strasdin.html
+
+**Trump dice que está cansado de la política en la convención republicana**\
+`El presidente dejó claro que quiere sacar adelante a su partido en unas elecciones intermedias difíciles. Solo que no se esforzará demasiado.`\
+https://www.nytimes.com/es/2026/09/11/espanol/estados-unidos/trump-politica-discurso-cansado.html
+
 **For the First Time, a Moment of Silence for Victims of 9/11-Related Illness**\
 `In the 25 years since the terror attacks, thousands of people have died from conditions that surfaced after their exposure to ground zero in New York.`\
 https://www.nytimes.com/2026/09/11/nyregion/911-illness-moment-of-silence.html
@@ -153,16 +165,4 @@ https://www.nytimes.com/live/2026/09/11/nyregion/9-11-anniversary-25th
 **For China, a Mock A.I. Attack on WeChat Signals a Dangerous New Era**\
 `The demonstration of a potent cyberweapon has exposed China’s vulnerabilities and added to the urgency of A.I. safety talks between Beijing and Washington.`\
 https://www.nytimes.com/2026/09/11/world/asia/china-ai-attack-wechat.html
-
-**Private Equity and Salary Caps**\
-`How players could get a financial stake from billionaire owners.`\
-https://www.nytimes.com/2026/09/11/podcasts/private-equity-and-salary-caps.html
-
-**Inside an Ancient Lebanese City Engulfed by War**\
-`The Lebanese city of Tyre, one of the oldest metropolises in the world, has been left scarred.`\
-https://www.nytimes.com/2026/09/11/world/middleeast/tyre-engulfed-war-lebanon.html
-
-****\
-`Mourners at a funeral ceremony for three Lebanese Civil Defense emergency workers killed in an Israeli strike in April.`\
-https://www.nytimes.com/video/embedded/world/middleeast/100000010988623/00Lebanon-Tyre-photos-3263.html
 
