@@ -3,7 +3,7 @@
 https://www.nytimes.com/es/2026/09/11/espanol/ciencia-y-tecnologia/inteligencia-artificial-futuro-humanidad-riesgos.html
 
 **Court Strikes Down Trump Order to Keep an Aging Coal-Burning Plant Running**\
-`The aging Michigan power plant was set to retire. Then the Trump administration intervened in a way that overstepped its authority, a court ruled.`\
+`The 64-year-old Michigan power plant was set to retire. Then the Trump administration intervened in a way that overstepped its authority, a court ruled.`\
 https://www.nytimes.com/2026/09/11/climate/coal-plant-michigan-court.html
 
 **Remembering 9/11, and What Unites Us**\

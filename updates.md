@@ -1,3 +1,7 @@
+**La IA podría acabar con la humanidad. ¿Qué tan real es el riesgo?**\
+`Desde el colapso ecológico hasta asteroides asesinos, el mundo moderno está repleto de una multitud de riesgos existenciales. Tenemos una dificultad innata para sopesarlos.`\
+https://www.nytimes.com/es/2026/09/11/espanol/ciencia-y-tecnologia/inteligencia-artificial-futuro-humanidad-riesgos.html
+
 **Holdout Juror in Lindsay Clancy’s Mistrial Highlights a Divide in America**\
 `The nation’s reaction to the 11-1 deadlock that resulted in a mistrial for Lindsay Clancy was, like the jury itself, fiercely and unbridgeably divided.`\
 https://www.nytimes.com/2026/09/11/us/lindsay-clancy-trial-holdout-juror.html
