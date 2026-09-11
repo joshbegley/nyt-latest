@@ -1,3 +1,11 @@
+**For the 25th Time, New York Marks the Shattering Loss of 9/11**\
+`At a ceremony in Lower Manhattan, elected officials and loved ones of those killed in the 2001 terror attacks gathered in solemn remembrance.`\
+https://www.nytimes.com/2026/09/11/nyregion/9-11-anniversary-ceremony-nyc.html
+
+**America Gathers to Remember, 25 Years After 9/11**\
+`Also, an Iranian-backed militia seized a key Red Sea island. Here’s the latest at the end of Friday.`\
+https://www.nytimes.com/2026/09/11/briefing/remembering-sept-11-bayeux-tapestry.html
+
 **Kai Cenat Explains What Makes a Great Livestreamer**\
 `In his new Popcast interview, Kai Cenat, the most-followed Twitch streamer in the world, discusses the qualities he looks for in an aspiring livestreamer.`\
 https://www.nytimes.com/video/podcasts/100000011139805/kai-cenat-explains-what-makes-a-great-livestreamer.html
@@ -161,14 +169,6 @@ https://www.nytimes.com/es/2026/09/11/espanol/estados-unidos/trump-politica-disc
 **For the First Time, a Moment of Silence for Victims of 9/11-Related Illness**\
 `In the 25 years since the terror attacks, thousands of people have died from conditions that surfaced after their exposure to ground zero in New York.`\
 https://www.nytimes.com/2026/09/11/nyregion/911-illness-moment-of-silence.html
-
-**Flashback: Your Weekly History Quiz, Sept. 12, 2026**\
-`Can you sort 8 historical events?`\
-https://www.nytimes.com/interactive/2026/09/11/upshot/flashback.html
-
-**C.I.A. Releases Intelligence Sent to Clinton and Bush on Al Qaeda Before 9/11 Attacks**\
-`The spy agency released dozens of intelligence documents it had sent to Presidents Bill Clinton and George W. Bush, outlining what was known about Al Qaeda.`\
-https://www.nytimes.com/2026/09/11/us/politics/cia-sept-11-intelligence.html
 
 **25 Years After 9/11, a Nation Gathers to Remember**\
 `Solemn ceremonies at ground zero in New York, and across the United States, mourned the thousands of lives lost. President Trump paid tribute to the victims in a speech at the Pentagon.`\
