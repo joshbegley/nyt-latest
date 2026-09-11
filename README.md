@@ -1,3 +1,15 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/100000011146976/911-Moment-of-Silence.html
+
+**Afghan Woman Deported in First Use of Obscure Terrorism Court**\
+`It remains unclear whether the administration would seek to use the court again after successfully obtaining an order from its chief judge to expel the woman.`\
+https://www.nytimes.com/2026/09/11/us/afghan-woman-deported-terrorism-court.html
+
+**Who Is Ahead in California's 34th Congressional District?**\
+`Track the latest polls in California's 34th Congressional District.`\
+https://www.nytimes.com/interactive/polls/california-us-house-34-polls-2026.html
+
 **The Best Chanel Money Can’t Buy**\
 `Plus: Those Celine Reeboks and a new home for a beloved vintage shop.`\
 https://www.nytimes.com/2026/09/11/style/chanel-new-york-fashion-week.html
@@ -153,14 +165,6 @@ https://www.nytimes.com/2026/09/11/arts/design/yayoi-kusama-retrospective-stedel
 **Twenty-Five Years**\
 `We look back at Sept. 11, 2001.`\
 https://www.nytimes.com/2026/09/11/briefing/twenty-five-years.html
-
-**What JD Vance Knew About the War, and New Warnings About A.I.**\
-`Plus, your Friday news quiz.`\
-https://www.nytimes.com/2026/09/11/podcasts/the-headlines/jd-vance-iran-war-ai.html
-
-**The Lives That 9/11 Keeps Taking**\
-`On the eve of the 25th anniversary of the attacks, Mayor Zohran Mamdani released documents that, despite assurances from officials, reveal that it was not safe to return to ground zero.`\
-https://www.nytimes.com/2026/09/11/podcasts/the-daily/9-11-anniversary-mamdani-ground-zero.html
 
 **Live Updates: 25 Years After 9/11, a Nation Gathers to Remember**\
 `Solemn ceremonies at ground zero in New York, and across the United States, are mourning the thousands of lives lost. President Trump paid tribute to the victims in a speech at the Pentagon.`\

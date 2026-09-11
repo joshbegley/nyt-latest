@@ -1,3 +1,15 @@
+**The Best Chanel Money Can’t Buy**\
+`Plus: Those Celine Reeboks and a new home for a beloved vintage shop.`\
+https://www.nytimes.com/2026/09/11/style/chanel-new-york-fashion-week.html
+
+**Supplements Are More Popular Than Ever**\
+`A new survey found that 8 in 10 Americans were taking vitamins, protein powders or other supplements. But experts said many offer little to no benefit.`\
+https://www.nytimes.com/2026/09/11/well/eat/dietary-supplements-survey-findings.html
+
+**Speakers at 9/11 Memorial Accuse Saudis of Role in the Attacks**\
+`Relatives of victims said past administrations had not held the kingdom accountable, and called for action from President Trump.`\
+https://www.nytimes.com/2026/09/11/nyregion/911-ceremony-speeches-nyc.html
+
 **At Lincoln Center, Dancers Perform a Ritual of Grief**\
 `Since 2011, the dance piece, “Table of Silence Project 9/11,” has become an annual rite of remembrance`\
 https://www.nytimes.com/2026/09/11/nyregion/911-performance-lincoln-center-nyc.html
