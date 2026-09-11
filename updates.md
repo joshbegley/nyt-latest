@@ -1,3 +1,23 @@
+**What Are Kalshi and Polymarket?**\
+`Prediction markets have taken off in popularity, drawing billions of dollars in trades. Some states have tried to ban them.`\
+https://www.nytimes.com/2026/09/11/us/kalshi-polymarket-prediction-markets.html
+
+**How Minnesota Became the Front Line in the Fight Over Prediction Markets**\
+`The state was the first to pass a law banning Kalshi and Polymarket. A lawsuit filed by a federal agency may set a precedent on who gets to regulate them.`\
+https://www.nytimes.com/2026/09/11/business/kalshi-polymarket-minnesota-prediction-markets.html
+
+**Here’s what to know.**\
+`(No description)`\
+https://www.nytimes.com/2026/09/11/business/economy/inflation-cpi-august.html
+
+**Live Updates: 25 Years After 9/11, a Nation Gathers to Remember**\
+`Solemn ceremonies at ground zero in New York, and across the United States, are mourning the thousands of lives lost. President Trump paid tribute to the victims in a speech at the Pentagon.`\
+https://www.nytimes.com/live/2026/09/11/nyregion/9-11-anniversary-25th
+
+**How to End a Relationship Thoughtfully**\
+`If you’re tempted to ghost someone, try a “connected goodbye” instead.`\
+https://www.nytimes.com/2026/09/11/well/end-relationship-divorce-connected-goodbye-priya-parker.html
+
 **Trump’s ‘Midterm Convention’ Tried to Reach Die-Hard Republican Voters, but Lacked Oomph**\
 `The long, odd two-night TV production hoped to reach a select audience of die-hard voters (if football didn’t intercept them).`\
 https://www.nytimes.com/2026/09/11/arts/television/republican-midterm-convention-trump-notebook.html

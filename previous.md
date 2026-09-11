@@ -1,3 +1,11 @@
+**What Are Kalshi and Polymarket?**\
+`Prediction markets have taken off in popularity, drawing billions of dollars in trades. Some states have tried to ban them.`\
+https://www.nytimes.com/2026/09/11/us/kalshi-polymarket-prediction-markets.html
+
+**How Minnesota Became the Front Line in the Fight Over Prediction Markets**\
+`The state was the first to pass a law banning Kalshi and Polymarket. A lawsuit filed by a federal agency may set a precedent on who gets to regulate them.`\
+https://www.nytimes.com/2026/09/11/business/kalshi-polymarket-minnesota-prediction-markets.html
+
 **Trump’s ‘Midterm Convention’ Tried to Reach Die-Hard Republican Voters, but Lacked Oomph**\
 `The long, odd two-night TV production hoped to reach a select audience of die-hard voters (if football didn’t intercept them).`\
 https://www.nytimes.com/2026/09/11/arts/television/republican-midterm-convention-trump-notebook.html
@@ -78,12 +86,12 @@ https://www.nytimes.com/2026/09/11/crosswords/strands-sidekick-923.html
 `Scroll down for hints and conversation about the puzzle for Saturday, Sept. 12, 2026.`\
 https://www.nytimes.com/2026/09/11/crosswords/wordle-review-1911.html
 
-**Live Updates: Elevated Inflation Keeps Pressure on Fed to Raise Interest Rates**\
-`U.S. inflation showed little improvement in August, running at a 3.4 percent annual rate. Investors believe the Federal Reserve is very likely to raise rates at its meeting next week.`\
-https://www.nytimes.com/live/2026/09/11/business/inflation-cpi-report
+**Here’s what to know.**\
+`(No description)`\
+https://www.nytimes.com/2026/09/11/business/economy/inflation-cpi-august.html
 
 **Live Updates: 25 Years After 9/11, a Nation Gathers to Remember**\
-`Solemn ceremonies at ground zero in New York, and across the United States, are mourning the thousands of lives lost. President Trump is speaking at the Pentagon.`\
+`Solemn ceremonies at ground zero in New York, and across the United States, are mourning the thousands of lives lost. President Trump paid tribute to the victims in a speech at the Pentagon.`\
 https://www.nytimes.com/live/2026/09/11/nyregion/9-11-anniversary-25th
 
 **For China, a Mock A.I. Attack on WeChat Signals a Dangerous New Era**\
@@ -112,15 +120,15 @@ https://www.nytimes.com/2026/09/11/us/alaska-bering-sea-rescue-boy.html
 
 **How to End a Relationship Thoughtfully**\
 `If you’re tempted to ghost someone, try a “connected goodbye” instead.`\
-https://www.nytimes.com/2026/09/11/well/well-newsletter-connected-goodbye-priya-parker.html
-
-**What Years of Inflation Have Done to US Prices**\
-`Nearly every category of product costs more than it would have had prepandemic trends continued. And many product prices are still rising faster than they were before.`\
-https://www.nytimes.com/interactive/2026/09/11/business/economy/inflation-us-prices-gas-food-tariffs.html
+https://www.nytimes.com/2026/09/11/well/end-relationship-divorce-connected-goodbye-priya-parker.html
 
 **Think Trump Is Going Away? His Message This Week: Not a Chance.**\
 `A dispatch from Dallas 2026.`\
 https://www.nytimes.com/2026/09/11/opinion/trump-convention-republicans-dallas.html
+
+**What Years of Inflation Have Done to US Prices**\
+`Nearly every category of product costs more than it would have had prepandemic trends continued. And many product prices are still rising faster than they were before.`\
+https://www.nytimes.com/interactive/2026/09/11/business/economy/inflation-us-prices-gas-food-tariffs.html
 
 **Pickles! (Live From the Minnesota State Fair)**\
 `World-class pickle experts explain how to find a great one, and how to make your own safely at home.`\
@@ -185,12 +193,4 @@ https://www.nytimes.com/video/us/politics/100000011133866/how-trump-is-using-the
 **Jay Maisel, Photographer of Miles Davis and Much More, Dies at 95**\
 `His moody portrait became the album cover for “Kind of Blue.” Mr. Maisel lived and worked in an old bank that he bought for $102,000 and sold for $55 million.`\
 https://www.nytimes.com/2026/09/11/arts/jay-maisel-dead.html
-
-**She Ran Out of a Tunnel on 9/11. Hours Later, She Gave Birth.**\
-`Janet Kask and her son, born on Sept. 11, look back on a day of earth-shattering personal and world events.`\
-https://www.nytimes.com/2026/09/11/nyregion/september-11-baby-born.html
-
-**How Our Photographer Took This 9/11 Photo**\
-`Our photographer Chang W. Lee describes how he took the picture of the north tower of the World Trade Center collapsing on Sept. 11, 2001.`\
-https://www.nytimes.com/video/us/100000011131512/how-our-photographer-took-this-9-11-photo.html
 
