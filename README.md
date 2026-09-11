@@ -162,10 +162,6 @@ https://www.nytimes.com/2026/09/11/crosswords/strands-sidekick-923.html
 `Scroll down for hints and conversation about the puzzle for Saturday, Sept. 12, 2026.`\
 https://www.nytimes.com/2026/09/11/crosswords/wordle-review-1911.html
 
-**Elevated Inflation Keeps Pressure on Fed to Raise Rates**\
-`The odds of a quarter-point rate increase at the Federal Reserve’s meeting next week surged to 90 percent after August’s Consumer Price Index report.`\
-https://www.nytimes.com/2026/09/11/business/economy/inflation-cpi-august.html
-
 **Live Updates: 25 Years After 9/11, a Nation Gathers to Remember**\
 `Solemn ceremonies at ground zero in New York, and across the United States, are mourning the thousands of lives lost. President Trump paid tribute to the victims in a speech at the Pentagon.`\
 https://www.nytimes.com/live/2026/09/11/nyregion/9-11-anniversary-25th
