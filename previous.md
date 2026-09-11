@@ -19,7 +19,7 @@ https://www.nytimes.com/video/us/100000011147139/nation-honors-9-11-victims-on-2
 https://www.nytimes.com/es/2026/09/11/espanol/mundo/brics-cumbre-china-india.html
 
 **Colombia to Start Aerial Spraying of Coca Crops Despite Health Worries**\
-`The news comes days after Colombia’s president, Abelardo De La Espriella, and the U.S. secretary of state, Marco Rubio, discussed stronger measures against drug trafficking.`\
+`The plan — quickly challenged by a local court — came days after Colombia’s president and the U.S. secretary of state, Marco Rubio, discussed stronger measures against drug trafficking.`\
 https://www.nytimes.com/2026/09/11/world/americas/colombia-aerial-spraying-coca-crops.html
 
 **New York Marks the 25th Anniversary of 9/11 at Ground Zero**\

@@ -1,3 +1,7 @@
+**Colombia to Start Aerial Spraying of Coca Crops Despite Health Worries**\
+`The plan — quickly challenged by a local court — came days after Colombia’s president and the U.S. secretary of state, Marco Rubio, discussed stronger measures against drug trafficking.`\
+https://www.nytimes.com/2026/09/11/world/americas/colombia-aerial-spraying-coca-crops.html
+
 **Women Special Operations Veterans Remember Their Battles**\
 `The only fraternal organization for women special operations veterans held a gala to mark the wars that began 25 years ago. It came as the Pentagon questions women’s roles in the military.`\
 https://www.nytimes.com/2026/09/11/us/politics/sept-11-women-special-operations-gala.html
