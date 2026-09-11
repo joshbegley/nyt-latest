@@ -1,3 +1,7 @@
+**Women Special Operations Veterans Remember Their Battles**\
+`The only fraternal organization for women special operations veterans held a gala to mark the wars that began 25 years ago. It came as the Pentagon questions women’s roles in the military.`\
+https://www.nytimes.com/2026/09/11/us/politics/sept-11-women-special-operations-gala.html
+
 **Will Stark Warnings About AI Shape the Midterm Elections?**\
 `Stark warnings from A.I. researchers have reverberated across the country.`\
 https://www.nytimes.com/2026/09/11/us/politics/midterm-elections-trump-ai.html
@@ -18,7 +22,7 @@ https://www.nytimes.com/es/2026/09/11/espanol/mundo/brics-cumbre-china-india.htm
 `The news comes days after Colombia’s president, Abelardo De La Espriella, and the U.S. secretary of state, Marco Rubio, discussed stronger measures against drug trafficking.`\
 https://www.nytimes.com/2026/09/11/world/americas/colombia-aerial-spraying-coca-crops.html
 
-**For the 25th Time, New York Marks the Shattering Loss of 9/11**\
+**New York Marks the 25th Anniversary of 9/11 at Ground Zero**\
 `At a ceremony in Lower Manhattan, elected officials and loved ones of those killed in the 2001 terror attacks gathered in solemn remembrance.`\
 https://www.nytimes.com/2026/09/11/nyregion/9-11-anniversary-ceremony-nyc.html
 
@@ -169,10 +173,6 @@ https://www.nytimes.com/2026/09/11/nyregion/911-ceremony-speeches-nyc.html
 **At Lincoln Center, Dancers Perform a Ritual of Grief**\
 `Since 2011, the dance piece, “Table of Silence Project 9/11,” has become an annual rite of remembrance`\
 https://www.nytimes.com/2026/09/11/nyregion/911-performance-lincoln-center-nyc.html
-
-**Houthis Press On to Control Strategic Red Sea Choke Point**\
-`The Iran-backed Houthi militia has seized a strategic Red Sea island, according to two Yemeni government officials, as part of its offensive to control a crucial choke point for global trade.`\
-https://www.nytimes.com/video/world/middleeast/100000011146480/houthis-press-on-to-control-strategic-red-sea-choke-point.html
 
 **25 Years After 9/11, a Nation Gathers to Remember**\
 `Solemn ceremonies at ground zero in New York, and across the United States, mourned the thousands of lives lost. President Trump paid tribute to the victims in a speech at the Pentagon.`\
