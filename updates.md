@@ -1,3 +1,15 @@
+**Fact-Checking Trump’s Attacks on Democratic Senate Candidates**\
+`The president attacked three Democrats running for Senate this week with inaccurate claims to portray them as too extreme.`\
+https://www.nytimes.com/2026/09/11/us/politics/trump-democats-senate-races-fact-check.html
+
+**Republicans Go All In on Trump**\
+`Shane Goldmacher, one of our national political correspondents, looks at the Republican candidates who spoke this week at their party’s unusual midterm convention, called a “Trumpapalooza.” Some other vulnerable candidates avoided it because of President Trump’s unpopularity.`\
+https://www.nytimes.com/video/us/elections/100000011144041/republicans-midterm-convention-trump.html
+
+**Trump Appears to Defend Iran War During 9/11 Anniversary Speech**\
+`The president appeared to embrace the idea that after 9/11, no risk can be tolerated, an echo of reasoning used by previous American officials in the “forever wars” that he has long denounced.`\
+https://www.nytimes.com/2026/09/11/us/politics/trump-9-11-speech-iran.html
+
 **Why Kai Cenat Doesn’t Do Pay-to-Play Livestreams**\
 `The streamer Kai Cenat told “Popcast” he doesn’t take money to promote celebrities because it doesn’t feel genuine.`\
 https://www.nytimes.com/video/podcasts/100000011139796/why-kai-cenat-doesnt-do-pay-to-play-livestreams.html
