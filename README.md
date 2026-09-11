@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/100000011147285/11vid-living-ex-presidents-911.html
+
 **Nashville Says Yes to Renaming Airport for Dolly Parton**\
 `A board voted unanimously to honor the country star, philanthropist and Tennessee native. If the effort clears all hurdles, fliers will be “departin’ from Parton.”`\
 https://www.nytimes.com/2026/09/11/travel/nashville-airport-dolly-parton.html
@@ -161,10 +165,6 @@ https://www.nytimes.com/video/embedded/us/100000011146481/11vid-sept-11-blog-239
 **Houthis Seize a Key Red Sea Island, Threatening Yet Another Global Oil Route**\
 `The Iran-backed militia’s ground offensive has reached the Bab al-Mandab, a Red Sea strait that is a choke point for global trade.`\
 https://www.nytimes.com/2026/09/11/world/middleeast/yemen-houthis-bab-al-mandab.html
-
-**Bessent Takes on the Bond Vigilantes**\
-`As a rout in the bond market deepens, the pressure grows on Treasury Secretary Scott Bessent to restore calm.`\
-https://www.nytimes.com/2026/09/11/business/dealbook/bessent-bond-vigilantes.html
 
 **Live Updates: 25 Years After 9/11, a Nation Gathers to Remember**\
 `Solemn ceremonies at ground zero in New York, and across the United States, mourned the thousands of lives lost. President Trump paid tribute to the victims in a speech at the Pentagon.`\
