@@ -1,3 +1,7 @@
+**Emma Bonino, Italian Campaigner for Civil Rights, Dies at 78**\
+`In nearly five decades in politics, Ms. Bonino wielded outsize influence on Italian discourse, helping erode the political sway of the Catholic Church.`\
+https://www.nytimes.com/2026/09/11/world/europe/emma-bonino-italian-campaigner-dies.html
+
 **For a New York Governor Candidate, 9/11 Recalls a Personal Tragedy**\
 `Gov. Kathy Hochul and her Republican challenger, Bruce Blakeman, will observe the Sept. 11 anniversary at ground zero. For Mr. Blakeman, the grief will be personal.`\
 https://www.nytimes.com/2026/09/11/nyregion/blakeman-hochul-sept-11.html
@@ -6,7 +10,7 @@ https://www.nytimes.com/2026/09/11/nyregion/blakeman-hochul-sept-11.html
 `New estimates using the planet’s surface wrinkles show that our smallest planet is growing even smaller, at a faster clip than expected.`\
 https://www.nytimes.com/2026/09/11/science/space/mercury-shrinking-wrinkles.html
 
-**A Fun Run Reveals Anxieties in a Black L.A. Neighborhood**\
+**A Running Event Reveals Anxieties in Leimert Park, a Black L.A. Neighborhood**\
 `When a Latino running club tried to host an event at Leimert Park, the heart of the city’s Black community, a social media firestorm broke out.`\
 https://www.nytimes.com/2026/09/11/us/los-angeles-run-leimert-park.html
 
@@ -165,16 +169,4 @@ https://www.nytimes.com/2026/09/11/well/end-relationship-divorce-connected-goodb
 **What Years of Inflation Have Done to US Prices**\
 `Nearly every category of product costs more than it would have had prepandemic trends continued. And many product prices are still rising faster than they were before.`\
 https://www.nytimes.com/interactive/2026/09/11/business/economy/inflation-us-prices-gas-food-tariffs.html
-
-**Trump Made a Simple Argument: It’s All About Me, Me, Me**\
-`A dispatch from Dallas 2026.`\
-https://www.nytimes.com/2026/09/11/opinion/trump-convention-republicans-dallas.html
-
-**Pickles! (Live From the Minnesota State Fair)**\
-`World-class pickle experts explain how to find a great one, and how to make your own safely at home.`\
-https://www.nytimes.com/2026/09/11/us/pickles-live-from-the-minnesota-state-fair.html
-
-**Corrections: Sept. 11, 2026**\
-`Corrections that appeared in print on Friday, Sept. 11, 2026.`\
-https://www.nytimes.com/2026/09/11/pageoneplus/corrections-sept-11-2026.html
 
