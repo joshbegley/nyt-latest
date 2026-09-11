@@ -1,3 +1,11 @@
+**For the First Time, a Moment of Silence for Victims of 9/11-Related Illness**\
+`In the 25 years since the terror attacks, thousands of people have died from conditions that surfaced after their exposure to ground zero in New York.`\
+https://www.nytimes.com/2026/09/11/nyregion/911-illness-moment-of-silence.html
+
+**Flashback: Your Weekly History Quiz, Sept. 12, 2026**\
+`Can you sort 8 historical events?`\
+https://www.nytimes.com/interactive/2026/09/11/upshot/flashback.html
+
 **C.I.A. Releases Intelligence Sent to Clinton and Bush Ahead of 9/11 Attacks**\
 `The spy agency released dozens of intelligence documents it had sent to Presidents Bill Clinton and George W. Bush, outlining what was known about Al Qaeda.`\
 https://www.nytimes.com/2026/09/11/us/politics/cia-sept-11-intelligence.html
@@ -157,16 +165,4 @@ https://www.nytimes.com/2026/09/11/world/middleeast/tyre-engulfed-war-lebanon.ht
 ****\
 `Mourners at a funeral ceremony for three Lebanese Civil Defense emergency workers killed in an Israeli strike in April.`\
 https://www.nytimes.com/video/embedded/world/middleeast/100000010988623/00Lebanon-Tyre-photos-3263.html
-
-****\
-`Damage at Jabal Amel Hospital in the aftermath of Israeli strikes, in June.`\
-https://www.nytimes.com/video/embedded/world/middleeast/100000010988730/00Lebanon-Tyre-photos-44797.html
-
-**Boy, 15, Drifted for Days on an Overturned Boat Before Rescue**\
-`The teenager survived in the Bering Sea off Alaska without food or water before a fishing vessel pulled him to safety, the Coast Guard said.`\
-https://www.nytimes.com/2026/09/11/us/alaska-bering-sea-rescue-boy.html
-
-**How to End a Relationship Thoughtfully**\
-`If you’re tempted to ghost someone, try a “connected goodbye” instead.`\
-https://www.nytimes.com/2026/09/11/well/end-relationship-divorce-connected-goodbye-priya-parker.html
 
