@@ -134,13 +134,13 @@ https://www.nytimes.com/2026/09/12/crosswords/beep-beep-or-meep-meep.html
 `On “The Interview,” Naomi Klein discussed Elon Musk and a “hierarchy of humanity,” and how that approach can be countered.`\
 https://www.nytimes.com/video/podcasts/100000011141818/naomi-klein-on-elon-musks-vip-vision-of-the-future.html
 
-**Jonathan Cooper, Who Made Violins the Old-Fashioned Way, Dies at 76**\
-`Renowned for their supple tone and range, his instruments were admired by world-class musicians like Mark O’Connor and Alison Krauss.`\
-https://www.nytimes.com/2026/09/12/arts/music/jonathan-cooper-dead.html
-
 **The Earthly Beauty ‘End Times Fascists’ Are Missing**\
 `What makes life on Earth worthwhile? The authors Astra Taylor and Naomi Klein shared their views on “The Interview.”`\
 https://www.nytimes.com/video/podcasts/100000011141597/the-earthly-beauty-end-times-fascists-are-missing.html
+
+**Jonathan Cooper, Who Made Violins the Old-Fashioned Way, Dies at 76**\
+`Renowned for their supple tone and range, his instruments were admired by world-class musicians like Mark O’Connor and Alison Krauss.`\
+https://www.nytimes.com/2026/09/12/arts/music/jonathan-cooper-dead.html
 
 **Naomi Klein on Tech Billionaires: ‘The Money Is Making Them Fascist’**\
 `Why did so many wealthy business leaders align themselves with President Trump in his second term? Naomi Klein discussed their possible motivations on “The Interview.”`\
