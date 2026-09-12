@@ -1,3 +1,7 @@
+**Death Toll From Ferry Fire in the Philippines Rises to 76**\
+`Rescuers were still searching for victims days after a fire broke out on the June Aster en route to a popular tourist site. At least 43 people survived.`\
+https://www.nytimes.com/2026/09/12/world/asia/death-toll-from-ferry-fire-in-the-philippines-rises-to-76.html
+
 **Anthropic C.E.O. Dario Amodei Calls for A.I. Slowdown**\
 `In a 3,800-word essay, Dario Amodei laid out the rapidly advancing capabilities of artificial intelligence and said there needed to be greater safety controls across the industry.`\
 https://www.nytimes.com/2026/09/12/technology/anthropic-dario-amodei-ai-slowdown.html
