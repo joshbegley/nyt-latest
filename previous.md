@@ -1,3 +1,7 @@
+**Calvin Klein Strips Down**\
+`In her third collection, Veronica Leoni tries to reclaim the minimalist crown.`\
+https://www.nytimes.com/2026/09/12/style/calvin-klein-show-nyfw.html
+
 **In Flood-Stricken Nepal, a Cool Gust Carries Hopes of a Miracle Rescue**\
 `Rescuers clawing through a hydropower tunnel clogged with mud, water and rock have found a pocket of air near where six workers are believed to be trapped.`\
 https://www.nytimes.com/2026/09/12/world/asia/nepal-floods-himalayas-hydropower-tunnel.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/12/world/americas/us-brazil-crime-police-visas-i
 **Best Friends and a $15 Concert: An N.Y.C. Rite of Passage**\
 `With Music Hall of Williamsburg ending its run this year, a cartoonist and recent arrival to the city recalls the blissfully buzzed shows she saw there and elsewhere for the price of a matcha.`\
 https://www.nytimes.com/2026/09/12/arts/music/music-hall-williamsburg-nyc-venues.html
-
-**Meet the Seamstress Most Trusted by Top Bridal Designers**\
-`For more than 30 years, Blanca Zhuzhingo has worked with top bridal designers like Vera Wang and Carolina Herrera. Now, as one of New York’s go-to alterations specialists, she’s busier than ever.`\
-https://www.nytimes.com/2026/09/12/style/seamstress-wedding-dresses.html
 

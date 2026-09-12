@@ -1,3 +1,7 @@
+**Calvin Klein Strips Down**\
+`In her third collection, Veronica Leoni tries to reclaim the minimalist crown.`\
+https://www.nytimes.com/2026/09/12/style/calvin-klein-show-nyfw.html
+
 **In Flood-Stricken Nepal, a Cool Gust Carries Hopes of a Miracle Rescue**\
 `Rescuers clawing through a hydropower tunnel clogged with mud, water and rock have found a pocket of air near where six workers are believed to be trapped.`\
 https://www.nytimes.com/2026/09/12/world/asia/nepal-floods-himalayas-hydropower-tunnel.html
