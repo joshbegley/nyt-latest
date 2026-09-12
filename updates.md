@@ -1,3 +1,7 @@
+**Capers**\
+`Adam Wagner and Michael Lieberman put together a themeless puzzle full of conundrums and connections.`\
+https://www.nytimes.com/2026/09/11/crosswords/daily-puzzle-2026-09-12.html
+
 **Trump Wanted a New House Map in Missouri. Voters Got Chaos Instead.**\
 `The legal wrangling over a congressional map redrawn by Republicans has election officials, candidates and voters scrambling before November.`\
 https://www.nytimes.com/2026/09/11/us/missouri-congressional-redistricting-chaos.html
