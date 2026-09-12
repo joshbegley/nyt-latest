@@ -1,5 +1,9 @@
+**Leaders of Russia, India and China Gather for BRICS Summit**\
+`The leaders of Russia, India, China and other nations met in New Delhi for this weekend’s BRICS summit. The coalition of nations was conceived as a counterweight to the West.`\
+https://www.nytimes.com/video/world/asia/100000011148825/brics-summit-china-india-russia-iran.html
+
 **Trump Says Irish Unification Would Be ‘Fantastic’**\
-`Breaking with decades of U.S. neutrality on the issue, President Trump said Saturday that it would be “fantastic” if Ireland unified. The U.S. brokered and has long supported the 1998 Belfast Agreement, also known as the Good Friday Agreement, which brought a fragile peace that ended about three decades of violence.`\
+`Breaking with decades of U.S. neutrality on the issue, President Trump said Saturday that it would be “fantastic” if Ireland unified.`\
 https://www.nytimes.com/video/us/politics/100000011148830/trump-ireland-unification-politics-europe.html
 
 **Trump Demands Smithsonian Install ‘Colossus’ George Washington Statue**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/12/pageoneplus/corrections-sept-12-2026.html
 **Inside the Discussions at AI Companies Over a Superintelligence Doomsday**\
 `Researchers at Anthropic, OpenAI, Meta and Google are increasingly trying to raise awareness about the risks of artificial intelligence.`\
 https://www.nytimes.com/2026/09/12/technology/doomsday-discussions-ai-companies.html
-
-**‘We Left in the Clothes We Were Wearing’: Yemenis Flee New Fighting**\
-`Hunger and disease have tormented Yemen for years. Now, fighting between the Saudi-backed government and Iran-backed Houthis is pushing it to the brink.`\
-https://www.nytimes.com/2026/09/12/world/middleeast/yemen-iran-war-houthis.html
 

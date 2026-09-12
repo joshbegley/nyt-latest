@@ -1,3 +1,11 @@
+**Leaders of Russia, India and China Gather for BRICS Summit**\
+`The leaders of Russia, India, China and other nations met in New Delhi for this weekend’s BRICS summit. The coalition of nations was conceived as a counterweight to the West.`\
+https://www.nytimes.com/video/world/asia/100000011148825/brics-summit-china-india-russia-iran.html
+
+**Trump Says Irish Unification Would Be ‘Fantastic’**\
+`Breaking with decades of U.S. neutrality on the issue, President Trump said Saturday that it would be “fantastic” if Ireland unified.`\
+https://www.nytimes.com/video/us/politics/100000011148830/trump-ireland-unification-politics-europe.html
+
 **Trump Says Irish Unification Would Be ‘Fantastic’**\
 `Breaking with decades of U.S. neutrality on the issue, President Trump said Saturday that it would be “fantastic” if Ireland unified. The U.S. brokered and has long supported the 1998 Belfast Agreement, also known as the Good Friday Agreement, which brought a fragile peace that ended about three decades of violence.`\
 https://www.nytimes.com/video/us/politics/100000011148830/trump-ireland-unification-politics-europe.html
