@@ -1,3 +1,7 @@
+**F1: el piloto español Carlos Sainz correrá el Gran Premio en Madrid**\
+`Sainz nació en Madrid y siempre había deseado un Gran Premio allí. Ocurrirá el domingo.`\
+https://www.nytimes.com/es/2026/09/12/espanol/deportes/formula-1-madrid-carlos-sainz-gp.html
+
 **As Oil Prices Rise, BRICS Leaders Have What U.S. Doesn’t: Iran at the Table**\
 `Even so, finding unity among the loose grouping of emerging economies will be difficult as the war in the Middle East strains their own interests.`\
 https://www.nytimes.com/2026/09/12/world/asia/brics-summit-china-india-russia-iran.html
