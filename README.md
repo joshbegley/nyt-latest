@@ -34,7 +34,7 @@ https://www.nytimes.com/video/style/100000011132036/the-most-anticipated-debut-a
 `Iran and its allies now hold sway over two key oil shipping routes, and Tehran is setting the stage for a diplomatic win that could enhance its stature.`\
 https://www.nytimes.com/2026/09/12/world/middleeast/iran-escalation-leverage-houthis-strait.html
 
-**The Trump Show Must Go On**\
+**The Cult of Trump Is Waning**\
 `The president has a very simple strategy for the midterms.`\
 https://www.nytimes.com/2026/09/12/opinion/trump-republican-convention-midterms.html
 
@@ -86,7 +86,7 @@ https://www.nytimes.com/2026/09/12/opinion/trump-sudan-genocide.html
 `The president incubated the career of one of his greatest critics.`\
 https://www.nytimes.com/2026/09/12/opinion/jon-ossoff-georgia-trump-election.html
 
-**A.I. Was Supposed to Give Us New Killer Apps. What Happened?**\
+**A.I. Slopware Is Everywhere Now. Nobody Is Using It.**\
 `Just because A.I. is revolutionizing coding, doesn’t mean it will automatically revolutionize our apps.`\
 https://www.nytimes.com/2026/09/12/opinion/ai-software-coding-apps.html
 
