@@ -1,3 +1,11 @@
+**Trump Is ‘Repatrimonializing’ Government**\
+`President Trump is known for appointing friends and family to his administration — including his son-in-law Jared Kushner and his friend Steve Witkoff. On “The Ezra Klein Show,” the political scientist Francis Fukuyama gives a longer history of Trump’s nepotism and explains how he is “repatrimonializing” the government.`\
+https://www.nytimes.com/video/opinion/100000011143295/trump-is-repatrimonializing-government.html
+
+**Liberalism and Its Discontents**\
+`If liberal democracy is the pinnacle of political systems, as the political scientist Francis Fukuyama argued in his 1992 book, “The End of History and the Last Man,” then how do you explain the rise of populism in recent years? On “The Ezra Klein Show,” Fukuyama reflects on these resurgences, including the Jan. 6 riot at the Capitol, and what that might reveal about the human psyche.`\
+https://www.nytimes.com/video/opinion/100000011143294/liberalism-and-its-discontents.html
+
 **Trump’s ‘Profound Political Malpractice’**\
 `President Trump’s unpopularity is a threat to Republican candidates across the country. But that’s not stopping him from promising $5,000 checks to voters and telling them to pretend he’s on the ballot. The Opinion columnist Jamelle Bouie argues that these efforts to woo infrequent voters are not only harmful to the party but also “profound political malpractice.”`\
 https://www.nytimes.com/video/opinion/100000011126651/trumps-profound-political-malpractice.html
