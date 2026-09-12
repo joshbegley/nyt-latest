@@ -1,3 +1,11 @@
+**‘Woman Unknown’ Takes Top Prize at Venice Film Festival**\
+`The film, a drama directed by May el-Toukhy, follows a Danish servant in the uneasy years after World War II. Lee Chang-dong’s “Possible Love” won the runner-up award.`\
+https://www.nytimes.com/2026/09/12/movies/venice-film-festival-golden-lion-woman-unknown.html
+
+**Thinking Inside the Box**\
+`Henry Lin-David and Frank S. David’s Sunday puzzle might have you climbing the walls.`\
+https://www.nytimes.com/2026/09/12/crosswords/daily-puzzle-2026-09-13.html
+
 **Leaders of Russia, India and China Gather for BRICS Summit**\
 `The leaders of Russia, India, China and other nations met in New Delhi for this weekend’s BRICS summit. The coalition of nations was conceived as a counterweight to the West.`\
 https://www.nytimes.com/video/world/asia/100000011148825/brics-summit-china-india-russia-iran.html
