@@ -1,3 +1,27 @@
+**Why Mokha, Historic Port That Shaped the Coffee Trade, Is a Prize in Yemen’s War**\
+`A strategic location on the Red Sea afforded the city centuries of trading dominance — and makes it a coveted target in today’s fighting in the Middle East.`\
+https://www.nytimes.com/2026/09/12/world/middleeast/mokha-yemen-houthis-mocha-coffee.html
+
+**My Friend Pocketed the Money From Our Charity Event. What Should I Do?**\
+`We trusted him to donate the money after the fact. He never did.`\
+https://www.nytimes.com/2026/09/12/magazine/friend-charity-fraud-ethics.html
+
+**Why Carney Isn’t Rushing Back to the Negotiating Table**\
+`Canadians back his tough stance on trade with the U.S. An expert says that support gives him little incentive to reopen talks soon.`\
+https://www.nytimes.com/2026/09/12/world/canada/us-canada-trade-war-carney-trump.html
+
+**NYT Connections Answers for September 13, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Sept. 13, 2026.`\
+https://www.nytimes.com/2026/09/12/crosswords/connections-companion-1190.html
+
+**NYT Strands Hints for September 13, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Sept. 13, 2026.`\
+https://www.nytimes.com/2026/09/12/crosswords/strands-sidekick-924.html
+
+**Today’s Wordle Hints for September 13, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Sept. 13, 2026.`\
+https://www.nytimes.com/2026/09/12/crosswords/wordle-review-1912.html
+
 **Atlantic Hurricane Season Hasn’t Recorded a Single Hurricane This Year**\
 `There hasn’t been a single one yet.`\
 https://www.nytimes.com/2026/09/12/weather/atlantic-hurricane-season-latest-record.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/video/world/europe/100000011148635/trump-irish-open-irel
 **El matemático atrapado entre OpenAI y Anthropic por un problema matemático**\
 `Tristan Buckmaster iba camino de lograr una demostración importante cuando uno de los gigantes de la inteligencia artificial usó sus asombrosos recursos para llegar primero.`\
 https://www.nytimes.com/es/2026/09/12/espanol/ciencia-y-tecnologia/tristan-buckmaster-openai-anthropic-nyu.html
-
-**They Fought the Battle of Brooklyn, After a Bus Ride From New Jersey**\
-`As the nation celebrates its 250th anniversary, a group of Revolutionary War devotees invited a reporter to re-enact the Battle of Brooklyn.`\
-https://www.nytimes.com/2026/09/12/nyregion/battle-reenactment-brooklyn-250.html
-
-**Manhattan Bus Lane Plan for 34th Street May Be Stuck in Gridlock**\
-`Months after Mayor Zohran Mamdani said the city would proceed with a redesign of 34th Street that had been halted by the Trump administration, the plan is no closer to completion.`\
-https://www.nytimes.com/2026/09/12/nyregion/mamdani-bus-lane-34th-manhattan.html
-
-**NYT Spelling Bee Answers for September 12, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/09/12/crosswords/spelling-bee-forum.html
-
-**F1: el piloto español Carlos Sainz correrá el Gran Premio en Madrid**\
-`Sainz nació en Madrid y siempre había deseado un Gran Premio allí. Ocurrirá el domingo.`\
-https://www.nytimes.com/es/2026/09/12/espanol/deportes/formula-1-madrid-carlos-sainz-gp.html
-
-**As Oil Prices Rise, BRICS Leaders Have What U.S. Doesn’t: Iran at the Table**\
-`Even so, finding unity among the loose grouping of emerging economies will be difficult as the war in the Middle East strains their own interests.`\
-https://www.nytimes.com/2026/09/12/world/asia/brics-summit-china-india-russia-iran.html
-
-**India Wants to Buy Fewer Chinese Imports, but Keeps Needing More**\
-`Trade between India and China has nearly doubled in five years, leaving New Delhi with a widening deficit and a difficult choice over how to build its industrial future.`\
-https://www.nytimes.com/2026/09/12/business/india-china-trade.html
 
