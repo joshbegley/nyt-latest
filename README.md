@@ -1,3 +1,31 @@
+**10 Songs We’re Talking About**\
+`Tinashe tears herself away, Sylvan Esso faces down chaos, the War on Drugs sings through an identity crisis, and more.`\
+https://www.nytimes.com/2026/09/12/arts/music/tinashe-sylvan-esso-rod-wave-playlist.html
+
+**4 horas con Elon Musk ¿Es demasiado?**\
+`Gran parte de lo que presenta el documental de Alex Gibney no es nuevo. Pero al unirlo todo, quiere que el espectador tome a Musk en serio como una amenaza para la democracia.`\
+https://www.nytimes.com/es/2026/09/12/espanol/cultura/elon-musk-documental-dura-4-horas.html
+
+**Preferíamos separarnos que bajar la guardia**\
+`Había aprendido que las relaciones son como bombas de tiempo: tienes que desactivarlas o te explotan en la cara.`\
+https://www.nytimes.com/es/2026/09/12/espanol/estilos-de-vida/modern-love-separacion-boda-griega.html
+
+**Inflation Complicates Trump’s Midterms Pitch to Voters**\
+`Gas prices are high, mortgage rates are climbing and inflation remains well above target, complicating the president’s midterm appeal.`\
+https://www.nytimes.com/2026/09/12/us/politics/trump-inflation-midterms.html
+
+**Cómo terminar bien una relación**\
+`Una serie de estudios descubrió que darle un buen fin a una relación resulta en menos arrepentimientos y transiciones de vida más fáciles. Te decimos cómo lograr una “despedida conectada”.`\
+https://www.nytimes.com/es/2026/09/12/espanol/adios-relacion-despedida.html
+
+**Reseña de ‘Hechizo de amor: La magia continúa’**\
+`Sandra Bullock y Nicole Kidman retoman los personajes de la película de culto de 1998 para romper por fin su maldición.`\
+https://www.nytimes.com/es/2026/09/12/espanol/cultura/hechizo-amor-practical-magic-2-resena-critica.html
+
+**Corrections: Sept. 12, 2026**\
+`Corrections that appeared in print on Saturday, Sept. 12, 2026.`\
+https://www.nytimes.com/2026/09/12/pageoneplus/corrections-sept-12-2026.html
+
 **Inside the Discussions at AI Companies Over a Superintelligence Doomsday**\
 `Researchers at Anthropic, OpenAI, Meta and Google are increasingly trying to raise awareness about the risks of artificial intelligence.`\
 https://www.nytimes.com/2026/09/12/technology/doomsday-discussions-ai-companies.html
@@ -169,32 +197,4 @@ https://www.nytimes.com/2026/09/12/world/africa/jean-kaseya-africa-cdc.html
 **On This Day | Sept. 12: The S.S. Central America sank in a hurricane.**\
 `In 1857, the S.S. Central America, later known as the “Ship of Gold,” sank in a hurricane while carrying passengers and California gold, killing hundreds and helping intensify the Panic of 1857.`\
 https://www.nytimes.com/2026/09/12/learning/on-this-day-sept-12.html
-
-**Capers**\
-`Adam Wagner and Michael Lieberman put together a themeless puzzle full of conundrums and connections.`\
-https://www.nytimes.com/2026/09/11/crosswords/daily-puzzle-2026-09-12.html
-
-**Colombia y la aspersión aérea de coca: juzgado suspende plan piloto**\
-`El plan piloto —que fue rápidamente impugnado por un juzgado de Putumayo— se dio a conocer días después de que el presidente de Colombia y el secretario de Estado estadounidense hablaran de medidas más enérgicas contra el narcotráfico.`\
-https://www.nytimes.com/es/2026/09/11/espanol/colombia-coca-aspersion-aerea-piloto-putumayo.html
-
-**Federal Judge Poised to Dismiss Lawsuit Challenging Trump’s Library**\
-`The judge, in halting the pretrial fact-finding process, said President Trump’s claim of immunity could “dispose of the entire case” involving the library to be built in Miami.`\
-https://www.nytimes.com/2026/09/11/us/politics/trump-library-legal-action.html
-
-**Lil Durk Is Found Not Guilty in Murder-for-Hire Case**\
-`The rapper had been accused of orchestrating a plot to kill a rival in an ambush that resulted in the death of another man.`\
-https://www.nytimes.com/2026/09/11/arts/music/lil-durk-acquitted-murder-for-hire.html
-
-**Trump Heads to Ireland for the Irish Open at His Golf Course**\
-`President Trump’s trip comes after a two-day Republican rally in Dallas, where he tried to energize voters amid fears that the party could face losses in the midterms.`\
-https://www.nytimes.com/2026/09/11/us/politics/trump-ireland-irish-open.html
-
-**Trump Is ‘Repatrimonializing’ Government**\
-`President Trump is known for appointing friends and family to his administration — including his son-in-law Jared Kushner and his friend Steve Witkoff. On “The Ezra Klein Show,” the political scientist Francis Fukuyama gives a longer history of Trump’s nepotism and explains how he is “repatrimonializing” the government.`\
-https://www.nytimes.com/video/opinion/100000011143295/trump-is-repatrimonializing-government.html
-
-**Liberalism and Its Discontents**\
-`If liberal democracy is the pinnacle of political systems, as the political scientist Francis Fukuyama argued in his 1992 book, “The End of History and the Last Man,” then how do you explain the rise of populism in recent years? On “The Ezra Klein Show,” Fukuyama reflects on these resurgences, including the Jan. 6 riot at the Capitol, and what that might reveal about the human psyche.`\
-https://www.nytimes.com/video/opinion/100000011143294/liberalism-and-its-discontents.html
 
