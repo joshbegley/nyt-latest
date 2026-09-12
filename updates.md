@@ -1,3 +1,7 @@
+**Trump Demands Smithsonian Install ‘Colossus’ George Washington Statue**\
+`The president’s latest attack on the National Museum of American History reflects his longstanding desire for “patriotic” history.`\
+https://www.nytimes.com/2026/09/12/arts/design/trump-smithsonian-washington-statue.html
+
 **Tyla and Other Stars Cancel Concerts Amid Anti-Immigrant Backlash**\
 `As anti-immigrant sentiment and vigilante violence fuel outrage across the continent, some fans abroad are rejecting South African performers.`\
 https://www.nytimes.com/2026/09/12/world/africa/tyla-south-africa-concert-nigeria-immigration.html
