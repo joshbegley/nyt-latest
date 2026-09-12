@@ -1,3 +1,7 @@
+**How The Times Covers ‘60 Minutes’ and Other Journalists**\
+`Journalists don’t want to become the story. But newsrooms — and the people who run them — are the story for Times media reporters.`\
+https://www.nytimes.com/2026/09/12/insider/60-minutes-former-nyt-colleagues-media.html
+
 **Ohio Republican in Key Senate Race Fires Campaign Aide, Citing Social Media Photo of Nazis**\
 `Senator Jon Husted dismissed his political director because of activity displaying a “complete lack” of judgment, according to a spokeswoman.`\
 https://www.nytimes.com/2026/09/12/us/politics/husted-political-director-nazi-photo.html
@@ -30,7 +34,7 @@ https://www.nytimes.com/video/style/100000011132036/the-most-anticipated-debut-a
 `Iran and its allies now hold sway over two key oil shipping routes, and Tehran is setting the stage for a diplomatic win that could enhance its stature.`\
 https://www.nytimes.com/2026/09/12/world/middleeast/iran-escalation-leverage-houthis-strait.html
 
-**The Trump Show Must Go On**\
+**The Cult of Trump Is Waning**\
 `The president has a very simple strategy for the midterms.`\
 https://www.nytimes.com/2026/09/12/opinion/trump-republican-convention-midterms.html
 
@@ -82,7 +86,7 @@ https://www.nytimes.com/2026/09/12/opinion/trump-sudan-genocide.html
 `The president incubated the career of one of his greatest critics.`\
 https://www.nytimes.com/2026/09/12/opinion/jon-ossoff-georgia-trump-election.html
 
-**A.I. Was Supposed to Give Us New Killer Apps. What Happened?**\
+**A.I. Slopware Is Everywhere Now. Nobody Is Using It.**\
 `Just because A.I. is revolutionizing coding, doesn’t mean it will automatically revolutionize our apps.`\
 https://www.nytimes.com/2026/09/12/opinion/ai-software-coding-apps.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/12/crosswords/beep-beep-or-meep-meep.html
 **Naomi Klein on Elon Musk’s ‘V.I.P.’ Vision of the Future**\
 `On “The Interview,” Naomi Klein discussed Elon Musk and a “hierarchy of humanity,” and how that approach can be countered.`\
 https://www.nytimes.com/video/podcasts/100000011141818/naomi-klein-on-elon-musks-vip-vision-of-the-future.html
-
-**The Earthly Beauty ‘End Times Fascists’ Are Missing**\
-`What makes life on Earth worthwhile? The authors Astra Taylor and Naomi Klein shared their views on “The Interview.”`\
-https://www.nytimes.com/video/podcasts/100000011141597/the-earthly-beauty-end-times-fascists-are-missing.html
 
