@@ -2,8 +2,8 @@
 `Journalists don’t want to become the story. But newsrooms — and the people who run them — are the story for Times media reporters.`\
 https://www.nytimes.com/2026/09/12/insider/60-minutes-former-nyt-colleagues-media.html
 
-**Ohio Republican in Key Senate Race Fires Campaign Aide, Citing Social Media Photo of Nazis**\
-`Senator Jon Husted dismissed his political director because of activity displaying a “complete lack” of judgment, according to a spokeswoman.`\
+**Republican Campaign Aide Is Fired Over Nazi Photo**\
+`Senator Jon Husted, running in a high-stakes race in Ohio, dismissed his political director because of social media activity displaying a “complete lack” of judgment, a spokeswoman said.`\
 https://www.nytimes.com/2026/09/12/us/politics/husted-political-director-nazi-photo.html
 
 **Risks for Clicks: Why Online Influencers Push Shock Content**\
