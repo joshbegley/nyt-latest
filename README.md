@@ -1,3 +1,7 @@
+**StarCraft Is Returning, but as an Open-World Shooter**\
+`The influential franchise is moving away from the real-time strategy genre with a game that’s directed by a veteran of the Far Cry series.`\
+https://www.nytimes.com/2026/09/12/arts/starcraft-shooter-blizzard.html
+
 **How The Times Covers ‘60 Minutes’ and Other Journalists**\
 `Journalists don’t want to become the story. But newsrooms — and the people who run them — are the story for Times media reporters.`\
 https://www.nytimes.com/2026/09/12/insider/60-minutes-former-nyt-colleagues-media.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/podcasts/100000011142789/naomi-klein-and-astra-tay
 **Does the Road Runner Say ‘Beep, Beep’ or ‘Meep, Meep’? Audiences Can’t Agree**\
 `Does the Road Runner say “beep, beep” or “meep, meep”?`\
 https://www.nytimes.com/2026/09/12/crosswords/beep-beep-or-meep-meep.html
-
-**Naomi Klein on Elon Musk’s ‘V.I.P.’ Vision of the Future**\
-`On “The Interview,” Naomi Klein discussed Elon Musk and a “hierarchy of humanity,” and how that approach can be countered.`\
-https://www.nytimes.com/video/podcasts/100000011141818/naomi-klein-on-elon-musks-vip-vision-of-the-future.html
 

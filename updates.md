@@ -1,3 +1,7 @@
+**Republican Campaign Aide Is Fired Over Nazi Photo**\
+`Senator Jon Husted, running in a high-stakes race in Ohio, dismissed his political director because of social media activity displaying a “complete lack” of judgment, a spokeswoman said.`\
+https://www.nytimes.com/2026/09/12/us/politics/husted-political-director-nazi-photo.html
+
 **How The Times Covers ‘60 Minutes’ and Other Journalists**\
 `Journalists don’t want to become the story. But newsrooms — and the people who run them — are the story for Times media reporters.`\
 https://www.nytimes.com/2026/09/12/insider/60-minutes-former-nyt-colleagues-media.html
