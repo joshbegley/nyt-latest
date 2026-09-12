@@ -14,7 +14,7 @@ https://www.nytimes.com/2026/09/12/opinion/trump-insecure-5000-payments-midterms
 `We know how to stop the atrocities in Sudan. There’s just too little interest in doing so.`\
 https://www.nytimes.com/2026/09/12/opinion/trump-sudan-genocide.html
 
-**Trump Is Worried About Jon Ossoff’s Rise. He Has Only Himself to Blame.**\
+**Trump Catastrophically Miscalculated in Georgia**\
 `The president incubated the career of one of his greatest critics.`\
 https://www.nytimes.com/2026/09/12/opinion/jon-ossoff-georgia-trump-election.html
 
