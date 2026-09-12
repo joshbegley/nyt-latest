@@ -1,3 +1,7 @@
+**Trump Catastrophically Miscalculated in Georgia**\
+`The president incubated the career of one of his greatest critics.`\
+https://www.nytimes.com/2026/09/12/opinion/jon-ossoff-georgia-trump-election.html
+
 **Why Tech Oligarchs Are Willing to Risk Apocalypse**\
 `Silicon Valley’s strange new theology.`\
 https://www.nytimes.com/2026/09/12/opinion/ai-tech-apocalypse-silicon-valley.html
