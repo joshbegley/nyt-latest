@@ -1,3 +1,11 @@
+**After the I.P.O., a Billion-Dollar Bill for Employee Paydays**\
+`A compensation strategy at start-ups keeps expenses low until they go public. At that point, the companies may face billions of dollars in catch-up expenses.`\
+https://www.nytimes.com/2026/09/12/business/dealbook/double-trigger-rsus.html
+
+**His Act Is Getting Old**\
+`The $5,000 election promise shows how afraid Trump really is.`\
+https://www.nytimes.com/2026/09/12/opinion/trump-insecure-5000-payments-midterms.html
+
 **Trump Catastrophically Miscalculated in Georgia**\
 `The president incubated the career of one of his greatest critics.`\
 https://www.nytimes.com/2026/09/12/opinion/jon-ossoff-georgia-trump-election.html
