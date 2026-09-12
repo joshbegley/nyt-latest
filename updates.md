@@ -1,3 +1,31 @@
+**10 Songs We’re Talking About**\
+`Tinashe tears herself away, Sylvan Esso faces down chaos, the War on Drugs sings through an identity crisis, and more.`\
+https://www.nytimes.com/2026/09/12/arts/music/tinashe-sylvan-esso-rod-wave-playlist.html
+
+**4 horas con Elon Musk ¿Es demasiado?**\
+`Gran parte de lo que presenta el documental de Alex Gibney no es nuevo. Pero al unirlo todo, quiere que el espectador tome a Musk en serio como una amenaza para la democracia.`\
+https://www.nytimes.com/es/2026/09/12/espanol/cultura/elon-musk-documental-dura-4-horas.html
+
+**Preferíamos separarnos que bajar la guardia**\
+`Había aprendido que las relaciones son como bombas de tiempo: tienes que desactivarlas o te explotan en la cara.`\
+https://www.nytimes.com/es/2026/09/12/espanol/estilos-de-vida/modern-love-separacion-boda-griega.html
+
+**Inflation Complicates Trump’s Midterms Pitch to Voters**\
+`Gas prices are high, mortgage rates are climbing and inflation remains well above target, complicating the president’s midterm appeal.`\
+https://www.nytimes.com/2026/09/12/us/politics/trump-inflation-midterms.html
+
+**Cómo terminar bien una relación**\
+`Una serie de estudios descubrió que darle un buen fin a una relación resulta en menos arrepentimientos y transiciones de vida más fáciles. Te decimos cómo lograr una “despedida conectada”.`\
+https://www.nytimes.com/es/2026/09/12/espanol/adios-relacion-despedida.html
+
+**Reseña de ‘Hechizo de amor: La magia continúa’**\
+`Sandra Bullock y Nicole Kidman retoman los personajes de la película de culto de 1998 para romper por fin su maldición.`\
+https://www.nytimes.com/es/2026/09/12/espanol/cultura/hechizo-amor-practical-magic-2-resena-critica.html
+
+**Corrections: Sept. 12, 2026**\
+`Corrections that appeared in print on Saturday, Sept. 12, 2026.`\
+https://www.nytimes.com/2026/09/12/pageoneplus/corrections-sept-12-2026.html
+
 **Inside the Discussions at AI Companies Over a Superintelligence Doomsday**\
 `Researchers at Anthropic, OpenAI, Meta and Google are increasingly trying to raise awareness about the risks of artificial intelligence.`\
 https://www.nytimes.com/2026/09/12/technology/doomsday-discussions-ai-companies.html

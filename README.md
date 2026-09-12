@@ -1,3 +1,11 @@
+**EE. UU. y Brasil colaboran en la lucha contra la delincuencia. Una disputa diplomática pone en peligro esa operación**\
+`Algunos funcionarios afirman que el gobierno de Trump está obstaculizando algunas de las iniciativas de Brasil para ampliar la cooperación en la lucha contra la delincuencia transnacional.`\
+https://www.nytimes.com/es/2026/09/12/espanol/mundo/brasil-estados-unidos-trump-bolsonaro.html
+
+**Walk This Way**\
+`Are there everyday activities that you can turn into a walk?`\
+https://www.nytimes.com/2026/09/12/briefing/walk-this-way.html
+
 **10 Songs We’re Talking About**\
 `Tinashe tears herself away, Sylvan Esso faces down chaos, the War on Drugs sings through an identity crisis, and more.`\
 https://www.nytimes.com/2026/09/12/arts/music/tinashe-sylvan-esso-rod-wave-playlist.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/12/pageoneplus/quote-of-the-day-25-years-after-t
 **In Doonbeg, Trump’s Irish Open Visit Prompts Protests and Praise**\
 `As the U.S. president heads to his Doonbeg hotel for the Irish Open, locals expressed both appreciation for the resort’s economic benefits and opposition to his politics.`\
 https://www.nytimes.com/2026/09/12/world/europe/trump-irish-open-ireland-doonbeg.html
-
-**The Doctor Pressuring African Leaders to Own the Ebola Response**\
-`International agencies and foreign donors have long driven campaigns to defeat diseases like Ebola. Dr. Jean Kaseya, the head of the Africa C.D.C., wants to change that.`\
-https://www.nytimes.com/2026/09/12/world/africa/jean-kaseya-africa-cdc.html
-
-**On This Day | Sept. 12: The S.S. Central America sank in a hurricane.**\
-`In 1857, the S.S. Central America, later known as the “Ship of Gold,” sank in a hurricane while carrying passengers and California gold, killing hundreds and helping intensify the Panic of 1857.`\
-https://www.nytimes.com/2026/09/12/learning/on-this-day-sept-12.html
 
