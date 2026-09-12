@@ -1,3 +1,7 @@
+**Lil Durk Is Found Not Guilty in Murder-for-Hire Case**\
+`The rapper had been accused of orchestrating a plot to kill a rival in an ambush that resulted in the death of another man.`\
+https://www.nytimes.com/2026/09/11/arts/music/lil-durk-acquitted-murder-for-hire.html
+
 **Trump Heads to Ireland for the Irish Open at His Golf Course**\
 `President Trump’s trip comes after a two-day Republican rally in Dallas, where he tried to energize voters amid fears that the party could face losses in the midterms.`\
 https://www.nytimes.com/2026/09/11/us/politics/trump-ireland-irish-open.html
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/09/11/us/afghan-woman-deported-terrorism-court.html
 **Who Is Ahead in California's 34th Congressional District?**\
 `Track the latest polls in California's 34th Congressional District.`\
 https://www.nytimes.com/interactive/polls/california-us-house-34-polls-2026.html
-
-**The Best Chanel Money Can’t Buy**\
-`Plus: Those Celine Reeboks and a new home for a beloved vintage shop.`\
-https://www.nytimes.com/2026/09/11/style/chanel-new-york-fashion-week.html
 
 **25 Years After 9/11, a Nation Gathers to Remember**\
 `Solemn ceremonies at ground zero in New York, and across the United States, mourned the thousands of lives lost. President Trump paid tribute to the victims in a speech at the Pentagon.`\

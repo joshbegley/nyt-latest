@@ -1,3 +1,7 @@
+**Trump Heads to Ireland for the Irish Open at His Golf Course**\
+`President Trump’s trip comes after a two-day Republican rally in Dallas, where he tried to energize voters amid fears that the party could face losses in the midterms.`\
+https://www.nytimes.com/2026/09/11/us/politics/trump-ireland-irish-open.html
+
 **Trump Is ‘Repatrimonializing’ Government**\
 `President Trump is known for appointing friends and family to his administration — including his son-in-law Jared Kushner and his friend Steve Witkoff. On “The Ezra Klein Show,” the political scientist Francis Fukuyama gives a longer history of Trump’s nepotism and explains how he is “repatrimonializing” the government.`\
 https://www.nytimes.com/video/opinion/100000011143295/trump-is-repatrimonializing-government.html

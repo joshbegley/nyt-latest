@@ -1,3 +1,7 @@
+**Trump Heads to Ireland for the Irish Open at His Golf Course**\
+`President Trump’s trip comes after a two-day Republican rally in Dallas, where he tried to energize voters amid fears that the party could face losses in the midterms.`\
+https://www.nytimes.com/2026/09/11/us/politics/trump-ireland-irish-open.html
+
 **Trump Is ‘Repatrimonializing’ Government**\
 `President Trump is known for appointing friends and family to his administration — including his son-in-law Jared Kushner and his friend Steve Witkoff. On “The Ezra Klein Show,” the political scientist Francis Fukuyama gives a longer history of Trump’s nepotism and explains how he is “repatrimonializing” the government.`\
 https://www.nytimes.com/video/opinion/100000011143295/trump-is-repatrimonializing-government.html
@@ -173,10 +177,6 @@ https://www.nytimes.com/interactive/polls/california-us-house-34-polls-2026.html
 **The Best Chanel Money Can’t Buy**\
 `Plus: Those Celine Reeboks and a new home for a beloved vintage shop.`\
 https://www.nytimes.com/2026/09/11/style/chanel-new-york-fashion-week.html
-
-**8 in 10 Americans Say They’re Taking Supplements. Do They Have Benefits?**\
-`A new survey found that 8 in 10 Americans were taking vitamins, protein powders or other supplements. But experts said there is little evidence for many of these products.`\
-https://www.nytimes.com/2026/09/11/well/eat/dietary-supplements-survey-findings.html
 
 **25 Years After 9/11, a Nation Gathers to Remember**\
 `Solemn ceremonies at ground zero in New York, and across the United States, mourned the thousands of lives lost. President Trump paid tribute to the victims in a speech at the Pentagon.`\
