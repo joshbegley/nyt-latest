@@ -1,3 +1,19 @@
+**El matemático atrapado entre OpenAI y Anthropic por un problema matemático**\
+`Tristan Buckmaster iba camino de lograr una demostración importante cuando uno de los gigantes de la inteligencia artificial usó sus asombrosos recursos para llegar primero.`\
+https://www.nytimes.com/es/2026/09/12/espanol/ciencia-y-tecnologia/tristan-buckmaster-openai-anthropic-nyu.html
+
+**They Fought the Battle of Brooklyn, After a Bus Ride From New Jersey**\
+`As the nation celebrates its 250th anniversary, a group of Revolutionary War devotees invited a reporter to re-enact the Battle of Brooklyn.`\
+https://www.nytimes.com/2026/09/12/nyregion/battle-reenactment-brooklyn-250.html
+
+**Manhattan Bus Lane Plan for 34th Street May Be Stuck in Gridlock**\
+`Months after Mayor Zohran Mamdani said the city would proceed with a redesign of 34th Street that had been halted by the Trump administration, the plan is no closer to completion.`\
+https://www.nytimes.com/2026/09/12/nyregion/mamdani-bus-lane-34th-manhattan.html
+
+**NYT Spelling Bee Answers for September 12, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/09/12/crosswords/spelling-bee-forum.html
+
 **F1: el piloto español Carlos Sainz correrá el Gran Premio en Madrid**\
 `Sainz nació en Madrid y siempre había deseado un Gran Premio allí. Ocurrirá el domingo.`\
 https://www.nytimes.com/es/2026/09/12/espanol/deportes/formula-1-madrid-carlos-sainz-gp.html
@@ -165,22 +181,6 @@ https://www.nytimes.com/2026/09/11/nyregion/engine-54-firehouse-911-nyc.html
 **La IA podría acabar con la humanidad. ¿Qué tan real es el riesgo?**\
 `Desde el colapso ecológico hasta asteroides asesinos, el mundo moderno está repleto de una multitud de riesgos existenciales. Tenemos una dificultad innata para sopesarlos.`\
 https://www.nytimes.com/es/2026/09/11/espanol/ciencia-y-tecnologia/inteligencia-artificial-futuro-humanidad-riesgos.html
-
-**Court Strikes Down Trump Order to Keep an Aging Coal-Burning Plant Running**\
-`The 64-year-old Michigan power plant was set to retire. Then the Trump administration intervened in a way that overstepped its authority, a court ruled.`\
-https://www.nytimes.com/2026/09/11/climate/coal-plant-michigan-court.html
-
-**Remembering 9/11, and What Unites Us**\
-`Responses to “My Dad Died on Flight 93. The Nation Rallied,” an Opinion guest essay by Charlie Greene. Also: President Trump’s payout ploy; a reality map.`\
-https://www.nytimes.com/2026/09/11/opinion/sept11-25th-anniversary.html
-
-**C.I.A. Officer Found With Gold Bars in Basement Reaches Tentative Plea Deal**\
-`David J. Rush was fired from the C.I.A. after the F.B.I. found 303 gold bars in his Virginia home. Officials have said he created a fake classified program to funnel himself millions of dollars.`\
-https://www.nytimes.com/2026/09/11/us/politics/cia-officer-gold-bars-plea-deal.html
-
-**Reflecting Pool Contractor Blames Its Own Repairs, Not Vandals, for Damage**\
-`The contractor said the pool’s new blue liner peeled and tore because of “human oversight” and a flawed plan that involved layering two incompatible chemicals, documents show.`\
-https://www.nytimes.com/2026/09/11/climate/reflecting-pool-contractor-trump.html
 
 **25 Years After 9/11, a Nation Gathers to Remember**\
 `Solemn ceremonies at ground zero in New York, and across the United States, mourned the thousands of lives lost. President Trump paid tribute to the victims in a speech at the Pentagon.`\
