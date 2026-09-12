@@ -1,3 +1,11 @@
+**EE. UU. y Brasil colaboran en la lucha contra la delincuencia. Una disputa diplomática pone en peligro esa operación**\
+`Algunos funcionarios afirman que el gobierno de Trump está obstaculizando algunas de las iniciativas de Brasil para ampliar la cooperación en la lucha contra la delincuencia transnacional.`\
+https://www.nytimes.com/es/2026/09/12/espanol/mundo/brasil-estados-unidos-trump-bolsonaro.html
+
+**Walk This Way**\
+`Are there everyday activities that you can turn into a walk?`\
+https://www.nytimes.com/2026/09/12/briefing/walk-this-way.html
+
 **10 Songs We’re Talking About**\
 `Tinashe tears herself away, Sylvan Esso faces down chaos, the War on Drugs sings through an identity crisis, and more.`\
 https://www.nytimes.com/2026/09/12/arts/music/tinashe-sylvan-esso-rod-wave-playlist.html
