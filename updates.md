@@ -1,3 +1,7 @@
+**In This Irish Village, Trump’s Visit Brings Skepticism and Economic Benefits**\
+`As President Trump heads to Doonbeg, Ireland, for the Irish Open golf tournament, the economic benefits of hosting the event have won over some locals despite Trump’s unpopularity in the country.`\
+https://www.nytimes.com/video/world/europe/100000011148635/trump-irish-open-ireland-doonbeg.html
+
 **El matemático atrapado entre OpenAI y Anthropic por un problema matemático**\
 `Tristan Buckmaster iba camino de lograr una demostración importante cuando uno de los gigantes de la inteligencia artificial usó sus asombrosos recursos para llegar primero.`\
 https://www.nytimes.com/es/2026/09/12/espanol/ciencia-y-tecnologia/tristan-buckmaster-openai-anthropic-nyu.html
