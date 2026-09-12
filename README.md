@@ -1,3 +1,7 @@
+**Trump Says Irish Unification Would Be ‘Fantastic’**\
+`Breaking with decades of U.S. neutrality on the issue, President Trump said Saturday that it would be “fantastic” if Ireland unified. The U.S. brokered and has long supported the 1998 Belfast Agreement, also known as the Good Friday Agreement, which brought a fragile peace that ended about three decades of violence.`\
+https://www.nytimes.com/video/us/politics/100000011148830/trump-ireland-unification-politics-europe.html
+
 **Trump Demands Smithsonian Install ‘Colossus’ George Washington Statue**\
 `The president’s latest attack on the National Museum of American History reflects his longstanding desire for “patriotic” history.`\
 https://www.nytimes.com/2026/09/12/arts/design/trump-smithsonian-washington-statue.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/12/technology/doomsday-discussions-ai-companies.
 **‘We Left in the Clothes We Were Wearing’: Yemenis Flee New Fighting**\
 `Hunger and disease have tormented Yemen for years. Now, fighting between the Saudi-backed government and Iran-backed Houthis is pushing it to the brink.`\
 https://www.nytimes.com/2026/09/12/world/middleeast/yemen-iran-war-houthis.html
-
-**Why It’s Difficult for Tech Companies to Rein In A.I.**\
-`Researchers say artificial intelligence is developing faster than the systems put in place to monitor and control it.`\
-https://www.nytimes.com/2026/09/12/technology/why-its-tough-for-tech-companies-to-keep-ai-out-of-trouble.html
 
