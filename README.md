@@ -1,3 +1,7 @@
+**Trump’s Childhood Home Sells for Nearly $2 Million**\
+`The buyer, who plans to live in the home, has expressed an interest in remaining anonymous, a listing agent said.`\
+https://www.nytimes.com/2026/09/12/nyregion/trumps-childhood-home-sells-queens.html
+
 **‘Woman Unknown’ Takes Top Prize at Venice Film Festival**\
 `The film, a drama directed by May el-Toukhy, follows a Danish servant in the uneasy years after World War II. Lee Chang-dong’s “Possible Love” won the runner-up award.`\
 https://www.nytimes.com/2026/09/12/movies/venice-film-festival-golden-lion-woman-unknown.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/12/us/politics/trump-inflation-midterms.html
 **Cómo terminar bien una relación**\
 `Una serie de estudios descubrió que darle un buen fin a una relación resulta en menos arrepentimientos y transiciones de vida más fáciles. Te decimos cómo lograr una “despedida conectada”.`\
 https://www.nytimes.com/es/2026/09/12/espanol/adios-relacion-despedida.html
-
-**Reseña de ‘Hechizo de amor: La magia continúa’**\
-`Sandra Bullock y Nicole Kidman retoman los personajes de la película de culto de 1998 para romper por fin su maldición.`\
-https://www.nytimes.com/es/2026/09/12/espanol/cultura/hechizo-amor-practical-magic-2-resena-critica.html
 
