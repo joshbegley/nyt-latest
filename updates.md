@@ -1,3 +1,39 @@
+**Why Tech Oligarchs Are Willing to Risk Apocalypse**\
+`Silicon Valley’s strange new theology.`\
+https://www.nytimes.com/2026/09/12/opinion/ai-tech-apocalypse-silicon-valley.html
+
+**American Politics Hasn’t Recovered From 9/11**\
+`The Sept. 11 attacks carved deep and chaotic grooves into American politics, the economy and our sense of optimism, argues the contributing writer E.J. Dionne Jr. on “The Opinions.” So much went haywire in the 25 years that followed, he says. But that also means there’s an opportunity — and a desire — to move forward.`\
+https://www.nytimes.com/video/opinion/100000011148296/american-politics-hasnt-recovered-from-9-11.html
+
+**Our Increasingly Insecure President**\
+`The $5,000 election promise shows how afraid Trump really is.`\
+https://www.nytimes.com/2026/09/12/opinion/trump-insecure-5000-payments-midterms.html
+
+**Biden and Trump Called It a Genocide and Then Turned Away**\
+`We know how to stop the atrocities in Sudan. There’s just too little interest in doing so.`\
+https://www.nytimes.com/2026/09/12/opinion/trump-sudan-genocide.html
+
+**Trump Is Worried About Jon Ossoff’s Rise. He Has Only Himself to Blame.**\
+`The president incubated the career of one of his greatest critics.`\
+https://www.nytimes.com/2026/09/12/opinion/jon-ossoff-georgia-trump-election.html
+
+**A.I. Was Supposed to Give Us New Killer Apps. What Happened?**\
+`Just because A.I. is revolutionizing coding, doesn’t mean it will automatically revolutionize our apps.`\
+https://www.nytimes.com/2026/09/12/opinion/ai-software-coding-apps.html
+
+**Moldova Has to Choose Between Russia and Europe**\
+`Moldova is a fault line in a new geopolitical reality.`\
+https://www.nytimes.com/2026/09/12/opinion/moldova-russia-european-union.html
+
+**Should Conservative StudentsAvoid Liberal Colleges?**\
+`Readers discuss a column by David French urging students to embrace having their ideas tested.`\
+https://www.nytimes.com/2026/09/12/opinion/conservative-students-liberal-colleges.html
+
+**Our Increasingly Insecure President**\
+`The $5,000 election promise shows how afraid Trump really is.`\
+https://www.nytimes.com/video/opinion/100000011144131/our-increasingly-insecure-president.html
+
 **Why Mokha, Historic Port That Shaped the Coffee Trade, Is a Prize in Yemen’s War**\
 `A strategic location on the Red Sea afforded the city centuries of trading dominance — and makes it a coveted target in today’s fighting in the Middle East.`\
 https://www.nytimes.com/2026/09/12/world/middleeast/mokha-yemen-houthis-mocha-coffee.html

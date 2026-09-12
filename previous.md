@@ -1,3 +1,39 @@
+**Why Tech Oligarchs Are Willing to Risk Apocalypse**\
+`Silicon Valley’s strange new theology.`\
+https://www.nytimes.com/2026/09/12/opinion/ai-tech-apocalypse-silicon-valley.html
+
+**American Politics Hasn’t Recovered From 9/11**\
+`The Sept. 11 attacks carved deep and chaotic grooves into American politics, the economy and our sense of optimism, argues the contributing writer E.J. Dionne Jr. on “The Opinions.” So much went haywire in the 25 years that followed, he says. But that also means there’s an opportunity — and a desire — to move forward.`\
+https://www.nytimes.com/video/opinion/100000011148296/american-politics-hasnt-recovered-from-9-11.html
+
+**Our Increasingly Insecure President**\
+`The $5,000 election promise shows how afraid Trump really is.`\
+https://www.nytimes.com/2026/09/12/opinion/trump-insecure-5000-payments-midterms.html
+
+**Biden and Trump Called It a Genocide and Then Turned Away**\
+`We know how to stop the atrocities in Sudan. There’s just too little interest in doing so.`\
+https://www.nytimes.com/2026/09/12/opinion/trump-sudan-genocide.html
+
+**Trump Is Worried About Jon Ossoff’s Rise. He Has Only Himself to Blame.**\
+`The president incubated the career of one of his greatest critics.`\
+https://www.nytimes.com/2026/09/12/opinion/jon-ossoff-georgia-trump-election.html
+
+**A.I. Was Supposed to Give Us New Killer Apps. What Happened?**\
+`Just because A.I. is revolutionizing coding, doesn’t mean it will automatically revolutionize our apps.`\
+https://www.nytimes.com/2026/09/12/opinion/ai-software-coding-apps.html
+
+**Moldova Has to Choose Between Russia and Europe**\
+`Moldova is a fault line in a new geopolitical reality.`\
+https://www.nytimes.com/2026/09/12/opinion/moldova-russia-european-union.html
+
+**Should Conservative StudentsAvoid Liberal Colleges?**\
+`Readers discuss a column by David French urging students to embrace having their ideas tested.`\
+https://www.nytimes.com/2026/09/12/opinion/conservative-students-liberal-colleges.html
+
+**Our Increasingly Insecure President**\
+`The $5,000 election promise shows how afraid Trump really is.`\
+https://www.nytimes.com/video/opinion/100000011144131/our-increasingly-insecure-president.html
+
 **Why Mokha, Historic Port That Shaped the Coffee Trade, Is a Prize in Yemen’s War**\
 `A strategic location on the Red Sea afforded the city centuries of trading dominance — and makes it a coveted target in today’s fighting in the Middle East.`\
 https://www.nytimes.com/2026/09/12/world/middleeast/mokha-yemen-houthis-mocha-coffee.html
@@ -161,40 +197,4 @@ https://www.nytimes.com/2026/09/12/t-magazine/rita-ackermann-interview.html
 **Book Review: ‘A Shadow Over the World,’ by William I. Hitchcock**\
 `In “A Shadow Over the World,” William I. Hitchcock shows how the early struggle against totalitarianism was rife with contradictions.`\
 https://www.nytimes.com/2026/09/12/books/review/a-shadow-over-the-world-william-i-hitchcock.html
-
-**In Paris, a 18th-Century Mansion Reimagined by Pierre Yovanovitch**\
-`How the designer Pierre Yovanovitch remade a hôtel particulier without losing sight of its history.`\
-https://www.nytimes.com/2026/09/12/t-magazine/pierre-yovanovitch-paris-apartment-hotel-particulier.html
-
-**‘The Odyssey’ Was Shot on Real Film. This Is the Only Place Left Making It.**\
-`Christopher Nolan’s epic “The Odyssey” was shot on physical film, a resurgent medium that is manufactured entirely in one factory in western New York.`\
-https://www.nytimes.com/2026/09/12/arts/kodak-film-the-odyssey.html
-
-**‘Blade Runner,’ ‘A Different World,’ and More Shows to Watch This Fall**\
-`Among the highlights are a “Different World” revival, a “Blade Runner” sequel and new series from Matthew McConaughey and Woody Harrelson, Robert and Michelle King, Sharon Horgan and more.`\
-https://www.nytimes.com/2026/09/12/arts/television/fall-tv-shows.html
-
-**How Client Advocates Are Helping Overworked Public Defenders**\
-`Public defenders are overworked and underpaid. A growing corps of client advocates is helping defendants in communities across the U.S.`\
-https://www.nytimes.com/2026/09/12/headway/can-a-teach-for-america-model-save-public-defense.html
-
-**At This French Marathon, Runners Make Pit Stops for Wine and Oysters**\
-`The Marathon du Médoc in Bordeaux is technically a race, but it’s meant to be savored.`\
-https://www.nytimes.com/2026/09/12/well/move/marathon-du-medoc-france-wine.html
-
-**Republicans, Facing Midterm Peril, Try to Brand Democrats as Communists**\
-`Communism, in the president’s hyperbolic telling, is a graver threat to the country than the Pearl Harbor or 9/11 attacks were. Whether this midterm strategy works is an open question.`\
-https://www.nytimes.com/2026/09/12/us/politics/trump-democrats-communism-midterms.html
-
-**Who Should Win an Emmy? Vote for Your Favorites**\
-`(No description)`\
-https://www.nytimes.com/quiz/2026/09/12/culture/2026-emmy-reader-ballot.html
-
-**In This Irish Village, Trump’s Visit Brings Skepticism and Economic Benefits**\
-`As President Trump heads to Doonbeg, Ireland, for the Irish Open golf tournament, the economic benefits of hosting the event have won over some locals despite Trump’s unpopularity in the country.`\
-https://www.nytimes.com/video/world/europe/100000011148635/trump-irish-open-ireland-doonbeg.html
-
-**El matemático atrapado entre OpenAI y Anthropic por un problema matemático**\
-`Tristan Buckmaster iba camino de lograr una demostración importante cuando uno de los gigantes de la inteligencia artificial usó sus asombrosos recursos para llegar primero.`\
-https://www.nytimes.com/es/2026/09/12/espanol/ciencia-y-tecnologia/tristan-buckmaster-openai-anthropic-nyu.html
 
