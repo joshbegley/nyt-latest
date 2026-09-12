@@ -1,3 +1,7 @@
+**Saudi Arabia’s Oil ‘Lifeline’ Was Attacked. Here’s What to Know.**\
+`A drone attack from Iraq forced Saudi Arabia to close its East-West pipeline, the kingdom said, threatening a key workaround to Iran’s Persian Gulf blockade.`\
+https://www.nytimes.com/2026/09/12/world/middleeast/saudi-arabia-oil-pipeline-attack.html
+
 **Death Toll From Ferry Fire in the Philippines Rises to 76**\
 `Rescuers were still searching for victims days after a fire broke out on the June Aster en route to a popular tourist site. At least 43 people survived.`\
 https://www.nytimes.com/2026/09/12/world/asia/death-toll-from-ferry-fire-in-the-philippines-rises-to-76.html
