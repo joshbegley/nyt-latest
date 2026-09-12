@@ -1,3 +1,27 @@
+**Why Mokha, Historic Port That Shaped the Coffee Trade, Is a Prize in Yemen’s War**\
+`A strategic location on the Red Sea afforded the city centuries of trading dominance — and makes it a coveted target in today’s fighting in the Middle East.`\
+https://www.nytimes.com/2026/09/12/world/middleeast/mokha-yemen-houthis-mocha-coffee.html
+
+**My Friend Pocketed the Money From Our Charity Event. What Should I Do?**\
+`We trusted him to donate the money after the fact. He never did.`\
+https://www.nytimes.com/2026/09/12/magazine/friend-charity-fraud-ethics.html
+
+**Why Carney Isn’t Rushing Back to the Negotiating Table**\
+`Canadians back his tough stance on trade with the U.S. An expert says that support gives him little incentive to reopen talks soon.`\
+https://www.nytimes.com/2026/09/12/world/canada/us-canada-trade-war-carney-trump.html
+
+**NYT Connections Answers for September 13, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Sept. 13, 2026.`\
+https://www.nytimes.com/2026/09/12/crosswords/connections-companion-1190.html
+
+**NYT Strands Hints for September 13, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Sept. 13, 2026.`\
+https://www.nytimes.com/2026/09/12/crosswords/strands-sidekick-924.html
+
+**Today’s Wordle Hints for September 13, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Sept. 13, 2026.`\
+https://www.nytimes.com/2026/09/12/crosswords/wordle-review-1912.html
+
 **Atlantic Hurricane Season Hasn’t Recorded a Single Hurricane This Year**\
 `There hasn’t been a single one yet.`\
 https://www.nytimes.com/2026/09/12/weather/atlantic-hurricane-season-latest-record.html
