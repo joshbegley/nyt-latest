@@ -1,3 +1,11 @@
+**Colombia y la aspersión aérea de coca: juzgado suspende plan piloto**\
+`El plan piloto —que fue rápidamente impugnado por un juzgado de Putumayo— se dio a conocer días después de que el presidente de Colombia y el secretario de Estado estadounidense hablaran de medidas más enérgicas contra el narcotráfico.`\
+https://www.nytimes.com/es/2026/09/11/espanol/colombia-coca-aspersion-aerea-piloto-putumayo.html
+
+**Federal Judge Poised to Dismiss Lawsuit Challenging Trump’s Library**\
+`The judge, in halting the pretrial fact-finding process, said President Trump’s claim of immunity could “dispose of the entire case” involving the library to be built in Miami.`\
+https://www.nytimes.com/2026/09/11/us/politics/trump-library-legal-action.html
+
 **Lil Durk Is Found Not Guilty in Murder-for-Hire Case**\
 `The rapper had been accused of orchestrating a plot to kill a rival in an ambush that resulted in the death of another man.`\
 https://www.nytimes.com/2026/09/11/arts/music/lil-durk-acquitted-murder-for-hire.html

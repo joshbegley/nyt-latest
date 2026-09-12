@@ -1,3 +1,11 @@
+**Colombia y la aspersión aérea de coca: juzgado suspende plan piloto**\
+`El plan piloto —que fue rápidamente impugnado por un juzgado de Putumayo— se dio a conocer días después de que el presidente de Colombia y el secretario de Estado estadounidense hablaran de medidas más enérgicas contra el narcotráfico.`\
+https://www.nytimes.com/es/2026/09/11/espanol/colombia-coca-aspersion-aerea-piloto-putumayo.html
+
+**Federal Judge Poised to Dismiss Lawsuit Challenging Trump’s Library**\
+`The judge, in halting the pretrial fact-finding process, said President Trump’s claim of immunity could “dispose of the entire case” involving the library to be built in Miami.`\
+https://www.nytimes.com/2026/09/11/us/politics/trump-library-legal-action.html
+
 **Lil Durk Is Found Not Guilty in Murder-for-Hire Case**\
 `The rapper had been accused of orchestrating a plot to kill a rival in an ambush that resulted in the death of another man.`\
 https://www.nytimes.com/2026/09/11/arts/music/lil-durk-acquitted-murder-for-hire.html
@@ -169,14 +177,6 @@ https://www.nytimes.com/2026/09/11/sports/baseball/isao-harimoto-dead.html
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/100000011146976/911-Moment-of-Silence.html
-
-**Afghan Woman Deported in First Use of Obscure Terrorism Court**\
-`It remains unclear whether the administration would seek to use the court again after successfully obtaining an order from its chief judge to expel the woman.`\
-https://www.nytimes.com/2026/09/11/us/afghan-woman-deported-terrorism-court.html
-
-**Who Is Ahead in California's 34th Congressional District?**\
-`Track the latest polls in California's 34th Congressional District.`\
-https://www.nytimes.com/interactive/polls/california-us-house-34-polls-2026.html
 
 **25 Years After 9/11, a Nation Gathers to Remember**\
 `Solemn ceremonies at ground zero in New York, and across the United States, mourned the thousands of lives lost. President Trump paid tribute to the victims in a speech at the Pentagon.`\
