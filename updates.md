@@ -1,3 +1,7 @@
+**Trump Wanted a New House Map in Missouri. Voters Got Chaos Instead.**\
+`The legal wrangling over a congressional map redrawn by Republicans has election officials, candidates and voters scrambling before November.`\
+https://www.nytimes.com/2026/09/11/us/missouri-congressional-redistricting-chaos.html
+
 **Colombia y la aspersión aérea de coca: juzgado suspende plan piloto**\
 `El plan piloto —que fue rápidamente impugnado por un juzgado de Putumayo— se dio a conocer días después de que el presidente de Colombia y el secretario de Estado estadounidense hablaran de medidas más enérgicas contra el narcotráfico.`\
 https://www.nytimes.com/es/2026/09/11/espanol/colombia-coca-aspersion-aerea-piloto-putumayo.html

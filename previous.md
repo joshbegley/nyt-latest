@@ -34,8 +34,8 @@ https://www.nytimes.com/2026/09/11/us/politics/sept-11-women-special-operations-
 `Stark warnings from A.I. researchers have reverberated across the country.`\
 https://www.nytimes.com/2026/09/11/us/politics/midterm-elections-trump-ai.html
 
-**Chaos, Confusion and Court Dockets: The Fight for Missouri’s House Map**\
-`After the U.S. Supreme Court blocked a congressional map used in the primary, election officials, candidates and voters are scrambling to adjust before November.`\
+**Trump Wanted a New House Map in Missouri. Voters Got Chaos Instead.**\
+`The legal wrangling over a congressional map redrawn by Republicans has election officials, candidates and voters scrambling before November.`\
 https://www.nytimes.com/2026/09/11/us/missouri-congressional-redistricting-chaos.html
 
 **Nation Honors 9/11 Victims on 25th Anniversary**\
