@@ -1,3 +1,7 @@
+**On This Day | Sept. 12: The S.S. Central America sank in a hurricane.**\
+`In 1857, the S.S. Central America, later known as the “Ship of Gold,” sank in a hurricane while carrying passengers and California gold, killing hundreds and helping intensify the Panic of 1857.`\
+https://www.nytimes.com/2026/09/12/learning/on-this-day-sept-12.html
+
 **Capers**\
 `Adam Wagner and Michael Lieberman put together a themeless puzzle full of conundrums and connections.`\
 https://www.nytimes.com/2026/09/11/crosswords/daily-puzzle-2026-09-12.html
@@ -173,10 +177,6 @@ https://www.nytimes.com/es/2026/09/11/espanol/cultura/muere-lucien-smith-artista
 **Before High Holy Days, Jewish Institutions in New York Increase Security**\
 `Jewish leaders say they have spent millions on additional security protections in recent years amid a rise in antisemitic incidents.`\
 https://www.nytimes.com/2026/09/11/nyregion/high-holy-days-security-nyc.html
-
-**Isao Harimoto, Hiroshima Survivor and a Baseball Star in Japan, Dies at 86**\
-`A Korean-Japanese slugger known as Hit Machine, he was one of Japanese baseball’s greatest hitters in a career that lasted more than 20 years.`\
-https://www.nytimes.com/2026/09/11/sports/baseball/isao-harimoto-dead.html
 
 **25 Years After 9/11, a Nation Gathers to Remember**\
 `Solemn ceremonies at ground zero in New York, and across the United States, mourned the thousands of lives lost. President Trump paid tribute to the victims in a speech at the Pentagon.`\
