@@ -1,3 +1,7 @@
+**Lil Durk Is Found Not Guilty in Murder-for-Hire Case**\
+`The rapper had been accused of orchestrating a plot to kill a rival in an ambush that resulted in the death of another man.`\
+https://www.nytimes.com/2026/09/11/arts/music/lil-durk-acquitted-murder-for-hire.html
+
 **Trump Heads to Ireland for the Irish Open at His Golf Course**\
 `President Trump’s trip comes after a two-day Republican rally in Dallas, where he tried to energize voters amid fears that the party could face losses in the midterms.`\
 https://www.nytimes.com/2026/09/11/us/politics/trump-ireland-irish-open.html
