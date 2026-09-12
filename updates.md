@@ -1,3 +1,7 @@
+**Trump Demands Smithsonian Install ‘Colossus’ George Washington Statue**\
+`The president’s latest attack on the National Museum of American History reflects his longstanding desire for “patriotic” history.`\
+https://www.nytimes.com/2026/09/12/arts/design/trump-smithsonian-washington-statue.html
+
 **Death Toll From Ferry Fire in the Philippines Rises to 76**\
 `Rescuers were still searching for victims days after a fire broke out on the June Aster en route to a popular tourist site. At least 43 people survived.`\
 https://www.nytimes.com/2026/09/12/world/asia/philippines-ferry-fire-death-toll.html
