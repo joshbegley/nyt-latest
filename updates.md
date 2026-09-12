@@ -1,3 +1,7 @@
+**It’s Not Too Early for Pumpkin Cake, Actually**\
+`Yossy Arefi takes the Bake Time Questionnaire.`\
+https://www.nytimes.com/2026/09/12/dining/its-not-too-early-for-pumpkin-cake-actually.html
+
 **Should Conservative Students Avoid Liberal Colleges?**\
 `Readers discuss a column by David French urging students to embrace having their ideas tested.`\
 https://www.nytimes.com/2026/09/12/opinion/conservative-students-liberal-colleges.html

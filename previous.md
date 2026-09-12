@@ -1,3 +1,7 @@
+**It’s Not Too Early for Pumpkin Cake, Actually**\
+`Yossy Arefi takes the Bake Time Questionnaire.`\
+https://www.nytimes.com/2026/09/12/dining/its-not-too-early-for-pumpkin-cake-actually.html
+
 **Trump Says Irish Unification Would Be ‘Fantastic,’ Breaking With Precedent**\
 `The United States is officially neutral on an issue that had been a source of decades of violence in Northern Ireland until a 1998 peace deal.`\
 https://www.nytimes.com/2026/09/12/world/europe/trump-ireland-unification-remarks.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/12/us/politics/trump-free-speech.html
 **‘High Value Target’: Hunting for Saddam Hussein, and the Truth**\
 `A series starring Joel Kinnaman tells the story of John Nixon, the first C.I.A. officer to interrogate the former Iraqi dictator after his capture.`\
 https://www.nytimes.com/2026/09/12/arts/television/high-value-target-joel-kinnaman-john-nixon.html
-
-**Visa Issue Threatens U.S.-Brazil Cooperation on Crime**\
-`Officials say the Trump administration is blocking some of Brazil’s efforts to expand cooperation on fighting transnational crime.`\
-https://www.nytimes.com/2026/09/12/world/americas/us-brazil-crime-police-visas-ice.html
 
