@@ -1,3 +1,7 @@
+**After the I.P.O., a Billion-Dollar Bill for Employee Paydays**\
+`A compensation strategy at start-ups keeps expenses low until they go public. At that point, the companies may face billions of dollars in catch-up expenses.`\
+https://www.nytimes.com/2026/09/12/business/dealbook/double-trigger-rsus.html
+
 **Why Tech Oligarchs Are Willing to Risk Apocalypse**\
 `Silicon Valley’s strange new theology.`\
 https://www.nytimes.com/2026/09/12/opinion/ai-tech-apocalypse-silicon-valley.html
@@ -6,7 +10,7 @@ https://www.nytimes.com/2026/09/12/opinion/ai-tech-apocalypse-silicon-valley.htm
 `The Sept. 11 attacks carved deep and chaotic grooves into American politics, the economy and our sense of optimism, argues the contributing writer E.J. Dionne Jr. on “The Opinions.” So much went haywire in the 25 years that followed, he says. But that also means there’s an opportunity — and a desire — to move forward.`\
 https://www.nytimes.com/video/opinion/100000011148296/american-politics-hasnt-recovered-from-9-11.html
 
-**Our Increasingly Insecure President**\
+**His Act Is Getting Old**\
 `The $5,000 election promise shows how afraid Trump really is.`\
 https://www.nytimes.com/2026/09/12/opinion/trump-insecure-5000-payments-midterms.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/12/us/jimothy-search.html
 **09tmag-ackermann-slide-YGG2**\
 `The artist, an enfant terrible of the 1990s, has embraced a quieter, more enigmatic style. Just don’t ask her what it all means.`\
 https://www.nytimes.com/2026/09/12/t-magazine/rita-ackermann-interview.html
-
-**Book Review: ‘A Shadow Over the World,’ by William I. Hitchcock**\
-`In “A Shadow Over the World,” William I. Hitchcock shows how the early struggle against totalitarianism was rife with contradictions.`\
-https://www.nytimes.com/2026/09/12/books/review/a-shadow-over-the-world-william-i-hitchcock.html
 
