@@ -1,3 +1,7 @@
+**Trump’s Childhood Home Sells for Nearly $2 Million**\
+`The buyer, who plans to live in the home, has expressed an interest in remaining anonymous, a listing agent said.`\
+https://www.nytimes.com/2026/09/12/nyregion/trumps-childhood-home-sells-queens.html
+
 **‘Woman Unknown’ Takes Top Prize at Venice Film Festival**\
 `The film, a drama directed by May el-Toukhy, follows a Danish servant in the uneasy years after World War II. Lee Chang-dong’s “Possible Love” won the runner-up award.`\
 https://www.nytimes.com/2026/09/12/movies/venice-film-festival-golden-lion-woman-unknown.html
