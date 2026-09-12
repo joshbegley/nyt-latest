@@ -1,3 +1,11 @@
+**Risks for Clicks: Why Online Influencers Push Shock Content**\
+`A growing number of social media creators are pushing the boundaries of safety and good taste to feed algorithms and win followers.`\
+https://www.nytimes.com/2026/09/12/us/influencers-social-media-algorithm.html
+
+**A Giant Plume of Saharan Dust Is Headed to Florida**\
+`Saharan dust often reaches South Florida, but rarely this late in the year.`\
+https://www.nytimes.com/2026/09/12/weather/saharan-dust-florida.html
+
 **Saudi Arabia’s Oil ‘Lifeline’ Was Attacked. Here’s What to Know.**\
 `A drone attack from Iraq forced Saudi Arabia to close its East-West pipeline, the kingdom said, threatening a key workaround to Iran’s Persian Gulf blockade.`\
 https://www.nytimes.com/2026/09/12/world/middleeast/saudi-arabia-oil-pipeline-attack.html
@@ -31,7 +39,7 @@ https://www.nytimes.com/2026/09/12/us/politics/paxton-republican-pac-spending-mi
 https://www.nytimes.com/2026/09/12/dining/its-not-too-early-for-pumpkin-cake-actually.html
 
 **Trump Says Irish Unification Would Be ‘Fantastic,’ Breaking With Precedent**\
-`The United States is officially neutral on an issue that had been a source of decades of violence in Northern Ireland until a 1998 peace deal.`\
+`The United States has been officially neutral on an issue that was a source of decades of violence in Northern Ireland until a 1998 peace deal.`\
 https://www.nytimes.com/2026/09/12/world/europe/trump-ireland-unification-remarks.html
 
 **Calvin Klein Strips Down**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/podcasts/100000011141597/the-earthly-beauty-end-ti
 **Jonathan Cooper, Who Made Violins the Old-Fashioned Way, Dies at 76**\
 `Renowned for their supple tone and range, his instruments were admired by world-class musicians like Mark O’Connor and Alison Krauss.`\
 https://www.nytimes.com/2026/09/12/arts/music/jonathan-cooper-dead.html
-
-**Naomi Klein on Tech Billionaires: ‘The Money Is Making Them Fascist’**\
-`Why did so many wealthy business leaders align themselves with President Trump in his second term? Naomi Klein discussed their possible motivations on “The Interview.”`\
-https://www.nytimes.com/video/podcasts/100000011141590/naomi-klein-on-tech-billionaires-the-money-is-making-them-fascist.html
-
-**Naomi Klein and Astra Taylor on the Fight Against ‘Traitors to Life’**\
-`In their new book, Naomi Klein and Astra Taylor argue that a powerful far-right coalition is hastening the destruction of the world as we know it. They talked about how the movement can be countered on “The Interview.”`\
-https://www.nytimes.com/video/podcasts/100000011141533/naomi-klein-and-astra-taylor-on-the-fight-against-traitors-to-life.html
 

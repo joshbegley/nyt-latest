@@ -1,3 +1,15 @@
+**Risks for Clicks: Why Online Influencers Push Shock Content**\
+`A growing number of social media creators are pushing the boundaries of safety and good taste to feed algorithms and win followers.`\
+https://www.nytimes.com/2026/09/12/us/influencers-social-media-algorithm.html
+
+**A Giant Plume of Saharan Dust Is Headed to Florida**\
+`Saharan dust often reaches South Florida, but rarely this late in the year.`\
+https://www.nytimes.com/2026/09/12/weather/saharan-dust-florida.html
+
+**Trump Says Irish Unification Would Be ‘Fantastic,’ Breaking With Precedent**\
+`The United States has been officially neutral on an issue that was a source of decades of violence in Northern Ireland until a 1998 peace deal.`\
+https://www.nytimes.com/2026/09/12/world/europe/trump-ireland-unification-remarks.html
+
 **Saudi Arabia’s Oil ‘Lifeline’ Was Attacked. Here’s What to Know.**\
 `A drone attack from Iraq forced Saudi Arabia to close its East-West pipeline, the kingdom said, threatening a key workaround to Iran’s Persian Gulf blockade.`\
 https://www.nytimes.com/2026/09/12/world/middleeast/saudi-arabia-oil-pipeline-attack.html

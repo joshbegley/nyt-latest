@@ -1,3 +1,7 @@
+**Ohio Republican in Key Senate Race Fires Campaign Aide, Citing Social Media Photo of Nazis**\
+`Senator Jon Husted dismissed his political director because of activity displaying a “complete lack” of judgment, according to a spokeswoman.`\
+https://www.nytimes.com/2026/09/12/us/politics/husted-political-director-nazi-photo.html
+
 **Risks for Clicks: Why Online Influencers Push Shock Content**\
 `A growing number of social media creators are pushing the boundaries of safety and good taste to feed algorithms and win followers.`\
 https://www.nytimes.com/2026/09/12/us/influencers-social-media-algorithm.html
@@ -22,7 +26,7 @@ https://www.nytimes.com/2026/09/12/technology/anthropic-dario-amodei-ai-slowdown
 `Diane von Furstenberg is back at New York Fashion Week after almost a decade. Our chief fashion critic, Vanessa Friedman, questions whether the new designer’s reset goes far enough.`\
 https://www.nytimes.com/video/style/100000011132036/the-most-anticipated-debut-at-nyfw.html
 
-**Iran Finds Escalation Is a Fruitful Path to Leverage in War With U.S.**\
+**Iran Finds Escalation Is Fruitful Path to Leverage in War With U.S.**\
 `Iran and its allies now hold sway over two key oil shipping routes, and Tehran is setting the stage for a diplomatic win that could enhance its stature.`\
 https://www.nytimes.com/2026/09/12/world/middleeast/iran-escalation-leverage-houthis-strait.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/podcasts/100000011141818/naomi-klein-on-elon-musks
 **The Earthly Beauty ‘End Times Fascists’ Are Missing**\
 `What makes life on Earth worthwhile? The authors Astra Taylor and Naomi Klein shared their views on “The Interview.”`\
 https://www.nytimes.com/video/podcasts/100000011141597/the-earthly-beauty-end-times-fascists-are-missing.html
-
-**Jonathan Cooper, Who Made Violins the Old-Fashioned Way, Dies at 76**\
-`Renowned for their supple tone and range, his instruments were admired by world-class musicians like Mark O’Connor and Alison Krauss.`\
-https://www.nytimes.com/2026/09/12/arts/music/jonathan-cooper-dead.html
 
