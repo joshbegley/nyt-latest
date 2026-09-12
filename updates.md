@@ -1,3 +1,7 @@
+**Death Toll From Ferry Fire in the Philippines Rises to 76**\
+`Rescuers were still searching for victims days after a fire broke out on the June Aster en route to a popular tourist site. At least 43 people survived.`\
+https://www.nytimes.com/2026/09/12/world/asia/philippines-ferry-fire-death-toll.html
+
 **A Mastodon Tooth Is Discovered in a California Creek**\
 `A researcher surveying a San Mateo County creek stumbled upon a preserved Pacific mastodon molar estimated to be at least 10,000 years old.`\
 https://www.nytimes.com/2026/09/12/us/ice-age-mastodon-tooth-bay-area.html
