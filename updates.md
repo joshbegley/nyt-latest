@@ -1,3 +1,7 @@
+**The Most Anticipated Debut at NYFW**\
+`Diane von Furstenberg is back at New York Fashion Week after almost a decade. Our chief fashion critic, Vanessa Friedman, questions whether the new designer’s reset goes far enough.`\
+https://www.nytimes.com/video/style/100000011132036/the-most-anticipated-debut-at-nyfw.html
+
 **Iran Finds Escalation Is a Fruitful Path to Leverage in War With U.S.**\
 `Iran and its allies now hold sway over two key oil shipping routes, and Tehran is setting the stage for a diplomatic win that could enhance its stature.`\
 https://www.nytimes.com/2026/09/12/world/middleeast/iran-escalation-leverage-houthis-strait.html
