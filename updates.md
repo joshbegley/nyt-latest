@@ -1,3 +1,7 @@
+**Republican Groups Rush to Paxton’s Aid in Texas After Staying on Sidelines**\
+`An organization allied with Senate G.O.P. leaders has booked more than $51 million in ads. Now, Ken Paxton has a financial edge after months of being outspent by his Democratic rival.`\
+https://www.nytimes.com/2026/09/12/us/politics/paxton-republican-pac-spending-midterms.html
+
 **It’s Not Too Early for Pumpkin Cake, Actually**\
 `Yossy Arefi takes the Bake Time Questionnaire.`\
 https://www.nytimes.com/2026/09/12/dining/its-not-too-early-for-pumpkin-cake-actually.html
