@@ -1,3 +1,11 @@
+**Iran Finds Escalation Is a Fruitful Path to Leverage in War With U.S.**\
+`Iran and its allies now hold sway over two key oil shipping routes, and Tehran is setting the stage for a diplomatic win that could enhance its stature.`\
+https://www.nytimes.com/2026/09/12/world/middleeast/iran-escalation-leverage-houthis-strait.html
+
+**The Trump Show Must Go On**\
+`The president has a very simple strategy for the midterms.`\
+https://www.nytimes.com/2026/09/12/opinion/trump-republican-convention-midterms.html
+
 **Republican Groups Rush to Paxton’s Aid in Texas After Staying on Sidelines**\
 `An organization allied with Senate G.O.P. leaders has booked more than $51 million in ads. Now, Ken Paxton has a financial edge after months of being outspent by his Democratic rival.`\
 https://www.nytimes.com/2026/09/12/us/politics/paxton-republican-pac-spending-midterms.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/12/realestate/pigeons-have-taken-over-my-co-ops-
 **Alabama Is Set to Execute a Murderer. The Jury Wanted Him to Live.**\
 `Jeffery Lee’s case has grappled with questions in Alabama about emerging execution methods and an abandoned sentencing practice that sent him and others to death row.`\
 https://www.nytimes.com/2026/09/12/us/alabama-execution-jeffrey-lee.html
-
-**Want to Entice New Residents? Offer Cash, for a Start.**\
-`Relocation incentives have a mixed record of helping cities and towns stand out as people return to rural America.`\
-https://www.nytimes.com/2026/09/12/business/economy/rural-america-moving-incentives.html
-
-**How Trump Is Wielding Power to Stifle Speech**\
-`President Trump has harnessed agencies across the government to curtail press freedoms, a sweeping campaign that free speech advocates say will have lasting effects.`\
-https://www.nytimes.com/2026/09/12/us/politics/trump-free-speech.html
 
