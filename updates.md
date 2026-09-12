@@ -1,3 +1,11 @@
+**Trump Is ‘Repatrimonializing’ Government**\
+`President Trump is known for appointing friends and family to his administration — including his son-in-law Jared Kushner and his friend Steve Witkoff. On “The Ezra Klein Show,” the political scientist Francis Fukuyama gives a longer history of Trump’s nepotism and explains how he is “repatrimonializing” the government.`\
+https://www.nytimes.com/video/opinion/100000011143295/trump-is-repatrimonializing-government.html
+
+**Liberalism and Its Discontents**\
+`If liberal democracy is the pinnacle of political systems, as the political scientist Francis Fukuyama argued in his 1992 book, “The End of History and the Last Man,” then how do you explain the rise of populism in recent years? On “The Ezra Klein Show,” Fukuyama reflects on these resurgences, including the Jan. 6 riot at the Capitol, and what that might reveal about the human psyche.`\
+https://www.nytimes.com/video/opinion/100000011143294/liberalism-and-its-discontents.html
+
 **Speakers at 9/11 Memorial Accuse Saudis of Role in the Attacks**\
 `Relatives of victims said past administrations had not held the kingdom accountable, and called for action from President Trump.`\
 https://www.nytimes.com/2026/09/11/nyregion/911-ceremony-speeches-nyc.html
