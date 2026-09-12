@@ -1,3 +1,7 @@
+**F1: el piloto español Carlos Sainz correrá el Gran Premio en Madrid**\
+`Sainz nació en Madrid y siempre había deseado un Gran Premio allí. Ocurrirá el domingo.`\
+https://www.nytimes.com/es/2026/09/12/espanol/deportes/formula-1-madrid-carlos-sainz-gp.html
+
 **As Oil Prices Rise, BRICS Leaders Have What U.S. Doesn’t: Iran at the Table**\
 `Even so, finding unity among the loose grouping of emerging economies will be difficult as the war in the Middle East strains their own interests.`\
 https://www.nytimes.com/2026/09/12/world/asia/brics-summit-china-india-russia-iran.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/09/11/us/politics/cia-officer-gold-bars-plea-deal.h
 **Reflecting Pool Contractor Blames Its Own Repairs, Not Vandals, for Damage**\
 `The contractor said the pool’s new blue liner peeled and tore because of “human oversight” and a flawed plan that involved layering two incompatible chemicals, documents show.`\
 https://www.nytimes.com/2026/09/11/climate/reflecting-pool-contractor-trump.html
-
-**Holdout Juror in Lindsay Clancy’s Mistrial Highlights a Divide in America**\
-`The nation’s reaction to the 11-1 deadlock that resulted in a mistrial for Lindsay Clancy was, like the jury itself, fiercely and unbridgeably divided.`\
-https://www.nytimes.com/2026/09/11/us/lindsay-clancy-trial-holdout-juror.html
 
 **25 Years After 9/11, a Nation Gathers to Remember**\
 `Solemn ceremonies at ground zero in New York, and across the United States, mourned the thousands of lives lost. President Trump paid tribute to the victims in a speech at the Pentagon.`\
