@@ -1,3 +1,23 @@
+**As Oil Prices Rise, BRICS Leaders Have What U.S. Doesn’t: Iran at the Table**\
+`Even so, finding unity among the loose grouping of emerging economies will be difficult as the war in the Middle East strains their own interests.`\
+https://www.nytimes.com/2026/09/12/world/asia/brics-summit-china-india-russia-iran.html
+
+**India Wants to Buy Fewer Chinese Imports, but Keeps Needing More**\
+`Trade between India and China has nearly doubled in five years, leaving New Delhi with a widening deficit and a difficult choice over how to build its industrial future.`\
+https://www.nytimes.com/2026/09/12/business/india-china-trade.html
+
+**Quote of the Day: 25 Years After Towers Fell, 2,983 Names Still Echoing**\
+`Quotation of the Day for Saturday, September 12, 2026.`\
+https://www.nytimes.com/2026/09/12/pageoneplus/quote-of-the-day-25-years-after-towers-fell-2983-names-still-echoing.html
+
+**In Doonbeg, Trump’s Irish Open Visit Prompts Protests and Praise**\
+`As the U.S. president heads to his Doonbeg hotel for the Irish Open, locals expressed both appreciation for the resort’s economic benefits and opposition to his politics.`\
+https://www.nytimes.com/2026/09/12/world/europe/trump-irish-open-ireland-doonbeg.html
+
+**The Doctor Pressuring African Leaders to Own the Ebola Response**\
+`International agencies and foreign donors have long driven campaigns to defeat diseases like Ebola. Dr. Jean Kaseya, the head of the Africa C.D.C., wants to change that.`\
+https://www.nytimes.com/2026/09/12/world/africa/jean-kaseya-africa-cdc.html
+
 **On This Day | Sept. 12: The S.S. Central America sank in a hurricane.**\
 `In 1857, the S.S. Central America, later known as the “Ship of Gold,” sank in a hurricane while carrying passengers and California gold, killing hundreds and helping intensify the Panic of 1857.`\
 https://www.nytimes.com/2026/09/12/learning/on-this-day-sept-12.html
