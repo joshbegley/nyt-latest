@@ -1,3 +1,7 @@
+**Death Toll From Ferry Fire in the Philippines Rises to 76**\
+`Rescuers were still searching for victims days after a fire broke out on the June Aster en route to a popular tourist site. At least 43 people survived.`\
+https://www.nytimes.com/2026/09/12/world/asia/death-toll-from-ferry-fire-in-the-philippines-rises-to-76.html
+
 **Anthropic C.E.O. Dario Amodei Calls for A.I. Slowdown**\
 `In a 3,800-word essay, Dario Amodei laid out the rapidly advancing capabilities of artificial intelligence and said there needed to be greater safety controls across the industry.`\
 https://www.nytimes.com/2026/09/12/technology/anthropic-dario-amodei-ai-slowdown.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/podcasts/100000011141533/naomi-klein-and-astra-tay
 **A Panorama of Design**\
 `A look at design-world events, products and people.`\
 https://www.nytimes.com/2026/09/12/arts/design/design-products-inspiration.html
-
-**How to Lure the Spendy and the Thrifty? Bring On the ‘Barbell.’**\
-`Restaurant chains are trying to draw in both kinds of consumers by offering low-cost and more-premium options at the same time.`\
-https://www.nytimes.com/2026/09/12/business/barbell-pricing-restaurants.html
 
