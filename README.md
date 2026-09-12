@@ -1,3 +1,7 @@
+**Anthropic C.E.O. Dario Amodei Calls for A.I. Slowdown**\
+`In a 3,800-word essay, Dario Amodei laid out the rapidly advancing capabilities of artificial intelligence and said there needed to be greater safety controls across the industry.`\
+https://www.nytimes.com/2026/09/12/technology/anthropic-dario-amodei-ai-slowdown.html
+
 **The Most Anticipated Debut at NYFW**\
 `Diane von Furstenberg is back at New York Fashion Week after almost a decade. Our chief fashion critic, Vanessa Friedman, questions whether the new designer’s reset goes far enough.`\
 https://www.nytimes.com/video/style/100000011132036/the-most-anticipated-debut-at-nyfw.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/12/arts/design/design-products-inspiration.html
 **How to Lure the Spendy and the Thrifty? Bring On the ‘Barbell.’**\
 `Restaurant chains are trying to draw in both kinds of consumers by offering low-cost and more-premium options at the same time.`\
 https://www.nytimes.com/2026/09/12/business/barbell-pricing-restaurants.html
-
-**Pigeons Have Taken Over My Co-op’s Balcony. What Can I Do?**\
-`Once they establish an area as their home, they’ll continue to return, a pest control expert said.`\
-https://www.nytimes.com/2026/09/12/realestate/pigeons-have-taken-over-my-co-ops-balcony-what-can-i-do.html
 
