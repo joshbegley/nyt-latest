@@ -1,3 +1,7 @@
+**Trump Says Irish Unification Would Be ‘Fantastic,’ Breaking With Precedent**\
+`The United States is officially neutral on an issue that had been a source of decades of violence in Northern Ireland until a 1998 peace deal.`\
+https://www.nytimes.com/2026/09/12/world/europe/trump-ireland-unification-remarks.html
+
 **Calvin Klein Strips Down**\
 `In her third collection, Veronica Leoni tries to reclaim the minimalist crown.`\
 https://www.nytimes.com/2026/09/12/style/calvin-klein-show-nyfw.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/12/arts/television/high-value-target-joel-kinnam
 **Visa Issue Threatens U.S.-Brazil Cooperation on Crime**\
 `Officials say the Trump administration is blocking some of Brazil’s efforts to expand cooperation on fighting transnational crime.`\
 https://www.nytimes.com/2026/09/12/world/americas/us-brazil-crime-police-visas-ice.html
-
-**Best Friends and a $15 Concert: An N.Y.C. Rite of Passage**\
-`With Music Hall of Williamsburg ending its run this year, a cartoonist and recent arrival to the city recalls the blissfully buzzed shows she saw there and elsewhere for the price of a matcha.`\
-https://www.nytimes.com/2026/09/12/arts/music/music-hall-williamsburg-nyc-venues.html
 

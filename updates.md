@@ -1,3 +1,7 @@
+**Trump Says Irish Unification Would Be ‘Fantastic,’ Breaking With Precedent**\
+`The United States is officially neutral on an issue that had been a source of decades of violence in Northern Ireland until a 1998 peace deal.`\
+https://www.nytimes.com/2026/09/12/world/europe/trump-ireland-unification-remarks.html
+
 **Calvin Klein Strips Down**\
 `In her third collection, Veronica Leoni tries to reclaim the minimalist crown.`\
 https://www.nytimes.com/2026/09/12/style/calvin-klein-show-nyfw.html
