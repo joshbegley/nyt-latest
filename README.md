@@ -1,3 +1,7 @@
+**Capers**\
+`Adam Wagner and Michael Lieberman put together a themeless puzzle full of conundrums and connections.`\
+https://www.nytimes.com/2026/09/11/crosswords/daily-puzzle-2026-09-12.html
+
 **Colombia y la aspersión aérea de coca: juzgado suspende plan piloto**\
 `El plan piloto —que fue rápidamente impugnado por un juzgado de Putumayo— se dio a conocer días después de que el presidente de Colombia y el secretario de Estado estadounidense hablaran de medidas más enérgicas contra el narcotráfico.`\
 https://www.nytimes.com/es/2026/09/11/espanol/colombia-coca-aspersion-aerea-piloto-putumayo.html
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/09/11/nyregion/high-holy-days-security-nyc.html
 **Isao Harimoto, Hiroshima Survivor and a Baseball Star in Japan, Dies at 86**\
 `A Korean-Japanese slugger known as Hit Machine, he was one of Japanese baseball’s greatest hitters in a career that lasted more than 20 years.`\
 https://www.nytimes.com/2026/09/11/sports/baseball/isao-harimoto-dead.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/us/100000011146976/911-Moment-of-Silence.html
 
 **25 Years After 9/11, a Nation Gathers to Remember**\
 `Solemn ceremonies at ground zero in New York, and across the United States, mourned the thousands of lives lost. President Trump paid tribute to the victims in a speech at the Pentagon.`\
