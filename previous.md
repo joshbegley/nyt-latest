@@ -46,7 +46,7 @@ https://www.nytimes.com/2026/09/12/opinion/ai-software-coding-apps.html
 `Moldova is a fault line in a new geopolitical reality.`\
 https://www.nytimes.com/2026/09/12/opinion/moldova-russia-european-union.html
 
-**Should Conservative StudentsAvoid Liberal Colleges?**\
+**Should Conservative Students Avoid Liberal Colleges?**\
 `Readers discuss a column by David French urging students to embrace having their ideas tested.`\
 https://www.nytimes.com/2026/09/12/opinion/conservative-students-liberal-colleges.html
 

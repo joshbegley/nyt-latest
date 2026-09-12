@@ -1,3 +1,7 @@
+**Should Conservative Students Avoid Liberal Colleges?**\
+`Readers discuss a column by David French urging students to embrace having their ideas tested.`\
+https://www.nytimes.com/2026/09/12/opinion/conservative-students-liberal-colleges.html
+
 **Trump Says Irish Unification Would Be ‘Fantastic,’ Breaking With Precedent**\
 `The United States is officially neutral on an issue that had been a source of decades of violence in Northern Ireland until a 1998 peace deal.`\
 https://www.nytimes.com/2026/09/12/world/europe/trump-ireland-unification-remarks.html
