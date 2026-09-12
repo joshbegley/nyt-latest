@@ -1,3 +1,11 @@
+**In Flood-Stricken Nepal, a Cool Gust Carries Hopes of a Miracle Rescue**\
+`Rescuers clawing through a hydropower tunnel clogged with mud, water and rock have found a pocket of air near where six workers are believed to be trapped.`\
+https://www.nytimes.com/2026/09/12/world/asia/nepal-floods-himalayas-hydropower-tunnel.html
+
+**As Millions of Birds Migrate, Residents Are Asked to Turn Off the Lights**\
+`Birds are drawn to lights, and more than a billion die each year after crashing into buildings, experts said.`\
+https://www.nytimes.com/2026/09/12/us/bird-seasonal-migration-lights.html
+
 **After the I.P.O., a Billion-Dollar Bill for Employee Paydays**\
 `A compensation strategy at start-ups keeps expenses low until they go public. At that point, the companies may face billions of dollars in catch-up expenses.`\
 https://www.nytimes.com/2026/09/12/business/dealbook/double-trigger-rsus.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/12/arts/music/music-hall-williamsburg-nyc-venues
 **Meet the Seamstress Most Trusted by Top Bridal Designers**\
 `For more than 30 years, Blanca Zhuzhingo has worked with top bridal designers like Vera Wang and Carolina Herrera. Now, as one of New York’s go-to alterations specialists, she’s busier than ever.`\
 https://www.nytimes.com/2026/09/12/style/seamstress-wedding-dresses.html
-
-**Why Finding Jimothy Is Really About Finding Ourselves**\
-`A hunchbacked raccoon captivated the internet, and sent this Seattle resident out looking.`\
-https://www.nytimes.com/2026/09/12/us/jimothy-search.html
-
-**09tmag-ackermann-slide-YGG2**\
-`The artist, an enfant terrible of the 1990s, has embraced a quieter, more enigmatic style. Just don’t ask her what it all means.`\
-https://www.nytimes.com/2026/09/12/t-magazine/rita-ackermann-interview.html
 
