@@ -1,3 +1,11 @@
+**Atlantic Hurricane Season Hasn’t Recorded a Single Hurricane This Year**\
+`There hasn’t been a single one yet.`\
+https://www.nytimes.com/2026/09/12/weather/atlantic-hurricane-season-latest-record.html
+
+**Naomi Klein and Astra Taylor Say the End of the World Is Now on the Table**\
+`In a new book, the writers argue that a powerful coalition of “end times fascists” is just fine with the earth’s demise.`\
+https://www.nytimes.com/2026/09/12/magazine/naomi-klein-astra-taylor-interview.html
+
 **EE. UU. y Brasil colaboran en la lucha contra la delincuencia. Una disputa diplomática pone en peligro esa operación**\
 `Algunos funcionarios afirman que el gobierno de Trump está obstaculizando algunas de las iniciativas de Brasil para ampliar la cooperación en la lucha contra la delincuencia transnacional.`\
 https://www.nytimes.com/es/2026/09/12/espanol/mundo/brasil-estados-unidos-trump-bolsonaro.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/12/world/asia/brics-summit-china-india-russia-ir
 **India Wants to Buy Fewer Chinese Imports, but Keeps Needing More**\
 `Trade between India and China has nearly doubled in five years, leaving New Delhi with a widening deficit and a difficult choice over how to build its industrial future.`\
 https://www.nytimes.com/2026/09/12/business/india-china-trade.html
-
-**Quote of the Day: 25 Years After Towers Fell, 2,983 Names Still Echoing**\
-`Quotation of the Day for Saturday, September 12, 2026.`\
-https://www.nytimes.com/2026/09/12/pageoneplus/quote-of-the-day-25-years-after-towers-fell-2983-names-still-echoing.html
-
-**In Doonbeg, Trump’s Irish Open Visit Prompts Protests and Praise**\
-`As the U.S. president heads to his Doonbeg hotel for the Irish Open, locals expressed both appreciation for the resort’s economic benefits and opposition to his politics.`\
-https://www.nytimes.com/2026/09/12/world/europe/trump-irish-open-ireland-doonbeg.html
 

@@ -1,3 +1,11 @@
+**Atlantic Hurricane Season Hasn’t Recorded a Single Hurricane This Year**\
+`There hasn’t been a single one yet.`\
+https://www.nytimes.com/2026/09/12/weather/atlantic-hurricane-season-latest-record.html
+
+**Naomi Klein and Astra Taylor Say the End of the World Is Now on the Table**\
+`In a new book, the writers argue that a powerful coalition of “end times fascists” is just fine with the earth’s demise.`\
+https://www.nytimes.com/2026/09/12/magazine/naomi-klein-astra-taylor-interview.html
+
 **EE. UU. y Brasil colaboran en la lucha contra la delincuencia. Una disputa diplomática pone en peligro esa operación**\
 `Algunos funcionarios afirman que el gobierno de Trump está obstaculizando algunas de las iniciativas de Brasil para ampliar la cooperación en la lucha contra la delincuencia transnacional.`\
 https://www.nytimes.com/es/2026/09/12/espanol/mundo/brasil-estados-unidos-trump-bolsonaro.html
