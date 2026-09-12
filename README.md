@@ -1,3 +1,23 @@
+**As Oil Prices Rise, BRICS Leaders Have What U.S. Doesn’t: Iran at the Table**\
+`Even so, finding unity among the loose grouping of emerging economies will be difficult as the war in the Middle East strains their own interests.`\
+https://www.nytimes.com/2026/09/12/world/asia/brics-summit-china-india-russia-iran.html
+
+**India Wants to Buy Fewer Chinese Imports, but Keeps Needing More**\
+`Trade between India and China has nearly doubled in five years, leaving New Delhi with a widening deficit and a difficult choice over how to build its industrial future.`\
+https://www.nytimes.com/2026/09/12/business/india-china-trade.html
+
+**Quote of the Day: 25 Years After Towers Fell, 2,983 Names Still Echoing**\
+`Quotation of the Day for Saturday, September 12, 2026.`\
+https://www.nytimes.com/2026/09/12/pageoneplus/quote-of-the-day-25-years-after-towers-fell-2983-names-still-echoing.html
+
+**In Doonbeg, Trump’s Irish Open Visit Prompts Protests and Praise**\
+`As the U.S. president heads to his Doonbeg hotel for the Irish Open, locals expressed both appreciation for the resort’s economic benefits and opposition to his politics.`\
+https://www.nytimes.com/2026/09/12/world/europe/trump-irish-open-ireland-doonbeg.html
+
+**The Doctor Pressuring African Leaders to Own the Ebola Response**\
+`International agencies and foreign donors have long driven campaigns to defeat diseases like Ebola. Dr. Jean Kaseya, the head of the Africa C.D.C., wants to change that.`\
+https://www.nytimes.com/2026/09/12/world/africa/jean-kaseya-africa-cdc.html
+
 **On This Day | Sept. 12: The S.S. Central America sank in a hurricane.**\
 `In 1857, the S.S. Central America, later known as the “Ship of Gold,” sank in a hurricane while carrying passengers and California gold, killing hundreds and helping intensify the Panic of 1857.`\
 https://www.nytimes.com/2026/09/12/learning/on-this-day-sept-12.html
@@ -161,22 +181,6 @@ https://www.nytimes.com/2026/09/11/climate/reflecting-pool-contractor-trump.html
 **Holdout Juror in Lindsay Clancy’s Mistrial Highlights a Divide in America**\
 `The nation’s reaction to the 11-1 deadlock that resulted in a mistrial for Lindsay Clancy was, like the jury itself, fiercely and unbridgeably divided.`\
 https://www.nytimes.com/2026/09/11/us/lindsay-clancy-trial-holdout-juror.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/us/100000011147285/11vid-living-ex-presidents-911.html
-
-**Nashville Says Yes to Renaming Airport for Dolly Parton**\
-`A board voted unanimously to honor the country star, philanthropist and Tennessee native. If the effort clears all hurdles, fliers will be “departin’ from Parton.”`\
-https://www.nytimes.com/2026/09/11/travel/nashville-airport-dolly-parton.html
-
-**Muere a los 37 años Lucien Smith, estrella del mundo del arte**\
-`Fue un fenómeno antes de los 30 años y se convirtió en un símbolo del formalismo zombi antes de abandonar el frenesí de las galerías por Montauk.`\
-https://www.nytimes.com/es/2026/09/11/espanol/cultura/muere-lucien-smith-artista.html
-
-**Before High Holy Days, Jewish Institutions in New York Increase Security**\
-`Jewish leaders say they have spent millions on additional security protections in recent years amid a rise in antisemitic incidents.`\
-https://www.nytimes.com/2026/09/11/nyregion/high-holy-days-security-nyc.html
 
 **25 Years After 9/11, a Nation Gathers to Remember**\
 `Solemn ceremonies at ground zero in New York, and across the United States, mourned the thousands of lives lost. President Trump paid tribute to the victims in a speech at the Pentagon.`\

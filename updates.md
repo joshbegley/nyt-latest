@@ -1,3 +1,7 @@
+**On This Day | Sept. 12: The S.S. Central America sank in a hurricane.**\
+`In 1857, the S.S. Central America, later known as the “Ship of Gold,” sank in a hurricane while carrying passengers and California gold, killing hundreds and helping intensify the Panic of 1857.`\
+https://www.nytimes.com/2026/09/12/learning/on-this-day-sept-12.html
+
 **Capers**\
 `Adam Wagner and Michael Lieberman put together a themeless puzzle full of conundrums and connections.`\
 https://www.nytimes.com/2026/09/11/crosswords/daily-puzzle-2026-09-12.html
