@@ -1,3 +1,19 @@
+**A Mastodon Tooth Is Discovered in a California Creek**\
+`A researcher surveying a San Mateo County creek stumbled upon a preserved Pacific mastodon molar estimated to be at least 10,000 years old.`\
+https://www.nytimes.com/2026/09/12/us/ice-age-mastodon-tooth-bay-area.html
+
+**Rare Mastodon Tooth Found in California Creek**\
+`Brigid Lynch, a geologist, was conducting a field survey in San Mateo County, Calif., when she saw a strange object sticking out from the creek. After a reverse Google image search, and an expert’s confirmation, she learned she had found a Pacific mastodon molar.`\
+https://www.nytimes.com/video/science/earth/100000011148165/rare-mastodon-tooth-found-in-california-creek.html
+
+**StarCraft Is Returning, but as an Open-World Shooter**\
+`The influential franchise is moving away from the real-time strategy genre with a game that’s directed by a veteran of the Far Cry series.`\
+https://www.nytimes.com/2026/09/12/arts/starcraft-shooter-blizzard.html
+
+**Anthropic C.E.O. Dario Amodei Calls for A.I. Slowdown**\
+`In an essay, the head of Anthropic laid out the rapidly advancing capabilities of artificial intelligence and said there needed to be greater safety controls across the industry.`\
+https://www.nytimes.com/2026/09/12/technology/anthropic-dario-amodei-ai-slowdown.html
+
 **Republican Campaign Aide Is Fired Over Nazi Photo**\
 `Senator Jon Husted, running in a high-stakes race in Ohio, dismissed his political director because of social media activity displaying a “complete lack” of judgment, a spokeswoman said.`\
 https://www.nytimes.com/2026/09/12/us/politics/husted-political-director-nazi-photo.html
