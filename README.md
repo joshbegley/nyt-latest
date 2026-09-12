@@ -1,3 +1,7 @@
+**Trump Demands Smithsonian Install ‘Colossus’ George Washington Statue**\
+`The president’s latest attack on the National Museum of American History reflects his longstanding desire for “patriotic” history.`\
+https://www.nytimes.com/2026/09/12/arts/design/trump-smithsonian-washington-statue.html
+
 **A Mastodon Tooth Is Discovered in a California Creek**\
 `A researcher surveying a San Mateo County creek stumbled upon a preserved Pacific mastodon molar estimated to be at least 10,000 years old.`\
 https://www.nytimes.com/2026/09/12/us/ice-age-mastodon-tooth-bay-area.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/12/world/middleeast/yemen-iran-war-houthis.html
 **Why It’s Difficult for Tech Companies to Rein In A.I.**\
 `Researchers say artificial intelligence is developing faster than the systems put in place to monitor and control it.`\
 https://www.nytimes.com/2026/09/12/technology/why-its-tough-for-tech-companies-to-keep-ai-out-of-trouble.html
-
-**Tyla and Other Stars Cancel Concerts Amid Anti-Immigrant Backlash**\
-`As anti-immigrant sentiment and vigilante violence fuel outrage across the continent, some fans abroad are rejecting South African performers.`\
-https://www.nytimes.com/2026/09/12/world/africa/tyla-south-africa-concert-nigeria-immigration.html
 
