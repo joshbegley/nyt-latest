@@ -1,3 +1,7 @@
+**Thinking Inside the Box**\
+`Henry Lin-David and Frank S. David’s Sunday puzzle might have you climbing the walls.`\
+https://www.nytimes.com/2026/09/12/crosswords/daily-puzzle-2026-09-13.html
+
 **Leaders of Russia, India and China Gather for BRICS Summit**\
 `The leaders of Russia, India, China and other nations met in New Delhi for this weekend’s BRICS summit. The coalition of nations was conceived as a counterweight to the West.`\
 https://www.nytimes.com/video/world/asia/100000011148825/brics-summit-china-india-russia-iran.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/09/12/espanol/cultura/hechizo-amor-practical-mag
 **Corrections: Sept. 12, 2026**\
 `Corrections that appeared in print on Saturday, Sept. 12, 2026.`\
 https://www.nytimes.com/2026/09/12/pageoneplus/corrections-sept-12-2026.html
-
-**Inside the Discussions at AI Companies Over a Superintelligence Doomsday**\
-`Researchers at Anthropic, OpenAI, Meta and Google are increasingly trying to raise awareness about the risks of artificial intelligence.`\
-https://www.nytimes.com/2026/09/12/technology/doomsday-discussions-ai-companies.html
 
