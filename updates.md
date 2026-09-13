@@ -1,3 +1,7 @@
+**Steve Kolb, C.F.D.A. President, Involved in Physical Altercation with Fashion Show Protesters**\
+`Steve Kolb, head of the Council of Fashion Designers of America, was captured on video physically restraining PETA protesters at a runway presentation on Sunday.`\
+https://www.nytimes.com/2026/09/13/style/cfda-steve-kolb-nyfw-protesters.html
+
 **Oil Prices Jump on Energy Supply Worries**\
 `Oil prices jumped and stock futures fell slightly on concerns that energy supplies from the Persian Gulf would be further diminished by a drone attack on a critical pipeline in Saudi Arabia.`\
 https://www.nytimes.com/2026/09/13/business/oil-prices-jump-on-energy-supply-worries.html
