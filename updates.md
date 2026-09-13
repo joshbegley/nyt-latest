@@ -1,3 +1,7 @@
+**Heavy Rains Bring Flooding to Parts of the East Coast**\
+`Up to five inches of rain were expected in parts of Connecticut, Long Island, Rhode Island and eastern Massachusetts on Sunday.`\
+https://www.nytimes.com/2026/09/13/weather/rain-flooding-connecticut-long-island.html
+
 **Mercurio se está encogiendo, y más rápido de lo que pensábamos**\
 `Nuevas estimaciones que utilizan las arrugas de la superficie del planeta muestran que el planeta más pequeño de nuestro sistema solar se contrae aún más, a un ritmo mayor de lo esperado.`\
 https://www.nytimes.com/es/2026/09/13/espanol/ciencia-y-tecnologia/mercurio-tamano-encogiendo.html
