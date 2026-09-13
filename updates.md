@@ -1,3 +1,7 @@
+**Let the U.S. Open Fly Its Freak Flag**\
+`Many are complaining about influencers invading Flushing Meadows. But their biggest crime is distracting from the glorious chaos that typifies this tournament.`\
+https://www.nytimes.com/2026/09/13/opinion/us-open-tennis-influencers.html
+
 **Let the US Open Fly Its Freak Flag**\
 `Many are complaining about influencers invading Flushing Meadows. But their biggest crime is distracting from the glorious chaos that typifies this tournament.`\
 https://www.nytimes.com/2026/09/13/opinion/us-open-tennis-influencers.html
