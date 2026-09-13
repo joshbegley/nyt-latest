@@ -1,3 +1,19 @@
+**The Deadly Truth About Football**\
+`Readers respond to front-page articles about the devastating brain disease C.T.E. among N.F.L. players. Also: Unpresidential actions; India’s U.S. policy.`\
+https://www.nytimes.com/2026/09/13/opinion/football-nfl-cte.html
+
+**Shrimp Peperonata, Chicken With Spicy Corn and KBBQ Meatballs**\
+`With Sam Sifton’s perfect steak recipe thrown in for good, delicious measure.`\
+https://www.nytimes.com/2026/09/13/dining/shrimp-peperonata-chicken-with-spicy-corn-and-kbbq-meatballs.html
+
+**Brandon Johnson to Seek Second Term as Mayor of Chicago**\
+`Despite low popularity ratings, Mr. Johnson said he wanted to double down on his progressive agenda and focus on improving life for working-class residents.`\
+https://www.nytimes.com/2026/09/13/us/brandon-johnson-chicago-mayor.html
+
+**What’s Happening to TV Comedies Is Not Funny**\
+`The demands of streaming, which is now how most viewers watch TV, are not suited to just plain old comedy.`\
+https://www.nytimes.com/2026/09/13/opinion/emmy-comedy-nominees-tv.html
+
 **Iran Will Meet With Gulf Arab States as Mideast Conflict Widens**\
 `Talks are expected tomorrow, officials said. Diplomacy to end the war with the United States has stalled and Iranian-allied forces have advanced in Yemen.`\
 https://www.nytimes.com/2026/09/13/world/middleeast/iran-meeting-gulf-arab-states.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/09/13/pageoneplus/quote-of-the-day-along-floods-pat
 **After Louvre Jewel Heist, Robberies Continue at French Museums**\
 `A spate of robberies, many in small towns, has raised questions about how to secure the country’s treasures.`\
 https://www.nytimes.com/2026/09/13/arts/design/louvre-france-museum-robberies.html
-
-**Along Himalayan Floods’ Path, Wiped Out Towns and Mounting Grief**\
-`Survivors tell the stories of the people and places buried under the mud after a disaster in Nepal.`\
-https://www.nytimes.com/2026/09/13/world/asia/nepal-tibet-floods-school-children.html
-
-**An Election in Sweden Shows Shifting Priorities**\
-`Sweden votes on Sunday. With various crises easing, center-left politics seem in vogue again, but the far right cannot be discounted.`\
-https://www.nytimes.com/2026/09/13/world/europe/sweden-election-sunday.html
-
-**Dolly Parton Fans Honor the Star at Their Weddings and Bachelorettes**\
-`From bachelorette trips to father-daughter dances, here are couples who wove Dolly Parton into their wedding celebrations.`\
-https://www.nytimes.com/2026/09/13/style/dolly-parton-themed-weddings-bachelorettes.html
-
-**Worried About Your College Kid? Now You Can Hire a Local Mom.**\
-`At some universities, parents can pay to make sure their children are cared for, the way they were back home.`\
-https://www.nytimes.com/2026/09/13/well/college-concierge-mom.html
 
