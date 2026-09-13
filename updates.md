@@ -1,3 +1,7 @@
+**After 30 Years, Judge Judy Is Stepping Down From Her TV Bench**\
+`Judith B. Sheindlin, the star of “Judge Judy” and spinoff shows, will wrap up a television career filled with acerbic takedowns of litigants.`\
+https://www.nytimes.com/2026/09/13/arts/television/judge-judy-retires.html
+
 **The Deadly Truth About Football**\
 `Readers respond to front-page articles about the devastating brain disease C.T.E. among N.F.L. players. Also: Unpresidential actions; India’s U.S. policy.`\
 https://www.nytimes.com/2026/09/13/opinion/football-nfl-cte.html

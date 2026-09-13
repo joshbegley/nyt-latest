@@ -1,3 +1,7 @@
+**After 30 Years, Judge Judy Is Stepping Down From Her TV Bench**\
+`Judith B. Sheindlin, the star of “Judge Judy” and spinoff shows, will wrap up a television career filled with acerbic takedowns of litigants.`\
+https://www.nytimes.com/2026/09/13/arts/television/judge-judy-retires.html
+
 **The Deadly Truth About Football**\
 `Readers respond to front-page articles about the devastating brain disease C.T.E. among N.F.L. players. Also: Unpresidential actions; India’s U.S. policy.`\
 https://www.nytimes.com/2026/09/13/opinion/football-nfl-cte.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/13/us/politics/obama-democrats-ai.html
 **Quote of the Day: Along Floods’ Path, Wiped-Out Towns and Mounting Grief**\
 `Quotation of the Day for Sunday, September 13, 2026.`\
 https://www.nytimes.com/2026/09/13/pageoneplus/quote-of-the-day-along-floods-path-wiped-out-towns-and-mounting-grief.html
-
-**After Louvre Jewel Heist, Robberies Continue at French Museums**\
-`A spate of robberies, many in small towns, has raised questions about how to secure the country’s treasures.`\
-https://www.nytimes.com/2026/09/13/arts/design/louvre-france-museum-robberies.html
 
