@@ -1,3 +1,7 @@
+**Trump usa el poder para reprimir la libertad de expresión. Así lo hace**\
+`El presidente de EE. UU. se ha valido de las agencias del gobierno para restringir las libertades de prensa, una campaña que, según los defensores de la libertad de expresión, tendrá efectos duraderos.`\
+https://www.nytimes.com/es/2026/09/13/espanol/estados-unidos/trump-libertad-expresion.html
+
 **What Anthropic’s C.E.O. Argued in His Call for Slower A.I. Development**\
 `Dario Amodei’s 3,800-word letter laid out a three-step plan to rein in artificial intelligence.`\
 https://www.nytimes.com/2026/09/13/technology/anthropic-ceo-slower-ai-development.html
