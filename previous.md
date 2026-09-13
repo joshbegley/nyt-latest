@@ -1,3 +1,11 @@
+**How Candidates Have Addressed Affordability in the Midterm Campaigns**\
+`Inflation and the cost of living have been the biggest drivers of campaigns this year, but the broad term “affordability” breaks down into specific issues, from housing to health care.`\
+https://www.nytimes.com/2026/09/13/us/politics/political-candidates-affordability-midterms.html
+
+**A Gender War Explodes in Utah Over the Courts, Abortion and Representation**\
+`When Republicans tried to repeal a law that voters passed banning gerrymandering, they found an opposition that flew in the face of Utah women’s “tradwives” imagery.`\
+https://www.nytimes.com/2026/09/13/us/politics/utah-mormon-women-abortion-redistricting.html
+
 **An Irish Castle Keeps a Piece of a Times Reporter’s Past**\
 `In 2000, after a life-threatening illness, Dan Barry went to the west of Ireland to breathe different air. He finds stories there still.`\
 https://www.nytimes.com/2026/09/13/insider/dunguaire-castle-ireland.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/12/opinion/ai-software-coding-apps.html
 **Moldova Has to Choose Between Russia and Europe**\
 `Moldova is a fault line in a new geopolitical reality.`\
 https://www.nytimes.com/2026/09/12/opinion/moldova-russia-european-union.html
-
-**Should Conservative Students Avoid Liberal Colleges?**\
-`Readers discuss a column by David French urging students to embrace having their ideas tested.`\
-https://www.nytimes.com/2026/09/12/opinion/conservative-students-liberal-colleges.html
-
-**Our Increasingly Insecure President**\
-`The $5,000 election promise shows how afraid Trump really is.`\
-https://www.nytimes.com/video/opinion/100000011144131/our-increasingly-insecure-president.html
 
