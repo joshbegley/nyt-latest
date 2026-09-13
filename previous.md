@@ -1,3 +1,35 @@
+**The Fix Was Almost In**\
+`The midterms dodge their first MAGA bullet. It won’t be the last.`\
+https://www.nytimes.com/2026/09/13/opinion/missouri-republicans-redistricting-map-midterms.html
+
+**The Real Problem With Influencers at the U.S. Open**\
+`Many are complaining about influencers invading Flushing Meadows. But their biggest crime is distracting from the glorious chaos that typifies this tournament.`\
+https://www.nytimes.com/2026/09/13/opinion/us-open-tennis-influencers.html
+
+**The Good, the Bad and the Good-Bad (Movie)**\
+`Why the best movies aren’t always the ones that are considered good.`\
+https://www.nytimes.com/2026/09/13/podcasts/the-daily/the-good-the-bad-and-the-good-bad-movie.html
+
+**NYT Connections Answers for September 14, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Sept. 14, 2026.`\
+https://www.nytimes.com/2026/09/13/crosswords/connections-companion-1191.html
+
+**Today’s Wordle Hints for September 14, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Sept. 14, 2026.`\
+https://www.nytimes.com/2026/09/13/crosswords/wordle-review-1913.html
+
+**Ella Langley. ‘Landman.’ The Rural Vibe Shift Is Real.**\
+`Social marginalization means something different today.`\
+https://www.nytimes.com/2026/09/13/opinion/ella-langley-landman-rural-politics.html
+
+**Opera Is in Trouble. Let’s Channel the Maestro.**\
+`An imagined look at what Arturo Toscanini, one of opera’s greatest interpreters, would say about the troubled art form of today.`\
+https://www.nytimes.com/2026/09/13/opinion/toscanini-opera-conductors-directors-art.html
+
+**NYT Strands Hints for September 14, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Sept. 14, 2026.`\
+https://www.nytimes.com/2026/09/13/crosswords/strands-sidekick-925.html
+
 **‘Viaje a las estrellas’ sigue conquistando generaciones**\
 `Después de 60 años, padres e hijos encuentran en la serie algo más que un lenguaje compartido: también valores que pueden transmitirse.`\
 https://www.nytimes.com/es/2026/09/13/espanol/cultura/viaje-estrellas-videojuego-star-trek.html
@@ -165,36 +197,4 @@ https://www.nytimes.com/2026/09/13/learning/on-this-day-sept-13.html
 **Judge Rules Homeland Security Plan to Cut FEMA Staff in Half Is Unlawful**\
 `The judge said the plan would hinder the agency’s ability to respond to disasters.`\
 https://www.nytimes.com/2026/09/12/us/politics/fema-cuts-homeland-security-trump-judge-rules.html
-
-**Trump’s Childhood Home Sells for Nearly $2 Million**\
-`The buyer, who plans to live in the home, has expressed an interest in remaining anonymous, a listing agent said.`\
-https://www.nytimes.com/2026/09/12/nyregion/trumps-childhood-home-sells-queens.html
-
-**‘Woman Unknown’ Takes Top Prize at Venice Film Festival**\
-`The film, a drama directed by May el-Toukhy, follows a Danish servant in the uneasy years after World War II. Lee Chang-dong’s “Possible Love” won the runner-up award.`\
-https://www.nytimes.com/2026/09/12/movies/venice-film-festival-golden-lion-woman-unknown.html
-
-**Thinking Inside the Box**\
-`Henry Lin-David and Frank S. David’s Sunday puzzle might have you climbing the walls.`\
-https://www.nytimes.com/2026/09/12/crosswords/daily-puzzle-2026-09-13.html
-
-**Leaders of Russia, India and China Gather for BRICS Summit**\
-`The leaders of Russia, India, China and other nations met in New Delhi for this weekend’s BRICS summit. The coalition of nations was conceived as a counterweight to the West.`\
-https://www.nytimes.com/video/world/asia/100000011148825/brics-summit-china-india-russia-iran.html
-
-**Trump Says Irish Unification Would Be ‘Fantastic’**\
-`Breaking with decades of U.S. neutrality on the issue, President Trump said Saturday that it would be “fantastic” if Ireland unified.`\
-https://www.nytimes.com/video/us/politics/100000011148830/trump-ireland-unification-politics-europe.html
-
-**Trump Demands Smithsonian Install ‘Colossus’ George Washington Statue**\
-`The president’s latest attack on the National Museum of American History reflects his longstanding desire for “patriotic” history.`\
-https://www.nytimes.com/2026/09/12/arts/design/trump-smithsonian-washington-statue.html
-
-**A Mastodon Tooth Is Discovered in a California Creek**\
-`A researcher surveying a San Mateo County creek stumbled upon a preserved Pacific mastodon molar estimated to be at least 10,000 years old.`\
-https://www.nytimes.com/2026/09/12/us/ice-age-mastodon-tooth-bay-area.html
-
-**Rare Mastodon Tooth Found in California Creek**\
-`Brigid Lynch, a geologist, was conducting a field survey in San Mateo County, Calif., when she saw a strange object sticking out from the creek. After a reverse Google image search, and an expert’s confirmation, she learned she had found a Pacific mastodon molar.`\
-https://www.nytimes.com/video/science/earth/100000011148165/rare-mastodon-tooth-found-in-california-creek.html
 

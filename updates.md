@@ -1,3 +1,35 @@
+**The Fix Was Almost In**\
+`The midterms dodge their first MAGA bullet. It won’t be the last.`\
+https://www.nytimes.com/2026/09/13/opinion/missouri-republicans-redistricting-map-midterms.html
+
+**The Real Problem With Influencers at the U.S. Open**\
+`Many are complaining about influencers invading Flushing Meadows. But their biggest crime is distracting from the glorious chaos that typifies this tournament.`\
+https://www.nytimes.com/2026/09/13/opinion/us-open-tennis-influencers.html
+
+**The Good, the Bad and the Good-Bad (Movie)**\
+`Why the best movies aren’t always the ones that are considered good.`\
+https://www.nytimes.com/2026/09/13/podcasts/the-daily/the-good-the-bad-and-the-good-bad-movie.html
+
+**NYT Connections Answers for September 14, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Sept. 14, 2026.`\
+https://www.nytimes.com/2026/09/13/crosswords/connections-companion-1191.html
+
+**Today’s Wordle Hints for September 14, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Sept. 14, 2026.`\
+https://www.nytimes.com/2026/09/13/crosswords/wordle-review-1913.html
+
+**Ella Langley. ‘Landman.’ The Rural Vibe Shift Is Real.**\
+`Social marginalization means something different today.`\
+https://www.nytimes.com/2026/09/13/opinion/ella-langley-landman-rural-politics.html
+
+**Opera Is in Trouble. Let’s Channel the Maestro.**\
+`An imagined look at what Arturo Toscanini, one of opera’s greatest interpreters, would say about the troubled art form of today.`\
+https://www.nytimes.com/2026/09/13/opinion/toscanini-opera-conductors-directors-art.html
+
+**NYT Strands Hints for September 14, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Sept. 14, 2026.`\
+https://www.nytimes.com/2026/09/13/crosswords/strands-sidekick-925.html
+
 **‘Viaje a las estrellas’ sigue conquistando generaciones**\
 `Después de 60 años, padres e hijos encuentran en la serie algo más que un lenguaje compartido: también valores que pueden transmitirse.`\
 https://www.nytimes.com/es/2026/09/13/espanol/cultura/viaje-estrellas-videojuego-star-trek.html
