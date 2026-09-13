@@ -1,3 +1,7 @@
+**Trump Blames Ukraine for Global Diesel Shortage**\
+`President Trump said Ukraine’s attacks on Russian oil refineries were “hurting the world,” amid a global energy shock driven primarily by the U.S.-Israeli war with Iran.`\
+https://www.nytimes.com/2026/09/13/business/trump-ukraine-diesel.html
+
 **Governor Polls 2026: See the Latest Election Polls**\
 `See the latest polling in this year’s gubernatorial elections in California, New York and more.`\
 https://www.nytimes.com/interactive/polls/governor-polls-2026.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/13/arts/design/roy-lichtenstein-pop-art-whitney-
 **10-Year-Old Children Predict the Future**\
 `Robot butlers. Underwater homes. Root beer perfume. Kids across the nation weigh in on what life will be like in the year 2050.`\
 https://www.nytimes.com/2026/09/13/style/10-year-old-children-predict-the-future.html
-
-**Book Review: ‘Redwood,’ Ben Macintyre**\
-`In “Redwood,” Ben Macintyre tells the story of a Russian spy in Iran who betrayed his country in exchange for an unusual request.`\
-https://www.nytimes.com/2026/09/13/books/review/redwood-ben-macintyre.html
 
