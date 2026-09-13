@@ -1,3 +1,7 @@
+**Trump Says ‘Negative Forces’ Are Calling for A.I. Regulation in the U.S.**\
+`President Trump referred to some of the people calling for A.I. regulation as “negative forces” on Sunday. His comments come as executives at some of the top companies in the industry called for a global slowdown of A.I. development.`\
+https://www.nytimes.com/video/technology/100000011149572/congress-ai-risks-johnson-trump.html
+
 **Unvaccinated Woman Likely Died of Measles Complications, Pa. County Coroner Says**\
 `The case is the third reported death linked to a rapidly expanding outbreak that has sickened more than 670 people in the state.`\
 https://www.nytimes.com/2026/09/13/well/unvaccinated-woman-measles-complications-death.html
@@ -70,8 +74,8 @@ https://www.nytimes.com/2026/09/13/us/brandon-johnson-chicago-mayor.html
 `The demands of streaming, which is now how most viewers watch TV, are not suited to just plain old comedy.`\
 https://www.nytimes.com/2026/09/13/opinion/emmy-comedy-nominees-tv.html
 
-**Iran Expected to Meet With Gulf Arab States as Mideast Conflict Widens**\
-`Talks are expected tomorrow, officials said, as a ship was targeted in the Strait of Hormuz and Iranian allies in Yemen said they had launched a new attack on Saudi Arabia.`\
+**Meeting Between Iran, Arab States Postponed as Mideast Diplomacy Stalls**\
+`Talks between the United States and Iran hit a dead end weeks ago, leaving Arab countries struggling to manage their ties to Tehran amid ongoing attacks.`\
 https://www.nytimes.com/2026/09/13/world/middleeast/iran-meeting-gulf-arab-states.html
 
 **The College Catwalk**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/13/us/politics/paxton-corruption-impeachment-tri
 **Can Design Heal Battles on the Mall and the American College Campus?**\
 `Among this fall’s highlights: Memorials and a sculpture garden in Washington, a focus on pioneering Black architects, and design worth traveling for in Brussels and Mexico City.`\
 https://www.nytimes.com/2026/09/13/arts/design/architecture-hirshhorn-museum-desert-storm-memorial.html
-
-**Don’t Call Him Pop: A New, Improved Roy Lichtenstein Is at the Whitney**\
-`The artist Alex Da Corte and the curator Meg Onli bring fresh eyes to a survey bridging high art and mass culture. Will Lichtenstein resonate with a young audience?`\
-https://www.nytimes.com/2026/09/13/arts/design/roy-lichtenstein-pop-art-whitney-museum-alex-da-corte.html
 
