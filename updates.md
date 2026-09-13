@@ -1,3 +1,7 @@
+**Russian Strikes on Ukraine Hits Near David Petraeus, ex-C.I.A. Chief**\
+`David Petraeus was at a rail station when a drone hit. Another train, with former Prime Minister Boris Johnson of Britain and other dignitaries, had just left, Ukrainian officials said.`\
+https://www.nytimes.com/2026/09/13/world/europe/ukraine-petraeus-russian-strike.html
+
 **Dr. Anthony Robbins, Who Expanded Health Care for the Poor, Dies at 85**\
 `As Vermont’s health commissioner, he helped create a model for providing food and dental care. Later, he directed the first national vaccine program.`\
 https://www.nytimes.com/2026/09/13/health/anthony-robbins-dead.html
