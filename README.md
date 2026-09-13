@@ -14,7 +14,7 @@ https://www.nytimes.com/es/2026/09/13/espanol/estados-unidos/trump-libertad-expr
 `Dario Amodei’s 3,800-word letter laid out a three-step plan to rein in artificial intelligence.`\
 https://www.nytimes.com/2026/09/13/technology/anthropic-ceo-slower-ai-development.html
 
-**Flash Flood Warnings Posted Amid Heavy Rain Across the East Coast**\
+**Heavy Rains Bring Flooding to Parts of the East Coast**\
 `Up to five inches of rain were expected in parts of Connecticut, Long Island, Rhode Island and eastern Massachusetts on Sunday.`\
 https://www.nytimes.com/2026/09/13/weather/rain-flooding-connecticut-long-island.html
 

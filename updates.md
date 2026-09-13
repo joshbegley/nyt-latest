@@ -1,3 +1,11 @@
+**Mercurio se está encogiendo, y más rápido de lo que pensábamos**\
+`Nuevas estimaciones que utilizan las arrugas de la superficie del planeta muestran que el planeta más pequeño de nuestro sistema solar se contrae aún más, a un ritmo mayor de lo esperado.`\
+https://www.nytimes.com/es/2026/09/13/espanol/ciencia-y-tecnologia/mercurio-tamano-encogiendo.html
+
+**What Anthropic CEO Dario Amodei Argued in His Call for AI Slowdown**\
+`Dario Amodei’s 3,800-word letter laid out a three-step plan to rein in artificial intelligence.`\
+https://www.nytimes.com/2026/09/13/technology/anthropic-ceo-slower-ai-development.html
+
 **En Yemen, nuevos combates desplazan a miles de personas**\
 `El hambre y las enfermedades han atormentado a Yemen durante años. Ahora, los combates entre el gobierno respaldado por Arabia Saudita y los hutíes respaldados por Irán lo empujan al límite.`\
 https://www.nytimes.com/es/2026/09/13/espanol/mundo/yemen-conflicto.html
