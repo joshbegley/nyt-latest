@@ -1,3 +1,11 @@
+**Ex-C.I.A Director on Train as Russian Drone Hits Ukrainian Station**\
+`European and American officials were leaving Ukraine on Sunday when a Russian drone detonated at a train station on the Ukraine-Poland border.`\
+https://www.nytimes.com/video/world/europe/100000011149962/ukraine-petraeus-russian-strike.html
+
+**Legionella Bacteria Found in Cooling Tower at Yankee Stadium**\
+`A recent outbreak of Legionnaires’ disease in the South Bronx has killed one person and infected nine others.`\
+https://www.nytimes.com/2026/09/13/nyregion/yankee-stadium-tower-legionnaires.html
+
 **George Chuvalo, Boxer Who Was Never Knocked Down, Dies at 89**\
 `Though he lost to the great champions of his era, his resilience earned him a reputation for having the sport’s strongest chin.`\
 https://www.nytimes.com/2026/09/13/obituaries/george-chuvalo-dead.html
