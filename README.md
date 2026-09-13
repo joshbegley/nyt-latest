@@ -42,7 +42,7 @@ https://www.nytimes.com/2026/09/13/us/politics/tom-tiffany-wisconsin-lake-wausau
 `The midterms dodge their first MAGA bullet. It won’t be the last.`\
 https://www.nytimes.com/2026/09/13/opinion/missouri-republicans-redistricting-map-midterms.html
 
-**Let the US Open Fly Its Freak Flag**\
+**Let the U.S. Open Fly Its Freak Flag**\
 `Many are complaining about influencers invading Flushing Meadows. But their biggest crime is distracting from the glorious chaos that typifies this tournament.`\
 https://www.nytimes.com/2026/09/13/opinion/us-open-tennis-influencers.html
 
