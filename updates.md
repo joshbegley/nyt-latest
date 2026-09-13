@@ -1,3 +1,7 @@
+**Celine Dion Returns to the Stage**\
+`Celine Dion returned to the stage on Saturday in her first full performance in six years. The Canadian singer had taken a hiatus after being diagnosed with a rare neurological condition known as stiff person syndrome.`\
+https://www.nytimes.com/video/arts/music/100000011149571/celine-dion-paris-comeback-concert.html
+
 **Self-Employed Workers Find Rewards — and Challenges — Building Their Own Businesses**\
 `Workers who forgo the traditional career path find there are rewards — and challenges — to going out on their own.`\
 https://www.nytimes.com/2026/09/13/business/self-employed-health-care-retirement.html

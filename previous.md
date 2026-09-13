@@ -1,3 +1,7 @@
+**Celine Dion Returns to the Stage**\
+`Celine Dion returned to the stage on Saturday in her first full performance in six years. The Canadian singer had taken a hiatus after being diagnosed with a rare neurological condition known as stiff person syndrome.`\
+https://www.nytimes.com/video/arts/music/100000011149571/celine-dion-paris-comeback-concert.html
+
 **Mercurio se está encogiendo, y más rápido de lo que pensábamos**\
 `Nuevas estimaciones que utilizan las arrugas de la superficie del planeta muestran que el planeta más pequeño de nuestro sistema solar se contrae aún más, a un ritmo mayor de lo esperado.`\
 https://www.nytimes.com/es/2026/09/13/espanol/ciencia-y-tecnologia/mercurio-tamano-encogiendo.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/13/books/review/redwood-ben-macintyre.html
 **They Built a Shrine to Cable TV. Then Everyone Cut the Cord.**\
 `They set out to celebrate the power and prestige of an industry that spanned MTV, HBO and Nickelodeon. Now, as cable’s fortunes have waned, the institution is changing, too.`\
 https://www.nytimes.com/2026/09/13/business/media/cable-television-cable-center-museum.html
-
-**How One Man’s Quest for a Musketeer’s Bones Got Him Locked Up**\
-`A secret archaeological dig inside a Dutch church has led to drama worthy of Alexandre Dumas. Did Wim Dijkman really find the bones of the fourth musketeer? We may never know.`\
-https://www.nytimes.com/2026/09/13/world/europe/wim-dijkman-musketeer-bones-dartagnan.html
 
