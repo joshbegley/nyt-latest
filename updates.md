@@ -1,3 +1,7 @@
+**Iran Will Meet With Gulf Arab States as Mideast Conflict Widens**\
+`Talks are expected tomorrow, officials said. Diplomacy to end the war with the United States has stalled and Iranian-allied forces have advanced in Yemen.`\
+https://www.nytimes.com/2026/09/13/world/middleeast/iran-meeting-gulf-arab-states.html
+
 **The College Catwalk**\
 `We take a look at what’s cool on campus.`\
 https://www.nytimes.com/2026/09/13/briefing/college-fashion.html

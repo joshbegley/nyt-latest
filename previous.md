@@ -1,3 +1,7 @@
+**Iran Will Meet With Gulf Arab States as Mideast Conflict Widens**\
+`Talks are expected tomorrow, officials said. Diplomacy to end the war with the United States has stalled and Iranian-allied forces have advanced in Yemen.`\
+https://www.nytimes.com/2026/09/13/world/middleeast/iran-meeting-gulf-arab-states.html
+
 **The College Catwalk**\
 `We take a look at what’s cool on campus.`\
 https://www.nytimes.com/2026/09/13/briefing/college-fashion.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/13/style/dolly-parton-themed-weddings-bacheloret
 **Worried About Your College Kid? Now You Can Hire a Local Mom.**\
 `At some universities, parents can pay to make sure their children are cared for, the way they were back home.`\
 https://www.nytimes.com/2026/09/13/well/college-concierge-mom.html
-
-**Tracing the Path of Nepal’s Flood**\
-`Mujib Mashal, our South Asia bureau chief, travels to points along a river in Nepal that turned into a deadly torrent, killing more than 1,300 people and leaving over 5,000 more missing as entire towns, bridges and roads were swept away.`\
-https://www.nytimes.com/video/world/asia/100000011129754/tracing-the-path-of-nepals-flood.html
 
