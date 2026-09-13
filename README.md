@@ -18,7 +18,7 @@ https://www.nytimes.com/2026/09/13/business/oil-prices-jump-on-energy-supply-wor
 `Andrea Carla Michaels and Dena R. Verkuil have another fruitful collaboration.`\
 https://www.nytimes.com/2026/09/13/crosswords/daily-puzzle-2026-09-14.html
 
-**A Cooling Tower at Yankee Stadium Tests Positive for Legionella Bacteria**\
+**Legionella Bacteria Found in Cooling Tower at Yankee Stadium**\
 `A recent outbreak of Legionnaires’ disease in the South Bronx has killed one person and infected nine others.`\
 https://www.nytimes.com/2026/09/13/nyregion/yankee-stadium-tower-legionnaires.html
 

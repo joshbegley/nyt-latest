@@ -1,3 +1,11 @@
+**George Chuvalo, Boxer Who Was Never Knocked Down, Dies at 89**\
+`Though he lost to the great champions of his era, his resilience earned him a reputation for having the sport’s strongest chin.`\
+https://www.nytimes.com/2026/09/13/obituaries/george-chuvalo-dead.html
+
+**Trump Promises to Lift Tariffs on Irish Whiskey After Appeals**\
+`President Trump’s decision, announced while visiting his golf course in Ireland, was the latest shift in his trade policies.`\
+https://www.nytimes.com/2026/09/13/world/europe/trump-tariffs-irish-whiskey.html
+
 **Steve Kolb, C.F.D.A. President, Involved in Physical Altercation with Fashion Show Protesters**\
 `Steve Kolb, head of the Council of Fashion Designers of America, was captured on video physically restraining PETA protesters at a runway presentation on Sunday.`\
 https://www.nytimes.com/2026/09/13/style/cfda-steve-kolb-nyfw-protesters.html
