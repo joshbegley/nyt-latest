@@ -1,3 +1,7 @@
+**En Yemen, nuevos combates desplazan a miles de personas**\
+`El hambre y las enfermedades han atormentado a Yemen durante años. Ahora, los combates entre el gobierno respaldado por Arabia Saudita y los hutíes respaldados por Irán lo empujan al límite.`\
+https://www.nytimes.com/es/2026/09/13/espanol/mundo/yemen-conflicto.html
+
 **Trump usa el poder para reprimir la libertad de expresión. Así lo hace**\
 `El presidente de EE. UU. se ha valido de las agencias del gobierno para restringir las libertades de prensa, una campaña que, según los defensores de la libertad de expresión, tendrá efectos duraderos.`\
 https://www.nytimes.com/es/2026/09/13/espanol/estados-unidos/trump-libertad-expresion.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/13/world/europe/wim-dijkman-musketeer-bones-dart
 **How Candidates Have Addressed Affordability in the Midterm Campaigns**\
 `Inflation and the cost of living have been the biggest drivers of campaigns this year, but the broad term “affordability” breaks down into specific issues, from housing to health care.`\
 https://www.nytimes.com/2026/09/13/us/politics/political-candidates-affordability-midterms.html
-
-**A Gender War Explodes in Utah Over the Courts, Abortion and Representation**\
-`When Republicans tried to repeal a law that voters passed banning gerrymandering, they found an opposition that flew in the face of Utah women’s “tradwives” imagery.`\
-https://www.nytimes.com/2026/09/13/us/politics/utah-mormon-women-abortion-redistricting.html
 

@@ -1,3 +1,7 @@
+**En Yemen, nuevos combates desplazan a miles de personas**\
+`El hambre y las enfermedades han atormentado a Yemen durante años. Ahora, los combates entre el gobierno respaldado por Arabia Saudita y los hutíes respaldados por Irán lo empujan al límite.`\
+https://www.nytimes.com/es/2026/09/13/espanol/mundo/yemen-conflicto.html
+
 **Trump usa el poder para reprimir la libertad de expresión. Así lo hace**\
 `El presidente de EE. UU. se ha valido de las agencias del gobierno para restringir las libertades de prensa, una campaña que, según los defensores de la libertad de expresión, tendrá efectos duraderos.`\
 https://www.nytimes.com/es/2026/09/13/espanol/estados-unidos/trump-libertad-expresion.html
