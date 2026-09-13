@@ -1,3 +1,7 @@
+**La Gen Z y la verdad sobre la podredumbre mental de las redes sociales**\
+`Tal vez consumir contenido sin sentido sea la única manera de ser libres en internet.`\
+https://www.nytimes.com/es/2026/09/13/espanol/opinion/brain-rot-que-es-instagram-tiktok-jovenes.html
+
 **Obama Urges Democrats to Move A.I. Oversight to the Center of Their Agenda**\
 `During a private fund-raiser, the former president warned that the technology could be “dangerous” if not managed urgently and with a clear plan.`\
 https://www.nytimes.com/2026/09/13/us/politics/obama-democrats-ai.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/12/world/canada/us-canada-trade-war-carney-trump
 **NYT Connections Answers for September 13, 2026**\
 `Scroll down for hints and conversation about the puzzle for Sunday, Sept. 13, 2026.`\
 https://www.nytimes.com/2026/09/12/crosswords/connections-companion-1190.html
-
-**NYT Strands Hints for September 13, 2026**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Sept. 13, 2026.`\
-https://www.nytimes.com/2026/09/12/crosswords/strands-sidekick-924.html
 
