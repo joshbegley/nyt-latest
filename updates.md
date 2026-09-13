@@ -1,3 +1,11 @@
+**Trump Says ‘Negative Forces’ Are Calling for A.I. Regulation in the U.S.**\
+`President Trump referred to some of the people calling for A.I. regulation as “negative forces” on Sunday. His comments come as executives at some of the top companies in the industry called for a global slowdown of A.I. development.`\
+https://www.nytimes.com/video/technology/100000011149572/congress-ai-risks-johnson-trump.html
+
+**Meeting Between Iran, Arab States Postponed as Mideast Diplomacy Stalls**\
+`Talks between the United States and Iran hit a dead end weeks ago, leaving Arab countries struggling to manage their ties to Tehran amid ongoing attacks.`\
+https://www.nytimes.com/2026/09/13/world/middleeast/iran-meeting-gulf-arab-states.html
+
 **Unvaccinated Woman Likely Died of Measles Complications, Pa. County Coroner Says**\
 `The case is the third reported death linked to a rapidly expanding outbreak that has sickened more than 670 people in the state.`\
 https://www.nytimes.com/2026/09/13/well/unvaccinated-woman-measles-complications-death.html
