@@ -1,3 +1,7 @@
+**Okinawa Set to Elect Conservative Amid Fears About China and Economy**\
+`Genta Koja was projected to become the Japanese archipelago’s next governor, a win for the country’s hawkish prime minister as she works to accelerate a military buildup.`\
+https://www.nytimes.com/2026/09/13/world/asia/japapn-okinawa-election-governor-conservative-china-economy.html
+
 **Celine Dion Begins Her Paris Comeback Concert Run**\
 `Her long-awaited concert return highlighted a side of the French-speaking superstar rarely seen in the United States.`\
 https://www.nytimes.com/2026/09/13/arts/music/celine-dion-paris-comeback-concert.html

@@ -1,3 +1,7 @@
+**Okinawa Set to Elect Conservative Amid Fears About China and Economy**\
+`Genta Koja was projected to become the Japanese archipelago’s next governor, a win for the country’s hawkish prime minister as she works to accelerate a military buildup.`\
+https://www.nytimes.com/2026/09/13/world/asia/japapn-okinawa-election-governor-conservative-china-economy.html
+
 **Celine Dion Begins Her Paris Comeback Concert Run**\
 `Her long-awaited concert return highlighted a side of the French-speaking superstar rarely seen in the United States.`\
 https://www.nytimes.com/2026/09/13/arts/music/celine-dion-paris-comeback-concert.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/13/crosswords/spelling-bee-forum.html
 **La Gen Z y la verdad sobre la podredumbre mental de las redes sociales**\
 `Tal vez consumir contenido sin sentido sea la única manera de ser libres en internet.`\
 https://www.nytimes.com/es/2026/09/13/espanol/opinion/brain-rot-que-es-instagram-tiktok-jovenes.html
-
-**Obama Urges Democrats to Move A.I. Oversight to the Center of Their Agenda**\
-`During a private fund-raiser, the former president warned that the technology could be “dangerous” if not managed urgently and with a clear plan.`\
-https://www.nytimes.com/2026/09/13/us/politics/obama-democrats-ai.html
 
