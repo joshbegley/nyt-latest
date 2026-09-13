@@ -1,3 +1,103 @@
+**‘Viaje a las estrellas’ sigue conquistando generaciones**\
+`Después de 60 años, padres e hijos encuentran en la serie algo más que un lenguaje compartido: también valores que pueden transmitirse.`\
+https://www.nytimes.com/es/2026/09/13/espanol/cultura/viaje-estrellas-videojuego-star-trek.html
+
+**Did Trump Win the Battle Over the Smithsonian?**\
+`Lonnie G. Bunch III, who has led the institution since 2019, parried the White House until deciding it was time to go.`\
+https://www.nytimes.com/2026/09/13/arts/design/did-trump-win-the-battle-over-the-smithsonian.html
+
+**As Fears of A.I. Catastrophe Magnify, Washington Stirs, but Mostly Slumbers**\
+`President Trump has been in the forefront of the “what-me-worry?” crowd, refusing to engage on how to balance the risks and rewards of A.I.`\
+https://www.nytimes.com/2026/09/13/us/politics/ai-catastrophe-fears-washington.html
+
+**Corrections: Sept. 13, 2026**\
+`Corrections that appeared in print on Sunday, Sept. 13, 2026.`\
+https://www.nytimes.com/2026/09/13/pageoneplus/corrections-sept-13-2026.html
+
+**Inside the $440 Million Collapse of Guidepost Montessori**\
+`A man with a vision set out to revolutionize preschool. It became a $440 million fiasco.`\
+https://www.nytimes.com/2026/09/13/business/guidepost-montessori-higher-ground-education-ray-girn.html
+
+**What to Expect at the 2026 Emmy Awards**\
+`“The Pitt” could make history at Monday night’s celebration of the best in TV, while “Widow’s Bay” and “Hacks” battle it out in the best comedy race.`\
+https://www.nytimes.com/2026/09/13/business/media/what-to-expect-at-the-2026-emmy-awards.html
+
+**Por qué este pueblo holandés enseña ‘Adolescencia’ en la escuela**\
+`La serie de Netflix se usa para impulsar el debate sobre los roles de género y enfrentar el acoso en línea.`\
+https://www.nytimes.com/es/2026/09/13/espanol/mundo/serie-adolescencia-clase-lecciones.html
+
+**Every Word My Employee Writes Reeks of A.I.**\
+`Plus: How to stop office talk about a colleague’s cancer diagnosis before it starts.`\
+https://www.nytimes.com/2026/09/13/business/employee-ai-use.html
+
+**Most People Don’t Think About Culverts. Their Failure Can Be Deadly.**\
+`Scientists simulated what happens when the pipes and tunnels that divert rainwater fail. In one scenario, 30 percent of local residents couldn’t reach an E.R.`\
+https://www.nytimes.com/2026/09/13/science/most-people-dont-think-about-culverts-their-failure-can-be-deadly.html
+
+**Self-Employed Workers Find Rewards — and Challenges — Building Their Own Businesses**\
+`Workers who forego the traditional career path find there are rewards — and challenges — to going out on their own.`\
+https://www.nytimes.com/2026/09/13/business/self-employed-health-care-retirement.html
+
+**Angie Nixon, Candidate for Senate, Takes Florida by Storm**\
+`The Democratic nominee for Senate faces strong headwinds in a decidedly Republican-leaning state. She has been a fighter, and an underdog, for years.`\
+https://www.nytimes.com/2026/09/13/us/politics/angie-nixon-florida-senate.html
+
+**How the Smithsonian Might Choose Its Next Leader**\
+`With Lonnie G. Bunch III stepping down as the Smithsonian’s secretary, President Trump will have his best chance to control the institution.`\
+https://www.nytimes.com/2026/09/13/arts/design/smithsonian-lonnie-bunch-next-secretary-selection.html
+
+**Martha Graham Dance Company Finds Home in Times Square Landmark**\
+`The Graham company, which turned 100 this year, moves into a dazzling new space, taking over 21,000 square feet of a Times Square landmark.`\
+https://www.nytimes.com/2026/09/13/realestate/martha-graham-dance-performance-space.html
+
+**How Iran’s Hard-liners Blew Up the Peace Deal with Trump**\
+`Opponents derailed the agreement with a clandestine effort to attack ships in the Strait of Hormuz, regime insiders say. Iran’s president was furious when he found out.`\
+https://www.nytimes.com/2026/09/13/world/middleeast/iran-hard-liners-sabotaged-peace-deal.html
+
+**For Populist Democrats, a Movement Fueled by Anger at Both Parties**\
+`A generation shaped by the pandemic and rising prices has helped drive an emergence of Democratic candidates who say they are as fed up as voters are.`\
+https://www.nytimes.com/2026/09/13/us/democrats-populists.html
+
+**Thomas Graham Jr., Resolute Arms Control Negotiator, Dies at 92**\
+`He served six presidents and was at the center of bureaucratic intrigue around the overwhelming threat of nuclear annihilation.`\
+https://www.nytimes.com/2026/09/13/us/thomas-graham-jr-dead.html
+
+**How Jodi Picoult’s New Novel Turned Out More Timely Than Planned**\
+`Pegged to the anniversary of 9/11, “Hollow Bones” now resonates with the riveting Lindsay Clancy trial.`\
+https://www.nytimes.com/2026/09/13/books/review/jodi-picoult-hollow-bones.html
+
+**Trump’s Canadian Tariffs Tear at Bond Between Twins Towns in Ontario and Michigan**\
+`A 50 percent U.S. tariff on Canadian steel is crippling a major Ontario mill, driving mass layoffs and rupturing a century of cross-border life with Michigan.`\
+https://www.nytimes.com/2026/09/13/world/canada/trump-tariffs-ontario-michigan-algoma-steel.html
+
+**Inside the Impeachment Trial that Threatened to End Ken Paxton’s Political Career**\
+`Mr. Paxton, the Texas attorney general now running for the U.S. Senate, was accused of abusing the power of his office to protect a campaign donor. He was acquitted on all counts.`\
+https://www.nytimes.com/2026/09/13/us/politics/paxton-corruption-impeachment-trial.html
+
+**Can Design Heal Battles on the Mall and the American College Campus?**\
+`Among this fall’s highlights: Memorials and a sculpture garden in Washington, a focus on pioneering Black architects, and design worth traveling for in Brussels and Mexico City.`\
+https://www.nytimes.com/2026/09/13/arts/design/architecture-hirshhorn-museum-desert-storm-memorial.html
+
+**Don’t Call Him Pop: A New, Improved Roy Lichtenstein Is at the Whitney**\
+`The artist Alex Da Corte and the curator Meg Onli bring fresh eyes to a survey bridging high art and mass culture. Will Lichtenstein resonate with a young audience?`\
+https://www.nytimes.com/2026/09/13/arts/design/roy-lichtenstein-pop-art-whitney-museum-alex-da-corte.html
+
+**10-Year-Old Children Predict the Future**\
+`Robot butlers. Underwater homes. Root beer perfume. Kids across the nation weigh in on what life will be like in the year 2050.`\
+https://www.nytimes.com/2026/09/13/style/10-year-old-children-predict-the-future.html
+
+**Book Review: ‘Redwood,’ Ben Macintyre**\
+`In “Redwood,” Ben Macintyre tells the story of a Russian spy in Iran who betrayed his country in exchange for an unusual request.`\
+https://www.nytimes.com/2026/09/13/books/review/redwood-ben-macintyre.html
+
+**They Built a Shrine to Cable TV. Then Everyone Cut the Cord.**\
+`They set out to celebrate the power and prestige of an industry that spanned MTV, HBO and Nickelodeon. Now, as cable’s fortunes have waned, the institution is changing, too.`\
+https://www.nytimes.com/2026/09/13/business/media/cable-television-cable-center-museum.html
+
+**How One Man’s Quest for a Musketeer’s Bones Got Him Locked Up**\
+`A secret archaeological dig inside a Dutch church has led to drama worthy of Alexandre Dumas. Did Wim Dijkman really find the bones of the fourth musketeer? We may never know.`\
+https://www.nytimes.com/2026/09/13/world/europe/wim-dijkman-musketeer-bones-dartagnan.html
+
 **How Candidates Have Addressed Affordability in the Midterm Campaigns**\
 `Inflation and the cost of living have been the biggest drivers of campaigns this year, but the broad term “affordability” breaks down into specific issues, from housing to health care.`\
 https://www.nytimes.com/2026/09/13/us/politics/political-candidates-affordability-midterms.html
@@ -97,104 +197,4 @@ https://www.nytimes.com/2026/09/12/us/ice-age-mastodon-tooth-bay-area.html
 **Rare Mastodon Tooth Found in California Creek**\
 `Brigid Lynch, a geologist, was conducting a field survey in San Mateo County, Calif., when she saw a strange object sticking out from the creek. After a reverse Google image search, and an expert’s confirmation, she learned she had found a Pacific mastodon molar.`\
 https://www.nytimes.com/video/science/earth/100000011148165/rare-mastodon-tooth-found-in-california-creek.html
-
-**StarCraft Is Returning, but as an Open-World Shooter**\
-`The influential franchise is moving away from the real-time strategy genre with a game that’s directed by a veteran of the Far Cry series.`\
-https://www.nytimes.com/2026/09/12/arts/starcraft-shooter-blizzard.html
-
-**How The Times Covers ‘60 Minutes’ and Other Journalists**\
-`Journalists don’t want to become the story. But newsrooms — and the people who run them — are the story for Times media reporters.`\
-https://www.nytimes.com/2026/09/12/insider/60-minutes-former-nyt-colleagues-media.html
-
-**Republican Campaign Aide Is Fired Over Nazi Photo**\
-`Senator Jon Husted, running in a high-stakes race in Ohio, dismissed his political director because of social media activity displaying a “complete lack” of judgment, a spokeswoman said.`\
-https://www.nytimes.com/2026/09/12/us/politics/husted-political-director-nazi-photo.html
-
-**Risks for Clicks: Why Online Influencers Push Shock Content**\
-`A growing number of social media creators are pushing the boundaries of safety and good taste to feed algorithms and win followers.`\
-https://www.nytimes.com/2026/09/12/us/influencers-social-media-algorithm.html
-
-**A Giant Plume of Saharan Dust Is Headed to Florida**\
-`Saharan dust often reaches South Florida, but rarely this late in the year.`\
-https://www.nytimes.com/2026/09/12/weather/saharan-dust-florida.html
-
-**Saudi Arabia’s Oil ‘Lifeline’ Was Attacked. Here’s What to Know.**\
-`A drone attack from Iraq forced Saudi Arabia to close its East-West pipeline, the kingdom said, threatening a key workaround to Iran’s Persian Gulf blockade.`\
-https://www.nytimes.com/2026/09/12/world/middleeast/saudi-arabia-oil-pipeline-attack.html
-
-**Death Toll From Ferry Fire in the Philippines Rises to 76**\
-`Rescuers were still searching for victims days after a fire broke out on the June Aster en route to a popular tourist site. At least 43 people survived.`\
-https://www.nytimes.com/2026/09/12/world/asia/philippines-ferry-fire-death-toll.html
-
-**Anthropic C.E.O. Dario Amodei Calls for A.I. Slowdown**\
-`In an essay, the head of Anthropic laid out the rapidly advancing capabilities of artificial intelligence and said there needed to be greater safety controls across the industry.`\
-https://www.nytimes.com/2026/09/12/technology/anthropic-dario-amodei-ai-slowdown.html
-
-**The Most Anticipated Debut at NYFW**\
-`Diane von Furstenberg is back at New York Fashion Week after almost a decade. Our chief fashion critic, Vanessa Friedman, questions whether the new designer’s reset goes far enough.`\
-https://www.nytimes.com/video/style/100000011132036/the-most-anticipated-debut-at-nyfw.html
-
-**Iran Finds Escalation Is Fruitful Path to Leverage in War With U.S.**\
-`Iran and its allies now hold sway over two key oil shipping routes, and Tehran is setting the stage for a diplomatic win that could enhance its stature.`\
-https://www.nytimes.com/2026/09/12/world/middleeast/iran-escalation-leverage-houthis-strait.html
-
-**The Cult of Trump Is Waning**\
-`The president has a very simple strategy for the midterms.`\
-https://www.nytimes.com/2026/09/12/opinion/trump-republican-convention-midterms.html
-
-**Republican Groups Rush to Paxton’s Aid in Texas After Staying on Sidelines**\
-`An organization allied with Senate G.O.P. leaders has booked more than $51 million in ads. Now, Ken Paxton has a financial edge after months of being outspent by his Democratic rival.`\
-https://www.nytimes.com/2026/09/12/us/politics/paxton-republican-pac-spending-midterms.html
-
-**It’s Not Too Early for Pumpkin Cake, Actually**\
-`Yossy Arefi takes the Bake Time Questionnaire.`\
-https://www.nytimes.com/2026/09/12/dining/its-not-too-early-for-pumpkin-cake-actually.html
-
-**Trump Says Irish Unification Would Be ‘Fantastic,’ Breaking With Precedent**\
-`The United States has been officially neutral on an issue that was a source of decades of violence in Northern Ireland until a 1998 peace deal.`\
-https://www.nytimes.com/2026/09/12/world/europe/trump-ireland-unification-remarks.html
-
-**Calvin Klein Strips Down**\
-`In her third collection, Veronica Leoni tries to reclaim the minimalist crown.`\
-https://www.nytimes.com/2026/09/12/style/calvin-klein-show-nyfw.html
-
-**In Flood-Stricken Nepal, a Cool Gust Carries Hopes of a Miracle Rescue**\
-`Rescuers clawing through a hydropower tunnel clogged with mud, water and rock have found a pocket of air near where six workers are believed to be trapped.`\
-https://www.nytimes.com/2026/09/12/world/asia/nepal-floods-himalayas-hydropower-tunnel.html
-
-**As Millions of Birds Migrate, Residents Are Asked to Turn Off the Lights**\
-`Birds are drawn to lights, and more than a billion die each year after crashing into buildings, experts said.`\
-https://www.nytimes.com/2026/09/12/us/bird-seasonal-migration-lights.html
-
-**After the I.P.O., a Billion-Dollar Bill for Employee Paydays**\
-`A compensation strategy at start-ups keeps expenses low until they go public. At that point, the companies may face billions of dollars in catch-up expenses.`\
-https://www.nytimes.com/2026/09/12/business/dealbook/double-trigger-rsus.html
-
-**Why Tech Oligarchs Are Willing to Risk Apocalypse**\
-`Silicon Valley’s strange new theology.`\
-https://www.nytimes.com/2026/09/12/opinion/ai-tech-apocalypse-silicon-valley.html
-
-**American Politics Hasn’t Recovered From 9/11**\
-`The Sept. 11 attacks carved deep and chaotic grooves into American politics, the economy and our sense of optimism, argues the contributing writer E.J. Dionne Jr. on “The Opinions.” So much went haywire in the 25 years that followed, he says. But that also means there’s an opportunity — and a desire — to move forward.`\
-https://www.nytimes.com/video/opinion/100000011148296/american-politics-hasnt-recovered-from-9-11.html
-
-**His Act Is Getting Old**\
-`The $5,000 election promise shows how afraid Trump really is.`\
-https://www.nytimes.com/2026/09/12/opinion/trump-insecure-5000-payments-midterms.html
-
-**Biden and Trump Called It a Genocide and Then Turned Away**\
-`We know how to stop the atrocities in Sudan. There’s just too little interest in doing so.`\
-https://www.nytimes.com/2026/09/12/opinion/trump-sudan-genocide.html
-
-**Trump Catastrophically Miscalculated in Georgia**\
-`The president incubated the career of one of his greatest critics.`\
-https://www.nytimes.com/2026/09/12/opinion/jon-ossoff-georgia-trump-election.html
-
-**A.I. Slopware Is Everywhere Now. Nobody Is Using It.**\
-`Just because A.I. is revolutionizing coding, doesn’t mean it will automatically revolutionize our apps.`\
-https://www.nytimes.com/2026/09/12/opinion/ai-software-coding-apps.html
-
-**Moldova Has to Choose Between Russia and Europe**\
-`Moldova is a fault line in a new geopolitical reality.`\
-https://www.nytimes.com/2026/09/12/opinion/moldova-russia-european-union.html
 
