@@ -1,3 +1,7 @@
+**The Recipe That Launched My NYT Column**\
+`And a special announcement to share.`\
+https://www.nytimes.com/2026/09/13/dining/the-recipe-that-launched-my-nyt-column.html
+
 **Okinawa Set to Elect Conservative Amid Fears About China and Economy**\
 `Genta Koja was projected to become the Japanese archipelago’s next governor, a win for the country’s hawkish prime minister as she works to accelerate a military buildup.`\
 https://www.nytimes.com/2026/09/13/world/asia/japapn-okinawa-election-governor-conservative-china-economy.html
@@ -92,7 +96,7 @@ https://www.nytimes.com/2026/09/13/business/guidepost-montessori-higher-ground-e
 
 **What to Expect at the 2026 Emmy Awards**\
 `“The Pitt” could make history at Monday night’s celebration of the best in TV, while “Widow’s Bay” and “Hacks” battle it out in the best comedy race.`\
-https://www.nytimes.com/2026/09/13/business/media/what-to-expect-at-the-2026-emmy-awards.html
+https://www.nytimes.com/2026/09/13/business/media/emmys-what-to-expect.html
 
 **Por qué este pueblo holandés enseña ‘Adolescencia’ en la escuela**\
 `La serie de Netflix se usa para impulsar el debate sobre los roles de género y enfrentar el acoso en línea.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/13/nyregion/farm-to-people-investment.html
 **NYT Spelling Bee Answers for September 13, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/09/13/crosswords/spelling-bee-forum.html
-
-**La Gen Z y la verdad sobre la podredumbre mental de las redes sociales**\
-`Tal vez consumir contenido sin sentido sea la única manera de ser libres en internet.`\
-https://www.nytimes.com/es/2026/09/13/espanol/opinion/brain-rot-que-es-instagram-tiktok-jovenes.html
 

@@ -1,3 +1,11 @@
+**The Recipe That Launched My NYT Column**\
+`And a special announcement to share.`\
+https://www.nytimes.com/2026/09/13/dining/the-recipe-that-launched-my-nyt-column.html
+
+**What to Expect at the 2026 Emmy Awards**\
+`“The Pitt” could make history at Monday night’s celebration of the best in TV, while “Widow’s Bay” and “Hacks” battle it out in the best comedy race.`\
+https://www.nytimes.com/2026/09/13/business/media/emmys-what-to-expect.html
+
 **Iran Will Meet With Gulf Arab States as Mideast Conflict Widens**\
 `Talks are expected tomorrow, officials said, as a ship was targeted in the Strait of Hormuz and Iranian allies in Yemen said they had launched a new attack on Saudi Arabia.`\
 https://www.nytimes.com/2026/09/13/world/middleeast/iran-meeting-gulf-arab-states.html
