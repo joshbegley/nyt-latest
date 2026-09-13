@@ -1,3 +1,43 @@
+**Obama Urges Democrats to Move A.I. Oversight to the Center of Their Agenda**\
+`During a private fund-raiser, the former president warned that the technology could be “dangerous” if not managed urgently and with a clear plan.`\
+https://www.nytimes.com/2026/09/13/us/politics/obama-democrats-ai.html
+
+**Quote of the Day: Along Floods’ Path, Wiped-Out Towns and Mounting Grief**\
+`Quotation of the Day for Sunday, September 13, 2026.`\
+https://www.nytimes.com/2026/09/13/pageoneplus/quote-of-the-day-along-floods-path-wiped-out-towns-and-mounting-grief.html
+
+**After Louvre Jewel Heist, Robberies Continue at French Museums**\
+`A spate of robberies, many in small towns, has raised questions about how to secure the country’s treasures.`\
+https://www.nytimes.com/2026/09/13/arts/design/louvre-france-museum-robberies.html
+
+**Along Himalayan Floods’ Path, Wiped Out Towns and Mounting Grief**\
+`Survivors tell the stories of the people and places buried under the mud after a disaster in Nepal.`\
+https://www.nytimes.com/2026/09/13/world/asia/nepal-tibet-floods-school-children.html
+
+**An Election in Sweden Shows Shifting Priorities**\
+`Sweden votes on Sunday. With various crises easing, center-left politics seem in vogue again, but the far right cannot be discounted.`\
+https://www.nytimes.com/2026/09/13/world/europe/sweden-election-sunday.html
+
+**Dolly Parton Fans Honor the Star at Their Weddings and Bachelorettes**\
+`From bachelorette trips to father-daughter dances, here are couples who wove Dolly Parton into their wedding celebrations.`\
+https://www.nytimes.com/2026/09/13/style/dolly-parton-themed-weddings-bachelorettes.html
+
+**Worried About Your College Kid? Now You Can Hire a Local Mom.**\
+`At some universities, parents can pay to make sure their children are cared for, the way they were back home.`\
+https://www.nytimes.com/2026/09/13/well/college-concierge-mom.html
+
+**Tracing the Path of Nepal’s Flood**\
+`Mujib Mashal, our South Asia bureau chief, travels to points along a river in Nepal that turned into a deadly torrent, killing more than 1,300 people and leaving over 5,000 more missing as entire, towns bridges and roads were swept away.`\
+https://www.nytimes.com/video/world/asia/100000011129754/tracing-the-path-of-nepals-flood.html
+
+**On This Day | Sept. 13: Rabin and Arafat shook hands.**\
+`In 1993, at the White House, Israeli Prime Minister Yitzhak Rabin and P.L.O. chairman Yasir Arafat shook hands after signing an accord granting limited Palestinian autonomy.`\
+https://www.nytimes.com/2026/09/13/learning/on-this-day-sept-13.html
+
+**Judge Rules Homeland Security Plan to Cut FEMA Staff in Half Is Unlawful**\
+`The judge said the plan would hinder the agency’s ability to respond to disasters.`\
+https://www.nytimes.com/2026/09/12/us/politics/fema-cuts-homeland-security-trump-judge-rules.html
+
 **Judge Rules Homeland Security Plan to Cut FEMA Staff in Half is Unlawful**\
 `The judge said the plan would hinder the agency’s ability to respond to disasters.`\
 https://www.nytimes.com/2026/09/12/us/politics/fema-cuts-homeland-security-trump-judge-rules.html
