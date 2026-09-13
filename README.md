@@ -1,3 +1,7 @@
+**Trump usa el poder para reprimir la libertad de expresión. Así lo hace**\
+`El presidente de EE. UU. se ha valido de las agencias del gobierno para restringir las libertades de prensa, una campaña que, según los defensores de la libertad de expresión, tendrá efectos duraderos.`\
+https://www.nytimes.com/es/2026/09/13/espanol/estados-unidos/trump-libertad-expresion.html
+
 **What Anthropic’s C.E.O. Argued in His Call for Slower A.I. Development**\
 `Dario Amodei’s 3,800-word letter laid out a three-step plan to rein in artificial intelligence.`\
 https://www.nytimes.com/2026/09/13/technology/anthropic-ceo-slower-ai-development.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/13/us/politics/political-candidates-affordabilit
 **A Gender War Explodes in Utah Over the Courts, Abortion and Representation**\
 `When Republicans tried to repeal a law that voters passed banning gerrymandering, they found an opposition that flew in the face of Utah women’s “tradwives” imagery.`\
 https://www.nytimes.com/2026/09/13/us/politics/utah-mormon-women-abortion-redistricting.html
-
-**An Irish Castle Keeps a Piece of a Times Reporter’s Past**\
-`In 2000, after a life-threatening illness, Dan Barry went to the west of Ireland to breathe different air. He finds stories there still.`\
-https://www.nytimes.com/2026/09/13/insider/dunguaire-castle-ireland.html
 
