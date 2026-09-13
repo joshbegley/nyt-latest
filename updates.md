@@ -1,3 +1,11 @@
+**What Anthropic’s C.E.O. Argued in His Call for Slower A.I. Development**\
+`Dario Amodei’s 3,800-word letter laid out a three-step plan to rein in artificial intelligence.`\
+https://www.nytimes.com/2026/09/13/technology/anthropic-ceo-slower-ai-development.html
+
+**Flash Flood Warnings Posted Amid Heavy Rain Across the East Coast**\
+`Up to five inches of rain were expected in parts of Connecticut, Long Island, Rhode Island and eastern Massachusetts on Sunday.`\
+https://www.nytimes.com/2026/09/13/weather/rain-flooding-connecticut-long-island.html
+
 **Top Lawmakers Agree A.I.’s Risks Are Rising but Say They Have No Quick Fix**\
 `House Speaker Mike Johnson warned on Sunday of competitive risks from China, and Hakeem Jeffries, the minority leader, said Congress should start regulatory talks this week.`\
 https://www.nytimes.com/2026/09/13/us/politics/congress-ai-risks-johnson-jeffries.html

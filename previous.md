@@ -1,3 +1,11 @@
+**What Anthropic’s C.E.O. Argued in His Call for Slower A.I. Development**\
+`Dario Amodei’s 3,800-word letter laid out a three-step plan to rein in artificial intelligence.`\
+https://www.nytimes.com/2026/09/13/technology/anthropic-ceo-slower-ai-development.html
+
+**Flash Flood Warnings Posted Amid Heavy Rain Across the East Coast**\
+`Up to five inches of rain were expected in parts of Connecticut, Long Island, Rhode Island and eastern Massachusetts on Sunday.`\
+https://www.nytimes.com/2026/09/13/weather/rain-flooding-connecticut-long-island.html
+
 **Top Lawmakers Agree A.I.’s Risks Are Rising but Say They Have No Quick Fix**\
 `House Speaker Mike Johnson warned on Sunday of competitive risks from China, and Hakeem Jeffries, the minority leader, said Congress should start regulatory talks this week.`\
 https://www.nytimes.com/2026/09/13/us/politics/congress-ai-risks-johnson-jeffries.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/13/us/politics/utah-mormon-women-abortion-redist
 **An Irish Castle Keeps a Piece of a Times Reporter’s Past**\
 `In 2000, after a life-threatening illness, Dan Barry went to the west of Ireland to breathe different air. He finds stories there still.`\
 https://www.nytimes.com/2026/09/13/insider/dunguaire-castle-ireland.html
-
-**‘Suddenly, the Women Got Up and Wished Me a Good Night ’**\
-`An evening at Rao’s, a single shoe on a subway platform and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://www.nytimes.com/2026/09/13/nyregion/metropolitan-diary.html
-
-**Farm to People Wants to Create a New Economy for Small Farms to Succeed**\
-`Farm to People, an online grocer working with over 200 farms in and around New York City, is entering another season of growth.`\
-https://www.nytimes.com/2026/09/13/nyregion/farm-to-people-investment.html
 
