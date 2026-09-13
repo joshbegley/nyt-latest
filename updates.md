@@ -1,3 +1,7 @@
+**Iran Will Meet With Gulf Arab States as Mideast Conflict Widens**\
+`Talks are expected tomorrow, officials said, as a ship was targeted in the Strait of Hormuz and Iranian allies in Yemen said they had launched a new attack on Saudi Arabia.`\
+https://www.nytimes.com/2026/09/13/world/middleeast/iran-meeting-gulf-arab-states.html
+
 **Let the U.S. Open Fly Its Freak Flag**\
 `Many are complaining about influencers invading Flushing Meadows. But their biggest crime is distracting from the glorious chaos that typifies this tournament.`\
 https://www.nytimes.com/2026/09/13/opinion/us-open-tennis-influencers.html
