@@ -1,3 +1,7 @@
+**Tracing the Path of Nepal’s Flood**\
+`Mujib Mashal, our South Asia bureau chief, travels to points along a river in Nepal that turned into a deadly torrent, killing more than 1,300 people and leaving over 5,000 more missing as entire towns, bridges and roads were swept away.`\
+https://www.nytimes.com/video/world/asia/100000011129754/tracing-the-path-of-nepals-flood.html
+
 **The Fix Was Almost In**\
 `The midterms dodge their first MAGA bullet. It won’t be the last.`\
 https://www.nytimes.com/2026/09/13/opinion/missouri-republicans-redistricting-map-midterms.html
