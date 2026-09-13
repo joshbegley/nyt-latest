@@ -1,3 +1,7 @@
+**Dr. Anthony Robbins, Who Expanded Health Care for the Poor, Dies at 85**\
+`As Vermont’s health commissioner, he helped create a model for providing food and dental care. Later, he directed the first national vaccine program.`\
+https://www.nytimes.com/2026/09/13/health/anthony-robbins-dead.html
+
 **Trump’s Supercharged Social Media**\
 `The president’s A.I. post barrages, far more intense than during his first term, are redefining the presidency and driving a debate over his state of mind.`\
 https://www.nytimes.com/2026/09/13/world/trump-ai-social-media-celine-dion.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/13/us/democrats-populists.html
 **Thomas Graham Jr., Resolute Arms Control Negotiator, Dies at 92**\
 `He served six presidents and was at the center of bureaucratic intrigue around the overwhelming threat of nuclear annihilation.`\
 https://www.nytimes.com/2026/09/13/us/thomas-graham-jr-dead.html
-
-**How Jodi Picoult’s New Novel Turned Out More Timely Than Planned**\
-`Pegged to the anniversary of 9/11, “Hollow Bones” now resonates with the riveting Lindsay Clancy trial.`\
-https://www.nytimes.com/2026/09/13/books/review/jodi-picoult-hollow-bones.html
 

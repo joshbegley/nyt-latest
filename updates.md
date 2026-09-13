@@ -1,3 +1,7 @@
+**Dr. Anthony Robbins, Who Expanded Health Care for the Poor, Dies at 85**\
+`As Vermont’s health commissioner, he helped create a model for providing food and dental care. Later, he directed the first national vaccine program.`\
+https://www.nytimes.com/2026/09/13/health/anthony-robbins-dead.html
+
 **Trump’s Supercharged Social Media**\
 `The president’s A.I. post barrages, far more intense than during his first term, are redefining the presidency and driving a debate over his state of mind.`\
 https://www.nytimes.com/2026/09/13/world/trump-ai-social-media-celine-dion.html
