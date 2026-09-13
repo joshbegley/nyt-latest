@@ -1,3 +1,7 @@
+**Heavy Rains Bring Flooding to Parts of the East Coast**\
+`Emergency workers responded to calls of people trapped in vehicles and homes. In Connecticut, Fairfield town officials said the flooding on Sunday was the worst in three decades.`\
+https://www.nytimes.com/2026/09/13/weather/rain-flooding-connecticut-long-island.html
+
 **Trump Blames Ukraine for Global Diesel Shortage**\
 `President Trump said Ukraine’s attacks on Russian oil refineries were “hurting the world,” amid a global energy shock driven primarily by the U.S.-Israeli war with Iran.`\
 https://www.nytimes.com/2026/09/13/business/trump-ukraine-diesel.html

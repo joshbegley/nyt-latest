@@ -27,7 +27,7 @@ https://www.nytimes.com/es/2026/09/13/espanol/estados-unidos/trump-libertad-expr
 https://www.nytimes.com/2026/09/13/technology/anthropic-ceo-slower-ai-development.html
 
 **Heavy Rains Bring Flooding to Parts of the East Coast**\
-`Parts of Connecticut were particularly hard hit on Sunday. Fairfield town officials said it was the worst flooding there in three decades.`\
+`Emergency workers responded to calls of people trapped in vehicles and homes. In Connecticut, Fairfield town officials said the flooding on Sunday was the worst in three decades.`\
 https://www.nytimes.com/2026/09/13/weather/rain-flooding-connecticut-long-island.html
 
 **Top Lawmakers Agree A.I.’s Risks Are Rising but Say They Have No Quick Fix**\
