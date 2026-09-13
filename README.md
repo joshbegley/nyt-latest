@@ -1,3 +1,35 @@
+**Quote of the Day: Along Floods’ Path, Wiped-Out Towns and Mounting Grief**\
+`Quotation of the Day for Sunday, September 13, 2026.`\
+https://www.nytimes.com/2026/09/13/pageoneplus/quote-of-the-day-along-floods-path-wiped-out-towns-and-mounting-grief.html
+
+**After Louvre Jewel Heist, Robberies Continue at French Museums**\
+`A spate of robberies, many in small towns, has raised questions about how to secure the country’s treasures.`\
+https://www.nytimes.com/2026/09/13/arts/design/louvre-france-museum-robberies.html
+
+**Along Himalayan Floods’ Path, Wiped Out Towns and Mounting Grief**\
+`Survivors tell the stories of the people and places buried under the mud after a disaster in Nepal.`\
+https://www.nytimes.com/2026/09/13/world/asia/nepal-tibet-floods-school-children.html
+
+**An Election in Sweden Shows Shifting Priorities**\
+`Sweden votes on Sunday. With various crises easing, center-left politics seem in vogue again, but the far right cannot be discounted.`\
+https://www.nytimes.com/2026/09/13/world/europe/sweden-election-sunday.html
+
+**Dolly Parton Fans Honor the Star at Their Weddings and Bachelorettes**\
+`From bachelorette trips to father-daughter dances, here are couples who wove Dolly Parton into their wedding celebrations.`\
+https://www.nytimes.com/2026/09/13/style/dolly-parton-themed-weddings-bachelorettes.html
+
+**Worried About Your College Kid? Now You Can Hire a Local Mom.**\
+`At some universities, parents can pay to make sure their children are cared for, the way they were back home.`\
+https://www.nytimes.com/2026/09/13/well/college-concierge-mom.html
+
+**Tracing the Path of Nepal’s Flood**\
+`Mujib Mashal, our South Asia bureau chief, travels to points along a river in Nepal that turned into a deadly torrent, killing more than 1,300 people and leaving over 5,000 more missing as entire, towns bridges and roads were swept away.`\
+https://www.nytimes.com/video/world/asia/100000011129754/tracing-the-path-of-nepals-flood.html
+
+**On This Day | Sept. 13: Rabin and Arafat shook hands.**\
+`In 1993, at the White House, Israeli Prime Minister Yitzhak Rabin and P.L.O. chairman Yasir Arafat shook hands after signing an accord granting limited Palestinian autonomy.`\
+https://www.nytimes.com/2026/09/13/learning/on-this-day-sept-13.html
+
 **Judge Rules Homeland Security Plan to Cut FEMA Staff in Half is Unlawful**\
 `The judge said the plan would hinder the agency’s ability to respond to disasters.`\
 https://www.nytimes.com/2026/09/12/us/politics/fema-cuts-homeland-security-trump-judge-rules.html
@@ -165,36 +197,4 @@ https://www.nytimes.com/2026/09/12/crosswords/strands-sidekick-924.html
 **Today’s Wordle Hints for September 13, 2026**\
 `Scroll down for hints and conversation about the puzzle for Sunday, Sept. 13, 2026.`\
 https://www.nytimes.com/2026/09/12/crosswords/wordle-review-1912.html
-
-**Atlantic Hurricane Season Hasn’t Recorded a Single Hurricane This Year**\
-`There hasn’t been a single one yet.`\
-https://www.nytimes.com/2026/09/12/weather/atlantic-hurricane-season-latest-record.html
-
-**Naomi Klein and Astra Taylor Say the End of the World Is Now on the Table**\
-`In a new book, the writers argue that a powerful coalition of “end times fascists” is just fine with the earth’s demise.`\
-https://www.nytimes.com/2026/09/12/magazine/naomi-klein-astra-taylor-interview.html
-
-**EE. UU. y Brasil colaboran en la lucha contra la delincuencia. Una disputa diplomática pone en peligro esa operación**\
-`Algunos funcionarios afirman que el gobierno de Trump está obstaculizando algunas de las iniciativas de Brasil para ampliar la cooperación en la lucha contra la delincuencia transnacional.`\
-https://www.nytimes.com/es/2026/09/12/espanol/mundo/brasil-estados-unidos-trump-bolsonaro.html
-
-**Walk This Way**\
-`Are there everyday activities that you can turn into a walk?`\
-https://www.nytimes.com/2026/09/12/briefing/walk-this-way.html
-
-**10 Songs We’re Talking About**\
-`Tinashe tears herself away, Sylvan Esso faces down chaos, the War on Drugs sings through an identity crisis, and more.`\
-https://www.nytimes.com/2026/09/12/arts/music/tinashe-sylvan-esso-rod-wave-playlist.html
-
-**4 horas con Elon Musk ¿Es demasiado?**\
-`Gran parte de lo que presenta el documental de Alex Gibney no es nuevo. Pero al unirlo todo, quiere que el espectador tome a Musk en serio como una amenaza para la democracia.`\
-https://www.nytimes.com/es/2026/09/12/espanol/cultura/elon-musk-documental-dura-4-horas.html
-
-**Preferíamos separarnos que bajar la guardia**\
-`Había aprendido que las relaciones son como bombas de tiempo: tienes que desactivarlas o te explotan en la cara.`\
-https://www.nytimes.com/es/2026/09/12/espanol/estilos-de-vida/modern-love-separacion-boda-griega.html
-
-**Inflation Complicates Trump’s Midterms Pitch to Voters**\
-`Gas prices are high, mortgage rates are climbing and inflation remains well above target, complicating the president’s midterm appeal.`\
-https://www.nytimes.com/2026/09/12/us/politics/trump-inflation-midterms.html
 
