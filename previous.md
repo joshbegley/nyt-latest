@@ -1,3 +1,7 @@
+**Celine Dion Begins Her Paris Comeback Concert Run**\
+`Her long-awaited concert return highlighted a side of the French-speaking superstar rarely seen in the United States.`\
+https://www.nytimes.com/2026/09/13/arts/music/celine-dion-paris-comeback-concert.html
+
 **After 30 Years, Judge Judy Is Stepping Down From Her TV Bench**\
 `Judith B. Sheindlin, the star of “Judge Judy” and spinoff shows, will wrap up a television career filled with acerbic takedowns of litigants.`\
 https://www.nytimes.com/2026/09/13/arts/television/judge-judy-retires.html
@@ -71,7 +75,7 @@ https://www.nytimes.com/es/2026/09/13/espanol/cultura/viaje-estrellas-videojuego
 https://www.nytimes.com/2026/09/13/arts/design/did-trump-win-the-battle-over-the-smithsonian.html
 
 **As Fears of A.I. Catastrophe Magnify, Washington Stirs, but Mostly Slumbers**\
-`President Trump has been in the forefront of the “what-me-worry?” crowd, refusing to engage on how to balance the risks and rewards of A.I.`\
+`President Trump has been at the forefront of the “what-me-worry?” crowd, refusing to engage on how to balance the risks and rewards of A.I.`\
 https://www.nytimes.com/2026/09/13/us/politics/ai-catastrophe-fears-washington.html
 
 **Corrections: Sept. 13, 2026**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/09/13/espanol/opinion/brain-rot-que-es-instagram
 **Obama Urges Democrats to Move A.I. Oversight to the Center of Their Agenda**\
 `During a private fund-raiser, the former president warned that the technology could be “dangerous” if not managed urgently and with a clear plan.`\
 https://www.nytimes.com/2026/09/13/us/politics/obama-democrats-ai.html
-
-**Quote of the Day: Along Floods’ Path, Wiped-Out Towns and Mounting Grief**\
-`Quotation of the Day for Sunday, September 13, 2026.`\
-https://www.nytimes.com/2026/09/13/pageoneplus/quote-of-the-day-along-floods-path-wiped-out-towns-and-mounting-grief.html
 

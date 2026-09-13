@@ -1,3 +1,11 @@
+**Celine Dion Begins Her Paris Comeback Concert Run**\
+`Her long-awaited concert return highlighted a side of the French-speaking superstar rarely seen in the United States.`\
+https://www.nytimes.com/2026/09/13/arts/music/celine-dion-paris-comeback-concert.html
+
+**As Fears of A.I. Catastrophe Magnify, Washington Stirs, but Mostly Slumbers**\
+`President Trump has been at the forefront of the “what-me-worry?” crowd, refusing to engage on how to balance the risks and rewards of A.I.`\
+https://www.nytimes.com/2026/09/13/us/politics/ai-catastrophe-fears-washington.html
+
 **After 30 Years, Judge Judy Is Stepping Down From Her TV Bench**\
 `Judith B. Sheindlin, the star of “Judge Judy” and spinoff shows, will wrap up a television career filled with acerbic takedowns of litigants.`\
 https://www.nytimes.com/2026/09/13/arts/television/judge-judy-retires.html
