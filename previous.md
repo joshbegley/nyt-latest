@@ -62,7 +62,7 @@ https://www.nytimes.com/2026/09/13/us/brandon-johnson-chicago-mayor.html
 `The demands of streaming, which is now how most viewers watch TV, are not suited to just plain old comedy.`\
 https://www.nytimes.com/2026/09/13/opinion/emmy-comedy-nominees-tv.html
 
-**Iran Will Meet With Gulf Arab States as Mideast Conflict Widens**\
+**Iran Expected to Meet With Gulf Arab States as Mideast Conflict Widens**\
 `Talks are expected tomorrow, officials said, as a ship was targeted in the Strait of Hormuz and Iranian allies in Yemen said they had launched a new attack on Saudi Arabia.`\
 https://www.nytimes.com/2026/09/13/world/middleeast/iran-meeting-gulf-arab-states.html
 

@@ -1,3 +1,7 @@
+**Iran Expected to Meet With Gulf Arab States as Mideast Conflict Widens**\
+`Talks are expected tomorrow, officials said, as a ship was targeted in the Strait of Hormuz and Iranian allies in Yemen said they had launched a new attack on Saudi Arabia.`\
+https://www.nytimes.com/2026/09/13/world/middleeast/iran-meeting-gulf-arab-states.html
+
 **Governor Polls 2026: See the Latest Election Polls**\
 `See the latest polling in this year’s gubernatorial elections in California, New York and more.`\
 https://www.nytimes.com/interactive/polls/governor-polls-2026.html
