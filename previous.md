@@ -1,6 +1,14 @@
+**San Francisco Opera Cancels Opening Night After Musicians Strike**\
+`The labor action forced the opera to cancel as patrons were finding their seats, and threw the season of one of the nation’s premier companies into limbo.`\
+https://www.nytimes.com/2026/09/13/arts/music/san-francisco-opera-strike.html
+
+**King Charles Will Convene A.I. Leaders Amid Calls to Slow Development**\
+`As alarm from the highest echelons of A.I. companies mounts, Buckingham Palace said the king would meet with executives to explore how the technology can be used for good.`\
+https://www.nytimes.com/2026/09/13/world/europe/king-charles-ai-meeting.html
+
 **Trump Says ‘Negative Forces’ Are Calling for A.I. Regulation in the U.S.**\
 `President Trump referred to some of the people calling for A.I. regulation as “negative forces” on Sunday. His comments come as executives at some of the top companies in the industry called for a global slowdown of A.I. development.`\
-https://www.nytimes.com/video/technology/100000011149572/congress-ai-risks-johnson-trump.html
+https://www.nytimes.com/video/technology/100000011149572/trump-says-negative-forces-are-calling-for-ai-regulation-in-the-us.html
 
 **Unvaccinated Woman Likely Died of Measles Complications, Pa. County Coroner Says**\
 `The case is the third reported death linked to a rapidly expanding outbreak that has sickened more than 670 people in the state.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/13/books/review/jodi-picoult-hollow-bones.html
 **Trump’s Canadian Tariffs Tear at Bond Between Twins Towns in Ontario and Michigan**\
 `A 50 percent U.S. tariff on Canadian steel is crippling a major Ontario mill, driving mass layoffs and rupturing a century of cross-border life with Michigan.`\
 https://www.nytimes.com/2026/09/13/world/canada/trump-tariffs-ontario-michigan-algoma-steel.html
-
-**Inside the Impeachment Trial that Threatened to End Ken Paxton’s Political Career**\
-`Mr. Paxton, the Texas attorney general now running for the U.S. Senate, was accused of abusing the power of his office to protect a campaign donor. He was acquitted on all counts.`\
-https://www.nytimes.com/2026/09/13/us/politics/paxton-corruption-impeachment-trial.html
-
-**Can Design Heal Battles on the Mall and the American College Campus?**\
-`Among this fall’s highlights: Memorials and a sculpture garden in Washington, a focus on pioneering Black architects, and design worth traveling for in Brussels and Mexico City.`\
-https://www.nytimes.com/2026/09/13/arts/design/architecture-hirshhorn-museum-desert-storm-memorial.html
 

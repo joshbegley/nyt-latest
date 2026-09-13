@@ -1,3 +1,15 @@
+**San Francisco Opera Cancels Opening Night After Musicians Strike**\
+`The labor action forced the opera to cancel as patrons were finding their seats, and threw the season of one of the nation’s premier companies into limbo.`\
+https://www.nytimes.com/2026/09/13/arts/music/san-francisco-opera-strike.html
+
+**King Charles Will Convene A.I. Leaders Amid Calls to Slow Development**\
+`As alarm from the highest echelons of A.I. companies mounts, Buckingham Palace said the king would meet with executives to explore how the technology can be used for good.`\
+https://www.nytimes.com/2026/09/13/world/europe/king-charles-ai-meeting.html
+
+**Trump Says ‘Negative Forces’ Are Calling for A.I. Regulation in the U.S.**\
+`President Trump referred to some of the people calling for A.I. regulation as “negative forces” on Sunday. His comments come as executives at some of the top companies in the industry called for a global slowdown of A.I. development.`\
+https://www.nytimes.com/video/technology/100000011149572/trump-says-negative-forces-are-calling-for-ai-regulation-in-the-us.html
+
 **Trump Says ‘Negative Forces’ Are Calling for A.I. Regulation in the U.S.**\
 `President Trump referred to some of the people calling for A.I. regulation as “negative forces” on Sunday. His comments come as executives at some of the top companies in the industry called for a global slowdown of A.I. development.`\
 https://www.nytimes.com/video/technology/100000011149572/congress-ai-risks-johnson-trump.html
