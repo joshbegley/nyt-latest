@@ -1,3 +1,7 @@
+**Unvaccinated Woman Likely Died of Measles Complications, Pa. County Coroner Says**\
+`The case is the third reported death linked to a rapidly expanding outbreak that has sickened more than 670 people in the state.`\
+https://www.nytimes.com/2026/09/13/well/unvaccinated-woman-measles-complications-death.html
+
 **Heavy Rains Bring Flooding to Parts of the East Coast**\
 `Emergency workers responded to calls of people trapped in vehicles and homes. In Connecticut, Fairfield town officials said the flooding on Sunday was the worst in three decades.`\
 https://www.nytimes.com/2026/09/13/weather/rain-flooding-connecticut-long-island.html
