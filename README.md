@@ -1,3 +1,7 @@
+**Steve Kolb, C.F.D.A. President, Involved in Physical Altercation with Fashion Show Protesters**\
+`Steve Kolb, head of the Council of Fashion Designers of America, was captured on video physically restraining PETA protesters at a runway presentation on Sunday.`\
+https://www.nytimes.com/2026/09/13/style/cfda-steve-kolb-nyfw-protesters.html
+
 **Oil Prices Jump on Energy Supply Worries**\
 `Oil prices jumped and stock futures fell slightly on concerns that energy supplies from the Persian Gulf would be further diminished by a drone attack on a critical pipeline in Saudi Arabia.`\
 https://www.nytimes.com/2026/09/13/business/oil-prices-jump-on-energy-supply-worries.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/13/business/self-employed-health-care-retirement
 **Angie Nixon, Candidate for Senate, Takes Florida by Storm**\
 `The Democratic nominee for Senate faces strong headwinds in a decidedly Republican-leaning state. She has been a fighter, and an underdog, for years.`\
 https://www.nytimes.com/2026/09/13/us/politics/angie-nixon-florida-senate.html
-
-**How the Smithsonian Might Choose Its Next Leader**\
-`With Lonnie G. Bunch III stepping down as the Smithsonian’s secretary, President Trump will have his best chance to control the institution.`\
-https://www.nytimes.com/2026/09/13/arts/design/smithsonian-lonnie-bunch-next-secretary-selection.html
 
