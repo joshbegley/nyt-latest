@@ -1,3 +1,7 @@
+**Ex-C.I.A Director on Train as Russian Drone Hits Ukrainian Station**\
+`European and American officials were leaving Ukraine on Sunday when a Russian drone detonated at a train station on the Ukraine-Poland border.`\
+https://www.nytimes.com/video/world/europe/100000011149962/ukraine-petraeus-russian-strike.html
+
 **George Chuvalo, Boxer Who Was Never Knocked Down, Dies at 89**\
 `Though he lost to the great champions of his era, his resilience earned him a reputation for having the sport’s strongest chin.`\
 https://www.nytimes.com/2026/09/13/obituaries/george-chuvalo-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/09/13/espanol/mundo/serie-adolescencia-clase-lec
 **Every Word My Employee Writes Reeks of A.I.**\
 `Plus: How to stop office talk about a colleague’s cancer diagnosis before it starts.`\
 https://www.nytimes.com/2026/09/13/business/employee-ai-use.html
-
-**Most People Don’t Think About Culverts. Their Failure Can Be Deadly.**\
-`Scientists simulated what happens when the pipes and tunnels that divert rainwater fail. In one scenario, 30 percent of local residents couldn’t reach an E.R.`\
-https://www.nytimes.com/2026/09/13/science/most-people-dont-think-about-culverts-their-failure-can-be-deadly.html
 
