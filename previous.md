@@ -1,3 +1,7 @@
+**Trump’s Supercharged Social Media**\
+`The president’s A.I. post barrages, far more intense than during his first term, are redefining the presidency and driving a debate over his state of mind.`\
+https://www.nytimes.com/2026/09/13/world/trump-ai-social-media-celine-dion.html
+
 **San Francisco Opera Cancels Opening Night After Musicians Strike**\
 `The labor action forced the opera to cancel as patrons were finding their seats, and threw the season of one of the nation’s premier companies into limbo.`\
 https://www.nytimes.com/2026/09/13/arts/music/san-francisco-opera-strike.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/13/us/thomas-graham-jr-dead.html
 **How Jodi Picoult’s New Novel Turned Out More Timely Than Planned**\
 `Pegged to the anniversary of 9/11, “Hollow Bones” now resonates with the riveting Lindsay Clancy trial.`\
 https://www.nytimes.com/2026/09/13/books/review/jodi-picoult-hollow-bones.html
-
-**Trump’s Canadian Tariffs Tear at Bond Between Twins Towns in Ontario and Michigan**\
-`A 50 percent U.S. tariff on Canadian steel is crippling a major Ontario mill, driving mass layoffs and rupturing a century of cross-border life with Michigan.`\
-https://www.nytimes.com/2026/09/13/world/canada/trump-tariffs-ontario-michigan-algoma-steel.html
 

@@ -1,3 +1,7 @@
+**Trump’s Supercharged Social Media**\
+`The president’s A.I. post barrages, far more intense than during his first term, are redefining the presidency and driving a debate over his state of mind.`\
+https://www.nytimes.com/2026/09/13/world/trump-ai-social-media-celine-dion.html
+
 **San Francisco Opera Cancels Opening Night After Musicians Strike**\
 `The labor action forced the opera to cancel as patrons were finding their seats, and threw the season of one of the nation’s premier companies into limbo.`\
 https://www.nytimes.com/2026/09/13/arts/music/san-francisco-opera-strike.html
