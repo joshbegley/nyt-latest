@@ -1,3 +1,7 @@
+**Oil Prices Jump on Energy Supply Worries**\
+`Oil prices jumped and stock futures fell slightly on concerns that energy supplies from the Persian Gulf would be further diminished by a drone attack on a critical pipeline in Saudi Arabia.`\
+https://www.nytimes.com/2026/09/13/business/oil-prices-jump-on-energy-supply-worries.html
+
 **NYT Crossword Answers for Sept. 14, 2026**\
 `Andrea Carla Michaels and Dena R. Verkuil have another fruitful collaboration.`\
 https://www.nytimes.com/2026/09/13/crosswords/daily-puzzle-2026-09-14.html
