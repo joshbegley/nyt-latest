@@ -1,3 +1,19 @@
+**An Irish Castle Keeps a Piece of a Times Reporter’s Past**\
+`In 2000, after a life-threatening illness, Dan Barry went to the west of Ireland to breathe different air. He finds stories there still.`\
+https://www.nytimes.com/2026/09/13/insider/dunguaire-castle-ireland.html
+
+**‘Suddenly, the Women Got Up and Wished Me a Good Night ’**\
+`An evening at Rao’s, a single shoe on a subway platform and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://www.nytimes.com/2026/09/13/nyregion/metropolitan-diary.html
+
+**Farm to People Wants to Create a New Economy for Small Farms to Succeed**\
+`Farm to People, an online grocer working with over 200 farms in and around New York City, is entering another season of growth.`\
+https://www.nytimes.com/2026/09/13/nyregion/farm-to-people-investment.html
+
+**NYT Spelling Bee Answers for September 13, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/09/13/crosswords/spelling-bee-forum.html
+
 **La Gen Z y la verdad sobre la podredumbre mental de las redes sociales**\
 `Tal vez consumir contenido sin sentido sea la única manera de ser libres en internet.`\
 https://www.nytimes.com/es/2026/09/13/espanol/opinion/brain-rot-que-es-instagram-tiktok-jovenes.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/09/12/opinion/conservative-students-liberal-college
 **Our Increasingly Insecure President**\
 `The $5,000 election promise shows how afraid Trump really is.`\
 https://www.nytimes.com/video/opinion/100000011144131/our-increasingly-insecure-president.html
-
-**Why Mokha, Historic Port That Shaped the Coffee Trade, Is a Prize in Yemen’s War**\
-`A strategic location on the Red Sea afforded the city centuries of trading dominance — and makes it a coveted target in today’s fighting in the Middle East.`\
-https://www.nytimes.com/2026/09/12/world/middleeast/mokha-yemen-houthis-mocha-coffee.html
-
-**My Friend Pocketed the Money From Our Charity Event. What Should I Do?**\
-`We trusted him to donate the money after the fact. He never did.`\
-https://www.nytimes.com/2026/09/12/magazine/friend-charity-fraud-ethics.html
-
-**Why Carney Isn’t Rushing Back to the Negotiating Table**\
-`Canadians back his tough stance on trade with the U.S. An expert says that support gives him little incentive to reopen talks soon.`\
-https://www.nytimes.com/2026/09/12/world/canada/us-canada-trade-war-carney-trump.html
-
-**NYT Connections Answers for September 13, 2026**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Sept. 13, 2026.`\
-https://www.nytimes.com/2026/09/12/crosswords/connections-companion-1190.html
 
