@@ -1,3 +1,7 @@
+**Mercurio se está encogiendo, y más rápido de lo que pensábamos**\
+`Nuevas estimaciones que utilizan las arrugas de la superficie del planeta muestran que el planeta más pequeño de nuestro sistema solar se contrae aún más, a un ritmo mayor de lo esperado.`\
+https://www.nytimes.com/es/2026/09/13/espanol/ciencia-y-tecnologia/mercurio-tamano-encogiendo.html
+
 **En Yemen, nuevos combates desplazan a miles de personas**\
 `El hambre y las enfermedades han atormentado a Yemen durante años. Ahora, los combates entre el gobierno respaldado por Arabia Saudita y los hutíes respaldados por Irán lo empujan al límite.`\
 https://www.nytimes.com/es/2026/09/13/espanol/mundo/yemen-conflicto.html
@@ -6,7 +10,7 @@ https://www.nytimes.com/es/2026/09/13/espanol/mundo/yemen-conflicto.html
 `El presidente de EE. UU. se ha valido de las agencias del gobierno para restringir las libertades de prensa, una campaña que, según los defensores de la libertad de expresión, tendrá efectos duraderos.`\
 https://www.nytimes.com/es/2026/09/13/espanol/estados-unidos/trump-libertad-expresion.html
 
-**What Anthropic’s C.E.O. Argued in His Call for Slower A.I. Development**\
+**What Anthropic CEO Dario Amodei Argued in His Call for AI Slowdown**\
 `Dario Amodei’s 3,800-word letter laid out a three-step plan to rein in artificial intelligence.`\
 https://www.nytimes.com/2026/09/13/technology/anthropic-ceo-slower-ai-development.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/13/business/media/cable-television-cable-center-
 **How One Man’s Quest for a Musketeer’s Bones Got Him Locked Up**\
 `A secret archaeological dig inside a Dutch church has led to drama worthy of Alexandre Dumas. Did Wim Dijkman really find the bones of the fourth musketeer? We may never know.`\
 https://www.nytimes.com/2026/09/13/world/europe/wim-dijkman-musketeer-bones-dartagnan.html
-
-**How Candidates Have Addressed Affordability in the Midterm Campaigns**\
-`Inflation and the cost of living have been the biggest drivers of campaigns this year, but the broad term “affordability” breaks down into specific issues, from housing to health care.`\
-https://www.nytimes.com/2026/09/13/us/politics/political-candidates-affordability-midterms.html
 
