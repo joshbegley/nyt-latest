@@ -1,3 +1,7 @@
+**Obama Urges Democrats to Move A.I. Oversight to the Center of Their Agenda**\
+`During a private fund-raiser, the former president warned that the technology could be “dangerous” if not managed urgently and with a clear plan.`\
+https://www.nytimes.com/2026/09/13/us/politics/obama-democrats-ai.html
+
 **Quote of the Day: Along Floods’ Path, Wiped-Out Towns and Mounting Grief**\
 `Quotation of the Day for Sunday, September 13, 2026.`\
 https://www.nytimes.com/2026/09/13/pageoneplus/quote-of-the-day-along-floods-path-wiped-out-towns-and-mounting-grief.html
@@ -30,7 +34,7 @@ https://www.nytimes.com/video/world/asia/100000011129754/tracing-the-path-of-nep
 `In 1993, at the White House, Israeli Prime Minister Yitzhak Rabin and P.L.O. chairman Yasir Arafat shook hands after signing an accord granting limited Palestinian autonomy.`\
 https://www.nytimes.com/2026/09/13/learning/on-this-day-sept-13.html
 
-**Judge Rules Homeland Security Plan to Cut FEMA Staff in Half is Unlawful**\
+**Judge Rules Homeland Security Plan to Cut FEMA Staff in Half Is Unlawful**\
 `The judge said the plan would hinder the agency’s ability to respond to disasters.`\
 https://www.nytimes.com/2026/09/12/us/politics/fema-cuts-homeland-security-trump-judge-rules.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/12/crosswords/connections-companion-1190.html
 **NYT Strands Hints for September 13, 2026**\
 `Scroll down for hints and conversation about the puzzle for Sunday, Sept. 13, 2026.`\
 https://www.nytimes.com/2026/09/12/crosswords/strands-sidekick-924.html
-
-**Today’s Wordle Hints for September 13, 2026**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Sept. 13, 2026.`\
-https://www.nytimes.com/2026/09/12/crosswords/wordle-review-1912.html
 
