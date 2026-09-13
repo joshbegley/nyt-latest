@@ -1,3 +1,7 @@
+**Top Lawmakers Agree A.I.’s Risks Are Rising but Say They Have No Quick Fix**\
+`House Speaker Mike Johnson warned on Sunday of competitive risks from China, and Hakeem Jeffries, the minority leader, said Congress should start regulatory talks this week.`\
+https://www.nytimes.com/2026/09/13/us/politics/congress-ai-risks-johnson-jeffries.html
+
 **The Recipe That Launched My NYT Column**\
 `And a special announcement to share.`\
 https://www.nytimes.com/2026/09/13/dining/the-recipe-that-launched-my-nyt-column.html
