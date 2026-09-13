@@ -1,3 +1,7 @@
+**Trump Blames Ukraine for Global Diesel Shortage**\
+`President Trump said Ukraine’s attacks on Russian oil refineries were “hurting the world,” amid a global energy shock driven primarily by the U.S.-Israeli war with Iran.`\
+https://www.nytimes.com/2026/09/13/business/trump-ukraine-diesel.html
+
 **Iran Expected to Meet With Gulf Arab States as Mideast Conflict Widens**\
 `Talks are expected tomorrow, officials said, as a ship was targeted in the Strait of Hormuz and Iranian allies in Yemen said they had launched a new attack on Saudi Arabia.`\
 https://www.nytimes.com/2026/09/13/world/middleeast/iran-meeting-gulf-arab-states.html
