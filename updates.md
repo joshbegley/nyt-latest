@@ -1,3 +1,19 @@
+**An Irish Castle Keeps a Piece of a Times Reporter’s Past**\
+`In 2000, after a life-threatening illness, Dan Barry went to the west of Ireland to breathe different air. He finds stories there still.`\
+https://www.nytimes.com/2026/09/13/insider/dunguaire-castle-ireland.html
+
+**‘Suddenly, the Women Got Up and Wished Me a Good Night ’**\
+`An evening at Rao’s, a single shoe on a subway platform and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://www.nytimes.com/2026/09/13/nyregion/metropolitan-diary.html
+
+**Farm to People Wants to Create a New Economy for Small Farms to Succeed**\
+`Farm to People, an online grocer working with over 200 farms in and around New York City, is entering another season of growth.`\
+https://www.nytimes.com/2026/09/13/nyregion/farm-to-people-investment.html
+
+**NYT Spelling Bee Answers for September 13, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/09/13/crosswords/spelling-bee-forum.html
+
 **La Gen Z y la verdad sobre la podredumbre mental de las redes sociales**\
 `Tal vez consumir contenido sin sentido sea la única manera de ser libres en internet.`\
 https://www.nytimes.com/es/2026/09/13/espanol/opinion/brain-rot-que-es-instagram-tiktok-jovenes.html
