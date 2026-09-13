@@ -1,3 +1,7 @@
+**Judge Rules Homeland Security Plan to Cut FEMA Staff in Half is Unlawful**\
+`The judge said the plan would hinder the agency’s ability to respond to disasters.`\
+https://www.nytimes.com/2026/09/12/us/politics/fema-cuts-homeland-security-trump-judge-rules.html
+
 **Trump’s Childhood Home Sells for Nearly $2 Million**\
 `The buyer, who plans to live in the home, has expressed an interest in remaining anonymous, a listing agent said.`\
 https://www.nytimes.com/2026/09/12/nyregion/trumps-childhood-home-sells-queens.html
