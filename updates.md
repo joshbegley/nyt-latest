@@ -1,3 +1,7 @@
+**Let the US Open Fly Its Freak Flag**\
+`Many are complaining about influencers invading Flushing Meadows. But their biggest crime is distracting from the glorious chaos that typifies this tournament.`\
+https://www.nytimes.com/2026/09/13/opinion/us-open-tennis-influencers.html
+
 **Okinawa Set to Elect Conservative Amid Fears About China and Economy**\
 `Genta Koja was projected to become the Japanese archipelago’s next governor, a win for the country’s hawkish prime minister as she works to accelerate a military buildup.`\
 https://www.nytimes.com/2026/09/13/world/asia/japapn-okinawa-election-governor-conservative-china-economy.html
