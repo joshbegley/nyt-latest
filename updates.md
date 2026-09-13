@@ -1,3 +1,11 @@
+**NYT Crossword Answers for Sept. 14, 2026**\
+`Andrea Carla Michaels and Dena R. Verkuil have another fruitful collaboration.`\
+https://www.nytimes.com/2026/09/13/crosswords/daily-puzzle-2026-09-14.html
+
+**A Cooling Tower at Yankee Stadium Tests Positive for Legionella Bacteria**\
+`A recent outbreak of Legionnaires’ disease in the South Bronx has killed one person and infected nine others.`\
+https://www.nytimes.com/2026/09/13/nyregion/yankee-stadium-tower-legionnaires.html
+
 **Russian Strikes on Ukraine Hits Near David Petraeus, ex-C.I.A. Chief**\
 `David Petraeus was at a rail station when a drone hit. Another train, with former Prime Minister Boris Johnson of Britain and other dignitaries, had just left, Ukrainian officials said.`\
 https://www.nytimes.com/2026/09/13/world/europe/ukraine-petraeus-russian-strike.html

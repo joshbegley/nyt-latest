@@ -1,3 +1,11 @@
+**NYT Crossword Answers for Sept. 14, 2026**\
+`Andrea Carla Michaels and Dena R. Verkuil have another fruitful collaboration.`\
+https://www.nytimes.com/2026/09/13/crosswords/daily-puzzle-2026-09-14.html
+
+**A Cooling Tower at Yankee Stadium Tests Positive for Legionella Bacteria**\
+`A recent outbreak of Legionnaires’ disease in the South Bronx has killed one person and infected nine others.`\
+https://www.nytimes.com/2026/09/13/nyregion/yankee-stadium-tower-legionnaires.html
+
 **Russian Strikes on Ukraine Hits Near David Petraeus, ex-C.I.A. Chief**\
 `David Petraeus was at a rail station when a drone hit. Another train, with former Prime Minister Boris Johnson of Britain and other dignitaries, had just left, Ukrainian officials said.`\
 https://www.nytimes.com/2026/09/13/world/europe/ukraine-petraeus-russian-strike.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/13/arts/design/smithsonian-lonnie-bunch-next-sec
 **Martha Graham Dance Company Finds Home in Times Square Landmark**\
 `The Graham company, which turned 100 this year, moves into a dazzling new space, taking over 21,000 square feet of a Times Square landmark.`\
 https://www.nytimes.com/2026/09/13/realestate/martha-graham-dance-performance-space.html
-
-**How Iran’s Hard-liners Blew Up the Peace Deal with Trump**\
-`Opponents derailed the agreement with a clandestine effort to attack ships in the Strait of Hormuz, regime insiders say. Iran’s president was furious when he found out.`\
-https://www.nytimes.com/2026/09/13/world/middleeast/iran-hard-liners-sabotaged-peace-deal.html
-
-**For Populist Democrats, a Movement Fueled by Anger at Both Parties**\
-`A generation shaped by the pandemic and rising prices has helped drive an emergence of Democratic candidates who say they are as fed up as voters are.`\
-https://www.nytimes.com/2026/09/13/us/democrats-populists.html
 
