@@ -1,3 +1,11 @@
+**Governor Polls 2026: See the Latest Election Polls**\
+`See the latest polling in this year’s gubernatorial elections in California, New York and more.`\
+https://www.nytimes.com/interactive/polls/governor-polls-2026.html
+
+**Heavy Rains Bring Flooding to Parts of the East Coast**\
+`Parts of Connecticut were particularly hard hit on Sunday. Fairfield town officials said it was the worst flooding there in three decades.`\
+https://www.nytimes.com/2026/09/13/weather/rain-flooding-connecticut-long-island.html
+
 **Celine Dion Returns to the Stage**\
 `Celine Dion returned to the stage on Saturday in her first full performance in six years. The Canadian singer had taken a hiatus after being diagnosed with a rare neurological condition known as stiff person syndrome.`\
 https://www.nytimes.com/video/arts/music/100000011149571/celine-dion-paris-comeback-concert.html
