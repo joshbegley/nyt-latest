@@ -1,3 +1,7 @@
+**Oil Prices Jump on Energy Supply Worries**\
+`Oil prices jumped and stock futures fell slightly on concerns that energy supplies from the Persian Gulf would be further diminished by a drone attack on a critical pipeline in Saudi Arabia.`\
+https://www.nytimes.com/2026/09/13/business/oil-prices-jump-on-energy-supply-worries.html
+
 **NYT Crossword Answers for Sept. 14, 2026**\
 `Andrea Carla Michaels and Dena R. Verkuil have another fruitful collaboration.`\
 https://www.nytimes.com/2026/09/13/crosswords/daily-puzzle-2026-09-14.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/13/us/politics/angie-nixon-florida-senate.html
 **How the Smithsonian Might Choose Its Next Leader**\
 `With Lonnie G. Bunch III stepping down as the Smithsonian’s secretary, President Trump will have his best chance to control the institution.`\
 https://www.nytimes.com/2026/09/13/arts/design/smithsonian-lonnie-bunch-next-secretary-selection.html
-
-**Martha Graham Dance Company Finds Home in Times Square Landmark**\
-`The Graham company, which turned 100 this year, moves into a dazzling new space, taking over 21,000 square feet of a Times Square landmark.`\
-https://www.nytimes.com/2026/09/13/realestate/martha-graham-dance-performance-space.html
 
