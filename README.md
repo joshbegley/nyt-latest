@@ -1,3 +1,7 @@
+**Unvaccinated Woman Likely Died of Measles Complications, Pa. County Coroner Says**\
+`The case is the third reported death linked to a rapidly expanding outbreak that has sickened more than 670 people in the state.`\
+https://www.nytimes.com/2026/09/13/well/unvaccinated-woman-measles-complications-death.html
+
 **Trump Blames Ukraine for Global Diesel Shortage**\
 `President Trump said Ukraine’s attacks on Russian oil refineries were “hurting the world,” amid a global energy shock driven primarily by the U.S.-Israeli war with Iran.`\
 https://www.nytimes.com/2026/09/13/business/trump-ukraine-diesel.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/13/arts/design/architecture-hirshhorn-museum-des
 **Don’t Call Him Pop: A New, Improved Roy Lichtenstein Is at the Whitney**\
 `The artist Alex Da Corte and the curator Meg Onli bring fresh eyes to a survey bridging high art and mass culture. Will Lichtenstein resonate with a young audience?`\
 https://www.nytimes.com/2026/09/13/arts/design/roy-lichtenstein-pop-art-whitney-museum-alex-da-corte.html
-
-**10-Year-Old Children Predict the Future**\
-`Robot butlers. Underwater homes. Root beer perfume. Kids across the nation weigh in on what life will be like in the year 2050.`\
-https://www.nytimes.com/2026/09/13/style/10-year-old-children-predict-the-future.html
 
