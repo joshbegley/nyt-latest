@@ -1,3 +1,11 @@
+**The College Catwalk**\
+`We take a look at what’s cool on campus.`\
+https://www.nytimes.com/2026/09/13/briefing/college-fashion.html
+
+**Tom Tiffany, Wisconsin Representative, Sustains Minor Injuries After Plane Lands in Lake**\
+`Representative Tom Tiffany, the Republican nominee for governor, said he and the pilot swam to safety after an emergency landing on Lake Wausau.`\
+https://www.nytimes.com/2026/09/13/us/politics/tom-tiffany-wisconsin-lake-wausau-plane-crash.html
+
 **The Fix Was Almost In**\
 `The midterms dodge their first MAGA bullet. It won’t be the last.`\
 https://www.nytimes.com/2026/09/13/opinion/missouri-republicans-redistricting-map-midterms.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/13/well/college-concierge-mom.html
 **Tracing the Path of Nepal’s Flood**\
 `Mujib Mashal, our South Asia bureau chief, travels to points along a river in Nepal that turned into a deadly torrent, killing more than 1,300 people and leaving over 5,000 more missing as entire towns, bridges and roads were swept away.`\
 https://www.nytimes.com/video/world/asia/100000011129754/tracing-the-path-of-nepals-flood.html
-
-**On This Day | Sept. 13: Rabin and Arafat shook hands.**\
-`In 1993, at the White House, Israeli Prime Minister Yitzhak Rabin and P.L.O. chairman Yasir Arafat shook hands after signing an accord granting limited Palestinian autonomy.`\
-https://www.nytimes.com/2026/09/13/learning/on-this-day-sept-13.html
-
-**Judge Rules Homeland Security Plan to Cut FEMA Staff in Half Is Unlawful**\
-`The judge said the plan would hinder the agency’s ability to respond to disasters.`\
-https://www.nytimes.com/2026/09/12/us/politics/fema-cuts-homeland-security-trump-judge-rules.html
 

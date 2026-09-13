@@ -1,3 +1,11 @@
+**The College Catwalk**\
+`We take a look at what’s cool on campus.`\
+https://www.nytimes.com/2026/09/13/briefing/college-fashion.html
+
+**Tom Tiffany, Wisconsin Representative, Sustains Minor Injuries After Plane Lands in Lake**\
+`Representative Tom Tiffany, the Republican nominee for governor, said he and the pilot swam to safety after an emergency landing on Lake Wausau.`\
+https://www.nytimes.com/2026/09/13/us/politics/tom-tiffany-wisconsin-lake-wausau-plane-crash.html
+
 **Tracing the Path of Nepal’s Flood**\
 `Mujib Mashal, our South Asia bureau chief, travels to points along a river in Nepal that turned into a deadly torrent, killing more than 1,300 people and leaving over 5,000 more missing as entire towns, bridges and roads were swept away.`\
 https://www.nytimes.com/video/world/asia/100000011129754/tracing-the-path-of-nepals-flood.html
