@@ -1,3 +1,7 @@
+**Top Lawmakers Agree A.I.’s Risks Are Rising but Say They Have No Quick Fix**\
+`House Speaker Mike Johnson warned on Sunday of competitive risks from China, and Hakeem Jeffries, the minority leader, said Congress should start regulatory talks this week.`\
+https://www.nytimes.com/2026/09/13/us/politics/congress-ai-risks-johnson-jeffries.html
+
 **The Recipe That Launched My NYT Column**\
 `And a special announcement to share.`\
 https://www.nytimes.com/2026/09/13/dining/the-recipe-that-launched-my-nyt-column.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/13/nyregion/metropolitan-diary.html
 **Farm to People Wants to Create a New Economy for Small Farms to Succeed**\
 `Farm to People, an online grocer working with over 200 farms in and around New York City, is entering another season of growth.`\
 https://www.nytimes.com/2026/09/13/nyregion/farm-to-people-investment.html
-
-**NYT Spelling Bee Answers for September 13, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/09/13/crosswords/spelling-bee-forum.html
 
