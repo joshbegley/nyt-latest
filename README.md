@@ -1,3 +1,7 @@
+**Judge Rules Homeland Security Plan to Cut FEMA Staff in Half is Unlawful**\
+`The judge said the plan would hinder the agency’s ability to respond to disasters.`\
+https://www.nytimes.com/2026/09/12/us/politics/fema-cuts-homeland-security-trump-judge-rules.html
+
 **Trump’s Childhood Home Sells for Nearly $2 Million**\
 `The buyer, who plans to live in the home, has expressed an interest in remaining anonymous, a listing agent said.`\
 https://www.nytimes.com/2026/09/12/nyregion/trumps-childhood-home-sells-queens.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/09/12/espanol/estilos-de-vida/modern-love-separa
 **Inflation Complicates Trump’s Midterms Pitch to Voters**\
 `Gas prices are high, mortgage rates are climbing and inflation remains well above target, complicating the president’s midterm appeal.`\
 https://www.nytimes.com/2026/09/12/us/politics/trump-inflation-midterms.html
-
-**Cómo terminar bien una relación**\
-`Una serie de estudios descubrió que darle un buen fin a una relación resulta en menos arrepentimientos y transiciones de vida más fáciles. Te decimos cómo lograr una “despedida conectada”.`\
-https://www.nytimes.com/es/2026/09/12/espanol/adios-relacion-despedida.html
 
