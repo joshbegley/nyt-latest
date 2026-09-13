@@ -1,3 +1,7 @@
+**Russian Strikes on Ukraine Hits Near David Petraeus, ex-C.I.A. Chief**\
+`David Petraeus was at a rail station when a drone hit. Another train, with former Prime Minister Boris Johnson of Britain and other dignitaries, had just left, Ukrainian officials said.`\
+https://www.nytimes.com/2026/09/13/world/europe/ukraine-petraeus-russian-strike.html
+
 **Dr. Anthony Robbins, Who Expanded Health Care for the Poor, Dies at 85**\
 `As Vermont’s health commissioner, he helped create a model for providing food and dental care. Later, he directed the first national vaccine program.`\
 https://www.nytimes.com/2026/09/13/health/anthony-robbins-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/13/world/middleeast/iran-hard-liners-sabotaged-p
 **For Populist Democrats, a Movement Fueled by Anger at Both Parties**\
 `A generation shaped by the pandemic and rising prices has helped drive an emergence of Democratic candidates who say they are as fed up as voters are.`\
 https://www.nytimes.com/2026/09/13/us/democrats-populists.html
-
-**Thomas Graham Jr., Resolute Arms Control Negotiator, Dies at 92**\
-`He served six presidents and was at the center of bureaucratic intrigue around the overwhelming threat of nuclear annihilation.`\
-https://www.nytimes.com/2026/09/13/us/thomas-graham-jr-dead.html
 
