@@ -135,7 +135,7 @@ https://www.nytimes.com/2026/09/13/business/employee-ai-use.html
 https://www.nytimes.com/2026/09/13/science/most-people-dont-think-about-culverts-their-failure-can-be-deadly.html
 
 **Self-Employed Workers Find Rewards — and Challenges — Building Their Own Businesses**\
-`Workers who forego the traditional career path find there are rewards — and challenges — to going out on their own.`\
+`Workers who forgo the traditional career path find there are rewards — and challenges — to going out on their own.`\
 https://www.nytimes.com/2026/09/13/business/self-employed-health-care-retirement.html
 
 **Angie Nixon, Candidate for Senate, Takes Florida by Storm**\

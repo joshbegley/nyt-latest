@@ -1,3 +1,7 @@
+**Self-Employed Workers Find Rewards — and Challenges — Building Their Own Businesses**\
+`Workers who forgo the traditional career path find there are rewards — and challenges — to going out on their own.`\
+https://www.nytimes.com/2026/09/13/business/self-employed-health-care-retirement.html
+
 **Heavy Rains Bring Flooding to Parts of the East Coast**\
 `Up to five inches of rain were expected in parts of Connecticut, Long Island, Rhode Island and eastern Massachusetts on Sunday.`\
 https://www.nytimes.com/2026/09/13/weather/rain-flooding-connecticut-long-island.html
