@@ -15,7 +15,7 @@ https://www.nytimes.com/2026/09/14/business/energy-environment/trump-diesel-russ
 https://www.nytimes.com/video/us/100000011151467/macklemore-dropped-ed-sheeran-tour-palestine.html
 
 **The National Debt Never Scared Me. It Scares Me.**\
-`The national debt is too big to ignore--it could all end badly.`\
+`It’s too big to ignore. And it could all end badly.`\
 https://www.nytimes.com/2026/09/14/opinion/national-debt-trump.html
 
 **Macklemore Dropped From Ed Sheeran Tour After ‘Free Palestine’ Remarks**\
@@ -70,7 +70,7 @@ https://www.nytimes.com/2026/09/14/arts/music/wynton-marsalis-liberty-symphony.h
 `Aun cuando Pekín insta a EE. UU. a no exagerar los peligros de la IA, su propio jefe de espionaje presenta la tecnología como una amenaza para la seguridad del Partido Comunista.`\
 https://www.nytimes.com/es/2026/09/14/espanol/mundo/china-ia-espionaje-riesgo-partido.html
 
-**Vance to Campaign in Kansas as Democrats Target a Republican Stronghold**\
+**Vance Campaigns in Kansas as Democrats Target a Republican Stronghold**\
 `Vice President JD Vance is beginning a key final stretch of midterm campaigning by dropping in on the Senate race in Kansas, where Republicans were long seen as heavily favored.`\
 https://www.nytimes.com/2026/09/14/us/politics/jd-vance-kansas-senate-race.html
 
