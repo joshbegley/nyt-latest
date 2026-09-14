@@ -1,3 +1,11 @@
+**Safety Alert System Returns for New York City Private Schools**\
+`Silenced ahead of the World Cup, an emergency notification system for private and parochial schools will launch Tuesday as part of Notify NYC.`\
+https://www.nytimes.com/2026/09/14/nyregion/nyc-private-school-safety-alert-system.html
+
+**Alex Saab, aliado de Maduro, podría declararse culpable de lavado de dinero en EE. UU.**\
+`Como parte de un acuerdo de culpabilidad, Saab podría potencialmente cooperar contra Nicolás Maduro.`\
+https://www.nytimes.com/es/2026/09/14/espanol/estados-unidos/alex-saab-cargos-maduro.html
+
 **Why is JD Vance Campaigning in Kansas, a Red State?**\
 `Why is JD Vance campaigning in a red state?`\
 https://www.nytimes.com/2026/09/14/us/politics/jd-vance-kansas-campaign-midterms.html
@@ -46,7 +54,7 @@ https://www.nytimes.com/2026/09/14/science/ai-questions-callout.html
 `Stars are arriving at the 78th Emmy Awards in Los Angeles. See what they’re wearing to celebrate TV’s biggest night.`\
 https://www.nytimes.com/2026/09/14/style/emmys-red-carpet-photos.html
 
-**Fashion Executive Placed on Leave After Physical Confrontation at Runway Show**\
+**Steve Kolb, Head of C.F.D.A., Placed on Leave After PETA Protester Confrontation**\
 `The Council of Fashion Designers of America said its chief executive, Steve Kolb, would be placed on leave “pending a full review” of an incident at the Cos fashion show.`\
 https://www.nytimes.com/2026/09/14/style/steve-kolb-cfda-leave.html
 
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/09/14/us/politics/jd-vance-kansas-senate-race.html
 **The Challenge of Regulating A.I., and Ourselves**\
 `Readers respond to an Opinion guest essay about the existential threat posed to humans by the rapid development of artificial intelligence.`\
 https://www.nytimes.com/2026/09/14/opinion/ai-regulation.html
-
-**Una mujer criticó al gobierno de Trinidad y Tobago en una llamada privada. Luego fue detenida por meses**\
-`Las tensiones raciales y políticas estallan en Trinidad y Tobago después de que miembros de una minoría étnica fueran acusados de un complot de asesinato con base en una llamada telefónica privada.`\
-https://www.nytimes.com/es/2026/09/14/espanol/mundo/trinidad-tobago-asesinato-complot.html
-
-**Immigrants’ Lawyers Say U.S. Is Redacting Documents Proving Legal Status**\
-`Many noncitizens need immigration records the government has to prove their legal stay and resist deportation. The government is redacting and withholding those documents, lawyers say.`\
-https://www.nytimes.com/2026/09/14/us/politics/immigrants-foia.html
 

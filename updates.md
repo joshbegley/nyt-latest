@@ -1,3 +1,15 @@
+**Safety Alert System Returns for New York City Private Schools**\
+`Silenced ahead of the World Cup, an emergency notification system for private and parochial schools will launch Tuesday as part of Notify NYC.`\
+https://www.nytimes.com/2026/09/14/nyregion/nyc-private-school-safety-alert-system.html
+
+**Alex Saab, aliado de Maduro, podría declararse culpable de lavado de dinero en EE. UU.**\
+`Como parte de un acuerdo de culpabilidad, Saab podría potencialmente cooperar contra Nicolás Maduro.`\
+https://www.nytimes.com/es/2026/09/14/espanol/estados-unidos/alex-saab-cargos-maduro.html
+
+**Steve Kolb, Head of C.F.D.A., Placed on Leave After PETA Protester Confrontation**\
+`The Council of Fashion Designers of America said its chief executive, Steve Kolb, would be placed on leave “pending a full review” of an incident at the Cos fashion show.`\
+https://www.nytimes.com/2026/09/14/style/steve-kolb-cfda-leave.html
+
 **Emmy Awards Live Updates: Stars Fill the Red Carpet Ahead of TV’s Biggest Night**\
 `Mariska Hargitay will host the ceremony in Los Angeles, where “The Pitt” and “Hacks” lead in nominations, and Apple TV hopes to win the most awards for the first time.`\
 https://www.nytimes.com/live/2026/09/14/arts/emmy-awards-2026

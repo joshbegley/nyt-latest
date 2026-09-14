@@ -1,3 +1,7 @@
+**N.Y. Democratic House Candidate Admits to Bondage Photo Shoot**\
+`Christopher Gallant, who is running against Representative Nick LaLota on Long Island, acknowledged that the photos that surfaced in media reports on Monday were legitimate.`\
+https://www.nytimes.com/2026/09/14/nyregion/gallant-bondage-photos-democrat.html
+
 **Safety Alert System Returns for New York City Private Schools**\
 `Silenced ahead of the World Cup, an emergency notification system for private and parochial schools will launch Tuesday as part of Notify NYC.`\
 https://www.nytimes.com/2026/09/14/nyregion/nyc-private-school-safety-alert-system.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/es/2026/09/14/espanol/mundo/china-ia-espionaje-riesgo-pa
 **Vance Campaigns in Kansas as Democrats Target a Republican Stronghold**\
 `Vice President JD Vance is beginning a key final stretch of midterm campaigning by dropping in on the Senate race in Kansas, where Republicans were long seen as heavily favored.`\
 https://www.nytimes.com/2026/09/14/us/politics/jd-vance-kansas-senate-race.html
-
-**The Challenge of Regulating A.I., and Ourselves**\
-`Readers respond to an Opinion guest essay about the existential threat posed to humans by the rapid development of artificial intelligence.`\
-https://www.nytimes.com/2026/09/14/opinion/ai-regulation.html
 
