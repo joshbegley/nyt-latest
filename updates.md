@@ -1,3 +1,19 @@
+**Trump Says a Smart President Is All That’s Needed to Rein In A.I.**\
+`The president again rejected calls to try to regulate the industry, even as some of its leaders are speaking more openly about the risks of rapidly developing artificial intelligence.`\
+https://www.nytimes.com/2026/09/14/us/politics/trump-ai-regulation-anthropic-dario-amodei.html
+
+**Premios Emmy 2026: todo lo que hay que saber**\
+`“The Pitt” podría hacer historia en la premiación a lo mejor de la televisión el lunes por la noche, mientras que “Widow’s Bay” y “Hacks” se disputan la contienda por mejor comedia.`\
+https://www.nytimes.com/es/2026/09/14/espanol/cultura/premios-emmy-2026-donde-ver-nominados-favoritos.html
+
+**Amazon Suspends Flights With Airline Whose Plane Crashed in Miami**\
+`The online retailer said it would “pause” its relationship with 21 Air, the cargo airline operating a Boeing 767 that overshot a runway in Miami.`\
+https://www.nytimes.com/2026/09/14/business/amazon-21-air-miami-airport-crash.html
+
+**El CEO de Anthropic traza un plan para desacelearar la IA**\
+`La carta de 3800 palabras de Dario Amodei presentó un plan de tres pasos para controlar la inteligencia artificial.`\
+https://www.nytimes.com/es/2026/09/14/espanol/negocios/anthropic-ia-ceo-carta-desacelerar.html
+
 **Cisco Likely Allowed Harassment of Pro-Palestinian Workers, EEOC Says**\
 `The finding by the U.S. Equal Employment Opportunity Commission said there was reason to believe that the tech giant subjected employees to a hostile environment.`\
 https://www.nytimes.com/2026/09/14/business/cisco-eeoc-palestinian-harassment.html
