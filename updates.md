@@ -1,3 +1,7 @@
+**‘NAZA’, un documental israelí, recibe ovaciones en el extranjero y rechazo en Israel**\
+`La película “NAZA” investiga la muerte de palestinos a manos de las fuerzas israelíes en Gaza. El ministro de Cultura de Israel ha sugerido que se revoque la ciudadanía de los directores.`\
+https://www.nytimes.com/es/2026/09/14/espanol/mundo/israel-gaza-naza-documental-ciudadania.html
+
 **Un empresario ruso financió la tornaboda de Donald Trump Jr.**\
 `Los pagos, que suman cientos de miles de dólares, representaron un extraordinario desprecio por las normas éticas para un familiar de un presidente estadounidense.`\
 https://www.nytimes.com/es/2026/09/14/espanol/estados-unidos/empresario-ruso-boda-hijo-trump.html
