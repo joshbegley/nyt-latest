@@ -1,3 +1,7 @@
+**Emmy Awards Live Updates: Stars of the Small Screen Gather Ahead of TV’s Biggest Night**\
+`Mariska Hargitay will host the ceremony in Los Angeles, where Jean Smart and Matthew Rhys are chasing milestones, and Apple TV hopes to lead in awards for the first time.`\
+https://www.nytimes.com/live/2026/09/14/arts/emmy-awards-2026
+
 **‘NAZA’, un documental israelí, recibe ovaciones en el extranjero y rechazo en Israel**\
 `The film “NAZA” investigates the killing of Palestinians by Israeli forces in Gaza. Israel’s culture minister has suggested revoking the directors’ citizenship.`\
 https://www.nytimes.com/es/2026/09/14/espanol/mundo/israel-gaza-naza-documental-ciudadania.html
@@ -18,7 +22,7 @@ https://www.nytimes.com/2026/09/14/world/houthis-saudi-iran-jeff-koons.html
 `The move, which targeted a bank that is already under U.S. sanctions, was part of the Trump administration’s Operation Economic Outcast initiative.`\
 https://www.nytimes.com/2026/09/14/business/us-sanctions-russia-vtb-bank-iran.html
 
-**From Bernie Sanders to Steve Bannon, Political Figures Sound Alarms on A.I.**\
+**Political Figures From Bernie Sanders to Steve Bannon Sound Alarms on A.I.**\
 `The two men will appear separately at an event calling for a “pro-human” approach to A.I. as warnings mount from the industry and the technology’s danger becomes a midterm issue.`\
 https://www.nytimes.com/2026/09/14/us/politics/bernie-sanders-steve-bannon-ai-regulation-midterm-candidates.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/14/well/brain-implant-helps-woman-communicate-in
 **A Bright Shrimp Dinner That Keeps Things Interesting**\
 `Golden raisins and briny capers add tangy pops of sweetness and salinity.`\
 https://www.nytimes.com/2026/09/14/dining/a-bright-shrimp-dinner-that-keeps-things-interesting.html
-
-**Key West Feels the Pain of Trump Decision on Haitians**\
-`The end of legal protections for Haitian immigrants nationally has jolted the labor market in this remote vacation destination in Florida where many live and work.`\
-https://www.nytimes.com/2026/09/14/us/haitian-workers-key-west-tourism.html
 
