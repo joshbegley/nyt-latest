@@ -1,3 +1,7 @@
+**Haitian Workers Keep Key West Tourism Afloat. Now They’re Disappearing.**\
+`The end of legal protections for Haitian immigrants nationally has jolted the labor market in Key West, a remote vacation destination where many live and work.`\
+https://www.nytimes.com/2026/09/14/us/haitian-workers-key-west-tourism.html
+
 **As Supreme Court Weighs Trump Mail Ballot Plan, Another Judge Blocks It**\
 `The ruling delivered another blow to the plan with a looming Supreme Court decision that could determine whether it goes into effect before the midterm election.`\
 https://www.nytimes.com/2026/09/14/us/politics/trump-mail-ballot-nichols-supreme-court.html
@@ -18,7 +22,7 @@ https://www.nytimes.com/2026/09/14/world/middleeast/saudi-leader-meets-centcom.h
 `Now, how much would you pay for Ron Popeil’s Beverly Hills estate? It’s listed for $25 million.`\
 https://www.nytimes.com/2026/09/14/realestate/ron-popeil-beverly-hills-home.html
 
-**U.S. Health Officials Move Quickly to Deploy Medical A.I. Despite Concerns**\
+**Trump Administration Moves to Integrate A.I. Into Medical Care Despite Concerns**\
 `Federal projects are rolling out A.I. agents that offer therapy and prescribe medicine, raising concerns about safety and the influence of venture capital investors.`\
 https://www.nytimes.com/2026/09/14/health/ai-doctors-medicare-fda.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/14/learning/word-of-the-day-salvage.html
 **Alexei Ratmansky Stages a Ballet in Kyiv, Between Trips to the Bomb Shelter**\
 `The choreographer Alexei Ratmansky and his wife, Tatiana, returned to the national ballet company at a bleak moment, bringing the gift of a difficult, sparkling work.`\
 https://www.nytimes.com/2026/09/14/arts/dance/alexei-ratmansky-kyiv-ukrainian-national-ballet-balanchine.html
-
-**Arthur Jafa, the Great Disrupter, Readies a ‘Big Bang’**\
-`“I Am Tony,” the artist’s largest museum survey to date, carries a powerful message about identity “forged in the holds of slave ships.”`\
-https://www.nytimes.com/2026/09/14/arts/design/arthur-jafa-new-museum.html
 

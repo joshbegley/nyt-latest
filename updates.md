@@ -1,3 +1,11 @@
+**As Supreme Court Weighs Trump Mail Ballot Plan, Another Judge Blocks It**\
+`The ruling delivered another blow to the plan with a looming Supreme Court decision that could determine whether it goes into effect before the midterm election.`\
+https://www.nytimes.com/2026/09/14/us/politics/trump-mail-ballot-nichols-supreme-court.html
+
+**10-Year Treasury Yield Reaches 5%, Highest Level in Years**\
+`One of the world’s most important interest rates breached 5 percent, as investors continued to rebuff the Trump administration’s efforts to sway the bond market.`\
+https://www.nytimes.com/2026/09/14/business/10-year-treasury-yield-5-percent.html
+
 **‘Alligator Alcatraz’ Used Small Cages as ‘Calming Areas,’ Report Says**\
 `The Department of Homeland Security’s internal watchdog provided new details about conditions at the now-shuttered Florida detention center.`\
 https://www.nytimes.com/2026/09/14/us/alligator-alcatraz-dhs-inspector-general.html
