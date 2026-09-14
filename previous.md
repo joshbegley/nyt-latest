@@ -11,7 +11,7 @@ https://www.nytimes.com/2026/09/14/world/europe/ukraine-railway-strike-europe.ht
 https://www.nytimes.com/2026/09/14/business/dealbook/ai-slowdown-dc-beijing.html
 
 **Money Is Flowing Into Space Start-Ups. Some Investors See a SpaceX Effect.**\
-`Open Cosmos, a European satellite maker, has raised $346 million, part of a wave of recent funding deals in the space sector.`\
+`Open Cosmos, a European satellite maker, has raised about $346 million, part of a wave of recent funding deals in the space sector.`\
 https://www.nytimes.com/2026/09/14/business/dealbook/open-cosmos-space-start-ups-spacex.html
 
 **Modi Served World Leaders a Meatless Meal, and His Critics Pounced**\

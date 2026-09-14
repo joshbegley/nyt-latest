@@ -1,3 +1,7 @@
+**Money Is Flowing Into Space Start-Ups. Some Investors See a SpaceX Effect.**\
+`Open Cosmos, a European satellite maker, has raised about $346 million, part of a wave of recent funding deals in the space sector.`\
+https://www.nytimes.com/2026/09/14/business/dealbook/open-cosmos-space-start-ups-spacex.html
+
 **Russian Strike on Train Station Near Ukraine-Poland Border Seen as Warning to Kyiv’s Allies**\
 `The attack on Ukraine’s rail network, which connects the country to the West, was a jab at Europe, officials said.`\
 https://www.nytimes.com/2026/09/14/world/europe/ukraine-railway-strike-europe.html
