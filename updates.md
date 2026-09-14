@@ -1,3 +1,11 @@
+**Emmy Awards Live Updates: Stars of the Small Screen Gather Ahead of TV’s Biggest Night**\
+`Mariska Hargitay will host the ceremony in Los Angeles, where Jean Smart and Matthew Rhys are chasing milestones, and Apple TV hopes to lead in awards for the first time.`\
+https://www.nytimes.com/live/2026/09/14/arts/emmy-awards-2026
+
+**Political Figures From Bernie Sanders to Steve Bannon Sound Alarms on A.I.**\
+`The two men will appear separately at an event calling for a “pro-human” approach to A.I. as warnings mount from the industry and the technology’s danger becomes a midterm issue.`\
+https://www.nytimes.com/2026/09/14/us/politics/bernie-sanders-steve-bannon-ai-regulation-midterm-candidates.html
+
 **Los altos mandos del Pentágono enfrentan la agitación bajo el mando de Hegseth**\
 `Las distracciones persistentes han creado un clima de desconfianza a medida que las fuerzas armadas de EE. UU. enfrentan una serie de problemas en tiempos de guerra.`\
 https://www.nytimes.com/es/2026/09/14/espanol/estados-unidos/pentagono-secretario-defensa-crisis.html

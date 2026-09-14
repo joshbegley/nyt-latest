@@ -1,3 +1,7 @@
+**Maduro Ally Is Expected to Plead Guilty in Federal Money Laundering Case**\
+`Alex Saab, a former high-ranking government official in Venezuela, could potentially cooperate against Mr. Maduro, who is awaiting trial in New York.`\
+https://www.nytimes.com/2026/09/14/us/alex-saab-maduro-money-laundering-plea.html
+
 **Emmy Awards Live Updates: Stars of the Small Screen Gather Ahead of TV’s Biggest Night**\
 `Mariska Hargitay will host the ceremony in Los Angeles, where Jean Smart and Matthew Rhys are chasing milestones, and Apple TV hopes to lead in awards for the first time.`\
 https://www.nytimes.com/live/2026/09/14/arts/emmy-awards-2026
@@ -189,8 +193,4 @@ https://www.nytimes.com/quiz/2026/09/14/bookreview/nyc-literary-hangouts.html
 **‘I Have a Lot to Say’: Brain Implant Helps a Disabled Patient Speak**\
 `In the latest advance in brain-computer interfaces, a company said its wireless device enabled speech even when a patient just imagined saying words.`\
 https://www.nytimes.com/2026/09/14/well/brain-implant-helps-woman-communicate-in-real-time.html
-
-**A Bright Shrimp Dinner That Keeps Things Interesting**\
-`Golden raisins and briny capers add tangy pops of sweetness and salinity.`\
-https://www.nytimes.com/2026/09/14/dining/a-bright-shrimp-dinner-that-keeps-things-interesting.html
 
