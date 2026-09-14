@@ -1,3 +1,11 @@
+**‘NAZA’, un documental israelí, recibe ovaciones en el extranjero y rechazo en Israel**\
+`The film “NAZA” investigates the killing of Palestinians by Israeli forces in Gaza. Israel’s culture minister has suggested revoking the directors’ citizenship.`\
+https://www.nytimes.com/es/2026/09/14/espanol/mundo/israel-gaza-naza-documental-ciudadania.html
+
+**President Trump Is on the Line About an A.I. Slowdown**\
+`Mr. Trump called Jensen Huang, Nvidia’s chief executive, while Mr. Huang was onstage in Los Angeles and criticized calls to slow down and regulate A.I.`\
+https://www.nytimes.com/2026/09/14/technology/trump-ai-safety-jensen-huang.html
+
 **Syrians Protest After Fuel Prices Hike**\
 `Syrian protesters gathered in the streets after the government decided to raise fuel prices by as much as 40 percent.`\
 https://www.nytimes.com/video/world/middleeast/100000011151166/syria-protest-fuel-prices.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/09/14/dining/a-bright-shrimp-dinner-that-keeps-thin
 **Key West Feels the Pain of Trump Decision on Haitians**\
 `The end of legal protections for Haitian immigrants nationally has jolted the labor market in this remote vacation destination in Florida where many live and work.`\
 https://www.nytimes.com/2026/09/14/us/haitian-workers-key-west-tourism.html
-
-**As Supreme Court Weighs Trump Mail Ballot Plan, Another Judge Blocks It**\
-`The ruling by a lower court judge was another blow to President Trump’s effort to make voting by mail harder. The Supreme Court is also considering the Trump plan.`\
-https://www.nytimes.com/2026/09/14/us/politics/trump-mail-ballot-nichols-supreme-court.html
-
-**10-Year Treasury Yield Touches 5%, Highest Level in Years**\
-`One of the world’s most important interest rates hit a level recorded only once since the global financial crisis, as investors continued to rebuff the Trump administration’s efforts to sway the bond market.`\
-https://www.nytimes.com/2026/09/14/business/10-year-treasury-yield-5-percent.html
 

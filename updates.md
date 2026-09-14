@@ -1,3 +1,11 @@
+**‘NAZA’, un documental israelí, recibe ovaciones en el extranjero y rechazo en Israel**\
+`The film “NAZA” investigates the killing of Palestinians by Israeli forces in Gaza. Israel’s culture minister has suggested revoking the directors’ citizenship.`\
+https://www.nytimes.com/es/2026/09/14/espanol/mundo/israel-gaza-naza-documental-ciudadania.html
+
+**President Trump Is on the Line About an A.I. Slowdown**\
+`Mr. Trump called Jensen Huang, Nvidia’s chief executive, while Mr. Huang was onstage in Los Angeles and criticized calls to slow down and regulate A.I.`\
+https://www.nytimes.com/2026/09/14/technology/trump-ai-safety-jensen-huang.html
+
 **Syrians Protest After Fuel Prices Hike**\
 `Syrian protesters gathered in the streets after the government decided to raise fuel prices by as much as 40 percent.`\
 https://www.nytimes.com/video/world/middleeast/100000011151166/syria-protest-fuel-prices.html
