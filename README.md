@@ -1,3 +1,7 @@
+**Saudi Leader Meets U.S. General as Widening Conflict Threatens Oil Markets**\
+`Crown Prince Mohammed bin Salman asked the United States for more U.S. military help last week after the Iranian-backed Houthi forces in Yemen launched a broad offensive.`\
+https://www.nytimes.com/2026/09/14/world/middleeast/saudi-leader-meets-centcom.html
+
 **Beverly Hills Home of Ron Popeil, TV Salesman and Infomercial Pioneer, Is Listed for $25 Million**\
 `Now, how much would you pay for Ron Popeil’s Beverly Hills estate? It’s listed for $25 million.`\
 https://www.nytimes.com/2026/09/14/realestate/ron-popeil-beverly-hills-home.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/14/books/review/exit-party-emily-st-john-mandel.
 **Alaska Sen. Dan Sullivan Walks a Tricky Line on Tariffs as He Seeks Re-Election**\
 `Senator Dan Sullivan of Alaska has shown quiet support for President Trump’s tariffs. His brother, the head of their family business, has described the economic volatility as an enormous challenge.`\
 https://www.nytimes.com/2026/09/14/us/politics/sullivan-trump-republican-tariffs-alaska.html
-
-**Why Is Everything So Oversize?**\
-`A reader wants help navigating the bigger-is-better clothing trend.`\
-https://www.nytimes.com/2026/09/14/fashion/oversize-clothing-styling.html
 
