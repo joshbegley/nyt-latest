@@ -1,3 +1,7 @@
+**China’s Top Spy Chief Warns A.I. Is a Threat to Party Rule**\
+`Even as Beijing urges the United States not to hype the dangers of A.I., its own spy chief is framing the technology as a threat to the Communist Party’s security.`\
+https://www.nytimes.com/2026/09/14/world/asia/china-ai-security-risks-anthropic.html
+
 **Saudi Arabia Faces ‘Worst-Case Scenario’ After Being Rebuffed by Trump**\
 `The kingdom is in a state of strategic shock after coming under attack from an emboldened Iran and failing to win more U.S. military support, analysts say.`\
 https://www.nytimes.com/2026/09/14/world/middleeast/saudi-iran-trump-yemen-houthis.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/14/world/asia/muslim-mindanao-philippines-electi
 **Inside Moscow’s High-Tech Surveillance Turn**\
 `From facial-recognition payments at checkout to autonomous delivery robots on the sidewalks, Moscow is rapidly transforming into a high-tech city. But this seamless convenience comes at a cost: an expanding web of citizen surveillance. Our reporter Ivan Nechepurenko reports from Moscow.`\
 https://www.nytimes.com/video/world/100000010736402/inside-moscows-high-tech-surveillance-turn.html
-
-**Cómo los partidarios de línea dura en Irán sabotearon el acuerdo con Trump**\
-`Funcionarios iraníes dijeron que las investigaciones internas rastrearon la decisión de atacar tres barcos comerciales en julio hasta un influyente jefe de espionaje que se había opuesto al acuerdo de paz con EE. UU. desde el principio.`\
-https://www.nytimes.com/es/2026/09/14/espanol/mundo/iran-sabotaje-acuerdo-paz.html
 

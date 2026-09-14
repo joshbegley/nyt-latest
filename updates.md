@@ -1,3 +1,7 @@
+**China’s Top Spy Chief Warns A.I. Is a Threat to Party Rule**\
+`Even as Beijing urges the United States not to hype the dangers of A.I., its own spy chief is framing the technology as a threat to the Communist Party’s security.`\
+https://www.nytimes.com/2026/09/14/world/asia/china-ai-security-risks-anthropic.html
+
 **Saudi Arabia Faces ‘Worst-Case Scenario’ After Being Rebuffed by Trump**\
 `The kingdom is in a state of strategic shock after coming under attack from an emboldened Iran and failing to win more U.S. military support, analysts say.`\
 https://www.nytimes.com/2026/09/14/world/middleeast/saudi-iran-trump-yemen-houthis.html
