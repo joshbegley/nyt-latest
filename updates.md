@@ -1,3 +1,11 @@
+**Why Scandals Don’t Bring Down Politicians Anymore**\
+`It’s about more than just shamelessness.`\
+https://www.nytimes.com/2026/09/14/world/scandal-shame-politics-polarization.html
+
+**Oil Prices Jump on Energy Supply Worries**\
+`Oil prices jumped and stock futures fell slightly on concerns that energy supplies from the Persian Gulf would be further diminished by a drone attack on a critical pipeline in Saudi Arabia.`\
+https://www.nytimes.com/2026/09/13/business/oil-prices-iran-war.html
+
 **Taylor and Travis Sentence Scramble**\
 `Can you put five sentences about celebrity weddings in the right order?`\
 https://www.nytimes.com/2026/09/14/learning/taylor-and-travis-sentence-scramble.html
