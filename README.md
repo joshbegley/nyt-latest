@@ -136,7 +136,7 @@ https://www.nytimes.com/2026/09/14/climate/global-warming-limit-paris-climate-ag
 
 **How to Watch the 2026 Emmy Awards**\
 `NBC is broadcasting the Monday night ceremony, which will be hosted by Mariska Hargitay.`\
-https://www.nytimes.com/2026/09/14/arts/television/how-to-watch-the-2026-emmy-awards.html
+https://www.nytimes.com/2026/09/14/arts/television/emmy-awards-how-to-watch.html
 
 **Defense Hiring Will Ease, Not End, Pain in European Car Industry**\
 `An agreement to turn an ailing Volkswagen factory into a defense manufacturing hub offers hope for jobs. But a shift from “family vans to tanks” in Germany is not so simple.`\

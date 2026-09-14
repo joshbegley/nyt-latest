@@ -1,3 +1,11 @@
+**Heavy Rains Flood the Northeast**\
+`Rounds of showers and thunderstorms flooded communities and disrupted traffic in parts of the northeastern United States on Sunday.`\
+https://www.nytimes.com/video/weather/100000011150541/rain-floods-northeast-connecticut-new-jersey.html
+
+**Tech Stocks Tumble After AI Leaders Call for Industry to Slow Down**\
+`Companies at the forefront of artificial intelligence in Asia, Europe and the United States posted declines after tech leaders expressed worries about the safety of “frontier” A.I. technology.`\
+https://www.nytimes.com/2026/09/14/business/tech-stocks-ai.html
+
 **Why Trump Will Declare Victory No Matter What**\
 `President Trump is urging voters to treat him as if he’s on the ballot in November. On “The Opinions,” Carlos Lozada explains why that strategy could make the midterms a referendum on Trump himself.`\
 https://www.nytimes.com/video/opinion/100000011144133/why-trump-will-declare-victory-no-matter-what.html

@@ -1,3 +1,7 @@
+**Heavy Rains Flood the Northeast**\
+`Rounds of showers and thunderstorms flooded communities and disrupted traffic in parts of the northeastern United States on Sunday.`\
+https://www.nytimes.com/video/weather/100000011150541/rain-floods-northeast-connecticut-new-jersey.html
+
 **Why Trump Will Declare Victory No Matter What**\
 `President Trump is urging voters to treat him as if he’s on the ballot in November. On “The Opinions,” Carlos Lozada explains why that strategy could make the midterms a referendum on Trump himself.`\
 https://www.nytimes.com/video/opinion/100000011144133/why-trump-will-declare-victory-no-matter-what.html
@@ -66,7 +70,7 @@ https://www.nytimes.com/2026/09/14/crosswords/strands-sidekick-926.html
 `Plus, the man who went to space — and never wanted to go back.`\
 https://www.nytimes.com/2026/09/14/podcasts/the-headlines/warnings-ai-deadly-street-drug.html
 
-**Tech Stocks Shudder in Response to Calls to Slow A.I. Progress**\
+**Tech Stocks Tumble After AI Leaders Call for Industry to Slow Down**\
 `Companies at the forefront of artificial intelligence in Asia, Europe and the United States posted declines after tech leaders expressed worries about the safety of “frontier” A.I. technology.`\
 https://www.nytimes.com/2026/09/14/business/tech-stocks-ai.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/14/us/elections/polls-accuracy-primaries-midterm
 **Kent Monkman, an Indigenous Painter, Sees a Vermeer and the Sparks Fly**\
 `For a new show at the Frick Collection, Kent Monkman imagines what Indigenous people see when they see fur trappers, General Custer and even Jeff Bezos.`\
 https://www.nytimes.com/2026/09/14/arts/design/kent-monkman-frick.html
-
-**Book Review: ‘Profiles in Cowardice,’ by Jacob Weisberg**\
-`In “Profiles in Cowardice,” Jacob Weisberg offers a grim twist on John F. Kennedy’s collection of heroic biographies.`\
-https://www.nytimes.com/2026/09/14/books/review/profiles-in-cowardice-jacob-weisberg.html
 
