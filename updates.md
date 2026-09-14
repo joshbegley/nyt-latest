@@ -1,3 +1,11 @@
+**What Is Driving Diesel Prices Up? Energy Chaos Caused by Two Wars.**\
+`President Trump recently blamed Ukrainian attacks on Russian refineries for causing a spike in diesel prices, but analysts say the Iran war is probably a bigger factor.`\
+https://www.nytimes.com/2026/09/14/business/energy-environment/trump-diesel-russia-ukraine-iran.html
+
+**Macklemore Dropped From Ed Sheeran’s Tour After Palestine Comments**\
+`The rapper Macklemore was dropped as an opening act from Ed Sheeran’s tour after saying “Free Palestine” onstage.`\
+https://www.nytimes.com/video/us/100000011151467/macklemore-dropped-ed-sheeran-tour-palestine.html
+
 **I’ve Never Been a Budget Hawk. But $40 Trillion is Too Big to Ignore.**\
 `The national debt is too big to ignore--it could all end badly.`\
 https://www.nytimes.com/2026/09/14/opinion/national-debt-trump.html

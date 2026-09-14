@@ -78,7 +78,7 @@ https://www.nytimes.com/es/2026/09/14/espanol/mundo/trinidad-tobago-asesinato-co
 `Many noncitizens need immigration records the government has to prove their legal stay and resist deportation. The government is redacting and withholding those documents, lawyers say.`\
 https://www.nytimes.com/2026/09/14/us/politics/immigrants-foia.html
 
-**Bob Mackie, Designer Who Bedazzled Carol Burnett and Cher, Dies at 87**\
+**Bob Mackie, Designer Who ‘Dressed Every Spangly Woman in Show Business,’ Dies at 87**\
 `His sequined gowns and outrageous costumes threw clouds of glitter at American fashion for over half a century.`\
 https://www.nytimes.com/2026/09/14/style/bob-mackie-dead.html
 
