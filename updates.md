@@ -1,3 +1,7 @@
+**More Than 120 Are Unaccounted For After Ferry Sinks in Indonesia**\
+`At least six people were killed and more than 100 rescued after the vessel sank in the Java Sea on Sunday, the authorities said.`\
+https://www.nytimes.com/2026/09/14/world/asia/indonesia-ferry-rescue-borneo.html
+
 **Mamdani and New York’s Business Leaders Agree On at Least One Thing**\
 `Yes, child care is too expensive, a new group of business leaders says. But solving the problem with city taxes? That might be an issue.`\
 https://www.nytimes.com/2026/09/14/nyregion/child-care-new-york-city-business-leaders-mamdani.html
