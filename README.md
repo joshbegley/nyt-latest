@@ -1,3 +1,7 @@
+**Bob Mackie, Designer Who Bedazzled Carol Burnett and Cher, Dies at 87**\
+`His sequined gowns and outrageous costumes threw clouds of glitter at American fashion for over half a century.`\
+https://www.nytimes.com/2026/09/14/style/bob-mackie-dead.html
+
 **Mahmoud Khalil Says Columbia Failed to Protect Pro-Palestinian Students**\
 `In a federal lawsuit, Mr. Khalil and other former student activists say the university was deliberately indifferent to their harassment even before the 2023 Hamas attacks.`\
 https://www.nytimes.com/2026/09/14/nyregion/mahmoud-khalil-columbia-lawsuit.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/14/science/ai-bioweapons.html
 **As Midterms Rage, Gillibrand Wants Congress to Talk Menopause**\
 `Senator Kirsten Gillibrand of New York is devoting a hearing to a topic that affects millions but is poorly understood and widely ignored, including when it comes to federal research money.`\
 https://www.nytimes.com/2026/09/14/us/politics/democrat-senate-menopause-gillibrand.html
-
-**How a Family of 5 Lives on $30,000 a Year in the Bronx**\
-`To help his family, Germel Younger has become a professional caregiver, but the pay barely covers their expenses.`\
-https://www.nytimes.com/interactive/2026/09/14/nyregion/nyc-budgeting-affordability-younger.html
 
