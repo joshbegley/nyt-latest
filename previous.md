@@ -6,7 +6,7 @@ https://www.nytimes.com/2026/09/14/business/energy-environment/trump-diesel-russ
 `The rapper Macklemore was dropped as an opening act from Ed Sheeran’s tour after saying “Free Palestine” onstage.`\
 https://www.nytimes.com/video/us/100000011151467/macklemore-dropped-ed-sheeran-tour-palestine.html
 
-**I’ve Never Been a Budget Hawk. But $40 Trillion is Too Big to Ignore.**\
+**The National Debt Never Scared Me. It Scares Me.**\
 `The national debt is too big to ignore--it could all end badly.`\
 https://www.nytimes.com/2026/09/14/opinion/national-debt-trump.html
 

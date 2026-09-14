@@ -1,3 +1,7 @@
+**The National Debt Never Scared Me. It Scares Me.**\
+`The national debt is too big to ignore--it could all end badly.`\
+https://www.nytimes.com/2026/09/14/opinion/national-debt-trump.html
+
 **Bob Mackie, Designer Who ‘Dressed Every Spangly Woman in Show Business,’ Dies at 87**\
 `His sequined gowns and outrageous costumes threw clouds of glitter at American fashion for over half a century.`\
 https://www.nytimes.com/2026/09/14/style/bob-mackie-dead.html
