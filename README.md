@@ -1,3 +1,15 @@
+**US Open Day 15: Zverev Wins, US Wait Goes On**\
+`Ben Shelton lost to Alexander Zverev in the final, meaning the US wait for an American man to win a Grand Slam title continues.`\
+https://www.nytimes.com/2026/09/14/podcasts/us-open-zverev-wins-mens-final.html
+
+**Can a Polish Epic Become the World’s Next Period Drama Hit?**\
+`“The Doll” on Netflix is based on a novel that’s revered in Poland. It also has the requisite duels, corsets and palaces, as well as elaborate wigs and mustaches.`\
+https://www.nytimes.com/2026/09/14/arts/television/the-doll-netflix.html
+
+**The New Moscow: A Digital Utopia Doubling as a Surveillance Trap**\
+`Cutting-edge technologies have reshaped the Russian capital, making it safer, more convenient — and more closely watched.`\
+https://www.nytimes.com/2026/09/14/world/europe/moscow-russia-putin-digital-surveillance.html
+
 **Can You Tell How Smart a Dog Is by Giving It a Test?**\
 `With pets and people, we’re stupid when assessing smarts.`\
 https://www.nytimes.com/2026/09/14/opinion/dog-smart-intelligence-test.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/video/style/100000011150236/nyfw-steve-kolb-protest.html
 **No Corrections: September 14, 2026**\
 `No corrections appeared in print on Monday, September 14, 2026.`\
 https://www.nytimes.com/2026/09/14/corrections/no-corrections-september-14-2026.html
-
-**Quote of the Day: Rewarded by Drama, Influencers Flout Laws and Safety for Clicks**\
-`Quotation of the Day for Monday, September 14, 2026.`\
-https://www.nytimes.com/2026/09/14/pageoneplus/quote-of-the-day-rewarded-by-drama-influencers-flout-laws-and-safety-for-clicks.html
-
-**On This Day | Sept. 14: The first spacecraft to reach the Moon.**\
-`In 1959, the Soviet space probe Luna 2 became the first human-made object to reach the moon when it crashed onto the lunar surface.`\
-https://www.nytimes.com/2026/09/14/learning/on-this-day-sept-14.html
-
-**Texas Republican’s Racist Social Media Post Draws Condemnation**\
-`Many Republicans criticized the post, some in more direct terms than others.`\
-https://www.nytimes.com/2026/09/13/us/bo-french-racist-post-republicans-texas.html
 
