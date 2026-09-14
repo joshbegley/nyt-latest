@@ -1,3 +1,15 @@
+**‘Monster: The Lizzie Borden Story’ and 8 More Shows to Watch on TV This Week**\
+`The new installment of Ryan Murphy’s anthology series premieres. NBC hosts the 78th annual Emmy Awards.`\
+https://www.nytimes.com/2026/09/14/arts/television/monster-the-lizzie-borden-story-what-to-watch.html
+
+**Israel’s Elimination Project**\
+`Two languages. Two realities.`\
+https://www.nytimes.com/2026/09/14/opinion/israel-violence-palestine.html
+
+**More Than 120 Unaccounted for After Ferry Sinks in Indonesia**\
+`At least six people were killed and more than 100 rescued after the vessel sank in the Java Sea on Sunday, the authorities said.`\
+https://www.nytimes.com/2026/09/14/world/asia/indonesia-ferry-rescue-borneo.html
+
 **Qué son las inmersiones en agua fría y cómo prepararte para practicarlas**\
 `Las inmersiones breves en agua helada pueden beneficiar tu salud física y mental. Aquí tienes algunos consejos para prepararte y adentrarte en esta práctica milenaria.`\
 https://www.nytimes.com/es/2026/09/14/espanol/inmersion-agua-fria.html
