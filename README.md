@@ -70,7 +70,7 @@ https://www.nytimes.com/2026/09/14/crosswords/strands-sidekick-926.html
 `Plus, the man who went to space — and never wanted to go back.`\
 https://www.nytimes.com/2026/09/14/podcasts/the-headlines/warnings-ai-deadly-street-drug.html
 
-**Tech Stocks Shudder in Response to Calls to Slow A.I. Progress**\
+**Tech Stocks Tumble After AI Leaders Call for Industry to Slow Down**\
 `Companies at the forefront of artificial intelligence in Asia, Europe and the United States posted declines after tech leaders expressed worries about the safety of “frontier” A.I. technology.`\
 https://www.nytimes.com/2026/09/14/business/tech-stocks-ai.html
 
