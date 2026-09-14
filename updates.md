@@ -1,3 +1,11 @@
+**Saudi Arabia Faces ‘Worst-Case Scenario’ After Being Rebuffed by Trump**\
+`The kingdom is in a state of strategic shock after coming under attack from an emboldened Iran and failing to win more U.S. military support, analysts say.`\
+https://www.nytimes.com/2026/09/14/world/middleeast/saudi-iran-trump-yemen-houthis.html
+
+**Who Will Win the Midterms? Nate Silver and Our Experts Are More Confident About a Blue Wave.**\
+`It’s looking bullish for Democrats.`\
+https://www.nytimes.com/interactive/2026/09/14/opinion/midterms-pollsters-pundits-scorecard.html
+
 **La IA se ha vuelto rebelde: ¿podemos mantenerla bajo control?**\
 `Ya no podemos seguir fingiendo que la inteligencia artificial es segura`\
 https://www.nytimes.com/es/2026/09/14/espanol/opinion/inteligencia-artificial-peligro.html

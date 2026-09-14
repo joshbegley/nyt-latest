@@ -1,3 +1,11 @@
+**Saudi Arabia Faces ‘Worst-Case Scenario’ After Being Rebuffed by Trump**\
+`The kingdom is in a state of strategic shock after coming under attack from an emboldened Iran and failing to win more U.S. military support, analysts say.`\
+https://www.nytimes.com/2026/09/14/world/middleeast/saudi-iran-trump-yemen-houthis.html
+
+**Who Will Win the Midterms? Nate Silver and Our Experts Are More Confident About a Blue Wave.**\
+`It’s looking bullish for Democrats.`\
+https://www.nytimes.com/interactive/2026/09/14/opinion/midterms-pollsters-pundits-scorecard.html
+
 **La IA se ha vuelto rebelde: ¿podemos mantenerla bajo control?**\
 `Ya no podemos seguir fingiendo que la inteligencia artificial es segura`\
 https://www.nytimes.com/es/2026/09/14/espanol/opinion/inteligencia-artificial-peligro.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/world/100000010736402/inside-moscows-high-tech-sur
 **Cómo los partidarios de línea dura en Irán sabotearon el acuerdo con Trump**\
 `Funcionarios iraníes dijeron que las investigaciones internas rastrearon la decisión de atacar tres barcos comerciales en julio hasta un influyente jefe de espionaje que se había opuesto al acuerdo de paz con EE. UU. desde el principio.`\
 https://www.nytimes.com/es/2026/09/14/espanol/mundo/iran-sabotaje-acuerdo-paz.html
-
-**Why Scandals Don’t Bring Down Politicians Anymore**\
-`It’s about more than just shamelessness.`\
-https://www.nytimes.com/2026/09/14/world/scandal-shame-politics-polarization.html
-
-**Taylor and Travis Sentence Scramble**\
-`Can you put five sentences about celebrity weddings in the right order?`\
-https://www.nytimes.com/2026/09/14/learning/taylor-and-travis-sentence-scramble.html
 
