@@ -1,3 +1,11 @@
+**The Bari Weiss Era of ‘60 Minutes’ Begins**\
+`The long-running CBS News program returned for a high-pressure 59th season on Sunday. With new correspondents and a refreshed stopwatch, it was more tweak than overhaul.`\
+https://www.nytimes.com/2026/09/13/business/media/60-minutes-season-premiere-bari-weiss.html
+
+**E.P.A. Will Erase Limits on Climate Pollution From Power Plants**\
+`Generation of electricity is the second largest source of carbon dioxide and other planet-warming gases in the United States.`\
+https://www.nytimes.com/2026/09/13/climate/epa-power-plant-climate-rules.html
+
 **‘Lanterns’ Season 1, Episode 5 Recap: The Heart Wants What It Wants**\
 `The dominant theme of this week’s action-packed and chaotic episode was evolution. Situations shift. People move on.`\
 https://www.nytimes.com/2026/09/13/arts/television/lanterns-recap-season-1-episode-5.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/13/arts/design/did-trump-win-the-battle-over-the
 **As Fears of A.I. Catastrophe Magnify, Washington Stirs, but Mostly Slumbers**\
 `President Trump has been at the forefront of the “what-me-worry?” crowd, refusing to engage on how to balance the risks and rewards of A.I.`\
 https://www.nytimes.com/2026/09/13/us/politics/ai-catastrophe-fears-washington.html
-
-**Corrections: Sept. 13, 2026**\
-`Corrections that appeared in print on Sunday, Sept. 13, 2026.`\
-https://www.nytimes.com/2026/09/13/pageoneplus/corrections-sept-13-2026.html
-
-**Inside the $440 Million Collapse of Guidepost Montessori**\
-`A man with a vision set out to revolutionize preschool. It became a $440 million fiasco.`\
-https://www.nytimes.com/2026/09/13/business/guidepost-montessori-higher-ground-education-ray-girn.html
 
