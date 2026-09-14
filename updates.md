@@ -1,3 +1,31 @@
+**The A.I. Researcher Whose Rebellion Is Changing Everything**\
+`Jacob Coxon, who quit his job at Anthropic, discusses his concerns about the risks of artificial intelligence.`\
+https://www.nytimes.com/2026/09/14/podcasts/the-daily/the-ai-researcher-whose-rebellion-is-changing-everything.html
+
+**NYT Connections Answers for September 15, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Sept. 15, 2026.`\
+https://www.nytimes.com/2026/09/14/crosswords/connections-companion-1192.html
+
+**Today’s Wordle Hints for September 15, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Sept. 15, 2026.`\
+https://www.nytimes.com/2026/09/14/crosswords/wordle-review-1914.html
+
+**NYT Strands Hints for September 15, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Sept. 15, 2026.`\
+https://www.nytimes.com/2026/09/14/crosswords/strands-sidekick-926.html
+
+**The Escalating Warnings About A.I., and the Rise of a Deadly New Street Drug**\
+`Plus, the man who went to space — and never wanted to go back.`\
+https://www.nytimes.com/2026/09/14/podcasts/the-headlines/warnings-ai-deadly-street-drug.html
+
+**Tech Stocks Shudder in Response to Calls to Slow A.I. Progress**\
+`Companies at the forefront of artificial intelligence in Asia, Europe and the United States posted declines after tech leaders expressed worries about the safety of “frontier” A.I. technology.`\
+https://www.nytimes.com/2026/09/14/business/tech-stocks-ai.html
+
+**US Open Day 14: Rybakina Shows Why She Is No. 1**\
+`Elena Rybakina defeated Aryna Sabalenka to underline her new status as the world No. 1 of women’s tennis.`\
+https://www.nytimes.com/2026/09/14/podcasts/us-open-final-rybakina-world-no-1-women.html
+
 **US Open Day 15: Zverev Wins, US Wait Goes On**\
 `Ben Shelton lost to Alexander Zverev in the final, meaning the US wait for an American man to win a Grand Slam title continues.`\
 https://www.nytimes.com/2026/09/14/podcasts/us-open-zverev-wins-mens-final.html

@@ -1,3 +1,31 @@
+**The A.I. Researcher Whose Rebellion Is Changing Everything**\
+`Jacob Coxon, who quit his job at Anthropic, discusses his concerns about the risks of artificial intelligence.`\
+https://www.nytimes.com/2026/09/14/podcasts/the-daily/the-ai-researcher-whose-rebellion-is-changing-everything.html
+
+**NYT Connections Answers for September 15, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Sept. 15, 2026.`\
+https://www.nytimes.com/2026/09/14/crosswords/connections-companion-1192.html
+
+**Today’s Wordle Hints for September 15, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Sept. 15, 2026.`\
+https://www.nytimes.com/2026/09/14/crosswords/wordle-review-1914.html
+
+**NYT Strands Hints for September 15, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Sept. 15, 2026.`\
+https://www.nytimes.com/2026/09/14/crosswords/strands-sidekick-926.html
+
+**The Escalating Warnings About A.I., and the Rise of a Deadly New Street Drug**\
+`Plus, the man who went to space — and never wanted to go back.`\
+https://www.nytimes.com/2026/09/14/podcasts/the-headlines/warnings-ai-deadly-street-drug.html
+
+**Tech Stocks Shudder in Response to Calls to Slow A.I. Progress**\
+`Companies at the forefront of artificial intelligence in Asia, Europe and the United States posted declines after tech leaders expressed worries about the safety of “frontier” A.I. technology.`\
+https://www.nytimes.com/2026/09/14/business/tech-stocks-ai.html
+
+**US Open Day 14: Rybakina Shows Why She Is No. 1**\
+`Elena Rybakina defeated Aryna Sabalenka to underline her new status as the world No. 1 of women’s tennis.`\
+https://www.nytimes.com/2026/09/14/podcasts/us-open-final-rybakina-world-no-1-women.html
+
 **US Open Day 15: Zverev Wins, US Wait Goes On**\
 `Ben Shelton lost to Alexander Zverev in the final, meaning the US wait for an American man to win a Grand Slam title continues.`\
 https://www.nytimes.com/2026/09/14/podcasts/us-open-zverev-wins-mens-final.html
@@ -169,32 +197,4 @@ https://www.nytimes.com/2026/09/14/crosswords/spelling-bee-forum.html
 **Rescue Underway After Ferry Sinks in Indonesia**\
 `Rescue efforts for survivors were underway after an Indonesian ferry capsized in the Java Sea after encountering rough conditions on Sunday, the authorities said.`\
 https://www.nytimes.com/video/world/asia/100000011150437/ferry-sink-indonesia-rescue.html
-
-**Al interior de las conversaciones sobre el fin del mundo en las empresas de IA**\
-`Los investigadores de Anthropic, OpenAI, Meta y Google intentan cada vez más generar conciencia sobre los riesgos de la inteligencia artificial.`\
-https://www.nytimes.com/es/2026/09/14/espanol/ciencia-y-tecnologia/peligros-inteligencia-artificial-empresas.html
-
-**‘Monster: The Lizzie Borden Story’ and 8 More Shows to Watch on TV This Week**\
-`The new installment of Ryan Murphy’s anthology series premieres. NBC hosts the 78th annual Emmy Awards.`\
-https://www.nytimes.com/2026/09/14/arts/television/monster-the-lizzie-borden-story-what-to-watch.html
-
-**Israel’s Elimination Project**\
-`Two languages. Two realities.`\
-https://www.nytimes.com/2026/09/14/opinion/israel-violence-palestine.html
-
-**More Than 120 Are Unaccounted For After Ferry Sinks in Indonesia**\
-`At least six people were killed and more than 100 rescued after the vessel sank in the Java Sea on Sunday, the authorities said.`\
-https://www.nytimes.com/2026/09/14/world/asia/indonesia-ferry-rescue-borneo.html
-
-**Qué son las inmersiones en agua fría y cómo prepararte para practicarlas**\
-`Las inmersiones breves en agua helada pueden beneficiar tu salud física y mental. Aquí tienes algunos consejos para prepararte y adentrarte en esta práctica milenaria.`\
-https://www.nytimes.com/es/2026/09/14/espanol/inmersion-agua-fria.html
-
-**Fashion Executive Tackles PETA Protester at Fashion Show**\
-`Steve Kolb, head of the Council of Fashion Designers of America, was involved in a physical altercation with activists from People for the Ethical Treatment of Animals at a New York Fashion Week runway show.`\
-https://www.nytimes.com/video/style/100000011150236/nyfw-steve-kolb-protest.html
-
-**No Corrections: September 14, 2026**\
-`No corrections appeared in print on Monday, September 14, 2026.`\
-https://www.nytimes.com/2026/09/14/corrections/no-corrections-september-14-2026.html
 
