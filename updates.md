@@ -1,3 +1,23 @@
+**Trump Rejects Calls for an A.I. Slowdown**\
+`Also, the E.P.A. erases limits on climate pollution from power plants. Here’s the latest at the end of Monday.`\
+https://www.nytimes.com/2026/09/14/briefing/trump-ai-slowdown-epa-pollution.html
+
+**As A.I. Fears Rise, Experts Suggest Focusing on the Humans in Charge**\
+`Warnings from industry leaders about doomsday scenarios ignore the power that people have to control how artificial intelligence is used, policy experts say. They are urging lawmakers to act now.`\
+https://www.nytimes.com/2026/09/14/us/ai-fears-human-role.html
+
+**Do You Have Questions About A.I.? We Want to Answer Them.**\
+`The New York Times is soliciting readers’ questions about the dangers — and benefits — posed by artificial intelligence.`\
+https://www.nytimes.com/2026/09/14/science/ai-questions-callout.html
+
+**Emmys Photos: All the Looks From the 2026 Red Carpet**\
+`Stars are arriving at the 78th Emmy Awards in Los Angeles. See what they’re wearing to celebrate TV’s biggest night.`\
+https://www.nytimes.com/2026/09/14/style/emmys-red-carpet-photos.html
+
+**Fashion Executive Placed on Leave After Physical Confrontation at Runway Show**\
+`The Council of Fashion Designers of America said its chief executive, Steve Kolb, would be placed on leave “pending a full review” of an incident at the Cos fashion show.`\
+https://www.nytimes.com/2026/09/14/style/steve-kolb-cfda-leave.html
+
 **Maduro Ally Is Expected to Plead Guilty in Federal Money Laundering Case**\
 `Alex Saab, a former high-ranking government official in Venezuela, could potentially cooperate against Mr. Maduro, who is awaiting trial in New York.`\
 https://www.nytimes.com/2026/09/14/us/alex-saab-maduro-money-laundering-plea.html
