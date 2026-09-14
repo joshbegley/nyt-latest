@@ -1,3 +1,15 @@
+**No Corrections: September 14, 2026**\
+`No corrections appeared in print on Monday, September 14, 2026.`\
+https://www.nytimes.com/2026/09/14/corrections/no-corrections-september-14-2026.html
+
+**Quote of the Day: Rewarded by Drama, Influencers Flout Laws and Safety for Clicks**\
+`Quotation of the Day for Monday, September 14, 2026.`\
+https://www.nytimes.com/2026/09/14/pageoneplus/quote-of-the-day-rewarded-by-drama-influencers-flout-laws-and-safety-for-clicks.html
+
+**On This Day | Sept. 14: The first spacecraft to reach the Moon.**\
+`In 1959, the Soviet space probe Luna 2 became the first human-made object to reach the moon when it crashed onto the lunar surface.`\
+https://www.nytimes.com/2026/09/14/learning/on-this-day-sept-14.html
+
 **Texas Republican’s Racist Social Media Post Draws Condemnation**\
 `Many Republicans criticized the post, some in more direct terms than others.`\
 https://www.nytimes.com/2026/09/13/us/bo-french-racist-post-republicans-texas.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/09/13/opinion/ella-langley-landman-rural-politics.h
 **Opera Is in Trouble. Let’s Channel the Maestro.**\
 `An imagined look at what Arturo Toscanini, one of opera’s greatest interpreters, would say about the troubled art form of today.`\
 https://www.nytimes.com/2026/09/13/opinion/toscanini-opera-conductors-directors-art.html
-
-**NYT Strands Hints for September 14, 2026**\
-`Scroll down for hints and conversation about the puzzle for Monday, Sept. 14, 2026.`\
-https://www.nytimes.com/2026/09/13/crosswords/strands-sidekick-925.html
-
-**‘Viaje a las estrellas’ sigue conquistando generaciones**\
-`Después de 60 años, padres e hijos encuentran en la serie algo más que un lenguaje compartido: también valores que pueden transmitirse.`\
-https://www.nytimes.com/es/2026/09/13/espanol/cultura/viaje-estrellas-videojuego-star-trek.html
-
-**Did Trump Win the Battle Over the Smithsonian?**\
-`Lonnie G. Bunch III, who has led the institution since 2019, parried the White House until deciding it was time to go.`\
-https://www.nytimes.com/2026/09/13/arts/design/did-trump-win-the-battle-over-the-smithsonian.html
 

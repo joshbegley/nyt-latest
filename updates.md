@@ -1,3 +1,15 @@
+**No Corrections: September 14, 2026**\
+`No corrections appeared in print on Monday, September 14, 2026.`\
+https://www.nytimes.com/2026/09/14/corrections/no-corrections-september-14-2026.html
+
+**Quote of the Day: Rewarded by Drama, Influencers Flout Laws and Safety for Clicks**\
+`Quotation of the Day for Monday, September 14, 2026.`\
+https://www.nytimes.com/2026/09/14/pageoneplus/quote-of-the-day-rewarded-by-drama-influencers-flout-laws-and-safety-for-clicks.html
+
+**On This Day | Sept. 14: The first spacecraft to reach the Moon.**\
+`In 1959, the Soviet space probe Luna 2 became the first human-made object to reach the moon when it crashed onto the lunar surface.`\
+https://www.nytimes.com/2026/09/14/learning/on-this-day-sept-14.html
+
 **Texas Republican’s Racist Social Media Post Draws Condemnation**\
 `Many Republicans criticized the post, some in more direct terms than others.`\
 https://www.nytimes.com/2026/09/13/us/bo-french-racist-post-republicans-texas.html
