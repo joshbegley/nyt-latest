@@ -1,3 +1,19 @@
+**British Man Pleads Guilty to Drugging and Raping Wife Over 20 Years**\
+`The police said that a dozen other men conspired with the husband, who is in his 60s, to abuse the woman in northern England.`\
+https://www.nytimes.com/2026/09/14/world/europe/uk-man-wife-drugging-rape-confession.html
+
+**Abbott to Pay $385 Million to Settle Infant Formula Safety Allegations**\
+`The company recalled formulas manufactured at a Michigan plant in 2022, after health officials linked them to serious illnesses in babies.`\
+https://www.nytimes.com/2026/09/14/well/abbott-settlement-infant-formula.html
+
+**The National Debt Never Scared Me. It Scares Me.**\
+`It’s too big to ignore. And it could all end badly.`\
+https://www.nytimes.com/2026/09/14/opinion/national-debt-trump.html
+
+**Vance Campaigns in Kansas as Democrats Target a Republican Stronghold**\
+`Vice President JD Vance is beginning a key final stretch of midterm campaigning by dropping in on the Senate race in Kansas, where Republicans were long seen as heavily favored.`\
+https://www.nytimes.com/2026/09/14/us/politics/jd-vance-kansas-senate-race.html
+
 **The National Debt Never Scared Me. It Scares Me.**\
 `The national debt is too big to ignore--it could all end badly.`\
 https://www.nytimes.com/2026/09/14/opinion/national-debt-trump.html

@@ -1,3 +1,11 @@
+**British Man Pleads Guilty to Drugging and Raping Wife Over 20 Years**\
+`The police said that a dozen other men conspired with the husband, who is in his 60s, to abuse the woman in northern England.`\
+https://www.nytimes.com/2026/09/14/world/europe/uk-man-wife-drugging-rape-confession.html
+
+**Abbott to Pay $385 Million to Settle Infant Formula Safety Allegations**\
+`The company recalled formulas manufactured at a Michigan plant in 2022, after health officials linked them to serious illnesses in babies.`\
+https://www.nytimes.com/2026/09/14/well/abbott-settlement-infant-formula.html
+
 **What Is Driving Diesel Prices Up? Energy Chaos Caused by Two Wars.**\
 `President Trump recently blamed Ukrainian attacks on Russian refineries for causing a spike in diesel prices, but analysts say the Iran war is probably a bigger factor.`\
 https://www.nytimes.com/2026/09/14/business/energy-environment/trump-diesel-russia-ukraine-iran.html
@@ -7,7 +15,7 @@ https://www.nytimes.com/2026/09/14/business/energy-environment/trump-diesel-russ
 https://www.nytimes.com/video/us/100000011151467/macklemore-dropped-ed-sheeran-tour-palestine.html
 
 **The National Debt Never Scared Me. It Scares Me.**\
-`The national debt is too big to ignore--it could all end badly.`\
+`It’s too big to ignore. And it could all end badly.`\
 https://www.nytimes.com/2026/09/14/opinion/national-debt-trump.html
 
 **Macklemore Dropped From Ed Sheeran Tour After ‘Free Palestine’ Remarks**\
@@ -62,7 +70,7 @@ https://www.nytimes.com/2026/09/14/arts/music/wynton-marsalis-liberty-symphony.h
 `Aun cuando Pekín insta a EE. UU. a no exagerar los peligros de la IA, su propio jefe de espionaje presenta la tecnología como una amenaza para la seguridad del Partido Comunista.`\
 https://www.nytimes.com/es/2026/09/14/espanol/mundo/china-ia-espionaje-riesgo-partido.html
 
-**Vance to Campaign in Kansas as Democrats Target a Republican Stronghold**\
+**Vance Campaigns in Kansas as Democrats Target a Republican Stronghold**\
 `Vice President JD Vance is beginning a key final stretch of midterm campaigning by dropping in on the Senate race in Kansas, where Republicans were long seen as heavily favored.`\
 https://www.nytimes.com/2026/09/14/us/politics/jd-vance-kansas-senate-race.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/14/business/dealbook/open-cosmos-space-start-ups
 **Modi Served World Leaders a Meatless Meal, and His Critics Pounced**\
 `Opposition politicians said a vegetarian dinner served at a diplomatic summit misrepresented India’s culinary heritage. A minister in Prime Minister Narendra Modi’s government rejected the criticism.`\
 https://www.nytimes.com/2026/09/14/world/asia/india-brics-vegetarian-dinner.html
-
-**China’s Top Spy Chief Warns A.I. Is a Threat to Party Rule**\
-`Even as Beijing urges the United States not to hype the dangers of A.I., its own spy chief is framing the technology as a threat to the Communist Party’s security.`\
-https://www.nytimes.com/2026/09/14/world/asia/china-ai-security-risks-anthropic.html
-
-**Saudi Arabia Faces ‘Worst-Case Scenario’ After Iran’s Attacks and Trump’s Rebuffs**\
-`The kingdom is in a state of strategic shock after coming under attack from an emboldened Iran and failing to win more U.S. military support, analysts say.`\
-https://www.nytimes.com/2026/09/14/world/middleeast/saudi-iran-trump-yemen-houthis.html
 

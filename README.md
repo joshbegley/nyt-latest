@@ -1,3 +1,15 @@
+**A Wedding Gift for the President’s Son Raises Ethical Concerns**\
+`A Russian businessman with ties to the Kremlin paid hundreds of thousands of dollars for a wedding after-party in the Bahamas for Donald Trump Jr.`\
+https://www.nytimes.com/2026/09/14/us/politics/donald-trump-jr-wedding-russian-businessman.html
+
+**The Local: Flock, fraud and football**\
+`Plus, a Twin Cities travel quiz.`\
+https://www.nytimes.com/2026/09/14/briefing/the-local-flock-fraud-and-football.html
+
+**Bob Mackie: A Life in Pictures**\
+`The designer was known for his flashy, sparkly designs for Cher, Diana Ross, Tina Turner and countless others.`\
+https://www.nytimes.com/2026/09/14/style/bob-mackie-designer-photos.html
+
 **British Man Pleads Guilty to Drugging and Raping Wife Over 20 Years**\
 `The police said that a dozen other men conspired with the husband, who is in his 60s, to abuse the woman in northern England.`\
 https://www.nytimes.com/2026/09/14/world/europe/uk-man-wife-drugging-rape-confession.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/09/14/world/europe/france-ambassador-trump-tweet.ht
 **Russian Strike on Train Station Near Ukraine-Poland Border Seen as Warning to Kyiv’s Allies**\
 `The attack on Ukraine’s rail network, which connects the country to the West, was a jab at Europe, officials said.`\
 https://www.nytimes.com/2026/09/14/world/europe/ukraine-railway-strike-europe.html
-
-**The A.I. Slowdown Debate Goes Global**\
-`A call to slow the development of artificial intelligence has rattled markets and drawn pushback in Washington and Beijing. Others worry it may not be enough.`\
-https://www.nytimes.com/2026/09/14/business/dealbook/ai-slowdown-dc-beijing.html
-
-**Money Is Flowing Into Space Start-Ups. Some Investors See a SpaceX Effect.**\
-`Open Cosmos, a European satellite maker, has raised about $346 million, part of a wave of recent funding deals in the space sector.`\
-https://www.nytimes.com/2026/09/14/business/dealbook/open-cosmos-space-start-ups-spacex.html
-
-**Modi Served World Leaders a Meatless Meal, and His Critics Pounced**\
-`Opposition politicians said a vegetarian dinner served at a diplomatic summit misrepresented India’s culinary heritage. A minister in Prime Minister Narendra Modi’s government rejected the criticism.`\
-https://www.nytimes.com/2026/09/14/world/asia/india-brics-vegetarian-dinner.html
 
