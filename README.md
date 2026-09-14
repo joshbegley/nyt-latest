@@ -1,3 +1,15 @@
+**Brain Implant Helps Woman Communicate in Real Time**\
+`In the latest advance in brain-computer interfaces, a company said its wireless device enabled speech even when a patient just imagined saying words.`\
+https://www.nytimes.com/2026/09/14/well/brain-implant-helps-woman-communicate-in-real-time.html
+
+**Can You Identify These Places That Nurtured Writers?**\
+`Poets and authors have long found inspiration around New York City. Try this quiz to see how many locations you recognize.`\
+https://www.nytimes.com/quiz/2026/09/14/bookreview/nyc-literary-hangouts.html
+
+**A Bright Shrimp Dinner That Keeps Things Interesting**\
+`Golden raisins and briny capers add tangy pops of sweetness and salinity.`\
+https://www.nytimes.com/2026/09/14/dining/a-bright-shrimp-dinner-that-keeps-things-interesting.html
+
 **Haitian Workers Keep Key West Tourism Afloat. Now They’re Disappearing.**\
 `The end of legal protections for Haitian immigrants nationally has jolted the labor market in Key West, a remote vacation destination where many live and work.`\
 https://www.nytimes.com/2026/09/14/us/haitian-workers-key-west-tourism.html
@@ -7,7 +19,7 @@ https://www.nytimes.com/2026/09/14/us/haitian-workers-key-west-tourism.html
 https://www.nytimes.com/2026/09/14/us/politics/trump-mail-ballot-nichols-supreme-court.html
 
 **10-Year Treasury Yield Reaches 5%, Highest Level in Years**\
-`One of the world’s most important interest rates breached 5 percent, as investors continued to rebuff the Trump administration’s efforts to sway the bond market.`\
+`One of the world’s most important interest rates hit a level recorded only once since the global financial crisis, as investors continued to rebuff the Trump administration’s efforts to sway the bond market.`\
 https://www.nytimes.com/2026/09/14/business/10-year-treasury-yield-5-percent.html
 
 **‘Alligator Alcatraz’ Used Small Cages to Confine Migrants, DHS Watchdog Report Says**\
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/09/14/magazine/taryn-simon-guggenheim-exhibition.ht
 **A Former Home for Pigeons, Refitted for People**\
 `Per an unusual request, the interior designer Guy Goodfellow turned an 18th-century dovecote into a place for writing and entertaining.`\
 https://www.nytimes.com/2026/09/14/t-magazine/england-dovecote-design.html
-
-**Should We Still Be Watching and Playing Football?**\
-`At least one in four N.F.L. players might expect to develop a degenerative brain disease, according to a new report. How should this news affect our view of the sport?`\
-https://www.nytimes.com/2026/09/14/learning/should-we-still-be-watching-and-playing-football.html
-
-**Word of the Day: salvage**\
-`This word has appeared in 250 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/09/14/learning/word-of-the-day-salvage.html
-
-**Alexei Ratmansky Stages a Ballet in Kyiv, Between Trips to the Bomb Shelter**\
-`The choreographer Alexei Ratmansky and his wife, Tatiana, returned to the national ballet company at a bleak moment, bringing the gift of a difficult, sparkling work.`\
-https://www.nytimes.com/2026/09/14/arts/dance/alexei-ratmansky-kyiv-ukrainian-national-ballet-balanchine.html
 
