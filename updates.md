@@ -1,3 +1,7 @@
+**Steve Kolb, C.F.D.A. President, Involved in Physical Altercation with Fashion Show Protesters**\
+`Steve Kolb, head of the Council of Fashion Designers of America, was captured on video physically restraining animal rights activists at the Cos runway presentation on Sunday.`\
+https://www.nytimes.com/2026/09/13/style/cfda-steve-kolb-nyfw-protesters.html
+
 **Kennedy Center Warns of Bankruptcy Unless Trump’s Name Is Added**\
 `The caution, contained in a draft resolution to the center’s board, comes as a federal judge decides whether President Trump’s name should remain off the building.`\
 https://www.nytimes.com/2026/09/13/arts/design/trump-kennedy-center-bankruptcy-closure.html
