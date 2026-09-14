@@ -1,3 +1,11 @@
+**Ex-Anthropic Employee on How A.I. Could Threaten Humanity**\
+`The A.I. researcher who quit Anthropic joins Natalie Kitroeff on “The Daily” to discuss how A.I. would actually pose an existential risk to human life.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011151420/ex-anthropic-employee-on-how-ai-could-threaten-humanity.html
+
+**Ex-Anthropic Employee: Here’s Why A.I. Might Want to Kill Us**\
+`The A.I. researcher who quit Anthropic joins Natalie Kitroeff on “The Daily” to discuss why A.I. systems might eventually become “anti-human.”`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011151434/ex-anthropic-employee-heres-why-ai-might-want-to-kill-us.html
+
 **An Armadillo Arrives in … Ohio?**\
 `Traditionally found in warm climates, like the American Southwest, armadillos have been migrating farther and farther north, researchers say.`\
 https://www.nytimes.com/2026/09/14/us/armadillo-ohio.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/14/briefing/rogue-ai.html
 **Meet a College Student Who Picks Up the Dead**\
 `The Jewish Days of Awe are meant to awaken us to the fact that life is finite. One student is attentive to that, all the time.`\
 https://www.nytimes.com/2026/09/14/briefing/meet-a-college-student-who-picks-up-the-dead.html
-
-**The A.I. Researcher Whose Rebellion Is Changing Everything**\
-`Jacob Coxon, who quit his job at Anthropic, discusses his concerns about the risks of artificial intelligence.`\
-https://www.nytimes.com/2026/09/14/podcasts/the-daily/the-ai-researcher-whose-rebellion-is-changing-everything.html
-
-**NYT Connections Answers for September 15, 2026**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, Sept. 15, 2026.`\
-https://www.nytimes.com/2026/09/14/crosswords/connections-companion-1192.html
 
