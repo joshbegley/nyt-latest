@@ -1,3 +1,7 @@
+**Al interior de las conversaciones sobre el fin del mundo en las empresas de IA**\
+`Los investigadores de Anthropic, OpenAI, Meta y Google intentan cada vez más generar conciencia sobre los riesgos de la inteligencia artificial.`\
+https://www.nytimes.com/es/2026/09/14/espanol/ciencia-y-tecnologia/peligros-inteligencia-artificial-empresas.html
+
 **‘Monster: The Lizzie Borden Story’ and 8 More Shows to Watch on TV This Week**\
 `The new installment of Ryan Murphy’s anthology series premieres. NBC hosts the 78th annual Emmy Awards.`\
 https://www.nytimes.com/2026/09/14/arts/television/monster-the-lizzie-borden-story-what-to-watch.html
