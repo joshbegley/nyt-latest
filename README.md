@@ -15,7 +15,7 @@ https://www.nytimes.com/2026/09/13/obituaries/george-chuvalo-dead.html
 https://www.nytimes.com/2026/09/13/world/europe/trump-tariffs-irish-whiskey.html
 
 **Steve Kolb, C.F.D.A. President, Involved in Physical Altercation with Fashion Show Protesters**\
-`Steve Kolb, head of the Council of Fashion Designers of America, was captured on video physically restraining PETA protesters at a runway presentation on Sunday.`\
+`Steve Kolb, head of the Council of Fashion Designers of America, was captured on video physically restraining animal rights activists at the Cos runway presentation on Sunday.`\
 https://www.nytimes.com/2026/09/13/style/cfda-steve-kolb-nyfw-protesters.html
 
 **Oil Prices Jump on Energy Supply Worries**\
