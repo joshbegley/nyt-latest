@@ -1,3 +1,7 @@
+**‘Lanterns’ Season 1, Episode 5 Recap: The Heart Wants What It Wants**\
+`The dominant theme of this week’s action-packed and chaotic episode was evolution. Situations shift. People move on.`\
+https://www.nytimes.com/2026/09/13/arts/television/lanterns-recap-season-1-episode-5.html
+
 **Some in Silicon Valley Are Questioning the Calls for an A.I. Slowdown**\
 `The debate over the safety of artificial intelligence grew personal as key tech leaders said calls for government regulation were self-serving and misplaced.`\
 https://www.nytimes.com/2026/09/13/technology/silicon-valley-ai-slowdown.html
