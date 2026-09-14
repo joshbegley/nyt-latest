@@ -1,3 +1,11 @@
+**Legionella Bacteria Found in Cooling Tower at Yankee Stadium**\
+`A Legionnaires’ disease outbreak in the Bronx has killed one person and infected nine. A Yankees spokesman said that its towers were cleaned on Sunday, and the city has not asked that games be postponed.`\
+https://www.nytimes.com/2026/09/13/nyregion/yankee-stadium-tower-legionnaires.html
+
+**Okinawa Elects a Conservative Amid Fears About China and the Economy**\
+`Genta Koja will become the Japanese archipelago’s next governor, a win for the country’s hawkish prime minister as she works to accelerate a military buildup.`\
+https://www.nytimes.com/2026/09/13/world/asia/japapn-okinawa-election-governor-conservative-china-economy.html
+
 **Steve Kolb, C.F.D.A. President, Involved in Physical Altercation with Fashion Show Protesters**\
 `Steve Kolb, head of the Council of Fashion Designers of America, was captured on video physically restraining animal rights activists at the Cos runway presentation on Sunday.`\
 https://www.nytimes.com/2026/09/13/style/cfda-steve-kolb-nyfw-protesters.html

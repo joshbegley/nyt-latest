@@ -27,7 +27,7 @@ https://www.nytimes.com/2026/09/13/business/oil-prices-jump-on-energy-supply-wor
 https://www.nytimes.com/2026/09/13/crosswords/daily-puzzle-2026-09-14.html
 
 **Legionella Bacteria Found in Cooling Tower at Yankee Stadium**\
-`A recent outbreak of Legionnaires’ disease in the South Bronx has killed one person and infected nine others.`\
+`A Legionnaires’ disease outbreak in the Bronx has killed one person and infected nine. A Yankees spokesman said that its towers were cleaned on Sunday, and the city has not asked that games be postponed.`\
 https://www.nytimes.com/2026/09/13/nyregion/yankee-stadium-tower-legionnaires.html
 
 **Russian Strikes on Ukraine Hits Near David Petraeus, ex-C.I.A. Chief**\
@@ -98,8 +98,8 @@ https://www.nytimes.com/2026/09/13/us/politics/congress-ai-risks-johnson-jeffrie
 `And a special announcement to share.`\
 https://www.nytimes.com/2026/09/13/dining/the-recipe-that-launched-my-nyt-column.html
 
-**Okinawa Set to Elect Conservative Amid Fears About China and Economy**\
-`Genta Koja was projected to become the Japanese archipelago’s next governor, a win for the country’s hawkish prime minister as she works to accelerate a military buildup.`\
+**Okinawa Elects a Conservative Amid Fears About China and the Economy**\
+`Genta Koja will become the Japanese archipelago’s next governor, a win for the country’s hawkish prime minister as she works to accelerate a military buildup.`\
 https://www.nytimes.com/2026/09/13/world/asia/japapn-okinawa-election-governor-conservative-china-economy.html
 
 **Celine Dion Begins Her Paris Comeback Concert Run**\
