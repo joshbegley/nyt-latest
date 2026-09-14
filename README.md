@@ -1,3 +1,11 @@
+**Russian Strike on Train Station Near Poland Seen as Warning to Kyiv’s Allies**\
+`The attack on Ukraine’s rail network, which connects the country to the West, was a jab at Europe, officials said.`\
+https://www.nytimes.com/2026/09/14/world/europe/ukraine-railway-strike-europe.html
+
+**The A.I. Slowdown Debate Goes Global**\
+`A call to slow the development of artificial intelligence has rattled markets and drawn pushback in Washington and Beijing. Others worry it may not be enough.`\
+https://www.nytimes.com/2026/09/14/business/dealbook/ai-slowdown-dc-beijing.html
+
 **Money Is Flowing Into Space Start-Ups. Some Investors See a SpaceX Effect.**\
 `Open Cosmos, a European satellite maker, has raised $346 million, part of a wave of recent funding deals in the space sector.`\
 https://www.nytimes.com/2026/09/14/business/dealbook/open-cosmos-space-start-ups-spacex.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/14/us/university-core-curriculum-texas-politics.
 **How Healthy Are Sardines?**\
 `The little fish are swimming in nutrients.`\
 https://www.nytimes.com/2026/09/14/well/eat/sardines-health-benefits-recipes.html
-
-**6 London Swimming Spots to Plunge Into All Year Long**\
-`A dip in one of London’s swimming spots is an opportunity to immerse yourself “in an ordinary hour of a city’s life.”`\
-https://www.nytimes.com/2026/09/14/travel/london-swimming-pools.html
-
-**A Teen Autopsy Marks the Arrival of a Deadly Drug in San Francisco**\
-`City officials — and one determined mother — are working to stop the spread of cychlorphine, which is far more potent than fentanyl.`\
-https://www.nytimes.com/2026/09/14/us/san-francisco-autopsy-cychlorphine.html
 
