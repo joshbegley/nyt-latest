@@ -1,3 +1,11 @@
+**Haitian Workers Keep Key West Tourism Afloat. Now They’re Disappearing.**\
+`The end of legal protections for Haitian immigrants nationally has jolted the labor market in Key West, a remote vacation destination where many live and work.`\
+https://www.nytimes.com/2026/09/14/us/haitian-workers-key-west-tourism.html
+
+**Trump Administration Moves to Integrate A.I. Into Medical Care Despite Concerns**\
+`Federal projects are rolling out A.I. agents that offer therapy and prescribe medicine, raising concerns about safety and the influence of venture capital investors.`\
+https://www.nytimes.com/2026/09/14/health/ai-doctors-medicare-fda.html
+
 **As Supreme Court Weighs Trump Mail Ballot Plan, Another Judge Blocks It**\
 `The ruling delivered another blow to the plan with a looming Supreme Court decision that could determine whether it goes into effect before the midterm election.`\
 https://www.nytimes.com/2026/09/14/us/politics/trump-mail-ballot-nichols-supreme-court.html

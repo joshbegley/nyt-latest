@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/09/14/us/politics/trump-mail-ballot-nichols-supreme
 `One of the world’s most important interest rates breached 5 percent, as investors continued to rebuff the Trump administration’s efforts to sway the bond market.`\
 https://www.nytimes.com/2026/09/14/business/10-year-treasury-yield-5-percent.html
 
-**‘Alligator Alcatraz’ Used Small Cages as ‘Calming Areas,’ Report Says**\
+**‘Alligator Alcatraz’ Used Small Cages to Confine Migrants, DHS Watchdog Report Says**\
 `The Department of Homeland Security’s internal watchdog provided new details about conditions at the now-shuttered Florida detention center.`\
 https://www.nytimes.com/2026/09/14/us/alligator-alcatraz-dhs-inspector-general.html
 
@@ -134,7 +134,7 @@ https://www.nytimes.com/2026/09/14/nyregion/vanderbilt-whitney-museum-partnershi
 `Starting Sept. 21, we’ll unveil a list of 100, as voted on by more than 500 television professionals in Hollywood and around the world. Make sure you’re getting updates.`\
 https://www.nytimes.com/2026/09/14/arts/television/100-best-tv-shows-of-the-21st-century-sign-up.html
 
-**Is A.I. Raising the Chances of Biological Warfare?**\
+**Leaked A.I. Queries Raise Fears of New Biological Weapons Race**\
 `Current chatbots aren’t likely to help lone actors invent a deadly pathogen, experts say. But newer models, trained in biology, may need stronger safeguards.`\
 https://www.nytimes.com/2026/09/14/science/ai-bioweapons.html
 
