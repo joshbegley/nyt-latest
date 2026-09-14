@@ -1,3 +1,7 @@
+**Macklemore Dropped From Ed Sheeran Tour After ‘Free Palestine’ Remarks**\
+`The rapper, a critic of the war in Gaza, made the comments onstage at MetLife Stadium.`\
+https://www.nytimes.com/2026/09/14/arts/music/macklemore-ed-sheeran-tour-palestine-gaza.html
+
 **Ex-Anthropic Employee on How A.I. Could Threaten Humanity**\
 `The A.I. researcher who quit Anthropic joins Natalie Kitroeff on “The Daily” to discuss how A.I. would actually pose an existential risk to human life.`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011151420/ex-anthropic-employee-on-how-ai-could-threaten-humanity.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/09/14/espanol/opinion/inteligencia-artificial-pe
 **Rogue Machines**\
 `We look into the concerns over artificial intelligence.`\
 https://www.nytimes.com/2026/09/14/briefing/rogue-ai.html
-
-**Meet a College Student Who Picks Up the Dead**\
-`The Jewish Days of Awe are meant to awaken us to the fact that life is finite. One student is attentive to that, all the time.`\
-https://www.nytimes.com/2026/09/14/briefing/meet-a-college-student-who-picks-up-the-dead.html
 
