@@ -1,3 +1,15 @@
+**Una mujer criticó al gobierno de Trinidad y Tobago en una llamada privada. Luego fue detenida por meses**\
+`Las tensiones raciales y políticas estallan en Trinidad y Tobago después de que miembros de una minoría étnica fueran acusados de un complot de asesinato con base en una llamada telefónica privada.`\
+https://www.nytimes.com/es/2026/09/14/espanol/mundo/trinidad-tobago-asesinato-complot.html
+
+**As Immigrants Seek Legal Status, Redacted Documents Doom Their Chances**\
+`Many noncitizens need immigration records the government has to prove their legal stay and resist deportation. The government is redacting and withholding those documents, lawyers say.`\
+https://www.nytimes.com/2026/09/14/us/politics/immigrants-foia.html
+
+**‘I Have a Lot to Say’: Brain Implant Helps a Disabled Patient Speak**\
+`In the latest advance in brain-computer interfaces, a company said its wireless device enabled speech even when a patient just imagined saying words.`\
+https://www.nytimes.com/2026/09/14/well/brain-implant-helps-woman-communicate-in-real-time.html
+
 **Saudi Leader Meets U.S. Commander as Houthi Attacks Threaten Oil Markets**\
 `Crown Prince Mohammed bin Salman asked the United States for more U.S. military help last week after the Iranian-backed Houthi forces in Yemen launched a broad offensive.`\
 https://www.nytimes.com/2026/09/14/world/middleeast/saudi-leader-meets-centcom.html
