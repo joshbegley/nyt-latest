@@ -1,3 +1,7 @@
+**Taylor and Travis Sentence Scramble**\
+`Can you put five sentences about celebrity weddings in the right order?`\
+https://www.nytimes.com/2026/09/14/learning/taylor-and-travis-sentence-scramble.html
+
 **More Than 120 Are Unaccounted For After Ferry Sinks in Indonesia**\
 `At least six people were killed and more than 100 rescued after the vessel sank in the Java Sea on Sunday, the authorities said.`\
 https://www.nytimes.com/2026/09/14/world/asia/indonesia-ferry-rescue-borneo.html

@@ -1,3 +1,7 @@
+**Taylor and Travis Sentence Scramble**\
+`Can you put five sentences about celebrity weddings in the right order?`\
+https://www.nytimes.com/2026/09/14/learning/taylor-and-travis-sentence-scramble.html
+
 **Mamdani and New York’s Business Leaders Agree On at Least One Thing**\
 `Yes, child care is too expensive, a new group of business leaders says. But solving the problem with city taxes? That might be an issue.`\
 https://www.nytimes.com/2026/09/14/nyregion/child-care-new-york-city-business-leaders-mamdani.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/13/us/brandon-johnson-chicago-mayor.html
 **What’s Happening to TV Comedies Is Not Funny**\
 `The demands of streaming, which is now how most viewers watch TV, are not suited to just plain old comedy.`\
 https://www.nytimes.com/2026/09/13/opinion/emmy-comedy-nominees-tv.html
-
-**Meeting Between Iran, Arab States Postponed as Mideast Diplomacy Stalls**\
-`Talks between the United States and Iran hit a dead end weeks ago, leaving Arab countries struggling to manage their ties to Tehran amid ongoing attacks.`\
-https://www.nytimes.com/2026/09/13/world/middleeast/iran-meeting-gulf-arab-states.html
 
