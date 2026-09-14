@@ -1,3 +1,7 @@
+**Supreme Court Blocks Trump Administration Plan to Screen Mail-In Ballots**\
+`The Trump administration had asked the justices to allow a new Postal Service plan to screen ballots just weeks before the midterm elections.`\
+https://www.nytimes.com/2026/09/14/us/politics/supreme-court-trump-mail-voting.html
+
 **These Kinds of Moments Make Us Love Restaurants**\
 `TK`\
 https://www.nytimes.com/2026/09/14/dining/restaurant-moments.html

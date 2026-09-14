@@ -1,3 +1,7 @@
+**Supreme Court Blocks Trump Administration Plan to Screen Mail-In Ballots**\
+`The Trump administration had asked the justices to allow a new Postal Service plan to screen ballots just weeks before the midterm elections.`\
+https://www.nytimes.com/2026/09/14/us/politics/supreme-court-trump-mail-voting.html
+
 **These Kinds of Moments Make Us Love Restaurants**\
 `TK`\
 https://www.nytimes.com/2026/09/14/dining/restaurant-moments.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/09/14/us/politics/homeland-security-voter-fraud-inv
 **Tens of Thousands Displaced as Houthis Advance Along Yemen’s Coast**\
 `Recent fighting between the Iran-backed Houthi rebels and Saudi-backed Yemeni government forces has displaced tens of thousands of families to camps in government-held areas.`\
 https://www.nytimes.com/video/world/middleeast/100000011150589/tens-of-thousands-displaced-as-houthis-advance-along-yemens-coast.html
-
-**Syrians Protest as Surge in Fuel Prices Adds to Cost-of-Living Crisis**\
-`The government’s decision to increase prices as much as 40 percent spurred widespread demonstrations across the country.`\
-https://www.nytimes.com/2026/09/14/world/middleeast/syrians-protest-fuel-price-rises.html
 

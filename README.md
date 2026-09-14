@@ -1,3 +1,7 @@
+**Judge Blocks Trump Rule Aimed at International Students and Journalists**\
+`Judge F. Dennis Saylor IV wrote that the administration’s reasons for a rule limiting the length of stay for academics and journalists were “exceptionally weak.”`\
+https://www.nytimes.com/2026/09/14/us/politics/foreign-students-visas-trump-ruling.html
+
 **Supreme Court Blocks Trump Administration Plan to Screen Mail-In Ballots**\
 `The Trump administration had asked the justices to allow a new Postal Service plan to screen ballots just weeks before the midterm elections.`\
 https://www.nytimes.com/2026/09/14/us/politics/supreme-court-trump-mail-voting.html
@@ -181,12 +185,4 @@ https://www.nytimes.com/es/2026/09/14/espanol/estados-unidos/trump-ia-anthropic.
 **Los altos mandos del Pentágono enfrentan la agitación bajo el mando de Hegseth**\
 `Las distracciones persistentes han creado un clima de desconfianza a medida que las fuerzas armadas de EE. UU. enfrentan una serie de problemas en tiempos de guerra.`\
 https://www.nytimes.com/es/2026/09/14/espanol/estados-unidos/pentagono-secretario-defensa-crisis.html
-
-**Whistle-Blower: Federal Agents May Have Broken State Laws in Search For Voter Fraud**\
-`Agents expressed concern about being directed by top Homeland Security leaders to use private information to look up voter records in state databases.`\
-https://www.nytimes.com/2026/09/14/us/politics/homeland-security-voter-fraud-investigation.html
-
-**Tens of Thousands Displaced as Houthis Advance Along Yemen’s Coast**\
-`Recent fighting between the Iran-backed Houthi rebels and Saudi-backed Yemeni government forces has displaced tens of thousands of families to camps in government-held areas.`\
-https://www.nytimes.com/video/world/middleeast/100000011150589/tens-of-thousands-displaced-as-houthis-advance-along-yemens-coast.html
 
