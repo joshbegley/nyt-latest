@@ -1,3 +1,11 @@
+**Russian Strike on Train Station Near Poland Seen as Warning to Kyiv’s Allies**\
+`The attack on Ukraine’s rail network, which connects the country to the West, was a jab at Europe, officials said.`\
+https://www.nytimes.com/2026/09/14/world/europe/ukraine-railway-strike-europe.html
+
+**The A.I. Slowdown Debate Goes Global**\
+`A call to slow the development of artificial intelligence has rattled markets and drawn pushback in Washington and Beijing. Others worry it may not be enough.`\
+https://www.nytimes.com/2026/09/14/business/dealbook/ai-slowdown-dc-beijing.html
+
 **Money Is Flowing Into Space Start-Ups. Some Investors See a SpaceX Effect.**\
 `Open Cosmos, a European satellite maker, has raised $346 million, part of a wave of recent funding deals in the space sector.`\
 https://www.nytimes.com/2026/09/14/business/dealbook/open-cosmos-space-start-ups-spacex.html
