@@ -1,3 +1,7 @@
+**Beverly Hills Home of Ron Popeil, TV Salesman and Infomercial Pioneer, Is Listed for $25 Million**\
+`Now, how much would you pay for Ron Popeil’s Beverly Hills estate? It’s listed for $25 million.`\
+https://www.nytimes.com/2026/09/14/realestate/ron-popeil-beverly-hills-home.html
+
 **U.S. Health Officials Move Quickly to Deploy Medical A.I. Despite Concerns**\
 `Federal projects are rolling out A.I. agents that offer therapy and prescribe medicine, raising concerns about safety and the influence of venture capital investors.`\
 https://www.nytimes.com/2026/09/14/health/ai-doctors-medicare-fda.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/14/us/politics/sullivan-trump-republican-tariffs
 **Why Is Everything So Oversize?**\
 `A reader wants help navigating the bigger-is-better clothing trend.`\
 https://www.nytimes.com/2026/09/14/fashion/oversize-clothing-styling.html
-
-**Can You Trust General Election Polls After Primary Misses?**\
-`Polls in several closely watched primaries over the summer were off by wide margins, but pollsters remain confident that general elections are a different story.`\
-https://www.nytimes.com/2026/09/14/us/elections/polls-accuracy-primaries-midterms.html
 

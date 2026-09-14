@@ -1,3 +1,7 @@
+**U.S. Health Officials Move Quickly to Deploy Medical A.I. Despite Concerns**\
+`Federal projects are rolling out A.I. agents that offer therapy and prescribe medicine, raising concerns about safety and the influence of venture capital investors.`\
+https://www.nytimes.com/2026/09/14/health/ai-doctors-medicare-fda.html
+
 **Heavy Rains Flood the Northeast**\
 `Rounds of showers and thunderstorms flooded communities and disrupted traffic in parts of the northeastern United States on Sunday.`\
 https://www.nytimes.com/video/weather/100000011150541/rain-floods-northeast-connecticut-new-jersey.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/14/fashion/oversize-clothing-styling.html
 **Can You Trust General Election Polls After Primary Misses?**\
 `Polls in several closely watched primaries over the summer were off by wide margins, but pollsters remain confident that general elections are a different story.`\
 https://www.nytimes.com/2026/09/14/us/elections/polls-accuracy-primaries-midterms.html
-
-**Kent Monkman, an Indigenous Painter, Sees a Vermeer and the Sparks Fly**\
-`For a new show at the Frick Collection, Kent Monkman imagines what Indigenous people see when they see fur trappers, General Custer and even Jeff Bezos.`\
-https://www.nytimes.com/2026/09/14/arts/design/kent-monkman-frick.html
 

@@ -1,3 +1,7 @@
+**U.S. Health Officials Move Quickly to Deploy Medical A.I. Despite Concerns**\
+`Federal projects are rolling out A.I. agents that offer therapy and prescribe medicine, raising concerns about safety and the influence of venture capital investors.`\
+https://www.nytimes.com/2026/09/14/health/ai-doctors-medicare-fda.html
+
 **How to Watch the 2026 Emmy Awards**\
 `NBC is broadcasting the Monday night ceremony, which will be hosted by Mariska Hargitay.`\
 https://www.nytimes.com/2026/09/14/arts/television/emmy-awards-how-to-watch.html
