@@ -1,3 +1,7 @@
+**Saudi Leader Meets U.S. Commander as Houthi Attacks Threaten Oil Markets**\
+`Crown Prince Mohammed bin Salman asked the United States for more U.S. military help last week after the Iranian-backed Houthi forces in Yemen launched a broad offensive.`\
+https://www.nytimes.com/2026/09/14/world/middleeast/saudi-leader-meets-centcom.html
+
 **Bob Mackie, Designer Who Bedazzled Carol Burnett and Cher, Dies at 87**\
 `His sequined gowns and outrageous costumes threw clouds of glitter at American fashion for over half a century.`\
 https://www.nytimes.com/2026/09/14/style/bob-mackie-dead.html

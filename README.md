@@ -1,3 +1,7 @@
+**As Immigrants Seek Legal Status, Redacted Documents Doom Their Chances**\
+`Many noncitizens need immigration records the government has to prove their legal stay and resist deportation. The government is redacting and withholding those documents, lawyers say.`\
+https://www.nytimes.com/2026/09/14/us/politics/immigrants-foia.html
+
 **Bob Mackie, Designer Who Bedazzled Carol Burnett and Cher, Dies at 87**\
 `His sequined gowns and outrageous costumes threw clouds of glitter at American fashion for over half a century.`\
 https://www.nytimes.com/2026/09/14/style/bob-mackie-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/14/arts/television/100-best-tv-shows-of-the-21st
 **A.I. Queries From Abroad Raise Fears of a Biological Weapons Race**\
 `Today’s chatbots aren’t likely to help lone actors invent a deadly pathogen, experts say. But newer models, trained in biology, may need stronger safeguards.`\
 https://www.nytimes.com/2026/09/14/science/ai-bioweapons.html
-
-**As Midterms Rage, Gillibrand Wants Congress to Talk Menopause**\
-`Senator Kirsten Gillibrand of New York is devoting a hearing to a topic that affects millions but is poorly understood and widely ignored, including when it comes to federal research money.`\
-https://www.nytimes.com/2026/09/14/us/politics/democrat-senate-menopause-gillibrand.html
 
