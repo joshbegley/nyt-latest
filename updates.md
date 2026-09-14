@@ -1,3 +1,15 @@
+**Bob Mackie, Designer Who Bedazzled Carol Burnett and Cher, Dies at 87**\
+`His sequined gowns and outrageous costumes threw clouds of glitter at American fashion for over half a century.`\
+https://www.nytimes.com/2026/09/14/style/bob-mackie-dead.html
+
+**Bond Market Rebukes Bessent by Sending Borrowing Costs Ever Higher**\
+`The Treasury secretary had dared “Bloomberg terminal bros” to bet against him and they did.`\
+https://www.nytimes.com/2026/09/14/business/bond-market-scott-bessent.html
+
+**A.I. Queries From Abroad Raise Fears of a Biological Weapons Race**\
+`Today’s chatbots aren’t likely to help lone actors invent a deadly pathogen, experts say. But newer models, trained in biology, may need stronger safeguards.`\
+https://www.nytimes.com/2026/09/14/science/ai-bioweapons.html
+
 **Mahmoud Khalil Says Columbia Failed to Protect Pro-Palestinian Students**\
 `In a federal lawsuit, Mr. Khalil and other former student activists say the university was deliberately indifferent to their harassment even before the 2023 Hamas attacks.`\
 https://www.nytimes.com/2026/09/14/nyregion/mahmoud-khalil-columbia-lawsuit.html

@@ -1,9 +1,13 @@
+**Bob Mackie, Designer Who Bedazzled Carol Burnett and Cher, Dies at 87**\
+`His sequined gowns and outrageous costumes threw clouds of glitter at American fashion for over half a century.`\
+https://www.nytimes.com/2026/09/14/style/bob-mackie-dead.html
+
 **Mahmoud Khalil Says Columbia Failed to Protect Pro-Palestinian Students**\
 `In a federal lawsuit, Mr. Khalil and other former student activists say the university was deliberately indifferent to their harassment even before the 2023 Hamas attacks.`\
 https://www.nytimes.com/2026/09/14/nyregion/mahmoud-khalil-columbia-lawsuit.html
 
 **Bond Market Rebukes Bessent by Sending Borrowing Costs Ever Higher**\
-`The Treasury secretary dared “Bloomberg terminal bros” to bet against him and they did.`\
+`The Treasury secretary had dared “Bloomberg terminal bros” to bet against him and they did.`\
 https://www.nytimes.com/2026/09/14/business/bond-market-scott-bessent.html
 
 **Trump Rejects Talk of A.I. Regulation and Calls Out Anthropic’s CEO**\
@@ -186,15 +190,11 @@ https://www.nytimes.com/2026/09/14/nyregion/vanderbilt-whitney-museum-partnershi
 `Starting Sept. 21, we’ll unveil a list of 100, as voted on by more than 500 television professionals in Hollywood and around the world. Make sure you’re getting updates.`\
 https://www.nytimes.com/2026/09/14/arts/television/100-best-tv-shows-of-the-21st-century-sign-up.html
 
-**Leaked A.I. Queries Raise Fears of New Biological Weapons Race**\
-`Current chatbots aren’t likely to help lone actors invent a deadly pathogen, experts say. But newer models, trained in biology, may need stronger safeguards.`\
+**A.I. Queries From Abroad Raise Fears of a Biological Weapons Race**\
+`Today’s chatbots aren’t likely to help lone actors invent a deadly pathogen, experts say. But newer models, trained in biology, may need stronger safeguards.`\
 https://www.nytimes.com/2026/09/14/science/ai-bioweapons.html
 
 **As Midterms Rage, Gillibrand Wants Congress to Talk Menopause**\
 `Senator Kirsten Gillibrand of New York is devoting a hearing to a topic that affects millions but is poorly understood and widely ignored, including when it comes to federal research money.`\
 https://www.nytimes.com/2026/09/14/us/politics/democrat-senate-menopause-gillibrand.html
-
-**How a Family of 5 Lives on $30,000 a Year in the Bronx**\
-`To help his family, Germel Younger has become a professional caregiver, but the pay barely covers their expenses.`\
-https://www.nytimes.com/interactive/2026/09/14/nyregion/nyc-budgeting-affordability-younger.html
 
