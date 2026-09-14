@@ -1,3 +1,11 @@
+**Why Trump Will Declare Victory No Matter What**\
+`President Trump is urging voters to treat him as if he’s on the ballot in November. On “The Opinions,” Carlos Lozada explains why that strategy could make the midterms a referendum on Trump himself.`\
+https://www.nytimes.com/video/opinion/100000011144133/why-trump-will-declare-victory-no-matter-what.html
+
+**Saudi Arabia Faces ‘Worst-Case Scenario’ After Iran’s Attacks and Trump’s Rebuffs**\
+`The kingdom is in a state of strategic shock after coming under attack from an emboldened Iran and failing to win more U.S. military support, analysts say.`\
+https://www.nytimes.com/2026/09/14/world/middleeast/saudi-iran-trump-yemen-houthis.html
+
 **Money Is Flowing Into Space Start-Ups. Some Investors See a SpaceX Effect.**\
 `Open Cosmos, a European satellite maker, has raised about $346 million, part of a wave of recent funding deals in the space sector.`\
 https://www.nytimes.com/2026/09/14/business/dealbook/open-cosmos-space-start-ups-spacex.html

@@ -1,3 +1,7 @@
+**Why Trump Will Declare Victory No Matter What**\
+`President Trump is urging voters to treat him as if he’s on the ballot in November. On “The Opinions,” Carlos Lozada explains why that strategy could make the midterms a referendum on Trump himself.`\
+https://www.nytimes.com/video/opinion/100000011144133/why-trump-will-declare-victory-no-matter-what.html
+
 **France Mocked U.S. for Human Rights Vote, Then Quietly Apologized**\
 `After the Trump administration blocked a new ambassador to Washington, the country expressed regret for a post from a French official social media account.`\
 https://www.nytimes.com/2026/09/14/world/europe/france-ambassador-trump-tweet.html
@@ -22,7 +26,7 @@ https://www.nytimes.com/2026/09/14/world/asia/india-brics-vegetarian-dinner.html
 `Even as Beijing urges the United States not to hype the dangers of A.I., its own spy chief is framing the technology as a threat to the Communist Party’s security.`\
 https://www.nytimes.com/2026/09/14/world/asia/china-ai-security-risks-anthropic.html
 
-**Saudi Arabia Faces ‘Worst-Case Scenario’ After Being Rebuffed by Trump**\
+**Saudi Arabia Faces ‘Worst-Case Scenario’ After Iran’s Attacks and Trump’s Rebuffs**\
 `The kingdom is in a state of strategic shock after coming under attack from an emboldened Iran and failing to win more U.S. military support, analysts say.`\
 https://www.nytimes.com/2026/09/14/world/middleeast/saudi-iran-trump-yemen-houthis.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/14/arts/design/kent-monkman-frick.html
 **Book Review: ‘Profiles in Cowardice,’ by Jacob Weisberg**\
 `In “Profiles in Cowardice,” Jacob Weisberg offers a grim twist on John F. Kennedy’s collection of heroic biographies.`\
 https://www.nytimes.com/2026/09/14/books/review/profiles-in-cowardice-jacob-weisberg.html
-
-**How University Core Curriculums Are Getting Political**\
-`Politics and other factors are causing universities to reconsider what classes are core requirements. In some places, civics and classics are replacing climate change and sociology.`\
-https://www.nytimes.com/2026/09/14/us/university-core-curriculum-texas-politics.html
 
