@@ -26,7 +26,7 @@ https://www.nytimes.com/es/2026/09/14/espanol/mundo/ataques-iran-arabia-saudita-
 `Harrowing social media videos showed runners navigating chest-high waters after a drenching rainstorm on Sunday.`\
 https://www.nytimes.com/2026/09/14/nyregion/half-marathon-new-jersey-flooding.html
 
-**Russian Businessman Paid for Donald Trump Jr.’s Lavish Wedding After-Party**\
+**Russian Businessman With Putin Ties Paid for Donald Trump Jr.’s Wedding Party**\
 `The payments, totaling hundreds of thousands of dollars, represented an extraordinary flouting of ethical norms for an American president’s family member.`\
 https://www.nytimes.com/2026/09/14/us/politics/donald-trump-jr-wedding-russian-businessman.html
 
