@@ -27,7 +27,7 @@ https://www.nytimes.com/2026/09/14/dining/a-bright-shrimp-dinner-that-keeps-thin
 https://www.nytimes.com/2026/09/14/us/haitian-workers-key-west-tourism.html
 
 **As Supreme Court Weighs Trump Mail Ballot Plan, Another Judge Blocks It**\
-`The ruling delivered another blow to the plan with a looming Supreme Court decision that could determine whether it goes into effect before the midterm election.`\
+`The ruling by a lower court judge was another blow to President Trump’s effort to make voting by mail harder. The Supreme Court is also considering the Trump plan.`\
 https://www.nytimes.com/2026/09/14/us/politics/trump-mail-ballot-nichols-supreme-court.html
 
 **10-Year Treasury Yield Reaches 5%, Highest Level in Years**\
