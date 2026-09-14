@@ -1,3 +1,27 @@
+**Can You Tell How Smart a Dog Is by Giving It a Test?**\
+`With pets and people, we’re stupid when assessing smarts.`\
+https://www.nytimes.com/2026/09/14/opinion/dog-smart-intelligence-test.html
+
+**Trying to Rid the Pentagon of Culture Wars, Hegseth Has Created His Own**\
+`Persistent distractions are feeding a climate of mistrust as the U.S. military faces a series of wartime issues, including shortfalls of missile interceptors.`\
+https://www.nytimes.com/2026/09/14/us/politics/hegseth-pentagon-turmoil.html
+
+**Why Vanderbilt and the Whitney Museum Are Partners**\
+`The Nashville-based university, which has just established a Manhattan outpost, has lots of New York area students and wants to take advantage of the city’s cultural capital.`\
+https://www.nytimes.com/2026/09/14/nyregion/vanderbilt-whitney-museum-partnership.html
+
+**Be the First to Find Out the 100 Best TV Shows of the 21st Century**\
+`Starting Sept. 21, we’ll unveil a list of 100, as voted on by more than 500 television professionals in Hollywood and around the world. Make sure you’re getting updates.`\
+https://www.nytimes.com/2026/09/14/arts/television/100-best-tv-shows-of-the-21st-century-sign-up.html
+
+**Is A.I. Raising the Chances of Biological Warfare?**\
+`Current chatbots aren’t likely to help lone actors invent a deadly pathogen, experts say. But newer models, trained in biology, may need stronger safeguards.`\
+https://www.nytimes.com/2026/09/14/science/ai-bioweapons.html
+
+**As Midterms Rage, Gillibrand Wants Congress to Talk Menopause**\
+`Senator Kirsten Gillibrand of New York is devoting a hearing to a topic that affects millions but is poorly understood and widely ignored, including when it comes to federal research money.`\
+https://www.nytimes.com/2026/09/14/us/politics/democrat-senate-menopause-gillibrand.html
+
 **How a Family of 5 Lives on $30,000 a Year in the Bronx**\
 `To help his family, Germel Younger has become a professional caregiver, but the pay barely covers their expenses.`\
 https://www.nytimes.com/interactive/2026/09/14/nyregion/nyc-budgeting-affordability-younger.html
@@ -86,13 +110,13 @@ https://www.nytimes.com/2026/09/14/arts/design/kent-monkman-frick.html
 `In “Profiles in Cowardice,” Jacob Weisberg offers a grim twist on John F. Kennedy’s collection of heroic biographies.`\
 https://www.nytimes.com/2026/09/14/books/review/profiles-in-cowardice-jacob-weisberg.html
 
-**How Healthy Are Sardines?**\
-`The little fish are swimming in nutrients.`\
-https://www.nytimes.com/2026/09/14/well/eat/sardines-health-benefits-recipes.html
-
 **How University Core Curriculums Are Getting Political**\
 `Politics and other factors are causing universities to reconsider what classes are core requirements. In some places, civics and classics are replacing climate change and sociology.`\
 https://www.nytimes.com/2026/09/14/us/university-core-curriculum-texas-politics.html
+
+**How Healthy Are Sardines?**\
+`The little fish are swimming in nutrients.`\
+https://www.nytimes.com/2026/09/14/well/eat/sardines-health-benefits-recipes.html
 
 **6 London Swimming Spots to Plunge Into All Year Long**\
 `A dip in one of London’s swimming spots is an opportunity to immerse yourself “in an ordinary hour of a city’s life.”`\
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/09/14/learning/on-this-day-sept-14.html
 **Texas Republican’s Racist Social Media Post Draws Condemnation**\
 `Many Republicans criticized the post, some in more direct terms than others.`\
 https://www.nytimes.com/2026/09/13/us/bo-french-racist-post-republicans-texas.html
-
-**The Bari Weiss Era of ‘60 Minutes’ Begins**\
-`The long-running CBS News program returned for a high-pressure 59th season on Sunday. With new correspondents and a refreshed stopwatch, it was more tweak than overhaul.`\
-https://www.nytimes.com/2026/09/13/business/media/60-minutes-season-premiere-bari-weiss.html
-
-**E.P.A. Will Erase Limits on Climate Pollution From Power Plants**\
-`Generation of electricity is the second largest source of carbon dioxide and other planet-warming gases in the United States.`\
-https://www.nytimes.com/2026/09/13/climate/epa-power-plant-climate-rules.html
-
-**‘Lanterns’ Season 1, Episode 5 Recap: The Heart Wants What It Wants**\
-`The dominant theme of this week’s action-packed and chaotic episode was evolution. Situations shift. People move on.`\
-https://www.nytimes.com/2026/09/13/arts/television/lanterns-recap-season-1-episode-5.html
-
-**Some in Silicon Valley Are Questioning the Calls for an A.I. Slowdown**\
-`The debate over the safety of artificial intelligence grew personal as key tech leaders said calls for government regulation were self-serving and misplaced.`\
-https://www.nytimes.com/2026/09/13/technology/silicon-valley-ai-slowdown.html
-
-**Kennedy Center Warns of Bankruptcy Unless Trump’s Name Is Added**\
-`The caution, contained in a draft resolution to the center’s board, comes as a federal judge decides whether President Trump’s name should remain off the building.`\
-https://www.nytimes.com/2026/09/13/arts/design/trump-kennedy-center-bankruptcy-closure.html
-
-**Ex-C.I.A Director on Train as Russian Drone Hits Ukrainian Station**\
-`European and American officials were leaving Ukraine on Sunday when a Russian drone detonated at a train station on the Ukraine-Poland border.`\
-https://www.nytimes.com/video/world/europe/100000011149962/ukraine-petraeus-russian-strike.html
 

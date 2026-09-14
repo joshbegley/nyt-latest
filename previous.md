@@ -1,3 +1,115 @@
+**How a Family of 5 Lives on $30,000 a Year in the Bronx**\
+`To help his family, Germel Younger has become a professional caregiver, but the pay barely covers their expenses.`\
+https://www.nytimes.com/interactive/2026/09/14/nyregion/nyc-budgeting-affordability-younger.html
+
+**Why Is Danny Meyer, the Happy Face of Hospitality, Serving Up Regrets?**\
+`In a new memoir, the man behind Shake Shack and a suite of influential restaurants revisits the business blunders that taught him valuable lessons.`\
+https://www.nytimes.com/2026/09/14/dining/danny-meyer-hospitality-book.html
+
+**Book Review: ‘Corner Boy’ and ‘Gonzo Neurotic’**\
+`Two career-spanning essay collections, from Nik Cohn and Jerry Stahl, revel in life’s margins and recapture auras past.`\
+https://www.nytimes.com/2026/09/14/books/review/nik-cohn-jerry-stahl-corner-boy-gonzo-neurotic.html
+
+**NYT Games Where Do You Solve**\
+`Submit a photo or story of your favorite puzzle-solving location for a chance to be featured on our social media channels.`\
+https://www.nytimes.com/2026/09/14/crosswords/show-us-your-favorite-solving-spots.html
+
+**Global Warming Will Breach the 1.5 Degree Celsius Limit. Now What?**\
+`As global temperature increase shoots past 1.5 degrees Celsius, the vulnerable countries that fought for that Paris Agreement target face a brutal new reality.`\
+https://www.nytimes.com/2026/09/14/climate/global-warming-limit-paris-climate-agreement.html
+
+**How to Watch the 2026 Emmy Awards**\
+`NBC is broadcasting the Monday night ceremony, which will be hosted by Mariska Hargitay.`\
+https://www.nytimes.com/2026/09/14/arts/television/how-to-watch-the-2026-emmy-awards.html
+
+**Defense Hiring Will Ease, Not End, Pain in European Car Industry**\
+`An agreement to turn an ailing Volkswagen factory into a defense manufacturing hub offers hope for jobs. But a shift from “family vans to tanks” in Germany is not so simple.`\
+https://www.nytimes.com/2026/09/14/business/defense-hiring-european-car-industry.html
+
+**She Bashed the Government on a Private Call. Then She Was Detained for Months**\
+`Racial and political tensions have flared in Trinidad and Tobago after members of an ethnic minority were accused of an assassination plot based on a private phone call.`\
+https://www.nytimes.com/2026/09/14/world/americas/trinidad-assassination-plot-arrests.html
+
+**What Happens on the Subway Doesn’t Stay on the Subway**\
+`How a killing that divided America revealed what it has in common.`\
+https://www.nytimes.com/2026/09/14/opinion/america-killing-abandoment.html
+
+**Taryn Simon’s Giant Exhibition at the Guggenheim Tells the Story of America**\
+`Her new show at the Guggenheim Museum is an audacious attempt to document the story of modern America through the life of one F.B.I. agent.`\
+https://www.nytimes.com/2026/09/14/magazine/taryn-simon-guggenheim-exhibition.html
+
+**A Former Home for Pigeons, Refitted for People**\
+`Per an unusual request, the interior designer Guy Goodfellow turned an 18th-century dovecote into a place for writing and entertaining.`\
+https://www.nytimes.com/2026/09/14/t-magazine/england-dovecote-design.html
+
+**Should We Still Be Watching and Playing Football?**\
+`At least one in four N.F.L. players might expect to develop a degenerative brain disease, according to a new report. How should this news affect our view of the sport?`\
+https://www.nytimes.com/2026/09/14/learning/should-we-still-be-watching-and-playing-football.html
+
+**Word of the Day: salvage**\
+`This word has appeared in 250 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/09/14/learning/word-of-the-day-salvage.html
+
+**Alexei Ratmansky Stages a Ballet in Kyiv, Between Trips to the Bomb Shelter**\
+`The choreographer Alexei Ratmansky and his wife, Tatiana, returned to the national ballet company at a bleak moment, bringing the gift of a difficult, sparkling work.`\
+https://www.nytimes.com/2026/09/14/arts/dance/alexei-ratmansky-kyiv-ukrainian-national-ballet-balanchine.html
+
+**Arthur Jafa, the Great Disrupter, Readies a ‘Big Bang’**\
+`“I Am Tony,” the artist’s largest museum survey to date, carries a powerful message about identity “forged in the holds of slave ships.”`\
+https://www.nytimes.com/2026/09/14/arts/design/arthur-jafa-new-museum.html
+
+**Mary Peltola’s Energy Politics Fits Alaska. Democrats Need Her.**\
+`To win in states such as Alaska, the party needs a faction that can live with fossil fuels.`\
+https://www.nytimes.com/2026/09/14/opinion/mary-peltola-oil-alaska-climate-change.html
+
+**Book Review: ‘Exit Party,’ by Emily St. John Mandel**\
+`In “Exit Party,” by Emily St. John Mandel, two versions of America’s future crash into each other.`\
+https://www.nytimes.com/2026/09/14/books/review/exit-party-emily-st-john-mandel.html
+
+**Alaska Sen. Dan Sullivan Walks a Tricky Line on Tariffs as He Seeks Re-Election**\
+`Senator Dan Sullivan of Alaska has shown quiet support for President Trump’s tariffs. His brother, the head of their family business, has described the economic volatility as an enormous challenge.`\
+https://www.nytimes.com/2026/09/14/us/politics/sullivan-trump-republican-tariffs-alaska.html
+
+**Why Is Everything So Oversize?**\
+`A reader wants help navigating the bigger-is-better clothing trend.`\
+https://www.nytimes.com/2026/09/14/fashion/oversize-clothing-styling.html
+
+**Can You Trust General Election Polls After Primary Misses?**\
+`Polls in several closely watched primaries over the summer were off by wide margins, but pollsters remain confident that general elections are a different story.`\
+https://www.nytimes.com/2026/09/14/us/elections/polls-accuracy-primaries-midterms.html
+
+**Kent Monkman, an Indigenous Painter, Sees a Vermeer and the Sparks Fly**\
+`For a new show at the Frick Collection, Kent Monkman imagines what Indigenous people see when they see fur trappers, General Custer and even Jeff Bezos.`\
+https://www.nytimes.com/2026/09/14/arts/design/kent-monkman-frick.html
+
+**Book Review: ‘Profiles in Cowardice,’ by Jacob Weisberg**\
+`In “Profiles in Cowardice,” Jacob Weisberg offers a grim twist on John F. Kennedy’s collection of heroic biographies.`\
+https://www.nytimes.com/2026/09/14/books/review/profiles-in-cowardice-jacob-weisberg.html
+
+**How Healthy Are Sardines?**\
+`The little fish are swimming in nutrients.`\
+https://www.nytimes.com/2026/09/14/well/eat/sardines-health-benefits-recipes.html
+
+**How University Core Curriculums Are Getting Political**\
+`Politics and other factors are causing universities to reconsider what classes are core requirements. In some places, civics and classics are replacing climate change and sociology.`\
+https://www.nytimes.com/2026/09/14/us/university-core-curriculum-texas-politics.html
+
+**6 London Swimming Spots to Plunge Into All Year Long**\
+`A dip in one of London’s swimming spots is an opportunity to immerse yourself “in an ordinary hour of a city’s life.”`\
+https://www.nytimes.com/2026/09/14/travel/london-swimming-pools.html
+
+**A Teen Autopsy Marks the Arrival of a Deadly Drug in San Francisco**\
+`City officials — and one determined mother — are working to stop the spread of cychlorphine, which is far more potent than fentanyl.`\
+https://www.nytimes.com/2026/09/14/us/san-francisco-autopsy-cychlorphine.html
+
+**Landmark Vote Held in Restive Muslim Autonomous Region in the Philippines**\
+`The election, in an area long known for violent separatists, was marred by a shootout that killed three, officials said.`\
+https://www.nytimes.com/2026/09/14/world/asia/muslim-mindanao-philippines-election.html
+
+**Inside Moscow’s High-Tech Surveillance Turn**\
+`From facial-recognition payments at checkout to autonomous delivery robots on the sidewalks, Moscow is rapidly transforming into a high-tech city. But this seamless convenience comes at a cost: an expanding web of citizen surveillance. Our reporter Ivan Nechepurenko reports from Moscow.`\
+https://www.nytimes.com/video/world/100000010736402/inside-moscows-high-tech-surveillance-turn.html
+
 **Cómo los partidarios de línea dura en Irán sabotearon el acuerdo con Trump**\
 `Funcionarios iraníes dijeron que las investigaciones internas rastrearon la decisión de atacar tres barcos comerciales en julio hasta un influyente jefe de espionaje que se había opuesto al acuerdo de paz con EE. UU. desde el principio.`\
 https://www.nytimes.com/es/2026/09/14/espanol/mundo/iran-sabotaje-acuerdo-paz.html
@@ -85,116 +197,4 @@ https://www.nytimes.com/2026/09/13/arts/design/trump-kennedy-center-bankruptcy-c
 **Ex-C.I.A Director on Train as Russian Drone Hits Ukrainian Station**\
 `European and American officials were leaving Ukraine on Sunday when a Russian drone detonated at a train station on the Ukraine-Poland border.`\
 https://www.nytimes.com/video/world/europe/100000011149962/ukraine-petraeus-russian-strike.html
-
-**George Chuvalo, Boxer Who Was Never Knocked Down, Dies at 89**\
-`Though he lost to the great champions of his era, his resilience earned him a reputation for having the sport’s strongest chin.`\
-https://www.nytimes.com/2026/09/13/obituaries/george-chuvalo-dead.html
-
-**Trump Promises to Lift Tariffs on Irish Whiskey After Appeals**\
-`President Trump’s decision, announced while visiting his golf course in Ireland, was the latest shift in his trade policies.`\
-https://www.nytimes.com/2026/09/13/world/europe/trump-tariffs-irish-whiskey.html
-
-**Steve Kolb, C.F.D.A. President, Involved in Physical Altercation with Fashion Show Protesters**\
-`Steve Kolb, head of the Council of Fashion Designers of America, was captured on video physically restraining animal rights activists at the Cos runway presentation on Sunday.`\
-https://www.nytimes.com/2026/09/13/style/cfda-steve-kolb-nyfw-protesters.html
-
-**Oil Prices Jump on Energy Supply Worries**\
-`Oil prices jumped and stock futures fell slightly on concerns that energy supplies from the Persian Gulf would be further diminished by a drone attack on a critical pipeline in Saudi Arabia.`\
-https://www.nytimes.com/2026/09/13/business/oil-prices-iran-war.html
-
-**NYT Crossword Answers for Sept. 14, 2026**\
-`Andrea Carla Michaels and Dena R. Verkuil have another fruitful collaboration.`\
-https://www.nytimes.com/2026/09/13/crosswords/daily-puzzle-2026-09-14.html
-
-**Legionella Bacteria Found in Cooling Tower at Yankee Stadium**\
-`A Legionnaires’ disease outbreak in the Bronx has killed one person and infected nine. A Yankees spokesman said that its towers were cleaned on Sunday, and the city has not asked that games be postponed.`\
-https://www.nytimes.com/2026/09/13/nyregion/yankee-stadium-tower-legionnaires.html
-
-**Russian Strikes on Ukraine Hits Near David Petraeus, ex-C.I.A. Chief**\
-`David Petraeus was at a rail station when a drone hit. Another train, with former Prime Minister Boris Johnson of Britain and other dignitaries, had just left, Ukrainian officials said.`\
-https://www.nytimes.com/2026/09/13/world/europe/ukraine-petraeus-russian-strike.html
-
-**Dr. Anthony Robbins, Who Expanded Health Care for the Poor, Dies at 85**\
-`As Vermont’s health commissioner, he helped create a model for providing food and dental care. Later, he directed the first national vaccine program.`\
-https://www.nytimes.com/2026/09/13/health/anthony-robbins-dead.html
-
-**Trump’s Supercharged Social Media**\
-`The president’s A.I. post barrages, far more intense than during his first term, are redefining the presidency and driving a debate over his state of mind.`\
-https://www.nytimes.com/2026/09/13/world/trump-ai-social-media-celine-dion.html
-
-**San Francisco Opera Cancels Opening Night After Musicians Strike**\
-`The labor action forced the opera to cancel as patrons were finding their seats, and threw the season of one of the nation’s premier companies into limbo.`\
-https://www.nytimes.com/2026/09/13/arts/music/san-francisco-opera-strike.html
-
-**King Charles Will Convene A.I. Leaders Amid Calls to Slow Development**\
-`As alarm from the highest echelons of A.I. companies mounts, Buckingham Palace said the king would meet with executives to explore how the technology can be used for good.`\
-https://www.nytimes.com/2026/09/13/world/europe/king-charles-ai-meeting.html
-
-**Trump Says ‘Negative Forces’ Are Calling for A.I. Regulation in the U.S.**\
-`President Trump referred to some of the people calling for A.I. regulation as “negative forces” on Sunday. His comments come as executives at some of the top companies in the industry called for a global slowdown of A.I. development.`\
-https://www.nytimes.com/video/technology/100000011149572/trump-says-negative-forces-are-calling-for-ai-regulation-in-the-us.html
-
-**Unvaccinated Woman Likely Died of Measles Complications, Pa. County Coroner Says**\
-`The case is the third reported death linked to a rapidly expanding outbreak that has sickened more than 670 people in the state.`\
-https://www.nytimes.com/2026/09/13/well/unvaccinated-woman-measles-complications-death.html
-
-**Trump Blames Ukraine for Global Diesel Shortage**\
-`President Trump said Ukraine’s attacks on Russian oil refineries were “hurting the world,” amid a global energy shock driven primarily by the U.S.-Israeli war with Iran.`\
-https://www.nytimes.com/2026/09/13/business/trump-ukraine-diesel.html
-
-**Governor Polls 2026: See the Latest Election Polls**\
-`See the latest polling in this year’s gubernatorial elections in California, New York and more.`\
-https://www.nytimes.com/interactive/polls/governor-polls-2026.html
-
-**Celine Dion Returns to the Stage**\
-`Celine Dion returned to the stage on Saturday in her first full performance in six years. The Canadian singer had taken a hiatus after being diagnosed with a rare neurological condition known as stiff person syndrome.`\
-https://www.nytimes.com/video/arts/music/100000011149571/celine-dion-paris-comeback-concert.html
-
-**Mercurio se está encogiendo, y más rápido de lo que pensábamos**\
-`Nuevas estimaciones que utilizan las arrugas de la superficie del planeta muestran que el planeta más pequeño de nuestro sistema solar se contrae aún más, a un ritmo mayor de lo esperado.`\
-https://www.nytimes.com/es/2026/09/13/espanol/ciencia-y-tecnologia/mercurio-tamano-encogiendo.html
-
-**En Yemen, nuevos combates desplazan a miles de personas**\
-`El hambre y las enfermedades han atormentado a Yemen durante años. Ahora, los combates entre el gobierno respaldado por Arabia Saudita y los hutíes respaldados por Irán lo empujan al límite.`\
-https://www.nytimes.com/es/2026/09/13/espanol/mundo/yemen-conflicto.html
-
-**Trump usa el poder para reprimir la libertad de expresión. Así lo hace**\
-`El presidente de EE. UU. se ha valido de las agencias del gobierno para restringir las libertades de prensa, una campaña que, según los defensores de la libertad de expresión, tendrá efectos duraderos.`\
-https://www.nytimes.com/es/2026/09/13/espanol/estados-unidos/trump-libertad-expresion.html
-
-**What Anthropic CEO Dario Amodei Argued in His Call for AI Slowdown**\
-`Dario Amodei’s 3,800-word letter laid out a three-step plan to rein in artificial intelligence.`\
-https://www.nytimes.com/2026/09/13/technology/anthropic-ceo-slower-ai-development.html
-
-**Heavy Rains Bring Flooding to Parts of the East Coast**\
-`Emergency workers responded to calls of people trapped in vehicles and homes. In Connecticut, Fairfield town officials said the flooding on Sunday was the worst in three decades.`\
-https://www.nytimes.com/2026/09/13/weather/rain-flooding-connecticut-long-island.html
-
-**Top Lawmakers Agree A.I.’s Risks Are Rising but Say They Have No Quick Fix**\
-`House Speaker Mike Johnson warned on Sunday of competitive risks from China, and Hakeem Jeffries, the minority leader, said Congress should start regulatory talks this week.`\
-https://www.nytimes.com/2026/09/13/us/politics/congress-ai-risks-johnson-jeffries.html
-
-**The Recipe That Launched My NYT Column**\
-`And a special announcement to share.`\
-https://www.nytimes.com/2026/09/13/dining/the-recipe-that-launched-my-nyt-column.html
-
-**Okinawa Elects a Conservative Amid Fears About China and the Economy**\
-`Genta Koja will become the Japanese archipelago’s next governor, a win for the country’s hawkish prime minister as she works to accelerate a military buildup.`\
-https://www.nytimes.com/2026/09/13/world/asia/japapn-okinawa-election-governor-conservative-china-economy.html
-
-**Celine Dion Begins Her Paris Comeback Concert Run**\
-`Her long-awaited concert return highlighted a side of the French-speaking superstar rarely seen in the United States.`\
-https://www.nytimes.com/2026/09/13/arts/music/celine-dion-paris-comeback-concert.html
-
-**After 30 Years, Judge Judy Is Stepping Down From Her TV Bench**\
-`Judith B. Sheindlin, the star of “Judge Judy” and spinoff shows, will wrap up a television career filled with acerbic takedowns of litigants.`\
-https://www.nytimes.com/2026/09/13/arts/television/judge-judy-retires.html
-
-**The Deadly Truth About Football**\
-`Readers respond to front-page articles about the devastating brain disease C.T.E. among N.F.L. players. Also: Unpresidential actions; India’s U.S. policy.`\
-https://www.nytimes.com/2026/09/13/opinion/football-nfl-cte.html
-
-**Shrimp Peperonata, Chicken With Spicy Corn and KBBQ Meatballs**\
-`With Sam Sifton’s perfect steak recipe thrown in for good, delicious measure.`\
-https://www.nytimes.com/2026/09/13/dining/shrimp-peperonata-chicken-with-spicy-corn-and-kbbq-meatballs.html
 
