@@ -1,3 +1,7 @@
+**Emmy Awards Live Updates: Television’s Biggest Stars Gather on the Red Carpet**\
+`Mariska Hargitay will host the ceremony in Los Angeles, where Jean Smart and Matthew Rhys will chase milestones, and Apple TV hopes to lead in awards for the first time.`\
+https://www.nytimes.com/live/2026/09/14/arts/emmy-awards-2026
+
 **Bedazzled Fashion Designer Bob Mackie Dies at 87**\
 `For over half a century, Bob Mackie added sparkles, sequins and feathers to his over-the-top costumes for some of show business’s biggest stars. He died on Monday in Palm Springs, Calif., at 87.`\
 https://www.nytimes.com/video/obituaries/100000011151524/costume-designer-bob-mackie-obituary.html
