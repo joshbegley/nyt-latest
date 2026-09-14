@@ -1,3 +1,7 @@
+**‘Alligator Alcatraz’ Used Small Cages as ‘Calming Areas,’ Report Says**\
+`The Department of Homeland Security’s internal watchdog provided new details about conditions at the now-shuttered Florida detention center.`\
+https://www.nytimes.com/2026/09/14/us/alligator-alcatraz-dhs-inspector-general.html
+
 **Saudi Leader Meets U.S. General as Widening Conflict Threatens Oil Markets**\
 `Crown Prince Mohammed bin Salman asked the United States for more U.S. military help last week after the Iranian-backed Houthi forces in Yemen launched a broad offensive.`\
 https://www.nytimes.com/2026/09/14/world/middleeast/saudi-leader-meets-centcom.html

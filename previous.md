@@ -1,3 +1,7 @@
+**‘Alligator Alcatraz’ Used Small Cages as ‘Calming Areas,’ Report Says**\
+`The Department of Homeland Security’s internal watchdog provided new details about conditions at the now-shuttered Florida detention center.`\
+https://www.nytimes.com/2026/09/14/us/alligator-alcatraz-dhs-inspector-general.html
+
 **Saudi Leader Meets U.S. General as Widening Conflict Threatens Oil Markets**\
 `Crown Prince Mohammed bin Salman asked the United States for more U.S. military help last week after the Iranian-backed Houthi forces in Yemen launched a broad offensive.`\
 https://www.nytimes.com/2026/09/14/world/middleeast/saudi-leader-meets-centcom.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/14/opinion/mary-peltola-oil-alaska-climate-chang
 **Book Review: ‘Exit Party,’ by Emily St. John Mandel**\
 `In “Exit Party,” by Emily St. John Mandel, two versions of America’s future crash into each other.`\
 https://www.nytimes.com/2026/09/14/books/review/exit-party-emily-st-john-mandel.html
-
-**Alaska Sen. Dan Sullivan Walks a Tricky Line on Tariffs as He Seeks Re-Election**\
-`Senator Dan Sullivan of Alaska has shown quiet support for President Trump’s tariffs. His brother, the head of their family business, has described the economic volatility as an enormous challenge.`\
-https://www.nytimes.com/2026/09/14/us/politics/sullivan-trump-republican-tariffs-alaska.html
 
