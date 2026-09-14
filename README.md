@@ -1,3 +1,7 @@
+**Half-Marathoners in New Jersey Wade Through Flooded Course**\
+`Harrowing social media videos showed runners navigating chest-high waters after a drenching rainstorm on Sunday.`\
+https://www.nytimes.com/2026/09/14/nyregion/half-marathon-new-jersey-flooding.html
+
 **A Wedding Gift for the President’s Son Raises Ethical Concerns**\
 `A Russian businessman with ties to the Kremlin paid hundreds of thousands of dollars for a wedding after-party in the Bahamas for Donald Trump Jr.`\
 https://www.nytimes.com/2026/09/14/us/politics/donald-trump-jr-wedding-russian-businessman.html
@@ -14,7 +18,7 @@ https://www.nytimes.com/2026/09/14/style/bob-mackie-designer-photos.html
 `The police said that a dozen other men conspired with the husband, who is in his 60s, to abuse the woman in northern England.`\
 https://www.nytimes.com/2026/09/14/world/europe/uk-man-wife-drugging-rape-confession.html
 
-**Abbott to Pay $385 Million to Settle Infant Formula Safety Allegations**\
+**Abbott to Pay $385 Million to Settle Baby Formula Safety Allegations**\
 `The company recalled formulas manufactured at a Michigan plant in 2022, after health officials linked them to serious illnesses in babies.`\
 https://www.nytimes.com/2026/09/14/well/abbott-settlement-infant-formula.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/opinion/100000011144133/why-trump-will-declare-vic
 **France Mocked U.S. for Human Rights Vote, Then Quietly Apologized**\
 `After the Trump administration blocked a new ambassador to Washington, the country expressed regret for a post from a French official social media account.`\
 https://www.nytimes.com/2026/09/14/world/europe/france-ambassador-trump-tweet.html
-
-**Russian Strike on Train Station Near Ukraine-Poland Border Seen as Warning to Kyiv’s Allies**\
-`The attack on Ukraine’s rail network, which connects the country to the West, was a jab at Europe, officials said.`\
-https://www.nytimes.com/2026/09/14/world/europe/ukraine-railway-strike-europe.html
 

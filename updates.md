@@ -1,3 +1,15 @@
+**A Wedding Gift for the President’s Son Raises Ethical Concerns**\
+`A Russian businessman with ties to the Kremlin paid hundreds of thousands of dollars for a wedding after-party in the Bahamas for Donald Trump Jr.`\
+https://www.nytimes.com/2026/09/14/us/politics/donald-trump-jr-wedding-russian-businessman.html
+
+**The Local: Flock, fraud and football**\
+`Plus, a Twin Cities travel quiz.`\
+https://www.nytimes.com/2026/09/14/briefing/the-local-flock-fraud-and-football.html
+
+**Bob Mackie: A Life in Pictures**\
+`The designer was known for his flashy, sparkly designs for Cher, Diana Ross, Tina Turner and countless others.`\
+https://www.nytimes.com/2026/09/14/style/bob-mackie-designer-photos.html
+
 **British Man Pleads Guilty to Drugging and Raping Wife Over 20 Years**\
 `The police said that a dozen other men conspired with the husband, who is in his 60s, to abuse the woman in northern England.`\
 https://www.nytimes.com/2026/09/14/world/europe/uk-man-wife-drugging-rape-confession.html
