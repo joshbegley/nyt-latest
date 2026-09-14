@@ -1,3 +1,19 @@
+**Cisco Likely Allowed Harassment of Pro-Palestinian Workers, EEOC Says**\
+`The finding by the U.S. Equal Employment Opportunity Commission said there was reason to believe that the tech giant subjected employees to a hostile environment.`\
+https://www.nytimes.com/2026/09/14/business/cisco-eeoc-palestinian-harassment.html
+
+**As Supreme Court Weighs Trump Mail Ballot Plan, Another Judge Blocks It**\
+`The ruling by a lower court judge was another blow to President Trump’s effort to make voting by mail harder. The Supreme Court is also considering the Trump plan.`\
+https://www.nytimes.com/2026/09/14/us/politics/trump-mail-ballot-nichols-supreme-court.html
+
+**10-Year Treasury Yield Touches 5%, Highest Level in Years**\
+`One of the world’s most important interest rates hit a level recorded only once since the global financial crisis, as investors continued to rebuff the Trump administration’s efforts to sway the bond market.`\
+https://www.nytimes.com/2026/09/14/business/10-year-treasury-yield-5-percent.html
+
+**Saudi Leader Meets U.S. Commander as Widening Conflict Threatens Oil Markets**\
+`Crown Prince Mohammed bin Salman asked the United States for more U.S. military help last week after the Iranian-backed Houthi forces in Yemen launched a broad offensive.`\
+https://www.nytimes.com/2026/09/14/world/middleeast/saudi-leader-meets-centcom.html
+
 **Eckhaus Latta: The Breakthrough Show of New York Fashion Week**\
 `Eckhaus Latta is ready for the big time.`\
 https://www.nytimes.com/2026/09/14/style/eckhaus-latta-new-york-fashion-week.html

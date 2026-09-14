@@ -1,3 +1,11 @@
+**Amazon Suspends Flights With Airline Whose Plane Crashed in Miami**\
+`The online retailer said it would “pause” its relationship with 21 Air, the cargo airline operating a Boeing 767 that overshot a runway in Miami.`\
+https://www.nytimes.com/2026/09/14/business/amazon-21-air-miami-airport-crash.html
+
+**El CEO de Anthropic traza un plan para desacelearar la IA**\
+`La carta de 3800 palabras de Dario Amodei presentó un plan de tres pasos para controlar la inteligencia artificial.`\
+https://www.nytimes.com/es/2026/09/14/espanol/negocios/anthropic-ia-ceo-carta-desacelerar.html
+
 **Cisco Likely Allowed Harassment of Pro-Palestinian Workers, EEOC Says**\
 `The finding by the U.S. Equal Employment Opportunity Commission said there was reason to believe that the tech giant subjected employees to a hostile environment.`\
 https://www.nytimes.com/2026/09/14/business/cisco-eeoc-palestinian-harassment.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/14/crosswords/show-us-your-favorite-solving-spot
 **Global Warming Will Breach the 1.5 Degree Celsius Limit. Now What?**\
 `As global temperature increase shoots past 1.5 degrees Celsius, the vulnerable countries that fought for that Paris Agreement target face a brutal new reality.`\
 https://www.nytimes.com/2026/09/14/climate/global-warming-limit-paris-climate-agreement.html
-
-**How to Watch the 2026 Emmy Awards**\
-`NBC is broadcasting the Monday night ceremony, which will be hosted by Mariska Hargitay.`\
-https://www.nytimes.com/2026/09/14/arts/television/emmy-awards-how-to-watch.html
-
-**Defense Hiring Will Ease, Not End, Pain in European Car Industry**\
-`An agreement to turn an ailing Volkswagen factory into a defense manufacturing hub offers hope for jobs. But a shift from “family vans to tanks” in Germany is not so simple.`\
-https://www.nytimes.com/2026/09/14/business/defense-hiring-european-car-industry.html
 
