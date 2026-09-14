@@ -1,3 +1,11 @@
+**‘NAZA,’ Israeli Film About Killings in Gaza, Faces Backlash**\
+`The film “NAZA” investigates the killing of Palestinians by Israeli forces in Gaza. Israel’s culture minister has suggested revoking the directors’ citizenship.`\
+https://www.nytimes.com/2026/09/14/world/middleeast/israel-naza-documentary-backlash.html
+
+**A Wynton Marsalis Symphony Sees the Potential in America**\
+`This famed trumpeter and composer premiered his Fifth Symphony, “Liberty,” which blends a jazz ensemble and a traditional orchestra.`\
+https://www.nytimes.com/2026/09/14/arts/music/wynton-marsalis-liberty-symphony.html
+
 **China advierte de los peligros de la IA para el Partido Comunista**\
 `Aun cuando Pekín insta a EE. UU. a no exagerar los peligros de la IA, su propio jefe de espionaje presenta la tecnología como una amenaza para la seguridad del Partido Comunista.`\
 https://www.nytimes.com/es/2026/09/14/espanol/mundo/china-ia-espionaje-riesgo-partido.html
