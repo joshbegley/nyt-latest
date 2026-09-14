@@ -1,3 +1,7 @@
+**Bob Mackie, Designer Who ‘Dressed Every Spangly Woman in Show Business,’ Dies at 87**\
+`His sequined gowns and outrageous costumes threw clouds of glitter at American fashion for over half a century.`\
+https://www.nytimes.com/2026/09/14/style/bob-mackie-dead.html
+
 **What Is Driving Diesel Prices Up? Energy Chaos Caused by Two Wars.**\
 `President Trump recently blamed Ukrainian attacks on Russian refineries for causing a spike in diesel prices, but analysts say the Iran war is probably a bigger factor.`\
 https://www.nytimes.com/2026/09/14/business/energy-environment/trump-diesel-russia-ukraine-iran.html
