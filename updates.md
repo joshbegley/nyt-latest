@@ -1,3 +1,11 @@
+**N.Y. Democratic House Candidate Admits to Bondage Photo Shoot**\
+`Christopher Gallant, who is running against Representative Nick LaLota on Long Island, acknowledged that the photos that surfaced in media reports on Monday were legitimate.`\
+https://www.nytimes.com/2026/09/14/nyregion/gallant-bondage-photos-democrat.html
+
+**Emmys Red Carpet Photos: Mariska Hargitay, Noah Wyle and More Stars**\
+`Stars are arriving at the 78th Emmy Awards in Los Angeles. See what they’re wearing to celebrate TV’s biggest night.`\
+https://www.nytimes.com/2026/09/14/style/emmys-red-carpet-photos.html
+
 **Safety Alert System Returns for New York City Private Schools**\
 `Silenced ahead of the World Cup, an emergency notification system for private and parochial schools will launch Tuesday as part of Notify NYC.`\
 https://www.nytimes.com/2026/09/14/nyregion/nyc-private-school-safety-alert-system.html
