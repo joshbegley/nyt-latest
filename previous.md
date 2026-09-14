@@ -2,7 +2,7 @@
 `The Treasury secretary dared “Bloomberg terminal bros” to bet against him and they did.`\
 https://www.nytimes.com/2026/09/14/business/bond-market-scott-bessent.html
 
-**Trump Says a Smart President Is All That’s Needed to Rein In A.I.**\
+**Trump Rejects Talk of A.I. Regulation and Calls Out Anthropic’s CEO**\
 `The president again rejected calls to try to regulate the industry, even as some of its leaders are speaking more openly about the risks of rapidly developing artificial intelligence.`\
 https://www.nytimes.com/2026/09/14/us/politics/trump-ai-regulation-anthropic-dario-amodei.html
 
@@ -46,8 +46,8 @@ https://www.nytimes.com/quiz/2026/09/14/bookreview/nyc-literary-hangouts.html
 `Golden raisins and briny capers add tangy pops of sweetness and salinity.`\
 https://www.nytimes.com/2026/09/14/dining/a-bright-shrimp-dinner-that-keeps-things-interesting.html
 
-**Haitian Workers Keep Key West Tourism Afloat. Now They’re Disappearing.**\
-`The end of legal protections for Haitian immigrants nationally has jolted the labor market in Key West, a remote vacation destination where many live and work.`\
+**Key West Feels the Pain of Trump Decision on Haitians**\
+`The end of legal protections for Haitian immigrants nationally has jolted the labor market in this remote vacation destination in Florida where many live and work.`\
 https://www.nytimes.com/2026/09/14/us/haitian-workers-key-west-tourism.html
 
 **As Supreme Court Weighs Trump Mail Ballot Plan, Another Judge Blocks It**\
