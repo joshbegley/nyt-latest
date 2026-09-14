@@ -1,3 +1,15 @@
+**La IA se ha vuelto rebelde: ¿podemos mantenerla bajo control?**\
+`Ya no podemos seguir fingiendo que la inteligencia artificial es segura`\
+https://www.nytimes.com/es/2026/09/14/espanol/inteligencia-artificial-peligro.html
+
+**Rogue Machines**\
+`We look into the concerns over artificial intelligence.`\
+https://www.nytimes.com/2026/09/14/briefing/rogue-ai.html
+
+**Meet a College Student Who Picks Up the Dead**\
+`The Jewish Days of Awe are meant to awaken us to the fact that life is finite. One student is attentive to that, all the time.`\
+https://www.nytimes.com/2026/09/14/briefing/meet-a-college-student-who-picks-up-the-dead.html
+
 **The A.I. Researcher Whose Rebellion Is Changing Everything**\
 `Jacob Coxon, who quit his job at Anthropic, discusses his concerns about the risks of artificial intelligence.`\
 https://www.nytimes.com/2026/09/14/podcasts/the-daily/the-ai-researcher-whose-rebellion-is-changing-everything.html

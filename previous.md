@@ -1,3 +1,15 @@
+**La IA se ha vuelto rebelde: ¿podemos mantenerla bajo control?**\
+`Ya no podemos seguir fingiendo que la inteligencia artificial es segura`\
+https://www.nytimes.com/es/2026/09/14/espanol/inteligencia-artificial-peligro.html
+
+**Rogue Machines**\
+`We look into the concerns over artificial intelligence.`\
+https://www.nytimes.com/2026/09/14/briefing/rogue-ai.html
+
+**Meet a College Student Who Picks Up the Dead**\
+`The Jewish Days of Awe are meant to awaken us to the fact that life is finite. One student is attentive to that, all the time.`\
+https://www.nytimes.com/2026/09/14/briefing/meet-a-college-student-who-picks-up-the-dead.html
+
 **The A.I. Researcher Whose Rebellion Is Changing Everything**\
 `Jacob Coxon, who quit his job at Anthropic, discusses his concerns about the risks of artificial intelligence.`\
 https://www.nytimes.com/2026/09/14/podcasts/the-daily/the-ai-researcher-whose-rebellion-is-changing-everything.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/09/14/world/scandal-shame-politics-polarization.htm
 **Taylor and Travis Sentence Scramble**\
 `Can you put five sentences about celebrity weddings in the right order?`\
 https://www.nytimes.com/2026/09/14/learning/taylor-and-travis-sentence-scramble.html
-
-**Mamdani and New York’s Business Leaders Agree On at Least One Thing**\
-`Yes, child care is too expensive, a new group of business leaders says. But solving the problem with city taxes? That might be an issue.`\
-https://www.nytimes.com/2026/09/14/nyregion/child-care-new-york-city-business-leaders-mamdani.html
-
-**NYT Spelling Bee Answers for September 14, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/09/14/crosswords/spelling-bee-forum.html
-
-**Rescue Underway After Ferry Sinks in Indonesia**\
-`Rescue efforts for survivors were underway after an Indonesian ferry capsized in the Java Sea after encountering rough conditions on Sunday, the authorities said.`\
-https://www.nytimes.com/video/world/asia/100000011150437/ferry-sink-indonesia-rescue.html
 
