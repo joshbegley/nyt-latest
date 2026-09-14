@@ -1,3 +1,7 @@
+**How to Watch the 2026 Emmy Awards**\
+`NBC is broadcasting the Monday night ceremony, which will be hosted by Mariska Hargitay.`\
+https://www.nytimes.com/2026/09/14/arts/television/emmy-awards-how-to-watch.html
+
 **Heavy Rains Flood the Northeast**\
 `Rounds of showers and thunderstorms flooded communities and disrupted traffic in parts of the northeastern United States on Sunday.`\
 https://www.nytimes.com/video/weather/100000011150541/rain-floods-northeast-connecticut-new-jersey.html
