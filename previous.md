@@ -1,3 +1,11 @@
+**Why Is D.H.S. Getting Involved in Elections?**\
+`The Department of Homeland Security is in the midst of a weeks-long hunt for noncitizens among the nation’s registered voters despite the absence of evidence of widespread fraud. Reporter Hamed Aleaziz breaks down how a D.H.S. agency is using open-source state voter registration websites in their search for voter fraud.`\
+https://www.nytimes.com/video/us/politics/100000011133700/why-is-dhs-getting-involved-in-elections.html
+
+**Trump dice que para controlar la IA solo se necesita un presidente inteligente**\
+`El presidente de Estados Unidos intervino en el debate sobre cómo manejar una tecnología en rápida evolución que, según investigadores y líderes de la industria, plantea grandes riesgos.`\
+https://www.nytimes.com/es/2026/09/14/espanol/estados-unidos/trump-ia-anthropic.html
+
 **Los altos mandos del Pentágono lidian con la convulsión de Hegseth**\
 `Las distracciones persistentes han creado un clima de desconfianza a medida que las fuerzas armadas de EE. UU. enfrentan una serie de problemas en tiempos de guerra.`\
 https://www.nytimes.com/es/2026/09/14/espanol/estados-unidos/pentagono-secretario-defensa-crisis.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/14/crosswords/connections-companion-1192.html
 **Today’s Wordle Hints for September 15, 2026**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, Sept. 15, 2026.`\
 https://www.nytimes.com/2026/09/14/crosswords/wordle-review-1914.html
-
-**NYT Strands Hints for September 15, 2026**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, Sept. 15, 2026.`\
-https://www.nytimes.com/2026/09/14/crosswords/strands-sidekick-926.html
-
-**The Escalating Warnings About A.I., and the Rise of a Deadly New Street Drug**\
-`Plus, the man who went to space — and never wanted to go back.`\
-https://www.nytimes.com/2026/09/14/podcasts/the-headlines/warnings-ai-deadly-street-drug.html
 
