@@ -1,3 +1,7 @@
+**Why Trump Will Declare Victory No Matter What**\
+`President Trump is urging voters to treat him as if he’s on the ballot in November. On “The Opinions,” Carlos Lozada explains why that strategy could make the midterms a referendum on Trump himself.`\
+https://www.nytimes.com/video/opinion/100000011144133/why-trump-will-declare-victory-no-matter-what.html
+
 **France Mocked U.S. for Human Rights Vote, Then Quietly Apologized**\
 `After the Trump administration blocked a new ambassador to Washington, the country expressed regret for a post from a French official social media account.`\
 https://www.nytimes.com/2026/09/14/world/europe/france-ambassador-trump-tweet.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/14/arts/design/kent-monkman-frick.html
 **Book Review: ‘Profiles in Cowardice,’ by Jacob Weisberg**\
 `In “Profiles in Cowardice,” Jacob Weisberg offers a grim twist on John F. Kennedy’s collection of heroic biographies.`\
 https://www.nytimes.com/2026/09/14/books/review/profiles-in-cowardice-jacob-weisberg.html
-
-**How University Core Curriculums Are Getting Political**\
-`Politics and other factors are causing universities to reconsider what classes are core requirements. In some places, civics and classics are replacing climate change and sociology.`\
-https://www.nytimes.com/2026/09/14/us/university-core-curriculum-texas-politics.html
 
