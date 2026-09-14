@@ -1,3 +1,7 @@
+**France Mocked U.S. for Human Rights Vote, Then Quietly Apologized**\
+`After the Trump administration blocked a new ambassador to Washington, the country expressed regret for a post from a French official social media account.`\
+https://www.nytimes.com/2026/09/14/world/europe/france-ambassador-trump-tweet.html
+
 **Russian Strike on Train Station Near Poland Seen as Warning to Kyiv’s Allies**\
 `The attack on Ukraine’s rail network, which connects the country to the West, was a jab at Europe, officials said.`\
 https://www.nytimes.com/2026/09/14/world/europe/ukraine-railway-strike-europe.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/14/books/review/profiles-in-cowardice-jacob-weis
 **How University Core Curriculums Are Getting Political**\
 `Politics and other factors are causing universities to reconsider what classes are core requirements. In some places, civics and classics are replacing climate change and sociology.`\
 https://www.nytimes.com/2026/09/14/us/university-core-curriculum-texas-politics.html
-
-**How Healthy Are Sardines?**\
-`The little fish are swimming in nutrients.`\
-https://www.nytimes.com/2026/09/14/well/eat/sardines-health-benefits-recipes.html
 

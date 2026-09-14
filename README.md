@@ -86,7 +86,7 @@ https://www.nytimes.com/2026/09/14/world/europe/moscow-russia-putin-digital-surv
 `With pets and people, we’re stupid when assessing smarts.`\
 https://www.nytimes.com/2026/09/14/opinion/dog-smart-intelligence-test.html
 
-**Trying to Rid the Pentagon of Culture Wars, Hegseth Has Created His Own**\
+**In Hegseth’s Pentagon, Top Leaders Battle Turmoil**\
 `Persistent distractions are feeding a climate of mistrust as the U.S. military faces a series of wartime issues, including shortfalls of missile interceptors.`\
 https://www.nytimes.com/2026/09/14/us/politics/hegseth-pentagon-turmoil.html
 
