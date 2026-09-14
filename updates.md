@@ -1,3 +1,7 @@
+**Kennedy Center Warns of Bankruptcy Unless Trump’s Name Is Added**\
+`The caution, contained in a draft resolution to the center’s board, comes as a federal judge decides whether President Trump’s name should remain off the building.`\
+https://www.nytimes.com/2026/09/13/arts/design/trump-kennedy-center-bankruptcy-closure.html
+
 **Ex-C.I.A Director on Train as Russian Drone Hits Ukrainian Station**\
 `European and American officials were leaving Ukraine on Sunday when a Russian drone detonated at a train station on the Ukraine-Poland border.`\
 https://www.nytimes.com/video/world/europe/100000011149962/ukraine-petraeus-russian-strike.html
