@@ -1,3 +1,7 @@
+**Qué son las inmersiones en agua fría y cómo prepararte para practicarlas**\
+`Las inmersiones breves en agua helada pueden beneficiar tu salud física y mental. Aquí tienes algunos consejos para prepararte y adentrarte en esta práctica milenaria.`\
+https://www.nytimes.com/es/2026/09/14/espanol/inmersion-agua-fria.html
+
 **Fashion Executive Tackles PETA Protester at Fashion Show**\
 `Steve Kolb, head of the Council of Fashion Designers of America, was involved in a physical altercation with activists from People for the Ethical Treatment of Animals at a New York Fashion Week runway show.`\
 https://www.nytimes.com/video/style/100000011150236/nyfw-steve-kolb-protest.html
