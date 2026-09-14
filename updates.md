@@ -1,3 +1,7 @@
+**Los altos mandos del Pentágono enfrentan la agitación bajo el mando de Hegseth**\
+`Las distracciones persistentes han creado un clima de desconfianza a medida que las fuerzas armadas de EE. UU. enfrentan una serie de problemas en tiempos de guerra.`\
+https://www.nytimes.com/es/2026/09/14/espanol/estados-unidos/pentagono-secretario-defensa-crisis.html
+
 **Nvidia’s Jensen Huang Gets Onstage Call From Trump, Who Dismissed A.I. Safety Concerns**\
 `Mr. Trump called Jensen Huang, Nvidia’s chief executive, while Mr. Huang was onstage in Los Angeles and criticized calls to slow down and regulate A.I.`\
 https://www.nytimes.com/2026/09/14/technology/trump-ai-safety-jensen-huang.html
