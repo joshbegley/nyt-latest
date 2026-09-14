@@ -1,3 +1,11 @@
+**Tens of Thousands Displaced as Houthis Advance Along Yemen’s Coast**\
+`Recent fighting between the Iran-backed Houthi rebels and Saudi-backed Yemeni government forces has displaced tens of thousands of families to camps in government-held areas.`\
+https://www.nytimes.com/video/world/middleeast/100000011150589/tens-of-thousands-displaced-as-houthis-advance-along-yemens-coast.html
+
+**Syrians Protest as Surge in Fuel Prices Adds to Cost-of-Living Crisis**\
+`The government’s decision to increase prices by as much as 40 percent spurred widespread demonstrations across the country.`\
+https://www.nytimes.com/2026/09/14/world/middleeast/syrians-protest-fuel-price-rises.html
+
 **‘NAZA,’ Israeli Film About Killings in Gaza, Faces Backlash**\
 `The film “NAZA” investigates the killing of Palestinians by Israeli forces in Gaza. Israel’s culture minister has suggested revoking the directors’ citizenship.`\
 https://www.nytimes.com/2026/09/14/world/middleeast/israel-naza-documentary-backlash.html
