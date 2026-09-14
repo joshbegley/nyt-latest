@@ -1,3 +1,11 @@
+**Bob Mackie, Cher and the Ultimate Revenge Dress**\
+`The designer’s bedazzling, feathered creations made waves onstage, including at the Oscars in 1986.`\
+https://www.nytimes.com/2026/09/14/style/bob-mackie-cher-tina-turner.html
+
+**Dario Amodei’s Essay Was Gutsy. It Didn’t Go Far Enough.**\
+`America’s A.I. bosses can do only so much on their own.`\
+https://www.nytimes.com/2026/09/14/opinion/ai-pause-anthropic-openai.html
+
 **Emmy Awards Live Updates: Television’s Biggest Stars Gather on the Red Carpet**\
 `Mariska Hargitay will host the ceremony in Los Angeles, where Jean Smart and Matthew Rhys will chase milestones, and Apple TV hopes to lead in awards for the first time.`\
 https://www.nytimes.com/live/2026/09/14/arts/emmy-awards-2026

@@ -1,3 +1,11 @@
+**Bob Mackie, Cher and the Ultimate Revenge Dress**\
+`The designer’s bedazzling, feathered creations made waves onstage, including at the Oscars in 1986.`\
+https://www.nytimes.com/2026/09/14/style/bob-mackie-cher-tina-turner.html
+
+**Dario Amodei’s Essay Was Gutsy. It Didn’t Go Far Enough.**\
+`America’s A.I. bosses can do only so much on their own.`\
+https://www.nytimes.com/2026/09/14/opinion/ai-pause-anthropic-openai.html
+
 **Bedazzled Fashion Designer Bob Mackie Dies at 87**\
 `For over half a century, Bob Mackie added sparkles, sequins and feathers to his over-the-top costumes for some of show business’s biggest stars. He died on Monday in Palm Springs, Calif., at 87.`\
 https://www.nytimes.com/video/obituaries/100000011151524/costume-designer-bob-mackie-obituary.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/09/14/business/bond-market-scott-bessent.html
 **Trump Rejects Talk of A.I. Regulation and Calls Out Anthropic’s CEO**\
 `The president again rejected calls to try to regulate the industry, even as some of its leaders are speaking more openly about the risks of rapidly developing artificial intelligence.`\
 https://www.nytimes.com/2026/09/14/us/politics/trump-ai-regulation-anthropic-dario-amodei.html
-
-**Premios Emmy 2026: todo lo que hay que saber**\
-`“The Pitt” podría hacer historia en la premiación a lo mejor de la televisión el lunes por la noche, mientras que “Widow’s Bay” y “Hacks” se disputan la contienda por mejor comedia.`\
-https://www.nytimes.com/es/2026/09/14/espanol/cultura/premios-emmy-2026-donde-ver-nominados-favoritos.html
-
-**Amazon Suspends Flights With Airline Whose Plane Crashed in Miami**\
-`The online retailer said it would “pause” its relationship with 21 Air, the cargo airline operating a Boeing 767 that overshot a runway in Miami.`\
-https://www.nytimes.com/2026/09/14/business/amazon-21-air-miami-airport-crash.html
 

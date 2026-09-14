@@ -1,3 +1,7 @@
+**McConnell Returns to Senate After Three Months Away**\
+`Senator Mitch McConnell, the 84-year-old Kentucky Republican and former leader, had been absent for more than 13 weeks after a health incident, fueling questions about his ability to continue serving.`\
+https://www.nytimes.com/2026/09/14/us/politics/mcconnell-senate-absence.html
+
 **Bob Mackie, Cher and the Ultimate Revenge Dress**\
 `The designer’s bedazzling, feathered creations made waves onstage, including at the Oscars in 1986.`\
 https://www.nytimes.com/2026/09/14/style/bob-mackie-cher-tina-turner.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/14/nyregion/mahmoud-khalil-columbia-lawsuit.html
 **Bond Market Rebukes Bessent by Sending Borrowing Costs Ever Higher**\
 `The Treasury secretary had dared “Bloomberg terminal bros” to bet against him and they did.`\
 https://www.nytimes.com/2026/09/14/business/bond-market-scott-bessent.html
-
-**Trump Rejects Talk of A.I. Regulation and Calls Out Anthropic’s CEO**\
-`The president again rejected calls to try to regulate the industry, even as some of its leaders are speaking more openly about the risks of rapidly developing artificial intelligence.`\
-https://www.nytimes.com/2026/09/14/us/politics/trump-ai-regulation-anthropic-dario-amodei.html
 
