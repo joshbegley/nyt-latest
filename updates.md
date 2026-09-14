@@ -1,3 +1,11 @@
+**Money Is Flowing Into Space Start-Ups. Some Investors See a SpaceX Effect.**\
+`Open Cosmos, a European satellite maker, has raised $346 million, part of a wave of recent funding deals in the space sector.`\
+https://www.nytimes.com/2026/09/14/business/dealbook/open-cosmos-space-start-ups-spacex.html
+
+**Modi Served World Leaders a Meatless Meal, and His Critics Pounced**\
+`Opposition politicians said a vegetarian dinner served at a diplomatic summit misrepresented India’s culinary heritage. A minister in Prime Minister Narendra Modi’s government rejected the criticism.`\
+https://www.nytimes.com/2026/09/14/world/asia/india-brics-vegetarian-dinner.html
+
 **China’s Top Spy Chief Warns A.I. Is a Threat to Party Rule**\
 `Even as Beijing urges the United States not to hype the dangers of A.I., its own spy chief is framing the technology as a threat to the Communist Party’s security.`\
 https://www.nytimes.com/2026/09/14/world/asia/china-ai-security-risks-anthropic.html

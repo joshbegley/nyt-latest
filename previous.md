@@ -1,3 +1,11 @@
+**Money Is Flowing Into Space Start-Ups. Some Investors See a SpaceX Effect.**\
+`Open Cosmos, a European satellite maker, has raised $346 million, part of a wave of recent funding deals in the space sector.`\
+https://www.nytimes.com/2026/09/14/business/dealbook/open-cosmos-space-start-ups-spacex.html
+
+**Modi Served World Leaders a Meatless Meal, and His Critics Pounced**\
+`Opposition politicians said a vegetarian dinner served at a diplomatic summit misrepresented India’s culinary heritage. A minister in Prime Minister Narendra Modi’s government rejected the criticism.`\
+https://www.nytimes.com/2026/09/14/world/asia/india-brics-vegetarian-dinner.html
+
 **China’s Top Spy Chief Warns A.I. Is a Threat to Party Rule**\
 `Even as Beijing urges the United States not to hype the dangers of A.I., its own spy chief is framing the technology as a threat to the Communist Party’s security.`\
 https://www.nytimes.com/2026/09/14/world/asia/china-ai-security-risks-anthropic.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/14/travel/london-swimming-pools.html
 **A Teen Autopsy Marks the Arrival of a Deadly Drug in San Francisco**\
 `City officials — and one determined mother — are working to stop the spread of cychlorphine, which is far more potent than fentanyl.`\
 https://www.nytimes.com/2026/09/14/us/san-francisco-autopsy-cychlorphine.html
-
-**Landmark Vote Held in Restive Muslim Autonomous Region in the Philippines**\
-`The election, in an area long known for violent separatists, was marred by a shootout that killed three, officials said.`\
-https://www.nytimes.com/2026/09/14/world/asia/muslim-mindanao-philippines-election.html
-
-**Inside Moscow’s High-Tech Surveillance Turn**\
-`From facial-recognition payments at checkout to autonomous delivery robots on the sidewalks, Moscow is rapidly transforming into a high-tech city. But this seamless convenience comes at a cost: an expanding web of citizen surveillance. Our reporter Ivan Nechepurenko reports from Moscow.`\
-https://www.nytimes.com/video/world/100000010736402/inside-moscows-high-tech-surveillance-turn.html
 
