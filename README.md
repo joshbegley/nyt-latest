@@ -1,3 +1,7 @@
+**An Armadillo Arrives in … Ohio?**\
+`Traditionally found in warm climates, like the American Southwest, armadillos have been migrating farther and farther north, researchers say.`\
+https://www.nytimes.com/2026/09/14/us/armadillo-ohio.html
+
 **Why Is D.H.S. Getting Involved in Elections?**\
 `The Department of Homeland Security is in the midst of a weeks-long hunt for noncitizens among the nation’s registered voters despite the absence of evidence of widespread fraud. Reporter Hamed Aleaziz breaks down how a D.H.S. agency is using open-source state voter registration websites in their search for voter fraud.`\
 https://www.nytimes.com/video/us/politics/100000011133700/why-is-dhs-getting-involved-in-elections.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/14/podcasts/the-daily/the-ai-researcher-whose-re
 **NYT Connections Answers for September 15, 2026**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, Sept. 15, 2026.`\
 https://www.nytimes.com/2026/09/14/crosswords/connections-companion-1192.html
-
-**Today’s Wordle Hints for September 15, 2026**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, Sept. 15, 2026.`\
-https://www.nytimes.com/2026/09/14/crosswords/wordle-review-1914.html
 
