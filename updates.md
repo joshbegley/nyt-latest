@@ -1,3 +1,27 @@
+**Can You Tell How Smart a Dog Is by Giving It a Test?**\
+`With pets and people, we’re stupid when assessing smarts.`\
+https://www.nytimes.com/2026/09/14/opinion/dog-smart-intelligence-test.html
+
+**Trying to Rid the Pentagon of Culture Wars, Hegseth Has Created His Own**\
+`Persistent distractions are feeding a climate of mistrust as the U.S. military faces a series of wartime issues, including shortfalls of missile interceptors.`\
+https://www.nytimes.com/2026/09/14/us/politics/hegseth-pentagon-turmoil.html
+
+**Why Vanderbilt and the Whitney Museum Are Partners**\
+`The Nashville-based university, which has just established a Manhattan outpost, has lots of New York area students and wants to take advantage of the city’s cultural capital.`\
+https://www.nytimes.com/2026/09/14/nyregion/vanderbilt-whitney-museum-partnership.html
+
+**Be the First to Find Out the 100 Best TV Shows of the 21st Century**\
+`Starting Sept. 21, we’ll unveil a list of 100, as voted on by more than 500 television professionals in Hollywood and around the world. Make sure you’re getting updates.`\
+https://www.nytimes.com/2026/09/14/arts/television/100-best-tv-shows-of-the-21st-century-sign-up.html
+
+**Is A.I. Raising the Chances of Biological Warfare?**\
+`Current chatbots aren’t likely to help lone actors invent a deadly pathogen, experts say. But newer models, trained in biology, may need stronger safeguards.`\
+https://www.nytimes.com/2026/09/14/science/ai-bioweapons.html
+
+**As Midterms Rage, Gillibrand Wants Congress to Talk Menopause**\
+`Senator Kirsten Gillibrand of New York is devoting a hearing to a topic that affects millions but is poorly understood and widely ignored, including when it comes to federal research money.`\
+https://www.nytimes.com/2026/09/14/us/politics/democrat-senate-menopause-gillibrand.html
+
 **How a Family of 5 Lives on $30,000 a Year in the Bronx**\
 `To help his family, Germel Younger has become a professional caregiver, but the pay barely covers their expenses.`\
 https://www.nytimes.com/interactive/2026/09/14/nyregion/nyc-budgeting-affordability-younger.html
