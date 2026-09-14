@@ -1,3 +1,11 @@
+**Bedazzled Fashion Designer Bob Mackie Dies at 87**\
+`For over half a century, Bob Mackie added sparkles, sequins and feathers to his over-the-top costumes for some of show business’s biggest stars. He died on Monday in Palm Springs, Calif., at 87.`\
+https://www.nytimes.com/video/obituaries/100000011151524/costume-designer-bob-mackie-obituary.html
+
+**New York Seized Their Property. Now It’s Offering a $60 Million Payout.**\
+`The settlement resolves a 2019 lawsuit that argued that a city program intended to seize buildings from negligent landlords had stripped homeowners of their equity without proper compensation.`\
+https://www.nytimes.com/2026/09/14/nyregion/nyc-settlement-housing-property-owners.html
+
 **Trump Rejects Calls for an A.I. Slowdown**\
 `Also, the E.P.A. erases limits on climate pollution from power plants. Here’s the latest at the end of Monday.`\
 https://www.nytimes.com/2026/09/14/briefing/trump-ai-slowdown-epa-pollution.html

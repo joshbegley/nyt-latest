@@ -30,8 +30,8 @@ https://www.nytimes.com/2026/09/14/style/steve-kolb-cfda-leave.html
 `Alex Saab, a former high-ranking government official in Venezuela, could potentially cooperate against Mr. Maduro, who is awaiting trial in New York.`\
 https://www.nytimes.com/2026/09/14/us/alex-saab-maduro-money-laundering-plea.html
 
-**Emmy Awards Live Updates: Stars of the Small Screen Gather Ahead of TV’s Biggest Night**\
-`Mariska Hargitay will host the ceremony in Los Angeles, where Jean Smart and Matthew Rhys are chasing milestones, and Apple TV hopes to lead in awards for the first time.`\
+**Emmy Awards Live Updates: Television’s Biggest Stars Gather on the Red Carpet**\
+`Mariska Hargitay will host the ceremony in Los Angeles, where Jean Smart and Matthew Rhys will chase milestones, and Apple TV hopes to lead in awards for the first time.`\
 https://www.nytimes.com/live/2026/09/14/arts/emmy-awards-2026
 
 **‘NAZA’, un documental israelí, recibe ovaciones en el extranjero y rechazo en Israel**\
