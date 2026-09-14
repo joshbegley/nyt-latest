@@ -1,3 +1,11 @@
+**Saudi Leader Meets U.S. General as Widening Conflict Threatens Oil Markets**\
+`Crown Prince Mohammed bin Salman asked the United States for more U.S. military help last week after the Iranian-backed Houthi forces in Yemen launched a broad offensive.`\
+https://www.nytimes.com/2026/09/14/world/middleeast/saudi-leader-meets-centcom.html
+
+**Beverly Hills Home of Ron Popeil, TV Salesman and Infomercial Pioneer, Is Listed for $25 Million**\
+`Now, how much would you pay for Ron Popeil’s Beverly Hills estate? It’s listed for $25 million.`\
+https://www.nytimes.com/2026/09/14/realestate/ron-popeil-beverly-hills-home.html
+
 **U.S. Health Officials Move Quickly to Deploy Medical A.I. Despite Concerns**\
 `Federal projects are rolling out A.I. agents that offer therapy and prescribe medicine, raising concerns about safety and the influence of venture capital investors.`\
 https://www.nytimes.com/2026/09/14/health/ai-doctors-medicare-fda.html
