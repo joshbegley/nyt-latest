@@ -1,3 +1,7 @@
+**Why Scandals Don’t Bring Down Politicians Anymore**\
+`It’s about more than just shamelessness.`\
+https://www.nytimes.com/2026/09/14/world/scandal-shame-politics-polarization.html
+
 **Taylor and Travis Sentence Scramble**\
 `Can you put five sentences about celebrity weddings in the right order?`\
 https://www.nytimes.com/2026/09/14/learning/taylor-and-travis-sentence-scramble.html
@@ -92,7 +96,7 @@ https://www.nytimes.com/2026/09/13/style/cfda-steve-kolb-nyfw-protesters.html
 
 **Oil Prices Jump on Energy Supply Worries**\
 `Oil prices jumped and stock futures fell slightly on concerns that energy supplies from the Persian Gulf would be further diminished by a drone attack on a critical pipeline in Saudi Arabia.`\
-https://www.nytimes.com/2026/09/13/business/oil-prices-jump-on-energy-supply-worries.html
+https://www.nytimes.com/2026/09/13/business/oil-prices-iran-war.html
 
 **NYT Crossword Answers for Sept. 14, 2026**\
 `Andrea Carla Michaels and Dena R. Verkuil have another fruitful collaboration.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/13/dining/shrimp-peperonata-chicken-with-spicy-c
 **Brandon Johnson to Seek Second Term as Mayor of Chicago**\
 `Despite low popularity ratings, Mr. Johnson said he wanted to double down on his progressive agenda and focus on improving life for working-class residents.`\
 https://www.nytimes.com/2026/09/13/us/brandon-johnson-chicago-mayor.html
-
-**What’s Happening to TV Comedies Is Not Funny**\
-`The demands of streaming, which is now how most viewers watch TV, are not suited to just plain old comedy.`\
-https://www.nytimes.com/2026/09/13/opinion/emmy-comedy-nominees-tv.html
 
