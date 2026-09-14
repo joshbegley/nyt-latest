@@ -1,3 +1,11 @@
+**Syrians Protest After Fuel Prices Hike**\
+`Syrian protesters gathered in the streets after the government decided to raise fuel prices by as much as 40 percent.`\
+https://www.nytimes.com/video/world/middleeast/100000011151166/syria-protest-fuel-prices.html
+
+**What Do the Houthis Want?**\
+`The Iranian-backed militia has made strategic gains, becoming an unlikely power player in the Middle East.`\
+https://www.nytimes.com/2026/09/14/world/houthis-saudi-iran-jeff-koons.html
+
 **U.S. Imposes Sanctions on Russia’s VTB Bank Over Ties to Iran**\
 `The move, which targeted a bank that is already under U.S. sanctions, was part of the Trump administration’s Operation Economic Outcast initiative.`\
 https://www.nytimes.com/2026/09/14/business/us-sanctions-russia-vtb-bank-iran.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/09/14/us/politics/trump-mail-ballot-nichols-supreme
 **10-Year Treasury Yield Touches 5%, Highest Level in Years**\
 `One of the world’s most important interest rates hit a level recorded only once since the global financial crisis, as investors continued to rebuff the Trump administration’s efforts to sway the bond market.`\
 https://www.nytimes.com/2026/09/14/business/10-year-treasury-yield-5-percent.html
-
-**‘Alligator Alcatraz’ Used Small Cages to Confine Migrants, DHS Watchdog Report Says**\
-`The Department of Homeland Security’s internal watchdog provided new details about conditions at the now-shuttered Florida detention center.`\
-https://www.nytimes.com/2026/09/14/us/alligator-alcatraz-dhs-inspector-general.html
-
-**Saudi Leader Meets U.S. Commander as Houthi Attacks Threaten Oil Markets**\
-`Crown Prince Mohammed bin Salman asked the United States for more U.S. military help last week after the Iranian-backed Houthi forces in Yemen launched a broad offensive.`\
-https://www.nytimes.com/2026/09/14/world/middleeast/saudi-leader-meets-centcom.html
 
