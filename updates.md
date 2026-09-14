@@ -1,3 +1,15 @@
+**Eckhaus Latta: The Breakthrough Show of New York Fashion Week**\
+`Eckhaus Latta is ready for the big time.`\
+https://www.nytimes.com/2026/09/14/style/eckhaus-latta-new-york-fashion-week.html
+
+**States and Cities Sue Over Trump’s Policy to Restrict Green Cards**\
+`The policy would give immigration officers wide authority to deny green cards to people using public benefits.`\
+https://www.nytimes.com/2026/09/14/us/politics/green-cards-immigration-lawsuit.html
+
+**Wellness Darty, Anyone?**\
+`Plus, you should clear your phone’s storage.`\
+https://www.nytimes.com/2026/09/14/briefing/wellness-darty-anyone.html
+
 **Brain Implant Helps Woman Communicate in Real Time**\
 `In the latest advance in brain-computer interfaces, a company said its wireless device enabled speech even when a patient just imagined saying words.`\
 https://www.nytimes.com/2026/09/14/well/brain-implant-helps-woman-communicate-in-real-time.html

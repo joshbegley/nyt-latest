@@ -1,3 +1,15 @@
+**Eckhaus Latta: The Breakthrough Show of New York Fashion Week**\
+`Eckhaus Latta is ready for the big time.`\
+https://www.nytimes.com/2026/09/14/style/eckhaus-latta-new-york-fashion-week.html
+
+**States and Cities Sue Over Trump’s Policy to Restrict Green Cards**\
+`The policy would give immigration officers wide authority to deny green cards to people using public benefits.`\
+https://www.nytimes.com/2026/09/14/us/politics/green-cards-immigration-lawsuit.html
+
+**Wellness Darty, Anyone?**\
+`Plus, you should clear your phone’s storage.`\
+https://www.nytimes.com/2026/09/14/briefing/wellness-darty-anyone.html
+
 **Brain Implant Helps Woman Communicate in Real Time**\
 `In the latest advance in brain-computer interfaces, a company said its wireless device enabled speech even when a patient just imagined saying words.`\
 https://www.nytimes.com/2026/09/14/well/brain-implant-helps-woman-communicate-in-real-time.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/09/14/business/defense-hiring-european-car-industry
 **She Bashed the Government on a Private Call. Then She Was Detained for Months**\
 `Racial and political tensions have flared in Trinidad and Tobago after members of an ethnic minority were accused of an assassination plot based on a private phone call.`\
 https://www.nytimes.com/2026/09/14/world/americas/trinidad-assassination-plot-arrests.html
-
-**What Happens on the Subway Doesn’t Stay on the Subway**\
-`How a killing that divided America revealed what it has in common.`\
-https://www.nytimes.com/2026/09/14/opinion/america-killing-abandoment.html
-
-**Taryn Simon’s Giant Exhibition at the Guggenheim Tells the Story of America**\
-`Her new show at the Guggenheim Museum is an audacious attempt to document the story of modern America through the life of one F.B.I. agent.`\
-https://www.nytimes.com/2026/09/14/magazine/taryn-simon-guggenheim-exhibition.html
-
-**A Former Home for Pigeons, Refitted for People**\
-`Per an unusual request, the interior designer Guy Goodfellow turned an 18th-century dovecote into a place for writing and entertaining.`\
-https://www.nytimes.com/2026/09/14/t-magazine/england-dovecote-design.html
 
