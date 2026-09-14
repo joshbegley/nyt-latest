@@ -1,8 +1,20 @@
+**China advierte de los peligros de la IA para el Partido Comunista**\
+`Aun cuando Pekín insta a EE. UU. a no exagerar los peligros de la IA, su propio jefe de espionaje presenta la tecnología como una amenaza para la seguridad del Partido Comunista.`\
+https://www.nytimes.com/es/2026/09/14/espanol/mundo/china-ia-espionaje-riesgo-partido.html
+
+**Vance to Campaign in Kansas as Democrats Target a Republican Stronghold**\
+`Vice President JD Vance is beginning a key final stretch of midterm campaigning by dropping in on the Senate race in Kansas, where Republicans were long seen as heavily favored.`\
+https://www.nytimes.com/2026/09/14/us/politics/jd-vance-kansas-senate-race.html
+
+**The Challenge of Regulating A.I., and Ourselves**\
+`Readers respond to an Opinion guest essay about the existential threat posed to humans by the rapid development of artificial intelligence.`\
+https://www.nytimes.com/2026/09/14/opinion/ai-regulation.html
+
 **Una mujer criticó al gobierno de Trinidad y Tobago en una llamada privada. Luego fue detenida por meses**\
 `Las tensiones raciales y políticas estallan en Trinidad y Tobago después de que miembros de una minoría étnica fueran acusados de un complot de asesinato con base en una llamada telefónica privada.`\
 https://www.nytimes.com/es/2026/09/14/espanol/mundo/trinidad-tobago-asesinato-complot.html
 
-**As Immigrants Seek Legal Status, Redacted Documents Doom Their Chances**\
+**Immigrants’ Lawyers Say U.S. Is Redacting Documents Proving Legal Status**\
 `Many noncitizens need immigration records the government has to prove their legal stay and resist deportation. The government is redacting and withholding those documents, lawyers say.`\
 https://www.nytimes.com/2026/09/14/us/politics/immigrants-foia.html
 
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/09/14/world/europe/moscow-russia-putin-digital-surv
 **Can You Tell How Smart a Dog Is by Giving It a Test?**\
 `With pets and people, we’re stupid when assessing smarts.`\
 https://www.nytimes.com/2026/09/14/opinion/dog-smart-intelligence-test.html
-
-**In Hegseth’s Pentagon, Top Leaders Battle Turmoil**\
-`Persistent distractions are feeding a climate of mistrust as the U.S. military faces a series of wartime issues, including shortfalls of missile interceptors.`\
-https://www.nytimes.com/2026/09/14/us/politics/hegseth-pentagon-turmoil.html
-
-**Why Vanderbilt and the Whitney Museum Are Partners**\
-`The Nashville-based university, which has just established a Manhattan outpost, has lots of New York area students and wants to take advantage of the city’s cultural capital.`\
-https://www.nytimes.com/2026/09/14/nyregion/vanderbilt-whitney-museum-partnership.html
-
-**Be the First to Find Out the 100 Best TV Shows of the 21st Century**\
-`Starting Sept. 21, we’ll unveil a list of 100, as voted on by more than 500 television professionals in Hollywood and around the world. Make sure you’re getting updates.`\
-https://www.nytimes.com/2026/09/14/arts/television/100-best-tv-shows-of-the-21st-century-sign-up.html
 
