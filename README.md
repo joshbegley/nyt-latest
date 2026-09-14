@@ -1,3 +1,7 @@
+**U.S. Imposes Sanctions on Russia’s VTB Bank Over Ties to Iran**\
+`The move, which targeted a bank that is already under U.S. sanctions, was part of the Trump administration’s Operation Economic Outcast initiative.`\
+https://www.nytimes.com/2026/09/14/business/us-sanctions-russia-vtb-bank-iran.html
+
 **From Bernie Sanders to Steve Bannon, Political Figures Sound Alarms on A.I.**\
 `The two men will appear separately at an event calling for a “pro-human” approach to A.I. as warnings mount from the industry and the technology’s danger becomes a midterm issue.`\
 https://www.nytimes.com/2026/09/14/us/politics/bernie-sanders-steve-bannon-ai-regulation-midterm-candidates.html
@@ -83,7 +87,7 @@ https://www.nytimes.com/2026/09/14/us/politics/homeland-security-voter-fraud-inv
 https://www.nytimes.com/video/world/middleeast/100000011150589/tens-of-thousands-displaced-as-houthis-advance-along-yemens-coast.html
 
 **Syrians Protest as Surge in Fuel Prices Adds to Cost-of-Living Crisis**\
-`The government’s decision to increase prices by as much as 40 percent spurred widespread demonstrations across the country.`\
+`The government’s decision to increase prices as much as 40 percent spurred widespread demonstrations across the country.`\
 https://www.nytimes.com/2026/09/14/world/middleeast/syrians-protest-fuel-price-rises.html
 
 **‘NAZA,’ Israeli Film About Killings in Gaza, Faces Backlash**\
@@ -189,12 +193,4 @@ https://www.nytimes.com/2026/09/14/us/alligator-alcatraz-dhs-inspector-general.h
 **Saudi Leader Meets U.S. Commander as Houthi Attacks Threaten Oil Markets**\
 `Crown Prince Mohammed bin Salman asked the United States for more U.S. military help last week after the Iranian-backed Houthi forces in Yemen launched a broad offensive.`\
 https://www.nytimes.com/2026/09/14/world/middleeast/saudi-leader-meets-centcom.html
-
-**Beverly Hills Home of Ron Popeil, TV Salesman and Infomercial Pioneer, Is Listed for $25 Million**\
-`Now, how much would you pay for Ron Popeil’s Beverly Hills estate? It’s listed for $25 million.`\
-https://www.nytimes.com/2026/09/14/realestate/ron-popeil-beverly-hills-home.html
-
-**Trump Administration Moves to Integrate A.I. Into Medical Care Despite Concerns**\
-`Federal projects are rolling out A.I. agents that offer therapy and prescribe medicine, raising concerns about safety and the influence of venture capital investors.`\
-https://www.nytimes.com/2026/09/14/health/ai-doctors-medicare-fda.html
 
