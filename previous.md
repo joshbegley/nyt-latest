@@ -1,3 +1,7 @@
+**Bond Market Rebukes Bessent by Sending Borrowing Costs Ever Higher**\
+`The Treasury secretary dared “Bloomberg terminal bros” to bet against him and they did.`\
+https://www.nytimes.com/2026/09/14/business/bond-market-scott-bessent.html
+
 **Trump Says a Smart President Is All That’s Needed to Rein In A.I.**\
 `The president again rejected calls to try to regulate the industry, even as some of its leaders are speaking more openly about the risks of rapidly developing artificial intelligence.`\
 https://www.nytimes.com/2026/09/14/us/politics/trump-ai-regulation-anthropic-dario-amodei.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/09/14/nyregion/nyc-budgeting-affordabil
 **Why Is Danny Meyer, the Happy Face of Hospitality, Serving Up Regrets?**\
 `In a new memoir, the man behind Shake Shack and a suite of influential restaurants revisits the business blunders that taught him valuable lessons.`\
 https://www.nytimes.com/2026/09/14/dining/danny-meyer-hospitality-book.html
-
-**Book Review: ‘Corner Boy’ and ‘Gonzo Neurotic’**\
-`Two career-spanning essay collections, from Nik Cohn and Jerry Stahl, revel in life’s margins and recapture auras past.`\
-https://www.nytimes.com/2026/09/14/books/review/nik-cohn-jerry-stahl-corner-boy-gonzo-neurotic.html
 

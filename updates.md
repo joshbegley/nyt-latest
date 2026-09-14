@@ -1,3 +1,7 @@
+**Bond Market Rebukes Bessent by Sending Borrowing Costs Ever Higher**\
+`The Treasury secretary dared “Bloomberg terminal bros” to bet against him and they did.`\
+https://www.nytimes.com/2026/09/14/business/bond-market-scott-bessent.html
+
 **Trump Says a Smart President Is All That’s Needed to Rein In A.I.**\
 `The president again rejected calls to try to regulate the industry, even as some of its leaders are speaking more openly about the risks of rapidly developing artificial intelligence.`\
 https://www.nytimes.com/2026/09/14/us/politics/trump-ai-regulation-anthropic-dario-amodei.html
