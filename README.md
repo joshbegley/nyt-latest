@@ -1,9 +1,21 @@
+**From Bernie Sanders to Steve Bannon, Political Figures Sound Alarms on A.I.**\
+`The two men will appear separately at an event calling for a “pro-human” approach to A.I. as warnings mount from the industry and the technology’s danger becomes a midterm issue.`\
+https://www.nytimes.com/2026/09/14/us/politics/bernie-sanders-steve-bannon-ai-regulation-midterm-candidates.html
+
+**A 9/11 Story of Grief and Love**\
+`Katherine Rosman of The Times explored the relationship of a young man and his grandmother, and how they wrestled with grief in very different ways.`\
+https://www.nytimes.com/2026/09/14/insider/september-11-grief.html
+
+**Arabia Saudita pierde opciones entre el desaire de Trump y los ataques de Irán**\
+`El reino se encuentra en un estado de conmoción estratégica tras ser atacado por un Irán envalentonado y no lograr obtener más apoyo militar estadounidense, dicen los analistas.`\
+https://www.nytimes.com/es/2026/09/14/espanol/mundo/ataques-iran-arabia-saudita-trump.html
+
 **Half-Marathoners in New Jersey Wade Through Flooded Course**\
 `Harrowing social media videos showed runners navigating chest-high waters after a drenching rainstorm on Sunday.`\
 https://www.nytimes.com/2026/09/14/nyregion/half-marathon-new-jersey-flooding.html
 
-**A Wedding Gift for the President’s Son Raises Ethical Concerns**\
-`A Russian businessman with ties to the Kremlin paid hundreds of thousands of dollars for a wedding after-party in the Bahamas for Donald Trump Jr.`\
+**Russian Businessman Paid for Donald Trump Jr.’s Lavish Wedding After-Party**\
+`The payments, totaling hundreds of thousands of dollars, represented an extraordinary flouting of ethical norms for an American president’s family member.`\
 https://www.nytimes.com/2026/09/14/us/politics/donald-trump-jr-wedding-russian-businessman.html
 
 **The Local: Flock, fraud and football**\
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/09/14/realestate/ron-popeil-beverly-hills-home.html
 **Trump Administration Moves to Integrate A.I. Into Medical Care Despite Concerns**\
 `Federal projects are rolling out A.I. agents that offer therapy and prescribe medicine, raising concerns about safety and the influence of venture capital investors.`\
 https://www.nytimes.com/2026/09/14/health/ai-doctors-medicare-fda.html
-
-**Heavy Rains Flood the Northeast**\
-`Rounds of showers and thunderstorms flooded communities and disrupted traffic in parts of the northeastern United States on Sunday.`\
-https://www.nytimes.com/video/weather/100000011150541/rain-floods-northeast-connecticut-new-jersey.html
-
-**Why Trump Will Declare Victory No Matter What**\
-`President Trump is urging voters to treat him as if he’s on the ballot in November. On “The Opinions,” Carlos Lozada explains why that strategy could make the midterms a referendum on Trump himself.`\
-https://www.nytimes.com/video/opinion/100000011144133/why-trump-will-declare-victory-no-matter-what.html
-
-**France Mocked U.S. for Human Rights Vote, Then Quietly Apologized**\
-`After the Trump administration blocked a new ambassador to Washington, the country expressed regret for a post from a French official social media account.`\
-https://www.nytimes.com/2026/09/14/world/europe/france-ambassador-trump-tweet.html
 

@@ -1,3 +1,11 @@
+**Half-Marathoners in New Jersey Wade Through Flooded Course**\
+`Harrowing social media videos showed runners navigating chest-high waters after a drenching rainstorm on Sunday.`\
+https://www.nytimes.com/2026/09/14/nyregion/half-marathon-new-jersey-flooding.html
+
+**Abbott to Pay $385 Million to Settle Baby Formula Safety Allegations**\
+`The company recalled formulas manufactured at a Michigan plant in 2022, after health officials linked them to serious illnesses in babies.`\
+https://www.nytimes.com/2026/09/14/well/abbott-settlement-infant-formula.html
+
 **A Wedding Gift for the President’s Son Raises Ethical Concerns**\
 `A Russian businessman with ties to the Kremlin paid hundreds of thousands of dollars for a wedding after-party in the Bahamas for Donald Trump Jr.`\
 https://www.nytimes.com/2026/09/14/us/politics/donald-trump-jr-wedding-russian-businessman.html
