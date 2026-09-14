@@ -1,3 +1,7 @@
+**Some in Silicon Valley Are Questioning the Calls for an A.I. Slowdown**\
+`The debate over the safety of artificial intelligence grew personal as key tech leaders said calls for government regulation were self-serving and misplaced.`\
+https://www.nytimes.com/2026/09/13/technology/silicon-valley-ai-slowdown.html
+
 **Kennedy Center Warns of Bankruptcy Unless Trump’s Name Is Added**\
 `The caution, contained in a draft resolution to the center’s board, comes as a federal judge decides whether President Trump’s name should remain off the building.`\
 https://www.nytimes.com/2026/09/13/arts/design/trump-kennedy-center-bankruptcy-closure.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/13/business/guidepost-montessori-higher-ground-e
 **What to Expect at the 2026 Emmy Awards**\
 `“The Pitt” could make history at Monday night’s celebration of the best in TV, while “Widow’s Bay” and “Hacks” battle it out in the best comedy race.`\
 https://www.nytimes.com/2026/09/13/business/media/emmys-what-to-expect.html
-
-**Por qué este pueblo holandés enseña ‘Adolescencia’ en la escuela**\
-`La serie de Netflix se usa para impulsar el debate sobre los roles de género y enfrentar el acoso en línea.`\
-https://www.nytimes.com/es/2026/09/13/espanol/mundo/serie-adolescencia-clase-lecciones.html
 
