@@ -1,3 +1,7 @@
+**Eckhaus Latta: The Breakthrough Show of New York Fashion Week**\
+`Eckhaus Latta is ready for the big time.`\
+https://www.nytimes.com/2026/09/14/style/eckhaus-latta-new-york-fashion-week.html
+
 **States and Cities Sue Over Trump’s Policy to Restrict Green Cards**\
 `The policy would give immigration officers wide authority to deny green cards to people using public benefits.`\
 https://www.nytimes.com/2026/09/14/us/politics/green-cards-immigration-lawsuit.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/14/business/defense-hiring-european-car-industry
 **She Bashed the Government on a Private Call. Then She Was Detained for Months**\
 `Racial and political tensions have flared in Trinidad and Tobago after members of an ethnic minority were accused of an assassination plot based on a private phone call.`\
 https://www.nytimes.com/2026/09/14/world/americas/trinidad-assassination-plot-arrests.html
-
-**What Happens on the Subway Doesn’t Stay on the Subway**\
-`How a killing that divided America revealed what it has in common.`\
-https://www.nytimes.com/2026/09/14/opinion/america-killing-abandoment.html
 
