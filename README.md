@@ -54,7 +54,7 @@ https://www.nytimes.com/2026/09/14/us/ai-fears-human-role.html
 `The New York Times is soliciting readers’ questions about the dangers — and benefits — posed by artificial intelligence.`\
 https://www.nytimes.com/2026/09/14/science/ai-questions-callout.html
 
-**Emmys Photos: All the Looks From the 2026 Red Carpet**\
+**Emmys Red Carpet Photos: Mariska Hargitay, Noah Wyle and More Stars**\
 `Stars are arriving at the 78th Emmy Awards in Los Angeles. See what they’re wearing to celebrate TV’s biggest night.`\
 https://www.nytimes.com/2026/09/14/style/emmys-red-carpet-photos.html
 
