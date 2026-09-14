@@ -1,3 +1,11 @@
+**Los altos mandos del Pentágono lidian con la convulsión de Hegseth**\
+`Las distracciones persistentes han creado un clima de desconfianza a medida que las fuerzas armadas de EE. UU. enfrentan una serie de problemas en tiempos de guerra.`\
+https://www.nytimes.com/es/2026/09/14/espanol/estados-unidos/pentagono-secretario-defensa-crisis.html
+
+**Whistle-Blower: Federal Agents May Have Broken State Laws in Search For Voter Fraud**\
+`Agents expressed concern about being directed by top Homeland Security leaders to use private information to look up voter records in state databases.`\
+https://www.nytimes.com/2026/09/14/us/politics/homeland-security-voter-fraud-investigation.html
+
 **Tens of Thousands Displaced as Houthis Advance Along Yemen’s Coast**\
 `Recent fighting between the Iran-backed Houthi rebels and Saudi-backed Yemeni government forces has displaced tens of thousands of families to camps in government-held areas.`\
 https://www.nytimes.com/video/world/middleeast/100000011150589/tens-of-thousands-displaced-as-houthis-advance-along-yemens-coast.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/14/crosswords/strands-sidekick-926.html
 **The Escalating Warnings About A.I., and the Rise of a Deadly New Street Drug**\
 `Plus, the man who went to space — and never wanted to go back.`\
 https://www.nytimes.com/2026/09/14/podcasts/the-headlines/warnings-ai-deadly-street-drug.html
-
-**Tech Stocks Tumble After AI Leaders Call for Industry to Slow Down**\
-`Companies at the forefront of artificial intelligence in Asia, Europe and the United States posted declines after tech leaders expressed worries about the safety of “frontier” A.I. technology.`\
-https://www.nytimes.com/2026/09/14/business/tech-stocks-ai.html
-
-**US Open Day 14: Rybakina Shows Why She Is No. 1**\
-`Elena Rybakina defeated Aryna Sabalenka to underline her new status as the world No. 1 of women’s tennis.`\
-https://www.nytimes.com/2026/09/14/podcasts/us-open-final-rybakina-world-no-1-women.html
 
