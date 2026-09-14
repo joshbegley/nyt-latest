@@ -1,3 +1,7 @@
+**Cómo los partidarios de línea dura en Irán sabotearon el acuerdo con Trump**\
+`Funcionarios iraníes dijeron que las investigaciones internas rastrearon la decisión de atacar tres barcos comerciales en julio hasta un influyente jefe de espionaje que se había opuesto al acuerdo de paz con EE. UU. desde el principio.`\
+https://www.nytimes.com/es/2026/09/14/espanol/mundo/iran-sabotaje-acuerdo-paz.html
+
 **Why Scandals Don’t Bring Down Politicians Anymore**\
 `It’s about more than just shamelessness.`\
 https://www.nytimes.com/2026/09/14/world/scandal-shame-politics-polarization.html
