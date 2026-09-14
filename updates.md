@@ -1,3 +1,11 @@
+**Mamdani and New York’s Business Leaders Agree On at Least One Thing**\
+`Yes, child care is too expensive, a new group of business leaders says. But solving the problem with city taxes? That might be an issue.`\
+https://www.nytimes.com/2026/09/14/nyregion/child-care-new-york-city-business-leaders-mamdani.html
+
+**NYT Spelling Bee Answers for September 14, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/09/14/crosswords/spelling-bee-forum.html
+
 **Rescue Underway After Ferry Sinks in Indonesia**\
 `Rescue efforts for survivors were underway after an Indonesian ferry capsized in the Java Sea after encountering rough conditions on Sunday, the authorities said.`\
 https://www.nytimes.com/video/world/asia/100000011150437/ferry-sink-indonesia-rescue.html
