@@ -1,3 +1,7 @@
+**I’ve Never Been a Budget Hawk. But $40 Trillion is Too Big to Ignore.**\
+`The national debt is too big to ignore--it could all end badly.`\
+https://www.nytimes.com/2026/09/14/opinion/national-debt-trump.html
+
 **Macklemore Dropped From Ed Sheeran Tour After ‘Free Palestine’ Remarks**\
 `The rapper, a critic of the war in Gaza, made the comments onstage at MetLife Stadium.`\
 https://www.nytimes.com/2026/09/14/arts/music/macklemore-ed-sheeran-tour-palestine-gaza.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/09/14/opinion/midterms-pollsters-pundit
 **La IA se ha vuelto rebelde: ¿podemos mantenerla bajo control?**\
 `Ya no podemos seguir fingiendo que la inteligencia artificial es segura`\
 https://www.nytimes.com/es/2026/09/14/espanol/opinion/inteligencia-artificial-peligro.html
-
-**Rogue Machines**\
-`We look into the concerns over artificial intelligence.`\
-https://www.nytimes.com/2026/09/14/briefing/rogue-ai.html
 
