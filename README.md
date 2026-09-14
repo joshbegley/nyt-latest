@@ -1,3 +1,7 @@
+**Alex Saab, aliado de Maduro, podría declararse culpable de lavado de dinero en EE. UU.**\
+`Como parte de un acuerdo de culpabilidad, Saab podría potencialmente cooperar contra Nicolás Maduro.`\
+https://www.nytimes.com/es/2026/09/14/espanol/estados-unidos/alex-saab-cargos-maduro.html
+
 **Why is JD Vance Campaigning in Kansas, a Red State?**\
 `Why is JD Vance campaigning in a red state?`\
 https://www.nytimes.com/2026/09/14/us/politics/jd-vance-kansas-campaign-midterms.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/14/opinion/ai-regulation.html
 **Una mujer criticó al gobierno de Trinidad y Tobago en una llamada privada. Luego fue detenida por meses**\
 `Las tensiones raciales y políticas estallan en Trinidad y Tobago después de que miembros de una minoría étnica fueran acusados de un complot de asesinato con base en una llamada telefónica privada.`\
 https://www.nytimes.com/es/2026/09/14/espanol/mundo/trinidad-tobago-asesinato-complot.html
-
-**Immigrants’ Lawyers Say U.S. Is Redacting Documents Proving Legal Status**\
-`Many noncitizens need immigration records the government has to prove their legal stay and resist deportation. The government is redacting and withholding those documents, lawyers say.`\
-https://www.nytimes.com/2026/09/14/us/politics/immigrants-foia.html
 

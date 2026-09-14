@@ -1,3 +1,7 @@
+**Emmy Awards Live Updates: Stars Fill the Red Carpet Ahead of TV’s Biggest Night**\
+`Mariska Hargitay will host the ceremony in Los Angeles, where “The Pitt” and “Hacks” lead in nominations, and Apple TV hopes to win the most awards for the first time.`\
+https://www.nytimes.com/live/2026/09/14/arts/emmy-awards-2026
+
 **Why is JD Vance Campaigning in Kansas, a Red State?**\
 `Why is JD Vance campaigning in a red state?`\
 https://www.nytimes.com/2026/09/14/us/politics/jd-vance-kansas-campaign-midterms.html
