@@ -1,3 +1,7 @@
+**Fashion Executive Tackles PETA Protester at Fashion Show**\
+`Steve Kolb, head of the Council of Fashion Designers of America, was involved in a physical altercation with activists from People for the Ethical Treatment of Animals at a New York Fashion Week runway show.`\
+https://www.nytimes.com/video/style/100000011150236/nyfw-steve-kolb-protest.html
+
 **No Corrections: September 14, 2026**\
 `No corrections appeared in print on Monday, September 14, 2026.`\
 https://www.nytimes.com/2026/09/14/corrections/no-corrections-september-14-2026.html

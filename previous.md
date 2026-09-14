@@ -1,3 +1,7 @@
+**Fashion Executive Tackles PETA Protester at Fashion Show**\
+`Steve Kolb, head of the Council of Fashion Designers of America, was involved in a physical altercation with activists from People for the Ethical Treatment of Animals at a New York Fashion Week runway show.`\
+https://www.nytimes.com/video/style/100000011150236/nyfw-steve-kolb-protest.html
+
 **No Corrections: September 14, 2026**\
 `No corrections appeared in print on Monday, September 14, 2026.`\
 https://www.nytimes.com/2026/09/14/corrections/no-corrections-september-14-2026.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/13/crosswords/wordle-review-1913.html
 **Ella Langley. ‘Landman.’ The Rural Vibe Shift Is Real.**\
 `Social marginalization means something different today.`\
 https://www.nytimes.com/2026/09/13/opinion/ella-langley-landman-rural-politics.html
-
-**Opera Is in Trouble. Let’s Channel the Maestro.**\
-`An imagined look at what Arturo Toscanini, one of opera’s greatest interpreters, would say about the troubled art form of today.`\
-https://www.nytimes.com/2026/09/13/opinion/toscanini-opera-conductors-directors-art.html
 
