@@ -1,3 +1,7 @@
+**Inside Moscow’s High-Tech Surveillance Turn**\
+`From facial-recognition payments at checkout to autonomous delivery robots on the sidewalks, Moscow is rapidly transforming into a high-tech city. But this seamless convenience comes at a cost: an expanding web of citizen surveillance. Our reporter Ivan Nechepurenko reports from Moscow.`\
+https://www.nytimes.com/video/world/100000010736402/inside-moscows-high-tech-surveillance-turn.html
+
 **Cómo los partidarios de línea dura en Irán sabotearon el acuerdo con Trump**\
 `Funcionarios iraníes dijeron que las investigaciones internas rastrearon la decisión de atacar tres barcos comerciales en julio hasta un influyente jefe de espionaje que se había opuesto al acuerdo de paz con EE. UU. desde el principio.`\
 https://www.nytimes.com/es/2026/09/14/espanol/mundo/iran-sabotaje-acuerdo-paz.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/13/arts/television/judge-judy-retires.html
 **The Deadly Truth About Football**\
 `Readers respond to front-page articles about the devastating brain disease C.T.E. among N.F.L. players. Also: Unpresidential actions; India’s U.S. policy.`\
 https://www.nytimes.com/2026/09/13/opinion/football-nfl-cte.html
-
-**Shrimp Peperonata, Chicken With Spicy Corn and KBBQ Meatballs**\
-`With Sam Sifton’s perfect steak recipe thrown in for good, delicious measure.`\
-https://www.nytimes.com/2026/09/13/dining/shrimp-peperonata-chicken-with-spicy-corn-and-kbbq-meatballs.html
 
