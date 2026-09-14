@@ -1,3 +1,7 @@
+**Texas Republican’s Racist Social Media Post Draws Condemnation**\
+`Many Republicans criticized the post, some in more direct terms than others.`\
+https://www.nytimes.com/2026/09/13/us/bo-french-racist-post-republicans-texas.html
+
 **The Bari Weiss Era of ‘60 Minutes’ Begins**\
 `The long-running CBS News program returned for a high-pressure 59th season on Sunday. With new correspondents and a refreshed stopwatch, it was more tweak than overhaul.`\
 https://www.nytimes.com/2026/09/13/business/media/60-minutes-season-premiere-bari-weiss.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/09/13/espanol/cultura/viaje-estrellas-videojuego
 **Did Trump Win the Battle Over the Smithsonian?**\
 `Lonnie G. Bunch III, who has led the institution since 2019, parried the White House until deciding it was time to go.`\
 https://www.nytimes.com/2026/09/13/arts/design/did-trump-win-the-battle-over-the-smithsonian.html
-
-**As Fears of A.I. Catastrophe Magnify, Washington Stirs, but Mostly Slumbers**\
-`President Trump has been at the forefront of the “what-me-worry?” crowd, refusing to engage on how to balance the risks and rewards of A.I.`\
-https://www.nytimes.com/2026/09/13/us/politics/ai-catastrophe-fears-washington.html
 
