@@ -1,3 +1,27 @@
+**Brain Implant Helps Woman Communicate in Real Time**\
+`In the latest advance in brain-computer interfaces, a company said its wireless device enabled speech even when a patient just imagined saying words.`\
+https://www.nytimes.com/2026/09/14/well/brain-implant-helps-woman-communicate-in-real-time.html
+
+**Can You Identify These Places That Nurtured Writers?**\
+`Poets and authors have long found inspiration around New York City. Try this quiz to see how many locations you recognize.`\
+https://www.nytimes.com/quiz/2026/09/14/bookreview/nyc-literary-hangouts.html
+
+**A Bright Shrimp Dinner That Keeps Things Interesting**\
+`Golden raisins and briny capers add tangy pops of sweetness and salinity.`\
+https://www.nytimes.com/2026/09/14/dining/a-bright-shrimp-dinner-that-keeps-things-interesting.html
+
+**10-Year Treasury Yield Reaches 5%, Highest Level in Years**\
+`One of the world’s most important interest rates hit a level recorded only once since the global financial crisis, as investors continued to rebuff the Trump administration’s efforts to sway the bond market.`\
+https://www.nytimes.com/2026/09/14/business/10-year-treasury-yield-5-percent.html
+
+**‘Alligator Alcatraz’ Used Small Cages to Confine Migrants, DHS Watchdog Report Says**\
+`The Department of Homeland Security’s internal watchdog provided new details about conditions at the now-shuttered Florida detention center.`\
+https://www.nytimes.com/2026/09/14/us/alligator-alcatraz-dhs-inspector-general.html
+
+**Leaked A.I. Queries Raise Fears of New Biological Weapons Race**\
+`Current chatbots aren’t likely to help lone actors invent a deadly pathogen, experts say. But newer models, trained in biology, may need stronger safeguards.`\
+https://www.nytimes.com/2026/09/14/science/ai-bioweapons.html
+
 **Haitian Workers Keep Key West Tourism Afloat. Now They’re Disappearing.**\
 `The end of legal protections for Haitian immigrants nationally has jolted the labor market in Key West, a remote vacation destination where many live and work.`\
 https://www.nytimes.com/2026/09/14/us/haitian-workers-key-west-tourism.html
