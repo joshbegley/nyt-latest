@@ -46,8 +46,8 @@ https://www.nytimes.com/quiz/2026/09/14/bookreview/nyc-literary-hangouts.html
 `Golden raisins and briny capers add tangy pops of sweetness and salinity.`\
 https://www.nytimes.com/2026/09/14/dining/a-bright-shrimp-dinner-that-keeps-things-interesting.html
 
-**Haitian Workers Keep Key West Tourism Afloat. Now They’re Disappearing.**\
-`The end of legal protections for Haitian immigrants nationally has jolted the labor market in Key West, a remote vacation destination where many live and work.`\
+**Key West Feels the Pain of Trump Decision on Haitians**\
+`The end of legal protections for Haitian immigrants nationally has jolted the labor market in this remote vacation destination in Florida where many live and work.`\
 https://www.nytimes.com/2026/09/14/us/haitian-workers-key-west-tourism.html
 
 **As Supreme Court Weighs Trump Mail Ballot Plan, Another Judge Blocks It**\
