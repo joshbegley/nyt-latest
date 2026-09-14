@@ -1,3 +1,11 @@
+**Un empresario ruso financió la tornaboda de Donald Trump Jr.**\
+`Los pagos, que suman cientos de miles de dólares, representaron un extraordinario desprecio por las normas éticas para un familiar de un presidente estadounidense.`\
+https://www.nytimes.com/es/2026/09/14/espanol/estados-unidos/empresario-ruso-boda-hijo-trump.html
+
+**Gavin Newsom Says He Won’t Run in 2028 if Kamala Harris Does**\
+`The comments made to CNN, if taken at face value, seemed to fly in the face of the California governor’s presidential ambitions.`\
+https://www.nytimes.com/2026/09/14/us/politics/gavin-newsom-kamala-harris-2028-president.html
+
 **McConnell Returns to Senate After Three Months Away**\
 `Senator Mitch McConnell, the 84-year-old Kentucky Republican and former leader, had been absent for more than 13 weeks after a health incident, fueling questions about his ability to continue serving.`\
 https://www.nytimes.com/2026/09/14/us/politics/mcconnell-senate-absence.html

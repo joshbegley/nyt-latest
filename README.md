@@ -55,7 +55,7 @@ https://www.nytimes.com/2026/09/14/us/alex-saab-maduro-money-laundering-plea.htm
 https://www.nytimes.com/live/2026/09/14/arts/emmy-awards-2026
 
 **‘NAZA’, un documental israelí, recibe ovaciones en el extranjero y rechazo en Israel**\
-`The film “NAZA” investigates the killing of Palestinians by Israeli forces in Gaza. Israel’s culture minister has suggested revoking the directors’ citizenship.`\
+`La película “NAZA” investiga la muerte de palestinos a manos de las fuerzas israelíes en Gaza. El ministro de Cultura de Israel ha sugerido que se revoque la ciudadanía de los directores.`\
 https://www.nytimes.com/es/2026/09/14/espanol/mundo/israel-gaza-naza-documental-ciudadania.html
 
 **Nvidia’s Jensen Huang Gets Onstage Call From Trump, Who Dismissed A.I. Safety Concerns**\
