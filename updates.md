@@ -1,3 +1,7 @@
+**Some in Silicon Valley Are Questioning the Calls for an A.I. Slowdown**\
+`The debate over the safety of artificial intelligence grew personal as key tech leaders said calls for government regulation were self-serving and misplaced.`\
+https://www.nytimes.com/2026/09/13/technology/silicon-valley-ai-slowdown.html
+
 **Legionella Bacteria Found in Cooling Tower at Yankee Stadium**\
 `A Legionnaires’ disease outbreak in the Bronx has killed one person and infected nine. A Yankees spokesman said that its towers were cleaned on Sunday, and the city has not asked that games be postponed.`\
 https://www.nytimes.com/2026/09/13/nyregion/yankee-stadium-tower-legionnaires.html
