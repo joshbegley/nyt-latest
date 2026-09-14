@@ -1,3 +1,7 @@
+**Al interior de las conversaciones sobre el fin del mundo en las empresas de IA**\
+`Los investigadores de Anthropic, OpenAI, Meta y Google intentan cada vez más generar conciencia sobre los riesgos de la inteligencia artificial.`\
+https://www.nytimes.com/es/2026/09/14/espanol/ciencia-y-tecnologia/peligros-inteligencia-artificial-empresas.html
+
 **‘Monster: The Lizzie Borden Story’ and 8 More Shows to Watch on TV This Week**\
 `The new installment of Ryan Murphy’s anthology series premieres. NBC hosts the 78th annual Emmy Awards.`\
 https://www.nytimes.com/2026/09/14/arts/television/monster-the-lizzie-borden-story-what-to-watch.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/13/us/politics/tom-tiffany-wisconsin-lake-wausau
 **The Fix Was Almost In**\
 `The midterms dodge their first MAGA bullet. It won’t be the last.`\
 https://www.nytimes.com/2026/09/13/opinion/missouri-republicans-redistricting-map-midterms.html
-
-**Let the U.S. Open Fly Its Freak Flag**\
-`Many are complaining about influencers invading Flushing Meadows. But their biggest crime is distracting from the glorious chaos that typifies this tournament.`\
-https://www.nytimes.com/2026/09/13/opinion/us-open-tennis-influencers.html
 
