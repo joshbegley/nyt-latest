@@ -1,3 +1,11 @@
+**What Is Driving Diesel Prices Up? Energy Chaos Caused by Two Wars.**\
+`President Trump recently blamed Ukrainian attacks on Russian refineries for causing a spike in diesel prices, but analysts say the Iran war is probably a bigger factor.`\
+https://www.nytimes.com/2026/09/14/business/energy-environment/trump-diesel-russia-ukraine-iran.html
+
+**Macklemore Dropped From Ed Sheeran’s Tour After Palestine Comments**\
+`The rapper Macklemore was dropped as an opening act from Ed Sheeran’s tour after saying “Free Palestine” onstage.`\
+https://www.nytimes.com/video/us/100000011151467/macklemore-dropped-ed-sheeran-tour-palestine.html
+
 **I’ve Never Been a Budget Hawk. But $40 Trillion is Too Big to Ignore.**\
 `The national debt is too big to ignore--it could all end badly.`\
 https://www.nytimes.com/2026/09/14/opinion/national-debt-trump.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/14/world/asia/china-ai-security-risks-anthropic.
 **Saudi Arabia Faces ‘Worst-Case Scenario’ After Iran’s Attacks and Trump’s Rebuffs**\
 `The kingdom is in a state of strategic shock after coming under attack from an emboldened Iran and failing to win more U.S. military support, analysts say.`\
 https://www.nytimes.com/2026/09/14/world/middleeast/saudi-iran-trump-yemen-houthis.html
-
-**Who Will Win the Midterms? Nate Silver and Our Experts Are More Confident About a Blue Wave.**\
-`It’s looking bullish for Democrats.`\
-https://www.nytimes.com/interactive/2026/09/14/opinion/midterms-pollsters-pundits-scorecard.html
-
-**La IA se ha vuelto rebelde: ¿podemos mantenerla bajo control?**\
-`Ya no podemos seguir fingiendo que la inteligencia artificial es segura`\
-https://www.nytimes.com/es/2026/09/14/espanol/opinion/inteligencia-artificial-peligro.html
 
