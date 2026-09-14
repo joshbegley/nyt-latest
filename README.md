@@ -1,3 +1,11 @@
+**British Man Pleads Guilty to Drugging and Raping Wife Over 20 Years**\
+`The police said that a dozen other men conspired with the husband, who is in his 60s, to abuse the woman in northern England.`\
+https://www.nytimes.com/2026/09/14/world/europe/uk-man-wife-drugging-rape-confession.html
+
+**Abbott to Pay $385 Million to Settle Infant Formula Safety Allegations**\
+`The company recalled formulas manufactured at a Michigan plant in 2022, after health officials linked them to serious illnesses in babies.`\
+https://www.nytimes.com/2026/09/14/well/abbott-settlement-infant-formula.html
+
 **What Is Driving Diesel Prices Up? Energy Chaos Caused by Two Wars.**\
 `President Trump recently blamed Ukrainian attacks on Russian refineries for causing a spike in diesel prices, but analysts say the Iran war is probably a bigger factor.`\
 https://www.nytimes.com/2026/09/14/business/energy-environment/trump-diesel-russia-ukraine-iran.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/14/business/dealbook/open-cosmos-space-start-ups
 **Modi Served World Leaders a Meatless Meal, and His Critics Pounced**\
 `Opposition politicians said a vegetarian dinner served at a diplomatic summit misrepresented India’s culinary heritage. A minister in Prime Minister Narendra Modi’s government rejected the criticism.`\
 https://www.nytimes.com/2026/09/14/world/asia/india-brics-vegetarian-dinner.html
-
-**China’s Top Spy Chief Warns A.I. Is a Threat to Party Rule**\
-`Even as Beijing urges the United States not to hype the dangers of A.I., its own spy chief is framing the technology as a threat to the Communist Party’s security.`\
-https://www.nytimes.com/2026/09/14/world/asia/china-ai-security-risks-anthropic.html
-
-**Saudi Arabia Faces ‘Worst-Case Scenario’ After Iran’s Attacks and Trump’s Rebuffs**\
-`The kingdom is in a state of strategic shock after coming under attack from an emboldened Iran and failing to win more U.S. military support, analysts say.`\
-https://www.nytimes.com/2026/09/14/world/middleeast/saudi-iran-trump-yemen-houthis.html
 
