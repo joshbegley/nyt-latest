@@ -22,7 +22,7 @@ https://www.nytimes.com/2026/09/14/arts/television/monster-the-lizzie-borden-sto
 `Two languages. Two realities.`\
 https://www.nytimes.com/2026/09/14/opinion/israel-violence-palestine.html
 
-**More Than 120 Unaccounted for After Ferry Sinks in Indonesia**\
+**More Than 120 Are Unaccounted For After Ferry Sinks in Indonesia**\
 `At least six people were killed and more than 100 rescued after the vessel sank in the Java Sea on Sunday, the authorities said.`\
 https://www.nytimes.com/2026/09/14/world/asia/indonesia-ferry-rescue-borneo.html
 
