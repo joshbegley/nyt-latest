@@ -1,5 +1,9 @@
 **La IA se ha vuelto rebelde: ¿podemos mantenerla bajo control?**\
 `Ya no podemos seguir fingiendo que la inteligencia artificial es segura`\
+https://www.nytimes.com/es/2026/09/14/espanol/opinion/inteligencia-artificial-peligro.html
+
+**La IA se ha vuelto rebelde: ¿podemos mantenerla bajo control?**\
+`Ya no podemos seguir fingiendo que la inteligencia artificial es segura`\
 https://www.nytimes.com/es/2026/09/14/espanol/inteligencia-artificial-peligro.html
 
 **Rogue Machines**\
