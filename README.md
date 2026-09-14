@@ -1,3 +1,11 @@
+**‘NAZA,’ Israeli Film About Killings in Gaza, Faces Backlash**\
+`The film “NAZA” investigates the killing of Palestinians by Israeli forces in Gaza. Israel’s culture minister has suggested revoking the directors’ citizenship.`\
+https://www.nytimes.com/2026/09/14/world/middleeast/israel-naza-documentary-backlash.html
+
+**A Wynton Marsalis Symphony Sees the Potential in America**\
+`This famed trumpeter and composer premiered his Fifth Symphony, “Liberty,” which blends a jazz ensemble and a traditional orchestra.`\
+https://www.nytimes.com/2026/09/14/arts/music/wynton-marsalis-liberty-symphony.html
+
 **China advierte de los peligros de la IA para el Partido Comunista**\
 `Aun cuando Pekín insta a EE. UU. a no exagerar los peligros de la IA, su propio jefe de espionaje presenta la tecnología como una amenaza para la seguridad del Partido Comunista.`\
 https://www.nytimes.com/es/2026/09/14/espanol/mundo/china-ia-espionaje-riesgo-partido.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/14/podcasts/us-open-zverev-wins-mens-final.html
 **Can a Polish Epic Become the World’s Next Period Drama Hit?**\
 `“The Doll” on Netflix is based on a novel that’s revered in Poland. It also has the requisite duels, corsets and palaces, as well as elaborate wigs and mustaches.`\
 https://www.nytimes.com/2026/09/14/arts/television/the-doll-netflix.html
-
-**The New Moscow: A Digital Utopia Doubling as a Surveillance Trap**\
-`Cutting-edge technologies have reshaped the Russian capital, making it safer, more convenient — and more closely watched.`\
-https://www.nytimes.com/2026/09/14/world/europe/moscow-russia-putin-digital-surveillance.html
-
-**Can You Tell How Smart a Dog Is by Giving It a Test?**\
-`With pets and people, we’re stupid when assessing smarts.`\
-https://www.nytimes.com/2026/09/14/opinion/dog-smart-intelligence-test.html
 
