@@ -1,3 +1,23 @@
+**Trump Rejects Calls for an A.I. Slowdown**\
+`Also, the E.P.A. erases limits on climate pollution from power plants. Here’s the latest at the end of Monday.`\
+https://www.nytimes.com/2026/09/14/briefing/trump-ai-slowdown-epa-pollution.html
+
+**As A.I. Fears Rise, Experts Suggest Focusing on the Humans in Charge**\
+`Warnings from industry leaders about doomsday scenarios ignore the power that people have to control how artificial intelligence is used, policy experts say. They are urging lawmakers to act now.`\
+https://www.nytimes.com/2026/09/14/us/ai-fears-human-role.html
+
+**Do You Have Questions About A.I.? We Want to Answer Them.**\
+`The New York Times is soliciting readers’ questions about the dangers — and benefits — posed by artificial intelligence.`\
+https://www.nytimes.com/2026/09/14/science/ai-questions-callout.html
+
+**Emmys Photos: All the Looks From the 2026 Red Carpet**\
+`Stars are arriving at the 78th Emmy Awards in Los Angeles. See what they’re wearing to celebrate TV’s biggest night.`\
+https://www.nytimes.com/2026/09/14/style/emmys-red-carpet-photos.html
+
+**Fashion Executive Placed on Leave After Physical Confrontation at Runway Show**\
+`The Council of Fashion Designers of America said its chief executive, Steve Kolb, would be placed on leave “pending a full review” of an incident at the Cos fashion show.`\
+https://www.nytimes.com/2026/09/14/style/steve-kolb-cfda-leave.html
+
 **Maduro Ally Is Expected to Plead Guilty in Federal Money Laundering Case**\
 `Alex Saab, a former high-ranking government official in Venezuela, could potentially cooperate against Mr. Maduro, who is awaiting trial in New York.`\
 https://www.nytimes.com/2026/09/14/us/alex-saab-maduro-money-laundering-plea.html
@@ -173,24 +193,4 @@ https://www.nytimes.com/es/2026/09/14/espanol/negocios/anthropic-ia-ceo-carta-de
 **Cisco Likely Allowed Harassment of Pro-Palestinian Workers, EEOC Says**\
 `The finding by the U.S. Equal Employment Opportunity Commission said there was reason to believe that the tech giant subjected employees to a hostile environment.`\
 https://www.nytimes.com/2026/09/14/business/cisco-eeoc-palestinian-harassment.html
-
-**Eckhaus Latta: The Breakthrough Show of New York Fashion Week**\
-`Eckhaus Latta is ready for the big time.`\
-https://www.nytimes.com/2026/09/14/style/eckhaus-latta-new-york-fashion-week.html
-
-**States and Cities Sue Over Trump’s Policy to Restrict Green Cards**\
-`The policy would give immigration officers wide authority to deny green cards to people using public benefits.`\
-https://www.nytimes.com/2026/09/14/us/politics/green-cards-immigration-lawsuit.html
-
-**Wellness Darty, Anyone?**\
-`Plus, you should clear your phone’s storage.`\
-https://www.nytimes.com/2026/09/14/briefing/wellness-darty-anyone.html
-
-**Can You Identify These Places That Nurtured Writers?**\
-`Poets and authors have long found inspiration around New York City. Try this quiz to see how many locations you recognize.`\
-https://www.nytimes.com/quiz/2026/09/14/bookreview/nyc-literary-hangouts.html
-
-**‘I Have a Lot to Say’: Brain Implant Helps a Disabled Patient Speak**\
-`In the latest advance in brain-computer interfaces, a company said its wireless device enabled speech even when a patient just imagined saying words.`\
-https://www.nytimes.com/2026/09/14/well/brain-implant-helps-woman-communicate-in-real-time.html
 
