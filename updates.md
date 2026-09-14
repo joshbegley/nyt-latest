@@ -1,3 +1,15 @@
+**Syrians Protest After Fuel Prices Hike**\
+`Syrian protesters gathered in the streets after the government decided to raise fuel prices by as much as 40 percent.`\
+https://www.nytimes.com/video/world/middleeast/100000011151166/syria-protest-fuel-prices.html
+
+**What Do the Houthis Want?**\
+`The Iranian-backed militia has made strategic gains, becoming an unlikely power player in the Middle East.`\
+https://www.nytimes.com/2026/09/14/world/houthis-saudi-iran-jeff-koons.html
+
+**Russian Businessman With Putin Ties Paid for Donald Trump Jr.’s Wedding Party**\
+`The payments, totaling hundreds of thousands of dollars, represented an extraordinary flouting of ethical norms for an American president’s family member.`\
+https://www.nytimes.com/2026/09/14/us/politics/donald-trump-jr-wedding-russian-businessman.html
+
 **U.S. Imposes Sanctions on Russia’s VTB Bank Over Ties to Iran**\
 `The move, which targeted a bank that is already under U.S. sanctions, was part of the Trump administration’s Operation Economic Outcast initiative.`\
 https://www.nytimes.com/2026/09/14/business/us-sanctions-russia-vtb-bank-iran.html
