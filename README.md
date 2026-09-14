@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/09/14/nyregion/mahmoud-khalil-columbia-lawsuit.html
 
 **Bond Market Rebukes Bessent by Sending Borrowing Costs Ever Higher**\
-`The Treasury secretary dared “Bloomberg terminal bros” to bet against him and they did.`\
+`The Treasury secretary had dared “Bloomberg terminal bros” to bet against him and they did.`\
 https://www.nytimes.com/2026/09/14/business/bond-market-scott-bessent.html
 
 **Trump Rejects Talk of A.I. Regulation and Calls Out Anthropic’s CEO**\
@@ -186,8 +186,8 @@ https://www.nytimes.com/2026/09/14/nyregion/vanderbilt-whitney-museum-partnershi
 `Starting Sept. 21, we’ll unveil a list of 100, as voted on by more than 500 television professionals in Hollywood and around the world. Make sure you’re getting updates.`\
 https://www.nytimes.com/2026/09/14/arts/television/100-best-tv-shows-of-the-21st-century-sign-up.html
 
-**Leaked A.I. Queries Raise Fears of New Biological Weapons Race**\
-`Current chatbots aren’t likely to help lone actors invent a deadly pathogen, experts say. But newer models, trained in biology, may need stronger safeguards.`\
+**A.I. Queries From Abroad Raise Fears of a Biological Weapons Race**\
+`Today’s chatbots aren’t likely to help lone actors invent a deadly pathogen, experts say. But newer models, trained in biology, may need stronger safeguards.`\
 https://www.nytimes.com/2026/09/14/science/ai-bioweapons.html
 
 **As Midterms Rage, Gillibrand Wants Congress to Talk Menopause**\

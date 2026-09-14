@@ -1,3 +1,7 @@
+**Mahmoud Khalil Says Columbia Failed to Protect Pro-Palestinian Students**\
+`In a federal lawsuit, Mr. Khalil and other former student activists say the university was deliberately indifferent to their harassment even before the 2023 Hamas attacks.`\
+https://www.nytimes.com/2026/09/14/nyregion/mahmoud-khalil-columbia-lawsuit.html
+
 **Bond Market Rebukes Bessent by Sending Borrowing Costs Ever Higher**\
 `The Treasury secretary dared “Bloomberg terminal bros” to bet against him and they did.`\
 https://www.nytimes.com/2026/09/14/business/bond-market-scott-bessent.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/14/us/politics/democrat-senate-menopause-gillibr
 **How a Family of 5 Lives on $30,000 a Year in the Bronx**\
 `To help his family, Germel Younger has become a professional caregiver, but the pay barely covers their expenses.`\
 https://www.nytimes.com/interactive/2026/09/14/nyregion/nyc-budgeting-affordability-younger.html
-
-**Why Is Danny Meyer, the Happy Face of Hospitality, Serving Up Regrets?**\
-`In a new memoir, the man behind Shake Shack and a suite of influential restaurants revisits the business blunders that taught him valuable lessons.`\
-https://www.nytimes.com/2026/09/14/dining/danny-meyer-hospitality-book.html
 

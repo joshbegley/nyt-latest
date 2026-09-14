@@ -1,3 +1,7 @@
+**Mahmoud Khalil Says Columbia Failed to Protect Pro-Palestinian Students**\
+`In a federal lawsuit, Mr. Khalil and other former student activists say the university was deliberately indifferent to their harassment even before the 2023 Hamas attacks.`\
+https://www.nytimes.com/2026/09/14/nyregion/mahmoud-khalil-columbia-lawsuit.html
+
 **Trump Rejects Talk of A.I. Regulation and Calls Out Anthropic’s CEO**\
 `The president again rejected calls to try to regulate the industry, even as some of its leaders are speaking more openly about the risks of rapidly developing artificial intelligence.`\
 https://www.nytimes.com/2026/09/14/us/politics/trump-ai-regulation-anthropic-dario-amodei.html
