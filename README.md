@@ -2,7 +2,7 @@
 `After the Trump administration blocked a new ambassador to Washington, the country expressed regret for a post from a French official social media account.`\
 https://www.nytimes.com/2026/09/14/world/europe/france-ambassador-trump-tweet.html
 
-**Russian Strike on Train Station Near Poland Seen as Warning to Kyiv’s Allies**\
+**Russian Strike on Train Station Near Ukraine-Poland Border Seen as Warning to Kyiv’s Allies**\
 `The attack on Ukraine’s rail network, which connects the country to the West, was a jab at Europe, officials said.`\
 https://www.nytimes.com/2026/09/14/world/europe/ukraine-railway-strike-europe.html
 
