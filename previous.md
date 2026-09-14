@@ -2,7 +2,7 @@
 `After the Trump administration blocked a new ambassador to Washington, the country expressed regret for a post from a French official social media account.`\
 https://www.nytimes.com/2026/09/14/world/europe/france-ambassador-trump-tweet.html
 
-**Russian Strike on Train Station Near Poland Seen as Warning to Kyiv’s Allies**\
+**Russian Strike on Train Station Near Ukraine-Poland Border Seen as Warning to Kyiv’s Allies**\
 `The attack on Ukraine’s rail network, which connects the country to the West, was a jab at Europe, officials said.`\
 https://www.nytimes.com/2026/09/14/world/europe/ukraine-railway-strike-europe.html
 
@@ -86,7 +86,7 @@ https://www.nytimes.com/2026/09/14/world/europe/moscow-russia-putin-digital-surv
 `With pets and people, we’re stupid when assessing smarts.`\
 https://www.nytimes.com/2026/09/14/opinion/dog-smart-intelligence-test.html
 
-**Trying to Rid the Pentagon of Culture Wars, Hegseth Has Created His Own**\
+**In Hegseth’s Pentagon, Top Leaders Battle Turmoil**\
 `Persistent distractions are feeding a climate of mistrust as the U.S. military faces a series of wartime issues, including shortfalls of missile interceptors.`\
 https://www.nytimes.com/2026/09/14/us/politics/hegseth-pentagon-turmoil.html
 

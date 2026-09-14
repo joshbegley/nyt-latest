@@ -1,3 +1,11 @@
+**Russian Strike on Train Station Near Ukraine-Poland Border Seen as Warning to Kyiv’s Allies**\
+`The attack on Ukraine’s rail network, which connects the country to the West, was a jab at Europe, officials said.`\
+https://www.nytimes.com/2026/09/14/world/europe/ukraine-railway-strike-europe.html
+
+**In Hegseth’s Pentagon, Top Leaders Battle Turmoil**\
+`Persistent distractions are feeding a climate of mistrust as the U.S. military faces a series of wartime issues, including shortfalls of missile interceptors.`\
+https://www.nytimes.com/2026/09/14/us/politics/hegseth-pentagon-turmoil.html
+
 **France Mocked U.S. for Human Rights Vote, Then Quietly Apologized**\
 `After the Trump administration blocked a new ambassador to Washington, the country expressed regret for a post from a French official social media account.`\
 https://www.nytimes.com/2026/09/14/world/europe/france-ambassador-trump-tweet.html
