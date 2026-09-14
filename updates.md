@@ -1,3 +1,15 @@
+**These Kinds of Moments Make Us Love Restaurants**\
+`TK`\
+https://www.nytimes.com/2026/09/14/dining/restaurant-moments.html
+
+**The Dining Trends Chefs Are Seeing in 2026**\
+`A dozen of the chef’s from the 2026 edition of our 50 favorite restaurants list talk GLP-1s, diner drinking habits, A.I. and more.`\
+https://www.nytimes.com/2026/09/14/dining/chefs-dining-beverage-trends.html
+
+**Emmy Winners 2026: See the Updating List**\
+`The list of winners for the 78th Emmy Awards.`\
+https://www.nytimes.com/2026/09/14/arts/television/emmy-winners-list.html
+
 **N.Y. Democratic House Candidate Admits to Bondage Photo Shoot**\
 `Christopher Gallant, who is running against Representative Nick LaLota on Long Island, acknowledged that the photos that surfaced in media reports on Monday were legitimate.`\
 https://www.nytimes.com/2026/09/14/nyregion/gallant-bondage-photos-democrat.html

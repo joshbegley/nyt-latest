@@ -1,3 +1,15 @@
+**These Kinds of Moments Make Us Love Restaurants**\
+`TK`\
+https://www.nytimes.com/2026/09/14/dining/restaurant-moments.html
+
+**The Dining Trends Chefs Are Seeing in 2026**\
+`A dozen of the chef’s from the 2026 edition of our 50 favorite restaurants list talk GLP-1s, diner drinking habits, A.I. and more.`\
+https://www.nytimes.com/2026/09/14/dining/chefs-dining-beverage-trends.html
+
+**Emmy Winners 2026: See the Updating List**\
+`The list of winners for the 78th Emmy Awards.`\
+https://www.nytimes.com/2026/09/14/arts/television/emmy-winners-list.html
+
 **N.Y. Democratic House Candidate Admits to Bondage Photo Shoot**\
 `Christopher Gallant, who is running against Representative Nick LaLota on Long Island, acknowledged that the photos that surfaced in media reports on Monday were legitimate.`\
 https://www.nytimes.com/2026/09/14/nyregion/gallant-bondage-photos-democrat.html
@@ -177,20 +189,4 @@ https://www.nytimes.com/video/world/middleeast/100000011150589/tens-of-thousands
 **Syrians Protest as Surge in Fuel Prices Adds to Cost-of-Living Crisis**\
 `The government’s decision to increase prices as much as 40 percent spurred widespread demonstrations across the country.`\
 https://www.nytimes.com/2026/09/14/world/middleeast/syrians-protest-fuel-price-rises.html
-
-**‘NAZA,’ Israeli Film About Killings in Gaza, Faces Backlash**\
-`The film “NAZA” investigates the killing of Palestinians by Israeli forces in Gaza. Israel’s culture minister has suggested revoking the directors’ citizenship.`\
-https://www.nytimes.com/2026/09/14/world/middleeast/israel-naza-documentary-backlash.html
-
-**A Wynton Marsalis Symphony Sees the Potential in America**\
-`This famed trumpeter and composer premiered his Fifth Symphony, “Liberty,” which blends a jazz ensemble and a traditional orchestra.`\
-https://www.nytimes.com/2026/09/14/arts/music/wynton-marsalis-liberty-symphony.html
-
-**China advierte de los peligros de la IA para el Partido Comunista**\
-`Aun cuando Pekín insta a EE. UU. a no exagerar los peligros de la IA, su propio jefe de espionaje presenta la tecnología como una amenaza para la seguridad del Partido Comunista.`\
-https://www.nytimes.com/es/2026/09/14/espanol/mundo/china-ia-espionaje-riesgo-partido.html
-
-**Vance Campaigns in Kansas as Democrats Target a Republican Stronghold**\
-`Vice President JD Vance is beginning a key final stretch of midterm campaigning by dropping in on the Senate race in Kansas, where Republicans were long seen as heavily favored.`\
-https://www.nytimes.com/2026/09/14/us/politics/jd-vance-kansas-senate-race.html
 
