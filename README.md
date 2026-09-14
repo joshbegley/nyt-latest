@@ -26,7 +26,7 @@ https://www.nytimes.com/2026/09/14/world/asia/india-brics-vegetarian-dinner.html
 `Even as Beijing urges the United States not to hype the dangers of A.I., its own spy chief is framing the technology as a threat to the Communist Party’s security.`\
 https://www.nytimes.com/2026/09/14/world/asia/china-ai-security-risks-anthropic.html
 
-**Saudi Arabia Faces ‘Worst-Case Scenario’ After Being Rebuffed by Trump**\
+**Saudi Arabia Faces ‘Worst-Case Scenario’ After Iran’s Attacks and Trump’s Rebuffs**\
 `The kingdom is in a state of strategic shock after coming under attack from an emboldened Iran and failing to win more U.S. military support, analysts say.`\
 https://www.nytimes.com/2026/09/14/world/middleeast/saudi-iran-trump-yemen-houthis.html
 
