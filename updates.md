@@ -1,3 +1,11 @@
+**Why is JD Vance Campaigning in Kansas, a Red State?**\
+`Why is JD Vance campaigning in a red state?`\
+https://www.nytimes.com/2026/09/14/us/politics/jd-vance-kansas-campaign-midterms.html
+
+**Mitch McConnell Returns to Senate After Three Month Absence**\
+`Senator Mitch McConnell, the 84-year-old Kentucky Republican and former leader, had been absent for more than 13 weeks after a health incident, fueling questions about his ability to continue serving.`\
+https://www.nytimes.com/2026/09/14/us/politics/mcconnell-senate-absence.html
+
 **‘NAZA’, un documental israelí, recibe ovaciones en el extranjero y rechazo en Israel**\
 `La película “NAZA” investiga la muerte de palestinos a manos de las fuerzas israelíes en Gaza. El ministro de Cultura de Israel ha sugerido que se revoque la ciudadanía de los directores.`\
 https://www.nytimes.com/es/2026/09/14/espanol/mundo/israel-gaza-naza-documental-ciudadania.html

@@ -1,3 +1,7 @@
+**Why is JD Vance Campaigning in Kansas, a Red State?**\
+`Why is JD Vance campaigning in a red state?`\
+https://www.nytimes.com/2026/09/14/us/politics/jd-vance-kansas-campaign-midterms.html
+
 **Un empresario ruso financió la tornaboda de Donald Trump Jr.**\
 `Los pagos, que suman cientos de miles de dólares, representaron un extraordinario desprecio por las normas éticas para un familiar de un presidente estadounidense.`\
 https://www.nytimes.com/es/2026/09/14/espanol/estados-unidos/empresario-ruso-boda-hijo-trump.html
@@ -6,7 +10,7 @@ https://www.nytimes.com/es/2026/09/14/espanol/estados-unidos/empresario-ruso-bod
 `The comments made to CNN, if taken at face value, seemed to fly in the face of the California governor’s presidential ambitions.`\
 https://www.nytimes.com/2026/09/14/us/politics/gavin-newsom-kamala-harris-2028-president.html
 
-**McConnell Returns to Senate After Three Months Away**\
+**Mitch McConnell Returns to Senate After Three Month Absence**\
 `Senator Mitch McConnell, the 84-year-old Kentucky Republican and former leader, had been absent for more than 13 weeks after a health incident, fueling questions about his ability to continue serving.`\
 https://www.nytimes.com/2026/09/14/us/politics/mcconnell-senate-absence.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/es/2026/09/14/espanol/mundo/trinidad-tobago-asesinato-co
 **Immigrants’ Lawyers Say U.S. Is Redacting Documents Proving Legal Status**\
 `Many noncitizens need immigration records the government has to prove their legal stay and resist deportation. The government is redacting and withholding those documents, lawyers say.`\
 https://www.nytimes.com/2026/09/14/us/politics/immigrants-foia.html
-
-**Bob Mackie, Designer Who ‘Dressed Every Spangly Woman in Show Business,’ Dies at 87**\
-`His sequined gowns and outrageous costumes threw clouds of glitter at American fashion for over half a century.`\
-https://www.nytimes.com/2026/09/14/style/bob-mackie-dead.html
 
