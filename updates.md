@@ -1,3 +1,7 @@
+**McConnell Returns to Senate After Three Months Away**\
+`Senator Mitch McConnell, the 84-year-old Kentucky Republican and former leader, had been absent for more than 13 weeks after a health incident, fueling questions about his ability to continue serving.`\
+https://www.nytimes.com/2026/09/14/us/politics/mcconnell-senate-absence.html
+
 **Bob Mackie, Cher and the Ultimate Revenge Dress**\
 `The designer’s bedazzling, feathered creations made waves onstage, including at the Oscars in 1986.`\
 https://www.nytimes.com/2026/09/14/style/bob-mackie-cher-tina-turner.html
