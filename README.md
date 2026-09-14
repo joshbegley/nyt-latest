@@ -1,3 +1,7 @@
+**Una mujer criticó al gobierno de Trinidad y Tobago en una llamada privada. Luego fue detenida por meses**\
+`Las tensiones raciales y políticas estallan en Trinidad y Tobago después de que miembros de una minoría étnica fueran acusados de un complot de asesinato con base en una llamada telefónica privada.`\
+https://www.nytimes.com/es/2026/09/14/espanol/mundo/trinidad-tobago-asesinato-complot.html
+
 **As Immigrants Seek Legal Status, Redacted Documents Doom Their Chances**\
 `Many noncitizens need immigration records the government has to prove their legal stay and resist deportation. The government is redacting and withholding those documents, lawyers say.`\
 https://www.nytimes.com/2026/09/14/us/politics/immigrants-foia.html
@@ -46,13 +50,13 @@ https://www.nytimes.com/2026/09/14/us/politics/green-cards-immigration-lawsuit.h
 `Plus, you should clear your phone’s storage.`\
 https://www.nytimes.com/2026/09/14/briefing/wellness-darty-anyone.html
 
-**Brain Implant Helps Woman Communicate in Real Time**\
-`In the latest advance in brain-computer interfaces, a company said its wireless device enabled speech even when a patient just imagined saying words.`\
-https://www.nytimes.com/2026/09/14/well/brain-implant-helps-woman-communicate-in-real-time.html
-
 **Can You Identify These Places That Nurtured Writers?**\
 `Poets and authors have long found inspiration around New York City. Try this quiz to see how many locations you recognize.`\
 https://www.nytimes.com/quiz/2026/09/14/bookreview/nyc-literary-hangouts.html
+
+**‘I Have a Lot to Say’: Brain Implant Helps a Disabled Patient Speak**\
+`In the latest advance in brain-computer interfaces, a company said its wireless device enabled speech even when a patient just imagined saying words.`\
+https://www.nytimes.com/2026/09/14/well/brain-implant-helps-woman-communicate-in-real-time.html
 
 **A Bright Shrimp Dinner That Keeps Things Interesting**\
 `Golden raisins and briny capers add tangy pops of sweetness and salinity.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/14/nyregion/vanderbilt-whitney-museum-partnershi
 **Be the First to Find Out the 100 Best TV Shows of the 21st Century**\
 `Starting Sept. 21, we’ll unveil a list of 100, as voted on by more than 500 television professionals in Hollywood and around the world. Make sure you’re getting updates.`\
 https://www.nytimes.com/2026/09/14/arts/television/100-best-tv-shows-of-the-21st-century-sign-up.html
-
-**A.I. Queries From Abroad Raise Fears of a Biological Weapons Race**\
-`Today’s chatbots aren’t likely to help lone actors invent a deadly pathogen, experts say. But newer models, trained in biology, may need stronger safeguards.`\
-https://www.nytimes.com/2026/09/14/science/ai-bioweapons.html
 
