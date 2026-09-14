@@ -1,3 +1,7 @@
+**Rescue Underway After Ferry Sinks in Indonesia**\
+`Rescue efforts for survivors were underway after an Indonesian ferry capsized in the Java Sea after encountering rough conditions on Sunday, the authorities said.`\
+https://www.nytimes.com/video/world/asia/100000011150437/ferry-sink-indonesia-rescue.html
+
 **Al interior de las conversaciones sobre el fin del mundo en las empresas de IA**\
 `Los investigadores de Anthropic, OpenAI, Meta y Google intentan cada vez más generar conciencia sobre los riesgos de la inteligencia artificial.`\
 https://www.nytimes.com/es/2026/09/14/espanol/ciencia-y-tecnologia/peligros-inteligencia-artificial-empresas.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/13/briefing/college-fashion.html
 **Tom Tiffany, Wisconsin Representative, Sustains Minor Injuries After Plane Lands in Lake**\
 `Representative Tom Tiffany, the Republican nominee for governor, said he and the pilot swam to safety after an emergency landing on Lake Wausau.`\
 https://www.nytimes.com/2026/09/13/us/politics/tom-tiffany-wisconsin-lake-wausau-plane-crash.html
-
-**The Fix Was Almost In**\
-`The midterms dodge their first MAGA bullet. It won’t be the last.`\
-https://www.nytimes.com/2026/09/13/opinion/missouri-republicans-redistricting-map-midterms.html
 
