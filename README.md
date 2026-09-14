@@ -1,3 +1,7 @@
+**‘Lanterns’ Season 1, Episode 5 Recap: The Heart Wants What It Wants**\
+`The dominant theme of this week’s action-packed and chaotic episode was evolution. Situations shift. People move on.`\
+https://www.nytimes.com/2026/09/13/arts/television/lanterns-recap-season-1-episode-5.html
+
 **Some in Silicon Valley Are Questioning the Calls for an A.I. Slowdown**\
 `The debate over the safety of artificial intelligence grew personal as key tech leaders said calls for government regulation were self-serving and misplaced.`\
 https://www.nytimes.com/2026/09/13/technology/silicon-valley-ai-slowdown.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/13/pageoneplus/corrections-sept-13-2026.html
 **Inside the $440 Million Collapse of Guidepost Montessori**\
 `A man with a vision set out to revolutionize preschool. It became a $440 million fiasco.`\
 https://www.nytimes.com/2026/09/13/business/guidepost-montessori-higher-ground-education-ray-girn.html
-
-**What to Expect at the 2026 Emmy Awards**\
-`“The Pitt” could make history at Monday night’s celebration of the best in TV, while “Widow’s Bay” and “Hacks” battle it out in the best comedy race.`\
-https://www.nytimes.com/2026/09/13/business/media/emmys-what-to-expect.html
 
