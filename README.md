@@ -1,3 +1,39 @@
+**‘The Late Show With Stephen Colbert’ Goes Out With an Emmy Win**\
+`For its final season, the series won an overhauled variety category in which any or all of the nominees could have claimed an Emmy Award.`\
+https://www.nytimes.com/2026/09/14/arts/television/the-late-show-stephen-colbert-emmy-.html
+
+**Supreme Court Justices Thomas and Alito Would Have Allowed Trump’s Mail-In Ballot Rules**\
+`Justice Samuel A. Alito Jr., joined by Justice Clarence Thomas, called the challenge to the restrictions a “Hail Mary pass” that was unlikely to prevail because of the Postal Service’s broad authority to regulate the mail.`\
+https://www.nytimes.com/2026/09/14/us/elections/supreme-court-alito-thomas-dissent.html
+
+**Matthew Rhys Achieves a Historic Emmys Trifecta**\
+`The Welsh actor became the first in the awards show’s history to win lead acting prizes in the drama, comedy and limited series fields.`\
+https://www.nytimes.com/2026/09/14/arts/television/matthew-rhys-emmys-widows-bay-the-beast-in-me.html
+
+**Vote for Your Favorite (and Least Favorite) Looks From the Emmy Awards**\
+`Vote for your favorite looks.`\
+https://www.nytimes.com/interactive/2026/09/14/style/emmys-best-dressed-vote.html
+
+**Trump’s Effort to Assert Control Over Elections Continues Despite Supreme Court Loss**\
+`President Trump has launched a broad, governmentwide effort to take more control of state-run elections and sow doubt about the outcome.`\
+https://www.nytimes.com/2026/09/14/us/politics/supreme-court-trump-mail-in-ballots.html
+
+**Elections Officials Breathe Sigh of Relief Following Court Ruling on Mail Ballots**\
+`Officials cheered the order blocking President Trump’s last-minute effort to change the rules on mail ballots, noting that some states had already mailed ballots.`\
+https://www.nytimes.com/2026/09/14/us/elections/mail-ballot-ruling-reaction.html
+
+**Sydney Sweeney Sports Betting Ad Sparks Backlash From Athletes**\
+`A nude campaign for a sports betting app drew strong responses. Was it all strategic?`\
+https://www.nytimes.com/2026/09/14/style/sydney-sweeney-sports-ad-novig.html
+
+**Rhea Seehorn Wins Her First Emmy for ‘Pluribus’**\
+`After coming up short twice for “Better Call Saul,” her commanding role in Vince Gilligan’s Apple sci-fi drama put her over the top.`\
+https://www.nytimes.com/2026/09/14/arts/television/rhea-seehorn-first-emmy-pluribus.html
+
+**New York Moves Away from Regents Exams for High School Seniors**\
+`A state board authorized phasing out the tests, long viewed as a rite of passage for high school seniors, as a diploma requirement. What replaces them is an open question.`\
+https://www.nytimes.com/2026/09/14/nyregion/new-york-regents-exam-high-school-students.html
+
 **Mariska Hargitay Opens 2026 Emmys With a Musical Tribute to TV**\
 `The hosting gig comes as a part of a big year for the actress that has included two Emmys for her documentary about her mother, Jayne Mansfield.`\
 https://www.nytimes.com/2026/09/14/arts/television/mariska-hargitay-emmys-monologue.html
@@ -145,44 +181,4 @@ https://www.nytimes.com/2026/09/14/insider/september-11-grief.html
 **Arabia Saudita pierde opciones entre el desaire de Trump y los ataques de Irán**\
 `El reino se encuentra en un estado de conmoción estratégica tras ser atacado por un Irán envalentonado y no lograr obtener más apoyo militar estadounidense, dicen los analistas.`\
 https://www.nytimes.com/es/2026/09/14/espanol/mundo/ataques-iran-arabia-saudita-trump.html
-
-**Half-Marathoners in New Jersey Wade Through Flooded Course**\
-`Harrowing social media videos showed runners navigating chest-high waters after a drenching rainstorm on Sunday.`\
-https://www.nytimes.com/2026/09/14/nyregion/half-marathon-new-jersey-flooding.html
-
-**Russian Businessman With Putin Ties Paid for Donald Trump Jr.’s Wedding Party**\
-`The payments, totaling hundreds of thousands of dollars, represented an extraordinary flouting of ethical norms for an American president’s family member.`\
-https://www.nytimes.com/2026/09/14/us/politics/donald-trump-jr-wedding-russian-businessman.html
-
-**The Local: Flock, fraud and football**\
-`Plus, a Twin Cities travel quiz.`\
-https://www.nytimes.com/2026/09/14/briefing/the-local-flock-fraud-and-football.html
-
-**Bob Mackie: A Life in Pictures**\
-`The designer was known for his flashy, sparkly designs for Cher, Diana Ross, Tina Turner and countless others.`\
-https://www.nytimes.com/2026/09/14/style/bob-mackie-designer-photos.html
-
-**British Man Pleads Guilty to Drugging and Raping Wife Over 20 Years**\
-`The police said that a dozen other men conspired with the husband, who is in his 60s, to abuse the woman in northern England.`\
-https://www.nytimes.com/2026/09/14/world/europe/uk-man-wife-drugging-rape-confession.html
-
-**Abbott to Pay $385 Million to Settle Baby Formula Safety Allegations**\
-`The company recalled formulas manufactured at a Michigan plant in 2022, after health officials linked them to serious illnesses in babies.`\
-https://www.nytimes.com/2026/09/14/well/abbott-settlement-infant-formula.html
-
-**What Is Driving Diesel Prices Up? Energy Chaos Caused by Two Wars.**\
-`President Trump recently blamed Ukrainian attacks on Russian refineries for causing a spike in diesel prices, but analysts say the Iran war is probably a bigger factor.`\
-https://www.nytimes.com/2026/09/14/business/energy-environment/trump-diesel-russia-ukraine-iran.html
-
-**Macklemore Dropped From Ed Sheeran’s Tour After Palestine Comments**\
-`The rapper Macklemore was dropped as an opening act from Ed Sheeran’s tour after saying “Free Palestine” onstage.`\
-https://www.nytimes.com/video/us/100000011151467/macklemore-dropped-ed-sheeran-tour-palestine.html
-
-**The National Debt Never Scared Me. It Scares Me.**\
-`It’s too big to ignore. And it could all end badly.`\
-https://www.nytimes.com/2026/09/14/opinion/national-debt-trump.html
-
-**Macklemore Dropped From Ed Sheeran Tour After ‘Free Palestine’ Remarks**\
-`The rapper, a critic of the war in Gaza, made the comments onstage at MetLife Stadium.`\
-https://www.nytimes.com/2026/09/14/arts/music/macklemore-ed-sheeran-tour-palestine-gaza.html
 
