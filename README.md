@@ -1,3 +1,7 @@
+**Reba McEntire Honors Dolly Parton With Rendition of ‘Appalachian Memories’**\
+`The beloved country music superstars shared a decades-long friendship.`\
+https://www.nytimes.com/2026/09/14/arts/television/dolly-parton-reba-mcentire-appalachian-memories.html
+
 **Have Thoughts on the Emmy’s Red Carpet? Join Our Readers in the Comments.**\
 `Television’s biggest stars have walked the carpet. Now that you’ve seen what everyone is wearing and voted for your favorite looks, we invite you to comment on a few of the styles.`\
 https://www.nytimes.com/2026/09/14/style/emmys-red-carpet-reader-comments.html

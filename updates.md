@@ -1,3 +1,15 @@
+**Supreme Court Justices Thomas and Alito Would Have Allowed Trump’s Mail-In Ballot Rules**\
+`Justice Samuel A. Alito Jr., joined by Justice Clarence Thomas, called the challenge to the restrictions a “Hail Mary pass” that was unlikely to prevail because of the Postal Service’s broad authority to regulate the mail.`\
+https://www.nytimes.com/2026/09/14/us/elections/supreme-court-alito-thomas-dissent.html
+
+**Trump’s Effort to Assert Control Over Elections Continues, Despite Supreme Court Loss**\
+`President Trump has launched a broad, governmentwide effort to take more control of state-run elections and sow doubt about the outcome.`\
+https://www.nytimes.com/2026/09/14/us/politics/supreme-court-trump-mail-in-ballots.html
+
+**Emmy Awards Live Updates: ‘Pluribus’ Wins Acting and Writing Awards**\
+`Rhea Seehorn and Vince Gilligan both won for the drama on Apple TV. The streamer will end the night with more Emmys than any other outlet, a first for the tech giant.`\
+https://www.nytimes.com/live/2026/09/14/arts/emmy-awards-2026
+
 **Have Thoughts on the Emmy’s Red Carpet? Join Our Readers in the Comments.**\
 `Television’s biggest stars have walked the carpet. Now that you’ve seen what everyone is wearing and voted for your favorite looks, we invite you to comment on a few of the styles.`\
 https://www.nytimes.com/2026/09/14/style/emmys-red-carpet-reader-comments.html

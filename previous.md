@@ -18,7 +18,7 @@ https://www.nytimes.com/2026/09/14/arts/television/emmys-candid-photos.html
 `For its final season, the series won an overhauled variety category in which any or all of the nominees could have claimed an Emmy Award.`\
 https://www.nytimes.com/2026/09/14/arts/television/the-late-show-stephen-colbert-emmy-.html
 
-**Two Conservative Justices Would Have Allowed Trump’s Mail-In Ballot Rules**\
+**Supreme Court Justices Thomas and Alito Would Have Allowed Trump’s Mail-In Ballot Rules**\
 `Justice Samuel A. Alito Jr., joined by Justice Clarence Thomas, called the challenge to the restrictions a “Hail Mary pass” that was unlikely to prevail because of the Postal Service’s broad authority to regulate the mail.`\
 https://www.nytimes.com/2026/09/14/us/elections/supreme-court-alito-thomas-dissent.html
 
@@ -30,7 +30,7 @@ https://www.nytimes.com/2026/09/14/arts/television/matthew-rhys-emmys-widows-bay
 `Vote for your favorite looks.`\
 https://www.nytimes.com/interactive/2026/09/14/style/emmys-best-dressed-vote.html
 
-**Trump’s Effort to Assert Control Over Elections Continues, Despite Court Loss**\
+**Trump’s Effort to Assert Control Over Elections Continues, Despite Supreme Court Loss**\
 `President Trump has launched a broad, governmentwide effort to take more control of state-run elections and sow doubt about the outcome.`\
 https://www.nytimes.com/2026/09/14/us/politics/supreme-court-trump-mail-in-ballots.html
 
@@ -158,8 +158,8 @@ https://www.nytimes.com/2026/09/14/style/steve-kolb-cfda-leave.html
 `Alex Saab, a former high-ranking government official in Venezuela, could potentially cooperate against Mr. Maduro, who is awaiting trial in New York.`\
 https://www.nytimes.com/2026/09/14/us/alex-saab-maduro-money-laundering-plea.html
 
-**Emmy Awards Live Updates: ‘The Late Show With Stephen Colbert’ Wins for Best Variety Series**\
-`The show ended this year after CBS canceled it. Matthew Rhys, honored for “The Beast in Me” and “Widow’s Bay,” is now the first actor to win lead acting Emmys in a drama, comedy and limited series.`\
+**Emmy Awards Live Updates: ‘Pluribus’ Wins Acting and Writing Awards**\
+`Rhea Seehorn and Vince Gilligan both won for the drama on Apple TV. The streamer will end the night with more Emmys than any other outlet, a first for the tech giant.`\
 https://www.nytimes.com/live/2026/09/14/arts/emmy-awards-2026
 
 **‘NAZA’, un documental israelí, recibe ovaciones en el extranjero y rechazo en Israel**\
