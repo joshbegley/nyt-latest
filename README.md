@@ -126,8 +126,8 @@ https://www.nytimes.com/2026/09/14/style/steve-kolb-cfda-leave.html
 `Alex Saab, a former high-ranking government official in Venezuela, could potentially cooperate against Mr. Maduro, who is awaiting trial in New York.`\
 https://www.nytimes.com/2026/09/14/us/alex-saab-maduro-money-laundering-plea.html
 
-**Emmy Awards Live Updates: ‘Widow’s Bay’ Is Off to a Strong Start**\
-`Kate O’Flynn and Stephen Root both won supporting acting awards for the show. Allison Janney of “The Diplomat” and Jean Smart of “Hacks” each won their eighth Emmy, tying a record.`\
+**Emmy Awards Live Updates: Noah Wyle Repeats Win for Best Actor in a Drama**\
+`Allison Janney of “The Diplomat” and Jean Smart of “Hacks” each won their eighth Emmy, tying a record. Rhea Seehorn, Kate O’Flynn and Stephen Root were among the other winners.`\
 https://www.nytimes.com/live/2026/09/14/arts/emmy-awards-2026
 
 **‘NAZA’, un documental israelí, recibe ovaciones en el extranjero y rechazo en Israel**\

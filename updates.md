@@ -1,3 +1,15 @@
+**Trump’s Effort to Assert Control Over Elections Continues, Despite Court Loss**\
+`President Trump has launched a broad, governmentwide effort to take more control of state-run elections and sow doubt about the outcome.`\
+https://www.nytimes.com/2026/09/14/us/politics/supreme-court-trump-mail-in-ballots.html
+
+**Elections Officials Breathe Sigh of Relief Following Court Ruling on Mail Ballots**\
+`Officials cheered the order blocking President Trump’s last-minute effort to change the rules on mail ballots, noting that some states had already mailed ballots.`\
+https://www.nytimes.com/2026/09/14/us/elections/mail-ballot-ruling-reaction.html
+
+**Emmy Awards Live Updates: ‘Widow’s Bay’ Is Off to a Strong Start**\
+`Kate O’Flynn and Stephen Root both won supporting acting awards for the show. Allison Janney of “The Diplomat” and Jean Smart of “Hacks” each won their eighth Emmy, tying a record.`\
+https://www.nytimes.com/live/2026/09/14/arts/emmy-awards-2026
+
 **Sydney Sweeney Sports Betting Ad Sparks Backlash From Athletes**\
 `A nude campaign for a sports betting app drew strong responses. Was it all strategic?`\
 https://www.nytimes.com/2026/09/14/style/sydney-sweeney-sports-ad-novig.html
