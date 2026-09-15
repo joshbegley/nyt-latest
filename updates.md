@@ -1,3 +1,35 @@
+**Jean Smart Wins Emmy for ‘Hacks’ and Makes History**\
+`An award for the final season of “Hacks” makes Smart one of the most prolific Emmy-winning actresses in history.`\
+https://www.nytimes.com/2026/09/14/arts/television/jean-smart-hacks-emmys-history.html
+
+**Russian Businessman With Putin Ties Paid for Donald Trump Jr.’s Wedding Party**\
+`The payments, totaling hundreds of thousands of dollars, represented an extraordinary flouting of ethical norms for an American president’s family member.`\
+https://www.nytimes.com/2026/09/14/us/politics/donald-trump-jr-wedding-russian-businessman.html
+
+**The Local: Flock, fraud and football**\
+`Plus, a Twin Cities travel quiz.`\
+https://www.nytimes.com/2026/09/14/briefing/the-local-flock-fraud-and-football.html
+
+**Bob Mackie: A Life in Pictures**\
+`The designer was known for his flashy, sparkly designs for Cher, Diana Ross, Tina Turner and countless others.`\
+https://www.nytimes.com/2026/09/14/style/bob-mackie-designer-photos.html
+
+**British Man Pleads Guilty to Drugging and Raping Wife Over 20 Years**\
+`The police said that a dozen other men conspired with the husband, who is in his 60s, to abuse the woman in northern England.`\
+https://www.nytimes.com/2026/09/14/world/europe/uk-man-wife-drugging-rape-confession.html
+
+**Abbott to Pay $385 Million to Settle Baby Formula Safety Allegations**\
+`The company recalled formulas manufactured at a Michigan plant in 2022, after health officials linked them to serious illnesses in babies.`\
+https://www.nytimes.com/2026/09/14/well/abbott-settlement-infant-formula.html
+
+**What Is Driving Diesel Prices Up? Energy Chaos Caused by Two Wars.**\
+`President Trump recently blamed Ukrainian attacks on Russian refineries for causing a spike in diesel prices, but analysts say the Iran war is probably a bigger factor.`\
+https://www.nytimes.com/2026/09/14/business/energy-environment/trump-diesel-russia-ukraine-iran.html
+
+**Macklemore Dropped From Ed Sheeran’s Tour After Palestine Comments**\
+`The rapper Macklemore was dropped as an opening act from Ed Sheeran’s tour after saying “Free Palestine” onstage.`\
+https://www.nytimes.com/video/us/100000011151467/macklemore-dropped-ed-sheeran-tour-palestine.html
+
 **Arabia Saudita pierde opciones entre el desaire de Trump y los ataques de Irán**\
 `El reino se encuentra en un estado de conmoción estratégica tras ser atacado por un Irán envalentonado y no lograr obtener más apoyo militar estadounidense, dicen los analistas.`\
 https://www.nytimes.com/es/2026/09/14/espanol/mundo/ataques-iran-arabia-saudita-trump.html
