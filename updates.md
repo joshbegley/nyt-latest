@@ -1,3 +1,15 @@
+**Matthew Rhys Achieves a Historic Emmys Trifecta**\
+`The Welsh actor became the first in the awards show’s history to win lead acting prizes in the drama, comedy and limited series fields.`\
+https://www.nytimes.com/2026/09/14/arts/television/matthew-rhys-emmys-widows-bay-the-beast-in-me.html
+
+**Vote for Your Favorite (and Least Favorite) Looks From the Emmy Awards**\
+`Vote for your favorite looks.`\
+https://www.nytimes.com/interactive/2026/09/14/style/emmys-best-dressed-vote.html
+
+**Alex Saab, Venezuelan Tied to Maduro, Pleads Guilty in Florida**\
+`Alex Saab, a former official in Venezuela and longtime ally of its deposed leader, Nicolás Maduro, agreed to cooperate with investigators.`\
+https://www.nytimes.com/2026/09/14/us/alex-saab-maduro-money-laundering-plea.html
+
 **U.S. Imposes Sanctions on Russia’s VTB Bank Over Ties to Iran**\
 `The move, which targeted a bank that is already under U.S. sanctions, was part of the Trump administration’s Operation Economic Outcast initiative.`\
 https://www.nytimes.com/2026/09/14/business/us-sanctions-russia-vtb-bank-iran.html

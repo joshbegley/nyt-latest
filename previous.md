@@ -1,3 +1,11 @@
+**Matthew Rhys Achieves a Historic Emmys Trifecta**\
+`The Welsh actor became the first in the awards show’s history to win lead acting prizes in the drama, comedy and limited series fields.`\
+https://www.nytimes.com/2026/09/14/arts/television/matthew-rhys-emmys-widows-bay-the-beast-in-me.html
+
+**Vote for Your Favorite (and Least Favorite) Looks From the Emmy Awards**\
+`Vote for your favorite looks.`\
+https://www.nytimes.com/interactive/2026/09/14/style/emmys-best-dressed-vote.html
+
 **Trump’s Effort to Assert Control Over Elections Continues Despite Supreme Court Loss**\
 `President Trump has launched a broad, governmentwide effort to take more control of state-run elections and sow doubt about the outcome.`\
 https://www.nytimes.com/2026/09/14/us/politics/supreme-court-trump-mail-in-ballots.html
@@ -122,8 +130,8 @@ https://www.nytimes.com/2026/09/14/style/emmys-red-carpet-photos.html
 `The Council of Fashion Designers of America said its chief executive, Steve Kolb, would be placed on leave “pending a full review” of an incident at the Cos fashion show.`\
 https://www.nytimes.com/2026/09/14/style/steve-kolb-cfda-leave.html
 
-**Maduro Ally Is Expected to Plead Guilty in Federal Money Laundering Case**\
-`Alex Saab, a former high-ranking government official in Venezuela, could potentially cooperate against Mr. Maduro, who is awaiting trial in New York.`\
+**Alex Saab, Venezuelan Tied to Maduro, Pleads Guilty in Florida**\
+`Alex Saab, a former official in Venezuela and longtime ally of its deposed leader, Nicolás Maduro, agreed to cooperate with investigators.`\
 https://www.nytimes.com/2026/09/14/us/alex-saab-maduro-money-laundering-plea.html
 
 **‘Widow’s Bay’ Dominates, and 7 Other Takeaways From the 2026 Emmys**\
@@ -177,12 +185,4 @@ https://www.nytimes.com/2026/09/14/us/politics/donald-trump-jr-wedding-russian-b
 **The Local: Flock, fraud and football**\
 `Plus, a Twin Cities travel quiz.`\
 https://www.nytimes.com/2026/09/14/briefing/the-local-flock-fraud-and-football.html
-
-**Bob Mackie: A Life in Pictures**\
-`The designer was known for his flashy, sparkly designs for Cher, Diana Ross, Tina Turner and countless others.`\
-https://www.nytimes.com/2026/09/14/style/bob-mackie-designer-photos.html
-
-**British Man Pleads Guilty to Drugging and Raping Wife Over 20 Years**\
-`The police said that a dozen other men conspired with the husband, who is in his 60s, to abuse the woman in northern England.`\
-https://www.nytimes.com/2026/09/14/world/europe/uk-man-wife-drugging-rape-confession.html
 
