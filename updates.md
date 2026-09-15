@@ -1,3 +1,11 @@
+**Matthew Rhys Achieves a Historic Emmys Trifecta**\
+`The Welsh actor became the first in the awards show’s history to win lead acting prizes in the drama, comedy and limited series fields.`\
+https://www.nytimes.com/2026/09/14/arts/television/matthew-rhys-emmys-widows-bay-the-beast-in-me.html
+
+**Emmy Awards Live Updates: Matthew Rhys Wins Two Lead Acting Awards**\
+`Honored for “The Beast in Me” and “Widow’s Bay,” Rhys is the first actor to win lead acting Emmys in a drama, comedy and limited series. Allison Janney of “The Diplomat” and Jean Smart of “Hacks” also each won their eighth Emmy, tying a record.`\
+https://www.nytimes.com/live/2026/09/14/arts/emmy-awards-2026
+
 **These Kinds of Moments Make Us Love Restaurants**\
 `Here are nine fleeting moments that made scouting the 50 best restaurants of 2026 memorable and meaningful.`\
 https://www.nytimes.com/2026/09/14/dining/restaurant-moments.html

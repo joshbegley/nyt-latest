@@ -1,3 +1,7 @@
+**Matthew Rhys Achieves a Historic Emmys Trifecta**\
+`The Welsh actor became the first in the awards show’s history to win lead acting prizes in the drama, comedy and limited series fields.`\
+https://www.nytimes.com/2026/09/14/arts/television/matthew-rhys-emmys-widows-bay-the-beast-in-me.html
+
 **Vote for Your Favorite (and Least Favorite) Looks From the Emmy Awards**\
 `Vote for your favorite looks.`\
 https://www.nytimes.com/interactive/2026/09/14/style/emmys-best-dressed-vote.html
@@ -130,8 +134,8 @@ https://www.nytimes.com/2026/09/14/style/steve-kolb-cfda-leave.html
 `Alex Saab, a former high-ranking government official in Venezuela, could potentially cooperate against Mr. Maduro, who is awaiting trial in New York.`\
 https://www.nytimes.com/2026/09/14/us/alex-saab-maduro-money-laundering-plea.html
 
-**Emmy Awards Live Updates: Noah Wyle Repeats Win for Best Actor in a Drama for ‘The Pitt’**\
-`Allison Janney of “The Diplomat” and Jean Smart of “Hacks” each won their eighth Emmy, tying a record. Tom Pelphrey won his first for “Task.” Other winners included Rhea Seehorn, Kate O’Flynn and Stephen Root.`\
+**Emmy Awards Live Updates: Matthew Rhys Wins Two Lead Acting Awards**\
+`Honored for “The Beast in Me” and “Widow’s Bay,” Rhys is the first actor to win lead acting Emmys in a drama, comedy and limited series. Allison Janney of “The Diplomat” and Jean Smart of “Hacks” also each won their eighth Emmy, tying a record.`\
 https://www.nytimes.com/live/2026/09/14/arts/emmy-awards-2026
 
 **‘NAZA’, un documental israelí, recibe ovaciones en el extranjero y rechazo en Israel**\
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/09/14/us/politics/donald-trump-jr-wedding-russian-b
 **The Local: Flock, fraud and football**\
 `Plus, a Twin Cities travel quiz.`\
 https://www.nytimes.com/2026/09/14/briefing/the-local-flock-fraud-and-football.html
-
-**Bob Mackie: A Life in Pictures**\
-`The designer was known for his flashy, sparkly designs for Cher, Diana Ross, Tina Turner and countless others.`\
-https://www.nytimes.com/2026/09/14/style/bob-mackie-designer-photos.html
 
