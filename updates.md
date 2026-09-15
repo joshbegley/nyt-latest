@@ -1,3 +1,99 @@
+**Judge Blocks Trump Rule Aimed at International Students and Journalists**\
+`Judge F. Dennis Saylor IV wrote that the administration’s reasons for a rule limiting the length of stay for academics and journalists were “exceptionally weak.”`\
+https://www.nytimes.com/2026/09/14/us/politics/foreign-students-visas-trump-ruling.html
+
+**Supreme Court Blocks Trump Administration Plan to Screen Mail-In Ballots**\
+`The Trump administration had asked the justices to allow a new Postal Service plan to screen ballots just weeks before the midterm elections.`\
+https://www.nytimes.com/2026/09/14/us/politics/supreme-court-trump-mail-voting.html
+
+**These Kinds of Moments Make Us Love Restaurants**\
+`Here are nine fleeting moments that made scouting the 50 best restaurants of 2026 memorable and meaningful.`\
+https://www.nytimes.com/2026/09/14/dining/restaurant-moments.html
+
+**The Dining Trends Chefs Are Seeing in 2026**\
+`A dozen of the chef’s from the 2026 edition of our 50 favorite restaurants list talk GLP-1s, diner drinking habits, A.I. and more.`\
+https://www.nytimes.com/2026/09/14/dining/chefs-dining-beverage-trends.html
+
+**Emmy Winners 2026: See the Full List**\
+`Here are the winners from the 78th Emmy Awards, which took place Monday night.`\
+https://www.nytimes.com/2026/09/14/arts/television/emmy-winners-list.html
+
+**N.Y. Democratic House Candidate Admits to Bondage Photo Shoot**\
+`Christopher Gallant, who is running against Representative Nick LaLota on Long Island, acknowledged that the photos that surfaced in media reports on Monday were legitimate.`\
+https://www.nytimes.com/2026/09/14/nyregion/gallant-bondage-photos-democrat.html
+
+**Safety Alert System Returns for New York City Private Schools**\
+`Silenced ahead of the World Cup, an emergency notification system for private and parochial schools will launch Tuesday as part of Notify NYC.`\
+https://www.nytimes.com/2026/09/14/nyregion/nyc-private-school-safety-alert-system.html
+
+**Alex Saab, aliado de Maduro, podría declararse culpable de lavado de dinero en EE. UU.**\
+`Como parte de un acuerdo de culpabilidad, Saab podría potencialmente cooperar contra Nicolás Maduro.`\
+https://www.nytimes.com/es/2026/09/14/espanol/estados-unidos/alex-saab-cargos-maduro.html
+
+**Why is JD Vance Campaigning in Kansas, a Red State?**\
+`Why is JD Vance campaigning in a red state?`\
+https://www.nytimes.com/2026/09/14/us/politics/jd-vance-kansas-campaign-midterms.html
+
+**Un empresario ruso financió la tornaboda de Donald Trump Jr.**\
+`Los pagos, que suman cientos de miles de dólares, representaron un extraordinario desprecio por las normas éticas para un familiar de un presidente estadounidense.`\
+https://www.nytimes.com/es/2026/09/14/espanol/estados-unidos/empresario-ruso-boda-hijo-trump.html
+
+**Gavin Newsom Says He Won’t Run in 2028 if Kamala Harris Does**\
+`The comments made to CNN, if taken at face value, seemed to fly in the face of the California governor’s presidential ambitions.`\
+https://www.nytimes.com/2026/09/14/us/politics/gavin-newsom-kamala-harris-2028-president.html
+
+**Mitch McConnell Returns to Senate After Three Month Absence**\
+`Senator Mitch McConnell, the 84-year-old Kentucky Republican and former leader, had been absent for more than 13 weeks after a health incident, fueling questions about his ability to continue serving.`\
+https://www.nytimes.com/2026/09/14/us/politics/mcconnell-senate-absence.html
+
+**Bob Mackie, Cher and the Ultimate Revenge Dress**\
+`The designer’s bedazzling, feathered creations made waves onstage, including at the Oscars in 1986.`\
+https://www.nytimes.com/2026/09/14/style/bob-mackie-cher-tina-turner.html
+
+**Dario Amodei’s Essay Was Gutsy. It Didn’t Go Far Enough.**\
+`America’s A.I. bosses can do only so much on their own.`\
+https://www.nytimes.com/2026/09/14/opinion/ai-pause-anthropic-openai.html
+
+**Bedazzled Fashion Designer Bob Mackie Dies at 87**\
+`For over half a century, Bob Mackie added sparkles, sequins and feathers to his over-the-top costumes for some of show business’s biggest stars. He died on Monday in Palm Springs, Calif., at 87.`\
+https://www.nytimes.com/video/obituaries/100000011151524/costume-designer-bob-mackie-obituary.html
+
+**New York Seized Their Property. Now It’s Offering a $60 Million Payout.**\
+`The settlement resolves a 2019 lawsuit that argued that a city program intended to seize buildings from negligent landlords had stripped homeowners of their equity without proper compensation.`\
+https://www.nytimes.com/2026/09/14/nyregion/nyc-settlement-housing-property-owners.html
+
+**Trump Rejects Calls for an A.I. Slowdown**\
+`Also, the E.P.A. erases limits on climate pollution from power plants. Here’s the latest at the end of Monday.`\
+https://www.nytimes.com/2026/09/14/briefing/trump-ai-slowdown-epa-pollution.html
+
+**As A.I. Fears Rise, Experts Suggest Focusing on the Humans in Charge**\
+`Warnings from industry leaders about doomsday scenarios ignore the power that people have to control how artificial intelligence is used, policy experts say. They are urging lawmakers to act now.`\
+https://www.nytimes.com/2026/09/14/us/ai-fears-human-role.html
+
+**Do You Have Questions About A.I.? We Want to Answer Them.**\
+`The New York Times is soliciting readers’ questions about the dangers — and benefits — posed by artificial intelligence.`\
+https://www.nytimes.com/2026/09/14/science/ai-questions-callout.html
+
+**Emmys Red Carpet Photos: Meg Stalter, Mariska Hargitay, Noah Wyle and More**\
+`Stars are arriving at the 78th Emmy Awards in Los Angeles. See what they’re wearing to celebrate TV’s biggest night.`\
+https://www.nytimes.com/2026/09/14/style/emmys-red-carpet-photos.html
+
+**Steve Kolb, Head of C.F.D.A., Placed on Leave After PETA Protester Confrontation**\
+`The Council of Fashion Designers of America said its chief executive, Steve Kolb, would be placed on leave “pending a full review” of an incident at the Cos fashion show.`\
+https://www.nytimes.com/2026/09/14/style/steve-kolb-cfda-leave.html
+
+**Maduro Ally Is Expected to Plead Guilty in Federal Money Laundering Case**\
+`Alex Saab, a former high-ranking government official in Venezuela, could potentially cooperate against Mr. Maduro, who is awaiting trial in New York.`\
+https://www.nytimes.com/2026/09/14/us/alex-saab-maduro-money-laundering-plea.html
+
+**‘Widow’s Bay’ Dominates, and 7 Other Takeaways From the 2026 Emmys**\
+`The Apple TV horror-comedy about a haunted island took home 14 Emmys, including the awards for best comedy, lead actor, writing, directing and supporting actor and actress.`\
+https://www.nytimes.com/2026/09/14/arts/television/widows-bay-the-pitt-emmys-awards.html
+
+**Emmy Awards Live Updates: ‘Widow’s Bay’ Wins Best Comedy, Leading Apple TV to Big Night**\
+`Apple TV won the most Emmys for the first time, including 14 for the horror-comedy. “The Pitt” won best drama for the second year in a row, while Matthew Rhys, Jean Smart and Allison Janney entered the record books.`\
+https://www.nytimes.com/live/2026/09/14/arts/emmy-awards-2026
+
 **An Armadillo Arrives in … Ohio?**\
 `Traditionally found in warm climates, like the American Southwest, armadillos have been migrating farther and farther north, researchers say.`\
 https://www.nytimes.com/2026/09/14/us/armadillo-ohio.html
