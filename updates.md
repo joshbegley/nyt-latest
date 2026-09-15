@@ -1,3 +1,15 @@
+**Have Thoughts on the Emmy’s Red Carpet? Join Our Readers in the Comments.**\
+`Television’s biggest stars have walked the carpet. Now that you’ve seen what everyone is wearing and voted for your favorite looks, we invite you to comment on a few of the styles.`\
+https://www.nytimes.com/2026/09/14/style/emmys-red-carpet-reader-comments.html
+
+**Widow’s Bay’ Dominates the Emmy Comedy Category**\
+`The Apple TV show has displaced past winners and favorites to win most of the comedy Emmys so far on Monday night. How’s that for haunted?`\
+https://www.nytimes.com/2026/09/14/arts/television/widows-bay-emmy-best-comedy.html
+
+**NYT Crossword Answers for Sept. 15, 2026**\
+`Just call Nate Cardin “Mr. Crossword.”`\
+https://www.nytimes.com/2026/09/14/crosswords/daily-puzzle-2026-09-15.html
+
 **Candid Photos From the 2026 Emmys**\
 `Candid moments with Jean Smart, Meg Stalter, Rachel Sennott, Matthew Rhys and more.`\
 https://www.nytimes.com/2026/09/14/arts/television/emmys-candid-photos.html
