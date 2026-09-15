@@ -1,3 +1,7 @@
+**‘The Late Show With Stephen Colbert’ Goes Out With an Emmy Win**\
+`For its final season, the series won an overhauled variety category in which any or all of the nominees could have claimed an Emmy Award.`\
+https://www.nytimes.com/2026/09/14/arts/television/the-late-show-stephen-colbert-emmy-.html
+
 **Two Conservative Justices Would Have Allowed Trump’s Mail-In Ballot Rules**\
 `Justice Samuel A. Alito Jr., joined by Justice Clarence Thomas, called the challenge to the restrictions a “Hail Mary pass” that was unlikely to prevail because of the Postal Service’s broad authority to regulate the mail.`\
 https://www.nytimes.com/2026/09/14/us/elections/supreme-court-alito-thomas-dissent.html
@@ -138,8 +142,8 @@ https://www.nytimes.com/2026/09/14/style/steve-kolb-cfda-leave.html
 `Alex Saab, a former high-ranking government official in Venezuela, could potentially cooperate against Mr. Maduro, who is awaiting trial in New York.`\
 https://www.nytimes.com/2026/09/14/us/alex-saab-maduro-money-laundering-plea.html
 
-**Emmy Awards Live Updates: Matthew Rhys Wins Two Lead Acting Awards**\
-`Honored for “The Beast in Me” and “Widow’s Bay,” Rhys is the first actor to win lead acting Emmys in a drama, comedy and limited series. Allison Janney of “The Diplomat” and Jean Smart of “Hacks” also each won their eighth Emmy, tying a record.`\
+**Emmy Awards Live Updates: ‘The Late Show With Stephen Colbert’ Wins for Best Variety Series**\
+`Matthew Rhys, honored for “The Beast in Me” and “Widow’s Bay,” is the first actor to win lead acting Emmys in a drama, comedy and limited series.`\
 https://www.nytimes.com/live/2026/09/14/arts/emmy-awards-2026
 
 **‘NAZA’, un documental israelí, recibe ovaciones en el extranjero y rechazo en Israel**\
@@ -177,8 +181,4 @@ https://www.nytimes.com/es/2026/09/14/espanol/mundo/ataques-iran-arabia-saudita-
 **Half-Marathoners in New Jersey Wade Through Flooded Course**\
 `Harrowing social media videos showed runners navigating chest-high waters after a drenching rainstorm on Sunday.`\
 https://www.nytimes.com/2026/09/14/nyregion/half-marathon-new-jersey-flooding.html
-
-**Russian Businessman With Putin Ties Paid for Donald Trump Jr.’s Wedding Party**\
-`The payments, totaling hundreds of thousands of dollars, represented an extraordinary flouting of ethical norms for an American president’s family member.`\
-https://www.nytimes.com/2026/09/14/us/politics/donald-trump-jr-wedding-russian-businessman.html
 
