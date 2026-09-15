@@ -143,7 +143,7 @@ https://www.nytimes.com/2026/09/14/style/steve-kolb-cfda-leave.html
 https://www.nytimes.com/2026/09/14/us/alex-saab-maduro-money-laundering-plea.html
 
 **Emmy Awards Live Updates: ‘The Late Show With Stephen Colbert’ Wins for Best Variety Series**\
-`Matthew Rhys, honored for “The Beast in Me” and “Widow’s Bay,” is the first actor to win lead acting Emmys in a drama, comedy and limited series.`\
+`The show ended this year after CBS canceled it. Matthew Rhys, honored for “The Beast in Me” and “Widow’s Bay,” is now the first actor to win lead acting Emmys in a drama, comedy and limited series.`\
 https://www.nytimes.com/live/2026/09/14/arts/emmy-awards-2026
 
 **‘NAZA’, un documental israelí, recibe ovaciones en el extranjero y rechazo en Israel**\
