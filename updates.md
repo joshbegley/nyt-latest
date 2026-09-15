@@ -1,3 +1,11 @@
+**Jean Smart Makes Emmy History**\
+`An award for the final season of “Hacks” makes Smart one of the most prolific Emmy-winning actresses in history.`\
+https://www.nytimes.com/2026/09/14/arts/television/jean-smart-hacks-emmys-history.html
+
+**Emmy Awards Live Updates: Jean Smart Wins Her 8th Emmy, Tying a Record**\
+`The actress won for her work in ”Hacks.” Kate O’Flynn won best supporting actress in a comedy for “Widow’s Bay,” and Mariska Hargitay opened the ceremony with a tribute to television.`\
+https://www.nytimes.com/live/2026/09/14/arts/emmy-awards-2026
+
 **They Could Afford to Stand Up to Trump. Why Didn’t They?**\
 `The more the logic of capitalism pervades the rest of life, the less room there is for compassion, honor or heroism.`\
 https://www.nytimes.com/2026/09/14/opinion/institutions-power-trump.html

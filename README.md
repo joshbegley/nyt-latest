@@ -1,4 +1,8 @@
-**Jean Smart Makes Emmy History**\
+**Mariska Hargitay Opens 2026 Emmys With a Musical Tribute to TV**\
+`The hosting gig comes as a part of a big year for the actress that has included two Emmys for her documentary about her mother, Jayne Mansfield.`\
+https://www.nytimes.com/2026/09/14/arts/television/mariska-hargitay-emmys-monologue.html
+
+**Jean Smart Makes Emmy History With Her Eighth Win**\
 `An award for the final season of “Hacks” makes Smart one of the most prolific Emmy-winning actresses in history.`\
 https://www.nytimes.com/2026/09/14/arts/television/jean-smart-hacks-emmys-history.html
 
@@ -103,7 +107,7 @@ https://www.nytimes.com/2026/09/14/style/steve-kolb-cfda-leave.html
 https://www.nytimes.com/2026/09/14/us/alex-saab-maduro-money-laundering-plea.html
 
 **Emmy Awards Live Updates: Jean Smart Wins Her 8th Emmy, Tying a Record**\
-`The actress won for her work in ”Hacks.” Kate O’Flynn won best supporting actress in a comedy for “Widow’s Bay,” and Mariska Hargitay opened the ceremony with a tribute to television.`\
+`The actress won for her work in “Hacks.” Kate O’Flynn won best supporting actress in a comedy for “Widow’s Bay,” and Mariska Hargitay opened the ceremony with a tribute to television.`\
 https://www.nytimes.com/live/2026/09/14/arts/emmy-awards-2026
 
 **‘NAZA’, un documental israelí, recibe ovaciones en el extranjero y rechazo en Israel**\
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/09/14/opinion/national-debt-trump.html
 **Macklemore Dropped From Ed Sheeran Tour After ‘Free Palestine’ Remarks**\
 `The rapper, a critic of the war in Gaza, made the comments onstage at MetLife Stadium.`\
 https://www.nytimes.com/2026/09/14/arts/music/macklemore-ed-sheeran-tour-palestine-gaza.html
-
-**Ex-Anthropic Employee on How A.I. Could Threaten Humanity**\
-`The A.I. researcher who quit Anthropic joins Natalie Kitroeff on “The Daily” to discuss how A.I. would actually pose an existential risk to human life.`\
-https://www.nytimes.com/video/podcasts/the-daily/100000011151420/ex-anthropic-employee-on-how-ai-could-threaten-humanity.html
 
