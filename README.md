@@ -1,3 +1,7 @@
+**Jean Smart Makes Emmy History**\
+`An award for the final season of “Hacks” makes Smart one of the most prolific Emmy-winning actresses in history.`\
+https://www.nytimes.com/2026/09/14/arts/television/jean-smart-hacks-emmys-history.html
+
 **They Could Afford to Stand Up to Trump. Why Didn’t They?**\
 `The more the logic of capitalism pervades the rest of life, the less room there is for compassion, honor or heroism.`\
 https://www.nytimes.com/2026/09/14/opinion/institutions-power-trump.html
@@ -98,8 +102,8 @@ https://www.nytimes.com/2026/09/14/style/steve-kolb-cfda-leave.html
 `Alex Saab, a former high-ranking government official in Venezuela, could potentially cooperate against Mr. Maduro, who is awaiting trial in New York.`\
 https://www.nytimes.com/2026/09/14/us/alex-saab-maduro-money-laundering-plea.html
 
-**Emmy Awards Live Updates: Mariska Hargitay Opens Ceremony With an Ode to the Small Screen**\
-`Television’s biggest night is underway in Los Angeles, where “The Pitt” is favored to win best drama, and “Hacks” and “Widow’s Bay” are battling for best comedy.`\
+**Emmy Awards Live Updates: Jean Smart Wins Her 8th Emmy, Tying a Record**\
+`The actress won for her work in ”Hacks.” Kate O’Flynn won best supporting actress in a comedy for “Widow’s Bay,” and Mariska Hargitay opened the ceremony with a tribute to television.`\
 https://www.nytimes.com/live/2026/09/14/arts/emmy-awards-2026
 
 **‘NAZA’, un documental israelí, recibe ovaciones en el extranjero y rechazo en Israel**\
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/09/14/arts/music/macklemore-ed-sheeran-tour-palesti
 **Ex-Anthropic Employee on How A.I. Could Threaten Humanity**\
 `The A.I. researcher who quit Anthropic joins Natalie Kitroeff on “The Daily” to discuss how A.I. would actually pose an existential risk to human life.`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011151420/ex-anthropic-employee-on-how-ai-could-threaten-humanity.html
-
-**Ex-Anthropic Employee: Here’s Why A.I. Might Want to Kill Us**\
-`The A.I. researcher who quit Anthropic joins Natalie Kitroeff on “The Daily” to discuss why A.I. systems might eventually become “anti-human.”`\
-https://www.nytimes.com/video/podcasts/the-daily/100000011151434/ex-anthropic-employee-heres-why-ai-might-want-to-kill-us.html
 
