@@ -1,3 +1,7 @@
+**Emmy Awards Live Updates: Noah Wyle Repeats Win for Best Actor in a Drama for ‘The Pitt’**\
+`Allison Janney of “The Diplomat” and Jean Smart of “Hacks” each won their eighth Emmy, tying a record. Rhea Seehorn, Kate O’Flynn and Stephen Root were among the other winners.`\
+https://www.nytimes.com/live/2026/09/14/arts/emmy-awards-2026
+
 **Trump’s Effort to Assert Control Over Elections Continues, Despite Court Loss**\
 `President Trump has launched a broad, governmentwide effort to take more control of state-run elections and sow doubt about the outcome.`\
 https://www.nytimes.com/2026/09/14/us/politics/supreme-court-trump-mail-in-ballots.html
