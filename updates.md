@@ -1,3 +1,7 @@
+**Emmy Awards Winners 2026: See the Full List**\
+`Here are the winners from the 78th Emmy Awards.`\
+https://www.nytimes.com/2026/09/14/arts/television/emmy-winners-list.html
+
 **U.S. Imposes Sanctions on Russia’s VTB Bank Over Ties to Iran**\
 `The move, which targeted a bank that is already under U.S. sanctions, was part of the Trump administration’s Operation Economic Outcast initiative.`\
 https://www.nytimes.com/2026/09/14/business/us-sanctions-russia-vtb-bank-iran.html

@@ -70,7 +70,7 @@ https://www.nytimes.com/2026/09/14/dining/restaurant-moments.html
 `A dozen of the chefs from the 2026 edition of our 50 favorite restaurants list talk GLP-1s, diner drinking habits, A.I. and more.`\
 https://www.nytimes.com/2026/09/14/dining/chefs-dining-beverage-trends.html
 
-**Emmy Winners 2026: See the Full List**\
+**Emmy Awards Winners 2026: See the Full List**\
 `Here are the winners from the 78th Emmy Awards.`\
 https://www.nytimes.com/2026/09/14/arts/television/emmy-winners-list.html
 
