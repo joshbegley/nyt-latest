@@ -2,9 +2,9 @@
 `Judge F. Dennis Saylor IV wrote that the administration’s reasons for a rule limiting the length of stay for academics and journalists were “exceptionally weak.”`\
 https://www.nytimes.com/2026/09/14/us/politics/foreign-students-visas-trump-ruling.html
 
-**Live Updates: Supreme Court Rejects Trump’s Restrictions on Mail Voting**\
-`The ruling blocks the Trump administration from dramatically changing how Americans vote by mail in the midterm elections.`\
-https://www.nytimes.com/live/2026/09/14/us/supreme-court-mail-voting-trump
+**Supreme Court Blocks Trump Administration Plan to Screen Mail-In Ballots**\
+`The Trump administration had asked the justices to allow a new Postal Service plan to screen ballots just weeks before the midterm elections.`\
+https://www.nytimes.com/2026/09/14/us/politics/supreme-court-trump-mail-voting.html
 
 **These Kinds of Moments Make Us Love Restaurants**\
 `TK`\
