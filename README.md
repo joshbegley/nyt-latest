@@ -1,3 +1,11 @@
+**Trump’s Effort to Assert Control Over Elections Continues, Despite Court Loss**\
+`President Trump has launched a broad, governmentwide effort to take more control of state-run elections and sow doubt about the outcome.`\
+https://www.nytimes.com/2026/09/14/us/politics/supreme-court-trump-mail-in-ballots.html
+
+**Elections Officials Breathe Sigh of Relief Following Court Ruling on Mail Ballots**\
+`Officials cheered the order blocking President Trump’s last-minute effort to change the rules on mail ballots, noting that some states had already mailed ballots.`\
+https://www.nytimes.com/2026/09/14/us/elections/mail-ballot-ruling-reaction.html
+
 **Sydney Sweeney Sports Betting Ad Sparks Backlash From Athletes**\
 `A nude campaign for a sports betting app drew strong responses. Was it all strategic?`\
 https://www.nytimes.com/2026/09/14/style/sydney-sweeney-sports-ad-novig.html
@@ -173,12 +181,4 @@ https://www.nytimes.com/2026/09/14/style/bob-mackie-designer-photos.html
 **British Man Pleads Guilty to Drugging and Raping Wife Over 20 Years**\
 `The police said that a dozen other men conspired with the husband, who is in his 60s, to abuse the woman in northern England.`\
 https://www.nytimes.com/2026/09/14/world/europe/uk-man-wife-drugging-rape-confession.html
-
-**Abbott to Pay $385 Million to Settle Baby Formula Safety Allegations**\
-`The company recalled formulas manufactured at a Michigan plant in 2022, after health officials linked them to serious illnesses in babies.`\
-https://www.nytimes.com/2026/09/14/well/abbott-settlement-infant-formula.html
-
-**What Is Driving Diesel Prices Up? Energy Chaos Caused by Two Wars.**\
-`President Trump recently blamed Ukrainian attacks on Russian refineries for causing a spike in diesel prices, but analysts say the Iran war is probably a bigger factor.`\
-https://www.nytimes.com/2026/09/14/business/energy-environment/trump-diesel-russia-ukraine-iran.html
 
