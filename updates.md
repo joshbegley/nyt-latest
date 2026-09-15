@@ -1,3 +1,75 @@
+**Abbott to Pay $385 Million to Settle Baby Formula Safety Allegations**\
+`The company recalled formulas manufactured at a Michigan plant in 2022, after health officials linked them to serious illnesses in babies.`\
+https://www.nytimes.com/2026/09/14/well/abbott-settlement-infant-formula.html
+
+**What Is Driving Diesel Prices Up? Energy Chaos Caused by Two Wars.**\
+`President Trump recently blamed Ukrainian attacks on Russian refineries for causing a spike in diesel prices, but analysts say the Iran war is probably a bigger factor.`\
+https://www.nytimes.com/2026/09/14/business/energy-environment/trump-diesel-russia-ukraine-iran.html
+
+**Macklemore Dropped From Ed Sheeran’s Tour After Palestine Comments**\
+`The rapper Macklemore was dropped as an opening act from Ed Sheeran’s tour after saying “Free Palestine” onstage.`\
+https://www.nytimes.com/video/us/100000011151467/macklemore-dropped-ed-sheeran-tour-palestine.html
+
+**The National Debt Never Scared Me. It Scares Me.**\
+`It’s too big to ignore. And it could all end badly.`\
+https://www.nytimes.com/2026/09/14/opinion/national-debt-trump.html
+
+**Macklemore Dropped From Ed Sheeran Tour After ‘Free Palestine’ Remarks**\
+`The rapper, a critic of the war in Gaza, made the comments onstage at MetLife Stadium.`\
+https://www.nytimes.com/2026/09/14/arts/music/macklemore-ed-sheeran-tour-palestine-gaza.html
+
+**Ex-Anthropic Employee on How A.I. Could Threaten Humanity**\
+`The A.I. researcher who quit Anthropic joins Natalie Kitroeff on “The Daily” to discuss how A.I. would actually pose an existential risk to human life.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011151420/ex-anthropic-employee-on-how-ai-could-threaten-humanity.html
+
+**Ex-Anthropic Employee: Here’s Why A.I. Might Want to Kill Us**\
+`The A.I. researcher who quit Anthropic joins Natalie Kitroeff on “The Daily” to discuss why A.I. systems might eventually become “anti-human.”`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011151434/ex-anthropic-employee-heres-why-ai-might-want-to-kill-us.html
+
+**An Armadillo Arrives in … Ohio?**\
+`Traditionally found in warm climates, like the American Southwest, armadillos have been migrating farther and farther north, researchers say.`\
+https://www.nytimes.com/2026/09/14/us/armadillo-ohio.html
+
+**Why Is D.H.S. Getting Involved in Elections?**\
+`The Department of Homeland Security is in the midst of a weeks-long hunt for noncitizens among the nation’s registered voters despite the absence of evidence of widespread fraud. Reporter Hamed Aleaziz breaks down how a D.H.S. agency is using open-source state voter registration websites in their search for voter fraud.`\
+https://www.nytimes.com/video/us/politics/100000011133700/why-is-dhs-getting-involved-in-elections.html
+
+**Trump dice que para controlar la IA solo se necesita un presidente inteligente**\
+`El presidente de Estados Unidos intervino en el debate sobre cómo manejar una tecnología en rápida evolución que, según investigadores y líderes de la industria, plantea grandes riesgos.`\
+https://www.nytimes.com/es/2026/09/14/espanol/estados-unidos/trump-ia-anthropic.html
+
+**Los altos mandos del Pentágono enfrentan la agitación bajo el mando de Hegseth**\
+`Las distracciones persistentes han creado un clima de desconfianza a medida que las fuerzas armadas de EE. UU. enfrentan una serie de problemas en tiempos de guerra.`\
+https://www.nytimes.com/es/2026/09/14/espanol/estados-unidos/pentagono-secretario-defensa-crisis.html
+
+**Whistle-Blower: Federal Agents May Have Broken State Laws in Search For Voter Fraud**\
+`Agents expressed concern about being directed by top Homeland Security leaders to use private information to look up voter records in state databases.`\
+https://www.nytimes.com/2026/09/14/us/politics/homeland-security-voter-fraud-investigation.html
+
+**Tens of Thousands Displaced as Houthis Advance Along Yemen’s Coast**\
+`Recent fighting between the Iran-backed Houthi rebels and Saudi-backed Yemeni government forces has displaced tens of thousands of families to camps in government-held areas.`\
+https://www.nytimes.com/video/world/middleeast/100000011150589/tens-of-thousands-displaced-as-houthis-advance-along-yemens-coast.html
+
+**Syrians Protest as Surge in Fuel Prices Adds to Cost-of-Living Crisis**\
+`The government’s decision to increase prices as much as 40 percent spurred widespread demonstrations across the country.`\
+https://www.nytimes.com/2026/09/14/world/middleeast/syrians-protest-fuel-price-rises.html
+
+**‘NAZA,’ Israeli Film About Killings in Gaza, Faces Backlash**\
+`The film “NAZA” investigates the killing of Palestinians by Israeli forces in Gaza. Israel’s culture minister has suggested revoking the directors’ citizenship.`\
+https://www.nytimes.com/2026/09/14/world/middleeast/israel-naza-documentary-backlash.html
+
+**A Wynton Marsalis Symphony Sees the Potential in America**\
+`This famed trumpeter and composer premiered his Fifth Symphony, “Liberty,” which blends a jazz ensemble and a traditional orchestra.`\
+https://www.nytimes.com/2026/09/14/arts/music/wynton-marsalis-liberty-symphony.html
+
+**China advierte de los peligros de la IA para el Partido Comunista**\
+`Aun cuando Pekín insta a EE. UU. a no exagerar los peligros de la IA, su propio jefe de espionaje presenta la tecnología como una amenaza para la seguridad del Partido Comunista.`\
+https://www.nytimes.com/es/2026/09/14/espanol/mundo/china-ia-espionaje-riesgo-partido.html
+
+**Vance Campaigns in Kansas as Democrats Target a Republican Stronghold**\
+`Vice President JD Vance is beginning a key final stretch of midterm campaigning by dropping in on the Senate race in Kansas, where Republicans were long seen as heavily favored.`\
+https://www.nytimes.com/2026/09/14/us/politics/jd-vance-kansas-senate-race.html
+
 **Trump’s Effort to Assert Control Over Elections Continues Despite Supreme Court Loss**\
 `President Trump has launched a broad, governmentwide effort to take more control of state-run elections and sow doubt about the outcome.`\
 https://www.nytimes.com/2026/09/14/us/politics/supreme-court-trump-mail-in-ballots.html
