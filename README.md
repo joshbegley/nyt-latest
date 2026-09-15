@@ -1,3 +1,11 @@
+**Have Thoughts on the Emmy’s Red Carpet? Join Our Readers in the Comments.**\
+`Television’s biggest stars have walked the carpet. Now that you’ve seen what everyone is wearing and voted for your favorite looks, we invite you to comment on a few of the styles.`\
+https://www.nytimes.com/2026/09/14/style/emmys-red-carpet-reader-comments.html
+
+**Widow’s Bay’ Dominates the Emmy Comedy Category**\
+`The Apple TV show has displaced past winners and favorites to win most of the comedy Emmys so far on Monday night. How’s that for haunted?`\
+https://www.nytimes.com/2026/09/14/arts/television/widows-bay-emmy-best-comedy.html
+
 **NYT Crossword Answers for Sept. 15, 2026**\
 `Just call Nate Cardin “Mr. Crossword.”`\
 https://www.nytimes.com/2026/09/14/crosswords/daily-puzzle-2026-09-15.html
@@ -169,12 +177,4 @@ https://www.nytimes.com/video/world/middleeast/100000011151166/syria-protest-fue
 **What Do the Houthis Want?**\
 `The Iranian-backed militia has made strategic gains, becoming an unlikely power player in the Middle East.`\
 https://www.nytimes.com/2026/09/14/world/houthis-saudi-iran-jeff-koons.html
-
-**U.S. Imposes Sanctions on Russia’s VTB Bank Over Ties to Iran**\
-`The move, which targeted a bank that is already under U.S. sanctions, was part of the Trump administration’s Operation Economic Outcast initiative.`\
-https://www.nytimes.com/2026/09/14/business/us-sanctions-russia-vtb-bank-iran.html
-
-**Political Figures From Bernie Sanders to Steve Bannon Sound Alarms on A.I.**\
-`The two men will appear separately at an event calling for a “pro-human” approach to A.I. as warnings mount from the industry and the technology’s danger becomes a midterm issue.`\
-https://www.nytimes.com/2026/09/14/us/politics/bernie-sanders-steve-bannon-ai-regulation-midterm-candidates.html
 
