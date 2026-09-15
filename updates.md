@@ -1,3 +1,15 @@
+**Two Conservative Justices Would Have Allowed Trump’s Mail-In Ballot Rules**\
+`Justice Samuel A. Alito Jr., joined by Justice Clarence Thomas, called the challenge to the restrictions a “Hail Mary pass” that was unlikely to prevail because of the Postal Service’s broad authority to regulate the mail.`\
+https://www.nytimes.com/2026/09/14/us/elections/supreme-court-alito-thomas-dissent.html
+
+**Trump’s Effort to Assert Control Over Elections Continues, Despite Court Loss**\
+`President Trump has launched a broad, governmentwide effort to take more control of state-run elections and sow doubt about the outcome.`\
+https://www.nytimes.com/2026/09/14/us/politics/supreme-court-trump-mail-in-ballots.html
+
+**Emmy Awards Live Updates: ‘Pluribus’ Wins Acting and Writing Awards**\
+`Rhea Seehorn and Vince Gilligan both won for the drama on Apple TV. The streamer, relatively new to prestige television, will end the night with more Emmys than any other outlet, a first for the tech giant.`\
+https://www.nytimes.com/live/2026/09/14/arts/emmy-awards-2026
+
 **Reba McEntire Honors Dolly Parton With Rendition of ‘Appalachian Memories’**\
 `The beloved country music superstars shared a decades-long friendship.`\
 https://www.nytimes.com/2026/09/14/arts/television/dolly-parton-reba-mcentire-appalachian-memories.html
