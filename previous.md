@@ -1,3 +1,11 @@
+**Rhea Seehorn Wins Her First Emmy for ‘Pluribus’**\
+`After coming up short twice for “Better Call Saul,” her commanding role in Vince Gilligan’s Apple sci-fi drama put her over the top.`\
+https://www.nytimes.com/2026/09/14/arts/television/rhea-seehorn-first-emmy-pluribus.html
+
+**New York Moves Away from Regents Exams for High School Seniors**\
+`A state board authorized phasing out the tests, long viewed as a rite of passage for high school seniors, as a diploma requirement. What replaces them is an open question.`\
+https://www.nytimes.com/2026/09/14/nyregion/new-york-regents-exam-high-school-students.html
+
 **Mariska Hargitay Opens 2026 Emmys With a Musical Tribute to TV**\
 `The hosting gig comes as a part of a big year for the actress that has included two Emmys for her documentary about her mother, Jayne Mansfield.`\
 https://www.nytimes.com/2026/09/14/arts/television/mariska-hargitay-emmys-monologue.html
@@ -94,7 +102,7 @@ https://www.nytimes.com/2026/09/14/us/ai-fears-human-role.html
 `The New York Times is soliciting readers’ questions about the dangers — and benefits — posed by artificial intelligence.`\
 https://www.nytimes.com/2026/09/14/science/ai-questions-callout.html
 
-**Emmys Red Carpet Photos: Mariska Hargitay, Noah Wyle and More Stars**\
+**Emmys Red Carpet Photos: Meg Stalter, Mariska Hargitay, Noah Wyle and More**\
 `Stars are arriving at the 78th Emmy Awards in Los Angeles. See what they’re wearing to celebrate TV’s biggest night.`\
 https://www.nytimes.com/2026/09/14/style/emmys-red-carpet-photos.html
 
@@ -106,8 +114,8 @@ https://www.nytimes.com/2026/09/14/style/steve-kolb-cfda-leave.html
 `Alex Saab, a former high-ranking government official in Venezuela, could potentially cooperate against Mr. Maduro, who is awaiting trial in New York.`\
 https://www.nytimes.com/2026/09/14/us/alex-saab-maduro-money-laundering-plea.html
 
-**Emmy Awards Live Updates: Jean Smart Wins Her 8th Emmy, Tying a Record**\
-`The actress won for her work in “Hacks.” Kate O’Flynn won best supporting actress in a comedy for “Widow’s Bay,” and Mariska Hargitay opened the ceremony with a tribute to television.`\
+**Emmy Awards Live Updates: Jean Smart and Matthew Rhys Win Early Awards**\
+`Smart’s win for “Hacks” was her eighth Emmy, tying a record. Kate O’Flynn of  “Widow’s Bay” and Allison Janney of “The Diplomat” won supporting actress awards.`\
 https://www.nytimes.com/live/2026/09/14/arts/emmy-awards-2026
 
 **‘NAZA’, un documental israelí, recibe ovaciones en el extranjero y rechazo en Israel**\
@@ -173,12 +181,4 @@ https://www.nytimes.com/2026/09/14/business/energy-environment/trump-diesel-russ
 **Macklemore Dropped From Ed Sheeran’s Tour After Palestine Comments**\
 `The rapper Macklemore was dropped as an opening act from Ed Sheeran’s tour after saying “Free Palestine” onstage.`\
 https://www.nytimes.com/video/us/100000011151467/macklemore-dropped-ed-sheeran-tour-palestine.html
-
-**The National Debt Never Scared Me. It Scares Me.**\
-`It’s too big to ignore. And it could all end badly.`\
-https://www.nytimes.com/2026/09/14/opinion/national-debt-trump.html
-
-**Macklemore Dropped From Ed Sheeran Tour After ‘Free Palestine’ Remarks**\
-`The rapper, a critic of the war in Gaza, made the comments onstage at MetLife Stadium.`\
-https://www.nytimes.com/2026/09/14/arts/music/macklemore-ed-sheeran-tour-palestine-gaza.html
 

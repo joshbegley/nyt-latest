@@ -1,3 +1,19 @@
+**Rhea Seehorn Wins Her First Emmy for ‘Pluribus’**\
+`After coming up short twice for “Better Call Saul,” her commanding role in Vince Gilligan’s Apple sci-fi drama put her over the top.`\
+https://www.nytimes.com/2026/09/14/arts/television/rhea-seehorn-first-emmy-pluribus.html
+
+**New York Moves Away from Regents Exams for High School Seniors**\
+`A state board authorized phasing out the tests, long viewed as a rite of passage for high school seniors, as a diploma requirement. What replaces them is an open question.`\
+https://www.nytimes.com/2026/09/14/nyregion/new-york-regents-exam-high-school-students.html
+
+**Emmys Red Carpet Photos: Meg Stalter, Mariska Hargitay, Noah Wyle and More**\
+`Stars are arriving at the 78th Emmy Awards in Los Angeles. See what they’re wearing to celebrate TV’s biggest night.`\
+https://www.nytimes.com/2026/09/14/style/emmys-red-carpet-photos.html
+
+**Emmy Awards Live Updates: Jean Smart and Matthew Rhys Win Early Awards**\
+`Smart’s win for “Hacks” was her eighth Emmy, tying a record. Kate O’Flynn of  “Widow’s Bay” and Allison Janney of “The Diplomat” won supporting actress awards.`\
+https://www.nytimes.com/live/2026/09/14/arts/emmy-awards-2026
+
 **Mariska Hargitay Opens 2026 Emmys With a Musical Tribute to TV**\
 `The hosting gig comes as a part of a big year for the actress that has included two Emmys for her documentary about her mother, Jayne Mansfield.`\
 https://www.nytimes.com/2026/09/14/arts/television/mariska-hargitay-emmys-monologue.html
