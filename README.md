@@ -1,7 +1,3 @@
-**Candid Photos From the 2026 Emmys**\
-`Candid moments with Stephen Colbert, Megan Stalter, Rachel Sennott, Matthew Rhys and more.`\
-https://www.nytimes.com/2026/09/14/arts/television/emmys-candid-photos.html
-
 **‘The Late Show With Stephen Colbert’ Goes Out With an Emmy Win**\
 `For its final season, the series won an overhauled variety category in which any or all of the nominees could have claimed an Emmy Award.`\
 https://www.nytimes.com/2026/09/14/arts/television/the-late-show-stephen-colbert-emmy-.html
@@ -181,4 +177,8 @@ https://www.nytimes.com/2026/09/14/us/politics/bernie-sanders-steve-bannon-ai-re
 **A 9/11 Story of Grief and Love**\
 `Katherine Rosman of The Times explored the relationship of a young man and his grandmother, and how they wrestled with grief in very different ways.`\
 https://www.nytimes.com/2026/09/14/insider/september-11-grief.html
+
+**Arabia Saudita pierde opciones entre el desaire de Trump y los ataques de Irán**\
+`El reino se encuentra en un estado de conmoción estratégica tras ser atacado por un Irán envalentonado y no lograr obtener más apoyo militar estadounidense, dicen los analistas.`\
+https://www.nytimes.com/es/2026/09/14/espanol/mundo/ataques-iran-arabia-saudita-trump.html
 
