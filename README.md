@@ -1,3 +1,7 @@
+**Sydney Sweeney Sports Betting Ad Sparks Backlash From Athletes**\
+`A nude campaign for a sports betting app drew strong responses. Was it all strategic?`\
+https://www.nytimes.com/2026/09/14/style/sydney-sweeney-sports-ad-novig.html
+
 **Rhea Seehorn Wins Her First Emmy for ‘Pluribus’**\
 `After coming up short twice for “Better Call Saul,” her commanding role in Vince Gilligan’s Apple sci-fi drama put her over the top.`\
 https://www.nytimes.com/2026/09/14/arts/television/rhea-seehorn-first-emmy-pluribus.html
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/09/14/well/abbott-settlement-infant-formula.html
 **What Is Driving Diesel Prices Up? Energy Chaos Caused by Two Wars.**\
 `President Trump recently blamed Ukrainian attacks on Russian refineries for causing a spike in diesel prices, but analysts say the Iran war is probably a bigger factor.`\
 https://www.nytimes.com/2026/09/14/business/energy-environment/trump-diesel-russia-ukraine-iran.html
-
-**Macklemore Dropped From Ed Sheeran’s Tour After Palestine Comments**\
-`The rapper Macklemore was dropped as an opening act from Ed Sheeran’s tour after saying “Free Palestine” onstage.`\
-https://www.nytimes.com/video/us/100000011151467/macklemore-dropped-ed-sheeran-tour-palestine.html
 
