@@ -1,3 +1,19 @@
+**They Could Afford to Stand Up to Trump. Why Didn’t They?**\
+`The more the logic of capitalism pervades the rest of life, the less room there is for compassion, honor or heroism.`\
+https://www.nytimes.com/2026/09/14/opinion/institutions-power-trump.html
+
+**America’s Best Restaurants 2026**\
+`Our 50 favorite places in America right now.`\
+https://www.nytimes.com/interactive/2026/dining/best-restaurants-america.html
+
+**Read the Supreme Court’s Ruling on Mail Voting Restrictions**\
+`The order blocks a Trump administration plan to dramatically change how Americans vote by mail in the lead-up to the midterm elections.`\
+https://www.nytimes.com/interactive/2026/09/14/us/scotus-mail.html
+
+**Emmy Awards Live Updates: Mariska Hargitay Opens Ceremony With an Ode to the Small Screen**\
+`Television’s biggest night is underway in Los Angeles, where “The Pitt” is favored to win best drama, and “Hacks” and “Widow’s Bay” are battling for best comedy.`\
+https://www.nytimes.com/live/2026/09/14/arts/emmy-awards-2026
+
 **Judge Blocks Trump Rule Aimed at International Students and Journalists**\
 `Judge F. Dennis Saylor IV wrote that the administration’s reasons for a rule limiting the length of stay for academics and journalists were “exceptionally weak.”`\
 https://www.nytimes.com/2026/09/14/us/politics/foreign-students-visas-trump-ruling.html
