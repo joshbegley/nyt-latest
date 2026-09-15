@@ -1,3 +1,35 @@
+**Candid Photos From the 2026 Emmys**\
+`Candid moments with Stephen Colbert, Megan Stalter, Rachel Sennott, Matthew Rhys and more.`\
+https://www.nytimes.com/2026/09/14/arts/television/emmys-candid-photos.html
+
+**‘The Late Show With Stephen Colbert’ Goes Out With an Emmy Win**\
+`For its final season, the series won an overhauled variety category in which any or all of the nominees could have claimed an Emmy Award.`\
+https://www.nytimes.com/2026/09/14/arts/television/the-late-show-stephen-colbert-emmy-.html
+
+**Supreme Court Justices Thomas and Alito Would Have Allowed Trump’s Mail-In Ballot Rules**\
+`Justice Samuel A. Alito Jr., joined by Justice Clarence Thomas, called the challenge to the restrictions a “Hail Mary pass” that was unlikely to prevail because of the Postal Service’s broad authority to regulate the mail.`\
+https://www.nytimes.com/2026/09/14/us/elections/supreme-court-alito-thomas-dissent.html
+
+**Matthew Rhys Achieves a Historic Emmys Trifecta**\
+`The Welsh actor became the first in the awards show’s history to win lead acting prizes in the drama, comedy and limited series fields.`\
+https://www.nytimes.com/2026/09/14/arts/television/matthew-rhys-emmys-widows-bay-the-beast-in-me.html
+
+**Vote for Your Favorite (and Least Favorite) Looks From the Emmy Awards**\
+`Vote for your favorite looks.`\
+https://www.nytimes.com/interactive/2026/09/14/style/emmys-best-dressed-vote.html
+
+**Trump’s Effort to Assert Control Over Elections Continues Despite Supreme Court Loss**\
+`President Trump has launched a broad, governmentwide effort to take more control of state-run elections and sow doubt about the outcome.`\
+https://www.nytimes.com/2026/09/14/us/politics/supreme-court-trump-mail-in-ballots.html
+
+**Elections Officials Breathe Sigh of Relief Following Court Ruling on Mail Ballots**\
+`Officials cheered the order blocking President Trump’s last-minute effort to change the rules on mail ballots, noting that some states had already mailed ballots.`\
+https://www.nytimes.com/2026/09/14/us/elections/mail-ballot-ruling-reaction.html
+
+**Sydney Sweeney Sports Betting Ad Sparks Backlash From Athletes**\
+`A nude campaign for a sports betting app drew strong responses. Was it all strategic?`\
+https://www.nytimes.com/2026/09/14/style/sydney-sweeney-sports-ad-novig.html
+
 **Bob Mackie: A Life in Pictures**\
 `The designer was known for his flashy, sparkly designs for Cher, Diana Ross, Tina Turner and countless others.`\
 https://www.nytimes.com/2026/09/14/style/bob-mackie-designer-photos.html
