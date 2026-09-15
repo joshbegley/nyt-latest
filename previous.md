@@ -182,7 +182,3 @@ https://www.nytimes.com/video/us/politics/100000011133700/why-is-dhs-getting-inv
 `El presidente de Estados Unidos intervino en el debate sobre cómo manejar una tecnología en rápida evolución que, según investigadores y líderes de la industria, plantea grandes riesgos.`\
 https://www.nytimes.com/es/2026/09/14/espanol/estados-unidos/trump-ia-anthropic.html
 
-**Los altos mandos del Pentágono enfrentan la agitación bajo el mando de Hegseth**\
-`Las distracciones persistentes han creado un clima de desconfianza a medida que las fuerzas armadas de EE. UU. enfrentan una serie de problemas en tiempos de guerra.`\
-https://www.nytimes.com/es/2026/09/14/espanol/estados-unidos/pentagono-secretario-defensa-crisis.html
-
