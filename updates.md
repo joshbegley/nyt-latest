@@ -1,3 +1,47 @@
+**Trump’s Effort to Assert Control Over Elections Continues Despite Supreme Court Loss**\
+`President Trump has launched a broad, governmentwide effort to take more control of state-run elections and sow doubt about the outcome.`\
+https://www.nytimes.com/2026/09/14/us/politics/supreme-court-trump-mail-in-ballots.html
+
+**Elections Officials Breathe Sigh of Relief Following Court Ruling on Mail Ballots**\
+`Officials cheered the order blocking President Trump’s last-minute effort to change the rules on mail ballots, noting that some states had already mailed ballots.`\
+https://www.nytimes.com/2026/09/14/us/elections/mail-ballot-ruling-reaction.html
+
+**Sydney Sweeney Sports Betting Ad Sparks Backlash From Athletes**\
+`A nude campaign for a sports betting app drew strong responses. Was it all strategic?`\
+https://www.nytimes.com/2026/09/14/style/sydney-sweeney-sports-ad-novig.html
+
+**Rhea Seehorn Wins Her First Emmy for ‘Pluribus’**\
+`After coming up short twice for “Better Call Saul,” her commanding role in Vince Gilligan’s Apple sci-fi drama put her over the top.`\
+https://www.nytimes.com/2026/09/14/arts/television/rhea-seehorn-first-emmy-pluribus.html
+
+**New York Moves Away from Regents Exams for High School Seniors**\
+`A state board authorized phasing out the tests, long viewed as a rite of passage for high school seniors, as a diploma requirement. What replaces them is an open question.`\
+https://www.nytimes.com/2026/09/14/nyregion/new-york-regents-exam-high-school-students.html
+
+**Mariska Hargitay Opens 2026 Emmys With a Musical Tribute to TV**\
+`The hosting gig comes as a part of a big year for the actress that has included two Emmys for her documentary about her mother, Jayne Mansfield.`\
+https://www.nytimes.com/2026/09/14/arts/television/mariska-hargitay-emmys-monologue.html
+
+**Jean Smart Makes Emmy History With Her Eighth Win**\
+`An award for the final season of “Hacks” makes Smart one of the most prolific Emmy-winning actresses in history.`\
+https://www.nytimes.com/2026/09/14/arts/television/jean-smart-hacks-emmys-history.html
+
+**They Could Afford to Stand Up to Trump. Why Didn’t They?**\
+`The more the logic of capitalism pervades the rest of life, the less room there is for compassion, honor or heroism.`\
+https://www.nytimes.com/2026/09/14/opinion/institutions-power-trump.html
+
+**America’s Best Restaurants 2026**\
+`Our 50 favorite places in America right now.`\
+https://www.nytimes.com/interactive/2026/dining/best-restaurants-america.html
+
+**Read the Supreme Court’s Ruling on Mail Voting Restrictions**\
+`The order blocks a Trump administration plan to dramatically change how Americans vote by mail in the lead-up to the midterm elections.`\
+https://www.nytimes.com/interactive/2026/09/14/us/scotus-mail.html
+
+**Emmy Winners 2026: See the Full List**\
+`Here are the winners from the 78th Emmy Awards.`\
+https://www.nytimes.com/2026/09/14/arts/television/emmy-winners-list.html
+
 **Judge Blocks Trump Rule Aimed at International Students and Journalists**\
 `Judge F. Dennis Saylor IV wrote that the administration’s reasons for a rule limiting the length of stay for academics and journalists were “exceptionally weak.”`\
 https://www.nytimes.com/2026/09/14/us/politics/foreign-students-visas-trump-ruling.html
