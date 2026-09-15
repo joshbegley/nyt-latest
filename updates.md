@@ -1,3 +1,43 @@
+**Jean Smart Wins Emmy for ‘Hacks’ and Makes History**\
+`An award for the final season of “Hacks” makes Smart one of the most prolific Emmy-winning actresses in history.`\
+https://www.nytimes.com/2026/09/14/arts/television/jean-smart-hacks-emmys-history.html
+
+**They Could Afford to Stand Up to Trump. Why Didn’t They?**\
+`The more the logic of capitalism pervades the rest of life, the less room there is for compassion, honor or heroism.`\
+https://www.nytimes.com/2026/09/14/opinion/institutions-power-trump.html
+
+**America’s Best Restaurants 2026**\
+`Our 50 favorite places in America right now.`\
+https://www.nytimes.com/interactive/2026/dining/best-restaurants-america.html
+
+**Read the Supreme Court’s Ruling on Mail Voting Restrictions**\
+`The order blocks a Trump administration plan to dramatically change how Americans vote by mail in the lead-up to the midterm elections.`\
+https://www.nytimes.com/interactive/2026/09/14/us/scotus-mail.html
+
+**Judge Blocks Trump Rule Aimed at International Students and Journalists**\
+`Judge F. Dennis Saylor IV wrote that the administration’s reasons for a rule limiting the length of stay for academics and journalists were “exceptionally weak.”`\
+https://www.nytimes.com/2026/09/14/us/politics/foreign-students-visas-trump-ruling.html
+
+**Supreme Court Blocks Trump Administration Plan to Screen Mail-In Ballots**\
+`The Trump administration had asked the justices to allow a new Postal Service plan to screen ballots just weeks before the midterm elections.`\
+https://www.nytimes.com/2026/09/14/us/politics/supreme-court-trump-mail-voting.html
+
+**These Kinds of Moments Make Us Love Restaurants**\
+`Here are nine fleeting moments that made scouting the 50 best restaurants of 2026 memorable and meaningful.`\
+https://www.nytimes.com/2026/09/14/dining/restaurant-moments.html
+
+**The Dining Trends Chefs Are Seeing in 2026**\
+`A dozen of the chefs from the 2026 edition of our 50 favorite restaurants list talk GLP-1s, diner drinking habits, A.I. and more.`\
+https://www.nytimes.com/2026/09/14/dining/chefs-dining-beverage-trends.html
+
+**Emmy Awards Winners 2026: See the Full List**\
+`Here are the winners from the 78th Emmy Awards.`\
+https://www.nytimes.com/2026/09/14/arts/television/emmy-winners-list.html
+
+**Emmy Awards Highlights: ‘Widow’s Bay’ Leads Apple TV to Big Night**\
+`The horror-comedy won 14 awards, and Apple TV took home the most Emmys for the first time. “The Pitt” won best drama for the second year in a row, as Matthew Rhys, Jean Smart and Allison Janney entered the record books.`\
+https://www.nytimes.com/live/2026/09/14/arts/emmy-awards-2026
+
 **Macklemore Dropped From Ed Sheeran’s Tour After Palestine Comments**\
 `The rapper Macklemore was dropped as an opening act from Ed Sheeran’s tour after saying “Free Palestine” onstage.`\
 https://www.nytimes.com/video/us/100000011151467/macklemore-dropped-ed-sheeran-tour-palestine.html
