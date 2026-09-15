@@ -106,8 +106,8 @@ https://www.nytimes.com/2026/09/14/style/steve-kolb-cfda-leave.html
 `Alex Saab, a former high-ranking government official in Venezuela, could potentially cooperate against Mr. Maduro, who is awaiting trial in New York.`\
 https://www.nytimes.com/2026/09/14/us/alex-saab-maduro-money-laundering-plea.html
 
-**Emmy Awards Live Updates: Jean Smart Wins Her 8th Emmy, Tying a Record**\
-`The actress won for her work in “Hacks.” Kate O’Flynn won best supporting actress in a comedy for “Widow’s Bay,” and Mariska Hargitay opened the ceremony with a tribute to television.`\
+**Emmy Awards Live Updates: Jean Smart and Matthew Rhys Win Early Awards**\
+`Smart’s win for “Hacks” was her eighth Emmy, tying a record. Kate O’Flynn of  “Widow’s Bay” and Allison Janney of “The Diplomat” won supporting actress awards.`\
 https://www.nytimes.com/live/2026/09/14/arts/emmy-awards-2026
 
 **‘NAZA’, un documental israelí, recibe ovaciones en el extranjero y rechazo en Israel**\

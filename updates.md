@@ -1,3 +1,15 @@
+**Mariska Hargitay Opens 2026 Emmys With a Musical Tribute to TV**\
+`The hosting gig comes as a part of a big year for the actress that has included two Emmys for her documentary about her mother, Jayne Mansfield.`\
+https://www.nytimes.com/2026/09/14/arts/television/mariska-hargitay-emmys-monologue.html
+
+**Jean Smart Makes Emmy History With Her Eighth Win**\
+`An award for the final season of “Hacks” makes Smart one of the most prolific Emmy-winning actresses in history.`\
+https://www.nytimes.com/2026/09/14/arts/television/jean-smart-hacks-emmys-history.html
+
+**Emmy Awards Live Updates: Jean Smart Wins Her 8th Emmy, Tying a Record**\
+`The actress won for her work in “Hacks.” Kate O’Flynn won best supporting actress in a comedy for “Widow’s Bay,” and Mariska Hargitay opened the ceremony with a tribute to television.`\
+https://www.nytimes.com/live/2026/09/14/arts/emmy-awards-2026
+
 **Jean Smart Makes Emmy History**\
 `An award for the final season of “Hacks” makes Smart one of the most prolific Emmy-winning actresses in history.`\
 https://www.nytimes.com/2026/09/14/arts/television/jean-smart-hacks-emmys-history.html
