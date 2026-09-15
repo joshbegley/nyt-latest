@@ -51,7 +51,7 @@ https://www.nytimes.com/2026/09/14/us/politics/foreign-students-visas-trump-ruli
 https://www.nytimes.com/2026/09/14/us/politics/supreme-court-trump-mail-voting.html
 
 **These Kinds of Moments Make Us Love Restaurants**\
-`TK`\
+`Here are nine fleeting moments that made scouting the 50 best restaurants of 2026 memorable and meaningful.`\
 https://www.nytimes.com/2026/09/14/dining/restaurant-moments.html
 
 **The Dining Trends Chefs Are Seeing in 2026**\

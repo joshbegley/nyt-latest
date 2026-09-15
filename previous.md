@@ -1,3 +1,7 @@
+**Vote for Your Favorite (and Least Favorite) Looks From the Emmy Awards**\
+`Vote for your favorite looks.`\
+https://www.nytimes.com/interactive/2026/09/14/style/emmys-best-dressed-vote.html
+
 **Trump’s Effort to Assert Control Over Elections Continues, Despite Court Loss**\
 `President Trump has launched a broad, governmentwide effort to take more control of state-run elections and sow doubt about the outcome.`\
 https://www.nytimes.com/2026/09/14/us/politics/supreme-court-trump-mail-in-ballots.html
@@ -127,7 +131,7 @@ https://www.nytimes.com/2026/09/14/style/steve-kolb-cfda-leave.html
 https://www.nytimes.com/2026/09/14/us/alex-saab-maduro-money-laundering-plea.html
 
 **Emmy Awards Live Updates: Noah Wyle Repeats Win for Best Actor in a Drama for ‘The Pitt’**\
-`Allison Janney of “The Diplomat” and Jean Smart of “Hacks” each won their eighth Emmy, tying a record. Rhea Seehorn, Kate O’Flynn and Stephen Root were among the other winners.`\
+`Allison Janney of “The Diplomat” and Jean Smart of “Hacks” each won their eighth Emmy, tying a record. Tom Pelphrey won his first for “Task.” Other winners included Rhea Seehorn, Kate O’Flynn and Stephen Root.`\
 https://www.nytimes.com/live/2026/09/14/arts/emmy-awards-2026
 
 **‘NAZA’, un documental israelí, recibe ovaciones en el extranjero y rechazo en Israel**\
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/09/14/briefing/the-local-flock-fraud-and-football.h
 **Bob Mackie: A Life in Pictures**\
 `The designer was known for his flashy, sparkly designs for Cher, Diana Ross, Tina Turner and countless others.`\
 https://www.nytimes.com/2026/09/14/style/bob-mackie-designer-photos.html
-
-**British Man Pleads Guilty to Drugging and Raping Wife Over 20 Years**\
-`The police said that a dozen other men conspired with the husband, who is in his 60s, to abuse the woman in northern England.`\
-https://www.nytimes.com/2026/09/14/world/europe/uk-man-wife-drugging-rape-confession.html
 

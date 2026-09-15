@@ -1,3 +1,11 @@
+**Vote for Your Favorite (and Least Favorite) Looks From the Emmy Awards**\
+`Vote for your favorite looks.`\
+https://www.nytimes.com/interactive/2026/09/14/style/emmys-best-dressed-vote.html
+
+**Emmy Awards Live Updates: Noah Wyle Repeats Win for Best Actor in a Drama for ‘The Pitt’**\
+`Allison Janney of “The Diplomat” and Jean Smart of “Hacks” each won their eighth Emmy, tying a record. Tom Pelphrey won his first for “Task.” Other winners included Rhea Seehorn, Kate O’Flynn and Stephen Root.`\
+https://www.nytimes.com/live/2026/09/14/arts/emmy-awards-2026
+
 **Emmy Awards Live Updates: Noah Wyle Repeats Win for Best Actor in a Drama for ‘The Pitt’**\
 `Allison Janney of “The Diplomat” and Jean Smart of “Hacks” each won their eighth Emmy, tying a record. Rhea Seehorn, Kate O’Flynn and Stephen Root were among the other winners.`\
 https://www.nytimes.com/live/2026/09/14/arts/emmy-awards-2026
