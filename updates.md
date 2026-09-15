@@ -1,3 +1,7 @@
+**Emmy Awards Live Updates: ‘The Late Show With Stephen Colbert’ Wins for Best Variety Series**\
+`The show ended this year after CBS canceled it. Matthew Rhys, honored for “The Beast in Me” and “Widow’s Bay,” is now the first actor to win lead acting Emmys in a drama, comedy and limited series.`\
+https://www.nytimes.com/live/2026/09/14/arts/emmy-awards-2026
+
 **‘The Late Show With Stephen Colbert’ Goes Out With an Emmy Win**\
 `For its final season, the series won an overhauled variety category in which any or all of the nominees could have claimed an Emmy Award.`\
 https://www.nytimes.com/2026/09/14/arts/television/the-late-show-stephen-colbert-emmy-.html
