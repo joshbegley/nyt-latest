@@ -1,3 +1,11 @@
+**Sydney Sweeney Sports Betting Ad Sparks Backlash From Athletes**\
+`A nude campaign for a sports betting app drew strong responses. Was it all strategic?`\
+https://www.nytimes.com/2026/09/14/style/sydney-sweeney-sports-ad-novig.html
+
+**Emmy Awards Live Updates: Jean Smart, Rhea Seehorn and Matthew Rhys Win Early Awards**\
+`Allison Janney of “The Diplomat” and Smart of “Hacks” both won their eighth Emmy, tying a record. Kate O’Flynn of “Widow’s Bay” won a supporting actress award.`\
+https://www.nytimes.com/live/2026/09/14/arts/emmy-awards-2026
+
 **Rhea Seehorn Wins Her First Emmy for ‘Pluribus’**\
 `After coming up short twice for “Better Call Saul,” her commanding role in Vince Gilligan’s Apple sci-fi drama put her over the top.`\
 https://www.nytimes.com/2026/09/14/arts/television/rhea-seehorn-first-emmy-pluribus.html
