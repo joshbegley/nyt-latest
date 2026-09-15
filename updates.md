@@ -1,3 +1,15 @@
+**Half-Marathoners in New Jersey Wade Through Flooded Course**\
+`Harrowing social media videos showed runners navigating chest-high waters after a drenching rainstorm on Sunday.`\
+https://www.nytimes.com/2026/09/14/nyregion/half-marathon-new-jersey-flooding.html
+
+**Russian Businessman With Putin Ties Paid for Donald Trump Jr.’s Wedding Party**\
+`The payments, totaling hundreds of thousands of dollars, represented an extraordinary flouting of ethical norms for an American president’s family member.`\
+https://www.nytimes.com/2026/09/14/us/politics/donald-trump-jr-wedding-russian-businessman.html
+
+**The Local: Flock, fraud and football**\
+`Plus, a Twin Cities travel quiz.`\
+https://www.nytimes.com/2026/09/14/briefing/the-local-flock-fraud-and-football.html
+
 **‘The Late Show With Stephen Colbert’ Goes Out With an Emmy Win**\
 `For its final season, the series won an overhauled variety category in which any or all of the nominees could have claimed an Emmy Award.`\
 https://www.nytimes.com/2026/09/14/arts/television/the-late-show-stephen-colbert-emmy-.html
