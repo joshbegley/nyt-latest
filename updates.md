@@ -1,3 +1,19 @@
+**Supreme Court Justices Thomas and Alito Would Have Allowed Trump’s Mail-In Ballot Rules**\
+`Justice Samuel A. Alito Jr., joined by Justice Clarence Thomas, called the challenge to the restrictions a “Hail Mary pass” that was unlikely to prevail because of the Postal Service’s broad authority to regulate the mail.`\
+https://www.nytimes.com/2026/09/14/us/elections/supreme-court-alito-thomas-dissent.html
+
+**Matthew Rhys Achieves a Historic Emmys Trifecta**\
+`The Welsh actor became the first in the awards show’s history to win lead acting prizes in the drama, comedy and limited series fields.`\
+https://www.nytimes.com/2026/09/14/arts/television/matthew-rhys-emmys-widows-bay-the-beast-in-me.html
+
+**Vote for Your Favorite (and Least Favorite) Looks From the Emmy Awards**\
+`Vote for your favorite looks.`\
+https://www.nytimes.com/interactive/2026/09/14/style/emmys-best-dressed-vote.html
+
+**How Bob Mackie and Cher Crafted the Ultimate Revenge Dress**\
+`The designer’s bedazzling, feathered creations made waves onstage, including at the Oscars in 1986.`\
+https://www.nytimes.com/2026/09/14/style/bob-mackie-cher-tina-turner.html
+
 **Trump’s Effort to Assert Control Over Elections Continues Despite Supreme Court Loss**\
 `President Trump has launched a broad, governmentwide effort to take more control of state-run elections and sow doubt about the outcome.`\
 https://www.nytimes.com/2026/09/14/us/politics/supreme-court-trump-mail-in-ballots.html
