@@ -1,3 +1,19 @@
+**The National Debt Never Scared Me. It Scares Me.**\
+`It’s too big to ignore. And it could all end badly.`\
+https://www.nytimes.com/2026/09/14/opinion/national-debt-trump.html
+
+**Macklemore Dropped From Ed Sheeran Tour After ‘Free Palestine’ Remarks**\
+`The rapper, a critic of the war in Gaza, made the comments onstage at MetLife Stadium.`\
+https://www.nytimes.com/2026/09/14/arts/music/macklemore-ed-sheeran-tour-palestine-gaza.html
+
+**Ex-Anthropic Employee on How A.I. Could Threaten Humanity**\
+`The A.I. researcher who quit Anthropic joins Natalie Kitroeff on “The Daily” to discuss how A.I. would actually pose an existential risk to human life.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011151420/ex-anthropic-employee-on-how-ai-could-threaten-humanity.html
+
+**Ex-Anthropic Employee: Here’s Why A.I. Might Want to Kill Us**\
+`The A.I. researcher who quit Anthropic joins Natalie Kitroeff on “The Daily” to discuss why A.I. systems might eventually become “anti-human.”`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011151434/ex-anthropic-employee-heres-why-ai-might-want-to-kill-us.html
+
 **Rhea Seehorn Wins Her First Emmy for ‘Pluribus’**\
 `After coming up short twice for “Better Call Saul,” her commanding role in Vince Gilligan’s Apple sci-fi drama put her over the top.`\
 https://www.nytimes.com/2026/09/14/arts/television/rhea-seehorn-first-emmy-pluribus.html
