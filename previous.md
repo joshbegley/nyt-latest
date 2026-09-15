@@ -1,3 +1,7 @@
+**Reba McEntire Honors Dolly Parton With Rendition of ‘Appalachian Memories’**\
+`The beloved country music superstars shared a decades-long friendship.`\
+https://www.nytimes.com/2026/09/14/arts/television/dolly-parton-reba-mcentire-appalachian-memories.html
+
 **Have Thoughts on the Emmy’s Red Carpet? Join Our Readers in the Comments.**\
 `Television’s biggest stars have walked the carpet. Now that you’ve seen what everyone is wearing and voted for your favorite looks, we invite you to comment on a few of the styles.`\
 https://www.nytimes.com/2026/09/14/style/emmys-red-carpet-reader-comments.html
@@ -30,7 +34,7 @@ https://www.nytimes.com/2026/09/14/arts/television/matthew-rhys-emmys-widows-bay
 `Vote for your favorite looks.`\
 https://www.nytimes.com/interactive/2026/09/14/style/emmys-best-dressed-vote.html
 
-**Trump’s Effort to Assert Control Over Elections Continues, Despite Supreme Court Loss**\
+**Trump’s Effort to Assert Control Over Elections Continues Despite Supreme Court Loss**\
 `President Trump has launched a broad, governmentwide effort to take more control of state-run elections and sow doubt about the outcome.`\
 https://www.nytimes.com/2026/09/14/us/politics/supreme-court-trump-mail-in-ballots.html
 
