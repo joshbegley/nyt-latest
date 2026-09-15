@@ -1,3 +1,7 @@
+**Matthew Rhys Achieves a Historic Emmys Trifecta**\
+`The Welsh actor became the first in the awards show’s history to win lead acting prizes in the drama, comedy and limited series fields.`\
+https://www.nytimes.com/2026/09/14/arts/television/matthew-rhys-emmys-widows-bay-the-beast-in-me.html
+
 **Vote for Your Favorite (and Least Favorite) Looks From the Emmy Awards**\
 `Vote for your favorite looks.`\
 https://www.nytimes.com/interactive/2026/09/14/style/emmys-best-dressed-vote.html
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/09/14/us/politics/donald-trump-jr-wedding-russian-b
 **The Local: Flock, fraud and football**\
 `Plus, a Twin Cities travel quiz.`\
 https://www.nytimes.com/2026/09/14/briefing/the-local-flock-fraud-and-football.html
-
-**Bob Mackie: A Life in Pictures**\
-`The designer was known for his flashy, sparkly designs for Cher, Diana Ross, Tina Turner and countless others.`\
-https://www.nytimes.com/2026/09/14/style/bob-mackie-designer-photos.html
 

@@ -1,3 +1,7 @@
+**These Kinds of Moments Make Us Love Restaurants**\
+`Here are nine fleeting moments that made scouting the 50 best restaurants of 2026 memorable and meaningful.`\
+https://www.nytimes.com/2026/09/14/dining/restaurant-moments.html
+
 **Vote for Your Favorite (and Least Favorite) Looks From the Emmy Awards**\
 `Vote for your favorite looks.`\
 https://www.nytimes.com/interactive/2026/09/14/style/emmys-best-dressed-vote.html
