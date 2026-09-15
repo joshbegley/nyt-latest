@@ -134,8 +134,8 @@ https://www.nytimes.com/2026/09/14/style/steve-kolb-cfda-leave.html
 `Alex Saab, a former high-ranking government official in Venezuela, could potentially cooperate against Mr. Maduro, who is awaiting trial in New York.`\
 https://www.nytimes.com/2026/09/14/us/alex-saab-maduro-money-laundering-plea.html
 
-**Emmy Awards Live Updates: Noah Wyle Repeats Win for Best Actor in a Drama for ‘The Pitt’**\
-`Allison Janney of “The Diplomat” and Jean Smart of “Hacks” each won their eighth Emmy, tying a record. Tom Pelphrey won his first for “Task.” Other winners included Rhea Seehorn, Kate O’Flynn and Stephen Root.`\
+**Emmy Awards Live Updates: Matthew Rhys Wins Two Lead Acting Awards**\
+`Honored for “The Beast in Me” and “Widow’s Bay,” Rhys is the first actor to win lead acting Emmys in a drama, comedy and limited series. Allison Janney of “The Diplomat” and Jean Smart of “Hacks” also each won their eighth Emmy, tying a record.`\
 https://www.nytimes.com/live/2026/09/14/arts/emmy-awards-2026
 
 **‘NAZA’, un documental israelí, recibe ovaciones en el extranjero y rechazo en Israel**\
