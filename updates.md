@@ -1,3 +1,7 @@
+**Candid Photos From the 2026 Emmys**\
+`Candid moments with Jean Smart, Meg Stalter, Rachel Sennott, Matthew Rhys and more.`\
+https://www.nytimes.com/2026/09/14/arts/television/emmys-candid-photos.html
+
 **Emmy Awards Live Updates: ‘The Late Show With Stephen Colbert’ Wins for Best Variety Series**\
 `The show ended this year after CBS canceled it. Matthew Rhys, honored for “The Beast in Me” and “Widow’s Bay,” is now the first actor to win lead acting Emmys in a drama, comedy and limited series.`\
 https://www.nytimes.com/live/2026/09/14/arts/emmy-awards-2026

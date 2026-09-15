@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Sept. 15, 2026**\
+`Just call Nate Cardin “Mr. Crossword.”`\
+https://www.nytimes.com/2026/09/14/crosswords/daily-puzzle-2026-09-15.html
+
 **Candid Photos From the 2026 Emmys**\
 `Candid moments with Jean Smart, Meg Stalter, Rachel Sennott, Matthew Rhys and more.`\
 https://www.nytimes.com/2026/09/14/arts/television/emmys-candid-photos.html
@@ -173,8 +177,4 @@ https://www.nytimes.com/2026/09/14/business/us-sanctions-russia-vtb-bank-iran.ht
 **Political Figures From Bernie Sanders to Steve Bannon Sound Alarms on A.I.**\
 `The two men will appear separately at an event calling for a “pro-human” approach to A.I. as warnings mount from the industry and the technology’s danger becomes a midterm issue.`\
 https://www.nytimes.com/2026/09/14/us/politics/bernie-sanders-steve-bannon-ai-regulation-midterm-candidates.html
-
-**A 9/11 Story of Grief and Love**\
-`Katherine Rosman of The Times explored the relationship of a young man and his grandmother, and how they wrestled with grief in very different ways.`\
-https://www.nytimes.com/2026/09/14/insider/september-11-grief.html
 
