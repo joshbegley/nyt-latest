@@ -1,3 +1,19 @@
+**Reba McEntire Honors Dolly Parton With Rendition of ‘Appalachian Memories’**\
+`The beloved country music superstars shared a decades-long friendship.`\
+https://www.nytimes.com/2026/09/14/arts/television/dolly-parton-reba-mcentire-appalachian-memories.html
+
+**Have Thoughts on the Emmy’s Red Carpet? Join Our Readers in the Comments.**\
+`Television’s biggest stars have walked the carpet. Now that you’ve seen what everyone is wearing and voted for your favorite looks, we invite you to comment on a few of the styles.`\
+https://www.nytimes.com/2026/09/14/style/emmys-red-carpet-reader-comments.html
+
+**Widow’s Bay’ Dominates the Emmy Comedy Category**\
+`The Apple TV show displaced past winners and favorites to win most of the comedy Emmys on Monday night, including best series.`\
+https://www.nytimes.com/2026/09/14/arts/television/widows-bay-emmy-best-comedy.html
+
+**NYT Crossword Answers for Sept. 15, 2026**\
+`Just call Nate Cardin “Mr. Crossword.”`\
+https://www.nytimes.com/2026/09/14/crosswords/daily-puzzle-2026-09-15.html
+
 **Candid Photos From the 2026 Emmys**\
 `Candid moments with Stephen Colbert, Megan Stalter, Rachel Sennott, Matthew Rhys and more.`\
 https://www.nytimes.com/2026/09/14/arts/television/emmys-candid-photos.html

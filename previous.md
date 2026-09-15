@@ -1,3 +1,19 @@
+**Reba McEntire Honors Dolly Parton With Rendition of ‘Appalachian Memories’**\
+`The beloved country music superstars shared a decades-long friendship.`\
+https://www.nytimes.com/2026/09/14/arts/television/dolly-parton-reba-mcentire-appalachian-memories.html
+
+**Have Thoughts on the Emmy’s Red Carpet? Join Our Readers in the Comments.**\
+`Television’s biggest stars have walked the carpet. Now that you’ve seen what everyone is wearing and voted for your favorite looks, we invite you to comment on a few of the styles.`\
+https://www.nytimes.com/2026/09/14/style/emmys-red-carpet-reader-comments.html
+
+**Widow’s Bay’ Dominates the Emmy Comedy Category**\
+`The Apple TV show displaced past winners and favorites to win most of the comedy Emmys on Monday night, including best series.`\
+https://www.nytimes.com/2026/09/14/arts/television/widows-bay-emmy-best-comedy.html
+
+**NYT Crossword Answers for Sept. 15, 2026**\
+`Just call Nate Cardin “Mr. Crossword.”`\
+https://www.nytimes.com/2026/09/14/crosswords/daily-puzzle-2026-09-15.html
+
 **Candid Photos From the 2026 Emmys**\
 `Candid moments with Stephen Colbert, Megan Stalter, Rachel Sennott, Matthew Rhys and more.`\
 https://www.nytimes.com/2026/09/14/arts/television/emmys-candid-photos.html
@@ -169,16 +185,4 @@ https://www.nytimes.com/video/world/middleeast/100000011151166/syria-protest-fue
 **What Do the Houthis Want?**\
 `The Iranian-backed militia has made strategic gains, becoming an unlikely power player in the Middle East.`\
 https://www.nytimes.com/2026/09/14/world/houthis-saudi-iran-jeff-koons.html
-
-**U.S. Imposes Sanctions on Russia’s VTB Bank Over Ties to Iran**\
-`The move, which targeted a bank that is already under U.S. sanctions, was part of the Trump administration’s Operation Economic Outcast initiative.`\
-https://www.nytimes.com/2026/09/14/business/us-sanctions-russia-vtb-bank-iran.html
-
-**Political Figures From Bernie Sanders to Steve Bannon Sound Alarms on A.I.**\
-`The two men will appear separately at an event calling for a “pro-human” approach to A.I. as warnings mount from the industry and the technology’s danger becomes a midterm issue.`\
-https://www.nytimes.com/2026/09/14/us/politics/bernie-sanders-steve-bannon-ai-regulation-midterm-candidates.html
-
-**A 9/11 Story of Grief and Love**\
-`Katherine Rosman of The Times explored the relationship of a young man and his grandmother, and how they wrestled with grief in very different ways.`\
-https://www.nytimes.com/2026/09/14/insider/september-11-grief.html
 
