@@ -1,15 +1,3 @@
-**They Could Afford to Stand Up to Trump. Why Didn’t They?**\
-`The more the logic of capitalism pervades the rest of life, the less room there is for compassion, honor or heroism.`\
-https://www.nytimes.com/2026/09/14/opinion/institutions-power-trump.html
-
-**America’s Best Restaurants 2026**\
-`Our 50 favorite places in America right now.`\
-https://www.nytimes.com/interactive/2026/dining/best-restaurants-america.html
-
-**Read the Supreme Court’s Ruling on Mail Voting Restrictions**\
-`The order blocks a Trump administration plan to dramatically change how Americans vote by mail in the lead-up to the midterm elections.`\
-https://www.nytimes.com/interactive/2026/09/14/us/scotus-mail.html
-
 **Judge Blocks Trump Rule Aimed at International Students and Journalists**\
 `Judge F. Dennis Saylor IV wrote that the administration’s reasons for a rule limiting the length of stay for academics and journalists were “exceptionally weak.”`\
 https://www.nytimes.com/2026/09/14/us/politics/foreign-students-visas-trump-ruling.html
@@ -185,4 +173,20 @@ https://www.nytimes.com/video/podcasts/the-daily/100000011151420/ex-anthropic-em
 **Ex-Anthropic Employee: Here’s Why A.I. Might Want to Kill Us**\
 `The A.I. researcher who quit Anthropic joins Natalie Kitroeff on “The Daily” to discuss why A.I. systems might eventually become “anti-human.”`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011151434/ex-anthropic-employee-heres-why-ai-might-want-to-kill-us.html
+
+**An Armadillo Arrives in … Ohio?**\
+`Traditionally found in warm climates, like the American Southwest, armadillos have been migrating farther and farther north, researchers say.`\
+https://www.nytimes.com/2026/09/14/us/armadillo-ohio.html
+
+**Why Is D.H.S. Getting Involved in Elections?**\
+`The Department of Homeland Security is in the midst of a weeks-long hunt for noncitizens among the nation’s registered voters despite the absence of evidence of widespread fraud. Reporter Hamed Aleaziz breaks down how a D.H.S. agency is using open-source state voter registration websites in their search for voter fraud.`\
+https://www.nytimes.com/video/us/politics/100000011133700/why-is-dhs-getting-involved-in-elections.html
+
+**Trump dice que para controlar la IA solo se necesita un presidente inteligente**\
+`El presidente de Estados Unidos intervino en el debate sobre cómo manejar una tecnología en rápida evolución que, según investigadores y líderes de la industria, plantea grandes riesgos.`\
+https://www.nytimes.com/es/2026/09/14/espanol/estados-unidos/trump-ia-anthropic.html
+
+**Los altos mandos del Pentágono enfrentan la agitación bajo el mando de Hegseth**\
+`Las distracciones persistentes han creado un clima de desconfianza a medida que las fuerzas armadas de EE. UU. enfrentan una serie de problemas en tiempos de guerra.`\
+https://www.nytimes.com/es/2026/09/14/espanol/estados-unidos/pentagono-secretario-defensa-crisis.html
 
