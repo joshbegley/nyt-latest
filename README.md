@@ -1,7 +1,3 @@
-**‘The Late Show With Stephen Colbert’ Goes Out With an Emmy Win**\
-`For its final season, the series won an overhauled variety category in which any or all of the nominees could have claimed an Emmy Award.`\
-https://www.nytimes.com/2026/09/14/arts/television/the-late-show-stephen-colbert-emmy-.html
-
 **Supreme Court Justices Thomas and Alito Would Have Allowed Trump’s Mail-In Ballot Rules**\
 `Justice Samuel A. Alito Jr., joined by Justice Clarence Thomas, called the challenge to the restrictions a “Hail Mary pass” that was unlikely to prevail because of the Postal Service’s broad authority to regulate the mail.`\
 https://www.nytimes.com/2026/09/14/us/elections/supreme-court-alito-thomas-dissent.html
@@ -185,4 +181,8 @@ https://www.nytimes.com/es/2026/09/14/espanol/mundo/ataques-iran-arabia-saudita-
 **Half-Marathoners in New Jersey Wade Through Flooded Course**\
 `Harrowing social media videos showed runners navigating chest-high waters after a drenching rainstorm on Sunday.`\
 https://www.nytimes.com/2026/09/14/nyregion/half-marathon-new-jersey-flooding.html
+
+**Russian Businessman With Putin Ties Paid for Donald Trump Jr.’s Wedding Party**\
+`The payments, totaling hundreds of thousands of dollars, represented an extraordinary flouting of ethical norms for an American president’s family member.`\
+https://www.nytimes.com/2026/09/14/us/politics/donald-trump-jr-wedding-russian-businessman.html
 

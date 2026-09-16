@@ -1,3 +1,7 @@
+**‘The Late Show With Stephen Colbert’ Goes Out With an Emmy Win**\
+`For its final season, the series won an overhauled variety category in which any or all of the nominees could have claimed an Emmy Award.`\
+https://www.nytimes.com/2026/09/14/arts/television/the-late-show-stephen-colbert-emmy-.html
+
 **Supreme Court Justices Thomas and Alito Would Have Allowed Trump’s Mail-In Ballot Rules**\
 `Justice Samuel A. Alito Jr., joined by Justice Clarence Thomas, called the challenge to the restrictions a “Hail Mary pass” that was unlikely to prevail because of the Postal Service’s broad authority to regulate the mail.`\
 https://www.nytimes.com/2026/09/14/us/elections/supreme-court-alito-thomas-dissent.html
