@@ -1,3 +1,19 @@
+**Russian Businessman With Putin Ties Paid for Donald Trump Jr.’s Wedding Party**\
+`The payments, totaling hundreds of thousands of dollars, represented an extraordinary flouting of ethical norms for an American president’s family member.`\
+https://www.nytimes.com/2026/09/14/us/politics/donald-trump-jr-wedding-russian-businessman.html
+
+**The Local: Flock, fraud and football**\
+`Plus, a Twin Cities travel quiz.`\
+https://www.nytimes.com/2026/09/14/briefing/the-local-flock-fraud-and-football.html
+
+**Bob Mackie: A Life in Pictures**\
+`The designer was known for his flashy, sparkly designs for Cher, Diana Ross, Tina Turner and countless others.`\
+https://www.nytimes.com/2026/09/14/style/bob-mackie-designer-photos.html
+
+**British Man Pleads Guilty to Drugging and Raping Wife Over 20 Years**\
+`The police said that a dozen other men conspired with the husband, who is in his 60s, to abuse the woman in northern England.`\
+https://www.nytimes.com/2026/09/14/world/europe/uk-man-wife-drugging-rape-confession.html
+
 **‘The Late Show With Stephen Colbert’ Goes Out With an Emmy Win**\
 `For its final season, the series won an overhauled variety category in which any or all of the nominees could have claimed an Emmy Award.`\
 https://www.nytimes.com/2026/09/14/arts/television/the-late-show-stephen-colbert-emmy-.html
