@@ -1,3 +1,35 @@
+**Macklemore Dropped From Ed Sheeran’s Tour After Palestine Comments**\
+`The rapper Macklemore was dropped as an opening act from Ed Sheeran’s tour after saying “Free Palestine” onstage.`\
+https://www.nytimes.com/video/us/100000011151467/macklemore-dropped-ed-sheeran-tour-palestine.html
+
+**The National Debt Never Scared Me. It Scares Me.**\
+`It’s too big to ignore. And it could all end badly.`\
+https://www.nytimes.com/2026/09/14/opinion/national-debt-trump.html
+
+**Macklemore Dropped From Ed Sheeran Tour After ‘Free Palestine’ Remarks**\
+`The rapper, a critic of the war in Gaza, made the comments onstage at MetLife Stadium.`\
+https://www.nytimes.com/2026/09/14/arts/music/macklemore-ed-sheeran-tour-palestine-gaza.html
+
+**Ex-Anthropic Employee on How A.I. Could Threaten Humanity**\
+`The A.I. researcher who quit Anthropic joins Natalie Kitroeff on “The Daily” to discuss how A.I. would actually pose an existential risk to human life.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011151420/ex-anthropic-employee-on-how-ai-could-threaten-humanity.html
+
+**Ex-Anthropic Employee: Here’s Why A.I. Might Want to Kill Us**\
+`The A.I. researcher who quit Anthropic joins Natalie Kitroeff on “The Daily” to discuss why A.I. systems might eventually become “anti-human.”`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011151434/ex-anthropic-employee-heres-why-ai-might-want-to-kill-us.html
+
+**An Armadillo Arrives in … Ohio?**\
+`Traditionally found in warm climates, like the American Southwest, armadillos have been migrating farther and farther north, researchers say.`\
+https://www.nytimes.com/2026/09/14/us/armadillo-ohio.html
+
+**Why Is D.H.S. Getting Involved in Elections?**\
+`The Department of Homeland Security is in the midst of a weeks-long hunt for noncitizens among the nation’s registered voters despite the absence of evidence of widespread fraud. Reporter Hamed Aleaziz breaks down how a D.H.S. agency is using open-source state voter registration websites in their search for voter fraud.`\
+https://www.nytimes.com/video/us/politics/100000011133700/why-is-dhs-getting-involved-in-elections.html
+
+**Trump dice que para controlar la IA solo se necesita un presidente inteligente**\
+`El presidente de Estados Unidos intervino en el debate sobre cómo manejar una tecnología en rápida evolución que, según investigadores y líderes de la industria, plantea grandes riesgos.`\
+https://www.nytimes.com/es/2026/09/14/espanol/estados-unidos/trump-ia-anthropic.html
+
 **Abbott to Pay $385 Million to Settle Baby Formula Safety Allegations**\
 `The company recalled formulas manufactured at a Michigan plant in 2022, after health officials linked them to serious illnesses in babies.`\
 https://www.nytimes.com/2026/09/14/well/abbott-settlement-infant-formula.html
