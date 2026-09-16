@@ -1,3 +1,51 @@
+**See Your Favorite and Least Favorite Looks From the Emmys**\
+`You watched, you voted. Thank you for participating. See the results below!`\
+https://www.nytimes.com/interactive/2026/09/14/style/emmys-best-dressed-vote.html
+
+**Trump’s Effort to Assert Control Over Elections Continues Despite Supreme Court Loss**\
+`President Trump has launched a broad, governmentwide effort to take more control of state-run elections and sow doubt about the outcome.`\
+https://www.nytimes.com/2026/09/14/us/politics/supreme-court-trump-mail-in-ballots.html
+
+**Elections Officials Breathe Sigh of Relief Following Court Ruling on Mail Ballots**\
+`Officials cheered the order blocking President Trump’s last-minute effort to change the rules on mail ballots, noting that some states had already mailed ballots.`\
+https://www.nytimes.com/2026/09/14/us/elections/mail-ballot-ruling-reaction.html
+
+**Sydney Sweeney Sports Betting Ad Sparks Backlash From Athletes**\
+`A nude campaign for a sports betting app drew strong responses. Was it all strategic?`\
+https://www.nytimes.com/2026/09/14/style/sydney-sweeney-sports-ad-novig.html
+
+**Rhea Seehorn Wins Her First Emmy for ‘Pluribus’**\
+`After coming up short twice for “Better Call Saul,” her commanding role in Vince Gilligan’s Apple sci-fi drama put her over the top.`\
+https://www.nytimes.com/2026/09/14/arts/television/rhea-seehorn-first-emmy-pluribus.html
+
+**New York Moves Away from Regents Exams for High School Seniors**\
+`A state board authorized phasing out the tests, long viewed as a rite of passage for high school seniors, as a diploma requirement. What replaces them is an open question.`\
+https://www.nytimes.com/2026/09/14/nyregion/new-york-regents-exam-high-school-students.html
+
+**Mariska Hargitay Opens 2026 Emmys With a Musical Tribute to TV**\
+`The hosting gig comes as a part of a big year for the actress that has included two Emmys for her documentary about her mother, Jayne Mansfield.`\
+https://www.nytimes.com/2026/09/14/arts/television/mariska-hargitay-emmys-monologue.html
+
+**Jean Smart Wins Emmy for ‘Hacks’ and Makes History**\
+`An award for the final season of “Hacks” makes Smart one of the most prolific Emmy-winning actresses in history.`\
+https://www.nytimes.com/2026/09/14/arts/television/jean-smart-hacks-emmys-history.html
+
+**They Could Afford to Stand Up to Trump. Why Didn’t They?**\
+`The more the logic of capitalism pervades the rest of life, the less room there is for compassion, honor or heroism.`\
+https://www.nytimes.com/2026/09/14/opinion/institutions-power-trump.html
+
+**America’s Best Restaurants 2026**\
+`Our 50 favorite places in America right now.`\
+https://www.nytimes.com/interactive/2026/dining/best-restaurants-america.html
+
+**Read the Supreme Court’s Ruling on Mail Voting Restrictions**\
+`The order blocks a Trump administration plan to dramatically change how Americans vote by mail in the lead-up to the midterm elections.`\
+https://www.nytimes.com/interactive/2026/09/14/us/scotus-mail.html
+
+**Judge Blocks Trump Rule Aimed at International Students and Journalists**\
+`Judge F. Dennis Saylor IV wrote that the administration’s reasons for a rule limiting the length of stay for academics and journalists were “exceptionally weak.”`\
+https://www.nytimes.com/2026/09/14/us/politics/foreign-students-visas-trump-ruling.html
+
 **Supreme Court Blocks Trump Administration Plan to Screen Mail-In Ballots**\
 `The Trump administration had asked the justices to allow a new Postal Service plan to screen ballots just weeks before the midterm elections.`\
 https://www.nytimes.com/2026/09/14/us/politics/supreme-court-trump-mail-voting.html
@@ -86,6 +134,10 @@ https://www.nytimes.com/2026/09/14/us/alex-saab-maduro-money-laundering-plea.htm
 `The Apple TV horror-comedy about a haunted island took home 14 Emmys, including the awards for best comedy, lead actor, writing, directing and supporting actor and actress.`\
 https://www.nytimes.com/2026/09/14/arts/television/widows-bay-the-pitt-emmys-awards.html
 
+**Emmy Awards Highlights: ‘Widow’s Bay’ Leads Apple TV to Big Night**\
+`The horror-comedy won 14 awards, and Apple TV took home the most Emmys for the first time. “The Pitt” won best drama for the second year in a row, as Matthew Rhys, Jean Smart and Allison Janney entered the record books.`\
+https://www.nytimes.com/live/2026/09/14/arts/emmy-awards-2026
+
 **‘NAZA’, un documental israelí, recibe ovaciones en el extranjero y rechazo en Israel**\
 `La película “NAZA” investiga la muerte de palestinos a manos de las fuerzas israelíes en Gaza. El ministro de Cultura de Israel ha sugerido que se revoque la ciudadanía de los directores.`\
 https://www.nytimes.com/es/2026/09/14/espanol/mundo/israel-gaza-naza-documental-ciudadania.html
@@ -133,60 +185,4 @@ https://www.nytimes.com/2026/09/14/briefing/the-local-flock-fraud-and-football.h
 **Bob Mackie: A Life in Pictures**\
 `The designer was known for his flashy, sparkly designs for Cher, Diana Ross, Tina Turner and countless others.`\
 https://www.nytimes.com/2026/09/14/style/bob-mackie-designer-photos.html
-
-**British Man Pleads Guilty to Drugging and Raping Wife Over 20 Years**\
-`The police said that a dozen other men conspired with the husband, who is in his 60s, to abuse the woman in northern England.`\
-https://www.nytimes.com/2026/09/14/world/europe/uk-man-wife-drugging-rape-confession.html
-
-**Abbott to Pay $385 Million to Settle Baby Formula Safety Allegations**\
-`The company recalled formulas manufactured at a Michigan plant in 2022, after health officials linked them to serious illnesses in babies.`\
-https://www.nytimes.com/2026/09/14/well/abbott-settlement-infant-formula.html
-
-**What Is Driving Diesel Prices Up? Energy Chaos Caused by Two Wars.**\
-`President Trump recently blamed Ukrainian attacks on Russian refineries for causing a spike in diesel prices, but analysts say the Iran war is probably a bigger factor.`\
-https://www.nytimes.com/2026/09/14/business/energy-environment/trump-diesel-russia-ukraine-iran.html
-
-**Macklemore Dropped From Ed Sheeran’s Tour After Palestine Comments**\
-`The rapper Macklemore was dropped as an opening act from Ed Sheeran’s tour after saying “Free Palestine” onstage.`\
-https://www.nytimes.com/video/us/100000011151467/macklemore-dropped-ed-sheeran-tour-palestine.html
-
-**The National Debt Never Scared Me. It Scares Me.**\
-`It’s too big to ignore. And it could all end badly.`\
-https://www.nytimes.com/2026/09/14/opinion/national-debt-trump.html
-
-**Macklemore Dropped From Ed Sheeran Tour After ‘Free Palestine’ Remarks**\
-`The rapper, a critic of the war in Gaza, made the comments onstage at MetLife Stadium.`\
-https://www.nytimes.com/2026/09/14/arts/music/macklemore-ed-sheeran-tour-palestine-gaza.html
-
-**Ex-Anthropic Employee on How A.I. Could Threaten Humanity**\
-`The A.I. researcher who quit Anthropic joins Natalie Kitroeff on “The Daily” to discuss how A.I. would actually pose an existential risk to human life.`\
-https://www.nytimes.com/video/podcasts/the-daily/100000011151420/ex-anthropic-employee-on-how-ai-could-threaten-humanity.html
-
-**Ex-Anthropic Employee: Here’s Why A.I. Might Want to Kill Us**\
-`The A.I. researcher who quit Anthropic joins Natalie Kitroeff on “The Daily” to discuss why A.I. systems might eventually become “anti-human.”`\
-https://www.nytimes.com/video/podcasts/the-daily/100000011151434/ex-anthropic-employee-heres-why-ai-might-want-to-kill-us.html
-
-**An Armadillo Arrives in … Ohio?**\
-`Traditionally found in warm climates, like the American Southwest, armadillos have been migrating farther and farther north, researchers say.`\
-https://www.nytimes.com/2026/09/14/us/armadillo-ohio.html
-
-**Why Is D.H.S. Getting Involved in Elections?**\
-`The Department of Homeland Security is in the midst of a weeks-long hunt for noncitizens among the nation’s registered voters despite the absence of evidence of widespread fraud. Reporter Hamed Aleaziz breaks down how a D.H.S. agency is using open-source state voter registration websites in their search for voter fraud.`\
-https://www.nytimes.com/video/us/politics/100000011133700/why-is-dhs-getting-involved-in-elections.html
-
-**Trump dice que para controlar la IA solo se necesita un presidente inteligente**\
-`El presidente de Estados Unidos intervino en el debate sobre cómo manejar una tecnología en rápida evolución que, según investigadores y líderes de la industria, plantea grandes riesgos.`\
-https://www.nytimes.com/es/2026/09/14/espanol/estados-unidos/trump-ia-anthropic.html
-
-**Los altos mandos del Pentágono enfrentan la agitación bajo el mando de Hegseth**\
-`Las distracciones persistentes han creado un clima de desconfianza a medida que las fuerzas armadas de EE. UU. enfrentan una serie de problemas en tiempos de guerra.`\
-https://www.nytimes.com/es/2026/09/14/espanol/estados-unidos/pentagono-secretario-defensa-crisis.html
-
-**Whistle-Blower: Federal Agents May Have Broken State Laws in Search For Voter Fraud**\
-`Agents expressed concern about being directed by top Homeland Security leaders to use private information to look up voter records in state databases.`\
-https://www.nytimes.com/2026/09/14/us/politics/homeland-security-voter-fraud-investigation.html
-
-**Tens of Thousands Displaced as Houthis Advance Along Yemen’s Coast**\
-`Recent fighting between the Iran-backed Houthi rebels and Saudi-backed Yemeni government forces has displaced tens of thousands of families to camps in government-held areas.`\
-https://www.nytimes.com/video/world/middleeast/100000011150589/tens-of-thousands-displaced-as-houthis-advance-along-yemens-coast.html
 
