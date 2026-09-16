@@ -1,3 +1,35 @@
+**U.S. Imposes Sanctions on Russia’s VTB Bank Over Ties to Iran**\
+`The move, which targeted a bank that is already under U.S. sanctions, was part of the Trump administration’s Operation Economic Outcast initiative.`\
+https://www.nytimes.com/2026/09/14/business/us-sanctions-russia-vtb-bank-iran.html
+
+**Political Figures From Bernie Sanders to Steve Bannon Sound Alarms on A.I.**\
+`The two men will appear separately at an event calling for a “pro-human” approach to A.I. as warnings mount from the industry and the technology’s danger becomes a midterm issue.`\
+https://www.nytimes.com/2026/09/14/us/politics/bernie-sanders-steve-bannon-ai-regulation-midterm-candidates.html
+
+**A 9/11 Story of Grief and Love**\
+`Katherine Rosman of The Times explored the relationship of a young man and his grandmother, and how they wrestled with grief in very different ways.`\
+https://www.nytimes.com/2026/09/14/insider/september-11-grief.html
+
+**Arabia Saudita pierde opciones entre el desaire de Trump y los ataques de Irán**\
+`El reino se encuentra en un estado de conmoción estratégica tras ser atacado por un Irán envalentonado y no lograr obtener más apoyo militar estadounidense, dicen los analistas.`\
+https://www.nytimes.com/es/2026/09/14/espanol/mundo/ataques-iran-arabia-saudita-trump.html
+
+**Half-Marathoners in New Jersey Wade Through Flooded Course**\
+`Harrowing social media videos showed runners navigating chest-high waters after a drenching rainstorm on Sunday.`\
+https://www.nytimes.com/2026/09/14/nyregion/half-marathon-new-jersey-flooding.html
+
+**Russian Businessman With Putin Ties Paid for Donald Trump Jr.’s Wedding Party**\
+`The payments, totaling hundreds of thousands of dollars, represented an extraordinary flouting of ethical norms for an American president’s family member.`\
+https://www.nytimes.com/2026/09/14/us/politics/donald-trump-jr-wedding-russian-businessman.html
+
+**The Local: Flock, fraud and football**\
+`Plus, a Twin Cities travel quiz.`\
+https://www.nytimes.com/2026/09/14/briefing/the-local-flock-fraud-and-football.html
+
+**Bob Mackie: A Life in Pictures**\
+`The designer was known for his flashy, sparkly designs for Cher, Diana Ross, Tina Turner and countless others.`\
+https://www.nytimes.com/2026/09/14/style/bob-mackie-designer-photos.html
+
 **Reba McEntire Honors Dolly Parton With Rendition of ‘Appalachian Memories’**\
 `The beloved country music superstars shared a decades-long friendship.`\
 https://www.nytimes.com/2026/09/14/arts/television/dolly-parton-reba-mcentire-appalachian-memories.html
