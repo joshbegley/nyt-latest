@@ -1,3 +1,31 @@
+**Mariska Hargitay Opens 2026 Emmys With a Musical Tribute to TV**\
+`The hosting gig comes as a part of a big year for the actress that has included two Emmys for her documentary about her mother, Jayne Mansfield.`\
+https://www.nytimes.com/2026/09/14/arts/television/mariska-hargitay-emmys-monologue.html
+
+**Jean Smart Wins Emmy for ‘Hacks’ and Makes History**\
+`An award for the final season of “Hacks” makes Smart one of the most prolific Emmy-winning actresses in history.`\
+https://www.nytimes.com/2026/09/14/arts/television/jean-smart-hacks-emmys-history.html
+
+**They Could Afford to Stand Up to Trump. Why Didn’t They?**\
+`The more the logic of capitalism pervades the rest of life, the less room there is for compassion, honor or heroism.`\
+https://www.nytimes.com/2026/09/14/opinion/institutions-power-trump.html
+
+**America’s Best Restaurants 2026**\
+`Our 50 favorite places in America right now.`\
+https://www.nytimes.com/interactive/2026/dining/best-restaurants-america.html
+
+**Read the Supreme Court’s Ruling on Mail Voting Restrictions**\
+`The order blocks a Trump administration plan to dramatically change how Americans vote by mail in the lead-up to the midterm elections.`\
+https://www.nytimes.com/interactive/2026/09/14/us/scotus-mail.html
+
+**Judge Blocks Trump Rule Aimed at International Students and Journalists**\
+`Judge F. Dennis Saylor IV wrote that the administration’s reasons for a rule limiting the length of stay for academics and journalists were “exceptionally weak.”`\
+https://www.nytimes.com/2026/09/14/us/politics/foreign-students-visas-trump-ruling.html
+
+**Emmy Awards Highlights: ‘Widow’s Bay’ Leads Apple TV to Big Night**\
+`The horror-comedy won 14 awards, and Apple TV took home the most Emmys for the first time. “The Pitt” won best drama for the second year in a row, as Matthew Rhys, Jean Smart and Allison Janney entered the record books.`\
+https://www.nytimes.com/live/2026/09/14/arts/emmy-awards-2026
+
 **The Local: Flock, fraud and football**\
 `Plus, a Twin Cities travel quiz.`\
 https://www.nytimes.com/2026/09/14/briefing/the-local-flock-fraud-and-football.html
