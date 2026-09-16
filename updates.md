@@ -1,3 +1,23 @@
+**Abbott to Pay $385 Million to Settle Baby Formula Safety Allegations**\
+`The company recalled formulas manufactured at a Michigan plant in 2022, after health officials linked them to serious illnesses in babies.`\
+https://www.nytimes.com/2026/09/14/well/abbott-settlement-infant-formula.html
+
+**What Is Driving Diesel Prices Up? Energy Chaos Caused by Two Wars.**\
+`President Trump recently blamed Ukrainian attacks on Russian refineries for causing a spike in diesel prices, but analysts say the Iran war is probably a bigger factor.`\
+https://www.nytimes.com/2026/09/14/business/energy-environment/trump-diesel-russia-ukraine-iran.html
+
+**Macklemore Dropped From Ed Sheeran’s Tour After Palestine Comments**\
+`The rapper Macklemore was dropped as an opening act from Ed Sheeran’s tour after saying “Free Palestine” onstage.`\
+https://www.nytimes.com/video/us/100000011151467/macklemore-dropped-ed-sheeran-tour-palestine.html
+
+**The National Debt Never Scared Me. It Scares Me.**\
+`It’s too big to ignore. And it could all end badly.`\
+https://www.nytimes.com/2026/09/14/opinion/national-debt-trump.html
+
+**Macklemore Dropped From Ed Sheeran Tour After ‘Free Palestine’ Remarks**\
+`The rapper, a critic of the war in Gaza, made the comments onstage at MetLife Stadium.`\
+https://www.nytimes.com/2026/09/14/arts/music/macklemore-ed-sheeran-tour-palestine-gaza.html
+
 **British Man Pleads Guilty to Drugging and Raping Wife Over 20 Years**\
 `The police said that a dozen other men conspired with the husband, who is in his 60s, to abuse the woman in northern England.`\
 https://www.nytimes.com/2026/09/14/world/europe/uk-man-wife-drugging-rape-confession.html
