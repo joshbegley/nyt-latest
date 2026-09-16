@@ -1,11 +1,3 @@
-**Supreme Court Justices Thomas and Alito Would Have Allowed Trump’s Mail-In Ballot Rules**\
-`Justice Samuel A. Alito Jr., joined by Justice Clarence Thomas, called the challenge to the restrictions a “Hail Mary pass” that was unlikely to prevail because of the Postal Service’s broad authority to regulate the mail.`\
-https://www.nytimes.com/2026/09/14/us/elections/supreme-court-alito-thomas-dissent.html
-
-**Matthew Rhys Achieves a Historic Emmys Trifecta**\
-`The Welsh actor became the first in the awards show’s history to win lead acting prizes in the drama, comedy and limited series fields.`\
-https://www.nytimes.com/2026/09/14/arts/television/matthew-rhys-emmys-widows-bay-the-beast-in-me.html
-
 **See Your Favorite and Least Favorite Looks From the Emmys**\
 `You watched, you voted. Thank you for participating. See the results below!`\
 https://www.nytimes.com/interactive/2026/09/14/style/emmys-best-dressed-vote.html
@@ -185,4 +177,12 @@ https://www.nytimes.com/2026/09/14/nyregion/half-marathon-new-jersey-flooding.ht
 **Russian Businessman With Putin Ties Paid for Donald Trump Jr.’s Wedding Party**\
 `The payments, totaling hundreds of thousands of dollars, represented an extraordinary flouting of ethical norms for an American president’s family member.`\
 https://www.nytimes.com/2026/09/14/us/politics/donald-trump-jr-wedding-russian-businessman.html
+
+**The Local: Flock, fraud and football**\
+`Plus, a Twin Cities travel quiz.`\
+https://www.nytimes.com/2026/09/14/briefing/the-local-flock-fraud-and-football.html
+
+**Bob Mackie: A Life in Pictures**\
+`The designer was known for his flashy, sparkly designs for Cher, Diana Ross, Tina Turner and countless others.`\
+https://www.nytimes.com/2026/09/14/style/bob-mackie-designer-photos.html
 
