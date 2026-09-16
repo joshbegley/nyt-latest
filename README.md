@@ -1,11 +1,3 @@
-**‘The Late Show With Stephen Colbert’ Goes Out With an Emmy Win**\
-`For its final season, the series won an overhauled variety category in which any or all of the nominees could have claimed an Emmy Award.`\
-https://www.nytimes.com/2026/09/14/arts/television/the-late-show-stephen-colbert-emmy-.html
-
-**Supreme Court Justices Thomas and Alito Would Have Allowed Trump’s Mail-In Ballot Rules**\
-`Justice Samuel A. Alito Jr., joined by Justice Clarence Thomas, called the challenge to the restrictions a “Hail Mary pass” that was unlikely to prevail because of the Postal Service’s broad authority to regulate the mail.`\
-https://www.nytimes.com/2026/09/14/us/elections/supreme-court-alito-thomas-dissent.html
-
 **Matthew Rhys Achieves a Historic Emmys Trifecta**\
 `The Welsh actor became the first in the awards show’s history to win lead acting prizes in the drama, comedy and limited series fields.`\
 https://www.nytimes.com/2026/09/14/arts/television/matthew-rhys-emmys-widows-bay-the-beast-in-me.html
@@ -181,4 +173,16 @@ https://www.nytimes.com/2026/09/14/insider/september-11-grief.html
 **Arabia Saudita pierde opciones entre el desaire de Trump y los ataques de Irán**\
 `El reino se encuentra en un estado de conmoción estratégica tras ser atacado por un Irán envalentonado y no lograr obtener más apoyo militar estadounidense, dicen los analistas.`\
 https://www.nytimes.com/es/2026/09/14/espanol/mundo/ataques-iran-arabia-saudita-trump.html
+
+**Half-Marathoners in New Jersey Wade Through Flooded Course**\
+`Harrowing social media videos showed runners navigating chest-high waters after a drenching rainstorm on Sunday.`\
+https://www.nytimes.com/2026/09/14/nyregion/half-marathon-new-jersey-flooding.html
+
+**Russian Businessman With Putin Ties Paid for Donald Trump Jr.’s Wedding Party**\
+`The payments, totaling hundreds of thousands of dollars, represented an extraordinary flouting of ethical norms for an American president’s family member.`\
+https://www.nytimes.com/2026/09/14/us/politics/donald-trump-jr-wedding-russian-businessman.html
+
+**The Local: Flock, fraud and football**\
+`Plus, a Twin Cities travel quiz.`\
+https://www.nytimes.com/2026/09/14/briefing/the-local-flock-fraud-and-football.html
 
