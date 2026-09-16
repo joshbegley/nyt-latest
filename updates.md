@@ -1,3 +1,19 @@
+**An Armadillo Arrives in … Ohio?**\
+`Traditionally found in warm climates, like the American Southwest, armadillos have been migrating farther and farther north, researchers say.`\
+https://www.nytimes.com/2026/09/14/us/armadillo-ohio.html
+
+**Why Is D.H.S. Getting Involved in Elections?**\
+`The Department of Homeland Security is in the midst of a weeks-long hunt for noncitizens among the nation’s registered voters despite the absence of evidence of widespread fraud. Reporter Hamed Aleaziz breaks down how a D.H.S. agency is using open-source state voter registration websites in their search for voter fraud.`\
+https://www.nytimes.com/video/us/politics/100000011133700/why-is-dhs-getting-involved-in-elections.html
+
+**Trump dice que para controlar la IA solo se necesita un presidente inteligente**\
+`El presidente de Estados Unidos intervino en el debate sobre cómo manejar una tecnología en rápida evolución que, según investigadores y líderes de la industria, plantea grandes riesgos.`\
+https://www.nytimes.com/es/2026/09/14/espanol/estados-unidos/trump-ia-anthropic.html
+
+**Los altos mandos del Pentágono enfrentan la agitación bajo el mando de Hegseth**\
+`Las distracciones persistentes han creado un clima de desconfianza a medida que las fuerzas armadas de EE. UU. enfrentan una serie de problemas en tiempos de guerra.`\
+https://www.nytimes.com/es/2026/09/14/espanol/estados-unidos/pentagono-secretario-defensa-crisis.html
+
 **Arabia Saudita pierde opciones entre el desaire de Trump y los ataques de Irán**\
 `El reino se encuentra en un estado de conmoción estratégica tras ser atacado por un Irán envalentonado y no lograr obtener más apoyo militar estadounidense, dicen los analistas.`\
 https://www.nytimes.com/es/2026/09/14/espanol/mundo/ataques-iran-arabia-saudita-trump.html
