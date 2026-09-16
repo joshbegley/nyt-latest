@@ -1,3 +1,11 @@
+**Supreme Court Justices Thomas and Alito Would Have Allowed Trump’s Mail-In Ballot Rules**\
+`Justice Samuel A. Alito Jr., joined by Justice Clarence Thomas, called the challenge to the restrictions a “Hail Mary pass” that was unlikely to prevail because of the Postal Service’s broad authority to regulate the mail.`\
+https://www.nytimes.com/2026/09/14/us/elections/supreme-court-alito-thomas-dissent.html
+
+**Matthew Rhys Achieves a Historic Emmys Trifecta**\
+`The Welsh actor became the first in the awards show’s history to win lead acting prizes in the drama, comedy and limited series fields.`\
+https://www.nytimes.com/2026/09/14/arts/television/matthew-rhys-emmys-widows-bay-the-beast-in-me.html
+
 **Bob Mackie: A Life in Pictures**\
 `The designer was known for his flashy, sparkly designs for Cher, Diana Ross, Tina Turner and countless others.`\
 https://www.nytimes.com/2026/09/14/style/bob-mackie-designer-photos.html
