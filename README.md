@@ -1,3 +1,19 @@
+**New York Moves Away from Regents Exams for High School Seniors**\
+`A state board authorized phasing out the tests, long viewed as a rite of passage for high school seniors, as a diploma requirement. What replaces them is an open question.`\
+https://www.nytimes.com/2026/09/14/nyregion/new-york-regents-exam-high-school-students.html
+
+**Mariska Hargitay Opens 2026 Emmys With a Musical Tribute to TV**\
+`The hosting gig comes as a part of a big year for the actress that has included two Emmys for her documentary about her mother, Jayne Mansfield.`\
+https://www.nytimes.com/2026/09/14/arts/television/mariska-hargitay-emmys-monologue.html
+
+**Jean Smart Wins Emmy for ‘Hacks’ and Makes History**\
+`An award for the final season of “Hacks” makes Smart one of the most prolific Emmy-winning actresses in history.`\
+https://www.nytimes.com/2026/09/14/arts/television/jean-smart-hacks-emmys-history.html
+
+**They Could Afford to Stand Up to Trump. Why Didn’t They?**\
+`The more the logic of capitalism pervades the rest of life, the less room there is for compassion, honor or heroism.`\
+https://www.nytimes.com/2026/09/14/opinion/institutions-power-trump.html
+
 **America’s Best Restaurants 2026**\
 `Our 50 favorite places in America right now.`\
 https://www.nytimes.com/interactive/2026/dining/best-restaurants-america.html
@@ -169,20 +185,4 @@ https://www.nytimes.com/video/us/100000011151467/macklemore-dropped-ed-sheeran-t
 **The National Debt Never Scared Me. It Scares Me.**\
 `It’s too big to ignore. And it could all end badly.`\
 https://www.nytimes.com/2026/09/14/opinion/national-debt-trump.html
-
-**Macklemore Dropped From Ed Sheeran Tour After ‘Free Palestine’ Remarks**\
-`The rapper, a critic of the war in Gaza, made the comments onstage at MetLife Stadium.`\
-https://www.nytimes.com/2026/09/14/arts/music/macklemore-ed-sheeran-tour-palestine-gaza.html
-
-**Ex-Anthropic Employee on How A.I. Could Threaten Humanity**\
-`The A.I. researcher who quit Anthropic joins Natalie Kitroeff on “The Daily” to discuss how A.I. would actually pose an existential risk to human life.`\
-https://www.nytimes.com/video/podcasts/the-daily/100000011151420/ex-anthropic-employee-on-how-ai-could-threaten-humanity.html
-
-**Ex-Anthropic Employee: Here’s Why A.I. Might Want to Kill Us**\
-`The A.I. researcher who quit Anthropic joins Natalie Kitroeff on “The Daily” to discuss why A.I. systems might eventually become “anti-human.”`\
-https://www.nytimes.com/video/podcasts/the-daily/100000011151434/ex-anthropic-employee-heres-why-ai-might-want-to-kill-us.html
-
-**An Armadillo Arrives in … Ohio?**\
-`Traditionally found in warm climates, like the American Southwest, armadillos have been migrating farther and farther north, researchers say.`\
-https://www.nytimes.com/2026/09/14/us/armadillo-ohio.html
 
