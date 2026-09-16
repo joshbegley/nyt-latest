@@ -1,3 +1,7 @@
+**British Man Pleads Guilty to Drugging and Raping Wife Over 20 Years**\
+`The police said that a dozen other men conspired with the husband, who is in his 60s, to abuse the woman in northern England.`\
+https://www.nytimes.com/2026/09/14/world/europe/uk-man-wife-drugging-rape-confession.html
+
 **U.S. Imposes Sanctions on Russia’s VTB Bank Over Ties to Iran**\
 `The move, which targeted a bank that is already under U.S. sanctions, was part of the Trump administration’s Operation Economic Outcast initiative.`\
 https://www.nytimes.com/2026/09/14/business/us-sanctions-russia-vtb-bank-iran.html
