@@ -1,3 +1,71 @@
+**Reba McEntire Honors Dolly Parton With Rendition of ‘Appalachian Memories’**\
+`The beloved country music superstars shared a decades-long friendship.`\
+https://www.nytimes.com/2026/09/14/arts/television/dolly-parton-reba-mcentire-appalachian-memories.html
+
+**Have Thoughts on the Emmy’s Red Carpet? Join Our Readers in the Comments.**\
+`Television’s biggest stars have walked the carpet. Now that you’ve seen what everyone is wearing and voted for your favorite looks, we invite you to comment on a few of the styles.`\
+https://www.nytimes.com/2026/09/14/style/emmys-red-carpet-reader-comments.html
+
+**Widow’s Bay’ Dominates the Emmy Comedy Category**\
+`The Apple TV show displaced past winners and favorites to win most of the comedy Emmys on Monday night, including best series.`\
+https://www.nytimes.com/2026/09/14/arts/television/widows-bay-emmy-best-comedy.html
+
+**NYT Crossword Answers for Sept. 15, 2026**\
+`Just call Nate Cardin “Mr. Crossword.”`\
+https://www.nytimes.com/2026/09/14/crosswords/daily-puzzle-2026-09-15.html
+
+**Candid Photos From the 2026 Emmys**\
+`Candid moments with Stephen Colbert, Megan Stalter, Rachel Sennott, Matthew Rhys and more.`\
+https://www.nytimes.com/2026/09/14/arts/television/emmys-candid-photos.html
+
+**‘The Late Show With Stephen Colbert’ Goes Out With an Emmy Win**\
+`For its final season, the series won an overhauled variety category in which any or all of the nominees could have claimed an Emmy Award.`\
+https://www.nytimes.com/2026/09/14/arts/television/the-late-show-stephen-colbert-emmy-.html
+
+**Supreme Court Justices Thomas and Alito Would Have Allowed Trump’s Mail-In Ballot Rules**\
+`Justice Samuel A. Alito Jr., joined by Justice Clarence Thomas, called the challenge to the restrictions a “Hail Mary pass” that was unlikely to prevail because of the Postal Service’s broad authority to regulate the mail.`\
+https://www.nytimes.com/2026/09/14/us/elections/supreme-court-alito-thomas-dissent.html
+
+**Matthew Rhys Achieves a Historic Emmys Trifecta**\
+`The Welsh actor became the first in the awards show’s history to win lead acting prizes in the drama, comedy and limited series fields.`\
+https://www.nytimes.com/2026/09/14/arts/television/matthew-rhys-emmys-widows-bay-the-beast-in-me.html
+
+**See Your Favorite and Least Favorite Looks From the Emmys**\
+`You watched, you voted. Thank you for participating. See the results below!`\
+https://www.nytimes.com/interactive/2026/09/14/style/emmys-best-dressed-vote.html
+
+**Trump’s Effort to Assert Control Over Elections Continues Despite Supreme Court Loss**\
+`President Trump has launched a broad, governmentwide effort to take more control of state-run elections and sow doubt about the outcome.`\
+https://www.nytimes.com/2026/09/14/us/politics/supreme-court-trump-mail-in-ballots.html
+
+**Elections Officials Breathe Sigh of Relief Following Court Ruling on Mail Ballots**\
+`Officials cheered the order blocking President Trump’s last-minute effort to change the rules on mail ballots, noting that some states had already mailed ballots.`\
+https://www.nytimes.com/2026/09/14/us/elections/mail-ballot-ruling-reaction.html
+
+**Sydney Sweeney Sports Betting Ad Sparks Backlash From Athletes**\
+`A nude campaign for a sports betting app drew strong responses. Was it all strategic?`\
+https://www.nytimes.com/2026/09/14/style/sydney-sweeney-sports-ad-novig.html
+
+**Rhea Seehorn Wins Her First Emmy for ‘Pluribus’**\
+`After coming up short twice for “Better Call Saul,” her commanding role in Vince Gilligan’s Apple sci-fi drama put her over the top.`\
+https://www.nytimes.com/2026/09/14/arts/television/rhea-seehorn-first-emmy-pluribus.html
+
+**New York Moves Away from Regents Exams for High School Seniors**\
+`A state board authorized phasing out the tests, long viewed as a rite of passage for high school seniors, as a diploma requirement. What replaces them is an open question.`\
+https://www.nytimes.com/2026/09/14/nyregion/new-york-regents-exam-high-school-students.html
+
+**Mariska Hargitay Opens 2026 Emmys With a Musical Tribute to TV**\
+`The hosting gig comes as a part of a big year for the actress that has included two Emmys for her documentary about her mother, Jayne Mansfield.`\
+https://www.nytimes.com/2026/09/14/arts/television/mariska-hargitay-emmys-monologue.html
+
+**Jean Smart Wins Emmy for ‘Hacks’ and Makes History**\
+`An award for the final season of “Hacks” makes Smart one of the most prolific Emmy-winning actresses in history.`\
+https://www.nytimes.com/2026/09/14/arts/television/jean-smart-hacks-emmys-history.html
+
+**They Could Afford to Stand Up to Trump. Why Didn’t They?**\
+`The more the logic of capitalism pervades the rest of life, the less room there is for compassion, honor or heroism.`\
+https://www.nytimes.com/2026/09/14/opinion/institutions-power-trump.html
+
 **America’s Best Restaurants 2026**\
 `Our 50 favorite places in America right now.`\
 https://www.nytimes.com/interactive/2026/dining/best-restaurants-america.html
