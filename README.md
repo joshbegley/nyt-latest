@@ -1,7 +1,3 @@
-**See Your Favorite and Least Favorite Looks From the Emmys**\
-`You watched, you voted. Thank you for participating. See the results below!`\
-https://www.nytimes.com/interactive/2026/09/14/style/emmys-best-dressed-vote.html
-
 **Trump’s Effort to Assert Control Over Elections Continues Despite Supreme Court Loss**\
 `President Trump has launched a broad, governmentwide effort to take more control of state-run elections and sow doubt about the outcome.`\
 https://www.nytimes.com/2026/09/14/us/politics/supreme-court-trump-mail-in-ballots.html
@@ -185,4 +181,8 @@ https://www.nytimes.com/2026/09/14/briefing/the-local-flock-fraud-and-football.h
 **Bob Mackie: A Life in Pictures**\
 `The designer was known for his flashy, sparkly designs for Cher, Diana Ross, Tina Turner and countless others.`\
 https://www.nytimes.com/2026/09/14/style/bob-mackie-designer-photos.html
+
+**British Man Pleads Guilty to Drugging and Raping Wife Over 20 Years**\
+`The police said that a dozen other men conspired with the husband, who is in his 60s, to abuse the woman in northern England.`\
+https://www.nytimes.com/2026/09/14/world/europe/uk-man-wife-drugging-rape-confession.html
 
