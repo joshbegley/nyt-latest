@@ -1,3 +1,11 @@
+**Matthew Rhys Achieves a Historic Emmys Trifecta**\
+`The Welsh actor became the first in the awards show’s history to win lead acting prizes in the drama, comedy and limited series fields.`\
+https://www.nytimes.com/2026/09/14/arts/television/matthew-rhys-emmys-widows-bay-the-beast-in-me.html
+
+**See Your Favorite and Least Favorite Looks From the Emmys**\
+`You watched, you voted. Thank you for participating. See the results below!`\
+https://www.nytimes.com/interactive/2026/09/14/style/emmys-best-dressed-vote.html
+
 **Russian Businessman With Putin Ties Paid for Donald Trump Jr.’s Wedding Party**\
 `The payments, totaling hundreds of thousands of dollars, represented an extraordinary flouting of ethical norms for an American president’s family member.`\
 https://www.nytimes.com/2026/09/14/us/politics/donald-trump-jr-wedding-russian-businessman.html
