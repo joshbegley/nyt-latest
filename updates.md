@@ -1,3 +1,7 @@
+**Bob Mackie: A Life in Pictures**\
+`The designer was known for his flashy, sparkly designs for Cher, Diana Ross, Tina Turner and countless others.`\
+https://www.nytimes.com/2026/09/14/style/bob-mackie-designer-photos.html
+
 **U.S. Imposes Sanctions on Russia’s VTB Bank Over Ties to Iran**\
 `The move, which targeted a bank that is already under U.S. sanctions, was part of the Trump administration’s Operation Economic Outcast initiative.`\
 https://www.nytimes.com/2026/09/14/business/us-sanctions-russia-vtb-bank-iran.html
