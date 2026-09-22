@@ -1,3 +1,7 @@
+**Rollerblading Norwegian Dies After Being Hit by a Car in Kansas**\
+`The 24-year-old man had been traveling cross-country from New York to Los Angeles after starting out in August.`\
+https://www.nytimes.com/2026/09/22/us/rollerblader-death-kansas-cross-country.html
+
 **Hurricane Polo Just Keeps Getting Stronger**\
 `The storm is expected to stay mainly offshore as it moves north along the western coast of Mexico this week. It’s one of the strongest ever in that region.`\
 https://www.nytimes.com/live/2026/09/22/weather/hurricane-polo-mexico
