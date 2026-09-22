@@ -1,3 +1,7 @@
+**As Trump Lobs Threats, Other World Leaders Mostly Avoid Talk of Iran**\
+`Some leaders criticized the global impact of the war and called for negotiations to resume, but they stopped short of criticizing President Trump’s remarks.`\
+https://www.nytimes.com/2026/09/22/world/trump-threats-world-leaders-iran-war.html
+
 **Hospitals Shut Youth Gender Clinics in Deal with Trump Administration**\
 `At least six hospitals have struck agreements with the Trump administration to pay fines and stop providing gender-transition treatments to minors.`\
 https://www.nytimes.com/2026/09/22/us/trangender-youths-hospital-settlements.html

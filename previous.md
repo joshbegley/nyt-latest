@@ -1,3 +1,7 @@
+**As Trump Lobs Threats, Other World Leaders Mostly Avoid Talk of Iran**\
+`Some leaders criticized the global impact of the war and called for negotiations to resume, but they stopped short of criticizing President Trump’s remarks.`\
+https://www.nytimes.com/2026/09/22/world/trump-threats-world-leaders-iran-war.html
+
 **Hospitals Shut Youth Gender Clinics in Deal with Trump Administration**\
 `At least six hospitals have struck agreements with the Trump administration to pay fines and stop providing gender-transition treatments to minors.`\
 https://www.nytimes.com/2026/09/22/us/trangender-youths-hospital-settlements.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/09/22/well/ozempic-glp1-medical-reason.html
 **Ella Langley’s ‘Choosin’ Texas’ Topples Mariah Carey’s Chart Record**\
 `The country ballad holds the No. 1 spot on the Billboard chart for a 23rd nonconsecutive week, besting the record set by “All I Want for Christmas Is You.”`\
 https://www.nytimes.com/2026/09/22/arts/music/ella-langley-choosin-texas-chart-record.html
-
-**Veterans Package Stalls After House’s Swift Departure**\
-`A veterans benefits bill that Republicans had hoped to pass ahead of the midterm elections is falling apart amid a battle over its cost.`\
-https://www.nytimes.com/2026/09/22/us/politics/veterans-benefits-bill-congress-elections.html
 
 **U.N. Live Updates: As Trump Threatens Iran, Other Leaders Warn of Deep Divisions**\
 `President Trump said he must decide whether to make a deal or “annihilate” Iran, in a gathering where world leaders typically focus on declarations of global harmony.`\
