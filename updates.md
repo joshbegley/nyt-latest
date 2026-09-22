@@ -1,3 +1,7 @@
+**Hospitals Shut Youth Gender Clinics in Deal with Trump Administration**\
+`At least six hospitals have struck agreements with the Trump administration to pay fines and stop providing gender-transition treatments to minors.`\
+https://www.nytimes.com/2026/09/22/us/trangender-youths-hospital-settlements.html
+
 **Qantas’s New York-to-Sydney ‘Project Sunrise’ Flights to Take Off in 2028**\
 `Qantas Airways said the 18-hour flights, part of its Project Sunrise program, would come months after its 22-hour direct flights from Sydney to London begin.`\
 https://www.nytimes.com/2026/09/22/travel/qantas-project-sunrise-flights.html
