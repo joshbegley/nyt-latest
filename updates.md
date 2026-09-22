@@ -1,3 +1,7 @@
+**A New Cat Species**\
+`Why is this discovery important — and how could scientists learn more?`\
+https://www.nytimes.com/2026/09/22/learning/a-new-cat-species.html
+
 **Judge Dismisses Unusual Climate Suit Claiming Oil Giants Broke Antitrust Law**\
 `The lawsuit, filed by Michigan, claimed oil companies colluded to obstruct solar power and to misrepresent climate risks, making energy costlier.`\
 https://www.nytimes.com/2026/09/22/climate/michigan-antitrust-lawsuit-oil-companies.html
