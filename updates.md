@@ -1,3 +1,11 @@
+**Qantas’s New York-to-Sydney ‘Project Sunrise’ Flights to Take Off in 2028**\
+`Qantas Airways said the 18-hour flights, part of its Project Sunrise program, would come months after its 22-hour direct flights from Sydney to London begin.`\
+https://www.nytimes.com/2026/09/22/travel/qantas-project-sunrise-flights.html
+
+**Andy Burnham, U.K.’s New Prime Minister, Prepares for U.N. Spotlight**\
+`Andy Burnham appears likely to promote support for Ukraine and hold to tough lines on Israel and the war on Iran.`\
+https://www.nytimes.com/2026/09/22/world/europe/andy-burnham-unga-ukraine-iran-war.html
+
 **Rollerblading Norwegian Dies After Being Hit by a Car in Kansas**\
 `The 24-year-old man had been traveling cross-country from New York to Los Angeles after starting out in August.`\
 https://www.nytimes.com/2026/09/22/us/rollerblader-death-kansas-cross-country.html

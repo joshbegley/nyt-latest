@@ -1,3 +1,11 @@
+**Qantas’s New York-to-Sydney ‘Project Sunrise’ Flights to Take Off in 2028**\
+`Qantas Airways said the 18-hour flights, part of its Project Sunrise program, would come months after its 22-hour direct flights from Sydney to London begin.`\
+https://www.nytimes.com/2026/09/22/travel/qantas-project-sunrise-flights.html
+
+**Andy Burnham, U.K.’s New Prime Minister, Prepares for U.N. Spotlight**\
+`Andy Burnham appears likely to promote support for Ukraine and hold to tough lines on Israel and the war on Iran.`\
+https://www.nytimes.com/2026/09/22/world/europe/andy-burnham-unga-ukraine-iran-war.html
+
 **Rollerblading Norwegian Dies After Being Hit by a Car in Kansas**\
 `The 24-year-old man had been traveling cross-country from New York to Los Angeles after starting out in August.`\
 https://www.nytimes.com/2026/09/22/us/rollerblader-death-kansas-cross-country.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/09/22/us/politics/veterans-benefits-bill-congress-e
 **Senator, Doctor, Debt Collector**\
 `Responses to an article about Senator Roger Marshall, who as a doctor sued more than 700 patients with outstanding bills. Also: Psychedelic therapy; bravo to the Kennedys.`\
 https://www.nytimes.com/2026/09/22/opinion/roger-marshall-doctors-debt.html
-
-**Trump Officials Eject 750,000 From Obamacare Markets, Claiming Fraud**\
-`Vice President JD Vance said the measure would save the government $2.2 billion.`\
-https://www.nytimes.com/2026/09/22/us/politics/aca-obamacare-vance-fraud.html
-
-**Macron to Make His Final U.N. General Assembly Appearance as France’s President**\
-`During his tenure as France’s president, Emmanuel Macron has evolved from a political upstart to a senior statesman.`\
-https://www.nytimes.com/2026/09/22/world/europe/macron-un-general-assembly.html
 
 **U.N. Live Updates: As Trump Threatens Iran, Other Leaders Warn of Deep Divisions**\
 `President Trump said he must decide whether to make a deal or “annihilate” Iran, in a gathering where world leaders typically focus on declarations of global harmony.`\
