@@ -1,3 +1,11 @@
+**Macron Calls on the U.N. to Fight Against the ‘Law of the Jungle’**\
+`In his farewell address to the General Assembly, the French president criticized Russia, Israel and, in more veiled terms, the United States.`\
+https://www.nytimes.com/2026/09/22/world/europe/macron-farewell-united-nations-speech.html
+
+**How Paramount Won Warner Bros.**\
+`After months of legal and political wrangling, the media mogul David Ellison arrived at a deal with the coalition of states seeking to block his $111 billion acquisition of Warner Bros. Discovery.`\
+https://www.nytimes.com/2026/09/22/business/paramount-warner-bros-ellison-bonta.html
+
 **Zelensky Says He Hopes Trump Helps Him to End the War ‘Before Winter’**\
 `The remarks by President Volodymyr Zelensky of Ukraine came during a meeting with President Trump as an effort to restart talks with Russia has gone nowhere.`\
 https://www.nytimes.com/2026/09/22/world/europe/zelensky-trump-war-russia.html

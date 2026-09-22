@@ -1,3 +1,7 @@
+**Macron Calls on the U.N. to Fight Against the ‘Law of the Jungle’**\
+`In his farewell address to the General Assembly, the French president criticized Russia, Israel and, in more veiled terms, the United States.`\
+https://www.nytimes.com/2026/09/22/world/europe/macron-farewell-united-nations-speech.html
+
 **Zelensky Says He Hopes Trump Helps Him to End the War ‘Before Winter’**\
 `The remarks by President Volodymyr Zelensky of Ukraine came during a meeting with President Trump as an effort to restart talks with Russia has gone nowhere.`\
 https://www.nytimes.com/2026/09/22/world/europe/zelensky-trump-war-russia.html
@@ -99,7 +103,7 @@ https://www.nytimes.com/2026/09/22/us/politics/fact-check-trump-united-nations.h
 https://www.nytimes.com/2026/09/22/technology/anthropic-ai-model-safety.html
 
 **How Paramount Won Warner Bros.**\
-`Inside the settlement talks between the media mogul David Ellison and the coalition of states seeking to block his $111 billion deal.`\
+`After months of legal and political wrangling, the media mogul David Ellison arrived at a deal with the coalition of states seeking to block his $111 billion acquisition of Warner Bros. Discovery.`\
 https://www.nytimes.com/2026/09/22/business/paramount-warner-bros-ellison-bonta.html
 
 **Netanyahu Falsely Accuses Mamdani of Supporting Hamas After Mayor’s CNN Interview**\
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/09/22/arts/black-jefferson-descendant-buried-montic
 **He Fell 35 Feet. He Never Really Landed.**\
 `Brittany Wagner’s father survived a 35-foot fall. But it was everything that came after — chronic pain, financial hardship and years of fighting for help within a broken system — that slowly unraveled his life. After her father died by suicide, Brittany discovered 694 videos he had recorded over the years. They became a record of his nearly 18-year struggle — and a way for Brittany to understand what happened to her father.`\
 https://www.nytimes.com/video/opinion/100000011123879/he-fell-35-feet-he-never-really-landed.html
-
-**Fat Bear Week Returns to Alaska: Meet the Contenders**\
-`Call them fat. Call them corpulent. Call them rotund. The bears are back in town and bigger than ever.`\
-https://www.nytimes.com/2026/09/22/style/fat-bear-week-alaska.html
 
 **U.N. Live Updates: Trump Says He Faces Choice to Make a Deal or ‘Annihilate’ Iran**\
 `President Trump delivered the remark before a gathering where world leaders typically present themselves as champions of global harmony. Earlier, António Guterres, the U.N. secretary general, called on leaders to end conflicts.`\
