@@ -1,3 +1,11 @@
+**Trump Says He Supports Banning Diesel Exports to Bring Down Prices**\
+`Diesel prices have been setting records because of the war in Iran, but the oil industry say banning U.S. exports would not make the fuel cheaper.`\
+https://www.nytimes.com/2026/09/22/business/energy-environment/trump-diesel-exports-iran-war.html
+
+**U.N. Live Updates: As Trump Threatens Iran, Other Leaders Warn of Deep Divisions**\
+`President Trump said he must decide whether to “annihilate” Iran, in a gathering where world leaders typically present themselves as champions of global harmony.`\
+https://www.nytimes.com/live/2026/09/22/world/un-general-assembly-trump-speech-news
+
 **A.I.: Let’s Not Have Another Failure of Imagination**\
 `It’s not too late to avoid the potential disasters of A.I. Covid-19 and 9/11 taught us how to prepare.`\
 https://www.nytimes.com/2026/09/22/opinion/trump-china-ai.html
