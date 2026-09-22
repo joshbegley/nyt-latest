@@ -1,3 +1,7 @@
+**Trump Says He Supports Banning Diesel Exports to Bring Down Prices**\
+`Diesel prices have been setting records because of the war in Iran, but the oil industry say banning U.S. exports would not make the fuel cheaper.`\
+https://www.nytimes.com/2026/09/22/business/energy-environment/trump-diesel-exports-iran-war.html
+
 **A.I.: Let’s Not Have Another Failure of Imagination**\
 `It’s not too late to avoid the potential disasters of A.I. Covid-19 and 9/11 taught us how to prepare.`\
 https://www.nytimes.com/2026/09/22/opinion/trump-china-ai.html
@@ -182,11 +186,7 @@ https://www.nytimes.com/2026/09/22/business/trump-natalie-harp-photo-ai.html
 `Muse, Meta’s A.I. agent, helped handle my dental insurance, booked dinner reservations and created a podcast for me. It also required my most personal data, and trust.`\
 https://www.nytimes.com/2026/09/22/technology/meta-muse-ai-agent.html
 
-**Track the Latest Polls in California's Prop. 42 Personal Property Tax Initiative**\
-`Track the latest polls on California's Prop. 42 personal property tax initiative.`\
-https://www.nytimes.com/interactive/polls/california-prop-42-personal-property-tax-polls-2026.html
-
-**U.N. Live Updates: Trump Says He Faces Choice to Make a Deal or ‘Annihilate’ Iran**\
-`President Trump delivered the remark before a gathering where world leaders typically present themselves as champions of global harmony. Earlier, António Guterres, the U.N. secretary general, called on leaders to end conflicts.`\
+**U.N. Live Updates: As Trump Threatens Iran, Other Leaders Warn of Deep Divisions**\
+`President Trump said he must decide whether to “annihilate” Iran, in a gathering where world leaders typically present themselves as champions of global harmony.`\
 https://www.nytimes.com/live/2026/09/22/world/un-general-assembly-trump-speech-news
 
