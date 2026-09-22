@@ -1,3 +1,7 @@
+**Trump Uses U.N. Address to Threaten Annihilation of Iran**\
+`Also, El-Sayed campaigned with Harris, unlike many other Democrats. Here’s the latest at the end of Tuesday.`\
+https://www.nytimes.com/2026/09/22/briefing/trump-un-speech-iran-unions-ai-threats.html
+
 **U.N. Live Updates: As Trump Threatens Iran, Other Leaders Warn of Deep Divisions**\
 `President Trump said he must decide whether to make a deal or “annihilate” Iran, in a gathering where world leaders typically focus on declarations of global harmony.`\
 https://www.nytimes.com/live/2026/09/22/world/un-general-assembly-trump-speech-news

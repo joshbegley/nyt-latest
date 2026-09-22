@@ -1,3 +1,7 @@
+**Trump Uses U.N. Address to Threaten Annihilation of Iran**\
+`Also, El-Sayed campaigned with Harris, unlike many other Democrats. Here’s the latest at the end of Tuesday.`\
+https://www.nytimes.com/2026/09/22/briefing/trump-un-speech-iran-unions-ai-threats.html
+
 **Trump Says He Supports Banning Diesel Exports to Bring Down Prices**\
 `Diesel prices have been setting records because of the war in Iran, but the oil industry say banning U.S. exports would not make the fuel cheaper.`\
 https://www.nytimes.com/2026/09/22/business/energy-environment/trump-diesel-exports-iran-war.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/09/22/style/fashion-week-london-tie-paul-o-smith.ht
 **An A.I. Image of Trump Kissing a Woman Was Fake. It Spread Anyway.**\
 `Advances in artificial intelligence and the myriad ways content is shared online have made establishing authenticity even more difficult for users of social media.`\
 https://www.nytimes.com/2026/09/22/business/trump-natalie-harp-photo-ai.html
-
-**I Gave My Life Over to Meta’s A.I. Agent and Was Blown Away**\
-`Muse, Meta’s A.I. agent, helped handle my dental insurance, booked dinner reservations and created a podcast for me. It also required my most personal data, and trust.`\
-https://www.nytimes.com/2026/09/22/technology/meta-muse-ai-agent.html
 
 **U.N. Live Updates: As Trump Threatens Iran, Other Leaders Warn of Deep Divisions**\
 `President Trump said he must decide whether to make a deal or “annihilate” Iran, in a gathering where world leaders typically focus on declarations of global harmony.`\

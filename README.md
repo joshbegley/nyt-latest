@@ -14,7 +14,7 @@ https://www.nytimes.com/2026/09/22/opinion/trump-china-ai.html
 `The U.S. and Soviet Union managed to avert nuclear catastrophe. Can Washington and Beijing do the same for A.I.?`\
 https://www.nytimes.com/2026/09/22/world/ai-cold-war-iran-un.html
 
-**Supreme Court Declines to Intervene in Custody Fight Over Surrogacy and Abortion**\
+**Supreme Court Order Gives Parents Custody of Baby in Surrogacy Fight**\
 `A surrogate refused to have an abortion after the fetus was diagnosed with a serious heart problem. She asked the justices to block a court order giving custody to the biological parents.`\
 https://www.nytimes.com/2026/09/22/us/politics/supreme-court-surrogate-abortion-custody.html
 
