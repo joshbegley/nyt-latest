@@ -1,3 +1,7 @@
+**Billy Bush Joins Fox News a Decade After ‘Access Hollywood’ Tape Scandal**\
+`He lost his job as a “Today” show anchor in 2016 after footage surfaced of Donald J. Trump joking with him about sexual assault. He will be a Fox contributor.`\
+https://www.nytimes.com/2026/09/22/business/billy-bush-fox-news-trump-access-hollywood.html
+
 **Mexico Becomes Latest Country to Restrict Phones in Schools**\
 `President Claudia Sheinbaum has sharply limited the use of cellphones and screens in schools. The measures will go into effect in November.`\
 https://www.nytimes.com/2026/09/22/world/americas/mexico-bans-phones-schools.html
@@ -160,7 +164,7 @@ https://www.nytimes.com/2026/09/22/opinion/roger-marshall-doctors-debt.html
 
 **Trump Officials Eject 750,000 From Obamacare Markets, Claiming Fraud**\
 `Vice President JD Vance said the measure would save the government $2.2 billion.`\
-https://www.nytimes.com/2026/09/22/health/aca-obamacare-vance-fraud.html
+https://www.nytimes.com/2026/09/22/us/politics/aca-obamacare-vance-fraud.html
 
 **Macron to Make His Final U.N. General Assembly Appearance as France’s President**\
 `During his tenure as France’s president, Emmanuel Macron has evolved from a political upstart to a senior statesman.`\
@@ -181,10 +185,6 @@ https://www.nytimes.com/video/world/europe/100000011166927/princess-diana-earl-s
 **Republicans in Tight Senate Races Call for End to Iran War**\
 `Representative Ashley Hinson of Iowa and Mike Rogers of Michigan distanced themselves from President Trump amid concern that high diesel prices could hurt the party in November.`\
 https://www.nytimes.com/2026/09/22/us/politics/republican-candidates-senate-iran-war.html
-
-**It’s Not a Tie. But It’s Not Not a Tie.**\
-`Plus: Donatella Versace’s next act, and an under-the-radar brand by a Phoebe Philo alum.`\
-https://www.nytimes.com/2026/09/22/style/fashion-week-london-tie-paul-o-smith.html
 
 **U.N. Live Updates: As Trump Threatens Iran, Other Leaders Warn of Deep Divisions**\
 `President Trump said he must decide whether to make a deal or “annihilate” Iran, in a gathering where world leaders typically focus on declarations of global harmony.`\
