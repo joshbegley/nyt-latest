@@ -1,3 +1,7 @@
+**A New Cat Species**\
+`Why is this discovery important — and how could scientists learn more?`\
+https://www.nytimes.com/2026/09/22/learning/a-new-cat-species.html
+
 **Judge Dismisses Unusual Climate Suit Claiming Oil Giants Broke Antitrust Law**\
 `The lawsuit, filed by Michigan, claimed oil companies colluded to obstruct solar power and to misrepresent climate risks, making energy costlier.`\
 https://www.nytimes.com/2026/09/22/climate/michigan-antitrust-lawsuit-oil-companies.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/interactive/polls/california-prop-41-tax-audits-polls-20
 **An Army of Paid Creators Is Carpeting the Web With Political Content**\
 `Unlike celebrity influencers with large followings, these creators produce a blizzard of videos for a fraction of the cost of traditional online campaigns and, in the process, shift public conversation.`\
 https://www.nytimes.com/2026/09/22/us/politics/influencers-midterms-echo-chamber.html
-
-**A Black Jefferson Descendant Is Buried at Monticello for the First Time**\
-`The burial came as the Smithsonian released DNA research it said provides “extraordinary proof” that Thomas Jefferson had children with Sally Hemings.`\
-https://www.nytimes.com/2026/09/22/arts/black-jefferson-descendant-buried-monticello.html
 
 **U.N. Live Updates: Trump Says He Faces Choice to Make a Deal or ‘Annihilate’ Iran**\
 `President Trump delivered the remark before a gathering where world leaders typically present themselves as champions of global harmony. Earlier, António Guterres, the U.N. secretary general, called on leaders to end conflicts.`\
