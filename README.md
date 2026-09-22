@@ -182,10 +182,6 @@ https://www.nytimes.com/2026/09/22/world/europe/macron-un-general-assembly.html
 `The influencer, whose real name is Braden Peters, is accused of giving the girl alcohol and having sex with her when she was unable to give consent. One of his lawyers said he was innocent.`\
 https://www.nytimes.com/2026/09/22/us/clavicular-looksmaxxing-rape-charges.html
 
-**Trump Is Back on TV, Briefly, as Many Networks Carry His U.N. Speech Live**\
-`A suspension of pool coverage remains in effect. But the in-house United Nations broadcaster provided a feed of the president’s remarks.`\
-https://www.nytimes.com/2026/09/22/business/media/trump-tv-un-speech.html
-
 **U.N. Live Updates: As Trump Threatens Iran, Other Leaders Warn of Deep Divisions**\
 `President Trump said he must decide whether to make a deal or “annihilate” Iran, in a gathering where world leaders typically focus on declarations of global harmony.`\
 https://www.nytimes.com/live/2026/09/22/world/un-general-assembly-trump-speech-news
