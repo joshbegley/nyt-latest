@@ -1,3 +1,7 @@
+**Trump Threatens Annihilation in Iran in UN Speech and Lays Out Winner-Takes-All Vision**\
+`President Trump’s speech at the U.N. General Assembly amounted to a rejection of the founding concept of the United Nations.`\
+https://www.nytimes.com/2026/09/22/us/politics/un-trump-speech-iran-venezuela-greenland.html
+
 **Republican Senator Urges Congress to Investigate Donald Trump Jr.**\
 `In a letter, John Curtis of Utah called for the Senate Judiciary Committee to subpoena the sons of President Trump and former President Joseph R. Biden Jr.`\
 https://www.nytimes.com/2026/09/22/us/politics/curtis-urges-investigation-donald-trump-jr.html

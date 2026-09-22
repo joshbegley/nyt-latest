@@ -1,3 +1,7 @@
+**Trump Threatens Annihilation in Iran in UN Speech and Lays Out Winner-Takes-All Vision**\
+`President Trump’s speech at the U.N. General Assembly amounted to a rejection of the founding concept of the United Nations.`\
+https://www.nytimes.com/2026/09/22/us/politics/un-trump-speech-iran-venezuela-greenland.html
+
 **Republican Senator Urges Congress to Investigate Donald Trump Jr.**\
 `In a letter, John Curtis of Utah called for the Senate Judiciary Committee to subpoena the sons of President Trump and former President Joseph R. Biden Jr.`\
 https://www.nytimes.com/2026/09/22/us/politics/curtis-urges-investigation-donald-trump-jr.html
@@ -177,14 +181,6 @@ https://www.nytimes.com/2026/09/22/world/europe/macron-un-general-assembly.html
 **Clavicular, ‘Looksmaxxing’ Influencer, Charged With Raping a 17-Year-Old**\
 `The influencer, whose real name is Braden Peters, is accused of giving the girl alcohol and having sex with her when she was unable to give consent. One of his lawyers said he was innocent.`\
 https://www.nytimes.com/2026/09/22/us/clavicular-looksmaxxing-rape-charges.html
-
-**Trump Is Back on TV, Briefly, as Many Networks Carry His U.N. Speech Live**\
-`A suspension of pool coverage remains in effect. But the in-house United Nations broadcaster provided a feed of the president’s remarks.`\
-https://www.nytimes.com/2026/09/22/business/media/trump-tv-un-speech.html
-
-**Princess Diana’s Brother Targets Royal Family in New Book**\
-`In his new memoir, “Swan Song,” Earl Spencer claims that King Charles III, then a prince, sounded “giddily elated” in telephone conversations with him after the death of Charles’s ex-wife, Princess Diana.`\
-https://www.nytimes.com/video/world/europe/100000011166927/princess-diana-earl-spencer-king-charles.html
 
 **U.N. Live Updates: As Trump Threatens Iran, Other Leaders Warn of Deep Divisions**\
 `President Trump said he must decide whether to make a deal or “annihilate” Iran, in a gathering where world leaders typically focus on declarations of global harmony.`\

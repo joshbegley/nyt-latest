@@ -87,7 +87,7 @@ https://www.nytimes.com/2026/09/22/us/politics/fbi-susan-collins-donor.html
 https://www.nytimes.com/2026/09/22/world/asia/sri-lanka-convictions-easter-2019-bomb-attacks.html
 
 **Federal Judge Sets Hearing for Venezuelan Man Shot by ICE in Austin**\
-`The immigrant remains in federal custody after a second hospital visit, with a bullet still lodged near his neck, his lawyer said. “He is currently only on Tylenol, ibuprofen,” she said.`\
+`The immigrant remains in federal custody after a second hospital visit, with a bullet still lodged near his neck, his lawyer said. Immigration officials contested his assertion that he has been denied medical care.`\
 https://www.nytimes.com/2026/09/22/us/venezuelan-shot-austin-judge-order-deport.html
 
 **A Nor’easter Could Slam the East Coast This Week (or Not)**\
