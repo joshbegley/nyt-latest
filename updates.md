@@ -1,3 +1,7 @@
+**Macron Criticizes Israel and Russia in Final U.N. Speech as France’s President**\
+`In his farewell address to the General Assembly, the French president criticized Russia, Israel and, in more veiled terms, the United States.`\
+https://www.nytimes.com/2026/09/22/world/europe/macron-farewell-united-nations-speech.html
+
 **A New Cat Species**\
 `Why is this discovery important — and how could scientists learn more?`\
 https://www.nytimes.com/2026/09/22/learning/a-new-cat-species.html

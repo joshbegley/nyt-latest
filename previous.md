@@ -6,7 +6,7 @@ https://www.nytimes.com/2026/09/22/learning/a-new-cat-species.html
 `The lawsuit, filed by Michigan, claimed oil companies colluded to obstruct solar power and to misrepresent climate risks, making energy costlier.`\
 https://www.nytimes.com/2026/09/22/climate/michigan-antitrust-lawsuit-oil-companies.html
 
-**Macron Calls on the U.N. to Fight Against the ‘Law of the Jungle’**\
+**Macron Criticizes Israel and Russia in Final U.N. Speech as France’s President**\
 `In his farewell address to the General Assembly, the French president criticized Russia, Israel and, in more veiled terms, the United States.`\
 https://www.nytimes.com/2026/09/22/world/europe/macron-farewell-united-nations-speech.html
 
