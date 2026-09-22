@@ -1,3 +1,7 @@
+**Restaurant Review: Cafe Bar J.F. in New York**\
+`The new Williamsburg spot from the team behind the Llama Inn is cooking surprising, sophisticated dishes with a South American bent.`\
+https://www.nytimes.com/2026/09/22/dining/restaurant-review-cafe-bar-jf-nyc.html
+
 **At U.N., Trump Says He Will Strike a Deal With Iran or ‘Annihilate’ It**\
 `President Trump’s statement to the U.N. General Assembly that he could “drive them into hell with no chance of survival” was a jarring departure in a forum devoted to world peace.`\
 https://www.nytimes.com/2026/09/22/world/americas/trump-annihilate-iran-unga.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/09/22/style/fat-bear-week-alaska.html
 **Mirroring Trump, Allies Are Expected to Label Latin American Cartels ‘Terrorists’ at U.N.G.A.**\
 `On the sidelines of the U.N. General Assembly, 14 countries are expected to follow Washington’s lead by designating 25 criminal groups as terrorist organizations.`\
 https://www.nytimes.com/2026/09/22/world/americas/unga-trump-allies-latin-america-cartels-terrorist-label.html
-
-**New College Rankings Just Dropped**\
-`Plus, how healthy are nuts?`\
-https://www.nytimes.com/2026/09/22/briefing/new-college-rankings-just-dropped.html
 
 **U.N. Live Updates: Trump Says He Faces Choice to Make a Deal or ‘Annihilate’ Iran**\
 `President Trump delivered the remark before a gathering where world leaders typically present themselves as champions of global harmony. Earlier, António Guterres, the U.N. secretary general, called on leaders to end conflicts.`\

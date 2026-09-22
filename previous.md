@@ -182,10 +182,6 @@ https://www.nytimes.com/2026/09/22/world/americas/unga-trump-allies-latin-americ
 `Plus, how healthy are nuts?`\
 https://www.nytimes.com/2026/09/22/briefing/new-college-rankings-just-dropped.html
 
-**Mathematics Isn’t Just a Game to Let A.I. Solve. History Shows Why.**\
-`In our field of applied mathematics, the long, human process of trial and error — not just the solutions themselves — is often what has led to progress.`\
-https://www.nytimes.com/2026/09/22/science/math-ai-history-understanding.html
-
 **U.N. Live Updates: Trump Says He Faces Choice to Make a Deal or ‘Annihilate’ Iran**\
 `President Trump delivered the remark before a gathering where world leaders typically present themselves as champions of global harmony. Earlier, António Guterres, the U.N. secretary general, called on leaders to end conflicts.`\
 https://www.nytimes.com/live/2026/09/22/world/un-general-assembly-trump-speech-news
