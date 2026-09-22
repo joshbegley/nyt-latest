@@ -1,3 +1,11 @@
+**At U.N., Trump Says He Will Strike a Deal With Iran or ‘Annihilate’ It**\
+`President Trump’s statement to the U.N. General Assembly that he could “drive them into hell with no chance of survival” was a jarring departure in a forum devoted to world peace.`\
+https://www.nytimes.com/2026/09/22/world/americas/trump-annihilate-iran-unga.html
+
+**Ethiopian Rebel Groups Join Forces Against the Government**\
+`Half a dozen groups, accusing the prime minister of being dictatorial, announced the formation of a coalition in a country already scarred by war.`\
+https://www.nytimes.com/2026/09/22/world/africa/ethiopia-rebel-alliance.html
+
 **Rosie O’Donnell Says ABC Delayed a Skit as It Readied Trump Suit**\
 `The network asked the comedian to hold off on the sketch, which mocked the president, when she filled in as host of “Jimmy Kimmel Live!”`\
 https://www.nytimes.com/2026/09/22/business/rosie-odonnell-abc-trump-skit.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/09/22/briefing/new-college-rankings-just-dropped.ht
 **Mathematics Isn’t Just a Game to Let A.I. Solve. History Shows Why.**\
 `In our field of applied mathematics, the long, human process of trial and error — not just the solutions themselves — is often what has led to progress.`\
 https://www.nytimes.com/2026/09/22/science/math-ai-history-understanding.html
-
-**Fast, Easy Recipes for Fish and Seafood**\
-`Maple and miso sheet-pan salmon with green beans; mussels with white beans and garlic; coconut curry rice with cod.`\
-https://www.nytimes.com/2026/09/22/dining/fast-easy-recipes-for-fish-and-seafood.html
-
-**Iran Exposed How Vulnerable Our Bases Are**\
-`The Pentagon must revamp how it positions its troops and equipment amid the proliferation of low-cost drones and precision missiles.`\
-https://www.nytimes.com/2026/09/22/opinion/us-military-bases-iran-pentagon.html
 
 **U.N. Live Updates: Trump Says He Faces Choice to Make a Deal or ‘Annihilate’ Iran**\
 `President Trump delivered the remark before a gathering where world leaders typically present themselves as champions of global harmony. Earlier, António Guterres, the U.N. secretary general, called on leaders to end conflicts.`\
