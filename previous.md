@@ -1,3 +1,7 @@
+**Mexico Becomes Latest Country to Restrict Phones in Schools**\
+`President Claudia Sheinbaum has sharply limited the use of cellphones and screens in schools. The measures will go into effect in November.`\
+https://www.nytimes.com/2026/09/22/world/americas/mexico-bans-phones-schools.html
+
 **Trump Uses U.N. Address to Threaten Annihilation of Iran**\
 `Also, El-Sayed campaigned with Harris, unlike many other Democrats. Here’s the latest at the end of Tuesday.`\
 https://www.nytimes.com/2026/09/22/briefing/trump-un-speech-iran-unions-ai-threats.html
@@ -6,8 +10,8 @@ https://www.nytimes.com/2026/09/22/briefing/trump-un-speech-iran-unions-ai-threa
 `Diesel prices have been setting records because of the war in Iran, but the oil industry say banning U.S. exports would not make the fuel cheaper.`\
 https://www.nytimes.com/2026/09/22/business/energy-environment/trump-diesel-exports-iran-war.html
 
-**A.I.: Let’s Not Have Another Failure of Imagination**\
-`It’s not too late to avoid the potential disasters of A.I. Covid-19 and 9/11 taught us how to prepare.`\
+**It’s Time to Cry Wolf Over A.I.**\
+`It’s not too late to avoid the potential disasters of A.I. that Covid-19 and 9/11 taught us how to prepare.`\
 https://www.nytimes.com/2026/09/22/opinion/trump-china-ai.html
 
 **Cold War Lessons for A.I.**\
@@ -74,7 +78,7 @@ https://www.nytimes.com/2026/09/22/world/asia/sri-lanka-convictions-easter-2019-
 `The immigrant remains in federal custody after a second hospital visit, with a bullet still lodged near his neck, his lawyer said. “He is currently only on Tylenol, ibuprofen,” she said.`\
 https://www.nytimes.com/2026/09/22/us/venezuelan-shot-austin-judge-order-deport.html
 
-**How a Brewing Storm Could Slam the East Coast This Week (or Not)**\
+**How a Nor’easter Could Slam the East Coast This Week (or Not)**\
 `A nor’easter in September is unusual. As its forecast took shape on Tuesday, there was still uncertainty over what it would do.`\
 https://www.nytimes.com/2026/09/22/weather/noreaster-storm-flooding-virginia-new-york.html
 
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/09/22/us/politics/republican-candidates-senate-iran
 **It’s Not a Tie. But It’s Not Not a Tie.**\
 `Plus: Donatella Versace’s next act, and an under-the-radar brand by a Phoebe Philo alum.`\
 https://www.nytimes.com/2026/09/22/style/fashion-week-london-tie-paul-o-smith.html
-
-**An A.I. Image of Trump Kissing a Woman Was Fake. It Spread Anyway.**\
-`Advances in artificial intelligence and the myriad ways content is shared online have made establishing authenticity even more difficult for users of social media.`\
-https://www.nytimes.com/2026/09/22/business/trump-natalie-harp-photo-ai.html
 
 **U.N. Live Updates: As Trump Threatens Iran, Other Leaders Warn of Deep Divisions**\
 `President Trump said he must decide whether to make a deal or “annihilate” Iran, in a gathering where world leaders typically focus on declarations of global harmony.`\

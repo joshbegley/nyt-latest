@@ -1,3 +1,15 @@
+**Mexico Becomes Latest Country to Restrict Phones in Schools**\
+`President Claudia Sheinbaum has sharply limited the use of cellphones and screens in schools. The measures will go into effect in November.`\
+https://www.nytimes.com/2026/09/22/world/americas/mexico-bans-phones-schools.html
+
+**It’s Time to Cry Wolf Over A.I.**\
+`It’s not too late to avoid the potential disasters of A.I. that Covid-19 and 9/11 taught us how to prepare.`\
+https://www.nytimes.com/2026/09/22/opinion/trump-china-ai.html
+
+**How a Nor’easter Could Slam the East Coast This Week (or Not)**\
+`A nor’easter in September is unusual. As its forecast took shape on Tuesday, there was still uncertainty over what it would do.`\
+https://www.nytimes.com/2026/09/22/weather/noreaster-storm-flooding-virginia-new-york.html
+
 **Supreme Court Order Gives Parents Custody of Baby in Surrogacy Fight**\
 `A surrogate refused to have an abortion after the fetus was diagnosed with a serious heart problem. She asked the justices to block a court order giving custody to the biological parents.`\
 https://www.nytimes.com/2026/09/22/us/politics/supreme-court-surrogate-abortion-custody.html
