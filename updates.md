@@ -1,3 +1,11 @@
+**Billy Bush Joins Fox News a Decade After ‘Access Hollywood’ Tape Scandal**\
+`He lost his job as a “Today” show anchor in 2016 after footage surfaced of Donald J. Trump joking with him about sexual assault. He will be a Fox contributor.`\
+https://www.nytimes.com/2026/09/22/business/billy-bush-fox-news-trump-access-hollywood.html
+
+**Trump Officials Eject 750,000 From Obamacare Markets, Claiming Fraud**\
+`Vice President JD Vance said the measure would save the government $2.2 billion.`\
+https://www.nytimes.com/2026/09/22/us/politics/aca-obamacare-vance-fraud.html
+
 **Mexico Becomes Latest Country to Restrict Phones in Schools**\
 `President Claudia Sheinbaum has sharply limited the use of cellphones and screens in schools. The measures will go into effect in November.`\
 https://www.nytimes.com/2026/09/22/world/americas/mexico-bans-phones-schools.html
