@@ -1,3 +1,7 @@
+**Judge Dismisses Unusual Climate Suit Claiming Oil Giants Broke Antitrust Law**\
+`The lawsuit, filed by Michigan, claimed oil companies colluded to obstruct solar power and to misrepresent climate risks, making energy costlier.`\
+https://www.nytimes.com/2026/09/22/climate/michigan-antitrust-lawsuit-oil-companies.html
+
 **Zelensky Says He Hopes Trump Will Help to End Russia-Ukraine War ‘Before Winter’**\
 `The remarks by President Volodymyr Zelensky of Ukraine came during a meeting with President Trump as an effort to restart talks with Russia has gone nowhere.`\
 https://www.nytimes.com/2026/09/22/world/europe/zelensky-trump-war-russia.html
