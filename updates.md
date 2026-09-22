@@ -1,3 +1,11 @@
+**Republican Senator Urges Congress to Investigate Donald Trump Jr.**\
+`In a letter, John Curtis of Utah called for the Senate Judiciary Committee to subpoena the sons of President Trump and former President Joseph R. Biden Jr.`\
+https://www.nytimes.com/2026/09/22/us/politics/curtis-urges-investigation-donald-trump-jr.html
+
+**A Nor’easter Could Slam the East Coast This Week (or Not)**\
+`A nor’easter in September is unusual. As its forecast took shape on Tuesday, there was still uncertainty over what it would do.`\
+https://www.nytimes.com/2026/09/22/weather/noreaster-storm-flooding-virginia-new-york.html
+
 **Billy Bush Joins Fox News a Decade After ‘Access Hollywood’ Tape Scandal**\
 `He lost his job as a “Today” show anchor in 2016 after footage surfaced of Donald J. Trump joking with him about sexual assault. He will be a Fox contributor.`\
 https://www.nytimes.com/2026/09/22/business/billy-bush-fox-news-trump-access-hollywood.html

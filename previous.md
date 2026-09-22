@@ -1,3 +1,7 @@
+**Republican Senator Urges Congress to Investigate Donald Trump Jr.**\
+`In a letter, John Curtis of Utah called for the Senate Judiciary Committee to subpoena the sons of President Trump and former President Joseph R. Biden Jr.`\
+https://www.nytimes.com/2026/09/22/us/politics/curtis-urges-investigation-donald-trump-jr.html
+
 **Billy Bush Joins Fox News a Decade After ‘Access Hollywood’ Tape Scandal**\
 `He lost his job as a “Today” show anchor in 2016 after footage surfaced of Donald J. Trump joking with him about sexual assault. He will be a Fox contributor.`\
 https://www.nytimes.com/2026/09/22/business/billy-bush-fox-news-trump-access-hollywood.html
@@ -82,7 +86,7 @@ https://www.nytimes.com/2026/09/22/world/asia/sri-lanka-convictions-easter-2019-
 `The immigrant remains in federal custody after a second hospital visit, with a bullet still lodged near his neck, his lawyer said. “He is currently only on Tylenol, ibuprofen,” she said.`\
 https://www.nytimes.com/2026/09/22/us/venezuelan-shot-austin-judge-order-deport.html
 
-**How a Nor’easter Could Slam the East Coast This Week (or Not)**\
+**A Nor’easter Could Slam the East Coast This Week (or Not)**\
 `A nor’easter in September is unusual. As its forecast took shape on Tuesday, there was still uncertainty over what it would do.`\
 https://www.nytimes.com/2026/09/22/weather/noreaster-storm-flooding-virginia-new-york.html
 
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/09/22/business/media/trump-tv-un-speech.html
 **Princess Diana’s Brother Targets Royal Family in New Book**\
 `In his new memoir, “Swan Song,” Earl Spencer claims that King Charles III, then a prince, sounded “giddily elated” in telephone conversations with him after the death of Charles’s ex-wife, Princess Diana.`\
 https://www.nytimes.com/video/world/europe/100000011166927/princess-diana-earl-spencer-king-charles.html
-
-**Republicans in Tight Senate Races Call for End to Iran War**\
-`Representative Ashley Hinson of Iowa and Mike Rogers of Michigan distanced themselves from President Trump amid concern that high diesel prices could hurt the party in November.`\
-https://www.nytimes.com/2026/09/22/us/politics/republican-candidates-senate-iran-war.html
 
 **U.N. Live Updates: As Trump Threatens Iran, Other Leaders Warn of Deep Divisions**\
 `President Trump said he must decide whether to make a deal or “annihilate” Iran, in a gathering where world leaders typically focus on declarations of global harmony.`\
