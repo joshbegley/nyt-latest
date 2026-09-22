@@ -1,3 +1,7 @@
+**Zelensky Says He Hopes Trump Will Help to End Russia-Ukraine War ‘Before Winter’**\
+`The remarks by President Volodymyr Zelensky of Ukraine came during a meeting with President Trump as an effort to restart talks with Russia has gone nowhere.`\
+https://www.nytimes.com/2026/09/22/world/europe/zelensky-trump-war-russia.html
+
 **Macron Calls on the U.N. to Fight Against the ‘Law of the Jungle’**\
 `In his farewell address to the General Assembly, the French president criticized Russia, Israel and, in more veiled terms, the United States.`\
 https://www.nytimes.com/2026/09/22/world/europe/macron-farewell-united-nations-speech.html

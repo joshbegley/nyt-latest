@@ -1,3 +1,7 @@
+**Judge Dismisses Unusual Climate Suit Claiming Oil Giants Broke Antitrust Law**\
+`The lawsuit, filed by Michigan, claimed oil companies colluded to obstruct solar power and to misrepresent climate risks, making energy costlier.`\
+https://www.nytimes.com/2026/09/22/climate/michigan-antitrust-lawsuit-oil-companies.html
+
 **Macron Calls on the U.N. to Fight Against the ‘Law of the Jungle’**\
 `In his farewell address to the General Assembly, the French president criticized Russia, Israel and, in more veiled terms, the United States.`\
 https://www.nytimes.com/2026/09/22/world/europe/macron-farewell-united-nations-speech.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/09/22/us/politics/influencers-midterms-echo-chamber
 **A Black Jefferson Descendant Is Buried at Monticello for the First Time**\
 `The burial came as the Smithsonian released DNA research it said provides “extraordinary proof” that Thomas Jefferson had children with Sally Hemings.`\
 https://www.nytimes.com/2026/09/22/arts/black-jefferson-descendant-buried-monticello.html
-
-**He Fell 35 Feet. He Never Really Landed.**\
-`Brittany Wagner’s father survived a 35-foot fall. But it was everything that came after — chronic pain, financial hardship and years of fighting for help within a broken system — that slowly unraveled his life. After her father died by suicide, Brittany discovered 694 videos he had recorded over the years. They became a record of his nearly 18-year struggle — and a way for Brittany to understand what happened to her father.`\
-https://www.nytimes.com/video/opinion/100000011123879/he-fell-35-feet-he-never-really-landed.html
 
 **U.N. Live Updates: Trump Says He Faces Choice to Make a Deal or ‘Annihilate’ Iran**\
 `President Trump delivered the remark before a gathering where world leaders typically present themselves as champions of global harmony. Earlier, António Guterres, the U.N. secretary general, called on leaders to end conflicts.`\
