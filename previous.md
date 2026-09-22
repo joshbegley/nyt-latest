@@ -1,3 +1,7 @@
+**Hurricane Polo Just Keeps Getting Stronger**\
+`The storm is expected to stay mainly offshore as it moves north along the western coast of Mexico this week. It’s one of the strongest ever in that region.`\
+https://www.nytimes.com/live/2026/09/22/weather/hurricane-polo-mexico
+
 **Trump Threatens Annihilation in Iran in UN Speech and Lays Out Winner-Takes-All Vision**\
 `President Trump’s speech at the U.N. General Assembly amounted to a rejection of the founding concept of the United Nations.`\
 https://www.nytimes.com/2026/09/22/us/politics/un-trump-speech-iran-venezuela-greenland.html
@@ -87,7 +91,7 @@ https://www.nytimes.com/2026/09/22/us/politics/fbi-susan-collins-donor.html
 https://www.nytimes.com/2026/09/22/world/asia/sri-lanka-convictions-easter-2019-bomb-attacks.html
 
 **Federal Judge Sets Hearing for Venezuelan Man Shot by ICE in Austin**\
-`The immigrant remains in federal custody after a second hospital visit, with a bullet still lodged near his neck, his lawyer said. “He is currently only on Tylenol, ibuprofen,” she said.`\
+`The immigrant remains in federal custody after a second hospital visit, with a bullet still lodged near his neck, his lawyer said. Immigration officials contested his assertion that he has been denied medical care.`\
 https://www.nytimes.com/2026/09/22/us/venezuelan-shot-austin-judge-order-deport.html
 
 **A Nor’easter Could Slam the East Coast This Week (or Not)**\
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/09/22/us/politics/aca-obamacare-vance-fraud.html
 **Macron to Make His Final U.N. General Assembly Appearance as France’s President**\
 `During his tenure as France’s president, Emmanuel Macron has evolved from a political upstart to a senior statesman.`\
 https://www.nytimes.com/2026/09/22/world/europe/macron-un-general-assembly.html
-
-**Clavicular, ‘Looksmaxxing’ Influencer, Charged With Raping a 17-Year-Old**\
-`The influencer, whose real name is Braden Peters, is accused of giving the girl alcohol and having sex with her when she was unable to give consent. One of his lawyers said he was innocent.`\
-https://www.nytimes.com/2026/09/22/us/clavicular-looksmaxxing-rape-charges.html
 
 **U.N. Live Updates: As Trump Threatens Iran, Other Leaders Warn of Deep Divisions**\
 `President Trump said he must decide whether to make a deal or “annihilate” Iran, in a gathering where world leaders typically focus on declarations of global harmony.`\

@@ -1,3 +1,11 @@
+**Hurricane Polo Just Keeps Getting Stronger**\
+`The storm is expected to stay mainly offshore as it moves north along the western coast of Mexico this week. It’s one of the strongest ever in that region.`\
+https://www.nytimes.com/live/2026/09/22/weather/hurricane-polo-mexico
+
+**Federal Judge Sets Hearing for Venezuelan Man Shot by ICE in Austin**\
+`The immigrant remains in federal custody after a second hospital visit, with a bullet still lodged near his neck, his lawyer said. Immigration officials contested his assertion that he has been denied medical care.`\
+https://www.nytimes.com/2026/09/22/us/venezuelan-shot-austin-judge-order-deport.html
+
 **Trump Threatens Annihilation in Iran in UN Speech and Lays Out Winner-Takes-All Vision**\
 `President Trump’s speech at the U.N. General Assembly amounted to a rejection of the founding concept of the United Nations.`\
 https://www.nytimes.com/2026/09/22/us/politics/un-trump-speech-iran-venezuela-greenland.html
