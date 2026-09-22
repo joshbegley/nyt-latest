@@ -1,3 +1,7 @@
+**Restaurant Review: Cafe Bar J.F. in New York**\
+`The new Williamsburg spot from the team behind the Llama Inn is cooking surprising, sophisticated dishes with a South American bent.`\
+https://www.nytimes.com/2026/09/22/dining/restaurant-review-cafe-bar-jf-nyc.html
+
 **At U.N., Trump Says He Will Strike a Deal With Iran or ‘Annihilate’ It**\
 `President Trump’s statement to the U.N. General Assembly that he could “drive them into hell with no chance of survival” was a jarring departure in a forum devoted to world peace.`\
 https://www.nytimes.com/2026/09/22/world/americas/trump-annihilate-iran-unga.html
