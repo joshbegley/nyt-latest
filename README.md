@@ -1,3 +1,7 @@
+**Hospitals Shut Youth Gender Clinics in Deal with Trump Administration**\
+`At least six hospitals have struck agreements with the Trump administration to pay fines and stop providing gender-transition treatments to minors.`\
+https://www.nytimes.com/2026/09/22/us/trangender-youths-hospital-settlements.html
+
 **Qantas’s New York-to-Sydney ‘Project Sunrise’ Flights to Take Off in 2028**\
 `Qantas Airways said the 18-hour flights, part of its Project Sunrise program, would come months after its 22-hour direct flights from Sydney to London begin.`\
 https://www.nytimes.com/2026/09/22/travel/qantas-project-sunrise-flights.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/09/22/arts/music/ella-langley-choosin-texas-chart-r
 **Veterans Package Stalls After House’s Swift Departure**\
 `A veterans benefits bill that Republicans had hoped to pass ahead of the midterm elections is falling apart amid a battle over its cost.`\
 https://www.nytimes.com/2026/09/22/us/politics/veterans-benefits-bill-congress-elections.html
-
-**Senator, Doctor, Debt Collector**\
-`Responses to an article about Senator Roger Marshall, who as a doctor sued more than 700 patients with outstanding bills. Also: Psychedelic therapy; bravo to the Kennedys.`\
-https://www.nytimes.com/2026/09/22/opinion/roger-marshall-doctors-debt.html
 
 **U.N. Live Updates: As Trump Threatens Iran, Other Leaders Warn of Deep Divisions**\
 `President Trump said he must decide whether to make a deal or “annihilate” Iran, in a gathering where world leaders typically focus on declarations of global harmony.`\
