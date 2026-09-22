@@ -1,3 +1,7 @@
+**Zelensky Says He Hopes Trump Helps Him to End the War ‘Before Winter’**\
+`The remarks by President Volodymyr Zelensky of Ukraine came during a meeting with President Trump as an effort to restart talks with Russia has gone nowhere.`\
+https://www.nytimes.com/2026/09/22/world/europe/zelensky-trump-war-russia.html
+
 **Restaurant Review: Cafe Bar J.F. in New York**\
 `The new Williamsburg spot from the team behind the Llama Inn is cooking surprising, sophisticated dishes with a South American bent.`\
 https://www.nytimes.com/2026/09/22/dining/restaurant-review-cafe-bar-jf-nyc.html
