@@ -1,3 +1,15 @@
+**A.I.: Let’s Not Have Another Failure of Imagination**\
+`It’s not too late to avoid the potential disasters of A.I. Covid-19 and 9/11 taught us how to prepare.`\
+https://www.nytimes.com/2026/09/22/opinion/trump-china-ai.html
+
+**Cold War Lessons for A.I.**\
+`The U.S. and Soviet Union managed to avert nuclear catastrophe. Can Washington and Beijing do the same for A.I.?`\
+https://www.nytimes.com/2026/09/22/world/ai-cold-war-iran-un.html
+
+**Supreme Court Declines to Intervene in Custody Fight Over Surrogacy and Abortion**\
+`A surrogate refused to have an abortion after the fetus was diagnosed with a serious heart problem. She asked the justices to block a court order giving custody to the biological parents.`\
+https://www.nytimes.com/2026/09/22/us/politics/supreme-court-surrogate-abortion-custody.html
+
 **Macron Criticizes Israel and Russia in Final U.N. Speech as France’s President**\
 `In his farewell address to the General Assembly, the French president criticized Russia, Israel and, in more veiled terms, the United States.`\
 https://www.nytimes.com/2026/09/22/world/europe/macron-farewell-united-nations-speech.html

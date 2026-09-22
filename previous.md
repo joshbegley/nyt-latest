@@ -1,3 +1,15 @@
+**A.I.: Let’s Not Have Another Failure of Imagination**\
+`It’s not too late to avoid the potential disasters of A.I. Covid-19 and 9/11 taught us how to prepare.`\
+https://www.nytimes.com/2026/09/22/opinion/trump-china-ai.html
+
+**Cold War Lessons for A.I.**\
+`The U.S. and Soviet Union managed to avert nuclear catastrophe. Can Washington and Beijing do the same for A.I.?`\
+https://www.nytimes.com/2026/09/22/world/ai-cold-war-iran-un.html
+
+**Supreme Court Declines to Intervene in Custody Fight Over Surrogacy and Abortion**\
+`A surrogate refused to have an abortion after the fetus was diagnosed with a serious heart problem. She asked the justices to block a court order giving custody to the biological parents.`\
+https://www.nytimes.com/2026/09/22/us/politics/supreme-court-surrogate-abortion-custody.html
+
 **A New Cat Species**\
 `Why is this discovery important — and how could scientists learn more?`\
 https://www.nytimes.com/2026/09/22/learning/a-new-cat-species.html
@@ -173,14 +185,6 @@ https://www.nytimes.com/2026/09/22/technology/meta-muse-ai-agent.html
 **Track the Latest Polls in California's Prop. 42 Personal Property Tax Initiative**\
 `Track the latest polls on California's Prop. 42 personal property tax initiative.`\
 https://www.nytimes.com/interactive/polls/california-prop-42-personal-property-tax-polls-2026.html
-
-**Track the Latest Polls in California's Prop. 41 Tax Audits Initiative**\
-`Track the latest polls on California's Prop. 41 tax audits initiative.`\
-https://www.nytimes.com/interactive/polls/california-prop-41-tax-audits-polls-2026.html
-
-**An Army of Paid Creators Is Carpeting the Web With Political Content**\
-`Unlike celebrity influencers with large followings, these creators produce a blizzard of videos for a fraction of the cost of traditional online campaigns and, in the process, shift public conversation.`\
-https://www.nytimes.com/2026/09/22/us/politics/influencers-midterms-echo-chamber.html
 
 **U.N. Live Updates: Trump Says He Faces Choice to Make a Deal or ‘Annihilate’ Iran**\
 `President Trump delivered the remark before a gathering where world leaders typically present themselves as champions of global harmony. Earlier, António Guterres, the U.N. secretary general, called on leaders to end conflicts.`\
