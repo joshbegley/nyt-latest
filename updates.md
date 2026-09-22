@@ -1,3 +1,7 @@
+**Supreme Court Order Gives Parents Custody of Baby in Surrogacy Fight**\
+`A surrogate refused to have an abortion after the fetus was diagnosed with a serious heart problem. She asked the justices to block a court order giving custody to the biological parents.`\
+https://www.nytimes.com/2026/09/22/us/politics/supreme-court-surrogate-abortion-custody.html
+
 **Trump Uses U.N. Address to Threaten Annihilation of Iran**\
 `Also, El-Sayed campaigned with Harris, unlike many other Democrats. Here’s the latest at the end of Tuesday.`\
 https://www.nytimes.com/2026/09/22/briefing/trump-un-speech-iran-unions-ai-threats.html
