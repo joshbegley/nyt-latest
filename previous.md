@@ -187,6 +187,6 @@ https://www.nytimes.com/2026/09/22/business/trump-natalie-harp-photo-ai.html
 https://www.nytimes.com/2026/09/22/technology/meta-muse-ai-agent.html
 
 **U.N. Live Updates: As Trump Threatens Iran, Other Leaders Warn of Deep Divisions**\
-`President Trump said he must decide whether to “annihilate” Iran, in a gathering where world leaders typically present themselves as champions of global harmony.`\
+`President Trump said he must decide whether to make a deal or “annihilate” Iran, in a gathering where world leaders typically focus on declarations of global harmony.`\
 https://www.nytimes.com/live/2026/09/22/world/un-general-assembly-trump-speech-news
 

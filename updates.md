@@ -1,3 +1,7 @@
+**U.N. Live Updates: As Trump Threatens Iran, Other Leaders Warn of Deep Divisions**\
+`President Trump said he must decide whether to make a deal or “annihilate” Iran, in a gathering where world leaders typically focus on declarations of global harmony.`\
+https://www.nytimes.com/live/2026/09/22/world/un-general-assembly-trump-speech-news
+
 **Trump Says He Supports Banning Diesel Exports to Bring Down Prices**\
 `Diesel prices have been setting records because of the war in Iran, but the oil industry say banning U.S. exports would not make the fuel cheaper.`\
 https://www.nytimes.com/2026/09/22/business/energy-environment/trump-diesel-exports-iran-war.html
