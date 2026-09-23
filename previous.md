@@ -27,7 +27,7 @@ https://www.nytimes.com/2026/09/23/arts/ralph-ellison-bard-archive.html
 https://www.nytimes.com/2026/09/23/style/newborn-visiting-dirty-house.html
 
 **Climate Forward Live Updates: Leaders Confront a Data Center Backlash and Rising Energy Prices**\
-`Jane Fonda is speaking now at The New York Times’ annual Climate Forward event, which will also include interviews with Energy Secretary Chris Wright and industry figures grappling with a consequential moment.`\
+`Energy Secretary Chris Wright and Gov. Abigail Spanberger of Virginia will be among the speakers at The New York Times’ annual Climate Forward event, in a wide-ranging discussion coming at a consequential moment.`\
 https://www.nytimes.com/live/2026/09/23/climate/climate-forward-conference
 
 **‘Screamplay’: A Hollywood Horror Comedy**\
@@ -70,8 +70,8 @@ https://www.nytimes.com/2026/09/23/crosswords/wordle-review-1923.html
 `Scroll down for hints and conversation about the puzzle for Thursday, Sept. 24, 2026.`\
 https://www.nytimes.com/2026/09/23/crosswords/strands-sidekick-935.html
 
-**U.N. Live Updates: Iran’s President Accuses U.S. and Israel of Lawless Attacks**\
-`Masoud Pezeshkian was the first leader whose country is at war with the United States to address the General Assembly in New York. He condemned attacks on civilian targets and said Iran would not accept limits on its nuclear program.`\
+**U.N. Live Updates: Iran’s President Accuses U.S. and Israel of Lawless Attacks on Nonmilitary Targets**\
+`Masoud Pezeshkian became the first leader whose country is at war with the United States to address the General Assembly in New York. He spoke of peace efforts but said Iran would never accept limits on its civilian nuclear program.`\
 https://www.nytimes.com/live/2026/09/23/world/un-general-assembly-iran-ukraine
 
 **It’s Not the Oscars: U.N. Speakers Love to Ignore Its 15-Minute Rule**\

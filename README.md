@@ -71,7 +71,7 @@ https://www.nytimes.com/2026/09/23/crosswords/wordle-review-1923.html
 https://www.nytimes.com/2026/09/23/crosswords/strands-sidekick-935.html
 
 **U.N. Live Updates: Iran’s President Accuses U.S. and Israel of Lawless Attacks on Nonmilitary Targets**\
-`Masoud Pezeshkian became the first leader whose country is at war with the United States to address the General Assembly in New York. He spoke of peace efforts but said Iran would never accept limits on its civilian nuclear program.`\
+`Masoud Pezeshkian became the first leader whose country is at war with the United States to address the General Assembly in New York. He said Iran was open to diplomacy but would never accept limits on its civilian nuclear program.`\
 https://www.nytimes.com/live/2026/09/23/world/un-general-assembly-iran-ukraine
 
 **It’s Not the Oscars: U.N. Speakers Love to Ignore Its 15-Minute Rule**\
