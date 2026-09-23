@@ -1,3 +1,7 @@
+**Ancient Wall Found in Paris Provides Clues to City’s Origins**\
+`A discovery at a Parisian hospital, on an island in the Seine, has given archaeologists clues about the city as Julius Caesar may have found it.`\
+https://www.nytimes.com/2026/09/23/world/europe/ancient-wall-paris-rome.html
+
 **Tiny Love Stories: ‘I Had a Sex Dream About You’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://www.nytimes.com/2026/09/23/style/tiny-modern-love-stories-i-had-a-sex-dream-about-you.html
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/09/23/crosswords/strands-sidekick-935.html
 **U.N. Live Updates: Iran’s President Accuses U.S. and Israel of Lawless Attacks in a Defiant Address**\
 `Masoud Pezeshkian said Iran was open to diplomacy but would never accept limits on its civilian nuclear program. Before his speech later today, President Volodymyr Zelensky of Ukraine called on allies to apply more pressure on Russia.`\
 https://www.nytimes.com/live/2026/09/23/world/un-general-assembly-iran-ukraine
-
-**It’s Not the Oscars: U.N. Speakers Love to Ignore Its 15-Minute Rule**\
-`The chronic flouting of the time limit for speeches highlights a fundamental feature of the United Nations: It is made up of sovereign states that it cannot force to do anything.`\
-https://www.nytimes.com/2026/09/23/world/un-speeches-15-minutes.html
 
