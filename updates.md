@@ -1,3 +1,7 @@
+**White House Defends Trump’s Ban on CNN, MS NOW and Politico in Court Filing**\
+`President Trump determined that CNN, MS NOW and Politico were in  ‘violation of the standards of professionalism and decorum’ expected at the White House.`\
+https://www.nytimes.com/2026/09/23/business/trump-cnn-politico-ms-now-ban.html
+
 **Read the White House Response to the Lawsuit From CNN, MS NOW and Politico**\
 `The Trump administration has defended its ban on the three media outlets in a court filing.`\
 https://www.nytimes.com/interactive/2026/09/23/us/politics/cnn-msnow-politico-lawsuit-trump-response.html
