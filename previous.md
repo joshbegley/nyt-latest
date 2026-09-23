@@ -1,3 +1,7 @@
+**The Winner of This Rivalry Gets Ice Cream. But So Does the Loser.**\
+`The competition between two popular ice cream shops in Ramallah inspires fierce loyalties, and a running joke, for lovers of cones piled high with flavors.`\
+https://www.nytimes.com/2026/09/23/world/middleeast/ice-cream-ramallah-baladna-rukab.html
+
 **Trump’s Major Retreat on Greenland, and Why Texas Hit Pause on New Data Centers**\
 `Plus, El Niño is scrambling hurricane season.`\
 https://www.nytimes.com/2026/09/23/podcasts/the-headlines/trump-greenland-texas-data-centers.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/opinion/100000011159761/jensen-huang-vs-the-ai-doo
 **Prices Have Skyrocketed in Russian Supermarkets. We Have the Receipts.**\
 `Costs have risen dramatically since Russia launched its full-scale invasion of Ukraine. And sanctions have changed some products available, too.`\
 https://www.nytimes.com/interactive/2026/09/23/world/europe/russia-supermarket-prices-ukraine-war.html
-
-**Hurricane Polo Intensifies Off Mexico’s West Coast**\
-`Hurricane Polo rapidly intensified into a Category 5 dynamo in less than a day, prompting the Mexican authorities to issue storm warnings. It is not expected to make landfall, according to officials.`\
-https://www.nytimes.com/video/world/americas/100000011169375/hurricane-polo-mexico.html
 

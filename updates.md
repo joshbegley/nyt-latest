@@ -1,3 +1,7 @@
+**The Winner of This Rivalry Gets Ice Cream. But So Does the Loser.**\
+`The competition between two popular ice cream shops in Ramallah inspires fierce loyalties, and a running joke, for lovers of cones piled high with flavors.`\
+https://www.nytimes.com/2026/09/23/world/middleeast/ice-cream-ramallah-baladna-rukab.html
+
 **Trump’s Major Retreat on Greenland, and Why Texas Hit Pause on New Data Centers**\
 `Plus, El Niño is scrambling hurricane season.`\
 https://www.nytimes.com/2026/09/23/podcasts/the-headlines/trump-greenland-texas-data-centers.html
