@@ -1,3 +1,7 @@
+**St. Paul Police Chief Sues Mayor, Claiming Harassment and Retaliation**\
+`The lawsuit comes days after an independent review found that Mayor Kaohly Her had treated employees in an “offensive and inappropriate way” and created an “uncomfortable work environment.”`\
+https://www.nytimes.com/2026/09/23/us/st-paul-mayor-sexual-harassment-suit.html
+
 **At Trump’s Request, Nations Are Designating Crime Groups as Terrorists**\
 `Secretary of State Marco Rubio said leaders of countries across Latin America and the Caribbean had begun making the designations. The actions could help provide a public rationale for military strikes.`\
 https://www.nytimes.com/2026/09/23/world/americas/trump-shield-of-the-americas.html
@@ -161,10 +165,6 @@ https://www.nytimes.com/2026/09/23/magazine/uncle-son-cousin-ethics.html
 **Erin Brockovich and Justin Pearson Call for Communities to Push Back Against Building Data Centers**\
 `Erin Brockovich, the consumer activist, and Justin Pearson, a Democratic state representative of Tennessee, urged communities to not build new data centers.`\
 https://www.nytimes.com/video/climate/100000011169968/brockovich-pearson-against-data-centers.html
-
-**Stanislas Hutin, Who Denounced Torture in France’s Algerian War, Dies at 95**\
-`He was among the first to chronicle the French force’s systematic abuse of Algerians, brutal encounters that he documented in his journal and with his photography.`\
-https://www.nytimes.com/2026/09/23/world/middleeast/stanislas-hutin-dead.html
 
 **Climate Forward Live Updates: Energy Secretary Dismisses Idea of Diesel Export Ban**\
 `Energy Secretary Chris Wright, speaking at The New York Times’ annual Climate Forward event, dismissed reports that President Trump was preparing to ban U.S. exports of diesel in a bid to lower energy prices.`\
