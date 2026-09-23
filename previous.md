@@ -18,7 +18,7 @@ https://www.nytimes.com/2026/09/23/opinion/trump-iran-united-nations.html
 `The storm is one of the strongest ever in this part of the world.`\
 https://www.nytimes.com/2026/09/23/weather/hurricane-polo-el-nino-strongest.html
 
-**Abigail Spanberger, Virginia Governor, Calls for Data Center Rules**\
+**Abigail Spanberger, Virginia Governor, Calls for A.I. Data Center Rules**\
 `Abigail Spanberger, who announced a set of policies on data centers last week, said states should do more to reduce their pollution.`\
 https://www.nytimes.com/2026/09/23/climate/abigail-spanberger-climate-change.html
 
@@ -171,7 +171,7 @@ https://www.nytimes.com/2026/09/23/arts/ralph-ellison-bard-archive.html
 https://www.nytimes.com/2026/09/23/style/newborn-visiting-dirty-house.html
 
 **Climate Forward Live Updates: Leaders Confront a Data Center Backlash and Rising Energy Prices**\
-`Energy Secretary Chris Wright will appear this afternoon at The New York Times’ annual Climate Forward event, where industry figures are discussing how they are grappling with a consequential moment.`\
+`Energy Secretary Chris Wright will speak soon at The New York Times’ annual Climate Forward event, where industry figures are discussing how they are grappling with a consequential moment.`\
 https://www.nytimes.com/live/2026/09/23/climate/climate-forward-conference
 
 **‘Screamplay’: A Hollywood Horror Comedy**\

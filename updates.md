@@ -1,3 +1,11 @@
+**Abigail Spanberger, Virginia Governor, Calls for A.I. Data Center Rules**\
+`Abigail Spanberger, who announced a set of policies on data centers last week, said states should do more to reduce their pollution.`\
+https://www.nytimes.com/2026/09/23/climate/abigail-spanberger-climate-change.html
+
+**Climate Forward Live Updates: Leaders Confront a Data Center Backlash and Rising Energy Prices**\
+`Energy Secretary Chris Wright will speak soon at The New York Times’ annual Climate Forward event, where industry figures are discussing how they are grappling with a consequential moment.`\
+https://www.nytimes.com/live/2026/09/23/climate/climate-forward-conference
+
 **A Powerful Nor’easter Is Taking Shape. How It Could Affect Your Forecast.**\
 `The forecast for this weekend became a lot clearer on Wednesday, but meteorologists warned that the storm’s exact path was still uncertain.`\
 https://www.nytimes.com/2026/09/23/weather/noreaster-storm-new-york-boston-rain.html
