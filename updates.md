@@ -1,3 +1,7 @@
+**Prada Says All You Really Need Is a Knee-Length Skirt**\
+`Milan Fashion Week began with a show devoted to a single garment.`\
+https://www.nytimes.com/2026/09/23/style/prada-skirts.html
+
 **Harvey Weinstein Will Be Sentenced in New York Sex Crime Case**\
 `Prosecutors have asked for a 20-year sentence, but Harvey Weinstein still faces a lawsuit in New York and a resentencing in a separate case in California.`\
 https://www.nytimes.com/2026/09/23/nyregion/nyc-harvey-weinstein-rape-sentencing.html
