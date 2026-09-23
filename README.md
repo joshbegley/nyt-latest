@@ -186,7 +186,3 @@ https://www.nytimes.com/video/arts/100000011161897/d-b-weiss-on-his-favorite-tv-
 `This week’s properties are in Plainfield, Vt.; Philadelphia; and St. Paul, Minn.`\
 https://www.nytimes.com/2026/09/23/realestate/best-home-vermont-philadelphia-stpaul.html
 
-**Lena Waithe on Her Favorite TV Shows**\
-`The actor and screenwriter Lena Waithe is one of the hundreds of stars, showrunners and industry insiders who contributed their picks for The New York Times’s list of the best TV shows of the 21st century.`\
-https://www.nytimes.com/video/arts/100000011161866/lena-waithe-on-her-favorite-tv-shows.html
-
