@@ -1,3 +1,7 @@
+**How Scientists Contained a Threat That Could Have Destroyed Humanity**\
+`A half-century ago, scientists and lawyers agreed to strict self-regulation in DNA research to avoid catastrophe. Can A.I. follow the same model?`\
+https://www.nytimes.com/2026/09/23/us/asilomar-dna-ai-self-regulation-laws.html
+
 **U.N. Live Updates: Iran’s President to Address World Leaders After Trump Threat**\
 `Among those scheduled to speak on Wednesday was Masoud Pezeshkian, the first leader whose country is at war with the United States to address the General Assembly in New York. On Tuesday, President Trump said he faced a choice over whether to “annihilate” the Islamic Republic.`\
 https://www.nytimes.com/live/2026/09/23/world/un-general-assembly-iran-ukraine

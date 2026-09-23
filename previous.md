@@ -143,7 +143,7 @@ https://www.nytimes.com/2026/09/23/world/americas/trump-mexico-trade-relations.h
 https://www.nytimes.com/2026/09/23/travel/luxury-hotel-experiences-non-guest.html
 
 **How Scientists Contained a Threat That Could Have Destroyed Humanity**\
-`A half-century ago, scientists and lawyers agreed to strict self-regulation in DNA research to avoid catastrophe. But it took enforcement to really stop them.`\
+`A half-century ago, scientists and lawyers agreed to strict self-regulation in DNA research to avoid catastrophe. Can A.I. follow the same model?`\
 https://www.nytimes.com/2026/09/23/us/asilomar-dna-ai-self-regulation-laws.html
 
 **‘The Love Hypothesis’ Review: Steady Results From a Fake Relationship**\
