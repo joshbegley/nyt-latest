@@ -1,3 +1,15 @@
+**5 Must-See Off Broadway Shows, New and Remounted**\
+`Our critics recommend Molière in the Park’s “Don Juan,” “Beyond the Stardust,” “The Hope Theory,” “Pre-Existing Condition” and more.`\
+https://www.nytimes.com/2026/09/23/theater/off-broadway-theater-shows-don-juan-hope-theory.html
+
+**6-Year-Old Girl in China Sets a Rubik’s Cube Record**\
+`Lian Yunzhi of China solved a Rubik’s Cube five times in an average of 4.27 seconds, setting a women’s world record.`\
+https://www.nytimes.com/2026/09/23/world/asia/rubiks-cube-record-lian-yunzhi.html
+
+**Met Opera’s New Season Opens With Verdi’s ‘Macbeth’**\
+`Luminaries gathered to celebrate the Metropolitan Opera’s new season, which opened with Verdi’s “Macbeth.”`\
+https://www.nytimes.com/2026/09/23/style/met-opera-opening-night-macbeth.html
+
 **When the Jacket Is the Whole Outfit**\
 `Making a meal of outerwear.`\
 https://www.nytimes.com/2026/09/23/style/london-fashion-week-street-style.html
@@ -173,16 +185,4 @@ https://www.nytimes.com/2026/09/23/podcasts/taylor-tomlinson-comedian-relationsh
 **Are You Following the News About the Ed Sheeran Tour? What Is Your Reaction?**\
 `The rapper Macklemore was dropped from Ed Sheeran’s Loop tour after saying “Free Palestine” onstage, raising questions about freedom of speech.`\
 https://www.nytimes.com/2026/09/23/learning/are-you-following-the-news-about-the-ed-sheeran-tour-what-is-your-reaction.html
-
-**At the U.N., Japan’s Leader Says It’s Time to End ‘Enemy State’ Label**\
-`Prime Minister Sanae Takaichi said the United Nations should scrub the World War II-era designation from its Charter. China and Russia have used the term recently to attack Japan.`\
-https://www.nytimes.com/2026/09/23/world/asia/unga-japan-takaichi-enemy-state.html
-
-**Why Germany’s Leader Merz Is Struggling to Sway Voters**\
-`As the far right surges, Chancellor Friedrich Merz’s unpopular economic policies and gruff manner have failed to sway voters turned by rivals’ promises of easy fixes.`\
-https://www.nytimes.com/2026/09/23/world/europe/germany-merz-afd-economy.html
-
-**92NY’s $250 Million Renovation Transforms an ‘Amazing Jigsaw Puzzle’**\
-`92NY has been a pillar of New York City culture for nearly a century. With a six-year renovation underway, the leaders hope it will become more accessible.`\
-https://www.nytimes.com/2026/09/23/realestate/92ny-nyc-renovation.html
 

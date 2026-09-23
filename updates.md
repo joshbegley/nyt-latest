@@ -1,3 +1,15 @@
+**5 Must-See Off Broadway Shows, New and Remounted**\
+`Our critics recommend Molière in the Park’s “Don Juan,” “Beyond the Stardust,” “The Hope Theory,” “Pre-Existing Condition” and more.`\
+https://www.nytimes.com/2026/09/23/theater/off-broadway-theater-shows-don-juan-hope-theory.html
+
+**6-Year-Old Girl in China Sets a Rubik’s Cube Record**\
+`Lian Yunzhi of China solved a Rubik’s Cube five times in an average of 4.27 seconds, setting a women’s world record.`\
+https://www.nytimes.com/2026/09/23/world/asia/rubiks-cube-record-lian-yunzhi.html
+
+**Met Opera’s New Season Opens With Verdi’s ‘Macbeth’**\
+`Luminaries gathered to celebrate the Metropolitan Opera’s new season, which opened with Verdi’s “Macbeth.”`\
+https://www.nytimes.com/2026/09/23/style/met-opera-opening-night-macbeth.html
+
 **When the Jacket Is the Whole Outfit**\
 `Making a meal of outerwear.`\
 https://www.nytimes.com/2026/09/23/style/london-fashion-week-street-style.html
