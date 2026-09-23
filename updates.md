@@ -1,3 +1,19 @@
+**Erin Brockovich and Justin Pearson Call for Communities to Push Back Against Building Data Centers**\
+`Erin Brockovich, the consumer activist, and Justin Pearson, a Democratic state representative of Tennessee, urged communities to not build new data centers.`\
+https://www.nytimes.com/video/climate/100000011169968/brockovich-pearson-against-data-centers.html
+
+**Stanislas Hutin, Who Denounced Torture in France’s Algerian War, Dies at 95**\
+`He was among the first to chronicle the French force’s systematic abuse of Algerians, brutal encounters that he documented in his journal and with his photography.`\
+https://www.nytimes.com/2026/09/23/world/middleeast/stanislas-hutin-dead.html
+
+**Bessent Mistakenly Failed to Report Holdings of JP Morgan Stock**\
+`Treasury Secretary Scott Bessent’s finances were reviewed by the inspector general after Mr. Bessent incorrectly listed at least $100,000 of the stock, which was owned by his husband, as cash.`\
+https://www.nytimes.com/2026/09/23/business/bessent-jp-morgan-stock.html
+
+**U.N. Live Updates: Iran’s President Accuses U.S. and Israel of Lawless Attacks in a Defiant Address**\
+`Masoud Pezeshkian said Iran was open to diplomacy but would never accept limits on its civilian nuclear program. Before his speech later today, President Volodymyr Zelensky of Ukraine called on allies to apply more pressure on Russia.`\
+https://www.nytimes.com/live/2026/09/23/world/un-general-assembly-iran-ukraine
+
 **Jane Fonda Criticizes Both U.S. Political Parties for Climate Inaction**\
 `The actor and activist Jane Fonda said the U.S. is facing “two existential crises — climate and democracy.”`\
 https://www.nytimes.com/video/climate/100000011169969/climate-nyt-activism-environment-jane-fonda.html
