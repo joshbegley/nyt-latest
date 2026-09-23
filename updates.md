@@ -1,3 +1,11 @@
+**Mamdani Aides Give City Council Little Insight Into Influencer Effort**\
+`At a New York City Council hearing, frustration grew as Mayor Zohran Mamdani’s representatives were unable to answer questions about the mayor’s use of influencers.`\
+https://www.nytimes.com/2026/09/22/nyregion/mamdani-council-influencers-hearing.html
+
+**Trump Cites National Security as He Faces Pushback on Press Ban, D.C. Arch and More**\
+`The president is increasingly invoking the rationale while facing legal challenges to his plans, even in more curious cases like his triumphal arch, which he says will now include snipers and drones.`\
+https://www.nytimes.com/2026/09/22/us/politics/trump-arch-national-security.html
+
 **Blocking Windmills? Banning Press? Building an Arch? Trump Cites National Security.**\
 `The president is increasingly invoking the rationale while facing legal challenges to his plans, even in more curious cases like his triumphal arch, which he says will now include snipers and drones.`\
 https://www.nytimes.com/2026/09/22/us/politics/trump-arch-national-security.html

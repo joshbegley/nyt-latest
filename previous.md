@@ -1,4 +1,8 @@
-**Blocking Windmills? Banning Press? Building an Arch? Trump Cites National Security.**\
+**Mamdani Aides Give City Council Little Insight Into Influencer Effort**\
+`At a New York City Council hearing, frustration grew as Mayor Zohran Mamdani’s representatives were unable to answer questions about the mayor’s use of influencers.`\
+https://www.nytimes.com/2026/09/22/nyregion/mamdani-council-influencers-hearing.html
+
+**Trump Cites National Security as He Faces Pushback on Press Ban, D.C. Arch and More**\
 `The president is increasingly invoking the rationale while facing legal challenges to his plans, even in more curious cases like his triumphal arch, which he says will now include snipers and drones.`\
 https://www.nytimes.com/2026/09/22/us/politics/trump-arch-national-security.html
 
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/09/22/technology/anthropic-ai-model-safety.html
 **How Paramount Won Warner Bros.**\
 `After months of legal and political wrangling, the media mogul David Ellison arrived at a deal with the coalition of states seeking to block his $111 billion acquisition of Warner Bros. Discovery.`\
 https://www.nytimes.com/2026/09/22/business/paramount-warner-bros-ellison-bonta.html
-
-**Netanyahu Falsely Accuses Mamdani of Supporting Hamas After Mayor’s CNN Interview**\
-`The Israeli prime minister falsely accused Mayor Zohran Mamdani of supporting Hamas after CNN interview clips showed Mr. Mamdani again calling Mr. Netanyahu a war criminal.`\
-https://www.nytimes.com/2026/09/22/nyregion/netanyahu-mamdani-attack-hamas-cnn.html
 
 **U.N. Live Updates: As Trump Threatens Iran, Other Leaders Warn of Deep Divisions**\
 `President Trump said he must decide whether to make a deal or “annihilate” Iran, in a gathering where world leaders typically focus on declarations of global harmony.`\
