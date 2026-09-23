@@ -1,3 +1,7 @@
+**Prices Have Skyrocketed in Russian Supermarkets. We Have the Receipts.**\
+`Costs have risen dramatically since Russia launched its full-scale invasion of Ukraine. And sanctions have changed some products available, too.`\
+https://www.nytimes.com/interactive/2026/09/23/world/europe/russia-supermarket-prices-ukraine-war.html
+
 **Hurricane Polo Intensifies Off Mexico’s West Coast**\
 `Hurricane Polo rapidly intensified into a Category 5 dynamo in less than a day, prompting the Mexican authorities to issue storm warnings. It is not expected to make landfall, according to officials.`\
 https://www.nytimes.com/video/world/americas/100000011169375/hurricane-polo-mexico.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/09/22/world/europe/zelensky-trump-war-russia.html
 **Restaurant Review: Cafe Bar J.F. in New York**\
 `The new Williamsburg spot from the team behind the Llama Inn is cooking surprising, sophisticated dishes with a South American bent.`\
 https://www.nytimes.com/2026/09/22/dining/restaurant-review-cafe-bar-jf-nyc.html
-
-**At U.N., Trump Says He Will Strike a Deal With Iran or ‘Annihilate’ It**\
-`President Trump’s statement to the U.N. General Assembly that he could “drive them into hell with no chance of survival” was a jarring departure in a forum devoted to world peace.`\
-https://www.nytimes.com/2026/09/22/world/americas/trump-annihilate-iran-unga.html
 
 **U.N. Updates: As Trump Threatens Iran, Other Leaders Warn of Deep Divisions**\
 `President Trump said he must decide whether to make a deal or “annihilate” Iran, in a gathering where world leaders typically focus on declarations of global harmony.`\
