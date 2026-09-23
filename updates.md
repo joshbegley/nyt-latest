@@ -1,3 +1,7 @@
+**Melania Trump’s Busy Schedule: A New Show, a Foster-Care Bill and Reading Executive Orders**\
+`In a burst of activity this week, the enigmatic first lady told Americans what she has been up to after a quiet summer. Her activities have included filming a new documentary series about her life.`\
+https://www.nytimes.com/2026/09/23/us/politics/melania-trumps-busy-schedule-a-new-show-a-foster-care-bill-and-reading-executive-orders.html
+
 **ABC, CBS and More TV Networks Won’t Film Xi’s Arrival Amid Trump’s Press Ban**\
 `The White House TV pool has suspended its coverage of President Trump since he banned CNN, MS NOW and Politico from the White House. The suspension was not expected to change before the arrival of China’s leader on Wednesday.`\
 https://www.nytimes.com/2026/09/23/business/media/tv-networks-xi-arrival.html

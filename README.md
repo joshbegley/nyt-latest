@@ -1,6 +1,10 @@
+**At the U.N., Iran Says It Will Not Give Up Its Nuclear Program**\
+`Also, hackers say they stole thousands of sensitive F.B.I. records. Here’s the latest at the end of Wednesday.`\
+https://www.nytimes.com/2026/09/23/briefing/at-the-un-iran-says-it-will-not-give-up-its-nuclear-program.html
+
 **Melania Trump’s Busy Schedule: A New Show, a Foster-Care Bill and Reading Executive Orders**\
 `In a burst of activity this week, the enigmatic first lady told Americans what she has been up to after a quiet summer. Her activities have included filming a new documentary series about her life.`\
-https://www.nytimes.com/2026/09/23/us/politics/melania-trumps-busy-schedule-a-new-show-a-foster-care-bill-and-reading-executive-orders.html
+https://www.nytimes.com/2026/09/23/us/politics/melania-trump-documentary-schedule.html
 
 **Tropical Storm Nolo Forms Near Hawaii**\
 `Nolo, still a tropical storm for now, formed on Wednesday south of the state.`\
@@ -161,10 +165,6 @@ https://www.nytimes.com/2026/09/23/us/politics/rfk-jr-book-advances-maha.html
 **Disney’s Fired C.E.O. Bob Chapek Settles Scores With Bob Iger in New Book**\
 `In a new memoir, Bob Chapek publicly addresses his 2022 ouster for the first time. He blames Mr. Iger, who both preceded and succeeded him at Disney.`\
 https://www.nytimes.com/2026/09/23/business/media/disney-bob-chapek-bob-iger.html
-
-**Maps: Tracking a Potential Hurricane Near Hawaii**\
-`See the likely path and wind arrival times for Nolo`\
-https://www.nytimes.com/interactive/2026/09/23/weather/hawaii-storm-map-path.html
 
 **Judge Appears Skeptical of Trump’s Ban on 3 Media Outlets**\
 `CNN, MS NOW and Politico argued in court that the president’s effort to block them from the White House complex violated their First Amendment rights. The judge promised to rule soon.`\

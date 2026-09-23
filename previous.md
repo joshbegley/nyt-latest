@@ -1,3 +1,7 @@
+**Melania Trump’s Busy Schedule: A New Show, a Foster-Care Bill and Reading Executive Orders**\
+`In a burst of activity this week, the enigmatic first lady told Americans what she has been up to after a quiet summer. Her activities have included filming a new documentary series about her life.`\
+https://www.nytimes.com/2026/09/23/us/politics/melania-trumps-busy-schedule-a-new-show-a-foster-care-bill-and-reading-executive-orders.html
+
 **Tropical Storm Nolo Forms Near Hawaii**\
 `Nolo, still a tropical storm for now, formed on Wednesday south of the state.`\
 https://www.nytimes.com/2026/09/23/weather/tropical-storm-nolo-hurricane-hawaii.html
