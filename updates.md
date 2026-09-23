@@ -1,3 +1,11 @@
+**How El Niño Fueled Hurricane Polo’s Explosive Growth**\
+`The storm is one of the strongest ever in this part of the world.`\
+https://www.nytimes.com/2026/09/23/weather/hurricane-polo-el-nino-strongest.html
+
+**Virginia’s Governor Calls for ‘Rules of the Road’ on Data Centers**\
+`Abigail Spanberger, who announced a set of policies on data centers last week, said states should do more to reduce their pollution.`\
+https://www.nytimes.com/2026/09/23/climate/abigail-spanberger-climate-change.html
+
 **Gerard Barron, Metals Company Chief, Makes the Case for Seafloor Mining**\
 `The head of the company hoping to become the first to conduct commercial deep-sea mining said mines on land had a much larger environmental footprint.`\
 https://www.nytimes.com/2026/09/23/climate/gerard-barron-metals-company-ocean-floor-mining.html

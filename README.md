@@ -1,3 +1,7 @@
+**Trump’s Threat to ‘Annihilate’ Iran**\
+`Readers react to President Trump’s speech to the United Nations General Assembly. Also: Immigrants’ fears; better eating habits.`\
+https://www.nytimes.com/2026/09/23/opinion/trump-iran-united-nations.html
+
 **How El Niño Fueled Hurricane Polo’s Explosive Growth**\
 `The storm is one of the strongest ever in this part of the world.`\
 https://www.nytimes.com/2026/09/23/weather/hurricane-polo-el-nino-strongest.html
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/09/23/world/middleeast/syria-un-general-assembly-al
 **The Distrust Election**\
 `We look at how voters feel about government.`\
 https://www.nytimes.com/2026/09/23/briefing/the-distrust-election.html
-
-**The Winner of This Rivalry Gets Ice Cream. But So Does the Loser.**\
-`The competition between two popular ice cream shops in Ramallah inspires fierce loyalties, and a running joke, for lovers of cones piled high with flavors.`\
-https://www.nytimes.com/2026/09/23/world/middleeast/ice-cream-ramallah-baladna-rukab.html
 
 **U.N. Live Updates: Iran’s President Accuses U.S. and Israel of Lawless Attacks in a Defiant Address**\
 `Masoud Pezeshkian said Iran was open to diplomacy but would never accept limits on its civilian nuclear program. Before his speech later today, President Volodymyr Zelensky of Ukraine called on allies to apply more pressure on Russia.`\
