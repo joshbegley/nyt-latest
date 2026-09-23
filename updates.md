@@ -1,3 +1,7 @@
+**Dolly Parton’s Nephew Is Accused of Threatening Her Estate**\
+`Ms. Parton’s manager filed a request for a restraining order against Bryan Seaver, accusing her former security provider of intimidation and extortion.`\
+https://www.nytimes.com/2026/09/22/arts/music/dolly-parton-restraining-order-bryan-seaver.html
+
 **Tropical Sea Turtle Lays Eggs on Southern California Beach**\
 `It’s the first time in recorded history that a sea turtle has nested on the West Coast. Scientists say it is the latest sign of warming ocean waters.`\
 https://www.nytimes.com/2026/09/22/us/olive-ridley-sea-turtle-climate-california.html
