@@ -195,6 +195,6 @@ https://www.nytimes.com/2026/09/23/crosswords/spelling-bee-forum.html
 https://www.nytimes.com/2026/09/23/insider/bookstores-nyc-manhattan-brooklyn.html
 
 **Youth Frustration and Migration Shadow Morocco’s Election**\
-`Unemployment and poor public services fueled the border crisis at Ceuta and the Gen Z protests, but frustrated young people may stay away from the polls.`\
+`Unemployment and poor public services fueled the border crisis at Ceuta and Gen Z protests, but frustrated young people may stay away from the polls.`\
 https://www.nytimes.com/2026/09/23/world/africa/morocco-election-youth-frustration.html
 

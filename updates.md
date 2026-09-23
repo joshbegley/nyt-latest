@@ -1,3 +1,7 @@
+**Youth Frustration and Migration Shadow Morocco’s Election**\
+`Unemployment and poor public services fueled the border crisis at Ceuta and Gen Z protests, but frustrated young people may stay away from the polls.`\
+https://www.nytimes.com/2026/09/23/world/africa/morocco-election-youth-frustration.html
+
 **‘It’s Really Busy Out There’: Storms in the Pacific Threaten Hawaii and Mexico**\
 `An already busy Pacific hurricane season got a lot busier this week.`\
 https://www.nytimes.com/2026/09/23/weather/pacific-hurricanes-hawaii-polo.html
