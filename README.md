@@ -1,3 +1,11 @@
+**Tropical Sea Turtle Lays Eggs on Southern California Beach**\
+`It’s the first time in recorded history that a sea turtle has nested on the West Coast. Scientists say it is the latest sign of warming ocean waters.`\
+https://www.nytimes.com/2026/09/22/us/olive-ridley-sea-turtle-climate-california.html
+
+**Endangered Sea Turtle Lays Eggs on Southern California Beach**\
+`For the first time ever, scientists recorded a sea turtle laying eggs on a beach on the U.S. West Coast. A fence was erected around the eggs of the olive ridley turtle.`\
+https://www.nytimes.com/video/science/earth/100000011167855/endangered-sea-turtle-california-beach.html
+
 **Dolly Parton’s Nephew Is Accused of Threatening Her Estate**\
 `Ms. Parton’s estate filed a request for a restraining order against Bryan Seaver, accusing her former security provider of intimidation and extortion.`\
 https://www.nytimes.com/2026/09/22/arts/music/dolly-parton-restraining-order-bryan-seaver.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/09/22/world/next-un-leader-guterres.html
 **A Departing U.N. Chief’s Dire Warning on Climate Change**\
 `As he nears the end of his term as the Secretary General of the United Nations, António Guterres looks back on his efforts to stop climate change.`\
 https://www.nytimes.com/2026/09/22/climate/antonio-guterres-climate-change.html
-
-**Patrick O’Connell Built an Opulent Culinary Kingdom. Who Will Inherit the Keys?**\
-`Patrick O’Connell has made the Inn at Little Washington one of the country’s great restaurants. In the process, he’s become a rural baron, presiding over both his business and the town.`\
-https://www.nytimes.com/2026/09/22/dining/patrick-oconnell.html
-
-**Fact-Checking Trump’s Speech at the United Nations**\
-`President Trump’s remarks about oil reserves, the drug trade and his peace efforts contained falsehoods and exaggerations.`\
-https://www.nytimes.com/2026/09/22/us/politics/fact-check-trump-united-nations.html
 
 **U.N. Updates: As Trump Threatens Iran, Other Leaders Warn of Deep Divisions**\
 `President Trump said he must decide whether to make a deal or “annihilate” Iran, in a gathering where world leaders typically focus on declarations of global harmony.`\
