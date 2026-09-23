@@ -1,3 +1,7 @@
+**America’s A.I. Leaders Warn U.N. of Possible Peril Absent a Global Response**\
+`Sam Altman of OpenAI and Dario Amodei of Anthropic told the Security Council that international cooperation was needed to ensure that A.I. remains under human control.`\
+https://www.nytimes.com/2026/09/23/us/politics/ai-leaders-united-nations-global-response.html
+
 **Canada’s Capital Bids Good Riddance to Trump Avenue as Tensions With U.S. Rise**\
 `Ottawa’s City Council decided that the street should no longer be named for President Trump, who recently signed an executive order changing Lake Ontario to Lake America.`\
 https://www.nytimes.com/2026/09/23/us/ottawa-canada-renaming-trump-avenue.html

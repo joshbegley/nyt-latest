@@ -1,3 +1,7 @@
+**Iowa Judge Dismisses Trump’s Lawsuit Against The Des Moines Register**\
+`The suit challenged a poll that showed Trump trailing Kamala Harris in the final weeks of the 2024 campaign. A judge warned that similar legal challenges could have a chilling effect on news reporting.`\
+https://www.nytimes.com/2026/09/23/us/politics/des-moines-register-trump-lawsuit.html
+
 **America’s A.I. Leaders Warn U.N. of Possible Peril Absent a Global Response**\
 `Sam Altman of OpenAI and Dario Amodei of Anthropic told the Security Council that international cooperation was needed to ensure that A.I. remains under human control.`\
 https://www.nytimes.com/2026/09/23/us/politics/ai-leaders-united-nations-global-response.html
@@ -7,7 +11,7 @@ https://www.nytimes.com/2026/09/23/us/politics/ai-leaders-united-nations-global-
 https://www.nytimes.com/2026/09/23/us/ottawa-canada-renaming-trump-avenue.html
 
 **A Teacher and Activist Admits to Lying About Her Palestinian Background**\
-`Hannah Gann, who teaches at a Philadelphia high school, said that she had misled people for years and that is “a white woman of significant privilege.”`\
+`Hannah Gann, who teaches at a Philadelphia high school, said that she had misled people for years and that she is “a white woman of significant privilege.”`\
 https://www.nytimes.com/2026/09/23/us/philadelphia-teacher-palestinian-background.html
 
 **F.D.A. Advisory Panel Endorses Controversial Cancer Blood Test**\
@@ -174,10 +178,6 @@ https://www.nytimes.com/2026/09/23/business/media/florida-new-york-times-lawsuit
 `The latest sighting of people going in or out of the sewer system occurred on the Upper East Side, where many leaders and diplomats are staying during the United Nations General Assembly.`\
 https://www.nytimes.com/2026/09/23/nyregion/un-general-assembly-security-sewers.html
 
-**As Xi Visits Washington, Trump Plays Down China’s Actions Against U.S. Interests**\
-`Despite the rivalry between the United States and China, President Trump has repeatedly found ways to give President Xi Jinping of China a pass, portraying him more as a personal friend than a competitor.`\
-https://www.nytimes.com/2026/09/23/us/politics/trump-xi-china-visit.html
-
 **Judge Appears Skeptical of Trump’s Ban on 3 Media Outlets**\
 `CNN, MS NOW and Politico argued in court that the president’s effort to block them from the White House complex violated their First Amendment rights. The judge promised to rule soon.`\
 https://www.nytimes.com/live/2026/09/23/business/trump-cnn-politico-msnow-ban-hearing
@@ -187,6 +187,6 @@ https://www.nytimes.com/live/2026/09/23/business/trump-cnn-politico-msnow-ban-he
 https://www.nytimes.com/live/2026/09/23/climate/climate-forward-conference
 
 **U.N. Live Updates: Zelensky Warns of Growing Global Cost of Russia’s War in Ukraine**\
-`Ukraine’s president said rising fuel prices and deadlier drone technology showed that years of fighting have spilled beyond his country’s borders. He called for steps to end to the war before winter.`\
+`Ukraine’s president said rising fuel prices and deadlier drone technology showed that years of fighting have spilled beyond his country’s borders. Venezuela’s leader, Delcy Rodríguez, is making her comments to world leaders now.`\
 https://www.nytimes.com/live/2026/09/23/world/un-general-assembly-iran-ukraine
 
