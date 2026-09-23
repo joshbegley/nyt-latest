@@ -1,3 +1,11 @@
+**A Powerful Nor’easter Is Taking Shape. How It Could Affect Your Forecast.**\
+`The forecast for this weekend became a lot clearer on Wednesday, but meteorologists warned that the storm’s exact path was still uncertain.`\
+https://www.nytimes.com/2026/09/23/weather/noreaster-storm-new-york-boston-rain.html
+
+**How to Really Listen, According to Someone Who Has Been Doing It for Decades**\
+`Carol Gilligan’s groundbreaking feminist book “In a Different Voice” is more than 40 years old. She wishes it weren’t still so relevant.`\
+https://www.nytimes.com/2026/09/23/style/carol-gilligan-novel-listening.html
+
 **Iran Will Not Be Bullied, President Masoud Pezeshkian Says in U.N. Speech**\
 `President Masoud Pezeshkian said his country would not give up its civilian nuclear program, but left the door opened for diplomacy with the United States.`\
 https://www.nytimes.com/2026/09/23/world/middleeast/iran-president-un-speech.html
@@ -10,7 +18,7 @@ https://www.nytimes.com/2026/09/23/opinion/trump-iran-united-nations.html
 `The storm is one of the strongest ever in this part of the world.`\
 https://www.nytimes.com/2026/09/23/weather/hurricane-polo-el-nino-strongest.html
 
-**Virginia’s Governor Calls for ‘Rules of the Road’ on Data Centers**\
+**Abigail Spanberger, Virginia Governor, Calls for Data Center Rules**\
 `Abigail Spanberger, who announced a set of policies on data centers last week, said states should do more to reduce their pollution.`\
 https://www.nytimes.com/2026/09/23/climate/abigail-spanberger-climate-change.html
 
@@ -170,15 +178,7 @@ https://www.nytimes.com/live/2026/09/23/climate/climate-forward-conference
 `This 1980s black-and-white film by Rufus Butler Seder shows for a week in a new digital restoration at Anthology Film Archives.`\
 https://www.nytimes.com/2026/09/23/movies/screamplay-anthology-film-archives.html
 
-**Trump’s Diesel Dilemma**\
-`Calls to ban U.S. exports of the fuel are dividing Republicans. The energy crisis is also dominating discussions at the United Nations.`\
-https://www.nytimes.com/2026/09/23/business/dealbook/trump-diesel-dilemma.html
-
-**At U.N. Meeting, Syria’s Leader Is Strengthened, but Faces a Difficult Test**\
-`President Ahmed al-Sharaa has improved his diplomatic standing since he last addressed the U.N. General Assembly but faces mounting domestic economic and security challenges.`\
-https://www.nytimes.com/2026/09/23/world/middleeast/syria-un-general-assembly-al-sharaa.html
-
-**U.N. Live Updates: Iran’s President Accuses U.S. and Israel of Lawless Attacks in a Defiant Address**\
-`Masoud Pezeshkian said Iran was open to diplomacy but would never accept limits on its civilian nuclear program. Before his speech later today, President Volodymyr Zelensky of Ukraine called on allies to apply more pressure on Russia.`\
+**U.N. Live Updates: Zelensky Speaks Hours After New Russian Strikes on Kyiv**\
+`The Ukrainian president is expected to warn allies that Russia’s attacks may not be confined to his country. Earlier, President Masoud Pezeshkian of Iran said his country would not be bullied by the United States.`\
 https://www.nytimes.com/live/2026/09/23/world/un-general-assembly-iran-ukraine
 

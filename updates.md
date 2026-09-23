@@ -1,3 +1,19 @@
+**A Powerful Nor’easter Is Taking Shape. How It Could Affect Your Forecast.**\
+`The forecast for this weekend became a lot clearer on Wednesday, but meteorologists warned that the storm’s exact path was still uncertain.`\
+https://www.nytimes.com/2026/09/23/weather/noreaster-storm-new-york-boston-rain.html
+
+**How to Really Listen, According to Someone Who Has Been Doing It for Decades**\
+`Carol Gilligan’s groundbreaking feminist book “In a Different Voice” is more than 40 years old. She wishes it weren’t still so relevant.`\
+https://www.nytimes.com/2026/09/23/style/carol-gilligan-novel-listening.html
+
+**Abigail Spanberger, Virginia Governor, Calls for Data Center Rules**\
+`Abigail Spanberger, who announced a set of policies on data centers last week, said states should do more to reduce their pollution.`\
+https://www.nytimes.com/2026/09/23/climate/abigail-spanberger-climate-change.html
+
+**U.N. Live Updates: Zelensky Speaks Hours After New Russian Strikes on Kyiv**\
+`The Ukrainian president is expected to warn allies that Russia’s attacks may not be confined to his country. Earlier, President Masoud Pezeshkian of Iran said his country would not be bullied by the United States.`\
+https://www.nytimes.com/live/2026/09/23/world/un-general-assembly-iran-ukraine
+
 **Iran Will Not Be Bullied, President Masoud Pezeshkian Says in U.N. Speech**\
 `President Masoud Pezeshkian said his country would not give up its civilian nuclear program, but left the door opened for diplomacy with the United States.`\
 https://www.nytimes.com/2026/09/23/world/middleeast/iran-president-un-speech.html
