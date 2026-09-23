@@ -12,7 +12,7 @@ https://www.nytimes.com/2026/09/23/us/kratom-ole-miss-students-dead.html
 
 **Kennedy Drew $4 Million in Book Advances From Publisher Who Also Monetized MAHA**\
 `A new disclosure also shows $210,000 in consulting fees paid to Cheryl Hines, the health secretary’s wife, by one of several MAHA-affiliated groups capitalizing from his agenda.`\
-https://www.nytimes.com/2026/09/23/us/politics/kennedy-book-advances.html
+https://www.nytimes.com/2026/09/23/us/politics/rfk-jr-book-advances-maha.html
 
 **Disney’s Fired C.E.O. Bob Chapek Settles Scores With Bob Iger in New Book**\
 `In a new memoir, Bob Chapek publicly addresses his 2022 ouster for the first time. He blames Mr. Iger, who both preceded and succeeded him at Disney.`\

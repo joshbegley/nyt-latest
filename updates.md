@@ -1,3 +1,11 @@
+**Virginia’s Governor Calls for Stronger Regulation on Data Centers**\
+`Gov. Abigail Spanberger of Virginia called for stronger regulation on data centers and greater localized autonomy over the presence of data centers in their communities.`\
+https://www.nytimes.com/video/climate/100000011170592/abigail-spanberger-virginia-data-center.html
+
+**Man Guilty of Conspiracy for Running Drug Ring in Washington Square Park**\
+`A jury convicted the man, John Livigni, whom prosecutors said was a leader of a narcotics operation that resulted in two deaths and involved millions of sales around the Greenwich Village park.`\
+https://www.nytimes.com/2026/09/23/nyregion/nyc-washington-square-park-drugs.html
+
 **Officials Investigating Mississippi Student Deaths Issue Warning About Kratom**\
 `The herbal substance Kratom was found during inquiries into the recent deaths of two University of Mississippi students. Their causes of death have not been determined.`\
 https://www.nytimes.com/2026/09/23/us/kratom-ole-miss-students-dead.html
