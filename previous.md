@@ -11,7 +11,7 @@ https://www.nytimes.com/2026/09/22/us/olive-ridley-sea-turtle-climate-california
 https://www.nytimes.com/video/science/earth/100000011167855/endangered-sea-turtle-california-beach.html
 
 **Dolly Parton’s Estate in Turmoil After Extortion Accusations**\
-`Ms. Parton’s manager requested a restraining order against her nephew and former security provider, accusing him of threats and intimidation.`\
+`Ms. Parton’s manager requested a restraining order against the singer’s nephew and former security provider, accusing him of threats and intimidation.`\
 https://www.nytimes.com/2026/09/22/arts/music/dolly-parton-restraining-order-bryan-seaver.html
 
 **Trump Once Vowed to ‘Own’ Greenland. He Settled for Something Much Less.**\

@@ -1,3 +1,7 @@
+**Dolly Parton’s Estate in Turmoil After Extortion Accusations**\
+`Ms. Parton’s manager requested a restraining order against the singer’s nephew and former security provider, accusing him of threats and intimidation.`\
+https://www.nytimes.com/2026/09/22/arts/music/dolly-parton-restraining-order-bryan-seaver.html
+
 **NYT Crossword Answers for Sept. 23, 2026**\
 `How to solve Dana Edwards’s crossword puzzle? Just play.`\
 https://www.nytimes.com/2026/09/22/crosswords/daily-puzzle-2026-09-23.html
