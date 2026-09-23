@@ -1,3 +1,7 @@
+**Live Updates: Judge Appears Skeptical of Trump’s Ban on 3 Media Outlets**\
+`CNN, MS NOW and Politico argued in court that the president’s effort to block them from the White House complex violated their First Amendment rights. The judge promised to rule soon.`\
+https://www.nytimes.com/live/2026/09/23/business/trump-cnn-politico-msnow-ban-hearing
+
 **U.S. Energy Secretary Defends War on Iran Despite Increased Fuel Costs**\
 `U.S. Energy Secretary Chris Wright defended the country’s war on Iran despite increased fuel costs and political ramifications.`\
 https://www.nytimes.com/video/climate/100000011171022/energy-secretary-defends-iran-war.html
