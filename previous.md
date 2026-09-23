@@ -1,3 +1,7 @@
+**Jane Fonda Criticizes Both U.S. Political Parties for Climate Inaction**\
+`The actor and activist Jane Fonda said the U.S. is facing “two existential crises — climate and democracy.”`\
+https://www.nytimes.com/video/climate/100000011169969/climate-nyt-activism-environment-jane-fonda.html
+
 **Zelensky Is Expected to Warn Russia’s Aggression Won’t Stop at Ukraine’s Borders**\
 `President Volodymyr Zelensky is seeking to convey the critical urgency of his nation’s plight to world leaders increasingly distracted by competing global crises and domestic political pressures.`\
 https://www.nytimes.com/2026/09/23/world/europe/ukraine-russia-zelensky-unga.html
@@ -8,7 +12,7 @@ https://www.nytimes.com/video/world/europe/100000011169657/russia-strikes-ukrain
 
 **Bessent Failed to Report Holdings of JP Morgan Stock**\
 `Treasury Secretary Scott Bessent’s finances were reviewed by the inspector general after Mr. Bessent incorrectly listed at least $100,000 of the stock, which was owned by his husband, as cash.`\
-https://www.nytimes.com/2026/09/23/business/bessent-failed-to-report-holdings-of-jp-morgan-stock.html
+https://www.nytimes.com/2026/09/23/business/bessent-jp-morgan-stock.html
 
 **Walkouts at the U.N. General Assembly Are Somewhat of a Tradition**\
 `As President Masoud Pezeshkian of Iran delivered his speech, the lone U.S. diplomat sitting in the hall left.`\
@@ -20,7 +24,7 @@ https://www.nytimes.com/2026/09/23/briefing/ai-assistant.html
 
 **Museum Regrets Hosting 9/11 Event Airing Conspiracy Theories**\
 `As New York commemorated the 25th anniversary of the attacks, El Museo del Barrio rented space to a group skeptical of the explanation of what caused the twin towers to come down.`\
-https://www.nytimes.com/2026/09/23/arts/design/museum-regrets-hosting-9-11-event-airing-conspiracy-theories.html
+https://www.nytimes.com/2026/09/23/arts/design/el-museo-del-barrio-9-11-conspiracy-theories.html
 
 **New Study Illuminates Bats’ Murky Origins**\
 `The largest analysis of bat genomes and fossils suggests that the first bats emerged in Europe roughly 65 million years ago and that echolocation evolved early.`\
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/09/23/travel/amtrak-private-train-cars.html
 **Jensen Huang Thinks A.I. Alarmism Has Gone Too Far**\
 `Jensen Huang, the chief executive of Nvidia, does not want you to be afraid of A.I.`\
 https://www.nytimes.com/2026/09/23/opinion/ezra-klein-podcast-jensen-huang.html
-
-**Trump’s New Favorite Neighbor: Mexico**\
-`President Trump built his political brand in part on bashing Mexico. Now his second presidency depends on deepening partnerships with the country.`\
-https://www.nytimes.com/2026/09/23/world/americas/trump-mexico-trade-relations.html
 
