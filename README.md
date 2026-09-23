@@ -1,3 +1,7 @@
+**Russia Strikes Kyiv Hours Before Zelensky Addresses United Nations**\
+`Russia launched daytime strikes on Kyiv on Wednesday, hours before President Volodymyr Zelensky of Ukraine was set to address the United Nations General Assembly. The day before, Ukraine said it had struck two Russian oil refineries.`\
+https://www.nytimes.com/video/world/europe/100000011169657/russia-strikes-ukraine-zelensky-un-general-assembly.html
+
 **Bessent Failed to Report Holdings of JP Morgan Stock**\
 `Treasury Secretary Scott Bessent’s finances were reviewed by the inspector general after Mr. Bessent incorrectly listed at least $100,000 of the stock, which was owned by his husband, as cash.`\
 https://www.nytimes.com/2026/09/23/business/bessent-failed-to-report-holdings-of-jp-morgan-stock.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/09/23/world/americas/trump-mexico-trade-relations.h
 **These 5-Star Hotels Allow You to Enjoy Luxury Experiences as a Non-Guest**\
 `The cost of a night at a luxury hotel can be daunting, but you can get a taste of the gilded life for less by booking an experience. Here, six standouts.`\
 https://www.nytimes.com/2026/09/23/travel/luxury-hotel-experiences-non-guest.html
-
-**How Scientists Contained a Threat That Could Have Destroyed Humanity**\
-`A half-century ago, scientists and lawyers agreed to strict self-regulation in DNA research to avoid catastrophe. Can A.I. follow the same model?`\
-https://www.nytimes.com/2026/09/23/us/asilomar-dna-ai-self-regulation-laws.html
 

@@ -1,3 +1,7 @@
+**Bessent Failed to Report Holdings of JP Morgan Stock**\
+`Treasury Secretary Scott Bessent’s finances were reviewed by the inspector general after Mr. Bessent incorrectly listed at least $100,000 of the stock, which was owned by his husband, as cash.`\
+https://www.nytimes.com/2026/09/23/business/bessent-failed-to-report-holdings-of-jp-morgan-stock.html
+
 **Walkouts at the U.N. General Assembly Are Somewhat of a Tradition**\
 `As President Masoud Pezeshkian of Iran delivered his speech, the lone U.S. diplomat sitting in the hall left.`\
 https://www.nytimes.com/2026/09/23/world/un-general-assembly-walkout.html
@@ -14,13 +18,13 @@ https://www.nytimes.com/2026/09/23/arts/design/museum-regrets-hosting-9-11-event
 `The largest analysis of bat genomes and fossils suggests that the first bats emerged in Europe roughly 65 million years ago and that echolocation evolved early.`\
 https://www.nytimes.com/2026/09/23/science/evolution-genetics-bats.html
 
-**Wildfire Converted Me From Tree-Hugger to Tree-Worshipper**\
-`I used to view trees as ecologically angelic beings. No longer.`\
-https://www.nytimes.com/2026/09/23/opinion/wildfires-trees-scientific-animism.html
-
 **Lili Reinhart, of ‘The Love Hypothesis,’ Is Still Figuring It Out**\
 `The “Riverdale” actor reflects on fame, open communication and finding love in real life.`\
 https://www.nytimes.com/2026/09/23/movies/lili-reinhart-interview-the-love-hypothesis.html
+
+**Wildfire Converted Me From Tree-Hugger to Tree-Worshipper**\
+`I used to view trees as ecologically angelic beings. No longer.`\
+https://www.nytimes.com/2026/09/23/opinion/wildfires-trees-scientific-animism.html
 
 **Jane Fonda Hits Both Parties for Inaction on Climate Change**\
 `The longtime activist urged people to vote for leaders who understand the threat a warming planet faces.`\
@@ -103,7 +107,7 @@ https://www.nytimes.com/2026/09/23/crosswords/wordle-review-1923.html
 https://www.nytimes.com/2026/09/23/crosswords/strands-sidekick-935.html
 
 **U.N. Live Updates: Iran’s President Accuses U.S. and Israel of Lawless Attacks in a Defiant Address**\
-`Masoud Pezeshkian said Iran was open to diplomacy to end the war but would never accept limits on its civilian nuclear program. He became the first leader to speak to the General Assembly in New York while his country was at war with the United States.`\
+`Masoud Pezeshkian said Iran was open to diplomacy to end the war but would never accept limits on its civilian nuclear program. He became the first leader whose country was at war with the United States to speak in New York to the General Assembly.`\
 https://www.nytimes.com/live/2026/09/23/world/un-general-assembly-iran-ukraine
 
 **It’s Not the Oscars: U.N. Speakers Love to Ignore Its 15-Minute Rule**\
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/09/23/travel/luxury-hotel-experiences-non-guest.htm
 **How Scientists Contained a Threat That Could Have Destroyed Humanity**\
 `A half-century ago, scientists and lawyers agreed to strict self-regulation in DNA research to avoid catastrophe. Can A.I. follow the same model?`\
 https://www.nytimes.com/2026/09/23/us/asilomar-dna-ai-self-regulation-laws.html
-
-**‘The Love Hypothesis’ Review: Steady Results From a Fake Relationship**\
-`A biology graduate student (Lili Reinhart), enters an experiment with a young professor (Tom Bateman) to prove a point to her friend.`\
-https://www.nytimes.com/2026/09/23/movies/the-love-hypothesis-review.html
 
