@@ -1,3 +1,11 @@
+**Ralph Ellison Trust Donates Rights to Bard College**\
+`The liberal arts college announced a center dedicated to the “Invisible Man” author, who taught classes there.`\
+https://www.nytimes.com/2026/09/23/arts/ralph-ellison-bard-archive.html
+
+**I Don’t Want to Bring a New Baby Into My In-Laws’ Filthy Home. Help!**\
+`An expectant mother dreads the thought of visiting her husband’s parents with a newborn, as her in-laws’ housekeeping has lately taken a sharp turn for the worse.`\
+https://www.nytimes.com/2026/09/23/style/newborn-visiting-dirty-house.html
+
 **U.N. Live Updates: Iran’s President to Address World Leaders After Trump Threat**\
 `Masoud Pezeshkian is the first leader whose country is at war with the United States to travel to New York to address the General Assembly. President Trump said he faced a choice over whether to “annihilate” the Islamic Republic.`\
 https://www.nytimes.com/live/2026/09/23/world/un-general-assembly-iran-ukraine
