@@ -95,7 +95,7 @@ https://www.nytimes.com/2026/09/23/arts/ralph-ellison-bard-archive.html
 https://www.nytimes.com/2026/09/23/style/newborn-visiting-dirty-house.html
 
 **Climate Forward Live Updates: Leaders Confront a Data Center Backlash and Rising Energy Prices**\
-`Energy Secretary Chris Wright and Gov. Abigail Spanberger of Virginia will be among the speakers at The New York Times’ annual Climate Forward event, in a wide-ranging discussion coming at a consequential moment.`\
+`Gov. Abigail Spanberger of Virginia is speaking now at The New York Times’ annual Climate Forward event, in a wide-ranging discussion coming at a consequential moment. Energy Secretary Chris Wright will appear later.`\
 https://www.nytimes.com/live/2026/09/23/climate/climate-forward-conference
 
 **‘Screamplay’: A Hollywood Horror Comedy**\
