@@ -1,3 +1,15 @@
+**Climate Forward Live Updates: Leaders Confront a Data Center Backlash and Rising Energy Prices**\
+`Jane Fonda is speaking now at The New York Times’ annual Climate Forward event, which will also include interviews with Energy Secretary Chris Wright and industry figures grappling with a consequential moment.`\
+https://www.nytimes.com/live/2026/09/23/climate/climate-forward-conference
+
+**U.N. Live Updates: Iran’s President Accuses U.S. and Israel of Lawless Attacks**\
+`Masoud Pezeshkian is the first leader whose country is at war with the United States to speak to the General Assembly in New York. He decried attacks on civilian targets and said Iran would not accept limits on its nuclear program.`\
+https://www.nytimes.com/live/2026/09/23/world/un-general-assembly-iran-ukraine
+
+**Jensen Huang Thinks A.I. Alarmism Has Gone Too Far**\
+`Jensen Huang, the chief executive of Nvidia, does not want you to be afraid of A.I.`\
+https://www.nytimes.com/2026/09/23/opinion/ezra-klein-podcast-jensen-huang.html
+
 **U.N. Live Updates: Iran’s President Accuses U.S. and Israel of Lawless Attacks**\
 `Masoud Pezeshkian is the first leader whose country is at war with the United States to speak to the General Assembly in New York.`\
 https://www.nytimes.com/live/2026/09/23/world/un-general-assembly-iran-ukraine
