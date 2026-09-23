@@ -1,3 +1,11 @@
+**Blocking Windmills? Banning Press? Building an Arch? Trump Cites National Security.**\
+`The president is increasingly invoking the rationale while facing legal challenges to his plans, even in more curious cases like his triumphal arch, which he says will now include snipers and drones.`\
+https://www.nytimes.com/2026/09/22/us/politics/trump-arch-national-security.html
+
+**At U.N., Carney Lays Out a Broad Plan for a Divided World**\
+`Mark Carney, the Canadian prime minister, said the world is now at a point ‘that comes once or twice a century.’`\
+https://www.nytimes.com/2026/09/22/world/canada/carney-united-nations-general-assembly.html
+
 **As Trump Lobs Threats, Other World Leaders Mostly Avoid Talk of Iran**\
 `Some leaders criticized the global impact of the war and called for negotiations to resume, but they stopped short of criticizing President Trump’s remarks.`\
 https://www.nytimes.com/2026/09/22/world/trump-threats-world-leaders-iran-war.html
