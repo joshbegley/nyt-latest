@@ -1,3 +1,15 @@
+**St. Paul Police Chief Sues Mayor, Claiming Harassment and Retaliation**\
+`The lawsuit comes days after an independent review found that Mayor Kaohly Her had treated employees in an “offensive and inappropriate way” and created an “uncomfortable work environment.”`\
+https://www.nytimes.com/2026/09/23/us/st-paul-mayor-sexual-harassment-suit.html
+
+**At Trump’s Request, Nations Are Designating Crime Groups as Terrorists**\
+`Secretary of State Marco Rubio said leaders of countries across Latin America and the Caribbean had begun making the designations. The actions could help provide a public rationale for military strikes.`\
+https://www.nytimes.com/2026/09/23/world/americas/trump-shield-of-the-americas.html
+
+**RFK Jr. Drew $4 Million in Book Advances From Publisher Who Also Monetized MAHA**\
+`A new disclosure also shows $210,000 in consulting fees paid to Cheryl Hines, the health secretary’s wife, by one of several MAHA-affiliated groups capitalizing from his agenda.`\
+https://www.nytimes.com/2026/09/23/us/politics/rfk-jr-book-advances-maha.html
+
 **Nvidia Executive Argues A.I. Can Help Climate, Despite Current Emissions**\
 `Josh Parker, the head of sustainability for the chipmaker and world’s most valuable company, emphasized future — mostly theoretical — energy savings the technology could offer.`\
 https://www.nytimes.com/2026/09/23/climate/nvidia-ai-climate-change-sustainability-data-centers.html
