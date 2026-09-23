@@ -1,3 +1,7 @@
+**Trouble in the Heartland**\
+`The G.O.P. is on defense in the so-called “blue wall” states and beyond as gas prices remain high.`\
+https://www.nytimes.com/2026/09/23/us/politics/midwest-republican-candidates-trump.html
+
 **Taylor Tomlinson is Done Feeling Shame About Sex**\
 `When the comedian Taylor Tomlinson began exploring her attraction to women, she first had to overcome the judgment and guilt she’d internalized growing up in a conservative family. On the “Modern Love” podcast, Tomlinson tells the host, Anna Martin, how it felt to finally break free of shame.`\
 https://www.nytimes.com/video/podcasts/100000011171388/taylor-tomlinson-dating-women.html
@@ -51,7 +55,7 @@ https://www.nytimes.com/live/2026/09/23/us/trump-xi
 https://www.nytimes.com/2026/09/23/world/trump-xi-ai-meeting-iran-un.html
 
 **Judge Holds Off on Immediate Ruling on White House’s Media Ban**\
-`Judge Timothy J. Kelly heard arguments about President Trump’s recent decision to bar CNN, MS NOW and Politico from the White House grounds. He said he would issue a decision about it “as soon as possible.”`\
+`Judge Timothy J. Kelly heard arguments about President Trump’s decision to bar CNN, MS NOW and Politico from the White House grounds. He said he would rule “as soon as possible.”`\
 https://www.nytimes.com/2026/09/23/business/media/cnn-ms-now-politico-white-house-ban-ruling.html
 
 **Trump and Xi Face the A.I. Race**\
@@ -161,10 +165,6 @@ https://www.nytimes.com/video/climate/100000011170592/abigail-spanberger-virgini
 **Man Guilty of Conspiracy for Running Drug Ring in Washington Square Park**\
 `A jury convicted the man, John Livigni, who prosecutors said was a leader of a narcotics operation that resulted in two deaths and involved millions of sales around the Greenwich Village park.`\
 https://www.nytimes.com/2026/09/23/nyregion/nyc-washington-square-park-drugs.html
-
-**Officials Investigating Mississippi Student Deaths Issue Warning About Kratom**\
-`The herbal substance Kratom was found during inquiries into the recent deaths of two University of Mississippi students. Their causes of death have not been determined.`\
-https://www.nytimes.com/2026/09/23/us/kratom-ole-miss-students-dead.html
 
 **Judge Appears Skeptical of Trump’s Ban on 3 Media Outlets**\
 `CNN, MS NOW and Politico argued in court that the president’s effort to block them from the White House complex violated their First Amendment rights. The judge promised to rule soon.`\
