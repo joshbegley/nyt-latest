@@ -1,3 +1,15 @@
+**ICE Mistakenly Detains U.S. Citizen in Chicago Area, Leaving Him Injured**\
+`The Department of Homeland Security said agents released the man after he identified himself. He was taken to the hospital on Sunday with head and neck injuries, local police said.`\
+https://www.nytimes.com/2026/09/23/us/ice-us-citizen-detained-evanston-chicago.html
+
+**Rain Could Be Intense This Fall. Here’s How to Help Your Garden Cope.**\
+`With these tactics, bursts of heavy rain can become an asset rather than a liability.`\
+https://www.nytimes.com/2026/09/23/realestate/el-nino-rain-gardening.html
+
+**Bessent Mistakenly Failed to Report Holdings of JPMorgan Stock**\
+`Treasury Secretary Scott Bessent’s finances were reviewed by the inspector general after Mr. Bessent incorrectly listed at least $100,000 of the stock, which was owned by his husband, as cash.`\
+https://www.nytimes.com/2026/09/23/business/bessent-jp-morgan-stock.html
+
 **5 Must-See Off Broadway Shows, New and Remounted**\
 `Our critics recommend Molière in the Park’s “Don Juan,” “Beyond the Stardust,” “The Hope Theory,” “Pre-Existing Condition” and more.`\
 https://www.nytimes.com/2026/09/23/theater/off-broadway-theater-shows-don-juan-hope-theory.html

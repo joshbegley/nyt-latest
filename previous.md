@@ -1,3 +1,11 @@
+**ICE Mistakenly Detains U.S. Citizen in Chicago Area, Leaving Him Injured**\
+`The Department of Homeland Security said agents released the man after he identified himself. He was taken to the hospital on Sunday with head and neck injuries, local police said.`\
+https://www.nytimes.com/2026/09/23/us/ice-us-citizen-detained-evanston-chicago.html
+
+**Rain Could Be Intense This Fall. Here’s How to Help Your Garden Cope.**\
+`With these tactics, bursts of heavy rain can become an asset rather than a liability.`\
+https://www.nytimes.com/2026/09/23/realestate/el-nino-rain-gardening.html
+
 **5 Must-See Off Broadway Shows, New and Remounted**\
 `Our critics recommend Molière in the Park’s “Don Juan,” “Beyond the Stardust,” “The Hope Theory,” “Pre-Existing Condition” and more.`\
 https://www.nytimes.com/2026/09/23/theater/off-broadway-theater-shows-don-juan-hope-theory.html
@@ -42,7 +50,7 @@ https://www.nytimes.com/2026/09/23/world/europe/ukraine-russia-zelensky-unga.htm
 `Russia launched daytime strikes on Kyiv on Wednesday, hours before President Volodymyr Zelensky of Ukraine was set to address the United Nations General Assembly. The day before, Ukraine said it had struck two Russian oil refineries.`\
 https://www.nytimes.com/video/world/europe/100000011169657/russia-strikes-ukraine-zelensky-un-general-assembly.html
 
-**Bessent Mistakenly Failed to Report Holdings of JP Morgan Stock**\
+**Bessent Mistakenly Failed to Report Holdings of JPMorgan Stock**\
 `Treasury Secretary Scott Bessent’s finances were reviewed by the inspector general after Mr. Bessent incorrectly listed at least $100,000 of the stock, which was owned by his husband, as cash.`\
 https://www.nytimes.com/2026/09/23/business/bessent-jp-morgan-stock.html
 
@@ -177,12 +185,4 @@ https://www.nytimes.com/2026/09/23/pageoneplus/corrections-sept-23-2026.html
 **MrBeast and Rajiv Shah: We’ve Seen What Video Can Do. Let’s Use It for Good.**\
 `Video can help charity keep up with a changing world.`\
 https://www.nytimes.com/2026/09/23/opinion/mrbeast-rajiv-shah-video.html
-
-**Taylor Tomlinson Left Her Fiancé, Her Church and Her Shame**\
-`The comedian Taylor Tomlinson on freeing herself from old assumptions about when to settle down, and who to build her life with.`\
-https://www.nytimes.com/2026/09/23/podcasts/taylor-tomlinson-comedian-relationship-breakups.html
-
-**Are You Following the News About the Ed Sheeran Tour? What Is Your Reaction?**\
-`The rapper Macklemore was dropped from Ed Sheeran’s Loop tour after saying “Free Palestine” onstage, raising questions about freedom of speech.`\
-https://www.nytimes.com/2026/09/23/learning/are-you-following-the-news-about-the-ed-sheeran-tour-what-is-your-reaction.html
 
