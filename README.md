@@ -1,3 +1,7 @@
+**Jane Fonda Hits Both Parties for Inaction on Climate Change**\
+`The longtime activist urged people to vote for leaders who understand the threat a warming planet faces.`\
+https://www.nytimes.com/2026/09/23/climate/jane-fonda-climate-change-politics.html
+
 **Trump Officials May Undo Nursing Home Mandates for Reporting Covid**\
 `The agency led by Dr. Mehmet Oz is proposing an end to weekly tracking of respiratory infections at the facilities where thousands of elderly residents died in the pandemic.`\
 https://www.nytimes.com/2026/09/23/business/covid-nursing-homes-trump.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/09/23/books/review/anne-rice-interview-with-the-vam
 **Word of the Day: moot**\
 `This word has appeared in 81 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/09/23/learning/word-of-the-day-moot.html
-
-**‘It’s Very Simple’: 50 Years of Making Avant-Garde Music Sound Effortless**\
-`Founded by Pierre Boulez to treat new compositions with orchestral rigor, Ensemble Intercontemporain has honed the art of turning forbidding scores into expressive sound.`\
-https://www.nytimes.com/2026/09/23/arts/music/ensemble-intercontemporain-50th-anniversary.html
 
