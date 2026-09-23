@@ -1,3 +1,11 @@
+**Judge Holds Off on Immediate Ruling on White House’s Media Ban**\
+`Judge Timothy J. Kelly heard arguments about President Trump’s recent decision to bar CNN, MS NOW and Politico from the White House grounds. He said he would issue a decision about it “as soon as possible.”`\
+https://www.nytimes.com/2026/09/23/business/media/cnn-ms-now-politico-white-house-ban-ruling.html
+
+**Trump and Xi face the A.I. Race**\
+`Can the U.S. and China contain their A.I. race? Our White House and national security correspondent, David E. Sanger, explains how the problems of regulating A.I. echo the nuclear arms race of the Cold War, but the solutions seem different.`\
+https://www.nytimes.com/video/us/100000011159994/trump-and-xi-face-the-ai-race.html
+
 **Trump Invites Putin to Attend Group of 20 Summit in Miami**\
 `Many leaders are unlikely to welcome the Russian leader’s presence at the event because of his country’s war against Ukraine.`\
 https://www.nytimes.com/2026/09/23/us/politics/trump-putin-g20-summit.html
