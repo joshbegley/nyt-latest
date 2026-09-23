@@ -1,3 +1,11 @@
+**When the Jacket Is the Whole Outfit**\
+`Making a meal of outerwear.`\
+https://www.nytimes.com/2026/09/23/style/london-fashion-week-street-style.html
+
+**The Lucas Museum’s Architect Wants to Help You Escape from Reality**\
+`Ma Yansong, China’s reigning starchitect, lets his buildings wrapped in nature do the shouting.`\
+https://www.nytimes.com/2026/09/23/arts/design/lucas-museum-architect-ma-yansong-mad.html
+
 **My Uncle May Have a Son He Won’t Acknowledge. What Do I Owe My (Maybe) Cousin?**\
 `I feel very sad for this man trying to find his father.`\
 https://www.nytimes.com/2026/09/23/magazine/uncle-son-cousin-ethics.html
@@ -177,12 +185,4 @@ https://www.nytimes.com/2026/09/23/world/europe/germany-merz-afd-economy.html
 **92NY’s $250 Million Renovation Transforms an ‘Amazing Jigsaw Puzzle’**\
 `92NY has been a pillar of New York City culture for nearly a century. With a six-year renovation underway, the leaders hope it will become more accessible.`\
 https://www.nytimes.com/2026/09/23/realestate/92ny-nyc-renovation.html
-
-**She’s Making Her Met Debut. She’s a Snake.**\
-`Princess, a boa constrictor, has her own dressing room. Her understudy will be waiting in the wings.`\
-https://www.nytimes.com/2026/09/23/nyregion/snake-metropolitan-opera-cosi-fan-tutte.html
-
-**D. B. Weiss on His Favorite TV Shows**\
-`The screenwriter D. B. Weiss is one of the hundreds of stars, showrunners and industry insiders who contributed their picks for The New York Times’s list of the best TV shows of the 21st century.`\
-https://www.nytimes.com/video/arts/100000011161897/d-b-weiss-on-his-favorite-tv-shows.html
 
