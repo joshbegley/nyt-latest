@@ -1,3 +1,7 @@
+**Judge Holds Off on Immediate Ruling on White House’s Media Ban**\
+`Judge Timothy J. Kelly heard arguments about President Trump’s recent decision to bar CNN, MS NOW and Politico from the White House grounds. He said he would issue a decision about it “as soon as possible.”`\
+https://www.nytimes.com/2026/09/23/business/media/cnn-ms-now-politico-white-house-ban-ruling.html
+
 **New Details Emerge About ICE Officer Who Shot Man in Austin**\
 `The officer was hired last year and was not wearing a body camera when he shot the delivery driver, according to current and former officials.`\
 https://www.nytimes.com/2026/09/23/us/ice-officer-texas-shooting.html
