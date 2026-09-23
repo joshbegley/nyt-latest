@@ -1,3 +1,7 @@
+**Kennedy Drew $4 Million in Book Advances From Publisher Who Also Monetized MAHA**\
+`A new disclosure also shows $210,000 in consulting fees paid to Cheryl Hines, the health secretary’s wife, by one of several MAHA-affiliated groups capitalizing from his agenda.`\
+https://www.nytimes.com/2026/09/23/us/politics/rfk-jr-book-advances-maha.html
+
 **Virginia’s Governor Calls for Stronger Regulation on Data Centers**\
 `Gov. Abigail Spanberger of Virginia called for stronger regulation on data centers and greater localized autonomy over the presence of data centers in their communities.`\
 https://www.nytimes.com/video/climate/100000011170592/abigail-spanberger-virginia-data-center.html

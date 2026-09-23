@@ -1,3 +1,11 @@
+**How Trump’s Iran War May Sink Republican Midterm Chances**\
+`How the president might be supercharging what already looked like a blue wave.`\
+https://www.nytimes.com/2026/09/23/opinion/iran-war-midterms-trump-republicans.html
+
+**Where Is the U.S. Beating China on A.I., and Where Is It Lagging?**\
+`As Xi Jinping visits President Trump in Washington, his country lags behind the United States on A.I. development in key areas — but Beijing has advantages elsewhere.`\
+https://www.nytimes.com/2026/09/23/us/politics/ai-us-china-trump-xi-economy.html
+
 **Virginia’s Governor Calls for Stronger Regulation on Data Centers**\
 `Gov. Abigail Spanberger of Virginia called for stronger regulation on data centers and greater localized autonomy over the presence of data centers in their communities.`\
 https://www.nytimes.com/video/climate/100000011170592/abigail-spanberger-virginia-data-center.html
@@ -154,13 +162,13 @@ https://www.nytimes.com/2026/09/23/arts/design/el-museo-del-barrio-9-11-conspira
 `The largest analysis of bat genomes and fossils suggests that the first bats emerged in Europe roughly 65 million years ago and that echolocation evolved early.`\
 https://www.nytimes.com/2026/09/23/science/evolution-genetics-bats.html
 
-**Lili Reinhart, of ‘The Love Hypothesis,’ Is Still Figuring It Out**\
-`The “Riverdale” actor reflects on fame, open communication and finding love in real life.`\
-https://www.nytimes.com/2026/09/23/movies/lili-reinhart-interview-the-love-hypothesis.html
-
 **Wildfire Converted Me From Tree-Hugger to Tree-Worshipper**\
 `I used to view trees as ecologically angelic beings. No longer.`\
 https://www.nytimes.com/2026/09/23/opinion/wildfires-trees-scientific-animism.html
+
+**Lili Reinhart, of ‘The Love Hypothesis,’ Is Still Figuring It Out**\
+`The “Riverdale” actor reflects on fame, open communication and finding love in real life.`\
+https://www.nytimes.com/2026/09/23/movies/lili-reinhart-interview-the-love-hypothesis.html
 
 **Jane Fonda Hits Both Parties for Inaction on Climate Change**\
 `The longtime activist urged people to vote for leaders who understand the threat a warming planet faces.`\
@@ -169,14 +177,6 @@ https://www.nytimes.com/2026/09/23/climate/jane-fonda-climate-change-politics.ht
 **Trump Officials May Undo Nursing Home Mandates for Reporting Covid**\
 `The agency led by Dr. Mehmet Oz is proposing an end to weekly tracking of respiratory infections at the facilities where thousands of elderly residents died in the pandemic.`\
 https://www.nytimes.com/2026/09/23/business/covid-nursing-homes-trump.html
-
-**He Changed the World of Organ Transplants. Would He Die Waiting for His Own?**\
-`A New York transplant surgeon’s experience waiting for a heart transplant laid bare the challenges of a system he had spent decades trying to fix.`\
-https://www.nytimes.com/2026/09/23/well/heart-transplant-surgeon-pig-kidney.html
-
-**Erin Brockovich and Justin Pearson Urge Communities to Act Against Data Centers**\
-`Ms. Brockovich, a longtime activist, and Mr. Pearson, a Tennessee state representative running for Congress, discussed why communities have begun to push back against the sites.`\
-https://www.nytimes.com/2026/09/23/climate/erin-brockovich-pearson-tennessee-ai-data-centers.html
 
 **Climate Forward Live Updates: Energy Secretary Dismisses Idea of Diesel Export Ban**\
 `Energy Secretary Chris Wright, speaking at The New York Times’ annual Climate Forward event, dismissed reports that President Trump was preparing to ban U.S. exports of diesel in a bid to lower energy prices.`\
