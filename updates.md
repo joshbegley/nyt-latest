@@ -1,3 +1,11 @@
+**Ancient Wall Found in Paris Provides Clues to City’s Origins**\
+`A discovery at a Parisian hospital, on an island in the Seine, has given archaeologists clues about the city as Julius Caesar may have found it.`\
+https://www.nytimes.com/2026/09/23/world/europe/ancient-wall-paris-rome.html
+
+**Climate Forward Live Updates: Leaders Confront a Data Center Backlash and Rising Energy Prices**\
+`Energy Secretary Chris Wright will appear this afternoon at The New York Times’ annual Climate Forward event, where industry figures are discussing how they are grappling with a consequential moment.`\
+https://www.nytimes.com/live/2026/09/23/climate/climate-forward-conference
+
 **Tiny Love Stories: ‘I Had a Sex Dream About You’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://www.nytimes.com/2026/09/23/style/tiny-modern-love-stories-i-had-a-sex-dream-about-you.html
