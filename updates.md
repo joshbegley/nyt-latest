@@ -1,3 +1,7 @@
+**Dolly Parton’s Estate in Turmoil After Extortion Accusations**\
+`Ms. Parton’s manager requested a restraining order against her nephew and former security provider, accusing him of threats and intimidation.`\
+https://www.nytimes.com/2026/09/22/arts/music/dolly-parton-restraining-order-bryan-seaver.html
+
 **Dolly Parton’s Nephew Is Accused of Threatening Her Estate**\
 `Ms. Parton’s manager filed a request for a restraining order against Bryan Seaver, accusing her former security provider of intimidation and extortion.`\
 https://www.nytimes.com/2026/09/22/arts/music/dolly-parton-restraining-order-bryan-seaver.html
