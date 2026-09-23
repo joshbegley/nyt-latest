@@ -1,8 +1,16 @@
+**Live Updates: Trump to Greet Xi for State Visit Amid Tensions**\
+`The two-day visit comes as the United States and China jostle over trade and artificial intelligence.`\
+https://www.nytimes.com/live/2026/09/23/us/trump-xi
+
+**Decoding Trump-Xi**\
+`The Chinese leader seems to have the upper hand heading into a state visit to Washington and talks on trade, A.I. and Taiwan.`\
+https://www.nytimes.com/2026/09/23/world/trump-xi-ai-meeting-iran-un.html
+
 **Judge Holds Off on Immediate Ruling on White House’s Media Ban**\
 `Judge Timothy J. Kelly heard arguments about President Trump’s recent decision to bar CNN, MS NOW and Politico from the White House grounds. He said he would issue a decision about it “as soon as possible.”`\
 https://www.nytimes.com/2026/09/23/business/media/cnn-ms-now-politico-white-house-ban-ruling.html
 
-**Trump and Xi face the A.I. Race**\
+**Trump and Xi Face the A.I. Race**\
 `Can the U.S. and China contain their A.I. race? Our White House and national security correspondent, David E. Sanger, explains how the problems of regulating A.I. echo the nuclear arms race of the Cold War, but the solutions seem different.`\
 https://www.nytimes.com/video/us/100000011159994/trump-and-xi-face-the-ai-race.html
 
@@ -91,7 +99,7 @@ https://www.nytimes.com/2026/09/23/nyregion/un-general-assembly-security-sewers.
 https://www.nytimes.com/2026/09/23/us/politics/trump-xi-china-visit.html
 
 **Bond Yields Soar as Investors Foresee Another Fed Interest Rate Increase**\
-`The 10-year Treasury yield on Wednesday rose to around 5.1 percent, as investors grew more convinced the Fed Reserve will raise interest rates again.`\
+`The 10-year Treasury yield on Wednesday rose to around 5.1 percent, as investors increasingly expect the Fed Reserve will raise interest rates again.`\
 https://www.nytimes.com/2026/09/23/business/bonds-interest-rates.html
 
 **How Trump’s Iran War May Sink Republican Midterm Chances**\
@@ -123,7 +131,7 @@ https://www.nytimes.com/2026/09/23/us/politics/rfk-jr-book-advances-maha.html
 https://www.nytimes.com/2026/09/23/business/media/disney-bob-chapek-bob-iger.html
 
 **Maps: Tracking a Potential Hurricane Near Hawaii**\
-`See the likely path and wind arrival times for Fifteen-E`\
+`See the likely path and wind arrival times for Nolo`\
 https://www.nytimes.com/interactive/2026/09/23/weather/hawaii-storm-map-path.html
 
 **Live Updates: Judge Appears Skeptical of Trump’s Ban on 3 Media Outlets**\
@@ -161,10 +169,6 @@ https://www.nytimes.com/2026/09/23/climate/gerard-barron-metals-company-ocean-fl
 **Fox News Finds Itself at Odds With Trump on Press Ban**\
 `The home of Sean Hannity and Laura Ingraham has joined rival networks in suspending its coverage of pooled presidential events.`\
 https://www.nytimes.com/2026/09/23/business/media/fox-trump-press-pool-ban.html
-
-**Tigrayan Forces Mobilize Against the Central Government in Ethiopia**\
-`Tigray People’s Liberation Front seized a key airport in the city of Mekelle, as fears grow of a possible return to a full-scale war.`\
-https://www.nytimes.com/2026/09/23/world/africa/ethiopia-tigray-airport.html
 
 **Climate Forward Live Updates: Energy Secretary Dismisses Idea of Diesel Export Ban**\
 `Energy Secretary Chris Wright, speaking at The New York Times’ annual Climate Forward event, dismissed reports that President Trump was preparing to ban U.S. exports of diesel in a bid to lower energy prices.`\
