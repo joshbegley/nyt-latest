@@ -1,3 +1,7 @@
+**Iran Will Not Be Bullied, President Masoud Pezeshkian Says in U.N. Speech**\
+`President Masoud Pezeshkian said his country would not give up its civilian nuclear program, but left the door opened for diplomacy with the United States.`\
+https://www.nytimes.com/2026/09/23/world/middleeast/iran-president-un-speech.html
+
 **Taylor Swift Announces ‘The Life of a Showgirl: The Encore,’ Featuring 4 New Songs**\
 `“The Life of a Showgirl: The Encore,” featuring four new songs, will release on Friday.`\
 https://www.nytimes.com/2026/09/23/arts/music/taylor-swift-life-of-a-showgirl-encore.html

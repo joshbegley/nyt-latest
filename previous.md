@@ -1,3 +1,7 @@
+**Iran Will Not Be Bullied, President Masoud Pezeshkian Says in U.N. Speech**\
+`President Masoud Pezeshkian said his country would not give up its civilian nuclear program, but left the door opened for diplomacy with the United States.`\
+https://www.nytimes.com/2026/09/23/world/middleeast/iran-president-un-speech.html
+
 **Trump’s Threat to ‘Annihilate’ Iran**\
 `Readers react to President Trump’s speech to the United Nations General Assembly. Also: Immigrants’ fears; better eating habits.`\
 https://www.nytimes.com/2026/09/23/opinion/trump-iran-united-nations.html
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/09/23/business/dealbook/trump-diesel-dilemma.html
 **At U.N. Meeting, Syria’s Leader Is Strengthened, but Faces a Difficult Test**\
 `President Ahmed al-Sharaa has improved his diplomatic standing since he last addressed the U.N. General Assembly but faces mounting domestic economic and security challenges.`\
 https://www.nytimes.com/2026/09/23/world/middleeast/syria-un-general-assembly-al-sharaa.html
-
-**The Distrust Election**\
-`We look at how voters feel about government.`\
-https://www.nytimes.com/2026/09/23/briefing/the-distrust-election.html
 
 **U.N. Live Updates: Iran’s President Accuses U.S. and Israel of Lawless Attacks in a Defiant Address**\
 `Masoud Pezeshkian said Iran was open to diplomacy but would never accept limits on its civilian nuclear program. Before his speech later today, President Volodymyr Zelensky of Ukraine called on allies to apply more pressure on Russia.`\
