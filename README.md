@@ -23,7 +23,7 @@ https://www.nytimes.com/2026/09/23/arts/ralph-ellison-bard-archive.html
 https://www.nytimes.com/2026/09/23/style/newborn-visiting-dirty-house.html
 
 **Climate Forward Live Updates: Leaders Confront a Data Center Backlash and Rising Energy Prices**\
-`The New York Times’ annual Climate Forward event will include interviews with Energy Secretary Chris Wright, Jane Fonda and industry figures grappling with a consequential moment.`\
+`Jane Fonda is speaking now at The New York Times’ annual Climate Forward event, which will also include interviews with Energy Secretary Chris Wright and industry figures grappling with a consequential moment.`\
 https://www.nytimes.com/live/2026/09/23/climate/climate-forward-conference
 
 **‘Screamplay’: A Hollywood Horror Comedy**\
@@ -67,7 +67,7 @@ https://www.nytimes.com/2026/09/23/crosswords/wordle-review-1923.html
 https://www.nytimes.com/2026/09/23/crosswords/strands-sidekick-935.html
 
 **U.N. Live Updates: Iran’s President Accuses U.S. and Israel of Lawless Attacks**\
-`Masoud Pezeshkian is the first leader whose country is at war with the United States to speak to the General Assembly in New York.`\
+`Masoud Pezeshkian is the first leader whose country is at war with the United States to speak to the General Assembly in New York. He decried attacks on civilian targets and said Iran would not accept limits on its nuclear program.`\
 https://www.nytimes.com/live/2026/09/23/world/un-general-assembly-iran-ukraine
 
 **It’s Not the Oscars: U.N. Speakers Love to Ignore Its 15-Minute Rule**\
@@ -134,7 +134,7 @@ https://www.nytimes.com/video/arts/100000011161866/lena-waithe-on-her-favorite-t
 `Private train cars may seem like a relic of the past, but for some rail fans, nothing beats having — or renting — your own sleeper car.`\
 https://www.nytimes.com/2026/09/23/travel/amtrak-private-train-cars.html
 
-**Jensen Huang vs. the A.I. Doomers**\
+**Jensen Huang Thinks A.I. Alarmism Has Gone Too Far**\
 `Jensen Huang, the chief executive of Nvidia, does not want you to be afraid of A.I.`\
 https://www.nytimes.com/2026/09/23/opinion/ezra-klein-podcast-jensen-huang.html
 
