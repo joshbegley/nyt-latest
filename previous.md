@@ -1,3 +1,7 @@
+**Erin Brockovich and Justin Pearson Urge Communities to Act Against Data Centers**\
+`Ms. Brockovich, a longtime activist, and Mr. Pearson, a Tennessee state representative running for Congress, discussed why communities have begun to push back against the sites.`\
+https://www.nytimes.com/2026/09/23/climate/erin-brockovich-pearson-tennessee-ai-data-centers.html
+
 **3 Riders Sue Six Flags, Saying California Roller Coaster Caused Brain Injuries**\
 `The lawsuits accuse the company of failing to adequately warn passengers about the risks to riders of the X2 coaster at Six Flags Magic Mountain.`\
 https://www.nytimes.com/2026/09/23/us/six-flags-x2-roller-coaster-injuries.html
@@ -62,8 +66,8 @@ https://www.nytimes.com/2026/09/23/crosswords/wordle-review-1923.html
 `Scroll down for hints and conversation about the puzzle for Thursday, Sept. 24, 2026.`\
 https://www.nytimes.com/2026/09/23/crosswords/strands-sidekick-935.html
 
-**U.N. Live Updates: Iran’s President to Address World Leaders After Trump Threat**\
-`Masoud Pezeshkian is the first leader whose country is at war with the United States to address the General Assembly in New York. On Tuesday, President Trump said he faced a choice over whether to “annihilate” the Islamic Republic.`\
+**U.N. Live Updates: Iran’s President Addresses World Leaders After Trump Threat**\
+`Masoud Pezeshkian is the first leader whose country is at war with the United States to speak to the General Assembly in New York. A day earlier, President Trump said he faced a choice whether to “annihilate” the Islamic Republic or make a deal.`\
 https://www.nytimes.com/live/2026/09/23/world/un-general-assembly-iran-ukraine
 
 **It’s Not the Oscars: U.N. Speakers Love to Ignore Its 15-Minute Rule**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/23/us/politics/one-big-beautiful-bill-midterms-a
 **New Matrix, Meet the Old Matrix**\
 `The railroads were once the octopus that A.I. is now.`\
 https://www.nytimes.com/2026/09/23/opinion/ai-politics-railroads-history.html
-
-**Swivel Chairs You’ll Want to Give a Whirl**\
-`Unexpected colors and textures put a new spin on rotating seats.`\
-https://www.nytimes.com/2026/09/23/t-magazine/swivel-chairs-youll-want-to-give-a-whirl.html
 

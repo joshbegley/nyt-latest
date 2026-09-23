@@ -66,8 +66,8 @@ https://www.nytimes.com/2026/09/23/crosswords/wordle-review-1923.html
 `Scroll down for hints and conversation about the puzzle for Thursday, Sept. 24, 2026.`\
 https://www.nytimes.com/2026/09/23/crosswords/strands-sidekick-935.html
 
-**U.N. Live Updates: Iran’s President Addresses World Leaders After Trump Threat**\
-`Masoud Pezeshkian is the first leader whose country is at war with the United States to speak to the General Assembly in New York. A day earlier, President Trump said he faced a choice whether to “annihilate” the Islamic Republic or make a deal.`\
+**U.N. Live Updates: Iran’s President Accuses U.S. and Israel of Lawless Attacks**\
+`Masoud Pezeshkian is the first leader whose country is at war with the United States to speak to the General Assembly in New York.`\
 https://www.nytimes.com/live/2026/09/23/world/un-general-assembly-iran-ukraine
 
 **It’s Not the Oscars: U.N. Speakers Love to Ignore Its 15-Minute Rule**\
@@ -186,8 +186,8 @@ https://www.nytimes.com/2026/09/23/arts/music/ensemble-intercontemporain-50th-an
 `On Oct. 10, the artist’s exhibition, “Some Wild Kind of Language,” opens at the Stedelijk Museum Amsterdam. It will upend expectations.`\
 https://www.nytimes.com/2026/09/23/arts/design/adam-pendleton-amsterdam-artist.html
 
-**The Big Beautiful Bill Is Starting to Bite Before the Election**\
-`The tax cuts in President Trump’s signature achievement were the Republicans’ answer to voters’ economic struggles, but its health care and food assistance cuts are taking a toll.`\
+**Many Pay the Toll of the ‘Big Beautiful Bill’ as November Looms**\
+`The tax cuts in President Trump’s signature achievement were the Republicans’ answer to voters’ economic struggles, but its health care and food assistance cuts have come with a price.`\
 https://www.nytimes.com/2026/09/23/us/politics/one-big-beautiful-bill-midterms-affordability.html
 
 **New Matrix, Meet the Old Matrix**\
