@@ -1,3 +1,19 @@
+**Mark Carney Interview: Canada’s Leader Lays Out Vision for Breaking Reliance on U.S.**\
+`In a wide-ranging interview, the Canadian leader laid out a detailed vision for breaking his country’s dependency on the United States.`\
+https://www.nytimes.com/2026/09/23/world/canada/mark-carney-canada-us-trump-tariffs.html
+
+**Iowa Judge Dismisses Trump’s Lawsuit Against The Des Moines Register**\
+`The suit challenged a poll that showed Trump trailing Kamala Harris in the final weeks of the 2024 campaign. A judge warned that similar legal challenges could have a chilling effect on news reporting.`\
+https://www.nytimes.com/2026/09/23/us/politics/des-moines-register-trump-lawsuit.html
+
+**A Teacher and Activist Admits to Lying About Her Palestinian Background**\
+`Hannah Gann, who teaches at a Philadelphia high school, said that she had misled people for years and that she is “a white woman of significant privilege.”`\
+https://www.nytimes.com/2026/09/23/us/philadelphia-teacher-palestinian-background.html
+
+**U.N. Live Updates: Zelensky Warns of Growing Global Cost of Russia’s War in Ukraine**\
+`Ukraine’s president said rising fuel prices and deadlier drone technology showed that years of fighting have spilled beyond his country’s borders. Venezuela’s leader, Delcy Rodríguez, is making her comments to world leaders now.`\
+https://www.nytimes.com/live/2026/09/23/world/un-general-assembly-iran-ukraine
+
 **America’s A.I. Leaders Warn U.N. of Possible Peril Absent a Global Response**\
 `Sam Altman of OpenAI and Dario Amodei of Anthropic told the Security Council that international cooperation was needed to ensure that A.I. remains under human control.`\
 https://www.nytimes.com/2026/09/23/us/politics/ai-leaders-united-nations-global-response.html
