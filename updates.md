@@ -1,3 +1,15 @@
+**At the U.N., Iran Says It Will Not Give Up Its Nuclear Program**\
+`Also, hackers say they stole thousands of sensitive F.B.I. records. Here’s the latest at the end of Wednesday.`\
+https://www.nytimes.com/2026/09/23/briefing/at-the-un-iran-says-it-will-not-give-up-its-nuclear-program.html
+
+**Melania Trump’s Busy Schedule: A New Show, a Foster-Care Bill and Reading Executive Orders**\
+`In a burst of activity this week, the enigmatic first lady told Americans what she has been up to after a quiet summer. Her activities have included filming a new documentary series about her life.`\
+https://www.nytimes.com/2026/09/23/us/politics/melania-trump-documentary-schedule.html
+
+**Live Updates: Trump Greets Xi for State Visit Amid Tensions**\
+`The two-day visit comes as the United States and China jostle over trade and artificial intelligence.`\
+https://www.nytimes.com/live/2026/09/23/us/trump-xi
+
 **Melania Trump’s Busy Schedule: A New Show, a Foster-Care Bill and Reading Executive Orders**\
 `In a burst of activity this week, the enigmatic first lady told Americans what she has been up to after a quiet summer. Her activities have included filming a new documentary series about her life.`\
 https://www.nytimes.com/2026/09/23/us/politics/melania-trumps-busy-schedule-a-new-show-a-foster-care-bill-and-reading-executive-orders.html
