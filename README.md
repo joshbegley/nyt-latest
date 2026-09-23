@@ -110,8 +110,8 @@ https://www.nytimes.com/2026/09/23/business/media/disney-bob-chapek-bob-iger.htm
 `See the likely path and wind arrival times for Fifteen-E`\
 https://www.nytimes.com/interactive/2026/09/23/weather/hawaii-storm-map-path.html
 
-**Live Updates: Judge Considers Whether Trump Can Ban Media Outlets Whose Coverage He Dislikes**\
-`CNN, MS NOW and Politico sued to stop President Trump’s attempt to block their access to the White House. The judge will rule at a later date.`\
+**Live Updates: Judge Appears Skeptical of Trump’s Ban on 3 Media Outlets**\
+`CNN, MS NOW and Politico argued in court that the president’s effort to block them from the White House complex violated their First Amendment rights. The judge promised to rule soon.`\
 https://www.nytimes.com/live/2026/09/23/business/trump-cnn-politico-msnow-ban-hearing
 
 **A Powerful Nor’easter Is Taking Shape. How It Could Affect Your Forecast.**\

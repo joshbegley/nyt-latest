@@ -1,3 +1,7 @@
+**U.S. Energy Secretary Defends War on Iran Despite Increased Fuel Costs**\
+`U.S. Energy Secretary Chris Wright defended the country’s war on Iran despite increased fuel costs and political ramifications.`\
+https://www.nytimes.com/video/climate/100000011171022/energy-secretary-defends-iran-war.html
+
 **Iced Einspänner**\
 `Einspänner, in German, is either a one-horse carriage or a hot espresso topped with cool whipped cream. It’s sweet, bitter and a little savory all at once, like a tiramisù in beverage form.`\
 https://www.nytimes.com/video/dining/100000011170828/iced-einspanner.html
