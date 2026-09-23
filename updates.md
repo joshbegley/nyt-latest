@@ -1,3 +1,11 @@
+**Florida Files Lawsuit Against The New York Times**\
+`The state’s attorney general demanded access to company records to examine how the newspaper’s board oversees editorial standards amid claims of anti-Israel bias.`\
+https://www.nytimes.com/2026/09/23/business/media/florida-new-york-times-lawsuit.html
+
+**Man Guilty of Conspiracy for Running Drug Ring in Washington Square Park**\
+`A jury convicted the man, John Livigni, who prosecutors said was a leader of a narcotics operation that resulted in two deaths and involved millions of sales around the Greenwich Village park.`\
+https://www.nytimes.com/2026/09/23/nyregion/nyc-washington-square-park-drugs.html
+
 **Police Step Up U.N. Security After 3 People Emerge From Manhole**\
 `The latest sighting of people going in or out of the sewer system occurred on the Upper East Side, where many leaders and diplomats are staying during the United Nations General Assembly.`\
 https://www.nytimes.com/2026/09/23/nyregion/un-general-assembly-security-sewers.html

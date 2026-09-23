@@ -1,3 +1,11 @@
+**Trump’s Energy Secretary Dismisses Reports of Diesel Export Ban, Criticizes Solar Power**\
+`Chris Wright also doubled down on his criticism of renewable energy sources like solar power.`\
+https://www.nytimes.com/2026/09/23/climate/chris-wright-trump-energy-secretary-fracking.html
+
+**The Good List: 6 Things to Add Some Delight to Your Day**\
+`Traffic music, virtual firewood and ‘it’s lighter than you think.’`\
+https://www.nytimes.com/2026/09/23/briefing/23-the-good-list-fat-bear.html
+
 **Florida Files Lawsuit Against The New York Times**\
 `The state’s attorney general demanded access to company records to examine how the newspaper’s board oversees editorial standards amid claims of anti-Israel bias.`\
 https://www.nytimes.com/2026/09/23/business/media/florida-new-york-times-lawsuit.html
@@ -161,14 +169,6 @@ https://www.nytimes.com/video/world/europe/100000011169657/russia-strikes-ukrain
 **Bessent ‘Inadvertently’ Failed to Report Holdings of JPMorgan Stock**\
 `Treasury Secretary Scott Bessent’s finances were reviewed by the inspector general after Mr. Bessent incorrectly listed at least $100,000 of the stock, which was owned by his husband, as cash.`\
 https://www.nytimes.com/2026/09/23/business/bessent-jp-morgan-stock.html
-
-**Walkouts at the U.N. General Assembly Are Somewhat of a Tradition**\
-`As President Masoud Pezeshkian of Iran delivered his speech, the lone U.S. diplomat sitting in the hall left.`\
-https://www.nytimes.com/2026/09/23/world/un-general-assembly-walkout.html
-
-**A.I. Assistant**\
-`Plus, it’s Fat Bear Week.`\
-https://www.nytimes.com/2026/09/23/briefing/ai-assistant.html
 
 **Climate Forward Live Updates: Energy Secretary Dismisses Idea of Diesel Export Ban**\
 `Energy Secretary Chris Wright, speaking at The New York Times’ annual Climate Forward event, dismissed reports that President Trump was preparing to ban U.S. exports of diesel in a bid to lower energy prices.`\
