@@ -1,3 +1,7 @@
+**Zelensky Is Expected to Warn Russia’s Aggression Won’t Stop at Ukraine’s Borders**\
+`President Volodymyr Zelensky is seeking to convey the critical urgency of his nation’s plight to world leaders increasingly distracted by competing global crises and domestic political pressures.`\
+https://www.nytimes.com/2026/09/23/world/europe/ukraine-russia-zelensky-unga.html
+
 **Russia Strikes Kyiv Hours Before Zelensky Addresses United Nations**\
 `Russia launched daytime strikes on Kyiv on Wednesday, hours before President Volodymyr Zelensky of Ukraine was set to address the United Nations General Assembly. The day before, Ukraine said it had struck two Russian oil refineries.`\
 https://www.nytimes.com/video/world/europe/100000011169657/russia-strikes-ukraine-zelensky-un-general-assembly.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/09/23/opinion/ezra-klein-podcast-jensen-huang.html
 **Trump’s New Favorite Neighbor: Mexico**\
 `President Trump built his political brand in part on bashing Mexico. Now his second presidency depends on deepening partnerships with the country.`\
 https://www.nytimes.com/2026/09/23/world/americas/trump-mexico-trade-relations.html
-
-**These 5-Star Hotels Allow You to Enjoy Luxury Experiences as a Non-Guest**\
-`The cost of a night at a luxury hotel can be daunting, but you can get a taste of the gilded life for less by booking an experience. Here, six standouts.`\
-https://www.nytimes.com/2026/09/23/travel/luxury-hotel-experiences-non-guest.html
 
