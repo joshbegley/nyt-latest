@@ -1,3 +1,7 @@
+**Officials Investigating Mississippi Student Deaths Issue Warning About Kratom**\
+`The herbal substance Kratom was found during inquiries into the recent deaths of two University of Mississippi students. Their causes of death have not been determined.`\
+https://www.nytimes.com/2026/09/23/us/kratom-ole-miss-students-dead.html
+
 **Kennedy Drew $4 Million in Book Advances From Publisher Who Also Monetized MAHA**\
 `A new disclosure also shows $210,000 in consulting fees paid to Cheryl Hines, the health secretary’s wife, by one of several MAHA-affiliated groups capitalizing from his agenda.`\
 https://www.nytimes.com/2026/09/23/us/politics/kennedy-book-advances.html
@@ -174,16 +178,8 @@ https://www.nytimes.com/2026/09/23/us/six-flags-x2-roller-coaster-injuries.html
 `“The Life of a Showgirl: The Encore,” featuring four new songs, will release on Friday.`\
 https://www.nytimes.com/2026/09/23/arts/music/taylor-swift-life-of-a-showgirl-encore.html
 
-**Myanmar Has an Envoy at the United Nations. Why Is He Not Speaking?**\
-`U Kyaw Moe Tun has kept a low profile at the General Assembly for years, part of an arrangement to keep his post despite the military-backed government’s efforts to remove him.`\
-https://www.nytimes.com/2026/09/23/world/asia/unga-myanmar-united-nations-ambassador.html
-
-**Ralph Ellison Trust Donates Rights to Bard College**\
-`The liberal arts college announced a center dedicated to the “Invisible Man” author, who taught classes there.`\
-https://www.nytimes.com/2026/09/23/arts/ralph-ellison-bard-archive.html
-
-**Climate Forward Live Updates: Leaders Confront a Data Center Backlash and Rising Energy Prices**\
-`Energy Secretary Chris Wright is speaking now at The New York Times’ annual Climate Forward event, where industry figures are discussing how they are grappling with a consequential moment.`\
+**Climate Forward Live Updates: Energy Secretary Dismisses Idea of Diesel Export Ban**\
+`Energy Secretary Chris Wright, speaking at The New York Times’ annual Climate Forward event, dismissed reports that President Trump was preparing to ban U.S. exports of diesel in a bid to lower energy prices.`\
 https://www.nytimes.com/live/2026/09/23/climate/climate-forward-conference
 
 **U.N. Live Updates: Zelensky Warns Russian Aggression May Spread Beyond Ukraine**\

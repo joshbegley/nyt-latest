@@ -1,3 +1,11 @@
+**Officials Investigating Mississippi Student Deaths Issue Warning About Kratom**\
+`The herbal substance Kratom was found during inquiries into the recent deaths of two University of Mississippi students. Their causes of death have not been determined.`\
+https://www.nytimes.com/2026/09/23/us/kratom-ole-miss-students-dead.html
+
+**Climate Forward Live Updates: Energy Secretary Dismisses Idea of Diesel Export Ban**\
+`Energy Secretary Chris Wright, speaking at The New York Times’ annual Climate Forward event, dismissed reports that President Trump was preparing to ban U.S. exports of diesel in a bid to lower energy prices.`\
+https://www.nytimes.com/live/2026/09/23/climate/climate-forward-conference
+
 **Kennedy Drew $4 Million in Book Advances From Publisher Who Also Monetized MAHA**\
 `A new disclosure also shows $210,000 in consulting fees paid to Cheryl Hines, the health secretary’s wife, by one of several MAHA-affiliated groups capitalizing from his agenda.`\
 https://www.nytimes.com/2026/09/23/us/politics/kennedy-book-advances.html
