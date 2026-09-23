@@ -1,3 +1,11 @@
+**Virginia’s Governor Calls for Stronger Regulation on Data Centers**\
+`Gov. Abigail Spanberger of Virginia called for stronger regulation on data centers and greater localized autonomy over the presence of data centers in their communities.`\
+https://www.nytimes.com/video/climate/100000011170592/abigail-spanberger-virginia-data-center.html
+
+**Man Guilty of Conspiracy for Running Drug Ring in Washington Square Park**\
+`A jury convicted the man, John Livigni, whom prosecutors said was a leader of a narcotics operation that resulted in two deaths and involved millions of sales around the Greenwich Village park.`\
+https://www.nytimes.com/2026/09/23/nyregion/nyc-washington-square-park-drugs.html
+
 **Officials Investigating Mississippi Student Deaths Issue Warning About Kratom**\
 `The herbal substance Kratom was found during inquiries into the recent deaths of two University of Mississippi students. Their causes of death have not been determined.`\
 https://www.nytimes.com/2026/09/23/us/kratom-ole-miss-students-dead.html
@@ -169,14 +177,6 @@ https://www.nytimes.com/2026/09/23/well/heart-transplant-surgeon-pig-kidney.html
 **Erin Brockovich and Justin Pearson Urge Communities to Act Against Data Centers**\
 `Ms. Brockovich, a longtime activist, and Mr. Pearson, a Tennessee state representative running for Congress, discussed why communities have begun to push back against the sites.`\
 https://www.nytimes.com/2026/09/23/climate/erin-brockovich-pearson-tennessee-ai-data-centers.html
-
-**3 Riders Sue Six Flags, Saying California Roller Coaster Caused Brain Injuries**\
-`The lawsuits accuse the company of failing to adequately warn passengers about the risks to riders of the X2 coaster at Six Flags Magic Mountain.`\
-https://www.nytimes.com/2026/09/23/us/six-flags-x2-roller-coaster-injuries.html
-
-**Taylor Swift Announces ‘The Life of a Showgirl: The Encore,’ Featuring 4 New Songs**\
-`“The Life of a Showgirl: The Encore,” featuring four new songs, will release on Friday.`\
-https://www.nytimes.com/2026/09/23/arts/music/taylor-swift-life-of-a-showgirl-encore.html
 
 **Climate Forward Live Updates: Energy Secretary Dismisses Idea of Diesel Export Ban**\
 `Energy Secretary Chris Wright, speaking at The New York Times’ annual Climate Forward event, dismissed reports that President Trump was preparing to ban U.S. exports of diesel in a bid to lower energy prices.`\
