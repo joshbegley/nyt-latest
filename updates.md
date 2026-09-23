@@ -1,3 +1,7 @@
+**The Distrust Election**\
+`We look at how voters feel about government.`\
+https://www.nytimes.com/2026/09/23/briefing/the-distrust-election.html
+
 **The Winner of This Rivalry Gets Ice Cream. But So Does the Loser.**\
 `The competition between two popular ice cream shops in Ramallah inspires fierce loyalties, and a running joke, for lovers of cones piled high with flavors.`\
 https://www.nytimes.com/2026/09/23/world/middleeast/ice-cream-ramallah-baladna-rukab.html

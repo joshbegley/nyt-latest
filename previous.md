@@ -1,3 +1,7 @@
+**The Distrust Election**\
+`We look at how voters feel about government.`\
+https://www.nytimes.com/2026/09/23/briefing/the-distrust-election.html
+
 **The Winner of This Rivalry Gets Ice Cream. But So Does the Loser.**\
 `The competition between two popular ice cream shops in Ramallah inspires fierce loyalties, and a running joke, for lovers of cones piled high with flavors.`\
 https://www.nytimes.com/2026/09/23/world/middleeast/ice-cream-ramallah-baladna-rukab.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/23/world/asia/china-ai-economy-xi-jinping.html
 **Jensen Huang vs. the A.I. Doomers**\
 `Jensen Huang, the chief executive of Nvidia, does not want you to be afraid of A.I.`\
 https://www.nytimes.com/video/opinion/100000011159761/jensen-huang-vs-the-ai-doomers.html
-
-**Prices Have Skyrocketed in Russian Supermarkets. We Have the Receipts.**\
-`Costs have risen dramatically since Russia launched its full-scale invasion of Ukraine. And sanctions have changed some products available, too.`\
-https://www.nytimes.com/interactive/2026/09/23/world/europe/russia-supermarket-prices-ukraine-war.html
 
