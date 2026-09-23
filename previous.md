@@ -1,3 +1,7 @@
+**U.S. Rebukes Australia Over Proposed Limits on Social Media Algorithms**\
+`The U.S. Embassy said a draft law allowing users to opt out of systems that choose what they can see in their feeds could amount to censorship.`\
+https://www.nytimes.com/2026/09/23/world/australia/us-australia-social-media-algorithms.html
+
 **Prada Says All You Really Need Is a Knee-Length Skirt**\
 `Milan Fashion Week began with a show devoted to a single garment.`\
 https://www.nytimes.com/2026/09/23/style/prada-skirts.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/09/22/world/americas/trump-annihilate-iran-unga.htm
 **Ethiopian Rebel Groups Join Forces Against the Government**\
 `Half a dozen groups, accusing the prime minister of being dictatorial, announced the formation of a coalition in a country already scarred by war.`\
 https://www.nytimes.com/2026/09/22/world/africa/ethiopia-rebel-alliance.html
-
-**Rosie O’Donnell Says ABC Delayed a Skit as It Readied Trump Suit**\
-`The network asked the comedian to hold off on the sketch, which mocked the president, when she filled in as host of “Jimmy Kimmel Live!”`\
-https://www.nytimes.com/2026/09/22/business/rosie-odonnell-abc-trump-skit.html
 
 **U.N. Updates: As Trump Threatens Iran, Other Leaders Warn of Deep Divisions**\
 `President Trump said he must decide whether to make a deal or “annihilate” Iran, in a gathering where world leaders typically focus on declarations of global harmony.`\

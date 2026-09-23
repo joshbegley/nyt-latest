@@ -1,3 +1,7 @@
+**U.S. Rebukes Australia Over Proposed Limits on Social Media Algorithms**\
+`The U.S. Embassy said a draft law allowing users to opt out of systems that choose what they can see in their feeds could amount to censorship.`\
+https://www.nytimes.com/2026/09/23/world/australia/us-australia-social-media-algorithms.html
+
 **Prada Says All You Really Need Is a Knee-Length Skirt**\
 `Milan Fashion Week began with a show devoted to a single garment.`\
 https://www.nytimes.com/2026/09/23/style/prada-skirts.html
