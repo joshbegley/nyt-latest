@@ -1,3 +1,11 @@
+**3 Riders Sue Six Flags, Saying California Roller Coaster Caused Brain Injuries**\
+`The lawsuits accuse the company of failing to adequately warn passengers about the risks to riders of the X2 coaster at Six Flags Magic Mountain.`\
+https://www.nytimes.com/2026/09/23/us/six-flags-x2-roller-coaster-injuries.html
+
+**92NY’s $250 Million Renovation Transforms an ‘Amazing Jigsaw Puzzle’**\
+`92NY has been a pillar of New York City culture for nearly a century. With a six-year renovation underway, the leaders hope it will become more accessible.`\
+https://www.nytimes.com/2026/09/23/realestate/92ny-nyc-renovation.html
+
 **Taylor Swift Announces Extended Version of ‘The Life of a Showgirl’**\
 `“The Life of a Showgirl: The Encore,” featuring four new songs, will release on Friday.`\
 https://www.nytimes.com/2026/09/23/arts/music/taylor-swift-life-of-a-showgirl-encore.html
