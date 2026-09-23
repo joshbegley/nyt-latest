@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Sept. 23, 2026**\
+`How to solve Dana Edwards’s crossword puzzle? Just play.`\
+https://www.nytimes.com/2026/09/22/crosswords/daily-puzzle-2026-09-23.html
+
 **Tropical Sea Turtle Lays Eggs on Southern California Beach**\
 `It’s the first time in recorded history that a sea turtle has nested on the West Coast. Scientists say it is the latest sign of warming ocean waters.`\
 https://www.nytimes.com/2026/09/22/us/olive-ridley-sea-turtle-climate-california.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/09/22/arts/music/amplifier-newsletter-white-stripes
 **U.N. Searches for Its Next Leader**\
 `António Guterres is stepping down in December after two terms as secretary general. No front-runner to succeed him has emerged so far.`\
 https://www.nytimes.com/2026/09/22/world/next-un-leader-guterres.html
-
-**A Departing U.N. Chief’s Dire Warning on Climate Change**\
-`As he nears the end of his term as the Secretary General of the United Nations, António Guterres looks back on his efforts to stop climate change.`\
-https://www.nytimes.com/2026/09/22/climate/antonio-guterres-climate-change.html
 
 **U.N. Updates: As Trump Threatens Iran, Other Leaders Warn of Deep Divisions**\
 `President Trump said he must decide whether to make a deal or “annihilate” Iran, in a gathering where world leaders typically focus on declarations of global harmony.`\
