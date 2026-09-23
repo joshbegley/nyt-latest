@@ -1,3 +1,15 @@
+**Live Updates: Judge to Hear Arguments From News Outlets and White House Over Ban**\
+`CNN, MS NOW and Politico are challenging President Trump’s attempt to block their access to the White House, saying it violates the First Amendment. The administration has argued that such access is not a right.`\
+https://www.nytimes.com/live/2026/09/23/business/trump-cnn-politico-msnow-ban-hearing
+
+**Climate Forward Live Updates: Leaders Confront a Data Center Backlash and Rising Energy Prices**\
+`Energy Secretary Chris Wright is speaking now at The New York Times’ annual Climate Forward event, where industry figures are discussing how they are grappling with a consequential moment.`\
+https://www.nytimes.com/live/2026/09/23/climate/climate-forward-conference
+
+**U.N. Live Updates: Zelensky Warns Russian Aggression May Spread Beyond Ukraine**\
+`The Ukrainian president called for new sanctions targeting Russian finances and production. Earlier, President Masoud Pezeshkian of Iran said his country would not be bullied by the United States.`\
+https://www.nytimes.com/live/2026/09/23/world/un-general-assembly-iran-ukraine
+
 **Abigail Spanberger, Virginia Governor, Calls for A.I. Data Center Rules**\
 `Abigail Spanberger, who announced a set of policies on data centers last week, said states should do more to reduce their pollution.`\
 https://www.nytimes.com/2026/09/23/climate/abigail-spanberger-climate-change.html
