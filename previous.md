@@ -1,3 +1,7 @@
+**Seth Meyers Prefers Trump Without Audio**\
+`“We don’t need to hear what he’s saying,” Meyers said after the president’s first event without the White House press pool. “He’s either bragging or lying, let’s just lose the sound.”`\
+https://www.nytimes.com/2026/09/23/arts/television/seth-meyers-trump-press-pool.html
+
 **The Democrats’ Policy on Palestine Is Detached From Reality**\
 `The party needs more than a stance on Israel.`\
 https://www.nytimes.com/2026/09/23/opinion/democrats-palestine-policy.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/09/22/world/asia/sri-lanka-convictions-easter-2019-
 **Federal Judge Sets Hearing for Venezuelan Man Shot by ICE in Austin**\
 `The immigrant remains in federal custody after a second hospital visit, with a bullet still lodged near his neck, his lawyer said. Immigration officials contested his assertion that he has been denied medical care.`\
 https://www.nytimes.com/2026/09/22/us/venezuelan-shot-austin-judge-order-deport.html
-
-**A Nor’easter Could Slam the East Coast This Week (or Not)**\
-`A nor’easter in September is unusual. As its forecast took shape on Tuesday, there was still uncertainty over what it would do.`\
-https://www.nytimes.com/2026/09/22/weather/noreaster-storm-flooding-virginia-new-york.html
 
 **U.N. Updates: As Trump Threatens Iran, Other Leaders Warn of Deep Divisions**\
 `President Trump said he must decide whether to make a deal or “annihilate” Iran, in a gathering where world leaders typically focus on declarations of global harmony.`\

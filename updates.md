@@ -1,3 +1,7 @@
+**Seth Meyers Prefers Trump Without Audio**\
+`“We don’t need to hear what he’s saying,” Meyers said after the president’s first event without the White House press pool. “He’s either bragging or lying, let’s just lose the sound.”`\
+https://www.nytimes.com/2026/09/23/arts/television/seth-meyers-trump-press-pool.html
+
 **The Democrats’ Policy on Palestine Is Detached From Reality**\
 `The party needs more than a stance on Israel.`\
 https://www.nytimes.com/2026/09/23/opinion/democrats-palestine-policy.html
