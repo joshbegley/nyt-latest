@@ -1,3 +1,19 @@
+**Fox News Finds Itself at Odds With Trump on Press Ban**\
+`The home of Sean Hannity and Laura Ingraham has joined rival networks in suspending its coverage of pooled presidential events.`\
+https://www.nytimes.com/2026/09/23/business/media/fox-trump-press-pool-ban.html
+
+**Tigrayan Forces Mobilize Against the Central Government in Ethiopia**\
+`Tigray People’s Liberation Front seized a key airport in the city of Mekelle, as fears grow of a possible return to a full-scale war.`\
+https://www.nytimes.com/2026/09/23/world/africa/ethiopia-tigray-airport.html
+
+**In U.N. Speech, Zelensky Is Expected to Warn Russia’s War Won’t Stop at Ukraine’s Borders**\
+`President Volodymyr Zelensky is seeking to convey the critical urgency of his nation’s plight to world leaders increasingly distracted by competing global crises and domestic political pressures.`\
+https://www.nytimes.com/2026/09/23/world/europe/ukraine-russia-zelensky-unga.html
+
+**Bessent ‘Inadvertently’ Failed to Report Holdings of JPMorgan Stock**\
+`Treasury Secretary Scott Bessent’s finances were reviewed by the inspector general after Mr. Bessent incorrectly listed at least $100,000 of the stock, which was owned by his husband, as cash.`\
+https://www.nytimes.com/2026/09/23/business/bessent-jp-morgan-stock.html
+
 **Ancient Wall Found in Paris Provides Clues to City’s Origins**\
 `A discovery at a Parisian hospital, on an island in the Seine, has given archaeologists clues about the city as Julius Caesar may have found it.`\
 https://www.nytimes.com/2026/09/23/world/europe/ancient-wall-paris-rome.html

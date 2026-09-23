@@ -1,3 +1,11 @@
+**Fox News Finds Itself at Odds With Trump on Press Ban**\
+`The home of Sean Hannity and Laura Ingraham has joined rival networks in suspending its coverage of pooled presidential events.`\
+https://www.nytimes.com/2026/09/23/business/media/fox-trump-press-pool-ban.html
+
+**Tigrayan Forces Mobilize Against the Central Government in Ethiopia**\
+`Tigray People’s Liberation Front seized a key airport in the city of Mekelle, as fears grow of a possible return to a full-scale war.`\
+https://www.nytimes.com/2026/09/23/world/africa/ethiopia-tigray-airport.html
+
 **Ancient Wall Found in Paris Provides Clues to City’s Origins**\
 `A discovery at a Parisian hospital, on an island in the Seine, has given archaeologists clues about the city as Julius Caesar may have found it.`\
 https://www.nytimes.com/2026/09/23/world/europe/ancient-wall-paris-rome.html
@@ -62,7 +70,7 @@ https://www.nytimes.com/2026/09/23/world/middleeast/stanislas-hutin-dead.html
 `The actor and activist Jane Fonda said the U.S. is facing “two existential crises — climate and democracy.”`\
 https://www.nytimes.com/video/climate/100000011169969/climate-nyt-activism-environment-jane-fonda.html
 
-**Zelensky Is Expected to Warn Russia’s Aggression Won’t Stop at Ukraine’s Borders**\
+**In U.N. Speech, Zelensky Is Expected to Warn Russia’s War Won’t Stop at Ukraine’s Borders**\
 `President Volodymyr Zelensky is seeking to convey the critical urgency of his nation’s plight to world leaders increasingly distracted by competing global crises and domestic political pressures.`\
 https://www.nytimes.com/2026/09/23/world/europe/ukraine-russia-zelensky-unga.html
 
@@ -70,7 +78,7 @@ https://www.nytimes.com/2026/09/23/world/europe/ukraine-russia-zelensky-unga.htm
 `Russia launched daytime strikes on Kyiv on Wednesday, hours before President Volodymyr Zelensky of Ukraine was set to address the United Nations General Assembly. The day before, Ukraine said it had struck two Russian oil refineries.`\
 https://www.nytimes.com/video/world/europe/100000011169657/russia-strikes-ukraine-zelensky-un-general-assembly.html
 
-**Bessent Mistakenly Failed to Report Holdings of JPMorgan Stock**\
+**Bessent ‘Inadvertently’ Failed to Report Holdings of JPMorgan Stock**\
 `Treasury Secretary Scott Bessent’s finances were reviewed by the inspector general after Mr. Bessent incorrectly listed at least $100,000 of the stock, which was owned by his husband, as cash.`\
 https://www.nytimes.com/2026/09/23/business/bessent-jp-morgan-stock.html
 
@@ -169,14 +177,6 @@ https://www.nytimes.com/2026/09/23/podcasts/the-daily/health-trackers-babies.htm
 **NYT Connections Answers for September 24, 2026**\
 `Scroll down for hints and conversation about the puzzle for Thursday, Sept. 24, 2026.`\
 https://www.nytimes.com/2026/09/23/crosswords/connections-companion-1201.html
-
-**Today’s Wordle Hints for September 24, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, Sept. 24, 2026.`\
-https://www.nytimes.com/2026/09/23/crosswords/wordle-review-1923.html
-
-**NYT Strands Hints for September 24, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, Sept. 24, 2026.`\
-https://www.nytimes.com/2026/09/23/crosswords/strands-sidekick-935.html
 
 **U.N. Live Updates: Iran’s President Accuses U.S. and Israel of Lawless Attacks in a Defiant Address**\
 `Masoud Pezeshkian said Iran was open to diplomacy but would never accept limits on its civilian nuclear program. Before his speech later today, President Volodymyr Zelensky of Ukraine called on allies to apply more pressure on Russia.`\
