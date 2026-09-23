@@ -1,3 +1,7 @@
+**Could Hurricane Polo Bring Rain to Southern California? Probably Not.**\
+`The storms won’t make landfall there, but even from a distance they could affect the state’s coastline.`\
+https://www.nytimes.com/2026/09/23/weather/hurricane-polo-los-angeles.html
+
 **Zelensky Warns That Russia’s War in Ukraine Is Spreading**\
 `During a speech at the United Nations General Assembly, President Volodymyr Zelensky of Ukraine spoke of North Korea’s assistance to Russia in the war.`\
 https://www.nytimes.com/video/world/europe/100000011171078/zelensky-russia-oil-drones.html
@@ -161,10 +165,6 @@ https://www.nytimes.com/2026/09/23/opinion/trump-iran-united-nations.html
 **How El Niño Fueled Hurricane Polo’s Explosive Growth**\
 `The storm is one of the strongest ever in this part of the world.`\
 https://www.nytimes.com/2026/09/23/weather/hurricane-polo-el-nino-strongest.html
-
-**Abigail Spanberger, Virginia Governor, Calls for A.I. Data Center Rules**\
-`Abigail Spanberger, who announced a set of policies on data centers last week, said states should do more to reduce their pollution.`\
-https://www.nytimes.com/2026/09/23/climate/abigail-spanberger-climate-change.html
 
 **Climate Forward Live Updates: Energy Secretary Dismisses Idea of Diesel Export Ban**\
 `Energy Secretary Chris Wright, speaking at The New York Times’ annual Climate Forward event, dismissed reports that President Trump was preparing to ban U.S. exports of diesel in a bid to lower energy prices.`\

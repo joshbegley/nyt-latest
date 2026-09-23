@@ -1,3 +1,7 @@
+**Zelensky Warns That Russia’s War in Ukraine Is Spreading**\
+`During a speech at the United Nations General Assembly, President Volodymyr Zelensky of Ukraine spoke of North Korea’s assistance to Russia in the war.`\
+https://www.nytimes.com/video/world/europe/100000011171078/zelensky-russia-oil-drones.html
+
 **Live Updates: Trump to Greet Xi for State Visit Amid Tensions**\
 `The two-day visit comes as the United States and China jostle over trade and artificial intelligence.`\
 https://www.nytimes.com/live/2026/09/23/us/trump-xi
