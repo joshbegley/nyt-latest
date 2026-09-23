@@ -1,3 +1,7 @@
+**U.N. Live Updates: Iran’s President to Address World Leaders After Trump Threat**\
+`Masoud Pezeshkian is the first leader whose country is at war with the United States to travel to New York to address the General Assembly. President Trump said he faced a choice over whether to “annihilate” the Islamic republic.`\
+https://www.nytimes.com/live/2026/09/23/world/un-general-assembly-iran-ukraine
+
 **It’s Not the Oscars: U.N. Speakers Love to Ignore Its 15-Minute Rule**\
 `The chronic flouting of the time limit for speeches highlights a fundamental feature of the United Nations: It is made up of sovereign states that it cannot force to do anything.`\
 https://www.nytimes.com/2026/09/23/world/un-speeches-15-minutes.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/23/nyregion/electric-school-buses.html
 **NYT Spelling Bee Answers for September 23, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/09/23/crosswords/spelling-bee-forum.html
-
-**These New York City Book Crawls Were Made for Walking**\
-`A group of New York Times journalists test-drove routes that wind through shops specializing in comics, drama, fantasy and romance.`\
-https://www.nytimes.com/2026/09/23/insider/bookstores-nyc-manhattan-brooklyn.html
 
