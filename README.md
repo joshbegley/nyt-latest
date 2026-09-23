@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/09/23/us/politics/kennedy-book-advances.html
 
 **Disney’s Fired C.E.O. Bob Chapek Settles Scores With Bob Iger in New Book**\
-`In a new memoir, Bob Chapek publicly addresses his 2022 ouster for the first time. He blames it on Mr. Iger, who both preceded and succeeded him at Disney.`\
+`In a new memoir, Bob Chapek publicly addresses his 2022 ouster for the first time. He blames Mr. Iger, who both preceded and succeeded him at Disney.`\
 https://www.nytimes.com/2026/09/23/business/media/disney-bob-chapek-bob-iger.html
 
 **Maps: Tracking a Potential Hurricane Near Hawaii**\
@@ -187,6 +187,6 @@ https://www.nytimes.com/2026/09/23/arts/ralph-ellison-bard-archive.html
 https://www.nytimes.com/live/2026/09/23/climate/climate-forward-conference
 
 **U.N. Live Updates: Zelensky Warns Russian Aggression May Spread Beyond Ukraine**\
-`The Ukrainian president called for new sanctions targeting Russian finances, and steps to end the war before it enters another winter. Earlier, President Masoud Pezeshkian of Iran said his country would not be bullied by the United States.`\
+`The Ukrainian president called for new sanctions targeting Russian finances and steps to end the war before it entered another winter. Earlier, President Masoud Pezeshkian of Iran said his country would not be bullied by the United States.`\
 https://www.nytimes.com/live/2026/09/23/world/un-general-assembly-iran-ukraine
 
