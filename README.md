@@ -1,3 +1,11 @@
+**Ralph Ellison Trust Donates Rights to Bard College**\
+`The liberal arts college announced a center dedicated to the “Invisible Man” author, who taught classes there.`\
+https://www.nytimes.com/2026/09/23/arts/ralph-ellison-bard-archive.html
+
+**I Don’t Want to Bring a New Baby Into My In-Laws’ Filthy Home. Help!**\
+`An expectant mother dreads the thought of visiting her husband’s parents with a newborn, as her in-laws’ housekeeping has lately taken a sharp turn for the worse.`\
+https://www.nytimes.com/2026/09/23/style/newborn-visiting-dirty-house.html
+
 **Climate Forward Live Updates: Leaders Confront a Data Center Backlash and Rising Energy Prices**\
 `The New York Times’ annual Climate Forward event will include interviews with Energy Secretary Chris Wright, Jane Fonda and industry figures grappling with a consequential moment.`\
 https://www.nytimes.com/live/2026/09/23/climate/climate-forward-conference
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/09/23/realestate/radish-communal-living.html
 **They Kept Outsiders Away for 500 Years. Their World Is About to Change.**\
 `My father dedicated his life to studying the Indigenous group, and they may soon allow unprecedented development through their land. I went on a trek through the jungle to find out why.`\
 https://www.nytimes.com/2026/09/23/magazine/darien-gap-road-panama-colombia.html
-
-**$1 Billion Donation to University of Oregon Makes History**\
-`The gift from Phil Knight, the Nike co-founder, is the largest known donation to a flagship university. It will fund a new engineering college.`\
-https://www.nytimes.com/2026/09/23/us/billion-dollar-donation-university-oregon-phil-knight.html
-
-**Chris Wright Sells Trump’s ‘Energy Dominance’ Vision**\
-`Energy Secretary Chris Wright is pitching a future of fossil fuel abundance. It’s not always an easy sell while war drags on and oil prices surge.`\
-https://www.nytimes.com/2026/09/23/climate/the-former-fracking-executive-selling-trumps-energy-dominance-vision.html
 
