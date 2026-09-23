@@ -1,3 +1,15 @@
+**When the Jacket Is the Whole Outfit**\
+`Making a meal of outerwear.`\
+https://www.nytimes.com/2026/09/23/style/london-fashion-week-street-style.html
+
+**The Lucas Museum’s Architect Wants to Help You Escape from Reality**\
+`Ma Yansong, China’s reigning starchitect, lets his buildings wrapped in nature do the shouting.`\
+https://www.nytimes.com/2026/09/23/arts/design/lucas-museum-architect-ma-yansong-mad.html
+
+**Climate Forward Live Updates: Leaders Confront a Data Center Backlash and Rising Energy Prices**\
+`Gov. Abigail Spanberger of Virginia is speaking now at The New York Times’ annual Climate Forward event, in a wide-ranging discussion coming at a consequential moment. Energy Secretary Chris Wright will appear later.`\
+https://www.nytimes.com/live/2026/09/23/climate/climate-forward-conference
+
 **My Uncle May Have a Son He Won’t Acknowledge. What Do I Owe My (Maybe) Cousin?**\
 `I feel very sad for this man trying to find his father.`\
 https://www.nytimes.com/2026/09/23/magazine/uncle-son-cousin-ethics.html
