@@ -1,3 +1,7 @@
+**Dolly Parton’s Nephew Is Accused of Threatening Her Estate**\
+`Ms. Parton’s estate filed a request for a restraining order against Bryan Seaver, accusing her former security provider of intimidation and extortion.`\
+https://www.nytimes.com/2026/09/22/arts/music/dolly-parton-restraining-order-bryan-seaver.html
+
 **Trump Once Vowed to ‘Own’ Greenland. He Settled for Something Much Less.**\
 `President Trump signed a Greenland security deal that falls well short of his demands to turn the island into a U.S. territory.`\
 https://www.nytimes.com/2026/09/22/us/politics/trump-greenland-denmark-agreement.html
@@ -35,7 +39,7 @@ https://www.nytimes.com/2026/09/22/world/europe/andy-burnham-unga-ukraine-iran-w
 https://www.nytimes.com/2026/09/22/us/rollerblader-death-kansas-cross-country.html
 
 **Hurricane Polo Just Keeps Getting Stronger**\
-`The storm is expected to stay mainly offshore as it moves north along the western coast of Mexico this week. It’s one of the strongest ever in that region.`\
+`The storm is expected to stay mainly offshore as it moves north along the western coast of Mexico this week. It’s one of the strongest ever in the region.`\
 https://www.nytimes.com/live/2026/09/22/weather/hurricane-polo-mexico
 
 **Trump Threatens Annihilation in Iran in UN Speech and Lays Out Winner-Takes-All Vision**\
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/09/22/dining/patrick-oconnell.html
 **Fact-Checking Trump’s Speech at the United Nations**\
 `President Trump’s remarks about oil reserves, the drug trade and his peace efforts contained falsehoods and exaggerations.`\
 https://www.nytimes.com/2026/09/22/us/politics/fact-check-trump-united-nations.html
-
-**Anthropic Releases a New A.I. Model, Opus 5.5, Amid Safety Debate**\
-`The company released a cheaper, faster model that it said was the strongest performer on its most rigorous internal safety tests to date.`\
-https://www.nytimes.com/2026/09/22/technology/anthropic-ai-model-safety.html
 
 **U.N. Updates: As Trump Threatens Iran, Other Leaders Warn of Deep Divisions**\
 `President Trump said he must decide whether to make a deal or “annihilate” Iran, in a gathering where world leaders typically focus on declarations of global harmony.`\
