@@ -1,3 +1,7 @@
+**Paul LePage, a Trump Ally, Says a Family Member Is Being Deported**\
+`The former Maine governor, a Republican running for Congress, said the Trump administration is seeking to wrongly deport his son’s father-in-law, who has a work permit.`\
+https://www.nytimes.com/2026/09/23/us/politics/paul-lepage-maine-ice-family-member-deported.html
+
 **Iran’s President Accuses U.S., Israel of Lawless Attacks at U.N.**\
 `President Masoud Pezeshkian of Iran accused the United States and Israel of lawless attacks at the United Nations General Assembly in New York City on Wednesday.`\
 https://www.nytimes.com/video/world/100000011170066/iran-president-un-general-assembly-speech.html
@@ -165,10 +169,6 @@ https://www.nytimes.com/2026/09/23/style/london-fashion-week-street-style.html
 **The Lucas Museum’s Architect Wants to Help You Escape From Reality**\
 `Ma Yansong, China’s reigning starchitect, lets his buildings wrapped in nature do the shouting.`\
 https://www.nytimes.com/2026/09/23/arts/design/lucas-museum-architect-ma-yansong-mad.html
-
-**My Uncle May Have a Son He Won’t Acknowledge. What Do I Owe My (Maybe) Cousin?**\
-`I feel very sad for this man trying to find his father.`\
-https://www.nytimes.com/2026/09/23/magazine/uncle-son-cousin-ethics.html
 
 **Climate Forward Live Updates: Energy Secretary Dismisses Idea of Diesel Export Ban**\
 `Energy Secretary Chris Wright, speaking at The New York Times’ annual Climate Forward event, dismissed reports that President Trump was preparing to ban U.S. exports of diesel in a bid to lower energy prices.`\
