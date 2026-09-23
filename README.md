@@ -186,8 +186,8 @@ https://www.nytimes.com/2026/09/23/arts/music/ensemble-intercontemporain-50th-an
 `On Oct. 10, the artist’s exhibition, “Some Wild Kind of Language,” opens at the Stedelijk Museum Amsterdam. It will upend expectations.`\
 https://www.nytimes.com/2026/09/23/arts/design/adam-pendleton-amsterdam-artist.html
 
-**Many Pay the Toll of the ‘Big Beautiful Bill’ as November Looms**\
-`The tax cuts in President Trump’s signature achievement were the Republicans’ answer to voters’ economic struggles, but its health care and food assistance cuts have come with a price.`\
+**One Big Beautiful Bill Is Starting to Bite Before the Election**\
+`The tax cuts in President Trump’s signature achievement were the Republicans’ answer to voters’ economic struggles, but its health care and food assistance cuts are taking a toll.`\
 https://www.nytimes.com/2026/09/23/us/politics/one-big-beautiful-bill-midterms-affordability.html
 
 **New Matrix, Meet the Old Matrix**\
