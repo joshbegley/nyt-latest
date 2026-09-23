@@ -1,3 +1,7 @@
+**Maps: Tracking a Potential Hurricane Near Hawaii**\
+`See the likely path and wind arrival times for Fifteen-E`\
+https://www.nytimes.com/interactive/2026/09/23/weather/hawaii-storm-map-path.html
+
 **Live Updates: Judge to Hear Arguments From News Outlets and White House Over Ban**\
 `CNN, MS NOW and Politico are challenging President Trump’s attempt to block their access to the White House, saying it violates the First Amendment. The administration has argued that such access is not a right.`\
 https://www.nytimes.com/live/2026/09/23/business/trump-cnn-politico-msnow-ban-hearing
@@ -179,6 +183,6 @@ https://www.nytimes.com/2026/09/23/style/newborn-visiting-dirty-house.html
 https://www.nytimes.com/live/2026/09/23/climate/climate-forward-conference
 
 **U.N. Live Updates: Zelensky Warns Russian Aggression May Spread Beyond Ukraine**\
-`The Ukrainian president called for new sanctions targeting Russian finances and production. Earlier, President Masoud Pezeshkian of Iran said his country would not be bullied by the United States.`\
+`The Ukrainian president called for new sanctions targeting Russian finances, and steps to end the war before it enters another winter. Earlier, President Masoud Pezeshkian of Iran said his country would not be bullied by the United States.`\
 https://www.nytimes.com/live/2026/09/23/world/un-general-assembly-iran-ukraine
 
