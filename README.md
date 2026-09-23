@@ -1,3 +1,27 @@
+**Walkouts at the U.N. General Assembly Are Somewhat of a Tradition**\
+`As President Masoud Pezeshkian of Iran delivered his speech, the lone U.S. diplomat sitting in the hall left.`\
+https://www.nytimes.com/2026/09/23/world/un-general-assembly-walkout.html
+
+**A.I. Assistant**\
+`Plus, it’s Fat Bear Week.`\
+https://www.nytimes.com/2026/09/23/briefing/ai-assistant.html
+
+**Museum Regrets Hosting 9/11 Event Airing Conspiracy Theories**\
+`As New York commemorated the 25th anniversary of the attacks, El Museo del Barrio rented space to a group skeptical of the explanation of what caused the twin towers to come down.`\
+https://www.nytimes.com/2026/09/23/arts/design/museum-regrets-hosting-9-11-event-airing-conspiracy-theories.html
+
+**New Study Illuminates Bats’ Murky Origins**\
+`The largest analysis of bat genomes and fossils suggests that the first bats emerged in Europe roughly 65 million years ago and that echolocation evolved early.`\
+https://www.nytimes.com/2026/09/23/science/evolution-genetics-bats.html
+
+**Wildfire Converted Me From Tree-Hugger to Tree-Worshipper**\
+`I used to view trees as ecologically angelic beings. No longer.`\
+https://www.nytimes.com/2026/09/23/opinion/wildfires-trees-scientific-animism.html
+
+**Lili Reinhart, of ‘The Love Hypothesis,’ Is Still Figuring It Out**\
+`The “Riverdale” actor reflects on fame, open communication and finding love in real life.`\
+https://www.nytimes.com/2026/09/23/movies/lili-reinhart-interview-the-love-hypothesis.html
+
 **Jane Fonda Hits Both Parties for Inaction on Climate Change**\
 `The longtime activist urged people to vote for leaders who understand the threat a warming planet faces.`\
 https://www.nytimes.com/2026/09/23/climate/jane-fonda-climate-change-politics.html
@@ -78,8 +102,8 @@ https://www.nytimes.com/2026/09/23/crosswords/wordle-review-1923.html
 `Scroll down for hints and conversation about the puzzle for Thursday, Sept. 24, 2026.`\
 https://www.nytimes.com/2026/09/23/crosswords/strands-sidekick-935.html
 
-**U.N. Live Updates: Iran’s President Accuses U.S. and Israel of Lawless Attacks on Nonmilitary Targets**\
-`Masoud Pezeshkian became the first leader whose country is at war with the United States to address the General Assembly in New York. He said Iran was open to diplomacy but would never accept limits on its civilian nuclear program.`\
+**U.N. Live Updates: Iran’s President Accuses U.S. and Israel of Lawless Attacks in a Defiant Address**\
+`Masoud Pezeshkian said Iran was open to diplomacy to end the war but would never accept limits on its civilian nuclear program. He became the first leader to speak to the General Assembly in New York while his country was at war with the United States.`\
 https://www.nytimes.com/live/2026/09/23/world/un-general-assembly-iran-ukraine
 
 **It’s Not the Oscars: U.N. Speakers Love to Ignore Its 15-Minute Rule**\
@@ -165,28 +189,4 @@ https://www.nytimes.com/2026/09/23/us/asilomar-dna-ai-self-regulation-laws.html
 **‘The Love Hypothesis’ Review: Steady Results From a Fake Relationship**\
 `A biology graduate student (Lili Reinhart), enters an experiment with a young professor (Tom Bateman) to prove a point to her friend.`\
 https://www.nytimes.com/2026/09/23/movies/the-love-hypothesis-review.html
-
-**‘The Holes’ Review: Benediction in the Back Room**\
-`The men’s wellness niche, and men-only spaces, come in for a skewering in Max Wolf Friedlich’s gleefully weird follow-up to “Job.”`\
-https://www.nytimes.com/2026/09/23/theater/the-holes-review-max-wolf-friedlich.html
-
-**Book Review: ‘No Land to Stand On,’ by Mahmoud Khalil**\
-`Mahmoud Khalil, the Palestinian activist and former Columbia graduate student, offers an account of his ordeal and explains why his work continues.`\
-https://www.nytimes.com/2026/09/23/books/review/no-land-to-stand-on-mahmoud-khalil.html
-
-**The Midterms Are the First Big Test for a New Movement**\
-`A third party can’t fix our politics. But there’s another way.`\
-https://www.nytimes.com/2026/09/23/opinion/independents-midterms-democrats.html
-
-**Weird Al Never Grew Up. Neither Did These Fans (or Their Dads).**\
-`Sons and fathers bond at the accordion-wielding pop parodist’s concerts.`\
-https://www.nytimes.com/2026/09/23/arts/music/weird-al-yankovic-fans-fathers-sons.html
-
-**How Anne Rice Channeled Grief Into ‘Interview With the Vampire’**\
-`On the novel’s 50th anniversary, her son, the novelist Christopher Rice, looks at the story behind the story.`\
-https://www.nytimes.com/2026/09/23/books/review/anne-rice-interview-with-the-vampire-50th-anniversary.html
-
-**Word of the Day: moot**\
-`This word has appeared in 81 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/09/23/learning/word-of-the-day-moot.html
 
