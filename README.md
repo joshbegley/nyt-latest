@@ -162,10 +162,6 @@ https://www.nytimes.com/2026/09/23/style/tiny-modern-love-stories-i-had-a-sex-dr
 `An explosive news report says election commission members objected to the measures that excluded millions of people from voting, which critics say favor the government.`\
 https://www.nytimes.com/2026/09/23/world/asia/india-election-commission-voter-rolls.html
 
-**Hackers Say They Stole Thousands of Sensitive F.B.I. Personnel Records**\
-`The compromise, if confirmed, would be the latest in a string of cybersecurity failures at the F.B.I., which said it was investigating the matter.`\
-https://www.nytimes.com/2026/09/23/us/politics/fbi-hack-shinyhunters-data.html
-
 **Climate Forward Live Updates: Energy Secretary Dismisses Idea of Diesel Export Ban**\
 `Energy Secretary Chris Wright, speaking at The New York Times’ annual Climate Forward event, dismissed reports that President Trump was preparing to ban U.S. exports of diesel in a bid to lower energy prices.`\
 https://www.nytimes.com/live/2026/09/23/climate/climate-forward-conference
