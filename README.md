@@ -4,7 +4,7 @@ https://www.nytimes.com/video/world/americas/100000011169375/hurricane-polo-mexi
 
 **U.S. Rebukes Australia Over Proposed Limits on Social Media Algorithms**\
 `The U.S. Embassy said a draft law allowing users to opt out of systems that choose what they can see in their feeds could amount to censorship.`\
-https://www.nytimes.com/2026/09/23/world/australia/us-australia-social-media-algorithms.html
+https://www.nytimes.com/2026/09/23/world/australia/social-media-law-algorithms-us-embassy.html
 
 **Prada Says All You Really Need Is a Knee-Length Skirt**\
 `Milan Fashion Week began with a show devoted to a single garment.`\
