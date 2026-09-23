@@ -1,3 +1,11 @@
+**Canada’s Capital Bids Good Riddance to Trump Avenue as Tensions With U.S. Rise**\
+`Ottawa’s City Council decided that the street should no longer be named for President Trump, who recently signed an executive order changing Lake Ontario to Lake America.`\
+https://www.nytimes.com/2026/09/23/us/ottawa-canada-renaming-trump-avenue.html
+
+**A Teacher and Activist Admits to Lying About Her Palestinian Background**\
+`Hannah Gann, who teaches at a Philadelphia high school, said that she had misled people for years and that is “a white woman of significant privilege.”`\
+https://www.nytimes.com/2026/09/23/us/philadelphia-teacher-palestinian-background.html
+
 **F.D.A. Advisory Panel Endorses Controversial Cancer Blood Test**\
 `The panelists expressed reservations about the evidence supporting Grail’s Galleri test, which is designed to detect cancers early.`\
 https://www.nytimes.com/2026/09/23/well/fda-cancer-blood-test-galleri-grail.html
