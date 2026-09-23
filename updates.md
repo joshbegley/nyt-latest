@@ -1,3 +1,7 @@
+**Taylor Swift Announces ‘The Life of a Showgirl: The Encore,’ Featuring 4 New Songs**\
+`“The Life of a Showgirl: The Encore,” featuring four new songs, will release on Friday.`\
+https://www.nytimes.com/2026/09/23/arts/music/taylor-swift-life-of-a-showgirl-encore.html
+
 **Trump’s Threat to ‘Annihilate’ Iran**\
 `Readers react to President Trump’s speech to the United Nations General Assembly. Also: Immigrants’ fears; better eating habits.`\
 https://www.nytimes.com/2026/09/23/opinion/trump-iran-united-nations.html
