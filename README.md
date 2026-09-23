@@ -1,3 +1,7 @@
+**Myanmar Has an Envoy at the United Nations. Why Is He Not Speaking?**\
+`U Kyaw Moe Tun has kept a low profile at the General Assembly for years, part of an arrangement to keep his post despite the military-backed government’s efforts to remove him.`\
+https://www.nytimes.com/2026/09/23/world/asia/unga-myanmar-united-nations-ambassador.html
+
 **Ralph Ellison Trust Donates Rights to Bard College**\
 `The liberal arts college announced a center dedicated to the “Invisible Man” author, who taught classes there.`\
 https://www.nytimes.com/2026/09/23/arts/ralph-ellison-bard-archive.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/23/t-magazine/latin-america-documentary-theater.
 **When Your Neighbors Are Your 19 Closest Friends (and Their Kids)**\
 `Phil Levin and Kristen Berman bought and transformed an Oakland lot into a community compound. Now they’re selling it.`\
 https://www.nytimes.com/2026/09/23/realestate/radish-communal-living.html
-
-**They Kept Outsiders Away for 500 Years. Their World Is About to Change.**\
-`My father dedicated his life to studying the Indigenous group, and they may soon allow unprecedented development through their land. I went on a trek through the jungle to find out why.`\
-https://www.nytimes.com/2026/09/23/magazine/darien-gap-road-panama-colombia.html
 
