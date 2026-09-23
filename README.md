@@ -1,3 +1,111 @@
+**Kennedy’s Anti-Vaccine Legacy Will Outlast This Administration**\
+`Four are dead in Pennsylvania’s measles outbreak. But the C.D.C. isn’t yet convinced.`\
+https://www.nytimes.com/2026/09/23/opinion/kennedy-measles-deaths-pennsylvania.html
+
+**‘Ted Lasso’ Season 4, Episode 8 Recap: There’s Crying in Football**\
+`A setback for the team, a nefarious plot and a romantic reunion.`\
+https://www.nytimes.com/2026/09/23/arts/television/ted-lasso-season-4-episode-8-recap.html
+
+**Corrections: Sept. 23, 2026**\
+`Corrections that appeared in print on Wednesday, Sept. 23, 2026.`\
+https://www.nytimes.com/2026/09/23/pageoneplus/corrections-sept-23-2026.html
+
+**MrBeast and Rajiv Shah: We’ve Seen What Video Can Do. Let’s Use It for Good.**\
+`Video can help charity keep up with a changing world.`\
+https://www.nytimes.com/2026/09/23/opinion/mrbeast-rajiv-shah-video.html
+
+**Taylor Tomlinson Left Her Fiancé, Her Church and Her Shame**\
+`The comedian Taylor Tomlinson on freeing herself from old assumptions about when to settle down, and who to build her life with.`\
+https://www.nytimes.com/2026/09/23/podcasts/taylor-tomlinson-comedian-relationship-breakups.html
+
+**Are You Following the News About the Ed Sheeran Tour? What Is Your Reaction?**\
+`The rapper Macklemore was dropped from Ed Sheeran’s Loop tour after saying “Free Palestine” onstage, raising questions about freedom of speech.`\
+https://www.nytimes.com/2026/09/23/learning/are-you-following-the-news-about-the-ed-sheeran-tour-what-is-your-reaction.html
+
+**At the U.N., Japan’s Leader Says It’s Time to End ‘Enemy State’ Label**\
+`Prime Minister Sanae Takaichi said the United Nations should scrub the World War II-era designation from its Charter. China and Russia have used the term recently to attack Japan.`\
+https://www.nytimes.com/2026/09/23/world/asia/unga-japan-takaichi-enemy-state.html
+
+**Why Germany’s Leader Merz Is Struggling to Sway Voters**\
+`As the far right surges, Chancellor Friedrich Merz’s unpopular economic policies and gruff manner have failed to sway voters turned by rivals’ promises of easy fixes.`\
+https://www.nytimes.com/2026/09/23/world/europe/germany-merz-afd-economy.html
+
+**92NY’s $250 Million Renovation Transforms an ‘Amazing Jigsaw Puzzle’**\
+`92NY has been a pillar of New York City culture for nearly a century. With a six-year renovation underway, the leaders hope it will become more accessible.`\
+https://www.nytimes.com/2026/09/23/92ny-nyc-renovation.html
+
+**She’s Making Her Met Debut. She’s a Snake.**\
+`Princess, a boa constrictor, has her own dressing room. Her understudy will be waiting in the wings.`\
+https://www.nytimes.com/2026/09/23/nyregion/snake-metropolitan-opera-cosi-fan-tutte.html
+
+**D. B. Weiss on His Favorite TV Shows**\
+`The screenwriter D. B. Weiss is one of the hundreds of stars, showrunners and industry insiders who contributed their picks for The New York Times’s list of the best TV shows of the 21st century.`\
+https://www.nytimes.com/video/arts/100000011161897/d-b-weiss-on-his-favorite-tv-shows.html
+
+**Which $700,000 Home Would You Choose?**\
+`This week’s properties are in Plainfield, Vt.; Philadelphia; and St. Paul, Minn.`\
+https://www.nytimes.com/2026/09/23/realestate/best-home-vermont-philadelphia-stpaul.html
+
+**Lena Waithe on Her Favorite TV Shows**\
+`The actor and screenwriter Lena Waithe is one of the hundreds of stars, showrunners and industry insiders who contributed their picks for The New York Times’s list of the best TV shows of the 21st century.`\
+https://www.nytimes.com/video/arts/100000011161866/lena-waithe-on-her-favorite-tv-shows.html
+
+**Private Train Cars Persist In the Era of Private Jets and Luxury Travel**\
+`Private train cars may seem like a relic of the past, but for some rail fans, nothing beats having — or renting — your own sleeper car.`\
+https://www.nytimes.com/2026/09/23/travel/amtrak-private-train-cars.html
+
+**Jensen Huang vs. the A.I. Doomers**\
+`Jensen Huang, the chief executive of Nvidia, does not want you to be afraid of A.I.`\
+https://www.nytimes.com/2026/09/23/opinion/ezra-klein-podcast-jensen-huang.html
+
+**Trump’s New Favorite Neighbor: Mexico**\
+`President Trump built his political brand in part on bashing Mexico. Now his second presidency depends on deepening partnerships with the country.`\
+https://www.nytimes.com/2026/09/23/world/americas/trump-mexico-trade-relations.html
+
+**These 5-Star Hotels Allow You to Enjoy Luxury Experiences as a Non-Guest**\
+`The cost of a night at a luxury hotel can be daunting, but you can get a taste of the gilded life for less by booking an experience. Here, six standouts.`\
+https://www.nytimes.com/2026/09/23/travel/luxury-hotel-experiences-non-guest.html
+
+**How Scientists Contained a Threat That Could Have Destroyed Humanity**\
+`A half-century ago, scientists and lawyers agreed to strict self-regulation in DNA research to avoid catastrophe. But it took enforcement to really stop them.`\
+https://www.nytimes.com/2026/09/23/us/asilomar-dna-ai-self-regulation-laws.html
+
+**‘The Love Hypothesis’ Review: Steady Results From a Fake Relationship**\
+`A biology graduate student (Lili Reinhart), enters an experiment with a young professor (Tom Bateman) to prove a point to her friend.`\
+https://www.nytimes.com/2026/09/23/movies/the-love-hypothesis-review.html
+
+**‘The Holes’ Review: Benediction in the Back Room**\
+`The men’s wellness niche, and men-only spaces, come in for a skewering in Max Wolf Friedlich’s gleefully weird follow-up to “Job.”`\
+https://www.nytimes.com/2026/09/23/theater/the-holes-review-max-wolf-friedlich.html
+
+**Book Review: ‘No Land to Stand On,’ by Mahmoud Khalil**\
+`Mahmoud Khalil, the Palestinian activist and former Columbia graduate student, offers an account of his ordeal and explains why his work continues.`\
+https://www.nytimes.com/2026/09/23/books/review/no-land-to-stand-on-mahmoud-khalil.html
+
+**The Midterms Are the First Big Test for a New Movement**\
+`A third party can’t fix our politics. But there’s another way.`\
+https://www.nytimes.com/2026/09/23/opinion/independents-midterms-democrats.html
+
+**Weird Al Never Grew Up. Neither Did These Fans (or Their Dads).**\
+`Sons and fathers bond at the accordion-wielding pop parodist’s concerts.`\
+https://www.nytimes.com/2026/09/23/arts/music/weird-al-yankovic-fans-fathers-sons.html
+
+**How Anne Rice Channeled Grief Into ‘Interview With the Vampire’**\
+`On the novel’s 50th anniversary, her son, the novelist Christopher Rice, looks at the story behind the story.`\
+https://www.nytimes.com/2026/09/23/books/review/anne-rice-interview-with-the-vampire-50th-anniversary.html
+
+**Word of the Day: moot**\
+`This word has appeared in 81 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/09/23/learning/word-of-the-day-moot.html
+
+**‘It’s Very Simple’: 50 Years of Making Avant-Garde Music Sound Effortless**\
+`Founded by Pierre Boulez to treat new compositions with orchestral rigor, Ensemble Intercontemporain has honed the art of turning forbidding scores into expressive sound.`\
+https://www.nytimes.com/2026/09/23/arts/music/ensemble-intercontemporain-50th-anniversary.html
+
+**Adam Pendleton Is Painting the White Cube Black**\
+`On Oct. 10, the artist’s exhibition, “Some Wild Kind of Language,” opens at the Stedelijk Museum Amsterdam. It will upend expectations.`\
+https://www.nytimes.com/2026/09/23/arts/design/adam-pendleton-amsterdam-artist.html
+
 **The Big Beautiful Bill Is Starting to Bite Before the Election**\
 `The tax cuts in President Trump’s signature achievement were the Republicans’ answer to voters’ economic struggles, but its health care and food assistance cuts are taking a toll.`\
 https://www.nytimes.com/2026/09/23/us/politics/one-big-beautiful-bill-midterms-affordability.html
@@ -89,112 +197,4 @@ https://www.nytimes.com/2026/09/23/world/africa/morocco-election-youth-frustrati
 **Seth Meyers Prefers Trump Without Audio**\
 `“We don’t need to hear what he’s saying,” Meyers said after the president’s first event without the White House press pool. “He’s either bragging or lying, let’s just lose the sound.”`\
 https://www.nytimes.com/2026/09/23/arts/television/seth-meyers-trump-press-pool.html
-
-**The Democrats’ Policy on Palestine Is Detached From Reality**\
-`The party needs more than a stance on Israel.`\
-https://www.nytimes.com/2026/09/23/opinion/democrats-palestine-policy.html
-
-**Trump and Xi Have to Find a Way to Coexist**\
-`Neither the United States nor China can bend the other to its will, and it’s time for them to settle for a durable détente.`\
-https://www.nytimes.com/2026/09/23/opinion/trump-xi-meeting-us-china.html
-
-**White House Defends Trump’s Ban on CNN, MS NOW and Politico in Court Filing**\
-`President Trump determined that CNN, MS NOW and Politico were in  ‘violation of the standards of professionalism and decorum’ expected at the White House.`\
-https://www.nytimes.com/2026/09/23/business/trump-cnn-politico-ms-now-ban.html
-
-**Read the White House Response to the Lawsuit From CNN, MS NOW and Politico**\
-`The Trump administration has defended its ban on the three media outlets in a court filing.`\
-https://www.nytimes.com/interactive/2026/09/23/us/politics/cnn-msnow-politico-lawsuit-trump-response.html
-
-**Quote of the Day: Keeping Truce With the U.S. Is Xi’s Mission**\
-`Quotation of the Day for Wednesday, September 23, 2026.`\
-https://www.nytimes.com/2026/09/23/pageoneplus/quote-of-the-day-keeping-truce-with-the-us-is-xis-mission.html
-
-**Outside the ‘Worried West,’ Many Feel Good About A.I.**\
-`A Gallup poll found that a majority of people surveyed across 37 countries said they were curious or excited about artificial intelligence, more than scared or worried.`\
-https://www.nytimes.com/2026/09/23/world/ai-gallup-poll.html
-
-**Suicide Rate Dropped Slightly in 2024, C.D.C. Finds**\
-`Suicide deaths have often fluctuated over the years but a sustained downward trend remains elusive.`\
-https://www.nytimes.com/2026/09/23/well/mind/suicide-rate-2024-cdc.html
-
-**On This Day | Sept. 23**\
-`In 1952, the Republican vice-presidential candidate Richard M. Nixon delivered his nationally televised “Checkers” speech, denying that he had improperly used campaign funds. The address was an early example of television reshaping U.S. politics.`\
-https://www.nytimes.com/2026/09/23/learning/on-this-day-sept-23.html
-
-**Dispute Over Missouri’s Congressional Map Again Returns to Supreme Court**\
-`A federal appeals court sided with Republicans seeking to use district boundaries redrawn last year to give the G.O.P. an advantage in the upcoming midterms.`\
-https://www.nytimes.com/2026/09/22/us/politics/supreme-court-missouri-congressional-map.html
-
-**NYT Crossword Answers for Sept. 23, 2026**\
-`How to solve Dana Edwards’s crossword puzzle? Just play.`\
-https://www.nytimes.com/2026/09/22/crosswords/daily-puzzle-2026-09-23.html
-
-**Tropical Sea Turtle Lays Eggs on Southern California Beach**\
-`It’s the first time in recorded history that a sea turtle has nested on the West Coast. Scientists say it is the latest sign of warming ocean waters.`\
-https://www.nytimes.com/2026/09/22/us/olive-ridley-sea-turtle-climate-california.html
-
-**Endangered Sea Turtle Lays Eggs on Southern California Beach**\
-`For the first time ever, scientists recorded a sea turtle laying eggs on a beach on the U.S. West Coast. A fence was erected around the eggs of the olive ridley turtle.`\
-https://www.nytimes.com/video/science/earth/100000011167855/endangered-sea-turtle-california-beach.html
-
-**Dolly Parton’s Estate in Turmoil After Extortion Accusations**\
-`Ms. Parton’s manager requested a restraining order against the singer’s nephew and former security provider, accusing him of threats and intimidation.`\
-https://www.nytimes.com/2026/09/22/arts/music/dolly-parton-restraining-order-bryan-seaver.html
-
-**Trump Once Vowed to ‘Own’ Greenland. He Settled for Something Much Less.**\
-`President Trump signed a Greenland security deal that falls well short of his demands to turn the island into a U.S. territory.`\
-https://www.nytimes.com/2026/09/22/us/politics/trump-greenland-denmark-agreement.html
-
-**Mamdani Aides Give City Council Little Insight Into Influencer Effort**\
-`At a New York City Council hearing, frustration grew as Mayor Zohran Mamdani’s representatives were unable to answer questions about the mayor’s use of influencers.`\
-https://www.nytimes.com/2026/09/22/nyregion/mamdani-council-influencers-hearing.html
-
-**Trump Cites National Security as He Faces Pushback on Press Ban, D.C. Arch and More**\
-`The president is increasingly invoking the rationale while facing legal challenges to his plans, even in more curious cases like his triumphal arch, which he says will now include snipers and drones.`\
-https://www.nytimes.com/2026/09/22/us/politics/trump-arch-national-security.html
-
-**At U.N., Carney Lays Out a Broad Plan for a Divided World**\
-`Mark Carney, the Canadian prime minister, said the world is now at a point ‘that comes once or twice a century.’`\
-https://www.nytimes.com/2026/09/22/world/canada/carney-united-nations-general-assembly.html
-
-**As Trump Lobs Threats, Other World Leaders Mostly Avoid Talk of Iran**\
-`Some leaders criticized the global impact of the war and called for negotiations to resume, but they stopped short of criticizing President Trump’s remarks.`\
-https://www.nytimes.com/2026/09/22/world/trump-threats-world-leaders-iran-war.html
-
-**Hospitals Shut Youth Gender Clinics in Deal with Trump Administration**\
-`At least six hospitals have struck agreements with the Trump administration to pay fines and stop providing gender-transition treatments to minors.`\
-https://www.nytimes.com/2026/09/22/us/trangender-youths-hospital-settlements.html
-
-**Qantas’s New York-to-Sydney ‘Project Sunrise’ Flights to Take Off in 2028**\
-`Qantas Airways said the 18-hour flights, part of its Project Sunrise program, would come months after its 22-hour direct flights from Sydney to London begin.`\
-https://www.nytimes.com/2026/09/22/travel/qantas-project-sunrise-flights.html
-
-**Andy Burnham, U.K.’s New Prime Minister, Prepares for U.N. Spotlight**\
-`Andy Burnham appears likely to promote support for Ukraine and hold to tough lines on Israel and the war on Iran.`\
-https://www.nytimes.com/2026/09/22/world/europe/andy-burnham-unga-ukraine-iran-war.html
-
-**Rollerblading Norwegian Dies After Being Hit by a Car in Kansas**\
-`The 24-year-old man had been traveling cross-country from New York to Los Angeles after starting out in August.`\
-https://www.nytimes.com/2026/09/22/us/rollerblader-death-kansas-cross-country.html
-
-**Hurricane Polo Just Keeps Getting Stronger**\
-`The storm is expected to stay mainly offshore as it moves north along the western coast of Mexico this week. It’s one of the strongest ever in the region.`\
-https://www.nytimes.com/live/2026/09/22/weather/hurricane-polo-mexico
-
-**Trump Threatens Annihilation in Iran in UN Speech and Lays Out Winner-Takes-All Vision**\
-`President Trump’s speech at the U.N. General Assembly amounted to a rejection of the founding concept of the United Nations.`\
-https://www.nytimes.com/2026/09/22/us/politics/un-trump-speech-iran-venezuela-greenland.html
-
-**Republican Senator Urges Congress to Investigate Donald Trump Jr.**\
-`In a letter, John Curtis of Utah called for the Senate Judiciary Committee to subpoena the sons of President Trump and former President Joseph R. Biden Jr.`\
-https://www.nytimes.com/2026/09/22/us/politics/curtis-urges-investigation-donald-trump-jr.html
-
-**Billy Bush Joins Fox News a Decade After ‘Access Hollywood’ Tape Scandal**\
-`He lost his job as a “Today” show anchor in 2016 after footage surfaced of Donald J. Trump joking with him about sexual assault. He will be a Fox contributor.`\
-https://www.nytimes.com/2026/09/22/business/billy-bush-fox-news-trump-access-hollywood.html
-
-**U.N. Updates: As Trump Threatens Iran, Other Leaders Warn of Deep Divisions**\
-`President Trump said he must decide whether to make a deal or “annihilate” Iran, in a gathering where world leaders typically focus on declarations of global harmony.`\
-https://www.nytimes.com/live/2026/09/22/world/un-general-assembly-trump-speech-news
 

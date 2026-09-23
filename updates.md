@@ -1,3 +1,55 @@
+**The Big Beautiful Bill Is Starting to Bite Before the Election**\
+`The tax cuts in President Trump’s signature achievement were the Republicans’ answer to voters’ economic struggles, but its health care and food assistance cuts are taking a toll.`\
+https://www.nytimes.com/2026/09/23/us/politics/one-big-beautiful-bill-midterms-affordability.html
+
+**New Matrix, Meet the Old Matrix**\
+`The railroads were once the octopus that A.I. is now.`\
+https://www.nytimes.com/2026/09/23/opinion/ai-politics-railroads-history.html
+
+**Swivel Chairs You’ll Want to Give a Whirl**\
+`Unexpected colors and textures put a new spin on rotating seats.`\
+https://www.nytimes.com/2026/09/23/t-magazine/swivel-chairs-youll-want-to-give-a-whirl.html
+
+**‘An Interrogation of the Truth’: The New Latin American Theater**\
+`Across the region, documentary-style works have risen to address political and economic realities.`\
+https://www.nytimes.com/2026/09/23/t-magazine/latin-america-documentary-theater.html
+
+**When Your Neighbors Are Your 19 Closest Friends (and Their Kids)**\
+`Phil Levin and Kristen Berman bought and transformed an Oakland lot into a community compound. Now they’re selling it.`\
+https://www.nytimes.com/2026/09/23/realestate/radish-communal-living.html
+
+**They Kept Outsiders Away for 500 Years. Their World Is About to Change.**\
+`My father dedicated his life to studying the Indigenous group, and they may soon allow unprecedented development through their land. I went on a trek through the jungle to find out why.`\
+https://www.nytimes.com/2026/09/23/magazine/darien-gap-road-panama-colombia.html
+
+**$1 Billion Donation to University of Oregon Makes History**\
+`The gift from Phil Knight, the Nike co-founder, is the largest known donation to a flagship university. It will fund a new engineering college.`\
+https://www.nytimes.com/2026/09/23/us/billion-dollar-donation-university-oregon-phil-knight.html
+
+**Chris Wright Sells Trump’s ‘Energy Dominance’ Vision**\
+`Energy Secretary Chris Wright is pitching a future of fossil fuel abundance. It’s not always an easy sell while war drags on and oil prices surge.`\
+https://www.nytimes.com/2026/09/23/climate/the-former-fracking-executive-selling-trumps-energy-dominance-vision.html
+
+**Bravo’s ‘Next Gen NYC’ Combines Nepo Babies and Good Drama**\
+`“Next Gen NYC” is breaking Bravo records with its cast full of the children of reality TV stars and its relatively low-stakes tiffs.`\
+https://www.nytimes.com/2026/09/23/style/bravo-next-gen-nyc.html
+
+**At 98, the Composer Thea Musgrave Is Still Learning**\
+`Musgrave, whose 1977 opera “Mary, Queen of Scots” is opening at the San Francisco Opera, has spent a long career searching for the “dramatic abstract.”`\
+https://www.nytimes.com/2026/09/23/arts/music/thea-musgrave-mary-queen-of-scots-san-francisco-opera.html
+
+**Thrilling Mystery Books for Fans of Agatha Christie**\
+`If you’ve devoured all of the Queen of Crime’s whodunits, here are more twisty mysteries that may satisfy your craving.`\
+https://www.nytimes.com/2026/09/23/books/agatha-christie-mystery-books.html
+
+**How China’s Leader Plans to Win the Future With A.I.**\
+`A decade ago, Xi Jinping asked if China could master A.I. His push is remaking the economy, challenging the United States and keeping society under control.`\
+https://www.nytimes.com/2026/09/23/world/asia/china-ai-economy-xi-jinping.html
+
+**Jensen Huang vs. the A.I. Doomers**\
+`Jensen Huang, the chief executive of Nvidia, does not want you to be afraid of A.I.`\
+https://www.nytimes.com/video/opinion/100000011159761/jensen-huang-vs-the-ai-doomers.html
+
 **Prices Have Skyrocketed in Russian Supermarkets. We Have the Receipts.**\
 `Costs have risen dramatically since Russia launched its full-scale invasion of Ukraine. And sanctions have changed some products available, too.`\
 https://www.nytimes.com/interactive/2026/09/23/world/europe/russia-supermarket-prices-ukraine-war.html
