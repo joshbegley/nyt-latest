@@ -1,3 +1,7 @@
+**How El Niño Fueled Hurricane Polo’s Explosive Growth**\
+`The storm is one of the strongest ever in this part of the world.`\
+https://www.nytimes.com/2026/09/23/weather/hurricane-polo-el-nino-strongest.html
+
 **Virginia’s Governor Calls for ‘Rules of the Road’ on Data Centers**\
 `Abigail Spanberger, who announced a set of policies on data centers last week, said states should do more to reduce their pollution.`\
 https://www.nytimes.com/2026/09/23/climate/abigail-spanberger-climate-change.html
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/09/23/briefing/the-distrust-election.html
 **The Winner of This Rivalry Gets Ice Cream. But So Does the Loser.**\
 `The competition between two popular ice cream shops in Ramallah inspires fierce loyalties, and a running joke, for lovers of cones piled high with flavors.`\
 https://www.nytimes.com/2026/09/23/world/middleeast/ice-cream-ramallah-baladna-rukab.html
-
-**Trump’s Major Retreat on Greenland, and Why Texas Hit Pause on New Data Centers**\
-`Plus, El Niño is scrambling hurricane season.`\
-https://www.nytimes.com/2026/09/23/podcasts/the-headlines/trump-greenland-texas-data-centers.html
 
 **U.N. Live Updates: Iran’s President Accuses U.S. and Israel of Lawless Attacks in a Defiant Address**\
 `Masoud Pezeshkian said Iran was open to diplomacy but would never accept limits on its civilian nuclear program. Before his speech later today, President Volodymyr Zelensky of Ukraine called on allies to apply more pressure on Russia.`\
