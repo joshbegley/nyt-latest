@@ -54,7 +54,7 @@ https://www.nytimes.com/2026/09/23/business/media/disney-bob-chapek-bob-iger.htm
 `See the likely path and wind arrival times for Fifteen-E`\
 https://www.nytimes.com/interactive/2026/09/23/weather/hawaii-storm-map-path.html
 
-**Live Updates: Judge to Hear Arguments From News Outlets and White House Over Ban**\
+**Live Updates: Judge Hears Arguments From News Outlets and White House Over Ban**\
 `CNN, MS NOW and Politico are challenging President Trump’s attempt to block their access to the White House, saying it violates the First Amendment. The administration has argued that such access is not a right.`\
 https://www.nytimes.com/live/2026/09/23/business/trump-cnn-politico-msnow-ban-hearing
 
@@ -175,6 +175,6 @@ https://www.nytimes.com/2026/09/23/business/bessent-jp-morgan-stock.html
 https://www.nytimes.com/live/2026/09/23/climate/climate-forward-conference
 
 **U.N. Live Updates: Zelensky Warns of Growing Global Cost of Russia’s War in Ukraine**\
-`Ukraine’s president said grain shortages, rising fuel prices and deadlier drone technology showed that the fighting had spilled beyond his country’s borders. He called for an end to the war before winter.`\
+`Ukraine’s president said grain shortages, rising fuel prices and deadlier drone technology showed that the fighting had spilled beyond his country’s borders. He called for steps to end to the war before winter.`\
 https://www.nytimes.com/live/2026/09/23/world/un-general-assembly-iran-ukraine
 

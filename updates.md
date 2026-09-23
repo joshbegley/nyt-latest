@@ -1,3 +1,11 @@
+**Trump’s Energy Secretary Dismisses Reports of Diesel Export Ban, Criticizes Solar Power**\
+`Chris Wright also doubled down on his criticism of renewable energy sources like solar power.`\
+https://www.nytimes.com/2026/09/23/climate/chris-wright-trump-energy-secretary-fracking.html
+
+**The Good List: 6 Things to Add Some Delight to Your Day**\
+`Traffic music, virtual firewood and ‘it’s lighter than you think.’`\
+https://www.nytimes.com/2026/09/23/briefing/23-the-good-list-fat-bear.html
+
 **Florida Files Lawsuit Against The New York Times**\
 `The state’s attorney general demanded access to company records to examine how the newspaper’s board oversees editorial standards amid claims of anti-Israel bias.`\
 https://www.nytimes.com/2026/09/23/business/media/florida-new-york-times-lawsuit.html
