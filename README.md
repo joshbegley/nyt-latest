@@ -1,3 +1,7 @@
+**Iran’s President Accuses U.S., Israel of Lawless Attacks at U.N.**\
+`President Masoud Pezeshkian of Iran accused the United States and Israel of lawless attacks at the United Nations General Assembly in New York City on Wednesday.`\
+https://www.nytimes.com/video/world/100000011170066/iran-president-un-general-assembly-speech.html
+
 **White House Backtracks on Plan to Exert New Control Over N.I.H. Grants**\
 `Democrats and Republicans in Congress opposed the creation of a commission with the power to veto federal research awards.`\
 https://www.nytimes.com/2026/09/23/us/politics/trump-nih-science-grants.html
