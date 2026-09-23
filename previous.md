@@ -1,3 +1,19 @@
+**Tiny Love Stories: ‘I Had a Sex Dream About You’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/09/23/style/tiny-modern-love-stories-i-had-a-sex-dream-about-you.html
+
+**India’s Election Panel Faces New Scrutiny Over Voter Roll Revisions**\
+`An explosive news report says election commission members objected to the measures that excluded millions of people from voting, which critics say favor the government.`\
+https://www.nytimes.com/2026/09/23/world/asia/india-election-commission-voter-rolls.html
+
+**Hackers Say They Stole Thousands of Sensitive F.B.I. Personnel Records**\
+`The compromise, if confirmed, would be the latest in a string of cybersecurity failures at the F.B.I., which said it was investigating the matter.`\
+https://www.nytimes.com/2026/09/23/us/politics/fbi-hack-shinyhunters-data.html
+
+**A Triumphant Baritone in a Dystopian ‘Macbeth’ Opens the Met Opera Season**\
+`Quinn Kelsey commandingly charts each step in Macbeth’s decline in Louisa Proske’s postapocalyptic setting of Verdi’s opera, which opened the Metropolitan Opera’s season.`\
+https://www.nytimes.com/2026/09/23/arts/music/macbeth-review-met-opera-nyc.html
+
 **ICE Mistakenly Detains U.S. Citizen in Chicago Area, Leaving Him Injured**\
 `The Department of Homeland Security said agents released the man after he identified himself. He was taken to the hospital on Sunday with head and neck injuries, local police said.`\
 https://www.nytimes.com/2026/09/23/us/ice-us-citizen-detained-evanston-chicago.html
@@ -22,7 +38,7 @@ https://www.nytimes.com/2026/09/23/style/met-opera-opening-night-macbeth.html
 `Making a meal of outerwear.`\
 https://www.nytimes.com/2026/09/23/style/london-fashion-week-street-style.html
 
-**The Lucas Museum’s Architect Wants to Help You Escape from Reality**\
+**The Lucas Museum’s Architect Wants to Help You Escape From Reality**\
 `Ma Yansong, China’s reigning starchitect, lets his buildings wrapped in nature do the shouting.`\
 https://www.nytimes.com/2026/09/23/arts/design/lucas-museum-architect-ma-yansong-mad.html
 
@@ -169,20 +185,4 @@ https://www.nytimes.com/2026/09/23/world/un-speeches-15-minutes.html
 **‘It’s Really Busy Out There’: Storms in the Pacific Threaten Hawaii and Mexico**\
 `An already busy Pacific hurricane season got a lot busier this week.`\
 https://www.nytimes.com/2026/09/23/weather/pacific-hurricanes-hawaii-polo.html
-
-**Kennedy Keeps Finding New Ways to Undermine Trust in Vaccines**\
-`Four are dead in Pennsylvania’s measles outbreak. But the C.D.C. isn’t yet convinced.`\
-https://www.nytimes.com/2026/09/23/opinion/kennedy-measles-deaths-pennsylvania.html
-
-**‘Ted Lasso’ Season 4, Episode 8 Recap: There’s Crying in Football**\
-`A setback for the team, a nefarious plot and a romantic reunion.`\
-https://www.nytimes.com/2026/09/23/arts/television/ted-lasso-season-4-episode-8-recap.html
-
-**Corrections: Sept. 23, 2026**\
-`Corrections that appeared in print on Wednesday, Sept. 23, 2026.`\
-https://www.nytimes.com/2026/09/23/pageoneplus/corrections-sept-23-2026.html
-
-**MrBeast and Rajiv Shah: We’ve Seen What Video Can Do. Let’s Use It for Good.**\
-`Video can help charity keep up with a changing world.`\
-https://www.nytimes.com/2026/09/23/opinion/mrbeast-rajiv-shah-video.html
 

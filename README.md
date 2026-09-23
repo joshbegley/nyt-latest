@@ -131,7 +131,7 @@ https://www.nytimes.com/2026/09/23/arts/ralph-ellison-bard-archive.html
 https://www.nytimes.com/2026/09/23/style/newborn-visiting-dirty-house.html
 
 **Climate Forward Live Updates: Leaders Confront a Data Center Backlash and Rising Energy Prices**\
-`Gov. Abigail Spanberger of Virginia is speaking now at The New York Times’ annual Climate Forward event, in a wide-ranging discussion coming at a consequential moment. Energy Secretary Chris Wright will appear later.`\
+`Energy Secretary Chris Wright will appear this afternoon at The New York Times’ annual Climate Forward event, where industry figures are discussing how they are grappling with a consequential moment.`\
 https://www.nytimes.com/live/2026/09/23/climate/climate-forward-conference
 
 **‘Screamplay’: A Hollywood Horror Comedy**\
@@ -181,8 +181,4 @@ https://www.nytimes.com/live/2026/09/23/world/un-general-assembly-iran-ukraine
 **It’s Not the Oscars: U.N. Speakers Love to Ignore Its 15-Minute Rule**\
 `The chronic flouting of the time limit for speeches highlights a fundamental feature of the United Nations: It is made up of sovereign states that it cannot force to do anything.`\
 https://www.nytimes.com/2026/09/23/world/un-speeches-15-minutes.html
-
-**‘It’s Really Busy Out There’: Storms in the Pacific Threaten Hawaii and Mexico**\
-`An already busy Pacific hurricane season got a lot busier this week.`\
-https://www.nytimes.com/2026/09/23/weather/pacific-hurricanes-hawaii-polo.html
 
