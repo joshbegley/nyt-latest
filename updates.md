@@ -1,3 +1,7 @@
+**Prices Have Skyrocketed in Russian Supermarkets. We Have the Receipts.**\
+`Costs have risen dramatically since Russia launched its full-scale invasion of Ukraine. And sanctions have changed some products available, too.`\
+https://www.nytimes.com/interactive/2026/09/23/world/europe/russia-supermarket-prices-ukraine-war.html
+
 **U.S. Rebukes Australia Over Proposed Limits on Social Media Algorithms**\
 `The U.S. Embassy said a draft law allowing users to opt out of systems that choose what they can see in their feeds could amount to censorship.`\
 https://www.nytimes.com/2026/09/23/world/australia/social-media-law-algorithms-us-embassy.html
