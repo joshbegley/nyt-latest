@@ -1,3 +1,11 @@
+**Trouble in the Heartland**\
+`The G.O.P. is on defense in the so-called “blue wall” states and beyond as gas prices remain high.`\
+https://www.nytimes.com/2026/09/23/us/politics/midwest-republican-candidates-trump.html
+
+**Judge Holds Off on Immediate Ruling on White House’s Media Ban**\
+`Judge Timothy J. Kelly heard arguments about President Trump’s decision to bar CNN, MS NOW and Politico from the White House grounds. He said he would rule “as soon as possible.”`\
+https://www.nytimes.com/2026/09/23/business/media/cnn-ms-now-politico-white-house-ban-ruling.html
+
 **Taylor Tomlinson is Done Feeling Shame About Sex**\
 `When the comedian Taylor Tomlinson began exploring her attraction to women, she first had to overcome the judgment and guilt she’d internalized growing up in a conservative family. On the “Modern Love” podcast, Tomlinson tells the host, Anna Martin, how it felt to finally break free of shame.`\
 https://www.nytimes.com/video/podcasts/100000011171388/taylor-tomlinson-dating-women.html
