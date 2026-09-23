@@ -1,3 +1,11 @@
+**Erin Brockovich and Justin Pearson Call for Communities to Push Back Against Building Data Centers**\
+`Erin Brockovich, the consumer activist, and Justin Pearson, a Democratic state representative of Tennessee, urged communities to not build new data centers.`\
+https://www.nytimes.com/video/climate/100000011169968/brockovich-pearson-against-data-centers.html
+
+**Stanislas Hutin, Who Denounced Torture in France’s Algerian War, Dies at 95**\
+`He was among the first to chronicle the French force’s systematic abuse of Algerians, brutal encounters that he documented in his journal and with his photography.`\
+https://www.nytimes.com/2026/09/23/world/middleeast/stanislas-hutin-dead.html
+
 **Jane Fonda Criticizes Both U.S. Political Parties for Climate Inaction**\
 `The actor and activist Jane Fonda said the U.S. is facing “two existential crises — climate and democracy.”`\
 https://www.nytimes.com/video/climate/100000011169969/climate-nyt-activism-environment-jane-fonda.html
@@ -10,7 +18,7 @@ https://www.nytimes.com/2026/09/23/world/europe/ukraine-russia-zelensky-unga.htm
 `Russia launched daytime strikes on Kyiv on Wednesday, hours before President Volodymyr Zelensky of Ukraine was set to address the United Nations General Assembly. The day before, Ukraine said it had struck two Russian oil refineries.`\
 https://www.nytimes.com/video/world/europe/100000011169657/russia-strikes-ukraine-zelensky-un-general-assembly.html
 
-**Bessent Failed to Report Holdings of JP Morgan Stock**\
+**Bessent Mistakenly Failed to Report Holdings of JP Morgan Stock**\
 `Treasury Secretary Scott Bessent’s finances were reviewed by the inspector general after Mr. Bessent incorrectly listed at least $100,000 of the stock, which was owned by his husband, as cash.`\
 https://www.nytimes.com/2026/09/23/business/bessent-jp-morgan-stock.html
 
@@ -119,7 +127,7 @@ https://www.nytimes.com/2026/09/23/crosswords/wordle-review-1923.html
 https://www.nytimes.com/2026/09/23/crosswords/strands-sidekick-935.html
 
 **U.N. Live Updates: Iran’s President Accuses U.S. and Israel of Lawless Attacks in a Defiant Address**\
-`Masoud Pezeshkian said Iran was open to diplomacy to end the war but would never accept limits on its civilian nuclear program. He became the first leader whose country was at war with the United States to speak in New York to the General Assembly.`\
+`Masoud Pezeshkian said Iran was open to diplomacy but would never accept limits on its civilian nuclear program. Before his speech later today, President Volodymyr Zelensky of Ukraine called on allies to apply more pressure on Russia.`\
 https://www.nytimes.com/live/2026/09/23/world/un-general-assembly-iran-ukraine
 
 **It’s Not the Oscars: U.N. Speakers Love to Ignore Its 15-Minute Rule**\
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/09/23/realestate/best-home-vermont-philadelphia-stp
 **Lena Waithe on Her Favorite TV Shows**\
 `The actor and screenwriter Lena Waithe is one of the hundreds of stars, showrunners and industry insiders who contributed their picks for The New York Times’s list of the best TV shows of the 21st century.`\
 https://www.nytimes.com/video/arts/100000011161866/lena-waithe-on-her-favorite-tv-shows.html
-
-**Private Train Cars Persist In the Era of Private Jets and Luxury Travel**\
-`Private train cars may seem like a relic of the past, but for some rail fans, nothing beats having — or renting — your own sleeper car.`\
-https://www.nytimes.com/2026/09/23/travel/amtrak-private-train-cars.html
-
-**Jensen Huang Thinks A.I. Alarmism Has Gone Too Far**\
-`Jensen Huang, the chief executive of Nvidia, does not want you to be afraid of A.I.`\
-https://www.nytimes.com/2026/09/23/opinion/ezra-klein-podcast-jensen-huang.html
 
