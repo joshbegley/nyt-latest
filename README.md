@@ -6,8 +6,8 @@ https://www.nytimes.com/2026/09/22/us/olive-ridley-sea-turtle-climate-california
 `For the first time ever, scientists recorded a sea turtle laying eggs on a beach on the U.S. West Coast. A fence was erected around the eggs of the olive ridley turtle.`\
 https://www.nytimes.com/video/science/earth/100000011167855/endangered-sea-turtle-california-beach.html
 
-**Dolly Parton’s Nephew Is Accused of Threatening Her Estate**\
-`Ms. Parton’s manager filed a request for a restraining order against Bryan Seaver, accusing her former security provider of intimidation and extortion.`\
+**Dolly Parton’s Estate in Turmoil After Extortion Accusations**\
+`Ms. Parton’s manager requested a restraining order against her nephew and former security provider, accusing him of threats and intimidation.`\
 https://www.nytimes.com/2026/09/22/arts/music/dolly-parton-restraining-order-bryan-seaver.html
 
 **Trump Once Vowed to ‘Own’ Greenland. He Settled for Something Much Less.**\
