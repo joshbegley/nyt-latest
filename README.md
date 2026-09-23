@@ -1,3 +1,7 @@
+**Trump Invites Putin to Attend Group of 20 Summit in Miami**\
+`Many leaders are unlikely to welcome the Russian leader’s presence at the event because of his country’s war against Ukraine.`\
+https://www.nytimes.com/2026/09/23/us/politics/trump-putin-g20-summit.html
+
 **Zelensky Warns Russia’s War Will Expand if It Is Not Ended Soon**\
 `The Ukrainian president called for measures to disrupt “Russia’s finances and Russia’s production” before another deadly winter of war.`\
 https://www.nytimes.com/2026/09/23/world/europe/zelensky-speech-russia-war.html
@@ -157,10 +161,6 @@ https://www.nytimes.com/2026/09/23/world/africa/ethiopia-tigray-airport.html
 **Ancient Wall Found in Paris Provides Clues to City’s Origins**\
 `A discovery at a Parisian hospital, on an island in the Seine, has given archaeologists clues about the city as Julius Caesar may have found it.`\
 https://www.nytimes.com/2026/09/23/world/europe/ancient-wall-paris-rome.html
-
-**Tiny Love Stories: ‘I Had a Sex Dream About You’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://www.nytimes.com/2026/09/23/style/tiny-modern-love-stories-i-had-a-sex-dream-about-you.html
 
 **Climate Forward Live Updates: Energy Secretary Dismisses Idea of Diesel Export Ban**\
 `Energy Secretary Chris Wright, speaking at The New York Times’ annual Climate Forward event, dismissed reports that President Trump was preparing to ban U.S. exports of diesel in a bid to lower energy prices.`\
