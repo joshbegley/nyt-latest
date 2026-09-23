@@ -1,4 +1,4 @@
-**Gerard Barron Makes the Case for Mining the Ocean Floor**\
+**Gerard Barron, Metals Company Chief, Makes the Case for Seafloor Mining**\
 `The head of the company hoping to become the first to conduct commercial deep-sea mining said mines on land had a much larger environmental footprint.`\
 https://www.nytimes.com/2026/09/23/climate/gerard-barron-metals-company-ocean-floor-mining.html
 
