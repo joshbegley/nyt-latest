@@ -1,3 +1,11 @@
+**How Trump’s Iran War May Sink Republican Midterm Chances**\
+`How the president might be supercharging what already looked like a blue wave.`\
+https://www.nytimes.com/2026/09/23/opinion/iran-war-midterms-trump-republicans.html
+
+**Where Is the U.S. Beating China on A.I., and Where Is It Lagging?**\
+`As Xi Jinping visits President Trump in Washington, his country lags behind the United States on A.I. development in key areas — but Beijing has advantages elsewhere.`\
+https://www.nytimes.com/2026/09/23/us/politics/ai-us-china-trump-xi-economy.html
+
 **Kennedy Drew $4 Million in Book Advances From Publisher Who Also Monetized MAHA**\
 `A new disclosure also shows $210,000 in consulting fees paid to Cheryl Hines, the health secretary’s wife, by one of several MAHA-affiliated groups capitalizing from his agenda.`\
 https://www.nytimes.com/2026/09/23/us/politics/rfk-jr-book-advances-maha.html

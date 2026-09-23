@@ -1,3 +1,7 @@
+**Bond Yields Soar as Investors Foresee Another Fed Interest Rate Increase**\
+`The 10-year Treasury yield on Wednesday rose to around 5.1 percent, as investors grew more convinced the Fed Reserve will raise interest rates again.`\
+https://www.nytimes.com/2026/09/23/business/bonds-interest-rates.html
+
 **How Trump’s Iran War May Sink Republican Midterm Chances**\
 `How the president might be supercharging what already looked like a blue wave.`\
 https://www.nytimes.com/2026/09/23/opinion/iran-war-midterms-trump-republicans.html
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/09/23/movies/lili-reinhart-interview-the-love-hypot
 **Jane Fonda Hits Both Parties for Inaction on Climate Change**\
 `The longtime activist urged people to vote for leaders who understand the threat a warming planet faces.`\
 https://www.nytimes.com/2026/09/23/climate/jane-fonda-climate-change-politics.html
-
-**Trump Officials May Undo Nursing Home Mandates for Reporting Covid**\
-`The agency led by Dr. Mehmet Oz is proposing an end to weekly tracking of respiratory infections at the facilities where thousands of elderly residents died in the pandemic.`\
-https://www.nytimes.com/2026/09/23/business/covid-nursing-homes-trump.html
 
 **Climate Forward Live Updates: Energy Secretary Dismisses Idea of Diesel Export Ban**\
 `Energy Secretary Chris Wright, speaking at The New York Times’ annual Climate Forward event, dismissed reports that President Trump was preparing to ban U.S. exports of diesel in a bid to lower energy prices.`\
