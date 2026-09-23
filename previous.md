@@ -1,3 +1,19 @@
+**Harvey Weinstein Will Be Sentenced in New York Sex Crime Case**\
+`Prosecutors have asked for a 20-year sentence, but Harvey Weinstein still faces a lawsuit in New York and a resentencing in a separate case in California.`\
+https://www.nytimes.com/2026/09/23/nyregion/nyc-harvey-weinstein-rape-sentencing.html
+
+**Why Some Schools Are Hitting the Brakes on Electric Buses**\
+`The new models can prove expensive and unreliable and lack the range to fully replace older buses, stalling a transition from fossil fuels.`\
+https://www.nytimes.com/2026/09/23/nyregion/electric-school-buses.html
+
+**NYT Spelling Bee Answers for September 23, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/09/23/crosswords/spelling-bee-forum.html
+
+**These New York City Book Crawls Were Made for Walking**\
+`A group of New York Times journalists test-drove routes that wind through shops specializing in comics, drama, fantasy and romance.`\
+https://www.nytimes.com/2026/09/23/insider/bookstores-nyc-manhattan-brooklyn.html
+
 **Youth Frustration and Migration Shadow Morocco’s Election**\
 `Unemployment and poor public services fueled the border crisis at Ceuta and the Gen Z protests, but frustrated young people may stay away from the polls.`\
 https://www.nytimes.com/2026/09/23/world/africa/morocco-election-youth-frustration.html
@@ -169,22 +185,6 @@ https://www.nytimes.com/2026/09/22/business/rosie-odonnell-abc-trump-skit.html
 **UNGA Brings Traffic and a Little Chaos to New York City**\
 `Big names flood New York City each year for the United Nations General Assembly. But that also means traffic (oh, the traffic!), closed streets and a little more chaos than usual.`\
 https://www.nytimes.com/2026/09/22/nyregion/un-general-assembly-traffic-nyc.html
-
-**Hollywood Surrenders to the Ellison Empire**\
-`There’s no sense of triumph or even defeat, merely numb exhaustion.`\
-https://www.nytimes.com/2026/09/22/opinion/culture/paramount-warner-bros-ellison.html
-
-**Federal Judge Orders Texas to Air-Condition Its Prisons**\
-`The lack of air-conditioning in most of the state’s prisons violates the U.S. Constitution, the judge ruled. He ordered the state to cool all of its lockups by the end of 2029.`\
-https://www.nytimes.com/2026/09/22/us/texas-prisons-air-conditioning-ruling.html
-
-**F.B.I. Shut Down Inquiry Into Top Ally of Senator Susan Collins**\
-`The inquiry was closed last year because senior bureau officials questioned the veracity of a campaign donor’s account, according to current and former officials.`\
-https://www.nytimes.com/2026/09/22/us/politics/fbi-susan-collins-donor.html
-
-**Sri Lanka Convicts 15 in Easter 2019 Bomb Attacks**\
-`A court found 15 men guilty of coordinating a series of suicide bombings in hotels and churches, which killed more than 300 people.`\
-https://www.nytimes.com/2026/09/22/world/asia/sri-lanka-convictions-easter-2019-bomb-attacks.html
 
 **U.N. Updates: As Trump Threatens Iran, Other Leaders Warn of Deep Divisions**\
 `President Trump said he must decide whether to make a deal or “annihilate” Iran, in a gathering where world leaders typically focus on declarations of global harmony.`\

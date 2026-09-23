@@ -1,3 +1,19 @@
+**Harvey Weinstein Will Be Sentenced in New York Sex Crime Case**\
+`Prosecutors have asked for a 20-year sentence, but Harvey Weinstein still faces a lawsuit in New York and a resentencing in a separate case in California.`\
+https://www.nytimes.com/2026/09/23/nyregion/nyc-harvey-weinstein-rape-sentencing.html
+
+**Why Some Schools Are Hitting the Brakes on Electric Buses**\
+`The new models can prove expensive and unreliable and lack the range to fully replace older buses, stalling a transition from fossil fuels.`\
+https://www.nytimes.com/2026/09/23/nyregion/electric-school-buses.html
+
+**NYT Spelling Bee Answers for September 23, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/09/23/crosswords/spelling-bee-forum.html
+
+**These New York City Book Crawls Were Made for Walking**\
+`A group of New York Times journalists test-drove routes that wind through shops specializing in comics, drama, fantasy and romance.`\
+https://www.nytimes.com/2026/09/23/insider/bookstores-nyc-manhattan-brooklyn.html
+
 **Youth Frustration and Migration Shadow Morocco’s Election**\
 `Unemployment and poor public services fueled the border crisis at Ceuta and the Gen Z protests, but frustrated young people may stay away from the polls.`\
 https://www.nytimes.com/2026/09/23/world/africa/morocco-election-youth-frustration.html
