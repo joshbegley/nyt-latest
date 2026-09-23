@@ -1,3 +1,7 @@
+**‘Screamplay’: A Hollywood Horror Comedy**\
+`This 1980s black-and-white film by Rufus Butler Seder shows for a week in a new digital restoration at Anthology Film Archives.`\
+https://www.nytimes.com/2026/09/23/movies/screamplay-anthology-film-archives.html
+
 **Trump’s Diesel Dilemma**\
 `Calls to ban U.S. exports of the fuel are dividing Republicans. The energy crisis is also dominating discussions at the United Nations.`\
 https://www.nytimes.com/2026/09/23/business/dealbook/trump-diesel-dilemma.html

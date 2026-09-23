@@ -1,3 +1,7 @@
+**‘Screamplay’: A Hollywood Horror Comedy**\
+`This 1980s black-and-white film by Rufus Butler Seder shows for a week in a new digital restoration at Anthology Film Archives.`\
+https://www.nytimes.com/2026/09/23/movies/screamplay-anthology-film-archives.html
+
 **Trump’s Diesel Dilemma**\
 `Calls to ban U.S. exports of the fuel are dividing Republicans. The energy crisis is also dominating discussions at the United Nations.`\
 https://www.nytimes.com/2026/09/23/business/dealbook/trump-diesel-dilemma.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/23/style/bravo-next-gen-nyc.html
 **At 98, the Composer Thea Musgrave Is Still Learning**\
 `Musgrave, whose 1977 opera “Mary, Queen of Scots” is opening at the San Francisco Opera, has spent a long career searching for the “dramatic abstract.”`\
 https://www.nytimes.com/2026/09/23/arts/music/thea-musgrave-mary-queen-of-scots-san-francisco-opera.html
-
-**Thrilling Mystery Books for Fans of Agatha Christie**\
-`If you’ve devoured all of the Queen of Crime’s whodunits, here are more twisty mysteries that may satisfy your craving.`\
-https://www.nytimes.com/2026/09/23/books/agatha-christie-mystery-books.html
 
