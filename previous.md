@@ -186,7 +186,7 @@ https://www.nytimes.com/2026/09/22/us/politics/fact-check-trump-united-nations.h
 `The company released a cheaper, faster model that it said was the strongest performer on its most rigorous internal safety tests to date.`\
 https://www.nytimes.com/2026/09/22/technology/anthropic-ai-model-safety.html
 
-**U.N. Live Updates: As Trump Threatens Iran, Other Leaders Warn of Deep Divisions**\
+**U.N. Updates: As Trump Threatens Iran, Other Leaders Warn of Deep Divisions**\
 `President Trump said he must decide whether to make a deal or “annihilate” Iran, in a gathering where world leaders typically focus on declarations of global harmony.`\
 https://www.nytimes.com/live/2026/09/22/world/un-general-assembly-trump-speech-news
 
