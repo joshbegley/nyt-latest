@@ -1,3 +1,7 @@
+**Trump Once Vowed to ‘Own’ Greenland. He Settled for Something Much Less.**\
+`President Trump signed a Greenland security deal that falls well short of his demands to turn the island into a U.S. territory.`\
+https://www.nytimes.com/2026/09/22/us/politics/trump-greenland-denmark-agreement.html
+
 **Mamdani Aides Give City Council Little Insight Into Influencer Effort**\
 `At a New York City Council hearing, frustration grew as Mayor Zohran Mamdani’s representatives were unable to answer questions about the mayor’s use of influencers.`\
 https://www.nytimes.com/2026/09/22/nyregion/mamdani-council-influencers-hearing.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/09/22/us/politics/fact-check-trump-united-nations.h
 **Anthropic Releases a New A.I. Model, Opus 5.5, Amid Safety Debate**\
 `The company released a cheaper, faster model that it said was the strongest performer on its most rigorous internal safety tests to date.`\
 https://www.nytimes.com/2026/09/22/technology/anthropic-ai-model-safety.html
-
-**How Paramount Won Warner Bros.**\
-`After months of legal and political wrangling, the media mogul David Ellison arrived at a deal with the coalition of states seeking to block his $111 billion acquisition of Warner Bros. Discovery.`\
-https://www.nytimes.com/2026/09/22/business/paramount-warner-bros-ellison-bonta.html
 
 **U.N. Live Updates: As Trump Threatens Iran, Other Leaders Warn of Deep Divisions**\
 `President Trump said he must decide whether to make a deal or “annihilate” Iran, in a gathering where world leaders typically focus on declarations of global harmony.`\
