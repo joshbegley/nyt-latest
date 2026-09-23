@@ -1,3 +1,15 @@
+**Kennedy Drew $4 Million in Book Advances From Publisher Who Also Monetized MAHA**\
+`A new disclosure also shows $210,000 in consulting fees paid to Cheryl Hines, the health secretary’s wife, by one of several MAHA-affiliated groups capitalizing from his agenda.`\
+https://www.nytimes.com/2026/09/23/us/politics/kennedy-book-advances.html
+
+**Disney’s Fired C.E.O. Bob Chapek Settles Scores With Bob Iger in New Book**\
+`In a new memoir, Bob Chapek publicly addresses his 2022 ouster for the first time. He blames Mr. Iger, who both preceded and succeeded him at Disney.`\
+https://www.nytimes.com/2026/09/23/business/media/disney-bob-chapek-bob-iger.html
+
+**U.N. Live Updates: Zelensky Warns Russian Aggression May Spread Beyond Ukraine**\
+`The Ukrainian president called for new sanctions targeting Russian finances and steps to end the war before it entered another winter. Earlier, President Masoud Pezeshkian of Iran said his country would not be bullied by the United States.`\
+https://www.nytimes.com/live/2026/09/23/world/un-general-assembly-iran-ukraine
+
 **Maps: Tracking a Potential Hurricane Near Hawaii**\
 `See the likely path and wind arrival times for Fifteen-E`\
 https://www.nytimes.com/interactive/2026/09/23/weather/hawaii-storm-map-path.html
