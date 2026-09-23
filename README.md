@@ -1,3 +1,7 @@
+**As Xi Visits Washington, Trump Plays Down China’s Actions Against U.S. Interests**\
+`Despite the rivalry between the United States and China, President Trump has repeatedly found ways to give President Xi Jinping of China a pass, portraying him more as a personal friend than a competitor.`\
+https://www.nytimes.com/2026/09/23/us/politics/as-xi-visits-washington-trump-plays-down-chinas-actions-against-us-interests.html
+
 **Bond Yields Soar as Investors Foresee Another Fed Interest Rate Increase**\
 `The 10-year Treasury yield on Wednesday rose to around 5.1 percent, as investors grew more convinced the Fed Reserve will raise interest rates again.`\
 https://www.nytimes.com/2026/09/23/business/bonds-interest-rates.html
@@ -170,19 +174,11 @@ https://www.nytimes.com/2026/09/23/science/evolution-genetics-bats.html
 `I used to view trees as ecologically angelic beings. No longer.`\
 https://www.nytimes.com/2026/09/23/opinion/wildfires-trees-scientific-animism.html
 
-**Lili Reinhart, of ‘The Love Hypothesis,’ Is Still Figuring It Out**\
-`The “Riverdale” actor reflects on fame, open communication and finding love in real life.`\
-https://www.nytimes.com/2026/09/23/movies/lili-reinhart-interview-the-love-hypothesis.html
-
-**Jane Fonda Hits Both Parties for Inaction on Climate Change**\
-`The longtime activist urged people to vote for leaders who understand the threat a warming planet faces.`\
-https://www.nytimes.com/2026/09/23/climate/jane-fonda-climate-change-politics.html
-
 **Climate Forward Live Updates: Energy Secretary Dismisses Idea of Diesel Export Ban**\
 `Energy Secretary Chris Wright, speaking at The New York Times’ annual Climate Forward event, dismissed reports that President Trump was preparing to ban U.S. exports of diesel in a bid to lower energy prices.`\
 https://www.nytimes.com/live/2026/09/23/climate/climate-forward-conference
 
-**U.N. Live Updates: Zelensky Warns Russian Aggression May Spread Beyond Ukraine**\
-`The Ukrainian president called for new sanctions targeting Russian finances and steps to end the war before it entered another winter. Earlier, President Masoud Pezeshkian of Iran said his country would not be bullied by the United States.`\
+**U.N. Live Updates: Zelensky Warns of Growing Global Cost of Russia’s War in Ukraine**\
+`Ukraine’s president said grain shortages, rising fuel prices and deadlier drone technology showed that the fighting had spilled beyond his country’s borders. He called for an end to the war before winter.`\
 https://www.nytimes.com/live/2026/09/23/world/un-general-assembly-iran-ukraine
 
