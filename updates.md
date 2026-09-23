@@ -1,3 +1,31 @@
+**Walkouts at the U.N. General Assembly Are Somewhat of a Tradition**\
+`As President Masoud Pezeshkian of Iran delivered his speech, the lone U.S. diplomat sitting in the hall left.`\
+https://www.nytimes.com/2026/09/23/world/un-general-assembly-walkout.html
+
+**A.I. Assistant**\
+`Plus, it’s Fat Bear Week.`\
+https://www.nytimes.com/2026/09/23/briefing/ai-assistant.html
+
+**Museum Regrets Hosting 9/11 Event Airing Conspiracy Theories**\
+`As New York commemorated the 25th anniversary of the attacks, El Museo del Barrio rented space to a group skeptical of the explanation of what caused the twin towers to come down.`\
+https://www.nytimes.com/2026/09/23/arts/design/museum-regrets-hosting-9-11-event-airing-conspiracy-theories.html
+
+**New Study Illuminates Bats’ Murky Origins**\
+`The largest analysis of bat genomes and fossils suggests that the first bats emerged in Europe roughly 65 million years ago and that echolocation evolved early.`\
+https://www.nytimes.com/2026/09/23/science/evolution-genetics-bats.html
+
+**Wildfire Converted Me From Tree-Hugger to Tree-Worshipper**\
+`I used to view trees as ecologically angelic beings. No longer.`\
+https://www.nytimes.com/2026/09/23/opinion/wildfires-trees-scientific-animism.html
+
+**Lili Reinhart, of ‘The Love Hypothesis,’ Is Still Figuring It Out**\
+`The “Riverdale” actor reflects on fame, open communication and finding love in real life.`\
+https://www.nytimes.com/2026/09/23/movies/lili-reinhart-interview-the-love-hypothesis.html
+
+**U.N. Live Updates: Iran’s President Accuses U.S. and Israel of Lawless Attacks in a Defiant Address**\
+`Masoud Pezeshkian said Iran was open to diplomacy to end the war but would never accept limits on its civilian nuclear program. He became the first leader to speak to the General Assembly in New York while his country was at war with the United States.`\
+https://www.nytimes.com/live/2026/09/23/world/un-general-assembly-iran-ukraine
+
 **Jane Fonda Hits Both Parties for Inaction on Climate Change**\
 `The longtime activist urged people to vote for leaders who understand the threat a warming planet faces.`\
 https://www.nytimes.com/2026/09/23/climate/jane-fonda-climate-change-politics.html
