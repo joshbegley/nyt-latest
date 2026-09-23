@@ -1,3 +1,11 @@
+**He Changed the World of Organ Transplants. Would He Die Waiting for His Own?**\
+`A New York transplant surgeon’s experience waiting for a heart transplant laid bare the challenges of a system he had spent decades trying to fix.`\
+https://www.nytimes.com/2026/09/23/well/heart-transplant-surgeon-pig-kidney.html
+
+**U.N. Live Updates: Iran’s President Accuses U.S. and Israel of Lawless Attacks**\
+`Masoud Pezeshkian was the first leader whose country is at war with the United States to address the General Assembly in New York. He condemned attacks on civilian targets and said Iran would not accept limits on its nuclear program.`\
+https://www.nytimes.com/live/2026/09/23/world/un-general-assembly-iran-ukraine
+
 **Climate Forward Live Updates: Leaders Confront a Data Center Backlash and Rising Energy Prices**\
 `Jane Fonda is speaking now at The New York Times’ annual Climate Forward event, which will also include interviews with Energy Secretary Chris Wright and industry figures grappling with a consequential moment.`\
 https://www.nytimes.com/live/2026/09/23/climate/climate-forward-conference

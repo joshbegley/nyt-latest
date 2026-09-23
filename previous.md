@@ -1,3 +1,7 @@
+**He Changed the World of Organ Transplants. Would He Die Waiting for His Own?**\
+`A New York transplant surgeon’s experience waiting for a heart transplant laid bare the challenges of a system he had spent decades trying to fix.`\
+https://www.nytimes.com/2026/09/23/well/heart-transplant-surgeon-pig-kidney.html
+
 **Erin Brockovich and Justin Pearson Urge Communities to Act Against Data Centers**\
 `Ms. Brockovich, a longtime activist, and Mr. Pearson, a Tennessee state representative running for Congress, discussed why communities have begun to push back against the sites.`\
 https://www.nytimes.com/2026/09/23/climate/erin-brockovich-pearson-tennessee-ai-data-centers.html
@@ -67,7 +71,7 @@ https://www.nytimes.com/2026/09/23/crosswords/wordle-review-1923.html
 https://www.nytimes.com/2026/09/23/crosswords/strands-sidekick-935.html
 
 **U.N. Live Updates: Iran’s President Accuses U.S. and Israel of Lawless Attacks**\
-`Masoud Pezeshkian is the first leader whose country is at war with the United States to speak to the General Assembly in New York. He decried attacks on civilian targets and said Iran would not accept limits on its nuclear program.`\
+`Masoud Pezeshkian was the first leader whose country is at war with the United States to address the General Assembly in New York. He condemned attacks on civilian targets and said Iran would not accept limits on its nuclear program.`\
 https://www.nytimes.com/live/2026/09/23/world/un-general-assembly-iran-ukraine
 
 **It’s Not the Oscars: U.N. Speakers Love to Ignore Its 15-Minute Rule**\
@@ -185,12 +189,4 @@ https://www.nytimes.com/2026/09/23/arts/music/ensemble-intercontemporain-50th-an
 **Adam Pendleton Is Painting the White Cube Black**\
 `On Oct. 10, the artist’s exhibition, “Some Wild Kind of Language,” opens at the Stedelijk Museum Amsterdam. It will upend expectations.`\
 https://www.nytimes.com/2026/09/23/arts/design/adam-pendleton-amsterdam-artist.html
-
-**One Big Beautiful Bill Is Starting to Bite Before the Election**\
-`The tax cuts in President Trump’s signature achievement were the Republicans’ answer to voters’ economic struggles, but its health care and food assistance cuts are taking a toll.`\
-https://www.nytimes.com/2026/09/23/us/politics/one-big-beautiful-bill-midterms-affordability.html
-
-**New Matrix, Meet the Old Matrix**\
-`The railroads were once the octopus that A.I. is now.`\
-https://www.nytimes.com/2026/09/23/opinion/ai-politics-railroads-history.html
 
