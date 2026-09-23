@@ -1,3 +1,7 @@
+**Taylor Swift Announces Extended Version of ‘The Life of a Showgirl’**\
+`“The Life of a Showgirl: The Encore,” featuring four new songs, will release on Friday.`\
+https://www.nytimes.com/2026/09/23/arts/music/taylor-swift-life-of-a-showgirl-encore.html
+
 **Myanmar Has an Envoy at the United Nations. Why Is He Not Speaking?**\
 `U Kyaw Moe Tun has kept a low profile at the General Assembly for years, part of an arrangement to keep his post despite the military-backed government’s efforts to remove him.`\
 https://www.nytimes.com/2026/09/23/world/asia/unga-myanmar-united-nations-ambassador.html
