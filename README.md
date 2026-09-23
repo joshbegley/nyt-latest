@@ -107,7 +107,7 @@ https://www.nytimes.com/live/2026/09/23/us/trump-xi
 https://www.nytimes.com/2026/09/23/world/trump-xi-ai-meeting-iran-un.html
 
 **Judge Holds Off on Immediate Ruling on White House’s Media Ban**\
-`Judge Timothy J. Kelly heard arguments about President Trump’s decision to bar CNN, MS NOW and Politico from the White House grounds. He said he would rule “as soon as possible.”`\
+`Judge Timothy J. Kelly heard arguments about President Trump’s recent decision to bar CNN, MS NOW and Politico from the White House grounds. He said he would issue a decision about it “as soon as possible.”`\
 https://www.nytimes.com/2026/09/23/business/media/cnn-ms-now-politico-white-house-ban-ruling.html
 
 **Trump and Xi Face the A.I. Race**\

@@ -1,3 +1,11 @@
+**New Details Emerge About ICE Officer Who Shot Man in Austin**\
+`The officer was hired last year and was not wearing a body camera when he shot the delivery driver, according to current and former officials.`\
+https://www.nytimes.com/2026/09/23/us/ice-officer-texas-shooting.html
+
+**U.N. Live Updates: Zelensky Warns of Growing Global Cost of Russia’s War in Ukraine**\
+`Ukraine’s president said rising fuel prices and deadlier drone technology showed that the fighting have spilled beyond his country’s borders. He called for steps to end to the war before winter.`\
+https://www.nytimes.com/live/2026/09/23/world/un-general-assembly-iran-ukraine
+
 **Carney Says Risk of an A.I. Catastrophe Is ‘Above Zero’**\
 `In contrast to President Trump’s calls for an unfettered A.I. industry, Prime Minister Mark Carney of Canada called for international coordination on regulations.`\
 https://www.nytimes.com/2026/09/23/world/canada/carney-ai-risk.html

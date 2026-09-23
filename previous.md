@@ -1,3 +1,7 @@
+**New Details Emerge About ICE Officer Who Shot Man in Austin**\
+`The officer was hired last year and was not wearing a body camera when he shot the delivery driver, according to current and former officials.`\
+https://www.nytimes.com/2026/09/23/us/ice-officer-texas-shooting.html
+
 **Carney Says Risk of an A.I. Catastrophe Is ‘Above Zero’**\
 `In contrast to President Trump’s calls for an unfettered A.I. industry, Prime Minister Mark Carney of Canada called for international coordination on regulations.`\
 https://www.nytimes.com/2026/09/23/world/canada/carney-ai-risk.html
@@ -178,10 +182,6 @@ https://www.nytimes.com/2026/09/23/us/politics/polls-us-china-trump-xi.html
 `Chris Wright also doubled down on his criticism of renewable energy sources like solar power.`\
 https://www.nytimes.com/2026/09/23/climate/chris-wright-trump-energy-secretary-fracking.html
 
-**The Good List: 6 Things to Add Some Delight to Your Day**\
-`Traffic music, virtual firewood and ‘it’s lighter than you think.’`\
-https://www.nytimes.com/2026/09/23/briefing/23-the-good-list-fat-bear.html
-
 **Judge Appears Skeptical of Trump’s Ban on 3 Media Outlets**\
 `CNN, MS NOW and Politico argued in court that the president’s effort to block them from the White House complex violated their First Amendment rights. The judge promised to rule soon.`\
 https://www.nytimes.com/live/2026/09/23/business/trump-cnn-politico-msnow-ban-hearing
@@ -191,6 +191,6 @@ https://www.nytimes.com/live/2026/09/23/business/trump-cnn-politico-msnow-ban-he
 https://www.nytimes.com/live/2026/09/23/climate/climate-forward-conference
 
 **U.N. Live Updates: Zelensky Warns of Growing Global Cost of Russia’s War in Ukraine**\
-`Ukraine’s president said rising fuel prices and deadlier drone technology showed that years of fighting have spilled beyond his country’s borders. Venezuela’s leader, Delcy Rodríguez, is making her comments to world leaders now.`\
+`Ukraine’s president said rising fuel prices and deadlier drone technology showed that the fighting have spilled beyond his country’s borders. He called for steps to end to the war before winter.`\
 https://www.nytimes.com/live/2026/09/23/world/un-general-assembly-iran-ukraine
 
