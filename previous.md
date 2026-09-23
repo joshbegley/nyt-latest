@@ -43,7 +43,7 @@ https://www.nytimes.com/2026/09/23/crosswords/wordle-review-1923.html
 https://www.nytimes.com/2026/09/23/crosswords/strands-sidekick-935.html
 
 **U.N. Live Updates: Iran’s President to Address World Leaders After Trump Threat**\
-`Masoud Pezeshkian is the first leader whose country is at war with the United States to travel to New York to address the General Assembly. President Trump said he faced a choice over whether to “annihilate” the Islamic republic.`\
+`Masoud Pezeshkian is the first leader whose country is at war with the United States to travel to New York to address the General Assembly. President Trump said he faced a choice over whether to “annihilate” the Islamic Republic.`\
 https://www.nytimes.com/live/2026/09/23/world/un-general-assembly-iran-ukraine
 
 **It’s Not the Oscars: U.N. Speakers Love to Ignore Its 15-Minute Rule**\
@@ -54,7 +54,7 @@ https://www.nytimes.com/2026/09/23/world/un-speeches-15-minutes.html
 `An already busy Pacific hurricane season got a lot busier this week.`\
 https://www.nytimes.com/2026/09/23/weather/pacific-hurricanes-hawaii-polo.html
 
-**Kennedy’s Anti-Vaccine Legacy Will Outlast This Administration**\
+**Kennedy Keeps Finding New Ways to Undermine Trust in Vaccines**\
 `Four are dead in Pennsylvania’s measles outbreak. But the C.D.C. isn’t yet convinced.`\
 https://www.nytimes.com/2026/09/23/opinion/kennedy-measles-deaths-pennsylvania.html
 

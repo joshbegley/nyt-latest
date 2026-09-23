@@ -1,3 +1,11 @@
+**U.N. Live Updates: Iran’s President to Address World Leaders After Trump Threat**\
+`Masoud Pezeshkian is the first leader whose country is at war with the United States to travel to New York to address the General Assembly. President Trump said he faced a choice over whether to “annihilate” the Islamic Republic.`\
+https://www.nytimes.com/live/2026/09/23/world/un-general-assembly-iran-ukraine
+
+**Kennedy Keeps Finding New Ways to Undermine Trust in Vaccines**\
+`Four are dead in Pennsylvania’s measles outbreak. But the C.D.C. isn’t yet convinced.`\
+https://www.nytimes.com/2026/09/23/opinion/kennedy-measles-deaths-pennsylvania.html
+
 **Climate Forward Live Updates: Leaders Confront a Data Center Backlash and Rising Energy Prices**\
 `The New York Times’ annual Climate Forward event will include interviews with Energy Secretary Chris Wright, Jane Fonda and industry figures grappling with a consequential moment.`\
 https://www.nytimes.com/live/2026/09/23/climate/climate-forward-conference
