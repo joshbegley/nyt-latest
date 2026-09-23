@@ -1,3 +1,7 @@
+**Hurricane Polo Intensifies Off Mexico’s West Coast**\
+`Hurricane Polo rapidly intensified into a Category 5 dynamo in less than a day, prompting the Mexican authorities to issue storm warnings. It is not expected to make landfall, according to officials.`\
+https://www.nytimes.com/video/world/americas/100000011169375/hurricane-polo-mexico.html
+
 **U.S. Rebukes Australia Over Proposed Limits on Social Media Algorithms**\
 `The U.S. Embassy said a draft law allowing users to opt out of systems that choose what they can see in their feeds could amount to censorship.`\
 https://www.nytimes.com/2026/09/23/world/australia/us-australia-social-media-algorithms.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/09/22/dining/restaurant-review-cafe-bar-jf-nyc.html
 **At U.N., Trump Says He Will Strike a Deal With Iran or ‘Annihilate’ It**\
 `President Trump’s statement to the U.N. General Assembly that he could “drive them into hell with no chance of survival” was a jarring departure in a forum devoted to world peace.`\
 https://www.nytimes.com/2026/09/22/world/americas/trump-annihilate-iran-unga.html
-
-**Ethiopian Rebel Groups Join Forces Against the Government**\
-`Half a dozen groups, accusing the prime minister of being dictatorial, announced the formation of a coalition in a country already scarred by war.`\
-https://www.nytimes.com/2026/09/22/world/africa/ethiopia-rebel-alliance.html
 
 **U.N. Updates: As Trump Threatens Iran, Other Leaders Warn of Deep Divisions**\
 `President Trump said he must decide whether to make a deal or “annihilate” Iran, in a gathering where world leaders typically focus on declarations of global harmony.`\
