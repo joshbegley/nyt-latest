@@ -1,3 +1,7 @@
+**Police Step Up U.N. Security After 3 People Emerge From Manhole**\
+`The latest sighting of people going in or out of the sewer system occurred on the Upper East Side, where many leaders and diplomats are staying during the United Nations General Assembly.`\
+https://www.nytimes.com/2026/09/23/nyregion/un-general-assembly-security-sewers.html
+
 **As Xi Visits Washington, Trump Plays Down China’s Actions Against U.S. Interests**\
 `Despite the rivalry between the United States and China, President Trump has repeatedly found ways to give President Xi Jinping of China a pass, portraying him more as a personal friend than a competitor.`\
 https://www.nytimes.com/2026/09/23/us/politics/as-xi-visits-washington-trump-plays-down-chinas-actions-against-us-interests.html
@@ -169,10 +173,6 @@ https://www.nytimes.com/2026/09/23/arts/design/el-museo-del-barrio-9-11-conspira
 **New Study Illuminates Bats’ Murky Origins**\
 `The largest analysis of bat genomes and fossils suggests that the first bats emerged in Europe roughly 65 million years ago and that echolocation evolved early.`\
 https://www.nytimes.com/2026/09/23/science/evolution-genetics-bats.html
-
-**Wildfire Converted Me From Tree-Hugger to Tree-Worshipper**\
-`I used to view trees as ecologically angelic beings. No longer.`\
-https://www.nytimes.com/2026/09/23/opinion/wildfires-trees-scientific-animism.html
 
 **Climate Forward Live Updates: Energy Secretary Dismisses Idea of Diesel Export Ban**\
 `Energy Secretary Chris Wright, speaking at The New York Times’ annual Climate Forward event, dismissed reports that President Trump was preparing to ban U.S. exports of diesel in a bid to lower energy prices.`\

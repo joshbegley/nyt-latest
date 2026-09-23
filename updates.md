@@ -1,3 +1,15 @@
+**As Xi Visits Washington, Trump Plays Down China’s Actions Against U.S. Interests**\
+`Despite the rivalry between the United States and China, President Trump has repeatedly found ways to give President Xi Jinping of China a pass, portraying him more as a personal friend than a competitor.`\
+https://www.nytimes.com/2026/09/23/us/politics/as-xi-visits-washington-trump-plays-down-chinas-actions-against-us-interests.html
+
+**Bond Yields Soar as Investors Foresee Another Fed Interest Rate Increase**\
+`The 10-year Treasury yield on Wednesday rose to around 5.1 percent, as investors grew more convinced the Fed Reserve will raise interest rates again.`\
+https://www.nytimes.com/2026/09/23/business/bonds-interest-rates.html
+
+**U.N. Live Updates: Zelensky Warns of Growing Global Cost of Russia’s War in Ukraine**\
+`Ukraine’s president said grain shortages, rising fuel prices and deadlier drone technology showed that the fighting had spilled beyond his country’s borders. He called for an end to the war before winter.`\
+https://www.nytimes.com/live/2026/09/23/world/un-general-assembly-iran-ukraine
+
 **How Trump’s Iran War May Sink Republican Midterm Chances**\
 `How the president might be supercharging what already looked like a blue wave.`\
 https://www.nytimes.com/2026/09/23/opinion/iran-war-midterms-trump-republicans.html
