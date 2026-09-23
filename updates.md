@@ -1,3 +1,15 @@
+**Tropical Storm Nolo Forms Near Hawaii**\
+`Nolo, still a tropical storm for now, formed on Wednesday south of the state.`\
+https://www.nytimes.com/2026/09/23/weather/tropical-storm-nolo-hurricane-hawaii.html
+
+**Xi’s Visit Will Fuel More Scrutiny Over His Health**\
+`Discussion about the Chinese leader’s health is heavily censored in China even as the 73-year-old is expected to remain in power.`\
+https://www.nytimes.com/2026/09/23/us/politics/china-xi-health.html
+
+**After Warm Meeting With Trump, Venezuela’s Leader Is Set to Address U.N.**\
+`She will be the first head of state from her country in eight years to make a speech to the body in person, and she is likely to sound radically different from her recent predecessors.`\
+https://www.nytimes.com/2026/09/23/world/americas/trump-venezuela-delcy-rodriguez.html
+
 **Trump’s Board of Peace Lays Out 6-Month Plan for Gaza That Faces Roadblocks**\
 `The board briefed donors on the sidelines of the U.N. General Assembly, where some world leaders have criticized Israel’s continued attacks and restrictions on humanitarian access in the Palestinian enclave.`\
 https://www.nytimes.com/2026/09/23/world/board-of-peace-gaza-6-month-plan.html

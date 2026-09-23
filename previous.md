@@ -1,3 +1,15 @@
+**Tropical Storm Nolo Forms Near Hawaii**\
+`Nolo, still a tropical storm for now, formed on Wednesday south of the state.`\
+https://www.nytimes.com/2026/09/23/weather/tropical-storm-nolo-hurricane-hawaii.html
+
+**Xi’s Visit Will Fuel More Scrutiny Over His Health**\
+`Discussion about the Chinese leader’s health is heavily censored in China even as the 73-year-old is expected to remain in power.`\
+https://www.nytimes.com/2026/09/23/us/politics/china-xi-health.html
+
+**After Warm Meeting With Trump, Venezuela’s Leader Is Set to Address U.N.**\
+`She will be the first head of state from her country in eight years to make a speech to the body in person, and she is likely to sound radically different from her recent predecessors.`\
+https://www.nytimes.com/2026/09/23/world/americas/trump-venezuela-delcy-rodriguez.html
+
 **Trump’s Board of Peace Lays Out 6-Month Plan for Gaza That Faces Roadblocks**\
 `The board briefed donors on the sidelines of the U.N. General Assembly, where some world leaders have criticized Israel’s continued attacks and restrictions on humanitarian access in the Palestinian enclave.`\
 https://www.nytimes.com/2026/09/23/world/board-of-peace-gaza-6-month-plan.html
@@ -153,18 +165,6 @@ https://www.nytimes.com/interactive/2026/09/23/weather/hawaii-storm-map-path.htm
 **Live Updates: Judge Appears Skeptical of Trump’s Ban on 3 Media Outlets**\
 `CNN, MS NOW and Politico argued in court that the president’s effort to block them from the White House complex violated their First Amendment rights. The judge promised to rule soon.`\
 https://www.nytimes.com/live/2026/09/23/business/trump-cnn-politico-msnow-ban-hearing
-
-**A Powerful Nor’easter Is Taking Shape. How It Could Affect Your Forecast.**\
-`The forecast for this weekend became a lot clearer on Wednesday, but meteorologists warned that the storm’s exact path was still uncertain.`\
-https://www.nytimes.com/2026/09/23/weather/noreaster-storm-new-york-boston-rain.html
-
-**How to Really Listen, According to Someone Who Has Been Doing It for Decades**\
-`Carol Gilligan’s groundbreaking feminist book “In a Different Voice” is more than 40 years old. She wishes it weren’t still so relevant.`\
-https://www.nytimes.com/2026/09/23/style/carol-gilligan-novel-listening.html
-
-**Iran Will Not Be Bullied, President Masoud Pezeshkian Says in U.N. Speech**\
-`President Masoud Pezeshkian said his country would not give up its civilian nuclear program, but left the door opened for diplomacy with the United States.`\
-https://www.nytimes.com/2026/09/23/world/middleeast/iran-president-un-speech.html
 
 **Climate Forward Highlights: Energy Secretary Dismisses Idea of Diesel Export Ban**\
 `Energy Secretary Chris Wright, speaking at The New York Times’ annual Climate Forward event, dismissed reports that President Trump was preparing to ban U.S. exports of diesel in a bid to lower energy prices.`\
