@@ -1,3 +1,35 @@
+**Iced Einspänner**\
+`Einspänner, in German, is either a one-horse carriage or a hot espresso topped with cool whipped cream. It’s sweet, bitter and a little savory all at once, like a tiramisù in beverage form.`\
+https://www.nytimes.com/video/dining/100000011170828/iced-einspanner.html
+
+**Cottage Cheese Pancakes**\
+`When done properly, these protein-packed cottage cheese pancakes are worth the hype.`\
+https://www.nytimes.com/video/dining/100000011170482/cottage-cheese-pancakes.html
+
+**Big Jam Danish**\
+`With only six ingredients, this recipe promises a delicate, show-stopping centerpiece: an oversized jam and cheese Danish to slice, serve and enjoy with your guests.`\
+https://www.nytimes.com/video/dining/100000011168755/big-jam-danish.html
+
+**Chickpea Salad With Fresh Herbs and Scallions**\
+`A lighter, easier take on classic American potato salad, this version uses canned chickpeas in place of potatoes and favors Greek yogurt over mayonnaise.`\
+https://www.nytimes.com/video/dining/100000011168672/chickpea-salad-with-fresh-herbs-and-scallions.html
+
+**Michigan Governor Orders Inquiry After ICE Pursuit Ends in Fatal Crash**\
+`A Guatemalan immigrant died after being chased by agents in Grand Rapids, the latest death stemming from immigration enforcement around the country.`\
+https://www.nytimes.com/2026/09/23/us/grand-rapids-michigan-ice-car-crash.html
+
+**Hayden Panettiere Was Found Surrounded by Drugs, Report Details**\
+`The actress had completed a stint in rehab before she died last month from an overdose, the coroner’s office said. Her death was ruled an accident.`\
+https://www.nytimes.com/2026/09/23/arts/television/hayden-panettiere-death-cause-fentanyl-overdose.html
+
+**Paul LePage, a Trump Ally, Says a Family Member Is Being Deported**\
+`The former Maine governor, a Republican running for Congress, said the Trump administration is seeking to wrongly deport his son’s father-in-law, who has a work permit.`\
+https://www.nytimes.com/2026/09/23/us/politics/paul-lepage-maine-ice-family-member-deported.html
+
+**Live Updates: Judge Considers Whether Trump Can Ban Media Outlets Whose Coverage He Dislikes**\
+`CNN, MS NOW and Politico sued to stop President Trump’s attempt to block their access to the White House. The judge will rule at a later date.`\
+https://www.nytimes.com/live/2026/09/23/business/trump-cnn-politico-msnow-ban-hearing
+
 **Iran’s President Accuses U.S., Israel of Lawless Attacks at U.N.**\
 `President Masoud Pezeshkian of Iran accused the United States and Israel of lawless attacks at the United Nations General Assembly in New York City on Wednesday.`\
 https://www.nytimes.com/video/world/100000011170066/iran-president-un-general-assembly-speech.html

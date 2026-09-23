@@ -1,3 +1,31 @@
+**Iced Einspänner**\
+`Einspänner, in German, is either a one-horse carriage or a hot espresso topped with cool whipped cream. It’s sweet, bitter and a little savory all at once, like a tiramisù in beverage form.`\
+https://www.nytimes.com/video/dining/100000011170828/iced-einspanner.html
+
+**Cottage Cheese Pancakes**\
+`When done properly, these protein-packed cottage cheese pancakes are worth the hype.`\
+https://www.nytimes.com/video/dining/100000011170482/cottage-cheese-pancakes.html
+
+**Big Jam Danish**\
+`With only six ingredients, this recipe promises a delicate, show-stopping centerpiece: an oversized jam and cheese Danish to slice, serve and enjoy with your guests.`\
+https://www.nytimes.com/video/dining/100000011168755/big-jam-danish.html
+
+**Chickpea Salad With Fresh Herbs and Scallions**\
+`A lighter, easier take on classic American potato salad, this version uses canned chickpeas in place of potatoes and favors Greek yogurt over mayonnaise.`\
+https://www.nytimes.com/video/dining/100000011168672/chickpea-salad-with-fresh-herbs-and-scallions.html
+
+**Michigan Governor Orders Inquiry After ICE Pursuit Ends in Fatal Crash**\
+`A Guatemalan immigrant died after being chased by agents in Grand Rapids, the latest death stemming from immigration enforcement around the country.`\
+https://www.nytimes.com/2026/09/23/us/grand-rapids-michigan-ice-car-crash.html
+
+**Hayden Panettiere Was Found Surrounded by Drugs, Report Details**\
+`The actress had completed a stint in rehab before she died last month from an overdose, the coroner’s office said. Her death was ruled an accident.`\
+https://www.nytimes.com/2026/09/23/arts/television/hayden-panettiere-death-cause-fentanyl-overdose.html
+
+**Paul LePage, a Trump Ally, Says a Family Member Is Being Deported**\
+`The former Maine governor, a Republican running for Congress, said the Trump administration is seeking to wrongly deport his son’s father-in-law, who has a work permit.`\
+https://www.nytimes.com/2026/09/23/us/politics/paul-lepage-maine-ice-family-member-deported.html
+
 **Iran’s President Accuses U.S., Israel of Lawless Attacks at U.N.**\
 `President Masoud Pezeshkian of Iran accused the United States and Israel of lawless attacks at the United Nations General Assembly in New York City on Wednesday.`\
 https://www.nytimes.com/video/world/100000011170066/iran-president-un-general-assembly-speech.html
@@ -79,7 +107,7 @@ https://www.nytimes.com/2026/09/23/business/media/disney-bob-chapek-bob-iger.htm
 https://www.nytimes.com/interactive/2026/09/23/weather/hawaii-storm-map-path.html
 
 **Live Updates: Judge Considers Whether Trump Can Ban Media Outlets Whose Coverage He Dislikes**\
-`CNN, MS NOW and Politico are challenging President Trump’s attempt to block their access to the White House, saying it violates the First Amendment. The administration has argued that such access is not a right.`\
+`CNN, MS NOW and Politico sued to stop President Trump’s attempt to block their access to the White House. The judge will rule at a later date.`\
 https://www.nytimes.com/live/2026/09/23/business/trump-cnn-politico-msnow-ban-hearing
 
 **A Powerful Nor’easter Is Taking Shape. How It Could Affect Your Forecast.**\
@@ -137,38 +165,6 @@ https://www.nytimes.com/2026/09/23/us/politics/fbi-hack-shinyhunters-data.html
 **A Triumphant Baritone in a Dystopian ‘Macbeth’ Opens the Met Opera Season**\
 `Quinn Kelsey commandingly charts each step in Macbeth’s decline in Louisa Proske’s postapocalyptic setting of Verdi’s opera, which opened the Metropolitan Opera’s season.`\
 https://www.nytimes.com/2026/09/23/arts/music/macbeth-review-met-opera-nyc.html
-
-**ICE Mistakenly Detains U.S. Citizen in Chicago Area, Leaving Him Injured**\
-`The Department of Homeland Security said agents released the man after he identified himself. He was taken to the hospital on Sunday with head and neck injuries, local police said.`\
-https://www.nytimes.com/2026/09/23/us/ice-us-citizen-detained-evanston-chicago.html
-
-**Rain Could Be Intense This Fall. Here’s How to Help Your Garden Cope.**\
-`With these tactics, bursts of heavy rain can become an asset rather than a liability.`\
-https://www.nytimes.com/2026/09/23/realestate/el-nino-rain-gardening.html
-
-**5 Must-See Off Broadway Shows, New and Remounted**\
-`Our critics recommend Molière in the Park’s “Don Juan,” “Beyond the Stardust,” “The Hope Theory,” “Pre-Existing Condition” and more.`\
-https://www.nytimes.com/2026/09/23/theater/off-broadway-theater-shows-don-juan-hope-theory.html
-
-**6-Year-Old Girl in China Sets a Rubik’s Cube Record**\
-`Lian Yunzhi of China solved a Rubik’s Cube five times in an average of 4.27 seconds, setting a women’s world record.`\
-https://www.nytimes.com/2026/09/23/world/asia/rubiks-cube-record-lian-yunzhi.html
-
-**Met Opera’s New Season Opens With Verdi’s ‘Macbeth’**\
-`Luminaries gathered to celebrate the Metropolitan Opera’s new season, which opened with Verdi’s “Macbeth.”`\
-https://www.nytimes.com/2026/09/23/style/met-opera-opening-night-macbeth.html
-
-**When the Jacket Is the Whole Outfit**\
-`Making a meal of outerwear.`\
-https://www.nytimes.com/2026/09/23/style/london-fashion-week-street-style.html
-
-**The Lucas Museum’s Architect Wants to Help You Escape From Reality**\
-`Ma Yansong, China’s reigning starchitect, lets his buildings wrapped in nature do the shouting.`\
-https://www.nytimes.com/2026/09/23/arts/design/lucas-museum-architect-ma-yansong-mad.html
-
-**My Uncle May Have a Son He Won’t Acknowledge. What Do I Owe My (Maybe) Cousin?**\
-`I feel very sad for this man trying to find his father.`\
-https://www.nytimes.com/2026/09/23/magazine/uncle-son-cousin-ethics.html
 
 **Climate Forward Live Updates: Energy Secretary Dismisses Idea of Diesel Export Ban**\
 `Energy Secretary Chris Wright, speaking at The New York Times’ annual Climate Forward event, dismissed reports that President Trump was preparing to ban U.S. exports of diesel in a bid to lower energy prices.`\

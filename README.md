@@ -1,3 +1,7 @@
+**U.S. Energy Secretary Defends War on Iran Despite Increased Fuel Costs**\
+`U.S. Energy Secretary Chris Wright defended the country’s war on Iran despite increased fuel costs and political ramifications.`\
+https://www.nytimes.com/video/climate/100000011171022/energy-secretary-defends-iran-war.html
+
 **Iced Einspänner**\
 `Einspänner, in German, is either a one-horse carriage or a hot espresso topped with cool whipped cream. It’s sweet, bitter and a little savory all at once, like a tiramisù in beverage form.`\
 https://www.nytimes.com/video/dining/100000011170828/iced-einspanner.html
@@ -161,10 +165,6 @@ https://www.nytimes.com/2026/09/23/world/asia/india-election-commission-voter-ro
 **Hackers Say They Stole Thousands of Sensitive F.B.I. Personnel Records**\
 `The compromise, if confirmed, would be the latest in a string of cybersecurity failures at the F.B.I., which said it was investigating the matter.`\
 https://www.nytimes.com/2026/09/23/us/politics/fbi-hack-shinyhunters-data.html
-
-**A Triumphant Baritone in a Dystopian ‘Macbeth’ Opens the Met Opera Season**\
-`Quinn Kelsey commandingly charts each step in Macbeth’s decline in Louisa Proske’s postapocalyptic setting of Verdi’s opera, which opened the Metropolitan Opera’s season.`\
-https://www.nytimes.com/2026/09/23/arts/music/macbeth-review-met-opera-nyc.html
 
 **Climate Forward Live Updates: Energy Secretary Dismisses Idea of Diesel Export Ban**\
 `Energy Secretary Chris Wright, speaking at The New York Times’ annual Climate Forward event, dismissed reports that President Trump was preparing to ban U.S. exports of diesel in a bid to lower energy prices.`\
