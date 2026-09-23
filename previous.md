@@ -1,3 +1,7 @@
+**Youth Frustration and Migration Shadow Morocco’s Election**\
+`Unemployment and poor public services fueled the border crisis at Ceuta and the Gen Z protests, but frustrated young people may stay away from the polls.`\
+https://www.nytimes.com/2026/09/23/world/africa/morocco-election-youth-frustration.html
+
 **Seth Meyers Prefers Trump Without Audio**\
 `“We don’t need to hear what he’s saying,” Meyers said after the president’s first event without the White House press pool. “He’s either bragging or lying, let’s just lose the sound.”`\
 https://www.nytimes.com/2026/09/23/arts/television/seth-meyers-trump-press-pool.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/09/22/us/politics/fbi-susan-collins-donor.html
 **Sri Lanka Convicts 15 in Easter 2019 Bomb Attacks**\
 `A court found 15 men guilty of coordinating a series of suicide bombings in hotels and churches, which killed more than 300 people.`\
 https://www.nytimes.com/2026/09/22/world/asia/sri-lanka-convictions-easter-2019-bomb-attacks.html
-
-**Federal Judge Sets Hearing for Venezuelan Man Shot by ICE in Austin**\
-`The immigrant remains in federal custody after a second hospital visit, with a bullet still lodged near his neck, his lawyer said. Immigration officials contested his assertion that he has been denied medical care.`\
-https://www.nytimes.com/2026/09/22/us/venezuelan-shot-austin-judge-order-deport.html
 
 **U.N. Updates: As Trump Threatens Iran, Other Leaders Warn of Deep Divisions**\
 `President Trump said he must decide whether to make a deal or “annihilate” Iran, in a gathering where world leaders typically focus on declarations of global harmony.`\

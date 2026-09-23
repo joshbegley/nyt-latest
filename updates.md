@@ -1,3 +1,7 @@
+**Youth Frustration and Migration Shadow Morocco’s Election**\
+`Unemployment and poor public services fueled the border crisis at Ceuta and the Gen Z protests, but frustrated young people may stay away from the polls.`\
+https://www.nytimes.com/2026/09/23/world/africa/morocco-election-youth-frustration.html
+
 **Seth Meyers Prefers Trump Without Audio**\
 `“We don’t need to hear what he’s saying,” Meyers said after the president’s first event without the White House press pool. “He’s either bragging or lying, let’s just lose the sound.”`\
 https://www.nytimes.com/2026/09/23/arts/television/seth-meyers-trump-press-pool.html
