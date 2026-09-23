@@ -1,3 +1,11 @@
+**Blocking Windmills? Banning Press? Building an Arch? Trump Cites National Security.**\
+`The president is increasingly invoking the rationale while facing legal challenges to his plans, even in more curious cases like his triumphal arch, which he says will now include snipers and drones.`\
+https://www.nytimes.com/2026/09/22/us/politics/trump-arch-national-security.html
+
+**At U.N., Carney Lays Out a Broad Plan for a Divided World**\
+`Mark Carney, the Canadian prime minister, said the world is now at a point ‘that comes once or twice a century.’`\
+https://www.nytimes.com/2026/09/22/world/canada/carney-united-nations-general-assembly.html
+
 **As Trump Lobs Threats, Other World Leaders Mostly Avoid Talk of Iran**\
 `Some leaders criticized the global impact of the war and called for negotiations to resume, but they stopped short of criticizing President Trump’s remarks.`\
 https://www.nytimes.com/2026/09/22/world/trump-threats-world-leaders-iran-war.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/09/22/business/paramount-warner-bros-ellison-bonta.
 **Netanyahu Falsely Accuses Mamdani of Supporting Hamas After Mayor’s CNN Interview**\
 `The Israeli prime minister falsely accused Mayor Zohran Mamdani of supporting Hamas after CNN interview clips showed Mr. Mamdani again calling Mr. Netanyahu a war criminal.`\
 https://www.nytimes.com/2026/09/22/nyregion/netanyahu-mamdani-attack-hamas-cnn.html
-
-**Many Americans Use GLP-1 Drugs Without a Medical Reason, Study Shows**\
-`A new study identified more than 1 million people taking weight-loss drugs without any apparent medical reason to do so.`\
-https://www.nytimes.com/2026/09/22/well/ozempic-glp1-medical-reason.html
-
-**Ella Langley’s ‘Choosin’ Texas’ Topples Mariah Carey’s Chart Record**\
-`The country ballad holds the No. 1 spot on the Billboard chart for a 23rd nonconsecutive week, besting the record set by “All I Want for Christmas Is You.”`\
-https://www.nytimes.com/2026/09/22/arts/music/ella-langley-choosin-texas-chart-record.html
 
 **U.N. Live Updates: As Trump Threatens Iran, Other Leaders Warn of Deep Divisions**\
 `President Trump said he must decide whether to make a deal or “annihilate” Iran, in a gathering where world leaders typically focus on declarations of global harmony.`\
