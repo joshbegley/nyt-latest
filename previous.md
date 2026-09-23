@@ -14,8 +14,8 @@ https://www.nytimes.com/2026/09/23/world/americas/trump-venezuela-delcy-rodrigue
 `The board briefed donors on the sidelines of the U.N. General Assembly, where some world leaders have criticized Israel’s continued attacks and restrictions on humanitarian access in the Palestinian enclave.`\
 https://www.nytimes.com/2026/09/23/world/board-of-peace-gaza-6-month-plan.html
 
-**Major TV Networks Won’t Film Xi’s Arrival**\
-`The White House TV pool has suspended its coverage of President Trump since he banned CNN, MS NOW and Politico from the White House. The suspension was not expected to change before the China leader’s arrival on Wednesday.`\
+**ABC, CBS and More TV Networks Won’t Film Xi’s Arrival Amid Trump’s Press Ban**\
+`The White House TV pool has suspended its coverage of President Trump since he banned CNN, MS NOW and Politico from the White House. The suspension was not expected to change before the arrival of China’s leader on Wednesday.`\
 https://www.nytimes.com/2026/09/23/business/media/tv-networks-xi-arrival.html
 
 **Could Hurricane Polo Bring Rain to Southern California? Probably Not.**\
@@ -162,7 +162,7 @@ https://www.nytimes.com/2026/09/23/business/media/disney-bob-chapek-bob-iger.htm
 `See the likely path and wind arrival times for Nolo`\
 https://www.nytimes.com/interactive/2026/09/23/weather/hawaii-storm-map-path.html
 
-**Live Updates: Judge Appears Skeptical of Trump’s Ban on 3 Media Outlets**\
+**Judge Appears Skeptical of Trump’s Ban on 3 Media Outlets**\
 `CNN, MS NOW and Politico argued in court that the president’s effort to block them from the White House complex violated their First Amendment rights. The judge promised to rule soon.`\
 https://www.nytimes.com/live/2026/09/23/business/trump-cnn-politico-msnow-ban-hearing
 

@@ -1,3 +1,11 @@
+**ABC, CBS and More TV Networks Won’t Film Xi’s Arrival Amid Trump’s Press Ban**\
+`The White House TV pool has suspended its coverage of President Trump since he banned CNN, MS NOW and Politico from the White House. The suspension was not expected to change before the arrival of China’s leader on Wednesday.`\
+https://www.nytimes.com/2026/09/23/business/media/tv-networks-xi-arrival.html
+
+**Judge Appears Skeptical of Trump’s Ban on 3 Media Outlets**\
+`CNN, MS NOW and Politico argued in court that the president’s effort to block them from the White House complex violated their First Amendment rights. The judge promised to rule soon.`\
+https://www.nytimes.com/live/2026/09/23/business/trump-cnn-politico-msnow-ban-hearing
+
 **Tropical Storm Nolo Forms Near Hawaii**\
 `Nolo, still a tropical storm for now, formed on Wednesday south of the state.`\
 https://www.nytimes.com/2026/09/23/weather/tropical-storm-nolo-hurricane-hawaii.html
