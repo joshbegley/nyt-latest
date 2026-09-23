@@ -1,3 +1,7 @@
+**‘It’s Really Busy Out There’: Storms in the Pacific Threaten Hawaii and Mexico**\
+`An already busy Pacific hurricane season got a lot busier this week.`\
+https://www.nytimes.com/2026/09/23/weather/pacific-hurricanes-hawaii-polo.html
+
 **Kennedy’s Anti-Vaccine Legacy Will Outlast This Administration**\
 `Four are dead in Pennsylvania’s measles outbreak. But the C.D.C. isn’t yet convinced.`\
 https://www.nytimes.com/2026/09/23/opinion/kennedy-measles-deaths-pennsylvania.html
