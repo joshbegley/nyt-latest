@@ -1,3 +1,11 @@
+**Taylor Tomlinson is Done Feeling Shame About Sex**\
+`When the comedian Taylor Tomlinson began exploring her attraction to women, she first had to overcome the judgment and guilt she’d internalized growing up in a conservative family. On the “Modern Love” podcast, Tomlinson tells the host, Anna Martin, how it felt to finally break free of shame.`\
+https://www.nytimes.com/video/podcasts/100000011171388/taylor-tomlinson-dating-women.html
+
+**At a Times Event, Dueling Visions on Climate Change and A.I.**\
+`Energy Secretary Chris Wright said the Trump administration does not want to ban U.S. diesel exports to curb high prices.`\
+https://www.nytimes.com/2026/09/23/climate/climate-forward-chris-wright.html
+
 **At the U.N., Iran Says It Will Not Give Up Its Nuclear Program**\
 `Also, hackers say they stole thousands of sensitive F.B.I. records. Here’s the latest at the end of Wednesday.`\
 https://www.nytimes.com/2026/09/23/briefing/at-the-un-iran-says-it-will-not-give-up-its-nuclear-program.html
@@ -157,14 +165,6 @@ https://www.nytimes.com/2026/09/23/nyregion/nyc-washington-square-park-drugs.htm
 **Officials Investigating Mississippi Student Deaths Issue Warning About Kratom**\
 `The herbal substance Kratom was found during inquiries into the recent deaths of two University of Mississippi students. Their causes of death have not been determined.`\
 https://www.nytimes.com/2026/09/23/us/kratom-ole-miss-students-dead.html
-
-**RFK Jr. Drew $4 Million in Book Advances From Publisher Who Also Monetized MAHA**\
-`A new disclosure also shows $210,000 in consulting fees paid to Cheryl Hines, the health secretary’s wife, by one of several MAHA-affiliated groups capitalizing from his agenda.`\
-https://www.nytimes.com/2026/09/23/us/politics/rfk-jr-book-advances-maha.html
-
-**Disney’s Fired C.E.O. Bob Chapek Settles Scores With Bob Iger in New Book**\
-`In a new memoir, Bob Chapek publicly addresses his 2022 ouster for the first time. He blames Mr. Iger, who both preceded and succeeded him at Disney.`\
-https://www.nytimes.com/2026/09/23/business/media/disney-bob-chapek-bob-iger.html
 
 **Judge Appears Skeptical of Trump’s Ban on 3 Media Outlets**\
 `CNN, MS NOW and Politico argued in court that the president’s effort to block them from the White House complex violated their First Amendment rights. The judge promised to rule soon.`\
