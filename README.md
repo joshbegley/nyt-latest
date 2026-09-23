@@ -1,3 +1,7 @@
+**Zelensky Warns Russia’s War Will Expand if It Is Not Ended Soon**\
+`The Ukrainian president called for measures to disrupt “Russia’s finances and Russia’s production” before another deadly winter of war.`\
+https://www.nytimes.com/2026/09/23/world/europe/zelensky-speech-russia-war.html
+
 **U.S. Energy Secretary Defends War on Iran Despite Increased Fuel Costs**\
 `U.S. Energy Secretary Chris Wright defended the country’s war on Iran despite increased fuel costs and political ramifications.`\
 https://www.nytimes.com/video/climate/100000011171022/energy-secretary-defends-iran-war.html
@@ -157,10 +161,6 @@ https://www.nytimes.com/2026/09/23/world/europe/ancient-wall-paris-rome.html
 **Tiny Love Stories: ‘I Had a Sex Dream About You’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://www.nytimes.com/2026/09/23/style/tiny-modern-love-stories-i-had-a-sex-dream-about-you.html
-
-**India’s Election Panel Faces New Scrutiny Over Voter Roll Revisions**\
-`An explosive news report says election commission members objected to the measures that excluded millions of people from voting, which critics say favor the government.`\
-https://www.nytimes.com/2026/09/23/world/asia/india-election-commission-voter-rolls.html
 
 **Climate Forward Live Updates: Energy Secretary Dismisses Idea of Diesel Export Ban**\
 `Energy Secretary Chris Wright, speaking at The New York Times’ annual Climate Forward event, dismissed reports that President Trump was preparing to ban U.S. exports of diesel in a bid to lower energy prices.`\
