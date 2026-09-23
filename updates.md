@@ -1,3 +1,7 @@
+**Read the White House Response to the Lawsuit From CNN, MS NOW and Politico**\
+`The Trump administration has defended its ban on the three media outlets in a court filing.`\
+https://www.nytimes.com/interactive/2026/09/23/us/politics/cnn-msnow-politico-lawsuit-trump-response.html
+
 **Quote of the Day: Keeping Truce With the U.S. Is Xi’s Mission**\
 `Quotation of the Day for Wednesday, September 23, 2026.`\
 https://www.nytimes.com/2026/09/23/pageoneplus/quote-of-the-day-keeping-truce-with-the-us-is-xis-mission.html

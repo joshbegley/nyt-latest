@@ -1,3 +1,7 @@
+**White House Defends Trump’s Ban on CNN, MS NOW and Politico in Court Filing**\
+`President Trump determined that CNN, MS NOW and Politico were in  ‘violation of the standards of professionalism and decorum’ expected at the White House.`\
+https://www.nytimes.com/2026/09/23/business/trump-cnn-politico-ms-now-ban.html
+
 **Read the White House Response to the Lawsuit From CNN, MS NOW and Politico**\
 `The Trump administration has defended its ban on the three media outlets in a court filing.`\
 https://www.nytimes.com/interactive/2026/09/23/us/politics/cnn-msnow-politico-lawsuit-trump-response.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/09/22/us/camp-mystic-flood-investigation.html
 **Texas Halts Data Center Permits, Expanding Environmental Scrutiny**\
 `Less than a year ago, Gov. Greg Abbott welcomed data centers. Now he is confronting concerns about the projects even among fellow Republicans.`\
 https://www.nytimes.com/2026/09/22/climate/texas-halts-data-center-permits.html
-
-**Stanford Used A.I. to Swap Black Student for Hispanic Student in a Photo**\
-`Universities have been accused of doctoring photos to showcase diversity in the past. In this case, a Black woman replaced a Hispanic young man, who said it was upsetting to be “erased.”`\
-https://www.nytimes.com/2026/09/22/us/stanford-photo-swap-black-hispanic-student.html
 
 **U.N. Updates: As Trump Threatens Iran, Other Leaders Warn of Deep Divisions**\
 `President Trump said he must decide whether to make a deal or “annihilate” Iran, in a gathering where world leaders typically focus on declarations of global harmony.`\

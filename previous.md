@@ -1,3 +1,7 @@
+**Read the White House Response to the Lawsuit From CNN, MS NOW and Politico**\
+`The Trump administration has defended its ban on the three media outlets in a court filing.`\
+https://www.nytimes.com/interactive/2026/09/23/us/politics/cnn-msnow-politico-lawsuit-trump-response.html
+
 **Quote of the Day: Keeping Truce With the U.S. Is Xi’s Mission**\
 `Quotation of the Day for Wednesday, September 23, 2026.`\
 https://www.nytimes.com/2026/09/23/pageoneplus/quote-of-the-day-keeping-truce-with-the-us-is-xis-mission.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/09/22/climate/texas-halts-data-center-permits.html
 **Stanford Used A.I. to Swap Black Student for Hispanic Student in a Photo**\
 `Universities have been accused of doctoring photos to showcase diversity in the past. In this case, a Black woman replaced a Hispanic young man, who said it was upsetting to be “erased.”`\
 https://www.nytimes.com/2026/09/22/us/stanford-photo-swap-black-hispanic-student.html
-
-**Booker Prize 2026: Six Novels Make Shortlist**\
-`If James wins for “The Disappearers” or Stuart for “John of John,” it would be a rare second win for an author in the history of the prestigious literary award.`\
-https://www.nytimes.com/2026/09/22/books/booker-prize-shortlist.html
 
 **U.N. Updates: As Trump Threatens Iran, Other Leaders Warn of Deep Divisions**\
 `President Trump said he must decide whether to make a deal or “annihilate” Iran, in a gathering where world leaders typically focus on declarations of global harmony.`\
