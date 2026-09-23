@@ -1,3 +1,11 @@
+**Carney Says Risk of an A.I. Catastrophe Is ‘Above Zero’**\
+`In contrast to President Trump’s calls for an unfettered A.I. industry, Prime Minister Mark Carney of Canada called for international coordination on regulations.`\
+https://www.nytimes.com/2026/09/23/world/canada/carney-ai-risk.html
+
+**Cheetah Chrome, Guitarist for Pioneering Punk Bands, Dies at 71**\
+`He played with Rocket From the Tombs and the Dead Boys, whose snarling nihilism opened the door to an entire music genre in the 1970s.`\
+https://www.nytimes.com/2026/09/23/arts/music/cheetah-chrome-dead.html
+
 **Mark Carney Interview: Canada’s Leader Lays Out Vision for Breaking Reliance on U.S.**\
 `In a wide-ranging interview, the Canadian leader laid out a detailed vision for breaking his country’s dependency on the United States.`\
 https://www.nytimes.com/2026/09/23/world/canada/mark-carney-canada-us-trump-tariffs.html
