@@ -1,3 +1,7 @@
+**Trump’s Threat to ‘Annihilate’ Iran**\
+`Readers react to President Trump’s speech to the United Nations General Assembly. Also: Immigrants’ fears; better eating habits.`\
+https://www.nytimes.com/2026/09/23/opinion/trump-iran-united-nations.html
+
 **How El Niño Fueled Hurricane Polo’s Explosive Growth**\
 `The storm is one of the strongest ever in this part of the world.`\
 https://www.nytimes.com/2026/09/23/weather/hurricane-polo-el-nino-strongest.html

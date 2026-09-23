@@ -142,7 +142,7 @@ https://www.nytimes.com/2026/09/23/climate/erin-brockovich-pearson-tennessee-ai-
 `The lawsuits accuse the company of failing to adequately warn passengers about the risks to riders of the X2 coaster at Six Flags Magic Mountain.`\
 https://www.nytimes.com/2026/09/23/us/six-flags-x2-roller-coaster-injuries.html
 
-**Taylor Swift Announces Extended Version of ‘The Life of a Showgirl’**\
+**Taylor Swift Announces ‘The Life of a Showgirl: The Encore,’ Featuring 4 New Songs**\
 `“The Life of a Showgirl: The Encore,” featuring four new songs, will release on Friday.`\
 https://www.nytimes.com/2026/09/23/arts/music/taylor-swift-life-of-a-showgirl-encore.html
 
