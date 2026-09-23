@@ -74,7 +74,7 @@ https://www.nytimes.com/2026/09/23/business/media/disney-bob-chapek-bob-iger.htm
 `See the likely path and wind arrival times for Fifteen-E`\
 https://www.nytimes.com/interactive/2026/09/23/weather/hawaii-storm-map-path.html
 
-**Live Updates: Judge Hears Arguments From News Outlets and White House Over Ban**\
+**Live Updates: Judge Considers Whether Trump Can Ban Media Outlets Whose Coverage He Dislikes**\
 `CNN, MS NOW and Politico are challenging President Trump’s attempt to block their access to the White House, saying it violates the First Amendment. The administration has argued that such access is not a right.`\
 https://www.nytimes.com/live/2026/09/23/business/trump-cnn-politico-msnow-ban-hearing
 

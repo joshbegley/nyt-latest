@@ -1,3 +1,15 @@
+**White House Backtracks on Plan to Exert New Control Over N.I.H. Grants**\
+`Democrats and Republicans in Congress opposed the creation of a commission with the power to veto federal research awards.`\
+https://www.nytimes.com/2026/09/23/us/politics/trump-nih-science-grants.html
+
+**St. Paul Police Chief Sues Mayor, Accusing Her of Sexual Harassment**\
+`The lawsuit comes days after an independent review found that Mayor Kaohly Her had treated employees in an “offensive and inappropriate way” and created an “uncomfortable work environment.”`\
+https://www.nytimes.com/2026/09/23/us/st-paul-mayor-sexual-harassment-suit.html
+
+**How Trump’s Iran War May Sink Republican Midterm Chances**\
+`The president might be supercharging what already looked like a blue wave.`\
+https://www.nytimes.com/2026/09/23/opinion/iran-war-midterms-trump-republicans.html
+
 **St. Paul Police Chief Sues Mayor, Claiming Harassment and Retaliation**\
 `The lawsuit comes days after an independent review found that Mayor Kaohly Her had treated employees in an “offensive and inappropriate way” and created an “uncomfortable work environment.”`\
 https://www.nytimes.com/2026/09/23/us/st-paul-mayor-sexual-harassment-suit.html

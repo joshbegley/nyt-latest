@@ -1,4 +1,8 @@
-**St. Paul Police Chief Sues Mayor, Claiming Harassment and Retaliation**\
+**White House Backtracks on Plan to Exert New Control Over N.I.H. Grants**\
+`Democrats and Republicans in Congress opposed the creation of a commission with the power to veto federal research awards.`\
+https://www.nytimes.com/2026/09/23/us/politics/trump-nih-science-grants.html
+
+**St. Paul Police Chief Sues Mayor, Accusing Her of Sexual Harassment**\
 `The lawsuit comes days after an independent review found that Mayor Kaohly Her had treated employees in an “offensive and inappropriate way” and created an “uncomfortable work environment.”`\
 https://www.nytimes.com/2026/09/23/us/st-paul-mayor-sexual-harassment-suit.html
 
@@ -39,7 +43,7 @@ https://www.nytimes.com/2026/09/23/us/politics/as-xi-visits-washington-trump-pla
 https://www.nytimes.com/2026/09/23/business/bonds-interest-rates.html
 
 **How Trump’s Iran War May Sink Republican Midterm Chances**\
-`How the president might be supercharging what already looked like a blue wave.`\
+`The president might be supercharging what already looked like a blue wave.`\
 https://www.nytimes.com/2026/09/23/opinion/iran-war-midterms-trump-republicans.html
 
 **Where Is the U.S. Beating China on A.I., and Where Is It Lagging?**\
@@ -161,10 +165,6 @@ https://www.nytimes.com/2026/09/23/arts/design/lucas-museum-architect-ma-yansong
 **My Uncle May Have a Son He Won’t Acknowledge. What Do I Owe My (Maybe) Cousin?**\
 `I feel very sad for this man trying to find his father.`\
 https://www.nytimes.com/2026/09/23/magazine/uncle-son-cousin-ethics.html
-
-**Erin Brockovich and Justin Pearson Call for Communities to Push Back Against Building Data Centers**\
-`Erin Brockovich, the consumer activist, and Justin Pearson, a Democratic state representative of Tennessee, urged communities to not build new data centers.`\
-https://www.nytimes.com/video/climate/100000011169968/brockovich-pearson-against-data-centers.html
 
 **Climate Forward Live Updates: Energy Secretary Dismisses Idea of Diesel Export Ban**\
 `Energy Secretary Chris Wright, speaking at The New York Times’ annual Climate Forward event, dismissed reports that President Trump was preparing to ban U.S. exports of diesel in a bid to lower energy prices.`\
