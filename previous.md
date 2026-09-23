@@ -1,3 +1,7 @@
+**My Uncle May Have a Son He Won’t Acknowledge. What Do I Owe My (Maybe) Cousin?**\
+`I feel very sad for this man trying to find his father.`\
+https://www.nytimes.com/2026/09/23/magazine/uncle-son-cousin-ethics.html
+
 **Erin Brockovich and Justin Pearson Call for Communities to Push Back Against Building Data Centers**\
 `Erin Brockovich, the consumer activist, and Justin Pearson, a Democratic state representative of Tennessee, urged communities to not build new data centers.`\
 https://www.nytimes.com/video/climate/100000011169968/brockovich-pearson-against-data-centers.html
@@ -181,12 +185,4 @@ https://www.nytimes.com/2026/09/23/nyregion/snake-metropolitan-opera-cosi-fan-tu
 **D. B. Weiss on His Favorite TV Shows**\
 `The screenwriter D. B. Weiss is one of the hundreds of stars, showrunners and industry insiders who contributed their picks for The New York Times’s list of the best TV shows of the 21st century.`\
 https://www.nytimes.com/video/arts/100000011161897/d-b-weiss-on-his-favorite-tv-shows.html
-
-**Which $700,000 Home Would You Choose?**\
-`This week’s properties are in Plainfield, Vt.; Philadelphia; and St. Paul, Minn.`\
-https://www.nytimes.com/2026/09/23/realestate/best-home-vermont-philadelphia-stpaul.html
-
-**Lena Waithe on Her Favorite TV Shows**\
-`The actor and screenwriter Lena Waithe is one of the hundreds of stars, showrunners and industry insiders who contributed their picks for The New York Times’s list of the best TV shows of the 21st century.`\
-https://www.nytimes.com/video/arts/100000011161866/lena-waithe-on-her-favorite-tv-shows.html
 

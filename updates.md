@@ -1,3 +1,7 @@
+**My Uncle May Have a Son He Won’t Acknowledge. What Do I Owe My (Maybe) Cousin?**\
+`I feel very sad for this man trying to find his father.`\
+https://www.nytimes.com/2026/09/23/magazine/uncle-son-cousin-ethics.html
+
 **Erin Brockovich and Justin Pearson Call for Communities to Push Back Against Building Data Centers**\
 `Erin Brockovich, the consumer activist, and Justin Pearson, a Democratic state representative of Tennessee, urged communities to not build new data centers.`\
 https://www.nytimes.com/video/climate/100000011169968/brockovich-pearson-against-data-centers.html
