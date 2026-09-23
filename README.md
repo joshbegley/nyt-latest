@@ -1,3 +1,7 @@
+**‘It’s Really Busy Out There’: Storms in the Pacific Threaten Hawaii and Mexico**\
+`An already busy Pacific hurricane season got a lot busier this week.`\
+https://www.nytimes.com/2026/09/23/weather/pacific-hurricanes-hawaii-polo.html
+
 **Kennedy’s Anti-Vaccine Legacy Will Outlast This Administration**\
 `Four are dead in Pennsylvania’s measles outbreak. But the C.D.C. isn’t yet convinced.`\
 https://www.nytimes.com/2026/09/23/opinion/kennedy-measles-deaths-pennsylvania.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/23/insider/bookstores-nyc-manhattan-brooklyn.htm
 **Youth Frustration and Migration Shadow Morocco’s Election**\
 `Unemployment and poor public services fueled the border crisis at Ceuta and the Gen Z protests, but frustrated young people may stay away from the polls.`\
 https://www.nytimes.com/2026/09/23/world/africa/morocco-election-youth-frustration.html
-
-**Seth Meyers Prefers Trump Without Audio**\
-`“We don’t need to hear what he’s saying,” Meyers said after the president’s first event without the White House press pool. “He’s either bragging or lying, let’s just lose the sound.”`\
-https://www.nytimes.com/2026/09/23/arts/television/seth-meyers-trump-press-pool.html
 
